@@ -1,0 +1,1258 @@
+<!-- source: https://www.youtube.com/watch?v=SsdkClL2_bg -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: SsdkClL2_bg -->
+<!-- date_published: 2026-01-03T17:42:26+00:00 -->
+<!-- date_accessed: 2026-06-02T02:39:29.326692+00:00 -->
+
+# Transcript: President Trump Holds a Press Conference, Jan. 3, 2026
+
+- [47:20.500] The President: (inaudible)
+- [47:29.260] We appreciate you being here.
+- [47:33.850] Late last night and early today, at my direction,
+- [47:40.150] the United States Armed Forces
+- [47:43.970] conducted an extraordinary military operation
+- [47:47.510] in the capital of Venezuela.
+- [47:52.060] Overwhelming American military power, air, land
+- [47:55.110] and sea was used to launch a spectacular assault,
+- [48:00.630] and it was an assault like people have not seen
+- [48:03.240] since World War II.
+- [48:08.210] It was a force against a heavily fortified military fortress
+- [48:12.860] in the heart of Caracas
+- [48:15.330] to bring outlaw dictator, Nicolas Maduro, to justice.
+- [48:20.120] This was one of the most stunning, effective,
+- [48:24.220] and powerful displays of American military
+- [48:27.540] might and competence in American history.
+- [48:33.470] And if you think about it,
+- [48:34.840] we've done some other good ones like the attack on Soleimani,
+- [48:43.190] the attack on al-Baghdadi,
+- [48:46.860] and the obliteration and decimation
+- [48:50.220] of the Iran nuclear sites
+- [48:53.170] just recently in an operation known as Midnight Hammer,
+- [49:00.760] all perfectly executed and done.
+- [49:04.340] No nation in the world could achieve
+- [49:07.070] what America achieved yesterday or frankly
+- [49:10.090] in just a short period of time.
+- [49:14.060] All Venezuelan military capacities
+- [49:17.430] were rendered powerless
+- [49:18.820] as the men and women of our military
+- [49:21.160] working with U.S. law enforcement
+- [49:23.670] successfully captured Maduro in the dead of night.
+- [49:27.980] It was dark.
+- [49:30.670] The lights of Caracas were largely turned off
+- [49:37.370] due to a certain expertise that we have.
+- [49:42.120] It was dark, and it was deadly.
+- [49:46.740] But captured along with his wife, Cilia Flores,
+- [49:53.580] both of whom now face American justice,
+- [49:58.040] Maduro and Flores have been indicted
+- [50:00.480] in the Southern District of New York.
+- [50:03.160] It's Jay Clayton for their campaign
+- [50:06.230] of deadly narco terrorism
+- [50:08.200] against the United States and its citizens.
+- [50:12.770] I want to thank the men and women of our military
+- [50:14.810] who achieved such an extraordinary success
+- [50:17.120] overnight with breathtaking speed,
+- [50:20.310] power, precision, and competence.
+- [50:23.760] You rarely see anything like it.
+- [50:25.230] You've seen some raids in this country that didn't go so well.
+- [50:29.090] They were an embarrassment. If you look back to Afghanistan
+- [50:32.520] or if you look back to the Jimmy Carter days,
+- [50:37.340] they were different days where a respected country again,
+- [50:41.230] maybe, like never before.
+- [50:44.110] These highly trade warriors operating in collaboration
+- [50:47.530] with U.S. law enforcement caught them in a very ready position.
+- [50:52.500] They were waiting for us.
+- [50:53.870] They knew we had many ships out in the sea.
+- [50:57.900] We were just sort of waiting.
+- [50:59.710] They knew we were coming.
+- [51:01.370] So they were in what's called a ready position,
+- [51:05.550] but they were completely overwhelmed
+- [51:07.610] and very quickly incapacitated.
+- [51:12.690] If you would have seen what I saw last night,
+- [51:14.680] you would have been very impressed.
+- [51:15.930] I'm not sure that you'll ever get to see it,
+- [51:17.680] but it was an incredible thing to see.
+- [51:21.290] Not a single American service member was killed,
+- [51:24.620] and not a single piece of American equipment was lost.
+- [51:28.930] We had many helicopters, many planes,
+- [51:32.450] many people involved in that fight.
+- [51:36.120] But think of that not one piece of military equipment was lost.
+- [51:39.330] Not one service member was more importantly killed.
+- [51:43.600] The United States military is the strongest
+- [51:46.590] and most fierce of military on the planet by far.
+- [51:49.990] With capabilities and skills,
+- [51:51.730] our enemies can scarcely begin to imagine.
+- [51:55.680] We have the best equipment anywhere in the world.
+- [51:58.750] There's no equipment like what we have.
+- [52:00.330] And you see that even if you just look at the boats,
+- [52:03.820] we've knocked out 97 percent of the drugs
+- [52:07.580] coming in by sea, 90 percent.
+- [52:10.380] Each boat kills, on average, 25,000 people.
+- [52:14.470] We knocked out 97 percent.
+- [52:18.300] And those drugs mostly come from a place called Venezuela.
+- [52:23.260] We're going to run the country until such time
+- [52:26.600] as we can do a safe, proper, and judicious transition.
+- [52:31.040] So we don't want to be involved with having somebody else
+- [52:36.020] get in, and we have the same situation
+- [52:38.620] that we had for the last long period of years.
+- [52:41.900] So we are going to run the country until such time
+- [52:45.230] as we can do a safe, proper, and judicious transition.
+- [52:50.200] And it has to be judicious
+- [52:53.510] because that's what we're all about.
+- [52:55.790] We want peace, liberty,
+- [52:57.370] and justice for the great people of Venezuela.
+- [53:01.540] And that includes many from Venezuela
+- [53:04.150] that are now living in the United States
+- [53:06.800] and want to go back to their country.
+- [53:09.680] It's their homeland. We can't take a chance
+- [53:13.170] that somebody else takes over Venezuela
+- [53:15.490] that doesn't have the good of the Venezuelan people in mind,
+- [53:21.310] decades of that.
+- [53:23.210] We're not going to let that happen.
+- [53:26.560] We're there now, and what people don't understand,
+- [53:30.400] but they understand, as I say this, we're there now.
+- [53:34.680] But we're going to stay until such time
+- [53:38.800] as the proper transition can take place.
+- [53:42.470] So we're going to stay until such time
+- [53:44.360] as we're going to run it, essentially,
+- [53:45.790] until such time as a proper transition can take place.
+- [53:50.800] As everyone knows, the oil business in Venezuela
+- [53:53.230] has been a bust, a total bust for a long period of time.
+- [53:58.480] They were pumping almost nothing by comparison
+- [54:01.010] to what they could have been pumping
+- [54:04.770] and what could have taken place.
+- [54:07.680] We're going to have our very large
+- [54:10.900] United States oil companies,
+- [54:13.080] the biggest anywhere in the world,
+- [54:15.590] go in, spend billions of dollars,
+- [54:18.560] fix the badly broken infrastructure,
+- [54:21.370] the oil infrastructure,
+- [54:23.650] and start making money for the country.
+- [54:26.880] And we are ready to stage a second and much larger attack
+- [54:32.170] if we need to do so.
+- [54:35.040] So we were prepared to do a second wave
+- [54:40.250] if we needed to do so.
+- [54:43.060] We actually assumed that a second wave would be necessary.
+- [54:46.480] But now, it's probably not.
+- [54:48.670] The first wave, if you'd like to call it that,
+- [54:51.560] the first attack was so successful,
+- [54:53.310] we probably don't have to do a second.
+- [54:54.790] But we're prepared to do a second wave,
+- [54:57.510] a much bigger wave, actually.
+- [55:00.420] This was pinpoint, but we have a much bigger wave
+- [55:03.140] that probably won't have to do. This partnership of Venezuela
+- [55:08.320] with the United States of America,
+- [55:10.040] a country that everybody wants to be involved with
+- [55:13.840] because of what we were able to do and accomplish
+- [55:17.820] will make the people of Venezuela rich,
+- [55:20.960] independent, and safe.
+- [55:22.930] And it will also make the many, many people from Venezuela
+- [55:27.910] that are living in the United States extremely happy.
+- [55:30.860] They suffered. They suffered. So much was taken from them.
+- [55:35.150] They're not going to suffer anymore.
+- [55:37.710] The illegitimate dictator, Maduro,
+- [55:39.780] was the kingpin of a vast criminal network responsible
+- [55:42.970] for trafficking colossal amounts of deadly
+- [55:46.490] and illicit drugs into the United States.
+- [55:49.660] As alleged in the indictment,
+- [55:52.290] he personally oversaw the vicious cartel
+- [55:54.850] known as Cartel De Los Soles,
+- [55:59.570] which flooded our nation with lethal poison responsible
+- [56:03.260] for the deaths of countless Americans
+- [56:06.110] and many, many Americans,
+- [56:07.450] hundreds of thousands over the years of Americans died
+- [56:10.900] because of him.
+- [56:12.380] Maduro and his wife will soon face
+- [56:14.620] the full might of American justice
+- [56:17.260] and stand trial on American soil.
+- [56:21.300] Right now, they're on a ship.
+- [56:23.270] They'll be heading to ultimately New York.
+- [56:26.660] And then a decision will be made,
+- [56:28.500] I assume, between New York and Miami or Florida.
+- [56:34.810] But we have people where the overwhelming evidence
+- [56:40.050] of their crimes will be presented in a court of law.
+- [56:44.650] And I've seen it. I've seen what we have.
+- [56:50.020] It's both horrible and breathtaking
+- [56:51.870] that something like this could have been allowed to take place.
+- [56:55.400] For many years after his term as president of Venezuela,
+- [56:59.980] expired Maduro remained in power
+- [57:03.730] and waged a ceaseless campaign of violence, terror,
+- [57:08.180] and subversion against the United States of America,
+- [57:11.120] threatening not only our people,
+- [57:13.220] but the stability of the entire region.
+- [57:15.290] And you all saw it.
+- [57:16.680] In addition to trafficking gigantic amounts
+- [57:19.190] of illegal drugs that inflicted untold suffering
+- [57:24.040] and human destruction all over the country,
+- [57:27.100] all over, in particular, the United States.
+- [57:29.850] Maduro sent savage and murderous gangs,
+- [57:32.260] including the bloodthirsty prison gang, Tren de Aragua,
+- [57:36.730] to terrorize American communities nationwide.
+- [57:39.390] And he did indeed. They were in Colorado.
+- [57:41.920] They took over apartment complexes.
+- [57:44.890] They cut the fingers off people if they call police.
+- [57:48.390] They were brutal, but they're not so brutal now.
+- [57:52.940] And I just have to congratulate our military,
+- [57:56.300] Pete and everybody and our National Guard
+- [57:59.500] because the job that they've done,
+- [58:00.740] whether it's in Washington, DC,
+- [58:02.440] where we have a totally safe city
+- [58:05.200] where it was one of the most unsafe cities
+- [58:08.580] anywhere in the world, frankly.
+- [58:10.230] And now, we have no crime in Washington, DC.
+- [58:14.010] We haven't had a killing.
+- [58:15.540] We had the terrorist attack a few weeks ago,
+- [58:20.440] a little bit of a different kind of a threat,
+- [58:24.740] but we haven't had a killing in a long period of time,
+- [58:28.220] six, seven months. We used to have, on average,
+- [58:31.410] two a week in Washington, our capital.
+- [58:34.210] We don't have that anymore.
+- [58:36.200] The restaurants are opening. Everyone's happy.
+- [58:38.660] They're going. They're walking their daughters.
+- [58:40.380] They're walking their children, their wives.
+- [58:42.980] They walk to restaurants.
+- [58:44.980] Restaurants are opening all over Washington, DC.
+- [58:48.550] So I want to thank the National Guard.
+- [58:50.000] I want to thank our military.
+- [58:51.260] And I want to thank law enforcement.
+- [58:53.030] Been amazing.
+- [58:54.610] And they should do it with more cities.
+- [58:56.240] We're doing it, as you know.
+- [58:57.440] And we're doing it in Memphis, Tennessee right now.
+- [59:01.440] And crime is down.
+- [59:02.970] We've just sort of started a few weeks ago,
+- [59:05.100] but crime is down now 77 percent.
+- [59:08.730] And the governor of Louisiana called, great person,
+- [59:14.310] and he wanted us to help him, as you know,
+- [59:16.350] in a certain very nice part of Louisiana.
+- [59:22.350] And we have done that.
+- [59:23.570] It was a rough section, and we have crime down.
+- [59:28.230] I understand it's down to almost nothing
+- [59:30.310] already after two and a half weeks.
+- [59:33.070] New Orleans, it's down to almost nothing.
+- [59:36.270] And we've only been there for two and a half weeks.
+- [59:38.810] Can't imagine why governors wouldn't want us to help.
+- [59:41.680] We also helped, as you know, in Chicago.
+- [59:44.780] Then crime went down a little bit there.
+- [59:46.330] We did a very small help
+- [59:47.770] because we had no working ability with the governor.
+- [59:54.130] The governor was a disaster, and the mayor was a disaster,
+- [59:56.530] but it knocked down crime.
+- [59:57.950] But we're pulling out of there when they need us.
+- [01:00:00.760] We'll know. You'll know. You'll be writing about it.
+- [01:00:04.170] And likewise, Los Angeles,
+- [01:00:05.740] where we saved Los Angeles early on,
+- [01:00:08.560] where the head of the police department made a statement
+- [01:00:12.410] that if the federal government didn't come in,
+- [01:00:14.670] we would have lost Los Angeles. That's long after the fires.
+- [01:00:19.000] That's when they had the riots in Los Angeles.
+- [01:00:20.690] We did a great job.
+- [01:00:21.900] Got no credit for it whatsoever, but that's okay.
+- [01:00:23.940] It doesn't matter. We don't need the credit.
+- [01:00:26.760] But we'll be pulling out when they need us.
+- [01:00:28.570] They'll call, or we'll go back if we have to. We'll go back.
+- [01:00:32.480] But we did a great job in various cities.
+- [01:00:35.650] But the thing, the place that
+- [01:00:36.880] we're very proud of is Washington,
+- [01:00:38.400] DC because it's our nation's capital.
+- [01:00:40.200] We took it from being a crime-ridden mess
+- [01:00:43.390] to being one of the safest cities in the country.
+- [01:00:47.090] But the gangs that they sent raped, tortured,
+- [01:00:51.190] and murdered American women and children.
+- [01:00:53.810] They were in all of the cities. I mentioned Tren de Aragua.
+- [01:00:58.040] And they were sent by Maduro to terrorize our people.
+- [01:01:02.200] And now, Maduro will never, again,
+- [01:01:04.930] be able to threaten an American citizen
+- [01:01:07.960] or anybody from Venezuela. There will no longer be threats.
+- [01:01:12.590] For years, I've highlighted the stories of those innocent
+- [01:01:15.490] American whose lives were so heartlessly robbed
+- [01:01:20.270] by this Venezuelan terrorist organization.
+- [01:01:23.600] Really one of the worst. One of the worst.
+- [01:01:25.250] They say the worst.
+- [01:01:27.340] Americans like 12-year-old Jocelyn Nungaray from Houston,
+- [01:01:31.530] beautiful Jocelyn Nungaray, what happened to her?
+- [01:01:38.800] As you know, they kidnapped, assaulted,
+- [01:01:40.690] and murdered by Tren de Aragua animals.
+- [01:01:45.470] They murdered Jocelyn and left her dead under the bridge.
+- [01:01:51.230] There was a bridge, a bridge that will never be the same
+- [01:01:56.300] to so many people after seeing what happened.
+- [01:01:59.110] As I've said many times,
+- [01:02:00.410] the Maduro regime emptied out their prisons,
+- [01:02:03.400] sent their worst and most violent monsters
+- [01:02:05.810] into the United States to steal American lives.
+- [01:02:10.050] And they came from mental institutions and insane asylums.
+- [01:02:14.510] They came from prisons and jails.
+- [01:02:17.410] The reason I say both, they sound similar actually.
+- [01:02:19.520] Prisons a little bit more, a little bit more hostile,
+- [01:02:24.740] a little bit tougher.
+- [01:02:26.290] A mental institution isn't as tough as an insane asylum,
+- [01:02:30.620] but we got them both.
+- [01:02:31.910] They sent from their mental institutions,
+- [01:02:33.750] they sent from their jails prisons.
+- [01:02:35.970] They were drug dealers. They were drug kingpins.
+- [01:02:38.930] They sent everybody bad into the United States.
+- [01:02:42.730] But no longer.
+- [01:02:43.990] We have now a border where nobody gets through.
+- [01:02:47.440] In addition, Venezuela unilaterally seized
+- [01:02:51.440] and sold American oil,
+- [01:02:53.590] American assets and American platforms
+- [01:02:56.850] costing us billions and billions of dollars.
+- [01:03:01.400] They did this a while ago, but we never had a president
+- [01:03:03.780] that did anything about it. They took all of our property.
+- [01:03:06.970] It was our property. We built it.
+- [01:03:11.360] We never had a president that decided to do anything about it.
+- [01:03:14.640] Instead, they fought wars that were 10,000 miles away.
+- [01:03:19.710] We built Venezuela oil industry with American talent,
+- [01:03:23.660] drive and skill.
+- [01:03:25.540] And the socialist regime stole it from us
+- [01:03:29.060] during those previous administrations,
+- [01:03:32.310] and they stole it through force.
+- [01:03:34.710] This constituted one of the largest thefts
+- [01:03:36.920] of American property in the history of our country.
+- [01:03:39.820] Considered the largest theft of property
+- [01:03:41.720] in the history of our country.
+- [01:03:43.620] Massive oil infrastructure was taken like we were babies,
+- [01:03:46.630] and we didn't do anything about it.
+- [01:03:48.830] I would've done something about it.
+- [01:03:51.250] America will never allow foreign powers to rob our people
+- [01:03:54.530] or drive us back into and out of our own hemisphere.
+- [01:04:00.300] That's what they did.
+- [01:04:02.490] Furthermore, under the now deposed dictator Maduro,
+- [01:04:04.660] Venezuela
+- [01:04:05.980] was increasingly hosting foreign adversaries in our region
+- [01:04:10.060] and acquiring menacing offensive weapons
+- [01:04:12.390] that could threaten U.S. interest and lives.
+- [01:04:14.850] They used those weapons last night.
+- [01:04:17.380] They used those weapons last night,
+- [01:04:19.530] potentially in league with the cartels
+- [01:04:21.610] operating along our border.
+- [01:04:23.680] All of these actions were in gross violation
+- [01:04:26.290] of the core principles of American foreign policy
+- [01:04:30.130] dating back more than two centuries, and not anymore.
+- [01:04:36.490] All the way back, it dated to the Monroe Doctrines.
+- [01:04:41.910] The Monroe Doctrine is a big deal,
+- [01:04:45.110] but we've superseded it by a lot.
+- [01:04:48.780] By a real lot. They now call it the Donroe document.
+- [01:04:52.710] I don't know.
+- [01:04:54.090] It's Monroe Doctrine. We forgot about it.
+- [01:04:59.250] It was very important, but we forgot about it.
+- [01:05:00.940] We don't forget about it anymore.
+- [01:05:02.530] Under our new National Security Strategy,
+- [01:05:05.260] American dominance in the Western Hemisphere
+- [01:05:08.930] will never be questioned again. Won't happen.
+- [01:05:12.500] So just in concluding,
+- [01:05:13.820] for decades other administrations have neglected
+- [01:05:16.620] or even contributed to these growing security threats
+- [01:05:21.330] in the Western Hemisphere. Under the Trump administration,
+- [01:05:25.740] we are reasserting American power
+- [01:05:27.590] in a very powerful way in our home region,
+- [01:05:32.270] and our home region is very different
+- [01:05:34.530] than it was just a short while ago.
+- [01:05:37.970] We did this in my first term.
+- [01:05:39.820] We had great dominance in my first term,
+- [01:05:41.800] and we have far greater dominance right now.
+- [01:05:46.110] Everyone's coming back to us.
+- [01:05:48.200] The future will be determined by the ability
+- [01:05:50.420] to protect commerce and territory and resources
+- [01:05:54.640] that are core to national security.
+- [01:05:57.690] These are core to our national security.
+- [01:06:01.810] Just like tariffs are, they made our country rich
+- [01:06:06.070] and they've made our national security strong,
+- [01:06:09.120] stronger than ever before.
+- [01:06:11.600] But these are the iron laws
+- [01:06:12.970] that have always determined global power,
+- [01:06:16.460] and we're going to keep it that way.
+- [01:06:18.960] We will secure our borders. We'll stop the terrorists.
+- [01:06:22.790] We will crash the cartels and we will defend our citizens
+- [01:06:27.720] against all threats, foreign and domestic.
+- [01:06:30.920] Other presidents may have lacked the courage
+- [01:06:33.090] or whatever to defend America,
+- [01:06:36.630] but I will never allow terrorists and criminals
+- [01:06:39.010] to operate with impunity against the United States.
+- [01:06:43.330] This extremely successful operation
+- [01:06:45.230] should serve as warning
+- [01:06:46.530] to anyone who would threaten American sovereignty
+- [01:06:49.450] or endanger American lives.
+- [01:06:52.130] Very importantly, the embargo on all Venezuelan oil
+- [01:06:55.550] remains in full effect.
+- [01:06:57.490] The American Armada remains poised in position,
+- [01:07:03.100] and the United States retains all military options
+- [01:07:05.830] until United States demands have been fully met
+- [01:07:09.290] and fully satisfied.
+- [01:07:11.380] All political and military figures in Venezuela
+- [01:07:14.620] should understand what happened to Maduro can happen to them,
+- [01:07:18.940] and it will happen to them if they aren't just fair,
+- [01:07:24.250] even to their people.
+- [01:07:26.080] The dictator and terrorist Maduro is finally gone.
+- [01:07:30.550] In Venezuela, people are free. They're free again.
+- [01:07:35.200] It's been a long time for them, but they're free.
+- [01:07:37.680] America is a safer nation this morning.
+- [01:07:42.090] It's a prouder nation this morning
+- [01:07:43.720] because it didn't allow this horrible person
+- [01:07:47.820] and this country that was doing very bad things to us.
+- [01:07:52.600] It didn't allow it to happen, and the Western Hemisphere
+- [01:07:55.930] is right now a much safer place to be.
+- [01:07:58.610] So I want to thank everybody for being here.
+- [01:08:01.400] I want to thank General Raizin Caine.
+- [01:08:04.200] He's fantastic man. I've worked with a lot of generals.
+- [01:08:08.070] I worked with some I didn't like.
+- [01:08:09.460] I worked with some I didn't respect.
+- [01:08:11.360] I worked with some that just weren't good,
+- [01:08:14.190] but this guy is fantastic. I watched last night
+- [01:08:17.230] one of the most precise attacks on sovereignty.
+- [01:08:22.330] I mean, it was an attack for justice.
+- [01:08:26.220] I'm very proud of him and I'm very proud
+- [01:08:28.050] of our Secretary of War, Pete Hegseth,
+- [01:08:30.590] who I'm going to ask to say a few words.
+- [01:08:32.750] Thank you very much.
+- [01:08:38.790] Secretary Hegseth: Well, thank you, Mr. President.
+- [01:08:40.980] Finally, a commander-in-chief the world respects
+- [01:08:44.080] and the American people deserve. As the President said,
+- [01:08:47.020] words can barely capture the bravery and the power
+- [01:08:50.510] and the precision of this historic operation.
+- [01:08:52.680] A massive joint military
+- [01:08:54.210] and law enforcement raid flawlessly executed
+- [01:08:57.420] by the greatest Americans our country has to offer.
+- [01:09:02.030] American warriors are second to none,
+- [01:09:03.750] the best in the world and the best of our country.
+- [01:09:07.900] What I, what all of us witnessed last night was sheer guts
+- [01:09:11.960] and grit, gallantry, and glory of the American warrior.
+- [01:09:16.990] I'm simply humbled by such men.
+- [01:09:20.740] I tip my hat to our chairman, Dan Raizin Caine
+- [01:09:23.440] and all those Americans who stood watch last night.
+- [01:09:27.350] Our warriors are the elite of America,
+- [01:09:29.450] and again, President Trump has your back.
+- [01:09:33.990] No other country on planet Earth,
+- [01:09:35.560] and it's not even close,
+- [01:09:37.870] could pull this kind of operation off,
+- [01:09:39.680] and no other president has ever shown
+- [01:09:42.110] this kind of leadership, courage, and resolve.
+- [01:09:45.710] The most powerful combination the world has ever seen.
+- [01:09:50.540] As the President said,
+- [01:09:51.750] our adversaries remain on notice.
+- [01:09:54.200] America can project our will anywhere, anytime.
+- [01:09:59.330] The coordination, the stealth, the lethality, the precision,
+- [01:10:02.910] the very long arm of American justice,
+- [01:10:05.210] all on full display in the middle of the night.
+- [01:10:09.450] Nicholas Maduro had his chance, just like Iran had their chance,
+- [01:10:15.250] until they didn't and until he didn't.
+- [01:10:18.050] He effed around and he found out.
+- [01:10:21.830] President Trump is deadly serious
+- [01:10:23.890] about stopping the flow of gangs and violence to our country,
+- [01:10:27.760] deadly serious about stopping the flow of drugs
+- [01:10:30.970] and poison to our people,
+- [01:10:33.020] deadly serious about getting back the oil
+- [01:10:35.420] that was stolen from us,
+- [01:10:37.550] and deadly serious about reestablishing
+- [01:10:39.660] American deterrent and dominance in the Western Hemisphere.
+- [01:10:44.020] This is about the safety, security, freedom,
+- [01:10:47.560] and prosperity of the American people.
+- [01:10:51.030] This is America first. This is peace through strength,
+- [01:10:56.710] and the United States War Department
+- [01:10:59.120] is proud to help deliver it. Welcome to 2026,
+- [01:11:04.210] and under President Trump, America is back.
+- [01:11:09.170] I'd like to welcome now our chairman,
+- [01:11:10.890] Chairman Raizin Caine to give a few more details
+- [01:11:13.820] about the operation. Mr. Chairman.
+- [01:11:17.680] General Caine: Thank you. Thank you, Mr. Secretary.
+- [01:11:19.600] Thank you, Mr. President. Good morning.
+- [01:11:23.100] Last night on the order of the President of the United States
+- [01:11:26.280] and in support of a request from the Department of Justice,
+- [01:11:29.490] as the President said,
+- [01:11:30.720] the United States military conducted
+- [01:11:32.330] an apprehension mission in Caracas, Venezuela
+- [01:11:35.550] to bring to justice two indicted persons,
+- [01:11:38.520] Nicolas and Cilia Maduro.
+- [01:11:40.640] This operation known as Operation Absolute Resolve
+- [01:11:44.150] was discreet, precise,
+- [01:11:46.560] and conducted during the darkest hours of January 2nd,
+- [01:11:50.120] and was the culmination of months
+- [01:11:52.540] of planning and rehearsal, an operation that frankly,
+- [01:11:56.250] only the United States military could undertake.
+- [01:11:59.320] What I'd like to do this morning
+- [01:12:00.580] is talk to you through some of the preparation
+- [01:12:02.620] and the details without compromising
+- [01:12:06.050] any of our tactics, techniques, and procedures.
+- [01:12:09.530] There is always a chance that we'll be tasked
+- [01:12:12.140] to do this type of mission again.
+- [01:12:14.900] Our interagency work began months ago
+- [01:12:17.180] and built on decades of experience
+- [01:12:19.400] of integrating complex air,
+- [01:12:21.580] ground, space, and maritime operations.
+- [01:12:24.900] While the past two decades have honed the skills
+- [01:12:27.290] of our special operations forces,
+- [01:12:29.830] this particular mission
+- [01:12:31.740] required every component of our joint force,
+- [01:12:34.720] with soldiers, sailors, airmen, Marines,
+- [01:12:38.620] and guardians working in unison
+- [01:12:40.780] with our intelligence agency partners
+- [01:12:42.960] and law enforcement teammates in an unprecedented operation.
+- [01:12:47.360] We leveraged our unmatched intelligence capabilities
+- [01:12:51.140] and our years of experience in hunting terrorists,
+- [01:12:54.420] and we could not have done this mission
+- [01:12:56.670] without the incredible work by various intelligence agencies,
+- [01:13:00.420] including the CIA, NSA, and NGA.
+- [01:13:04.430] We watched, we waited, we prepared,
+- [01:13:08.240] we remained patient and professional.
+- [01:13:11.810] This mission was meticulously planned,
+- [01:13:14.520] drawing lessons from decades of many missions
+- [01:13:20.600] over these last many years.
+- [01:13:22.710] This was an audacious operation
+- [01:13:25.470] that only the United States could do.
+- [01:13:28.510] It required the utmost of precision and integration
+- [01:13:32.310] within our joint force.
+- [01:13:34.330] And the word integration does not explain
+- [01:13:37.910] the sheer complexity of such a mission.
+- [01:13:40.890] An extraction so precise,
+- [01:13:43.770] it involved more than 150 aircraft
+- [01:13:46.640] launching across the Western Hemisphere
+- [01:13:49.030] in close coordination,
+- [01:13:50.910] all coming together in time and place
+- [01:13:54.910] to layer effects for a single purpose,
+- [01:13:58.550] to get an interdiction force into downtown Caracas,
+- [01:14:02.830] while maintaining the element of tactical surprise.
+- [01:14:06.920] Failure of one component of this well-oiled machine
+- [01:14:10.970] would have endangered the entire mission,
+- [01:14:13.380] and failure is never an option for America's joint force.
+- [01:14:18.540] Those in the air over Caracas last night
+- [01:14:21.680] were willing to give their lives for those on the ground
+- [01:14:25.020] and in the helicopters.
+- [01:14:27.180] Let me talk a little bit about the preparation.
+- [01:14:29.940] After months of work by our intelligence teammates
+- [01:14:32.600] to find Maduro and understand how he moved, where he lived,
+- [01:14:38.360] where he traveled, what he ate, what he wore,
+- [01:14:42.250] what were his pets, in early December,
+- [01:14:45.280] our force was set pending a series of aligned events.
+- [01:14:50.230] Key was choosing the right day to minimize the potential
+- [01:14:54.530] for civilian harm and maximize the element of surprise
+- [01:14:59.410] and minimize the harm to the indicted personnel so,
+- [01:15:02.170] as the President said,
+- [01:15:03.590] they could be brought to justice.
+- [01:15:06.110] As the President said earlier today,
+- [01:15:08.840] weather in Venezuela is always a factor this time of the year.
+- [01:15:13.730] Over the weeks through Christmas and New Years,
+- [01:15:16.680] the men and women of the United States military sat ready,
+- [01:15:20.690] patiently waiting for the right triggers to be met
+- [01:15:24.210] and the President to order us into action.
+- [01:15:27.340] Last night, the weather broke just enough,
+- [01:15:29.880] clearing a path that only the most skilled
+- [01:15:33.470] aviators in the world
+- [01:15:35.130] could maneuver through, ocean, mountain, low cloud ceilings,
+- [01:15:40.170] but when tasked with a mission, this organization does not quit.
+- [01:15:46.590] At 10:46 P.M. Eastern time last night,
+- [01:15:49.700] the President ordered the United States military
+- [01:15:52.770] to move forward with this mission.
+- [01:15:55.000] He said to us, and we appreciated it Mr. President,
+- [01:15:57.530] "Good luck and God speed,"
+- [01:15:59.670] and those words were transmitted to the entire joint force.
+- [01:16:03.290] Over the course of the night,
+- [01:16:04.580] aircraft began launching from 20 different bases on land
+- [01:16:08.980] and sea across the Western Hemisphere.
+- [01:16:11.700] In total, more than 1150 aircraft,
+- [01:16:14.410] bombers, fighters, intelligence, reconnaissance, surveillance,
+- [01:16:18.640] rotary wing were in the air last night.
+- [01:16:21.140] Thousands and thousands of hours of experience were airborne.
+- [01:16:25.850] Our youngest crew member was 20
+- [01:16:28.220] and our oldest crew member was 49,
+- [01:16:30.760] and there's simply no match for American military might.
+- [01:16:34.260] As the night began,
+- [01:16:35.460] the helicopters took off with the extraction force,
+- [01:16:38.430] which included law enforcement officers
+- [01:16:40.730] and began their flight into Venezuela
+- [01:16:42.840] at 100 feet above the water.
+- [01:16:45.350] As they approached Venezuelan shores,
+- [01:16:47.800] the United States began layering different effects
+- [01:16:50.590] provided by Space Com, Cyber Com,
+- [01:16:52.690] and other members of the interagency
+- [01:16:54.930] to create a pathway.
+- [01:16:56.790] Overhead, those forces were protected from aircraft,
+- [01:17:00.090] were protected by aircraft from the United States Marines,
+- [01:17:03.590] the United States Navy, the United States Air Force,
+- [01:17:06.790] and the Air National Guard.
+- [01:17:08.500] The force included F-22s, F-35s, F-18s, EA-18s,
+- [01:17:14.860] E-2s, B1bombers and other support aircraft
+- [01:17:18.240] as well as numerous remotely piloted drones.
+- [01:17:22.170] As the force began to approach Karacas,
+- [01:17:24.880] the joint air component began dismantling
+- [01:17:28.380] and disabling the air defense systems in Venezuela,
+- [01:17:32.410] employing weapons to ensure the safe passage of the helicopters
+- [01:17:37.250] into the target area.
+- [01:17:39.230] The goal of our air component is, was,
+- [01:17:43.230] and always will be to protect the helicopters
+- [01:17:46.870] and the ground force,
+- [01:17:48.390] and get them to the target and get them home.
+- [01:17:51.900] As the force crossed the last point of high terrain
+- [01:17:55.510] where they'd been hiding in the clutter,
+- [01:17:57.520] we assessed
+- [01:17:58.760] that we had maintained totally the element of surprise.
+- [01:18:03.530] As the helicopter force ingressed towards the objective
+- [01:18:06.700] at low level,
+- [01:18:08.020] we arrived at Maduro's compound at 1:01 AM
+- [01:18:12.090] Eastern Standard Time or 2:01 AM Karacas local time,
+- [01:18:17.260] and the apprehension force descended into Maduro's compound
+- [01:18:21.180] and moved with speed, precision and discipline
+- [01:18:25.080] towards their objective and isolated the area
+- [01:18:27.940] to ensure the safety and security of the ground force
+- [01:18:31.530] while apprehending the indicted persons.
+- [01:18:35.070] On arrival into the target area, the helicopters came under fire,
+- [01:18:38.880] and they replied with that fire
+- [01:18:40.500] with overwhelming force and self-defense.
+- [01:18:43.530] One of our aircraft was hit but remained flyable,
+- [01:18:46.090] and as the president said earlier today,
+- [01:18:48.050] all of our aircraft came home and that aircraft
+- [01:18:50.760] remained flyable during the rest of the mission.
+- [01:18:53.840] As the operation unfolded at the compound,
+- [01:18:56.100] our air and ground intelligence teams
+- [01:18:58.780] provided real-time updates to the ground force,
+- [01:19:01.800] ensuring those forces could safely navigate
+- [01:19:04.360] the complex environment without unnecessary risk.
+- [01:19:07.700] The force remained protected by overhead tactical aviation.
+- [01:19:12.770] Maduro and his wife, both indicted, gave up,
+- [01:19:16.430] and were taken into custody by the Department of Justice
+- [01:19:19.650] assisted by our incredible U.S.
+- [01:19:21.540] military with professionalism and precision
+- [01:19:25.940] with no loss of U.S. life.
+- [01:19:28.880] After securing the indicted persons,
+- [01:19:30.950] the force began to prep for departure.
+- [01:19:33.750] Helicopters were called in to exfiltrate the extraction force
+- [01:19:37.910] while fighter aircraft and remotely piloted aircraft
+- [01:19:41.050] provided overhead coverage and suppressive fire.
+- [01:19:44.790] There were multiple self- defense engagements
+- [01:19:48.020] as the force began to withdraw out of Venezuela.
+- [01:19:52.210] The force successfully exfiltrated
+- [01:19:54.810] and returned to their afloat launch bases
+- [01:19:57.940] and the force was over the water at 3:29 AM
+- [01:20:01.960] Eastern Standard Time with indicted persons on board,
+- [01:20:06.280] and both Maduro and his wife
+- [01:20:08.360] were embarked aboard the USS Iwo Jima.
+- [01:20:12.570] In closing, what we've witnessed today
+- [01:20:15.400] is a powerful demonstration of America's joint force.
+- [01:20:19.680] We think, we develop, we train, we rehearse,
+- [01:20:24.840] we debrief, we rehearse again and again, not to get it right,
+- [01:20:30.990] but to ensure that we cannot get it wrong.
+- [01:20:35.210] Our jobs are to integrate combat power
+- [01:20:37.800] so when the order comes,
+- [01:20:40.240] we can deliver overwhelming force at the time
+- [01:20:44.240] and the place of our choosing against any foe
+- [01:20:48.230] anywhere in the world.
+- [01:20:50.570] I am immensely proud today of our joint force
+- [01:20:54.760] and filled with gratitude to represent them here today.
+- [01:20:58.580] There is simply no mission too difficult
+- [01:21:01.590] for these incredible professionals
+- [01:21:03.900] and the families that stand by them and support them.
+- [01:21:07.890] As we stand here this morning,
+- [01:21:09.940] our forces remain in the region at a high state of readiness,
+- [01:21:14.730] prepared to project power, defend themselves,
+- [01:21:18.530] and our interests in the region.
+- [01:21:21.000] This operation is a testament to the dedication
+- [01:21:25.170] and unwavering commitment to justice
+- [01:21:27.690] and our resolve to hold accountable
+- [01:21:30.130] those who threaten peace and stability.
+- [01:21:33.610] In closing, I want to express my heartfelt gratitude
+- [01:21:37.600] to the brave men and women who executed this mission.
+- [01:21:41.410] Their courage and tireless commitment to our nation
+- [01:21:44.720] are what makes us strong.
+- [01:21:46.670] Thank you, Mr. Secretary, and thank you, Mr. President.
+- [01:21:48.760] The President: Thank you very much.
+- [01:21:51.200] Please, you may.
+- [01:21:52.470] Secretary Rubio: Well, I don't have much to add
+- [01:21:53.700] to what you've heard now other than the following points.
+- [01:21:56.150] Nicholas Maduro was indicted in 2020 in the United States.
+- [01:22:00.430] He is not the legitimate president of Venezuela.
+- [01:22:02.530] That's not just us saying it.
+- [01:22:03.950] The first Trump administration, the Biden administration,
+- [01:22:06.650] the second Trump administration,
+- [01:22:07.880] none of those three recognize him.
+- [01:22:09.390] He's not recognized by the European Union
+- [01:22:11.180] in multiple countries around the world.
+- [01:22:13.080] He is a fugitive of American justice
+- [01:22:15.090] with a $50 million reward,
+- [01:22:17.310] which I guess we save $50 million.
+- [01:22:18.810] The President: We should make sure.
+- [01:22:20.890] Secretary Rubio: Yeah, exactly.
+- [01:22:22.560] The President: Don't let anybody claim it.
+- [01:22:24.930] Nobody deserves it, but us.
+- [01:22:26.840] Secretary Rubio: But I want to be clear about one thing.
+- [01:22:28.400] Nicholas Maduro had multiple opportunities to avoid this.
+- [01:22:31.510] He was provided multiple very, very, very generous offers
+- [01:22:35.750] and chose instead to act like a wild man,
+- [01:22:37.610] chose instead to play around.
+- [01:22:39.490] And the result is what we saw tonight.
+- [01:22:42.070] The other message here is the following.
+- [01:22:43.590] You have a guy, like many people around the world,
+- [01:22:45.510] they like to play games.
+- [01:22:46.800] You have a guy who decides he's going to invite Iran
+- [01:22:49.150] into his country,
+- [01:22:50.390] is going to do the confiscation of American oil companies,
+- [01:22:53.800] is going to flood our country with gang members,
+- [01:22:56.020] is going to take Americans prisoner
+- [01:22:58.660] and try to hold him for hostage and trade him like
+- [01:23:00.650] he was able to do with the Biden administration.
+- [01:23:02.990] Basically likes to play games all this time
+- [01:23:04.670] and thinks nothing's going to happen.
+- [01:23:06.600] And I hope what people now understand
+- [01:23:08.180] is that we have a president.
+- [01:23:09.420] The 47th president of the United States is not a game player.
+- [01:23:12.780] When he tells you that he's going to do something,
+- [01:23:14.510] when he's tells you he's going to address a problem,
+- [01:23:16.910] he means it. He actions it.
+- [01:23:19.250] I can tell you, I've watched this process now for 14,
+- [01:23:21.410] 15 years, been around it. Everybody talks.
+- [01:23:23.280] "I'm going to do this. I'm going to do that when I get there,
+- [01:23:25.010] we're going to do this. We're going to take…"
+- [01:23:26.480] This is a president of action.
+- [01:23:28.260] I don't understand yet how they haven't figured this out.
+- [01:23:31.190] And now if you don't know, now you know,
+- [01:23:33.400] because this is the way it's going to play out.
+- [01:23:35.000] And I think people need to understand
+- [01:23:36.370] that this is not a president that just talks
+- [01:23:38.080] and does letters and press conferences.
+- [01:23:40.900] If he says he's serious about something, he means it.
+- [01:23:43.850] And this is something that was a direct threat
+- [01:23:45.540] to the national interest of the United States
+- [01:23:47.220] and the president addressed it.
+- [01:23:48.580] He's a president of peace, by the way.
+- [01:23:50.080] I told you what I just said earlier.
+- [01:23:51.650] This guy had multiple opportunities to find his way
+- [01:23:54.510] somewhere else and figure out another.
+- [01:23:56.140] He could have been living somewhere else
+- [01:23:57.350] right now very happy,
+- [01:23:58.590] but instead he wanted to play big boy.
+- [01:24:00.370] And so now, he's got other sets of problems on his hands.
+- [01:24:04.110] But I think that the message here should be for the world.
+- [01:24:06.820] But the president doesn't go out
+- [01:24:08.040] looking for people to pick fights with.
+- [01:24:09.470] He generally wants to get along with everybody.
+- [01:24:12.390] We'll talk and meet with anybody, but don't play games.
+- [01:24:15.920] Don't play games with this president's in office
+- [01:24:17.970] because it's not going to turn out well.
+- [01:24:20.080] And so I guess that lesson was learned last night,
+- [01:24:25.930] and we hope it'll be instructive moving forward.
+- [01:24:34.710] The Press: Mr. President, you said that the U.S.
+- [01:24:37.250] is going to run Venezuela. So who's in power right now?
+- [01:24:40.450] The President: Well, we're going to be running it with a group,
+- [01:24:42.320] and we're going to make sure it's run properly.
+- [01:24:44.390] We're going to rebuild the oil infrastructure,
+- [01:24:46.320] which will cost billions of dollars.
+- [01:24:48.470] It'll be paid for by the oil companies directly.
+- [01:24:51.920] They will be reimbursed for what they're doing,
+- [01:24:55.560] but it's going to be paid.
+- [01:24:57.610] And we're going to get the oil flowing the way it should be.
+- [01:25:00.120] As you know, it was just a minor flow.
+- [01:25:01.720] It was actually a minor flow for what they have.
+- [01:25:04.200] But we're going to run it properly
+- [01:25:05.450] and we're going to make sure the people of Venezuela
+- [01:25:07.240] are taken care of.
+- [01:25:08.630] We're going to make sure the people that were forced
+- [01:25:10.310] out of Venezuela by this thug are also taken care of.
+- [01:25:17.430] The Press: Mr. President,
+- [01:25:18.740] does the U.S. running the country
+- [01:25:20.380] mean that U.S. troops will be on the ground?
+- [01:25:22.200] How will that work?
+- [01:25:23.420] The President: Well, they always say boots on the ground.
+- [01:25:25.480] Oh, so we're not afraid of boots on the ground
+- [01:25:27.280] that we have to have.
+- [01:25:28.560] We had boots on the ground last night
+- [01:25:30.690] at a very high level, actually. We're not afraid of it.
+- [01:25:34.110] We don't mind saying it, but we're going to make sure
+- [01:25:36.990] that that country is run properly.
+- [01:25:38.580] We're not doing this in vain. This is a very dangerous attack.
+- [01:25:42.170] This is an attack that could have gone very, very badly.
+- [01:25:45.040] Could have gotten very badly.
+- [01:25:46.720] We could have lost a lot of people last night.
+- [01:25:48.550] We could have lost a lot of dignity.
+- [01:25:51.450] We could have lost a lot of equipment.
+- [01:25:52.910] The equipment is less important, but we could have lost a lot,
+- [01:25:57.230] and we're going to make sure that this is proper.
+- [01:25:59.710] We're there now. We're ready to go again if we have to.
+- [01:26:03.440] We're going to run the country right.
+- [01:26:05.310] It's going to be run very judiciously, very fairly.
+- [01:26:10.190] It's going to make a lot of money.
+- [01:26:11.510] We're going to give money to the people.
+- [01:26:13.590] We're going to reimburse people that were taking advantage of.
+- [01:26:17.470] We're going to take care of everybody.
+- [01:26:19.350] It's very important.
+- [01:26:20.620] We couldn't let them get away with it.
+- [01:26:24.050] We built that whole industry there,
+- [01:26:27.880] and they just took it over like we were nothing.
+- [01:26:29.530] And we had a president
+- [01:26:30.740] that decided not to do anything about it.
+- [01:26:33.160] So we did something about it.
+- [01:26:35.250] We're late, but we did something about it.
+- [01:26:36.980] Yeah, please.
+- [01:26:38.210] The Press: Can you explain the exact mechanism
+- [01:26:40.700] by which you're going to run the country?
+- [01:26:42.310] Are you going to designate a U.S. official to coordinate?
+- [01:26:44.990] The President: Yes, it's all being done right now.
+- [01:26:46.400] We're designating people. We're talking to people.
+- [01:26:47.970] The Press: Who specifically?
+- [01:26:49.250] The President: We're designating various people,
+- [01:26:50.800] and we're going to let you know who those people are.
+- [01:26:53.320] The Press: What's the group you mentioned
+- [01:26:54.680] that would run Venezuela?
+- [01:26:55.880] The President: Well, it's largely going to be
+- [01:26:57.390] for a period of time,
+- [01:26:58.830] the people that are standing right behind me.
+- [01:27:01.420] We're going to be running it.
+- [01:27:02.820] We're going to be bringing it back.
+- [01:27:05.270] I talk about a dead country.
+- [01:27:07.060] A year and a half ago, we were a dead country.
+- [01:27:08.910] Now we're the hottest country anywhere in the world.
+- [01:27:11.850] We're a country doing better than any country,
+- [01:27:14.510] anywhere in the world. And it required leadership.
+- [01:27:18.610] Venezuela has a lot of bad people in there,
+- [01:27:21.510] a lot of bad people that shouldn't be leading.
+- [01:27:23.720] We're not going to take a chance that one of those people
+- [01:27:26.300] take over for Maduro and others. We have fantastic people,
+- [01:27:32.180] including people in the military.
+- [01:27:34.200] So we're going to have a group of people running it
+- [01:27:36.050] until such time as it can be put back on track.
+- [01:27:39.780] Make a lot of money for the people
+- [01:27:41.590] and give people a great way of life
+- [01:27:43.200] and also reimbursement for people in our country
+- [01:27:46.600] that were forced out of Venezuela.
+- [01:27:50.750] The Press: You said earlier today
+- [01:27:51.950] that you weren't going to back Machado
+- [01:27:53.770] to come back and be the opposition later in your Fox
+- [01:27:55.730] and Friends interview.
+- [01:27:56.950] And then you also mentioned the vice president of Venezuela.
+- [01:27:59.680] Are you going to work with vice president of Venezuela
+- [01:28:01.400] or how do you foresee the relationship going?
+- [01:28:02.800] The President: Well, I understand
+- [01:28:04.070] she was just sworn in,
+- [01:28:05.340] but she was, as you know, picked by Maduro.
+- [01:28:07.930] So Marco's working on that directly.
+- [01:28:10.170] He just had a conversation with her,
+- [01:28:12.880] and she's essentially willing to do
+- [01:28:14.720] what we think is necessary to make Venezuela great again.
+- [01:28:19.050] Very simple.
+- [01:28:20.890] The Press: Mr. President,
+- [01:28:22.120] so Columbian president Gustavo Petro,
+- [01:28:23.850] a couple of weeks ago,
+- [01:28:25.110] he said he's got to watch his ass.
+- [01:28:27.660] And today he said he's not concerned about anything
+- [01:28:29.720] happening to him in the aftermath of this operation.
+- [01:28:31.720] So just what your message is about that?
+- [01:28:33.350] The President: Well, he has cocaine mills.
+- [01:28:34.860] He has factories where he makes cocaine.
+- [01:28:38.260] And yeah, I think I stick by my first statement.
+- [01:28:40.950] He's making cocaine
+- [01:28:42.210] and they're sending it into the United States,
+- [01:28:43.980] so he does have to watch his ass.
+- [01:28:46.970] The Press: Mr. President,
+- [01:28:48.650] did you notify any members of Congress in advance?
+- [01:28:51.080] The President: And Marco, do you want to talk about that
+- [01:28:52.570] because you were involved in it?
+- [01:28:53.770] Secretary Rubio: Sure. We call members
+- [01:28:54.980] of Congress immediately after. This was not the kind of mission
+- [01:28:56.850] that you can do congressional notification on.
+- [01:28:58.810] It was a trigger-based mission in which conditions
+- [01:29:01.440] had to be met night after night.
+- [01:29:02.760] We watched and monitor that for a number of days.
+- [01:29:04.860] So it's just simply not the kind of mission
+- [01:29:06.450] you can call people and say,
+- [01:29:07.680] "Hey, we may do this at some point in the next 15 days."
+- [01:29:10.470] But it's largely a law enforcement function.
+- [01:29:12.080] Remember at the end of day, at its core,
+- [01:29:14.090] this was an arrest of two indicted fugitives
+- [01:29:16.910] of American justice, and the Department of War
+- [01:29:19.410] supported the Department of Justice in that job.
+- [01:29:21.570] Now there are broader policy implications here,
+- [01:29:23.870] but it's just not the kind of mission that you can pre-notify
+- [01:29:26.250] because it endangers the mission.
+- [01:29:30.190] The President: If I can add one thing to that.
+- [01:29:32.380] Congress has a tendency to leak.
+- [01:29:35.160] This would not be good. If they leaked, General,
+- [01:29:37.920] I think it would have been maybe a very different result.
+- [01:29:41.080] But I have to say, they knew we were coming at some point.
+- [01:29:44.370] A lot of ships out there, they sort of knew we were coming.
+- [01:29:48.610] But Congress will leak, and we don't want leakers.
+- [01:29:52.160] The Press: You were one of the only people
+- [01:29:55.080] to watch this all play out live.
+- [01:29:56.800] What was Maduro doing when the U.S. forces entered
+- [01:30:00.060] what I assume would be his home?
+- [01:30:01.550] And also, was there any point where the U.S. was considering
+- [01:30:04.410] if Maduro pushed back or resisted killing Maduro?
+- [01:30:07.780] The President: It could have happened.
+- [01:30:09.010] It could have happened.
+- [01:30:10.240] He was trying to get into a safe place.
+- [01:30:11.880] You know what a safe place is, all steal,
+- [01:30:14.810] and he wasn't able to make it to the door
+- [01:30:16.600] because our guys were so fast.
+- [01:30:18.830] They went through the opposition so fast
+- [01:30:21.480] and there was a lot of opposition.
+- [01:30:23.050] People were wondering, do we get him by surprise?
+- [01:30:25.650] Sort of surprised, but they were waiting for something.
+- [01:30:28.400] It was a lot of opposition. There was a lot of gunfire.
+- [01:30:31.310] You saw some of it today,
+- [01:30:33.720] but he was trying to get to a safe place, which wasn't safe
+- [01:30:37.410] because we would have had the door blown up in about 47,
+- [01:30:41.510] I think 47 seconds, they say on average,
+- [01:30:44.500] regardless of how thick the seal was.
+- [01:30:46.450] It was a very thick door. It was a very heavy door,
+- [01:30:48.960] but he was unable to get to that door.
+- [01:30:51.770] He made it to the door. He was unable to close it.
+- [01:30:57.060] The Press: Where is Maduro
+- [01:30:58.290] going to be in the time being right now?
+- [01:31:00.080] Do you know his exact whereabouts?
+- [01:31:01.310] The President: Well, eventually, ultimately in the near future,
+- [01:31:03.440] he's going to be brought to New York.
+- [01:31:04.720] The Press: And where is he going to be held in New York,
+- [01:31:06.430] do you know?
+- [01:31:07.660] The President: Well, that's going to be up to the officials
+- [01:31:09.380] that do these things.
+- [01:31:10.620] The Press: Mr. President, Mr. President,
+- [01:31:12.670] the U.S. has something of a mixed track record
+- [01:31:14.850] of ousting dictators
+- [01:31:16.050] without necessarily a plan for what comes afterwards.
+- [01:31:17.730] The President: Not with me, we didn't.
+- [01:31:19.000] The Press: Did that weigh on your decision-making?
+- [01:31:20.220] The President: Well, that's why we have different presidents,
+- [01:31:21.530] but with me, that's not true.
+- [01:31:23.010] With me, we've had a perfect track record of winning.
+- [01:31:27.000] We win a lot and we win.
+- [01:31:29.160] If you look at Soleimani, you look at Al Baghdadi,
+- [01:31:32.190] you look at the Midnight Hammer. Midnight Hammer was incredible.
+- [01:31:36.910] Right now, you wouldn't have peace in the Middle East.
+- [01:31:39.020] We have essentially peace in the Middle East because of that.
+- [01:31:42.940] If we weren't successful with Midnight Hammer,
+- [01:31:45.290] you wouldn't have peace in the Middle East.
+- [01:31:47.220] So with me, you've had a lot of victory.
+- [01:31:51.000] You've had only victories, you've had no losses. Yeah.
+- [01:31:53.080] The Press: Mr. President,
+- [01:31:55.200] how long do you expect the U.S. to run Venezuela,
+- [01:31:57.680] and how soon do you want the Venezuelan
+- [01:31:59.450] people to hold elections?
+- [01:32:00.720] The President: So I'd like to do it quickly,
+- [01:32:02.240] but it takes a period of time. We're rebuilding.
+- [01:32:04.680] We have to rebuild their whole infrastructure.
+- [01:32:06.660] The infrastructure is rotted. It's actually very dangerous.
+- [01:32:10.160] It's a blow up territory. Oil is very dangerous.
+- [01:32:13.080] It's a very dangerous thing to take out of the ground,
+- [01:32:16.880] can kill a lot of people.
+- [01:32:18.340] It has killed a lot of people doing just that.
+- [01:32:21.500] The infrastructure is old. It's rotted.
+- [01:32:24.190] Much of it is stuff that we put there 25 years ago.
+- [01:32:27.430] And we're going to be replacing it,
+- [01:32:29.310] and we're going to take a lot of money out
+- [01:32:31.740] so that we can take care of the country.
+- [01:32:37.380] The Press: Mr. President, China, Russia,
+- [01:32:39.590] and Iran have interests in Venezuela.
+- [01:32:41.900] How does this operation affect your relationships with them
+- [01:32:44.340] when it comes to the oil and drugs?
+- [01:32:45.760] The President: In terms of China and Russia,
+- [01:32:48.130] well, Russia when we get things straightened out,
+- [01:32:51.790] but in terms of other countries that want oil,
+- [01:32:54.850] we're in the oil business, we're going to sell it to them.
+- [01:32:56.920] We're not going to say we're not going to.
+- [01:32:58.310] In other words, we'll be selling oil
+- [01:33:01.330] probably in much larger doses
+- [01:33:02.990] because they couldn't produce very much
+- [01:33:04.430] because their infrastructure was so bad.
+- [01:33:06.140] So we'll be selling large amounts of oil
+- [01:33:08.740] to other countries, many of whom are using it now,
+- [01:33:12.210] but I would say many more will come.
+- [01:33:14.060] Wait. One second please. Go ahead, behind you, please.
+- [01:33:20.130] The Press: Mr. President, thank you.
+- [01:33:21.500] What is your message to the people of Venezuela today?
+- [01:33:23.950] Of course, the civilian population specifically,
+- [01:33:27.080] they have a lot of questions.
+- [01:33:28.290] What is your message to the people of Venezuela?
+- [01:33:29.720] The President: That you're going to have peace, justice.
+- [01:33:31.920] You're going to have some of the riches
+- [01:33:34.630] that you should have had for a long period of time.
+- [01:33:36.890] It was stolen from you, but you're going to have peace
+- [01:33:39.060] and you're going to have safety.
+- [01:33:40.380] You're going to have justice. You're going to have a country.
+- [01:33:42.190] You're going to have a real country.
+- [01:33:43.520] You're going to have, potentially, a great country.
+- [01:33:45.860] If you go back 20 years, maybe even a little longer ago,
+- [01:33:48.480] that was a great country. And they destroyed it.
+- [01:33:51.540] Remember I said that, if we lose this election,
+- [01:33:55.280] the United States will be Venezuela on steroids.
+- [01:33:58.880] That's what would have happened had we lost the election,
+- [01:34:02.170] the 2024 election.
+- [01:34:04.000] We suffered so badly when you look at the border from 2020.
+- [01:34:07.990] What they did, what Joe Biden, the administration,
+- [01:34:10.550] did to our country should never be forgotten.
+- [01:34:13.580] But if we had to go through another year of that,
+- [01:34:15.270] we wouldn't have…
+- [01:34:16.560] We would be exactly where Venezuela was in terms…
+- [01:34:20.520] I used to say, if they win,
+- [01:34:22.360] we're going to be Venezuela on steroids.
+- [01:34:24.050] And that's what would have happened.
+- [01:34:25.500] The Press: Mr. President, thank you.
+- [01:34:27.220] Are you saying that Secretary Hegseth and Rubio
+- [01:34:29.680] are going to be running Venezuela?
+- [01:34:31.370] And will you be sending in U.S. military trips to provide-
+- [01:34:33.310] The President: They're going to be a team
+- [01:34:34.590] that's working with the people of Venezuela
+- [01:34:36.760] to make sure that we have Venezuela
+- [01:34:38.950] because, for us to just leave, who's going to take over?
+- [01:34:41.800] I mean, there is nobody to take over.
+- [01:34:44.170] You have a vice president who's been appointed by Maduro.
+- [01:34:48.190] And, right now, she's the vice president.
+- [01:34:49.950] And she's, I guess, the president.
+- [01:34:51.420] She was sworn as president just a little while ago.
+- [01:34:54.210] She had a long conversation with Marco, and she said,
+- [01:34:57.490] "We'll do whatever you need." I think she was quite gracious,
+- [01:35:02.200] but she really doesn't have a choice.
+- [01:35:05.240] We're going to have this done right.
+- [01:35:06.870] We're not going to just do this with Maduro
+- [01:35:08.530] and then leave like everybody else leave and say,
+- [01:35:11.240] "Let it go to hell."
+- [01:35:12.660] If we just left, it has zero chance of ever coming back.
+- [01:35:16.800] We'll run it properly. We'll run it professionally.
+- [01:35:19.110] We'll have the greatest oil companies in the world
+- [01:35:21.180] going and invest billions and billions of dollars
+- [01:35:24.070] and take out money, use that money in Venezuela.
+- [01:35:27.610] And the biggest beneficiary are going to be
+- [01:35:29.410] the people of Venezuela
+- [01:35:30.610] and, also, I can't stress this strongly enough,
+- [01:35:34.090] the people that got thrown out of Venezuela
+- [01:35:37.010] that are now in the United States
+- [01:35:38.240] and, frankly, some want to stay
+- [01:35:39.520] and some probably want to go back.
+- [01:35:41.010] Yeah.
+- [01:35:42.760] The Press: What's being done to protect Americans
+- [01:35:44.670] in the country?
+- [01:35:45.960] And were any of the detained Americans rescue after?
+- [01:35:47.510] The President: Well, right now, they're very protected
+- [01:35:49.090] because nobody's going to mess with us.
+- [01:35:50.790] They're very protected.
+- [01:35:52.470] And we let them know that you better not touch one of them.
+- [01:35:55.880] The Press: And are you concerned that bad elements
+- [01:35:58.520] of the Maduro regime will remain in place?
+- [01:36:01.600] The President: Well, we know who they are. We're on them.
+- [01:36:04.530] And they're acting much differently now
+- [01:36:07.360] than they would have acted two days ago.
+- [01:36:09.400] Okay. Wait. Behind you please?
+- [01:36:10.680] The Press: Mr. President, why is running a country
+- [01:36:12.200] in South America "America First"?
+- [01:36:14.820] The President: Well, I think it is
+- [01:36:16.060] because we want to surround ourself with good neighbors.
+- [01:36:18.480] We want to surround ourself with stability.
+- [01:36:21.850] We want to surround ourself with energy.
+- [01:36:23.990] We have tremendous energy in that country.
+- [01:36:25.970] It's very important that we protect it.
+- [01:36:28.010] We need that for ourselves. We need that for the world,
+- [01:36:30.650] and we want to make sure we can protect it.
+- [01:36:33.580] Yes, sir, please go ahead. The Press: Yeah.
+- [01:36:35.250] Is there a message here for Cuba and Diaz-Canel?
+- [01:36:37.700] The President: Well, Cuba is an interesting case.
+- [01:36:39.280] Cuba is not doing very well right now.
+- [01:36:42.900] That system has not been a very good one for Cuba.
+- [01:36:45.280] The people there have suffered for many, many years.
+- [01:36:48.100] And I think Cuba is going to be something
+- [01:36:50.610] we'll end up talking about,
+- [01:36:51.940] because Cuba is a failing nation right now,
+- [01:36:54.510] a very badly failing nation.
+- [01:36:56.400] And we want to help the people. It's very similar in the sense
+- [01:36:58.950] that we want to help the people in Cuba,
+- [01:37:00.880] but we want to also help the people
+- [01:37:02.790] that were forced out of Cuba and living in this country.
+- [01:37:05.810] Do you want to say something about that, Marco, please?
+- [01:37:08.270] Secretary Rubio: Well, I mean, I just gave you a statement
+- [01:37:10.410] a few minutes ago about,
+- [01:37:12.150] when the president speaks, you should take him seriously.
+- [01:37:14.210] So, suffice it to say, Cuba is a disaster.
+- [01:37:17.410] It's run by incompetent Sino men and, in some cases,
+- [01:37:22.400] not Sino but incompetent nonetheless.
+- [01:37:24.140] It has no economy. It's in total collapse.
+- [01:37:25.970] And, by the way, they were --
+- [01:37:28.450] sll the guards that help protect Maduro,
+- [01:37:31.110] this is well known, their whole spy agency,
+- [01:37:32.850] all that were full of Cubans.
+- [01:37:34.250] I mean, they basically -- it's amazing.
+- [01:37:35.460] This poor island took over Venezuela in some cases.
+- [01:37:39.030] One of the biggest problems the Venezuelans have
+- [01:37:40.840] is they have to declare independence from Cuba
+- [01:37:42.540] that tried to basically colonize it from a security standpoint.
+- [01:37:45.000] So, yeah, look, if I lived in Havana
+- [01:37:46.570] and I was in the government,
+- [01:37:47.790] I'd be concerned at least a little bit.
+- [01:37:49.430] The Press: Are you cutting off the oil flow to Cuba
+- [01:37:50.780] from Venezuela?
+- [01:37:52.100] Secretary Rubio: Well, the president
+- [01:37:53.310] already announced a week ago
+- [01:37:54.580] that anything that's sanctioned, it's sanctioned oil,
+- [01:37:57.120] it's not going to be allowed to get there, so that's an --
+- [01:38:04.520] The President: The answer is yes. Yes?
+- [01:38:06.630] The Press: Is the U.S. aware
+- [01:38:07.870] of the location of opposition leader Machado?
+- [01:38:09.980] And have you been in contact with her?
+- [01:38:11.900] The President: No, we haven't really.
+- [01:38:13.400] No, we haven't.
+- [01:38:19.170] Oh, I think it would be very tough for her to be the leader.
+- [01:38:21.750] She doesn't have the support within
+- [01:38:23.780] or the respect within the country.
+- [01:38:25.180] She's a very nice woman,
+- [01:38:26.450] but she doesn't have the respect within the country.
+- [01:38:28.170] The Press: Mr. President, is it possible
+- [01:38:29.390] that the U.S. ends up administrating Venezuela
+- [01:38:31.490] for years in this situation?
+- [01:38:32.940] The President: Well, it won't cost us anything
+- [01:38:34.840] because the money coming out of the ground is very substantial.
+- [01:38:37.700] So it's not going to cost us anything.
+- [01:38:38.920] The Press: So the U.S.
+- [01:38:40.150] isn't going to dedicate any money to --
+- [01:38:41.450] The President: We will. Well, we want safety there.
+- [01:38:43.030] We want to be surrounded by countries
+- [01:38:45.310] that aren't housing all of our enemies all over the world.
+- [01:38:48.440] That's what was happening, and you don't want to have that.
+- [01:38:52.050] But we're going to be rebuilding.
+- [01:38:54.480] And we're not spending money.
+- [01:38:56.880] The oil companies are going to go in.
+- [01:38:58.210] They're going to spend money.
+- [01:38:59.690] We're going to take back the oil that, frankly,
+- [01:39:01.750] we should have taken back a long time ago.
+- [01:39:04.250] A lot of money is coming out of the ground.
+- [01:39:06.120] We're going to get reimbursed for all of that.
+- [01:39:07.850] We're going to get reimbursed for everything that we spend,
+- [01:39:10.560] so it's going to be a very important --
+- [01:39:14.410] it's going to be a very important.
+- [01:39:15.700] This is a very big evening that took place last night.
+- [01:39:18.940] We have to be surrounded by safe, secure countries.
+- [01:39:23.360] And we also have to have energy.
+- [01:39:25.610] Very important, we have to have energy that's real energy,
+- [01:39:28.360] not where they're getting 4 percent
+- [01:39:30.470] and 5 percent of the energy out of the ground.
+- [01:39:32.680] If you take a look, it was such a disaster.
+- [01:39:34.790] So what's going to happen with Venezuela, I think,
+- [01:39:37.740] over the next period of a year is going to be a great thing.
+- [01:39:41.040] And the people of Venezuela will be the biggest beneficiaries.
+- [01:39:46.450] The Press: What did you last -- Mr. President, thank you.
+- [01:39:49.730] What did you last speak to Maduro about when you spoke?
+- [01:39:51.690] And is the U.S. --
+- [01:39:52.930] The President: Well, I don't want to get
+- [01:39:54.150] into the conversations.
+- [01:39:55.380] But I did have conversations with him,
+- [01:39:56.840] and I said, "You got to surrender."
+- [01:40:02.260] And I actually thought he was pretty close to doing so,
+- [01:40:05.700] but now he wished he did. Yeah.
+- [01:40:07.880] The Press: Mr. President, can you explain --
+- [01:40:09.630] you said that Maduro is responsible
+- [01:40:11.610] for drug trafficking.
+- [01:40:12.820] You recently pardoned the former president of Honduras
+- [01:40:15.540] who was convicted on many drug trafficking.
+- [01:40:17.920] Can you explain how these two situations are different?
+- [01:40:19.750] And would you ever pardon Maduro?
+- [01:40:21.030] The President: Yeah, I endorsed, as you know,
+- [01:40:22.380] the winning president, the man who won in Honduras.
+- [01:40:25.340] I endorsed the man who won in Chile.
+- [01:40:28.300] I endorsed the man who won in Argentina.
+- [01:40:31.060] And we are doing very well with that whole group.
+- [01:40:34.390] The man that I pardoned was, if you could equate it to us,
+- [01:40:37.990] he was treated like the Biden administration
+- [01:40:41.030] treated a man named Trump.
+- [01:40:42.460] That didn't work out too well for them.
+- [01:40:44.470] This was a man who was persecuted very unfairly.
+- [01:40:47.770] He was the head of the country. He was persecuted very unfairly.
+- [01:40:51.040] And there are a number of them.
+- [01:40:53.090] And we felt that it was a very unfair situation
+- [01:40:55.490] that happened to him.
+- [01:40:56.940] He's also a party member of the man who won,
+- [01:40:59.710] so, obviously, the people liked what I did.
+- [01:41:02.780] And one of the reasons that was done
+- [01:41:04.470] is because of the fact that the party in power
+- [01:41:07.750] felt very strongly that that man was treated very badly.
+- [01:41:11.030] I studied it very quickly
+- [01:41:12.550] and then I studied it in great detail.
+- [01:41:14.660] I went to a lot of the people standing behind me,
+- [01:41:17.440] and they felt that that man was persecuted
+- [01:41:19.710] and treated very badly. That's why I gave him a pardon.
+- [01:41:22.780] The Press: Mr. President,
+- [01:41:23.990] you referenced boots on the ground earlier.
+- [01:41:26.050] Can you just sort of button this up?
+- [01:41:27.400] Do you envision the U.S. military
+- [01:41:29.510] having a presence in Venezuela as the U.S. runs that country?
+- [01:41:31.840] The President: Well, no,
+- [01:41:33.060] we're going to have presence in Venezuela
+- [01:41:35.170] as it pertains to oil because we have to have --
+- [01:41:37.790] we're sending our expertise in,
+- [01:41:40.730] so you may need something, not very much.
+- [01:41:43.270] But, no, we're going to be taking out
+- [01:41:44.630] a tremendous amount of wealth out of the ground,
+- [01:41:47.570] and that wealth is going to the people of Venezuela
+- [01:41:50.050] and people from outside of Venezuela
+- [01:41:52.380] that used to be in Venezuela.
+- [01:41:54.310] And it goes also to the United States of America
+- [01:41:57.080] in the form of reimbursement for the damages
+- [01:41:59.800] caused us by that country.
+- [01:42:01.490] So I want to thank you all very much. Thank you.
+- [01:42:03.580] Do you have one? Yes, please. You were so nice before.
+- [01:42:06.010] I'm going to give you the final question. Go ahead.
+- [01:42:07.680] The Press: Thank you, Mr. President.
+- [01:42:08.960] The President: Unless it's a bad question
+- [01:42:10.300] in which case I'll go -- Wait, what? It's about who?
+- [01:42:11.910] The Press: It's about Putin. If you want to --
+- [01:42:13.180] The President: About Putin?
+- [01:42:14.420] Well, it's always nice to talk about Putin.
+- [01:42:16.750] The Press: You had a phone call with him on Monday.
+- [01:42:18.920] Did he talk at all about Maduro? Did you all talk about this?
+- [01:42:21.650] The President: No, we didn't. We never spoke about Maduro.
+- [01:42:23.230] The Press: Are you mad at him right now?
+- [01:42:24.430] I mean there's this intelligence --
+- [01:42:25.650] The President: I'm not thrilled with Putin.
+- [01:42:26.880] I'm not thrilled with Putin.
+- [01:42:29.380] He's killing too many people. I thought that would be --
+- [01:42:33.030] so I settled eight and one-quarter war.
+- [01:42:36.920] You know what the one-quarter was?
+- [01:42:38.660] Thailand.
+- [01:42:40.040] In Cambodia, I did it again. They broke out.
+- [01:42:44.190] And I did it in about five hours and I settled it.
+- [01:42:48.180] I'm giving myself one quarter,
+- [01:42:49.680] so I'm up to now eight and one quarter.
+- [01:42:51.730] In other words, I settled the war,
+- [01:42:52.960] but then they broke out. They had a pretty bad breakout.
+- [01:42:55.900] Over the last four days, I got them to go back to peace.
+- [01:42:59.820] So I only give one quarter.
+- [01:43:01.270] I thought the easiest one would be --
+- [01:43:03.550] one of the easier ones would be Russia, Ukraine.
+- [01:43:06.850] It's not. And they both have done some pretty bad things.
+- [01:43:12.290] And, look, that's Biden's war.
+- [01:43:13.880] That's not my war, but I want to stop the lives…
+- [01:43:16.520] Did you see? Well, last month, 30,000.
+- [01:43:19.620] This last… It was 27, 27,000 the month before.
+- [01:43:24.670] 30,000, mostly soldiers, were killed this last month.
+- [01:43:30.570] 30,000. I want to stop that.
+- [01:43:34.160] I got NATO to pay 5 percent
+- [01:43:36.260] instead of the 2 percent that they weren't paying.
+- [01:43:39.030] They weren't paying two. Now they pay five.
+- [01:43:41.710] And we send them a lot of munitions.
+- [01:43:43.470] We send them a lot of things,
+- [01:43:44.860] missiles and various other things, a lot.
+- [01:43:47.260] And they pay.
+- [01:43:48.460] The United States is not losing money.
+- [01:43:50.620] We're probably making money on that.
+- [01:43:52.430] It's the last thing I care about.
+- [01:43:53.950] I just want to stop all those people.
+- [01:43:55.750] We're losing 25, 30,000 human beings.
+- [01:43:59.020] They come from two places that are very far away.
+- [01:44:02.490] But, if I can stop, because it's something
+- [01:44:04.990] I've been pretty good at doing, deals, I guess.
+- [01:44:07.930] It's all a deal. Life is a big deal.
+- [01:44:10.810] But if I can stop that war and stop 30,000 young people…
+- [01:44:14.570] In addition to the fact that people are being killed in Kyiv,
+- [01:44:18.080] people are being killed in other cities throughout,
+- [01:44:20.750] a much smaller number,
+- [01:44:22.000] but they're being killed, viciously killed.
+- [01:44:24.650] So I'm not happy about it.
+- [01:44:25.990] I thought that would be something that would get solved.
+- [01:44:28.800] We have Mr. Witkoff here.
+- [01:44:30.010] I think that we're making progress.
+- [01:44:31.820] But that's a war that should have never happened.
+- [01:44:34.820] If I were president, it would have never happened.
+- [01:44:37.310] Putin says it. Everybody says it.
+- [01:44:39.390] If I were president, that would have never happened.
+- [01:44:41.810] But I inherited that war.
+- [01:44:43.960] That was Joe Biden, Zelenskyy, and Putin.
+- [01:44:47.560] I came into the situation. And it's a mess.
+- [01:44:51.090] And I will say this.
+- [01:44:52.390] I watched an operation last night that was so precise,
+- [01:44:55.510] that was so brilliant. I mean, it was incredible.
+- [01:44:59.630] If we had our people like this general and our people involved,
+- [01:45:03.940] that war would not have gone on very long, that I can tell you.
+- [01:45:09.580] That war, to use an old term, that war has become a bloodbath,
+- [01:45:15.100] and we wanted to get it stopped.
+- [01:45:16.520] Thank you very much, everyone.

@@ -1,0 +1,417 @@
+<!-- source: https://www.youtube.com/watch?v=JMTKxhqoUis -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: JMTKxhqoUis -->
+<!-- date_published: 2026-05-15T23:25:36+00:00 -->
+<!-- date_accessed: 2026-06-02T00:59:30.793451+00:00 -->
+
+# Transcript: Vice President JD Vance Delivers Remarks at the National Peace Officer’s Memorial Service
+
+- [00:01.420] Male Speaker: The memories of our loved ones,
+- [00:02.870] they never leave us. These difficult days ahead,
+- [00:05.460] those memories become our strength,
+- [00:07.370] helping us face tomorrow and the next day,
+- [00:10.310] the day after that. At this solemn service,
+- [00:13.620] it is my distinct honor to welcome our keynote speaker,
+- [00:15.900] the Vice President of the United States, JD Vance.
+- [00:19.130] Mr. Vice President, on behalf of our members
+- [00:20.970] and our surviving families,
+- [00:22.190] and entire law enforcement community,
+- [00:24.350] thank you not only for being here today,
+- [00:26.650] joining us as we honor our fallen,
+- [00:28.840] but for the support and appreciation.
+- [00:31.390] Shown to America's law enforcement
+- [00:32.910] by President Trump and yourself each and every day.
+- [00:36.010] Ladies and gentlemen,
+- [00:37.300] please join me in welcoming the President --
+- [00:39.290] the Vice President of the United States, JD Vance.
+- [00:42.850] (applause)
+- [01:00.580] The Vice President: Thank you all, thank you.
+- [01:04.620] First of all, what an amazing program,
+- [01:06.850] and it's such an honor to be back here.
+- [01:09.060] I was here quite literally a year to the day,
+- [01:12.180] and being the Vice President of the United States
+- [01:15.300] is the coolest job imaginable.
+- [01:18.200] But of all the amazing things I get to do,
+- [01:20.080] getting to be here to speak to the families of the fallen
+- [01:24.020] and our brave law enforcement officers,
+- [01:26.080] it's at the very top of the list.
+- [01:28.330] So many of you said, thank you for coming here today,
+- [01:30.900] I want to thank you for having me here today.
+- [01:33.380] It is the greatest honor that I could possibly have,
+- [01:36.270] as your Vice President, to come here
+- [01:38.360] and say to these beautiful families,
+- [01:40.430] thank you, and I'm sorry, and from the bottom of my heart,
+- [01:44.200] speaking for all the American people,
+- [01:46.810] Democrat, Republican, and Independent,
+- [01:49.210] we love you, we're grateful to you,
+- [01:51.580] and we're sorry that you've had to sacrifice so much,
+- [01:54.280] but we know that we're free, and we're safe,
+- [01:57.150] and we're peaceful because of what your families did.
+- [01:59.620] God bless you all, and thank you.
+- [02:07.530] Before I get into the meat of my remarks,
+- [02:09.760] I want to briefly express my gratitude
+- [02:12.960] to the men and women who've made this particular event possible.
+- [02:17.260] There are countless people who deserve shout outs,
+- [02:19.510] and I'm sure I won't get to everybody,
+- [02:21.240] but I specifically want to thank,
+- [02:23.500] first of all, the Fraternal Order of Police
+- [02:25.460] President Patrick Yoes, who does an amazing job,
+- [02:29.130] and its Director, Jim Pasco, as well as the President
+- [02:32.910] of the National FOP Auxiliary Board, Glenda Lehmann.
+- [02:35.960] Thank you to the three of you for having me,
+- [02:37.720] and thanks to the three of you
+- [02:39.000] for making this amazing day possible.
+- [02:46.250] And I told Patrick, I said to the FOP President
+- [02:49.430] that I would come back next year,
+- [02:51.080] but only if he sings the National Anthem next time,
+- [02:53.620] so we want to see how many talents Patrick has here.
+- [02:58.140] Let me just say that speaking
+- [03:00.450] before this audience one year ago,
+- [03:03.670] like I said earlier, was a solemn privilege.
+- [03:06.240] It's amazing. I see these families,
+- [03:07.910] these beautiful families looking up at me,
+- [03:10.210] and I know that each one of you represents a story.
+- [03:13.190] And I want to say it's my honor to be here again one year later.
+- [03:18.600] I want to open with a line of scripture
+- [03:20.970] from the book of Isaiah.
+- [03:22.880] I suspect it's a passage that all of you
+- [03:25.120] in law enforcement know very well,
+- [03:27.280] but I think it speaks so much to the sacrifice
+- [03:30.760] and to the duty and to the sense of purpose
+- [03:33.560] that every single law enforcement officer
+- [03:35.370] takes with them every single day of the job.
+- [03:38.240] In it, the prophet
+- [03:39.670] Isaiah recounts from inside the Temple of Jerusalem,
+- [03:44.550] "Then I heard the voice of the Lord saying,
+- [03:47.410] whom shall I send, and who will go for us?
+- [03:51.840] And I said, here I am, send me."
+- [03:57.490] My friends, we gather this afternoon to honor men and women
+- [04:01.210] who heard the exact same call, men and women
+- [04:04.940] whose selflessness led them toward danger when others fled.
+- [04:09.850] People who said, send me, not send somebody else,
+- [04:13.800] but send me.
+- [04:15.910] People whose service was a way of life, not a burden,
+- [04:20.420] and their love of community, of their families,
+- [04:23.500] of their neighborhoods, of the places they called home,
+- [04:27.530] bound them to a life of duty to others,
+- [04:32.390] a duty they lived out every single day from the first time
+- [04:37.050] they put on that amazing badge to the moment
+- [04:40.830] that they took their very last breath.
+- [04:45.330] In the Old Testament, God does not force Isaiah
+- [04:49.220] to serve him.
+- [04:51.140] Isaiah knew it would not be easy,
+- [04:54.170] but he steps up willingly.
+- [04:56.140] He volunteers just like every single one of you
+- [04:59.610] and every single one of your loved ones.
+- [05:02.340] He accepts God's call to give his life
+- [05:05.990] in service to his fellow man.
+- [05:09.490] And today, we remember men and women in uniform
+- [05:13.320] who laid down their lives answering that exact same call.
+- [05:20.790] We honor men like Phillip Wagner,
+- [05:23.360] an officer with the local police department in Lorain
+- [05:26.410] in my home state of Ohio,
+- [05:28.480] who was killed in a cowardly ambush attack
+- [05:32.640] that, as the President said,
+- [05:34.450] President Yoes, has become all too common in our country.
+- [05:38.450] Now, those of you who know him know that
+- [05:40.050] Officer Wagner was a family man, a Marine Corps veteran,
+- [05:43.930] Semper Fi, with eight years' experience in law enforcement,
+- [05:48.380] and he left behind a beautiful wife and three children.
+- [05:53.580] On Wednesday afternoon last July, Officer Wagner
+- [05:57.370] and a fellow officer were in their patrol vehicle
+- [05:59.890] when a man opened fire on the car.
+- [06:03.470] He did nothing other than do his job,
+- [06:06.640] and a coward opened fire on him. After they called for help,
+- [06:11.220] a third officer was also ambushed.
+- [06:15.130] Now while both of his colleagues survived,
+- [06:18.350] Officer Wagner would later succumb to the wounds
+- [06:20.740] that he suffered in the hospital,
+- [06:23.240] thankfully with his loved ones and his family by his side.
+- [06:28.080] This afternoon, we commemorate Officer
+- [06:30.730] Wagner's devotion to his community and the duty
+- [06:34.180] he felt to protect it from those who would do it harm.
+- [06:39.170] We join with the countless cherished family
+- [06:42.660] and friends who mourn his loss.
+- [06:51.610] Today we also honor heroes like Officer Suzanne O,
+- [06:56.660] a five-year veteran of the Maui County Police Department.
+- [07:00.900] Suzanne was a devoted public servant,
+- [07:03.110] a woman who had known danger before.
+- [07:05.610] Two years before her death,
+- [07:08.030] she had been awarded the Certificate of Merit
+- [07:10.390] for her tireless efforts during the 2023 Hawaii wildfires.
+- [07:15.420] Last August, Officer O was responding
+- [07:17.960] to reports of an armed and dangerous suspect
+- [07:22.160] when violence erupted, as it sometimes does.
+- [07:26.770] Amid the chaos, she and her fellow officers moved in,
+- [07:30.550] searching for the suspect to ensure
+- [07:32.400] that others would not be harmed by this violent criminal.
+- [07:37.020] And Officer O was mortally wounded
+- [07:39.640] while protecting her community,
+- [07:41.810] laying down her life in defense of the people that she loved
+- [07:45.790] and served every single day.
+- [07:50.380] She left behind a family of her own,
+- [07:53.760] a sister, three brothers, an adoring boyfriend
+- [07:58.210] and many other loved ones, as well as a legacy.
+- [08:02.750] A legacy of quiet strength
+- [08:05.000] and a legacy of always putting the needs of others first,
+- [08:08.420] even when it requires the sacrifice of your own life.
+- [08:13.300] So today, we honor Officer O and give thanks for her.
+- [08:20.610] And finally today, we honor three officers
+- [08:25.690] from Pennsylvania's Northern York
+- [08:27.350] County Regional Police Department.
+- [08:30.470] Their names were Detective Mark Baker,
+- [08:33.750] Detective Isaiah Emenheiser,
+- [08:37.210] and Detective Sergeant Cody Becker.
+- [08:40.330] Last September, these men were killed in the line of duty.
+- [08:44.280] They were working to serve an arrest warrant
+- [08:46.580] against a man wanted for stalking
+- [08:49.490] and threatening an innocent woman.
+- [08:52.400] A man lying in wait, wearing camouflage,
+- [08:56.070] carrying an AR-15
+- [08:57.520] and surveilling his victim in her home,
+- [09:00.590] a woman who felt no safety,
+- [09:02.850] no security because of the actions of a violent criminal.
+- [09:08.500] But these officers decided to do something about it.
+- [09:11.860] When they moved to protect her and carry out their duty,
+- [09:14.810] they were unfortunately met
+- [09:16.400] with a brutal ambush from this coward.
+- [09:20.020] Now all three of these officers, Detective Baker,
+- [09:23.070] Detective Emenheiser, and Detective Sergeant Baker,
+- [09:26.550] gave their lives confronting evil without hesitation,
+- [09:30.810] placing themselves between danger
+- [09:33.270] and the people who depended on them most.
+- [09:36.930] These were talented and seasoned cops.
+- [09:40.040] Across the three of them,
+- [09:41.730] they represented nearly 60 years of experience
+- [09:44.860] within law enforcement.
+- [09:47.380] And each of them left behind grieving widows
+- [09:50.790] and beautiful children.
+- [09:53.180] Today, we pray for all five of these law enforcement officers
+- [09:58.690] and for the many others we honor this afternoon.
+- [10:03.930] Now I know I don't have time here to go through
+- [10:07.460] every single law enforcement officer
+- [10:09.450] that we've lost in the past year.
+- [10:11.630] We cannot tell every single story of every single family
+- [10:16.140] and of every single instance of brave sacrifice.
+- [10:20.330] But when I look at these white chairs here in the front rows,
+- [10:23.480] what I see is dozens of stories, dozens of brave people,
+- [10:30.160] dozens of family members,
+- [10:31.570] dozens of husbands and fathers, of moms, of wives,
+- [10:36.620] of people who loved their families
+- [10:39.220] but also loved the peace that exists in our community.
+- [10:41.890] And they loved it so much,
+- [10:44.050] they were willing to lay down their life to protect it.
+- [10:47.850] So I want each of you to know, from the President,
+- [10:51.280] from the Vice President, from the entire administration,
+- [10:53.850] from a grateful nation, I see you.
+- [10:57.660] I recognize that each and every one of you lost something
+- [11:00.670] that we cannot possibly ever repay.
+- [11:03.610] But I want you to know from the entire United States of America,
+- [11:07.030] from our fellow citizens and the family member,
+- [11:10.260] of all American people,
+- [11:12.740] we love you, we're thankful for you.
+- [11:15.230] We're sorry for what you sacrificed
+- [11:17.090] but we will never forget what your officer laid down.
+- [11:23.170] And every day, we have something that we can do.
+- [11:26.050] We can't repay the sacrifice, but we can honor that sacrifice
+- [11:31.720] by making this country safer and stronger and more secure
+- [11:36.350] for the people that they serve by living up
+- [11:39.440] to what they sacrificed their lives for.
+- [11:42.910] In the Trump administration, we have made progress
+- [11:46.260] in ending the epidemic of senseless violence
+- [11:48.880] against our men and women in uniform.
+- [11:52.420] Now we can't ever forget that a single officer lost
+- [11:55.490] in the line of duty is too much.
+- [11:58.010] But just as we mourn the officers we lost,
+- [12:01.630] we celebrate the fact that in 2025,
+- [12:04.690] I am proud to say that the deaths
+- [12:06.580] of on-duty law enforcement reached their lowest level
+- [12:10.100] in 80 years in the United States of America.
+- [12:14.230] And that milestone comes amid a nationwide decline.
+- [12:25.120] We have to remember that that epidemic of violence
+- [12:27.730] that we experienced over the last few years,
+- [12:31.540] you can never get rid of evil.
+- [12:33.070] You're always going to have terrible people
+- [12:35.630] who want to do the worst things.
+- [12:38.220] But allowing so many of those people free rein,
+- [12:41.540] allowing so many of them
+- [12:43.890] to strike at our law enforcement officers,
+- [12:46.670] ladies and gentlemen, that was a policy choice.
+- [12:50.770] And I make the solemn promise to every single person here
+- [12:55.230] that so long as Donald J. Trump is the president,
+- [12:57.800] and so long as I am the vice president,
+- [13:00.060] we will never again
+- [13:01.860] let policymakers in the building behind us
+- [13:04.550] allow violent criminals to tee off on our police officers.
+- [13:08.680] We will fight for you just as you fight for us
+- [13:11.850] every single day.
+- [13:23.690] Part of the reason we've seen that decline in violence
+- [13:26.200] is because working with all of you,
+- [13:29.390] we've crushed the criminal cartels
+- [13:32.300] and halted the tide of narcotics
+- [13:35.310] and migrant crime flooding across our borders
+- [13:38.060] because we knew that so much of the violence in our communities,
+- [13:41.340] so much of the violence that you were dealing
+- [13:43.060] with every single day was coming across that wide open border.
+- [13:47.930] So last year, we celebrated another important milestone,
+- [13:52.190] that the murder rate in the United States of America
+- [13:55.140] fell to its lowest in 125 years,
+- [13:59.870] marking the largest single drop in recorded history
+- [14:03.540] in the United States of America.
+- [14:13.040] Since Inauguration Day back in 2025,
+- [14:16.390] we've seen steep declines
+- [14:17.800] across every major violent crime category.
+- [14:20.830] That's something to celebrate.
+- [14:22.740] Murders, robberies, aggravated assault,
+- [14:26.240] every single category is down by double digit percentages.
+- [14:30.830] We've seen similarly dramatic numbers across the board.
+- [14:34.630] Shooting deaths, rapes, traffic fatalities,
+- [14:38.170] and overdoses are all much lower today
+- [14:41.960] than they were just a year and a half ago.
+- [14:44.570] But I think most important is not the numbers,
+- [14:46.880] it's the attitude shift that we've seen.
+- [14:49.740] We've shifted attitudes across our society
+- [14:52.190] when it comes to dealing with,
+- [14:54.840] and most importantly, honoring our law enforcement community.
+- [14:59.850] We stopped handcuffing the police
+- [15:02.830] and started handcuffing more violent criminals.
+- [15:06.100] We've restored a culture that supports, not second guesses,
+- [15:11.950] our officers when they go out and do their important work.
+- [15:15.960] We've ended the shameful practice
+- [15:18.460] of micromanagement of state
+- [15:20.130] and local police started by the last administration.
+- [15:25.490] One week after I spoke before this audience last year,
+- [15:28.920] President Trump dropped a series of lawsuits
+- [15:31.340] from the Biden administration that wrongfully accused
+- [15:34.440] all of you of discrimination
+- [15:38.170] and accused your departments of discrimination.
+- [15:41.210] And we know that what that did
+- [15:42.750] is that it empowered the bad guys to tee off on you
+- [15:46.140] when they felt like they had an administration
+- [15:48.420] that was fighting with the bad guys
+- [15:50.680] instead of fighting for our cops and our law enforcement.
+- [15:54.240] Because when it comes to federal law enforcement,
+- [15:57.060] there's no more effective partner than all of you,
+- [16:00.270] than our state and local officers.
+- [16:01.870] We can't do everything.
+- [16:03.100] We wouldn't want to do everything.
+- [16:04.830] But we recognize that the jobs that you do every single day
+- [16:08.580] makes it easy for us to keep our fellow citizens safe.
+- [16:13.960] We've reduced the burden on police
+- [16:16.150] by giving city officials more freedom to move homeless
+- [16:20.360] and others causing chaos into treatment
+- [16:23.220] rather than languishing on the streets
+- [16:24.990] and endangering both themselves, but also their fellow citizens.
+- [16:29.140] And of course, we made sure that our men and women in uniform
+- [16:33.090] uniquely stood to benefit with our working families tax cuts.
+- [16:38.320] We fulfilled a campaign promise to end taxes on overtime
+- [16:43.300] because we know that so many of our law enforcement officers
+- [16:46.640] are working a lot of overtime.
+- [16:48.770] We increased the salt cap because we know
+- [16:51.270] that a lot of you are working and living
+- [16:53.380] and paying taxes in very high tax jurisdictions.
+- [16:57.260] And perhaps most importantly, we funded vital grants
+- [17:01.880] for local police departments like the BURNT, JAG,
+- [17:05.330] and COPS program. And our attitude is very simple.
+- [17:10.180] You support us, so you deserve a government
+- [17:13.370] that supports you every single day.
+- [17:16.700] And in response to the repeated and needless tragedy,
+- [17:21.180] we've taken action to end dangerous state
+- [17:24.680] and local policies like cashless bail.
+- [17:28.200] We had to get rid of it because it was letting way
+- [17:30.820] too many violent criminals out of prison.
+- [17:33.120] They were making our communities less safe
+- [17:35.710] and they were making all of you less safe.
+- [17:37.970] So we implemented a very simple proposal.
+- [17:40.880] How about we have a federal government
+- [17:43.000] that helps you put violent criminals in prison
+- [17:46.440] as opposed to letting them out of jail?
+- [17:57.800] And when tragedy does occur, because we know that no matter
+- [18:01.060] what we do in a country of 330 million people,
+- [18:04.250] no matter what you do,
+- [18:05.880] there are always going to be some bad guys
+- [18:08.730] that are trying to cause harm, trying to cause violence,
+- [18:12.170] and trying to make our fellow citizens
+- [18:14.900] and our law enforcement suffer.
+- [18:16.990] So what we have to do is ensure that when an officer
+- [18:21.090] falls in the line of duty, two things happen.
+- [18:25.540] Number one, the Department of Justice
+- [18:28.570] is aggressively seeking the death penalty
+- [18:32.070] for anybody who dares to kill a law enforcement officer
+- [18:35.960] in the United States of America.
+- [18:45.960] And number two, we're taking care of all of you left behind
+- [18:51.860] when your loved one pays the ultimate sacrifice.
+- [18:55.530] In 2025, the Department of Justice's Public Safety Officers
+- [18:59.510] Benefits Program distributed more than $166 million in death
+- [19:06.100] and disability payments.
+- [19:08.840] Just as an officer would never leave behind a brother
+- [19:12.020] or sister in uniform,
+- [19:14.060] we will always stand by the families of those
+- [19:17.320] who are left mourning the loss of a brave police officer.
+- [19:22.840] Now our work is far from finished,
+- [19:26.170] but allow me to leave you with a message of encouragement
+- [19:29.840] as we couldn't do any of what we do without all of you.
+- [19:34.250] Your advocacy, your steadfast support for law enforcement,
+- [19:38.750] it moves mountains in Washington, D.C.
+- [19:43.020] A city that in recent years had turned its back on our men
+- [19:46.760] and women in uniform, but because of you,
+- [19:50.220] and because we're reminding the nation
+- [19:52.290] once more of who stands between order and chaos,
+- [19:56.570] that thin blue line still holds.
+- [20:09.630] My friends, later in the book of Isaiah,
+- [20:12.400] the Lord speaks through his prophet,
+- [20:15.250] and he says,
+- [20:16.840] "You shall be called the repairer of the breach.
+- [20:21.200] You shall be called the restorer of streets to dwell in."
+- [20:25.940] This afternoon, we honor the men and women who lived out
+- [20:30.310] that calling every single day,
+- [20:33.120] who gave everything for their belief in it.
+- [20:36.910] They stood in the breach for their communities
+- [20:40.040] so that the streets would be safe to dwell in.
+- [20:43.810] Where others brought violence and chaos,
+- [20:47.670] they brought order and peace,
+- [20:51.460] and though we mourn their passing back
+- [20:53.030] into the arms of their creator,
+- [20:55.770] those of us who remain inherit a new responsibility.
+- [21:01.460] Our responsibility is simple, to follow in their footsteps
+- [21:06.860] and to devote our own lives to service.
+- [21:11.120] To stand beside the families these fallen officers loved,
+- [21:14.910] to fight for them as they fought for us.
+- [21:17.980] To remember the children, the grandchildren,
+- [21:21.010] the spouses and parents
+- [21:22.400] and the friends these fellow officers left behind.
+- [21:26.910] To speak their names, to tell their stories
+- [21:30.620] so that they're never forgotten, and to always ensure
+- [21:35.030] that the country these officers gave their lives
+- [21:37.410] protecting remains worthy of the sacrifice
+- [21:41.510] of the very best among us.
+- [21:45.250] You know, I stand up here with this very thick glass
+- [21:49.130] between me and you,
+- [21:50.830] and because I'm the Vice President of the United States,
+- [21:54.230] I am blessed to have a Secret Service detail.
+- [21:57.090] People who look after me, who put their lives on the line,
+- [22:00.860] just as your loved ones put their lives on the line.
+- [22:05.370] And what I realize
+- [22:06.600] is that the Vice President of the United States,
+- [22:09.170] of course, has a Secret Service detail,
+- [22:11.870] but 99.99% of our fellow citizens do not.
+- [22:16.520] They don't have a Secret Service detail, they have you,
+- [22:20.100] and they have your loved ones. And one of the great things
+- [22:24.160] about the United States of America
+- [22:25.990] is it was founded on the basic principle
+- [22:28.870] that whether you were rich or poor or black or white,
+- [22:32.590] everybody deserves safety and security and peace
+- [22:37.950] in their neighborhoods.
+- [22:39.190] Security is not just something for the rich and the powerful,
+- [22:42.500] security is something that ought to be the birthright
+- [22:45.920] of every single American child
+- [22:48.950] and every single American family.
+- [22:51.440] That is what makes our country so special,
+- [22:54.850] and because you are the people who fight for that principle,
+- [22:59.000] who enforce that principle, who protect that principle,
+- [23:02.180] I am forever indebted to you. God bless you,
+- [23:05.020] God bless your families, God bless the fallen, and may
+- [23:07.900] He continue to bless the great United States of America.
+- [23:11.110] Thank you for having me.
+- [23:13.510] (applause)

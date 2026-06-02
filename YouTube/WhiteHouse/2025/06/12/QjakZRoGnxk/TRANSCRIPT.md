@@ -1,0 +1,1718 @@
+<!-- source: https://www.youtube.com/watch?v=QjakZRoGnxk -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: QjakZRoGnxk -->
+<!-- date_published: 2025-06-12T16:53:00+00:00 -->
+<!-- date_accessed: 2026-06-02T02:48:34.510286+00:00 -->
+
+# Transcript: President Trump Participates in a Bill Signing Ceremony, June 12, 2025
+
+- [00:10.190] Announcer: Ladies and gentlemen,
+- [00:11.490] the President of the United States.
+- [00:15.000] ♪ (Hail to the Chief) ♪
+- [00:43.610] The President: Well, thank you very much.
+- [00:45.510] I just said to Mike, this is fantastic.
+- [00:48.760] I didn't think we were going to see this coming for a while.
+- [00:50.980] Congratulations. This is a very, very important thing.
+- [00:55.080] Thank you very much, everybody.
+- [00:57.370] This is very important thing we're going to be discussing.
+- [01:00.030] Please sit down. Thank you very much.
+- [01:02.800] This is good news, indeed. People said it couldn't be done.
+- [01:08.160] You got it done. I just have to sign, right?
+- [01:11.130] That's very good. This is really something.
+- [01:13.920] And it has to do with the California Auto Regulation, CRA.
+- [01:19.050] It's been a disaster for this country.
+- [01:22.040] And I want to thank everybody for being here.
+- [01:26.220] We officially rescue the U.S. Auto industry from destruction
+- [01:31.900] by terminating California electric vehicle mandate
+- [01:36.880] once and for all.
+- [01:39.380] (applause)
+- [02:01.990] They said it couldn't be done.
+- [02:04.360] But, boy, it's had us tied up in knots for years.
+- [02:09.250] And they'd passed these crazy rules in California,
+- [02:11.620] and 17 states would go by them.
+- [02:15.690] The automakers didn't know what to do
+- [02:17.250] because they're really building cars for two countries.
+- [02:20.010] When you have 17 states,
+- [02:21.220] you're building cars with two countries,
+- [02:23.630] and I want to congratulate you all.
+- [02:26.940] The Senate, the House, the whole thing.
+- [02:28.720] It's incredible.
+- [02:30.210] I was going to sign an executive order and give it a shot.
+- [02:35.520] The one good thing with this, number one,
+- [02:36.940] it holds up forever, and number two,
+- [02:38.850] unless somebody votes it out, they'll never do that.
+- [02:41.900] And it's just so much better, huh?
+- [02:45.060] So much better. That's so great. Very proud of you.
+- [02:50.270] We're joined today by the great Speaker of the House.
+- [02:53.720] I think he's going to go down as a great
+- [02:55.140] Speaker of the House, too. I may be wrong. I may wrong.
+- [02:58.920] Who knows? Who the hell knows?
+- [03:01.880] I think he is. And he's doing something.
+- [03:06.840] The only thing I would say is more important than this one,
+- [03:09.170] and I'll tell you what, it's almost close.
+- [03:11.220] That's how big this is today. But, the great Big Beautiul --
+- [03:17.070] I added the word great, you know,
+- [03:18.390] I used the word -- the great Big Beautiful Bill.
+- [03:21.910] It's going to be one of the most --
+- [03:23.940] I said it this morning to a group --
+- [03:25.650] I think it's the most important,
+- [03:27.160] one of the more important pieces of legislation
+- [03:31.030] ever signed ever approved.
+- [03:32.400] So it's going be something very special.
+- [03:34.510] Thank you very much
+- [03:37.180] Speaker of the House Mike Johnson, thank you.
+- [03:39.100] Secretary Sean Duffy and they had a problem in India today
+- [03:44.510] (applause)
+- [03:48.210] Sean's doing a tremendous job. Secretary Chris
+- [03:52.280] Wright, everybody said you'd never be able to get him.
+- [03:54.340] He's the most talented man, they say,
+- [03:56.870] in the oil and gas industry.
+- [03:58.140] I'll let you know in about two years if that's true.
+- [04:00.790] (applause)
+- [04:06.190] Well, Doug Burgum, you know,
+- [04:07.420] I wanted Doug Burgum to head up energy
+- [04:09.510] because he was so successful at North Dakota as governor,
+- [04:13.020] and he said, sir,
+- [04:14.350] there's one person who's much better than me.
+- [04:17.040] I said, who? They said, Chris Wright.
+- [04:18.690] I said who the hell is Chris Wright?
+- [04:20.810] I had no idea. Now everyone knows Chris Wright,
+- [04:22.950] he is going to be more famous than me,
+- [04:25.330] but he said there's a guy named Chris Wright
+- [04:28.870] and if we could get him, he'd be better than I am, sir.
+- [04:32.070] And if you know Doug, Doug's not here, is he?
+- [04:34.340] If you knew Doug, he's always working someplace,
+- [04:37.160] but if you knew Doug, you'd know that he doesn't say that often.
+- [04:40.610] And he did, and Chris, you're doing great.
+- [04:42.710] But I don't like -- the oil prices have gone up
+- [04:45.190] just a little bit over the last few days.
+- [04:46.930] I was going to call and just really start screaming at you.
+- [04:52.470] Are we okay? Nothing wrong, right?
+- [04:54.800] It's going to keep going down a little bit, right.
+- [04:58.100] Because we have inflation under control perfectly.
+- [05:00.510] You probably saw the records. Everyone's on.
+- [05:02.900] Television saying, what's going on here?
+- [05:04.830] Trump has proven to be right. You know, all of these things.
+- [05:07.320] We've taken 88 billion in tariffs in two months.
+- [05:11.220] Eighty-eight billion with no inflation.
+- [05:14.970] And if we're smart, there won't be.
+- [05:17.260] Now, we'd like to get this guy to lower interest rates
+- [05:20.680] because, you know, if he doesn't, we have to pay.
+- [05:23.620] We have a lot of short-term debt.
+- [05:26.180] Obama gave it to us originally, and Biden carried it on.
+- [05:30.800] They like short-terms. I like long-term cheap debt.
+- [05:34.970] But a lot of the debt comes through,
+- [05:36.810] because Biden, that's what -- oh, he didn't do it.
+- [05:38.870] I'm sure he didn't know anything about it.
+- [05:42.000] But somebody approved short-term debt.
+- [05:44.950] It's all over the place.
+- [05:46.190] And it comes through starting very soon.
+- [05:49.000] And if we would lower the interest rates by one point,
+- [05:52.660] we'd pay about one point less.
+- [05:55.550] That's $300 billion a year. Can you believe it? One point.
+- [06:01.540] If he'd lower it by two points, we'd pay $600 billion a year.
+- [06:06.220] That's for years, 10 years, 12 years, whatever we make it.
+- [06:11.040] But we can't get this guy to do it.
+- [06:13.410] And the fake news is saying, oh, if you fired him,
+- [06:16.070] it would be so bad. It would be bad.
+- [06:19.380] I don't know why it would so bad,
+- [06:20.680] but I'm not going to fire him.
+- [06:22.420] I just want him to, you know, we call him too late, right?
+- [06:25.080] Too late is his nickname. Like Too Tall Jones.
+- [06:27.240] He was Too Tall, T-O-O.
+- [06:29.670] And I just say this because we want to get rid of inflation,
+- [06:34.960] and we have.
+- [06:36.650] But we're going to be paying more for debt.
+- [06:40.410] All he has to do is lower it. Europe's done 10 lowerings.
+- [06:44.290] We've done none. And nobody understands it.
+- [06:49.340] Actually, today, when the numbers came out,
+- [06:50.950] they were so good. You saw yesterday's numbers.
+- [06:53.670] Incredible. No inflation. Today's numbers --
+- [06:57.930] (applause)
+- [07:02.120] Today just came out, same thing, no inflation,
+- [07:04.210] they're all shocked.
+- [07:05.430] All these guys are watching from business, CNBC,
+- [07:11.070] and all of these different networks.
+- [07:14.320] Maria Bartiroma actually got it right,
+- [07:16.180] she's been getting it right for a long time,
+- [07:18.240] that I hope she's appreciated.
+- [07:20.710] And Joe Kiernan's been very good at CNBC
+- [07:22.880] I must tell you, but other people aren't so good.
+- [07:25.760] But I will say that they are just --
+- [07:29.060] they can't believe what's happening.
+- [07:32.480] Because we can discuss -- oh, we got a lot of press,
+- [07:34.460] we got lot of cameras rolling right now.
+- [07:37.110] Not that I like doing it, because I don't.
+- [07:39.300] But if we take, if we cut our interest by one point,
+- [07:43.180] for years, we save $300 billion.
+- [07:46.900] If we cut it by two points, we'll save,
+- [07:49.180] because it's pretty equivalent. We're going to save --
+- [07:53.120] we're going to spend $600 billion a year.
+- [07:56.370] $600 billion because of one numbskull that sits here.
+- [08:02.550] I don't see enough reason to cut the rates now.
+- [08:06.840] And the problem he's got is that,
+- [08:09.440] and I explained to him, look, if inflation went up,
+- [08:13.720] cut your rates now,
+- [08:15.140] there's no inflation, we got it down.
+- [08:16.640] We got prices down, we've got gasoline down,
+- [08:20.150] and you'll keep it going down. But gasoline's down.
+- [08:25.700] We're drill, you know, it's drill baby drill.
+- [08:27.390] That's what -- that's why it's going down.
+- [08:30.060] But all that, but think of it.
+- [08:32.890] I said to him, he was in my office a couple of days ago.
+- [08:36.770] I said, if you think there's inflation, let's find out.
+- [08:42.280] Because I think we're going to keep it down.
+- [08:43.970] I think gasoline is going to be so far down.
+- [08:47.350] Oil energy is so much energy. We have so much energy
+- [08:49.840] we don't know what to do with it.
+- [08:52.310] But let's say there was inflation in a year from now.
+- [08:55.280] Raise your rates. I don't mind. Raise your rate. I'm all for it.
+- [08:58.600] I'll be the one to -- I'll be calling you.
+- [09:00.160] He'll be too late for that, too.
+- [09:02.530] But raise your rates, you don't have to keep them up here.
+- [09:06.910] If it's going to go up, I'm okay with you raising, but it's down.
+- [09:11.670] And we're going out to financing.
+- [09:14.530] And I may have to force something.
+- [09:16.800] Somebody said, who's the genius that thought of that?
+- [09:20.180] I said, it's me. Unlike Biden, I stay awake at night,
+- [09:24.190] thinking about how to save our country.
+- [09:26.430] He was much better at sleeping than me.
+- [09:28.250] He could sleep on a beach.
+- [09:30.060] He could in a beach with cameras rolling.
+- [09:32.080] I can't do that. But I had an idea. I gave it.
+- [09:36.860] They said, this is really -- we'll go short-term for a year.
+- [09:40.760] Let this guy get out of office.
+- [09:42.310] Somebody will come and cut it a couple of points,
+- [09:44.450] and we'll save ourselves seven,
+- [09:47.020] eight, maybe even $900 billion a year.
+- [09:51.540] What is he doing? Why doesn't he lower these rates?
+- [09:55.400] And with that, we'll get onto the California standard,
+- [09:58.640] which is a disaster. Okay?
+- [10:00.960] So, Chris Wright, you're going to get the numbers down.
+- [10:02.690] Thank you very much.
+- [10:04.330] Lee Zeldin, one of the most important men in this room.
+- [10:07.180] He's the man I get nervous when I talk to.
+- [10:11.820] He's doing a great job.
+- [10:13.590] (applause)
+- [10:17.190] Nuclear, I say, okay,
+- [10:19.310] you can take two weeks for that approval.
+- [10:21.800] It used to take 20 years, then they wouldn't approve it.
+- [10:25.690] Now I say Lee, nuclear,
+- [10:28.580] I'll give you two weeks for an approval,
+- [10:31.010] a coal-fired plant, you only get a couple of days,
+- [10:34.860] and oil and gas will give you a week, okay?
+- [10:36.930] Something like that.
+- [10:38.370] But he's doing it so fast, and we have so many plants
+- [10:40.950] being built right now, it's so beautiful to see.
+- [10:43.630] And one of the reasons they're coming here
+- [10:45.500] is because we have to produce tremendous, especially the AI.
+- [10:49.450] They have to produce beyond believable amounts
+- [10:52.770] of electricity.
+- [10:54.530] And they're doing -- I said to them,
+- [10:56.490] I think this was more or less my idea.
+- [10:58.140] They didn't have the idea only because
+- [10:59.640] they didn't think a thing like this was possible.
+- [11:02.160] I said, as you build your plant,
+- [11:03.650] you're going to become a utility.
+- [11:05.410] And you're going to build a separate plant
+- [11:07.020] right alongside of it. You're going to built it.
+- [11:08.610] You're going build a plant that produces electricity.
+- [11:11.970] And you'll produce it through natural gas, coal, nuclear.
+- [11:17.930] We don't want to produce it through wind
+- [11:19.460] because we don't feel like ruining 50 miles
+- [11:21.820] of beautiful plains and beautiful vistas.
+- [11:24.910] And we want to reduce it. You know, interestingly,
+- [11:28.540] China is opening up a coal plant every single week.
+- [11:33.670] But now I'm finding out it might be two plants every single week.
+- [11:37.390] And, you know, usually that's a good gage.
+- [11:39.130] If they're using coal, I guess we're supposed to use coal.
+- [11:41.300] And we went to a coal standard.
+- [11:42.910] And not that you have to use coal,
+- [11:44.250] you're going to use whatever's best.
+- [11:46.790] I want to introduce also Senate Majority
+- [11:49.410] Whip John Barrasso, who's a tremendous guy, doctor.
+- [11:53.850] (applause)
+- [12:00.060] He is a tremendous guy, tremendously talented doctor.
+- [12:03.340] When I have a medical situation for the country, for myself,
+- [12:06.600] I haven't used them, but I might have to.
+- [12:08.400] Maybe I'll do that.
+- [12:09.610] If it's serious enough, I think I'd probably do that,
+- [12:12.420] but he's a tremendously talented gentleman
+- [12:15.360] who happens to be a senator and one that's very respected.
+- [12:21.060] Chairwoman Shelley Moore Capito, and congratulations.
+- [12:24.150] I just endorsed your son. Did you know that?
+- [12:28.740] I endorse your son.
+- [12:31.900] I endorsed her son, who's running in West Virginia,
+- [12:35.690] and he's great. In fact, he's all Trump all the time.
+- [12:38.690] I think much more so than you, actually.
+- [12:42.150] You were his largest impediment.
+- [12:43.790] No, I'm only kidding. He's all-Trump-all-the-time,
+- [12:47.460] and he is going to win big, and so congratulate him.
+- [12:49.750] Okay, he has really been fantastic.
+- [12:51.930] So many people have told me. Thank you.
+- [12:54.150] And House Majority Leader Steve Scalise,
+- [12:57.690] who's a brave man who went through hell.
+- [13:03.370] Steve went through hell.
+- [13:05.840] And we have a lot of other people here
+- [13:07.230] that I won't be able to because they don't have your name down.
+- [13:09.860] And I'm looking, and I see people's names.
+- [13:11.650] I'll do a couple of you.
+- [13:12.940] But thanks as well to Mark Wayne Mullen, Senator.
+- [13:17.680] Mark Wayne, thank you.
+- [13:19.990] Stand up, Mark Wayne. Don't fight him.
+- [13:24.210] He's a serious fighter in a lot ways,
+- [13:26.500] and he's a great guy, too. Thank you, Mark, Wayne.
+- [13:30.070] Deb Fisher, Deb? Thank you, Deb.
+- [13:33.430] (applause)
+- [13:36.320] Pete Ricketts, who's going to do very well
+- [13:38.310] in the upcoming election. Thank you.
+- [13:39.700] (applause)
+- [13:40.940] Thank you, Pete.
+- [13:44.170] John Eusted, who's really moving along in Ohio.
+- [13:48.090] John, good luck. You're going to do well.
+- [13:50.220] (applause)
+- [13:51.620] All endorsed people.
+- [13:53.120] John Curtis, who is doing terrifically.
+- [13:55.570] John, thank you. Good job. They all say excellent.
+- [14:00.220] Good job, and Bernie Marina,
+- [14:02.510] who won a race that was not winnable.
+- [14:05.410] They all said it's not winnable.
+- [14:08.820] He won in Ohio, they said, you can't win that race.
+- [14:11.260] It's a waste of time. You're just wasting your time.
+- [14:13.280] Right, Bernie?
+- [14:14.480] Wasn't a waste of time, was it, huh?
+- [14:16.010] And they won by like five points, too.
+- [14:18.070] Won by a lot.
+- [14:19.610] Along with representatives Kevin Kiley, Vince Fong,
+- [14:24.690] Jay Obernolte, Doug LaMalfa, Darrell Issa.
+- [14:30.310] Where's Darrell? I haven't seen you in such a long time.
+- [14:32.410] Look at you. How good you look, huh.
+- [14:36.660] Good when you have those big margins, it's easier.
+- [14:42.010] John Joyce, great guy. John, thank you.
+- [14:45.840] Thank you, John.
+- [14:47.370] Dusty Johnson, Morgan Griffith, Troy Balderson, Troy from --
+- [14:55.120] a place called Ohio, and he played very cute at one time,
+- [14:59.010] but then he got -- boy, I'll tell you.
+- [15:00.540] He's become a good politician. Where is Troy now?
+- [15:03.590] Where I haven't seen him used for years.
+- [15:05.480] I endorsed you early when he was early and younger,
+- [15:09.830] but you still look young and you've done fantastically.
+- [15:12.270] Good. Good work. Really good work.
+- [15:14.910] (applause)
+- [15:17.900] Claudia Tenney, New York, Claudia. Thank you, Claudia.
+- [15:23.140] John James, John James, I don't know.
+- [15:29.230] You know, he's running for governor,
+- [15:30.490] but I'm not sure I'm happy about that, John.
+- [15:33.200] Do we have somebody good to take your seat?
+- [15:35.800] Because otherwise, we're not letting him run for governor,
+- [15:37.920] we can't. You have somebody, good, right?
+- [15:41.340] Okay, as long as you like them, they'll win.
+- [15:44.740] Tracy Mann, Tracy, thank you very much.
+- [15:47.860] Thank you very much. Appreciate it.
+- [15:50.790] Michael Baumgartner. Michael.
+- [15:55.120] Thank you, Michael. Good, good job.
+- [15:58.030] David Rauser. Rauser, thank you. Glenn Grothman.
+- [16:04.220] Hi, Glenn. Thank you very much, Glenn.
+- [16:07.200] Brett Guthrie. Thank you, Brett. Rudy Yakam.
+- [16:14.460] Thank you. Thank you, Rudy. And I want to thank you all.
+- [16:17.940] There's some additional people in the room,
+- [16:19.610] but we have to get back to this.
+- [16:21.700] This is like so big. This is a big one.
+- [16:25.370] Under the previous administration --
+- [16:27.140] oh, the previous administration --
+- [16:29.870] I could go point after point, everything they did.
+- [16:32.550] Open borders, men playing in women's sports,
+- [16:35.670] transgender for everybody. Everybody, let's go transgender.
+- [16:40.390] What a group of people you had over there.
+- [16:42.670] They must have hated our country.
+- [16:45.300] Under the previous administration,
+- [16:46.860] the federal government gave left-wing radicals in California
+- [16:50.010] dictatorial powers to control the future
+- [16:53.170] of the entire car industry all over the country,
+- [16:55.550] all over world, actually.
+- [16:58.230] Because they have to build a car.
+- [16:59.910] They can't build 19 different cars, call the same thing.
+- [17:04.490] And really, it was all over the world what was happening.
+- [17:08.070] They approved.
+- [17:09.800] Governor Gavin Newsom's ridiculous plan
+- [17:13.030] to impose a 100 percent ban on all new gas-powered cars
+- [17:18.190] within a very short period of time.
+- [17:19.560] Think of this.
+- [17:21.740] You couldn't buy any other car except an electric-powered car,
+- [17:26.160] and in California they have blackouts and brownouts.
+- [17:28.470] They don't have enough electricity right now
+- [17:30.750] to do the job.
+- [17:33.680] Countrywide, you'd have to spend $4 trillion
+- [17:38.180] to build the firing plants, to be able to --
+- [17:41.450] they go over the firing --
+- [17:42.660] they call them a lot of things --
+- [17:43.910] charging plants, firing plants.
+- [17:46.490] Four trillion dollars. You'd have spend --
+- [17:49.630] in the Midwest, they built nine of them.
+- [17:54.740] Nine individuals -- it's like a pump, just like a pump,
+- [17:57.490] except instead of gas, electricity comes out.
+- [18:02.640] Actually, they built eight of them.
+- [18:05.430] Nine billion dollars they spent for eight.
+- [18:10.360] Eight little hoses, nine billion dollars.
+- [18:13.820] Now, I'm sure they could have done it for about,
+- [18:15.650] you know, one thousandth of that,
+- [18:17.370] but even if they did, it's unaffordable.
+- [18:20.260] They approved Governor Gavin's ridiculous --
+- [18:24.630] it's so ridiculous.
+- [18:25.890] By the way, you would -- if I didn't bring the military in.
+- [18:29.570] Los Angeles would be burning down right now,
+- [18:31.880] be burning just like his damn house is burned down
+- [18:34.350] because he didn't have the water that he should have had.
+- [18:36.250] He had so much water. They have so much, water.
+- [18:39.490] We had to send in the military to free up the water.
+- [18:42.890] And we did that right after the fires.
+- [18:44.440] We told him to do it in the first term.
+- [18:46.880] But just like that ridiculous plan,
+- [18:48.980] this is a plan to ban. Think of it a plan to ban 100 --
+- [18:55.410] and they call it the 100 percent ban.
+- [18:58.370] Want all-new gas-powered cars,
+- [19:01.310] and abolish 75 percent of the gas-power trucks.
+- [19:04.740] Seventy-five percent. The trucking industry saw me.
+- [19:07.990] They said, sir, it doesn't work.
+- [19:10.560] Number one, the trucks are so heavy.
+- [19:12.000] They're two and a half times heavier
+- [19:13.460] than a diesel-powered truck.
+- [19:18.400] One of the big truckers, 28,000 trucks,
+- [19:21.240] big company, tremendous company,
+- [19:23.550] and he said, I go out of business immediately,
+- [19:25.340] I'm not going to play games. I mean, he said did you explain
+- [19:28.680] these things to the government officials?
+- [19:32.210] Like the truck weighs two and a half times more,
+- [19:36.680] two and half times than a regular truck,
+- [19:39.050] a gasoline powered diesel, and said, based on that,
+- [19:44.220] we have to rebuild every bridge in the United States of America,
+- [19:47.340] because it wasn't designed to hold cars and trucks that heavy,
+- [19:51.260] because the batteries are very heavy.
+- [19:52.680] They're -- you know, probably lead.
+- [19:55.200] They have a lot of things in those batteries
+- [19:56.720] that weigh a lot. But it's two and a half times.
+- [19:59.500] It's a simple number, two and half times,
+- [20:01.540] and if you want to do this, you have to spend trillions
+- [20:06.810] and trillions of dollars
+- [20:08.180] on rebuilding every bridge in the U.S.,
+- [20:10.970] and I guess throughout the world,
+- [20:12.200] because they do follow us.
+- [20:14.730] And the big rig busses and even cement trucks,
+- [20:19.040] they want to abolish certain categories of truck.
+- [20:24.690] But they want it to go 75% of all of these trucks
+- [20:29.320] have to be abolished almost immediately.
+- [20:32.500] I mean, the time is just crazy. They don't go far.
+- [20:38.640] Another little problem. With a tank of diesel,
+- [20:41.330] you can go from New York to Los Angeles,
+- [20:44.640] if you want to go to Los Angeles right now.
+- [20:48.770] But New York to Los Angels,
+- [20:50.250] and you can go back a little bit.
+- [20:53.210] With the electric truck, you'll stop approximately six times.
+- [21:00.570] Enjoy your stop. And the trucker saw me,
+- [21:04.250] and I said, did you just explain this?
+- [21:05.960] Because this is like, you know, if you explain it,
+- [21:08.660] if a person's reasonable for that,
+- [21:10.430] they said, we explained it, they didn't care.
+- [21:12.970] They said, we're going all electric.
+- [21:18.140] They can't be stupid because anybody that can cheat
+- [21:20.540] on elections like them is not a stupid person.
+- [21:25.070] But they must hate our country.
+- [21:26.570] But I said to this big truck, I said, sir,
+- [21:29.660] I've been buying trucks my whole damn life.
+- [21:32.950] He's a rough guy, smart guy.
+- [21:35.400] He said, I got thousands of them.
+- [21:38.180] I've be buying them for 50 years.
+- [21:40.390] And every single year, they got better.
+- [21:43.740] They got more efficient. They got bigger.
+- [21:45.650] They got stronger.
+- [21:48.090] I build apartments in my trucks now for the drivers.
+- [21:51.210] I said what's an apartment?
+- [21:52.520] That's on the cab, they put this in.
+- [21:55.000] And sir, I know you like luxury,
+- [21:56.420] but you wouldn't mind living in one of these?"
+- [21:58.470] I said, maybe I would. Maybe I wouldn't.
+- [22:01.660] I mean, it doesn't sound too appealing, but --
+- [22:05.730] I said, so what's the problem? He said, I noticed one thing.
+- [22:11.580] For 50 years, every single year one thing happened.
+- [22:15.410] They got better. They got stronger.
+- [22:18.510] They got more efficient. They got faster.
+- [22:22.060] They could carry any load.
+- [22:24.980] If we went to this standard, we'd go back beyond 50 years.
+- [22:30.410] They wouldn't go as far as a truck from 50 years ago.
+- [22:34.830] It would be too heavy and have all the other problems.
+- [22:37.280] He said, we'd be going backwards.
+- [22:39.070] We'd be taking a truck in the industry.
+- [22:40.670] We'd start all over. But actually, it would be worse,
+- [22:43.790] because it was better 50 years ago than.
+- [22:46.860] So I said, what are you going to do if I don't win this election?
+- [22:49.920] This was before the election.
+- [22:51.830] He said you don't want the election,
+- [22:53.140] I'm going to close up my business
+- [22:54.490] because I'm not going to lose my.
+- [22:56.210] He said I'm, not going lose my ass.
+- [22:59.620] I know exactly what's going to happen.
+- [23:01.100] It's going to be a catastrophe.
+- [23:02.920] It's the craziest thing I've ever heard.
+- [23:04.490] They're making you buy stuff that doesn't work.
+- [23:07.980] It's no good. It doesn't works. And I'm all for electric.
+- [23:12.360] If you want to buy electric, you can buy electric.
+- [23:14.340] Cars are great.
+- [23:16.040] If you buy the right ones, cars are great,
+- [23:20.370] and you should be given the option.
+- [23:22.580] Buy the electric car. Buy a gasoline-powered car.
+- [23:25.380] Buy a hybrid.
+- [23:27.310] Probably not hydrogen, because hydrogen has a tendency.
+- [23:30.970] That when it blows up your gonzo, though, it's over.
+- [23:34.510] They find you 75 yards down the road, you know?
+- [23:37.210] Where is he?
+- [23:38.540] Well, I think that's him, but I'm not sure.
+- [23:42.230] So, you, know, they said, we think we can solve the problem.
+- [23:45.020] I said, that's not good enough when they think.
+- [23:46.620] No, it sounds like it's quite severe.
+- [23:48.900] If it doesn't work, Steve, it'll work most of the time.
+- [23:51.760] But if it doesn't' it's, over.
+- [23:54.310] It'll make your accident look like peanuts compared.
+- [23:56.860] You wouldn't be around,
+- [23:58.140] I'll tell you, because it's been --
+- [23:59.470] it's pretty -- but some people like it.
+- [24:01.510] I don't know. They'll -- let's see what happens.
+- [24:03.150] But I would say it's off to a bad start.
+- [24:06.600] But because of the size of California's population
+- [24:09.580] and the fact that 17 other states follow California --
+- [24:12.760] that's the problem.
+- [24:14.910] Seventeen other states follow California.
+- [24:19.050] They have the most ridiculous laws
+- [24:20.690] I've ever seen for a lot of things.
+- [24:22.760] This is just cars, but we're -- and trucks and all.
+- [24:26.640] They have a lot of them for other things.
+- [24:28.640] But we have -- it's called the California car standards.
+- [24:33.010] And this horrible scheme would effectively
+- [24:36.500] abolish the internal combustion engine,
+- [24:39.880] which most people prefer.
+- [24:42.390] Like, so far, I'd say about 90 percent.
+- [24:44.360] In fact, General Motors announced yesterday
+- [24:46.900] they're going to spend about $6 billion on --
+- [24:49.600] because of tariffs,
+- [24:50.890] and maybe because of my election on November 5th.
+- [24:54.590] Because of tariffs, I think, more than anything.
+- [24:56.520] They're all coming back.
+- [24:57.730] They're coming back from other countries
+- [24:59.290] that took them 25, 30 years ago. They're all coming.
+- [25:03.310] We have now almost $15 trillion.
+- [25:05.950] They had almost nothing last year.
+- [25:07.510] A year before, they had very little.
+- [25:09.520] Nobody wanted to be back here.
+- [25:11.390] Nobody wanted to come to our country anymore
+- [25:14.310] because we were like stupid people.
+- [25:16.270] We looked like stupid people.
+- [25:17.580] We were laughed at all over the world.
+- [25:19.170] Now we're not laughed at anymore, I can tell you that.
+- [25:22.480] But they wanted to shatter our domestic supply chains
+- [25:26.540] and literally grind civilization to a halt.
+- [25:30.040] We would have gone so far back. It's hard to believe, actually.
+- [25:34.160] Hard to believe when you don't have enough electricity
+- [25:36.430] to give a person a little air conditioning in the summer,
+- [25:39.900] and now they want you to take electricity
+- [25:42.200] and fire up all these cars.
+- [25:45.570] But we're not going to let that happen.
+- [25:48.480] Meanwhile, all of the auto jobs would be shipped.
+- [25:51.650] To China because they're very strong on electric.
+- [25:55.650] And it lives off an estimated
+- [25:58.010] 200,000 American autoworkers would be destroyed.
+- [26:00.520] It's one of the reasons
+- [26:01.810] I did so well with the United Autoworker.
+- [26:05.210] And now I'm really doing well with them.
+- [26:07.270] I did phenomenally with them,
+- [26:08.700] no Republican ever got any numbers like I got.
+- [26:11.570] And the Teamsters, too.
+- [26:12.980] Sean O'Brien, the head of the Teamster,
+- [26:14.530] these guys, they like Trump because I produce jobs.
+- [26:17.790] They know that.
+- [26:19.300] Everybody knew that, the autoworkers knew better
+- [26:21.600] than anybody how good the tariffs were.
+- [26:24.310] And the head of the autobreakers,
+- [26:26.670] I don't know him at all, but he didn't like me at all.
+- [26:30.430] Now he's going around saying, this guy's unbelievable.
+- [26:33.860] He was very nice to me the last few months.
+- [26:36.880] During the campaign, no, but if,
+- [26:39.470] I've proven, you know, I have proven it.
+- [26:41.570] I done what I said I was going to do,
+- [26:43.300] and we've brought back tremendous numbers of jobs.
+- [26:46.770] And you're having auto plants built all over the country,
+- [26:49.990] all over.
+- [26:51.360] They've never seen anything like that.
+- [26:53.340] They're leaving from Mexico, they're leaving from Canada,
+- [26:56.340] they are leaving from other parts of the world.
+- [26:59.270] If they want a Mercedes Benz,
+- [27:00.720] you're going to have it made here.
+- [27:01.990] It's okay to have a Mercedes,
+- [27:03.280] but they're going to make it here.
+- [27:04.530] Otherwise, they are going to pay a very big tariff.
+- [27:06.350] They already are.
+- [27:07.550] That's one of the reasons we have $88 billion.
+- [27:10.570] It's a lot of money. But that's peanuts compared
+- [27:12.480] to what we're going to be making in another few months.
+- [27:14.930] They haven't even kicked in yet.
+- [27:17.630] But we're not going to let any of these bad things happen.
+- [27:21.340] These stupid projections that I've been reading
+- [27:23.940] about for the last six months.
+- [27:25.430] I think these people are either corrupt or really dumb.
+- [27:29.490] And they're supposed to be economists.
+- [27:31.120] In the campaign, I promised to end this disaster.
+- [27:34.200] And today, our Republican majorities
+- [27:36.180] in Congress have delivered.
+- [27:38.190] And I don't know. I can't imagine.
+- [27:40.930] It's so obvious. It's good. Did we get any Democrat votes?
+- [27:45.200] And did we get one? Who?
+- [27:50.920] 35. I think that's great. You know, I think that's good.
+- [27:54.890] You got 35 Democrats. I think this is great.
+- [27:59.390] That, as far as I'm concerned -- one in the Senate.
+- [28:04.860] On something that's so good. But who is the one?
+- [28:16.650] I shouldn't have asked. I congratulate her.
+- [28:20.570] I don't care. I think it's great.
+- [28:23.840] It's very interesting.
+- [28:25.930] Why did I ask that question, Mr. Speaker?
+- [28:30.930] But in a few moments, I'll sign three pieces of legislation
+- [28:34.190] that will kill, totally kill -- you can't do anything about it.
+- [28:38.190] They can't take us to court. They can do any of the things
+- [28:40.760] they can do with the executive orders.
+- [28:43.610] And it's permanent. I'll sign three pieces of legislation
+- [28:46.960] that will kill the California mandates forever.
+- [28:51.540] And they're never coming back.
+- [28:52.840] Now the auto companies are the most happy
+- [28:54.650] because now they're going to be designing and building one auto.
+- [28:58.310] It will be much cheaper. It's much less expensive.
+- [29:02.860] They were showing me, one of the most respected people,
+- [29:05.780] was showing me that to save a little,
+- [29:09.160] like a half a glass of fuel,
+- [29:12.230] cost them thousands of dollars with new computers
+- [29:15.110] and stop it, the engine has to stop
+- [29:17.090] and then turn on and blah, blah, bah.
+- [29:19.520] And I said, does it work as well?
+- [29:20.860] No, it's terrible.
+- [29:22.590] It's terrible, and that's to save a little bit of fuel.
+- [29:24.890] This much fuel that Chris Wright can produce
+- [29:27.530] with one extra little oil well someplace, right?
+- [29:32.440] One little, a small one, a very small one.
+- [29:34.500] But think of it.
+- [29:36.090] Your cars are going to cost you $3,000, $4,000 less,
+- [29:40.040] and you're going to have what you want.
+- [29:42.000] And again, you can get any car you want, you can electric.
+- [29:44.550] A lot of people love the electric.
+- [29:46.120] They like Tesla. So do I, in all fairness.
+- [29:49.810] I like Tesla, and I like others, too.
+- [29:53.650] But I also like combustion engines.
+- [29:55.490] And, you know, there are reasons for -- A lot of things.
+- [29:59.080] When I was in Iowa, we had an unbelievable victory,
+- [30:03.270] if you remember. Remember?
+- [30:04.910] That was nice. You won by, like, so much,
+- [30:07.020] nobody even talked about anything else.
+- [30:09.740] But that was a great victory.
+- [30:11.060] But it was unbelievably cold that night.
+- [30:13.870] And I was going to watch my victory in the area
+- [30:17.460] where I was going to make a speech,
+- [30:18.720] and the whole place was littered with cars.
+- [30:22.650] I said, what happened?
+- [30:24.220] They were electric cars, and they don't work in cold.
+- [30:27.780] I said, I didn't know that.
+- [30:30.330] And they don't work in extreme heat, either.
+- [30:32.510] Other than that, they're wonderful.
+- [30:33.810] But, no, but if you're in a cold climate,
+- [30:36.620] you know, how do you do that? But they're electric cars.
+- [30:39.550] And I noticed that, and then I didn't pay much attention
+- [30:42.450] because we won by about 65 points.
+- [30:45.160] So I was more interested in that.
+- [30:46.790] But I do remember that scene.
+- [30:48.170] I said what the hell is going on over here?
+- [30:51.110] This historic action will also help us reduce inflation
+- [30:54.060] and bring down the price of --
+- [30:55.680] Automobiles and electricity, very, very substantially.
+- [30:58.590] You know, we're building massive electricity right now.
+- [31:00.710] It's already started because of that guy
+- [31:02.260] right there, Lee Zeldin.
+- [31:04.120] By far the most important man in the room, Mr. Speaker.
+- [31:07.950] Stand up, please.
+- [31:09.580] (applause)
+- [31:15.780] He blows you guys away, John. He blows the politicians away.
+- [31:19.790] I'm sorry right now.
+- [31:21.560] He actually, he's a great politician.
+- [31:23.240] He almost won for governor in New York,
+- [31:24.850] which is just missed by a few points.
+- [31:28.660] And that was another race that was not winnable,
+- [31:31.030] but you almost got it.
+- [31:33.040] But I think what you're doing now is even bigger
+- [31:34.820] if you want to know the truth.
+- [31:36.070] I think it's actually more important
+- [31:37.350] if you can believe that.
+- [31:39.470] Under the previous regime, car prices skyrocketed
+- [31:42.240] as a direct result of the mandates.
+- [31:45.330] These mandates this this nonsense that you had to do
+- [31:48.260] and they have so many other rules and regulations
+- [31:50.570] at the car companies who are here
+- [31:52.110] Today appreciate that and Susie Wells is here today.
+- [31:55.410] Stand up, Susie. Most incredible woman.
+- [31:59.180] Most powerful woman in the world they say.
+- [32:02.020] (applause)
+- [32:05.610] She was rated the most powerful woman in the world,
+- [32:07.340] Susie Wells.
+- [32:08.560] One phone call, and a nation is destroyed.
+- [32:11.930] She destroys --
+- [32:13.150] she could destroy five nations with five calls.
+- [32:16.500] And she's doing a great job. More importantly, right?
+- [32:18.960] Doing a great, job. There's nobody like her.
+- [32:24.840] Energy prices would likewise soar as a radical left force
+- [32:29.110] more electric vehicles onto the grid
+- [32:31.170] while blocking approvals for new power plants.
+- [32:34.870] They want to block the approvals.
+- [32:36.240] They want you to have a car with electric,
+- [32:39.290] but they block the production of the juice that runs
+- [32:43.660] the cars and all of them, all forms of cars.
+- [32:46.870] It's just the craziest thing. We're in a different sphere now.
+- [32:50.370] We're on a whole different planet right now.
+- [32:52.620] The result would be rolling.
+- [32:54.770] Blackouts and a collapse of our power systems
+- [32:57.230] would have a total collapse. You couldn't do it
+- [32:59.090] You couldn't even do it think of it.
+- [33:00.910] They're forcing you to do something
+- [33:02.520] and they want you to boats also
+- [33:04.480] I assume boats are being covered by this and boats.
+- [33:07.590] They want you go all electric
+- [33:08.970] and the batteries are so heavy the damn boat
+- [33:12.660] Practically doesn't float. I used to have a lot of fun
+- [33:16.610] talking about that one on the on the tours we'd talk about it.
+- [33:21.710] I Said what would happen if the boat sank
+- [33:23.410] because if we went to North Carolina, South Carolina,
+- [33:26.500] we visited boat factories. Unbelievable guys.
+- [33:30.090] And they said, sir, we have one problem.
+- [33:31.970] They're forcing us to go electric for the boat.
+- [33:34.450] I said, how's it going to work?
+- [33:36.360] The boat will not float, sir. It's so heavy.
+- [33:41.980] And it won't go fast and lots of other.
+- [33:44.620] And I did ask him a question,
+- [33:46.380] because I have a lot of background.
+- [33:48.180] My uncle was a big shot at MIT, the smartest guy.
+- [33:51.700] He never had a smarter guy.
+- [33:53.650] And I guess I have a little of that.
+- [33:55.390] My first question was, what would happen if the boat sank?
+- [33:57.680] Do you get electrocuted? Remember I said that?
+- [34:00.750] And I used to be decimated by these people back here, right?
+- [34:04.510] I used be decimated.
+- [34:05.740] They'd say, what kind of a crazy question is that?
+- [34:10.070] I'm actually serious.
+- [34:11.320] What happens if you're an electric boat
+- [34:13.040] and the boat is going down? You're in trouble, Susie.
+- [34:16.390] And I use to say, remember? Oh, I'd get decimated.
+- [34:18.940] The audience loved it, but the press would laugh at it.
+- [34:22.540] I said, so if I have my choice of going down,
+- [34:25.600] we're jumping five or six yards away from the boat,
+- [34:28.080] but there's a shark there. What do I do?
+- [34:32.230] You know what I said? I'd rather be electrocuted.
+- [34:34.700] I said I'll take electrocution every single day.
+- [34:38.600] But actually, he said,
+- [34:39.820] nobody's ever asked me that question, sir.
+- [34:41.890] He makes boats. Nobody ever asked that question.
+- [34:44.530] That's really an unusual question.
+- [34:46.700] He said, and honestly, I don't have the answer.
+- [34:48.940] He wasn't able. I said, don't worry about it.
+- [34:51.600] If I win, you won't have to worry about.
+- [34:55.600] Today, we're saving California
+- [34:58.120] and we're saving our entire country from a disaster.
+- [35:01.160] Your cars are going to be thousands of dollars less money,
+- [35:04.920] and even the ones that, if you buy electric,
+- [35:07.530] we're not going to make you do certain things
+- [35:09.050] that are just a waste of money
+- [35:10.460] and just a time consuming waste of money.
+- [35:13.280] They make you to do things that are no good for anybody,
+- [35:16.370] make the car worse, and make it much more expensive.
+- [35:19.800] Over the past five months, our administration
+- [35:22.500] and Republicans in Congress have fought for.
+- [35:25.260] The American auto worker and for Teamsters and for,
+- [35:28.740] by the way, right to work. We have them all.
+- [35:32.150] We have, you know, we just call them just workers.
+- [35:35.020] We fought for workers like no one has ever fought before.
+- [35:38.490] I understand that. It's why we won.
+- [35:40.870] We won with workers. We won, we the young people.
+- [35:44.100] I just saw with TikTok,
+- [35:46.070] I was number one on TikTok in its history.
+- [35:48.100] Can you believe that? I guess I like TikTok.
+- [35:51.830] That's why they're saying, are you saving?
+- [35:53.350] And we probably will save TikTok, actually.
+- [35:56.380] But on my first day in office, I ended the Green New Scam
+- [35:59.900] and abolished the EV mandate at the federal level.
+- [36:03.290] We abolished it, which is basically that everybody
+- [36:06.260] will be driving an electric car
+- [36:07.730] within a very short period of time.
+- [36:11.240] Now I know why Elon doesn't like me so much,
+- [36:14.360] which he does, actually, he does.
+- [36:16.650] And he never had a problem. You know, it's very interesting.
+- [36:19.100] This is not something new.
+- [36:20.920] This has been there from day one, Speaker, right?
+- [36:22.980] We're going to abolish the E.V. Mandate.
+- [36:25.880] And Elon still endorsed me because,
+- [36:28.970] honestly, he never, ever spoke to me about that.
+- [36:32.170] And I used to say I'm amazed that he's endorsing me
+- [36:34.540] because that can't be good for him.
+- [36:36.830] I'm abolishing the EV mandate. And I once asked him about it.
+- [36:40.890] You never talked to me that. That he said, well,
+- [36:43.740] As long as it's happening to everybody,
+- [36:45.470] I'll be able to compete.
+- [36:46.750] It was a very interesting answer.
+- [36:48.060] I thought it was a honest answer, to be honest with you.
+- [36:50.720] And I talked about it, that it was incredible.
+- [36:53.320] You know, you would've thought he would've been, from day one,
+- [36:56.220] you got to make sure you don't do the EV mandate,
+- [36:59.320] the abolishing. He never did.
+- [37:01.180] Very honest in that sense.
+- [37:03.330] And he did say to me, I actually asked him
+- [37:05.310] because it was really strange how I'm with him.
+- [37:08.730] He's very, you know, a friend of mine.
+- [37:11.900] He makes electric cars, and we're saying,
+- [37:14.100] you're not going to be able to make electric cars
+- [37:15.820] or you're going to not be forced to make all of those cars.
+- [37:18.840] You can make them, but it will be by the market,
+- [37:20.890] judged by the markets. And that's what he said.
+- [37:23.400] He said, as long as I'm on the same plane
+- [37:25.350] as everybody else, we're going do good.
+- [37:27.560] We make a better product.
+- [37:29.310] I said, that's very cool, that was my answer.
+- [37:33.050] After that, he got a little bit strange,
+- [37:34.590] but I don't know why over much smaller things than that.
+- [37:39.600] As part of the One Big, Beautiful Bill,
+- [37:42.290] we'll also further slash the funding for the Green New Scam.
+- [37:46.390] As you know, it's the greatest scam in history.
+- [37:49.250] Saving American taxpayers hundreds of billions of dollars.
+- [37:53.910] The windmills are killing our country, by the way.
+- [37:57.100] The fields are littered with them, junk.
+- [37:59.350] They're littered with them.
+- [38:01.150] And they get older, and they get rusty,
+- [38:02.750] and they get bad, and this is other countries also.
+- [38:06.420] It's the greatest scam in history.
+- [38:07.970] It's most expensive energy you can buy.
+- [38:10.790] They're ugly.
+- [38:11.990] A friend of mine comes from Minnesota.
+- [38:15.250] He's been in New York. He hit it big.
+- [38:17.150] He's a very successful guy, actually.
+- [38:19.980] And he wanted to go back, see his mother, who's not well,
+- [38:22.910] and he went back to Minnesota.
+- [38:24.200] Hasn't been back there in 20 years.
+- [38:27.150] And he said, it's unbelievable what happened.
+- [38:29.050] He said, I'm driving down a highway and up a certain road,
+- [38:34.290] and the most beautiful fields. I remember them so well.
+- [38:38.600] And I was so looking forward to seeing them again,
+- [38:40.700] and I looked at them, and they had windmills all over them,
+- [38:43.110] these horrible, horrible structures.
+- [38:45.570] He's a very smart guy, this guy.
+- [38:48.180] He said these ugly, horrible things.
+- [38:52.660] And he says, it was so bad,
+- [38:54.150] I actually drove back to see it because I couldn't believe it.
+- [38:57.630] Before I even got to my mother, I drove back.
+- [39:00.040] I said, how much do you like your mother?
+- [39:03.260] But, no, it hurt him to see it. He said, I looked at this field.
+- [39:06.790] It was one of the most beautiful places in my own mind
+- [39:10.090] and imagination that I've ever seen.
+- [39:12.700] And I said it's littered with this garbage.
+- [39:17.750] It looked like a junkyard, he said.
+- [39:19.980] And some, you know, then you get different manufacturers
+- [39:24.470] and they don't look alike.
+- [39:26.950] And they're not painted alike, the different colors.
+- [39:29.360] You have, even if they're white, one's a beigey white,
+- [39:32.460] one's darker white, one's lighter white.
+- [39:35.780] And then they start to rust after four or five years.
+- [39:39.320] And then, they start wear out.
+- [39:41.340] And nobody takes them because you're not allowed
+- [39:43.150] to bury the propellers, the props, right?
+- [39:46.130] You can't bury the props for some reason.
+- [39:47.870] I don't know why, but they say that you can't bury --
+- [39:49.800] it's a certain type of fiber,
+- [39:51.190] and if it goes in the ground, we're all going to die.
+- [39:54.210] It's what bullshit this is, okay? They can't bark.
+- [39:57.430] So what they do is they leave them up.
+- [40:00.030] If you go to Palm Springs, California, take a look.
+- [40:02.570] You go into this beautiful community before you go.
+- [40:05.240] It's like you're riding through a junkyard.
+- [40:07.750] Windmills all over the place.
+- [40:09.980] Tall ones, short ones, dead ones.
+- [40:12.770] They're all dead.
+- [40:14.050] Some are hanging over by a thread.
+- [40:16.730] They never take them down.
+- [40:17.950] They just leave them there and they start to rust.
+- [40:20.740] It's one of the greatest scams.
+- [40:22.120] And it's also the most expensive energy.
+- [40:25.370] And the environmentalists say, oh, we love wind.
+- [40:27.780] It sounds so good, but it's a horrible thing.
+- [40:30.380] Environmentally, it's horrible thing, I say that to you.
+- [40:34.070] It's wind, and we are going to have virtually
+- [40:38.070] no one mandate we have.
+- [40:39.980] We're going to natural gas, nuclear.
+- [40:43.390] Nuclear, we just had a big signing with nuclear,
+- [40:47.290] making it easier, safer, and better.
+- [40:50.040] It's really -- I would say probably more
+- [40:52.870] than any other form of energy that's come about.
+- [40:55.700] It's been amazing what's been done.
+- [40:57.230] It's very safe, very good, and very inexpensive.
+- [41:01.270] But we're not going to let windmills get built
+- [41:04.100] because we're going to destroy our country
+- [41:06.040] any further than it's already been destroyed.
+- [41:08.080] You go and look at these beautiful plains and valleys
+- [41:11.730] and they're loaded up with this garbage
+- [41:14.230] that gets worse and worse.
+- [41:15.540] Looking with time, it starts when the rust comes.
+- [41:18.400] It's 4.5 years, it starts to rust.
+- [41:21.640] And it's very expensive to paint them.
+- [41:24.910] So they don't paint them, and they're horrible.
+- [41:27.100] What's happened is horrible.
+- [41:28.440] So we're not going to approve windmills
+- [41:30.710] unless something happens that's an emergency.
+- [41:33.040] I guess it could happen. But we're doing any of them.
+- [41:36.380] I hope the Senate will soon pass a bill
+- [41:39.460] the House can quickly approve
+- [41:40.910] and get to my desk by the 4th of July.
+- [41:43.880] We'll have this done.
+- [41:45.530] And to further defend our autoworkers,
+- [41:47.880] I imposed a 25 percent tariff
+- [41:50.030] on all foreign automobiles' investment in American
+- [41:52.710] auto manufacturing is surging because of it.
+- [41:56.330] They have Mercedes all over. They have -- they pay 25 percent
+- [42:00.840] if they don't make the car in the United States.
+- [42:03.690] And because of that --
+- [42:04.950] and this could have been done long before Trump --
+- [42:07.450] this could've been done by any one of the presidents.
+- [42:09.710] I did it with China.
+- [42:10.910] The reason you don't have Chinese cars here
+- [42:12.810] because I imposed it in my last --
+- [42:15.930] I actually asked the question,
+- [42:17.300] I said, do we have any Chinese cars?
+- [42:20.280] You didn't know, why? Because you imposed a 25 or 27
+- [42:25.770] and a half percent tariff on Chinese cars,
+- [42:28.660] so they're not coming here.
+- [42:30.530] But they are going to Europe all over the place.
+- [42:33.220] But I love China. We just made a deal,
+- [42:34.930] and I respect President Xi a lot.
+- [42:37.420] And we made a deal that's good for both countries.
+- [42:39.980] The deal we made with China is good for both countries,
+- [42:42.620] going to be a lot of money made.
+- [42:44.750] It's going to ultimately open up China,
+- [42:46.600] which is the ultimate thing.
+- [42:48.480] And I'm going to be working with President Xi.
+- [42:50.310] We had a long talk about it.
+- [42:51.930] And that's going be good for China.
+- [42:53.220] It's going to be good for us.
+- [42:54.480] But we're going to opening up China.
+- [42:55.930] That's bigger than what we signed.
+- [42:58.190] And I think, had we not signed it,
+- [43:00.710] that wouldn't be happening.
+- [43:01.970] It's got to happen. It's go to happen fairly soon.
+- [43:06.100] But to further defend our autoworkers,
+- [43:09.100] I impose this 25 percent tariff.
+- [43:12.370] On all foreign automobiles and investment
+- [43:14.980] in American manufacturing and auto manufacturing.
+- [43:17.800] All manufacturing is surging.
+- [43:21.040] And I might go up with that tariff
+- [43:23.240] in the not-too-distant future.
+- [43:24.650] The higher you go, the more likely it
+- [43:26.150] is they build a plant here. Ford has just announced
+- [43:29.430] that it's going to invest $500 million
+- [43:32.130] in some of the things involved in what we just did.
+- [43:35.290] General Motors is going to spend $4 billion.
+- [43:37.730] They just announced it yesterday.
+- [43:39.050] Stellantis announced that it's going to reopen
+- [43:42.080] its Belvedere assembly plant. That's good.
+- [43:45.210] I know the plant very well. Had a lot of problems.
+- [43:49.090] They're going to spend $5 billion.
+- [43:52.550] And Hyundai announced that they will invest
+- [43:54.780] $21 billion in America.
+- [43:57.670] They wouldn't have invested 10 cents if we didn't have tariffs,
+- [44:01.070] including for manufacturing American steel,
+- [44:04.030] which is doing great.
+- [44:05.490] American steel is doing great now because of what we did.
+- [44:10.550] You wouldn't have if I didn't put tariffs on steel.
+- [44:13.600] They were dumping steel.
+- [44:14.840] China and a lot of other countries
+- [44:16.600] were dumping steel in our country.
+- [44:18.340] Garbage steel, dirty steel, bad steel,
+- [44:21.000] not structurally sound steel.
+- [44:23.060] Real garbage, but it was still there, lots of it.
+- [44:26.290] And if I don't put tariff,
+- [44:27.600] I put 25 and 50 percent tariffs on steal, right?
+- [44:31.290] John James would put tariffs in steel,
+- [44:34.600] and we were doing great with steel.
+- [44:36.550] Now we're really doing great. Big investments being made.
+- [44:40.730] Pennsylvania, you've been reading about it.
+- [44:42.340] They're going to spend $17 billion on U.S. Steel.
+- [44:46.080] And all the steel workers wanted it.
+- [44:50.380] And we have a golden stock. We have a Golden Share,
+- [44:55.050] which I control or President controls.
+- [44:57.660] Now, I'm a little concerned, whoever the President might be,
+- [45:01.350] but that gives you total control.
+- [45:03.090] It's 51 percent ownership by Americans.
+- [45:06.750] And we -- a company, a great company, Nippon.
+- [45:09.520] They're coming in from --
+- [45:10.970] Japan, they're going to spend $17 billion.
+- [45:13.770] And somebody said, well, what about,
+- [45:15.470] what happens if it doesn't work out?
+- [45:16.980] I said, they spent $17 billion.
+- [45:19.750] We can't put it on a trailer and drive it to Japan.
+- [45:22.120] This is a steel mill.
+- [45:23.480] You know, some businesses, you can move.
+- [45:25.030] You move your office, and that's where the business is.
+- [45:27.670] With this business, they are spending $17.
+- [45:30.560] Think of that. $17 billion.
+- [45:32.290] They're going have them all over the country.
+- [45:34.690] I want to introduce several of the great Americans
+- [45:37.120] representing the millions of people
+- [45:38.850] whose livelihoods, we're saving. With today's action.
+- [45:42.230] I just can't tell you how incredible this action is,
+- [45:45.650] because nobody thought. This was one that I wasn't so --
+- [45:50.000] I would have rather had it than almost anything,
+- [45:52.060] but I was told by everybody,
+- [45:54.030] except that guy right there, that you couldn't get it.
+- [45:58.250] Bill Kent runs a chain of family-owned convenience stores
+- [46:01.780] that opened in West Texas in 1957, known as Kent Quick.
+- [46:07.520] And, Bill, if you could come up and say a few words
+- [46:10.230] about what the signing means to you, please.
+- [46:15.320] (applause)
+- [46:21.590] Bill Kent: Wow, you're probably wondering
+- [46:23.460] why I've called you all here today, right?
+- [46:27.170] What a great day.
+- [46:28.480] From my perspective, I'm in the convenience store and
+- [46:31.960] (inaudible) marketing business,
+- [46:33.930] and what this does is it gives us freedom.
+- [46:37.670] It gives the consumer's freedom
+- [46:39.740] to pick what kind of car they want.
+- [46:42.150] But more importantly for us,
+- [46:44.450] it gives the ability to plan going forward.
+- [46:48.120] Because with mandates we were forced
+- [46:50.950] to have to look at putting in infrastructure
+- [46:54.690] that frankly is extremely expensive
+- [46:57.180] and doesn't give you any return.
+- [46:59.720] So this allows us, it's going to free me up
+- [47:02.740] and our companies up to invest
+- [47:04.570] in what people want in the cars they want,
+- [47:08.170] and it's a great day. So, Mr. President, Congress,
+- [47:12.790] thank you, Steve, everybody, thank so much, thank-you.
+- [47:17.450] (applause)
+- [47:23.320] The President: And a friend of mine
+- [47:24.570] for a long time is John Hess.
+- [47:26.980] He's one of the top CEOs in the country,
+- [47:31.230] and he's now the CEO of Hess Corporation,
+- [47:34.840] one of the biggest oil producers.
+- [47:37.150] And he's a fantastic person with great knowledge
+- [47:40.580] of the subject matter. Can you say a few words, John?
+- [47:44.640] I see you in the audience. Come on, thanks.
+- [47:47.710] (applause)
+- [47:53.820] John Hess: Hi, I'm John Hess, CEO of Hess Corporation,
+- [47:57.030] a proud producer of oil and gas in North Dakota
+- [48:00.730] and the Gulf of America. And so you all know.
+- [48:10.050] I was born in New Jersey, grew up in New York,
+- [48:13.810] and my father started our company
+- [48:16.280] by driving a second-hand oil truck.
+- [48:18.360] So, Mr. President, it's an honor to be before you today,
+- [48:21.000] and thank you for that.
+- [48:22.950] Mr. President, during your campaign,
+- [48:24.810] you made a commitment to the American people
+- [48:27.370] to repeal unworkable and costly mandates for cars and trucks
+- [48:32.220] and let the consumer choose what type of vehicle they drive.
+- [48:36.640] Today, with the bipartisan support of Congress,
+- [48:40.420] you're making good on that promise.
+- [48:43.360] I'd like to recognize Speaker Johnson,
+- [48:45.750] Leader Thune, other members of Congress
+- [48:48.860] whose tireless efforts were critical to the outcome
+- [48:52.350] we're celebrating today.
+- [48:54.070] And a special thank you to Senator Capito
+- [48:56.680] for her leadership.
+- [48:58.870] (applause)
+- [49:05.010] This announcement today is about consumer choice
+- [49:08.430] and affordability for American families.
+- [49:11.140] It's also about making our country
+- [49:14.360] auto industry more competitive.
+- [49:16.110] Mr. President, and you said that very eloquently.
+- [49:18.880] As you know, Mr. President one size fits all policies
+- [49:22.150] like those adopted in California do not work.
+- [49:26.480] America in every state,
+- [49:29.470] every American should be able to choose
+- [49:32.060] what they want to drive, not the government.
+- [49:34.830] We as a country would be basically leaning
+- [49:40.670] into our competitive advantage with this repeal on oil and gas.
+- [49:45.770] Oil and gas are a strategic industry for our country,
+- [49:49.010] underpinning energy dominance, economic prosperity,
+- [49:53.310] and national security. We are truly energy independent.
+- [49:57.540] So, Mr. President, on behalf of Hess Corporation,
+- [50:00.900] on behalf of the oil and gas industry.
+- [50:03.130] And every family across our country,
+- [50:05.170] thank you for your courageous leadership
+- [50:07.620] and your commitment to consumer choice and energy affordability.
+- [50:11.780] Thank you very much.
+- [50:13.980] (applause)
+- [50:20.820] The President: Very respected guy.
+- [50:23.370] The California EV mandates would also have devastated
+- [50:26.770] our nation's incredible truck drivers
+- [50:30.320] and the trucking industry.
+- [50:31.850] And I gave you a little bit of a rundown on that.
+- [50:36.070] But a diesel-powered semi-truck can drive from Reno, Nevada --
+- [50:40.030] I'll give you some other locations --
+- [50:42.700] Nevada to Los Angeles, California,
+- [50:45.310] and back on a single tank of diesel oil.
+- [50:49.640] Diesel fuel, but The same exact journey
+- [50:52.630] would require an electric truck driver
+- [50:54.550] to stop also six times at recharging stations,
+- [50:59.530] adding an estimated nine hours to the trip.
+- [51:02.660] I don't know too much about the trucking industry,
+- [51:04.690] but this is not sounding good. Here to discuss a little bit
+- [51:09.980] about the trucking industry, Gina Jones.
+- [51:14.050] And Gina, a real expert on trucks, I can tell you that.
+- [51:17.950] She's going to come up and tell us about trucks.
+- [51:20.780] Thank you, Gina.
+- [51:24.240] (applause)
+- [51:28.660] Gina Jones: Thank you, Mr. President.
+- [51:30.770] And thank you, members and Congress.
+- [51:34.330] The trucking industry has America's back,
+- [51:38.800] and we are grateful that a president
+- [51:42.350] and the administration that have our back, too.
+- [51:47.880] Today, trucks are 99% cleaner than a generation ago.
+- [51:54.980] We need great partners.
+- [51:57.790] In government to continue that process.
+- [52:01.460] We cannot allow one state's regulations
+- [52:05.700] to disrupt our entire nation's supply chain.
+- [52:11.760] Allowing California to do so would have negatively
+- [52:18.400] impacted the hundreds and thousands of truck
+- [52:21.750] drives who deliver critical goods across the country
+- [52:25.810] each and every day.
+- [52:28.510] In order to deliver for American families and businesses,
+- [52:33.800] we need realistic national standards.
+- [52:39.030] With the signing of this resolution, Mr. President,
+- [52:43.690] you have delivered the leadership
+- [52:46.290] that trucking industries need.
+- [52:50.350] Promises made, promises kept. On behalf of the eight --
+- [52:57.780] (applause)
+- [53:04.150] Gina Jones: On behalf of the 8.5 million Americans
+- [53:07.540] who work throughout the trucking industry,
+- [53:10.700] I thank you.
+- [53:12.670] (applause)
+- [53:16.950] The President: Great job.
+- [53:20.690] So just to wrap it up, I say, under the Trump administration,
+- [53:24.700] we will restore the full strength,
+- [53:27.430] might, and glory of the American auto and trucking industry.
+- [53:32.210] We'll protect our truck drivers, auto workers,
+- [53:35.010] small business people,
+- [53:36.350] and manufacturers all over our country,
+- [53:38.910] and actually all over the world. And that's okay, too.
+- [53:43.140] They'll be doing a product that works,
+- [53:45.090] a product that's much more efficient, that's better.
+- [53:49.170] It's much better. Less expensive.
+- [53:53.340] And we'll put affordable energy and affordable car
+- [53:55.870] ownership back on the center of the American Dream
+- [53:58.940] as we make America great again.
+- [54:00.620] And that's what's happening. We're making America great.
+- [54:03.660] You know, when I went over to Saudi Arabia, Qatar, UAE,
+- [54:08.070] just a couple of weeks ago,
+- [54:09.950] the leaders of those countries --
+- [54:12.610] and they're very smart people -- they said, you know,
+- [54:15.880] You've made, in a short period of time,
+- [54:17.550] America the hottest nation in the world.
+- [54:19.300] It's the hottest -- that you're the only one we talk about now.
+- [54:22.900] And six months ago, it was a laughingstock.
+- [54:25.240] They said that to me. Those words.
+- [54:26.650] It was a laughing stock.
+- [54:27.850] And it was an absolute laughing stock.
+- [54:30.760] We've got the hottest nations right now in the whole world.
+- [54:34.160] And the numbers are reflecting it, too.
+- [54:36.680] So I just think it's great.
+- [54:38.000] And what I'll do is I'll sign this,
+- [54:39.600] then we can take a couple of questions, if you want.
+- [54:42.400] And we will be finished, and you're going to go off,
+- [54:45.410] and you going to build the most beautiful automobiles
+- [54:48.330] for 20 percent less money.
+- [54:51.430] And I want to thank you, man. You have done some job.
+- [54:53.650] Thank you, Mike. Thank you, everybody.
+- [54:55.190] Do you guys want to come up here?
+- [54:59.060] (applause)
+- [55:21.840] Okay, we're going to sign three bills
+- [55:23.490] that do everything I just said. No auto pens allowed.
+- [55:31.140] (laughter).
+- [55:46.120] (applause)
+- [56:00.700] Number two. Very steady hand. It's very important.
+- [56:15.500] (applause)
+- [56:22.970] The President: Only a steady hand can sign like that, right?
+- [56:26.110] Right? I've been told that, actually.
+- [56:28.480] And here's number three, and it all goes into effect.
+- [56:30.770] Everything I said goes into affect.
+- [56:32.520] Lower prices, better cars, and choice.
+- [56:36.950] You can say choice. We have choice for education,
+- [56:39.880] and you have choice for cars now, right.
+- [56:41.650] Common sense is right.
+- [56:43.000] You're right. Common sense is right.
+- [56:52.280] Okay, now I can give you the pen,
+- [56:53.910] and I'll give you these.
+- [56:57.190] (applause)
+- [57:07.160] The President: We'll take these. Pass these around for us.
+- [57:17.720] Okay, everybody, there's a few extra you're going to take them
+- [57:21.110] and give them to some of the people.
+- [57:26.470] Okay?
+- [57:28.430] (applause)
+- [57:38.080] Go ahead, please.
+- [57:46.780] All right, Brian, yeah, please.
+- [57:48.490] The Press: Yes, sir. I have some very close friends
+- [57:51.770] who run some of the largest auto dealerships
+- [57:53.810] in Southern California, Muscat Automotive Group.
+- [57:57.950] Their message to you --
+- [57:59.230] they're 100 percent behind you right now.
+- [58:02.600] They know they're going through some soft sales period,
+- [58:05.720] but headed for the long haul, what is your message
+- [58:07.660] to thousands of auto dealerships across this country
+- [58:11.390] that are navigating through this terrible --
+- [58:13.400] The President: Yeah, they're going to do better
+- [58:14.810] than ever before.
+- [58:16.060] They're going sell cars in America
+- [58:17.740] at levels that they've never even thought of before.
+- [58:20.960] And they're going to make more money
+- [58:22.460] than they ever made before. It's going to be great.
+- [58:24.280] They're going to be selling a better car, too.
+- [58:26.170] It's going to be a better product.
+- [58:27.830] The Press: And they are behind you 100 percent.
+- [58:29.330] The President: I know. I know that.
+- [58:30.540] They have been behind me. They knew it was right.
+- [58:33.290] They've been asking for this for 25,
+- [58:35.270] 30 years, in all fairness. No, they are very happy.
+- [58:38.390] I told you, the autoworkers union,
+- [58:40.210] we got tremendous votes.
+- [58:42.080] But they like me today even better
+- [58:45.630] than they did on election day, on November 5th,
+- [58:47.860] because they see the results now.
+- [58:49.310] They're all happening.
+- [58:50.520] And yeah, and they have plants moving in, Brian.
+- [58:53.500] A lot of plants are moving in.
+- [58:54.850] Thank you very much for that question. Yeah.
+- [58:59.900] The Press: Was Governor Gavin Newsom
+- [59:02.200] trying to kill the auto industry then?
+- [59:04.430] The President: Oh, he was killing the auto engine.
+- [59:05.830] I don't think he knew it. He's a guy who --
+- [59:12.740] he's just got a faulty thought process.
+- [59:14.560] You look at that train, the train is the most,
+- [59:17.290] I've seen people, stupid people,
+- [59:19.600] with cost overruns for years I've watched,
+- [59:22.710] where something would cost twice as much or three times.
+- [59:25.760] But this thing is costing 20 times more.
+- [59:29.220] It's the most incredible disaster I've ever seen.
+- [59:33.360] That's one. The cars are just as bad.
+- [59:36.340] Everything's bad. And now you have this situation.
+- [59:39.490] So his own sheriff, who's a good man,
+- [59:41.020] by the way, said two days ago or three days ago
+- [59:43.830] that we could not have done this without the military.
+- [59:46.640] They were going to take over this whole --
+- [59:49.490] they couldn't have done it.
+- [59:50.890] Now, today, they got him to change his tune.
+- [59:52.860] He said, oh, I think we could have handled it.
+- [59:55.850] You know, so sad. He was so honest.
+- [59:58.460] I was using his quote all over the place,
+- [01:00:00.430] and they got them to change.
+- [01:00:02.000] But he knows Los Angeles would be,
+- [01:00:05.260] right now, burning to the ground,
+- [01:00:06.690] just like the houses burned to the grounds.
+- [01:00:09.510] It's so sad what's going on in Los Angeles. Think of it.
+- [01:00:13.220] They had a fire that should have never had
+- [01:00:14.720] because they should have listened to me in the water.
+- [01:00:17.370] Eventually, we broke in
+- [01:00:18.600] and we had the water come down from the Pacific Northwest.
+- [01:00:21.890] I could show you pictures now with the half pipes,
+- [01:00:24.480] the big half pipes coming all the way down California.
+- [01:00:27.990] Water, so much water. They don't have any droughts.
+- [01:00:31.280] They don't have any. They have so much.
+- [01:00:32.990] They sent it all out to the Pacific Ocean for 20 years.
+- [01:00:36.870] So ridiculous. And we got them to take it now.
+- [01:00:41.980] But what they do and what they're doing,
+- [01:00:44.700] this is a big problem.
+- [01:00:47.050] And what they really want to do is keep criminals,
+- [01:00:49.090] because they're trying to protect criminals.
+- [01:00:51.610] Sanctuary cities are a disaster in this country.
+- [01:00:55.220] And most of the voters don't want them.
+- [01:00:56.700] Politicians like them for whatever reason.
+- [01:00:58.720] But I think the politicians are wrong.
+- [01:01:00.780] That's why we won in such a convincing fashion.
+- [01:01:03.550] We won all seven swing states. We won by millions of votes.
+- [01:01:08.680] 2,750 districts as opposed to 505.
+- [01:01:14.680] That's why when you look at the map, it's almost all red.
+- [01:01:16.860] It's got two little blue stripes on each side of it.
+- [01:01:19.590] It's almost red.
+- [01:01:21.580] But now you have to -- I always got along with Gavin.
+- [01:01:25.370] I like Gavin. I've liked him always.
+- [01:01:27.830] He said I never called him.
+- [01:01:29.850] You know, they asked him a question on Fox, I guess.
+- [01:01:34.910] I never spoke to him. He doesn't remember the call.
+- [01:01:37.510] He doesn't' remember. I never spoken.
+- [01:01:39.070] And then I produced a phone call. I had it.
+- [01:01:41.840] It took me about two minutes. I said, well, here's the call,
+- [01:01:44.940] it lasted 16 minutes and four seconds.
+- [01:01:48.340] And it was at 1230 in the evening.
+- [01:01:51.260] I actually made a call, didn't pick up.
+- [01:01:52.880] I called him a second time and he picked up.
+- [01:01:55.260] And I told him, I said you have to get your ass in gear
+- [01:01:58.210] because you're going to have a problem there.
+- [01:01:59.850] And he would have.
+- [01:02:01.060] If we didn't bring the military in --
+- [01:02:03.470] He would have had -- you would have, right now, something.
+- [01:02:06.190] And I went through it because I follow the rules 100 percent.
+- [01:02:09.980] And I watched -- in Minnesota,
+- [01:02:12.010] we had the man who ran for Vice President of the United States.
+- [01:02:16.030] Fortunately, he was a disaster.
+- [01:02:18.750] But he wouldn't call in the National Guard.
+- [01:02:21.060] And I eventually called in the national guard.
+- [01:02:23.020] But it was seven -- seven days later,
+- [01:02:25.170] I said, I'll never do that again.
+- [01:02:26.550] I'm never going to -- if I see problems brewing,
+- [01:02:29.160] if they're not going to do the problem,
+- [01:02:30.520] I'm not going wait two weeks.
+- [01:02:32.880] Because that city, Minneapolis, burned down.
+- [01:02:36.120] If you remember the CNN anchor,
+- [01:02:38.630] he was standing there saying, yes, this is a peaceful rally.
+- [01:02:41.860] And behind him, the entire city was on fire.
+- [01:02:45.120] Looked like World War II. And I appreciate the question.
+- [01:02:53.630] Thank you.
+- [01:02:54.960] The Press: First the terrible, horrific plane crash in India
+- [01:03:00.480] (inaudible) Prime Minister Modi?
+- [01:03:06.410] The President: The plane crash was terrible.
+- [01:03:08.780] I've already told them anything we can do.
+- [01:03:11.130] It's a big country, a strong country.
+- [01:03:12.730] They'll handle it, I'm sure.
+- [01:03:13.950] But I let them know that anything we can do
+- [01:03:16.900] will be over there immediately.
+- [01:03:18.990] But it was a horrific crash. It looks like most are gone.
+- [01:03:22.520] They actually maybe have a couple survivors,
+- [01:03:24.520] which is just heard.
+- [01:03:26.620] But that was a horrible crash. Nobody knows.
+- [01:03:29.300] Nobody has any idea what it might be.
+- [01:03:31.870] I gave him a couple of pointers.
+- [01:03:34.100] I said, maybe you'll look at this or that.
+- [01:03:35.530] You know, we saw the plane.
+- [01:03:36.730] It looked like it was flying pretty well.
+- [01:03:39.410] It didn't look like there was an explosion.
+- [01:03:41.970] It just looked like the engines maybe lost power.
+- [01:03:44.430] But, boy, that is a terrible crash.
+- [01:03:46.190] It's one of the worst in aviation history.
+- [01:03:47.990] Yeah, second.
+- [01:03:50.180] The Press: How confident are you, sir,
+- [01:03:52.080] that conflict with Iran can be avoided?
+- [01:03:55.300] The President: Well, I'd love to avoid the conflict.
+- [01:03:58.560] Iran is going to have to negotiate a little bit tougher,
+- [01:04:01.760] meaning they're going to give us some things
+- [01:04:04.050] that they're not willing to give us right now.
+- [01:04:06.780] I'm the last person. I've kept this out of wars.
+- [01:04:09.720] We defeated ISIS completely, 100 percent.
+- [01:04:12.660] And I haven't had a -- it's peace through strength.
+- [01:04:15.410] I believe in peace through strength.
+- [01:04:16.830] We're the greatest military in the world.
+- [01:04:19.190] I rebuilt the military, as you remember.
+- [01:04:20.880] For four years, I rebuilt the military.
+- [01:04:23.470] And then we gave a chunk of it away,
+- [01:04:24.950] but it was still peanuts.
+- [01:04:26.240] It was a lot, but it was peanuts compared to what we rebuilt.
+- [01:04:29.080] Gave it to Afghanistan, one of the most embarrassing moments
+- [01:04:34.090] in the history of our country with the whole withdrawal,
+- [01:04:37.050] the way they withdrew, was very embarrassing.
+- [01:04:40.140] But we rebuilt the military.
+- [01:04:41.970] We have the greatest, strongest military.
+- [01:04:44.720] We defeated ISIS. We defeated ISIS.
+- [01:04:47.940] (applause)
+- [01:04:52.290] We defeated ISIS in four weeks. It was told to be five years.
+- [01:04:55.760] It was going to take five years,
+- [01:04:56.990] anywhere from four to five years.
+- [01:04:59.020] We did it in four week.
+- [01:05:00.540] With, by the way, headed by the general,
+- [01:05:02.050] who is now the Joint Chiefs of Staff.
+- [01:05:04.060] That's why he's there.
+- [01:05:05.410] He said it would take four weeks,
+- [01:05:08.380] and he did it four weeks
+- [01:05:09.700] He did it actually a little bit faster.
+- [01:05:11.880] So we have a great country,
+- [01:05:14.410] and we're going to keep it that way.
+- [01:05:15.890] And when it comes to Los Angeles or other cities,
+- [01:05:19.230] if we see other cities are gearing up.
+- [01:05:21.800] And these people are agitators. They're paid.
+- [01:05:24.490] They're professionals. They're insurrectionists.
+- [01:05:27.950] They're troublemakers. They're all of those things.
+- [01:05:30.140] But I believe they're paid,
+- [01:05:33.280] and we're going to find out through Pam Bondi
+- [01:05:35.700] and her great staff, her great people,
+- [01:05:38.390] just as who they are. And Mike, I think you're doing
+- [01:05:41.250] some investigations on that in Congress.
+- [01:05:43.320] But we're going to find out who they are,
+- [01:05:45.800] because they're really --
+- [01:05:48.230] I think what they're doing is unbelievably illegal.
+- [01:05:50.850] Just one thing, so they took the bricks away from people.
+- [01:05:53.930] They're walking in with satchels of bricks.
+- [01:05:56.090] Now, why do you have bricks?
+- [01:05:57.560] You have bricks because you throw bricks.
+- [01:05:59.130] They're very potent. If they hit you, they kill you.
+- [01:06:02.750] And they took them away. The military took them way.
+- [01:06:04.880] They saw them. What the hell is this?
+- [01:06:06.380] The guy could hardly carry them. He had many bricks.
+- [01:06:08.160] He was a strong guy. I couldn't carry him.
+- [01:06:11.460] And they saw that, and they took him away.
+- [01:06:13.260] Then they found others with bricks.
+- [01:06:16.240] They're ingenious.
+- [01:06:17.610] They also brought hammers along, very heavy hammers.
+- [01:06:21.330] And I saw them pounding the curb and pounding the sidewalk.
+- [01:06:26.350] And it was like a military operation.
+- [01:06:28.280] This guy's pounding strong, boom, big shots.
+- [01:06:33.140] And it's breaking up granite, the granite curbs.
+- [01:06:36.370] And the granites was breaking up and the concrete was breaking.
+- [01:06:39.050] And there was lines of people standing there and handing them.
+- [01:06:43.200] And then he stopped handing them,
+- [01:06:44.410] they just went down and picked him up.
+- [01:06:46.260] It was so professional.
+- [01:06:47.960] I said, that's a professional organization.
+- [01:06:49.610] They said, this is not like people at random.
+- [01:06:52.860] This guy's breaking up because they couldn't use the bricks.
+- [01:06:55.870] So, who would think of this even?
+- [01:06:58.180] Did a lot of damage. A lot of curbs are broken.
+- [01:07:00.200] A lot sidewalks broken. But I never saw that before.
+- [01:07:02.600] That's one I haven't seen. I thought I saw it all.
+- [01:07:05.030] And they have it on tape.
+- [01:07:07.090] And with that, people get killed.
+- [01:07:08.890] You know, they go to the bridges and they drop.
+- [01:07:11.100] The concrete off the top of the bridge with a car
+- [01:07:13.040] coming along at 70 miles an hour,
+- [01:07:15.040] and the person dies. We had a lot of car problems.
+- [01:07:18.370] You saw that. They were all over the road.
+- [01:07:19.940] They were littered all over road where the cars got stopped
+- [01:07:22.270] by concrete going through the front windshield.
+- [01:07:25.100] These are bad people.
+- [01:07:27.180] If we didn't go, Los Angeles right now would be on fire.
+- [01:07:31.950] It would be a disaster. And we stopped it.
+- [01:07:36.250] And last night was very good. Nobody showed up.
+- [01:07:39.240] You know why they didn't show up?
+- [01:07:40.720] Because we were there if it was just the police.
+- [01:07:43.690] Because the police are great. I know those police.
+- [01:07:45.920] They're great, but they're told not to do anything.
+- [01:07:48.470] They're not allowed to act. Thank you.
+- [01:07:59.770] Well, I don't want to say eminent,
+- [01:08:00.990] but it looks like it's something that could very well happen.
+- [01:08:05.100] Look, it's very simple, not complicated.
+- [01:08:08.380] Iran cannot have a nuclear weapon.
+- [01:08:10.410] Other than that, I want them to be successful.
+- [01:08:12.590] I want to be tremendous.
+- [01:08:13.800] We'll help them be successful, we'll trade with them,
+- [01:08:16.060] we'll do whatever is necessary.
+- [01:08:18.220] You know, I stopped a war between India and Pakistan.
+- [01:08:23.980] And I stopped it with trade. Nobody --
+- [01:08:25.530] I don't think I've ever seen a story written about it,
+- [01:08:27.520] but it was pretty cool. They were getting ready.
+- [01:08:29.560] Pakistan was now -- it was their turn to hit,
+- [01:08:31.660] and eventually they're going to go nuclear.
+- [01:08:34.320] And I stop it. I called each --
+- [01:08:35.770] I respect each leader greatly, I know them --
+- [01:08:39.250] and I spoke to them, and I talked about trade.
+- [01:08:42.670] I said, but you're not trading with us
+- [01:08:44.050] if you're going go to war.
+- [01:08:45.280] If you're going to start throwing nuclear weapons around.
+- [01:08:48.280] And I said it to both of them, and they were both --
+- [01:08:51.060] unbelievable, actually.
+- [01:08:52.350] They understood it exactly. They stopped.
+- [01:08:54.890] I stopped that war with phone calls and trade.
+- [01:08:59.040] And India is here right now negotiating a trade deal,
+- [01:09:01.660] and Pakistan is coming, I think, next week.
+- [01:09:04.410] And I'm very proud of that. Nobody died.
+- [01:09:07.750] Nobody -- the nuclear weapons, they each have very severe,
+- [01:09:12.710] very substantial numbers of nuclear weapons.
+- [01:09:15.710] And I think we should get some credit for that.
+- [01:09:17.690] You know, the whole Republican Party should,
+- [01:09:19.540] because that's their mindset. Yes, ma'am.
+- [01:09:34.180] Look, I've always been in favor of students
+- [01:09:36.530] coming in from other countries. That includes China.
+- [01:09:39.940] And we have 500,000 Chinese students coming in.
+- [01:09:44.060] I've always been favor of it.
+- [01:09:46.440] Does it mean you -- that you have to watch people?
+- [01:09:50.850] Yeah, you have watch students, but you have other people also.
+- [01:09:54.450] I've also been strongly in favor.
+- [01:09:56.170] I think it's a great thing. It's also --
+- [01:09:58.310] It's good for our schools, it's good for,
+- [01:10:00.050] I think it's for our country.
+- [01:10:01.320] I'm also in favor of having them stay.
+- [01:10:03.520] I've been in favor of letting them stay,
+- [01:10:06.220] if you get educated for four years,
+- [01:10:08.040] you're willing to get educated for four year,
+- [01:10:10.360] I like people being able to stay.
+- [01:10:12.850] You know, they have some great students,
+- [01:10:14.710] you have some, yeah, that's, these are
+- [01:10:16.930] Republicans clapping, you know,
+- [01:10:18.730] because a lot of Republicans don't like that idea.
+- [01:10:20.760] I happen to like it, I'm a real Republican,
+- [01:10:22.980] believe it or not, but I like the idea.
+- [01:10:25.610] They go four years.
+- [01:10:27.320] To me, that's almost like, you know, getting your --
+- [01:10:30.830] just buying your way in, in a very legitimate way.
+- [01:10:34.200] And you know you have stories
+- [01:10:35.950] where Apple wants to hire somebody
+- [01:10:38.460] and they can't hire because he can't stay.
+- [01:10:40.380] He went to a great school. He finished first in his class.
+- [01:10:43.560] They made him a big offer and everything is done.
+- [01:10:46.030] But he has no idea
+- [01:10:47.250] whether or not he's going to be able to stay.
+- [01:10:49.550] And I'm all for making sure that people like
+- [01:10:51.790] that can go to work for all of our great companies.
+- [01:10:55.130] And you know what they do? They go back to their country.
+- [01:10:57.810] And there are stories that are all over the place.
+- [01:11:00.050] They go back to their company, and they start a company
+- [01:11:02.170] just like they were going to start here.
+- [01:11:03.640] They end up starting it in China or India or someplace else.
+- [01:11:07.010] And now they're among the richest people in the world.
+- [01:11:09.760] They've got thousands and thousands of employees
+- [01:11:12.240] that make it great. This is happening all the time
+- [01:11:15.540] because they're not allowed to stay.
+- [01:11:16.920] And I think we'll probably end up doing something about that.
+- [01:11:20.630] Right? Yeah, go ahead. Go ahead.
+- [01:11:27.380] You in the blue, please. Light blue.
+- [01:11:29.890] The Press: Thank you, Mr. President.
+- [01:11:32.060] How (inaudible)
+- [01:11:34.500] Ukraine and Russia, we see a very bad escalation.
+- [01:11:37.600] Are you (inaudible)?
+- [01:11:39.790] The President: I'm very close to the situation.
+- [01:11:41.790] I'm disappointed in Russia,
+- [01:11:44.400] but I'm disappointed in Ukraine also,
+- [01:11:46.860] because I think deals could have been made.
+- [01:11:49.640] And, you know, we're losing 5, 6,000 people a week,
+- [01:11:53.630] soldiers mostly, but also people living in towns
+- [01:11:56.400] because they're getting hit by missiles again.
+- [01:11:58.480] How would you like to live in a building
+- [01:12:00.090] and you think a missile has a good chance
+- [01:12:01.630] of hitting your building during the evening?
+- [01:12:03.340] It's horrible. Must be horrible to live like that.
+- [01:12:07.160] But I mean, we'll get it,
+- [01:12:09.650] but I'm disappointed that it's not done.
+- [01:12:15.020] We did great with India and Pakistan.
+- [01:12:17.500] We did very good with Israel.
+- [01:12:19.590] I thought, look, October 7th was a disaster.
+- [01:12:22.530] People forget, you know? They like to forget.
+- [01:12:25.490] It was a horrible thing. But, you, know,
+- [01:12:27.130] none of these things would have happened if I were President.
+- [01:12:30.310] If I were president, none of it would have happened.
+- [01:12:32.220] You wouldn't have the Israel problem,
+- [01:12:34.330] Iran was broke, they had no money,
+- [01:12:35.940] we had big sanctions on them,
+- [01:12:37.410] Biden immediately let them get rich,
+- [01:12:39.250] 300 billion dollars they have right now.
+- [01:12:41.970] But they had money for Hamas or Hezbollah,
+- [01:12:44.440] they had not money for anything, it was perfect.
+- [01:12:47.620] We wouldn't have had inflation that was caused by oil,
+- [01:12:50.120] Chris, the oil price went through the roof,
+- [01:12:52.750] it was also caused by their spending,
+- [01:12:54.200] but it was caused more by oil than anything else,
+- [01:12:56.140] the oil went so high, got close to $100 a barrel.
+- [01:13:00.490] And that cost, and that also kept the war going with Putin
+- [01:13:03.590] because at $100 a barrel,
+- [01:13:06.380] that was a big money-making experience,
+- [01:13:09.740] but now it's down to where it's not so good for them anymore.
+- [01:13:14.160] No, it's very important to get that solved.
+- [01:13:15.770] That's a bloodbath.
+- [01:13:16.970] That's terrible bloodbaths that's going on.
+- [01:13:19.130] Yeah, please, go ahead.
+- [01:13:20.590] The Press: (inaudible)
+- [01:13:24.830] India and Pakistan for stopping the war.
+- [01:13:27.940] India thinks that they cannot talk to Pakistan
+- [01:13:30.220] unless Pakistan takes actions against --
+- [01:13:32.630] The President: We're going to get those two
+- [01:13:33.940] getting together, you know?
+- [01:13:35.610] I told them, I told India and Pakistan,
+- [01:13:38.920] they've had a long time rivalry over Kashmir.
+- [01:13:42.970] And I said, I can solve anything.
+- [01:13:46.910] I'll be your arbitrator.
+- [01:13:48.200] I will be your arbitrator. I can solve anything.
+- [01:13:51.780] And I started the first question,
+- [01:13:53.100] how long has it been going on?
+- [01:13:55.170] They said, 2,000 years. I said, oh, that's a problem.
+- [01:14:01.070] When I heard 2,000 years, I said,
+- [01:14:06.570] maybe I'll have John Hess solve that problem.
+- [01:14:12.880] Peter?
+- [01:14:14.190] The Press: Thank you, President Trump.
+- [01:14:16.690] First on immigration. What made you change your mind
+- [01:14:20.580] about targeting in California farmers
+- [01:14:25.190] and people in the hotel and leisure industry?
+- [01:14:27.560] The President: Well, we're not targeting.
+- [01:14:28.860] In fact, if you look today,
+- [01:14:30.530] I put out a statement today about farmers.
+- [01:14:33.100] Our farmers are being hurt badly by,
+- [01:14:35.680] you know, they have very good workers.
+- [01:14:37.120] They've worked for them for 20 years.
+- [01:14:39.440] They're not citizens,
+- [01:14:40.670] but they've turned out to be, you know great.
+- [01:14:42.550] And we're going to have to do something about that.
+- [01:14:44.900] We can't take farmers and take all their people
+- [01:14:48.090] and send them back because they don't have maybe
+- [01:14:50.790] what they're supposed to have, maybe not.
+- [01:14:53.190] And you know what's going to happen and what is happening?
+- [01:14:55.370] They get rid of some of the people
+- [01:14:56.860] because, you know, you go into a farm,
+- [01:14:58.700] and you look, and people don't --
+- [01:15:00.480] they've been there for 20, 25 years,
+- [01:15:02.340] and they've worked great,
+- [01:15:03.610] and the owner of the farm loves them and everything else,
+- [01:15:06.210] and then you're supposed to throw them out.
+- [01:15:08.080] And you know what happens?
+- [01:15:09.370] They end up hiring the people, the criminals that have come in,
+- [01:15:11.860] the murderers from prisons and everything.
+- [01:15:14.220] So we're going to have an order on that pretty soon, I think.
+- [01:15:17.860] We can't do that to our farmers. And leisure, too. Hotels.
+- [01:15:21.930] We're going have to use a lot of common sense on that.
+- [01:15:25.150] The Press: And my other question
+- [01:15:26.640] (inaudible)
+- [01:15:31.660] on Iran Are you trying to talk Netanyahu out of doing that
+- [01:15:36.540] or are you still against Iran having a nuclear weapon
+- [01:15:40.610] that you're okay (inaudible)?
+- [01:15:44.930] The President: Yeah, it's a very fair question.
+- [01:15:46.130] Look, I want to have an agreement with Iran.
+- [01:15:49.180] We're fairly close to an agreement.
+- [01:15:51.020] We are fairly close, to a pretty good agreement.
+- [01:15:54.350] It's got to be better than pretty good, though,
+- [01:15:56.140] but it's got to be -- I'd much prefer an agreement,
+- [01:15:59.450] as long as I think there is an agreement
+- [01:16:01.310] I don't want them going in, because I think I would blow it.
+- [01:16:04.470] Might help it, actually, but it also could blow it,
+- [01:16:08.100] but we've had very good discussions with Iran,
+- [01:16:11.170] whether or not we get there,
+- [01:16:12.490] I can't tell you, but it'll happen soon.
+- [01:16:15.560] I say this, Peter, very strongly.
+- [01:16:17.330] They can't have -- whether it's going in or not going in,
+- [01:16:19.860] they can't a nuclear weapon.
+- [01:16:22.960] I'd prefer the more friendly path.
+- [01:16:25.210] The Press: And can you tell us what the Israelis told you
+- [01:16:28.960] (inaudible)
+- [01:16:31.560] service men and women who are stationed in the Middle East?
+- [01:16:33.460] The President: They didn't tell me anything,
+- [01:16:34.710] but I said, look, there's a chance of massive conflict.
+- [01:16:37.380] We have a lot of American people in this area.
+- [01:16:40.180] And I said we got to tell them to get out
+- [01:16:42.720] because something could happen soon.
+- [01:16:45.490] And I don't want to be the one that didn't give any warning
+- [01:16:47.830] and missiles are flying into their buildings.
+- [01:16:51.470] It's possible. So I had to do it.
+- [01:16:55.590] You know, I had the choice. Do I do it or not?
+- [01:16:57.710] Doing it has its downside, but it also has its upside,
+- [01:17:00.460] like you're going to save a lot of lives if it should happen.
+- [01:17:03.610] Hopefully, that doesn't happen.
+- [01:17:13.670] The Press: For Americans that are coming to Washington
+- [01:17:15.640] on Saturday for the military parade --
+- [01:17:17.200] The President: Going to be a great day.
+- [01:17:18.490] The Press: What would you like folks
+- [01:17:19.860] to take away from that day?
+- [01:17:21.690] What would your hope that they would remember and also --
+- [01:17:24.360] The President: How great our country is,
+- [01:17:26.530] first off, and how strong our military is.
+- [01:17:29.100] We have the strongest military in the world.
+- [01:17:31.500] You know, it's very interesting.
+- [01:17:32.900] Three weeks ago, it was the end of world anniversary --
+- [01:17:37.530] end of World War II, and I called France,
+- [01:17:40.700] and Macron is a good man. I said, what are you doing?
+- [01:17:45.300] He goes, we're celebrating World War II, our victory.
+- [01:17:48.800] I said your victory. Your victory.
+- [01:17:51.230] Tell me about that. And then I called somebody else,
+- [01:17:54.400] and I happened to speak to President Putin at the time.
+- [01:17:56.840] Now, in all fairness to him, he lost 51 million people,
+- [01:18:00.440] and he did fight.
+- [01:18:01.940] Russia fought. Sort of interesting, isn't it?
+- [01:18:03.900] He fought with us in World War II,
+- [01:18:05.460] and everybody hates him.
+- [01:18:07.500] And Germany and Japan, they're fine.
+- [01:18:09.230] You know, someday somebody will explain that.
+- [01:18:11.880] But I like Germany and Japanese, too.
+- [01:18:14.330] But Putin is a little confused by that, you know?
+- [01:18:16.970] He said, we lost 51 billion people,
+- [01:18:18.870] and we were your ally.
+- [01:18:21.110] And now everybody hates Russia, and they love Germany and Japan.
+- [01:18:25.030] I said, let's explain that sometime, okay?
+- [01:18:27.730] But it's a strange world.
+- [01:18:30.850] But I will say this, look, I want them to go away
+- [01:18:33.880] saying how great our country is and how great our military is.
+- [01:18:37.920] And I was making all these calls for some reason.
+- [01:18:40.090] I spoke to like four different places.
+- [01:18:41.940] Sir, are you celebrating?
+- [01:18:43.690] And I said we won World War II and World War I, right?
+- [01:18:48.460] We won them and yet,
+- [01:18:49.670] we're the only country that doesn't celebrate.
+- [01:18:51.470] Everybody's celebrating, except us.
+- [01:18:54.010] And I said, we should celebrate, too.
+- [01:18:59.200] The Press: There are several No Kings protests
+- [01:19:01.630] planned across the country on Saturday as well.
+- [01:19:03.430] What are your thoughts on those?
+- [01:19:04.770] The President: What do they called? No King?
+- [01:19:05.980] The Press: No Kings
+- [01:19:07.190] The President: I don't feel like a king.
+- [01:19:08.410] I have to go through hell to get stuff approved.
+- [01:19:10.930] A king would say I'm not going to get this.
+- [01:19:13.270] A king would have never had the California mandate
+- [01:19:16.090] to even be talking to him.
+- [01:19:17.620] He wouldn't have to call up Mike Johnson and Thune
+- [01:19:20.180] and say, fellas, you got to pull this off
+- [01:19:22.130] and after years we get it done.
+- [01:19:24.260] No, no, we're not a king, we are not a king at all.
+- [01:19:26.720] Thank you very much. Go ahead. Yeah, go ahead.
+- [01:19:32.260] The Press: Mr. President, sir, you made a lengthy posting today
+- [01:19:35.510] on Truth Social about Senator Rand Paul.
+- [01:19:37.160] Do you expect to see him at the picnic tonight, sir?
+- [01:19:38.800] The President: I do.
+- [01:19:40.030] I look forward to seeing him actually.
+- [01:19:41.600] I like him. He's the hardest vote
+- [01:19:43.060] in the history of the U.S. Senate to get.
+- [01:19:47.740] Probably won't get him.
+- [01:19:49.890] But he's a very tough vote. I mean, he's very tough vote.
+- [01:19:52.450] He has always been a friend of mine.
+- [01:19:53.690] You know, I endorsed him and got him elected.
+- [01:19:55.610] I got him elected twice.
+- [01:19:57.630] But I don't think he understands how great this bill is.
+- [01:20:04.000] This is a great bill. No tax on tips. No tax.
+- [01:20:07.500] On, you know, the Social Security payments.
+- [01:20:09.760] It's unbelievable what happens. No tax on overtime.
+- [01:20:13.160] You work overtime. No more tax. It's so -- those are big,
+- [01:20:16.980] but they're minor compared to the big things.
+- [01:20:19.820] Taxes reduced. And let's look at the other side.
+- [01:20:23.290] If it's not -- if it doesn't get approved,
+- [01:20:25.540] a 68 percent tax increase. Sixty-eight percent,
+- [01:20:29.380] including the fact that the Trump tax cuts kick in.
+- [01:20:33.130] But it's a 68 percent tax increase,
+- [01:20:35.470] and many other bad things.
+- [01:20:37.030] I don't even want to -- some of them are so bad,
+- [01:20:38.520] I don't -- don't want to talk about them.
+- [01:20:41.290] I think it's one of the greatest bills
+- [01:20:42.890] we'll ever pass in this country,
+- [01:20:44.380] and I think that Leader Thune and this gentleman right here,
+- [01:20:51.830] what he's gone through on this with --
+- [01:20:53.570] you know, we started off with a majority of one.
+- [01:20:55.480] Now I guess we have seven, so it's like easier.
+- [01:20:59.150] But it really is sort of three.
+- [01:21:00.870] It's seven, but it really equates to three, right?
+- [01:21:04.040] And we have great support.
+- [01:21:05.480] I mean, I can't tell you, I cannot guarantee,
+- [01:21:08.630] but when you have a majority of essentially three,
+- [01:21:11.810] where you can't lose anything more than three votes,
+- [01:21:15.780] and you get it passed, it's pretty amazing.
+- [01:21:17.910] And I think it's going to haunt the Democrats
+- [01:21:20.210] because most of the bill is common sense.
+- [01:21:24.080] It's tax cuts. It's border wall funding.
+- [01:21:28.060] It's military funding properly spent.
+- [01:21:31.230] It's all things that are like common sense.
+- [01:21:33.900] They're all good. There's nothing tricky about it.
+- [01:21:36.270] It's basic stuff.
+- [01:21:38.380] And we don't intend on getting one -- think of it.
+- [01:21:41.080] Not one Democrat vote in the House.
+- [01:21:43.590] Mike, not one. Maybe somebody will come along.
+- [01:21:47.610] I don't know how they can run for office.
+- [01:21:50.000] So many different things.
+- [01:21:51.330] We're going to -- very important.
+- [01:21:53.330] Medicare and Medicaid are going to be strengthened, not hurt.
+- [01:21:58.290] You know, they're using fake narrative.
+- [01:22:00.000] Oh, we're going to --
+- [01:22:01.270] no, they're going to be strengthened.
+- [01:22:02.710] We're going strengthen them. They're going to destroy them.
+- [01:22:04.780] Because under their policies, Medicare and Medicaid go away.
+- [01:22:08.710] Social Security under them is going to be devastated.
+- [01:22:11.460] With us, it's going to kept but much stronger than before.
+- [01:22:15.410] And very interestingly, I saw this and I proved it
+- [01:22:20.040] because for four years I never hurt Medicare, Medicaid,
+- [01:22:23.240] or Social Security. I've already been there.
+- [01:22:26.230] But they're going to destroy Medicare, Medicaid,
+- [01:22:29.580] and Social Security.
+- [01:22:30.790] They're going to wipe them out, in my opinion,
+- [01:22:32.350] because their policies are so bad,
+- [01:22:34.440] the country will have no money to pay for them.
+- [01:22:36.820] We're going to make them stronger than ever before.
+- [01:22:39.010] Thank you very much, everybody.
+- [01:22:42.010] (applause)

@@ -1,0 +1,824 @@
+<!-- source: https://www.youtube.com/watch?v=Zo23Q9JGTcQ -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: Zo23Q9JGTcQ -->
+<!-- date_published: 2025-02-13T15:52:41+00:00 -->
+<!-- date_accessed: 2026-06-02T01:29:55.334531+00:00 -->
+
+# Transcript: President Trump Participates in Swearing In Ceremony for the Director of National Intelligence
+
+- [00:00.170] The President: Thank you very much.
+- [00:01.440] And today, we are delighted to swear in our next director
+- [00:05.770] of National Intelligence, Tulsi Gabbard.
+- [00:09.720] Most of you know Tulsi. She's a fantastic woman.
+- [00:13.430] Tulsi, I want to just congratulate you,
+- [00:16.030] your husband, Abraham, your sister,
+- [00:18.760] and all of your friends. A lot of friends here.
+- [00:21.270] You have a lot of friends, I noticed that.
+- [00:22.730] Ms. Gabbard: I'm grateful.
+- [00:23.940] The President: They were all fighting for you.
+- [00:25.450] It worked out very well.
+- [00:26.680] Tulsi Gabbard's an American of extraordinary courage
+- [00:30.610] and exceptional patriotism.
+- [00:33.000] She's devoted her entire life to public service.
+- [00:35.730] And I've watched her for years
+- [00:38.030] on different shows and everything.
+- [00:39.450] I said, she's a woman of great common sense,
+- [00:42.380] and we like the common sense.
+- [00:45.270] It's a word that's being used a lot.
+- [00:46.730] I think we started it in terms of politics,
+- [00:49.170] but it's a word that's used a lot.
+- [00:50.680] It's usually pretty effective, too.
+- [00:52.060] And you really are.
+- [00:53.280] I've watched you even on Larry King.
+- [00:56.860] You're very young.
+- [00:58.070] I don't know how you were on Larry King.
+- [00:59.520] But you're very young. But you were.
+- [01:03.070] And you always had the situation covered properly.
+- [01:07.300] At 21 years old, Tulsi became the youngest woman
+- [01:09.810] ever elected to the Hawaii State Legislature.
+- [01:13.360] And after 9/11, she joined the Hawaii Army National Guard
+- [01:17.570] and deployed abroad three times
+- [01:20.260] and highly respected by everybody.
+- [01:21.990] So many people writing in letters
+- [01:24.080] saying she was so exceptional, even then.
+- [01:27.400] She continues to serve as a lieutenant colonel
+- [01:29.870] in the US Army Reserve. And Tulsi also served four terms
+- [01:33.340] in the United States House of Representatives,
+- [01:35.550] where she was a member of the House Armed Services Committee.
+- [01:39.100] She is a former vice chair of the National Democratic Party.
+- [01:42.880] Can you believe that?
+- [01:45.230] And here she is. That's very nice.
+- [01:47.240] We have a few of them, but she was never a Democrat.
+- [01:51.470] At heart, she was a Republican. I watched her.
+- [01:55.940] And was a 2020 Democrat candidate
+- [01:58.180] for President of the United States.
+- [02:01.080] It's not easy. It's not so easy. People think it's easy.
+- [02:05.360] It's not easy. Throughout her service,
+- [02:07.520] Tulsi has always distinguished herself
+- [02:09.690] as a leader of the highest caliber.
+- [02:12.110] She's earned the respect and admiration,
+- [02:14.560] the love of Americans on both sides of the aisle.
+- [02:17.090] It's her profound commitment to the values that keep us free.
+- [02:21.380] And she really does have those values as much as anybody.
+- [02:25.710] In recent years, Tulsi has been a courageous
+- [02:28.010] and often lonely voice speaking out against radical
+- [02:30.700] left's attacks on free speech
+- [02:32.880] and the dangers of an unelected deep state.
+- [02:36.490] And I have to say she was very, very strong for me
+- [02:38.870] when I was going through all of the fake news
+- [02:42.130] and all of the problems that we had with some very sick people.
+- [02:45.650] She was always out there.
+- [02:46.910] Before I really knew her as well,
+- [02:48.400] she was out there defending me. So, I appreciated that, Tulsi.
+- [02:52.970] But the threat of a warmongering military industrial complex,
+- [02:56.610] and the weaponization of government,
+- [02:58.780] and governmental people that go out and persecute,
+- [03:02.050] they like to persecute people that are innocent.
+- [03:04.730] Tulsi herself became a target of that weaponization
+- [03:07.680] when she was outrageously placed
+- [03:09.530] on a suspected terrorist watch list
+- [03:12.090] by the Biden regime, it was a very evil regime,
+- [03:15.870] after criticizing their appalling abuses of power.
+- [03:20.010] And I'm confident that as director
+- [03:21.600] of the National Intelligence,
+- [03:22.940] Tulsi will work tirelessly to keep America safe.
+- [03:26.570] And she's been doing that her entire career.
+- [03:29.520] I think it's going to be a very natural day for you
+- [03:31.270] when you walk in.
+- [03:32.540] It's just, have to keep the way you are.
+- [03:34.260] Just stay the way you are.
+- [03:36.120] She'll be clear-eyed and she'll be focused
+- [03:38.280] on the threat of radical Islamic terrorism
+- [03:41.470] and lots of other threats, too, threats from within
+- [03:45.320] and give no quarter to America's foreign enemies.
+- [03:47.870] At the same time, I'm entrusting Tulsi with the responsibility
+- [03:51.750] of overseeing urgently needed reforms
+- [03:54.080] to the US Intelligence Community to protect the rights
+- [03:58.460] and the civil liberties of all Americans.
+- [04:00.490] She'll provide the American people with transparency,
+- [04:04.060] eliminate corruption, shrink the bloated bureaucracy,
+- [04:07.550] and restore honesty, integrity,
+- [04:09.690] and trust to the National Security state.
+- [04:13.500] There's only one thing I can say
+- [04:15.840] that there's nobody like her for this job.
+- [04:18.630] This was a very easy one for me.
+- [04:20.440] She was recommended by some of the top people in that world.
+- [04:25.020] It's a little world. It's a little smart world.
+- [04:29.270] It sometimes can be an evil world
+- [04:30.960] when the wrong people are there, but we have the right one.
+- [04:34.250] She's set so many great recommendations.
+- [04:36.650] I would say Pam was right up there with her, Pam Bondi.
+- [04:42.220] I know her a little bit better.
+- [04:43.980] And you're doing a fantastic job after about three or four days.
+- [04:49.090] You've had a lot of experience,
+- [04:50.470] but you've never seen anything like this, Pam.
+- [04:52.400] But you're going to do fantastic as the attorney general.
+- [04:55.100] Fantastic.
+- [04:56.460] So, thank you and congratulations.
+- [04:58.440] We did this with Pam a few days ago,
+- [05:00.360] and this is again my honor. So, congratulations to Tulsi.
+- [05:04.790] And I think Pam is going to administer the oath.
+- [05:08.990] And when she does that, I'll sign your new certificate.
+- [05:13.240] Good, thank you. Thank you very much, everybody.
+- [05:25.890] Ms. Bondi: Please place your left hand on the Constitution,
+- [05:28.350] and raise your right hand, and repeat after me.
+- [05:31.060] I do solemnly swear.
+- [05:33.600] Ms. Gabbard: I Tulsi Gabbard do solemnly swear.
+- [05:36.410] Ms. Bondi: That I will support and defend
+- [05:38.260] the Constitution of the United States.
+- [05:40.750] Ms. Gabbard: That I will support and defend
+- [05:42.020] the Constitution of the United States.
+- [05:44.470] Ms. Bondi: Against all enemies, foreign and domestic.
+- [05:47.230] Ms. Gabbard: Against all enemies, foreign and domestic.
+- [05:50.260] Ms. Bondi: And that I will bear true faith and allegiance
+- [05:52.950] to the same.
+- [05:54.240] Ms. Gabbard: And that I will bear true faith and allegiance
+- [05:56.230] to the same.
+- [05:57.470] Ms. Bondi: That I take this obligation freely.
+- [05:59.860] Ms. Gabbard: I take this obligation freely.
+- [06:01.970] Ms. Bondi: Without any mental reservation.
+- [06:03.950] Ms. Gabbard: Without any mental reservation.
+- [06:06.050] Ms. Bondi: Or purpose of evasion.
+- [06:07.490] Ms. Gabbard: Or purpose of evasion,
+- [06:08.980] Ms. Bondi: And that I will well and faithfully.
+- [06:11.690] Ms. Gabbard: That I will well and faithfully
+- [06:13.720] Ms. Bondi: Discharge the duties of the office
+- [06:15.770] on which I am about to enter.
+- [06:18.260] Ms. Gabbard: Discharge the duties
+- [06:19.580] of the office on which I'm about to enter.
+- [06:21.740] Ms. Bondi: So help me God.
+- [06:23.010] Ms. Gabbard: So help me God.
+- [06:24.280] Ms. Bondi: Congratulations.
+- [06:33.180] The President: It's a big deal. Thank you.
+- [06:44.270] How is the Oval Office looking? A little different look, right?
+- [06:48.800] It's the Oval Office. We've got a good one here.
+- [07:07.650] Okay, not bad. Ready? I'll stand there.
+- [07:11.140] I think we'll do it right here. Come on over here, everyone.
+- [07:23.760] I'm sure there are no questions.
+- [07:31.250] You know what, I'd like to let Tulsi say a few words first,
+- [07:33.930] then we could answer a couple of questions, okay?
+- [07:43.250] Good.
+- [07:47.920] Ms. Gabbard: Mr. President, first and foremost,
+- [07:50.230] I just want to say thank you from the bottom of my heart
+- [07:52.970] for the trust that you have placed in me
+- [07:55.880] to fulfill this critical position
+- [07:57.940] as Director of National Intelligence at any time.
+- [08:01.140] But specifically, during this time.
+- [08:03.680] Unfortunately, the American people have very little trust
+- [08:08.990] in the Intelligence Community,
+- [08:10.210] largely because they've seen the weaponization
+- [08:12.630] and politicization of an entity
+- [08:15.750] that is supposed to be purely focused
+- [08:19.680] on ensuring our national security.
+- [08:22.140] So, I look forward to being able to help fulfill
+- [08:24.970] that mandate that the American people delivered to you
+- [08:28.270] very clearly in this election.
+- [08:30.910] To refocus our Intelligence Community
+- [08:33.140] by empowering the great patriots
+- [08:35.170] who have chosen to our country in this way
+- [08:37.840] and focus on ensuring the safety, security,
+- [08:40.080] and freedom of the American people.
+- [08:42.830] As you've said, Mr. president,
+- [08:44.200] this is what I've dedicated my life to.
+- [08:46.360] And it is truly humbling to be in this position
+- [08:50.510] to serve in your administration, help to rebuild that trust,
+- [08:54.730] and ultimately to keep the American people safe.
+- [08:58.080] Last thing I'll mention
+- [08:59.330] that in your national prayer breakfast speech,
+- [09:02.790] you made a statement about your legacy
+- [09:04.410] of wanting to be remembered as a peacemaker.
+- [09:06.990] I know that I can speak for many of my fellow service members
+- [09:11.000] who are here today, veterans, Medal of Honor recipients,
+- [09:14.880] how deeply that resonates with us for those who volunteer
+- [09:18.540] to put their lives on the line when duty calls.
+- [09:21.820] But to have a president and commander in chief
+- [09:23.670] who recognizes the cost of that sacrifice
+- [09:28.190] and ensuring that war is the last resort, not the first.
+- [09:32.200] So, thank you for your leadership.
+- [09:34.100] On behalf of my friends here
+- [09:35.890] and all who wear the uniform, we're grateful.
+- [09:38.810] The President: Thank you very -- Congratulations.
+- [09:46.710] The Press: Mr. President. Thank you.
+- [09:47.940] When and where do you plan on meeting with Vladimir Putin?
+- [09:50.730] And were there any preconditions set to agree to this meeting?
+- [09:54.680] The President: No. We had a great call
+- [09:57.460] and it lasted for a long time, over an hour, this morning.
+- [10:03.030] I also had with President Zelenskyy,
+- [10:05.520] a very good call after that.
+- [10:08.050] I think we're on the way to getting peace.
+- [10:10.450] I think President Putin wants peace and President Zelenskyy
+- [10:15.260] wants peace, and I want peace.
+- [10:17.020] I just want to see people stop getting killed.
+- [10:19.500] We're very far away from that particular war,
+- [10:22.450] but that's a vicious war.
+- [10:24.200] Probably a million and a half soldiers
+- [10:26.020] killed in a short period of time.
+- [10:27.510] I've never seen anything.
+- [10:28.740] I have pictures that are … You wouldn't believe it.
+- [10:31.660] You wouldn't believe what you have to look at.
+- [10:33.690] Young, beautiful soldiers that are just being decimated.
+- [10:38.120] And it would be nice to end it immediately.
+- [10:41.510] But we had a very good talk with …
+- [10:44.280] People didn't really know what President Putin's thoughts were,
+- [10:48.990] but I think I can say with great confidence,
+- [10:51.450] he wants to see it ended also. That's good.
+- [10:55.230] We're going to work toward getting it ended
+- [10:57.460] and as fast as possible.
+- [10:59.090] It's a horrible situation going over.
+- [11:02.880] It's flat land and the bullet goes off
+- [11:05.530] and the only thing it can hit is a body,
+- [11:07.400] a human body, a young human body.
+- [11:10.440] They're losing just tremendous numbers of mostly soldiers.
+- [11:14.930] The cities and towns have been largely demolished.
+- [11:19.530] It's a shame what's happened to that country.
+- [11:21.600] It would've never happened if I were president,
+- [11:23.510] that I can tell you, would've never happened.
+- [11:26.440] To look at that …
+- [11:27.730] And October 7th would've never happened either,
+- [11:30.070] by the way, Middle East.
+- [11:33.510] But we'll get it. I think we'll get something done.
+- [11:36.890] We're going to be meeting, actually,
+- [11:39.370] tomorrow they're meeting in Munich as you know.
+- [11:41.630] We're going to have some other meetings
+- [11:42.970] and I'll be dealing with President Putin
+- [11:45.530] largely on the phone. We ultimately expect to meet.
+- [11:49.750] In fact, we expect that he'll come here
+- [11:52.660] and I'll go there and we're going to meet also
+- [11:55.360] probably in Saudi Arabia the first time.
+- [11:57.360] We'll meet in Saudi Arabia, see if we can get something done.
+- [12:01.060] But we want to end that war. That war is a disaster.
+- [12:03.620] It's a really bloody horrible war.
+- [12:05.500] The Press: Mr. President, did you comment-
+- [12:06.880] The Press: Did you said Saudi Arabia
+- [12:08.100] the first meeting will happen?
+- [12:09.370] The President: I think so.
+- [12:10.580] We think we're going to probably meet in Saudi Arabia
+- [12:12.000] the first meeting.
+- [12:13.280] The Press: When? The Press: Any idea when?
+- [12:14.490] The President: Hasn't been set, but not too distant future.
+- [12:16.550] The Press: And will Zelenskyy also be part of that meeting?
+- [12:18.140] The President: We both understand.
+- [12:19.760] We know the Crown Prince
+- [12:21.730] and I think it'd be a very good place to meet.
+- [12:25.560] The Press: It sounds like that would just be a meeting
+- [12:27.220] between you and Putin and perhaps the Crown Prince,
+- [12:30.280] but not President Zelenskyy?
+- [12:31.840] The President: Probably we'll have a first meeting,
+- [12:34.170] and then we'll see what we can do about the second meeting.
+- [12:37.770] The Press: Did you also commit to go to Ukraine?
+- [12:40.290] The President: What about Ukraine?
+- [12:41.550] The Press: Did you commit to go to Ukraine as well?
+- [12:43.210] The President: No, I haven't.
+- [12:44.440] I haven't committed to go to Ukraine.
+- [12:46.640] The Press: Will you go?
+- [12:48.740] The President: I would think about going.
+- [12:49.950] Yeah, I'd think about it. No problem.
+- [12:51.640] The Press: President Zelenskyy said today Mr. President,
+- [12:53.370] that they received your vision.
+- [12:55.190] What is your plan to end this war?
+- [12:57.500] Like today, Secretary-
+- [12:58.750] The President: Well, I'm not going to tell you my plan.
+- [13:00.050] I can just tell you we've made a lot of progress.
+- [13:01.970] This should have been done by Biden, not by me
+- [13:04.670] 'cause this has been going on for now a long time, years.
+- [13:09.020] It should have been done by Biden.
+- [13:11.590] Just like the young gentleman that I brought home yesterday,
+- [13:15.470] after two weeks, we worked on it for two weeks.
+- [13:17.920] He was a fine man and he was in there
+- [13:22.230] for three and a half, almost four years.
+- [13:25.300] And they weren't able to do a thing.
+- [13:27.700] I got him out.
+- [13:29.430] As you know, I didn't pay $6 billion.
+- [13:31.630] I didn't pay anything.
+- [13:33.440] We did a trade and we did a good job.
+- [13:37.750] We got him out in two weeks.
+- [13:40.220] He should have been out years ago.
+- [13:41.680] He really should have been out years ago.
+- [13:43.100] The Press: Do you oppose, sir,
+- [13:44.310] do you oppose NATO membership for Ukraine?
+- [13:47.060] The President: I don't think it's practical
+- [13:48.530] to have it, personally.
+- [13:49.890] I know that our new secretary of defense who's excellent,
+- [13:54.750] Pete made a statement today
+- [13:56.990] saying that he thinks it's unlikely or impractical.
+- [13:59.600] I think probably that's true.
+- [14:01.350] I think long before President Putin,
+- [14:03.500] they said there's no way they'd allow that.
+- [14:06.080] This has been going on for many, many years.
+- [14:08.950] They've been saying that for a long time,
+- [14:11.010] that Ukraine cannot go into NATO.
+- [14:15.130] And I'm okay with that.
+- [14:16.350] I just want the war, whether they are or they're not.
+- [14:19.130] But it certainly would seem to be that most people have said
+- [14:22.160] that that is something that's not going to happen.
+- [14:24.030] The Press: [inaudible]
+- [14:25.300] freezing out President Zelenskyy in this process a bit,
+- [14:27.690] isn't there a danger of that?
+- [14:29.050] The President: No, I don't think so.
+- [14:30.540] As long as he's there, but at some point
+- [14:32.600] you're going to have to have elections too.
+- [14:34.020] You're going to have to have an election.
+- [14:35.400] The Press: Zelenskyy says he wants security assurances,
+- [14:37.180] Mr. President. What does that look like?
+- [14:39.580] The President: In terms of what?
+- [14:41.220] The Press: If the war were to end,
+- [14:43.270] he says he wants guarantees of security.
+- [14:45.790] The President: We'll see what that means.
+- [14:47.400] We have … I think when the war ends,
+- [14:49.270] one thing he was very strong about,
+- [14:51.440] if it ends, he wants it to end.
+- [14:53.570] And that's President Putin said that, he wants it to end.
+- [14:56.580] He doesn't want to end it
+- [14:57.840] and then go back to fighting six months later.
+- [15:01.000] We talked about the possibility,
+- [15:02.450] I mentioned it, of a ceasefire so we can stop the killing.
+- [15:05.160] And I think we'll probably end up at some point
+- [15:07.140] getting a ceasefire in the not too distant future.
+- [15:10.030] The Press: [inaudible] Ukraine as an equal member of-
+- [15:11.780] The Press: Do you expect Ukraine-
+- [15:12.980] The President: Say it? What?
+- [15:14.180] The Press: Do you view Ukraine
+- [15:15.430] as an equal member of this peace process?
+- [15:20.330] The President: It's an interesting question.
+- [15:22.780] I think they have to make peace. Their people are being killed
+- [15:25.960] and I think they have to make peace.
+- [15:28.070] The Press: Will you continue to provide-
+- [15:29.280] The President: I said that was not a good war to go into.
+- [15:31.350] And I think they have to make peace.
+- [15:32.770] That's what I think.
+- [15:34.050] The Press: Mr. President,
+- [15:35.290] why did you decide to fly towards Ukraine?
+- [15:37.560] The Press: Would you support Zelenskyy seceding territory
+- [15:40.240] or exchanging territory in any agreement to end the war?
+- [15:42.750] The President: Well, he's going to have to do
+- [15:43.950] what he has to do,
+- [15:45.170] but his poll numbers aren't particularly great,
+- [15:50.490] to put it mildly. He's got a country
+- [15:52.400] where it's been savaged and attacked
+- [15:57.000] and he's got an army that's been very, very brave actually,
+- [16:01.110] despite the fact that we've given him,
+- [16:04.350] in my opinion, $350 billion.
+- [16:06.870] That's what the real number is. You don't hear that number.
+- [16:09.550] And Europe has given him, my opinion,
+- [16:11.300] a hundred billion dollars.
+- [16:13.140] And they've done it in the form of a loan.
+- [16:15.520] And I have a Secretary of Treasury right now
+- [16:17.660] who's actually quite brave. He's over in Ukraine on a train.
+- [16:21.840] And there's a lot of things happening around that train
+- [16:24.330] that aren't so good.
+- [16:25.980] And he's going there to get a document done
+- [16:29.750] where we're going to be assured
+- [16:32.550] that we're going to in some form get this money back
+- [16:36.140] because we're putting up far more money than Europe.
+- [16:38.330] And Europe is in far more danger than we are.
+- [16:40.590] We have an ocean in between. Europe has nothing in between.
+- [16:44.720] You know what they have in between?
+- [16:46.120] They have Ukraine in between.
+- [16:47.990] So wait a minute.
+- [16:50.030] So as you know, Europe is putting up money
+- [16:52.360] and they're getting it in the form of a loan.
+- [16:54.980] And the United States under Biden didn't do loans.
+- [16:57.750] They just handed money.
+- [16:59.020] Every time somebody walked in from Ukraine,
+- [17:00.920] they just handed them money foolishly.
+- [17:04.190] This should have never happened. It should have never started.
+- [17:07.120] And once it did, other things should have happened.
+- [17:09.320] Other things should have taken place.
+- [17:11.410] So we're getting security on our money.
+- [17:14.660] We're going to have it secured by …
+- [17:17.130] They have rare earth and they have oil and gas
+- [17:20.210] and they have a lot of other things.
+- [17:21.720] And we're asking for security on our money.
+- [17:23.250] The Press: So does it mean-
+- [17:24.620] The Press: How long does Zelenskyy have?
+- [17:25.860] The President: They've agreed to it.
+- [17:27.110] The Press: To Ukraine.
+- [17:28.320] The President: Ukraine has agreed to.
+- [17:29.530] The Press: Does it mean you are not sending
+- [17:30.780] any more aid to Ukraine?
+- [17:32.150] The President: No, we are, but we want it secured
+- [17:34.070] and the money is going to be secured.
+- [17:35.990] The Press: When will the US stop sending funding?
+- [17:38.430] When will the US stop sending funding?
+- [17:39.950] The President: Because if we didn't do that,
+- [17:41.190] then Putin would say he won.
+- [17:43.870] We're the thing that's holding it back.
+- [17:45.840] And frankly we'll go as long as we have to go
+- [17:48.960] because we're not going to let the other happen.
+- [17:50.860] But President Putin wants to have peace now and that's good.
+- [17:55.190] And he didn't want to have peace with Biden.
+- [17:57.540] The Press: Was that conversation with Putin-
+- [17:58.960] The President: And you tell me why that is. Okay?
+- [18:01.020] The Press: Was that conversation with Putin to start
+- [18:03.010] these negotiations part of the deal to bring Fogel home?
+- [18:06.550] The President: No, but it was a nice thing
+- [18:08.570] that he allowed Mark Fogel to leave.
+- [18:12.210] In fact, Mark wasn't feeling well,
+- [18:16.770] but he was … all of a sudden about two weeks ago,
+- [18:20.200] he started being treated very nicely.
+- [18:22.950] He said they took him out for haircuts,
+- [18:24.840] they took him out, they helped him out a little bit
+- [18:29.190] and made him feel better, made him look better.
+- [18:32.400] And they were nice to him.
+- [18:33.720] And he said, "I saw something happening,"
+- [18:37.880] and it coincided with when I came into office.
+- [18:41.670] So that was nice.
+- [18:43.320] And he's a fine person. He was so happy to be out.
+- [18:47.790] He was there for three and a half years plus,
+- [18:51.170] and he shouldn't have been there at all.
+- [18:53.850] They should have had him out much faster than that.
+- [18:55.860] The Press: What does make you believe
+- [18:57.150] that Zelenskyy will agree with that?
+- [18:58.360] The President: Wait, go ahead please.
+- [18:59.600] The Press: Sorry. Sir, just to be clear,
+- [19:01.060] do you see any future in which Ukraine
+- [19:02.660] returns to its pre-2014 borders?
+- [19:05.570] The President: Well, I think Pete said today
+- [19:07.320] that that's unlikely. Right?
+- [19:08.900] It certainly would seem to be unlikely.
+- [19:11.120] They took a lot of land and they fought for that land
+- [19:15.090] and they lost a lot of … They lost a lot of soldiers.
+- [19:18.160] But it would just seem to me,
+- [19:19.490] and I'm not making an opinion on it,
+- [19:21.700] but I've read a lot on it
+- [19:23.000] and a lot of people think that that's unlikely.
+- [19:25.160] Some of it will come back.
+- [19:26.530] I think some of it will come back.
+- [19:27.790] Yeah. Some of that land will come back.
+- [19:29.790] The Press: Mr. President,
+- [19:31.060] ultimately these are both Russia's-
+- [19:32.270] The President: Who are you with?
+- [19:33.510] The Press: Sorry? Me?
+- [19:34.710] The President: Yeah. The Press: AFP, sir.
+- [19:35.930] The President: Who?
+- [19:37.170] The Press: AFP. Agence France-Presse.
+- [19:38.960] The President: Okay.
+- [19:40.370] The Press: I just wanted to ask you,
+- [19:43.000] the things that the Secretary of Defense was talking about,
+- [19:46.530] the 2014 borders and the lack of NATO membership.
+- [19:51.150] Ultimately, these are both demands
+- [19:52.640] that Russia has made in the past.
+- [19:54.780] Is there not a danger of handing Russia a win on this?
+- [19:59.950] The President: Well, I think that if you look at the war,
+- [20:02.030] the way the war's going,
+- [20:03.320] you'll have to make your own determination.
+- [20:05.380] I'm just here to try and get peace.
+- [20:07.110] I don't care so much about anything other than I want
+- [20:10.480] to stop having millions of people killed, killed.
+- [20:14.090] Last night, Kiev got hit very, very hard.
+- [20:18.480] I want to see people stop getting killed.
+- [20:20.090] That war is ridiculous.
+- [20:21.330] It should have never happened and it would've never happened.
+- [20:24.400] Yeah, a couple of more questions.
+- [20:27.880] The Press: Are you planning to sign
+- [20:29.220] an executive order of reciprocal tariffs, sir?
+- [20:31.360] The President: Yes, I am. In fact, I may do it today,
+- [20:34.160] and if I do it today, I could almost do it right now.
+- [20:36.320] Would you like me to talk about it now?
+- [20:38.030] I don't want to take anything away from this young lady's day
+- [20:40.920] because this is her day and I may do it later on,
+- [20:44.260] or I may do it tomorrow morning,
+- [20:45.530] but we'll be signing reciprocal tariffs.
+- [20:48.400] The world has taken advantage of the United States.
+- [20:51.100] For many years, they've charged us massive tariffs
+- [20:53.840] that we haven't charged them.
+- [20:55.840] And as you know, I just did something on steel and aluminum,
+- [20:59.090] 25%, and that'll go up at some point,
+- [21:01.970] but 25%, which will level the playing field quite a bit.
+- [21:06.360] I did it previously 50%, and Obama was very weak
+- [21:12.810] and Biden was even weaker on steel.
+- [21:15.670] Steel was just absolutely… It really started with Obama.
+- [21:20.060] The world really took advantage of us,
+- [21:22.090] and then that morphed into Biden,
+- [21:26.340] and what they did was he was so worried
+- [21:28.790] about trying to attack his political opponent
+- [21:31.100] that he didn't know what he was doing with respect
+- [21:33.220] to countries taking advantage.
+- [21:35.040] He should have looked at the countries,
+- [21:36.930] both friend and foe taking advantage of us.
+- [21:39.990] So we're going to be doing reciprocal tariffs,
+- [21:43.170] which is whatever they charge,
+- [21:44.560] we charge, very simply, but we're going to-
+- [21:46.280] The Press: Continue to talk about widespread fraud
+- [21:50.720] and abuse, when will-
+- [21:52.320] The President: Tremendous fraud.
+- [21:53.650] There's tremendous fraud and it's hard to believe
+- [21:56.420] that you can have that kind of fraud.
+- [22:00.930] Are you talking about what?
+- [22:02.610] Wait, wait, wait, which are you talking?
+- [22:04.630] You're talking about with regard to all of the investigations
+- [22:07.710] that are going on about this stupidity?
+- [22:09.950] What we're going to do is tomorrow
+- [22:11.290] I'm having a news conference. I'm going to read to you
+- [22:14.110] some of the names that hundreds of millions
+- [22:16.910] and even billions of dollars have been given to.
+- [22:19.870] And if you tell me that we should be giving money
+- [22:22.050] to those things, those entities,
+- [22:24.650] I think you'll probably have to leave as a reporter
+- [22:27.230] because you're not very talented.
+- [22:29.010] When you look at the kind of money,
+- [22:30.780] billions and billions of dollars being thrown away illegally.
+- [22:34.890] And there's no chance, I mean,
+- [22:36.930] I say it in front of our attorney general,
+- [22:40.480] there's no chance that there's not kickbacks
+- [22:42.450] or something going on.
+- [22:43.700] When you give millions and millions of dollars
+- [22:46.370] to somebody that stands to look at something for 15 minutes
+- [22:50.060] and walks away with millions of dollars,
+- [22:52.430] that money's coming back in some form,
+- [22:55.400] and that's only one form of corruption.
+- [22:58.010] The biggest thing is what they do to our country.
+- [23:00.840] They're taking massive amounts of money
+- [23:04.140] and spending it on items.
+- [23:05.540] I went through a list of 200 expenditures that were made,
+- [23:09.840] and I found three that looked like they were reasonable.
+- [23:12.960] Okay? Three.
+- [23:14.430] And we'll be talking about that tomorrow.
+- [23:16.580] We have a lot of stuff, and I want to commend Elon
+- [23:19.240] because he's done a fantastic… He doesn't need this.
+- [23:21.840] He's abused by you people every day.
+- [23:24.420] He's found more things than anybody could find.
+- [23:26.920] I think he's got the credibility to do it.
+- [23:28.790] I know he does. And it's his group of people.
+- [23:33.540] They started off with 12. I call them 12 geniuses.
+- [23:37.500] They started off with 12 and they went to 20 and 25,
+- [23:40.570] and now they're up to almost 100.
+- [23:42.580] People are joining to help them
+- [23:45.330] because there's a massive fraud that's taken place.
+- [23:47.860] And then you have judges that are activists
+- [23:50.090] and they sit there and they say, "Oh."
+- [23:51.870] As an example, $59 million
+- [23:54.620] going to a little small group in New York City.
+- [23:59.120] You get nothing going to North Carolina to help the…
+- [24:02.010] Nothing. They say, "We don't have any money,"
+- [24:04.030] because they've given it away on the border,
+- [24:06.370] but you have nothing.
+- [24:07.620] What they did to North Carolina is a shame.
+- [24:09.800] And then they send $59 million to New York City for a hotel,
+- [24:13.810] for a little bit of nothing.
+- [24:16.780] What they've done, a hotel that was not luxury,
+- [24:20.160] that's getting luxury rates
+- [24:21.660] for migrants where they're making a fortune.
+- [24:24.990] And we catch them, we catch them.
+- [24:28.810] But a judge says, "Well, even though it may be a fraud,
+- [24:32.250] you have to send the money in anyway. Send the money."
+- [24:34.860] I said, "Wait a minute. We have money that shouldn't go
+- [24:38.460] because we caught it before it was sent out."
+- [24:40.830] But they want the money to go anyway.
+- [24:43.350] And I think you're going to have a lot of things to look at, Pam.
+- [24:48.500] I really do. What's going on with this whole thing.
+- [24:50.880] And this is just one group.
+- [24:52.810] We haven't talked about Department of Education,
+- [24:55.100] we haven't talked about the military,
+- [24:56.840] we haven't talked about a lot of things that are very big.
+- [25:00.410] And what's happened is, as an example,
+- [25:02.420] you'll have cases where you have a three-month contract
+- [25:07.270] and maybe the guy that signs the contract leaves,
+- [25:10.070] maybe he gets rich.
+- [25:11.600] All of a sudden he leaves for that reason.
+- [25:13.270] But you have a three-month contract
+- [25:15.130] and maybe he leaves, so the contract is sitting there
+- [25:18.750] and the people signing the checks
+- [25:20.280] don't know it's three months and it goes on for years.
+- [25:23.880] The three months turns out to be three years,
+- [25:26.550] five years, 10 years, just goes on forever.
+- [25:30.980] And the guy on the other side of the contract
+- [25:33.060] just keeps getting check after check after check because,
+- [25:37.300] Elon had an expression yesterday, because nobody cares.
+- [25:40.950] It's a great expression. Nobody cares.
+- [25:43.130] The guy that signed the contract didn't care.
+- [25:46.110] May be there, may not be there, may be crooked, who knows?
+- [25:49.510] But you have to care,
+- [25:51.580] otherwise you can't really run a thing like that.
+- [25:54.210] Or you can't run a country really,
+- [25:56.800] because there's so many transactions,
+- [25:58.740] thousands and thousands of transactions.
+- [26:01.550] And if you don't have people that care,
+- [26:04.110] you're going to lose control.
+- [26:05.820] And that's what's happened. And we've caught it.
+- [26:08.850] Now what we call it is billions and billions of dollars,
+- [26:12.470] but it's a tiny fraction of the real number,
+- [26:15.960] because you can never catch the real number
+- [26:17.620] because people have gotten away
+- [26:18.870] with tremendous amounts of money.
+- [26:21.260] But I said, we have to make our government smaller,
+- [26:25.400] more efficient, more effective, and a lot less expensive.
+- [26:29.260] And we could find a trillion dollars.
+- [26:31.480] But we're being hindered by courts
+- [26:34.240] where they file in certain courts
+- [26:36.160] where it's very hard to win. And a judge will stop us.
+- [26:39.790] And a judge will say
+- [26:41.040] that it doesn't make any difference what you find.
+- [26:44.520] You just keep paying the money. That's a hell of a way to be.
+- [26:47.890] And I follow the courts. I have to follow the law.
+- [26:50.270] All it means is that we appeal,
+- [26:52.190] but that gives people time to cover their tracks
+- [26:56.450] and that's what they do.
+- [26:57.850] So it's a very bad thing that's taken place,
+- [27:01.530] but hopefully the courts will be fair.
+- [27:04.950] They don't have to be very fair.
+- [27:06.350] They just have to be a little bit fair
+- [27:07.780] because this is so egregious what's taken place.
+- [27:11.170] Nobody's ever seen anything like it.
+- [27:12.870] Nobody's seen numbers like this. These are massive numbers.
+- [27:15.920] $9 million for somebody to go and stand in a store
+- [27:19.400] and see how people shop, okay?
+- [27:22.480] I mean, you take a look at these things, it's a disgrace.
+- [27:27.960] And then you have a country
+- [27:29.170] that we want to make America great again
+- [27:31.830] and very hard to make America great again
+- [27:33.460] when you have things like this.
+- [27:34.740] And you're going to see the same thing,
+- [27:36.380] Department of Education is going to be a disaster.
+- [27:39.590] The military, I mean, I see it.
+- [27:40.890] Look, I came in, they had a contract done,
+- [27:45.670] as you know, for $5.7 billion for airplanes.
+- [27:50.380] It was Air Force One with Boeing.
+- [27:53.570] $5.7, I got it down to $4 billion,
+- [27:56.760] little less than that, one penny less than that,
+- [27:59.490] $3 billion, 999,999 and 99 cents.
+- [28:03.950] I said, "It has to have a three in front of it,"
+- [28:05.770] because I wouldn't sign the contract for $5.7 billion.
+- [28:10.020] I was able to cut $1.
+- [28:11.410] 7 billion off the price and it didn't take me long.
+- [28:17.120] $1.7 billion.
+- [28:19.090] If people would care, they'd be able to do that
+- [28:21.180] with every single contract that's put before them.
+- [28:24.860] And we wouldn't have deficits, would have nothing
+- [28:27.030] but a tremendously low taxed, wonderful country,
+- [28:32.540] but they have to care. And speaking of that,
+- [28:35.760] Boeing were not happy with the service
+- [28:38.610] we're getting in terms of those planes.
+- [28:41.730] They would like to get more money.
+- [28:44.690] We're not happy about that whole thing.
+- [28:46.850] We signed a very strong contract.
+- [28:48.400] I signed a guaranteed maximum contract,
+- [28:50.770] which they haven't seen in a long time.
+- [28:53.320] And they're saying they're getting hurt by it,
+- [28:56.380] but they have to produce the product
+- [28:58.100] and we expect them to produce the product.
+- [29:01.090] They have to produce the product.
+- [29:02.340] They agreed to build planes at a certain price.
+- [29:04.120] They're not used to that.
+- [29:05.360] They're used to having time and material contracts
+- [29:10.030] where it's whatever it costs,
+- [29:11.360] time and material, no dates, no anything.
+- [29:14.040] It ends up costing five times more.
+- [29:16.210] You look at some of the ships that have been built,
+- [29:18.730] take a look at the Gerald Ford, the aircraft carrier, the Ford,
+- [29:24.110] it was supposed to cost $3 billion.
+- [29:26.150] It ends up costing $18 billion.
+- [29:29.510] And they make, of course, all electric catapults,
+- [29:32.790] which don't work,
+- [29:33.990] and they have all magnetic elevators.
+- [29:36.580] They lift up 25 planes at a time, 20 planes at a time
+- [29:41.110] and instead of using hydraulic,
+- [29:43.150] like on tractors that can handle anything from hurricanes
+- [29:48.160] to lightning to anything, they use magnets.
+- [29:51.530] It's a new theory, "Magnets are going to lift the planes up,"
+- [29:55.050] and it doesn't work.
+- [29:56.700] And they had billions and billions of dollars
+- [29:59.480] of cost overruns. I met the architect.
+- [30:02.300] I said, "Have you designed a ship before?"
+- [30:04.010] This is one of the biggest ships in the world.
+- [30:06.380] It's like landing at LaGuardia Airport.
+- [30:08.900] But you look at the kind of waste, fraud and abuse
+- [30:13.220] that this country's going through,
+- [30:14.610] and we have to straighten it out.
+- [30:16.190] We have great people going into the military
+- [30:18.220] in terms of we need ships, we need a lot of things.
+- [30:21.330] We have great people, we have business people going in.
+- [30:23.580] But when you look at what's happened to the purchasing,
+- [30:29.240] and when you look at the USAID,
+- [30:31.350] when you look at the things that they're giving to them.
+- [30:35.760] The billions of dollars that they're giving to them,
+- [30:40.210] and it doesn't make sense.
+- [30:42.220] It is interesting that when you're looking for fraud,
+- [30:46.190] you look at hundreds of items,
+- [30:49.030] and you'll find one or two maybe if you're lucky.
+- [30:52.130] Here's something where you look at data
+- [30:54.300] and they're all fraudulent.
+- [30:56.300] You know by just looking at the topic,
+- [30:58.550] they're all fraudulent, except it's the opposite.
+- [31:00.940] You'll find one or two that's like a legitimate reason.
+- [31:04.530] So I just want to thank Elon for going through it.
+- [31:08.490] I want to thank all the people that are working with him.
+- [31:10.670] We have a big group of people.
+- [31:12.940] I think the lowest IQ is about 160.
+- [31:15.430] That's very high.
+- [31:17.090] I think you have a couple of 182s in there,
+- [31:20.530] but they're doing a fantastic job.
+- [31:23.480] He doesn't need it and they don't need it.
+- [31:25.730] But we're showing things and it's a big…
+- [31:30.100] People have no idea how important it is. Yeah?
+- [31:32.180] The Press: How soon do you want
+- [31:33.380] the Department of Education to be closed?
+- [31:36.130] The President: Oh, I'd like it to be closed immediately.
+- [31:37.880] Look, the Department of Education's a big con job.
+- [31:41.940] So they ranked the top 40 countries in the world.
+- [31:44.630] We're ranked number 40th, but we're ranked number one
+- [31:47.800] in one department, cost per pupil.
+- [31:50.780] So we spend more per pupil than any other country in the world
+- [31:54.480] but we're ranked number 40. We've been between 38 and 40.
+- [31:58.020] The last time I looked, it was 38,
+- [31:59.780] and then I looked two days ago, it came out the new list,
+- [32:02.490] it came out at number 40, so we're ranked 40.
+- [32:05.600] Norway, Denmark, Sweden, I hate to say it, China,
+- [32:10.500] as big as it is, it's ranked in the top five,
+- [32:13.620] and that's our primary competitor.
+- [32:16.760] We're ranked number 40. So if we're ranked number 40,
+- [32:19.810] that means something's really wrong.
+- [32:21.500] And I say send it back to Iowa, to Idaho, to Colorado,
+- [32:26.650] send it back to places that, and there are a lot of…
+- [32:30.280] Indiana, you have a great new governor,
+- [32:32.780] you have a great senator.
+- [32:35.510] Jim Banks just got elected. You got great people.
+- [32:38.600] I'll tell you what, Indiana is going to be fantastic.
+- [32:41.110] We probably have 35, maybe 37 states,
+- [32:45.930] that will do as well as Denmark, Norway, Finland, Sweden.
+- [32:52.460] They'll be just as good.
+- [32:53.800] Then you have the ones that we all know about.
+- [32:57.380] It'll be the same story. But you know what?
+- [32:59.100] Even they will be good because you look at New York,
+- [33:01.880] you give it to Westchester County,
+- [33:03.380] you give it to Long Island, you give it to Nassau County,
+- [33:05.750] you give it to Suffolk County, same thing.
+- [33:07.260] Same thing, you go out to
+- [33:08.790] and you give it to Upstate New York.
+- [33:10.150] So you'd have four or five sections.
+- [33:12.470] You give it to Manhattan.
+- [33:13.780] Manhattan is a little bit tougher for some reason.
+- [33:16.310] I don't know why it would be tougher, but it is.
+- [33:18.220] You give to California and you go
+- [33:20.240] to various areas outside of Los Angeles,
+- [33:24.940] and you might have six or seven different subgroups.
+- [33:28.100] But generally, if you go to Iowa,
+- [33:30.360] you give it to Iowa.
+- [33:31.590] You don't have subgroups, you have Iowa,
+- [33:33.890] and other places that do a good job.
+- [33:36.690] If they do a good job,
+- [33:37.910] they're going to do a great job in education.
+- [33:39.880] Those places will be every bit as good as the various countries
+- [33:45.250] that do so well, all the time.
+- [33:46.760] It's the same countries that are doing well.
+- [33:50.110] And so we have a department of Education
+- [33:52.880] where people from Washington DC, who, in many cases
+- [33:57.770] don't care about the kids out in the country,
+- [34:01.180] they don't care about the farms
+- [34:03.030] and the farmers' daughter and the farmers' sons.
+- [34:06.640] We have a massive bureaucracy in Washington DC.
+- [34:09.470] We have buildings that are all over the city.
+- [34:11.530] Department of Education.
+- [34:13.980] Department of Education's on all these buildings.
+- [34:16.680] By the way, nobody shows up to work
+- [34:18.160] because they're all working at home.
+- [34:19.610] You know, "working at home." They're not working at home.
+- [34:23.530] And a lot of them have second jobs.
+- [34:25.130] And that's the other thing that Elon Musk is looking at.
+- [34:27.870] How many of these people are getting checks,
+- [34:30.200] working at home, but they're not working
+- [34:32.270] because they have second jobs and even third jobs?
+- [34:34.950] You're going to find a lot of them
+- [34:36.340] and those people are going to be fired
+- [34:37.730] because we have to make our government smaller.
+- [34:39.810] All right, one more question.
+- [34:42.480] Jennifer, go ahead. Nice to see you.
+- [34:44.690] The Press: Thank you, sir. Two questions.
+- [34:46.520] One on Ukraine again,
+- [34:48.010] and then another one on the Kennedy Center.
+- [34:50.020] Do you think that, as far as your negotiating tactics go,
+- [34:54.540] did Pete Hegseth take away
+- [34:56.140] some of your negotiating abilities with Putin
+- [34:59.860] by taking Ukraine's sovereign integrity off the table
+- [35:02.310] by taking [inaudible]
+- [35:03.660] The President: No, I haven't done that.
+- [35:04.870] I'm backing Ukraine. I'm backing Ukraine.
+- [35:07.010] Don't say that.
+- [35:09.390] I'm approving, but I do want security for our money.
+- [35:13.220] Europe is getting security. You know that, right?
+- [35:15.760] They're giving their money in the form of a loan.
+- [35:18.070] Nobody knows that.
+- [35:19.710] And why are we at 350 billion and Europe,
+- [35:23.680] which doesn't separate with an ocean like we do…
+- [35:26.490] We have a little thing called an ocean in between.
+- [35:28.910] Why is it that Europe is paying 200 billion
+- [35:32.650] less than us to help Ukraine? Very similar size.
+- [35:35.950] If you add up all the European countries,
+- [35:37.750] it's a little bit smaller than the US in terms of the economy.
+- [35:41.880] Why is it that they're not paying the kind of numbers
+- [35:45.060] that they should be paying? And then on top of it,
+- [35:48.180] and I've been saying this to Biden.
+- [35:49.980] I told Biden, I said, "You ought to be asking
+- [35:52.050] for either a loan or some kind of a security,
+- [35:54.470] like their oil and gas or something for the money,
+- [35:57.480] 'cause you're putting up much more money than Europe
+- [36:01.370] and you have no security."
+- [36:02.580] Europe's putting up a much smaller amount.
+- [36:04.680] And it's in the form of a loan because we have people
+- [36:08.830] that were incompetent in the last administration.
+- [36:12.180] Grossly incompetent.
+- [36:14.570] And we're changing it, but we change it and all we do
+- [36:17.780] is we get hit by lawsuits from the radical left all the time.
+- [36:21.600] But here we are. We stand, and I guess we've done okay.
+- [36:24.560] Thank you very much everybody. Thank you.

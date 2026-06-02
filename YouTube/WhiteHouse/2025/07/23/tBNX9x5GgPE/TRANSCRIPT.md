@@ -1,0 +1,1216 @@
+<!-- source: https://www.youtube.com/watch?v=tBNX9x5GgPE -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: tBNX9x5GgPE -->
+<!-- date_published: 2025-07-23T22:22:33+00:00 -->
+<!-- date_accessed: 2026-06-02T02:46:42.996782+00:00 -->
+
+# Transcript: President Trump Delivers Remarks and Signs Executive Orders at AI Summit
+
+- [00:01.500] [music playing]
+- [00:18.230] [applause]
+- [00:34.510] The President: Thank you very much, everybody.
+- [00:36.900] What a great song that is, but we'll cut it a little short
+- [00:41.400] because we have some business to discuss.
+- [00:44.690] What a group of smart ones we have in front of me today.
+- [00:48.350] That's about as good as it comes,
+- [00:50.490] up here, the brain power,
+- [00:52.480] the greatest power of them all, the brain power.
+- [00:55.570] Well, I'm thrilled to be here
+- [00:56.960] with so many tech leaders and luminaries
+- [00:59.160] as we take historic action to reassert the future,
+- [01:04.620] which belongs to America, always has belonged to America.
+- [01:08.680] We just lost sight of it on occasion.
+- [01:11.220] [applause]
+- [01:13.140] And I just want to start by stating
+- [01:15.140] that we've just concluded our big trade deal with Japan
+- [01:20.930] and numerous other countries in addition, as you know.
+- [01:25.620] But on the Japan deal,
+- [01:27.640] because it was literally just signed letter,
+- [01:31.190] was just signed, it gives us a sort of signing bonus.
+- [01:35.000] So I'll bring it into sports talk, a signing bonus,
+- [01:37.340] like you have signing bonuses too, I understand.
+- [01:40.530] Get a lot of money. 100 million, that's not bad.
+- [01:45.600] But that's not as good as the signing bonus we got.
+- [01:49.240] We got a $550 billion signing bonus for the country.
+- [01:54.980] [applause]
+- [01:57.010] And we had the tariff at 25%.
+- [02:00.950] As you know, we had a tariff at 25%
+- [02:03.810] and these are great people that we negotiated with,
+- [02:07.890] but we agreed to reduce it to 15 based on the fact
+- [02:11.600] that Japan has agreed for the first time
+- [02:14.540] ever to open up its country to trade
+- [02:17.370] so that all of our American businesses
+- [02:19.810] and business geniuses, including many in this room,
+- [02:23.790] can go out and do business openly and freely in Japan,
+- [02:28.240] a very rich and prosperous and profitable
+- [02:31.600] and wonderful country frankly.
+- [02:33.650] And we will pay a zero tariff as we do business in Japan.
+- [02:37.190] So we're paying zero, they're paying 15,
+- [02:39.090] we're getting $550 billion.
+- [02:41.930] And to be exact, it's 90% of that,
+- [02:44.500] but we control the whole lot of it
+- [02:47.730] and it's really been great.
+- [02:50.460] [applause]
+- [02:51.780] And they're very happy, and their stock market went up
+- [02:53.940] and our stock market went up,
+- [02:55.570] and that's supposed to be the way
+- [02:57.040] as ours went way up and theirs went up.
+- [03:00.880] [laughter]
+- [03:03.420] And we've made numerous other deals like that.
+- [03:07.060] But the opening up of a country is very important to us.
+- [03:10.470] We have numerous countries that have opened their doors,
+- [03:16.020] just made some incredible transactions,
+- [03:19.670] but we're going to have a very, very simple tariff
+- [03:22.900] for some of the countries. Have so many countries,
+- [03:25.220] you can't negotiate deals with everyone.
+- [03:26.900] So we'll have a straight, simple tariff of anywhere
+- [03:29.850] between 15 and 50%.
+- [03:31.560] A couple, we have 15 because we haven't been getting along
+- [03:35.580] with those countries too well.
+- [03:36.780] So we just say, "Let's pay 50 and that's the way it is."
+- [03:41.220] But remember, we get countries that were closed,
+- [03:45.380] always closed, everyone in this room
+- [03:47.570] would never remember any of them to be open.
+- [03:50.570] We've offered such a deal to the European Union
+- [03:54.200] where we're in serious negotiations
+- [03:56.900] and if they agree to open up the union
+- [03:59.070] to American businesses,
+- [04:01.150] then we will let them pay a lower tariff.
+- [04:05.160] So the tariff is very important, but the opening of a country
+- [04:08.830] I think can be more important if our businesses do the job
+- [04:12.560] that they're supposed to be doing.
+- [04:14.650] Such openings are worthy of many points in tariffs
+- [04:18.600] and they're a good thing,
+- [04:20.720] not only for as an example Japan or Europe,
+- [04:23.630] but certainly a great thing for America
+- [04:26.030] because it allows our businesses to go out and fairly compete
+- [04:30.870] and do really well if they compete properly
+- [04:33.470] like the people that I know.
+- [04:35.670] Everyone in this room practically I know
+- [04:37.530] has competed very successfully. I haven't seen any and I know
+- [04:41.870] the losers just like I know the winners,
+- [04:43.260] [laughter]
+- [04:44.460] I'll tell you. I don't see any of the losers here.
+- [04:48.300] But now, if some of the countries that pay 25%
+- [04:51.460] or more on orders complain,
+- [04:53.620] remember that Japan was willing to pay upfront the $550 billion
+- [04:58.580] for that privilege of negotiating
+- [05:00.950] with the United States of America.
+- [05:03.670] We also made a deal yesterday
+- [05:05.180] with the Philippines and Indonesia,
+- [05:06.910] which in both cases will be opening up their country
+- [05:11.050] and we're in the process of completing our deal with China.
+- [05:16.400] And as you know, the UK, we made a deal,
+- [05:18.530] a very good deal for everybody. Everybody's happy.
+- [05:22.530] It's always nice when everybody can be happy.
+- [05:25.200] But mostly, we'll be charging straight tariffs
+- [05:29.490] to most of the rest of the world
+- [05:33.290] because we have over 200 countries.
+- [05:36.320] People don't realize, that's a lot of deals.
+- [05:39.610] Even if you're like me, a deal junkie, that's a lot of deals.
+- [05:43.210] That would be too much for anybody.
+- [05:46.820] How did we deal with this country that I never heard of?
+- [05:49.780] [laughter]
+- [05:52.700] We got a lot of deals cooking.
+- [05:55.020] But America is taking in hundreds of billions of dollars
+- [06:01.560] like it never has before. Investments into our country
+- [06:05.680] at the highest point ever in history,
+- [06:07.650] and we've just really been opened up for business
+- [06:10.920] for three of the six months.
+- [06:14.070] The first couple of months, we got ourselves all set,
+- [06:18.230] done a great job with our military as you know.
+- [06:20.490] You saw that two weeks ago when you saw the way
+- [06:23.790] those incredible B2s flew into Iran
+- [06:26.400] and took out an entire nuclear potential deadly force.
+- [06:34.230] [applause]
+- [06:36.750] But I want to thank some of the incredible people
+- [06:41.030] that I see before me,
+- [06:42.360] including White House AI Czar, David Sacks.
+- [06:45.450] [applause]
+- [06:46.650] He's been great for organizing this very important summit
+- [06:53.470] and especially for putting it in DC
+- [06:55.210] where it's a little bit easier.
+- [06:56.640] I don't know if it's easy for you,
+- [06:57.870] but it's a hell of a lot easier for me.
+- [07:00.930] Along with his colleagues at the All-In Podcast,
+- [07:03.920] which is very good.
+- [07:05.260] I did that podcast a year and a half ago and I said,
+- [07:09.650] "This is something," it was pretty new, pretty raw.
+- [07:13.420] Everybody I knew saw that podcast.
+- [07:15.300] I said, "Well, he's got something pretty good.
+- [07:16.950] Who is that guy?" He is a smart guy, by the way.
+- [07:18.900] I think if I ever get in, which at the time people
+- [07:21.920] were saying I had a shot, not as good a shot.
+- [07:24.790] As it turned out, we won numbers that nobody believes.
+- [07:28.510] We won every swing state.
+- [07:29.920] We won by millions and millions of votes
+- [07:32.020] winning the popular vote.
+- [07:34.140] We won with the districts as they would call them,
+- [07:38.420] 2,750 to 505,
+- [07:43.590] and that's why the map is almost completely red
+- [07:46.090] except for a couple of little blue areas on each side of it.
+- [07:49.780] But it was a great experience, frankly for me,
+- [07:52.330] and hopefully it's a great experience
+- [07:54.050] and been a great experience for our country,
+- [07:55.780] because they're saying we had the greatest six months
+- [07:58.620] that a president has ever had the opening six months,
+- [08:02.360] and I'm not even sure, maybe six months.
+- [08:04.150] I'm not sure it's the opening,
+- [08:05.460] but let's call it the opening six months.
+- [08:07.320] It sounds a little bit nicer.
+- [08:09.360] I want to also say hello and thank to Chamath
+- [08:14.710] and his wonderful wife,
+- [08:16.470] Nat, thank you very much for being here.
+- [08:18.370] Thank you very much. It was great seeing you again.
+- [08:21.040] [applause]
+- [08:22.890] Great couple. David Friedberg,
+- [08:26.110] and even as we know Jason Calacanis,
+- [08:30.800] [laughter]
+- [08:32.000] I say even. Thank you, Jason.
+- [08:36.090] Thank you, Jason, I appreciate that.
+- [08:38.750] That is a good person.
+- [08:39.980] Thanks as well to The Hill and Valley Forum
+- [08:43.410] and our future undersecretary of state Jacob Helberg.
+- [08:47.470] [applause]
+- [08:48.770] Stand up, Jacob.
+- [08:56.350] I met him a year and a half ago and I was very impressed.
+- [08:59.020] I said, "Let's bring him in."
+- [09:00.240] We bring in a lot of smart people
+- [09:02.360] and David's been unbelievable as the job he's doing.
+- [09:06.510] Along with secretaries, Doug Burgum,
+- [09:10.070] who's been incredible. Doug, thank you.
+- [09:13.840] [applause]
+- [09:15.830] Thank you, Doug. Great job.
+- [09:18.720] He's producing low-cost energy. We're down to $64.
+- [09:22.750] I want to get it down a little bit further if we can.
+- [09:24.800] I don't know if the oil companies love that or not,
+- [09:27.100] but we want to have very inexpensive electricity
+- [09:31.300] so that you can power up the plants
+- [09:33.100] because you need more electricity
+- [09:34.670] than any human beings ever in the history of the world.
+- [09:38.420] When I heard what you really need,
+- [09:39.820] I said, "You got to be kidding."
+- [09:41.320] Double what we produce right now for everything, right?
+- [09:44.500] I don't know, Jensen, you're going to have to explain
+- [09:48.150] that to me someday, why they need so damn much.
+- [09:51.080] Could you do with a little bit less?
+- [09:52.460] My father always used to say, "Turn off the lights, son."
+- [09:56.960] [laughter]
+- [09:58.600] But you guys are turning up the lights.
+- [10:02.110] I want to thank Howard Lutnick for doing a terrific job.
+- [10:04.910] He was involved in the big deal
+- [10:07.970] that we just completed with Japan.
+- [10:09.420] [applause]
+- [10:10.620] Howard, wherever you are, Howard.
+- [10:12.700] Where is Howard? Hi, Howard. Great job you did.
+- [10:15.340] Appreciate it, really. That was an interesting negotiation.
+- [10:19.250] These are tough people. These are good negotiators,
+- [10:21.580] I will tell you, Japan. But they love their country
+- [10:24.530] and they do what's right for their country.
+- [10:26.030] I want to thank Chris Wright, if Chris is around,
+- [10:28.510] Chris is here because he's helping
+- [10:30.480] with the tremendous energy success that we're having.
+- [10:35.980] We're having tremendous energy success.
+- [10:37.700] We're the biggest.
+- [10:38.930] We have more energy than anybody else in the world.
+- [10:41.030] Nobody knew that until I came along.
+- [10:42.850] But we have more energy than anybody else in the world.
+- [10:46.040] We're making incredible deals on energy,
+- [10:48.590] including deals in Alaska while we sort of,
+- [10:53.050] that's the mother lode, that's the big one.
+- [10:55.440] And we're making deals with various
+- [10:58.160] Asian countries that need it.
+- [10:59.780] And it's actually hard to believe,
+- [11:01.140] you don't think of it,
+- [11:02.370] but Asia is very close to Alaska, relatively speaking.
+- [11:06.010] It's not the closest, but it is pretty much the closest
+- [11:08.560] when it comes to oil and gas and energy.
+- [11:11.830] And we're making some incredible deals.
+- [11:13.520] And I want to thank Chris. Chris is fantastic.
+- [11:16.370] Works in partnership really with this gentleman
+- [11:19.590] who's the head of all of – you've got the land
+- [11:22.220] and he's got the energy,
+- [11:23.940] but they formed a great partnership, Doug,
+- [11:27.200] so that's one of the greatest partnerships
+- [11:29.900] I've seen in a long time.
+- [11:31.160] They work hand-in-hand and they have done a great job.
+- [11:33.580] Administrators, Kelly Loeffler I think is here.
+- [11:36.440] Kelly, thank you very much.
+- [11:37.680] [applause]
+- [11:38.880] Hi, Kelly. Hi, Kelly.
+- [11:42.930] And probably the most important man in the room,
+- [11:46.240] and I say it in all sincerity,
+- [11:48.150] more important than Doug and Chris
+- [11:50.400] and all that energy they're producing.
+- [11:53.040] He's a man that produces fast permits
+- [11:55.590] on the environmental impact statements.
+- [11:58.110] He gets them done.
+- [11:59.680] I said, "Lee, you have one week, one week for nuclear
+- [12:06.870] and you have a couple of days
+- [12:08.470] for oil and gas for the approvals."
+- [12:11.400] And we kid, but he really is, he's knocked them out fast.
+- [12:14.420] He's knocked out a lot.
+- [12:15.660] A lot of guys have started your plans already
+- [12:17.630] and you've already had your approvals.
+- [12:19.290] So where's Lee Zeldin? Is he here?
+- [12:21.470] He is so great. This guy.
+- [12:23.690] [applause]
+- [12:26.320] He is so great. That's why he has a slightly better seat
+- [12:29.140] than I gave to Doug. You see?
+- [12:30.970] [laughter]
+- [12:32.420] No, he's doing a fantastic job in a lot of ways,
+- [12:34.780] but he's doing a great job and he's getting fast permits
+- [12:37.170] and safe and good and everything else,
+- [12:38.790] but he's moving them along rapidly, already given some.
+- [12:43.190] And one of the most exciting things
+- [12:45.020] we'll talk about in a second
+- [12:46.240] is the fact that you're going to build your own electric
+- [12:48.860] producing plants when you build whatever you're building.
+- [12:52.040] And it could be it's different things,
+- [12:53.880] including automobile factories,
+- [12:55.390] which are going up all over the place.
+- [12:57.020] You'll see them starting soon
+- [12:58.250] where they're moving into our country
+- [12:59.890] because of the tariffs,
+- [13:01.090] because they don't want to pay the tariffs.
+- [13:02.510] They're moving into our country at a record speed.
+- [13:07.250] But the ability to build your own electric plant,
+- [13:09.520] not having to rely on a 100-year plus old grid.
+- [13:14.260] And then, if you have electric capacity extra,
+- [13:17.000] you're going to sell it into the grid, make some money,
+- [13:20.830] but you'll sell it right back into the grid.
+- [13:22.670] Director of the Office of Science and Technology Policy,
+- [13:27.150] Michael Kratsios. Michael, thank you very much.
+- [13:31.310] [applause]
+- [13:33.100] Thank you, Michael.
+- [13:36.030] As well, who is supposed to be taking a vote right now,
+- [13:38.310] big vote, Senator Ted Cruz. Is Senator Cruz here?
+- [13:41.440] Oh, look at my senator. Why aren't you voting?
+- [13:44.210] [applause]
+- [13:46.250] I think we lost David McCormick who's voting.
+- [13:49.250] Is David here? Because you're supposed to be voting, Ted.
+- [13:52.540] I don't know. I'll tell you what, this man works hard.
+- [13:57.360] Ted works hard and he works good.
+- [13:59.930] And a very special thanks
+- [14:01.160] to some of the top industry leaders here,
+- [14:03.990] including somebody that's amazing.
+- [14:05.870] I said, "Look, we'll break this guy up."
+- [14:07.880] This before I learned the facts of life.
+- [14:10.400] I said, "We'll break him up."
+- [14:11.790] They said, "No, sir. He is very hard." I said, "Why?"
+- [14:14.620] I said, "What percentages of the market does he have?"
+- [14:18.450] They said, "He has 100%."
+- [14:22.030] I said, "Who the hell is he? What's his name?"
+- [14:25.180] "His name is Jensen Huang, NVIDIA."
+- [14:27.850] I said, "What the hell is NVIDIA?
+- [14:29.120] I've never heard of it before."
+- [14:30.320] [laughter]
+- [14:31.520] He said, "You don't want to know about it, sir."
+- [14:34.100] I figured we could go in and we could sort of
+- [14:36.340] break him up a little bit, get him a little competition,
+- [14:39.920] and I found out it's not easy on that business.
+- [14:43.080] I said, "Supposedly we put the greatest minds together.
+- [14:45.800] They work hand-in-hand for a couple of years."
+- [14:48.610] He said, "No, it would take at least 10 years to catch him
+- [14:51.800] if he ran NVIDIA
+- [14:53.260] totally incompetently from now on."
+- [14:55.870] So I said, "All right, let's go on to the next one."
+- [14:59.400] And then, I got to know Jensen, and now I see why Jensen,
+- [15:02.320] we used to end up, what a job.
+- [15:03.890] [applause]
+- [15:05.160] What a job you've done. Man. Great. He's a great guy too.
+- [15:14.960] Lisa Su of AMD. Lisa.
+- [15:18.210] [applause]
+- [15:19.520] Lisa, thank you. Congratulations. Great job.
+- [15:25.510] Shyam Sankar of Palantir.
+- [15:29.440] We buy a lot of things from Palantir.
+- [15:31.980] Where are you? Are we paying our bills?
+- [15:34.520] I think so.
+- [15:35.730] [applause]
+- [15:37.070] We just made a deal with the European Union
+- [15:39.670] where they're going to pay the United States of America
+- [15:43.770] 100% of the cost of all military equipment.
+- [15:47.190] They're going to ship it to the European Union
+- [15:49.250] and then they'll distribute it.
+- [15:51.070] And much of it will go to Ukraine.
+- [15:54.530] It's been a long time since you've heard those words
+- [15:56.650] because we're in for $350 billion,
+- [16:00.090] but now we send it to Europe and Europe pays.
+- [16:02.430] And they were great.
+- [16:04.780] We had a tremendous NATO meeting a few weeks ago.
+- [16:08.130] And it was pretty amazing actually what happened.
+- [16:11.410] They've agreed to go from 2% to 5%.
+- [16:14.430] And they had 2% where they didn't pay.
+- [16:16.150] They have 5% where they've already paid.
+- [16:18.420] That's a big difference.
+- [16:19.620] That's trillions of dollars, actually. Trillions.
+- [16:23.320] But they're going to spend that money in the United States
+- [16:26.230] with our defense companies.
+- [16:27.480] And we're going to send it to them,
+- [16:29.330] and they'll distribute the equipment that we send.
+- [16:32.890] So that's the way it should have been three years ago, frankly.
+- [16:36.860] And Jeff Sprecher,
+- [16:39.270] the other half of that incredible family, is he here?
+- [16:42.550] Is he here? He's a fantastic guy.
+- [16:45.090] International Intercontinental Exchange.
+- [16:47.970] And he's been a friend of mine for a long time.
+- [16:51.230] The husband of Kelly, who's really doing a good job.
+- [16:53.450] You are really doing a good job.
+- [16:55.770] Small business, which is actually big business
+- [16:58.020] if you add it all up, right?
+- [16:59.690] Probably the biggest bank there is,
+- [17:01.900] but they call it small business. And she's done a fantastic job.
+- [17:04.890] Thanks, Kel. Say hello to Jeff.
+- [17:07.320] As we gather this afternoon, we're still in the earliest days
+- [17:10.860] of one of the most important technological revolutions
+- [17:14.370] in the history of the world.
+- [17:16.760] Around the globe, everyone is talking about
+- [17:18.760] artificial intelligence. I find that too artificial.
+- [17:22.310] I can't stand it. I don't even like the name.
+- [17:24.990] I don't like anything that's artificial.
+- [17:26.550] So could we straighten that out, please?
+- [17:27.840] We should change the name.
+- [17:29.150] [laughter]
+- [17:30.380] I actually mean that.
+- [17:31.600] I don't like the name artificial anything
+- [17:33.220] because it's not artificial. It's genius. It's pure genius.
+- [17:38.300] And it's potential to transform every type of human endeavor
+- [17:42.690] and domain of human knowledge from medicine
+- [17:45.440] to manufacturing to warfare and national defense.
+- [17:49.710] Whether we like it or not,
+- [17:51.200] we're suddenly engaged in a fast-paced competition
+- [17:54.520] to build and define this groundbreaking technology
+- [17:58.070] that will determine so much
+- [17:59.580] about the future of civilization itself
+- [18:04.360] because of the genius and creativity of Silicon Valley.
+- [18:08.310] And it is incredible. Incredible genius.
+- [18:11.590] Without question,
+- [18:12.880] the most brilliant place anywhere on earth.
+- [18:15.410] America is the country that started the AI race.
+- [18:20.120] And as President of the United States,
+- [18:22.140] I'm here today to declare that America is going to win it.
+- [18:26.680] We're going to work hard, we're going to win it.
+- [18:28.990] [applause]
+- [18:34.080] Because we will not allow any foreign nation to beat us.
+- [18:37.420] Our children will not live in a planet
+- [18:39.970] controlled by the algorithms of the adversaries
+- [18:44.730] advancing values and interests contrary to our own.
+- [18:48.620] We don't want to have contrary interests.
+- [18:50.400] We want to get along.
+- [18:51.690] And we'll get along with other countries.
+- [18:53.300] We're having a great relationship, as I told you,
+- [18:56.060] with those countries that we mentioned,
+- [18:58.040] with Japan and Indonesia and so many others.
+- [19:02.080] The European Union, we're getting along.
+- [19:04.580] We're getting along very well with China.
+- [19:06.200] Have a lot of respect for President Xi.
+- [19:08.830] We have a great relationship.
+- [19:10.930] And we'll see how it all works out.
+- [19:12.770] But we're getting along with countries very
+- [19:16.300] – It's really been pretty amazing.
+- [19:18.170] I will say that. And it's a good thing.
+- [19:20.110] It's a good thing, not a bad thing.
+- [19:22.330] So from this day forward, it'll be a policy
+- [19:25.160] of the United States to do whatever it takes
+- [19:27.650] to lead the world in artificial intelligence.
+- [19:31.500] Such an important thing happening.
+- [19:33.210] This is really something that nobody expected.
+- [19:36.340] It just popped out of the air, and here we are.
+- [19:40.880] But we will defend our nation, our values, our future,
+- [19:43.890] and our freedom. And it will be really great.
+- [19:47.810] But what we really need to be successful
+- [19:50.240] is a very simple phrase called commonsense.
+- [19:53.810] And that begins with a commonsense application
+- [19:56.700] of artificial and intellectual property rules.
+- [20:01.090] It's so important.
+- [20:02.800] You can't be expected to have a successful AI program
+- [20:05.860] when every single article, book, or anything else
+- [20:08.550] that you've read or studied, you're supposed to pay for.
+- [20:12.000] "Gee, I read a book. I'm supposed to pay somebody."
+- [20:14.050] And we appreciate that, but you just can't do it
+- [20:18.060] because it's not doable.
+- [20:19.830] And if you're going to try and do that,
+- [20:21.470] you're not going to have a successful program.
+- [20:23.510] I think most of the people in the room know what I mean.
+- [20:26.190] When a person reads a book or an article,
+- [20:28.630] you've gained great knowledge.
+- [20:31.140] That does not mean that you're violating copyright laws
+- [20:34.330] or have to make deals with every content provider.
+- [20:39.180] And that's a big thing that you're working on right now.
+- [20:41.820] I know. But you just can't do it.
+- [20:43.330] China's not doing it.
+- [20:44.570] And if you're going to be beating China
+- [20:46.530] – And right now, we're leading China very substantially in AI.
+- [20:49.650] Very, very substantially.
+- [20:50.920] And nobody's seen the amount of work
+- [20:53.470] that's going to be bursting upon the scene.
+- [20:56.990] But you have to be able to play by the same set of rules.
+- [21:01.190] So when you have something, when you read something,
+- [21:04.220] and when it goes into this vast intelligence machine,
+- [21:10.020] we'll call it, you cannot expect to every time,
+- [21:14.020] every single time say,
+- [21:15.340] "Oh, let's pay this one that much. Let's pay this one."
+- [21:17.570] Just doesn't work that way.
+- [21:18.830] Of course, you can't copy or plagiarize an article,
+- [21:22.890] but if you read an article and learn from it,
+- [21:25.370] we have to allow AI to use that pool of knowledge
+- [21:28.170] without going through the complexity
+- [21:30.180] of contract negotiations,
+- [21:31.880] of which there would be thousands
+- [21:34.290] for every time we use AI.
+- [21:37.810] We also have to have a single federal standard,
+- [21:41.230] not 50 different states
+- [21:43.230] regulating this industry of the future.
+- [21:45.230] And some people would say,
+- [21:46.500] "Gee, that's an unpopular thing to say."
+- [21:48.420] I was told before I got up here this is an unpopular thing
+- [21:51.840] because some people, they don't want that.
+- [21:54.830] But I want you to be successful
+- [21:57.860] and you can't have one state holding you up.
+- [22:00.490] You can't have three or four states holding you up.
+- [22:02.910] You can't have a state with standards that are so high
+- [22:05.600] that it's going to hold you up.
+- [22:07.060] You have to have a federal rule and regulation.
+- [22:09.380] Hopefully you'll have the right guy
+- [22:10.690] – [applause]
+- [22:11.890] in this position that's going to supplant the states.
+- [22:18.100] If you are operating under 50 different sets of state laws,
+- [22:23.060] the most restrictive state of all
+- [22:25.950] will be the one that rules.
+- [22:27.620] So you could have a state run by a crazy governor,
+- [22:32.440] a governor that hates you, a governor that's not smart,
+- [22:35.510] or maybe a governor that's very smart,
+- [22:38.120] but decides that he doesn't like the industry
+- [22:40.850] and he can put you out of business
+- [22:42.230] because you're going to have to go
+- [22:43.830] to that lowest common denominator.
+- [22:46.010] We need one common sense federal standard
+- [22:49.110] that supersedes all states, supersedes everybody,
+- [22:53.000] so you don't end up in litigation
+- [22:54.730] with 43 states at one time.
+- [22:57.620] You got to go litigation-free. It's the only way.
+- [23:00.730] And we also have to watch Europe, Asia,
+- [23:03.310] and all foreign countries
+- [23:04.600] so that they don't make rules and regulations that, likewise,
+- [23:08.140] make it impossible for you to do business.
+- [23:11.090] And where you'd have to make everything in AI cater to them
+- [23:14.870] because, again, you'd have to cater to the toughest country
+- [23:17.850] or to the toughest state.
+- [23:19.190] You can't do that because it would ruin it.
+- [23:22.450] I just terminated all of the –
+- [23:24.730] as an example, California car emissions rules,
+- [23:28.050] which were a disaster. A disaster.
+- [23:31.290] It cost them just billions of dollars as an industry,
+- [23:34.950] but thousands of dollars per car.
+- [23:38.060] The emission rule standard.
+- [23:40.350] Because they were making the production
+- [23:41.910] of an automobile almost impossible
+- [23:44.610] and at a tremendously higher cost, much more expensive
+- [23:48.450] than it should cost for very little gain,
+- [23:50.410] for actually, in my opinion, negative gain.
+- [23:53.450] The automobile was worse.
+- [23:55.780] Under this administration, our innovation will be unmatched
+- [24:00.390] and our capabilities will be unrivaled.
+- [24:03.480] And with the help of many of the people in this room,
+- [24:05.640] America's ultimate triumph will be absolutely unstoppable.
+- [24:09.990] We will be unstoppable as a nation.
+- [24:12.730] Again, we're way ahead and we want to stay that way.
+- [24:14.900] We can't let individual smaller units stop it
+- [24:19.470] because that's the only thing that can stop it
+- [24:21.460] and can really mess it up. As with any such breakthrough,
+- [24:24.680] this technology brings the potential for bad
+- [24:27.940] as well as for good, for peril as well as for progress.
+- [24:32.180] But the daunting power of AI is the –
+- [24:35.560] really, it's not going to be a reason
+- [24:38.100] for retreat from this new frontier.
+- [24:41.430] On the contrary, it is the more reason
+- [24:43.960] we must ensure it is pioneered first and best.
+- [24:48.030] We have to have the best, the first –
+- [24:50.590] We are the best and the first pioneers.
+- [24:53.280] And we're going to be really putting a nation that we love,
+- [24:58.090] America, we're going to be putting it first.
+- [25:00.210] I have an expression, America first.
+- [25:02.110] Make America great again.
+- [25:03.480] A lot of great expressions, but they're all so true.
+- [25:06.600] Make America great again.
+- [25:07.970] We're going to make this industry absolutely the top
+- [25:11.710] because right now, it's a beautiful baby that's born.
+- [25:16.020] We have to grow that baby and let that baby thrive.
+- [25:20.680] We can't stop it. We can't stop it with politics.
+- [25:24.240] We can't stop it with foolish rules and even stupid rules.
+- [25:28.260] At the same time, we want to have rules,
+- [25:31.260] but they have to be smart. They have to be brilliant.
+- [25:33.940] They have to be more brilliant than even the technology itself.
+- [25:37.860] Surely, there will be challenges on the path ahead,
+- [25:40.600] but together, we'll meet them and transcend them all.
+- [25:43.770] We are Americans and we are Americans first.
+- [25:47.050] A couple of people I know that don't happen to be from here,
+- [25:49.520] but I wish you a lot of luck anyway.
+- [25:50.830] [laughter]
+- [25:52.030] I was looking at three people that are not Americans,
+- [25:54.920] but they're very good people. Please treat them nicely.
+- [25:59.500] But we do not shrink from the future or cower
+- [26:02.260] at the face of uncertainty. We dominate the future.
+- [26:05.210] We conquer new frontiers. And we control our own fate.
+- [26:08.830] And we determine, by doing that, our own destiny.
+- [26:12.790] Winning this competition will be a test of our capacities,
+- [26:16.660] unlike anything since the dawn of the space age.
+- [26:19.860] Believe that.
+- [26:21.190] It's hard to believe, as the President,
+- [26:24.720] the amount of enthusiasm for this one industry.
+- [26:29.820] I can talk about cars where we're doing incredibly well.
+- [26:32.780] We have car companies moving in all the time,
+- [26:35.510] but I talk about other industries.
+- [26:37.630] Everybody's saying this is going to dominate the world,
+- [26:40.320] going to dominate every industry that ever conceived.
+- [26:43.280] I don't know if that's true.
+- [26:45.000] I don't know if it's true, but I can tell you
+- [26:47.870] that a lot of very brilliant people think it is true.
+- [26:50.580] It'll dominate everything.
+- [26:51.840] It will challenge us to marshal all of our strength
+- [26:55.310] and flex the muscles of American ingenuity
+- [26:58.020] and resolve like probably never before.
+- [27:01.840] It will require us to blast through obsolete systems,
+- [27:05.620] cut through thickets of regulation.
+- [27:07.960] We've got to get rid of some of the regulation,
+- [27:10.180] but we want good regulation.
+- [27:11.870] And we build the industrial bedrock of our country.
+- [27:15.980] And perhaps most importantly, winning the AI race
+- [27:18.640] will demand a new spirit of patriotism
+- [27:21.620] and national loyalty in Silicon Valley
+- [27:25.200] and long beyond Silicon Valley.
+- [27:28.270] [applause]
+- [27:34.140] For too long, much of our tech industry
+- [27:37.770] pursued a radical globalism that left millions of Americans
+- [27:41.680] feeling distrustful and betrayed.
+- [27:44.150] And you know that. Everybody knows that.
+- [27:45.930] Everybody in this room certainly does.
+- [27:48.670] Many of our largest tech companies have reaped
+- [27:51.160] the blessings of American freedom,
+- [27:53.910] while building their factories in China,
+- [27:56.040] hiring workers in India, and slashing profits in Ireland.
+- [27:59.890] You know that. All the while dismissing
+- [28:02.590] and even censoring their fellow citizens right here at home.
+- [28:06.890] Under President Trump, those days are over.
+- [28:09.780] We need US technology companies to be all in for America.
+- [28:14.120] We want you to put America first.
+- [28:15.960] You have to do that. That's all we ask.
+- [28:18.350] That's all we ask.
+- [28:19.880] [applause]
+- [28:22.440] To partner with our tech geniuses
+- [28:24.850] and achieve in this vision,
+- [28:26.050] today we're releasing the White House AI Action Plan.
+- [28:30.810] Big stuff. Signing it right after this.
+- [28:33.260] In fact, I see it sitting right there.
+- [28:34.980] Maybe I should just sign it right now.
+- [28:37.210] Who the hell has to make the rest of this speech? Right?
+- [28:40.040] [laughter]
+- [28:41.490] But here are the pillars of the strategy.
+- [28:43.740] First, my administration will use every tool at our disposal
+- [28:47.900] to ensure that the United States can build
+- [28:50.460] and maintain the largest, most powerful,
+- [28:53.200] and most advanced AI infrastructure
+- [28:55.730] anywhere on the planet.
+- [28:57.560] America needs new data centers,
+- [28:59.710] new semiconductor and chip manufacturing facilities,
+- [29:03.490] new power plants and transmission lines.
+- [29:06.070] And under my leadership,
+- [29:07.920] we're going to get that job done.
+- [29:10.140] And it's going to be done with certainty
+- [29:12.050] and with environmental protection and all of the things
+- [29:15.530] that we have to do to get it done properly.
+- [29:17.920] Virtually all of these large capital investments can be
+- [29:21.240] and should be made by the private sector.
+- [29:23.870] And they want to do that.
+- [29:25.170] They just want to be able to do it.
+- [29:27.270] But for that reason, America must once again
+- [29:29.570] be a country where innovators are rewarded with a green light,
+- [29:33.300] not strangled with red tape so they can't move,
+- [29:36.520] so they can't breathe. And that's not going to happen.
+- [29:38.650] You're going to see things that you've never seen
+- [29:40.250] in this country before so often.
+- [29:43.120] And I've been watching for many years.
+- [29:44.750] I've watched regulation.
+- [29:45.960] I've been a victim of regulation.
+- [29:47.610] A zone change. It takes six years
+- [29:50.140] for a building in Manhattan or whatever.
+- [29:52.750] But I was good at zone changes, but it took a long time.
+- [29:56.510] By the time you got the zoning, the market changed.
+- [29:58.620] You didn't want to build the building. You say, "Well."
+- [30:00.850] But in some cases, that made you lucky, didn't it?
+- [30:03.220] And some could not.
+- [30:04.610] Too many people understand that in this room.
+- [30:06.550] But in some cases, waiting for that approval
+- [30:09.460] as the market collapsed was a good thing,
+- [30:11.280] not a bad thing.
+- [30:12.770] But it's time to reclaim our heritage
+- [30:15.070] as a nation of builders.
+- [30:16.990] And that's why upon taking office,
+- [30:19.370] I signed a historic executive order directing that every one,
+- [30:24.140] and this is so important, for every new regulation,
+- [30:27.830] 10 old regulations must be immediately eliminated.
+- [30:31.590] [applause]
+- [30:32.790] So we have old regulations that clog up the books
+- [30:37.160] that don't even mean anything anymore.
+- [30:38.980] In my first term, I had more regulation cuts
+- [30:43.220] than any president in history times four.
+- [30:46.620] And that included two term presidents,
+- [30:49.640] where you're talking about eight years.
+- [30:52.210] We had more than any other president,
+- [30:54.390] and I think we may even top it this year.
+- [30:56.770] We may very well be able to top it during this period of time
+- [31:00.100] because you really, you are a regulation-prone group
+- [31:04.930] and we're looking to get those regulations out of your way
+- [31:07.710] so you can use your genius.
+- [31:09.230] Earlier this month,
+- [31:10.680] we also enacted the largest tax cuts in American history
+- [31:13.980] when I signed the One Big Beautiful Bill into law.
+- [31:18.530] [applause]
+- [31:21.540] And I think the most important thing in the whole tax
+- [31:26.870] cut in terms of pure economics,
+- [31:29.810] and I think one of the reasons that my first –
+- [31:31.830] we had the most successful economy in history
+- [31:33.760] during my first term,
+- [31:35.040] and I think this is going to blow it away.
+- [31:36.480] So far it is, and I think this is going to blow it away,
+- [31:40.410] but the reason we had was I had expensing at 100%.
+- [31:46.050] And what we did is we included 100%
+- [31:49.040] in this bill expensing for all capital expenditures,
+- [31:52.100] including investments in factories
+- [31:53.970] and equipment and structure.
+- [31:55.850] Structure wasn't included last time.
+- [31:57.640] So even structure and you're able to write it
+- [32:00.250] all off immediately. That's the biggest thing.
+- [32:02.440] Not 38 years, not 42 years,
+- [32:04.640] you're able to write it all off immediately.
+- [32:07.120] And this time we've made it for 10 years, not for one year.
+- [32:11.130] We've made it for 10 years,
+- [32:12.480] so you have a much longer period.
+- [32:15.150] But I'd say get out and take advantage of it.
+- [32:17.100] I think that's one of the reasons
+- [32:18.490] that we had such an incredible success with the first tax cuts.
+- [32:24.050] And one of the things that this bill does
+- [32:25.950] is it extends the first tax cuts and makes them permanent.
+- [32:31.250] And in addition to that,
+- [32:32.630] we were granted other taxes like no tax on tips,
+- [32:37.020] no tax on social security, no tax on overtime,
+- [32:40.760] a lot of great things.
+- [32:42.040] One of the things that I mentioned,
+- [32:43.340] not so pertinent here,
+- [32:44.670] but if you're in the automobile business, it's pertinent.
+- [32:46.850] I said, "Why is it that people like us always are looking
+- [32:50.810] for expenses and deductions?"
+- [32:53.630] And people that buy automobiles that really have to go out
+- [32:57.910] and borrow money to buy a car,
+- [32:59.750] why aren't they allowed to deduct the interest
+- [33:03.010] on their loan to buy a car from their income tax?
+- [33:06.790] And we got it approved. We got it approved.
+- [33:08.960] And that is such a big thing and I think that's going to be
+- [33:11.070] such a big thing for the automobile industry.
+- [33:13.270] And we're going to be making more cars, within a few years.
+- [33:16.180] We're going to be making more cars than we made
+- [33:18.560] in the very beginning, in the super prime.
+- [33:20.660] We lost almost 50% of our automobile business to Mexico,
+- [33:25.600] Canada, and various other places,
+- [33:27.750] as you know, in Europe and in Asia,
+- [33:31.040] and now we're getting it back.
+- [33:32.480] We're getting it back in record numbers
+- [33:34.350] that I think we're going to be topping any amount.
+- [33:36.390] In a few years we'll be making more automobiles
+- [33:38.780] than we've ever made in the history of our country,
+- [33:41.410] including what I call prime time.
+- [33:44.490] My administration is also pursuing a future
+- [33:47.760] of all-out American energy dominance.
+- [33:50.270] And on day one I terminated the Green New Scam.
+- [33:53.420] You know what that was? You were all victims to it.
+- [33:56.220] Perhaps the second or third-greatest scam
+- [33:59.030] in the history of our country.
+- [34:00.380] I would say the first was Russia, Russia, Russia.
+- [34:03.650] And we had a couple of others too,
+- [34:06.280] but the Green New Scam was one of the greatest.
+- [34:10.230] It's so ridiculous what they've made you do.
+- [34:13.930] The carbon footprint,
+- [34:15.830] they talked about the carbon footprint,
+- [34:17.540] and then Obama hops onto a 747 Air Force One,
+- [34:21.390] and flies to Hawaii to play a round of golf and comes back.
+- [34:24.540] What about the carbon footprint? No, we didn't like that.
+- [34:28.470] And what Biden has done is absolutely terrible.
+- [34:32.850] He made it impossible,
+- [34:34.130] almost impossible for people to do business.
+- [34:36.180] Not even talking about the border
+- [34:38.180] where millions and millions of people float into our country,
+- [34:41.130] many from prisons, from jails, from gangs,
+- [34:44.890] from mental institutions all over the world.
+- [34:47.290] No, we're not doing that. We have to get them out.
+- [34:49.650] We've got 11,888 murderers.
+- [34:53.390] Many of them committed more than one murder,
+- [34:56.170] many of them, more than 50% committed more murders.
+- [34:58.900] We're getting them out of our country,
+- [35:00.350] or in some cases, they're so bad we're not getting them out.
+- [35:03.460] We're having to lock them up
+- [35:04.850] because we don't want them ever to come back,
+- [35:06.660] no matter how good we're doing. Last month you probably read,
+- [35:11.120] we had zero people enter our country illegally.
+- [35:17.390] And over the last number of years
+- [35:19.190] you'd have hundreds of thousands,
+- [35:20.720] literally hundreds of thousands of people
+- [35:22.680] a week pour into our country, totally unvetted and unchecked,
+- [35:27.310] and what the hell were they thinking?
+- [35:29.680] What they've done to our country is so sad
+- [35:32.600] and we can never forget it.
+- [35:34.670] But we are unleashing all forms of energy,
+- [35:36.980] including natural gas, oil and clean, beautiful coal.
+- [35:40.790] I instructed my people,
+- [35:43.110] in the form of Chris and Doug in particular,
+- [35:45.780] you are not allowed to say the word coal
+- [35:47.790] without saying clean, beautiful in front of it.
+- [35:51.160] You can only say clean, beautiful coal.
+- [35:53.080] It's a little embarrassing.
+- [35:54.840] We had somebody making a speech the other day, right?
+- [35:56.930] And he mentioned the word coal about 30 times
+- [35:59.060] because that was the subject,
+- [36:00.500] and he kept going clean, beautiful.
+- [36:01.880] I wanted to say, okay, just take it easy.
+- [36:03.570] [laughter] You could just
+- [36:04.790] – It got a little bit crazy, right, Doug?
+- [36:07.790] But China's using it.
+- [36:11.260] They're building now 57 big power plants all fueled by coal
+- [36:16.680] and we have to compete, we'll have to win,
+- [36:19.140] and we're going to have clean, beautiful coal.
+- [36:21.130] But we have more coal than any –
+- [36:22.410] we have more anything in terms of energy
+- [36:25.020] than anybody, oil and gas. We also have more coal.
+- [36:27.990] In May, I also signed an executive order
+- [36:30.210] to rapidly begin construction of safe,
+- [36:32.490] reliable nuclear reactors. That's a big thing now.
+- [36:36.790] [applause]
+- [36:39.630] And many of you are going to be using nuclear.
+- [36:43.940] I had problems with nuclear, saw some of the things,
+- [36:47.880] but what they've done with nuclear
+- [36:49.160] is like what you've done with AI and other things.
+- [36:51.880] It's incredible actually. It's long term.
+- [36:55.600] It's inexpensive. It's safe.
+- [37:00.210] What they've done is really amazing.
+- [37:02.430] So we opened up the industry, very strict rules,
+- [37:05.490] but we opened up the industry
+- [37:06.790] and some of you're going to choose nuclear over oil and gas
+- [37:09.480] or whatever it might be. Under the last year of Biden,
+- [37:12.730] China added 11 times as much power generation capacity
+- [37:16.710] as did the United States. Can you imagine that, 11 times?
+- [37:20.810] Under the Trump administration, we will be saying
+- [37:24.840] those very famous campaign words,
+- [37:26.570] drill, baby drill and build, baby build.
+- [37:29.030] And we will be adding at least as much electric capacity
+- [37:33.450] as China.
+- [37:34.700] We think we're going to catch them
+- [37:36.240] and maybe even have something a little bit extra.
+- [37:40.040] They going very rapidly but so are we.
+- [37:41.760] [applause]
+- [37:42.960] And we'll be doing at least as much,
+- [37:45.030] and every company will be given the right
+- [37:46.890] to build their own power plant.
+- [37:48.600] So when you build, you can build your power plant with it
+- [37:51.680] and you are essentially going to become your own utility.
+- [37:54.800] It's a utility to yourselves.
+- [37:56.880] And as I said, any excess energy,
+- [37:58.900] you're going to sell back to the grid
+- [38:01.140] and make plenty of money doing it.
+- [38:02.730] As a result of these pro-American policies,
+- [38:05.170] since my election, we're seeing trillions
+- [38:07.760] and trillions of dollars in new investments.
+- [38:11.010] So at this moment we have almost $17 trillion
+- [38:15.300] coming into this country.
+- [38:16.640] There's never been a period of time like that,
+- [38:18.490] and that's in a period of a few months.
+- [38:20.730] [applause]
+- [38:22.250] In a few months, Meta, Amazon, Google,
+- [38:26.100] Microsoft are all investing $320 billion
+- [38:30.490] or more in data centers and AI infrastructure this year.
+- [38:33.840] Those companies are really, they're really going at it.
+- [38:37.870] And they're very smart people, very good people.
+- [38:40.860] I got to know a lot of them.
+- [38:42.190] I didn't like them so much first term when I was running.
+- [38:45.370] I wouldn't say I was thrilled with them,
+- [38:47.920] but I've gotten to know them and like them,
+- [38:49.920] and I think they got to like me,
+- [38:51.300] but I think they got to like my policies
+- [38:53.180] maybe much more than me.
+- [38:55.420] NVIDIA has committed $500 billion
+- [38:58.870] over the next four years. Thank you, Jensen.
+- [39:01.000] I'm sure that'll be a good investment.
+- [39:02.860] If you're doing it, it's good.
+- [39:04.610] [applause]
+- [39:05.850] Thank you very much. It's a great statement.
+- [39:08.870] Last week I was in Pennsylvania as 20 companies announced
+- [39:11.950] $92 billion with David McCormick,
+- [39:14.930] senator, a great guy from Pennsylvania.
+- [39:17.500] $92 billion in energy and data center projects,
+- [39:21.020] including what will soon be the largest natural gas power plant
+- [39:25.470] anywhere in North America.
+- [39:27.190] They're going to town. It's already under construction,
+- [39:29.460] the largest in North America by far.
+- [39:32.150] For decades, we had leaders who spent their time
+- [39:35.040] focused on building up foreign nations.
+- [39:38.170] Under the Trump administration, we are going to have leaders
+- [39:41.270] who are going to build up our nation.
+- [39:44.080] This colossal investment in AI infrastructure,
+- [39:46.920] and many other industries for that matter,
+- [39:49.090] such as automobiles and so many other things,
+- [39:51.850] will also create thousands and thousands of great paying jobs.
+- [39:56.520] The kind of jobs we want,
+- [39:57.790] including lots of blue-collar jobs.
+- [40:01.100] And our numbers are very good right now,
+- [40:03.650] but when you see these numbers in two years from now.
+- [40:06.850] I will mean higher wages and more opportunity
+- [40:09.710] for millions of energy workers, HVAC technicians,
+- [40:13.940] engineers, electricians,
+- [40:15.620] and the hardworking citizens who make our country run.
+- [40:19.070] These are great people that make our country actually run.
+- [40:22.450] To ensure America maintains the world-class infrastructure,
+- [40:25.750] we need to win, today I will sign a sweeping executive
+- [40:28.590] order to fast track federal permitting, streamline reviews,
+- [40:32.800] and do everything possible to expedite construction
+- [40:35.600] of all major AI infrastructure projects.
+- [40:38.900] And this will be done.
+- [40:41.450] You will get so good a service in so many ways,
+- [40:44.350] not only from Lee with the environment,
+- [40:46.150] but you need many other types of permits
+- [40:48.240] and you're going to go so fast.
+- [40:50.170] You're going to say, "Well, wait a minute, this is too fast.
+- [40:52.050] I didn't expect to go this quickly.
+- [40:53.660] This is a problem. I may cause a problem in opposite."
+- [40:56.950] But including factories,
+- [40:58.170] data centers and power plants of all kinds,
+- [41:00.660] the United States will have total industrial
+- [41:03.610] and technological supremacy.
+- [41:06.350] The second pillar of our action plan for AI dominance
+- [41:09.750] is to get the entire world
+- [41:11.180] running on the backbone of American technology.
+- [41:14.650] And I think that's very much happening right now
+- [41:16.790] and I think it's going to happen.
+- [41:18.230] The last administration was obsessed
+- [41:21.060] with imposing restrictions on AI,
+- [41:23.470] including extreme restrictions on its exports.
+- [41:26.370] As you know, they made it very difficult to export.
+- [41:30.010] This alienated American partners and drove even our friends
+- [41:33.940] into the arms of China and other countries.
+- [41:37.260] That's why upon taking office,
+- [41:39.320] I repealed the so-called Biden Diffusion rule,
+- [41:43.380] can you imagine, that that crippled American AI exports.
+- [41:47.840] The Biden Diffusion rule,
+- [41:49.340] I wonder who came up with that name
+- [41:50.620] because he has no idea what it is.
+- [41:53.250] He had no idea what it was. He came up with a rule.
+- [41:56.130] I wonder who drew that one. I wonder.
+- [41:57.600] Was that signed by the autopen, I think,
+- [41:59.660] because they went to him and said,
+- [42:02.150] "We're going to do a diffusion rule, Mr. President."
+- [42:05.270] "What? What?"
+- [42:06.550] "It's okay. The autopen will take care of it."
+- [42:09.210] It's one of the greatest scandals
+- [42:10.520] in the history of our country, let me tell you.
+- [42:12.170] Under my administration, we will maintain necessary protections
+- [42:16.510] for our national security, but we will never forget
+- [42:20.150] that the greatest threat of all is to forfeit the race
+- [42:23.710] and force our partners into rival technology.
+- [42:27.430] We're not going to do that. We're not going to do that.
+- [42:30.360] [applause]
+- [42:32.230] Okay. Not going to let that happen.
+- [42:34.910] That could be the end.
+- [42:36.990] When I traveled to the Middle East and May,
+- [42:40.190] every leader I met was thrilled to do business
+- [42:42.680] with American tech firms and with America.
+- [42:45.490] And they were all thrilled to meet me, believe it or not.
+- [42:47.730] It's hard to believe, isn't it, but they were.
+- [42:49.870] By the way, the most powerful woman
+- [42:51.760] in the world is here today. Susie Wiles, stand up please.
+- [42:54.010] [applause]
+- [42:55.220] Susie Wiles, Chief of Staff.
+- [43:01.020] She can take out a country with a mere phone call.
+- [43:05.020] No, they just voted her the most powerful woman
+- [43:06.940] anywhere in the world.
+- [43:08.210] She might be the most powerful person in the world, I think.
+- [43:10.880] But she's done a fantastic…
+- [43:12.140] hasn't she done a good job though, huh?
+- [43:15.960] Good.
+- [43:18.900] But we're going to come home with trillions
+- [43:21.540] and trillions of dollars in deals
+- [43:23.560] and that's the way it is. But the king of Saudi Arabia…
+- [43:26.970] We met three great leaders. I went to three countries,
+- [43:29.560] predominantly king of Saudi Arabia said –
+- [43:32.350] and I can say that Qatar and UAE,
+- [43:35.660] the leaders, brilliant guys, great people,
+- [43:38.890] they said the same thing. They said, "You know what?
+- [43:41.020] That one year ago, your country was dead.
+- [43:44.500] It was a dead country." They were looking at China,
+- [43:47.070] they were looking at other places, "
+- [43:48.520] but you had a dead country. And today Mr. president,
+- [43:52.100] you have the hottest country anywhere in the world."
+- [43:55.370] They said that and they meant it so strongly.
+- [44:00.340] And when I went to NATO two weeks ago,
+- [44:02.270] where we made the deal where they pay 5% instead of 2%,
+- [44:05.950] they said the same exact thing.
+- [44:07.950] They said, "Boy, I tell you what a difference it is.
+- [44:10.470] A year ago, you people were dead.
+- [44:13.340] We didn't think you were going to make it as a country.
+- [44:15.090] Today you're the hottest country in the world."
+- [44:17.410] They all said it.
+- [44:18.770] All those leaders said it, 30 of them.
+- [44:20.480] [applause]
+- [44:21.820] So today I'm signing another major executive order
+- [44:24.680] that will turn America into an AI export powerhouse.
+- [44:29.960] [applause]
+- [44:33.220] Under this order, Secretary Lutnick
+- [44:35.730] and Secretary Marco Rubio.
+- [44:37.790] Marco Rubio is doing a great job as Secretary of State.
+- [44:41.740] Will work to rapidly expand American AI
+- [44:44.560] exports of all kinds,
+- [44:45.950] from chips to software to data storage of all kinds.
+- [44:49.680] And that's very important.
+- [44:50.970] That's going to give you the freedom
+- [44:52.310] to do what you want to do.
+- [44:53.960] And third, once and for all, we are getting rid of woke.
+- [44:57.920] Is that okay? I know you had to hire all woke people.
+- [45:01.500] [applause]
+- [45:02.810] I heard you had to hire all woke people
+- [45:04.570] under some of these things.
+- [45:05.830] How about the chips where they give you the chip nonsense
+- [45:08.950] where they give you billions of dollars
+- [45:11.120] if you only build a chip company?
+- [45:12.780] These people have plenty of money.
+- [45:14.010] They don't need the money.
+- [45:15.260] They need the permits, they need the rights to do it.
+- [45:18.490] They don't want to pay tariffs,
+- [45:19.880] so they come and they build here.
+- [45:21.180] That's why they're coming here.
+- [45:22.890] Number one, they like me,
+- [45:25.810] but they like not having to pay tariffs
+- [45:28.310] even more, and they're coming.
+- [45:30.280] But Biden gave billions of dollars
+- [45:31.840] to companies that have nothing but cash.
+- [45:34.400] And they don't say where to build,
+- [45:35.670] they just give them money. But here's the problem;
+- [45:38.200] they have to hire lots of woke people and they say,
+- [45:42.870] "woke isn't for this particular industry."
+- [45:45.380] We've noticed that. They're not for a lot of industries
+- [45:48.390] if you want to know the truth?
+- [45:50.110] So the guidelines were impossible.
+- [45:51.920] They're going to give you money,
+- [45:53.240] but you got to hire this and this and this and that.
+- [45:56.190] And I don't want to get into it too much
+- [45:59.260] because I don't want any controversy today.
+- [46:02.080] But you have to hire a lot of people
+- [46:03.980] that were not into this particular world that you're in.
+- [46:07.090] And so therefore, all the money they gave
+- [46:08.810] didn't mean a damn thing.
+- [46:10.680] One of Biden's worst executive orders
+- [46:12.740] established toxic diversity, equity and inclusion ideology
+- [46:17.170] as a guiding principle of American AI development.
+- [46:20.860] You immediately knew that was the end of your development.
+- [46:22.760] [laughter]
+- [46:24.040] But the American people do not want
+- [46:26.180] woke Marxist lunacy in the AI models,
+- [46:29.430] and neither do other countries. They don't want it.
+- [46:31.870] They don't want anything to do with it.
+- [46:33.260] That's why on day one, I very proudly terminated
+- [46:36.550] Joe Biden's order on woke AI effective immediately.
+- [46:40.540] You don't have any of those. Crazy rule, crazy rule.
+- [46:43.930] [applause]
+- [46:45.420] And in just a moment, I will be signing an order
+- [46:48.180] banning the federal government
+- [46:49.950] for procuring AI technology that has been infused
+- [46:53.320] with partisan bias or ideological agendas,
+- [46:56.210] such as critical race theory, which is ridiculous.
+- [46:58.940] And from now on,
+- [47:00.230] the US government will deal only with AI
+- [47:03.250] that pursues truth, fairness, and strict impartiality.
+- [47:07.450] We're not going to go through the craziness
+- [47:09.420] that we've gone through for the last four years.
+- [47:13.350] And then we skip four and then you go back and it started then,
+- [47:17.220] but it hung around a little while.
+- [47:18.840] Now it's not hanging around at all.
+- [47:20.470] Now, it's actually very uncool.
+- [47:22.340] As somebody told me the other day,
+- [47:24.040] "It's so uncool to be woke."
+- [47:26.510] I encourage all American companies to join us
+- [47:29.250] in rejecting poisonous Marxism in our technology.
+- [47:32.830] It'll be very interesting to see what's happening in New York
+- [47:35.860] because they're actually thinking about
+- [47:37.250] electing a communist in New York.
+- [47:39.070] They like to call him a socialist.
+- [47:40.370] He's not a socialist. He's a communist.
+- [47:42.410] But don't worry, you're going to be okay.
+- [47:44.050] He still has to get his money from the White House
+- [47:45.960] and that's not going to happen until he shapes up.
+- [47:49.580] [applause]
+- [47:52.330] But as an example,
+- [47:54.390] we are not going to allow men to play in women's sports.
+- [47:58.480] That's an example. That's one.
+- [48:00.810] [applause]
+- [48:03.620] And they say that's an 80-20 number.
+- [48:07.120] They say 80% would be against it.
+- [48:09.870] No, it's not 80-20. It's about 97-3.
+- [48:13.070] And I don't know who the three are.
+- [48:14.610] I've never seen anybody. I've never had a person,
+- [48:17.160] I see everybody, I'm a very open person.
+- [48:20.120] They come up to me and they talk to me.
+- [48:21.530] I've never had anybody come up.
+- [48:23.390] "Sir, you have to let men play in women's sports."
+- [48:26.150] I've never had it.
+- [48:27.660] I deal with hundreds and thousands of people.
+- [48:30.230] Every time I talk to somebody, nobody's ever
+- [48:32.670] – they talk about AI, they talk about everything.
+- [48:35.330] But they've never said, "You got to allow – this is ridiculous.
+- [48:38.180] Men should be allowed to play in women's sports."
+- [48:42.570] It's sort of crazy, isn't it? Huh?
+- [48:44.570] You have to see. Did you see the race?
+- [48:46.140] It was a race, a long-distance marathon,
+- [48:48.800] one of those all-day deals.
+- [48:50.280] And we had one of the great female runners,
+- [48:53.110] and we had one of the great male runners.
+- [48:54.810] And at the end of the day,
+- [48:56.050] he won the race by five hours and 14 seconds.
+- [49:02.400] They waited around for the really good athlete female.
+- [49:05.790] It's very demeaning to women, I want to tell you that.
+- [49:08.210] But they waited. Her parents were waiting for hours.
+- [49:11.390] Somebody said, "Why don't you go back to the hotel and sleep
+- [49:13.590] for a few hours and come back and meet your daughter?"
+- [49:15.680] This is what they do.
+- [49:16.880] You got to see the weightlifting records, though.
+- [49:18.600] They're the best of all. Woman lifted 212 pounds.
+- [49:22.310] It was a world record. It held for 18 years,
+- [49:25.590] and now a man who transitioned came up and looked at the bar.
+- [49:32.500] "How much is it?" "212 pounds." "Oh, let me try it."
+- [49:39.760] I think he broke the record by 109 pounds.
+- [49:42.850] It's going to be a long time.
+- [49:44.190] It's going to be a long time before a woman catches that.
+- [49:47.460] And these are great athletes and great people,
+- [49:49.270] and it's demeaning. And who the hell wants this?
+- [49:52.090] We're off of that whole standard
+- [49:53.910] because I just tell you those as examples.
+- [49:56.360] We're off of it. The reason the last administration
+- [49:58.840] was so eager to regulate and restrict AI
+- [50:02.030] was so they could limit this technology
+- [50:04.820] to just a few large companies,
+- [50:07.270] allowing them to centralize it, censor it,
+- [50:09.880] control it, weaponize it. And they would weaponize.
+- [50:12.810] They're a very dishonest group of people.
+- [50:14.510] You probably saw that because we caught them in the act.
+- [50:16.980] We really caught them.
+- [50:18.310] We had it before, but now we really have them.
+- [50:20.670] We have it where it counts.
+- [50:21.890] But this is the exact opposite of my approach.
+- [50:25.250] The unique strength of the American tech industry
+- [50:28.340] has always come from its startups and small tech.
+- [50:31.460] It comes through small. Jensen was small.
+- [50:33.860] Well, you have a small, I think so.
+- [50:35.300] When you started in your bedroom,
+- [50:37.230] I think you were small, right? You started as very small,
+- [50:40.530] and now he's really become very amazing.
+- [50:44.120] If you regulate them too much,
+- [50:45.780] you kill the source of American genius and technological power.
+- [50:50.290] I believe that Joe Biden had a plan to lose the AI race.
+- [50:54.720] I think he wanted to lose it
+- [50:56.040] because his plan would never have worked.
+- [50:57.740] It would've never been successful.
+- [50:59.260] You would've spent a lot of money
+- [51:00.540] and you wouldn't have been able to win.
+- [51:02.280] They didn't allow you to win.
+- [51:04.350] But we have a plan which only admires
+- [51:07.690] and respects the winners.
+- [51:09.550] Every citizen should take incredible pride
+- [51:11.860] in the inspiring feats of American innovators
+- [51:14.840] who are pushing the bounds of human knowledge and achievement.
+- [51:19.290] The people of Open AI, Google, Meta,
+- [51:23.040] and countless startups are proving once again
+- [51:26.240] that America is just impossible to beat.
+- [51:31.760] You're not going to be beaten.
+- [51:33.110] We're not going to let that happen.
+- [51:35.160] When you do your best, when you work your hardest,
+- [51:37.290] and when you're allowed to be free of horrible,
+- [51:40.290] foolish regulation. And can have regulation,
+- [51:43.190] but it's going to be sensible, smart regulation,
+- [51:46.290] there's nobody who's going to beat you.
+- [51:48.250] As we push even further into this exciting frontier,
+- [51:51.160] let us never forget that all of this prosperity
+- [51:54.780] and progress has come from the culture of freedom
+- [51:57.500] and hard work, merit, ambition, and risk-taking passed down
+- [52:02.220] from one generation of Americans to the next.
+- [52:05.520] Silicon Valley rose to wealth, fame,
+- [52:07.830] and glory by exemplifying these values.
+- [52:10.580] And it will win this race, not by rejecting them,
+- [52:13.580] but by embracing them like they have never been embraced before.
+- [52:19.110] We must put America first.
+- [52:20.670] This is a nation that invented the light bulb,
+- [52:24.490] the telegraph, the television, the telephone,
+- [52:27.850] the computer chip, the smartphone,
+- [52:30.640] the GPS, the integrated circuit, and even the Internet.
+- [52:35.260] Basically, we invented everything.
+- [52:38.160] What is left? We invented everything.
+- [52:40.850] And now it's AI.
+- [52:44.310] We invented everything.
+- [52:46.160] Does anyone have anything else to say?
+- [52:50.460] And now we're going to take it to a new level.
+- [52:52.540] But Americans were the first to fly a plane,
+- [52:56.280] first to harness the atom,
+- [52:57.660] and first to plant our flag on the Moon.
+- [53:00.730] We mastered the industrial age, we created the digital age,
+- [53:04.330] and now we are leading the world into the golden age indeed,
+- [53:08.540] the golden age of America. With your help, that golden age
+- [53:12.960] will be built by American workers.
+- [53:15.490] It will be powered by American energy.
+- [53:17.690] It will be run on American technology,
+- [53:20.660] improved by American artificial intelligence.
+- [53:23.550] And it will make America richer, stronger, greater freer,
+- [53:27.730] and more powerful than ever before.
+- [53:31.150] And I will now do my share by going and signing a name.
+- [53:35.270] Without an autopen, I will sign it.
+- [53:38.510] If we had one, I wouldn't use it anyway.
+- [53:41.280] But we will sign it autopen free,
+- [53:43.850] and we will say, "Donald J. Trump."
+- [53:46.140] God bless America.
+- [53:47.390] And God bless you, and good luck because the race has just begun
+- [53:51.270] and you're going to win it. Thank you very much, everybody.
+- [53:55.240] [applause]
+- [54:01.630] Thank you.
+- [54:14.380] The Press: Mr. President, the first executive order
+- [54:17.280] that we've prepared for your signature today
+- [54:20.330] relates to federal permitting for data center infrastructure.
+- [54:24.910] As you mentioned during your speech,
+- [54:26.490] this is a crucial issue
+- [54:27.720] affecting the entire AI industry.
+- [54:30.050] What this executive order will do
+- [54:32.120] is establish fast-track permitting
+- [54:34.820] and ensure that the federal government
+- [54:36.550] is working to get data centers approved
+- [54:39.590] and through the permitting pipeline
+- [54:41.020] as quickly as possible.
+- [54:59.020] The President: Okay.
+- [55:01.050] [applause]
+- [55:08.850] The Press: As you said before, sir,
+- [55:10.240] it's absolutely essential that American AI models
+- [55:13.880] and the American AI industry
+- [55:16.550] dominates the future of this industry around the world.
+- [55:19.310] What this next executive order will do
+- [55:22.150] is promote through various instrumentalities
+- [55:25.380] of the federal government,
+- [55:27.050] the export abroad of American AI models
+- [55:29.860] to ensure American AI dominance in the future.
+- [55:34.120] [applause]
+- [55:48.350] The President: Okay.
+- [55:49.960] [applause]
+- [55:57.080] The Press: And lastly, sir, as you said in your speech,
+- [55:59.540] we don't want woke AI.
+- [56:01.400] We want AI models based on accurate information
+- [56:04.470] that give accurate information and accurate answers.
+- [56:07.420] This executive order will ensure that when the federal government
+- [56:10.890] procures or promotes different AI models,
+- [56:13.560] that those AI models are ideologically neutral.
+- [56:17.320] That they don't embrace wokeism and critical race theory,
+- [56:20.450] and all of these terrible theories
+- [56:21.860] that have done so much damage to our country.
+- [56:25.230] [applause]
+- [56:49.290] The President: Thank you. Thank you very much, everybody.
+- [56:52.000] Good luck. Good luck. Thank you, everybody.
+- [57:00.030] [music playing]

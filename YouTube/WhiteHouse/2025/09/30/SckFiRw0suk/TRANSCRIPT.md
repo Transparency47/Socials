@@ -1,0 +1,854 @@
+<!-- source: https://www.youtube.com/watch?v=SckFiRw0suk -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: SckFiRw0suk -->
+<!-- date_published: 2025-09-30T20:42:21+00:00 -->
+<!-- date_accessed: 2026-06-02T02:44:09.281642+00:00 -->
+
+# Transcript: President Trump Signs Executive Orders, Sep. 30, 2025
+
+- [00:04.140] The President: Great to have you again.
+- [00:05.350] We've seen you a couple of times today.
+- [00:08.160] But I'm thrilled to sign a very historic executive
+- [00:10.750] order to massively accelerate pediatric cancer research
+- [00:14.500] and harness the extraordinary potential
+- [00:16.460] of artificial intelligence to fight this terrible disease.
+- [00:20.590] We're going to hook up the artificial intelligence
+- [00:24.560] with all of the other things that we have at hand,
+- [00:26.740] and we're going come for answers.
+- [00:28.730] And these young children who are just really,
+- [00:32.570] some are absolutely better and others are getting better.
+- [00:35.070] You're all going to be better very soon.
+- [00:37.010] So they won't even need it, I don't believe.
+- [00:40.110] I want to thank Secretary of Health and Human Services,
+- [00:43.710] Robert F. Kennedy, Jr., who we see a lot of lately.
+- [00:47.250] He's been doing a lot. He's really active.
+- [00:52.300] He's very active.
+- [00:56.460] Secretary of Education, Linda McMahon,
+- [00:58.840] they're so fantastic.
+- [01:01.120] I guess we reached a deal with Harvard today,
+- [01:03.500] so we'll see how that all you have to do
+- [01:05.490] is paper it, right, Linda? Just paper it out.
+- [01:08.030] It would be great, though. It's going to have to deal
+- [01:10.770] with something that's very important to everybody.
+- [01:13.380] CMS Administrator Mehmet Oz, FDA Commissioner Marty Makary,
+- [01:18.910] Director of the National
+- [01:20.960] Institute of Health, Jay Bhattacharyya.
+- [01:24.420] Is that good, Jay? I'm getting better. I'm better.
+- [01:30.050] Science and Technology Advisor Michael Krasios.
+- [01:34.350] A.I. And cryptozard David Sachs. You're doing great, David.
+- [01:38.280] As well as a friend of mine, Stephanie McMahon,
+- [01:41.440] and her incredible husband, Triple H.
+- [01:44.010] You all know Triple H, I'm not going to fight that guy.
+- [01:47.720] He's one of the greatest.
+- [01:49.270] I also want to thank all of the brave young people
+- [01:51.560] who are with us today, and they've gone through a lot,
+- [01:54.430] but it's really coming out very good.
+- [01:57.820] And I just gave them a beautiful coin.
+- [01:59.460] And we're going to save that coin, right?
+- [02:02.110] Beautiful coin.
+- [02:03.640] In 2019, I was proud to launch the Childhood Cancer Data
+- [02:06.970] Initiative.
+- [02:08.430] And I think Stephanie was a big factor, right, Linda?
+- [02:11.030] She was a factor in what we're doing right now.
+- [02:14.320] Which invested $50 million a year
+- [02:16.530] into pediatric cancer research.
+- [02:18.260] And today, in line with recommendations
+- [02:20.880] made by Secretary Kennedy and the MAHA Commission.
+- [02:25.250] We're doubling that investment,
+- [02:26.680] adding another $50 million to Childhood Cancer
+- [02:29.680] Data Initiative. We're doing that immediately.
+- [02:32.840] And we have a lot of money coming in with the tariffs.
+- [02:34.910] We've never had money like this coming in.
+- [02:37.630] We're a rich country again.
+- [02:39.390] We were a dead country one year ago,
+- [02:41.130] and now we're the richest country.
+- [02:42.850] We're hot. We're the hottest country.
+- [02:47.210] So it's an honor to do that.
+- [02:48.600] In honor of all of you, we're doing it, okay?
+- [02:51.170] With this order, I'm also directing the federal government
+- [02:53.730] to fully utilize artificial intelligence
+- [02:56.240] to supercharge pediatric cancer research.
+- [02:59.560] It's pretty amazing what's happening.
+- [03:01.950] For years, we've been amassing data about childhood cancer.
+- [03:04.940] But until now, we have been unable to fully exploit
+- [03:08.000] this trove of information
+- [03:09.500] and apply it to practical medicine.
+- [03:13.570] Using cutting-edge AI, we will empower scientists
+- [03:16.790] and researchers to discover new treatments,
+- [03:18.830] cures, prevention strategies.
+- [03:21.240] AI can also make groundbreaking trials and therapies.
+- [03:24.910] And it's just going to be so accessible to everybody.
+- [03:28.070] Families all across the country. So it's going to amazing.
+- [03:32.400] What's happening is amazing. And we have more AI.
+- [03:34.650] We're leading in AI. We're leaving China by a lot.
+- [03:37.560] We're letting everybody by a lots.
+- [03:39.340] They're creating their own energy.
+- [03:40.840] We let them build their own plant
+- [03:43.310] because we don't have the energy nobody does to feed them.
+- [03:48.430] The amount of.
+- [03:49.700] Energy just the AI needs coming into this country
+- [03:52.360] is double what we have right now.
+- [03:54.380] So we're letting them go out and create their own energy plants
+- [03:58.890] and their own electricity. And they're doing it.
+- [04:01.770] We're giving them permits to build electric plants.
+- [04:05.270] They're becoming sort of a utility.
+- [04:06.640] Maybe they'll do better with being a utility, who knows?
+- [04:08.930] They'll do it better with you being a utility
+- [04:11.440] than they will being AI.
+- [04:12.810] What do you think of the chances that they...
+- [04:14.540] I hope I'm wrong about that or they made a bad bet.
+- [04:18.190] So anyway, but I want to just say
+- [04:21.520] that we're going to defeat childhood cancer
+- [04:22.950] once and for all.
+- [04:24.190] And I'd like to ask Stephanie to say a few words.
+- [04:27.370] She's a very special person
+- [04:29.550] and very, very much involved in this.
+- [04:32.850] Thank you very much, sir.
+- [04:39.930] Stephanie McMahon: Well, Mr. President, thank you very much.
+- [04:41.720] You've already acknowledged this incredible team here.
+- [04:44.990] And all of these people standing behind me
+- [04:47.280] were inspired by the story of a little boy named Connor Mahalik.
+- [04:51.470] He was a little guy who didn't want to hug me
+- [04:53.310] because he gave choke out hugs.
+- [04:55.570] He booed his favorite nurse when she came to give his chemo.
+- [04:59.140] And he always worried about his dad
+- [05:00.970] because his dad was Connor's best friend.
+- [05:04.060] Connor was a WWE fan who I met after one of our big events,
+- [05:07.640] the Royal Rumble. You could tell he was sick.
+- [05:10.420] He had a big scar that was running up the back of his neck
+- [05:13.120] and a lump on his head.
+- [05:14.620] But you would never know it from his personality.
+- [05:17.710] He told me about the t-shirt that he was wearing
+- [05:19.910] that was dragging on the ground because WWE superstar Seamus,
+- [05:23.860] who's six foot five, had given it to him.
+- [05:26.340] Underneath that was his Daniel Bryan t-shirt.
+- [05:29.040] And underneath that was this Skylanders t-shirt
+- [05:31.460] because that was his favorite toy.
+- [05:33.780] And as I stood up from my aforementioned choke out hug,
+- [05:36.890] Connor's dad told me that he didn't have long to live.
+- [05:41.270] And I didn't want to believe that.
+- [05:43.560] I kissed him goodbye on his soft little cheek.
+- [05:46.560] And when he looked back at me, I made an unspoken promise
+- [05:50.610] to fight for him and kids just like him.
+- [05:54.480] Kids shouldn't even know what cancer is,
+- [05:57.590] let alone have to face it.
+- [05:59.510] And this incredible team believes that too.
+- [06:03.380] This executive order makes kids with cancer
+- [06:06.670] the first focus of AI innovation across healthcare in America.
+- [06:12.480] If there is one thing in the world
+- [06:15.040] that could bring us together, please let it be our children.
+- [06:19.940] Because I can almost guarantee,
+- [06:22.210] if your child was diagnosed with cancer,
+- [06:24.980] you wouldn't care what party their doctor belonged to,
+- [06:28.220] you would just want the best.
+- [06:30.540] And President Trump is doing just that.
+- [06:33.360] Enabling that every child with cancer
+- [06:36.540] gets the best care possible.
+- [06:38.830] And we couldn't be more grateful.
+- [06:41.220] Thank you.
+- [06:43.610] The President: She's done that before, hasn't she?
+- [06:46.180] Great job, Bobby, please.
+- [06:49.070] Secretary Kennedy: Today, President Trump
+- [06:50.320] signed an executive order that makes an historic promise.
+- [06:53.390] We will harness America's innovation
+- [06:56.060] in artificial intelligence
+- [06:57.530] to find cures for pediatric cancer.
+- [07:00.930] We stand here today because of Stephanie McMahon-Levac
+- [07:05.200] never wavered in her 11-year commitment
+- [07:08.000] to give every child a future free of cancer.
+- [07:11.740] She proves how one person's courage
+- [07:13.870] can change what is possible. Cancer is now the leading cause
+- [07:18.280] of chronic disease-related death in children.
+- [07:21.320] And its incidence has risen by more than 40 percent since 1975.
+- [07:26.850] We cannot accept that. We must act with urgency.
+- [07:30.920] The MAHA Strategy Report, released earlier this month,
+- [07:34.050] directs HHS to focus on research
+- [07:36.750] that harnesses AI to uncover causes,
+- [07:40.340] identify risks early, and take action in childhood
+- [07:43.450] and young adulthood to prevent cancer.
+- [07:46.600] Now, this executive order directs the MAHA Commission,
+- [07:50.080] working with our nation's top science and technology leaders
+- [07:54.290] to deploy AI to transform cancer care and research.
+- [07:59.090] We will accelerate progress in the Childhood Cancer Data
+- [08:02.280] Initiative that President Trump launched in 2019.
+- [08:06.630] And that means building stronger data systems,
+- [08:09.770] using AI to decode complex biology,
+- [08:13.380] designing better clinical trials that deliver faster.
+- [08:16.970] More effective treatment for kids.
+- [08:19.750] The order doubles federal investment
+- [08:21.870] in the Child Cancer Data Initiative
+- [08:24.820] with an additional $50 million just this year.
+- [08:28.350] NIH will expand research,
+- [08:30.680] while the private sector and universities
+- [08:32.790] will bring their best tools to the table.
+- [08:35.440] Together, we will ensure that every innovation,
+- [08:37.800] every breakthrough, goes to work for our children.
+- [08:43.760] The order guarantees that AI will be integrated
+- [08:46.580] into HHS interoperability networks.
+- [08:50.240] We will make electronic health records
+- [08:52.280] and claims data work for patients and researchers.
+- [08:55.170] We're already doing that.
+- [08:56.450] And always with parents in control
+- [08:58.410] of their child's health information.
+- [09:00.510] No family should have to fight cancer with outdated tools
+- [09:02.290] or without access to the very best science.
+- [09:03.620] For too long, families have fought childhood cancer
+- [09:04.810] while our systems lag behind. President Trump,
+- [09:06.060] thank you for your leadership in changing all that.
+- [09:07.270] This executive order is about action,
+- [09:08.160] unlocking cures, empowering families,
+- [09:09.040] and giving every child the chance to grow up…
+- [09:09.960] With outdated tools or without access to (inaudible).
+- [09:11.180] For too long, families have fought childhood cancer
+- [09:12.380] while our systems lag behind. President Trump,
+- [09:13.800] thank you for your leadership in changing all that.
+- [09:17.500] This executive order is about action,
+- [09:20.090] unlocking cures, empowering families,
+- [09:22.640] and giving every child the chance
+- [09:24.750] to grow up healthy and strong.
+- [09:27.670] With American innovation and leadership,
+- [09:29.780] we can make our children healthy again.
+- [09:32.890] The President: Bobby, do they know
+- [09:34.130] why there's quite an increase
+- [09:36.820] that's taken place over the last number of years?
+- [09:39.380] Do they have any idea why that's happening?
+- [09:42.180] Secretary Kennedy: We are doing that research,
+- [09:43.530] and Jay Bhattacharya can talk about that.
+- [09:45.490] We're doing that research now for the first time.
+- [09:49.030] We're focusing on that in particular, colon cancers
+- [09:52.230] and these cancers that never affected children before,
+- [09:56.900] and suddenly are epidemic in our children.
+- [09:59.270] And we're going to find the causes,
+- [10:00.750] their environmental causes.
+- [10:03.460] We're going to identify them and work to eliminate them.
+- [10:05.770] The President: Okay, thanks. Thanks, Bobby.
+- [10:07.190] Jay, go ahead please.
+- [10:08.430] Director Bhattacharya: Hello. Thank you everyone.
+- [10:09.700] Thank you, President Trump,
+- [10:10.940] for signing this historic executive order
+- [10:12.530] directing your administration
+- [10:13.750] to use advanced artificial intelligence technologies
+- [10:16.610] to cure childhood cancer. By signing this executive order,
+- [10:20.040] the administration is advancing the NIH childhood cancer data
+- [10:23.380] initiatives coordinated pediatric,
+- [10:25.200] adolescent and young adult rare cancer.
+- [10:27.870] First launched under President Trump's direction in 2019.
+- [10:31.130] When I was a young medical student in the 1990s,
+- [10:33.210] I had the privilege of spending a month
+- [10:35.520] in a pediatric cancer ward treating children with cancer.
+- [10:39.790] And I have to say it was the most difficult month of my life.
+- [10:41.860] I left for home every day in tears.
+- [10:44.740] Watching little children cope with a deadly disease is hard.
+- [10:47.900] They should be playing with their friends,
+- [10:49.480] going to school, living their best lives,
+- [10:52.190] but instead, they bravely face cancer.
+- [10:55.140] These are the bravest kids I've ever met.
+- [10:57.810] I have tremendous admiration for the scientists
+- [10:59.540] who devote their lives
+- [11:00.780] to finding cures for kids with cancer,
+- [11:02.720] for the doctors and nurses who take care of them
+- [11:05.010] and for their parents who suffer alongside them,
+- [11:08.020] care for them and love them.
+- [11:09.710] This year, nearly 9,500 children
+- [11:11.690] will be diagnosed with cancer in the US.
+- [11:13.950] In the mid-1970s,
+- [11:15.260] the five-year survival for cancer was 58 percent.
+- [11:19.490] Today, the cancer survival rate for children with cancer
+- [11:22.070] is 85 percent.
+- [11:23.910] This is because of the tremendous investments
+- [11:25.880] we've made in treating childhood cancer,
+- [11:27.640] in researching it,
+- [11:28.860] and it's worth celebrating this achievement.
+- [11:31.130] But I say that 85 percent is still too low.
+- [11:34.070] We need to be at a hundred. We still have a long way to go.
+- [11:38.260] The treatments these little kids undergo involve therapies
+- [11:40.300] like chemo or radiation that put them through hell.
+- [11:43.640] Even with 85 percent will be cured,
+- [11:45.380] the therapies themselves can cause health problems
+- [11:47.440] as kids age into adulthood.
+- [11:49.160] Nearly 60 percent of cancer survivors experience
+- [11:51.660] severe life-threatening complications in adulthood
+- [11:54.320] because of these treatments. And so we need better treatments
+- [11:57.770] so that we can raise the survival rate
+- [12:00.320] and reduce the side effects.
+- [12:01.670] This initiative builds on the CCDI's mission
+- [12:05.500] to gather data from every child, adolescent, and young adult
+- [12:07.950] diagnosed with cancer no matter where they receive care.
+- [12:10.290] It aims to develop a platform of tools
+- [12:12.110] to bring together clinical care research tools
+- [12:14.400] like molecular characterization and genetic information,
+- [12:17.360] tools that will improve preventive measures,
+- [12:19.190] treatment, quality of life, survival for childhood cancer.
+- [12:22.540] By uniting families, clinicians, and researchers,
+- [12:24.490] by harnessing the power of a AI,
+- [12:26.250] CCDI will accelerate diagnosis, inform treatment,
+- [12:28.910] and develop the next generation of lifesaving therapies.
+- [12:32.460] This is not about collecting data alone,
+- [12:34.560] it's about giving families hope.
+- [12:36.430] Today, we commit to taking this work to the next level.
+- [12:39.480] With his executive order that President Trump is signing,
+- [12:41.790] we're building a future where every child's data
+- [12:43.480] contributes to faster diagnosis.
+- [12:45.390] Artificial intelligence help us uncover faster,
+- [12:47.690] more precise treatments,
+- [12:49.080] improve quality of life and better survival.
+- [12:51.420] And finally, let me extend my sincere congratulations
+- [12:54.720] and gratitude to President Trump for this leadership and vision
+- [12:56.990] in giving us this opportunity to make America healthy again,
+- [12:59.710] to rigorously push the boundaries of science
+- [13:01.630] and bring hope to millions of families. Thank you.
+- [13:03.360] The President: Thank you very much, Jay.
+- [13:04.570] It's very nice. Appreciate it. Director Kratsios, please.
+- [13:09.490] Director Kratsios: Thank you, Mr. President
+- [13:10.760] and thank you Secretary Kennedy
+- [13:12.440] for your leadership on this issue.
+- [13:14.470] I am thrilled that our MAHA strategy
+- [13:17.510] prioritizes utilizing AI in the fight against cancer
+- [13:21.170] and that this executive order
+- [13:22.370] is putting a priority to this action.
+- [13:24.660] Thank you for your commitment, Mr. President,
+- [13:26.330] to the United States
+- [13:27.580] for maintaining its global leadership
+- [13:29.330] in artificial intelligence across models,
+- [13:31.980] datasets, applications,
+- [13:33.880] and to issue an AI action plan to do just that.
+- [13:37.450] Your foresight in the first term leading you
+- [13:39.750] to establish the CCDI to gather, harness,
+- [13:43.320] and share data on childhood cancers
+- [13:45.760] has positioned us today to leverage AI
+- [13:47.970] in a way we could never imagine before.
+- [13:50.230] With America's pioneering models,
+- [13:52.090] American researchers now have the best tools in the world
+- [13:55.110] to turn the CCDI data into the building blocks
+- [13:58.370] of life-changing breakthroughs. So I and my team at OSTP
+- [14:02.070] are thrilled to partner with our teams at HHS and NIH
+- [14:05.220] and with David to empower the development
+- [14:07.870] of gold standard applications
+- [14:09.420] for the pediatric cancer research
+- [14:11.040] and to play our small part in trying to protect the health
+- [14:13.990] and happiness of America's children.
+- [14:15.720] Thank you, Mr. President.
+- [14:17.060] The President: David, please.
+- [14:18.410] David: Thank you, sir.
+- [14:19.650] Well, first of all, I just want to thank Stephanie McMahon
+- [14:21.350] and Paul Levesque for helping
+- [14:23.580] (inaudible) all together here.
+- [14:25.190] For years, they played villains on TV,
+- [14:27.880] but they're actually very nice people in real life.
+- [14:31.000] But it's because of your passion that we're all here today.
+- [14:33.110] So thank you for that.
+- [14:34.310] And I thank you, Mr. President, for your leadership on this.
+- [14:37.110] First of all, you did have the foresight
+- [14:38.940] to create this childhood cancer database way back in 2019,
+- [14:42.530] and that's what's going to power the AI.
+- [14:44.680] It's going to give us the data to find all the patterns in.
+- [14:47.400] The other thing you've done is you've made it your policy
+- [14:50.080] of this administration to support innovation,
+- [14:51.900] to support infrastructure, to support energy.
+- [14:54.490] And because of that, we have an AI boom going on right now,
+- [14:56.790] 3.8 percent growth rate in the last quarter in GDP.
+- [14:59.700] And a big part of that is because of the AI boom
+- [15:01.350] that you've unleashed.
+- [15:02.550] So thank you, sir, for doing that.
+- [15:04.270] And I think that we can see today that this AI boom
+- [15:06.830] is not just going to be about dollars and cents,
+- [15:08.560] but about saving lives as well.
+- [15:10.350] We're going to get some miraculous cures out of this.
+- [15:12.990] So thank you to everyone who's here today.
+- [15:14.690] The President: Thank you very much. Good job.
+- [15:16.540] We just had a meeting and Oz was at the meeting
+- [15:18.970] and really was a dominant factor along with Bobby.
+- [15:22.250] And maybe you could just say a couple of words
+- [15:24.820] about our past meeting
+- [15:26.430] where we're going to be lowering drug prices
+- [15:28.180] by 50, 100, 200, even 500 percent, even 1000.
+- [15:32.860] We have 1000 percent also. We have one coming up next week,
+- [15:36.850] a big one, 1000 percent reduction in price.
+- [15:40.160] Do you want to give just a couple of words on that, Oz?
+- [15:42.700] Administrator Oz: It's a historic day.
+- [15:44.370] For the first time, we've had the magnitude
+- [15:47.650] of give from the pharmaceutical industry,
+- [15:50.240] one of their leading lights, Albert Bourla and his company,
+- [15:52.720] Pfizer, agreed something the President has been pushing on
+- [15:55.520] since his first term and has been calling me
+- [15:57.350] quite frequently on speed dial over this term
+- [16:00.190] to make sure that Secretary Kennedy
+- [16:01.510] and I would seriously engage industry.
+- [16:04.410] They have agreed to several important concessions.
+- [16:07.660] First, we will have most favored nation drug
+- [16:10.170] pricing in this country for everyone on Medicaid.
+- [16:13.290] So our most vulnerable populations
+- [16:14.710] will not be forced to pay 3 times or more,
+- [16:16.760] 5, 6, 7 times more for the exact same pills
+- [16:19.530] than the same bottles as it costs in other countries.
+- [16:22.520] That'll make it a lot easier for governors
+- [16:24.520] to manage their budgets and shows, again,
+- [16:27.610] a distinct passion
+- [16:30.130] that the president has for helping people
+- [16:32.540] who are most vulnerable.
+- [16:33.900] We've also gotten all new drugs to be released in this country
+- [16:37.190] to be priced at most favored nation,
+- [16:39.080] which means by the end of the President's term,
+- [16:41.580] 95 percent of all pharmaceutical drugs in America
+- [16:44.200] will be at most favored nation pricing.
+- [16:46.490] Again, no more discrepancies between what folks
+- [16:48.680] in other countries can buy their drugs for
+- [16:51.310] and what's being purchased in this country.
+- [16:53.180] Pfizer also agreed as both companies next week
+- [16:55.450] when they come to visit the White House to onshore drugs,
+- [17:00.740] to bring their production back into America.
+- [17:02.590] So American workers will benefit as well,
+- [17:04.860] but at the same time, this is critical.
+- [17:06.990] It allowed Pfizer and we believe for other companies
+- [17:10.420] to maintain their innovative edge.
+- [17:12.270] We want America to continue to find cures like the ones
+- [17:14.820] that saved the lives of some of the children
+- [17:16.570] that I'm looking at right now.
+- [17:17.830] Those beautiful faces and smiles are here
+- [17:19.490] because American innovation was not dulled, not blunted,
+- [17:23.970] but we can solve that need and thread the needle
+- [17:26.110] by also making healthcare affordable
+- [17:27.820] so Americans no longer, including children like this,
+- [17:30.810] be forced to make a difficult choice
+- [17:33.460] between groceries and pharmaceuticals.
+- [17:35.740] And I must say, Mr. President,
+- [17:37.070] since this morning, if you just look at the stock market,
+- [17:38.780] there's been support of this decision
+- [17:41.580] made by the CEO of Pfizer. Their stock has benefited.
+- [17:44.670] So I think it was the right thing for the company,
+- [17:46.470] the right thing for the policies of this administration,
+- [17:50.220] which is a pretty cool place to work,
+- [17:51.650] but most importantly,
+- [17:52.850] it's the right thing for the American people.
+- [17:54.300] The President: Thank you very much.
+- [17:55.500] And maybe we'll just finish it off with Linda,
+- [17:57.840] because she's been such an incredible cabinet member
+- [18:02.040] and done such a good job.
+- [18:03.330] Maybe you want to say something about your unbelievable daughter
+- [18:06.880] and son-in-law because they've worked very hard on this.
+- [18:09.360] Linda McMahon: Well, thank you, Mr. President,
+- [18:10.700] for the opportunity to do that.
+- [18:12.760] I don't think that any mother could be
+- [18:16.330] any more proud of all of the efforts
+- [18:19.140] that Stephanie's made in support, also of Paul.
+- [18:22.140] Stephanie first talked about this 10 or 11 years ago
+- [18:24.870] after little Connor,
+- [18:26.370] and I remember one of the things that she said to me was,
+- [18:29.240] "I really would like to somehow convene the people
+- [18:34.660] and the scientists who think outside of the box,"
+- [18:38.600] because research is done in very standard terms.
+- [18:42.120] You do this, you do this, and yes, you have to do that.
+- [18:44.810] But she said, "I really would like to tap into
+- [18:47.090] some of the most creative and inventive minds
+- [18:50.160] in the country to be able to look at research
+- [18:53.140] differently for pediatric cancer."
+- [18:55.950] And she did that, took her about 10 years,
+- [18:58.170] and she kept tapping in and calling people,
+- [19:00.270] being pretty relentless about it,
+- [19:02.570] driven herself by a mother's heart,
+- [19:05.170] and I couldn't be any more proud of the work she's done.
+- [19:07.380] I'm happy to stand by and be a supportive mom
+- [19:11.460] and be very proud of her today.
+- [19:13.270] The President: Thanks. Good job you're doing.
+- [19:14.680] Thank you very much, Linda. Okay, any questions, please?
+- [19:18.550] The Press: Mr. President, as we inch closer
+- [19:21.060] to a government shutdown this morning,
+- [19:22.890] you said you might do a lot of layoffs.
+- [19:25.820] If DOGE is already reducing the federal workforce,
+- [19:29.120] why is it necessary to link more federal jobs cut to a shutdown?
+- [19:33.350] The President: Well, the Democrats
+- [19:34.600] want to shut it down
+- [19:35.810] so when you shut it down, you have to do layoffs.
+- [19:37.690] So we'd be laying off a lot of people
+- [19:39.900] that are going to be very affected,
+- [19:41.360] and the Democrats, they're going to be Democrats.
+- [19:44.890] As you know, we --
+- [19:46.370] no country can afford to pay for illegal immigration,
+- [19:49.720] healthcare for everybody that comes into the country,
+- [19:51.920] and that's what they're insisting.
+- [19:53.640] And obviously, have an obligation to not accept that,
+- [19:56.740] that would affect everybody.
+- [19:58.990] When I see what we're doing with AI
+- [20:00.430] and all the plants that are opening up in the country,
+- [20:02.580] $17 trillion is coming.
+- [20:04.390] And if you compare that to Biden, Biden had a --
+- [20:08.050] in four years, less than a trillion.
+- [20:09.750] We have 17 trillion more than that.
+- [20:11.750] I think it's going to be much more than that, David,
+- [20:14.570] by the end of this year.
+- [20:16.130] I think it's going to be far over that.
+- [20:17.540] It's a record. It's already a record in eight months.
+- [20:20.500] It's a record by a lot.
+- [20:22.210] And so we're doing well as a country.
+- [20:23.760] So the last thing we want to do is shut it down.
+- [20:25.750] But a lot of good can come down from shutdowns.
+- [20:30.160] We can get rid of a lot of things that we didn't want
+- [20:32.400] and they'd be Democrat things, but they want open borders,
+- [20:35.920] they want men playing in women's sports,
+- [20:38.330] they want transgender for everybody.
+- [20:40.110] They never stop. They don't learn.
+- [20:41.800] We won an election in a landslide.
+- [20:43.610] They just don't learn. So we have no choice.
+- [20:45.920] I have to do that for the country. Yes.
+- [20:48.440] The Press: You mentioned a deal with Harvard, Mr. President.
+- [20:51.370] What is that deal? Will they be paying the administration --
+- [20:53.700] The President: Well, we're in the process
+- [20:54.970] of getting very close
+- [20:56.170] and Linda's finishing up the final details
+- [20:58.220] and they'd be paying about $500 million
+- [21:01.860] and they'll be operating trade schools.
+- [21:03.760] They're going to be teaching people
+- [21:04.990] how to do AI and lots of other things.
+- [21:07.940] Engines, lots of things. We need people in trade schools.
+- [21:11.300] I remember when I went to school,
+- [21:12.520] I had some people that weren't particularly good students,
+- [21:15.310] but they could take a motor or an engine apart blindfolded
+- [21:19.510] and put it back blindfolded,
+- [21:21.750] but they weren't too good at other things,
+- [21:23.680] and many of them ended up doing better
+- [21:27.160] than the people that were.
+- [21:29.110] So trade schools are very important
+- [21:30.810] and we've lost trade schools.
+- [21:32.030] We used to have a lot of trade schools in this country.
+- [21:34.520] We don't have them anymore.
+- [21:35.810] We have tremendous plants opening,
+- [21:37.350] and we want to have people at top level for those plants,
+- [21:40.940] whether it's AI or whether it's automotive plants.
+- [21:44.750] Many automobile companies open their plants
+- [21:47.640] in the United States.
+- [21:48.930] They're all coming back for two reasons, tariffs,
+- [21:51.630] and I think they like November 5th.
+- [21:53.900] They liked the person that was chosen.
+- [21:56.040] And they're moving in from Canada,
+- [21:57.870] they're moving in from Mexico,
+- [21:59.250] they're coming in from all over the world.
+- [22:01.290] China is coming. They're all coming,
+- [22:03.720] and that way they avoid paying tariffs.
+- [22:05.230] So they're coming for that reason.
+- [22:07.570] So by opening up trade schools…
+- [22:09.340] Because we're going to need employees.
+- [22:10.950] We're going to need people with skill.
+- [22:12.680] And I think I can say Linda, you feel the same way,
+- [22:14.780] by opening up trade school,
+- [22:16.110] this would be a giant trade school series of trade schools.
+- [22:19.300] It would be run by Harvard.
+- [22:21.030] Now this is something that we're close to finalizing.
+- [22:23.940] We haven't done it yet,
+- [22:25.570] but they'd put up $500 million interest
+- [22:29.100] and everything else would go to that account,
+- [22:31.710] meaning go to the trade school.
+- [22:34.330] And it's a big investment in trade school
+- [22:36.900] done by very smart people,
+- [22:39.140] and then their sins are forgiven.
+- [22:41.990] So we have a good chance of getting that close.
+- [22:43.970] Yeah, please.
+- [22:45.240] The Press: President Trump, thank you.
+- [22:47.290] I've been looking at this chart that you shared earlier.
+- [22:50.040] So it's (inaudible)
+- [22:51.330] earlier. U.S. prices for brand drugs
+- [22:53.560] were 422 percent higher than compared to other countries.
+- [22:57.550] I'm young, maybe I'm inexperienced,
+- [22:59.290] but I think a lot of Americans are wondering,
+- [23:01.240] how did we even get here being one of the biggest buyers?
+- [23:03.910] The President: You got here by incompetent people
+- [23:05.710] sitting behind this desk.
+- [23:07.630] You had a lot of incompetent people.
+- [23:10.320] I did it -- ss you know, I started it in my first term.
+- [23:15.140] We rebuilt the military.
+- [23:16.450] We got the largest tax cuts in history.
+- [23:18.490] We did all these things and we had the best economy
+- [23:20.740] of the history of our country during my first term.
+- [23:23.390] And by the way, this is blowing it away
+- [23:25.010] based on what we're seeing.
+- [23:26.790] But we got it by having people allow that to happen.
+- [23:30.980] As you know, I started the process,
+- [23:32.520] but then when COVID came, we focused on COVID,
+- [23:35.240] not on this.
+- [23:37.150] And I said, if I ever go back and do it again,
+- [23:42.360] I'm going to make this a primary thing
+- [23:44.270] because other countries are paying a fraction
+- [23:46.180] of what we pay for the same exact drug,
+- [23:49.160] same exact pharmaceutical, everything.
+- [23:51.960] And I said, no, it's not right.
+- [23:54.470] And the drug companies actually came along.
+- [23:56.640] Don't forget, they make 30, 40, 50 million a year, these people.
+- [23:59.900] They're very smart, and they had a lot of people
+- [24:02.610] convinced that that's the way it has to be.
+- [24:05.040] They talked about research and development.
+- [24:06.840] We had to pay.
+- [24:08.040] I said, "Well, why isn't Germany paying?
+- [24:09.740] Why aren't other countries paying?"
+- [24:11.480] And they always had a good answer,
+- [24:12.970] but it got to a point where I didn't like the answer anymore.
+- [24:16.460] And I said, "We have to do this."
+- [24:17.690] And we did it.
+- [24:18.960] The team that we have with Oz and Bobby and Chris
+- [24:21.690] and all of the people that we had working on it,
+- [24:23.900] and I must tell you, Marty has been a big --
+- [24:27.120] wherever you (inaudible)
+- [24:28.320] Marty, but Marty's been a big factor.
+- [24:31.690] We have a great team.
+- [24:32.960] There's never been a medical team like this.
+- [24:34.780] And I said, "Let's go do it." And then I did as I said,
+- [24:38.980] I would bug them every single day,
+- [24:40.640] every week because I said, "We have to have --
+- [24:43.630] I mean, why should we be paying 10 times
+- [24:45.650] what another country is paying?"
+- [24:47.810] And that was just an excuse, research and development.
+- [24:50.460] We do research and development,
+- [24:51.850] so now we're going to be paying whatever the lowest price is,
+- [24:55.730] we're going to be paying that price.
+- [24:57.210] So it's a great thing.
+- [24:58.440] But there won't be anything that can have the impact
+- [25:01.670] on Medicare, Medicaid, social security,
+- [25:04.560] anything where you need pharmaceuticals, medicines,
+- [25:07.970] the numbers are going to come way down.
+- [25:10.010] Even Obamacare, which is terrible.
+- [25:12.160] It's not been good, as you know. It's a weak form of healthcare,
+- [25:15.920] but it'll be better because the medicine's going to come in
+- [25:19.100] at a very low price. Yes, please.
+- [25:20.480] The Press: Yes, Mr. President.
+- [25:21.700] It seems like every time you assemble your MAHA team
+- [25:24.590] and your cabinet members behind here
+- [25:26.860] in regards to health issues, it just keeps getting powerful.
+- [25:30.040] And look at these young kids there
+- [25:31.810] and the weight that is on the world right now
+- [25:34.470] that you can lift by what you're doing.
+- [25:38.170] I've often said, "Trump could cure cancer
+- [25:41.360] and people would still criticize him."
+- [25:43.250] The President: That's true.
+- [25:44.530] The Press: It's true. What is your message to America
+- [25:47.620] that this potentially could bring us all together,
+- [25:50.460] get us on the same page and have unity,
+- [25:52.690] and I'd like to see if some of the kids or the parents have --
+- [25:55.000] what it means to you to see President Trump
+- [25:56.480] get involved in this.
+- [25:57.740] The President: Well, we've made tremendous strides
+- [25:59.110] in cancer research far more than anyone has done.
+- [26:02.470] And we have the greatest minds,
+- [26:04.090] the greatest people working on it.
+- [26:05.510] And childhood -- they call it childhood cancer.
+- [26:08.540] It this very specific thing.
+- [26:10.160] And we've really made a lot of progress.
+- [26:14.610] I think something that's going to allow us to make
+- [26:17.040] a lot of progress is the money we're saving on pharmaceuticals.
+- [26:21.640] We'll be saving 500, 600, 1000 percent.
+- [26:26.030] Nobody's ever heard of that.
+- [26:27.590] I told the story, you were here before,
+- [26:29.340] that when I was in the previous administration,
+- [26:33.070] my first term, I was so proud of myself
+- [26:35.680] because I'm the first president in 28 years
+- [26:39.810] that cut drug prices from beginning to end.
+- [26:41.820] So that went down, I think it was 1/8 of a percent
+- [26:44.700] or 1/4 of 1 percent.
+- [26:46.020] And I was so proud of that, I thought that was great.
+- [26:48.740] Now I'm cutting them 500 percent.
+- [26:51.720] And I will say this, politically speaking,
+- [26:54.630] the people understand otherwise
+- [26:56.030] I wouldn't have wanted a landslide.
+- [26:57.760] I get 97 percent bad press and I won in landslide,
+- [27:01.220] which tells you the press has no credibility.
+- [27:04.210] But I will say that what we've done has been a great tribute
+- [27:08.740] to the people that standing behind me.
+- [27:10.820] In different forms. Linda, in education, different,
+- [27:14.050] but what she's doing in education,
+- [27:15.910] she's sending education back to the states.
+- [27:18.460] That's a big move.
+- [27:20.170] The states, you go back to Indiana, Iowa,
+- [27:24.480] I would say 40 states will be great.
+- [27:27.350] 45 will be -- the 5 percent of them will be pretty good.
+- [27:33.300] And then you're going to have a Gavin Newsom
+- [27:36.090] some other people that aren't going to do a good job,
+- [27:38.110] but we'll help them out. I want help them out.
+- [27:40.300] And we're going to have safe cities again.
+- [27:42.800] We're going to be very safe.
+- [27:44.100] We're going to be going to Chicago pretty soon
+- [27:46.660] because a friend of mine,
+- [27:48.680] a great guy, the head of the Union Pacific,
+- [27:50.620] he said, "Sir, you have to save Chicago.
+- [27:52.810] It's going bad. It's going bad, fast.
+- [27:55.160] And it's a great city." He's right, it's a great city.
+- [27:57.350] I know it very well. And we have to save Chicago.
+- [28:00.480] So we're going to Memphis, Tennessee right now.
+- [28:03.790] We've had a home run in DC. You can walk out, Brian.
+- [28:07.120] You got mugged here a long time ago.
+- [28:08.680] The Press: Yes, sir.
+- [28:09.910] The President: And the mugger must've felt some pain
+- [28:11.910] because you're a tough cookie.
+- [28:13.230] The Press: Well, he had a gun and I wish I would've
+- [28:15.110] (inaudible) --
+- [28:17.520] The President: If he had a gun, all you can do is say --
+- [28:19.730] The Press: (inaudible) secret weapon.
+- [28:21.210] The President: Yeah, no, but it's -- everybody here.
+- [28:24.010] I mean, you were here in the room
+- [28:26.450] when I said to the reporters,
+- [28:27.770] "Who got mugged in the last year,"
+- [28:30.320] and half of the people raised their hand.
+- [28:32.660] Now, if you said,
+- [28:33.860] "Who got mugged over the last 60 days," nobody.
+- [28:37.940] Nobody. No killing, no nothing. And the restaurants are booming.
+- [28:41.600] The town is booming. It's clean.
+- [28:44.090] The National Guard actually went out
+- [28:45.520] and started cleaning all the crap out of the parks.
+- [28:48.760] The tents are knocked down.
+- [28:50.490] We had one that you said it was a blue tent
+- [28:53.060] and you said it was a communist tent, right?
+- [28:54.850] See, we're going to have a communist mayor of New York,
+- [28:56.860] so let's see how that works out.
+- [28:58.570] The Press: And I've gotten a lot of feedback on that.
+- [29:00.070] Everyone's very appreciative --
+- [29:01.350] The President: Yeah, you told me about a blue tent and I said,
+- [29:05.120] "It can't be there because we knocked him down."
+- [29:06.760] But this was a very highly sophisticated group of people
+- [29:10.990] that had permits and all the other thing.
+- [29:12.670] Well, their permit expired. We knocked it down.
+- [29:15.060] It took, what, 24 hours? Less maybe.
+- [29:17.690] So I appreciate you telling me that.
+- [29:19.110] Now we have a great thing going. The country is doing incredible.
+- [29:23.160] We are a hot country. The hottest.
+- [29:24.720] We're the hottest country in the world right now.
+- [29:26.420] The Press: Do the parents of the kids
+- [29:27.650] have anything they'd like to say?
+- [29:28.880] The President: Yeah, that's a great question.
+- [29:30.140] Would you like to say something?
+- [29:31.350] Josh Armstrong: I would.
+- [29:32.570] The President: That's a good comment right there.
+- [29:33.810] That's the best comment you've made in a long time.
+- [29:37.630] Josh Armstrong: Mr. President, good evening.
+- [29:39.160] I'm Josh Armstrong. My name is Josh Armstrong.
+- [29:41.310] I'm from West Virginia and I'm the father of this
+- [29:43.460] amazingly brave and resilient little six-year old, Laurel.
+- [29:46.650] Laurel was diagnosed with leukemia
+- [29:48.830] when she was two years old just before her third birthday.
+- [29:51.870] And we went on to watch as she spent months
+- [29:53.800] in the hospital fighting for her life,
+- [29:55.780] as she received blood transfusions
+- [29:57.500] and platelet transfusions, as she fought off
+- [30:00.020] one potentially fatal infection after another.
+- [30:03.020] We watched as her body swelled
+- [30:05.460] and became painful from steroids.
+- [30:07.620] And then as it became frail and weak from chemotherapy,
+- [30:11.460] and we watched and we wondered
+- [30:12.790] why there aren't better treatments available.
+- [30:14.320] And we wondered what might happen
+- [30:16.000] if she doesn't get the drugs she need.
+- [30:17.470] And we wondered why isn't anybody doing more?
+- [30:20.770] And on behalf of myself
+- [30:22.360] and all the parents that have watched and wondered,
+- [30:25.540] we'd like to say that what you're doing today,
+- [30:27.670] gives parents like me and children like
+- [30:29.430] Laurel, the one thing that we most desperately need,
+- [30:31.340] and that's hope.
+- [30:34.090] The President: And Laurel's doing well?
+- [30:35.390] Josh Armstrong: And Laurel is -- I'm happy to say
+- [30:36.970] Laurel is on remission today.
+- [30:38.250] The President: That's good. She looks so beautiful.
+- [30:39.670] Josh Armstrong: Thank you. She is beautiful.
+- [30:40.930] The President: You feeling good, Laurel?
+- [30:42.450] (applause)
+- [30:49.740] Josh Armstrong: Because of this bill,
+- [30:50.960] doctors are going to be able to get better treatments
+- [30:53.540] faster to patients like Laurel.
+- [30:57.350] Because of you making children like her, real children,
+- [31:00.110] not cases or statistics, but children like Laurel
+- [31:02.160] and all of these children here today,
+- [31:04.580] we have that hope and we are so proud
+- [31:06.020] that you're standing with children with cancer.
+- [31:07.440] You're making it a national priority.
+- [31:08.700] The President: That's very nice.
+- [31:09.910] Josh Armstrong: Thank you, Mr. President.
+- [31:11.150] The President: We're with you all the way.
+- [31:12.500] How about you back there, dad?
+- [31:15.170] Male Speaker: Actually, I'd like my daughter to speak.
+- [31:17.830] Carolyn would like to speak. She's (inaudible) --
+- [31:19.570] The President: That's very good. I'd like you to speak.
+- [31:21.310] Carolyn Hendrix: Thank you.
+- [31:22.530] Good afternoon, my name is Carolyn Hendrix.
+- [31:25.080] When I was four years old, I was diagnosed with acute
+- [31:26.980] (inaudible) sarcoma, a pediatric bone cancer.
+- [31:30.100] 11 years later, I'm now 16 years old and I'm doing great.
+- [31:34.320] What you're doing today, Mr. President,
+- [31:36.330] means that kids like me will get better options
+- [31:39.180] and so much more hope for the future.
+- [31:41.230] This will help doctors use technology to find cures faster,
+- [31:44.590] match patients to trials more quickly
+- [31:46.860] and give our families more control over our health.
+- [31:50.530] For kids, everyday counts.
+- [31:52.420] This order shows that our lives matter
+- [31:54.120] enough to be first in line for innovation.
+- [31:58.090] On behalf of children and young adults with cancer,
+- [32:00.930] those still fighting and those remission like me
+- [32:03.640] and families who wish that they had more time together.
+- [32:06.740] Thank you for making us a national priority.
+- [32:09.940] Mr. President because of actions like this,
+- [32:12.520] kids like me have the chance to grow up,
+- [32:15.250] to chase our dreams and to live full lives.
+- [32:17.900] And that is the greatest gift anyone could ever give.
+- [32:19.840] The President: Wow. That was so beautiful
+- [32:22.340] (applause)
+- [32:27.750] Your father could not have done that.
+- [32:29.220] You did a good -- you did a big service, father.
+- [32:33.330] That's great. Where did you learn how to speak like that?
+- [32:36.680] Carolyn Hendrix: I've done lots of speeches
+- [32:37.950] for childhood cancer over the last few years,
+- [32:40.690] and I'm also in a theater program, so that helps a lot.
+- [32:43.470] The President: That's great. Well, good. That's a great job.
+- [32:45.140] Would anybody like to say something?
+- [32:47.470] Would you like to say something, honey?
+- [32:49.500] Ailani Myers: Yes.
+- [32:50.700] I'm Ailani Myers and I'm nine years old
+- [32:52.640] and I had a blood cancer called Leukemia
+- [32:56.640] when I was only two years old.
+- [33:00.240] I had to get treated at seven different hospitals
+- [33:02.910] across this country
+- [33:04.700] and I had to have two pulmonary transplants,
+- [33:08.360] one from my dad and one from my mom.
+- [33:10.600] And I had to spend many days in the nights in the hospital
+- [33:13.860] getting pokies and yucky medicine and me
+- [33:17.270] and my parents were very worried.
+- [33:18.890] And I did go through those seven different hospitals
+- [33:21.980] to find the best treatment that can make me better.
+- [33:24.590] And thank you Mr. President for making everything happen today
+- [33:31.820] so kids like me and
+- [33:33.430] Laurel, we can still be living today and speaking.
+- [33:37.650] (applause)
+- [33:47.130] The President: We're not doing so well today.
+- [33:48.510] They're doing so good. That was fantastic. Thank you.
+- [33:51.110] And you're feeling good now?
+- [33:52.900] Are you all better? You're pretty close, right?
+- [33:55.670] Ailani Myers: Yeah.
+- [33:56.910] The President: Yeah. I hear you're going to do good.
+- [33:58.700] Anybody like to say something? Yes, sir. Go ahead.
+- [34:02.470] Male Speaker: I've had a brain tumor since I was four months.
+- [34:07.760] Now I'm off all home medicines. I'm a cancer survivor.
+- [34:10.680] I've had a brain tumor since I was four months
+- [34:12.270] and I'm doing great. I'm 15 now and I'm going to --
+- [34:14.590] The President: And you're going to be a football player,
+- [34:16.170] offensive lineman.
+- [34:17.890] (applause)
+- [34:22.590] You look fantastic. How about somebody else?
+- [34:25.910] I love hearing this. I love hearing you talk
+- [34:28.480] because you talk better than any of us, right?
+- [34:31.680] Male Speaker: Thank you, Mr. President.
+- [34:33.250] The President: Well, I want to thank you all for being here.
+- [34:34.760] Amazing.
+- [34:36.000] Male Speaker: We want to thank you.
+- [34:37.460] The President: Thank you. But we're doing a lot for you
+- [34:40.230] and you're all going to be better very soon.
+- [34:43.470] I don't think you're going to need any of the help
+- [34:45.080] that we're giving. It's going to be for the future.
+- [34:47.610] But I want to thank you for being with us
+- [34:49.320] and I'm going to bring them back to a room.
+- [34:51.300] We have a room where we have lots of hats
+- [34:52.990] and things in the back, and we're going to --
+- [34:55.180] Would you like to go back and we'll pick some nice presents?
+- [34:57.530] Laurel: Yes. Ailani Myers: Yes.
+- [34:58.770] The President: We'll get rid of the wonderful people
+- [35:01.660] of the media. Do you like the media?
+- [35:04.090] They're nice, right? They have good days, right?
+- [35:08.540] They do. Actually, they do. Thank you very much.
+- [35:10.670] That's beautiful. That's really good.
+- [35:12.520] And thank you. We're not going to top that,
+- [35:14.420] so I wanted just thank you all very much. Thank you.
+- [35:19.080] (applause)

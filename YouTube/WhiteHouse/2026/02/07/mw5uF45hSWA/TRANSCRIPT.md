@@ -1,0 +1,496 @@
+<!-- source: https://www.youtube.com/watch?v=mw5uF45hSWA -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: mw5uF45hSWA -->
+<!-- date_published: 2026-02-07T01:52:45+00:00 -->
+<!-- date_accessed: 2026-06-02T01:05:37.408145+00:00 -->
+
+# Transcript: President Trump Gaggles with Press on Air Force One En Route Palm Beach, FL, Feb. 6, 2026
+
+- [00:01.520] Hello everybody.
+- [00:04.799] >> We had uh very very good talks today
+- [00:08.080] having to do with Russia, Ukraine could
+- [00:11.040] something could be happening. Uh we
+- [00:13.440] likewise had very good talks on uh Iran.
+- [00:17.199] Iran looks like it wants to make a deal
+- [00:19.359] very badly. We have to see where that
+- [00:20.720] deal is. But I think Iran looks like
+- [00:22.800] they want to make a deal very badly as
+- [00:25.680] they should. Last time they decided
+- [00:28.240] maybe not to do it, but I think they
+- [00:30.080] probably feel differently. We'll see
+- [00:31.920] what the deal is. It'll be different
+- [00:34.239] than last time. And we have a big
+- [00:37.040] armada. We have a big fleet heading in
+- [00:40.079] that direction. Going to be there pretty
+- [00:42.000] soon. So, we'll see how that works out.
+- [00:45.280] The stock market, as you know, broke a
+- [00:48.399] number that they thought was going to be
+- [00:50.160] impossible to break during certainly
+- [00:52.879] during my first year. They said if you
+- [00:55.280] could do it in your fourth year. By the
+- [00:57.199] fourth year we broke 50,000 on the Dow.
+- [01:00.160] Most people thought that was not
+- [01:02.399] possible to do so quickly. We did it in
+- [01:04.400] the first year. So we're about 3 years
+- [01:06.640] ahead of schedule. It's going good.
+- [01:08.720] Prices are way down. You don't hear the
+- [01:10.560] Democrats talking about affordability
+- [01:12.400] anymore, which they caused the
+- [01:14.479] affordability problem very badly. Uh but
+- [01:18.159] you don't hear that word. But I haven't
+- [01:19.439] heard that word spoken in a week and a
+- [01:21.840] half because they can't speak because
+- [01:24.320] the prices are down. Uh energyy's down.
+- [01:27.280] If you look at oil, uh if you look at
+- [01:29.200] gasoline, uh a gallon of gasoline in
+- [01:32.560] Iowa, I was there last week, uh was 185,
+- [01:37.439] 189, and 199 in three different
+- [01:40.400] stations. And that's it's that way in a
+- [01:42.880] lot of places. So gasoline is way down,
+- [01:44.960] energy is down. Uh groceries are down.
+- [01:48.880] We've broken the Biden disaster, the
+- [01:52.159] mess that I inherited. The border is
+- [01:54.640] extremely secure, more so than it's ever
+- [01:57.280] been. We've gone 9 months with zero
+- [01:59.520] people coming in illegally. And I think
+- [02:02.399] the immigration problem is we're doing
+- [02:05.119] very well. And crime uh is at a record
+- [02:07.920] low for 125 years. just was just
+- [02:10.640] announced lowest has been since 1900.
+- [02:14.480] That's pretty good. That's a long time.
+- [02:16.720] So, uh, do you have any questions? Mr.
+- [02:18.720] >> President, social media post that you
+- [02:20.400] took down earlier today. Um, the White
+- [02:23.280] House says that a a staffer sent it. Who
+- [02:26.400] sent it and are you going to fire?
+- [02:28.000] >> Look at it. No, I looked at it. I saw it
+- [02:29.920] and I just looked at the first part. It
+- [02:31.760] was about voter fraud in someplace
+- [02:34.640] Georgia. There was a lot of voter fraud,
+- [02:36.480] 2020 voter fraud. And I didn't see the
+- [02:39.440] whole thing. I guess during the end of
+- [02:41.200] it, there was uh some kind of a picture
+- [02:44.720] that people don't like. I wouldn't like
+- [02:47.120] it either, but I didn't see it. I just I
+- [02:48.800] looked at the first part and it was
+- [02:50.720] really about voter fraud in uh and and
+- [02:54.080] the machines, how crooked it is, how
+- [02:55.840] disgusting it is. Uh then I gave it to
+- [02:58.560] the people to generally they look at the
+- [03:01.200] whole thing but I guess somebody didn't
+- [03:02.720] and they posted and we took it down and
+- [03:04.959] we did it you know but that was a voter
+- [03:07.519] fraud that nobody talks about. They
+- [03:09.840] don't like to talk about that uh post.
+- [03:13.360] We took it down as soon as we found out
+- [03:15.040] about it.
+- [03:15.440] >> Mr. President, a number of Republicans
+- [03:17.200] are calling on you to apologize for that
+- [03:19.599] post. Is that something you're going to
+- [03:21.280] do?
+- [03:21.599] >> No, I didn't make a mistake. I mean you
+- [03:23.599] give I look at a lot of thousands of
+- [03:25.760] things. Um, and uh, I looked at the
+- [03:29.440] beginning of it. It was fine. They had
+- [03:31.680] that one post and I guess it was a
+- [03:33.280] takeoff. By the way, a lot of people
+- [03:35.200] were covered. If you look at where it
+- [03:37.120] came from, a lot of I guess it was a
+- [03:39.280] takeoff on the Lion King and uh,
+- [03:42.319] certainly it was a a very strong post in
+- [03:45.680] terms of voter fraud. Nobody knew that
+- [03:47.840] that was in the end. If they would have
+- [03:49.200] looked, they would have seen it and
+- [03:50.799] probably they would have had the sense
+- [03:52.239] to take it down. But that was a takeoff
+- [03:54.319] on the Lion King and a lot of people
+- [03:55.680] were covered on different uh in
+- [03:58.400] different positions. So uh but I spoke
+- [04:02.159] to Tim Scott. He was great. Tim is a
+- [04:05.920] great guy. He understood that 100%. Uh
+- [04:09.280] go ahead, Mr. President. Uh your Steve
+- [04:12.080] Woodoff, Jared Kushner met with Iran's
+- [04:14.159] foreign minister today. You also had
+- [04:15.840] Brad Cooper there, the head of SenCom. A
+- [04:18.160] deal doesn't look like it's been reached
+- [04:19.840] yet. How long are you willing to wait
+- [04:22.320] before it can be reached? Well, we you
+- [04:24.000] have to get in position. We have plenty
+- [04:25.919] of time. If you remember Venezuela, we
+- [04:28.000] waited around for a while and uh we're
+- [04:30.639] in no rush. We have, you know, very good
+- [04:33.600] talks going with Iran. We have very good
+- [04:35.360] talks going with Russia and Ukraine.
+- [04:38.639] We're doing a lot of good talking. And
+- [04:40.880] uh I think we had the results today were
+- [04:45.040] with Iran. It was a meeting. We're going
+- [04:46.800] to meet again early next week. and they
+- [04:50.400] want to make a deal. Iran, as they
+- [04:52.240] should, want to make a deal. They know
+- [04:53.759] the consequences. If they don't, if they
+- [04:56.000] don't make a deal, the consequences are
+- [04:57.680] very steep. So, we'll see what happens.
+- [05:00.240] But they had a very they had a very good
+- [05:02.000] meeting with a very high representative
+- [05:05.680] Iran of Iran and we'll see how it all
+- [05:08.639] turns out.
+- [05:09.919] >> Right groups see that. By the way, I'd
+- [05:11.759] love to see that. If we could if we
+- [05:13.759] could do that, I'd love to see it.
+- [05:15.840] >> Mr. Iran, is there is a deal that is
+- [05:18.320] acceptable that's only that only covers
+- [05:21.039] >> with Iran? Is there a deal that's only
+- [05:23.120] covers nuclear that would be acceptable
+- [05:24.800] to you? Because they don't they just
+- [05:26.320] wouldn't have nuclear. They don't want
+- [05:27.440] to have anything else like
+- [05:28.560] >> that would be acceptable. But the one
+- [05:30.720] thing and right up front, no nuclear
+- [05:32.800] weapons.
+- [05:34.479] Uh if we could have made that deal two
+- [05:36.320] years ago, we would have made that deal.
+- [05:37.919] But they weren't willing to do that. Now
+- [05:39.759] they are willing to do it. So they're
+- [05:41.919] willing to do much more than they would
+- [05:43.759] have
+- [05:45.360] a year and a half ago or even a year ago
+- [05:47.280] when we don't forget we've only been
+- [05:48.880] doing this for exactly one year and we
+- [05:52.000] started with them a few months after the
+- [05:54.479] beginning of this term. This term has
+- [05:56.800] been amazing. Uh but but the results
+- [06:00.639] could it could surprise people. If they
+- [06:03.919] would have offered this deal originally
+- [06:06.479] when we first started, it would have
+- [06:08.639] been accepted immediately. We'll see
+- [06:10.240] what happens.
+- [06:10.960] >> Mr. President, a number of people in the
+- [06:12.720] MAGA base say they aren't satisfied with
+- [06:15.520] the administration just focusing on
+- [06:17.199] deporting violent criminals that they
+- [06:19.360] >> Who you with?
+- [06:20.000] >> I'm Natalie Allison with the Washington
+- [06:21.360] Post.
+- [06:23.120] >> Well, you're having a hard time getting
+- [06:24.400] readers. Washington Post is doing very
+- [06:27.199] poorly. Go ahead. You have a very bad
+- [06:28.880] attitude. Go ahead.
+- [06:29.840] >> Uh, well, a number of of people in your
+- [06:31.759] base say that they want to see all
+- [06:33.680] illegal immigrants deported, even once.
+- [06:36.000] >> Let me tell you about my base. Let me
+- [06:37.280] tell you about my base. My base has
+- [06:39.440] never been stronger. My base is me and
+- [06:42.319] other very good people, people that love
+- [06:44.319] our country. And if you talk about my
+- [06:46.800] base or the MAGA base, you could call it
+- [06:48.560] a lot of America first base. Uh they
+- [06:51.680] couldn't be more thrilled. We have
+- [06:53.039] climbed down to the lowest level that
+- [06:54.639] has been at 125 years. We have a border
+- [06:57.680] that's totally closed. We have all the
+- [06:59.919] things that our base wanted and we have
+- [07:01.520] the best economy in history. Prices are
+- [07:04.000] down. We inherited very high prices and
+- [07:06.080] the highest inflation in the history of
+- [07:08.639] our country. Think of it, the highest or
+- [07:11.520] 48 years. Some people say 48 years, but
+- [07:14.240] I'll take either one. Uh so my base is
+- [07:17.360] very happy.
+- [07:18.080] >> But would you would you support uh mass
+- [07:20.479] deportations of people who are otherwise
+- [07:22.160] law-abiding?
+- [07:22.960] >> Seeing everybody, but we focus we're
+- [07:24.720] focusing on the criminals. We're
+- [07:26.160] focusing on killers. We're focusing but
+- [07:28.800] ultimately uh they all broke the law.
+- [07:31.120] Some can if they go if they do it in a
+- [07:33.360] certain way they can go out they can
+- [07:35.199] come back if they do it properly but as
+- [07:38.240] you know a lot of people have been
+- [07:39.840] deported a lot but uh the focus is on
+- [07:43.840] the murderers the drug dealers we have
+- [07:47.520] many people mentally insane they dumped
+- [07:49.759] everything in our country but ultimately
+- [07:51.919] yeah it's exactly as I said during the
+- [07:53.840] campaign
+- [07:54.720] >> president can you set the record
+- [07:55.840] straight there were reports circulating
+- [07:57.440] that you told Chuck Schumer that in
+- [07:59.840] order to restore funding for the Gateway
+- [08:01.919] Trains tunnel in New York, New Jersey.
+- [08:04.080] You would want Penn Station and Dallas
+- [08:06.000] airport to be named after you. Is that
+- [08:07.599] true?
+- [08:07.840] >> He suggested that to me. Chuck Schumer
+- [08:10.879] suggested that to me about changing the
+- [08:13.360] name of Penn Station to Trump station.
+- [08:17.360] Dallas airport is really separate.
+- [08:18.960] Dallas airport is really not too
+- [08:21.680] involved with Congress. It's a separate
+- [08:24.319] kind of a deal as you know. Uh but it
+- [08:26.639] was suggested to be by numerous people,
+- [08:28.479] unions, uh Democrats, Republicans, a lot
+- [08:32.159] of people suggested. Uh nothing's been
+- [08:34.399] done on that.
+- [08:36.560] >> Uh you frequently criticize Joe Biden
+- [08:39.360] for not knowing what is going on in his
+- [08:41.839] name. This racist video that was posted
+- [08:43.680] on your social media a hell of a lot
+- [08:45.440] better than you do. You don't know
+- [08:46.640] what's going on. I know what's going on.
+- [08:48.560] No, Joe Biden didn't have a clue. Uh but
+- [08:51.680] uh we know everything. And when you look
+- [08:53.760] at what's happening with our economy, I
+- [08:55.600] think of it, we're way years ahead of
+- [08:58.320] schedule. We have thousands and
+- [09:00.720] thousands of businesses being built
+- [09:02.560] right now. So Joe Biden had no clue. If
+- [09:05.760] Joe Biden were elected or if Kamla were
+- [09:07.920] elected, we wouldn't have a country
+- [09:09.839] right now.
+- [09:11.360] >> You won the election because of minority
+- [09:13.440] voters. Does this post maybe hurt
+- [09:15.680] Republicans with, you know, black voters
+- [09:18.480] after the
+- [09:19.200] >> I think. You know, I was look, we did
+- [09:21.600] criminal justice reform. I did uh the uh
+- [09:25.760] historically black colleges and
+- [09:27.440] universities. I got them funded. Nobody
+- [09:30.000] has been and that's why I got a
+- [09:32.000] tremendous the highest vote with male
+- [09:34.640] black voters that they've seen in many,
+- [09:36.720] many decades. I've done great with black
+- [09:39.600] voters have been great to me. I've been
+- [09:41.040] great to them. Black voters have been
+- [09:42.880] great to me. I've been great to them.
+- [09:45.360] And I am, by the way, the least racist
+- [09:47.839] president you've had in a long time, as
+- [09:50.240] far as I'm concerned. We have uh I've
+- [09:52.880] had a great relation. Think of what I've
+- [09:54.480] done. Criminal justice reform. Nobody
+- [09:57.680] else could do it. Obama couldn't do it.
+- [10:00.240] Nobody could do it. Clinton couldn't do
+- [10:01.680] it. They actually went the other way.
+- [10:03.200] They went into a a very bad thing for
+- [10:07.040] African-American people, black people.
+- [10:09.519] They went to a They did very bad things.
+- [10:11.440] I did very good things, but criminal
+- [10:13.600] justice reform. And then I funded the
+- [10:16.000] universities which nobody else was
+- [10:17.920] willing to do. They were going every
+- [10:19.440] year they'd come back to Washington and
+- [10:22.240] they'd be begging for money, begging. I
+- [10:25.120] got to be friendly with some of the
+- [10:26.560] heads of the schools and they would come
+- [10:29.040] back and they would literally tell me
+- [10:30.480] they're forcing us to beg. I'm the one
+- [10:32.079] that got them long-term financing and
+- [10:34.240] more than they were looking for. So
+- [10:36.800] there's nobody that's done more and I
+- [10:39.120] think maybe more than anything else was
+- [10:40.720] criminal justice reform. They've been
+- [10:42.560] trying to get it for years and I'm the
+- [10:44.959] one that got it done. So, nobody can
+- [10:46.800] tell me about that. That somebody posts
+- [10:49.200] a staffer, you know, post and I knew it
+- [10:52.640] was all about if you take a look at that
+- [10:55.279] and see the whole thing. It was a small
+- [10:57.680] section at the very end, but that was
+- [11:00.399] about uh fraudulent elections, which we
+- [11:03.600] have a lot of them. We're going to get
+- [11:05.279] it stopped and uh I like the beginning.
+- [11:08.720] I saw and just passed it on and I guess
+- [11:11.760] probably nobody reviewed the end of it
+- [11:13.760] because what I saw at the beginning was
+- [11:16.000] really really strong. It was about
+- [11:18.320] fraudulent elections and anytime I see
+- [11:21.680] that stuff and when it's credible you
+- [11:23.279] put it up but somebody slipped and
+- [11:26.320] missed a very small part. Now by the way
+- [11:28.640] again the takeoff one I guess I didn't
+- [11:31.519] do it by the way this was done by
+- [11:32.880] somebody else. This was a retruth that
+- [11:35.279] was not done by us. But uh that was a
+- [11:39.440] very strong truth. It was a very strong
+- [11:42.880] statement made about the fraudulent
+- [11:45.440] elections in a certain part of our
+- [11:47.040] country which are really bad.
+- [11:48.560] >> Mr. President, you promised Savannah
+- [11:50.240] Guthri's family the full support of
+- [11:52.079] federal law enforcement. FBI is now a
+- [11:54.560] little I'll give you a little statement.
+- [11:56.000] I think we're doing very well on that
+- [11:58.399] regard. You're probably surprised to
+- [12:00.560] hear that. Uh, I think we're doing very
+- [12:03.200] well. Very well. Meaning,
+- [12:06.320] we have some clues, I think, that are
+- [12:08.000] very strong and I think we could have
+- [12:10.320] some answers coming up fairly soon.
+- [12:12.959] >> Is this a nationwide search? Is this a
+- [12:14.959] search going to Mexico?
+- [12:16.000] >> Talking about a search. I'm talking
+- [12:17.200] about a solution. Uh, we have some
+- [12:20.240] things I think that will maybe come out
+- [12:23.040] reasonably soon from DOJ or FBI or
+- [12:27.200] whoever that could be uh the suspect.
+- [12:32.000] Yeah, it could be definitive.
+- [12:36.639] >> A lot's taken place in the last couple
+- [12:38.399] of hours.
+- [12:39.760] >> A lot of a lot of things have happened
+- [12:42.480] >> with regard to that horrible situation
+- [12:44.880] in the last couple of hours. President,
+- [12:47.360] >> at the very least, do you condemn the
+- [12:49.200] racist parts of the video?
+- [12:51.040] >> Of course I do.
+- [12:52.800] >> Mr. President,
+- [12:53.120] >> the Dow and S&P have done really well
+- [12:54.959] under you, Mr. President. The Dow and
+- [12:56.720] S&P have done very well under you. Do
+- [12:58.639] you think that there's still more?
+- [12:59.839] Everything's done well.
+- [13:00.800] >> Do you think there's still
+- [13:01.680] >> everything? What hasn't done well?
+- [13:03.200] >> Do you think there's still more to do
+- [13:04.639] for Americans who can't afford to invest
+- [13:06.320] in the stock market here?
+- [13:07.200] >> Well, I brought prices way down. You
+- [13:08.880] don't hear it anymore. You know, when I
+- [13:10.399] first came in, the Democrats were
+- [13:11.839] screaming affordability. And I I just
+- [13:13.839] got there. Remember eggs? Because eggs
+- [13:16.399] were up four times higher than they ever
+- [13:18.320] were. And that was I think my first
+- [13:20.800] press conference was about 3 days in and
+- [13:23.600] they were screaming about eggs. They
+- [13:25.040] said, "I didn't do it. They did it. We
+- [13:26.560] got the eggs down. We got the groceries
+- [13:28.240] down. We got it all down. It's really
+- [13:30.560] going good. Now we have interest rates.
+- [13:32.160] We have a great new Fed person coming in
+- [13:34.639] hopefully soon. Interest rates are
+- [13:37.200] trending downward even without that. And
+- [13:40.560] uh it's been amazing. I mean, we have a
+- [13:42.800] we have potentially the greatest the
+- [13:45.680] greatest uh economy in history. If you
+- [13:48.480] look at what's happened, $18 trillion.
+- [13:50.800] We have $18 trillion coming in. No other
+- [13:53.519] country's gotten anywhere near that. No
+- [13:55.279] other country, China, nobody. And I
+- [13:58.399] think we have potentially the greatest
+- [14:00.320] and you're going to see that when these
+- [14:02.240] factories that are being up. We have car
+- [14:04.800] plants, AI plants, many plants, and
+- [14:07.760] thousands of businesses right now are
+- [14:09.600] being built. When they start opening up
+- [14:11.760] in a year from now, less than a year
+- [14:13.440] from now, it's going to be something
+- [14:14.639] that I don't think we've ever witnessed
+- [14:16.720] before in this country. We've never
+- [14:19.760] nobody's ever seen investment like this.
+- [14:21.839] We have never seen anything like it. So,
+- [14:24.240] it's very exciting. But when you add
+- [14:26.320] that to the best crime numbers we've
+- [14:28.079] ever had, when you add that to so many
+- [14:29.839] other things, the wall, as an example,
+- [14:32.720] we had a border that was out of control.
+- [14:34.720] 25 million people came in during four
+- [14:36.800] years of bite. We have nobody coming in.
+- [14:39.199] They come in, but they come in legally.
+- [14:40.800] They have to come in legally. Our
+- [14:43.120] country is doing really well.
+- [14:44.320] >> Mr. President, you sued the or suing the
+- [14:46.639] federal you're suing the federal
+- [14:48.079] government about your taxes. And um I'm
+- [14:50.720] wondering, is it fair to ask the
+- [14:52.320] American people to pay for that? Well,
+- [14:54.399] anything I win, I'm going to give 100%
+- [14:56.720] to charity.
+- [14:57.440] >> But that still takes it from the
+- [14:58.720] American people.
+- [14:59.440] >> No, no, because they give money to
+- [15:00.800] charity anyway. They give away $40
+- [15:02.560] billion a year to charity. Our
+- [15:04.240] government, you know, our government
+- [15:06.320] gives away $40 billion plus a year to
+- [15:09.920] charity. So, anything I win from that,
+- [15:12.480] but when they go and release your tax
+- [15:14.240] returns, which is totally illegal, uh
+- [15:16.880] people go to jail for that. And they've
+- [15:18.560] already found a person that did it. And
+- [15:20.560] as you know, they got in big trouble.
+- [15:23.519] And uh based upon that and other things
+- [15:25.600] we did and we did sue and anything I win
+- [15:30.240] I'm giving 100% to charity. Really good
+- [15:32.959] very very good and respected charities.
+- [15:35.920] Do
+- [15:36.079] >> you decide
+- [15:36.639] >> Winter Olympics the Winter Olympics
+- [15:38.240] begin this weekend Mr. President. I just
+- [15:40.720] spoke to Marco Ruby. I just spoke to JD
+- [15:43.040] Vancer over in Italy and uh representing
+- [15:47.360] us very well. They're doing a they're
+- [15:49.040] doing a great job. Did you see that the
+- [15:50.480] vice president got booed during the
+- [15:52.079] opening ceremony though? What do you
+- [15:53.440] make of that sort of frosty the vice
+- [15:55.519] president got booed during the opening
+- [15:57.279] ceremony? What do you make of that
+- [15:58.720] frosty?
+- [16:00.079] >> No. Is that true? Is that right?
+- [16:02.399] >> Yeah.
+- [16:02.959] >> It's surprising because people like him.
+- [16:04.560] Well, I mean he is in a foreign country,
+- [16:06.160] you know, in all fairness, but uh he
+- [16:08.880] doesn't get booed in this country.
+- [16:11.279] >> Is there a particular sport you're
+- [16:12.639] interested in seeing
+- [16:13.360] >> in the Super Bowl? Who are you going for
+- [16:16.160] >> in what the game?
+- [16:17.120] >> The Super Bowl. Yeah. I can't say that.
+- [16:19.440] But they are really two good teams.
+- [16:21.839] They're very interesting because you had
+- [16:23.120] one quarterback who looks like he wasn't
+- [16:24.959] going to make it and he made it. And
+- [16:26.720] then you have another one who's young
+- [16:28.079] and they probably wish they played him
+- [16:29.839] last year, right? He's done great. Uh
+- [16:32.560] but you have two great teams and Bob
+- [16:34.320] Draft is a fabulous owner, friend of
+- [16:36.480] mine. Uh New England's amazing that
+- [16:39.440] they're there. Who would think? It's
+- [16:40.639] like a second uh you can't say dynasty
+- [16:43.680] yet. They had a dynasty. You have to win
+- [16:45.759] a lot of games before you create another
+- [16:47.199] one. But uh it's I think it's going to
+- [16:49.680] be a great game. Very a lot of
+- [16:51.680] interesting storylines. Going to be very
+- [16:54.560] interesting.
+- [16:54.880] >> What's your message to the many
+- [16:56.079] Americans who are offended by the video?
+- [16:58.639] >> Would you want to tell those message? I
+- [17:00.560] didn't know about it. So I mean it went
+- [17:01.920] up. I I really have no message. All I
+- [17:03.839] know is here's my message that our
+- [17:06.240] country has never been in a position
+- [17:08.000] like this. We were a laughingtock all
+- [17:10.480] over the world. And now we're a country
+- [17:12.720] that's respected more than we've ever
+- [17:14.400] been respected before. If you go back a
+- [17:16.720] year and a half ago, our country was a
+- [17:19.199] laughingstock and now we're respected
+- [17:21.679] all over the world like probably almost
+- [17:24.400] never before. I would say maybe like
+- [17:26.319] never before. And you know, it's uh if
+- [17:29.360] you look at from an economic standpoint,
+- [17:31.840] the king of Saudi Arabia said it, others
+- [17:33.760] said it. Uh we were
+- [17:36.720] not a country that was even thought of
+- [17:38.400] as a country that was going to make it
+- [17:40.080] back. And in one year, we're the hottest
+- [17:42.960] country. We are right now the hottest
+- [17:44.880] country anywhere in the world. So that's
+- [17:47.600] my message. Thank you everybody, Mr.
+- [17:50.000] President.
+- [17:50.480] >> Thank you.

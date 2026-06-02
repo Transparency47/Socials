@@ -1,0 +1,971 @@
+<!-- source: https://www.youtube.com/watch?v=xa20sWp9bWA -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: xa20sWp9bWA -->
+<!-- date_published: 2025-06-26T21:09:00+00:00 -->
+<!-- date_accessed: 2026-06-02T02:47:53.798977+00:00 -->
+
+# Transcript: President Trump Participates in One, Big, Beautiful Event
+
+- [00:11.450] Announcer: Ladies and gentlemen,
+- [00:12.910] the President of the United States.
+- [00:16.860] ♪ (Hail to the Chief) ♪
+- [00:41.494] (applause)
+- [00:48.660] The President: Thank you. Thank you very much.
+- [00:51.530] Thank you, that's a good-looking group behind me.
+- [00:53.990] This group isn't too bad either. Very nice. Nice to be with you.
+- [00:59.660] Beautiful, right? Beautiful. Thank you very much.
+- [01:04.500] Thank you all for being here to support
+- [01:07.370] one of the most important pieces of legislation
+- [01:10.140] in the history of our country.
+- [01:12.140] And that's everybody saying that.
+- [01:14.210] Virtually everybody.
+- [01:15.490] The One Big, Beautiful Bill to secure our borders,
+- [01:20.670] turbocharge our economy,
+- [01:22.830] and bring back the American dream.
+- [01:24.740] That's what's happening, too.
+- [01:26.480] It's met with tremendous approval and reception.
+- [01:30.800] And when we were thinking about doing it,
+- [01:32.360] we were going to break it down into three, four, five, six,
+- [01:35.360] or even seven bills. And I said, let's make it
+- [01:38.200] One Big, Beautiful bill, my friend.
+- [01:42.050] (applause)
+- [01:50.200] They actually said it would be very much harder
+- [01:52.030] to get this way, but it would be better.
+- [01:54.400] And the truth is, I think it worked out well
+- [01:56.820] because there's something for everybody,
+- [01:58.950] and I think, in many ways, much better.
+- [02:02.130] We're delighted to be joined by Secretaries Marco Rubio,
+- [02:06.800] Scott Bessent, Pete Hegseth, Doug Burgum, Doug Collins,
+- [02:12.290] Sean Duffy, Howard Lutnick, Linda McMahon,
+- [02:16.650] Brooke Rollins, Scott Turner, Chris Wright.
+- [02:20.080] Wow, that's a hell of a group.
+- [02:21.450] I think that's the biggest group of Cabinet members.
+- [02:30.590] That's the biggest group of Cabinet,
+- [02:32.390] and we're not finished yet
+- [02:34.220] because we have our great Attorney General Pam Bondi here.
+- [02:40.170] U.S. Trade representative.
+- [02:43.560] And he's working around 24 hours.
+- [02:45.310] We have one after another. Countries come.
+- [02:47.490] Everybody wants to be with us
+- [02:49.060] because we have the hottest country in the world.
+- [02:51.960] A year ago, we had -- we had a disaster on our hand.
+- [02:57.080] We had the coldest country, I think, by far.
+- [02:59.900] And now we have to hottest. The king of Saudi Arabia,
+- [03:02.030] when I was there, we brought back $5.1 trillion
+- [03:04.370] between Qatar, Saudi Arabia and UAE.
+- [03:07.930] And all three said -- great leaders --
+- [03:10.170] they all said to me the same thing.
+- [03:11.870] You know, it's amazing.
+- [03:13.090] In four months at that time -- and it's that time now,
+- [03:16.190] it's getting to be close to six --
+- [03:18.350] but in four months, they said, you have the hottest country
+- [03:21.030] anywhere in the world. It's not even close.
+- [03:23.430] And they thought we were dead a year before that.
+- [03:25.640] They said, I thought you were dead.
+- [03:27.170] The country was dead, and it was pretty close to it.
+- [03:30.030] But we have the hottest country in the world, so it's great.
+- [03:32.810] And Trade Representative Jamison Greer is very busy
+- [03:36.040] because -- where are you, Jamison?
+- [03:40.400] Everybody wants to make a deal and have a part of it.
+- [03:43.550] I know you and Howard and Scott are working overtime
+- [03:48.550] making deals with other countries.
+- [03:50.380] You remember a few months ago, the press was saying,
+- [03:53.260] do you really have anybody of any interest?
+- [03:55.680] Well, we just signed with China yesterday, right?
+- [03:58.910] Just signed with. China. We have everybody.
+- [04:01.530] We're not going to make deals with everybody.
+- [04:03.000] Some were just going to send them a letter,
+- [04:04.430] say thank you very much.
+- [04:05.630] You're going to pay 25, 35, 45 percent.
+- [04:08.750] That's the easy way to do it.
+- [04:10.080] And my people don't want to do it that way.
+- [04:11.640] They want to -- some of it,
+- [04:12.880] but they want to make more deals than I would do.
+- [04:15.310] But we're having some great deals.
+- [04:16.680] We have one coming up, maybe with India.
+- [04:19.020] Very big one where we're going to open up India.
+- [04:22.070] In the China deal, we are starting to open up China.
+- [04:24.960] Things that never really could have happened.
+- [04:27.380] And the relationship with every country has been very good.
+- [04:30.620] And we also have OMB Director, who is very busy also.
+- [04:33.740] Russ Vogt. Thank you. Thank you, Russ.
+- [04:36.420] (applause)
+- [04:40.650] And also, I want to give a very special thank you.
+- [04:43.160] This is a hell of a group we have here.
+- [04:44.580] This is amazing. The quality of people.
+- [04:46.850] But actually, I like these people
+- [04:49.160] and most of those people much better
+- [04:50.800] than the people I just named, okay?
+- [04:53.610] But a very thanks as well to Speaker Mike Johnson,
+- [04:57.000] who's a great, legendary guy.
+- [04:58.620] He's going to go down as a legend.
+- [05:04.100] A great friend of mine, a fantastic senator,
+- [05:06.700] Roger Marshall, wherever you may be, Roger,
+- [05:09.560] thank you. Thank you very much. Thank you.
+- [05:15.240] Bernie Marino. Great win Bernie had in Ohio.
+- [05:19.990] Great win. That was a tough race.
+- [05:23.120] They said that was not winnable, and he won by about five points.
+- [05:25.930] So that was pretty good. So much for not winnable.
+- [05:29.170] Mike Lee is here. Hi, Mike. Thank you, Mike.
+- [05:33.220] (applause)
+- [05:35.360] Tim Sheehy, another tremendous win.
+- [05:38.540] Way to go, Tim. Young, handsome. That was another race
+- [05:43.410] that wasn't supposed to be able to be won.
+- [05:45.850] They said, we have a very young, handsome guy.
+- [05:47.700] I said, does that matter?
+- [05:48.920] Looks don't matter, do they, Mike?
+- [05:51.510] Anyway, great job. You can't help it.
+- [05:54.920] You can help it, great. That was a great race.
+- [05:57.880] Along with representatives, Paul Gosar, Greg Murphy,
+- [06:02.110] Tom Kane Jen Kiggins, Rob Breznahan,
+- [06:07.280] who's a -- where is Rob?
+- [06:08.970] Stand up, Rob. Let me see you. Good. He's done a fantastic job.
+- [06:14.400] And Ryan McKenzie. Thank you, Ryan. Thank you all.
+- [06:17.190] That's great. It's a big group of people.
+- [06:19.630] We're here this afternoon to share the stories
+- [06:22.140] of an incredible group of patriots
+- [06:23.820] from across the nation whose future we are defending
+- [06:27.430] with the One Big, Beautiful Bill.
+- [06:30.490] This is the ultimate codification of our agenda
+- [06:34.510] to, very simply, a phrase that's been used
+- [06:37.250] pretty well by me over the last 10 years,
+- [06:40.090] but maybe even before that, make America great again.
+- [06:42.730] Very simple, make American great again,
+- [06:44.740] when Joe Biden used to get up and say,
+- [06:46.400] we will stop this horrible MAGA.
+- [06:50.150] We're going to stop MAGA, we're going fight it,
+- [06:52.710] we going to, I said, Joe,
+- [06:54.630] loosen up, it's called make America Great Again.
+- [06:56.990] It's okay. Remember, they got up so angry.
+- [07:00.140] He was so angry.
+- [07:01.430] It said Make America Great Again.
+- [07:04.320] But we'll deliver a record tax cut, a record spending cut,
+- [07:07.720] a record investment in border security.
+- [07:10.230] We've done so well on the border.
+- [07:11.680] You know, last month,
+- [07:13.400] we had zero people that crossed the border, zero.
+- [07:19.340] (applause)
+- [07:25.110] So, Christie and Tom Homan and some of the people,
+- [07:28.250] what a job you've done.
+- [07:29.470] What a -- but, you know, people forget about that.
+- [07:31.800] They don't care. The border has been fixed.
+- [07:33.310] I went to talk about the border two days ago at a big group.
+- [07:36.510] Sir, they don't want to hear about the border.
+- [07:38.230] Why? It's fixed, you now.
+- [07:40.910] It's the second time it happened.
+- [07:42.110] I mean, 2016, I won on the border.
+- [07:44.160] I fixed it in about three months. It was beautiful.
+- [07:46.800] And they wouldn't let me talk about border.
+- [07:48.480] Sir, nobody wants to hear the border,
+- [07:50.860] but we're going to talk about it anyway.
+- [07:52.370] Right, Tom Homan? We're talking about it anyway.
+- [07:55.440] (applause)
+- [08:00.520] So we have a big number of dollars that's coming here
+- [08:03.810] because we want to keep it that way
+- [08:05.080] and we want keep it fixed,
+- [08:07.110] and a record number of deportations.
+- [08:09.270] We're bringing criminals out by the thousands.
+- [08:13.080] Nobody can even imagine.
+- [08:14.850] They let people in that were murderers.
+- [08:16.640] 11,888 murderers, gang members, people from mental institutions,
+- [08:24.230] and insane asylum.
+- [08:25.760] You know what that is? That's insane asylum.
+- [08:28.760] A mental institution on steroids.
+- [08:31.940] During the campaign, I talk about the late,
+- [08:33.720] great Hannibal Lecter. Do you know who that is?
+- [08:35.790] Hannibal? Silence of the Lambs.
+- [08:38.140] I'd talk about it, and the fake news would go crazy.
+- [08:41.100] Why does he keep mentioning?
+- [08:42.340] Well, because we won in a landslide.
+- [08:44.820] That's why they don't want to have Hannibal in our midst.
+- [08:50.680] And today, I signed this bill into law.
+- [08:53.400] Almost every major promise made in the 2024 campaign
+- [08:58.240] already will have become a promise kept.
+- [09:01.600] That's very important. Promises made, promises kept.
+- [09:05.640] (applause)
+- [09:09.120] And according to the Council of Economic Advisers,
+- [09:12.040] these reforms will protect or create more than 7 million jobs,
+- [09:16.410] add 3.1 percent to economic growth,
+- [09:19.720] reduce taxes for the typical American by nearly 15 percent,
+- [09:23.360] and increase take-home pay for the normal family of four
+- [09:27.450] by at least $13,000.
+- [09:29.460] And that takes place immediately.
+- [09:30.820] That's not bad, right?
+- [09:32.050] Look, I'm looking at that guy back there. That's pretty good.
+- [09:35.920] (applause)
+- [09:37.840] And if we had a person over at the Fed
+- [09:40.130] that would lower interest rates a little bit,
+- [09:41.900] that would be helpful, too. It's hard to believe.
+- [09:44.560] This is on top of, you know, we have to fight this guy.
+- [09:46.860] He's not doing the job. Each point that he keeps it up
+- [09:50.610] is the equivalent of $300 billion.
+- [09:55.880] $300 billion.
+- [09:57.090] So if he lowered it to it'd save $600 billion.
+- [10:01.130] We have to work hard with cuts on that, right?
+- [10:03.590] That's a lot of cutting.
+- [10:05.300] And this guy could do it so easily.
+- [10:06.970] We don't have inflation. Well, we might have inflation.
+- [10:10.230] Yeah, and if you do, you raise the rate a little bit.
+- [10:12.250] That's okay. But we're going out
+- [10:14.500] because Biden gave us a lot of short-term debt.
+- [10:17.590] And given the short- term debt, he did us no favor.
+- [10:20.860] So I think what we'll do is we'll probably just extend
+- [10:23.150] the short term debt and then go up,
+- [10:24.640] because I don't want to tie it up
+- [10:25.950] for 10 or 15 years at a high rate.
+- [10:28.560] But every point is three. It's really more.
+- [10:32.010] It's 300 billion.
+- [10:33.760] So if we got it down to 1 percent.
+- [10:36.200] We're talking about almost a trillion dollars in saving,
+- [10:39.170] just with the stroke of a pen. No work, no missing anything.
+- [10:44.290] Just like an accounting situation.
+- [10:47.060] Oh, Doug Collins. I just see Doug.
+- [10:49.410] Did I mention you, Doug? I don't think so.
+- [10:50.980] I'm glad I saw you.
+- [10:53.060] I'm glad that somebody is going to be in big trouble with you.
+- [10:55.400] They didn't write your name down, Doug.
+- [10:58.370] Somebody is in big -- somebody is somebody is in --
+- [11:00.880] I got you.
+- [11:02.660] So, when we think of that, though, we save.
+- [11:05.960] And all you have to do -- it's so simple.
+- [11:07.580] I'm explaining to this guy, and Biden extended him.
+- [11:11.010] That wasn't good.
+- [11:12.230] I explained to him, you can do so much for our country.
+- [11:15.780] You could save a trillion dollars
+- [11:17.290] just with a stroke of a pen.
+- [11:19.470] Just a little -- the utterance of a sentence.
+- [11:21.790] We're going to be cutting. It's a shame. It's a shame.
+- [11:24.830] We're one of the highest. We should be the lowest.
+- [11:27.170] You know, with the United States of America,
+- [11:28.970] we'd have money coming in,
+- [11:30.190] like at levels that they have never seen.
+- [11:33.070] I got a call the other day from the people in Congress,
+- [11:36.160] because we're doing our bill.
+- [11:37.490] I didn't even tell you this, Mike, and they called.
+- [11:39.250] They said, something --
+- [11:40.490] there's something wrong with the numbers, sir.
+- [11:42.580] I said, what's wrong? I don't know.
+- [11:43.820] They're not balancing out. There's something really wrong.
+- [11:47.390] I said is that a good thing or a bad thing?
+- [11:49.110] Well, we don't know. It just -- I said what's the problem?
+- [11:51.780] We're taking in much more money than we have scheduled.
+- [11:54.840] I said so far that sounds good.
+- [11:57.720] They said how much is it? About $80 billion.
+- [12:00.400] I said, do me a favor, check the tariff line.
+- [12:03.960] They called me back an hour later.
+- [12:06.260] Sir, we've taken in $88 billion in tariffs.
+- [12:10.120] Isn't that a beautiful thing? $88 billion.
+- [12:13.070] (applause)
+- [12:14.660] I thought I'd tell these little stories.
+- [12:17.800] Go off script and tell these little stories, Scott, right?
+- [12:20.370] Because it does make it a little more interesting.
+- [12:22.650] Although my speech writers have just gotten
+- [12:24.440] every award in the book.
+- [12:27.000] Vince, where are you, Vince? Where are we?
+- [12:32.100] Where's Ross? He's gotten all these awards,
+- [12:35.010] and I'm going off the record all the time.
+- [12:37.180] Where is he? He didn't show up to this speech.
+- [12:38.960] He wrote the speech.
+- [12:40.310] Well, that means he has confidence in me.
+- [12:43.200] According to the Council of Economic Advisers,
+- [12:45.770] these reforms will protect or create more than 7 million jobs,
+- [12:49.710] add 3.1 percent to economic growth,
+- [12:52.680] reduce taxes for the typical American by nearly 15 percent,
+- [12:56.680] and increase take-home pay for normal family of four
+- [12:59.870] by an incredible $13,000.
+- [13:02.160] All of these things are happening.
+- [13:03.850] And, by the way, there's no inflation.
+- [13:05.800] All of the numbers I gave you,
+- [13:07.200] all of the money that's coming in,
+- [13:09.300] and maybe more importantly than the billions of dollars
+- [13:11.630] we're taking in with tariffs,
+- [13:13.480] is the fact that we've got hundreds of plants going up
+- [13:17.750] all over the United States that never would have been here.
+- [13:20.700] I was with Howard and Scott and Texas Instruments
+- [13:23.810] the other day, and the head of Texas Instruments,
+- [13:26.810] They're going to spend $60 billion in the United States.
+- [13:30.270] He said, sir, please don't do it to me.
+- [13:34.200] And I looked at him, I knew exactly what he meant.
+- [13:36.200] He said, you mean tariffs, right? He said that's right.
+- [13:38.320] If you ever get rid of those tariffs,
+- [13:40.520] you've cost me a fortune. They're all coming in
+- [13:43.220] because they don't want to pay the tariffs,
+- [13:44.790] and they're coming in at levels,
+- [13:46.080] and it only works for the United States because people --
+- [13:48.610] it doesn't work for other countries, but it works for us.
+- [13:51.660] We have a record investment. We have records and everything.
+- [13:54.960] And when these places open up,
+- [13:56.760] that's bigger than the 15 trillion dollars
+- [13:59.460] that I'm talking about.
+- [14:00.740] You know, you don't see it right away.
+- [14:02.610] But bigger is the fact that they're all coming in.
+- [14:04.900] They're building their factories,
+- [14:06.180] the AI factories, and the auto plants.
+- [14:09.050] We have auto plants that are closing up in other countries.
+- [14:11.660] I don't want to specifically name the countries,
+- [14:13.580] but you know who they are. And they're coming into the U.S.
+- [14:16.640] And they're opening up and building like no --
+- [14:19.090] nobody's ever seen anything like it.
+- [14:21.160] I don't call it a miracle.
+- [14:22.470] I call it -- this should have been done 40 years ago.
+- [14:25.090] We would have never lost our -- we lost --
+- [14:27.470] Fifty percent of our auto industry to China,
+- [14:30.060] Mexico, Canada,
+- [14:31.310] and various other countries should have never happened
+- [14:34.210] if you had a president that said,
+- [14:35.580] we're going to charge you tariffs.
+- [14:36.900] You're not going to build next to us, send it in,
+- [14:39.360] and take away our jobs.
+- [14:41.220] If you would have said 25, 50, or 100 percent tariff,
+- [14:43.980] not one company would have left.
+- [14:47.500] But they weren't business people.
+- [14:49.150] They were politicians.
+- [14:50.810] Not very good ones, and some good ones.
+- [14:52.810] But some really not good at anything, to be honest with you.
+- [14:56.170] We're going to stop the largest tax hike,
+- [14:58.420] and we're going do that in history.
+- [15:00.320] This would be, if the bill doesn't pass,
+- [15:03.070] there'll be a 68 percent tax increase.
+- [15:05.740] Think of that. 68 percent,
+- [15:07.970] which would be the largest in history by about 40 points.
+- [15:11.620] And we'll make the Trump tax cuts permanent,
+- [15:13.880] expand the child tax credit,
+- [15:16.240] and we will deliver no tax on tips, no tax over time,
+- [15:20.290] and no tax on Social Security for our great seniors.
+- [15:25.810] (applause)
+- [15:33.840] Among the countless citizens who will benefit from these tax
+- [15:37.030] cuts is Malachi Kraseski
+- [15:39.080] (phonetic),
+- [15:40.280] a devoted mom and door-dash driver from Ripon, Wisconsin,
+- [15:44.770] who uses her tip income to support her son.
+- [15:48.890] Just think of that. No tax on tips.
+- [15:50.600] And it was a very big problem.
+- [15:53.200] I was at a dinner in my beautiful building in Las Vegas,
+- [15:58.200] and unrelated to this, and I said, What's going on?
+- [16:03.400] I will never say good-looking waitress,
+- [16:05.060] because looks don't matter anymore,
+- [16:06.480] you know, in our modern society.
+- [16:08.480] She happened to be beautiful, but I won't say that.
+- [16:11.250] I won't mention that.
+- [16:12.490] But nevertheless, a waitress came over,
+- [16:15.160] and I said, how are you doing? She said, not good, sir. Why?
+- [16:19.000] The government is killing me on tips.
+- [16:21.900] And she looked at me, she said, sir,
+- [16:23.710] there should be no tax on tips.
+- [16:25.680] I said say it again. There should be no tax on tips.
+- [16:31.360] I said, that's the coolest thing I've ever heard.
+- [16:33.350] I walked outside, the press was there, as always,
+- [16:35.820] waiting for something bad to happen, hundreds of them.
+- [16:39.310] I said ladies and gentlemen, please announce tonight,
+- [16:41.690] there will be no tax on tips.
+- [16:44.890] And a legend was made. We won Nevada by so much.
+- [16:48.230] Republicans don't win Nevada, we won Nevada.
+- [16:50.530] So I want to thank that young, beautiful waitress.
+- [16:53.120] Thank you very much.
+- [16:54.730] (applause)
+- [17:00.580] But with no tax on tips and other cuts,
+- [17:03.700] this bill will save Malachi thousands of dollars per year,
+- [17:07.000] enabling her to achieve her goal of visiting
+- [17:09.320] every U.S. state with her son.
+- [17:11.260] She wants to visit every state by the time he's 18 years old.
+- [17:15.450] So, Malachi, it sounds to me
+- [17:17.300] like you're off to a fantastic start.
+- [17:20.370] And where are you, Malaki? Where are you? Congratulations.
+- [17:24.310] (applause)
+- [17:30.110] Also with us today is Luke Wilson,
+- [17:32.310] a 23-year-old electoral lineman.
+- [17:38.070] He loves being an electrician, but in this case, the lineman,
+- [17:40.920] and these are guys that take big risk, and it's hard stuff.
+- [17:44.020] But if you know what you're doing, it's fine.
+- [17:46.190] He's from Harmony, Pennsylvania, as well as Dee Silver,
+- [17:49.200] a truck driver from Springfield, Missouri,
+- [17:52.300] where, by the way, our beautiful planes landed.
+- [17:54.520] Our B-2s, they landed after 36 hours of flying.
+- [17:58.160] Great going, Pete. And they hit the target.
+- [18:02.430] (applause)
+- [18:05.700] And they hit the target,
+- [18:06.920] and the target has now been proven to be obliterated,
+- [18:09.210] just as we said.
+- [18:10.470] We had a little fake news from CNN --
+- [18:12.550] thank you very much, CNN --
+- [18:15.620] with 3 million miles of driving under her belt,
+- [18:18.770] who mentors other women in her industry.
+- [18:20.850] And I just want to say,
+- [18:22.110] Luke and Dee spend countless hours
+- [18:24.710] working overtime to help make this country run
+- [18:27.630] and this bill, the typical overtime worker like them,
+- [18:30.880] will take home nearly $1,500 extra every single year.
+- [18:34.880] So you're talking about at least $1,500
+- [18:37.600] and there will be no harassment
+- [18:39.050] because you are being harassed by the Democrats.
+- [18:42.110] So, Luke and Dee, congratulations to you both.
+- [18:43.910] Thank you very much.
+- [18:45.280] Congratulations wherever you may be.
+- [18:47.380] Thank you. Thank you, very much.
+- [18:50.220] (applause)
+- [18:53.300] Also with us is James Benson,
+- [18:55.860] a third-generation autoworker from Belleville, Michigan,
+- [18:59.530] who has spent 26 years at Ford Motor Company,
+- [19:02.090] which is doing very well.
+- [19:03.330] They have a lot of plants in this country.
+- [19:04.730] If you have plants in country,
+- [19:05.950] you're going to make a lot money.
+- [19:07.580] And he's a member of a tremendous group
+- [19:09.300] of people, autoworkers.
+- [19:11.980] And I'll tell you, we love these people.
+- [19:13.630] Autoworkers for Trump. And I came through for them,
+- [19:16.570] but they were with me long before I really thought --
+- [19:19.440] a lot of people said, is he going to run again?
+- [19:21.160] Will he run? They've always been with me, the autoworkers.
+- [19:24.240] James was a lifelong Democrat until 2017,
+- [19:28.030] when he saw the benefits of our tax law.
+- [19:30.670] And he also liked Trump now. Sometimes they can like the law,
+- [19:34.740] but if they don't like the candidate,
+- [19:36.320] it's not going to matter, right? Is that right, Marco?
+- [19:38.340] Marco knows because he has been one hell
+- [19:40.810] of a great Secretary of State, right.
+- [19:42.750] Stand up.
+- [19:43.990] (applause)
+- [19:45.600] Everybody respects Marco. Everybody respects him.
+- [19:53.370] Now we're delivering an even bigger win for the auto workers
+- [19:56.660] by making interest on car payments, fully tax deductible.
+- [19:59.840] You know, that's something only rich people
+- [20:01.440] seem to have gotten, I said.
+- [20:02.640] You know? And that was my idea. It's pretty simple.
+- [20:05.530] But I said, you know, the rich people,
+- [20:07.060] they're always looking for deductions.
+- [20:08.940] We want deductions.
+- [20:10.160] Linda, did I say -- will you please stand up?
+- [20:13.430] Linda McMahon. So great.
+- [20:18.460] How much is Harvard going to be charged?
+- [20:20.910] How much are you asking for Harvard?
+- [20:23.410] Because they really have violated
+- [20:24.890] a lot of different caveats, haven't they?
+- [20:28.240] A lot, like a lot.
+- [20:30.270] They've been given $5 billion over the years.
+- [20:32.440] Can you imagine?
+- [20:33.830] And that's over a short number of years.
+- [20:35.350] That's just the beginning.
+- [20:36.620] They have $52 billion sitting in the bank,
+- [20:39.590] and they haven't been nice to our country.
+- [20:42.830] So I want to thank Linda McMahon has been really fantastic.
+- [20:46.940] I said, on interest, I said why couldn't we,
+- [20:50.240] if a car is made in the United States
+- [20:52.490] only because otherwise we don't care
+- [20:54.110] if it's made someplace else,
+- [20:55.980] give the people that buy the car a deduction on the interest
+- [21:00.330] that they're paying to buy the car.
+- [21:02.240] And people said, what a great idea.
+- [21:03.870] It's so simple. It's like the paper clip.
+- [21:06.390] Somebody came up with the idea of a paper clip many years ago,
+- [21:08.990] 1817, and he became a very rich person.
+- [21:13.190] And everybody looked at it and said why the hell
+- [21:14.910] didn't I think of that? But it's like the paperclip.
+- [21:17.960] But only if the car is made in America.
+- [21:19.580] Remember that.
+- [21:20.800] James, we're going to keep those Michigan auto factories roaring.
+- [21:24.030] And as you know, we won Michigan by a lot, Susie, right?
+- [21:27.100] We won Michigan buy a big margin
+- [21:29.560] and something that typically is not easy,
+- [21:32.030] but I think we've won it.
+- [21:33.370] I actually think we won it three times in a row.
+- [21:36.160] So it's been a great state,
+- [21:38.340] but a big factor with the auto workers.
+- [21:39.980] They went with us very big, and I love them.
+- [21:42.560] The One Big, Beautiful bill will also be
+- [21:44.360] an incredible victory for American Farmers,
+- [21:47.550] another group that we did great with,
+- [21:49.210] especially family farmers
+- [21:50.640] like James Cullifer of Virginia Beach.
+- [21:53.850] Our bill will provide 100 percent expensing
+- [21:58.120] so they can buy a new farm, new farm equipment.
+- [22:00.490] And, by the way, the expensing is good for everybody,
+- [22:02.480] not just farmers. And it will virtually eliminate
+- [22:05.720] the so-called estate tax or the death tax.
+- [22:08.880] So you have a farm, you leave it to your children.
+- [22:10.770] If you like the children, you'll leave it.
+- [22:12.100] If you don't, don't worry about the details.
+- [22:14.350] No, some people don't want to leave them.
+- [22:16.070] They don't like their kids, you know?
+- [22:18.660] Anybody in here not liking their children, farmers?
+- [22:22.880] But if you like your kids, you want to live it,
+- [22:24.700] and a lot of times, what was happening before I got there,
+- [22:26.910] because I put this in the first tax bill, as you know.
+- [22:29.870] But people would die. They'd leave their farm.
+- [22:32.720] There was no cash, but there was value to the farm,
+- [22:35.010] sometimes good value.
+- [22:36.220] It's called real estate rich and cash poor.
+- [22:39.350] And the kids had no money,
+- [22:40.590] and they'd be foreclosed out by a bank.
+- [22:42.370] They'd borrow money to pay the estate tax.
+- [22:44.640] You don't have to pay estate tax anymore.
+- [22:46.540] That's pretty big stuff.
+- [22:47.990] So, for the farmers and for others in small business,
+- [22:51.290] it's great. But James' family has been
+- [22:53.180] working in the land for generations.
+- [22:54.990] And with this bill, we will ensure that family farms
+- [22:58.160] like his can stay and the family for many generations to come.
+- [23:02.410] Where's James?
+- [23:04.780] (applause)
+- [23:18.360] That's great. And you know what I mean, James, right?
+- [23:21.320] People pass away, they love their kids
+- [23:23.410] or whoever they're leaving,
+- [23:24.780] but they love their kids especially.
+- [23:26.970] And you won't have the family farmer anymore,
+- [23:28.810] the long time because they were losing them to the banks.
+- [23:31.150] And we're losing them at record numbers.
+- [23:32.760] It's not going to happen anymore.
+- [23:34.430] There's no tax.
+- [23:35.770] We're also going to empower American parents
+- [23:38.790] by expanding opportunity scholarships
+- [23:41.090] to provide school choice. School choice is a big deal.
+- [23:45.400] (applause)
+- [23:51.490] And we just got school,
+- [23:52.950] working with the governor of Texas,
+- [23:54.600] as you know, Greg Abbott.
+- [23:56.130] We just had it passed in Texas, and I know about that.
+- [23:59.950] Somebody said, yeah, that was a big deal.
+- [24:01.860] They've been trying to get it for nine years,
+- [24:04.030] and they asked me if I'd call the legislature,
+- [24:06.380] Republicans in the legislature.
+- [24:09.040] And I did, and then I gave them a pep talk,
+- [24:11.590] and everybody voted for it.
+- [24:13.200] It's the first time. They were shocked,
+- [24:15.760] but they never asked me to call them before.
+- [24:17.370] This was the first and they got it passed.
+- [24:19.300] Right, Susie? It was amazing.
+- [24:21.110] And it was something that Dan and Greg and everybody,
+- [24:24.620] they really wanted it. And Ted Cruz wanted it badly.
+- [24:28.090] They all wanted it, so we got it in Texas.
+- [24:29.660] But you're going to have it.
+- [24:30.860] It's more and more people are talking about school choice.
+- [24:33.110] Good thing. This will be the godsend
+- [24:35.430] for mothers like Angelina Banks from Philadelphia.
+- [24:39.220] Where's Angelina? Where is Angelina.
+- [24:48.520] Oh, you are very pretty.
+- [24:53.830] She went out for a second, and she's coming back.
+- [24:56.680] Okay? Where's Ange? Come on over here, Angelina.
+- [25:01.920] Oh, that's terrible. Oh, wow. How are you?
+- [25:10.920] I won't ask you where you've been, okay?
+- [25:13.500] I promise. But it's great to have you.
+- [25:16.840] It's great to have -- I mentioned your name.
+- [25:18.530] I said, where's Angelina?
+- [25:20.240] He said, she'll be right back, sir.
+- [25:22.490] Thank you very much. Appreciate it.
+- [25:25.330] And Aubrey and Ava Jane,
+- [25:27.770] Angelina says the tax relief for child care and education
+- [25:31.800] are a foundation for stability and dignity.
+- [25:35.290] I think those were your words, right?
+- [25:36.790] Stability and dignity, good words.
+- [25:39.280] For her family and with the One Big, Beautiful Bill,
+- [25:41.900] we're delivering both empowering
+- [25:44.130] hundreds of thousands of families
+- [25:45.750] to choose the public, private, charter, religious school,
+- [25:48.850] or the homeschool of their choice.
+- [25:50.540] And Angelina, thank you very much for being with us.
+- [25:53.140] Beautiful, beautiful.
+- [25:55.370] (applause)
+- [25:59.140] So this bill will also be the single most important
+- [26:01.920] piece of border legislation ever to cross the floor of Congress.
+- [26:06.040] We will hire 3,000 new border patrol officers
+- [26:09.350] and 10,000 ICE agents. And these people are great.
+- [26:13.100] I tell you what, I got to know a lot of them.
+- [26:15.590] And we have tremendous representation.
+- [26:19.200] They've been for me from day one.
+- [26:21.120] In fact, I shouldn't say this,
+- [26:22.460] but they endorsed me when I first ran,
+- [26:24.230] almost at the beginning.
+- [26:25.720] And they weren't sure if they were allowed to endorse me.
+- [26:28.030] And they said, we don't care. We're endorsing you.
+- [26:30.040] But they were great, and they've been my friends ever since.
+- [26:32.510] But thinking of it, so we're going to hire 3,000 new
+- [26:35.310] Border Patrol officers, 10,000 new ICE agents.
+- [26:38.040] And, you know, these ICE guys, they go into war zones
+- [26:42.390] and they're tough and they love our country.
+- [26:45.660] And if you're not going to be tough, you're not going do well.
+- [26:47.690] But they are tough and they'll break into a pack.
+- [26:50.150] And they go on the pack.
+- [26:51.860] Some of these packs come out of the jails of Venezuela.
+- [26:54.310] They come from places that you don't want to know about.
+- [26:57.170] They're gang members that have been all sent in here
+- [26:59.330] through Biden's open-door, stupid policy.
+- [27:02.490] The dumbest policy, I think --
+- [27:03.780] well, we have a lot of dumb policies,
+- [27:05.360] but the worst I think is open borders,
+- [27:07.120] where anybody comes into our country totally unvetted,
+- [27:09.710] totally unchecked, and they're drug dealers,
+- [27:12.590] and they are people that we don't them.
+- [27:14.620] And they're murderers, you know? They're murderous.
+- [27:17.240] I told you, over 11,000 murderers.
+- [27:19.700] They're in here. Fifty percent of those,
+- [27:21.350] by the way, murdered more than one person.
+- [27:23.890] And they came in, no check-in, no anything. It's so sad.
+- [27:27.350] What that man has done to this country,
+- [27:29.140] we should never forget it, okay? We should never, ever forget it.
+- [27:33.330] With that whole group of people, I don't even think it was him.
+- [27:35.890] He didn't believe in open borders.
+- [27:37.270] He didn't believe in men playing in women's sports
+- [27:40.300] or transgender for everybody.
+- [27:43.080] But what that group of the people has done
+- [27:44.580] to this county will never, every --
+- [27:46.860] I don't think we can ever allow history to forget it.
+- [27:50.470] What they've done to us is so sad.
+- [27:52.770] We're going to fully fund
+- [27:54.010] the final sections of border wall,
+- [27:55.810] impose a new remittance tax on money
+- [27:58.810] sent back to foreign countries,
+- [28:00.280] and dramatically increase deportations
+- [28:02.890] to a bare minimum of 1 million illegal aliens per year.
+- [28:06.740] And what we're doing is we're really going after
+- [28:08.790] the criminal aliens, of which we have plenty to work with.
+- [28:12.310] People say, well, that's a lot, isn't it?
+- [28:13.870] They say, well, remember, these countries are very smart.
+- [28:16.840] They're headed up by people I know.
+- [28:18.580] In almost all cases,
+- [28:19.950] they're very smart, smart people,
+- [28:22.550] and they have people of great common sense.
+- [28:24.730] They're not sending their good people out.
+- [28:26.650] They're sending their bad people out,
+- [28:28.730] and they put them into caravans.
+- [28:30.160] I think I came up with that name, but somebody did.
+- [28:32.470] It's a great name, a caravan.
+- [28:33.850] Thousands, and sometimes as many as 30,000 people
+- [28:37.800] walking right into our country.
+- [28:39.940] Again, last month we had none. Think of that.
+- [28:42.440] It's almost -- people say it's almost impossible.
+- [28:45.750] But they come in, and at a minimum,
+- [28:48.170] they're not people that worked very hard.
+- [28:50.280] They're people that are on welfare.
+- [28:52.800] They don't want them.
+- [28:54.060] They don't want them, they give them to us.
+- [28:56.130] It's incredible what's happened, and it's so sad to see.
+- [29:00.010] It's so said it could make you just sick to your stomach
+- [29:02.550] when you think about it.
+- [29:04.170] I was going to say it could you make you cry,
+- [29:05.920] but I like to pretend I never cry.
+- [29:08.250] I don't want to be a crier.
+- [29:11.060] But it makes you sick to think of what they did.
+- [29:13.830] What they did to us is just sick.
+- [29:16.640] And guys, if we didn't have a Tom Homan
+- [29:18.440] and if we didn't some of the guys
+- [29:20.130] that we have working so hard and dangerously,
+- [29:24.390] the country wouldn't stand a chance.
+- [29:26.790] But we're getting them out not as fast as they came in,
+- [29:29.870] because they came in and you'd see hundreds of thousands pour
+- [29:32.940] into our country in a day. But we are getting them our.
+- [29:36.230] And here today is Angel Dad, Joe Abraham.
+- [29:39.990] The Angel Moms and Angel Dads. These are incredible people.
+- [29:45.480] Lost their precious 20-year-old daughter Katie
+- [29:48.460] in a hit-and-run after she was struck
+- [29:50.300] by an illegal alien from Guatemala.
+- [29:54.150] Katie was stopped at a traffic light, rear-ended, full force,
+- [29:57.780] going 60, 70 miles an hour right into the back of her car
+- [30:01.440] while she stopped. And she died immediately.
+- [30:06.980] And her killer, I think you could really say,
+- [30:09.250] the killer, fled the scene.
+- [30:11.540] And, Joe, we will end this invasion once and for all.
+- [30:14.850] And we're always going to remember the memory of Katie,
+- [30:17.390] that beautiful, beautiful 20-year-old daughter of yours.
+- [30:19.760] Where's Joe? Is he around here? Come here, Joe, come here.
+- [30:26.540] (applause)
+- [30:44.940] Oh, boy, oh, boy, oh boy. Thank you, Joe, very much.
+- [30:48.490] Also with us is Sarah Stewart from Kerrville, Texas,
+- [30:51.700] who lost her brother to the fentanyl epidemic
+- [30:55.850] that has inundated her small town.
+- [30:58.110] Our bill provides billions and billions of dollars
+- [31:00.930] to stop fentanyl and other illicit narcotics.
+- [31:04.110] We're also charging other countries like Mexico, Canada,
+- [31:07.250] and China billions of dollars in taxes that we put on
+- [31:11.930] because they've allowed people that are selling fentanyl
+- [31:15.700] to go through their countries,
+- [31:16.950] or in the case of China, they send it here.
+- [31:19.500] And paying a lot of money, at least,
+- [31:22.460] but would rather stop it.
+- [31:24.320] I think we're doing a big job of that but would rather stop it.
+- [31:27.840] And other illicit narcotics pouring across the border
+- [31:31.210] and stealing more American lives.
+- [31:32.950] And thank you.
+- [31:34.230] Sarah, we will not rest until that fight is done.
+- [31:37.470] We're going to get that fight done.
+- [31:39.160] Sarah Stewart is where? Sarah? Hi, Sarah. Beautiful.
+- [31:49.570] Thank you. Good guy, huh? I can see that.
+- [31:56.600] I also want to thank the President
+- [31:58.400] of the National Border Patrol. His name is Paul Perez.
+- [32:02.130] He's been with me from the beginning.
+- [32:04.190] And Brandon, before him, these are great people.
+- [32:06.520] I've gotten very friendly with some of these people
+- [32:09.710] from Border Patrol and ICE because I really --
+- [32:12.760] I'd call them once every two or three days,
+- [32:14.580] how we doing, how are we doing.
+- [32:16.230] If you remember, Kamala was the Border Czar.
+- [32:19.270] And in four years, she never made one call to Paul,
+- [32:21.870] or Brandon, or anybody else.
+- [32:24.100] And I'd like to have Paul come up,
+- [32:25.490] say a couple of words, if you're here, Paul.
+- [32:28.400] Where are you, Paul? Oh, there you are.
+- [32:30.650] (applause)
+- [32:35.570] Paul Perez: President Trump made promises that he's kept.
+- [32:39.740] Now it's time for Congress to back him up.
+- [32:42.070] We need to end the chaotic and recklessness
+- [32:45.190] that Biden allowed into this country.
+- [32:47.060] The millions of people that are out there,
+- [32:50.230] we're going to get with this Big, Beautiful Bill.
+- [32:52.360] We've got the funding, we've got technology.
+- [32:54.530] We need everything in that bill to get it done
+- [32:56.950] so that no more families are victimized.
+- [32:58.990] And those that have victimized families,
+- [33:00.740] we can go get them out with ICE.
+- [33:02.440] Our officers and agents are not afraid.
+- [33:04.520] We're ready to take this fight to them
+- [33:05.840] and we've been so because of President Trump's leadership.
+- [33:08.790] Thank you, sir.
+- [33:10.900] (applause)
+- [33:20.340] The President: He's been a great friend of the country.
+- [33:22.100] He really has.
+- [33:23.380] And he's worked with Tom Homan and Christie
+- [33:25.830] and all the people that work so hard.
+- [33:27.970] They have been incredible.
+- [33:29.240] And, you know, I wasn't going to do this,
+- [33:31.340] but I see Tom Homan is sitting there
+- [33:33.220] and, you know, I have to call him up.
+- [33:35.970] Look at that. I don't call up the Speaker of the House.
+- [33:38.010] I don't call up Marco or Peter or anyone,
+- [33:41.090] but I want to call this guy because this guy is keeping us
+- [33:43.800] very, very safe. Come on up.
+- [33:54.020] Tom Homan: Well, look, I think this issue of the Big,
+- [33:55.790] Beautiful Bill should be nonpartisan.
+- [33:58.370] I don't know how, what the hell's the matter
+- [33:59.990] with everybody up in Congress? People are dying every day.
+- [34:05.970] I used to arrest three times as many criminals
+- [34:08.800] that the Biden administration did.
+- [34:10.550] We're taking public safety threats
+- [34:11.950] and national security threats off the street every single day.
+- [34:15.940] We got over 600,000 illegal immigrants
+- [34:18.090] with criminal histories walking the streets of this country.
+- [34:20.570] We got less than 5,000 deportation officers.
+- [34:23.220] This should be a no-brainer. The more resources we get,
+- [34:26.650] when we get this bill passed, we got more agents on the road.
+- [34:31.300] We buy more beds, we get more transportation flights.
+- [34:33.760] More agents means more bad guys arrested,
+- [34:35.810] taken off the streets of this country every single day.
+- [34:38.200] Every day we arrest a public safety threat
+- [34:40.280] or national security threat
+- [34:41.840] this makes this country much safer.
+- [34:43.630] Who the hell would be against that?
+- [34:46.040] And I get irritated, I get pissed off
+- [34:48.300] because I'm sick of meeting Angel moms and dads.
+- [34:52.710] You want to talk about family separation?
+- [34:54.120] They buried their children. So I've done this since 1984.
+- [34:58.800] I've worked for six different presidents.
+- [35:01.570] No one has had the success of the Trump administration.
+- [35:03.980] We got the most secure border
+- [35:05.190] in the history of this nation today.
+- [35:08.220] (applause)
+- [35:17.850] But we need more border wall. Border wall save lives.
+- [35:20.990] Women and children can't get over that wall,
+- [35:22.690] which means they go to a place where there's not a wall.
+- [35:24.530] And what's waiting on them? The men and women of the border
+- [35:26.630] to who take care of this humanitarian needs
+- [35:28.380] and save their lives.
+- [35:30.190] We already got fentanyl seizures down half.
+- [35:32.780] Fentanyl seizure should be 100%.
+- [35:34.110] We should have zero fentanyl coming to this country.
+- [35:36.170] We need money to help secure that border at higher level.
+- [35:39.210] Stop the fentanyl from coming in.
+- [35:41.600] Stop the sex trafficking of women and children.
+- [35:43.600] Stop the known inspector terrorists
+- [35:45.170] coming across that border.
+- [35:46.840] Right now, I was looking at the stats today.
+- [35:48.500] ICE is arresting a record number of known suspected terrorists
+- [35:51.640] in this country, along with the FBI.
+- [35:53.300] With more money, we can arrest more of these people
+- [35:55.380] and make this country safer. This is a nonpartisan issue.
+- [35:59.570] Let's make this country safe again.
+- [36:01.470] So to the Democrats and the Republicans
+- [36:03.500] and the Independents, I don't care who you're from,
+- [36:05.500] pass the bill so we make this county safe.
+- [36:08.510] So we can stop the violence against ICE officers,
+- [36:11.250] let's make this country safe again,
+- [36:12.570] and without that bill, it's going to be a hard road.
+- [36:14.810] We got a lot of people to look for, a lot people to arrest,
+- [36:17.340] a lots of national security threats
+- [36:18.770] we know are in this country, we need to find them.
+- [36:21.300] We need more money to do that,
+- [36:22.710] we know we need more agents to do that.
+- [36:24.770] For God's sake, let us pass this bill and get this done.
+- [36:28.690] (applause)
+- [36:38.970] The President: He got so angry,
+- [36:40.440] he didn't even shake my hand to look at me.
+- [36:51.920] But he's right. He's right,
+- [36:53.530] and we have no money for the border
+- [36:55.330] if we don't pass this bill. We have virtually nothing.
+- [36:59.040] And so we're going to get it done for you, Tom,
+- [37:00.870] and for all of the people that have worked with you.
+- [37:03.560] It's been amazing, the job you've done.
+- [37:05.200] And just in finishing, look, this is the largest tax
+- [37:08.790] cut in the history of our country.
+- [37:11.120] They want to give you, the Democrats want to gave you
+- [37:12.890] the biggest tax increase in the history our country,
+- [37:16.640] they have things, whether it's border or economic development
+- [37:19.880] or no tax on tips and Social Security,
+- [37:22.840] and no tax on overtime, and all these different things.
+- [37:25.660] There are hundreds of things here.
+- [37:26.940] It's so good.
+- [37:28.170] And we're going to also cut costs.
+- [37:29.870] We're cutting $1.7 trillion in this bill,
+- [37:33.400] and you're not going to feel any of it.
+- [37:35.310] And your Medicaid is left alone. It's left the same.
+- [37:38.880] Your Medicare and your Social Security are strengthened.
+- [37:42.480] We're not cutting.
+- [37:43.720] The Democrats are going to destroy all three of them
+- [37:45.870] because it's not sustainable.
+- [37:48.220] They'll end up cutting your Medicare and Medicaid in half.
+- [37:51.420] So we're going to do a real job. It's so important.
+- [37:53.610] So if you can, call your senators.
+- [37:55.300] Call your congressmen.
+- [37:56.690] We have to get the vote. I want to thank you.
+- [37:59.130] You have been unbelievable, Mr. Speaker.
+- [38:01.320] You have worked around the clock for months.
+- [38:06.020] For months.
+- [38:07.310] (applause)
+- [38:11.240] And, you know, I shouldn't say this,
+- [38:12.610] but we don't want to have grandstanders
+- [38:14.390] where one or two people's raised their --
+- [38:16.660] we are -- we don't know. And they do it to grandstand.
+- [38:19.620] That's all. Not good people. They know who I am.
+- [38:22.490] That's what I'm talking about. I call them out.
+- [38:25.110] But we don't need grandstands.
+- [38:26.440] We have to get our country back and bring it back strong.
+- [38:28.920] And our country is going to be stronger, bigger,
+- [38:31.150] better than ever before.
+- [38:32.870] We're going to make it better than every before.
+- [38:34.750] And that's despite the bad hand
+- [38:36.150] that we were dealt six months ago.
+- [38:38.470] We were dealt a really bad hand.
+- [38:39.840] We were dealt a sick hand. It's unbelievable.
+- [38:42.830] You know, when I came back yesterday, as you know,
+- [38:46.720] I made a big trip to a place
+- [38:49.340] where we had 28 countries represented,
+- [38:52.100] and we did something that's never been done.
+- [38:53.830] They've raised the number of money,
+- [38:56.610] the amount of money that went to a trillion dollars a year,
+- [39:00.190] and that's for world safety.
+- [39:01.550] But they all asked me the same question.
+- [39:03.160] They said, how could you have allowed this
+- [39:05.130] to happen to your country? I said, I didn't do it.
+- [39:08.570] But they said, how could you allow people to pour in?
+- [39:10.690] They don't understand it. They all have borders.
+- [39:13.020] They have fences. They have walls.
+- [39:14.700] Or they have just strong people standing there.
+- [39:16.980] You can't do it. And they said to me, you know,
+- [39:19.200] it's amazing that they allowed these things to happen.
+- [39:21.640] And it's amazing, too. I agree.
+- [39:24.640] You know, as a business guy, I always like to understand
+- [39:27.300] where the other side is coming from.
+- [39:28.830] What do they want? What do the get?
+- [39:30.690] And, you can make good deals
+- [39:32.830] based on understanding the other side.
+- [39:35.670] I never understood the other side in this case.
+- [39:37.790] Why would they allow people to pour into our country?
+- [39:40.180] Unchecked.
+- [39:41.400] You know, I can see people wanting people to come in,
+- [39:44.020] and you let them come in.
+- [39:45.240] You have a vetting process. You let good people --
+- [39:47.260] we're letting a lot of good people in,
+- [39:49.110] but they're coming in legally.
+- [39:51.300] But why would you allow people to come
+- [39:53.060] and that you can look at them
+- [39:54.300] and say, big trouble, big, trouble?
+- [39:57.350] Why would you do it? It's --nobody understands.
+- [39:59.290] And a lot people say voting,
+- [40:02.280] We've got to strengthen up our elections
+- [40:04.960] because the voting is crooked as hell.
+- [40:06.720] We've gotta strengthen it up. But it's not that.
+- [40:09.380] It's either they're stupid, and they're not stupid,
+- [40:13.870] or they hate our country. But we love our country,
+- [40:17.150] and we're gonna stop this madness.
+- [40:18.820] And we're going to get this bill approved
+- [40:20.820] and all of the things that I've been talking about now
+- [40:23.350] for two years on the campaign trail,
+- [40:26.400] and remember, we won every single swing state.
+- [40:29.110] We won by millions of votes. We won everything.
+- [40:32.070] We won every -- it was a landslide.
+- [40:34.100] We won something that nobody talks about -- districts.
+- [40:38.430] You have thousands of districts. We won 2,750 to 505.
+- [40:45.610] Think of that. That's why, when you see a map --
+- [40:47.460] the whole map is red.
+- [40:48.750] That stands for Republican, by the way,
+- [40:51.120] because it stands for a lot of other things, too.
+- [40:52.950] But it stands a Republican
+- [40:54.900] with a little piece of blue on each side.
+- [40:56.860] But that's why -- think of that -- 2,000.
+- [40:59.920] 750 districts to 505 districts. This was a slaughter,
+- [41:05.420] but it gave us a mandate to do some great things.
+- [41:07.840] And I want to thank John Thune, and I want thank the Speaker,
+- [41:10.400] and I wanna thank Marco and everybody here.
+- [41:12.930] Everybody here, they have been so incredible.
+- [41:15.890] Pam, you've been unbelievable as the Attorney General.
+- [41:18.270] We appreciate it. Not easy, not easy.
+- [41:21.480] (applause)
+- [41:27.310] We're coming back faster than anybody ever thought possible.
+- [41:30.170] I told you what they said to me
+- [41:31.510] on just trips by very smart people.
+- [41:33.780] But we're going to make this --
+- [41:35.140] we're going to do this very quickly.
+- [41:37.210] It's happening a lot faster than even I thought possible,
+- [41:41.340] and we're going to be celebrating very quickly
+- [41:43.890] and we are going to be celebrating for a long time
+- [41:45.830] because we're turning our country around,
+- [41:47.370] we're getting our country back,
+- [41:49.210] and we're ruling with common sense, you know?
+- [41:52.380] Whether you're conservative or liberal,
+- [41:54.270] or as they like to say, progressive.
+- [41:55.900] They don't like the word liberal anymore.
+- [41:57.690] Progressive. I think it's a beautiful word, too.
+- [42:00.470] That's why I call them liberal. It's too nice a word.
+- [42:03.890] I don't know how you can be progressive
+- [42:05.280] when you're turning the country backwards.
+- [42:07.460] But no matter what you are, it's all about common sense.
+- [42:11.190] And I think that's the way I rule.
+- [42:12.650] I do what's right. I want to have borders.
+- [42:14.870] I don't want to transgender for anybody
+- [42:18.190] that happens to leave the house at a young age,
+- [42:20.710] the things they do.
+- [42:22.060] I don't want to have men playing in women's sports.
+- [42:24.890] That's got to be, you know, they say it's an 80-20.
+- [42:26.920] I think it's a 97-3 issue.
+- [42:29.880] It's so ridiculous. It's so ridiculous.
+- [42:32.970] (applause)
+- [42:37.600] There was a long-distance race the other day,
+- [42:40.270] or at least reasonably recently.
+- [42:42.710] And they had a top man and they had top woman,
+- [42:45.780] but it was a woman's race.
+- [42:47.150] And the man entered. He happened to be transitioned.
+- [42:52.380] Isn't that lovely? And he entered the race,
+- [42:54.900] and he beat the champion woman by five hours and 14 seconds.
+- [43:01.010] Five hours, that's a lot.
+- [43:03.180] Think of it, you're waiting five hours
+- [43:04.930] for your beautiful daughter to come in.
+- [43:06.510] Come on, baby, let's go. You can do it.
+- [43:09.300] He won by five hours and 14 seconds.
+- [43:12.140] It is crazy, and it's so demeaning,
+- [43:14.570] and they don't want to change. I see it the other day.
+- [43:17.530] Guys like Schumer, our great Palestinian senator.
+- [43:21.310] This guy, no, he's changed. He used to like Jewish people.
+- [43:25.620] Now he's totally against Jewish people,
+- [43:27.880] it's the most incredible transformation
+- [43:29.710] I think I've ever seen.
+- [43:32.660] But who would allow this to happen?
+- [43:34.280] In other sports, the same thing.
+- [43:35.630] Try the weightlifting numbers someday.
+- [43:37.430] You want to see some big differences.
+- [43:39.550] In a million years, the women will never catch these numbers.
+- [43:42.730] It's not going to happen.
+- [43:44.200] And it's very demeaning to women.
+- [43:45.710] And I don't like it when it's demeaning to women,
+- [43:47.900] so we're turning the country around fast.
+- [43:50.450] We love you all. Thank you very much.
+- [43:51.940] And good luck. Thank You.
+- [43:54.590] (applause)
+- [44:16.370] ♪ (God Bless America orchestral) ♪

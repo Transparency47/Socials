@@ -1,0 +1,176 @@
+<!-- source: https://www.youtube.com/watch?v=giI6KAkrowk -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: giI6KAkrowk -->
+<!-- date_published: 2025-12-28T20:17:43+00:00 -->
+<!-- date_accessed: 2026-06-02T01:08:04.557973+00:00 -->
+
+# Transcript: President Trump Greets the President of Ukraine at Mar-a-Lago
+
+- [00:08.230] [Music]
+- [00:16.320] Oh, it's
+- [00:23.920] so close.
+- [00:28.200] [Music]
+- [00:38.239] President, do you think Putin is serious
+- [00:39.760] about peace this time?
+- [00:40.960] >> I do. I think he is. I think they're
+- [00:44.160] both
+- [00:46.350] [Music]
+- [00:50.160] >> got to make a deal. Got to get it done.
+- [00:51.920] Too many people dying and uh I think
+- [00:55.760] both presidents want to make a deal. the
+- [00:57.920] way that we appreciate.
+- [01:01.520] >> What do the special
+- [01:05.680] dependence
+- [01:07.200] and I do believe that uh we have three
+- [01:10.320] makings of a deal that's good for
+- [01:12.159] Ukraine good for everybody. I think very
+- [01:15.280] important there's nothing more
+- [01:17.360] important. My book we settled eight wars
+- [01:20.880] and this was the most difficult one. I
+- [01:22.799] thought it would be in the middle of the
+- [01:24.080] pack. This is the most difficult one but
+- [01:26.479] we're going to get it done. We're going
+- [01:27.280] to have a great meeting today.
+- [01:29.920] This gentleman is uh worked very hard
+- [01:33.119] and is very brave and his people are
+- [01:34.799] very brave and what they've gone
+- [01:36.720] through. No nation very rarely have as a
+- [01:40.240] nation ever had to go through this. So,
+- [01:42.880] uh we're going to have a very good
+- [01:43.840] meeting today, I think. And I'm also
+- [01:46.079] calling President Putin back after the
+- [01:48.159] meeting and we'll continue the
+- [01:51.280] negotiation. Pretty complex, but not
+- [01:53.759] that complex.
+- [01:57.200] You need to do your day deadline.
+- [01:59.840] >> I don't have deadlines. I have You know
+- [02:01.680] what? My deadline is getting to war and
+- [02:04.079] you don't have deadines. You agree with
+- [02:05.600] that?
+- [02:10.959] Depends what the security agreement say.
+- [02:12.879] What a dumb question. Nobody even knows
+- [02:15.440] what the security agreement is going to
+- [02:18.080] say. But there will be a security
+- [02:20.080] agreement. It'll be a strong agreement
+- [02:22.879] and the the European nations are very
+- [02:24.800] much involved in that. They'll be very
+- [02:26.400] much involved in protection etc. But the
+- [02:29.760] European nations have been really great.
+- [02:32.480] They're very much in line with this
+- [02:34.000] meeting and with getting a deal done.
+- [02:35.840] They they are all they're terrific
+- [02:37.680] people. I think you can say that there's
+- [02:40.160] no nobody there. They all want to get it
+- [02:43.360] done and they're very supportive. I
+- [02:45.680] think
+- [02:47.840] I think it's Mr.
+- [02:50.080] And thank you for for the student
+- [02:52.319] organization. Yes, really I I agree with
+- [02:55.040] President
+- [02:56.959] we our teams they do what they can and I
+- [03:00.319] think that during last month they move
+- [03:02.480] forward with negotiations and the
+- [03:05.519] Americans and thank you very much for
+- [03:07.120] your team and they work very well and
+- [03:11.840] they work on different documents. I hope
+- [03:14.879] that all these doctors can bring this as
+- [03:17.440] quick as possible.
+- [03:19.760] And uh I agree with that for the
+- [03:22.239] Europeans. Yes. President
+- [03:32.640] to be president today.
+- [03:34.400] >> Sorry.
+- [03:34.799] >> But we want to come here to be president
+- [03:37.280] today.
+- [03:38.400] >> What?
+- [03:40.319] >> Why? So we have uh we spoke about our
+- [03:44.159] teams. They work on voice plan. Then
+- [03:47.040] they work on uh prosperity and security
+- [03:52.720] and voice plan is very important. We
+- [03:54.560] have to discuss and sequencing. It's
+- [03:56.879] very important. Our teams talk about
+- [03:59.200] strategy how to make step by step and
+- [04:03.519] bring this close and we will discuss
+- [04:06.000] this strategy.
+- [04:08.239] Are you going to make territorial
+- [04:09.920] concession?
+- [04:11.760] We will speak about 20 points plan.
+- [04:13.760] There is there are there in 20 points
+- [04:16.000] plan 90% by the way was done by our two
+- [04:19.359] teams. I think they made a great job,
+- [04:21.759] great work and yes we will discuss these
+- [04:24.400] points also
+- [04:25.120] >> and there are great economic benefits
+- [04:27.280] for Ukraine also as you know there's a
+- [04:29.680] lot of rebuilding to do there's a lot of
+- [04:32.400] wealth to be had and they have great
+- [04:34.720] wealth potentially they have great
+- [04:36.240] wealth they want to get started but
+- [04:38.960] there's a great economic benefit for
+- [04:41.440] Ukraine in what we're talking
+- [04:42.880] >> President Trump's understanding of the
+- [04:44.160] the recent attacks in the past on that
+- [04:46.560] Russia's stage against Ukraine shows
+- [04:48.400] that President isn't serious about
+- [04:50.240] peace. What is your reaction to that?
+- [04:51.919] >> No, he's very serious. I think uh you
+- [04:54.160] know I can say that I believe Ukraine
+- [04:56.000] has made some very strong attacks also
+- [04:58.479] and I don't say that negatively. I think
+- [05:00.800] you probably have to I don't say that
+- [05:03.120] negatively but I think he doesn't tell
+- [05:05.600] me that but there have been some
+- [05:06.960] explosions in various parts of Russia
+- [05:09.759] that looks to me like I don't know I
+- [05:11.600] don't think it came from the Congo. I
+- [05:14.080] don't think it came from the United
+- [05:16.160] States of America. It possibly came from
+- [05:19.039] Ukraine, but I haven't asked that
+- [05:20.320] question. Maybe I won't bother asking.
+- [05:22.000] You know, they have they're fighting a
+- [05:23.680] war and uh we'll see what happens. But I
+- [05:26.960] believe it's a war that
+- [05:29.360] we have two willing parties. We have two
+- [05:31.280] willing countries. They want to see an
+- [05:32.720] endless. The people of Ukraine want it
+- [05:34.320] to end and the people of Russia want it
+- [05:36.400] to end and the two leaders want it to
+- [05:38.000] end.
+- [05:39.759] >> On the economic benefits for Ukraine,
+- [05:42.000] Europe is holding some billions in
+- [05:43.680] frozen Russian assets. Do you believe
+- [05:45.360] that should go to Ukraine to help
+- [05:46.880] rebuild or go back to Russia again?
+- [05:48.560] >> None of that's been determined, but
+- [05:49.919] it'll go it's going to go very quickly.
+- [05:51.600] I think we're very we're in final stages
+- [05:54.000] of talking and we're going to see.
+- [05:56.080] Otherwise, it's going to go on for a
+- [05:57.840] long time. It'll either end or it's
+- [06:00.560] going to go on for a long time and
+- [06:03.039] millions of additional people are going
+- [06:04.720] to be killed. Millions.
+- [06:06.639] >> And nobody wants that.
+- [06:08.880] I think you get to an agreement.
+- [06:11.840] >> When you say when you say it,
+- [06:15.199] we're going for a long time and you say
+- [06:17.360] you don't have a deadline. What are you
+- [06:19.360] expecting?
+- [06:20.400] >> I just think we can do I think we can
+- [06:22.160] move very rapidly. I really feel that
+- [06:24.240] we've spoken. I know you had dinner with
+- [06:26.000] Steve. Steve Wickoff and Jared have done
+- [06:28.479] a fantastic job and and everybody has.
+- [06:31.280] Marco has been incredible. The whole
+- [06:32.800] group has been our group has been
+- [06:35.280] incredible and Ukraine appreciates it
+- [06:38.319] and Russia appreciates it. They both
+- [06:40.960] want to see it end and we're going to
+- [06:42.319] get it ended. Thank you very much
+- [06:43.919] everybody. Thank you.
+- [06:45.039] >> Thank you so much.
+- [06:46.000] >> We'll see you I think at the end but I
+- [06:47.600] do think we'll call Europe also. We're
+- [06:49.120] going to speak to the European. Thank
+- [06:50.960] you very much.
+- [06:56.840] [Music]

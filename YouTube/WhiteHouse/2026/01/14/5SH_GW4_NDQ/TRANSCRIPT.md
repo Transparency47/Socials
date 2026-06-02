@@ -1,0 +1,1073 @@
+<!-- source: https://www.youtube.com/watch?v=5SH_GW4_NDQ -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 5SH_GW4_NDQ -->
+<!-- date_published: 2026-01-14T21:38:54+00:00 -->
+<!-- date_accessed: 2026-06-02T01:07:29.692255+00:00 -->
+
+# Transcript: President Trump Participates in a Signing Ceremony, Jan. 14, 2026
+
+- [00:00.360] The President: Okay. Hello, everybody.
+- [00:03.080] Thank you very much.
+- [00:04.850] You see that beautiful milk, that's what we're here for.
+- [00:08.530] We're going to be discussing milk and whole milk
+- [00:10.620] and how good it is and how nourishing.
+- [00:12.980] And these people all come from beautiful farms.
+- [00:15.670] They have a wonderful life and they're happier today
+- [00:19.330] than they would've been if we didn't sign this,
+- [00:21.620] so we'll be talking about that in a second.
+- [00:24.010] Will, could you read the first two items
+- [00:28.480] and we're going to get going?
+- [00:29.800] After that, we'll be talking about a couple of things.
+- [00:32.120] We have some news on Iran, which we're going to talk about.
+- [00:36.230] Will Scharf: So, shortly before you'll came in,
+- [00:38.370] the president signed two executive actions.
+- [00:41.810] The first is the result of a Section 232
+- [00:44.610] trade investigation into critical minerals supplies.
+- [00:49.170] What it does is it sets up a mechanism,
+- [00:51.940] a process by which the United States
+- [00:53.870] will seek to secure its international supply chain
+- [00:56.840] of critical minerals
+- [00:58.150] and critical mineral derived products.
+- [01:00.460] The second is actually the result
+- [01:01.840] of another Section 232 trade investigation.
+- [01:05.030] This went into semiconductors. It sets up a two phase process.
+- [01:09.080] Under the first phase, semiconductors that are imported
+- [01:12.660] into the United States of America,
+- [01:14.650] that are not then used domestically to build out
+- [01:17.900] RAI or computing architecture here,
+- [01:20.820] will be subject to a 25 percent tariff.
+- [01:22.980] So, for example, semiconductors that were transshipped
+- [01:26.580] through the United States to other foreign countries
+- [01:29.290] would be subject to that 25 percent tariff.
+- [01:31.820] But those are two executive actions
+- [01:33.190] that the president reviewed shortly before you all came in.
+- [01:37.320] The President: So, they're going to sell chips, basically.
+- [01:39.120] And it's a chip.
+- [01:40.360] It's not the highest level, but it's a very good level.
+- [01:43.280] China wants them and other people want them.
+- [01:44.830] And we're going to be making 25 percent
+- [01:47.770] on the sale of those chips, basically.
+- [01:49.490] So, we're allowing them to do it,
+- [01:51.060] but the United States is getting 25 percent of the chips,
+- [01:55.150] in terms of the dollar value.
+- [01:56.540] And I think it's a very good deal.
+- [01:59.460] Great deal. They're taking billions of dollars,
+- [02:02.870] and they've done a fantastic job.
+- [02:05.860] But it's not the Blackwell or the Rubin.
+- [02:07.860] Those are the two top, but it's a very good chip
+- [02:10.910] and people want it.
+- [02:12.750] And we think it's in our best interest to do.
+- [02:15.930] And we have some other little things to talk about.
+- [02:21.260] Maybe we'll start that first. Should I start that first?
+- [02:23.190] I think they're going to want me to.
+- [02:24.570] I have a feeling they're going to want me to.
+- [02:27.040] We have been notified, and pretty strongly,
+- [02:31.630] but we'll find out what that all means.
+- [02:33.450] But we've been told that the killing in Iran is stopping
+- [02:39.340] and it's stopped. It's stopping.
+- [02:42.190] And there's no plan for executions
+- [02:44.490] or an execution, or executions.
+- [02:47.530] So, I've been told that on good authority.
+- [02:49.250] We'll find out about it.
+- [02:51.130] I'm sure if happens, we'll all be very upset.
+- [02:55.460] Including you will be very upset,
+- [02:57.380] but that's just gotten to me some information
+- [03:01.610] that the killing has stopped,
+- [03:03.910] that the executions have stopped.
+- [03:06.270] They're not going to have an execution,
+- [03:08.680] which a lot of people were talking about
+- [03:10.270] for the last couple of days.
+- [03:11.490] Today was going to be the day of execution.
+- [03:13.990] And another piece of information that I think is very important
+- [03:18.240] is the leaker has been found and is in jail right now.
+- [03:25.780] And that's the leaker on Venezuela.
+- [03:29.300] We had a very bad leaker. So, there could be some others
+- [03:33.080] and we'll let you know about that.
+- [03:34.360] We're out on their trail, but the leaker has been found,
+- [03:37.390] and the leaker's in jail,
+- [03:39.740] and will probably be in jail for a long time.
+- [03:42.120] Let's see what happens. So, we'll let you know.
+- [03:45.340] We'll keep you apprised
+- [03:47.190] as to what's going to happen with that.
+- [03:49.040] And I want to thank all of the incredible people behind me,
+- [03:52.970] political people, both Republicans and Democrats,
+- [03:56.440] because they like whole milk.
+- [03:58.210] Whether you're a Democrat or a Republican,
+- [04:00.050] whole milk is -- It's a great thing.
+- [04:05.370] The senator was in the office many years ago.
+- [04:07.440] It feels like many years ago, but quite a while ago,
+- [04:09.850] right at the beginning of my first tournament.
+- [04:11.490] Peter Welch: Yeah, with Elijah Cummings.
+- [04:12.690] The President: Right, with Elijah, a very good person.
+- [04:14.720] You and I had a good relationship with him.
+- [04:18.930] At that time, I think you were a congressman
+- [04:20.560] and you've made a lot of progress.
+- [04:22.930] You've done very well.
+- [04:24.270] Peter Welch: Some would disagree.
+- [04:27.760] The President: I think you've done a great job,
+- [04:29.560] but it's great to have you here again.
+- [04:30.870] Peter Welch: Thank you.
+- [04:32.110] The President: Appreciate it.
+- [04:34.080] So, today, I'm delighted to sign the Whole Milk
+- [04:36.980] for Healthy Kids Act into law,
+- [04:39.970] which is a very important thing for our farmers
+- [04:42.030] and, I think, maybe more important for our people.
+- [04:45.650] The people that drink milk.
+- [04:47.830] This is the first bill signing of the new year.
+- [04:50.340] And we'll ensure that millions of school aged children
+- [04:53.530] have access to high quality milk
+- [04:55.920] as we make America healthy again.
+- [04:58.670] I want to thank Secretary of Agriculture, Brooke Rollins,
+- [05:01.380] who's behind me, Secretary of Health and Human Services,
+- [05:04.080] Robert F. Kennedy, Jr.
+- [05:06.450] Senators John Boseman and Mike Crapo,
+- [05:10.640] Roger Marshall, Peter Welch,
+- [05:13.630] as well as Representative G.T. Thompson and Tim Walberg.
+- [05:18.730] All great people.
+- [05:20.510] Also with us today is USDA National Nutrition Advisor,
+- [05:24.230] Dr. Ben Carson, my friend for a long time.
+- [05:27.610] We went head-to-head,
+- [05:30.240] and it was not easy going head to head with him.
+- [05:33.360] (inaudible). He still looks good.
+- [05:35.730] That's because he drinks a lot of milk.
+- [05:39.420] And some of our nation's wonderful dairy farmers
+- [05:42.880] and their children,
+- [05:44.640] they're going to be farmers for a long time, we hope.
+- [05:47.300] As it currently stands, schools participating
+- [05:49.780] in the National School Lunch Program
+- [05:51.420] are only able to offer students low or non-fat milk options.
+- [05:56.200] That was changed during the Obama administration.
+- [05:59.760] A lot of people disagreed with it at the time.
+- [06:02.670] With this legislation,
+- [06:04.290] schools will finally be able to expand their offerings
+- [06:07.060] to include nutritious whole milk.
+- [06:10.130] It's actually a little definition, whole milk.
+- [06:14.330] And it's whole with a W,
+- [06:15.860] for those of you that have a problem.
+- [06:17.390] Most of the media will get that.
+- [06:19.710] This is the perfect follow-up to the new real food pyramid,
+- [06:23.590] and Secretary Kennedy and Secretary Rollins
+- [06:26.010] announced that last week. You probably heard.
+- [06:29.010] This legislation also allows parents
+- [06:31.230] to directly request a substitute for milk
+- [06:34.680] for children with dairy intolerance.
+- [06:38.100] Previously, parents were required to submit
+- [06:40.450] a written statement from a doctor,
+- [06:42.310] but we're eliminating that rather ridiculous policy,
+- [06:46.310] allowing parents to choose what is best for their child,
+- [06:49.030] which is a big move.
+- [06:50.240] Hard to believe that that would be a big thing, but it is.
+- [06:52.890] And of course, these changes will be major victories
+- [06:56.380] for the American dairy farmers who we love
+- [06:59.560] and who voted for me in great numbers, I will say.
+- [07:01.760] I think I got every one of them.
+- [07:05.220] In December, I also signed the Secure Rural Schools
+- [07:08.630] Authorization, Reauthorization Act.
+- [07:11.520] And I'm proud to say that these two pieces of legislation
+- [07:14.370] will give school-aged children across the country the resources
+- [07:18.420] and support that they need, not just to succeed,
+- [07:22.610] but really to thrive in life and later on in life.
+- [07:26.330] So, I want to ask Secretary Rollins to say a few things,
+- [07:29.650] and then I'd like to ask Secretary Kennedy
+- [07:32.250] and Dr. Carson.
+- [07:33.520] I'd also like to hear from these great political leader,
+- [07:36.310] senators, congressmen, if they'd like to say something,
+- [07:39.410] I'd be honored.
+- [07:41.240] So, Brooke, do you want to start?
+- [07:42.590] Secretary Rollins: Yes, sir. Thank you.
+- [07:43.790] And what a joy and an honor it is to be here.
+- [07:47.300] I feel like I have the best job in the world
+- [07:49.550] with representing all of these farmers.
+- [07:51.830] And Mr. President, not in our lifetime,
+- [07:54.320] has a president been a president who loves
+- [07:56.800] and supports our farmers more, and certainly the dairy farmers.
+- [08:00.510] I want to thank all of our farmers here today, sir.
+- [08:03.080] Most of them are fifth and sixth generation.
+- [08:05.740] They represent states from all across our country.
+- [08:08.300] And bringing the children too and seeing
+- [08:10.660] what the next generation of dairy farmers looks like.
+- [08:13.230] The amazing thing is some of these farmers back here
+- [08:16.030] from Butler, Pennsylvania, he-
+- [08:18.030] The President: Where?
+- [08:19.270] Secretary Rollins: Butler, Pennsylvania.
+- [08:24.010] The President: I love Butler. I do.
+- [08:25.290] Secretary Rollins: Yeah, and they love you.
+- [08:27.620] They love you. But he milks about 40 to 60 cows.
+- [08:31.550] And then we have Jamie from Wisconsin,
+- [08:34.110] who milks about 5,000 cows.
+- [08:36.080] So, they represent all across the spectrum
+- [08:38.430] and what this means.
+- [08:39.720] And I think it's important to note that in the last year,
+- [08:43.340] your support for these American farmers for rural America,
+- [08:47.440] the One Big Beautiful Bill
+- [08:49.720] was the largest investment in rural America in history.
+- [08:53.330] I think that's important to note.
+- [08:54.990] The trade, and I see my friend Jameson Greer over there
+- [08:58.030] and Howard Lutnick on this end,
+- [08:59.770] we've opened up more than 24 different markets.
+- [09:03.090] Milk exports, dairy exports are up 23 percent
+- [09:06.850] just in the last year.
+- [09:08.180] And when you think about the ag deficit
+- [09:11.140] that happened under Joe Biden and the four years,
+- [09:13.620] we went from a surplus of agriculture products
+- [09:16.270] when we left the first time to a $50 billion deficit
+- [09:19.550] when we came back.
+- [09:20.840] So, these are massive, massive wins for America.
+- [09:24.280] And I think it's important to note that.
+- [09:26.170] I also want to note, and you said it as well,
+- [09:28.050] that over a decade ago, Michelle Obama in this very room
+- [09:32.140] made an announcement on a shortsighted campaign
+- [09:34.660] to ditch the whole milk in schools.
+- [09:37.070] And that's what we're working to fix today.
+- [09:39.200] Last week, Bobby Kennedy, and Ben Carson,
+- [09:42.350] and Dr. Oz and the whole crew, sir,
+- [09:44.620] announced the Dietary Guidelines for Americans,
+- [09:47.090] 2025 to 2030, which also reintroduced full fat dairy
+- [09:51.760] into a healthy diet. And today, by signing this bill,
+- [09:55.690] Senator Marshall and Congressman Thompson
+- [09:58.890] and both all the wonderful men
+- [10:01.250] to the right who worked so hard on this, Peter Welch,
+- [10:04.220] it is a bipartisan issue.
+- [10:05.860] And understanding where we are in this country
+- [10:08.880] and how important the health of certainly our children
+- [10:11.430] are is so important.
+- [10:14.040] USDA is posting today the guidance.
+- [10:17.350] So, we're signing the bill in USDA,
+- [10:19.220] we're moving at Trump time, is posting today
+- [10:22.450] the new rulemaking that is necessary to get whole milk
+- [10:25.570] back into school lunches.
+- [10:27.580] So, that's a really, really big deal too.
+- [10:29.080] The President: So, how long will that take?
+- [10:30.760] Secretary Rollins: It should just take a few weeks
+- [10:32.060] and then the milk starts moving in.
+- [10:33.430] So, it's a big announcement, sir,
+- [10:36.060] for our schools and our children.
+- [10:37.270] And I know Secretary Kennedy
+- [10:38.550] will talk a little bit about the health issue,
+- [10:39.970] so I won't do that. I'll skip over that.
+- [10:41.950] You mentioned, and the last thing I'll say,
+- [10:43.670] I know we're here to sign the bill on whole milk,
+- [10:45.590] but Senator Crapo's work and our wonderful friend,
+- [10:49.480] Doug Lamofa, who we lost way too soon,
+- [10:52.480] their work on securing Rural Schools Reauthorization Act,
+- [10:56.090] how important that too is for rural America.
+- [10:58.830] 700 eligible rural counties across the nation
+- [11:02.440] are now guaranteed funds for schools,
+- [11:04.600] and roads and infrastructure.
+- [11:06.530] So sir, you say it all the time.
+- [11:07.980] Those are your people. They voted for you,
+- [11:09.930] and with us and saw your vision from the beginning.
+- [11:12.800] This is who we're here to support today in addition
+- [11:15.550] to the whole milk for healthy schools,
+- [11:17.130] which will help all children.
+- [11:18.800] Just remember, eat real food and drink whole milk.
+- [11:22.780] What a joy again it is to be here,
+- [11:24.080] and I especially want to thank all of our incredible farmers
+- [11:26.220] for what you do. So, sir, with that,
+- [11:28.150] I'll turn it over to Secretary Kennedy.
+- [11:29.480] The President: And just before you do that,
+- [11:30.840] how are we doing with food prices, bringing them down?
+- [11:33.340] Secretary Rollins: Yes, sir.
+- [11:34.550] Well, I'm glad you asked, because I brought a chart
+- [11:37.920] and that just happened to be right behind me.
+- [11:40.330] So, speaking of milk, milk is actually way down.
+- [11:44.180] And I know we're here to talk about that today, obviously-
+- [11:46.070] The President: It's 44 percent.
+- [11:47.270] Secretary Rollins: That's right, sir.
+- [11:48.520] The President: 24 percent down. Milk, 44 percent down.
+- [11:50.770] Secretary Rollins: Eggs is way down.
+- [11:52.040] Milk is way down. This is just since we took office, sir.
+- [11:56.010] Fresh whole chicken, down 2 percent, cheese down,
+- [11:59.690] tomatoes down, butter down.
+- [12:01.570] Of course, eggs are way down, potatoes down almost 3 percent,
+- [12:05.010] fresh fruits down almost 3 percent,
+- [12:06.960] but this is just the beginning.
+- [12:08.450] And as we continue to bring the cost of farming down,
+- [12:11.500] bring the cost of inputs down,
+- [12:13.210] open up the markets, support our farmers,
+- [12:15.530] we'll see even more affordability moving forward.
+- [12:18.190] The President: And eggs are down 31 percent,
+- [12:19.880] so that's really something. Where's Bobby?
+- [12:21.780] Secretary Rollins: Bobby is right here.
+- [12:23.150] (inaudible).
+- [12:24.350] Secretary Kennedy: I'm right here, Mr. President.
+- [12:26.180] The President: Go ahead wherever you are.
+- [12:27.560] Go ahead. Nice to see you. We like Bobby.
+- [12:30.010] Secretary Kennedy: And I want to echo what Brooke said
+- [12:31.700] about finally having a president
+- [12:34.800] that sees the alignment between farm prosperity,
+- [12:40.720] good food policy and the health of our children.
+- [12:43.540] These are common sense associations.
+- [12:46.850] Democrats have been talking about them for eons.
+- [12:49.470] Republicans have been talking about them.
+- [12:51.170] We finally have a president that is implementing these policies
+- [12:55.590] and getting real food to our children.
+- [12:57.980] Today, President Trump signs the Whole Milk
+- [12:59.990] for Healthy Kids Act of 2025,
+- [13:02.340] a long overdue correction to the school nutrition policy
+- [13:06.780] that puts children's health first.
+- [13:09.440] For years, Washington treated fat,
+- [13:11.640] especially saturated fat, as the enemy.
+- [13:14.870] It made a war on saturated fat.
+- [13:17.130] This is the peace time president.
+- [13:18.990] He made eight and a half deals ending wars,
+- [13:22.540] and he's also ended the war on saturated fat.
+- [13:25.940] As a result, all the 2 percent milk
+- [13:28.770] disappeared from school menus,
+- [13:31.310] even though science has never shown
+- [13:33.490] that whole milk harms children
+- [13:35.140] and evidence increasingly shows the opposite.
+- [13:38.660] The panoply of nutrients in whole milk
+- [13:40.810] is critical to brain development
+- [13:42.940] and physical development in our children.
+- [13:45.550] Whole and 2 percent milk provide
+- [13:47.330] 13 essential ingredients critical for growth,
+- [13:51.340] development, immune system function and overall health,
+- [13:54.970] including protein, calcium, vitamin D and healthy fats.
+- [13:59.630] Yet, since these milk options were removed
+- [14:02.040] more than a decade ago, school milk consumption
+- [14:05.370] and meal participation have declined dramatically.
+- [14:08.760] Today, between 68 percent and 94 percent of school-aged boys
+- [14:13.790] and girls failed to meet recommended dairy
+- [14:16.960] intake according to federal guidelines.
+- [14:19.980] When schools limit milk choices,
+- [14:22.100] the kids do not move to healthier substitutes.
+- [14:25.640] They move to caffeinated drinks, to sugared drinks
+- [14:28.890] and to sweetened beverages with little or no nutritional value,
+- [14:35.120] and the potential to wreak havoc on metabolic health,
+- [14:38.080] which is driving the chronic disease epidemic in our country.
+- [14:42.240] During the same period that whole milk
+- [14:44.090] was regulated out of lunchroom, rates of childhood obesity
+- [14:48.220] and diabetes rose significantly.
+- [14:51.070] Removing whole milk did not improve health.
+- [14:54.300] It damaged it.
+- [14:55.800] Thanks to President Trump's leadership,
+- [14:57.720] this law fixes that mistake.
+- [15:00.400] It allows schools in the National School Lunch Program
+- [15:04.340] to offer whole, reduced fat, low fat,
+- [15:06.840] or fat-free flavored or unflavored,
+- [15:10.510] organic or conventional.
+- [15:13.230] It restores choice to schools, parents and students,
+- [15:16.490] and encourages consumption of nutrient-dense foods
+- [15:20.150] that kids will actually drink.
+- [15:22.830] The law also removes unnecessary bureaucracy
+- [15:26.520] by allowing parents or legal guardians
+- [15:29.710] to request milk substitutes
+- [15:31.580] without the necessity of involving a doctor.
+- [15:35.700] And it corrects a flawed technical rule
+- [15:37.920] by excluding fluid milk from saturated fat calculations
+- [15:42.340] that distorted school menus. Milk fat is not junk food.
+- [15:47.560] Treating it that way undermined nutrition
+- [15:50.210] and ignored the science.
+- [15:52.040] Last week, Secretary Rollins and I unveiled
+- [15:54.850] President Trump's new food pyramid
+- [15:57.760] and updated our dietary guidelines with a clear message:
+- [16:01.100] eat real food.
+- [16:03.020] This law puts that principle into action.
+- [16:06.160] As Secretary of Health and Human Services,
+- [16:08.290] I support this reform because it aligns federal policy
+- [16:12.110] with evidence-based nutrition, not ideology or dogma.
+- [16:16.880] Healthy kids need real food. They need real protein.
+- [16:20.800] They need healthy fats
+- [16:22.370] and they need policies grounded in reality and the science.
+- [16:26.670] I want to thank President Trump again
+- [16:28.480] for his vision, for signing this bill,
+- [16:31.260] for continuing to put children's health first.
+- [16:34.220] This is exactly the kind of practical change
+- [16:36.950] that will make America healthy again.
+- [16:39.540] The President: Thank you.
+- [16:42.400] Thank you, Bobby. We have some milk here.
+- [16:45.870] It's been sitting here for five days, so --
+- [16:50.520] It's from the original bottle
+- [16:52.610] and I brought it so the press can have some.
+- [16:55.250] You can swig it all out (inaudible).
+- [16:57.930] Remember the old days when we were kids,
+- [16:59.660] everybody shared a bottle?
+- [17:01.240] Today, we tend not to do that, but if you'd like to,
+- [17:04.120] if you trust the person that you're drinking after,
+- [17:07.670] it's right here. It's yours.
+- [17:09.130] Okay? Semi-fresh. Five, six days old. Thank you.
+- [17:13.800] So Ben Carson, special man, knows a lot about health.
+- [17:17.810] He looks better than ever. So Ben, how about it?
+- [17:20.650] Dr. Carson: Well, thank you, Mr. President.
+- [17:21.970] Thank you for being interested in the health of the people.
+- [17:24.750] It's made a big difference in facilitating an atmosphere
+- [17:28.230] where the agencies can work together.
+- [17:32.370] Secretary Rollins, Secretary Kennedy,
+- [17:35.480] Marty Makary, Dr. Oz,
+- [17:37.480] the whole group, every week at least meeting
+- [17:40.460] once to talk about these things, and it's made a big difference.
+- [17:43.670] And I want to thank the dairy farmers.
+- [17:46.080] I know you guys have been in the doghouse for a little while.
+- [17:48.600] You're out of the dog house today.
+- [17:50.020] Unidentified: Yes, sir.
+- [17:51.220] Dr. Carson: And whole milk is a wonderful beverage.
+- [17:55.570] Good protein. We talk about real food,
+- [17:58.160] it is real food, healthy fats, important nutrients.
+- [18:03.430] You look at vitamin D, you look at calcium, phosphorus,
+- [18:08.160] the things that are absolutely essential
+- [18:10.620] for bone development and for teeth.
+- [18:14.090] But as a neurosurgeon, the thing I really like
+- [18:17.390] is with the brain, what it does for the brain.
+- [18:20.880] The brain starts to develop right after conception
+- [18:24.200] and adds millions of neurons every single day.
+- [18:28.690] Continues to do that right up until the mid to late twenties.
+- [18:33.100] Now, it's important what that brain
+- [18:35.840] is getting during the development.
+- [18:38.350] Is it getting soda or is it getting milk?
+- [18:41.630] The President: So milk would help your cognitive ability?
+- [18:43.780] Dr. Carson: Absolutely.
+- [18:45.160] You can tell who's been drinking milk.
+- [18:46.470] The President: Taking cognitive tests?
+- [18:49.800] I've taken a lot of them.
+- [18:51.600] I've aced every one of them because I drink milk.
+- [18:56.380] Dr. Carson: It's good for -- And it shows.
+- [18:57.890] The President: Do you consider there
+- [18:59.190] to be a big difference in taste
+- [19:00.760] between what you were having and this?
+- [19:03.730] It just looks so good sitting there, right?
+- [19:06.280] It looks better. Nice thick.
+- [19:08.790] Go ahead, Ben. Sorry to interrupt you.
+- [19:10.520] Dr. Carson: When you go up to school
+- [19:11.750] and you get the kids real milk, they love it.
+- [19:14.990] When you pour this stuff that looks like dishpan water,
+- [19:18.650] you don't particularly want that.
+- [19:20.490] It doesn't taste good either. So this is a great day.
+- [19:23.670] It's only a part of what's happening
+- [19:26.980] with our emphasis on health.
+- [19:29.670] Our longevity has been going down and other industrialized
+- [19:33.350] nations it's been going up.
+- [19:34.860] It's because we haven't been paying attention to this.
+- [19:37.660] That has changed.
+- [19:38.900] And we want to thank you for your leadership.
+- [19:40.920] The President: Well, thank you very much, Ben.
+- [19:42.380] Appreciate it. I appreciate all you've done too for the country.
+- [19:46.270] I'd like to ask a few of our senators
+- [19:47.620] to say a couple of words.
+- [19:48.870] Maybe we should start with the Democrat in our midst.
+- [19:50.530] What do you think? Peter?
+- [19:51.820] Dr. Carson: Peter Welch.
+- [19:53.060] The President: How about Peter Welch?
+- [19:54.260] And thank you very much for being here, Peter.
+- [19:56.320] Senator Welch: Thank you.
+- [19:58.220] Our dairy farmers are so vitally important
+- [20:01.570] and they have a way of life that transmits
+- [20:03.580] from one generation to another.
+- [20:05.670] And it's tougher than ever for our dairy farmers in Vermont.
+- [20:08.940] Our dairy farmers in Pennsylvania and others,
+- [20:10.970] South Carolina are here.
+- [20:13.390] But they're the lifeblood of the community.
+- [20:15.020] Nobody works harder and nobody does things
+- [20:17.490] that are better for our nutrition.
+- [20:20.030] And also for our kids, I'm in agreement.
+- [20:22.240] The kids having access to healthy milk is good milk.
+- [20:25.880] Whole milk is really good for them.
+- [20:27.910] And one of the things that I get very excited
+- [20:30.220] about that really the Vermont farmers talked about
+- [20:33.250] is they have their milk from their farm
+- [20:36.790] that then goes directly to many of our schools.
+- [20:39.560] And then kids come out to the farms
+- [20:41.180] and start seeing how milk is made,
+- [20:43.630] what farming is about.
+- [20:45.660] That's good for America. It's not a party deal.
+- [20:49.240] This has been a bipartisan effort.
+- [20:51.220] I appreciate working with my colleague,
+- [20:53.300] Senator Marshall who did a great job and JT
+- [20:55.490] when I was in the House.
+- [20:56.840] And Tim, thank you. Thank you, Mr. President.
+- [20:58.850] The President: Thank you.
+- [21:00.130] It's got to be a 90/10 issue, another one of those 90/10.
+- [21:03.240] It's good to have you on our side.
+- [21:05.240] But it's a great issue and it's a great thing to do
+- [21:09.770] and we're very proud of it. We're very proud of our farmers.
+- [21:12.920] Senator, can you say a few words?
+- [21:14.590] Senator Crapo: Sure. I'll be very brief.
+- [21:15.900] We all want to see you sign this bill.
+- [21:18.950] But I really appreciate you and Brooke bringing up
+- [21:22.600] the Secure Rural Schools legislation.
+- [21:25.330] This is critical legislation
+- [21:26.960] to our rural communities across this country,
+- [21:29.160] and we have to fight every couple of years
+- [21:31.760] to get it extended just a couple of years.
+- [21:34.310] And this extension we got this year
+- [21:36.470] went back to pick up a few years that we missed
+- [21:38.760] and is going to expire again at the end of the next year.
+- [21:42.160] And Mr. President and Secretary,
+- [21:45.320] I'm going to encourage us to get back in here to sign
+- [21:49.250] a Secure Rural Schools Bill that is permanent.
+- [21:53.430] I want to set a goal or hope that you'll set a goal with me
+- [21:55.610] to get that done. Thank you.
+- [21:57.040] The President: Thank you very much.
+- [21:58.570] Anybody? Roger.
+- [21:59.810] Senator Marshall: Yeah.
+- [22:01.060] Mr. President, thank you so much for having us here
+- [22:03.410] on behalf of Kansas dairy farmers, thank you.
+- [22:06.290] Milk is the most wholesome, nutritious drink
+- [22:08.980] known to humankind.
+- [22:10.660] Not only is it full of essential nutrients,
+- [22:13.110] it's full of healthy fats and as well as protein.
+- [22:16.880] As Dr. Carson pointed out,
+- [22:18.390] those healthy fats are what helps that brain develop
+- [22:21.230] and help you absorb the fat-soluble vitamins.
+- [22:25.160] The protein is why you drink milk
+- [22:27.270] and you're not hungry again in 30 minutes.
+- [22:30.150] And I have to point out that
+- [22:32.330] under the previous couple of ministrations ago,
+- [22:34.550] thanks to them, we have a whole generation of young adults
+- [22:37.740] who have osteopenia and osteoporosis
+- [22:40.400] because they never drank milk for an entire generation.
+- [22:43.640] So getting milk back in the schools
+- [22:45.430] is going to give us healthy bones and healthy minds.
+- [22:48.240] It sticks to your ribs and it tastes great.
+- [22:50.340] Thanks, for your leadership. The President: Good job.
+- [22:51.740] Senator Marshall: Yes, sir, Mr. President.
+- [22:52.960] Thank you. The President: Anybody?
+- [22:54.550] Politically first and then we're going to go to the farmers.
+- [22:56.740] Yes, please.
+- [22:57.940] Unidentified: Mr. President, thank you so much.
+- [22:59.550] I want to ask Dr. Carson
+- [23:00.940] if there's an age limit on the cognitive ability.
+- [23:05.890] Drink (inaudible).
+- [23:07.330] Secretary Rollins: Exactly. Unidentified: Thank you so much.
+- [23:08.620] The President: Thank you so much.
+- [23:09.890] Unidentified: We literally have legislators here
+- [23:13.700] that have worked on this for years.
+- [23:15.840] This is something that's been very difficult.
+- [23:17.760] You're able to help us get it over the --
+- [23:19.210] The President: You would think it would have been
+- [23:20.440] very easier, actually.
+- [23:21.680] Unidentified: Exactly, but you were able to help us
+- [23:23.320] get it over the finish line. You and your great team,
+- [23:25.750] Brooke and all of these people have done such a good job.
+- [23:29.510] Not only with this issue,
+- [23:31.410] but all that we're doing for the farm community,
+- [23:33.440] which is so, so very important. So thank you very, very much.
+- [23:38.030] And I know that you're going to continue
+- [23:39.460] to support farmers like you have-
+- [23:41.060] The President: We do right from the beginning.
+- [23:42.460] Unidentified: Since you've been elected. Thank you.
+- [23:44.080] The President: Thank you very much. Go ahead.
+- [23:45.450] Representative Thompson: Mr. President, GT Thompson,
+- [23:47.620] Chairman of the House Agriculture Committee.
+- [23:49.360] I have been working on this bill for 15 years and thank you.
+- [23:53.260] The President: That's amazing.
+- [23:54.590] Representative Thompson: Because of your support
+- [23:56.270] and your leadership,
+- [23:57.550] we were able to get this across the line.
+- [24:00.370] The President: It's such a shame that it would be so hard to do.
+- [24:02.340] Representative Thompson: Well, the common sense was lost.
+- [24:06.230] And the benefits today go to those precious children
+- [24:10.880] that we see over there.
+- [24:12.380] It goes to our dairy farm families
+- [24:14.010] who work so hard seven days a week.
+- [24:15.890] There's no day off for a dairy farmer.
+- [24:18.130] And quite frankly, our rural communities,
+- [24:20.100] who when the misguided move to take whole milk
+- [24:24.470] and 2 percent milk and flavor out of the schools,
+- [24:27.400] we lost a generation, probably two generations of milk drinkers
+- [24:30.640] and it devastated those rural communities.
+- [24:32.550] Because you'll lose the dairy farms,
+- [24:34.440] then you lose all the supplies, businesses,
+- [24:38.300] and then you lose grocery stores
+- [24:40.150] and you lose community pharmacies.
+- [24:42.390] Well, that day ends today with your signature.
+- [24:45.000] We'll reverse that trend and we build a robust rural economy.
+- [24:49.200] And I'll just close with what will be the theme
+- [24:51.840] of my next bumper sticker, whole milk heals.
+- [24:55.860] The President: That's right. That's what they say.
+- [24:57.940] I think it's probably true. Anybody else?
+- [24:59.710] Unidentified: Well, Mr. President,
+- [25:00.910] the chairman of Education Workforce Committee,
+- [25:02.830] this fits with the kids,
+- [25:05.010] with what they can enjoy in school and grow from.
+- [25:08.410] Also, to have GT Thompson sponsor
+- [25:11.160] the build on that committee.
+- [25:12.470] And I think I've worked with you for 15 years,
+- [25:15.570] but we finally got it done in committee.
+- [25:18.940] This makes an impact for education,
+- [25:21.300] for our workforce, the health that's there,
+- [25:24.040] and the reality of what this farming industry does.
+- [25:26.610] I live in the most diverse farm district in Michigan.
+- [25:29.650] Thanks for coming to Michigan yesterday.
+- [25:31.190] The President: Yeah, it was great.
+- [25:32.410] Unidentified: And my kids were raised on,
+- [25:35.450] it's legal now, raw milk, taken right out of the bulk tank.
+- [25:40.050] And my oldest son became a Pulitzer nominated journalist
+- [25:42.750] for the Chicago Tribune,
+- [25:44.290] and I think the milk did it, right?
+- [25:47.510] Then I have the benefit of Dr. Carson
+- [25:51.330] being a graduate of Andrews University in my district.
+- [25:54.450] So all of that goes together.
+- [25:56.640] Thank you for signing this. It'll make a difference.
+- [25:58.640] The President: Great job.
+- [26:00.750] So how about a couple of the farmers?
+- [26:03.200] Would anybody like to speak?
+- [26:05.550] Do you want to just say how great milk is?
+- [26:08.590] Unidentified: It's so amazing.
+- [26:11.350] The President: That's good.
+- [26:12.550] Unidentified: Yes, Mr. President,
+- [26:13.830] we want to say thank you for doing this.
+- [26:15.340] It has been stated several times how long this took.
+- [26:17.770] And so, thank you for your support and leadership
+- [26:19.940] and finally making this happen.
+- [26:21.700] As a mom and a dairy farmer, this isn't just a big win
+- [26:24.890] for the dairy farm families across the country,
+- [26:26.530] but as it has been said, the millions of school aged kids
+- [26:29.200] that depend on school lunches for their nutrition
+- [26:31.960] and to fuel their body. So thank you.
+- [26:33.350] The President: So they've been fighting this for years then,
+- [26:34.870] haven't you?
+- [26:36.080] Unidentified: Fifteen years.
+- [26:38.480] The President: You're too young to be fighting.
+- [26:39.880] Have you been fighting it for that long time?
+- [26:41.690] Unidentified: For a while we've been fighting it.
+- [26:43.240] I think I speak for everybody. It has been a long time coming.
+- [26:46.480] So your leadership is it.
+- [26:47.810] The President: Well, it's great.
+- [26:49.150] I had no idea. It just seems to make sense.
+- [26:52.520] Hard to believe when you'd said 15 years,
+- [26:54.920] I said, "You have to be kidding."
+- [26:57.340] Government is tough. Government can be very tough.
+- [27:00.320] How about you? Would you like to say something?
+- [27:02.120] Unidentified: So we are very grateful
+- [27:03.440] and thankful that you passed this bill,
+- [27:05.580] because it is common sense as to what we should be consuming,
+- [27:09.740] whole foods and whole milk.
+- [27:11.540] Unfortunately, that has not been the case for a few years,
+- [27:14.980] but research shows and our MAHA movements
+- [27:18.310] have been taking the right steps to make America healthy.
+- [27:21.630] And our children are growing into active teenagers
+- [27:25.080] and athletes, and what do they need?
+- [27:27.000] They need strong bones. They need the energy.
+- [27:29.780] They need the healthy muscles.
+- [27:31.880] And so, we are so grateful that the science is there
+- [27:35.620] and we are actually at the right point
+- [27:37.890] and the right step making sure America is healthy.
+- [27:40.530] So we are very thankful.
+- [27:42.590] The President: It's so great.
+- [27:43.980] I look forward to getting it all the time.
+- [27:46.760] I open a refrigerator, I say,
+- [27:48.190] "Milk with rice and milk with water and milk with everything."
+- [27:51.460] And I'm saying, "What kind of milk is it?
+- [27:53.220] That's what I like right there." That's great.
+- [27:55.500] Thank you very much. Please, spin.
+- [27:59.130] Patricia Onwuka: Hi, my name is Patrice Onwuka.
+- [28:00.710] I am the center director at the Independent Women's Forum.
+- [28:03.380] I work on economic policies, but I'm also a mom of boys.
+- [28:07.140] As you can see, this is Jesse.
+- [28:09.530] Jesse, you want to say your name and age?
+- [28:11.440] Jesse: My name is Jesse.
+- [28:12.680] I am six years old. I am seven years old.
+- [28:15.330] I want to be an engineer when I grow up.
+- [28:19.250] I'm a first-grader.
+- [28:23.100] I also know where does milk come from.
+- [28:26.310] Unidentified: Good job.
+- [28:29.200] The President: Where does it come from?
+- [28:31.520] Unidentified: So first, farmers milk it,
+- [28:33.610] and then next they put it into a cold tank.
+- [28:38.440] And then to take the germs out, they put it very hot
+- [28:44.670] and then they put it back in the cold tank
+- [28:47.580] and then they haul it to somewhere
+- [28:49.880] that is cold in a big refrigerator.
+- [28:53.220] The President: That is unbelievable.
+- [29:03.220] Everybody, these guys want it.
+- [29:04.730] Let me tell you, politicians want it.
+- [29:06.680] I'm going to give that to you. Is that okay?
+- [29:09.100] Unidentified: Thank you, sir.
+- [29:10.370] The President: Thank you. That's beautiful.
+- [29:11.600] Unidentified: And this is Daniel, his younger brother.
+- [29:13.190] Daniel, how old are you?
+- [29:14.770] Daniel: Five.
+- [29:16.040] Unidentified: And what grade are you in?
+- [29:17.910] Daniel: Kindergarten.
+- [29:19.110] Unidentified: Kindergarten.
+- [29:20.320] And these boys are involved in sports,
+- [29:22.020] they go to a public school in the Maryland area.
+- [29:24.850] And many of their friends are drinking the kind of options
+- [29:28.910] that they don't really like.
+- [29:30.260] And so, it's good that as they get to drink
+- [29:32.680] a glass of milk every morning,
+- [29:34.660] their friends will be able to drink that at school as well.
+- [29:36.630] So thank you very much for what you're doing
+- [29:38.870] for public school kids in particular.
+- [29:40.700] The President: Beautiful people. Thank you very much.
+- [29:43.010] Doing a great job too.
+- [29:44.300] Unidentified: Thank you. The President: Please?
+- [29:45.530] Amber Schwartz: I'm Amber Schwartz.
+- [29:46.770] I'm also with Independent Women, but I'm here with my son, Luke,
+- [29:49.670] who is 13 years old. We're in Alexandria, Virginia.
+- [29:53.410] Luke needs a lot of protein right now to grow.
+- [29:55.690] In fact, his doctor just told us between 60 and 70 grams a week.
+- [29:59.600] And I can't feed him a whole chicken every day,
+- [30:02.170] so supplementing with milk is really helping us.
+- [30:05.190] Unfortunately, at school,
+- [30:06.430] they've offered skim milk and chocolate
+- [30:11.330] and he does not like either.
+- [30:13.180] And so, he has been turning to the juice boxes
+- [30:15.730] and other drinks that have sugar.
+- [30:19.110] And so, thank you for giving him the opportunity
+- [30:21.770] and parents too to make a choice.
+- [30:23.740] The President: That's great. That's really great.
+- [30:25.450] How about you?
+- [30:26.790] Unidentified: Thank you, Mr. President.
+- [30:28.080] The President: That's wonderful red hair.
+- [30:30.640] Unidentified: I tried to match here.
+- [30:32.100] I'm the aforementioned one from Butler, Pennsylvania.
+- [30:34.030] The President: Yes.
+- [30:35.290] Unidentified: So you know that place very well.
+- [30:36.640] The President: I do.
+- [30:37.910] Unidentified: And we still love you.
+- [30:39.120] The President: Thank you.
+- [30:40.350] Unidentified: But Mr. President, I was thinking last night
+- [30:42.220] when I was milking what I was going to say and I thought,
+- [30:44.730] "Well, this is such a monumental day in agriculture,
+- [30:48.200] not just dairy farmers, but for all of agriculture,
+- [30:50.720] because this helps me as a producer,
+- [30:53.180] helps the processors. It also helps these kids here."
+- [30:56.670] So it's good all around. This is perfect legislation,
+- [31:00.090] a great day for America is what this is.
+- [31:03.000] The President: Thank you very much.
+- [31:04.250] Beautifully said, and we appreciate it.
+- [31:06.190] And it is a great place that you come from.
+- [31:08.490] I love it. Please?
+- [31:09.860] Unidentified: Mr. President, thank you.
+- [31:11.080] It's an honor to be here.
+- [31:12.300] And I think this is about choices.
+- [31:17.210] This day has been a long time coming.
+- [31:18.900] We've been waiting on this for many years
+- [31:20.780] and it's great that we're able to provide choices
+- [31:24.270] now in schools with whole milk.
+- [31:26.290] Well, thank you for that and thank you
+- [31:28.200] for everything that you do for the dairy industry,
+- [31:32.610] that us dairy farmers produce valuable nutrients
+- [31:37.540] every day for consumers.
+- [31:40.330] The President: So you're going to need to produce more milk
+- [31:42.550] because you're not mixing it up with all sorts of things, right?
+- [31:44.880] Unidentified: That's right.
+- [31:46.090] The President: That's great.
+- [31:47.750] How much of an increase will that be?
+- [31:49.260] Do you have any idea?
+- [31:51.760] Unidentified: A lot more. Absolutely.
+- [31:53.880] The President: That's great.
+- [31:55.200] Boy, that's so good for the industry.
+- [31:56.650] Unidentified: Absolutely.
+- [31:57.880] The President: Hard to believe you had to wait so long.
+- [32:00.080] Unidentified: Mr. President,
+- [32:01.320] I'd like to thank you again for your support behind this,
+- [32:03.680] and the gentleman standing behind you.
+- [32:05.300] Like you said, we worked 15 years on it.
+- [32:08.120] I advocate for our industry a lot out in the community,
+- [32:10.630] and I know, I've been into high schools,
+- [32:12.520] I've been in middle schools where the students want milk.
+- [32:16.050] I did a taste test one time at a high school
+- [32:17.880] where we gave them whole milk versus the skim milk
+- [32:20.270] their school was giving, the kids love the whole milk.
+- [32:22.330] So just your support behind us,
+- [32:24.790] your support, getting it pushed through,
+- [32:26.760] I really appreciate what you've done
+- [32:28.760] and what the gentleman behind you were able to do.
+- [32:30.490] The President: We support the farmer.
+- [32:31.820] Unidentified: Yes, sir.
+- [32:33.110] The President: The farmer knows what's right better
+- [32:34.940] than anybody else. Bobby would tell you that.
+- [32:36.830] I mean, the farmer, they know what's right.
+- [32:38.630] Unidentified: Yes, sir.
+- [32:39.860] The President: Especially when it comes to things like this.
+- [32:42.030] Sorry it took so long. It was 15 years,
+- [32:44.810] I can't believe it.
+- [32:46.080] Howard, would you like to say something?
+- [32:48.240] Unidentified: What's amazing is that the president
+- [32:51.230] has the leadership and common sense
+- [32:54.380] to drive the right outcomes.
+- [32:56.190] Why should kids not be given the choice to drink whole milk?
+- [33:00.400] How is that even possible? So it's amazing to work for you,
+- [33:04.050] because you just own common sense
+- [33:06.230] and you're driving it through our economy,
+- [33:08.720] you're driving it through the farmers.
+- [33:10.180] We've got great leadership in Secretary Rollins
+- [33:12.600] and Secretary Kennedy and it's great fun to be here.
+- [33:15.690] Because I mean, think of today. I mean, how much fun is this?
+- [33:18.890] It's just common sense. Come on.
+- [33:20.700] The President: Like the Oval Office.
+- [33:23.260] Even the media, they come here and they're here a lot,
+- [33:26.740] but it's sort of like you're in the Oval Office.
+- [33:29.610] It's the whole ball game.
+- [33:31.190] It all begins and ends and then re-begins here.
+- [33:34.710] There is no place like it, right?
+- [33:36.390] Is that exciting? There's no place like --
+- [33:38.500] If you love the country especially,
+- [33:39.900] there's no place like it.
+- [33:41.470] So thank you. Thank you, Howard, very much.
+- [33:43.080] So let's sign it. Should I sign it?
+- [33:44.430] Unidentified: Yes, sir.
+- [33:45.630] The President: Your last chance.
+- [33:46.840] We could go another 15 years. Let's do it. Do it?
+- [33:50.710] Unidentified: You go stand right there by the president.
+- [33:52.270] The President: Come on right over here.
+- [33:55.940] We have to do a good one here. This is right?
+- [33:57.640] Representative GT Thompson: Yes, sir.
+- [33:58.850] The President: This is an important one for me.
+- [34:13.190] Okay. Not bad. Not bad.
+- [34:18.360] (inaudible)
+- [34:30.470] so you can never make a mistake. They made a lot of mistakes.
+- [34:34.530] Anyway, here it is. Thank you.
+- [34:41.200] Thank you all very much. You have it? Thank you all.
+- [34:44.800] I'm going to start drinking a lot of milk.
+- [34:48.600] Okay. Thank you very much. That's great.
+- [34:50.390] Yeah, hold that on for a little while.
+- [34:51.870] You'll give it to us later, okay?
+- [34:56.920] So any questions on what we just signed, please?
+- [35:01.160] Yeah, let's talk about this real quick.
+- [35:03.030] The Press: I've got one with milk.
+- [35:04.240] Coming from a family,
+- [35:05.440] my dad was a dairy engineer from Texas Tech University.
+- [35:07.670] The President: You're a big, strong guy.
+- [35:08.890] The Press: There it is.
+- [35:10.090] Drink lots of whole milk in my day.
+- [35:11.930] Would you look at this as being a shift
+- [35:14.020] from what the industry kind of went
+- [35:16.190] woke with the oak milk and the almond milk?
+- [35:18.700] The President: It's amazing.
+- [35:19.940] The Press: It's going exactly the opposite direction.
+- [35:21.420] Let's talk about the impact of dairy farmers
+- [35:23.020] on this whole milk.
+- [35:24.220] The President: There are a lot of changes
+- [35:25.660] being made in the last year, as you know.
+- [35:27.940] We're still a little bit less than a year.
+- [35:29.880] I think there has probably never been a year like this
+- [35:32.850] for a president or for a country.
+- [35:34.430] We have tremendous success.
+- [35:36.390] We've had success with everything we've done
+- [35:38.900] and the economy now is coming back
+- [35:40.660] and here's an example of farmers
+- [35:42.270] that are going to be working harder to produce,
+- [35:43.810] because it's not going to be watered down by something.
+- [35:46.710] And it's great to see it.
+- [35:48.040] And if you'd like a zip of that, I'd give it to you.
+- [35:50.150] It has only been here for a few minutes before we started.
+- [35:54.470] It's not five days. Five days and open, right?
+- [36:00.020] It's not. But it's an honor. What we've done in the country
+- [36:05.800] in the last year, it's incredible.
+- [36:07.350] All of us together, it's incredible.
+- [36:09.640] So I appreciate the question.
+- [36:11.570] The Press: Mr. President, on Iran,
+- [36:12.770] you said that the killing has stopped.
+- [36:14.580] Who told you that the killings have stopped
+- [36:17.100] The President: We have been informed
+- [36:18.370] by very important sources on the other side,
+- [36:21.060] and they've said the killing has stopped,
+- [36:22.710] and the executions won't take place.
+- [36:24.840] There were supposed to be a lot of executions today
+- [36:27.620] and that the executions won't take place.
+- [36:29.790] And we're going to find out.
+- [36:31.050] I mean, I'll find out after this, you'll find out.
+- [36:33.630] But we've been told on good authority, and I hope it's true.
+- [36:38.010] Who knows? Who knows? Crazy world.
+- [36:39.890] The Press: We've seen the body bags.
+- [36:41.140] So how do you trust them?
+- [36:42.410] The President: No, no, you've seen that over
+- [36:43.610] the last few days
+- [36:44.850] and they said people were shooting at them with guns
+- [36:47.740] and they were shooting back. And it's one of those things.
+- [36:50.680] But they told me that there'll be no executions.
+- [36:55.000] And so, I hope that's true.
+- [36:56.370] The Press: Does this mean military action
+- [36:58.430] is now off the table against Iran?
+- [36:59.810] The President: We're going to watch it
+- [37:01.050] and see what the process is,
+- [37:02.800] but we were given a very good statement by people
+- [37:06.580] that are aware of what's going on.
+- [37:10.520] When they say no executions,
+- [37:14.000] everyone is talking about a lot of executions
+- [37:16.230] were taking place today. We were just told no executions.
+- [37:19.150] I hope that's true. That's a big thing. Yes, ma'am?
+- [37:21.110] The Press: The Prime Minister of Greenland,
+- [37:22.470] she said a while ago in a press conference
+- [37:24.970] in an embassy of Denmark that she made very clear
+- [37:27.860] in the meeting that happened here in the White House,
+- [37:30.130] what are their limits?
+- [37:31.840] She also said that it was a very respectful meeting.
+- [37:34.970] Are those limits going to be respected?
+- [37:37.810] The President: Well, we're going to see what happens
+- [37:39.190] with Greenland.
+- [37:40.420] We need Greenland for national security,
+- [37:42.080] so we're going to see what happens.
+- [37:43.740] They're going to brief me on the meeting
+- [37:45.300] right after this conference.
+- [37:46.700] In fact, the sooner I get you out,
+- [37:48.770] the faster I'm going to know exactly what happened.
+- [37:51.080] But we have a very good relationship with Denmark
+- [37:53.690] as you know. We'll see. But we're doing the golden dome.
+- [37:57.190] We're doing a lot of things and we really need it.
+- [37:59.960] If we don't go in,
+- [38:01.220] Russia's going to go in and China's going to go in.
+- [38:04.000] And there's not a thing that Denmark can do about it,
+- [38:06.660] but we can do everything about it.
+- [38:08.260] The Press: There's no marking what they can do there?
+- [38:09.820] The President: Well, we're going to see.
+- [38:11.030] I mean, look, we're going to see what happens,
+- [38:13.140] but we need it. You know, I'm not the first one.
+- [38:15.050] This was talked about by President Truman
+- [38:17.690] and 40 years before President Truman,
+- [38:20.070] they were talking about it.
+- [38:21.360] They've been talking about this for a hundred years.
+- [38:23.270] This is not anything so new.
+- [38:25.380] A lot of people don't realize that,
+- [38:26.820] but this was a hot subject,
+- [38:29.310] probably not as hot as it is now,
+- [38:30.940] but it was a hot subject for a long time.
+- [38:32.470] We need it for national security.
+- [38:34.180] And that includes for Europe.
+- [38:36.280] And I spoke with, as you know, Mark, the head of NATO,
+- [38:41.130] and he really wants to see something happen.
+- [38:43.290] It's very important.
+- [38:44.830] Very important for national security.
+- [38:47.880] The Press: It's being reported that Health and Human Services
+- [38:50.720] released frozen funds to Planned Parenthood.
+- [38:54.010] I'm wondering why this happened
+- [38:55.350] and why Planned Parenthood is receiving any federal funds.
+- [38:58.030] The President: I don't know anything about that.
+- [38:59.490] Bobby, do you know anything about that?
+- [39:00.840] Secretary Kennedy: What was the question?
+- [39:02.060] The Press: It's being reported that frozen funds
+- [39:04.830] were released to Planned Parenthood in December by AJS.
+- [39:08.620] I'm wondering why that happened.
+- [39:10.500] The President: I haven't heard --
+- [39:11.750] Secretary Kennedy: I have not heard of that.
+- [39:12.980] The President: I have not heard that.
+- [39:14.190] The Press: Mr. President, on NATO,
+- [39:16.520] right now it sounds like you are saying
+- [39:19.120] that you would potentially acquire Greenland by force.
+- [39:22.830] That would be a NATO country in the United States.
+- [39:24.660] The President: No, you're saying that.
+- [39:25.890] The Press: Are you saying that? Would you do that?
+- [39:27.090] The President: No, you're saying that.
+- [39:28.380] The Press: Would you acquire them by force right now?
+- [39:29.610] The President: I didn't say it.
+- [39:30.900] No, you're telling me that that's what I'm going to do.
+- [39:32.670] You don't know what I'm going to do.
+- [39:34.300] The Press: So what are the options?
+- [39:35.500] The President: Your network doesn't know either.
+- [39:37.260] The Press: The Danish foreign minister said
+- [39:39.020] that there's still fundamental differences
+- [39:40.890] after the meeting with Rubio and with the vice president.
+- [39:44.150] Are you willing to leave the NATO alliance
+- [39:47.600] in order to get what you want with Greenland?
+- [39:49.860] What are the options right now?
+- [39:51.090] The President: Well, I wouldn't be telling you
+- [39:52.360] what I'm willing to do, certainly.
+- [39:53.710] I'm not going to give up options,
+- [39:54.930] but it's very important.
+- [39:56.140] Greenland's very important for the national security,
+- [39:57.970] including of Denmark. And the problem is,
+- [40:00.810] there's not a thing that Denmark can do about it
+- [40:02.990] if Russia or China wants to occupy Greenland,
+- [40:05.470] but there's everything we can do.
+- [40:07.090] You found that out last week with Venezuela.
+- [40:10.340] There's everything we can do about things such as that,
+- [40:13.520] not going to happen.
+- [40:16.110] I can't rely on Denmark being able to fend themselves off.
+- [40:20.140] They were talking about they put an extra dog --
+- [40:22.120] And they were serious about this.
+- [40:23.410] They put an extra dog sled there last month.
+- [40:27.640] They added a second dog sled.
+- [40:28.970] That's not going to do the trick.
+- [40:30.350] The Press: Denmark fought alongside the United States
+- [40:32.180] in both Afghanistan.
+- [40:33.380] The President: Thank you for telling me that.
+- [40:34.590] I appreciate it.
+- [40:35.820] I have a very good relationship with Denmark
+- [40:38.230] and we'll see how it all works out.
+- [40:39.970] I think something will work out.
+- [40:41.530] The Press: Regarding Venezuela.
+- [40:43.300] Cabello, the de facto number two in Venezuela right now,
+- [40:46.510] he seemed pretty reluctant to work with the US.
+- [40:49.490] And obviously he's in -- The President: With us?
+- [40:51.100] They just gave us 50 million barrels of oil.
+- [40:54.680] The Press: The number two. The Venezuela security team.
+- [40:56.770] The President: I know the number one.
+- [40:58.050] We just had a great conversation today
+- [41:00.720] and she's a terrific person.
+- [41:02.160] I mean, she's somebody that we've worked with very well.
+- [41:04.560] Marco Rubio is dealing with her. I dealt with her this morning.
+- [41:07.510] We had a call, a long call. We discussed a lot of things
+- [41:11.320] and I think we're getting along very well with Venezuela.
+- [41:13.710] The Press: You created a new assistant attorney
+- [41:16.200] general position dedicated to rooting out fraud.
+- [41:19.270] The President: Yeah, he's fantastic.
+- [41:20.540] The person is fantastic.
+- [41:21.760] The Press: Who is it?
+- [41:23.260] The President: It's a he.
+- [41:24.670] I will tell you maybe within minutes.
+- [41:27.030] I mean, I don't know if it's appropriate to say yet
+- [41:29.580] because we're going through a process,
+- [41:30.870] but we have chosen a person who's very tough,
+- [41:34.170] very smart, very fair.
+- [41:35.460] The Press: You speak yesterday in Michigan
+- [41:38.410] about how you've recalibrated the American economy
+- [41:40.700] to work for workers, US auto factories.
+- [41:43.680] We've seen core inflations completely tamed.
+- [41:45.570] You lowered the trade deficits, the lowest amount since 2009.
+- [41:48.670] American exports are growing, but we're also waiting
+- [41:51.510] on the Supreme Court case with the tariffs.
+- [41:53.720] Given the success that you've had in the first 12 months,
+- [41:56.620] what is at stake in this case?
+- [41:58.130] The President: It's a little bit like whole milk.
+- [41:59.640] I can't believe we even have a case.
+- [42:01.220] This was a case started by very China centric people
+- [42:06.520] and also anti-American people, frankly.
+- [42:09.670] People that don't want us to do well.
+- [42:12.780] Tariffs have helped us stop eight wars.
+- [42:15.960] They've helped us get the best trade numbers we've ever had.
+- [42:18.770] They've helped us get $18 trillion
+- [42:20.880] brought into the country. And maybe above all else,
+- [42:24.090] they've given us tremendous national security,
+- [42:26.240] just the threat of tariffs. You saw that just yesterday
+- [42:29.750] when I put tariffs on a certain country.
+- [42:32.120] We won't talk about that country,
+- [42:33.570] but you know who it is.
+- [42:35.190] Based on the fact that if you do business with that country,
+- [42:38.740] it's going to make them --
+- [42:41.230] It's going to bring them to the table a lot faster.
+- [42:43.270] So we have made hundreds of billions of dollars
+- [42:47.390] with tariffs. We have very little inflation.
+- [42:49.640] Think of it.
+- [42:50.960] Inflation's gone down and productivity,
+- [42:54.010] everything has gone up where we've never taken in money
+- [42:57.020] like we have.
+- [42:58.240] We've never had anywhere near $18 trillion
+- [43:01.780] invested on our country, neither has any other country.
+- [43:04.010] It's the biggest number by maybe five times.
+- [43:07.960] Five times, not 5 percent, five times.
+- [43:10.350] Nobody's ever seen numbers like this.
+- [43:12.790] We have plants going up.
+- [43:14.150] You mentioned, I was in Michigan yesterday.
+- [43:15.890] I was at the Ford plant where they make the Ford 150.
+- [43:18.670] It's one of the original plants.
+- [43:20.090] It's from before World War I, it's a giant plant.
+- [43:24.450] That plant was probably going to be closed.
+- [43:26.740] And two years ago, they were doing very poorly.
+- [43:31.260] And now they just announced yesterday
+- [43:32.800] that they're going to go 24 hours around the clock,
+- [43:36.180] three shifts, which they rarely do.
+- [43:38.960] That's Ford and Ford's
+- [43:40.210] having the best numbers they've ever had.
+- [43:41.740] General Motors is having the best numbers they've ever had.
+- [43:44.420] Stellantis, which hasn't been here,
+- [43:46.810] is now investing tens of billions of dollars
+- [43:49.770] on building in the country.
+- [43:51.530] We're building auto plants all over the country.
+- [43:54.250] We're building AI all over the country.
+- [43:56.060] We're leading China by a lot,
+- [43:57.890] and a lot of it has to do with tariffs.
+- [44:01.510] That would be a very disappointing decision.
+- [44:04.570] And especially since the people that are fighting me
+- [44:07.260] are people that want China to do well.
+- [44:10.380] And we're doing great against China.
+- [44:12.130] We're doing great against everybody.
+- [44:14.310] We're the hottest country anywhere in the world,
+- [44:16.340] as I say often.
+- [44:17.840] We're right now the hottest country anywhere in the world.
+- [44:20.520] And a year and a half ago, we were a dead country.
+- [44:23.770] Thank you very much, everybody.

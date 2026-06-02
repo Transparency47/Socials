@@ -1,0 +1,217 @@
+<!-- source: https://www.youtube.com/watch?v=J12mQI85Ma8 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: J12mQI85Ma8 -->
+<!-- date_published: 2025-06-25T08:44:55+00:00 -->
+<!-- date_accessed: 2026-06-02T02:48:05.932794+00:00 -->
+
+# Transcript: President Trump Participates in an Official Greeting and Pull-Aside with the NATO Secretary General
+
+- [44:22.500] Secretary Rubio: (no audio)
+- [44:48.830] statement of the IAEA, Mr. Grossi.
+- [44:51.090] You know what he said? He said there was Iran the way
+- [44:53.410] it looked the day before the attack
+- [44:55.560] and what their nuclear program looks like now,
+- [44:57.510] two very different things.
+- [44:58.960] They are way behind where they were just seven days ago.
+- [45:01.750] Now, anything in the world can be rebuilt,
+- [45:04.110] but now we know where it is and if they try to rebuild it,
+- [45:06.450] we'll have options there as well.
+- [45:07.770] But all this leaker stuff --
+- [45:09.070] These leakers are professional stabbers.
+- [45:11.350] That's what they are.
+- [45:12.550] They go out and they read this stuff
+- [45:14.170] and then they tell you what it says against the law,
+- [45:17.440] but they characterize it for you in a way
+- [45:19.540] that's absolutely false.
+- [45:21.150] There's no way Iran comes to the table
+- [45:22.830] if somehow nothing had happened.
+- [45:24.040] This was complete and total obliteration.
+- [45:27.000] They're in bad shape. They are way behind today
+- [45:29.070] compared to where they were just seven days ago
+- [45:30.750] because of what the president did.
+- [45:31.970] Secretary Rutte: Marco, can I just
+- [45:33.620] alert you to one other aspect?
+- [45:34.910] So the great thing is you took out
+- [45:36.880] the nuclear capability of Iran, this was crucial.
+- [45:39.550] You did it in a way which is extremely impressive,
+- [45:43.020] but the signal sends to the rest of the world
+- [45:44.830] that this president,
+- [45:46.220] when it comes to it, yes, he's man of peace,
+- [45:48.040] but if necessary he's willing to use strength,
+- [45:51.760] the enormous strength of the American military.
+- [45:54.410] So I think that signal to the rest of the world,
+- [45:56.920] this is far beyond Iran, is extremely important.
+- [46:00.090] So let me also point out to that aspect of what happens.
+- [46:04.260] President Trump: Iran went down to the site afterwards.
+- [46:07.700] They said it's so devastated and they settled
+- [46:10.510] when they saw what we did to it.
+- [46:12.660] And frankly, if we didn't do that,
+- [46:14.460] they would've had a lot of ammunition to keep going.
+- [46:16.820] They wouldn't have settled.
+- [46:18.570] Somebody brought that up and two Iranians went down to see it
+- [46:21.800] and they called back and they said,
+- [46:23.170] "This place is gone."
+- [46:24.790] So it's just fake news by CNN, which has got no ratings.
+- [46:28.220] It's a failed network.
+- [46:29.520] Anybody here from CNN by the way?
+- [46:31.680] Because you're really disgraceful network.
+- [46:34.570] MSNBC I think is actually worse. But they're all pretty bad.
+- [46:37.810] But yours is good, Katie. I'll tell you. You know what?
+- [46:41.060] Marco reminded me that he did such a nice job there.
+- [46:44.150] It was nine years ago. I had to debate this guy.
+- [46:46.850] He was not easy. I think he even got better.
+- [46:51.370] But when you were into your little thing,
+- [46:53.260] I said, "This is when I had to debate this guy."
+- [46:55.340] You think it's easy to debate him? It's not easy.
+- [46:58.260] The Press: How long do you think that the Iranian nuclear program
+- [47:00.640] has been put back by these strikes?
+- [47:03.210] Years? Totally -- What?
+- [47:05.210] President Trump: I think basically decades
+- [47:06.780] because I don't think they'll ever do it again.
+- [47:08.710] I just don't think they're going to do it.
+- [47:10.260] I think they're going to take their oil,
+- [47:12.440] they're going to have some missiles
+- [47:14.330] and they'll have some defense. I think they've had it.
+- [47:18.150] I mean, they just went through hell.
+- [47:19.650] I think they've had it.
+- [47:20.870] The last thing they want to do is enrich.
+- [47:23.880] They've been trying to do it -- By the way, it's hard to enrich.
+- [47:26.640] And when you look at a site like that, very, very hard to build.
+- [47:31.060] Very, very hard. Very expensive.
+- [47:32.790] They spent trillions of dollars trying to do this thing
+- [47:35.840] and they didn't come up with it.
+- [47:37.900] And we're actually getting along with them very well right now.
+- [47:41.100] But had we not succeeded with that hit --
+- [47:43.630] That hit ended the war. That hit ended the war.
+- [47:48.230] I don't want to use an example of Hiroshima.
+- [47:51.280] I don't want to use an example of Nagasaki,
+- [47:54.030] but that was essentially the same thing.
+- [47:56.290] That ended that war. This ended that with a war.
+- [47:59.110] If we didn't take that out, they'd be fighting right now.
+- [48:02.500] The Press: Mr. President, if the Iranians do rebuild,
+- [48:07.490] would the United States strike again?
+- [48:08.830] And I have also a question about Russia.
+- [48:10.210] President Trump: Sure, but we're not
+- [48:11.440] going to have to worry about that.
+- [48:13.130] It's gone for years. Years. It's very tough to rebuild
+- [48:16.610] because the whole thing has collapsed.
+- [48:18.710] In other words, inside it's all collapsed.
+- [48:21.740] Nobody can get in to see it because it's collapsed.
+- [48:24.040] You can't go in to see a room
+- [48:25.260] that has 10 million tons of rock in it.
+- [48:30.330] And the tunnels are totally collapsed.
+- [48:31.700] The Press: But if they rebuild.
+- [48:32.940] President Trump: Well, they've already looked
+- [48:34.150] at the tunnels that --
+- [48:35.370] This was an unbelievable hit by genius pilots
+- [48:39.350] and genius people in the military,
+- [48:41.530] and they're not being given credit for it
+- [48:43.260] because we have scum that's in this group --
+- [48:45.890] And not all of you are.
+- [48:47.170] You have some great reporters, but you have scum.
+- [48:50.020] CNN is scum. MSDNC is scum. The New York Times is scum.
+- [48:55.760] They're bad people. They're sick.
+- [48:57.720] And what they've done is they're trying
+- [48:59.670] to make this unbelievable victory into something less.
+- [49:03.090] Now, even they admit that it was hit very hard,
+- [49:07.360] but it wasn't hit hard, it was hit brutally
+- [49:09.940] and it knocked it out.
+- [49:11.280] The original word that I used, I guess it got us in trouble
+- [49:14.760] because it's a strong word, it was obliteration.
+- [49:18.270] And you'll see that and it's going to come out.
+- [49:21.180] Israel is doing a report on it now, I understand,
+- [49:25.530] and I was told that they said it was total obliteration.
+- [49:28.580] They have guys that go in there after the hit
+- [49:33.090] and they say it was total obliteration.
+- [49:34.960] And I don't want it for me. I want it for the pilots.
+- [49:37.010] I want it for the military. They did such a good job.
+- [49:39.150] If you were in the situation room with me with the generals
+- [49:42.450] and all of the people that did such a good job,
+- [49:45.250] and then they get demeaned by these idiots at CNN
+- [49:47.890] who can't get ratings -- The place is dying.
+- [49:49.920] Nobody wants to even waste their time going on their shows.
+- [49:53.010] So they form with the New York Times, who's dying also.
+- [49:56.370] Without Trump, you wouldn't have a New York Times.
+- [49:59.090] The Press: And then just changing gears to your meeting
+- [50:01.210] with Zelenskyy later today. Can you give us any preview
+- [50:05.000] of what the two of you might be discussing?
+- [50:06.810] President Trump: No. Well, we'll discuss the obvious.
+- [50:08.600] We'll discuss his difficulties.
+- [50:10.650] He's got a little difficulty, Zelenskyy.
+- [50:14.850] He's a nice guy. I mean, I'm going to meet him today.
+- [50:16.670] I don't know. I assume we're going to be discussing Ukraine.
+- [50:19.160] I mean, it seems like the most likely subject.
+- [50:21.690] The Press: Any restart to the talks there
+- [50:23.330] or anything that you might do?
+- [50:24.590] President Trump: Well, we're going to see,
+- [50:26.280] I mean I've spoken to Putin a lot
+- [50:28.030] and he actually was very nice.
+- [50:29.500] He volunteered help on, as you know, on Iran.
+- [50:33.520] I said, "No, I don't need help on Iran. I need help on Russia."
+- [50:37.040] I said, "Do me a favor, help us on Russia, not Iran."
+- [50:41.360] But he was very nice. We're going to talk about that.
+- [50:45.150] We're going to talk. I think progress is being made.
+- [50:47.430] I think great progress is being made on Gaza.
+- [50:50.390] I think because of this attack that we made,
+- [50:53.570] I think we're going to have some very good news.
+- [50:55.340] I was talking to Steve Witkoff, who by the way, is terrific
+- [50:57.980] and who knows more about this subject than anybody,
+- [51:01.030] the subject of what we were just talking about.
+- [51:02.820] He was on last night with Jesse and with Laura and with Sean,
+- [51:10.860] and boy, Susie has a great take on it.
+- [51:14.580] He just explains it so easily. He's really very knowledgeable.
+- [51:17.560] But he did tell me that Gaza is very close.
+- [51:24.300] The Press: One follow up on Iran.
+- [51:25.580] Both you and Secretary Rubio and Hegseth mentioned the leak,
+- [51:29.350] but can you clarify,
+- [51:30.590] is the intelligence correct or is the intelligence wrong?
+- [51:33.270] President Trump: Well, the intelligence
+- [51:34.550] was very inconclusive.
+- [51:36.730] The intelligence says we don't know.
+- [51:38.290] It could have been very severe.
+- [51:41.050] That's what the intelligence says.
+- [51:43.310] So I guess that's correct,
+- [51:45.930] but I think we can take the we don't know.
+- [51:47.800] It was very severe. It was obliteration.
+- [51:52.290] And you think that a media outlet would say,
+- [51:55.460] "Isn't that a great thing?"
+- [51:56.670] I mean, more importantly for the military,
+- [51:59.790] you take their guts out,
+- [52:01.270] you take their absolute guts out.
+- [52:02.710] They had a tremendous attack. It was a complete obliteration.
+- [52:06.550] The other team, the other group, Iran, said, "Let's stop this."
+- [52:13.790] And you know what? Israel said it too.
+- [52:15.990] Very smart. They fought like hell
+- [52:18.320] and then they said, "Let's stop,"
+- [52:20.070] and they're going to build themselves,
+- [52:21.340] and I really see it as sticking --
+- [52:23.290] I mean, we may do papers on it, Marco.
+- [52:25.140] Maybe we're going to do papers.
+- [52:26.530] I don't even know if you need them.
+- [52:28.100] They're not going to be fighting each other.
+- [52:29.470] They've had it. They've had a big fight.
+- [52:31.940] Like two kids at a schoolyard, they fight like hell.
+- [52:34.450] You can't stop them.
+- [52:35.660] Let them fight for about two, three minutes.
+- [52:37.850] Then it's easy to stop them.
+- [52:39.100] Secretary Rutte: And then daddy has to sometimes
+- [52:40.730] do strong language to get them to stop.
+- [52:42.060] President Trump: Strong language.
+- [52:43.260] Every once in a while you have to use a certain word.
+- [52:45.010] Secretary Rutte: I think we have to join the other
+- [52:46.250] (inaudible) President Trump: Yes.
+- [52:47.460] We're going to join some other group.
+- [52:48.720] Yes, thank you. Katie, one other?
+- [52:49.920] The Press: One last question. Do you believe --
+- [52:51.920] President Trump: She's so good.
+- [52:53.680] The Press: Thank you, Mr. President.
+- [52:54.940] President Trump: She used to be very difficult. Go ahead.
+- [52:58.130] The Press: Do you believe that this strike
+- [52:59.390] on the Iranian nuclear program
+- [53:01.640] will lead to the release of the hostages in Gaza?
+- [53:05.160] President Trump: I think that it helped a little bit.
+- [53:06.720] It showed a lot of power. Yeah, I think it helped.
+- [53:09.520] But we're going to get -- Separately, even before this,
+- [53:12.760] we were very close to making a deal on Gaza.
+- [53:15.490] I think this helped, yes. Okay. Thank you, Katie.

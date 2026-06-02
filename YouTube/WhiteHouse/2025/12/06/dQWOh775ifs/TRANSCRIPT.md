@@ -1,0 +1,99 @@
+<!-- source: https://www.youtube.com/watch?v=dQWOh775ifs -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: dQWOh775ifs -->
+<!-- date_published: 2025-12-06T01:55:13+00:00 -->
+<!-- date_accessed: 2026-06-02T01:09:19.645078+00:00 -->
+
+# Transcript: President Trump and the First Lady Attend a Concert by Andrea Bocelli
+
+- [00:01.309] [music]
+- [00:19.199] This is a tremendous honor. We have one
+- [00:22.960] of the most talented men, one of the
+- [00:24.640] greatest voices ever with us tonight. In
+- [00:27.439] fact, I don't know how he could top it
+- [00:29.439] because Veronica was incredible wife and
+- [00:33.440] partner and everything else he could be.
+- [00:35.840] Veronica, thank you. He was so good
+- [00:38.000] today at the FIFA awards. We had the
+- [00:40.239] FIFA and uh it was award. It was an
+- [00:43.360] award for me, I can tell you. But it was
+- [00:45.200] a a draw and they say over a billion
+- [00:48.160] people were watching and there's no way
+- [00:49.840] you can beat tonight what you did today
+- [00:52.559] because that was one of the greatest
+- [00:54.000] opening to a an event I've ever seen and
+- [00:57.840] he was in rare form. So I assume the
+- [01:00.320] voice stayed with him all day long. But
+- [01:02.160] this was today at about 11:00 in the
+- [01:05.119] morning broadcast all over the world and
+- [01:07.280] what you did this morning was
+- [01:09.280] incredible. So thank you very much. And
+- [01:11.760] I said, "Listen, we're friends.
+- [01:14.015] [applause]
+- [01:14.720] A lot of you saw that."
+- [01:17.200] I said, "Andrea, we're friends." So,
+- [01:19.520] this is about four weeks ago. So, do me
+- [01:22.320] a favor. Could you come over and sing
+- [01:23.759] for me that night? And he said, "Yes." I
+- [01:25.680] said, "Oh, that's great news. And we
+- [01:28.080] have almost all of the Republican
+- [01:30.479] senators, and we have a lot of very
+- [01:32.960] distinguished uh House members, mostly
+- [01:35.520] Republicans, to the best of my
+- [01:37.040] knowledge, all Republicans.
+- [01:39.280] And we have our cabinet. And I have a
+- [01:42.240] lot of enemies because everybody wanted
+- [01:43.920] to be here tonight. Everybody. And then
+- [01:46.640] I said to my beautiful wife who did a
+- [01:48.720] great job with the Christmas trees and
+- [01:50.560] everything. I said [applause]
+- [01:55.759] I said, "Honey, we need more room. Is
+- [01:57.759] there possibility we could take the
+- [01:59.360] trees out?" She was not happy about
+- [02:01.680] that. So, we left the trees. We left the
+- [02:04.399] trees. But, uh, we could have had a few
+- [02:06.880] more seats, but that's okay. Uh, but I
+- [02:09.440] do want to congratulate you. You've
+- [02:10.959] gotten rave reviews for the Christmas
+- [02:13.520] dinner, really decorations and ornaments
+- [02:15.920] and everything else. And it's never
+- [02:17.200] looked more beautiful. And I appreciate
+- [02:18.480] it, Melania. And I appreciate the two of
+- [02:20.800] you being with us tonight. And we're
+- [02:22.480] going to hear a voice, the voice of an
+- [02:24.160] angel. It's a voice like very few people
+- [02:26.400] have ever been able to hit achieve. And
+- [02:29.440] I've had a lot of great friends. One of
+- [02:31.120] your great friends was Luchiano
+- [02:32.879] Pavarati. And as you know, he was a
+- [02:34.480] great friend of mine. And between the
+- [02:36.879] two of these men, I don't know. It's a
+- [02:38.480] flip. It's a flip. Very different.
+- [02:40.560] There's a sweetness about yours. There's
+- [02:42.800] a power about his. And when you put them
+- [02:45.040] all together, let's call it a tie. Let's
+- [02:47.840] call it a tie. But he was something very
+- [02:50.080] special. Great friend of both of us. So,
+- [02:52.080] I just want to uh thank everybody here
+- [02:54.720] for the great job that you've done.
+- [02:56.319] We're the hottest I said it this
+- [02:57.680] morning. Uh, a year ago we were a dead
+- [03:02.800] country and now we're the hottest
+- [03:05.040] country anywhere in the world. And
+- [03:06.560] that's said by every single leader in
+- [03:08.400] the world. And I said it this morning
+- [03:09.920] the same thing. And we had a lot of the
+- [03:12.159] world's leaders there at FIFA. And
+- [03:14.640] nobody stood up and objected. Nobody
+- [03:16.480] smiled. Nobody rolled their eyes with
+- [03:18.640] the hottest country anywhere in the
+- [03:20.480] world. And I just want to thank you all
+- [03:22.720] for being here. And Andrea, you just go
+- [03:24.879] have a good time. I hated to impose, but
+- [03:27.280] he was here a month ago. I just said,
+- [03:29.280] "Come on, would you do it?" He said,
+- [03:30.959] "Yes." In a weak moment, he said yes.
+- [03:34.000] And here he is. And I appreciate it very
+- [03:36.799] much. A great honor. Thank you. Enjoy
+- [03:38.560] it, everybody. Thank you very much.

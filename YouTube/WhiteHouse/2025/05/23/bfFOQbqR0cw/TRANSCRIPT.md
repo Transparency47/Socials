@@ -1,0 +1,1856 @@
+<!-- source: https://www.youtube.com/watch?v=bfFOQbqR0cw -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: bfFOQbqR0cw -->
+<!-- date_published: 2025-05-23T16:43:17+00:00 -->
+<!-- date_accessed: 2026-06-02T02:49:25.152669+00:00 -->
+
+# Transcript: Vice President JD Vance Addresses the Naval Academy’s Class of 2025
+
+- [00:12.900] Announcer: Ladies and gentlemen, the Honorable J.D. Vance,
+- [00:15.460] Vice President of the United States of America,
+- [00:18.250] accompanied by Vice Admiral Yvette M. Davids,
+- [00:20.980] United States Navy, the Superintendent
+- [00:23.280] of the United State's Naval Academy.
+- [00:27.460] ♪ (Patriotic Music) ♪
+- [00:58.435] (Intermittent gun firing)
+- [02:43.910] Announcer: Ladies and gentlemen, the Blue Angels,
+- [02:47.850] the Navy's precision flight demonstration squadron
+- [02:52.280] will be approaching momentarily from the south behind us
+- [02:56.110] in a salute to the class of 2025.
+- [03:26.920] (cheering and applause)
+- [03:55.710] Ladies and gentlemen, we invite all of our guests
+- [03:58.360] to remain standing for our national anthem,
+- [04:00.430] sung by Midshipman First Class Quinn Gonzalez,
+- [04:03.670] and then the invocation by Captain Maurice Buford,
+- [04:06.050] Chaplain Corps, United States Navy.
+- [04:15.370] ♪ (Star Spangled Banner) ♪
+- [05:31.885] (applause)
+- [05:55.900] Captain Maurice Buford: Let us pray.
+- [05:59.430] Most gracious and triumphant God.
+- [06:02.650] We come to announce to the world
+- [06:04.560] that these warriors are ready to fight tonight.
+- [06:08.560] For the record reflects they have the moral clarity
+- [06:11.070] for the fog of war,
+- [06:12.930] the mental agility to outwit the opposition,
+- [06:16.630] and more importantly, the spiritual readiness
+- [06:18.550] to say on behalf of we the people,
+- [06:21.010] of the people and by the people that the best is yet to come.
+- [06:26.210] So would you stretch forth your hand and stir
+- [06:28.090] up our faith as a people.
+- [06:30.120] For only then will we know that all things are possible
+- [06:33.640] to those that dare to believe.
+- [06:36.030] Now receive all of your glory, your power,
+- [06:39.450] and your honor forever. Amen.
+- [06:43.040] (applause)
+- [06:46.190] Announcer: Please be seated. Ladies and gentlemen,
+- [06:51.030] the 65th Superintendent of the United States Naval Academy,
+- [06:54.470] Vice Admiral Yvette M. Davids.
+- [06:57.900] (applause)
+- [07:05.530] Vice Admiral Davids: Good morning, 2025.
+- [07:10.730] What a glorious day it is.
+- [07:12.290] Welcome to the graduation and commissioning
+- [07:14.240] for the great class of 2025.
+- [07:17.980] (applause)
+- [07:24.100] There should be no question about the significance of today.
+- [07:27.140] We have the privilege of hosting our Vice President,
+- [07:29.610] the Honorable J.D. Vance,
+- [07:31.210] the Secretary of the Navy, Secretary Phelan,
+- [07:34.690] the Commandant of the Marine Corps, General Smith,
+- [07:37.390] and the Acting Chief of Naval Operations, Admiral Kilby.
+- [07:41.100] Also joining us today is Senator Sullivan
+- [07:43.590] from the great state of Alaska, a former Marine,
+- [07:46.480] and the Chairman of the Naval Academy Board of Visitors.
+- [07:49.660] And esteemed members of the board.
+- [07:51.690] Congressman Jake Elzie of Texas,
+- [07:53.560] a proud member of the class of 92.
+- [07:57.890] And former fighter pilot and Congressman Derek Van Orden
+- [08:01.350] of Wisconsin, retired Navy SEAL.
+- [08:03.950] And Congressman Rob Bresnum of Pennsylvania
+- [08:06.620] is also with us today. Thank you for joining us
+- [08:09.890] as we celebrate the class of 2025.
+- [08:12.070] I'm honored you could be with us, today.
+- [08:14.910] Class of 2025, this week has been a whirlwind for you.
+- [08:18.930] So please allow yourself a brief moment to take it all in.
+- [08:22.800] Look around, go ahead, at your classmates next to you.
+- [08:26.230] Now up at the stands, find your family
+- [08:28.360] and friends and sponsor families
+- [08:29.950] and loved ones, give them a wave.
+- [08:32.780] (cheers)
+- [08:41.740] To all of the parents, grandparents, guardians,
+- [08:44.670] and mentors out in the crowd,
+- [08:47.070] I want to thank you for instilling the values
+- [08:49.250] that attracted your Ms. Shipman to want to serve
+- [08:52.120] and to live a life of consequence.
+- [08:53.870] We are forever in your debt.
+- [08:56.320] And thank you to our amazing and incredible,
+- [08:58.460] dedicated faculty, staff, coaches, and sponsor families
+- [09:02.120] who contributed to this class's development
+- [09:04.640] into officers of character
+- [09:06.090] dedicated to the profession of arms.
+- [09:08.860] So 2025, to those who have challenged you
+- [09:11.310] and pushed you to achieve greater things
+- [09:12.880] than you thought possible,
+- [09:14.620] to those have supported you and mentored you,
+- [09:17.410] please join me in giving them a heartfelt round of applause.
+- [09:22.310] (applause)
+- [09:29.550] Thank you to all who have worked so diligently
+- [09:31.940] to set up this beautiful ceremony
+- [09:33.510] to make this commissioning week so special.
+- [09:35.560] We appreciate you a special welcome
+- [09:38.610] to the members of the class of 1975.
+- [09:43.590] 2025's link in the chain.
+- [09:46.850] 50 years ago, they graduated from our academy,
+- [09:49.300] and today they represent that 50 year link
+- [09:51.910] in shared heritage with the class of 2025.
+- [09:55.040] Thank you class of 75 for being so active
+- [09:57.820] in the lives of these men shipmen since I-Day,
+- [10:00.470] inspiring them with wisdom, insight, and legacy.
+- [10:04.670] Now 2025, I again ask that you look around,
+- [10:07.400] but this time, look at the exquisite
+- [10:09.580] Navy Marine Corps Memorial Stadium you are in.
+- [10:12.890] Around the stadium, you will find the names
+- [10:14.550] of several U.S. Navy battles,
+- [10:17.190] engagements, and pivotal moments in our history.
+- [10:20.140] These names represent the Navy and Marine Corps' legacy
+- [10:22.860] from 1775 to 1845 to today.
+- [10:26.770] Each and every one of you is now an integral part of that legacy.
+- [10:30.890] So 25, look at these names,
+- [10:32.770] and now I want you each to pick one.
+- [10:34.970] One name that you can see,
+- [10:36.200] and I want to you remember that name,
+- [10:38.130] dedicate that to memory.
+- [10:40.250] That name, it represents more than just a battle,
+- [10:42.850] more than just naval tactics and strategy or historical facts.
+- [10:46.860] The name you chose represents hundreds, thousands,
+- [10:50.010] or even hundreds of thousands of Americans, sailors,
+- [10:53.250] and Marines, naval officers who were once just like you,
+- [10:56.960] who rose to answer the call to service,
+- [10:58.970] who rose the challenge of their age
+- [11:01.570] and chose to risk all in the service of others.
+- [11:04.930] So 2025, while this stadium is a physical symbol
+- [11:08.580] and memorial to our Navy and our Marine Corps,
+- [11:11.700] always remember that you are the living legacy.
+- [11:14.730] You are the young people of our age
+- [11:17.160] who have chosen a life of service.
+- [11:19.510] Remember that name,
+- [11:20.750] and remember that you are assuming a rich heritage,
+- [11:23.490] a great honor, and a sacred obligation.
+- [11:27.210] But you have been preparing for this day
+- [11:28.830] and the assumption of those incredible responsibilities
+- [11:31.060] for the past 1,423 days since I-Day.
+- [11:36.130] Although this adventure is coming to a close,
+- [11:38.110] you are about to embark on many more.
+- [11:40.920] You are headed around the globe to places like Quantico,
+- [11:43.700] Pensacola, San Diego, Charleston, Norfolk,
+- [11:47.710] to Sassebo, Rhoda, and Hawaii,
+- [11:49.470] and to our international classmates
+- [11:51.090] who are soon to head home.
+- [11:52.520] A special congratulations to you.
+- [11:54.660] You each have an incredible future awaiting you.
+- [11:57.490] But know, Annapolis will always be here for you,
+- [12:00.720] and the Naval Academy will always your home.
+- [12:03.770] And this moment right now, surrounded by your classmates
+- [12:07.320] and the legacy of those before you,
+- [12:08.980] this moment will be one of those that you will never forget.
+- [12:12.730] It will join other fond memories of crawling through mud
+- [12:15.230] and over obstacles at sea trials,
+- [12:17.780] bearing each other's weight as a team at Herndon twice,
+- [12:21.880] and swimming side by side at the first ever Shell Back ceremony.
+- [12:26.050] It will joined memories of gloriously beating Army
+- [12:29.050] at every opportunity.
+- [12:31.170] (applause)
+- [12:34.890] Of morning workouts with classmates
+- [12:36.890] before the sun has risen, the intensity of finals weeks,
+- [12:40.660] of incredible summer trainees across the globe
+- [12:42.960] that helped you find your operational calling,
+- [12:45.710] to your exceptional academic research capstone projects,
+- [12:49.610] and to the world-class musical and theatrical performances
+- [12:52.350] that showcase immense talent.
+- [12:54.880] And all of those shared experiences culminated today
+- [12:58.140] in your commissioning.
+- [12:59.570] And while today is the end of one chapter,
+- [13:01.410] it's the beginning of your careers as Navy
+- [13:03.270] and Marine Corps officers.
+- [13:05.280] On I-Day, you represented different corners of our nation
+- [13:07.850] and globe with different life circumstances and experiences,
+- [13:11.340] but now, at Commissioning,
+- [13:12.940] you are a proud class of ethical warfighters
+- [13:16.190] who better understand the sacred oath
+- [13:18.330] you first took four years ago and will soon take again today.
+- [13:22.900] While we can never know with certainty
+- [13:24.550] what the future will hold for you or for our country,
+- [13:27.530] we do know that you are assuming a vital role.
+- [13:30.920] Your sacred obligation to our nation is to be prepared.
+- [13:35.330] And to make sure that you and those that you lead
+- [13:37.850] are ready to both preserve peace
+- [13:41.210] and decisively win when called upon.
+- [13:44.740] Vice President Vance, Secretary Phelan,
+- [13:48.000] Commandant Smith, Acting CNO Kilby,
+- [13:50.920] and to all my shipmates out in the fleet,
+- [13:52.920] I want you to know the class of 2025 is strong.
+- [13:58.010] They are prepared and they are ready.
+- [14:02.010] (applause)
+- [14:11.180] 2025, your Naval Academy family is incredibly proud of you.
+- [14:15.710] I'm incredibly proud of you and I can't wait to see
+- [14:18.270] what you will accomplish in the years ahead.
+- [14:21.310] It is now my pleasure to introduce
+- [14:24.370] our 79th Secretary of the Navy,
+- [14:26.890] the Honorable John C. Phelan.
+- [14:30.190] (applause)
+- [14:40.070] The Honorable Phelan: I've been to many events,
+- [14:41.430] but this may be the coolest visual I've seen,
+- [14:43.840] so congratulations, really awesome.
+- [14:51.790] Mr. Vice President, Commandant,
+- [14:54.590] Acting Chief of Naval Operations,
+- [14:56.700] Superintendent, distinguished guests,
+- [14:59.530] faculty, staff, families,
+- [15:02.600] and most importantly, the Class of 2025, good morning.
+- [15:11.560] Admiral Davids, thank you for the kind introduction.
+- [15:14.540] Serving as the 79th Secretary of the Navy
+- [15:17.280] is a privilege of my lifetime.
+- [15:19.210] And I thank President Trump for his trust and confidence
+- [15:22.450] in appointing me to this role.
+- [15:24.550] And it's a particular honor to welcome
+- [15:27.130] and thank Vice President J.D. Vance for his presence today.
+- [15:31.070] As a Marine and combat veteran,
+- [15:33.760] Vice President Vance represents what makes this nation great.
+- [15:37.970] Courage forged through hardship.
+- [15:40.420] Service defined by humility and deep, unshakable belief
+- [15:44.730] that this country is worth fighting for.
+- [15:47.310] From the hills of Ohio to the battlefields of Iraq
+- [15:50.300] and now to the halls of leadership in the White House,
+- [15:53.150] Vice President Vance's journey reminds us
+- [15:55.790] that honor is not given, it is earned.
+- [15:58.630] Thank you, Mr. Vice President, for your example, your service,
+- [16:01.980] and your continued leadership.
+- [16:04.950] (applause)
+- [16:11.670] I'm truly honored and humbled
+- [16:13.470] to address the newest class of officers
+- [16:15.820] who will soon carry the weight of command
+- [16:17.990] and the hopes of our nation on their shoulders.
+- [16:20.590] You have earned the right to wear the uniform,
+- [16:23.040] not merely through the rigor of academics
+- [16:25.550] or the trials of Bancroft Hall,
+- [16:27.780] but through your daily commitment
+- [16:29.080] to something larger than yourselves.
+- [16:31.630] Today is a celebration,
+- [16:33.630] but it's also a moment of transition.
+- [16:36.110] In a matter of days, you will be entrusted with lives,
+- [16:39.400] with missions vital to our national security.
+- [16:42.100] And with the legacy of those who came before you.
+- [16:45.390] From today forward, you are more than midshipmen.
+- [16:48.360] You are leaders in the Navy and Marine Corps,
+- [16:50.970] officers in a force that stands guard over freedom
+- [16:54.370] on every ocean and every time zone,
+- [16:57.470] every hour of every day. That's no small thing.
+- [17:02.240] But let me be honest with you.
+- [17:03.990] What you're about to step into is not easy.
+- [17:06.880] The pace of change is accelerating.
+- [17:09.280] The threats are growing more sophisticated.
+- [17:12.030] The burden of leadership is heavier than ever,
+- [17:15.040] but so is the opportunity.
+- [17:17.200] The opportunity to shape the future of naval warfare,
+- [17:20.560] the opportunity to lead diverse,
+- [17:22.410] talented teams in ways that will define missions
+- [17:25.740] and even save lives.
+- [17:27.840] The opportunity be exactly the kind of leader
+- [17:30.410] the world needs now.
+- [17:33.030] Smart, grounded, resilient, humble, and courageous.
+- [17:38.850] What will define you from this moment on
+- [17:40.780] is not your commission.
+- [17:42.420] Or your class rank, or even your service selection.
+- [17:45.880] What will define you is how you lead when the pressure is on,
+- [17:50.250] when the plan falls apart, when lives are at stake,
+- [17:54.150] and when everyone around you looks to you
+- [17:55.950] for calm and courage.
+- [17:58.100] Leadership is never about you. It's about those you serve.
+- [18:02.600] General John Lejeune had it right
+- [18:04.340] when he said the relationship between officers
+- [18:06.870] and enlisted must be like teacher and scholar,
+- [18:10.090] not superior and inferior.
+- [18:12.450] Your people will teach you more than you expect.
+- [18:15.400] Respect that. Learn from them. Lead them well.
+- [18:20.770] You are not simply to give orders.
+- [18:22.550] You are to grow those under your command into something better.
+- [18:26.010] Instill in them the core values of honor,
+- [18:28.870] courage, and commitment.
+- [18:30.780] Not just with words, but through example.
+- [18:34.270] Now a quick word about values. Honor, courage, commitment.
+- [18:39.360] These aren't just words etched on academy walls.
+- [18:42.530] Or printed-in manuals. They are your compass.
+- [18:45.820] In a future filled with new technologies,
+- [18:48.410] cyber threats, and global instability,
+- [18:51.640] character will matter more than ever.
+- [18:54.520] You are inheriting a fleet that sails in a world
+- [18:56.940] full of complexity and consequence.
+- [18:59.660] We face adversaries who test the rule-based order at sea.
+- [19:04.100] We operate in an environment
+- [19:05.620] where innovation moves at the speed of relevance,
+- [19:08.660] and we must be agile, accountable, and adaptive.
+- [19:12.540] Because lethality is just not about firepower.
+- [19:15.750] It is about clarity of purpose, efficiency of action,
+- [19:19.420] and unity of command.
+- [19:21.570] Admiral Rickover, the father of the nuclear Navy,
+- [19:23.970] once said, responsibility is a unique concept.
+- [19:27.380] You may share it with others,
+- [19:29.120] but your portion is not diminished.
+- [19:32.020] You cannot delegate accountability.
+- [19:34.770] When the mission falters, your name is on the line.
+- [19:38.400] When it succeeds, share the credit.
+- [19:41.310] That is leadership.
+- [19:43.200] There will be days when you'll feel the weight
+- [19:45.560] or burden of leadership, that's natural.
+- [19:48.780] But on those days, remember this, you are not alone.
+- [19:52.500] You stand on the shoulders of those who came before you
+- [19:55.820] and beside shipmates who will have your back in ways
+- [19:58.580] that will stay with you for the rest of your life.
+- [20:01.980] You are stepping into a future that will test you.
+- [20:04.720] But I believe, we believe,
+- [20:07.020] the American people believe you are ready.
+- [20:10.260] Ready to innovate, ready to inspire.
+- [20:13.010] Ready to lead in a Navy and Marine Corps
+- [20:15.420] that is evolving, modernizing,
+- [20:17.720] and building a more lethal, adaptable, and resilient force.
+- [20:22.240] You are the future of that force.
+- [20:24.720] So take pride in what you've achieved,
+- [20:27.120] take responsibility for what comes next,
+- [20:29.800] and take care of those you are privileged to lead.
+- [20:33.080] Your commission is more than a contract.
+- [20:35.250] It is a covenant with the American people.
+- [20:37.840] They trust you to defend this nation with honor,
+- [20:41.010] to wield power with restraint.
+- [20:43.120] And to lead with integrity, even when no one is watching.
+- [20:46.860] So class of 2025, step forward with confidence,
+- [20:50.600] but carry within you the humility
+- [20:52.380] of those who came before. From the decks of destroyers
+- [20:55.870] to the cockpits that strike aircraft,
+- [20:58.470] from forward operating bases to submarines beneath the sea,
+- [21:02.230] you'll be the tip of the spear and the steady hand behind it.
+- [21:06.260] In closing, know this, your country is proud of you,
+- [21:10.480] not just for what you've done.
+- [21:13.250] But for who you've chosen to become.
+- [21:15.700] You are not just graduates,
+- [21:17.260] you are defenders of the Constitution,
+- [21:19.510] ambassadors of liberty,
+- [21:21.120] and the next generation of American leaders.
+- [21:23.900] May God bless you, your families,
+- [21:25.930] and the United States of America.
+- [21:28.040] Congratulations on this well-deserved honor.
+- [21:31.960] (applause)
+- [21:41.100] Vice Admiral Davids: Ladies and gentlemen,
+- [21:42.470] it is my honor to introduce the 50th Vice President
+- [21:45.360] of the United States, the Honorable J.D. Vance.
+- [21:48.720] (applause)
+- [21:54.610] The Vice President: There you go, sir. Thank you.
+- [21:56.190] You like that in there? Thank you.
+- [22:01.370] Well it is great to be with you here on this incredible day
+- [22:05.630] and I got to say it's a pretty cool trick
+- [22:08.910] where when people say good morning
+- [22:10.750] you guys say it back in unison
+- [22:12.240] so let me say good morning to the class of 2025.
+- [22:19.360] I want to say, first of all, thank you all for having me,
+- [22:23.260] and thank you especially to Vice Admiral Davids
+- [22:26.500] and Captain Allman for your hospitality.
+- [22:29.530] Thank you as well, of course, to Secretary Phelan
+- [22:31.570] for that great speech, Admiral Kilby, and General Smith
+- [22:35.130] for all that you do for our country.
+- [22:37.870] First off, I want say,
+- [22:40.310] both from me and from President Trump,
+- [22:42.920] congratulations to the Class of 2025.
+- [22:47.600] (applause)
+- [22:56.000] I want to say congratulations not just to you all,
+- [22:58.570] because you all have certainly earned a great honor,
+- [23:00.740] but congratulations to the families,
+- [23:03.490] the friends, the faculty,
+- [23:05.470] plus the other midshipmen and service members
+- [23:07.540] who join us on this beautiful morning
+- [23:09.560] and share in this incredible day.
+- [23:13.430] (applause)
+- [23:19.640] Now, it's always dangerous to give a politician a microphone,
+- [23:24.080] but I know that I am one of the very last things
+- [23:27.570] standing between you and your commission and your diploma.
+- [23:31.230] And so, out of respect, I just want you to know that
+- [23:33.750] this is only going to be a three and a half or four hour speech.
+- [23:39.020] I hope you all brought your sunscreen
+- [23:40.490] because it's bright out here.
+- [23:42.830] But today is such an incredible day for you,
+- [23:46.290] tonight you'll celebrate in the finest tradition
+- [23:49.470] of the United States Naval Academy with great food
+- [23:52.680] and of course maybe a little drink.
+- [24:02.310] That as you celebrate you remember
+- [24:04.100] that this is not just your day
+- [24:05.800] as hard as you have worked for it.
+- [24:08.080] This day belongs to parents, grandparents, aunts, uncles,
+- [24:12.750] teachers, brothers, sisters and so many others.
+- [24:18.500] Are the product of an incredible legacy.
+- [24:21.660] People who worked hard to give you a good education,
+- [24:24.740] food on the table, and a sense of possibility.
+- [24:28.600] People who took you to church, to practices,
+- [24:31.480] to tutoring sessions.
+- [24:33.120] People who prayed for you when you struggled
+- [24:35.010] and celebrated with you at moments just like today.
+- [24:39.470] Most of you are fortunate enough
+- [24:41.900] to have someone here to celebrate with you.
+- [24:44.750] Some of you don't.
+- [24:46.790] But whether they are here with you or not,
+- [24:49.240] the very best piece of advice
+- [24:50.890] I can give you is to begin your life in the fleet
+- [24:54.120] with a spirit of gratitude.
+- [24:56.700] Be thankful for all the people gathered here today
+- [24:59.800] and those who aren't because they made you who you are
+- [25:03.370] and they got you to where you are today.
+- [25:06.620] (applause)
+- [25:14.280] And I hope you'll take from that gratitude a sense of duty.
+- [25:18.790] You owe it to the American people, to yourselves,
+- [25:22.890] but most of all to the people
+- [25:24.220] who sacrificed so hard to get you here.
+- [25:26.960] You owe to them to do the best job
+- [25:29.590] you can and I know that is exactly what you're going to do.
+- [25:33.990] Now it's customary in speeches like this
+- [25:37.380] for people like me to offer words of congratulations
+- [25:40.610] and maybe a little bit of advice.
+- [25:42.380] Of course I just did exactly that.
+- [25:45.150] But you're not just graduates of some random university
+- [25:48.190] about to embark on careers in the private sector,
+- [25:51.370] and I'm not just giving another political speech.
+- [25:54.820] I'm your vice president.
+- [25:56.600] And the minute you walk off the stage with your diploma
+- [26:00.090] and your commission,
+- [26:01.310] you will be officers in the United States Navy
+- [26:04.190] and the United State Marine Corps,
+- [26:05.520] and that is an incredible thing.
+- [26:08.400] (applause)
+- [26:16.870] You will be leaders of men and women in our armed forces.
+- [26:23.410] So while President Trump and I congratulate you
+- [26:26.680] on this incredible achievement,
+- [26:28.870] I also thought it would be appropriate
+- [26:30.360] to tell you a bit about how the President
+- [26:32.320] and I think of your mission in this new
+- [26:35.810] and very dangerous era for our country.
+- [26:39.350] Now, last week, the President took a very historic trip
+- [26:42.170] to the Middle East,
+- [26:43.450] meeting with heads of state in guitar.
+- [26:46.210] Saudi Arabia, and the United Arab Emirates.
+- [26:49.770] Most of the headlines focused on the trillions of dollars
+- [26:52.840] of new investment the president secured for our country,
+- [26:55.750] and that's of course an important thing.
+- [26:58.130] But I actually think the most significant part of that trip
+- [27:02.710] is that it signified the end of a decades-long approach
+- [27:07.970] in foreign policy that I think was a break
+- [27:10.800] from the by our founding fathers.
+- [27:14.010] We had a long experiment in our foreign policy
+- [27:16.990] that traded national defense
+- [27:19.350] and the maintenance of our alliances
+- [27:22.780] for nation building and meddling in foreign countries' affairs,
+- [27:27.450] even when those foreign countries
+- [27:29.080] had very little to do with core American interests.
+- [27:33.710] What we're seeing from President Trump
+- [27:35.500] is a generational shift in policy
+- [27:38.030] with profound implications for the job
+- [27:41.140] that each and every one of you will be asked to do.
+- [27:44.790] Following the collapse of the Soviet Union,
+- [27:47.070] our policymakers assumed that American primacy
+- [27:50.420] on the world stage was guaranteed.
+- [27:54.200] For a brief time, we were a superpower without any peer,
+- [27:59.450] nor did we believe any foreign nation
+- [28:01.470] could possibly rise to compete
+- [28:03.800] with the United States of America.
+- [28:06.240] And so our leaders traded hard power for soft power.
+- [28:10.820] We stopped making things, everything from cars
+- [28:13.820] to computers to the weapons of war,
+- [28:16.780] like the ships that guard our waters,
+- [28:19.990] and the weapons that you will use in the future.
+- [28:23.040] Why do we do that?
+- [28:25.080] Well, too many of us believed that economic integration
+- [28:28.040] would naturally lead to peace
+- [28:30.200] by making countries like the People's Republic of China
+- [28:33.830] more like the United States.
+- [28:36.140] Over time, we were told the world would converge
+- [28:39.310] toward a uniform set of bland, secular, universal ideals,
+- [28:44.590] regardless of culture or country.
+- [28:47.330] And those that didn't want to converge,
+- [28:48.830] well, our policymakers would make it their goal
+- [28:51.860] to force them by any means necessary.
+- [28:55.360] So instead of devoting our energies to responding
+- [28:58.540] to the rise of near-peer competitors like China,
+- [29:02.110] our leaders pursued what they assumed would be easy jobs
+- [29:05.840] for the world's preeminent superpower.
+- [29:08.900] How hard could it be?
+- [29:10.690] To build a few democracies in the Middle East?
+- [29:14.270] Well, almost impossibly hard, it turns out,
+- [29:17.570] and unbelievably costly.
+- [29:20.830] And it wasn't our politicians who bore the consequences
+- [29:24.710] of such a profound miscalculation.
+- [29:27.880] It was the American people,
+- [29:29.540] to the tune of trillions of dollars,
+- [29:31.780] but more than anyone, it was born by the people
+- [29:35.990] who were in your shoes just a few short years ago,
+- [29:39.020] by our service members. And their families.
+- [29:42.540] The tens of thousands of warfighters
+- [29:45.110] who sacrificed precious time, energy,
+- [29:48.640] and in some cases their very lives in the line of duty.
+- [29:51.670] They are the ones who bore the cost of past failure.
+- [29:55.480] Our leaders abandoned
+- [29:57.080] clearly stated strategic goals for lofty,
+- [30:00.150] often incoherent abstractions. This is how, for example,
+- [30:04.640] we wound up chasing a $230 million pier in Gaza.
+- [30:09.870] That worked for a grand total of 20 days
+- [30:12.500] while injuring over 60 American service members
+- [30:16.030] in the construction and maintenance of that pier.
+- [30:19.680] Our government took its eye
+- [30:21.160] off the ball of great power competition
+- [30:24.050] and preparing to take on a pier adversary.
+- [30:26.660] And instead, we devoted ourselves
+- [30:29.170] to sprawling amorphous tasks
+- [30:32.720] like searching for new terrorists to take out
+- [30:35.870] while building up faraway regimes.
+- [30:39.130] Now, I want to be clear.
+- [30:41.000] The Trump administration has reversed course.
+- [30:44.120] No more undefined missions, no more open-ended conflicts.
+- [30:49.310] We're returning to a strategy grounded in realism
+- [30:54.270] and protecting our core national interests.
+- [30:58.670] Now, this doesn't mean that we ignore threats,
+- [31:02.020] but it means that we approach them with discipline
+- [31:04.860] and that when we send you to war...
+- [31:06.820] We do it with a very specific set of goals in mind.
+- [31:11.320] And consider how this played out in just the last major conflict
+- [31:15.270] we engaged in with the Houthis over in the Middle East.
+- [31:19.700] We went in with a clear diplomatic goal,
+- [31:23.290] not to enmesh our service members
+- [31:25.180] in a prolonged conflict with a non-state actor,
+- [31:28.450] but to secure American freedom of navigation
+- [31:32.300] by forcing the Houtis to stop attacking American ships.
+- [31:36.900] And that's exactly what we did.
+- [31:39.780] (applause)
+- [31:46.730] We pursued that goal through overwhelming force
+- [31:49.650] against Houthi military targets.
+- [31:52.410] In just the first 100 days of the administration,
+- [31:55.650] we were able to reach a ceasefire
+- [31:58.520] and a conflict that had been ongoing for nearly two years.
+- [32:03.540] That's how military power should be used,
+- [32:07.050] decisively, with a clear objective.
+- [32:10.680] We ought to be cautious in deciding to throw a punch,
+- [32:13.940] but when we throw a bunch,
+- [32:15.430] We throw a punch hard, and we do it decisively,
+- [32:18.170] and that's exactly what we may ask you to do.
+- [32:21.810] (applause)
+- [32:28.760] Now that shift in thinking from ideological crusades
+- [32:32.240] to a principled foreign policy
+- [32:34.750] will help restore the credibility
+- [32:37.290] of American deterrence in 2025 and beyond.
+- [32:41.990] With the Trump administration, our adversaries now know
+- [32:45.320] when the United States sets a red line,
+- [32:47.700] it will be enforced.
+- [32:49.220] And when we engage, we do so with purpose,
+- [32:52.870] with superior force, with weapons
+- [32:55.860] and with the best people anywhere in the world.
+- [33:00.190] (applause)
+- [33:06.770] Let me say something about weapons
+- [33:09.340] and the future of warfare.
+- [33:10.700] It is, of course, a priority of this administration,
+- [33:13.710] not just to keep but to widen the technological edge
+- [33:17.150] between the United States military
+- [33:19.400] and our adversaries all over the world.
+- [33:22.330] In the wake of the Cold War,
+- [33:24.050] America enjoyed a mostly unchallenged command
+- [33:28.020] of the commons, airspace, sea, space, and cyberspace.
+- [33:34.240] But the era of uncontested U.S. Dominance is over.
+- [33:39.220] Today, we face serious threats in China, Russia,
+- [33:42.620] and other nations determined to beat us in every single domain,
+- [33:47.800] from spectrum to low Earth orbit, to our supply chains,
+- [33:52.360] and even our communication infrastructure.
+- [33:55.270] Technology has lowered the cost of disruption,
+- [33:59.150] and so we must be, all of us, not just smarter,
+- [34:04.560] We got to make sure that we send our troops to war,
+- [34:08.890] we do it with the right tools.
+- [34:14.990] We can no longer assume our engagements
+- [34:17.540] will come without cost.
+- [34:19.730] That's why the Trump administration
+- [34:21.470] is investing in innovation,
+- [34:24.620] rewarding risk-takers at the Department of Defense,
+- [34:28.130] and streamlining weapons acquisition for the new century.
+- [34:32.650] Investing in cutting-edge weaponry like hypersonics
+- [34:36.300] is important, but just as important
+- [34:39.180] are the low-cost, high-impact technologies
+- [34:42.310] that are already transforming the battlefield.
+- [34:44.930] Things like drones.
+- [34:47.100] And by the way, when we talk about innovation,
+- [34:50.380] innovation is not just happening in the laboratory
+- [34:53.250] of a defense contractor.
+- [34:54.630] Innovation increasingly is happening
+- [34:57.050] on the very battlefields that you will lead troops on.
+- [35:00.910] So you are not just recipients of innovation.
+- [35:03.930] You're not just users of tools.
+- [35:05.700] You will very often be developing tools
+- [35:08.570] in this new century.
+- [35:10.930] Our lawmakers and military brass alike must learn.
+- [35:14.710] To adjust to a world where cheap drones,
+- [35:18.580] readily available cruise missiles,
+- [35:20.900] and cyber attacks cause extraordinary damage
+- [35:23.950] to our military assets and our service members.
+- [35:27.160] And it will be you, the graduates gathered here today,
+- [35:30.960] who will lead the way for the rest of us.
+- [35:34.290] Your service will bring new challenges and environments,
+- [35:38.900] including ones unfamiliar even to those
+- [35:41.750] who have served before you.
+- [35:44.350] You will deploy new equipment, new systems, and new technology,
+- [35:50.910] and through those experiences,
+- [35:52.780] it is you who will learn, who will teach others,
+- [35:57.320] and will help our services in our entire country adapt
+- [36:01.300] to the future we're confronting.
+- [36:04.730] The extraordinary education you have received
+- [36:06.870] is an investment by the American people,
+- [36:09.930] an investment not only in your courage,
+- [36:13.720] but in the strength of your minds
+- [36:15.740] and the promise of your leadership.
+- [36:19.130] Because your nation rests easier
+- [36:21.330] knowing that we have the most brilliant strategists
+- [36:25.090] and tacticians standing guard, men and women like you,
+- [36:29.460] brilliant enough to preempt and called Fight and Win.
+- [36:34.160] The wars of tomorrow, and its technological change
+- [36:38.450] continues to transform the battlefield.
+- [36:41.250] It only heightens the importance for this administration,
+- [36:44.270] for our whole country,
+- [36:46.270] on investing in our military's human capital.
+- [36:49.780] That's you and the well-being of our war fighters
+- [36:53.120] in your brilliance, in your strategic innovation.
+- [36:58.120] Modernization isn't just about tactics and tools.
+- [37:02.550] It's about meeting the needs of our service members.
+- [37:05.800] For too long, we asked too much of too few.
+- [37:13.060] Past leaders sent our service members on mission after mission
+- [37:17.440] with no exit strategy, no end in sight,
+- [37:21.340] and with little articulation for the American people
+- [37:24.300] or for the war fighters about what we were doing.
+- [37:28.320] When we extend the deployment of an aircraft carrier,
+- [37:30.990] that has real impact on people's lives
+- [37:33.300] and we're aware of it. They miss their families,
+- [37:35.720] of course they miss their loved ones
+- [37:37.290] and their home life. They accept that sacrifice.
+- [37:40.910] And that's the job that you've taken on.
+- [37:42.660] But the job we have taken on is to never misuse
+- [37:45.440] that sacrifice or never ask you to do something
+- [37:48.490] without a clear mission and a clear path home.
+- [37:52.650] (applause)
+- [38:00.120] The Trump administration recognizes
+- [38:02.700] that our most valuable resources, it's you.
+- [38:07.720] It's young people who are brave enough to put on the uniform
+- [38:11.850] and risk your life for this country.
+- [38:14.550] And we promise, I promise,
+- [38:16.940] to cultivate that resource, to protect it,
+- [38:19.940] and to use it only when the national interest demands.
+- [38:24.120] And what makes your new life so unique
+- [38:27.650] is that you must take multiple perspectives.
+- [38:31.310] You will be junior officers, of course,
+- [38:33.710] answerable to commanders, captains,
+- [38:36.010] admirals, generals, and people like me.
+- [38:39.860] You'll have to follow orders, even when you don't want to.
+- [38:44.810] And if I can offer one piece of advice
+- [38:46.520] from a junior enlisted guy to a bunch of new officers,
+- [38:50.380] to say that when you say, with all due respect,
+- [38:55.260] that is not a get out of jail free card.
+- [39:02.730] I got chewed out more times than I can remember
+- [39:04.740] because I assumed that I could say whatever I wanted to so long
+- [39:07.930] as I said with all due respect before it.
+- [39:09.890] That's not how it works out. You learn that the hard way.
+- [39:14.010] But importantly, you are not just following orders.
+- [39:17.800] More often than not, you will be giving them.
+- [39:21.090] And just as I see you, as our most precious resource,
+- [39:26.080] so you must see the men and women and women
+- [39:30.290] who call you sir and ma'am as your most sacred charge.
+- [39:34.440] (applause)
+- [39:35.720] You will not just be
+- [39:45.360] You will not just be another boss.
+- [39:48.570] You will counsel them through triumph and tragedy.
+- [39:52.470] You will learn that there is no clear line
+- [39:54.830] between personal and professional for officers
+- [39:58.280] in the Navy and Marine Corps.
+- [40:00.880] But I encourage you to see them
+- [40:02.760] not just as people who must follow your orders,
+- [40:06.200] but as leaders in their own right with incredible wisdom
+- [40:09.630] and incredible potential.
+- [40:12.070] Now this is shocking to think about.
+- [40:15.150] But there are senior enlisted people
+- [40:18.200] who started their careers in the Navy or the Marine Corps
+- [40:22.820] before you were born who will call you sir and ma'am
+- [40:26.660] and follow your orders.
+- [40:28.570] Think about what an incredible honor
+- [40:30.130] that is and think about what incredible opportunity
+- [40:33.410] it is not just to lead these men and women
+- [40:36.320] but also to learn from these men women.
+- [40:39.170] And that is the task before you.
+- [40:42.800] (applause)
+- [40:49.390] You will lean on that experience, of course,
+- [40:51.850] but still, you're very often, more often than not,
+- [40:55.050] going to be the one in charge.
+- [40:57.220] That is an honor, but it's a responsibility
+- [41:00.110] that ought to give you chills.
+- [41:02.870] You've made it now through one of the most
+- [41:04.710] demanding institutions in the entire world.
+- [41:08.450] You've earned your commissions,
+- [41:10.950] and you've stepped forward to serve at a moment
+- [41:13.850] when your country needs you now more than ever.
+- [41:18.090] But you're stepping. Into gigantic shoes
+- [41:21.400] and it's worth taking stock of that
+- [41:24.080] as you prepare to receive your commission.
+- [41:26.980] Those of us who've served know
+- [41:28.860] that graduates of the Naval Academy,
+- [41:31.100] they have a certain energy, a certain aura,
+- [41:33.730] a certain respect when they're out there in the fleet.
+- [41:36.770] Let me just give you an example.
+- [41:40.470] Today is your day of course and you should celebrate
+- [41:44.760] But in three days... The President and I will lead
+- [41:47.540] the most solemn occasion in our nation,
+- [41:50.390] Memorial Day at Arlington Cemetery.
+- [41:53.870] You'll learn, as I have, that when people say things like,
+- [41:57.760] Happy Memorial Day,
+- [41:59.990] you appreciate the sentiment behind it,
+- [42:01.790] but you know that it's wrong.
+- [42:03.960] Because Memorial Day is not a happy day.
+- [42:08.000] And Memorial Day isn't for those who served and came home,
+- [42:12.320] it is for those who served and didn't.
+- [42:15.400] Every Memorial Day,
+- [42:16.800] I think about a graduate of this institution,
+- [42:19.960] Major Megan McClung.
+- [42:21.780] She was an officer I served with.
+- [42:24.290] She was bright, tough, and incredibly dedicated to her job.
+- [42:28.980] She arrived in Iraq not long after me
+- [42:32.080] and was killed in action not long after that.
+- [42:36.210] She loved this institution.
+- [42:38.620] And like so many that came before her,
+- [42:40.790] she built on its legacy and the way that she served her country.
+- [42:45.970] Now there are so many stories
+- [42:47.470] of great service in this institution.
+- [42:49.500] I look at these signs on this stadium.
+- [42:53.230] Bella Wood, Midway, Bottle Canal.
+- [42:56.410] These are battles I read about in history books
+- [42:58.950] or learned about when I was a United States Marine.
+- [43:02.140] If you just try to read a list of the people
+- [43:05.580] who served after graduating from this institution,
+- [43:09.350] the list is almost so long you can't get through it.
+- [43:13.310] Senior leaders.
+- [43:15.330] Commandants of the Marine Corps, Chiefs of Naval Operations,
+- [43:18.990] astronauts, great business leaders,
+- [43:21.420] and even a few lowly politicians have graduated
+- [43:25.430] from the United States Naval Academy.
+- [43:28.370] Their service is an incredible legacy
+- [43:32.280] that they have passed on to you.
+- [43:34.490] And you are the bridge
+- [43:36.830] that connects the incredible heritage of this institution
+- [43:41.640] to the future duties and responsibilities your country.
+- [43:45.710] Needs you to perform. That's an incredible honor,
+- [43:50.840] but it's also an incredible responsibility,
+- [43:53.410] and I hope you take it seriously.
+- [43:55.720] People will look at you as graduates of the Naval Academy
+- [43:58.920] in a different way than they look at most of the people
+- [44:02.480] that you will meet every single day.
+- [44:04.690] They will look you that way, yes, because you've worked hard,
+- [44:07.620] and yes, you deserve this day,
+- [44:09.570] but they will also look at your differently
+- [44:12.060] because you stand on the shoulders of giants.
+- [44:15.390] And 20, 30, or 40 years from now,
+- [44:18.330] there are giants who are,
+- [44:20.140] there are people who are gonna be standing on your shoulders.
+- [44:23.110] So please remember that. Please take it seriously.
+- [44:26.830] And please recognize that you become part
+- [44:29.830] of a brotherhood and sisterhood
+- [44:32.190] that will enable you to do great things,
+- [44:34.560] that will support you as you do them,
+- [44:36.720] but will ask you to give back as you should in return.
+- [44:43.370] You're the inheritors of a national tradition
+- [44:46.700] dating back 250 years.
+- [44:51.030] It began with John Paul Jones
+- [44:54.850] and the founders of this country asked the United States Navy
+- [44:58.920] to take on the most powerful Navy on earth and we won.
+- [45:04.680] Our first patriots knew the stakes.
+- [45:08.170] They did not seek out war.
+- [45:09.910] They did everything they could to advocate
+- [45:11.830] and petition for their own liberties.
+- [45:14.200] But when the time came, they raised a military,
+- [45:17.430] they raised the Navy, and they fought like hell.
+- [45:21.210] Their examples lives on in all of you.
+- [45:24.720] In their courage, we see the roots of your calling
+- [45:27.110] to be strong but not reckless,
+- [45:29.340] to seek peace but never at the expense of liberty,
+- [45:32.850] to hold firm to your convictions even when the cost is high.
+- [45:39.230] I want to say to all of you,
+- [45:41.160] I've been Vice President for all of about 120 days,
+- [45:45.470] and this summer I will celebrate my 41st birthday.
+- [45:49.800] But I have never in those 41 years been so proud
+- [45:54.990] as I am today to honor you, to celebrate you
+- [46:00.350] and to congratulate you on a job well done.
+- [46:05.320] (applause)
+- [46:15.010] Now I'm sure some of you share my politics
+- [46:17.230] and some of you don't.
+- [46:19.340] But I know today I speak for a grateful nation
+- [46:23.170] when I say we are rooting for you.
+- [46:26.370] Naval Academy Class of 25, we are proud of you
+- [46:30.350] and we depend on you.
+- [46:31.810] Congratulations, Godspeed, and do great work.
+- [46:36.450] (applause)
+- [47:10.350] Male Speaker: Thank you, sir. We'll now confer the degrees,
+- [47:13.260] the academic dean and provost of the United States Naval Academy,
+- [47:17.680] Dr. Dr. Samara Firebaugh.
+- [47:20.590] (applause)
+- [47:28.110] Dr. Firebaugh: Successfully completing the requirements
+- [47:30.770] and demands of a Naval Academy education is no small feat.
+- [47:35.200] From I-Day to today, it's a steady dose of challenges,
+- [47:39.550] ranging from academic to athletic to leadership
+- [47:42.200] and character development.
+- [47:44.170] I have no doubt that each of you has been challenged,
+- [47:48.020] perhaps in ways you never thought you would
+- [47:50.390] or to levels that you never though you could achieve,
+- [47:53.170] but you rose to that challenge
+- [47:55.290] and we congratulate each of you for doing so.
+- [47:58.790] To the families and friends of these soon-to-be
+- [48:01.840] Naval Academy graduates and officers,
+- [48:04.690] these soon to be NSINs and second lieutenants,
+- [48:07.880] and to the faculty and staff here today as well,
+- [48:10.920] I would like to thank you and congratulate you.
+- [48:14.400] The rare graduate is the one who never needed the support
+- [48:17.700] of family, friends, and mentors.
+- [48:20.520] These graduates, like the tens of thousands before them,
+- [48:24.420] have depended on your support and encouragement,
+- [48:26.860] and you were there for them when they needed it the most.
+- [48:29.820] I know you are proud of their success,
+- [48:32.350] and we are most grateful to you for your role in that success.
+- [48:37.780] (applause)
+- [48:45.140] Candidates, please rise.
+- [48:48.520] (applause)
+- [48:53.650] Admiral Davids, on behalf of the faculty
+- [48:56.490] of the United States Naval Academy,
+- [48:58.580] I present these candidates for the baccalaureate degree
+- [49:02.310] and recommend that this degree be conferred upon them.
+- [49:06.260] Admiral Davids
+- [49:18.170] As you have successfully completed your course of study
+- [49:21.260] at the United States Naval Academy
+- [49:23.850] and have been recommended by the academic board
+- [49:26.920] as superintendent of the United State's Naval Academy
+- [49:29.810] and by virtue of the authority vested in me
+- [49:32.570] by the Congress of the Unites States,
+- [49:34.850] I confer upon each of you the baccalaureate degree
+- [49:38.130] with all rights and privileges thereunto pertaining.
+- [49:43.030] (applause)
+- [49:54.610] Male Speaker: All right, please be seated.
+- [50:01.050] The commandant of the Marine Corps,
+- [50:02.650] General Eric Smith, United States Marine Corps
+- [50:05.330] will administer the oath of office
+- [50:07.650] to those being commissioned into the United States Marine Corps.
+- [50:12.820] General Smith, I present 257 midshipmen
+- [50:17.780] of the graduating class of 2025
+- [50:20.290] to be commissioned into the Marine Corp.
+- [50:23.110] (applause)
+- [50:33.110] General Smith: Good morning. That sounds about right.
+- [50:39.300] Congratulations on this milestone achievement
+- [50:42.940] and thank you for making the decision to serve.
+- [50:46.670] Today you take your place in the ranks of marine officers,
+- [50:51.910] a role of immense trust, responsibility, and consequence.
+- [50:57.380] You're joining a corps forged in battle,
+- [51:00.600] defined by discipline
+- [51:02.210] and bound by an unshakable commitment to mission.
+- [51:05.710] And to each other. This is not the end of a book,
+- [51:09.830] this is the beginning of a whole new chapter.
+- [51:13.370] From this day forward,
+- [51:14.780] you are accountable for the lives, welfare,
+- [51:18.360] and success of the Marines you will lead.
+- [51:21.730] We don't lose. We're United States Marines.
+- [51:25.910] (applause)
+- [51:33.340] Your Marines won't follow you because of your rank.
+- [51:37.080] They'll follow you, because of your example,
+- [51:39.760] your judgment, and your character.
+- [51:43.110] You're inheriting a legacy built by those
+- [51:45.210] who led with courage at Bella Wood,
+- [51:48.330] Ingenuity at Inchon, and Resolve in Ramadi.
+- [51:54.460] The legacy is now yours to carry, to protect,
+- [51:57.580] and to pass on to the next generation of Marines.
+- [52:01.340] The oath you're about to take
+- [52:02.660] is a pledge to defend the Constitution,
+- [52:06.980] to uphold our values, and lead with honor at all times.
+- [52:13.380] It binds you to something greater than yourself,
+- [52:17.290] to the nation, the Corps, and the Marines,
+- [52:20.680] who will look to you for strength when it matters most?
+- [52:24.610] The chips are down.
+- [52:26.710] You are not entering the unknown.
+- [52:29.290] You're stepping into a tradition of excellence,
+- [52:32.240] guided by those who came before you
+- [52:34.560] and supported by those now stand beside you.
+- [52:39.090] The path ahead will be the most demanding period of your life.
+- [52:43.230] It will also be the rewarding work you'll ever do.
+- [52:47.770] We're proud to welcome you into the Marine Corps as officers.
+- [52:51.550] The nation expects much from you.
+- [52:54.570] And we know that you're ready.
+- [52:57.100] Graduates to be commissioned in the United States Marine Corps.
+- [53:00.260] Rise.
+- [53:02.280] (applause)
+- [53:15.570] Raise your right hands.
+- [53:19.090] Having been appointed a second lieutenant
+- [53:20.730] in the United States Marine Corps to rank from 23
+- [53:24.240] May 2025, I'll ask you this.
+- [53:28.970] Do you hereby accept such appointment
+- [53:31.900] and do you solemnly swear that you will support and defend
+- [53:35.220] the Constitution of the United States
+- [53:37.390] against all enemies, foreign and domestic,
+- [53:41.150] that you would bear true faith and allegiance to the same,
+- [53:45.310] that you take this obligation freely
+- [53:48.020] without any mental reservation or purpose of evasion,
+- [53:52.160] and that you will well and faithfully discharge
+- [53:55.120] the duties of the office
+- [53:57.080] on which you are about to enter so help you God.
+- [54:00.530] Second Lieutenants: I do.
+- [54:03.030] (applause)
+- [54:21.690] General Smith: Second lieutenants,
+- [54:23.010] take your seats.
+- [54:46.250] Male Speaker: Alright, for the rest of you,
+- [54:47.730] the Acting Chief of Naval Operations,
+- [54:49.580] Admiral Jim Kilby, United States Navy,
+- [54:51.650] will administer the oath of office
+- [54:53.350] to those being commissioned into the United States Navy.
+- [54:57.080] Admiral Kilby I present 764 midshipman
+- [55:01.080] of the graduating class
+- [55:02.370] to be commissioned into the Navy.
+- [55:05.270] (applause)
+- [55:13.600] Admiral Kilby: Well, good morning.
+- [55:17.730] Vice President Vance, Secretary Phelan,
+- [55:21.280] General Smith, Vice Admiral Davids,
+- [55:25.020] parents, family and friends of the Class of 2025,
+- [55:30.100] it's an honor to be here with you today.
+- [55:34.130] I want to echo those before me in taking a moment
+- [55:37.160] to recognize all of the families and friends present.
+- [55:42.520] Each of you had a profound impact
+- [55:45.070] on the men and women in front of me.
+- [55:47.990] Instilling in them the values will encourage
+- [55:51.770] to serve something greater than themselves,
+- [55:55.290] a decision that sets them apart from their peers.
+- [56:00.090] Thank you for your continued support.
+- [56:04.550] Class of 2025, congratulations on joining the world's premier
+- [56:11.120] maritime fighting force.
+- [56:15.060] (applause)
+- [56:22.600] For 250 years, the United States Navy
+- [56:25.650] has provided our nation with the sea power
+- [56:28.400] and sea control needed to preserve our security,
+- [56:32.480] prosperity, and economic wealth. This year has been no different.
+- [56:38.920] Just take a look at our actions in the Indo-Pacific,
+- [56:42.380] in the Red Sea, and at the southern border.
+- [56:46.370] Soon, you will take your place in this Navy,
+- [56:49.520] delivering lethality and combat credibility
+- [56:52.900] against our nation's adversaries.
+- [56:56.330] I can think of no better time to join our fleet,
+- [57:01.000] and I can't think of a better group of officers
+- [57:03.900] to meet this opportunity.
+- [57:06.940] Class of 2025,
+- [57:08.940] don't underestimate the significance of today.
+- [57:13.950] Thirty-nine years and two days ago,
+- [57:16.930] I was sitting right where you are,
+- [57:19.850] here in the Navy and Marine Corps.
+- [57:22.010] Memorial Stadium.
+- [57:24.140] And in just a few moments, you will raise your right hand
+- [57:28.310] and swear an oath to the Constitution.
+- [57:32.370] You will be joining millions of Americans
+- [57:35.190] throughout our nation's rich history
+- [57:37.900] who have taken the same oath to support, protect and defend.
+- [57:44.710] I am counting on you to uphold these same ideals
+- [57:49.820] that your predecessors fought for.
+- [57:52.230] To uphold our Navy's legacy to honor,
+- [57:56.040] courage, and commitment.
+- [57:59.180] As I close, let me leave you with a few thoughts.
+- [58:02.650] First, service is a gift. It's a gift to our nation
+- [58:08.040] and a gift that I know you've learned to appreciate.
+- [58:12.210] Wear your uniform with pride.
+- [58:15.300] Uphold the same standards of excellence
+- [58:18.040] that got you here today, and don't forget.
+- [58:21.110] That you are serving something greater than yourself.
+- [58:26.170] Second, try your very best.
+- [58:30.800] Whether you serve for five years or 40 years,
+- [58:34.340] with great effort, you will learn much about yourself.
+- [58:38.620] Continue to improve on the things you are happy with
+- [58:42.180] and double down on those areas where you fall short.
+- [58:47.300] Your future bosses don't expect perfection.
+- [58:51.310] What they do expect. And finally,
+- [58:56.490] I recommend a routine check in with your family.
+- [58:59.670] They love you and will always be a source of strength and support
+- [59:03.880] as you navigate your service.
+- [59:07.450] Soon to be ensigns, I am proud to serve alongside you.
+- [59:13.030] I am to call you shipmates
+- [59:15.290] and I can't wait to see what you will do in the fleet.
+- [59:20.600] Thank you for choosing to serve our nation in uniform
+- [59:23.730] and thank you.
+- [59:24.960] For committing yourselves to the world's greatest Navy.
+- [59:29.120] You absolutely made the right choice.
+- [59:31.400] Congratulations and bravo Zulu on a job well done.
+- [59:37.850] (applause)
+- [59:45.200] Graduates to be commissioned in the United States Navy,
+- [59:48.000] please rise.
+- [59:59.160] Please raid your right hand.
+- [01:00:03.500] Having been appointed an ensign in the United States Navy
+- [01:00:06.710] to the rank from 23 May 2025,
+- [01:00:11.480] do you solemnly swear that you will support
+- [01:00:14.610] and defend the Constitution of the United States
+- [01:00:19.140] against all enemies, foreign and domestic,
+- [01:00:23.150] that you bear true faith and allegiance to the same,
+- [01:00:27.770] that take this obligation freely
+- [01:00:31.580] without any mental reservation or purpose of evasion,
+- [01:00:37.330] and that you will well and faithfully discharge
+- [01:00:41.010] the duties of the office on which you are about to enter.
+- [01:00:45.780] So help you God.
+- [01:00:48.380] Naval Graduates: I do.
+- [01:01:04.600] Admiral Kilby: (inaudible) seats.
+- [01:01:07.340] (applause)
+- [01:01:20.560] Provost Firebaugh: Ladies and gentlemen,
+- [01:01:21.980] today we will graduate 1,048 men and women
+- [01:01:26.690] who have met the many challenges of four years
+- [01:01:29.590] at the Naval Academy.
+- [01:01:31.540] In addition to those you just saw commissioned
+- [01:01:34.080] into the Navy and Marine Corps,
+- [01:01:36.160] the Class of 2025 also includes 14 graduates
+- [01:01:41.160] from 11 nations around the world.
+- [01:01:48.040] At this time,
+- [01:01:49.260] we invite these international graduating midshipmen
+- [01:01:52.310] to stand when their name is called,
+- [01:01:54.760] along with the members of their national delegation
+- [01:01:57.740] who are in attendance today.
+- [01:02:00.080] These graduates, whose national flags
+- [01:02:02.670] are flying above the memorial arches
+- [01:02:04.590] at the north end of the stadium,
+- [01:02:06.650] will return to their countries and serve with distinction
+- [01:02:09.720] in their armed forces or other government service.
+- [01:02:14.550] From the Arab Republic of Egypt, Ziyad al-Ghandi.
+- [01:02:22.510] From the Republic of Fiji, brought to Malibuwa.
+- [01:02:29.670] From the Republic of Indonesia, Juan Dito Chaihiyo Nugroho.
+- [01:02:37.870] From the Republic of Indonesia, Fethiarta Suriana.
+- [01:02:45.450] From the Kingdom of Jordan, Tariq El-Azama.
+- [01:02:52.050] From the Republic of Maldives, Hassan Nishaf.
+- [01:02:58.970] From the Republic of Peru, Luigi Caperini.
+- [01:03:06.970] From the Republic of the Philippines,
+- [01:03:09.350] Michelle and Angelou De Leon Matso.
+- [01:03:17.160] From the Republic of the Philippines, Jonarell Monreal.
+- [01:03:24.750] From the Democratic Socialist Republic
+- [01:03:27.210] of Sri Lanka, Isuru Ekaniaka.
+- [01:03:34.270] From Taiwan, Zhen Yi Zhou.
+- [01:03:41.480] From the Kingdom of Thailand, Poon Ruppeek Prakhi.
+- [01:03:49.600] From the Republic of Tunisia, Muhy Ben Mestah.
+- [01:03:57.140] From the Republic of Tunisia, Mohamed Djerbi.
+- [01:04:01.400] (students names spelled phonetically)
+- [01:04:05.120] Thank you. Seats.
+- [01:04:13.380] Today's graduates join the more than 90,000 men
+- [01:04:17.520] and women who have graduated from the Naval Academy
+- [01:04:20.280] since its founding in 1845.
+- [01:04:23.660] As part of our graduation ceremony today,
+- [01:04:26.430] members of the Naval academy class,
+- [01:04:28.460] the preceded this year's graduates by 50 years
+- [01:04:32.010] will honor this continuing chain of Naval Academy graduates
+- [01:04:36.110] by presenting engraved ensign
+- [01:04:37.890] or second lieutenant uniform devices to the class of 2025.
+- [01:04:42.840] Several members of the class of 1975
+- [01:04:46.090] are listed in your program and are here today
+- [01:04:48.880] to participate in this special recognition
+- [01:04:51.820] of Naval Academy graduates' contributions
+- [01:04:54.480] across the decades. Please join me in recognizing
+- [01:04:58.170] and applauding these distinguished graduates.
+- [01:05:02.990] (applause)
+- [01:05:09.100] Finally, before we begin introductions
+- [01:05:11.720] of individual graduates,
+- [01:05:13.200] I should remind you of an important Naval Academy
+- [01:05:16.140] tradition that parents and friends of each graduate
+- [01:05:20.520] are invited to stand when that graduate's name is called.
+- [01:05:24.540] And that way, we can recognize your contribution
+- [01:05:27.480] to the achievement of these fine young men and women.
+- [01:05:32.050] The vice president will now present diplomas
+- [01:05:34.970] to those individuals graduating with distinction.
+- [01:05:39.740] Those members of the Class of 2025
+- [01:05:43.340] graduating with distinction, please rise.
+- [01:05:48.890] (applause)
+- [01:06:20.760] O.N.M. O'Malley stands first in the class.
+- [01:06:28.210] Andrzej Korlecki, Tendley W. Radak, Sean D.
+- [01:06:37.310] O'Boyle, Matt T. Mankovic, Brody A.
+- [01:06:44.970] Todd, Michael C. McGee, Sebastian G.
+- [01:06:52.580] Sherry, Ethan S. Purnu.
+- [01:06:58.750] Solay Shi, Victoria J. DeCarlo, Nathan A.
+- [01:07:06.800] Broomfield, Zachary Z. Pegg,
+- [01:07:12.410] Harrison A. Kaplan, Emma E. Frumelt,
+- [01:07:19.640] Connor W. Pettigrew, Reese M. Winter.
+- [01:07:26.890] Aidan L. Plain, Jacob L. Price, Jillian R.
+- [01:07:36.690] Anke, Ryan J. Romandi, Justin T.
+- [01:07:43.130] Lau, Lucas G.
+- [01:07:46.780] Spiro, Molly M. Tressler, Joshua B. Herbert.
+- [01:07:56.290] Noelle J. Poovey, Vishal R. Mandava,
+- [01:08:04.480] Noelle M. Davente, Cooper A. Walsh, Richard A.
+- [01:08:13.930] Carter III, Sophia T. Utzinger, Grace Ann Peterson.
+- [01:08:24.930] Troy J. Boland, Nicholas Constantine Spears, Gavin A.
+- [01:08:35.030] Milligan, Daniel J. Mullen, Jackson W. Suddath Jr.,
+- [01:08:44.970] Samuel Mark Englen, John F. Janess, Lucas J. Schreiber.
+- [01:08:55.640] Dalton M. Keglovitz, Katie T. Stigler, Emma C.
+- [01:09:03.420] Kirby, Jonathan C. Howitz, Nathaniel S.
+- [01:09:10.550] Gunn, Olivia J.
+- [01:09:14.880] Love, Sebastian J. Gordillo, Jonathan R. Sauer.
+- [01:09:24.730] Kava Serafidzki, Emma E. Stott, Conrad P. Davis, Luke W.
+- [01:09:36.340] Sweeney, Steven J. Lubbers, Lorne M. Lechelt, Ivan P.
+- [01:09:47.730] Thomas, Marshall J. Hanson.
+- [01:09:53.090] Gabriel B. Spencer, Thomas Owen Pitchford,
+- [01:10:00.520] Anne Galau, Toby Jeffrey Davis II, Demetrius S.
+- [01:10:10.120] Bush, Owen M. Barron, Alexander M. Grande.
+- [01:10:20.700] Sean A. Paddy. Amelia E. Steinbacher.
+- [01:10:29.360] Kyle T. O'Doy. Benjamin A. Miller.
+- [01:10:37.320] Kevin A. Lamb. Tanner Aloysius Kelly.
+- [01:10:45.200] Micah Jacob Verano Rica Fronte.
+- [01:10:50.880] Gabriel Euclides Wen, Andrew W. Fichtel, Samuel J. Beatty,
+- [01:11:03.320] Matthew Brian Coleman, Walker H. French.
+- [01:11:36.230] Morgan Noel Eder, Matthew D. McClelland.
+- [01:11:47.600] Maris E. Larkins, Gabriel V. Abreu, Sean D.
+- [01:11:58.820] Lloyd, William J. Sanchez,
+- [01:12:06.990] Landon M. Buford, Daniel R. Barber.
+- [01:12:14.730] Sean D. Miller, John K.
+- [01:12:20.150] Jabbour, Alexander A. Asadikani, Benjamin M. Balmer, Riley B.
+- [01:12:33.640] Reeves, Andreas E. Houcher, Elizabeth A. Gendrysik.
+- [01:12:45.350] Ronald W. Miller, Jenna M. Bargefried,
+- [01:12:54.520] Wyatt J. Kuhl, Silas P.
+- [01:13:00.280] Kostjo, Alston J. McCaslin, the seventh.
+- [01:13:09.100] Jacob W Duberly, Abigail A Lutz,
+- [01:13:17.660] Leo P Wagner, Nathan W.
+- [01:13:23.350] Sherry Jr., Duncan J Ailes, Timothy D.
+- [01:13:32.100] Wright, Ethan J. Tolentino.
+- [01:13:38.240] Hannah L. Lakeford, Matthew J. Lee,
+- [01:13:45.970] Abigail P. Parker, Alex M. Kramer.
+- [01:14:07.590] The Vice President, the Secretary of the Navy,
+- [01:14:11.050] the Acting Chief of Naval Operations,
+- [01:14:13.980] the Commandant of the Marine Corps,
+- [01:14:16.150] the Superintendent, and the Command of Midshipmen
+- [01:14:19.240] will now present diplomas
+- [01:14:21.440] to members of the graduating class individually by company.
+- [01:14:27.660] Odd numbered companies
+- [01:14:29.120] will receive their diplomas from my left
+- [01:14:31.980] and even numbered companies from my right.
+- [01:14:49.510] From the first company, Sanjuna Bah Sumali.
+- [01:14:58.300] From the second company, Carl Gabriel F. Adriano,
+- [01:15:04.550] Joshua J. Koffer, Maya E. Barcello.
+- [01:15:11.020] Benjamin W. Countess. Robert L. Benson.
+- [01:15:20.470] And a- Be drinkered. Noah E. Blom, Brayden W.
+- [01:15:28.630] Fulkersma, Jessica M. Carruthers, Daniel C.
+- [01:15:36.040] Frere, Elizabeth J. Cermak, Luke F. Casper,
+- [01:15:45.130] Gavin J. Choi, Piper M. Geisler.
+- [01:15:52.900] Luke V. Dixon, Amber C. Hodges, Nathan Y. Faust.
+- [01:16:03.940] William G. Hosinger. Creeden G. Folger.
+- [01:16:11.790] Julia R. Horton. Wyatt W. Gleed.
+- [01:16:18.650] Shankar S. Jambunathan. Devin K. Gordon.
+- [01:16:25.920] Tyler S. Kasawagi. Anthony W. Harrington.
+- [01:16:33.470] Jude M. Crick. Haley N. Hoffman.
+- [01:16:39.480] Joseph S. Lee. Brock C. Houston.
+- [01:16:46.400] Adley Louis Young. Michael G. Califutt.
+- [01:16:52.840] Grace E. Lout. Emmett C. Kirby.
+- [01:17:00.040] Lily E. Luz. Natalie H. Kramer.
+- [01:17:05.820] Ryan L. McClain. Michael D. MacDonald.
+- [01:17:12.480] Maxwell J. Mando. Lucas S. Merritt.
+- [01:17:19.850] Grace C. Oliver. Andres D. Ruiz.
+- [01:17:26.710] Caleb W. Sade. Yay, Joshua X. Silva.
+- [01:17:33.390] Xavier. Be Esther Duffin. Thomas R. Snead.
+- [01:17:41.910] Kevin K. Sung. Campbell T. Spates.
+- [01:17:47.900] Luke Z. Thiemann. Christopher J. Stumpf.
+- [01:17:54.460] Addison E. Wilber. Joy D. Teixeira.
+- [01:18:01.090] Ursula C. Wise. Kyler D. Via.
+- [01:18:08.080] From the third company, Grace J. Beasley.
+- [01:18:14.750] Eleanor G. Veazey Thomas T.
+- [01:18:19.300] Bowie Ryan W. Waba Chloe M. Claussen
+- [01:18:28.750] Rebecca V. Wiley Randall S. Schweiner
+- [01:18:36.920] From the fourth company, William Carter Ash,
+- [01:18:43.400] Joseph W. Deegan, Cameron J. August, Isabella S.
+- [01:18:51.200] Fadulin, Jack H. Began, Margaret C.
+- [01:18:57.980] Geiger, Charlotte F. Flish, Samuel T. Graham. Ethan A.
+- [01:19:08.230] Borse William G. Gravitt Stelios E. Boyaki Wesley S.
+- [01:19:18.120] Kim Charlotte C. Brailsford Roman J. Larocco
+- [01:19:27.340] Luigi G. Cabrini Kyla R. Manning John M. Crotty.
+- [01:19:37.260] Ian J. McCollum. Eoluwa Katitan Idada.
+- [01:19:43.680] Cyrus S. McLeod. Dylan S. Dixon. Ross L. Moore.
+- [01:19:53.930] Gavin C. Gregorek. Joshua L. Moran.
+- [01:20:00.390] Paulina I. Hollis. Jack T. Norton.
+- [01:20:07.290] Chris T. Johnson. James A. Rooney.
+- [01:20:14.450] Lane N. Londas. Julian J. Trilling.
+- [01:20:20.710] Caress S. Mack. Justin K. Werner. Megan V. Marengo.
+- [01:20:31.220] Tyler K. Woodworth, Keanu D. Mark.
+- [01:20:38.670] From the fifth company, Macy's. Y. Banks.
+- [01:20:44.100] Charles K. Miller. Grace E. Mae Bloete.
+- [01:20:50.860] Byron E. Rhodes. Peter J. Carino.
+- [01:20:57.710] Jolieste J. Romero, Luke J.
+- [01:21:02.670] Dever, Anuj R. Sursaker, Athena T. Dinn.
+- [01:21:12.420] Kaden M. Smith, Linnea C. Forsberg, Amelia R. Snyder,
+- [01:21:22.820] Maria A. Grafov, Ian C.
+- [01:21:27.700] Stewart, Allen Humm, Michelle R. Swetzel, Luke J.
+- [01:21:39.030] Hess, Jonathan T. Swift. Bobby D. Owls.
+- [01:21:46.730] Rebecca J. Van Vliet. Major B. Kent.
+- [01:21:53.340] Michael C. Whelan. Frank Min-Gi-Yu Kim.
+- [01:22:00.720] Jaden E. Young. Nicholas D. Madonna.
+- [01:22:07.710] From the 6th company, George K.
+- [01:22:12.980] All, Liam G. McInerney, Josephine T. Bower, Luke T.
+- [01:22:21.270] Nester, Hayden R. Belcher, Brandon D.
+- [01:22:27.670] Pelletier, Joseph P. Chase, William A. Robinson.
+- [01:22:37.990] Zenni Chow, William M Schlepper, Keelan M Daly,
+- [01:22:47.680] Benjamin G Snyder, Joshua D Dowdy,
+- [01:22:54.160] Jocelyn K Shown, Joshua A Escovedo,
+- [01:23:01.860] Cameron D Smith, Delaney K Feeney.
+- [01:23:08.660] Christian K. Yoon.
+- [01:23:11.750] Luke E. Garner from the 7th company
+- [01:23:17.720] Everett C. Andrews. Jeremiah A.
+- [01:23:22.750] Gilbert Daniel Alexander Angalu Alexandra G. Hunsamer
+- [01:23:31.240] Luke G. Arts Joseph L. Hurt
+- [01:23:37.340] Sean R. Barryus Peyton A. Jankowski Evan S.
+- [01:23:45.120] Roderick Alexandra A. Kwasniewski Martel
+- [01:23:52.000] L. Carruthers Johanna K.
+- [01:23:57.820] Lim Alex M. Conway David Lin
+- [01:24:05.690] Connor W. Delahunt Porter J. Markel
+- [01:24:12.300] Pierre-Louise G. Desobland Davina D.
+- [01:24:18.260] Mather, Yvonne Y. Fu, Emily F. Mezzanisi,
+- [01:24:27.320] Connor P. Gerard, Nicholas A. Munoz, Jenna H.
+- [01:24:34.660] Han, Colin M. Ramos Julia L.
+- [01:24:41.900] Ricky Carson T. Shane Anthony T. Kuvec, Tyler S.
+- [01:24:52.570] Zickler, Nico T. Laurel, Emiliano
+- [01:24:59.090] Torres Valencia, Jonathan Lee, Caleb M. Walker, Tara N.
+- [01:25:09.540] Mahoney, Jason R. Whittaker.
+- [01:25:15.380] Troy M. Myers, Patrick M. J. Wilson, Justin N.
+- [01:25:24.380] Reed, from the 8th company, Clarice Joy B.
+- [01:25:30.980] Absalon, Riley A. Rose, Alyssa E. Bias.
+- [01:25:38.500] Aurora Raquel Sendable. Tatiana C. Bovarnick.
+- [01:25:46.200] Jacob F. Shepman. Charles R. Francis Coney.
+- [01:25:53.730] Lana B. Schmidt. Jacob W. Frick.
+- [01:26:00.110] Emma Ann Singo. Liliana D. Gemma.
+- [01:26:07.660] Abdon Augusto De Jesus, Viva Tejada.
+- [01:26:13.250] Kayla E. Gibbons. Katherine A. Weaverling.
+- [01:26:19.390] Santiago Grisales Arboleda. Darby E. Whalen.
+- [01:26:26.140] Xavier M. James.
+- [01:26:29.010] From the 9th company, George W. Fulcato Jr. Dahlia
+- [01:26:37.230] M. Kilgore Samantha L. Bollinger David H. Kreidler Titan A.
+- [01:26:47.140] Case Herbert E. Lacey III
+- [01:26:53.680] Blakely J. Kremer William R. Lane
+- [01:27:00.220] III Milano, Crespo, Perez.
+- [01:27:05.320] Jennifer T. Luong, Zachary J. Kutney, Thomas I.
+- [01:27:13.430] McNeu V, Alyssa J. Daly, Zachry J. Meyer,
+- [01:27:23.540] Keith R. Edinger,
+- [01:27:27.100] Elizabeth L. Rainier, Mitchell B.
+- [01:27:31.770] Fisher. Nazir W. Rogers, Benjamin A.
+- [01:27:38.640] Grieve, Myla J. Romero, Haley R. Harris, Mackenzie R. Ruge,
+- [01:27:50.910] Aiden J. Hogan, Gil A. Sahagan III, Andrew R. Jones.
+- [01:28:02.040] Jacob A. Swanner, Benjamin P. Keenan, Alexander R. Trinidad,
+- [01:28:12.540] Eric Mason Lindsay Jr., Jaden T.
+- [01:28:17.900] Washington, from the 10th company,
+- [01:28:25.970] James P. Arnold, Joseph E. Ooster.
+- [01:28:32.390] Jaden G. Browning, Nathaniel J. Poovey Jr., Andrew K.
+- [01:28:42.340] Bowie, Jordan Leo De Jesus Quiles,
+- [01:28:48.670] Trevor W. Burgess, Charles E. Rulinson,
+- [01:28:55.360] Jessica A. Cervantes Ryan M. Schleicher Matthew S. Joe,
+- [01:29:05.490] Parvathi Shankar, Tyler E. Cox, Karina M. Skidmore, Miles D.
+- [01:29:17.450] Evans, James C. Stubbers, Tyron L. Francis Jr.,
+- [01:29:25.570] James Henry Thomas III, John B. Griegel.
+- [01:29:32.000] Benjamin R. Twainy, Hannah N.
+- [01:29:37.780] Han Kim, Creighton J. Ward, Guy Alexander Jacob,
+- [01:29:46.320] Sonny J. Watkins, Joshua A.
+- [01:29:51.810] Konderhaunt From the 11th Company. Leanne P.
+- [01:29:57.530] Beckman Miller R. Lambert Aiden J. Baer
+- [01:30:06.040] Emma G. Mortensen Dayton E. Bottom Ramon Mendoza
+- [01:30:15.420] Evan A. Brown Zoe M. Moore Gavin M. Buchanan
+- [01:30:25.600] Joseph J. Moragia, Noah M. Chavez, Sarah A.
+- [01:30:35.380] Owens, Jackson R. Ferch, Maxwell T. Pastel, Sebastian A.
+- [01:30:44.970] Gordon, Alexa N. Riddle, Amin K.
+- [01:30:50.930] HESSAAAAAAAN. Thomas A. Scully, Lauren I.
+- [01:30:58.010] Ledner, Bowen S. Shuttelworth, Miabella Martinez.
+- [01:31:07.690] Nathan C. Smith. Hannah L. McCarthy.
+- [01:31:16.250] Tyler J. Sweatt. Rachu O. Malabua.
+- [01:31:23.720] Embiidi B. Williams, Jr. Jamison Maisel Meyer.
+- [01:31:31.950] From the 12th Company, Apollo Steve Urcham.
+- [01:31:37.650] Connor M. Munson, William L. Camp,
+- [01:31:44.010] Trenton X. Parker, Tyler T. Casey, Joseph A.
+- [01:31:51.920] Payton, Naomi Chow Liam A.
+- [01:31:58.640] Pajames Christopher R. Kordner Carson R. Ranune
+- [01:32:07.390] Julia M. Davidson, Nicole J.
+- [01:32:11.960] Rosenfeld, Kavon R. Davis, Caroline C.
+- [01:32:19.420] Thoroughby, Isaru Kalana B.
+- [01:32:23.950] Ekenyaka, Mariela G. Barreira, Paulina I.
+- [01:32:31.390] Finn, Brayden P. Walker. Kenneth J. Johnson.
+- [01:32:39.940] Ryan T. Zhang. Jonathan S. Kim.
+- [01:32:46.430] From the 13th company, Shaquille A. Aranis.
+- [01:32:53.420] Vincent S. Kim, Owen J.
+- [01:32:57.300] Beasty, Charles M. Creel, Simon E. Ferger, Landon C.
+- [01:33:08.680] Crewer, Payne T. Carr, Vera E. Martinez, Russell S. Clark.
+- [01:33:21.050] Mae E. McConkey. Anthony J. D'Angelo.
+- [01:33:28.570] Darice Salt-Morton. Ethan A. De La Garza.
+- [01:33:35.700] Benny J. Nolan. Emma E. Driscoll.
+- [01:33:42.440] Sean T. Ostrosky. Brett P. Demay.
+- [01:33:49.690] Brandon T. Brouse. Caroline A. Eggert.
+- [01:33:56.180] Augustus L. Reed. Ethan M. Gamble.
+- [01:34:02.950] William L. Swent. Isaac W. Graylin.
+- [01:34:10.150] Emmanuel Tavarez. Grace C. Huber.
+- [01:34:16.940] Emily Arbella. Owen E. Huntington.
+- [01:34:24.540] Alexander C. Vester. Maya L. Kessner.
+- [01:34:30.700] Henry S. Williams. Luke S. Kim.
+- [01:34:37.250] Quinton J. Wright. Peter J. Lee.
+- [01:34:44.170] From the 14th Company, Sebastian R. Allen.
+- [01:34:50.550] Thomas Q. McBride. Maharika X. Archuleta.
+- [01:34:57.130] William L. McCrate. JD Bankston.
+- [01:35:03.490] Renee M. Murphy. Javon M. Bhutan.
+- [01:35:09.400] Alyssa J. Perando. Lauren E. Bryant.
+- [01:35:17.430] Michael A. Ponenti. Matthew F. Crotty.
+- [01:35:24.070] Emma G. Rachendale, Martha G. Fields, Margaret K.
+- [01:35:31.840] Shuler, Daba K. Fofana, Anthony D.
+- [01:35:38.650] Swanner, Isaac S. Fraley, Ryan D.
+- [01:35:45.200] Swanson, Amanda G. Graziano.
+- [01:35:51.130] From the 15th Company, Charlotte M. Urguay.
+- [01:35:57.710] Christopher R. Jones II. Keegan S. Caldwell.
+- [01:36:04.460] Daniel T. Lafar. William A. Champagne.
+- [01:36:10.630] Elizabeth J. Lee. Brianna L. Trinamay.
+- [01:36:17.410] Alexander Lu. Jada D. Cortez.
+- [01:36:23.540] James E. Lyon. Zane G. Day.
+- [01:36:31.190] Alexander S. Mamula, Abigail C.
+- [01:36:36.920] Greenholtz, Liam M. McCarthy, Sarah Beth E. Joyner, Slade A.
+- [01:36:46.770] Merck, Victoria H. Lisa Elizabeth D.
+- [01:36:53.280] Myer Vinbar Joshua J. Milburn Griffin R. Martinez.
+- [01:37:06.020] Finian C. Prescott. Stephanie T. Milvane.
+- [01:37:12.750] Reid E. Romo. Luke J. Morley.
+- [01:37:19.280] Andres Macan Santana Pacheco. William M. Nguyen.
+- [01:37:26.960] Daniel Y. Shin.
+- [01:37:29.800] Aiden T. Patel, Lauren E. Steinberg, Zachary A. Palavanda,
+- [01:37:41.290] from the 16th Company, Nolan R. Barber, Logan D.
+- [01:37:48.960] Point, Lindsey E. Bysha, Poonrappi Mark. The key.
+- [01:37:57.370] Nicholas C. Borroneo, Timothy J. Rau,
+- [01:38:03.990] Hansen Chang, Waswa E. Robbins,
+- [01:38:10.500] Thomas P. Christie III, Bradrick E. Rushton Henry C.
+- [01:38:19.710] Fry Nicholas J. Summers Bradley J. Glass
+- [01:38:27.600] Shane R. Seifer. Arianna J. Gomez.
+- [01:38:34.420] James B. Tadlock. Jacques X. Gayome.
+- [01:38:42.120] Daniel M. Nunuevo. Michael R. Heller.
+- [01:38:48.980] Amanda R. Zanetti. Liam M. Henderson.
+- [01:38:56.450] Nicholas A. Zolovec. Justice. S-E-Hood.
+- [01:39:02.650] From the 17th company, Collin S. Andrews.
+- [01:39:10.500] Joseph W. Kapsakevich Katerina A. Chalias
+- [01:39:17.600] Katherine V. Kelly Tierza D. Daniel Caleb R. Katrakis
+- [01:39:27.750] Dayton L. Dalvisio Gabriella M. Kroll
+- [01:39:34.530] Connor P. Farrow Austin L Lockhart.
+- [01:39:40.470] Nicholas P Gibbons. Martin N Lopez.
+- [01:39:47.500] Elijah James Hagens. John S Lundy. Aiden J Hammons.
+- [01:39:57.900] Rudy Radon M Obina. Justin C Hawley.
+- [01:40:05.590] Charles J. Olsen, Grant J.
+- [01:40:10.340] Hoo, Sarah M. Rosenberg, Alexander P. Howard,
+- [01:40:19.460] Katherine T. Shaughnessy, Thomas T. Johnson,
+- [01:40:26.060] Blakeman R. Shaw, Jacob Y. Kim.
+- [01:40:33.540] Jackson W. Simmons. Emily Rose S. Kasanovic.
+- [01:40:40.780] Manuel A. Smith. Matthew G. Kasiri.
+- [01:40:48.040] Jerry A. Yelonek Jr. Lola M. Leone.
+- [01:40:56.010] From the 18th company, Jodiel I. Arana.
+- [01:41:02.880] Ernst F. McDonough II. Zachary T. Barnum.
+- [01:41:09.240] John M. McNicholas. Joshua M. Clark.
+- [01:41:16.050] Megan M. Murphy. Addison Parker E. Davis.
+- [01:41:22.930] Gavin C. Nielsen. James M. DeJong.
+- [01:41:30.220] Brandon H. Horton. Sylvia R. Eklund.
+- [01:41:36.630] William C. Peters. Axel W. Fisher.
+- [01:41:42.600] Isabella G. Ramosco. Hunter M. Gauley.
+- [01:41:49.710] Brent L. Self. Charlotte V Hall.
+- [01:41:56.450] Seth V. Talbert, Kendall R. Heber, Hannah B.
+- [01:42:04.860] Wade, Alexander B.
+- [01:42:08.950] Hoot, John H. Walsh, James W. Jewel III,
+- [01:42:17.690] Edmund W. Yip, Thomas M. Chris and Izzy.
+- [01:42:25.000] From the 19th company, Johann RF Werke.
+- [01:42:32.740] Jonathan and Linville. Abigail J. Artman.
+- [01:42:39.830] Ryan L. Lowe. Sophia I. McGillen.
+- [01:42:47.010] Tyler T. Monkey. Andrew M. Kyrie-Aleysin.
+- [01:42:54.530] Grace E. Martin. Quad in the coffer. Marcel K.
+- [01:43:02.480] Perry's all the second. Jackson S. Davis.
+- [01:43:09.220] Myla M. Reardon. William J. Dettmer.
+- [01:43:16.630] George. Jay Ruiz. Lian P. Golden.
+- [01:43:23.500] Jared A. Shawd. Riley C Haugen Nathan M. Stephens.
+- [01:43:34.150] Voices Hernandez. Nathan G. Sukina.
+- [01:43:41.050] Ava F. Huber.
+- [01:43:45.080] Cameron A. Sommers. Brooks J. Kurchin.
+- [01:43:51.720] William F. Walsh. Alexander D. Kirkland.
+- [01:43:59.240] Joshua J. Ward. Jayden X. Leonard.
+- [01:44:06.400] Robert I. Simon. Mitchell S. Lewis.
+- [01:44:13.200] From the 20th Company. Brianna L. Baker.
+- [01:44:21.030] Lindsay M. Linville. Seth W. Baylor.
+- [01:44:27.860] Logan E. Lewick. Anna G. Cherian.
+- [01:44:34.340] Miguel A. Matute. Danielle I. Gine.
+- [01:44:41.850] Melinda B. Nesset. Grant D. Glasgow.
+- [01:44:48.690] Eric M. Nordquist. William S. Goldsberry.
+- [01:44:55.340] Emily K. Tannenbaum. Kellen Ogravede Peralta.
+- [01:45:03.160] Luke A. Terrell. Caleb L. Gross.
+- [01:45:09.540] Richard B. Verrier IV. Jenna Rain Hernandez.
+- [01:45:16.450] Noah B. Ward. Enoch J. Kim.
+- [01:45:22.770] From the 21st Company, James R. Adams.
+- [01:45:29.270] Keanu R. Manuel. Micah H. Evans.
+- [01:45:35.980] Michael B. Marconi. Natanis T. Gaver.
+- [01:45:42.850] Sarah C. Moore. Ellen O. Ha.
+- [01:45:49.260] Ayotoye Ogunto-Ashay. Charlotte A. Hill.
+- [01:45:57.810] Donald O. Povans. Michael K. Kalilow.
+- [01:46:04.310] Peyton M. Pontiff, Christian C.
+- [01:46:09.150] Kear, Lane M. Rivera, Daniel S.
+- [01:46:16.050] Kim, Christopher E. Robertson, Joshua J. Kim.
+- [01:46:24.680] Jordan L. Sanders, Joseph R. Libby,
+- [01:46:31.340] Addison G. Schofield. Cody S. Little.
+- [01:46:37.820] Carson J. Sloat. Dominic J. Madigan.
+- [01:46:44.570] Murphy M. Smith. Peter T. Mitchell.
+- [01:46:50.660] Fabiarta Sariana. Mackenzie B. Moore.
+- [01:46:58.410] From the 22nd Company, Yvette Ayala.
+- [01:47:05.150] Tristram R. Moore Jr. Charles E. Brady.
+- [01:47:11.880] Sydney A. Bowery.
+- [01:47:15.190] Angelino Y. Chang. Vanessa E. Munoz.
+- [01:47:21.700] Benjamin C. Dabick. Doris C. Nelson.
+- [01:47:27.950] Jack T. Finnegan. Austin D. Payne.
+- [01:47:34.020] Colby K. Gross. Kaitlyn Cabillo Pepin.
+- [01:47:40.710] Anthony J. Ha. Ryan J. Rajapaksha.
+- [01:47:47.280] Sean E. Harris. Andrew L. Rugg.
+- [01:47:53.900] Jeremy R. Heaton. Maurice Paolo B. Salyon.
+- [01:48:00.640] Bennett J. Huffman. Alex D. Sanchez.
+- [01:48:06.690] Cecilia B. Ilep. Jackson P. Shuldis.
+- [01:48:13.430] Yunsa Zhang. Sophia M. Stocker.
+- [01:48:18.960] Cruz C. Kaufman. William B. Webb.
+- [01:48:25.110] Elizabeth A. Kelly. Abigail H. Yoes.
+- [01:48:31.470] Brandon J. Kuhm, W.
+- [01:48:35.370] Forrest York, Rodrigo Milan, from the 23rd Company, Brown H.
+- [01:48:45.390] Bedard, Jadarello Mondrio, Joseph B.
+- [01:48:51.860] Camuso, Cole M. M. Phillips, Caden R. Carey Joshua D.
+- [01:49:01.850] Potts, Darius D. Dix, Jaheem A.
+- [01:49:08.150] Scott, James P. Flanagan Jr., Alexis N.
+- [01:49:14.940] Smith, Madison N.
+- [01:49:18.380] Gamble, Bennett M. Stenberg, Andrew H.
+- [01:49:25.040] Hare, Turner B. Stepp. David P. Hill.
+- [01:49:32.520] Victoria A. Travino. Conal T. Hospitales.
+- [01:49:39.210] Jordan R. Urea. Jillian B. Hu.
+- [01:49:45.910] Connor J. Walcott. Camden C. Johnson.
+- [01:49:52.330] John Luke Warner. Abigail M. Kim.
+- [01:49:58.130] From the 24th company, Kylie E. Baddard, Thomas F. Maldonado,
+- [01:50:07.590] Joseph P. Bell, Joshua A. McGill,
+- [01:50:12.950] Muhi Ben Mefta, Mimi W. McHugh, Connor M. Cranfield.
+- [01:50:24.230] Caroline M. Meadows. Leonard Cummings III.
+- [01:50:31.460] Dennis J. Moynihan III.
+- [01:50:35.160] John G. Freeman. Ryan M. O'Day.
+- [01:50:41.320] Brianna N. Gibson. Riley J. Reathman.
+- [01:50:48.440] Thomas L. Goldenberg. Robert M. Thompson Noah J.
+- [01:50:56.490] Harding, Mabel E. Urrutia,
+- [01:51:02.270] Deshawn L. Hardin-Peel, Margaret D.
+- [01:51:07.870] Ward, Lillian S. Wong, Solomon A. Wolda Selassie.
+- [01:51:15.990] Thomas F. Inman. Caroline E. Zickler.
+- [01:51:22.770] Jeremiah Eskem, Anthony M. Zumbar, Nathan S.
+- [01:51:31.040] Lee, from the 25th Company,
+- [01:51:37.000] Daniel Hamer, Julamber M. Maigue, Isaac E. Abbott,
+- [01:51:47.000] John L. Mandish, Owen S. Archer. David A. Mendoza.
+- [01:51:56.510] Thomas D. Chase Jr. Isabel T. Navalio.
+- [01:52:04.350] Riley W. Clautis.
+- [01:52:56.170] Austin B. Nolan.
+- [01:53:01.360] Peter C. DeYoung. Copeland T. Nowell.
+- [01:53:07.630] Cameron R. Delaney. Blake A. Simmons.
+- [01:53:13.920] Kaylee E. Dionne. Emily K. Spencer. Marlee S. Duncan.
+- [01:53:23.190] Pedro L. Suarez-Olar III. Eric A. Eads.
+- [01:53:32.300] Regis Alvarez. Nicholas J. Edwards.
+- [01:53:38.580] Himat Eswala. Aidan J. Jibo.
+- [01:53:44.970] Jacob P. Welch. David E. Graham.
+- [01:53:51.080] From the 26th Company, Robert O. Booth.
+- [01:53:57.360] Jenna M. Geladek. Thomas M. Cho, Justin A.
+- [01:54:04.700] Kirkpatrick, Evan T. Conway, Orion J. Kolkowski,
+- [01:54:13.520] Christopher J. Crane, Christian T. Landis,
+- [01:54:20.370] Frank A. Davis Jr., Scott F. Lyons, Harlan G.
+- [01:54:29.990] Nolan R. Meketian, Benjamin D. Eicholtz.
+- [01:54:37.450] Kieran E. V. McRae, Robert A. Flores.
+- [01:54:46.210] Gabriel Joachim E. Santiago. Finley C. Golden.
+- [01:54:53.970] William D. Schneider. Isabella P. Gorzinski.
+- [01:55:00.990] Yassin M. Spanta. James D. Griffin.
+- [01:55:07.510] Sawyer C. Stevens. Eli C. Jones.
+- [01:55:14.520] Justice S. Walters.
+- [01:55:17.760] Joseph S. Kelsey. Alexandra R. Wersinski.
+- [01:55:25.100] Mia N. Lasanti. Allison J. Wright.
+- [01:55:31.450] Olga P. Lopez. Ashley P. Yee.
+- [01:55:37.850] Maggie Mahoney. Patrick C. Zowizlat.
+- [01:55:44.620] Ezekiel C. McKenney From the 27th Company
+- [01:55:51.740] Chamonix E. Bess Connor M. Malinowski T.
+- [01:55:59.630] Cohen Bruner Harrison J. Morrow
+- [01:56:06.530] Zachary M. Fuchsluger David M. Niske
+- [01:56:14.190] Savannah I. Goska. Samuel R. Norville.
+- [01:56:21.510] Quinn M. Gonzalez. Madison L. O'Donnell.
+- [01:56:28.180] Bianca M. Harris. Alfonso D. Puma.
+- [01:56:34.660] Caroline A. Irwin. Brian A. Strickland.
+- [01:56:41.610] Katelyn S. Johnston Kelly J. Sullivan,
+- [01:56:48.550] Mallory F. Jordan, Ty M. Webb,
+- [01:56:56.600] Kevin Kang, George E. L.
+- [01:57:00.930] Wright, Jack W.
+- [01:57:04.790] Lang, from the 28th Company, Ivan D. Aguirre.
+- [01:57:12.980] Bradley A. Leibel. Jack P. Albrecht.
+- [01:57:19.540] Mia S. Machado. Peter J. Ashes. Taran E. Madison.
+- [01:57:29.320] Grant M. Bartuska. Indiana M. Mitsunaga.
+- [01:57:36.310] Thomas A. Irwin. Abigail B. Palaia.
+- [01:57:43.340] Nola Nethilbi. Cole E. Petrusia. Matthew M. Gastitis.
+- [01:57:53.470] Tanner G. Russell. David M. Hickson.
+- [01:58:00.410] Lev Solov. Rachel Huang.
+- [01:58:09.730] Sadie M. Skinner. Joshua P. Huner.
+- [01:58:16.560] Randy B. Terry II. Kara L. Hunt.
+- [01:58:23.320] Eric I. Tingle. Madeline M. Kleppenstein.
+- [01:58:30.050] Son M. Tran. Avery E. Konekne. Tanner J. Wadovich.
+- [01:58:39.930] Nicholas H. Layton, Nicholas J. Zito, Brandon D.
+- [01:58:49.000] Lee, from the 29th Company, Aiden S.
+- [01:58:55.970] Aguilar, Michelle and Angelou D.
+- [01:59:00.820] Mazzo, Andrew B. Bailey.
+- [01:59:06.240] Madeline A. Myers. Sydney G. Baer.
+- [01:59:13.520] Jason Q. N. Ryan K. Bassford. Mary C. Root.
+- [01:59:23.430] Connor J. Breen. Katherine L. Ryan.
+- [01:59:30.240] Andrew J. Cabral. Zander D. Speese.
+- [01:59:36.970] Justin T. Carl. Katherine E. Vardado.
+- [01:59:44.320] John T. Casano-Boris, Jr. Matthew Wang.
+- [01:59:51.400] Richard D. Crockett III. William M. Wirt.
+- [02:00:00.090] Edelman, Nicholas K. Wiedek, AJ Hinton, Andrew B.
+- [02:00:09.640] Wilkinson, Mohamed A.
+- [02:00:12.620] Jerby, Ryder J. Ediarte, Katherine B. Kadima,
+- [02:00:22.310] Miriam A. Usel Lazo Tatum L. Kelly
+- [02:00:29.440] From the 30th company, Samantha A. Abo.
+- [02:00:36.370] Ethan E. Conar. Zoe J. Adama.
+- [02:00:42.840] Benjamin D. Leprod. Ian A. Aguilar.
+- [02:00:49.320] Olivia M. Lekovitch. Natalie A. Bowe.
+- [02:00:56.200] Georgia B. L. Martin. Elliot A. Brandecourt.
+- [02:01:03.040] Marissa L. Meyer. Michael A. Casas.
+- [02:01:09.250] Thomas F. Morris III. Cameron A. Colavito.
+- [02:01:17.060] Brandon P. Munnelly. Cameron T. Delay.
+- [02:01:23.880] Chelsea A. Murphy. Keeshawn J. Dolford.
+- [02:01:31.350] Elijah A. Perry. Ze'ad S. Elgandy.
+- [02:01:39.040] Matthew Z. Purvis. Bridget A. Hong.
+- [02:01:46.060] Lysander Renstrom. Joseph T. Hudson.
+- [02:01:53.450] Ryan P. Schumann. Ryan W. Kim.
+- [02:02:00.370] Bridget C. Sheridan. Peter E. Lasky.
+- [02:02:07.870] James P. Serjadonara. Timothy H. Lee.
+- [02:02:15.380] Lucas B. Weber.
+- [02:02:18.940] Fenbar J. McCosker. Michael T. Whitehouse.
+- [02:02:25.990] Irvin Moreno, Owen R. Wise, Jagan D. Nadiol.
+- [02:02:36.070] From the 31st Company, Tarek A.
+- [02:02:40.550] Alhazamit, Hannah M. Phillips, David E. Avila, Takeshi A.
+- [02:02:50.460] Ross, Kale Krebs. Daniel E. Taylor.
+- [02:02:58.600] Thomas A. DeVito. Jack A. Hubert.
+- [02:03:05.260] Savannah L. Holt. Nicholas A. Valdivieso.
+- [02:03:12.790] Jordan F. Hutchinson. Joshua J. Whitaker.
+- [02:03:18.970] Stephen A. Hutmack. Nicholas D. Zaifman, Ian J.
+- [02:03:26.980] Wong, from the 32nd Company, Eva E. Blavitt.
+- [02:03:34.430] Brandon I. Johnson. Olivia G. Calero.
+- [02:03:41.190] Samuel T. Jones. Owen C. Carrillo.
+- [02:03:47.490] John P. Kelly III. Caleb Joel N. Chan.
+- [02:03:54.750] Garrett L. King. John W. Dallas.
+- [02:04:01.150] Annie J. Lemelin. Jaden C. Evans.
+- [02:04:07.660] Joseph R. Lusby, Christina G. Flores, Luke D.
+- [02:04:16.590] Lynch, M. Storm-Gonzalez, Isabella N.
+- [02:04:22.760] Marchi-Setchon, Peyton Ohio,
+- [02:04:28.580] Alan T. Merrill Jr., Hannah E. Hoover.
+- [02:04:35.880] James A. Millett, Ariel M. Hudson, Robert A.
+- [02:04:44.210] Montoya, Robert J. Kittleberger, Elizabeth Marsha Perry, Ethan S.
+- [02:04:54.480] Korowitz, Tiffany A. Shields, John J. Koom,
+- [02:05:02.160] Kayla V. Sim. Matthew J. Lexa.
+- [02:05:08.880] Katelyn J. Stout. Gavin A. Livingston.
+- [02:05:15.690] Tara M. Thompson. Alexander L. Mills.
+- [02:05:22.540] Lois Y. Um. Michael P. Murphy.
+- [02:05:29.580] Ty C. Van Winkle. Sidney G. L. Niddle.
+- [02:05:37.230] From the 33rd Company. Harrison J. A. Beckwith.
+- [02:05:44.840] Noah G. Newez. Jacob M. Darrow.
+- [02:05:51.580] Wondita C. Nugroho. Joshua C. Davis.
+- [02:05:58.910] Sierra D. Paoli. Sadie J. Iting. Anthony A. Penn.
+- [02:06:08.900] Joyce Fung. Renal J. Spears. Victor I. Gallardo.
+- [02:06:19.010] Olivia Zhang. Kalele E. Correa.
+- [02:06:23.600] Oh from the 34th company Rowan M. Brown.
+- [02:06:32.910] Corianna Jensen. Daniel G. Donovan.
+- [02:06:39.150] Timothy C. Jung. Ryan T. Garber.
+- [02:06:45.890] Christopher G. Kim. Timothy I.
+- [02:06:50.360] Hill. Jaden J. Krister.
+- [02:07:13.900] Jaden J. Krishnir.
+- [02:07:22.950] There's no AV, no. He didn't take the diploma?
+- [02:07:27.370] Male Speaker: I don’t know.
+- [02:07:50.400] Timothy, I Hail.
+- [02:07:53.450] (applause)
+- [02:07:59.660] Jaden J. Krischter.
+- [02:08:03.770] Robert P. Holbrook. Yasmin A. Latham.
+- [02:08:11.470] Ryan M. Hollenbach. Webster H. Lowe, Ryan C.
+- [02:08:20.500] Hotelli, Noah Nazee Mufaraj, Catherine A. Joukowsky.
+- [02:08:33.870] Skye J. Locktowen.
+- [02:08:38.150] Sangpaseya Unsamon. John T. Lemke.
+- [02:08:45.770] Angela M. Santos. Savannah J. Lewis.
+- [02:08:53.360] Dylan G. Stedley. Emma M. Lucas.
+- [02:09:00.740] Ethan J. Sullivan. Akshad Mayarashwari.
+- [02:09:07.710] Linden A. Taylor III. George H. Mane.
+- [02:09:15.550] Henry C. Tolker III. Alec D. Malone.
+- [02:09:23.580] Luke A. Wagner. Scott A. Martinez.
+- [02:09:29.410] Is Mitchell John White. Jessica G. McKenzie.
+- [02:09:38.080] Ellie S. Wiltsie Hyatt. Sarah L. Parika.
+- [02:09:46.140] From the 35th Company, Kennery. R. Adkins.
+- [02:09:53.150] Ian J. Ratzberg. Max W. Autry.
+- [02:10:00.150] Nora E. Rosson. Isaiah P. Drake.
+- [02:10:06.990] Inaki Romero-Garza. Daniel S. Fellows II.
+- [02:10:14.880] Amelia A. Sachs, Nathaniel W.
+- [02:10:20.280] Harding, Logan T. Scotto, Miracle E. Haynes, Grant W.
+- [02:10:30.480] Swier, Thomas V. Joseph IV, Michael J. Urie III.
+- [02:10:40.570] Kate H. Lee. Jillian J. Valdez. Connor J. McMaster.
+- [02:10:50.710] Alec W. Villarreal, Declan M. Moriarty, Naila E. Williamson.
+- [02:11:02.340] Genevieve E. Mohaw.
+- [02:11:06.010] From the Thirty-Six Company, Paul Reed Yagawa.
+- [02:11:15.000] Ethan J. Nguyen. Deacon Brock.
+- [02:11:21.780] Juan S. Ortiz Perez, Ulysses E. Buzen,
+- [02:11:30.020] Luke H. Parker, Elise J.S. Chapman, Noel L.
+- [02:11:38.320] Rubiano, Jackson D. Collier, Andre T.
+- [02:11:46.200] Sice. Michael A. Cullen.
+- [02:11:51.930] Hannah E. Sarver. Kalam P. Dupon.
+- [02:11:59.610] Conrad L. Schutz. Jessica L. Felix.
+- [02:12:06.810] Stephen H. Smith. Christian G. Freymark.
+- [02:12:14.330] Luke F. Sullivan. Josiah G. Glenn.
+- [02:12:21.810] Richard R. Swung the second, David S.
+- [02:12:27.570] Graves, Benjamin T. Valdez, Alexis S.
+- [02:12:34.910] Hamilton, Joshua M. Walker, Kyle S.
+- [02:12:42.260] Jacob, Harold E. Watson, Thomas P. Jennings.
+- [02:12:52.910] Johnson Jen, Samuel J. Curley.
+- [02:13:02.950] Guillaume P. Laforet.
+- [02:13:09.090] Charles R. McLaughlin. Katelyn G. McParter.
+- [02:13:20.400] Thomas B. Noonan III.
+- [02:13:26.920] Jason B. Perez, Cameron S.
+- [02:13:34.090] Ross, and Philip G. Singh.
+- [02:13:41.880] (all names spelled phonetically)
+- [02:13:55.160] (applause)
+- [02:14:08.440] (background chatter)
+- [02:14:21.270] Male Speaker: All right. You guys ready?
+- [02:14:24.430] (cheers and applause)
+- [02:14:27.460] Hey, let's see if Herb can do this right today.
+- [02:14:29.550] Ensign Herb Lacey, the class president of 2025.
+- [02:14:34.760] (applause)
+- [02:14:52.270] Herb Lacey: Good afternoon, Vice President Vance,
+- [02:14:54.630] Secretary Phelan,
+- [02:14:55.950] General Smith, Admiral Kilby, Vice Admiral Davids,
+- [02:14:59.270] distinguished guests, family, friends, faculty, staff,
+- [02:15:03.390] and members of our link in the chain,
+- [02:15:05.040] Commander Chikanovich and the Class of 1975.
+- [02:15:08.530] On behalf of the great Class of 2025,
+- [02:15:10.930] I thank you all for sharing this momentous occasion with us.
+- [02:15:13.640] Thank you all your service and how you have
+- [02:15:15.990] and will continue to impact us
+- [02:15:17.830] as we start our military careers.
+- [02:15:20.930] Vice President Vance, sir.
+- [02:15:22.270] If you will please join me on the podium.
+- [02:15:25.170] (applause)
+- [02:15:34.000] Sir, thank you for taking the time
+- [02:15:35.830] to be here with us today.
+- [02:15:37.270] We appreciate all the words you've shared with us.
+- [02:15:39.460] Your insights, not only as our vice president,
+- [02:15:41.630] but as a Marine, are significant.
+- [02:15:43.640] So we will keep them in our minds as we enter the fleet.
+- [02:15:46.660] On behalf of the class of 2025,
+- [02:15:49.030] I would like to present you with this gift.
+- [02:15:51.080] (cheers and applause)
+- [02:16:42.390] Thank you, sir.
+- [02:16:46.200] I have never in my life envied a human being
+- [02:16:49.420] who led an easy life. I have envied great many people
+- [02:16:53.550] who led difficult lives and led them well.
+- [02:16:56.420] Former President Teddy Roosevelt.
+- [02:16:58.850] Living our lives well is something
+- [02:17:00.390] that we always hear about here at the Academy.
+- [02:17:02.760] Earlier this semester,
+- [02:17:03.980] my class was given the opportunity to vote
+- [02:17:05.960] on who would be our honorary graduates.
+- [02:17:08.500] These three individuals have either made great contributions
+- [02:17:10.940] to our class, the brigade, or our country.
+- [02:17:15.280] They have set an example of what living our lives
+- [02:17:17.220] well can entail, no matter what our journey is.
+- [02:17:20.400] I would now like to take the time
+- [02:17:21.830] to recognize our honorary graduates.
+- [02:17:25.500] Our first honorary graduate is Mr. Pierre Duvernay.
+- [02:17:28.410] Mr. Duvernays serves the brigade every day as our –
+- [02:17:32.050] (applause)
+- [02:17:38.170] Mr. Duvernay serves the brigade every day
+- [02:17:40.530] as our fueling station manager.
+- [02:17:42.090] The fueling stations is where McShippen
+- [02:17:43.550] can supplement their diets outside of normal meal
+- [02:17:45.680] times with snacks, protein shakes,
+- [02:17:47.910] and other items that can't be found in King Hall.
+- [02:17:50.380] Upon arriving, you will always see Mr. Duvernay
+- [02:17:53.090] and when you do, he'll be smiling.
+- [02:17:55.330] Every day, he chooses to positively interact
+- [02:17:57.700] with countless McShip. Without his tireless work,
+- [02:18:00.890] we would not have the extra sustenance
+- [02:18:02.350] and energy we love so much.
+- [02:18:05.520] His example not only shows us to take pride
+- [02:18:07.580] in what we do every single day,
+- [02:18:09.130] but also shows how small acts of kindness
+- [02:18:11.510] can positively impact those around you.
+- [02:18:15.020] (applause)
+- [02:18:24.220] Our second honorary graduate is Major Jeff Ball,
+- [02:18:26.940] a Purple Heart recipient
+- [02:18:28.280] who embodies our core value of courage.
+- [02:18:32.100] (applause)
+- [02:18:39.220] Major Ball was company commander of Ghost Company,
+- [02:18:41.550] 2nd Battalion, 1st Marines,
+- [02:18:43.260] and was directly involved in the Kabul airport evacuation.
+- [02:18:46.840] His unit played a key role in the evacuation
+- [02:18:49.000] of over 124,000 Afghanis and Americans.
+- [02:18:53.370] He arrived at the Academy in June, 2023,
+- [02:18:56.040] and since then has served as a leadership instructor,
+- [02:18:58.620] a staff platoon commander at Leatherneck in the summer,
+- [02:19:01.030] and as a keynote speaker for our character seminar this spring.
+- [02:19:04.750] In two short years,
+- [02:19:06.040] he has greatly impacted our class and the brigade.
+- [02:19:08.570] By sharing his story with us
+- [02:19:10.040] and providing an example of what we aspire to be as officers.
+- [02:19:13.850] Thank you, sir.
+- [02:19:15.960] (applause)
+- [02:19:23.150] Our third honorary graduate is Ms. Sandra Duplantis
+- [02:19:26.110] and her dog Ziggy.
+- [02:19:27.720] (applause)
+- [02:19:33.610] Our class first met Ms. Duplantis and Ziggy
+- [02:19:36.310] during Cleve summer on a tour of the Naval Academy Museum.
+- [02:19:39.370] In addition to enjoying time away from our detailers,
+- [02:19:41.990] Ms. Duplantis in Ziggy
+- [02:19:43.370] at that moment provided a key morale boost
+- [02:19:45.710] to a rather monotonous and humid summer.
+- [02:19:48.060] She and Zigy can often be seen around the yard
+- [02:19:50.550] during exam periods, plays, and important events
+- [02:19:53.470] that we have shared together as a class.
+- [02:19:55.700] Her impact goes far beyond the extensive work
+- [02:19:57.710] she does for the museum
+- [02:19:58.930] and we are so grateful to have her here.
+- [02:20:01.760] Honorary graduates.
+- [02:20:03.090] Would you please stand to be recognized?
+- [02:20:04.440] We'd like to present you each
+- [02:20:05.650] with a token of our appreciation.
+- [02:20:07.190] Unfortunately, Mr. DuVernay could not be with us,
+- [02:20:09.130] but we appreciate him nonetheless, regardless.
+- [02:20:11.730] If you look to your left.
+- [02:20:14.230] (applause)
+- [02:20:32.460] So once again, please join me in welcoming
+- [02:20:34.800] and congratulating our three honorary graduates
+- [02:20:37.300] to the great class of 2025.
+- [02:20:41.200] (applause)
+- [02:20:49.600] I would also like to thank everyone in this stadium
+- [02:20:51.620] for supporting us throughout our 47-month journey.
+- [02:20:54.200] No one makes it through life alone,
+- [02:20:55.620] and without you all, this moment would not be possible for us.
+- [02:20:58.620] To the active duty staff, thank you for supporting
+- [02:21:01.230] and mentoring us throughout out time here.
+- [02:21:03.220] You have provided an excellent example.
+- [02:21:05.560] To the professors and educators,
+- [02:21:07.180] thank you all the time spent on ensuring we graduated.
+- [02:21:10.330] I speak for many of us when I say the extra instruction
+- [02:21:13.160] was key in our success in making it to graduation.
+- [02:21:17.260] To our link in the chain. The class of 1975.
+- [02:21:20.590] Thank you for being with us
+- [02:21:21.800] every step of the way on our US&A journey.
+- [02:21:24.190] From the time you met us during Plebe summer,
+- [02:21:26.130] to bonds of gold, our commitment dinner,
+- [02:21:28.420] ring dance, or service assignment,
+- [02:21:30.480] you all have shown your unwavering support
+- [02:21:32.310] for our class.
+- [02:21:33.620] We appreciate the effort you have taken to develop us
+- [02:21:36.180] from its shipment to officers in the world's finest military.
+- [02:21:41.410] To the class, the 2027 –
+- [02:21:44.370] (applause)
+- [02:21:52.050] To the classes of 2027 and 2028,
+- [02:21:55.040] please take the time to enjoy the rest of your time here.
+- [02:21:57.170] I promise it goes faster than you think.
+- [02:21:59.160] Your time in the sun for leadership will come.
+- [02:22:01.120] You don't have to get ready if you stay ready, so stay ready.
+- [02:22:03.800] To 2026, you have the reins now.
+- [02:22:07.320] As Dr. Martin Luther King Jr. Said,
+- [02:22:09.270] "'Power without love is reckless and abusive.'"
+- [02:22:12.950] I'd like to think my class
+- [02:22:14.240] did a good job of taking care of you,
+- [02:22:15.860] so ensure you take care of the underclass
+- [02:22:17.650] and take care each other. Remember, leadership can be fun.
+- [02:22:22.350] Peer leadership will be a new challenge for you all
+- [02:22:24.140] to develop as the leaders you want to become.
+- [02:22:27.840] (applause)
+- [02:22:36.600] And now here's my favorite part. To 25, our great class.
+- [02:22:41.260] (applause)
+- [02:22:47.380] I know your families are waiting on me to finish,
+- [02:22:49.380] so I'll try to stick to my three B's.
+- [02:22:51.780] Be bold, be brief, and most importantly, be gone.
+- [02:22:58.480] When I think about us, I think of two quotes.
+- [02:23:01.650] One, our class motto, warrior invictus,
+- [02:23:05.160] meaning death before defeat.
+- [02:23:07.310] And two, a quote from former president Franklin Roosevelt.
+- [02:23:11.600] It is common sense to take a method and try it.
+- [02:23:15.110] If it fails, admit it frankly and try another.
+- [02:23:18.500] But above all, try something. From Plebe summer,
+- [02:23:22.360] where we were told every challenge is an opportunity
+- [02:23:24.950] and we were to rise to it, to sitting in our seats now.
+- [02:23:27.940] As future Naval Academy alumnus,
+- [02:23:29.910] we were dealt an interesting hand of cards.
+- [02:23:32.650] Our leadership didn't want our excuses,
+- [02:23:34.520] they told us to perform regardless, and that we did.
+- [02:23:39.600] From being in companies that faced a new culture
+- [02:23:41.650] due to rearranging the upper class in the brigade,
+- [02:23:43.930] to very temporary in-person PCAs,
+- [02:23:46.490] to the 36 companies shipped with more billets
+- [02:23:48.910] than people to fill them,
+- [02:23:50.210] and so many more challenges we could think of.
+- [02:23:52.470] You name it, the Academy tested us,
+- [02:23:55.100] and we have risen to those challenges.
+- [02:23:58.340] (applause)
+- [02:24:05.790] The goal of these four years, by the bay,
+- [02:24:07.750] is to challenge us in any way possible.
+- [02:24:10.190] In these last four years I think they did a good job of that.
+- [02:24:13.320] Through those challenges, though,
+- [02:24:14.790] we've had a good time or two,
+- [02:24:16.440] whether it was laughing at the small jokes
+- [02:24:18.070] we made as plebs over
+- [02:24:19.270] Plebe summer, attending our infamous Plebe party.
+- [02:24:25.860] Being the first class to do seven shellback as youngsters,
+- [02:24:28.810] our ring dance for many Long Island
+- [02:24:30.690] Thursdays as firsties, through four years,
+- [02:24:34.770] we've made the most of every opportunity
+- [02:24:36.300] to spend time together.
+- [02:24:38.170] So as we commission and life presents us
+- [02:24:40.550] with more of these inevitable challenges,
+- [02:24:42.690] I ask of us two things.
+- [02:24:44.540] One, to keep each other close and always support each other,
+- [02:24:48.100] because simply put,
+- [02:24:49.480] who's going to take better care of us than us?
+- [02:24:51.730] And lastly, to remember Lieutenant Brendan
+- [02:24:53.860] Looney's quote, be strong, be accountable, never complain.
+- [02:24:58.520] These words from Lieutenant Brendan Looney
+- [02:25:00.190] are what are expected of us as we continue on.
+- [02:25:03.140] To try, despite not knowing how to proceed,
+- [02:25:05.390] is the life we're called to live as officers.
+- [02:25:08.110] One of our classmates is leading by example already.
+- [02:25:10.760] One of our own, Riley
+- [02:25:12.070] Clautiste, faced an injury over our last winter break,
+- [02:25:14.970] leaving him unable to walk. Despite facing the unthinkable,
+- [02:25:18.920] he continues to have a positive attitude and never complains.
+- [02:25:22.630] I use Riley as an example,
+- [02:25:24.450] but each of us has a story and a challenge
+- [02:25:27.000] that we have overcome to make it to this point.
+- [02:25:30.200] Many things in this life we cannot control.
+- [02:25:32.670] But we can always control how we respond.
+- [02:25:35.690] The sum of your character is not how many times you fall down,
+- [02:25:38.350] but how many time you're willing to get up and try again.
+- [02:25:42.070] They say we're the best and brightest,
+- [02:25:43.740] so 25, let's prove them right.
+- [02:25:45.700] Because we already let it be known from the beginning,
+- [02:25:48.020] defeat was never an option.
+- [02:25:50.850] I'm excited for our bright future
+- [02:25:52.300] and it's been an honor being your classmate.
+- [02:25:54.380] And I think Kendrick Lamar said this best,
+- [02:25:56.410] because they're not like us.
+- [02:25:59.010] (applause)
+- [02:26:06.040] Thank you all. God bless. Prez out.
+- [02:26:09.590] (applause)
+- [02:26:17.060] Male Speaker: Ladies and gentlemen,
+- [02:26:18.410] as we come to the end of our ceremony today,
+- [02:26:20.580] please rise for the singing of Navy Blue and Gold.
+- [02:26:24.090] ♪ (Graduates singing "Navy Blue & Gold) ♪
+- [02:27:25.880] Male Speaker: Please be seated one last time.
+- [02:27:31.450] From the class of 2026, their class president,
+- [02:27:35.990] (inaudible) Shipman Brian Tobias (phonetic).
+- [02:27:45.820] Brian Tobias: Members of the classes of 2026,
+- [02:27:48.710] 2027 and 2028, please rise.
+- [02:27:53.830] (applause)
+- [02:28:07.550] I propose three cheers for those about to leave us.
+- [02:28:12.100] Hip, hip.
+- [02:28:13.330] Graduates: Hooray!
+- [02:28:14.590] Brian Tobias: Hip, hip.
+- [02:28:15.810] Graduates: Horray!
+- [02:28:17.020] Brian Tobias: Hip, hip.
+- [02:28:18.230] Graduates: Hooray! Please be seated.
+- [02:28:22.300] (applause)
+- [02:28:36.750] Herb Lacey: Class of 2025, please rise.
+- [02:28:40.030] (applause)
+- [02:28:44.480] I propose three cheers for those we leave behind.
+- [02:28:46.770] Hip, hip.
+- [02:28:48.160] Graduates: Hooray! Herb Lacey: Hip, hip.
+- [02:28:49.590] Graduates: Hooray!
+- [02:28:50.830] Herb Lacey: Hip, hip.
+- [02:28:55.730] Graduates: Hooray!
+- [02:28:57.410] ♪ (patriotic band music) ♪
+- [02:29:28.225] (background chatter)
+- [02:29:58.590] Announcer: Spectators in the stands are requested
+- [02:30:00.280] to refrain from entering onto the stadium
+- [02:30:01.980] until the official party has a chance to exit the stage
+- [02:30:04.350] and the Vice Presidential motorcade has departed.
+- [02:30:06.510] Thank you.
+- [02:30:07.750] (background chatter)

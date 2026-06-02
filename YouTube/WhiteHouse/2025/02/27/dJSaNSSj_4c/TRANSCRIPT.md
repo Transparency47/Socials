@@ -1,0 +1,686 @@
+<!-- source: https://www.youtube.com/watch?v=dJSaNSSj_4c -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: dJSaNSSj_4c -->
+<!-- date_published: 2025-02-27T21:05:05+00:00 -->
+<!-- date_accessed: 2026-06-02T02:53:19.114359+00:00 -->
+
+# Transcript: President Trump Holds a Press Conference with Prime Minister Keir Starmer of the United Kingdom
+
+- [00:13.810] President Trump: Thank you very much.
+- [00:16.660] Thank you very much. Great honor.
+- [00:20.190] Today, it's my privilege to welcome the prime minister
+- [00:24.430] of a very special place,
+- [00:27.140] the United Kingdom, to the White House.
+- [00:29.970] Prime Minister
+- [00:31.180] Starmer, you've been terrific in our discussions.
+- [00:34.260] You're a very tough negotiator, however.
+- [00:37.040] I'm not sure I like that, but that's okay.
+- [00:39.970] Very, very special person.
+- [00:41.750] The prime minister and I have gotten off
+- [00:43.210] to an outstanding start.
+- [00:44.510] The US and UK have a special relationship,
+- [00:48.120] very special, really like no other,
+- [00:50.720] passed down through the centuries,
+- [00:53.340] and we're going to keep it that way.
+- [00:55.170] We're going to keep it very strong as it is.
+- [00:58.320] Very importantly,
+- [00:59.660] I was just notified by letter from King Charles
+- [01:03.060] that he's extended through the prime minister
+- [01:06.270] a historic second state visit to the United Kingdom.
+- [01:11.690] And that's a great honor because it's never happened before.
+- [01:14.630] One person has never been extended that honor.
+- [01:18.980] I really do call it an honor,
+- [01:21.070] but it's not for me, it's for our country.
+- [01:23.190] It's respect for our country. So I just want to thank you
+- [01:26.090] and I want to thank King Charles.
+- [01:28.270] Thank you very much, and we accept.
+- [01:31.090] I don't know if the media is going to follow us.
+- [01:32.690] I have a feeling they might.
+- [01:34.300] Okay. Thank you very much. Appreciate it.
+- [01:36.950] I'm pleased to say that the bust of one
+- [01:40.340] of the prime minister's greatest predecessors,
+- [01:42.810] Winston Churchill, is now back in the rightful place
+- [01:46.800] in the Oval Office, and we're very proud of it.
+- [01:50.350] Our meeting today and the various breakout sessions
+- [01:54.740] we had were tremendously productive.
+- [01:56.990] Most importantly, I provided the prime minister
+- [01:59.210] with an update on our efforts to end the bloody
+- [02:02.610] and horrible war in Ukraine with Russia,
+- [02:07.860] which would never have happened if I were president.
+- [02:10.110] That was not going to happen, I promise you that.
+- [02:13.010] After three years of fallacious conflict,
+- [02:15.350] approximately one million Ukrainians
+- [02:18.320] and Russians have been senselessly killed.
+- [02:21.590] But the number I believe is much higher than that.
+- [02:24.030] Countless schools, hospitals, towns,
+- [02:26.070] and beautiful ancient churches
+- [02:27.460] have been absolutely obliterated.
+- [02:30.550] To begin the process of ending this spiral of death,
+- [02:35.140] I had historic back-to-back calls with President Putin,
+- [02:39.210] very successful calls I might add,
+- [02:41.380] and President Zelensky.
+- [02:42.980] My team also spoke with the secretary general of NATO
+- [02:48.830] on numerous occasions, and we're working very hard
+- [02:51.020] to get that war brought to an end.
+- [02:53.820] I think we've made a lot of progress,
+- [02:55.480] and I think it's moving along pretty rapidly.
+- [02:59.620] I want to thank all of the people
+- [03:00.950] that are here that have been working on it.
+- [03:04.970] We'll let you know what happens.
+- [03:08.520] It'll either be fairly soon or it won't be at all.
+- [03:12.170] In addition, this week I met with President Macron of France,
+- [03:15.740] as you know, and held talks with members of the G7.
+- [03:19.810] Tomorrow, the progress toward peace will continue
+- [03:23.500] when President Zelensky visits the White House.
+- [03:26.240] He'll be here tomorrow in the early part of the day,
+- [03:29.160] and we'll be signing a historic agreement
+- [03:31.390] that will make the United States a major partner
+- [03:34.180] in developing Ukraine's minerals
+- [03:36.050] and rare earths and oil and gases.
+- [03:40.920] We have a great understanding.
+- [03:43.770] I think it's going to be great for Ukraine.
+- [03:45.320] We're going to be at the site and we'll be digging.
+- [03:50.440] We'll be dig, dig, digging. Dig we must.
+- [03:53.870] A big utility in New York coined this,
+- [03:55.350] and they used to have a sign,
+- [03:56.620] "Dig we must," and we will be digging.
+- [03:59.690] But much of the European aid to Ukraine
+- [04:02.450] has been sent in the form of loans
+- [04:04.840] for which they expect to be paid back,
+- [04:07.680] and we didn't have that honor under the Biden administration.
+- [04:11.050] He sent money or just sent money after money after money
+- [04:14.710] and never had any knowledge of ever seeing it back,
+- [04:20.130] maybe 300 to $350 billion.
+- [04:24.280] But under the breakthrough agreement, very unusual,
+- [04:27.920] which everyone said was difficult to get,
+- [04:31.280] but it's really very good for Ukraine and very good for us,
+- [04:34.820] the American taxpayers will now effectively be reimbursed
+- [04:38.590] for the money and hundreds of billions of dollars
+- [04:41.200] poured into helping Ukraine defend itself,
+- [04:45.210] which by and of itself is a very worthy thing to do.
+- [04:48.290] We've paid far more than any other country,
+- [04:51.250] and with most of our support, it's been paid in military,
+- [04:56.160] the finest weapons anywhere in the world.
+- [04:59.050] This includes vast amounts of military hardware, ammunition,
+- [05:02.910] and various other things
+- [05:04.570] that we now have to start rebuilding our own stockpiles.
+- [05:08.680] Additionally, the minerals agreement will provide the basis
+- [05:12.590] for a more sustainable future relationship
+- [05:14.970] between the United States and Ukraine,
+- [05:17.660] and thus stimulate the long-term prosperity
+- [05:20.550] that will help the Ukrainians rebuild their country.
+- [05:24.860] It's been demolished, and the ruined infrastructure,
+- [05:30.050] the infrastructure as you know, is in very bad shape.
+- [05:33.390] In just over one month,
+- [05:35.060] our administration has already achieved more progress
+- [05:37.820] toward peace than years in the other administration,
+- [05:41.430] where they did nothing toward peace.
+- [05:43.290] They didn't understand what was happening.
+- [05:46.730] Our approach is basically common sense.
+- [05:49.910] As I said, so many of the things
+- [05:51.440] that we do are based on common sense.
+- [05:54.110] If you want peace, you have to talk both sides.
+- [05:59.070] As I discussed with Prime Minister Starmer,
+- [06:02.410] the next step we're making
+- [06:04.540] is toward a very achievable ceasefire.
+- [06:07.510] We hope that that can happen quickly
+- [06:10.130] because thousands of young people,
+- [06:14.190] in this case, we're not talking about Americans,
+- [06:16.240] we're talking about Ukrainians and Russians,
+- [06:18.270] are being killed every week, thousands.
+- [06:21.800] And it's a rough battlefield. It's a flat piece of land,
+- [06:24.590] and the bullet only stops when it hits somebody.
+- [06:28.140] This week, I saw the reports
+- [06:30.620] and I don't even want to say what they are,
+- [06:34.650] but thousands of people,
+- [06:35.950] young people, young, vibrant people died.
+- [06:39.500] We want to stop that senseless… Should have never happened.
+- [06:43.830] This will lay the groundwork for a long-term peace agreement
+- [06:46.540] that will return stability to Eastern Europe
+- [06:49.540] and hopefully ensure that such a terrible war
+- [06:52.220] will never happen on European soil
+- [06:54.650] or for that matter anywhere again.
+- [06:59.760] It's a horrible thing that's going on.
+- [07:02.580] The disaster in Ukraine shows exactly why it's so important
+- [07:06.030] for the United Kingdom and other NATO partners
+- [07:09.150] to make large investments in their defense capabilities.
+- [07:12.020] In many cases, 4% or 5% of GDP would be appropriate.
+- [07:18.080] I know that they're raising it. I just read an article,
+- [07:21.300] a great article about the work you're doing in the UK
+- [07:24.480] as to the military. You're raising it quite a bit,
+- [07:26.570] which is a great thing to do for your country.
+- [07:28.760] It's a great thing to do.
+- [07:30.280] It's sad that we need that, but probably need that.
+- [07:32.890] So congratulations on that. I know you got it through.
+- [07:36.320] After years of chronic underfunding,
+- [07:39.020] there's an urgent need to catch up for some countries.
+- [07:42.480] I want to thank the prime minister once again
+- [07:44.710] for traveling here today.
+- [07:47.600] Working together, I believe that we'll once again
+- [07:51.630] demonstrate the power of our countries unique friendship.
+- [07:54.750] This is indeed a unique friendship.
+- [07:56.560] It's been many years, and I think it's only gotten stronger.
+- [08:01.990] We will make sure that it stays that way.
+- [08:04.640] We're going to have a great trade agreement.
+- [08:07.790] One way or the other, we're going to end up
+- [08:09.340] with a very good trade agreement for both countries.
+- [08:12.970] We're working on that as we speak.
+- [08:14.930] I think we'll have the confines.
+- [08:17.950] I think we'll have something maybe even
+- [08:20.650] in terms of possibilities agreed to very shortly.
+- [08:24.800] JD's working on it, vice president, and Scott.
+- [08:29.240] I'm just looking at this from Mike.
+- [08:30.810] You're going to work on it. Everyone's going to work on it.
+- [08:32.810] We'll see if we can do something pretty quickly,
+- [08:35.190] but we're going to make some great trade agreements
+- [08:36.980] with the UK and with the prime minister,
+- [08:39.540] and it'll happen very quickly.
+- [08:41.240] So I just want to thank you again.
+- [08:43.140] Please thank King Charles for the invite,
+- [08:45.800] and look forward to you giving our acceptance
+- [08:49.000] on behalf of the United States of America.
+- [08:50.970] Thank you very much, sir. Thank you.
+- [08:59.120] Prime Minister Starmer: Well, thank you very much,
+- [09:00.340] Mr. President. Thank you for your hospitality.
+- [09:03.080] Thank you for your leadership.
+- [09:04.730] This has been a very good and very productive visit.
+- [09:08.230] And with your family roots in Scotland
+- [09:10.970] and your close bond with His Majesty The King,
+- [09:14.040] it's good to know that The United Kingdom
+- [09:16.370] has a true friend in The Oval Office.
+- [09:19.130] And it was so good to see the bust of Winston Churchill
+- [09:21.770] back in its rightful place just a moment ago.
+- [09:25.350] But look, in a moment of real danger around the world,
+- [09:28.680] the relationship, this relationship,
+- [09:30.650] matters more than ever.
+- [09:32.880] We remain each other's first partner in defense,
+- [09:36.840] ready to come to the other's aid,
+- [09:39.200] to counter threats wherever and whenever they may arise.
+- [09:44.030] No two militaries are more intertwined than ours.
+- [09:47.780] No two countries have done more together to keep people safe.
+- [09:51.700] And in a few weeks, we mark VE day,
+- [09:55.100] the 80th anniversary of victory in Europe.
+- [09:58.600] Britain and America fought side by side to make that happen,
+- [10:02.430] one of the greatest moments in our history.
+- [10:05.730] We stand side by side still today,
+- [10:08.910] and we're focused now on bringing an enduring end
+- [10:13.210] to the barbaric war in Ukraine.
+- [10:16.060] Mr. President, I welcome your deep and personal commitment
+- [10:19.700] to bring peace and to stop the killing.
+- [10:22.920] You've created a moment of tremendous opportunity
+- [10:26.110] to reach a historic peace deal,
+- [10:28.990] a deal that I think would be celebrated in Ukraine
+- [10:32.200] and around the world.
+- [10:33.960] That is the prize, but we have to get it right.
+- [10:38.330] There's a famous slogan in The United Kingdom
+- [10:40.860] from after the Second World War,
+- [10:43.520] that is that we have to win the peace.
+- [10:46.840] And that's what we must do now
+- [10:49.560] because it can't be peace that rewards the aggressor
+- [10:53.310] or that gives encouragement to regimes like Iran.
+- [10:57.140] We agree: History must be on the side of the peacemaker,
+- [11:00.960] not the invader.
+- [11:03.190] So the stakes, they couldn't be higher,
+- [11:05.620] and we're determined to work together to deliver a good deal.
+- [11:10.230] We discussed a plan today to reach a peace
+- [11:12.920] that is tough and fair,
+- [11:15.550] that Ukraine will help shape, that's backed by strength,
+- [11:19.140] to stop Putin coming back for more.
+- [11:21.790] I'm working closely with other European leaders on this,
+- [11:24.740] and I'm clear that the UK is ready to put boots on the ground
+- [11:29.050] and planes in the air to support a deal,
+- [11:31.550] working together with allies,
+- [11:33.570] because that is the only way that peace will last.
+- [11:38.680] Mr. President, in this new era,
+- [11:41.120] you are also right that Europe must step up.
+- [11:44.880] And let me tell you now: I see the growing threats we face,
+- [11:49.060] and so the UK is all in.
+- [11:52.270] This year, we will be giving more military aid to Ukraine
+- [11:54.720] than ever, and just this week, I've set out
+- [11:58.250] how we're shouldering more of the security burden.
+- [12:01.380] We're already one of the biggest spenders in NATO,
+- [12:04.180] and now we're going much further,
+- [12:06.500] delivering Britain's biggest sustained increase in defense
+- [12:09.330] spending since the Cold War.
+- [12:12.000] This isn't just talk; it's action.
+- [12:15.160] Rebalancing the Transatlantic Alliance,
+- [12:17.980] making us all stronger,
+- [12:20.280] and standing up for our shared values
+- [12:22.670] and shared security, as Britain always has.
+- [12:27.910] Mr. President, it's no secret
+- [12:29.310] we're from different political traditions,
+- [12:32.500] but there's a lot that we have in common.
+- [12:35.910] We believe it's not taking part that counts;
+- [12:39.300] what counts is winning.
+- [12:41.980] If you don't win, you don't deliver,
+- [12:45.360] and we're determined to deliver
+- [12:46.690] for the working people of Britain and America
+- [12:50.180] who want and deserve to see their lives improve.
+- [12:54.670] So we're both in a hurry to get things done,
+- [12:57.300] and that's what the UK and US do when we work together.
+- [13:02.230] We win, and we get things done.
+- [13:05.690] So we'll do what it takes to keep our people safe.
+- [13:09.170] We'll also work together to deliver some big economic wins
+- [13:12.850] that can benefit us both. We have a 1.5 trillion-dollar
+- [13:16.660] invested in each other's economies,
+- [13:19.530] creating over 2.5 million jobs across both economies.
+- [13:24.130] Our trading relationship is not just strong;
+- [13:27.860] it's fair, balanced, and reciprocal.
+- [13:31.000] We're leaders together in so many areas,
+- [13:33.740] ranked one and two in the world as investment destinations,
+- [13:38.120] one and two for universities, one and two for Nobel Prizes,
+- [13:43.090] one and two in golf as well, by the way.
+- [13:47.160] And we're the only two Western countries
+- [13:49.410] with trillion-dollar tech sectors, leaders in AI.
+- [13:53.720] And look, we take a similar approach on this issue.
+- [13:56.920] Instead of over-regulating these new technologies,
+- [13:59.750] we're seizing the opportunities that they offer.
+- [14:02.580] So we've decided today to go further,
+- [14:05.610] to begin work on a new economic deal
+- [14:08.370] with advanced technology at its core.
+- [14:11.540] Look, our two nations together shaped
+- [14:14.580] the great technological innovations of the last century.
+- [14:18.280] We have a chance now to do the same for the 21st Century.
+- [14:23.480] I mean, artificial intelligence could cure cancer.
+- [14:27.000] That could be a moonshot for our age,
+- [14:30.930] and that's how we'll keep delivering for our people.
+- [14:33.710] There are so many opportunities.
+- [14:35.460] Keep our nations strong and fulfill the promise of greatness
+- [14:39.160] that has always defined this relationship.
+- [14:43.010] Finally, to underline the importance of this bond,
+- [14:49.260] it was my privilege and honor
+- [14:51.680] to bring a letter with me today from His Majesty The King,
+- [14:57.130] not only sending his best wishes,
+- [14:59.430] but also inviting the President and the First Lady
+- [15:02.900] to make a state visit to the United Kingdom,
+- [15:05.530] an unprecedented second state visit.
+- [15:08.870] This has never happened before.
+- [15:11.530] It's so incredible; it will be historic.
+- [15:13.990] And I'm delighted that I can go back to His Majesty The King
+- [15:17.710] and tell him that President Trump
+- [15:19.230] has accepted the invitation, so thank you.
+- [15:22.110] Our teams will now work together to set a date,
+- [15:24.590] and we look forward to welcome you in The United Kingdom.
+- [15:27.440] Thank you once again.
+- [15:28.670] President Trump: Thank you very much.
+- [15:29.900] What a beautiful accent.
+- [15:32.740] I would have been president 20 years ago
+- [15:34.720] if I had that accent. Thank you very much.
+- [15:37.900] [Inaudible 00:15:36] questions.
+- [15:41.770] Okay, let's see here. Go ahead, please.
+- [15:46.820] The Press: Thank you, Mr. President.
+- [15:48.640] Earlier today, you told me that you believe
+- [15:52.470] that foreign countries pay tariffs,
+- [15:55.120] but Americans who are concerned about higher prices believe,
+- [15:59.900] as most people do,
+- [16:01.100] that they're paid by consumers and importers
+- [16:04.160] when they import things into this country.
+- [16:06.640] Can you explain how you came to this belief
+- [16:10.000] that foreign governments are paying tariffs?
+- [16:13.500] And for the Prime Minister,
+- [16:15.530] did you discuss with President Trump
+- [16:17.350] his repeated statements of desire to annex Canada?
+- [16:23.130] And has the king expressed any concern
+- [16:27.820] over the President's apparent desire
+- [16:30.760] to remove one of his realms from his control?
+- [16:36.350] President Trump: So I'll go ahead with the first part.
+- [16:38.370] The tariffs are necessary because we've been treated
+- [16:41.370] very unfairly by many, many countries,
+- [16:43.710] including our friends, friend and foe.
+- [16:46.520] But we've been treated very unfairly in trade,
+- [16:50.830] at levels that nobody's really ever seen before,
+- [16:53.030] and especially under the Biden administration,
+- [16:55.070] they really took advantage of The United States.
+- [16:58.970] I put massive tariffs on China during my four years.
+- [17:02.500] We had the best economy in the history of our country,
+- [17:05.290] probably the best economy,
+- [17:06.560] maybe the best economy in the history of the world.
+- [17:09.730] And I used tariffs to even things up,
+- [17:14.310] and in particular, with China.
+- [17:15.700] We took in hundreds of billions of dollars,
+- [17:18.140] and we had no inflation. And it's a myth.
+- [17:21.370] It's a myth that's put out there by foreign countries
+- [17:23.960] that really don't like paying tariffs,
+- [17:27.340] and especially to even up.
+- [17:29.600] So we've been treated badly by a lot.
+- [17:31.470] We're using tariffs, and I find,
+- [17:33.630] and you just have to look at the numbers,
+- [17:36.040] but I find that it's not about inflation.
+- [17:38.340] It's about fairness, and the inflation,
+- [17:41.250] for us, has not existed,
+- [17:43.300] and I don't think it's going to exist.
+- [17:44.760] We're going to bring our car industry back.
+- [17:46.430] We're going to bring our chips back.
+- [17:47.760] We're going to bring so many things back to our country,
+- [17:50.690] including pharmaceuticals and drugs,
+- [17:53.670] and the thing that's going to get us there is tariffs.
+- [17:56.690] And I say often, it's my favorite word in the dictionary,
+- [18:00.630] but I always preface it by saying now,
+- [18:03.100] because I got into a lot of trouble with the fake news,
+- [18:05.290] where they say that's not good.
+- [18:07.150] So I say God, love, family, wife,
+- [18:10.920] they're all my favorite words.
+- [18:12.350] But tariff is about number four or five on the list.
+- [18:15.790] But I will tell you it's going to make our country rich
+- [18:18.850] and it's going to stop us from being a laughingstock
+- [18:22.340] all over the world
+- [18:23.990] because we have been taken advantage of like no country
+- [18:26.970] has ever been taken advantage of.
+- [18:28.510] Thank you very much. And [inaudible]
+- [18:30.290] Prime Minister Starmer: Look, we had a really good discussion,
+- [18:33.000] a productive discussion, a good discussion,
+- [18:35.290] as a result of which our teams are now
+- [18:36.820] going to be working together on an economic deal,
+- [18:39.240] our teams are going to be working together
+- [18:40.670] on security in Ukraine. You mentioned Canada.
+- [18:44.610] I think you're trying to find a divide
+- [18:46.460] between us that doesn't exist. We're the closest of nations
+- [18:50.850] and we had very good discussions today,
+- [18:52.860] but we didn't discuss Canada.
+- [18:54.220] President Trump: That's enough. Thank you. Please.
+- [18:57.640] Go ahead. Go ahead. Yes. Thank you.
+- [19:03.380] The Press: Hi, Natasha Clark from LBC.
+- [19:04.730] Mr. President, you've said
+- [19:05.950] you're working on a new trade deal with Britain,
+- [19:07.720] which we of course welcome. President Obama once said
+- [19:10.080] Britain was at the back of the queue for that trade deal.
+- [19:11.880] Where are we now?
+- [19:13.110] When do you think we're going to see that?
+- [19:15.230] And Prime Minister, the BBC has today
+- [19:16.970] admitted serious flaws over the recent Gaza coverage,
+- [19:19.780] suggestions of payments made to people linked to Hamas.
+- [19:22.690] Does the BBC still have your trust? Thank you.
+- [19:26.050] President Trump: Well, they didn't do well
+- [19:27.330] with President Obama.
+- [19:28.560] He'd never got a lot of things done,
+- [19:31.670] and he didn't get a trade deal done
+- [19:33.560] that was of any importance or magnitude.
+- [19:37.130] We've had great discussions on trade,
+- [19:38.790] and I think we're going to have a deal done rather quickly,
+- [19:41.070] as quickly as it can be done.
+- [19:42.320] We're going to have something I think rather quickly.
+- [19:44.740] We expect to do that. Okay. Please.
+- [19:47.770] Prime Minister Starmer: On the BBC, look,
+- [19:49.780] I've been concerned about the program in question.
+- [19:53.040] The Secretary of State had a meeting with the BBC,
+- [19:54.950] I think it was yesterday.
+- [19:56.230] It could have been the day before.
+- [19:57.480] Thank you.
+- [20:00.000] President Trump: Jeff. Go ahead.
+- [20:03.340] The Press: Thank you, sir. Pardon me.
+- [20:05.550] Mr. President, do you support Article 5 of the NATO Treaty
+- [20:09.300] and are you concerned that it might be triggered
+- [20:11.210] if European peacekeeping forces end up in Ukraine?
+- [20:13.800] President Trump: I support it.
+- [20:15.460] I don't think we're going to have any reason for it.
+- [20:17.290] I think we're going to have a very successful peace,
+- [20:21.020] and I think it's going to be a long-lasting peace,
+- [20:23.950] and I think it's going to happen hopefully quickly.
+- [20:27.740] If it doesn't happen quickly, it may not happen at all.
+- [20:30.720] And we want it for two reasons.
+- [20:33.140] Number one, I want to see on a humane basis,
+- [20:36.010] I want to see soldiers stop getting shot
+- [20:39.380] because largely it's soldiers.
+- [20:40.830] Now, towns have been obliterated,
+- [20:43.250] but it's largely that.
+- [20:44.590] And I don't want to pay billions and billions
+- [20:47.070] and billions of dollars, nor does the Prime Minister
+- [20:49.610] or anybody else on a senseless war
+- [20:52.340] that should have never happened.
+- [20:53.630] And we're going to get it taken care of,
+- [20:55.300] but I think it's going to be a peace
+- [20:56.630] that's going to be long-lasting.
+- [20:58.180] Do you have a question for the Prime Minister?
+- [21:02.260] The Press: Thank you. Mr. Prime Minister,
+- [21:03.790] you were asking the President today
+- [21:05.180] about a backstop for Europe
+- [21:07.790] if the peacekeeping force ends up in Ukraine.
+- [21:10.880] Did you feel like you got a satisfying answer
+- [21:13.340] for yourself and for Europe. And Mr. President,
+- [21:15.920] if you want to comment on that as well, please do.
+- [21:17.940] Prime Minister Starmer: I felt we had
+- [21:19.150] a very productive discussion.
+- [21:21.150] Obviously, as the President says,
+- [21:24.030] the deal has to come first,
+- [21:26.310] but yes, our teams are going to be talking about
+- [21:30.330] how we make sure that deal sticks, is lasting and enforced.
+- [21:36.060] So our teams will be talking about that.
+- [21:38.910] President Trump: Okay. Please, Blue.
+- [21:43.110] The Press: Mr. President, some experts think
+- [21:45.090] it could take more than a decade
+- [21:46.750] to mine the precious minerals from Ukraine.
+- [21:49.520] How much should the U.S. expect to receive?
+- [21:51.600] And when do you expect to see that come to fruition?
+- [21:54.930] President Trump: Well, we're never going to know that answer.
+- [21:56.630] But by our being in Ukraine and doing the exploration
+- [22:01.920] and also the digging and taking the rare earth,
+- [22:05.350] which we need in our country very badly.
+- [22:08.680] We'll be doing a substantial amount of work,
+- [22:11.680] probably about at least what we have in there
+- [22:15.660] and we hope to be able to do that.
+- [22:19.010] You never know when it comes to that.
+- [22:20.620] You dig and maybe things aren't there
+- [22:22.160] like you think they're there,
+- [22:23.370] but we'll be spending a lot of time there.
+- [22:25.180] It'll be great for Ukraine.
+- [22:26.390] It's like a huge economic development project.
+- [22:29.390] So it'll be good for both countries.
+- [22:31.160] Okay. Please.
+- [22:39.370] The Press: Prime Minister,
+- [22:41.200] you've talked about putting British soldiers boots
+- [22:44.720] on the ground in Ukraine in the event
+- [22:47.410] that President Trump succeeds with his peace deal.
+- [22:50.530] But can you do that without a firm assurance
+- [22:54.730] that America will have our back in the form
+- [22:57.140] of some kind of security guarantee
+- [22:59.640] were Putin to breach that agreement?
+- [23:02.850] And Mr. President, tomorrow you are seeing President Zelenskyy
+- [23:07.650] to sign this deal on minerals and energy
+- [23:11.450] that could be hugely important to the United States.
+- [23:16.440] Will you take the opportunity to apologize to him
+- [23:20.080] for calling him a dictator while praising Vladimir Putin,
+- [23:24.740] who is a dictator?
+- [23:26.190] Prime Minister Starmer: Well, Robert,
+- [23:27.400] let me start by saying, I've been really clear today
+- [23:31.270] and previously that I think that European countries,
+- [23:35.250] including the United Kingdom,
+- [23:36.650] need to step up in our own defense and security.
+- [23:39.740] We've been doing that in recent days.
+- [23:41.230] You saw the announcement we made on spending just the other day.
+- [23:45.870] In addition to that, I've made it clear
+- [23:48.140] that the United Kingdom will play its full part
+- [23:50.630] in ensuring that if there's a deal
+- [23:53.040] and that we hope there is a deal in Ukraine,
+- [23:55.440] that that is a lasting deal that sticks.
+- [23:58.830] And we're obviously working with other European countries
+- [24:01.700] on that, France and NATO in particular.
+- [24:04.870] But I think I'm hosting 18 countries on Sunday
+- [24:08.630] to further our discussions.
+- [24:10.730] You heard from the President this morning
+- [24:13.150] that as historically has always been the case,
+- [24:16.790] we have each other's backs.
+- [24:18.400] And today we've been talking about the deal,
+- [24:23.620] how that will be a lasting deal and coming out of this,
+- [24:27.590] our teams will now be talking in detail about that.
+- [24:31.860] President Trump: And I think we're going to have
+- [24:33.060] a very good meeting tomorrow, 11:00,
+- [24:34.990] and I think we're going to have
+- [24:36.380] a very good meeting tomorrow morning.
+- [24:38.370] We're going to get along really well.
+- [24:40.120] Okay. We have a lot of respect.
+- [24:41.660] I have a lot of respect for them.
+- [24:44.820] We've given them a lot of equipment and a lot of money,
+- [24:47.150] but they have fought very bravely.
+- [24:48.680] No matter how you figure it, they have really fought.
+- [24:51.620] Somebody has to use that equipment
+- [24:53.120] and they have been very brave in that sense.
+- [24:56.300] Yeah. Please go ahead.
+- [24:59.230] The Press: Thank you, sir.
+- [25:00.510] So the Gaza ceasefire deal is nearing an end this Saturday,
+- [25:04.640] and there's been some worry that phase two might never get there.
+- [25:07.500] Do you believe that phase two of the ceasefire in Gaza
+- [25:10.460] will come to fruition?
+- [25:11.840] And have you spoken to Netanyahu about it?
+- [25:14.110] And for the Prime Minister, this peacekeeping deal
+- [25:17.000] has been pushed forward by the UK and France as well.
+- [25:19.750] Have you been in discussions
+- [25:21.650] with any other European countries
+- [25:23.060] to join this initiative?
+- [25:24.710] And are you expecting Commonwealth countries
+- [25:26.330] to also join the effort? Thank you.
+- [25:28.790] President Trump: So we're working very hard
+- [25:30.130] in the Middle East and Gaza and all of the problems.
+- [25:32.760] And it's been going on for years and years
+- [25:35.290] and centuries and centuries. It's a tough neighborhood,
+- [25:39.820] but it could be a very beautiful neighborhood.
+- [25:41.570] And I think we're going to come up
+- [25:43.470] with some pretty good solutions.
+- [25:44.840] But phase one is almost complete.
+- [25:50.630] We've had some people that have been very seriously injured,
+- [25:53.380] very seriously hurt, both physically and mentally.
+- [25:57.410] They've come out of their very, very …
+- [25:59.990] Some of them in very, very bad shape, it's shocking.
+- [26:04.330] Many young people, young people aren't in bad shape.
+- [26:07.870] Young people are strong, healthy, they don't die,
+- [26:10.740] people have come out dead. Young people and old people.
+- [26:15.180] It's a rough situation,
+- [26:16.630] but I think we're going to make it much better.
+- [26:18.940] And I think that we've had a huge impact on that
+- [26:21.370] since we've been in just the four weeks.
+- [26:23.480] I think we've had a huge impact on Gaza, the Middle East,
+- [26:26.050] and we have some pretty good talks
+- [26:28.630] going on concerning lots of other people
+- [26:30.550] that are going to make it better.
+- [26:31.890] So we'll see what happens.
+- [26:33.720] Nobody really knows, but we'll see what happens.
+- [26:35.860] But I think we've had a very positive impact.
+- [26:38.290] Prime Minister?
+- [26:39.520] Prime Minister Starmer: On the question
+- [26:40.760] of the European countries,
+- [26:43.750] yes, I've spoken to a number of countries,
+- [26:46.530] particularly in the last few weeks,
+- [26:47.850] we had a meeting in Paris last week.
+- [26:50.830] I've got a meeting on Sunday
+- [26:52.210] with 18 countries to further our discussions.
+- [26:56.810] Obviously we've been talking quite intensely
+- [27:00.190] to our French colleagues and to NATO,
+- [27:03.300] but to other countries as well. Because as I say,
+- [27:07.820] I think it's important for European countries,
+- [27:11.050] including the United Kingdom, to step up
+- [27:14.850] and do more in the defense and security of Europe
+- [27:19.010] and our continent and the United Kingdom,
+- [27:20.540] and we'll do so. The Press: [inaudible].
+- [27:21.770] Prime Minister Starmer: Well, we're talking
+- [27:22.980] to a number of other countries.
+- [27:24.590] President Trump: Thank you. Yes. In the red please.
+- [27:27.210] Pink red, flaming red.
+- [27:29.290] The Press: Is it me or her?
+- [27:30.560] President Trump: Go ahead.
+- [27:31.800] The Press: Okay. Thank you, Mr. President.
+- [27:33.080] A question on Ukraine. Number one,
+- [27:35.780] is if you're not considering the security guarantees,
+- [27:39.270] are you open to other forms of, for example,
+- [27:42.470] intelligence cooperation with Ukraine?
+- [27:46.250] And Mr. Prime Minister,
+- [27:47.610] President Trump has proposed a plan for Gaza.
+- [27:50.700] Does this fit into the two-state solution
+- [27:53.240] that the UK held for a long time?
+- [27:56.740] Do you see it fit into your general Middle Eastern strategy?
+- [27:59.910] Thank you so much.
+- [28:01.130] President Trump: Yeah, thank you very much.
+- [28:02.340] We're open to many things,
+- [28:03.720] but before I even think about that,
+- [28:05.940] that's almost pleasant to think about
+- [28:07.830] because that would mean that peace has been arrived at.
+- [28:11.180] We have to arrive at that peace.
+- [28:12.690] And you went three and a half years with an administration
+- [28:17.210] that never even really had a meeting.
+- [28:19.500] They didn't have a meeting on peace
+- [28:22.070] and there was no prospect of peace.
+- [28:24.190] I think, frankly, Russia wanted
+- [28:26.260] to go through the whole long deal.
+- [28:29.380] I don't think they do anymore. I don't think they do.
+- [28:31.480] We had a very big impact on that whole situation.
+- [28:36.280] But I don't like talking about phase two until I get phase one.
+- [28:40.740] Phase one is they have to make peace,
+- [28:42.670] and we have to get Russia to agree,
+- [28:44.600] we have to get Ukraine to agree.
+- [28:46.950] And I think we've come a long way.
+- [28:50.650] I believe we're going to get it done.
+- [28:52.800] I wouldn't say that if I didn't think so,
+- [28:55.630] and I think it will be very important, very historic,
+- [28:59.120] and we're going to save a lot of lives.
+- [29:03.620] Prime Minister Starmer: On the question of Gaza,
+- [29:05.790] the last few weeks of the ceasefire
+- [29:09.320] have been very impactful. And for me, there are two images
+- [29:12.800] that I remember more than any other.
+- [29:15.230] The first is Emily Damari, who is British,
+- [29:19.090] being reunited with her mother.
+- [29:21.330] You may remember she had her fingers missing
+- [29:24.860] after what she endured. That was an incredible moment.
+- [29:28.560] I'd spent a lot of time with her mother
+- [29:30.990] while she was held captive,
+- [29:33.020] and her mother went through absolute torture.
+- [29:36.460] The other image was thousands of Palestinians
+- [29:38.880] marching through rubble,
+- [29:40.370] trying to return to their communities and their homes.
+- [29:43.640] So we have to do everything we can
+- [29:46.080] to ensure that the ceasefire continues
+- [29:48.660] so that more hostages can be returned
+- [29:51.010] so that aid can be brought in that's desperately needed.
+- [29:55.890] And we need to allow Palestinians to return
+- [29:59.390] and to rebuild their lives,
+- [30:00.870] and we must all support them in doing that.
+- [30:03.020] And yes, I believe that the two-state solution
+- [30:05.990] is ultimately the only way for a lasting piece in the region.
+- [30:12.430] And think of that, she came home with her fingers
+- [30:15.780] and part of her hand blown off.
+- [30:17.180] Prime Minister Starmer: That's terrible.
+- [30:19.600] President Trump: How bad does it get?
+- [30:20.920] And we had others that came home in much worse shape than that.
+- [30:25.940] It's a terrible situation. Please, yes.
+- [30:33.370] The Press: Thank you.
+- [30:34.740] Mr. President, did our prime minister
+- [30:36.550] persuade you not to put tariffs on the UK?
+- [30:39.900] And if I may, Prime Minister,
+- [30:41.930] do you think that Vladimir Putin is a man who will keep his word?
+- [30:45.950] Thanks.
+- [30:47.460] President Trump: He tried.
+- [30:50.870] He was working hard, I'll tell you that.
+- [30:53.840] He earned whatever the hell they pay him over there,
+- [30:57.190] but he tried.
+- [30:59.470] I think there's a very good chance
+- [31:00.700] that in the case of these two great friendly countries,
+- [31:04.170] I think we could very well end up with a real trade deal
+- [31:08.180] where the tariffs wouldn't be necessary.
+- [31:11.460] We'll see.
+- [31:12.680] But whatever they pay him, he earned today.
+- [31:17.250] He was working hard at lunch, and I'm very receptive to it.
+- [31:21.250] I think we, in all fairness, in all seriousness,
+- [31:24.410] I think we have a very good chance
+- [31:25.800] at arriving at a very good deal. JD and Scott and Howard,
+- [31:30.870] all the people are working on it,
+- [31:32.440] and I think we have a good chance at arriving
+- [31:34.130] at a deal that could be terrific,
+- [31:37.700] really terrific for both countries.
+- [31:39.350] Okay? Thank you.
+- [31:40.610] Prime Minister Starmer: On the second part of the question,
+- [31:42.690] I think my views on Putin are pretty well rehearsed
+- [31:45.650] and pretty well known.
+- [31:47.840] And my concern is, that if there's a deal,
+- [31:50.850] and I hope there is a deal, that it must be a lasting deal,
+- [31:54.230] that it's not a temporary measure.
+- [31:56.340] And that is why I think it's really important
+- [31:59.140] that Putin knows that this deal, a historic deal,
+- [32:04.110] which I very much hope comes about, is there,
+- [32:08.340] and it's a lasting deal,
+- [32:10.020] and that we're able to deal with any inclination
+- [32:13.460] he has to go again or go further.
+- [32:16.410] President Trump: I think we'll have two deals.
+- [32:17.730] I think we'll have a deal on ending the war,
+- [32:19.660] and I think we're going to end up
+- [32:21.060] with a great trade deal with you.
+- [32:23.540] And it's an honor to be with you,
+- [32:25.160] and I want to thank everybody very much.
+- [32:27.300] Thank you very much. Thank you.

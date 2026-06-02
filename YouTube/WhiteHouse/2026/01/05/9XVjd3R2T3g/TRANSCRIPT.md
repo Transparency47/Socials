@@ -1,0 +1,972 @@
+<!-- source: https://www.youtube.com/watch?v=9XVjd3R2T3g -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 9XVjd3R2T3g -->
+<!-- date_published: 2026-01-05T03:41:37+00:00 -->
+<!-- date_accessed: 2026-06-02T01:07:50.412972+00:00 -->
+
+# Transcript: President Trump Gaggles with Press on Air Force One, Jan. 4, 2026
+
+- [00:00.210] The Press: Mr. President,
+- [00:01.170] you came from a different way this time.
+- [00:02.450] The President: Absolutely. Yeah, a little bit different.
+- [00:04.300] We have some good people. We have Senator Lindsey Graham.
+- [00:06.410] Lindsey Graham: Hello, everybody.
+- [00:07.650] The President: We have Howard Lutnick, Commerce.
+- [00:10.580] We have Steve Miller. We have a lot of people.
+- [00:13.820] We have Aaron. We have a lot of people.
+- [00:15.560] Go ahead.
+- [00:16.800] The Press: Mr. President,
+- [00:18.020] have you spoken with any of the U.S. service members
+- [00:20.260] who were injured during that operation in Venezuela?
+- [00:22.500] The President: Yes, we have calls into them.
+- [00:23.880] I don't want to speak -- they're all in good shape
+- [00:27.310] The Press: Can you detail what watching that was like
+- [00:29.350] when all of this played out in Venezuela
+- [00:31.560] and what Maduro was doing that moment
+- [00:33.160] when (inaudible)?
+- [00:34.420] The President: Well, I knew the possible danger.
+- [00:35.700] I mean, it was a very dangerous operation.
+- [00:38.600] It was amazing that we had a few injured,
+- [00:40.750] but all are in good shape right now.
+- [00:43.780] But I knew there was great danger.
+- [00:45.480] They got off a helicopter,
+- [00:46.690] the helicopters were being shot at.
+- [00:49.480] They got on the ground with amazing, amazing talent
+- [00:53.330] and tremendous patriotism, bravery.
+- [00:56.840] The bravery was incredible.
+- [00:58.150] Lindsey, the, they got off the helicopter
+- [01:00.670] and the bullets would fly in all over the place.
+- [01:03.450] As you know, one of the helicopters
+- [01:04.780] got hit pretty badly,
+- [01:06.620] but that, we got everything back.
+- [01:08.340] Everything back and nobody killed.
+- [01:10.190] The Press: (inaudible)
+- [01:11.390] next question is, who's in charge of Venezuela right now?
+- [01:14.050] Have you spoken to the newly sworn-in president there,
+- [01:17.360] Rodriguez?
+- [01:18.610] And what are your thoughts on the entire situation
+- [01:20.720] when you said the U.S. would run Venezuela?
+- [01:22.590] The President: We're dealing with the people.
+- [01:23.900] We're dealing with the people that just got sworn in.
+- [01:26.880] And don't ask me who's in charge because I'll give you an answer
+- [01:31.380] and it'll be very controversial.
+- [01:32.670] The Press: What does that mean?
+- [01:33.870] The President: It means we're in charge.
+- [01:35.260] The Press: Have you spoken with her?
+- [01:36.490] The President: We're in charge.
+- [01:37.720] The Press: Have you spoken with her?
+- [01:38.950] The President: No, I haven't, but other people have.
+- [01:40.300] The Press: Do you want to?
+- [01:41.530] The President: Yeah, at the right time, I will.
+- [01:42.820] The Press: (inaudible)
+- [01:44.020] the U.S. give Delcy Rodríguez any guarantees in exchange
+- [01:46.080] for cooperating with your administration?
+- [01:47.610] The President: No, but she's cooperating.
+- [01:48.980] The Press: Is she, are you going to demand freedom for elections
+- [01:51.350] in the short term in Venezuela?
+- [01:52.900] The President: Well, it depends, you know, when you're talking,
+- [01:55.460] we have to do one thing in Venezuela,
+- [01:57.120] bring it back. It's a dead country right now.
+- [02:00.180] It's a country that, frankly, we would have been if,
+- [02:02.910] if I had lost the election,
+- [02:05.080] we would have been a dead country.
+- [02:07.060] Venez- -- we would have been Venezuela on steroids.
+- [02:09.890] Venezuela right now is a dead country.
+- [02:11.440] We have to bring it back,
+- [02:12.660] and we're going to have to have big investments
+- [02:14.900] by the oil companies to bring back the infrastructure.
+- [02:18.000] The oil companies are ready to go.
+- [02:19.810] They're going to go in,
+- [02:21.050] they're going to rebuild the infrastructure.
+- [02:22.880] You know, we built it to start off with many years ago.
+- [02:26.580] They took it away. You can't do that.
+- [02:29.040] They can't do that with me.
+- [02:30.420] They did it with other presidents.
+- [02:31.900] The Press: Can an election can take place in Venezuela?
+- [02:35.070] How, how soon can an election take place?
+- [02:37.270] The President: Well, I think we're looking more
+- [02:38.830] at getting it fixed,
+- [02:40.250] getting it ready first, because it's a mess.
+- [02:42.940] The country is a mess. It's been horribly run.
+- [02:46.650] The oil is just flowing at a very low level,
+- [02:50.400] much lower than,
+- [02:51.840] even if it was badly run, it should have more income,
+- [02:54.880] more oil than what they're doing.
+- [02:56.240] So, we're going to have the big oil companies go in,
+- [02:58.090] and they're going to fix the infrastructure,
+- [03:00.500] they're going to invest money.
+- [03:02.490] We're not going to invest anything.
+- [03:03.800] We're going to just take care of the country.
+- [03:06.090] We're going to cherish the country.
+- [03:07.370] We're going to take care, more importantly, of the people,
+- [03:09.990] including Venezuelans that are living in our country
+- [03:12.990] that were forced to leave their country.
+- [03:15.730] They're going to be taken very good care of.
+- [03:17.950] Yes, ma'am?
+- [03:19.320] The Press: Have you spoken with the oil companies
+- [03:20.580] about going into Venezuela?
+- [03:21.780] The President: I have. The Press: Which ones?
+- [03:23.000] The President: (inaudible) of them, basically.
+- [03:24.290] The Press: (inaudible)
+- [03:25.490] commitments from the oil companies?
+- [03:26.750] The President: They want to go in so badly.
+- [03:27.970] The Press: (inaudible)
+- [03:29.180] you speak with them before the operation took place about
+- [03:30.880] (inaudible)
+- [03:32.080] you maybe tip them off without oil --
+- [03:33.760] The President: Before and after. And they want to go in,
+- [03:36.640] and they're going to do a great job
+- [03:38.080] for the people of Venezuela,
+- [03:40.110] and they're going to represent us well.
+- [03:42.610] But, you know, the infrastructure's rusty,
+- [03:44.500] rotten, most of it unusable. It's old, it's broken.
+- [03:48.870] You see pipes laying all over the ground.
+- [03:51.590] Hasn't been, nothing's been invested for years.
+- [03:54.260] Chevron's in, as you know. They've done a good job,
+- [03:56.210] but even they,
+- [03:57.610] they, they haven't been in a position to invest money
+- [04:00.020] because they're, they're at a month-to-month basis.
+- [04:03.640] They're only there because I wanted them to be there.
+- [04:05.930] The Press: Yeah. Are there any contingencies in case
+- [04:08.020] the military in Venezuela is unhappy with the U.S.
+- [04:11.370] and the way it's running Venezuela?
+- [04:13.500] Do you guys have plans for anything?
+- [04:15.080] The President: Venezuela thus far has been very nice,
+- [04:18.300] but it helps to have a force like we have.
+- [04:21.600] You know, we were ready for a second wave.
+- [04:23.360] We were all set to go,
+- [04:25.100] but we don't think we're going to need it.
+- [04:27.000] The Press: There's about 17 billion
+- [04:28.330] worth of oil reserves in Venezuela.
+- [04:29.680] The President: More.
+- [04:30.890] The Press: Is that going to be --
+- [04:32.100] The President: (inaudible) mean trillion.
+- [04:33.450] You say billion or trillion?
+- [04:35.050] The Press: I said billion.
+- [04:36.340] The President: (inaudible) said 17 billion?
+- [04:38.390] It's much more than that.
+- [04:39.650] The Press: Okay.
+- [04:40.910] So, what is going to happen to those reserves?
+- [04:43.430] The President: Well, we're going to run everything.
+- [04:45.090] We're going to run it, fix it.
+- [04:47.860] We'll have elections at the right time.
+- [04:50.080] The main thing you have to fix, it's a broken country.
+- [04:52.370] There's no money. There's inflation,
+- [04:54.640] like we would've had, if I didn't win this election,
+- [04:57.720] we would've been Venezuela on steroids.
+- [05:00.490] Lindsey would know that.
+- [05:01.740] You might say something on that,
+- [05:02.970] because you were, we were talking before.
+- [05:05.160] We would've had a doubling up of very bad things,
+- [05:09.050] things that cost us a lot of money like welfare, frankly.
+- [05:13.090] We wouldn't have had jobs.
+- [05:14.520] And instead of having $18 trillion in,
+- [05:17.670] we would've had at least five to 10 trillion dollars
+- [05:20.440] leaving the country.
+- [05:22.230] So our costs would've gone up and all of the money that's,
+- [05:25.480] you know, we're setting a record and it's long broken.
+- [05:29.000] And that's it, that's after 10 months.
+- [05:31.530] We haven't included the 11th month yet.
+- [05:34.000] So we think we're going to hit over $20 trillion.
+- [05:36.980] The all-time record is three by another country known as China.
+- [05:42.920] About 10 years ago, they did three.
+- [05:44.840] We're doing, we're going to do close to 20 trillion.
+- [05:48.420] There's, by the way,
+- [05:49.660] there has never been anything like this ever before.
+- [05:53.170] And it's all because of tariffs and the election.
+- [05:56.100] But it's because of tariffs.
+- [05:57.720] Without tariffs, we wouldn't have 10 cents being invested.
+- [06:01.360] The Press: There was a time back in 2016,
+- [06:02.780] and I remember your RNC speech, and you were saying that regime
+- [06:06.490] change and a nation-building --
+- [06:07.790] The President: Where? Where?
+- [06:09.010] The Press: When you were speaking at the RNC
+- [06:10.280] back in 2016, you were criticizing --
+- [06:11.610] The President: Go ahead, what did I say?
+- [06:12.820] The Press: Were criticizing regime change
+- [06:14.320] and nation-building, the U.S. being involved in that.
+- [06:16.120] It seems obviously that your stance has changed on that.
+- [06:18.560] What led to that?
+- [06:19.940] The end of the U.S. nation-building now is that --
+- [06:21.710] The President: This isn't a country
+- [06:22.940] that's on the other side of the world.
+- [06:24.920] This isn't a country like we have to travel
+- [06:27.690] 24 hours in an airplane.
+- [06:29.410] This is Venezuela's in our area. The Don Roe Duncan. Secretary --
+- [06:34.120] The Press: So is that what you would say that we're in --
+- [06:35.620] we're in the business of nation-building now?
+- [06:37.060] The President: Well, no, we're in the business
+- [06:38.270] of having countries around us that are viable and successful
+- [06:42.900] and where the oil is allowed to freely come out
+- [06:46.230] because that's good. It gets the prices down.
+- [06:48.290] That's good for our country. We have a, a very sick neighbor.
+- [06:52.320] It's not a neighbor, but it's close to a neighbor.
+- [06:55.010] And that's Venezuela, it's very sick.
+- [06:57.110] Columbia is very sick too,
+- [06:58.750] run by a sick man who likes making cocaine
+- [07:01.890] and selling it to the United States.
+- [07:03.310] And he's not going to be doing it very long,
+- [07:04.800] let me tell you?
+- [07:06.020] The Press: What does that mean?
+- [07:07.230] He's not going to be doing it very long.
+- [07:08.530] The President: He's not doing it very long.
+- [07:10.030] He has cocaine mills and cocaine factories.
+- [07:13.670] He's not going to be doing it very long.
+- [07:15.240] The Press: So there will be an operation by the U.S. and --
+- [07:17.480] The President: It sounds good to me.
+- [07:18.690] (inaudible)
+- [07:19.920] know, why because they kill a lot of people. Yeah?
+- [07:22.110] The Press: Secretary Rubio mentioned Cuba yesterday
+- [07:23.970] in his remarks.
+- [07:25.200] Does the U.S. have a plan to do so --
+- [07:27.580] The President: Well, Cuba always survived because of Venezuela.
+- [07:31.160] Now, they won't have that money coming in.
+- [07:33.630] They won't have the income coming in.
+- [07:35.740] You know, a lot of Cubans were killed yesterday.
+- [07:38.660] You know that. A lot of Cubans were killed.
+- [07:40.970] The Press: Do you know how many?
+- [07:42.360] The President: Bodyguards. No, they're looking,
+- [07:43.900] but a lot of, there was a lot of death on the other side.
+- [07:46.840] No death on our side.
+- [07:48.990] But there was a lot of death on the other side, unfortunately.
+- [07:52.350] But a lot of Cubans were killed yesterday,
+- [07:54.490] trying to protect him.
+- [07:55.880] The Press: Do you though there's been,
+- [07:57.180] um, protestors killed in Iran.
+- [07:59.160] You said we were locked and loaded, ready to go.
+- [08:01.620] What is the line there for when the U.S.
+- [08:03.340] is going to get involved in those protests?
+- [08:04.860] The President: We'll take a look.
+- [08:06.100] We're watching it very closely.
+- [08:07.930] If they start killing people like they have in the past,
+- [08:11.120] I think they're going to get hit very hard by the United States.
+- [08:13.480] Lindsey Graham: Can I just add something?
+- [08:14.720] So when he first got elected in January,
+- [08:18.270] we met, you know, biggest comeback ever.
+- [08:21.440] We talked about like -- The President: Think so, really?
+- [08:23.570] I didn't feel it was a comeback, actually.
+- [08:25.140] So --
+- [08:26.450] Lindsey Graham: Because the first one was,
+- [08:27.710] the bottom line is,
+- [08:29.550] we talked about a drug caliphate in our backyard.
+- [08:33.300] You know, we had Venezuela, we have Cuba,
+- [08:38.440] we have Columbia in our backyard,
+- [08:41.860] and these three countries have been condemned
+- [08:44.830] ever since I've been in politics.
+- [08:48.040] Joe Biden put a $25 million bounty on Maduro's head.
+- [08:53.120] Chris Smith, the day he got inaugurated,
+- [08:55.800] said, "I hope Trump will hold Maduro's feet to the fire."
+- [09:00.390] You did.
+- [09:01.730] So what has he done?
+- [09:03.310] He's going to clear our backyard of a drug caliphate.
+- [09:07.020] Countries run by narco terrorist dictators
+- [09:10.280] who murder, rape, send drugs into our country
+- [09:13.550] to kill thousands of our citizens.
+- [09:15.660] To my Democratic friends, you should be celebrating this.
+- [09:20.220] When Bin Laden went down, I was the first applaud
+- [09:23.320] President Obama.
+- [09:25.700] This was one of the most sophisticated
+- [09:27.740] military operations in the history of the country.
+- [09:31.250] What they were able to do was amazing.
+- [09:33.760] They knew we were coming.
+- [09:35.810] We had part of the, a good part of the Navy,
+- [09:38.990] and they were able to capture this man alive.
+- [09:42.900] No military in the world could have done it,
+- [09:44.800] and as to this commander-in-chief,
+- [09:47.200] he did something people talked about doing.
+- [09:50.640] You just wait for Cuba.
+- [09:52.880] Cuba is a communist dictatorship that's killed priests and nuns.
+- [09:58.410] They've preyed on their own people.
+- [10:00.610] Their days are numbered.
+- [10:02.210] We're going to wake up one day, I hope in '26, in our backyard,
+- [10:06.380] we're going to have allies in these countries
+- [10:09.480] doing business with America,
+- [10:11.420] not narco terrorist dictators, killing Americans.
+- [10:14.460] This is a big friggin' day. And everybody in the world
+- [10:18.290] is thinking differently than they were just a few days ago
+- [10:21.920] because of what you did.
+- [10:23.880] The President: By the way, you know,
+- [10:25.230] you mentioned something that's interesting.
+- [10:27.940] Lindsey mentioned Bin Laden.
+- [10:30.040] You know, I wrote about Bin Laden one year
+- [10:31.980] before the attack in the World Trade Center.
+- [10:34.270] And I said, "You got to go after Bin Laden."
+- [10:36.030] It was in my book.
+- [10:37.650] And very few people want to say that, but it was in my book.
+- [10:41.950] You know that I think you, you've actually talked about it.
+- [10:44.970] But if they would've had, if they would've listened to me,
+- [10:48.650] they would've taken out Bin Laden
+- [10:50.750] and you wouldn't have had the World Trade Center tragedy.
+- [10:53.590] Did you know that? I predicted Bin Laden --
+- [10:55.180] Lindsey Graham: I learn something every day.
+- [10:56.520] The President: No, but did you hear that?
+- [10:57.800] Lindsey Graham: Well, I did not.
+- [10:59.000] The President: Did you know that?
+- [10:59.480] Lindsey Graham: I just heard it right now.
+- [11:00.710] The President: Yeah. No, I wrote a book.
+- [11:02.000] It was one year before the attack that the book came out,
+- [11:05.950] and it talked about, there's a whole page,
+- [11:07.540] a whole section dedicated to a guy named Bin Laden
+- [11:10.440] who's a bad guy who you have to take out.
+- [11:14.430] Lindsey Graham: So, I'll get the book.
+- [11:16.430] But right after the election, he told me,
+- [11:19.670] "I'm going to clean up our backyard."
+- [11:22.590] Now, this was long before, this was before he took office.
+- [11:26.830] This is one of the president's priorities is to make sure
+- [11:30.020] that people in our backyard, narco terror states,
+- [11:33.680] will not continue to kill Americans without,
+- [11:36.610] the number of people that would be alive today
+- [11:39.330] because Venezuela will be in different hands
+- [11:42.300] is going to be tens of thousands.
+- [11:44.430] This is something to be celebrated
+- [11:46.530] whether you like him or not.
+- [11:48.010] The President: Not just Venezuela.
+- [11:50.680] It's what's coming out of Venezuela
+- [11:52.570] in the form of ocean-going
+- [11:55.140] and gulf-going and seagoing-boats.
+- [11:58.870] Every time we knock out a boat, and we've done a lot of them.
+- [12:02.020] We did three over the last few days.
+- [12:04.230] They're very rare now. You don't see too many of them.
+- [12:06.880] But drugs by sea are down 97 percent. Think of that.
+- [12:12.340] But now we're going to stop them by land too.
+- [12:14.210] The land is easy.
+- [12:15.930] We had to do the sea before we did the land
+- [12:17.940] because it just works out.
+- [12:20.990] And by the way, you have to do something with Mexico.
+- [12:23.550] Mexico has to get their act together
+- [12:25.960] because they're pouring through Mexico,
+- [12:29.120] and we're going to have to do something.
+- [12:30.990] We'd love Mexico to do it. They're capable of doing it,
+- [12:34.380] but unfortunately, their cartels are very strong in Mexico.
+- [12:36.750] The Press: I remember one time you actually,
+- [12:38.090] speaking of Mexico, I asked you about Claudia Scheinbaum,
+- [12:40.690] and you told me at one point you had offered
+- [12:42.750] to send U.S. troops into Mexico
+- [12:44.590] to combat drug trafficking there.
+- [12:46.150] Is that something you're seeking for now?
+- [12:47.670] The President: Well, I like Claudia.
+- [12:48.960] I think she's a terrific person.
+- [12:50.900] I would say every single time I talk to her,
+- [12:53.300] I offer to send troops.
+- [12:55.020] The Press: And she's just not willing?
+- [12:57.590] The President: She's concerned. She's a little afraid.
+- [13:00.550] The cartels are running Mexico, whether you like it or.
+- [13:03.540] Howard Lutnick: It's like it or not.
+- [13:04.800] The President: Not nice to say, but the cartels,
+- [13:06.900] the cartels are running Mexico.
+- [13:08.120] Howard Lutnick: It's a fact.
+- [13:09.350] The Press: And speaking of those U.S. troops,
+- [13:10.590] I mean, one thing that Americans
+- [13:12.450] and a lot of people are wondering,
+- [13:14.070] you just sounded like you weighed out another strike,
+- [13:15.770] not another land strike at least in Venezuela.
+- [13:17.940] You sound like you weigh that out.
+- [13:19.660] The President: Well, we, we haven't, we didn't need it.
+- [13:21.290] We were prepared to do a second strike if we needed.
+- [13:24.150] We're totally prepared. And we're still prepared.
+- [13:26.410] The Press: That's off the table now.
+- [13:27.680] The President: No, it's not.
+- [13:28.920] If they don't behave, we will do a second strike.
+- [13:31.630] The Press: The question is that the American troops,
+- [13:34.180] are they going to be on the ground
+- [13:35.630] there doing any kind of peacekeeping?
+- [13:36.890] I think Americans are very --
+- [13:38.120] The President: It depends. It depends on what happens.
+- [13:39.500] It depends a little bit on the new administration,
+- [13:41.960] if you want to call it that.
+- [13:43.350] The Press: So if you see that pushback
+- [13:44.630] from Rodriguez and ultimately --
+- [13:47.230] The President: Well, I don't think there was pushback.
+- [13:48.700] I think that, frankly --
+- [13:51.530] you, you know, you hear a different person than I hear.
+- [13:53.610] The Press: Really? So you have spoken with her?
+- [13:55.000] The President: We talked to them, yeah.
+- [13:56.230] The Press: Oh, you did speak with them?
+- [13:57.450] The President: They've been very good.
+- [13:58.670] The Press: Because she called it kidnapping of Maduro.
+- [14:00.770] The President: That's all right. It's not a bad term. Go ahead.
+- [14:03.420] The Press: Now, are you, are you going to demand
+- [14:05.210] that Delcy Rodriguez let opposition figures return,
+- [14:08.290] or free any political prisoners?
+- [14:10.170] The President: We haven't gotten to that yet.
+- [14:11.560] Right now, what we want to do is fix up the oil,
+- [14:13.720] fix up the country, bring the country back,
+- [14:16.070] and then have elections.
+- [14:19.430] We better bring the country back,
+- [14:20.730] otherwise you're just going to have,
+- [14:22.620] you're going to have a, a mess that's so bad.
+- [14:25.370] It was really bad.
+- [14:26.850] It's going to get a lot worse unless we go in and fix it.
+- [14:30.630] The Press: Is the U.S., is the U.S. going to reopen
+- [14:32.320] its embassy in Caracas or get the DEA?
+- [14:34.060] The President: We're thinking about it.
+- [14:35.300] We've been asked to do it.
+- [14:37.620] We've actually been asked to do it.
+- [14:39.570] The Press: You and Putin, and on the phone, of course,
+- [14:41.900] and then Zelensky at Mar-a-Lago, you told me that you were --
+- [14:44.720] The President: Numerous times.
+- [14:45.950] The Press: You told me that your New Year's resolution
+- [14:48.460] was peace on earth. Do you think that 2026 in,
+- [14:52.070] if you could set a deadline of when the Russia-Ukraine war --
+- [14:54.220] The President: I don't do deadlines,
+- [14:55.470] but I would say that, you know, like as an example,
+- [14:57.820] Thailand and Cambodia --
+- [14:59.950] I was very proud of that. Wait a minute.
+- [15:01.650] And they started up again and they got it solved.
+- [15:04.370] I give myself 1/4 of a point for that.
+- [15:07.150] So now I'm 8 1/4 points because they started up,
+- [15:11.630] Thailand and Cambodia, and now it's okay.
+- [15:13.470] The Press: So where does it actually stand
+- [15:14.710] between Russia and Ukraine right now?
+- [15:16.000] The President: I think we'll have a deal at some point.
+- [15:17.750] Hopefully, they're not too distant.
+- [15:19.690] So I don't know if you saw the numbers just came out.
+- [15:22.440] 30,000 soldiers were killed this current month.
+- [15:27.260] 30,000. 27,000 the month before.
+- [15:30.370] The Press: Have you and Senator Graham
+- [15:31.590] discussed additional Russia sanctions?
+- [15:34.120] The President: We discuss it all the time.
+- [15:35.980] There's nothing else I talk to him.
+- [15:38.240] I don't consider him very exciting to talk to him
+- [15:40.880] except -- except when we're talking about legislation.
+- [15:44.750] And we talk about legislation all the time.
+- [15:47.380] You think that's an exciting relationship?
+- [15:49.410] Lindsey Graham: It's not.
+- [15:50.880] The President: We talk a lot about legislation
+- [15:53.770] and we have great legislation coming.
+- [15:55.130] Do you want to tell them?
+- [15:56.420] Lindsey Graham: So the tariff bill,
+- [15:58.130] so here's what I believe.
+- [15:59.480] I don't think we could have secured the border
+- [16:01.340] without the threat of tariffs.
+- [16:03.600] I don't think we'd have a European trade deal
+- [16:06.590] without the threat of tariffs.
+- [16:08.560] So if you want to end this conflict,
+- [16:12.970] then put pressure on Putin's customers.
+- [16:15.650] He sanctioned the two largest oil companies in Russia,
+- [16:19.360] which is the biggest pressure anybody's put on Putin
+- [16:22.310] since the war started.
+- [16:24.140] Lindsey Graham: But we have 85 co-sponsors
+- [16:26.270] to give this president --
+- [16:27.490] The President: It's hurting Russia very bad, the sanctions.
+- [16:29.770] Lindsey Graham: Yeah. So this bill would allow --
+- [16:31.510] The President: -- India also is (inaudible)
+- [16:32.790] Lindsey Graham: Yes, sir.
+- [16:33.990] So he put a 25 percent tariff on India for buying Russian oil.
+- [16:38.290] I was at the Indian ambassador's house about a month ago,
+- [16:41.770] and all he wanted to talk about
+- [16:44.210] is how they're buying less Russian oil.
+- [16:46.830] Would you tell the President to relieve the tariff?
+- [16:49.480] This stuff works.
+- [16:50.790] So I'm hoping we'll bring the bill up,
+- [16:53.440] and it's from zero to 500. He picks the number.
+- [16:57.640] Nobody else does.
+- [16:59.220] But if you're buying cheap Russian oil,
+- [17:03.010] keeping Putin's war machine going,
+- [17:05.350] we're trying to get the President the ability
+- [17:08.010] to make that a hard choice by tariffs.
+- [17:11.560] I really do believe that what he did with India
+- [17:15.340] is the chief reason
+- [17:16.720] India is now buying substantially less Russian oil.
+- [17:22.100] So I hope we pass this bill soon.
+- [17:23.960] The President: Well, and they wanted
+- [17:25.720] to make me happy, basically.
+- [17:27.470] He wanted to, Modi's a very good man.
+- [17:29.650] He's a good guy. He want, he knew I was not happy.
+- [17:32.780] And it was important to make me happy.
+- [17:34.240] They do trade.
+- [17:36.160] We can raise tariffs on them very quickly and it would be --
+- [17:39.100] Lindsey Graham: People are afraid of that.
+- [17:40.350] The Press: (inaudible)
+- [17:41.590] this to say you told me you weren't very thrilled.
+- [17:43.230] The President: I'll tell you something,
+- [17:44.470] the Russian economy is lousy.
+- [17:46.570] But what's really lousy is the Venezuelan economy.
+- [17:50.610] The Venezuelan economy
+- [17:52.650] is I think the worst economy I've ever seen.
+- [17:56.610] If you look at inflation, it's, things are doubling every day.
+- [18:01.000] It's a disaster. We got to fix the country fast.
+- [18:03.430] The Press: President Trump, are there going to be anymore,
+- [18:05.080] you said the oil companies are going to go right there.
+- [18:06.750] Are there any other companies that you've talked to
+- [18:08.580] about dealing with Venezuela?
+- [18:10.530] Maybe Mr. Lutnick can talk about that.
+- [18:12.330] Are there any other corporations,
+- [18:13.710] entities outside the oil --
+- [18:15.100] The President: Many. Outside of the oil business.
+- [18:16.330] The Press: Like who?
+- [18:17.560] The President: Well, the oil business, yes,
+- [18:18.800] but outside, yes. Howard, do you want to talk --
+- [18:20.370] Howard Lutnick: So you have steel,
+- [18:21.600] you have minerals, right? All the critical minerals.
+- [18:24.630] They, they have a great mining history that's gone rusty.
+- [18:29.500] So steel, aluminum, minerals,
+- [18:33.350] I mean, this is all, it's a rich.
+- [18:35.730] It was once upon a time one of the great economies
+- [18:39.230] and cultures of the world, and it was destroyed,
+- [18:42.070] and now President Trump is going to fix it
+- [18:43.940] and bring it back before (inaudible)
+- [18:45.350] The President: (inaudible)
+- [18:46.580] but it's not easy. It's really gone bad.
+- [18:49.410] It's got potential. What?
+- [18:50.850] The Press: Maybe any rare earth minerals?
+- [18:52.050] The President: They have rare earth,
+- [18:53.250] but everybody has rare earth. Rare earth is not rare.
+- [18:56.790] What's rare is the processing.
+- [18:58.430] We're doing processing plants all night.
+- [19:01.260] There's no such thing as rare earth.
+- [19:03.210] Rare earth is everywhere.
+- [19:04.580] What isn't everywhere is the processing of rare earth,
+- [19:08.350] and we have a lot of places going up right now.
+- [19:10.440] The Press: (inaudible)
+- [19:11.640] thing we haven't heard you specifically react to
+- [19:13.530] is the Minnesota fraud that we've seen play out being --
+- [19:16.260] The President: Well, it just doesn't get worse.
+- [19:17.540] I've reacted. It's, it's almost not even believable.
+- [19:22.470] This very stupid low IQ governor,
+- [19:24.660] he's a very stupid man,
+- [19:25.930] because you know, I had a campaign against him with JD
+- [19:29.350] and he's a stupid man and he's a corrupt politician
+- [19:33.210] and the Somalians are ripping off our country
+- [19:35.800] to the tune of, looks like $19 billion,
+- [19:38.750] but that's only what they can find.
+- [19:41.600] So usually when you look at it, 19,
+- [19:43.380] that would mean it could be 50,
+- [19:45.530] but the numbers are astronomical.
+- [19:47.990] Think of it. They have a dead country.
+- [19:50.460] They don't have government. They don't have anything.
+- [19:52.470] They don't have a military.
+- [19:53.810] All they do is run around shooting people
+- [19:56.450] and trying to capture ships.
+- [19:59.260] You know, we don't let them take ships anymore.
+- [20:01.590] You know why? We use the same exact missile on them
+- [20:05.020] that we use on the drug carriers,
+- [20:07.780] and it's very effective.
+- [20:09.730] Notice there's nobody capturing ships anymore?
+- [20:12.480] 'Cause as they head out to go capture the ship,
+- [20:15.210] and the ship doesn't want to fire back
+- [20:16.810] because it's very flammable stuff in many cases.
+- [20:20.800] And the insurance companies don't want,
+- [20:22.280] because they've, you know,
+- [20:23.480] they built a billion-dollar ship,
+- [20:26.080] and they don't want anybody firing rockets into the ship.
+- [20:29.780] But we're hitting them so hard, and it's very similar.
+- [20:34.670] Same, same missile system. It's called deadly accurate.
+- [20:39.650] And do you notice that ships aren't being taken anymore?
+- [20:42.160] The pirates are --
+- [20:43.430] Lindsey Graham: That's right. I hadn't thought about it.
+- [20:44.630] The President: Pirates aren't. Well, no.
+- [20:45.850] Lindsey Graham: No Somali pirates.
+- [20:47.080] The President: It's actually very easy.
+- [20:48.320] They head out, we say, "Guess what? There's pirates."
+- [20:51.250] Bing. That's the end of the pirates.
+- [20:54.160] Shipping, the shipping business is coming back because,
+- [20:56.910] see, these are little things that we're doing,
+- [20:59.200] and I'm doing it not just for American ships,
+- [21:01.980] I'm doing it worldwide because we don't want ships
+- [21:05.470] taken by Somalia, Somalia pilots, pirates.
+- [21:10.840] But what they are doing is they're stealing money
+- [21:13.060] from the American taxpayer.
+- [21:14.950] And every one of them should be forced to leave this country,
+- [21:18.330] including Ilhan Omar, who's a total crook.
+- [21:22.100] And she's one of the leaders of it.
+- [21:24.740] Not the only because he's not that smart.
+- [21:26.920] But think of it, $19 billion,
+- [21:30.660] at least, they've stolen from Minnesota
+- [21:34.050] and from the United States.
+- [21:35.960] It's actually more from the United States
+- [21:37.700] because Minnesota puts in,
+- [21:39.460] and we're not going to pay it anymore.
+- [21:41.040] We're going to have Waltz go pay,
+- [21:43.370] we're not going to pay them,
+- [21:44.900] and we're not going to pay California,
+- [21:46.870] and we're not going to pay Illinois
+- [21:48.290] with a big slob of a governor
+- [21:50.550] that they have that doesn't want,
+- [21:52.350] you know, we brought down crime by 25 percent.
+- [21:55.620] He didn't do anything. He's not doing anything.
+- [21:57.980] But they want us to leave.
+- [22:00.050] He had a, he had a day where they had 17 murders,
+- [22:03.580] not too long ago, 17 murders and 77 people shot.
+- [22:08.790] But 17 died. And then he talks about,
+- [22:12.060] "Oh, we ha- -- we can handle." He can't handle it."
+- [22:14.360] But we pull back, and we'll go in at the appropriate time.
+- [22:17.830] But we're the ones that brought the crime down.
+- [22:19.850] We brought it down 20 percent. They didn't bring it down.
+- [22:23.170] Pritzker didn't bring it down. Same thing with Gavin Newsom.
+- [22:26.220] If we didn't go in to Los Angeles seven months ago
+- [22:31.060] when they had the riots, even the police commission- --
+- [22:34.660] the head of police said if we didn't have
+- [22:37.500] the federal government go in,
+- [22:39.330] we would have lost total control of the city of Los Angeles
+- [22:43.950] and they would have had to cancel the Olympics.
+- [22:45.860] Thank you.
+- [22:47.090] The Press: Speaking of Los Angeles,
+- [22:48.320] the National Guard,
+- [22:49.550] you pulled out the National Guard out of Portland --
+- [22:51.600] The President: We did. You know what?
+- [22:53.500] Do you know that Portland, we got it down to almost no crime?
+- [22:56.680] Do you know that? But we pulled it out.
+- [22:58.590] We had a Supreme Court decision. We can go back.
+- [23:01.290] We're allowed to go back in,
+- [23:03.040] but we'll go back in when the, the crime starts.
+- [23:05.070] Look, the crime will soon start
+- [23:07.160] because that, they now know that we're out.
+- [23:09.640] And at the appropriate time, we'll go, go back in and we may,
+- [23:13.630] if we, you know, we're allowed to,
+- [23:15.860] most powerful thing we have,
+- [23:17.140] we haven't used the Insurrection Act.
+- [23:19.340] The Press: You're considering using the insurrection?
+- [23:20.870] The President: I would always, I've always considered it.
+- [23:22.230] The Press: Where?
+- [23:23.510] The President: We haven't needed it anywhere.
+- [23:25.910] 48 percent of the presidents of this country have used it.
+- [23:29.870] Bush used it, I think, 22 times or something,
+- [23:32.180] you know that one, right? I mean, Bush the elder.
+- [23:34.830] The Press: What are your short term next two weeks,
+- [23:37.830] what do you need from Delcy Rodríguez?
+- [23:39.570] You're, you've, you've threatened Delcy --
+- [23:41.160] The President: Listen, total access.
+- [23:42.880] We need total access. We need access to the oil,
+- [23:46.390] and to other things in their country
+- [23:49.400] that allow us to rebuild their country.
+- [23:51.290] The Press: What are the things?
+- [23:52.530] The President: A lot of things.
+- [23:53.740] Roads that aren't built, bridges that are falling down.
+- [23:56.630] Yeah, bridges that are falling down.
+- [23:57.960] Nobody can go anywhere.
+- [23:59.670] The Press: On Greenland you know --
+- [24:00.970] The President: On Greenland now?
+- [24:02.250] The Press: Yeah, on Greenland.
+- [24:03.490] The President: How did we come up to Greenland?
+- [24:04.880] The Press: So do you expect to take an action
+- [24:07.340] against Greenland?
+- [24:08.560] The President: Well, I don't want to talk about Greenland.
+- [24:09.890] Let's talk about Venezuela. Russia. Ukraine.
+- [24:14.680] We'll worry about Greenland in about two months.
+- [24:17.390] Let's talk about Greenland in 20 days.
+- [24:19.660] The Press: (inaudible)
+- [24:20.900] going to as well, we talked so much about energy.
+- [24:22.540] The President: By the way --
+- [24:23.830] I have to, I will say this about Greenland.
+- [24:25.920] We need Greenland from a national security situation.
+- [24:30.710] It's so strategic.
+- [24:32.170] Right now, Greenland is covered with Russian
+- [24:35.420] and Chinese ships all over the place.
+- [24:37.790] We need Greenland from the standpoint of national security.
+- [24:42.100] And Denmark is not going to be able to do it, I can tell you.
+- [24:45.050] (inaudible)
+- [24:46.280] You know what Denmark did recently to boost
+- [24:49.090] up security in Greenland?
+- [24:51.240] They added one more dog sled.
+- [24:53.860] It's true.
+- [24:55.080] They thought that was a great move.
+- [24:56.550] The Press: What would the justification be
+- [24:58.540] for a claim to Greenland? What would the justify --
+- [25:01.580] The President: I don't want to talk about Greenland now.
+- [25:03.080] I'll just say this.
+- [25:05.260] We need Greenland from the standpoint of national security.
+- [25:08.610] And the European Union needs us to have it,
+- [25:12.130] and they know that.
+- [25:13.390] The Press: (inaudible)
+- [25:14.590] operation in Venezuela will affect your relationship
+- [25:16.560] with Xi Jinping and China?
+- [25:17.890] The President: I don't think so.
+- [25:19.160] I have a very good relationship. We have the power of tariffs,
+- [25:22.700] and he has other powers on us, you know?
+- [25:24.520] The Press: You still planning to travel to see him in April?
+- [25:26.450] The President: Yeah. I'll be going in April.
+- [25:27.940] The Press: I think there's some confusion from Americans
+- [25:30.340] and maybe the community in the world
+- [25:32.460] when it comes to what you said about Rodriguez earlier today
+- [25:35.360] in a phone interview. The President: Why?
+- [25:36.710] The Press: Well, you said, you said
+- [25:37.910] that she would face the same fate,
+- [25:39.870] if not worse, Maduro.
+- [25:41.070] The President: Worse.
+- [25:42.320] The Press: It sounds like you're talking to her on the phone
+- [25:44.960] and wanting to work with her --
+- [25:46.170] The President: Me, my people are just the same thing.
+- [25:47.370] The Press: (inaudible)
+- [25:48.570] you are considering her in power. Can you just clarify
+- [25:50.700] where you stand on Delcy Rodríguez right now?
+- [25:52.690] The President: I don't have to, I don't have to tell you.
+- [25:54.810] I just say that she will face a situation
+- [25:58.520] probably worse than Maduro,
+- [26:00.400] because you know, Maduro gave up immediately.
+- [26:02.760] He raised his hand, he gave up.
+- [26:05.240] And he did the right thing, but he gave up.
+- [26:08.380] So we were actually, we were so effective
+- [26:11.780] and it was so fast and violent. It was very violent.
+- [26:15.960] We were so effective, he raised his hands, he gave up.
+- [26:18.940] The Press: What was the most violent moment during that time?
+- [26:21.700] The President: I don't want to tell you.
+- [26:23.120] There were some bad moments,
+- [26:24.380] but there was some very violent moment.
+- [26:25.660] I don't want to tell you.
+- [26:26.870] The Press: (inaudible)
+- [26:28.070] you get a briefing at all on Maduro's first night in U.S. --
+- [26:29.680] The President: Yes.
+- [26:30.910] The Press: And what can you tell us about that?
+- [26:32.280] The President: I have a total briefing on every aspect of it,
+- [26:34.590] but I, I don't think it's appropriate
+- [26:37.190] to talk to the press about it. You'll find out.
+- [26:39.490] The Press: When it comes to him in court tomorrow,
+- [26:40.920] I mean, what's the end game here with Maduro?
+- [26:42.410] Does he (inaudible)?
+- [26:43.670] The President: We're just going to go through a slog of a trial.
+- [26:47.090] The judge is very respected.
+- [26:48.800] Hellerstein. He's a highly respected judge.
+- [26:51.030] We'll see how we do. The case is, it's infallible.
+- [26:56.260] People are so happy with what we've done.
+- [26:58.890] You know, you go down to Miami, you go down to a lot of places
+- [27:02.220] and they're all dancing in the streets of this country.
+- [27:05.670] He was a rough, he was a rough man.
+- [27:07.100] Killed millions of people.
+- [27:08.740] He killed millions and millions of people.
+- [27:11.200] The Press: Is that where you stand strongly for --
+- [27:12.600] Lindsey Graham: Can I just say something?
+- [27:13.830] We got the, this is a good thing, not a bad thing.
+- [27:17.690] President Biden put a $25 million bounty
+- [27:20.740] on the guy's head. Why?
+- [27:23.240] Because he was a horrible criminal,
+- [27:26.890] murderer poisoning our people.
+- [27:30.080] Every administration has been saying,
+- [27:33.500] "He's a threat to our country. He's a bad guy."
+- [27:37.240] This is the first guy
+- [27:38.630] that's actually done something about it.
+- [27:40.990] Here's the story for me.
+- [27:42.680] He could be in Turkey today, but he's in New York.
+- [27:46.710] So if you tell people in Cuba,
+- [27:49.610] "You need to stop being a communist dictatorship
+- [27:52.050] threatening America,
+- [27:53.960] you should go somewhere else. You better take the offer."
+- [27:57.470] Maduro has nobody to blame but himself.
+- [28:00.380] He gave him a way out.
+- [28:02.560] He chose to defy Trump and the U.S. military.
+- [28:06.450] And his ass is in jail where he deserves to be.
+- [28:10.000] And every president has said the same thing, but he did it.
+- [28:15.220] The President: You know, one of the things that is happening,
+- [28:17.400] and I think you see it, you see it all the time.
+- [28:20.320] Howard, you've seen it.
+- [28:22.630] That Cuba is ready to fall, you know.
+- [28:25.550] Cuba looks like it's ready to fall.
+- [28:27.120] I don't know how they, if they're going to hold down.
+- [28:29.910] Cuba now has no income.
+- [28:32.170] They got all of their income from Venezuela,
+- [28:34.740] from the Venezuelan oil. They're not getting any of it.
+- [28:38.040] Cuba literally is ready to fall.
+- [28:39.670] And you have a lot of great Cuban Americans
+- [28:42.390] that are going to be very happy about this.
+- [28:44.430] The Press: Marco Rubio has really had your ear,
+- [28:46.400] it seems throughout this entire process.
+- [28:48.710] I know that Vice President Vance was just down the street
+- [28:51.450] when this whole operation was, um, playing out,
+- [28:53.620] but would you say that Marco Rubio has your view
+- [28:55.900] more than the vice president right now?
+- [28:57.320] The President: They both do.
+- [28:58.550] Oh. And JD's very smart, doing a great job.
+- [29:01.800] And so is Mark. No, both. I would say equal.
+- [29:03.950] The Press: (inaudible)
+- [29:05.150] the go-to, and you were just talking about Cuba
+- [29:07.360] and what could come next there.
+- [29:09.030] Are you considering U.S. action in Cuba?
+- [29:10.830] The President: We're not going to,
+- [29:12.030] I think it's just going to fall.
+- [29:14.130] I don't think we need any action.
+- [29:15.430] It looks like it's going down.
+- [29:17.120] It's going down for the count. You ever watch a fight?
+- [29:19.520] The Press: I have.
+- [29:20.740] The President: They go down for the count.
+- [29:22.580] And Cuba looks like it's going down.
+- [29:24.020] What do you think, Howard?
+- [29:25.240] Howard Lutnick: It's going down.
+- [29:26.450] They, they've lived off of Venezuela, right?
+- [29:29.690] The economics were all Venezuela, right?
+- [29:32.600] That's why you said they,
+- [29:34.130] the protective force of Maduro was Cuban, right?
+- [29:38.530] They were Cuban guards.
+- [29:40.040] So they were just paying Cuba when that money stops.
+- [29:43.230] Lindsey Graham: (inaudible) don't hire them in the future.
+- [29:44.710] Howard Lutnick: Yeah. They weren't very good.
+- [29:45.980] The President: People from our country
+- [29:47.540] who were forced to come over, people we didn't want,
+- [29:50.090] you know, they were from Cuba. People from different countries
+- [29:53.030] like to stay in those countries, whatever.
+- [29:55.130] Whether it's good, bad, or indifferent.
+- [29:56.580] And people want to go back to Cuba.
+- [29:59.410] They want to work in Cuba,
+- [30:00.730] but Cuba's going down for the count.
+- [30:02.980] Thank you very much, everybody.
+- [30:04.420] The Press: Mr. President, is Elon Musk back in the fold?
+- [30:06.670] You had dinner with him last night at Mar-a-Lago.
+- [30:08.490] The President: Who? The Press: Elon.
+- [30:09.690] The President: Elon? Elon's great. I say about Elon.
+- [30:13.770] He's 80 percent super genius and 20 percent he makes mistakes.
+- [30:17.910] But he's a good guy.
+- [30:19.260] He's a well-meaning person. He is.
+- [30:21.850] The Press: I ask you about one more thing
+- [30:23.150] that I've been wanting to ask you the last couple of days?
+- [30:25.280] You were said that you were very --
+- [30:26.580] The President: She's got a lot of questions.
+- [30:27.820] The Press: I do. I do have a lot of questions.
+- [30:29.040] The President: Tell him who you with. Go ahead.
+- [30:30.500] The Press: With NewsNation. My name's Libbey Dean.
+- [30:31.920] The President: Excellent.
+- [30:33.130] The Press: So you said that you were really very angry
+- [30:36.000] with the Ukrainian President Zelenskyy
+- [30:38.040] if he was the one who conducted that strike
+- [30:40.070] on Putin's residence. Now who --
+- [30:41.510] The President: I don't believe that strike happened.
+- [30:43.130] The Press: Right. So Putin had said in that phone call
+- [30:45.420] to you that that strike happened.
+- [30:46.710] You came out and said that and you believed Putin.
+- [30:48.500] There was some criticism --
+- [30:49.740] The President: There is something that happened
+- [30:50.950] fairly nearby,
+- [30:52.170] but it had nothing to do with this house.
+- [30:53.620] The Press: Did you believe Putin in that moment
+- [30:55.640] and then go say that about (inaudible) --
+- [30:57.380] The President: 'Cause nobody knew at that moment.
+- [30:58.870] I mean, that was the first I heard about it.
+- [31:01.170] He said that his house was attacked.
+- [31:03.700] We don't believe that happened as,
+- [31:05.290] you know, now that we've been able to check.
+- [31:07.620] That was the first we ever heard about it.
+- [31:09.680] We just hoped that Russia and Ukraine get it settled.
+- [31:14.170] You know, it's costing us nothing.
+- [31:16.420] In fact, we make money because unlike Biden.
+- [31:19.090] Biden gave $350 billion, gave it away.
+- [31:22.400] Now, I got a lot of it back
+- [31:24.330] because we did a rare earth deal going into rare earth.
+- [31:27.070] And we're going to get a lot of that money back,
+- [31:28.730] maybe all of the money,
+- [31:29.950] maybe more than all of the money.
+- [31:31.250] But we get paid now, whenever we send anything, they paid.
+- [31:35.410] So this isn't an economic thing for us.
+- [31:37.840] This is a soul. This is a, this is a situation
+- [31:42.830] where on average, 25,000 souls, 25,000 soldiers mostly,
+- [31:50.860] and some people from Kiev and different cities,
+- [31:54.050] but a very small number by comparison.
+- [31:56.730] But 25,000 to 30,000 soldiers
+- [31:59.920] are being killed every single month.
+- [32:02.300] And they're not from America.
+- [32:04.120] They're from Russia and they're from Ukraine.
+- [32:06.460] And if I can get it stopped, I'd like to get it stopped.
+- [32:08.870] And I think we will. Thank you very much everybody.
+- [32:11.280] The Press: (inaudible)
+- [32:12.510] You've talked about returning some control
+- [32:14.750] to American companies.
+- [32:16.460] Did that play at all into your decision to capture Maduro?
+- [32:21.770] The President: What really played is the fact
+- [32:23.310] that he sent millions of people into our country
+- [32:26.780] from prisons and from mental institutions
+- [32:29.620] and drug dealers and every drug addict,
+- [32:33.280] and every drug addict in that country, in his country,
+- [32:38.350] was sent into our country. Think of that.
+- [32:41.530] Every single drug addict from Maduro's country,
+- [32:46.080] which isn't really his country,
+- [32:47.390] and it's certainly not his country anymore,
+- [32:49.380] every drug addict and every drug dealer is,
+- [32:53.420] has been sent into our country.
+- [32:54.840] Now we're getting him back,
+- [32:56.510] but it's a very laborious job to get him back.
+- [32:59.940] Very hard job to, and of course,
+- [33:01.970] we're not getting a lot of good backup from certain judges,
+- [33:05.090] from certain radical left. But we're doing well on appeals,
+- [33:08.650] because the people doing the appeal
+- [33:10.850] seems that the judges are much more sane.
+- [33:14.260] What these super radical left judges are doing to our country,
+- [33:18.180] it's incredible. But if you take a look,
+- [33:22.190] Maduro sent hundreds of thousands
+- [33:25.130] and even millions of people from jails,
+- [33:27.750] from prisons, from mental institutions,
+- [33:31.610] drug dealers, drug addicts, everybody.
+- [33:34.680] He sent anybody with a (inaudible)
+- [33:37.920] it could never be forgiven.
+- [33:39.230] And other countries have done the same,
+- [33:41.240] but nothing like Maduro's done.
+- [33:44.460] The Press: During the campaign, you,
+- [33:45.690] you talked about ending American foreign intervention.
+- [33:48.890] What changed your mind with Venezuela?
+- [33:50.880] What, what kind of drew your interest there?
+- [33:52.940] The President: The fact that he sent drugs into our country,
+- [33:56.070] we're stopping it rapidly with what we're doing with the,
+- [33:59.000] the sea, because they come in, a lot of it comes in by sea,
+- [34:01.950] but it's not coming. The drugs coming in,
+- [34:04.650] as I said before, by sea, are down 97 percent.
+- [34:09.180] You should be saying, "Thank you very much, President Trump.
+- [34:12.240] Great job." Now they can't get anybody to pilot those boats.
+- [34:16.720] You know, it's 97 percent.
+- [34:18.410] I'm trying to figure out who are the other three percent?
+- [34:21.000] The Press: What's the response
+- [34:22.900] from supporters who voted for you,
+- [34:24.820] who may be glad and relieved to see Maduro in custody --
+- [34:27.760] The President: (inaudible) voters that voted for me. Yeah.
+- [34:29.920] The Press: (inaudible) Venezuela.
+- [34:31.140] The President: (inaudible)
+- [34:32.370] voters that voted for me are thrilled.
+- [34:35.760] They said, "This is what we voted for."
+- [34:38.330] Lindsey Graham: So let's just think about it.
+- [34:40.830] What is the right response when a country sends
+- [34:45.970] in tens of thousands of people to overwhelm your system?
+- [34:50.690] When a country is a narco terrorist state
+- [34:54.020] that floods your country with cocaine
+- [34:58.290] that's aligned with Hezbollah, what's the right response?
+- [35:02.470] You blow up the vote before they get here.
+- [35:05.220] You take down the, the source of the problem.
+- [35:08.860] President Trump didn't wake up one day
+- [35:10.800] and say, "Hey, let's take Venezuela."
+- [35:14.630] He did what other people talked about,
+- [35:16.780] but didn't have the balls or the guts to do it.
+- [35:19.770] This is a good thing. This is not interventionism.
+- [35:24.080] This is making America safer.
+- [35:26.380] We're going to be more prosperous,
+- [35:27.870] because of the business deals
+- [35:29.590] and there are going to be Americans alive today,
+- [35:32.330] because he shut down a narco terrorist state
+- [35:34.950] called Venezuela.
+- [35:36.250] This is a good thing, not a bad thing.
+- [35:39.630] The President: The oil companies are going to go in
+- [35:41.770] and rebuild their system.
+- [35:43.170] They're going to spend billions of dollars,
+- [35:45.470] and they're going to take the oil out of the ground,
+- [35:47.670] and we're taking back what they sold.
+- [35:49.340] Remember, they stole our property.
+- [35:52.770] It was the greatest theft in the history of America.
+- [35:55.890] Nobody has ever stolen our property like they have.
+- [35:59.090] They took our oil away from us.
+- [36:02.010] They took the infrastructure away.
+- [36:03.970] And all that infrastructure's rotted and decayed.
+- [36:07.620] And the oil companies are going to go in and rebuild it.
+- [36:11.440] We're not going to spend very much money at all, if anything.
+- [36:14.260] But the oil companies are going to go,
+- [36:15.890] we're going to take our oil back.
+- [36:17.550] But we're going to also do things that,
+- [36:21.100] when you look at what he did, the drugs are terrible.
+- [36:24.680] Also terrible, he sent hundreds of thousands of people
+- [36:28.300] into our country that should not be here.
+- [36:30.810] And that means from prisons, that means Tren de Aragua,
+- [36:34.510] the gang --Tren de Aragua that comes out of Maduro's country.
+- [36:39.130] He was very friendly with that gang.
+- [36:41.320] Well, they're having a hard time right now.
+- [36:44.130] You know, we had Tren de Aragua all over Washington DC,
+- [36:47.670] and they got the hell beat out of him.
+- [36:49.650] Washington, DC is the safest city right now
+- [36:54.320] in the United States. Thank you very much.
+- [36:56.330] The Press: President, if you had to sum up
+- [36:58.000] Operation Absolute Resolve,
+- [36:59.820] would you say that it was about oil
+- [37:02.020] or it was about regime change?
+- [37:04.830] The President: It's about peace on earth.
+- [37:06.820] The Press: How is it peace on earth?
+- [37:08.150] The President: Peace on earth.
+- [37:09.370] You got to have peace. It's our hemisphere.
+- [37:11.630] The Monroe Doctrine was very important
+- [37:14.130] when it was done and other presidents,
+- [37:16.660] a lot of them, they lost sight of it.
+- [37:18.950] I didn't. I didn't lose sight.
+- [37:20.430] But it really is, it's peace on earth.
+- [37:21.870] Thank you very much.
+- [37:23.080] The Press: Thank you very much, Mr. President.

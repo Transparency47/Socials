@@ -1,0 +1,939 @@
+<!-- source: https://www.youtube.com/watch?v=rgDR6obU-CI -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: rgDR6obU-CI -->
+<!-- date_published: 2026-04-15T18:10:40+00:00 -->
+<!-- date_accessed: 2026-06-02T02:35:09.950327+00:00 -->
+
+# Transcript: Press Secretary Karoline Leavitt, Scott Bessent, and Kelly Loeffler Brief Members of the Media
+
+- [00:04.570] Karoline Leavitt: Good afternoon, everybody.
+- [00:07.020] How are you? Good to see you. We have a packed house,
+- [00:09.230] and I have two very special guests with me today.
+- [00:11.870] I will start with some scheduling announcements.
+- [00:14.020] Tomorrow afternoon,
+- [00:15.280] President Trump will travel to Las Vegas,
+- [00:17.410] Nevada to hold a round table and deliver remarks
+- [00:20.410] on the Working Families Tax Cuts.
+- [00:22.780] On Friday, President Trump will travel to Phoenix, Arizona
+- [00:26.150] to deliver remarks at a Turning Point USA event
+- [00:29.070] at Dream City Church.
+- [00:30.890] And I'm really honored to be standing here today on Tax Day
+- [00:33.830] with two esteemed members of the president's cabinet
+- [00:36.770] and his excellent economic team,
+- [00:39.290] Treasury Secretary Scott Bessent,
+- [00:41.100] and small business administrator Kelly Loeffler.
+- [00:44.150] As we have seen this tax season,
+- [00:45.770] President Trump's Working Families Tax Cuts
+- [00:47.960] have put a historic amount of money
+- [00:50.270] back into the pockets of the American people this year.
+- [00:53.650] On the campaign trail in 2024,
+- [00:56.070] President Trump looked voters in the eye
+- [00:58.100] and promised them he would sign the largest tax cuts
+- [01:01.070] in the history of our country.
+- [01:03.250] And on Independence Day last year,
+- [01:05.430] President Trump and Congressional Republicans
+- [01:07.510] delivered, passing the largest tax cut in history
+- [01:10.900] for working in middle class
+- [01:12.380] Americans, including no tax on tips,
+- [01:15.290] overtime, and social security.
+- [01:17.480] They also passed unprecedented tax relief
+- [01:19.990] for small businesses, farmers, workers, and families.
+- [01:23.810] With Tax Day officially here, the numbers prove these tax cuts
+- [01:27.270] have been nothing short of extraordinary.
+- [01:30.120] More than 53 million filers claimed at least one of
+- [01:33.880] President Trump's signature new tax cuts.
+- [01:36.830] The average refund this filing season is more than $3,400.
+- [01:42.280] The Trump administration has issued more refunds
+- [01:44.790] in larger refunds
+- [01:46.410] than in any year of the history of our country.
+- [01:49.450] And I will allow Secretary Bessent
+- [01:51.070] to break down the numbers in greater detail.
+- [01:53.780] President Trump and Republicans in Congress
+- [01:55.790] have always believed that the American people know
+- [01:58.180] how to spend their money better than the government does.
+- [02:01.300] But what the American people must not forget
+- [02:03.660] is that every single Democrat in Congress
+- [02:06.470] voted against these tax refunds.
+- [02:09.090] The media has largely omitted this fact
+- [02:11.310] and other critical details in their stories
+- [02:13.350] covering the benefits of the Trump tax cuts.
+- [02:16.410] If the Democrats in Congress had gotten their way and blocked
+- [02:19.400] President Trump's historic legislation,
+- [02:21.740] Americans would have faced the largest tax hike in history,
+- [02:25.630] nearly $4 trillion.
+- [02:27.960] The average taxpayer would have seen a 22%
+- [02:31.240] increase in their tax rates.
+- [02:33.630] Democrats in Congress have proven over and over again
+- [02:36.620] that they are the affordability frauds
+- [02:38.890] who believe the government should keep more
+- [02:40.890] of the American people's hard-earned money.
+- [02:42.960] This president and Republicans in Congress
+- [02:45.200] fundamentally believe that Americans deserve
+- [02:47.850] to keep more of their hard-earned paychecks.
+- [02:50.240] It's a clear contrast for American families
+- [02:52.610] to keep in mind.
+- [02:53.900] So with that, I will turn it over
+- [02:55.310] to our great Treasury Secretary, Scott Bessent,
+- [02:57.920] and then he will turn it over to Kelly.
+- [02:59.500] Thank you.
+- [03:00.990] Secretary Bessent: Good. Thank you, Karoline.
+- [03:02.660] I'm here to tell you that it has been a fantastic tax season.
+- [03:07.040] It has gone smoothly.
+- [03:08.430] It has gone efficiently from the point of view of the IRS,
+- [03:12.320] but most importantly, it's been a great tax season
+- [03:14.800] for the American people. Thanks to promises made,
+- [03:17.880] promises kept through the Working Families Tax Cuts,
+- [03:21.860] the president has delivered the record
+- [03:25.020] refunds to the American people.
+- [03:27.760] More than 45% of the filers of the returns that we have seen
+- [03:33.530] have had at least
+- [03:35.230] one of the four president's signature policies,
+- [03:38.070] no tax on tips, no tax on overtime.
+- [03:40.550] The deductions for our great seniors
+- [03:43.240] and the deductibility of interest
+- [03:45.560] on auto loans for American-made cars.
+- [03:48.460] And I will tell you that the biggest,
+- [03:51.190] one of those that Americans have taken is no tax on overtime.
+- [03:55.930] And it's the American way.
+- [03:57.230] If you want to work longer hours,
+- [03:58.780] you get to keep more of your money.
+- [04:00.590] And with that, we are seeing --
+- [04:04.710] I want to encourage everyone out there watching today
+- [04:08.240] to change their withholding if they haven't already done so,
+- [04:12.040] because if you change your withholding,
+- [04:14.220] then you will get an automatic real wage
+- [04:17.250] increase be on a weekly or a monthly basis,
+- [04:20.580] and you will be able to keep more of your money
+- [04:22.730] this calendar year.
+- [04:23.990] So with that, we have also seen with the Trump Accounts,
+- [04:29.230] we have had five million families file
+- [04:32.040] for Trump Accounts for their children.
+- [04:34.260] 1.2 million of those are eligible
+- [04:36.570] for the $1,000 seed bonus.
+- [04:40.240] So we look forward to that picking up more and more.
+- [04:45.170] For those of you who haven't done it, it's easy to remember,
+- [04:47.720] Form 4547.
+- [04:49.810] You can do it while you're filing your taxes.
+- [04:52.430] You can do it at any point during the year.
+- [04:54.320] We think this is going to be transformational
+- [04:56.970] in terms of financial literacy.
+- [04:59.570] This is Financial Literacy Month and at Treasury
+- [05:03.140] and all over the administration,
+- [05:04.590] we are working with the American people,
+- [05:06.990] with American families,
+- [05:08.720] not only to give them more of their money,
+- [05:10.510] but to show them how to invest it in a safe,
+- [05:14.180] smart, and sound way.
+- [05:15.730] So with that, I will turn it over to Kelly.
+- [05:18.810] Kelly Loeffler: Great. Thank you, Scott.
+- [05:22.080] And good afternoon, everyone. Excited to be here on Tax Day.
+- [05:27.150] Important day for small business because small business
+- [05:29.710] and their employees have real relief
+- [05:32.120] thanks to President Trump's Working Family Tax Cuts.
+- [05:35.180] As administrator of the US Small Business Administration,
+- [05:37.500] it is my great honor to serve our great president
+- [05:40.260] as the cabinet level voice for America's
+- [05:42.730] 36 million small businesses. President Trump is right.
+- [05:46.880] Small business is big business. Indeed.
+- [05:50.170] They are a massive economic engine
+- [05:51.810] that creates two thirds of all new jobs.
+- [05:53.840] They represent 99% of all businesses
+- [05:57.160] and they drive about half of our GDP.
+- [05:59.750] The Working Family Tax Cuts are putting money back
+- [06:02.550] into the pockets of the hardest working Americans.
+- [06:05.800] That's why small businesses
+- [06:07.000] and their employees are benefiting the most.
+- [06:09.820] President Trump and Congressional Republicans
+- [06:12.510] have saved Americans from a $4 trillion tax hike,
+- [06:16.470] including a staggering 20% tax increase on working families.
+- [06:20.790] It would've destroyed millions of jobs.
+- [06:23.630] Now, I've traveled the country from Maine to Alaska
+- [06:26.750] and not a single worker, not a single small business
+- [06:29.700] asked to pay a dollar more in taxes,
+- [06:32.360] yet every single Congressional Democrat
+- [06:35.090] voted to raise taxes, not just on small businesses,
+- [06:39.080] on our workers, on our seniors, on hardworking families.
+- [06:43.900] Thankfully, Republicans united behind common sense policy
+- [06:47.750] of letting Americans,
+- [06:49.500] not Washington bureaucrats or fraudsters
+- [06:52.330] keep more of what they earn.
+- [06:54.870] Now, so far, as you've just heard,
+- [06:57.090] 12 million small businesses have an average tax saving of $7,000.
+- [07:03.480] The 20% small business pass through deduction
+- [07:05.640] is now permanent,
+- [07:06.860] offering them certainty to plan for the future
+- [07:10.120] and the rocket fuel to create one million new jobs.
+- [07:13.950] Eric Williams at Prince Manufacturing in rural Georgia,
+- [07:17.190] he specializes in fabrication and machining.
+- [07:20.150] This year, he's reinvesting his tax savings
+- [07:22.500] to hire 500 new employees.
+- [07:26.150] The provisions for 100% expensing of equipment,
+- [07:29.390] expansion, and R&D are also growing production
+- [07:33.030] to help us reclaim industrial dominance.
+- [07:36.190] At Blue Patriot Fab, which I visited this week in Omaha,
+- [07:40.640] the owners highlighted one of their newest buildings,
+- [07:42.890] and they call it the big, beautiful building
+- [07:45.100] because the tax cuts help them build it.
+- [07:47.760] Made in America is back,
+- [07:50.160] and that's why the America worker is winning too.
+- [07:53.750] No tax on tips and overtime means
+- [07:55.390] that millions of employees are now rewarded,
+- [07:58.210] not punished for working more, and it's already benefited,
+- [08:02.880] as you just heard, 31 million taxpayers.
+- [08:05.950] In Baltimore, John and Tony Minadakis
+- [08:08.580] are proud second-generation owners of Jimmy's Seafood.
+- [08:12.550] Now, with no tax on tips and overtime,
+- [08:14.240] their 200 employees know that coming into work
+- [08:17.310] means going home with more pay.
+- [08:20.150] And Wade, a CNC machinist that I met at Lehigh Valley
+- [08:23.010] Plastics in Pennsylvania
+- [08:25.120] said he routinely takes on extra shifts
+- [08:27.730] and now the tax cuts reward his extra effort.
+- [08:31.250] And the benefits aren't just for tax season.
+- [08:33.150] As you've heard, the Trump Accounts
+- [08:36.210] are connecting young people from birth
+- [08:38.370] to the power of our free enterprise system.
+- [08:40.990] With 529 savings accounts
+- [08:43.290] and Workforce Pell for trade schools,
+- [08:45.900] we're now training the next generation of skilled workers
+- [08:49.120] to fill millions of open jobs at small businesses.
+- [08:53.280] So in closing, America is open for business again,
+- [08:57.290] yet every Democrat voted no on the very tax
+- [09:00.670] relief that is restoring Main
+- [09:02.240] Street, that is putting more money
+- [09:04.290] back into the pockets of hardworking families.
+- [09:07.800] Small businesses are rebounding from years of Biden inflation,
+- [09:10.960] decades of unfair trade,
+- [09:12.890] and massive regulatory overreach.
+- [09:15.570] But thanks to President Trump's tax cuts,
+- [09:17.840] they now talk about expansion,
+- [09:20.140] hiring plans, and generational opportunity.
+- [09:23.740] This is America first in action, lower taxes, rising wages,
+- [09:28.000] and a thriving Main Street. Now millions of Americans
+- [09:31.140] are getting their largest tax refund ever,
+- [09:33.950] and Main Street is getting historic tax relief
+- [09:36.840] to keep the American dream alive. Thank you.
+- [09:41.470] Secretary Bessent: Good. And before we take questions,
+- [09:43.580] I want to provide some numbers for you all.
+- [09:45.720] So Tax Day statistics as of April 12th,
+- [09:50.190] over 53 million filers, nearly 45%
+- [09:54.290] claimed one of President Trump's signature tax cuts.
+- [09:58.160] The average tax cut for filers
+- [09:59.870] benefiting from one of president's tax,
+- [10:02.250] the new tax cuts is over $800.
+- [10:06.250] Over six million filers have claimed no tax on tips
+- [10:09.040] with an average deduction of $7,100.
+- [10:12.100] Over 25 million filers have claimed no tax and overtime
+- [10:15.380] with an average deduction of $3,100.
+- [10:18.090] Over 30 million seniors have claimed the enhanced deduction
+- [10:21.410] for seniors with an average deduction of 7,500,
+- [10:24.640] and over one million filers have claimed no tax
+- [10:27.560] on car loan interest on American cars
+- [10:30.170] for an average deduction of over $1,800.
+- [10:33.330] The average refund this filing season is over $3,400.
+- [10:37.730] Over 34 million families have claimed
+- [10:40.280] Republicans enhanced child tax credit,
+- [10:42.870] which is permanently doubled and expanded
+- [10:45.330] by the Working Families Tax Cuts.
+- [10:47.450] Over 105 million filers have claimed
+- [10:49.820] the permanently doubled standard deduction,
+- [10:52.280] simplifying tax filing for millions across America.
+- [10:55.620] So as much as people do not like to pay their taxes,
+- [10:59.470] and we saw a survey today that 70% of Americans
+- [11:02.940] still believe that they are overtaxed.
+- [11:04.870] This is a great day for the American people.
+- [11:08.450] Karoline Leavitt: Thank you, Scott and Kelly.
+- [11:10.010] We'll now open it up to questions.
+- [11:11.440] You're welcome to ask me questions
+- [11:13.580] or either of the great cabinet officials next to me.
+- [11:16.380] And we'll start as always with our new media seat,
+- [11:18.240] Mr. Posobiec. Why don't you kick us off?
+- [11:20.320] The Press: Thank you, Karoline. Secretary Bessent, if I may,
+- [11:23.180] there's been this media narrative out there that
+- [11:25.900] while we see the data on tax refunds,
+- [11:30.040] that it's not good enough,
+- [11:31.280] that the tax season has been too soft.
+- [11:33.820] What is your response to this media narrative
+- [11:35.930] regarding the tax refunds?
+- [11:38.320] Secretary Bessent: Look, it's been an incredible
+- [11:39.820] tax season.
+- [11:41.420] We have done more with less at the IRS,
+- [11:45.800] that we have moved over millions of taxpayers
+- [11:49.480] to digital tax accounts.
+- [11:52.040] And that leaves us able to service more taxpayers
+- [11:55.960] in person and on the phone.
+- [11:57.960] And as we can see, the economy was very strong.
+- [12:01.670] We are seeing growth across the board in all areas.
+- [12:06.490] And as Kelly said, small business,
+- [12:10.850] Main Street are really the big beneficiaries.
+- [12:13.900] And this is what they don't want you to hear.
+- [12:16.480] That Wall Street always (inaudible).
+- [12:19.440] This administration is focused on parallel prosperity
+- [12:23.670] and bringing prosperity back to Main Street,
+- [12:26.380] and that starts with people keeping more of their money.
+- [12:30.320] The Press: And one more for Karoline
+- [12:31.670] as well as the administration in general, if I may.
+- [12:34.360] This past Saturday, I published a video of now
+- [12:38.560] former Representative Eric Swalwell in bed.
+- [12:42.030] And you mentioned the president said in Las Vegas,
+- [12:44.510] while Eric Swalwell was in Las Vegas in this video,
+- [12:46.630] I'm told, according to geotagging,
+- [12:48.950] this scandal has erupted now.
+- [12:51.280] Accusers coming forward, many others coming forward,
+- [12:53.760] as well as questions regarding his extremely close relationship
+- [12:57.290] with Arizona Senator Ruben Gallego.
+- [13:00.390] And I wanted to know if the administration
+- [13:02.100] had any comment
+- [13:03.670] on the fact that Senator Gallego seemed to be very vocal
+- [13:06.710] about wanting the release of the Epstein files,
+- [13:09.320] and yet when questions come to his own involvement
+- [13:11.870] with Eric Swalwell,
+- [13:13.170] he doesn't seem to want to provide anything.
+- [13:14.610] Karoline Leavitt: Yeah.
+- [13:15.810] Look, I think the accusations and allegations
+- [13:17.580] against former Representative Swalwell
+- [13:20.540] are despicable and disgusting.
+- [13:23.060] I think it's also quite plausible, as you point out,
+- [13:26.250] Jack, that there were many other Democrats
+- [13:28.180] in this town on Capitol Hill
+- [13:30.020] who knew about his perhaps illegal behavior,
+- [13:33.560] certainly his disgusting and inappropriate behavior.
+- [13:36.460] And why were they silent for so long?
+- [13:38.300] I think those are questions that must be raised of these
+- [13:40.810] sitting representatives, including Mr. Gallego.
+- [13:43.270] And I hope that the journalists in this room
+- [13:44.920] will do their jobs and the journalists on Capitol Hill
+- [13:46.880] will do their jobs to ask Democrats
+- [13:48.820] in power how they knew about such despicable behavior
+- [13:52.330] from one of their elected representatives for so long,
+- [13:55.150] but never said or did anything about it.
+- [13:56.770] So that's what we hope to see as far as the White House
+- [13:58.590] and the president is concerned. Thank you. Peter.
+- [14:00.720] The Press: Thank you.
+- [14:01.970] I have one for you and then one for Secretary Bessent.
+- [14:03.860] Karoline Leavitt: Sure.
+- [14:05.080] The Press: For you, Karoline,
+- [14:06.350] there are now 10 American scientists
+- [14:08.170] who have either gone missing or died since mid 2024.
+- [14:12.490] They all reportedly had access
+- [14:13.750] to classified nuclear or aerospace material.
+- [14:18.360] Is anybody investigating this to see
+- [14:20.170] if these things are connected?
+- [14:21.920] Karoline Leavitt: I've seen the report, Peter.
+- [14:23.240] I haven't spoken to our relevant agencies about it.
+- [14:26.230] I will certainly do that and we'll get you an answer.
+- [14:28.720] If true, of course, that's definitely something
+- [14:30.550] I think this government and administration
+- [14:32.410] would deem worth looking into. So let me do that for you.
+- [14:35.550] The Press: Thank you. And Secretary Bessent,
+- [14:37.080] it doesn't sound like
+- [14:38.340] we're going to have $3 a gallon gas by summertime,
+- [14:41.310] which we had initially been told by the energy secretary.
+- [14:46.390] He now says that it would be very aggressive
+- [14:51.360] if we're going to get to the $3 a gallon gas by the summer.
+- [14:54.870] So when are we really going to get $3 a gallon gas?
+- [14:58.450] Secretary Bessent: Well, I think that's going to be up
+- [15:01.740] to how the negotiations go.
+- [15:04.630] President Trump said this morning
+- [15:06.150] that he thinks we're nearing the end.
+- [15:09.400] The US kept their side on the ceasefire.
+- [15:13.000] We've stopped firing.
+- [15:14.410] The Straits of Vermouth have not been completely reopened,
+- [15:19.100] so we will see.
+- [15:20.390] And I'm optimistic that during the summer,
+- [15:23.830] we will see gas with a $3
+- [15:25.500] in front of it sooner rather than later.
+- [15:28.930] It's bank week here in DC, so I've been meeting
+- [15:32.510] with a lot of my Middle Eastern counterparts,
+- [15:34.990] the finance ministers,
+- [15:36.260] and they all say that once the straits are open,
+- [15:39.030] they can start pumping again within one week.
+- [15:41.720] The Press: So not by summer, like Memorial Day,
+- [15:44.080] but maybe by Labor Day?
+- [15:47.100] Secretary Bessent: Again, I'm optimistic
+- [15:48.950] that sometime between June 20th and September 20th,
+- [15:52.670] that we can have $3 gas again. And as I said this morning too,
+- [15:57.320] we are going to be watching the gas stations
+- [15:59.380] because they raised prices very quickly
+- [16:05.180] when the crude oil prices went up.
+- [16:07.460] We hope they'll bring them down
+- [16:09.390] just as quickly as crude oil prices have come down,
+- [16:12.490] which they've come down substantially
+- [16:14.330] just in the past 10 days.
+- [16:16.260] Karoline Leavitt: (inaudible).
+- [16:18.140] The Press: Thanks so much, Karoline.
+- [16:19.400] Can you give us an update on the president's thinking
+- [16:22.040] on the next Attorney General?
+- [16:23.530] A lot of names have been going around like Ron DeSantis,
+- [16:25.790] Rudy Giuliani, Ed Martin.
+- [16:28.320] They're being floated as contenders.
+- [16:30.220] What qualities is the president looking for in a new AG?
+- [16:32.700] And will there be accountability for what many have described
+- [16:35.960] as weaponization within Biden's office
+- [16:38.820] when he was the president?
+- [16:40.090] Karoline Leavitt: Sure. Well, certainly ensuring
+- [16:41.990] that there's accountability for the weaponization of justice
+- [16:44.440] that took place under the Biden administration
+- [16:46.880] is a top priority for this president.
+- [16:49.120] With respect to names that are floated,
+- [16:50.950] there are always names floated in the press.
+- [16:53.510] Sometimes I have a chuckle when I read some of the reports
+- [16:56.150] about certain people floated for certain jobs.
+- [16:58.650] As far as the president is concerned right now,
+- [17:00.890] Todd Blanche remains the acting Attorney General.
+- [17:02.860] The president feels he's doing a good job,
+- [17:04.610] and that's where it remains right now.
+- [17:06.080] I don't have any personnel updates for you today.
+- [17:08.270] Annie.
+- [17:09.480] The Press: Thank you, Karoline. I have a question for you
+- [17:11.120] and also for the Treasury Secretary.
+- [17:14.270] First of all, there was an interview
+- [17:16.050] that Dr. Mehmet Oz did recently where he described
+- [17:19.100] the president's views on his own diet.
+- [17:21.970] He said that he argued that diet soda is good for him
+- [17:25.290] because it kills grass.
+- [17:26.990] And if you pour it onto the grass, the grass is killed
+- [17:30.340] and it therefore must kill cancer cells.
+- [17:32.500] I'm wondering if you can --
+- [17:33.720] Was this sort of an accurate description
+- [17:35.910] of how the president sees --
+- [17:37.550] Karoline Leavitt: Look, as we all know in this room,
+- [17:38.950] I think you know the president has a very good sense of humor.
+- [17:41.720] It's one of his most under-reported characteristics,
+- [17:44.320] I would say.
+- [17:45.610] I have heard him tell this joke before.
+- [17:47.210] I think the Wall Street Journal
+- [17:48.520] should get a better sense of humor.
+- [17:49.780] The Press: And then another one for you,
+- [17:51.890] has the president filed his taxes
+- [17:53.430] and is he going to release them publicly?
+- [17:55.300] Karoline Leavitt: It's actually a very good question.
+- [17:56.760] I have not inquired with the president
+- [17:58.730] directly about his own taxes,
+- [18:00.470] but I'm happy to do so and we'll get you an answer on that.
+- [18:03.860] Secretary Bessent: I have filed my taxes.
+- [18:05.580] The Press: (inaudible). So the president
+- [18:11.380] has publicly said that you are the reason
+- [18:13.580] that he has not fired Chairman J. Powell.
+- [18:16.850] Will you make that case again to him as he's recently said
+- [18:19.500] that he still wants to fire the chairman?
+- [18:21.320] Secretary Bessent: Look, I am confident that the process
+- [18:24.370] that we have laid out in terms of Kevin Warsh
+- [18:27.910] becoming the next Fed chair,
+- [18:29.850] he's going to have the hearing on the 21st of this month.
+- [18:32.840] He's a great candidate.
+- [18:34.650] We know that the Republicans on the Senate Banking Committee
+- [18:40.030] are aligned in that.
+- [18:41.280] And I am very optimistic that Kevin Warsh
+- [18:44.830] will be the chair of the Fed on time,
+- [18:46.850] and that will be a moot question.
+- [18:48.940] Karoline Leavitt: (inaudible). Steven, go ahead.
+- [18:51.070] The Press: Secretary Bessent,
+- [18:52.370] you mentioned that the no tax on overtime
+- [18:54.290] is the biggest one that people are claiming,
+- [18:56.450] you said 25 million people.
+- [18:58.190] Have you seen evidence that more companies are offering overtime
+- [19:00.950] or that people are working more overtime
+- [19:03.010] and increasing their productivity?
+- [19:04.700] And the second question, the health insurance industry
+- [19:08.030] is advertising heavily in DC describing themselves
+- [19:11.300] as the good guys in the whole healthcare system.
+- [19:14.150] President Trump has threatened to hold in their executives
+- [19:16.070] and force them to lower prices. Can you provide any update
+- [19:18.440] on the administration's efforts there?
+- [19:19.890] Secretary Bessent: Okay.
+- [19:21.100] So I'll take the second one last because that's not my area.
+- [19:24.030] I don't wear a lot of hats here, but I am sure that the president
+- [19:29.900] makes his views known with corporate executives.
+- [19:32.520] And if that is true, then they will behold before him.
+- [19:39.080] And with overtime, as Kelly and I go out
+- [19:42.990] and talk to employers and workers around the country,
+- [19:48.010] they all want more overtime. And there was this narrative
+- [19:52.340] that I think over two million illegal aliens
+- [19:55.650] have either voluntarily deported or have been deported
+- [19:59.230] and that there would be a worker shortage.
+- [20:00.970] Well, what better way to fill that gap
+- [20:03.660] than with overtime for hardworking Americans
+- [20:06.130] and for them to keep more of it?
+- [20:08.680] Kelly Loeffler: Yeah.
+- [20:10.060] I'll just add that a great example
+- [20:12.030] are the factories that we see coming back
+- [20:14.490] thanks to 100% made in America expensing.
+- [20:17.440] Coosa Steel is a great example in Rome, Georgia,
+- [20:20.380] where the owner was down
+- [20:22.420] to running one shift one day a week.
+- [20:24.820] He's up to two or three shifts, five or six days a week.
+- [20:27.840] So thanks to reindustrializing
+- [20:29.560] this nation through our small manufacturing base,
+- [20:32.240] which most manufacturers in America
+- [20:33.790] meet the small business definition, 98% of them.
+- [20:36.840] We're seeing more shifts taking place,
+- [20:38.800] more opportunities for overtime,
+- [20:41.360] and the more willingness of workers
+- [20:42.970] to take on overtime shifts
+- [20:44.700] because in the past they were penalized
+- [20:46.450] by the tax system for taking on overtime.
+- [20:49.480] Karoline Leavitt: Elizabeth, go ahead.
+- [20:50.770] The Press: Thank you.
+- [20:52.000] This is for Administrator Loeffler.
+- [20:53.460] You talked about how the One Big Beautiful Bill benefits
+- [20:55.770] small businesses.
+- [20:56.990] With small business optimism falling in March,
+- [20:59.660] is the administration planning on providing
+- [21:01.470] any additional tax relief
+- [21:02.930] or other resources to small businesses
+- [21:05.280] that have been affected by high fuel prices
+- [21:08.330] during the Iran operation?
+- [21:09.670] Kelly Loeffler: Yeah.
+- [21:10.950] So one data point does not a trend make,
+- [21:13.510] and the long-term trend under President Trump
+- [21:15.520] has been for small business optimism
+- [21:17.270] to be above its 52-year average.
+- [21:19.760] Under Joe Biden, small business optimism
+- [21:21.770] fell below that average for 34 consecutive months
+- [21:25.020] because small business was being crushed by regulation,
+- [21:28.440] massive red tape, the threat of high taxes
+- [21:31.820] and all the burdens of the Green New Deal.
+- [21:34.510] So right now, small businesses are really in growth mode.
+- [21:36.720] They're planning to hire and the optimism is very strong.
+- [21:39.610] If you see in the NAM survey,
+- [21:41.360] National Association of Manufacturers came out,
+- [21:43.280] their optimism is up five points.
+- [21:44.950] So I think this is temporary and we'll get back on trend.
+- [21:48.700] The Press: What's the status of extending
+- [21:50.510] the Iran ceasefire, Karoline?
+- [21:51.980] Karoline Leavitt: Yes.
+- [21:53.180] So I saw some reporting, again, bad reporting this morning
+- [21:56.120] that we had formally requested an extension of the ceasefire.
+- [21:58.610] That is not true.
+- [21:59.820] At this moment, we've remained very much engaged
+- [22:03.430] in these negotiation, in these talks.
+- [22:05.400] You heard from the vice president directly
+- [22:07.120] and the president this week,
+- [22:08.740] that these conversations are productive and ongoing,
+- [22:11.310] and that's where we are right now.
+- [22:12.790] I've also seen some reporting about the potentiality
+- [22:15.420] for in person discussions again.
+- [22:17.830] Those discussions are being had, but nothing is official
+- [22:20.720] until you hear it from us here at the White House.
+- [22:22.490] But we feel good about the prospects of a deal.
+- [22:25.070] The president mentioned that in his interview yesterday,
+- [22:28.010] and it's obviously in the best interest of Iran
+- [22:30.760] to meet the president's demands. I think he's made his red lines
+- [22:33.510] in these negotiations very clear to the other side,
+- [22:36.770] and so we are continuing to see how these conversations go.
+- [22:40.700] The Press: Would those talks be in Islamabad
+- [22:42.410] or where would they be in the next round?
+- [22:44.380] Karoline Leavitt: They would very likely be in the same place
+- [22:46.410] as they were last time, yes.
+- [22:48.860] I would just want to make one point
+- [22:50.480] that's important to the president.
+- [22:52.380] The Pakistanis have been incredible mediators
+- [22:54.860] throughout this process
+- [22:56.070] and we really appreciate their friendship
+- [22:57.520] and their efforts to bring this deal to a close.
+- [23:00.030] So they are the only mediator in this negotiation.
+- [23:03.480] While there have been many countries around the world
+- [23:05.980] who want to offer their help,
+- [23:07.460] the president feels it's important to continue
+- [23:09.520] to streamline this communication through the Pakistanis,
+- [23:12.270] and so that's what continues to take place.
+- [23:15.820] The Press: Thank you, Karoline.
+- [23:17.990] How much room do you see for additional sanctions
+- [23:23.360] being placed on Iran?
+- [23:24.580] And do you feel like the United States
+- [23:26.840] is getting enough support from allies on that front?
+- [23:29.860] There was a letter that went to Homan
+- [23:31.770] and some other allies
+- [23:33.080] that suggested maybe the sanctions weren't --
+- [23:35.790] This could be for Secretary of Defense as well,
+- [23:37.840] but the sanctions basically weren't having the effect
+- [23:39.470] that the United States won.
+- [23:40.710] Karoline Leavitt: I'll let the treasury secretary
+- [23:42.260] who's in charge of sanctions answer that question.
+- [23:44.730] Secretary Bessent: Yeah.
+- [23:45.980] I think that's not a correct characterization.
+- [23:49.210] Yesterday, we announced Operation Economic Fury,
+- [23:52.950] and for over a year,
+- [23:55.440] we have had maximum pressure on the Iranians,
+- [23:58.490] both on blocking payments into the Iranian state
+- [24:03.600] and going after the accounts of the IRGC.
+- [24:07.520] One of what may prove to be fatal mistakes
+- [24:10.790] that the Iranians made was bombing their GCC neighbors
+- [24:15.660] and who are now willing to be much more transparent
+- [24:19.000] in terms of the funds or do a deeper dive
+- [24:22.660] in investigating the funds
+- [24:23.990] that are held within their banking systems.
+- [24:26.760] So we have pushed out to them the request that we want
+- [24:31.960] to freeze more funds of the leadership of the IRGC
+- [24:37.630] and any members of Iranian leadership.
+- [24:39.810] The other thing that we have done is we have told countries
+- [24:45.060] that if you are buying Iranian oil,
+- [24:47.670] that if Iranian money is sitting in your banks,
+- [24:50.450] we are now willing to apply secondary sanctions,
+- [24:53.570] which is a very stern measure, and the Iranians should know
+- [24:58.090] that this is going to be the financial equivalent
+- [25:00.940] of what we saw in the kinetic activities.
+- [25:03.950] The Press: Is this an example of expanding
+- [25:05.830] economically as opposed to militarily?
+- [25:08.050] Is this another phase of that?
+- [25:09.620] Secretary Bessent: Exactly.
+- [25:12.860] The Press: Any updates on the insurance program,
+- [25:14.690] the US reinsurance program for ships and tankers
+- [25:17.930] sailing through the Strait of Hormuz?
+- [25:19.300] Any update on that, sir?
+- [25:20.580] Secretary Bessent: Well, it's now up to 40 billion.
+- [25:22.460] It's run through the DFC, and we are waiting for the ships
+- [25:28.530] to be able to get some symbols of normality,
+- [25:32.020] and then they can come to the DFC
+- [25:34.510] and our private sector partners and request the insurance.
+- [25:40.130] The Press: What do you tell private shipping companies
+- [25:41.900] out there right now nervous about this whole thing,
+- [25:44.870] wondering if they should even get near the Strait?
+- [25:47.170] Secretary Bessent: What's that?
+- [25:48.390] The Press: What do you tell to encourage shipping companies
+- [25:51.870] to do business through the Strait?
+- [25:53.220] Secretary Bessent: Well, I think we're going to have to wait
+- [25:54.720] and see when they are permanently open,
+- [25:56.970] because this is a mechanism. When we declare that it is safe,
+- [26:00.730] they also have to have insurance.
+- [26:02.550] Lloyd's of London had skyrocketing insurance
+- [26:06.530] during the time. The rates are still very high.
+- [26:09.860] So we want to provide,
+- [26:11.520] the US government will make a profit on this,
+- [26:13.720] but we want to provide a more normalized level
+- [26:16.700] and an economically sound basis for ships
+- [26:19.650] to move in and out of the Gulf as they did
+- [26:21.810] before the start of the conflict.
+- [26:24.760] The Press: Karoline, I appreciate it.
+- [26:26.090] Thanks, Karoline. I appreciate it.
+- [26:28.090] So I want to cover two topics if I could,
+- [26:30.510] the Tax Day, but also the confirmation.
+- [26:32.900] So the confirmation hearing's set for next week
+- [26:34.610] for Kevin Warsh, but Tom Tillis,
+- [26:36.780] Senator Tom Tillis is still a no,
+- [26:38.330] and he's holding firm on that.
+- [26:39.660] How are you going to win over Senator Tillis
+- [26:41.980] to get this confirmation out of committee?
+- [26:43.960] Secretary Bessent: I'm sure Senator Tillis
+- [26:45.270] wants to do the best thing
+- [26:46.540] for the Federal Reserve for the American people.
+- [26:49.180] He has publicly said that Kevin Warsh
+- [26:51.070] is a great candidate for the chair,
+- [26:52.850] so let's get to the hearings and see where we are then.
+- [26:56.630] The Press: I want to ask you about Tax Day, if I could.
+- [26:58.180] So the tax gains that you've talked
+- [27:00.910] about through the One Big Beautiful Bill,
+- [27:03.530] is that going to offset the consternation from Americans,
+- [27:07.570] for lack of a better term, over the $4 gas gallon of gas?
+- [27:11.700] Secretary Bessent: Well, again, as I said,
+- [27:13.110] no one's ever objected to more money in their pocket,
+- [27:15.600] so the Americans have more money,
+- [27:17.680] they can decide how they want to spend it.
+- [27:19.870] And I did want to come back to the overtime question,
+- [27:22.090] because I was up in Westchester County last Friday,
+- [27:25.650] and I met with several of the first responders
+- [27:30.360] and police unions,
+- [27:32.400] and those, whether it's our great policemen,
+- [27:36.060] our firemen, our ambulance drivers,
+- [27:40.150] they all now want more overtime,
+- [27:42.200] and how great it is to have them to be able to be engaged
+- [27:47.520] and keep more of their money.
+- [27:50.660] The Press: Thank you, Karoline. For both of you perhaps,
+- [27:53.730] are President Trump's threats of a 50% tariff against China
+- [27:58.030] still on the table now,
+- [28:00.030] or is the letter exchange that we talked about now
+- [28:02.610] taking that off of the table?
+- [28:03.880] Karoline Leavitt: Well, as you know,
+- [28:05.110] the president spoke about the letter
+- [28:06.880] with respect to the correspondence
+- [28:08.930] between he and President Xi.
+- [28:10.830] President Xi assured the president
+- [28:12.330] that they are not supplying Iran with weapons
+- [28:15.450] throughout this conflict
+- [28:17.040] and that assurance was made to the president.
+- [28:18.580] It's obviously something the administration
+- [28:20.120] keeps close tabs on with respect to tariff.
+- [28:23.730] You have any update on that, Mr. Secretary?
+- [28:25.380] Secretary Bessent: I don't have an update on the tariffs,
+- [28:26.670] but I do have an update on sanctions.
+- [28:29.940] Iran used to be the largest state sponsor of terrorism.
+- [28:34.730] China was purchasing more than 90% of their oil,
+- [28:38.850] which was about 8% of China's energy needs.
+- [28:42.250] We believe this blockade in the straits,
+- [28:45.740] there will be a pause of Chinese buying,
+- [28:48.440] but I will tell you that two Chinese banks
+- [28:52.770] received letters from the US Treasury.
+- [28:54.860] I'm not going to identify the banks,
+- [28:56.710] but we told them that if we can prove
+- [29:00.160] that there is Iranian money flowing through your accounts,
+- [29:02.940] then we are willing to put on secondary sanctions.
+- [29:05.960] Karoline Leavitt: Nick, go ahead.
+- [29:07.260] The Press: Thank you, Karoline.
+- [29:08.460] Karoline Leavitt: Go ahead, Nick.
+- [29:09.690] The Press: Just a quick follow-up.
+- [29:12.280] Are you considering any more sanctions relief, Mr. Secretary,
+- [29:15.980] for countries that are suffering right now
+- [29:18.830] in order to get more oil to your allies?
+- [29:23.140] Secretary Bessent: We will not be renewing the general license
+- [29:25.730] on Russian oil,
+- [29:27.320] and we will not be renewing the general license on Iranian oil.
+- [29:32.050] Again, that was oil that was on the water prior to March 11th.
+- [29:35.970] So all that has been used.
+- [29:37.170] The Press: Thank you very much.
+- [29:38.420] Karoline Leavitt: Nick, go ahead.
+- [29:39.640] The Press: Thank you, Karoline. My question's for the
+- [29:40.980] (inaudible) Treasury Secretary, as you both noted,
+- [29:42.650] 53 million Americans have used one of these new tax
+- [29:46.120] exemptions the President enacted.
+- [29:48.900] Can you speak to not only the relief
+- [29:50.710] that that's bringing specifically working class
+- [29:53.270] Americans like waiters, bartenders, overtime workers,
+- [29:56.900] but also the impact this is going to have on the economy?
+- [30:00.360] Secretary Bessent: Well, a couple of things
+- [30:01.920] there is I can tell you, I think Kelly's very popular,
+- [30:05.150] but I think with service workers,
+- [30:07.060] I may be the most popular cabinet secretary in DC
+- [30:09.680] because when I show up, a doorman, not so much bartenders,
+- [30:15.130] but waiters, waitresses, they all say,
+- [30:17.870] "Thank you for no tax on tips."
+- [30:19.320] Again, I was in a diner up in Westchester County,
+- [30:22.760] and this is a home run.
+- [30:25.920] In terms of what's happening with these folks
+- [30:30.080] and what we can't tell you yet,
+- [30:32.770] and we will be able to provide data at a later date,
+- [30:35.790] that 52 million is how many have used at least one of those.
+- [30:41.070] So we expect that there are probably multiple filers
+- [30:45.970] or filers who have used at least more
+- [30:49.070] than one of those four signature things.
+- [30:51.950] And look, again, this is the America first, Americans,
+- [30:57.800] hardworking Americans keeping more of their money,
+- [31:00.830] just like with our small businesses.
+- [31:03.050] If we go back and look,
+- [31:04.550] when you hear the left talk about this
+- [31:08.440] was a tax cut for millionaires and billionaires,
+- [31:11.980] they wanted to raise the tax rate
+- [31:14.100] for everyone making more than $500,000,
+- [31:17.110] that is a small business killer.
+- [31:20.700] The Press: Thank you.
+- [31:24.660] I have one question for the secretary
+- [31:26.400] and then the administrator.
+- [31:28.120] Mr. Secretary, since we're on the topic of China
+- [31:30.000] a few minutes ago, we are a little over a year
+- [31:32.640] past Liberation Day, the tariffs.
+- [31:35.020] The goods trade deficit with China has dropped sharply.
+- [31:38.210] Are those gains sustainable
+- [31:40.350] and are you worried about any retaliatory actions
+- [31:43.320] that could go against those gains?
+- [31:45.930] Secretary Bessent: I actually think we're going to be building
+- [31:47.740] on those gains in terms of the trade deficit
+- [31:50.400] dropping with China. Since last summer,
+- [31:53.800] there's been great stability in the relationship
+- [31:56.730] and really the keystone to the relationship
+- [31:59.290] is the strong respect that the two leaders
+- [32:02.180] have between each other.
+- [32:04.760] My experience has been when the communication is at the top,
+- [32:09.570] then we follow that directive and those wishes.
+- [32:14.360] We had the meeting in Busan, Korea.
+- [32:17.080] In October we will be having the state visit in Beijing,
+- [32:21.830] and so I expect great stability in the relationship,
+- [32:25.310] but that doesn't mean that our trade deficit
+- [32:28.210] can't continue dropping.
+- [32:30.100] Karoline Leavitt: Go ahead.
+- [32:32.040] The Press: Question for the administrator.
+- [32:33.830] I know that there are orders and shipments and factory equipment
+- [32:37.020] there at record highs. How many small businesses
+- [32:40.320] has the SBA assisted with loans to support them?
+- [32:46.120] Kelly Loeffler: Well, the SBA set an all time
+- [32:47.680] lending record last year,
+- [32:48.920] $45 billion under President Trump
+- [32:52.160] because small businesses now have access to the capital
+- [32:55.360] that they need to build in America.
+- [32:56.940] Again, we are becoming a nation of builders
+- [32:59.370] and we see that on the ground, factories expanding.
+- [33:02.880] As a result, we have record PMI,
+- [33:06.450] which is purchasing managers index, manufacturing expansion,
+- [33:09.920] two consecutive months in a row of export records.
+- [33:13.580] And so, when you look at where our nation
+- [33:15.710] has come in terms of export, import imbalance,
+- [33:20.830] it's been unfair to the American worker
+- [33:22.510] and to American industry.
+- [33:23.770] And we're reshoring whole industries,
+- [33:25.520] because of this tax bill.
+- [33:30.250] The Press: I have two questions for you.
+- [33:31.550] The first one is about Iran.
+- [33:33.220] The second one's actually about United Airlines
+- [33:35.080] that I want to ask you about. So on Iran, is there a timeline
+- [33:38.820] for how long this blockade is going to remain in place
+- [33:42.220] in the Strait of Hormuz by the United States,
+- [33:44.120] that President Trump has voiced to you
+- [33:45.820] or that you've heard among officials?
+- [33:48.000] Karoline Leavitt: Sure. I will never set timelines
+- [33:50.500] on behalf of the President of the United States,
+- [33:52.410] but with respect to the blockade,
+- [33:54.560] as you know, it has been fully implemented
+- [33:57.150] and it's being enforced against vessels of all nations entering
+- [34:00.440] or departing Iranian ports. I want to make that point clear.
+- [34:03.840] I've seen some misreporting on that as well.
+- [34:05.990] This includes all Iranian ports on the Arabian Gulf
+- [34:08.720] and the Gulf of Oman. And our US forces in the region
+- [34:11.950] are supporting the freedom of navigation for vessels
+- [34:14.670] that are transiting the straight to and from non-Iranian ports.
+- [34:18.350] So I know some in the press were confused about that.
+- [34:20.930] We are supporting the freedom of navigation,
+- [34:23.310] just not with respect to any tanker or vessel
+- [34:25.970] that would benefit the economy of Iran
+- [34:28.850] as these negotiations continue.
+- [34:31.340] The Press: So there was reports that the CEO of United
+- [34:34.670] proposed a merger with American Airlines.
+- [34:37.260] This would affect tens of millions of Americans.
+- [34:40.520] That was proposed in a meeting with President Trump.
+- [34:42.820] Was that a merger that he has purports
+- [34:44.400] to any kind of support of?
+- [34:45.660] Karoline Leavitt: It's not anything
+- [34:46.860] that we have a position on or anything we're commenting on.
+- [34:49.100] I know it's an idea that has been proposed
+- [34:50.870] by private industry,
+- [34:52.090] but it's not something the President or the White House
+- [34:54.060] have an opinion on or are weighing in on at this time.
+- [34:56.830] John? John, go ahead.
+- [34:58.670] The Press: Thanks a lot, Karoline.
+- [34:59.930] This is for Secretary Bessent. On Monday of next week,
+- [35:04.060] importers can start requesting claims for tariff refunds.
+- [35:09.070] And my understanding is $127 billion eligible for refunds.
+- [35:14.680] What's that process look like?
+- [35:16.310] How can a porter and an importer request
+- [35:19.460] such a refund going forward?
+- [35:21.290] Secretary Bessent: That's not being run out of treasury.
+- [35:22.790] We would just be the pay master, so that's being run out of CPB.
+- [35:27.670] The Press: And so, explain that process.
+- [35:29.450] I understand you're not running.
+- [35:30.910] How does that process actually work?
+- [35:32.980] If you're an importer, you paid these tariffs,
+- [35:35.450] the Supreme Court found that those tariffs were illegal.
+- [35:38.940] What's the process for them to get back that money?
+- [35:41.090] Secretary Bessent: Well, they would be in touch with the CPB.
+- [35:44.260] And I think the number you're quoting is the --
+- [35:47.910] So that's the amount who have already requested refunds.
+- [35:52.510] So they are already in the shoot
+- [35:54.770] and we'll see what the timeline is for that.
+- [35:57.600] The Press: Will that affect the US economy,
+- [35:59.120] all of those refunds coming out of the US Treasury?
+- [36:02.460] Secretary Bessent: Again, we'll have to see what comes out
+- [36:06.490] and we'll have to see what the companies do with them.
+- [36:09.770] Just to be clear, just to be clear,
+- [36:11.460] thanks to the Supreme Court,
+- [36:12.790] some of this money's going back to China.
+- [36:14.950] So is that going to affect the US economy?
+- [36:17.070] I don't know.
+- [36:18.310] The Press: (inaudible) A question for us.
+- [36:22.250] Karoline Leavitt: Danny, go ahead.
+- [36:23.880] The Press: Secretary, you were quoted as saying
+- [36:26.080] in an interview earlier this week
+- [36:27.540] that it was worth a bit of economic pain
+- [36:29.740] for international security.
+- [36:31.450] Is that this administration's message to American voters
+- [36:34.400] with high gas prices,
+- [36:35.730] that ahead of the midterms this year
+- [36:37.210] that it's worth the economic pain?
+- [36:38.590] Secretary Bessent: Well, the message
+- [36:40.440] is the short term volatility for long term gain.
+- [36:47.690] Karoline Leavitt: And Danny, if I could add to that,
+- [36:50.710] the president's been very clear.
+- [36:51.980] Again, as the secretary just said,
+- [36:53.640] this is a short term disruption
+- [36:55.720] for the long term strategic goal of the United States
+- [36:58.790] to ensure that the world's leading state sponsor of terror
+- [37:02.390] cannot obtain a nuclear weapon.
+- [37:05.040] That's a good thing for the American people.
+- [37:06.810] That's a good thing for people all over the world.
+- [37:09.240] And as the president and his economic and energy team
+- [37:11.990] have repeatedly stated, as soon as the operation
+- [37:15.360] and now the negotiations with Iran conclude
+- [37:18.740] and the Strait is reopened,
+- [37:20.010] we do expect gas prices to decrease.
+- [37:23.280] And thank goodness we have a president
+- [37:24.680] and an administration
+- [37:25.880] that believes in American energy dominance
+- [37:27.930] in bringing down prices at the pump.
+- [37:29.930] Look at how gas prices decreased over the past year
+- [37:32.370] since this president was in office.
+- [37:34.330] It's a stark contrast to the previous administration
+- [37:36.800] and Democrats in this city,
+- [37:38.680] who believe in hampering our domestic energy industry,
+- [37:42.310] who believe in importing our most precious resources,
+- [37:44.990] who believe in implementing policies
+- [37:47.280] that created the worst inflation crisis in history.
+- [37:50.400] So President Trump has built the greatest economy
+- [37:53.450] in the world before. He is doing it again.
+- [37:56.070] Of course, we have this short-term disruption,
+- [37:58.040] but again, it's for the long-term strategic goal
+- [37:59.790] of ensuring
+- [38:01.050] that these terrorists cannot possess a nuclear bomb.
+- [38:03.670] Jennifer. Jennifer.
+- [38:04.990] The Press: For Secretary Bessent.
+- [38:06.530] On the Russian oil,
+- [38:07.730] I know that the sanctions waivers have expired,
+- [38:10.160] but how much money did Russia benefit
+- [38:12.690] from that temporary sanctions rules?
+- [38:14.570] You initially said about two billion. Is that --
+- [38:17.210] Secretary Bessent: It could have been two billion.
+- [38:18.410] We don't know.
+- [38:19.630] But again, let's think of a different world,
+- [38:23.330] where oil spiked to 150
+- [38:25.910] and they would have made a lot more by doing that,
+- [38:28.960] by pushing the Russian barrels that were already on the water.
+- [38:32.440] They were going to be sold.
+- [38:33.760] They were going to China no matter what.
+- [38:37.360] We pushed them to our allies.
+- [38:38.820] We helped stabilize the oil price.
+- [38:40.820] And as you can see, there were doomsday scenarios.
+- [38:43.440] Oil's going to 150.
+- [38:44.700] It's going to 200, it's going to $250.
+- [38:47.220] West Texas crude for the front month delivery
+- [38:50.280] is about $92 or $93 now.
+- [38:52.730] Karoline Leavitt: (inaudible)
+- [38:56.570] Thank you, everybody.
+- [38:57.860] I know we have two very busy cabinet secretaries
+- [38:59.710] with us here today.
+- [39:00.930] Before we do depart, just one final announcement.
+- [39:03.530] As you know this year,
+- [39:04.730] we celebrate America's 250th birthday.
+- [39:07.980] In honor of this historic occasion,
+- [39:10.150] President Trump and the Department of Interior
+- [39:12.470] will submit plans for the United States Triumphal Arc,
+- [39:16.010] which will be an architectural masterpiece
+- [39:18.030] to celebrate our history right here in Washington DC.
+- [39:22.050] This is a rendering of the arc for you.
+- [39:25.680] Thank you, Peter.
+- [39:27.300] It's quite beautiful, as you can see,
+- [39:29.000] and this monumental arc will beam at 250 feet tall
+- [39:33.490] in honor of 250 years and stand on ground
+- [39:36.960] that is currently empty green space
+- [39:38.920] in Memorial Circle on Columbia Island,
+- [39:41.460] a manmade island in the Potomac River
+- [39:43.730] managed by the National Park Service.
+- [39:45.950] The United States Triumphal Arc will be outfitted
+- [39:48.370] with beautiful artwork and depictions,
+- [39:50.210] celebrating the success of the American people
+- [39:53.070] over our 250-year history
+- [39:55.520] and the enduring triumph of the American spirit.
+- [39:58.100] Long after everyone in this room is gone,
+- [40:00.110] our children and grandchildren
+- [40:01.860] will remain inspired by this national monument.
+- [40:04.790] Beginning construction this year on the architectural arc
+- [40:07.860] is a fitting way to commemorate
+- [40:09.460] the 250th anniversary of American independence.
+- [40:12.790] Great nations build beautiful structures
+- [40:14.940] that cultivate national pride and love of country,
+- [40:18.010] and this Triumphal Arc should be a project
+- [40:19.870] that all Americans of all political persuasions
+- [40:21.980] can support,
+- [40:23.240] because it's a monument for every American
+- [40:25.070] to celebrate 250 years of our nation's proud history.
+- [40:28.540] And again, the plans for this will be submitted tomorrow.
+- [40:31.200] We'll have many more announcements with respect
+- [40:33.070] to our 250th anniversary in the coming months
+- [40:36.160] as we look forward to the 4th of July.
+- [40:38.030] Thank you very much, everyone. Have a great day.

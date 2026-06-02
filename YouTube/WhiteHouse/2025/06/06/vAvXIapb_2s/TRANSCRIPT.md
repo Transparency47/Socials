@@ -1,0 +1,713 @@
+<!-- source: https://www.youtube.com/watch?v=vAvXIapb-2s -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: vAvXIapb-2s -->
+<!-- date_published: 2025-06-06T00:14:42+00:00 -->
+<!-- date_accessed: 2026-06-02T01:24:52.496314+00:00 -->
+
+# Transcript: Discussion on President Trump’s One, Big, Beautiful Bill
+
+- [00:01.510] Taylor Budowich: Okay, we're here at the White House.
+- [00:03.380] to talk about a critical piece of legislation,
+- [00:07.030] as the President's called it, the One Big Beautiful Bill.
+- [00:10.050] Stephen, you were with the President
+- [00:12.450] and us on the campaign trail
+- [00:14.070] as the President traveled the country
+- [00:15.330] talking to voters and making commitments
+- [00:17.580] and promises on what he would deliver.
+- [00:20.190] We're now here with our first key piece of the legislation.
+- [00:23.340] How did we get here?
+- [00:24.650] How has he turned those campaign promises into actual text?
+- [00:28.770] Stephen Miller: Yes, so the most important thing
+- [00:31.040] in politics in America
+- [00:33.460] is honoring the promises that you make to the American people,
+- [00:36.910] that sacred trust between the voter and the man they elect,
+- [00:39.980] in this case the President of the United States.
+- [00:42.110] I, like you, travel with the President
+- [00:44.350] all across the country, packed arenas,
+- [00:47.870] packed airport fields, packed stadiums.
+- [00:50.710] And in every one of those campaign rallies,
+- [00:52.850] he made a series of very specific promises
+- [00:56.410] that help propel him to a landslide victory.
+- [00:58.640] No tax on tips. No tax on social security.
+- [01:01.490] No tax on overtime. No tax you can deduct
+- [01:05.020] if you get an American made car the interest from your taxes.
+- [01:08.250] Building the golden dome to provide a missile
+- [01:10.330] defense shield for the United States of America.
+- [01:12.710] Passing comprehensive border security
+- [01:16.070] and immigration enforcement legislation
+- [01:18.250] to both seal up the southern border on a permanent basis
+- [01:21.170] and get the people here who don't belong back home.
+- [01:24.220] Also, fighting radical transgender insanity.
+- [01:28.590] Also unleashing American energy,
+- [01:31.380] deregulating our economy so we can have job growth,
+- [01:34.120] making the Trump tax cuts permanent.
+- [01:35.860] I could go on and on and one.
+- [01:37.430] Each and every one of those promises
+- [01:40.310] is codified in this legislation.
+- [01:42.980] It is literally as though you took a campaign rally speech
+- [01:46.460] and turned it into a bill.
+- [01:48.050] The reason it is the big, beautiful bill
+- [01:51.270] is because it is a campaign speech
+- [01:54.190] turned into a piece of legislation,
+- [01:55.750] which is why I'm so proud.
+- [01:57.570] Of the House Republicans for passing this bill
+- [02:00.810] and honoring our shared promise to the American people.
+- [02:03.570] Taylor Budowich: So now it's headed over to the Senate,
+- [02:05.420] and I mean, you'd click through, I mean we have three pages here.
+- [02:08.880] Eliminates Medicaid for illegal aliens,
+- [02:11.510] Trump saving accounts for kids, slashes IRS funding,
+- [02:15.810] Green New Deal defunded, energy production unleashed,
+- [02:18.460] tariffs on Chinese-built ships.
+- [02:20.300] You go on and on. Who benefits from this?
+- [02:23.980] Taylor Budowich: Well, first and foremost, the working-
+- [02:25.840] and middle-class people of this country benefit.
+- [02:28.240] For one, according to our estimates,
+- [02:29.560] you're going to see a $13,000 average increase
+- [02:32.550] in take-home pay for the typical family,
+- [02:34.690] $13 thousand through both the combination of economic growth
+- [02:38.070] that this bill will unleash as well as the historic tax cuts
+- [02:40.810] that will be unleashed.
+- [02:42.070] Again, you are talking about
+- [02:43.460] not only making the Trump tax cuts permanent,
+- [02:45.890] but the largest package of working-class,
+- [02:48.610] middle-class tax relief that has ever been proposed.
+- [02:51.410] You combine that with unleashing American energy.
+- [02:54.020] Getting rid of wasteful regulations,
+- [02:55.970] and also very importantly,
+- [02:57.630] getting the illegal aliens out of the country
+- [02:59.800] who are driving down wages for working people.
+- [03:01.950] This is the most working-class bill
+- [03:03.850] that has ever been proposed.
+- [03:05.170] I've been in what people call the conservative movement
+- [03:09.940] for my entire life, since I was a child,
+- [03:12.580] since I wasn't in high school.
+- [03:14.640] I never dreamed that we could have a bill as conservative,
+- [03:19.550] as transformative,
+- [03:21.260] as pro-American as this legislation is.
+- [03:24.610] This is the most populous pro- American bill.
+- [03:27.480] This is the MAGA agenda in legislative form.
+- [03:31.200] I could not be prouder of the people,
+- [03:33.070] including the two men to my left,
+- [03:34.840] who worked with our closest allies in Congress
+- [03:37.500] to make this bill into a reality.
+- [03:39.130] Taylor Budowich: That's great.
+- [03:40.490] And so, Russ Vought, director of OMB,
+- [03:45.770] saw you on Will Kane this week where your sister emailed in
+- [03:48.880] to make sure you pronounced your name, your last name right.
+- [03:51.260] So, Russ Vought.
+- [03:53.820] No, you know, one of the things, obviously,
+- [03:55.670] we talked a lot about last year
+- [03:57.670] and into this year was inflation,
+- [04:00.520] record high inflation under Biden.
+- [04:06.000] And there's been some efforts early on to address that.
+- [04:10.060] How does this piece of legislation address
+- [04:13.080] the cost of living for the American people?
+- [04:15.290] Russ Vought: Across the board, and I just need to reiterate
+- [04:17.020] one of the points that Stephen made,
+- [04:18.230] you have a bill that is so big on promises kept.
+- [04:22.730] Any one of provisions in here
+- [04:25.060] would have been the kind of thing
+- [04:26.370] that would dominate the entire agenda for an entire year,
+- [04:30.020] and we have so many of them in the same bill.
+- [04:33.280] It is fundamentally not a budget resolution.
+- [04:36.160] This is an agenda-setting, agenda-promises-keeping bill.
+- [04:42.520] From the inflation side
+- [04:45.170] Let's look back to what Biden did, right?
+- [04:46.940] So Biden dramatically increased spending, scaled it, used COVID.
+- [04:51.550] We had already funded what was necessary to deal
+- [04:53.610] with the COVID pandemic, and he dramatically expanded.
+- [04:57.160] And at that moment,
+- [04:58.440] you saw inflation really start to become an issue.
+- [05:01.940] They dramatically increased regulations.
+- [05:04.370] They sent energy prices escalating.
+- [05:06.940] And so when President Trump is running on the campaign trail,
+- [05:10.440] His inflationary efforts are aimed at those three issues,
+- [05:15.080] right, deregulate the economy,
+- [05:17.530] get people's prices down, get rid of high energy costs,
+- [05:21.960] American energy across the board.
+- [05:24.550] This bill furthers that.
+- [05:26.120] And then, of course, the spending driver
+- [05:28.880] and dealing with the Biden
+- [05:30.190] spending regime and pulling that back.
+- [05:32.650] And this has historic levels of mandatory spending reforms.
+- [05:37.060] In the constituted as a work requirement,
+- [05:39.650] other reforms, but things that really drive our spending down.
+- [05:44.010] And I think it's going to, it's one of the reasons,
+- [05:45.940] not the only reason, but it's one of reasons
+- [05:47.320] we're back to having the lowest inflation in four years
+- [05:52.360] and we're seeing it drive down
+- [05:53.730] will be below the Fed level soon.
+- [05:56.190] And so this is on a trajectory. That is exactly what he ran on
+- [06:00.710] and dealing with the Biden excesses.
+- [06:02.580] Taylor Budowich: Steven, you had a post on Truth,
+- [06:04.280] or on X, I suppose. Largest tax cut in reform in history.
+- [06:09.740] Interest on car loans fully tax deductible
+- [06:12.050] if the car is made in America. Fast tracks new energy projects
+- [06:15.790] and provides protections against future regulations.
+- [06:18.510] Terminates the Green New Deal.
+- [06:19.900] Cuts 1.6 trillion in net mandatory spending.
+- [06:22.630] The most pro-American tax bill ever, as you were saying.
+- [06:26.770] Jump off of what Russ was talking about,
+- [06:28.990] is how this addresses inflation.
+- [06:30.560] And the cost of living for the average American person.
+- [06:32.780] Stephen Miller: Yes, well,
+- [06:33.980] so you may just listen to some of the examples there,
+- [06:35.790] but every economic provision in this bill
+- [06:39.690] and part of this populist agenda
+- [06:42.300] that President Trump has led for a decade now
+- [06:45.410] is geared towards making life more affordable
+- [06:47.700] and more prosperous for working people.
+- [06:49.970] The ability to go to a car dealership, get a car loan
+- [06:54.380] and deduct 100% of that interest cost from your taxes,
+- [06:58.180] the kinds of deductions that normally
+- [06:59.460] have only been available to people.
+- [07:00.940] Now we're available.
+- [07:02.210] To the middle class, to the working class in this country.
+- [07:05.150] The ability to get energy prices down
+- [07:07.320] even lower than President Trump has already reduced them
+- [07:09.750] by creating a permanent structure
+- [07:11.840] for deregulating American energy
+- [07:13.630] and keeping it flowing long into the future,
+- [07:15.670] that's going to make life more affordable for everyone,
+- [07:17.610] not just the cost of driving, but the cost heating,
+- [07:20.220] the cost air conditioning, the cost electricity,
+- [07:22.670] the costs of everything is going to go down
+- [07:24.460] as a result of this legislation.
+- [07:26.760] The Trump bonus, for families with new children.
+- [07:31.110] Again, think about who's going to benefit
+- [07:32.690] disproportionately from that.
+- [07:33.930] It's not going to be rich people.
+- [07:35.380] It's going to be middle class people,
+- [07:37.130] working class people who have children
+- [07:38.780] are going to get a Trump savings account
+- [07:40.310] for that new child automatically when they're born.
+- [07:43.610] And of course, extending and making permanent
+- [07:45.890] the Trump tax cuts from the first administration
+- [07:48.360] that also disproportionately benefited
+- [07:50.090] the middle and working class.
+- [07:51.340] Not to mention, of course as we've already discussed,
+- [07:53.330] no tax on tips, no tax on overtime,
+- [07:54.930] no tax and social security. All geared towards the people
+- [07:58.220] who came out in droves to elect President Trump.
+- [08:01.220] There's so much to celebrate in this bill.
+- [08:03.820] And again, I don't think it's even possible
+- [08:05.850] to convey sort of the point that Russ made.
+- [08:08.190] If any of these things were done on its own,
+- [08:10.760] this would be considered a historic victory
+- [08:12.550] for the movement, for the presidency, for country.
+- [08:15.050] In other words, if we had just did a bill that say,
+- [08:17.260] just did no tax on tips, that would be,
+- [08:20.630] people talk about that at 50 years, right?
+- [08:22.650] If Ronald Reagan had passed the bill in 1981
+- [08:25.440] saying no tax on tips,
+- [08:26.720] there would be 15 museums out there talking about the time
+- [08:29.800] that Ronald Reagan did no tax-on-tips.
+- [08:31.190] There would be a constant reel on the history channel
+- [08:33.420] about when Ronald Reagan didn't do tax- on-tip.
+- [08:35.320] That's just one part of this bill.
+- [08:37.530] Take, of course, something that I've talked a lot about with you
+- [08:41.380] and with many others on immigration and border security.
+- [08:44.790] This bill fully funds the entire wall
+- [08:50.240] across the entire southern border, land and river.
+- [08:54.170] So again, you think about promises made, promises kept.
+- [08:58.760] Is there a bigger promise than having full,
+- [09:01.310] complete, upfront funding
+- [09:03.430] that Democrats can never take away.
+- [09:05.170] So in other words, it's there, it up front.
+- [09:07.840] And by the way, it is paid for.
+- [09:09.230] Here's another point that isn't discussed very much at all.
+- [09:12.790] The immigration provisions in this bill
+- [09:14.860] are paid for by charging foreign nationals more money
+- [09:18.740] when they want to come to America.
+- [09:20.320] So by raising the fees, on foreign nationals
+- [09:23.890] who are seeking visas and other immigration benefits,
+- [09:26.220] we are paying for the wall,
+- [09:28.440] for the ICE officers, for border agents,
+- [09:30.550] for pay raise that President Trump
+- [09:31.860] promised the ICE officer and the border agents.
+- [09:34.060] So we are literally paying for the defense of the homeland
+- [09:37.260] by increasing fees on those in other countries
+- [09:40.050] who want to come here. So it's a win-win.
+- [09:42.020] Taylor Budowich: So when you hear Stephen talk about it,
+- [09:43.600] obviously, easy sell. How could anyone vote no?
+- [09:47.130] Let's get into the weeds a little bit.
+- [09:49.440] CBO. What's the CBO? How does it work?
+- [09:52.800] What is the scoring mechanism?
+- [09:54.600] And why are people using it as a way to attack the bill?
+- [09:57.530] Russ Vought: The Congressional Budget Office scores bills.
+- [09:59.870] They have what we believe is an artificial, unrealistic aim.
+- [10:03.370] Taylor Budowich: Real quick,
+- [10:04.620] what does it mean to score a bill?
+- [10:06.580] Russ Vought: You take a look at what the bill's provisions do,
+- [10:09.570] and you take it and you apply it
+- [10:11.610] and compare it to current law and current policy,
+- [10:14.540] and say, will this cost more, will it save more,
+- [10:18.790] what should the impact be of the various provisions?
+- [10:21.690] Generally with CBO, we have two main issues.
+- [10:25.330] We have the first issue is that when they compare it to what is,
+- [10:30.530] it is skewed and is artificial.
+- [10:33.740] So they make an assumption, they say all current spending,
+- [10:36.760] which we're on an unaffordable glide path, right?
+- [10:39.810] They say that is extended into eternity.
+- [10:42.600] It's called a baseline.
+- [10:44.050] When they look at tax law, they don't do that.
+- [10:46.880] They assume that if certain things have sunsets,
+- [10:49.250] even though those sunsets exist in spending,
+- [10:52.050] that those sunsets exist in taxes or revenue rates,
+- [10:56.730] that those are going to actually occur.
+- [10:59.670] And so when we just merely extend
+- [11:01.830] and we're doing a lot more than just extend.
+- [11:04.080] But at the general level, if we extend tax relief from 2017,
+- [11:09.530] they give us a $3.7 trillion cost,
+- [11:13.310] of which that's not new policy.
+- [11:15.600] That cost has already been a part of the baseline.
+- [11:20.780] And so it's important when you're scoring something,
+- [11:23.340] when you are deciding how much something should cost,
+- [11:25.920] it should be as accurate as possible.
+- [11:28.020] When you adjust that, this bill actually produces
+- [11:32.950] at least by $1.4 trillion deficits and debt over 10 years,
+- [11:38.700] including all of the things that we do in this bill,
+- [11:41.330] it reduces and as before, the economic growth
+- [11:44.790] that we believe in this administration we will produce
+- [11:47.350] because that's the second big issue
+- [11:49.140] we have historically with CBO
+- [11:51.520] is that they do not believe that your policies
+- [11:54.750] will have more than a static approach to anything.
+- [11:58.270] We call this dynamic and it's typically in the tax side.
+- [12:01.450] So not only do they.
+- [12:03.520] Not account for the fact if you allow
+- [12:05.880] for a 60 percent tax increase on people
+- [12:08.450] because you haven't extended their tax rates,
+- [12:10.730] that might actually have a poor negative economic impact.
+- [12:14.740] Right? They don't assume that.
+- [12:16.340] They don't assume the recessions,
+- [12:18.440] the economic woes that would come from that.
+- [12:22.190] But they also, so that's horrifying,
+- [12:25.130] but they also don't then assume that if
+- [12:28.010] You have policies like no tax on tips.
+- [12:31.340] And no tax on overtime that is encouraging people to stay
+- [12:34.730] and work more and have more productivity
+- [12:37.290] that that's going to lead to higher levels of economic growth
+- [12:40.860] than you would ordinarily assume.
+- [12:43.050] And so that really is the big argument right now
+- [12:45.450] that we're having with CBO.
+- [12:47.010] And unfortunately, it's not just CBO,
+- [12:49.420] it is all of the watchdog groups in this town
+- [12:52.360] who, by the way, are policy agnostic.
+- [12:55.660] So, unlike this President and his administration
+- [12:58.570] that are trying to do... A lot of different things
+- [13:01.080] because we have made promises to the American people,
+- [13:03.650] the President has made promises the American People,
+- [13:06.350] they are looking at this through one small prism
+- [13:09.490] and they are saying by our artificial baseline
+- [13:12.350] this impacts the deficit.
+- [13:13.940] Not only are they wrong, but they are being irresponsible
+- [13:17.980] because we are not policy agnostic.
+- [13:20.340] The President ran and won a landslide
+- [13:23.150] making certain promises to American people that to be kept,
+- [13:26.230] and this is a bill.
+- [13:27.540] Not a budget resolution, mind you.
+- [13:29.540] This is not a bill that's, you know,
+- [13:31.970] hey, what is our full budget picture?
+- [13:35.160] This is a procedural bill
+- [13:38.260] that is allowed to get through the Senate
+- [13:40.660] and avoid the Senate filibuster in which you want
+- [13:43.020] to get as much of your agenda into it as possible.
+- [13:46.400] And as a result, it certainly needs to be scored,
+- [13:50.060] but it's important that it be accurate.
+- [13:51.430] Stephen Miller: Let me I want to break down
+- [13:52.960] some of this deficit stuff some of the CBO issues
+- [13:56.090] because I think it's really important Believe it or not.
+- [13:59.420] I actually was on the staff
+- [14:01.300] in the Budget Committee for two years
+- [14:02.620] So for two year aside to learn everything
+- [14:04.320] there was to know about the Congressional Budget Office
+- [14:06.310] and scoring rules and budget rules
+- [14:07.860] So it's going to get a little bit wonky,
+- [14:10.380] but these are really important points
+- [14:11.930] I want a pick up a little about what Russ said so
+- [14:15.430] Every year in at the end of the fiscal year
+- [14:18.980] September 30th all government funding expires,
+- [14:21.810] it goes down to zero, right?
+- [14:23.550] It goes down the, so if you were to do a score
+- [14:28.900] over spending over the next 10 years,
+- [14:31.000] based on what is known as current law, right,
+- [14:34.060] there would be one year left of spending
+- [14:35.650] and then nine years of nothing.
+- [14:37.170] So you would have a year of spending out of 10.
+- [14:39.150] So if you are scoring based on current law you would show
+- [14:43.970] basically almost no spending over the next decade
+- [14:45.940] because spending all goes to zero
+- [14:47.940] at the end of the fiscal year.
+- [14:50.290] The Congressional Budget Office, when they're projecting future
+- [14:52.340] spending assumes that more or less what you spent last year
+- [14:56.410] will be spent next year. Okay, now take taxes.
+- [15:00.890] Tax cuts most of the time because of reconciliation rules
+- [15:06.020] throughout most of last number of decades.
+- [15:11.170] On five or 10-year time horizons
+- [15:13.410] where they have to be extended and renewed.
+- [15:15.690] And almost without exception, they always are
+- [15:17.490] extended or renewed. It's just part of the law.
+- [15:19.540] So the middle-class person is, say, paying 15 percent,
+- [15:24.910] and that's, say for 10 years,
+- [15:26.510] and if Congress doesn't renew it,
+- [15:28.720] it would go up to 25 percent without fail almost every time.
+- [15:32.260] Eventually, Congress, usually Republicans, come in
+- [15:36.290] and they extend that tax rate.
+- [15:38.210] So under a, what is known as a current law baseline.
+- [15:46.530] CBO is not doing the same assumption
+- [15:49.010] it's doing with spending.
+- [15:50.540] CBO's assuming that every single tax rate in America
+- [15:54.900] is going to surge up to what it was
+- [15:58.720] before the last Trump tax cuts. And so what they're saying is,
+- [16:03.450] immediately because among all the other provisions.
+- [16:10.040] That Trump tax cuts in place and continues them,
+- [16:13.090] they're saying the act of not raising taxes
+- [16:15.940] costs several trillion dollars, which is absurd.
+- [16:19.180] It does not cost the government
+- [16:21.460] anything to maintain status quo tax rates.
+- [16:25.540] By definition, you cannot cost the government something
+- [16:28.570] by not raising tax.
+- [16:29.840] Only a communist would make the argument
+- [16:32.460] that not raising taxpayers
+- [16:34.110] is stealing something from the government.
+- [16:36.090] So the only honest way to do a baseline is to say,
+- [16:41.860] what is Congress going to tax in a realistic scenario,
+- [16:46.770] and what is Congress going to spend in a realist scenario?
+- [16:49.460] In any realistic scenario Congress
+- [16:51.700] is going to keep the tax rates from jumping up.
+- [16:57.160] What this bill does on the tax side,
+- [17:00.070] by locking in the current rates,
+- [17:02.570] and then by cutting spending almost $2 trillion,
+- [17:05.120] is it reduces the deficit over any realistic
+- [17:07.620] set of assumptions by almost $1 trillion.
+- [17:10.010] And that was a very long explanation for getting there.
+- [17:12.980] But the bottom line for everyone watching at home is this.
+- [17:16.710] When you see anyone online
+- [17:19.080] talking about the CBO deficit score.
+- [17:23.390] 100% of that is the CBO.
+- [17:26.930] Criticizing the tax cut, that is it.
+- [17:29.740] So every reference to the deficit
+- [17:31.980] and CBO is 100% about your tax cut.
+- [17:37.540] It is not about spending.
+- [17:39.030] Spending in this bill is cut almost $2 trillion,
+- [17:42.070] including through the largest welfare reform in history.
+- [17:44.370] Very long, very technical, took up a lot of time,
+- [17:46.300] but had to do it.
+- [17:48.030] Taylor Budowich: I think it's important.
+- [17:49.410] I don't think that people want to intend
+- [17:51.740] on attacking the tax cut,
+- [17:53.800] but the CBO and the scoring mechanism
+- [17:56.460] is obviously convoluted and complicated,
+- [17:59.460] and I think --.
+- [18:01.060] (talking simultaneously).
+- [18:06.570] Taylor Budowich: So not to continue the technicality,
+- [18:09.060] but James, you've been owning this bill.
+- [18:13.890] You've been working both on the House --
+- [18:16.140] congratulations helping getting it through the House.
+- [18:19.620] I know that was an important lift, an important part.
+- [18:25.490] People on X and on social media
+- [18:27.830] are talking about single subject matter.
+- [18:29.650] Why don't you break this apart
+- [18:31.350] into a thousand different little bills and pass them that way.
+- [18:34.840] James Braid: And, you know, I think that to the point
+- [18:36.950] that Stephen made earlier, the reason you cannot do this
+- [18:40.870] is because we are doing a special process
+- [18:43.440] called budget reconciliation.
+- [18:47.290] The Senate requires 60 votes to pass legislation.
+- [18:51.240] And the benefit of budget reconciliation,
+- [18:53.660] where we're reconciling the law with the budget
+- [18:57.290] is that you have a 50 plus 1 vote threshold in the Senate.
+- [19:03.170] The reason you put everything together
+- [19:05.350] and as much as you can and everything,
+- [19:08.420] as Stephen said, all of Trump's campaign promises,
+- [19:11.380] this campaign speech,
+- [19:12.680] and the covenant the President made with the American people
+- [19:15.100] turned into One Big Beautiful bill
+- [19:18.830] is because you have one bite at the apple
+- [19:21.040] and you have to execute absolutely
+- [19:23.130] as much you can at that bite.
+- [19:26.390] And so for folks online saying, well, we should do short bills.
+- [19:28.940] This bill's long. It's complicated.
+- [19:30.420] I'm finding different things that maybe I don't like as much.
+- [19:34.240] The requirement of getting the President's agenda done
+- [19:37.590] is to put everything together into a single,
+- [19:40.880] big, beautiful piece of legislation.
+- [19:43.060] And that's what we've done here.
+- [19:44.640] Taylor Budowich: So in that, the President has said,
+- [19:46.860] he said on the campaign trail.
+- [19:48.070] I don't know how many times he said it in interviews.
+- [19:51.550] He said it an office. No cuts to Medicaid.
+- [19:56.480] And yet, Democrats are doing what Democrats do.
+- [19:59.510] The media is doing what the media does and says,
+- [20:02.170] the President is trying to push granny off a cliff
+- [20:04.800] and cut Medicaid.
+- [20:06.060] Can you unpack that and really explain
+- [20:07.340] what they're doing and why they're doing it?
+- [20:08.640] James Braid: And so, first of all,
+- [20:09.840] we're talking about Medicaid,
+- [20:11.050] which does not affect, in the main granny,
+- [20:14.760] Medicare is the health care program for seniors.
+- [20:18.850] What we are doing with Medicaid
+- [20:20.700] and with other welfare programs is very simple.
+- [20:23.200] We are eliminating waste, fraud,
+- [20:26.660] and abuse using a Clinton-era technique,
+- [20:30.410] which in the past, before the parties became so polarized,
+- [20:34.800] had broad bipartisan support.
+- [20:36.740] And that is through work requirements.
+- [20:38.970] And the work requirements are if you volunteer,
+- [20:42.530] go to school or work 20 hours a week,
+- [20:45.760] no one who does those things will lose any benefits.
+- [20:49.170] What we are focusing these programs on
+- [20:51.630] is the actual needy population that can't work,
+- [20:55.060] that's disabled, that has children at home
+- [20:58.150] who need these benefits in order to,
+- [21:01.010] you know, continue and carry out their daily lives.
+- [21:03.420] That's what this bill focuses on.
+- [21:05.470] It focuses on a historic.
+- [21:08.790] Historically bipartisan, effective method
+- [21:11.830] for eliminating waste, fraud, and abuse in these programs.
+- [21:15.190] And we did it in the late 1990s,
+- [21:16.860] saved hundreds of billions of dollars,
+- [21:18.950] and brought more people back into the workforce
+- [21:21.580] where they got better health care
+- [21:23.050] than is available through the government.
+- [21:25.480] And we think these reforms and the reform approach
+- [21:28.410] that we have done with this bill is precisely in that vein
+- [21:33.000] and will be successful in the same way
+- [21:34.460] that the 1990s reforms were.
+- [21:36.250] Taylor Budowich: I mean, you talk about the 1990s.
+- [21:38.210] Senator Dick Durbin, who happens to still be around.
+- [21:42.610] Liberals, conservatives came together and said,
+- [21:44.540] let us put people back to work.
+- [21:46.800] If we are going to solve the welfare mess for good,
+- [21:49.740] take people off welfare permanently.
+- [21:52.010] We need to put them to work."
+- [21:53.820] Now, we're not even suggesting that.
+- [21:55.610] We're suggesting?
+- [21:56.880] James Braid: Community service, going to school,
+- [21:58.360] these are all options.
+- [21:59.590] And again, it's just 20 hours a week.
+- [22:01.630] It's not even sort of a full-time requirement.
+- [22:04.670] Taylor Budowich: So let's go on then
+- [22:06.160] to no tax on Social Security,
+- [22:07.840] another campaign promise that the President made,
+- [22:11.520] another piece of legislation that's packed
+- [22:13.810] into this reconciliation bill. How important is that?
+- [22:17.980] James Braid: Look, I think, you know,
+- [22:21.070] when you look at the tax bill and the tax section,
+- [22:24.960] what do people talk about? What are people excited about?
+- [22:28.110] What do people are really interested in?
+- [22:29.670] It's those three campaign promises
+- [22:31.670] that the President made, including the four tips,
+- [22:35.090] social security, overtime, and car loans.
+- [22:38.490] And with the big three, tips, social security and overtime,
+- [22:41.510] I say big because that's the magnitude of them.
+- [22:44.380] What we're talking about here is a labor stimulus.
+- [22:48.610] We're bringing people off the sidelines into the workforce
+- [22:53.130] and making sure that people who do work more get paid more.
+- [22:56.910] It's about enhancing the dignity and rewards of work.
+- [23:01.530] And we think that's going to bring people off the sideline,
+- [23:04.150] bring people into the labor force,
+- [23:06.130] and really create that economic surge
+- [23:08.390] that the President saw in 2019
+- [23:10.400] and will see again as a result of this legislation.
+- [23:13.170] Taylor Budowich: So Russ, let's talk about cuts,
+- [23:15.080] because one of the great efforts
+- [23:16.950] that the President has championed is DOGE
+- [23:20.650] and the rooting out of waste fraud abuse
+- [23:23.480] and it's been tremendously successful.
+- [23:26.250] Now there's critics out there that say there's not enough cuts
+- [23:31.350] and the DOGE cuts aren't in this reconciliation package.
+- [23:35.020] Why aren't they?
+- [23:36.340] Russ Vought: To James's point,
+- [23:37.560] this is a procedural reconciliation device
+- [23:40.710] to get through the United States Senate's filibuster.
+- [23:43.850] And so there are rules that are part of that.
+- [23:46.470] And that one of those rules is that discretionary
+- [23:49.990] spending that most people would think about
+- [23:52.420] is what funds the bureaucracy?
+- [23:54.560] When you talk about the annual process
+- [23:57.170] about does the government get funded or not,
+- [23:59.540] that is all about discretionary appropriations.
+- [24:02.580] To Stephen's point yesterday, why?
+- [24:04.380] Because if it doesn't pass. It sunsets to zero.
+- [24:07.630] That is something that can't be carried
+- [24:10.990] on a reconciliation bill, period by law.
+- [24:15.150] And so all of the DOGE savings to deal with the USAID
+- [24:19.110] or Department of Education
+- [24:20.600] to get woke and weaponized spending,
+- [24:22.890] to get kind of the CRT ideology,
+- [24:26.630] the rank wastefulness out of these agencies,
+- [24:29.580] all of that is stuff that has to be done.
+- [24:32.590] With a different procedure of which we have many,
+- [24:34.900] many plans, initiatives and tools to do so.
+- [24:37.490] We just sent up our first rescission bill
+- [24:40.490] aimed at Corporation for Public Broadcasting, NPR,
+- [24:43.890] and USAID cuts of $9.4 billion
+- [24:47.990] that we're working with Congress to pass.
+- [24:50.080] So we have hundreds of billions of dollars on the DOGE side
+- [24:55.460] that we are working both with Congress
+- [24:57.760] and our own executive tools
+- [24:59.220] just to not spend the money on one side of the House.
+- [25:02.270] While we do what there hasn't been
+- [25:04.050] even a conversation about doing
+- [25:06.110] since 1997 of dealing with the mandatory
+- [25:09.280] spending which is on autopilot in law
+- [25:12.260] that can be done through reconciliation.
+- [25:14.660] And so there is this misperception out there
+- [25:16.730] that this is a budget bill,
+- [25:18.070] that this is a budget resolution,
+- [25:19.320] so why wouldn't you account for all of your savings in there?
+- [25:24.230] And there's a legal reason
+- [25:26.070] for why we have not been able to do that.
+- [25:29.000] Stephen Miller: I want to just pick up on what Russ said.
+- [25:30.930] So there's a process known as reconciliation.
+- [25:36.010] Again, it all gets very technical.
+- [25:37.760] And in that, you're allowed to do savings
+- [25:39.510] on what is called mandatory spending.
+- [25:41.950] Mandatory spending is spending that is automatic
+- [25:45.850] and that doesn't expire.
+- [25:47.270] So these would be things like Medicaid
+- [25:48.980] and things like food stamps.
+- [25:50.300] That's where we have the largest welfare
+- [25:51.660] reform in history in this bill.
+- [25:53.740] Another kind of spending is known as discretionary.
+- [25:56.230] That's what funds the bureaucracy,
+- [25:57.710] as Russ mentioned. Department of Education,
+- [25:59.830] Department of Labor, Department of Commerce,
+- [26:01.560] the Federal Workforce, Federal Grants.
+- [26:04.940] That has to be cut through a process known as rescissions.
+- [26:09.330] It's a separate process.
+- [26:10.580] We're sending out rescissions bills
+- [26:12.400] to codify all of these cuts. You can also make these cuts
+- [26:15.990] through the annual appropriations process
+- [26:18.490] that requires 60 votes, rescissions require 50 votes.
+- [26:21.580] This bill is not a spending bill.
+- [26:26.100] So in other words, if you ask me how much --
+- [26:28.770] Russ Vought: If we wanted to do it, we couldn't.
+- [26:30.270] Stephen Miller: Right, we couldn't.
+- [26:31.510] If we wanted to, we could.
+- [26:32.750] But the flip side of that is not only can we not
+- [26:35.220] cut discretionary money in this bill,
+- [26:37.300] but this bill is not also responsible
+- [26:39.310] for new spending either. There's no money in the bill
+- [26:42.510] to fund the Department of Education.
+- [26:44.080] There's not money in a bill to fund the department of labor.
+- [26:46.400] There's now money in the bill to fund the Dept of Commerce.
+- [26:48.670] There's money in in this to fund the entire architecture
+- [26:51.570] of the federal government. There's more money in to fund
+- [26:53.960] the entire architectural federal grants.
+- [26:56.170] So again, it's a thought experiment.
+- [26:58.720] But if you pass this bill and then said,
+- [27:01.360] all right, we're done for the year.
+- [27:03.370] That's it, no more bills.
+- [27:05.670] Government funding would go down like half overnight.
+- [27:10.210] In other words, this bill is not responsible
+- [27:13.910] for funding government.
+- [27:15.270] This bill has two major fiscal provisions in it.
+- [27:19.530] Reforms welfare and it cuts taxes.
+- [27:22.280] Two long-held Republican objectives.
+- [27:25.590] Taylor Budowich: And I think it's important to note, too.
+- [27:28.670] I mean, there's probably no bigger defendants or proponents
+- [27:31.390] than DOGE than this team here.
+- [27:34.100] And as relating to this reconciliation bill,
+- [27:37.950] if we wanted to, we couldn't. But we do want to, and we will.
+- [27:42.340] It's just not through this vehicle.
+- [27:43.850] James Braid: And we have.
+- [27:45.130] We've sent that vehicle up to Capitol Hill.
+- [27:46.900] It's one of those vehicles, and will continue to do it.
+- [27:48.700] Taylor Budowich: And the great thing is,
+- [27:49.910] there is tremendous work that's been done by DOGE,
+- [27:52.650] and there's tremendous savings that have been identified.
+- [27:55.010] And it's going to take a meticulous and tireless effort.
+- [27:58.250] It's going to take the support,
+- [27:59.810] the continued support of the American people,
+- [28:01.800] but this reconciliation bill is different than that.
+- [28:04.360] And I think it's important to understand that.
+- [28:06.610] James, where does this bill stand now?
+- [28:09.210] I know you had a bunch of the Senate leaders
+- [28:12.600] in the White House yesterday talking through it.
+- [28:15.420] Where are we?
+- [28:16.710] James Braid: So I cleared the House a couple of weeks ago,
+- [28:19.610] 215, 214, with one present vote. So very close vote in the House.
+- [28:25.400] In the Senate, you know, we're having great conversations.
+- [28:28.950] The President's been incredibly involved.
+- [28:30.870] He's the best advocate, he's the, you know,
+- [28:32.650] best salesman, best negotiator in the world.
+- [28:34.730] Taylor Budowich: Got the best closer that there is.
+- [28:36.180] James Braid: Right, and so, you know,
+- [28:37.420] I feel incredibly confident
+- [28:39.170] when I'm, you know happen to be present
+- [28:40.600] for some of these conversations and see the President
+- [28:42.800] and see that the impact that he has on these conversations.
+- [28:46.160] We're sort of balancing different Senate equities.
+- [28:48.900] The reality is, and going back to what I said,
+- [28:51.140] 215, 214, that's one vote.
+- [28:53.640] So you've got a very narrow pathway in the House.
+- [28:57.270] We've got some senators with some strong opinions
+- [28:59.530] about which direction the bill should go,
+- [29:01.480] but the basic structure and features of the House bill
+- [29:04.540] have to remain.
+- [29:06.020] But we think we're very optimistic.
+- [29:08.330] Having great conversations with committees
+- [29:10.390] across the United States Senate to ultimately keep this product.
+- [29:13.950] It's a product that we're excited about now.
+- [29:15.630] We think what's going to come out of the Senate
+- [29:17.180] is a product we're even more excited
+- [29:18.840] about that's going to deliver
+- [29:20.420] on even more of the President's campaign promises.
+- [29:23.540] And ultimately, we think we're going to get this done
+- [29:27.360] and we're going to get this in July
+- [29:29.860] and basically have a huge down payment
+- [29:33.740] on the extraordinary campaign promises
+- [29:35.940] that the President made in the 2024 election cycle.
+- [29:37.950] James Braid: I think we should talk about what happens
+- [29:39.360] if this bill were not to pass.
+- [29:41.760] So number one, overnight, everyone's tax rates would go up
+- [29:44.920] 50, 60, 70 percent.
+- [29:46.860] Number two is the funding for border
+- [29:50.840] and immigration security would never happen
+- [29:53.010] because you would have to then get it through a 60-vote process
+- [29:55.930] and Democrats are never going to give it to you.
+- [29:57.700] In fact, worse than that,
+- [29:59.080] Democrats will use the appropriations
+- [30:00.640] to starve ICE and starve Border Patrol out of funds
+- [30:03.890] to try to shut down the border and Immigration enforcement.
+- [30:08.380] You would also have a breach
+- [30:11.620] of what's known as the debt ceiling,
+- [30:13.340] which would lead to a radical spiral up in interest rates,
+- [30:17.410] which will then cause an explosion
+- [30:20.280] in the deficit and debt.
+- [30:21.530] In other words, the rise in interest rate payments
+- [30:25.410] would go up exponentially,
+- [30:26.850] which would cause deficits to go up,
+- [30:28.330] exponentially, would cause interest rates
+- [30:29.930] to keep going higher,
+- [30:31.140] and you would end up with a debt bomb
+- [30:32.570] that we've never seen before.
+- [30:34.130] So, everything in this bill is a massive win
+- [30:38.610] for the conservative movement, for the President,
+- [30:40.200] for the MAGA movement, for country.
+- [30:42.160] The absence of passing this bill would be all those things
+- [30:45.030] that I just said and many more.
+- [30:47.120] Taylor Budowich: So to sum this up,
+- [30:49.190] I think, to the Republicans in the House
+- [30:53.460] and obviously the Senate who campaigned
+- [30:55.970] on making America great again, this is your vote to do it.
+- [31:00.050] To the Democrats that are from districts and states
+- [31:04.530] that helped elect Donald Trump,
+- [31:06.970] I'm thinking Pennsylvania, Michigan, Wisconsin,
+- [31:10.370] this a bill to honor the promise or the demand from the voters
+- [31:14.560] that will help to elect Donald Trump.
+- [31:16.090] This is your opportunity to deliver
+- [31:17.630] on something that truly is
+- [31:20.320] and can be uniting and beneficial to every American.
+- [31:26.260] So with that I'd like to conclude
+- [31:28.270] thank you everyone for being here
+- [31:30.100] to try to work through the technical nature
+- [31:32.330] of a reconciliation bill,
+- [31:34.100] but more importantly of how it really delivers on
+- [31:37.000] behalf of the American people. Thank you.
+- [31:40.000] Stephen Miller: Thank you.

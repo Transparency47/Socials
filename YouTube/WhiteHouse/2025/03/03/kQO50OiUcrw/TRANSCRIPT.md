@@ -1,0 +1,669 @@
+<!-- source: https://www.youtube.com/watch?v=kQO50OiUcrw -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: kQO50OiUcrw -->
+<!-- date_published: 2025-03-03T20:11:46+00:00 -->
+<!-- date_accessed: 2026-06-02T02:53:13.060445+00:00 -->
+
+# Transcript: President Trump Makes an Investment Announcement
+
+- [00:02.520] The President: Hello, everybody. Thank you very much.
+- [00:12.110] Thank you very much.
+- [00:13.420] This is a very big day for a lot of reasons,
+- [00:17.140] but this gentleman is a very unique man.
+- [00:23.350] I think I can say, in the world of chips,
+- [00:25.970] certainly, but in the world pretty much of business,
+- [00:28.120] nobody has done what he’s done.
+- [00:31.770] For those of you that are into that world, you would say,
+- [00:35.650] “Wow, he’s a legend.” But he is a legend.
+- [00:37.640] And it’s an honor to be with you.
+- [00:39.000] Very great honor. Thank you very much.
+- [00:40.340] Mr. Wei: Thank you, Mr. President.
+- [00:41.540] The President: Thank you very much.
+- [00:44.270] Welcoming, from TSMC -- which is the biggest there is,
+- [00:49.080] at a level that you can’t even calculate, frankly -- C.C.
+- [00:54.790] Wei, to the White House for a very historic announcement.
+- [00:59.010] This is a tremendous thing for our country
+- [01:01.920] and, hopefully, for his company.
+- [01:04.800] We’re also pleased to be joined
+- [01:06.160] by Commerce Secretary Howard Lutnick and White House AI
+- [01:10.230] and crypto czar, David Sacks,
+- [01:14.380] another two very highly respected people.
+- [01:17.250] It’s great to have you guys involved.
+- [01:20.430] And, David, thank you very much for coming on.
+- [01:23.400] David is sort of the king of intellect in that world.
+- [01:28.620] We have some good people.
+- [01:29.860] Today, Taiwan Semiconductor is announcing
+- [01:32.480] that they will be investing
+- [01:34.260] at least $100 billion dollars in new capital
+- [01:37.810] in the United States over the next short period of time
+- [01:41.260] to build state-of-the-art semiconductor
+- [01:43.170] manufacturing facilities.
+- [01:44.920] I think, mostly, it’s going to be in Arizona,
+- [01:46.710] which is what I understand, which is a great state.
+- [01:51.080] I like it because I won it.
+- [01:53.320] But I won most of them -- (laughs)
+- [01:54.550] -- actually. So -- but I did. We won it, and we won it big.
+- [01:58.480] The most powerful AI chips in the world
+- [02:00.640] will be made right here in America,
+- [02:03.370] and it’ll be a big percentage of the chips made by his company.
+- [02:06.440] But, as you know, they’re based mostly in Taiwan.
+- [02:10.770] And they’re far and away the biggest.
+- [02:12.810] There’s nobody even close.
+- [02:14.090] This $100 billion in new investment will go into building
+- [02:18.020] five cutting-edge fabrication facilities
+- [02:21.280] in the great state that we just discussed, Arizona,
+- [02:25.110] and will create thousands of jobs --
+- [02:27.260] many thousands of jobs, and they’re high-paying jobs.
+- [02:30.610] In total, today’s announcement
+- [02:32.490] brings Taiwan Semiconductor investments
+- [02:34.580] to about $165 billion -- they’ve started already --
+- [02:39.310] among the largest new foreign direct investments
+- [02:41.530] in United States.
+- [02:42.760] Apple, as you know,
+- [02:44.340] made a big announcement last week of $500 billion,
+- [02:47.250] and we have some others that have announced.
+- [02:49.180] We have many that want to announce.
+- [02:51.600] But I don’t have time to do all of these announcements,
+- [02:53.530] I tell you.
+- [02:54.770] But, for you, I’m doing the announcement.
+- [02:56.380] Mr. Wei: Thank you.
+- [02:57.770] The President: This will create hundreds of billions of dollars
+- [02:59.850] in economic activity and boost America’s dominance
+- [03:02.750] in artificial intelligence and beyond.
+- [03:05.770] Semiconductors are the backbone of the 21st century economy --
+- [03:09.350] and, really, without the semiconductors,
+- [03:12.140] there is no economy -- powering everything from AI
+- [03:15.700] to automobiles to advanced manufacturing.
+- [03:18.220] And we must be able to build the chips and semiconductors
+- [03:21.800] that we need right here, in American factories,
+- [03:24.410] with American skill and American labor.
+- [03:27.350] And that’s exactly what we’re doing.
+- [03:29.690] As you know, Taiwan pretty much has a monopoly on that market.
+- [03:34.040] And I think “pretty much” is not a term that’s even appropriate.
+- [03:36.710] They do have a monopoly. And this is a tremendous move
+- [03:40.370] by the most powerful company in the world.
+- [03:43.120] It’s a matter of economic security.
+- [03:45.150] It’s also a matter of national security for us.
+- [03:48.850] And, at the same time, Mr. Wei will be able to diversify
+- [03:54.580] and have his tremendous presence in another place
+- [03:58.700] and a very safe place.
+- [04:00.010] And I want to thank Taiwan Semiconductor
+- [04:02.810] for doing the announcement.
+- [04:05.540] And I’d like to ask Mr. Wei
+- [04:08.260] to say a few words, if you might.
+- [04:09.770] And I’d also like to ask Howard and David --
+- [04:12.030] you can say a couple of words.
+- [04:13.580] But maybe you should go first because,
+- [04:15.820] right now, he’s the most important man in the room.
+- [04:17.640] I’m sorry, fellas.
+- [04:18.840] Please.
+- [04:20.050] Thank you very much. Thank you. Great honor.
+- [04:21.670] Mr. Wei: Thank you, Mr. President.
+- [04:22.880] The President: Thank you.
+- [04:26.680] Mr. Wei: I’m a -- I’m a little bit nervous,
+- [04:29.100] so I have to pull out my piece of paper.
+- [04:34.770] Mr. President, Secretary Lutnick --
+- [04:39.480] and, David, I didn’t know that -- your title, but -- okay.
+- [04:47.270] First, I want to thank -- say thank you to Mr. President
+- [04:52.700] to give me this opportunity
+- [04:55.580] to announce our big project in the U.S.
+- [05:00.550] TSMC is the world’s largest chip manufacturing,
+- [05:05.810] founded by Dr. Morris Chang in 1987.
+- [05:11.520] It’s now at the forefront of semiconductor technology,
+- [05:16.030] supporting AI advancement and industry growth.
+- [05:20.650] In fact, I would like to wind back the time that in 2020
+- [05:27.500] we have to thank President Trump’s vision and his support.
+- [05:32.970] So, TSMC start the journey
+- [05:36.630] of establishing the advanced chip manufacturing in Arizona.
+- [05:44.560] And now, let me proudly say, now the vision become reality.
+- [05:52.780] In Phoenix, Arizona, with 3,000 employees,
+- [05:58.110] we are producing the most advanced chip
+- [06:01.420] made on U.S. soil with the success of our first fab.
+- [06:07.660] So, we are now very happy to announce
+- [06:10.660] we are going to invest additional
+- [06:13.370] 100 billion U.S. dollar in addition to our current
+- [06:18.360] 65-billion-U.S.-dollars investment in Arizona.
+- [06:23.040] We are going to build three more new fab -- be-
+- [06:27.360] -- after we promised the three fabs already,
+- [06:30.520] and another two very advanced packaging fab,
+- [06:35.400] and, most important, an R&D center, also in Arizona.
+- [06:43.560] For this, all the investment -- $165 billion --
+- [06:47.700] is going to create thousand of the high-paid job,
+- [06:51.170] as the president just announced. And we are, most important --
+- [06:56.120] actually, we are going to produce many AI chips.
+- [07:00.020] We are going to produce many chips to support AI’s progress
+- [07:06.290] and to support the smartphone’s progress.
+- [07:10.700] And, again, with that,
+- [07:14.410] I want to thank President Trump again for his support.
+- [07:19.840] In addition, I also want to thank my customers in the U.S.,
+- [07:25.590] such as Apple, Nvidia, AMD, Qualcomm, Broadcom.
+- [07:32.290] They all support TSMC’s manufacturing in the U.S.
+- [07:37.050] Without their support, we probably cannot make it true.
+- [07:41.740] So, again, I want to thank them.
+- [07:46.090] Also, I’d like to thank the TSMC’s employee.
+- [07:50.870] Without their effort, we just cannot make it today.
+- [07:55.180] That’s all I want to say. And thank you.
+- [07:57.440] The President: Thank you. That’s great.
+- [08:00.240] (Applause.) Thank you very much.
+- [08:01.680] Howard, please. David.
+- [08:02.960] Secretary Lutnick: Sure.
+- [08:04.190] The President: Thank you.
+- [08:07.930] Secretary Lutnick: So, I’m thrilled to be here today,
+- [08:11.450] because President Trump has made it a fundamental objective
+- [08:16.680] to bring semiconductor chip manufacturing home to America.
+- [08:22.410] Under the Biden administration,
+- [08:25.810] TSMC received a $6 billion grant,
+- [08:29.790] and that encouraged them to build $65 billion.
+- [08:34.210] So, America gave TSMC 10 percent of the money to build here.
+- [08:39.480] And now you’re seeing the power of Donald Trump’s presidency,
+- [08:43.280] because TSMC,
+- [08:44.810] the greatest manufacturer of chips in the world,
+- [08:47.330] is coming to America with $100 billion investment.
+- [08:51.030] And, of course, that is backed by the fact
+- [08:53.090] that they can come here
+- [08:55.180] because they can avoid paying tariffs.
+- [08:59.460] So, the idea is: Come to America.
+- [09:00.850] Build greatness in America.
+- [09:02.820] Build for the American customers -- the Apple, Nvidia,
+- [09:07.230] that whole list that Chairman Wei gave --
+- [09:11.540] in order to bring production to America.
+- [09:13.920] So, we’re really, really excited.
+- [09:15.680] This continues the most incredible path
+- [09:18.320] you’ve ever seen,
+- [09:19.570] in these first weeks and months of the Trump administration,
+- [09:22.940] of incredible manufacturing coming to America.
+- [09:26.340] The keys that the president has called out are coming here.
+- [09:30.060] They’re coming here in huge size
+- [09:32.260] because they want to be in the greatest market in the world,
+- [09:35.200] and they want to avoid the tariffs that,
+- [09:37.560] if they’re not here, they’d have to suffer.
+- [09:39.660] So, I want to congratulate C.C. Wei
+- [09:43.050] for bringing in this incredible $100 billion investment,
+- [09:46.410] but it’s on the shoulders of our president,
+- [09:48.460] Donald Trump, which is why he’s coming.
+- [09:50.630] So, thank you.
+- [09:52.500] The President: Thank you.
+- [09:53.780] David.
+- [09:55.080] Mr. Sacks: Thank you, sir.
+- [09:56.300] Well, the products that TSMC makes
+- [09:58.470] are literally the most important products in the world.
+- [10:01.380] I mean, these advanced chips power everything.
+- [10:03.700] They power AI. They power your phone.
+- [10:05.420] They power your cars.
+- [10:06.960] And without them, the whole modern economy would stop,
+- [10:10.240] but they’re not made in the United States.
+- [10:11.750] So, for TSMC to move here is a huge, huge development,
+- [10:15.380] and we owe that to President Trump’s leadership
+- [10:17.000] on the economy and Secretary Lutnick as well.
+- [10:19.370] And, C.C., thank you for -- for coming here.
+- [10:21.360] Thank you. Yeah.
+- [10:22.580] The President: Thank you, David.
+- [10:23.820] So, thank you very much.
+- [10:25.090] A big percentage of chips with this investment
+- [10:28.320] will be made now -- a big percentage.
+- [10:31.150] Worldwide, we had very little. Almost none.
+- [10:33.380] We used to have a lot with Intel.
+- [10:35.520] But we had very little.
+- [10:37.330] And we’ll be at close to 40 percent of the market
+- [10:41.030] with this transaction
+- [10:42.530] and a couple of others that we’re doing.
+- [10:44.630] That’s a tremendous leap --
+- [10:48.040] like, a leap that nobody would have really said was possible.
+- [10:51.500] So, I just want to thank you all for being here.
+- [10:53.240] If you want a couple of questions.
+- [10:54.470] (Cross-talk.) The Press: On the --
+- [10:55.760] The President: Ideally on this subject.
+- [10:56.980] Yes, please.
+- [10:57.450] The Press: -- specific number of jobs it will create.
+- [10:58.650] He said thousands -- The President: They -- yeah.
+- [10:59.880] The Press: -- but do you have a better --
+- [11:01.110] The President: They -- you’re probably talking
+- [11:02.330] about 25,000 jobs.
+- [11:04.110] But it’ll get bigger and bigger with time.
+- [11:05.930] Knowing this gentleman, it’ll get bigger and bigger.
+- [11:09.030] There’ll be no stopping him. (Laughs.)
+- [11:10.490] The Press: Mr. President, what more --
+- [11:11.770] The President: Yeah. Brian, go ahead.
+- [11:13.270] The Press: Right. In addition to the jobs,
+- [11:14.540] you talked about national security,
+- [11:15.860] and that’s one thing I think a lot of Americans --
+- [11:17.350] The President: Yeah.
+- [11:18.590] The Press: -- at home don’t understand.
+- [11:19.870] Explain the national security aspect of this.
+- [11:23.190] The President: Well, without the chips and semiconductors,
+- [11:25.110] nothing runs today.
+- [11:26.310] You can’t buy a car without them.
+- [11:28.460] You can’t get a radio, a television, nothing --
+- [11:31.450] you can’t get anything.
+- [11:33.140] And we thought it was very important --
+- [11:35.420] obviously, business was,
+- [11:36.730] but we thought even to terms of national security,
+- [11:39.160] to have this large percentage of the chips, semiconductors,
+- [11:43.240] and other things that they make --
+- [11:45.110] the most important product,
+- [11:46.500] and not a product that you can really copy.
+- [11:49.860] It takes years and years.
+- [11:51.420] You’re on the needle of a pin is total genius.
+- [11:55.280] I mean, they can put things --
+- [11:56.840] I mean, something the size of the needle,
+- [11:58.810] the point of a pin,
+- [12:00.330] they put information that is just not even believable.
+- [12:03.940] So, if you would -- (Cross-talk.)
+- [12:05.230] If you would see this, it’s just really something.
+- [12:06.690] Yes, Brian.
+- [12:07.970] The Press: Can I -- one -- one more aspect to that.
+- [12:09.170] Honda -- The President: Yeah.
+- [12:10.400] The Press: -- announced they’re coming to Indiana
+- [12:11.670] because of the tariffs. Once again --
+- [12:12.890] The President: That’s right.
+- [12:13.830] The Press: -- you’re bringing additional jobs
+- [12:15.030] in manufacturing.
+- [12:16.270] Do you want to comment on that as well?
+- [12:17.520] The President: Well, Honda is coming,
+- [12:18.760] and I told you about Apple, that they’re going to be
+- [12:20.270] starting to build massively here --
+- [12:22.340] $500 billion. And we have many other companies.
+- [12:24.890] It’s going to be announced,
+- [12:26.100] but we had many that have already announced.
+- [12:27.980] And no, it’s going to be great.
+- [12:30.900] It’s looking -- it’s looking really strong.
+- [12:33.910] I don’t think this country
+- [12:35.200] has ever seen anything like we’re seeing right now.
+- [12:37.290] Now, the tariffs, as you know,
+- [12:40.620] it will start a week earlier than the reciprocal,
+- [12:43.150] which is going to be on -- a couple of weeks earlier.
+- [12:45.890] Reciprocal tariffs start on April 2nd.
+- [12:49.940] And I wanted to make it April 1st,
+- [12:51.150] but I didn’t want to do --
+- [12:52.360] I didn’t want to go April Fool’s Day -- (laughter)
+- [12:54.220] -- because that cost me --
+- [12:55.480] that costs a lot of money, but -- that one day.
+- [12:58.330] So, we’re going April 2nd.
+- [13:00.240] But very importantly, tomorrow, tariffs --
+- [13:02.110] 25 percent on Canada and 25 percent on Mexico,
+- [13:06.510] and that’ll start.
+- [13:07.960] So, they’re going to have to have a tariff.
+- [13:09.440] So, what they’ll have to do is build their car plants, frankly,
+- [13:12.340] and other things in the United States --
+- [13:14.370] in which case, they have no tariffs.
+- [13:16.240] In other words, you build -- and this is exactly what Mr. Wei
+- [13:18.710] is doing by building here. Otherwise, they’ll build --
+- [13:21.780] if they did them in Taiwan to send them here,
+- [13:24.620] they’ll have 25 percent or 30 percent or 50 percent
+- [13:28.420] or whatever the number may be someday.
+- [13:30.560] It’ll go only up.
+- [13:32.480] But by doing it here, he has no tariffs,
+- [13:34.490] so he’s way ahead of the game.
+- [13:36.010] And I would just say this to people in Canada or Mexico,
+- [13:40.000] if they’re going to build car plants,
+- [13:42.160] the people that are doing them are much better off
+- [13:44.510] building here, because we have the market.
+- [13:46.040] We’re the market where they sell the most.
+- [13:48.470] And so, I think it’s going to be very exciting.
+- [13:50.750] Very exciting for the automobile companies.
+- [13:53.560] Very exciting for -- I can think of any --
+- [13:56.130] as an example, North Carolina, they had the great --
+- [13:59.420] I used to go there to buy furniture for hotels,
+- [14:02.620] and it’s been wiped out.
+- [14:04.640] That business all went to other countries,
+- [14:07.920] and now it’s all going to come back into North Carolina --
+- [14:10.810] the furniture manufacturing business.
+- [14:12.240] Please.
+- [14:13.470] The Press: Mr. President --
+- [14:14.710] The Press: Is the Ukraine minerals deal now dead,
+- [14:16.260] or can it be revived? What -- what’s your --
+- [14:17.800] The President: Well, I’ll let you know.
+- [14:19.040] We’re making a speech -- you probably heard about it --
+- [14:20.860] tomorrow night, so I’ll let you know tomorrow night.
+- [14:22.840] But, no, I don’t think so. I think it’s --
+- [14:25.330] look, it’s a great deal for us, because, you know,
+- [14:29.130] Biden very, very, foolishly -- stupidly, frankly --
+- [14:33.700] gave $300 billion and -- $350 billion, more accurately --
+- [14:39.030] to a country to fight and to try and do things.
+- [14:45.640] And you know what happened?
+- [14:46.970] We get nothing. We get nothing -- just gave it.
+- [14:50.020] We could have rebuilt our entire U.S. Navy with $350 billion.
+- [14:53.820] Think of it. Three hundred and fifty billion,
+- [14:56.010] we could have rebuilt our U.S. Navy.
+- [14:57.630] So, he gave it away as fast as the money could be gone.
+- [15:00.920] And what we’re doing is getting that all back
+- [15:03.780] and a lot more than that.
+- [15:05.570] And what we need -- it’s very important for this business
+- [15:08.900] that we’re talking about here, with chips and semiconductors
+- [15:11.550] and everything else -- we need rare earths.
+- [15:14.500] And the deal we have
+- [15:15.710] is we have the finest rare earths that you can.
+- [15:17.160] The Press: Sir, on Ukraine. Sir, on Ukraine.
+- [15:18.390] The Press: Are you going to press back --
+- [15:19.360] The Press: Thank you, Mr. President.
+- [15:20.600] What do you need to see from President Zelenskyy
+- [15:22.050] to restart these negotiations?
+- [15:24.310] The President: Well, I just think he should be
+- [15:25.660] more appreciative, because this country
+- [15:27.630] has stuck with them through thick and thin.
+- [15:30.610] We’ve given them much more than Europe,
+- [15:32.930] and Europe should have given more than us,
+- [15:34.520] because, as you know, that’s right there.
+- [15:36.020] That’s the border.
+- [15:39.420] This country really was like the fence on the border.
+- [15:42.500] It was very important to Europe.
+- [15:43.920] And I’m not knocking Europe, I’m saying they’re just --
+- [15:47.260] they were a lot smarter than Joe Biden,
+- [15:48.890] because Joe Biden didn’t have a clue.
+- [15:50.900] He just gave money hand over a fist,
+- [15:53.270] and they should have been able to equalize with us.
+- [15:55.410] In other words, if we gave a dollar, they should have given.
+- [15:57.670] Well, we gave $350 billion. They probably gave 100,
+- [16:02.360] but on top of it all, they get their money back,
+- [16:04.480] because they are doing it in the form of a loan,
+- [16:06.680] and it’s a secured loan.
+- [16:08.580] So, when I saw that, which I’ve known about for a little while,
+- [16:12.230] I said, “It’s time for us to be smart.”
+- [16:15.460] At the same time, it’s great for them,
+- [16:17.280] because they get us in the country taking the rare earth,
+- [16:21.090] which is going to fuel this big engine,
+- [16:23.200] and especially the engine
+- [16:25.060] that we’ve, in a very short time, created.
+- [16:27.120] And we get something, and we’re in the -- we’re there.
+- [16:29.590] We have a presence there.
+- [16:31.550] With all of that being said, I want one thing to happen:
+- [16:34.580] I want all of those young people to stop being killed.
+- [16:37.930] They’re being killed by the thousands every single week.
+- [16:41.170] Last week, 2,700 were killed.
+- [16:43.210] Twenty-seven hundred young -- in this case,
+- [16:45.590] just about, all young boys from Ukraine and from Russia.
+- [16:53.490] And that’s not young people from the United States,
+- [16:56.910] but it’s on a human basis.
+- [16:59.260] I want to see it stop. The money is one thing, but the death.
+- [17:04.070] And they’re losing thousands of soldiers a week,
+- [17:07.500] and that’s not including the people that get killed
+- [17:10.040] every time a town goes down or a missile goes into a town.
+- [17:13.910] (Cross-talk.)
+- [17:15.300] We -- and -- and I want to see it stop.
+- [17:16.760] Yes.
+- [17:17.960] The Press: Mr. President, are you considering canceling
+- [17:19.860] military aid to Ukraine?
+- [17:22.240] And can we get a reaction to what the Kremlin just said,
+- [17:25.260] that your administration is bringing U.S. worldview
+- [17:28.380] in alignment with Moscow’s?
+- [17:30.050] The President: So, this is a deal
+- [17:32.210] that should have never happened.
+- [17:33.440] This is a deal that would have never happened,
+- [17:35.150] and it didn’t happen --
+- [17:36.360] for four years, it didn’t happen.
+- [17:37.830] It was never even close to happening.
+- [17:40.310] If I were president, would not have happened.
+- [17:42.720] And October 7th would have --
+- [17:44.250] would not have happened in Israel.
+- [17:47.230] And inflation wouldn’t have happened.
+- [17:48.890] And Afghanistan, disastrous -- the way they withdrew --
+- [17:52.250] not the fact that they withdrew but the way they withdrew --
+- [17:54.350] would have never happened.
+- [17:55.620] And we would have had Bagram right now
+- [17:57.230] instead of China having it.
+- [17:59.110] It was one hour away from where China
+- [18:00.830] makes their nuclear weapons. We would have kept Bagram --
+- [18:03.480] one of the biggest air bases in the world.
+- [18:06.010] All of these things happened, and it’s a shame.
+- [18:08.510] But it is what it is, and now we’re here.
+- [18:11.780] I want to see it end fast.
+- [18:14.200] I don’t want to see this go on for years and years.
+- [18:17.060] Now, President Zelenskyy supposedly made
+- [18:20.560] a statement today in AP -- I’m not a big fan of AP,
+- [18:23.380] so maybe it was an incorrect statement --
+- [18:25.060] but he said he thinks the war is going to go on for a long time,
+- [18:30.070] and he better not be right about that. That’s all I’ll say.
+- [18:32.150] The Press: Mr. President, is there any --
+- [18:33.440] The Press: Could this project --
+- [18:34.660] could this minimize the impact of the U.S. with chips
+- [18:38.060] should China decide to isolate Taiwan
+- [18:40.330] or China decide to take Taiwan?
+- [18:42.030] The President: Well, it’s a very interesting point.
+- [18:43.590] It’s a great question, actually.
+- [18:44.950] But this would certainly -- I can’t say “minimize.”
+- [18:49.390] That would be a catastrophic event, obviously.
+- [18:52.610] But it will at least give us a position where we have --
+- [18:55.820] in this very, very important business,
+- [18:57.570] we would have a very big part of it in the United States.
+- [19:00.590] So, it would have a big impact
+- [19:02.370] if something should happen with Taiwan.
+- [19:04.550] The Press: And with Russia sanctions,
+- [19:05.820] are you looking at relieving Russian sanctions
+- [19:08.230] if there is a peace deal?
+- [19:09.620] The President: Well, we’re going to make deals
+- [19:10.840] with everybody to get this war,
+- [19:13.400] including Europe and European nations.
+- [19:16.460] And they’ve acted very well. You know, they’re good people.
+- [19:18.540] I know; most of them are friends of mine --
+- [19:20.350] the heads of state, the heads of the various countries,
+- [19:23.000] prime ministers from the different --
+- [19:26.340] I got four prime ministers and five presidents
+- [19:31.320] called me over the last two days,
+- [19:34.170] and they want to work it out. They want to get it worked out.
+- [19:37.460] And I think they’re also -- you know, they’re talking money,
+- [19:39.490] but the money is less important than the deaths.
+- [19:41.890] We’re talking thousands of young people a week.
+- [19:45.380] And people would say why do I care
+- [19:46.670] about Ukraine, young people; why do I care about --
+- [19:49.900] and not all young, but they’re pretty young.
+- [19:52.610] You know, Ukraine is running a little bit low,
+- [19:55.810] and they’re getting older. They’re recruiting older people.
+- [19:58.930] It’s a very, very sad thing that’s happening over there,
+- [20:01.510] and we want to get it finished. We want to stop the death.
+- [20:03.960] (Cross-talk.)
+- [20:05.160] The Press: Mr. President, on the tariffs.
+- [20:07.940] Is there any room left for Canada and Mexico
+- [20:09.720] to make a deal before midnight?
+- [20:11.190] And should we expect those Chinese tariffs,
+- [20:13.240] the extra 10 percent to take effect tomorrow?
+- [20:14.760] The President: No room left for Mexico or for Canada.
+- [20:17.650] No, the tariffs, you know, they’re all set.
+- [20:19.780] They go into effect tomorrow.
+- [20:22.290] The Press: Mr. President, just a follow-up
+- [20:23.580] on my colleague’s question. Hearing --
+- [20:24.910] The President: And just so you understand,
+- [20:26.710] vast amounts of fentanyl
+- [20:28.170] have poured into our country from Mexico
+- [20:32.270] and, as you know, also from China,
+- [20:34.550] where it goes to Mexico and goes to Canada.
+- [20:37.230] And China also had an additional 10, so it’s 10 plus 10.
+- [20:40.980] And it comes in from Canada, and it comes in from Mexico,
+- [20:44.780] and that’s a very important thing to say.
+- [20:46.590] Yeah, please. Go ahead.
+- [20:47.910] The Press: Have you decided if you’re going to suspend
+- [20:49.750] military aid to Ukraine? Have you made that decision?
+- [20:52.120] The President: Well, I haven’t even talked
+- [20:53.390] about that right now.
+- [20:54.670] I mean, right now, we’ll see what happens.
+- [20:57.500] A lot of things are happening right now, as we speak --
+- [21:00.590] I mean, literally as we speak.
+- [21:02.150] I could give you an answer and go back to my office --
+- [21:04.520] the beautiful Oval Office.
+- [21:06.180] I could go back into the Oval Office
+- [21:07.940] and find out that the answer is obsolete.
+- [21:11.110] It’s like his business. It’s obsolete.
+- [21:13.520] You come up with a new chip,
+- [21:14.780] and it’s obsolete about two minutes later, right?
+- [21:17.160] But that’s what’s good about his business.
+- [21:19.040] That’s why he’s the only one that’s successful in it.
+- [21:20.720] But -- The Press: And on tariffs, sir.
+- [21:21.990] The Press: Mr. President,
+- [21:23.210] just to follow up my colleague’s question from Russia
+- [21:24.950] is saying that your foreign policy
+- [21:26.580] is largely in line with their vision.
+- [21:28.870] Should that be concerning to Americans?
+- [21:30.810] The President: Said what?
+- [21:32.040] The Press: Should that be concerning to Americans?
+- [21:33.350] The President: Read the statement.
+- [21:34.590] The Press: That Russia --
+- [21:35.800] Russia says that your administration’s foreign policy
+- [21:38.040] is, quote, “largely in line” with their vision.
+- [21:40.770] The President: Well, I tell you what,
+- [21:42.000] I think it takes two to tango,
+- [21:43.610] and you’re going to have to make a deal with Russia,
+- [21:45.550] and you’re going to have to make a deal with Ukraine.
+- [21:47.650] You’re going to have to have the ascent,
+- [21:50.150] and you’re going to have to have the consent
+- [21:52.040] from the European nations,
+- [21:53.890] because I think that’s important, and from us.
+- [21:56.170] I think everybody has to get into a room,
+- [21:58.670] so to speak, and we have to make a deal.
+- [22:00.960] And the deal could be made very fast.
+- [22:02.560] It should not be that hard a deal to make.
+- [22:04.370] It could be made very fast.
+- [22:06.280] Now, maybe somebody doesn’t want to make a deal,
+- [22:08.700] and if somebody doesn’t want to make a deal,
+- [22:10.230] I think that person won’t be around very long.
+- [22:12.140] That person will not be listened to very long.
+- [22:15.690] Because I believe that Russia wants to make a deal.
+- [22:18.950] I believe, certainly, the people of Ukraine want to make a deal.
+- [22:21.840] They’ve suffered more than anybody else.
+- [22:23.830] We talk about suffering -- they’ve suffered.
+- [22:25.960] But if you think about it, under President Bush,
+- [22:30.580] they got Georgia, right?
+- [22:33.270] Russia got Georgia. Under President Obama,
+- [22:37.970] they got a nice, big submarine base,
+- [22:41.440] a nice big chunk of land where they have their submarines.
+- [22:44.690] You know that, right? Crimea.
+- [22:47.340] Under President Trump, they got nothing.
+- [22:50.500] And under President O-Biden,
+- [22:51.830] they tried to get the whole thing.
+- [22:53.470] They tried to get the whole big Ukraine, the whole thing.
+- [22:58.630] If I didn’t get in here, they would’ve gotten the whole thing.
+- [23:00.920] So, I can only say -- you can go back to Bush,
+- [23:05.620] you go back to Obama, and go back to Biden --
+- [23:08.380] they took a lot.
+- [23:09.800] The only one they didn’t get -- you know what I gave them?
+- [23:12.650] I gave them anti-tank missiles. That’s what I gave them.
+- [23:16.870] I gave them sanctions on Russia -- on Russia.
+- [23:22.680] I gave them Javelins. You know the Javelins?
+- [23:24.700] You know when they took out all those tanks?
+- [23:26.430] You know, the tanks were heading to Kyiv by the hundreds,
+- [23:33.000] and they were unstoppable, and I gave them Javelins.
+- [23:38.490] So, you know, I really --
+- [23:42.350] Putin is the one that will tell you
+- [23:43.650] this has not been so good for them.
+- [23:46.810] The fact is that I just want fairness.
+- [23:49.500] I want fairness.
+- [23:50.780] But think of it. I gave Russia nothing except grief.
+- [23:56.630] I gave them nothing.
+- [23:58.460] I gave them sanctions and Javelins.
+- [24:00.060] That’s what I gave them.
+- [24:01.650] Obama gave them sheets.
+- [24:03.000] And you heard that statement before.
+- [24:04.290] It’s a very famous --
+- [24:05.500] Trump gave them Javelins, and Obama gave them sheets.
+- [24:07.710] And then they say how close I am to Russia.
+- [24:10.050] Let me tell you, we have to make a deal,
+- [24:11.580] because there are a lot of people being killed
+- [24:13.260] that shouldn’t be killed.
+- [24:14.900] But remember, Trump gave them nothing,
+- [24:16.690] and the other presidents gave them a lot.
+- [24:18.280] They gave them everything.
+- [24:19.540] The Press: Mr. President, on trade.
+- [24:20.740] You met with president --
+- [24:22.030] Argentine President Javier Milei at CPAC.
+- [24:23.470] He wants to sign a free trade agreement --
+- [24:24.860] The President: Right.
+- [24:26.100] The Press: -- with the United States.
+- [24:27.380] Is that something that you would consider,
+- [24:28.680] even with Argentina, or any other country?
+- [24:29.910] The President: I’ll consider anything.
+- [24:31.190] And Argentina -- I think he’s great, by the way.
+- [24:32.630] I think he’s a great leader. He’s doing a great job.
+- [24:35.660] He’s doing a fantastic job. Brought it back from oblivion.
+- [24:39.850] Yeah, we’ll look at things.
+- [24:41.170] We’re looking at the UK with things.
+- [24:42.800] It doesn’t have to be tariffs.
+- [24:44.150] But tariffs are easy, they’re fast, they’re efficient,
+- [24:49.210] and they bring fairness.
+- [24:50.460] For instance, when people kill their dollar,
+- [24:54.310] their equivalent of the dollar, whatever --
+- [24:56.190] whether it’s the yuan or the yen in Japan or the yuan in China --
+- [25:00.010] when they drop them down, that gives us --
+- [25:02.340] that puts us at a very unfair disadvantage.
+- [25:05.890] So, all I have to do is say,
+- [25:07.220] “Howard, we’re going to have to raise the tariffs a little bit.”
+- [25:09.670] Because I’ve called President Xi,
+- [25:11.120] I’ve called the leaders of Japan to say,
+- [25:13.480] “You can’t continue to reduce and break down your currency.
+- [25:17.460] You can’t do it, because it’s unfair to us.”
+- [25:19.920] It’s very hard for us to make tractors --
+- [25:22.110] Caterpillar -- here, when Japan, China,
+- [25:25.340] and other places are killing their currency,
+- [25:28.250] meaning driving it down.
+- [25:30.070] So, all of these things add up,
+- [25:32.050] and the way you solve it very easily is with tariffs.
+- [25:34.100] Because when they do that,
+- [25:35.380] instead of having to make phone calls every day,
+- [25:37.180] like I used to do with certain leaders --
+- [25:40.910] President Xi, a little bit -- a lot of phone calls
+- [25:43.660] talking about the fact that they’re lowering their yuan.
+- [25:46.920] They’re lowering it down.
+- [25:48.190] And that makes it very, very hard for us.
+- [25:50.470] So, this way, I just say, “Look, let them do that,
+- [25:52.670] and we make up for it with the tariffs.”
+- [25:54.140] But --
+- [25:55.380] The Press: Will you be speaking with Mexican President
+- [25:56.830] Claudia Sheinbaum about tariffs today?
+- [25:58.050] The President: Yeah, sure, I will.
+- [25:59.290] I have a lot of respect for her. I have a lot of respect for her.
+- [26:02.070] (Cross-talk.)
+- [26:03.290] The Press: After the 10 percent tariff take ef- --
+- [26:04.670] The President: Yeah. The Press: -- takes effect,
+- [26:05.890] it’ll be 20 percent on China now.
+- [26:07.600] How high are you willing to go against China?
+- [26:09.210] The President: Well, I can’t say.
+- [26:10.460] It depends on what they do with their currency.
+- [26:12.530] It depends on what they do in terms of a retaliation
+- [26:15.900] with some kind of an economic retaliation,
+- [26:18.120] which I don’t think they’re going to retaliate too much.
+- [26:20.010] Hey, look, the United States has been taken advantage of
+- [26:24.320] for 40 years. The United States has been
+- [26:27.860] a laughing stock for years and years.
+- [26:30.110] That’s why this gentleman has built in Taiwan,
+- [26:32.430] instead of building here.
+- [26:33.910] It would have been better if he built here.
+- [26:35.560] If we had a president that knew what they were doing --
+- [26:38.200] and we had a lot of them very bad on trade.
+- [26:40.870] Look, I’m a huge fan of Ronald Reagan,
+- [26:42.790] but he was bad on trade.
+- [26:44.300] Very bad on trade. He allowed a lot of people,
+- [26:47.500] a lot of businesses, to be taken.
+- [26:49.050] So, I say that with due respect, because I --
+- [26:51.750] he was so great on other things, but he was bad on trade.
+- [26:55.580] We are setting records right now --
+- [26:59.090] records like nobody has ever seen before.
+- [27:01.190] When you have companies like this coming in
+- [27:03.690] and almost 40 percent of their company,
+- [27:06.240] in one signature, is going to be devoted to what he does,
+- [27:10.490] which is one of the most important --
+- [27:12.310] important businesses in the world,
+- [27:13.830] that’s an unbelievable thing.
+- [27:15.850] When Apple now is going to start building
+- [27:17.560] all of their plants here,
+- [27:20.210] all because of what we’ve done in terms of --
+- [27:23.190] it’s not because he likes me or they like me.
+- [27:25.470] They don’t probably like me at all. I don’t know.
+- [27:27.250] I think he likes me a little bit, at least.
+- [27:28.700] (Laughter.) Mr. Wei: No, I like you.
+- [27:30.080] The President: But you know what?
+- [27:31.300] It’s the incentive we’ve created or the negative incentive.
+- [27:36.320] I mean, it’s going to be very costly
+- [27:38.300] for people to take advantage of this country.
+- [27:41.330] They can’t come in and steal our money
+- [27:43.560] and steal our jobs and take our factories
+- [27:45.940] and take our businesses and expect not to be punished,
+- [27:50.070] and they’re being punished by tariffs.
+- [27:52.330] It’s a very powerful weapon that politicians haven’t used
+- [27:56.940] because they were either dishonest, stupid,
+- [28:00.730] or paid off in some other form. And now we’re using them.
+- [28:03.900] The Press: Have you spoken with President Xi?
+- [28:05.210] The Press: Agriculture -- The President: Say it.
+- [28:06.430] The Press: Have you spoken with President Xi
+- [28:07.820] about this this term?
+- [28:09.030] The President: I don’t want to tell you that.
+- [28:09.860] The Press: On those incentives, sir.
+- [28:11.070] The President: Thank you very much, everybody.
+- [28:12.650] (Cross-talk.) Thank you. Thank you very much.

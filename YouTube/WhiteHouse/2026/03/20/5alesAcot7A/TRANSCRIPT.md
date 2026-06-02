@@ -1,0 +1,311 @@
+<!-- source: https://www.youtube.com/watch?v=5alesAcot7A -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 5alesAcot7A -->
+<!-- date_published: 2026-03-20T22:07:56+00:00 -->
+<!-- date_accessed: 2026-06-02T01:03:22.884710+00:00 -->
+
+# Transcript: President Trump Gaggles with Press Before Departing the White House, Mar. 20, 2026
+
+- [00:05.660] The President: Hello, everybody.
+- [00:06.350] I thought I'd bring our great Secretary of State out.
+- [00:09.670] And he is doing a fantastic job.
+- [00:11.620] So we have Marco. Go ahead, please.
+- [00:13.580] The Press: Mr. President, I wanted to ask you,
+- [00:15.460] Iran executed three people this week.
+- [00:17.260] You have -- The President: Terrible.
+- [00:18.500] The Press: You have vowed strong action in the past.
+- [00:20.830] What message would you send?
+- [00:22.140] The President: Well, we've been hitting them awfully hard.
+- [00:23.960] I mean I don't know if you can possibly get hit harder,
+- [00:27.360] but these are thugs and animals and horrible people.
+- [00:31.500] But you can't hit anybody harder than we've hit them.
+- [00:34.240] But I'm not surprised.
+- [00:35.480] They executed three young people for protesting.
+- [00:38.440] The Press: And do you plan to escort those ships
+- [00:40.290] through the Strait of Hormuz with or without allies?
+- [00:41.960] The President: Well, we're doing very well there.
+- [00:43.220] We're doing very well overall.
+- [00:45.860] You know, we don't use the Strait.
+- [00:47.850] We don't, The United States.
+- [00:49.080] We don't need it. Europe needs it.
+- [00:51.910] Korea, Japan, China, a lot of other people.
+- [00:54.140] So they'll have to get involved a little bit on that one.
+- [00:56.900] The Press: Mr. President, to use, to use
+- [00:59.250] (Inaudible)
+- [01:00.600] South Korea for the United States?
+- [01:03.150] The President: Yeah, what about it?
+- [01:04.390] The Press: Do you still want the South Korea support --
+- [01:06.400] The President: Well, I love South Korea.
+- [01:07.940] We have a great relationship with South Korea.
+- [01:10.030] We're, we're helping South Korea a lot.
+- [01:12.560] The Press: Mr. President,
+- [01:13.870] do you think Israel will be ready to end the war
+- [01:16.430] when you're ready to end the war?
+- [01:19.170] The President: I think so.
+- [01:20.420] The relationship's a very good one. I think so.
+- [01:22.830] You know, it's, we want more or less similar things.
+- [01:26.460] You know what we want? We want victory, both of us.
+- [01:29.440] And that's what we've got.
+- [01:33.090] The Press: What's your plan for -- Mr. President --
+- [01:34.680] The President: Well, you know, I may have a plan or I may not,
+- [01:36.740] but how would I ever say that to a reporter?
+- [01:38.480] If I said that to a reporter, Marco would say, "Please, sir.
+- [01:41.840] Let's bring you over to the helicopter immediately." Right?
+- [01:44.330] The Press: (Inaudible)
+- [01:45.620] The President: No. I can't -- I can't tell you that.
+- [01:47.050] It's certainly a place that's, people are talking about,
+- [01:51.370] but I can't say. Yeah.
+- [01:52.610] The Press: Are you ruling out ground troops there though?
+- [01:54.210] The Press: Mr. President. How will the Operation Epic
+- [01:55.790] Furry effect talks with Russia on Ukraine?
+- [01:57.750] The President: What about it?
+- [01:58.950] The Press: I have to talks on back burner right now
+- [02:00.340] because of the (Inaudible)
+- [02:01.550] The President: No, no. We're talking.
+- [02:02.760] We're talking about it. I think it'll get done.
+- [02:05.050] The Press: When do you spend the next round of talks
+- [02:06.810] to take place?
+- [02:08.210] The President: They take place almost every day.
+- [02:11.270] We're making a lot of progress.
+- [02:12.630] The Press: Mr. President, you said that the war
+- [02:14.320] was militarily won in Iran. What did you mean by that?
+- [02:17.430] You said the war was militarily won in Iran.
+- [02:19.140] What did you mean by that?
+- [02:20.350] The President: Oh, I think we won.
+- [02:21.610] We've knocked out their Navy, their Air Force.
+- [02:23.380] We've knocked out their anti-aircraft.
+- [02:26.030] We've knocked out everything. We're roaming free.
+- [02:28.670] From a military standpoint,
+- [02:30.020] all they're doing is clogging up the Strait.
+- [02:32.490] But from a military, military standpoint, they're finished.
+- [02:35.720] The Press: Can we ask Secretary Rubio a question?
+- [02:38.520] The Press: You said -- you said the --
+- [02:40.490] opening the Strait of Hormuz is a simple military maneuver.
+- [02:44.480] The President: Very simple.
+- [02:45.680] The Press: Yeah, but what did you mean by that?
+- [02:47.610] The President: It's a simple military maneuver.
+- [02:49.980] It's relatively safe, but you need a lot of help
+- [02:54.520] in the sense of you need ships, you need volume.
+- [02:57.850] And NATO could help us,
+- [02:59.860] but they so far haven't had the courage to do so.
+- [03:02.960] And others could help us. But, you know, we don't use it.
+- [03:05.920] You know, at a certain point,
+- [03:07.550] it'll open itself at a certain point.
+- [03:10.330] But we've defeated the enemy, and they are an enemy.
+- [03:13.700] They're a sick group of people. The leadership is gone.
+- [03:17.760] The Navy is gone. The Air Force is gone.
+- [03:20.500] The anti-aircraft equipment that they have,
+- [03:23.710] the radar they have is all gone. Everything's gone.
+- [03:27.780] The Strait itself, the actual Strait -- how are you?
+- [03:30.240] The Press: Hi.
+- [03:31.480] The President: The Strait itself is we're doing a good job,
+- [03:35.070] but it would be nice if the countries, including China,
+- [03:38.830] if the countries that use it,
+- [03:40.280] China uses it 90% of their energy Japan
+- [03:44.140] is 95% of the energy,
+- [03:46.190] it would be nice if those countries would get involved.
+- [03:49.220] The Press: Is Tulsi Gabbard's (Inaudible) job still safe --
+- [04:01.670] The President: What?
+- [04:03.060] The Press: And have you spoken to
+- [04:04.400] (Inaudible)
+- [04:05.600] The President: I thought she did a good job yesterday.
+- [04:07.630] The Press: (inaudible)
+- [04:09.690] the American bases in Europe, Lindsey Graham has asked for you
+- [04:13.930] to reconsider the American bases in Spain,
+- [04:16.740] in Germany after what they have done in the Strait of Hormuz.
+- [04:18.740] What's your take on that?
+- [04:20.030] The President: Well, it deserves,
+- [04:21.320] he's right about asking that,
+- [04:22.560] and I think NATO's gone down a long way
+- [04:24.820] because they haven't, I mean,
+- [04:26.650] they should be helping with the Strait.
+- [04:28.170] They get much of their energy from the Strait of Hormuz.
+- [04:31.720] And if Lindsey Graham said that, and don't forget,
+- [04:34.650] he was the big NATO guy for a while, and now he's not.
+- [04:38.320] And a lot of senators and congressmen, they were big,
+- [04:40.970] they're very upset with the fact that NATO has done nothing.
+- [04:43.730] The Press: Sir, Pope Leo is calling
+- [04:45.070] for a ceasefire in the Middle,
+- [04:46.610] Pope Leo is calling for ceasefire in the Middle East
+- [04:49.720] and to reopen dialogue.
+- [04:51.080] What do you say to the Pope, sir?
+- [04:52.330] The President: Well, look, we can have dialogue,
+- [04:53.740] but we don't, I don't want to do a ceasefire.
+- [04:56.200] You know, you don't do a ceasefire
+- [04:57.780] when you're literally obliterating the other side.
+- [05:00.600] They don't have a Navy, they don't have an Air Force,
+- [05:03.330] they don't have any equipment to,
+- [05:05.040] they don't have any spotters, they don't have anti-aircraft.
+- [05:08.240] They don't have radar,
+- [05:09.460] and their leaders have all been killed at every level.
+- [05:13.210] We're not looking to do that.
+- [05:14.460] The Press: (Inaudible) sir.
+- [05:15.680] The President: Thank you, thank you.
+- [05:16.930] The Press: Chuck Norris,
+- [05:18.390] so, Chuck Norris had passed away recently.
+- [05:22.370] The President: Oh, he did?
+- [05:23.630] The Press: Yeah, yesterday.
+- [05:24.950] The President: I thought he was a great guy.
+- [05:26.210] Wow.
+- [05:27.440] The Press: He died in the hospital I think in Hawaii.
+- [05:29.160] He was a supporter, sir, big actor.
+- [05:31.000] The President: Yeah, he was a supporter.
+- [05:32.200] Chuck Norris died. I didn't know that.
+- [05:34.280] He was a great guy.
+- [05:35.990] He was a really good, tough cookie.
+- [05:38.980] You didn't want to fight him. I can tell you,
+- [05:41.160] he was a tough, great guy with, and he was a great supporter.
+- [05:45.180] Wow. That's too bad. Tell his family highest respect.
+- [05:50.840] Great man.
+- [05:52.080] The Press: Mr. President,
+- [05:53.340] how much is this war costing taxpayers?
+- [05:57.540] The Press: Did you know him?
+- [05:58.840] The President: Well, I know him.
+- [06:00.120] I get along with him great and I probably would.
+- [06:03.120] The Press: Do you want to make deal with him?
+- [06:04.990] Do you want to make a deal with (Inaudible)
+- [06:06.630] The President: Well, I get along with him very well.
+- [06:07.960] The Press: Mr. President,
+- [06:09.800] are you deploying the additional troops
+- [06:12.030] this weekend for this current tour
+- [06:13.970] to optimize your operational capability?
+- [06:17.480] The President: Well, I would say this.
+- [06:18.780] That if I told you the answer to that question,
+- [06:20.990] my military people wouldn't be very happy.
+- [06:23.410] So we have a lot of troops. We have unlimited ammunition.
+- [06:26.780] We have the greatest equipment in the world
+- [06:29.240] and we are decimating Iran and it's about time.
+- [06:32.870] And frankly, it should have been done long before me.
+- [06:35.590] It should have been done before other presidents.
+- [06:43.210] The Press: Polls have shown that NAGA
+- [06:44.450] is essentially unified behind you as a Republican
+- [06:47.300] (Inaudible)
+- [06:48.540] there's been reports that you know,
+- [06:50.970] the United States might be sending 2,500 Marines, um,
+- [06:53.740] to the Middle East. Are you concerned that a move
+- [06:55.770] like that could potentially change the unity?
+- [06:58.030] The President: Well, I don't know.
+- [06:59.370] I seem to have great support
+- [07:01.250] because CNN came out with a poll today that I'm at 100%.
+- [07:06.430] And they said they'd never seen a poll like that.
+- [07:08.380] The CNN poll said that I'm at 100%,
+- [07:11.010] and they've never seen that before which is an honor.
+- [07:14.320] I was, I was impressed that CNN would do that.
+- [07:17.850] But as far as troops are concerned,
+- [07:20.670] I can't tell you what we're doing.
+- [07:24.320] The Press: Mr. President, you took issue
+- [07:25.580] with Australia, Japan, and South Korea this week.
+- [07:28.040] The President: Yeah, I was very surprised.
+- [07:29.330] The Press: Very surprised about Australia and what?
+- [07:31.060] What would you like them to do?
+- [07:32.500] The President: Well, they should get involved
+- [07:33.910] and I was a little bit surprised that they said
+- [07:36.460] no because we always say yes to them.
+- [07:38.930] The Press: What did Australia say no to?
+- [07:41.180] What did Australia say no to, Mr. President?
+- [07:44.270] The Press: They'll allow the US to use air bases
+- [07:46.570] to defend the Strait of Hormuz. What's your response to that?
+- [07:49.760] The President: Well, it's been a very late response, the UK.
+- [07:53.370] Surprise because the relationship is so good.
+- [07:55.680] But this has never happened before.
+- [07:58.490] They were really pretty much our first ally,
+- [08:00.930] all over the world, first ally
+- [08:02.350] and they didn't want us to use the island,
+- [08:04.710] the so-called island,
+- [08:06.030] which for some reason they gave up rights to it.
+- [08:08.840] And I was a little surprised at the UK, to be honest with you.
+- [08:12.750] They should have, they should have acted a lot faster.
+- [08:16.990] The Press: Have you spoken with the prime minister?
+- [08:19.020] The President: Yes, I have. I have.
+- [08:20.230] They should have acted a lot faster.
+- [08:24.850] The Press: Did you see that your former press secretary,
+- [08:27.280] Sarah Sanders, was asked to leave a restaurant by staff
+- [08:30.850] who felt threatened by her politics?
+- [08:32.900] The President: Well, her politics
+- [08:34.100] are right down the center.
+- [08:35.310] She's a good person and that shouldn't have happened.
+- [08:37.850] Where did that take place? Here or in Arkansas?
+- [08:40.200] The Press: In Arkansas.
+- [08:41.410] The President: Wow. In Arkansas? That's very surprising.
+- [08:44.520] I love Arkansas. I won that state by so much.
+- [08:46.960] I think that Sarah's going to be just fine.
+- [08:49.820] But it's too bad. She's a good woman, Sarah.
+- [08:53.440] The Press: Mr. President, the price of oil is way up.
+- [08:56.200] The stock market is dying.
+- [08:58.040] Did you miscalculate the cost of going into Iran?
+- [09:00.430] The President: No, no, no. No.
+- [09:01.640] We're not giving a nuclear weapon to terrorist thugs
+- [09:05.430] and we're knocking the hell out of them.
+- [09:08.250] Their navy's gone, their air force is gone,
+- [09:11.150] their leaders are gone, their anti-aircraft is gone.
+- [09:14.450] Everything's gone.
+- [09:15.670] The Press: But did you expect the economic effect?
+- [09:17.180] The President: And, no, I expected worse, actually.
+- [09:20.520] I really thought, I thought that oil prices
+- [09:22.890] would go much higher when I did that.
+- [09:25.310] We just set every record, every record in the book,
+- [09:28.450] with Dow, with the S&P. Dow had 50,000.
+- [09:32.130] S&P had 8,000, 7,000 at, at levels,
+- [09:36.950] at, at speed like nobody's ever seen before.
+- [09:40.340] But I said, "I have to go off in that path
+- [09:42.410] and I have to take a little journey.
+- [09:43.780] We have to get the --"
+- [09:45.120] And he would agree, but he's not going to say it.
+- [09:47.470] I, and this is not St. Patrick's Day, by the way.
+- [09:50.570] What are you doing with that tie?
+- [09:52.320] But we had to go off on a circuitous path
+- [09:56.170] and take care of business and we have,
+- [09:57.980] we are in the process of doing it.
+- [09:59.640] And I'll tell you, I think we're weeks ahead of schedule.
+- [10:03.400] My Secretary of State is very happy.
+- [10:05.270] Do you have a question for Marco?
+- [10:06.810] The Press: Yes.
+- [10:08.020] How soon, President Trump said this week that he can take Cuba.
+- [10:12.930] How soon can that happen?
+- [10:16.190] Secretary Rubio: Well, I mean, Cuba's a disaster,
+- [10:17.670] and it's because of their communist government.
+- [10:19.140] It doesn't work.
+- [10:20.350] So I don't have any news for you on that today,
+- [10:22.080] other than that's been going on for 67 years.
+- [10:24.160] They're a disaster. It's the worst that's ever been.
+- [10:26.540] The Press: And what are you guys
+- [10:27.830] hearing from your Senate colleagues
+- [10:29.810] about the chances of the Save America Act passing?
+- [10:32.560] The President: Well, it seems to be doing okay.
+- [10:34.930] It's voter ID, it's, you have to have citizenship to vote.
+- [10:39.260] And I'm hearing very good things.
+- [10:41.100] I mean, I was hearing negative things
+- [10:42.630] because the Democrats are all against voter ID,
+- [10:46.150] they're all against citizenship to vote,
+- [10:48.720] they're against transgender.
+- [10:50.300] You know, they have the, they like the transgender thing
+- [10:52.630] with mutilization of your children.
+- [10:54.750] All of the things that we talk about.
+- [10:56.910] You know, we added two, you know,
+- [10:58.400] we added two little elements. No men in women's sports.
+- [11:02.700] Right? You know that. We added that.
+- [11:04.880] And when you add them all up, whether you take four or five,
+- [11:09.330] I think they're all 95 to 99% issues.
+- [11:12.820] I hear it's going, look, it should be an easy pass,
+- [11:17.490] but we need Democrat votes.
+- [11:19.260] They don't want to approve voter ID because they cheat.
+- [11:22.440] They don't want to approve citizenship.
+- [11:24.620] In other words, we want to have citizenship in order to vote.
+- [11:27.980] You have to prove your citizenship.
+- [11:29.760] The Democrats don't want to do that.
+- [11:31.570] You know why, Peter? You know why?
+- [11:33.650] 'Cause they want to cheat, Peter.
+- [11:35.230] Now, speaking of something that's more pleasant, see that?
+- [11:39.450] It's going to be the greatest ballroom anywhere in the world.
+- [11:42.730] Nothing like it. And they just started today,
+- [11:45.310] one of the biggest pours of concrete
+- [11:47.700] that's ever been seen in Washington DC.
+- [11:50.040] The Press: When they're doing the construction,
+- [11:51.970] does it ever wake you up?
+- [11:53.830] The President: It makes me happy.
+- [11:55.780] When I hear those pile drivers, my wife doesn't love it,
+- [11:59.040] but I love the sound.
+- [12:00.360] I love the sound of concrete.
+- [12:01.980] I love the sound of pile drivers.
+- [12:04.210] Bye, everyone.

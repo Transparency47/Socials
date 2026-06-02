@@ -1,0 +1,740 @@
+<!-- source: https://www.youtube.com/watch?v=O1jIO7w-qnE -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: O1jIO7w-qnE -->
+<!-- date_published: 2026-03-17T19:15:17+00:00 -->
+<!-- date_accessed: 2026-06-02T01:03:32.540286+00:00 -->
+
+# Transcript: President Trump Participates in the Friends of Ireland Luncheon
+
+- [00:00.600] And now without further ado, it's my
+- [00:01.800] honor to introduce our our next speaker.
+- [00:03.960] It's a man who spent a lifetime working
+- [00:06.680] with the Irish first to build
+- [00:08.480] skyscrapers and golf courses
+- [00:10.840] and now trade deals and diplomatic ties.
+- [00:13.880] It is my great honor to host him here in
+- [00:15.880] the Congress every time he comes down
+- [00:17.520] the street. Uh he is our great 45th and
+- [00:20.280] 47th president, Donald J. Trump.
+- [00:26.855] >> [applause]
+- [00:33.405] [applause]
+- [00:46.505] [applause]
+- [00:47.160] [cheering]
+- [00:49.480] >> Well, thank you very much, everybody.
+- [00:51.000] What an honor
+- [00:52.440] this is. Yeah, it's uh six times. Can
+- [00:54.760] you believe it?
+- [00:56.120] Moving along.
+- [00:57.600] But, we like it.
+- [00:59.080] A healthy guy.
+- [01:00.520] Between you and you, you've done very
+- [01:02.200] well medically.
+- [01:03.600] I can tell you.
+- [01:05.280] But, uh there's a lot of too long a
+- [01:07.240] story to tell, but these two guys are
+- [01:09.400] very special.
+- [01:10.880] Uh I want to thank our great speaker.
+- [01:12.480] He's a great speaker, actually.
+- [01:14.720] He is a great speaker.
+- [01:17.945] >> [applause]
+- [01:18.840] >> He is uh when you think of everything
+- [01:20.560] that we passed with a sometimes majority
+- [01:24.000] of one
+- [01:25.360] when we get back to two, three, and
+- [01:26.840] four, Mike, we have we think we have it
+- [01:28.600] really made. And we lost a couple and we
+- [01:31.400] had
+- [01:32.400] a couple of people
+- [01:33.720] they're in heaven now, they're looking.
+- [01:35.920] And that didn't help us with the vote,
+- [01:37.280] but
+- [01:38.160] we're doing all right and you're getting
+- [01:39.400] things done like really nobody. I think
+- [01:42.240] there's never been anything like it. So,
+- [01:43.920] I just want to thank you. You're doing
+- [01:45.480] fantastic job.
+- [01:46.766] >> [applause]
+- [01:49.040] >> And I want to thank that
+- [01:50.880] beautiful You're not allowed to say that
+- [01:52.600] about women anymore, but I say it
+- [01:54.080] anyway. Usually, it's the end of your
+- [01:55.720] career.
+- [01:56.920] You're not allowed to use the word
+- [01:58.000] beauty in any form to introduce a woman,
+- [02:00.760] but she happens to be beautiful, Kelly.
+- [02:02.880] Thank you very much. All Irish.
+- [02:05.160] I'm in deep trouble.
+- [02:07.160] I'm in deep trouble. There'll be
+- [02:08.840] headlines when I get out of this room,
+- [02:10.560] but I'm I'll stick with it.
+- [02:12.920] But and then your your family is so
+- [02:15.160] incredible, too. So, thank you very
+- [02:16.600] much.
+- [02:17.640] And to every friend of Ireland
+- [02:20.760] in this room today, I just want to wish
+- [02:22.520] you a very happy St. Patrick's Day.
+- [02:24.680] Special day. It's very great day.
+- [02:27.280] And to
+- [02:29.720] to Shuck, you are
+- [02:32.160] a man that I've gotten to know and you
+- [02:34.080] mean business.
+- [02:35.480] And he can tell a story like nobody can
+- [02:37.640] tell a story.
+- [02:39.160] And then he said, "How did you speak for
+- [02:40.560] almost 2 hours
+- [02:42.720] a couple of weeks ago at a call I called
+- [02:45.880] State of the Union?" I said, "You could
+- [02:47.280] do it very easily. I guarantee you that.
+- [02:49.040] He could do it."
+- [02:50.760] But we've we've have a really great
+- [02:53.000] relationship and Mary, thank you very
+- [02:54.760] much.
+- [02:56.400] Uh terrific. Thank you very much to be
+- [02:58.240] with you both. Hope you enjoy your stay.
+- [03:02.747] >> [applause]
+- [03:04.080] >> Also with us is House Majority Leader
+- [03:06.440] Steve Scalise. Steve, great job.
+- [03:09.560] Deputy First Minister of Northern
+- [03:11.400] Ireland and they get along so well. I
+- [03:13.120] saw that. You get along very well
+- [03:14.560] together. That's the way it's supposed
+- [03:15.880] to be, huh?
+- [03:17.320] I don't know if I should be promoting
+- [03:18.680] merger. I love mergers, but I don't
+- [03:20.320] know.
+- [03:21.440] We're going to get in a little trouble.
+- [03:23.000] We're going to get in more trouble. More
+- [03:25.120] trouble with that than the beauty.
+- [03:27.800] But Emma Little Pengelly, thank you very
+- [03:30.440] much, Emma. Thank you very much.
+- [03:34.842] >> [applause]
+- [03:35.080] >> And the ambassador from the Republic of
+- [03:37.519] Ireland, Geraldine Byrne Nason.
+- [03:40.080] Geraldine, thank you, Geraldine.
+- [03:42.047] >> [applause]
+- [03:42.760] >> Thank you very much.
+- [03:45.000] Ambassador from the United Kingdom,
+- [03:46.920] Christian Turner. Christian, thank you.
+- [03:50.160] Thank you. Thank you, Christian.
+- [03:52.480] Thank you very much. And the US
+- [03:54.400] Ambassador to Ireland, a great golfer.
+- [03:57.040] This guy can play golf.
+- [03:59.280] He can play golf. Waltie, right? Can't
+- [04:01.960] you, huh?
+- [04:03.120] But Trump's not bad.
+- [04:04.960] Yeah, I know.
+- [04:06.720] He's a great player and he's
+- [04:08.760] he's having a lot of fun over there.
+- [04:10.160] It's What is that for a guy who loves
+- [04:13.000] golf? Is that the best location? Can you
+- [04:15.680] imagine ambassador to Ireland? That's
+- [04:17.400] got to be the greatest job in the world.
+- [04:19.359] Anyway, have a good time. Have a good
+- [04:21.280] time. You're doing a good job.
+- [04:23.312] >> [applause]
+- [04:24.960] >> As many of you know, this year we're
+- [04:26.760] celebrating something that is very
+- [04:29.080] special, the glorious 250th anniversary
+- [04:32.000] of America's founding. That's a big deal
+- [04:34.840] and I'm very happy to be here. I didn't
+- [04:36.880] I wasn't supposed to be president right
+- [04:39.080] now. I was supposed to be
+- [04:41.120] maybe in Ireland taking it easy or
+- [04:43.520] someplace taking it easy, but I'm
+- [04:46.040] president now and I got the Olympics. I
+- [04:48.480] have the World Cup and I have the 250th
+- [04:51.560] and we all have it together. And
+- [04:53.919] I just do want to say that the war is
+- [04:56.120] proceeding very, very strongly. We're
+- [04:58.520] doing very, very well. Iran
+- [05:01.280] knocking the hell out of them and you
+- [05:02.840] have to do that. We can't let them have
+- [05:04.520] a nuclear weapon. They were 2 weeks
+- [05:06.120] away, in my opinion, 2 weeks away from
+- [05:07.840] having a new nuclear weapon.
+- [05:10.240] If those beautiful, magnificent
+- [05:12.160] machines, those B-2 bombers, if they
+- [05:14.760] didn't do their job 7 or 8 months ago,
+- [05:17.680] they would have had they would have had
+- [05:19.640] a nuclear weapon and there would have
+- [05:21.560] been no talking to them. No talking at
+- [05:23.560] all. They would have used it very
+- [05:25.080] gladly, very happily and you sort of see
+- [05:26.880] that by the fact that they were sending
+- [05:29.960] missiles, ballistic missiles, powerful
+- [05:32.280] missiles to all of their neighbors and
+- [05:35.160] for the most part they were supposed to
+- [05:36.400] be somewhat friendly with their
+- [05:37.560] neighbors. They were going to blow the
+- [05:38.640] hell out of them.
+- [05:39.960] And that was going to be the Middle East
+- [05:42.440] between Israel, the Middle East and uh
+- [05:45.000] Uh
+- [05:45.960] Europe would have been there and we
+- [05:47.680] would have been there. There would have
+- [05:48.680] been no stopping and we did a good job
+- [05:50.840] and a lot of people appreciated a lot of
+- [05:52.560] presidents know they should have done
+- [05:54.600] it. It was 47 years of terror.
+- [05:57.840] Every time you see somebody with
+- [06:00.160] no legs, no arms,
+- [06:02.520] a face that's been
+- [06:04.480] really so badly damaged, so badly hurt,
+- [06:08.120] uh
+- [06:09.200] lives destroyed,
+- [06:10.960] uh 95% chance it was
+- [06:13.560] it came right out of
+- [06:15.320] Iran.
+- [06:16.720] They loved that bomb and they loved
+- [06:19.160] They loved that bomb and uh the father
+- [06:22.400] of that was, as you know, Soleimani.
+- [06:25.200] General Soleimani and
+- [06:27.960] we got rid of him in my first term and
+- [06:29.680] if we didn't get rid of him, I think it
+- [06:31.240] might have been a different story
+- [06:32.440] because he was a bad guy,
+- [06:34.560] but he was a brilliant guy if you like
+- [06:36.680] to fight dirty.
+- [06:38.520] And he fought as dirty as you can.
+- [06:40.880] So, we've done something that a lot of
+- [06:42.960] people said that other people should
+- [06:44.680] have done long before I got here,
+- [06:46.960] but uh it's my honor to do it and we've
+- [06:49.600] had a a very big day today. We knocked
+- [06:52.560] out things that nobody thought were
+- [06:54.840] possible to knock out. Today was a very
+- [06:56.800] big day already.
+- [06:59.000] As part of this great celebration, we
+- [07:01.640] also honor 250 years of cherished
+- [07:04.280] Irish-American
+- [07:06.120] friendship
+- [07:07.360] and 250 years of fierce, proud,
+- [07:09.600] tenacious Irish-American heritage.
+- [07:12.280] Uh these are incredible people. Oh, I
+- [07:14.280] know so many Irish.
+- [07:16.280] They're difficult though, you know,
+- [07:17.560] they're very difficult.
+- [07:19.600] They're and they're great politicians.
+- [07:22.120] You know, I was just told, right, that
+- [07:25.560] 23 American presidents have some Irish
+- [07:30.200] blood in them, right? Some Some a little
+- [07:32.080] bit
+- [07:33.040] and some a lot,
+- [07:34.480] right? That's a pretty big number. I
+- [07:35.880] don't think any And nobody else competes
+- [07:37.840] with that.
+- [07:39.040] But out of the 56 signers of our
+- [07:41.080] Declaration of Independence, 11 were
+- [07:43.800] patriots with roots in Ireland back in
+- [07:46.400] July 4th, 1776. It was a son of Ireland
+- [07:50.480] who actually printed that sacred
+- [07:52.520] document for the first time. Who knew
+- [07:54.680] that? And it was also an Irishman who
+- [07:57.720] first read its immortal words to the
+- [07:59.840] American public proclaiming aloud that
+- [08:02.200] we are all made free and equal by the
+- [08:05.280] hand of our creator and endowed by God
+- [08:08.480] with rights to life, liberty, and the
+- [08:11.200] pursuit of happiness. That came out of
+- [08:14.520] the blood of Ireland.
+- [08:16.560] The Irish did not come to America, they
+- [08:19.200] helped found America, the fact is, and
+- [08:21.720] they helped build America.
+- [08:23.680] And these are incredible people. I know
+- [08:25.760] them well.
+- [08:26.919] And with a little bit of Irish luck,
+- [08:28.919] they helped make America into the most
+- [08:30.960] exceptional nation
+- [08:33.000] the world has ever seen. And we're doing
+- [08:35.080] better. We had to do a little excursion,
+- [08:36.680] if you don't mind.
+- [08:38.320] A little excursion to take care of
+- [08:39.919] nuclear weaponry
+- [08:41.599] in the hands of maniacs. But other than
+- [08:44.120] that, in couple of weeks, and won't be
+- [08:46.320] much longer.
+- [08:47.720] It's moving along fast. We're way ahead
+- [08:49.640] of schedule. Did you know that, Mr.
+- [08:51.040] Speaker? I'm trying to save a lot of
+- [08:52.320] money by being ahead of schedule. We're
+- [08:54.480] way ahead of schedule. Nobody would have
+- [08:56.560] thought Somebody a great war historian
+- [08:59.760] told me today, "Nobody would have
+- [09:01.080] thought you could do that much damage in
+- [09:03.120] that little time, 2 weeks."
+- [09:05.240] Uh but we're way ahead. But we had prior
+- [09:08.280] to that, and really I guess you could
+- [09:10.680] say after that, but prior to that
+- [09:13.120] and it'll bounce back so fast, the oil
+- [09:14.920] prices will drop like a rock, and the
+- [09:17.200] economy is uh so powerful, so strong.
+- [09:20.800] And uh you know, we hit 50,000
+- [09:23.960] on the Dow. Think of that, 50,000. I was
+- [09:27.280] told you'll never hit 50,000, not for
+- [09:29.360] the first 3 years. Maybe at the end of
+- [09:31.600] the fourth year, you might be able to
+- [09:32.920] hit it. We hit it in the first year.
+- [09:35.200] And we then hit 7,000 on the S&P, and
+- [09:38.080] that was even more of a long shot,
+- [09:40.200] Steve. That was a
+- [09:41.960] a chance that they said you couldn't do
+- [09:43.880] that. That was harder than 50 on the
+- [09:45.800] Dow.
+- [09:46.960] 7,000 on the S&P with that before the
+- [09:50.000] end of the first year.
+- [09:51.760] And all of those things and then I said
+- [09:53.560] to myself, well, we're doing great.
+- [09:57.200] We're doing great. I went to Susie, my
+- [09:59.560] beautiful Susie Wiles. There's nobody
+- [10:01.760] like Susie. I went to Susie.
+- [10:05.320] All right.
+- [10:06.536] >> [applause]
+- [10:08.360] >> And everybody's with her and she's a
+- [10:10.520] great woman, really. She's a great
+- [10:12.440] woman. But I went to Susie. I always go
+- [10:14.760] to Susie. I said, Susie, do you mind if
+- [10:16.600] I take a little excursion here? Do you
+- [10:18.360] mind if I You know, we're hitting all
+- [10:20.160] these records, right? Most more people
+- [10:22.920] are working in the United States today
+- [10:24.800] than ever before. As I could name this I
+- [10:28.000] don't want to bore you cuz this is all
+- [10:29.440] about Ireland. This is all about But
+- [10:31.840] you're a big part of it cuz you're a big
+- [10:33.320] part of this country.
+- [10:34.840] But
+- [10:35.880] I said, do you mind if I take a little
+- [10:37.400] excursion? My chief of staff because I
+- [10:40.680] want to do this. I have Marco here. We
+- [10:42.760] have a lot of our great people. JD is
+- [10:44.600] here.
+- [10:45.640] They're all here. I say, let's let's do
+- [10:48.480] this. We got to do it right. Should have
+- [10:49.920] been done by many presidents. Should
+- [10:52.080] have been done long before 47 years.
+- [10:55.040] It's 40 years of living in terror. You
+- [10:56.920] know, they they call the bully of the
+- [10:58.600] Middle East but they're really the bully
+- [11:00.000] of the world because he used oil to
+- [11:02.320] bribe, right? They used oil to bribe and
+- [11:06.080] to you know, gain power. I don't know
+- [11:08.160] what they gained. What did they gain?
+- [11:09.680] What the hell? How are they doing? Not
+- [11:10.960] so good. They're all gone now. Every one
+- [11:13.680] of them. They're all gone. We don't even
+- [11:15.160] know who the Our biggest problem, we
+- [11:16.520] don't know who to deal with. Over here I
+- [11:18.600] can call the speaker of the house. He's
+- [11:20.040] so powerful. I can call him. I can make
+- [11:21.880] a deal, maybe.
+- [11:23.400] I can even call your Democrat
+- [11:25.080] counterpart. This guy I said to Kelly,
+- [11:27.400] what do you think of your counterpart?
+- [11:28.960] He said he's a great guy. This is
+- [11:31.880] Republican, Democrat. I never thought I
+- [11:33.840] was going to hear that about you. Let me
+- [11:35.600] shake your hand FOR A SECOND.
+- [11:38.238] >> [applause]
+- [11:43.478] [applause]
+- [11:44.320] >> WHEN KELLY WHEN KELLY TELLS ME THAT, I
+- [11:46.320] SAID, "That's the way it used to be."
+- [11:48.240] You know, that's the way it not so long
+- [11:49.800] ago. And maybe someday that's the way
+- [11:51.880] it'll be again. It's really great. But,
+- [11:54.760] I said, "Do you mind if I take a little
+- [11:56.200] excursion
+- [11:57.840] because we have to do something, and it
+- [11:59.920] will be a short-term excursion, but we
+- [12:02.240] have all these great things going, and
+- [12:03.920] we had a you know, we could have
+- [12:05.920] we could have gone up up up. It was only
+- [12:08.440] going in one direction. But, I think now
+- [12:10.760] it's going to go much higher than it
+- [12:11.880] would have gone had we not taken this
+- [12:13.920] little journey.
+- [12:15.400] And so, I appreciate all of the people
+- [12:17.800] that have worked with us. That was a not
+- [12:19.840] an easy decision to make. We have a
+- [12:21.960] country that was hotter than any country
+- [12:24.280] anywhere in the world. And doing great
+- [12:27.680] in every way, and I say, "Oh,
+- [12:29.760] we have to put out this this cancer.
+- [12:31.760] It's a cancer." We had to take that
+- [12:35.080] operation. And we did, and it was very
+- [12:37.560] successful.
+- [12:38.920] And continues, frankly, as somebody
+- [12:41.480] said, "Very They could leave today, and
+- [12:44.080] it would take 10 years to rebuild the
+- [12:46.360] damage that's been done."
+- [12:48.120] But, I think we have to make it a little
+- [12:49.440] bit more permanent because no other
+- [12:51.080] president has to go through this, and we
+- [12:53.280] shouldn't have any other president
+- [12:55.080] having to go through this kind of a
+- [12:57.280] thing. And if they didn't want to do it,
+- [13:00.280] if for some they didn't want to do it,
+- [13:02.800] would have the same problem. We don't
+- [13:04.960] ever want to have that problem again,
+- [13:06.440] not with lunatics. You can't have
+- [13:08.360] lunatics controlling nuclear weaponry.
+- [13:11.640] So, I just want to thank everybody.
+- [13:14.524] >> [applause]
+- [13:17.800] >> Let's get back to Ireland. You mind?
+- [13:20.320] Ireland, we don't mind. Ireland is nice
+- [13:22.839] place.
+- [13:24.080] I love Ireland. In fact, we're going to
+- [13:25.960] have the Irish Open at a property that
+- [13:28.320] happens to be owned by
+- [13:30.360] yours truly, but I have nothing to do
+- [13:32.280] with it.
+- [13:34.120] I own it, but I have not I don't even
+- [13:35.720] like to talk to my son. He says, "Dad,
+- [13:37.920] we're doing great with the pro- I'm
+- [13:39.720] allowed to I'm allowed to run it, but I
+- [13:41.880] don't choose to. Dad, we're doing
+- [13:43.960] great." Eric calls up. He's doing a good
+- [13:46.640] job. Do you like Eric? Think so, right?
+- [13:48.760] Who doesn't like Eric?
+- [13:50.640] But he calls up, "Dad, we're doing a
+- [13:52.360] great job in Ireland." Oh, what's going
+- [13:54.840] on? "Well, we're doing this." And they
+- [13:56.040] tell me I said, "Don't tell me about it.
+- [13:58.160] I don't want to know about it. I don't
+- [14:00.040] want to know about it." Of course,
+- [14:01.920] if things were if we were treated badly,
+- [14:03.960] I'd let him know very quickly, but
+- [14:06.760] uh but I think I think you are very I
+- [14:09.840] think you are very proud of what's been
+- [14:11.680] done over there by the Trump
+- [14:12.800] Organization, right? It It's one of the
+- [14:14.920] greatest places one of the greatest golf
+- [14:16.640] courses in the world, and it's an honor
+- [14:18.720] to hold the Irish Open there. It's
+- [14:20.440] coming up very shortly, and it's a great
+- [14:22.560] honor. Thank you. And say hello to Rory
+- [14:24.600] McIlroy Rory and all of those great
+- [14:26.560] players cuz they are truly great
+- [14:28.200] talents, and they're wonderful people
+- [14:30.480] and friends of mine.
+- [14:31.760] But over the centuries, 130 members of
+- [14:34.080] the House and Senate have been born in
+- [14:36.839] Ireland and been elected to work
+- [14:39.360] in these great halls. Think of it.
+- [14:41.200] That's a lot. Our national anthem itself
+- [14:43.760] was signed by the
+- [14:45.560] site of the Star Spangled Banner waving
+- [14:48.880] over the port named for the son of
+- [14:51.280] Ireland, Fort Henry, Fort McHenry. When
+- [14:55.560] Americans ventured west on the Oregon
+- [14:57.800] Trail,
+- [14:59.080] they were guarded by troops stationed at
+- [15:01.320] Fort Riley, named for the Irish-American
+- [15:04.480] warrior who President Grant called the
+- [15:06.960] finest specimen of physical manhood
+- [15:10.600] I've ever looked upon. We didn't know
+- [15:12.760] that about President Grant. I think we
+- [15:14.760] just learned something.
+- [15:17.040] But I could say that about your sons,
+- [15:18.960] okay?
+- [15:20.200] Kelly, I could say that about your sons.
+- [15:22.000] One's a boxing champion. They're like
+- [15:24.240] champions. Who would think from this
+- [15:25.880] one? It's got to be from him.
+- [15:30.400] Well, I didn't know about your Italian
+- [15:32.200] roots, either.
+- [15:33.640] I thought he was a super wasp. You know,
+- [15:35.600] to me
+- [15:37.480] No, to me Mike was always a wasp. Now I
+- [15:40.600] learned that this is serious Italian
+- [15:42.720] stuff, right? Well, that'll that'll be
+- [15:45.040] good for you, I think. You know,
+- [15:46.485] >> [laughter]
+- [15:47.000] >> your image His image has changed a hell
+- [15:49.200] of a lot very quick.
+- [15:50.840] Uh he's great. Even today when Americans
+- [15:53.520] visit Gettysburg, they find a
+- [15:56.360] Celtic cross honoring the soldiers of
+- [15:59.080] the famed Irish Brigade Brigade and
+- [16:01.920] defended our union in its pivotal hour,
+- [16:04.720] most pivotal hour, and they were there
+- [16:06.440] and it's said that more than 50% of all
+- [16:09.440] Congressional Medals of Honor awarded,
+- [16:12.680] think of that, 50% went to people who
+- [16:15.760] had parents, one or the other, Irish
+- [16:19.680] American. That's a lot. We're going to
+- [16:21.640] have to look That's because we have so
+- [16:22.920] many Irish politicians. That's how that
+- [16:24.800] works. But we can't let that We've got
+- [16:26.800] to make some changes in that. That's too
+- [16:28.440] many. Don't you think, Kelly? I think it
+- [16:31.400] But from 1776 to today, our country has
+- [16:34.880] stood strong and free in no small part
+- [16:37.760] due to the spirit of the warriors. You
+- [16:40.280] really are warriors. You're incredible.
+- [16:42.320] And the uh Fighting Irish, you know,
+- [16:44.680] Notre Dame, the Fighting Irish is a
+- [16:46.360] reason for it. I don't know how many
+- [16:47.600] Irish people are playing on the team,
+- [16:49.080] though. How many Irish people do we have
+- [16:51.000] on the team? I'm not sure we have so
+- [16:52.360] many. Well, you got him. You have Kelly.
+- [16:55.400] Kelly's a a warrior, let me tell you. As
+- [16:58.440] the
+- [16:59.480] Taoiseach has said and the President
+- [17:01.800] reminds us today, the United States and
+- [17:03.960] Ireland continue to build upon the
+- [17:06.199] age-old bond. Together we are
+- [17:08.360] strengthening the ties of culture. Uh we
+- [17:11.800] have a tremendous deficit, by the way. I
+- [17:13.959] want to tell you right now. I looked at
+- [17:15.400] the numbers.
+- [17:16.640] You guys are much better business people
+- [17:18.480] than our past politicians. We have to
+- [17:21.120] talk about that deficit. Are we allowed
+- [17:22.760] to talk about that today? It's a
+- [17:24.199] substantial deficit. Well, okay,
+- [17:27.000] tomorrow. Okay, we'll say tomorrow.
+- [17:29.440] And cooperation that really does stretch
+- [17:31.720] back many, many generations. Under our
+- [17:34.920] leadership, as we speak, Irish companies
+- [17:37.160] are investing more than $6 billion into
+- [17:40.000] the United States, including $45 million
+- [17:42.840] in Pennsylvania, $70 million in
+- [17:45.560] Colorado, and over $100 million in New
+- [17:48.560] Mexico and Ohio. And I'm hopeful that
+- [17:51.080] we'll soon reach a deal to let American
+- [17:54.160] liquefied natural gas, and that'll bring
+- [17:56.960] down your deficits a lot. So, I think
+- [17:58.760] you have to make this deal with us. We,
+- [18:00.320] you know, got to do something.
+- [18:02.400] But, these companies are going to be
+- [18:03.760] fueling your homes and factories and all
+- [18:06.360] of the other things. We got a lot of
+- [18:08.760] We have a lot of energy in this country.
+- [18:10.560] We have more than anybody. We have the
+- [18:12.120] most energy of any country in the world
+- [18:14.280] by far.
+- [18:15.520] So, we want to sell a little of that to
+- [18:17.080] you. And the deficit will come down,
+- [18:20.000] down, down, and everybody's going to be
+- [18:22.600] happy. So, you got to buy a lot of our
+- [18:24.720] stuff. But, in this small and beautiful
+- [18:27.880] It's a beautiful room. I love this room.
+- [18:29.680] It's been a very warm room. I've had a
+- [18:31.880] good time. I have so many friends and so
+- [18:33.880] many relationships that I've gotten from
+- [18:35.600] this room, mostly from this event.
+- [18:38.120] But, on this St. Patrick's Day, as we
+- [18:39.960] press ahead toward the opportunities
+- [18:42.320] that await, let us
+- [18:44.080] remember the beautiful words of St.
+- [18:46.360] Patrick himself.
+- [18:48.400] May the power of God preserve us. May
+- [18:51.160] the wisdom of God
+- [18:53.080] instruct us. May the hand of God protect
+- [18:55.920] us. May the way of God direct us.
+- [18:59.320] May the shield of God defend us.
+- [19:02.440] And may the host of God guard us. That's
+- [19:05.480] beautiful. Thank you.
+- [19:07.040] And today we add,
+- [19:08.960] "May God bless the people of Ireland,
+- [19:11.080] and may God bless the United States of
+- [19:14.280] America and it's great to be with you.
+- [19:15.840] Thank you very much, everybody. Thank
+- [19:17.840] you.
+- [19:18.720] Thank you.
+- [19:20.018] >> [applause]
+- [19:26.568] [applause]
+- [19:33.760] >> Thank you, everybody.
+- [19:36.393] >> [applause]
+- [19:42.280] >> Well,
+- [19:43.280] top that. Well, right. Thank you, Mr.
+- [19:45.560] President.
+- [19:47.640] For saying that my sons are tougher than
+- [19:49.120] me. That's really appreciate that on
+- [19:50.680] national television.
+- [19:52.560] As you say, thoroughbreds make
+- [19:54.360] thoroughbreds, okay? We'll go with that.
+- [19:56.160] Mr. President, I am so honored to to
+- [19:59.080] introduce our our special guest and
+- [20:01.560] this is not his first one of these
+- [20:03.720] luncheons of Friends of Ireland and
+- [20:05.880] he has been a great friend to us and
+- [20:08.560] without further ado, I will bring up and
+- [20:10.360] introduce the Taoiseach himself, Mr.
+- [20:13.080] Martin. Thank you so much.
+- [20:15.039] >> [applause]
+- [20:18.720] >> Thank you.
+- [20:22.899] >> [applause]
+- [20:24.160] >> Thank you.
+- [20:27.000] Mr. President,
+- [20:28.520] Mr. Speaker, Chairman Neal and Kelly,
+- [20:31.920] representatives, ladies and gentlemen,
+- [20:34.400] thank you for welcoming me and Mary, of
+- [20:37.160] course, to Washington, D.C. to celebrate
+- [20:39.760] St. Patrick's Day. I'm delighted that
+- [20:42.440] I'm here today with, of course, the
+- [20:43.920] Deputy First Minister from Northern
+- [20:45.760] Ireland, Emma Little Pengelly, and, of
+- [20:47.960] course, the Secretary of State for
+- [20:49.920] Northern Ireland, um, Hillary Benn,
+- [20:52.040] who's also with us.
+- [20:53.600] Mr. Speaker,
+- [20:54.960] I greatly appreciate your kind words and
+- [20:57.920] for hosting this lunch. And may I pay
+- [21:01.640] tribute to your wisdom in choosing an
+- [21:04.600] impeccable Irish woman with great
+- [21:06.400] heritage as your wife and with a name
+- [21:08.560] O'Leary you have to be from my part of
+- [21:10.640] the country in in Ireland.
+- [21:13.160] But we greatly appreciate your kind
+- [21:15.000] words and um
+- [21:16.680] proud tradition this is since its
+- [21:18.280] inception back in 1983 as you said
+- [21:21.160] through the shared vision of uh
+- [21:23.080] President Reagan and Speaker Tip
+- [21:25.040] O'Neill. And this gathering signifies
+- [21:28.160] the ties that bind our two countries.
+- [21:30.880] And the bipartisan commitment to peace
+- [21:33.720] and reconciliation in Ireland.
+- [21:36.320] Almost 250 years ago
+- [21:39.360] this country embarked on a great
+- [21:41.480] democratic experiment.
+- [21:43.680] One driven by the idea
+- [21:45.680] that we all share natural rights to
+- [21:48.080] life, to liberty, and to the pursuit of
+- [21:50.880] happiness.
+- [21:52.320] Those values were eloquently expressed
+- [21:54.800] in the Declaration of Independence.
+- [21:57.200] Signed by three men born on the island
+- [22:00.600] of Ireland. And many others of Irish
+- [22:03.640] descent.
+- [22:04.720] And first printed by Irishman John
+- [22:07.640] Dunlap.
+- [22:09.080] Since the founding of the United States
+- [22:11.320] Irish people have been at the
+- [22:12.920] the beating heart of American democracy
+- [22:15.760] and civic life.
+- [22:17.320] As politicians
+- [22:18.800] faith leaders
+- [22:20.200] police officers, firefighters, nurses,
+- [22:23.520] community leaders, and construction
+- [22:25.440] workers Irish people helped to build the
+- [22:27.640] American dream with tenacity and with
+- [22:30.360] courage.
+- [22:31.840] As all of us in this room know courage
+- [22:34.360] comes in many forms.
+- [22:37.000] Mr. Speaker, today I am reminded of
+- [22:40.040] Margaret O'Hare.
+- [22:41.880] A woman born into deep poverty in County
+- [22:44.360] Leitrim in 1813
+- [22:46.760] who found a better future in your own
+- [22:48.800] state of Louisiana.
+- [22:51.280] Through hard work and determination
+- [22:53.880] Margaret overcame tragedy to set up a
+- [22:56.040] number of businesses.
+- [22:57.600] First a small dairy
+- [22:59.320] and then a bakery which grew to employ
+- [23:01.560] 40 people.
+- [23:03.200] She was renowned for her business
+- [23:04.520] acumen, her deep faith, and her charity.
+- [23:08.360] The orphanages she had to build across
+- [23:10.880] New Orleans remain as her legacy.
+- [23:14.320] Margaret's grace and determination, her
+- [23:16.840] hard work, entrepreneurship, and
+- [23:18.920] innovation, and her dedication to giving
+- [23:21.360] back to her community embodies the best
+- [23:24.080] of what it is to be Irish here in the
+- [23:25.840] United States and at home in Ireland.
+- [23:29.400] Margaret Haughery was an entrepreneur to
+- [23:32.360] her bones, but she would marvel at the
+- [23:35.240] economic relationship that exists today
+- [23:37.640] between Ireland and the United States.
+- [23:40.440] Every day across this great United
+- [23:42.640] States, more than 200,000 Americans go
+- [23:45.960] to work each morning in nearly 800
+- [23:49.240] Irish-owned companies operating in every
+- [23:52.320] sector, in every state, and Ireland is
+- [23:55.200] the fifth largest foreign investor in
+- [23:58.160] the US.
+- [23:59.360] From little acorns mighty oaks grow.
+- [24:03.360] Mr. President, Mr. Speaker,
+- [24:05.600] on my journey to Washington this year,
+- [24:07.920] I stopped by Philadelphia, the
+- [24:09.840] birthplace of the American Revolution,
+- [24:12.400] and the home of your remarkable
+- [24:14.080] Declaration of Independence.
+- [24:16.600] Viewing the exhibition at the Museum of
+- [24:18.320] the American Revolution, I was struck by
+- [24:20.720] how those who signed the Declaration
+- [24:23.320] knew that the profound and serious step
+- [24:25.880] they were taking
+- [24:27.320] would change not just this part of the
+- [24:29.080] world, but the course of human history.
+- [24:32.560] Nothing would ever be the same again.
+- [24:35.440] As Thomas Jefferson himself declared,
+- [24:38.760] "May our Declaration of Independence be
+- [24:40.600] to the world what I believe it will be,
+- [24:43.640] to some parts sooner, to others later,
+- [24:46.840] but finally to all,
+- [24:48.840] the signal of arousing men to burst the
+- [24:51.240] chains
+- [24:52.480] and to assume the blessings and security
+- [24:54.800] of self-government.
+- [24:56.520] All eyes are opened
+- [24:58.120] are opening
+- [24:59.440] to the rights of man.
+- [25:01.640] The American Revolution gave hope and
+- [25:04.360] example to all who yearned to be free,
+- [25:07.240] including in Ireland.
+- [25:09.200] That the great republic launched in 1776
+- [25:12.000] exists today
+- [25:13.600] was much to the vision and wisdom of its
+- [25:15.440] founding figures, but it also owes its
+- [25:17.920] enduring strength to all those who have
+- [25:20.360] played their part in sustaining it,
+- [25:23.040] including in those who have served in
+- [25:25.640] this august building.
+- [25:27.560] Mr. Speaker,
+- [25:28.960] Congress continues to play its vital
+- [25:31.000] part in the story of American democracy
+- [25:34.120] under your leadership, Mr. Speaker.
+- [25:36.720] Congress has also brought people
+- [25:38.640] together across the aisles to play a
+- [25:41.200] pivotal role in achieving and securing a
+- [25:44.160] lasting peace on the island of Ireland.
+- [25:47.600] I pay tribute to the generations of
+- [25:49.800] people who have served here and who
+- [25:52.280] believed in and invested in this peace.
+- [25:55.440] We will never forget them.
+- [25:57.720] We will always remember
+- [25:59.520] that in our darkest and bleakest hours
+- [26:02.920] they kept the faith.
+- [26:04.720] And we still need your support and your
+- [26:06.400] energy to maintain that peace and to
+- [26:08.720] support reconciliation.
+- [26:11.560] Mr. President, thank you
+- [26:13.600] for your friendship for Ireland, a
+- [26:15.480] country you know well.
+- [26:18.120] Thank you, Mr. Speaker,
+- [26:19.880] for your gracious hospitality,
+- [26:21.920] for this opportunity to break bread with
+- [26:24.160] so many true friends of Ireland.
+- [26:26.920] There is truth in the Irish proverb that
+- [26:29.720] the road to a friend's house
+- [26:31.680] is never long.
+- [26:33.680] Thank you, Co-Chairs Mike Kelly and
+- [26:35.840] Richie Neal,
+- [26:37.280] for your unstinting commitment to peace
+- [26:39.800] and prosperity on the island of Ireland.
+- [26:43.320] And thank you for bringing so many
+- [26:45.440] members of the of this house from both
+- [26:48.960] sides of the aisle together on St.
+- [26:51.720] Patrick's Day and throughout the year.
+- [26:54.840] A very happy St. Patrick's Day to you
+- [26:56.840] all.
+- [26:57.760] As we say in Gaelic, God of me and my
+- [27:00.240] gift of St. Patrick's Day and Patrick of
+- [27:04.360] Ireland. Thank you very much indeed.
+- [27:07.038] >> [applause]

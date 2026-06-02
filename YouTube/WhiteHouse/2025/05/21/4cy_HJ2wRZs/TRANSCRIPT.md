@@ -1,0 +1,1192 @@
+<!-- source: https://www.youtube.com/watch?v=4cy-HJ2wRZs -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 4cy-HJ2wRZs -->
+<!-- date_published: 2025-05-21T17:27:25+00:00 -->
+<!-- date_accessed: 2026-06-02T02:49:37.480773+00:00 -->
+
+# Transcript: President Trump Participates in a Bilateral Meeting with the President of South Africa
+
+- [00:22.021] The President: Thank you very much, everyone.
+- [00:23.423] It's a great honor to be with the President of South Africa,
+- [00:28.762] President Ramaphosa.
+- [00:30.830] And he is a man who is certainly,
+- [00:35.068] in some circles, really respected.
+- [00:37.003] Other circles, a little bit less respected,
+- [00:39.472] like all of us, in all fairness, like all others.
+- [00:43.076] We also have a few of my friends.
+- [00:44.978] Ernie Ells, a great golfer. He's a truly great golfer.
+- [00:48.515] Retief Goosen, who's another really --
+- [00:51.918] we call him really a great golfer, too, Ernie, right?
+- [00:54.554] Two guys are fantastic.
+- [00:56.055] And we could add Gary to the group, Gary Player.
+- [00:59.492] What a group of golfers South Africa has had on the ground.
+- [01:02.662] There must be something in the water, right,
+- [01:04.364] and something good. These two guys are unbelievable.
+- [01:06.032] President Ramaphosa: It's the water.
+- [01:07.267] It's water, sir.
+- [01:08.501] The President: Gary. Gary's Gary.
+- [01:10.937] And David Frost, also.
+- [01:12.138] Another one that I know is such a great one.
+- [01:15.542] Was he as good a putter as they say, David?
+- [01:18.545] He's a putter. He's a putting machine, right.
+- [01:21.181] But he's another one that says something very good
+- [01:23.016] about South Africa and golf.
+- [01:24.617] And golf is still doing great in South Africa.
+- [01:26.853] And they have young players, I hear,
+- [01:28.621] coming up that are going to be very good.
+- [01:30.557] But it's an honor to have you here.
+- [01:32.258] And, my friend, it's a honor to have you,
+- [01:34.627] one of the greatest businessmen in South African
+- [01:39.365] and long beyond. Thank you for being here.
+- [01:41.634] It's a very great honor. Appreciate it.
+- [01:44.637] So we're going to be discussing certain things.
+- [01:47.006] As you know, we have the G20 is going to South Africa,
+- [01:53.046] when is that going to be?
+- [01:54.481] President Ramaphosa: In November.
+- [01:56.249] Thereafter, I hand over to you.
+- [01:59.385] The President: Yes, we have it next week.
+- [02:00.720] President Ramaphosa: You originated the G20,
+- [02:02.355] so I'll hand over the beta to you,
+- [02:04.891] and then you lead the G21. That's right.
+- [02:07.627] The President: We're going to have it the following year.
+- [02:10.730] So we'll be discussing many things
+- [02:12.565] and some of the things you've been reading
+- [02:13.967] about in the papers and the media.
+- [02:16.936] And I would say that, look, the President is a truly
+- [02:22.842] respected man in many, many circles.
+- [02:24.844] And in some circles he's considered
+- [02:26.279] a little controversial. But we're going to be discussing
+- [02:31.117] some of the things that are taking place in South Africa
+- [02:34.387] and see if we can help and we want to help.
+- [02:38.024] And we've had a long relationship with South Africa.
+- [02:41.127] I have, because, indirectly,
+- [02:42.495] I have so many friends that live there.
+- [02:43.830] I have a lot of friends. I mean, these are famous guys,
+- [02:46.733] but I have a lot friends
+- [02:48.401] that live there that are tremendous people.
+- [02:51.137] And we'll be discussing that. We'll have a nice conversation.
+- [02:55.808] And I really appreciate that you guys came along.
+- [02:58.912] It's really -- it really helps us in our thought process.
+- [03:02.649] But it is a great honor to have you.
+- [03:04.117] And I appreciate your call. He called --
+- [03:06.319] I don't know where he got my number, but I picked it up.
+- [03:09.822] He said, I want to come over and see you.
+- [03:12.025] And that was my honor.
+- [03:13.226] Thank you very much for being here.
+- [03:14.527] You're most welcome. Thank you.
+- [03:16.663] President Ramaphosa: Well, thank you very much for welcoming us
+- [03:19.098] to this reformed White House.
+- [03:22.402] I've been here before, and it looks really fantastic.
+- [03:25.338] I must congratulate you.
+- [03:26.873] The President: Thank you.
+- [03:28.141] President Ramaphosa: But I also thank you
+- [03:29.375] for allowing our delegation.
+- [03:31.711] This is a very mixed delegation that you've got.
+- [03:34.113] We've got people from government, my ministers.
+- [03:37.917] I've got someone from the trade union movement
+- [03:41.254] who we really collaborate with,
+- [03:42.989] and from business as well and our sporting legend.
+- [03:47.360] When I spoke to you, you said,
+- [03:49.762] yes, come along and bring Gary Player,
+- [03:52.599] bring Ernie Ells and Retief Burson.
+- [03:55.435] I brought the two of them. Gary Player.
+- [03:58.671] No, I spoke him and he said,
+- [04:00.873] look, I'm getting rather on in my years,
+- [04:04.310] but wishes us luck in this discussion with you.
+- [04:08.181] So it's a real joy. And I'd also like to thank you
+- [04:12.619] for allowing your people to start discussions with us.
+- [04:16.823] At the trade level, we are essentially here
+- [04:19.926] to reset the relationship
+- [04:22.395] between the United States and South Africa.
+- [04:25.498] We are long, long-standing partners in many, many ways.
+- [04:30.336] We've collaborated in many fields, in space issues,
+- [04:35.241] in energy and in trade,
+- [04:37.810] and we therefore need to reset that,
+- [04:40.513] particularly in the light of some of the announcements
+- [04:43.316] that you made on trade investment.
+- [04:46.953] So we want to advance more trade
+- [04:48.955] between the two of us, two countries,
+- [04:51.557] and our people now have been empowered by yourself
+- [04:55.795] and by myself to start engaging.
+- [04:58.765] And we hope that we will be able to fuel
+- [05:01.467] that engagement during our talks.
+- [05:04.671] And we also want to discuss issues that have to do
+- [05:07.740] with how we promote further investments in both countries.
+- [05:11.944] We've got about 22 companies from South Africa
+- [05:15.381] that have been invested in the U.S.,
+- [05:17.617] thus creating a number of jobs.
+- [05:19.952] And similarly, you've got almost 600 companies
+- [05:23.690] that have invested in South Africa,
+- [05:25.491] and some of them have been in South Africa
+- [05:27.794] for more than 100 years.
+- [05:29.629] So our links are really long-lasting,
+- [05:34.333] and we would like to recalibrate those relations
+- [05:37.804] between our two countries and discuss a whole range of issues.
+- [05:41.607] Geopolitical, the work that you're doing,
+- [05:44.143] to bring peace around the world,
+- [05:46.679] in Ukraine and in the Middle East.
+- [05:49.115] So we value that and we are also a great contributor
+- [05:53.453] to peace processes that are going on around the world.
+- [05:56.456] And of course we want to discuss how we can support each other.
+- [06:00.727] You are a much bigger economy than we are.
+- [06:03.796] We are just a tiny economy,
+- [06:06.432] but we rely on each other on a number of issues.
+- [06:09.535] We've got critical minerals.
+- [06:11.637] That you want to fuel the growth of your own economy
+- [06:15.842] and re-industrialize.
+- [06:17.510] So we have that on offer, including rare-earth minerals.
+- [06:22.215] So all that combination of opportunity
+- [06:26.319] and the products that we buy from you,
+- [06:29.956] as well as what we sell to you,
+- [06:33.126] I believe makes up a really good and powerful relationship,
+- [06:37.430] which we need to strengthen, which we need to engender.
+- [06:40.833] And that is really what has brought us here.
+- [06:43.002] And we are really privileged to have,
+- [06:45.705] you know, great South Africans in the mix.
+- [06:48.074] As you said, you'd like to see them as well.
+- [06:51.377] Now, I brought you a really fantastic golf book.
+- [06:57.884] Weighs 14 kilograms.
+- [07:00.853] And it showcases the golf courses in our country.
+- [07:05.758] Johan Gruepert wrote preface, so did Ernie Ells.
+- [07:10.830] And I want to showcase our golf courses.
+- [07:14.133] You might remember when I spoke to you and we spoke about golf,
+- [07:19.172] you said I should start practicing.
+- [07:21.507] And I've started practicing, President, so I'm ready.
+- [07:26.112] But let me end just the introductory remarks
+- [07:29.215] by thanking you, you may not recall that five years ago
+- [07:32.518] I spoke to you during the COVID period.
+- [07:37.089] And it was at a time when the whole world
+- [07:39.892] was going through a really cathartic moment
+- [07:42.929] and we asked for assistance
+- [07:44.630] and you were able to assist us with respirators
+- [07:55.608] and you kept your word and you delivered respirators to us.
+- [07:59.879] We didn't have as many in our country
+- [08:02.181] and it really helped to help us deal with COVID.
+- [08:07.920] So. I'm here also to say thank you
+- [08:10.723] and to thank the people of America
+- [08:12.658] for having helped us during a really difficult time.
+- [08:16.896] Being the small economy that we are,
+- [08:19.098] we needed help from around the world.
+- [08:21.567] And you were there to provide that.
+- [08:22.969] So thank you very much.
+- [08:24.203] The President: I remember the call.
+- [08:25.671] We sent 150 respirators. We became the respirator king.
+- [08:31.377] We started making them. Nobody had them.
+- [08:34.113] We had very few of them, but they were very helpful.
+- [08:36.682] But we sent 150, and I appreciated the letter.
+- [08:39.919] You wrote me a letter. Thank you.
+- [08:42.121] I appreciate that very much.
+- [08:43.756] President Ramaphosa: Thank you very much, sir.
+- [08:44.957] It really touched my heart
+- [08:47.093] after I spoke to you and you delivered.
+- [08:49.495] The President: It's a great honor.
+- [08:50.730] President Ramaphosa: Thank you very much.
+- [08:52.632] The President: Any questions?
+- [08:53.866] The Press: President, you've welcomed white
+- [08:55.167] Afrikaner refugees here. Can you explain to Americans
+- [08:58.170] why it's appropriate to welcome white Afrikaans here
+- [09:01.107] when other refugees like Afghans, Venezuelans,
+- [09:05.611] Haitians have all had their protective status revoked?
+- [09:10.483] The President: This is a group, NBC, that is truly fake news.
+- [09:14.887] They ask a lot of questions in a very pointed way.
+- [09:17.556] They're not questions, they're statements.
+- [09:20.293] We've had tremendous complaints about Africa,
+- [09:23.963] about other countries, too, from people.
+- [09:26.866] They say there's a lot of bad things going on in Africa,
+- [09:29.368] and that's what we're going to be discussing today.
+- [09:32.672] When you say we don't take others,
+- [09:34.407] all you have to do is take a look at the southern border.
+- [09:36.976] We let 21 million people come through our border.
+- [09:40.146] Totally unchecked, totally unvetted.
+- [09:41.948] They came from all over the world.
+- [09:44.050] In many cases, they're criminals.
+- [09:45.584] They come from prisons. They come mental institutions.
+- [09:48.421] They come street gangs. They're drug dealers.
+- [09:51.090] So don't say that we didn't take them.
+- [09:52.591] We're taking them.
+- [09:53.793] We're trying to get them out as fast as we can.
+- [09:56.262] And we're doing record business on that.
+- [09:58.164] And we just won a big case. We're allowed to send back
+- [10:00.933] hundreds of criminals to Venezuela.
+- [10:04.837] Just won that today in the Supreme Court.
+- [10:07.039] I'm happy to hear.
+- [10:08.574] But we do have a lot of people are very concerned
+- [10:14.947] with regard to South Africa,
+- [10:16.382] and that's really the purpose of the meeting,
+- [10:18.084] and we'll see how that turns out.
+- [10:20.486] But we have many people that feel they're being persecuted
+- [10:23.356] and they're coming to the United States.
+- [10:25.257] So we take from many locations,
+- [10:27.994] if we feel there's persecution or genocide going on.
+- [10:32.698] And we had a lot of people. I must tell you, Mr. President,
+- [10:36.836] we have had a tremendous number of people,
+- [10:39.472] especially since they've seen this.
+- [10:42.208] Generally, they're white farmers,
+- [10:44.610] and they're fleeing South Africa.
+- [10:46.645] And it's a very sad thing to see.
+- [10:49.448] But I hope we can have an explanation of that,
+- [10:52.618] because I know you don't want that.
+- [10:55.187] And it, you know, it's kind of a different meeting.
+- [10:59.091] Normally, we have meetings. We talk about trade.
+- [11:00.960] And we'll be talking about trade and other things.
+- [11:03.763] But that certainly will be a subject that comes up.
+- [11:06.465] Yeah?
+- [11:09.802] The Press: Thank you very much.
+- [11:11.103] I'd like to get your thoughts on Letitia James,
+- [11:13.105] Director Pulte, according to him, Letitia James
+- [11:17.510] says that the alleged mortgage fraud was simply a mistake.
+- [11:21.947] I want to get you thoughts on that.
+- [11:24.150] She put down that her father was her husband in order,
+- [11:28.788] and this is very similar to,
+- [11:30.289] I guess, the false attacks they had on him.
+- [11:32.825] The President: Well, I don't know what it is currently,
+- [11:34.427] but Letitia James,
+- [11:35.694] who's the Attorney General of New York State,
+- [11:38.464] it seemed -- I'm not involved in that at all.
+- [11:40.466] I know that it's being handled by various groups,
+- [11:44.236] I guess, but it's major fraud.
+- [11:49.308] Mortgage documents, and fraudulent everything.
+- [11:52.645] Yeah, I think she said the father was her husband,
+- [11:55.347] which she had to have a husband or --
+- [11:57.917] so she chose her father, but she put it down.
+- [12:00.886] And she's had -- didn't she sign in Virginia?
+- [12:05.591] She said she lived in Virginia,
+- [12:06.892] and she's the New York state attorney general.
+- [12:10.062] She did that for tax reasons,
+- [12:11.997] so she could take advantage of taxes.
+- [12:14.800] And she had the wrong number of units.
+- [12:16.836] She had a much different number. Which wouldn't have allowed her
+- [12:20.039] to qualify and scam the government.
+- [12:22.775] So, I don't know. I think she's very bad for New York,
+- [12:25.444] but I really don't too much about it.
+- [12:26.979] But I appreciate the question. Thank you very much.
+- [12:29.915] The Press: (inaudible)
+- [12:31.750] to be convinced that there is no genocide?
+- [12:35.020] The Press: Thank you, Mr. President.
+- [12:36.589] So May 25th will be the celebration of Africa Day,
+- [12:41.894] which pretty much a lot of celebration
+- [12:43.963] will be taking place around the world,
+- [12:45.731] including here in the United States.
+- [12:47.833] What is your message to the entire African continent,
+- [12:51.670] African people, on this important occasion?
+- [12:54.907] The President: Well, I want to see peace
+- [12:56.175] and I want to see happiness. I want to see health.
+- [12:58.677] And, you know, you have incredible land.
+- [13:00.813] There's tremendous value.
+- [13:02.047] A lot of countries don't have that value in the land,
+- [13:04.617] the value you have. You know, we have a situation,
+- [13:07.686] I think you probably heard about it.
+- [13:09.355] We've done, through some very talented people,
+- [13:12.758] helped settle a war that's been raging for years,
+- [13:17.029] Rwanda and the Congo. And I think we've done it.
+- [13:21.233] Believe it or not, I think we have done it, and I've --
+- [13:24.236] could you just say a few words about that, my friend?
+- [13:27.773] Male Speaker: A couple of weeks ago, we signed -
+- [13:29.608] they signed a two-party signed declaration of principles
+- [13:33.412] in which they've agreed on the way forward,
+- [13:35.548] and they have both submitted their draft peace agreements,
+- [13:40.819] and we have put together one that incorporates
+- [13:45.958] both of their suggestions, and we've given it to them.
+- [13:49.662] So we're in the process of finalizing this peace agreement.
+- [13:52.031] Looking very good.
+- [13:53.265] President Ramaphosa: No, we have to thank you
+- [13:54.533] for even those efforts
+- [13:56.302] because the African continent, particularly SADC,
+- [13:59.738] our Southern African Development Community,
+- [14:02.575] has for years been seeking to foster peace
+- [14:06.078] in the Democratic Republic of the Congo.
+- [14:09.048] So all efforts, including those from outside the continent
+- [14:13.319] and inside the continent, are really worthwhile.
+- [14:17.323] We have just, we are removing our troops from there
+- [14:21.594] so that peace can then prevail in that whole area,
+- [14:26.432] and we hope that with the support
+- [14:28.801] of the international community,
+- [14:31.136] we will really have peace in that area.
+- [14:33.706] It's so vital, it's so important for the whole region.
+- [14:37.343] The President: Well, we sent our people there,
+- [14:39.612] and I think we did a very good job.
+- [14:42.481] I sat here by my friend, and that was great.
+- [14:45.584] That was great, I mean, I'm just hearing phenomenal reports
+- [14:48.120] because all I'm hearing is death, death,
+- [14:50.122] and they're chopping heads off, and it's horrible over there.
+- [14:53.626] And it was really brave of you to go there,
+- [14:56.895] I really appreciate it. And it looks like that,
+- [14:59.398] it looks we have something very, very substantial.
+- [15:02.468] But we also talked about trade with them
+- [15:05.437] in terms of rare earth and all, but really more for the --
+- [15:09.742] it's like if you take a look at what we just did with
+- [15:13.178] Pakistan and India, we settled that whole thing,
+- [15:18.083] and I think I settled it through trade.
+- [15:19.885] We're doing a big deal with India.
+- [15:22.855] We're going a big with Pakistan.
+- [15:24.423] And I said, what are you guys doing?
+- [15:25.858] You know, they -- somebody had to be the last one to shoot.
+- [15:29.628] But the shooting was getting worse and worse,
+- [15:31.397] bigger and bigger, deeper and deeper into the countries.
+- [15:34.700] And we spoke to them, and we -- I think we -- you know,
+- [15:38.671] I hate to say we got it settled. And then, two days later,
+- [15:41.607] something happens, and they say, it's Trump's fault.
+- [15:44.677] But we -- Pakistan has got some excellent people
+- [15:49.548] and some really good -- a great leader.
+- [15:52.785] And India is my friend, Modi. And he's a --
+- [15:59.692] And I called them both, and we just did something good.
+- [16:03.696] We're trying to settle Russia-Ukraine.
+- [16:06.865] We spoke with President Putin for two
+- [16:09.501] and a half hours the day before yesterday.
+- [16:12.538] I think we made a lot of progress.
+- [16:13.872] But that's a bloodbath.
+- [16:15.107] Five thousand people are being killed a week.
+- [16:16.942] Five thousand soldiers a week,
+- [16:18.744] not including people in cities and towns
+- [16:21.146] that are also being killed. So we're trying help.
+- [16:24.950] And it doesn't affect us. It's not our people.
+- [16:27.252] It's not our soldiers, it's not our --
+- [16:29.588] it's Ukraine and it's Russia, but if we can say 5,000 souls,
+- [16:33.992] we'll do it, you know, we're pretty good at it.
+- [16:36.595] But it's a, that's a bad situation.
+- [16:38.597] That is a really bad situation, isn't it?
+- [16:40.399] President Ramaphosa: Well, you'd recall when President Zelensky
+- [16:42.735] was coming to South Africa, that's when I spoke to you.
+- [16:45.537] We both agreed that we need to push the peace message
+- [16:49.375] so that there can really be peace.
+- [16:51.777] And we've been involved in the Ukraine-Russia conflict
+- [16:54.947] for quite a while.
+- [16:56.181] Through my Minister of State Security here,
+- [16:59.351] we've been dealing with them,
+- [17:00.786] the exchange of children who were taken away,
+- [17:04.289] going through names and addresses and all that.
+- [17:07.359] So we've been invested in that whole process as well.
+- [17:11.430] And the moves that you are making
+- [17:13.565] are fully supported by us,
+- [17:15.434] because we would like to see the end of that war.
+- [17:18.537] The President: I called Zelensky
+- [17:20.406] and they said he's in South Africa.
+- [17:22.841] I said, what the hell is he doing in South
+- [17:26.745] And we got to speak. I said that's a strange one.
+- [17:29.715] I said what are you doing in South Africa?
+- [17:32.518] That's a stranger one.
+- [17:33.786] President Ramaphosa: It's time to make peace.
+- [17:39.291] We were lucky because we had the great Nelson Mandela
+- [17:42.461] who taught us how to create peace, to make peace.
+- [17:46.532] So we were imparting some of those lessons to him,
+- [17:50.169] some of the learnings and I specifically mentioned to him
+- [17:53.939] that this is how Nelson Mandala taught us that
+- [17:58.377] when you want to have a peace in a country,
+- [18:01.780] do it on an unconditional basis and sit down and talk.
+- [18:05.851] And that's precisely what I'm sure he's going to hear.
+- [18:08.954] The President: Well, we're going to see what happens with that,
+- [18:10.622] when it's a lot of -- there's a lot of hatred.
+- [18:13.058] A lot of death. It's a bloodbath.
+- [18:18.130] I get the satellite pictures of that field,
+- [18:21.400] of that killing field.
+- [18:23.535] You never saw anything like it in your life.
+- [18:25.304] It's horrible. It's the horrible thing that goes on
+- [18:27.339] but I think we've made big progress.
+- [18:35.113] Yeah, please go ahead.
+- [18:42.621] The Press: What are you expecting on the ICJ case,
+- [18:45.023] are you expecting South Africa to drop that?
+- [18:46.859] Is that what you're trying to do?
+- [18:48.193] The President: On which case?
+- [18:49.428] The Press: The ICJ case against Israel.
+- [18:53.899] The President: I don't expect anything to be honest.
+- [18:56.134] I really don't know. They've got a case
+- [19:00.606] there's a lot of anger there tremendous anger
+- [19:04.009] I don't expect anything we'll see what happens.
+- [19:06.245] We'll have a ruling and who knows
+- [19:07.946] what the ruling is going to mean
+- [19:09.815] The Press: On that subject of Gaza, Mr. President,
+- [19:12.818] are you going to be speaking to Prime Minister Netanyahu
+- [19:15.787] about Israel's renewed offensive there?
+- [19:17.789] There's been a lot of concern from European countries.
+- [19:20.325] The Pope has expressed concern.
+- [19:22.127] Are you going be asking Prime Minister Netanyahu
+- [19:24.663] to tone down the offensive in Gaza to let more aid in?
+- [19:27.866] The President: Was that a question or a statement?
+- [19:30.836] This guy, you never change.
+- [19:32.137] The Press: Mr. President, this side.
+- [19:33.372] Mr. President, this side,
+- [19:34.606] what will it take for you to be convinced
+- [19:36.441] that there's no white genocide in South Africa?
+- [19:40.379] President Ramaphosa: Well, I can answer that for the President.
+- [19:50.422] (talking simultaneously)
+- [19:52.858] President Ramaphosa: It will take President Trump
+- [19:55.227] listening to the voices of South Africans,
+- [19:59.131] some of whom are his good friends,
+- [20:01.900] like those who are here.
+- [20:03.835] When we have talks between us on the quiet table,
+- [20:07.906] it will take President Trump to listen to them.
+- [20:10.275] I'm not going to be repeating what I've been saying.
+- [20:14.446] I would say if there was Africana farmer genocide,
+- [20:18.717] I can bet you these three gentlemen would not be here,
+- [20:22.387] including my Minister of Agriculture.
+- [20:25.757] He would not to be with me.
+- [20:27.826] So it will take him, President Trump,
+- [20:30.696] listening to their stories, to their perspective.
+- [20:35.000] That is the answer to your question.
+- [20:36.802] The President: But Mr. President.
+- [20:38.003] I must say that we have -- no, no, wait.
+- [20:42.307] We have thousands of stories talking about it.
+- [20:45.110] And we have documentaries. We have news stories.
+- [20:49.848] And is Natalie here? Somebody here to turn that?
+- [20:53.485] I could show you a couple of things.
+- [20:55.187] And I would -- I just -- I have to --
+- [20:58.090] it has to be responded to.
+- [20:59.925] We have -- let me see the articles, please, if you would.
+- [21:03.228] And, excuse me, turn the lights down.
+- [21:06.398] Turn the lights down and just put this on.
+- [21:09.001] It's right behind you, Johan.
+- [21:12.137] (recording playing)
+- [24:39.277] The President: Now this is very bad.
+- [24:41.713] These are burial sites. Burial sites.
+- [24:48.153] Over a thousand of white farmers.
+- [24:52.123] And these cars are line up to pay love on a Sunday morning.
+- [24:57.762] Each one of those white things you see there are a cross.
+- [25:02.167] And there's approximately 1,000 of them.
+- [25:06.371] They're all white farmers. The family of white farmers.
+- [25:10.408] And those cars aren't driving.
+- [25:12.577] They're stopped there to pay respect to their family members
+- [25:15.647] who were killed. And it's a terrible sight.
+- [25:19.985] I've never seen anything like it.
+- [25:24.289] Both sides of the roads you have crosses.
+- [25:36.434] Those people were all killed.
+- [25:38.703] President Ramaphosa: Have they told you where that is,
+- [25:40.405] Mr. President?
+- [25:41.806] The President: No.
+- [25:43.008] President Ramaphosa: I'd like to know where that is,
+- [25:44.609] because this I've never seen.
+- [25:50.248] The President: I mean it's in South Africa.
+- [25:54.152] President Ramaphosa: I need to find out.
+- [25:56.855] (background conversation)
+- [26:20.745] The Press: Mr. President, the Pentagon announced
+- [26:22.147] that it would be accepting a Qatari jet
+- [26:24.549] to be used as Air Force One.
+- [26:26.117] The President: What are you talking about?
+- [26:27.752] (talking simultaneously)
+- [26:33.658] The President: What does this have to do with the Qatari jet?
+- [26:36.127] They're giving the United States Air Force a jet, okay?
+- [26:39.564] And it's a great thing.
+- [26:40.799] We're talking about a lot of other things.
+- [26:43.134] It's NBC trying to get off the subject of what you just saw.
+- [26:46.404] You are a real -- you know, you're a terrible reporter.
+- [26:48.974] Number one, you don't have what it takes to be a reporter.
+- [26:51.743] You're not smart enough.
+- [26:53.011] But for you to go into a subject about a jet
+- [26:56.581] that was given to the United States Air Force,
+- [26:58.550] which is a very nice thing.
+- [27:00.085] They also gave $5.1 trillion worth of investment,
+- [27:04.522] in addition to the jet.
+- [27:06.825] Go back -- you ought to go back to your studio at NBC,
+- [27:09.961] because Brian Roberts and the people that run that place,
+- [27:14.432] they ought to be investigated.
+- [27:16.001] They are so terrible, the way you run that network.
+- [27:19.504] And you're a disgrace. No more questions from you.
+- [27:28.913] (talking simultaneously)
+- [27:39.357] TP What would you like President Ramaphosa to do
+- [27:44.295] about the situation we've just seen on the screen?
+- [27:47.565] The President: I don't know.
+- [27:49.768] Look, these are articles over the last few days.
+- [27:54.005] Death of people.
+- [27:57.742] Death, death, death, horrible death I don't know.
+- [28:07.285] Pick anyone, white South Africans are fleeing
+- [28:11.122] because of the violence and racist laws.
+- [28:14.826] And this is all -- I mean, I'll give these to you.
+- [28:18.630] So when you say, what would I like to do,
+- [28:20.298] I don't know what to do.
+- [28:21.666] Look at this. White South African couples say
+- [28:24.903] that they were attacked violently.
+- [28:26.905] The Press: President Trump, when will you go
+- [28:28.306] and see for yourself that it isn't genocide?
+- [28:30.041] The President: Well, I can do that.
+- [28:31.309] Look, here's burial sites all over the place.
+- [28:33.645] These are all white farmers that are being buried.
+- [28:35.880] And he asks about a jet that was given.
+- [28:39.484] You ought to be ashamed.
+- [28:40.885] You know, you are so bad. You're such a bad reporter.
+- [28:43.521] If they're committing genocide, why
+- [28:50.462] The President: This is one after another.
+- [28:53.498] This family was wiped out. I'm just looking.
+- [28:56.401] The Press: (inaudible)
+- [28:57.602] can you give us your reaction to those videos?
+- [29:02.841] The President: Well, I think the videos are so --
+- [29:05.643] no, no, when you look at the videos,
+- [29:08.246] I mean, how does it get worse?
+- [29:10.448] And these are people that are officials,
+- [29:12.150] and they're saying that kill the white farmer
+- [29:14.519] and take their land. That's what it is.
+- [29:17.255] And I have other friends in South Africa,
+- [29:19.724] people that left, one in particular
+- [29:22.427] that says it's -- you can't go there.
+- [29:24.829] He said they were -- take your land,
+- [29:26.731] they take your and they kill you.
+- [29:29.234] It's okay. And they say it's okay to do it.
+- [29:31.402] Now, we're going to talk about it,
+- [29:33.738] but this is a tremendous -- look, this is story -- recent.
+- [29:37.041] These are all people that recently got killed.
+- [29:40.545] And I don't know how it can get any worse.
+- [29:42.947] These are -- And you know, the man that you saw,
+- [29:47.585] the men that you see,
+- [29:48.887] the people that you saw in that movie -- those are officials.
+- [29:51.656] Those are people that were in office.
+- [29:54.325] They had -- one march, they had a dance in your parliament,
+- [29:59.364] whatever you may call it, legislature,
+- [30:01.699] and it was terrible.
+- [30:03.001] President Ramaphosa: Let me clarify that.
+- [30:04.269] Because what you saw,
+- [30:05.937] the speeches that were being made,
+- [30:08.106] one, that is not government policy.
+- [30:11.643] We have a multi-party democracy in South Africa
+- [30:14.846] that allows people to express themselves,
+- [30:18.082] political parties to adhere to various policies
+- [30:22.453] and in many cases or in some cases those policies
+- [30:26.324] do not go along with government policy.
+- [30:30.461] Our government policy is completely,
+- [30:34.199] completely against what he was saying, even in the parliament.
+- [30:40.738] And they are a small minority party,
+- [30:43.841] which is allowed to exist in terms of our constitution.
+- [30:47.178] The President: But you do allow them to take land.
+- [30:50.348] You do allow them to take land,
+- [30:53.051] and then when they take the land,
+- [30:55.086] they kill the white farmer.
+- [30:56.754] And when they kill a white farmer,
+- [30:58.656] nothing happens to them. Nothing happens to them.
+- [31:02.560] President Ramaphosa: There is criminality in our country.
+- [31:05.697] People who do get killed, unfortunately,
+- [31:09.567] through criminal activity are not only white people.
+- [31:13.338] Majority of them are black people.
+- [31:16.841] The President: The farmers aren't black.
+- [31:18.176] The farmers are not black.
+- [31:19.644] I don't say that's good or bad, but the farmers are not black.
+- [31:23.047] And the people that are being killed in large numbers,
+- [31:27.085] and you saw all those gravesites,
+- [31:28.820] and those are people that loved ones going,
+- [31:31.222] I guess on a Sunday morning, they told me,
+- [31:33.424] to pay respect to their loved ones that were killed.
+- [31:36.961] Their heads chopped off. They died violently.
+- [31:42.000] And, you know, I mean, we're here to talk about it,
+- [31:44.902] And I didn't know we'd get involved here,
+- [31:47.839] but I will say this, that if the news wasn't fake,
+- [31:51.709] like NBC, which is fake news, totally one of the worst,
+- [31:54.379] ABC, NBC, CBS, horrible. But if they weren't fake news
+- [31:58.616] like this jerk that we have here,
+- [32:01.586] if we had real reporters, they'd be covering it.
+- [32:04.088] But the fake news in this country
+- [32:06.791] doesn't talk about that.
+- [32:08.559] They don't want to talk about it,
+- [32:10.094] but now they have to talk it.
+- [32:12.230] But they won't. This won't even be a subject.
+- [32:14.565] They'll have him talking about why did a country give a free --
+- [32:20.438] think of this -- why did a country
+- [32:22.006] give an airplane to the United States Air Force?
+- [32:25.076] Okay? The United States -- not to me --
+- [32:27.578] to the U.S. Air Force so they could help us out,
+- [32:31.049] because we need an Air Force One
+- [32:33.418] until our -- that's Air Force One.
+- [32:35.320] It's being built. Two of them being built,
+- [32:37.889] but Boeing is a little bit late, unfortunately.
+- [32:40.658] So why did they give us a plane? To the United States Air Force.
+- [32:44.095] That's what that idiot talks about after viewing a thing
+- [32:47.098] where thousands of people are dead.
+- [32:48.599] President Ramaphosa: I'm sorry,
+- [32:49.834] I don't have a plane to give you.
+- [32:51.536] The President: I wish you did. I'd take it.
+- [32:54.205] I would take it if your country
+- [32:55.640] offered the United State Air Force a plane.
+- [32:57.809] I would take it.
+- [33:00.078] President Ramaphosa: Coming back to this issue,
+- [33:01.946] which I really would like us to talk about,
+- [33:04.782] talk about it very calmly, we were taught by Nelson Mandela
+- [33:09.554] that whenever there are problems,
+- [33:12.190] people need to sit down around a table and talk about them,
+- [33:16.160] and this is precisely what we would also like to talk about,
+- [33:20.264] including of course trade matters, investment matters.
+- [33:24.369] The issues that concern you as the United States
+- [33:28.406] are in many ways,
+- [33:31.709] I mean one should say you are a partner of South Africa
+- [33:36.981] and you are raising concerns and these are concerns
+- [33:40.918] that we are willing to talk to you about.
+- [33:44.455] Let me just add quickly, you know the criminality
+- [33:49.961] that we are experiencing in our country
+- [33:52.296] needs quite a lot of technological capability.
+- [33:57.168] And in one of our areas in South Africa,
+- [34:00.238] we're using U.S. technology, which is able to, in many ways,
+- [34:05.676] identify where shootings are happening and all that.
+- [34:09.046] And I want to talk about that,
+- [34:10.415] because there is support that we can get from you,
+- [34:14.552] in United States to help us deal
+- [34:17.321] with all these acts of criminality.
+- [34:19.190] And that is what I believe partnership is all about.
+- [34:22.293] And we are here as a partner so that we can help each other
+- [34:28.399] whenever there are challenges.
+- [34:29.901] So I'd like us to discuss it and of course outside of the media
+- [34:34.272] so that we sit down and have a really good discussion
+- [34:38.242] that will lead to good outcomes.
+- [34:45.416] The Press: Are there any other punitive measures
+- [34:47.285] that could be in place
+- [34:48.553] should you not be satisfied that South Africa
+- [34:51.189] is fixing some of the very bad things
+- [34:54.425] that you tweeted are happening?
+- [34:56.994] The President: Well, there are a lot of bad things
+- [34:58.496] happening in, you know, many countries.
+- [35:00.698] But this, in particular, has been very, very bad.
+- [35:04.001] Very bad. And because of, you know --
+- [35:05.670] we're going to have the whole world
+- [35:07.905] watching in another short period of time
+- [35:10.041] because you have the G20. And that's a big deal.
+- [35:13.644] And it seems like -- I want you to look good,
+- [35:19.116] I don't want you to look bad, but we have hundreds of people,
+- [35:23.120] thousands of people trying to come into our country
+- [35:25.423] because they feel they're going to be killed
+- [35:27.391] and their land is going to be confiscated.
+- [35:29.827] And you do have laws that were passed
+- [35:31.362] that gives you the right to confiscate land for no payment.
+- [35:34.799] You can take away land for no payments.
+- [35:36.634] I want to clarify that. Because we have a constitution.
+- [35:40.271] Our constitution guarantees and protects
+- [35:43.875] the sanctity of tenure of land ownership.
+- [35:48.045] And that constitution protects all South Africans
+- [35:51.949] with regards to land ownership, however we do say
+- [35:56.454] because we've got to deal with the past,
+- [35:59.524] the government and as your government
+- [36:01.592] also has the right to expropriate land for public use.
+- [36:06.864] And we've never really gotten underway with that.
+- [36:11.936] The President: No, no.
+- [36:13.371] You're taking people's land away from them.
+- [36:17.208] And those people, in many cases, are being executed.
+- [36:20.478] They're being executed, and they happen to be white,
+- [36:23.881] and most of them happen to be farmers.
+- [36:26.384] And that's a tough situation.
+- [36:28.052] I don't know how you explain that.
+- [36:29.887] How do you explain that?
+- [36:31.656] They're taking peoples' land away,
+- [36:34.125] and in many case, those people are being executed,
+- [36:36.527] and in may cases, it's not the government that's doing it.
+- [36:38.563] It's people.
+- [36:39.830] that kill them, and then take their land,
+- [36:42.033] and nothing happens to them. But we have thousands of people
+- [36:45.436] that want to come into our country.
+- [36:46.771] They're also going to Australia, in a smaller number.
+- [36:50.708] But we've thousands of the people
+- [36:51.943] that want to come into our countries,
+- [36:53.878] and they're white farmers,
+- [36:55.446] and they feel that they're going to die in South Africa.
+- [37:00.251] And it's a bad thing.
+- [37:05.656] The Press: What can South Africa do?
+- [37:07.191] What concessions would you like to see them
+- [37:09.160] make to improve relations with the United States?
+- [37:12.196] Then I have one more for President Ramaphosa .
+- [37:15.466] The President: Well, you know, we just spoke about it.
+- [37:16.867] I got them a very, very complex machine, 150 of them.
+- [37:21.672] I was asked by the President if we could help.
+- [37:25.142] And I did that.
+- [37:26.544] And, you, know, I have great feeling for all countries.
+- [37:29.480] Look, I deal with all countries,
+- [37:32.149] but I have a great feeling for South Africa
+- [37:33.684] because I have friends.
+- [37:34.919] I have couple of friends, a few friends here today.
+- [37:37.989] I have many friends from South Africa,
+- [37:39.757] but many of those friends are not --
+- [37:43.961] they can't go back. I have. Elon is from South Africa.
+- [37:46.831] I don't want to get Elon involved.
+- [37:48.833] That's all I have to do. Get him into another thing.
+- [37:51.736] But Elon happens to be from South Africa.
+- [37:54.739] This is what Elon wanted.
+- [37:56.741] He actually came here on a different subject,
+- [37:59.076] sending rockets to Mars, okay? He likes that better.
+- [38:02.179] He likes that subject better. But Elon is from South Africa,
+- [38:05.449] and I don't want to talk to him about that.
+- [38:08.185] I don't want to. I don's think it's fair to him.
+- [38:10.388] But I will say that people are fleeing South Africa
+- [38:15.292] for their own safety, their land is being confiscated,
+- [38:18.763] and in many cases, they're being killed.
+- [38:20.898] And that scene of -- you see how many crosses they have.
+- [38:24.535] Those crosses -- that's a dead person in every one of them.
+- [38:27.772] And those trucks or cars are paying their respects
+- [38:31.175] to all of those dead people on a Sunday morning.
+- [38:34.245] That's a -- that a rough --
+- [38:35.913] that's rough thing to explain away.
+- [38:39.784] And the problem we have -- and the way, you know --
+- [38:43.688] a correct and a fair media exposes things.
+- [38:48.092] But we have a very corrupt media.
+- [38:50.561] They won't even report this.
+- [38:52.830] If this were the other way around,
+- [38:54.298] it would be the biggest story.
+- [38:55.666] Now, I will say apartheid. Terrible.
+- [38:57.735] That was the biggest -- that was reported all the time.
+- [39:01.105] This is sort of the opposite of apartheid.
+- [39:04.275] What's happening now is never reported.
+- [39:06.277] Nobody knows about it.
+- [39:07.845] All we know is we're being inundated with people --
+- [39:11.549] with white farmers from South Africa.
+- [39:14.418] And it's a big problem. Marco Rubio was telling me
+- [39:17.822] he's never seen anything like it.
+- [39:19.790] The numbers of people that want to leave South Africa
+- [39:22.493] because they feel they're going to be dead very soon.
+- [39:24.729] Yes, please.
+- [39:27.431] The Press: If I could just ask you a question,
+- [39:28.999] 72% of farmers in your country are white.
+- [39:32.236] If they flee, do you feel
+- [39:34.705] that maybe the economy could collapse?
+- [39:36.941] You may not have a gap to fill in those people
+- [39:39.443] that need to replace those farmers.
+- [39:40.878] President Ramaphosa: You know,
+- [39:42.146] I like my Minister of Agriculture,
+- [39:45.282] who is white, who comes from an opposition party to mine,
+- [39:51.455] who's joined my government at my invitation
+- [39:56.127] to address this very issue,
+- [39:59.930] including the question that you've just raised, John?
+- [40:02.933] John Steenhuisen: Thank you very much, Mr. President.
+- [40:04.468] Mr. President, thank you for welcoming us to the White House.
+- [40:07.571] I would say we have a real (inaudible) in South Africa,
+- [40:10.307] and I don't think anyone wants to candy coat that.
+- [40:13.043] And it requires a lot of effort to get on top of it.
+- [40:16.380] It's going to require more policing resources.
+- [40:18.282] It's going to require a different strategy
+- [40:19.717] to be able to deal with it.
+- [40:21.185] But certainly the majority of South Africa's commercial
+- [40:23.988] and smallholder farmers really do want to stay
+- [40:27.324] in South Africa and make it work.
+- [40:29.059] And I've just come from the largest agricultural show
+- [40:31.562] in the southern hemisphere
+- [40:32.897] with organized agriculture and farmers.
+- [40:34.665] And the majority of them want to stay.
+- [40:36.667] But they, too, they have a memorial to those who've died
+- [40:39.837] as a result of farm attacks.
+- [40:41.305] And as the Minister of Agriculture,
+- [40:44.175] it is something that I particularly
+- [40:46.243] (inaudible)
+- [40:47.444] with my colleagues at police
+- [40:49.213] and my colleagues in the justice cluster
+- [40:50.915] to stop making farm attacks and stock theft a priority crime.
+- [40:56.287] And it affects all farmers in South Africa,
+- [40:57.988] particularly stock (inaudible).
+- [40:59.223] It has a disproportionate effect on small, older black farmers.
+- [41:02.927] I also want to just say this,
+- [41:04.762] that the two individuals that are in that video
+- [41:07.164] that you've seen
+- [41:08.465] are both leaders of opposition minority parties
+- [41:12.236] in South African. (inaudible)
+- [41:15.673] and the economic freedom fighters
+- [41:17.174] under Mr Malema (phonetic).
+- [41:18.709] Now the reason that my party, the Democratic Alliance,
+- [41:22.046] which has been an opposition party for over 30 years,
+- [41:24.882] chose to join hands with Mr Ramaphosa's party,
+- [41:27.918] was precisely to keep those people out of power.
+- [41:31.622] We cannot have those people sitting in the union buildings
+- [41:35.159] making decisions. That is why after 30 years of us
+- [41:38.896] exchanging bards across the floor in parliament
+- [41:41.866] and trying to get one over on each other,
+- [41:44.168] we've decided to join hand precisely to keep
+- [41:47.538] that lot out of government because the day they get in
+- [41:51.508] to the doors of the union buildings in South Africa,
+- [41:54.278] or control of our parliament, that's what you're going to see.
+- [41:57.147] And that is why this government, working together,
+- [42:00.251] needs the support of our allies around the world
+- [42:03.020] so that we can strengthen our hand, grow our economy,
+- [42:05.890] and shut the door forever on that rabble,
+- [42:08.993] getting through the doors of the Union buildings,
+- [42:10.527] because then South Africa's future would be --
+- [42:13.264] The Press: So you denounce that type of language
+- [42:15.099] in the video that you saw?
+- [42:16.500] President Ramaphosa: Oh yes, we've always done so.
+- [42:18.736] As government, as my own party,
+- [42:21.705] we are completely opposed to that.
+- [42:24.441] We, in 1955, adopted a document which said
+- [42:28.812] South Africa belongs to live in it.
+- [42:32.316] The President: But why wouldn't you arrest that man?
+- [42:34.218] That man said, kill the white farmers, kill the white farmers.
+- [42:38.455] And then he danced, and he's dancing, dancing,
+- [42:40.858] and it's kill the white farmers. I think -- I'm not sure,
+- [42:44.929] but I think if somebody got up in Parliament
+- [42:47.031] and started saying, kill a certain group of people,
+- [42:50.668] they -- he would be --
+- [42:52.102] and he would be arrested very quickly.
+- [42:55.372] That man is going all over South Africa.
+- [42:57.975] And that's not a small party.
+- [42:59.777] That was a stadium that holds 100,000 people.
+- [43:03.180] And I hardly saw an empty seat. That's a lot of people.
+- [43:06.483] That's lot of representation.
+- [43:08.519] And those crosses, we have dead white people,
+- [43:12.723] dead white farmers, mostly.
+- [43:15.492] And you take a look at Australia.
+- [43:16.727] They're being inundated,
+- [43:17.962] and we're being inundating with people
+- [43:19.530] that want to get out.
+- [43:20.898] And their farm is valueless. It's valueless.
+- [43:25.436] And they just want to get out with their life.
+- [43:30.074] This is a very serious situation.
+- [43:32.810] And if we had a real news or real press or media,
+- [43:36.213] we don't have that because they won't talk about this
+- [43:39.316] because they're all guys like that idiot.
+- [43:41.552] But if we have a real press, it would be exposed.
+- [43:44.621] And, you know, the beauty of exposing it
+- [43:46.290] is it's like a cleansing action.
+- [43:48.258] When it gets exposed, it'll get fixed.
+- [43:49.994] That's when it'll be fixed. But people don't talk about it.
+- [43:53.197] And I'll tell you who's talking about the thousands of people
+- [43:55.966] that are fleeing South Africa right now.
+- [44:00.170] The Press: Can we discuss USAID
+- [44:05.309] and the devastating impact of the cuts
+- [44:07.144] are having across the African continent?
+- [44:09.446] The President: You know, it's devastating.
+- [44:12.082] And hopefully, a lot of people
+- [44:13.951] are going to start spending a lot money.
+- [44:17.054] And I've talked to other nations.
+- [44:19.056] We want them to chip in and spend money, too.
+- [44:22.226] And we've spent a lot. And it's a big -- it's --
+- [44:25.462] it is a tremendous problem going on in many countries.
+- [44:28.399] A lot of problems going on.
+- [44:30.300] The United States always gets the request for money.
+- [44:35.372] Nobody else helps as you know. Europe doesn't help.
+- [44:37.708] Europe hasn't given anything all they do is sue our companies.
+- [44:41.078] You know they sue Apple
+- [44:42.846] and they sue all of our companies.
+- [44:45.215] Apple had to pay 17 million dollars
+- [44:47.317] on a nonsense lawsuit very unfair,
+- [44:50.220] but we're always going to be there to help
+- [44:54.024] The Press: (inaudible)
+- [45:03.600] resolved, what is the potential for the future
+- [45:05.402] looking relationship?
+- [45:06.737] The President: It's fantastic. It's got to be resolved.
+- [45:08.739] It should be resolved, it's -- I mean, it --
+- [45:11.008] it's a little bit bad
+- [45:12.276] when you see a stadium with 100,000 people in it,
+- [45:14.812] because that means it's more than just a little movement.
+- [45:18.715] It's a pretty big movement in South Africa.
+- [45:20.784] So it has to be resolved.
+- [45:22.886] It'll be the end of the country if it's not resolved.
+- [45:26.323] I hope so. That's why I'm here.
+- [45:29.293] I mean I'm not here for my health.
+- [45:30.928] I'm here to see what can be done.
+- [45:33.330] No, I'd like to see. I have friends.
+- [45:35.332] I can tell you, Ernie Els and RetiefGoosen,
+- [45:38.001] they feel so strongly they wanted to be here
+- [45:40.804] on behalf of South Africa, not on behalf of me.
+- [45:44.308] And, you know, they said, can we be here for this?
+- [45:46.477] Because they love the country.
+- [45:48.779] Ernie, do you guys want to say a couple of words or anything?
+- [45:51.014] I don't -- I hate to put you in this.
+- [45:53.350] This is tougher than sinking a three-footer.
+- [45:56.487] I'm sorry. They have -- and they've sank many three footers.
+- [46:03.527] Ernie Els: Thank you, Mr. President,
+- [46:05.929] and thanks for the honor of being here.
+- [46:08.165] We've known each other a long time, we have spoken.
+- [46:14.938] We're proud South Africans.
+- [46:16.206] I still have my South African passport.
+- [46:18.342] You know, we travel with this passport, you know,
+- [46:21.745] and I got my visa here. So, you know.
+- [46:25.849] But we want to see things get better in our own country,
+- [46:29.987] and that's the bottom line.
+- [46:31.889] It's been 35 years since the transition.
+- [46:35.959] President Ramaphosa was right in the middle
+- [46:38.162] of the transition time in 1990 and before that.
+- [46:45.135] So it's been 35 years of ANC government.
+- [46:51.475] And I know there's a lot of anger,
+- [46:54.011] you know, through the transition.
+- [46:55.812] There was a lot, a lot stuff happening in the apartheid days.
+- [46:59.750] You know, we grew up in apartheid era.
+- [47:05.255] But I don't think two wrongs makes a right, you know.
+- [47:09.059] President Mandela, when he came out of prison for all that time,
+- [47:14.364] didn't come out with hatred, you know,
+- [47:17.267] and really unified our nation through sport.
+- [47:23.207] We won the Rugby World Cup in the 95.
+- [47:27.978] We won African Nations Cup soccer.
+- [47:32.816] You know, we want some majors as golfers and so forth.
+- [47:37.988] So what I'm trying to say is,
+- [47:39.356] you know, this has been a long time coming.
+- [47:44.194] That's why we really wanted to meet you,
+- [47:46.396] meet the administration, and see our way forward.
+- [47:49.900] Because we still want to see our country flourish.
+- [47:53.136] You know, we've got some great things going on.
+- [47:55.405] Business is getting involved with government.
+- [47:59.876] Farming, farmers are getting involved
+- [48:02.512] in local municipalities.
+- [48:04.715] Trying to rebuild some of the infrastructure
+- [48:06.483] that's been decaying for a long time.
+- [48:10.520] So there's a lot of co-existence going on
+- [48:15.559] and help from a lot areas. But we need,
+- [48:20.230] I feel we need the U.S. to push this thing through.
+- [48:26.637] We've got a great ally, if we can have the US.
+- [48:29.973] It's always been an ally of South Africa
+- [48:31.908] for a very long time,
+- [48:34.678] even in the days of the of the war you know up in Angola
+- [48:38.215] you know you guys helped us so very important for us
+- [48:42.386] to to have your support
+- [48:44.888] and you know get the change we need where.
+- [48:48.358] The President: Wow, did you do that well.
+- [48:54.031] He might have done that even better than he plays golf,
+- [48:57.334] which is almost impossible, Johan.
+- [49:02.172] Male Speaker: If you had to wind all of those tapes properly,
+- [49:08.679] you will see I'm the biggest target of that rebel rouser.
+- [49:13.617] Number one for over 10 years, Mr. Malema.
+- [49:17.087] In fact, the first time I met him,
+- [49:20.157] he was in a youth league with that gentleman,
+- [49:24.494] and look how he's changed.
+- [49:28.298] We have too many deaths, but it's across the board.
+- [49:32.369] It's not only white farmers, it's across the board,
+- [49:36.773] and we need technological help.
+- [49:40.344] We need Starlink at every little police station.
+- [49:43.780] We need drones.
+- [49:46.116] I actually got drones donated for the peace parks
+- [49:51.221] to stop elephant and rhino poaching.
+- [49:55.826] And his predecessors stopped the importation,
+- [50:00.063] because you said the United States would spy on us.
+- [50:03.867] I mean, U.S. Basics, the ridicule.
+- [50:07.437] So if we can, if you can help us.
+- [50:11.441] Remember sir, you and I lived in New York in the 70s.
+- [50:15.011] We never thought New York could be what it became.
+- [50:18.515] Two commissioners, a tough mayor,
+- [50:22.886] we need your help to stop this awful killing.
+- [50:26.923] But it's across the board.
+- [50:28.759] Ernie's right now building a playhouse in George.
+- [50:32.329] I'm building three cottages for my grandchildren
+- [50:35.599] on a farm outside Grafrenet.
+- [50:39.169] I often go to bed without locking the door.
+- [50:42.806] We have a serious problem with illegal aliens
+- [50:46.777] who stream across the border.
+- [50:49.045] And if you really look at our statistics,
+- [50:53.517] a lot of these murders,
+- [50:55.552] firstly it's unemployment and illegal aliens.
+- [51:01.458] And then I met Vice President Vardt
+- [51:05.495] many years ago that Charlie Rose showed.
+- [51:09.266] My wife loved him. She reminded me this morning
+- [51:15.138] that you emphasized the devastation
+- [51:19.176] that occurs when big companies leave towns and cities
+- [51:25.248] and there's a culture of dependency that develops.
+- [51:30.153] I remember you discussing it. Now that's our problem.
+- [51:34.791] If we don't get our economy to grow,
+- [51:36.993] the culture of dependence and the lawlessness will increase.
+- [51:42.232] I've been against aparteid that all my life,
+- [51:45.368] and I'm the number one target.
+- [51:47.737] Please just Google my name and Marlema.
+- [51:52.108] You'll see it, sir. He marched on the farm --.
+- [51:56.046] The President: But the crime is bad.
+- [51:57.647] Johan: The crime is terrible, sir,
+- [51:59.216] but Mr. Stenison won't admit to it,
+- [52:02.185] but he runs the Western Cape, where I live.
+- [52:05.155] And the biggest murder rate is in the Cape Flats.
+- [52:10.026] Gangs, we've got gang warfare. Like your M33, these guys.
+- [52:17.467] We've got equivalents there, but we need your help, sir.
+- [52:22.506] And we need Elon's technology.
+- [52:25.175] President Ramaphosa: But one of the real areas of support
+- [52:28.879] is really in investments. We've got to grow our economy,
+- [52:32.716] because through growing the economy,
+- [52:34.818] we're then able to create more jobs.
+- [52:37.921] Because crime really thrives
+- [52:41.491] where there is inequality and unemployment.
+- [52:45.896] And that is one of reasons that has brought us here,
+- [52:48.999] to improve our investment relations, our trade relations.
+- [52:54.604] So that we can preserve the number of jobs
+- [52:58.241] that your companies have created in South Africa.
+- [53:01.978] By virtue of what we export to you,
+- [53:04.748] we are able to create up to 500,000 jobs
+- [53:07.951] in the auto industry, in the agricultural industry,
+- [53:12.188] and a number of other industries,
+- [53:14.324] mining, where we export things to you.
+- [53:17.127] And we also know that as South African companies invest here,
+- [53:21.698] you are also able to create jobs.
+- [53:23.133] So it's a mutually. Beneficial relationship.
+- [53:26.503] So our main real reason for being here
+- [53:30.840] is to foster trade and investment
+- [53:34.511] so that we are able to grow our economy, your support,
+- [53:39.549] and so that we are also able to address
+- [53:41.818] all these societal problems
+- [53:43.987] because criminality thrives when people are unemployed,
+- [53:48.191] when they have no other hope to eke out a living.
+- [53:51.962] So that is what we need to resolve.
+- [53:54.698] Your support, your partnership with us
+- [53:58.034] is what is really going to give us
+- [54:00.904] a strong, strong capability to move forward.
+- [54:06.810] The President: Excuse me, do you have anything to say?
+- [54:09.045] I don't want to leave you out.
+- [54:10.447] You know, the guy won three or four majors.
+- [54:13.283] Three or four?
+- [54:14.718] Retief Goosen: Two.
+- [54:16.119] The President: That's a lot. By the way, two is a lot,
+- [54:18.788] a lot of tournaments you won, too.
+- [54:20.657] Do you have any thing to say.
+- [54:22.626] Retief Goosen: Yeah, thank you, Mr. President.
+- [54:24.361] President Ramaphosa.
+- [54:25.762] I grew up in an area in South Africa
+- [54:27.731] that is a farmland area, Polokwania.
+- [54:31.101] And there are some issues up there, obviously.
+- [54:35.572] My dad was a property developer as well as a part-time farmer.
+- [54:39.409] And yeah, some of these buddy farmers got killed.
+- [54:44.714] The farm is still going. My brother's run it.
+- [54:47.651] But it's a constant battle with farms trying to get,
+- [54:50.820] they're trying to burn the farms down to chase you away.
+- [54:54.391] So it is a concern to try and make a living as a farmer.
+- [54:59.095] And at the end of the day, you know, without farmers,
+- [55:01.431] there's no food on the plate.
+- [55:03.033] So we need the farmers to produce the food.
+- [55:05.502] The President: He wouldn't do it.
+- [55:06.903] He wouldn't even want to do what you're doing.
+- [55:08.772] They love farming. They don't want to leave him.
+- [55:10.874] But it's a struggle.
+- [55:12.909] Retief Goosen: Yeah, and you know,
+- [55:14.177] food and fresh water is the most important thing in life.
+- [55:16.946] You know, without those two things you can't supply.
+- [55:19.482] The President: How is the water there?
+- [55:21.351] Retief Goosen: The water is great, obviously,
+- [55:25.021] all the water comes out of the borehole,
+- [55:26.756] out of ground for us.
+- [55:29.459] But yeah, it is a battle to get the water out
+- [55:32.062] sometimes when all the equipment gets stolen all the time.
+- [55:35.832] The President: So does your family and your brother,
+- [55:37.467] do they feel safe on the farm?
+- [55:40.203] Retief Goosen: They live behind electric fences,
+- [55:42.305] you know, try and be at night safe.
+- [55:45.709] But it is constant whenever you leave
+- [55:49.412] that something could happen.
+- [55:54.517] You know, both of them have been attacked in their houses.
+- [55:57.854] My mom's been attacked when she was 80.
+- [56:01.324] So it is difficult.
+- [56:04.661] But you know the guys live a great life
+- [56:08.098] despite everything going on.
+- [56:13.770] President Ramaphosa: President Trump,
+- [56:14.971] I've brought along the President
+- [56:16.873] of the largest trade union in our country, Ziggy Solosi,
+- [56:21.778] because she leads many, many workers,
+- [56:25.215] more than one million, one and a two million workers,
+- [56:28.918] and maybe we should give her a chance to say something
+- [56:31.488] because she's come all the way to join us.
+- [56:34.891] Ziggy Solosi: Thank you very much, Mr. President Trump
+- [56:37.360] for having us and for extending the invitation
+- [56:40.096] to us as Organized Labor.
+- [56:42.265] And I must say that we are here to support the initiative
+- [56:48.238] that has been made by our government with business,
+- [56:52.075] of course, as Organize Labor.
+- [56:53.877] We've been coming to Washington on the accord,
+- [56:57.981] trade relations in the previous regime.
+- [57:02.018] And I think at the center of it all, for me,
+- [57:05.021] it is exactly what (inaudible)
+- [57:07.223] said, the importance of us growing the economy.
+- [57:12.028] We have always emphasized when we were here,
+- [57:14.330] we kept on coming and negotiating on our own.
+- [57:17.467] The 600 U.S. Companies
+- [57:20.136] that are based in South Africa, as you said,
+- [57:22.705] President Ramaphosa, 500,000 jobs will be wiped out.
+- [57:26.476] We need more foreign direct investment in our country.
+- [57:30.480] We are not just talking about those that will lose employment.
+- [57:33.449] But we are talking about over 40 percent of people
+- [57:35.985] that are unemployed that have no hope of ever finding a job.
+- [57:41.858] And we think that correctly, as they have said,
+- [57:44.627] that we need to deal with the issue of porous borders
+- [57:47.530] in our country so that everyone that comes in is documented.
+- [57:51.501] We also need to - and I would have loved -
+- [57:54.838] thought that the minister would address
+- [57:56.406] the issue of land expropriation
+- [57:58.341] and how the policy works in South Africa.
+- [58:01.578] Recently, President,
+- [58:02.912] as you were preparing to come here on the news in,
+- [58:06.649] I think it was in Natal (phonetic),
+- [58:08.351] there was a handover of farms.
+- [58:12.088] And white farmers were saying, we are donating the land,
+- [58:18.428] but also there is a willing buyer,
+- [58:20.096] willing seller in South Africa.
+- [58:22.265] So there is no expropriation without compensation.
+- [58:28.504] But it is a willing buyer, willing seller.
+- [58:30.406] And that white farmer was even saying,
+- [58:32.442] President, that the government is even paying more
+- [58:37.714] in buying the land than what the land is worth of.
+- [58:41.417] And I think those are the realities, President.
+- [58:44.487] We must say that we need to address, of course,
+- [58:47.991] but also the importance of agriculture linked
+- [58:50.560] to (inaudible).
+- [58:52.762] People rely on it, and I think, as Retif have said.
+- [58:55.765] For survival and living. But lastly for me, President,
+- [59:00.904] is also the issue of the crime statistics.
+- [59:05.909] There is no doubt about it that we are a violent nation,
+- [59:10.613] you know, for a number of reasons,
+- [59:12.348] and we're not condoning anything.
+- [59:15.418] But also if you go into the rural areas
+- [59:19.088] where black majority are,
+- [59:21.124] you would see women elderly being raped
+- [59:25.295] being killed, being murdered,
+- [59:27.063] and these are black elderly women
+- [59:31.067] that would be found throat slits,
+- [59:33.836] raped multiple times, and all of that.
+- [59:36.205] And the problem in South Africa,
+- [59:38.308] it is not necessarily about race, but it is about crime.
+- [59:41.878] And we think that we are here to say,
+- [59:43.746] how do we, both nations, work together to reset,
+- [59:47.517] to really talk about investment,
+- [59:51.521] but also help us in how we can help.
+- [59:55.058] The technology and everything that is needed to really address
+- [59:59.896] the levels of crime that we have in our coutnry.
+- [01:00:05.802] The Press: Mr. President, genocide is a very strong word.
+- [01:00:10.440] I'm wondering if you've made up your mind
+- [01:00:12.241] as to whether you believe genocide
+- [01:00:13.743] is occurring in South Africa, or you still have doubts.
+- [01:00:15.578] And if you have made up you mind,
+- [01:00:17.313] why invite President Ramaphosa here today?
+- [01:00:20.350] The President: Well, I haven't made up my mind.
+- [01:00:21.851] I hate to see it from the same point of South Africa.
+- [01:00:25.355] But also, you know, I'm trying to save lives.
+- [01:00:27.223] I'm working with Russia and Ukraine.
+- [01:00:29.659] I don't have to do that. It's not our war.
+- [01:00:31.494] It was started by other people.
+- [01:00:34.063] It was helped along by our past administration.
+- [01:00:37.033] It would have never happened if I were president.
+- [01:00:39.068] But I'm trying to save life, no matter where.
+- [01:00:42.305] Rwanda, I have nothing to do with Rwanda and the Congo,
+- [01:00:46.876] but I felt I had a very talented person administration,
+- [01:00:51.714] and I sent him there.
+- [01:00:53.583] And he did an unbelievable job, I think.
+- [01:00:55.385] I mean, we're going to find out.
+- [01:00:56.786] But he's done the hardest part of the job.
+- [01:00:59.789] It should happen.
+- [01:01:01.157] If I can save lives, I want to save the lives.
+- [01:01:03.426] If it's in Africa, that's great.
+- [01:01:04.794] If it in Europe, if it's wherever it may be.
+- [01:01:08.164] And it's a very small investment to do,
+- [01:01:11.401] believe me, compared to what the consequences are.
+- [01:01:14.871] So I hope we can do something. I have so many friends.
+- [01:01:19.876] These two men, I have great admiration for them
+- [01:01:21.778] because I know what they do for a living.
+- [01:01:23.646] And that's a very hard living, going from city to city,
+- [01:01:27.216] from country to country,
+- [01:01:28.484] and hitting a ball 350 yards like they do.
+- [01:01:33.623] And getting the ball in the hole.
+- [01:01:36.359] It's a tough, with lots of people watching, right?
+- [01:01:40.630] That's a really tough living. You know, they're champions.
+- [01:01:43.266] I respect champions. And I respect very much,
+- [01:01:46.936] and I think the country is very lucky.
+- [01:01:48.571] They really wanted to be here. They could be elsewhere.
+- [01:01:51.107] They could be on a beautiful fairway someplace
+- [01:01:53.142] and they wanted to be here..
+- [01:02:04.287] The Press: How important is it for the United States
+- [01:02:07.290] to be at our G20 Summit in November,
+- [01:02:10.493] given the relationship between our two countries?
+- [01:02:13.296] You've just heard what has been said to you just now.
+- [01:02:17.033] Are you coming and are you preparing to come?
+- [01:02:19.869] The President: So, without the United States,
+- [01:02:21.437] the G20, just like the G7, used to be the G8,
+- [01:02:24.807] but brilliantly, they threw Russia out,
+- [01:02:27.376] would have been a lot better if Russia was in, you know?
+- [01:02:29.579] A lot of people would say, oh, that is --
+- [01:02:31.180] because if Russia were in,
+- [01:02:32.381] you probably wouldn't have this war.
+- [01:02:34.717] And if you had a different president,
+- [01:02:35.985] you wouldn't the war either. But we have a G7.
+- [01:02:39.555] It's important that the United Sates is at both.
+- [01:02:42.058] I think without the U.S., it's --
+- [01:02:45.261] I really believe it's not very important.
+- [01:02:47.730] It's not -- it's not the same meaning
+- [01:02:52.401] President Ramaphosa: As I said to President Trump, the U.S.
+- [01:02:55.238] Really originated the G20, and it's important
+- [01:03:00.877] that the United States continues to play a key role in the G20,
+- [01:03:06.415] and we are privileged to be the president of the G20,
+- [01:03:11.387] but we are even overjoyed that we are going to hand over
+- [01:03:14.790] to the United States who are the originators.
+- [01:03:17.994] And for that reason, I expect the United States
+- [01:03:22.565] to continue playing the leadership role
+- [01:03:25.101] in the G20 together with other countries.
+- [01:03:27.904] And I've said when I initially spoke to President Trump
+- [01:03:31.541] on the phone,
+- [01:03:32.909] I want him to come to South Africa for a state visit,
+- [01:03:36.479] and I also want him to come and participate in the G20.
+- [01:03:41.317] And I want to gladly hand over to President Trump
+- [01:03:45.788] to take the leadership of the G20 forward in November.
+- [01:03:50.860] The President: Thank you very much,
+- [01:03:52.128] thank you very, thank you.

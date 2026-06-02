@@ -1,0 +1,741 @@
+<!-- source: https://www.youtube.com/watch?v=JnkR8MbPKaE -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: JnkR8MbPKaE -->
+<!-- date_published: 2026-02-12T19:14:16+00:00 -->
+<!-- date_accessed: 2026-06-02T02:37:57.315693+00:00 -->
+
+# Transcript: President Trump Makes an Announcement with the Administrator of the EPA
+
+- [00:05.530] The President: This is a big one if you're into environment.
+- [00:10.540] This is about as big as it gets, they tell me.
+- [00:13.710] And it's an honor to be here with a terrific person
+- [00:18.310] who's worked so hard on this, and some other terrific people.
+- [00:22.360] Thank you very much.
+- [00:24.530] But I'm pleased to be joined today by EPA administrator,
+- [00:30.380] Lee Zeldin, who you all know and to announce
+- [00:32.690] the single largest deregulatory action in American history.
+- [00:38.790] That's a big statement, in American history.
+- [00:41.580] And I think we can add the words, by far.
+- [00:45.400] Under the process just completed by the EPA,
+- [00:49.330] we are officially terminating
+- [00:50.870] the so-called endangerment finding,
+- [00:54.440] a disastrous Obama-era policy
+- [00:56.630] that severely damaged the American auto industry
+- [00:59.950] and massively drove up prices for American consumers.
+- [01:03.000] Prices went up incredibly for a worse product.
+- [01:08.800] This action will eliminate over $1.3 trillion
+- [01:11.830] of regulatory costs
+- [01:13.150] and help bring car prices tumbling down dramatically.
+- [01:18.510] You're going to get a better car,
+- [01:19.920] you're going to get a car that starts easier,
+- [01:21.640] a car that works better for a lot less money.
+- [01:26.300] In 2009, Barack Hussein Obama,
+- [01:29.890] his EPA designated fossil fuels such as oil, gas
+- [01:38.620] and other things that actually make factories rock and roll,
+- [01:44.490] and other things, drive very nicely,
+- [01:47.090] as a threat to health and human welfare,
+- [01:50.740] known as the endangerment finding.
+- [01:53.050] This determination had no basis, in fact,
+- [01:55.390] had none whatsoever and it had no basis in law.
+- [01:59.390] On the contrary, over the generations,
+- [02:01.400] fossil fuels have saved millions of lives
+- [02:04.230] and lifted billions of people out of poverty
+- [02:06.620] and all over the world.
+- [02:07.930] And you see it with the blackouts all over,
+- [02:09.690] where they don't use it, where they went to wind,
+- [02:12.780] intermittent wind, which is weak and ineffective
+- [02:17.060] and very, very costly, most costly energy there is.
+- [02:21.240] And people are dying because there was no air conditioning
+- [02:25.720] or there was no heating, lots of other things.
+- [02:28.250] Bad things happened.
+- [02:29.960] And yet this radical rule became the legal foundation
+- [02:33.130] for the Green New Scam,
+- [02:34.470] one of the greatest scams in history, probably as great,
+- [02:38.040] maybe even greater than Russia, Russia, Russia hoax, etc.,
+- [02:41.880] which the Obama and Biden administration
+- [02:43.810] used to destroy countless jobs
+- [02:46.000] and the jobs have been just decimated.
+- [02:49.290] Although they're all coming back.
+- [02:50.500] Because of tariffs, they're all coming back into our country
+- [02:54.030] at levels we've never seen before.
+- [02:57.120] But it raised prices and caused immense harm
+- [03:00.220] to the US auto industry.
+- [03:02.900] We thought irreparable, but we've got them back.
+- [03:05.650] We're coming back now.
+- [03:07.310] I was in Detroit, as you know, with Ford,
+- [03:11.050] and they had one of the earliest plans from the early 1900s.
+- [03:14.790] And it was uh going to be closed down.
+- [03:18.880] And then when I won, they said,
+- [03:20.230] let's keep it open for a little while, let's see what happens.
+- [03:22.510] And they just announced, as you know,
+- [03:23.800] they're going 24 hours around the clock
+- [03:25.740] with that same plant that was going to be closed
+- [03:28.820] because of what we've done.
+- [03:30.760] For example, under the endangerment finding,
+- [03:32.870] they forced the hated start stop feature
+- [03:38.130] onto American consumers,
+- [03:39.810] which unnecessarily shuts off a car's engine
+- [03:43.180] when you stop at a red light.
+- [03:44.500] In other words, the engine goes off, that's great.
+- [03:47.690] The endangerment finding was also used to impose the massive
+- [03:51.010] and really very expensive electric vehicle mandate,
+- [03:55.880] expensive in the sense that nobody wanted it.
+- [03:58.800] Everybody was going to be forced to buy an electric car
+- [04:02.320] in a very short period of time,
+- [04:03.520] even though you can't power the car
+- [04:05.060] because we would have had to spend $5 trillion
+- [04:07.350] on power stations.
+- [04:09.820] That's all dead, gone, over.
+- [04:12.550] These crippling restrictions were a major factor
+- [04:15.370] in driving up car prices to unprecedented levels
+- [04:19.120] and the car that you were getting was not nearly as good.
+- [04:22.620] In four years, under the Biden administration,
+- [04:25.190] the price of a new and used car rose more than 22 percent,
+- [04:29.640] all to facilitate the Green New Scam
+- [04:31.860] without achieving any meaningful impact on the environment
+- [04:35.750] but making the car worse.
+- [04:38.700] That is why, effective immediately,
+- [04:40.280] we're repealing the ridiculous endangerment
+- [04:43.050] finding and terminating all additional green emission
+- [04:46.210] standards imposed unnecessarily on vehicle models and engines
+- [04:51.190] between 2012 and 2027 and beyond.
+- [04:55.910] This action will save American consumers trillions of dollars
+- [05:02.010] and will lower the average cost of a new vehicle
+- [05:04.870] by close to $3,000. Think of that.
+- [05:10.520] During my campaign, I promised to cut 10 old regulations
+- [05:14.250] for every new regulation and we've exceeded that.
+- [05:18.540] We've instead done it -- 10 regulations,
+- [05:21.650] we were able to cut 129.
+- [05:24.740] So now we cut 129. So, think of that,
+- [05:29.260] I promised to cut ten old regulations for every new one,
+- [05:33.140] but we did more than 10, we did 129.
+- [05:36.730] It's something nobody can even believe it.
+- [05:38.560] So, we did a lot of regulation
+- [05:40.740] cutting in the first administration,
+- [05:42.330] a record, nobody even close to it.
+- [05:43.940] Now we're actually exceeding it in this administration.
+- [05:48.170] The biggest one yet that we've done is happening right now,
+- [05:53.260] so perhaps no industry has benefited more
+- [05:55.700] from our historic deregulation campaign
+- [05:58.340] than the US auto industry. We canceled the EPA's absurd --
+- [06:04.820] just totally absurd tailpipe emission standards,
+- [06:08.590] which was a disaster for automobile manufacturing.
+- [06:12.220] And revoked Biden's emissions waiver
+- [06:14.560] that would have allowed California
+- [06:16.030] to regulate automobiles for the entire nation.
+- [06:19.310] And they're crazy out in California.
+- [06:22.570] They have nothing but trouble out there, as you know,
+- [06:24.630] that's why people are leaving in record numbers.
+- [06:27.070] I also ended Joe Biden's Extreme CAFE emission standards,
+- [06:31.360] saving the average American consumer
+- [06:33.690] much more than $1,000 when they buy a new car.
+- [06:37.860] But now we're talking about close to $3,000.
+- [06:41.360] These regulation cuts combined with our tax cuts and tariffs
+- [06:45.460] are the reason why the world's largest automakers
+- [06:48.440] have announced that they're going to be spending
+- [06:50.510] in excess of $100 billion in the United States
+- [06:55.840] in the next very short period of time,
+- [06:57.810] building new auto plants.
+- [07:00.640] We're bringing our auto plants,
+- [07:02.510] assembly plants and factories roaring back to life,
+- [07:05.770] not even mentioning AI and all of the other things.
+- [07:08.140] We're building thousands of businesses in the United States.
+- [07:11.960] And if you remember, on my first day,
+- [07:14.380] they said if I could ever get the Dow up to 50,000
+- [07:20.180] in my last year, in other words, in the fourth year,
+- [07:24.450] that it would be an unbelievable miracle.
+- [07:27.300] But don't worry about it because it'll never happen, they said.
+- [07:31.040] And if I could get the S&P up to 7,000,
+- [07:33.460] they said in the fourth year, they said it will never happen.
+- [07:37.090] Let's not even talk about it.
+- [07:38.400] I have things, let's not even waste our time talking about it.
+- [07:41.300] Well, at the very end of my first year,
+- [07:45.680] the Dow hit 50,000, now it's over 50,000.
+- [07:51.040] And three days before that the S&P hit 7,000.
+- [07:55.140] So, we didn't have to wait till the end of the fourth year.
+- [07:57.570] We just waited till the end of the first year.
+- [08:01.210] We've never had a country in a position like this
+- [08:03.680] and a lot of it's due to tariffs and a lot of it's due
+- [08:06.660] to the fact that we had a great election
+- [08:08.610] and a lot of good things have been done.
+- [08:11.380] One of the good things I did was put Lee Zeldin
+- [08:13.730] in charge of our environment.
+- [08:15.700] So, I'm going to ask Lee to say a few words.
+- [08:17.330] Thank you very much.
+- [08:22.280] Lee Zeldin: Thank you, Mr. President.
+- [08:24.220] This is a big deal.
+- [08:26.550] Under President Trump's leadership, today the Trump EPA
+- [08:30.550] has finalized the single largest act of deregulation
+- [08:34.290] in the history of the United States of America,
+- [08:37.940] referred to by some as the holy grail
+- [08:40.580] of federal regulatory overreach --the
+- [08:43.220] 2009 Obama EPA endangerment finding is now eliminated.
+- [08:49.270] This action will save American taxpayers over $1.3 trillion.
+- [08:56.040] What that means is lower prices,
+- [08:58.500] more choices and an end of heavy-handed climate policies.
+- [09:03.560] With today's announcement,
+- [09:04.890] American families will save over $2,400 for a new vehicle.
+- [09:11.790] 16 years ago,
+- [09:13.030] an ideological crusade within the Obama administration
+- [09:16.750] set off the most costly regulatory power grab
+- [09:20.150] our country has ever experienced.
+- [09:23.410] The 2009 Obama EPA endangerment
+- [09:25.710] finding led to trillions of dollars in regulations
+- [09:29.230] that strangled entire sectors of the United States economy,
+- [09:33.320] including the American auto industry.
+- [09:36.120] It claimed new powers over the vehicles we drive,
+- [09:38.830] even though the best reading of the Clean Air Act
+- [09:41.920] clearly states otherwise.
+- [09:44.440] The Obama and Biden administrations used it
+- [09:46.960] to steamroll into existence
+- [09:49.410] a left-wing wish list of costly climate policies,
+- [09:53.410] electric vehicle mandates and other requirements
+- [09:56.520] that assaulted consumer choice and affordability.
+- [10:00.450] And who paid the biggest price?
+- [10:03.080] Hard working families, small businesses,
+- [10:06.790] millions of Americans who just want a reliable,
+- [10:08.930] affordable car to get to work,
+- [10:11.350] take their kids to school or go to church on Sunday.
+- [10:15.970] The endangerment finding and the regulations
+- [10:18.110] that were based on it didn't just regulate emissions,
+- [10:21.650] it regulated and targeted the American dream.
+- [10:25.230] And now the endangerment finding is hereby eliminated,
+- [10:29.070] as well as all greenhouse gas emission standards
+- [10:31.750] that followed. The red tape has been cut.
+- [10:36.140] Manufacturers will no longer be burdened by measuring,
+- [10:38.990] compiling or reporting greenhouse gas emissions
+- [10:41.590] for vehicles and engines.
+- [10:43.880] And the forced transition to electric vehicles is eliminated.
+- [10:50.200] No longer will automakers be pressured
+- [10:52.910] to shift their fleets towards electric vehicles,
+- [10:56.180] vehicles that are still sitting unsold on dealer lots
+- [10:59.370] all across America. And as a cherry on top,
+- [11:03.390] we are ending the federal government's
+- [11:05.280] push to get manufacturers to install that Obama switch,
+- [11:09.510] the almost universally despised start-stop feature.
+- [11:13.430] There will be no more climate participation trophies
+- [11:16.050] awarded to manufacturers for making Americans' cars die
+- [11:19.900] at every red light and stop sign.
+- [11:22.000] It's over, done, finished.
+- [11:25.010] Under President Trump's leadership vehicle manufacturers
+- [11:28.360] can once again build what Americans want,
+- [11:30.760] not what politicians and bureaucrats
+- [11:32.970] in Washington demand.
+- [11:35.220] President Trump campaigned on reviving the auto industry
+- [11:38.690] and he continues to deliver win after win after win,
+- [11:42.720] ending electric vehicle mandates,
+- [11:44.400] getting rid of the Biden CAFE standards
+- [11:47.180] with Secretary of Transportation, Sean Duffy,
+- [11:49.780] and securing massive new US manufacturing investments
+- [11:53.090] and all the jobs that come with it.
+- [11:55.740] Affordable cars mean opportunity.
+- [11:58.230] That means jobs, health care, education and mobility,
+- [12:03.110] especially for working families and rural Americans
+- [12:05.540] who rely on their vehicles every single day.
+- [12:08.900] And this isn't just about making the American economy boom;
+- [12:12.390] it's also about restoring the rule of law,
+- [12:15.070] a fundamental principle of our great republic.
+- [12:18.300] For years unelected bureaucrats twisted the Clean Air Act
+- [12:22.150] into something it was never meant to be.
+- [12:25.010] The Obama administration twisted itself
+- [12:27.300] into some kind of mental pretzel to invoke authority
+- [12:30.830] it didn't have and to sidestep Congress.
+- [12:34.360] They claimed that six greenhouse gas emissions from vehicles,
+- [12:38.000] some of which aren't even emitted from vehicles
+- [12:40.920] and trucks,
+- [12:42.520] contribute some amount above zero to global climate change,
+- [12:45.770] what they said, endangered public health.
+- [12:49.680] But their wild web of mental leaps isn't prescribed
+- [12:53.290] in federal statute. The Obama EPA's house of cards
+- [12:57.720] upended the best reading of the Clean Air Act,
+- [13:00.410] as well as 50 years of EPA precedent
+- [13:02.770] on what constitutes regulable air pollution.
+- [13:06.230] In the 16 years that intervened,
+- [13:09.220] the Supreme Court has established clear precedent
+- [13:12.380] in Loper Bright Enterprises and West Virginia versus EPA.
+- [13:16.500] And in light of these Supreme Court decisions
+- [13:19.170] and other developments, upon his swearing in last year,
+- [13:23.420] President Trump immediately tasked on day
+- [13:25.970] one submitting requirements, recommendations,
+- [13:30.160] research on the legality
+- [13:31.970] and continued applicability of the 2009 endangerment finding.
+- [13:35.560] And at Trump's speed, he wanted that research
+- [13:38.280] and recommendation turned around instantly.
+- [13:41.480] We looked at the Clean Air Act.
+- [13:42.970] We looked at what the highest court in the land had said
+- [13:46.530] and we used a very simple metric,
+- [13:49.110] if Congress didn't authorize it, EPA shouldn't be doing it.
+- [13:54.590] Congress never voted for these climate mandates
+- [13:57.300] inside of section 202 of the Clean Air Act.
+- [14:00.220] If Congress wants EPA to regulate the heck
+- [14:02.490] out of greenhouse gases emitted from motor vehicles,
+- [14:05.370] then Congress can clearly make that the law,
+- [14:07.960] which they haven't done, for good reason.
+- [14:11.090] Today, we dismantle the tactics and legal gymnastics
+- [14:13.990] used by the Obama and Biden administrations
+- [14:16.920] to backdoor their ideological agendas on the American people.
+- [14:21.330] Following the plain language of the law,
+- [14:23.630] we have now realigned EPA's rulemaking to reflect
+- [14:26.890] the Clean Air Act exactly as it is written
+- [14:29.110] and as Congress intended,
+- [14:31.510] not as others might wish it to be.
+- [14:34.340] Where our predecessors focused on trying to make
+- [14:37.610] and please a few fear-mongering climate alarmists,
+- [14:42.510] the Trump EPA is making decisions
+- [14:44.050] to benefit all Americans based on common sense and reality.
+- [14:49.230] And the American people are tired of paying
+- [14:51.120] the price of political games.
+- [14:53.420] Last November, they voted for an administration
+- [14:55.500] that would listen to them.
+- [14:57.550] They told us that the price of a newer, safer vehicle
+- [15:00.540] was too high.
+- [15:02.300] They told us they didn't want cars that shut off
+- [15:04.860] at every red light.
+- [15:06.900] They told us dealers were sitting on lots filled
+- [15:09.570] with electric vehicles that nobody wanted or were buying.
+- [15:13.480] The Trump EPA listened. We heard you and we acted.
+- [15:17.560] And today's action does not change regulations
+- [15:19.680] on traditional air pollutants and air toxics.
+- [15:22.660] This EPA is committed to providing clean air
+- [15:25.050] for all Americans.
+- [15:26.910] Powering the Great American Comeback
+- [15:28.980] is based on the singular focus of providing clean air,
+- [15:32.010] land and water for all Americans,
+- [15:34.220] while harnessing the greatness of the American economy.
+- [15:37.640] That's a big difference from our predecessor.
+- [15:39.410] We believe that we can and must choose both.
+- [15:43.570] If you want an electric vehicle, buy one.
+- [15:46.990] If you want a diesel truck, then buy that.
+- [15:50.760] If you want a gas-powered vehicle or a hybrid,
+- [15:53.000] well more power to you.
+- [15:55.150] That's what freedom and choice look like.
+- [15:59.550] We're restoring the rule of law.
+- [16:00.890] We're grounding policy in reality.
+- [16:02.580] We're giving power back to the American people.
+- [16:06.290] And we're bringing back the American dream
+- [16:08.100] stronger than ever before.
+- [16:10.410] EPA will never waver on its core mission
+- [16:12.640] of protecting human health and the environment
+- [16:14.710] and this administration knows we can do that
+- [16:16.840] while ushering in the golden age of America.
+- [16:19.960] To recap, the 2009 Obama EPA endangerment finding
+- [16:24.770] and all greenhouse gas emission standards on light,
+- [16:27.820] medium and heavy-duty vehicles that followed is eliminated.
+- [16:33.490] American families now will save over 2,400 vehicles --
+- [16:37.100] $2,400 for a new vehicle.
+- [16:40.000] Today, the single largest act of deregulation in the history
+- [16:44.130] of the United States, over $1.3 trillion,
+- [16:47.960] the elimination of the endangerment finding
+- [16:49.780] is signed, sealed and delivered.
+- [16:55.700] The President: Thank you, Lee. That was long, but good.
+- [17:01.270] It was good. Maybe I should say great.
+- [17:04.730] It was great, and we appreciate it.
+- [17:08.750] Would you have anything to say, Russ? Please.
+- [17:12.890] Russell Vought: Thank you, Mr. President.
+- [17:14.090] Literally no other president would have done this
+- [17:16.800] to get at the foundations of the Green New Deal,
+- [17:19.410] so tremendously excited that we are where we are today.
+- [17:22.850] Great work by Lee.
+- [17:24.130] I'm a little worried that this next year will be --
+- [17:26.600] EPA alone will be de-reg east by the number of things
+- [17:29.640] that are going to come out of EPA.
+- [17:31.930] So great work to the team. $1.3 trillion in savings,
+- [17:36.400] massive historical opportunity. Thank you.
+- [17:45.890] Unidentified: Thank you, Mr. President.
+- [17:47.230] Uh, today is a historic day, led by President Trump's leadership.
+- [17:52.070] No other president, as Russ said would have undertaken this, um,
+- [17:56.610] and at the speed we did. It was a great team effort.
+- [17:59.850] This is the model of the Trump administration,
+- [18:03.820] everyone working together, mission aligned.
+- [18:08.610] The President: And Lee is also working
+- [18:10.230] on cleaning up the horrible situation
+- [18:14.960] with regard to farm equipment.
+- [18:17.390] Uh, you could use John Deere as an example,
+- [18:21.210] and other companies where tractors
+- [18:25.400] are unbelievably expensive and don't work as well
+- [18:29.610] because of all of the environmental nonsense
+- [18:31.600] that was put on them. Also excavators,
+- [18:34.360] any equipment like that, bulldozers caterpillar.
+- [18:39.950] Tractor would be a beneficiary, I guess,
+- [18:41.980] but the people are going to be a beneficiary
+- [18:43.820] because the equipment is going to be a lot less expensive
+- [18:47.540] and it's going to also --
+- [18:48.750] most importantly, it's going to work much better, much better.
+- [18:52.900] So we're working on that immediately, as we speak.
+- [18:55.850] And we'll probably make it
+- [18:57.160] so that any of that equipment built in the United States
+- [18:59.950] will not have to go through this.
+- [19:01.500] If it's built outside,
+- [19:02.720] I think we'll probably leave the standard the same.
+- [19:05.540] If people are going to send us equipment,
+- [19:07.040] let them have that standard for whatever it's worth,
+- [19:09.160] which is not much.
+- [19:10.920] And I think that's a very big announcement too.
+- [19:13.560] And we're going to see if we can get that done very quickly,
+- [19:16.480] so that all of that equipment that we have made,
+- [19:20.330] including lawn mowers, etc.,
+- [19:23.470] you won't have to go to the finest schools in the world
+- [19:26.330] in order to figure out how to operate it. Right?
+- [19:29.690] So any questions, please?
+- [19:31.260] The Press: President Trump? Thank you for this.
+- [19:33.230] And after this much supported roll --
+- [19:34.810] move to roll back the EPA's endangerment finding.
+- [19:37.670] What additional steps do you plan on taking to scale back
+- [19:40.760] what many are calling climate industry scams, specifically?
+- [19:43.450] And Secretary Zeldin knows about these wind turbines
+- [19:46.510] they're trying to bring to New York,
+- [19:48.380] judges allowing them to be rebuilt
+- [19:49.930] right near your hometown in Jamaica, Queens.
+- [19:51.510] The President: That's too bad.
+- [19:52.750] The Press: They're being called a national security threat
+- [19:54.730] for air traffic coming into the airport.
+- [19:56.010] What could you do to make sure
+- [19:57.220] these things don't destroy the environment?
+- [19:58.510] The President: We're trying to make sure it doesn't happen
+- [20:00.040] and we've basically stopped all windmills in this country.
+- [20:04.560] It's the most expensive energy you can get.
+- [20:07.110] They're all made in China, a little bit in Germany,
+- [20:09.150] but mostly in China.
+- [20:10.930] And we're putting them all over our fields
+- [20:12.600] and ruining the fields and killing the birds
+- [20:14.220] and all of this.
+- [20:15.510] And the environmentalists say they like them,
+- [20:17.180] but they really are a tremendous eyesore.
+- [20:19.620] They ruin -- Europe has gone, as you know, it's gone to --
+- [20:23.410] Europe isn't even recognizable anymore,
+- [20:26.290] between immigration and because of, you know,
+- [20:28.630] environmental things like the windmills
+- [20:30.700] which are taking over. The people hate them.
+- [20:34.110] The energy is by far the most expensive
+- [20:36.740] and we're fighting very hard
+- [20:38.150] to make sure that they don't get built.
+- [20:40.280] I hope we don't have one built during my administration.
+- [20:43.620] We inherited some contracts
+- [20:45.800] where they've gone down the line a little bit.
+- [20:48.340] We're trying to terminate them, for a lot of different reasons.
+- [20:51.160] One of the reasons is you had mentioned,
+- [20:52.940] its endangerment for the military,
+- [20:55.160] it's also endangerment for airliners.
+- [20:56.840] So we're trying to take care of those situations now.
+- [21:00.310] They should have never been allowed in the first place.
+- [21:02.190] Yeah, please.
+- [21:03.500] The Press: Mr. President, thank you so much
+- [21:04.790] for taking the questions.
+- [21:06.050] What do you tell Americans who are concerned
+- [21:08.710] that the $1.3 trillion
+- [21:10.760] in savings does come at a cost to public health
+- [21:13.420] and the environment based on science?
+- [21:14.850] The President: Yeah.
+- [21:16.090] I tell them, don't worry about it
+- [21:17.370] because it has nothing to do with public health.
+- [21:20.050] This is all a scam, a giant scam.
+- [21:22.720] This was a rip off of the country by Obama and Biden.
+- [21:28.420] And let's say Obama started it and got it rolling,
+- [21:31.830] and a terrible rip off.
+- [21:34.160] They'll have more money to spend for health care,
+- [21:36.010] if you look at it.
+- [21:37.390] Now they can go out and spend it on something that's meaningful
+- [21:40.530] and nobody's doing more for health care
+- [21:42.070] than the Republican party.
+- [21:43.290] And that starts with the fact that prescription drugs
+- [21:46.090] are going to be coming down at numbers
+- [21:47.570] that nobody's ever seen before. They're falling.
+- [21:50.760] You know, we were paying the highest prices in the world,
+- [21:53.300] by far, sometimes by 10 times more than other countries.
+- [21:56.150] Now we're going to be paying whatever the lowest price
+- [21:58.160] is anywhere in the world.
+- [21:59.420] We're going to be paying that.
+- [22:01.300] It's called favored nations, Most Favored Nations.
+- [22:03.580] And I think it's the biggest thing to happen in this world,
+- [22:07.290] the world of medicine, prescription drugs ever.
+- [22:09.920] There's never been anything like it.
+- [22:11.460] You know, if like in my third year, first term,
+- [22:16.900] I actually got prices down one quarter
+- [22:18.880] or one eighth of a percent.
+- [22:20.250] And I was so proud of myself
+- [22:21.500] because they were like that for years and years.
+- [22:24.780] And since under Biden, they went up very, very substantially.
+- [22:29.080] And now they're coming down by, depending on, you could say 500,
+- [22:32.120] 600, 700 percent depending on the way you want to --
+- [22:35.170] or you could say 80 percent, it doesn't matter.
+- [22:38.680] They're coming down by numbers
+- [22:41.250] that nobody ever thought possible.
+- [22:42.710] I got it all done and I got it all approved
+- [22:44.570] and all of the countries all over the world
+- [22:46.540] are going to pay more
+- [22:47.850] and they've agreed to pay more because of tariffs.
+- [22:49.430] I said, if you don't do it,
+- [22:50.640] we're going to have to tariff you.
+- [22:51.870] And they've all agreed to do it,
+- [22:53.220] otherwise they would have never done it.
+- [22:54.580] That was why no president has ever been able to get it done.
+- [22:56.550] Please.
+- [22:57.780] The Press: Yeah, Mr. President,
+- [22:59.020] you took more than 600 deregulatory actions
+- [23:01.270] in your first year here. Coming from the business world,
+- [23:03.690] you know how unnecessary red tape
+- [23:05.260] can hinder business expansion, investment expansion.
+- [23:08.660] Given the magnitude of this announcement here today
+- [23:11.360] and the deregulatory action you took in the first year,
+- [23:14.070] how much economic growth can we expect
+- [23:16.330] to see as a return (inaudible)
+- [23:17.540] The President: It's a great question.
+- [23:18.770] I think that it'll be enormous.
+- [23:20.120] Who knows, really, what the number is?
+- [23:21.730] But I can tell you, in terms of economic growth,
+- [23:24.430] we have $18 trillion
+- [23:26.110] being invested in this country right now,
+- [23:28.770] the most ever of any country by far, not even close.
+- [23:32.600] Think of it, no matter where, not just here.
+- [23:34.940] $18 trillion is coming in and that money is being spent
+- [23:37.940] right now as we speak and new plants and equipment.
+- [23:40.880] And you may have heard Lee mention,
+- [23:43.920] I mentioned also, that over $100 billion
+- [23:47.120] is going to be spent in this very short period of time
+- [23:49.240] just by foreign auto companies on building
+- [23:52.370] auto plants in the United States.
+- [23:53.970] I'm the greatest thing that ever happened
+- [23:55.520] to the United Auto Workers.
+- [23:56.870] You know, the head man has not been nice to me,
+- [23:59.970] but now I understand he's saying
+- [24:01.180] this is the greatest auto president in history.
+- [24:04.510] But the auto workers gave me their vote,
+- [24:06.320] and they knew what I was doing,
+- [24:07.630] and they knew what needed to be done.
+- [24:10.330] The tariffs saved them, but this is now taking it to a level,
+- [24:14.050] I think, Lee, that nobody ever thought even possible.
+- [24:16.300] They thought this was --
+- [24:18.500] nobody would have the courage to do it.
+- [24:20.060] We have to have the courage to do it
+- [24:21.470] because we're making America great again.
+- [24:23.090] This is a big factor in making our country great.
+- [24:27.310] If you look at some of these cars, they didn't even work.
+- [24:29.720] They had computers all over the place
+- [24:32.130] trying to save a half an ounce of fuel.
+- [24:35.500] We have fuel for the next 500 to 1,000 years under our feet
+- [24:39.930] and they're trying like hell to save a half an ounce of fuel.
+- [24:44.630] The whole thing is just crazy. Please. Go ahead, please.
+- [24:48.160] The Press: Mr. President,
+- [24:49.500] is climate cooperation with China
+- [24:51.750] no longer in America's interest? And could you please confirm
+- [24:55.200] that you are going to visit China the first week of April?
+- [24:57.610] The President: Yeah, I'll be visiting President Xi in April.
+- [24:59.930] I look forward to it.
+- [25:01.130] He's coming here later in the year,
+- [25:03.430] and I look very much forward to it.
+- [25:05.130] No, our relationship with China is very good right now.
+- [25:08.170] And this is, you know, not relevant
+- [25:11.100] to much having to do with China, what we're announcing today,
+- [25:14.240] but my relationship with President Xi is very good.
+- [25:16.190] Yes.
+- [25:17.390] The Press: Mr. President, following your meeting
+- [25:19.070] with Prime Minister Netanyahu yesterday,
+- [25:21.010] has your thinking changed at all
+- [25:23.040] as it relates to these negotiations with Iran?
+- [25:27.270] The President: We have to make a deal otherwise
+- [25:28.630] it's going to be very traumatic, very traumatic.
+- [25:32.190] I don't want that to happen, but we have to make a deal.
+- [25:35.070] They should have made a deal the first time
+- [25:37.020] and they got Midnight Hammer instead,
+- [25:39.700] and this will be very traumatic for Iran
+- [25:42.430] if they don't make a deal. Look, if they don't make a deal,
+- [25:45.090] then uh it'll be a different story.
+- [25:47.260] But we had a very good meeting yesterday with Bibi Netanyahu
+- [25:52.030] and he understands, but it's ultimately up to me.
+- [25:56.510] If the deal isn't a very fair deal
+- [25:59.420] and a very good deal with Iran,
+- [26:00.670] then it's going to be, I think, a very difficult time for them.
+- [26:04.960] In the back.
+- [26:06.450] The Press: Timeline for them, sir?
+- [26:08.100] The President: I guess over the next month,
+- [26:09.980] something like that, yeah --
+- [26:11.340] shouldn't take, I mean, it should happen quickly.
+- [26:13.430] They should agree very quickly. Yeah.
+- [26:15.120] The Press: Mr. President, we might be heading
+- [26:16.530] into a partial government shutdown.
+- [26:18.340] When was the last time you spoke with Chuck Schumer?
+- [26:20.250] And do you still feel Democrats are negotiating in good faith?
+- [26:23.280] The President: Well, a week ago I spoke,
+- [26:24.570] but we have to protect our law enforcement.
+- [26:27.910] Actually, the Supreme Court gave a ruling --
+- [26:30.020] or one of the courts gave a very big ruling on masks --
+- [26:32.990] that you have the right to use them
+- [26:34.880] for personal protection if you want.
+- [26:36.530] So, I don't know how that interjects.
+- [26:38.650] They want our law enforcement to be totally vulnerable
+- [26:43.150] and put them in a lot of danger.
+- [26:46.000] They have some things that are really very hard to --
+- [26:48.820] very, very hard to approve, frankly.
+- [26:51.820] As you know it only -- we had various of the other bills.
+- [26:56.300] That's all done. But we're left with this one.
+- [26:59.240] We have to protect our law enforcement.
+- [27:00.900] Very important. Please.
+- [27:03.010] The Press: Why does Prime Minister Netanyahu
+- [27:04.410] want you to stop negotiating with Iran?
+- [27:09.040] The President: You're saying stop entertaining,
+- [27:11.260] stop talking to them --
+- [27:13.080] didn't say that we didn't discuss that.
+- [27:14.800] I'll talk to them as long as I like
+- [27:17.660] and we'll see if we can get a deal with them.
+- [27:19.120] And if we can't, we'll have to go to phase two.
+- [27:21.300] Phase two will be very tough for them.
+- [27:24.070] I'm not looking for that.
+- [27:25.580] The Press: Mr. President,
+- [27:26.860] there are currently zero Israeli hostages left in Gaza
+- [27:29.930] because of you. Thank you for that.
+- [27:31.190] The President: Thank you. Thank you.
+- [27:32.410] The Press: Now that the war is ending in Gaza and Israel,
+- [27:35.120] I wanted to ask, do you believe Bibi bears any responsibility
+- [27:38.310] for the security failures that we saw on in October 7th?
+- [27:40.890] The President: Well, October 7th was a rough time,
+- [27:42.730] and I guess everybody's responsible I would say,
+- [27:44.900] you know, look. But it was a terrible attack.
+- [27:48.080] It was a sneak attack. It was as violent as --
+- [27:52.230] unfortunately, I've seen some of the results at levels
+- [27:56.400] that probably even you, a good reporter,
+- [27:58.150] but probably you haven't seen,
+- [27:59.500] it was a horrible thing that took place.
+- [28:02.410] People were surprised. It was a surprise attack.
+- [28:05.210] Nobody saw that coming. He didn't see it coming.
+- [28:07.390] Nobody else would have seen it coming
+- [28:08.710] if they were in his position, I don't believe.
+- [28:11.650] But I can tell you he's been
+- [28:13.120] a very good wartime prime minister.
+- [28:15.620] He's been very strong. We've worked with him very well.
+- [28:17.940] We had tremendous success with Iran
+- [28:20.380] and everything else we've done.
+- [28:22.420] And he really has been -- he's been extraordinary
+- [28:24.970] as far as a wartime prime minister, not easy.
+- [28:28.470] And you have a president that refuses to give him a pardon.
+- [28:32.360] I think that man should be ashamed of himself --
+- [28:35.300] a pardon over this trial that's going on, president of Israel.
+- [28:39.520] The primary power he's got is the power to give pardons.
+- [28:41.970] And he's not -- he said he's given it five different times,
+- [28:46.470] but he doesn't want to do it
+- [28:47.740] because I guess he loses his power.
+- [28:49.920] I think the people of Israel should really shame him,
+- [28:53.530] he's disgraceful for not giving it, he should give it.
+- [28:56.620] But Bibi has been a great wartime prime minister,
+- [29:00.610] and I've been the best friend to Israel,
+- [29:03.750] I think, that they've ever had.
+- [29:04.960] A lot of people say beyond presidents
+- [29:07.500] that they've ever had, and we will continue to be.
+- [29:09.650] Yes, ma'am.
+- [29:10.860] The Press: On the SAVE Act, Mr. President,
+- [29:12.310] voter ID polls very well nationally.
+- [29:14.820] Even the majority of Democrat voters want it.
+- [29:17.240] So, why do you think Senate Democrats
+- [29:18.720] are resisting the SAVE Act?
+- [29:20.020] And what is your strategy and realistic pathway
+- [29:22.380] to getting the SAVE Act
+- [29:23.730] passed to ensure free and fair elections
+- [29:25.460] for the next generations?
+- [29:26.700] The President: It's such a great question,
+- [29:27.900] I appreciate it actually
+- [29:29.120] because it's called the SAVE America Act;
+- [29:30.830] we've changed the name.
+- [29:32.570] It's the SAVE America Act and the Democrats are against it.
+- [29:39.260] I heard one of them say we will stop the SAVE America Act.
+- [29:42.070] No, we're trying to save America,
+- [29:44.150] and it has to do with, largely, voting.
+- [29:46.210] And basically, it's got three very simple points.
+- [29:49.570] It's got voter ID, photo ID,
+- [29:51.910] but voter ID with a photo, right?
+- [29:55.400] It's got the confirmation of US citizenship;
+- [30:00.140] you have to be a citizen.
+- [30:01.420] So, you have a vote, you have an ID.
+- [30:04.040] That's about a 99 percent one.
+- [30:06.640] And I think 90 percent with Democrats.
+- [30:09.440] Then you have confirmation US citizenship.
+- [30:12.690] That's about a 99 percent one with Republicans,
+- [30:16.470] about 86 percent with Democrats,
+- [30:19.470] except Democrat politicians because they cheat on elections.
+- [30:23.230] And then you have no mail-in ballots,
+- [30:26.200] and there would be no mail-in ballots.
+- [30:27.760] Very important.
+- [30:28.970] You know, we're the only country in the world
+- [30:30.520] that does a system like we do.
+- [30:32.400] We're the only country in the world that has mail-in ballots.
+- [30:36.480] The way we do this is unbelievable.
+- [30:38.480] It guarantees cheating.
+- [30:40.310] So, it's no mail-in ballots with the exception
+- [30:42.270] of disability, illness, military,
+- [30:46.030] or if you're traveling, you can get an exemption.
+- [30:48.590] If you happen to be out of the country for a good reason,
+- [30:52.850] you can have an exemption.
+- [30:54.480] So, with the exceptions, it's no mail in ballots.
+- [30:58.610] And that will assure the security
+- [31:01.320] of our crooked elections. We have crooked elections. Yeah.
+- [31:05.330] The Press: Mr. President, have you fired or disciplined
+- [31:08.290] that staffer who posted the video
+- [31:10.950] from your account that included the Obamas?
+- [31:13.890] The President: No, I haven't. That was a video on,
+- [31:16.050] as you know, voter fraud and a fairly long video.
+- [31:19.350] They had a little piece and had to do with The Lion King.
+- [31:21.400] It's been very well -- it's been shown all over the place,
+- [31:25.000] long before that was posted.
+- [31:27.450] But that was a very strong -- and I'm sure you saw it,
+- [31:34.460] a very strong piece on voter fraud.
+- [31:37.300] And the piece that you're talking about
+- [31:38.710] was all over the place many times,
+- [31:41.030] I believe for years. Yeah, please.
+- [31:42.610] The Press: Mr. President,
+- [31:43.980] are you aware that Secretary of Commerce
+- [31:45.920] visited Epstein's island? And do you continue to --
+- [31:48.150] The President: No, I wasn't aware of it.
+- [31:49.380] No, I didn't. I actually haven't spoken to him about it.
+- [31:52.160] I wasn't. But from what I hear
+- [31:53.870] he was there with his wife and children,
+- [31:56.040] and I guess in some cases some people were.
+- [31:59.140] I wasn't -- I was never there.
+- [32:01.580] Somebody will someday say that I was never there.
+- [32:05.140] Yeah, please.
+- [32:06.350] The Press: This announcement that you made today,
+- [32:07.560] Mr. President, comes on the heels of a January jobs
+- [32:10.070] report that smashed expectations.
+- [32:12.050] The President: Yeah, smashed all records.
+- [32:13.830] The Press: A big feature of that
+- [32:15.190] was you reprioritizing the economy,
+- [32:17.300] an economy that was bloated with federal employment
+- [32:19.420] under the previous president.
+- [32:20.700] What's your message to Americans following this jobs
+- [32:23.870] report that smashed industry expectations?
+- [32:26.240] Is this just a sign that the best is yet to come?
+- [32:28.260] The President: Thank you.
+- [32:30.010] The jobs report is amazing in certain ways
+- [32:33.210] because we have tremendously fewer
+- [32:35.820] federal employees, way down.
+- [32:37.620] Now, I could have left them and added to what we did
+- [32:40.890] and we would have had almost 100 percent employment.
+- [32:42.840] I could have gotten a great kick out of the fact
+- [32:44.800] that we're 100 percent employed.
+- [32:46.910] But we got rid of tremendous numbers of federal workers,
+- [32:52.090] and they hated me for it.
+- [32:54.280] Now they love me because most of them have gotten jobs
+- [32:56.480] in the private sector for two and three times more money
+- [32:58.790] than they were being paid by the federal government.
+- [33:00.590] We had some jobs where you had 10 workers for one job.
+- [33:04.480] 10 workers for a job that one person should be doing.
+- [33:07.680] And we've gotten rid of a lot of those jobs.
+- [33:11.660] And by getting rid of them,
+- [33:13.800] these people became available to work in the private sector
+- [33:16.580] and, as you know, the numbers are incredible.
+- [33:18.470] So, the job numbers are incredible.
+- [33:20.990] The financial numbers are beyond belief.
+- [33:24.450] Again, they thought it couldn't be done in four years,
+- [33:27.140] and I did it in one year.
+- [33:29.050] And the numbers you're going to see are these --
+- [33:31.330] I don't know if you noticed also construction numbers,
+- [33:33.890] the jobs for construction workers.
+- [33:35.310] You know why? Because they're building plants
+- [33:36.860] all over the United States. That's why.
+- [33:39.130] And when these plants open in a year from now.
+- [33:41.310] Some sooner, some a little bit later.
+- [33:43.740] But when these auto plants,
+- [33:45.180] AI plants and thousands of other types of plants,
+- [33:47.940] when they open over the next period of a year,
+- [33:50.600] a year and a half, you're going to see numbers like
+- [33:52.810] we've never seen before in this country.
+- [33:54.500] Thank you very much, everybody.
+- [33:55.750] Thank you.

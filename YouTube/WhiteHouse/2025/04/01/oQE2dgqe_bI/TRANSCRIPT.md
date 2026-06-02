@@ -1,0 +1,977 @@
+<!-- source: https://www.youtube.com/watch?v=oQE2dgqe_bI -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: oQE2dgqe_bI -->
+<!-- date_published: 2025-04-01T01:43:26+00:00 -->
+<!-- date_accessed: 2026-06-02T01:28:42.078993+00:00 -->
+
+# Transcript: President Trump Signs an Executive Order in the Oval Office, Mar. 31, 2025
+
+- [00:00.990] The President: You're all set?
+- [00:03.410] So it's an honor to have you back.
+- [00:06.260] A friend of mine, Kid Rock,
+- [00:07.950] sometimes referred to as Bob, I know him as Bob.
+- [00:12.010] But he's been a good friend for a long time, many years,
+- [00:14.800] and he's been after something that is
+- [00:18.480] for the good of a lot of people,
+- [00:20.410] including in particular the public,
+- [00:23.160] and having to do with ticket sales,
+- [00:25.030] and scalping, and all of the gouging
+- [00:27.190] that you have been reading about
+- [00:28.980] that's gotten worse and worse with time.
+- [00:31.660] And I didn't know too much about it,
+- [00:33.390] but I checked it out, and it is a big problem.
+- [00:36.030] I think you've been trying to get this done
+- [00:37.960] for 20 years or something, he said,
+- [00:39.530] "Trump got it done in two weeks."
+- [00:41.760] But we came up with a very serious EO,
+- [00:46.940] and I'm going to sign it now, and maybe I'll ask you,
+- [00:50.500] Will, to explain a little bit about it, please.
+- [00:52.270] Male Speaker: Of course, sir.
+- [00:53.510] So this is an executive order, as you said,
+- [00:55.580] that deals with the ticket reselling business
+- [00:58.620] for fans of live entertainment, and for entertainers as well.
+- [01:02.570] The ticket reselling industry has become a huge issue,
+- [01:05.690] these people use bots and computer algorithms
+- [01:08.880] to buy up huge blocks of tickets,
+- [01:10.940] and then jack up the price,
+- [01:12.330] so that fans of live entertainers like Mr. Richie,
+- [01:15.840] I almost called him Mr. Rock,
+- [01:17.860] don't have access to concerts the way that they should,
+- [01:21.290] and when they do, it's at exorbitantly high prices.
+- [01:23.890] So what this executive order does,
+- [01:25.850] it charges the FTC and the Department of Justice
+- [01:29.390] with rigorously enforcing laws on the books,
+- [01:32.760] in collaboration with state attorneys general
+- [01:35.220] that have power over consumer protection,
+- [01:37.740] and to other people who have the power to really crack down
+- [01:40.730] on this issue, so that entertainers
+- [01:43.110] and fans won't be subject to these abusive
+- [01:46.010] and oftentimes illegal practices.
+- [01:48.040] The President: Good. Thank you very much.
+- [01:51.020] Bob, do you want to say something?
+- [01:52.600] Kid Rock: Yeah.
+- [01:53.810] It doesn't matter your politics--
+- [01:55.450] First of all, thank you, Mr. President,
+- [01:56.960] because this has happened at lightning speed.
+- [02:00.510] I want to make sure Alina Habba,
+- [02:01.780] Alina Habba gets her credit too because I know-
+- [02:03.220] The President: Thank you.
+- [02:04.450] Kid Rock: -- she worked very hard on this,
+- [02:05.660] but thank you for making this happen so quick.
+- [02:07.030] Anyone who's bought a concert ticket in the last decade,
+- [02:08.970] maybe 20 years, no matter what your politics are,
+- [02:11.490] knows it's a conundrum. You buy a ticket for 100 bucks,
+- [02:14.370] by the time you check out it's 170,
+- [02:16.120] you don't know what you're getting charge for.
+- [02:17.680] But more importantly, these bots,
+- [02:19.830] they come in to get all the good tickets
+- [02:21.580] to your favorite shows you want to go to,
+- [02:23.510] and then they're relisted immediately
+- [02:25.730] for sometimes a 4 or 500% markup,
+- [02:29.220] and the artists don't see any of that money.
+- [02:31.010] And ultimately, I think this is a great first step.
+- [02:34.900] I would love down the road if there'd be some legislation
+- [02:37.100] that we could actually put a cap on the resale of tickets.
+- [02:39.980] And I'm a capitalist and a deregulation guy,
+- [02:42.500] but they've tried this in some places in Europe,
+- [02:44.920] and it seems to be the only thing that's, us as artists,
+- [02:47.720] to be able to get the tickets into the hands of the fans
+- [02:50.000] at the prices we set. I'll be the first one to say,
+- [02:52.660] and I know the president doesn't like when I say this,
+- [02:54.630] but I'm a little overpaid right now.
+- [02:56.920] It's kind of ridiculous.
+- [02:58.130] I would rather be a hero to the working class people,
+- [03:01.660] and have them be able to come attend my shows
+- [03:03.560] and give them a fair ticket price.
+- [03:04.800] I can't control that right now, so hopefully this is a step
+- [03:07.280] to really be able to make that happen.
+- [03:09.660] I know a lot of artists and a lot of fans
+- [03:11.690] who love concerts and music
+- [03:13.420] are going to be very appreciative-
+- [03:15.030] The President: And I think Bob is more interested in the fans
+- [03:17.980] and the people that are having to pay crazy prices
+- [03:21.980] than he is the artist.
+- [03:23.530] Maybe the artist a little bit, but the fans a lot.
+- [03:25.580] I've spoken to him over the years about it,
+- [03:28.290] and it bothers him.
+- [03:29.730] It bothers a lot of other artists too-
+- [03:31.020] Kid Rock: It does.
+- [03:32.250] The President: I see the artists,
+- [03:33.620] and they go out with $100 ticket,
+- [03:35.240] and it sells for $2,000 the following night,
+- [03:39.030] and they seem to be able to sweep up the best locations too,
+- [03:42.040] which is pretty amazing.
+- [03:43.380] Kid Rock: They've only enforced
+- [03:44.600] that Bots Act one time, I believe.
+- [03:45.890] The President: Yeah.
+- [03:47.180] Kid Rock: A couple years ago in New York City,
+- [03:48.470] we got a couple million dollar fine,
+- [03:50.310] and that's the only time they've enforced that act.
+- [03:52.000] The President: And who's the primary culprit?
+- [03:53.450] Who sells these tickets?
+- [03:55.490] Kid Rock: It's the scalpers. These bots go in,
+- [03:58.260] and they're automated, so you're-
+- [03:59.780] The President: But is there a company involved?
+- [04:02.390] You might not want to say.
+- [04:03.620] Kid Rock: No, no. Well, there's reselling markets of--
+- [04:05.450] The President: I think I know. Kid Rock: Yeah.
+- [04:06.730] The President: I think I know, Peter.
+- [04:08.580] But that's all right.
+- [04:09.850] Don't get them involved, maybe they're-
+- [04:11.160] Male Speaker: What company do you think it is?
+- [04:12.380] The President: Maybe they're more innocent than we think.
+- [04:14.400] Kid Rock: Well, if you think of it,
+- [04:16.650] if Ticketmaster sells a ticket,
+- [04:18.290] if you buy a ticket and go to a show,
+- [04:20.520] you're in a lot of ways their worst customer,
+- [04:22.440] because they make another 17 whatever percentage
+- [04:24.560] every time that ticket resells.
+- [04:25.830] So they don't want to enforce the Bots Act necessarily,
+- [04:28.540] because making more money off it.
+- [04:29.910] The artists don't see any of that money,
+- [04:31.310] but that's not what I'm advocating for,
+- [04:32.760] is for me to make more money,
+- [04:34.450] I want the fans to have fair ticket prices,
+- [04:36.650] be able to go and enjoy more shows.
+- [04:38.130] I know people that can only--
+- [04:39.430] They decide on a family vacation,
+- [04:40.930] or going to their favorite concert
+- [04:42.210] once a year, rather than--
+- [04:43.410] My parents used to go see multiple shows
+- [04:45.010] when you could afford them back in their day,
+- [04:46.930] and I'd like to take my ticket prices lower,
+- [04:48.630] but if I set my ticket prices low,
+- [04:50.600] these bots immediately eat them up,
+- [04:52.330] and they resell for hundreds of dollars more,
+- [04:54.010] and I'm just making these bad actors rich.
+- [04:55.840] The President: Yeah.
+- [04:57.230] Well, I think this is a big step to getting it stopped.
+- [05:00.570] Do you have something, Brian?
+- [05:01.860] Male Speaker: Yeah, I do actually.
+- [05:03.090] I actually feel that the consumer
+- [05:06.780] is going to take the money that they've saved
+- [05:08.720] and actually buy merch,
+- [05:10.320] which you guys have a big percentage of,
+- [05:12.090] or do concessions,
+- [05:13.320] which you guys split with the venue on that as well.
+- [05:15.300] So I think that-
+- [05:16.690] Kid Rock: We don't share concessions a lot, but that's-
+- [05:18.200] Male Speaker: No?
+- [05:19.480] Kid Rock: No, those are-- We try to,
+- [05:20.890] but they don't want to share it in the beer prices
+- [05:23.920] and parking or any of that stuff.
+- [05:25.220] But the bottom line is, there's money for everyone to be made.
+- [05:28.900] There's plenty of money to go around.
+- [05:30.640] No one's going to really lose here.
+- [05:32.310] Ticketmaster, if we can get a cap,
+- [05:33.550] they're going to lose some money,
+- [05:34.890] but I've already talked to CEO, Michael,
+- [05:36.630] and he's given his word, he's onboard for it.
+- [05:38.410] Male Speaker: I was talking to Jacoby with Papa Roach earlier,
+- [05:40.920] and by the way, he's a big fan of what you're doing,
+- [05:42.930] President Trump, digging into this whole scalping
+- [05:46.520] and the bots.
+- [05:48.150] A lot of musicians, and you can say that,
+- [05:50.190] they're with Kid Rock, sir.
+- [05:52.690] The President: I think so. A lot of people are.
+- [05:54.760] The Press: President Trump. The President: Yeah?
+- [05:55.970] The Press: Would you ever wear a jacket like that?
+- [05:57.370] The President: I don't know.
+- [05:58.600] I was thinking about doing it for tomorrow.
+- [06:00.960] We have a big event coming up,
+- [06:02.330] and I was thinking about doing it, but I'm not sure.
+- [06:04.870] The Press: So you recently bought a Tesla
+- [06:06.370] for White House staff-
+- [06:07.620] The President: I did.
+- [06:08.890] The Press: -- to use, but now there's all these domestic
+- [06:11.120] terrorists targeting Teslas.
+- [06:13.500] Are the staff scared to drive it?
+- [06:15.440] The President: I don't think so.
+- [06:16.690] I haven't heard their work and planning.
+- [06:18.150] I did buy one, and I let the staff use it.
+- [06:21.910] We have it parked conveniently, and one day we give it to Margo,
+- [06:25.800] one day we give it to Chamberlain,
+- [06:27.900] give it to Natalie, we give it to everybody around.
+- [06:30.520] Give it to Dan Scavino, but he's got so much money,
+- [06:32.830] it doesn't matter.
+- [06:34.530] But they love the car, and it's a great car,
+- [06:37.850] and it's made here, it's made in the country.
+- [06:40.250] It's got a tremendous plant now in Texas,
+- [06:43.270] and he has one in California, does a lot of his work here,
+- [06:46.980] and he's been really unfairly treated,
+- [06:49.690] in my opinion. I drive one.
+- [06:51.130] The Press: Can I? The President: Yeah.
+- [06:52.410] The Press: There's this other story,
+- [06:53.630] I know it's hypothetical right now,
+- [06:55.210] but if you were allowed, for some reason,
+- [06:57.800] to run for a third term,
+- [06:59.440] is there a thought that the Democrats
+- [07:01.600] could try to run Barack Obama against you-
+- [07:03.800] The President: I'd love that.
+- [07:05.100] The Press: -- for his third term.
+- [07:06.400] The President: I'd love that.
+- [07:07.600] That would be a good one. I'd like that.
+- [07:09.550] I know people are asking me to run,
+- [07:11.560] and there's a whole story about running for a third term.
+- [07:14.300] I don't know, I never looked into it.
+- [07:17.280] They do say there's a way you can do it,
+- [07:19.220] but I don't know about that, but I have not looked into it.
+- [07:21.520] I want to do a fantastic job,
+- [07:23.700] we have four years just about, close to four years.
+- [07:27.600] Time is flying, but it's still close to four years,
+- [07:30.310] and we're getting a lot of credit
+- [07:33.010] for having done a great job in the first almost 100 days,
+- [07:36.830] and we have some big things we're going to be announcing
+- [07:38.680] over the next two days, you know very well, Peter,
+- [07:40.770] and I think it's going to be something
+- [07:42.210] that's going to bring a lot of wealth back to our country,
+- [07:45.070] tremendous wealth back to our country, actually.
+- [07:47.010] And other countries are understanding it,
+- [07:50.560] because they've been ripping us for 50 years, longer,
+- [07:54.150] but they've been ripping us off for years,
+- [07:55.740] right from the beginning.
+- [07:57.000] And I think this is going to be an amazing--
+- [08:02.430] I call it a lot of different names, but it's really the--
+- [08:05.070] In a sense, it's a rebirth of a country because,
+- [08:07.830] how we could have afforded to do what we did,
+- [08:10.570] we help everybody, and they don't help us.
+- [08:15.420] The term I like best probably is the liberation of America,
+- [08:18.050] it's the liberation of this country,
+- [08:20.670] because it's incredible.
+- [08:22.570] Look, we have 36 trillion in debt for a reason,
+- [08:25.640] and that accumulates over a long period of time.
+- [08:28.420] So I think what you're going to be seeing
+- [08:29.850] over the next couple of days
+- [08:31.070] will be very inspiring to a lot of people.
+- [08:34.910] They had a lot of auto plants
+- [08:37.360] being built in a certain country.
+- [08:39.220] I don't want to mention the country
+- [08:40.680] because we get along great with the country,
+- [08:42.090] but those plants aren't being built there anymore,
+- [08:43.900] they gave them up today and yesterday, day before,
+- [08:47.700] and they're building them all now in the United States,
+- [08:50.580] and we have many examples. Not only auto plants,
+- [08:54.030] chip companies from Taiwan are coming in,
+- [08:56.610] the biggest, Mr. Wei, he's big.
+- [08:59.400] I said, "You are a smart guy, aren't you?"
+- [09:01.340] I've been reading about him over the years,
+- [09:03.640] but he controls a large portion of the chip business,
+- [09:06.220] as you know.
+- [09:07.570] You don't get smaller,
+- [09:08.810] they're going to be investing two or $300 billion,
+- [09:11.470] Apple is investing $500 billion.
+- [09:14.780] They always built their places in China,
+- [09:16.520] now he's building here. I think because of the--
+- [09:19.690] You speak to Tim Cook, because of the election,
+- [09:22.770] but maybe more importantly because of the tariffs,
+- [09:26.600] he's got really an obligation to do it.
+- [09:28.160] But we have many, many companies that you haven't even heard of.
+- [09:30.550] But I think we'll be at $5 trillion very soon.
+- [09:34.870] And if you think about this,
+- [09:37.310] we've never been anywhere near that.
+- [09:39.560] I don't know if we've ever been at a trillion dollars.
+- [09:41.560] The Press: What do you mean by that five million?
+- [09:45.170] The President: What do I mean by a trillion?
+- [09:46.490] The Press: Five trillion. What are you referring to, sir?
+- [09:48.250] The President: I think that we're going to be
+- [09:49.490] at $5 trillion of investment.
+- [09:52.510] I think you're going to have investments very shortly.
+- [09:55.520] We're already three and a half,
+- [09:58.080] and we have commitments, verbal commitments.
+- [09:59.910] It's for a lot more and numbers like that
+- [10:02.400] have never been done in this country
+- [10:04.130] and it's going to get harder. This is in two months.
+- [10:07.090] It's really in less than two months
+- [10:08.500] because since we've really gone out with it
+- [10:11.110] and we have other interesting things happening.
+- [10:13.240] But to me, the whole tariff situation
+- [10:16.130] and essentially they've done that to us for many years.
+- [10:19.110] So if we're anywhere near five trillion in two months,
+- [10:22.540] this could be numbers like the country's never seen.
+- [10:24.940] And every time you hear a dollar spent,
+- [10:27.400] that's another job because the jobs are coming with it.
+- [10:30.400] So auto plants, chip plants, pharmaceuticals,
+- [10:34.830] lumber coming in, we have things happening in this country.
+- [10:40.430] I'm not sure that they've ever seen steel.
+- [10:43.010] We have tariffs on steel, they've been here
+- [10:45.790] for a while, steel and aluminum.
+- [10:50.130] Nobody's ever seen anything like we're witnessing now.
+- [10:52.580] Nobody's ever seen.
+- [10:53.800] I think most of you agree with that.
+- [10:55.520] I mean, it's nothing much you can't agree with.
+- [10:59.260] We have things happening in terms of jobs and investment,
+- [11:03.490] the likes of which I don't think we've ever seen.
+- [11:05.700] If you look at, let's say four to $5 trillion
+- [11:10.050] in a period of a month and a half,
+- [11:11.890] that's even more than you do with your concerts,
+- [11:13.720] which are always sold out, right?
+- [11:16.670] Nobody's ever seen numbers.
+- [11:18.200] And think of it where Apple is at 500 billion, as I said,
+- [11:23.470] but they always used to spend that money in China.
+- [11:25.630] Now they're spending it here.
+- [11:26.870] That means you're going to build--
+- [11:28.100] Now they don't have any tariffs.
+- [11:29.590] Remember there are no tariffs if you do your product here,
+- [11:32.730] if you build whatever it is in the USA.
+- [11:35.740] One of the things we're also trying to get
+- [11:38.290] is if you buy a car that was built in the USA,
+- [11:42.910] you get a deduction on interest.
+- [11:45.050] So if you go out, borrow money to buy a car,
+- [11:47.370] if it's built in the USA, never been done before,
+- [11:51.710] it's a big deduction for people
+- [11:53.440] that really aren't used to deductions, frankly,
+- [11:56.310] because people that buy cars like that
+- [11:58.650] are not big into the world of deductions.
+- [12:01.320] And now they're going to learn about deductions.
+- [12:03.370] So I think it's going to be great. Yeah.
+- [12:04.680] The Press: Mr. President, are you going to move in
+- [12:06.280] with a universal tariff
+- [12:07.700] or different individual tariff rates
+- [12:09.510] on a whole variety of different products?
+- [12:11.040] The President: Well, you're going to see in two days,
+- [12:13.350] which is maybe tomorrow night or probably Wednesday,
+- [12:17.740] you're going to see. And they're reciprocal,
+- [12:20.410] so whatever they charge us, we charge them,
+- [12:22.750] but we're being nicer than they were.
+- [12:24.980] We have a lot of countries, friend and foe.
+- [12:26.860] I always say friend and foe,
+- [12:28.170] but the friend in many cases is worse than the foe.
+- [12:31.800] They took advantage of us
+- [12:33.040] and we are going to be very nice by comparison to what they were.
+- [12:38.510] The numbers will be lower than what they've been charging us
+- [12:41.880] and in some cases, maybe substantially lower,
+- [12:44.440] but we have a world obligation perhaps.
+- [12:47.900] But we're going to be very nice.
+- [12:49.540] Relatively speaking, we're going to be very kind.
+- [12:52.550] The Press: Mr. President, you met with the chairman-
+- [12:54.180] The President: Somebody said that about me the other day,
+- [12:57.240] who doesn't know me very well.
+- [12:58.510] They said, " You're such a kind person."
+- [13:02.540] And I said, "Say that again."
+- [13:04.420] They said, "You're a kind person."
+- [13:06.830] I said, "I've never heard that before."
+- [13:08.270] It was a weird statement. I was kind.
+- [13:09.570] The Press: Who said that?
+- [13:10.870] The President: I've heard of words--
+- [13:12.100] I don't know. I better not tell you.
+- [13:13.810] I've heard of-- I've been called a lot of things,
+- [13:16.340] but it's sort of a different kind of a word.
+- [13:18.080] It's like an old-fashioned word, isn't it?
+- [13:19.970] The Press: Mr. President,
+- [13:21.220] you met with the chairman of Stellantis today.
+- [13:22.540] The President: Yes.
+- [13:23.760] The Press: Did he ask you for a pause on the auto tariffs?
+- [13:26.060] The President: No.
+- [13:27.300] The Press: What was that meeting about?
+- [13:28.850] The President: Just about some of the problems
+- [13:30.570] they have with the environmental,
+- [13:31.940] which we're going to clean up.
+- [13:33.180] The Press: Have any of the automakers-
+- [13:34.380] The President: We're going to probably go back to 1926.
+- [13:36.870] If you look,
+- [13:38.610] we're going to go back probably to a 2020 standard.
+- [13:42.060] So we'll have 2020 standard and that's just a few years ago.
+- [13:46.980] Oh, they're making it so difficult.
+- [13:48.970] All over the world they're making--
+- [13:50.200] It doesn't mean a damn bit of difference
+- [13:51.670] either for the environment, it doesn't matter.
+- [13:54.890] They make it impossible for people to build cars.
+- [13:57.220] So we're going to be doing much different.
+- [13:58.990] 2020 is a strong standard, but they've taken it
+- [14:03.510] to a level now that makes it very difficult to build a car.
+- [14:06.610] The Press: I'm hearing-
+- [14:08.170] The President: So, we're going to be bringing it back
+- [14:10.980] to a standard
+- [14:12.610] that is a very good environmental standard,
+- [14:15.280] but it makes it possible to build a car.
+- [14:17.130] The Press: Have you heard any concerns from the automakers
+- [14:18.870] though about the tariffs on parts
+- [14:20.640] that will go into effect over the coming weeks
+- [14:22.100] about what that's going to mean
+- [14:23.330] for the price of American-made cars?
+- [14:24.530] The President: Well, I gave them a big break for a month.
+- [14:25.790] I didn't charge them anything for a big month,
+- [14:27.960] for that first month.
+- [14:29.190] And they brought a lot of material into this country
+- [14:31.690] because they could bring it in without tariff.
+- [14:34.530] If you look at Canada and Mexico,
+- [14:37.020] they were driving hundreds of thousands of cars
+- [14:40.150] into the market because they avoid the tariffs
+- [14:42.890] by doing it before the tariffs go on,
+- [14:44.610] which would be Wednesday.
+- [14:46.510] And I saw in some of your shows
+- [14:50.110] where cars are lined up for miles and miles.
+- [14:53.440] Some of them didn't have fenders on them,
+- [14:55.180] some of them didn't have the roof on yet.
+- [14:57.420] They're driving it here brand new.
+- [14:59.110] They're driving it in because they want to avoid the tariffs.
+- [15:01.260] I let them have that. They took advantage of it
+- [15:04.230] because that wasn't part of the deal, but that's okay.
+- [15:06.810] The Press: Are there any-
+- [15:08.090] The President: They're great American car companies
+- [15:10.470] and car companies
+- [15:12.220] and so I gave them a little break on that.
+- [15:14.200] The Press: Are there any countries
+- [15:15.470] that you're not targeting on Wednesday?
+- [15:17.820] The President: Well, it depends. I said it's reciprocal.
+- [15:20.420] Not everybody has made a fortune,
+- [15:23.690] but almost everybody has, but not everybody.
+- [15:26.240] And the ones that haven't, we're going to be very nice to them.
+- [15:30.670] The Press: And on a separate issue-
+- [15:31.970] The President: Because that word "reciprocal" is very important.
+- [15:34.840] What they do to us, we do to them. Okay.
+- [15:38.520] The Press: Please, can I just ask you briefly
+- [15:40.070] on President Putin. You said over the weekend
+- [15:41.930] or indicated over the weekend, some frustration with him.
+- [15:44.490] How serious are you about imposing oil sanctions
+- [15:46.090] on Russian oil?
+- [15:47.320] The President: No, I want to see him make a deal
+- [15:50.010] so that we stop Russian soldiers and Ukrainian soldiers
+- [15:53.020] and other people from being killed,
+- [15:55.950] but mostly it's Russian and Ukrainian soldiers.
+- [15:58.800] They're losing at least 2,500 human beings,
+- [16:03.010] beautiful human beings a week. And I want it to stop.
+- [16:07.390] And some people would say,
+- [16:09.430] "Why do you worry about Russian soldiers or Ukrainian soldiers?"
+- [16:12.310] I worry because it's like, they're just like you people.
+- [16:14.580] They're like us. They're like all of us.
+- [16:17.070] And I seem to have an ability to do those things.
+- [16:20.360] And if I can do that,
+- [16:23.390] I think it's a very worthwhile thing to do.
+- [16:25.520] And I think we will.
+- [16:27.130] No, I want to make sure that he follows through
+- [16:30.080] and I think he will.
+- [16:31.310] I don't want to go secondary tariffs on his oil,
+- [16:33.550] but I think it's something I would do
+- [16:36.120] if I thought he wasn't doing the job.
+- [16:37.760] I did it with Venezuela, secondary tariffs.
+- [16:40.040] And you know what happened?
+- [16:41.420] Every boat left the harbor. Did you see that?
+- [16:43.410] It was a beautiful thing to see, the whole harbor emptied out.
+- [16:48.170] My words weren't even finished. I have these massive shifts.
+- [16:52.880] They're actually taking the hoses
+- [16:54.430] and dumping them into there.
+- [16:55.690] They couldn't get out of there fast enough
+- [16:57.900] because they know I don't play games.
+- [16:59.740] So I think he's going to live up to what he told me,
+- [17:02.400] and I think he's going to fulfill
+- [17:05.950] his part of the deal now.
+- [17:08.680] Then you have Zelenskyy and hopefully he's going to live up.
+- [17:11.340] I see he's trying to renegotiate the rare earth.
+- [17:14.740] We did something because as you know,
+- [17:16.970] the Europeans get paid back the money that they gave.
+- [17:19.140] And we don't, because Biden is an incompetent president
+- [17:23.410] and he should have asked for rare earth,
+- [17:25.140] or he should have asked for the loans
+- [17:26.480] to be guaranteed in some form. That's what Europe did.
+- [17:29.330] Europe is in for 100, probably $100 billion,
+- [17:34.270] and we're in for 350 billion.
+- [17:36.310] So we're in for more than three times.
+- [17:38.460] And now you could make it a little bit less than that,
+- [17:40.140] but it doesn't matter.
+- [17:41.400] Whatever the number we're in for substantially more than Europe,
+- [17:43.660] we could be in for 350 billion.
+- [17:46.020] They have no idea because Biden wasn't a good bookkeeper
+- [17:49.510] except for himself.
+- [17:51.110] And what happens is we made a deal for a rare earth,
+- [17:55.000] it was all done.
+- [17:56.450] And I heard through you, I haven't spoken to them yet,
+- [17:59.220] but through you, I heard that they're now saying,
+- [18:01.410] "Well, I'll only do that deal if we get into NATO,"
+- [18:04.330] or something to that effect.
+- [18:06.310] Well, that was never, number one, discussed.
+- [18:08.580] Number two, I think it's going to be very--
+- [18:09.980] Long before Putin, they said, "You're not going into NATO."
+- [18:13.560] And it could be,
+- [18:15.070] that's probably the reason the war started actually.
+- [18:17.070] The Press: Mr. President.
+- [18:18.290] You're hours away from a very special election,
+- [18:21.720] Wisconsin, Florida.
+- [18:22.990] I want to share your thoughts on Republican voters
+- [18:24.880] to not sleep on this.
+- [18:26.440] These are two very important races to go out and vote.
+- [18:28.280] The President: Well, it's a big race,
+- [18:30.620] Supreme Court race in Wisconsin.
+- [18:32.910] It's taking place essentially as it was early voting.
+- [18:38.440] So we'll see what happens. It's a big race.
+- [18:41.420] I love Wisconsin. We won Wisconsin.
+- [18:44.210] Republicans typically don't do very well in Wisconsin,
+- [18:46.920] but I did. I actually won it twice.
+- [18:49.840] I actually probably won it three times to be exact.
+- [18:51.990] Male Speaker: We played their song.
+- [18:53.200] The President: Not probably, I won it three times.
+- [18:55.760] We had to rig the election the second time.
+- [18:57.530] But that's one of those things.
+- [18:59.340] We had to make this one too big to rig as each.
+- [19:01.260] Would you agree with that, Brian?
+- [19:02.470] Male Speaker: Yes, sir. The President: Too big to rig?
+- [19:03.680] Male Speaker: Yes, sir.
+- [19:05.230] The President: So anyway, but yeah, there's a big race
+- [19:07.740] that I hope you get out and vote for the Republican.
+- [19:09.710] The woman is a radical left lunatic.
+- [19:12.650] And let's see who wins. But the woman will be very bad.
+- [19:17.390] And Wisconsin is a big state politically,
+- [19:20.610] and the Supreme Court has a lot
+- [19:22.020] to do with elections in Wisconsin.
+- [19:23.750] So, if whoever it is that's running,
+- [19:27.820] including even Senate races, et cetera,
+- [19:30.240] but whoever it is in four years that runs,
+- [19:33.180] having Wisconsin is a very big-- We won it early and big,
+- [19:37.490] but winning Wisconsin is a big deal.
+- [19:39.200] So therefore, the Supreme Court choice,
+- [19:42.580] that is the one you're talking about right now.
+- [19:44.660] Male Speaker: Yes, sir.
+- [19:45.890] The President: It's a big race.
+- [19:47.130] It's going to be announced fairly shortly.
+- [19:50.520] The Press: [inaudible] On TikTok, big week deadlines.
+- [19:53.450] You got Liberation Day and the TikTok deadline this week.
+- [19:55.670] The President: Yeah, we do.
+- [19:56.940] Which I can extend if I want, but we have a lot of enthusiasm.
+- [20:00.020] Yes. And for TikTok, for buying it,
+- [20:02.590] I think TikTok is good. I used it very--
+- [20:05.830] I was a great TikTok guy and we won by 36 points.
+- [20:09.980] The youth, you know, we won the youth,
+- [20:12.260] which Republicans don't do.
+- [20:14.500] Maybe it's because Kid Rock likes Trump, I don't know.
+- [20:16.740] But we won. We won the youth by 36 points,
+- [20:20.710] and I attribute some of that to TikTok.
+- [20:23.740] The Press: Is the TikTok deal,
+- [20:25.790] the negotiations now tied to a bigger tariff deal with China?
+- [20:29.910] The President: No, but you know, it could be.
+- [20:32.290] You know I've used tariffs for lots of different reasons,
+- [20:34.780] but I could see, you know, one point in tariffs with China,
+- [20:38.980] big country would be probably worth more than all of TikTok.
+- [20:42.620] As valuable as TikTok is, it's mixed up.
+- [20:45.080] So there's a great example.
+- [20:46.390] That's a great question actually.
+- [20:49.150] I'm a very flexible person. I could use that for that.
+- [20:52.510] Maybe I'll take a couple of points off
+- [20:53.960] if I get approvals for something.
+- [20:56.260] I haven't done it. Maybe I'll do it, maybe I won't.
+- [20:59.670] But it's a very good question. Peter, you're very good.
+- [21:02.690] Male Speaker: Thank you. You'll love this one.
+- [21:04.040] The President: Go ahead.
+- [21:05.320] The Press: It's not front-page news,
+- [21:06.830] but I am just curious, what is your thought about Tiger Woods
+- [21:09.910] now becoming part of the broader Trump family?
+- [21:13.680] The President: Well, I love Tiger and I love Vanessa
+- [21:16.810] and they had a great relationship.
+- [21:20.350] I happen to think the relationship with my son,
+- [21:23.960] I think I happen to think the relationship was hurt very badly
+- [21:26.850] by the witch hunt that went on.
+- [21:28.110] Russia, Russia, Russia, and all the crap
+- [21:29.930] that they put Don through who knew nothing about it.
+- [21:33.250] But Vanessa and Don had a very good relationship.
+- [21:35.780] They have incredible children,
+- [21:37.630] five incredible children, all good athletes,
+- [21:41.210] all great students are like, great.
+- [21:43.590] And they broke up, you know, quite a while ago.
+- [21:47.250] And which was, to me, very sad
+- [21:49.480] because I think they're both great.
+- [21:51.330] Don and Vanessa and Tiger actually called me
+- [21:54.310] a few months ago and they have a very special,
+- [21:58.010] very good relationship with Tiger.
+- [21:59.490] I played golf with him a couple of times over the last month,
+- [22:02.690] and he's a fantastic guy and a fantastic athlete.
+- [22:05.270] And he told me about it and I said,
+- [22:07.830] "Tiger, that's good. That's good."
+- [22:10.320] I'm very happy for both. I just let them both be happy.
+- [22:14.500] Let them both be happy. They're both great.
+- [22:16.770] The Press: Question on [inaudible].
+- [22:18.940] To follow up on China, China, South Korea and Japan
+- [22:21.850] say they're going to work together in cooperation
+- [22:24.180] to respond to the tariffs
+- [22:25.420] that you're going to put into effect this week.
+- [22:27.150] Are you concerned that this move of the tariffs this week
+- [22:30.360] could push some of the United States'
+- [22:32.170] closest allies to work with China?
+- [22:34.630] The President: No, I'm not worried about it.
+- [22:36.720] I'm not worried about it. Yeah.
+- [22:38.020] The Press: Mr. President, can I ask you about something?
+- [22:39.560] The President: I think they have a chance of doing better
+- [22:40.950] actually with the tariffs.
+- [22:42.190] It can actually help them in a certain way,
+- [22:44.030] and I think a lot of them will drop their tariffs
+- [22:45.740] because you know,
+- [22:46.950] they've been unfairly tariffing the United States for years.
+- [22:51.190] And if you look at the European Union on cars,
+- [22:54.830] the European Union already dropped their tariff
+- [22:56.700] down to two and a half percent.
+- [22:58.010] It was announced a couple of days ago,
+- [23:00.670] which is what a very small tariff.
+- [23:04.530] The United States charged very little and a lot of,
+- [23:09.540] I think I heard that India just a little while ago
+- [23:11.810] is going to be dropping its tariffs very substantially.
+- [23:14.330] And I said, why didn't somebody do this a long time ago?
+- [23:17.190] A lot of countries are going to be dropping their tariffs.
+- [23:19.800] The Press: About something that happened in France today,
+- [23:21.810] Mr. President, Marine Le Pen,
+- [23:23.620] the far-right leader got convicted in court
+- [23:26.450] and is now banned from running for office for five years.
+- [23:29.080] Do you have a comment on that?
+- [23:30.420] The President: That's a big deal.
+- [23:32.300] That's a very big deal. I know all about it.
+- [23:34.740] And a lot of people thought she wasn't
+- [23:36.660] going to be convicted of anything.
+- [23:38.090] And I don't know if it means conviction,
+- [23:39.770] but she was banned for running for five years
+- [23:41.720] and she's the leading candidate. That sounds like this country.
+- [23:46.300] That sounds very much like this country.
+- [23:47.980] Okay. Anybody else?
+- [23:49.230] The Press: Mr. President,
+- [23:50.500] you presented with a bunch of proposals
+- [23:51.970] for tariffs by your advisors.
+- [23:53.180] They've been talking about that idea publicly.
+- [23:54.400] The President: And who?
+- [23:55.680] The Press: That your advisors have presented ideas-
+- [23:57.040] The President: They do.
+- [23:58.270] The Press: -- about tariffs and what to do
+- [23:59.500] in the next two days. Have you settled on any-?
+- [24:00.960] The President: Well, you're going to see I've settled, yeah,
+- [24:03.040] a long time ago, but we talk about it.
+- [24:05.270] We talk about it a lot.
+- [24:07.080] We want to do what's right for the country and even the world.
+- [24:09.900] It affects the world, not just this country.
+- [24:13.150] This has been the piggy bank for the entire world.
+- [24:16.560] So it really does affect the world
+- [24:18.080] and that's important to me also. Yeah.
+- [24:20.130] The Press: Mr. President, in the past you have said
+- [24:22.880] that you want the quick return of Austin Tice,
+- [24:26.670] a Marine Corps veteran and a journalist
+- [24:28.750] who went missing in Syria over 12 years ago.
+- [24:31.790] Have efforts been made to locate Austin Tice
+- [24:35.110] been extended beyond Syria,
+- [24:37.520] including potential leads in Iran,
+- [24:39.340] and do you have plans to get in touch with Ms. Deborah Tice,
+- [24:42.510] the mother of Austin Tice,
+- [24:45.780] and also at the same time organizations
+- [24:47.770] like Hostage Aid Worldwide
+- [24:49.010] have been on the ground in Syria,
+- [24:52.650] searching for Austin Tice for many years.
+- [24:56.950] Can I get your comment on the potential future plans
+- [25:00.490] to locate Austin Tice and to bring him home finally?
+- [25:04.840] The President: So we've been looking, as you know,
+- [25:06.680] for Austin for years. I don't know about Biden,
+- [25:11.260] I don't think Biden was looking for anything,
+- [25:13.650] but we were, and there's been virtually no sign,
+- [25:18.570] you know that. There's been no sign of Austin,
+- [25:21.490] an incredible young guy. He's less young now,
+- [25:26.430] and it's been a long time. It's been many, many years.
+- [25:29.480] The mother is fantastic. She's a very committed mother
+- [25:32.410] that her whole life is to find her son who was in Syria
+- [25:37.390] and just disappeared off the face of the earth.
+- [25:39.760] So a lot of bad things happened, but we're always, we'll never
+- [25:45.100] until we find out something definitive one way or the other,
+- [25:47.700] we'll never stop looking for him.
+- [25:49.770] But we have been, and the response,
+- [25:54.740] it's just a lot of dead ends. He's been gone for a long time.
+- [25:58.070] The problem is there's never been a sighting.
+- [26:00.070] You know, sometimes you'll have somebody,
+- [26:01.430] you're looking for him and there's a sighting.
+- [26:03.740] There's never been a sighting of Austin,
+- [26:06.950] but we are out there and we have great respect for his family
+- [26:10.380] and for his mother. She's been unbelievable. Yeah?
+- [26:12.810] The Press: Mr. President, a question about.
+- [26:14.320] The President: No. Behind you. The Press: Oh. Apologies.
+- [26:15.580] The Press: You've had outreach with the leaders
+- [26:17.830] of Russia and China, you've made an outreach to Iran.
+- [26:21.970] When are you going to plan to reach out to North Korea
+- [26:25.250] and Kim Jong-Un anytime in the near future?
+- [26:26.770] The President: Well, I do.
+- [26:28.010] I have a very good relationship with Kim Jong-Un.
+- [26:32.330] Now, you people hate to hear that, but it's very important.
+- [26:36.060] I got along with him fantastically, as you know.
+- [26:38.280] It started off very rough, very nasty little rocket man.
+- [26:43.110] The whole thing was a nasty deal.
+- [26:45.530] And then one day we got a call that they'd like to meet.
+- [26:47.910] We met, we'd have a great relationship
+- [26:51.460] and yeah, there is communication.
+- [26:56.500] Yeah. I think it's very important.
+- [26:59.640] He's a big nuclear nation and he's a very smart guy.
+- [27:05.510] I got to know him very well.
+- [27:07.510] I remember I put my foot across the line
+- [27:10.250] and then I walked across the line.
+- [27:12.220] I don't know if Secret Service was thrilled with that.
+- [27:14.790] They actually wasn't. They were not too thrilled.
+- [27:17.810] But I have a very good relationship with him.
+- [27:21.210] Yeah, we'll probably do something at some point.
+- [27:23.100] Yeah, please.
+- [27:24.310] The Press: [inaudible]
+- [27:25.560] Who's on your shortlist, Mr. President, to replace
+- [27:27.520] Elise Stefanik as US Ambassador to the UN?
+- [27:31.310] The President: So we have a lot of good people that want it.
+- [27:34.630] First of all, Elise is fantastic,
+- [27:36.270] and I just don't want to take chances with you guys saying,
+- [27:38.740] how's the election going?
+- [27:39.980] We have a congressional election that's a little bit close,
+- [27:43.490] I guess the one is in good shape,
+- [27:45.190] but the other one is a little bit close.
+- [27:47.230] But Randy Fine is a great guy. They're both good candidates.
+- [27:51.400] They're very good, but it's, you know, a little bit,
+- [27:54.870] we want to be careful.
+- [27:56.310] And Elise is very popular in her district and so am I.
+- [27:59.960] We won by a lot of points and so did she.
+- [28:03.640] And there's a lot of people that wanted to run for it,
+- [28:06.350] but we have no idea are they going to win.
+- [28:08.500] I think it's just security.
+- [28:09.810] And I said, "Elise, what about going back?
+- [28:12.610] Because they love you there."
+- [28:14.520] And she's going to take a big leadership position
+- [28:17.230] with Mike Johnson and the group, the speaker,
+- [28:20.400] and I could tell you that for the replacement,
+- [28:25.790] we have a lot of people that have asked about it
+- [28:27.630] and would like to do it.
+- [28:28.860] David Friedman, Rick Grinnell, and maybe 30 other people.
+- [28:36.280] Everyone loves that position. That's a star-making position.
+- [28:40.280] And so we'll see what happens.
+- [28:41.900] But we have a lot of people that are interested
+- [28:44.080] in going to the United Nations, as you can imagine.
+- [28:46.220] Yeah.
+- [28:47.440] The Press: Get a quick music question.
+- [28:49.290] Favorite song to play live is what?
+- [28:51.020] And then my question for you, Mr. President,
+- [28:53.210] your favorite rally you did last year,
+- [28:55.580] 2024, what was your favorite one?
+- [28:57.890] Kid Rock: Favorite song to play live?
+- [28:59.170] The Press: Yeah. Favorite song to play live.
+- [29:00.440] Kid Rock: Oh, that's a tough one.
+- [29:05.750] It'd have to be one of the hits. Probably Cowboy or Bawitdaba.
+- [29:09.780] There's a song that I've played every night
+- [29:12.360] that was never a single hit that I probably should not say
+- [29:14.810] the words to in this office right now.
+- [29:16.410] Speaker 19 (29:16): Then for you, Mr.-
+- [29:17.730] Kid Rock: We never met a certain person liking it.
+- [29:18.970] The President: Doesn't matter what.
+- [29:20.210] His rallies are amazing.
+- [29:21.640] He does great and he gets big crowds.
+- [29:24.190] He's been, he's really a star when it comes to that.
+- [29:28.210] He is a very talented guy.
+- [29:31.570] I would say maybe Madison Square Garden,
+- [29:34.640] because anybody that was there, the owner of the garden,
+- [29:39.680] Jim Dolan, who's, you know, to me always been terrific.
+- [29:43.550] He said this, he's never seen anything like it.
+- [29:45.710] We had-- When you announced Madison Square Garden,
+- [29:49.090] yeah, it's a big arena, but we sell out big arenas.
+- [29:51.530] We sold out in Milwaukee. We sold out at every big arena.
+- [29:54.260] We don't have-- We never had empty seats.
+- [29:55.880] It's amazing.
+- [29:57.080] They talk about Bernie Sanders gets 2,000, 3000 people.
+- [29:59.300] Everyone says, these crowds,
+- [30:01.020] I get 107,000 people in New Jersey.
+- [30:04.950] In Butler, PA,
+- [30:06.150] we had over a hundred thousand the second time.
+- [30:09.020] We had 55,000 the first time. We have big crowds.
+- [30:12.280] I would say Madison Square Garden,
+- [30:14.110] because I grew up in New York and the garden is great.
+- [30:18.540] Jim Dolan treated us well. But everybody said that,
+- [30:21.590] because I think I could have filled it up 10 times.
+- [30:23.810] We had hundreds of thousands of people
+- [30:27.320] that were stacked all the way back to the Hudson River,
+- [30:29.690] and on the other direction back to Fifth Avenue.
+- [30:32.630] Nobody's ever said-- I don't mean with a line.
+- [30:34.580] I mean like 50 deep, like 50 deep this way.
+- [30:39.370] The streets were closed, the whole thing. It was crazy.
+- [30:42.060] And when you take that,
+- [30:43.320] you want to do well at Madison Square Garden.
+- [30:45.330] You don't want to have empty seats.
+- [30:47.840] But we could have sold it out, Brian, 10 times,
+- [30:49.730] and everybody knew it.
+- [30:50.970] And I think we got a good indication
+- [30:53.200] that that's where the election was going,
+- [30:54.750] and we won every swing state and we won by millions of votes.
+- [30:58.470] It was a great election. Yeah.
+- [30:59.670] The Press: I'm just-
+- [31:00.920] The Press: Mr. President, the US military transferred
+- [31:02.460] 17 individuals to El Salvador overnight.
+- [31:05.500] Did you discuss with your team whether these deportations
+- [31:08.540] would run afoul of any recent court orders?
+- [31:10.520] The President: No.
+- [31:11.750] I do want to thank, however, the president.
+- [31:14.650] He has been unbelievable in relation to us.
+- [31:20.730] But I think that our people have done an incredible job.
+- [31:24.930] I got elected on the basis of getting bad people
+- [31:27.380] out of our country that shouldn't be here,
+- [31:29.540] very dangerous people out of our country,
+- [31:32.400] and that's what I did.
+- [31:33.640] And then you have a judge that wants to take over,
+- [31:36.080] and I can't imagine it can be allowed.
+- [31:38.530] If it was up to him, they'd all be put back in our country.
+- [31:40.950] These are killers, these are drug lords.
+- [31:43.280] These are really bad people.
+- [31:45.290] But I want to thank the president of El Salvador
+- [31:47.920] because he's done an amazing job.
+- [31:51.860] You saw it. Yeah?
+- [31:53.730] The Press: Elon Musk's special government tenure
+- [31:55.910] is coming to an end, 130 days, I think in another month.
+- [31:59.810] Do you want him to stay longer, or is it time for him to go back
+- [32:02.520] to running his companies in your view?
+- [32:03.820] The President: Well, I think he's amazing,
+- [32:05.410] but I also think he's got a big company to run.
+- [32:07.880] So, at some point he's going to be going back.
+- [32:09.630] He wants to. But--
+- [32:11.070] The Press: Would you want to keep him around?
+- [32:12.680] The President: Oh, I'd keep him as long as I could keep him.
+- [32:14.500] He's a very talented guy. I love very smart people,
+- [32:19.260] and he's very smart, and he's done a good job.
+- [32:22.460] DOGE has-- We've found numbers
+- [32:27.320] that nobody can even believe, like $400 billion, $500 billion.
+- [32:32.010] It could be close to a trillion dollars
+- [32:33.820] by the time they end on different things,
+- [32:38.240] and he's led the charge and you've seen a lot of his people.
+- [32:41.520] And these are people that joined up--
+- [32:43.530] I always say they're high IQ people.
+- [32:45.250] I like high IQ people, and they've done a great job.
+- [32:49.070] No, at some point Elon's going to want
+- [32:50.550] to go back to his company.
+- [32:51.780] I will say despite the way he's been treated--
+- [32:55.750] So, he's an American patriot,
+- [32:57.900] but the way he's been treated with Tesla
+- [32:59.830] is just terrible. It's just terrible.
+- [33:01.670] The Press: Once he goes back-
+- [33:03.040] The President: In fact, you have a Tesla.
+- [33:04.280] Kid Rock: Yep.
+- [33:05.530] The President: And you love it, you love it.
+- [33:06.870] He was saying before he bought a Tesla and loves it.
+- [33:09.050] A lot of people are buying Teslas, I think,
+- [33:11.430] and I hope they are.
+- [33:12.650] He should not be treated that way.
+- [33:13.880] He's done an incredible service to our country.
+- [33:16.150] The Press: Once he goes back,
+- [33:17.500] is DOGE going to keep operating even without Elon here?
+- [33:20.000] The President: Well, I can't tell you that.
+- [33:21.280] I can say this,
+- [33:22.520] that a lot of the people that are working with DOGE
+- [33:24.760] are the secretaries and the heads of the various agencies,
+- [33:28.560] and they've learned a lot,
+- [33:30.240] and they're dealing with the DOGE people.
+- [33:32.330] I think some of them may try and keep the DOGE people with them,
+- [33:35.780] but at a certain point I think it will end.
+- [33:38.700] But they have also gotten a big education
+- [33:41.160] and they're doing a really good job.
+- [33:43.330] There'll be a point at which the secretaries will be able
+- [33:45.400] to do this work and do it very, as we say, with a scalpel.
+- [33:51.640] And that's what we want. Yeah. Jeff?
+- [33:53.140] The Press: Mr. President, have you had any updates
+- [33:54.850] on the US soldiers missing in Lithuania?
+- [33:57.030] The President: I have.
+- [33:58.230] The Press: Can you give us an update?
+- [33:59.660] The President: So, three are no longer with us,
+- [34:03.400] and one is unfortunately probably in the same category,
+- [34:08.590] but they haven't declared that yet.
+- [34:10.760] It was a very heavy truck, like I told you.
+- [34:12.950] But I mean really heavy.
+- [34:14.520] It lifted the heaviest equipment,
+- [34:16.550] and it would seem that the bank of a lake collapsed,
+- [34:21.190] the weight is so big. And it was at night,
+- [34:23.500] and it was very cold weather, ice.
+- [34:25.710] A lot of ice, and it's possibly slipped,
+- [34:29.000] and the weight is so enormous of this thing.
+- [34:31.720] It's a massively heavy vehicle,
+- [34:36.200] and if they slipped a little bit,
+- [34:38.110] that's probably what happened and it flipped.
+- [34:41.480] And three are gone and one is missing.
+- [34:48.450] The Press: On a separate topic, a follow-up on immigration,
+- [34:50.850] did you see the video of a Tufts University student
+- [34:54.350] who was taken off the street
+- [34:55.940] by ICE agents last week in hoodies and masks?
+- [35:00.080] There's been a lot of criticism of that.
+- [35:01.730] Are you comfortable with how that was handled?
+- [35:03.340] The President: Well, I haven't really looked at it
+- [35:05.150] in any detail, but I will.
+- [35:06.660] I have seen it quickly, but I wouldn't want to comment on it.
+- [35:09.620] Yeah, please?
+- [35:10.900] The Press: Yeah.
+- [35:12.130] Mr. President, would you be able to confirm recent reporting
+- [35:14.740] that you are making plans to go to Saudi Arabia next month?
+- [35:18.320] And if so, why is Saudi Arabia so important?
+- [35:21.110] The President: So, I have a very good relationship
+- [35:23.840] with the Middle East.
+- [35:25.380] In fact, if you look at Michigan,
+- [35:26.970] I won the vote by a lot. People were a little surprised.
+- [35:30.610] And I have a very good relationship with Mohammed
+- [35:34.770] and the king. His son is Mohammed. He's great.
+- [35:37.550] Crown Prince, actually he's Prime Minister, too.
+- [35:40.360] He's got a lot of good titles. But he's great.
+- [35:44.130] And the king has been wonderful.
+- [35:46.610] And if you remember last time I went to Saudi Arabia,
+- [35:49.010] I put them first on the list
+- [35:50.330] because they agreed to buy $450 billion
+- [35:55.850] worth of American goods, military and otherwise.
+- [35:59.790] And they did, and it was an unbelievable day.
+- [36:02.290] It was in this gorgeous ballroom,
+- [36:04.090] and companies were there from many, many--
+- [36:07.720] Probably a hundred companies.
+- [36:09.100] And they were given anywhere from $40 or $50 million
+- [36:13.130] to less-- And more, actually, in case--
+- [36:18.740] Some of them were given numbers
+- [36:20.100] that were just many times that amount.
+- [36:22.460] I think we had a couple of $20 billion deals and big stuff.
+- [36:27.160] And it's a very rich country because of oil,
+- [36:30.100] and we are a very rich country ultimately
+- [36:32.620] when we straighten it out because of oil.
+- [36:35.460] Oil is always good.
+- [36:36.710] And I agreed to do it again, and they've agreed to spend
+- [36:41.960] close to a trillion dollars of money
+- [36:44.720] in our American companies, which to me means jobs.
+- [36:48.740] So, they're going to spend hundreds of billions of dollars,
+- [36:54.020] giving them to American companies
+- [36:55.880] that are going to be making equipment for Saudi Arabia
+- [36:59.820] and to other places in the Middle East.
+- [37:02.650] And for that, I think it's worth it.
+- [37:04.450] I did it last time, $450 billion,
+- [37:07.370] and the press was there.
+- [37:09.200] It was one of the most unique days I've ever seen,
+- [37:12.410] where companies would get up and you're getting $20 billion.
+- [37:15.640] They name the company, and the chairmen were all there.
+- [37:18.120] Every chairman and top person in the company.
+- [37:20.290] You remember that, Peter? I don't know if you were there.
+- [37:22.400] You might be too young for that.
+- [37:24.040] The Press: I was on the Democratic campaign trail
+- [37:25.340] at the time, so I was not.
+- [37:26.550] The President: Oh, that was boring.
+- [37:27.760] This was a much better deal.
+- [37:29.390] But it was amazing, actually. It was an amazing day.
+- [37:32.320] We sold and we partook in $450 billion
+- [37:38.660] worth of investment into American companies.
+- [37:40.860] And they announced the company, the amount of money,
+- [37:43.690] a billion dollars, $5 billion, $25 billion.
+- [37:47.370] And the chairmen of the company, many of whom are well-known
+- [37:51.090] figures, prestigious figures, great business leaders,
+- [37:54.140] they went up, they shook the hand of somebody,
+- [37:58.340] and they would sit down and we just had a big investment made.
+- [38:01.940] So, it was a record. Nobody ever beat it before.
+- [38:04.760] $450 billion worth of jobs.
+- [38:07.720] I view it as jobs more than anything else.
+- [38:09.460] And now we're close to a trillion dollars.
+- [38:12.010] So, it's more than double the number that we did
+- [38:15.590] when I first came to office.
+- [38:16.900] The Press: And this trip takes place next month?
+- [38:19.700] The President: It could be next month.
+- [38:20.980] Maybe a little bit later, yeah. And we're going to Qatar also,
+- [38:27.780] and also we're going to possibly a couple of other countries.
+- [38:33.260] UAE is very important. It's a great leader, UAE.
+- [38:38.260] And I had his brother here the other night, if you saw that.
+- [38:41.180] We had a wonderful guy, a wonderful family.
+- [38:44.430] So, we'll probably stop at UAE and Qatar.
+- [38:47.620] As I used to call it, "Qa-tar".
+- [38:50.040] Nobody's ever told me right or wrong.
+- [38:52.280] I always like to say "Qa-tar", but it's "cutter".
+- [38:55.410] They like to say "cutter".
+- [38:57.040] And Saudi Arabia, the three of them,
+- [38:58.900] and then we'll go other places also.
+- [39:01.330] But in the Middle East, those seem to be the three.
+- [39:03.710] And again, tremendous amounts of jobs
+- [39:07.990] will be created in those two or three days.
+- [39:10.880] Thank you very much, everybody. Thank you.
+- [39:12.480] [cross talk from press]
+- [39:13.680] The President: Thank you, press.
+- [39:15.680] [cross talk from press]
+- [39:23.680] The President: Okay. Ready, everybody?
+- [39:27.300] Ah, you'd better do well with this. He's going to do it.
+- [39:32.710] Make sure everything is nice and clean, right?
+- [39:34.670] For your English.
+- [39:35.910] Kid Rock: Make America fun again.
+- [39:37.140] The President: Because you're not in a clean industry.
+- [39:38.350] Kid Rock: No, we're not.
+- [39:39.550] The President: Hold that up. Okay? Thank you, everybody.

@@ -1,0 +1,727 @@
+<!-- source: https://www.youtube.com/watch?v=ZyqkeHUH8UI -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: ZyqkeHUH8UI -->
+<!-- date_published: 2025-11-12T18:57:48+00:00 -->
+<!-- date_accessed: 2026-06-02T02:41:43.091407+00:00 -->
+
+# Transcript: Press Secretary Karoline Leavitt Briefs Members of the Media, Nov. 12, 2025
+
+- [01:22.350] Karoline Leavitt: Good afternoon, everybody.
+- [01:23.890] Thank you for being here today.
+- [01:25.440] We are going to get to my remarks and Q&A, as always,
+- [01:28.000] but I do have the FBI director with me here, Kash Patel.
+- [01:31.210] You all know him well. He's here to provide an update
+- [01:34.510] for you all with respect to China.
+- [01:36.180] As you know, President Trump had a very successful meeting
+- [01:39.890] on his trip to Asia with President Xi,
+- [01:42.050] where they discussed the need for China
+- [01:44.240] to crack down on fentanyl production and distribution,
+- [01:47.930] which ultimately makes its way here
+- [01:49.870] to the United States of America.
+- [01:51.430] The FBI director recently traveled to China
+- [01:53.910] following President Trump's meeting to meet
+- [01:55.960] with his counterpart in Beijing,
+- [01:57.910] and he has a really positive announcement
+- [01:59.860] for the American people to share.
+- [02:01.480] The President wanted me to bring the FBI director out
+- [02:03.830] to share that with all of you today.
+- [02:05.090] So Kash, please, thank you for being here.
+- [02:07.000] Director Patel: Thanks, Karoline.
+- [02:10.070] As Karoline mentioned, we have some tremendous news,
+- [02:12.400] thanks to President Donald J. Trump
+- [02:13.920] once again, for the American people.
+- [02:16.150] As soon as the President of the United States took office,
+- [02:18.390] he issued a mandate to rid America
+- [02:20.300] of the scourge that is fentanyl,
+- [02:22.100] a drug that has killed hundreds of thousands of Americans.
+- [02:25.010] Thanks to his leadership and direct engagement with China,
+- [02:28.150] we set up a framework to execute that mission eight months ago.
+- [02:31.570] Attorney General Bondi, immediately thereafter,
+- [02:33.680] took steps to engage her counterpart in China
+- [02:36.080] at the Ministry of Public Security.
+- [02:37.950] Pursuant to their direct discussions,
+- [02:40.010] as the FBI director designated to run counterpoint on this,
+- [02:44.020] along with the Secretary of State Rubio
+- [02:46.600] and Ambassador Perdue
+- [02:47.890] and the team here at the White House,
+- [02:49.150] we set forward a path to implement the policy
+- [02:51.800] needed to crush the plague of fentanyl.
+- [02:55.230] Deputy Attorney General Blanche
+- [02:57.250] and our teams have been hard at work ever since,
+- [02:59.690] ultimately culminating in my trip to Beijing last week.
+- [03:03.590] This was only possible
+- [03:05.600] due to President Trump's historic engagement
+- [03:08.360] with President Xi just a few short weeks ago
+- [03:11.410] that set the stage for today's announcement.
+- [03:14.320] At that meeting, the leaders reached an agreement,
+- [03:17.620] but just to put this in frame for the American people,
+- [03:20.450] a reminder here that nearly a hundred thousand people
+- [03:23.390] died of fentanyl overdoses just last year alone.
+- [03:27.190] Here, this year, under this President,
+- [03:29.880] the FBI has seized 1,900 kilograms of fentanyl so far.
+- [03:34.520] That is a 31% increase from the same time period last year.
+- [03:38.930] To put it in perspective,
+- [03:40.450] that's enough fentanyl to kill 127 million Americans.
+- [03:45.180] Fentanyl precursors are what makes up fentanyl.
+- [03:49.130] While we, the interagency, the Department of Justice
+- [03:52.280] have been fighting hard to seize and stop drug traffickers,
+- [03:55.820] we must attack fentanyl precursors,
+- [03:57.830] the ingredients necessary to make this lethal drug.
+- [04:01.480] That was the sole purpose of my trip to China:
+- [04:04.210] to eliminate these precursors. And if successful,
+- [04:07.890] we would suffocate the drug trafficking organization's
+- [04:10.130] ability to manufacture fentanyl in places like Mexico.
+- [04:14.420] This was the first time an FBI director
+- [04:16.880] has been to China in over a decade
+- [04:19.370] and received the audience with his counterpart
+- [04:21.890] to address this matter directly.
+- [04:24.040] And again, thanks to President Trump's
+- [04:25.490] direct engagement with President Xi,
+- [04:27.570] the government of China committed fully to my engagement
+- [04:30.880] there on the ground in Beijing at a level never seen before.
+- [04:35.590] While at Ministry of Public Security headquarters,
+- [04:38.480] I met with my counterpart at MPS where the Chinese government
+- [04:42.530] agreed on a plan to stop fentanyl precursors.
+- [04:47.370] What does that mean?
+- [04:48.570] The People's Republic of China has fully designated
+- [04:51.080] and listed all 13 precursors utilized to make fentanyl.
+- [04:55.700] Furthermore, they have agreed
+- [04:57.060] to control seven chemical subsidiaries
+- [04:59.400] that are also utilized to produce this lethal drug.
+- [05:03.730] Effective immediately, essentially,
+- [05:06.200] President Trump has shut off the pipeline
+- [05:09.780] that creates fentanyl,
+- [05:11.570] that kills tens of thousands of Americans.
+- [05:14.640] These substances are now banned,
+- [05:17.270] and they will no longer be utilized
+- [05:18.980] by the Mexican drug trafficking organizations
+- [05:21.180] or any other DTOs around the world to make this drug.
+- [05:24.910] This historic achievement
+- [05:26.570] has saved tens of thousands of lives.
+- [05:29.560] This historic achievement would not have been possible
+- [05:32.260] without the tremendous team of President Trump,
+- [05:35.620] the attorney general, the Department of Justice,
+- [05:37.730] the Federal Bureau of Investigation,
+- [05:39.680] and Ambassador Perdue in China, whose ground-level engagements
+- [05:43.150] were imperative to achieving this result.
+- [05:45.980] This is yet another example of how President Trump
+- [05:48.980] defends the American people,
+- [05:50.740] provides security for the American people,
+- [05:52.840] and puts the American people first.
+- [05:55.140] This is a historic first-in-its-kind achievement
+- [05:57.940] by any President to stop the scourge of fentanyl,
+- [06:01.880] and it should be championed by every single American.
+- [06:04.960] This achievement will save lives.
+- [06:07.150] We are thankful for President Trump's steadfast leadership,
+- [06:10.220] and this FBI will fearlessly follow in his footsteps
+- [06:13.420] to ensure that this mission of safeguarding the American public
+- [06:16.820] is achieved every single day. Thank you. Thanks, Karoline.
+- [06:19.110] Karoline Leavitt: Thank you, Kash.
+- [06:20.350] Thank you so much. Appreciate it. Okay.
+- [06:25.150] Thank you again, Director Patel. Before we get going,
+- [06:27.810] I do have one quick scheduling announcement.
+- [06:30.390] Tomorrow, President Trump will be joined by the first lady
+- [06:33.410] in the East Room for an executive order
+- [06:35.390] signing aimed at expanding opportunities for education,
+- [06:39.360] career development, housing,
+- [06:41.150] and other resources for young people
+- [06:43.160] transitioning from foster care to adulthood.
+- [06:46.630] This is part of the First Lady's Fostering the Future efforts,
+- [06:50.210] which are a Be Best initiative.
+- [06:52.880] In other news, the Democrats
+- [06:54.450] dragged on the government shutdown for 43 days,
+- [06:58.530] the longest shutdown in US history.
+- [07:01.350] But tonight, thanks to Republicans,
+- [07:03.650] the White House is very hopeful
+- [07:05.510] that this shutdown is going to come to an end.
+- [07:08.510] The damage caused by the Democrats
+- [07:10.200] with this reckless government shutdown cannot be forgotten.
+- [07:13.800] It is entirely the fault of the Democrat Party,
+- [07:16.920] just look at the vote count.
+- [07:18.560] Hundreds of thousands of federal employees
+- [07:20.840] have missed their paychecks.
+- [07:22.390] Tens of billions in wages and benefits
+- [07:24.500] were withheld impacting vulnerable families.
+- [07:27.780] Millions of low-income Americans missed their SNAP benefits.
+- [07:31.110] Nearly 20,000 flights at airports across the country
+- [07:34.220] were delayed due to staffing shortages,
+- [07:36.600] causing Americans to miss family events,
+- [07:39.010] vacations, and work obligations.
+- [07:41.420] According to Airlines for America,
+- [07:43.170] an estimated 5.2 million travelers
+- [07:46.200] have had their flights disrupted
+- [07:47.660] over the course of the Democrat shutdown.
+- [07:50.950] And our economy has lost billions
+- [07:53.030] and billions of dollars in economic activity
+- [07:55.890] over the course of this shutdown,
+- [07:57.880] hurting consumer sentiment
+- [07:59.260] and crushing the travel and hospitality industries.
+- [08:02.880] According to a CBO estimate,
+- [08:04.870] the Democrat shutdown could end up
+- [08:06.680] decreasing fourth-quarter economic growth
+- [08:09.550] by two whole percentage points.
+- [08:12.600] The Democrat shutdown made it extraordinarily difficult
+- [08:15.620] for economists, investors,
+- [08:18.420] and policymakers at the Federal Reserve
+- [08:20.870] to receive critical government data.
+- [08:23.360] The Democrats may have permanently damaged
+- [08:25.650] the federal statistical system with October CPI
+- [08:28.830] and jobs reports likely never being released,
+- [08:31.660] and all of that economic data release
+- [08:33.800] will be permanently impaired,
+- [08:35.690] leaving our policymakers at the Fed flying blind
+- [08:38.830] at a critical period. It's hard to recap all of this
+- [08:41.990] without asking a simple question, why?
+- [08:44.970] Why have the Democrats put the American people
+- [08:47.350] through this pain for 43 days in a row?
+- [08:50.560] And it feels like Groundhog Day being up here again
+- [08:53.350] talking about this Democrat shutdown.
+- [08:55.640] And the answer to that question is pure partisan politics.
+- [08:59.590] They started this shutdown with a ridiculous demand
+- [09:02.960] to force taxpayer-funded healthcare benefits
+- [09:05.760] to illegal aliens who broke into our country
+- [09:08.800] even after it was clear President Trump and Republicans
+- [09:11.620] would never force American taxpayers to pay
+- [09:14.630] for free healthcare for illegals.
+- [09:16.620] In fact, President Trump's One Big Beautiful Bill
+- [09:18.920] fixed that problem.
+- [09:20.680] The Democrats kept dragging this reckless government shutdown
+- [09:23.620] on for weeks longer to boost their turnout
+- [09:26.630] in an election perhaps, one may guess.
+- [09:29.220] That's because the Democrats are totally captured
+- [09:31.540] by their far-left-wing base
+- [09:33.470] who only care about attacking President Trump,
+- [09:36.070] even if it means hurting innocent Americans
+- [09:38.690] in our country.
+- [09:40.040] The Democrats' weakness and their unwillingness
+- [09:42.790] to buck the fringe members of their party
+- [09:45.520] dragged this harmful shutdown on for seven weeks
+- [09:48.520] and inflicted massive pain onto the American public.
+- [09:52.050] But let's be clear, the clean CR being voted on today
+- [09:55.490] in the House of Representatives
+- [09:56.740] that will lead to the reopening of the federal government
+- [10:00.480] is what President Trump and Republicans
+- [10:02.480] have supported from day one.
+- [10:05.180] Our troops, air traffic controllers
+- [10:06.970] and federal employees
+- [10:08.180] will be back to receiving their regular paychecks.
+- [10:11.660] Families in need will get back to receiving their food
+- [10:14.150] purchasing assistance,
+- [10:15.520] and the people's government will soon be back open for business.
+- [10:19.400] President Trump looks forward to finally ending this
+- [10:22.860] devastating Democrat shutdown with his signature,
+- [10:25.720] and we hope that signing will take place later tonight.
+- [10:29.440] On another matter I want to address the affordability issue
+- [10:32.180] that's received a great deal of media attention this past week,
+- [10:35.590] which is ironic because it didn't receive
+- [10:37.600] that much attention when Joe Biden was here
+- [10:40.010] and inflation was at a record high 9%,
+- [10:42.690] the worst inflation crisis in modern American history.
+- [10:46.310] And President Trump won a landslide election in part
+- [10:49.100] to address the affordability issues
+- [10:51.440] created by Joe Biden and the Democrats,
+- [10:54.080] and that's exactly what President Trump has done
+- [10:56.740] since day one of his administration.
+- [10:59.660] Since the first day in office and every day
+- [11:02.040] since the Trump administration has taken aggressive action
+- [11:05.470] to fix the Biden created cost of living issues,
+- [11:09.350] the notion that the same Democrats
+- [11:11.110] who just shut down the federal government
+- [11:12.840] to sabotage our economy, rob people of their paychecks
+- [11:16.070] and also helped Joe Biden ratchet up inflation to 9%,
+- [11:20.400] are now suddenly affordability champions,
+- [11:23.130] that notion is completely absurd
+- [11:25.740] and it's something only the liberal media
+- [11:28.180] would have the gall to push.
+- [11:29.820] But the reality is that President Trump
+- [11:31.880] and his administration have done so much to lower prices
+- [11:35.610] and increase the economic prosperity
+- [11:37.600] of the American people.
+- [11:38.990] And this President and his team of amazing economic advisors
+- [11:42.740] are going to keep working on this issue every single day.
+- [11:45.950] In less than 10 short months, President Trump signed
+- [11:48.530] the largest middle class tax cuts in American history,
+- [11:52.540] including no tax on tips, overtime and Social Security,
+- [11:56.370] which will guarantee that next year
+- [11:58.450] Americans are going to put more money back into their pockets.
+- [12:02.110] The President has completely unleashed
+- [12:04.150] American energy dominance
+- [12:05.460] to help bring gasoline prices to the lowest in five years,
+- [12:08.850] and we expect them to continue to decrease
+- [12:11.650] and it has also lowered energy costs overall.
+- [12:14.070] There is more work to do.
+- [12:15.510] But again, the President's deregulatory
+- [12:17.590] and pro-American energy agenda
+- [12:19.930] is absolutely going to continue to drive down prices.
+- [12:23.090] This formula worked in the President's first term
+- [12:26.230] and we expect that it's going to work again.
+- [12:28.450] And this is key because we know energy costs
+- [12:30.740] are the number one driver of inflation.
+- [12:33.290] Again, just look at what Joe Biden did
+- [12:34.980] to our energy industry
+- [12:36.510] over the past four years of his administration
+- [12:38.900] and look at what happened to inflation as a result,
+- [12:41.600] everything became more expensive.
+- [12:43.830] To lower prescription drug prices and healthcare costs,
+- [12:46.460] the President has been working around the clock on this issue.
+- [12:49.680] He is obsessed with negotiating these good deals on behalf
+- [12:53.900] of the American people to bring down pharmaceutical costs
+- [12:57.380] and drug costs for Americans,
+- [12:59.320] and he has done so on a number of fronts.
+- [13:01.450] You have seen him discuss that in the Oval Office
+- [13:03.930] several times. To fuel small businesses,
+- [13:06.380] lower their costs and incentivize hiring,
+- [13:08.710] the Trump administration has already cut
+- [13:11.030] 30 unnecessary regulations for every new one on the books,
+- [13:14.710] which we know will save employers
+- [13:16.420] and small businesses across the country,
+- [13:18.670] thousands of dollars in regulatory burdens.
+- [13:21.560] All of these pro-Trump policies are working
+- [13:24.500] and they will continue to work.
+- [13:26.850] Wages are rising at the fastest pace of the start
+- [13:29.550] of a Presidential administration in 60 years.
+- [13:32.790] The cost of the typical new mortgage is down
+- [13:34.920] by nearly $3,000 per year. There's much work to do
+- [13:38.680] and this administration will continue to do it,
+- [13:41.190] but President Trump has already made great progress
+- [13:43.950] in cleaning up the economic disaster
+- [13:46.620] that was created by Joe Biden.
+- [13:48.690] With that, I will take your questions today
+- [13:50.440] and in our new media seat we have Bev Turner
+- [13:53.040] who works for a new outlet, a UK outlet,
+- [13:56.120] but based here in Washington DC, GB News.
+- [13:58.980] Bev, thank you for being here today.
+- [14:00.590] Why don't you kick us off?
+- [14:01.940] The Press: Thank you, Karoline.
+- [14:03.270] So the clock is ticking on the Friday deadline
+- [14:05.770] by which the BBC must retract and apologize
+- [14:08.610] for their malicious edits of the President
+- [14:10.710] in the documentary shown last year.
+- [14:13.030] The recently resigned director general of the BBC yesterday
+- [14:16.440] described the organization as the very best of society
+- [14:20.590] and blamed the enemies of the BBC for this outcome.
+- [14:24.270] Also, yesterday, a senior government minister
+- [14:27.160] launched a fierce defense of the channel in the House of Commons
+- [14:30.970] saying that the broadcaster remains a light on the hill
+- [14:34.180] for people all over the world.
+- [14:36.420] So does the President feel that the network
+- [14:38.860] is taking the situation seriously?
+- [14:41.710] Does he believe that they've shown sufficient regret?
+- [14:44.900] Does this strain the relationship
+- [14:46.600] between the President and the Prime Minister?
+- [14:49.600] And given that the organization is publicly funded,
+- [14:52.690] is the President prepared to bankrupt the BBC
+- [14:56.000] in his pursuit of truth and justice?
+- [14:57.670] Karoline Leavitt: Well, thank you Bev.
+- [14:58.870] There's a lot of questions in one there.
+- [15:00.760] I will say I know the President
+- [15:02.210] has a very good relationship with Prime Minister Starmer.
+- [15:04.880] You have been there, you've seen them in their interactions,
+- [15:07.340] you've questioned both leaders in your time
+- [15:10.170] joining us when we've gone to the United Kingdom
+- [15:12.750] a few different times now.
+- [15:14.400] However, he has always been very frank
+- [15:16.380] when he disagrees with leaders
+- [15:18.170] even whom he has a good relationship
+- [15:19.940] with,.and the BBC being a fair news organization
+- [15:23.010] is definitely an outlet,
+- [15:24.270] I think these two leaders would disagree.
+- [15:26.790] The President has made it very clear
+- [15:28.610] that this is a leftist propaganda machine
+- [15:30.820] that is unfortunately subsidized by British taxpayers,
+- [15:34.490] and he thinks that's extremely unfortunate for the great people
+- [15:37.510] of the United Kingdom and Great Britain.
+- [15:39.870] And I think that the President was deeply concerned
+- [15:43.490] by the editing, the purposeful and dishonest
+- [15:46.590] editing of his speech that was so clearly fake news,
+- [15:50.530] and he rightfully dubbed that term many years ago
+- [15:52.910] and this is a classic example of that.
+- [15:54.770] We see it in the United States all the time.
+- [15:56.860] We see it now in the United Kingdom.
+- [15:58.670] As you know, the President's external legal counsel
+- [16:00.980] has filed a lawsuit against the BBC,
+- [16:03.570] we expect that to continue,
+- [16:05.310] and whether they apologize or not is up to them.
+- [16:07.760] Thanks for being here, Bev. Weijia.
+- [16:09.300] The Press: Thank you, Karoline.
+- [16:10.580] Karoline Leavitt: Sure.
+- [16:11.850] The Press: I have your statement about the new Epstein emails
+- [16:15.020] that have been released by House Democrats
+- [16:18.260] separate from why you believe the emails were made public.
+- [16:21.950] Can you address their substance?
+- [16:24.090] Did the President ever spend hours
+- [16:25.740] at Jeffrey Epstein's house with a victim?
+- [16:29.370] Karoline Leavitt: These emails prove absolutely nothing other
+- [16:31.990] than the fact that President Trump did nothing wrong.
+- [16:35.070] And what President Trump has always said
+- [16:37.150] is that he was from Palm Beach and so was Jeffrey Epstein.
+- [16:40.610] Jeffrey Epstein was a member at Mar-a-Lago
+- [16:42.780] until President Trump kicked him out
+- [16:45.240] because Jeffrey Epstein was a pedophile
+- [16:47.270] and he was a creep.
+- [16:48.520] And this email you refer to with the name of a victim
+- [16:51.920] that was unredacted now
+- [16:53.850] and has since been reported on in this room.
+- [16:55.870] So I will go ahead and say it, Virginia Giuffre.
+- [16:58.810] And it was CBS's own reporting, Weijia,
+- [17:00.980] that recently wrote that Ms. Giuffre maintained,
+- [17:04.460] and God rest her soul, that she maintained
+- [17:06.460] that there was nothing inappropriate
+- [17:08.310] she ever witnessed, that President Trump was always
+- [17:10.610] extremely professional and friendly to her.
+- [17:13.380] And so I think it's a question worth asking the Democrat Party,
+- [17:16.270] and you should all go ask them after this briefing of why
+- [17:19.320] they chose to redact that name of a victim
+- [17:21.470] who has already publicly made statements
+- [17:23.720] about her relationship with Jeffrey Epstein
+- [17:25.850] and is unfortunately no longer with us. Mary.
+- [17:28.390] The Press: Thank you, Karoline. Two questions on this.
+- [17:30.160] In the interest of transparency, why not just go ahead,
+- [17:32.800] release the full files on Epstein,
+- [17:34.980] get this all over with?
+- [17:36.620] Karoline Leavitt: This administration
+- [17:37.880] has done more with respect to transparency
+- [17:40.850] when it comes to Jeffrey Epstein,
+- [17:42.190] then any administration ever.
+- [17:44.430] In fact, this administration, the Department of Justice
+- [17:47.040] has turned over tens of thousands of documents
+- [17:50.950] to the American people.
+- [17:52.290] We are cooperating and showing support
+- [17:54.320] for the House Oversight Committee.
+- [17:56.050] That's part of the reason you are seeing
+- [17:57.750] these documents that were released today
+- [17:59.780] because of the House Oversight Committee's
+- [18:01.690] and Republicans' efforts to get these out to the public.
+- [18:04.660] This administration also moved, the Department of Justice
+- [18:06.950] also moved to unseal grand jury testimony,
+- [18:09.600] which we know unfortunately a judge declined those requests.
+- [18:14.380] So this administration has done more than any,
+- [18:16.570] and it just shows how this is truly a manufactured hoax
+- [18:20.130] by the Democrat Party.
+- [18:21.720] For now, they're talking about it all of a sudden
+- [18:24.300] because President Trump is in the Oval Office.
+- [18:26.390] But when Joe Biden was sitting in there,
+- [18:28.290] the Democrats never brought this up.
+- [18:29.680] This wasn't an issue that they cared about
+- [18:31.550] because they actually don't care
+- [18:32.820] about the victims in these cases.
+- [18:34.860] They care about trying to score political points
+- [18:36.890] against President Trump,
+- [18:38.170] as we have of course seen with this government shutdown.
+- [18:41.080] And this entire thing, again, it's not a coincidence
+- [18:43.740] to the American people at home,
+- [18:45.250] there are no coincidences in Washington DC,
+- [18:47.860] and it is not a coincidence that the Democrats
+- [18:50.290] leaked these emails to the fake news this morning
+- [18:53.930] ahead of Republicans reopening the government.
+- [18:56.760] This is another distraction campaign
+- [18:58.940] by the Democrat and the liberal media,
+- [19:00.530] and it's why I'm being asked questions about Epstein
+- [19:03.360] instead of the government reopening
+- [19:04.930] because of Republicans and President Trump. Regan.
+- [19:06.490] The Press: But giving your interest
+- [19:07.700] in transparency, Karoline, why are White House officials
+- [19:09.850] then meeting with Representative Boebert in an effort to try
+- [19:13.110] and get her to not sign this petition,
+- [19:15.920] calling for the release of the files?
+- [19:17.230] Karoline Leavitt: Doesn't it show transparency
+- [19:18.960] that members of the Trump administration
+- [19:21.470] are willing to brief members of Congress
+- [19:23.460] whenever they please?
+- [19:24.690] Doesn't that show our level of transparency?
+- [19:27.240] Doesn't that show the level of transparency
+- [19:29.180] when we are willing to sit down with members of Congress
+- [19:31.710] and address their concerns?
+- [19:34.710] That's a defining factor of transparency.
+- [19:36.810] The Press: (inaudible)
+- [19:38.010] Karoline Leavitt: Having discussions with members
+- [19:39.340] of Congress about various issues,
+- [19:40.970] and I'm not going to detail conversations
+- [19:42.460] that took place in the situation room
+- [19:44.340] and the press briefing room. Reagan.
+- [19:46.330] The Press: I have a question about the government shutdown.
+- [19:48.030] Karoline Leavitt: Thank you. I'm glad someone does.
+- [19:50.510] The Press: First, on the government shutdown,
+- [19:52.440] the shutdown deal reverses the administration's
+- [19:54.280] (inaudible)
+- [19:55.480] and it also prohibits more from happening
+- [19:57.160] until the end of January.
+- [19:58.800] I'm wondering if the President had input
+- [20:00.600] on this element of the deal
+- [20:01.820] and if he's at all disappointed that's going to reverse
+- [20:04.540] the downsizing of the federal government
+- [20:06.160] that they did during the shutdown.
+- [20:07.450] Karoline Leavitt: I mean, look, I think
+- [20:08.670] it's about 6,000 workers total. When you look at that
+- [20:11.260] in comparison to the reduction in the federal workforce
+- [20:14.000] that this administration has done since January
+- [20:16.730] to get rid of the waste, the fraud, the abuse
+- [20:18.880] and to reduce the size of our federal bureaucracy,
+- [20:22.370] we've done a lot of great work on that front
+- [20:24.900] and we will continue to.
+- [20:26.710] But obviously, the President's main priority
+- [20:28.790] was to reopen the federal government
+- [20:30.740] and get people back to work,
+- [20:32.220] and that's what this deal accomplishes.
+- [20:33.680] The Press: And on the Middle East one,
+- [20:35.400] there's been reports in Israeli media
+- [20:37.060] that the US is considering building
+- [20:38.510] a temporary military base on the Gaza border.
+- [20:41.320] Can you confirm these reports?
+- [20:43.120] Karoline Leavitt: So I had a conversation directly
+- [20:45.140] with the reporter who wrote this article,
+- [20:47.370] and this article was based on a single piece of paper,
+- [20:52.090] an inquiry that somebody in the Department of Navy
+- [20:55.020] made about an idea that may happen in the future.
+- [20:59.020] And this reporter deemed that as an official plan
+- [21:01.750] and ran with a story that the United States
+- [21:03.310] is looking into it.
+- [21:04.540] I checked with the highest levels
+- [21:05.990] of the United States federal government.
+- [21:07.820] This is not something the United States
+- [21:09.590] is interested in being engaged in.
+- [21:10.930] It's not something we are currently involved in right now
+- [21:13.490] that we will be funding.
+- [21:14.750] And the President has been very clear
+- [21:16.070] he doesn't want to see boots on the ground with respect
+- [21:18.520] to what's happening in the Middle East.
+- [21:19.880] We've made great progress with the peace plan in Gaza
+- [21:23.750] and we want to continue to see that move forward.
+- [21:25.660] But I put a comment in that story for a reason
+- [21:28.400] and sometimes we see reporters take a piece of paper like this
+- [21:31.920] and just deem it as official policy
+- [21:34.080] and sometimes that misleads people a little bit.
+- [21:37.130] Sure. Sure.
+- [21:38.480] The Press: There's been a question about UK intelligence
+- [21:41.860] sharing regarding the drug interdictions
+- [21:45.970] involving Israeli(inaudible).
+- [21:48.230] How will that affect the US military operation?
+- [21:51.660] There's been a lot of discussion
+- [21:53.170] about the high caliber of the intelligence
+- [21:56.170] that has been provided before any of these military actions
+- [22:00.580] have taken place.
+- [22:02.390] Karoline Leavitt: I've seen that report.
+- [22:04.170] Oh, hello. I've seen that report.
+- [22:07.130] I'm familiar with the reporting,
+- [22:08.520] but we don't comment on intelligence matters,
+- [22:10.390] classified intelligence matters as you know.
+- [22:12.560] As for the Trump administration's position
+- [22:14.570] on our narco-terrorist campaign in the Caribbean,
+- [22:17.960] it is going to continue and the President has made it
+- [22:20.740] very clear he's not going to allow terrorists
+- [22:23.070] to bring illegal drugs
+- [22:26.560] that kill American citizens into our great country.
+- [22:30.200] Sure, John. I'll go to John and then Zolan. Go ahead.
+- [22:33.120] The Press: Thank you so much.
+- [22:34.320] Trump has talked about sending out
+- [22:35.800] $2,000 checks to US citizens. Earlier this year,
+- [22:39.120] he also talked about sending a DOGE dividend.
+- [22:41.460] That didn't materialize.
+- [22:42.900] Should US citizens expect a $2,000 proposal?
+- [22:45.850] Is the White House committed to making that happen?
+- [22:47.750] Karoline Leavitt: The White House is committed
+- [22:49.040] to making that happen, yes, and we are currently exploring
+- [22:51.840] all legal options to get that done.
+- [22:54.000] I don't have a timeline for you or any further details,
+- [22:56.160] but I can confirm for you that the President made it clear
+- [22:58.890] he wants to make it happen.
+- [23:00.210] And so his team of economic advisors are looking into it
+- [23:03.340] and when we have an update, we'll provide one.
+- [23:05.160] Zolan.
+- [23:06.480] The Press: You said at the top
+- [23:07.680] that one of the costs of the government shutdown
+- [23:10.320] was that people missed their SNAP benefits.
+- [23:13.390] Can you explain then why the administration went to court
+- [23:17.390] to fight the funding of food stamps and SNAP benefits?
+- [23:20.530] Karoline Leavitt: So recipients missed their SNAP benefits
+- [23:23.830] because the Democrats shut the government down
+- [23:26.360] and they forced the administration
+- [23:28.200] to tap into a contingency fund
+- [23:30.540] that did not even fund the full entirety of this program.
+- [23:34.520] And so then you had an unhinged judge
+- [23:36.730] who was trying to dictate from the bench
+- [23:38.910] what the executive branch has to pay for
+- [23:41.120] and where that money has to come from.
+- [23:42.890] That is judicial overreach at its finest and so
+- [23:45.880] that's why the administration pushed back on that.
+- [23:47.740] We can't have the judicial branch
+- [23:49.530] telling the executive branch
+- [23:51.070] that we need to rob the Children Nutrition Fund,
+- [23:53.740] which is what this judge was trying to do
+- [23:55.700] to pay for SNAP benefits.
+- [23:56.910] That's completely inappropriate and it's unconstitutional
+- [24:00.010] and we've been proven right with that legal argument.
+- [24:02.550] But now the good news is again, thanks to Republicans
+- [24:05.660] and in several hours, President Trump,
+- [24:07.900] the government is going to be reopened
+- [24:09.950] and SNAP recipients are going to receive their full benefits,
+- [24:13.380] which is what President Trump has always wanted to do.
+- [24:15.460] Steven.
+- [24:16.660] The Press: Why also did you need the judicial process for that?
+- [24:19.660] I mean, during this shutdown
+- [24:21.570] didn't the administration have a responsibility
+- [24:24.820] to tap into any of those reserves
+- [24:26.960] to ensure that essentially poor people could rely on-
+- [24:30.170] Karoline Leavitt: We did. We did tap into it.
+- [24:32.330] We did tap into the contingency fund
+- [24:34.310] and then the judge told us, no, you have to get more money
+- [24:36.510] from a children's nutrition fund.
+- [24:39.100] And we felt that was judicial overreach.
+- [24:40.900] You shouldn't tell the President which fund he has to rob
+- [24:43.560] because the Democrats are holding the country hostage
+- [24:45.270] by shutting down the federal government.
+- [24:46.610] Steven, go ahead.
+- [24:47.850] The Press: Can I just ask as well
+- [24:49.050] if the President is considering a pardon for Ghislaine Maxwell?
+- [24:51.910] Karoline Leavitt: Again, he's answered this repeatedly.
+- [24:53.450] It's not something he's talking about
+- [24:55.090] or even thinking about at this moment in time.
+- [24:56.910] I can assure you of that. Steven.
+- [24:58.840] The Press: Karoline, I've got two questions
+- [25:00.160] about New York for you.
+- [25:01.380] Karoline Leavitt: Sure. You always do.
+- [25:04.100] On brand for the New York Post.
+- [25:06.370] The Press: Yeah. Well, Mayor Elect Mamdani,
+- [25:09.050] he said that he plans to reach out
+- [25:10.830] to President Trump and that quote,
+- [25:14.570] "This is a relationship that would be critical."
+- [25:16.390] Does the White House have a response
+- [25:17.730] to this planned outreach?
+- [25:19.660] Karoline Leavitt: It's the first time I'm hearing of it.
+- [25:21.250] I'll let the President respond himself
+- [25:23.750] to that comment by Mr. Mamdani.
+- [25:26.340] The Press: And my second question, Jack Schlossberg,
+- [25:29.080] the grandson of President Kennedy announced
+- [25:30.840] today that he's running for Congress.
+- [25:32.960] He in the recent past has referred to his uncle,
+- [25:34.890] the HHS secretary as "a rabid dog",
+- [25:38.620] and he has said that the Trump administration is
+- [25:41.120] "the most corrupt in American history."
+- [25:43.210] Does the White House have a comment
+- [25:44.670] on this sort of comment
+- [25:46.450] from a rising star in the Democratic Party?
+- [25:48.330] Karoline Leavitt: I don't even think
+- [25:49.600] such ridiculous comments are worth responding to.
+- [25:53.070] Obviously those things are not true and Secretary Kennedy
+- [25:55.620] is doing a phenomenal job bringing transparency
+- [25:59.010] and the gold standard of science
+- [26:00.820] back to our healthcare system. Eamon.
+- [26:03.560] The Press: Thank you, Karoline.
+- [26:04.810] The President's hosting a number of Wall Street CEOs
+- [26:06.670] for dinner tonight here at the White House.
+- [26:08.200] Can you give us the names of the CEOs
+- [26:09.780] who are going to be here
+- [26:10.980] and give us a sense of what the President's message
+- [26:13.080] to Wall Street's going to be tonight?
+- [26:14.410] Karoline Leavitt: I don't have a full list
+- [26:15.620] for you in front of me, Eamon.
+- [26:17.020] I know you've reported on some names
+- [26:18.570] and we've helped you navigate
+- [26:19.840] whether those names were truthful or false,
+- [26:21.950] but I know the President actually plans
+- [26:23.660] to bring some of you into the dinner tonight.
+- [26:25.460] So you'll see for yourself in several hours
+- [26:27.260] if that's okay with you.
+- [26:28.480] The Press: And there's been some reporting
+- [26:29.760] that the White House is frustrated with Bill Pulte
+- [26:31.820] and the rollout of this proposal for a 50-year mortgage.
+- [26:34.620] Can you tell us if the White House
+- [26:36.180] is frustrated with that rollout
+- [26:37.710] and if the White House still supports the idea
+- [26:40.360] of a 50-year mortgage for Americans?
+- [26:42.250] Karoline Leavitt: This is a proposal
+- [26:43.870] that the President himself has commented on.
+- [26:45.730] I would refer you to the President's statements
+- [26:47.600] and it's something that the administration is discussing
+- [26:49.700] and seriously looking into. Sure. Danny and then go ahead.
+- [26:54.800] The Press: Thank you.
+- [26:56.000] Some democratic members of Congress
+- [26:57.850] have invited Britain's former Prince Andrew
+- [27:00.750] to testify on the Epstein scandal.
+- [27:03.310] I was just wondering if President Trump
+- [27:04.930] thinks that former Prince Andrew
+- [27:06.800] should indeed come and testify to Congress on that.
+- [27:08.970] Karoline Leavitt: I haven't spoken to him
+- [27:10.170] about that specific matter,
+- [27:11.430] but I can ask him and get back to you.
+- [27:14.830] The Press: On the government shutdown,
+- [27:16.730] the President and House Republicans have made clear
+- [27:18.980] they were not going to negotiate healthcare strategy or policy
+- [27:22.940] while the government was shut down.
+- [27:24.380] Now, assuming that it reopens tonight,
+- [27:26.460] is the President intending to invite any Democrats
+- [27:29.460] over to have negotiations over these subsidies
+- [27:33.060] or any other plan to bring down the cost of health insurance?
+- [27:36.630] Karoline Leavitt: I will just add that as you pointed out,
+- [27:38.760] the Democrats were holding our country hostage
+- [27:40.990] to try to negotiate on a healthcare system
+- [27:43.490] that they created.
+- [27:44.840] Obamacare, as it's famously called,
+- [27:46.800] is a system the Democrats created.
+- [27:48.830] It is a broken system. It has driven up healthcare
+- [27:51.280] costs dramatically in this country,
+- [27:53.320] and now they shut the government down
+- [27:54.650] to try to fix that system they broke.
+- [27:56.830] It doesn't make any sense to us, which is why the President said
+- [27:59.850] that's a completely untenable position.
+- [28:01.460] However, once the government reopens,
+- [28:03.560] the President, as he's always maintained,
+- [28:05.240] is absolutely open to having conversations about healthcare,
+- [28:09.020] and I think you'll see the President
+- [28:10.630] putting forth some really good policy proposals
+- [28:13.180] the Democrats should take very seriously to fix, again,
+- [28:16.820] the system that they broke.
+- [28:18.470] You can't trust the same people who broke the system to fix it.
+- [28:21.330] And so the American people will continue to hear
+- [28:23.290] from the President on this issue.
+- [28:24.920] The Press: Follow up on the question
+- [28:26.370] about the $2,000 payments off tariff revenue.
+- [28:32.110] The President had also talked about using tariffs
+- [28:34.800] to bring down the national debt.
+- [28:36.340] Would this be in lieu of that? Like this is now the new way
+- [28:38.350] to maybe to use that tariff revenue?
+- [28:39.630] Karoline Leavitt: No.
+- [28:40.840] The President put out a statement on this
+- [28:42.130] clarifying he wants to do both things with the tariff revenue
+- [28:44.930] that he's bringing into this country.
+- [28:46.890] Trillions of dollars are expected to continue to pour in,
+- [28:50.800] and it's part of the reason that the Supreme Court case
+- [28:53.910] is so vital for our country's future.
+- [28:56.370] To restore our manufacturing industry in this country,
+- [28:59.750] to protect our national security,
+- [29:01.400] to continue to allow the President to use tariffs
+- [29:04.410] as leverage to negotiate economic deals
+- [29:07.020] that, again, are good for our national security,
+- [29:09.430] and that revenue can then be used for various reasons.
+- [29:11.810] To pay down our debt
+- [29:13.050] and also perhaps to give these rebate checks back to Americans,
+- [29:15.860] which again, the White House is exploring the legal options
+- [29:18.530] of how we can get that done.
+- [29:19.920] Catherine, go ahead.
+- [29:21.560] The Press: Viktor Orbán said this week
+- [29:22.800] that President Trump has promised Hungary
+- [29:24.530] some kind of financial shield.
+- [29:25.990] Do you have any details on how that will be structured
+- [29:27.680] or what that would look like?
+- [29:28.900] Karoline Leavitt: I don't, but I'm happy to check
+- [29:30.130] with the National Security Counsel and get back to you.
+- [29:31.700] The Press: One more.
+- [29:32.940] You recently said you checked with President Trump
+- [29:34.910] about why he needs to get an MRI
+- [29:36.260] on his recent trip to Walter Reed.
+- [29:37.570] Do you have any more detail on that?
+- [29:38.870] Karoline Leavitt: I do, and I'm glad you asked.
+- [29:40.430] As stated in the memo provided on October 10th,
+- [29:43.240] President Trump received advanced
+- [29:44.790] imaging at Walter Reed Medical Center
+- [29:46.540] as part of his routine physical examination.
+- [29:49.370] The full results were reviewed
+- [29:50.740] by attending radiologists and consultants
+- [29:53.310] and all agreed that President Trump remains
+- [29:55.340] in exceptional physical health, which I know all of you will see
+- [29:58.360] with your own eyes later this evening
+- [30:00.270] when he opens up his dinner to the press
+- [30:02.130] and perhaps you'll see him when he signs the bill
+- [30:05.150] to reopen the federal government.
+- [30:06.810] So stay tuned on plans for that. Thank you, everyone.

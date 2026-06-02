@@ -1,0 +1,400 @@
+<!-- source: https://www.youtube.com/watch?v=LsAh8j7uyu8 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: LsAh8j7uyu8 -->
+<!-- date_published: 2025-07-29T15:33:13+00:00 -->
+<!-- date_accessed: 2026-06-02T01:19:40.470580+00:00 -->
+
+# Transcript: President Trump Participates in a Grand Opening Ceremony of Trump International Golf Links Aberdeen
+
+- [00:01.870] Female Speaker: Lords, ladies and gentlemen, welcome back.
+- [00:04.680] We're going to start the ceremony proceedings.
+- [00:07.620] We are honored to have the 45th and 47th President
+- [00:11.410] of the United States of America
+- [00:13.970] with us on this historic occasion
+- [00:15.880] and members of the First Family.
+- [00:18.810] We are delighted to see that today's grand opening
+- [00:21.090] is being attended by civic leaders from the UK,
+- [00:24.260] renowned international golfers,
+- [00:26.260] industry leaders, sporting legends,
+- [00:28.670] as well as special guests who have been so generous.
+- [00:31.820] And their continuing support for Trump Golf in Scotland.
+- [00:35.850] We're delighted to welcome the First Minister of Scotland,
+- [00:39.530] John Swinney.
+- [00:42.320] Warren Stevens, the U.S. Ambassador to the UK.
+- [00:46.110] Alistair King, Lord Mayor of the City of London.
+- [00:49.310] Anna Sarwar, Leader of the Scottish Labor Party.
+- [00:52.180] And the leadership of Aberdeenshire
+- [00:53.600] Council, Provost Judy Whyte. And CEO Jim Savage.
+- [00:58.070] From the world of golf, we have, as you just heard,
+- [01:01.390] Guy Kinnings, CEO of DP World Tour, Rob Maxfield,
+- [01:04.840] CEO the PGA of Great Britain,
+- [01:07.290] Ryan Howsam, Founder and CEO of Stature Group
+- [01:10.490] and principal owner of the Legends Tour,
+- [01:12.800] and Phil Harrison, the CEO of the legends tour.
+- [01:16.290] Of course, the events being staged today
+- [01:18.290] and over the next two weeks
+- [01:19.530] at Trump International Golf Scotland would not happen
+- [01:23.280] without the tremendous support of sponsors.
+- [01:25.770] We are delighted to see today, Sir Don Manzoni,
+- [01:28.240] Executive Chairman of Diageo, a great supporter of golf,
+- [01:31.820] and Cardo is the hospitality sponsor today.
+- [01:35.040] You'll all have seen, or possibly even traveled in,
+- [01:37.600] some gleaming Range Rovers.
+- [01:39.630] So a heartfelt thank you to Jaguar Land Rover.
+- [01:43.130] We also have our sporting legends
+- [01:44.830] who will be playing today and over the next few days,
+- [01:47.780] including US PGA winner Rich Beam,
+- [01:50.340] former Ryder Cup captain Paul McGinley
+- [01:52.590] and US Open winner Michael Campbell.
+- [01:55.660] We also of legends from the footballing world
+- [01:57.710] who will testing out the links,
+- [01:59.090] including Andrei Shuvchenko, Gianfranco Zola,
+- [02:02.300] Robbie Fowler and Aberdeen's very Jim Layton.
+- [02:06.360] And thank you very much to the members of the club, too,
+- [02:09.510] for your continued support.
+- [02:11.150] No doubt you've stood on these links in much wilder conditions,
+- [02:14.280] but it's great to have you all here today.
+- [02:17.420] Before I hand over to Sarah,
+- [02:18.840] I just want to say a couple of polite requests.
+- [02:22.280] After President Trump hits the first shot
+- [02:24.320] and leads off the opening four ball,
+- [02:25.820] we will have a short interlude.
+- [02:27.760] Guests may stay and enjoy the following four balls
+- [02:30.840] whilst the world's media are escorted back
+- [02:32.920] to the media center, or guests may leave and head
+- [02:35.470] back to the pavilion or refreshments.
+- [02:37.590] And members you're very welcome to watch the golf during the day
+- [02:41.220] but please do not follow the presidential four ball
+- [02:44.540] and abide by their directions
+- [02:46.250] from the stewards housekeeping over.
+- [02:48.910] Without further ado please welcome onto the tee
+- [02:50.890] the executive vice president
+- [02:52.170] of Trump International Scotland, Sarah Malone.
+- [02:53.670] [music playing] [applause]
+- [02:54.870] Sarah Malone.
+- [02:56.470] [music playing] [applause]
+- [03:06.329] Sarah Malone: Prime Minister, Ambassador,
+- [03:09.490] distinguished ladies and gentlemen
+- [03:12.070] it is my absolute privilege to welcome you here
+- [03:16.070] to the grand opening of the new course
+- [03:19.030] and the launch of the greatest 36 holes.
+- [03:22.830] [applause]
+- [03:28.950] It has been my distinct pleasure for the best part of nearly two
+- [03:32.800] decades to work with the Trump family
+- [03:35.470] on delivering the vision of one man
+- [03:38.570] who determined many years ago
+- [03:41.320] when others said that it was not possible
+- [03:43.170] and that could not be done.
+- [03:44.640] And he determined that he could, and he would,
+- [03:47.830] and he has developed the greatest 36 holes
+- [03:50.830] in golf here in the home of golf.
+- [03:54.210] [applause]
+- [04:00.290] For almost 20 years,
+- [04:01.870] a great many of you are in the grandstand today
+- [04:04.920] have participated and supported and contributed to our journey.
+- [04:09.170] It's been something to behold. And we are greatly honored.
+- [04:13.370] So many of your traveled from across the globe
+- [04:15.960] to be with us here this morning. We appreciate you. Thank you.
+- [04:19.510] There are too many people in the auditorium
+- [04:21.970] that I would like to thank.
+- [04:23.420] And we'll get the chance to do that later.
+- [04:25.970] But I would to introduce to the T.
+- [04:30.040] the two men that I've been working
+- [04:31.340] with alongside their father,
+- [04:33.130] Donald J. Trump, is Eric Trump and Don Trump Jr.
+- [04:37.320] [applause] [music playing]
+- [05:32.650] Eric Trump: Well, this day has been
+- [05:34.010] a very long time coming, everybody.
+- [05:35.910] What started as truly a passion project for my father,
+- [05:40.690] 2007, 2009, we started the old course.
+- [05:43.940] He had one goal, and that's to build
+- [05:46.380] the greatest 18 holes anywhere in the world.
+- [05:48.750] And I saw him and I watched him at the time.
+- [05:51.730] He put every ounce of his heart and his soul
+- [05:55.220] and his effort into finding the best piece of land,
+- [05:57.670] to creating the greatest property,
+- [05:59.380] to build a greatest clubhouse to shape the dunes.
+- [06:02.640] And build something that's truly, truly exceptional.
+- [06:05.470] And he went off to do larger things,
+- [06:08.230] and that's save the free world,
+- [06:09.800] save the United States of America.
+- [06:11.650] And I can just tell you on behalf of our entire family,
+- [06:13.760] on behalf every single one of us in the Trump Organization,
+- [06:17.280] we wanted to continue his legacy.
+- [06:19.350] And so like he did in 2009,
+- [06:21.630] I've put every single ounce of my heart and soul
+- [06:25.510] into grading a compliment to the first course.
+- [06:28.140] We wanted this to be the greatest 36 holes
+- [06:30.770] anywhere on earth, and there's no question.
+- [06:32.930] There's no question that that's been achieved.
+- [06:36.120] This course is remarkable.
+- [06:37.440] This course, you will feel our heart and soul in it.
+- [06:40.050] You will feel your passion. You will the dedication.
+- [06:43.370] Nothing was left. Nothing was let out.
+- [06:45.590] We had an unlimited budget and we exceeded it.
+- [06:49.130] This was his Mona Lisa.
+- [06:51.160] And my father's always said, he always said some people
+- [06:53.300] really appreciate the painting on the wall.
+- [06:55.470] The beautiful, and he never did, right?
+- [06:56.970] For him, creating this, right,
+- [06:59.370] these beautiful sculpting the dunes, sculpting the land.
+- [07:02.840] That was always his painting. And so I really hope today
+- [07:05.510] that we honor the greatest man I know,
+- [07:08.550] our best friend, a person who's led this company for 30 years
+- [07:12.370] and now leads the most powerful nation in the world
+- [07:16.240] and is doing a hell of a job.
+- [07:17.710] I hope in his absence, we really honor him today
+- [07:20.360] and it's an incredible honor to have him out here.
+- [07:22.860] Before I bring him to the stage, I wanna bring our Greens crew
+- [07:25.590] because without Steve and our guys on the ground,
+- [07:28.650] this would not happen. Steve, come down here.
+- [07:32.020] [applause]
+- [07:43.830] This team is the absolute best anywhere,
+- [07:45.640] their attention to detail,
+- [07:46.920] they are more meticulous than any team that you'll ever meet.
+- [07:50.390] And that's also true of the construction team
+- [07:52.260] who put this together with Amy –
+- [07:55.150] with Easy, and with Jamie, and with Claire, and Christian,
+- [07:59.850] and with also the famous Dr. Martin Ebert.
+- [08:02.680] It was a team of the best people in the entire world,
+- [08:04.560] and again, when you get out there,
+- [08:05.820] you're gonna see something that's truly second to none.
+- [08:08.310] So without further ado,
+- [08:10.120] we owe this course to a remarkable person,
+- [08:12.530] a remarkable man, a person that we all love incredibly much.
+- [08:16.690] And he's going to come down here,
+- [08:18.990] and we are going to cut this beautiful ribbon.
+- [08:20.780] And we're proud of him.
+- [08:22.360] Our family's proud of, him our nation's proud of him
+- [08:24.280] I think the entire world is proud of.
+- [08:25.550] And I think he's gonna be incredibly proud
+- [08:27.740] of this amazing masterpiece that we created here today.
+- [08:30.810] So the President of the United States, ladies and gentlemen.
+- [08:34.310] [applause]
+- [10:31.570] [music playing] [applause]
+- [11:09.180] Well, that is a beautiful sound. And we want to thank them.
+- [11:11.940] What talent. And you have young ones
+- [11:14.680] and you have a little older ones.
+- [11:16.910] And they're going to be the young ones
+- [11:18.520] are going to be doing that for 60 years,
+- [11:20.460] just like the little older one's are doing.
+- [11:22.380] And I want to think them very much.
+- [11:24.240] Great group. I heard them last night.
+- [11:26.490] I also want to thanks your First Minister who's here.
+- [11:29.840] John, would you stand up?
+- [11:31.120] John Swinney, who's a terrific guy and loves golf
+- [11:34.470] and loves the people of this country.
+- [11:38.380] And we really appreciate it.
+- [11:39.800] You're really a very special guy.
+- [11:41.320] Thank you very much for everything, John.
+- [11:43.740] My son, Eric, has worked so hard on this,
+- [11:46.270] and it's been truly a labor of love for him.
+- [11:50.020] And we started with a beautiful piece of land,
+- [11:52.410] but we made it much more beautiful.
+- [11:54.020] And the area has given us a really welcomed to us.
+- [11:58.970] If you remember, at the beginning,
+- [12:00.190] it wasn't quite a welcome, but it wasn't bad.
+- [12:04.330] But with time, they've liked us more and more.
+- [12:06.070] Now, they love us and we love them.
+- [12:08.810] They've really put it out,
+- [12:10.050] and they know how good this whole complex is.
+- [12:13.080] It's Trump International.
+- [12:14.400] We have the first course, which we call the old course,
+- [12:17.330] and the second course, which we called the new course,
+- [12:20.090] because that's the best way to describe.
+- [12:23.400] Anything else gets too complicated.
+- [12:24.900] They don't know which is which,
+- [12:26.170] but they know the old and the new.
+- [12:28.100] And it's going to be something very special.
+- [12:30.340] And the big question is,
+- [12:31.610] which is going to better if there's such a thing?
+- [12:34.130] Because we've had such great ratings on the first.
+- [12:37.160] I don't know if you can match them on the second.
+- [12:39.590] But the second should be every bit as good.
+- [12:41.580] The land is of equal quality right on the North Sea,
+- [12:45.110] and it's going to be really — it's gonna be great.
+- [12:48.170] I look forward to playing it today.
+- [12:49.680] We'll play it very quickly. And then I go back to D.C.
+- [12:52.050] And we put out fires all over the world.
+- [12:54.510] We did one yesterday, as you know.
+- [12:55.860] We stopped a war, but we stopped about five wars.
+- [12:59.390] So that's much more important than playing golf.
+- [13:03.590] As much as I like it, it's much more important.
+- [13:05.660] I want to just thank Sarah Malone
+- [13:07.610] for having been with us right from the beginning.
+- [13:11.100] She was young and not experienced.
+- [13:13.200] Now she's still young and very experienced.
+- [13:16.130] So I just want to thank you. And my —
+- [13:19.330] [applause]
+- [13:21.800] And my son, Don, for being with us all the way.
+- [13:25.520] He's always been with us, and he's a great guy.
+- [13:27.480] And he's got some great golfers in the family. Kai.
+- [13:30.900] And he has got one right over there, that little one.
+- [13:33.260] She may be one of the most talented in the whole family.
+- [13:36.890] She's something special, right? So that's Chloe.
+- [13:41.040] You'll be reading about her someday,
+- [13:43.110] walking down the 18th Hall of some great course,
+- [13:45.480] I think, right. She's very talented, actually.
+- [13:48.460] So I just want to thank everybody.
+- [13:50.720] This has been an unbelievable development.
+- [13:53.930] The land, they said, it couldn't get zoned.
+- [13:55.690] It was an impossibility. And Sean Connery said,
+- [13:59.300] let the bloody bloke build his golf course.
+- [14:02.070] Once he said that, everything came into line.
+- [14:04.710] John and I were talking about it last night.
+- [14:06.700] Everything came into the line.
+- [14:08.000] I want to think, by the way,
+- [14:09.210] the Prime Minister was here last night
+- [14:11.630] and was really very gracious and loves the place, loves the area.
+- [14:15.250] So I want just to thank him very much for coming.
+- [14:18.090] And we gave him a little preview,
+- [14:20.670] and it was really very nice.
+- [14:22.270] And we just signed a very big deal,
+- [14:23.760] as you know, with the European Union,
+- [14:26.800] but also with the United Kingdom.
+- [14:29.540] The United Kingdom was a week before,
+- [14:32.450] and that's a very big and a great deal for the country,
+- [14:34.830] and it's a great for everybody. So I just want to thank him
+- [14:38.320] and everybody that worked so hard on it.
+- [14:40.500] They've been trying to get it done for 12 years.
+- [14:42.440] We got it done. So somebody did a good job.
+- [14:45.840] So I just guess we're going to be hitting a couple of balls
+- [14:48.790] and we're gonna play the round. And Laura, I want to thank you,
+- [14:51.680] with the head of the Republican Party
+- [14:53.260] for during the election, which was the time they counted.
+- [14:56.960] And she was fantastic.
+- [14:59.070] And Ron and Larry, thank you very much.
+- [15:00.940] And everybody, we just had tremendous,
+- [15:04.620] tremendous support from everybody,
+- [15:06.180] especially the family. These are very hard to build
+- [15:09.000] and you won't see them built anymore.
+- [15:10.350] You'll probably never see another course
+- [15:11.950] built in the dunes, not dunes like this.
+- [15:14.680] To the groundskeepers, who I know so well from.
+- [15:18.260] Number one, the first thing I said,
+- [15:19.570] which is better, the old or the new?
+- [15:21.390] And they were unable to give me an answer.
+- [15:22.930] They actually meant it.
+- [15:24.320] But great job you've done with your core superintendent,
+- [15:27.500] who's been here for a long time. And we just want to thank you.
+- [15:31.060] And to all of our friends,
+- [15:33.030] to all our great friends, thank you very much.
+- [15:35.050] So I'll be playing quickly, and then I'll heading back.
+- [15:37.410] And I look forward to that, but I really look forward playing.
+- [15:40.220] So thank you, everybody, and thank you to the media.
+- [15:42.870] The media has been terrific, believe it or not.
+- [15:45.560] I didn't use the word fake news one time, not one time.
+- [15:50.200] Today, they're not fake news. Today, their wonderful news.
+- [15:53.360] But I just want to thank you. They've treated us really well,
+- [15:56.720] and they respect what we've done, really,
+- [15:59.010] at a level that you rarely see nowadays,
+- [16:01.950] so I really very much appreciate it.
+- [16:04.120] And we're going to go out. We're going have a good time.
+- [16:06.100] Thank you all of the dignitaries and all of my friends.
+- [16:09.390] It's going to be a special day,
+- [16:10.780] and it's going to be special year,
+- [16:13.200] and it's gonna be a special decade.
+- [16:15.480] And we're gonna make all of our countries strong and great
+- [16:18.270] and really wonderful again.
+- [16:20.050] And that's happening, and it's happening very fast.
+- [16:22.720] And we love Scotland.
+- [16:24.690] My mother was born here and she loved it.
+- [16:27.130] She would come back here religiously once a year
+- [16:29.900] during the summers with my sister Marianne
+- [16:32.370] and sometimes my sister Elizabeth,
+- [16:34.250] but they would come here religiously.
+- [16:36.570] And Stornoway — that's serious Scotland, by the way.
+- [16:40.420] There's no doubt about that. So, the Isle of Lewis.
+- [16:43.270] I want to just thank everybody. And have a good time today.
+- [16:46.170] Play well. Enjoy yourselves. And many, many years.
+- [16:49.470] We'll see each other many, many years.
+- [16:50.960] Thank you very much, everybody.
+- [16:52.840] [applause]
+- [16:57.650] Eric Trump: And ladies and gentlemen,
+- [16:59.040] before we cut the ribbon,
+- [17:00.250] we want to present something to a very, very special person,
+- [17:02.430] a person who's truly become a member of our family,
+- [17:04.230] and that's Sarah Malone.
+- [17:05.510] She's dumped 16 years of her life
+- [17:07.660] into this incredible property.
+- [17:09.080] She's built every inch alongside of the entire family,
+- [17:12.130] and there's no one more deserving of this than her.
+- [17:14.440] She's truly, truly become a friend, family,
+- [17:18.160] and a person we love very much.
+- [17:19.590] So I know she's gonna get emotional.
+- [17:21.270] I can see the lips, but you deserve
+- [17:22.870] every moment of this incredible day.
+- [17:24.680] Not only are we doing this ribbon cutting,
+- [17:26.290] not only are doing a presidential visit,
+- [17:28.370] we're also doing the Legends Tour.
+- [17:29.750] We're doing the DP World Tour back-to-back.
+- [17:32.320] I think Guy will tell you that's the first time in history
+- [17:34.230] that you've ever had two tournaments
+- [17:36.930] playing in back-the-back weekends on the same course.
+- [17:38.900] So, you're a rock star. We love you.
+- [17:40.790] We appreciate you very much. And this is for you, Sarah.
+- [17:44.220] [applause]
+- [17:59.980] Would you like to do the honors?
+- [18:06.750] The President: Okay, we're ready?
+- [18:08.140] Are we ready?
+- [18:17.000] So, may God bless everyone, everyone here,
+- [18:20.560] and everyone everywhere.
+- [18:23.570] We have a world that's got some conflict,
+- [18:26.060] but we've ironed out a lot of it.
+- [18:27.540] We're going to have a great and peaceful world,
+- [18:30.480] and on a much smaller scale,
+- [18:32.400] this will be a tremendously successful place,
+- [18:35.190] and a place where people can come and enjoy life.
+- [18:38.870] And it's very special.
+- [18:40.150] So I hope everybody in Scotland and well beyond Scotland
+- [18:44.240] enjoys it for many, many years to come.
+- [18:47.990] Let's go, one, two, three.
+- [18:52.870] [applause]
+- [19:05.450] Thank you, everybody.
+- [19:06.880] [inaudible]
+- [19:09.210] The Press: [inaudible]
+- [19:12.040] The President: It's gonna get straight down,
+- [19:17.030] it's gonna get straight.
+- [19:18.500] [music playing]
+- [19:19.740] Eric Trump: Alright.
+- [19:39.410] Photographer: Three, two, one.
+- [19:42.710] [music playing]
+- [20:03.247] [fireworks]
+- [20:34.716] [inaudible]
+- [21:05.193] The President: I guess they gave me the honor.
+- [21:07.984] [laughter]
+- [21:14.280] Female Speaker: Please welcome onto the tee
+- [21:15.650] the 45th and 47th President of the United States of America,
+- [21:19.790] Donald J. Trump.
+- [21:22.540] [applause]
+- [21:34.235] [applause]
+- [21:45.030] Male Speaker: He likes the course,
+- [21:46.560] ladies and gentlemen, he likes the course a lot.
+- [21:48.700] [laughter]
+- [21:49.920] The President: Thank you very much, everybody.
+- [21:51.500] Have a good time. Thank you very much.
+- [21:53.270] Female Speaker: Next up, no pressure, Eric Trump.
+- [21:57.410] [applause]
+- [22:06.554] Male Speaker: Good ball, eh? Good ball.
+- [22:07.710] [applause]
+- [22:11.020] Eric Trump: I like the course too.
+- [22:12.346] [laughter]
+- [22:20.240] Paul McGinley: Congratulations. Okay, you want to play golf?
+- [22:25.490] Alright, okay.
+- [22:28.260] Female Speaker: Former Ryder Cup captain and team member
+- [22:30.240] Paul McGinley.
+- [22:31.477] [applause]
+- [22:49.178] [applause]
+- [22:54.900] Female Speaker: And US PGA champion, Rich Bean.
+- [22:57.270] [applause]
+- [23:20.078] [applause]
+- [23:24.363] [inaudible]
+- [23:29.690] The Press: Mr. President.
+- [23:30.950] Can you tell us about the course?
+- [23:32.170] Mr. President, what will you see next to Benjamin Netanyahu.
+- [23:40.030] The President: We're working together.
+- [23:41.320] We're going to try and get things
+- [23:42.700] straightened out for the world.
+- [23:44.120] Thank you very much. Thank you very much.
+- [23:47.530] [applause]

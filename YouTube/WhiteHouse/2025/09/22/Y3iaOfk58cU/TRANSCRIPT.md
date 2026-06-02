@@ -1,0 +1,1393 @@
+<!-- source: https://www.youtube.com/watch?v=Y3iaOfk58cU -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: Y3iaOfk58cU -->
+<!-- date_published: 2025-09-22T21:58:44+00:00 -->
+<!-- date_accessed: 2026-06-02T02:44:30.518815+00:00 -->
+
+# Transcript: President Trump Makes an Announcement on Medical and Scientific Findings for America's Children
+
+- [48:39.640] The President: Thank you very much.
+- [48:42.910] So I've been waiting for this meeting for 20 years actually,
+- [48:47.600] and it's not that everything's 100 percent understood or known,
+- [48:51.650] but I think we've made a lot of strides.
+- [48:55.730] I wish it was done a long time ago.
+- [48:58.600] Today we're delighted to be joined
+- [49:00.130] by America's top medical and public health professionals
+- [49:03.400] as we announce historic steps
+- [49:04.950] to confront the crisis of autism.
+- [49:08.360] Horrible, horrible crisis.
+- [49:11.850] I want to thank the man who brought this issue
+- [49:15.880] to the forefront of American politics along with me,
+- [49:19.680] and we actually met in my office.
+- [49:23.130] Is it like 20 years ago, Bobby?
+- [49:25.110] It was probably 20 years ago in New York.
+- [49:27.980] I was a developer, as you probably heard.
+- [49:29.860] And I always had very strong feelings about autism
+- [49:32.420] and how it happened and where it came from.
+- [49:35.510] And he and I don't know the word got out,
+- [49:39.130] and I wouldn't say that people were very understanding
+- [49:43.210] of where we were,
+- [49:44.520] but it's turning out that we understood a lot more
+- [49:47.710] than a lot of people who studied it, we think.
+- [49:52.210] And I say we think because I don't think
+- [49:53.690] they were really letting the public know what they knew.
+- [49:57.540] Thanks as well to the director
+- [49:59.350] of the National Institute of Health, Dr. Jay Bhattacharya,
+- [50:03.930] FDA Commissioner Dr. Marty Makary.
+- [50:06.170] These are great people. Administrator of the Centers
+- [50:09.250] for Medicine and Medicaid Services, Dr. Mehmet Oz,
+- [50:13.820] and Acting Assistant Secretary of HHS, Dr. Dorothy.
+- [50:18.560] So thank you all. Thank you, Dorothy, very much.
+- [50:22.020] The meteoric rise in autism is among the most alarming
+- [50:26.080] public health developments in history.
+- [50:28.370] There's never been anything like this.
+- [50:31.540] Just a few decades ago,
+- [50:32.920] one in 10,000 children had autism,
+- [50:35.720] so that's not a long time.
+- [50:37.890] And I've always heard they sell a few,
+- [50:40.580] but I think it's a lot less time than that.
+- [50:44.770] It used to be one in 20, 000, then one in 10,000,
+- [50:49.900] and I would say that's probably 18 years ago.
+- [50:53.080] And now it's one in 31.
+- [50:57.120] But in some areas it's much worse than that,
+- [50:59.750] if you can believe it. One in 31.
+- [51:02.480] And I gave numbers yesterday for boys; it's one in 12.
+- [51:06.640] I was told that's in California, where they have,
+- [51:09.810] for some reason, a more severe problem.
+- [51:13.010] But whether it's one in 12 or one in 31, can you imagine?
+- [51:16.030] That's down from one in 20,000 and one in 10,000.
+- [51:20.200] And now we're at the level of one in 12
+- [51:23.140] in some cases for boys. One in 31 overall.
+- [51:28.830] So since 2000, autism rates have surged
+- [51:32.210] by much more than 400 percent.
+- [51:36.080] Instead of attacking those who ask questions,
+- [51:38.150] everyone should be grateful for those
+- [51:39.850] who are trying to get the answers
+- [51:41.150] to this complex situation.
+- [51:45.350] And the first day,
+- [51:46.640] all of these great doctors behind me were there.
+- [51:49.340] I told them, "This is what we got to… We have to find out."
+- [51:52.770] Because when you go from 20,000 to 10,000
+- [51:56.560] and then you go to 12, there's something artificial.
+- [52:01.660] They're taking something.
+- [52:03.620] And by the way, I think I can say
+- [52:05.260] that there are certain groups of people
+- [52:06.870] that don't take vaccines
+- [52:08.200] and don't take any pills that have no autism.
+- [52:12.670] That have no autism. Does that tell you something?
+- [52:15.900] That's currently.
+- [52:17.240] Is that a correct statement, by the way?
+- [52:20.410] Secretary Kennedy: There are some studies that suggest that.
+- [52:22.640] Yeah, with the Amish, for example.
+- [52:24.390] The President: The Amish, yeah, virtually I heard none.
+- [52:29.350] See, Bobby wants to be very careful with what he says,
+- [52:31.770] and he should, but I'm not so careful with what I say.
+- [52:34.800] But you have certain groups, the Amish as an example;
+- [52:38.450] they have essentially no autism. First, effective immediately,
+- [52:44.140] the FDA will be notifying physicians
+- [52:46.560] that the use of acet -- Well, let's see how we say that.
+- [52:53.550] Secretary Kennedy: Acetaminophen.
+- [52:55.300] The President: Acetaminophen. Is that okay?
+- [52:58.330] Secretary Kennedy: Yes.
+- [52:59.700] The President: Which is basically commonly known
+- [53:01.710] as Tylenol during pregnancy and can be associated
+- [53:07.440] with a very increased risk of autism.
+- [53:13.120] So taking Tylenol is not good.
+- [53:19.270] All right, I'll say it; it's not good.
+- [53:23.130] For this reason they are strongly recommending
+- [53:26.130] that women limit Tylenol use during pregnancy
+- [53:28.890] unless medically necessary.
+- [53:32.460] That's, for instance, in cases of extremely high fever
+- [53:38.010] that you feel you can't tough it out;
+- [53:39.700] you can't do it. I guess there's that.
+- [53:41.910] It's a small number of cases, I think.
+- [53:45.500] But if you can't tough it out, if you can't do it,
+- [53:50.800] that's what you're going to have to do.
+- [53:53.010] You'll take a Tylenol, but it'll be very sparingly.
+- [53:57.130] It can be something that's very dangerous to the woman's health.
+- [54:01.850] In other words, a fever that's very, very dangerous
+- [54:05.780] and ideally a doctor's decision
+- [54:08.870] because I think you shouldn't take it,
+- [54:10.830] and you shouldn't take it during the entire pregnancy.
+- [54:12.940] They may tell you that toward the end of the pregnancy,
+- [54:15.160] you shouldn't take it during the entire.
+- [54:17.010] And you shouldn't give the child a Tylenol every time he's born
+- [54:20.260] and he goes and has a shot.
+- [54:23.320] You shouldn't give Tylenol to that child.
+- [54:26.480] All pregnant women should talk to their doctors
+- [54:28.860] for more information
+- [54:30.140] about limiting the use of this medication while pregnant.
+- [54:33.730] So ideally, you don't take it at all,
+- [54:35.580] but if you can't tough it out,
+- [54:37.970] if there's a problem, you're going to end up doing it.
+- [54:41.310] The other thing that I can tell you that I'll say
+- [54:44.530] that they will maybe say at a little bit later date,
+- [54:48.780] but I think when you go for the shot,
+- [54:50.300] you do it over a five-time period,
+- [54:52.640] take it over five times or four times,
+- [54:54.730] but you take it in smaller doses,
+- [54:58.660] and you spread it out over a period of years.
+- [55:02.590] They pump so much stuff into those beautiful little babies.
+- [55:06.690] It's a disgrace. I don't see it.
+- [55:10.220] I think it has -- I think it's very bad.
+- [55:12.590] They're pumping; it looks like they're pumping into a horse.
+- [55:16.260] You have a little child, a little fragile child,
+- [55:18.630] and you get a vat of 80 different vaccines,
+- [55:22.620] I guess 80 different blends, and they pump it in.
+- [55:27.840] So ideally a woman won't take Tylenol,
+- [55:32.980] and on the vaccines it would be good instead of one visit
+- [55:37.460] where they pump the baby, load it up with stuff;
+- [55:40.870] you'll do it over a period of four times or five times.
+- [55:45.230] I mean, I've been so into this issue for so many years
+- [55:47.390] just because I couldn't understand
+- [55:49.420] how a thing like this could happen,
+- [55:50.760] and you know it's artificially induced.
+- [55:52.350] It's not like something that --
+- [55:54.770] when you go from all of those healthy babies
+- [55:59.800] to a point where I don't even know structurally
+- [56:02.910] if a country can afford it.
+- [56:05.350] And that's the least of the problems.
+- [56:07.000] To have families destroyed over this is just so, so terrible.
+- [56:11.430] I also, and we've already done this,
+- [56:14.460] we want no mercury in the vaccine.
+- [56:18.150] We want no aluminum in the vaccine.
+- [56:21.380] The MMR, I think, should be taken separately.
+- [56:23.890] This is based on what I feel. The mumps, measles,
+- [56:30.760] and … or the three should be taken separately.
+- [56:35.740] And it seems to be that when you mix them,
+- [56:38.820] there could be a problem.
+- [56:40.440] So there's no downside in taking them separately.
+- [56:44.460] In fact, they think it's better, so let it be separate.
+- [56:47.970] The chickenpox is already separate
+- [56:50.480] because when that got mixed in,
+- [56:51.920] I guess they made it four for a while; it really was bad.
+- [56:55.100] So they make chickenpox -- individually, they're okay;
+- [56:59.120] when you mix them, something maybe happens.
+- [57:02.010] So there's no downside in doing it.
+- [57:05.330] It's not like, "Oh, if you do it, bad things,"
+- [57:07.360] no, it's only good.
+- [57:09.140] And it may not have that much of an impact,
+- [57:11.130] but it may have a big impact.
+- [57:13.160] So let those be taken separately.
+- [57:15.400] And then hepatitis B is sexually transmitted.
+- [57:22.080] There's no reason to give a baby
+- [57:25.120] that's almost just born hepatitis B.
+- [57:29.250] So I would say wait till the baby is 12 years old
+- [57:33.700] and formed and take Hepatitis B.
+- [57:36.560] And I think if you do those things,
+- [57:38.190] it's going to be a whole different --
+- [57:40.960] it's going to be a revolution in a positive sense in the country.
+- [57:44.990] The FDA will be updating the label of an existing drug
+- [57:48.610] to reflect potential benefits in reducing some autism symptoms.
+- [57:54.550] This gives hope to the many parents with autistic children
+- [57:57.600] that it may be possible to improve their lives.
+- [58:00.210] That's one of the things that I'm very, very happy about.
+- [58:03.420] I mean, this was mostly going to be on
+- [58:06.120] how not to have the child affected,
+- [58:09.830] but we've learned some pretty good things
+- [58:12.300] about certain elements of genius
+- [58:15.870] that can be given to a baby, and the baby can get better.
+- [58:21.830] And in some cases, maybe substantially better.
+- [58:26.840] Not going to be easy, but it'd be a lot easier
+- [58:30.310] if it didn't happen in the first place.
+- [58:31.900] As these great parents fully understand, right?
+- [58:35.610] They fully understand, I feel so terrible for --
+- [58:39.010] I have so many friends with autistic children.
+- [58:41.600] It's just, it's a tough situation.
+- [58:44.650] Finally, to help reach the ultimate goal
+- [58:46.550] of ending the autism fever,
+- [58:48.080] the NIH will be announcing 13 major grant awards
+- [58:51.350] from the Autism Data Science initiatives.
+- [58:54.980] And to be honest with you, to me that's the least important.
+- [58:57.440] It's not even a money thing at this point.
+- [58:58.960] There's so much money, but they have to do --
+- [59:02.450] and they have to move quickly when the alternative
+- [59:05.620] is that nothing bad can happen. Let's do it now.
+- [59:09.150] I was just saying to Bobby and the group, let's do it now.
+- [59:12.550] Nothing bad can happen. It can only good happen.
+- [59:16.070] But with Tylenol, don't take it.
+- [59:18.280] Don't take it. And if you can't live,
+- [59:21.610] if your fever is so bad, you have to take one
+- [59:24.340] because there's no alternative to that.
+- [59:27.140] Sadly. First question, "What can you take instead?"
+- [59:30.560] It's actually, there's not an alternative to that.
+- [59:33.430] And as you know,
+- [59:34.690] other of the medicines are absolutely proven bad.
+- [59:37.200] I mean, they've been proven bad with the aspirins
+- [59:39.430] and the Advils and others, right?
+- [59:42.270] And they've been proven bad. So I'd like to ask Bobby
+- [59:45.140] to get up to the podium and say a few words.
+- [59:47.360] And then Dr. Bhattacharya, Dr. Makary, Dr. Oz,
+- [59:51.640] and Dr. Fink, followed by two incredible mothers
+- [59:54.750] that have experienced firsthand
+- [59:57.190] what this country's going through,
+- [59:59.220] what parts of the world are going through.
+- [01:00:01.680] And I will say there are parts of the world
+- [01:00:03.390] that don't take Tylenol. I mean, there's a rumor,
+- [01:00:06.380] and I don't know if it's so or not,
+- [01:00:07.980] that Cuba, they don't have Tylenol
+- [01:00:10.000] because they don't have the money for Tylenol,
+- [01:00:12.740] and they have virtually no autism.
+- [01:00:14.380] Okay.
+- [01:00:15.620] Tell me about that one.
+- [01:00:17.840] And there are other parts of the world
+- [01:00:19.340] where they don't have Tylenol, where they don't have autism.
+- [01:00:23.660] That tells you a lot. And I want to say it right now,
+- [01:00:26.960] and the way I look at it, don't take it.
+- [01:00:30.480] Don't take it. There's no downside in not taking it.
+- [01:00:35.360] So I'd like to ask Bobby to come up and say a few words.
+- [01:00:38.450] I hope I didn't ruin his day, but that's the way I feel.
+- [01:00:41.490] I've been very strong on the subject for a long time.
+- [01:00:44.130] Life is common sense too,
+- [01:00:46.400] and there's a lot of common sense in this,
+- [01:00:48.560] and I wish things like this were brought up,
+- [01:00:50.970] and this group has worked so hard on it.
+- [01:00:53.670] But I'd like to be a little speedier
+- [01:00:57.550] in the process of a recommendation
+- [01:00:59.530] because there's no harm in going quicker.
+- [01:01:01.700] There's absolutely no harm. At worst, there's no harm.
+- [01:01:04.640] Thank you very much, Bobby, please.
+- [01:01:06.140] Secretary Kennedy: Thank you, Mr. President.
+- [01:01:10.910] To meet the President's challenge, I ordered
+- [01:01:13.080] HHS to launch an unprecedented all-agency effort
+- [01:01:16.980] to identify all cause of autism,
+- [01:01:20.630] including toxic and pharmaceutical exposures.
+- [01:01:24.420] At President Trump's urging, NIH, FDA, CDC,
+- [01:01:28.560] and CMS are turning over every stone
+- [01:01:31.500] to identify the ideology of the autism epidemic
+- [01:01:35.410] and how patients and parents can prevent
+- [01:01:37.670] and reverse this alarming trend.
+- [01:01:40.730] We have broken down the traditional silos
+- [01:01:43.050] that have long separated these agencies,
+- [01:01:45.560] and we have fast-tracked research and guidance.
+- [01:01:48.860] Historically, NIH has focused almost solely
+- [01:01:51.970] on politically safe and entirely fruitless research
+- [01:01:56.120] about the genetic drivers of autism.
+- [01:01:59.390] And that would be studying the genetic drivers of lung cancer
+- [01:02:03.630] without looking at cigarettes,
+- [01:02:05.250] and that's what NIH has been doing for 20 years.
+- [01:02:08.320] As a result,
+- [01:02:09.530] we don't have an answer to this critical question.
+- [01:02:12.900] Despite the cataclysmic impact of the epidemic
+- [01:02:15.770] on our nation's children,
+- [01:02:19.230] we are now replacing the institutional culture
+- [01:02:21.900] of politicized science
+- [01:02:23.240] and corruption with evidence-based medicine.
+- [01:02:27.030] NIH research teams are currently testing multiple hypotheses
+- [01:02:31.010] with no area off-limits. We promise transparency
+- [01:02:35.270] as we uncover the potential causes and treatments,
+- [01:02:39.230] and we will notify the public regularly of our progress.
+- [01:02:43.160] Today we are announcing two important findings
+- [01:02:45.680] from our autism work that are vital for parents
+- [01:02:48.190] to know as they make these decisions.
+- [01:02:51.200] First, HHS will act on acetaminophen.
+- [01:02:54.620] The FDA is responding to clinical and laboratory
+- [01:02:57.600] studies that suggest a potential association
+- [01:03:01.470] between acetaminophen used during pregnancy
+- [01:03:05.040] and adverse neurodevelopmental outcomes,
+- [01:03:08.090] including later diagnosis for ADHD and autism.
+- [01:03:13.750] Scientists have proposed biological mechanisms
+- [01:03:16.390] linking prenatal acetaminophen exposure
+- [01:03:19.290] to altered brain development.
+- [01:03:21.610] We have also evaluated the contrary studies
+- [01:03:24.590] that show no association.
+- [01:03:26.950] Today, the FDA will issue a physician's notice
+- [01:03:30.080] about the risk of acetaminophen during pregnancy
+- [01:03:33.670] and begin the process to initiate a safety label change.
+- [01:03:38.240] HHS will launch a nationwide public service campaign
+- [01:03:41.500] to inform families and protect public health.
+- [01:03:44.610] The FDA also recognized that acetaminophen
+- [01:03:47.530] is often the only tool for fevers and pain in pregnancy,
+- [01:03:52.400] as other alternatives have well-documented adverse effects.
+- [01:03:56.930] HHS wants, therefore, to encourage clinicians
+- [01:04:00.430] to exercise their best judgment
+- [01:04:03.200] and use of acetaminophen for fevers and pain in pregnancy
+- [01:04:07.370] by prescribing the lowest effective dose
+- [01:04:09.870] for the shortest necessary duration
+- [01:04:12.970] and only when treatment is required.
+- [01:04:16.420] Furthermore, thanks also to the politicization of science.
+- [01:04:21.210] The safety of acetaminophen against
+- [01:04:23.190] the risk of neurodevelopmental disorders in young children
+- [01:04:26.880] has never been validated.
+- [01:04:29.590] Prudent medicine therefore suggests
+- [01:04:32.000] caution in acetaminophen use in young children,
+- [01:04:36.100] especially since strong evidence
+- [01:04:38.980] also has associated it with liver toxicity.
+- [01:04:42.970] Some studies have also found the use of acetaminophen in children
+- [01:04:46.490] can potentially prolong viral illnesses.
+- [01:04:50.470] The FDA will drive new research to safeguard mothers, children,
+- [01:04:54.380] and families.
+- [01:04:55.840] In addition to a possible acetaminophen connection
+- [01:04:59.690] to autism for pregnant women, infants, and toddlers,
+- [01:05:03.270] our research has revealed that folate deficiency
+- [01:05:07.160] in a child's brain can lead to autism.
+- [01:05:10.170] We have also identified an exciting therapy
+- [01:05:12.780] that may benefit large numbers of children
+- [01:05:15.190] who suffer from autism.
+- [01:05:17.350] Peer-reviewed literature has documented
+- [01:05:19.230] that up to 60 percent of folate-deficient children
+- [01:05:21.960] with ASD can have improved verbal communications
+- [01:05:26.100] if given leucovorin.
+- [01:05:28.240] I have instructed NIH, FDA, and CMS
+- [01:05:32.080] to help doctors treat children appropriately.
+- [01:05:34.740] Jay will help tell that story,
+- [01:05:37.600] which started with sound science,
+- [01:05:39.540] the kind that restores faith in government.
+- [01:05:44.770] This announcement also represents a historic
+- [01:05:47.230] collaboration between NIH, FDA, CDC, and CMS.
+- [01:05:52.780] We expect to be this to be the first of many announcements
+- [01:05:55.790] over the coming years that deliver actionable information
+- [01:05:59.410] to parents on underlying cause of autism
+- [01:06:02.610] and the potential paths for prevention and reversal.
+- [01:06:06.150] Finally, autism is a complex disorder
+- [01:06:09.490] with multifactorial etiology.
+- [01:06:12.460] We are continuing to investigate a multiplicity of potential
+- [01:06:16.180] causes where no areas of taboo.
+- [01:06:19.580] One area that we are closely examining,
+- [01:06:22.750] as the President mentioned, is vaccines.
+- [01:06:25.730] Some 40 percent to 70 percent of mothers
+- [01:06:28.540] who have children with autism believe
+- [01:06:31.620] that their child was injured by a vaccine.
+- [01:06:35.150] President Trump believes that we should be listening
+- [01:06:37.570] to these mothers
+- [01:06:38.840] instead of gaslighting and marginalizing them,
+- [01:06:43.280] like prior administrations.
+- [01:06:45.690] Some of our friends like to say
+- [01:06:47.650] that we should believe all women.
+- [01:06:50.160] Some of these same people have been silencing
+- [01:06:52.710] and demonizing these mothers for three decades
+- [01:06:56.720] because research on the potential link
+- [01:06:58.980] between autism and vaccines
+- [01:07:01.510] has been actively suppressed in the past.
+- [01:07:04.980] It will take time for an honest look at this topic
+- [01:07:08.090] by scientists,
+- [01:07:09.700] but I want to reassure the people in the autism community
+- [01:07:13.240] that we will be uncompromising and relentless
+- [01:07:16.150] in our search for answers. We will perform the studies
+- [01:07:20.080] that should have been performed 25 years ago.
+- [01:07:23.360] Whatever the answer is, we will tell you what we find.
+- [01:07:26.780] We are researching this issue to all three agencies.
+- [01:07:29.750] Jay will discuss one of our research initiatives at NIH.
+- [01:07:34.180] This model of unleashing unbiased, de-politicized,
+- [01:07:38.210] gold-standard scientific research and academic freedom
+- [01:07:42.350] to deliver actionable information
+- [01:07:44.360] to prevent and reverse disease
+- [01:07:46.740] will be a model for the framework
+- [01:07:48.780] to deliver similar results
+- [01:07:51.570] for many other chronic conditions
+- [01:07:53.460] that plague Americans. Jay.
+- [01:07:58.640] Director Bhattacharya: Thank you, Secretary Kennedy,
+- [01:08:00.240] and thank you President Trump.
+- [01:08:03.380] I'm proud to announce today that the NIH has launched
+- [01:08:05.540] the Autism data science initiative
+- [01:08:07.610] to turbocharge autism research,
+- [01:08:09.470] devoting an additional $50 million
+- [01:08:12.010] to the cause of studying autism.
+- [01:08:14.150] Nearly 250 research teams from across the country applied,
+- [01:08:19.010] sent in their applications and were peer reviewed
+- [01:08:21.500] by the NIH review panels.
+- [01:08:23.980] The NIH peer reviewers chose the 13 best projects,
+- [01:08:27.550] focused on root causes and therapies with replication
+- [01:08:30.460] and validation studies to guarantee gold-standard science.
+- [01:08:33.860] The studies feature a new science called exposomics,
+- [01:08:36.840] where scientists consider environmental
+- [01:08:38.750] and medical factors, nutrition, events during pregnancy
+- [01:08:42.210] in combination with biology and genetics
+- [01:08:44.480] to answer vital questions about autism.
+- [01:08:46.830] Science like this conducted in partnership
+- [01:08:49.010] with families and physicians is the best way to arrest
+- [01:08:52.220] and reverse the autism epidemic.
+- [01:08:54.780] Autism spectrum disorder encompasses
+- [01:08:56.500] a very wide range of symptoms,
+- [01:08:58.000] ranging from mild difficulties with social interactions
+- [01:09:00.590] to profoundly autistic children who experience
+- [01:09:02.800] severe disabilities in speech and behavior.
+- [01:09:07.240] Given this wide range of symptoms across the spectrum,
+- [01:09:10.180] it seems certain that there will be a wide range
+- [01:09:12.360] of biological contributors to explaining the cause.
+- [01:09:15.980] The great thing about the new NIH initiative on autism
+- [01:09:18.340] is that scientists will use rigorous advanced methods
+- [01:09:20.940] and causal inference, machine learning, organoids
+- [01:09:23.920] and other fresh approaches to the problem.
+- [01:09:26.330] The sharp rise in the prevalence of autism
+- [01:09:28.160] deserves an urgent response by the scientific community.
+- [01:09:32.310] As Bobby said, the NIH has invested a lot of money
+- [01:09:34.590] to study autism over the years,
+- [01:09:36.400] but the research has not produced
+- [01:09:37.930] the answers that families and parents of autistic children
+- [01:09:41.270] deserve and autistic children themselves deserve.
+- [01:09:44.170] For too long it's been taboo at ask some questions
+- [01:09:46.940] for fear the scientific work
+- [01:09:48.650] might reveal a politically-incorrect answer.
+- [01:09:51.550] Because of this restricted focus in scientific investigations,
+- [01:09:54.370] the answers for families have been similarly restricted,
+- [01:09:56.660] often pointing families to behavioral therapies
+- [01:09:58.990] that don't work for every kid
+- [01:10:00.590] or suggest non-modifiable genetic factors as the cause,
+- [01:10:03.850] but genetics alone can't explain such a sharp
+- [01:10:06.760] rise in autism prevalence over just a few decades,
+- [01:10:10.050] as the President said. In coming months and years,
+- [01:10:12.930] as NIH scientists learn more that can help autistic children
+- [01:10:15.990] and their families, we won't delay,
+- [01:10:18.360] like scientists often like to do.
+- [01:10:19.810] I can say as a scientist myself, it's really tempting to delay,
+- [01:10:22.520] but in face of a problem like this, you have to move fast.
+- [01:10:28.070] But we will not delay before telling American people
+- [01:10:29.900] about what we find
+- [01:10:31.150] and we will win the public trust with transparency and rigor.
+- [01:10:34.310] Already, our broadened focus on autism research
+- [01:10:37.130] has pointed to two items that will help families
+- [01:10:40.020] prevent and treat some cases of autism.
+- [01:10:41.760] I'll leave the good news on these two items
+- [01:10:43.450] to my close friends
+- [01:10:44.740] and colleagues Dr. Makary and Dr. Ross.
+- [01:10:47.910] We've been working together closely on this problem
+- [01:10:49.690] for the past six months,
+- [01:10:50.890] and our cooperation represents an unprecedented collaboration
+- [01:10:53.130] with the Secretary Kennedy's Department of Health
+- [01:10:54.720] and Human Services and with President Trump.
+- [01:10:57.400] I'm delighted to introduce Dr. Marty Makary,
+- [01:10:58.970] commissioner of the Food and Drug Administration,
+- [01:11:00.630] who will tell you about these announcements
+- [01:11:02.010] of practical help for families with autism.
+- [01:11:06.510] Commissioner Makary: Great. Thank you, Dr. Bhattacharya.
+- [01:11:09.120] Mr. President, this is the start
+- [01:11:10.930] of a historic shift in medical culture.
+- [01:11:13.650] This administration is working together to ask big questions
+- [01:11:18.030] about why our nation's children are getting sick so fast.
+- [01:11:21.600] Too often medicine is doing small little studies,
+- [01:11:24.430] giving us answers we already knew,
+- [01:11:26.990] but we've got to make a difference.
+- [01:11:28.210] You've given us a charge to identify root causes
+- [01:11:31.250] and we are not going to stop,
+- [01:11:33.880] so that we can end the suffering we are watching.
+- [01:11:36.630] And if you've seen a kid with autism,
+- [01:11:38.150] with severe autism, it's hard to watch.
+- [01:11:41.480] Kids get frustrated, they get angry,
+- [01:11:44.140] they can be crying because they want to speak
+- [01:11:47.000] and they can't speak. It's hard to watch
+- [01:11:50.540] and it may be entirely preventable.
+- [01:11:53.340] For an epidemiologist, that child is an expanding statistic.
+- [01:11:57.550] But for a child, it can be brutal to have autism.
+- [01:12:02.100] Today, the FDA is taking action
+- [01:12:04.170] to update the label on acetaminophen
+- [01:12:06.850] and sending a letter to all US,
+- [01:12:08.800] letting them know about the risks in pregnancy.
+- [01:12:11.930] We now have data we cannot ignore.
+- [01:12:15.350] There's a very large study, the Boston birth cohort,
+- [01:12:18.710] with researchers from Johns Hopkins,
+- [01:12:21.400] my former institution, and Boston University found,
+- [01:12:23.890] quote, unquote, consistent associations
+- [01:12:27.130] between acetaminophen in pregnancy and autism.
+- [01:12:30.400] And the nurse's health study with researchers from Yale,
+- [01:12:32.730] Columbia, and Harvard looking at 9,000 kids
+- [01:12:35.710] found that acetaminophen use in pregnancy
+- [01:12:37.510] was associated with neurodevelopmental disorders.
+- [01:12:41.060] And four weeks ago, a Mount Sinai Harvard
+- [01:12:43.760] study reviewed all the existing literature
+- [01:12:46.720] and found the overwhelming body of evidence
+- [01:12:49.250] points to an association.
+- [01:12:51.730] Sure, you'll be able to find a study to the contrary.
+- [01:12:54.360] That's how science works, but to quote the dean
+- [01:12:58.610] of the Harvard School of Public Health,
+- [01:13:02.040] there is a causal relationship between prenatal acetaminophen
+- [01:13:05.800] use and neurodevelopmental disorders
+- [01:13:08.780] of ADHD and autism spectrum disorder.
+- [01:13:12.290] We cannot wait any longer.
+- [01:13:14.790] And honestly, there's been this perfunctory, reactionary,
+- [01:13:19.130] mindless practice in medicine.
+- [01:13:21.960] I learned it in medical school and residency.
+- [01:13:23.830] Just treat all fevers.
+- [01:13:25.050] Low-grade fevers, treat them with acetaminophen.
+- [01:13:27.100] Why? What are we doing?
+- [01:13:28.830] A study out of Hopkins actually showed that treating a fever
+- [01:13:32.460] can prolong the duration of illness in a young kid.
+- [01:13:36.190] Maybe that's because a fever is a body's natural way
+- [01:13:39.490] of ridding an infection. When my wife was pregnant
+- [01:13:43.420] and delivered our son a few months ago,
+- [01:13:45.980] they pushed her to take acetaminophen
+- [01:13:47.910] for a low-grade fever.
+- [01:13:49.700] She said, "No," and then they looked to me and I said,
+- [01:13:52.270] "Absolutely no."
+- [01:13:55.840] I'm also here to announce good news.
+- [01:13:58.900] Today the FDA is filing a federal Register notice
+- [01:14:01.550] to change the label on an exciting treatment
+- [01:14:03.930] called prescription leucovorin,
+- [01:14:05.910] so that it can be available to children with autism.
+- [01:14:08.530] Autism may also be due to a autoimmune reaction
+- [01:14:12.750] to a folate receptor on the brain
+- [01:14:15.050] not allowing that important vitamin
+- [01:14:17.540] to get into the brain cells.
+- [01:14:20.040] It's a fairly established mature pathway.
+- [01:14:22.790] Again, we have a duty to let doctors and the public know
+- [01:14:25.920] we are going to change the label to make it available.
+- [01:14:28.150] Hundreds of thousands of kids, in my opinion, will benefit.
+- [01:14:31.340] One study found that with kids with autism
+- [01:14:33.780] and chronic folate deficiency,
+- [01:14:35.700] two-thirds of kids with autism symptoms
+- [01:14:38.760] had improvement and some marked improvement.
+- [01:14:42.520] Mr. President, you told us to do what's medically right,
+- [01:14:45.620] to go bold and not worry about the corporations
+- [01:14:48.210] and the lobbyists,
+- [01:14:49.450] so that's what we're here doing today.
+- [01:14:50.920] Thank you, Mr. president.
+- [01:14:54.280] Administrator Oz: Thanks, Marty.
+- [01:14:55.520] I think you all appreciate the passion
+- [01:14:58.030] in the President's voice.
+- [01:14:59.480] We've been hearing that since the inauguration.
+- [01:15:03.110] In fact, even before the inauguration,
+- [01:15:05.820] the President was upset about what he spoke to today.
+- [01:15:08.940] And so, together with Secretary Kennedy
+- [01:15:10.440] who's made his life's work to address
+- [01:15:12.110] some of these challenges with autism,
+- [01:15:14.410] they challenged us.
+- [01:15:15.940] In fact, they were harsher than that.
+- [01:15:17.930] They wanted no silos to break down what the NIH would do,
+- [01:15:22.080] what the FDA would do, what CMS would do.
+- [01:15:24.540] They insisted that the physician leaders bust through the clutter
+- [01:15:27.800] because their agencies had the power
+- [01:15:29.960] if we didn't do what every other prior administration had done,
+- [01:15:33.670] which is to let people function
+- [01:15:35.310] within their siloed environments.
+- [01:15:37.110] Because of that, in historic fashion
+- [01:15:39.370] and a very accelerated manner,
+- [01:15:41.470] we have a response today to the autism crisis.
+- [01:15:43.730] It is the first of several chapters,
+- [01:15:46.040] but this is breaking news. You've heard some of it.
+- [01:15:48.610] The response to the autism crisis
+- [01:15:50.220] is going to continue to come to you
+- [01:15:51.920] under Secretary Kennedy's leadership,
+- [01:15:53.530] and the President wouldn't have it any other way,
+- [01:15:55.400] as you've heard. The FDA, based on NIH research,
+- [01:16:01.450] is approving prescription leucovorin
+- [01:16:04.310] for treatment of autistic children.
+- [01:16:06.820] Now, if you're following the script,
+- [01:16:08.090] there should be two questions that you have,
+- [01:16:10.250] two questions that should come to your mind.
+- [01:16:12.410] The first is, how will patients and parents
+- [01:16:14.940] get access to the treatment? I'll tell you how.
+- [01:16:18.550] Over half of American children are covered by Medicaid
+- [01:16:22.180] and CHIP, government health insurance, over half.
+- [01:16:25.840] Therefore, because they're covered in Medicaid and CHIP,
+- [01:16:28.080] upon this label change by Marty,
+- [01:16:30.650] state Medicaid programs in partnership with CMS
+- [01:16:33.190] will cover prescription leucovorin around the country.
+- [01:16:36.700] It's yours, but you have to go to a doctor
+- [01:16:38.750] to get a prescription because they know your child,
+- [01:16:41.160] they know you and they know the medication.
+- [01:16:43.240] States will also have tools to monitor its use
+- [01:16:45.570] and ensure appropriate utilization.
+- [01:16:47.900] That's important for a bunch of reasons
+- [01:16:49.420] because we want the right kids
+- [01:16:50.660] getting the right prescription medications.
+- [01:16:52.310] We believe private insurance companies
+- [01:16:54.420] will rapidly follow our lead, if they have not already done.
+- [01:16:58.270] And again, to make sure
+- [01:16:59.760] that this is safe and effective treatment,
+- [01:17:01.510] you need a physician to prescribe the medication
+- [01:17:04.480] because it's on prescription.
+- [01:17:06.170] Second big question, how are we going to collect clinical data
+- [01:17:10.590] to answer the big questions that the President
+- [01:17:12.510] is asking and secretary insists that we offer?
+- [01:17:14.740] CMS is also issuing guidance to convene states
+- [01:17:17.840] and existing research networks to support NIH and FDA
+- [01:17:21.190] in their research efforts of prescription leucovorin,
+- [01:17:24.230] while also maintaining the privacy of all patients,
+- [01:17:27.000] all health information of our beneficiaries.
+- [01:17:29.300] Collecting real-world data, which is what many of you
+- [01:17:31.550] have been asking us to do in the community,
+- [01:17:33.820] is fast, it is life-saving and we'll get answers based on
+- [01:17:37.460] what happens over the next few months with this approach.
+- [01:17:40.380] The aggressive approach and it is aggressive,
+- [01:17:42.150] demanded by the President and by the secretary,
+- [01:17:44.480] have already identified risk factors and opened the door
+- [01:17:46.820] for the first FDA-recognized treatment pathway for autism.
+- [01:17:52.030] It is the first of its kind and it wouldn't have happened
+- [01:17:53.800] without the leadership of the President and the secretary.
+- [01:17:56.480] The fivefold increased prevalence of autism
+- [01:17:58.410] over the past 25 years demands a rapid response.
+- [01:18:02.300] The average clinician, researcher, we spoke to many,
+- [01:18:05.590] thought it would take five years to get this data.
+- [01:18:07.780] Parents are unwilling to wait five years.
+- [01:18:10.110] The president is unwilling to wait five years
+- [01:18:12.770] for these results,
+- [01:18:13.970] so the President and the secretary
+- [01:18:15.270] are acting today with this tri-agency move.
+- [01:18:18.320] The administration's bold actions,
+- [01:18:19.810] investing in groundbreaking research, follow the science.
+- [01:18:23.590] They restore trust which has been lacking,
+- [01:18:26.050] and they will change the trajectory
+- [01:18:28.400] for millions of American families.
+- [01:18:30.650] Mr. President, God bless you for being brave.
+- [01:18:32.610] The President: Thank you very much. Thank you.
+- [01:18:34.380] Administrator Oz: Let me introduce Dr. Fink
+- [01:18:35.870] who was acting administrator.
+- [01:18:37.210] And after Dr. Fink, we've got some wonderful women,
+- [01:18:40.250] Jackie and Amanda, I know it's going to be tough,
+- [01:18:42.260] but if you can make some comments
+- [01:18:43.630] about this historic day. God bless you.
+- [01:18:48.800] Female Speaker: Thank you, Mr. President,
+- [01:18:50.080] for this opportunity to speak with all of you today.
+- [01:18:54.070] As a pediatrician and mom,
+- [01:18:55.940] I'm here today to talk about what this announcement
+- [01:18:58.450] means for the millions of moms and dads
+- [01:19:01.630] who are faced with the choice
+- [01:19:03.040] of whether to take acetaminophen during pregnancy.
+- [01:19:07.660] It's hard to hear information that challenges the status quo.
+- [01:19:13.260] We are sharing this information not to confuse,
+- [01:19:16.620] but to empower parents to make the best choices
+- [01:19:19.770] when taking medications during pregnancy.
+- [01:19:23.850] We are all concerned about the rising rates
+- [01:19:26.300] of neurodevelopmental disorders, including autism.
+- [01:19:31.330] President Trump and Secretary Kennedy
+- [01:19:33.920] are dedicated to radical transparency,
+- [01:19:36.620] so that patients have the best, most up-to-date information.
+- [01:19:41.750] We are also sharing this information
+- [01:19:43.340] with our nation's doctors
+- [01:19:45.280] and we encourage you, as always, to consult with your doctor
+- [01:19:48.640] to make the best decision for you.
+- [01:19:51.910] All too often it's easy to think that medicines we buy
+- [01:19:55.610] without a prescription pose little to no risk
+- [01:19:58.680] for the mom or the baby.
+- [01:20:01.820] As you heard today, pregnant women
+- [01:20:04.730] who need high fever or pain reduction during pregnancy
+- [01:20:08.400] should take the lowest effective dose of acetaminophen
+- [01:20:11.640] for the shortest possible duration.
+- [01:20:15.220] Most women will not meet these indications
+- [01:20:17.940] during their pregnancies.
+- [01:20:21.610] I am encouraged by these developments today
+- [01:20:24.120] because it is another example of our commitment
+- [01:20:26.750] to the American people to leave no stone unturned
+- [01:20:30.420] in improving the health of our nation's children.
+- [01:20:35.050] Next, I'm going to turn it over to some incredible mothers
+- [01:20:37.950] who are going to share more about their stories,
+- [01:20:40.580] and we're so grateful to have you here today.
+- [01:20:47.240] Female Speaker: Thank you.
+- [01:20:48.490] Thank you, Mr. President and team for all your work.
+- [01:20:51.390] This is an historic day and I'm thankful to be here.
+- [01:20:55.730] I have a son who's five who is profoundly autistic.
+- [01:20:59.990] And you've probably heard if you've met one autistic child,
+- [01:21:02.370] you've met one autistic child.
+- [01:21:04.330] It's a spectrum, which I don't think the spectrum is helpful,
+- [01:21:07.860] but that's another conversation.
+- [01:21:13.200] He is an amazing little boy, a blessing from God.
+- [01:21:21.290] He's marvelous. He can count to 1,000.
+- [01:21:24.260] He knows all of his letters and the sounds they make
+- [01:21:27.200] and the words for each one,
+- [01:21:30.640] but he also has a lot of obstacles.
+- [01:21:34.580] He is nonverbal. He can say those numbers and letters,
+- [01:21:38.310] but there's no communication.
+- [01:21:40.860] Unless you've lived with profound autism,
+- [01:21:43.540] you have no idea. You have no idea.
+- [01:21:48.750] Like you said, he will get frustrated
+- [01:21:51.140] because he can't speak.
+- [01:21:52.850] It's not even that he can't speak,
+- [01:21:54.350] sometimes he just doesn't understand what I'm saying.
+- [01:21:57.140] He understands the word, "No,"
+- [01:21:59.090] but he doesn't understand the why behind the no
+- [01:22:01.630] and that's a huge part of discipline.
+- [01:22:03.150] That's the discipline.
+- [01:22:04.700] So, it's very hard to discipline a child with autism,
+- [01:22:07.650] so you have these behaviors and it's very hopeless feeling.
+- [01:22:13.160] It's very isolating being a parent
+- [01:22:14.960] with a profound autistic child.
+- [01:22:17.570] Even just taking them over to your friend's house
+- [01:22:20.450] is something we just don't do,
+- [01:22:21.810] because again, they're going to be met with,
+- [01:22:23.970] "No, no, no."
+- [01:22:26.070] And no understanding of why, and then there's a meltdown.
+- [01:22:29.600] And then you're in a situation where you're just helpless
+- [01:22:31.530] and you're just trying to protect your kid.
+- [01:22:33.930] So it's just better not to do it.
+- [01:22:35.400] You learn your limits, and it's been really hard.
+- [01:22:39.530] This is amazing that we're here today.
+- [01:22:41.500] And no one has been able to point to anything
+- [01:22:46.320] and say this is what caused it.
+- [01:22:48.710] And you can't point to that and say it didn't cause it.
+- [01:22:51.140] I have no idea. I am completely open.
+- [01:22:53.350] I'm not blaming anything, but I'm open to the discussion
+- [01:22:57.730] and the fact that there's work being done to find answers.
+- [01:23:00.220] I'm very grateful.
+- [01:23:02.780] I was already excited to vote for Mr. Trump anyway
+- [01:23:06.650] as president,
+- [01:23:08.330] but when we got word of RFK doing his work, I was ecstatic.
+- [01:23:12.480] I could not wait for this work to be done.
+- [01:23:15.190] That somebody would try to find us some answers.
+- [01:23:18.360] I'm just very grateful. I pray for my son every day
+- [01:23:22.360] and hope that he can get the help that he needs.
+- [01:23:26.430] And just thank you. Thank you very much.
+- [01:23:29.710] (applause)
+- [01:23:35.830] Jackie: Hi, my name is Jackie.
+- [01:23:38.010] I'm also extremely grateful for the opportunity to be here
+- [01:23:41.790] and share my son's story. My son is Eddie, he's 11.
+- [01:23:46.090] He's on the opposite end of the spectrum
+- [01:23:48.160] from what Amanda just explained.
+- [01:23:50.080] He's considered high functioning.
+- [01:23:52.550] He was not always high functioning,
+- [01:23:53.940] he was nonverbal till the age four.
+- [01:23:56.650] We've had quite a hard time
+- [01:24:02.000] to get to the place where we are today.
+- [01:24:04.430] I am just so grateful to President Trump
+- [01:24:07.870] and the entire administration for finally listening to moms
+- [01:24:12.790] who have been crying out for help,
+- [01:24:15.210] for answers for years.
+- [01:24:16.950] I've met so many other moms with children
+- [01:24:18.940] on the spectrum in the nine years
+- [01:24:20.870] since my son's diagnosis,
+- [01:24:23.200] and they all have very similar stories.
+- [01:24:25.810] And they've all just wanted somebody to listen,
+- [01:24:29.280] to not ridicule them or look at them
+- [01:24:32.510] like they were the crazy people.
+- [01:24:34.880] It's hard when you don't have doctors
+- [01:24:36.510] that take the time to really listen
+- [01:24:39.410] and find out when the change happened
+- [01:24:41.010] and what change happened.
+- [01:24:42.870] And it's just I've been praying for this day for nine years,
+- [01:24:47.230] and I'm so thankful to God for bringing the administration
+- [01:24:53.090] into our lives and I'm speechless.
+- [01:24:57.110] This day is a day I never thought would happen.
+- [01:24:59.360] I thought that we would never have an administration
+- [01:25:01.650] that was courageous enough to look into things
+- [01:25:04.510] that no prior administration had.
+- [01:25:06.700] So I'm just here to express my gratitude
+- [01:25:09.590] and I am looking forward to what comes from this
+- [01:25:13.000] and hopefully we just get more answers.
+- [01:25:15.040] So thank you.
+- [01:25:16.280] The President: Thank you very much.
+- [01:25:21.420] So I just want to say acetaminophen
+- [01:25:23.400] is basically Tylenol, essentially,
+- [01:25:26.430] because I noticed that term is used throughout this conference.
+- [01:25:30.220] So it's essentially Tylenol.
+- [01:25:33.220] And I just recommend strongly that you don't use Tylenol
+- [01:25:37.660] unless it's absolutely necessary.
+- [01:25:41.150] I understand it's maybe 10 percent of the women
+- [01:25:43.810] that are pregnant would perhaps be forced to use it,
+- [01:25:48.620] and that would mean you just can't tough it out.
+- [01:25:52.040] No matter what you do, you can't tough it out.
+- [01:25:53.810] So that's up to you and your doctor.
+- [01:25:56.200] But there's a very strong recommendation,
+- [01:25:58.600] maybe stronger for me than from the group
+- [01:26:00.810] because they're waiting for certain studies, I don't…
+- [01:26:04.330] I just want to say it like it is.
+- [01:26:07.100] Don't take Tylenol, don't take it.
+- [01:26:10.250] If you just can't…
+- [01:26:12.550] I mean, it's just fight like hell not to take it.
+- [01:26:15.920] There may be a point where you have to
+- [01:26:17.430] and that you have to work out with yourself.
+- [01:26:20.900] So don't take Tylenol.
+- [01:26:22.740] Other things that we recommend, or certainly I do anyway, is --
+- [01:26:30.340] and it's so important to me to see the doctor four times
+- [01:26:35.310] or five times for a vaccine. Don't let them pump your baby up
+- [01:26:38.920] with the largest pile of stuff you've ever seen in your life
+- [01:26:42.740] going into the delicate little body of a baby.
+- [01:26:46.160] Even if it's two years, three years,
+- [01:26:48.230] four years, you just break it up into,
+- [01:26:50.990] I would say, five, but let's say four,
+- [01:26:53.020] four visits to the doctor instead of one.
+- [01:26:56.380] And certain things I think you should do.
+- [01:26:58.880] We've already taken out and are in the process
+- [01:27:01.990] of taking out mercury and aluminum now.
+- [01:27:04.810] You know what mercury is, you know what aluminum is.
+- [01:27:06.690] Who the hell wants that pumped into a body?
+- [01:27:10.710] And there were rumors about both of them for a long time,
+- [01:27:14.380] but we're having them taken out.
+- [01:27:16.900] We're having them taken out of the vaccines.
+- [01:27:20.250] Hepatitis B, again, that's sexually transmitted,
+- [01:27:23.650] and we think you should wait -- I think you should wait till 12.
+- [01:27:26.190] You know I'm just making these statements from me.
+- [01:27:28.000] I'm not making them from these doctors.
+- [01:27:29.500] Because when they talk about different results,
+- [01:27:34.570] different studies, I talk about a lot of common sense.
+- [01:27:38.990] And they have that too. They have that too a lot.
+- [01:27:42.510] But I recommend the hepatitis B, take it at 12.
+- [01:27:49.660] Sexually transmitted, you don't have to give it to the baby
+- [01:27:52.350] when the baby's two years old.
+- [01:27:54.930] And there are a lot of theories on that.
+- [01:27:56.640] But not when they're 12,
+- [01:27:57.850] it doesn't seem to be a problem at all.
+- [01:28:01.190] The MMR and the chickenpox, chickenpox
+- [01:28:04.940] has already been broken out.
+- [01:28:06.530] It's a singular shot, but the MMR is not.
+- [01:28:13.870] And I've heard for years that there's a problem with it.
+- [01:28:17.530] But they say that there's no problem
+- [01:28:19.990] if you do each shot separately, not put together.
+- [01:28:24.300] So an MMR, go out and do it separately.
+- [01:28:28.910] Don't take Tylenol.
+- [01:28:31.440] Don't give Tylenol to the baby after the baby's born.
+- [01:28:34.950] Every time the baby gets a shot, the baby goes, gets a shot,
+- [01:28:37.870] they say, "Here, take a couple of Tylenol."
+- [01:28:40.080] I've heard that for years. Take Tylenol.
+- [01:28:42.490] Don't take Tylenol, don't have your baby take Tylenol.
+- [01:28:46.880] Now, Tylenol is fine for people that aren't pregnant,
+- [01:28:50.470] that aren't in the situation that we're talking about
+- [01:28:53.110] one very specific situation.
+- [01:28:57.490] If you're pregnant, don't take Tylenol.
+- [01:29:00.490] When you have your baby,
+- [01:29:01.810] don't give your baby Tylenol at all
+- [01:29:06.190] unless it's absolutely necessary.
+- [01:29:08.720] Don't do it.
+- [01:29:10.030] Break up your visits to the doctors, break them up.
+- [01:29:12.550] Do it in five if you can.
+- [01:29:14.740] Now, it's inconvenient. It's inconvenient.
+- [01:29:16.800] Oh, you're going to have to go back.
+- [01:29:18.290] Another year later, you're going to go back each year
+- [01:29:21.000] for four years, five years, three years.
+- [01:29:23.340] Just break it up.
+- [01:29:25.110] Break it up because it's too much liquid.
+- [01:29:29.450] Too many different things are going into that baby
+- [01:29:32.860] at too big a number.
+- [01:29:35.180] The size of this thing, when you look at it,
+- [01:29:38.170] it's like 80 different vaccines and beyond vaccines, and 80.
+- [01:29:45.060] Then you give that to a little kid.
+- [01:29:46.380] I mean, I can tell you that I had a woman who worked for me,
+- [01:29:50.970] a beautiful, wonderful woman, worked in Trump Tower,
+- [01:29:54.880] and she had the most perfect child.
+- [01:29:59.920] Beautiful, just perfect.
+- [01:30:03.120] And I remember this little blond-haired boy
+- [01:30:05.080] running around the lobby of Trump Tower,
+- [01:30:06.960] so healthy and so vibrant. And I said, "That's great."
+- [01:30:10.860] One day I came in
+- [01:30:12.830] and she was crying her eyes out behind the counter.
+- [01:30:18.130] She worked at the front desk. She was crying her eyes out.
+- [01:30:20.930] I've never --
+- [01:30:22.580] as much as I've ever seen anyone distraught, she was.
+- [01:30:27.090] I said, "Are you okay? What happened?"
+- [01:30:29.310] "My boy, my boy, I've lost my boy."
+- [01:30:31.450] "What does that mean, your boy?"
+- [01:30:33.560] "My boy. You know him, sir, you've seen him grow up.
+- [01:30:36.980] He was so beautiful.
+- [01:30:39.350] And I took him for a vaccine, sir,
+- [01:30:42.710] and he developed this unbelievable --"
+- [01:30:45.520] I think she said 107, 108.
+- [01:30:47.920] It goes well beyond when this happens,
+- [01:30:50.360] it goes up to a 106, 107, 108.
+- [01:30:53.580] We hear 105 and you're in trouble.
+- [01:30:55.360] But it just goes up to a level that you never hear about,
+- [01:30:59.120] but it goes up very high and they get -- it's fried.
+- [01:31:02.610] They get fried.
+- [01:31:03.860] She said, "I took him.
+- [01:31:05.100] He developed an unbelievable temperature
+- [01:31:11.190] and I've lost him, sir. He's gone."
+- [01:31:13.140] And then I saw the boy. It was a whole --
+- [01:31:14.980] it was so tragic to see. That was the following day.
+- [01:31:19.900] That was the following day after the vaccine.
+- [01:31:22.590] And I've seen it two other times,
+- [01:31:24.240] and I think three other times,
+- [01:31:26.180] but two other times where they go to the doctor
+- [01:31:29.110] and they get the vaccine, they get the shot,
+- [01:31:30.940] the kid is badly hurt. Let's be nice, badly hurt.
+- [01:31:38.030] And just do it.
+- [01:31:39.950] Break it up into five, break it up into four,
+- [01:31:42.460] break it up into three if you have to.
+- [01:31:44.180] But go to the doctor four times instead of once,
+- [01:31:46.580] or five times instead of once. And for some reason they insist
+- [01:31:51.590] that you put it all into the body.
+- [01:31:53.360] And maybe that's the drug companies
+- [01:31:54.880] that make more money that way. Maybe it's the doctors
+- [01:31:57.600] because they don't want to be doing this so much.
+- [01:32:01.060] Maybe it's the doctors, they get maybe more money.
+- [01:32:03.870] Who the hell knows what it is? Don't do it.
+- [01:32:07.420] Get them broken into four or five visits.
+- [01:32:09.620] Do it four or five. That means you have 20 percent,
+- [01:32:12.730] 25 percent what you're putting into the baby's body.
+- [01:32:16.720] It can only help. It can only help.
+- [01:32:19.390] And the other things I told you about, just --
+- [01:32:23.710] the word, tough it out.
+- [01:32:24.950] It's easy for me to say tough it out.
+- [01:32:27.070] But sometimes in life with a lot of other things,
+- [01:32:29.900] you have to tough it out also.
+- [01:32:31.260] Don't take Tylenol. Don't give Tylenol to the baby.
+- [01:32:37.330] When the baby's born, they throw it at you,
+- [01:32:39.260] "Here, give them a couple of Tylenol."
+- [01:32:40.850] They give them a shot. They give them a vaccine.
+- [01:32:43.650] And every time they give them a vaccine,
+- [01:32:45.090] they throw in Tylenol.
+- [01:32:46.800] And some of these babies they're long born,
+- [01:32:50.420] and all of a sudden they're gone.
+- [01:32:51.680] And it doesn't hurt not to do it.
+- [01:32:57.290] It doesn't hurt.
+- [01:32:58.550] There's no downside. There's no downside at all.
+- [01:33:02.460] And break up MMR, break it up.
+- [01:33:06.010] It's practically a known fact that if you break it up,
+- [01:33:08.790] you're not going to have a problem.
+- [01:33:11.140] But for years we've been hearing how bad MMR is as a combination.
+- [01:33:15.680] And I'm very happy that you broke out chickenpox
+- [01:33:18.080] because that was really a problem.
+- [01:33:20.320] And there are other things.
+- [01:33:21.610] It's interesting because there are other things,
+- [01:33:24.200] we were talking about it, other different drugs, pills,
+- [01:33:26.800] that you take, that we know are so bad
+- [01:33:28.410] and they don't take them anymore.
+- [01:33:29.800] But for some reason with this, they keep taking it.
+- [01:33:33.130] Don't take Tylenol. There's no downside.
+- [01:33:38.170] Don't take it. You'll be uncomfortable,
+- [01:33:41.550] it won't be as easy maybe, but don't take it.
+- [01:33:45.290] If you're pregnant, don't take Tylenol
+- [01:33:48.440] and don't give it to the baby after the baby is born.
+- [01:33:53.230] And you know what? We have more than three years left.
+- [01:33:58.800] And I told Bobby and the doctors behind me,
+- [01:34:00.980] and they are so committed to this,
+- [01:34:03.220] I told them that this is the number one thing
+- [01:34:07.520] I want to do from you.
+- [01:34:08.840] And we have something else called Favored Nations
+- [01:34:11.120] where I'm going to be reducing drug prices by a 1,000 percent,
+- [01:34:15.030] by 900, 600, 500, 1, 200.
+- [01:34:19.140] We're going to be reducing drug prices at levels never seen.
+- [01:34:21.600] It's called Favored Nations.
+- [01:34:22.920] We're going to be paying what the --
+- [01:34:24.240] right now we're like the garbage can for the rest of the world
+- [01:34:27.560] and we have been for forever.
+- [01:34:30.480] We pay much higher for drugs than the rest of the world.
+- [01:34:32.880] We subsidize the rest of the world.
+- [01:34:34.320] We're not doing that anymore. And that's a big thing.
+- [01:34:37.470] That's a big thing. That's bigger than anything.
+- [01:34:40.260] I told the story the other night
+- [01:34:42.330] that I was so proud of my first term
+- [01:34:44.960] that for the final year drug prices
+- [01:34:47.740] went down one quarter of 1 percent.
+- [01:34:49.860] And I was so proud. I said, "Why?"
+- [01:34:51.780] I'm the first one to do it. I think it was 28 years,
+- [01:34:54.180] they said, where drug prices went down
+- [01:34:56.200] from the beginning of the term till the end.
+- [01:34:58.800] And I was so proud, I called a news conference, I said,
+- [01:35:03.070] "Drug prices have gone down.
+- [01:35:04.820] First time it's happened in 28 years."
+- [01:35:06.570] You know what it was, one quarter of 1 percent.
+- [01:35:08.350] I was so proud.
+- [01:35:09.570] Now we're going to have them go down
+- [01:35:11.230] from $100 a pill to $9 a pill.
+- [01:35:16.970] From $1,300 for a shot of like an Ozempic,
+- [01:35:25.320] I call it the fat pill or the fat drug.
+- [01:35:28.110] Sometimes it works, I guess, for people.
+- [01:35:29.890] The ones I've seen, it hasn't worked so well.
+- [01:35:31.830] I got a lot of friends, they're fat.
+- [01:35:34.150] They said, "Yeah, I lost some weight."
+- [01:35:35.570] I said, "You don't look it to me."
+- [01:35:37.660] But they paid $1,300, $1,200.
+- [01:35:40.380] And they go to London and they pay $88.
+- [01:35:43.530] And they call me, they go, "What's this all about?"
+- [01:35:46.350] We're subsidizing the rest of the world, stupidly,
+- [01:35:48.600] because we had a lot of stupid people
+- [01:35:50.000] in this country running things. And how big is that?
+- [01:35:53.400] But to me, that's nothing compared to autism.
+- [01:35:56.420] I see that gorgeous boy.
+- [01:35:58.120] I have a big present for him in the back. You bring him back.
+- [01:36:02.100] We're going to bring him into the Oval Office.
+- [01:36:03.670] I have the best present he's ever going to get, okay?
+- [01:36:06.010] A big one. I saved it for you, okay?
+- [01:36:08.410] Because I heard you were coming. Look how beautiful he is.
+- [01:36:11.900] So that's it. There's nothing much to say.
+- [01:36:16.580] Don't take Tylenol if you're pregnant,
+- [01:36:19.310] and don't give Tylenol to your child
+- [01:36:23.770] when he's born or she's born.
+- [01:36:25.810] Don't give it. Just don't give it.
+- [01:36:28.270] And we're going to have, I think, really --
+- [01:36:29.960] if you do the things that I say, break it up. Just break it up.
+- [01:36:35.350] Break up the shots with the doctor.
+- [01:36:37.430] MMRs, as I told you, separate, separate, separate.
+- [01:36:40.930] Chickenpox, already separate. You do these things.
+- [01:36:43.770] I'm telling you, when I leave office,
+- [01:36:48.950] I don't want to have --
+- [01:36:50.560] it's going to be the kind of number that we're hearing
+- [01:36:54.310] where it's 1 in 32 or 1 in 10, because I've heard 1 in 10 also.
+- [01:37:00.640] And in California it's really bad.
+- [01:37:03.150] I want it to be, let's get it back
+- [01:37:04.950] to maybe 1 in 10,000 or 1 in 20,000
+- [01:37:07.840] or maybe none in 20,000.
+- [01:37:10.160] And the only way you're going to do that
+- [01:37:11.750] because this is artificially induced,
+- [01:37:13.510] this is induced by something.
+- [01:37:15.150] You don't go from 1 in 20,000 to 1 in 10,000, then to 1 in 10.
+- [01:37:20.360] That means you're taking something and something's wrong.
+- [01:37:25.650] And I feel very certain,
+- [01:37:30.320] and I know I'll be criticized some day,
+- [01:37:31.870] they'll look back
+- [01:37:33.080] and they'll say, "Well, it wasn't."
+- [01:37:35.010] But I think it will.
+- [01:37:36.230] I think we're going to have a tremendous --
+- [01:37:37.990] I want, this is one of the most --
+- [01:37:39.380] this is the most important,
+- [01:37:40.600] there's nothing more important than me.
+- [01:37:42.480] We cured inflation that Biden gave us.
+- [01:37:44.880] He gave us so much inflation, the biggest ever in history.
+- [01:37:49.150] We got inflation done, we brought prices down,
+- [01:37:51.720] we gave you the largest tax cuts.
+- [01:37:53.360] All of that stuff, it doesn't mean a thing compared
+- [01:37:55.240] to what we're doing today. This means everything.
+- [01:37:59.010] So we're going to save a lot of children
+- [01:38:03.760] from a tough life, a really tough life.
+- [01:38:06.200] We're going to save a lot of parents from a tough life.
+- [01:38:08.380] Okay, how about a few questions.
+- [01:38:09.720] Let's just make it on this subject.
+- [01:38:11.260] This is so beyond as a subject
+- [01:38:13.980] that I'd rather not talk about some nonsense on the economy.
+- [01:38:18.260] And I will say this, the economy is unbelievable.
+- [01:38:22.260] The stock market just hit another record high
+- [01:38:24.360] and all that stuff.
+- [01:38:25.710] This means more to me. Yeah, please?
+- [01:38:27.350] The Press: Mr. President. I have one on your announcement,
+- [01:38:30.260] one on vaccines. That's also related.
+- [01:38:31.690] The President: Yes.
+- [01:38:33.110] The Press: Why do you think we haven't heard more previously
+- [01:38:36.100] about the tie to autism in acetaminophen?
+- [01:38:39.180] The President: Nobody knows. I don't know.
+- [01:38:41.200] Not only that, when you say it, you get attacked.
+- [01:38:45.560] I was saying something similar, not as strongly,
+- [01:38:48.560] because now facts are on our side.
+- [01:38:51.240] But I was saying it with Bobby 20 years ago,
+- [01:38:53.440] and I was attacked.
+- [01:38:54.650] I said, "Whoa. What was that all about?"
+- [01:38:56.380] I had no idea. You get attacked. I don't know.
+- [01:38:58.960] The medical community, the drug companies, doctors,
+- [01:39:03.740] I don't know what it is.
+- [01:39:05.220] All I want to do -- I don't care.
+- [01:39:06.590] I don't care about being attacked.
+- [01:39:07.950] It doesn't matter to me.
+- [01:39:10.240] I believe that the numbers at the end of our term
+- [01:39:13.330] or shortly thereafter could be really phenomenal.
+- [01:39:17.130] I want it to go up just like it came down
+- [01:39:19.600] to this horrible level. 1 in 10? 1 in 12?
+- [01:39:24.030] I was told 1 in 10, I was told 1 in 12.
+- [01:39:26.410] Today I heard 1 in 31,
+- [01:39:27.930] if you add the girls and the boys together.
+- [01:39:30.910] It's crazy. And it was 1 in 10,000 and 1 in 20,000.
+- [01:39:35.690] It's not even sustainable for a country,
+- [01:39:37.490] you want to know the truth.
+- [01:39:38.990] And there are other places that don't have it
+- [01:39:42.130] and they have things in common
+- [01:39:43.640] and that's called medical research.
+- [01:39:45.050] Yeah, please.
+- [01:39:46.310] The Press: Mr. President, I'm curious,
+- [01:39:47.550] as you look at the trend lines,
+- [01:39:49.510] how much of this is the causation of acetaminophen
+- [01:39:54.110] and how much is better diagnosis,
+- [01:39:56.180] doctors, researchers having a better understanding
+- [01:39:58.790] of what is on the autism spectrum?
+- [01:40:02.090] The President: Do you want to do that?
+- [01:40:03.320] Sure, go ahead, Rob.
+- [01:40:06.040] Secretary Kennedy: That's one of the canards
+- [01:40:08.300] that has been promoted by the industry for many years,
+- [01:40:11.570] that it's changed diagnostic criteria or better recognition.
+- [01:40:17.060] But there's been study after study done of that,
+- [01:40:20.030] that completely debunks that.
+- [01:40:23.380] One of them by the Mind Institute at UC Davis,
+- [01:40:26.580] University of California.
+- [01:40:29.590] But also it's just common sense,
+- [01:40:32.170] because you're only seeing this in people
+- [01:40:34.540] who are under 50 years of age.
+- [01:40:37.850] If it were better recognition or diagnosis,
+- [01:40:40.380] you'd see it in 70-year-old men.
+- [01:40:42.200] I've never seen this happening in people my age.
+- [01:40:47.820] I've never seen a case of full-blown autism,
+- [01:40:52.160] and that means profound autism, I want to be very careful,
+- [01:40:56.170] head banging, stimming, toe walking,
+- [01:40:59.390] nonverbal, non-toilet trained.
+- [01:41:01.530] I've never in my life seen a 70-year-old man
+- [01:41:05.050] who looks like that.
+- [01:41:06.610] You're only seeing it in kids. It's an epidemic.
+- [01:41:11.920] The Press: Thank you, Mr. President.
+- [01:41:15.400] I was hoping that you could clear up confusion for moms
+- [01:41:17.920] and dads across America, many of whom voted for you.
+- [01:41:22.390] There's a statement that was put out
+- [01:41:24.050] by the American College of Obstetricians and Gynecologists
+- [01:41:27.960] and in their statement they write,
+- [01:41:30.950] "Acetaminophen remains a safe,
+- [01:41:33.230] trusted option for pain relief during pregnancy."
+- [01:41:36.070] And that's at odds with what you said
+- [01:41:37.920] and with what many of the experts say.
+- [01:41:39.570] How do you clear up this confusion?
+- [01:41:40.900] The President: It's the establishment.
+- [01:41:42.610] That's the establishment.
+- [01:41:44.080] They're funded by lots of different groups.
+- [01:41:47.680] And you know what? Maybe they're right.
+- [01:41:50.730] I don't think they are,
+- [01:41:52.270] because I don't think the facts bear it out at all.
+- [01:41:55.320] They're fighting for something that, in my opinion,
+- [01:41:58.490] they shouldn't be fighting for.
+- [01:42:00.020] But here's the thing, there's no downside to doing --
+- [01:42:04.920] other than a mother will have to,
+- [01:42:06.910] as I say, tough it out a little bit.
+- [01:42:08.550] There's no downside to doing this.
+- [01:42:10.070] It's not like, oh, if you do this, you're going to die.
+- [01:42:14.140] There's no downside.
+- [01:42:15.850] There's no downside to going over a four-year
+- [01:42:18.380] or a five-year period or a three-year period.
+- [01:42:21.210] Or even if you space them out for six months,
+- [01:42:24.320] you space it out, there's no downside.
+- [01:42:26.810] And that's why I will say the gentlemen behind me,
+- [01:42:30.960] they have very strong views and they feel that we're right,
+- [01:42:34.930] but they'll have more research done over the next two months.
+- [01:42:37.640] I said, well, two months is a long time.
+- [01:42:40.670] A lot of people could be saved
+- [01:42:43.020] and there's no downside to doing it.
+- [01:42:45.700] Everything I said, there's no downside to doing.
+- [01:42:48.210] It can only be good.
+- [01:42:50.260] And I think you're going to see very good results.
+- [01:42:52.360] That's establishment stuff.
+- [01:42:53.940] And we've been reading that about a lot of things for years,
+- [01:42:58.250] and you know what's happened?
+- [01:42:59.460] We've gone from 1 in 20,000 to 1 in 10,000,
+- [01:43:03.130] to 1 in 32, to 1 in 10.
+- [01:43:05.800] Think of it, 1 in 10 or 12, or 1 in 31.
+- [01:43:09.050] Think of it, 1 in 31 people, young kids get autism?
+- [01:43:14.660] What is it, Jeff?
+- [01:43:16.660] The Press: My question is about leucovorin.
+- [01:43:18.700] You mentioned that as part of your plan.
+- [01:43:21.870] That is also a chemotherapy treatment.
+- [01:43:23.960] Have you been in touch with the drug companies
+- [01:43:25.610] to increase production about that?
+- [01:43:26.860] The President: Why don't I have the doctor answer that?
+- [01:43:28.170] The Press: And just, I'm going to throw
+- [01:43:29.460] in my follow-up at the same time.
+- [01:43:30.700] Dr. Oz mentioned that this will be available with CHIP,
+- [01:43:33.840] the children who are on CHIP,
+- [01:43:35.390] but the Big Beautiful Bill reduced funding for CHIP
+- [01:43:38.440] and Medicaid by a trillion dollars over the next 10 years.
+- [01:43:41.940] Are you concerned that that will impact your ability
+- [01:43:43.740] to get this drug out?
+- [01:43:44.980] The President: I'll explain it to you in a second,
+- [01:43:46.200] but please go ahead, doctor.
+- [01:43:47.410] Commissioner Makary: Thank you.
+- [01:43:48.620] Leucovorin is not a chemotherapy,
+- [01:43:50.480] but it is a vitamin given with chemotherapy sometimes.
+- [01:43:54.150] And the idea here is that the folic acid receptor in the brain
+- [01:43:57.130] is blocked by some antibody response,
+- [01:43:58.930] might be 20, 40, 50 percent of kids with autism
+- [01:44:02.290] and leucovorin will bypass that blocked receptor.
+- [01:44:05.300] And that's why so many doctors are probably seeing
+- [01:44:07.670] so much clinical improvement on kids with leucovorin.
+- [01:44:09.860] The Press: So are you going to increase production?
+- [01:44:11.100] Have you been talking with companies?
+- [01:44:12.300] Commissioner Makary: Yeah, we've been in touch with the companies
+- [01:44:13.980] and they are prepared to ramp up production
+- [01:44:16.710] and we actually talked to them about a month ago.
+- [01:44:19.490] The President: And on your second part
+- [01:44:20.700] of your nasty question,
+- [01:44:22.670] the number is that the great Big Beautiful Bill,
+- [01:44:25.900] which is the greatest, I think,
+- [01:44:28.540] one of the best things ever passed in the history
+- [01:44:30.600] with the tax cuts and regulation cuts
+- [01:44:32.930] and all of the things it does, no tax on tips,
+- [01:44:35.700] no tax on Social Security, no tax on overtime.
+- [01:44:38.570] All of it does.
+- [01:44:39.870] It also gives $200 million, as just explained by Dr. Oz.
+- [01:44:44.460] And I'd like you to explain that, doctor,
+- [01:44:46.320] to exactly what you're saying.
+- [01:44:48.600] Administrator Oz: The Big Beautiful Bill
+- [01:44:49.830] actually increases Medicaid spending projected
+- [01:44:51.880] over the next 10 years by $200 billion.
+- [01:44:55.140] There's also a $50 billion rural health transformation fund,
+- [01:44:58.430] which will allow a lot of these programs
+- [01:45:00.000] to get in the rural parts of the country
+- [01:45:01.300] that the President and Congress
+- [01:45:03.100] are handing to governors to start distributing.
+- [01:45:05.330] Those grants have already gone out.
+- [01:45:07.120] The money will be allocated by the end of this calendar year.
+- [01:45:10.260] And I want to point out that the ability of NIH
+- [01:45:12.740] to do research that feeds and hands the ball to the FDA,
+- [01:45:16.210] which then can change labeling to allow Medicaid programs
+- [01:45:20.000] in states to fund this program, will ensure that the things
+- [01:45:23.200] that President Trump and Secretary Kennedy desire
+- [01:45:25.190] are financially affordable for the families around America.
+- [01:45:28.450] The Press: You mentioned CHIP, sir,
+- [01:45:29.650] that's why I asked that question.
+- [01:45:30.910] You mentioned that CHIP would fund this for children.
+- [01:45:33.470] Administrator Oz: Well, most of the kids are on Medicaid,
+- [01:45:35.170] probably 43 percent on Medicaid, another 8, 10 percent on CHIP,
+- [01:45:38.490] and all the programs in general are being evaluated.
+- [01:45:40.990] Most of what the One Big Beautiful Bill
+- [01:45:42.820] was seeking to do was to remove fraud, waste, and abuse.
+- [01:45:45.550] But the programs themselves should stay financially intact
+- [01:45:47.810] for the people for whom they were designed
+- [01:45:49.880] and in this case for children.
+- [01:45:51.630] The President: And the only thing we cut --
+- [01:45:54.580] so that's 200 billion positive.
+- [01:45:57.220] The only thing we cut was for fraud, waste, and abuse,
+- [01:46:00.190] of which there was a lot in this country
+- [01:46:02.270] and nobody minds that. Yeah, please.
+- [01:46:04.600] The Press: Mr. President, you said that there was
+- [01:46:06.140] no reason to give newborn babies hepatitis B vaccines,
+- [01:46:09.680] but hepatitis B can be contracted
+- [01:46:11.720] not just during sexually transmitted diseases,
+- [01:46:14.110] it can come from needles to open wounds.
+- [01:46:16.730] So when you say you feel, is that appropriate to these-
+- [01:46:20.380] The President: I think it's absolutely appropriate.
+- [01:46:21.840] I think they should wait till they're 12 years old.
+- [01:46:23.570] Yes, please.
+- [01:46:24.810] The Press: Mr. President, thank you all for being here.
+- [01:46:26.460] You've been talking about reducing autism
+- [01:46:28.180] by spacing out vaccines.
+- [01:46:29.590] Would you like other combined vaccines babies
+- [01:46:31.750] received to be spaced out like MMRV?
+- [01:46:34.160] The President: What is this -- again? Speak up, please.
+- [01:46:38.210] The Press: Sir.
+- [01:46:39.480] You've been talking about reducing autism
+- [01:46:41.150] by spacing out vaccines.
+- [01:46:42.390] The President: Right. Correct.
+- [01:46:43.600] The Press: Would you like the other combined vaccines
+- [01:46:44.890] (inaudible)
+- [01:46:46.090] babies receive to be spaced out like MMRV?
+- [01:46:48.560] The President: I would say yes, but that just is,
+- [01:46:51.480] for me it's a lot of common sense involved in this,
+- [01:46:54.040] it's a process, but we're looking,
+- [01:46:55.890] but it should at least be given separately.
+- [01:46:59.770] Now, it's possible that you can reduce them and give --
+- [01:47:02.140] I'd give them in small doses,
+- [01:47:03.670] but it's possible maybe in that particular case
+- [01:47:05.950] the MMR wouldn't work in small doses,
+- [01:47:08.340] but you can certainly give them the separate shots.
+- [01:47:11.360] It's been proven to be very safe
+- [01:47:13.110] when you give them in separate shots instead of mixing.
+- [01:47:16.120] So, I don't think there's any reason to do that.
+- [01:47:17.810] Do you agree with it?
+- [01:47:19.390] I'm not a doctor, but I'm giving my opinion.
+- [01:47:21.240] I don't think there's any reason to do that.
+- [01:47:22.840] So, it's been proven to be safe when you break them up.
+- [01:47:25.330] But MMR by itself,
+- [01:47:26.600] I've heard bad things about it for many years.
+- [01:47:28.790] Yes, please.
+- [01:47:30.010] The Press: Mr. President, is the spectrum too broad,
+- [01:47:32.430] in your opinion, for research purposes?
+- [01:47:34.640] You are dealing with a population of children
+- [01:47:36.390] who might have social boundary difficulties,
+- [01:47:39.140] and then you have children who are going to grow up
+- [01:47:41.660] to be adults in diapers. I mean, what do you think?
+- [01:47:45.070] The President: We don't know how broad the spectrum is.
+- [01:47:46.980] We don't know exactly where it starts and where it ends,
+- [01:47:49.200] but we do know what we're going through.
+- [01:47:50.660] We're going through some very serious trouble.
+- [01:47:52.980] And we know autism.
+- [01:47:55.040] I mean, it could be bigger or it could be a little bit smaller,
+- [01:47:58.510] but the number is unacceptable.
+- [01:48:00.210] And the number, the way it's come down --
+- [01:48:02.010] because the spectrum has remained the same.
+- [01:48:04.220] The number, of the way it's come down is just unacceptable.
+- [01:48:08.380] Meaning, come down to that level of 1 in 10,
+- [01:48:11.800] 1 in 12, 1 in 31. Go ahead, in the back.
+- [01:48:16.920] The Press: Mr. President, this question is more directed
+- [01:48:19.200] towards Secretary Kennedy.
+- [01:48:21.480] It was talked about that we're just kind of finding out
+- [01:48:23.750] about the fact that babies are affected this way.
+- [01:48:30.410] Is there a concern that information's
+- [01:48:32.450] being suppressed right now within HHS
+- [01:48:35.690] and could a investigation perhaps be launched
+- [01:48:38.380] seeing any more information-
+- [01:48:40.120] The President: Well, I think information has been
+- [01:48:42.180] really not given out very freely over the years, absolutely.
+- [01:48:47.060] And I think that's by drug companies and maybe doctors,
+- [01:48:49.980] but I certainly think that over the years.
+- [01:48:52.820] I think this is a different group.
+- [01:48:54.490] We have a lot of information, and that information,
+- [01:48:58.310] I mean, it's the information that we have
+- [01:49:00.050] that we're making these statements.
+- [01:49:01.960] And I'm making them out front and I'm making them loud
+- [01:49:05.300] and I'm making them strongly not to take Tylenol, not to take it.
+- [01:49:09.840] Just don't take it unless it's absolutely necessary,
+- [01:49:13.420] and there's not too many cases where that will be the case.
+- [01:49:17.520] And again, what's the worst? The worst is nothing can happen.
+- [01:49:22.570] It's very positive. That's a positive thing,
+- [01:49:25.110] but I don't actually believe that's possible.
+- [01:49:28.410] I think the results are going to be amazing.
+- [01:49:30.150] I want to see amazing results
+- [01:49:32.620] by the time I leave this beautiful building.
+- [01:49:39.600] I believe with the wars I've stopped seven different wars.
+- [01:49:42.900] I've saved millions of lives. I've done a lot of things.
+- [01:49:45.140] This will be as important as any single thing I've done,
+- [01:49:48.790] because I know beautiful ladies, just like this,
+- [01:49:52.010] that are going through the same thing and it's not easy,
+- [01:49:54.700] and I admire you for being able to do it,
+- [01:49:57.140] but I admire him too.
+- [01:49:58.420] I wish I had a face that looked like that.
+- [01:50:00.360] If I looked like him, I would've been president a long time ago.
+- [01:50:05.110] The Press: Tylenol is widely used in other countries too.
+- [01:50:09.760] As you make this announcement,
+- [01:50:10.990] do you expect your decision may affect other countries?
+- [01:50:13.540] The President: I hope they follow it.
+- [01:50:14.780] Yeah. I hope they follow it. Yeah.
+- [01:50:16.420] Other countries sell Tylenol. Some countries don't.
+- [01:50:20.690] I mean, I hear Cuba -- now, again,
+- [01:50:22.560] you'll have to check this out,
+- [01:50:24.590] but I hear Cuba doesn't have it because it's very expensive
+- [01:50:28.190] and they don't have the money to have it,
+- [01:50:29.670] or they don't want to spend the money to have it.
+- [01:50:31.500] They don't have Tylenol,
+- [01:50:33.350] and I hear they have essentially no autism,
+- [01:50:36.210] so you'll have to check it out.
+- [01:50:40.180] The Press: Mr. President, medical professionals
+- [01:50:42.150] have warned for decades --
+- [01:50:43.410] The President: No, no, not you. You're CNN. You're fake news.
+- [01:50:44.840] Go ahead, Brian.
+- [01:50:46.070] The Press: Thank you, Mr. President.
+- [01:50:47.310] I want to go back to the Amish community
+- [01:50:48.730] if I can just for a second.
+- [01:50:49.940] I recently saw a man from Minnesota,
+- [01:50:52.450] an Amish man from Minnesota on a podcast,
+- [01:50:55.160] and the host asked him what the rates were for,
+- [01:50:57.830] like, ADHD and autism, and he had no idea about ADHD.
+- [01:51:02.280] He didn't know that existed
+- [01:51:03.860] and certainly didn't know of any cases.
+- [01:51:05.120] What are they doing --
+- [01:51:06.340] The President: It doesn't exist with the Amish community
+- [01:51:08.720] and they don't take all of this junk.
+- [01:51:12.260] It doesn't exist.
+- [01:51:14.800] That tells you -- doesn't that tell you?
+- [01:51:17.770] That's like certain countries where it doesn't exist
+- [01:51:20.990] and they don't take it.
+- [01:51:22.200] Would you like to make a comment about that, Marty?
+- [01:51:24.750] Commissioner Makary: The Amish population
+- [01:51:25.990] are a very mixed group.
+- [01:51:27.230] So there's a subset that take vaccines
+- [01:51:29.390] and a subset that does not.
+- [01:51:31.170] And we know they have very low rates of chronic disease
+- [01:51:33.740] all across the board.
+- [01:51:37.320] The President: Please.
+- [01:51:38.570] The Press: Thank you, Mr. President.
+- [01:51:39.800] Should the establishment media show at least some openness
+- [01:51:43.140] to trying to figure out what the causes of autism are?
+- [01:51:45.170] The President: I wish they would. Yeah.
+- [01:51:46.380] The Press: Why are they so closed-minded?
+- [01:51:48.690] The President: Well, look,
+- [01:51:50.020] it's not only the media, in all fairness.
+- [01:51:51.760] It's some people, when you talk about vaccines, they go crazy.
+- [01:51:57.310] And I'm a big supporter of vaccines.
+- [01:51:59.990] I got a certain vaccine approved in nine months
+- [01:52:02.280] that would've taken from five to 12 years.
+- [01:52:04.360] I'm very proud of it. A lot of people think
+- [01:52:05.970] it was one of the greatest things I've done.
+- [01:52:07.740] And some people think, mostly Republicans, actually --
+- [01:52:12.520] I'll tell you, the Democrats think it was --
+- [01:52:14.010] they think Operation Warp Speed was one of the greatest things
+- [01:52:17.020] any president has done, any president.
+- [01:52:20.000] We're very proud of what happened.
+- [01:52:22.900] We got hit with something that came from a place
+- [01:52:25.750] that shouldn't have happened, but it did happen.
+- [01:52:28.210] Those things take place
+- [01:52:30.110] and you're very unpleasantly surprised.
+- [01:52:33.030] But no, I'm a big believer in vaccines, the polio vaccine.
+- [01:52:36.840] Big, big believer in vaccines.
+- [01:52:38.500] I know Bobby and you guys have it out a little bit,
+- [01:52:41.020] but he's a believer in vaccines too.
+- [01:52:43.340] But I've seen how great vaccines can be,
+- [01:52:47.520] how incredible they can be. So, I'm a believer. Yeah.
+- [01:52:54.000] Yeah. Please?
+- [01:52:56.590] The Press: Your comment to me about MMR and hepatitis B,
+- [01:52:59.390] you said those were your suggestions,
+- [01:53:00.890] but have you spoken with Secretary Kennedy
+- [01:53:02.670] about actually making those changes?
+- [01:53:04.200] The President: I have. Yeah, I have.
+- [01:53:05.460] I've spoken to all the doctors about it,
+- [01:53:07.260] and doctors that are not here right now.
+- [01:53:10.500] I've spoken to many doctors
+- [01:53:11.790] about everything we're talking about.
+- [01:53:14.660] And the Tylenol has started to be spoken of over
+- [01:53:18.800] the last period of time,
+- [01:53:20.450] but we've been doing the research.
+- [01:53:22.010] A lot of what they've been speaking about
+- [01:53:23.830] comes from right here by research done by these people.
+- [01:53:28.660] And I just say it again, don't take Tylenol,
+- [01:53:33.800] don't take it and don't give it to your child after your child
+- [01:53:38.570] is born and do all those other things, little things,
+- [01:53:42.030] just spread out your visits, et cetera,
+- [01:53:43.770] et cetera, on the vaccine. And I want to thank everybody.
+- [01:53:46.690] This is a very important day. Thank you very much.

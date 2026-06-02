@@ -1,0 +1,1030 @@
+<!-- source: https://www.youtube.com/watch?v=MVyVfkL7PwM -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: MVyVfkL7PwM -->
+<!-- date_published: 2025-03-21T16:21:21+00:00 -->
+<!-- date_accessed: 2026-06-02T02:52:36.290410+00:00 -->
+
+# Transcript: President Trump and Secretary of Defense Pete Hegseth Deliver Remarks
+
+- [00:03.120] The President: -- a meeting yesterday
+- [00:04.340] on the Department of Education, which is being moved.
+- [00:08.070] We're going to educate the children in their states,
+- [00:10.960] where they can get a proper education.
+- [00:13.810] The numbers are horrible the way it is,
+- [00:16.570] and we're going to make a move that's very big.
+- [00:19.160] I don't think it's even risky a little bit.
+- [00:21.060] I think it's going to be amazing.
+- [00:23.350] It should have been done years ago.
+- [00:24.820] They've been talking about doing it for many years,
+- [00:26.700] but nobody ever got it off. But we did.
+- [00:30.590] And there was great excitement and great acceptance of it
+- [00:34.840] by almost everybody, including a lot of Democrats, actually.
+- [00:39.180] I do want to say that I've decided that the SBA,
+- [00:42.660] the Small Business Administration,
+- [00:45.150] headed by Kelly Loeffler, who's terrific person,
+- [00:48.440] will handle all of the student loan portfolio.
+- [00:52.060] We have a portfolio that's very large, lots of loans,
+- [00:56.880] tens of thousands of loans, pretty complicated deal.
+- [01:01.350] And that's coming out of the Department of Education
+- [01:04.150] immediately,
+- [01:05.430] and it's going to be headed up by Kelly Loeffler, SBA,
+- [01:08.420] and they're all set for it. They're waiting for it.
+- [01:10.980] It'll be serviced much better than it has in the past.
+- [01:14.170] It's been a mess.
+- [01:16.320] And also Bobby Kennedy, the Health and Human Services,
+- [01:19.400] will be handling special needs
+- [01:22.200] and all of the nutrition programs and everything else.
+- [01:25.380] Rather complex, but that's going to be headed by
+- [01:29.120] and handled by Health and Human Services.
+- [01:32.070] So, I think that'll work out very well.
+- [01:33.770] Those two elements will be taken out
+- [01:35.950] of the Department of Education,
+- [01:38.600] and then all we have to do is get the students
+- [01:41.160] to get guidance from the people that love them and cherish them,
+- [01:45.610] including their parents, by the way,
+- [01:47.630] who will be totally involved in their education,
+- [01:49.780] along with the boards and the governors and the states.
+- [01:52.580] And it's going to be great.
+- [01:53.930] It's going to be a great situation.
+- [01:55.350] I guarantee that in a few years from now,
+- [01:58.590] I hope I'm going to be around to see it,
+- [02:00.750] but I think we're going to see a lot of it.
+- [02:02.760] I think that you're going to have tremendous results.
+- [02:05.500] You're going to have results like Norway, Sweden, Denmark,
+- [02:09.260] a lot of the countries that do so well.
+- [02:12.010] I think you're going to have a lot of those results.
+- [02:13.750] If you look at Iowa and Indiana and Idaho,
+- [02:17.930] so many places that run so well, Florida, Texas,
+- [02:22.290] big ones, you're going to have great education,
+- [02:25.510] much better than it is now, at half the cost.
+- [02:28.750] And we're not even doing it as a cost item,
+- [02:30.900] although you will save probably half, maybe more than that.
+- [02:34.720] And you're not going to be at the bottom of the list,
+- [02:36.620] you're going to be much higher. And maybe you'll be…
+- [02:39.340] I will guarantee some of the states
+- [02:41.070] will be at the top of the list. They'll be comparable or better
+- [02:44.090] than these number one, two, three, four,
+- [02:46.370] five, the countries that are in the top five positions.
+- [02:50.960] So to me, it's very exciting,
+- [02:52.760] and it's been received very well.
+- [02:54.140] So, I just want to tell you about the student loans
+- [02:56.330] and special needs.
+- [02:58.770] But we're here for a reason today that is very exciting,
+- [03:02.580] and I'm thrilled to announce that at my direction,
+- [03:06.170] the United States Air Force is moving forward
+- [03:08.520] with the world's first sixth-generation fighter jet.
+- [03:12.460] Number six, sixth generation.
+- [03:15.420] Nothing in the world comes even close to it,
+- [03:18.680] and it'll be known as the F-47. The generals picked a title
+- [03:23.310] and it's a beautiful number, F-47.
+- [03:28.290] It's something the likes of which nobody has seen before,
+- [03:32.950] in terms of all of the attributes of a fighter jet.
+- [03:36.570] There's never been anything even close to it,
+- [03:38.280] from speed to maneuverability to what it can have to payload.
+- [03:43.520] And this has been in the works for a long period of time.
+- [03:47.890] After a rigorous and thorough competition
+- [03:50.370] between some of America's top aerospace companies,
+- [03:53.090] the Air Force is going to be awarding the contract
+- [03:56.330] for the Next Generation Air Dominance platform to Boeing.
+- [04:01.680] As you know, it was highly competed for.
+- [04:04.640] There was a lot of competition, generals,
+- [04:07.210] and it's been going on for a long time.
+- [04:10.790] Very, very tough competition.
+- [04:12.440] But this plane is produced numbers
+- [04:16.180] that nobody's ever seen before.
+- [04:17.810] The F-47 will be the most advanced,
+- [04:20.610] most capable, most lethal aircraft ever built.
+- [04:25.080] An experimental version of the plane
+- [04:26.860] has secretly been flying for almost five years,
+- [04:30.160] and we're confident that it massively overpowers
+- [04:33.720] the capabilities of any other nation.
+- [04:35.890] There's no other nation. We know every other plane.
+- [04:38.230] I've seen every one of them.
+- [04:39.920] And it's not even close. This is next level.
+- [04:43.960] Level five is good; this is level six, they say.
+- [04:46.350] The F-47 is equipped with state-of-the-art
+- [04:49.440] stealth technologies,
+- [04:51.810] virtually unseeable, and unprecedented power.
+- [04:56.460] It's got the most power of any jet of its kind ever made.
+- [05:01.930] Maneuverability likewise,
+- [05:04.760] there's never been anything like it,
+- [05:06.330] despite the power and speed. Its speed is top.
+- [05:11.710] So, over two, which is something that you don't hear very often.
+- [05:17.090] America's enemies will never see it coming.
+- [05:20.160] Hopefully we won't have to use it for that purpose,
+- [05:22.140] but you have to have it. And if it ever happens,
+- [05:27.350] they won't know what the hell hit them.
+- [05:30.050] A new fleet of these magnificent planes will be built
+- [05:33.740] and in the air during my administration,
+- [05:35.800] over the next couple of years.
+- [05:37.690] It's ready to go, they've already built
+- [05:40.690] much of what has to be built in terms of production,
+- [05:44.320] including the sheds.
+- [05:46.070] We'll ensure that the USA continues to dominate the skies.
+- [05:49.510] We've given an order for a lot. We can't tell you the price,
+- [05:52.620] because it would give way to some of the technology
+- [05:57.130] and some of the size of the plane.
+- [05:59.250] It's a good-sized plane.
+- [06:00.950] This contract also represents a historic investment
+- [06:03.920] in our defense industrial base, helping to keep America
+- [06:06.520] at the cutting edge of aerospace and technology.
+- [06:09.650] Our allies are calling constantly,
+- [06:12.420] they want to buy them also.
+- [06:14.110] And certain allies, we'll be selling them
+- [06:17.600] perhaps toned-down versions.
+- [06:19.800] We'd like to tone them down about 10%,
+- [06:22.430] which probably makes sense,
+- [06:23.950] because someday maybe they're not our allies, right?
+- [06:26.920] But I would like to ask Secretary Hegseth,
+- [06:29.970] who's doing a fantastic job,
+- [06:32.930] he's really, really been very inspiring in so many ways.
+- [06:36.420] And I must say that before he speaks,
+- [06:39.350] we have had record people
+- [06:42.120] wanting to join our military in the last two
+- [06:45.910] and a half months, literally since this…
+- [06:49.490] I think probably since the election, November 5th,
+- [06:52.230] but especially since we came to office,
+- [06:55.590] and since I announced Pete, he's young, he's smart,
+- [06:59.630] he's strong, he loves it and they love him.
+- [07:02.390] But we've had record numbers of people
+- [07:05.690] wanting to join our military.
+- [07:07.130] Now, if you go back six months, it was the exact opposite.
+- [07:10.910] You had record numbers of people
+- [07:12.440] not wanting to join the military.
+- [07:14.080] Now you have record numbers of people
+- [07:16.260] wanting to be in our military. And that's a great honor.
+- [07:21.180] That shows you we're really on the right track.
+- [07:23.120] So, Pete, maybe say a few words, please.
+- [07:24.810] Mr. Hegseth: Sure.
+- [07:26.080] Well, Mr. President, this is a big day.
+- [07:28.010] This is a big day for our warfighters,
+- [07:29.720] this is a big day for our country,
+- [07:31.590] a big day in the world. The name of this program
+- [07:34.190] is the Next Generation of Air Dominance.
+- [07:38.240] And Mr. President, because of your leadership, your clarity,
+- [07:42.560] America is going to have generations
+- [07:45.730] in the future of air dominance
+- [07:48.130] because of this sixth-generation fighter.
+- [07:51.680] We've had the F-15, we had the F-16,
+- [07:54.390] the F-28, the F-22, the F-35. Now we have the F-47,
+- [08:00.580] which sends a very direct, clear message to our allies,
+- [08:04.960] that we're not going anywhere, and to our enemies,
+- [08:07.380] that we will be able to project power around the globe,
+- [08:10.990] unimpeded, for generations to come.
+- [08:13.390] Mr. President, this is a gift to my kids and your kids,
+- [08:17.140] to my grandkids and your grandkids.
+- [08:19.650] This is a historic investment in the American military,
+- [08:23.550] in the American industrial base, in American industry,
+- [08:26.830] that will help revive the warrior ethos
+- [08:29.320] inside our military,
+- [08:30.710] which we're doing, rebuild our military,
+- [08:33.180] which the previous administration did not do,
+- [08:35.150] by the way, Mr. President, they paused this program,
+- [08:38.060] and were prepared to potentially scrap it.
+- [08:40.380] We know this is cheaper, longer-range, and more stealthy.
+- [08:43.640] President Trump said we're reviving it and we're doing it.
+- [08:47.330] And then we are also going to reestablish deterrence.
+- [08:50.000] Under the previous administration,
+- [08:51.630] we looked like fools. Not anymore.
+- [08:54.690] President Trump has reestablished
+- [08:56.170] American leadership, the F-47 is part of it.
+- [08:58.740] And Mr. President, thank you-
+- [09:00.060] The President: Thank you very much.
+- [09:01.290] Mr. Hegseth: -- for having the courage to do it
+- [09:02.630] and leading the way for all our warfighters.
+- [09:04.280] The President: Thank you very much, Pete.
+- [09:05.790] One of the things I will say, but the generals are going
+- [09:09.330] to speak in just a couple of seconds,
+- [09:11.210] but this plane flies with drones.
+- [09:13.680] It flies with many, many drones, as many as you want.
+- [09:16.960] And it's a technology that's new,
+- [09:19.540] but it doesn't fly by itself,
+- [09:21.860] it flies with many drones, as many as we want.
+- [09:25.770] And that's something that no other plane can do.
+- [09:28.750] So, I'd like to introduce, if I might,
+- [09:30.830] Air Force Chief of Staff, General David Allvin,
+- [09:34.220] and also General Dale White.
+- [09:35.860] Two incredible people that I've known over the years,
+- [09:38.570] but I got to know them really well over the last few months.
+- [09:41.810] And would you say a few words, please, General?
+- [09:44.210] General Allvin: Thank you very much, Mr. President.
+- [09:45.480] Mr. President, Mr. Secretary,
+- [09:47.720] thank you so much for your unwavering commitment
+- [09:51.080] to our military. I'll say this is a big day.
+- [09:54.290] This is a big day for our United States Air Force as well.
+- [09:58.010] Air dominance is not a birthright,
+- [10:00.910] but it's become synonymous with American air power.
+- [10:03.970] But air dominance needs to be earned every single day.
+- [10:06.730] And since the earliest days of aerial warfare,
+- [10:09.180] brave American airmen have jumped into their machines,
+- [10:11.730] taken to the air, and they've cleared the skies.
+- [10:14.470] And whether that be clearing the skies
+- [10:15.810] so we can rain down destruction on our enemies from above,
+- [10:19.560] or we can clear the path for the ground forces below,
+- [10:22.600] that's been our commitment to the fight,
+- [10:24.180] and that's really been our promise to America.
+- [10:26.940] And with this F-47 as the crown jewel
+- [10:31.200] in the Next Generation Air Dominance
+- [10:32.820] family of systems, we're going to be able to keep
+- [10:35.050] that promise well into the future.
+- [10:38.070] I also want to thank everyone from industry
+- [10:40.950] and within government, our engineers,
+- [10:43.160] who have worked tirelessly on this program
+- [10:45.510] to bring it where we are right now today.
+- [10:47.700] This shows that American talent, American skill,
+- [10:50.030] and American determination are second to none,
+- [10:52.960] because this platform is second to none.
+- [10:55.670] So, we believe that this provides more lethality,
+- [10:59.910] it provides more capability, more modernized capability,
+- [11:03.130] in a way that is built to adapt.
+- [11:06.500] This, along with our collaborative combat aircraft
+- [11:08.530] the president talked about, with drones,
+- [11:10.880] this is allowing us to look into the future
+- [11:14.330] and unlock the magic that is human-machine teaming.
+- [11:17.630] And as we do that, we're going to write
+- [11:19.180] the next generation of modern aerial warfare with this.
+- [11:23.050] This enables us to do this.
+- [11:25.440] The manner in which we put this program
+- [11:27.030] together puts more control in the hands of the government,
+- [11:30.280] so we can update and adapt at the speed of relevance,
+- [11:32.760] at the speed of technology, not at the speed of bureaucracy.
+- [11:36.150] This is more Air Force.
+- [11:38.440] This is more options for the president.
+- [11:41.070] We say as our mission in the United States Air Force
+- [11:43.780] is to fly, fight, and win air power anytime, anywhere.
+- [11:46.330] If you want to go anywhere,
+- [11:47.640] you have to have a platform that gets you anywhere.
+- [11:49.720] This provides the president options;
+- [11:52.050] from the very one end, which is a quick response,
+- [11:56.400] and then we can get right back into fighting stance
+- [11:58.050] without having to deploy troops
+- [11:59.970] that are going to take maybe months and cost more lives,
+- [12:02.760] we can be back in fighting stance
+- [12:04.160] and maybe we restore that deterrence
+- [12:05.700] all the way to decisive victory as part of a joint force
+- [12:08.420] that is most lethal and capable military ever known in history.
+- [12:11.830] That's what we provide now,
+- [12:13.730] and this allows us to provide it into the future.
+- [12:16.460] It's more deterrence, more capability.
+- [12:19.460] It's what peace through strength
+- [12:20.690] looks like into the future, Mr. President.
+- [12:22.320] That's what we're very proud to do that.
+- [12:23.600] And all we can say is,
+- [12:24.940] on behalf of the United States Air Force, let's deliver.
+- [12:27.870] The President: Thank you very much.
+- [12:29.070] Thank you, General. Would you like to say something?
+- [12:30.750] General White: No, sir.
+- [12:31.970] I'll just double on what the chief said. This-
+- [12:33.260] The President: He knows what to do.
+- [12:34.480] He knows what to do. He knows who the boss is.
+- [12:35.900] Look at that. Excellent.
+- [12:37.220] General White: That's exactly right.
+- [12:38.440] There's priorities what it's all about,
+- [12:39.650] and this is what we'll deliver.
+- [12:40.920] The President: That's great. Thank you very much.
+- [12:42.120] Great job. We've worked together long and hard on this,
+- [12:44.440] and this was a big secret.
+- [12:46.630] In fact, we don't show too much of the plane for that reason.
+- [12:49.100] You see what we show? You see how beautiful that is.
+- [12:53.830] But that's just a very small part of it.
+- [12:56.070] General White: Yes, sir.
+- [12:57.770] The President: I wasn't surprised.
+- [12:59.060] I was wondering how much are you going to show,
+- [13:00.870] but they came in with that. You see a wheel in the front.
+- [13:03.650] That's about it.
+- [13:05.770] Any questions?
+- [13:07.060] The Press: Mr. President- The Press: President Trump-
+- [13:08.270] The President: Peter?
+- [13:09.480] The Press: 80,000 pages of documents
+- [13:10.950] is a lot to sift through.
+- [13:12.240] The President: Yeah.
+- [13:13.490] The Press: Can you just tell us who killed Kennedy?
+- [13:15.410] The President: Well, you know,
+- [13:16.640] I was given the task of releasing
+- [13:19.830] that because many presidents have gone through it
+- [13:22.380] and they haven't released. And I said, "Release."
+- [13:25.670] We even released social security numbers.
+- [13:27.590] I didn't want anything deleted.
+- [13:29.770] They said, "Sir, what about social security?"
+- [13:31.640] People long gone, but they're long gone.
+- [13:34.030] So, I can't imagine.
+- [13:35.330] But I said, "If you don't delete it, if you do delete it,
+- [13:38.910] we have people who are going to say,
+- [13:40.320] 'Why did you delete it? There's something in there."
+- [13:42.830] So, we gave social security and we gave everything.
+- [13:46.060] And the rest is for you to look at, Peter.
+- [13:48.080] You're going to see whether or not you see anything.
+- [13:50.680] But we've given it.
+- [13:51.980] We're doing it with Dr. Martin Luther King, too.
+- [13:54.810] They're preparing all of that.
+- [13:56.120] They're going to release everything
+- [13:58.310] and whoever else they want.
+- [14:03.200] We really have nothing to hide.
+- [14:05.500] We shouldn't have when a lot of time goes by.
+- [14:08.790] But with the Kennedy files in particular,
+- [14:11.320] they were going crazy on them.
+- [14:13.820] I don't think there's anything that's earth-shattering,
+- [14:17.620] but you'll have to make that determination.
+- [14:20.150] In those, it's 80,000… It's actually 88,000.
+- [14:23.340] And we have some additional things,
+- [14:25.320] as you know, come out today.
+- [14:27.610] And for that, you can go to the offices
+- [14:29.290] and you can see whatever you want to see.
+- [14:31.100] Everything is out there, totally open.
+- [14:34.280] The additional stuff is available later on today.
+- [14:37.390] You go over to the offices and you can have it immediately
+- [14:41.120] and you'll make a determination.
+- [14:42.700] The Press: And on something else,
+- [14:43.940] these Tren de Aragua guys, because of your executive order,
+- [14:47.610] they are designated as foreign terrorists.
+- [14:49.190] The President: Yeah.
+- [14:50.440] The Press: If ISIS or Al-Qaeda foreign terrorists
+- [14:53.370] were operating here in the United States,
+- [14:56.200] cops would probably be shooting first
+- [14:58.630] and asking questions later.
+- [15:00.660] And so what is the difference between terrorists
+- [15:04.450] between somebody like an ISIS or an Al-Qaeda operative
+- [15:07.480] versus a MS-13 or Tren de Aragua?
+- [15:10.380] The President: Well, these are people that focus
+- [15:12.340] on destroying people in their homes.
+- [15:15.150] They're not as international in that sense.
+- [15:19.550] They're a group of thugs. They come from Venezuela.
+- [15:22.240] They come from the prisons of Venezuela.
+- [15:24.840] They're very dangerous people.
+- [15:27.570] But they didn't look so dangerous
+- [15:28.960] when the guards took care of the situation from El Salvador.
+- [15:33.520] And I want to thank the president.
+- [15:34.940] He's a friend of mine. He's done a great job.
+- [15:38.560] But I just can't imagine
+- [15:41.230] that the Democrats are taking this issue
+- [15:43.060] where they want to have them back.
+- [15:45.040] So now they have men playing in women's sports.
+- [15:48.570] They have transgender for everyone.
+- [15:50.100] They have open borders.
+- [15:51.300] They have all of their crazy policies that are,
+- [15:53.780] I think 95-5, not 90-10, okay? And their new policy is,
+- [15:58.890] let's bring Tren de Aragua back into our country.
+- [16:02.810] Let's bring the worst…
+- [16:04.050] These are the worst gang members there are.
+- [16:06.350] They looked amazingly frail, though,
+- [16:09.740] by the way they were handled. It's very amazing.
+- [16:12.370] When they were in Colorado cutting the fingers off a man
+- [16:14.840] because he made a phone call to the police,
+- [16:17.100] they seemed a lot tougher then than they did
+- [16:20.030] when they were having their head shaved
+- [16:22.030] and they were in shackles.
+- [16:24.390] They're tough people, they're bad people.
+- [16:25.850] We don't want them in our country.
+- [16:27.120] We can't let a judge say that he wants them.
+- [16:30.010] He didn't run for president.
+- [16:31.280] He didn't get much more than 80 million votes.
+- [16:35.670] And we just can't let that happen.
+- [16:37.330] It'd be so bad for our country.
+- [16:39.700] I won on the basis of getting criminals
+- [16:41.880] out of our country that were let in.
+- [16:44.420] It was called unforced error. They were let in by Biden,
+- [16:48.380] incompetently let in and let in by the millions actually,
+- [16:52.550] 21 million people. I believe it's 21 million.
+- [16:56.430] And that's not even including the Gotaways,
+- [16:58.430] but these are rough people. We want them out of our country.
+- [17:01.120] And I won the election based, at least partly on that.
+- [17:04.470] And that's a big part. Yeah.
+- [17:06.090] Hold on. Hold on.
+- [17:10.310] The Press: I don't know if you saw this.
+- [17:11.590] Tim Walz is now saying about Trump supporters,
+- [17:14.780] and forgive me, I'm just reading a quote from Tim Walz,
+- [17:17.350] "I think I could kick most of their ass."
+- [17:19.740] The President: Oh boy. He'd be in trouble.
+- [17:21.080] The Press: Is there any way to know?
+- [17:22.310] The President: Well, he's a loser.
+- [17:23.550] The guy's a loser.
+- [17:26.030] He lost an election. He played a part.
+- [17:28.490] Usually a vice president doesn't play a part, they say.
+- [17:31.740] I think Tim played a part.
+- [17:33.070] I think he was so bad that he hurt her, but she hurt herself.
+- [17:36.580] And Joe hurt them both. They didn't have a great group.
+- [17:40.830] But I would probably put him at the bottom of the group.
+- [17:43.910] The Press: Have you heard that Biden wants to get back involved
+- [17:46.090] for Democratic politicians fundraising and campaigning
+- [17:49.270] against your policies? What do you think of that?
+- [17:51.000] The President: I hope so. I hope so.
+- [17:52.220] The Press: Mr. President,
+- [17:53.480] there's families from some of the people
+- [17:55.510] [inaudible]- The President: Who are you with?
+- [17:56.890] The Press: I'm with [inaudible]
+- [17:58.180] from Argentina. There are families
+- [17:59.680] from some of the people
+- [18:00.910] that were on those flights to El Salvador
+- [18:03.650] that claim that they're not criminals,
+- [18:05.470] they're not members of Tren de Aragua or MS-13.
+- [18:09.470] What can you tell them and what guarantees can you give them
+- [18:13.510] that everyone in those planes were actual criminals,
+- [18:17.180] terrorists, as you said?
+- [18:18.450] The President: Well, I was told that they went through
+- [18:19.770] a very strong vetting process
+- [18:21.960] and that that will also be continuing in El Salvador.
+- [18:27.420] And if there's anything like that,
+- [18:28.960] we would certainly want to find out.
+- [18:30.490] But these were a bad group.
+- [18:32.920] This was a bad group, and they were in bad areas
+- [18:35.320] and they were with a lot of other people
+- [18:36.960] that were absolutely killers, murderers,
+- [18:40.380] and people that were really bad
+- [18:42.920] with the worst records you've ever seen.
+- [18:46.360] But we will continue that process, absolutely.
+- [18:48.620] We don't want to make that kind of a mistake.
+- [18:50.120] The Press: Mr. President, is the US planning
+- [18:51.440] to give up the position of NATO's Supreme Allied Commander?
+- [18:54.570] And if so, why?
+- [18:56.900] The President: NATO is something that I saved.
+- [18:58.830] NATO was gone until I came along.
+- [19:01.290] In fact, the previous Secretary General,
+- [19:04.670] very good man, both of them are good.
+- [19:06.620] The current man is fantastic. But both of them said,
+- [19:10.500] "If it wasn't for Trump, you wouldn't even have a NATO"
+- [19:12.450] because we were paying the cost of almost all of the countries.
+- [19:16.550] And now they're paying. I said,
+- [19:17.840] "We're not going to do this, we're not going to continue…
+- [19:20.520] You hurt us on trade, you do bad things on trade.
+- [19:22.230] And then on top of it,
+- [19:23.510] we're supposed to pay for your military."
+- [19:25.680] And because of what I did, hundreds of billions of dollars
+- [19:29.270] flown into NATO by countries that just weren't paying.
+- [19:31.810] They were delinquent. They weren't paying their bills.
+- [19:35.050] So NATO is solid, they're strong,
+- [19:39.220] but they have to treat us fairly.
+- [19:42.110] The Press: Are we going to give up the-
+- [19:43.360] The President: Because look, without us,
+- [19:44.820] NATO is not the same. The Press: And we're giving-
+- [19:46.100] The President: And I can tell you,
+- [19:47.330] I've been having very good discussions, as you know,
+- [19:49.410] with President Zelensky and with President Putin.
+- [19:53.180] And President Putin will tell you that
+- [19:54.980] without the United States, he wouldn't be worried.
+- [20:00.180] But he is worried when the United States is involved.
+- [20:02.930] And I have to tell you,
+- [20:05.130] I've dealt very well with both gentlemen and we have…
+- [20:09.920] I think we have the confines of a deal.
+- [20:11.600] I hope we have the confines of a deal.
+- [20:13.190] I'm doing it for two reasons.
+- [20:15.210] Number one, and by far most importantly,
+- [20:18.410] thousands of young people, and they're not American people,
+- [20:21.750] they're Russian and they're Ukrainian
+- [20:23.310] are being killed every week, thousands a week.
+- [20:26.700] And also, the United States has paid,
+- [20:30.050] because of Biden, $350 billion on a war
+- [20:33.320] that should have never happened.
+- [20:35.370] If we had a competent president in this…
+- [20:37.930] Right sitting right here, that war would have never happened.
+- [20:40.150] It would have absolutely never happened with me.
+- [20:42.330] And it didn't happen for four years.
+- [20:43.630] It didn't happen.
+- [20:44.910] The Press: Mr. President,
+- [20:46.110] do you think you have the authority,
+- [20:47.400] the power to round up people, deport them,
+- [20:50.170] and then you're under no obligation to a court
+- [20:52.360] to show the evidence against them?
+- [20:53.980] The President: Well, that's what the law says
+- [20:55.190] and that's what our country needs
+- [20:56.630] because we were, unfortunately, they allowed millions of people
+- [21:01.920] to come into our country totally unvetted,
+- [21:04.210] totally unchecked. So you ought to ask,
+- [21:05.660] did he have the authority to allow millions of people?
+- [21:07.920] Did Biden have the authority to do something that's unthinkable,
+- [21:12.520] have open borders where millions of people
+- [21:15.100] poured into our country totally unvetted and totally unchecked,
+- [21:18.130] just as you would say.
+- [21:19.870] And many of those people were criminals.
+- [21:21.910] Many of them were from jails and prisons
+- [21:23.820] and mental institutions and gang members and drug dealers,
+- [21:28.690] and very dangerous people. Many were murderers.
+- [21:31.200] We have 11,088 that we know of murders, they murdered.
+- [21:35.390] Of that number, at least half killed more than one person.
+- [21:38.590] They were in our country. They're in a location near you.
+- [21:43.820] Biden allowed that to happen to our country
+- [21:47.070] and his people that really ran the country.
+- [21:49.950] And the person that operated the auto pen,
+- [21:52.970] I think we ought to find out who that was,
+- [21:54.520] because I guess that was the real president.
+- [21:56.270] So when you ask me if we have the authority,
+- [21:58.560] did Biden have the authority
+- [21:59.850] to allow millions of people to come into our country,
+- [22:02.810] many of these people hardened criminals at the top of the line
+- [22:07.320] who have caused tremendous damage in our country?
+- [22:10.600] You see them in New York City fighting with our police.
+- [22:13.320] Literally having fist fights in the street with our police.
+- [22:16.430] These are tough, hard criminals. Many of them came out of jails.
+- [22:20.850] And not just South America, from all over the world.
+- [22:23.280] They came out of from Africa, from the Congo,
+- [22:25.960] they came out from Asia, not just South America,
+- [22:29.390] but many from South America.
+- [22:30.890] These are hard, tough criminals and we have to get them out.
+- [22:34.960] And a judge sitting behind a bench someplace,
+- [22:37.470] got a nice appointment,
+- [22:40.600] you can't take that away from the people that are responsible.
+- [22:42.780] Now, in this case,
+- [22:44.010] Marco Rubio has a lot of big decisions to make.
+- [22:47.820] And he's a fantastic person, a great man.
+- [22:50.660] I think he'll be our best…
+- [22:53.140] I think he has a chance to be our best Secretary of State.
+- [22:56.710] He's been doing incredibly. He works so hard.
+- [22:58.940] He's gone to so many different countries already,
+- [23:02.680] and he's got the authority
+- [23:04.030] to get bad people out of our country.
+- [23:06.580] And you can't stop that with a judge
+- [23:09.100] sitting behind a bench that has no idea what goes on,
+- [23:11.600] who happens to be a radical left lunatic.
+- [23:19.380] The Press: You guys denying this New York Times report
+- [23:22.320] that Elon Musk was going to be shown a 20
+- [23:24.700] to 30 page presentation
+- [23:26.130] about a theoretical war plan against China.
+- [23:29.820] Why not just show it to Elon?
+- [23:31.880] The President: Because I don't want to show it to anybody.
+- [23:34.580] You're talking about a potential war with China.
+- [23:38.290] Now, I deal with these people all the time,
+- [23:41.870] and I'm dealing with Pete, I'm dealing with these gentlemen
+- [23:44.130] on numerous different airplane purchases,
+- [23:46.980] and I think they're all going to be great,
+- [23:49.080] but I don't want other people seeing,
+- [23:50.580] anybody seeing potential war with China.
+- [23:55.000] We don't want to have a potential war with China.
+- [23:56.910] But I can tell you if we did,
+- [23:58.110] we're very well-equipped to handle it.
+- [24:00.120] But I don't want to show that to anybody.
+- [24:01.500] But certainly, you wouldn't show it to a businessman
+- [24:03.640] who is helping us so much. He's a great patriot.
+- [24:07.060] He's taking, he's paying a big price
+- [24:09.350] for helping us cut costs, and he's doing a great job.
+- [24:11.800] He's finding tremendous waste, fraud, and abuse.
+- [24:15.450] But I certainly wouldn't want, you know,
+- [24:17.160] Elon has businesses in China,
+- [24:19.660] and he would be susceptible perhaps to that.
+- [24:22.490] But it was such a fake story.
+- [24:23.890] The New York Times is just as fake as CNN and MS DNC.
+- [24:28.230] And anybody who read that story, people laughed at that story.
+- [24:32.430] Who would do such a thing? And the first thing I did
+- [24:34.900] is I called Susie and I called Pete.
+- [24:38.820] I said, "Is there any truth to that?"
+- [24:40.380] And they said, "It's ridiculous.
+- [24:42.680] No, he's over there to talk about costs."
+- [24:44.570] You might want to address that, Pete.
+- [24:46.100] But Elon was over there today to address costs, DOGE,
+- [24:51.180] a thing called DOGE, which you've heard about. Pete.
+- [24:53.170] Mr. Hegseth: That's exactly right.
+- [24:54.380] Mr. President, you pointed out it was a fake story.
+- [24:56.770] We pointed out it was.
+- [24:58.540] It was meant to sort of undermine whatever relationship
+- [25:01.470] the Pentagon has with Elon Musk.
+- [25:04.300] Elon Musk is a patriot. Elon Musk is an innovator.
+- [25:07.380] Elon Musk provides a lot of capabilities
+- [25:09.190] our government and our military rely on,
+- [25:10.920] and I'm grateful for that.
+- [25:12.490] We welcomed him today to the Pentagon,
+- [25:14.590] to talk about DOGE, to talk about efficiencies,
+- [25:17.190] to talk about innovations.
+- [25:18.610] It was a great informal conversation.
+- [25:21.360] The rest of that reporting was fake.
+- [25:22.890] There was no war plans. There was no Chinese war plans.
+- [25:25.200] There was no secret plans.
+- [25:27.050] That's not what we were doing at the Pentagon.
+- [25:28.580] The President: I might add that, I think Elon,
+- [25:30.520] if they ever wanted to do that,
+- [25:32.160] I think Elon wouldn't do it. I think he wouldn't do it.
+- [25:34.420] He wouldn't want to put himself in that position.
+- [25:36.770] But if you read what's out of the New York Times,
+- [25:39.020] it's such a dishonest newspaper. It's such garbage.
+- [25:41.880] It used to be called all the news that's fit to print.
+- [25:45.020] Well, it's all the news that's not fit to print.
+- [25:47.730] They have fake sources or they don't have sources.
+- [25:50.590] I think they make most of it up.
+- [25:52.260] But this was a made-up story by the New York Times.
+- [25:54.820] I call it the failing. It's a failing newspaper.
+- [25:56.930] It's failing. And they shouldn't do that.
+- [26:00.130] They really are the enemy of the people.
+- [26:01.750] The Press: [inaudible].
+- [26:02.980] The President: We really do need honest journalism in this.
+- [26:06.870] We've made such big strides over the last two months,
+- [26:10.510] but we just need honest journalism.
+- [26:12.730] And we don't have it. When you have a CNN, I watch…
+- [26:15.880] You have to watch these people every once in a while
+- [26:17.850] just to see where they're coming from.
+- [26:19.300] And it's so dishonest.
+- [26:20.600] MSNBC is, I think, probably worse.
+- [26:23.200] And they're both doing horribly in the ratings.
+- [26:24.880] I think they're going to be turned off.
+- [26:26.190] I don't think… They're not doing any ratings.
+- [26:29.100] You're doing well in the ratings.
+- [26:31.090] The Press: Thank you.
+- [26:32.930] [inaudible]. I understand that your trade rep
+- [26:35.740] is meeting their Chinese counterpart next week.
+- [26:38.150] Is there anything that they can do to stop April 2nd
+- [26:43.040] or to roll back the tariffs that you put on China already?
+- [26:45.550] The President: Well, we can talk,
+- [26:46.860] but basically I call April 2nd, I would have made it April 1st,
+- [26:51.450] but I didn't want to be April Fool's Day
+- [26:52.990] because then nobody would believe what I said.
+- [26:54.630] And they do believe me.
+- [26:56.240] April 2nd is going to be Liberation Day for America.
+- [26:59.630] We've been ripped off by every country in the world,
+- [27:02.690] friend and foe. We've been ripped off on trade.
+- [27:05.760] We've been ripped off on military.
+- [27:07.630] We protect people and they don't do anything for us.
+- [27:10.210] We… It's just so unfair for years and years.
+- [27:12.860] And now some of that money is going to be coming back to us
+- [27:15.900] in the form of tariffs.
+- [27:17.210] They're, I mean, tens of billions.
+- [27:22.210] It's going to be numbers like nobody's ever seen.
+- [27:25.110] So Nvidia announced today, you saw that,
+- [27:29.310] hundreds of billions of dollars of investment.
+- [27:32.070] The biggest chipmaker in the world
+- [27:33.490] announced hundreds of billions of dollars of investment.
+- [27:36.490] Hundreds of billions, not millions, but billions.
+- [27:40.000] They're all coming here.
+- [27:41.240] Apple just announced $500 billion worth.
+- [27:44.050] They're going to build plants here.
+- [27:45.310] They built their plants in China.
+- [27:46.600] They're going to build them here.
+- [27:48.340] And they're starting immediately.
+- [27:53.120] We have investment,
+- [27:54.370] the likes of which this country has never seen,
+- [27:56.450] already announced, and they all want to have news conferences.
+- [27:59.420] I don't have enough time to have that many news conferences,
+- [28:02.160] but I would say so far, at least $4 trillion,
+- [28:06.520] $4 trillion is coming in.
+- [28:08.970] Car companies, very importantly, a lot of the car companies
+- [28:11.440] that were going to build in Mexico or Canada
+- [28:13.320] are now building here,
+- [28:14.660] because I don't want cars from Canada.
+- [28:16.230] I don't want cars from Mexico. They want to do it
+- [28:18.400] [inaudible 00:28:16]
+- [28:19.650] but I want the car companies to build here.
+- [28:22.830] They were building in Mexico, three plants,
+- [28:25.030] big plants, really big plants,
+- [28:26.750] and they were going to sell the cars right across the border.
+- [28:28.980] We wouldn't have the jobs, we wouldn't have the profits.
+- [28:31.160] We wouldn't get the taxes. We get nothing.
+- [28:33.490] All we get is unemployment and empty factories.
+- [28:36.150] Those days are over.
+- [28:37.370] So now those three places are going to build here,
+- [28:40.780] but many more than that. We have a big one.
+- [28:42.780] Honda is building,
+- [28:44.340] just announced a really big plant in Indiana,
+- [28:46.970] great state, smart place to build.
+- [28:49.950] And we have many car companies coming here.
+- [28:52.960] The steel mills are going to be booming,
+- [28:55.650] going to be booming, and many other things.
+- [28:57.680] The Press: [inaudible].
+- [28:58.880] The President: Many other things come with that
+- [29:00.570] but we need that for defense.
+- [29:01.860] There are certain things you have to have.
+- [29:03.410] You have to have steel.
+- [29:04.620] We would have had, if I didn't do in my first term,
+- [29:08.150] tariffs to stop the onslaught, because they were dumping steel
+- [29:12.920] in order to destroy our steel plants,
+- [29:15.450] if I didn't do 50% and even a hundred percent
+- [29:18.440] in certain cases, tariffs on steel,
+- [29:21.370] you wouldn't have a steel plant in the United States.
+- [29:24.020] And Biden was unable to get rid of those tariffs
+- [29:27.070] because they threw off so much money
+- [29:30.350] that his numbers, which didn't work anyway,
+- [29:32.070] because his numbers were terrible, what he did,
+- [29:33.870] the way he spent money was so horrible,
+- [29:36.390] and what he allowed to happen to energy.
+- [29:38.060] That's the other thing.
+- [29:39.280] Energy is going to be like it's never been before.
+- [29:42.330] Mr. Vice president is here if you have any…
+- [29:44.460] Do you have anything to say while you're here?
+- [29:45.990] He's a very good vice president.
+- [29:48.670] The Vice President: I'm just here to watch the show, sir.
+- [29:50.400] I think airplanes are pretty cool,
+- [29:51.600] so I wanted to go check this out.
+- [29:53.380] The President: It is cool.
+- [29:54.670] [Cross talk from Press]
+- [29:59.080] The President: Well, I'll be speaking to President Xi.
+- [30:00.920] I have a great relationship with him.
+- [30:02.420] We're going to have a very good relationship.
+- [30:04.700] But we have a trillion-dollar deficit
+- [30:08.090] because of Biden with President Xi.
+- [30:10.450] More than that, I mean, I've heard $1.2 trillion.
+- [30:13.580] We have a deficit, and I've explained that to President Xi.
+- [30:17.960] We also have a problem where he's allowing Fentanyl
+- [30:20.810] to be sent into Mexico and then cross the border and killing,
+- [30:25.270] I think the number is much higher than the 125, 115
+- [30:29.010] [inaudible]. I think it's closer to 300,000 people a year.
+- [30:32.560] And so that's a problem.
+- [30:33.840] But they have a tremendous surplus
+- [30:37.380] against the United States, and we don't want that.
+- [30:39.440] The Press: Mr. President [inaudible]
+- [30:40.990] a number of industries have come to you
+- [30:43.680] asking for exemptions on tariffs,
+- [30:45.400] is that something that is under consideration by you?
+- [30:47.870] The President: Well, people are coming to me
+- [30:49.310] and talking about tariffs,
+- [30:50.640] and a lot of people are asking me
+- [30:52.540] if they could have exceptions.
+- [30:54.520] And once you do that for one, you have to do that for all.
+- [30:57.020] So, I mean, generally…
+- [30:59.750] I did something interestingly during two weeks ago.
+- [31:04.480] I gave the American car companies a break
+- [31:07.810] because it would have been unfair if I didn't.
+- [31:10.230] And everybody said, "Oh, he changed his mind on tariffs."
+- [31:12.310] I didn't change my mind.
+- [31:13.550] I helped our sort of big three, big four.
+- [31:17.820] I helped some of the American companies.
+- [31:20.330] And instead of taking it properly, they said,
+- [31:22.390] "Oh, he changed it." I don't change.
+- [31:24.070] But the word flexibility is an important word.
+- [31:26.680] Sometimes there's flexibility. So there'll be flexibility.
+- [31:29.670] But basically it's reciprocal
+- [31:33.700] so that if China is charging us 50% or 30% or 20%,
+- [31:38.670] and I don't mean China, I mean anybody, any country, Canada.
+- [31:43.280] Nobody knows that Canada is charging our dairy farmers,
+- [31:46.300] they have 270% tariffs. Nobody knows that.
+- [31:51.230] Nobody knows that. They have up to 400%.
+- [31:55.150] They have a couple of tariffs at 400%.
+- [31:58.930] Nobody knows that. Nobody talks about that.
+- [32:01.230] And remember with Canada, we don't need their cars,
+- [32:03.910] we don't need their lumber, we don't need their energy.
+- [32:06.100] We don't need anything from Canada.
+- [32:08.290] And yet it costs us $200 billion a year
+- [32:10.610] in subsidy to keep Canada afloat.
+- [32:13.170] So, when I say they should be a state,
+- [32:14.860] I mean that, I really mean that.
+- [32:16.170] Because we can't be expected to carry a country
+- [32:22.020] that is right next to us on our border.
+- [32:25.970] It would be a great state, it would be a cherished state.
+- [32:28.970] The taxes for Canadian citizens would go down in less than half.
+- [32:35.350] They don't spend money on military
+- [32:37.240] because they think we're going to protect them.
+- [32:39.400] There are many things that they do like icebreakers.
+- [32:42.150] They want us to provide icebreakers for them.
+- [32:44.640] Oh, that's wonderful.
+- [32:45.910] So Canada, they're very tough traders too.
+- [32:49.950] Canada, I want to just tell you,
+- [32:51.370] of all the people, they're tough traders.
+- [32:53.480] They trade very tough.
+- [32:55.570] And you know, the expression I use
+- [32:58.080] is some people don't have the cards.
+- [33:00.490] I used that expression about a week and a half ago.
+- [33:02.690] Right? Somebody was negotiating who didn't have the cards,
+- [33:05.750] who's now I think saying that he wants to do it.
+- [33:08.780] And I think we're going to have a big deal
+- [33:10.590] on that very special something. We got to make a deal on that.
+- [33:14.180] But Canada has been a very nasty negotiator
+- [33:17.570] against the United States,
+- [33:18.780] took advantage of the United States for a long time.
+- [33:21.720] But nobody knows that they were getting 270% tariffs
+- [33:24.340] on dairy products.
+- [33:25.590] The Press: [inaudible]
+- [33:26.790] followup on Canada, and I don't think I've heard you say this
+- [33:30.300] in all of the talk about Canada becoming the 51st state.
+- [33:33.510] Are you concerned that if they became the 51st state,
+- [33:37.170] they would be a very, very blue state?
+- [33:40.110] Very, very big, and very, very blue?
+- [33:41.970] The President: No, they might be, but it would…
+- [33:44.810] You have that artificial line that goes,
+- [33:46.750] that straight artificial,
+- [33:48.010] that looked like it was drawn by a ruler.
+- [33:50.580] Somebody with a, I don't mean a ruler like a king,
+- [33:52.850] I mean like a ruler, like a ruler this way.
+- [33:56.040] And it's just an artificial line
+- [33:58.790] that was drawn in the sand or in the ice.
+- [34:01.180] The Press: [inaudible].
+- [34:02.380] The President: Can I tell you Peter,
+- [34:03.590] just you add that to this country,
+- [34:07.010] what a beautiful landmass,
+- [34:08.660] the most beautiful landmass anywhere in the world.
+- [34:11.760] And it was just cut off for whatever reason.
+- [34:13.820] It would be great.
+- [34:15.080] Now, is it liberal? Maybe.
+- [34:17.490] But you know, a conservative until I got involved,
+- [34:20.160] because I don't care who wins up there.
+- [34:22.000] I frankly probably would do better
+- [34:23.660] with the liberal than the conservative,
+- [34:25.050] if you want to know the truth. But just a little while ago,
+- [34:29.120] before I got involved and totally changed the election,
+- [34:32.640] which I don't care about,
+- [34:35.110] probably it's to our advantage actually.
+- [34:37.590] But the conservative was leading against,
+- [34:39.950] I call him Governor Trudeau,
+- [34:42.220] the conservative was leading by 35 points.
+- [34:44.720] So I don't know about that.
+- [34:46.920] I think Canada is a place like a lot of other places.
+- [34:50.240] If you have a good candidate, the candidate's going to win.
+- [34:52.940] The Press: [inaudible]
+- [34:54.720] the two astronauts that you just helped save from space,
+- [34:58.670] they didn't get any overtime pay for all that extra time.
+- [35:01.570] They got $5 a day per diem for 286 days.
+- [35:05.830] That is $1,430 in extra pay.
+- [35:11.090] Is there anything the administration can do
+- [35:13.700] to get them, to make them whole?
+- [35:15.980] The President: Well, nobody's ever mentioned this to me.
+- [35:17.990] If I have to, I'll pay it out of my own pocket.
+- [35:19.870] Okay, I'll get it for them.
+- [35:21.130] The Press: [inaudible].
+- [35:22.330] The President: I'll take care of that.
+- [35:23.570] I like that. I think that's- The Press: [inaudible].
+- [35:25.200] The President: I'll pay it right out of my…
+- [35:26.420] Is that all? That's not a lot for what they had to go through.
+- [35:30.000] And I want to thank Elon Musk, by the way,
+- [35:32.070] because think if we don't have him.
+- [35:35.620] There's only so long,
+- [35:36.890] even though they're in the capsule up there,
+- [35:38.620] that the body starts to deteriorate after 9 or 10 months
+- [35:43.320] and gets really bad after 14,
+- [35:45.740] 15 months with the bones and the blood
+- [35:47.990] and all the things that you've been reporting on very well.
+- [35:51.870] And if we don't have Elon,
+- [35:53.570] they could be up there a long time.
+- [35:55.080] Who else is going to get them? And I just want to thank him.
+- [35:58.320] He's going through a lot, what they're doing to him.
+- [36:01.770] And these people are going to be caught.
+- [36:03.370] And they're going to be caught
+- [36:04.630] and they're going to be prosecuted.
+- [36:06.590] And from what they tell me,
+- [36:08.600] I see this just by watching your programs and reading the news,
+- [36:12.900] but from what they tell me,
+- [36:14.250] they could get 20 years in jail and they'll get it.
+- [36:16.770] I'll tell you, there's going to be no leniency
+- [36:18.420] and there'll be no pardons. I can tell you that right now.
+- [36:22.730] The Press: And you said this morning, 20 years in jail,
+- [36:25.450] and then maybe they'll go to one of these prisons in El Salvador.
+- [36:28.950] Do you think with the way that the judges have been
+- [36:31.840] issuing injunctions it would be easier or harder
+- [36:34.980] to send these Tesla domestic terrorists to a jail
+- [36:38.180] in El Salvador than these MS13 or Tren de Aragua guys?
+- [36:41.300] The President: Well, I view these people as terrorists,
+- [36:42.960] just like others.
+- [36:45.410] When I looked at those showrooms burning and those cars,
+- [36:48.980] not one or two, like 7, 8, 10, burning,
+- [36:51.930] exploding all over the place, these are terrorists.
+- [36:55.230] You didn't have that on January 6th, I can tell you.
+- [36:57.770] You didn't have anything like that on January 6th.
+- [36:59.640] Which is amazing, because on January 6th,
+- [37:03.540] the Democrats were talking,
+- [37:07.150] nobody was killed other than a very beautiful young woman,
+- [37:10.800] Ashli Babbitt. Nobody was killed.
+- [37:15.750] And you look at what's going on now with these terrorists.
+- [37:18.050] These are terrorists and that's an organized event.
+- [37:20.290] Take a look at their signs, take a look.
+- [37:22.480] They're all made by the same sign company,
+- [37:25.490] a nice expensive job.
+- [37:27.160] Now, the people that finance it are, in my opinion,
+- [37:31.290] in just as big a trouble
+- [37:32.630] as the people that are setting the match and setting the fires.
+- [37:36.680] So we'll see.
+- [37:38.290] It's under very serious investigation by the FBI
+- [37:40.900] and by the Justice Department.
+- [37:42.110] These people are terrorists, okay?
+- [37:43.380] Yeah, go ahead. Behind you, please.
+- [37:44.590] The Press: Mr. President, what do you say
+- [37:48.400] to American military families
+- [37:49.990] who are seeing Elon Musk at the Pentagon today,
+- [37:52.830] are hearing about defense department cuts
+- [37:55.420] and their thoughts are immediately
+- [37:56.830] going to the state of their loved ones
+- [37:58.620] who are currently deployed?
+- [37:59.920] The President: Well, we're making our country strong.
+- [38:02.100] And when they see a thing like that
+- [38:04.380] and they hear that story about Elon and China,
+- [38:07.750] what they should do is realize that the New York Times
+- [38:10.220] is a corrupt institution,
+- [38:11.870] because I think they're the ones…
+- [38:13.220] They knew that story wasn't true.
+- [38:14.520] Nobody believed that story.
+- [38:16.020] People, they laughed when they heard this story,
+- [38:19.930] nobody believed it, that the Pentagon was giving him
+- [38:22.320] a briefing on what war with China would look like,
+- [38:26.390] and he has businesses.
+- [38:27.610] No, they made that up because it's a good story to make up.
+- [38:30.100] They're very dishonest people. Look, I have it with the Times
+- [38:35.690] and you'll see more and more of it.
+- [38:37.910] To me, it's a very dishonest organization,
+- [38:42.620] but a story like that is made up.
+- [38:43.950] It's total fiction.
+- [38:45.700] And I just wanted to make sure, I called up Chief of Staff
+- [38:50.770] and I called up Pete and I said, "is there any truth to that?"
+- [38:54.330] "Absolutely not." He's there for Doge not there for China.
+- [38:58.880] And if you ever mentioned China,
+- [39:00.210] I think he'd walk out of the room.
+- [39:01.700] He wouldn't take it anyway, so it's just a made-up story.
+- [39:06.820] Nobody's taking better care of the military.
+- [39:08.970] One of the things that I know that Pete is doing,
+- [39:10.780] is he's talking about a lot of the civilian staff,
+- [39:14.090] and we're going to get them other jobs.
+- [39:16.980] We're going to have a lot of jobs in this country.
+- [39:19.910] But we don't want to have wasteful jobs.
+- [39:21.340] We want to have meaningful jobs. And those were wasteful jobs.
+- [39:24.960] Those are jobs that not only military,
+- [39:27.300] but jobs where people don't show up.
+- [39:30.740] You take a look at Department of Education,
+- [39:32.720] I've never seen so many buildings with the names on it.
+- [39:35.120] You go past one after another, Department of Education.
+- [39:38.290] And they're empty, the people don't show up.
+- [39:40.840] You know why? Because they have other jobs,
+- [39:42.890] because they're playing golf or they're playing something.
+- [39:45.930] They're doing something.
+- [39:47.720] And we have a lot of great people,
+- [39:49.170] but we have to move that back to the states.
+- [39:51.000] We're going to make our country strong
+- [39:52.760] and we're going to get people much better jobs,
+- [39:55.570] because we have companies moving into our country,
+- [39:57.990] the likes of which we've never seen before.
+- [40:00.120] Nothing like this has happened. And it's automatic.
+- [40:04.520] They don't want to pay the tariffs.
+- [40:05.770] How do you avoid paying the tariffs?
+- [40:09.500] You build your plant in the United States.
+- [40:11.910] And it's a beautiful thing to see.
+- [40:15.710] So far, I'd say, $4 trillion. Nobody's ever heard of numbers,
+- [40:20.140] no country's ever heard of numbers like that.
+- [40:22.160] $4 trillion. And those are the best ones.
+- [40:25.240] The biggest, best chip maker in the world.
+- [40:28.410] I'm not a fan of the Chip Act where you give billions away,
+- [40:31.860] billions of dollars away to companies that don't need it,
+- [40:35.140] and it won't bring them here. I'm giving nothing away.
+- [40:38.630] All they're doing is coming here.
+- [40:39.860] They're building because they want to avoid.
+- [40:41.480] Remember this on the tariffs too,
+- [40:42.950] because that's going to be Liberation Day, April 2nd.
+- [40:47.230] It's reciprocal.
+- [40:49.330] If they charge us, we charge them.
+- [40:51.670] So somebody will say, "Well, how much are the tariffs?"
+- [40:54.320] Very fair. If India, as an example,
+- [40:58.140] has been very bad to us on tariffs,
+- [41:00.440] they charge a hundred percent, 200%, whatever they charge.
+- [41:05.270] Now, Europe just announced
+- [41:07.980] they're lowering the tariffs on cars.
+- [41:10.360] We charge, like a joke, two and a half percent.
+- [41:13.640] That's what this country charges.
+- [41:15.680] Europe just announced
+- [41:16.940] that they're reducing their tariffs on cars
+- [41:19.240] to two and a half percent. It's nice.
+- [41:22.180] But they also have non-monetary tariffs
+- [41:24.180] where they make it impossible for the cars to get in even
+- [41:26.610] without the dollars on them and the dollar size.
+- [41:29.680] It's called a non-monetary tariff,
+- [41:31.480] where they put on controls where no matter what happens…
+- [41:34.650] Because they don't want cars.
+- [41:35.930] They don't want the American car in their market.
+- [41:38.530] And yet they send us millions of cars.
+- [41:40.410] They send us big agriculture. They don't want our agriculture.
+- [41:43.220] They don't want anything from us.
+- [41:44.500] The European Union's very tough.
+- [41:47.080] But now it's fair, so whatever they do to us,
+- [41:50.370] we do to them. Wait, what?
+- [41:56.260] The Press: As Russia continues to attack Ukraine,
+- [41:58.670] are you planning to impose any sort of sanction on-
+- [42:00.330] The President: Well, they're fighting against each other.
+- [42:02.210] Yeah, I think we're going to have…
+- [42:03.560] The Press: Do you [inaudible]?
+- [42:04.830] The President: We have had a ceasefire on a lot of areas,
+- [42:06.460] and so far that's all held very well.
+- [42:09.320] And getting that ceasefire,
+- [42:11.680] they had a lot of guns pointing at each other.
+- [42:13.790] You had some soldiers,
+- [42:15.360] unfortunately surrounded by other soldiers,
+- [42:17.690] and they are going to be…
+- [42:21.760] I believe we're going to pretty soon have a full ceasefire,
+- [42:24.530] and then we're going to have a contract.
+- [42:26.110] And the contract's being negotiated,
+- [42:28.260] the contract in terms of dividing up the lands,
+- [42:30.740] etc, etc. It's being negotiated as we speak.
+- [42:34.420] The Press: What do you say to critics who say
+- [42:36.060] that your actions towards law firms amount to coercion?
+- [42:40.920] The President: Well, the law firms all want to make deals.
+- [42:43.000] You mean the law firms that we're going after
+- [42:44.660] that went after me for four years,
+- [42:46.660] ruthlessly, violently, illegally?
+- [42:49.590] Are those the law firms you're talking about?
+- [42:51.340] They're not babies. They're very sophisticated people.
+- [42:54.920] Those law firms did bad things, bad things.
+- [42:58.590] They went after me for years.
+- [43:01.230] Russia, Russia, Russia, hoax, all a hoax.
+- [43:03.620] It was a hoax. It was Hunter Biden's laptop.
+- [43:06.630] It didn't come out of Russia, by the way.
+- [43:08.070] It was his, it came out of his bedroom.
+- [43:10.780] It was all a hoax developed by Democrats.
+- [43:14.890] Hillary, I don't think Biden did,
+- [43:17.340] because I don't think Biden knows what the hell he's doing,
+- [43:19.610] frankly, based on everything I see.
+- [43:21.940] I've seen things since being here that are so sad,
+- [43:25.400] what he's done to this country,
+- [43:28.080] what he and they did to this country,
+- [43:29.910] those people that surrounded him,
+- [43:31.270] who by the way are radical left but smart.
+- [43:33.930] He's not smart. He was never smart.
+- [43:36.210] But these are radical left smart people.
+- [43:38.250] They totally controlled him.
+- [43:40.220] He did whatever they told him to do.
+- [43:42.840] And it's a shame, it's so sad to see what happened,
+- [43:45.050] what they've done to this country,
+- [43:47.240] not only the inflation, the inflation you solve,
+- [43:49.580] but allowing millions of criminals,
+- [43:52.180] millions and millions of criminals into our country.
+- [43:55.420] That's an inexcusable act.
+- [43:58.200] And many other things besides that.
+- [44:00.200] Thank you very much, everybody. Thank you.
+- [44:05.810] The Press: Thank you everybody.
+- [44:07.130] The President: Thank you very much.
+- [44:08.340] The Press: Thank you guys.

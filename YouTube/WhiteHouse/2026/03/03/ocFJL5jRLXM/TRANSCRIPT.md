@@ -1,0 +1,801 @@
+<!-- source: https://www.youtube.com/watch?v=ocFJL5jRLXM -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: ocFJL5jRLXM -->
+<!-- date_published: 2026-03-03T17:31:58+00:00 -->
+<!-- date_accessed: 2026-06-02T02:37:10.051285+00:00 -->
+
+# Transcript: President Trump Participates in a Bilateral Meeting, Mar. 3, 2026
+
+- [00:31.250] The President: Well, thank you very much, everybody.
+- [00:32.670] We have a meeting with a man who's become a friend of mine,
+- [00:36.430] and we've known each other for a little while,
+- [00:38.100] and some very interesting times, and we get along --
+- [00:43.200] our countries get along very well.
+- [00:45.520] We have a great affinity for each other.
+- [00:48.830] And the Chancellor has been very well received in Germany.
+- [00:52.910] He's a very successful man,
+- [00:55.010] became the chancellor of Germany, which is a big deal,
+- [00:59.150] and he's doing a very good job.
+- [01:00.610] In my opinion, really a great job, very popular.
+- [01:04.270] And the relationship that we have in trade
+- [01:06.730] and everything else has been very strong.
+- [01:09.000] We've been able to do our deals and it's been very strong.
+- [01:12.960] We'll obviously, be talking a little bit about Iran today,
+- [01:16.450] and he's been helping us out doing --
+- [01:18.520] been very nice actually.
+- [01:20.380] And that is coming along, as you see, very well.
+- [01:24.530] They have no navy; it's been knocked out.
+- [01:26.940] They have no Air force; it's been knocked out.
+- [01:29.370] They have no air detection; that's been knocked out,
+- [01:31.720] their radar has been knocked out.
+- [01:34.080] And just about everything's been knocked out.
+- [01:38.260] So, we'll see how we do.
+- [01:39.860] But we're doing -- we're doing very well.
+- [01:41.880] We have a great military and they're doing a fantastic job.
+- [01:45.780] So, we'll be talking about that.
+- [01:47.770] And we're talking about some very big trade deals
+- [01:51.690] and those I know will work out too.
+- [01:53.920] So, I just want to say it's a great honor
+- [01:56.320] to have you at the Oval Office,
+- [01:58.510] the beautiful Oval Office, beautiful White House,
+- [02:00.830] it's a special place, even from your standpoint.
+- [02:04.180] And you have some very special places too.
+- [02:06.630] And I look forward to being with you.
+- [02:08.490] Thank you very much.
+- [02:09.710] Chancellor Merz: Thank you. Thank you, Mr. President,
+- [02:12.280] for having me here in this Oval Office for the third time now.
+- [02:17.590] Really happy to have the opportunity
+- [02:19.800] to speak with you in these challenging times.
+- [02:23.730] We are on the same page in terms
+- [02:26.340] of getting this terrible regime in Tehran away,
+- [02:33.010] and we will talk about the day after,
+- [02:36.610] what will happen then if they are out.
+- [02:39.360] We have to talk about our trade agreement,
+- [02:42.330] which I would like to be in place as soon as possible.
+- [02:46.310] And we have to talk about Ukraine.
+- [02:48.670] There are too many bad guys in this world actually.
+- [02:52.890] And this is an issue we have to talk about
+- [02:56.080] because we all want to see this war
+- [02:58.640] coming to an end as soon as possible.
+- [03:01.110] But Ukraine has to preserve its territory
+- [03:03.610] and their security interests and --
+- [03:06.600] well, we will talk about that -- looking forward to that.
+- [03:10.290] The President: Well, thank you for being here.
+- [03:11.640] We'll have some interesting --
+- [03:12.920] Chancellor Merz: Thank you for your hospitality.
+- [03:14.150] Thank you for letting me spend the night in your guest house.
+- [03:16.890] The President: That's right, good.
+- [03:18.130] Chancellor Merz: A very, very good, comfortable place.
+- [03:20.010] The President: You liked it, right?
+- [03:21.330] Chancellor Merz: Absolutely, yeah, great place
+- [03:23.170] and a famous place.
+- [03:24.530] Very famous. So many former presidents.
+- [03:26.320] The President: That's right. Very famous place.
+- [03:29.240] Any questions, please?
+- [03:32.290] The Press: Mr. President, did Israel force your hand
+- [03:34.610] to launch these strikes against Iran?
+- [03:36.320] Did Netanyahu pull the United States into this war?
+- [03:38.990] The President: No, I might have forced their hand.
+- [03:41.500] You see, we were having negotiations
+- [03:44.250] with these lunatics,
+- [03:46.470] and it was my opinion that they were going to attack first.
+- [03:49.230] They were going to attack if we didn't do it,
+- [03:51.680] they were going to attack first. I felt strongly about that.
+- [03:55.320] And we have great negotiators, great people,
+- [03:58.670] people that do this very successfully
+- [04:00.960] and have done it all their lives, very successful.
+- [04:03.000] And based on the way the negotiation was going,
+- [04:06.270] I think they were going to attack first,
+- [04:08.530] and I didn't want that to happen.
+- [04:11.380] So, if anything I might have forced Israel's hand,
+- [04:14.880] but Israel was ready and we were ready.
+- [04:16.780] And we've had a very, very powerful impact
+- [04:20.790] because virtually everything they have
+- [04:22.820] has been knocked out now.
+- [04:24.790] Their missile count is going way down.
+- [04:27.750] Amazingly, they're hitting countries
+- [04:29.440] that were, you know, let's call them neutral.
+- [04:32.820] They lived together for a long time.
+- [04:35.240] They -- I think they were surprised.
+- [04:38.030] I was surprised, I think,
+- [04:39.540] and now those countries are all fighting against them
+- [04:41.670] and fighting strongly against them.
+- [04:44.630] Someday they'll write a story,
+- [04:46.660] and they'll say why they did that.
+- [04:48.230] But they hit countries that had nothing to do
+- [04:51.280] with what's going on.
+- [04:53.040] They were sort of leaving everything alone,
+- [04:55.220] all of a sudden, they had missiles shot in,
+- [04:58.220] which shows you the level of evil that we're dealing with.
+- [05:01.210] They'll hit people that were actually at least
+- [05:03.860] somewhat friendly,
+- [05:05.880] and they had no problems with it.
+- [05:07.490] Also hitting only civilian places,
+- [05:11.040] hotels and apartment buildings,
+- [05:13.860] and we're hitting them where it is much more appropriate.
+- [05:17.690] We're hitting them very hard.
+- [05:19.020] And the big scale hitting goes now --
+- [05:22.280] they no longer have air protection;
+- [05:24.460] they no longer have any detection facilities
+- [05:27.460] at all left.
+- [05:28.980] And so, they're going to be in for a lot of hurt.
+- [05:33.800] These are bad people, these are people that killed,
+- [05:35.470] I guess it's 35,000, It's coming out
+- [05:37.770] 35,000 over the last three weeks, protesters,
+- [05:42.010] 35,000 violently killed.
+- [05:44.840] So, these are bad people and the leader of the pack is gone.
+- [05:50.660] And as you know, 49 people were taken out in the first hit,
+- [05:53.840] and I guess there was another hit today on the new leadership.
+- [05:57.340] And it looks like that was pretty substantial also.
+- [06:01.440] So, they're getting hit very hard
+- [06:02.890] and we'll see what happens.
+- [06:04.170] A lot of people are coming forward.
+- [06:06.590] A lot of the people you would least suspect want to quit.
+- [06:11.090] They want to have immunity. They're asking for immunity
+- [06:14.770] and probably at some point they'll be dropping,
+- [06:17.860] as you would say, laying down their guns.
+- [06:19.720] We'll see what happens.
+- [06:21.610] In the meantime, we're just continuing to go forward.
+- [06:23.810] Our military is the number one in the world by far,
+- [06:26.830] and we are -- this is -- everything's big in my book.
+- [06:31.650] Venezuela is big. This is big.
+- [06:33.640] The original hit, Midnight Hammer, was big.
+- [06:37.080] Everything you view as big. But it's not considered very big
+- [06:41.960] by some standards by some of our standards.
+- [06:45.360] We have a military like no other military that's ever been built.
+- [06:51.290] The Press: Mr. President, what's the worst-case scenario
+- [06:53.370] that you have planned for in Iran?
+- [06:56.280] The President: Well, I don't know
+- [06:57.520] if there's a worst case. We have them very much beaten
+- [07:02.410] militarily from the military standpoint.
+- [07:05.140] They're still lobbing some missiles;
+- [07:06.720] at some point they won't even be able to do that
+- [07:08.950] because we're hitting all of their carriers;
+- [07:10.630] we're hitting all of their missile stock.
+- [07:13.240] You know, they built up all these missiles
+- [07:14.870] over the last few years.
+- [07:16.320] They had a lot of them.
+- [07:17.560] They've shot a lot of them and we're knocking out a lot.
+- [07:22.320] I guess the worst case would be we do this
+- [07:24.410] and then somebody takes over
+- [07:26.090] who's as bad as the previous person, right?
+- [07:28.860] That could happen. We don't want that to happen.
+- [07:31.920] That would probably be the worst.
+- [07:33.190] You go through this and then in five years,
+- [07:36.130] you realize you put somebody in who is no better.
+- [07:39.000] So, we'd like to see somebody in there
+- [07:40.460] that's going to bring it back for the people.
+- [07:44.170] And we'll see what happens with the people.
+- [07:45.730] You know, they have their chance and we've said don't do it yet.
+- [07:49.380] If you're going to go out and protest don't do it yet.
+- [07:51.310] It's very dangerous out there.
+- [07:53.170] A lot of bombs are being dropped.
+- [07:55.300] But I would say that would be about the worst.
+- [07:57.450] The Press: Do you have someone in mind right now,
+- [07:58.920] because you said all the people you did have in mind
+- [08:00.840] have been taken out. What do you think --
+- [08:02.680] The President: Well, most of the people we had in mind are dead.
+- [08:05.050] So, you know, we had some in mind
+- [08:06.730] from that group that is dead, and now we have another group.
+- [08:12.480] They may be dead also based on reports.
+- [08:16.500] So, I guess you have a third wave coming
+- [08:18.200] and pretty soon we're not going to know anybody.
+- [08:20.840] But we have -- I mean, Venezuela was so incredible
+- [08:24.830] because we did the attack,
+- [08:26.800] and we kept government totally intact.
+- [08:30.640] And we have Delcy who's been very good,
+- [08:34.350] we have the whole chain of command and they've been --
+- [08:37.570] you know, the relationship has been great.
+- [08:39.450] We've taken out a hundred million barrels of oil already
+- [08:44.150] and a big part of that goes to them.
+- [08:46.740] And a big part goes to us and it's been great.
+- [08:51.100] We paid for the war many times over
+- [08:54.000] and we're going to be running the oil and Venezuela
+- [08:57.670] is going to make more money than they ever made
+- [08:59.400] and that's great for the people.
+- [09:00.660] The relationship has been great, it's been seamless,
+- [09:04.310] nobody's actually ever seen anything like it.
+- [09:06.280] If you look at Iraq, where very stupidly,
+- [09:09.670] everybody was fired, the generals were fired,
+- [09:12.350] the military was fired, the police were fired,
+- [09:14.450] the fire departments were fired
+- [09:16.560] and all of the government workers were fired.
+- [09:20.580] So, after -- you know, people would call, they had no idea.
+- [09:24.290] And by the way, ISIS was formed,
+- [09:26.770] that's where ISIS came from, all of the fired people.
+- [09:29.790] We don't believe in that. So, we'll see what happens.
+- [09:33.170] But first we have to finish off the military.
+- [09:36.710] The Press: Mr. President -- Crown Prince Reza Pahlavi,
+- [09:40.590] is he an option at all in your mind?
+- [09:42.010] The President: I guess he is.
+- [09:43.220] Some people like him and we haven't been thinking about --
+- [09:46.120] too much about that.
+- [09:47.960] It would seem to me that somebody from within might --
+- [09:50.260] maybe would be more appropriate, I've said that.
+- [09:53.330] He looks like a very nice person,
+- [09:56.280] but it would seem to me that somebody that's there
+- [10:01.520] that's currently popular, if there's such a person.
+- [10:05.460] But we have people like that;
+- [10:06.850] we have people that were more moderate.
+- [10:09.570] You know, these were radical lunatics
+- [10:10.900] and, you know what they get?
+- [10:12.120] They get nothing. All they do is kill people.
+- [10:16.450] The Press: What exactly was the imminent threat, Mr. President?
+- [10:18.580] The President: Not your turn. Not your turn. Please.
+- [10:22.010] The Press: Mr. President, are you going to take the heat
+- [10:25.510] off the Europeans to potentially help you?
+- [10:27.870] Mark Rutte called on the allies to also help you.
+- [10:32.040] The President: What does that mean?
+- [10:33.380] The Press: Well, you have to ask Mark Rutte,
+- [10:34.970] he said not as part of NATO,
+- [10:36.620] but to be helpful to you in this.
+- [10:38.520] And will you enlist --
+- [10:39.780] The President: Well, some of the European nations
+- [10:41.260] have been helpful and some haven't.
+- [10:43.190] And I'm very surprised.
+- [10:45.210] Germany has been great. He's been terrific.
+- [10:50.180] Others have been very good, terrific.
+- [10:52.400] I think that the head of NATO, Mark is fantastic, OK?
+- [10:57.300] Mark Rutte, I think he's fantastic,
+- [11:00.720] but some of the European -- like Spain has been terrible.
+- [11:04.200] In fact, I told uh Scott to cut off all dealings with Spain.
+- [11:09.950] Spain -- first of all,
+- [11:11.820] it started when every European nation,
+- [11:14.210] at my request paid 5 percent, which they should be doing.
+- [11:17.550] And everybody was enthusiastic about it.
+- [11:19.680] Germany, everybody, and Spain didn't do it,
+- [11:22.960] and now Spain actually said that we can't use their bases.
+- [11:27.100] And that's all right. We don't --
+- [11:28.530] we could use their bases if we want,
+- [11:29.940] we could just fly in and use it.
+- [11:31.850] Nobody's going to tell us not to use it,
+- [11:34.130] but we don't have to, but they were unfriendly.
+- [11:37.520] And so, I told him we don't want --
+- [11:39.980] Spain has absolutely nothing that we need
+- [11:42.050] other than great people, they have great people,
+- [11:44.480] but they don't have great leadership.
+- [11:46.570] And as you know, they were the only country that,
+- [11:48.900] in NATO, would not agree to go up to 5 percent.
+- [11:52.730] I don't think they went and agreed to go up to anything.
+- [11:55.750] They wanted to keep it at 2 percent,
+- [11:57.290] and they don't pay the 2 percent.
+- [11:59.220] So, we're going to cut off all trade with Spain.
+- [12:01.640] We don't want anything to do with Spain.
+- [12:07.920] And I'm not -- by the way, I'm not happy with the UK either.
+- [12:13.370] That island that you heard about,
+- [12:14.840] the lease, okay, you made it --
+- [12:16.350] for whatever reason, he made a lease of the island.
+- [12:19.340] Somebody came and took it away from him and it's taken three
+- [12:23.930] or four days for us to work out where we can land.
+- [12:27.350] There would have been much more convenient landing there
+- [12:29.370] as opposed to flying many extra hours.
+- [12:32.100] So, we are very surprised.
+- [12:33.390] This is not Winston Churchill that we're dealing with.
+- [12:37.310] The Press: Mr. President,
+- [12:38.640] what's your expectations towards Germany?
+- [12:40.930] What can Germany do and what should Germany do
+- [12:44.010] to help you on this continent?
+- [12:45.410] The President: Well, I think they're doing it.
+- [12:46.610] I mean, they're letting us land in certain areas and it's --
+- [12:49.490] we appreciate it and they're just making it comfortable.
+- [12:52.500] We're not asking them to put boots on the ground or anything.
+- [12:54.980] I mean, we're just -- they're a respected country.
+- [12:59.980] I have a very good relationship with the country.
+- [13:03.060] We have in particular now with this leader,
+- [13:05.990] with this new leader, I think he's an excellent leader.
+- [13:08.960] I had my differences with Angela.
+- [13:12.220] I said you're hurting your country with immigration
+- [13:15.480] and you're hurting your country with energy.
+- [13:18.110] And we have a man sitting on my right
+- [13:20.820] that is I think pretty much the opposite of her on energy
+- [13:24.310] and the opposite on immigration.
+- [13:27.240] And I think he's doing very well.
+- [13:29.820] The Press: Mr. President, commercial air travel right now
+- [13:35.070] is severely restricted in the Middle East
+- [13:36.930] and thousands of Americans are stranded.
+- [13:38.880] Why wasn't there an evacuation plan?
+- [13:40.710] And will you send planes to get people out?
+- [13:42.990] The President: Well, because it happened all very quickly.
+- [13:45.310] We thought, and I thought maybe more so than most,
+- [13:48.700] I could ask Marco --
+- [13:50.280] but I thought we were going to have a situation
+- [13:53.840] where we were going to be attacked.
+- [13:55.470] They were getting ready to attack Israel,
+- [13:58.610] they were getting ready to attack others,
+- [14:00.980] you're seeing that right now.
+- [14:02.330] And a lot of those missiles that are hitting,
+- [14:04.600] those are stationary -- those were aimed there
+- [14:06.340] for a long period of time at these other countries.
+- [14:08.990] So, I think I was right about that. We attacked first
+- [14:11.680] and, if we didn't, it could have been --
+- [14:13.290] you know, look, we're really decimating them.
+- [14:17.050] They're being decimated.
+- [14:18.890] And if we didn't -- and by the way,
+- [14:21.640] we have massive amounts of ammunition.
+- [14:24.770] We have the high end. A lot of it was given away,
+- [14:28.340] stupidly, by Biden, very stupidly for free.
+- [14:31.820] And I'm all for Ukraine, but they gave away a lot.
+- [14:35.900] As you know, when I give away ammunition,
+- [14:37.700] everybody pays for it.
+- [14:38.910] The European Union is paying for it,
+- [14:40.300] then they can do what they want with it.
+- [14:42.550] But they are giving it, let's say to Ukraine.
+- [14:44.560] And it's okay. But we gave away a lot of high end,
+- [14:48.230] but we have plenty.
+- [14:50.100] But we have unlimited middle and upper ammunition,
+- [14:54.370] which is really what we're using in this war.
+- [14:56.940] And we have really an unlimited supply.
+- [15:00.810] We also have a lot of the very high-end stored
+- [15:02.960] in different countries throughout the world
+- [15:05.110] where we're literally storing it there,
+- [15:06.900] which is actually something that I insisted on in my first term.
+- [15:12.010] I rebuilt the military in my first term.
+- [15:14.120] The military is great. A lot of --
+- [15:17.420] an unbelievable amount of ammunition or munitions,
+- [15:23.490] as they say, we're giving away to --
+- [15:25.880] you know, the Wall Street Journal
+- [15:27.230] incorrectly covered the story
+- [15:28.780] when they said that it was given away to the Middle East.
+- [15:31.400] Not to the Middle East, it was given away to Ukraine.
+- [15:33.760] Very little was given to the Middle East.
+- [15:36.100] Middle East would buy a lot and some of the nations,
+- [15:39.170] because they're rich, they have a lot,
+- [15:41.330] but it was given away to Ukraine
+- [15:44.280] and it just should have been done --
+- [15:47.070] look, it's a war that should have never happened.
+- [15:49.410] If I were president that war would have never happened.
+- [15:52.360] But we have a tremendous amount of munitions,
+- [15:56.160] ammunition at the upper level, middle and upper level,
+- [16:01.290] all of which is really powerful stuff.
+- [16:06.440] The Press: Mr. President, a question to both of you.
+- [16:09.230] How worried are you that the rising prices for gas
+- [16:12.210] and oil are damaging the American economy?
+- [16:15.320] And also, Mr. Chancellor --
+- [16:16.690] The President: Do you want to go ahead?
+- [16:17.900] Chancellor Merz: Yeah, sure.
+- [16:19.120] This is of course damaging our economies,
+- [16:21.600] this is true for the oil prices,
+- [16:23.380] and this is true for the gas prices as well.
+- [16:25.170] So, that's the reason why we all hope
+- [16:27.450] that this war will come to an end as soon as possible.
+- [16:31.300] And we are hoping that the Israeli and the American army
+- [16:34.990] are doing the right things to bring this to an end,
+- [16:37.440] and to have really a new government in place
+- [16:39.700] who is coming back to peace and freedom.
+- [16:42.240] The President: Yeah. Something had to be done
+- [16:44.930] and it's been 47 years.
+- [16:47.160] They've been killing people all over the world for a long time.
+- [16:51.260] They were the kings and fathers of the roadside bomb.
+- [16:55.230] Soleimani, we killed him last term.
+- [16:58.290] If we didn't, I think it might be a different story today.
+- [17:00.440] They would have been much stronger and smarter
+- [17:02.580] than they are.
+- [17:03.970] But they did the roadside bombs,
+- [17:06.880] 95 percent of the people lost their legs, arms,
+- [17:10.070] had their face wiped out, just wiped out.
+- [17:13.160] I've seen some young people that it's so sad to watch,
+- [17:17.080] and that was all --
+- [17:18.820] almost all, 95 percent comes from Iran and was Soleimani.
+- [17:25.860] Soleimani loved his favorite weapon,
+- [17:27.760] he loved the roadside bomb.
+- [17:29.910] And when you see people walking around with no legs
+- [17:32.070] and no arms and a face that's been blown to hell,
+- [17:36.250] these people, what they have to go
+- [17:37.560] and the way they have to live.
+- [17:38.800] This is Iran. When you look at the barracks,
+- [17:43.270] the famous barracks when you look at the hostages,
+- [17:46.210] when you look at a lot of hostages,
+- [17:48.290] when you look at all of the problems,
+- [17:49.860] they were really a purveyor of terror
+- [17:53.620] all over the world for many, many years.
+- [17:56.090] And it's something that had to be done, something --
+- [17:58.510] and I believe that if we didn't, because I see where Congress --
+- [18:01.940] you know, if I didn't do this,
+- [18:04.670] guys like Schumer who are losers,
+- [18:06.830] the Democrats, they're losers. That's why they're not here.
+- [18:10.930] Guys like Schumer would say, well, you should have done this.
+- [18:14.590] In other words, if I did it, it's no good.
+- [18:16.460] If I didn't do it, they would have said
+- [18:17.890] the opposite that you should have done this.
+- [18:19.650] But most people feel -- I'll tell you what,
+- [18:22.210] I have never had more compliments on something I did.
+- [18:25.700] People felt it's something that had to be done.
+- [18:27.710] So, if we have a little high oil prices for a little while,
+- [18:32.950] but as soon as this ends, those prices are going to drop,
+- [18:36.160] I believe, lower than even before.
+- [18:42.610] Go ahead, please.
+- [18:44.260] The Press: Mr. President, how do you want to solve the conflict
+- [18:47.670] on tariffs between you and US --
+- [18:50.640] The President: Between who?
+- [18:52.100] The Press: Conflict on tariffs between you and US?
+- [18:57.130] The President: Between US and who?
+- [18:58.820] The Press: EU -- European Union.
+- [19:01.730] The President: Well, we won on tariffs actually.
+- [19:05.600] Somebody said you actually won the case.
+- [19:07.420] We won on tariffs. We had a decision that was wrong.
+- [19:14.190] It was a very bad decision from certain standpoints,
+- [19:18.060] from other standpoints, a very powerful decision
+- [19:20.320] because it reaffirmed all the fact that we have
+- [19:23.110] all these various forms of tariffs that we felt right,
+- [19:27.630] but it totally reaffirmed.
+- [19:29.020] It said you can use all of these tariffs.
+- [19:30.980] So, we have all these vast menus of tariffs.
+- [19:33.570] And tariffs have made our country very rich.
+- [19:37.630] We have to charge tariffs to nations
+- [19:40.770] who play with their money.
+- [19:43.860] You know, they move their money up and down like a yoyo.
+- [19:48.630] We have to take care of nations that have been good to us
+- [19:52.500] and fair to us and we're going to take care of them.
+- [19:54.220] Other nations, they haven't
+- [19:56.520] and we haven't let them take advantage of us.
+- [19:58.470] But the whole thing with tariffs is we had a decision that,
+- [20:02.840] as an example, we have a license situation,
+- [20:06.580] and the license is something that allows us
+- [20:09.500] to immediately stop all business with --
+- [20:13.010] nobody even knew we had this power.
+- [20:15.680] But we do now because of the decision.
+- [20:18.320] We have the right to stop all business
+- [20:20.160] having to do with a certain country.
+- [20:22.940] If a certain country is not treating us well,
+- [20:25.720] the president, without going to Congress,
+- [20:28.680] has the right to stop -- sort of interesting.
+- [20:30.920] I have the right to stop, but under that one law
+- [20:33.950] I didn't have the right to charge him.
+- [20:35.250] So, I have the right to license them,
+- [20:36.900] but I don't have the right to charge,
+- [20:38.140] which is frankly ridiculous.
+- [20:40.870] But the right was given to us by the Supreme Court
+- [20:43.370] and we have the right --
+- [20:44.660] as an example, we talked about Spain.
+- [20:47.080] I could tomorrow stop -- or today, even better --
+- [20:50.230] stop everything having to do with Spain,
+- [20:52.610] all business having to do with Spain,
+- [20:54.260] I have the right to stop it, embargoes,
+- [20:58.400] do anything I want with it, and we may do that with Spain.
+- [21:00.790] What do you think?
+- [21:02.150] Jamieson Greer: Well, sir,
+- [21:03.380] I think we're going to talk about it with you.
+- [21:05.130] I know that you have strong power, as the report clarified.
+- [21:09.190] We know you can use it if you absolutely need to use it
+- [21:11.500] to ensure national and economic security, we'll do it.
+- [21:15.030] The President: Scott, do you have an opinion?
+- [21:17.180] Secretary Bessent: Sir, I agree the Supreme Court
+- [21:19.140] reaffirmed your ability to implement an embargo.
+- [21:23.340] And as we've talked the from your first term,
+- [21:27.530] the Section 301s and the 232s
+- [21:29.910] have withheld more than 4,000 lawsuits.
+- [21:32.240] And USTR and Commerce are going to investigate,
+- [21:36.560] are going to begin investigations,
+- [21:38.190] and we'll move forward with those.
+- [21:39.700] The President: And we've instituted a 15 percent tariff
+- [21:43.220] on everybody, as you know, and just used --
+- [21:48.710] I'll tell you, we had a couple of paragraphs
+- [21:54.120] written in that opinion that were really incredible.
+- [21:58.480] Justice Kavanaugh wrote a fantastic dissent.
+- [22:02.530] But in his dissent, he said what we should do
+- [22:05.490] and we knew that too, we just wanted to simplify it.
+- [22:09.330] And for some reason, I think very, very foolishly,
+- [22:15.700] the courts decided no,
+- [22:17.860] but they said you can do it many other ways
+- [22:20.230] and that's what we're doing.
+- [22:21.450] And what we've done is we've gone
+- [22:23.860] to a very simple straight 15 percent tariff.
+- [22:27.790] It's taken in -- we've taken in hundreds of billions of dollars
+- [22:31.600] in our country because of tariffs.
+- [22:33.570] So, we've taken in all of this money --
+- [22:35.840] hundreds of billions of dollars,
+- [22:38.090] and honestly, it's made us very rich as a country.
+- [22:42.640] So, it's been doing good.
+- [22:43.900] When will you have the full plan implemented?
+- [22:47.410] We have a five-month period -- up to five months,
+- [22:51.140] where we can go at 15 percent.
+- [22:53.480] And while we're doing that, as you know,
+- [22:55.140] we're doing the various studies and things
+- [22:57.600] and we'll be coming out with tariffs,
+- [22:59.670] different tariffs on different countries.
+- [23:01.300] You want to talk about that?
+- [23:02.520] Jamieson Greer: Yes, sir.
+- [23:03.740] By the time the five-month period has elapsed,
+- [23:06.000] we'll have completed investigations under Section 301
+- [23:09.190] that Secretary Bessent talked about.
+- [23:10.830] We know there are countries out there
+- [23:12.280] with deals who are very interested in keeping the deals.
+- [23:14.950] We need to go through and investigate
+- [23:16.250] all these unfair trading practices,
+- [23:17.610] the kinds of things you talked about,
+- [23:19.450] and make sure that we're protecting US economic security.
+- [23:21.510] We know they're --
+- [23:22.810] The President: How are we going to treat Germany?
+- [23:24.150] Jamieson Greer: Well.
+- [23:25.400] The President: I think you should hit them
+- [23:26.680] very, very hard.
+- [23:27.940] Jamieson Greer: (Inaudible)
+- [23:29.670] right there. They want to --
+- [23:33.350] they have expressed an interest --
+- [23:34.580] Germany's been quite constructive
+- [23:35.960] in wanting to move forward and be helpful.
+- [23:37.820] You know, the rest of you, you will talk to them as well,
+- [23:39.800] but obviously we'll --
+- [23:41.060] The President: I will say every country --
+- [23:42.660] every single country wants to make the deal they already have.
+- [23:45.780] In other words, a deal that we have using the other authority,
+- [23:51.390] they want to make the same deal.
+- [23:54.580] And we'd like to see -- actually,
+- [23:56.060] we're going to adjust it somewhat upward actually,
+- [23:58.030] but they would like --
+- [23:59.460] they all want to stay in the deal.
+- [24:01.250] And so, we'll probably be able to do that pretty easily.
+- [24:07.950] The Press: After all, Iran won't be able to deliver drones
+- [24:12.270] to Russia anymore?
+- [24:13.500] So, what does this war mean to Ukraine?
+- [24:15.590] And having Chancellor Merz sitting next to you,
+- [24:17.970] who would you call if you want to talk to Europe?
+- [24:21.120] And Chancellor Merz, you've just been in China.
+- [24:22.730] The president --
+- [24:23.970] The President: Who are you? What country are you from?
+- [24:25.820] The Press: I'm from Germany.
+- [24:27.090] The President: Okay, I thought so, I could see.
+- [24:32.280] She likes you.
+- [24:34.000] Chancellor Merz: I don't know.
+- [24:35.240] The Press: Will you be talking about China
+- [24:36.960] as well during this visit?
+- [24:38.240] The President: We'll be talking about China, yeah.
+- [24:41.550] I'll be going to China in a little while.
+- [24:43.320] Every time you meet you talk about China, we respect China.
+- [24:47.680] I do -- we both do, I think.
+- [24:49.480] But it's always a topic of conversation.
+- [24:53.410] We've had a very good relationship with China.
+- [24:56.170] We used to lose a tremendous amount of money with China
+- [24:58.630] and that's no longer the case.
+- [24:59.880] We have a very, very good relationship with China
+- [25:03.790] and we have a very good relationship with Germany.
+- [25:06.250] All right?
+- [25:07.500] The Press: Thank you, Mr. President.
+- [25:09.740] We've seen countries around the world,
+- [25:11.390] many of whom don't usually work together,
+- [25:13.220] working with the United States on Iran,
+- [25:15.390] whether it's Saudi Arabia
+- [25:16.900] working with the United States, Israel,
+- [25:19.290] Qatari shooting down Iranian aircraft,
+- [25:21.610] and we've also seen European countries step up.
+- [25:23.990] Why are we seeing such unity around the world against Iran?
+- [25:27.970] The President: That's a great point.
+- [25:29.250] Look, they're just evil. They're --
+- [25:33.510] it's not the politics; it's their whole philosophy.
+- [25:35.770] It's their whole -- where they come from.
+- [25:37.680] It's terrible where they kill 35,000.
+- [25:41.630] I thought it was 32,000.
+- [25:42.970] Now it turns out it's much more than 35,000 people.
+- [25:46.680] And in some cases, using machine guns with people
+- [25:50.260] that have no weapon.
+- [25:51.490] They have no weapon and they're being machine gunned;
+- [25:53.560] they're being snipered from buildings.
+- [25:56.350] They're hitting the people with snipers right through the eyes.
+- [25:59.970] It's just a very evil ideology.
+- [26:03.450] And nobody's really seen anything like it.
+- [26:08.360] As I said, even the fact
+- [26:09.640] that they've attacked all of their neighbors --
+- [26:12.380] and the neighbors weren't attacking,
+- [26:13.660] they thought they'd maybe sit it out or whatever.
+- [26:16.730] They've hit Qatar, they've hit UAE,
+- [26:22.000] they've hit Saudi Arabia, they've hit Oman.
+- [26:25.580] They were helping us negotiate, they got hit --
+- [26:27.490] everybody got hit because they're evil and they're bad.
+- [26:35.330] It's a bad seed and somebody had to do it.
+- [26:39.120] And it should have been done sometime during a 47-year period
+- [26:43.350] because so much death has been caused by them.
+- [26:46.100] So much unbelievable death -- from Germany too --
+- [26:49.740] I mean Germany has been hit. Everybody's been hit by them.
+- [26:53.050] It's an evil ideology and I've never been --
+- [26:57.910] look, I've done a lot of good things.
+- [26:59.220] So many people are saying thank you, thank you, thank you.
+- [27:01.720] You see it in the streets of Los Angeles.
+- [27:04.390] They have thousands of people,
+- [27:05.710] I saw it the other day, pictures of Donald Trump.
+- [27:08.990] And I'm looking -- I'm on the phone,
+- [27:10.760] probably talking to you
+- [27:12.400] and I'm looking and I see my picture.
+- [27:14.440] I say, oh, no, it's another protest.
+- [27:17.900] I see my picture and then I started saying, boy,
+- [27:20.390] they were very friendly people.
+- [27:22.190] And then I saw a woman hugging the picture of me.
+- [27:24.760] I say what's going on?
+- [27:26.050] And it turned out to be these are Iranian people
+- [27:29.270] that live in the United States,
+- [27:31.400] thousands and thousands, you saw the rallies.
+- [27:34.260] And in New York too, they had a big rally,
+- [27:36.370] my pictures all over the place.
+- [27:38.390] The fact is that people are happy what we did.
+- [27:42.020] And you could never -- and I've always said it,
+- [27:43.870] you could never have had true peace in the Middle East
+- [27:46.900] if Iran was allowed to go even beyond the nuclear.
+- [27:51.120] If Iran was allowed to have all the --
+- [27:52.850] look at all the missiles they built.
+- [27:54.190] A lot have been now taken out by us
+- [27:57.140] and a lot have been expended,
+- [27:59.260] but they had thousands of missiles
+- [28:00.980] in a fairly short period of time.
+- [28:03.950] And I'll go -- two things.
+- [28:07.120] The attack that we did known as Midnight Hammer,
+- [28:10.810] had we not done that Iran would have had
+- [28:13.720] a very powerful nuclear weapon within one month.
+- [28:17.650] We did it. It was great timing, but --
+- [28:20.140] and you've been able to see that too.
+- [28:22.430] The other thing was Barack Hussein Obama
+- [28:24.520] made maybe the worst deal I've ever seen
+- [28:27.220] because he gave all power in the Middle East to Iran.
+- [28:30.770] He went the exact opposite way, and I terminated that.
+- [28:34.630] If I didn't terminate that deal, they would be sitting
+- [28:37.790] with a massive nuclear weapon three years ago,
+- [28:40.770] which would have been used already on Israel
+- [28:42.710] at least and other countries also.
+- [28:46.420] And we wouldn't be talking about it right now.
+- [28:49.230] But if I didn't terminate the deal
+- [28:53.450] that Obama made giving them everything,
+- [28:56.470] including planeloads of cash.
+- [28:59.160] You remember the airplane flew over there?
+- [29:00.720] It was a Boeing 757; it was two of them loaded.
+- [29:06.190] They took out all the seats. It was loaded with green cash.
+- [29:10.280] So, much cash that you could --
+- [29:12.700] it was in Virginia, Maryland and Washington DC.
+- [29:16.460] They got all the cash from all the banks.
+- [29:18.250] They put it and they flew it to Iran.
+- [29:21.260] I never knew a president had that power.
+- [29:24.180] I'm going to maybe try it sometime if it's okay.
+- [29:26.360] I think I'm going to do it. I'll fly it somewhere.
+- [29:29.050] Nobody's ever seen anything like it.
+- [29:30.980] Two planes loaded from floor to ceiling -- big planes,
+- [29:35.670] Boeing 757s, taken over there and given cash.
+- [29:40.530] In addition then he was giving them billions of dollars.
+- [29:43.310] But worse, he was giving them the right to have the path
+- [29:46.780] to a nuclear weapon. And that deal expired.
+- [29:49.850] A lot of people said, oh, you terminated it.
+- [29:51.430] Well, it was going to be terminated anyway
+- [29:53.200] because it expired.
+- [29:54.870] It gave them the right to have top-of-the-line nuclear weapons.
+- [29:59.290] If they had -- because they're crazy,
+- [30:01.290] they're crazy just like the people on my right
+- [30:03.900] during the state of the Union.
+- [30:05.270] I looked at them -- I said you're crazy.
+- [30:07.160] These people are crazy and if they had a nuclear weapon,
+- [30:11.170] they would have used it.
+- [30:12.560] All right, how about one or two more?
+- [30:15.440] Go ahead, please.
+- [30:17.560] The Press: You just heard that the president
+- [30:19.200] is thinking about punishing Spain.
+- [30:21.810] What are your thoughts (Inaudible)
+- [30:23.220] on this and what can you do to --
+- [30:28.510] Chancellor Merz: Well, the answer on that is quite simple.
+- [30:30.560] We are trying to convince Spain to catch up with the 3 percent
+- [30:35.600] or 3.5 percent, which we agreed on in NATO.
+- [30:40.700] And as the president said, it's correct.
+- [30:43.650] Spain is the only one who is not willing to accept that,
+- [30:46.500] and we are trying to convince them
+- [30:48.040] that this is a part of our common security
+- [30:51.750] that we all have to comply with these numbers.
+- [30:54.770] And this is 3.5 for military
+- [30:56.890] and another 1.5 for our military infrastructure.
+- [30:59.850] So, Spain has to comply with that.
+- [31:02.850] The President: They're being very --
+- [31:04.450] Spain has been very, very uncooperative and so has UK.
+- [31:11.640] Now the second one is shocking,
+- [31:14.010] but this is not the age of Churchill.
+- [31:16.540] I will say the UK has been very, very uncooperative
+- [31:20.880] with that stupid island that they have that they gave away
+- [31:27.530] and took a 100-year lease having to do with
+- [31:30.490] perhaps indigenous people claiming the island
+- [31:34.970] that never even saw the island before.
+- [31:37.760] What's that all about?
+- [31:39.650] And they ruin relationships. It's a shame.
+- [31:45.180] And that country, UK, and I love that country.
+- [31:49.720] I love it. My mother was born there.
+- [31:52.310] I love it. My mother was born there.
+- [31:54.520] My father was born, right?
+- [31:56.530] He knows all about my father. My father was born there.
+- [32:00.500] So, there are places that you sort of
+- [32:02.980] automatically very, very -- feel warmly about.
+- [32:07.060] But the UK, what they're doing with energy
+- [32:10.370] and what they're doing with immigration is horrible.
+- [32:15.240] You have the North Sea -- somebody said yesterday,
+- [32:18.240] what would you do if you were in the UK?
+- [32:19.960] Open up the North Sea.
+- [32:22.040] They've got windmills all over the place
+- [32:23.800] that are ruining the country, ruining the landscapes,
+- [32:26.440] ruining the beautiful fields.
+- [32:28.710] Open up the North Sea, it's one of the greatest --
+- [32:30.950] think of it.
+- [32:32.260] They buy their energy from Norway,
+- [32:34.730] which gets the energy, the oil from the North Sea.
+- [32:39.070] So, Norway drills in the North Sea and sells it to UK.
+- [32:42.850] And UK has a better part of the North Sea.
+- [32:46.530] Open up that. And number two, illegal immigration.
+- [32:51.820] They've got to solve that problem.
+- [32:53.740] And I must say, that's not only UK,
+- [32:57.170] that's other parts of the European Union
+- [32:59.720] that have the same problem.
+- [33:00.980] Immigration and energy, the energy is through the roof,
+- [33:05.470] the highest in the world.
+- [33:07.170] And the immigration is, I mean, look, you have places
+- [33:11.100] where in the UK you have a terrible mayor of London.
+- [33:15.130] Terrible, he's an incompetent guy,
+- [33:17.490] but you have Sharia courts.
+- [33:19.670] You don't have Sharia courts, you don't want Sharia courts.
+- [33:21.710] You have Sharia courts adjudicating law.
+- [33:25.340] So, it's very simple -- immigration, very importantly,
+- [33:28.560] immigration and energy and you bring it back,
+- [33:31.920] otherwise you're not going to bring it back.
+- [33:33.680] OK, one more. Go ahead.
+- [33:36.310] The Press: I have a question for the Chancellor and one for you.
+- [33:38.800] Chancellor Merz, you've called for unity and joint force
+- [33:43.590] in this moment against Iran.
+- [33:45.200] What does that look like to you? And then Mr. President,
+- [33:48.050] where is getting a deal with Russia and Ukraine
+- [33:50.630] on your priority list right now?
+- [33:52.240] The President: Okay. You go on.
+- [33:53.450] Chancellor Merz: So, we -- as I said,
+- [33:55.080] in Germany, the last two days,
+- [33:57.620] we are supporting the United States and Israel
+- [34:01.640] to get rid of this terrible terrorist regime.
+- [34:06.740] And we are looking forward to a day after
+- [34:09.940] and we have to talk about the strategy,
+- [34:12.810] what is following after this regime is away.
+- [34:18.380] And we have to strategize on this entire region.
+- [34:22.660] And we are having a high interest in common approach
+- [34:26.510] and common work and what we can do
+- [34:28.760] and this is important not just for the Americans.
+- [34:31.520] This is extremely important for Europe
+- [34:33.450] and extremely important for Israel and their security.
+- [34:36.930] So, we are really looking forward to find ways
+- [34:39.960] how to deal about the day after.
+- [34:43.670] The President: And as far as Russia-Ukraine,
+- [34:45.100] where is it on my priority list? Very high. We thought that --
+- [34:49.580] I thought it was going to be one of the easier ones.
+- [34:51.400] I've settled eight wars
+- [34:53.250] and actually maybe one more than that.
+- [34:55.820] But minimum eight wars, big ones,
+- [34:57.920] potential India-Pakistan,
+- [35:00.320] big, big wars, very important, big ones.
+- [35:03.840] I thought this was going to be much easier than it is.
+- [35:06.790] It's very -- it's a tremendous hatred
+- [35:09.280] between President Putin and President Zelenskyy,
+- [35:12.850] tremendous hatred.
+- [35:14.420] I've seen a lot of hatred in my life,
+- [35:16.180] but I think this is about top scale.
+- [35:20.020] I believe it's going to happen.
+- [35:23.300] Sometimes I blame one, sometimes I blame the other.
+- [35:25.880] I think it's going to happen, but it's high on my list.
+- [35:28.990] Not in that it affects the United States so much
+- [35:31.370] because it's very far away.
+- [35:33.250] But last week, I just see last week
+- [35:36.130] and for the last four weeks actually,
+- [35:38.860] 32,000 soldiers died -- 32,000,
+- [35:42.470] and it's been averaging 25,000 to 30,000 soldiers
+- [35:46.420] a month have been dying in that stupid war,
+- [35:51.440] and I'd love to see it end.
+- [35:52.870] It's the worst that there has been since World War II.
+- [35:56.240] The Press: If you can't get a deal,
+- [35:57.520] what will that mean for you?
+- [36:01.000] The President: All you can do is do your best.
+- [36:02.560] It takes two to tango and they have to get along.
+- [36:06.310] They have to be able to talk to each other.
+- [36:07.870] They hate each other a lot, that has an impact, you know.
+- [36:11.540] It really has an impact, it's bad for both.
+- [36:14.200] The saddest is that, if the election weren't rigged,
+- [36:17.950] my election, that war would have never taken place.
+- [36:21.400] And you know what else wouldn't have taken place?
+- [36:23.410] Allowing 25 million people to pour through an open border;
+- [36:26.660] that wouldn't have taken place.
+- [36:28.050] A lot of things would have been different.
+- [36:31.640] But we're doing very well,
+- [36:32.850] and I think a big, big factor in this world and future factor
+- [36:36.660] is what we're doing right now with Iran.
+- [36:41.180] If we don't stop them or if we didn't stop them
+- [36:44.030] or if we didn't start, they've been decimated.
+- [36:48.200] But if we didn't do what we're doing right now,
+- [36:50.050] you would have had a nuclear war
+- [36:51.640] and they would have taken out many countries
+- [36:53.700] because, you know what, they're sick people.
+- [36:55.880] They're mentally ill, sick people.
+- [36:58.230] They're angry, they're crazy, they're sick.
+- [37:02.240] Thank you very much. Thank you very much, everybody.

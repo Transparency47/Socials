@@ -1,0 +1,34 @@
+# YouTube / WhiteHouse / 2025-08-05
+
+- Posts: 10
+
+- [21:18 UTC - President Trump has been awarded a full set of 1984 Olympic medals. 🏅🇺🇸](hFgj61_QsmM/)
+  - Source: https://www.youtube.com/watch?v=hFgj61-QsmM
+  - [00:00.160] As you know, 1984 hosted the Olympics in - [00:02.240] Los Angeles, and someone we admire, - [00:04.000] President Reagan, both of us, uh, - [00:06.000] presided over...
+- [21:13 UTC - President Trump Signs an Executive Order, Aug. 5, 2025](QFBG9DBdsHg/)
+  - Source: https://www.youtube.com/watch?v=QFBG9DBdsHg
+  - [00:00.040] Male Speaker: Ladies and gentlemen, - [00:01.280] please welcome Casey Wasserman, Chairman of L.A. - [00:04.750] 28, the Vice President of the United States, - [00:07...
+- [19:52 UTC - Thomas Stone](JpsU50qOHUU/)
+  - Source: https://www.youtube.com/watch?v=JpsU50qOHUU
+  - [00:00.000] [Music] - [00:11.120] I'm a lawyer, a legislator, and a - [00:13.519] reluctant revolutionary. I am Thomas - [00:15.920] Stone. I was born in Charles County, - [00:18...
+- [19:50 UTC - Francis Lightfoot Lee](oTREyEFGL_w/)
+  - Source: https://www.youtube.com/watch?v=oTREyEFGL-w
+  - [00:05.759] Greetings. I am Francis Lightoot Lee, a - [00:08.960] son of Virginia, a brother in freedom, a - [00:12.160] quiet man from a loud family, and one - [00:15.440] who s...
+- [19:49 UTC - George Ross](CPoCd8SxPOk/)
+  - Source: https://www.youtube.com/watch?v=CPoCd8SxPOk
+  - [00:05.839] You no doubt have heard of my niece - [00:07.680] Betsy. They call her a legend for her - [00:10.240] needle and rightly so. But long before - [00:13.040] her hand st...
+- [19:47 UTC - James Wilson](gaK_9PgYVR4/)
+  - Source: https://www.youtube.com/watch?v=gaK-9PgYVR4
+  - [00:00.000] [Music] - [00:05.839] I am James Wilson, immigrant, lawyer, - [00:09.120] and signer not just of one finding - [00:10.880] document, but two. I was born in - [00:13.7...
+- [19:45 UTC - Samuel Huntington](dclEumwvyms/)
+  - Source: https://www.youtube.com/watch?v=dclEumwvyms
+  - [00:00.150] [Music] - [00:06.160] Good day. I'm Samuel Huntington of - [00:08.480] Connecticut, farmer son, patriot, and - [00:10.719] servant to this young republic. I was - [00...
+- [16:29 UTC - President Trump's Tariffs Prove The 'Experts' WRONG](6U_cBayCzic/)
+  - Source: https://www.youtube.com/watch?v=6U_cBayCzic
+  - [00:00.080] The markets have digested Trump's tariff - [00:03.360] plans. They've heard his - [00:04.960] administration's explanations for it and - [00:08.480] they simply rejec...
+- [15:14 UTC - DEI? Removed. Woke? For losers. Men in women’s sports? Not here. Common sense is back. 🇺🇸🔥](lZlf0eMGYAo/)
+  - Source: https://www.youtube.com/watch?v=lZlf0eMGYAo
+  - [00:00.080] I will sign a new executive order to cut - [00:02.240] federal funding for any school pushing - [00:04.799] critical race theory, transgender - [00:06.960] insanity,...
+- [15:00 UTC - America is HOT! 🔥](T9ffzydCJr4/)
+  - Source: https://www.youtube.com/watch?v=T9ffzydCJr4
+  - [00:00.640] One year ago, our country was dead. Now - [00:04.080] we have the hottest country anywhere in - [00:07.120] the world by far. And that was told to - [00:09.840] me by...

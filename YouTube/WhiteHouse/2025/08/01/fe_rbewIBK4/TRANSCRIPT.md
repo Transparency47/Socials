@@ -1,0 +1,260 @@
+<!-- source: https://www.youtube.com/watch?v=fe-rbewIBK4 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: fe-rbewIBK4 -->
+<!-- date_published: 2025-08-01T21:52:25+00:00 -->
+<!-- date_accessed: 2026-06-02T01:19:01.132791+00:00 -->
+
+# Transcript: President Trump Gaggles with Press Before Departing the White House, Aug. 1, 2025
+
+- [00:03.060] [Applause]
+- [00:05.200] Are you gonna go to talk within before
+- [00:08.160] your deadline coming? I mean 10 days in
+- [00:11.120] the
+- [00:11.440] >> Well, we'll see what happens. We're
+- [00:12.880] going to have some meetings and we'll
+- [00:14.400] see what happens.
+- [00:16.160] >> Mr. President, you got the Mr. President
+- [00:19.359] today.
+- [00:20.640] >> Oh yeah, I think so. And if you look at
+- [00:22.720] before the election, the same kind of
+- [00:24.320] thing happen. And I think you'll see
+- [00:26.400] some very interesting information come
+- [00:28.240] out. But But you have to have honest
+- [00:30.560] reports and when you look at those
+- [00:32.960] numbers or when you look at just before
+- [00:35.360] the election and then after the election
+- [00:37.680] they corrected it by eight or 900,000
+- [00:40.800] jobs I would say
+- [00:48.640] >> we have a great relationship
+- [00:51.039] and when you have
+- [00:53.120] >> we have a great relationship with South
+- [00:54.960] Korea.
+- [00:55.440] >> Are you are you ready? Are you open to
+- [00:58.719] negotiate with Brazil? The Brazilian
+- [01:01.120] president Gula said he'd like to call
+- [01:03.440] you. He requests a conversation. Would
+- [01:05.439] you talk to him now? Are you
+- [01:06.640] >> He can talk to me anytime he wants.
+- [01:08.640] >> So, are you over the tariffs? Are you
+- [01:10.320] >> He can talk to me anytime he wants.
+- [01:11.840] >> What is What is on the table for Brazil?
+- [01:13.920] >> Well, we'll see what happens. But I love
+- [01:15.439] the people of Brazil.
+- [01:16.880] >> What does
+- [01:20.799] I love the people of Brazil?
+- [01:23.680] They don't related to trade, Mr.
+- [01:26.240] President. people running Brazil did the
+- [01:28.320] wrong thing.
+- [01:28.960] >> What evidence?
+- [01:32.320] >> Seven years. Seven years from the time
+- [01:34.880] that you learned that people were being
+- [01:37.119] stolen from Mara Lago to the time that
+- [01:39.680] you took
+- [01:43.439] >> I don't I don't understand your
+- [01:44.799] question.
+- [01:48.960] >> Say it. We are being deployed. Nuclear
+- [01:51.280] submarines.
+- [01:52.399] >> Oh yeah. Well, we had to do that. We
+- [01:54.799] just have to be careful.
+- [01:56.640] and a threat was made and we didn't
+- [01:58.719] think it was appropriate. So I have to
+- [02:00.719] be very careful. So I do that uh on the
+- [02:03.280] basis of safety for our people.
+- [02:05.600] >> A threat was made by a former president
+- [02:08.239] of Russia and we're going to protect our
+- [02:11.039] people.
+- [02:13.120] President
+- [02:15.440] election fraud.
+- [02:16.400] >> I hope so. I hope so. I don't know
+- [02:18.560] whether or not that'll happen, but I
+- [02:20.080] hope so. Mr. President, why did you fire
+- [02:22.080] the head of the Bureau of Labor
+- [02:23.120] Statistics? because I think her numbers
+- [02:25.040] were wrong. Just like I thought her
+- [02:27.360] numbers were wrong before the election,
+- [02:29.760] days before the election, she came out
+- [02:31.760] with these beautiful numbers for Kamala,
+- [02:34.480] I guess. Biden/ Kamala, and she came out
+- [02:37.599] with these beautiful numbers trying to
+- [02:39.200] get somebody else elected. Then right
+- [02:41.280] after the election, I think on the 15th,
+- [02:43.360] November 15th, she had an eight or
+- [02:45.840] $900,000
+- [02:47.519] massive reduction. Said she made a
+- [02:50.080] mistake. Uh no that woman that woman's
+- [02:53.360] number is up
+- [02:57.280] to you governor people are set to
+- [03:00.239] resign.
+- [03:00.720] >> Yeah the one of the governors as you
+- [03:03.200] know the Federal Reserve has just
+- [03:04.800] announced she's resigning. I understand
+- [03:07.200] it was over the fact that she disagreed
+- [03:09.840] with somebody from her party. She
+- [03:12.480] disagreed with too late. You know who
+- [03:14.720] too late is?
+- [03:15.760] >> Yes.
+- [03:16.080] >> She disagreed with too late on the uh
+- [03:18.720] interest rate. So, we'll see what
+- [03:20.640] happens. But we just found out that I
+- [03:23.920] have a open spot on the Federal Reserve
+- [03:26.400] Board. I'm very happy about that. John
+- [03:31.920] appointed
+- [03:36.000] and what did say to you? That means
+- [03:38.080] you're really mad.
+- [03:39.200] >> Well, you just have to read what he
+- [03:40.640] said. He was talking about nuclear. When
+- [03:43.200] you talk about nuclear, we have to be
+- [03:45.040] prepared. And we're totally prepared.
+- [03:46.799] >> Mr.
+- [03:48.000] on the monthly tax report going forward.
+- [03:51.280] Why should anyone trust the numbers?
+- [03:54.080] >> Well, that's the big thing. You're
+- [03:55.599] right. No, you're right.
+- [03:57.599] >> Why should anybody trust numbers? You go
+- [04:00.000] back to election election day. Look what
+- [04:02.959] happened two or three days before with
+- [04:04.879] massive wonderful job numbers trying to
+- [04:07.439] get him elected or her elected trying to
+- [04:10.400] get whoever the hell was running because
+- [04:12.799] you go back and they came out with
+- [04:15.519] numbers that were very favorable to Kla
+- [04:18.400] okay to trying to get him elected trying
+- [04:21.040] to get her elected and then on the 15th
+- [04:24.000] of November or thereabouts they had an 8
+- [04:26.800] or 900,000
+- [04:29.040] overstatement reduction right after the
+- [04:32.400] election. It didn't work because you
+- [04:34.800] know who won, John? I won.
+- [04:37.759] >> Your supporters have had issues with
+- [04:39.680] these numbers.
+- [04:40.800] >> I had issues with the numbers for a long
+- [04:42.479] time. But today,
+- [04:44.320] >> we're doing so well. I believe the
+- [04:46.800] numbers were phony just like they were
+- [04:48.639] before the election. And there were
+- [04:50.479] other times. So, you know what I did? I
+- [04:52.160] fired her.
+- [04:52.800] >> Right.
+- [04:53.440] >> And you know what? I did the right
+- [04:55.120] thing.
+- [04:56.880] But if any government official going
+- [04:58.479] forward
+- [04:59.759] >> is presenting data or information you
+- [05:02.320] don't like, should they fear for their
+- [05:04.160] job?
+- [05:04.560] >> I've always had a problem with these
+- [05:06.160] numbers. You know, I was thinking about
+- [05:07.440] it this morning. Before the numbers that
+- [05:09.680] came out, I said, "Who is the person
+- [05:12.000] that does these numbers and then they
+- [05:14.080] gave me stats about before the election?
+- [05:16.800] I had a similar problem. I mean, she
+- [05:18.960] gave out numbers that were so good for
+- [05:21.440] the Democrats. It was like
+- [05:22.800] unbelievable." And then right after the
+- [05:25.199] election, she corrected those numbers
+- [05:27.440] with I think almost 900,000 corrections.
+- [05:31.759] I think nobody had ever seen anything
+- [05:33.360] like it. Well, today she did the same
+- [05:35.600] thing with the 23,000
+- [05:38.400] whatever the number was. Uh, no, no, we
+- [05:41.280] need people that we can trust. I mean,
+- [05:42.960] your question, your question is a very
+- [05:44.880] good one. We need people we can trust.
+- [05:49.360] >> What would you like to see from
+- [05:50.479] >> you know who you plan to replace her
+- [05:51.840] with? I've got about three very good I
+- [05:54.080] have a lot of good candidates. I will
+- [05:56.160] say everybody wants it. I have had more
+- [05:58.320] phone calls, but I have three people
+- [06:00.880] that have a background in you know I can
+- [06:03.440] do a longterm thing or I could do a
+- [06:05.840] temporary.
+- [06:07.120] >> It's a 14-year term,
+- [06:08.639] >> right? But do you put someone in who
+- [06:10.160] actually has labor certificate
+- [06:11.600] experience?
+- [06:12.160] >> I put somebody in I put somebody in
+- [06:14.479] who's going to be honest.
+- [06:15.680] >> You think he lost all
+- [06:18.560] >> uh I have a choice. I can have four
+- [06:20.560] months.
+- [06:21.440] >> I could do a short term or I could do a
+- [06:23.120] 14-year
+- [06:24.639] deal. So we'll we'll see. We have a lot
+- [06:26.639] of people that we've got a lot of good
+- [06:27.919] people around.
+- [06:28.479] >> Can I ask you a construction?
+- [06:30.080] >> Switzerland. That was a shock. The
+- [06:31.680] tariff rate was Switzerland. It was
+- [06:33.199] produced higher than other Europeans.
+- [06:34.400] Well, the problem with Switzerland, we
+- [06:36.000] have a we have a 40 we have a $40
+- [06:38.000] billion deficit with Switzerland and I
+- [06:41.199] spoke yesterday to Switzerland, but we
+- [06:43.759] have a $40 billion deficit with
+- [06:46.160] Switzerland. That's a big deficit.
+- [06:48.160] >> Question on the construction. Can I ask
+- [06:49.600] you a question on the construction? You
+- [06:51.280] say you're raising $200 million. You're
+- [06:53.199] donating a bunch others are as well.
+- [06:55.360] >> Are you blocking foreigners from
+- [06:58.720] donating money to build next edition?
+- [07:01.360] >> Honestly, I never even thought of it,
+- [07:02.720] but it doesn't matter. I'm putting up my
+- [07:04.319] money, but it doesn't even matter.
+- [07:06.160] They've wanted a ballroom at the White
+- [07:07.919] House and it's been very popular. You
+- [07:10.160] know, when we put it out yesterday,
+- [07:11.360] >> ruling out that a crown prince or some
+- [07:13.599] >> No, I'm not looking I'm not looking for
+- [07:15.280] that.
+- [07:16.240] >> Uh, you know, you have very strong
+- [07:18.000] restrictions as to who can donate and we
+- [07:20.319] go by the restrictions.
+- [07:21.280] >> Are you going to publicize the name? Not
+- [07:23.680] a lot of I mean, it's not that much
+- [07:25.360] money. It's
+- [07:27.360] >> Yeah, I'll do that.
+- [07:29.520] >> I didn't I didn't even start yet, by the
+- [07:31.199] way. But when I do, I'll release.
+- [07:32.880] >> How many donors do you think it's going
+- [07:34.000] to take to get to 200 million?
+- [07:35.199] >> Maybe one. Me.
+- [07:36.639] >> But you would cut that check yourself.
+- [07:38.400] >> I would. Yeah.
+- [07:39.520] >> Did you talk to Steve Wickoff today from
+- [07:41.520] his journey to Gaza? Did you talk to
+- [07:43.120] Steve Wickoff?
+- [07:43.840] >> I did. I spoke to Steve Wickoff. He had
+- [07:46.400] a great meeting with a lot of people and
+- [07:48.800] the primary meeting was on food and he
+- [07:51.759] had he also had some other conversations
+- [07:53.840] that I'll tell you about later. But he
+- [07:55.840] had a meeting on getting the people fed
+- [07:59.039] and that's what we want. and I'll see
+- [08:01.199] you later on.
+- [08:03.680] >> In terms of in terms of the penalties on
+- [08:05.840] India, what numbers are you looking at
+- [08:07.759] and are you going to be having a
+- [08:08.960] conversation?
+- [08:09.759] >> Well, I understand India no longer is
+- [08:11.759] going to be buying oil from Russia.
+- [08:14.240] That's what I heard. I don't know if
+- [08:15.360] that's right or not, but that's a good
+- [08:17.360] step. We'll see what happens. Okay.
+- [08:26.960] >> So much money right now. Republican
+- [08:30.400] tax.
+- [08:39.279] It's something I could see. How much
+- [08:40.800] would be I also want I want to pay off
+- [08:42.640] that there's a possibility I do
+- [08:51.519] obviously.
+- [08:52.910] [Music]
+- [08:56.320] How many of these
+- [09:02.320] if somebody could convince us that you
+- [09:04.560] know they have a case like Switzerland
+- [09:06.640] was complaining but $40 billion a year
+- [09:09.839] with Switzerland uh we had to do
+- [09:13.900] [Applause]
+- [09:16.640] [Music]

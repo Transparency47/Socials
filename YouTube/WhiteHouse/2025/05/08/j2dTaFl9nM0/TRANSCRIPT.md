@@ -1,0 +1,1524 @@
+<!-- source: https://www.youtube.com/watch?v=j2dTaFl9nM0 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: j2dTaFl9nM0 -->
+<!-- date_published: 2025-05-08T15:59:31+00:00 -->
+<!-- date_accessed: 2026-06-02T02:50:39.696946+00:00 -->
+
+# Transcript: President Trump Makes a Trade Announcement, May 8, 2025
+
+- [00:06.020] President Trump: You all set to go?
+- [00:07.630] This is-
+- [00:08.880] Prime Minister Starmer: Ready when you are.
+- [00:10.110] President Trump: Okay, we're ready.
+- [00:11.380] We have the prime minister on the phone
+- [00:13.760] and we have a nice hookup.
+- [00:15.360] This looks like the kind of a hookup
+- [00:16.720] that's not going to be causing any problems,
+- [00:19.320] and your voice comes through beautifully here,
+- [00:21.350] so I just want to-
+- [00:22.670] Prime Minister Starmer: Oh, that's good.
+- [00:23.900] President Trump: Yeah, it is. You sound great.
+- [00:26.170] I just want to begin by saying that this is a very special day
+- [00:30.210] because it's Victory Day, World War II,
+- [00:33.770] May 8th, and just by happenstance
+- [00:37.790] we have the prime minister on the phone
+- [00:40.040] and we were great allies in that,
+- [00:42.410] and it's very unusual that the trade deal comes due,
+- [00:45.490] and we signed it up on the same day
+- [00:48.430] that we had a great victory,
+- [00:49.680] the greatest victory of them all.
+- [00:51.060] So we are talking more and more about Victory Day
+- [00:55.700] because we were a big part of it and so was the UK.
+- [01:00.070] And it's just… I guess, I don't know what you'd call it.
+- [01:04.330] It's just incredible that that day is the same day
+- [01:07.440] that we signed a tremendous trade deal for both countries.
+- [01:11.860] So I'm going to begin by just adding
+- [01:14.890] that we just concluded the rare earth deal with Ukraine,
+- [01:18.640] that's been fully ratified and approved
+- [01:20.430] by their legislative branches, so we appreciate that,
+- [01:24.800] and I'll be speaking with the president in a little while,
+- [01:28.840] a little bit later and we appreciate that.
+- [01:31.690] But the deal is all now signed up and ratified,
+- [01:35.180] and we have access to a massive amount of very,
+- [01:38.110] very high quality rare earth.
+- [01:41.930] This morning I'm thrilled to announce
+- [01:43.650] that we have reached a breakthrough trade deal
+- [01:45.810] with the United Kingdom, incredible country.
+- [01:49.850] Today is a victory day for World War II.
+- [01:53.530] We won the war together exactly 80 years ago,
+- [01:56.930] so there could be no more perfect morning
+- [01:59.530] to reach this historic agreement,
+- [02:01.220] and it's beautiful weather out.
+- [02:02.510] I will tell you that Keir, beautiful weather,
+- [02:04.410] it's so perfect outside.
+- [02:06.990] But it's really in particular the agreement
+- [02:10.390] with one of our closest and most cherished allies,
+- [02:15.240] and we're so happy that that's the way it worked out.
+- [02:18.600] I want to thank Prime Minister Starmer
+- [02:20.330] and his very talented team
+- [02:22.480] for their outstanding work and partnership.
+- [02:26.120] Today's agreement with the UK
+- [02:28.410] is the first in a series of agreements on trade
+- [02:30.680] that my administration has been negotiating
+- [02:32.920] over the past four weeks.
+- [02:35.530] With this deal, the UK joins the United States
+- [02:38.210] in affirming that reciprocity and fairness is an essential
+- [02:42.400] and vital principle of international trade.
+- [02:47.070] The deal includes billions of dollars
+- [02:49.130] of increased market access for American exports,
+- [02:52.550] especially in agriculture,
+- [02:54.000] dramatically increasing access for American beef, ethanol,
+- [02:58.540] and virtually all of the products
+- [03:02.010] produced by our great farmers.
+- [03:03.860] And our secretary, as you know, of agriculture is here,
+- [03:06.660] Brooke, thank you very much being here.
+- [03:08.130] Secretary Rollins: Thank you, it's a good day.
+- [03:09.390] Thank you, sir.
+- [03:10.590] President Trump: You'll let the farmers know.
+- [03:12.400] In addition, the UK will reduce
+- [03:14.710] or eliminate numerous non-tariff barriers
+- [03:17.370] that unfairly discriminated against American products,
+- [03:21.360] but this is now turning out,
+- [03:22.580] I think really to be a great deal for both countries,
+- [03:24.720] because it'll be really great for the UK also.
+- [03:27.620] So they're opening up the country.
+- [03:30.680] Their country is a little closed, and we appreciate that.
+- [03:35.410] They'll also be fast-tracking American goods
+- [03:37.870] through their customs process.
+- [03:39.430] So our exports go to a very, very quick form of approval
+- [03:45.290] and there won't be any red tape.
+- [03:47.680] Things are going to move very quickly both ways.
+- [03:50.220] The final details are being written up,
+- [03:51.880] in the coming weeks we'll have it all very conclusive,
+- [03:55.410] but the actual deal is a very conclusive one.
+- [03:57.950] We think just about everything's been approved,
+- [04:02.660] it's so good for both countries,
+- [04:04.080] and we'll also receive new market access
+- [04:06.330] for American chemicals, machinery,
+- [04:08.090] and many other industrial products that weren't allowed.
+- [04:12.440] And they'll end up getting products
+- [04:14.020] that they'll be able to price.
+- [04:15.270] And if they like them better, and we make great products,
+- [04:18.120] they'll be buying those products,
+- [04:19.330] but they were not available in the UK.
+- [04:22.440] Furthermore, in a historic step,
+- [04:24.610] the deal includes plans that will bring the United Kingdom
+- [04:28.280] into the economic security alignment
+- [04:30.340] with the United States. That's the first of its kind.
+- [04:34.070] So we have a big economic security blanket,
+- [04:37.120] and that's very important
+- [04:38.400] and we feel very, very comfortable with that
+- [04:41.180] because it's been a great ally, truly one of our great allies.
+- [04:43.970] I mean, a lot of people say our greatest ally.
+- [04:46.580] I don't want to insult people by saying that,
+- [04:49.250] but I can say it's certainly one of our greatest,
+- [04:51.730] and they're right at the top,
+- [04:53.000] and they're the first one we're talking about.
+- [04:55.290] And by the way, we have many meetings planned today,
+- [04:58.540] and tomorrow, and every country wants to be making deals.
+- [05:03.400] And we have a meeting, as you know,
+- [05:05.400] Scott will be going over to Switzerland on Saturday,
+- [05:08.420] and that'll be very interesting. We'll find out.
+- [05:12.180] But I think they want to make a deal very badly too.
+- [05:14.910] Both countries have agreed that the economic security
+- [05:17.470] is national security, and we'll be working together
+- [05:19.800] as allies to ensure that we have a strong industrial base,
+- [05:23.100] appropriate export controls,
+- [05:24.820] and protections for key technologies
+- [05:27.290] and industries like steel. Steel is a big factor.
+- [05:30.650] Both countries will become stronger with steel,
+- [05:33.400] and things necessary for military.
+- [05:35.460] We used to build ships and other things literally at a level
+- [05:39.610] that nobody's ever seen and we haven't…
+- [05:42.950] We've eased up, and I would say that the UK certainly eased up,
+- [05:45.640] but now we're going to be uneasing both,
+- [05:47.380] and we'll work together.
+- [05:49.260] Once again, I want to thank Prime Minister Starmer.
+- [05:51.500] He's been terrific for his partnership in this matter.
+- [05:53.870] The special relationship and external bond,
+- [05:57.290] it's really an external and an internal bond
+- [06:00.080] between our two countries,
+- [06:01.420] will soon be stronger than ever before.
+- [06:03.480] And we really do, we have a great relationship.
+- [06:06.250] I want to just say that the representatives of UK
+- [06:09.520] have been so professional,
+- [06:11.460] and it's been an honor doing business with all of them
+- [06:14.580] and in particular the Prime Minister.
+- [06:16.600] And I'd like to introduce him now to say a few words.
+- [06:20.070] Mr. Prime Minister, please take it away.
+- [06:24.730] Prime Minister Starmer: Thank you, Mr. President, Donald.
+- [06:27.090] And this is a really fantastic historic day
+- [06:31.410] in which we can announce this deal
+- [06:33.930] between our two great countries.
+- [06:35.960] And I think is a real tribute to the history
+- [06:40.430] that we have of working so closely together.
+- [06:43.120] Can I pay tribute, Donald,
+- [06:44.490] to your negotiating team as well,
+- [06:46.240] particularly Howard and Jamieson who've done an incredible job,
+- [06:50.140] a very professional job, and my team as well.
+- [06:53.480] The two negotiating teams have worked at pace now
+- [06:57.490] for a number of weeks to bring in this deal today,
+- [07:01.410] really important deal.
+- [07:02.640] This is going to boost trade between
+- [07:05.490] and across our countries.
+- [07:07.020] It's going to not only protect jobs,
+- [07:08.780] but create jobs, opening market access.
+- [07:12.840] And as you say, Donald, the timing couldn't be more apt
+- [07:17.360] because not only was it 80 years ago today
+- [07:23.470] that victory came for Europe after,
+- [07:28.130] and at the end of the Second World War,
+- [07:30.030] but of course on that day, the UK and the U.S.
+- [07:33.310] stood together as the closest of allies.
+- [07:35.970] And Donald, I think even down to the hour,
+- [07:39.550] because you may or may not know
+- [07:41.460] that it was about this time of day, exactly 80 years ago,
+- [07:46.740] that Winston Churchill announced victory in Europe.
+- [07:52.060] And that led to great celebrations across Europe,
+- [07:56.050] across America, but particularly in the United Kingdom,
+- [07:59.990] literally people going out into the street,
+- [08:02.780] putting bunting up, and going up to the palace.
+- [08:05.800] And so to be able to announce this great deal on the same day,
+- [08:12.180] 80 years forward, almost at the same hour,
+- [08:17.060] and as we were 80 years ago with the UK
+- [08:20.270] and the U.S. standing side-by-side,
+- [08:22.820] I think is incredibly important, and makes this truly historic.
+- [08:28.460] That close relationship has endured over those 80 years.
+- [08:32.400] As you know Donald, when it comes to defense
+- [08:34.640] and security and intelligent sharing of course,
+- [08:37.680] there are no two countries
+- [08:38.980] that are closer than our two countries.
+- [08:41.270] And now we take this into new and important territory
+- [08:45.070] by adding trade in the economy
+- [08:46.950] to the closeness of our relationship.
+- [08:49.840] It is built as you say,
+- [08:51.450] on those notions of fairness and reciprocal arrangements.
+- [08:56.460] We've always had a fair and balanced arrangement
+- [08:58.430] between our countries. This builds on that.
+- [09:01.590] Hugely important for sectors like car manufacturing,
+- [09:06.140] and for steel, and aluminum, and so many others.
+- [09:10.330] And yes, we can finish ironing out some of the details,
+- [09:13.550] but there's a fantastic platform here,
+- [09:16.050] including of course on the tech side,
+- [09:18.210] where I think I'm right in saying
+- [09:19.430] we're the only two Western countries
+- [09:21.690] with trillion dollar sectors when it comes to tech.
+- [09:25.420] And in the end it comes down to, as you say,
+- [09:29.600] Donald, economic security is national security.
+- [09:32.890] On national security we've been absolutely the closest
+- [09:36.330] of allies for so many years,
+- [09:37.930] keeping the peace through that close alliance, that friendship.
+- [09:42.940] And now we add to that this deal on trade and the economy.
+- [09:47.760] And I want to thank you for your leadership on that,
+- [09:51.310] Donald, and for the way in which your team have negotiated this.
+- [09:56.230] And I'm so pleased that we've got this deal.
+- [09:59.250] We've finalized it,
+- [10:01.350] and we've built an incredible platform for the future.
+- [10:05.580] So thank you so much, Donald.
+- [10:08.170] I'm now going to go and do a press conference.
+- [10:10.890] I think you have your press in with you,
+- [10:13.970] but on the details, I think if you've got Howard,
+- [10:17.690] we can deal with that through one of my team.
+- [10:21.760] President Trump: That's great.
+- [10:22.960] Well, Mr. Prime Minister, thank you very much.
+- [10:25.190] It's an honor. We're going to have a continued,
+- [10:27.380] maybe a better relationship than ever before.
+- [10:30.710] I don't know if the media knows,
+- [10:31.930] but the U.S. and UK have been working for years
+- [10:36.580] to try and make a deal, and it never quite got there.
+- [10:39.310] Prime Minister Starmer: Yeah.
+- [10:40.580] President Trump: It did with this prime Minister.
+- [10:41.990] So I want to just congratulate you.
+- [10:44.430] Prime Minister Starmer: Well with this prime minister
+- [10:46.010] we've managed to achieve
+- [10:47.250] what many people have tried to achieve for many years.
+- [10:49.160] President Trump: That's right.
+- [10:50.430] Prime Minister Starmer: And I'm really pleased,
+- [10:51.630] and it feels completely historic and
+- [10:55.020] on a special 80-year anniversary as well.
+- [10:57.690] So Donald, thank you so much.
+- [10:59.790] It's really good to have got this deal over the line,
+- [11:03.810] tribute to both teams, tribute to our countries,
+- [11:05.840] and tribute to your leadership.
+- [11:07.090] President Trump: Thank you.
+- [11:08.330] Well, it really is a great thing.
+- [11:09.540] And you go do your press conference
+- [11:11.240] and I'll see you soon.
+- [11:12.450] Maybe speak to you later, but thank you very much.
+- [11:15.310] An incredible thing.
+- [11:16.620] I can't tell you that for so many years,
+- [11:19.020] even as I sat, everybody talked,
+- [11:20.940] and talked, and talked about a deal with,
+- [11:22.960] it just seemed like a natural deal,
+- [11:24.490] but it was not done. But now it was done with us.
+- [11:27.830] So I feel very proud to have been a part of it.
+- [11:31.070] Keir, thank you very much.
+- [11:33.220] Prime Minister Starmer: Thanks Donald.
+- [11:34.500] And we'll speak again soon.
+- [11:35.730] President Trump: Very good. So long. Bye.
+- [11:40.880] That's really nice. Why don't I do this,
+- [11:47.450] why don't I have our Secretary of Commerce Howard Lutnick,
+- [11:51.660] give a little description of the deal pretty quick,
+- [11:54.430] and then the good side, the very nice side,
+- [11:59.480] we'll be speaking about it also maybe from…
+- [12:02.470] so you get pretty equal. I think it's a very…
+- [12:06.180] It's just been a deal that was, we thought very complicated.
+- [12:09.250] It became very simple. It's opening up the country
+- [12:12.040] that we really didn't have the kind of access to that
+- [12:14.080] I would've thought; I was surprised.
+- [12:15.660] I think it's why the deal never got done before.
+- [12:18.220] They've been working on this deal for 25 years
+- [12:21.240] and we got it done and we got it done.
+- [12:23.600] Really, it's going to be great for both countries.
+- [12:25.440] So Howard, if you could go, and then somebody else.
+- [12:29.310] You may have… You'll pick whoever you want.
+- [12:31.940] Who'd like to do it?
+- [12:33.260] I have a feeling you're going to do it, right?
+- [12:35.430] So you guys go ahead
+- [12:37.120] and then we'll take questions right after that.
+- [12:39.160] But I think you'll get a pretty good understanding
+- [12:40.750] of how big it is. It's a very large deal.
+- [12:43.330] Very big deal. And Howard, go ahead.
+- [12:46.160] Secretary Lutnick: So the UK is the sixth-largest economy
+- [12:49.540] in the world
+- [12:50.810] and the fourth-largest that we export to.
+- [12:54.860] So it's a huge market, a top 10 market.
+- [12:58.560] If you remember Liberation Day, they were at 10%
+- [13:02.400] because we have balanced trade with the UK.
+- [13:05.960] They say they have a surplus,
+- [13:07.250] but of course that counts gold bullion, which is…
+- [13:10.370] So let's just call it balanced trade.
+- [13:12.480] So how do you open up a market in balanced trade?
+- [13:15.030] People think it's impossible.
+- [13:16.540] They've always thought it was impossible
+- [13:18.390] until President Trump came on the scene
+- [13:20.900] and changed the way things work.
+- [13:22.840] So here's what we've got.
+- [13:24.550] We've opened up new market access,
+- [13:27.690] ethanol, beef, machinery, all the agricultural products
+- [13:31.840] they've agreed to open their markets,
+- [13:34.190] and that will add $5 billion of opportunity
+- [13:38.060] to American exporters.
+- [13:40.040] So the question is why would they do that now,
+- [13:43.170] because they've never done it before?
+- [13:44.470] And we still have our 10% tariff on,
+- [13:47.160] which will produce $6 billion of revenue for the United States.
+- [13:51.500] So the idea was how did they keep their jobs,
+- [13:54.200] protect their economy,
+- [13:56.720] and do the best for their people while opening the market for us?
+- [14:00.090] And the ways they studied it, their team was exceptional,
+- [14:03.650] and they tried to figure out the markets
+- [14:05.230] that they're importing from other people
+- [14:07.850] and try to send them over to America.
+- [14:09.810] So why were they always favoring others and not us?
+- [14:13.550] And what they've done is they've found the ways to do that
+- [14:17.000] so that we have new access,
+- [14:20.290] but the UK workers are protected.
+- [14:22.830] And that was the balance.
+- [14:24.120] So we did a deal with them in automobiles,
+- [14:27.200] and you know if you're not building here,
+- [14:30.480] we charge you a 25% tariff. But the president,
+- [14:33.540] and by the way, I want to make this clear,
+- [14:35.120] while Jamieson and I worked hard,
+- [14:36.950] this was the president's deal.
+- [14:38.190] And people think, "Oh, that's not the way it works."
+- [14:40.690] If you got to sit next to him,
+- [14:42.300] I have the best deal-maker to my left.
+- [14:45.080] And if you don't think that we take advantage of him
+- [14:48.150] calling the Prime Minister, and getting that deal done,
+- [14:50.770] you don't understand who's the President of the United States.
+- [14:53.540] So he's the closer he gets deals done
+- [14:56.350] that we could never get done
+- [14:58.340] because he understands business, he understands deals,
+- [15:01.780] and that's why we're here today.
+- [15:03.940] So he agreed they could send 100,000 cars into America
+- [15:10.050] and only pay a 10% tariff.
+- [15:11.990] And that protects their car industry.
+- [15:14.030] And remember, we do 16 million cars a year,
+- [15:17.730] so this is only like 0.6%, but for the UK auto people,
+- [15:22.840] this is tens of thousands of jobs
+- [15:25.280] that the president agreed that he would protect for them.
+- [15:28.170] So he made that deal, right?
+- [15:30.520] Then steel and aluminum,
+- [15:32.410] their steel business has been destroyed
+- [15:34.180] like everybody else has been destroyed
+- [15:36.150] by people dumping steel into their markets.
+- [15:39.520] And British Steel had announced it was closing down.
+- [15:42.500] So the British government as part of this deal,
+- [15:44.810] nationalized British Steel
+- [15:47.250] and they're going to match the kinds of models we do.
+- [15:50.150] They'll put tariffs on, they'll put quotas on,
+- [15:52.630] they want to do it with America
+- [15:54.920] so they can be part of the resurgence
+- [15:57.450] of steel and aluminum in America.
+- [15:59.200] And that saves them, again, thousands and thousands of jobs.
+- [16:03.340] So if you go step-by-step, aero and commercial planes,
+- [16:09.300] they sell Rolls-Royce engines to Boeing.
+- [16:11.830] We've agreed to let Rolls-Royce engines
+- [16:14.660] and those kind of plane parts to come over tariff-free.
+- [16:18.340] And what you're going to hear today
+- [16:19.920] is there's going to be an announcement that the UK,
+- [16:22.370] that they are buying $10 billion
+- [16:25.640] worth of Boeing planes later today.
+- [16:27.990] But I'm going to let the name of the airline announce it,
+- [16:30.940] because that's theirs to do it.
+- [16:32.760] Part of this deal was always to do it together
+- [16:36.330] and to do it strong.
+- [16:37.620] And you can see the numbers on this board.
+- [16:39.690] Everything about this board works exceptionally well
+- [16:42.480] for the United States of America.
+- [16:43.920] It lays out the plan that you can work with us in autos,
+- [16:47.310] you can work with us with aero and commercial,
+- [16:50.040] you can work with us in pharmaceuticals
+- [16:52.140] if you have a supply chain that is secure
+- [16:54.450] and protected in national security.
+- [16:56.600] So we feel really good about the deal.
+- [16:58.520] You've heard the prime minister,
+- [16:59.970] he feels really good about the deal, right?
+- [17:02.170] And we started at 10%, and we ended at 10%,
+- [17:05.760] and the market for America is better,
+- [17:08.540] and this is a perfect example
+- [17:10.620] of why Donald Trump produced Liberation Day.
+- [17:13.790] People don't understand he gets things done in a matter of time.
+- [17:18.520] This would've taken Jamieson and I three years, maybe.
+- [17:22.810] And instead, we got it done in 45 days,
+- [17:26.090] certainly because we work for Donald Trump.
+- [17:28.860] So Jamieson, my partner in all this,
+- [17:30.640] maybe, Jamieson, you'd like to talk a little,
+- [17:32.270] and then we'll turn it over to the UK.
+- [17:33.800] Mr. Greer: Sure. Happy to do that.
+- [17:35.370] Everyone had great remarks.
+- [17:38.900] I just have to echo the president
+- [17:40.480] and the prime minister. When we talk about VE Day,
+- [17:42.400] this is something we've been waiting for for decades,
+- [17:44.610] and there is no more appropriate day to do this.
+- [17:46.580] And when we step back and we look back a few weeks
+- [17:49.220] from now, or months from now, or years from now,
+- [17:50.960] we're going to look back at this day
+- [17:52.290] and better appreciate the significance, I think.
+- [17:56.180] And I'll just say as well in terms of negotiating,
+- [17:59.010] I mean, the UK negotiators, we've got one right here,
+- [18:03.170] did an incredible job, right?
+- [18:04.500] This is why you win wars, right, when you act like this?
+- [18:07.350] And the ambassador, he knows more about trade
+- [18:09.620] than a lot of us here based on his background.
+- [18:12.170] And I would say on this deal, Mr. President, what we've shown
+- [18:15.150] is that it is time to change the way we do trade.
+- [18:19.100] People said we couldn't do a global tariff,
+- [18:21.860] we did a global tariff.
+- [18:23.120] They said no one would want to deal with us,
+- [18:24.440] people want to deal. They said no one would give offers.
+- [18:26.560] You saw that stack of offers I showed you yesterday
+- [18:28.740] of all those countries. Said we wouldn't get deals,
+- [18:30.680] and here we are with a deal with the sixth-largest economy.
+- [18:33.880] We've agreed to have fair and reciprocal trade,
+- [18:35.810] and we've done it in record time.
+- [18:37.180] President Trump: Thank you very much.
+- [18:38.430] Mr. Greer: Thank you, sir. President Trump: Great job.
+- [18:39.690] Mr. Greer: Thank you, sir.
+- [18:40.900] President Trump: Mr. Ambassador, please.
+- [18:42.130] Ambassador Mandelson: Well, Mr. President,
+- [18:43.340] thank you very much indeed in hosting us this morning,
+- [18:48.530] and thank you very much indeed
+- [18:50.030] also for that very typical eleventh-hour intervention
+- [18:55.050] by you with your phone call to the president
+- [18:57.890] demanding even more out of this deal
+- [19:00.840] than any of us expected. So, thank you for that.
+- [19:03.920] The prime minister was delighted, obviously,
+- [19:06.900] to take that call late at night,
+- [19:10.280] but you took it to another level.
+- [19:11.770] And I think the point I would make is twofold.
+- [19:15.750] One is that if we're going to rebalance
+- [19:19.390] and rebuild international trade
+- [19:22.470] in a way that serves all our interests,
+- [19:25.640] then we're better doing that to together
+- [19:27.990] than separately and apart,
+- [19:30.190] and that's what we're on a mission to do.
+- [19:33.980] But secondly, you've done what you said you would do.
+- [19:37.390] You said to the prime minister when he came
+- [19:42.240] and we visited in the Oval,
+- [19:44.860] that you would do a good trade deal with the United Kingdom,
+- [19:49.110] that you would do it at pace, and that we would be first.
+- [19:52.910] And you have delivered that. You've been true to your word.
+- [19:55.660] So thank you very much, indeed, for that.
+- [19:59.700] For us, it's not the end.
+- [20:02.070] It's the end just of the beginning.
+- [20:05.690] There is yet more we can do
+- [20:07.650] in reducing tariffs and trade barriers
+- [20:11.520] so as to open up our markets to each other,
+- [20:15.100] even more than we are agreeing to do today,
+- [20:18.400] but it also provides us with the platform,
+- [20:22.000] the springboard to do what I think will be even
+- [20:26.450] more valuable for both our countries in the future,
+- [20:29.440] and that's creating a technology partnership
+- [20:34.020] between the United States and the United Kingdom
+- [20:37.800] so that we can harness science and technology
+- [20:41.000] in order to create future industries and future jobs,
+- [20:45.140] and to do that together in the way we work so closely
+- [20:48.830] already in the national security and defense area.
+- [20:52.220] We can just take that to yet further areas of science,
+- [20:57.420] enterprise, and endeavor.
+- [20:58.890] So, we're looking forward to doing that in the coming months.
+- [21:05.180] You've launched us extremely well today.
+- [21:09.580] It just, in my view, as the prime minister has said,
+- [21:12.430] just shows what two countries who trust each other,
+- [21:16.790] who are confident in each other,
+- [21:18.600] and are familiar with each other can do not just for ourselves,
+- [21:22.540] but for those in the rest of the world
+- [21:24.690] who need to benefit from a bigger
+- [21:26.410] and better international trading system.
+- [21:29.780] President Trump: Thank you very much.
+- [21:31.170] That was beautifully stated. What a beautiful accent too.
+- [21:34.620] I'd like to have that accent. Thank you.
+- [21:36.340] Ambassador Mandelson: My mother would be proud.
+- [21:38.440] President Trump: Thank you very much.
+- [21:39.660] Any questions?
+- [21:40.900] The Press: James [inaudible] from The Time News.
+- [21:42.160] President Trump: Yes.
+- [21:43.390] The Press: Can I ask why Britain and why now?
+- [21:46.960] And you've described this deal
+- [21:48.650] as a full and comprehensive deal,
+- [21:51.220] and yet we've just heard from Mr. Mandelson,
+- [21:52.810] "It's the end of the beginning."
+- [21:54.970] Clearly, there's much more work still to do.
+- [21:57.870] With respect, are you overstating the reach
+- [22:00.350] and significance of this deal because you're a president
+- [22:03.270] who needs a result at a difficult time?
+- [22:05.960] President Trump: I think that it's a great deal
+- [22:07.270] for both parties. It's for us, we're opened up.
+- [22:10.980] I didn't know how closed it was, quite closed,
+- [22:13.350] the market, as you know, the UK,
+- [22:15.620] and it opens up a tremendous market for us
+- [22:18.240] and it works out very well, very well.
+- [22:21.950] And a lot of assets.
+- [22:24.770] You see the chart and those are tremendous assets.
+- [22:28.180] But we've been trying, and when you say, "Why us,"
+- [22:30.440] meaning your country, we've been trying for years
+- [22:33.680] and they've been trying for years to make a deal,
+- [22:35.560] including when I was in the first term.
+- [22:39.020] It would always be people talking,
+- [22:41.070] but they weren't getting it done.
+- [22:42.990] But for 25 years before that,
+- [22:45.160] they were trying always to make a deal, a very significant deal.
+- [22:50.740] I, actually, until I looked at the numbers,
+- [22:52.450] I didn't realize this is a very conclusive deal,
+- [22:56.080] but we think we can grow it even from that.
+- [22:58.030] But this is a maxed-out deal, not like you said it.
+- [23:00.840] You said it really incorrectly.
+- [23:04.610] This is a maxed-out deal that we're going to make bigger,
+- [23:07.550] and we make it bigger through growth,
+- [23:09.660] but we have tremendous assets involved.
+- [23:13.180] I was surprised to see how big your country is in trade,
+- [23:15.410] actually.
+- [23:16.630] One of the biggest in technology and so many other things.
+- [23:20.190] It's agriculture. I really didn't know.
+- [23:24.250] Depending on your definition, it's from four to five to six,
+- [23:28.080] that's pretty big in the world.
+- [23:29.800] So, I was very impressed by that.
+- [23:31.700] But we're going to take it to new levels.
+- [23:36.070] It's a very big deal right now, but I think it is going to grow.
+- [23:40.500] Just of its own volition, it's going to grow.
+- [23:42.380] And over time, there'll be changes made,
+- [23:45.080] there'll be adjustments made because we're flexible,
+- [23:47.860] we'll see things that we can do even better,
+- [23:50.800] but it's very conclusive
+- [23:52.540] and we think everyone's going to be happy,
+- [23:54.910] and the people of your country
+- [23:57.210] are going to be very impressed with the result
+- [24:00.550] and they'll be able to buy from more people.
+- [24:02.510] They'll be able to price things differently.
+- [24:04.110] They'll be able to get some products
+- [24:05.420] that aren't available to them now
+- [24:07.470] that we make better than anybody in the world.
+- [24:10.570] And it's just something that it's a great thing
+- [24:12.890] that it came together.
+- [24:14.120] It's so nice because we have many countries
+- [24:18.130] want to make a deal and many countries are very unhappy
+- [24:21.070] that we happen to choose this one,
+- [24:24.550] to be honest with you.
+- [24:25.790] But it's long time, our oldest ally or just about,
+- [24:30.610] I guess a couple of people claim that too,
+- [24:33.460] but let's put it right at the top.
+- [24:36.080] I think it's going to be something very special
+- [24:37.910] for the UK and special for the United States.
+- [24:40.910] The Press: Mr. President?
+- [24:42.500] President Trump: Yeah, please.
+- [24:43.730] The Press: Thank you, Mr. President.
+- [24:44.930] Reagan Reese with The Daily Caller.
+- [24:46.330] How close are you to more deals
+- [24:48.210] and when do you expect the next to be announced?
+- [24:49.930] President Trump: Well, very close.
+- [24:51.180] We have numerous deals.
+- [24:52.390] I know Howard's going back as soon as this is finished,
+- [24:54.970] your press conference. He's got numerous.
+- [24:57.130] And Scott, who's right over here,
+- [24:58.740] who's fantastic, by the way,
+- [25:00.730] you were great on television this morning.
+- [25:02.610] I watched you. That was very good.
+- [25:04.530] He gave them a little lesson in the world and economics.
+- [25:07.400] But Scott's going to be going to Switzerland,
+- [25:11.820] meeting with China, and they very much want to make a deal.
+- [25:17.150] We can all play games. Who made the first call?
+- [25:19.250] Who didn't make the… It doesn't matter.
+- [25:20.880] It only matters what happens in that room.
+- [25:23.650] But I will tell you that China very much wants to make a deal.
+- [25:27.100] We'll see how that works out.
+- [25:29.860] Every country throughout the last 40,
+- [25:33.020] 50 years has literally ripped off the United States on trade,
+- [25:36.430] on military, on protection, on all the different things.
+- [25:39.090] And we are now making fair deals.
+- [25:41.550] And in this case, it's great
+- [25:43.380] because we really weren't very much involved.
+- [25:46.310] You have the European Union, which is…
+- [25:49.230] I think you made the right decision years ago.
+- [25:52.060] I don't know if you remember, I was opening up Turnberry
+- [25:55.190] the day that you were voting, and they asked me,
+- [25:57.690] "Would it happen or would it not happen?"
+- [25:59.390] I said, "No, I think they're going to go
+- [26:00.660] their own separate way.
+- [26:01.940] I think it's better for them." And they did.
+- [26:03.650] I think it's going to end up being a very smart decision.
+- [26:05.860] But a big part of that decision was always
+- [26:09.180] that you'd be able to make a deal with the United States
+- [26:11.310] and they were unable to do that, but now they made it,
+- [26:14.470] and it's a tremendous… It's very important.
+- [26:17.520] That was always a big part of your decision on Brexit
+- [26:21.690] and they were never able to make that deal.
+- [26:24.530] It was a tough one.
+- [26:26.100] And this one was… It's amazing with time.
+- [26:29.090] This one just went very smoothly,
+- [26:31.090] went quickly and smoothly,
+- [26:33.070] and a lot of common sense, as I like to say.
+- [26:35.380] It's tremendous common sense,
+- [26:36.740] but it's going to make your country
+- [26:38.040] much bigger in terms of trade
+- [26:40.080] and it's going to make our country much bigger
+- [26:41.780] in terms of trade too. Yes?
+- [26:43.320] The Press: Mr. President? The Press: Thank you for the-
+- [26:44.860] The Press: Tom- President Trump: No, behind you.
+- [26:46.210] The Press: Oh, go ahead.
+- [26:47.440] The Press: Tom Bateman at the BBC.
+- [26:48.650] Thank you. Mr. President. You mentioned meat-
+- [26:50.410] President Trump: You're with who?
+- [26:51.720] The Press: The BBC. President Trump: Oh, good.
+- [26:52.960] Very nice. They treat me beautifully.
+- [26:54.690] The Press: You mentioned meat and beef exports.
+- [26:57.970] The UK currently doesn't accept American beef
+- [27:00.990] because of its own food standards.
+- [27:05.130] Are you calling on the UK
+- [27:06.530] to accept all American beef and chicken products?
+- [27:12.010] President Trump: Well, I think they'll take what they want.
+- [27:13.860] We have plenty of it. We have every type,
+- [27:16.920] we have every classification you can have.
+- [27:20.350] As you know, Bobby Kennedy is doing a tremendous job
+- [27:23.190] and he's, I think, probably heading toward your system
+- [27:26.870] with no chemical, no this, no that.
+- [27:30.440] I think we're heading that way. It seems to be.
+- [27:34.100] But we have that also, so we have…
+- [27:36.870] We're very big country.
+- [27:38.590] We have a lot of beef. We're a very big country.
+- [27:40.160] Secretary Rollins: Sir, may I? Sir?
+- [27:41.390] The Press: So, it'll be great. Yes. Yes?
+- [27:42.670] Secretary Rollins: Do you want me to jump in?
+- [27:43.960] President Trump: Yes, please.
+- [27:45.210] Secretary Rollins: Let's talk about American beef
+- [27:46.410] really quickly and it can't be understated,
+- [27:47.950] I'm Brooke Rollins, by the way, how important this deal is
+- [27:50.970] and what this means to American farmers and ranchers.
+- [27:53.600] Specific to the beef,
+- [27:54.870] this is going to exponentially increase our beef exports.
+- [27:58.840] And to be very clear, American beef is the safest,
+- [28:02.570] the best quality,
+- [28:03.850] and the crown jewel of American agriculture for the world.
+- [28:07.420] So I think a really important part of this deal
+- [28:09.200] isn't just the ethanol-reducing of tariffs from 19 to 0,
+- [28:12.630] which for our rowcroppers is a huge deal,
+- [28:15.450] but also for beef. And as we move forward,
+- [28:17.610] I know our incredible trade team is looking at all of the meats,
+- [28:20.480] all of the produce, really all of our agriculture exports.
+- [28:23.690] And I don't know if there's an industry
+- [28:25.850] that has been treated more unfairly
+- [28:27.830] and has suffered more than our agriculture industry.
+- [28:30.330] So we look forward to, I'll be in the UK on Monday
+- [28:33.120] talking to my counterpart over there,
+- [28:35.410] really, for the next week,
+- [28:36.660] and look forward to moving that out across the country.
+- [28:38.770] The president is an incredible defender of American-
+- [28:40.340] President Trump: I think we could say
+- [28:41.560] that we have the best in the world, best tractors,
+- [28:44.780] the best everything in the world.
+- [28:46.640] And they say that our agriculture is second to none.
+- [28:50.650] You understand. And it'll be a great asset.
+- [28:52.650] People are going to be able to have options, choice,
+- [28:55.130] and they'll have more of it,
+- [28:56.850] and that usually means lower prices.
+- [28:58.400] How about we'll do you and then you? Go ahead.
+- [29:00.170] The Press: A question for the Italian TV.
+- [29:01.730] Daniele Compatangelo, La7, Tv2000, prime time media.
+- [29:05.310] So, congratulations for the deal.
+- [29:06.590] We see a big revenues from the chart,
+- [29:08.910] but what's the rest of Europe?
+- [29:11.170] It's a victory day, but other European countries,
+- [29:14.150] it seems like they're losing the train.
+- [29:15.490] President Trump: Well, we intend to make a deal with Europe.
+- [29:18.770] We have found that the European Union
+- [29:21.530] treated us extremely unfairly.
+- [29:23.350] They're very difficult and hurt themselves in doing so,
+- [29:26.500] and they very much want to make a deal.
+- [29:28.040] We'll be dealing with them.
+- [29:29.270] We are dealing with them currently.
+- [29:30.660] So, that'll cover pretty much the rest of it.
+- [29:34.690] But this was separate because of Brexit in particular.
+- [29:37.860] This was a separate deal.
+- [29:40.350] It always seemed so natural.
+- [29:41.860] I mean, all the media would say that this seemed to be like,
+- [29:44.810] "Why didn't this happen 25 years?
+- [29:46.440] Why didn't it happen a long time ago?"
+- [29:48.830] And it was always amazing to me.
+- [29:51.160] Somebody would say, "Hey, we got to make a deal.
+- [29:52.700] We have to make a deal,"
+- [29:54.280] but this deal just fell into place.
+- [29:56.180] The prime minister did a fantastic job.
+- [29:58.580] His representatives are total professionals
+- [30:00.820] and they got along well and it just seemed to work.
+- [30:03.400] And I think one of the reasons it did
+- [30:05.600] is because we blew up the whole system.
+- [30:07.530] If we would've just been dealing with you separately
+- [30:09.780] or country by country, but we blew up the whole system.
+- [30:13.600] It was very unfair to the United States.
+- [30:16.930] And I think because of that, this worked out so nicely
+- [30:21.020] and I'm honored that it was the first deal.
+- [30:22.500] Please?
+- [30:23.770] The Press: Sir, you mentioned-
+- [30:25.000] President Trump: Well, why don't you go in the back.
+- [30:26.210] Yes.
+- [30:27.420] The Press: Oh, thank you, sir. I'm with the London Times.
+- [30:29.110] I would say this is a great day for James Bond
+- [30:31.070] because now Aston Martins will be available to America.
+- [30:33.560] President Trump: That's true. That's true.
+- [30:34.820] The Press: Well said.
+- [30:36.030] The Press: Well, would it be even better
+- [30:37.330] by extending it to film?
+- [30:38.830] You've talked about a big tariff on films
+- [30:41.560] and we'd like to know if there'd be relief on British film.
+- [30:43.510] President Trump: We're going to have a discussion
+- [30:44.910] on that separately.
+- [30:46.700] And as you know, we're putting tariffs
+- [30:48.290] on that particular, film, he said, the moviemakers,
+- [30:52.630] and we're going to be doing some tariffs to get them
+- [30:56.330] because a lot of them have left this country.
+- [30:59.210] They all live here, the money comes from here,
+- [31:01.100] everything comes from here,
+- [31:02.350] but they make them in other countries.
+- [31:04.280] So we're going to do something to bring them back
+- [31:07.650] maybe to a large extent.
+- [31:09.150] But James Bond has nothing to worry about.
+- [31:12.040] That, I can tell you. James Bond.
+- [31:13.920] And you know, Sean Connery was a friend of mine.
+- [31:15.770] Sean Connery was responsible for my getting zoning in Aberdeen.
+- [31:19.690] He said, "Let the bloody bloke build his golf courses."
+- [31:24.500] I was like four years into the process
+- [31:26.590] and it was impossible in Aberdeen.
+- [31:29.490] And he, I don't know, he just stood up one day
+- [31:31.970] and he said that. As soon as he said that,
+- [31:33.540] I got the approvals in about two minutes.
+- [31:36.100] So he was a great guy, Sean Connery,
+- [31:37.990] and a great character there.
+- [31:39.300] The Press: Will you share if you're going back
+- [31:40.540] there later in the year? Are you going back to-
+- [31:41.890] President Trump: Say it again.
+- [31:43.160] The Press: Are you going to Scotland and to the UK later-
+- [31:44.670] President Trump: Yeah, I will be, sure. It's great.
+- [31:45.900] And we have a lot of investment over there.
+- [31:47.330] We have Turnberry, Aberdeen. We have, as you know,
+- [31:50.650] in Doonbeg in Ireland right on the ocean.
+- [31:53.750] They're all on the ocean.
+- [31:55.110] I only have interest if they're on the ocean.
+- [31:57.550] And we have good investments over there.
+- [32:00.590] Beautiful. Yes?
+- [32:01.810] The Press: Mr. President, if the talks go well this weekend
+- [32:03.990] between Secretary Bessent and Ambassador Greer
+- [32:05.870] with their Chinese counterparts,
+- [32:07.280] not preemptively, but if the talks go well,
+- [32:09.800] would you then consider lowering the tariff rate on China?
+- [32:12.380] President Trump: Well, it could be.
+- [32:13.670] I mean, we're going to see.
+- [32:14.900] Right now, you can't get any higher.
+- [32:16.550] It's at 145, so we know it's coming down.
+- [32:20.040] I think we're going to have a very good relationship.
+- [32:22.300] I always got along very well with President Xi.
+- [32:25.500] That relationship was greatly disturbed
+- [32:28.100] by COVID when COVID came in, but we get along very well now.
+- [32:33.520] I mean, the relationship was hurt with a lot of people,
+- [32:35.600] a lot of countries, when COVID came in.
+- [32:38.220] But I think we're going to have a very good relationship.
+- [32:41.110] I expect to have a very good relationship with China, Scott.
+- [32:44.600] I think it's a very friendly meeting.
+- [32:46.930] They look forward to doing it in an elegant way.
+- [32:50.820] China, as you know,
+- [32:52.130] has a tremendous trade surplus with us,
+- [32:54.920] and we just can't have that.
+- [32:58.140] But I think it's going to be very good for both countries.
+- [33:01.280] I would like to see China opened.
+- [33:03.430] You know, one of the big things here is,
+- [33:05.510] and nobody would know this, but the UK was largely closed.
+- [33:08.270] It was very much closed to trade, and now it's opened.
+- [33:11.990] And a lot of the financial reporters
+- [33:14.300] are very happy about that because so much…
+- [33:16.560] I would listen to them,
+- [33:17.790] "Oh, I hope they get countries opened up."
+- [33:20.880] And then you compete on a fair basis,
+- [33:22.590] but you can't compete when you're not allowed to go there.
+- [33:26.070] China would be the number-one example of that.
+- [33:28.200] It's very closed.
+- [33:29.610] We almost had it last time before COVID,
+- [33:32.630] and that didn't work out,
+- [33:34.920] but we made a great deal with China.
+- [33:36.570] They had to buy $50 billion worth of our food products.
+- [33:39.130] And it was a great deal, doing very well for our farmers.
+- [33:42.220] And then when Biden came in, as usual, nothing happened.
+- [33:45.050] He didn't enforce it and it got less, less, less.
+- [33:48.190] And ultimately, it destroyed a great deal.
+- [33:50.850] That was a great deal.
+- [33:52.300] But no, I think we're going to have a good weekend with China.
+- [33:56.920] I think they have a lot to gain.
+- [33:59.210] I do think they have far more to gain than we do in a sense,
+- [34:01.660] but we're going to have a good…
+- [34:04.520] I think we're going to have a very good weekend.
+- [34:06.330] The Press: Will you speak to Xi after the weekend talks?
+- [34:08.260] President Trump: I might. Yeah, sure.
+- [34:09.490] Depending on what Scott says, we sort of…
+- [34:13.260] Scott is doing certain countries
+- [34:14.850] and Howard is doing certain countries.
+- [34:17.810] I mean I wish I had 10 more of each,
+- [34:20.530] then we could do them all at one time.
+- [34:22.600] But there will be a time, we'll do a number of them
+- [34:25.610] and then there'll be a time,
+- [34:27.070] I think I can say this Scott and Howard,
+- [34:28.880] where we're just going to say, we understand the countries,
+- [34:32.360] we understand what they want,
+- [34:34.560] where we're just going to make the deal.
+- [34:36.630] In other words, we don't need the country involvement
+- [34:39.320] because we've already had it.
+- [34:41.060] And we'll say this particular country which had big surpluses,
+- [34:44.800] let's say we had therefore deficits,
+- [34:47.390] that this particular country is going to pay a 25% tariff
+- [34:50.600] or 30% or a 50% or 10% or whatever it may be.
+- [34:55.720] This was, I think we should explain it Howard.
+- [34:58.170] One of the things we did here that we'll rarely do is on cars.
+- [35:03.020] We took it from 25 to 10 on Rolls-Royce
+- [35:05.560] because Rolls-Royce is not going to be built here.
+- [35:09.940] I wouldn't even ask them to do that, it's a very special car
+- [35:13.490] and it's a very limited number too.
+- [35:15.210] It's not one of the monster car companies
+- [35:18.400] that makes millions of cars,
+- [35:19.760] they make a very small number of cars
+- [35:21.790] that are super luxury and that includes Bentley and Jaguar.
+- [35:25.950] So we have some very special cars.
+- [35:28.500] So in order to help that industry…
+- [35:30.820] And that's really handmade stuff,
+- [35:34.980] and they've been doing it for a long time in the same location.
+- [35:39.220] And I said, "Yeah, that would be…
+- [35:40.490] Let's help them out with that one."
+- [35:41.830] But that's different than a car company that comes out
+- [35:44.860] and makes millions of cars,
+- [35:46.090] which they'll be doing in our country.
+- [35:47.410] They're going to build… We have many, many factories,
+- [35:51.300] car plants being built or going to be built very soon.
+- [35:56.970] I think we can say that we'll be close
+- [35:58.980] to $10 trillion of investment.
+- [36:03.030] I think we're actually at that number now
+- [36:05.310] if you add up some of the ones we haven't heard about yet.
+- [36:08.290] I mean, we have some going up right now.
+- [36:09.840] They have plants going up and they haven't even spoken to us.
+- [36:12.310] They're doing it because of the tariffs and tariffs
+- [36:15.120] have always been used against us,
+- [36:16.660] and I never understood.
+- [36:17.890] I used to sit back as China paid hundreds of billions of dollars
+- [36:22.560] in tariffs when I was president.
+- [36:24.440] But until then, China never paid anything
+- [36:27.300] and they really did a big number on us
+- [36:30.160] from the standpoint of trade.
+- [36:31.900] But we are using tariffs now for our benefit,
+- [36:36.220] and we have now close to $10 trillion,
+- [36:40.680] just think of that 10 trillion.
+- [36:42.610] If you look at the past administration,
+- [36:45.290] and we're talking about over essentially two months
+- [36:47.520] because we could say three, but it took a little
+- [36:50.200] while to get the office in perfect shape.
+- [36:52.870] It took a little while to get things done,
+- [36:55.560] but once we started, when you think of that,
+- [36:58.140] close to $10 trillion of investment.
+- [37:00.990] You've had years where the United States
+- [37:03.080] wouldn't do that in a whole…
+- [37:04.380] Wouldn't do one trillion in a year,
+- [37:06.130] wouldn't do anywhere near one trillion.
+- [37:08.240] We did 10 trillion in two months.
+- [37:10.910] So it's amazing what's happening.
+- [37:12.890] We're getting calls from… And that has to do with chips.
+- [37:15.600] Has to do with cars.
+- [37:17.960] We used to make chips, we had Intel and we used to make chips.
+- [37:20.840] We had a monopoly on chips. Everything was made here.
+- [37:23.310] And now over a period of years because of presidents
+- [37:25.800] that didn't know what they were doing,
+- [37:27.270] they allowed that business to be stolen from us.
+- [37:29.900] Most of it moved to Taiwan.
+- [37:32.050] And you probably were in the same position,
+- [37:34.550] you had a lot of the chip-making capacity,
+- [37:36.730] but they moved it in.
+- [37:38.100] And if we would've said, "That's fine.
+- [37:39.730] If you want to move it to Taiwan, that's good,
+- [37:42.030] but if you want to sell back into the United States,
+- [37:44.870] we're going to put a 50% or 100% tariff on,"
+- [37:47.750] they would've never left.
+- [37:49.530] But we had people sitting here that didn't understand that
+- [37:52.120] and it's too bad. But now they're coming back
+- [37:54.590] because I'm saying it about 40 years too late.
+- [37:58.130] But they're coming back
+- [37:59.440] as we have the biggest chip makers in the world
+- [38:01.480] spending in one case, 300 billion,
+- [38:04.470] in one case, 500 billion, same as Apple,
+- [38:08.630] and in another case, 200 billion.
+- [38:11.370] And we're going to have a large share,
+- [38:12.910] a very, very substantial share of the chip-making market.
+- [38:16.760] The Press: This weekend, [inaudible]
+- [38:19.240] it's going to be a friendly visit,
+- [38:21.020] but do you expect that it will just be a formality
+- [38:23.270] to break the ice
+- [38:24.470] or are they going to get into substantive negotiation?
+- [38:27.000] President Trump: I believe so, yes.
+- [38:28.240] I believe it's substantive, yes. I think we would like to say,
+- [38:31.990] "Yes, we're having a meeting to meet."
+- [38:33.730] Well, we're meeting, so what are we going to do?
+- [38:35.510] Talk about meeting again.
+- [38:37.830] So I think it's going to be substantive.
+- [38:39.970] I think we can say that, right, Scott?
+- [38:42.390] Very substantive.
+- [38:43.600] Now, China wants to do something and look,
+- [38:46.730] they have to at this point,
+- [38:48.400] essentially they made a trillion dollars a year
+- [38:52.660] and now they have absolutely no business
+- [38:55.480] because of the tariffs, they have no business
+- [38:57.780] and they want to have business.
+- [38:59.080] And we want them to have business,
+- [39:00.340] we want them to do well. We want them to do very well.
+- [39:03.530] So I think it's going to be very substantive.
+- [39:07.880] The Press: Because business has slowed down,
+- [39:09.310] as you mentioned, we're seeing-
+- [39:10.550] President Trump: In China.
+- [39:11.800] The Press: But we're seeing as a result,
+- [39:13.170] the ports here in the US, the traffic has really slowed-
+- [39:16.510] President Trump: That's good.
+- [39:17.740] The Press: And now thousands of dock workers and truck drivers
+- [39:20.380] are worried about their jobs.
+- [39:21.720] President Trump: Yeah, that means we lose less money
+- [39:24.590] when I see that. That means we lose less money.
+- [39:26.490] Look, China making over a trillion,
+- [39:28.960] 1.1 trillion in my opinion,
+- [39:30.840] different numbers from 500 billion to a trillion or…
+- [39:34.870] I think it was 1.1 trillion.
+- [39:37.110] And frankly, if we didn't do business,
+- [39:38.750] we would've been better off. Okay, you understand that.
+- [39:41.510] So when you're saying it slowed down,
+- [39:43.770] that's a good thing, not a bad thing,
+- [39:45.140] but we're going to make it so they can…
+- [39:47.530] I'd like to say they can do better actually.
+- [39:49.560] In terms of the bottom line.
+- [39:51.740] We'd like to see China opened up so we can compete in China
+- [39:55.490] and give people something that they've never had,
+- [39:58.960] access to something that'd be great for the world,
+- [40:01.600] it would be great for our businesses,
+- [40:02.950] and I think it would be great for friendship.
+- [40:05.040] I really expect a lot of people think I'm a militant guy,
+- [40:07.670] I'm really not.
+- [40:08.940] I think that trade can bring a greater friendship with China.
+- [40:13.280] It can be something good.
+- [40:14.620] But one of the things that I know Scott's
+- [40:16.820] going to be talking about very high on the list is,
+- [40:19.610] open up and let our businesses go into China.
+- [40:22.090] Because when you talk about a closed country,
+- [40:25.470] that's a really closed country.
+- [40:26.920] And I think it would be great if it was opened up.
+- [40:29.560] It'd give people a lot of choice and would create a lot of jobs,
+- [40:32.970] a lot of everything.
+- [40:34.200] So I think it would be a great thing for China.
+- [40:35.730] And that's going to be one of the things
+- [40:37.080] we'll be discussing like we discussed with UK.
+- [40:39.950] The Press: Will you ask China-
+- [40:42.820] President Trump: Yeah, Please.
+- [40:44.510] The Press: What does Britain have to do for you
+- [40:46.210] to drop the baseline 10% tariff that you're already taking?
+- [40:49.430] President Trump: Well, I think that's set
+- [40:50.730] because that has to do
+- [40:52.150] with a lot of different things, including past.
+- [40:54.690] There are a lot of past things that we talked…
+- [40:56.710] This is very inclusive. We included everything.
+- [41:00.230] And that's pretty well said. Yeah, please.
+- [41:01.820] The Press: Yeah.
+- [41:03.030] Mr. President, the 10% baseline tariff remain in place.
+- [41:05.540] Is that a template for these future trade deals?
+- [41:07.190] President Trump: No.
+- [41:08.430] The Press: You say you're going to keep it here.
+- [41:09.660] President Trump: No.
+- [41:09.780] The Press: Is it going to stay in every case?
+- [41:11.030] President Trump: No, that's a low number.
+- [41:13.180] They made a good deal. Many, some will be much higher
+- [41:16.240] because they have massive trade surpluses
+- [41:18.870] and in many cases they didn't treat us right.
+- [41:21.080] One thing with UK, they had a somewhat close,
+- [41:25.960] not like a China as an example,
+- [41:28.990] but they always treated us with great respect.
+- [41:31.550] They treated us with great respect.
+- [41:34.660] The template of 10 is probably the lowest,
+- [41:40.820] and therefore they made that deal.
+- [41:45.560] But we've had just a very special relationship with them.
+- [41:50.070] I won't do that deal with cars. I mean, unless somebody shows me
+- [41:52.630] that there's another kind of a car that's comparable
+- [41:54.680] to a Rolls-Royce and there aren't too many…
+- [41:57.260] This is a good commercial for Rolls-Royce, by the way.
+- [41:59.370] They're going to order a lot of cars.
+- [42:00.620] Ambassador Mandelson: Mr. president.
+- [42:01.840] I wonder whether you'd like to buy?
+- [42:06.490] President Trump: Well, the last time this happened,
+- [42:07.910] I ended up-
+- [42:09.130] Ambassador Mandelson: I would be happy to suggest a discount,
+- [42:10.960] obviously a very modest discount.
+- [42:12.570] We have to protect our profit margins.
+- [42:14.960] President Trump: [inaudible]. I've had many of them, actually.
+- [42:18.290] The last time that happened, I ended up buying a Tesla.
+- [42:20.760] Go ahead. Go ahead.
+- [42:25.080] The Press: Thank you,
+- [42:26.330] Mary Margaret Olohan with The Daily Wire.
+- [42:27.920] I have a question about the UK deal today.
+- [42:30.280] I heard there was talk that part of the agreement would depend
+- [42:33.180] on whether the UK would respect free speech
+- [42:35.520] and freedom of religion.
+- [42:37.200] I know the VP is really interested in that
+- [42:38.800] and talked about that earlier this year.
+- [42:40.250] Was there any assurances that you guys got on that front?
+- [42:43.190] President Trump: You want to handle that?
+- [42:44.760] Secretary Lutnick: Yeah, that was not part
+- [42:46.120] of the conversation.
+- [42:47.340] Our conversation was an economic conversation
+- [42:50.420] from start to finish,
+- [42:52.520] closed by the president yesterday.
+- [42:54.820] This was a business deal, open their markets
+- [42:58.090] and also protect their workers,
+- [43:00.100] grow our markets and help our workers.
+- [43:03.170] President Trump: This was about business religion.
+- [43:06.380] Businesses is sort of a semi-religion,
+- [43:08.740] but not nearly as important. I don't want to get myself into
+- [43:12.540] [inaudible]. Go ahead. In the back.
+- [43:16.380] The Press: Mr. President, will you be asking China
+- [43:19.250] to help you close the gap between Ukraine and Russia?
+- [43:22.930] President Trump: I think so, yeah.
+- [43:24.300] I think it's a natural thing to ask.
+- [43:25.550] The Press: What do you expect them to do?
+- [43:26.820] President Trump: Sure, I don't know.
+- [43:28.060] I think we're making good progress,
+- [43:30.230] the fighting is a little bit different than it was.
+- [43:32.720] I think if we weren't involved,
+- [43:34.330] Russia would be going at it to maybe get the whole thing.
+- [43:39.480] Without our involvement, they'd be able to get it
+- [43:42.180] because we supplied a lot of different things, foolishly.
+- [43:45.640] But we've been sort of paid back by doing the rare earth deal
+- [43:48.930] that I talked about before.
+- [43:52.020] No, I think that we will be very much involved
+- [43:54.520] in trying to get that bloodbath…
+- [43:55.850] It's a bloodbath. It's a horrible situation.
+- [43:58.130] 5,000, it's really more than that,
+- [44:01.460] but it's 5,000 soldiers on average a week,
+- [44:04.430] mostly soldiers that are being killed.
+- [44:06.820] Young, beautiful people. I mean, they're being killed.
+- [44:09.580] I see the satellite pictures coming back,
+- [44:11.970] body parts lying all over a field's,
+- [44:13.640] heads and arms. It's so terrible.
+- [44:16.410] I've never seen anything like it actually.
+- [44:18.150] And if we can get that stopped,
+- [44:19.830] that will be a great accomplishment.
+- [44:21.270] And we're trying very hard and I think we're close.
+- [44:22.970] And Mr. Witkoff is talking constantly back and forth.
+- [44:26.880] He's a real professional.
+- [44:28.380] He's got a great relationship with both countries,
+- [44:31.540] and I think we have a good chance.
+- [44:33.710] And likewise, we're trying to work on Iran to get that solved
+- [44:37.430] without having to get into any bombing,
+- [44:41.450] as we say, big bombing.
+- [44:42.840] I don't want to do that. I want them to work a deal.
+- [44:44.900] I want them to be very successful.
+- [44:49.360] The Press: Thank you, Mr. President.
+- [44:50.600] Edward Lawrence from Fox Business.
+- [44:52.140] On the non-market barriers, how did you get the UK to bend
+- [44:55.340] and what was the 11th hour deal or ask?
+- [44:58.080] President Trump: Well, I think it was really
+- [44:59.350] just a part of the overall.
+- [45:00.580] I mean, they have so many things that are so good for them,
+- [45:03.110] it's going to be so good for the country,
+- [45:04.530] and that was sort of easy, it wasn't…
+- [45:07.020] We had non-market, I call it,
+- [45:08.820] non-market or non-monetary trade barriers,
+- [45:12.390] and we had quite a few of them,
+- [45:13.830] not nearly as bad as some countries.
+- [45:15.410] Some countries, they have virtually no tariff,
+- [45:18.620] but the rest of it is so brutal you can't do business with them.
+- [45:21.370] So it's a very important question, actually.
+- [45:24.030] No, I think the overall deal just worked out
+- [45:27.660] very well from their standpoint.
+- [45:29.600] They were willing to give that in order to get other things.
+- [45:32.470] And you might want to speak to that, Mr. Ambassador.
+- [45:35.670] Ambassador Mandelson: Look, the point about the deal
+- [45:38.110] is that we will continue reducing tariffs
+- [45:43.790] and non-tariff barriers.
+- [45:46.610] This is a continuing picture. It's a movie.
+- [45:50.380] It's not a still picture here. It's a movie, it continues.
+- [45:53.970] And we are both committed to freeing up trade
+- [45:57.140] between our countries.
+- [45:58.430] We're both committed to freeing up investment
+- [46:01.340] between our countries. And the point about this deal
+- [46:07.000] is that it provides a very good template
+- [46:10.010] and a very good launch pad for what we can continue to do
+- [46:14.720] and build on in the future,
+- [46:16.190] and that's what we're both determined to do.
+- [46:20.270] President Trump: Many of… [inaudible].
+- [46:22.470] Well, I better not say. Many of these-
+- [46:26.100] Ambassador Mandelson: That's between us.
+- [46:27.740] President Trump: We'll keep it confidential.
+- [46:29.820] How about just one more little thing, right?
+- [46:32.030] Well, it got the deal closed
+- [46:33.230] and it was handled very well from the other side too.
+- [46:35.940] But many of these things that we're talking about,
+- [46:38.880] we've been talking about this for 25 years.
+- [46:42.810] It's hard to explain when, if you weren't sitting behind
+- [46:47.220] this beautiful Resolute Desk, you just wouldn't get it.
+- [46:50.400] I have been hearing about making a deal with the UK for 25 years,
+- [46:56.840] and especially around the time of Brexit.
+- [46:58.800] They wanted to make a deal, so they came out of Brexit
+- [47:01.090] and they make a deal and how natural,
+- [47:03.730] and it just couldn't be done. It couldn't be done.
+- [47:07.160] Good people. And this is a bigger deal.
+- [47:09.590] This is a much bigger, better, stronger deal for both of us
+- [47:12.300] than we ever even contemplated before, it's a big deal.
+- [47:16.270] Ambassador Mandelson: Virtually everyone said
+- [47:17.840] that it would end in failure, it would end in tears,
+- [47:20.650] and it's ended in exactly the opposite.
+- [47:23.630] But Mr. President, can I say that
+- [47:25.570] that is due to Secretary Lutnick and Ambassador Greer
+- [47:29.420] have been absolutely fantastic. But yesterday I received a call,
+- [47:34.010] a very diplomatic call that just edged things over the line
+- [47:38.000] and that was from your new ambassador
+- [47:40.960] in the United Kingdom.
+- [47:42.260] President Trump: Who is terrific, by the way.
+- [47:43.520] Ambassador Mandelson: Warren Stephens, he's here.
+- [47:44.740] President Trump: Where is Warren?
+- [47:45.320] Secretary Lutnick: Right over here, sir.
+- [47:46.550] President Trump: Hello, Warren.
+- [47:47.760] The Press: How are you, sir? Nice to meet you.
+- [47:49.010] President Trump: He's flying to London tomorrow night.
+- [47:51.290] He's going to be very popular with the British people.
+- [47:53.640] He's going to be a very successful ambassador.
+- [48:01.480] The Press: Were you disappointed-
+- [48:02.760] President Trump: And he's got plenty of cash.
+- [48:04.740] That guy has plenty of cash.
+- [48:11.090] Ambassador Mandelson: We need some more big spenders.
+- [48:13.080] The Press: Are you planning to meet Ursula von der Leyen?
+- [48:16.580] President Trump: Go ahead, fast.
+- [48:17.850] The Press: Are you planning to meet Ursula von der Leyen,
+- [48:20.370] the president of the European Commission anytime soon?
+- [48:22.650] President Trump: Oh, she's so fantastic.
+- [48:25.230] She's so fantastic. I hope we're going to meet.
+- [48:27.870] The answer is yes.
+- [48:29.780] Actually, I saw her a few days ago.
+- [48:31.320] The Press: How much, [inaudible]-
+- [48:32.530] President Trump: And I think that we'll
+- [48:34.230] definitely meet, yeah.
+- [48:35.510] The European Union is a big thing.
+- [48:37.630] They want to make a deal very badly.
+- [48:39.040] Everybody wants to make a deal.
+- [48:40.290] Look, everybody wants to make a deal with the United States,
+- [48:42.690] and we're doing that and we're going to make fair deals.
+- [48:45.630] I'm just honored that this was the first one.
+- [48:47.640] Go ahead, please.
+- [48:49.350] The Press: The Federal Reserve Chairman, Mr. President says,
+- [48:52.330] that you would have to call him for a meeting.
+- [48:54.100] Do you plan to meet with him?
+- [48:55.440] President Trump: [inaudible].
+- [48:56.640] The Press: What do you think about-
+- [48:57.840] President Trump: It's like talking to a wall?
+- [48:59.050] He should be-
+- [49:00.290] The Press: What do you think about the Bank
+- [49:01.730] of England cut today?
+- [49:03.030] President Trump: Well, the Bank of England cut,
+- [49:04.560] China cut, everybody's cutting but him.
+- [49:10.240] I don't know. We'll see what happens.
+- [49:12.030] It's a shame.
+- [49:13.240] I call him too late, too late Powell, that's his nickname.
+- [49:16.150] And it's a shame. It's ridiculous.
+- [49:18.380] So meeting, he's always too late.
+- [49:23.780] But in this case, it's not going to matter that much
+- [49:26.950] because our country is so strong,
+- [49:29.710] we're so powerful in terms of economic strength
+- [49:32.150] and what we've done. And I'll tell you what,
+- [49:34.400] if we didn't have our first term, you wouldn't be…
+- [49:36.830] We created things in the first term.
+- [49:38.620] We cut more regulations than any president in history.
+- [49:41.850] We cut the taxes more than anybody in history.
+- [49:43.930] And a very big factor is going to be the tax bill
+- [49:46.600] that we have right now.
+- [49:47.880] The one big beautiful bill, as we call it,
+- [49:50.320] which is all-encompassing.
+- [49:51.620] The biggest tax cuts ever in history,
+- [49:54.610] bigger than even the first time.
+- [49:55.890] And the incentives, even great for the UK
+- [49:58.840] because it'll make us so strong
+- [50:00.470] that we're going to be doing more business with you.
+- [50:02.110] It's a very important element for taxes,
+- [50:05.440] for every aspect, regulation cuts.
+- [50:08.740] That Bill is… I believe it's the biggest bill of its kind
+- [50:13.010] ever in the history of this country.
+- [50:15.700] And Speaker Johnson and Leader Thune
+- [50:18.840] have done an incredible job.
+- [50:20.860] I mean, I'll let you know, we have to get a vote,
+- [50:22.470] but we have a lot of support for that bill.
+- [50:26.340] And if that happens on top of all of these trade deals
+- [50:31.200] that we're doing,
+- [50:32.750] this country will hit a point that you better go out
+- [50:36.630] and buy stock now, let me tell you.
+- [50:38.500] This country will be like a rocket ship
+- [50:41.840] that goes straight up.
+- [50:43.070] This is going to be numbers that nobody's ever seen before.
+- [50:46.710] That's a very important element of all of this.
+- [50:48.550] If we get that… If you don't…
+- [50:50.660] And the Democrats are fighting it only
+- [50:52.350] because they want to fight,
+- [50:53.610] they have Trump derangement syndrome.
+- [50:55.340] If it was somebody else, they wouldn't fight.
+- [50:57.530] If you had a normal person,
+- [50:58.860] you had some stiff sitting behind you, they'd be fine.
+- [51:02.970] But they have Trump derangement syndrome.
+- [51:05.510] Senator Schumer has become a Palestinian.
+- [51:08.120] He's welcome.
+- [51:09.360] I don't know when they're going to give him the ceremony,
+- [51:12.030] whatever the ceremony may be,
+- [51:13.930] but it's terrible what's happened to the Democrats.
+- [51:16.740] So very, very important element of everything,
+- [51:20.990] of what we're doing, unrelated to today
+- [51:23.910] but related in the sense that if that passes,
+- [51:27.170] we'll do even more business with the UK.
+- [51:29.380] We'll have so much.
+- [51:31.170] It's the biggest tax cut in history.
+- [51:33.760] It's going to make our country zoom.
+- [51:35.800] It's going to be incentive, as you know,
+- [51:37.430] with the deduction basically for work.
+- [51:40.890] You work, you build your plant, et cetera, your deduction.
+- [51:46.460] It's the biggest bill of its kind to ever pass.
+- [51:48.400] Maybe the biggest bill ever passed.
+- [51:49.780] That's why we call it the one big beautiful bill.
+- [51:52.450] The Press: You just announced a new nominee
+- [51:56.690] for the US surgeon general who never finished her residency
+- [52:00.710] and is not a practicing physician,
+- [52:02.550] so can you explain why you picked her
+- [52:04.470] to be America's top doctor?
+- [52:05.790] President Trump: Because Bobby thought she was fantastic.
+- [52:08.850] She's a brilliant woman who went through Stanford,
+- [52:12.110] and as I understand it,
+- [52:13.310] she basically wanted to be an academic
+- [52:16.160] as opposed to a surgeon.
+- [52:18.040] I think she graduated first in her class at Stanford,
+- [52:21.890] and Bobby really thought she was great.
+- [52:24.920] I don't know her. I listened to the recommendation of Bobby.
+- [52:27.590] I met her yesterday and once before.
+- [52:30.070] She's a very outstanding person,
+- [52:31.870] a great academic actually, so I think she'll be great.
+- [52:35.440] The Press: Mr. President,
+- [52:37.330] your nominee for US attorney of DC,
+- [52:39.970] do you have a backup plan if this Senate does not-
+- [52:42.380] President Trump: Oh yeah, but he's a terrific person,
+- [52:43.880] and he wasn't getting the support from people
+- [52:48.330] that I thought. He's done a very good job.
+- [52:50.540] Crime is down 25% in DC during his period of time.
+- [52:55.470] I'm very disappointed in that,
+- [52:57.580] but I have so many different things
+- [52:59.170] that I'm doing now with the trade.
+- [53:01.330] I'm one person.
+- [53:03.320] Boom, I can only lift that little phone
+- [53:05.520] so many times in a day,
+- [53:07.380] but we have somebody else that will be great.
+- [53:11.390] I just want to say Ed is unbelievable,
+- [53:13.240] and hopefully we can bring him into,
+- [53:16.860] whether it's DOJ or whatever in some capacity,
+- [53:20.050] because really outstanding.
+- [53:21.600] To me, it was disappointing, I'll be honest.
+- [53:23.380] I have to be straight.
+- [53:24.660] I was disappointed, a lot of people were disappointed,
+- [53:27.770] but that's the way it works sometimes.
+- [53:29.830] That's the way it works. And he wasn't rejected,
+- [53:31.680] but we felt it would be very hard,
+- [53:35.020] and we have somebody else that we'll be announcing
+- [53:37.740] over the next two days who's going to be great.
+- [53:42.590] The Press: With companies like Ford and Mattel recently saying
+- [53:44.500] they're going to raise prices on certain products,
+- [53:46.840] how long do you think the American public
+- [53:48.560] is going to be patient and wait for-
+- [53:50.710] President Trump: Well, I think they're saying that just to try
+- [53:52.700] and negotiate deals with me.
+- [53:56.980] Tariffs are the most misunderstood thing
+- [53:59.270] maybe in any form of business, anywhere in business.
+- [54:02.860] Oftentimes the country picks them up,
+- [54:04.850] oftentimes the company picks it up.
+- [54:07.060] The people don't pick it up. The people don't pick it up,
+- [54:10.280] and if Ford did that, they wouldn't sell any cars.
+- [54:12.380] And if Mattel, I don't know, I'm not so sure, they also said…
+- [54:17.100] They're the only country I've heard.
+- [54:18.560] They said, "Well, we're going to go counter.
+- [54:19.890] We're going to try going someplace else."
+- [54:21.240] That's okay. Let them go
+- [54:22.800] and we'll put a hundred percent tariff on his toys
+- [54:26.150] and he won't sell one toy in the United States,
+- [54:28.170] and that's their biggest market. I heard that.
+- [54:30.850] I watched this guy talking about how I'm going to go counter.
+- [54:33.410] I said, "Well, I wouldn't want to have him
+- [54:35.180] as an executive too long."
+- [54:37.860] The Ford people I know very well.
+- [54:39.390] What they're doing is negotiating with us
+- [54:41.400] by saying that,
+- [54:42.890] but we don't think that's going to happen.
+- [54:44.500] Look, I put out a Truth today and it said that gas is down,
+- [54:49.010] gasoline is down, energy is down,
+- [54:52.310] groceries are down, eggs are down.
+- [54:54.940] Thank you very much, but eggs are down.
+- [54:57.600] When I came in, the first week, you guys hit me with eggs.
+- [55:00.990] I said, "What the hell happened with eggs?"
+- [55:02.880] Eggs were up like 170% and going up,
+- [55:06.280] and they said don't order any for Easter.
+- [55:09.250] And we were thinking about ordering plastic eggs
+- [55:11.360] like everybody was doing,
+- [55:13.140] and Brooke did a fantastic job, agriculture.
+- [55:16.580] Brooke did a fantastic job,
+- [55:17.930] and we had hundreds of thousands of eggs out here
+- [55:21.050] on the lawn just two weeks ago at Easter.
+- [55:24.660] But you take a look at the cost, energy's down.
+- [55:28.180] Even interest rates are down.
+- [55:29.630] Now, if the chairman of the Fed, Jerome,
+- [55:35.590] if he would lower interest rates like China did,
+- [55:39.430] like I think UK did,
+- [55:40.900] but like numerous other countries have done,
+- [55:43.260] it's like jet fuel, it would be great,
+- [55:45.350] but he doesn't want to do it.
+- [55:46.630] I think he doesn't want to do it.
+- [55:48.160] Probably he's not in love with me.
+- [55:51.150] I think that's right.
+- [55:52.380] It's a crazy reason, but that's the way life is.
+- [55:56.660] Anybody in his position would be like, it would be like jet fuel,
+- [56:00.790] but even without that, we're doing well.
+- [56:02.920] But remember this. I've watched you people
+- [56:05.060] reporting over the last few months
+- [56:06.540] that if we do this, prices are going to go through.
+- [56:10.460] Well, groceries are down. All of this stuff is down.
+- [56:15.640] Lumber is down, oil is gone down.
+- [56:19.890] That thing broke 60, right?
+- [56:21.220] $60 a barrel and $1.98, $1.99 in some cases,
+- [56:28.540] and heading in that direction.
+- [56:32.530] No, I think it's been amazing actually,
+- [56:34.740] and what that's good for,
+- [56:36.280] it gives the consumer more money,
+- [56:37.960] and it gives them a better life
+- [56:39.320] because we just came out of the worst inflation,
+- [56:41.450] in my opinion, in the history of our country.
+- [56:43.230] They say 48 years, but Biden really screwed it up.
+- [56:46.620] He screwed up energy, and he spent too much money.
+- [56:49.470] He was spending it on the green new scam,
+- [56:52.050] and that's like throwing the money.
+- [56:53.550] See that beautiful window behind?
+- [56:54.910] Take money, throw it right out that window
+- [56:57.070] because it's the same thing.
+- [56:58.390] He just spent $10 trillion. He wasted it.
+- [57:03.910] Not only was it bad, it was a negative.
+- [57:06.000] It wasn't even like it helped a little bit.
+- [57:08.470] It was a real negative. And then on top of it,
+- [57:11.330] they let 21 million people into our country
+- [57:13.390] without any identification, anything, just let them in.
+- [57:17.050] It's very, very sad. Well, we'll do one or two more.
+- [57:26.530] Go ahead. Who are you with?
+- [57:27.800] The Press: I'm with the Daily Telegraph.
+- [57:29.030] Now, you know me from [inaudible].
+- [57:30.300] President Trump: Yeah, I do.
+- [57:32.310] The Press: How concerned are you about the UK's reliance
+- [57:35.110] on China,
+- [57:36.830] Chinese money in the money markets, Chinese exports?
+- [57:39.190] President Trump: We're not concerned.
+- [57:40.490] The Press: Is that something that came up?
+- [57:41.760] President Trump: Honestly,
+- [57:43.000] I'm not concerned about anything.
+- [57:45.080] If I was, I wouldn't even be here right now.
+- [57:47.550] If I was concerned about anything,
+- [57:49.220] and it wouldn't be that,
+- [57:50.590] but I wouldn't be here right now.
+- [57:51.970] No, we're not concerned. We're going to have, I believe,
+- [57:54.290] a very good relationship with China and a fair relationship,
+- [57:57.510] and it'll get bigger and it'll grow. It'll grow.
+- [58:00.170] As an example, if they open up the country,
+- [58:02.640] that'll be the best thing China ever did for itself.
+- [58:05.270] They don't know that yet because it's been a different system,
+- [58:09.650] but that'll be the greatest thing
+- [58:10.980] that ever happened to China.
+- [58:12.260] The people will be happier, they'll buy for less.
+- [58:15.410] They'll see things that they never saw before
+- [58:17.430] and they'll be buying them,
+- [58:19.350] and it'll really create great long-term peace.
+- [58:23.400] The Press: And if I could ask,
+- [58:24.720] with the agriculture secretary actually,
+- [58:26.100] there's a lot of concern about chlorinated chicken
+- [58:27.780] and the import of hormone treated beef.
+- [58:30.090] Has that question been addressed,
+- [58:31.440] resolved in these talks,
+- [58:32.680] or is that something for the continuing negotiations?
+- [58:35.220] President Trump: Well, James?
+- [58:37.170] Mr. Greer: I would just say that it's very clear
+- [58:39.400] and we have in the heads of terms
+- [58:40.730] that we are going to discuss all of these types of issues,
+- [58:43.720] and obviously the importing country,
+- [58:45.430] whether it's us or them,
+- [58:46.640] you've got to follow the rules on those types of things.
+- [58:48.520] But our point is the rules need to make sure
+- [58:50.350] that they are based on science, and that's our expectation.
+- [58:53.470] We know the UK believes that too
+- [58:54.890] so we want to come to an accommodation.
+- [58:56.820] We want the consumers in each country
+- [58:58.390] to be able to choose what they want
+- [58:59.750] and give them the information that they need.
+- [59:01.210] President Trump: And we have an incredible
+- [59:02.410] EPA led by Administrator Zeldin that is on this…
+- [59:05.760] So the talks continue,
+- [59:07.090] but we are very, very confident in our products,
+- [59:10.100] and what the president has done to open up the markets
+- [59:12.910] is unprecedented for these farmers here in America.
+- [59:15.750] Thank you.
+- [59:17.020] The Press: [inaudible]
+- [59:18.700] Wall Street as they watched this.
+- [59:20.560] You saw the stock market decline sharply after liberation day
+- [59:23.760] and rally back since then.
+- [59:25.690] President Trump: Well, now it's going to really rally,
+- [59:27.040] because don't forget, they said this is all a pipe dream.
+- [59:30.020] And this is a tough one.
+- [59:31.870] Somebody would say, "Well, this is easy."
+- [59:33.440] This is much tougher, I think, than any other deal,
+- [59:35.520] because they've been at it for so many years,
+- [59:37.480] decades, trying to make this deal.
+- [59:40.210] And it's very conclusive and it's a great deal,
+- [59:42.580] and it's a very big deal actually.
+- [59:44.720] No, this is just the beginning.
+- [59:46.060] We're going to be having conferences,
+- [59:48.390] or at some point, we'll just put out a statement
+- [59:51.950] that we just signed this country, that country.
+- [59:54.080] And after a number of these are done,
+- [59:57.400] nobody has enough people to do it.
+- [59:58.860] We're just going to put out,
+- [01:00:00.610] "X country is going to pay this, and if they open up,
+- [01:00:03.260] they're going to do this and that."
+- [01:00:04.720] And then they're going to be opened up.
+- [01:00:06.200] Everybody wants to be here.
+- [01:00:07.520] You know, I say this is where they want to be shopping.
+- [01:00:09.920] They want to shop in this country
+- [01:00:11.410] because we have the consumer
+- [01:00:14.480] and we have the consumer like nobody else,
+- [01:00:16.270] and if this country went bad, the whole world would go bad,
+- [01:00:24.010] but we really saved it from going bad. Yeah, please?
+- [01:00:26.200] The Press: Can I ask you about the air traffic control issue?
+- [01:00:27.920] Are you looking at getting new software?
+- [01:00:29.670] President Trump: I'm glad you asked me about it
+- [01:00:30.920] because I'm just going to be talking to now
+- [01:00:32.830] with the heads of the airlines and everything else.
+- [01:00:35.040] So I was all set before we had the rigged election
+- [01:00:38.750] to give out a brand-new gorgeous system
+- [01:00:41.150] to one company that was going to do the whole thing,
+- [01:00:44.080] one of the best companies in the world that you know very well.
+- [01:00:46.540] There are three or four of them that do it.
+- [01:00:48.860] And when they took over Buttigieg, who has no clue,
+- [01:00:53.080] he drives to work on his bicycle,
+- [01:00:56.190] in all fairness, with his husband on the back,
+- [01:00:58.060] which is a nice loving relationship,
+- [01:01:00.400] but he didn't have a clue. This guy didn't have a clue,
+- [01:01:04.810] and he's actually a contender for president.
+- [01:01:06.630] Between him and Crockett, you can have that party,
+- [01:01:09.860] but he didn't know what he was doing.
+- [01:01:13.040] And he took what they call dry systems,
+- [01:01:15.930] systems where you have wires in the earth,
+- [01:01:18.790] buried in the earth or whatever,
+- [01:01:21.350] and then you have the open-air systems
+- [01:01:23.420] where you have satellites, and you can't mesh them.
+- [01:01:26.960] Anybody would know that if you went through
+- [01:01:28.390] about two months of study in school
+- [01:01:30.850] if you studied that kind of thing, and he did.
+- [01:01:34.750] They spent tens of billions of dollars
+- [01:01:38.160] trying to take old broken equipment
+- [01:01:42.400] and merging it into existing new equipment
+- [01:01:46.280] with brand-new equipment.
+- [01:01:48.130] It's one of the greatest… They spent like $40 billion,
+- [01:01:53.620] and what they did is they made it worse
+- [01:01:56.160] because it doesn't work together.
+- [01:01:57.760] You can't make it work together.
+- [01:01:59.160] If you have a satellite system, you need satellite.
+- [01:02:01.440] If you don't, they had all these different technologies,
+- [01:02:05.330] some of them 50 years old,
+- [01:02:06.790] and they're trying to mesh them in,
+- [01:02:08.910] and they end up spending twice the money they should have.
+- [01:02:11.270] You could have bought a whole new system.
+- [01:02:13.810] So we have a very good guy who you all know, Sean Duffy.
+- [01:02:16.510] He's head of transportation,
+- [01:02:17.950] and I've given him a 10-minute lesson in buying
+- [01:02:22.450] and he's become really good, and we are now in the market
+- [01:02:25.720] to buy a gorgeous brand-new system.
+- [01:02:29.060] The helicopter that crashed into the plane at 400 feet,
+- [01:02:31.880] it shouldn't have been what would've happened.
+- [01:02:33.390] There's all sorts of bells and sirens
+- [01:02:35.530] would've been going off three minutes
+- [01:02:37.680] before that accident happened
+- [01:02:39.400] if you had the right equipment, but they didn't.
+- [01:02:41.680] And the new equipment is unbelievable what it does.
+- [01:02:44.740] You don't even…
+- [01:02:46.690] Well, I was going to say something,
+- [01:02:48.460] but in my opinion, you always need pilots.
+- [01:02:50.760] I want pilots, but you wouldn't even have to have pilots.
+- [01:02:53.890] This system is so incredible what they can do,
+- [01:02:56.690] but we have a system that's obsolete,
+- [01:02:58.460] and what they did is the worst.
+- [01:03:00.740] They tried to combine the really old,
+- [01:03:02.840] broken stuff with the new stuff,
+- [01:03:04.410] and you can't combine it, and anybody should have known.
+- [01:03:07.520] So Biden, do you think Biden figured this out?
+- [01:03:09.900] I don't think so, fellas. Do you think he has any clue?
+- [01:03:12.360] He doesn't know what the hell is happening.
+- [01:03:13.990] So here's the story.
+- [01:03:15.560] We're going to be buying a brand-new,
+- [01:03:17.240] it's going out to bid very soon,
+- [01:03:19.470] brand-new state-of-the-art system
+- [01:03:21.540] that will cover the entire world.
+- [01:03:23.240] I'll give you an example.
+- [01:03:24.470] When my pilot, now I have military pilots,
+- [01:03:27.890] but prior to that, I had very good pilots, great pilots.
+- [01:03:31.250] They would land, and I won't tell you which country,
+- [01:03:33.070] but they would use the system of another country.
+- [01:03:35.680] They wouldn't even use the system of the United States,
+- [01:03:38.080] so if I'm landing in New York or Florida or Tennessee,
+- [01:03:42.020] they're using a system from another country.
+- [01:03:45.600] I said, "Why is that?" And they're not into business,
+- [01:03:49.970] but they're just saying, "Our system doesn't work, sir."
+- [01:03:53.000] And I said, "Boy, that's pretty sad."
+- [01:03:55.190] But we were all set to give it out to…
+- [01:03:57.180] Look, you have a Raytheon and you have different companies
+- [01:04:00.260] like that, numerous companies, and you have companies
+- [01:04:02.440] that would do it like an IBM as an example,
+- [01:04:06.520] and you give out one deal, one contract.
+- [01:04:08.980] They gave out hundreds of contractors.
+- [01:04:12.380] They had diggers, they had non-diggers,
+- [01:04:14.900] they had people that focused on satellites.
+- [01:04:16.700] They had hundreds of different contracts.
+- [01:04:19.610] One contract where one guy is controlling everything.
+- [01:04:22.810] You need a trench, then they dig a trench,
+- [01:04:25.710] but if you don't dig the trench, they don't blame you.
+- [01:04:27.590] What happens is you don't dig it,
+- [01:04:28.940] then they say, "We want a cost overrun."
+- [01:04:31.110] Now we have it all set and we're going to be doing it,
+- [01:04:33.700] and we would have done it except that the election
+- [01:04:35.780] took a little strange turn, but the second one didn't.
+- [01:04:39.680] That was too big to rig. Thank you very much, everybody.

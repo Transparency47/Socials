@@ -1,0 +1,376 @@
+<!-- source: https://www.youtube.com/watch?v=mSMcTTiRam8 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: mSMcTTiRam8 -->
+<!-- date_published: 2025-11-30T22:45:40+00:00 -->
+<!-- date_accessed: 2026-06-02T01:09:34.658439+00:00 -->
+
+# Transcript: President Trump Gaggles with Press on Air Force One, Nov. 30, 2025
+
+- [00:00.250] The President: We're in a very nice airplane, but it's rocky.
+- [00:03.660] Any questions?
+- [00:05.570] We had some great economic numbers come out.
+- [00:09.800] As you know, we're doing very well economically.
+- [00:11.600] A lot of factories are being built all over the country
+- [00:14.360] and all of that, but very strong numbers came out.
+- [00:16.020] Go ahead.
+- [00:17.290] The Press: Can you give us an update
+- [00:18.620] on what took place in South Florida today,
+- [00:21.070] those talks between the U.S. and the Ukrainians?
+- [00:22.810] The President: Well, they're going along,
+- [00:24.090] and they're going along well.
+- [00:25.320] We want to stop people from being killed.
+- [00:28.360] Doesn't have much to do with us,
+- [00:29.680] but I'd like to see if we could save a lot of souls.
+- [00:32.320] A lot of people are being killed.
+- [00:34.400] Last month we had 27,000 people killed in that ridiculous war
+- [00:37.890] that should have never happened.
+- [00:39.210] It would've never happened if I were president.
+- [00:41.220] The Press: Have you spoken with Rubio and Witkoff
+- [00:42.540] since that meeting?
+- [00:43.810] The President: I have, yeah. I've spoken to them,
+- [00:45.680] and they're doing well.
+- [00:47.420] Uh, Ukraine's got some difficult little problems.
+- [00:51.250] We may have some difficult problems,
+- [00:54.650] but I think Russia would like to see it end.
+- [00:57.250] And I think Ukraine,
+- [00:58.520] I know Ukraine would like to see it end.
+- [00:59.760] The Press: You just said that Ukraine
+- [01:00.980] has a little bit of problems. What are those problems?
+- [01:02.610] The President: But we have corruption situation going on,
+- [01:04.800] which is not helpful.
+- [01:06.170] The Press: And is that impeding the peace talks?
+- [01:07.860] The President: Oh, I said it was going on for three years, right?
+- [01:10.490] Didn't I say it? Three years?
+- [01:11.700] I said it, so I was way ahead of schedule,
+- [01:14.790] but I think that there's a good chance we can make a deal.
+- [01:19.230] The Press: Mr. president on Venezuela.
+- [01:20.630] Can you tell us more about why the airspace above Venezuela
+- [01:23.940] should be considered closed?
+- [01:25.170] The President: Yeah, because we consider Venezuela
+- [01:27.160] to be not a very friendly country.
+- [01:28.650] They sent millions of people really,
+- [01:30.830] and probably a number in excess of that.
+- [01:34.760] And a lot of those people shouldn't be in our country.
+- [01:37.400] From jails, from gangs, from drug dealers,
+- [01:40.910] from all of the people that came into our country,
+- [01:43.220] shouldn't have been in our country
+- [01:44.890] causing a lot of problems. And drugs.
+- [01:48.240] The Press: Does your warning mean
+- [01:49.890] that an airstrike is eminent
+- [01:51.720] or should we not read it that way?
+- [01:53.000] The President: Don't read anything into it.
+- [01:54.270] The Press: The New York Times reported
+- [01:55.490] that you had a phone call with Maduro.
+- [01:56.720] Did you?
+- [01:57.930] The President: I don't want to comment on it.
+- [01:59.170] The answer is yes.
+- [02:00.430] The Press: And can you tell us a little bit about it?
+- [02:01.990] The President: No, I can't do that.
+- [02:03.330] The Press: Would you say, would you say it went well?
+- [02:07.240] The President: I wouldn't say it went well.
+- [02:09.190] Badly. It was a phone call. Yeah.
+- [02:11.640] The Press: And can you, can you talk a little bit
+- [02:13.410] about the strikes and the controversy
+- [02:14.770] around Secretary of Defense Pete Hegseth?
+- [02:17.570] The President: I don't know anything about it. He said --
+- [02:19.250] he said he did not say that, and I believe him, 100 percent.
+- [02:21.150] The Press: So you don't know if there was a second two --
+- [02:22.530] The President: You're talking about the two men?
+- [02:23.800] The Press: -- the second strike to kill the two men
+- [02:25.010] after they were injured after the first strike?
+- [02:26.320] The President: Yeah. No I -- he said he didn't do it.
+- [02:27.580] He did, he said he never said that.
+- [02:28.850] The Press: Would you be okay with that if he did?
+- [02:30.970] The President: He said he didn't do it,
+- [02:32.250] so I'd have to make that decision.
+- [02:33.540] The Press: Mr. President, you've made so clear
+- [02:35.430] how you want to keep drugs out of the US.
+- [02:36.990] The President: Right.
+- [02:38.200] The Press: Can you explain more about why
+- [02:39.440] you would pardon a notorious drug trafficker?
+- [02:42.030] The President: Well, I don't know
+- [02:43.230] who you're talking about. Which one?
+- [02:44.600] The Press: Juan Orlando Hernandez.
+- [02:45.860] The President: Well, I was told --
+- [02:47.100] I was asked by Honduras, many of the people of Honduras,
+- [02:51.170] they said it was a Biden setup.
+- [02:52.680] I don't mean Biden. Biden didn't know he was alive,
+- [02:55.300] but it was the people that surround the Resolute desk,
+- [02:59.160] surround Biden when he was there,
+- [03:01.450] which was about very little time.
+- [03:04.240] And the people of Honduras really thought he was set up
+- [03:08.000] and it was a terrible thing.
+- [03:09.840] He was the president of the country,
+- [03:11.740] and they basically said he was a drug dealer
+- [03:13.720] because he was the president of the country.
+- [03:15.870] And they said it was a Biden administration set up.
+- [03:19.190] And I looked at the facts and I agreed with them.
+- [03:21.590] The Press: What evidence can you share that he was set up
+- [03:23.410] and that he wasn't?
+- [03:24.650] The President: Well, you take a look.
+- [03:25.890] I mean, they could say that you take any country you want.
+- [03:28.760] If somebody sells drugs in that country,
+- [03:30.980] that doesn't mean you arrest the president
+- [03:32.670] and put him in jail for the rest of his life.
+- [03:36.790] That includes this country, okay, to be honest.
+- [03:39.790] I mean, if somebody does something wrong,
+- [03:41.430] do you put the president of the country in jail?
+- [03:43.730] They said it was a Biden set up.
+- [03:45.820] It was a Biden administration set up.
+- [03:47.520] And you have a big race going on this week,
+- [03:51.050] you know, next week.
+- [03:53.130] Uh, I think it's going to be a very important race.
+- [03:54.910] It'll be interesting to see Honduras.
+- [03:56.760] That's, that's what you're talking about, right?
+- [03:58.340] The Press: Correct. Yes. The Press: (Inaudible)
+- [03:59.550] when exactly is Steve Witkoff going to Moscow?
+- [04:01.310] And do you want to extend Putin some sort of deadline for the,
+- [04:04.800] for agreeing to --
+- [04:06.410] The President: Well, what is the second part of your question?
+- [04:09.080] The Press: Do you want, like, to put to, to tell Putin,
+- [04:12.670] "Here is my deadline for you to agree to the deal"
+- [04:14.350] The President: No, I don't have a deadline.
+- [04:15.640] I have a deadline when the war is over.
+- [04:17.760] And hopefully the war's going to be over.
+- [04:19.870] 27,000 people killed last week. 27,000.
+- [04:24.300] Over the last three or four weeks, 27,000 people killed.
+- [04:28.230] That war should end.
+- [04:29.510] The Press: Mr. President, just for clarity,
+- [04:31.660] On the, on the Venezuela boat strike.
+- [04:33.810] If there were a second strike that killed wounded people,
+- [04:37.780] wounded in the first strike.
+- [04:39.100] Are you thinking that would be legal?
+- [04:40.470] Do you think that that's (Inaudible)
+- [04:41.710] The President: I don't know that that happened.
+- [04:42.980] And Pete said he did not want them.
+- [04:45.850] He didn't even know what they were talking about.
+- [04:48.620] So we'll look at, we'll look into it,
+- [04:51.530] but no, I wouldn't have wanted that.
+- [04:53.120] Not a second strike.
+- [04:54.640] Uh, the first strike was very lethal.
+- [04:56.850] It was fine that, if there were two people around,
+- [04:59.230] but Pete said that didn't happen.
+- [05:00.470] The Press: Does that make you lose --
+- [05:01.700] The President: I have great confidence.
+- [05:02.930] The Press: Would you say there's no second strike?
+- [05:04.910] The President: I don't know. I've got to find out about it.
+- [05:06.790] But Pete said he did not order the death of those two men.
+- [05:10.560] The Press: Do you have any concerns
+- [05:11.980] about how those boat strikes have been carried out at all?
+- [05:15.270] The President: Very little. Because you can see the boats.
+- [05:17.060] You can see the drugs in the boats.
+- [05:18.660] And each boat is responsible for killing 25,000 Americans.
+- [05:23.170] So I, I, and they're doing an amazing job.
+- [05:27.000] And you know, we're getting, you just look at the numbers.
+- [05:29.850] The amount of drugs coming into our country
+- [05:31.830] by sea is infinitesimal compared to what it was
+- [05:35.710] just a few months ago. And each boat, think of this.
+- [05:39.820] Each boat on average is responsible
+- [05:42.870] for the death of 25,000 Americans.
+- [05:47.830] The Press: On immigration,
+- [05:49.150] your administration made a lot of moves
+- [05:51.480] throughout the last few days
+- [05:52.840] after we know that an Afghan national
+- [05:55.230] is a suspected shooter of these national guardsmen.
+- [05:57.140] The President: Yeah, yeah.
+- [05:58.370] They, people that shouldn't be in our country.
+- [06:01.320] That's right.
+- [06:02.650] And that includes Somalians and includes plenty of others.
+- [06:05.600] The Press: How long does your administration plan
+- [06:07.450] to pause asylum into the US?
+- [06:09.060] The President: I think a long time.
+- [06:10.320] The Press: Can you, can you give any kind of time?
+- [06:11.550] What's a long time?
+- [06:12.770] The President: We don't want those people.
+- [06:13.970] We have enough problems. We don't want those people.
+- [06:15.760] The Press: Is that a year or two years?
+- [06:19.500] The President: No time limit.
+- [06:20.760] But it could be a long time. We don't want those people.
+- [06:22.590] Do you understand that? The Press: I understand.
+- [06:23.910] The President: You understand that?
+- [06:25.160] The Press: I understand what you're saying.
+- [06:26.360] The President: Who are you with?
+- [06:26.950] The Press: I'm with News Nation, so --
+- [06:28.230] The President: Okay, News Nation, News Nation.
+- [06:29.480] The Press: My name's Libby Dee. The President: Great, great.
+- [06:30.740] Let me just tell you something. We don't want those people.
+- [06:32.910] Does that make sense? You know why we don't want them?
+- [06:35.840] Because many of them are no good
+- [06:37.250] and they shouldn't be in our country.
+- [06:38.700] The Press: What do you mean by, "Those people"? Can you clarify?
+- [06:40.920] The President: The people from different countries
+- [06:42.820] that are not friendly to us and countries
+- [06:45.280] that are out of control themselves.
+- [06:47.410] Countries like Somalia that have virtually no government,
+- [06:50.640] no military, no police.
+- [06:51.930] All they do is go around killing each other.
+- [06:53.810] Then they come into our country
+- [06:55.150] and tell us how to run our country.
+- [06:57.140] The President: We don't want them.
+- [07:00.850] The Press: Yeah.
+- [07:02.900] How many countries, yeah, would you put on that list?
+- [07:06.580] The President: Well, I guess we gave you 19, right?
+- [07:08.360] And it's probably more than that.
+- [07:10.030] The Press: Is that what you mean,
+- [07:11.250] when you mean third-world countries, those 19?
+- [07:13.780] The President: No, that, I don't think they're all third world,
+- [07:15.960] but in many cases they are third world.
+- [07:18.650] They're not good countries.
+- [07:20.380] They're very crime-rid countries.
+- [07:22.800] They're countries that don't do a good job.
+- [07:24.590] They're countries that don't register
+- [07:26.120] from the standpoint of success.
+- [07:28.080] And we frankly don't need their people
+- [07:30.470] coming into our country telling us what to do.
+- [07:33.180] I'm talking about like Somalia,
+- [07:35.730] where you have a congressman goes around
+- [07:37.930] telling everybody about our constitution,
+- [07:40.650] and yet she supposedly came into our country
+- [07:42.840] by marrying her brother.
+- [07:44.400] Well, if that's true, she shouldn't be a congressman
+- [07:46.820] and we should throw her the hell out of our country.
+- [07:48.540] The Press: Off of that, in that same post
+- [07:49.970] you mentioned Tim Walz
+- [07:51.190] and you called him what many Americans
+- [07:53.610] do find an offensive word "Retarded."
+- [07:56.100] Do you stand by that claim of calling Tim Walz retarded?
+- [07:58.110] The President: Yeah.
+- [07:59.340] I think there's something wrong with him.
+- [08:00.720] Absolutely. Sure.
+- [08:01.940] But if you have a problem with it you know what?
+- [08:04.980] I think there's something wrong with him.
+- [08:06.790] Anybody that would do what he did,
+- [08:08.580] anybody that would allow those people into a state
+- [08:11.360] and pay billions of dollars out to Somalia,
+- [08:15.000] we give billions of dollars to Somalia.
+- [08:16.640] It's not even a country
+- [08:17.920] because it doesn't function like a country.
+- [08:20.490] It's got a name, but it doesn't function like a country --
+- [08:23.640] yeah, there's something wrong with Walz.
+- [08:25.130] The Press: And Mr. President,
+- [08:26.410] you said that you might de-naturalize
+- [08:28.820] some American citizens. Can you talk about --
+- [08:30.520] The President: You mean people that are in here
+- [08:31.820] that shouldn't be here?
+- [08:33.050] The Press: Well, that became Americans.
+- [08:34.300] Are you trying to revoke their citizenship?
+- [08:35.610] The President: Well, we'll see. I mean, yeah, we have criminals
+- [08:37.770] that came into our country
+- [08:39.420] and they were naturalized, maybe through Biden,
+- [08:42.920] or somebody that didn't know what they were doing.
+- [08:45.830] If I have the power to do it, I'm not sure that I do,
+- [08:48.280] but if I do, I would de-naturalize, absolutely.
+- [08:51.490] Yeah, do you, do you have a question? Yeah?
+- [08:53.010] The Press: What do you mean by reverse migration?
+- [08:56.510] The President: It means get people out that
+- [08:57.810] are in our country.
+- [08:59.050] Get them out of here. I want to get them out.
+- [09:01.230] We got a lot of people in our country that shouldn't be here,
+- [09:03.860] and they came in through Biden
+- [09:05.640] and he was the worst president in the history of our country.
+- [09:08.260] But the single biggest thing he did was allow million,
+- [09:12.460] the worst, allow millions of people into our country
+- [09:16.550] that shouldn't be here.
+- [09:17.750] Drug dealers prisons were opened up
+- [09:20.700] and allowed to come into our country.
+- [09:22.210] Uh, you take a look at the people
+- [09:23.960] that were allowed to come into our country.
+- [09:26.240] We're paying a big price for it and we will for years to come,
+- [09:29.330] including the recent killer
+- [09:31.140] of two wonderful National Guards people.
+- [09:34.930] And I'll tell you what, that animal should not have been
+- [09:38.420] allowed to come into our country.
+- [09:39.840] Thank you very much, everybody. Thank you.
+- [09:41.660] The Press: Have you spoken with Andrew Wolfe's family
+- [09:43.480] and can you give us an update on his condition?
+- [09:45.110] The President: I have spoken to both families.
+- [09:48.030] Well, I mean, I could give you an update. They're devastated.
+- [09:50.710] Does that make sense to you? They're devastated.
+- [09:52.510] The Press: Can you give us an update
+- [09:53.790] on Andrew Wolfe's condition?
+- [09:55.050] The President: Well, as you know,
+- [09:56.350] the one is no longer with us,
+- [09:58.700] and Andrew is fighting for his life.
+- [10:02.110] And his parents are unbelievably great people,
+- [10:05.800] highly religious people, and they're praying
+- [10:08.610] and they want everybody to pray for Andrew.
+- [10:11.410] And he has a chance to make it.
+- [10:13.470] But he is I mean, his mother and father,
+- [10:17.190] they were so unbelievable.
+- [10:19.260] They were so positive. From West Virginia, great state.
+- [10:22.960] Uh, I spoke with Sarah's parents too
+- [10:25.550] and the only thing I can say, they were devastated.
+- [10:30.010] They can't even believe it could happen.
+- [10:31.860] The Press: I, it's absolutely devastating, of course,
+- [10:33.370] to lose your children.
+- [10:34.600] Do you plan to bring the Beckstroms to the White House?
+- [10:36.490] Do you plan to --
+- [10:37.770] The President: Yeah, I do. I do. I've already suggested it.
+- [10:40.170] I said, "When you're ready,"
+- [10:43.540] because that's a tough thing to come to the White House.
+- [10:45.910] We're going to honor Sarah. And likewise with Andrew,
+- [10:49.960] recover or not we're going to honor.
+- [10:52.880] The Press: I do have one more question about Witkoff
+- [10:55.090] because you mentioned, and this was asked previously.
+- [10:57.710] Do you, can you tell us what day
+- [10:59.260] Witkoff is going to meet with Putin?
+- [11:00.730] And then on that, is that meeting --
+- [11:02.120] The President: Sometime next week.
+- [11:03.360] The Press: Okay. You don't have a,
+- [11:04.580] is it early next week? Late next week?
+- [11:05.990] The President: Sometime next.
+- [11:07.280] The Press: Mr. President, on healthcare,
+- [11:08.570] because it's so important to so many Americans.
+- [11:10.130] The President: Yeah.
+- [11:11.380] You know, one of the reasons that healthcare can work
+- [11:13.320] is because of what I just did with favored nations.
+- [11:16.200] You're going to have drug prices coming down 500,
+- [11:18.660] 600, 700 percent because of me.
+- [11:20.980] The Press: And you wanted to ex --
+- [11:22.210] The President: In other words, we're going to have
+- [11:23.480] the lowest drug prices,
+- [11:24.840] tied for the lowest drug prices anywhere in the world.
+- [11:28.490] It's called favored nations. And you don't talk about it.
+- [11:32.720] It's probably the biggest thing to happen in medicine
+- [11:35.400] in the last hundred years. And it can have a huge impact,
+- [11:40.550] positive impact on pricing for healthcare.
+- [11:43.530] The Press: Are you any closer -- decision on,
+- [11:44.980] on picking a new Fed chair?
+- [11:47.390] Are you any closer on that right now?
+- [11:48.980] The President: I know who I'm going to pick.
+- [11:50.230] Yeah. The Press: Is it Kevin Hassett?
+- [11:51.460] The President: I'm not telling you.
+- [11:53.650] We'll be announcing it. Thank you very much, everybody.
+- [11:55.500] The Press: Thank you, Mr. President.
+- [11:56.700] The President: This is a rocky flight.
+- [11:57.930] I'm going to -- we're going to get out of here
+- [11:59.610] before something happens. They asked about my MRI.
+- [12:04.550] MRIs are very, you know?
+- [12:05.870] The Press: If Governor Walz asked you
+- [12:07.300] to release the MRI records.
+- [12:09.830] The President: Governor Walz?
+- [12:11.090] You mean the incompetent Governor Walz?
+- [12:13.320] So if they want to release it, it's okay with me to release it.
+- [12:17.020] It's perfect.
+- [12:18.380] It's like my phone call where I got impeached.
+- [12:21.110] It's absolutely perfect.
+- [12:22.310] So if you want to hear about it or if you want to release it.
+- [12:24.780] Do you want to have it released NewsNation?
+- [12:26.370] The Press: Yes, please.
+- [12:27.590] The President: Failing, failing NewsNation.
+- [12:29.030] The Press: No, sir, we're not failing.
+- [12:30.240] The President: News Nation is doing a lousy, by the way.
+- [12:32.190] But if you want to have it released, I'll release it.
+- [12:33.960] The Press: Yes, please. The President: Absolutely.
+- [12:35.270] The Press: Can you tell us what they were looking at?
+- [12:36.900] The President: For what? Releasing?
+- [12:38.130] The Press: No, no, no.
+- [12:39.340] What part of your body was the MRI looking at?
+- [12:41.300] The President: I have no idea. It was just an MRI.
+- [12:42.980] What part of the body?
+- [12:44.610] It wasn't the brain because I took a cognitive test
+- [12:46.870] and I aced it.
+- [12:48.150] I got a perfect mark, which you would be incapable of doing.
+- [12:51.320] Goodbye, everybody. You too.
+- [12:53.480] The Press: Thank you, Mr. President.

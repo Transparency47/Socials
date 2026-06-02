@@ -1,0 +1,955 @@
+<!-- source: https://www.youtube.com/watch?v=u3jkA1cHPKc -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: u3jkA1cHPKc -->
+<!-- date_published: 2025-12-17T02:30:21+00:00 -->
+<!-- date_accessed: 2026-06-02T02:40:09.187656+00:00 -->
+
+# Transcript: President Trump Participates in a Hanukkah Reception
+
+- [00:04.330] Announcer: -- United States, Donald J. Trump.
+- [00:08.210] ♪ (Hail to the Chief) ♪
+- [00:29.030] The President: Well, thank you very much.
+- [00:32.680] Nice place. I guess you've mostly been here, but --
+- [00:37.450] You like it a lot better with Trump
+- [00:39.970] than you like it with Biden.
+- [00:42.450] That I can tell you. That's because you're smart.
+- [00:46.300] Well, I'm thrilled to welcome
+- [00:47.780] so many good friends to the White House
+- [00:49.910] as we celebrate the third night of Hanukkah.
+- [00:56.300] Third night. Time, time flies.
+- [00:59.170] Let me take a moment to send the love and prayers
+- [01:02.800] to our entire nation, to the people of Australia,
+- [01:07.620] and especially all those affected
+- [01:10.280] by the horrific and anti-Semitic terrorist attack,
+- [01:13.850] and that's exactly what it is, anti-Semitic.
+- [01:18.760] That took place on a Hanukkah celebration in Sydney.
+- [01:22.550] What a terrible, terrible thing. We don't learn.
+- [01:27.380] We're joined in mourning all of those who were killed
+- [01:31.120] and we're praying for the swift recovery of the wounded.
+- [01:34.800] Some are very horrifically wounded, as you probably know.
+- [01:38.190] All nations must stand together against the evil forces
+- [01:41.670] of radical Islamic terrorism, and we're doing that.
+- [01:46.340] Joining us tonight, our commerce secretary,
+- [01:50.060] Howard Lutnick, is doing a fantastic job.
+- [01:55.180] Representatives, Paul Gosar, David Kutsoff,
+- [01:59.480] Claudia Tenney, Ronny Jackson, he was my White House doctor.
+- [02:04.720] Ronnie was asked, "Who's the healthiest of all?
+- [02:07.300] Was it Barack Hussein Obama?
+- [02:11.200] Was it Sleepy Joe Biden? Or was it Donald Trump?"
+- [02:17.520] And he said, "Trump was, by far, the healthiest."
+- [02:22.050] He was the doctor for all three of us,
+- [02:23.870] and he said "Trump was by far the healthiest."
+- [02:26.020] I love him.
+- [02:27.500] If he didn't say that, I would never have talked to him again.
+- [02:31.330] Where is Zohran? Is he here?
+- [02:33.250] Ronny Jackson, what a great legend.
+- [02:36.290] Josh Gottheimer's here. Mr. Salt is here, Mike Lawler.
+- [02:42.800] He's the only guy could have gotten that for New York.
+- [02:45.570] Nobody else. He worked so hard on that.
+- [02:48.400] Will you please focus on the midterms, please?
+- [02:50.810] Do you mind? Okay. Because you can do it.
+- [02:53.320] Jared Moskowitz. Thank you, Jared.
+- [02:56.380] Thank you, Jared. Max Miller is here.
+- [02:59.440] Great old Max.
+- [03:01.680] He was my music man in the White House.
+- [03:03.530] He knew music better than any human being.
+- [03:06.980] Craig Goldman. Thank you, Craig.
+- [03:10.970] And Randy Fine, new to Congress, but he's done a great job.
+- [03:15.930] He's been great.
+- [03:17.630] As well as the mayor of Boca Raton, Florida, Scott Singer.
+- [03:22.310] Thank you very much. Thank you, Scott. Good place.
+- [03:25.010] I love Boca. National Chairman
+- [03:27.530] of the Republican Jewish Committee, Norm Coleman.
+- [03:32.570] Thank you, Norm. Looking good, Norm.
+- [03:35.490] CEO of the Republican Jewish Coalition, Matt Brooks.
+- [03:40.570] He says, "Trump is the greatest president we've ever had,"
+- [03:43.160] so I like him.
+- [03:44.940] I'll take Matt any day. Thank you, Matt.
+- [03:47.650] CEO of the Israeli American Council, Elan Carr.
+- [03:55.780] Thank you.
+- [03:57.930] Uh, we have a man. I have to take a little time.
+- [04:01.950] Because every Saturday night, used to be Sunday, then it be,
+- [04:04.500] he did so well that they put him on Saturday too, Saturday night.
+- [04:07.640] Do you know who I'm talking about?
+- [04:09.010] Because there's only one his Saturday and Sunday.
+- [04:12.000] And Saturday is considered Death Valley,
+- [04:14.770] but it's not death because of ratings.
+- [04:16.950] Nobody gets good ratings.
+- [04:18.850] Although, actually, my daughter-in-law's doing well
+- [04:21.480] and you always did well. The great one, Mark Levin.
+- [04:30.250] And much more importantly, his much more brilliant wife.
+- [04:34.970] Where are you? There you are.
+- [04:36.600] Would you, come on up here, both of you.
+- [04:38.490] Get up here. Get up here.
+- [04:40.210] I got, look, every Saturday, every Sunday,
+- [04:43.250] I'm forced to watch television to listen to this guy
+- [04:45.960] talk about how freaking great I am
+- [04:49.220] because he does like Trump. There's no question about it.
+- [04:52.610] Come on up here, Mark. Get up here. Come on up.
+- [04:57.020] What a beautiful couple. Did you get lucky?
+- [05:00.170] If you weren't a genius,
+- [05:01.510] you wouldn't have a wife like this.
+- [05:04.160] Mark, say a couple of words. Come here, darling.
+- [05:11.940] And these people do like Israel.
+- [05:18.390] Mark Levin: And he loves Israel too.
+- [05:20.860] (applause)
+- [05:25.480] Six years ago, I was up here.
+- [05:28.450] And I said, "This is our first Jewish president."
+- [05:33.780] Now, he's the first Jewish president to serve two
+- [05:38.480] non consecutive presidencies. We thank you for everything.
+- [05:42.340] The President: That's true.
+- [05:43.560] Bad things happened on the second one.
+- [05:45.640] Namely, the election was rigged.
+- [05:48.880] And we found out, and you see that happening.
+- [05:50.830] But --
+- [05:52.050] Mark Levin: And, and you are the greatest president.
+- [05:53.800] And God bless you. I miss you, I miss you.
+- [06:02.270] The President: Take care of that guy.
+- [06:05.210] No, he's so great.
+- [06:06.480] Thank you, Mark, for both being here.
+- [06:08.250] You both really are amazing. So Rabbi Yehuda Kaploun.
+- [06:17.980] Thank you, Rabbi. Oh, no. Sid Rosenberg.
+- [06:21.970] There he is, Sid. You want to come up here, Sid?
+- [06:25.540] Mark, should I let Sid come up, Mark?
+- [06:27.990] I think so. Come on, Sid.
+- [06:31.050] So, Sid's got the number one radio show in New York.
+- [06:35.550] Got the number one radio show in New York, like, by far, ABC.
+- [06:40.360] Works for a really nice guy too. Actually, he's not that nice,
+- [06:43.290] but he's nice as far as I'm concerned.
+- [06:45.470] He works for a good man. Say a few words, Sid. Thank you.
+- [06:47.890] Sid Rosenberg: First of all, I love you.
+- [06:51.800] I love him. Do you all love him?
+- [06:56.730] Has there been a president even close to this guy, even close?
+- [07:01.220] And you know how I know how much I love him?
+- [07:02.910] He starts tonight talking about Australia.
+- [07:05.650] Good luck with anybody else in our government
+- [07:07.950] starting with the Jewish people in Australia, nobody better.
+- [07:11.110] And the fact that you called me up on stage,
+- [07:12.760] I'm going to say this.
+- [07:14.120] My beautiful wife, Danielle is in the audience,
+- [07:16.070] the birth of my two children.
+- [07:17.380] Outside of that, President Trump,
+- [07:19.050] this right now is the greatest moment of my life.
+- [07:22.180] (applause)
+- [07:27.110] The President: He's almost crying.
+- [07:28.400] He never -- he hasn't cried since he was a baby.
+- [07:31.780] Well, he's a great guy, and a great man,
+- [07:33.780] and he loves Israel. And boy, this, you got some good people.
+- [07:38.330] Harmeet, thank you very much. Harmeet Dhillon is here.
+- [07:41.750] (applause)
+- [07:43.730] And she sues the ass off of anybody that is anti-Semitic.
+- [07:48.960] She's doing a lot of them right now.
+- [07:52.600] Harvard wished they never heard her name, right?
+- [07:55.610] They're going to pay a lot of money, right, Harmeet?
+- [07:57.510] They're going to pay a lot of money.
+- [07:59.850] Sid, it's an honor to have you up.
+- [08:01.250] And you do a great show, we appreciate it.
+- [08:04.090] And say hello to the Catsimatidis person,
+- [08:07.860] who's fantastic.
+- [08:09.130] And another person, I really love her.
+- [08:10.700] I think she's a beautiful woman.
+- [08:12.360] You're not allowed to say that anymore because if you do,
+- [08:15.060] it usually means the end of your political career,
+- [08:17.370] but I've been threatened much worse than that.
+- [08:20.000] I think she's a beautiful woman inside and out, Liz Pipko.
+- [08:24.140] Liz, like, come up here.
+- [08:27.080] Enough with the Sid and the Mark,
+- [08:28.620] and come on up here. Look at her.
+- [08:32.770] She has been so strong for Israel and for our country.
+- [08:37.720] Liz, say a few words, please.
+- [08:43.870] Elizabeth Pipko: First I want to address
+- [08:45.080] the elephant in the room, which is me, tonight.
+- [08:49.500] I am grateful to President Trump for so many things.
+- [08:51.700] But now, most of all,
+- [08:52.910] I'm grateful for this tiny miracle which exists
+- [08:55.820] because Donald Trump ran for office in 2016.
+- [08:58.690] I met the love of my life on that campaign.
+- [09:01.870] And now, in addition to saving the world,
+- [09:04.270] I will have a child thanks to President Trump, so.
+- [09:11.300] And much more importantly the Jewish people
+- [09:13.540] have been through a lot,
+- [09:14.740] of course, the last few years, the last weekend.
+- [09:17.310] And I just hope on this holiday of miracles,
+- [09:19.230] we realize what a miracle it is
+- [09:20.720] to be in the greatest country on the face of the Earth,
+- [09:23.430] in the most beautiful building,
+- [09:24.870] and with the greatest president this world has ever seen.
+- [09:26.680] (applause)
+- [09:27.880] The President: Thank you, Elizabeth. Thank you.
+- [09:31.320] Congratulations. Congratulations.
+- [09:34.530] That's right, she was on the campaign
+- [09:35.900] and she was so effective and great.
+- [09:38.550] And we always have to remember the ones
+- [09:40.290] that have been great in good times and bad.
+- [09:42.280] That's why Mark and the people I introduced,
+- [09:45.200] because I don't introduce them when they're just sort of good,
+- [09:47.790] when they're good.
+- [09:49.040] A lot of -- everyone's good the day after I won the election.
+- [09:51.680] They were all, "Sir, I just want to tell you,
+- [09:53.420] you're the greatest person I've ever seen.
+- [09:55.130] Thank you, sir. I'd love to have dinner sometime.
+- [09:57.420] Where have you been for the last two years?"
+- [10:00.810] We know about, we have a lot of those people, mostly those.
+- [10:03.600] Jason, how are you, Jason?
+- [10:05.250] Jason Greenblatt. Do you know Jason Greenblatt?
+- [10:08.850] He worked for me for years. He's a great lawyer.
+- [10:11.830] Then he made a lot of money and he said, "I'm getting out."
+- [10:14.620] And you focused on Israel, right?
+- [10:17.000] That was the focus. He says, "I love Israel.
+- [10:18.760] I just want to focus on Israel." It's good to see you today.
+- [10:21.300] I haven't seen you in a long time,
+- [10:22.890] but he was a great lawyer.
+- [10:24.100] Here's another great lawyer. David, good to have you here.
+- [10:27.170] Good to have you here, David.
+- [10:28.820] And we have another person that's a very special person.
+- [10:32.140] She received the Presidential Medal of Freedom.
+- [10:36.100] She is a beautiful woman, actually, in my opinion,
+- [10:39.950] another one. That's two reasons now.
+- [10:42.970] And through by the way, Mark, we have three reasons, Mark,
+- [10:47.480] because your wife is incredible always from day one.
+- [10:51.210] But I think it's okay if we ask Miriam Adelson --
+- [10:54.570] do you want to come up, Miriam? Come up here, Miriam.
+- [11:00.860] Miriam gave my campaign indirectly
+- [11:04.010] and directly 250 million. She was number one.
+- [11:09.420] When somebody can give you 250 million,
+- [11:11.980] I think that we should give her the opportunity to say hello.
+- [11:16.920] And Miriam, make it quick because 250 million
+- [11:20.830] is not what it used to be. Okay?
+- [11:24.100] Hello, darling. Come here. Incredible woman.
+- [11:30.300] With a great husband, a man that loved Israel.
+- [11:39.450] Miriam Adelson: Well Mr. President,
+- [11:41.350] when you were in Israeli parliament and you gave a speech
+- [11:45.150] and you saw me from far away, you called, and I, at that time,
+- [11:48.930] I came with a scooter to the parliament just to hear you.
+- [11:52.380] I wanted to hear you live.
+- [11:54.240] And then you say, "Miriam Adelson."
+- [11:57.070] And I stood for a second,
+- [11:58.310] but it was so painful, so I said.
+- [12:00.620] Then you screamed, "Miriam, stand up."
+- [12:04.420] And I wish you would have known,
+- [12:06.770] but I stood up and heard all your compliment
+- [12:09.410] and thank you very much.
+- [12:10.620] The President: I saw you back there standing.
+- [12:12.120] Miriam Adelson: Yeah. You saw me.
+- [12:13.610] The President: She stood up bravely.
+- [12:14.870] Miriam Adelson: And now I met Alan Dosovic
+- [12:18.470] and he say the legal thing about four more years.
+- [12:22.570] And I say, "Alan, I agree with you."
+- [12:24.890] So we can do it. Think about it. I will be --
+- [12:27.950] The President: Alan's here some place.
+- [12:29.150] Where's Alan?
+- [12:30.360] Miriam Adelson: Alan is here. Oh, he had a flight.
+- [12:33.860] (Audience chants "Four more years")
+- [12:43.540] The President: She said, "Think about it.
+- [12:44.740] I'll give you another 250."
+- [12:48.860] But her husband, Sheldon, was an amazing guy
+- [12:51.170] and he'd come up to the office
+- [12:52.960] and there was nobody more aggressive than Sheldon.
+- [12:55.900] I think I spent more time with him and you,
+- [12:59.010] because you usually came up together,
+- [13:00.560] but he'd call and say "Can I come over, please?"
+- [13:04.700] I'd say, "Sheldon, I'm president of the United States.
+- [13:07.480] It doesn't work that way anymore.
+- [13:08.870] It's like maybe tomorrow. How about tomorrow?"
+- [13:11.500] "No, no, no, please, just for a little while."
+- [13:13.850] And I would he'd always say, "10 minutes,"
+- [13:15.750] it turned out to be about an hour and a half, right?
+- [13:18.470] And what he did is he fought for Israel.
+- [13:20.410] That's all he really fought for. He just wanted to take care of,
+- [13:24.970] he just wanted to take care of Israel.
+- [13:26.700] So he was a great guy.
+- [13:27.950] He was a fantastic man and he loved you
+- [13:30.460] so much he couldn't see straight, so good.
+- [13:33.020] Thank you, darling. Be careful.
+- [13:37.220] Be careful. We don't want her falling.
+- [13:38.870] You know, when you fall, it's not good for politics.
+- [13:41.580] We had a man that fell a lot. I don't want to talk too much
+- [13:43.930] because I'll have my day, I'm sure, you know.
+- [13:46.520] They're waiting, the press.
+- [13:47.800] You know, all that press back there, they're waiting.
+- [13:49.600] Oh, would they like to see Trump trip off the stage.
+- [13:53.450] I would never live it down.
+- [13:56.220] But anyway, but it's, it's so, and we have so many friends.
+- [13:59.310] I can't mention everybody. We have so many friends.
+- [14:01.680] Hello, my man. How are you?
+- [14:03.730] Boy, we have good people here tonight, huh?
+- [14:06.320] This is a, this is the A-list. This is the A-list of any list.
+- [14:11.020] But it's an honor to have you all.
+- [14:13.250] It really is a story.
+- [14:14.540] What you've done and what you've gone through is incredible.
+- [14:18.790] And as a people, there's never been anything like it.
+- [14:22.210] You know, I told BB, I said,
+- [14:24.530] "You know, it's amazing what you've done,
+- [14:27.450] because when you look at the Middle East,
+- [14:30.110] you take a map of the Middle East."
+- [14:32.050] I said, "The land is so small.
+- [14:34.610] It's so tiny.
+- [14:36.320] It's like hard to believe what you've been able to do."
+- [14:39.550] Now, it helped the B2 bombers
+- [14:40.890] that we sent in to wipe out them.
+- [14:43.510] We, we gave them a lot of help. It helped when we were shooting
+- [14:47.750] all those drones down from jet fighters.
+- [14:50.100] Don't ever let anyone tell you a drone
+- [14:52.500] is better than a jet fighter.
+- [14:53.860] Drone's very nice.
+- [14:55.650] But you have, when you have F-22s
+- [14:58.680] circling around them like there's nothing,
+- [15:00.700] just shooting their crap out of them out of the air,
+- [15:03.650] don't let anyone convince you that a drone
+- [15:05.860] is better than an F-22 or an F-35 or any of that stuff.
+- [15:09.630] But, but they're nice. They're nice.
+- [15:12.080] But we had our fighters shooting the hell out of 2,000 drones
+- [15:16.370] were launched at Israel and they were just knocking them out.
+- [15:19.570] The only problem on occasion they'd run out of bullets,
+- [15:22.960] but every one of them took out a drone
+- [15:24.750] and we, we did a great job.
+- [15:26.210] And then we did the best job of all
+- [15:27.780] is we knocked out the Iran nuclear power.
+- [15:35.260] And they would have had that and within a month,
+- [15:38.020] I think they would have been a much different story,
+- [15:40.350] would have been talking from a much different place.
+- [15:43.850] But the story of Hanukkah began more than 2,000 years ago
+- [15:48.560] in ancient Jerusalem when the oppressive
+- [15:52.950] (inaudible)
+- [15:54.150] and, and they were really oppressive, tried.
+- [15:57.450] By the way, a lot of things don't change so much.
+- [16:00.400] They'd be oppressive today if you didn't have strength.
+- [16:02.610] You need strength, Mark, right? If you don't have strength
+- [16:05.470] and if you don't have a partner with a good President,
+- [16:07.820] don't forget, you had a President
+- [16:09.850] previously that believed in Iran.
+- [16:11.730] They ditched the entire world for Iran.
+- [16:14.700] That's why they said the Iran nuclear deal
+- [16:16.880] that I terminated immediately. It was the worst deal.
+- [16:21.340] And BB Netanyahu came over here to beg Barack Hussein Obama
+- [16:25.700] not to sign that deal, but he signed it.
+- [16:28.810] He signed it. It was a whole different world.
+- [16:31.270] And that's why I wonder, I, I got the highest Jewish vote.
+- [16:35.080] Now I have to say, in Israel, they say I'm at 99 percent.
+- [16:40.090] But over here, I was like at 50. It, it meant
+- [16:44.410] that 50 percent of the people over here voted for Kamala.
+- [16:50.660] Is that possible? Is that even possible, right?
+- [16:55.590] So anyway, but they suppressed the Jewish, Jewish worship
+- [16:59.960] and imposed foreign rules. Are we okay over there?
+- [17:04.430] Just want to make sure you're okay.
+- [17:05.920] You okay?
+- [17:07.450] Good. I want to make sure you're perfect. Okay?
+- [17:13.030] Thank you very much, yeah. Yeah, is there a doctor?
+- [17:18.560] Get a doctor over there, please, just, just in case.
+- [17:21.440] Go ahead. Hop over there, please.
+- [17:24.170] Okay? Good. Thank you very much.
+- [17:32.190] Everything good? Okay. Great person.
+- [17:36.560] Against overwhelming odds,
+- [17:37.930] a small band of Jewish fighters rose up
+- [17:40.950] to defend the Jewish people's right to worship freely.
+- [17:45.420] When they reclaimed the Holy Temple,
+- [17:48.290] they found only a single flask of sacred oil,
+- [17:52.390] just enough to keep the menorah's light
+- [17:55.860] burning for one night.
+- [17:58.200] They wanted that light to burn just for one night.
+- [18:00.870] Yet as the story goes,
+- [18:02.310] that small flame endured for eight days.
+- [18:05.800] Do you know that story? Does everybody know that story?
+- [18:09.320] For thousands of years, the miracle of Hanukkah
+- [18:13.170] has reminded us of God's love for the Jewish people
+- [18:16.040] as well as their enduring resilience and faith
+- [18:19.040] in the face of centuries of persecution, centuries,
+- [18:23.160] and it continues. It continues.
+- [18:25.540] Who would believe this could continue?
+- [18:28.600] And it sort of started here with schools and universities,
+- [18:31.870] and Harmeet's taking care of that situation very strongly
+- [18:35.140] in the Department of Justice, right?
+- [18:37.400] Who would believe it? But we're grateful to be joined
+- [18:40.340] by another reminder of that unbreakable strength,
+- [18:43.200] two courageous survivors of the Nazi Holocaust.
+- [18:47.690] Jerry Wartski and Michael Bornstein.
+- [18:50.920] Where are they? Where are you guys?
+- [18:53.730] Well, you look good. You look better than I do.
+- [18:58.470] You look fantastic.
+- [18:59.720] Jerry was only nine years old when the Nazis invaded Poland.
+- [19:03.190] He lost both of his parents in the camps,
+- [19:06.050] but refused to let their murder defeat him.
+- [19:09.180] After the war, he came to New York
+- [19:11.370] where he had an incredibly successful career,
+- [19:14.000] became very successful,
+- [19:15.950] and became a good friend of Melania and myself,
+- [19:18.770] and I want to thank you, Jerry,
+- [19:19.970] and that's incredible what took place.
+- [19:23.400] Thank you very much.
+- [19:24.640] Thank you, Jerry. Thank you very much.
+- [19:28.910] And Michael Bornstein lost both his father
+- [19:32.510] and mother in Auschwitz
+- [19:34.590] when he was just a very young man,
+- [19:37.310] a toddler, actually.
+- [19:39.030] Through the love and sacrifice of other family members,
+- [19:42.410] he managed to survive and reunite with his mother
+- [19:46.700] in later years. They would come to America
+- [19:50.510] where Michael received a scholarship to college
+- [19:54.090] and eventually earned a PhD in chemistry
+- [19:57.120] and became one of the most brilliant chemists
+- [20:00.030] anywhere around.
+- [20:01.690] So Michael and Jerry, I want to just thank you.
+- [20:03.720] We're honored to have you.
+- [20:04.940] This whole group of people are very honored to have you both.
+- [20:08.410] Thank you very much. Thank you.
+- [20:09.850] Thank you very much, thank you, Michael.
+- [20:12.850] As President of the United States,
+- [20:14.970] I will always support Jewish Americans
+- [20:17.120] and I will always, I will always be a friend
+- [20:20.370] and a champion to the Jewish people.
+- [20:23.390] I have been (inaudible).
+- [20:26.860] And I will say you know, if you go back 10, 12,
+- [20:31.320] 15 years ago at the most,
+- [20:34.030] the strongest lobby in Washington was the Jewish lobby.
+- [20:38.160] It was Israel. That's no longer true.
+- [20:41.770] You have to be very careful.
+- [20:43.840] You have a Congress in particular,
+- [20:45.840] which is becoming antisemitic.
+- [20:49.300] You have AOC+3. You have those people.
+- [20:54.210] Ilhan Omar, she hates Jewish people.
+- [20:58.220] And you have to be very careful
+- [20:59.550] because there's been a big change.
+- [21:01.340] You know, if you go back 15 years ago, I'm not Jewish,
+- [21:04.110] but my father was very friendly with many, many Jewish people,
+- [21:07.820] was honored by Federation. I would go with him
+- [21:11.310] to Federation of Jewish Philanthropies
+- [21:13.590] and many other things.
+- [21:15.420] And we grew up respecting and loving Jewish people.
+- [21:20.310] You know, you don't even think about it.
+- [21:21.770] In Brooklyn and Queens mostly.
+- [21:24.080] And my father didn't go to Manhattan.
+- [21:26.180] He never went to Manhattan ffrom the standpoint.
+- [21:28.270] He could never understand how in Brooklyn
+- [21:31.220] you could buy a piece of land for $3 a foot
+- [21:34.040] and how in Manhattan you had to pay $1,000 a foot.
+- [21:37.470] He said, "I can't get that. I don't like it.
+- [21:40.700] I like to buy it for 3."
+- [21:42.030] So it was different. It's a different thinking.
+- [21:44.940] In a way, I'm glad he didn't do that
+- [21:46.390] because he let me have some of that fun.
+- [21:49.300] And it was, I had a lot of fun in Manhattan. We did great.
+- [21:52.430] But my father would tell me the most powerful lobby
+- [21:59.230] that there is in this country is the Jewish lobby.
+- [22:03.100] It's the Israeli lobby. It's not that way anymore.
+- [22:07.280] You have a lot of people in your way,
+- [22:08.720] you have a lot of people that don't want to help Israel.
+- [22:14.790] You have a lot of people in Congress that don't like Israel.
+- [22:17.960] You have a lot of people in Congress that,
+- [22:19.860] in a way, I think, Mike, we could say it, right?
+- [22:21.880] You're there, you're doing an amazing job, Mike Lawler.
+- [22:24.660] You, they, they hate, they hate Israel.
+- [22:28.180] They hate Israel.
+- [22:29.390] And if you would've told me 15 years ago that,
+- [22:31.510] that was possible, Jason, I would've said,
+- [22:34.020] "There's no way. There's no way that's possible."
+- [22:36.810] But it's happening.
+- [22:38.130] And obviously, it's getting progressively worse,
+- [22:41.000] less so in the Senate, but the Senate's starting also.
+- [22:44.290] You get glimmers, you know?
+- [22:45.690] When I'm in the back rooms talking to people,
+- [22:47.510] you get glimmers of statements that you say,
+- [22:50.200] "Whoa, where did that come from?"
+- [22:52.220] So we have to be Sid, we have to be very careful
+- [22:56.030] because it's bad things are happening.
+- [22:57.940] And then you see what goes on in Australia or October 7th.
+- [23:02.200] How about October 7th?
+- [23:03.860] And then you have people that deny it ever happened.
+- [23:06.360] How about the people that deny, like they deny the Holocaust,
+- [23:09.780] but, you know, you figure, "Well, that's just many years."
+- [23:11.690] Well, October 7th is not many years at all.
+- [23:15.150] And you have people that deny October --
+- [23:17.080] I saw tape that I, I wish I never saw it, actually.
+- [23:20.730] I wish I never saw it.
+- [23:21.970] I got to see tape that, um, some of you got to see,
+- [23:25.780] but as President, I got to see things
+- [23:27.530] I wish I never saw, but there's no denying it.
+- [23:30.450] But then they'll say, "Oh, the tape was a rigged tape.
+- [23:34.230] It was a tape that never existed.
+- [23:36.080] They made it up. It's just propaganda."
+- [23:39.250] I don't know if they believe it. I don't think they believe it,
+- [23:41.380] but you have to be very, very careful.
+- [23:42.790] Bad things are happening
+- [23:44.010] and we're not going to let that happen.
+- [23:45.630] While I'm president and the DOJ and Harmeet, we're not,
+- [23:50.570] we're not going to let it happen,
+- [23:51.930] but please, please be vigilant and careful
+- [23:54.650] because you have some bad people that are now in Congress
+- [23:59.210] that were unthinkable, unthinkable to be
+- [24:02.660] in Congress 12, 13, 14 years ago, 15 years ago.
+- [24:07.900] Within days of taking office, I signed a historic executive
+- [24:11.070] order to combat the vile scourge of antisemitism, as you know.
+- [24:15.840] It's the strongest executive order of its kind ever signed.
+- [24:22.060] And we're also mobilizing federal resources
+- [24:25.000] to protect Jewish students and faculty.
+- [24:29.300] Faculty is under siege. The students are under sage.
+- [24:32.500] When you look at Columbia, you look at Harvard,
+- [24:34.490] you look at some of these schools, what's going on.
+- [24:37.820] But the faculty on campuses across America
+- [24:40.350] and are deporting foreign jihadist sympathizers
+- [24:43.910] and terrorist supporters at record levels.
+- [24:46.020] We're deporting them.
+- [24:47.220] We're not putting them in jails, we're deporting them.
+- [24:50.860] I terminated the disastrous Iran-Nuclear deal.
+- [24:55.560] And this summer, we obliterated Iran's nuclear program
+- [24:59.460] like nobody's ever seen.
+- [25:03.860] And even that, CNN fake news, they're back there.
+- [25:06.230] The camera's roaring.
+- [25:08.020] Their light will go off in any second now.
+- [25:10.870] They hate when I mention their name
+- [25:12.130] because they know it's only bad because they're crooked as hell.
+- [25:16.280] They're fake news. You know the term?
+- [25:17.870] I think it's one of my better terms, Sid, right?
+- [25:20.140] I, I don't think anybody takes it away.
+- [25:22.160] We have some good ones, Pocahontas,
+- [25:24.870] but I think, I think fake news is probably pretty good.
+- [25:27.790] The only problem is it's actually not strong enough.
+- [25:30.010] You know, fake, it's crooked, corrupt, disgusting news,
+- [25:34.750] but we'll have to do with fake, but fake -- --
+- [25:37.800] Sid, fake isn't strong enough.
+- [25:39.090] That's the only problem.
+- [25:40.310] It's actually, I wish I could come up with a word
+- [25:42.270] that's really more powerful than fake,
+- [25:44.790] but fake is good enough. But CNN with the attack on Iran,
+- [25:51.710] they said, well, I used the word we obliterated them.
+- [25:54.520] You know, why? Because the pilots told me
+- [25:56.250] they know better than anybody and the pilots told everything
+- [25:59.710] and then we had visuals and these pilots are coming back
+- [26:03.230] after having endured the most dangerous ride.
+- [26:05.360] I said, "Did you guys --"
+- [26:06.570] You know, I had them all to the Oval Office after,
+- [26:09.840] two weeks after the attack, I had them all.
+- [26:11.940] I had the pilots and I had people
+- [26:13.490] that maintained the planes.
+- [26:14.740] I had the people that fly the tankers.
+- [26:16.900] You know, we had 52 tankers
+- [26:19.260] because we had the seven major planes.
+- [26:21.390] We also had four planes flying in different,
+- [26:23.870] of the B-2 flying in different directions.
+- [26:26.700] Iran didn't know what the hell was happening,
+- [26:29.070] but we had a whole force of F-22's
+- [26:31.710] most beautiful fighter jet ever made,
+- [26:33.440] most powerful fighter jet ever made.
+- [26:35.010] And F-35 is a brand new one. And they're stealth, believe me,
+- [26:39.840] they're stealth because they went into Iranian airspace
+- [26:43.480] and Iran never saw anything.
+- [26:45.180] And it was, think of this 2:00 in the morning,
+- [26:47.700] it was dark at night.
+- [26:49.020] There was no moon at all, no light, no nothing.
+- [26:51.590] And every single bomb went right down those air
+- [26:54.530] shafts into Granite Mountains, right down those air shafts.
+- [26:58.130] At 2:00 in the morning with no vision,
+- [27:00.350] every single bomb hit its target.
+- [27:02.320] And CNN said, on the way back, they were on the way.
+- [27:05.040] They hadn't even landed yet.
+- [27:06.550] "Well, maybe the attack wasn't that bad."
+- [27:09.420] Because I used the word obliteration.
+- [27:11.260] I turned out to be right. The Atomic Energy Commission
+- [27:14.380] shortly thereafter said it was total obliteration.
+- [27:17.010] Iran actually said it was total obliteration.
+- [27:20.030] In fact, they said, touchdown, yeah.
+- [27:22.260] It was a touchdown. But they, it was amazing.
+- [27:26.620] And we've never had an apology from CNN, you know?
+- [27:29.790] So you have fake news against you, fake news.
+- [27:33.110] And I didn't fight for you. I wasn't fighting for you there.
+- [27:35.220] I was fighting for those pilots that was so brave to go there.
+- [27:37.750] When they came into the Oval Office,
+- [27:39.200] they said, "You can't seriously enjoy this."
+- [27:43.280] They said, "Sir, we enjoy every minute of it.
+- [27:45.970] So we were practicing this, this and the predecessors.
+- [27:49.180] We were practicing for 22 years," they said.
+- [27:52.450] For 22 years, they were practicing.
+- [27:54.990] And no president had the courage to let them go and do their,
+- [27:58.750] they wanted to do it for 22 years.
+- [28:01.150] And the predecessors, I mean the young pilots at the time.
+- [28:04.500] But for 22 years, three times a year,
+- [28:06.720] they were practicing that run. And I'm the one that said,
+- [28:11.340] "Let's go get them. Let's do it."
+- [28:12.790] And if we didn't -- And they thanked me.
+- [28:17.040] But I did say to the pilots, you know, enough is enough.
+- [28:19.930] I said, "Do you really like being in that plane
+- [28:21.880] when they're waiting for you?
+- [28:23.120] They know you're coming. It's dark. It's cold.
+- [28:26.530] It's everything is, and you're in a plane
+- [28:29.950] and there are bullets flying all over the place."
+- [28:31.810] "Sir, I wouldn't trade this for anything in the world."
+- [28:34.940] Can you believe these people? And I love you people,
+- [28:39.270] but I'm not getting in that plane.
+- [28:41.970] I love you guys, but these people are unbelievable.
+- [28:45.130] The talent they have, the way they can fly those things,
+- [28:47.820] the way they can aim it at a target in the dark of night,
+- [28:52.110] the darkest you've ever seen,
+- [28:53.490] they want it to be as dark as possible.
+- [28:55.570] They didn't want anything.
+- [28:57.560] And the only time anybody could see those planes
+- [28:59.930] was when those bomb shoots open up
+- [29:01.840] because it becomes totally unstealth when it goes --
+- [29:04.350] I explained that to Mark Levin once.
+- [29:07.560] You're going in, you go like this,
+- [29:10.470] and as soon as it goes like this,
+- [29:12.740] for some reason, the plane is totally visible, not good.
+- [29:16.760] And I watched it happening
+- [29:18.070] and just, it's like I'm sitting home watching it.
+- [29:20.160] You know, it's amazing.
+- [29:21.430] The situation rumor is an amazing place.
+- [29:24.270] But I watched him go, "Bing, bing."
+- [29:27.460] It went, "Bing, bing."
+- [29:28.730] And two massive 100,000 pound bombs come pouring out.
+- [29:33.450] And the job they did was incredible.
+- [29:35.630] I mean, compare that to,
+- [29:37.320] I mean, I, look, I thought he was a nice man,
+- [29:39.180] but compare that to the Jimmy Carter attack on,
+- [29:42.760] that was not good with the helicopters
+- [29:44.680] and the men running all over the place
+- [29:46.200] trying to get the hell out of there.
+- [29:47.630] This was not good.
+- [29:49.010] This was the single greatest military attack
+- [29:52.020] that anyone's ever seen.
+- [29:56.450] And that sort of put an end to, we helped Israel very much,
+- [29:59.960] as you know, with their attacks on Iran before that,
+- [30:02.690] but that really put an end to it because they were about a month
+- [30:05.660] away from having a nuclear weapon.
+- [30:07.910] I officially recognized the true capital of Israel
+- [30:13.710] and opened the American embassy in Jerusalem.
+- [30:18.800] Is Julie good? She right or is, where's Julie?
+- [30:21.930] Oh, oh, good. I thought it was you that went down.
+- [30:24.580] Did you? It wasn't you? Oh, good.
+- [30:26.110] I was worried about, I didn't care about anybody else.
+- [30:28.800] I said, "Is Julie in trouble?" I thought it was you.
+- [30:30.900] Good. It's somebody else. I, I wish them good luck,
+- [30:33.710] but I don't want that to happen to Julie.
+- [30:35.410] That's Mark's wife, by the way. Yeah, we love Julie,
+- [30:39.400] but I didn't see Julie ever going down.
+- [30:40.910] She's not, she's like a rock, right?
+- [30:44.190] Mark, she's a rock.
+- [30:45.740] I wouldn't want to have her as my enemy.
+- [30:47.210] She was also a great lawyer, by the way.
+- [30:50.570] I also recognized the Israeli
+- [30:52.480] sovereignty over the Golan Heights, right?
+- [30:57.040] And that's one they didn't even ask me.
+- [30:59.150] Even Sheldon, who was the most aggressive human being there
+- [31:04.350] is in the entire world, this incredible woman,
+- [31:08.000] although she's, she had total control.
+- [31:09.960] He was aggressive with everybody,
+- [31:11.470] but Miriam, Miriam, he would play games with me.
+- [31:15.710] But he was actually a sweetheart,
+- [31:17.710] but he never even asked me about the Golan Heights
+- [31:20.530] because he said that's a step too far.
+- [31:22.860] I actually gave it because I called up,
+- [31:25.420] I heard so much about Golan Heights,
+- [31:26.980] Golan Heights from Jason Greenblatt,
+- [31:29.560] I heard it, from so many people.
+- [31:31.750] And I actually asked David Friedman,
+- [31:33.380] I said he was the ambassador at time, good guy, he said,
+- [31:35.930] and by the way, Mike Huckabee is doing a great job now.
+- [31:38.480] Thank you. Two good ones, two very good ones.
+- [31:42.700] But I asked David Friedman. I don't know if David's here,
+- [31:45.450] but I, I asked him because he is so Israel oriented, oriented.
+- [31:50.820] I mean, he's great.
+- [31:52.250] I said, "David, tell me about Golan Heights
+- [31:53.880] in five minutes or less."
+- [31:55.540] You know, I'm taking in like a thousand years of history
+- [31:58.440] in five minutes. I said, "Give it to me.
+- [32:01.170] Give it to me in five minutes or less."
+- [32:03.600] And after about two minutes, I said, "I understand.
+- [32:06.500] You need it so badly for so many other reasons.
+- [32:08.910] You need it, you need it for defense."
+- [32:10.790] You know, in the old days,
+- [32:12.010] before we had all the sophisticated radar
+- [32:14.380] and all the things, it was everything
+- [32:16.320] because you were up high.
+- [32:17.990] But I learned enough and I signed the Golan Heights,
+- [32:21.530] the rights to the Golan Heights over to Israel.
+- [32:23.760] Nobody thought that was possible to get.
+- [32:25.900] They'd been working on it for 70 years, Mark.
+- [32:29.260] 70 years.
+- [32:31.010] You know, planes would fly into places
+- [32:33.270] that have meetings that would last two, three days.
+- [32:35.530] All they talked about was the Golan Heights.
+- [32:37.550] Right, Jason? And nobody ever did anything,
+- [32:41.150] but I did it, and we did it quickly.
+- [32:42.920] And I say, "Good luck to you."
+- [32:45.750] Then I found out the value of it, trillions of dollars.
+- [32:48.520] It could be worth tw- -- uh, if you think,
+- [32:50.700] trillions of dollars, I said,
+- [32:52.240] "You know, maybe I should have asked him for something."
+- [32:55.880] But with Jared Kushner's help,
+- [32:57.610] Jared has been a great fan of Israel, the Kushner family.
+- [33:01.910] And by the way, how good is Steve Witkoff doing, right?
+- [33:06.810] You know, I got Steve involved in Russia, Ukraine,
+- [33:09.270] and the Middle East.
+- [33:10.490] We have, by the way, we have, bottom line,
+- [33:12.770] we have legitimate peace in the Middle East.
+- [33:15.710] You know, you may have a little outbreak every once in,
+- [33:17.890] but we have 59 countries all signed on.
+- [33:21.550] They want to, they'll do whatever is necessary.
+- [33:24.760] And Hamas, what, say what you want.
+- [33:27.700] Hamas, you know, we got back all of the hostages
+- [33:31.180] and all of the dead, young, beautiful people that were dead.
+- [33:37.390] And nobody thought that would happen.
+- [33:39.140] In fact, I even said,
+- [33:40.940] "The toughest are going to be that final 20.
+- [33:43.780] We're never going to get them."
+- [33:45.090] But we played very tough and we were very tough.
+- [33:47.300] We meant it.
+- [33:48.540] And we wanted to get back the 28 dead,
+- [33:51.710] 28 dead, young, beautiful people, dead.
+- [33:56.330] Most of them, I think pretty young,
+- [33:59.210] all of them pretty young.
+- [34:01.150] And the parents came up to me, and I told the story before,
+- [34:04.340] we had another little celebration of Hanukkah before,
+- [34:07.730] but I told the story before where the parents
+- [34:09.680] were as dedicated to getting their dead son back
+- [34:14.040] as they were to getting their live son back.
+- [34:16.410] It was an amazing and a beautiful thing,
+- [34:19.530] but I didn't think it would be possible.
+- [34:21.010] And then when we got the 20 back,
+- [34:23.780] when we got the live back,
+- [34:26.090] um, we didn't have anywhere close to the 28 dead.
+- [34:31.360] And I said, "There's no way," but I said,
+- [34:33.720] "You got to get them back. You got to get them back."
+- [34:36.950] I told that to Hamas, "Got to get them back."
+- [34:39.970] And you know what?
+- [34:41.240] One by one by one, we got them back
+- [34:43.760] and we got the last one back. We got them all back.
+- [34:48.220] And amazing though, those parents were as dedicated,
+- [34:52.440] I can't say more, but they were as dedicated
+- [34:55.890] as the parents who knew their son was alive
+- [34:58.510] and they begged to have him. And I'm very proud of it.
+- [35:01.520] I thought the last 20, and it was tough.
+- [35:03.540] Yeah, I didn't know. But Steve Witkoff was great.
+- [35:05.890] Jared Kushner was great.
+- [35:07.750] And, you know, Jared's a brilliant guy, we all know.
+- [35:10.000] But Steve, Steve's a great deal maker.
+- [35:12.630] But I noticed one thing about him,
+- [35:14.640] he had the greatest personality.
+- [35:16.380] He was a real estate guy in New York.
+- [35:18.270] He knew less about rivers and meets and bounds in Russia
+- [35:21.990] and the various places he's working on.
+- [35:24.440] He knew nothing about it.
+- [35:26.120] But I, I recognized, for 20 years,
+- [35:29.190] I've been dealing with everybody in New York.
+- [35:31.640] I said, "Steve has the best personality."
+- [35:34.100] I have other guys, they're great deal makers,
+- [35:35.650] but you have to go into World War Three before the deal.
+- [35:37.780] We didn't want that. I said, "Everybody loves Steve.
+- [35:40.700] He's a great deal maker, but everybody loves him."
+- [35:43.180] And that's what turned out to be.
+- [35:44.710] People love Steve.
+- [35:45.920] And I think we're going to be pretty close.
+- [35:48.890] I mean, we're going to see.
+- [35:50.260] I thought the easiest war to settle would be Russia-Ukraine,
+- [35:54.350] because I have a good relationship with Putin.
+- [35:56.160] It would've never happened if I were President.
+- [35:59.030] That would've never, and it didn't happen for four years.
+- [36:02.030] Putin understood. Would have never, ever happened.
+- [36:04.940] But Steve has done a fantastic job,
+- [36:07.050] and he loves Israel, and he's done a great job.
+- [36:10.050] So we did Israel, and we did peace in the Middle East.
+- [36:13.330] And we have a real peace. That's a real peace.
+- [36:15.500] If Hamas acts up, they know it's big trouble.
+- [36:19.750] And we have Hezbollah, as you know, in Lebanon,
+- [36:24.070] and they're big trouble, but we have peace.
+- [36:26.740] And we have many countries that want to go in and take out
+- [36:29.820] Hezbollah if it happens, if we want to do it.
+- [36:32.920] Not just Israel, many countries would do it.
+- [36:35.760] There's tremendous unity now in the Middle East,
+- [36:38.060] and we really do.
+- [36:39.390] We really have peace in the Middle East
+- [36:40.780] for the first time ever.
+- [36:42.070] So it's an honor. It's an honor.
+- [36:47.080] So we did our ceasefire agreement
+- [36:49.070] to end the war in Gaza,
+- [36:50.600] which everybody said was an impossibility,
+- [36:52.680] and we begin the new era of that beautiful peace
+- [36:55.670] in a place that nobody thought peace was possible,
+- [36:57.970] the Middle East.
+- [36:59.200] So congratulations to everybody in this room.
+- [37:01.270] Everybody wanted it.
+- [37:02.960] But the story of Hanukkah reminds us
+- [37:04.730] that light will always prevail over darkness and faith
+- [37:08.080] and triumph over fear.
+- [37:10.400] Together, let us honor the eternal flame
+- [37:12.750] and the faith that has always protected the Jewish people.
+- [37:16.600] You are protected. You are special, special people.
+- [37:20.730] You are special people.
+- [37:23.360] (Inaudible). So I want to thank everybody.
+- [37:25.190] I want to wish you all a happy, Hanukkah.
+- [37:26.900] And you know, this is the first time
+- [37:29.760] that I've ever brought up notes to make a speech for.
+- [37:33.100] We do, we call them the Christmas dinners.
+- [37:35.490] I call them the Christmas Hanukkah dinners,
+- [37:37.430] if that's okay. I hope you don't mind.
+- [37:39.670] But I call them New Year's dinners too.
+- [37:42.210] But I've made about 20 of them so far.
+- [37:43.780] I never had any interest. I brought this up.
+- [37:45.380] You know why? I've done so much for Israel --
+- [37:49.590] That I have to read, look at it, I got, like, pages.
+- [37:53.640] And I don't want to leave anything out.
+- [37:55.250] I don't want to leave Golan Heights out.
+- [37:56.960] I want to tell you what we did.
+- [37:59.200] But it's an honor to it's an honor to help.
+- [38:02.380] You have so many friends and you're,
+- [38:03.960] a lot of you are right in this audience,
+- [38:05.390] very special group of people.
+- [38:07.060] You know, for every time we have one of these parties,
+- [38:10.110] we have to turn down 10 people for everyone that makes it.
+- [38:12.680] It's the White House.
+- [38:13.900] Soon, you'll have a ballroom that's so big I can handle.
+- [38:16.240] Are you, and we just won the case today.
+- [38:19.890] Did you know that?
+- [38:21.140] Mark, we just won the case. We get sued.
+- [38:24.540] We're donating a $400 million ballroom
+- [38:27.680] and we got sued not to build it.
+- [38:29.730] For 150 years, they've wanted a ballroom.
+- [38:32.900] And we're giving them, myself and donors,
+- [38:34.940] are giving them free of charge for that thing.
+- [38:38.200] We're donating a building that's approximately 400 millions.
+- [38:43.080] I think I'll do it for less. But it's 400.
+- [38:45.980] I should do it for less. I will do it for less.
+- [38:48.850] But just in case I say 400, otherwise, if I go $3 over,
+- [38:52.120] the press will say, "It costs more."
+- [38:54.490] I built, I built under budget and ahead of schedule.
+- [38:56.550] Right, Jason?
+- [38:57.850] Always. I know how to build under budget.
+- [39:00.260] I build good, but we won the case.
+- [39:02.790] They asked for a restraining order
+- [39:04.440] to stop us from building a magnificent ballroom.
+- [39:07.670] I said, "Who would ask for a restraint?"
+- [39:09.740] We're giving them, Sid, a 400 million,
+- [39:12.380] it'll be the most beautiful ballroom
+- [39:14.690] and it'll handle inaugurations.
+- [39:17.340] It's got five-inch thick glass windows.
+- [39:20.640] It, impenetrable by anything but a howitzer.
+- [39:24.350] It's impenetrable.
+- [39:25.580] Now, I will say, if I'm up making a speech someday, Mark,
+- [39:28.040] and I hear ding, ding, ding, I'm out of there.
+- [39:31.550] But we have, we have a, it's going to be one of the greatest,
+- [39:34.670] I think it'll be the greatest ballroom anywhere in the world.
+- [39:36.680] But I said, "Who else but in our country would sue
+- [39:39.480] to stop a 400 million dollar beautiful ballroom
+- [39:42.250] that people have been after for the White House?"
+- [39:44.840] The White House has wanted a ballroom for 150 years.
+- [39:48.800] You know, they used to use a tent, and they have a tent.
+- [39:53.230] And the tent would go in a very low area
+- [39:54.960] because it's the only area that could handle a big tent.
+- [39:57.450] And if it rained, the rain would go over the woman's
+- [40:00.660] beautiful shoes with the high heels,
+- [40:02.400] about six, seven inches worth of water.
+- [40:04.650] They'd be sitting in the water and people said,
+- [40:07.070] "We'd rather have that than a brand new."
+- [40:08.760] This ballroom is going to be amazing.
+- [40:10.180] Also designed to handle the inauguration,
+- [40:12.940] so that you have total safety from not only the weather.
+- [40:16.080] January 20th is always a disaster
+- [40:18.230] from the coldest standpoint.
+- [40:20.090] But, you know, we had it in the Capitol
+- [40:22.270] and it was nothing more beautiful.
+- [40:24.120] But from a safety standpoint, we can do better.
+- [40:27.010] So we're going to have something
+- [40:28.350] that's really really spectacular.
+- [40:30.740] And I thank the judge on the case for the courage
+- [40:33.840] in making the proper decision,
+- [40:36.630] because we didn't want to be held up.
+- [40:38.520] We would win that automatically anyway.
+- [40:40.330] But we didn't want to be held up and delayed.
+- [40:42.370] We want to go.
+- [40:43.620] And right outside, you see the pile drivers going,
+- [40:46.270] "Boom, boom, boom."
+- [40:48.590] And my wife is dr- -- being driven crazy.
+- [40:52.210] She said, "This is not what I had in mind."
+- [40:54.110] You know, the first day she was great.
+- [40:56.340] She heard these pound, piles that go down
+- [40:58.490] 150 feet into the ground, bomb.
+- [41:01.640] Second day, she was okay. Third day, she wasn't thrilled.
+- [41:05.410] And after that, it's been brutal.
+- [41:07.500] But you know what?
+- [41:08.730] You're going to have the greatest ballroom
+- [41:10.120] anywhere in the world, and you're going to love it.
+- [41:11.600] It's going to fit beautifully with the White House.
+- [41:13.870] Happy Hanukkah, have a great year.
+- [41:15.990] We love you, and we love Israel.
+- [41:17.680] Thank you very much. Thank you. Thank you, Mark. Thank you.
+- [41:28.470] (inaudible)
+- [41:48.090] (inaudible)
+- [42:01.090] (background chatter)
+- [42:51.830] Male Speaker: Good evening, we're about to proceed
+- [42:55.040] to light the menorah.
+- [42:57.430] Mr. President, you know that I'm Jewish,
+- [42:59.770] you know I'm American, you heard?
+- [43:02.170] You know that that I am American,
+- [43:03.600] but you may not know that a very large part
+- [43:05.510] of my family lives in Australia. And that includes some of those
+- [43:11.190] who had escaped the attack and some who didn't.
+- [43:16.600] And all I can say is listening to them
+- [43:19.500] on the other side of the world speak about you.
+- [43:23.520] You don't just express solidarity,
+- [43:27.150] you practice solidarity with the Jewish people.
+- [43:30.870] (applause)
+- [43:36.450] And you practice solidarity with Israel,
+- [43:39.830] perhaps in a way we've never seen before,
+- [43:43.440] to the extent that many people say
+- [43:47.000] and many people believe that you may very well be,
+- [43:51.680] even among the friends of Israel and the Jewish people we've had,
+- [43:55.510] the most, the strongest,
+- [43:58.360] the deepest friend that Israel and the Jews
+- [44:00.710] people have ever had here in the White House.
+- [44:03.000] (applause)
+- [44:08.000] That's not to negate anything anyone has done for us,
+- [44:11.100] but just to tell you how so many people feel about you.
+- [44:14.750] We're going to light the menorah,
+- [44:16.790] which gives us a message of the victory of right over might.
+- [44:24.590] Of justice over tyranny. Of light over darkness.
+- [44:32.480] And it is especially in this time
+- [44:35.200] when the Jewish people has so much of a burden
+- [44:40.900] that we need this light,
+- [44:43.190] we need the strength not only from each other
+- [44:48.220] but from you, Mr. President, who constantly remind the world
+- [44:53.720] that even if they all turn against us,
+- [44:56.300] God forbid, you never will.
+- [45:00.200] (applause)
+- [45:06.660] And so I think that it is a great honor
+- [45:10.430] that I've been invited
+- [45:12.300] to lead the lighting of the menorah here this year.
+- [45:17.020] And I want to wish you and your family good health
+- [45:19.110] and happiness, strength and safety to our troops,
+- [45:24.670] serving stateside abroad.
+- [45:27.060] May God bless America. May God blessings Israel.
+- [45:30.670] May God blessed the Jewish people.
+- [45:33.250] Thank you.
+- [45:35.280] (applause)
+- [45:43.810] We're going to make two blessings.
+- [45:50.040] We're going to make two blessings,
+- [45:52.390] after which we are going to light three candles.
+- [45:55.990] And then all those who know the words can join us in
+- [46:01.210] (inaudible).
+- [46:03.590] Please join if you know the words and the tune.
+- [46:08.390] ♪ (singing in Hebrew) ♪
+- [47:20.930] (applause)
+- [47:30.470] ♪ (singing in Hebrew) ♪
+- [48:14.210] Male Speaker: Thank you very much,
+- [48:15.430] wish everyone a happy Chanukah. Thank you.
+- [48:18.450] (applause)
+- [48:24.350] Secretary Lutnick: Hello, everyone.
+- [48:26.340] So I'm Howard Lutnick,
+- [48:28.240] and I am proud to serve as the Secretary of Commerce.
+- [48:35.370] For President Trump.
+- [48:38.030] President Trump, from the campaign trail
+- [48:42.140] and every day since,
+- [48:44.240] has been committed to the Jewish people and to Israel.
+- [48:48.220] And I told everyone on the campaign trial
+- [48:50.710] that President Trump would be the best friend
+- [48:53.120] in the White House the Jews and the Israelis ever had,
+- [48:56.610] and he has delivered exactly that.
+- [48:59.270] Exactly that. He speaks with moral clarity.
+- [49:05.140] When the fake news would come at him
+- [49:07.360] and say Israel and the IDF were committing genocide,
+- [49:10.890] each and every time he came at the media,
+- [49:14.040] at the fake News and said, no, no.
+- [49:16.490] It was October 7th when they murdered,
+- [49:19.180] they raped, and they killed babies.
+- [49:20.820] He made it crystal clear each and every time.
+- [49:25.230] And that is why I love serving in the administration
+- [49:29.840] of Donald J. Trump, the greatest president ever.
+- [49:37.080] Happy Hanukkah, everyone.
+- [49:50.750] ♪ (music playing) ♪

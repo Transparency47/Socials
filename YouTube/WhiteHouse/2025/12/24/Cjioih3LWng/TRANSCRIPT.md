@@ -1,0 +1,373 @@
+<!-- source: https://www.youtube.com/watch?v=Cjioih3LWng -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: Cjioih3LWng -->
+<!-- date_published: 2025-12-24T22:04:32+00:00 -->
+<!-- date_accessed: 2026-06-02T02:39:44.634987+00:00 -->
+
+# Transcript: President Trump Participates in NORAD Santa Calls
+
+- [00:07.760] The President: Hello?
+- [00:11.860] Good, very good. Let's start. We're ready. Let me speak --
+- [00:17.200] and with the First Lady -- speak to the children.
+- [00:41.650] Well, thank you very much, General.
+- [00:43.310] Very good. We have the First Lady here.
+- [00:46.160] And I think she'll be entering calls separately, actually.
+- [00:49.350] She'll be talking to someone. I'll be taking to someone else.
+- [01:04.500] Female Speaker: (inaudible)
+- [01:05.915] Male Speaker: (inaudible)
+- [01:07.430] North America to track Santa.
+- [01:09.830] Before we connect you to each caller,
+- [01:12.290] a member of our team
+- [01:13.560] will briefly share the child's first name, age,
+- [01:16.260] and city and state, where they're calling from,
+- [01:18.860] as well as they'll give you Santa's current location.
+- [01:22.250] Then there's going to be a brief pause
+- [01:23.740] as we connect the child to call,
+- [01:25.470] and then they'll be placed directly on the line with you.
+- [01:28.900] And then you'll hear our team let the child know
+- [01:30.490] that they're connected with you, the President.
+- [01:32.420] The President: That sounds great, General.
+- [01:35.130] Male Speaker: Okay, the call is ready for you if you are.
+- [01:37.660] The President: Thank you very much. Go ahead.
+- [01:43.540] Female Speaker: Mr. President,
+- [01:45.740] I now have a chance to introduce to you both Anastasia,
+- [01:48.940] who is 4 years old, and Jasper, who's 10 years old.
+- [01:52.010] They live in Sapulpa, Oklahoma, and Santa
+- [01:55.980] is currently headed for Prague, Czech Republic.
+- [02:00.030] The President: Oh, very good. That's very exciting.
+- [02:02.160] Good. Let me have them.
+- [02:05.360] Female Speaker: Hello?
+- [02:06.730] The President: Hello. Hi.
+- [02:09.140] How are you? This is the President.
+- [02:10.930] Female Speaker: Hello, you are --
+- [02:14.650] oh my goodness, Jasper!
+- [02:16.120] Amy. Hold on one second. Hello friends! The President!
+- [02:21.030] The President: How are you? Hello, everybody. Hi.
+- [02:27.560] I love Oklahoma, by the way. Thank you.
+- [02:30.330] Merry Christmas to you. Hi. Merry Christmas.
+- [02:34.930] Female Speaker: (inaudible)
+- [02:36.590] Female Speaker: Thank you very much.
+- [02:39.350] Happy Christmas and Happy New Year to you.
+- [02:45.030] Do you have a question to ask?
+- [02:46.870] Female Speaker: Do you have a question?
+- [02:50.610] What's your question?
+- [02:58.750] The President: Go ahead, you can take your time.
+- [03:06.100] Child Speaker: Santa has a tracker on him.
+- [03:12.190] Female Speaker: She says Santa has a tracker on him.
+- [03:16.760] The President: Well, we track Santa all over the world.
+- [03:18.710] We want to make sure that Santa is being good.
+- [03:22.140] Santa is a very good person.
+- [03:23.990] We want make sure he's not infiltrated,
+- [03:27.640] that we're not infiltrating into a country of bad Santa.
+- [03:31.240] So we found out that Santa's good.
+- [03:34.000] Santa loves you. Santa loves Oklahoma like I do.
+- [03:37.570] You know, Oklahoma was very good to me in the election,
+- [03:40.520] so I love Oklahoma. Don't ever leave Oklahoma, okay?
+- [03:46.560] Child Speaker: Okay, I'll try.
+- [03:48.340] The President: Good, that's good.
+- [03:50.630] Female Speaker: You've got a question?
+- [03:51.900] The President: Go ahead.
+- [03:53.460] Female Speaker: Do you want to ask when Santa's
+- [03:57.400] going to be here? Okay, ready?
+- [03:59.560] Child Speaker: Yeah.
+- [04:00.810] Female Speaker: Say when is Santa's going to be here.
+- [04:03.430] Child Speaker: When is Santa going to be here?
+- [04:05.870] The President: Well, Sandra's going to stop over tonight,
+- [04:08.800] leave you a lot of beautiful presents,
+- [04:11.440] like really beautiful presents.
+- [04:13.480] What do you want more than anything else?
+- [04:15.320] What present would you like?
+- [04:21.220] Child Speaker: A dollhouse.
+- [04:23.890] The President: Wow, a dollhouse. I think we can work that out.
+- [04:27.810] I have a feeling, Mommy, that we can work that out, right?
+- [04:31.680] I think Santa's going to bring you
+- [04:32.970] the most beautiful dollhouse you've ever seen, okay?
+- [04:37.620] Let me know how good the dollhouse is,
+- [04:39.260] but we owe a lot to Santa,
+- [04:41.260] so I think Santa will fulfill your wish, okay.
+- [04:47.950] Thank you, honey. Take care of yourself.
+- [04:50.210] Merry Christmas. Say hello to Oklahoma.
+- [04:52.930] We love Oklahoma. Okay. Thank you.
+- [04:56.480] Female Speaker: Alright, Merry Christmas, thank you.
+- [04:57.980] The President: Thank you, darling.
+- [04:59.220] Thank you very much. Okay, next.
+- [05:06.660] I figure you should hear some of this,
+- [05:08.300] otherwise you're not going to know what's going on.
+- [05:12.040] She's very good at not listening to this.
+- [05:15.500] She's very focused. First Lady is very focused
+- [05:20.970] Okay, you can go ahead. Next one. General.
+- [05:27.000] Male Speaker: Yes, Mr. President,
+- [05:28.220] we're about to drop the next one into your line.
+- [05:38.830] The President: Do you like this better, hearing it?
+- [05:40.550] It's better for the kids.
+- [05:45.310] And she's able to focus totally without listening to this.
+- [05:48.250] At least this way, you know what's happening.
+- [05:50.770] Male Speaker: (inaudible)
+- [05:55.960] The President: Okay, go ahead.
+- [06:00.860] Male Speaker: Mr. President, we are passing you to Anna.
+- [06:03.970] She's eight years old, and she's from Salisbury, North Carolina.
+- [06:07.510] The President: Good. Hi, how are you?
+- [06:10.690] Merry Christmas. Hi, how are you doing, okay?
+- [06:19.370] Child Speaker: Yes.
+- [06:20.640] The President: That's good.
+- [06:21.850] Child Speaker: How are you?
+- [06:23.050] The President: I'm fine. You sound so beautiful and cute.
+- [06:26.560] How old are you?
+- [06:29.040] Child Speaker: I'm eight.
+- [06:30.320] The President: Wow, so smart, you sound so smart.
+- [06:33.430] So do you have a question for Santa
+- [06:35.300] or do you want to know anything about Santa?
+- [06:38.060] Child Speaker: So, I do have another question.
+- [06:40.870] The President: Go ahead.
+- [06:44.850] Child Speaker: I don't know, so will Santa ever get mad
+- [06:49.890] if we don't leave him out any cookies?
+- [06:59.190] The President: It's getting good.
+- [07:00.880] Now go ahead, say it again honey. Go ahead.
+- [07:05.480] The President: Will Santa ever get mad?
+- [07:07.620] Child Speaker: Will Santa ever get mad
+- [07:09.920] if we don't leave him out any cookies?
+- [07:12.240] The President: I think he won't get mad,
+- [07:14.430] but I think he'll be very disappointed.
+- [07:17.200] You know, Santa's,
+- [07:18.920] he tends to be a little bit on the cherubic side.
+- [07:22.750] You know what cherubic means? A little on the heavy side.
+- [07:26.070] I think Santa would like some cookies.
+- [07:28.000] You'd like to leave some cookies for Santa, right?
+- [07:31.320] Child Speaker: Yeah.
+- [07:32.520] The President: But you're not going to forget,
+- [07:33.780] you'll leave some.
+- [07:34.990] I would leave them, I think Santa has a serious appetite.
+- [07:39.400] Child Speaker: Yeah.
+- [07:40.630] The President: Right? And it's so good to talk to you.
+- [07:45.300] Are you looking for something specific from Santa?
+- [07:48.880] What would you like to have as a present?
+- [07:54.150] Child Speaker: I (inaudible) anything.
+- [07:57.620] The President: That's nice.
+- [07:58.900] Well, you just take care of yourself.
+- [08:00.450] North Carolina is a great place That's a great place.
+- [08:04.290] Yeah, and you have great you're surrounded
+- [08:06.250] by great people and great parents
+- [08:07.880] and say hello to them, okay.
+- [08:10.260] Child Speaker: Okay.
+- [08:12.200] The President: Thank you, honey. Take care of yourself.
+- [08:14.930] Say a lot of Santa if you should see him.
+- [08:16.930] Goodbye. Bye.
+- [08:19.460] Child Speaker: Goodbye.
+- [08:22.660] The President: Thank you, General. Go ahead.
+- [08:38.380] General, go ahead
+- [08:41.450] Male Speaker: Yes, Mr, President,
+- [08:43.400] your operator will be dropping another child
+- [08:46.040] on your line here in just a second.
+- [08:47.570] The President: Okay. Nice setup, right?
+- [08:54.940] This way you can hear what's going on.
+- [09:01.730] One side of the calls are never good.
+- [09:05.430] But they're much less dangerous.
+- [09:08.220] Male Speaker: (inaudible) from Kansas.
+- [09:11.080] The President: Good.
+- [09:12.350] Male Speaker: (inaudible) currently in the States.
+- [09:14.800] The President: Okay. Santa's in Sweden.
+- [09:17.310] Child Speaker: Hello?
+- [09:18.640] Male Speaker: You are now connected with the President
+- [09:20.510] of the United States.
+- [09:21.990] The President: Hi, how are you?
+- [09:24.480] Child Speaker: Where's Santat -- I want to tell Santa
+- [09:27.550] (inaudible).
+- [09:28.790] The President: Okay, well Santa's now in Sweden.
+- [09:31.730] So Santa's got quite a trip to get to your great area,
+- [09:36.920] your great part of the world,
+- [09:38.370] because you live in a terrific place.
+- [09:41.350] But I would say Santa will make it in record time,
+- [09:44.420] probably in about five hours.
+- [09:48.470] Five hours from now, Santa will be coming down your chimney
+- [09:53.110] and have a beautiful present for you.
+- [09:55.280] What would you like Santa to bring?
+- [10:00.490] Child Speaker: Uh, not coal.
+- [10:03.190] The President: Not coal, though, you don't want coal.
+- [10:04.810] Well, coal is -- you mean clean, beautiful coal.
+- [10:08.060] I had to do that, I'm sorry. No, coal is clean and beautiful.
+- [10:13.580] Please remember that at all costs.
+- [10:16.960] But you don't want clean, beautiful coal, right?
+- [10:21.840] What would you like?
+- [10:26.250] Child Speaker: Barbies, American Girl Dolls.
+- [10:29.300] The President: Barbie, okay?
+- [10:30.660] Well, you'll get that, I'm sure. What else, anything else?
+- [10:38.230] Child Speaker: Clothes.
+- [10:39.640] The President: Clothes, good. That's good.
+- [10:42.250] Child Speaker: And candy.
+- [10:43.520] The President: Candy? Well, candy is good.
+- [10:45.920] Candy is good. Do you eat candy? Do you much candy?
+- [10:51.090] Child Speaker: Not much.
+- [10:52.370] The President: Yeah, you just, you eat as much as you want.
+- [10:56.010] Be healthy, okay?
+- [10:57.600] But Santa's going to be there in about five hours,
+- [11:00.310] leaving Sweden right now.
+- [11:03.140] He's taking care of Sweden, leaving right now, okay.
+- [11:08.440] And he's going to have beautiful presents
+- [11:09.950] and say hello to your mom and dad, okay, honey?
+- [11:15.070] Bye. Bye.
+- [11:17.190] Female Speaker: Merry Christmas.
+- [11:18.410] The President: Thank you very much.
+- [11:19.650] Thank you, Mom. Thank you. Take care of yourself.
+- [11:23.220] Sounds like you have a beautiful daughter.
+- [11:26.860] Thank you. thank you very much. Bye.
+- [11:30.620] (inaudible)
+- [11:37.440] America. Okay, I'm ready, General.
+- [11:44.630] See, she just keeps storming through.
+- [12:04.910] Male Speaker: Mr. President, (inaudible).
+- [12:06.860] The President: Okay. Thank you.
+- [12:15.750] Male Speaker: Sorry.
+- [12:17.200] It takes a second to get them from line to line.
+- [12:19.410] The President: Okay. That's okay. No problem.
+- [12:34.580] No ceiling height problem. Plenty of room for you.
+- [12:38.370] Female Speaker: We're going to continue
+- [12:41.680] (inaudible)
+- [12:46.930] he is five-year-old
+- [12:58.210] (inaudible) from Pennsylvania.
+- [13:07.010] And Santa is currently in Copenhagen, Denmark.
+- [13:10.230] The President: Whoa, that's pretty good.
+- [13:13.520] Hi, how are you?
+- [13:15.210] Child Speaker: Thanks, Mom.
+- [13:17.510] Female Speaker: This is Krill.
+- [13:18.930] The President: Hi, Krill!
+- [13:20.170] Child Speaker: (inaudible) Pennsylvania.
+- [13:22.220] The President: Right, I know.
+- [13:23.660] Pennsylvania is great. We won Pennsylvania.
+- [13:27.690] Actually, three times, but we won Pennsylvania.
+- [13:32.450] We won it in a landslide, so I love Pennsylvania.
+- [13:40.630] So, Santa right now is in Copenhagen, Denmark.
+- [13:44.920] Denmark and he's -- but he's heading toward our country.
+- [13:51.590] What would you like from Santa?
+- [13:55.470] Child Speaker: A 3D pen, and I want a
+- [13:59.880] (inaudible), and I want (inaudible) and a robot.
+- [14:03.460] The President: Well, you'll get all of it.
+- [14:05.710] Mom, I think he's going to get all of it,
+- [14:07.450] don't you think, from Santa?
+- [14:08.980] Female Speaker: I think so. He was really good.
+- [14:13.100] The President: Well, it sounds like he's got
+- [14:15.890] a good mom too, right?
+- [14:19.210] Child Speaker: Yes. Say we love President Trump, right?
+- [14:21.700] The President: Ah, that's so nice.
+- [14:22.980] Child Speaker: Yeah, and I voted.
+- [14:25.250] The President: Oh, wow.
+- [14:26.960] I'll bet your mom voted properly.
+- [14:30.470] Well, we love that wonderful place you come from.
+- [14:34.620] You know, we have very good feelings about it.
+- [14:37.820] We did so well there, so I appreciate it, Mom.
+- [14:40.330] Okay? Pennsylvania is a great place.
+- [14:44.050] Really great place, so, I want to thank you.
+- [14:46.390] And good luck.
+- [14:47.770] And I hope you get everything you want,
+- [14:49.790] but I think Santa will come through.
+- [14:52.010] He's heading here from Denmark.
+- [14:54.230] And you should be here in about five hours,
+- [14:56.230] but you'll be sleeping, right?
+- [15:01.290] When you sleep, when you wake up in the morning,
+- [15:03.640] you're going to be the happiest young man.
+- [15:09.540] Child Speaker: Yeah. I'm excited.
+- [15:11.400] The President: You're excited?
+- [15:12.740] Well, I'm excited, too, because the country is doing well.
+- [15:16.660] And, Mom, thank you very much. Okay? Thank you, Mom.
+- [15:20.770] Female Speaker: You're welcome.
+- [15:22.070] Merry Christmas, President Trump.
+- [15:23.580] The President: And you, too. You, too, and your whole family.
+- [15:25.770] Thank you, darling. Take care of yourself. Bye.
+- [15:28.620] Female Speaker: Thank you, take care, bye-bye.
+- [15:30.670] The President: Thank you.
+- [15:33.830] Nice, right? You could do this all day long.
+- [15:38.050] We have to get back to China, Russia, Ukraine.
+- [15:43.470] We have get back other things, but you can do this day long.
+- [15:47.880] Okay, General, we're ready.
+- [15:51.120] Male Speaker: Yes, Mr. President.
+- [15:52.350] We'll work another one through.
+- [16:00.590] The President: 4.3 GDP yesterday.
+- [16:04.750] That was two points more than they thought.
+- [16:06.690] People were shocked. The tariffs did it.
+- [16:10.540] Tariffs came through. I said they would.
+- [16:14.130] Great numbers. Great financial numbers.
+- [16:18.380] I don't think the kids are too interested in that.
+- [16:20.910] I think they like to talk about other things.
+- [16:26.300] How are you doing, First Lady? Oh, look at you.
+- [16:28.100] The First Lady: We're waiting for a phone call.
+- [16:29.500] The President: This is the greatest First Lady.
+- [16:32.560] People love our First Lady, right?
+- [16:35.900] Look at her, how elegant is the First Lady?
+- [16:38.080] Look at you. I'm not supposed to be doing this, you know.
+- [16:41.490] The First Lady: (inaudible)
+- [16:42.690] not anybody else? Are they calling you?
+- [16:49.940] (inaudible background chatter)
+- [16:51.440] The President: General, I'm ready.
+- [16:55.500] Male Speaker: Thank you, Mr. President.
+- [16:56.710] I think they have one coming through right now.
+- [16:58.380] The President: See, we put a general in charge
+- [16:59.850] because we want to make sure it works out right.
+- [17:26.170] Are you guys going back or are you going to stay here?
+- [17:30.830] Exciting time.
+- [17:33.420] For the country, it's exciting. We're doing well.
+- [17:54.180] Female Speaker: Mr. President,
+- [17:55.790] I have Spencer on the phone for you.
+- [17:58.120] He's age 10 and (inaudible)
+- [18:00.160] six, they're from near Tacoma, Washington.
+- [18:03.780] The President: Good. Well, that's great.
+- [18:07.330] Hi, how are you both, okay?
+- [18:11.430] Female Speaker: Yeah, Spencer (inaudible)
+- [18:12.990] you are on phone with the President of the United States.
+- [18:16.280] The President: And you know who I have here with me?
+- [18:17.740] The First Lady.
+- [18:20.890] We have the First Lady of the United States.
+- [18:24.610] That's exciting.
+- [18:25.930] That's more exciting than the President, actually.
+- [18:33.250] Go ahead. You know where Santa is?
+- [18:36.320] Santa is very far away. But heading to your state,
+- [18:40.840] very quickly heading to your state.
+- [18:44.380] So -- and what do you want from Santa?
+- [18:50.050] Child Speaker: Well, um, for me, I'd probably most want
+- [18:59.460] (inaudible).
+- [19:01.070] The President: You want what?
+- [19:03.620] Child Speaker: A kingdom.
+- [19:04.940] The President: Oh, wow. That's pretty good.
+- [19:07.480] Well, you must be a high IQ person.
+- [19:10.440] We need more high IQ people in the country.
+- [19:14.530] So we definitely need more higher IQ.
+- [19:18.640] Child Speaker: (inaudible) is like the most this year.
+- [19:25.950] (inaudible) a pinball this year."
+- [19:31.850] The President: Oh, a pinball machine,
+- [19:33.110] that's great.
+- [19:34.660] You know Elton John, he did Pinball Wizard.
+- [19:38.070] We'll have to send you a copy of Pinball Wizard.
+- [19:40.920] Well, that sounds great, actually.
+- [19:43.550] So Santa's not going to let you down.
+- [19:45.570] Santa is a good Santa. Not going to let your down.
+- [19:50.430] Mom, how are you doing? Okay?
+- [19:53.830] Female Speaker: We're fantastic.
+- [19:55.060] Thank you so much for accepting their call.
+- [19:57.090] The President: Oh, absolutely.
+- [19:58.330] You sound fantastic, and the kids sound great, right?
+- [20:02.180] They sound great.
+- [20:03.550] The country is doing well. We saved our country.
+- [20:07.380] Our country was not going so good. Now it's doing great.
+- [20:12.660] Great numbers, great everything. So we're in very good shape.
+- [20:17.120] It's going to be a good Christmas.
+- [20:19.320] But I just want to thank you. And I think I think
+- [20:22.610] that Santa is going to really be good to you tonight.
+- [20:26.590] Be coming to your area
+- [20:28.100] in about six or seven hours when you're sleeping,
+- [20:31.630] but Santa's going to be very good to you.
+- [20:34.190] Female Speaker: (inaudible) thank you.
+- [20:39.150] The President: No, thank you honey,
+- [20:41.120] and have a great Christmas and mom have a great Christmas,
+- [20:43.840] okay, and your family.
+- [20:47.130] Female Speaker: Thank you so much, Mr. President.
+- [20:48.930] The President: Thank you very much. You sound so great.
+- [20:51.920] You sound great, and your kids sound great.
+- [20:53.720] Thank you, very much, Merry Christmas.
+- [20:57.610] Female Speaker: Merry Christmas, sir.
+- [20:59.820] The President: Nice talking to you,
+- [21:01.050] and General, thank you very much.
+- [21:03.500] You did a good job.
+- [21:04.720] Male Speaker: You're welcome.
+- [21:05.980] The President: That's not easy coordination, actually.
+- [21:08.040] Thank you. You too, General. Thank you very. Appreciate it.
+- [21:11.420] Okay. Bye.
+- [21:16.150] Good job, right?
+- [21:17.450] I mean, they did a good job. Thank you all very much.

@@ -1,0 +1,1805 @@
+<!-- source: https://www.youtube.com/watch?v=2lBpWI_-GMg -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 2lBpWI_-GMg -->
+<!-- date_published: 2025-10-20T21:44:31+00:00 -->
+<!-- date_accessed: 2026-06-02T01:12:42.100442+00:00 -->
+
+# Transcript: 250th Anniversary Celebration for the United States Marine Corps
+
+- [00:00.560] Male Speaker: These forces give America options.
+- [00:02.840] They can project strength, deter aggression,
+- [00:05.380] and if called upon, fight and win.
+- [00:09.220] They are forward, mobile, and ready, standing watch
+- [00:12.230] and projecting power
+- [00:13.570] in support of our national security objectives.
+- [00:16.890] Today's demonstration is more than a show of strength.
+- [00:20.450] It is a reminder of purpose. The ships, the aircraft,
+- [00:23.950] and the Marines you see are part of a living legacy,
+- [00:27.290] stretching back 250 years.
+- [00:30.080] A force that remains, as ever, the first to fight.
+- [00:36.730] Long before armor hits the beach,
+- [00:38.930] Marines and sailors are shaping the fight.
+- [00:41.410] Under the cover of darkness, reconnaissance Marines
+- [00:43.970] are inserted by a KC-130J Super Hercules,
+- [00:47.870] executing a high-altitude, low-opening insertion,
+- [00:51.160] also known as a halo jump.
+- [00:53.180] Marines land in contested areas, inaccessible by other platforms,
+- [00:57.410] because Marines go where others can't.
+- [01:00.660] The Super Hercules ramp drops,
+- [01:02.670] the reconnaissance marines move out, disciplined, deliberate.
+- [01:06.570] Light on their feet, heavy with purpose.
+- [01:10.220] They carry sensors, communications assets,
+- [01:13.190] and the mindset of trading comfort for mission success.
+- [01:16.900] Their task is to locate obstacles,
+- [01:19.500] chart enemy positions, refine landing lanes,
+- [01:22.570] and report exactly what the assault force will encounter
+- [01:25.170] when it lands.
+- [01:26.510] These Marines are the eyes and ears,
+- [01:28.990] observing the situation on the ground
+- [01:31.050] and relying critical intelligence
+- [01:32.920] to the mission commander.
+- [01:39.220] Simultaneously, a SEAL team employing
+- [01:42.000] a dry combat submersible take the beach undetected,
+- [01:45.760] infiltrating the area of operations.
+- [01:48.180] This mission, confirm enemy disposition, identify obstacles,
+- [01:52.850] and establish a landing zone for follow on forces.
+- [01:55.690] They use advanced sensors, acoustic, thermal,
+- [01:59.260] and visual to gather critical intelligence.
+- [02:02.340] This is a direct descendant of the scout swimmers
+- [02:05.890] used in World War II.
+- [02:07.860] But with exponentially increased capability.
+- [03:30.710] Male Speaker: Setting conditions for the Marines and Sailors
+- [03:33.470] coming ashore,
+- [03:34.860] aviation assets conduct strikes on enemy positions,
+- [03:38.480] thinning the enemy formations,
+- [03:40.180] and distracting from the coming insertion
+- [03:42.340] of additional Navy SEALs.
+- [04:12.960] Over the water, Special Warfare Combatant
+- [04:15.720] crewmen begin shaping the littoral environment
+- [04:18.820] from combatant craft medium.
+- [04:20.920] A direct action SEAL team descends from the sky,
+- [04:24.310] inserting via a helo-cast.
+- [04:26.380] This airborne low-signature technique
+- [04:28.860] allows the SEALs to use a combination of boats
+- [04:31.700] to rapidly infiltrate the beach.
+- [04:33.960] Their mission is the key to neutralize enemy strongpoints,
+- [04:38.870] clear obstacles, and established a secure beachhead.
+- [04:42.400] The SEALs are not seeking a protracted engagement.
+- [04:45.410] They are creating a window of opportunity
+- [04:47.760] for the main assault force.
+- [06:28.890] Above it all, strike aircraft stand ready
+- [06:31.490] to deliver deep effects on a commander's order,
+- [06:34.620] ensuring every move is backed by overwhelming American air power.
+- [06:38.710] Together, the quiet work of recon,
+- [06:41.240] the shaping of naval special warfare,
+- [06:43.510] and the mass and maneuver of the Marine Corps
+- [06:46.260] create conditions for victory
+- [06:48.570] before the first wave even hits the sand.
+- [06:51.520] This is the culmination of shaping operations,
+- [06:54.440] stealth, and precision,
+- [06:56.360] enabling the mass discipline momentum of the Marine Corps.
+- [07:00.870] Sensor data flows into analytic tools that highlight threats,
+- [07:04.740] predict enemy movements, and surface opportunities.
+- [07:08.010] The Marine Corps of 2025 makes decisions in minutes,
+- [07:11.560] sometimes seconds. Every Marine is a sensor.
+- [07:14.830] Every vehicle is a node in a network
+- [07:17.480] that shortens the kill chain.
+- [07:23.490] As naval infantry,
+- [07:24.880] Marines exist to seize enemy beaches from the sea.
+- [07:28.740] Known as forcible entry operation,
+- [07:31.340] the layering of reconnaissance, surface and air assets
+- [07:34.460] enables Marine to arrive violently on the enemy shore,
+- [07:38.430] establish a beachhead, and flow Marine and Joint Forces ashore.
+- [07:42.970] As the amphibious combat vehicles
+- [07:44.640] prepare to make landfall, the previously inserted SEALs
+- [07:47.690] have found their first target, an enemy machine gun bunker.
+- [07:51.600] Established to interdict the landing of Marines,
+- [07:54.340] preventing the 11th Marine Expeditionary Unit
+- [07:56.880] from establishing a foothold on Red Beach.
+- [08:02.260] Communicating with strike aircraft,
+- [08:04.200] providing Overwatch high above, the Reconnaissance Marine,
+- [08:07.450] a qualified Joint Terminal Attack Controller,
+- [08:10.130] requests an air strike to destroy the enemy threat.
+- [08:17.510] Male Speaker: Flight advise when ready game plan nine line.
+- [08:20.590] Male Speaker: Ready.
+- [08:21.850] Male Speaker: Type two bomb on target one by GBU
+- [08:24.960] five four each aircraft cutlass two niner
+- [08:27.840] eight one one point three.
+- [08:30.600] One two three feet Enemy machine gun bunker, 8-digit grid,
+- [08:34.690] Mike Sierra 56698396, negative mark,
+- [08:39.150] southwest 200 meters, egress L, full ram 4, 1-6,
+- [08:43.730] block 1-8, final attack heading 2-9-0 through 3-2-0,
+- [08:49.130] danger close, initials (inaudible)
+- [08:52.780] Male Speaker: I read back from my system, 1, 2,
+- [08:54.540] 3 feet, 8-digit grid, Mike Sierra, 5669 or 839 or 6.
+- [08:59.620] Final attack heading, 290 through 320,
+- [09:03.030] danger close, initials, November whiskey.
+- [09:06.210] Male Speaker: Good readbacks, immediate push.
+- [09:07.880] Male Speaker: Pushing.
+- [09:11.430] In 310, cleared hot. Battlefield effects for bombs.
+- [11:11.670] Male Speaker: On the horizon is the USS Boxer,
+- [11:14.650] flagship of this amphibious ready group.
+- [11:17.930] A WASP class amphibius assault ship,
+- [11:20.440] Boxer is sovereign U.S. Territory,
+- [11:23.400] a floating airfield, hospital, and command center.
+- [11:27.060] She carries Marines, aircraft, and landing craft
+- [11:29.770] wherever America needs them. Today, she leads this formation,
+- [11:34.020] just as her namesake fought with distinction
+- [11:36.880] in the War of 1812, the original Boxer.
+- [11:40.730] Was known for the bravery of its crew
+- [11:42.940] and its effective use of naval tactics.
+- [11:45.500] The current USS Boxer carries a diverse air
+- [11:48.610] and surface warfare capability
+- [11:50.570] to support the Marine Expeditionary
+- [11:52.750] Unit's mission set.
+- [11:54.570] Beside her sails the USS Comstock,
+- [11:57.570] a dock landing ship named for the pioneering history
+- [12:00.920] of the American West.
+- [12:02.530] She delivers Marines, vehicles, and craft to the fight.
+- [12:21.200] At H-hour, the exact synchronized moment
+- [12:24.530] when the assault hits the beach,
+- [12:26.430] the ocean transforms into a battlefield.
+- [12:29.480] From beyond the horizon, amphibious combat vehicles
+- [12:32.460] smash through the surf,
+- [12:33.880] their armored hulls carrying Marines straight into the fight.
+- [12:37.100] Expeditionary and modernized in design,
+- [12:39.910] the ACV integrates with naval shipping
+- [12:42.650] and ship-to-shore connectives.
+- [12:44.360] The ACV's ability to use the ocean and waterways
+- [12:47.950] to carry Marines and equipment make it well suited
+- [12:51.290] for a variety of operating environments.
+- [12:53.720] The ACV is lethal, balancing performance,
+- [12:56.840] protection, and payload,
+- [12:59.110] enabling it to support stand-in forces in the Pacific.
+- [13:36.450] Overhead, helicopter pilots prowl the battle space,
+- [13:40.810] hunting targets and passing target data
+- [13:43.700] back to the Marines ashore.
+- [13:45.460] UH-1 Yankee Venoms slice low across the surf.
+- [13:49.230] Their sensors, fusing with unmanned systems
+- [13:51.730] to extend the battlefield picture.
+- [13:53.950] AH-1 Zulu Vipers orbit like bird of prey.
+- [13:59.070] Digitally linked to advanced sensors on air, land, and sea.
+- [14:03.170] Every rocket, every burst of 20 millimeter fire.
+- [14:06.360] Is synchronized across the kill web.
+- [14:08.670] Precision, speed, and shock, brought together in one fight.
+- [14:21.560] These aircraft are part of the MUSE
+- [14:23.910] aviation combat element,
+- [14:25.700] which comprises tilt rotor aircraft, transport helicopters,
+- [14:29.530] attack helicopters, fixed wing aircraft,
+- [14:32.550] air defense teams, and ground support assets.
+- [14:35.770] The air combat element boasts about 600 personnel to man
+- [14:40.030] and maintain all things air.
+- [14:42.670] Aviation is essential for distributed forces
+- [14:45.300] to leverage mass defects without the vulnerabilities
+- [14:48.530] of concentrated forces.
+- [14:50.770] As part of force design and force modernization,
+- [14:53.850] marine aviation continues to enhance
+- [14:56.360] its capabilities for operating
+- [14:58.440] in austere and distributed littoral environments
+- [15:01.570] to support stand-in forces.
+- [15:36.210] Male Speaker: CH-53E Super Stallions roar in low.
+- [15:40.180] Marines surge into the dust and chaos.
+- [15:43.070] They will fan out instantly, rifles up,
+- [15:45.370] establishing a security cordon, locking down approaches,
+- [15:49.250] feeding target data back into the fight,
+- [15:51.860] and setting the conditions for the assault to push inside.
+- [16:02.650] Marines never enter a fair fight.
+- [16:05.250] Well before the actions on the objective,
+- [16:07.660] Marines have set conditions for victory
+- [16:10.080] through training, planning, and technological overmatch.
+- [16:13.700] In support of the landing ACVs, a combined anti-armor team,
+- [16:17.590] or CAT, consisting of 20 Marines
+- [16:20.100] loaded onto various armored vehicles, trucks,
+- [16:22.820] and large all-terrain vehicles move into the objective area
+- [16:26.610] to provide support by fire to the assault force.
+- [16:29.520] Comprised of two sections,
+- [16:31.070] the CAC consists of a joint light tactical vehicle,
+- [16:34.100] gun trucks that are modern, armored, and capable.
+- [16:37.600] Outfitted on these JLTVs are heavy weapons,
+- [16:40.930] M2 50 caliber machine guns,
+- [16:43.030] M2 47.62 millimeter machine guns and Saber missile systems.
+- [16:47.670] The Saber Missile System is a tube launch,
+- [16:50.390] optically tracked, wire guided missile that enables
+- [16:53.470] Marines to punch through enemy armor and reinforce positions.
+- [16:57.510] Alongside these JLTVs is the Marine Corps' latest kinetic
+- [17:00.770] anti-drone system, the L-MATAS.
+- [17:04.020] The light Marine Air Defense Integrated System
+- [17:06.500] is mounted to a highly mobile
+- [17:08.270] and versatile ultralight tactical vehicle.
+- [17:11.310] In this era of modern warfare, the M-ATAS enables Marines
+- [17:15.440] to spoof, jam, and defeat drone threats
+- [17:19.170] from non-kinetic electronic attack capabilities.
+- [17:26.180] This isn't theory, it's proven.
+- [17:29.300] In July of 2019, aboard the USS Boxer,
+- [17:32.840] Marines employed the El Matis to take down an Iranian drone,
+- [17:36.780] threatening the ship in the Strait of Hormuz.
+- [17:39.380] No missiles, no explosions, a non-kinetic strike
+- [17:43.780] delivered at the speed of electrons sent
+- [17:46.490] that unmanned aircraft crashing into the sea.
+- [17:49.950] Precision, control, real world success.
+- [17:54.260] The kind of success that defines the Marine Corps
+- [17:57.140] in modern warfare.
+- [18:06.670] The Marines aboard the ACVs represent
+- [18:09.230] the ground combat element.
+- [18:11.190] The GCE is comprised of a battalion landing team,
+- [18:14.530] a reinforced infantry battalion with significant combat power.
+- [18:18.780] The ground combat has the greatest number of personnel
+- [18:22.130] within the MEU at approximately 1,100 Marines and sailors.
+- [18:26.550] Representing a balanced fusion of modernity and Marine grit,
+- [18:30.650] the Marines of the ground combat element,
+- [18:32.750] embrace emerging technologies to outpace future threats.
+- [18:36.670] While relying on timeless, battle-proven methods
+- [18:39.500] to fight and win. As the infantry-centered core
+- [18:43.400] of the Marine Air Ground Task Force,
+- [18:45.500] the ground combat element will harness robotics,
+- [18:48.570] artificial intelligence,
+- [18:50.060] and advanced sensors to expand reach
+- [18:52.310] and across the multi-domain battle space.
+- [20:37.290] Four, F-A-18s thunder low over the formation,
+- [20:41.240] their vapor trails painting the sky.
+- [20:43.660] Above them, two F-35s burn steady and silent,
+- [20:47.490] watching every angle. This is more than a spectacle.
+- [20:50.760] It's a message. A show of force shapes behavior.
+- [20:54.700] It deters the hesitant and sends a clear message
+- [20:57.620] to any adversary. We can see you.
+- [21:00.900] We can strike you. And if need be, we will.
+- [21:05.410] Supporting Marines on the ground,
+- [21:07.290] compressing decision time for the enemy
+- [21:09.380] and creating a deadly air-ground dilemma.
+- [22:33.900] High above the battlefield,
+- [22:35.310] the sky erupts into an integration of generations.
+- [22:38.830] F-A-18 Hornets carve aggressive turns, climbing and diving,
+- [22:43.590] pushing the fight with raw speed and agility.
+- [22:46.380] From above, stealthy F-35 Lightning IIs
+- [22:49.960] lock on, their sensors fusing every moment
+- [22:53.370] into digital battle space.
+- [22:55.300] What you're watching is more than a dogfight,
+- [22:57.720] it's Marine Corps aviators creating air superiority.
+- [23:02.510] This allows ground forces to seize
+- [23:04.800] and hold the objective, hornets and lightnings,
+- [23:08.690] proving that the modern fight dominance comes from teamwork
+- [23:12.460] across the spectrum, fast, lethal, unstoppable.
+- [24:14.360] Over Red Beach, the F-35 Bravo demonstrates what sets it apart
+- [24:18.910] from every other fifth generation fighter,
+- [24:21.450] the ability to hover.
+- [24:23.440] The vertical lift fan engine engages,
+- [24:26.320] holding the aircraft steady in midair,
+- [24:28.570] a capability unique to the Marine Corps.
+- [24:32.240] Hover flight allows the F35B to operate
+- [24:35.010] in the most austere environments,
+- [24:37.000] far from established runways.
+- [24:39.060] Marines can build forward arming and refueling points,
+- [24:42.050] known as FARPs, in the dirt, on the road,
+- [24:45.070] or on an island airstrip,
+- [24:46.610] and keep these aircraft in the fight where they're needed most.
+- [24:51.480] And when the fight shifts to the sea, the F-35 Bravo
+- [24:54.590] brings that same flexibility to the Navy.
+- [24:57.130] This short takeoff and vertical landing variant
+- [24:59.610] can touch down on amphibious assault ships,
+- [25:02.060] giving the Navy and Marine Corps
+- [25:04.320] a fifth generation strike fighter
+- [25:06.430] that can reject power from any climb or place.
+- [25:36.450] Amphibious combat vehicles rance drop
+- [25:38.910] as Marines surge into the fight.
+- [25:40.890] Overhead, UH-1 Yankee Venoms and AH-1 Zulu
+- [25:44.650] Vipers rake enemy positions with rockets
+- [25:47.300] and cannon fire, while FA-18
+- [25:49.490] Hornets scream down and deliver precision strikes.
+- [25:53.840] Targets shift and move, but there is no confusion.
+- [25:57.920] Every round, every bomb, every burst of fire
+- [26:01.430] is de-conflicted with the Marines
+- [26:02.970] pressing forward on the ground. That discipline.
+- [26:06.170] That synchronization comes from our
+- [26:08.670] Joint Terminal Attack Controllers.
+- [26:11.240] JTACs orchestrate the modern battlefield
+- [26:14.240] with a radio and a tablet.
+- [26:15.900] They control ordnance from joint aircraft
+- [26:18.030] in close proximity to maneuvering forces,
+- [26:21.220] linking air, land, and sea fires into one decisive punch.
+- [26:26.550] And the Marine Corps doesn't just employ
+- [26:28.370] JTAKs for ourselves, we provide them to the Joint Force,
+- [26:32.380] setting the standard for precision integration
+- [26:35.440] and battlefield control. With fire synchronized,
+- [26:39.280] the battalion landing team presses into the objective area,
+- [26:42.450] squads pushing through breach points,
+- [26:44.640] clearing house by house, street by street.
+- [26:48.280] Every corner secured, every building taken,
+- [26:51.370] until the objective is seized.
+- [27:05.110] Over the horizon, the sea roars, riding cushions of air.
+- [27:09.250] Navy landing craft air cushions, LCACs, burst into view.
+- [27:13.750] These massive hovercrafts, capable of carrying 60 tons
+- [27:17.570] and reaching speeds of 50 knots,
+- [27:19.810] carry the fight to the shore, bringing Marines, vehicles,
+- [27:23.620] and heavy firepower directly across the surf.
+- [27:26.920] From ship to ship, LCAC's give the Navy and Marine Corps team
+- [27:31.060] unmatched speed, reach, and surprise.
+- [27:34.470] Delivering combat power where the enemy least expects it.
+- [27:43.840] The Navy does more than bring Marines to the fight.
+- [27:47.410] It sustains them.
+- [27:49.320] Ships offshore purify water, generate power,
+- [27:52.920] provide medical care, and deliver ammunition.
+- [27:56.570] Without sailors, the fight ashore would falter.
+- [27:59.740] With them, it endures.
+- [28:48.630] The Logistics Combat Element
+- [28:50.360] surging supplies ashore is comprised of the Combat
+- [28:53.970] Logistics Battalion personnel and equipment
+- [28:56.850] designed to support and sustain
+- [28:58.850] the MEU for up to 15 days in an austere environment.
+- [29:03.180] The Logistic Combat Element also provides service support
+- [29:07.140] that includes postal, medical, dental, supply,
+- [29:11.020] explosives ordinance disposal, fuels, and more.
+- [29:15.260] They accomplished this with just 300 Marines and sailors.
+- [30:08.500] A three-ship amphibious ready group consists of one big deck
+- [30:12.350] and two modern amphibius transport docks
+- [30:14.860] or dock landing ships that enable fleet
+- [30:17.360] and geographic combatant commanders options.
+- [30:20.420] This formation operates independently or in aggregate,
+- [30:23.950] and the sea-based Marines can be tailored
+- [30:25.920] for a wide range of missions conducted from ship to shore.
+- [30:30.100] The amphibous ready group and Marine Expeditionary Unit
+- [30:33.200] is always present and always ready project
+- [30:35.770] sustained combat power ashore.
+- [30:37.810] Exactly. When and where the joint force needs it.
+- [31:38.020] Look to the sky, layered Navy air power thunders overhead.
+- [31:42.630] At 1,000 feet, fighters roar low,
+- [31:45.350] ready to unleash fire at a moment's notice.
+- [31:48.050] At 4,000 and 5,000, strike and electronic attack
+- [31:51.840] aircraft circle like hawks, stacked for speed and dominance.
+- [31:56.100] Every jet you see was launched from the deck of the USS
+- [31:59.000] Theodore Roosevelt, a carrier strike group
+- [32:01.960] that carries the fight anywhere in the globe,
+- [32:04.630] from sea to sky to shore.
+- [32:06.910] This is the full might of carrier aviation,
+- [32:11.010] loud, fast, unstoppable.
+- [32:31.740] As carrier aviation owns the skies
+- [32:33.870] and Marines press inland, the Navy sustains the fight.
+- [32:36.950] LCACs offload additional vehicles
+- [32:38.950] and supplies and reinforcements.
+- [32:41.070] Every load extends endurance. Every delivery builds momentum.
+- [32:50.470] The beachhead continues to grow.
+- [32:52.970] Marines establish a defensive perimeter,
+- [32:55.790] securing ground for follow-on forces.
+- [32:58.750] Landing crafts deliver artillery and vehicles.
+- [33:01.750] Light armored reconnaissance pushes inland,
+- [33:04.440] striking quickly and generating tempo.
+- [33:10.310] The Nemesis, light armored vehicles, M777s,
+- [33:14.260] and High Mars rocket launchers deploy onto the sand,
+- [33:17.870] delivering armor and long-range precision dominance
+- [33:20.930] straight from the sea to the shore.
+- [33:23.990] The Nemesus is a ground-based offensive anti-ship capability
+- [33:27.750] that contributes to the fleet's ability
+- [33:29.400] to achieve sea control, sea denial,
+- [33:32.050] and defense against maritime threats.
+- [33:34.700] Nemesis allows Marines
+- [33:36.520] to support the surrounding naval forces.
+- [33:38.840] By countering surface threats without reliance
+- [33:41.580] on traditional naval platforms.
+- [33:44.070] The remotely operated capability of the Nemesis
+- [33:47.150] enables a smaller,
+- [33:48.470] more expeditionary deployable capability.
+- [33:51.720] Partnered with remote firing positions,
+- [33:53.990] it increases survivability on the battlefield
+- [33:56.410] and enhances operations for forward deployed forces.
+- [36:38.300] The ARG-MU is the initial stabilizing force
+- [36:41.210] that creates the necessary conditions
+- [36:43.230] for the arrival of the Joint Force.
+- [36:46.980] Overhead, the B-1 Lancer
+- [36:49.480] leads a formation of long-range strike assets
+- [36:52.410] armed with precision and conventional weapons
+- [36:55.410] to deliver devastating firepower.
+- [36:58.000] They conduct a global strike to project power rapidly
+- [37:01.710] and decisively anywhere in world to achieve strategic objectives.
+- [38:26.080] Now that the Marines have massed combat power ashore,
+- [38:29.600] we begin to set conditions for movement
+- [38:31.450] to other objectives further inland.
+- [38:34.710] The King of Battle arrives. M777 Howitzers are in place
+- [38:39.900] and prepared to support ground maneuver.
+- [38:46.960] The M777 fires the 155 millimeter M795
+- [38:51.540] high-explosive round with precision,
+- [38:54.420] sustained at two rounds a minute,
+- [38:56.300] surging to four when demanded,
+- [38:58.240] operated by a section chief and nine cannoneers,
+- [39:01.400] directed by the Fire Direction Center,
+- [39:03.580] approved by the fire support coordination center.
+- [39:06.520] This is not only steel and power,
+- [39:08.830] it is calculation and courage, timing and trust.
+- [39:12.710] The quiet math that makes thunder purposeful.
+- [39:21.330] The call for fire flows from the forward observer,
+- [39:24.780] located with the assault force, to the fire direction center.
+- [39:28.440] The mathematicians of Mayhem, the fire direction officer,
+- [39:32.390] and ops chief run the numbers. Data is verified,
+- [39:36.400] and the fire command is sent to the gun line.
+- [39:41.820] The crew moves like a single organism.
+- [39:44.900] One shoulders the high explosive shell.
+- [39:47.270] Another sets the point detonating fuse.
+- [39:49.760] Finally, the charge is added. Breach closed, tube elevated.
+- [39:54.220] The battery is ready. Then silence.
+- [43:49.390] Thunder, the guns recoils, the earth shakes,
+- [43:52.490] and one five five millimeter shell tears through the air.
+- [43:55.320] Speed, mass, steel rain inbound. Corrections flow.
+- [44:03.620] The crew repeats, the rhythm builds.
+- [44:05.510] One, two, a metadome of steel.
+- [44:08.700] Fire sustained, pressure unrelenting.
+- [44:11.620] Motor T waits with fuel and trucks.
+- [44:14.150] Comms log every shot. Battalion commander.
+- [44:17.550] XO, gunnery sergeant, first sergeant.
+- [44:19.840] Eyes sharp, watching the battlefield transform.
+- [49:09.870] We witnessed the arrival of the carrier strike group,
+- [49:13.010] a formidable force of naval power and precision.
+- [49:16.250] As it sails into position
+- [49:17.630] to support a dynamic amphibious assault,
+- [49:20.370] the carrier's strike group represents the pinnacle
+- [49:22.560] of maritime capability, seamlessly integrating air,
+- [49:25.970] surface, and subsurface assets to project power
+- [49:29.430] and ensure dominance across the battle space.
+- [49:32.140] At the heart of the strike group is the aircraft carrier,
+- [49:35.270] a floating fortress of innovation and strength.
+- [49:38.890] As the centerpiece of naval aviation.
+- [49:41.730] The carrier strike group stands ready
+- [49:43.440] to support the amphibious assault,
+- [49:45.610] demonstrating the unmatched capability
+- [49:47.750] of the United States Navy
+- [49:49.350] and the United State Marine Corps team.
+- [49:55.610] Behind every movement you have seen
+- [49:58.140] is a resilient command and control network
+- [50:01.010] hardened against cyber threats and protected by Marine
+- [50:04.290] cyber warfare operators. This seamless flow of data
+- [50:08.320] ensures Marines never fight blind.
+- [50:11.440] The Marine Corps of 2025 is connected, resilient
+- [50:15.360] and decisive.
+- [50:25.180] This choreography of warfare is directed
+- [50:27.850] by the Marine Expeditionary Unit Command Element.
+- [50:30.960] The Command Element,
+- [50:32.170] comprised of approximately 200 Marines and Sailors,
+- [50:35.280] is led by the Marine Expedionary Unit Commander
+- [50:37.660] and supporting staff.
+- [50:39.310] They exercise command and control
+- [50:41.310] over the Aviation Combat Element,
+- [50:43.220] the Ground Combat Element, and Logistics Combat Element.
+- [50:47.120] They have special detachments like Signals Intelligence,
+- [50:50.360] Counter Intelligence, Civil fairs.
+- [50:53.160] Communication strategy and operations and reconnaissance.
+- [50:57.600] From front flintlocks to fifth generation fighters,
+- [51:00.990] from wooden decks to steel carriers,
+- [51:03.460] the Navy and Marine Corps continuously evolve,
+- [51:06.460] but their fighting spirit endures.
+- [51:10.610] The message is simple.
+- [51:12.830] The Navy and the Marine Corps team is ready.
+- [51:15.770] Ready to deter, ready to fight, ready to defend the homeland.
+- [51:20.630] The amphibious ready groups and Marine Expeditionary Units
+- [51:24.210] give our nation's leaders flexible,
+- [51:26.440] forward-deployed options that are sovereign,
+- [51:29.480] scalable, ready, and in position when it matters most.
+- [51:33.840] These formations respond in hours,
+- [51:36.670] not weeks, without relying on access,
+- [51:39.770] basing, or overflight permissions.
+- [51:42.490] Their presence alone can deny adversaries
+- [51:45.210] the decision space they crave,
+- [51:47.480] shape the space and introduce doubt.
+- [51:50.330] Before the first shot is even fired.
+- [51:55.630] For two and a half centuries, Marines have stormed beaches,
+- [51:59.990] fought in jungles, deserts, and cities,
+- [52:02.720] and carried our nation's colors with honor.
+- [52:06.060] At Bella Wood, Marines earned the name Devil Dogs.
+- [52:10.570] On Iwo Jima, Marines raised the flag seen around the world.
+- [52:15.050] In Fallujah, Marines fought block by block
+- [52:18.050] to bring stability in chaos.
+- [52:20.510] What you see today is that same spirit.
+- [52:23.730] Sharpened by modern technology,
+- [52:26.010] amplified by our brothers and sisters in the Navy,
+- [52:29.120] and carried forward by the Marines of 2025.
+- [54:38.250] For 250 years, Marines have answered the nation's call.
+- [54:42.810] Today, we honor that legacy.
+- [54:45.520] From distributed maritime operations
+- [54:47.910] to precision long-range fires,
+- [54:49.900] from amphibious assaults to cyber defense,
+- [54:52.750] the Navy and Marine Corps team is equipped to win.
+- [54:56.180] This is the raw strength of America.
+- [54:59.410] Ladies and gentlemen, this is our nation's 911 force.
+- [57:10.780] Always forward, always faithful, always ready.
+- [57:15.130] Ladies and gentlemen, your United States Navy
+- [57:18.960] and United States Marine Corps.
+- [57:22.570] (cheers)
+- [57:42.535] (sound of aircraft passing)
+- [58:11.400] Male Speaker: Ladies and gentlemen,
+- [58:13.100] please welcome retired U.S. Marine Corps officer
+- [58:16.430] and fitness advocate, Kagan Dunlap.
+- [58:20.930] ♪ (dramatic orchestral music) ♪
+- [58:42.885] (applause and cheers)
+- [58:54.390] Kagan Dunlap: Look familiar?
+- [58:59.330] Scenes like these are happening all over the planet right now.
+- [59:05.100] You could be next. That is,
+- [59:10.500] unless you make the most important decision of your life.
+- [59:14.960] Prove to yourself that you have the strength
+- [59:17.720] and the courage to be free.
+- [59:24.680] Join the Marines. Oh, man.
+- [59:33.840] I was hoping that some of you would get that reference.
+- [59:36.650] I'm glad some of -- I'm, glad some you did.
+- [59:41.450] So 250 years ago today, or not today,
+- [59:44.290] but this next coming month, this year,
+- [59:47.860] Captain Samuel Nicholas and his friend Robert Mullen
+- [59:51.010] started recruiting Marines in Ton Tavern
+- [59:53.960] in Philadelphia, Pennsylvania.
+- [59:57.630] Little did they know that the United States Marine Corps
+- [01:00:01.770] would become known as one of the greatest
+- [01:00:03.310] and most respected fighting forces
+- [01:00:05.060] that the world has ever known.
+- [01:00:10.040] The people they recruited weren't supermen,
+- [01:00:12.570] they didn't have superpowers, they weren't in a Marvel movie,
+- [01:00:16.810] they were farmers, they're blacksmiths,
+- [01:00:19.460] they were tailors and sailors,
+- [01:00:21.940] they are hunters and people that worked with their hands.
+- [01:00:27.360] These people stormed ships, they seized forts
+- [01:00:30.370] and they stared down the world's greatest Navy,
+- [01:00:33.270] which at the time was the British Navy.
+- [01:00:39.320] We didn't offer them riches, we didn't offer them glory,
+- [01:00:42.570] but we did offer them the opportunity to become part
+- [01:00:45.370] of something that was much greater than themselves.
+- [01:00:49.680] Today, when I look out at all of you,
+- [01:00:52.650] I see a bunch of people from all over the world,
+- [01:00:54.780] from all the United States of America,
+- [01:00:57.540] from all, like, everywhere.
+- [01:00:59.810] Some people might be from California,
+- [01:01:01.440] there might be some people from Indiana,
+- [01:01:03.400] maybe some from Alaska, maybe some from Hawaii.
+- [01:01:06.760] Some of you may have grown up with lots of money,
+- [01:01:09.650] some of you might have grown out poor,
+- [01:01:11.280] some of might have parents, some of may not have parents.
+- [01:01:14.640] But guess what? All of us are here for a reason.
+- [01:01:21.210] We are a family. That's what brought us together.
+- [01:01:25.620] One of the greatest parts about this organization
+- [01:01:27.890] is that we don't care who you are,
+- [01:01:29.600] what you look like, where you're from,
+- [01:01:31.610] what your experience level is,
+- [01:01:34.570] but you are welcome here if you can earn it.
+- [01:01:37.870] And believe you me, you have to earn it.
+- [01:01:40.830] Just like what Sergeant Dakota Meyer said,
+- [01:01:43.150] it's not given. You have to work hard for it.
+- [01:01:46.330] And anything valuable that I've found in my life
+- [01:01:48.790] that I have earned was something I had to work very hard for.
+- [01:01:53.540] That's just been my personal experience.
+- [01:01:57.210] Now like I said, when I look out on all of you,
+- [01:01:59.010] I see my brothers and my sisters.
+- [01:02:02.500] You are all family to me, and as far as I'm concerned,
+- [01:02:05.730] we bleed the same blood, we're from the same timeline,
+- [01:02:08.650] we're the same DNA line as far I'm concern.
+- [01:02:14.700] And come hell or high water, we need to support each other.
+- [01:02:19.620] We have to because one day, we are going to go to war again.
+- [01:02:24.870] And when that happens,
+- [01:02:26.350] the only people you're going to be able to rely on
+- [01:02:28.640] is that Marine or sailor to your left and your right.
+- [01:02:32.190] And that's it.
+- [01:02:33.470] None of the other stuff going on in the world
+- [01:02:35.010] is going to matter at that point.
+- [01:02:36.230] It's going to be you and your friends
+- [01:02:37.610] to your left and your right. And believe me, if we go to war,
+- [01:02:41.140] it's not just going to the infantry that's out there.
+- [01:02:43.150] It's gonna be everyone. We're all going.
+- [01:02:50.370] So, one of the things you can do,
+- [01:02:53.500] since it is inevitable that this happens,
+- [01:02:57.610] make yourself better than you were yesterday,
+- [01:03:00.610] even if it's just going to the gym.
+- [01:03:02.980] Make yourself tougher, make yourself more resilient,
+- [01:03:05.490] make yourself smarter, study, read, look things up,
+- [01:03:09.580] be situationally aware about things
+- [01:03:11.470] that are happening in the world around you.
+- [01:03:13.430] Because believe it or not, that will affect you directly.
+- [01:03:16.750] Things that happen on the other side of the planet
+- [01:03:19.070] can impact where you deploy.
+- [01:03:26.540] Now, 250 years is not an accident, all right?
+- [01:03:32.290] The reason we're here is not because America needs us, right?
+- [01:03:35.130] Because the Army can do everything
+- [01:03:37.080] that the Marine Corps can do, right,
+- [01:03:39.140] they have all the same capabilities.
+- [01:03:40.870] The Army even has ships, did you know that?
+- [01:03:43.540] I didn't know that for the longest time,
+- [01:03:44.910] I didn't t realize the Army had ships.
+- [01:03:47.200] But they do. But the reason we exist is because,
+- [01:03:51.990] not because America needs us, is because they want us.
+- [01:04:00.350] I don't know if you guys noticed,
+- [01:04:01.590] but recently the other day when Secretary Hegseth
+- [01:04:04.990] was speaking to all of the generals
+- [01:04:07.110] of the entire United States military,
+- [01:04:08.910] one of the things he was talking about
+- [01:04:10.430] was instituting a new fitness test
+- [01:04:13.370] for all of the other branches.
+- [01:04:14.810] I don't know if you you guys remember that.
+- [01:04:18.860] Who do you think that he got that idea from?
+- [01:04:24.980] I'm just saying, we've been running two fitness tests
+- [01:04:26.810] for a long time, have we not? We run a combat fitness test
+- [01:04:31.090] and we run a physical fitness test every year, do we not?
+- [01:04:36.730] you hear a lot of people talking about standards.
+- [01:04:40.130] Well, we set that standard, at least in my mind.
+- [01:04:43.990] The way I perceive that is that we set a standard
+- [01:04:46.860] that other people saw,
+- [01:04:48.610] and they're like, you know what, I really like that.
+- [01:04:50.860] Maybe we should try that with other people too.
+- [01:04:54.180] Obviously, it's been impactful.
+- [01:04:55.610] It's been effective with the Marine Corps.
+- [01:04:57.390] I bet it could work with other branches too.
+- [01:04:59.030] Let's try it out.
+- [01:05:01.470] You know how the best way you can affect changes?
+- [01:05:05.160] The best way you can affect change or influence people
+- [01:05:10.070] is by setting the example.
+- [01:05:12.800] If you want to impress upon other people
+- [01:05:15.210] to be physically fit, be physically fit yourself.
+- [01:05:19.020] If you wanna impress upon people to go shooting
+- [01:05:21.960] and get out and learn stuff about the country they live in,
+- [01:05:25.170] do it yourself, too. You gotta lead by example.
+- [01:05:29.540] That's the best way that you can convince other people
+- [01:05:31.960] that that's the right way to do business, all right?
+- [01:05:37.130] And it's going to be hard sometimes,
+- [01:05:39.280] because some of the most rewarding things
+- [01:05:41.080] I've found in my life are not easy, they're hard.
+- [01:05:43.430] It takes a lot of work. It takes discipline.
+- [01:05:46.000] I wake up every morning at 4.30, not because I want to,
+- [01:05:49.250] but because I have things to do. I don't like waking up at 4 30.
+- [01:05:54.030] Every single day my alarm goes off
+- [01:05:55.990] and I'm like, it's like Groundhog Day.
+- [01:05:59.350] But I do it anyway
+- [01:06:00.730] because I know it's the right thing for me to do
+- [01:06:02.330] because I have things I need to do.
+- [01:06:03.960] I need get up, I need shave my face,
+- [01:06:05.700] I have to cook breakfast, I've got work to do, you know?
+- [01:06:11.970] And I'll tell you right now.
+- [01:06:15.630] I know a lot of you are a lot younger than me,
+- [01:06:17.570] because I joined pretty late.
+- [01:06:18.850] I was 27 when I first joined the Marine Corps, all right?
+- [01:06:23.430] And I may not be as young as I was then,
+- [01:06:26.060] I still take good care of myself.
+- [01:06:27.360] I work out on a very regular basis.
+- [01:06:29.350] That's like a non-negotiable for me.
+- [01:06:32.130] I don't know about you guys, but I want to make sure
+- [01:06:36.660] that I said this to all of you out there,
+- [01:06:38.080] because you're in a different place in your life, right?
+- [01:06:42.750] If nobody told you today, Marines,
+- [01:06:46.780] I believe in each and every one of you.
+- [01:06:50.500] I want you to know that.
+- [01:06:51.830] Every single one of your out there.
+- [01:06:54.010] I believe your ability to carry out the mission.
+- [01:06:56.680] I believe you ability to defend and support
+- [01:06:58.690] the Constitution of the United States.
+- [01:07:01.010] And I believe the ability to protect
+- [01:07:03.390] and defend the American people.
+- [01:07:10.860] I'm not going to see any of you next month
+- [01:07:12.600] probably because it's November
+- [01:07:13.960] and I can't be here at that point.
+- [01:07:16.480] So because I'm going to be here in November,
+- [01:07:19.630] I want to wish you all a happy birthday and Semper Fidelis.
+- [01:07:24.640] ♪ (dramatic orchestral music) ♪
+- [01:07:38.410] Male Speaker: Ladies and gentlemen,
+- [01:07:39.920] please welcome former Forest Recon Marine
+- [01:07:42.800] and bestselling author, Chad Robichaux.
+- [01:07:47.450] ♪ (rock music playing) ♪
+- [01:08:15.490] Chad Robichaux: Good afternoon, Marines.
+- [01:08:18.490] What an absolute honor to be here
+- [01:08:19.920] celebrating 250 years of Marine Corps badassery.
+- [01:08:23.830] And I don't know if you guys enjoyed that demo,
+- [01:08:27.260] but that was either the best recruiting content
+- [01:08:28.990] that the Marine Corps is going to have for many years
+- [01:08:31.010] or the strongest message to our enemies to never test
+- [01:08:33.710] the capability and ferocity of the United States military.
+- [01:08:37.480] It's also an honor to opening tonight
+- [01:08:39.730] for the Vice President of the US of America J.D. Vance.
+- [01:08:43.250] How cool was that? If you guys don't know,
+- [01:08:46.330] by the way, he is a United States Marine.
+- [01:08:49.540] Standing here among each of you is a very surreal feeling.
+- [01:08:53.180] I represent multiple generations of warriors in my family,
+- [01:08:56.000] from World War I, World War II, Korea.
+- [01:08:58.210] My father was the first Marine in our family,
+- [01:08:59.820] serving as a rifleman in Vietnam.
+- [01:09:02.110] Myself and both of my sons, also Marines.
+- [01:09:05.390] One of one of which also served in Afghanistan,
+- [01:09:08.060] but I have to be honest,
+- [01:09:09.380] while I've had the opportunity over the years to serve
+- [01:09:12.600] and speak to thousands of Marines through my work
+- [01:09:14.390] in (inaudible)
+- [01:09:15.670] foundation today I struggle with feeling worthy to stand up here
+- [01:09:18.770] and address you all not because I don't have anything to say --
+- [01:09:21.450] trust me I have a lot to say, but because of the weight
+- [01:09:24.390] and knowing that so many have paid such a heavier price
+- [01:09:27.560] on the altar freedom than myself.
+- [01:09:30.150] Marines we stand on the shoulders of giants, of titans.
+- [01:09:34.790] And as I stand here on Delmore Beach,
+- [01:09:37.000] I feel very pressed to inform you
+- [01:09:38.980] that this wasn't always a place for special events.
+- [01:09:42.120] Delmore was once a place where Marine Recon candidates,
+- [01:09:44.690] ropers as we call them, would come here
+- [01:09:46.600] and get crushed in that frigid surf over to our left.
+- [01:09:51.650] In the sands of this beach right here
+- [01:09:54.480] are the remnants of lots of sweat
+- [01:09:56.450] and blood, my own included.
+- [01:09:58.550] And I recall laying in that surf zone next to an always grinning
+- [01:10:02.330] Foster Harrington.
+- [01:10:03.940] Foster and I served together for ten years.
+- [01:10:06.060] He was an incredible forester reconnaissance
+- [01:10:07.540] Marine leader and friend
+- [01:10:09.960] who paid the ultimate price for freedom
+- [01:10:11.420] by giving his life in El Elbar province, Iraq in 2004
+- [01:10:15.330] when he exposed himself to enemy gunfire
+- [01:10:17.410] to direct a teammate to safety.
+- [01:10:19.790] I knew Foster well. He served in my wedding.
+- [01:10:22.600] He was there when my kids were born.
+- [01:10:25.070] Foster deeply believed that being a Marine
+- [01:10:28.180] was to be someone special.
+- [01:10:30.510] He believed that being a Marine allowed you
+- [01:10:32.250] the opportunity to do something special,
+- [01:10:34.550] something more important to yourself, for your nation,
+- [01:10:37.460] and for those around the world who couldn't defend themselves.
+- [01:10:40.910] You all felt that same sacred feeling
+- [01:10:42.530] when the moment your drill instructor
+- [01:10:44.150] blessed the EGA into the palm of your hand
+- [01:10:46.850] when you finished your crucible.
+- [01:10:48.110] And I think back of Foster's life,
+- [01:10:50.870] his service, his sacrifice,
+- [01:10:52.570] and so many warriors like him who came before us,
+- [01:10:55.140] Marines in Belleau Woods and Iwo Jima,
+- [01:10:57.300] Inshon and Kaesong, Ramadi, Helmand Province,
+- [01:11:00.490] all those who rose to the occasion
+- [01:11:01.940] in every battle our nation has engaged in since 1775.
+- [01:11:05.790] Marines like Dakota Myers, who you heard earlier,
+- [01:11:07.990] and Kyle Carpenter.
+- [01:11:09.480] The list of our Titans goes on and on.
+- [01:11:11.630] And as I think about them and the selfless acts of courage
+- [01:11:14.760] they displayed on the field, I can't help but ask myself,
+- [01:11:18.280] where in this day and age can we find such incredible warriors?
+- [01:11:22.400] Where can we fine those with the desire, the grit,
+- [01:11:24.620] and willingness
+- [01:11:25.860] to lay everything down for the sake of others?
+- [01:11:29.640] The answer is right here.
+- [01:11:31.980] It's you, because I truly believe
+- [01:11:34.190] that inside the heart of every Marine
+- [01:11:35.970] and Fleet Marine Force sailor is the same warrior spirit
+- [01:11:38.810] that led Foster Harrington outside of cover and concealment
+- [01:11:41.830] to lead a fellow Marine to safety.
+- [01:11:43.660] Now, I don't know what that does for you,
+- [01:11:45.680] but I can tell you what it did for me.
+- [01:11:48.140] In 2003, I had the opportunity to serve on a contract
+- [01:11:51.560] with the JSOC Task Force, and over the following years,
+- [01:11:55.380] I did eight consecutive deployments to Afghanistan.
+- [01:11:57.700] It was an honor in my life
+- [01:11:58.910] to get to represent the reconnaissance community
+- [01:12:00.890] and the Marine Corps at what I believe
+- [01:12:02.420] to be our premier special operations unit in the world.
+- [01:12:06.090] And over my time there,
+- [01:12:07.400] there were some great successes that I'm very proud of,
+- [01:12:10.420] but there was also some hard losses.
+- [01:12:12.500] I lost a number of friends, some Americans,
+- [01:12:15.430] and some Afghan teammates.
+- [01:12:17.250] We have many wartime allies that we served alongside with,
+- [01:12:19.860] especially in Afghanistan, like my brother Aziz,
+- [01:12:22.280] who I did all my deployments with,
+- [01:12:23.640] who's right here in this crowd.
+- [01:12:24.880] And I'm thankful for him and our wartime alias
+- [01:12:26.930] that served alongside of us.
+- [01:12:33.830] Like many warriors before us,
+- [01:12:36.000] I came home and struggled with many of the same experiences.
+- [01:12:38.750] I dealt with debilitating panic attacks, anxiety, depression,
+- [01:12:41.900] and it almost cost me everything to include my family
+- [01:12:44.970] and a personal battle
+- [01:12:46.270] with becoming another veteran's suicide statistic.
+- [01:12:49.100] There are a lot of things that played a role
+- [01:12:50.610] in my recovery—friends, family, getting active again.
+- [01:12:54.290] But nothing was more profound than the restoration of my faith
+- [01:12:56.710] and committing my life to Jesus. The Marine Corps calls this --.
+- [01:13:00.120] (applause)
+- [01:13:03.110] The Marine Corps calls this our spiritual pillar,
+- [01:13:05.090] and it is the foundation of our pillars of resiliency.
+- [01:13:08.090] And through that decision I found restoration,
+- [01:13:10.600] I found hope, and I found purpose.
+- [01:13:12.800] And when I came to a place of clarity,
+- [01:13:14.800] I looked back to Foster Harrington and others like him,
+- [01:13:17.650] and thought about their lives, and about their sacrifice,
+- [01:13:20.310] and became both convicted and challenged
+- [01:13:22.620] to live my life to the absolute fullest,
+- [01:13:25.450] and live it with purpose. To not mourn their death,
+- [01:13:28.100] but embrace the life and freedoms that they died for.
+- [01:13:30.740] That's part of being here with you today.
+- [01:13:32.670] Passing on the lessons from one generation of Marines
+- [01:13:35.340] to the next. 250 years in and still going.
+- [01:13:39.880] Life as a Marine is hard,
+- [01:13:42.070] but being a Marine is special because it is hard.
+- [01:13:45.640] And as a marine, you will be asked to do hard things.
+- [01:13:48.880] But when it gets hard, you can always look back
+- [01:13:50.390] and remember those who came before you.
+- [01:13:52.520] We have an incredible heritage of legends
+- [01:13:54.590] like Foster Harrington to learn from,
+- [01:13:56.400] those who challenged us to dig in
+- [01:13:57.740] when we were called to do the impossible,
+- [01:13:59.700] and respond with the words
+- [01:14:01.150] we read in scripture from Isaiah 6:8.
+- [01:14:04.010] When asked, who shall I send and who will go for us?
+- [01:14:06.630] And I responded, here am I. Send me.
+- [01:14:10.390] Marines and sailors, never in my lifetime,
+- [01:14:12.910] and I've been around this gun club for 30 years now,
+- [01:14:15.850] never have we been more supported by leadership
+- [01:14:18.210] from the top.
+- [01:14:19.460] You have a president and vice president
+- [01:14:21.170] who love you, believe in you,
+- [01:14:22.850] and, I can tell you from being in D.C.,
+- [01:14:24.730] behind the closed curtains,
+- [01:14:26.130] they're doing everything they can to support you.
+- [01:14:28.480] You have the Secretary of War,
+- [01:14:29.880] and by the way, I love that, secretary of the war.
+- [01:14:31.470] I don't know if anybody else feels the same way.
+- [01:14:34.550] I don't like being on defense, I like being a war fighter,
+- [01:14:37.420] but we have a Secretary of War, Pete Heksef,
+- [01:14:39.140] who I love, by the way, but based on his PT scores,
+- [01:14:42.330] I think he should have been a Marine.
+- [01:14:43.660] I don't know why he chose to be on the B Team,
+- [01:14:45.710] but nonetheless, we love him. He's an incredible leader,
+- [01:14:49.540] and he is focused on our readiness, our lethality,
+- [01:14:52.880] and supporting you to do your jobs.
+- [01:14:54.500] We are blessed and equipped, and this is a time to celebrate.
+- [01:14:57.510] So happy 250 years of being part of the greatest fighting force
+- [01:15:01.380] the world has ever The United States Marine Corps
+- [01:15:04.370] Semper Fidelis. God bless you. Hurrah!
+- [01:15:07.850] ♪ (rock music playing) ♪
+- [01:15:23.540] Male Speaker: You can only pick one branch.
+- [01:15:25.470] Which one are you taking?
+- [01:15:27.000] Marines, Marines, Marines, Marines, Marines, Marines,
+- [01:15:30.320] Marines, Marines, Marines, Marines, Marines, Marines,
+- [01:15:33.410] Marines, Marines, Marine Corps, Marines, Marines, Marines.
+- [01:15:37.080] And of course, Semper Fidelis.
+- [01:15:39.430] Male Speaker: Yeah, Semper Fi.
+- [01:15:42.350] Male Speaker: Ladies and gentlemen,
+- [01:15:43.580] please welcome retired U.S. Navy SEAL commander
+- [01:15:46.680] and best-selling author, Jocko Willink.
+- [01:15:51.240] ♪ (rock music playing) ♪
+- [01:16:21.590] Jocko Willink: All right, Marines,
+- [01:16:23.670] I want to let you know that I consider you to be my brothers.
+- [01:16:28.150] And I want tell you why that is.
+- [01:16:31.710] First of all, it's because I grew up
+- [01:16:33.790] in the SEAL teams down in Coronado,
+- [01:16:36.110] and we came up here and worked with Marines
+- [01:16:38.350] all the time throughout my career.
+- [01:16:41.610] I did workups right here at Camp Pendleton.
+- [01:16:44.760] Did hydrographic reconnaissance on Red Beach?
+- [01:16:48.460] Yeah, hiked up Las Pulgas Canyon,
+- [01:16:51.880] launched boats out of the Del Mar Boat Basin, get some!
+- [01:16:57.860] And working with the Marines back then,
+- [01:16:59.180] that's when I first learned about the professionalism
+- [01:17:02.460] and the expertise of the Marine Corps.
+- [01:17:07.410] But, when the war started,
+- [01:17:11.230] I had the honor of seeing Marines in action, real action.
+- [01:17:17.360] Specifically for me, in the Battle of Ramadi in 2006,
+- [01:17:22.930] fighting alongside 38, 16, Anglico,
+- [01:17:32.130] I saw with my own eyes the glory that is the Marine Corps.
+- [01:17:40.500] Now, it was the 38 Marines, Lima Company,
+- [01:17:45.940] that showed us the ropes when we got to Ramadi.
+- [01:17:49.260] They taught us the tactics that they were using,
+- [01:17:52.600] they briefed us on how the enemy fought,
+- [01:17:56.640] they took us on patrols to familiarize us with the AO.
+- [01:18:02.540] We also learned from Kilo Company
+- [01:18:05.500] that was down at the Gov Center. Where they were fighting daily,
+- [01:18:11.910] daily gun battles with insurgents.
+- [01:18:14.820] And there is no doubt, no doubt that the lessons that we learned
+- [01:18:19.460] from those Marines made us more lethal and kept us alive.
+- [01:18:26.630] But it's not only what they taught us,
+- [01:18:29.720] on many occasions Marines aggressively answered the call
+- [01:18:35.860] and provided QRF and fire support that crushed the enemy
+- [01:18:40.980] and got my SEALs out of some pretty rough spots.
+- [01:18:45.500] And we in the SEAL teams will never forget that.
+- [01:18:49.460] We also conducted countless operations with Anglico.
+- [01:18:53.800] We patrolled streets with them, we cleared buildings with them.
+- [01:18:56.860] We set up sniper overwatch positions with them
+- [01:18:59.590] and they were outstanding.
+- [01:19:00.940] Outstanding Marines, in every respect.
+- [01:19:08.310] But this was a tough deployment.
+- [01:19:11.980] Soldiers and Marines were wounded
+- [01:19:14.330] and killed in Ramadi every day
+- [01:19:18.700] We were fighting against a demonic and determined enemy.
+- [01:19:25.570] An enemy with no rules of engagement.
+- [01:19:29.500] No respect for the civilian populace
+- [01:19:31.670] and no value for human life.
+- [01:19:36.270] And one day, after some of my SEALs
+- [01:19:39.730] turned over a rooftop position to our Anglico brothers,
+- [01:19:44.060] one of those men, Corporal Chris Leon,
+- [01:19:49.710] who was a complete stud of a Marine.
+- [01:19:54.980] He was shot and killed by a single wretched enemy bullet.
+- [01:20:03.660] And Chris Leon was the first Anglico Marine
+- [01:20:07.340] that was killed in Iraq, and he died doing his duty,
+- [01:20:12.440] scanning for the enemy
+- [01:20:15.000] and protecting the troops on the streets below.
+- [01:20:26.790] And a short while later, on August 2, 2006,
+- [01:20:33.190] Mark Lee became the first seal killed in Iraq
+- [01:20:38.490] when he was hit by enemy machine gun fire
+- [01:20:43.160] while assaulting a building in South Ramadi.
+- [01:20:49.010] And later that evening on August 2nd.
+- [01:20:54.040] We mustered at the airfield on Camp Ramadi
+- [01:20:58.720] to send Mark home on his final flight back to America
+- [01:21:06.610] And when we got there,
+- [01:21:07.960] we discovered that he would not be alone on that journey.
+- [01:21:14.610] Because earlier that same morning, Corporal Joe Tomsie,
+- [01:21:20.060] 4th Platoon, Lima Company, 3-8 Marines,
+- [01:21:23.750] one of the outstanding Marines who had taught us
+- [01:21:26.770] how to effectively fight this battle.
+- [01:21:32.790] He was killed by an IED while he was on patrol in North Ramadi.
+- [01:21:40.290] So we SEALs and Marines together,
+- [01:21:47.140] bonded by blood as brothers,
+- [01:21:51.450] we stood side by side and loaded those two fallen warriors
+- [01:21:58.930] onto a Marine Corps CH-46 for their last flight home.
+- [01:22:08.610] And many more brave souls made the ultimate sacrifice
+- [01:22:13.440] on that brutal battlefield.
+- [01:22:27.720] And we will never forget them.
+- [01:22:33.320] And that is one of the reasons why I consider Marines
+- [01:22:38.040] to be my brothers. But there is another reason.
+- [01:22:42.220] And the other reason is actual, actual brotherhood.
+- [01:22:48.020] Because you see, Mark Lee, the first SEAL killed in Iraq.
+- [01:22:55.200] His brother, Chris Lee, he was a Marine.
+- [01:23:02.290] And Ryan Job, one of my other SEALs in Ramadi.
+- [01:23:09.520] Was shot in the face, was gravely wounded,
+- [01:23:11.930] and who later died of his wounds.
+- [01:23:16.210] His brother, Aaron Job, he was a Marine.
+- [01:23:24.430] And finally, Michael Monsoor. Another SEAL with us in Ramadi.
+- [01:23:34.630] Who jumped on a grenade and sacrificed his life
+- [01:23:39.520] to save three of our other teammates
+- [01:23:41.970] who was posthumously awarded the Medal of Honor.
+- [01:23:47.630] While Mikey Monsoor's father, George,
+- [01:23:52.110] was a Marine who served in Vietnam.
+- [01:23:56.650] And Mikey's two brothers, both of his brothers,
+- [01:24:00.760] Joe and Jim. They're also Marines.
+- [01:24:07.580] And that is why it is an honor to be here today.
+- [01:24:12.040] That is why, it is honor to call you all my brothers.
+- [01:24:18.500] And that's also why -- that is also why I know.
+- [01:24:37.010] I know that despite all the people
+- [01:24:42.120] that fear the rise of evil in the world,
+- [01:24:46.220] despite all the people who are concerned
+- [01:24:49.430] about the future of freedom, and despite all of the people
+- [01:24:53.770] that are concerned with the fate of our great nation,
+- [01:24:59.080] I can tell you this, I am not concerned at all
+- [01:25:04.770] because I know that no matter what happens there are some men,
+- [01:25:13.200] there are a few good men and women called Marines.
+- [01:25:21.280] And I know that you will never back down.
+- [01:25:25.310] I know you will not surrender.
+- [01:25:27.890] I know that you'll uphold the ideals of this blessed country.
+- [01:25:34.020] And I now that with fire and steel and sweat and blood,
+- [01:25:43.540] you, every one of you, will uphold the heroic ideals
+- [01:25:50.370] of the United States Marine Corps.
+- [01:25:55.590] And that's what I got, devil dogs.
+- [01:25:57.590] Happy birthday, guns up, Semper Fi!
+- [01:26:01.910] ♪ (rock music playing) ♪
+- [01:26:15.350] Announcer: Ladies and gentlemen,
+- [01:26:17.190] please direct your attention to the video screens
+- [01:26:20.570] for the world premiere,
+- [01:26:22.330] an exclusive release of the full 250th birthday message
+- [01:26:27.630] from the 39th Commandant and 20th Sergeant Major
+- [01:26:31.360] of the United States Marine Corps.
+- [01:26:40.150] Male Speaker: Since the birth of the Core,
+- [01:26:42.390] we have answered the call.
+- [01:26:45.450] Through every battle, every climb, and every place.
+- [01:26:57.450] No matter the odds, no matter the ops,
+- [01:27:02.340] we adapt, we overcome, and close with and destroy the enemy.
+- [01:27:09.190] We know the future will not be the same,
+- [01:27:12.510] but the one thing we know will always remain is the Marine.
+- [01:27:52.850] For 250 years, we have formed ranks and held the line.
+- [01:27:57.920] We will in the next 250.
+- [01:28:04.700] Male Speaker: Marine Corps is a far-flung organization.
+- [01:28:09.560] Detachments of Marines are serving in every Navy out,
+- [01:28:13.970] Naval Station, and guarding every naval activity
+- [01:28:17.340] everywhere else in the world.
+- [01:28:21.430] I visited a great many of those places.
+- [01:28:24.770] Everywhere I heard expressions of goodwill towards the Marines.
+- [01:28:30.840] Everywhere I observed the friendly relations
+- [01:28:34.640] existing between the people and the Marines."
+- [01:28:38.780] Male Speaker: For two and a half centuries,
+- [01:28:41.020] we have shouldered the responsibility of freedom
+- [01:28:43.400] on behalf of our nation. Every battle fought,
+- [01:28:48.100] every sacrifice made has been etched into our legacy.
+- [01:28:52.680] Male Speaker: We're Marines.
+- [01:28:53.980] We always find a way to work things out.
+- [01:28:56.300] No matter what happens anywhere,
+- [01:28:58.420] we can make something happen that'll turn the tide of battle.
+- [01:29:02.720] Female Speaker: We are that adaptable
+- [01:29:04.230] to whatever the situation is.
+- [01:29:07.000] We trust our corporals with more responsibility,
+- [01:29:09.340] our lieutenants with more responsibilities,
+- [01:29:11.000] our lieutenant colonels with more responsibility
+- [01:29:12.670] than any other branch of service because we do more with less.
+- [01:29:16.290] There's no other branch that can do that.
+- [01:29:18.730] Male Speaker: It's by far the greatest institution still,
+- [01:29:21.320] in my mind, on the face of the planet.
+- [01:29:23.040] Because not everybody can be a Marine.
+- [01:29:25.000] You have to earn the Eagle Globe and Anchor.
+- [01:29:27.340] And I think that's what attracts the type of people
+- [01:29:29.250] that the Marine Corps has.
+- [01:29:31.350] Male Speaker: Every Marine who has earned the Eagle Globe
+- [01:29:33.570] and Anchor bears a responsibility
+- [01:29:35.680] that stands the test of time to the Marines past,
+- [01:29:39.470] present, and future.
+- [01:29:41.900] Male Speaker: We don't join the Marine Corps.
+- [01:29:44.260] We are the Marine Corp.
+- [01:29:45.820] Corp of our being is that we're convinced
+- [01:29:47.920] we're the best fighting force in the world.
+- [01:29:50.200] And the truth is we are.
+- [01:29:53.000] Male Speaker: I believe the immediate bond
+- [01:29:54.270] between Marines is so strong
+- [01:29:55.500] just because of the way we're trained.
+- [01:29:57.270] We have a very specific niche culture of greatness,
+- [01:30:01.990] our heritage, our warrior ethos.
+- [01:30:04.250] I think all those things separate us
+- [01:30:07.150] and we find them in each other.
+- [01:30:09.710] Female Speaker: You may have a reason why you join,
+- [01:30:11.230] but there's a reason you stay.
+- [01:30:12.820] You stay because of everything you're learning
+- [01:30:14.910] about how to be a warrior,
+- [01:30:17.110] how to maintain those warrior ethics,
+- [01:30:19.110] so that when that bomb goes off, you're ready to do your part.
+- [01:30:23.970] Male Speaker: As Marines, our warrior mindset
+- [01:30:26.570] is something that can never be defeated.
+- [01:30:29.790] For 250 years, the Marine Corps has been successful
+- [01:30:32.960] because that's the only option. Success is all we know.
+- [01:30:37.400] Male Speaker: The character of war has
+- [01:30:38.920] and will continue to change.
+- [01:30:41.480] We have adapted, evolved, and innovated,
+- [01:30:44.800] but our warrior spirit remains consistent.
+- [01:30:50.260] Male Speaker: The nature of war is taking something
+- [01:30:52.870] that somebody else has that you want and it's never changed,
+- [01:30:56.340] probably never will change.
+- [01:30:58.180] Male Speaker: The character of war, however,
+- [01:30:59.920] has changed a lot.
+- [01:31:01.590] World War II, we used ships, planes, bombs.
+- [01:31:06.070] All the way to today, we use, as you can tell by the news,
+- [01:31:08.980] we use ships, planes, bombs.
+- [01:31:11.080] We just have a lot better technology.
+- [01:31:14.090] Male Speaker: I don't know that one battlefield's ever been
+- [01:31:15.660] the same for any generation.
+- [01:31:17.860] The types of war, the ways of war.
+- [01:31:19.810] All that is constantly going to be changing.
+- [01:31:23.600] What's going to decide our next and our future wars
+- [01:31:26.160] is not going to be the technology,
+- [01:31:27.670] it's not going to money, it's going to be level
+- [01:31:29.970] of the belief of our people of what they believe in
+- [01:31:33.290] and the standards that they hold themselves to.
+- [01:31:37.340] Male Speaker: We are more lethal, more capable,
+- [01:31:39.370] and more ready than ever,
+- [01:31:40.730] while grounded in the traditions that made us who we are.
+- [01:31:44.930] We will not win the next fight on platforms alone.
+- [01:31:48.780] It is the Marine who will break the will of the enemy.
+- [01:31:52.240] Male Speaker: As Marines,
+- [01:31:53.470] I believe the most powerful aspect of our training
+- [01:31:57.950] is such an important part of who we are,
+- [01:32:00.440] holding on to that history that came before us.
+- [01:32:03.460] The Marine Corps is lethal because of our willingness
+- [01:32:06.580] and our eagerness
+- [01:32:07.910] to take the fight to the enemy in any climb or place
+- [01:32:12.100] and win those battles, sometimes at any cost.
+- [01:32:19.730] Male Speaker: Our history is not only a story of battles won,
+- [01:32:23.820] it is a story people, of commitment, of family.
+- [01:32:30.360] An unbreakable bond that transcends ranks
+- [01:32:33.200] and lasts a lifetime.
+- [01:32:36.580] Male Speaker: I think the only way to honor them
+- [01:32:38.470] is to live a life that's worthy of their sacrifices.
+- [01:32:42.200] The only way you can do that is by going out
+- [01:32:44.120] and being the best that you can be.
+- [01:32:46.720] By going out, by still upholding those standards as a Marine,
+- [01:32:49.830] by celebrating them, by telling their stories
+- [01:32:52.280] and giving the next generation some legacy to live up to.
+- [01:32:57.890] Male Speaker: Cream rises to the top.
+- [01:33:01.350] And that's what we have in the Marine Corps today.
+- [01:33:03.830] The Marine Corps is the operational Marine Corps.
+- [01:33:07.500] But there's another aspect of the Marine Corp.
+- [01:33:09.760] It's the former Marines or former active duty
+- [01:33:16.540] who are out there in all walks of life.
+- [01:33:20.890] It's amazing when you think of it.
+- [01:33:24.040] Male Speaker: Being in service was a privilege.
+- [01:33:25.600] It was the best time of our lives, but it was a sacrifice,
+- [01:33:30.600] and your family is part of that sacrifice,
+- [01:33:33.400] and Marine wives or Marine spouses,
+- [01:33:36.440] they deserve a lot of credit as well.
+- [01:33:38.220] The kids being uprooted, moving,
+- [01:33:41.300] it's a sacrifice to serve our country.
+- [01:33:45.000] Female Speaker: Without the support of their loved ones
+- [01:33:47.630] and their immediate family,
+- [01:33:50.220] it's hard for them to complete their job.
+- [01:33:51.940] So again, it's just, it's so important for military families
+- [01:33:58.080] and Marine Corps families to understand
+- [01:34:00.420] that their role and the role
+- [01:34:02.990] that they play in supporting their loved one
+- [01:34:05.690] while serving is just as important.
+- [01:34:09.770] Male Speaker: For 250 years we have proven
+- [01:34:11.890] there is no better friend
+- [01:34:13.680] and no worse enemy than a U.S. Marine.
+- [01:34:17.690] Male Speaker: For those people who wish evil
+- [01:34:20.190] upon the greater good, David Bellavia said it best,
+- [01:34:23.920] somebody else will raise your children.
+- [01:34:28.650] Female Speaker: To the enemies of our nation,
+- [01:34:29.970] don't get comfortable.
+- [01:34:32.870] Whether you're in the air, at sea,
+- [01:34:35.380] or on the ground, we adapt.
+- [01:34:38.020] We always have, and we always will.
+- [01:34:42.670] Male Speaker: If it comes down to one-on-one, mano a mano,
+- [01:34:45.830] and you turn us loose, I can promise you this.
+- [01:34:50.420] You're not going to survive.
+- [01:35:07.850] Male Speaker: From our first amphibious landing at Nassau
+- [01:35:10.220] to the black sands of Iwo Jima to urban combat in Fallujah,
+- [01:35:14.180] our Corps has come a long way since Samuel Nichols
+- [01:35:17.070] first took command of two battalions at Tun Tavern.
+- [01:35:20.200] Though weapons, platforms,
+- [01:35:21.740] and technology continue to evolve,
+- [01:35:23.850] our individual Marines' grit, discipline,
+- [01:35:26.690] resolve remain our decisive advantage.
+- [01:35:30.020] Male Speaker: For two and a half centuries,
+- [01:35:31.710] Marines have preserved our legacy
+- [01:35:33.180] as America's premier expeditionary force.
+- [01:35:36.070] Because we are forward, ready, and lethal.
+- [01:35:38.920] For the moment a Marine earns their eagle, glove,
+- [01:35:40.910] and anchor, they inherit a rich tradition of honor,
+- [01:35:44.050] courage, and commitment.
+- [01:35:45.710] A legacy that is etched on our souls forever.
+- [01:35:48.880] Our history is one of winning our nation's battle.
+- [01:35:51.350] And make no mistake, we will be called to fight again.
+- [01:35:54.550] We will be ready. And we will win.
+- [01:35:57.050] Male Speaker: Since our foundation,
+- [01:35:58.540] we have fought in every climb and place,
+- [01:36:00.730] upholding our oath and preserving who we are,
+- [01:36:03.800] the few and the proud, but we cannot break stride.
+- [01:36:07.500] We must continue to train for the next fight,
+- [01:36:10.090] because victory will go to those who seize the initiative,
+- [01:36:13.170] impose their will, and never yield.
+- [01:36:16.150] The pursuit of excellence in the profession of arms
+- [01:36:18.720] is our heritage.
+- [01:36:20.200] Forged by an unbreakable fighting spirit,
+- [01:36:23.160] the memorial behind us stands as a testament to that fact.
+- [01:36:27.320] We stand on the shoulders of the giants that came before us.
+- [01:36:31.080] We must not fail them.
+- [01:36:32.910] The challenge is on all of us every day
+- [01:36:35.500] to uphold the standard that the title Marine demands.
+- [01:36:39.760] Happy 250th birthday, Marines. Semper Fidelis.
+- [01:36:55.060] Announcer: Ladies and gentlemen, at this time,
+- [01:36:57.910] we would like to acknowledge the exceptional leadership,
+- [01:37:00.920] dedication, and unwavering support provided
+- [01:37:04.210] by Lieutenant General Christian F. Wartman,
+- [01:37:06.900] Commanding General, 1st Marine Expeditionary Force,
+- [01:37:10.750] Vice Admiral John F. Wade, Commander, U.S. 3rd Fleet,
+- [01:37:15.950] and Brigadier General Michael R. Nakenizi,
+- [01:37:18.880] Deputy Commanding First Marine Expeditionary Force,
+- [01:37:22.780] today's demonstration of military might.
+- [01:37:25.200] And the grit shown by the Marines and Sailors
+- [01:37:27.180] participating is a direct result of your leadership, expertise,
+- [01:37:32.110] and steadfast devotion to mission success.
+- [01:37:35.000] The scope of your accomplishment here
+- [01:37:37.200] is unprecedented in this century.
+- [01:37:39.630] The American people can take comfort
+- [01:37:42.140] in our military's readiness to defend the homeland
+- [01:37:44.840] and our nation's interest abroad.
+- [01:38:08.520] ♪ (somber music playing) ♪
+- [01:38:15.930] Male Speaker: Ever since men and women
+- [01:38:17.240] have walked on the earth, they've dreamed of flying.
+- [01:38:22.490] They wondered what the birds could see that they could not.
+- [01:38:27.200] Even 500 years ago,
+- [01:38:29.190] artist and inventor Leonardo da Vinci dreamed of flight
+- [01:38:33.310] and made drawings of a flying machine.
+- [01:38:38.240] But it wasn't until 1903 that two brothers from Dejan, Ohio,
+- [01:38:43.150] Wilbur and Orville Wright built a powered airplane
+- [01:38:46.940] and overcame gravity and taught the world to fly.
+- [01:38:55.520] And that's what we're going to do today, Camp Pendleton.
+- [01:38:58.350] We are going to fly.
+- [01:39:02.130] Good afternoon, ladies and gentlemen, and boys and girls.
+- [01:39:04.990] The 2025 beach blast is about to begin.
+- [01:39:10.380] In the next few hours, you're going to see
+- [01:39:12.840] the Navy's precision parachute team, the Leapfrogs.
+- [01:39:17.630] You'll get a close look at the Navy F-35C Lightning II.
+- [01:39:23.530] The Navy's first stealth fighter.
+- [01:39:26.330] We'll see the EA-18G Growler electronic warfare aircraft.
+- [01:39:32.730] We're going to see one of the most unique aircraft
+- [01:39:35.070] in the world, the Tiltrotor, the MB-22 Osprey.
+- [01:39:40.330] We'll a flag presentation flyby and also,
+- [01:39:44.790] we'll see the Marines' own F-
+- [01:39:47.440] 35 Lightning II right here at the beach at Camp Pendleton.
+- [01:39:52.910] Come on Marines, let's get some noise going.
+- [01:39:57.370] All of this in the air as we celebrate,
+- [01:40:01.440] as we aviate and as we commemorate.
+- [01:40:05.220] It's a great day to wave the flag as we celebrated
+- [01:40:08.710] this 250th birthday of the Navy and Marine Corps.
+- [01:40:12.840] Ladies and gentlemen, the 2025 Beach Blast starts now.
+- [01:40:20.540] Hello everybody, I'm Rob Ryder. I'm from Cincinnati, Ohio,
+- [01:40:24.330] and I am deeply honored to be able to bring you
+- [01:40:27.150] the action this afternoon here at the Beach Blast.
+- [01:40:30.570] In a moment, we're going to see coming overhead.
+- [01:40:36.010] The U.S. Navy Leapfrogs.
+- [01:40:38.080] They are the precision parachute team of the United States Navy.
+- [01:40:41.950] All Navy SEALs.
+- [01:40:44.690] And we're going to get a close look at two versions
+- [01:40:48.180] of the United States Military's Joint Strike Fighter, the F-35
+- [01:40:54.260] Lightning II,
+- [01:40:55.910] the C model, representing the United State Navy,
+- [01:41:00.590] and the B model that has replaced
+- [01:41:04.990] The AV-8B Harrier II is the Navy's premier,
+- [01:41:08.880] as is the Marine Corps's premier short takeoff
+- [01:41:12.950] and vertical landing aircraft.
+- [01:41:15.340] Shortly, if you will look off to your right,
+- [01:41:18.390] you will see a C-130
+- [01:41:20.480] Hercules from the United States Navy.
+- [01:41:24.790] And aboard are the members of the Leapfrogs.
+- [01:41:28.670] They will be jumping from about 6,000 feet
+- [01:41:32.540] as they exit the aircraft.
+- [01:41:35.130] They will reach terminal velocity
+- [01:41:39.420] 120 miles per hour, high and to your right,
+- [01:41:45.450] just to the north of center point here at the show.
+- [01:41:49.050] There's that C-130. The C-130
+- [01:41:52.650] Hercules has been around since the mid-1950s
+- [01:41:55.830] and continues to serve our United States military today
+- [01:42:00.580] and the militaries of a number of different countries
+- [01:42:03.210] around the world. Over 2,500 have been built.
+- [01:42:08.700] And they are still coming off the production line new at
+- [01:42:13.600] Lockheed Martin's Marietta, Georgia production facility.
+- [01:42:21.060] Jumpers are away!
+- [01:42:25.460] All of our jumpers originally learned
+- [01:42:27.550] the skill of military free fall as part of the extensive
+- [01:42:30.870] SEAL training pipeline
+- [01:42:32.620] prior to joining the operational SEAL team.
+- [01:42:35.950] SEAL Team operators train
+- [01:42:37.510] extensively in tactical parachuting,
+- [01:42:40.080] providing the capability to penetrate denied
+- [01:42:42.890] or contested areas, virtually undetected.
+- [01:42:46.550] Though today's demonstration takes place in broad daylight,
+- [01:42:50.070] these missions are typically conducted
+- [01:42:52.240] under cover of darkness. Over both land and sea.
+- [01:43:05.550] If you will look carefully, high and above, on the right,
+- [01:43:12.260] three parachutists have come together.
+- [01:43:18.940] It's a three stack.
+- [01:43:20.610] This daring maneuver begins at approximately 2,500 feet.
+- [01:43:25.290] They will fly their open parachutes into each other.
+- [01:43:28.160] They stacked their canopies vertically.
+- [01:43:30.710] The bottom SEAL then climbs up his teammates legs,
+- [01:43:34.850] locking legs together
+- [01:43:36.410] and flipping his parachute upside down.
+- [01:43:39.320] This display of teamwork and precision
+- [01:43:41.480] requires the bottom two SEALs
+- [01:43:43.590] to hold the formation together with their legs, while the top
+- [01:43:47.070] SEAL navigates them to the drop zone.
+- [01:43:50.290] When they reach about 800 feet, the pilot will release,
+- [01:43:53.310] allowing the two lower parachutists to separate
+- [01:43:56.670] and accelerate toward the ground at 50 miles per hour
+- [01:44:00.100] before releasing their legs at just 400 feet
+- [01:44:03.260] above the drop zone.
+- [01:44:09.190] You can see that one of the jumpers is upside down,
+- [01:44:12.720] almost directly overhead.
+- [01:44:23.360] Check one, two.
+- [01:44:29.350] Now, ladies and gentlemen, high and above the two jumpers
+- [01:44:34.420] are now in a down plane with the American flag.
+- [01:45:27.220] As the flag approaches the ground,
+- [01:45:29.660] we ask that you stand as the official presentation
+- [01:45:33.030] of the colors takes place,
+- [01:45:34.720] represented by members of the Marine Ceremonial Guard.
+- [01:45:41.210] (military drill commands)
+- [01:46:07.020] Announcer: Ladies and gentlemen,
+- [01:46:08.760] please stand for the singing of our national anthem.
+- [01:46:19.320] ♪ (The Star Spangled Banner) ♪
+- [01:47:52.045] (military drill commands)
+- [01:48:10.770] ♪ (military band music) ♪
+- [01:48:36.495] (military drill commands)
+- [01:48:47.720] Announcer: Ladies and gentlemen,
+- [01:48:48.990] please welcome the Chief of Naval Operations,
+- [01:48:52.300] Admiral Daryl Caudle.
+- [01:48:55.520] ♪ (rock music playing) ♪
+- [01:49:15.610] Daryl Caudle: All right.
+- [01:49:17.040] Well, good afternoon, Camp Pendleton.
+- [01:49:22.120] It is an honor to be here with the warfighters
+- [01:49:24.980] who make Southern California the front line of building,
+- [01:49:29.160] training, and delivering our maritime combat power.
+- [01:49:33.160] We just had a greatest opportunity ever returning
+- [01:49:36.960] from a world life experience of exceptional amphibious
+- [01:49:41.190] demonstration off the coast. And let me tell you,
+- [01:49:44.950] your Navy Marine Corps team absolutely crushed it.
+- [01:49:49.770] Mr. Vice President, thank you for joining us today,
+- [01:49:53.130] witnessing firsthand the integrated strength
+- [01:49:55.850] of integrated sea power. I'm sure this brought back
+- [01:49:59.130] some vivid memories of your time in uniform.
+- [01:50:02.060] It's great to welcome you back among your Marines.
+- [01:50:05.760] Secretary of War Hegseth,
+- [01:50:07.870] thank you your steadfast support of our men and women in uniform
+- [01:50:12.990] and your focus on uncompromising standards.
+- [01:50:16.510] You continue to be a tireless champion of the warfighter
+- [01:50:20.740] and the ethos required to win in combat.
+- [01:50:24.850] Secretary Phelan, as always, sir,
+- [01:50:27.440] a pleasure to be your wingman.
+- [01:50:29.550] Thank you for your leadership and partnership.
+- [01:50:32.780] From robust ship-to-shore operations,
+- [01:50:35.330] to close-in air support,
+- [01:50:37.260] to seamless hand-offs between blue and green forces,
+- [01:50:40.940] what we witnessed today was not just a demo,
+- [01:50:44.220] but a textbook execution of integrated all-domain warfare.
+- [01:50:49.230] That kind of performance doesn't just happen.
+- [01:50:52.430] It's forged through discipline, training,
+- [01:50:55.110] and a unified commitment to mission success.
+- [01:50:58.980] No other maritime force on Earth
+- [01:51:01.720] can generate and project combat power
+- [01:51:04.180] with this level of speed, scale, and synchronization.
+- [01:51:08.030] Let's give a round of applause to the men and women
+- [01:51:10.600] who made this happen.
+- [01:51:13.340] (applause)
+- [01:51:19.880] Daryl Caudle: As your Chief of Naval Operations,
+- [01:51:21.850] I couldn't be more proud to represent
+- [01:51:24.130] this extraordinary team.
+- [01:51:25.900] You embody what it means to be forward, focused, and lethal.
+- [01:51:30.440] Whether you're on the bridge, in the cockpit,
+- [01:51:33.650] in the whale deck, or on the beach,
+- [01:51:35.680] we're all part of a single integrated fight.
+- [01:51:38.690] For over 250 years it's been this unity
+- [01:51:42.010] between sailors and Marines
+- [01:51:43.740] that has given our nation the decisive edge,
+- [01:51:46.900] from the shores of Tripoli to the waters off the Red Sea.
+- [01:51:50.760] And today, as then, we stand to watch,
+- [01:51:53.680] together, delivering maritime dominance
+- [01:51:56.510] and extending America power from sea to shore.
+- [01:52:00.470] In January, the President gave us a clear charge.
+- [01:52:04.060] Defend the homeland, deter aggression,
+- [01:52:06.940] project strength through an all-domain integrated force.
+- [01:52:10.580] And that's exactly what we've been doing day in and day out.
+- [01:52:14.900] Across every ocean and every contested region,
+- [01:52:17.910] our Navy Marine Corps team is leading from the front,
+- [01:52:21.170] reassuring our allies, restoring deterrence,
+- [01:52:24.860] and responding with precision and resolve when called.
+- [01:52:28.820] And you have just shown the world
+- [01:52:30.320] that American sea power is not just a concept,
+- [01:52:33.920] it's an unmatched capability.
+- [01:52:35.970] And you, all of you, our sailors and Marines
+- [01:52:39.390] are the competitive edge,
+- [01:52:41.230] the enduring advantage that no adversary can match.
+- [01:52:45.540] Today, we were able to get a glimpse
+- [01:52:47.910] into why the Navy and Marine Corps team
+- [01:52:50.060] operates as a joint force all to itself.
+- [01:52:54.210] You showcased why our amphibious forces
+- [01:52:56.770] remain vital to winning future conflicts,
+- [01:52:59.600] and this, this is just the beginning of what we can become.
+- [01:53:04.380] We are the operational overmatch,
+- [01:53:06.980] agile, persistent, and expeditionary.
+- [01:53:09.790] We bring unrivaled combat flexibility,
+- [01:53:12.840] delivering force and options from seed
+- [01:53:15.370] to the fight on our terms and on our timeline.
+- [01:53:19.700] I want to close by thanking all of you
+- [01:53:22.190] and your families for your service,
+- [01:53:24.820] your sacrifice, and your commitment.
+- [01:53:27.250] You make our team what it is.
+- [01:53:29.680] It is an honor to serve with you.
+- [01:53:31.780] Thank you and Semper Fortis.
+- [01:53:35.190] ♪ (rock music playing) ♪
+- [01:53:45.850] Announcer: Ladies and gentlemen,
+- [01:53:47.070] please welcome Commandant of the U.S. Marine Corps,
+- [01:53:51.100] General Eric Smith.
+- [01:53:54.320] ♪ (country music playing) ♪
+- [01:54:22.100] Eric Smith: Hoorah, Marines! Get some. Hurrah.
+- [01:54:30.850] That never gets old, does it? That never get's old.
+- [01:54:36.170] Good afternoon Marines, Sailors, family, friends,
+- [01:54:40.540] Vice President Vance, Secretary of War Hegseth,
+- [01:54:44.170] Secretary of the Navy Phelan, my shipmate, the CNO.
+- [01:54:50.090] Elected officials, distinguished guests,
+- [01:54:52.570] far too many to name.
+- [01:54:54.760] What a day. What a perfect amphibious day.
+- [01:55:00.240] And what a sight to behold. What I'm talking about is you.
+- [01:55:04.260] I'm not talking about the equipment,
+- [01:55:06.540] not talking the ships,
+- [01:55:07.980] I'm taking about you, the Marines,
+- [01:55:10.320] because that's who we are. That's what we're all about.
+- [01:55:12.490] We're about the individual Marine,
+- [01:55:15.020] because that who wins battles.
+- [01:55:17.360] That's who wins wars. Before I begin,
+- [01:55:20.760] I want to thank those who made today's demonstration possible,
+- [01:55:24.420] especially the phenomenal team here
+- [01:55:26.090] at Marine Corps Base Camp Pendleton
+- [01:55:27.820] and the Marines and sailors of the 1st
+- [01:55:29.470] Marine Expeditionary Force and the 3rd Fleet.
+- [01:55:32.940] From the first aircraft overhead to the final wave on the beach,
+- [01:55:36.530] you showed what American amphibious strength
+- [01:55:39.200] looks like in action.
+- [01:55:40.930] You do not want to be on the receiving end
+- [01:55:43.270] of that bunch of ass-whooping.
+- [01:55:45.110] You do not. If you're an adversary, hoorah.
+- [01:55:48.660] If you are an adversary and you want to have your butt kicked,
+- [01:55:53.620] then mess with the Marine Corps.
+- [01:55:55.010] Because we'll do it. We'll do it for you.
+- [01:56:00.340] I also want to thank our many distinguished guests
+- [01:56:03.040] and civic leaders for joining us
+- [01:56:04.510] in the celebration this afternoon.
+- [01:56:06.590] You know, if you go to Marine Corps
+- [01:56:08.010] Air Station Cherry Point, North Carolina,
+- [01:56:09.970] or if you go to the Marine Corps air station New River,
+- [01:56:12.590] it says, pardon our noise, that's the sound of freedom.
+- [01:56:16.510] Well, pardon out noise today,
+- [01:56:18.330] that is the sound and look of freedom,
+- [01:56:20.300] that what it takes to get you free.
+- [01:56:26.470] Thanks as well to our national leadership
+- [01:56:28.370] for standing alongside your Marine Corps
+- [01:56:30.520] as we mark this historic milestone,
+- [01:56:33.290] 250 years young. The first 250.
+- [01:56:37.550] The next 250 are going to be even tougher than the first 250,
+- [01:56:40.680] and there's going to be more fights ahead,
+- [01:56:42.980] but we'll overcome all obstacles because we're Marines.
+- [01:56:45.340] That's what we do. We don't know how to fail.
+- [01:56:48.490] Finally, thank you to our military families,
+- [01:56:52.160] whose strength, patience, and sacrifice
+- [01:56:54.230] make everything we do possible.
+- [01:56:57.300] You serve this nation alongside your Marines and Sailors,
+- [01:57:01.130] and your support is the foundation of our readiness.
+- [01:57:04.850] For 250 years, our Corps has fought
+- [01:57:07.400] and won our nation's battles.
+- [01:57:09.600] Again, we don't know how to lose. We're Marines.
+- [01:57:12.750] Founded even before our formal independence
+- [01:57:15.000] as a country, we were created
+- [01:57:16.530] as an expeditionary force in readiness,
+- [01:57:19.650] always faithful to the nation we serve.
+- [01:57:23.570] From muskets to missiles,
+- [01:57:25.140] wooden ships to amphibious combat vehicles,
+- [01:57:27.690] and signal flags to satellites,
+- [01:57:29.810] the tools of our trade have changed,
+- [01:57:32.080] but their purpose has not.
+- [01:57:34.580] We remain America's naval expeditionary force,
+- [01:57:37.790] ready to respond and ready to win.
+- [01:57:41.410] Today we witnessed the power of the Navy and Marine Corps team
+- [01:57:44.960] through our premier force offering,
+- [01:57:47.220] the Amphibious Ready Group and Marine Expeditionary Unit,
+- [01:57:50.160] employing combined arms to deliver decisive effects
+- [01:57:53.880] and compel the enemy to do our will,
+- [01:57:56.580] to do what we want to have happen,
+- [01:57:58.670] not what they want to happen.
+- [01:58:00.770] But none of what you saw, the precision fires,
+- [01:58:02.880] the air assault, the seamless integration of firepower,
+- [01:58:05.120] none of that means a thing without the Marine behind it,
+- [01:58:09.350] without the Marine behind his M4,
+- [01:58:12.260] without the Marine sitting in the vehicle,
+- [01:58:15.290] driving it, without the pilot flying the aircraft.
+- [01:58:18.460] It is all about the Marine. It's all about you.
+- [01:58:22.490] The strength of the MAGTAF lies in its Marines.
+- [01:58:26.400] Their warrior ethos and core values
+- [01:58:28.770] strengthen us and sustain us during difficult times.
+- [01:58:32.630] It is the Marine, resolute beneath our nation's flag,
+- [01:58:36.000] who carries the day every time.
+- [01:58:39.110] Honor, courage, and commitment are the living code of a core
+- [01:58:42.970] that endures because of uncompromising standards.
+- [01:58:47.910] Standards that guide us in our purpose unite us in battle,
+- [01:58:51.610] and bind us across generations.
+- [01:58:54.620] From Belleau Wood to Iwo Jima to Ramadi
+- [01:58:58.340] and Fallujah and Helmand Province,
+- [01:59:00.750] we're still the same. We're a corps of Marines.
+- [01:59:04.510] We are a band of warriors,
+- [01:59:08.040] dedicated to the defense of this nation.
+- [01:59:11.190] The Marines here today are cut from the same cloth
+- [01:59:13.650] as those who seized Tarawa, withstood the cold of Korea
+- [01:59:17.960] and fought through the streets of Iraq
+- [01:59:19.430] and the mountains of Afghanistan.
+- [01:59:21.940] And the next fight is coming. Trust me, it's coming.
+- [01:59:26.220] Across battlefields, our character has never wavered,
+- [01:59:29.800] just as the nature of war, the clash of wills,
+- [01:59:33.120] the test of fortitude,
+- [01:59:34.350] the demand for discipline remains the same.
+- [01:59:39.290] To our Marines here today and around the world,
+- [01:59:41.670] I could not be more proud of you.
+- [01:59:44.090] Sergeant Major Ruiz and I
+- [01:59:45.850] have the easiest jobs in the Marine Corps.
+- [01:59:48.700] We get thanked every day, and yet you do all the work.
+- [01:59:53.160] Our jobs are easy. Your jobs are hard.
+- [01:59:56.150] We don't pay you enough.
+- [01:59:57.740] You don't have all the equipment that you need,
+- [01:59:59.840] but you still get the job done.
+- [02:00:01.530] Why? Because we're Marines. That's what we do.
+- [02:00:05.700] That's all we do, we do warfighting.
+- [02:00:08.270] We do America's war fight.
+- [02:00:10.740] You remind us that our power not found in steel or armaments,
+- [02:00:17.890] but in the faith we keep with one another.
+- [02:00:21.150] You are our most valuable asset.
+- [02:00:24.120] No modernized ship, vehicle, or weapon system can replace
+- [02:00:27.150] the sheer will, determination, or grit of a U.S. Marine.
+- [02:00:32.390] It is you who will close with and destroy the enemy,
+- [02:00:35.900] to locate, close with, and the enemy,
+- [02:00:38.810] or repel the enemy's assault by fire and close combat --
+- [02:00:42.440] close combat. That's what we do.
+- [02:00:46.090] It is you who will seize the objective and seize the day.
+- [02:00:50.110] It is you who will win our nation's battles.
+- [02:00:53.720] This is why I have absolute confidence
+- [02:00:55.750] in the future of our Corps.
+- [02:00:57.800] Today, tomorrow, and for the next 250 years.
+- [02:01:02.330] When the next fight comes, and sadly it will come,
+- [02:01:06.540] Marines will be ready, ready to fight, ready to win
+- [02:01:11.210] because that is who we are. That is what we do.
+- [02:01:15.160] It is all that we do, we're warriors.
+- [02:01:19.440] That's all that we do.
+- [02:01:22.060] We are America's crisis response force.
+- [02:01:25.040] We're the 911 force.
+- [02:01:26.980] We're the people who go out the door
+- [02:01:28.890] at zero dark 30 to get our mission done,
+- [02:01:32.450] to accomplish it on behalf of the American people,
+- [02:01:35.870] to stick a bayonet in the heart of our adversaries,
+- [02:01:39.560] just like we did at Bella Wood. Just like we did at Bladensburg
+- [02:01:43.060] and Chapultepec and Iwo Jima and (inaudible)
+- [02:01:46.710] and Kwajalein and Kaysan and Ramadi and Fallujah.
+- [02:01:52.120] That is who we are as a corps. Never forget that.
+- [02:01:58.060] Never forget it is up to you to pass on the Marine Corps
+- [02:02:02.460] to the next generation of Marines
+- [02:02:04.820] who are currently in high school
+- [02:02:06.480] or middle school or grade school or just being born.
+- [02:02:10.070] We owe it to them to pass on our heritage and our legacy,
+- [02:02:14.810] unvarnished, untarnished and sharp as a razor.
+- [02:02:19.620] That's who we are. That's how we've always been.
+- [02:02:22.780] That's we will always be.
+- [02:02:25.410] We are America's crisis response force.
+- [02:02:28.710] Don't ever forget that, Marines.
+- [02:02:30.630] Be proud of that eagle, globe and anchor
+- [02:02:32.260] that you wear tattooed onto your chest.
+- [02:02:34.700] You earned it. Only you can own it.
+- [02:02:38.040] Only a few, a very few,
+- [02:02:40.580] are capable of earning the title Marine.
+- [02:02:43.210] I'm proud of each and every one of you.
+- [02:02:45.570] Thanks for being here today. Thanks for stepping up to serve
+- [02:02:49.330] when so many couldn't or wouldn't.
+- [02:02:51.360] Thanks for being Marines. Hurrah, Semper Fidelis.
+- [02:02:56.070] ♪ (country music playing) ♪
+- [02:03:14.200] Announcer: Ladies and gentlemen, please welcome to the stage,
+- [02:03:17.420] the United States Secretary of the Navy, John Phelan.
+- [02:03:22.850] ♪ (rock music playing) ♪
+- [02:03:53.550] John Phelan: Well, good afternoon everyone,
+- [02:03:58.630] this is an incredible sight.
+- [02:04:00.820] I can't think of anything better than being here
+- [02:04:03.280] with thousands of Marines, Sailors,
+- [02:04:06.060] and their families here on Red Beach
+- [02:04:08.440] celebrating 250 years of the United States Marine Corps,
+- [02:04:12.080] the world's premier expeditionary force.
+- [02:04:15.510] Add to that what we just witnessed,
+- [02:04:17.710] an awesome display of maritime power.
+- [02:04:20.260] It really doesn't get any better.
+- [02:04:22.640] Thank you and well done to every single Marine,
+- [02:04:25.850] Sailor, civilian, and partner
+- [02:04:28.200] who made this amphibious demonstration possible.
+- [02:04:31.010] Let's give them a hand.
+- [02:04:33.480] (applause)
+- [02:04:40.530] On behalf of President Trump and the Department of the Navy,
+- [02:04:43.940] I want to thank every Marine and Sailor across the globe
+- [02:04:47.210] for standing in defense of our nation
+- [02:04:49.490] with honor, courage, and commitment.
+- [02:04:52.910] You carry forward a legacy that began in Tun Tavern in 1775,
+- [02:04:58.930] when a few tough men decided this nation
+- [02:05:01.190] needed a corps of warriors
+- [02:05:03.290] who would always be the first to fight.
+- [02:05:05.650] Two and a half centuries later,
+- [02:05:07.260] that decision still echoes across every battlefield
+- [02:05:10.490] and beachhead where freedom has been tested.
+- [02:05:14.040] Mr. Vice President, thank you for your faithful service
+- [02:05:17.680] and your continued leadership,
+- [02:05:19.570] proving always that once a Marine, always a Marine.
+- [02:05:23.790] Secretary of War Hegseth, thank for your continued service
+- [02:05:27.870] and for your unwavering advocacy for our Sailors and Marines.
+- [02:05:32.690] Thank you, as well, to the Commandant, CNO,
+- [02:05:35.810] and to our senior Navy and Marine Corps leaders.
+- [02:05:39.400] And to members of Congress, state and local leaders,
+- [02:05:42.530] and distinguished guests,
+- [02:05:43.910] thank you for joining us today and for your continuous support.
+- [02:05:48.450] It is the privilege of my lifetime to stand
+- [02:05:50.880] with you as the 79th Secretary of the Navy,
+- [02:05:53.880] celebrating two and a half centuries
+- [02:05:55.760] of the United States Marine Corps,
+- [02:05:57.670] the world's finest fighting force.
+- [02:06:00.670] From the frozen hills of Korea to Tripoli,
+- [02:06:03.480] from Belleau Wood to Fallujah,
+- [02:06:05.510] Marines have always been raised for the hardest jobs
+- [02:06:08.860] and entrusted with the most consequential fights.
+- [02:06:12.320] From the beginning, the Corps was built on conviction,
+- [02:06:15.550] on the belief that courage and character
+- [02:06:18.720] are the true measure of a warrior.
+- [02:06:21.530] As Major Doug Zembeck said, be a man of principle,
+- [02:06:25.930] fight for what you believe in, live with integrity,
+- [02:06:29.670] lead from the front, be valorous on the field of battle,
+- [02:06:33.870] and take responsibility for your actions.
+- [02:06:37.170] That is what it means to be a Marine,
+- [02:06:39.500] to live by a code that endures long after the battle ends,
+- [02:06:43.570] to serve with honor and to stand firm when others falter.
+- [02:06:47.930] For two and a half centuries,
+- [02:06:49.250] that spirit has carried the Marine Corps
+- [02:06:51.850] through every test and every generation,
+- [02:06:55.200] upholding a promise that when freedom is threatened,
+- [02:06:58.420] America will send its very best. And as Secretary of the Navy,
+- [02:07:02.770] I can tell you that promise is alive and strong.
+- [02:07:06.460] The Navy and Marine Corps team remains unmatched,
+- [02:07:09.910] a global force for peace through strength,
+- [02:07:12.750] ready for any challenge, anytime, anywhere.
+- [02:07:17.440] This legacy begins on the yellow footprints at Paris Island,
+- [02:07:21.640] right here in San Diego, and Quantico.
+- [02:07:25.260] That is where discipline takes root, pride is earned,
+- [02:07:28.780] and character is forged. Those qualities are why,
+- [02:07:32.630] when the nation calls, Marine's answer.
+- [02:07:36.380] They are why allies trust us and adversaries fear us.
+- [02:07:41.270] The line from those footprints
+- [02:07:42.870] to today's formations is unbroken.
+- [02:07:46.090] Marines carry the same courage forged at Guadalcanal
+- [02:07:49.550] where the 1st Marine Division, hungry and exhausted,
+- [02:07:53.300] refused to quit and proved that grit and discipline win battles.
+- [02:07:59.180] When others said it could not be done,
+- [02:08:01.540] Marines said, watch us.
+- [02:08:04.630] Every generation of Marines has found new ways to fight
+- [02:08:08.270] and new tools to wield.
+- [02:08:10.370] Innovation is not a break from tradition,
+- [02:08:13.080] it is the continuation of it.
+- [02:08:15.340] The character of war is changing rapidly,
+- [02:08:18.610] but the character of Marines remains unshakable.
+- [02:08:22.860] The initiative, ingenuity,
+- [02:08:24.780] and grit that carried this force through every battle
+- [02:08:28.340] must to drive innovation in every formation.
+- [02:08:31.980] The future belongs to those
+- [02:08:33.510] who adapt faster than the challenge before them.
+- [02:08:36.900] This is a challenge our Marine Corps and Navy team will win.
+- [02:08:41.470] Lieutenant General Victor Krulak once wrote,
+- [02:08:44.350] Americans believe when trouble comes to our country,
+- [02:08:47.420] there will be Marines, and that when Marines go to war,
+- [02:08:51.140] they invariably turn in performance
+- [02:08:53.940] that is dramatically successful.
+- [02:08:56.100] Not most of the time, but always.
+- [02:08:59.360] That trust was earned through action
+- [02:09:01.560] on every battlefield in every era by Marines
+- [02:09:05.080] who prove that excellence is not a slogan but a standard.
+- [02:09:10.220] That conviction has carried Marines
+- [02:09:11.850] through 250 years of hardship and victory,
+- [02:09:15.800] and what we have seen here today proves it still burns bright.
+- [02:09:20.500] The Corps continues to deliver on its promise
+- [02:09:22.990] to the American people,
+- [02:09:24.600] standing is both the ideal and the standard
+- [02:09:27.360] to which the next generation of Americans can aspire.
+- [02:09:31.120] Because when it matters most,
+- [02:09:33.150] it is not technology or equipment that wins the day,
+- [02:09:36.590] but the dependability, decisiveness, and character
+- [02:09:40.790] of the Marine or sailor who wields it.
+- [02:09:43.770] One of our greatest weapons has always been
+- [02:09:46.380] and will always be the United States Marine.
+- [02:09:50.220] As we celebrate 250 years of the United States Marine Corps,
+- [02:09:54.180] we look forward as much as we look back.
+- [02:09:57.190] We honor not just the Marine Corps history,
+- [02:09:59.810] but it's spirit, the unbreakable will that defines every Marine
+- [02:10:04.140] who has ever worn the eagle, globe, and anchor.
+- [02:10:07.780] The next chapter will be written by Marines,
+- [02:10:10.390] just like you who fight in new domains,
+- [02:10:13.350] face new challenges, encounter new threats.
+- [02:10:16.830] To every Marine here today,
+- [02:10:18.980] thank you for carrying a legacy 250 years strong.
+- [02:10:23.730] You are the embodiment of Semper Fidelis.
+- [02:10:26.680] Always faithful to one another,
+- [02:10:28.840] to the core and to the nation we serve.
+- [02:10:32.310] And behind every Marine is a family, a spouse,
+- [02:10:36.800] a parent, a child who stands the watch with you.
+- [02:10:40.890] They endure the deployments, the moves, the missed birthdays,
+- [02:10:45.110] the late night calls, and the endless goodbyes.
+- [02:10:48.580] They are the quiet strength of the Corps,
+- [02:10:50.890] and today we honor them, too.
+- [02:10:53.410] To every Marine family here at Camp Pendleton
+- [02:10:56.100] and around the world.
+- [02:10:59.000] Your sacrifice makes this legacy possible.
+- [02:11:02.290] Bravo Zulu 3rd Fleet, Semper Fi 1 MEF,
+- [02:11:06.680] happy birthday Marines. May God bless you.
+- [02:11:10.110] May God bless the United States Marine Corps and Navy team.
+- [02:11:13.560] And may God bless the United State of America.
+- [02:11:16.190] Thank you, I hope you have a great day today. Thanks.
+- [02:11:19.140] ♪ (rock music playing) ♪
+- [02:11:56.320] Announcer: Ladies and gentlemen, please welcome to the stage,
+- [02:11:59.760] the United States Secretary of War, Pete Hegseth.
+- [02:12:05.220] ♪ (rock music playing) ♪
+- [02:12:24.350] Secretary Hegseth: How we doing?
+- [02:12:31.800] Hurrah, Marines! Man, that is beautiful.
+- [02:12:39.160] Let me just say, this might be one of the most beautiful sights
+- [02:12:42.470] I think I've ever seen.
+- [02:12:43.690] In fact, I'm not supposed to say this, really not.
+- [02:12:47.890] But I think you guys might be my favorite.
+- [02:12:49.590] Don't tell anybody.
+- [02:12:54.580] Marines, it's great to see you. It's an honor to be here.
+- [02:12:56.590] Chief Commandant, Secretary of the Navy, thank you.
+- [02:12:59.250] It's a honor to a Camp Pendleton.
+- [02:13:01.910] And looking out at these Marines today and the Navy SEALs,
+- [02:13:05.160] I had a chance to do PT with this morning.
+- [02:13:07.690] You know, I do PT all around the country now with the troops,
+- [02:13:10.490] and it's turned in to smoke the secretary.
+- [02:13:14.830] It's clear to me why President Trump says all the time,
+- [02:13:17.650] we're the strongest, most powerful, most lethal,
+- [02:13:20.230] and most prepared military on the planet.
+- [02:13:23.960] Because you are that strength. You are that power.
+- [02:13:28.760] You are lethality. And you are prepared.
+- [02:13:34.340] And President Trump's going to make sure it stays that way.
+- [02:13:37.800] Being here with you is the perfect way
+- [02:13:40.160] to mark 250 years of the beautiful
+- [02:13:44.450] and beloved United States Marine Corps.
+- [02:13:54.650] President Trump has made our mission clear.
+- [02:13:56.830] We needed clarity, and he provided it.
+- [02:13:59.450] America first.
+- [02:14:01.150] Peace through strength and common sense at every turn.
+- [02:14:05.130] We are the War Department. And you are warriors.
+- [02:14:13.660] The Marine Corps embodies the warrior ethos.
+- [02:14:16.720] You see, when other parts of the department
+- [02:14:19.750] wavered in years past, not anymore.
+- [02:14:23.710] In years passed, the Marine Corps stood strong.
+- [02:14:27.320] When other parts the department wanted to go woke,
+- [02:14:31.360] the Marine Corp stood strong.
+- [02:14:37.640] When other parts of the department
+- [02:14:39.280] wanted to lower standards, the Marine Corps stood strong.
+- [02:14:47.910] You, ladies and gentlemen,
+- [02:14:49.200] are the backbone of the United States military.
+- [02:14:53.210] You always have been,
+- [02:14:54.610] and that's why we're proud to honor you today.
+- [02:14:57.480] 250 years ago,
+- [02:14:58.740] Major Samuel Nichols formed the Continental Marines.
+- [02:15:02.460] The next year, the Marines won the Battle of Nassau,
+- [02:15:04.730] capturing two forts from the Brits.
+- [02:15:07.520] Since that day, the very mention of the Marine Corps
+- [02:15:10.650] stirred panic in the hearts of our enemies.
+- [02:15:13.000] From the halls of Montezulu to the shores of Tripoli,
+- [02:15:17.390] Marines have been the tip of the spear of our armed forces
+- [02:15:19.660] and the vanguard of the fight for freedom,
+- [02:15:23.000] just as they are right now in the Caribbean.
+- [02:15:27.450] Let's hope the wrong people don't FAFO around there.
+- [02:15:34.070] In the most critical battles our nation has ever faced,
+- [02:15:36.990] it is often Marines forged by unique traditions
+- [02:15:40.500] and tough-as-nails training who land first.
+- [02:15:44.320] And they volunteer to put themselves in harm's way
+- [02:15:46.500] thanks to the blood and sweat of men who came before you.
+- [02:15:50.790] Every American knows the truth of the phrase.
+- [02:15:53.480] It's not just a phrase, it's a way of life for all of you.
+- [02:15:56.420] Semper fidelis, always faithful.
+- [02:16:00.540] You see, because I look out at this crowd
+- [02:16:03.040] I see a lot of different types of faces.
+- [02:16:06.140] The truth is, your diversity is not your strength.
+- [02:16:10.850] Never has been. Your strength is in your unity of purpose.
+- [02:16:16.140] It's in your shared mission.
+- [02:16:18.200] It's your oath to the Constitution.
+- [02:16:20.730] It's the bond that turns individuals
+- [02:16:22.940] into single-minded fighting units.
+- [02:16:26.680] You see, you are set apart. You're not civilians.
+- [02:16:31.100] Your devil dogs, leathernecks, United States Marines, hurrah.
+- [02:16:39.120] You are set apart for a distinct purpose.
+- [02:16:42.560] You kill bad guys and break things for a living.
+- [02:16:48.810] You close with and destroy the enemy for a living.
+- [02:16:56.170] And as we mark the 250th birthday of the Marine Corps,
+- [02:16:58.590] take a moment
+- [02:16:59.870] and remember where you are in the great American story.
+- [02:17:04.300] Everybody likes to talk about 1776,
+- [02:17:07.210] and that was a pretty important date,
+- [02:17:08.910] but we're not here without 1775
+- [02:17:14.200] when Americans were willing to stand up
+- [02:17:16.210] and pick up a rifle and say, we will live free.
+- [02:17:19.950] That spirit lives in all of you.
+- [02:17:24.120] That story includes heroes like Chesty Puller, Daniel Daly,
+- [02:17:29.060] and our own great Vice President and Marine, JD vance.
+- [02:17:35.230] Take pride in that story,
+- [02:17:38.090] and continue making yourselves worthy of that legacy
+- [02:17:41.010] as the commandant said so beautifully.
+- [02:17:43.970] Standards, discipline, accountability,
+- [02:17:47.360] warfighting, lethality, they live in the Marine Corps.
+- [02:17:53.110] We get a chance to see our Commander-in-Chief fight
+- [02:17:55.730] for all of you every single day. I know because I see it.
+- [02:18:00.340] President Trump appreciates your dedication,
+- [02:18:03.380] your valor, your tenacity.
+- [02:18:05.640] The sacrifices you make and the sacrifices
+- [02:18:08.310] that all of your families make.
+- [02:18:09.840] We know no Marine serves alone, they serve alongside.
+- [02:18:15.380] Someone else who understands that is Vice President Vance,
+- [02:18:18.730] who is right there alongside President Trump,
+- [02:18:21.190] who he himself has made the same types of sacrifices
+- [02:18:25.460] that you have.
+- [02:18:27.200] Your vice president enlisted after high school
+- [02:18:31.620] in the Marine Corps and served in Iraq.
+- [02:18:35.020] Your vice president knows
+- [02:18:37.370] and shares the dedication of this force,
+- [02:18:41.170] and he represents you always in Washington.
+- [02:18:44.210] And I have an honor, I have the honor of getting a chance
+- [02:18:47.470] to watch Vice President Vance day in and day out,
+- [02:18:51.320] live the values of the Marine Corps,
+- [02:18:53.770] speak up and tell the truth, have courage,
+- [02:18:57.520] stand alongside President Trump.
+- [02:18:59.260] It's an incredible thing to watch.
+- [02:19:00.770] And as I tell every warrior I meet,
+- [02:19:03.840] our president and vice president,
+- [02:19:06.070] they have your back. And I promise you, so do I.
+- [02:19:12.220] Support from the top is all I ever wanted
+- [02:19:14.070] when I was a young infantry lieutenant in Iraq,
+- [02:19:18.280] or in Afghanistan where my boss actually happened
+- [02:19:20.700] to be a Marine.
+- [02:19:23.630] He was tough, he was brave, and a little bit crazy.
+- [02:19:30.890] But I loved him for it, and I knew he would do anything.
+- [02:19:37.300] So on behalf of the Department of War, thank you.
+- [02:19:41.390] Congratulations on 250 years of success.
+- [02:19:45.580] And here's to 250 more.
+- [02:19:47.130] I can say to you, we've got seven little kids in our stead,
+- [02:19:50.430] not so little anymore, a couple teenagers.
+- [02:19:53.220] Man, I would be proud as a dad if I ever saw one of them
+- [02:19:57.890] put on the uniform of a United States Marine.
+- [02:20:00.640] You serve your country. You make us proud.
+- [02:20:06.390] We have your back.
+- [02:20:08.620] God bless you. God bless our Marines.
+- [02:20:10.440] And may God bless our great republic.
+- [02:20:12.960] Godspeed. Thank you.
+- [02:20:14.900] ♪ (rock music playing) ♪

@@ -1,0 +1,1742 @@
+<!-- source: https://www.youtube.com/watch?v=xFO-SY9ykdA -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: xFO-SY9ykdA -->
+<!-- date_published: 2026-04-06T18:37:42+00:00 -->
+<!-- date_accessed: 2026-06-02T02:35:31.604881+00:00 -->
+
+# Transcript: President Trump Holds a Press Conference, Apr. 6, 2026
+
+- [09:54.270] The President: Thank you very much.
+- [10:09.300] It's a great honor to be with you, and Happy Easter.
+- [10:14.120] We had a great Easter.
+- [10:15.380] This is one of our better Easters,
+- [10:17.400] I think, in a lot of different ways.
+- [10:18.860] I can say, militarily, it's been one of the best.
+- [10:23.780] So good afternoon.
+- [10:25.390] We have quite a bit to discuss.
+- [10:27.060] We'll go into a pretty good detail
+- [10:29.990] and we have the people that are most involved.
+- [10:32.830] We'll give you exactitude.
+- [10:36.370] And we're here today to celebrate the success
+- [10:38.980] of one of the largest, most complex,
+- [10:41.020] most harrowing combat searches,
+- [10:44.780] I guess you would call it a search and rescue mission,
+- [10:48.030] ever attempted by the military.
+- [10:50.670] Generally, when planes are knocked down in war,
+- [10:53.120] especially when you're fighting a strong group,
+- [10:57.100] an evil group, you can't really do this,
+- [11:00.220] because you send in 200 men to pick up one,
+- [11:05.080] and it's something that's usually not attempted,
+- [11:07.430] as much as you want to attempt.
+- [11:09.890] And bad things happen to that one or two.
+- [11:13.110] And in this case, we did two
+- [11:14.400] and might not have been attempted before,
+- [11:17.100] but we did and we got -- we had great talent.
+- [11:20.760] We got a little luck too, I would say.
+- [11:23.660] And we were helped by a lot of people,
+- [11:26.940] a lot of great people and it was an honor to be involved with it.
+- [11:31.400] It's very historic.
+- [11:33.960] This is a rescue that's very historic.
+- [11:37.020] It'll go down in the books.
+- [11:38.330] Late Thursday night, an American F-15 fighter jet
+- [11:42.600] went down deep inside enemy territory in Iran
+- [11:46.320] while participating in Operation Epic Fury,
+- [11:50.380] where we're doing unbelievably well,
+- [11:52.560] well at a level that nobody's ever seen before.
+- [11:57.210] The entire country could be taken out in one night.
+- [12:00.290] And that night might be tomorrow night.
+- [12:03.810] Both members of the crew ejected from the aircraft
+- [12:06.680] and landed alive on Iranian soil.
+- [12:09.560] I immediately was asked to make a decision.
+- [12:14.980] I ordered the US Armed Forces to do whatever was necessary
+- [12:18.340] to bring our brave warriors back home,
+- [12:20.740] a risky decision
+- [12:23.190] because we could have ended up with 100 dead
+- [12:25.700] as opposed to one or two.
+- [12:28.090] It's a hard decision to make.
+- [12:30.320] But in the United States military,
+- [12:32.870] we leave no American behind. We don't do it.
+- [12:36.590] Within hours, our armed forces deployed
+- [12:38.490] 21 military aircraft into hostile airspace,
+- [12:41.300] many flying at very low altitude,
+- [12:43.990] being shot by bullets.
+- [12:47.290] You bring rifles into play when you're going that low,
+- [12:49.940] but there are also certain advantages.
+- [12:54.360] And in broad daylight over Iran for seven hours,
+- [12:57.430] at times facing very, very heavy enemy fire --
+- [13:01.710] we have a helicopter that's got a lot of bullets in it.
+- [13:03.970] It's amazing.
+- [13:05.490] We just realized how good those -- those weapons are.
+- [13:08.860] Those are machines that -- nobody has --
+- [13:12.100] nobody has the equipment that we have
+- [13:14.290] and nobody has the military that we have, not even close.
+- [13:17.380] We're the most powerful military anywhere in the world, by far.
+- [13:21.400] The flight crews and war fighters
+- [13:23.350] aboard those aircraft took extraordinary risks
+- [13:25.990] to rescue their fellow service members.
+- [13:29.460] This first wave of search and rescue forces successfully
+- [13:32.450] located the pilot of the F-15,
+- [13:35.830] and he was extracted from enemy territory by an HH-60
+- [13:41.050] Jolly Green II helicopter, fabulous machine,
+- [13:44.720] as our warriors faced gunfire at very close range.
+- [13:50.210] It's amazing that when you look at the machinery,
+- [13:54.090] what happened, that nobody was even injured.
+- [13:57.550] Meanwhile, the second crew member,
+- [13:59.340] a weapons system officer, highly respected colonel,
+- [14:03.090] had landed a significant distance away from the pilot.
+- [14:06.020] When you're going at those speeds,
+- [14:08.000] even if you go out two or three seconds later, it's miles --
+- [14:12.070] it's miles and miles away, because you're going fast.
+- [14:16.800] He was injured quite badly and stranded in an area
+- [14:20.470] teeming with terrorists
+- [14:21.710] from the Islamic Revolutionary Guard Corps,
+- [14:24.230] rough group, as well as besieged military --
+- [14:27.940] militia and local authorities, many --
+- [14:32.920] on top of everything else, they told the communities,
+- [14:37.940] actually with inside of Iran, the people of Iran,
+- [14:40.790] they were given a tremendous incentive to find this pilot.
+- [14:46.250] Despite the peril the officer followed his training
+- [14:49.040] and climbed into the treacherous mountain terrain
+- [14:52.050] and started climbing toward a higher altitude,
+- [14:55.650] something they were trained to do,
+- [14:58.190] in order to evade capture.
+- [15:01.780] They want to always go as far away
+- [15:04.000] from the site of the shootdown. You want to go as far away
+- [15:09.110] because they all head right to that site.
+- [15:10.990] You want to be as far away as you can.
+- [15:14.380] And he was injured and it was an amazing, amazing thing.
+- [15:18.600] He scaled cliff faces, bleeding rather profusely,
+- [15:23.520] treated his own wounds
+- [15:24.760] and contacted American forces to transmit his location.
+- [15:30.020] They have a very sophisticated beeper-type
+- [15:35.120] apparatus that is on them at all times.
+- [15:39.610] And when they when they go out on these missions,
+- [15:41.570] they make sure they have lots of battery space
+- [15:44.430] and they're in good shape and this one worked really well,
+- [15:48.410] amazingly, saved his life.
+- [15:50.750] We immediately mobilized a massive operation
+- [15:53.170] to retrieve him from the mountain hold out,
+- [15:58.240] and he kept going higher and higher.
+- [15:59.880] The mountain kept getting rougher and rougher.
+- [16:01.720] And really, very, very hard to find.
+- [16:05.040] The second rescue mission involved 155 aircraft,
+- [16:09.200] including four bombers, 64 fighters,
+- [16:12.670] 48 refueling tankers, 13 rescue aircraft
+- [16:16.410] and more we were bringing them all over,
+- [16:19.960] and a lot of it was subterfuge.
+- [16:22.550] We wanted to have them think he was in a different location
+- [16:26.360] because they had a vast military force out there.
+- [16:29.840] Thousands -of people were looking,
+- [16:32.330] so we wanted them to look in different areas.
+- [16:34.490] So we were scattered all over like
+- [16:37.360] we were right on top of them.
+- [16:39.440] We had seven different locations where they thought --
+- [16:42.460] and they were very confused. They said, well, wait a minute,
+- [16:44.850] they've got groups here, they've got groups there.
+- [16:46.620] It's an amazing thing.
+- [16:49.210] I was listening to these great people, these great generals,
+- [16:55.070] General Razin Caine, who's amazing,
+- [16:56.930] and Pete Hegseth was amazing.
+- [16:58.930] But I listened to the whole thing. It was pretty amazing.
+- [17:02.140] So they had all these different sites
+- [17:03.640] where everybody thought he was located.
+- [17:06.160] We think we have him over there because they have nine planes
+- [17:09.110] circling a little area that's 25 miles down the coast.
+- [17:15.160] So in a breathtaking show of skill and precision,
+- [17:19.280] lethality and force, America's military descended on the area,
+- [17:23.940] the real area, engaged the enemy,
+- [17:26.760] rescued the stranded officer, destroyed all threats,
+- [17:31.180] and exited Iranian territory
+- [17:33.800] while taking no casualties of any kind.
+- [17:37.570] The heroic F-15 weapon system officer
+- [17:40.320] had evaded capture on the ground in Iran for almost 48 hours.
+- [17:47.210] That's a long time when you're in tough shape
+- [17:49.860] and when you're bleeding. It's a long time.
+- [17:52.790] When we left, as you probably know,
+- [17:56.770] we had two large planes,
+- [17:58.920] old, pretty old planes that carried a lot.
+- [18:01.000] We needed a lot more equipment
+- [18:03.210] going in than coming out, obviously.
+- [18:04.910] Because going in, we needed to be able to scale mountains
+- [18:09.860] and we had a lot of equipment,
+- [18:11.760] but the sand was -- it was sandy, wet sand.
+- [18:15.570] So we thought there may be a problem taking off
+- [18:18.430] because of the weight of the plane
+- [18:19.990] and then you also had all the men
+- [18:21.920] jumping back onto the planes,
+- [18:24.320] and they got pretty well bogged down.
+- [18:26.320] And we had a contingency plan, which was unbelievable,
+- [18:30.440] where a lighter, faster aircraft came in and they took them out.
+- [18:34.530] We blew up the old planes,
+- [18:36.360] and we blew them up to smithereens
+- [18:38.910] because we had equipment on the planes that frankly,
+- [18:41.090] we'd like to take but I don't think it was worthwhile
+- [18:43.810] spending another four hours there taking it off,
+- [18:46.490] so we didn't want anybody to have --
+- [18:47.910] we have the best, best equipment anywhere in the world.
+- [18:50.630] We didn't want anybody examining our anti-aircraft
+- [18:55.060] and other equipment.
+- [18:56.950] So these were large planes that were old and --
+- [19:00.260] pretty old, and we blew them up.
+- [19:02.740] And we had faster, lighter planes come in
+- [19:06.540] and they were able to land on the sand.
+- [19:07.940] We needed the bigger planes
+- [19:09.150] because we had so much equipment that we needed --
+- [19:10.850] we took three helicopters over there,
+- [19:13.160] which were very strongly used
+- [19:14.660] and couldn't have lived without them.
+- [19:16.550] They did -- they performed unbelievably well.
+- [19:19.790] And if you'd see it, you wouldn't believe it.
+- [19:21.370] They came off the plane and these guys had them --
+- [19:26.440] The rotors were off.
+- [19:28.280] They rebuilt these helicopters in less than 10 minutes,
+- [19:33.300] and that was one of the more amazing things.
+- [19:35.840] These are helicopters, small, unbelievably powerful
+- [19:41.820] but small -- very small
+- [19:43.460] so it can get into certain areas.
+- [19:46.060] And they got them off the plane
+- [19:48.290] and they rebuilt all three of them
+- [19:50.910] in a matter of less than,
+- [19:52.990] I would say, less than 10 minutes.
+- [19:54.470] It's pretty amazing what --
+- [19:55.950] the genius of these people, who would think that.
+- [19:59.020] You'd think it would take five days to build them.
+- [20:01.370] And in some companies, it would take five days
+- [20:03.720] and they wouldn't do it well.
+- [20:05.530] But they served us well. As commander in chief
+- [20:08.310] I never forget the extraordinary risk taken
+- [20:11.350] by the warriors that we send into battle and the genius.
+- [20:15.350] I mean, think of it having a contingency of three planes
+- [20:18.380] waiting because we think the sand is so bad
+- [20:21.230] that we probably won't be able to take off
+- [20:23.940] and the plane's really got bogged.
+- [20:26.870] Sand was -- this was not much of a runway this was a farm,
+- [20:30.340] not a runway it's a farm but it did the trick
+- [20:34.530] but to have a contingency
+- [20:35.940] as opposed to having to wait two days.
+- [20:37.650] Can you imagine? Right in the middle
+- [20:39.190] this was central -- this was right --
+- [20:43.030] you would call it central casting
+- [20:44.460] if you were doing a movie for location
+- [20:47.100] and probably the toughest area of Iran
+- [20:49.660] and where we'd be sitting there.
+- [20:51.140] So these planes came in,
+- [20:52.420] those pilots came in so fast and so quick
+- [20:54.720] and got out of there everybody got aboard
+- [20:57.320] and just got 15-minute intervals,
+- [21:00.120] one load out, one load out, one load out, three.
+- [21:05.540] It happened and we were watching and we said,
+- [21:08.320] that's amazing it's in many ways,
+- [21:10.380] I was I was almost more impressed
+- [21:13.110] by the contingency that we had than the fact that, you know,
+- [21:18.270] if we would have had runway or decent soil.
+- [21:20.920] But it was an amazing thing.
+- [21:22.800] But we thank God for every single one of them
+- [21:25.660] and the talent, the genius is not even talent, it's genius.
+- [21:29.430] It's the whole ball game,
+- [21:31.120] every one of them if you look at what we did with Maduro,
+- [21:35.530] we went into a military compound,
+- [21:38.060] a massive with thousands and thousands of soldiers,
+- [21:41.050] and within a matter of minutes, and he lived behind iron doors
+- [21:44.890] there were steel doors broke them down so quickly
+- [21:48.150] and within almost minutes he was in the back of these planes
+- [21:51.740] it was a similar group, incredible.
+- [21:53.930] We have incredibly talented people and if the time comes,
+- [21:57.880] we move heaven and earth to bring them home safely.
+- [22:01.270] We're going to bring our people home safely.
+- [22:03.980] I want to thank every member of the US armed forces involved
+- [22:06.940] in these historic operations.
+- [22:08.760] They really were historic, it's just not something that's done
+- [22:12.260] and you'd understand it.
+- [22:13.480] Not that they don't want to do it,
+- [22:15.750] but when you're going into areas,
+- [22:17.250] when you look at these helicopters,
+- [22:18.730] when you look at the amount of bullets
+- [22:20.190] and everything else that they took,
+- [22:21.400] when you go into these areas,
+- [22:24.030] you don't come out like we came out.
+- [22:26.380] God was watching us. Well, it was the Easter --
+- [22:30.860] we were in Easter territory, I guess,
+- [22:34.100] but God was watching us.
+- [22:35.440] Amazing because when you look at the machinery it took,
+- [22:39.160] they took damage tells you.
+- [22:41.200] First thing I said is these are unbelievable machines
+- [22:43.570] how they flew back and not even much of a problem,
+- [22:47.920] but these two extraordinary rescues because it was too.
+- [22:51.040] And as you probably know,
+- [22:52.470] we didn't talk about the first one for an hour
+- [22:55.820] and then somebody leaked something
+- [22:57.900] which we'll hopefully find that leaker we're looking very hard
+- [23:00.590] to find that leaker and talked about there's somebody missing.
+- [23:06.720] They basically said that we have one
+- [23:08.990] and there's somebody missing well,
+- [23:10.430] they didn't know there was somebody missing
+- [23:11.870] until this leaker gave the information.
+- [23:14.310] So whoever it was, we think we'll be able to find it out.
+- [23:16.890] Because we're going to go to the media company that released it
+- [23:22.170] and we're going to say national security,
+- [23:25.150] give it up or go to jail
+- [23:27.660] and we know who and you know who we're talking about
+- [23:31.860] because some things you can't do because when they did that,
+- [23:34.270] all of a sudden the entire country of Iran knew
+- [23:38.480] that there was a pilot that was somewhere on their land
+- [23:43.490] that was fighting for his life.
+- [23:46.010] And it also made it much more difficult for the pilots
+- [23:50.650] and for the people going in to search for him.
+- [23:53.350] All of a sudden they know that there's somebody out there,
+- [23:57.060] they see all these planes coming in it
+- [23:58.820] became a much more difficult operation
+- [24:02.060] because a leaker leaked that we have won we've rescued one,
+- [24:08.130] but there's another one out there that we're trying to get.
+- [24:11.780] So actually, the country, Iran put out a major notice,
+- [24:17.480] you all saw it, offering a very big award
+- [24:21.600] for anybody that captures the pilot so in addition
+- [24:24.570] to a hostile, very talented, very good, very evil military,
+- [24:30.090] we had millions of people trying to get an award.
+- [24:34.860] So when you add that to it, but we have to find that leaker
+- [24:38.570] because that's a sick person,
+- [24:40.860] probably didn't realize the extent of how bad it was.
+- [24:43.680] I can't imagine that the person did
+- [24:45.770] but we're going to find out it's national security
+- [24:48.310] and the person that did the story will go to jail
+- [24:53.230] if he doesn't say, and that doesn't last long,
+- [24:55.960] and I think everybody would understand
+- [24:57.450] it they put this mission at great risk
+- [24:59.600] they put that man at great risk,
+- [25:01.080] and they put the hundreds of people
+- [25:02.640] that went in looking for them,
+- [25:04.680] because everyone now knows that we're going in.
+- [25:09.150] Over the past 37 days,
+- [25:10.900] America's armed forces have carried out
+- [25:13.630] more than 10,000 combat flights over Iran, unheard of,
+- [25:18.050] striking more than 13,000 targets.
+- [25:20.440] The F-15 we lost last week was the first manned aircraft
+- [25:25.010] downed by the enemy in this entire operation,
+- [25:28.060] with thousands and thousands of flights.
+- [25:30.120] They got lucky. It was a lucky hit you know,
+- [25:32.730] eventually you get lucky but we got lucky too,
+- [25:36.640] because we got both of them back
+- [25:38.690] but it's a record that is unparalleled
+- [25:40.640] in the history of military air operations.
+- [25:43.690] Nobody's ever seen anything like it.
+- [25:45.500] It's such an honor to be involved with it
+- [25:49.770] we were up late at night,
+- [25:52.750] and then we were waiting for those contingent planes
+- [25:56.480] to come in and we say, come on, let's go get in,
+- [25:58.710] because they're waiting out on this farm
+- [26:03.480] without a runway with wet,
+- [26:07.500] crummy soil, sand, mostly sand, wet sand.
+- [26:11.780] And it eats planes alive and we're waiting and we're saying,
+- [26:15.180] I hope that one can land and take off
+- [26:18.300] and they came in like magic, boom,
+- [26:20.320] boom, boom, one after another it was like genius
+- [26:23.020] I'm so impressed by that because we were a little concerned.
+- [26:26.730] We said, boy, if they don't get in and get up fast,
+- [26:30.500] we're sitting in them.
+- [26:31.800] And that's called Iran Prime, right, General?
+- [26:36.130] That's where the whole bed is
+- [26:38.020] and here we are sitting there waiting for a plane
+- [26:41.610] but they came in so fast and so hard
+- [26:43.860] and these guys knew exactly what --
+- [26:45.480] let's go, come on, get in, let's go, pwah,
+- [26:48.850] they came one right after another.
+- [26:50.600] Not at the same time.
+- [26:52.520] They don't want to come at the same time.
+- [26:53.940] They had to come right after each other.
+- [26:55.320] They didn't have any room there was barely any room to land.
+- [26:58.500] Tiny little patch of very wet earth and sand.
+- [27:04.150] So I just I'm so proud of the people
+- [27:06.110] that I have standing up here with me
+- [27:08.370] and many others that worked. I mean, so many.
+- [27:11.370] Steve Witkoff over here,
+- [27:12.610] he's doing fantastically, Jared Kushner,
+- [27:15.740] but the people that are here, the job they did is amazing.
+- [27:19.260] And I think I'm going to introduce the head of the CIA.
+- [27:22.950] And he is a man who -- he's Central Casting, OK?
+- [27:28.070] If we cast a movie, he's going to play the head of the CIA.
+- [27:30.490] He's one of the few -- John Ratcliffe.
+- [27:34.350] He did a phenomenal job that night
+- [27:36.270] he did something that I don't know
+- [27:37.530] if you want to talk about it if you want, you can.
+- [27:39.530] I'm not sure he's supposed to. I'm not going to talk about it
+- [27:41.770] but he -- really the CIA was very responsible
+- [27:45.010] for finding this little speck.
+- [27:46.640] It's like they used an expression
+- [27:48.710] on one of the shows the general was talking about.
+- [27:51.230] It's like finding a needle in a haystack finding this pilot
+- [27:55.480] and the CIA was unbelievable. And you may if you can,
+- [27:59.050] you'll talk it might be classified,
+- [28:01.090] in which case I'd have to put him in jail
+- [28:02.820] if he talks about it
+- [28:04.190] and I don't want to put him in jail he doesn't deserve that.
+- [28:07.350] So, John, do you want to say a few words?
+- [28:08.890] Thank you.
+- [28:11.770] John Ratcliffe: Thank you, Mr. President.
+- [28:13.570] It's a privilege to be here with you today
+- [28:16.330] to share what we can about this exceptional mission
+- [28:19.980] and to recognize the ingenuity and bravery
+- [28:23.030] of those who executed it, as well as the leadership
+- [28:26.610] and resolve of the President who ordered it.
+- [28:30.840] One thing that has been clear to me in this role
+- [28:32.740] is that the flawless military operations
+- [28:35.170] that the Department of War
+- [28:36.450] is known for are hostage to flawless intelligence.
+- [28:41.770] We saw that in the skies over Iran in Operation Midnight
+- [28:45.730] Hammer last summer we witnessed it in Venezuela
+- [28:48.950] during Operation Absolute Resolve.
+- [28:51.540] We've seen it against the cartels
+- [28:53.350] in the Western Hemisphere,
+- [28:55.230] and we're seeing it every day in Operation Epic Fury,
+- [28:58.750] including this mission to rescue an aviator
+- [29:02.540] buried deep behind enemy lines,
+- [29:05.660] because it is the unique tradition of the US armed forces
+- [29:09.780] that we leave no man or woman behind.
+- [29:13.510] This was a no fail mission.
+- [29:15.650] That was the spirit in which the President put us to work,
+- [29:19.260] and we were determined not to let him down or our airmen down.
+- [29:24.950] As an agency, the CIA possesses unique capabilities
+- [29:29.180] that only the President can deploy.
+- [29:32.360] Some of these capabilities fall under covert action authorities
+- [29:36.210] and because covert means exactly that,
+- [29:39.550] I'm not going to be able
+- [29:40.790] to tell you everything that you want to know.
+- [29:45.010] At the President's direction, we deployed both human assets
+- [29:48.960] and exquisite technologies that no other intelligence service
+- [29:52.470] in the world possesses to a daunting challenge,
+- [29:55.780] comparable to hunting for a single grain of sand
+- [30:00.700] in the middle of a desert.
+- [30:02.890] This was also a race against the clock.
+- [30:05.100] It was critical that we locate the downed aviator
+- [30:08.050] as quickly as possible,
+- [30:10.250] while at the same time, keeping our enemies misdirected.
+- [30:15.730] For that reason, in addition to the human and technical assets
+- [30:20.720] deployed by the President to find our airman,
+- [30:24.040] CIA executed a deception campaign to confuse the Iranians
+- [30:28.670] who were desperately hunting for our airman.
+- [30:32.540] On Saturday morning, we achieved our primary objective by finding
+- [30:37.540] and providing confirmation that one of America's best
+- [30:40.570] and bravest was alive
+- [30:43.180] and concealed in a mountain crevice,
+- [30:46.240] still invisible to the enemy, but not to the CIA.
+- [30:51.100] That confirmation was relayed by Secretary Hegseth
+- [30:54.210] to the President,
+- [30:55.700] and the operation quickly moved to the execution phase.
+- [30:59.910] Following the successful exfiltration on Saturday night,
+- [31:04.330] our intelligence reflects that the Iranians were embarrassed
+- [31:07.410] and, ultimately, humiliated by the success
+- [31:10.240] of this audacious rescue mission.
+- [31:14.400] When the President asked me to lead the CIA,
+- [31:17.520] he made it clear,
+- [31:18.730] get back to basics, no politics, no agendas,
+- [31:22.460] tackle the hardest problems
+- [31:24.380] and execute the toughest missions.
+- [31:27.460] This President is about results
+- [31:30.100] and now that's what his CIA is about too.
+- [31:34.450] The professionals at the agency and at the Department of War
+- [31:38.170] deserve immense credit for their flawless execution
+- [31:41.580] during this daring mission.
+- [31:42.930] Their skill, creativity, and courage are unmatched
+- [31:47.310] on the battlefield wherever they step.
+- [31:51.220] But none of that matters and all of that is wasted
+- [31:55.780] without a president with the political courage
+- [31:58.730] to put them into action.
+- [32:01.240] Mr. President, I've had the privilege of seeing you act
+- [32:05.220] with political courage in the best interests
+- [32:07.170] of the United States up close on a daily basis
+- [32:09.290] and I'm grateful that this successful mission
+- [32:11.790] has given the American people a window into that as well.
+- [32:17.050] The secretary and chairman will tell you
+- [32:18.990] that our service members' confidence
+- [32:21.140] is boosted by a commander in chief
+- [32:23.660] who has their back the same way they have yours.
+- [32:27.650] And I know that the confidence of CIA officers is boosted
+- [32:31.970] by the knowledge that their work is informing a president
+- [32:36.040] who's not afraid to make the hardest decisions
+- [32:39.830] when the stakes are highest. And to the American people,
+- [32:44.710] your confidence should be boosted
+- [32:47.630] by knowing that the security of the nation is in the hands
+- [32:50.260] of a president who's willing to take on problems
+- [32:53.770] that have confounded both sides of the political aisle
+- [32:57.470] for nearly half a century.
+- [33:00.180] It is an honor to serve under a leader who just proved
+- [33:04.110] that you can believe him when he says,
+- [33:07.310] no matter what, we will leave no one behind,
+- [33:11.540] we will come for you. Thank you.
+- [33:14.300] The President: Thank you, John. Thank you.
+- [33:19.890] Secretary Hegseth: Hello, sir.
+- [33:22.700] Well, John, thank you for the collaboration of the CIA
+- [33:24.800] as well, incredible and ongoing partnership.
+- [33:28.430] Ladies and gentlemen, fellow Americans,
+- [33:30.080] and especially the brave warriors in our armed forces,
+- [33:33.620] over this Easter weekend,
+- [33:35.630] the United States military has once again
+- [33:37.550] proved why we possess the greatest fighting force
+- [33:40.690] the world has ever known.
+- [33:43.240] In two extraordinary combat search and rescue operations
+- [33:47.320] deep inside enemy territory in Iran,
+- [33:50.680] our warriors executed missions of breathtaking skill,
+- [33:54.610] courage, and precision. When our warriors are unleashed,
+- [33:59.380] as this president has allowed them to be,
+- [34:01.780] they are unstoppable.
+- [34:05.060] When American airmen were down behind enemy lines,
+- [34:07.470] our forces and our president did not hesitate.
+- [34:10.570] Special operators supported by elite air crews
+- [34:13.030] and intelligence professionals, moved swiftly
+- [34:15.040] and decisively into treacherous mountain terrain
+- [34:18.320] under the constant threat of Iranian forces closing in.
+- [34:22.140] Ultimately, it was an impotent Iranian threat.
+- [34:26.750] And today, as the CIA director mentioned, Iran's military,
+- [34:29.920] and we know this, is embarrassed and humiliated,
+- [34:33.760] and they should be.
+- [34:35.790] Now, these are not routine operations.
+- [34:37.600] They were high risk, high stakes missions
+- [34:40.000] conducted in the heart of enemy territory.
+- [34:42.260] This was not just barely into Iran, this was deep into Iran,
+- [34:46.140] involving coordinated strikes to suppress threats,
+- [34:48.800] deception tactics to protect our teams,
+- [34:51.470] and full synchronization across air,
+- [34:53.350] ground and special operations.
+- [34:55.860] The Iranians are still asking themselves right now,
+- [34:58.450] how did the Americans do this?
+- [35:02.620] One downed airman evaded capture for more than a day,
+- [35:06.150] scaling rugged ridges while hunted by the enemy.
+- [35:10.200] When he was finally able to activate
+- [35:12.380] his emergency transponder,
+- [35:14.960] his first message was simple and it was powerful.
+- [35:19.450] He sent a message, God is good.
+- [35:23.660] In that moment of isolation and danger,
+- [35:25.770] his faith and fighting spirit shone through.
+- [35:29.370] You see, shot down on a Friday, Good Friday, hidden in a cave,
+- [35:35.830] a crevice all of Saturday and rescued on Sunday,
+- [35:42.660] flown out of Iran as the sun was rising on Easter Sunday,
+- [35:48.320] a pilot reborn,
+- [35:50.260] all home and accounted for a nation rejoicing.
+- [35:54.920] God is good.
+- [35:57.950] Despite incoming fire and unforgiving conditions,
+- [36:00.950] our troops brought every American home.
+- [36:03.570] No American lives were lost.
+- [36:05.940] We leave no man behind and that is not luck.
+- [36:09.710] It's the result of unmatched training,
+- [36:11.380] superior technology and unbreakable warrior ethos,
+- [36:15.450] and sheer American grit.
+- [36:18.210] Our special operators, pilots and support crews
+- [36:20.880] performed with near perfection under fire
+- [36:24.840] and they were lethal. Just ask any Iranian soldier
+- [36:29.570] who dared attempt to get anywhere near that pilot before
+- [36:34.140] or during that mission, death from above.
+- [36:39.510] Our troops turned a potential tragedy
+- [36:41.150] into a resounding demonstration of American resolve
+- [36:43.380] and capability.
+- [36:44.620] That's what excellence in uniform looks like.
+- [36:48.820] But make no mistake about it,
+- [36:51.010] none of this would have been possible
+- [36:53.480] without the courageous leadership
+- [36:55.120] and ironclad determination of President Donald J. Trump.
+- [37:00.960] From the moment our airmen went down,
+- [37:02.810] President Trump made it clear we will leave no one behind.
+- [37:07.330] The first mission, the first of two was an audacious daylight
+- [37:12.560] thunder run right up the middle.
+- [37:15.220] It was authorized in less than two hours
+- [37:17.400] from that pilot going down, when we knew where he was.
+- [37:22.940] And it was authorized in the middle of the night.
+- [37:24.640] Because anybody that's worked for this man
+- [37:26.260] knows he's up in the middle of the night,
+- [37:28.240] authorized immediately, without hesitation, audaciously.
+- [37:32.210] The second mission, as soon as we knew where that pilot was,
+- [37:35.190] and John was certainly helpful in that,
+- [37:38.650] also executed immediately.
+- [37:40.580] You know, I looked up at my screen
+- [37:42.060] when the final mission was complete,
+- [37:43.480] inside our skiff, our secure facility.
+- [37:46.330] And we have a running VTC, a running coordination cell,
+- [37:50.440] and the top of it read 45 minutes --
+- [37:53.800] 45 hours and 56 minutes. For 45 hours and 56 minutes,
+- [37:59.910] we held that call open for coordination.
+- [38:02.380] From the moment our pilots went down our mission was unblinking.
+- [38:07.340] The call never dropped, the meeting never stopped,
+- [38:09.970] the planning never ceased.
+- [38:13.020] The president demanded rapid, decisive action.
+- [38:15.860] He backed our military with the full weight of his resolve,
+- [38:18.330] refusing to let enemy propaganda or tactical setbacks
+- [38:21.840] deter us his leadership, ensured that every lethal
+- [38:26.520] and non-lethal resource was brought to bear,
+- [38:28.490] that our forces had the authorities
+- [38:31.030] and the support they needed to succeed.
+- [38:33.410] When the President says he has the backs of our warfighters,
+- [38:36.740] he means it and it means a great deal
+- [38:39.850] and it's a big difference on the battlefield.
+- [38:42.760] President Trump understands that peace through strength
+- [38:45.700] is not a slogan.
+- [38:47.470] It is a doctrine that saves American lives.
+- [38:50.860] His unwavering commitment to rebuilding our military
+- [38:53.320] and restoring the warrior spirit
+- [38:55.310] has paid dividends in missions just like this one.
+- [38:59.930] Under his command, America projects power with confidence
+- [39:03.630] and brings our people home with victory.
+- [39:06.500] And that continues today, by the way.
+- [39:08.910] Per the President's direction, today will be the largest volume
+- [39:11.470] of strikes since day one of this operation.
+- [39:14.160] Tomorrow, even more than today. And then Iran has a choice.
+- [39:19.590] Choose wisely, because this president does not play around.
+- [39:25.070] You can ask Soleimani. You can ask Maduro.
+- [39:28.740] You can ask Khamenei.
+- [39:31.780] To those heroes who planned and executed these rescues,
+- [39:34.200] your nation stands in awe,
+- [39:36.410] I stand in awe, the chairman stands in awe.
+- [39:38.630] We all stand in awe of your professionalism and bravery.
+- [39:42.140] We serve for you. You embody the very best of America.
+- [39:46.240] To the rescued airmen and their families, welcome home.
+- [39:49.650] Your courage and endurance,
+- [39:51.580] the quiet declaration of faith amid the storm inspires us all.
+- [39:56.990] God is good every day.
+- [40:00.880] And to our adversaries watching from Tehran,
+- [40:04.050] let this be a clear message to the United States military
+- [40:07.710] will go anywhere at any time to protect our own
+- [40:12.390] and complete the mission. We execute with precision.
+- [40:16.380] We control the skies, you see we flew for seven hours
+- [40:20.790] in daylight over Iran to get the first pilot,
+- [40:24.830] and we flew seven hours in the middle of the night
+- [40:27.480] to get the second and Iran did nothing about it.
+- [40:33.770] We fight with honor and under President Trump's leadership,
+- [40:36.570] we win. So God bless our troops.
+- [40:38.960] God bless President Trump and God
+- [40:41.260] bless the United States of America.
+- [40:42.660] Thank you.
+- [40:46.080] General Caine: Well, good afternoon everyone.
+- [40:47.900] Um, thank you, Mr. President.
+- [40:49.330] Thank you, Mr. Secretary. I note, before I start,
+- [40:52.180] I know many of you want specific details
+- [40:55.730] in these briefings we will share what we can,
+- [40:58.620] but I will retain what I must in the event
+- [41:01.780] that we have to go do this again sometime,
+- [41:04.530] and I cannot stress the importance,
+- [41:06.770] as the President said, around operational security.
+- [41:09.790] The secretary and I
+- [41:11.120] will do a more detailed briefing tomorrow morning,
+- [41:13.520] and we look forward to sharing the details that we can.
+- [41:17.000] On Thursday, 2nd April at 10:10 pm Eastern time,
+- [41:20.430] 4:40 in the morning local time,
+- [41:23.670] the Joint Personnel Recovery Center,
+- [41:25.450] which handles the Central Command Area of Responsibility,
+- [41:28.980] declared an isolated personnel recovery event
+- [41:32.020] for a US Air Force F-15E Strike Eagle,
+- [41:34.890] callsign Dude 44, which was down in hostile Iranian territory.
+- [41:39.940] The pilot and weapons system officer had both safely ejected
+- [41:43.920] and were isolated behind enemy lines.
+- [41:46.670] Following confirmation of active rescue beacons
+- [41:49.560] and on the direction of the secretary
+- [41:51.460] and by order of the President,
+- [41:53.240] a rescue operation was launched with the stated purpose
+- [41:56.610] of bringing both Americans home safely.
+- [42:00.020] As the secretary said, several hours later,
+- [42:02.640] on the morning after positively locating the front seater,
+- [42:06.280] call sign Dude 44 Alpha
+- [42:08.840] and aware of an aggressive ongoing search by the enemy,
+- [42:12.960] a US Central Command plan was approved
+- [42:16.010] by the secretary and the President.
+- [42:18.240] Shortly thereafter a US Air Force Combat Search
+- [42:21.790] and Rescue Task force
+- [42:23.580] comprised of A-10 warthogs in their Sandy role.
+- [42:27.170] And I'll describe what that is in a minute.
+- [42:29.420] HG-130 Combat King T2s, H-H 60 Jolly Green 2 helicopters
+- [42:35.310] and Air Force Special Warfare Airmen,
+- [42:38.360] a package comprised of combat rescue officers
+- [42:41.490] and pararescueman operators,
+- [42:43.520] audaciously penetrated enemy territory
+- [42:46.860] in broad daylight to find, fix and recover
+- [42:51.270] Dude 44 Alpha from behind enemy lines.
+- [42:55.300] This was an incredibly dangerous mission,
+- [42:59.690] an incredibly dangerous undertaking,
+- [43:03.040] but a filled promise made to made every American warfighter
+- [43:07.510] that you will not be left behind.
+- [43:10.070] We will always come find you
+- [43:12.590] and we will always bring you home.
+- [43:15.440] Over the next hours, the Search and Rescue Task Force
+- [43:18.260] crossed the beach, entered into Iranian airspace,
+- [43:22.120] protected by a fighter strike package,
+- [43:24.690] and moved into the objective area, all under fire.
+- [43:28.540] In route, as some of you have seen on social media,
+- [43:31.890] the helicopters took gas off the C-130s
+- [43:35.090] and pressed onward and forward up into the objective area.
+- [43:39.120] While this was ongoing and out in front of them,
+- [43:41.970] the sandy flight of A-10s
+- [43:44.030] and other remotely piloted aircraft, drones
+- [43:47.000] and other tactical aircraft were violently suppressing
+- [43:50.700] and engaging the enemy in a close in gunfight
+- [43:53.650] to keep them away from the front seater
+- [43:56.350] and allow the pickup force to get into the objective area.
+- [44:00.960] During this engagement, one of the sandy aircraft,
+- [44:03.990] the one primarily responsible for communicating
+- [44:06.830] with the downed pilot was hit by enemy fire.
+- [44:11.040] This pilot continued to fight, continued the mission,
+- [44:15.130] and then upon exit, flew his aircraft into another country
+- [44:19.300] and determined that the airplane was not landable.
+- [44:22.330] This was one of our A-10 Sandy aircraft.
+- [44:25.280] The pilot then made the decision to eject over friendly territory
+- [44:29.960] and was quickly and safely recovered and is doing fine.
+- [44:34.700] After picking up Dude 44 Alpha,
+- [44:38.260] the HH-60 Jolly Green
+- [44:40.120] Fight was engaged by every single person in Iran
+- [44:44.140] who had a small arms weapon and one of the aircraft,
+- [44:47.790] the trailing aircraft took several hits.
+- [44:50.510] The crew sustained minor injury and they are going to be fine.
+- [44:54.760] A note for those of you that do not know
+- [44:57.720] what a Sandy does, named after the flight callsign
+- [45:01.410] that did this very mission in Vietnam
+- [45:04.150] flying A-1 Skyraiders and A-7 corsairs.
+- [45:08.270] A Sandy has one mission, get to the survivor,
+- [45:13.300] bring the Rescue force forward
+- [45:15.610] and put themselves between that survivor
+- [45:18.570] on the ground and the enemy.
+- [45:21.100] They are committed to this this is what they live for
+- [45:24.670] and this is what they've trained for over many, many years.
+- [45:29.670] The A-10 force and the Rescue Force did fantastic --
+- [45:34.110] did a fantastic job rescuing Dude 44 Alpha.
+- [45:39.000] He was recovered Friday afternoon.
+- [45:41.860] As I said, and the nation needs to know this,
+- [45:45.030] this was an incredibly brave and courageous mission
+- [45:49.080] and a testament to the courage, skill,
+- [45:52.270] and tenacity of the joint force and our leaders
+- [45:56.580] and especially a daylight option
+- [45:58.970] having the guts to try means so much to so many.
+- [46:03.710] Meanwhile, the back seater,
+- [46:05.550] as the President and the secretary have said,
+- [46:07.940] had continued to work and survive.
+- [46:11.450] Through the hours of daylight, Dude 44 Bravo,
+- [46:14.580] the back seater evaded. Using every means available
+- [46:19.200] the efforts of the United States military,
+- [46:21.320] the Central Intelligence Agency
+- [46:23.000] and others were attempting to find and locate with precision
+- [46:27.770] Dude 44 Bravo, the back seater.
+- [46:30.840] A note on the back seater and the front seater,
+- [46:35.020] the single most important contributor
+- [46:39.030] to a successful rescue operation is the spirit of attack
+- [46:43.510] inside the heart of that downed aviator.
+- [46:46.430] Their will to survive, their will to evade,
+- [46:50.190] their will to recover is everything.
+- [46:53.210] In this case, the back seaters absolute commitment
+- [46:56.140] to surviving made much of our efforts possible.
+- [47:00.550] On Saturday 4th April,
+- [47:02.510] after establishing positive communications
+- [47:05.240] with the back seater we learned, as the President said,
+- [47:08.710] that he was injured and actively evading enemy forces.
+- [47:12.740] And thanks to our interagency partners,
+- [47:15.330] we were able to get eyes on his location and positively ID him.
+- [47:20.280] Throughout this entire time,
+- [47:21.780] the enemy force continued to search for 44 Bravo,
+- [47:25.260] and the Joint Force continued to strike them
+- [47:27.700] over and over and over again.
+- [47:30.960] Fighting off marginal weather in Iran
+- [47:33.160] and the enemy's search for a second time on Saturday,
+- [47:37.300] at the recommendation of CENTCOM commander
+- [47:39.610] and at the approval of the secretary and the President,
+- [47:42.200] we launched a rescue task force to recover Dude 44 Bravo.
+- [47:47.050] Again, this came to the President
+- [47:48.990] and the secretary for approval,
+- [47:50.900] this time with a much larger force package
+- [47:53.990] based on the time that the enemy had to prepare to find 44 Bravo.
+- [47:59.360] Again this force was protected by A-10 warthogs
+- [48:03.260] using the Sandy call sign
+- [48:05.190] and this force had one single mission,
+- [48:08.420] do everything they can to bring an American home.
+- [48:12.510] This meant having a plan, being prepared to execute that plan,
+- [48:17.010] and more importantly,
+- [48:19.310] being prepared for multiple simultaneous contingencies
+- [48:24.270] and because of this force's professionalism,
+- [48:27.370] grit and determination,
+- [48:29.630] fight off two enemies at the same time,
+- [48:32.590] the enemy searching for four Bravo and contingencies,
+- [48:36.940] which anyone who has done these types of missions
+- [48:39.480] knows we run into every single time.
+- [48:43.880] The force fought off both of those enemies incredibly well.
+- [48:48.290] During the period of darkness on Saturday,
+- [48:50.840] and as the secretary said,
+- [48:52.140] into Easter Sunday and into the daylight,
+- [48:55.730] the force fought its way in and rescued Dude 44 Bravo.
+- [49:01.090] They were protected overhead by an air armada,
+- [49:04.570] including tactical drones, strike aircraft and others.
+- [49:09.120] The force fought through multiple simultaneous
+- [49:12.390] contingencies, something no other nation,
+- [49:15.900] no other military can do and safely returned Dude 44 Bravo
+- [49:21.510] the back seater home
+- [49:23.790] and all other Americans home as well.
+- [49:27.840] At midnight, 12 local Eastern time, Easter Sunday,
+- [49:32.740] more than 50 hours after the start of this operation,
+- [49:37.920] the Joint Personnel Recovery Center declared Dude 44 Bravo
+- [49:42.290] both the front and back seater returned to friendly territory.
+- [49:47.840] The courage demonstrated by both the pilot
+- [49:50.770] and the weapons system officer,
+- [49:52.330] while isolated and them invading the enemy cannot be overstated.
+- [49:57.510] Their grit and warfighting tenacity is a direct result
+- [50:01.700] of the absolute trust they have in our rescue forces,
+- [50:05.150] their training and their will to survive and return.
+- [50:09.020] They always knew that we would be ordered to go get them,
+- [50:12.880] and they always knew that we would be coming to get them.
+- [50:16.950] These two operations reflect our nation's
+- [50:19.800] most sacred obligation to our military service members.
+- [50:23.600] We leave no one behind. Bless you.
+- [50:26.230] It also perfectly captures the first truth
+- [50:29.920] of our special operations forces,
+- [50:32.700] that people are more important than hardware.
+- [50:36.360] That is the standard we live by and the rescue forces
+- [50:39.880] that executed these missions operate under a clear motto,
+- [50:45.160] these things we do that others may live.
+- [50:49.590] Their actions were a direct embodiment
+- [50:52.470] of that commitment to others,
+- [50:54.390] and I could not be more proud of each
+- [50:58.210] and every one of them today.
+- [51:01.190] As the secretary said to our enemies,
+- [51:03.050] this operation serves as a clear reminder of the capability
+- [51:07.930] and will of America's joint force.
+- [51:10.700] The United States of America will recover our warfighters
+- [51:13.830] anywhere in the world under any conditions when we want to.
+- [51:18.410] We will always bring overwhelming skill
+- [51:20.520] and firepower.
+- [51:21.920] To every member of the Joint Force,
+- [51:24.020] our interagency partners, the leadership at CENTCOM,
+- [51:27.720] and our leaders at the Department and above, thank you.
+- [51:30.800] I'm proud of each and every one of you
+- [51:33.040] and thankful to our deployed forces and their families.
+- [51:37.640] And lastly, and most importantly,
+- [51:40.670] to Dude 44, welcome home, job well done.
+- [51:44.710] Thank you.
+- [51:51.440] The President: Well, pretty amazing,
+- [51:53.050] and these two gentlemen have been --
+- [51:56.240] from day one, they have been perfecto.
+- [51:59.080] You know, I got to know General Caine in my first term
+- [52:03.910] because he was able to take out ISIS in four weeks,
+- [52:06.540] instead of the four-year projection
+- [52:08.900] that was given to me by other -- much lesser generals.
+- [52:12.120] I said, you know, if I ever do this again,
+- [52:14.440] that's going to be the head of my Joint Chiefs of Staff.
+- [52:17.530] And we worked it that way, didn't we? Huh?
+- [52:19.220] He's amazing. He took out ISIS. We defeated ISIS in four weeks.
+- [52:24.200] I was told it would take four years.
+- [52:25.810] I flew to Iraq to find out,
+- [52:28.370] we're the greatest equipment in the world,
+- [52:30.420] why would it take four years? And he told me, sir, it won't.
+- [52:36.260] It'll take four weeks and you'll have time left over.
+- [52:38.640] And that's exactly what happened. So he's great.
+- [52:41.550] And Pete, all I can say is that he was treated very unfairly
+- [52:47.000] and now those same people that treated him unfairly,
+- [52:49.210] that fought against him,
+- [52:50.440] they call me up saying what a great choice he was.
+- [52:54.070] I said, well, what happened during his nomination,
+- [52:56.780] what happened to you?
+- [52:58.160] I'm telling you, people that were not for him, Senators,
+- [53:01.330] friends of mine, sir,
+- [53:02.550] I don't think you're doing the right thing.
+- [53:04.760] Now they're calling me up, what a choice.
+- [53:07.300] These two guys are fantastic and John Ratcliffe was incredible.
+- [53:11.170] It was actually their genius that called us from --
+- [53:16.550] it was 40 miles away. And he said, you know,
+- [53:19.470] we're seeing something moving up in the mountain.
+- [53:22.130] This is at night.
+- [53:24.210] And they kept the camera on him for 45 minutes.
+- [53:26.780] He wasn't moving and they said, you know, probably wrong,
+- [53:30.220] but we're seeing something moving.
+- [53:31.790] This is a vast mountain, vast, thick, with bushes, trees.
+- [53:38.800] He said, we see something moving, 40 miles away.
+- [53:41.570] It was the head of a human being,
+- [53:45.290] I'm telling you, it's moving.
+- [53:47.860] And then all of a sudden, 45 minutes later,
+- [53:50.000] he moved a lot, stood up. And they said, we have him.
+- [53:55.270] And that was really the beginning
+- [53:57.760] of something incredible.
+- [53:59.020] We had an idea where he was, but not specifically.
+- [54:02.090] It's a big mountain. So I want to thank the CIA, too.
+- [54:07.540] I don't think they get enough credit
+- [54:09.480] for the great job they've done.
+- [54:10.710] Yes, please.
+- [54:11.950] The Press: Yes. Thank you very much,
+- [54:13.670] Mr. President for this great opportunity.
+- [54:17.190] The country, it has super army.
+- [54:20.910] You make a difference, Mr. President.
+- [54:22.930] Thank you for your greatest leadership.
+- [54:24.640] The President: Thank you.
+- [54:25.870] The Press: I have two quick questions, Mr. President.
+- [54:29.030] What was your reaction when you learned that Kurdistan region
+- [54:33.840] had resumed exporting oil to the international market
+- [54:38.370] with your support as the United States of America?
+- [54:41.680] The President: Well, I expected that.
+- [54:42.970] We've gotten along with the Kurds for a long time,
+- [54:46.290] so I expected that. Yeah.
+- [54:48.270] The Press: Another question.
+- [54:49.490] What would -- what would be your reaction
+- [54:53.460] if the Iranian people rise up against their regime
+- [54:58.040] during a ceasefire, Mr. President?
+- [55:00.390] The President: Well, they should do it but again,
+- [55:02.270] the consequences are great.
+- [55:03.790] I mean, they were told you, if you protest,
+- [55:05.900] you will be shot immediately you saw
+- [55:08.290] what happened to the young wrestler.
+- [55:10.410] He was a great champion, by the way.
+- [55:11.770] He was a great wrestler, one of the top in the world.
+- [55:14.750] And he and his two friends were hung,
+- [55:18.080] and all they did was say a little bit about liberty.
+- [55:21.580] They wanted liberty, and they were violently executed.
+- [55:25.820] But the number is up to probably 45,000 people were killed.
+- [55:29.640] So, you know, when somebody stays in a house when they know
+- [55:32.570] if they walk out of the house to protest they'll be
+- [55:34.440] immediately shot and killed, and they issued that.
+- [55:38.340] You know, that was publicly issued.
+- [55:39.780] It's not a secret.
+- [55:41.460] That's why so many people say, oh, why are you doing this?
+- [55:44.170] We can't let Iran have a nuclear weapon.
+- [55:47.970] You know, we got regime change. We do.
+- [55:50.760] We're dealing with a much different regime than before.
+- [55:53.190] We're dealing with different people. They're smarter.
+- [55:57.320] I think they're sharper and far less radical.
+- [56:01.820] We have regime change,
+- [56:03.120] but we didn't do this for regime change.
+- [56:05.780] We did it for the fact and my -- my view was very simple.
+- [56:09.860] I saw somebody said, oh, he doesn't have a plan.
+- [56:11.870] I have the best plan of all,
+- [56:13.200] but I'm not going to tell you what my plan is.
+- [56:15.090] You know, they want me to say, here's my plan,
+- [56:17.490] we're going to attack at 9:47 in the morning,
+- [56:20.030] and then we're going to do this, and then we're going to --
+- [56:22.180] and if you don't do that, they say, I have a plan.
+- [56:24.890] These people know what the plan is.
+- [56:26.320] Everybody here knows what the plan is.
+- [56:28.770] But it's very unfair to say -- you know,
+- [56:32.000] because I don't mind being insulted.
+- [56:33.540] I've been insulted for many years
+- [56:34.830] by the by the fake news, but you can't --
+- [56:38.530] it's so bad for the -- for people that are so --
+- [56:41.570] you just saw two great and John Ratcliffe,
+- [56:44.550] three unbelievable people.
+- [56:46.290] They have a plan.
+- [56:47.840] Every single thing has been thought out by all of us,
+- [56:51.770] but I can't reveal the plan to the media.
+- [56:54.640] So, you know, but we're just thrilled
+- [56:56.560] by the success of this operation. Yes, please.
+- [56:58.930] The Press: Thank you, Mr. President.
+- [57:00.270] You've said Iranians would be mad
+- [57:01.850] if you stopped these attacks,
+- [57:03.590] but why would they want you to blow up their infrastructure
+- [57:06.400] to cut off their power?
+- [57:07.760] Wouldn't that be punishing Iranians
+- [57:09.530] for the actions of the regime?
+- [57:10.860] The President: Yeah. They would be willing to --
+- [57:12.490] they would be willing -- and it's suffering.
+- [57:13.980] They would be willing to suffer that in order to have freedom.
+- [57:18.040] The Iranians have -- and we've had numerous intercepts,
+- [57:22.560] please keep bombing, bombs that are dropping near their homes,
+- [57:26.670] please keep bombing, do it.
+- [57:29.950] And these are people that are living
+- [57:31.630] where the bombs are exploding.
+- [57:33.110] And when we leave and we're not hitting those areas,
+- [57:36.510] they're saying, please come back, come back, come back.
+- [57:39.150] These are the people.
+- [57:40.390] The Press: (Inaudible)
+- [57:41.620] The President: I don't know what they do.
+- [57:43.020] All I can tell you is they want freedom.
+- [57:45.590] They have lived in a world that you know nothing about.
+- [57:49.540] It's a violent, horrible world,
+- [57:52.700] where if you protest, you are shot.
+- [57:55.280] Remember the great woman protests where they had 400,000,
+- [57:58.180] 500,000 women and they were all enthused
+- [58:00.600] and they were going to protest and everybody said,
+- [58:03.410] oh, the regime's is going to come to an end.
+- [58:05.270] And then all of a sudden, boom, boom, five, six different areas.
+- [58:13.760] A woman would go down, right between the eyes.
+- [58:15.850] They had snipers. They had five snipers.
+- [58:17.510] That's all it took.
+- [58:19.520] And those 400,000 or 500,000 women said,
+- [58:22.540] oh my God, what's that?
+- [58:24.390] Oh, look over there, what's that?
+- [58:26.630] A woman shot right between the eyes.
+- [58:30.310] And after five or six of them go down,
+- [58:33.200] then you start hearing the purr
+- [58:35.500] through the vast number of people.
+- [58:39.740] And then they said, oh, my God, who would do that?
+- [58:43.450] And they're incredible people, but they've lived so horribly.
+- [58:47.280] They've lived so horribly.
+- [58:48.880] You know, Iran was a great country
+- [58:50.420] if you go back 25 years ago or so.
+- [58:54.140] The Persian people, they're incredible,
+- [58:56.440] smart, brilliant, actually.
+- [58:58.950] And I know so many. I know, coming from New York originally,
+- [59:02.530] I know so many people from Iran.
+- [59:04.240] They're incredible people, incredible energy
+- [59:07.480] and very, very brilliant people.
+- [59:09.740] And -- but when you're standing in a group and protesting
+- [59:12.780] and you have a woman -- in the case of a woman --
+- [59:14.920] remember the great woman March, everybody was saying,
+- [59:17.150] oh, this is the end of the country
+- [59:19.900] and then snipers selectively picked, every single one
+- [59:24.310] was shot right between the eyes from a long distance.
+- [59:27.160] They were on top of buildings.
+- [59:29.020] Nobody even knew where they were,
+- [59:30.400] where are they coming from?
+- [59:31.600] This wasn't like a machine gun, which is also very bad.
+- [59:33.970] They've done that too. They did that recently.
+- [59:37.010] This was snipers sitting on the top of buildings,
+- [59:41.540] aiming and hitting women.
+- [59:43.760] And when they see people go down and all of a sudden
+- [59:46.120] there's a riot in the reverse direction
+- [59:49.100] and they never came out again.
+- [59:50.970] And a lot of the news doesn't talk about --
+- [59:53.550] they talk about, oh, women's rights.
+- [59:56.040] You want to see women's rights,
+- [59:57.440] you're not going to see it there.
+- [59:59.060] It's amazing when I see some of the stupid people like,
+- [01:00:01.880] you know, AOC plus three, all that group.
+- [01:00:04.560] they talk about -- oh Freedom for Iran.
+- [01:00:08.320] They don't tell you the real facts women, men, gays.
+- [01:00:13.500] How about gays for Iran? They kill the gays.
+- [01:00:17.570] They throw them off buildings. So I wonder what's going on.
+- [01:00:21.680] I can only say this, they want us to keep bombing.
+- [01:00:26.290] Even if it jeopardized,
+- [01:00:27.800] because their life is in much greater danger.
+- [01:00:30.130] They want freedom for Iran,
+- [01:00:31.770] but it's very hard for them to protest.
+- [01:00:33.480] I actually tell them, I said, don't go out.
+- [01:00:35.090] I fully understand nobody in this room would go out.
+- [01:00:38.050] I don't think there's any because frankly,
+- [01:00:40.040] it's not a question of bravery we're all brave, right?
+- [01:00:42.120] You're brave. I'm brave we're all brave,
+- [01:00:44.480] but we're also intelligent
+- [01:00:47.100] if you have people shooting at you,
+- [01:00:50.130] expert shots with the best rifles you can get
+- [01:00:53.960] and hitting you right between the eyes every single time
+- [01:00:57.070] and you're looking here and you're seeing
+- [01:00:58.630] and you're looking here you're out of there
+- [01:01:00.960] I don't care who it is. Please.
+- [01:01:03.870] The Press: Mark Meredith, FOX News.
+- [01:01:05.280] The President: I know that. The Press: Oh thank you, sir.
+- [01:01:06.670] The President: How would I know that?
+- [01:01:07.910] Go ahead. The Press: America's watching.
+- [01:01:09.110] The President: Good job.
+- [01:01:10.330] The Press: Can we go back to the weekend?
+- [01:01:12.200] First off, was everyone on board with the operation,
+- [01:01:14.690] or were there people that were trying to talk you
+- [01:01:16.530] out of going through with the operation this weekend?
+- [01:01:18.400] The President: Not everybody was on board.
+- [01:01:19.600] The Press: Somebody else within?
+- [01:01:20.820] The President: No. There was military people,
+- [01:01:22.910] very professional that preferred not doing it.
+- [01:01:26.080] These two were totally on board, which was very important.
+- [01:01:29.860] If they weren't, I would have had a little difficulty
+- [01:01:32.560] but no, there were military people that said,
+- [01:01:34.950] you just don't do this.
+- [01:01:36.300] You don't go into the heart of a very powerful military.
+- [01:01:40.670] You know, this is -- hey, you have countries and countries
+- [01:01:43.010] you have some countries where military
+- [01:01:45.410] is not their strong suit.
+- [01:01:46.700] This whole thing is militarized like nobody's ever seen before.
+- [01:01:50.190] Half the people are wearing uniforms
+- [01:01:53.290] and, you know, we had --
+- [01:01:54.510] we had people within the military.
+- [01:01:57.030] Usually it's not done.
+- [01:01:58.570] That's one of the reasons, you know, I was surprised.
+- [01:02:00.270] Somebody said it's the only time it's ever been done
+- [01:02:02.530] I said, that's not possible.
+- [01:02:04.120] But it is possible because you're going into
+- [01:02:07.150] hundreds of thousands of soldiers along the path.
+- [01:02:11.170] I mean, look at some of the helicopters, how they got hit.
+- [01:02:15.390] So yeah, there were people within the military
+- [01:02:17.420] that said it's a wise and don't forget --
+- [01:02:19.360] how many men did you send all together
+- [01:02:21.280] approximately for the operation?
+- [01:02:23.940] Unidentified: I'd love to keep that a secret, Mr. President.
+- [01:02:25.790] The President: Ok, well but I will tell you the number --
+- [01:02:30.720] I'll keep it a secret but it was hundreds
+- [01:02:33.430] and hundreds of these people. It's pretty good.
+- [01:02:36.500] Is he central -- is he central casting?
+- [01:02:39.120] But hundreds of people went into this journey,
+- [01:02:43.220] hundreds of people could have been killed forget
+- [01:02:45.070] about the equipment, a lot of equipment.
+- [01:02:46.560] Nobody cares. Hundreds of people could have been killed
+- [01:02:50.940] so we had people that were within the military that said,
+- [01:02:53.530] this is not a wise -- and I understood that,
+- [01:02:55.900] but I decided to do it.
+- [01:02:58.350] The Press: Sir, was there a point
+- [01:02:59.620] that they were going to that you were thinking,
+- [01:03:01.670] there's too much on the line and somebody was saying,
+- [01:03:03.420] maybe we abort this now and wait?
+- [01:03:05.770] I mean, given the resources, like the general said,
+- [01:03:07.850] it seems like there was so much on the line here.
+- [01:03:09.910] You must have been thinking this could have
+- [01:03:11.420] completely changed in the next three minutes?
+- [01:03:12.910] The President: Well, the first one,
+- [01:03:14.150] which was in many ways as dangerous as the second,
+- [01:03:18.330] I guess, it gets because we're flying over daylight.
+- [01:03:21.790] You know, we're the best at the world at night.
+- [01:03:23.740] We have goggles that nobody -- we have goggles,
+- [01:03:25.830] I've tried them and they're unbelievable.
+- [01:03:27.770] I see better with the goggles at night
+- [01:03:30.460] than I see without them during daylight.
+- [01:03:32.350] I mean, daylight today we have a beautiful day,
+- [01:03:35.610] you see just as well with goggles.
+- [01:03:38.020] In many ways it's enhanced so we have the best in the world.
+- [01:03:41.980] So it's much safer for us to for us to do it at night
+- [01:03:45.560] whereas other people -- no other country has that capability.
+- [01:03:47.790] They don't have the --
+- [01:03:49.060] they don't have that particular piece of equipment like we do.
+- [01:03:52.480] But when I was told flying and in daylight,
+- [01:03:57.080] I think we flew seven hours over Iran.
+- [01:03:59.810] And that's a long time over unbelievably hostile territory
+- [01:04:04.420] where they have nothing but weapons
+- [01:04:06.640] we took out their anti-aircraft,
+- [01:04:08.280] which is great we took out their radar,
+- [01:04:10.400] which is great we took out a lot,
+- [01:04:11.800] but they still have you know what hit this one
+- [01:04:14.080] was a shoulder,
+- [01:04:15.960] handheld shoulder missile, heat-seeking missile.
+- [01:04:18.540] So it's not like, you know, they're totally whatever, but --
+- [01:04:23.300] but and they have probably a little luck
+- [01:04:26.080] because you got to get lucky
+- [01:04:27.880] but they shot it and it got sucked in right by the engine
+- [01:04:30.910] but these guys were out of there.
+- [01:04:32.150] They were great. Their timing was great.
+- [01:04:34.860] But no, I was told that this is a very dangerous mission,
+- [01:04:38.030] I understand.
+- [01:04:39.410] They didn't say it's a foolish mission
+- [01:04:41.100] they said, you know, we're going to be sacrificing
+- [01:04:43.610] hundreds of people do this this is --
+- [01:04:46.210] I mean, you have tankers that are flying over this area
+- [01:04:48.570] so that they could the flight was so long they had to refuel.
+- [01:04:52.220] It's a very dangerous mission. I just felt it was worth it.
+- [01:04:56.150] If you would have told me that we would have been successful,
+- [01:04:59.240] gotten both -- and nobody was even essentially injured,
+- [01:05:02.340] I would have said that would be impossible.
+- [01:05:03.880] Yeah, please?
+- [01:05:05.100] The Press: Mr. President, thank you very much.
+- [01:05:06.360] Thank you, sir.
+- [01:05:07.570] The President: Welcome. We'll come back to you.
+- [01:05:08.770] The Press: Ok, thank you.
+- [01:05:10.030] Given that you are now dealing, you say, with a more reasonable,
+- [01:05:13.190] um, less extreme leadership in Iran,
+- [01:05:16.920] what does that mean for the protesters,
+- [01:05:19.030] for the human rights movement in that country
+- [01:05:21.150] after this conflict? What's your expectation?
+- [01:05:23.080] The President: Yeah, if they assume control,
+- [01:05:25.600] if we do something and they assume control,
+- [01:05:27.400] I think it's very positive, a big step.
+- [01:05:30.150] I don't think you see the radicalization
+- [01:05:31.940] that you have seen in the last --
+- [01:05:34.690] look what happened. I mean, women are being executed
+- [01:05:37.370] because they're not properly clothed, they say.
+- [01:05:40.770] They're not properly clothed and they execute the women.
+- [01:05:43.210] They absolutely -- they shoot them right on the street.
+- [01:05:47.380] No, you have a much different group of people.
+- [01:05:49.480] Now, I'm not saying -- we are dealing with them.
+- [01:05:54.120] Essentially they have till 8:00 tomorrow night, eastern time
+- [01:05:58.710] but we are dealing with them I think it's going well.
+- [01:06:00.870] Mr. Witkoff is here and JD is involved in the dealing.
+- [01:06:05.530] Mr. Witkoff is sitting right here
+- [01:06:07.480] and I think it's going fine but we'll have to see.
+- [01:06:09.550] You have to understand,
+- [01:06:10.780] we've been dealing with these people for 47 years.
+- [01:06:15.320] I'm standing here with a much more powerful Iran,
+- [01:06:20.510] as of a month ago not anymore. Right now they are decapitated.
+- [01:06:24.290] But I'm standing here a month ago
+- [01:06:26.310] with a much more powerful
+- [01:06:28.330] Iran than it was at any point during 47 years.
+- [01:06:31.910] This should have been handled by seven presidents,
+- [01:06:35.380] a lot of presidents and those presidents are saying now,
+- [01:06:39.100] every one of them to their friends,
+- [01:06:41.300] we should have done this a long time ago.
+- [01:06:43.630] So it's not something I like doing.
+- [01:06:45.840] It's very dangerous and we're getting them at the height of --
+- [01:06:49.270] of their strength.
+- [01:06:50.500] If I didn't terminate the Barack Hussein Obama
+- [01:06:54.070] Iran nuclear deal, they would have had --
+- [01:06:57.030] don't forget, that was a path to a nuclear weapon, remember this.
+- [01:07:00.550] He chose Iran over Israel, pure and simple.
+- [01:07:04.970] How -- and how Israel can vote for a Democrat is --
+- [01:07:08.960] if you're Jewish in New York City
+- [01:07:11.680] or any place else in this country,
+- [01:07:13.510] and how you can vote for a Democrat is unbelievable
+- [01:07:16.980] because he chose Iran, a very hostile Iran.
+- [01:07:21.860] Remember when he filled up a 757 with cash,
+- [01:07:24.930] billions of dollars of cash, and he sent it over to them
+- [01:07:28.540] then they gave them tens of billions of dollars.
+- [01:07:31.810] He chose Iran over Israel and really the Arab world,
+- [01:07:35.910] if you look because, you know,
+- [01:07:37.170] the other Saudi Arabia, Qatar, UAE.
+- [01:07:41.300] I mean, you take a look. I mean, I can add
+- [01:07:43.160] Kuwait and I can add Bahrain and you can add others.
+- [01:07:47.140] He chose such an unlikely candidate.
+- [01:07:50.960] Nobody could believe it.
+- [01:07:52.250] Frankly, if you're going to choose between Iraq and Iran --
+- [01:07:55.330] he should have chosen he should have befriended Iraq.
+- [01:07:59.170] He went in the exact opposite direction of all thinking,
+- [01:08:04.470] and he made a terrible mistake
+- [01:08:06.000] but that was a road to a nuclear weapon.
+- [01:08:09.330] And when I terminated that, everyone said,
+- [01:08:11.670] oh, he terminated.
+- [01:08:12.890] It -- it was one of the best things we ever did
+- [01:08:14.970] because he had a road to a nuclear weapon
+- [01:08:16.420] and it was going to it was a very short term deal.
+- [01:08:20.150] You know, countries don't do ten-year deals countries
+- [01:08:22.620] do hundreds of years.
+- [01:08:24.370] You don't do a ten-year deal for a country.
+- [01:08:26.080] You need -- this isn't you're a landlord
+- [01:08:28.300] you're renting a store on on a certain street
+- [01:08:31.420] and you give somebody a five-year
+- [01:08:32.700] or a ten-year lease this is a country.
+- [01:08:34.610] It was a short-term deal it was ready to expire.
+- [01:08:38.310] I terminated it before it expired,
+- [01:08:40.120] took a lot of heat
+- [01:08:41.450] and it was one of the best things I ever did
+- [01:08:42.890] because he would have had a nuclear weapon.
+- [01:08:44.430] Then he would have had another nuclear weapon
+- [01:08:46.600] had those beautiful B-2 bombers not gone in eight months ago
+- [01:08:50.650] and obliterated that site.
+- [01:08:52.430] And by the way, the word is obliteration.
+- [01:08:54.830] CNN said, well, maybe it wasn't complete.
+- [01:08:57.380] It was so complete
+- [01:08:58.610] that they still haven't been able to get it.
+- [01:09:00.750] It was obliteration but if we didn't hit them,
+- [01:09:04.490] that was a courageous decision too,
+- [01:09:06.190] because we had all those planes
+- [01:09:07.690] flying in at night with very little cover.
+- [01:09:11.050] Unbelievable stealth planes and they were able to do their job.
+- [01:09:15.480] If we didn't do that,
+- [01:09:16.900] Iran would have had a nuclear weapon at a high level.
+- [01:09:21.610] Either one of those two instances
+- [01:09:23.170] and if they did, in my opinion,
+- [01:09:25.910] I told this to Bibi Netanyahu yesterday Israel
+- [01:09:30.090] would have been extinguished.
+- [01:09:32.590] Large portions of the Middle East
+- [01:09:35.080] would have been extinguished,
+- [01:09:36.360] whether it's Saudi Arabia, Qatar, UAE or others.
+- [01:09:40.620] And you saw that with thousands of missiles
+- [01:09:42.640] raining down upon them,
+- [01:09:43.910] they didn't think they were going to be hit.
+- [01:09:45.460] They thought they'd be watching us fight
+- [01:09:47.750] and all of a sudden UAE got hit by 1,500 missiles.
+- [01:09:52.170] He would have taken them out also, and they were powerful.
+- [01:09:56.550] If I didn't come along and terminate the Obama deal,
+- [01:10:00.200] which was terrible, the Iran nuclear deal was a --
+- [01:10:03.210] a road to a nuclear weapon.
+- [01:10:05.310] A big one, unlimited.
+- [01:10:06.610] Legally I terminated it without even much thought.
+- [01:10:10.900] It was so easy. I terminated that and then the B-2 bombers.
+- [01:10:15.950] And I did one other thing.
+- [01:10:17.180] I had killed Qasem Soleimani, who was an evil genius.
+- [01:10:24.780] And the reason I did it, I heard
+- [01:10:26.130] he was going to knock out five of our military bases.
+- [01:10:30.870] And had he lived, I believe we would be fighting
+- [01:10:35.710] perhaps a different Iran right now,
+- [01:10:38.990] because he's never --
+- [01:10:41.720] he's never been replaced, you know?
+- [01:10:43.460] And I also, I did one other, but this one was not picked up,
+- [01:10:47.120] Osama bin Laden.
+- [01:10:49.380] If you read my book, I said, you got to take him out one year
+- [01:10:52.120] before the World Trade Center came down.
+- [01:10:54.550] So I wish you'd read the book.
+- [01:10:57.310] But -- but you, as a president, to be a good president,
+- [01:11:02.340] I believe you have to have good instincts
+- [01:11:03.750] and a lot of this is instinct.
+- [01:11:04.960] Yeah, please.
+- [01:11:06.200] The Press: President Trump? Thank you so much
+- [01:11:07.540] for taking my question today, Mr. President.
+- [01:11:09.300] The President: Yeah, go ahead. Please.
+- [01:11:10.520] The Press: Mr. President, last week --
+- [01:11:11.940] last week, you suggested that Europe should take the lead
+- [01:11:14.130] on reopening the Strait of Hormuz.
+- [01:11:16.190] Has circumstances changed now
+- [01:11:17.610] that you're issuing a direct 48-hour --
+- [01:11:20.700] I mean 48-hour ultimatum?
+- [01:11:23.230] And secondly, would a new cease fire include Israel,
+- [01:11:25.680] or would it just be between Iran and the US?
+- [01:11:27.320] The President: I can't talk about ceasefire,
+- [01:11:29.000] but I can tell you that we have a active,
+- [01:11:33.540] willing participant on the other side.
+- [01:11:35.980] They would like to be able to make a deal.
+- [01:11:37.500] I can't say any more than that (Inaudible) Please, go ahead.
+- [01:11:41.990] The Press: Thank you, Mr. President.
+- [01:11:46.180] The President: Who are you with? Who are you with?
+- [01:11:47.680] The Press: My name is (Inaudible)
+- [01:11:48.910] I'm with the largest Kurdish media outlet,
+- [01:11:50.510] Rudaw Media Network. It's based in Iraq.
+- [01:11:52.330] The President: Go ahead.
+- [01:11:53.540] The Press: Mr. President, you said
+- [01:11:55.240] before that you don't want the Kurdish forces
+- [01:11:57.770] to enter Iran and be harmed.
+- [01:12:00.020] Do you still want them to stay away,
+- [01:12:01.940] or what role do you expect them to play now?
+- [01:12:04.670] The President: I'd rather have them stay away.
+- [01:12:07.020] I'd rather have them stay away because I think they bring
+- [01:12:09.540] with them some problems and some difficulty.
+- [01:12:12.430] And I don't think -- they bring death,
+- [01:12:14.140] I mean, you know, to themselves
+- [01:12:16.020] but I'd rather have them stay away.
+- [01:12:20.940] Go ahead.
+- [01:12:22.150] The Press: Thank you, Mr. President, for the question.
+- [01:12:23.960] Deliberate attacks on civilian infrastructure
+- [01:12:26.380] violate the Geneva Conventions and international law.
+- [01:12:29.090] The President: Who are you with? Who are you with?
+- [01:12:30.540] The Press: I'm with the New York Times.
+- [01:12:31.750] Zolan from the New York Times.
+- [01:12:33.010] The President: The failing -- the failing New York --
+- [01:12:34.290] (Inaudible)
+- [01:12:35.490] circulation way down at the New York Times.
+- [01:12:36.800] What's going on?
+- [01:12:38.060] The Press: Are you concerned that your threat
+- [01:12:39.310] to bomb power plants and bridges amount to war crimes?
+- [01:12:41.830] The President: No, no, no, I'm not.
+- [01:12:43.060] I hope I don't have to do it. But again, I just said,
+- [01:12:46.790] 47 years they've been negotiating with these people.
+- [01:12:49.500] They're great negotiators.
+- [01:12:51.380] And because they're not going to have a nuclear weapon.
+- [01:12:55.210] And if somebody that takes my place someday
+- [01:12:58.280] is weak and ineffective, which possibly that will happen
+- [01:13:01.320] because we had numerous presidents that were weak,
+- [01:13:04.200] ineffective, and afraid of Iran.
+- [01:13:07.150] We're never going to let Iran have a nuclear weapon
+- [01:13:10.870] and if you think it's Ok
+- [01:13:12.480] for people that are sick of mind,
+- [01:13:15.090] that are tough, smart and sick, really sick ideologically --
+- [01:13:21.100] you know, from a policy standpoint, from a standpoint,
+- [01:13:26.110] any which way you want to say,
+- [01:13:27.670] mentally, these are disturbed people.
+- [01:13:30.230] If you think I'm going to allow them,
+- [01:13:32.070] and powerful and rich, to have a nuclear weapon,
+- [01:13:36.200] you can tell your friends at The New York Times,
+- [01:13:38.620] not going to happen.
+- [01:13:42.940] The Press: If it means violating international law?
+- [01:13:44.550] The President: Quiet, quiet. You no longer have credibility,
+- [01:13:46.960] The New York Times, because the New York Times said,
+- [01:13:49.610] oh, Trump won't win the election and I won in a landslide.
+- [01:13:52.340] I won every swing state. New York
+- [01:13:53.890] Times said, oh, Trump won't win the election.
+- [01:13:56.360] New York Times has no credibility.
+- [01:13:58.520] The credibility they have is it used to be all the news
+- [01:14:01.720] that's fit to print, a great -- the Old Great Lady.
+- [01:14:03.750] It was great.
+- [01:14:04.980] But they're running on past fumes
+- [01:14:07.420] and you can't keep doing that.
+- [01:14:08.660] You have to be able to give the correct news
+- [01:14:11.400] and people like you, who I know, are fake.
+- [01:14:14.810] You're fake. Go ahead, please.
+- [01:14:16.550] The Press: Mr. President, you're messaging on the war
+- [01:14:18.960] has moved from the war is coming to an end,
+- [01:14:21.390] the war going to be bombing Iran to the Stone ages
+- [01:14:24.330] and we've heard a range of those kind of messages.
+- [01:14:26.410] The President: Sure.
+- [01:14:27.700] The Press: So are you -- so which is it?
+- [01:14:29.110] Are you winding this down? Are you --
+- [01:14:30.480] The President: I can't tell you. I can't tell you.
+- [01:14:32.020] I don't know. I can't tell you. It depends what they do.
+- [01:14:34.580] This is a critical period.
+- [01:14:36.250] They have a period of -- well, till tomorrow at 8:00.
+- [01:14:41.400] I gave them an extension.
+- [01:14:42.670] They asked for an extension of seven days, right?
+- [01:14:45.300] I said, Steve, give them 10 days.
+- [01:14:50.350] 10 days is up actually today,
+- [01:14:52.730] so I gave them 11, I guess, indirectly.
+- [01:14:55.000] I thought it was inappropriate the day after Easter.
+- [01:14:57.630] I want to be a nice person. They have till tomorrow.
+- [01:15:02.600] Now, we'll see what happens.
+- [01:15:04.330] I can tell you they're negotiating,
+- [01:15:06.060] we think in good faith. We're going to find out.
+- [01:15:08.790] We're getting the help of some incredible countries
+- [01:15:11.800] that want this to be ended, because it affects them also.
+- [01:15:16.040] A lot of people are affected by this.
+- [01:15:18.310] But we're giving them --
+- [01:15:20.710] we're giving them till tomorrow, 8:00 eastern time.
+- [01:15:24.670] And after that, they're going to have no bridges,
+- [01:15:28.010] they're going to have no power plants, stone ages,
+- [01:15:32.430] yeah, stone ages.
+- [01:15:38.640] The Press: Are you willing to make a deal
+- [01:15:41.290] that does not include reopening the Strait of Hormuz,
+- [01:15:44.260] or is that now a top priority?
+- [01:15:46.080] The President: I would say it's a very big priority
+- [01:15:47.680] because, um --
+- [01:15:49.000] you see, that's one thing that's a little different than other
+- [01:15:51.990] (Inaudible)
+- [01:15:53.190] we can bomb the hell out of them,
+- [01:15:54.730] we can knock them out for a loop,
+- [01:15:56.990] but to close the strait, all you need is one terrorist
+- [01:16:01.130] that somehow has a truck loaded with --
+- [01:16:03.700] because you can carry them in trucks,
+- [01:16:05.220] large trucks, a water mine.
+- [01:16:08.500] Drop them in the water and now you tell people
+- [01:16:11.460] that own ships that cost $1 billion to --
+- [01:16:13.700] don't worry about the mine.
+- [01:16:15.260] You can do that even just by saying
+- [01:16:16.860] we put mines in the water.
+- [01:16:18.730] So it's not like the rest. We can knock out their military.
+- [01:16:21.850] We already have. We've knocked out their navy,
+- [01:16:24.510] we've knocked out their Air force completely,
+- [01:16:26.460] knocked out 158 ships in three days.
+- [01:16:30.090] We've knocked out even their mine droppers.
+- [01:16:31.890] They don't have any mine droppers anymore,
+- [01:16:33.940] but they put them on other boats and they could drop them.
+- [01:16:36.370] I'm not even sure they have any mines there, by the way.
+- [01:16:38.300] I'm not sure. I'm -- personally. They say there might be eight.
+- [01:16:42.240] I don't know. I don't know. I think there might be none
+- [01:16:45.730] because they're very good bullshit artists.
+- [01:16:47.520] That's why for 47 years,
+- [01:16:49.040] they've been bullshitting other presidents
+- [01:16:51.520] and they haven't done the job. And people are living in hell.
+- [01:16:55.250] You live in that country, they're living in hell.
+- [01:16:58.380] No, I think that 47 years of this stuff is long enough.
+- [01:17:04.850] They're at the weakest point they've ever been.
+- [01:17:07.930] They have no navy, they have no air force,
+- [01:17:09.770] they have no anti-aircraft weaponry,
+- [01:17:12.770] they have no radar, they have no communication.
+- [01:17:15.180] In fact, the biggest problem we have in our negotiation
+- [01:17:17.800] is that they can't communicate.
+- [01:17:20.060] I said to Steve, what are they saying?
+- [01:17:21.800] Sir, they can't communicate.
+- [01:17:23.690] They have no method of communication.
+- [01:17:26.320] So we're doing we're communicating like they used
+- [01:17:28.480] to communicate 2,000 years ago,
+- [01:17:30.450] with children bringing a note back and forth.
+- [01:17:33.590] They have no communication.
+- [01:17:35.810] But all I want to see is I want to have a safe world,
+- [01:17:39.260] and you're not going to have a safe world.
+- [01:17:41.540] Israel will be gone the Middle East will be gone,
+- [01:17:45.580] and then they're coming for Europe.
+- [01:17:47.130] And I have to tell you,
+- [01:17:48.410] I'm very disappointed in NATO, very.
+- [01:17:50.820] I think that NATO -- I think it's a mark on NATO
+- [01:17:54.750] that will never disappear, never disappear in my mind.
+- [01:17:56.970] You know, they're coming to see me on Wednesday.
+- [01:17:58.640] They're going to say, oh, we'll do this, we'll do that.
+- [01:18:01.200] Now they all of a sudden want to send things, you know?
+- [01:18:04.220] But they said it loud and clear at the beginning
+- [01:18:06.310] when I spoke to UK, of all.
+- [01:18:07.830] I would have said they would have been the first
+- [01:18:09.440] because they've been -- they're the oldest.
+- [01:18:12.150] And I say, yeah, I'd love to have a little help.
+- [01:18:14.150] They said, no sir, we'd rather wait till you win.
+- [01:18:17.710] I said, I don't need help after we win.
+- [01:18:20.350] They have two old broken aircraft carriers, barely work.
+- [01:18:23.640] I said, I guess we can use them. Who the hell knows?
+- [01:18:25.520] I called the general. He didn't even want them.
+- [01:18:27.620] He said, we don't really need them.
+- [01:18:29.010] We got -- we got the SS Abraham Lincoln, sir,
+- [01:18:32.380] we don't need them.
+- [01:18:33.720] Do you know, we have -- in terms of technology,
+- [01:18:36.550] we had one day 101 missiles going at 2,700 miles an hour
+- [01:18:42.360] aimed at the Abraham Lincoln, 101 missiles.
+- [01:18:46.610] Out of 101 missiles, 101 missiles were shot down,
+- [01:18:52.620] unbelievable technology. 10 years ago, five years ago,
+- [01:18:56.890] I don't know if that would have been possible,
+- [01:18:59.060] but 10 years ago, that wouldn't have been --
+- [01:19:01.600] that wouldn't have been possible.
+- [01:19:03.780] 101 missiles heading to a ship
+- [01:19:06.960] that's not that far off the coast.
+- [01:19:10.880] And out of the 101 missiles, we shot down all 101.
+- [01:19:14.750] We have weaponry -- the Patriots are unbelievable.
+- [01:19:18.090] We have weaponry that's unbelievable.
+- [01:19:20.790] Yeah. Go ahead, please. Please.
+- [01:19:26.730] The Press: Thank you, Mr. President.
+- [01:19:28.370] You said earlier today during the egg roll,
+- [01:19:30.600] that you would like to take Iran's oil,
+- [01:19:32.920] but Americans want US forces home.
+- [01:19:35.330] The President: Correct. If I had my choice --
+- [01:19:38.190] if I had my choice, yeah, because I'm a businessman first.
+- [01:19:42.340] With Venezuela, as you know,
+- [01:19:45.240] the war was over in about 45 minutes
+- [01:19:48.660] and we have great people running Venezuela, very good people.
+- [01:19:51.870] I mean, the relationship is good,
+- [01:19:54.130] and we are a partner with Venezuela.
+- [01:19:57.170] And we've taken hundreds of millions of barrels,
+- [01:20:00.750] hundreds of millions, over 100 million barrels already
+- [01:20:05.380] is in Houston refined and out
+- [01:20:09.000] and paid for that war many, many times over, many times.
+- [01:20:12.470] You know the old days to the victims, OK?
+- [01:20:16.520] You know that to the to the winner belong the spoils --
+- [01:20:21.970] go the spoils and I've said,
+- [01:20:23.950] why don't we use it to the victor go the spoils
+- [01:20:27.160] and we don't have that.
+- [01:20:28.480] We haven't had that in this country probably in 100 years,
+- [01:20:31.120] because even the Second World War --
+- [01:20:32.390] you look at the Second World War,
+- [01:20:34.360] we didn't have it with the Second World War.
+- [01:20:36.030] We helped rebuild all those countries we rebuilt Germany
+- [01:20:38.760] how about Germany telling us --
+- [01:20:41.110] Germany telling us that well, it's not their war,
+- [01:20:45.320] we had nothing to do with it.
+- [01:20:46.770] They wanted me to go and tell them everything I was doing.
+- [01:20:50.030] We didn't know anything about it well,
+- [01:20:51.600] if I would have told them, they would have leaked it
+- [01:20:54.330] and we wouldn't have been nearly as successful possibly, right?
+- [01:20:57.920] But to the victor belong the spoils.
+- [01:20:59.770] So we haven't heard -- we haven't heard that in,
+- [01:21:03.570] I think maybe hundreds of years. Now with Venezuela and we --
+- [01:21:08.260] just so you understand, the people of Venezuela,
+- [01:21:10.650] they say, if I ran for president of Venezuela,
+- [01:21:14.460] I'm polling higher than anybody has ever polled in Venezuela.
+- [01:21:17.380] So after I'm finished with this, I can go to Venezuela.
+- [01:21:20.430] I will quickly learn Spanish it won't take too long
+- [01:21:22.760] I'm good at language
+- [01:21:24.080] and I will go to Venezuela, I'm going to run for president
+- [01:21:27.150] but we're very happy with the President-elect
+- [01:21:29.440] that we have right now the -- the --
+- [01:21:32.060] the people that are running it --
+- [01:21:34.330] if you remember Bush with Iraq,
+- [01:21:37.210] they fired the generals, they fired the police.
+- [01:21:39.240] They fired the people that worked
+- [01:21:40.620] in their equivalent of the White House.
+- [01:21:43.130] They fired everybody and you know what they had?
+- [01:21:45.450] They had a mess. And you know what happened?
+- [01:21:47.540] ISIS formed. Those generals and those soldiers got together,
+- [01:21:51.230] the police got together,
+- [01:21:52.440] they all got together they formed ISIS.
+- [01:21:54.680] Not going to happen with us.
+- [01:21:56.380] So Venezuela has been an incredible --
+- [01:21:59.570] it's been an incredible situation.
+- [01:22:01.150] We went in, we were very successful,
+- [01:22:03.830] military power like nobody's ever seen.
+- [01:22:06.200] The general Venezuelan general said,
+- [01:22:09.200] I was on that site I said,
+- [01:22:10.530] I've never seen ferocity like that.
+- [01:22:13.260] I've been doing this for 40 years he said,
+- [01:22:15.300] I've never seen anything.
+- [01:22:16.540] They hit us from 17 different -- it was -- they were all set.
+- [01:22:21.050] They saw that big, beautiful aircraft carrier,
+- [01:22:23.640] the Ford, in that case,
+- [01:22:25.510] and planes were pouring off it at 1:00 in the morning.
+- [01:22:29.080] So typically when you see that late at night,
+- [01:22:32.130] you know, you could be in trouble, right?
+- [01:22:35.190] And we were all ready they had their equipment,
+- [01:22:38.780] it was Russian and they had Chinese equipment.
+- [01:22:41.290] It was all set they were going to give us a fight, he said
+- [01:22:44.980] and then they came and they came at speeds like we've never seen
+- [01:22:49.280] and they came at 17 different angles.
+- [01:22:52.530] The general and his people,
+- [01:22:53.790] that was a lot of angles they hit him from every angle,
+- [01:22:56.690] he said we knew it was over in three minutes
+- [01:23:01.450] we were waiting for him.
+- [01:23:03.100] Their equipment didn't work
+- [01:23:04.980] and there's a reason it didn't work.
+- [01:23:06.600] Someday we'll explain that to people they press the button
+- [01:23:10.080] nothing happened they pressed it again and again nothing happened
+- [01:23:14.510] and he said, we knew this whole thing was over in three minutes
+- [01:23:17.170] we've never seen any -- he used the word ferocity.
+- [01:23:20.940] The ferocity of these planes from 17 different angles.
+- [01:23:24.530] And it was over they went inside and remember,
+- [01:23:27.210] that was on a military base with thousands of soldiers
+- [01:23:30.150] and those soldiers looked
+- [01:23:31.360] and they said, get the hell out of here.
+- [01:23:34.340] Thousands we didn't have thousands
+- [01:23:35.830] we had like 200 people.
+- [01:23:38.050] So we have a great military and I'll tell you what,
+- [01:23:42.390] somehow this rescue captured the world's attention.
+- [01:23:46.210] More so than normally. You're talking about two people
+- [01:23:50.160] but this rescue captured the world's attention
+- [01:23:54.390] but we did it in Venezuela that was amazing
+- [01:23:57.240] and now we have a very bad man in prison and going to trial.
+- [01:24:00.510] I mean, he released --
+- [01:24:03.600] aside from the drugs, which he was terrible,
+- [01:24:06.030] Maduro released hundreds of thousands of people
+- [01:24:09.850] from jails into our country.
+- [01:24:12.460] Drug dealers, murderers, the worst people in the world
+- [01:24:15.740] were released into our country
+- [01:24:17.750] because we had a stupid president
+- [01:24:20.340] who probably didn't know,
+- [01:24:21.540] and we had a border czar who never went to the border
+- [01:24:24.490] and never once called our great Border Patrol agents, right?
+- [01:24:27.280] Not once. Kamala, she never called the Border Patrol.
+- [01:24:30.320] She never said, how are we doing?
+- [01:24:31.730] I used to call the Border Patrol guys every day.
+- [01:24:33.650] You can ask them, Paul, ask any one of them, Brandon,
+- [01:24:37.340] ask them, all the time.
+- [01:24:38.870] How are we doing? How are we doing?
+- [01:24:40.560] And we now, I'm proud to say, have a totally sealed border.
+- [01:24:43.240] Nine months nobody has come in through our border
+- [01:24:44.990] and nobody even tries
+- [01:24:46.220] because they know they're not going to get through.
+- [01:24:47.840] So we don't have caravans anymore, right?
+- [01:24:51.320] So maybe one or two more and we'll be done.
+- [01:24:55.530] The Press: Mr. President, are you allowed to
+- [01:24:57.180] or are you willing to end this conflict
+- [01:24:59.340] with Iran charging tolls for passage through the Strait?
+- [01:25:04.080] The President: Us charging tolls.
+- [01:25:05.350] The Press: Iran.
+- [01:25:06.640] The President: What about us charging tolls?
+- [01:25:08.120] The Press: Is that something you're considering?
+- [01:25:09.740] The President: I'd rather do that than let them
+- [01:25:11.150] have them, right? Why shouldn't we?
+- [01:25:12.640] We're the winner. We won, OK? They are militarily defeated.
+- [01:25:18.190] The only thing they have is the psychology of oh,
+- [01:25:20.470] we're going to drop a couple of mines in the water, all right?
+- [01:25:24.060] No, we I mean, we have a concept where we'll charge tolls, OK?
+- [01:25:27.790] I thought you meant -- your question --
+- [01:25:31.160] your question --
+- [01:25:32.470] your question would have been more accurate if you said --
+- [01:25:35.310] go ahead.
+- [01:25:36.940] The Press: Just to clarify, in order for Iran
+- [01:25:38.980] to successfully meet your deadline tomorrow,
+- [01:25:41.710] do they have to make a deal, open the Strait or both?
+- [01:25:45.200] The President: We have to have a deal that's acceptable to me
+- [01:25:48.600] and part of that deal is going to be
+- [01:25:50.430] we want free traffic of oil and everything else.
+- [01:25:57.510] The Press: Mr. President. Thank you very much.
+- [01:25:59.300] You've said, glory be to God in this conflict.
+- [01:26:02.060] Do you believe that God supports
+- [01:26:03.570] the United States actions in this war?
+- [01:26:04.930] The President: I do. Because God is good.
+- [01:26:07.120] Because God is good,
+- [01:26:08.880] and God wants to see people taken care of god
+- [01:26:12.230] doesn't like what's happening.
+- [01:26:13.930] I don't like what's happening everyone says I enjoy it.
+- [01:26:16.180] I don't enjoy this I don't enjoy it.
+- [01:26:17.920] These two guys don't enjoy it.
+- [01:26:19.210] You know, people say, oh boy, they're so tough.
+- [01:26:21.530] They don't want -- they don't like --
+- [01:26:22.880] I don't like seeing people killed.
+- [01:26:24.880] I've ended eight wars. Nobody's ever done it.
+- [01:26:29.060] The person who won the Nobel Prize came to me
+- [01:26:31.640] and said, you deserve the Nobel Prize.
+- [01:26:33.840] She announced that when they announced,
+- [01:26:35.280] they said, goes to Maria she's a great person,
+- [01:26:38.970] really a good person.
+- [01:26:40.580] She said, no, no, no, this is ridiculous.
+- [01:26:44.480] They gave me the Nobel Prize,
+- [01:26:45.930] President Trump ended eight wars.
+- [01:26:47.790] I could go over every one of them,
+- [01:26:49.050] including India and Pakistan,
+- [01:26:51.620] where the prime minister of Pakistan
+- [01:26:53.100] said President Trump saved from 30 to 50 million lives.
+- [01:26:58.900] That makes me much happier than what we're doing right now.
+- [01:27:02.480] That makes me much happier.
+- [01:27:03.790] We have one more to end, by the way.
+- [01:27:09.580] OK.
+- [01:27:11.220] The Press: You called yesterday in your Truth Social
+- [01:27:13.660] you called the Iranians crazy bastards.
+- [01:27:16.190] The President: True.
+- [01:27:17.710] The Press: What is your response to critics who say that --
+- [01:27:19.640] The President: I don't care about critics.
+- [01:27:20.910] The Press: What is your response to critics who say
+- [01:27:22.220] that it is your mental health
+- [01:27:23.470] that should perhaps be examined as this war continues?
+- [01:27:25.790] The President: I haven't heard that but if that's the case,
+- [01:27:28.140] you're going to have to have more people like me
+- [01:27:29.690] because our country was being ripped off on trade,
+- [01:27:33.610] on everything for many years until I came along.
+- [01:27:37.190] So if that's the case,
+- [01:27:38.430] you're going to have to have more people.
+- [01:27:39.870] Dasha, go ahead. Dasha.
+- [01:27:42.220] The Press: You said that very little is off limits
+- [01:27:44.210] in Iran as far as targeting, including power plants,
+- [01:27:47.110] bridges you've mentioned those.
+- [01:27:48.480] The President: Yeah. Very little is off limits.
+- [01:27:49.730] The Press: Are there certain kinds of civilian targets,
+- [01:27:51.530] though? I'm thinking schools --
+- [01:27:52.740] The President: I don't want to tell you that.
+- [01:27:54.110] I don't want to tell you that. We have -- we have a plan
+- [01:27:59.080] because of the power of our military,
+- [01:28:01.480] where every bridge in Iran will be decimated
+- [01:28:06.640] by 12:00 tomorrow night,
+- [01:28:08.870] where every power plant in Iran will be out of business,
+- [01:28:13.800] burning, exploding, and never to be used again.
+- [01:28:17.090] I mean, complete demolition by 12:00
+- [01:28:20.700] and it will happen over a period of four hours if we wanted to.
+- [01:28:23.870] We don't want that to happen.
+- [01:28:25.950] We may even get involved with helping them
+- [01:28:28.420] rebuild their nation.
+- [01:28:30.440] And you know what? If that's the case,
+- [01:28:32.130] the last thing we want to do is start with power plants,
+- [01:28:34.460] which are among the most expensive things, and bridges.
+- [01:28:37.610] You saw the bridge the bridge went
+- [01:28:39.670] we were very close to a deal
+- [01:28:42.160] and then I got a call from Mr. Witkoff,
+- [01:28:46.430] Mr. Kushner and JD saying,
+- [01:28:50.630] I think they're breaking the deal.
+- [01:28:52.690] I said, tell them that's OK, don't worry about it
+- [01:28:55.720] but tell them to look out their window
+- [01:28:57.330] and watch and within 45 minutes,
+- [01:29:00.570] I gave the order to knock out the biggest bridge.
+- [01:29:04.010] I gave the order to knock out the biggest bridge in,
+- [01:29:06.910] I believe, the Middle East, but the biggest bridge in Iran
+- [01:29:09.860] and within ten minutes after I gave that order,
+- [01:29:13.470] that bridge was -- was over.
+- [01:29:16.260] So -- so do I want to do that? No.
+- [01:29:19.230] Do I want to destroy their infrastructure?
+- [01:29:21.660] No. It will take them 100 years to rebuild.
+- [01:29:25.100] Right now, if we left today,
+- [01:29:28.120] it would take them 20 years to rebuild their country
+- [01:29:31.500] and it would never be as good as it was
+- [01:29:33.220] and the only way they're going to be able
+- [01:29:34.740] to rebuild their country
+- [01:29:36.230] is to utilize the genius of the United States of America.
+- [01:29:42.870] The Press: You voice your displeasure
+- [01:29:44.510] with NATO in the past. Is there a danger to the US
+- [01:29:47.770] not being the de facto of the leader of the alliance
+- [01:29:50.960] and then other powers within the alliance,
+- [01:29:53.430] then getting the decision making
+- [01:29:54.940] when it comes to wars and nuclear weapons?
+- [01:29:56.990] The President: No, it's not a danger.
+- [01:29:58.310] NATOs -- look, we went to NATO. I didn't ask very strongly.
+- [01:30:02.680] I just said, hey, if you want to help,
+- [01:30:04.120] great no, no no, we will not help.
+- [01:30:06.590] I said, that's all right. You don't want to help --
+- [01:30:08.770] because I've always said NATOs a paper tiger.
+- [01:30:11.720] See, NATOs a paper tiger. Putin's not afraid of NATO.
+- [01:30:15.400] Putin's afraid of us, very afraid of us,
+- [01:30:18.600] and he's explained it to me a lot of times.
+- [01:30:20.540] I got to know him very well. I know him very well.
+- [01:30:23.960] NATOs a paper tiger. NATO is us. And when we needed them --
+- [01:30:28.370] and we didn't need them, by the way.
+- [01:30:30.470] We didn't need them, obviously,
+- [01:30:32.200] because they haven't helped at all, just the opposite.
+- [01:30:34.630] They've actually gone out of their way not to help.
+- [01:30:37.080] They didn't even want to give us landing strips.
+- [01:30:40.430] Think of it. And it's not just NATO.
+- [01:30:42.400] You know who else didn't help us?
+- [01:30:43.930] South Korea didn't help us.
+- [01:30:45.880] You know who else didn't help us?
+- [01:30:47.340] Australia didn't help us.
+- [01:30:49.340] You know who else didn't help us?
+- [01:30:51.200] Japan. We've got 50,000 soldiers in Japan
+- [01:30:56.380] to protect them from North Korea.
+- [01:30:58.150] We have 45,000 soldiers in South Korea
+- [01:31:02.950] to protect us from Kim Jong Un,
+- [01:31:05.270] who I get along with very well, as you know.
+- [01:31:07.160] Do you notice he said very nice things about me.
+- [01:31:09.220] He used to call Joe Biden a mentally retarded person. OK?
+- [01:31:13.590] So don't tell me about your stuff.
+- [01:31:16.990] Joe Biden, he said, he's a mentally retarded person.
+- [01:31:19.420] He was so nasty to Joe Biden.
+- [01:31:20.980] It was terrible. But to me, he likes Trump.
+- [01:31:23.840] And do you notice how nice things are with North Korea?
+- [01:31:26.510] It's very nice. But we have 45,000 people,
+- [01:31:30.560] soldiers in harm's way and right next to Kim Jong Un,
+- [01:31:34.310] with a lot of nuclear weapons, 45 --
+- [01:31:36.950] which should have never happened.
+- [01:31:38.950] If a certain president --
+- [01:31:40.360] I'm not going to mention this president
+- [01:31:41.860] because I happen to like him, believe it or not,
+- [01:31:44.030] but if a certain president did his job, Kim Jong
+- [01:31:47.190] Un would not have nuclear weapons right now,
+- [01:31:49.140] but they were all afraid to do their job properly.
+- [01:31:52.160] But just to conclude and just to finish,
+- [01:31:55.920] Japan didn't help us, Australia didn't help us,
+- [01:31:58.850] South Korea didn't help us
+- [01:32:00.780] and then you get to NATO, NATO didn't help us.
+- [01:32:03.460] There were some countries that did.
+- [01:32:04.880] Now, countries that have been good --
+- [01:32:06.720] now, you could also say they got to be a little bit more involved
+- [01:32:09.910] because they're in the territory
+- [01:32:11.180] but Saudi Arabia has been excellent,
+- [01:32:13.460] Qatar has been excellent,
+- [01:32:15.220] UAE has been excellent, Bahrain, Kuwait.
+- [01:32:18.320] I mean, Kuwait did shoot down three of our planes.
+- [01:32:21.210] The only planes really that we lost were friendly fire,
+- [01:32:24.630] they call it. I call it unfriendly fire.
+- [01:32:27.650] They unfortunately didn't know how to use our great Patriots.
+- [01:32:34.010] The pilot said, what kind of missiles coming at us, Patriot.
+- [01:32:36.950] Boom, they got out because they know a Patriot never misses.
+- [01:32:41.490] So they had beautiful Patriots.
+- [01:32:43.670] There were planes heading in their direction.
+- [01:32:46.380] Unfortunately, they decided to shoot those planes.
+- [01:32:49.070] They were our planes. So no NATO is a paper tiger.
+- [01:32:54.940] Now, he's coming to see me on Wednesday, as you know.
+- [01:32:57.280] He's a wonderful guy. Secretary General is great,
+- [01:33:01.730] and Mark Rutte is a great person,
+- [01:33:04.640] but he's got -- and, you know, it all began with,
+- [01:33:07.990] if you want to know the truth, Greenland.
+- [01:33:10.620] We want Greenland.
+- [01:33:12.070] They don't want to give it to us and I said, bye-bye.
+- [01:33:15.450] OK. Thank you very much, everybody. Thank you.

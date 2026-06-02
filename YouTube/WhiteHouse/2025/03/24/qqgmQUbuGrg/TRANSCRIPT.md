@@ -1,0 +1,526 @@
+<!-- source: https://www.youtube.com/watch?v=qqgmQUbuGrg -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: qqgmQUbuGrg -->
+<!-- date_published: 2025-03-24T18:54:38+00:00 -->
+<!-- date_accessed: 2026-06-02T02:52:33.458407+00:00 -->
+
+# Transcript: President Trump and the Governor of Louisiana Deliver Remarks
+
+- [00:00.000] The President: Hello everybody. Nice to see you all.
+- [00:02.490] Great honor to see you again. Nice to see you.
+- [00:04.220] Mr. Scalise: Mr. President.
+- [00:05.430] The President: Nice to see you.
+- [00:09.330] Mr. Governor. Nice suit. Great to see you. Hello.
+- [00:14.630] Governor Landry: Another big one for Louisiana.
+- [00:16.130] The President: Great speaker. Nice to see you.
+- [00:17.980] Speaker Johnson: Mr. President.
+- [00:19.260] The President: Nice to see you. Hello everybody. Nice to see you
+- [00:22.040] [inaudible].
+- [00:28.710] Okay.
+- [00:30.100] We have a beautiful announcement to make that's very exciting.
+- [00:35.720] Money is pouring in and we want to keep it that way,
+- [00:40.100] and I think that's what's going to happen.
+- [00:42.180] We have tremendous interest in our country,
+- [00:45.730] more than ever before.
+- [00:47.470] There's never been anything like it.
+- [00:49.690] We're almost at a $4 trillion level,
+- [00:53.760] and that's something that's never happened.
+- [00:55.880] And I think hopefully it's because
+- [00:57.250] of the election on November 5th,
+- [00:58.810] but it's also because of tariffs, I suspect, governor.
+- [01:03.300] But I'm thrilled to welcome Louisiana Governor Jeff Landry,
+- [01:07.310] a friend of mine for a long time,
+- [01:09.920] and to have you at the White House.
+- [01:11.910] And we thought this was going to happen and I said,
+- [01:14.630] "If you get it signed up, we'll do it at the White House,"
+- [01:16.780] and you got it all done. I'm proud of you. Not surprised.
+- [01:20.150] Executive chairman of Hyundai Motor Group, Chung Eui-sun.
+- [01:25.770] Thank you very much. What a great honor.
+- [01:28.720] Vice chairman Jay Chang. Jay, thank you.
+- [01:32.910] Hyundai Steel President Seo Gang-hyun.
+- [01:37.160] Thank you very much. President, that's big stuff.
+- [01:40.320] And former Ambassador Sung Kim. Thank you very much.
+- [01:43.810] Great honor to have all of you.
+- [01:45.870] Also, these names are much less difficult for me,
+- [01:49.880] but I think we got them right,
+- [01:52.480] but this one we will definitely get right.
+- [01:54.190] Mike Johnson, our great speaker, and he's been doing a real job.
+- [01:58.180] Right, Mike? It's an easy job, isn't it?
+- [02:00.190] Speaker Johnson: Oh, it's easy.
+- [02:02.110] The President: House majority leader Steve Scalise.
+- [02:08.150] Doing all right, Steve.
+- [02:09.460] I'll tell you, he went through a lot
+- [02:11.770] and he's stronger than ever.
+- [02:13.470] Louisiana Speaker Philip Duvalier.
+- [02:17.170] Thank you very much. Thank you very much.
+- [02:20.750] Senate President Cameron Henry.
+- [02:23.900] State Representative Ken Brass. State Senator Enny Lambert.
+- [02:29.060] And Ascension Parish President Clint Cointment.
+- [02:33.920] Thank you all very much. Thank you very much.
+- [02:36.040] Great honor. Great to have you with us.
+- [02:38.940] Today, we're delighted to report that Hyundai is announcing
+- [02:42.250] a major $5.8 billion investment in American manufacturing.
+- [02:47.370] In particular, Hyundai will be building
+- [02:49.300] a brand new steel plant in Louisiana,
+- [02:51.440] which will produce more than 2.7 million metric tons
+- [02:54.570] of steel a year,
+- [02:55.960] creating more than 1400 jobs for American steelworkers.
+- [03:00.050] And then there will be major expansion after that.
+- [03:02.950] This will be Hyundai's first
+- [03:04.800] ever steel mill in the United States.
+- [03:06.640] One of the largest companies in the world, by the way.
+- [03:09.540] Supplying steel for its auto parts
+- [03:11.750] and auto plants in Alabama and Georgia,
+- [03:14.760] which will soon produce more than 1 million
+- [03:16.880] American-made cars every single year.
+- [03:19.730] The cars are coming into this country
+- [03:21.390] at levels never seen before. Get ready.
+- [03:25.910] This investment is a clear demonstration
+- [03:28.270] that tariffs very strongly work, and I hope other things also,
+- [03:33.580] but the tariffs are coming in at levels
+- [03:37.360] that have not been witnessed.
+- [03:40.790] Hyundai will be producing steel in America
+- [03:43.210] and making its cars in America,
+- [03:45.080] and as a result, they'll not have to pay any tariffs.
+- [03:48.800] You know, there are no tariffs
+- [03:50.190] if you make your product in America.
+- [03:52.300] So it's something that's why so many people are coming.
+- [03:56.670] As you know, we have from Taiwan,
+- [03:58.640] the biggest chip manufacturer in the world
+- [04:00.800] is coming in with $200 billion
+- [04:04.330] and we have a lot of people coming and plants coming
+- [04:08.340] and companies coming that never would have been here,
+- [04:10.400] never would have even thought about it.
+- [04:12.710] The new steel plant in Louisiana
+- [04:14.340] is part of an even larger $21 billion investment Hyundai
+- [04:17.630] will be making in the United States
+- [04:19.360] over the next couple of years.
+- [04:21.500] The company will also be massively increasing its auto
+- [04:24.520] manufacturing in Georgia and investing billions of dollars
+- [04:27.700] in advanced American technology companies.
+- [04:31.100] And what I'd like to do
+- [04:32.960] is I'd like to ask the executive chairman
+- [04:35.090] to say a few words and it's a great honor to have Hyundai,
+- [04:38.190] a truly great company. Thank you very much.
+- [04:40.380] Thank you very much.
+- [04:47.200] Mr. Chung: Thank you very much.
+- [04:49.000] Mr. President, thank you for giving me
+- [04:51.730] this opportunity to be here today
+- [04:54.680] and thank you for your invitation,
+- [04:56.940] and congratulations on the remarkable
+- [04:59.920] start to your new term.
+- [05:02.590] The President: It's been good. It's been a good one.
+- [05:04.670] Governor Landry: It's been great.
+- [05:05.930] Mr. Chung: So Hyundai Motor entered the US in 1986.
+- [05:10.850] Since then, we have invested over $20 billion
+- [05:14.730] and now support more than 570,000 American jobs
+- [05:19.430] across all 50 nation states.
+- [05:22.590] Today, I'm pleased to announce an additional $21 billion
+- [05:27.530] in a new investment over the next four years,
+- [05:31.120] our largest US invest ever.
+- [05:34.280] A key part of this commitment is our $6 billion investment
+- [05:39.230] to strengthen the US supply chain from steel
+- [05:43.310] and parts to automobiles.
+- [05:46.010] We are especially excited about Hyundai Steel's
+- [05:50.030] multi-billion investment in a new facility in Louisiana,
+- [05:54.390] which will create 1,300 American jobs,
+- [05:58.260] and serve as the foundation for a more self-reliant
+- [06:02.770] and secure automotive supply chain in the US.
+- [06:06.730] To mark this milestone, we are honored to visit
+- [06:11.480] President Trump alongside Governor Landry
+- [06:15.800] and Speaker Johnson and leader Scalise,
+- [06:22.920] deepening our partnership with the United States
+- [06:25.780] and reinforcing our shared vision
+- [06:29.380] for American industrial leadership.
+- [06:32.380] And this week we are also proud
+- [06:35.230] to open our new $8 billion auto plant in Georgia.
+- [06:40.080] With this, our US vehicle production
+- [06:42.820] will exceed one million units per year,
+- [06:46.130] as president mentioned.
+- [06:47.880] Our decision to invest in Savannah Georgia
+- [06:51.430] creating more than 8,500 American jobs
+- [06:55.170] was initiated during my meeting
+- [06:57.870] with President Trump in Seoul in 2019.
+- [07:02.810] The President: That's right.
+- [07:04.020] Mr. Chung: And after that, 2020 in Davos
+- [07:06.920] I mentioned about the new plant.
+- [07:09.450] So American Jobs was initiated at the time.
+- [07:14.580] Now, as we proudly mark the completion
+- [07:18.650] of this transformative project, it coincides with the beginning
+- [07:26.300] of President Trump's second term,
+- [07:30.170] making this moment even more special.
+- [07:32.790] The President: Thank you.
+- [07:34.040] Mr. Chung: Yeah.
+- [07:35.280] Furthermore, HMG will purchase $3 billion worth of US LNG
+- [07:41.110] to support America's energy industry
+- [07:44.600] and enhance our energy security.
+- [07:47.860] All of these efforts will accelerate
+- [07:50.400] the localization of our supply chain in the US,
+- [07:54.270] expand our operations, and grow our American workforce.
+- [07:59.570] With your leadership, Mr. President,
+- [08:02.910] Hyundai Motor Group is proud to be stronger partner
+- [08:05.650] in America's industrial future.
+- [08:08.580] I'd like to personally invite you to visit one
+- [08:11.970] of our state-of-the-art manufacturing facility
+- [08:15.510] and see firsthand our commitment to the United States
+- [08:20.140] and our American workers.
+- [08:21.740] The President: Right.
+- [08:23.030] Mr. Chung: So thank you to our American partners
+- [08:26.530] and employees and communities.
+- [08:29.500] We are really proud to stand with you
+- [08:32.480] and proud to build the future together. Thank you.
+- [08:36.960] The President: Thank you very much.
+- [08:42.450] I thought maybe we have our great speaker
+- [08:45.060] and we have two very good friends, Mike and Steve,
+- [08:47.440] and you come from a certain state
+- [08:49.440] that we're talking about right now that we love,
+- [08:52.190] and I've done very well there. I've always won by a lot.
+- [08:55.730] I love that state, so I was happy to hear about it.
+- [08:58.190] That's why I said come on over.
+- [08:59.790] But Mike, would you and Steve like to say a few words, please?
+- [09:02.360] Speaker Johnson: Sure, sure.
+- [09:03.570] Thank you Mr. President. We're excited.
+- [09:06.530] It was mentioned earlier what a great start
+- [09:08.530] we've had to your second term,
+- [09:09.810] and we're just getting started. Everyone should know that.
+- [09:12.560] There'll be more of this because it's the policies
+- [09:14.940] that are bringing about the great growth,
+- [09:16.340] and it's about leadership and we have a strong new leader
+- [09:19.460] back in the White House and it makes a big difference,
+- [09:21.380] because everybody around the world is seeing that
+- [09:23.630] and everyone around the country is applauding it.
+- [09:25.860] We were on district work period last week,
+- [09:27.590] and Steve Scalise and I and our colleagues
+- [09:29.750] were traveling around the country
+- [09:31.750] doing campaign events, raising money,
+- [09:33.330] doing all the things that are necessary to ensure
+- [09:35.060] that we keep the House majority for the Republican Party.
+- [09:37.810] And I'll just tell you, I was in multiple states
+- [09:39.870] over the last week and everywhere I went,
+- [09:41.550] Mr. President, people are excited.
+- [09:43.640] There's this great sense of relief,
+- [09:45.910] almost euphoria out there
+- [09:47.650] because they know that America's back.
+- [09:49.680] This is the America First agenda.
+- [09:51.210] We're so grateful for these great friends with Hyundai
+- [09:53.530] to invest in Louisiana.
+- [09:54.740] We have extraordinary leadership on the state level
+- [09:57.190] and leadership makes a big difference.
+- [09:59.120] We're so grateful to be a part of this.
+- [10:00.490] We want to tell you all,
+- [10:01.710] this is a great investment in Louisiana and in America.
+- [10:03.890] More to come. Thank you so much, Steve.
+- [10:08.700] Mr. Scalise: Thank you again, Mr. President,
+- [10:10.170] for opening up the White House to this great group.
+- [10:13.810] Governor Landry has brought the same kind of energy
+- [10:17.270] to the governor's mansion in Louisiana
+- [10:19.070] that President Trump has brought to the nation
+- [10:21.840] in the White House.
+- [10:23.540] Some people marvel at President Trump's stamina.
+- [10:27.510] Over the weekend, both Saturday and Sunday,
+- [10:29.240] we spoke by phone
+- [10:30.460] on some different legislative initiatives
+- [10:32.250] that we're working on with Speaker Johnson
+- [10:34.650] to continue moving the agenda forward.
+- [10:37.150] Those very things that President Trump ran on,
+- [10:39.550] he's delivering for the American people.
+- [10:41.650] And this announcement by Hyundai
+- [10:43.140] is one more example of how that agenda
+- [10:46.240] that President Trump ran on to make America first again
+- [10:49.190] is working for the American people.
+- [10:51.640] When you talk about 1300 plus really good jobs in Louisiana,
+- [10:57.090] those are all American workers.
+- [10:58.870] That's billions of investment coming in from Hyundai
+- [11:01.660] into the United States that would not have been here
+- [11:04.110] without President Trump's leadership.
+- [11:05.690] And I think people know that. They see it.
+- [11:07.540] It's been a long time coming,
+- [11:08.820] but we applaud the work that Hyundai is doing
+- [11:12.040] with Governor Landry to come to our state.
+- [11:14.540] But for President Trump,
+- [11:16.270] we're seeing this all across the nation,
+- [11:18.120] and we're just getting started.
+- [11:20.000] A lot more to come, Mr. President.
+- [11:21.370] The President: That's very nice. Thank you very much.
+- [11:25.940] Do you have any questions please?
+- [11:28.190] Yeah, please.
+- [11:29.450] The Press: The size of the investment,
+- [11:31.170] partly because of tariffs.
+- [11:32.630] On April 2nd, the reciprocal tariffs will go into effect.
+- [11:35.300] Is it truly reciprocal?
+- [11:36.820] Are there some countries that might get a break
+- [11:38.820] or some sectors that might get a break?
+- [11:40.540] The President: Well, I may give a lot of countries breaks,
+- [11:42.520] but it's reciprocal, but we might be even nicer than that.
+- [11:47.370] We've been very nice to a lot of countries for a long time.
+- [11:50.200] But I call it liberation day.
+- [11:52.620] April 2nd is liberation day, but today, as you know,
+- [11:55.720] we did something with respect to Venezuela.
+- [11:57.990] You heard about that.
+- [11:59.440] And that will be quite important.
+- [12:02.390] We'll be announcing some additional tariffs
+- [12:04.520] over the next few days having to do with automobiles, cars,
+- [12:09.250] and having also to do a little bit with lumber down the road.
+- [12:12.760] Lumber and chips.
+- [12:15.530] We're going to get all those chip companies coming back.
+- [12:17.720] They're already coming back without even doing it.
+- [12:20.410] So it's been very good.
+- [12:22.230] But we'll be announcing some others.
+- [12:23.590] But for the most part, April 2nd will be a big day.
+- [12:26.400] That'll be reciprocal day.
+- [12:27.870] And we'll be bringing some of the money back
+- [12:30.410] that's been taken from us.
+- [12:32.910] Let's be nice by using the word taken.
+- [12:34.840] I don't want to use a stronger word
+- [12:36.360] because these guys are professional politicians
+- [12:38.820] and they don't like to hear those words.
+- [12:41.450] I refuse to use the word stolen from us, but that's-
+- [12:44.870] The Press: Some countries mutually bring down tariffs.
+- [12:46.450] Are you seeing that negotiation?
+- [12:47.680] The President: It's happened.
+- [12:48.910] Well, the European Union lowered their tariffs
+- [12:50.750] to two and a half percent.
+- [12:52.230] We were only at two and a half percent for cars,
+- [12:54.360] which is very low. And as you probably heard,
+- [12:57.420] the European Union lowered their number
+- [13:00.250] from much higher than that. Many, many times higher.
+- [13:03.270] Surprised to two and a half percent.
+- [13:04.950] So that was good.
+- [13:06.150] But I don't know that I expect that it's up to them.
+- [13:11.300] But we have reciprocal tariffs.
+- [13:12.910] The Press: Mr. President,
+- [13:14.280] your reaction to the story of The Atlantic
+- [13:16.810] that said that some of your top cabinet officials
+- [13:19.790] and aides have been discussing very sensitive material
+- [13:23.100] through Signal and included an Atlantic reporter for that.
+- [13:25.910] What is your response to that?
+- [13:27.760] The President: I don't know anything about it.
+- [13:29.050] I'm not a big fan of The Atlantic.
+- [13:30.860] To me it's a magazine that's going out of business.
+- [13:32.940] I think it's not much of a magazine,
+- [13:34.930] but I know nothing about it.
+- [13:36.200] You're saying that they had what?
+- [13:38.100] The Press: They were using Signal to coordinate
+- [13:41.150] on sensitive materials-
+- [13:42.890] The President: Having to do with what?
+- [13:45.320] Having to do with what? What were they talking about.
+- [13:47.400] The Press: With the Houthis.
+- [13:48.800] The President: The Houthis, you mean the attack on the Houthis?
+- [13:50.280] The Press: Right.
+- [13:51.500] The President: Well, it couldn't have been very effective
+- [13:53.030] because the attack was very effective.
+- [13:54.760] I can tell you that. I don't know anything about it.
+- [13:57.300] You're telling me about it for the first time.
+- [13:58.950] Anybody else?
+- [14:00.210] The Press: Mr. President, with this announcement on Hyundai,
+- [14:03.510] is this a blueprint for you for other automakers
+- [14:07.750] to come to the United States to do what Hyundai is doing
+- [14:11.370] and investing so much in Louisiana
+- [14:13.980] and creating these new jobs?
+- [14:15.230] The President: Absolutely. That's a nice question from you.
+- [14:18.870] That's a shocking question, how nice it is.
+- [14:21.720] That's okay. That's a question
+- [14:24.180] that's a good question, actually.
+- [14:25.990] Sure. Hyundai's a great company.
+- [14:29.140] We have other great companies coming in
+- [14:30.660] and we have some that are going to be
+- [14:32.530] staying here and very much expanding
+- [14:34.980] and we have tremendous interest in every business.
+- [14:37.730] I can't just say automobiles, but automobiles is a big one.
+- [14:41.490] And yeah, this is the beginning of a lot of things happening.
+- [14:45.030] We've had, as you know,
+- [14:47.190] Apple's announced a $500 billion investment
+- [14:50.220] and other companies have announced 250-300 billion,
+- [14:54.920] but we are well into the three and $4 trillion mark,
+- [14:58.930] which has never happened to our country before.
+- [15:01.300] What it really means is jobs. All we care about is jobs.
+- [15:05.180] We care about quality and quality of life
+- [15:07.540] and safety and security, but we care about jobs,
+- [15:10.310] and we have a lot of people coming in.
+- [15:12.320] The Press: [inaudible]
+- [15:13.520] I would love to ask Governor Landry a question
+- [15:17.360] if you don't mind.
+- [15:18.590] The President: Go ahead.
+- [15:19.800] The Press: How did you convince Hyundai
+- [15:21.450] to come to your great state?
+- [15:22.770] How did you convince them to come to Louisiana?
+- [15:24.340] It was Governor Landry: It was easy.
+- [15:26.010] I told him we were going to have a great president this year.
+- [15:29.050] Look, again, I think that this is Americans seeing the America
+- [15:33.100] First policy in action, right?
+- [15:34.480] It's not just promises, it's about action.
+- [15:36.520] And not only did … And I appreciate their patience
+- [15:39.200] because all last year, many of these legislators,
+- [15:41.940] the speaker and the Senate president,
+- [15:43.480] we worked on making Louisiana as friendly for business
+- [15:47.610] as the president is making America.
+- [15:49.190] We worked on public safety, we worked on education reform,
+- [15:51.620] which the president's been working on.
+- [15:53.330] We worked on tax reform, historic tax reform.
+- [15:56.280] And what I can tell you is to echo
+- [15:57.840] what the President said in Louisiana right now,
+- [16:00.060] I believe before the summer's over,
+- [16:02.000] we'll have $50 billion worth of construction projects
+- [16:05.580] going on in Louisiana. That is a record, Mr. President.
+- [16:08.910] It has never happened under any other president,
+- [16:11.260] under any other administration.
+- [16:13.050] And I can only look at the leadership that he has brought,
+- [16:16.700] not only to the White House, but to the world as well.
+- [16:18.540] And so to have these executives come here and say,
+- [16:22.310] "Hey, we want to invest in America,"
+- [16:24.860] because for decades now what Americans have seen
+- [16:27.440] is jobs being off-shored rather than on-shored.
+- [16:30.130] And today's announcement is exactly that.
+- [16:32.400] This is a message for all America
+- [16:34.540] that this president and their governors out there
+- [16:37.400] care about the American worker.
+- [16:39.560] The Press: Mr. President, on your Venezuela tariffs, sir-
+- [16:41.320] The President: And I have to tell you
+- [16:42.570] that if you have any trouble getting permits,
+- [16:44.710] which you won't, come see me.
+- [16:46.210] I'll get them for you immediately.
+- [16:47.860] All right? But you're not going to have any trouble.
+- [16:49.780] We had …
+- [16:51.070] When I first got involved in this world of politics,
+- [16:53.510] when I went down to Louisiana, you know the two big
+- [16:55.990] LNG plants, and they were stuck.
+- [16:58.440] For 14 years they tried to get permits,
+- [17:00.550] and these were 12 billion and I think $15 billion plants.
+- [17:05.170] And they were working on it for 14 years in one case,
+- [17:08.290] I think 13 or 14 in the other.
+- [17:10.810] And I was able to get them in less than a week.
+- [17:13.470] And they were shocked, and probably some consultant
+- [17:16.070] got a lot of money for doing it, but nobody spoke to me about it,
+- [17:19.200] other than this gentleman at the time.
+- [17:20.880] He mentioned it, and he did.
+- [17:22.610] They were in very much different positions,
+- [17:24.430] but they wanted to see if we could break the logjam.
+- [17:26.530] And I got it done.
+- [17:27.820] In one case, I actually got it done in one day,
+- [17:31.010] and the other case I didn't do as well,
+- [17:32.540] it took a full week and they built and they're up
+- [17:35.100] and they're very successful now.
+- [17:36.310] That was a long time ago, but we got it done immediately.
+- [17:39.160] You'll have no trouble getting your permits, I guarantee.
+- [17:42.000] These people you're dealing with at top of the line. Okay.
+- [17:45.050] But just in case, call me.
+- [17:46.400] The Press: O the Venezuela tariffs
+- [17:47.630] that you announced earlier today, sir.
+- [17:48.890] The President: Yes.
+- [17:50.160] The Press: You said it's 25% for any country
+- [17:51.390] that does business with Venezuela.
+- [17:52.610] The President: That's right.
+- [17:53.830] If they buy their oil from Venezuela,
+- [17:56.260] they have to pay a 25% tariff
+- [17:58.770] to do business with the United States.
+- [18:00.290] The Press: Is that on top of existing tariffs?
+- [18:01.960] So for example, China- The President: Yes.
+- [18:03.470] That would be on top of existing-
+- [18:05.210] The Press: 45% tariffs on China next week-
+- [18:07.030] The President: Yep. That's on top of existing tariffs, yes.
+- [18:09.610] The Press: And so also next week, April 2nd,
+- [18:11.700] as you said, liberation day,
+- [18:13.860] is that going to be sector tariffs
+- [18:15.850] as well as reciprocal tariffs?
+- [18:17.490] The President: It's going to be everything.
+- [18:18.740] Yeah, it's going to be everything.
+- [18:19.970] But not all tariffs are included that day.
+- [18:21.980] For instance, we're doing some …
+- [18:23.870] As you know, we have already done steel and aluminum,
+- [18:27.050] and that's at a 25% level.
+- [18:29.080] And we are going to be doing automobiles,
+- [18:31.470] which you've known about for a long time.
+- [18:33.020] We'll be announcing that fairly soon.
+- [18:35.450] Over the next few days probably.
+- [18:37.040] And then April 2nd comes, that'll be reciprocal tariffs.
+- [18:41.720] But we may take less than what they're charging
+- [18:43.760] because they've charged us so much.
+- [18:45.300] I don't think they could take it.
+- [18:46.580] In other words, they've charged us so much
+- [18:49.520] that I'm embarrassed to charge them what they've charged us.
+- [18:52.550] But it'll be substantial.
+- [18:54.430] And you'll be hearing about that on April 2nd.
+- [18:56.860] And it will be Liberation day because we'll be taking
+- [18:59.070] in large amounts of money for our country.
+- [19:02.260] And that's lower taxes and all of the things
+- [19:05.000] that are good and jobs. A lot of jobs.
+- [19:06.860] The Press: And what's your message
+- [19:08.120] for the big corporate clients of the big law firms
+- [19:10.420] that you've targeted with your executive orders?
+- [19:12.040] Do you want those big corporate clients to find new lawyers?
+- [19:16.650] The President: I just think that the law firms
+- [19:18.290] have to behave themselves. And we've proven that.
+- [19:21.270] We have others that want to make a settlement also.
+- [19:25.420] Having to do with the election and other things,
+- [19:27.440] they behave very badly, very wrongly.
+- [19:30.150] And I appreciate the one … These are the biggest firms,
+- [19:33.870] and they all came back realizing that they did wrong
+- [19:38.630] and that's why they're doing this.
+- [19:40.020] So I just think they have to behave.
+- [19:41.730] We have to straighten out our country.
+- [19:43.010] We have to straighten out our elections.
+- [19:45.210] Our elections are very dishonest, very corrupt,
+- [19:48.820] and we have to straighten it out.
+- [19:50.050] And it's so easy to do it.
+- [19:51.300] And we should go to paper ballots.
+- [19:53.290] We should go to one day voting, we should go to voter ID.
+- [19:57.400] And just one other thing. Proof of a thing
+- [19:59.720] called citizenship in the United States.
+- [20:01.710] Wouldn't that be nice? How simple does that sound?
+- [20:04.840] Proof of citizenship. Voter ID.
+- [20:06.970] One day, voting and paper ballots.
+- [20:09.720] Paper ballots are very secure. They have watermark paper.
+- [20:13.050] Actually, it's very intricate stuff.
+- [20:14.700] It's very technologically advanced,
+- [20:17.640] even though it's paper. And you'd have no trouble.
+- [20:20.510] You wouldn't have dishonest elections
+- [20:22.620] and you'd have them all done by 10 o'clock in the evening.
+- [20:25.740] France went to that. Not that I want to copy anybody,
+- [20:29.680] but many others have also, and they had 38 million votes
+- [20:34.230] and it was all done at 10 o'clock.
+- [20:35.670] They had a winner, they had a loser.
+- [20:36.990] That was it. Nobody was complaining.
+- [20:39.530] And they had it backed up with paper and it's so easy to do.
+- [20:44.100] The other thing, you'd save …
+- [20:47.480] This would cost you about 8% of what the machines cost.
+- [20:52.600] So the paper would be much less expensive.
+- [20:54.540] So if you're looking to save some money,
+- [20:57.140] that's a good way to save it.
+- [20:58.410] So it's a shame that we've gone through it.
+- [21:00.330] We've gone through a bad election, a really bad election.
+- [21:02.670] The election was so bad.
+- [21:04.520] And think of it, you wouldn't have had
+- [21:07.580] the October 7th disaster with Israel.
+- [21:11.130] You wouldn't have had Russia and Ukraine
+- [21:13.880] because that would have never happened.
+- [21:15.490] You wouldn't have had inflation, you wouldn't have had the type
+- [21:18.160] of withdrawal from Afghanistan that you witnessed,
+- [21:20.640] which was probably one of the primary reasons
+- [21:22.790] that Russia went into Ukraine.
+- [21:24.710] They saw that mess, how badly it was handled,
+- [21:26.610] and they said, "Well, this is a paper tiger
+- [21:29.340] that was handled by incompetent people."
+- [21:31.670] But that wouldn't have … We would have been out,
+- [21:33.620] but we would have kept Bagram, the big air base,
+- [21:36.300] which is one hour away from China
+- [21:37.920] where they make their nuclear weapons.
+- [21:39.750] Would have been nice to have it. But now you know who has it now?
+- [21:42.350] China has it. And so an honest election.
+- [21:45.410] And we wouldn't have had inflation.
+- [21:47.470] You had the record-setting inflation.
+- [21:49.350] We wouldn't have had inflation.
+- [21:50.790] I want to thank everybody for being here.
+- [21:52.400] I want to congratulate Hyundai a great company,
+- [21:54.770] and we will do everything possible.
+- [21:57.350] And I will say you picked a fantastic state
+- [22:01.450] with tremendous people and tremendous leaders.
+- [22:03.620] And speaker, I want to thank you for doing a great job.
+- [22:06.390] You and Steve. Thank you very much, sir.
+- [22:07.840] Appreciate it, Steve. Thank you very much.
+- [22:09.810] Thank you. Thank you, everybody.
+- [22:12.760] The Press: Are you concerned [inaudible]
+- [22:14.450] violated the espionage act, sir?
+- [22:16.440] The President: Thank you very much everyone.
+- [22:17.670] The Press: If you get a briefing on that,
+- [22:18.870] would you let us know please?

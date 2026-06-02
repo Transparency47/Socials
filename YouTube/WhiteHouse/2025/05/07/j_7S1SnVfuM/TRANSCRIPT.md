@@ -1,0 +1,765 @@
+<!-- source: https://www.youtube.com/watch?v=j_7S1SnVfuM -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: j_7S1SnVfuM -->
+<!-- date_published: 2025-05-07T14:03:28+00:00 -->
+<!-- date_accessed: 2026-06-02T02:50:45.823204+00:00 -->
+
+# Transcript: Vice President JD Vance Delivers Remarks at the Munich Leaders Conference
+
+- [00:00.680] Male Speaker: Good morning, everybody.
+- [00:02.160] Wow, what a crowd. What a crowd! Mr. Vice President,
+- [00:05.020] we're so happy to have you here this morning.
+- [00:07.730] This is obviously the highlight of our Munich Security
+- [00:11.160] Conference meeting in Washington, D.C.
+- [00:14.090] The Vice President: I hope not. I hope not.
+- [00:15.740] Male Speaker: It is the highlight.
+- [00:17.450] It's really a great honor to welcome you here this morning.
+- [00:21.630] Actually, for those of you
+- [00:23.350] who have not been regular participants in Munich,
+- [00:26.270] this is the third time already that the Vice President
+- [00:29.470] is participating in a Munich Security Conference event.
+- [00:33.780] When you came to Munich last February, your speech kicked off
+- [00:39.070] a pretty controversial debate about fundamental values.
+- [00:43.690] Unlike anything we have ever had
+- [00:45.310] at the Munich Security Conference.
+- [00:47.240] And actually, we published a brochure,
+- [00:50.790] a copy of which you'll have on the way out,
+- [00:54.200] about the speech
+- [00:55.530] and the reactions to it from around the world.
+- [00:59.860] This intense debate about how fundamental values,
+- [01:05.420] how the freedom of speech, the rule of law,
+- [01:09.110] should be interpreted and applied,
+- [01:11.360] continues to this day.
+- [01:15.100] When we prepared for this meeting
+- [01:16.830] with your team yesterday,
+- [01:19.100] we agreed and they agreed that today
+- [01:22.560] we should try to focus on current challenges
+- [01:26.670] of foreign policy which confront us together.
+- [01:31.290] So thank you again for making yourself available.
+- [01:33.820] We don't have a great deal of time
+- [01:36.200] so I'll not come up with a long introduction
+- [01:40.940] and I just want to get us started.
+- [01:43.540] The first time you came to Munich,
+- [01:46.770] you were still a senator from Ohio.
+- [01:50.030] What I associate with Ohio is the Dayton agreement
+- [01:54.400] 30 years ago in 1995.
+- [01:56.690] I was at that time actually the German negotiator.
+- [01:59.800] So I actually lived in Dayton, Ohio
+- [02:02.100] for one entire month. And why is this important?
+- [02:06.880] Because it was through US intervention.
+- [02:12.820] It was through U.S. Intervention.
+- [02:15.320] That peace was brought about in Europe,
+- [02:18.280] in the Balkans at that time.
+- [02:21.860] So if I may, let me ask my first question
+- [02:26.950] about the U.S. And Europe.
+- [02:30.850] A distinguished US diplomat, Richard Holbrooke,
+- [02:36.940] wrote almost exactly 30 years ago
+- [02:39.230] in a foreign affairs article that the United States is
+- [02:44.110] and should remain a European power.
+- [02:49.470] Today, 30 years, ago, my question is,
+- [02:53.150] do you think that the Unites States
+- [02:54.990] should continue to see itself as a European Power?
+- [03:00.260] In Munich, remember, you actually said, and I quote,
+- [03:04.070] "We are still on the same team," are we?
+- [03:08.120] And what does that mean for the US presence in Europe
+- [03:12.080] and relationship with Europe? First question.
+- [03:14.190] The Vice President: Well, first of all,
+- [03:15.450] thank you and I'm sorry my microphone apparently is broken,
+- [03:17.810] but we have we have another one so that's good.
+- [03:20.270] So everybody can hear me now, right?
+- [03:21.610] Everybody can hear, me? Great. Yeah, so first of all,
+- [03:26.830] thrilled to be here and thrilled to have this conversation.
+- [03:29.110] I've been looking forward to it.
+- [03:30.640] And yeah, I do still very much think
+- [03:33.250] that the United States and Europe are on the same team.
+- [03:36.690] And I think that this is,
+- [03:37.980] sometimes I've criticized as a hyperrealist, right?
+- [03:42.570] I think of foreign policy
+- [03:44.170] purely in terms of transactional values.
+- [03:46.830] What does the America get out of it?
+- [03:48.370] What do the rest of the world get out it?
+- [03:50.500] And try to focus so purely on the transactional value of it
+- [03:55.490] that we ignore sometimes the humanitarian
+- [03:57.870] or the moral side of it.
+- [03:59.250] And I think at least with Europe,
+- [04:00.500] that's actually not a full encapsulation of my views
+- [04:03.310] because I think that European civilization
+- [04:07.120] and American civilization, European culture
+- [04:09.390] and American culture, are very much linked.
+- [04:12.410] And they're always going to be linked.
+- [04:13.960] And I think it's completely ridiculous to think
+- [04:16.840] that you're ever going to be able to drive a firm wedge
+- [04:19.520] between the United States and Europe.
+- [04:21.270] Now that doesn't mean we're not going to have disagreements.
+- [04:23.290] And of course, you know, you brought up
+- [04:24.600] the speech earlier. It doesn't mean
+- [04:26.340] that Europeans won't criticize the United States
+- [04:28.520] or the United States won't criticize Europe.
+- [04:30.670] But I do think fundamentally we have to be,
+- [04:33.400] and we are, on the same civilizational team.
+- [04:36.740] And I think obviously there's a big question about
+- [04:38.650] what that means in the 21st century.
+- [04:40.530] I think, you now obviously the president and I believe
+- [04:43.280] that it means a little bit more European burden
+- [04:46.350] sharing on the defense side.
+- [04:48.180] I think that it mean that all of us
+- [04:49.650] frankly on both sides of the Atlantic
+- [04:51.460] have gotten a little bit.
+- [04:53.350] Too comfortable with the security posture
+- [04:55.370] of the last 20 years,
+- [04:56.670] and that, frankly, that security posture is not adequate
+- [04:59.430] to meet the challenges of the next 20 years.
+- [05:01.560] So there are a lot of ways in which this alliance
+- [05:03.810] will evolve and change,
+- [05:05.230] and the same way that the alliance evolved
+- [05:07.100] and changed from 1945 to 1975 and from 1975 to 2005,
+- [05:12.800] I do think that we're in one of these phases
+- [05:15.130] where we're going to have to rethink a lot of big questions,
+- [05:17.900] but I do that we should rethink those big questions together.
+- [05:20.350] That is a fundamental belief of both me and the president.
+- [05:23.490] And you mentioned this is my third time
+- [05:25.550] speaking with the Munich Security Conference Group,
+- [05:28.180] obviously the first couple of times we're in Munich.
+- [05:30.830] And I always remember very fondly, of course,
+- [05:33.090] that the very first time it was as a United States Senator
+- [05:36.720] representing Ohio,
+- [05:37.990] and I'm glad you got to spend a month in Dayton.
+- [05:39.380] I love Dayton.
+- [05:40.580] It's kind of the closest big city,
+- [05:41.940] if you can call it a big city to where I grew up.
+- [05:44.530] But on that first panel, I was on that panel
+- [05:46.830] and also David Lambie who at the time
+- [05:49.040] was a lowly member in opposition,
+- [05:51.890] and of course now is the great
+- [05:53.480] foreign secretary of the United Kingdom,
+- [05:55.080] and he and I have become good friends.
+- [05:56.660] So I still think that this European alliance
+- [06:00.120] is very important,
+- [06:01.410] but I think that for it to be important
+- [06:03.770] and for us to be real friends with each other,
+- [06:05.550] and I think we are very much real friends,
+- [06:07.670] we've got to talk about the big questions,
+- [06:09.870] and I know that's an important part
+- [06:11.360] of what this entire group does, so I'm glad to be here.
+- [06:14.470] Male Speaker: Great, thank you so much.
+- [06:16.090] And I think the message has arrived in Europe
+- [06:19.200] that we need to carry
+- [06:20.740] a significantly larger share of the burden.
+- [06:24.300] As you know, we are all trying to spend more.
+- [06:27.310] Some are spending really a lot more.
+- [06:29.770] Others are lagging behind a little bit,
+- [06:31.520] but we're moving in the right direction, I think.
+- [06:36.510] Let me turn to a really concrete, urgent issue, Ukraine.
+- [06:42.790] The Trump administration,
+- [06:44.090] from what we have seen in the media, et cetera,
+- [06:47.340] seems to agree with most of us in Europe
+- [06:53.300] that unfortunately Russia does not seem
+- [06:57.040] to be really willing to end this military confrontation.
+- [07:02.750] If that's the assessment,
+- [07:04.800] if that's our collective assessment,
+- [07:08.030] could you talk a little bit about US strategy going forward?
+- [07:12.430] We all want this war to end.
+- [07:14.030] And let me say as a very personal comment,
+- [07:16.790] I think the Trump administration did the right thing
+- [07:20.610] by starting this process of talking to the Ukrainians,
+- [07:24.460] talking to Russians,
+- [07:26.380] but the Russians seem not to be interested
+- [07:29.240] in the kind of quote unquote deal
+- [07:32.100] that could be offered to them.
+- [07:34.240] So talk to us a little bit about how you see the next steps.
+- [07:38.050] The Vice President: Yeah, so let me say
+- [07:39.310] a couple of things about this. First of all, I appreciate
+- [07:42.020] your kind words about the administration.
+- [07:43.590] Obviously, I think it was the right thing to do for us
+- [07:45.800] to start the process of negotiation.
+- [07:48.100] I think for too long, the Russians,
+- [07:50.430] the Ukrainians have been fighting.
+- [07:52.050] Obviously, there's been a lot of people dying on both sides.
+- [07:54.680] There's been an innocent loss of life.
+- [07:57.050] And our view is it's absurd
+- [07:59.170] that you've had this war go on for so long,
+- [08:01.440] and the two sides aren't even talking constructively
+- [08:04.300] about what would be necessary for them to end the conflict.
+- [08:07.520] And I think that.
+- [08:08.990] You know, one of the things that President Trump
+- [08:10.910] has always been very good at,
+- [08:12.140] and he's gotten a lot of criticism,
+- [08:14.110] unfair criticism in my view,
+- [08:16.210] from both the American and some of the European press,
+- [08:19.180] is what I would call a strategic realism or a strategic insight.
+- [08:23.350] In other words, you don't have to agree
+- [08:26.030] with the Russian justification for the war,
+- [08:29.080] and certainly both the President and I
+- [08:30.710] have criticized the full-scale invasion,
+- [08:32.820] But you have to try to understand
+- [08:34.210] where the other side is coming from.
+- [08:35.520] To end the conflict.
+- [08:36.780] And I think that's what President Trump
+- [08:38.350] has been very deliberate about,
+- [08:40.060] is actually forcing the Russians to say,
+- [08:42.780] here is what we would like in order to end the conflict,
+- [08:45.670] and again, you don't have to agree with it.
+- [08:48.220] You can think that the request is too significant.
+- [08:50.780] And certainly the first peace offer
+- [08:52.890] that the Russians put on the table,
+- [08:54.330] our reaction to it was, you're asking for too much.
+- [08:57.780] But this is how negotiations unfold.
+- [09:00.260] And I wouldn't say, I'm not yet that pessimistic on this.
+- [09:03.390] I wouldn't say that the Russians are uninterested
+- [09:06.360] in bringing this thing to a resolution.
+- [09:08.070] What I would say is right now,
+- [09:10.010] the Russians is asking for a certain set of requirements,
+- [09:13.700] a certain sets of concessions, in order to end the conflict.
+- [09:17.220] We think they're asking for too much, okay?
+- [09:20.100] And then obviously, the Ukrainians matter a lot.
+- [09:22.880] They're the other side,
+- [09:24.160] they're the party at least to the direct conflict.
+- [09:26.770] And we have to ask, what is the Ukrainian,
+- [09:28.690] what do they need in order to bring this conflict
+- [09:33.020] to a successful completion?
+- [09:35.050] And we're gonna continue to have that conversation.
+- [09:37.360] Now, what the president has said is that he will walk away
+- [09:40.610] if he thinks he's not making progress.
+- [09:42.350] And I think that, you know,
+- [09:44.040] about once every four or five weeks,
+- [09:46.400] you will hear some American official
+- [09:48.080] or sometimes multiple American officials say,
+- [09:50.810] this is a week where we need to make another step.
+- [09:53.580] And in particular, the step that we would like to make right now
+- [09:56.420] is we would, like both the Russians and the Ukrainians,
+- [10:00.180] to actually agree on some basic guidelines
+- [10:03.500] for sitting down and talking to one another.
+- [10:05.650] Obviously, the United States is happy to participate
+- [10:07.760] in those conversations.
+- [10:09.020] But it's very important for the Russians and the Ukrainian
+- [10:11.290] to start talking to another.
+- [10:13.540] We think that is the next big step that we'd like to take.
+- [10:16.890] And why does that matter?
+- [10:18.620] The reason it matters is because,
+- [10:20.340] again, I mentioned the Russians,
+- [10:22.010] but also the Ukrainians have also been sort of --
+- [10:25.120] they've put a piece of paper in our hands that says
+- [10:27.830] this is what we would need in order to bring this conflict
+- [10:30.830] to a successful resolution from our perspective.
+- [10:33.580] And there's a big gulf, predictably,
+- [10:35.680] between where the Russians and the Ukrainions are,
+- [10:38.180] and we think the next step in the negotiation
+- [10:40.100] is to try to close that gulf.
+- [10:42.020] We think it's probably impossible for us
+- [10:44.240] to mediate this entirely
+- [10:45.880] without at least some direct negotiation between the two.
+- [10:49.160] And so that's what we focus on. I'm not yet a pessimist on this.
+- [10:53.430] I mean, obviously, you know,
+- [10:55.070] the Russians and the Ukrainians are not there yet
+- [10:57.860] because the fighting is still going on.
+- [11:00.120] You know, they're Ukrainians have said
+- [11:02.120] they would agree to a ceasefire,
+- [11:03.640] a 30-day ceasefire. We appreciate that.
+- [11:06.340] What the Russians have said, again,
+- [11:08.060] you don't have to disagree with it,
+- [11:09.560] but it's important to understand
+- [11:10.800] where the other side is coming from.
+- [11:12.510] What the Russian have said is a 30 day ceasefire
+- [11:15.400] is not in our strategic interest.
+- [11:17.320] So we've tried to move beyond the obsession
+- [11:19.840] with the 30-day ceasefire
+- [11:21.670] and more on the what would the long-term settlement look like,
+- [11:25.100] and we've try to consistently advance the ball.
+- [11:27.360] One final point I'd make about this,
+- [11:28.930] I think it's probably wouldn't surprise anybody in the room,
+- [11:31.190] but there are a lot of people
+- [11:32.400] watching who are not in the rooms,
+- [11:34.010] is a frustration that we've had, frankly with both sides,
+- [11:38.930] is that they hate each other so much.
+- [11:42.570] That if you have an hour conversation with either side,
+- [11:44.710] the first 30 minutes are just them complaining
+- [11:46.990] about some historical grievance from four years ago
+- [11:49.910] or five years ago or 10 years ago.
+- [11:51.800] Look, I understand it.
+- [11:53.040] I understand that people don't fight wars against each other
+- [11:55.800] without a lot of grievance and a lot problems,
+- [11:59.290] but we're trying to, as much as we can,
+- [12:01.600] play a constructive role
+- [12:03.230] in advancing the peace conversation forward.
+- [12:05.380] What I'll say, just to echo something
+- [12:07.240] that President Trump has said many times,
+- [12:09.270] but I think it bears repeating is our strong view.
+- [12:12.680] Is that the continuation of this conflict is bad for us,
+- [12:16.240] it's bad for Europe, it's for Russia,
+- [12:18.580] and it's a bad for Ukraine.
+- [12:19.990] We think that if cool heads prevail here,
+- [12:23.850] we can bring this thing to a durable peace
+- [12:26.380] that will be economically beneficial
+- [12:28.150] for both the Ukrainians and the Russians,
+- [12:30.030] and most importantly,
+- [12:31.470] will stop the end of the destruction of human lives.
+- [12:35.490] I think people underappreciate
+- [12:36.900] this about our president here in the United States
+- [12:39.210] is he has a genuine humanitarian impulse about this.
+- [12:42.570] He hates innocent people losing their lives.
+- [12:46.390] He hates even soldiers losing their lives
+- [12:49.050] in unnecessary conflicts.
+- [12:50.590] He just wants the killing to stop.
+- [12:52.960] And that will continue to be America's policy.
+- [12:55.770] But obviously, as all of you have seen,
+- [12:58.070] we'll navigate that policy and react as the parties
+- [13:00.910] bring their grievances to us.
+- [13:03.510] Male Speaker: Great, thank you very much.
+- [13:05.170] If I can just offer two footnotes to that.
+- [13:08.030] I think for us.
+- [13:11.980] Europeans living as neighbors of Ukraine
+- [13:14.950] and, if you wish, also as neighbors of Russia,
+- [13:18.880] we have begun to understand that what we're looking at here
+- [13:22.880] is not just the defensive war by Ukraine
+- [13:26.560] against the Russian aggression. It is also a confrontation
+- [13:32.520] that puts at risk all of European security.
+- [13:36.810] In other words, it's indirectly our defense also.
+- [13:41.430] It's not just Ukraine.
+- [13:43.150] And this is why we're so desperately interested in seeing
+- [13:46.260] that this comes to an end, hopefully.
+- [13:50.800] And I think the real trick for negotiations
+- [13:53.450] and for a conclusion of this is going to be
+- [13:55.910] that it's going to lasting
+- [13:57.770] and not broken in the next three,
+- [14:01.560] six or nine months again.
+- [14:03.860] Let me, Mr. Vice President, since we have a little time,
+- [14:07.600] there are so many issues.
+- [14:10.000] But if you allow, let me turn to another issue.
+- [14:16.020] A key, as we understand, a key challenge for the United States,
+- [14:20.270] for your foreign policy.
+- [14:21.900] It's also of tremendous interest for us in Europe.
+- [14:28.010] The United States has defined China
+- [14:30.180] as the key strategic challenge going forward
+- [14:34.160] for coming probably many years.
+- [14:37.370] This has also been the justification,
+- [14:41.660] the reasoning when American staff members of yours
+- [14:46.640] tell us the United States
+- [14:48.720] must be much more present in Asia
+- [14:51.830] and will therefore need to Presence,
+- [14:57.850] their strength, et cetera, in Europe.
+- [15:00.240] But now, there are some signals in the media that you,
+- [15:05.220] that the United States government,
+- [15:06.960] that the White House might actually be interested
+- [15:09.650] in a strategic deal with China, maybe even including on Taiwan.
+- [15:14.410] Could you talk a little bit about the China strategy
+- [15:17.770] of the Trump administration?
+- [15:19.760] The Vice President: Yeah, so I haven't seen those reports
+- [15:21.400] that you mentioned, a strategic deal on Taiwan.
+- [15:23.590] So I wouldn't speak to that.
+- [15:25.300] I certainly would say that there has been no conversation
+- [15:28.090] between our governments about a strategic deal
+- [15:30.890] on that particular question.
+- [15:32.580] What we have talked about, of course,
+- [15:34.380] is that we cannot absorb the producer surplus
+- [15:38.510] of the entire world.
+- [15:39.740] That has been the role of the American economy
+- [15:41.620] for the past 30 years. In some cases, vis-a-vis Europe,
+- [15:44.780] and by the way, we don't blame, for example, the Germans.
+- [15:47.650] For pursuing a policy that makes their exporter strong.
+- [15:50.700] We just wish that American leadership
+- [15:52.400] had pursued a policy that made our exporter's strong
+- [15:54.730] because now we find ourselves in a very precarious place.
+- [15:58.170] When I say we, I mean the entire West.
+- [16:00.100] I mean, the NATO alliance.
+- [16:01.400] I mean The United States and Europe,
+- [16:03.920] which is that we become in a world of hyper-complicated,
+- [16:07.250] hyper-globalized supply chains.
+- [16:09.510] We find ourselves more and more reliant on countries
+- [16:14.200] that may not have our best interests
+- [16:15.680] And even if they're halfway decent trading partners,
+- [16:19.210] it's still a little bit risky to put all of your eggs
+- [16:22.150] in one proverbial basket economically.
+- [16:24.960] And what the president has said is we must rebalance
+- [16:27.920] the global economy vis-a-vis China.
+- [16:30.040] We cannot absorb hundreds of billions of dollars,
+- [16:34.230] close to a trillion dollars per year, an annual surplus,
+- [16:38.480] most of it coming from the People's Republic of China.
+- [16:41.480] And what that's gonna mean in the rebalancing,
+- [16:44.780] is that we think that the PRC is gonna have to
+- [16:46.960] frankly let their own population consume a little bit more.
+- [16:51.290] They've held consumption levels down in order
+- [16:53.640] to increase these massive exports.
+- [16:56.140] It means that American manufacturers are gonna have
+- [16:58.700] be treated more fairly in some of these global trade deals.
+- [17:01.750] It means we're gonna have cut some new trade deals
+- [17:04.310] with some of our friends in Europe,
+- [17:06.000] but also with some more adversarial nations.
+- [17:09.130] But that also, we have to be careful here.
+- [17:12.310] Because while we wanna rebalance global trade,
+- [17:15.400] and that has certainly been the explicit goal of our policy,
+- [17:18.850] we also wanna make sure that we do this in the right way.
+- [17:21.560] And yes, you've seen media reports
+- [17:23.990] that the Chinese reached out to the United States.
+- [17:26.650] Of course, we're gonna sit down and talk to them.
+- [17:29.000] I'm not gonna divulge too many details
+- [17:30.890] or prejudge the negotiations, but we want to rebalance trade
+- [17:35.240] in the interests of American workers,
+- [17:36.980] in the interest of American manufacturers.
+- [17:38.680] That is our policy. We think that we can do that.
+- [17:41.690] While preserving at least an open dialog with the PRC
+- [17:46.110] and with a lot of other nations all over the world.
+- [17:49.040] But that doesn't mean the old way of doing business
+- [17:51.970] is gonna be stable or that it's gonna persist.
+- [17:54.380] It simply cannot.
+- [17:55.660] It was not sustainable 10 years ago.
+- [17:58.190] It was certainly not sustainable four years ago,
+- [18:00.680] and we're very, very committed to changing it.
+- [18:03.170] But we're open to having conversations with both, again,
+- [18:05.970] our friends and more adversarial nations
+- [18:08.200] about what that rebalancing ultimately looks like.
+- [18:10.830] And people have to remember, you know, Liberation Day,
+- [18:13.870] which was where the president announced
+- [18:16.870] this fundamental change,
+- [18:18.070] I think, in the global trading system,
+- [18:19.970] that was almost exactly 30 days ago.
+- [18:22.490] So we are in the early innings of a very significant shift.
+- [18:26.970] I think that shift is going to really inure
+- [18:29.710] to the benefit of both the United States
+- [18:31.520] but also of Europe,
+- [18:32.960] but it's fundamentally, it has to happen
+- [18:35.040] and it's going to happen under President Trump's leadership.
+- [18:41.140] Male Speaker: I think it's great
+- [18:42.420] if there are beginning discussions
+- [18:44.310] between you and the Chinese.
+- [18:51.350] Would your expectations be for an EU-US successful discussion
+- [18:57.990] of these trade issues?
+- [19:00.600] Is there any message that we can take home
+- [19:03.220] to our friends in Brussels?
+- [19:05.900] Because that's also, from our point of view,
+- [19:07.780] obviously a very urgent issue.
+- [19:10.440] The Vice President: Yeah, so to put it very simply,
+- [19:13.560] and we've obviously had great conversations
+- [19:15.520] with a lot of our European friends
+- [19:17.250] at the very senior levels
+- [19:18.470] between the president and heads of state,
+- [19:21.120] between me and officials in European governments,
+- [19:24.660] but also with trade representatives
+- [19:26.840] and also the very nitty-gritty technical details
+- [19:28.740] of a trade agreement.
+- [19:30.110] So these conversations are ongoing,
+- [19:32.610] but I'll throw a few general principles out there.
+- [19:34.450] I think the first is that, again,
+- [19:37.480] America wants its exporters and by implication,
+- [19:40.670] its workers to be treated much more fairly.
+- [19:43.100] We want American markets, sorry, excuse me.
+- [19:46.920] In the same way that American markets have been open
+- [19:48.930] to a lot of European goods,
+- [19:50.260] we'd like a lot of European markets
+- [19:51.710] to be open to American goods.
+- [19:53.450] Now there's an agriculture component to that,
+- [19:55.260] there's a value added manufacturing component to that.
+- [19:58.420] We think that we have in both the software,
+- [20:00.530] but also the more harder technology side.
+- [20:03.060] We have some great defense technology firms.
+- [20:05.840] Where on the one hand, we have our European friends saying,
+- [20:09.910] we wanna actually build up our defense,
+- [20:12.970] we wanna do more burden sharing, but on the other hand,
+- [20:15.980] it seems like some of our European friend
+- [20:18.450] are less open for business if the people selling software
+- [20:21.920] and hardware are American firms.
+- [20:23.990] Well, we think that's inconsistent.
+- [20:25.360] We think that we have some of the best military hardware
+- [20:27.440] and software in the world,
+- [20:28.810] and we think part of being good allies is yes,
+- [20:31.630] we obviously want the Europeans
+- [20:33.230] to take a bigger role in the continental defense.
+- [20:35.640] But we also think that there are a lot
+- [20:36.950] of great American companies that they can work with.
+- [20:39.110] And so, again, this doesn't have to be a zero sum dynamic.
+- [20:42.370] This can be a very synergistic relationship,
+- [20:45.160] but the fundamental principle is we think that most nations,
+- [20:48.980] most nations in the world have been way too hard
+- [20:51.810] on American exporters and American firms.
+- [20:54.360] We want to make the entire world a little bit more open
+- [20:57.650] to the products built by American workers.
+- [20:59.390] We're obviously biased.
+- [21:00.600] We think that they're the best in the word.
+- [21:02.670] And we think that we can have a much better trading relationship
+- [21:06.280] with a lot of our European friends
+- [21:09.050] if they just drop some of those both tariff
+- [21:11.990] but also non-tariff trade barriers.
+- [21:13.740] There are regulatory barriers.
+- [21:15.200] There are sometimes you have an official
+- [21:17.410] at the Ministry of Defense completely disconnected
+- [21:20.390] as far as we can tell from an actual law or regulation
+- [21:23.310] who will just say,
+- [21:24.580] we're not buying American products.
+- [21:26.850] Sometimes you have officials in Europe who will say,
+- [21:29.980] Well, we're gonna penalize American technology
+- [21:32.410] firms in a way that we would never penalize
+- [21:34.370] European technology firms.
+- [21:35.950] We just want a little bit more fairness,
+- [21:37.670] or to use the president's favorite word, reciprocity.
+- [21:40.710] And again, with Europe, we think that's
+- [21:42.730] a very, very easy conversation to have.
+- [21:45.930] We hope our European friends agree.
+- [21:49.880] Male Speaker: I get signs from my friend here
+- [21:52.720] that we're quickly running out of time.
+- [21:56.240] The Vice President: I'm having fun,
+- [21:57.590] and we can take a few more questions.
+- [21:59.480] Okay, great. Wonderful. My team over there is very nervous.
+- [22:01.970] You guys can't see them behind, but --
+- [22:04.460] Male Speaker: We'll be brief, so thank you very much.
+- [22:08.720] We've heard that there is,
+- [22:10.820] in coming days or next two weeks,
+- [22:13.850] a presidential trip to the Middle East coming up.
+- [22:17.290] Among the many unresolved issues of that region
+- [22:20.480] is the issue of Iran and their nuclear ambition,
+- [22:24.080] et cetera, et cetera.
+- [22:25.580] Could you talk a little bit about the region?
+- [22:29.140] I mean, there's so many un-resolved issue,
+- [22:31.260] the Gaza issue, but also Tehran.
+- [22:33.950] What would your expectation be What would the goal be?
+- [22:38.270] Would you go for zero enrichment by Iran?
+- [22:41.670] Some people have suggested that.
+- [22:43.600] Or are we looking at a replay of the earlier agreement
+- [22:51.370] that was reached 10 years ago?
+- [22:53.930] The Vice President: So there are a couple issues
+- [22:55.240] with the earlier agreement.
+- [22:57.100] The JCPOA, as it's called here in the United States
+- [23:01.120] and I assume in Europe,
+- [23:02.350] but the two big issues with that agreement are number one,
+- [23:06.950] the enforcement or the inspections regime
+- [23:10.100] was incredibly weak.
+- [23:11.560] And I don't think that it actually served the function
+- [23:15.150] of preventing the Iranians
+- [23:16.440] from getting on the pathway to a nuclear weapon.
+- [23:18.350] That's one thing that must be different.
+- [23:20.330] And then second, yes, we believe that there were some elements
+- [23:23.180] of their nuclear program that were preserved under JCPOA,
+- [23:27.440] that yes, they weren't nuclear weapons,
+- [23:29.250] Iran doesn't have a nuclear weapon,
+- [23:31.250] but allowed Iran to sort of stay on this glide path
+- [23:34.400] towards a nuclear weapons
+- [23:35.740] if they flip the switch and press go.
+- [23:37.990] And we have to think about this not just in terms of Iran,
+- [23:40.610] which again, the president has said this.
+- [23:42.400] We think that there is a deal here.
+- [23:44.930] That would reintegrate Iran into the global economy,
+- [23:47.640] that would be really good for the Iranian people,
+- [23:49.730] but would result in the complete cessation of any chance
+- [23:53.680] that they could get a nuclear weapon.
+- [23:55.090] And that's what we're negotiating towards.
+- [23:56.590] And as the president has said, that's option
+- [23:58.760] A, and option B, if option
+- [24:00.980] A is very good for Iranian people
+- [24:02.820] and even some of the folks,
+- [24:05.760] the leadership in Iran, option B is very bad.
+- [24:08.840] It's very bad for everybody, and it's not what we want,
+- [24:11.400] but it's better than option
+- [24:12.680] C, which is Iran getting a nuclear weapon.
+- [24:14.940] That is what is completely off the table
+- [24:16.930] for the American administration. No ifs, ands, or buts.
+- [24:20.140] Now there are a couple of other things
+- [24:21.690] that are worth thinking about
+- [24:22.920] because this is not just about Iran.
+- [24:24.810] If Iran gets a nuclear weapon,
+- [24:26.750] which country then next gets a new nuclear weapon?
+- [24:29.710] And then when that country gets a nuclear weapon
+- [24:31.760] which country after that? We really care not just about
+- [24:35.490] Iran but about nuclear proliferation.
+- [24:38.010] You know the president said this in an interview a few weeks ago.
+- [24:40.120] It's one of these things that in the maelstrom of the media.
+- [24:45.150] The signal and the noise, this was very much signal,
+- [24:47.910] but it got lost in the noise.
+- [24:49.630] The president hates nuclear proliferation.
+- [24:52.040] I hate nuclear proliferation.
+- [24:53.920] And I think that the president would be very open
+- [24:57.050] to sitting down with the Russians and the Chinese
+- [24:59.780] and saying, look,
+- [25:01.300] let's get this thing in a much better place.
+- [25:03.430] Let's reduce the number of nuclear weapons
+- [25:05.630] that are in the world writ large.
+- [25:07.280] That's obviously not a conversation for tomorrow.
+- [25:09.020] That's a conversation,
+- [25:10.290] God willing, for a few years from now.
+- [25:12.370] But there is no way you get to that conversation.
+- [25:14.800] If you allow multiple regimes all over the world
+- [25:18.290] to basically enter this sprint for a nuclear weapon.
+- [25:21.130] And we really think that if the Iran domino falls,
+- [25:23.980] you're gonna see nuclear proliferation
+- [25:25.400] all over Middle East.
+- [25:26.640] That's very bad for us. It's very for our friends.
+- [25:29.420] And it's something that we don't think can happen.
+- [25:31.300] So, without prejudging the negotiations,
+- [25:34.460] I will say so far so good.
+- [25:36.780] We've been very happy by how the Iranians have responded
+- [25:40.670] to some of the points that we've made.
+- [25:42.750] We've been very happy that some of the intermediaries
+- [25:44.840] and some of folks who are in the room,
+- [25:46.640] the role that they've played, the Omanis in particular,
+- [25:48.830] have played a very positive role and we're very grateful to that.
+- [25:51.720] So, so far we're on the right pathway,
+- [25:54.880] but this is going to end somewhere.
+- [25:56.650] And it will end either in Iran eliminating
+- [26:00.820] their nuclear program, their nuclear weapons program.
+- [26:03.310] They can have civil nuclear power, okay?
+- [26:06.850] We don't mind that, but let me ask this basic question,
+- [26:11.110] which regime in the world has civil nuclear power
+- [26:16.790] and enrichment without having a nuclear weapon?
+- [26:20.460] And the answer is, no one.
+- [26:23.140] No one right now has a civil nuclear program
+- [26:26.270] with their entire enrichment infrastructure
+- [26:29.370] that can enrich to the 90 plus percent needed
+- [26:31.800] to get to fissile material and a nuclear weapons.
+- [26:34.660] So our proposition is very simple.
+- [26:37.170] Yes, we don't care if people want nuclear power,
+- [26:39.750] we're fine with that.
+- [26:41.690] You can't have the kind of enrichment program
+- [26:45.100] that allows you to get to a nuclear weapon,
+- [26:46.820] and that's where we draw the line.
+- [26:49.520] Male Speaker: I think most of us would totally agree with that,
+- [26:53.410] and especially, I think,
+- [26:55.700] speaking on behalf of a non-nuclear country
+- [26:59.330] with the goal of maintaining the nuclear non-proliferation
+- [27:03.310] regime. That's very important.
+- [27:05.760] That allows me to turn to my next or last question on NATO,
+- [27:11.490] because most people don't understand
+- [27:14.380] that the fact that we've had NATO under U.S. Leadership
+- [27:18.130] for the last 70 years.
+- [27:20.000] That has been an essential instrument
+- [27:23.380] of international nonproliferation.
+- [27:27.170] If we had not had the U.S. Nuclear presence in Europe,
+- [27:33.060] I would be prepared to give you at least two, three,
+- [27:36.930] four, five countries in Europe that would have gone nuclear
+- [27:40.420] if they had not this reassurance.
+- [27:43.320] So NATO has played a big role in nuclear nonprolimeration.
+- [27:47.270] In six weeks' time. A NATO summit coming up.
+- [27:52.230] And again, there are many, many issues.
+- [27:54.480] One will be the continuing issue of defense spending.
+- [27:59.830] As we mentioned earlier in our discussion,
+- [28:03.150] Europeans are doing more, but we've also listened
+- [28:07.050] to demands coming out of the administration
+- [28:13.150] that are even more ambitious.
+- [28:14.860] So could you talk a little bit about your level of expectation?
+- [28:18.410] What would be your desired outcome of that
+- [28:21.220] NATO summit in terms of defense spending,
+- [28:23.320] in terms of how much Europe will need to do on its own
+- [28:28.410] in order to relieve the United States more in Europe?
+- [28:33.440] The Vice President: Yeah, so I think there are two,
+- [28:35.380] there are a couple of different components to this.
+- [28:37.160] So first of all, what the president has said
+- [28:38.790] is he'd like to see 5% spending on defense in NATO.
+- [28:42.080] And he thinks that that is consistent
+- [28:43.910] with what our European friends are telling us
+- [28:46.230] about how much they fear some of the threats in the world.
+- [28:50.060] And given, unfortunately, that a lot of European militaries
+- [28:55.370] have not kept pace over the past few decades,
+- [28:59.070] there's a bit of catching up to do.
+- [29:00.730] And so that is the goal that the president has set.
+- [29:03.030] Obviously, the European countries
+- [29:04.350] are gonna make their own determinations,
+- [29:05.650] but that's what we think is a reasonable goal.
+- [29:07.780] But it's really not just about the spend itself,
+- [29:10.530] it's also how the money is spent.
+- [29:12.600] And it's, again, there's this fear that we have
+- [29:15.690] when we look at some of our European friends,
+- [29:17.600] and I made this point at the first Munich Security Conference
+- [29:20.060] I ever went to, that when I looked at Germany
+- [29:22.390] 10, 15, 20 years ago,
+- [29:24.530] one of the things that the Germans were very good about.
+- [29:27.520] Is that they had kept the industrial strength
+- [29:30.360] of their economy
+- [29:31.570] consistent with the first world standard of living.
+- [29:34.550] But now what we see in Europe is a lot of our European friends
+- [29:37.430] are de-industrializing at the very moment
+- [29:40.360] where we're all seeing the hard power underpinning
+- [29:44.030] or the economic underpinnings of real hard power
+- [29:46.470] requires very strong and powerful industry.
+- [29:49.310] And so it's not just spending money as important as that is,
+- [29:52.340] it's making sure that the same economic engine
+- [29:56.430] that powered first world living standards
+- [29:58.750] is actually geared towards producing,
+- [30:01.340] God forbid, weapons of war
+- [30:03.380] if those weapons of wars are ever necessary.
+- [30:05.350] And so I think there's both an economic component to this
+- [30:08.210] that's completely divorced from the spending levels,
+- [30:11.150] and then of course there's the spending level too.
+- [30:13.020] But we really want
+- [30:14.910] and we really care about Europe being self-sufficient.
+- [30:18.270] I gave an interview a couple of weeks ago.
+- [30:20.720] Where I actually tried to make the point that yes,
+- [30:23.150] we're gonna have disagreements with Europe and Europe
+- [30:25.120] will have disagreemnts with us.
+- [30:26.840] Sometimes, you know, I would harken back to 2003
+- [30:31.750] United States policy in the Middle East,
+- [30:33.630] I frankly wish we had listened to our European friends,
+- [30:36.730] but I think this is an area where we're fundamentally right
+- [30:40.260] and I think it's gratifying to see so many of our European
+- [30:42.880] Friends recognize that and recognize
+- [30:45.950] that Europe does really have to play a bigger role
+- [30:48.630] in continental defense. I think we're all aligned on it,
+- [30:51.580] it's just a question of getting there
+- [30:52.930] and most importantly getting there quickly.
+- [30:55.540] Male Speaker: There is a glimmer of hope in our country,
+- [30:57.690] in Germany, as I'm sure you've seen.
+- [31:00.040] We've eliminated the so-called dead break
+- [31:05.680] when it comes to defense spending.
+- [31:07.650] So there is now the opportunity
+- [31:09.220] for the incoming new government in Germany
+- [31:11.240] to spend significantly more.
+- [31:13.940] In other words, I think we're in good shape
+- [31:16.540] in terms of responding to what you have just said.
+- [31:20.240] Ladies and gentlemen, that brings us to the end of this.
+- [31:24.010] Wonderful discussion, I'm really grateful to you
+- [31:26.580] that you allowed this to be a Q&A session.
+- [31:30.320] Sure. We could continue this,
+- [31:33.190] I am sure, for the rest of the morning,
+- [31:35.840] but I know you have other things coming up.
+- [31:38.530] May I simply conclude by saying that we hope very much,
+- [31:43.040] my team and I, that you will be willing
+- [31:47.910] and prepared to continue this young tradition
+- [31:52.010] that the United States, Major Munich Security Conference
+- [31:57.060] events will be represented at your level.
+- [32:00.650] You are not the first Vice President of the United States
+- [32:03.580] who has come to the Munich Security Conference,
+- [32:06.020] but we are extremely grateful
+- [32:07.490] that you came in your new position.
+- [32:09.900] Please come again to Munich next year.
+- [32:11.840] Thank you very much, Mr. Vice President.
+- [32:15.700] The Vice President: Thank you.
+- [32:22.830] So if I may just say a few things in inclusion.
+- [32:25.370] First of all, I appreciate the kind words
+- [32:27.950] and I appreciate invitation back.
+- [32:29.400] I wasn't sure after February
+- [32:30.620] whether I'd get the invitation back,
+- [32:32.130] but it's good to know that it's still there.
+- [32:34.310] Male Speaker: Well, we thought about it.
+- [32:37.540] The Vice President: Second of all,
+- [32:38.790] since you brought up Germany,
+- [32:40.000] I wanted to, of course, for the President,
+- [32:42.190] issue our congratulations to Chancellor Mertz.
+- [32:44.640] And I know that we'll have a conversation with him
+- [32:46.890] in the next couple of days, but we're looking forward to it.
+- [32:49.470] And the final point that I'd make
+- [32:51.340] is not to rehash what's in that document,
+- [32:55.860] but one of the things that I said in that speech
+- [32:58.960] that didn't get as much airplay
+- [33:01.120] but I thought was just as important,
+- [33:03.040] is that everything that I said there applied as much.
+- [33:07.560] To the previous American administration
+- [33:09.570] as it did any government in Europe.
+- [33:11.700] And I think that this, I mean this from the heart
+- [33:14.350] and as a friend, that there is a trade-off
+- [33:17.880] between policing the bounds of democratic speech and debate
+- [33:24.270] and losing the trust of our people.
+- [33:26.640] Every single country, and we're all gonna draw the lines
+- [33:29.190] a little bit differently, every single country
+- [33:31.270] says there are things that are outside
+- [33:32.960] the realm of political debate.
+- [33:34.330] I understand that, I accept that.
+- [33:36.160] And I'm fine if one country is gonna draw those lines
+- [33:38.650] a little bit differently than the United States.
+- [33:40.910] But I think all of us, including especially the United states,
+- [33:44.960] we have to be careful that we don't draw the lines
+- [33:48.210] in such a way that we actually undermine
+- [33:51.660] the very democratic legitimacy
+- [33:53.470] upon which all of our civilization rests.
+- [33:56.290] And I think that is fundamentally the point here.
+- [33:58.540] It's not Europe bad, America good.
+- [34:01.520] It's that I think that both Europe and the United State,
+- [34:03.860] we got a little bit off track.
+- [34:05.670] And I'd encourage us all to get back on track together.
+- [34:08.150] We're certainly willing and able to participate in that work,
+- [34:11.150] and I think all of you all, too. Thank you. God bless you.

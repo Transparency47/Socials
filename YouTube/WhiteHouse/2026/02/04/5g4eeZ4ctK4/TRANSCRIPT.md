@@ -1,0 +1,900 @@
+<!-- source: https://www.youtube.com/watch?v=5g4eeZ4ctK4 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 5g4eeZ4ctK4 -->
+<!-- date_published: 2026-02-04T16:00:51+00:00 -->
+<!-- date_accessed: 2026-06-02T01:05:57.172248+00:00 -->
+
+# Transcript: Vice President JD Vance Delivers Remarks at the Critical Minerals Ministerial
+
+- [00:00.530] Announcer: Your Excellencies, distinguished guests,
+- [00:02.990] the Secretary of State of the United States.
+- [00:11.450] (applause)
+- [00:18.220] Secretary Rubio: Good morning.
+- [00:19.750] Welcome to Washington. We're glad you're here.
+- [00:21.500] This very important ministerial on a topic
+- [00:23.790] that I think we've been talking about
+- [00:25.340] quite a bit over the last year, year
+- [00:26.830] and a half of great importance to all of our nations.
+- [00:28.930] And we're very honored that all of you would join us here today.
+- [00:30.990] We have a great agenda and a lot of work ahead.
+- [00:34.200] This is an issue of incredible importance
+- [00:35.940] to this administration,
+- [00:37.490] and it's one of the top priorities
+- [00:39.360] of this administration.
+- [00:40.800] And I think it's a top priority for the world,
+- [00:42.510] and that is how to diversify our supply chains,
+- [00:45.100] how to diversity our access to critical minerals.
+- [00:48.100] To ensure that they are secure and safe,
+- [00:50.120] and we'll have more to say about that later on today.
+- [00:52.990] But we wanted to begin today
+- [00:54.910] by demonstrating to you the high level of engagement and interest
+- [00:58.290] on the part of this administration on this topic
+- [01:00.940] by hearing from the Vice President,
+- [01:02.330] who himself has taken a personal role
+- [01:04.780] in being a leader on this front. And so with no further ado,
+- [01:08.810] I'd like to introduce my good friend
+- [01:11.420] and a very excellent person who's doing an incredible job
+- [01:14.500] in the role he's playing in this administration.
+- [01:16.600] The Vice President of the United States, J.D. Vance.
+- [01:20.320] (applause)
+- [01:30.860] The Vice President: Well, good morning, everybody.
+- [01:32.170] And thank you all for being here.
+- [01:34.410] We're honored by the presence of so many world leaders
+- [01:37.450] and it speaks to the importance
+- [01:38.840] of what Secretary Rubio and the team
+- [01:40.630] are working on to fix this critical minerals issue.
+- [01:42.970] And I just wanted to let you know
+- [01:44.330] that we're honored by your presence
+- [01:45.860] and certainly, grateful for you coming to Washington
+- [01:47.980] for this very important conversation.
+- [01:49.960] I know there are a lot of very important discussions
+- [01:52.300] to be had over the, the rest of the day,
+- [01:54.270] and so I want to be relatively brief.
+- [01:55.730] First, let me say thanks to our incredible Secretary of State
+- [01:59.180] for putting this group together. Marco's doing an incredible job.
+- [02:02.280] And when he asked me to come and speak today,
+- [02:04.320] I said, "Man, this is your building.
+- [02:05.760] Why don't you come and give a speech?"
+- [02:07.610] And he said, "Well, because I've got five jobs
+- [02:09.750] and you've only got one."
+- [02:11.040] And so, I figured I might as well do Marco a solid
+- [02:13.180] since he's also the archivist
+- [02:14.850] and the official White House florist
+- [02:16.850] and has a number of other jobs
+- [02:18.360] in addition to Secretary of State.
+- [02:19.840] So, I'd kick us off
+- [02:21.320] and then he's going to take take the reins from here.
+- [02:24.440] But let, let me just say a,
+- [02:26.060] a few things about what we're doing
+- [02:28.460] and why this, this matters.
+- [02:30.460] So, I remember after our very wildly
+- [02:33.890] successful military operation of Venezuela,
+- [02:36.580] the President of the United States
+- [02:38.020] was talking with me and Marco
+- [02:39.370] and some of the other senior members of the cabinet,
+- [02:41.630] and he was talking just about how important it was
+- [02:44.920] that we ensured that the global economy
+- [02:47.270] had access to oil and gas many, many years in the future.
+- [02:50.270] And that of course is, you know,
+- [02:51.520] one of the reasons why we're interested in Venezuela,
+- [02:53.470] is because it has such a critical importance in this
+- [02:56.400] all important resource called oil.
+- [02:59.570] And as much as we talk about the modern economy,
+- [03:02.190] the digital economy, the high-tech economy,
+- [03:04.700] the President said something that was very, very important
+- [03:07.140] and I think should inform a lot of how we think
+- [03:09.460] about future growth, which is that,
+- [03:11.360] as much as data centers and technology
+- [03:14.320] and all of these incredible things
+- [03:15.700] that we're all working on matter, fundamentally,
+- [03:18.310] you still have an economy that runs on real things,
+- [03:21.230] and there is no realer thing than oil.
+- [03:23.340] And I would add to that;
+- [03:24.550] there's no realer thing than critical minerals.
+- [03:28.250] And I think a lot of us have learned the hard way
+- [03:31.060] in some ways over the last year
+- [03:32.670] how much our economies depend on these critical minerals.
+- [03:37.870] So, every man and woman,
+- [03:39.650] I believe in this room understands
+- [03:42.030] what we're confronting together today.
+- [03:44.480] And I say together, and that is very much something
+- [03:47.170] that is at the heart of Secretary Rubio's initiative.
+- [03:49.540] And, and as he said,
+- [03:50.760] at the heart of what we're trying to do
+- [03:52.730] all across the administration is recognize
+- [03:56.350] that this is something where our alliances
+- [04:00.280] and our friendships can really help one another.
+- [04:03.190] We're all on the same team.
+- [04:04.530] We're all rowing in the same direction.
+- [04:05.880] I believe that in this room,
+- [04:07.730] we have close to 2/3 of the world's GDP represented,
+- [04:11.410] and so we have the capacity to make ourselves more independent,
+- [04:15.400] more self-reliant, and that's what we should be doing.
+- [04:18.420] Now, we know that today, the international market
+- [04:21.010] for critical minerals is failing.
+- [04:23.730] It's failing to create domestic markets
+- [04:26.050] or dignified jobs for our labor forces,
+- [04:28.910] and it's failing to keep our nation safe.
+- [04:31.970] Supply chains remain brittle and exceptionally concentrated.
+- [04:37.600] Asset and commodity prices are persistently depressed,
+- [04:41.510] driven downward by forces
+- [04:43.480] beyond any individual country's control.
+- [04:46.650] Now, how many times cumulatively,
+- [04:48.830] have one of us or many of us in this room heard
+- [04:52.520] some variation of the story that I'm about to tell?
+- [04:56.480] A lithium mine, a gallium recovery center,
+- [04:59.260] you name it, is announced sometimes with years in planning
+- [05:03.370] and financing nearly in place.
+- [05:05.500] Then overnight, foreign supply floods the market,
+- [05:09.160] the prices collapse, and investors pull out.
+- [05:12.320] The project stalls and eventually,
+- [05:14.350] the project dies on the fine.
+- [05:16.510] We've all seen it firsthand in all of our countries,
+- [05:20.040] and the result is a global market
+- [05:21.980] where consistent investment is nearly impossible,
+- [05:25.750] and it will stay that way so long as prices
+- [05:29.520] are erratic and unpredictable.
+- [05:31.850] And that's one of the things that we want to work on
+- [05:33.760] with this initiative.
+- [05:34.980] Let's make the prices more predictable and less erratic
+- [05:38.160] so that we can support the domestic supply chains
+- [05:41.330] and the investment that makes those supply chains possible.
+- [05:44.720] Now, across Europe, North America,
+- [05:47.270] there are dozens of mining and processing initiatives
+- [05:49.980] that have been suspended or completely abandoned
+- [05:53.360] because sustained price weakness makes financing impossible.
+- [05:57.340] Time after time,
+- [05:58.830] advanced economies with deep capital markets
+- [06:01.980] are finding that projects cannot clear costs.
+- [06:06.160] The same story plays out elsewhere around the world.
+- [06:09.770] In resource-rich developing economies,
+- [06:12.580] only a tiny fraction of global mining investment,
+- [06:16.450] including from nations, many of them in this room,
+- [06:19.480] is reaching the point of actual projects.
+- [06:21.870] We plan, we think about it,
+- [06:23.080] we even invest a little bit of money,
+- [06:24.820] we do the regulatory work,
+- [06:26.440] but so many of them die on the vine.
+- [06:29.650] Now, everyone knows that these deposits exist.
+- [06:33.430] We've mapped a whole lot of them,
+- [06:34.890] and we know they're ready to be mined and processed,
+- [06:38.540] but capital can't reach them
+- [06:40.870] so long as investors lack confidence
+- [06:43.710] that those markets are going to remain stable
+- [06:46.550] for long enough to justify the long-term commitment.
+- [06:49.360] That is the problem that we confront.
+- [06:51.900] And even here, in the United States,
+- [06:53.860] even with all the incredible things that President Trump
+- [06:56.280] and the entire administration has done to eliminate permits,
+- [07:00.460] to open up the regulatory environment,
+- [07:03.410] we have private financing that we've secured,
+- [07:08.200] but even in some cases, even in the United States,
+- [07:12.270] some of these projects are struggling to attract investors.
+- [07:16.770] We see telltale signs of a market
+- [07:18.800] distorted beyond recognition,
+- [07:20.060] one that punishes strategic investment,
+- [07:21.530] one that punishes strategic investment,
+- [07:24.050] one that punishment- punishes diversification,
+- [07:26.920] and one that punishes long-term planning.
+- [07:29.880] This is crazy. We should have the kind of global markets,
+- [07:33.510] the kind of domestic markets that reward long-term planning,
+- [07:36.900] that reward strategic thinking,
+- [07:38.530] and that's exactly what we're trying to do.
+- [07:41.200] And I think every single one of us represented in this room
+- [07:43.770] has become dependent on arrangements we did not choose,
+- [07:47.980] and right now, arrangements that we cannot control.
+- [07:51.730] We all face the same vulnerability,
+- [07:54.850] access to the things that protect our people
+- [07:57.630] and sustain our way of life.
+- [07:59.220] Everything from missile defense systems,
+- [08:01.860] to energy infrastructure, to advanced manufacturing,
+- [08:04.750] to emerging technologies,
+- [08:06.660] the fundamental supply chains that support these industries
+- [08:10.260] sometimes can vanish in the blink of an eye
+- [08:13.120] without any control or influence
+- [08:15.510] from any of the countries in this room.
+- [08:18.260] And we in the Trump administration
+- [08:19.630] believe it is the business of the government,
+- [08:22.960] of the people's government elected just over a year ago
+- [08:26.580] to confront such problems
+- [08:28.090] and that we want to confront them together.
+- [08:30.560] And I think that you're all here,
+- [08:31.890] at least I hope you're all here
+- [08:33.170] because you all feel the exact same way.
+- [08:36.460] Now, our administration came into office last January,
+- [08:39.090] barely a year ago, with a clear mandate
+- [08:41.910] to reindustrialize the United States of America
+- [08:44.850] and return American workers
+- [08:47.380] to the center of our economic policy.
+- [08:49.690] And that is what we are doing. And I want to tell you just,
+- [08:51.730] just a little story about one of the very first meetings
+- [08:54.920] I had with our secretary of commerce
+- [08:57.580] and the secretary of the treasury,
+- [08:59.420] two great people, two great business leaders.
+- [09:02.180] And I remember saying,
+- [09:03.500] "Look, we have our views of the Biden administration.
+- [09:06.310] We're not particularly fans, as you may have guessed. We --"
+- [09:10.240] But, but, but setting that to the side,
+- [09:11.880] surely the Biden administration put together a list
+- [09:15.700] of the critical industries, the critical technologies,
+- [09:18.820] the critical manufacturing facilities
+- [09:21.590] that are supported by these rare earth minerals,
+- [09:24.490] these critical minerals.
+- [09:25.990] We may think it's bad work.
+- [09:27.210] We may think the people who put it together
+- [09:29.100] weren't particularly wise.
+- [09:31.510] But surely that gives us some foundation to build on.
+- [09:34.390] And I was shocked when our secretary of the commerce
+- [09:37.060] and secretary of the treasury came back to me and said,
+- [09:39.090] "Actually, we have never done this."
+- [09:42.530] The last four years, the Biden administration never sat down
+- [09:45.800] and tried to understand what are the critical deficiencies
+- [09:49.680] in world supply chains.
+- [09:50.940] That's crazy. It's insane that we ever got to this point.
+- [09:54.860] But in just one year,
+- [09:56.710] the President of the United States
+- [09:58.770] has struck dozens of deals to fix that problem.
+- [10:02.640] Domestic and foreign producers are both included in this,
+- [10:06.420] and we've, we're trying to ensure durable,
+- [10:09.500] end-to-end supply chains for our country,
+- [10:12.270] but also for many of our friends.
+- [10:14.240] We've mobilized public financing tools
+- [10:16.340] at an unprecedented scale, providing up to $100 billion
+- [10:20.630] in lending authority for critical minerals
+- [10:22.870] to the office of strategic capital.
+- [10:25.150] Marco's now a venture capitalist too.
+- [10:26.940] He's got many jobs. We've overturned old orthodoxies
+- [10:30.640] and taken direct stakes in high value
+- [10:32.530] mining and processing companies.
+- [10:34.930] United States had not built a primary smelter in this country
+- [10:38.870] since 1980, before I was born, four years before I was born.
+- [10:43.320] In the last month alone, we have announced two,
+- [10:46.460] one of which is already fully funded.
+- [10:48.910] And on Monday, the Trump administration announced
+- [10:51.440] Project Vault,
+- [10:53.260] America's first ever domestic critical minerals stockpile.
+- [10:57.980] With these moves, we intend to build an ironclad network
+- [11:01.890] of new industrial supply chains to span the entire nation.
+- [11:06.600] We're going to create good paying jobs,
+- [11:09.180] skilled jobs for the American labor force.
+- [11:11.760] And those people, those great workers are going to be securing
+- [11:15.290] a new era of prosperity for American families,
+- [11:18.050] and I believe, for many people all over the world.
+- [11:21.530] But we seek to make sure our friends
+- [11:23.990] and our allies are part of this
+- [11:25.850] and that you all are covered as well.
+- [11:28.290] Our goal here, and, and the reason why we're doing this,
+- [11:30.790] this conference is to align trade policy,
+- [11:34.270] development finance, and diplomatic engagement
+- [11:36.850] towards a shared strategic objective.
+- [11:39.230] And that objective is very simple.
+- [11:41.280] Diversifying, diversifying global supply
+- [11:44.440] in the critical minerals market
+- [11:46.220] while strengthening the partner countries
+- [11:48.860] who help all of us in this shared effort.
+- [11:52.810] Over the past year,
+- [11:54.610] our administration has signed agreements,
+- [11:57.130] we have launched many joint initiatives,
+- [11:59.770] and we've committed extensive resources
+- [12:02.840] with many of you in this room, with many governments,
+- [12:06.610] and our work extends across disparate regions
+- [12:10.890] and all stages of the value chain.
+- [12:14.000] We've convened this ministerial in an effort
+- [12:17.290] to accelerate that shared work.
+- [12:20.210] So this morning, the Trump administration
+- [12:22.130] is proposing a concrete mechanism
+- [12:25.160] to return the global critical minerals market
+- [12:27.240] to a healthier, more competitive state.
+- [12:30.790] A preferential trade zone for critical minerals
+- [12:33.540] protected from external disruptions
+- [12:36.010] through enforceable price floors.
+- [12:38.700] We will establish reference prices for critical minerals
+- [12:41.870] at each stage of production,
+- [12:44.170] pricing that reflects real world fair market value.
+- [12:48.890] And for members of the preferential zone,
+- [12:51.180] these reference prices will operate as a floor,
+- [12:53.830] maintained through adjustable tariffs
+- [12:56.200] to uphold pricing integrity.
+- [12:58.590] We want to eliminate that problem of people
+- [13:00.750] flooding into our markets with cheap critical minerals
+- [13:02.610] to undercut our domestic manufacturers,
+- [13:03.850] because we know, of course, that as soon as they've undercut
+- [13:05.510] our domestic manufacturers, because we know, of course,
+- [13:08.020] that as soon as they've undercut our domestic makers,
+- [13:11.020] they, the domestic markers, they leave the market,
+- [13:15.580] and the people who undercut them
+- [13:18.230] then jack up the price to a completely unfair level.
+- [13:21.280] We're going to fix that problem.
+- [13:23.200] Together, we want members to form a trading block
+- [13:26.810] among allies and partners,
+- [13:28.800] one that guarantees American access to American industrial
+- [13:33.150] might while also expanding production
+- [13:36.120] across the entire zone.
+- [13:38.990] The benefits will be immediate and durable.
+- [13:43.130] Regardless of how much material flows into the global market,
+- [13:46.200] prices within the preferential trade zone
+- [13:49.090] will remain consistent.
+- [13:51.780] Over time, our goal within that zone
+- [13:55.110] is to create diverse centers of production,
+- [13:57.990] stable investment conditions, and supply chains
+- [14:01.490] that are immune to the kind of external disruptions
+- [14:04.060] that we've already talked about. For those of you who join,
+- [14:07.880] we offer you a necessary foundation
+- [14:10.880] for private financing and secure access
+- [14:13.560] to the critical mineral supplies your nation
+- [14:16.220] would require in an emergency or some other contingency.
+- [14:20.560] By regulating imports to preserve free
+- [14:22.830] and fair competition within the preferential trading zone,
+- [14:26.610] we will elevate our nation's miners and refiners,
+- [14:29.870] our investors, and our producers alike.
+- [14:32.230] We are all on the same team,
+- [14:34.410] and we need to create the economic incentives
+- [14:36.990] that reward people for investing and building in our countries.
+- [14:41.660] Membership will be vital for developing economies
+- [14:45.730] sinking to expand mining capacity,
+- [14:48.570] and it'll be just as important for the advanced economies
+- [14:51.780] that rely on these materials
+- [14:53.390] to sustain their advanced industries,
+- [14:56.240] to sustain their growth and security.
+- [14:58.910] And I want to be clear with every person in this room,
+- [15:03.450] while we believe America's market is large enough
+- [15:06.790] to create its own critical minerals trading zone,
+- [15:10.330] this entire effort will be stronger
+- [15:13.220] and far more competitive if we build it together.
+- [15:17.360] So I'm pleased that so many of you here today
+- [15:19.880] have already signed on to this plan.
+- [15:23.080] Some of you have not, and for those not yet there,
+- [15:26.080] we hope that today's discussions will encourage you
+- [15:29.110] to finalize those agreements as quickly as possible.
+- [15:32.790] Now I know you're going to be hearing
+- [15:34.230] from a lot of others in our administration,
+- [15:36.180] including our great secretary of Rubio,
+- [15:38.390] I think really the greatest secretary of state
+- [15:40.350] the United States has ever had,
+- [15:42.110] and other senior administrators, um, in, in our, in our team.
+- [15:46.280] And I know that Ambassador Greer,
+- [15:47.750] our great trade representative,
+- [15:49.030] will present further specifics about what he'll be negotiating,
+- [15:52.700] what we're calling the Agreement on Trade and Critical Minerals.
+- [15:57.500] Knowing Jamieson, I know it will be a very productive session,
+- [16:00.470] and I know it will be a very detailed session.
+- [16:02.530] As, as all of you who know Jamieson well,
+- [16:04.280] he is a guy who gets into the details
+- [16:06.380] because he knows that that's where the substance
+- [16:09.280] of an agreement can really be made.
+- [16:11.400] So I want to close, but before I do, let me just reiterate.
+- [16:15.320] We here, I think all of us are friends.
+- [16:18.220] We've all spent many years describing this problem.
+- [16:21.610] Before I was ever in politics,
+- [16:23.380] I would hear politicians and global leaders
+- [16:25.940] talk about this problem.
+- [16:28.600] For too many of those years, we talked about it,
+- [16:32.020] but we refused to actually solve it.
+- [16:35.680] The framework before us is a change.
+- [16:39.180] It is a practical and enforceable approach
+- [16:42.590] to solving the problem, not just complaining about it.
+- [16:46.090] Many of you have helped us design it, and we're, of course,
+- [16:48.920] constructing it together in real time.
+- [16:51.690] So to those of you still on the fence,
+- [16:53.180] I say let's move, let's move together.
+- [16:56.620] Before you is a chance to lead,
+- [16:58.240] to secure your nation's ability to build,
+- [17:00.940] to produce, to defend itself.
+- [17:02.590] What, what is before all of us
+- [17:04.390] is an opportunity at self-reliance,
+- [17:06.850] that we never have to rely on anybody else
+- [17:09.510] except for each other for the critical minerals necessary
+- [17:12.780] to sustain our industries and to sustain growth.
+- [17:15.970] So I propose that we come together
+- [17:18.120] and we shape a market worthy of the great men
+- [17:22.330] and women of our countries who depend on that market.
+- [17:26.180] Again, I want to thank you all for being here.
+- [17:28.490] I'm honored by your presence.
+- [17:30.060] The president sends his very best regards,
+- [17:32.510] and I look forward to everything
+- [17:34.680] that we're going to accomplish together.
+- [17:36.560] God bless you all, and have fun today.
+- [17:39.470] (applause)
+- [18:08.630] Secretary Rubio: Thank you, Mr. Vice President.
+- [18:10.150] As you saw, I have to put my own sign here, too.
+- [18:12.110] So it's another job I have. I'm in charge of the signage.
+- [18:16.170] No, thank you all for joining us.
+- [18:17.570] I can tell you how honored we truly
+- [18:19.330] are that all of you would make the trip
+- [18:20.850] to be a part of this on such an important topic.
+- [18:23.370] And I want to thank the Vice President
+- [18:24.820] for coming this morning.
+- [18:26.090] I thought it was important you hear from him
+- [18:27.510] because it's a priority for this administration
+- [18:30.060] at the highest order.
+- [18:31.450] As it is, I know a priority for many of our partners.
+- [18:33.660] And our hope is to use both this forum.
+- [18:36.280] And our position here today to serve as a convener
+- [18:39.080] on what really is an international problem,
+- [18:41.220] an international situation or an international issue
+- [18:43.980] that needs multilateral international solutions.
+- [18:48.740] I don't need to explain to anybody here
+- [18:50.240] that critical minerals are vital to the devices
+- [18:52.890] that we use every single day.
+- [18:55.000] They power our infrastructure, our industry,
+- [18:57.690] and our national defense,
+- [18:59.230] which is something that's not talked about enough,
+- [19:00.910] but it's a key part of that.
+- [19:02.120] And so our goal is to have a global market that's secure,
+- [19:06.210] a global supply that's enduring and is available to everyone,
+- [19:11.180] every nation, at an affordable price.
+- [19:13.980] That's a top priority for this administration.
+- [19:18.180] I want to talk briefly about our politics here domestically,
+- [19:20.630] or our policies here domestically,
+- [19:22.740] primarily to serve as an example or a reminder
+- [19:25.450] of what a priority we give this topic.
+- [19:28.870] President Trump, from day one in office,
+- [19:30.590] has made clear that economic security is national security.
+- [19:34.750] So, we, for example, following in March,
+- [19:38.330] he issued an executive order to accelerate permitting reform,
+- [19:43.060] to increase domestic mining,
+- [19:45.060] and to build reliable supply chains both at home and abroad.
+- [19:49.850] And we feel like all of you, our friends and our partners,
+- [19:52.860] stand to benefit from the secure supply chains,
+- [19:56.940] want to be a big part of building.
+- [19:58.370] In October alone, the United States secured over $10 billion
+- [20:01.510] in critical mineral agreements across five countries.
+- [20:04.420] Our friends and partners stand to, in December,
+- [20:08.150] for example, we convened stakeholders
+- [20:10.200] from around the world at the Pax Silica Summit.
+- [20:13.270] And thank you, Jacob, for doing that.
+- [20:14.570] It's launching a partnership dedicated to building
+- [20:16.910] a resilient silicone supply chain
+- [20:18.780] capable of powering a new era of global prosperity.
+- [20:23.180] Packed silica and artificial intelligence may be the future.
+- [20:26.670] Still, the future will never come to pass.
+- [20:29.190] None of these things are going to be possible
+- [20:31.020] unless we rebuild the factories
+- [20:32.850] and reopen the mines upon which these technologies depend.
+- [20:37.240] And I want to use a case in point
+- [20:38.950] from our own history to highlight this.
+- [20:40.880] The United States used to produce
+- [20:43.090] its own critical minerals
+- [20:44.290] and derivative products like rare earth magnets.
+- [20:47.150] Back in 1949, miners, in Mountain Pass, California,
+- [20:51.560] discovered one of the world's richest mineral deposits.
+- [20:55.060] By 1952, the United States,
+- [20:57.640] we were mining rare earths there,
+- [20:59.250] and that discovery sparked a revolution.
+- [21:02.070] American scientists and engineers,
+- [21:04.070] alongside innovators from many of the countries
+- [21:06.190] that are here today,
+- [21:07.510] rushed to discover new applications for these minerals.
+- [21:10.790] And with these new technologies, ushered in the jet age,
+- [21:14.380] we usher in the space age, we ushered in the computer age.
+- [21:18.330] And then...
+- [21:19.570] We became blinded, blinded by the potential
+- [21:22.510] of the technologies those metals enabled,
+- [21:25.110] but we neglected their importance.
+- [21:28.370] Mining is less glamorous than building computers.
+- [21:30.920] It's less glamorous than building cars or airplanes.
+- [21:33.900] But building computers and cars and airplanes
+- [21:38.360] is less glamourous than designing them.
+- [21:41.030] As we embrace what was new and glamorous,
+- [21:43.090] we outsource what seemed old and unfashionable.
+- [21:46.490] We allowed, for example, mountain pass,
+- [21:48.330] and with it, most of America's critical mineral industry
+- [21:51.580] to wither and to die
+- [21:53.990] so that we could focus on manufacturing.
+- [21:56.260] Then we outsourced the manufacturing.
+- [21:58.370] And I know this is a story I'm telling,
+- [21:59.880] but it's a story many of the advanced economies
+- [22:01.810] represented here today understand well.
+- [22:04.040] We outsource the manufacturing
+- [22:06.050] so we can focus on designing these goods.
+- [22:08.550] And then one day we woke up
+- [22:10.370] and we realized we had outsourced our economic security
+- [22:14.130] and our very future. We were at the mercy
+- [22:18.320] of whoever controlled supply chains for these minerals.
+- [22:22.230] So my hope is that we are gathered here today
+- [22:25.420] as the first but important step to rectifying this mistake
+- [22:28.300] to bring together our collective talent for innovation
+- [22:32.490] when our advantage over rivals is only grown
+- [22:36.440] and to apply it to bringing back manufacturing
+- [22:39.260] and reopening mines here in the United States,
+- [22:41.950] but also in all the partner nations represented here today.
+- [22:45.660] I think it's interesting that about 50 years ago,
+- [22:48.790] actually in this very room, ministers from around the world
+- [22:52.290] joined then Secretary of State Henry Kissinger
+- [22:54.610] for the Washington Energy Conference.
+- [22:57.240] That meeting took place during a moment
+- [22:58.900] where global energy supplies were concentrated,
+- [23:01.930] where markets were distorted,
+- [23:03.450] and access to a single critical resource,
+- [23:07.560] at that time, of course, being oil,
+- [23:09.500] had become a tool of political pressure.
+- [23:11.980] That is the world 50 years.
+- [23:14.100] That meeting led directly to the creation
+- [23:15.910] of the International Energy Agency
+- [23:17.720] to coordinate among like-minded partners
+- [23:20.500] and secure access to energy commodities.
+- [23:23.030] And so today, we return, 50 years later,
+- [23:26.440] in the hopes of advancing a bilateral critical minerals
+- [23:30.410] framework agreement to the same end on that front.
+- [23:33.810] These frameworks are designed
+- [23:35.200] to create alternative sources of supply
+- [23:37.210] and to protect every single stage of production,
+- [23:40.680] from mining to refining,
+- [23:42.580] and processing to manufacturing, all of these things,
+- [23:45.520] protecting them from non-market disruption.
+- [23:48.280] They will provide platforms for coordinating policies
+- [23:50.820] that ensure all of our citizens can enjoy abundant
+- [23:53.650] and affordable access to these critical minerals.
+- [23:56.370] And so we stand ready and intend to work with each country here
+- [23:59.560] today to find a specialized role that you can play.
+- [24:02.490] If you don't have minerals, you can help refine them.
+- [24:05.070] And if the countries gathered here include,
+- [24:07.180] and the countries gather here include
+- [24:08.750] the largest consumers of critical mineral products.
+- [24:12.110] Who together have the buying power,
+- [24:13.880] together, collectively, have the buy power
+- [24:16.540] to build a more resilient and diverse global market.
+- [24:20.420] Everyone here has a role to play,
+- [24:22.020] and that's why we're so grateful for you coming
+- [24:23.810] and being a part of this gathering
+- [24:25.050] that I hope will lead to not just more gatherings,
+- [24:27.610] but action.
+- [24:28.840] The United States stands ready alongside each of you
+- [24:31.620] as we enter this new age of shared prosperity and security.
+- [24:36.100] And I want to end by saying that
+- [24:37.650] while we intend to play a key role
+- [24:39.150] and an important role, and to use the size.
+- [24:41.600] And influence of our markets to drive this.
+- [24:44.850] This is an international, multilateral effort
+- [24:47.070] and it only works.
+- [24:48.330] You can only have diversity and choice in these markets
+- [24:53.260] if it is broadly adopted across multiple countries.
+- [24:56.390] So this initiative here today may be one that started with us,
+- [25:00.500] but this is not solely an American initiative.
+- [25:02.550] This must be an international global initiative
+- [25:04.960] with like-minded countries who all have one thing in common.
+- [25:07.560] We want to see a diverse supply of critical minerals.
+- [25:10.400] And a secure and resilient supply chains across the world
+- [25:13.590] so all of our economies can prosper
+- [25:16.080] without ever having these things be susceptible
+- [25:19.170] at worst case scenario being used as leverage against us
+- [25:23.040] or any other disruption that could come to the market
+- [25:24.800] that would undermine
+- [25:26.060] our economic collective economic security.
+- [25:28.860] So thank you all for being a part of this today.
+- [25:31.230] We appreciate it very much.
+- [25:33.070] Let me now turn as we'll begin our program here.
+- [25:39.610] I think I'm going to, well, Minister Horii,
+- [25:41.820] I think you're going to start off.
+- [25:44.030] So thank you very much for being here today.
+- [25:45.900] Thank you all for being a part of this today.
+- [25:48.000] Minister Horii: Thank you very much.
+- [25:49.200] Mr. Secretary, Your Excellencies,
+- [25:51.290] and distinguished guests, I am Yuyao Horii,
+- [25:54.080] a State Minister for Foreign Affairs of Japan.
+- [25:57.030] It is my great honor to address you
+- [25:58.980] on behalf of the Government of Japan
+- [26:01.280] regarding one of the most pressing and crucial issues
+- [26:04.360] we collectively face today, critical mineral supply chains.
+- [26:09.600] May I begin with thanking our host.
+- [26:11.650] I'd like to express my sincere appreciation
+- [26:14.620] for the decisive leadership of the United States.
+- [26:18.230] In convening today's critical minerals ministerial meeting.
+- [26:22.980] I first would like to echo the remarks
+- [26:25.510] by Vice President Vance and Secretary Rubio.
+- [26:29.500] Japan shares a deep sense of concern and urgency
+- [26:32.920] about the risk of disruptions to critical mineral supply chains.
+- [26:38.200] Sitting at the very upstream end of supply chains
+- [26:41.920] and being used across a wide range of industries,
+- [26:45.820] critical minnows.
+- [26:47.190] And its stable supply is indispensable
+- [26:50.700] to the sustainable development of the global economy.
+- [26:55.600] That is precisely
+- [26:56.830] why Japan and Prime Minister Takaichi's leadership
+- [27:01.510] has redoubled its efforts to diversify sources of supply
+- [27:06.350] for critical minerals.
+- [27:08.300] Recently, Japan designated critical minerals
+- [27:11.920] as one of the priority areas under the new initiative
+- [27:16.270] of promoting bold strategic investment
+- [27:19.450] to enhance Japan's resilience
+- [27:21.590] and achieve robust economic growth.
+- [27:25.600] Amid rising geopolitical risks,
+- [27:28.270] Japan will accelerate efforts to secure upstream sources.
+- [27:33.440] At the same time, we will take flexible measures downstream,
+- [27:37.080] such as diversifying procurement sources in cooperation
+- [27:40.470] with like-minded partners who are here today.
+- [27:44.240] In fact, in recent years... We have already witnessed
+- [27:47.830] first-hand supply chain disruptions.
+- [27:51.460] Even in recent months,
+- [27:53.490] this challenge has become further deteriorated.
+- [27:57.160] Against such backdrop, we have come to understand
+- [28:00.570] that we are in the same boat. As any supply chain disruption
+- [28:05.230] would bring significant impact on the global economy,
+- [28:09.430] we should work together to address this challenge.
+- [28:13.530] To prevent such supply chain disruptions,
+- [28:16.300] The key is to diversify supply sources,
+- [28:20.160] including the refining and processing
+- [28:22.160] of geographically concentrated critical minerals.
+- [28:26.830] To do so, it requires a collective action.
+- [28:31.630] We must seize this opportunity to advance cooperation
+- [28:35.260] among right-minded countries apart from us like us.
+- [28:40.480] With that in mind, I'm looking forward to the launch of FORGE,
+- [28:44.850] the forum on resource geostrategic engagement.
+- [28:49.930] In the next session, Japan strongly believes
+- [28:53.240] that FORGE will become an important venue
+- [28:56.420] and a vehicle for us to focus on supply chain diversification
+- [29:00.720] and ensure policy coordination.
+- [29:04.120] Japan stands ready to actively contribute
+- [29:07.380] to discussions to further deepen collaboration with partners
+- [29:11.100] and to ensure the effective implementation.
+- [29:14.860] This initiative.
+- [29:18.390] How we should move forward from here.
+- [29:22.090] On the supply side, diversification is essential.
+- [29:26.230] Diversity as opposed to concentration
+- [29:30.100] is what makes us resilient.
+- [29:33.100] This has to be one of our major guiding principles.
+- [29:38.130] In this context, I'd like to take a moment
+- [29:40.760] to briefly talk about Japan's efforts to date.
+- [29:44.920] Japan has been pursuing various projects
+- [29:48.080] in cooperation with the United States
+- [29:50.220] as well as with stakeholders across the globe in this regard.
+- [29:55.840] Devestification of supply sources
+- [29:57.640] and enhancement of supply chain resilience
+- [30:00.660] has been Japan's top priority for many years,
+- [30:03.920] and we have taken policy measures accordingly.
+- [30:08.090] Back in 2022,
+- [30:10.830] Japan enacted the first-ever Economic Security Promotion Act
+- [30:15.980] and created new programs with a focus on critical minerals.
+- [30:20.950] Just as importantly,
+- [30:22.860] Japan has been implementing public-private support measures,
+- [30:27.120] including expanding Jogbeck's investment framework,
+- [30:31.240] increasing allowable investment ratios,
+- [30:34.420] and allocating a total budget of 3.5 billion U.S. Dollars.
+- [30:41.270] Around this table, there are many partners
+- [30:43.850] with enormous potential for the production
+- [30:47.070] and refining of rare-earth elements
+- [30:50.360] as other significant critical mineral sources.
+- [30:53.960] Angola, Argentina, Australia, Bolivia, Brazil.
+- [31:02.340] The Democratic Republic of the Congo, France.
+- [31:09.000] Well, the list goes on and on.
+- [31:12.230] Japan is determined to seek robust partnership with you.
+- [31:17.270] As geopolitical risks continue to rise,
+- [31:20.670] we will redouble our efforts
+- [31:22.930] to secure alternative supply sources
+- [31:25.380] and to build more resilient, reliable,
+- [31:28.230] and secure global supply chains.
+- [31:32.510] Only comes from a collective action.
+- [31:35.440] No single country can overcome fragility
+- [31:38.430] of critical mineral supply
+- [31:40.100] and over-dependence on specific countries on its own.
+- [31:45.000] With the launch of FORGE, now it is time for action.
+- [31:50.000] On the demand side, it is imperative
+- [31:53.330] that we avoid the in which critical minerals
+- [31:57.300] and their derivatives produced
+- [31:59.800] through non-market-based policies
+- [32:02.490] or practices crowd out products
+- [32:05.520] with distorted price competitiveness
+- [32:08.360] and unfairly monopolize the global market.
+- [32:13.140] Japan will engage in discussions with like-minded countries,
+- [32:19.970] including the United States, the European Union,
+- [32:23.710] and others present here in a positive
+- [32:26.430] and constructive manner,
+- [32:27.910] and will work to build an effective mechanism
+- [32:31.530] with industrial engagement.
+- [32:33.850] In this regard, Japan highly appreciates the U.S.
+- [32:37.930] for its decisive leadership. Distinguished colleagues.
+- [32:42.590] As we gather today, we are clear-eyed
+- [32:45.750] about what our mission is and what our challenges are.
+- [32:50.380] Together, we can build on our advantages
+- [32:54.570] and make our critical mineral supply chains more resilient.
+- [32:59.520] Japan has an unwavering determination to work
+- [33:02.450] with you as your trusted partner.
+- [33:05.950] On every aspect, demand and supply,
+- [33:09.530] mining and refining. Upstream and downstream.
+- [33:13.360] Japan is ready to enhance coordination
+- [33:16.500] and collaboration with you all.
+- [33:19.110] Together, let's make a meaningful difference.
+- [33:22.270] In closing, I thank you for your kind attention.
+- [33:24.880] I very much look forward to the discussion today.
+- [33:27.440] Thank you so much.
+- [33:34.390] Unidentified: Thank you, Minister Horii.
+- [33:35.810] It's a privilege to introduce David Copley,
+- [33:37.830] Special Assistant to the President
+- [33:39.500] and Senior Director for Global Supply Chains
+- [33:41.650] at the National Security Council.
+- [33:43.710] We're currently serving in the most historic administration
+- [33:47.130] in over a century,
+- [33:48.600] one that recognizes that a supply chain responsive
+- [33:51.180] to national security realities
+- [33:53.180] is a prerequisite to long-term economic growth.
+- [33:56.450] The decisions we make today about who we partner
+- [33:58.680] with are multi-decade decisions.
+- [34:01.380] We believe our partners will capture economic growth
+- [34:03.920] and value at all layers of the supply chain stack.
+- [34:07.330] The AI revolution we're living through
+- [34:09.500] is leading to record historic demand
+- [34:11.850] for everything from copper to cobalt,
+- [34:14.490] nickel, zinc, aluminum, silicon,
+- [34:17.260] and virtually every element on the periodic table.
+- [34:20.580] We're also seeing surging demand for products downstream
+- [34:23.630] of the Supply Chain, including manufacturer products,
+- [34:26.440] like smartphone, chips, telecom infrastructure,
+- [34:28.870] industrial robots, machinery. And much more.
+- [34:32.220] My friends, the pie is rapidly expanding,
+- [34:34.870] and the United States accounts
+- [34:36.300] for 30 percent of global consumption.
+- [34:38.430] So we're taking steps to narrow the gap
+- [34:40.930] between what we produce and what we consume.
+- [34:43.560] But in order to merely keep a pace
+- [34:45.590] with global demand in the US and abroad,
+- [34:49.330] we need to surge production capacity at home
+- [34:51.810] as well as in partner countries.
+- [34:53.840] David sits at the very center of this mission.
+- [34:56.780] His work is foundational
+- [34:58.030] to the strategic resilience of our country.
+- [35:00.780] He is tasked with a monumental challenge of de-risking
+- [35:03.730] our critical mineral dependencies,
+- [35:05.970] ensuring that the United States
+- [35:07.550] and our allies remain unassailable
+- [35:09.640] in the face of systemic competition.
+- [35:12.310] David brings a level of rigor and foresight
+- [35:15.160] that is essential for our department's mission
+- [35:17.800] and for the country at large.
+- [35:19.360] Please join me in welcoming David Copley.
+- [35:26.390] David Copley: Thank you, Jacob, for that.
+- [35:27.910] And thank you all for being here today.
+- [35:29.990] Thank you to the Vice President for his remarks
+- [35:31.940] and for his leadership.
+- [35:33.490] Thank you, Secretary Rubio, for hosting.
+- [35:34.960] And thank to President Trump for his visionary
+- [35:37.740] and forward-leaning leadership on the critical minerals issue.
+- [35:41.100] The President understands the need
+- [35:43.070] to secure the foundational elements of the modern economy,
+- [35:45.730] and he has prioritized this issue
+- [35:47.590] as a matter of national security and economic prosperity.
+- [35:51.640] I'm going to speak with you all today to provide an overview
+- [35:54.150] about what we're doing in the United States
+- [35:55.720] to fix the critical minerals problem.
+- [35:58.370] We know this is an issue that will require
+- [35:59.970] a global solution and teamwork.
+- [36:03.010] Of the 57 minerals on our critical minerals list,
+- [36:06.160] over a dozen aren't even mined in the United States,
+- [36:08.910] so this is truly a global challenge.
+- [36:11.750] In the United States for a number of decades,
+- [36:14.150] we've neglected our mining sector
+- [36:16.220] and frankly been happy to outsource mining activities
+- [36:19.010] to others around the world.
+- [36:20.790] We've had some of the worst mine development timelines
+- [36:22.960] in the world in the United States.
+- [36:24.770] 29 years to build an average mine
+- [36:27.060] because our permitting framework
+- [36:29.110] and our litigation framework have been so onerous.
+- [36:32.020] Mining in the United States has been perceived
+- [36:33.620] as a dirty old-world industry.
+- [36:35.760] So we haven't had enough young people
+- [36:37.100] choosing mining as a career.
+- [36:38.900] And we only graduate something like 200
+- [36:41.440] to 250 mining engineers annually.
+- [36:43.910] Not good for a country of 340 million people
+- [36:46.260] facing a critical problem.
+- [36:48.520] But I'm proud to say that under President Trump's leadership.
+- [36:51.180] We in the United States have done a complete 180
+- [36:53.110] and again made mining a priority industry
+- [36:55.220] for our national development.
+- [36:57.230] Because as all of you hopefully understand,
+- [36:59.600] minerals are the elemental building blocks
+- [37:01.860] of everything we need for our manufacturing sector
+- [37:05.150] as we re-industrialize our country.
+- [37:07.860] So what are we doing in the United States
+- [37:09.230] to fix the problem? Broadly, four key initiatives.
+- [37:13.360] We're investing in mining projects.
+- [37:15.710] We're stockpiling minerals.
+- [37:17.810] We're going to protect our mining companies.
+- [37:20.120] And we're rebuilding our mining ecosystem.
+- [37:22.860] To start, we're investing heavily
+- [37:24.430] in mining-specific projects,
+- [37:26.160] like recent deals with MP Materials,
+- [37:28.710] Lithium Americas, Korea Zinc, Moden, and many, many others.
+- [37:33.840] I believe over the next few years,
+- [37:35.770] the United States government between debt and equity
+- [37:38.110] will deploy hundreds of billions of capital
+- [37:39.940] into the mining sector to get projects going.
+- [37:42.600] We are quite frankly doing things
+- [37:44.130] the American government has never done before,
+- [37:46.340] like equity investing.
+- [37:47.830] So we can get deals to pencil quickly and move forward.
+- [37:51.090] We've created public-private minerals investment funds,
+- [37:54.010] like our Critical Minerals Consortium with Orion Resources
+- [37:56.780] and another partnership with TechMet.
+- [37:59.190] Investment is an area of great potential for collaboration
+- [38:02.430] with your governments as we look to jointly develop
+- [38:04.870] mining projects with partners around the world.
+- [38:08.310] Second, we've begun stockpiling minerals.
+- [38:10.980] President Trump and Vice President Vance
+- [38:12.600] convinced Congress to give us $2 billion over the summer.
+- [38:15.660] To stockpile minerals in our national defense stockpiles.
+- [38:18.800] That's the largest investment we've made
+- [38:20.820] in our defense stock piles since the Cold War ended.
+- [38:23.410] And just two days ago,
+- [38:24.650] the president announced Project Vault,
+- [38:26.780] the creation of a national
+- [38:28.130] strategic critical minerals reserve,
+- [38:30.440] a $12 billion vehicle under our export import bank.
+- [38:33.880] This is the first time in the history of the United States
+- [38:35.990] we've ever stockpiled minerals for our civilian economy
+- [38:40.100] to protect our commercial industry and insulate them
+- [38:42.370] from the painful effects of supply shocks.
+- [38:46.190] We're going to protect our mining companies.
+- [38:48.590] We know the mining industry has a problem with commodity pricing
+- [38:51.990] caused by strategic dumping and overproduction.
+- [38:54.920] Returns in the mining sector, quite frankly,
+- [38:56.970] have not been good enough over the last 30 years,
+- [38:59.540] at least partially due to this problem.
+- [39:02.860] This is a key part of what we want to talk
+- [39:04.480] to you all about today.
+- [39:06.030] The current state of affairs in which commodity prices
+- [39:09.420] are kept low for geostrategic reasons through overproduction
+- [39:12.970] is damaging to minerals producing nations.
+- [39:15.530] By reducing the value of your assets and your tax receipts,
+- [39:19.510] and it's equally damaging to consuming nations
+- [39:22.160] by harming your national and economic security.
+- [39:25.150] The current system doesn't make sense for any of us,
+- [39:28.360] but with coordinated global action,
+- [39:30.200] as described by the Vice President,
+- [39:31.830] we can fix this problem in a way that will be better
+- [39:34.380] for both producers and consumers of minerals.
+- [39:37.940] And lastly, we are fixing our mining ecosystem
+- [39:40.100] in the United States.
+- [39:41.600] I mentioned earlier in my remarks
+- [39:43.050] that S&P reported 29 year timelines
+- [39:46.090] to develop an average mine in the United States.
+- [39:48.680] This is completely unacceptable to President Trump
+- [39:50.820] and Vice President Vance
+- [39:52.430] and will not continue under their watch.
+- [39:54.730] Our leadership have made mining a priority sector
+- [39:56.850] for our country again.
+- [39:58.550] We have a federal permitting priority list
+- [40:00.670] that has practically never been used for mining projects before.
+- [40:03.880] It's like concierge service for federal permitting.
+- [40:06.550] In just the last few months,
+- [40:07.830] we've added more than 50 projects to this list.
+- [40:10.610] We have torn apart and rewritten our federal regulations.
+- [40:13.650] And we can now get full environmental impact
+- [40:15.420] statements done,
+- [40:16.650] the most burdensome part of our permitting process
+- [40:18.700] in less than a month.
+- [40:20.580] Our goal is that the United States, again,
+- [40:21.990] becomes a very attractive place for the mining sector
+- [40:24.790] because we intend to mine here
+- [40:26.060] and we intend a process minerals here as well.
+- [40:28.530] So, four key initiatives.
+- [40:30.380] We're investing, we're stockpiling,
+- [40:32.280] we're going to protect our mining companies
+- [40:34.350] and we're fixing our mining ecosystem
+- [40:36.130] because this industry is so important to our
+- [40:37.910] national development as I know it is to your countries as well,
+- [40:41.280] But most importantly, under President Trump's leadership
+- [40:43.930] we are no longer standing around admiring the problem.
+- [40:47.120] We're not spending our time writing 200-page book reports
+- [40:50.030] about how important critical minerals are.
+- [40:52.270] We have a plan, and we're focused on project execution,
+- [40:55.780] getting deals done, getting companies their permits,
+- [40:58.540] stockpiling minerals,
+- [40:59.930] and hopefully moving forward with all of you,
+- [41:01.720] our international partners, to protect our mining companies
+- [41:05.100] and to rebuild global mining in a fair and balanced way.
+- [41:08.470] So we very much appreciate your time and the distances
+- [41:10.570] you traveled to be with us here in Washington.
+- [41:12.850] We look forward to discussion, and most importantly,
+- [41:15.170] we look forward working with all of you
+- [41:16.530] to make the global mining industry great again.
+- [41:18.540] Thank you.
+- [41:21.090] Unidentified: Thank you, Secretary Rubio,
+- [41:22.380] for your truly historic leadership
+- [41:23.950] on this critical issue.
+- [41:25.600] And thank you, State Minister Horii and Senior Director Copley
+- [41:28.440] for kicking off our ministerial.
+- [41:30.360] I would like to ask press to depart the room
+- [41:32.460] before we begin plenary session one.
+- [41:34.370] Thank you.

@@ -1,0 +1,731 @@
+<!-- source: https://www.youtube.com/watch?v=59BCgv9v87U -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 59BCgv9v87U -->
+<!-- date_published: 2025-10-20T21:00:45+00:00 -->
+<!-- date_accessed: 2026-06-02T02:43:10.675077+00:00 -->
+
+# Transcript: President Trump Participates in a Visit with the LSU and LSU Shreveport Baseball Champions
+
+- [00:13.610] Announcer: Ladies and gentlemen,
+- [00:14.930] the President of the United States,
+- [00:17.050] accompanied by LSU Tigers Head Coach, Jay Johnson,
+- [00:20.550] and LSU Shreveport Pilots Head Coach Brad Neffendorf.
+- [00:25.260] ♪ (Hail to the Chief) ♪
+- [00:54.310] The President: What a good-looking group of people.
+- [00:56.050] Wow, that's great. Two pretty good coaches, right?
+- [00:59.280] Absolutely. I'd say so. A lot of good coaches up here.
+- [01:01.930] Well, I want to thank you. It's a special --
+- [01:04.510] it's a place to me, a special state.
+- [01:06.960] As you know, we won it by, what,
+- [01:08.700] 36 points to some ridiculous numbers like that.
+- [01:11.550] And so, when I was asked to do this,
+- [01:13.810] I said, this is my honor.
+- [01:15.090] Please sit down. We'll have a little fun.
+- [01:16.770] Okay? Thank you all very much. Great group of people.
+- [01:22.810] This place is crowded. You get a lot of fans.
+- [01:27.600] Who do you think is going to make it into the Major Leagues?
+- [01:30.800] Raise your hand if you think that.
+- [01:34.780] I guarantee a lot them when you hear
+- [01:36.620] about their records and their conquests.
+- [01:38.640] I want to just begin by saying that we're joined today
+- [01:43.200] two collegiate championship baseball teams
+- [01:45.640] from the great state of Louisiana.
+- [01:48.110] Two teams that were absolutely the top.
+- [01:51.770] Both of these teams brought incredible pride
+- [01:54.070] and grit and glory to their schools with the state.
+- [01:57.550] And today, they're bringing that same Louisiana spirit
+- [02:01.290] to a place called the White House.
+- [02:02.640] Has anyone heard of it, huh?
+- [02:04.750] (applause)
+- [02:09.820] You know, we're building right behind us.
+- [02:11.980] We're building a ballroom.
+- [02:13.630] They've wanted a ball room for 150 years,
+- [02:16.530] and I'm giving that honor to this wonderful place.
+- [02:19.240] I think we should do it.
+- [02:20.440] This was the ballroom, and this room holds 88 people.
+- [02:24.800] And the new one will hold 999 people, which is a difference.
+- [02:29.040] I say 999 because I didn't want to crack a thousand.
+- [02:31.680] I didn't want people to get concerned
+- [02:33.560] because that's getting big.
+- [02:34.830] But we're going to have the most beautiful ballroom
+- [02:37.300] in the country.
+- [02:38.520] It's going on-- for those that are interested,
+- [02:41.410] we got to get back to baseball. But you see the gold drapes?
+- [02:44.350] That's a knockout panel. We knock it in, you go --
+- [02:47.610] that comes out, and then you have, essentially,
+- [02:50.450] glass and exactly in the decor of the White House.
+- [02:53.680] I didn't know I'd be standing here right now,
+- [02:55.170] because right on the other side,
+- [02:57.040] you have a lot of construction going on,
+- [02:58.610] which you might hear periodically.
+- [03:00.130] But that's a knock-out panel,
+- [03:02.390] and that goes right into the ballroom.
+- [03:04.990] And the ball room is going to be beautiful.
+- [03:06.580] So you'll have drinks, cocktails,
+- [03:08.780] everything on this floor.
+- [03:10.470] And then they'll say, welcome to dinner.
+- [03:12.440] You walk into the ballroom, Mr. Senators,
+- [03:15.850] and you're going to see a ballroom
+- [03:17.430] the likes of which I don't think will --
+- [03:19.490] I don't think it'll be topped. It'll be -- it'll the finest.
+- [03:22.250] So it's going to be a lot of fun.
+- [03:23.640] It's going be -- and just started.
+- [03:26.720] (applause)
+- [03:28.910] And it just started today, so that's good luck.
+- [03:31.320] We want the same luck that they had and the same talent.
+- [03:35.310] But I'm thrilled to welcome the 2025 NCAA
+- [03:39.820] College World Series champions. That's pretty good.
+- [03:43.490] The Louisiana State University Tigers.
+- [03:45.780] So, where are you guys?
+- [03:48.300] (applause)
+- [03:54.390] And, of course, we have
+- [03:55.720] the 2025 NAIA Baseball National Champions.
+- [04:00.660] National Champions, the LSU Shreveport Pilots.
+- [04:05.410] So those two teams, you'll hear about them in a second.
+- [04:08.740] (applause)
+- [04:12.190] And I want to thank the Tigers head coach,
+- [04:14.370] Jay Johnson, who I just met.
+- [04:16.050] These are great coaches who led the team
+- [04:19.080] to its second championship win in just three years.
+- [04:21.760] And also, it's the LSU Shreveport Head Coach,
+- [04:25.770] Brad Neffendorf,
+- [04:27.370] who is the College Baseball Foundation's
+- [04:30.210] 2025 Coach of the Year. Not bad.
+- [04:35.210] (applause)
+- [04:42.810] I think we should bring them into government.
+- [04:45.650] They don't need the baseball.
+- [04:46.890] We can bring them in to government.
+- [04:49.020] We could definitely use it. We're also honored to be joined
+- [04:52.750] by the incredible duo from Louisiana,
+- [04:55.730] Speaker Mike Johnson. As you know, Mike is phenomenal.
+- [04:59.460] The job he's doing is phenomenal,
+- [05:01.740] and House Majority Leader Steve Scalise,
+- [05:04.810] a very brave man, very brave man.
+- [05:07.550] (applause)
+- [05:12.100] Two great guys. You know, Steve is very brave, though.
+- [05:15.470] He was badly hurt, and they put him at second base.
+- [05:19.080] Did you ever hear of Bobby Richardson?
+- [05:21.360] He had great depth. He had a great range.
+- [05:23.700] He could go all over.
+- [05:25.130] He was with the Yankees for many years.
+- [05:26.790] And, I don't know, he came from around your area,
+- [05:28.930] I think, Bobby Richardson.
+- [05:30.190] He was second baseman for the Yankeys for many years.
+- [05:33.510] So, he was known for unbelievable --
+- [05:35.670] he could field balls at shortstop when they were hit.
+- [05:38.760] He was great.
+- [05:40.340] And when Steve was so badly injured,
+- [05:43.160] you know about that, nobody ever really suffered like that.
+- [05:47.680] We thought he was a goner, actually.
+- [05:49.150] I went to the hospital that night.
+- [05:50.500] But he came back, and a few months later,
+- [05:52.650] he's standing at second base,
+- [05:54.700] and he was having a hard time moving.
+- [05:57.320] I wouldn't say he had Bobby Richardson's range.
+- [05:59.710] Do you agree with that?
+- [06:01.400] And he was having a little bit of a hard time,
+- [06:03.030] he was coming' out.
+- [06:04.230] It was just really a very bad experience for him.
+- [06:07.620] So he's standing in the stadium over here,
+- [06:09.480] the Washington Stadium, and a ball is smashed to him.
+- [06:13.310] The first pitch of the game, he's at second base,
+- [06:16.260] and he wasn't looking to be a hero.
+- [06:19.590] And he dropped to his knees, and he stopped it.
+- [06:22.570] And that was a hard hit. This happened from God.
+- [06:26.510] The first of the pitch of game, it's ripped.
+- [06:29.260] You know what I'm talking about, Mr. Governor.
+- [06:31.660] The ball is ripped to him, hard ground ball.
+- [06:35.370] He falls to his knees and he blocks it.
+- [06:37.700] He grabs it, he throws it to first.
+- [06:40.260] They got him out. Nobody could believe it.
+- [06:42.640] Nobody could belief it.
+- [06:44.120] And they immediately took him out of the game
+- [06:46.060] because there was going to be no way, right?
+- [06:50.110] There was no way you were going to top it.
+- [06:51.780] It could only go down from there, right, Steve?
+- [06:54.500] And I said, this is amazing. But it was really something.
+- [06:58.570] We're also pleased to be joined by two wonderful people,
+- [07:03.790] senators, your senators, Bill Cassidy and John Kennedy.
+- [07:06.790] Thank you both for being here. Appreciate it very much.
+- [07:10.560] (applause)
+- [07:12.440] Very, very much.
+- [07:13.680] A lot of good political people in that state.
+- [07:16.450] It's been known for politics, I think.
+- [07:18.060] I would say politics, baseball, and football.
+- [07:20.740] A little bit of football, too, right?
+- [07:23.010] Representative Julia Letlow. Julia. Hi, Julia. How are you?
+- [07:28.790] (applause)
+- [07:30.580] Louisiana Governor Jeff Landry,
+- [07:32.520] who we had a lot of luck with, right?
+- [07:35.640] You won that campaign. It was beautiful.
+- [07:38.300] And his wife Sharon. Thank you very much.
+- [07:39.980] Hi, Sharon. Nice to see you, Sharon,
+- [07:42.270] and all of the other Louisiana fans and politicians.
+- [07:45.740] You have so many political leaders.
+- [07:47.150] I want to just thank you all for being here.
+- [07:49.340] It's a great tribute to this team,
+- [07:51.550] to these two great teams.
+- [07:53.200] Very rare that you have two teams in one room.
+- [07:55.970] You might have them, but they're not from the same state.
+- [07:58.110] What is it with baseball?
+- [07:59.990] What is that, Coach? What do you figure that is?
+- [08:02.530] Just has it, right? Pretty good. I tell you, it's pretty amazing.
+- [08:05.830] Two amazing seasons, two incredible teams to celebrate.
+- [08:09.600] So, let's start with the Tigers, okay?
+- [08:12.850] Throughout their 2025 season, the LSU Tigers delivered
+- [08:16.580] some of the most electrifying moments
+- [08:18.750] in the history of college baseball
+- [08:20.910] and ended with a phenomenal record of 53 wins
+- [08:24.910] and just 15 losses. That's pretty good.
+- [08:27.490] I'd like to have that in the major leagues.
+- [08:29.820] You finished the year with an eight-game win streak
+- [08:32.460] and a two-game series sweep against Coastal Carolina
+- [08:36.390] in the College World Series finals to take the title.
+- [08:40.440] That's the eighth national baseball title in LSU history.
+- [08:44.700] That's amazing, actually. That's --
+- [08:47.050] (applause)
+- [08:53.080] Now, LSU's pitching staff was the best in the conference,
+- [08:56.200] leading the nation with 760 strikeouts.
+- [09:00.280] Cade Anderson was ranked college
+- [09:02.390] baseball's number one player on the mound.
+- [09:04.730] I would like to represent him.
+- [09:06.120] I'm leaving the White House immediately.
+- [09:08.370] Oh, the money.
+- [09:09.590] Oh, somebody is going to make some -- where is Cade?
+- [09:11.680] Where is Cade. Where are you, Cade?
+- [09:14.730] Come here, Cade.
+- [09:23.400] (applause)
+- [09:26.470] Boy, oh boy, would I like to be doing that, huh?
+- [09:29.690] 180 strikeouts. That's a lot. That's almost a record.
+- [09:34.450] In game one of the championships,
+- [09:36.060] he pitched a complete game shutout,
+- [09:37.990] preventing Coastal Carolina from scoring,
+- [09:40.250] even though they had one of the best offensive teams
+- [09:42.920] in all of baseball,
+- [09:44.170] even a single run they couldn't get.
+- [09:47.020] So it's no wonder he was named the college
+- [09:49.340] World Series most outstanding player, Cade.
+- [09:52.010] Thank you very much, Cade.
+- [09:53.290] And it's great to have you at the White House.
+- [09:54.840] We like winners at the White House, Cade.
+- [09:57.980] (applause)
+- [10:04.490] To advance to the regional championship,
+- [10:06.810] LSU faced Dallas Baptists, supposed to be a great team,
+- [10:11.380] and outfielder Chris Stanfield was, they say, unstoppable.
+- [10:16.740] He built an early game momentum with a second-inning home run,
+- [10:22.210] contributed multiple RBIs, and brought in an additional run
+- [10:25.900] with a sacrifice ground out at the end of the game.
+- [10:29.500] And you ended up winning the game.
+- [10:31.130] So I think your last sacrifice didn't matter too much,
+- [10:33.720] because they won the game 12 to nothing.
+- [10:35.390] That's not too bad. Where are you? Where are you?
+- [10:40.090] (applause)
+- [10:50.340] Speaker 2 So, to advance through the regional championship, LSU,
+- [10:58.590] and if you look at it, LSU has turned out to be named
+- [11:03.320] one of the best teams over the last 10 years,
+- [11:06.030] according to the experts, of which there are many,
+- [11:09.110] but most of them can't play very well, right?
+- [11:12.670] Back in Baton Rouge, you had a tense game-one
+- [11:15.670] on the Super Regional West against West Virginia
+- [11:19.370] with a full court in the fifth inning, a full count.
+- [11:22.970] In the fifth day, the bases were loaded,
+- [11:24.950] and sophomore shortstop Steven Milam
+- [11:28.840] launched the ball deep over right-center field,
+- [11:31.180] securing a grand slam
+- [11:32.590] and adding four runs to the numbers already up.
+- [11:36.100] Substantially, West Virginia began to mount
+- [11:38.520] to come back in the sixth, but.
+- [11:40.390] Josh Pearson smashed another Grand Slam over the wall,
+- [11:44.140] carrying the Tigers to victory. So, Josh, where are you?
+- [11:47.670] And where are -- let's see, Maloum.
+- [11:49.910] Maloume, where is Maloune?
+- [11:52.640] (applause)
+- [12:01.830] These guys have very strong hands,
+- [12:03.470] I'm noticing, you know.
+- [12:05.100] They're ripping me -- they're ripping my hand up.
+- [12:09.140] These are strong people.
+- [12:10.930] You don't hit those home runs without strong, beautiful hands.
+- [12:13.880] You agree with that, Mr. Speaker?
+- [12:15.200] How was your baseball?
+- [12:16.490] Okay, not bad. Not quite as good.
+- [12:19.390] First baseman Jared Jones had one of the most iconic outings
+- [12:23.320] of the season during the June 14th --
+- [12:25.540] my birthday -- College World Series.
+- [12:27.580] Thank you very much. Thank you. Flag Day.
+- [12:29.750] That was Flag Day, you knew that, right?
+- [12:32.270] Against the Arkansas Razorbacks.
+- [12:34.080] After knocking a home run out of the park earlier in the game,
+- [12:37.720] Jared walked up to the plate in the bottom of the ninth
+- [12:41.080] with two outs, and the score was tied.
+- [12:43.850] And they looked like he could be in trouble.
+- [12:46.470] And a runner was in second with a 2-1 count.
+- [12:49.040] He hit a line drive up the middle,
+- [12:51.180] giving the Tigers enough time to rack up a sixth run,
+- [12:54.410] sending them straight to the finals.
+- [12:56.210] And the rest is history. You know what happened.
+- [12:58.730] Ten players of this elite squad are now headed
+- [13:02.460] to even greater glory in the Major League Baseball,
+- [13:04.940] I think you're going to do all right.
+- [13:06.320] I would like to represent every single one.
+- [13:09.210] No, I mean, the team must be incredible.
+- [13:11.670] Cade Anderson was drafted by the Seattle Mariners,
+- [13:14.590] so I think, aren't they playing a big game tonight
+- [13:17.780] or something like that?
+- [13:19.010] Are you going to be watching that?
+- [13:20.680] Cade, I think so. You better be watching.
+- [13:23.950] I'm so busy, I don't get to watch baseball too much.
+- [13:26.130] I did watch the other night, however.
+- [13:27.650] I turned on and there happened to be a Japanese player
+- [13:30.240] who was not bad.
+- [13:33.330] He was one of the best pitchers I've ever seen,
+- [13:35.250] one of best hitters I've every seen.
+- [13:37.340] And that all makes for a nice contract.
+- [13:39.220] He's pretty good, right?
+- [13:41.230] Pretty amazing when you think they say
+- [13:42.820] one of the best games ever played
+- [13:44.290] because you had pitching and hitting at this
+- [13:45.890] with the same guy. Pretty exciting.
+- [13:48.160] Chase Shores was drafted by the Los Angeles Angels.
+- [13:52.690] Where's Chase? Where's Chase? Good. Nice big tall guy.
+- [13:57.900] (applause)
+- [14:02.560] Anthony Ironson and Jacob Mayors
+- [14:05.950] were drafted by the Boston Red Sox.
+- [14:09.030] Boy, you have good -- where is Anthony?
+- [14:10.790] Is Anthony here? Anthony, right here?
+- [14:13.270] Good luck, huh? Good team. Good team.
+- [14:16.780] (applause)
+- [14:18.100] And Ethan Frey was drafted by the Houston Astros.
+- [14:22.100] So it's another good team. They win a lot, right?
+- [14:24.920] Where is he? Where is that guy? Good luck. You feel confident?
+- [14:31.720] Daniel Dickerson was drafted by the Milwaukee Brewers.
+- [14:35.860] Where's Daniel? Congratulations. Good luck, huh?
+- [14:39.870] (applause)
+- [14:42.290] Jared Jones was drafted by the Pittsburgh Pirates.
+- [14:46.520] (applause)
+- [14:51.570] And Cade Woods, who's not present,
+- [14:55.230] who wanted to be here so badly, had a problem,
+- [14:57.570] was drafted by the Atlanta Braves.
+- [14:59.570] That's fantastic. I mean, that's a lot of talent.
+- [15:03.940] By the way, we have somebody here
+- [15:05.310] who was drafted in another sport, number one in everything.
+- [15:09.100] He was never drafted number two or three.
+- [15:11.920] The great Herschel Walker is here, I understand.
+- [15:14.680] Where's Herschell?
+- [15:15.880] (applause)
+- [15:17.090] Where's Herschell? Come here. Come here, come here. Come here.
+- [15:27.900] I'm not sure that LSU loves this guy.
+- [15:31.830] But they do respect him.
+- [15:33.150] There's nobody like -- come here.
+- [15:35.090] You want to say a couple of words about baseball players?
+- [15:37.680] Go ahead.
+- [15:41.970] Herschell Walker: You know, I absolutely love this president,
+- [15:44.040] but I didn't ask him to put me on the spot.
+- [15:46.230] But anyway, I just want to just tell the players,
+- [15:49.720] continue to have that determination
+- [15:52.580] that you had in baseball, carry it throughout your life.
+- [15:55.560] Because things may get tough,
+- [15:56.880] but remember, you can always get up,
+- [15:58.160] no matter whatever happens, get up and continue to fight,
+- [16:01.360] fight, fight, all right?
+- [16:04.260] (applause)
+- [16:11.400] The President: So, Conor, well, thanks, Herschel.
+- [16:12.980] What a player he was, huh? Oh, boy. Couldn't stop him.
+- [16:17.570] He'd go around you, but if he couldn't go around you,
+- [16:20.590] because he just was, he'd go right through you.
+- [16:23.380] And he'd carry four guys on his back for as much as he needed.
+- [16:26.100] Nobody better.
+- [16:27.430] I think maybe the best in history in college.
+- [16:30.150] And he had a great career in the NFL, too.
+- [16:32.500] And he's a great person.
+- [16:34.040] And now he's going to be the ambassador.
+- [16:36.570] Come on, name the country, Hershel.
+- [16:39.060] He's going be in the -- tough job.
+- [16:41.750] (applause)
+- [16:46.980] That's a tough job, right?
+- [16:49.200] We'd like to have that job a little bit.
+- [16:52.560] We're leaving tonight.
+- [16:54.790] Conor Ware was drafted by the New York Mets.
+- [16:57.190] Conor, where are you, Conor? Boy, that's a hell of a team.
+- [17:01.180] (applause)
+- [17:03.760] And Luis Hernandez will be joining
+- [17:06.550] the Minnesota Twins organization.
+- [17:08.800] So I just want to congratulate Luis.
+- [17:10.810] Where are you, Luis? Congratulations.
+- [17:13.590] (applause)
+- [17:17.100] I've never seen a team with so many people
+- [17:19.100] being drafted into the Major Leagues.
+- [17:20.830] They cannot be a bad team.
+- [17:22.080] In fact, I think your record should have been better.
+- [17:24.200] You know? That's a hell of a record.
+- [17:30.140] So we also have a second amazing team
+- [17:32.310] with a big win to celebrate today,
+- [17:34.780] the LSU Shreveport Pilots.
+- [17:37.890] This year, the Pilots became the first
+- [17:39.700] and only college baseball team in history
+- [17:41.830] to go a full season totally undefeated.
+- [17:46.110] (applause)
+- [17:51.600] That's not bad.
+- [17:55.180] Well, I want these two teams to play.
+- [17:59.530] Do you want to do it? I'll do it.
+- [18:00.880] We'll get the stadium. I'll pay for it.
+- [18:02.500] What the hell?
+- [18:05.620] But you had an astounding record of 59 wins and no losses.
+- [18:11.440] What the hell is with that?
+- [18:15.010] In baseball, you know, normally you have like a little bad luck,
+- [18:18.080] you lose a game or two. That's pretty good.
+- [18:20.630] You have to say that he did a good job.
+- [18:26.010] Congratulations, two great coaches, two great people, too.
+- [18:28.760] You also became the first team in the history of LSU
+- [18:31.180] Shreveport to bring home a national title.
+- [18:34.350] Head Coach Brad Neffendorf deserves a special recognition.
+- [18:38.430] The pilots have been in every NAIA national tournament
+- [18:42.930] over the past two decades. That's pretty amazing.
+- [18:46.570] But they never brought home the title until Brad came along.
+- [18:50.450] And so, Coach of the Year and all of that stuff,
+- [18:52.530] these two coaches are unbelievable,
+- [18:54.470] the top of the line. And I'll be honest, you know,
+- [18:57.230] I watch Major League Baseball and other sports,
+- [18:59.840] and they keep hiring the same coaches
+- [19:01.390] over and over again, right?
+- [19:02.970] They get fired, and they hire them again.
+- [19:05.340] I'd hire these two guys,
+- [19:07.390] but I don't want to take them away from your school,
+- [19:09.300] so I'm only kidding. Just pretending.
+- [19:11.700] I'll end up, you'll all leave, say, that was terrible.
+- [19:13.860] You know, they'll both be hired.
+- [19:15.750] I'll tell you what, they do a great job, too.
+- [19:17.630] During the Red River Athletic Conference
+- [19:19.760] Awards, 14 members of the Pilots team
+- [19:21.990] received all conference team honors,
+- [19:24.430] and six players were selected
+- [19:25.990] Gold Glove team for excellent defense, I can imagine.
+- [19:29.430] Isaac Rody was named Conference
+- [19:32.500] Picture of the Year for a crushing league
+- [19:34.440] with, think of this,
+- [19:35.650] a 12-0 record and 114 strikeouts.
+- [19:39.250] How about that? 12-And-0 is not bad.
+- [19:41.850] And Kobe Reeves, a left-handed pitcher
+- [19:45.200] was honored as the conference's newcomer of the year.
+- [19:48.350] So, where are you two guys?
+- [19:51.050] (applause)
+- [20:06.020] That's a fantastic thing.
+- [20:07.350] This team fought hard all the way
+- [20:08.950] through the last game of the season,
+- [20:10.810] the NAIA National Championship against Southeastern University,
+- [20:16.290] which supposedly is a great opponent.
+- [20:19.240] And your, frankly, opponents quickly took the lead
+- [20:22.950] in the first two innings.
+- [20:25.070] But you refuse to fold or quit or do the thing that we're used
+- [20:29.970] to seeing a lot of people do in Washington.
+- [20:32.560] They quit. They fold. We don't fold, do we, huh?
+- [20:35.500] We don't fold.
+- [20:36.980] Jose Saloran, who is supposed to be
+- [20:41.020] a terrific prospect for the future, drove in two.
+- [20:44.130] And Anthony Swenda scored on a wild pitch,
+- [20:47.900] and the next inning, the game was tied.
+- [20:49.750] Where's Anthony? Is he here? Anthony, good going.
+- [20:52.370] Come here, Anthony. Get over here.
+- [20:55.430] (applause)
+- [21:02.710] Southeastern pulled ahead again,
+- [21:04.340] but the pilots answered in a thunderous fashion.
+- [21:06.980] Home runs by Jackson Searing and Ian Montz.
+- [21:11.730] And they say they're tremendous prospects also.
+- [21:15.280] And clutch RBIs from Ryan Davenport and Austin Gohm
+- [21:19.820] turned the tide very quickly.
+- [21:21.460] By the 8th inning the pilots were in full command,
+- [21:23.830] adding three more runs before slamming the door shut.
+- [21:27.650] When it was over, the scoreboard read 13 to 7,
+- [21:30.480] and the Iilots were national champions.
+- [21:32.270] Wow, that's great, fellas.
+- [21:34.400] (applause)
+- [21:39.810] So, together, how about the record
+- [21:41.580] of these two teams together?
+- [21:43.080] You know, you put them together, you win --
+- [21:45.730] I think you win the World Series period.
+- [21:48.670] A lot of you are going to be in Major League Baseball.
+- [21:50.800] We'll be watching you for a long time to come,
+- [21:53.030] and it's amazing. Great athletes.
+- [21:54.660] Great-looking young, wonderful people.
+- [21:58.030] Together, these teams made history
+- [21:59.800] and won Louisiana's unparalleled glory
+- [22:02.510] on the college baseball diamond,
+- [22:04.930] dominating not one but two leagues in a single year.
+- [22:08.310] Think of that, you dominated each league, you dominated.
+- [22:11.510] It's pretty unheard of.
+- [22:13.200] But there is something about your state.
+- [22:14.740] You're a really special state.
+- [22:16.990] And when you look at the kind of love here,
+- [22:20.010] you get a lot of the parents here
+- [22:21.510] that are so proud of what they have produced.
+- [22:24.670] Some of them are thinking about dollar signs.
+- [22:26.620] They're saying to others, they're just saying,
+- [22:29.150] how handsome is my son, right?
+- [22:31.840] But regardless, I just think it's amazing.
+- [22:34.200] It's a great tribute to the state.
+- [22:36.170] And I want to introduce now,
+- [22:37.400] to say a few words, another winner.
+- [22:38.940] He's taken over a situation where we had a majority of two.
+- [22:42.750] Nobody knows what a majority two.
+- [22:44.400] We actually had a couple of moments
+- [22:46.620] where we were a majority of one person.
+- [22:50.510] And I said, you know, and it was terrible
+- [22:52.430] that I said this, but I said it.
+- [22:54.210] I said Speaker, we're one heart attack
+- [22:57.220] away from losing the majority, right?
+- [23:00.210] And the Speaker said, please, I don't want to think about that.
+- [23:04.000] But we hung in, right, Steve?
+- [23:05.480] We hung in and we got everything we wanted.
+- [23:08.040] The great, big, beautiful deal. The biggest ever produced.
+- [23:12.030] Think of it with a majority of, I guess at that time,
+- [23:14.130] we were like a majority of four,
+- [23:16.540] and I had to make calls at 3;00 in the morning, 4:00.
+- [23:19.840] You don't want to do this, fellas.
+- [23:21.160] Just keep playing baseball. It's more fun.
+- [23:24.120] I got a call from the Speaker. Sir, we have seven hard nos.
+- [23:28.930] And I'd say that's not good. This was at 3:00 in the morning.
+- [23:32.130] And we needed the vote by early in the morning.
+- [23:35.420] And I had to call people at 3:00 in the morning,
+- [23:38.130] 4 :00in the morning, and say, Jim.
+- [23:40.440] He'd say, You have my vote, sir. Oh, I thought he was a hard no.
+- [23:43.380] He just wanted me to call him. Then I'd call another one.
+- [23:48.030] Hi, Jack. It's 3:14 in the morning.
+- [23:50.710] Hi, Jack. Sir, you have my vote. Oh.
+- [23:54.170] So the hard no's turned out not to be that hard, John.
+- [23:56.910] They just wanted me to call them, you know?
+- [23:59.640] They couldn't just raise their hand like they're supposed to.
+- [24:02.440] They wanted me to call. And we ended up winning,
+- [24:05.280] and it's the single biggest bill
+- [24:09.890] ever passed in the history of Congress,
+- [24:13.000] because we ultimately got the Senate too.
+- [24:17.070] (applause)
+- [24:19.120] What we don't want to say
+- [24:20.330] is that it's actually so full of things.
+- [24:22.800] I mean, no tax on tips, no taxes on Social Security,
+- [24:26.090] no tax on overtime, the biggest tax cut in history,
+- [24:30.040] the biggest deductions ever taken,
+- [24:31.960] job-producing deductions, $50 billion to rural hospitals.
+- [24:37.760] We took care of Medicaid, Medicare. We took of everything.
+- [24:41.440] And we did something that people didn't know.
+- [24:43.500] We didn't where we'd stand in a year or two years from now.
+- [24:47.340] So we put every single thing that we wanted in that bill
+- [24:50.900] for four years. So we don't need any more votes.
+- [24:54.740] All we want to do is have a vote of continuation.
+- [24:58.900] And it's the first time in history
+- [25:00.610] that a group has not voted for continuation.
+- [25:04.220] So they have what's called a Trump derangement problem.
+- [25:08.410] Have you heard about that problem?
+- [25:10.320] Because that's the only reason this could be possible.
+- [25:13.060] But I think we're doing very well.
+- [25:14.530] I think they're going to have no choice but to go along
+- [25:17.450] because the country is setting records in every way,
+- [25:19.810] and people want it to continue that way.
+- [25:21.590] So we're hoping the Democrats become much less deranged
+- [25:26.460] and that we will get the vote pretty soon.
+- [25:29.020] And I hear they're starting to feel that way, too.
+- [25:31.060] They're starting feel like they really have to do
+- [25:33.380] what's right for the country, and they will.
+- [25:35.280] But I want to just introduce Speaker of the House,
+- [25:38.190] Mike Johnson. He's fantastic. Thank you.
+- [25:41.360] (applause)
+- [25:47.510] Speaker Johnson: Thank you, Mr. President.
+- [25:48.790] I'll be very brief.
+- [25:50.010] We want to thank you for being such a gracious host
+- [25:52.530] and having us out to recognize this excellence
+- [25:54.990] and it really is Louisiana's punching way
+- [25:57.170] above our weight limit.
+- [25:58.480] And this is the proudest state right now.
+- [26:00.960] These guys behind me, they work so hard
+- [26:03.390] and they did it with class. Mr. President.
+- [26:05.590] They had grit and determination and integrity
+- [26:08.100] and it's so good to see that pay off.
+- [26:10.090] And Louisiana's a as you said a special state
+- [26:12.960] filled with great people, great fan base,
+- [26:15.030] the parents are part of that.
+- [26:16.630] You have the Board of Supervisors
+- [26:18.250] and the Board over the LSU system.
+- [26:20.220] And we recognize South and North Louisiana
+- [26:23.340] delivering these great titles, great championships,
+- [26:26.050] and it's really been something.
+- [26:27.280] And we want to thank you for your tremendous record
+- [26:29.470] and all you're doing right now.
+- [26:30.850] I mean, this president has not only reduced taxes,
+- [26:33.760] as we said, we've cut fraud,
+- [26:35.460] waste and abuse out of government.
+- [26:36.690] He solved the border crisis. He's solving the crime crisis.
+- [26:39.070] Oh, that's right, he's also resolving wars around the world,
+- [26:43.030] but he still takes time. That's right.
+- [26:46.140] (applause)
+- [26:53.650] He still takes time to recognize the leaders
+- [26:55.570] of the next generation,
+- [26:56.790] and that means so much to all of us.
+- [26:58.000] I know it does.
+- [26:59.210] I have a personal connection to both schools, sir.
+- [27:00.820] You know, I'm a double alum from LSU in Baton Rouge,
+- [27:03.330] undergrad in law school. My daughter's the same.
+- [27:05.080] She's sitting here with me, Hannah.
+- [27:06.650] But I grew up in the shadow of LSU,
+- [27:08.590] as literally just south of the campus.
+- [27:09.990] We lived in a little neighborhood there,
+- [27:11.330] and I used to go play baseball in the field
+- [27:12.710] over there at the school,
+- [27:13.960] so this really runs deep for all of
+- [27:17.110] and it means so much to us.
+- [27:18.360] It means so much to us that you're here to help celebrate.
+- [27:21.950] I get the honor of introducing the first of the two coaches
+- [27:24.620] to speak and both of these men are extraordinary.
+- [27:27.320] Their records speak for themselves,
+- [27:29.200] the way they've led these young guys,
+- [27:30.940] the way that they've shown them the way.
+- [27:33.390] I love the demeanor of both of these gentlemen
+- [27:35.460] and how they do it. They're extraordinary coaches
+- [27:37.170] and they could coach in the majors, you're right.
+- [27:38.710] But we hope they stay where they are for
+- [27:40.030] just a little while longer.
+- [27:42.020] But I'm going to recognize the first one here
+- [27:44.730] and there's a lot of reasons why Coach Jay Johnson
+- [27:48.080] is recognized as one of the greatest coaches.
+- [27:50.320] Because he does so well.
+- [27:51.670] He has all-star recruiting classes
+- [27:54.310] Because he's able to go out and do that so well
+- [27:56.520] he has elite pitching development.
+- [27:58.510] He's had an incredible record of postseason
+- [28:00.840] success as you all know
+- [28:02.290] and as was noted he's brought home
+- [28:04.150] not one, but two titles in three years to LSU
+- [28:07.430] which is a historic legacy that we have.
+- [28:10.290] I was there in the 90s when we were winning these things
+- [28:12.250] and it's great to be doing it again.
+- [28:14.160] The seventh and eighth national titles now delivered
+- [28:18.520] by one of our favorite people, and we're delighted,
+- [28:20.720] I'm delighted to welcome him, let him say a few words,
+- [28:22.340] if we all, Coach Jay Johnson, thank you so much.
+- [28:25.790] (applause)
+- [28:31.910] Jay Johnson: Mr. President,
+- [28:33.230] thank you for having us in your home.
+- [28:34.730] I think the main thing I take away from you is work ethic.
+- [28:38.440] Some we preach and nobody works harder for America than you.
+- [28:41.460] So thank you setting a good example.
+- [28:43.620] (applause)
+- [28:48.460] Mr. Speaker, Mr. Leader,
+- [28:49.780] thank you so much for getting us here.
+- [28:53.440] It's an honor. It's a honor of a lifetime to be in the house
+- [28:57.570] of the greatest country in the world.
+- [28:58.920] And these guys had to do it on the field to make that happen,
+- [29:01.950] but we're here because of your efforts.
+- [29:03.670] And to have Louisiana so well represented
+- [29:06.510] by you two is outstanding.
+- [29:08.580] We are the college baseball capital of the world for 2025,
+- [29:15.290] well represented in Washington as well.
+- [29:17.700] (applause)
+- [29:19.360] Governor Landry here,
+- [29:20.630] we're coming to your house tomorrow night,
+- [29:22.120] and we're really fired up about that.
+- [29:23.710] So thank you for having us. It's awesome.
+- [29:26.750] About 34 games into the year last year,
+- [29:29.920] I just started telling these guys
+- [29:31.240] I could coach this team forever.
+- [29:33.120] And I could do it because they embodied our mission
+- [29:35.710] and our mission for the season last year
+- [29:37.160] was tough and together.
+- [29:38.790] To have the mental toughness to no matter the circumstances,
+- [29:42.410] keep your head execute your job at the highest level.
+- [29:45.440] They were the best in the country at that.
+- [29:47.500] And then the togetherness.
+- [29:48.710] You heard about all the draft picks.
+- [29:50.510] All these guys have their entire lives and world
+- [29:52.520] in front of them, but they made it about winning.
+- [29:54.160] They made it LSU, and they made about the team.
+- [29:57.480] And there's the honor of my lifetime
+- [30:00.050] to coach this national championship team
+- [30:02.090] and to be the coach at LSU.
+- [30:04.090] So I want to thank my team on this national stage
+- [30:06.770] because not only were they the national champions,
+- [30:08.920] they're the best baseball team in America last year.
+- [30:11.090] So thank you guys.
+- [30:13.550] (applause)
+- [30:20.070] Jay Johnson: I thought we did well,
+- [30:21.350] but this man did pretty well at 59 and zero,
+- [30:24.660] so I'm going to turn it over to him.
+- [30:26.180] Coach Neffendorf, great job,
+- [30:27.790] and it's an honor to share this stage
+- [30:29.540] with you and your championship team as well.
+- [30:33.230] (applause)
+- [30:42.780] Brad Neffendorf: First off,
+- [30:44.260] I want to speak on behalf of our university administration
+- [30:47.650] and our athletic department for such a wonderful day.
+- [30:51.510] And our coaching staff and our players,
+- [30:53.570] which we are recognizing here today,
+- [30:56.360] we're extremely honored to be here, excited.
+- [30:59.610] And I know our guys have been jacked up about it,
+- [31:02.050] not only just for the recognition,
+- [31:03.620] but you guys are recognizing the way
+- [31:04.940] where they get to be together one more time.
+- [31:07.170] And that says that for both teams up here,
+- [31:09.190] and no better way to do that.
+- [31:12.210] I can sit up here and talk to you about our team all day long.
+- [31:15.080] What I can't talk to and it gets tough at times to answer
+- [31:18.080] is how we didn't lose a game.
+- [31:19.800] The only thing that I can set up here and talk you about
+- [31:22.350] is what they did to put themselves in position
+- [31:26.310] to at the end of the year have not lost a game
+- [31:28.070] and won a national title.
+- [31:29.300] There was one word with these guys and it was investment.
+- [31:32.630] They were invested in absolutely everything
+- [31:35.050] that not only that we asked them to do,
+- [31:36.550] but most importantly, they were invested in each other.
+- [31:40.880] We always talk every year when we get these guys
+- [31:42.710] and we get together in the fall
+- [31:44.000] because the roster can turn over and things can reset.
+- [31:48.820] How quick can we become a team?
+- [31:50.610] And there's rosters out there that don't become teams.
+- [31:52.610] And this group went from a roster to a team
+- [31:55.380] so incredibly quick,
+- [31:57.060] it made the lives of us coaching staff just that much easier.
+- [31:59.580] We just did what we could to get the heck out of the way
+- [32:01.190] and let them go.
+- [32:03.010] I've never seen a group with the word investment
+- [32:07.550] turn over to a word called impact.
+- [32:09.860] With that investment, they impacted so many people
+- [32:13.390] from the university to the city and I can truthfully sit up here
+- [32:15.770] and tell you, they impacted myself
+- [32:17.110] and our coaching staff more than anybody else.
+- [32:20.450] Just like Jay, I want to thank our guys for what they did.
+- [32:23.680] I can't thank them enough.
+- [32:25.520] Just the impact that they had on everybody around them
+- [32:28.890] was truly unbelievable and I,
+- [32:30.140] and I could speak to that's why they put themselves in position
+- [32:33.190] to play for a national title.
+- [32:35.310] You know the one thing that I'm going to --
+- [32:38.120] you know, Jay said it and others,
+- [32:40.060] this isn't about just one program though today.
+- [32:43.300] Obviously LSU, if you think about baseball
+- [32:45.130] in the state of Louisiana
+- [32:46.340] and I have for years, you think of LSU.
+- [32:50.380] Very historic program, built out a lot of success
+- [32:52.680] and what they've been able to do twice in the last three years.
+- [32:57.270] You know you can take what Jay said
+- [32:58.670] and you can add on a lot,
+- [32:59.940] I'm sure what I've said about the word investment
+- [33:01.810] and impact and what not.
+- [33:03.160] To be able to win two in the three years in Division
+- [33:05.300] I baseball in the landscape that we have right now
+- [33:08.770] is incredible to me.
+- [33:10.520] But I can also say when you added
+- [33:11.940] what LSU Shreveport has now done,
+- [33:13.800] my point with this whole thing,
+- [33:15.430] and it goes back to what Jay said as well,
+- [33:17.790] baseball in college,
+- [33:19.090] college baseball right now is in the state of Louisiana.
+- [33:21.710] I don't think there's any better place for what's going on
+- [33:24.840] and how it's going.
+- [33:26.060] So that's how I'll end with what I've got today.
+- [33:28.060] I want to personally thank President Trump,
+- [33:31.260] Speaker Johnson, everybody involved.
+- [33:33.290] We can't thank you enough for having us here.
+- [33:35.670] It's one of the greatest things that, you know,
+- [33:37.230] these guys are ever going to be able to be a part of.
+- [33:39.190] And with that said, we have some gifts
+- [33:40.950] that we would like to present over.
+- [34:09.990] (applause)
+- [34:22.900] ♪ (orchestral "We are the Champions") ♪

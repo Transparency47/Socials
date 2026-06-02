@@ -1,0 +1,2570 @@
+<!-- source: https://www.youtube.com/watch?v=uqcS0XCBKG0 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: uqcS0XCBKG0 -->
+<!-- date_published: 2026-03-24T16:59:41+00:00 -->
+<!-- date_accessed: 2026-06-02T02:36:13.870615+00:00 -->
+
+# Transcript: First Lady Melania Trump Opens the Fostering the Future Together Global Coalition Summit
+
+- [00:03.660] Announcer: Distinguished guests,
+- [00:05.280] please welcome the First Lady of the United States,
+- [00:08.150] Melania Trump.
+- [00:10.610] (applause)
+- [00:29.300] The First Lady: Good morning.
+- [00:31.650] Ambassador Crowley, Ambassador Walz,
+- [00:35.220] Secretary McMahon,
+- [00:37.160] Deputy Secretary Landau, Director Kratzios,
+- [00:41.840] Chairman Ferguson, Special Envoy for the Best Future Generations,
+- [00:46.930] Charles Harder.
+- [00:48.600] Thank you all for being champions,
+- [00:51.440] for fostering the future together.
+- [00:55.590] It is wonderful to receive
+- [00:57.350] such an impressive delegation of world leaders,
+- [01:01.310] first spouses, and be best in class,
+- [01:05.370] tech companies, all with a shared purpose,
+- [01:09.620] to empower our next generation's advancement
+- [01:14.010] in technology and education.
+- [01:17.960] Welcome Albania, Antigua and Barbuda, Aruba.
+- [01:24.740] Bosnia and Herzegovina, Bangladesh, Belize, and Bolivia.
+- [01:32.140] It is my distinct honor to have Burundi,
+- [01:35.630] Cabo Verde, Congo, Costa Rica, Dominican Republic, Ecuador,
+- [01:43.180] Equatorial Guinea, Estonia, France,
+- [01:47.860] Gambia, Georgia, Ghana,
+- [01:51.200] and Guatemala here in Washington D.C.
+- [01:55.440] Greetings Israel, Kenya, Kosovo, Lithuania,
+- [02:01.060] Malta, Malawi, Montenegro, Morocco, Nigeria,
+- [02:07.050] North Macedonia, Palau, Panama, and of course, Paraguay.
+- [02:13.840] Hello Poland, Romania, Senegal, Serbia, Seychelles,
+- [02:20.910] Sierra Leone, Slovenia, St. Kate's and Neve's.
+- [02:26.200] Ukraine and UAE. As people, we dream.
+- [02:33.650] As leaders, we progress. As nations, we will build.
+- [02:40.860] Beginning today,
+- [02:43.020] let's accelerate our new global alliance,
+- [02:47.150] this bond, to positively impact the progress of our children.
+- [02:54.440] Welcome, members, to the inaugural meeting
+- [02:57.200] of Fostering the Future Together.
+- [03:00.200] Our coalition's mission is to empower children
+- [03:03.920] by providing greater access to technology and education.
+- [03:09.240] This is a historic moment in time.
+- [03:15.230] Our key driver, to cultivate the skills young people
+- [03:19.790] need to be successful in this rapidly evolving world.
+- [03:24.860] Fostering the future together will achieve this by creating.
+- [03:28.840] In innovative learning programs,
+- [03:32.060] advocating for supportive education policies,
+- [03:36.180] sponsoring new tech-focused legislation,
+- [03:40.500] and building strong partnerships
+- [03:42.470] between the public and private sectors.
+- [03:46.540] Each of you has a vital role to play
+- [03:49.340] in shaping the TechEd opportunities
+- [03:52.840] for the next generation.
+- [03:56.780] Fostering the Future Together's collaborative platform
+- [04:00.870] will serve as a capability multiplier for members.
+- [04:05.680] This added benefit is derived directly
+- [04:09.220] from our coalition's foundational elements,
+- [04:13.630] AI, education, and global leadership.
+- [04:19.120] Our shared vision prioritized children
+- [04:22.380] about political philosophy, geographical borders.
+- [04:27.380] And local justices. To turn this vision into action,
+- [04:33.760] I invite each of you to participate,
+- [04:36.710] commit to hosting a regional meeting,
+- [04:39.600] conduct a research study, advance new partnerships,
+- [04:45.010] collaborate with another member nation
+- [04:48.010] in your region of the world.
+- [04:52.290] Magic happens in our nation's capital,
+- [04:55.780] particularly when the private and public sectors join forces.
+- [05:01.500] Today's meeting is unprecedented.
+- [05:04.810] I commend America's leading companies
+- [05:07.880] for convening with us today.
+- [05:11.180] Never before have so many tech visionaries
+- [05:14.790] stood before such a large global audience of leaders
+- [05:18.810] in the State Department and the White House
+- [05:23.320] over the two-day period.
+- [05:27.160] Nowhere else could such a concentration of excellent
+- [05:31.810] be assembled from AI pioneers like OpenAI, Volunteer,
+- [05:37.440] and XAI to tech platforms like Google and Meta,
+- [05:42.590] creative engines like Adobe and Microsoft,
+- [05:46.950] plus human connectivity through Zoom communications.
+- [05:53.360] This room is filled with extraordinary human capital.
+- [05:58.020] Leaders, harness it to elevate your children,
+- [06:03.240] to empower your people,
+- [06:05.410] and to accelerate your economies.
+- [06:09.760] Our coalition for leaders will improve our future,
+- [06:14.170] but only by supporting concrete initiatives
+- [06:18.090] that equip young people with the skills and knowledge they need.
+- [06:23.450] Together, let's invest. Expand success.
+- [06:27.640] And create opportunities for education and technology.
+- [06:33.380] I wish everyone great success during fostering the future
+- [06:36.960] together's global coalition summit.
+- [06:40.080] There is much to accomplish over this two-day period.
+- [06:45.020] And this is only the beginning. Thank you.
+- [06:49.010] (applause)
+- [07:47.560] Monica Crowley: Well, good morning.
+- [07:49.530] Good morning, your excellencies. I am Ambassador Monica Crowley,
+- [07:53.670] Chief of Protocol of the United States.
+- [07:56.260] And it is such an honor and a delight for me
+- [07:58.470] to join you here
+- [07:59.880] today in this incredibly important initiative
+- [08:03.360] launched by the First Lady of the United States,
+- [08:05.840] Mrs. Melania Trump.
+- [08:07.960] We are so honored to be joined by first spouses,
+- [08:11.630] distinguished guests, and industry leaders
+- [08:14.570] here at the United States Department of State.
+- [08:17.640] What a delight to hear those opening remarks
+- [08:20.430] from our First Lady, Melania Trump,
+- [08:23.080] who has gathered us all here today
+- [08:25.300] under the auspices of her visionary
+- [08:27.890] Fostering the Future Together initiative.
+- [08:31.220] We now look forward to hearing from all of you
+- [08:34.450] as we kick off our working session.
+- [08:37.280] The working session will be divided
+- [08:39.350] into four different topics.
+- [08:41.890] Artificial intelligence in education, EdTech tools.
+- [08:47.610] Digital literacy and skills and safety and protection online.
+- [08:53.590] We have allotted 20 to 40 minutes for each discussion.
+- [08:58.100] Your moderators will be senior US government officials
+- [09:02.380] who possess leadership and expertise
+- [09:05.310] in today's subject matter.
+- [09:07.620] Subjects, speakers for each subject area
+- [09:10.840] have been identified in advance
+- [09:13.070] and will speak in alphabetical order by country.
+- [09:17.230] If there is a balance of time,
+- [09:19.220] we will move to brief one minute interventions
+- [09:22.740] at the moderator's discretion.
+- [09:25.440] Finally, please make yourselves comfortable here today.
+- [09:29.010] Do not hesitate to take a short break
+- [09:31.680] if you are required to at any point.
+- [09:34.200] Staff is available outside to escort you
+- [09:36.920] to where you may need to go.
+- [09:39.520] I'm now very pleased to kick off this morning session
+- [09:42.850] by welcoming Director of White House Office of Science
+- [09:46.530] and Technology Policy, Mr. Michael Kratzios,
+- [09:50.590] to introduce and moderate our first topic.
+- [09:53.820] Michael.
+- [09:55.110] (applause)
+- [09:59.330] Michael Kratzios: I want to thank First Lady Melania Trump
+- [10:01.740] for hosting today's Fostering the Future
+- [10:04.220] Together Global Summit.
+- [10:06.420] This is a historic convening of dozens
+- [10:08.990] of First Ladies and gentlemen from around the world
+- [10:11.860] at a truly critical inflection point as our nations
+- [10:15.290] navigate the future of children and technology.
+- [10:19.570] As a President's National Science and Technology Advisor,
+- [10:22.340] I work closely with the First
+- [10:24.290] and administration leaders here today.
+- [10:26.530] On policies to ensure America's children
+- [10:29.890] can thrive in the digital age. Just last week, the White House
+- [10:34.390] released a national legislative framework for AI,
+- [10:38.380] which called on Congress to strengthen online
+- [10:40.810] protections for children.
+- [10:43.620] At the same time, we are working to proactively
+- [10:46.360] prepare and empower young people
+- [10:49.120] to fully realize the benefits of AI.
+- [10:53.420] The United States is committed to expanding AI education
+- [10:57.360] in K through 12 schools nationwide.
+- [11:00.830] Our first lady herself has spearheaded
+- [11:03.070] many of our AI education initiatives,
+- [11:05.810] launching the Presidential AI Challenge
+- [11:08.380] and securing hundreds of millions of dollars
+- [11:10.700] in commitments from the private sector
+- [11:13.070] and nonprofits to provide free AI tools
+- [11:16.470] to students, educators, and parents.
+- [11:20.810] We're also working closely with the Department of Education,
+- [11:24.140] the Department Of Energy,
+- [11:25.610] and the National Science Foundation
+- [11:27.470] to invest in and expand AI education programs,
+- [11:31.510] especially those that help teachers learn to teach about AI
+- [11:35.320] at different age-appropriate stages.
+- [11:39.400] The most important thing we can do collectively
+- [11:41.970] to set the next generation up for success
+- [11:45.000] is to prepare them to use, understand, and build AI.
+- [11:50.610] And that starts with K through 12 classrooms.
+- [11:54.530] Every student should learn basic foundational knowledge about AI,
+- [12:00.000] what algorithms are, how machine learning works,
+- [12:03.330] what technology is good for,
+- [12:05.230] and what is it that their limitations are.
+- [12:08.680] Teaching about AI in K through twelve
+- [12:11.250] isn't only about inspiring future STEM leaders.
+- [12:14.990] Every career path will use AI as a tool in some way.
+- [12:18.950] So every child should be able to fully take advantage
+- [12:22.390] of AI applications with confidence
+- [12:24.970] and with responsibility. Recognizing that AI in education
+- [12:29.340] is a pressing issue all around the world,
+- [12:32.330] we very much look forward to the robust discussion insights
+- [12:35.540] that will take place today. Thank you.
+- [12:38.310] (applause)
+- [12:43.050] Monica Crowly: Thank you so much, Mr. Kratios.
+- [12:45.180] OK, let's open our discussion here today.
+- [12:48.540] I would first like to invite the First Lady of Bosnia
+- [12:52.110] and Herzegovina, Mrs. Mirela Bečiukorovic.
+- [12:56.930] Her Excellency, where are you, please, ma'am?
+- [12:59.690] Here. There you are. Please, the floor is yours.
+- [13:05.830] Mirela Bečiukorovic: Respected First Lady Melania Trump,
+- [13:08.550] esteemed First Ladies and gentlemen,
+- [13:11.490] excellencies, distinguished guests,
+- [13:14.570] it is a great honor for me to be here today
+- [13:17.710] and to participate in a discussion
+- [13:19.850] that shapes the future of our children,
+- [13:22.740] artificial intelligence in education.
+- [13:26.270] I thank the First Lady, Melania Trump,
+- [13:29.170] for the invitation and for her initiative
+- [13:31.870] to bring us together to discuss this important topic.
+- [13:36.460] Today we live in a time of rapid technological changes.
+- [13:40.940] Artificial intelligence is already changing the way
+- [13:44.560] we learn and communicate.
+- [13:46.990] Children who sit in classrooms today
+- [13:49.900] are growing up in a digital world.
+- [13:52.940] Because of this, education systems must find ways
+- [13:57.000] to use technology responsibly and for the benefit of students.
+- [14:02.820] Artificial intelligence can be a powerful tool.
+- [14:06.640] In education.
+- [14:08.840] It can help teachers better understand
+- [14:11.730] the needs of students and help children
+- [14:14.100] learn at their own pace.
+- [14:17.350] But technology itself is not a solution.
+- [14:21.520] Teachers remain essential for the development of curiosity,
+- [14:26.900] values and responsibility in children.
+- [14:30.590] It is therefore important that we use artificial intelligence.
+- [14:35.260] As a tool of support to teachers,
+- [14:38.200] and not as a replacement for them.
+- [14:41.510] In Bosnia and Herzegovina, we also recognize the importance
+- [14:45.680] of the digital transformation of education.
+- [14:49.890] Our universities and researchers
+- [14:52.250] are increasingly working on the development
+- [14:55.530] and application of artificial intelligence.
+- [14:59.260] And in our education system,
+- [15:01.180] we threatening students' digital competencies.
+- [15:05.460] Children learn how to use technology,
+- [15:08.710] but also how to think critically and responsibly.
+- [15:13.790] At the same time, we are aware of the challenges.
+- [15:18.270] Questions of ethics, security, and the protection of children
+- [15:23.110] is the digital space must be at the center of our policies.
+- [15:28.430] As a mother, I believe that education
+- [15:31.700] is the most important investment in the future.
+- [15:35.320] Our responsibility is to give children the knowledge
+- [15:38.770] and values to use technology in a way that connects people
+- [15:43.680] and builds a better society. Thank you for your attention.
+- [15:48.440] (applause)
+- [15:52.510] Monica Crowly: Thank you so much, Your Excellency.
+- [15:54.620] Now I am pleased to invite the First Lady
+- [15:57.570] of the Republic of Burundi,
+- [15:59.610] Her Excellencies, Angeline Nayadisha Maye. Madam.
+- [16:07.050] Angeline Nayadisha Maye: Excellency, Madame
+- [16:08.480] Mélanie Trump, First Lady of the United States of America.
+- [16:12.670] Excellencies, researchers, First Lady,
+- [16:14.750] ladies and gentlemen, all protocol observed, hello.
+- [16:20.440] It is with great joy to speak with you today
+- [16:24.100] on the day of technology, education,
+- [16:28.710] artificial intelligence and digital literacy.
+- [16:33.140] (inaudible)
+- [16:41.310] Interpreter: We're living in the complexity of our world
+- [16:45.640] that is evolving. It's important to recognize
+- [16:49.530] the transforming power of digital tools.
+- [16:53.800] In addition, including artificial intelligence
+- [16:59.350] in education can be of great benefit.
+- [17:07.100] Customize learning by adapting to the individual
+- [17:12.360] needs of students. It can also help.
+- [17:17.140] Teachers follow progress of students
+- [17:21.520] and integrate teaching methods based on scientific research.
+- [17:28.370] However, with the advances of our responsibilities,
+- [17:35.550] while we promote digital literacy,
+- [17:41.840] we must also prioritize security and protection.
+- [17:46.380] It's important for our students
+- [17:49.420] not only learn how to use technology,
+- [17:53.570] but also understand the importance
+- [17:59.420] of navigating digital spaces
+- [18:02.360] in a responsible and safe way by investing digital tools
+- [18:11.060] and including artificial intelligence
+- [18:15.550] and encouraging curiosities and promoting security
+- [18:21.500] we can cultivate future generations of learners
+- [18:28.010] not only to acquire knowledge but also to innovate, research,
+- [18:34.090] and create solutions. Thank you. .
+- [18:41.030] Monica Crowly: Thank you very much, Madam.
+- [18:43.310] It's now my pleasure to invite to deliver remarks
+- [18:46.240] the First Lady of the Republic of Serbia,
+- [18:48.980] Her Excellency Tamara Vucic. Madam.
+- [18:52.350] Tamara Vucic: Thank you very much.
+- [18:54.430] Distinguished first ladies and gentlemen,
+- [18:56.780] at the outset, I would like to extend my deep respects
+- [19:01.560] and support to Madame Trump by following her instincts,
+- [19:05.790] and we women certainly do have it,
+- [19:08.800] giving the form and the contents to her vision
+- [19:12.310] and for gathering us here. We are writing history today.
+- [19:16.740] Ladies and gentlemen, we live in two worlds,
+- [19:19.760] digital and real one, offline and online.
+- [19:23.340] And we can neither ignore nor ban them.
+- [19:27.620] The Republic of Serbia is guided
+- [19:29.230] by the fact that well-being in digital environment,
+- [19:32.600] just like in the real life,
+- [19:33.910] is the path for personal development,
+- [19:36.370] which requires education, not only limitations.
+- [19:40.400] Therefore, instead of short time prohibitive measures,
+- [19:44.650] we promote the digital immunity.
+- [19:47.720] Our objective is not to isolate children,
+- [19:50.380] but to make them stronger in order to recognize the danger.
+- [19:54.580] Serbia has introduced computer programming
+- [19:57.240] to all elementary schools
+- [19:59.200] and a subject called the digital world
+- [20:02.000] starting from the first grade.
+- [20:04.670] The fundamentals of understanding
+- [20:06.720] artificial intelligence
+- [20:08.150] have become part of the curriculum
+- [20:10.120] in elementary and secondary schools.
+- [20:12.380] And according to UNESCO data, we are one of only 11 countries
+- [20:17.720] in the world that successfully implemented this.
+- [20:22.290] What we are especially proud of
+- [20:24.090] is that the digital transformation in education
+- [20:26.880] has been accompanied by improvements in the system
+- [20:30.490] for child protection.
+- [20:32.790] The National Contact Center for Children's Safety
+- [20:35.550] on the smart and safe.
+- [20:38.380] Has been established as a system of direct support for children,
+- [20:42.120] parents, and teachers. This is the first and so far
+- [20:46.450] the only institutional mechanism in the region
+- [20:49.860] that addresses the prevention and response
+- [20:52.280] to threats against children in the digital environment.
+- [20:56.430] Ladies and gentlemen, Serbia is today the chair
+- [20:59.550] of the Global Partnership on Artificial Intelligence
+- [21:03.420] and proudly becoming the member of the Fostering the Future
+- [21:06.610] Together global coalition.
+- [21:09.080] To conclude, technology is neither good nor bad.
+- [21:12.580] Technology, in my opinion, is our test of humanity.
+- [21:17.030] This coalition gives us strength
+- [21:19.030] and the framework to successfully pass this test.
+- [21:23.130] Serbia stands with you with this coalition
+- [21:26.260] to the benefit of all our children.
+- [21:28.960] I thank you.
+- [21:30.220] (applause)
+- [21:33.370] Monica Crowly: Thank you very much, Madame.
+- [21:35.070] Merci. We do have a few gentlemen with us today.
+- [21:39.820] And now I am delighted to welcome, to deliver remarks,
+- [21:42.950] the first gentleman of the Republic of Slovenia,
+- [21:46.600] His Excellency Aleš Musar.
+- [21:49.780] Aleš Musar: (speaking foreign language),
+- [21:53.700] distinguished First Lady of the United States,
+- [21:56.000] dear colleagues and friends.
+- [21:58.930] When a high school professor of chemistry
+- [22:01.120] requested that all of us should, by the end of the month,
+- [22:04.170] have calculators, it was met with astonishment
+- [22:07.990] and even outcry among some of our parents.
+- [22:11.160] For centuries, everyone made calculations by hand,
+- [22:14.150] why should we change this venerable practice?
+- [22:17.400] It will leave more time for chemistry, argued my professor.
+- [22:20.960] Your children will get better education.
+- [22:24.570] This little episode happened in 1980.
+- [22:28.290] Since then, we have witnessed and experienced
+- [22:31.200] many technological advances,
+- [22:33.640] changing our teaching methods and educational systems.
+- [22:39.240] Word processors, spreadsheets, presentation tools,
+- [22:42.060] online databases, and of course,
+- [22:44.040] ready availability of any information
+- [22:46.060] you can imagine on the internet.
+- [22:48.400] Anywhere, anytime with mobile devices.
+- [22:52.950] The changes are not embraced immediately.
+- [22:56.790] We have seen the pattern of first ignoring,
+- [22:59.430] then resisting, and finally incorporating new technology
+- [23:02.740] in our curricula and teaching. By solving an eternal dilemma,
+- [23:07.720] how to convert something that is seen as a tool
+- [23:10.360] for cheating into an educational tool.
+- [23:14.610] We are struggling with that in Slovenia.
+- [23:18.010] With plenty of great private initiatives,
+- [23:20.220] curriculum is lagging behind.
+- [23:22.250] And I hope this coalition will help us embrace change faster.
+- [23:27.840] Because we are now on the brink of the most profound change
+- [23:31.160] we have ever seen.
+- [23:33.300] Artificial intelligence brings into education
+- [23:36.210] both amazing opportunities and significant challenges.
+- [23:40.720] I am thankful to the First Lady of the United States
+- [23:43.760] to show the leadership
+- [23:45.020] in bringing the first pauses of the world together.
+- [23:48.180] With the intent to wield whatever soft power
+- [23:51.010] we have for ensuring a better future for our children.
+- [23:55.740] Sharing best practices and educational tools
+- [23:59.310] based on artificial intelligence and fostering their availability
+- [24:03.290] to all children is a worthy cause.
+- [24:07.210] I believe it is equally important
+- [24:10.060] and a truly visionary proposal.
+- [24:12.720] To establish a think tank, which I see as a long-term forum
+- [24:16.770] for discussing, examining, and resolving ethical dilemmas
+- [24:21.020] and risks of the impact of artificial intelligence
+- [24:23.850] on children, which I would be ready to join.
+- [24:28.990] In fact, introduction of AI not only in education,
+- [24:32.870] but in all spheres of human activity
+- [24:36.180] is a challenge for humanity as a whole.
+- [24:39.830] Autonomous AI systems may radically change our societies,
+- [24:43.450] we are being warned.
+- [24:45.300] How can we ensure that human ethics is built into AI?
+- [24:50.860] Will it reach a point of singularity?
+- [24:54.910] Humanity has solved these dilemmas more
+- [24:57.420] or less successfully many times in the past,
+- [25:00.870] in science fiction books and movies.
+- [25:04.080] Now we have to do it for real. We only have one shot.
+- [25:08.540] We better get it right. Thank you.
+- [25:11.190] (applause)
+- [25:15.290] Monica Crowly: Thank you very much, sir.
+- [25:16.990] I am now very pleased to welcome the First Lady of Ukraine,
+- [25:21.100] Her Excellency, Mrs. Elena Zelenskaya.
+- [25:24.610] Elena Zelenskaya: Thank you so much.
+- [25:26.350] Dear distinguished guests, their colleagues,
+- [25:29.150] I'm honored to join the Fostering the Future
+- [25:30.640] Together coalition.
+- [25:31.860] And of course, I want to thank the First Lady, Melania
+- [25:34.830] Trump, for this important initiative.
+- [25:38.620] Today, the world is becoming increasingly unstable.
+- [25:41.860] And in these conditions,
+- [25:43.080] every country is searching for the answer on a question,
+- [25:47.930] how to preserve resilience while continuing to develop.
+- [25:53.070] And Ukraine already has this answer.
+- [25:55.090] It would be no exaggeration to say that,
+- [25:57.270] besides the resilience of our people,
+- [26:00.810] it is precisely digital systems that help Ukraine
+- [26:04.640] remain functioning state, even during a war.
+- [26:09.490] Since 2019, we've been developing a state
+- [26:13.580] in smartphone model,
+- [26:15.690] a model in which key public services become accessible
+- [26:19.530] anywhere through a simple digital interface.
+- [26:22.680] This is realized through DIA, not just an app,
+- [26:26.750] but fast, clear state-people interaction.
+- [26:30.980] Because technology is not only about convenience,
+- [26:33.650] it is about the state's ability to function.
+- [26:37.230] And while digitalization ensures nations' resilience,
+- [26:41.090] education determines its future.
+- [26:43.860] For us, this is the matter of principle.
+- [26:46.370] No child and no adult should lose access to education
+- [26:50.340] regardless of the circumstances. That is why we are building
+- [26:53.660] a comprehensive digital education ecosystem.
+- [26:57.350] An important part of it is DIA education.
+- [27:01.050] This is a national edutainment platform
+- [27:03.620] that combines learning and practice
+- [27:06.360] with the focus on skills needed in a modern world.
+- [27:10.230] The platform offers hundreds of educational products,
+- [27:14.330] short video courses, real life job stimulators.
+- [27:19.660] Interactive modules and certification programs.
+- [27:23.780] On the de-education platform,
+- [27:25.700] a dedicated section is about online safety and cyber hygiene.
+- [27:33.360] The content is adapted to different ages
+- [27:37.510] and different levels of proficiency.
+- [27:40.570] We view cyber hygiene as a new basic skill.
+- [27:46.210] Just as humanity once learned to take care of physical hygiene,
+- [27:50.730] and it is not a one-time action,
+- [27:53.430] but daily practice that builds resilience
+- [27:57.000] and helps prevent most common threats.
+- [28:00.730] At the same time, we are developing solutions
+- [28:03.140] for school education.
+- [28:04.640] At the initiative of the President of Ukraine,
+- [28:06.900] Maria was launched a unified digital education ecosystem
+- [28:12.510] for students, parents, and educators.
+- [28:15.590] Maria brings together all key elements
+- [28:18.000] of the learning process, from educational materials
+- [28:21.000] and schedules to communication and assessment.
+- [28:24.300] For students, it offers the opportunity to learn
+- [28:27.460] in a convenient format and track their own progress.
+- [28:32.710] For parents, it provides visibility
+- [28:35.350] into their child's learning progress
+- [28:38.640] and enables them to stay engaged in the process.
+- [28:41.850] For teachers. It allows for better planning.
+- [28:45.130] And reducing administrative workload, but most importantly,
+- [28:49.480] it represents a shift in approach.
+- [28:52.370] Education is no longer one size fits all.
+- [28:56.440] It is gradually becoming flexible
+- [29:00.850] and capable of adopting the needs of each child.
+- [29:06.550] Nearly 3,000 schools from all regions of Ukraine
+- [29:10.960] are already connected to Maria.
+- [29:13.320] Every fourth educational institution in the country.
+- [29:16.440] This year, we plan to connect around
+- [29:18.090] 7,000 educational institutions
+- [29:20.170] and increase the number of users to 1.5 million.
+- [29:24.690] In 2026, the pilot of Maria Preschool
+- [29:28.590] will begin in six regions of Ukraine.
+- [29:31.380] So we adopted that platform to the needs of the youngest users
+- [29:35.830] and make the system truly continuous
+- [29:37.930] from the kindergarten to school.
+- [29:40.390] And we're already looking forward.
+- [29:44.690] In 2025, Ukraine launched a national center
+- [29:48.690] for artificial intelligence development,
+- [29:51.430] the Win-Win AI Center of Excellence,
+- [29:54.470] which is working on integrating AI
+- [29:56.280] into key sectors of the state, including education.
+- [30:01.280] Ukraine commits to further investment
+- [30:04.140] in digital infrastructure, education technologies,
+- [30:06.800] and AI-enabled learning to prepare the next generation.
+- [30:11.950] To thrive in a digital age.
+- [30:14.200] That is why we are joining Mrs. Trump's initiative.
+- [30:17.820] We see this initiative as an important step
+- [30:20.380] toward elevating the issue of child development and education
+- [30:24.630] to the global level and bringing countries
+- [30:27.590] together around a shared responsibility.
+- [30:30.520] Ukraine is your reliable partner in it.
+- [30:33.490] Thank you once more.
+- [30:34.770] (applause)
+- [30:38.560] Monica Crowly: Thank you very much, Madam.
+- [30:40.540] Now I am delighted to welcome the partner
+- [30:43.400] of the President of the Republic of Romania,
+- [30:46.150] Mrs. Mirabella Gradinaru, for some remarks.
+- [30:53.170] Mirabella Gradinaru: Thank you.
+- [30:55.440] Dear first ladies and gentlemen, esteemed participants,
+- [30:59.650] first of all,
+- [31:00.940] I want to extend my gratitude to our gracious host,
+- [31:03.710] First Lady of the United States, Mrs. Melania Trump.
+- [31:08.220] I believe that this initiative is a very valuable one,
+- [31:13.150] generating momentum, visibility,
+- [31:16.210] and much-needed dynamism in this field.
+- [31:19.930] At the same time.
+- [31:21.530] It is crucial that we are having an integrated approach,
+- [31:25.230] better linking education, innovation, and technology.
+- [31:30.150] I look forward to start working closely
+- [31:32.170] with First Lady Melania Trump and everybody around this table
+- [31:36.810] within the framework of this project
+- [31:38.790] for developing concrete initiatives
+- [31:40.880] and achieving tangible impact in advancing digital education,
+- [31:44.810] safe online practices,
+- [31:46.480] and media literacy for children worldwide.
+- [31:50.320] I will not take up much of your time today,
+- [31:53.280] as we will be sharing our more in-depth views tomorrow.
+- [31:57.160] Before I finish, I want to introduce
+- [31:59.250] the two Romanian experts I brought with me.
+- [32:01.900] Andrada Morar is the vice president of UiPath
+- [32:05.890] for customer experience and global partners.
+- [32:08.900] Ui Path is the Romanian first unicorn company,
+- [32:11.900] and it is a leading robotic process automation platform,
+- [32:16.470] designed to automate repetitive,
+- [32:18.380] time-consuming tasks. By creating software robots.
+- [32:22.580] And Robert Beza is the executive director
+- [32:25.520] of Edge Institute Romania,
+- [32:29.530] a very active think tank dedicated
+- [32:31.460] to accelerating our country's digital transformation.
+- [32:35.930] Robert and his team bring together experts
+- [32:38.430] from business, technology,
+- [32:40.090] and academia to propose public policies
+- [32:42.280] and strategies aimed at boosting Romania's economic
+- [32:44.980] and digital competitiveness through the right approach.
+- [32:48.690] Especially on education.
+- [32:51.260] Thank you, and I am looking forward
+- [32:53.480] for the insightful discussions today.
+- [32:55.750] (applause)
+- [33:00.270] Monica Crowly: Thank you very much, madam.
+- [33:02.140] Now I'd like to invite the First Lady
+- [33:04.230] of the Republic of Estonia, Mrs. Syriah Karras.
+- [33:22.720] Syriah Karras: Good morning, dear colleagues, friends.
+- [33:27.670] Thank you for opportunity to join you
+- [33:31.530] for this high-level meeting.
+- [33:58.730] Thank you.
+- [34:00.400] I am grateful that Estonia's experience
+- [34:04.250] can be shared in this coalition launched under leadership
+- [34:09.510] of the First Lady of the United States.
+- [34:13.620] This movement is important because
+- [34:16.370] It creates space to talk about children's well-being
+- [34:20.790] while balancing innovation with responsibility.
+- [34:26.420] Education shapes a person's life
+- [34:30.580] and well-being more than anything else.
+- [34:35.530] It influences future opportunities, peace
+- [34:39.760] and a sense of belongings.
+- [34:43.070] That is why quality education matters
+- [34:46.750] so deeply to every society.
+- [34:51.290] Today education is increasingly digital.
+- [34:56.480] My country Estonia underwent
+- [35:00.070] a major societal digital transformation
+- [35:03.530] in the mid 1990s known as the Tiger Lee
+- [35:09.180] This creates a strong foundation for the leap we are now making,
+- [35:15.150] the AI leap. From Estonian's perspective,
+- [35:20.570] AI in education is an issue we must address now.
+- [35:29.360] Artificial intelligence is already part
+- [35:32.610] of our children's everyday reality,
+- [35:36.340] so we have chosen to guide these developments
+- [35:40.760] rather than simply react to them.
+- [35:45.200] That is purpose of Estonian's AI leap in education.
+- [35:52.490] It is a national program that helps schools use AI
+- [35:57.740] to improve learning, support teachers,
+- [36:02.040] and keep students safe.
+- [36:05.300] It combines an educationally adapted
+- [36:08.210] learning tool with teacher training,
+- [36:12.240] and it is backed by research.
+- [36:15.580] So decisions are grounded in evidence.
+- [36:20.520] Teacher support is essential.
+- [36:24.030] With teacher's guidance, students can become responsible.
+- [36:29.140] AI users who learn with these tools
+- [36:33.940] rather than relying on them for quick answers.
+- [36:39.930] We also take risks seriously.
+- [36:43.880] Harmful content, deepfakes, data protection,
+- [36:49.970] and the impact on mental well-being.
+- [36:53.660] That is why we focus on safety by design.
+- [36:58.170] Clear rules and careful evaluation
+- [37:02.490] so we learn what truly benefits children and what does not.
+- [37:10.420] This brings me to a wider point.
+- [37:14.150] The choices we make in education and technology connect
+- [37:19.400] naturally to children's rights
+- [37:22.430] and to emerging frameworks for AI governance.
+- [37:28.370] We want to build a bridge between classroom practice
+- [37:32.740] and these global principles.
+- [37:35.420] And we will use every international forum
+- [37:39.810] available to strengthen the protection of children
+- [37:43.290] in the digital world.
+- [37:45.650] This includes our (inaudible)
+- [37:56.830] Together with El Salvador, of the United Nations
+- [38:00.690] global dialog on AI governance.
+- [38:06.100] In 2026 Estonia is also honored to serve
+- [38:11.860] as a chair of the executive board of UNICEF.
+- [38:16.970] We aim to convene a special session
+- [38:20.810] of the Executive Board on Innovation in Education.
+- [38:27.840] We wish to raise awareness of the opportunities
+- [38:32.170] that technology offers to make education
+- [38:36.220] more accessible for children, as well as the need to ensure
+- [38:42.380] these technologies are safe and secure.
+- [38:47.820] Thank you for your commitment to children, to learning,
+- [38:52.980] and to a safe future in the digital age.
+- [38:58.300] Thank you everybody.
+- [38:59.840] (applause)
+- [39:03.140] Monica Crowly: Thank you, Madam.
+- [39:04.450] Now I'd like to invite the First Lady
+- [39:06.620] of the Republic of Costa Rica,
+- [39:08.880] Her Excellency Signate Zaitkatekate.
+- [39:13.720] Signate Zaitkatekate: Good morning,
+- [39:17.600] first lady Melania Trump, excellencies
+- [39:21.820] and fellow first spouses.
+- [39:25.230] Thank you for bringing us together
+- [39:27.690] and thank you also for coming together.
+- [39:31.170] This coalition matters.
+- [39:33.170] It matters because the digital world
+- [39:35.760] is no longer a separate place for our children go.
+- [39:40.420] As the first lady of Estonia mentioned,
+- [39:43.510] it is the environment in which our children live,
+- [39:47.750] environment that shapes their minds every day
+- [39:51.100] and in real time.
+- [39:52.590] Artificial intelligence is already in their phones.
+- [39:56.690] It is in their homework.
+- [39:58.690] It is, in the very question they ask about the world.
+- [40:03.270] As we gather here today
+- [40:06.020] for the initiative fostering future together,
+- [40:09.280] the question before us is simple yet profound.
+- [40:13.220] Will we guide them or will we leave them
+- [40:16.360] to navigate this frontier alone?
+- [40:19.750] In Costa Rica, we chose to act early.
+- [40:23.920] In 2024, we launch
+- [40:26.120] our National Artificial Intelligence Strategy.
+- [40:30.130] And this is the first of its kind in Central America.
+- [40:34.650] From the very beginning, we made one decision clear.
+- [40:38.680] Children come first.
+- [40:41.690] And this is not a technical issue for us.
+- [40:44.230] It is a public responsibility.
+- [40:48.700] We are building our artificial intelligence with ethics,
+- [40:52.450] with safeguards, and with a human-centered purpose.
+- [40:57.650] And we are already seeing the results.
+- [41:00.840] Today, over half of our teachers using artificial intelligence
+- [41:06.340] to support students with special needs or spark innovation,
+- [41:11.880] and this is a rate well above the OECD average.
+- [41:18.970] To ensure that our teachers are never left behind,
+- [41:22.150] we also created one of the world's
+- [41:24.200] first National Artificial Intelligence Guide
+- [41:28.390] for Educators.
+- [41:30.380] This guide ensures that technology serves
+- [41:33.090] as a partner that automates routine tasks,
+- [41:37.470] giving our teachers back time they need,
+- [41:40.840] what matters, for what matters.
+- [41:43.240] And this is socio-emotional support of our students.
+- [41:47.660] We are also providing that innovation has no borders.
+- [41:52.660] In Costa Rica, internet access is a constitutional right,
+- [41:58.200] and we have reduced the digital divide in vulnerable communities
+- [42:02.150] by 22 percentage points. Through our Hummingbird project,
+- [42:08.200] we are bringing artificial, intelligent,
+- [42:11.240] driven literacy to our most remote.
+- [42:15.640] One teacher's schools in the mountains and coasts,
+- [42:19.860] ensuring that a child's zip code
+- [42:22.600] never defines their digital destiny.
+- [42:26.810] But let us to be clear,
+- [42:29.240] access without safety is not progress, it is exposure.
+- [42:35.960] When technology arrives before guidance,
+- [42:39.580] we see confusion and misuse.
+- [42:42.860] That is why we are strengthening our laws
+- [42:46.770] against digital grooming and bolstering cybersecurity.
+- [42:52.680] Innovation must never come at the cost of child's
+- [42:56.700] dignity and security.
+- [43:00.220] Excellencies, this coalition gives us a rare opportunity
+- [43:05.480] to move from isolated efforts to shared global principles.
+- [43:12.720] And we must shape it together with intention
+- [43:17.500] and with the belief that every child
+- [43:20.150] everywhere deserves a future
+- [43:22.660] where technology expands their potential
+- [43:26.000] without ever diminishing their humanity.
+- [43:29.740] Thank you very much.
+- [43:31.170] (applause)
+- [43:34.130] Monica Crowly: Thank you so much, madam.
+- [43:35.880] For our final speaker
+- [43:37.300] on artificial intelligence in education,
+- [43:40.480] I would like to invite the First Lady of Georgia,
+- [43:44.210] Ms. Tamar Bagratoni, please.
+- [43:57.490] Tamar Bagratoni: Distinguished First Ladies, Honorable Guests.
+- [44:01.040] First, I would like to convey my heartfelt
+- [44:05.060] thanks to our host, Mrs. Melania Trump.
+- [44:10.490] The history will remember her,
+- [44:13.760] who brought around 45 nations together
+- [44:19.500] and turned the mother instinct into a global movement.
+- [44:24.760] I represent the nation with a history
+- [44:28.310] stretching 3,000 years.
+- [44:31.670] Georgia, a country was ruled by Queen Tamar,
+- [44:37.260] the first ever woman royalty, royalty.
+- [44:48.390] Referred to as a king
+- [44:51.920] who believed that the leaders greatest is measured by measured
+- [44:58.110] by how they protects the most in needs.
+- [45:04.830] Today we are united by one shared responsibility
+- [45:10.920] the well-being and of our children.
+- [45:14.240] I am fully committed
+- [45:16.780] To this as a first lady, but first and foremost,
+- [45:21.380] I speak as a mother of four.
+- [45:24.260] One who understand personally the context represent
+- [45:30.790] of protecting a child well-being.
+- [45:34.910] Every parent who knows the quiet tension we carry,
+- [45:40.650] they will to protect our children for harm.
+- [45:44.450] At the same time, allowing them. Freedom to grow, to explore,
+- [45:50.640] and the benefit from the opportunities
+- [45:53.540] of the rapidly advanced world.
+- [45:56.600] This balance is not simple. It is a daily struggle.
+- [46:00.780] Silent, invisible, but very real.
+- [46:04.770] Sheer across families everywhere.
+- [46:07.940] We cannot choose between safety and development.
+- [46:12.180] Our responsibility is to ensure both.
+- [46:16.040] This is why Thoughtful solution matters so deeply.
+- [46:21.370] Solution that allows our children
+- [46:24.590] not only to strive and to innovate,
+- [46:30.540] but also remain open, curious and connected,
+- [46:36.520] free to play and engage and step into the future with confidence.
+- [46:42.390] In Georgia, we're undertaking important step
+- [46:46.270] towards comprehensive digital transformation.
+- [46:52.200] Our nation approach is guided by the principle of the middle way.
+- [46:58.870] A framework that seeks to balance technological innovation
+- [47:04.830] with the protection of human dignity, fundamental rights,
+- [47:10.180] and above all children's safety. Thank you for your attention.
+- [47:16.340] (applause)
+- [47:20.100] Monica Crowly: Thank you, madam,
+- [47:21.330] and thanks to all of you for a very interesting
+- [47:24.280] and very important initial conversation
+- [47:26.450] on AI and education.
+- [47:28.710] I would now like to welcome the US Secretary of Education,
+- [47:32.490] Linda McMahon, to introduce our second topic.
+- [47:50.390] Linda McMahon: Good morning, everyone.
+- [47:51.880] It's indeed a pleasure to be here with you.
+- [47:55.010] Thank you, Ambassador, for having me this morning.
+- [47:57.710] And I'd certainly like to thank our remarkable First Lady
+- [48:00.590] for assembling this talented group
+- [48:03.120] of first spouses, policymakers, and industry leaders
+- [48:07.090] to discuss how we can harness AI to enhance education
+- [48:11.890] and equip students with the digital fluency
+- [48:15.020] today's jobs require.
+- [48:17.250] And just to step aside for one second
+- [48:19.280] from my prepared comments,
+- [48:21.230] I would just like to say how impressed I am
+- [48:24.040] with all of the comments that I have heard so far this morning.
+- [48:27.650] The sharing of the thoughts of mothers,
+- [48:30.360] of leaders of countries who bring their passion
+- [48:34.330] for not only their own children,
+- [48:35.830] but the children of their countries.
+- [48:37.920] So I welcome those remarks.
+- [48:40.040] I am so grateful to hear this and for all of us to understand
+- [48:44.180] that there is no one size fits all.
+- [48:46.710] And that as we all are in our respective countries
+- [48:50.900] and communities and industries,
+- [48:53.150] thank you all for this devotion and commitment
+- [48:55.570] to not only embracing AI,
+- [48:57.700] but to also understanding that use as a tool,
+- [49:01.490] but that it must have guardrails
+- [49:03.460] so that our children are protected
+- [49:05.160] and can benefit from the greatest aspect
+- [49:08.840] of embracing this technology. So, thank you for that.
+- [49:13.010] Artificial intelligence is a technological leap.
+- [49:16.740] On par with the invention of the printing press
+- [49:20.210] and the rise of the internet.
+- [49:22.220] It is no longer just a transformative technology,
+- [49:25.660] but a foundational one
+- [49:27.510] that is already shaping the world around us.
+- [49:31.040] And education especially, it can serve as a powerful equalizer,
+- [49:35.850] opening doors of opportunity for students
+- [49:38.970] and expanding access to quality learning.
+- [49:43.030] And I've seen this firsthand in my 50 state tour.
+- [49:46.480] While visiting the Alpha School in Austin, Texas,
+- [49:49.700] where each student has an individual AI tutor
+- [49:53.120] for the first two hours of the day
+- [49:56.170] that can identify their individual needs
+- [49:59.320] and help remediate their lagging learning spots.
+- [50:03.980] The genius of the Alpha school is how an AI-supported
+- [50:08.230] customized learning path is guided by a teacher
+- [50:12.420] to personalize support for each student.
+- [50:15.600] To help students explore their life goals
+- [50:18.630] and to teach them the skills necessary to achieve them.
+- [50:22.480] As a result, their students are mastering material at a pace
+- [50:27.170] over two times faster than national benchmarks.
+- [50:31.850] Seeing models like this of success around the country
+- [50:35.220] demonstrates why the responsible integration of AI
+- [50:38.350] in our classrooms
+- [50:40.020] has been a top priority of mine as the Secretary of Education.
+- [50:44.630] We have already dedicated millions of dollars
+- [50:47.490] in grants to support projects that use AI
+- [50:51.260] to bolster student access and success.
+- [50:54.800] And we are proud to support the First Lady's
+- [50:57.200] Presidential AI Challenge,
+- [50:59.580] which has inspired citizens to submit AI proposals
+- [51:03.810] and technologies that solve problems in their communities.
+- [51:08.670] But this is only the beginning.
+- [51:10.700] Under the First Ladies leadership.
+- [51:12.560] Today's discussions will help us envision
+- [51:15.300] a set of best practices for AI and education worldwide.
+- [51:21.490] Together, we can show how proper use of ed tech tools,
+- [51:26.420] including digital assessment programs, immersive simulations,
+- [51:31.460] and adaptive learning systems can be an enhancement too,
+- [51:35.830] not as a replacement for human-centered classroom
+- [51:39.790] instruction simultaneously.
+- [51:42.480] Equipping students with the digital literacy
+- [51:45.720] they will need throughout their lives.
+- [51:48.660] And if we're able to scale these resources
+- [51:50.840] effectively by investing in AI infrastructure and training,
+- [51:55.290] we can offer expert instruction across countless fields
+- [52:00.830] to hire volumes of people at a fraction of the cost.
+- [52:05.430] I'm looking forward to learning from you all today
+- [52:08.080] and seeing
+- [52:09.310] how locally led innovation and national ingenuity
+- [52:13.450] can come together to forge a brighter future for our students
+- [52:17.290] and ensure that they are prepared to thrive in an economy
+- [52:21.630] that still depends on capable and skilled people.
+- [52:27.600] And thank you once more to our amazing First Lady
+- [52:30.490] and to President Trump for his visionary leadership.
+- [52:34.490] And I look forward to listening and hearing to all of you
+- [52:37.240] a little bit later in our discussions.
+- [52:39.360] Thank you so much for having me. And for sharing with me
+- [52:43.080] what you are doing already in your countries
+- [52:45.970] and for the incredible opportunity and responsibility
+- [52:50.060] that we all have before us. Thank you so very, very much.
+- [52:54.150] (applause)
+- [52:57.620] Monica Crowly: Madam Secretary, thank you so much for that.
+- [53:00.660] And now we're going to open the floor
+- [53:02.630] and begin our discussion on educational tools in technology.
+- [53:07.720] First, I would like to invite the First Lady
+- [53:10.340] of the Republic of Albania, Ms. Armanda Begaj.
+- [53:17.030] Armanda Begaj: First of all, I want to thank the First Lady
+- [53:22.040] of the United States for welcoming us
+- [53:24.860] and for these grateful initiatives.
+- [53:28.490] Dear First Ladies and Gentlemen, Distinguished Participants,
+- [53:32.550] the launch of the Hoax-Torun Future Together Global Coalition
+- [53:36.820] is both timely and necessary,
+- [53:40.170] as the rapid advance in digitalization
+- [53:42.700] and AI are transforming the way we learn, work and live.
+- [53:48.110] Investing in children's educations,
+- [53:50.310] as highlighted by Mrs. Melania Trump,
+- [53:53.070] is essential to build lasting peace.
+- [53:56.800] For Albania, ensuring that every child
+- [53:59.180] is equipped with digital skills is a national priority.
+- [54:03.950] Through the Digital Education Action Plan,
+- [54:06.280] we are strengthening connectivity,
+- [54:09.780] improving the digital infrastructure,
+- [54:12.150] investing in teacher training and modern learning methods.
+- [54:17.820] We are also focusing in early educations.
+- [54:20.910] Our goal is not only for child to use digital tools,
+- [54:25.810] but to understand, shape, and lead in AI world.
+- [54:32.820] We encourage the children since first grade to develop problem
+- [54:43.530] solving and coding skills.
+- [54:47.020] Through the programs that support those learnings,
+- [54:53.550] we are looking forward to have good,
+- [54:58.850] that children have good skills in the future.
+- [55:01.980] We also are placing a strong emphasis in online safety.
+- [55:06.330] Of course, change remains,
+- [55:09.740] particularly in bridging gaps between rural and urban areas.
+- [55:16.020] And in this regard,
+- [55:17.580] we strongly support the objective of coalitions,
+- [55:21.950] especially its efforts to make advanced technology
+- [55:25.510] accessible to children, educators, and families.
+- [55:28.700] Albania is looking forward.
+- [55:30.610] To work all together in this new world, AI age.
+- [55:36.120] Thank you.
+- [55:37.400] (applause)
+- [55:41.230] Monica Crowly: Thank you, madam.
+- [55:42.770] Now I'd like to invite the espouse of the Prime Minister
+- [55:45.600] of the People's Republic of Bangladesh,
+- [55:47.890] Her Excellency Zubayda Rahman.
+- [55:52.580] Zubayda Rahman: Thank you.
+- [55:56.490] Madam First Lady of the United States,
+- [55:59.520] Mrs. Melania Trump,
+- [56:01.550] distinguished first spouses, excellencies, industry leaders,
+- [56:06.260] ladies and gentlemen, a very good morning to you all.
+- [56:10.540] It is a great honor to join you all today at the historic
+- [56:15.270] Fostering the Future Together Global Coalition Summit.
+- [56:19.540] I sincerely thank the First Lady.
+- [56:22.370] For bringing us together from across the world
+- [56:25.710] for a cause that touches every nation,
+- [56:28.800] the promise and potential of our children.
+- [56:32.420] We recognize that the future of every country
+- [56:35.510] is written in the lives of its children.
+- [56:38.710] The care we provide today, the education we invest in,
+- [56:42.840] and the values we nurture will shape
+- [56:45.260] the nations they build tomorrow.
+- [56:48.370] I come here at an important moment for my country.
+- [56:52.320] Under the leadership of my husband, Tariq Rahman,
+- [56:55.820] the Prime Minister of Bangladesh,
+- [56:58.270] our recently elected democratic government has taken office
+- [57:02.370] with an overwhelming mandate
+- [57:04.490] to build a more inclusive and forward-looking nation.
+- [57:10.120] Our government has already launched initiatives
+- [57:13.230] such as the Family Card and Farmers' Card.
+- [57:16.420] Providing financial benefits that strengthen households
+- [57:20.450] and also ensure children grow in secure,
+- [57:23.960] nurturing environments. As a medical doctor,
+- [57:28.420] I'm deeply committed to ensuring accessible,
+- [57:31.640] quality healthcare for every child,
+- [57:34.530] focusing not only on treatment,
+- [57:36.990] but on prevention from the earliest stages of life.
+- [57:41.540] My work with the Ziaur Rahman Foundation Thank you.
+- [57:46.090] Has further strengthened my dedication
+- [57:48.920] to advancing education,
+- [57:51.090] youth development, and community well-being.
+- [57:55.310] We believe that responsible use of artificial intelligence
+- [58:00.260] can transform education,
+- [58:02.490] especially in countries like Bangladesh,
+- [58:05.790] where access to trained teachers and resources remain uneven.
+- [58:11.020] Our government is equipping both teachers and students
+- [58:14.880] with the tools they need to thrive in a digital age.
+- [58:19.240] Our government is providing teachers with tablet computers,
+- [58:23.760] updating teaching materials, digital curricula,
+- [58:27.220] and innovative methods.
+- [58:29.810] Classrooms are evolving to include multimedia contents,
+- [58:34.070] encouraging teamwork,
+- [58:35.940] creativity, and moral development.
+- [58:40.250] Technology, particularly ed-tech, plays a central role
+- [58:44.790] in reducing disparities between urban and rural communities.
+- [58:49.900] At the same time, we are committed to ensuring the safe
+- [58:54.020] and ethical use of these tools
+- [58:56.590] so that children grow in secure and supportive environments.
+- [59:01.460] Bangladesh has a strong legacy in empowering women.
+- [59:05.920] Former Prime Minister,
+- [59:07.580] Begum Khalid Aziz advanced women's rights
+- [59:11.000] and introduced free education for girls up to grade 12.
+- [59:15.900] Our government is committed to ensuring free education
+- [59:19.590] for women up to post-graduate levels.
+- [59:23.230] Shahid President Ziaur Rahman laid the foundation
+- [59:26.420] of the garment industry,
+- [59:28.110] creating opportunities for millions of women.
+- [59:31.340] These efforts demonstrate that when women are empowered,
+- [59:35.130] families are strengthened and children prosper.
+- [59:38.960] We also recognize the importance of partnerships.
+- [59:42.850] By working with the private sector and our global partners,
+- [59:46.940] we aim to expand safe digital spaces,
+- [59:50.310] train teachers, empower parents,
+- [59:53.010] and improve the quality of education for all.
+- [59:57.070] With strong technological cooperation,
+- [59:59.720] we seek to connect every region, protect every child,
+- [01:00:04.330] and personalize every learning journey.
+- [01:00:07.710] Together, we can raise a generation
+- [01:00:10.460] that is resilient, compassionate,
+- [01:00:13.270] and prepared for the future.
+- [01:00:15.780] In closing, I express my heartfelt gratitude
+- [01:00:19.710] to the Madam First Lady of the United States.
+- [01:00:23.290] By sharing knowledge, learning from one another,
+- [01:00:26.520] and collaborating across borders,
+- [01:00:29.120] we strengthen not only our nations,
+- [01:00:31.920] but the future of our children and the world they will inherit.
+- [01:00:36.290] Thank you very much.
+- [01:00:37.820] (applause)
+- [01:00:41.330] Monica Crowly: Thank you so much, Madam.
+- [01:00:43.300] Now I am very pleased to invite to deliver remarks
+- [01:00:46.740] the First Lady of the Republic of Cabo Verde,
+- [01:00:49.790] Her Excellency Deborah Catisa Cavallo.
+- [01:00:53.410] Deborah Catisa Cavallo: Thank you.
+- [01:00:54.980] Your Excellency,
+- [01:00:56.180] First Lady of the United States, distinguished First
+- [01:01:00.560] Ladies, my sisters, as I like to call you,
+- [01:01:04.890] excellencies, distinguished participants.
+- [01:01:08.540] As a Cape Verdean,
+- [01:01:09.990] I'm truly honored by the invitation
+- [01:01:12.210] to be part of this global initiative.
+- [01:01:15.980] While our countries reflect diverse realities,
+- [01:01:20.480] we are united today, here. By a common purpose,
+- [01:01:25.910] placing children at the center of digital future.
+- [01:01:32.070] And now you can Googleize it.
+- [01:01:33.840] Cabo Verde is a nation, for those that don't know yet,
+- [01:01:39.170] Caboverde is the nation of 10 islands in the Atlantic Ocean.
+- [01:01:44.990] We are 99% ocean. Deeply rooted in youth.
+- [01:01:52.330] For you to know, 70% of Cape
+- [01:01:55.310] Verdean people has less than 35 years.
+- [01:02:00.600] So our youth are supported by a vast diaspora.
+- [01:02:07.320] And United States hosts the largest
+- [01:02:12.060] Cape Verden community outside our islands.
+- [01:02:16.820] Today, technology connects. What the ocean wants separated.
+- [01:02:24.780] And our future is blue, digital,
+- [01:02:29.090] and profoundly dependent on the investment
+- [01:02:32.560] we make in our children.
+- [01:02:35.620] We are investing in digital transformation through secure
+- [01:02:39.620] and vast international connectivity infrastructure,
+- [01:02:43.820] growing smartphone penetration, digital public spaces.
+- [01:02:50.250] Very well known by children, and tech parks,
+- [01:02:57.260] over 40 web labs in secondary schools.
+- [01:03:02.070] We are progressively integrating technology
+- [01:03:05.190] into education through computer labs
+- [01:03:08.950] and straightening digital literacy in programming,
+- [01:03:13.100] robotics, multimedia,
+- [01:03:14.830] and IT maintenance. As a first lady...
+- [01:03:20.040] Actively contributed to reducing digital inequality
+- [01:03:24.920] by supporting access to device
+- [01:03:27.600] and connectivity for children and adolescents
+- [01:03:32.550] that are in vulnerable social and economic situation.
+- [01:03:37.830] It is within this in this context
+- [01:03:40.860] that we see artificial intelligence
+- [01:03:43.840] as a great way to at least three tanks inclusion.
+- [01:03:48.670] And when I talk about inclusion, I remember Stephen Hawking's,
+- [01:03:53.770] I know everybody knows who was Stephen Hawkings,
+- [01:03:58.810] and I remember kids with special needs.
+- [01:04:02.650] Imagine all the kids with the special
+- [01:04:04.480] needs with the access he had.
+- [01:04:09.200] All of them could give to the world,
+- [01:04:11.560] not only to a country,
+- [01:04:13.140] but to the word, the best potential they have.
+- [01:04:18.330] And about equity,
+- [01:04:20.500] I'm thinking about the presence of girls and women in IT world.
+- [01:04:25.940] We are underrepresented in this world.
+- [01:04:29.700] So we must prepare,
+- [01:04:31.650] equipping our young people to thrive in a global world
+- [01:04:36.360] where their talents can flourish.
+- [01:04:40.160] However, excellencies,
+- [01:04:41.910] there are at least two fundamental pillars.
+- [01:04:45.320] That must guide and safeguard this gateway, family and school.
+- [01:04:52.640] School do more than teach, they educate,
+- [01:04:56.730] they influence and shape character.
+- [01:05:00.570] Teachers are role models
+- [01:05:02.340] and must guide the use of technology.
+- [01:05:06.040] Behind encouraging it to use,
+- [01:05:08.860] they must teach how to use it critically.
+- [01:05:14.460] And responsibly. Families, too, face challenges.
+- [01:05:20.470] Often, children are more technological-skilled
+- [01:05:23.980] than their parents.
+- [01:05:26.000] Parents must, therefore, be supported, empowered,
+- [01:05:29.480] and engaged to ensure consistent guidance and oversize.
+- [01:05:34.810] In the past, danger was in the street.
+- [01:05:38.630] At my time, I was a kid,
+- [01:05:40.350] danger was at the street, but today,
+- [01:05:44.160] It may be inside the home, just one click away.
+- [01:05:49.810] An integrated approach is essential.
+- [01:05:53.910] Includes digital education, stronger online protection,
+- [01:05:59.210] and greater accountability of technology platforms.
+- [01:06:03.900] Because every child matters, and no country
+- [01:06:08.160] can face the challenges of the digital age alone.
+- [01:06:13.500] We are committed to working with all of you
+- [01:06:18.010] to ensure that our children
+- [01:06:24.260] become not only digital creators,
+- [01:06:28.080] but also peacemakers, building bridge of dialog,
+- [01:06:35.300] building bridge of understanding,
+- [01:06:39.320] and breach of empathy across the world.
+- [01:06:44.040] AI for all. Thank you all.
+- [01:06:47.320] (applause)
+- [01:06:51.460] Monica Crowly: Thank you, madam.
+- [01:06:52.800] Now I would like to invite the First Lady
+- [01:06:54.990] of the Dominican Republic, Mrs. Raquel Abarria.
+- [01:06:59.280] Raquel Abarria: Good afternoon, everyone.
+- [01:07:01.240] As I said before at the beginning, do you hear me?
+- [01:07:04.660] We are all a great big family working together.
+- [01:07:08.610] So please allow me to speak in Spanish, which is my,
+- [01:07:12.590] if you would like to be so kind, it's channel nine in Spanish.
+- [01:07:19.760] Interpreter: Let me begin by commending,
+- [01:07:22.920] on behalf of the Dominican Republic
+- [01:07:24.450] in my own name, the very valuable work
+- [01:07:27.480] and initiative of First Lady Melania Trump
+- [01:07:30.840] to convene these First Ladies
+- [01:07:32.920] to participate in this global coalition
+- [01:07:35.090] built in the future together with the aim of promoting
+- [01:07:41.390] all of our children through education.
+- [01:07:43.380] And today we are facing a combined challenge.
+- [01:07:48.180] In the Dominican Republic, we have taken on this challenge
+- [01:07:52.550] as an opportunity to transform our educational system.
+- [01:07:57.490] In recent years, we've moved from a system
+- [01:08:01.900] based on memory and memorization
+- [01:08:05.050] to one that is based on skills that focuses on know-how.
+- [01:08:12.400] We are seeking to create students
+- [01:08:15.390] who are capable of critical thinking.
+- [01:08:18.080] To resolve issues and problems.
+- [01:08:21.220] That is to say, problem solving oriented in a world
+- [01:08:25.550] that is changing every day
+- [01:08:29.180] (inaudible)
+- [01:08:36.150] Technology plays a key role in this process.
+- [01:08:39.890] Today, it is an ongoing aspect.
+- [01:08:44.380] And it is part of everything that we are doing.
+- [01:08:47.230] It is cross-cutting in this regard.
+- [01:08:49.640] And we are training our teachers.
+- [01:08:52.120] We need to train our teachers,
+- [01:08:55.260] ensuring that technology is a teaching tool
+- [01:09:00.520] that is, in its essence, effective.
+- [01:09:04.180] As part of our efforts, we have created programs
+- [01:09:08.810] that are focused on understanding ITCs
+- [01:09:14.950] and the 21st century.
+- [01:09:17.310] One example is our educational robotics program
+- [01:09:22.080] in which over 800,000 students have participated,
+- [01:09:28.160] strengthening capabilities in STEM,
+- [01:09:31.320] specifically through different competencies. Today,
+- [01:09:35.990] we understand that English is the language of technology,
+- [01:09:39.930] and as such, we've created the program
+- [01:09:42.220] English for a Better Life,
+- [01:09:44.290] which currently serves 82,000 secondary school students.
+- [01:09:50.000] Similarly, we are encouraging programs of inclusion
+- [01:09:54.820] and innovation
+- [01:09:56.400] that expand access to quality education
+- [01:09:59.140] through the use of technology.
+- [01:10:02.080] Lastly, let me highlight the responsible
+- [01:10:06.120] and safe use of digital tools backed by policies
+- [01:10:11.180] in data protection and cybersecurity.
+- [01:10:14.890] The Dominican Republic reaffirms its commitment
+- [01:10:19.240] to not fall behind,
+- [01:10:20.960] and specifically to not leave behind future generations
+- [01:10:26.590] through our 2030 digital and uh
+- [01:10:29.320] We are working to create future citizens
+- [01:10:33.110] that are capable, responsible, and that they understand
+- [01:10:37.080] what the responsible use of technology and AI means.
+- [01:10:42.830] Thank you to Melania Trump,
+- [01:10:46.130] distinguished first ladies and gentlemen, everyone.
+- [01:10:51.720] I am confident, fully confident,
+- [01:10:54.130] that this coalition will foster new
+- [01:10:57.770] and improved best practices for all of our boys, girls,
+- [01:11:02.490] and adolescents. Thank you.
+- [01:11:04.460] (applause)
+- [01:11:07.670] Monica Crowly: Now I would like to invite the First Lady
+- [01:11:10.010] of the Republic of Guatemala,
+- [01:11:11.760] Her Excellency Lucretia Eugenia Pannado Villanueva.
+- [01:11:18.730] Lucretia Eugenia Pannado Villanueva: Thank you for
+- [01:11:20.100] the opportunity, Your Excellencies.
+- [01:11:24.930] Mrs. Melania Trump, First Lady of the United States,
+- [01:11:29.780] and all other spouses of heads of state
+- [01:11:34.570] and distinguished guests.
+- [01:11:38.510] For Guatemala, it is an honor to participate
+- [01:11:41.440] in this initiative fostering the future together
+- [01:11:44.660] and reform of our compromise
+- [01:11:47.560] to a shared goal of protection and innovation
+- [01:11:53.250] as well as education. For children.
+- [01:11:56.670] I will also invite you, as we are in the American continent,
+- [01:12:03.080] to please use the adequate channel
+- [01:12:06.970] to listen to the rest of my participation in Spanish.
+- [01:12:16.170] Interpreter: For Guatemala,
+- [01:12:20.420] managing the digital transformation
+- [01:12:22.550] as a strategic priority in public policy
+- [01:12:27.680] is one of our priorities.
+- [01:12:31.030] And it is not only a priority, a technological priority.
+- [01:12:35.520] Rather, it is a priority that is deeply centered on people,
+- [01:12:45.480] on their dignity, and on their rights.
+- [01:12:51.520] In our country is to train students,
+- [01:12:57.320] teachers, their family,
+- [01:12:59.200] and our communities in general using direct information
+- [01:13:05.340] that is critical, creative, and responsible
+- [01:13:09.610] so that we are ready to face the new era
+- [01:13:14.900] of this new wave of technology.
+- [01:13:19.190] We have a national strategy. That consists of four pillars.
+- [01:13:26.520] First of all, there is a component of inclusion
+- [01:13:32.340] and cultural belonging,
+- [01:13:34.530] as there are 17 million people in our country,
+- [01:13:39.880] and half of our people live in indigenous communities,
+- [01:13:47.780] mainly of Mayan origin.
+- [01:13:51.870] As well as Garifuna, or Afro-Guatemalan, and Xinka.
+- [01:13:57.260] We have 22 languages that are spoken in the country,
+- [01:14:01.950] different from Spanish,
+- [01:14:04.050] with seven to nine of them being the predominant languages.
+- [01:14:11.120] Therefore, as a multicultural country,
+- [01:14:14.720] we are developing digital content and educational models
+- [01:14:19.880] that reflect our cultural diversity
+- [01:14:24.110] and our linguistic diversity. For both teachers and students
+- [01:14:31.190] so that they are able to use digital tools effectively.
+- [01:14:40.600] We...
+- [01:14:44.350] Constantly respect our linguistic diversity
+- [01:14:47.840] and the local context in which these digital tools
+- [01:14:52.350] are to be implemented. For quite some time now,
+- [01:14:56.890] we have had intercultural bilingual educational programs.
+- [01:15:02.900] What do I mean when I say bilingual?
+- [01:15:07.420] I mean that Spanish may not be the mother tongue
+- [01:15:11.260] of the or a good part of our population.
+- [01:15:14.870] Therefore, the new revolution of artificial intelligence
+- [01:15:20.090] and this new phase in the digital era
+- [01:15:24.340] needs to include training in the languages
+- [01:15:29.690] that I mentioned, Maya, Garifuna, and Sinka,
+- [01:15:34.040] whereas digital tools may allow these students
+- [01:15:40.060] and teachers to learn and teach.
+- [01:15:44.200] In their own languages and in their own cultural contexts.
+- [01:15:49.470] In addition, we have digital literacy
+- [01:15:54.110] and increased access to digital tools.
+- [01:15:57.560] We are creating capacities in our entire educational system
+- [01:16:02.110] to ensure that students and teachers
+- [01:16:04.820] are able to use digital tools effectively.
+- [01:16:10.470] When it comes to artificial intelligence in education,
+- [01:16:16.390] we are also working on including it responsibly
+- [01:16:20.030] to promote personalized education
+- [01:16:23.920] and decision-making that is based on data
+- [01:16:27.660] and guided by UNESCO principles
+- [01:16:31.430] that ensure an ethical person-centered focus
+- [01:16:35.880] and centered on people's rights.
+- [01:16:40.070] Next, we have online security.
+- [01:16:43.530] We believe faithfully, and we act on this belief,
+- [01:16:48.280] that innovation must occur in safe spaces for our children,
+- [01:16:54.920] our young people, our adolescents.
+- [01:16:58.180] In a country where half of our population
+- [01:17:03.940] is under 22 years of age, this is obviously critical.
+- [01:17:15.090] Guatemala, then, is implementing actions at the national level
+- [01:17:18.870] that are coordinated to prevent digital risks.
+- [01:17:22.640] These include strategies led by our Office
+- [01:17:27.710] Against Sexual Violence, Exploitation,
+- [01:17:30.210] and Human Trafficking.
+- [01:17:33.390] We also recognize that this challenge evolves quickly.
+- [01:17:39.600] There are new threats such as damaging content
+- [01:17:43.450] generated by AI itself, by other encrypted platforms,
+- [01:17:49.850] and transnational exploitation networks.
+- [01:17:54.010] Therefore, we need more coordination
+- [01:17:56.430] at the institutional level.
+- [01:17:57.680] We need to be better able to investigate.
+- [01:18:01.360] Digital crimes and we need a more integrated response
+- [01:18:05.030] at the national level. We are committed to that
+- [01:18:07.030] and that is what we are currently doing.
+- [01:18:10.340] So we strengthen existing platforms
+- [01:18:14.300] to manage prevention and response to these threats.
+- [01:18:20.250] There are digital complaint mechanisms,
+- [01:18:23.960] prevention campaigns,
+- [01:18:25.170] and coordination mechanisms at the inter-institutional level
+- [01:18:29.000] that bring together education. Security, and child protection.
+- [01:18:35.430] In closing, I would like to say that for Guatemala,
+- [01:18:39.920] this new digital transformation wave is a means,
+- [01:18:45.310] I'll repeat, it is a mean to one of our largest ends,
+- [01:18:52.700] which is to reduce structural inequalities
+- [01:18:56.950] that for decades have held half of our population.
+- [01:19:04.520] Levels of poverty and extreme poverty.
+- [01:19:07.500] So, we have specific targeted actions
+- [01:19:11.180] so that inequalities do not increase,
+- [01:19:13.960] but rather are reduced during this new era
+- [01:19:19.060] so that we may expand opportunities,
+- [01:19:21.640] strengthen our human capital,
+- [01:19:23.680] and contribute as well to holistic development.
+- [01:19:29.170] We are therefore committed to this group of leaders
+- [01:19:33.020] who are here today.
+- [01:19:34.350] And those who may not be here today as well
+- [01:19:37.180] so that we may advance and move from fragmented approaches
+- [01:19:42.230] to preventive,
+- [01:19:43.600] holistic strategies that are coordinated with all of you
+- [01:19:48.490] and all leaders from different sectors,
+- [01:19:52.180] because education, protection, and innovation
+- [01:19:56.270] must move forward together and ethically.
+- [01:20:02.590] Focused on the protection of people.
+- [01:20:07.090] Finally, we would like to reiterate our desire
+- [01:20:10.910] to work with international partners
+- [01:20:12.890] to make sure that technology is a tool of equity, inclusion,
+- [01:20:17.940] sustainable development,
+- [01:20:19.720] and especially that it may protect
+- [01:20:22.540] and empower all children. Thank you very much.
+- [01:20:26.110] (applause)
+- [01:20:29.610] Monica Crowly: Now I would like to invite the First Lady
+- [01:20:31.750] of the Republic of Lithuania,
+- [01:20:33.420] Her Excellency Diana Nausenegian.
+- [01:20:42.730] Diana Nausenegian: Honorable first ladies and gentlemen,
+- [01:20:45.120] distinguished participants of this historic event.
+- [01:20:49.910] We're all living in an era when artificial intelligence expands
+- [01:20:56.540] in all areas of our human life
+- [01:21:00.080] and it's even catching up with its creator.
+- [01:21:05.520] The timely beginning of a discussion
+- [01:21:08.770] on what the development of AI means for our future is crucial.
+- [01:21:14.640] We must speak about both great opportunities ahead
+- [01:21:19.760] and the potential dangers.
+- [01:21:22.320] This makes it essential to listen to academic analysis,
+- [01:21:27.450] scientific forecasts,
+- [01:21:29.940] and experiences of different countries.
+- [01:21:33.860] It's very important that the First Lady
+- [01:21:36.970] of the United States of America.
+- [01:21:40.200] Melania Trump proactively leads
+- [01:21:43.750] and has launched a significant global initiative.
+- [01:21:49.100] Lithuania supports the look at the development of AI
+- [01:21:53.950] through the lens of children
+- [01:21:57.100] as the most sensitive group in society.
+- [01:22:02.590] And I am delighted to greet all far-sighted supporters
+- [01:22:09.550] of this mission,
+- [01:22:11.230] the insightful spouses of world leaders.
+- [01:22:15.940] We are here today from all over the world,
+- [01:22:19.280] united by a shared commitment
+- [01:22:21.980] to ensure that modern technologies serve
+- [01:22:27.270] for the well-being of our children and peaceful future.
+- [01:22:33.280] Ladies and gentlemen, there is a enormous potential for progress.
+- [01:22:42.670] By applying technology wisely,
+- [01:22:45.760] we can ensure that quality education
+- [01:22:49.190] is accessible to everyone, regardless of special needs,
+- [01:22:54.700] place of residence, or social status.
+- [01:22:58.800] Artificial intelligence is a tool that can empower education,
+- [01:23:08.940] a guarantee that education serves
+- [01:23:12.610] as a social, cultural, and intellectual elevator
+- [01:23:18.360] for every child. Lithuania is open to cooperation
+- [01:23:23.560] in developing tools of tomorrow.
+- [01:23:30.820] Our businesses have already created solutions
+- [01:23:33.420] for the personalized learning revolution,
+- [01:23:36.700] which enables the identification of knowledge gaps
+- [01:23:42.010] and the creation of personalized
+- [01:23:45.010] learning passes for every student.
+- [01:23:49.430] Teachers can now design customized lessons
+- [01:23:53.590] in just a few minutes,
+- [01:23:55.510] adopted to students' diverse abilities.
+- [01:24:00.380] I am proud to say that Lithuania is a leader
+- [01:24:04.730] in the European Union in terms of AI access
+- [01:24:08.950] and deeper AI usage within society.
+- [01:24:13.630] In terms of per capita investment in AI innovation,
+- [01:24:17.970] Lithuania...
+- [01:24:22.580] We have already done important homework
+- [01:24:25.200] in the area of infrastructure necessary for AI.
+- [01:24:30.020] Lithuania has a strategic advantage,
+- [01:24:33.790] exceptionally fast-growing capacities
+- [01:24:37.110] of domestically-generated electricity
+- [01:24:39.420] using low-cost resources,
+- [01:24:42.760] while the small modular reactors are our near future.
+- [01:24:47.510] An established national data lake pending new AI factory,
+- [01:24:53.970] ranking in the top six globally in cyber security.
+- [01:25:00.220] These are just a few examples of our technological achievements.
+- [01:25:05.920] This path is backed by a wisely managed macroeconomic policy.
+- [01:25:11.460] Since the year 2019,
+- [01:25:13.950] Lithuania did not suffer any GDP contraction
+- [01:25:19.750] and demonstrates further robust growth.
+- [01:25:24.680] The next step is greater investment in AI
+- [01:25:29.470] and digital skills,
+- [01:25:31.470] both in education and the economy.
+- [01:25:36.310] We aim to give every child the opportunity
+- [01:25:41.220] to try their hand at engineering and digital technology.
+- [01:25:48.040] We have 10 regional steam centers.
+- [01:25:51.350] Developing engineering, high schools,
+- [01:25:54.470] and fostering robotics. Also, the reality is changing.
+- [01:25:59.720] Teachers remains at the heart of educational system.
+- [01:26:06.490] Humanity will have no future
+- [01:26:08.720] if our educators will teach only technology.
+- [01:26:13.880] Technology.
+- [01:26:17.270] We need to install humanistic and ethical values in them.
+- [01:26:22.370] And we, the international community,
+- [01:26:28.200] will be united in seeking to introduce
+- [01:26:32.190] high ethical norms, universal standards,
+- [01:26:35.190] respective safeguards across the globe.
+- [01:26:39.800] Ladies and gentlemen, I would like to once again
+- [01:26:46.650] express gratitude to the First Lady of the United States,
+- [01:26:50.710] Melania Trump, for the strength of this substantial initiative.
+- [01:26:57.160] There is no doubt. That the global coalition,
+- [01:27:01.160] timely initiated by the First Lady of the United States,
+- [01:27:04.950] will touch us all, the world, and help us protect our children
+- [01:27:13.460] and properly meet the challenges of the future.
+- [01:27:17.460] I can assure you Lithuania will be an active
+- [01:27:22.380] and socially responsible participant
+- [01:27:25.970] in the global coalition. Thank you.
+- [01:27:29.350] (applause)
+- [01:27:32.820] Monica Crowly: Thank you very much, Madam.
+- [01:27:34.670] Now I am pleased to introduce the First Lady
+- [01:27:37.790] of the Federation of St. Kitts and Nevis to deliver remarks.
+- [01:27:42.210] Mrs. Diani Prince Drew.
+- [01:27:46.060] Diani Prince Drew: Excellencies, when we speak
+- [01:27:48.520] about the future of our children,
+- [01:27:50.430] we are really speaking about the world
+- [01:27:52.310] we are preparing them to step into.
+- [01:27:54.880] One that is rapidly changing, shaped by technology,
+- [01:27:58.200] innovation, and new ways of learning.
+- [01:28:01.180] It is our shared responsibility as leaders, parents,
+- [01:28:04.630] and advocates to ensure that our children
+- [01:28:07.290] are not only protected and supported,
+- [01:28:09.810] but are also equipped to thrive in the world.
+- [01:28:13.870] This is an important and timely conversation,
+- [01:28:16.640] and I wish to thank First Lady Melania Trump
+- [01:28:19.010] for bringing us together to have it.
+- [01:28:21.370] I bring greetings from the Federation
+- [01:28:23.000] of St. Kitts and Nevis,
+- [01:28:24.800] a small island nation in the Caribbean,
+- [01:28:27.530] but one with a steadfast belief
+- [01:28:29.450] that our size must never limit our ambition,
+- [01:28:32.510] especially when it comes to the development
+- [01:28:34.750] and protection of our children. In St. Kitts&
+- [01:28:38.050] Nevis we understand that the future of our children.
+- [01:28:41.710] We understand that the future children will inherit
+- [01:28:44.290] will be shaped by technology.
+- [01:28:46.330] For this reason, our government has made deliberate investments
+- [01:28:50.810] to ensure that our young people
+- [01:28:52.600] are not just consumers of technology,
+- [01:28:55.180] but creators, innovators, and responsible digital citizens.
+- [01:29:00.160] One of our most transformative initiatives in this regard
+- [01:29:04.070] has been the reintroduction of our one-to-one laptop program,
+- [01:29:08.040] which ensures that students across our education system.
+- [01:29:11.810] Have access to personal digital learning devices.
+- [01:29:15.610] The COVID-19 pandemic served as a global wake-up call.
+- [01:29:19.650] It revealed just how essential digital infrastructure
+- [01:29:22.940] and educational technology
+- [01:29:24.950] had become to the continuity of learning.
+- [01:29:28.130] In response, St. Kitts and Nevis accelerated investments
+- [01:29:32.370] in our digital education framework,
+- [01:29:34.850] strengthening connectivity,
+- [01:29:36.690] equipping classrooms with modern tools.
+- [01:29:39.370] And expanding access to technology for students
+- [01:29:42.510] and teachers alike.
+- [01:29:44.390] Today, thousands of students across our federation benefit
+- [01:29:48.000] from digital devices that support interactive learning,
+- [01:29:51.570] online collaboration,
+- [01:29:53.010] and access to educational resources
+- [01:29:55.120] far beyond the walls of the classroom.
+- [01:29:57.960] Alongside these national efforts,
+- [01:30:00.180] civil society also has an important role to play.
+- [01:30:03.770] Through my non-profit foundation, The Joy Project,
+- [01:30:06.900] we work to support children
+- [01:30:08.260] and families across our federation
+- [01:30:10.200] by responding in practical ways to needs within our communities.
+- [01:30:14.470] As part of this work, we have sought to assist children
+- [01:30:17.500] who may not otherwise have access to tools
+- [01:30:19.830] needed to fully participate in today's learning environment,
+- [01:30:23.730] including through the donation of laptops
+- [01:30:25.720] to support their educational and technological growth.
+- [01:30:29.890] However, access alone is not enough.
+- [01:30:32.880] We have complemented these efforts
+- [01:30:34.570] with a range of initiatives
+- [01:30:35.950] designed to ensure that technology is used safely,
+- [01:30:39.210] responsibly, and effectively.
+- [01:30:41.740] Across our communities, internet connectivity
+- [01:30:44.420] has been expanded through community centers,
+- [01:30:47.220] providing young people with safe spaces
+- [01:30:50.030] to access online educational resources.
+- [01:30:53.390] At the same time, digital literacy programs
+- [01:30:55.860] are equipping students, parents, and teachers with the skills
+- [01:30:59.760] needed to navigate the digital landscape with confidence.
+- [01:31:03.870] Importantly, we are also placing strong emphasis
+- [01:31:07.140] on online safety and digital protection,
+- [01:31:10.270] ensuring that our children engage responsibly online,
+- [01:31:13.820] recognize risks, and protect themselves in digital spaces.
+- [01:31:18.500] For us, educational technology
+- [01:31:20.850] is not simply about devices in classrooms.
+- [01:31:23.710] It is a gateway.
+- [01:31:25.190] It opens doors to deeper engagement
+- [01:31:27.470] with the fields that will define the future,
+- [01:31:29.950] including coding, data science, artificial intelligence,
+- [01:31:33.700] and robotics. In St. Kitts and Nevis,
+- [01:31:36.740] this journey has already begun to bear fruit.
+- [01:31:39.660] Inspired by a growing interest in technology
+- [01:31:42.180] among our youth, a group of young innovators
+- [01:31:45.280] established the St. Kitt's and Nevus Robotics Association,
+- [01:31:48.960] which is now playing a meaningful role.
+- [01:31:52.340] In advancing technological innovation
+- [01:31:54.420] within our federation.
+- [01:31:56.580] Today, that same association is leading the development
+- [01:32:00.130] of a major national initiative,
+- [01:32:02.470] the National Digital Health Information System.
+- [01:32:05.810] This project aims to modernize healthcare data management
+- [01:32:09.120] through secure digital platforms
+- [01:32:11.260] that will integrate electronic health records,
+- [01:32:13.800] laboratory systems, pharmacies, and diagnostic imaging.
+- [01:32:18.280] Enabling real-time access to patient information
+- [01:32:21.750] and improved health planning across our country.
+- [01:32:25.220] What makes this achievement especially powerful
+- [01:32:28.310] is that it reflects a simple truth.
+- [01:32:30.830] When young people are given the tools,
+- [01:32:33.010] the training, and the trust to innovate,
+- [01:32:35.870] they do not merely participate in national development,
+- [01:32:39.410] they help to lead it. Excellencies, colleagues,
+- [01:32:43.820] St. Kitts and Nevis may be a small nation,
+- [01:32:46.690] But our commitment to our children is vast.
+- [01:32:49.680] By investing in educational technology,
+- [01:32:52.290] strengthening digital literacy, and promoting online safety,
+- [01:32:56.660] we are preparing our young people
+- [01:32:58.400] not only to participate in the future,
+- [01:33:01.020] but also empowering them to shape it.
+- [01:33:04.060] Because when children are equipped with knowledge,
+- [01:33:06.780] guided by strong values,
+- [01:33:08.870] and supported by visionary and thoughtful leadership,
+- [01:33:12.520] even the smallest nation.
+- [01:33:14.570] Can help to build a brighter global future for all.
+- [01:33:17.860] Thank you.
+- [01:33:19.120] (applause)
+- [01:33:22.600] Monica Crowly: Thank you, madam. And for our final speaker
+- [01:33:25.360] on this topic of education technology or ed tech tools,
+- [01:33:29.370] I would like to invite the First Lady of Equatorial Guinea,
+- [01:33:33.170] Her Excellency Constancia Mange de Obiang.
+- [01:33:51.810] Constancia Mange de Obiang: First Lady of the United States,
+- [01:33:55.900] ladies and gentlemen,
+- [01:33:57.850] it is for me an honor to participate in this summit
+- [01:34:03.210] on fostering the future together.
+- [01:34:05.550] And I would like to firstly like to thank
+- [01:34:08.040] Her Excellency Melania Trump,
+- [01:34:09.870] First Lady the United States for promoting this initiative
+- [01:34:14.900] and for bringing us here together.
+- [01:34:18.580] To share our perspectives on a common challenge
+- [01:34:24.190] that is ensuring that our children grow up
+- [01:34:29.300] in an environment that is capable of grappling
+- [01:34:33.360] with the challenges of the 21st century.
+- [01:34:36.550] We believe that AI can indeed become a strategic tool
+- [01:34:42.850] in improving the quality of education in our nation.
+- [01:34:48.490] As well as reinforcing existing programs
+- [01:34:51.340] through the integration of new intelligent platforms
+- [01:34:56.170] so that students can access content
+- [01:35:00.510] and foster their learning, the pace of such learning,
+- [01:35:04.770] and to do so in a responsible
+- [01:35:08.080] and sociocultural appropriate fashion.
+- [01:35:12.840] Equatorial Guinea is committed.
+- [01:35:15.520] To the use of these new tools in education,
+- [01:35:19.440] we are convinced that working together,
+- [01:35:23.010] we can build a better future
+- [01:35:25.820] so that our children can enjoy the tools needed to learn,
+- [01:35:31.640] grow, and contribute to the development of our societies
+- [01:35:36.800] and an increasingly better world.
+- [01:35:40.900] Let me conclude by noting that our children are our future.
+- [01:35:47.250] All scientific and theological ideas
+- [01:35:54.740] have come to fruition as children have grown
+- [01:36:00.510] and become adults.
+- [01:36:02.250] This progress and process will continue
+- [01:36:06.020] and will certainly benefit current
+- [01:36:07.980] and all future generations. Thank you very much.
+- [01:36:09.950] (applause)
+- [01:36:11.210] Monica Crowly: Very much, Madam,
+- [01:36:12.440] and thanks to all of you for that very important
+- [01:36:14.940] and interesting conversation about education technology.
+- [01:36:19.000] Now I'm very pleased to welcome my friend and colleague,
+- [01:36:22.270] Deputy Secretary of State Christopher Landau,
+- [01:36:24.770] to introduce our third subject.
+- [01:36:27.350] (applause)
+- [01:36:32.940] Christopher Landau: Thank you very much, Monica.
+- [01:36:35.650] And I want to thank our First Lady for organizing this.
+- [01:36:38.240] It's amazing to see this incredible group
+- [01:36:41.290] of delegations here. Welcome to all of you.
+- [01:36:44.970] Bienvenidas, bienvenue, benvindas.
+- [01:36:49.090] That's all the languages I have for the moment.
+- [01:36:51.680] Thank you. This is very exciting, you know,
+- [01:36:56.590] and I'm very happy to have my own wife here, Caroline.
+- [01:36:58.750] Thank you for being here.
+- [01:36:59.980] And the, the, our daughter Julia was born on January 10th, 2007,
+- [01:37:11.200] which was a very important work week,
+- [01:37:12.880] obviously, for our family, but also for the world,
+- [01:37:16.660] because on January 9th, 2007, the iPhone was announced.
+- [01:37:23.060] So for our daughter's entire life,
+- [01:37:25.760] she has had an iPhone very near to her.
+- [01:37:30.120] We didn't let her actually have an iPhone until she was 12,
+- [01:37:34.100] but believe me, for many years before that,
+- [01:37:36.200] she was already complaining
+- [01:37:37.410] that all the other kids in her class had the iPhone.
+- [01:37:41.080] And as a parent, I'm sure many of you have this experience,
+- [01:37:46.000] you can see what an incredibly powerful tool that is.
+- [01:37:50.490] I mean we have never put in our children's hands
+- [01:37:53.630] this kind of power before where they actually have access
+- [01:37:58.690] to all of human knowledge that you can get online.
+- [01:38:03.120] And frankly that's for good and for ill.
+- [01:38:07.180] There are obviously amazing educational opportunities
+- [01:38:13.600] that come from being tied up to the digital world,
+- [01:38:17.310] but there are obviously. Some real challenges.
+- [01:38:20.720] So I am so delighted
+- [01:38:23.520] that we have the chance as leaders in our countries,
+- [01:38:29.620] but also as parents and friends to talk about these issues.
+- [01:38:36.030] Because artificial intelligence is coming.
+- [01:38:40.230] And we need to understand the implications for that.
+- [01:38:43.460] It's coming to all our countries.
+- [01:38:44.860] The big countries, the little countries,
+- [01:38:47.590] these things don't stop at national borders,
+- [01:38:52.210] so I think this is a very important conversation to have.
+- [01:38:56.670] This particular panel is about what they call digital literacy,
+- [01:39:01.880] which I think it's important to emphasize goes far beyond
+- [01:39:06.440] just knowing basic computer skills,
+- [01:39:09.780] and let me tell you,
+- [01:39:11.090] if your family is anything like our family,
+- [01:39:13.260] the kids know a lot more about computer skills
+- [01:39:15.500] than the parents.
+- [01:39:16.760] I mean, they're the ones that tell us
+- [01:39:18.100] how to unlock our phones and do everything.
+- [01:39:20.390] So we are not teaching our kids,
+- [01:39:22.690] our kids are teaching us, in our family at least.
+- [01:39:25.940] But I think it is important for us as parents,
+- [01:39:29.750] as national leaders, to teach our youth
+- [01:39:33.830] and make sure they are aware of the need
+- [01:39:36.240] to critically evaluate information
+- [01:39:39.760] because they're getting such a torrent of information
+- [01:39:42.620] coming at them.
+- [01:39:43.960] They need to be able to do some critical analysis
+- [01:39:46.500] to be able to understand.
+- [01:39:48.000] Not everything you see on the internet is true.
+- [01:39:51.360] Particularly now with AI,
+- [01:39:53.980] it is very easy to manipulate a photo or a video.
+- [01:39:58.290] In fact, it's really the only thing I know how to do on AI
+- [01:40:01.110] is to take a photograph and say, please,
+- [01:40:03.060] add a flag behind me in the photograph.
+- [01:40:06.450] I just had a very nice photograph taken
+- [01:40:08.210] where we're all in black tie, but there was a car behind us.
+- [01:40:11.300] I said. Please put us in front of a palace.
+- [01:40:13.350] And all of a sudden, I had a photograph,
+- [01:40:14.730] the same photograph, we're standing in front a palace,
+- [01:40:16.680] I mean, you can do lots of fun things,
+- [01:40:18.900] but that photograph is actually fake, it never existed.
+- [01:40:22.480] So I just think it's important for our children
+- [01:40:24.790] to understand the possibility for manipulation.
+- [01:40:29.800] And obviously, they have to be protected,
+- [01:40:33.420] know how to protect their data,
+- [01:40:34.920] make sure that they don't communicate with people
+- [01:40:37.220] who could be dangerous, so that these tools,
+- [01:40:41.400] really fulfill their great potential.
+- [01:40:43.710] I think our job is to teach our young people to think
+- [01:40:48.040] independently and really build, use these products,
+- [01:40:55.600] not just consume these products unthinkingly.
+- [01:40:59.330] So I think that the first lady's point is that digital literacy
+- [01:41:04.330] should supplement and supplant actual literacy,
+- [01:41:09.460] not, you know, you should supplement it,
+- [01:41:13.320] but ultimately you still need actual literacy.
+- [01:41:16.560] I mean, nothing is going to ever replace that.
+- [01:41:20.980] And critical thinking and creativity,
+- [01:41:23.740] those are the hallmarks
+- [01:41:25.070] that I think we need to make sure our children
+- [01:41:27.880] don't lose as they get sucked into the world of these phones.
+- [01:41:32.150] As our First Lady said recently in a national address
+- [01:41:35.580] from the White House. Choose to let your imagination
+- [01:41:39.510] drive your intellectual progress.
+- [01:41:41.720] Never use AI as a quick solution.
+- [01:41:44.890] Be intellectually honest with yourself.
+- [01:41:47.260] Use AI as tool,
+- [01:41:49.710] but do not let it replace your personal intelligence.
+- [01:41:53.370] And actually, I read just something the other day
+- [01:41:55.270] that somebody was talking
+- [01:41:56.480] to a very accomplished college student from Stanford.
+- [01:42:00.200] And that student couldn't even finish sentences
+- [01:42:02.520] because he had gotten so used to working with AI
+- [01:42:05.880] that it was a little bit alarming.
+- [01:42:08.180] So again, this is happening in real time.
+- [01:42:11.920] And I think before turning the floor
+- [01:42:14.210] over to our distinguished guests,
+- [01:42:16.720] we just want to, I want to say that the United States
+- [01:42:19.040] is committed to advancing digital literacy
+- [01:42:23.210] as a cornerstone of our diplomatic
+- [01:42:25.360] and development efforts,
+- [01:42:26.960] working with partners to share best practices
+- [01:42:29.870] and support teacher training.
+- [01:42:31.250] So we're very eager to hear what our.
+- [01:42:34.180] Distinguished guests have to say in this panel
+- [01:42:36.430] and I wish by the way we could have everyone here
+- [01:42:38.410] I see we have a number of people who have been slotted to speak
+- [01:42:42.270] I wish we could've opened this up
+- [01:42:43.870] so that everybody could speak.
+- [01:42:45.180] These are really important issues
+- [01:42:46.670] and I just want to thank both the speakers
+- [01:42:48.750] and those who are in the audience today
+- [01:42:52.300] for their attendance. Thank you very much.
+- [01:42:54.820] (applause)
+- [01:42:57.110] Monica Crowly: Thank you, Mr. Deputy Secretary.
+- [01:42:59.130] For our first speaker on this topic,
+- [01:43:01.670] I would now like to call on the spouse
+- [01:43:03.890] of the Prime Minister of Belize, Her Excellency Rosana Briseño.
+- [01:43:10.700] Rosana Briseño: Excellencies, distinguished leaders,
+- [01:43:12.840] colleagues, and friends,
+- [01:43:15.080] allow me to begin by extending my sincere appreciation
+- [01:43:18.990] to the First Lady of the United States,
+- [01:43:21.510] Melania Trump, for convening this dialog
+- [01:43:25.070] and for ensuring that the well-being of children
+- [01:43:28.170] remains at the center of our global priorities.
+- [01:43:32.930] Belize definitely supports this initiative.
+- [01:43:36.780] Across the world,
+- [01:43:38.030] we are witnessing an unprecedented transformation
+- [01:43:42.340] in how children learn, connect, and grow.
+- [01:43:46.820] In Belize, we strongly believe
+- [01:43:49.590] that investing in children's education
+- [01:43:52.840] and well-being is one of the most powerful ways
+- [01:43:56.200] to build resilient societies.
+- [01:43:59.070] For us, the question is not simply
+- [01:44:02.230] how technology can enhance education,
+- [01:44:05.890] but how it can empower and unlock every child's potential.
+- [01:44:12.080] With this vision in mind, the Ministry of Education,
+- [01:44:14.610] Culture, Science, and Technology continues to advance efforts
+- [01:44:19.020] to integrate technology into classrooms,
+- [01:44:21.740] strengthen the digital skills of both teachers and students,
+- [01:44:25.680] and improve the quality of education nationwide.
+- [01:44:30.720] These efforts are guided by the Belize Education Sector
+- [01:44:34.010] and are grounded in a national vision.
+- [01:44:37.200] Of making education work for Belize.
+- [01:44:41.040] Through investments in STEAM education, coding programs,
+- [01:44:45.310] robotics training, and digital learning platforms,
+- [01:44:49.040] Belize is taking deliberate steps to prepare young people
+- [01:44:52.860] for the vast opportunities and challenges of the digital age.
+- [01:44:58.290] Programs such as the Skills for the Future Initiative,
+- [01:45:02.790] supported by the Inter-American Development Bank.
+- [01:45:06.260] Have introduced digital learning platforms
+- [01:45:09.150] like Doodle Learning Software,
+- [01:45:11.190] which currently supports more than 1,200 students
+- [01:45:15.030] in 32 schools, with additional students
+- [01:45:18.000] expected to join in this academic year.
+- [01:45:23.570] Likewise, through the FIFA Foundation Digital
+- [01:45:26.310] Education Program,
+- [01:45:28.050] approximately 200 teachers have been trained
+- [01:45:31.070] in computer science fundamentals,
+- [01:45:33.650] enabling them to introduce coding.
+- [01:45:36.280] And computational thinking in the classroom.
+- [01:45:40.530] Last year, 25 primary schools integrated the Code.org
+- [01:45:45.070] curriculum
+- [01:45:46.340] through the Code Caribbean Computer Science Program,
+- [01:45:50.170] allowing students from grades four through eight
+- [01:45:52.870] to develop digital skills in coding and robotics.
+- [01:45:57.080] And because we recognize that connectivity
+- [01:45:59.560] is not simply a convenience, but a bridge to opportunity,
+- [01:46:03.980] ensuring equitable access to technology
+- [01:46:07.570] remains our national priority.
+- [01:46:10.820] With this, Belize has made significant progress
+- [01:46:14.260] in expanding digital connectivity within schools.
+- [01:46:18.850] Through the ministry's ConnectED program,
+- [01:46:21.640] high-speed internet has already been delivered
+- [01:46:24.500] to 75 percent of Belize's students and teachers.
+- [01:46:28.920] More than 66,000 students and nearly 4,000 educators.
+- [01:46:34.980] For us that goes a long way
+- [01:46:36.220] because it's only about almost 400,000 of Austin Belize.
+- [01:46:42.880] This initiative will continue to expand,
+- [01:46:45.040] bringing 70 additional schools online
+- [01:46:48.980] and increasing the total number of connected schools
+- [01:46:52.020] to 283, ultimately reaching more than 87,000 students
+- [01:46:57.880] across the country.
+- [01:47:00.070] In 2024 the Ministry of Education
+- [01:47:03.910] launched the 501 Academy website,
+- [01:47:07.300] featuring digital resources and tools for teachers and students.
+- [01:47:12.170] This includes three AI chatbots,
+- [01:47:16.620] the 502 Teaching Assistant, the 503 Historian,
+- [01:47:20.720] and the Creole 501 Teaching Assistant.
+- [01:47:24.690] Creole is a dialect that we have in Belize.
+- [01:47:27.380] Instead of saying good morning, we will tell you good morning.
+- [01:47:33.000] So these were designed to integrate
+- [01:47:35.120] artificial intelligence
+- [01:47:36.420] into the classroom and enhance teaching
+- [01:47:38.380] and learning specifically for the Belizean context.
+- [01:47:43.050] Over the past two years,
+- [01:47:44.330] the ministry has also distributed
+- [01:47:45.980] over 7,000 Chromebooks to students across more than
+- [01:47:49.740] 165 primary and secondary schools,
+- [01:47:53.730] helping to bridge the digital divide
+- [01:47:56.060] and enabling students to access digital textbooks,
+- [01:47:59.810] learning portals and educational.
+- [01:48:02.320] Resources. Beyond the classroom,
+- [01:48:04.940] Beliz is also creating spaces where innovation
+- [01:48:07.990] and creativity can flourish.
+- [01:48:10.840] The ministry has launched seven new spaces across the country,
+- [01:48:15.470] transforming public spaces into innovation hubs
+- [01:48:19.130] where young people can experiment with technology,
+- [01:48:22.480] develop digital skills, and collaborate on new ideas.
+- [01:48:27.480] These spaces were intentionally designed to be inclusive.
+- [01:48:32.610] Welcoming and child-friendly environments
+- [01:48:35.500] that encourage creativity, curiosity,
+- [01:48:38.790] and lifelong learning.
+- [01:48:42.250] In February of this year, the Government of Belize,
+- [01:48:44.990] through the Ministry of E-Governance,
+- [01:48:47.220] inaugurated the Digital Literacy Training
+- [01:48:49.780] for Citizens Initiative.
+- [01:48:52.250] This initiative is designed to promote digital inclusion,
+- [01:48:56.700] enhance cybersecurity awareness,
+- [01:48:59.490] and equip Belizans of all ages with the essential skills
+- [01:49:03.530] required to effectively navigate
+- [01:49:06.520] an increasingly digital landscape.
+- [01:49:12.000] Excellencies, right now technology
+- [01:49:15.230] is transforming the world our children will inherit.
+- [01:49:19.430] But if we want to truly foster the future together,
+- [01:49:22.850] we must ensure that innovation
+- [01:49:25.230] does not deepen existing inequalities.
+- [01:49:29.650] Ultimately, the future we seek for our children
+- [01:49:32.750] must also be guided by inclusion,
+- [01:49:35.240] responsibility, and compassion.
+- [01:49:38.430] Therefore, when we invest in digital access,
+- [01:49:42.580] we must also invest in digital literacy.
+- [01:49:46.450] When we introduce innovation,
+- [01:49:48.420] we must ensure safety and protection.
+- [01:49:51.990] And when we create opportunity,
+- [01:49:54.160] we must make sure that no child is left behind.
+- [01:49:57.360] Thank you.
+- [01:49:58.600] (applause)
+- [01:50:01.530] Monica Crowly: Thank you so much, madam.
+- [01:50:03.460] Now I am pleased to welcome to deliver remarks
+- [01:50:06.480] the First Lady of the Republic of the Gambia,
+- [01:50:09.030] Her Excellency Fatoumatata Barbaro.
+- [01:50:13.910] Fatoumatata Barbaro: Excellencies,
+- [01:50:15.120] ladies and gentlemen, good afternoon.
+- [01:50:18.020] It is a pleasure to join you
+- [01:50:19.890] in this inaugural global coalition meeting.
+- [01:50:24.900] I extend my sincere appreciation to our Excellency,
+- [01:50:28.570] Madam Melania Trump,
+- [01:50:30.010] the First Lady of the United States of America,
+- [01:50:32.900] for her leadership in conveying this important dialog.
+- [01:50:36.530] Today, we address an issue that will define our future.
+- [01:50:41.140] The well-being of our children
+- [01:50:42.780] in a rapidly evolving digital world.
+- [01:50:46.160] Technology is transforming how children learn and connect.
+- [01:50:50.790] For countries like the Gambia,
+- [01:50:53.030] this presents both opportunity and responsibilities.
+- [01:50:57.300] Opportunity to expand access to education and responsibility
+- [01:51:01.890] to ensure digital spaces are safe, inclusive
+- [01:51:07.240] and empowering. In the Gambia.
+- [01:51:10.010] We view investment in children
+- [01:51:11.910] as central to national development.
+- [01:51:14.740] Education remains the cornerstone of economic growth,
+- [01:51:18.540] poverty reduction, and social stability.
+- [01:51:21.990] Our education reforms focus on equitable access,
+- [01:51:25.680] quality learning, strengthened teacher training,
+- [01:51:29.250] expanded STEM education,
+- [01:51:32.380] and integration of digital tools into classrooms.
+- [01:51:36.190] However, challenges remain inclusive.
+- [01:51:41.230] Including limited infrastructure,
+- [01:51:43.940] qualified teacher shortage,
+- [01:51:45.340] and gap in digital literacy, among others.
+- [01:51:49.160] Innovation such as artificial intelligence
+- [01:51:52.260] offers potential to address these gaps through personalized
+- [01:51:56.750] and scalable learning,
+- [01:51:58.700] provided that they are responsible
+- [01:52:01.200] designed to adapt to the local content
+- [01:52:04.130] and supported by sustained investment.
+- [01:52:07.880] At this time online safety must remain a global priority.
+- [01:52:15.150] Children face risks, including cyberbullying,
+- [01:52:18.440] exploitation, and misinformation.
+- [01:52:21.400] The Gambia Support Child Safe Digital Platforms
+- [01:52:25.360] is committed to strengthening our child protection frameworks
+- [01:52:29.280] and calls for collective global actions
+- [01:52:32.050] to safeguard children in a digital space.
+- [01:52:35.630] It is equally important to recognize
+- [01:52:37.550] that access to technology alone is not enough.
+- [01:52:41.080] And that we must equip children with digital skills
+- [01:52:44.930] to participate confidently
+- [01:52:46.870] and creatively in the digital economy.
+- [01:52:49.960] In the Gambia, we are expanding digital literacy
+- [01:52:53.190] in our national curricula and creating opportunities
+- [01:52:56.490] through e-learning, platforms, and school management systems.
+- [01:53:01.940] In particular, we committed to empowering girls
+- [01:53:04.810] through STEM education, which is critical to equity.
+- [01:53:09.520] Innovation and reducing vulnerability and persistence
+- [01:53:13.260] barriers to education, such as child marriage.
+- [01:53:16.970] Ladies and gentlemen, despite our efforts,
+- [01:53:19.920] no country can achieve this transformation
+- [01:53:23.510] into the digital world alone.
+- [01:53:26.150] Strong global partnerships are essential
+- [01:53:29.190] to ensure technology are accessible, affordable,
+- [01:53:31.990] and responsive to local realities.
+- [01:53:37.360] Through leadership and innovation,
+- [01:53:39.910] we can build education systems that are inclusive,
+- [01:53:43.750] strong and capable of preparing children
+- [01:53:47.040] everywhere for the opportunities of the digital age.
+- [01:53:52.220] As first ladies and as mothers to our children
+- [01:53:56.540] across the world,
+- [01:53:57.760] the future is shaped by the choices we make today.
+- [01:54:03.250] The Gambia remains committed to advancing child
+- [01:54:07.010] well-being in the digital age, and I am confident that together
+- [01:54:11.090] we can ensure that every child can learn, grow,
+- [01:54:14.650] and strive in our safe, safe digital future.
+- [01:54:19.330] I thank you.
+- [01:54:20.620] (applause)
+- [01:54:24.010] Monica Crowly: Thank you, madam.
+- [01:54:25.790] Now I'm very pleased to welcome the First Lady of Montenegro,
+- [01:54:29.120] Mrs. Milena Milotovic.
+- [01:54:34.010] Milena Milotovic: Thank you very much.
+- [01:54:36.220] Esteemed first ladies and gentlemen, dear partners,
+- [01:54:40.450] it is a great honor for Montenegro
+- [01:54:42.340] to participate in this summit
+- [01:54:44.430] and to contribute to global dialog
+- [01:54:46.490] on how technology can help children learn
+- [01:54:49.530] and grow safely in the digital age.
+- [01:54:52.340] Let me therefore thank to our host,
+- [01:54:54.480] the First Lady of the United States
+- [01:54:56.510] for having us here today. In Montenegro,
+- [01:55:00.450] we believe that digital transformation in education
+- [01:55:03.380] is not only about technology. It is about empowering children
+- [01:55:08.090] with the skills, creativity and confidence
+- [01:55:11.750] they need to shape their future. To support this vision,
+- [01:55:16.990] Montenegro is focusing on three key priorities.
+- [01:55:20.970] Strengthening digital infrastructure in schools,
+- [01:55:24.240] developing digital competencies for teachers,
+- [01:55:27.750] and creating a comprehensive and inclusive
+- [01:55:30.730] digital learning ecosystem.
+- [01:55:34.170] One of the most important initiatives
+- [01:55:36.170] within this transformation is the digital school platform.
+- [01:55:40.220] What started as a response to the challenges
+- [01:55:42.960] of the COVID-19 pandemics has today
+- [01:55:45.760] evolved into a national digital learning environment,
+- [01:55:49.540] providing thousands of online courses.
+- [01:55:53.890] At the same time,
+- [01:55:55.170] We are transforming schools through ad tech laboratories.
+- [01:55:58.990] These innovative learning spaces
+- [01:56:01.290] allow students to explore robotics,
+- [01:56:04.650] programming, and artificial intelligence.
+- [01:56:09.020] But we all know that technology alone
+- [01:56:11.500] cannot transform education. Teachers play the central role.
+- [01:56:17.300] That is why Montenegro has developed a national framework
+- [01:56:20.820] for digital competencies for teachers.
+- [01:56:23.470] And launch training programs.
+- [01:56:26.030] Teachers gain skills and confidence
+- [01:56:28.690] needed to integrate digital tools into everyday learning.
+- [01:56:34.160] We also recognize that digital transformation
+- [01:56:37.400] must be inclusive.
+- [01:56:39.650] Our initiatives aim to ensure that every child,
+- [01:56:43.590] regardless of background, gender, or ability,
+- [01:56:47.770] has access to digital learning opportunities.
+- [01:56:52.020] In particular, we encourage girls
+- [01:56:54.640] to participate in STEM programs,
+- [01:56:57.420] and I am personally very proud of it,
+- [01:57:00.510] and to see themselves as future innovators and leaders.
+- [01:57:05.420] Finally, as we introduced advanced technologies
+- [01:57:08.540] into education,
+- [01:57:09.740] we prioritized digital safety and ethical use of technology.
+- [01:57:15.440] Dear friends, Montenegro looks forward
+- [01:57:18.480] to working together with all of you.
+- [01:57:20.950] Our global partners through this coalition.
+- [01:57:24.100] By sharing knowledge, building partnerships,
+- [01:57:27.210] and supporting innovation, we can ensure that technology
+- [01:57:31.110] truly serves the best interests of every child.
+- [01:57:34.650] Thank you.
+- [01:57:35.900] (applause)
+- [01:57:39.490] Monica Crowly: Thank you so much, Madam.
+- [01:57:41.090] Now I am pleased to introduce
+- [01:57:42.660] the First Lady of the Republic of Paraguay,
+- [01:57:45.530] Her Excellency Leticia Ocampos de Pena.
+- [01:57:50.330] Leticia Ocampos de Pena: Good morning,
+- [01:57:51.560] muy buenos dias a todos. I will speak in Spanish also.
+- [01:57:57.660] Interpreter: I would like to extend my greetings
+- [01:58:00.400] to Her Excellency Melania Trump, First Lady of the U.S.,
+- [01:58:04.020] and I would to thank her for bringing us together.
+- [01:58:07.400] First ladies, first gentlemen,
+- [01:58:09.240] and representatives of all countries present,
+- [01:58:12.460] it is an honor to be a part of this meeting,
+- [01:58:15.770] and I am thankful for the invitation
+- [01:58:18.080] to be part of the Fostering the Future Together Coalition,
+- [01:58:21.200] which brings us together to work together
+- [01:58:23.360] so that children grow up and develop.
+- [01:58:28.080] Holistically in a safe digital environment.
+- [01:58:30.560] In Paraguay, we're implementing computer labs and robotics labs
+- [01:58:35.630] in hundreds of schools to develop
+- [01:58:38.350] computational thinking and technological skills.
+- [01:58:42.260] With our connected youth program,
+- [01:58:45.550] we will connect thousands of young people in AI,
+- [01:58:52.250] promoting inclusion and opportunities.
+- [01:58:55.250] We understand the importance of responsibly using technology.
+- [01:58:59.840] That is why we created a law
+- [01:59:02.270] to regulate the use of mobile devices in schools.
+- [01:59:06.670] We are also investing in training teachers
+- [01:59:10.550] to strengthen the role
+- [01:59:11.930] as guides in using information safely and ethically.
+- [01:59:17.960] We also know that technology in and of itself is not enough.
+- [01:59:23.360] In order to learn, a child needs to be well fed and cared for.
+- [01:59:27.500] We have a zero hunger program in schools
+- [01:59:29.480] that guarantees daily meals to more than one million children.
+- [01:59:33.790] This improves attendance, performance,
+- [01:59:37.190] and remaining in school. Along these lines,
+- [01:59:39.550] we have a program called Seize of the Future.
+- [01:59:42.390] This is with families for the first 1,000 days
+- [01:59:47.340] of a children's life,
+- [01:59:49.010] promoting early education for all children.
+- [01:59:53.030] Early education and working along with families
+- [01:59:56.550] is of utmost importance.
+- [01:59:58.220] We want to build Foundation for all human beings
+- [02:00:01.930] so that technology has fertile ground in which to grow.
+- [02:00:06.510] Paraguay is promoting a law for the holistic protection
+- [02:00:10.710] of the rights of children in the digital space.
+- [02:00:13.700] This is based on the principles of security from its design.
+- [02:00:18.400] This is complemented by a national observatory,
+- [02:00:22.030] a strategic intelligence center
+- [02:00:26.240] that assesses such as cyberbullying.
+- [02:00:29.840] And there is quick intervention facing digital threats
+- [02:00:35.110] to strengthen the safety of our children online.
+- [02:00:41.190] Fostering the future is key for international integration.
+- [02:00:45.550] Digital technology has no borders,
+- [02:00:48.100] and protecting children must be a shared global responsibility.
+- [02:00:52.780] In Paraguay, we reaffirm our commitment to working together
+- [02:00:56.140] so that technology translates into more opportunities,
+- [02:01:00.190] more education, and more protection for our children.
+- [02:01:03.060] Thank you all very much.
+- [02:01:04.950] (applause)
+- [02:01:07.090] Monica Crowley: Madam, thank you very much.
+- [02:01:10.880] Unidentified: (speaking Spanish) .
+- [02:01:29.640] Interpreter: I'm going to speak in French. Thank you.
+- [02:01:33.520] Madam First Lady Melania Trump,
+- [02:01:37.370] Madam First Lady's distinguished guests, dear partners,
+- [02:01:43.040] it's an honor for me to represent Senegal
+- [02:01:46.210] within this world coalition, fostering the future together.
+- [02:01:52.900] I would like to thank Madam First Lady Melana Trump
+- [02:01:57.020] for this initiative.
+- [02:01:59.150] That places technological innovation to the service
+- [02:02:06.310] for the most precious treasures of our nations, our children.
+- [02:02:11.090] Senegal is a young, dynamic nation where what is digital
+- [02:02:16.920] is already a motor for social transformation.
+- [02:02:20.240] However, we are convinced that technology
+- [02:02:22.750] must not be a privilege,
+- [02:02:24.720] but rather a right for each child.
+- [02:02:27.740] Whether they grow in the streets of Dakar
+- [02:02:30.710] or in the most remote villages of our rural universe.
+- [02:02:36.790] Artificial intelligence and EdTech tools
+- [02:02:40.490] must not just be gadgets,
+- [02:02:43.080] but they must be levers for equity.
+- [02:02:49.000] Our students must not be content just to learn what is digital.
+- [02:02:57.170] They're already developing concrete solutions
+- [02:03:01.170] for our country.
+- [02:03:03.490] Our engagement within this coalition
+- [02:03:08.210] is thus based on profound belief that artificial intelligence
+- [02:03:14.520] and new technologies are levers for equality.
+- [02:03:18.930] They allow us to break down barriers such as distance
+- [02:03:24.020] and gives to each student in Senegal
+- [02:03:28.380] the same chances of success as any child in the world.
+- [02:03:36.090] AI for inclusion, imagine learning systems
+- [02:03:41.020] that are adapted to the learning rate of each child,
+- [02:03:46.180] whether they be in an urban area or a remote village.
+- [02:03:52.030] Senegal has a new platform for ethics in education.
+- [02:04:04.970] A skills center for where each child
+- [02:04:11.860] should have the know-how to deal with these technologies.
+- [02:04:18.510] Digital literacy.
+- [02:04:19.730] We do not wish only for our children to use technology.
+- [02:04:24.210] We wish for them to understand it,
+- [02:04:26.890] create a generation of creators,
+- [02:04:29.410] and not just of simple consumers.
+- [02:04:32.170] This is our priority.
+- [02:04:34.030] This is why we have integrated digital literacy
+- [02:04:42.940] for the youngest
+- [02:04:44.460] so that each girl and each boy can learn.
+- [02:04:48.700] Grow and prosper.
+- [02:04:51.520] Ladies and gentlemen, the digital world has no borders.
+- [02:04:56.560] No country can protect itself on its own.
+- [02:04:59.380] It's through solidarity and sharing of our best initiatives
+- [02:05:04.270] that we will build this safe and bright future
+- [02:05:10.660] that we call our future. Thank you.
+- [02:05:12.880] (applause)
+- [02:05:14.490] Monica Crowly: Merci, Madame.
+- [02:05:16.660] And now I am delighted to introduce
+- [02:05:19.450] the First Lady of the Republic of Seychelles,
+- [02:05:22.860] Her Excellency, Veronique Eminique.
+- [02:05:29.370] Veronique Eminique: Good afternoon,
+- [02:05:31.160] first ladies, first gentlemen.
+- [02:05:34.220] It is an honor to be addressing you today at this global summit
+- [02:05:37.940] as a first lady of the Republic of Seychelles.
+- [02:05:41.330] As parents and women empowered to advocate
+- [02:05:44.170] for those most vulnerable,
+- [02:05:46.410] we can indeed work together to build dreams for our children
+- [02:05:52.020] in the transformative technology and innovation space.
+- [02:05:55.540] I am certain that what we are seeing today
+- [02:05:57.780] in innovation is just the beginning.
+- [02:06:00.810] Education ensures that every child can live with dignity,
+- [02:06:04.260] opportunity, and an equal voice in shaping the future.
+- [02:06:08.350] It is the foundation of a nation's success
+- [02:06:11.290] and its prosperity. Education is a key.
+- [02:06:15.250] And innovative technology, the new pathway.
+- [02:06:19.020] Seychelles, a small island state,
+- [02:06:20.810] has made meaningful progress
+- [02:06:22.420] in integrating digital technologies.
+- [02:06:25.070] Into education through initiatives
+- [02:06:27.100] such as smart classrooms, digital learning platforms
+- [02:06:30.550] for both teachers and pupils, robotics programs,
+- [02:06:33.970] and emerging AI-supported learning tools
+- [02:06:36.630] to encourage learning. Through such global coalition,
+- [02:06:40.780] we could also review what we have done so far,
+- [02:06:43.540] and we are just to ensure we leave no child behind,
+- [02:06:46.370] including those in orphanages, exceptional schools
+- [02:06:49.760] in and on all our islands.
+- [02:06:52.660] Boys Connect is an annual initiative from my office,
+- [02:06:56.330] a three-day digital camp over the school holidays
+- [02:06:59.270] to help address certain deficiencies
+- [02:07:01.690] and empower our young boys for more positive masculinity
+- [02:07:05.780] and emotional resilience. It is through positive exposures
+- [02:07:10.040] and adventures that we improve the chance
+- [02:07:12.810] of our next generation being more informed
+- [02:07:16.680] and thus better able to navigate challenges
+- [02:07:19.210] and build healthy relationships as adults.
+- [02:07:22.500] In this digital era where gender-based violence
+- [02:07:25.430] is being aided and escalated using technology,
+- [02:07:28.840] we need to ensure mandatory digital literacy,
+- [02:07:32.590] not only for our children, but for parents, teachers,
+- [02:07:36.210] and caregivers to support responsible
+- [02:07:39.190] and safe digital learning.
+- [02:07:42.200] We need to insure that technology improves
+- [02:07:44.610] rather than diminishes our children's critical thinking.
+- [02:07:48.240] Age appropriate content through some sort of quality control
+- [02:07:52.050] and legislative frameworks.
+- [02:07:54.270] Cultural and social context so values are not eroded.
+- [02:07:58.260] Localize the content and support to remove language
+- [02:08:01.640] or cultural barriers.
+- [02:08:03.550] More cybersecurity awareness workshops
+- [02:08:05.950] at community or school level
+- [02:08:07.940] as part of the support for digital literacy.
+- [02:08:11.840] Lest we forget, as parents,
+- [02:08:14.160] handheld devices should never replace laughter and fun.
+- [02:08:18.050] Complements and not replace our judgment,
+- [02:08:20.590] nor our parental roles,
+- [02:08:22.870] nor should it push our children to avoid human touch
+- [02:08:26.370] and lose out on emotional resilience.
+- [02:08:30.770] I will end here with a personal commitment
+- [02:08:33.470] to see the advancement of education
+- [02:08:35.440] and learning at all levels and ages in Seychelles,
+- [02:08:38.690] as we also advocate for stationary development goal
+- [02:08:41.640] number four on quality education.
+- [02:08:44.710] I thank you, Madam First Lady Melania Trump
+- [02:08:47.480] for taking such bold steps in encouraging us
+- [02:08:50.030] to come together to promote digital education
+- [02:08:52.970] for all through this global coalition.
+- [02:08:55.470] Thank you.
+- [02:08:56.760] (applause)
+- [02:09:00.590] Monica Crowly: And lastly, in this topic,
+- [02:09:03.580] I am pleased to invite the First Lady
+- [02:09:05.990] of the Plurinational State of Bolivia,
+- [02:09:08.870] Her Excellency Maria Elena Orquide.
+- [02:09:17.180] Maria Elena Orquide: I would like to express
+- [02:09:18.680] my heartfelt gratitude
+- [02:09:20.960] to the First Lady, Melania Trump,
+- [02:09:23.170] for bringing us together in such an important initiative.
+- [02:09:27.070] I would also like to extend a warm greeting
+- [02:09:30.540] to all the first spouses present here today,
+- [02:09:34.190] and Deputy Secretary of State Chris Landau.
+- [02:09:40.200] It is an honor to represent Bolivia today.
+- [02:09:43.500] Interpreter: It is an honor to represent Bolivia here today.
+- [02:09:46.640] Maria Elena Orquide: A country that is diverse, resilient,
+- [02:09:51.120] and full of history, but above all,
+- [02:09:54.320] full of people who move forward every day
+- [02:09:57.170] with strength and dignity.
+- [02:09:59.800] Bolivia is not just a place on the map.
+- [02:10:02.780] It is a living reality shaped by families who struggle,
+- [02:10:06.470] by children who dream big,
+- [02:10:08.600] and by women who carry their homes, their communities,
+- [02:10:12.380] and their future on their shoulders.
+- [02:10:15.290] And it is from that real Bolivia.
+- [02:10:17.750] Not from theory, that I want to speak to you today.
+- [02:10:21.820] Today the world talks about artificial intelligence,
+- [02:10:25.350] innovation, and the future. But Bolivia, for many,
+- [02:10:30.420] the conversation starts much earlier.
+- [02:10:33.460] It starts with something more basic, more urgent, more human.
+- [02:10:38.350] It starts a simple question, how do we access?
+- [02:10:43.620] Because for thousands of children, young people,
+- [02:10:46.700] and- women,
+- [02:10:48.290] the challenge is not how to use the technologies of the future,
+- [02:10:52.010] it is whether they will ever be able to touch them at all.
+- [02:10:56.080] In our country, having a device or access to the internet
+- [02:11:00.470] is still, for many families, a luxury.
+- [02:11:03.920] There are homes where the digital world
+- [02:11:05.980] is not a part of daily life, not because they do not want it,
+- [02:11:10.700] but because they simply cannot afford it.
+- [02:11:13.970] And that is where this stops being a technological issue
+- [02:11:17.760] and becomes something much deeper.
+- [02:11:19.990] It becomes a question of dignity,
+- [02:11:22.570] of fairness, of opportunity.
+- [02:11:25.940] Because when a child grows up with access,
+- [02:11:28.600] they do not just lose tools.
+- [02:11:31.580] They lose confidence. They lose possibilities.
+- [02:11:35.780] They risk losing their future.
+- [02:11:38.630] That is why in Bolivia we hold a clear conviction.
+- [02:11:44.730] Technology cannot become a new form of exclusion.
+- [02:11:48.760] It must become a bridge, a bridge forward,
+- [02:11:52.570] a bridge toward equality,
+- [02:11:54.740] and that bridge begins with the most urgent step, access.
+- [02:12:01.100] Today, we are supporting initiatives
+- [02:12:03.560] such as One Laptop Per Child,
+- [02:12:06.120] together with partners like SEAL,
+- [02:12:08.510] Consejo Empresarial de America Latina,
+- [02:12:11.730] Educa Bolivia,
+- [02:12:13.390] and aulas conectadas to place digital tools
+- [02:12:17.300] in the hands of children who might otherwise be left behind.
+- [02:12:22.570] But we also understand something essential.
+- [02:12:25.810] A device alone does not change a life.
+- [02:12:28.760] What changes a life is what comes after.
+- [02:12:31.990] Learning, guidance, the confidence believe I can.
+- [02:12:37.790] That is why we support programs like crack the code
+- [02:12:41.750] where children, young people,
+- [02:12:43.240] and women are learning not only how to use technology
+- [02:12:46.920] but how to understand it, create it, and grow through it.
+- [02:12:52.160] They learn coding, computational thinking,
+- [02:12:54.890] artificial intelligence, English.
+- [02:12:58.780] But more importantly, they learn something deeper,
+- [02:13:01.920] that they are capable.
+- [02:13:03.870] And when a person understands that,
+- [02:13:05.720] everything begins to change.
+- [02:13:07.920] Doors begin to open, opportunities expand.
+- [02:13:11.840] Independence becomes possible. At the same time,
+- [02:13:16.040] we know that progress must be guided by responsibility.
+- [02:13:20.880] We cannot talk about technology without talking about safety.
+- [02:13:25.390] Without digital education,
+- [02:13:27.600] without responsible use of artificial intelligence,
+- [02:13:31.860] technology must empower, but it must also protect.
+- [02:13:36.290] And this is not a challenge any country can face alone.
+- [02:13:40.430] Governments.
+- [02:13:41.650] Educators, families, civil society,
+- [02:13:45.720] and the private sector must move forward together.
+- [02:13:49.750] Because if we do not,
+- [02:13:51.320] innovation risks remain in the hands of a few,
+- [02:13:54.710] and that cannot be the future we build.
+- [02:13:58.130] Our message is simple.
+- [02:14:00.180] In countries where so many still lack the most basic tools,
+- [02:14:04.770] closing the digital gap is not secondary, it is essential.
+- [02:14:11.060] Because every child deserves the chance to learn,
+- [02:14:14.120] every young person deserves the chance to grow,
+- [02:14:17.170] and every woman deserves the opportunity to move forward
+- [02:14:20.750] with dignity, tools, and hope. And when we make that possible,
+- [02:14:25.710] we are not just expanding access,
+- [02:14:28.260] we're building the future for our families,
+- [02:14:31.420] for our communities, and for our country.
+- [02:14:34.440] Thank you very much.
+- [02:14:35.940] (applause)
+- [02:14:38.330] Monica Crowly: Thank you, Madam, and thank you to all of you
+- [02:14:40.800] for this, again, a very important conversation,
+- [02:14:43.630] this one on digital literacy and skills.
+- [02:14:46.530] I want to thank my friend and colleague,
+- [02:14:48.170] Deputy Secretary Chris Landau.
+- [02:14:50.230] Did you want to make a final concluding remark?
+- [02:14:52.110] Christopher Landau: Yeah, let me just say,
+- [02:14:53.340] yesterday I had the honor of chairing
+- [02:14:55.290] the United Nations Security Council
+- [02:14:58.100] and I think, frankly,
+- [02:14:59.730] the discussions that we're having here today
+- [02:15:02.030] are no less impactful and forceful.
+- [02:15:06.470] And so I just want to say I learned a lot from hearing
+- [02:15:11.360] about the innovative programs in different countries.
+- [02:15:14.840] I think there's not necessarily a right or wrong answer to this.
+- [02:15:18.250] Every country is going to have its own.
+- [02:15:20.930] Challenges and opportunities
+- [02:15:22.540] and I think we can all learn from each other so again
+- [02:15:25.070] I am very grateful to all of you
+- [02:15:27.750] who participated in this in this panel and again
+- [02:15:31.300] thanks to everybody for being here today.
+- [02:15:32.890] Appreciate it.
+- [02:15:34.100] Monica Crowly: Thank you very much.
+- [02:15:35.430] (applause)
+- [02:15:38.140] Monica Crowley: Okay, ladies and gentlemen,
+- [02:15:39.440] please welcome the Chairman of the Federal Trade Commission,
+- [02:15:42.780] Andrew Ferguson,
+- [02:15:44.010] to introduce our fourth and final topic today.
+- [02:16:02.320] Andrew Ferguson: Good afternoon, Ambassador Crowley.
+- [02:16:05.110] I am incredibly grateful to the First Lady
+- [02:16:07.250] of the United States, Mrs. Melania Trump,
+- [02:16:09.280] for this invitation.
+- [02:16:11.030] And I am extremely pleased to be here
+- [02:16:13.210] among this assemblage of prestigious guests
+- [02:16:16.760] from across the world.
+- [02:16:18.450] And I'm very grateful for the opportunity to hear
+- [02:16:20.390] from all of you about how you are addressing the prospects
+- [02:16:24.840] and challenges of AI in your unique countries,
+- [02:16:27.900] for your unique peoples, and your unique institutions.
+- [02:16:31.240] But also bearing in mind that these prospects and challenges
+- [02:16:34.190] are ones we share in common as mankind.
+- [02:16:38.260] The AI age offers immense benefits for learning,
+- [02:16:41.590] connection, communication, opportunity,
+- [02:16:44.420] but it also presents real challenges for child safety.
+- [02:16:49.060] Our children face serious risks
+- [02:16:50.830] when it comes to predatory behavior online
+- [02:16:52.780] and exposure to harmful content.
+- [02:16:55.730] Data is the necessary input for the digital age
+- [02:16:59.060] and for AI in particular. But our children and their data
+- [02:17:02.650] cannot become grist for the digital mill.
+- [02:17:05.660] The whole world has come to recognize
+- [02:17:07.650] that we must have different rules for our children online
+- [02:17:10.780] and for their data than we have for adults.
+- [02:17:14.340] After all, the purpose of innovation
+- [02:17:16.330] is not progress for progress's sake.
+- [02:17:19.360] The purpose of integration must be to promote
+- [02:17:21.420] the flourishing of all of the peoples of our nations,
+- [02:17:24.590] and especially our children.
+- [02:17:26.590] We cannot trade off our children's safety
+- [02:17:28.880] and well-being for innovation.
+- [02:17:32.400] At the same time, overly broad or poorly designed regulations
+- [02:17:36.720] risk stifling innovation,
+- [02:17:38.730] limiting access to beneficial information,
+- [02:17:41.590] infringing on free expression,
+- [02:17:43.600] and undermining parental authority
+- [02:17:45.170] by inserting government bureaucrats
+- [02:17:47.030] in the place of mothers and fathers.
+- [02:17:49.900] This is key. In our well-intentioned efforts
+- [02:17:53.130] to promote the safety of children,
+- [02:17:55.060] we cannot replace parents with governments.
+- [02:17:58.120] Instead, the government must come alongside parents
+- [02:18:01.250] and help them navigate the challenges of the internet
+- [02:18:04.060] and of artificial intelligence
+- [02:18:05.470] by making the best choices for their unique children.
+- [02:18:09.390] The goal of child online safety must be to empower parents,
+- [02:18:13.290] not to replace them.
+- [02:18:15.090] That is precisely the vision laid out by President Trump
+- [02:18:18.020] in his recently released AI framework
+- [02:18:20.610] and has been the vision guiding our enforcement work
+- [02:18:22.860] at the Federal Trade Commission. Here in the United States,
+- [02:18:27.970] President Trump signed into law the Take It Down Act,
+- [02:18:32.020] which was championed by the First Lady
+- [02:18:34.320] to protect children from non-consensual,
+- [02:18:36.620] intimate imagery online and deep fake abuse.
+- [02:18:40.750] I had one of the agencies
+- [02:18:42.050] charged with enforcing the Take it Down Act.
+- [02:18:44.490] And I can personally attest that the First Lady
+- [02:18:47.230] was the indispensable force behind this law's passage.
+- [02:18:51.380] Put simply, without her work,
+- [02:18:53.790] we would not have this landmark legislation.
+- [02:18:59.540] I urge every nation here to pursue balanced,
+- [02:19:02.670] pro-parent policies that confront harms
+- [02:19:05.500] without sacrificing the benefits of the digital age.
+- [02:19:09.050] Let us embrace innovation that enhances the well-being of all.
+- [02:19:13.250] Let us ensure that our children do not become
+- [02:19:15.210] a trade-off for technological progress.
+- [02:19:17.980] And let us ensure our policies empower parents
+- [02:19:21.070] rather than replace them.
+- [02:19:22.920] I look forward to our discussion. Thank you.
+- [02:19:25.330] (applause)
+- [02:19:27.650] Monica Crowly: Thank you, Chairman Ferguson.
+- [02:19:29.300] And for our first set of remarks on this subject,
+- [02:19:32.540] I would like to call upon the First Lady
+- [02:19:34.410] of the Republic of Ghana, Mrs. Lourdina Mahama.
+- [02:19:43.800] Lourdina Mahama: Thank you.
+- [02:19:45.450] Your Excellencies, invited guests,
+- [02:19:49.540] good afternoon to everyone. Thank you, Mrs. Trump,
+- [02:19:53.200] for bringing us together to discuss and commit
+- [02:19:57.020] to protecting children in our digital age.
+- [02:20:01.420] Allow me to share something personal.
+- [02:20:04.420] On the 6th of March,
+- [02:20:06.240] Ghana celebrated 69 years of independence.
+- [02:20:10.590] That day was also my birthday.
+- [02:20:13.380] I went online to read my messages.
+- [02:20:16.500] I must confess, I am an avid talker.
+- [02:20:21.270] I watch video after video because dancing,
+- [02:20:25.970] celebration in our Independence Day and Hathor's birthday
+- [02:20:31.430] wishes of hope and love. Many came from young people
+- [02:20:37.440] who could not attend our national celebrations,
+- [02:20:41.380] but technology gave them a voice.
+- [02:20:44.460] They stood confidently before their comrades,
+- [02:20:47.780] spoke with such grace, sent prayers and encouragement
+- [02:20:51.890] from every corner of Ghana.
+- [02:20:55.000] Indeed, our world has changed dramatically,
+- [02:20:58.790] especially for our children.
+- [02:21:01.010] Nearly seven out of every ten persons use social media.
+- [02:21:07.350] In Ghana, 8 to 15 million people online are mostly young.
+- [02:21:13.910] As my husband President Mahama said
+- [02:21:16.400] during our independence celebration,
+- [02:21:19.730] our children belong to a generation armed with tools
+- [02:21:24.220] earlier generations could hardly imagine.
+- [02:21:28.460] In their hands, a smartphone becomes a classroom.
+- [02:21:32.670] A business platform, a creative studio,
+- [02:21:36.220] and a gateway to the global economy.
+- [02:21:39.800] However, this same technology
+- [02:21:42.050] that opens doors can also be harmful.
+- [02:21:46.300] Without proper guidance, our children are vulnerable.
+- [02:21:50.870] This is why Ghana has been investing
+- [02:21:53.560] in our children's digital future,
+- [02:21:56.320] not just with assets, but with protection.
+- [02:22:00.100] It is sad that one in five young victims
+- [02:22:03.390] of cyberbullying skipped school
+- [02:22:06.220] because of their experience online.
+- [02:22:09.770] No child should face such harm.
+- [02:22:13.110] In Ghana, we have strengthened our laws, enforced protection,
+- [02:22:18.120] and launched the Safer Digital Ghana campaign
+- [02:22:22.160] to raise awareness and prevent abuse.
+- [02:22:25.960] We are securing the future of our children.
+- [02:22:29.000] It is moral duty. It is our generational responsibility.
+- [02:22:34.850] It is a shared global mission. Thank you for your attention.
+- [02:22:39.990] (applause)
+- [02:22:43.050] Monica Crowly: Thank you very much, Madam.
+- [02:22:44.360] And now I'm very pleased to welcome the spouse
+- [02:22:46.540] of the Prime Minister of the State of Israel,
+- [02:22:48.500] Mrs. Sarah Netanyahu.
+- [02:22:52.450] Sarah Netanyahu: Thank you.
+- [02:23:03.970] I want to express my appreciation to you,
+- [02:23:06.730] First Lady Melania, for your leadership,
+- [02:23:09.910] for your vision, and for your decision to focus
+- [02:23:13.490] not only on the future generation of America,
+- [02:23:18.180] but also on the futures of children around the world.
+- [02:23:21.640] This gathering is about taking a moral stand.
+- [02:23:25.580] It expresses our commitment to all children
+- [02:23:29.750] understanding that technology brings great benefits.
+- [02:23:34.000] To the next generation,
+- [02:23:35.270] but technology also brings great challenges.
+- [02:23:40.120] Alongside my role as the wife of Israel's Prime Minister,
+- [02:23:43.510] I have been working for more than two decades
+- [02:23:46.690] as the expert child psychologist for the city of Jerusalem.
+- [02:23:50.740] Through my work, I meet children and teenagers
+- [02:23:54.330] in the most critical moments of their lives,
+- [02:23:57.700] through anxiety and ongoing stress,
+- [02:24:01.920] and especially now. During days of war.
+- [02:24:05.980] Day after day, I listen to their fears,
+- [02:24:08.990] their dilemmas, their silence, and also their dreams.
+- [02:24:13.780] I see their pain, but I also see their strength.
+- [02:24:18.430] Over the years, I have learned something simple, yet essential.
+- [02:24:23.690] Every child needs someone who will notice them,
+- [02:24:28.810] believe in them, and give them the tools.
+- [02:24:32.420] They need to open new doors.
+- [02:24:35.240] Today, some of those doors are digital.
+- [02:24:38.890] Technology can separate people, but it can also bring them.
+- [02:24:46.550] It can endanger some, but save others.
+- [02:24:50.850] When used properly, it can reduce gaps,
+- [02:24:55.400] identity, difficulties early,
+- [02:24:59.000] and give children new tools of language,
+- [02:25:03.580] knowledge, confidence, and creativity.
+- [02:25:06.550] As Winston Churchill once said,
+- [02:25:09.750] with great opportunity comes great responsibility.
+- [02:25:14.290] Children cannot navigate alone in the digital world.
+- [02:25:19.120] They need protection, guidance, and a responsible adult
+- [02:25:24.460] who will ensure that the online space
+- [02:25:28.620] is positive, ethical, and educational.
+- [02:25:32.800] As a mother, I feel this on a personal level.
+- [02:25:37.060] When I raised my sons, Yehiren Avner,
+- [02:25:41.110] I learned that reality moves so fast,
+- [02:25:44.310] bringing new challenges to every generation.
+- [02:25:47.860] My children have suffered shaming and violence
+- [02:25:51.500] simply because they are the children of the Prime Minister.
+- [02:25:55.330] We must condemn personal attacks on children in any setting,
+- [02:26:00.740] whether in person or online.
+- [02:26:04.130] I see this gathering as a bond of responsibility
+- [02:26:08.150] between nations, between women leaders.
+- [02:26:11.150] And between mothers who understand
+- [02:26:13.780] that the best way to build a stronger future
+- [02:26:20.230] is to invest in our children today.
+- [02:26:23.130] First Lady Melania, thank you for this important event.
+- [02:26:27.220] May our shared effort help children
+- [02:26:29.580] all over the world to learn better,
+- [02:26:34.340] grow more safely, and flourish with hope.
+- [02:26:37.280] Thank you very much.
+- [02:26:38.580] (applause)
+- [02:26:42.450] Monica Crowly: Thank you so much, madam.
+- [02:26:44.300] Now I am pleased to invite the First Lady
+- [02:26:46.540] of the Republic of Kenya, Mrs. Rachel Ruto.
+- [02:26:56.430] Rachel Ruto: Distinguished first spouses,
+- [02:26:58.490] ladies and gentlemen, good afternoon.
+- [02:27:01.840] Across the world today, a child is opening a screen,
+- [02:27:07.490] not just to learn,
+- [02:27:09.650] but to discover who they can become.
+- [02:27:13.200] In that moment, confidence is built or broken,
+- [02:27:18.230] and possibilities are expanded or limited.
+- [02:27:23.120] Whether we see it or not, that moment...
+- [02:27:26.410] Is shaping the future we are all responsible for.
+- [02:27:33.300] It is in recognition of this responsibility
+- [02:27:37.010] that I stand before you today.
+- [02:27:39.860] I bring you warm greetings from His Excellency,
+- [02:27:42.490] Dr. William Samoe Ruto,
+- [02:27:44.890] President of the Republic of Kenya
+- [02:27:47.470] and from the people of Kenya.
+- [02:27:50.660] The President remains committed to innovation,
+- [02:27:54.170] education and inclusive growth
+- [02:27:57.330] as pillars of our national vision.
+- [02:28:02.450] Today's engagement has shown us that the future is not coming.
+- [02:28:09.710] It is already here.
+- [02:28:12.760] The question before us is no longer
+- [02:28:15.240] whether technology will shape our children,
+- [02:28:19.310] but how we ensure it empowers them safely,
+- [02:28:24.560] equitably, and meaningfully.
+- [02:28:28.020] Excellencies, ladies and gentlemen.
+- [02:28:32.540] Children today are early adopters of technology,
+- [02:28:37.180] growing up in an increasingly connected world.
+- [02:28:41.690] In Kenya, mobile phone access is nearly universal.
+- [02:28:46.970] With over 90% of households connected,
+- [02:28:50.450] while internet usage continues to grow,
+- [02:28:53.780] reaching around 40% of the population,
+- [02:28:57.650] highlighting the scale of digital access children's.
+- [02:29:02.170] Experiences.
+- [02:29:04.480] Kenyan children are discovering a love for coding
+- [02:29:08.150] and digital art through their gadgets.
+- [02:29:11.640] They are creating animations, designing apps, composing music,
+- [02:29:18.110] and sharing their work with the world.
+- [02:29:21.820] One remarkable example is Agu, Africa's first
+- [02:29:27.300] public environmental augmented reality game.
+- [02:29:32.270] Developed by Kenyan artist, Joana Olwatch,
+- [02:29:36.590] with input from young people.
+- [02:29:39.240] It brings wildlife to life through interactive
+- [02:29:43.350] storytelling, showing how local innovation
+- [02:29:47.060] can inspire global audiences, excellencies.
+- [02:29:51.320] Allow me to briefly highlight Kenya's digital journey.
+- [02:29:55.940] Kenya has made deliberate strides
+- [02:29:58.780] to position itself as a leader. In the digital age.
+- [02:30:03.700] We have launched the National AI Strategy 2025-2030,
+- [02:30:09.270] anchored within our Vision 2030 knowledge economy pillar
+- [02:30:13.660] to guide responsible and inclusive innovation.
+- [02:30:18.430] Digital literacy is now embedded in our national curriculum,
+- [02:30:23.660] supported by nationwide capacity building programs
+- [02:30:27.480] that are equipping teachers with the skills needed.
+- [02:30:31.370] For a digital future.
+- [02:30:34.840] The government continues to expand access
+- [02:30:37.220] to providing digital devices, including tablets and computers
+- [02:30:42.500] to schools across the country,
+- [02:30:44.920] alongside strengthening connectivity
+- [02:30:47.800] through the National Digital Superhighway.
+- [02:30:52.460] Complimenting these efforts, the Office of the First Lady
+- [02:30:56.430] is advancing a dedicated digital program for schools.
+- [02:31:01.360] Distributing devices, and supporting robotics training,
+- [02:31:06.140] particularly in girls' high schools,
+- [02:31:08.980] to nurture the next generation of innovators.
+- [02:31:14.020] We are also strengthening child protection
+- [02:31:17.150] through the Children's Act, which provides a legal framework
+- [02:31:21.320] for regulating online content and safeguarding young users.
+- [02:31:25.970] In addition, The Kenya Education Management Information System.
+- [02:31:31.010] Is enhancing governance by enabling data-driven,
+- [02:31:34.590] evidence-based decision-making across the education sector.
+- [02:31:40.430] In the words of Franklin D.
+- [02:31:42.310] Roosevelt, "'With great power comes great responsibility,"
+- [02:31:47.770] and today we hold great power, the power to shape
+- [02:31:52.040] how technology touches the lives of our children.
+- [02:31:56.080] Excellencies, ladies and gentlemen.
+- [02:31:58.670] Kenya stands ready to lead with intention.
+- [02:32:02.080] Allow me to share four key commitments.
+- [02:32:05.270] First, expanding access to digital learning
+- [02:32:08.960] so that every child, regardless of location,
+- [02:32:12.400] can access quality education.
+- [02:32:15.360] Second, integrating artificial intelligence
+- [02:32:19.020] responsibly to support teachers and personalized
+- [02:32:22.540] learning guided by ethics and human dignity.
+- [02:32:27.980] Safeguarding children online by strengthening digital literacy,
+- [02:32:32.970] safety frameworks, and protection systems.
+- [02:32:36.710] Fourth, empowering the ecosystem around the child,
+- [02:32:41.060] teachers, parents, and communities
+- [02:32:43.900] because technology alone cannot raise a generation.
+- [02:32:48.730] As first spouses, we stand at a unique intersection
+- [02:32:52.860] where policy meets people.
+- [02:32:55.230] We see the realities behind the data.
+- [02:32:58.290] And it is from this place that we must lead.
+- [02:33:02.660] In Kenya, we believe the future is not something we wait for,
+- [02:33:07.550] it is something we build together.
+- [02:33:10.590] Technology will shape the world our children inherit,
+- [02:33:14.080] but it is our leadership that will determine
+- [02:33:17.190] whether that world truly serves them.
+- [02:33:21.500] Fellow first spouses, let us rise to the moment.
+- [02:33:26.360] Let us ensure that every child in every nation
+- [02:33:30.250] does not just grow in a digital world,
+- [02:33:32.730] but truly thrives in it. Thank you.
+- [02:33:36.180] (applause)
+- [02:33:39.740] Monica Crowly: Thank you, Madam.
+- [02:33:41.270] And now for our final speaker for this topic
+- [02:33:43.720] as well as for our session today,
+- [02:33:45.640] I would like to invite the spouse of the Prime Minister
+- [02:33:48.350] of the Republic of North Macedonia, Mrs. Rosa Mitoshka.
+- [02:33:55.510] Rosa Mitoshka: Distinguished First Lady
+- [02:33:56.920] of the United States of America, Madam Melania Trump.
+- [02:34:00.650] Distinguish first spouses, dear attendees.
+- [02:34:03.800] It is a great honor to be here with you today.
+- [02:34:11.780] The way in which children learn, communicate,
+- [02:34:13.910] and build their future changes faster than ever.
+- [02:34:16.540] Technology opens new opportunities for knowledge,
+- [02:34:19.140] creativity.
+- [02:34:26.690] Accountable and accessible manner.
+- [02:34:29.440] In our country, we believe digital literacy
+- [02:34:32.600] must begin early.
+- [02:34:35.290] Our goal is for young people not only to use technology,
+- [02:34:39.700] but to understand it, think critically about it
+- [02:34:42.680] and use it to solve real life problems.
+- [02:34:45.760] A key step in this direction
+- [02:34:47.880] is the 21st century schools program,
+- [02:34:50.630] implemented in partnership with international organizations
+- [02:34:54.700] and the private sector. Today, 341 primary schools
+- [02:35:00.250] and nearly 1,900 teachers in our country
+- [02:35:04.580] are part of this initiative
+- [02:35:06.720] providing students with modern learning tools,
+- [02:35:09.490] including over 10,000 micro-bit programming devices.
+- [02:35:14.130] Through this program, children develop logical
+- [02:35:16.780] thinking, creativity,
+- [02:35:18.590] and problem-solving skills essential for the future.
+- [02:35:23.070] However, digital skills
+- [02:35:25.000] must go hand in hand with digital safety.
+- [02:35:28.630] That is why we are establishing MK SafeNet,
+- [02:35:32.560] the first national safer internet center
+- [02:35:35.390] as part of the European network of safer internet centers.
+- [02:35:39.850] This project brings together institutions,
+- [02:35:42.630] universities, civil society,
+- [02:35:44.990] and the private sector with one common goal,
+- [02:35:48.470] to create a safer online environment for children.
+- [02:35:52.970] Through educational program, 24-7 helpline, school workshops,
+- [02:35:57.740] and support for parents and teachers,
+- [02:35:59.630] MK SafeNet, help children learn how to recognize online risks,
+- [02:36:05.730] protect their personal data, and use technology responsibly.
+- [02:36:10.940] As a high school teacher, my vision is clear.
+- [02:36:14.270] Technology must be a tool that empowers young people,
+- [02:36:18.800] not a risk that endangers them.
+- [02:36:21.480] That is why cooperation is essential among governments,
+- [02:36:25.410] schools, parents, technology companies,
+- [02:36:28.230] and the international community to build a digital world
+- [02:36:32.200] where every child can learn safely
+- [02:36:34.850] and reach their full potential.
+- [02:36:38.450] Allow me to express my sincere gratitude to our host,
+- [02:36:41.430] the First Lady of the United States of America,
+- [02:36:44.070] Madam Melania Trump, for this important initiative
+- [02:36:47.350] and for bringing us together around shared values.
+- [02:36:50.800] Thank you for your attention.
+- [02:36:52.560] (applause)
+- [02:36:55.080] Monica Crowly: Thank you so much, Madam,
+- [02:36:56.890] and that you have all, over the course of today,
+- [02:37:00.330] mentioned online safety and protection for our children.
+- [02:37:04.110] So this particular conversation is vitally important.
+- [02:37:07.790] And I want to thank you all for your contributions,
+- [02:37:10.510] not just to this part of today's program,
+- [02:37:13.350] but to the entire program today,
+- [02:37:15.300] and of course, looking forward to tomorrow.
+- [02:37:17.700] I also want to think Chairman Ferguson
+- [02:37:19.550] for being here as well.
+- [02:37:21.320] First spouses and distinguished guests,
+- [02:37:23.940] your next engagement will be a lunch program upstairs
+- [02:37:27.240] in the Benjamin Franklin Room at 1 p.m.
+- [02:37:30.150] I invite you now to use the next few moments.
+- [02:37:32.670] You have about 25 minutes before lunch
+- [02:37:35.410] to visit the technology expo
+- [02:37:38.130] that's located just around the corner
+- [02:37:40.260] in the exhibit hall. It's fascinating,
+- [02:37:42.620] a lot of really interesting pieces of technology,
+- [02:37:45.960] also very interactive.
+- [02:37:47.570] So please, we invite you to go and explore that.
+- [02:37:50.200] And when you're finished,
+- [02:37:51.480] please proceed to the elevators near the C Street lobby,
+- [02:37:55.760] and you will be escorted upstairs for lunch.
+- [02:37:58.350] Thank you so much.
+- [02:38:00.460] (applause)

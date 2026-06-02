@@ -1,0 +1,159 @@
+<!-- source: https://www.youtube.com/watch?v=nUqZzzZ6d2o -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: nUqZzzZ6d2o -->
+<!-- date_published: 2025-05-14T14:13:50+00:00 -->
+<!-- date_accessed: 2026-06-02T02:50:10.144973+00:00 -->
+
+# Transcript: President Trump Participates in a Signing Ceremony and an Exchange of Agreements, May 14, 2025
+
+- [00:16.270] Female Speaker: [foreign language]
+- [00:20.670] Translator: [inaudible] the most compassionate
+- [00:24.300] Your Highness Tamim bin Hamad Al Thani
+- [00:27.760] Your Excellency, President Donald Trump,
+- [00:30.961] The President of the United States of America,
+- [00:34.339] representatives of the media.
+- [00:43.539] Female Speaker: Dinstinguished guests,and members of the media.
+- [00:46.900] Female Speaker: [foreign lnaguage]
+- [00:56.070] Translator: Now, we will see the signing of the
+- [00:59.538] agreement of buying aircraft from Boeing.
+- [01:04.040] His Excellency, [inaudible] Emir
+- [01:06.940] will sign from the Qatar side,
+- [01:10.940] and Kelly Ortberg will be signing on behalf of Boeing.
+- [01:18.690] Female Speaker: -- between the state of Qataris and the
+- [01:20.033] United States of America, Boeing purchased
+- [01:21.601] agreements signed on behalf of the state
+- [01:24.001] of Qatar by His Excellency, Badr Mohammed Al Meer,
+- [01:26.870] CEO of Qatar Airways Company and
+- [01:28.842] on behalf of the United States, Kelly Ortberg
+- [01:31.081] President CEO of the Boeing Company.
+- [02:42.930] We will now witness the signing of a
+- [02:44.705] number of agreements in the field of
+- [02:46.481] defense between the state of Qatar
+- [02:48.419] and the United States of America.
+- [02:51.020] Sign on behalf of the state of Qatar by his Excellency.
+- [02:54.190] Saoud bin Abdulrahman bin Hassan bin Ali Al Thani,
+- [02:56.887] Deputy Prime Minister and Minister of
+- [02:59.720] State for Defense Affairs.
+- [03:01.280] And on behalf of the United States of
+- [03:03.176] America by the Honorable Pete Hegseth,
+- [03:05.600] Secretary of Defense of the United States of America.
+- [03:13.050] Firstly, a letter, a statement of intent
+- [03:15.425] on defense cooperation between the state
+- [03:17.801] of Qatar and the United States of America.
+- [03:41.880] Secondly, a letter of offer and acceptance for MQ-9B aircrafts.
+- [03:57.720] Aircraft and the letter of offer and acceptance, F.S. Lids.
+- [04:04.420] Thank you.
+- [04:06.140] It is my honor to announce the signing of
+- [04:08.649] a joint declaration of cooperation between
+- [04:11.221] the state of Qatar and the United States of America.
+- [04:16.220] Signed on behalf of the state of Qatar by
+- [04:18.629] his Highness, Tamim bin Hamad bin Khalifa Al Thani
+- [04:21.020] Emir of the state of Qatar
+- [04:22.874] and the Honorable Donald J. Trump,
+- [04:24.900] President of the United States of America.
+- [05:08.770] The signing ceremony has now come to an end.
+- [05:11.320] And now a joint statement from his
+- [05:13.676] Highness, the Emir and the President.
+- [05:22.770] His Highness: Thank you very much.
+- [05:24.510] We had a couple of hours of
+- [05:26.742] great meeting with the President.
+- [05:29.990] We discussed many issues by our
+- [05:32.722] great bilateral relationship and
+- [05:35.127] also the situation in the region.
+- [05:36.870] And of course, I think after signing these
+- [05:39.749] documents, we are going to another level
+- [05:42.491] of relationship between Qatar and the United States.
+- [05:45.100] So I just wanted to thank you,
+- [05:46.433] Mr. President, again, for this historic visit.
+- [05:48.850] Thank you very much, sir.
+- [05:50.530] The President: Well, thank you very much.
+- [05:52.111] And this has been a very interesting couple of hours.
+- [05:56.090] We discussed the world.
+- [05:58.070] We discussed Russia and Ukraine, where
+- [06:00.652] you've been a tremendous help
+- [06:02.686] in so many different ways.
+- [06:03.871] We certainly discussed Iran where it's
+- [06:07.465] been really an interesting situation.
+- [06:11.190] I have a feeling it's going to work out.
+- [06:12.510] I think it's going to work
+- [06:13.654] out one way or the other way.
+- [06:15.110] I know it's going to work out.
+- [06:16.550] But you were of great help.
+- [06:21.310] And other things, but in particular trade,
+- [06:24.324] the trade is the -- Kelly's telling me
+- [06:27.051] from Boeing, it's the largest order
+- [06:28.821] of jets in the history of Boeing.
+- [06:30.530] That's pretty good.
+- [06:32.020] And that's 140.
+- [06:35.850] Was that a 140 or 160?
+- [06:41.790] Yeah, but it's actually 200, including the 40.
+- [06:45.850] So it's over $200 billion.
+- [06:49.750] But 160 in terms of the jets.
+- [06:51.790] That's fantastic.
+- [06:52.590] So that's a record, Kelly.
+- [06:54.470] And congratulations to Boeing.
+- [06:56.120] Get those planes out there.
+- [06:57.850] Get them out there.
+- [06:59.025] But I just want to thank you.
+- [07:00.780] We've been friends for a long time.
+- [07:01.970] Long before politics.
+- [07:03.750] Well, for you, it was politics, for me
+- [07:05.860] it wasn't, right?
+- [07:06.631] But we've been friends for a long time.
+- [07:08.570] And this is an outstanding man.
+- [07:10.650] He's a great man.
+- [07:13.030] And we're going to help each other.
+- [07:15.490] The United States is in a very
+- [07:16.901] strong position militarily.
+- [07:18.270] We have the best equipment anywhere in the world.
+- [07:20.851] You're buying a lot of that equipment, actually.
+- [07:22.790] And I think we're going to see
+- [07:24.140] some of it in action tomorrow.
+- [07:27.030] We won't call it an airfare, but
+- [07:28.545] it's going to be sort of an airfare.
+- [07:30.370] We're going to be showning a display
+- [07:31.740] that it's going to be incredible.
+- [07:34.150] The latest and the greatest of our
+- [07:36.237] planes and just about everything else.
+- [07:38.890] So I think it's going to be a
+- [07:40.079] lot of fun and very interesting.
+- [07:41.415] But I just want to thank you for the
+- [07:43.213] friendship for the long time friendship.
+- [07:45.390] And again, long before any of this stuff.
+- [07:48.070] We just like each other.
+- [07:49.430] That's not a bad thing.
+- [07:50.450] That's a good thing.
+- [07:51.790] But we always had a very special relationship.
+- [07:55.230] And we came from Saudi Arabia where we
+- [07:57.216] have another great man over
+- [07:58.545] there that's a friend of yours.
+- [08:01.090] And you two guys get along so well and like each other.
+- [08:04.150] You sort of remind me a little bit
+- [08:05.550] of each other if you want to know.
+- [08:07.300] Both to all handsome guys that happen to be very smart.
+- [08:12.340] But he's also a very special guy and it's
+- [08:14.725] good to see all the relationships forming
+- [08:17.310] in the Middle East.
+- [08:18.431] Because the Middle East is really
+- [08:19.881] being talked about all over the world.
+- [08:22.000] And we're having a lot to do with it.
+- [08:23.410] We're helping a lot.
+- [08:24.690] But they're doing a tremendous job.
+- [08:27.570] So I just want to thank everybody
+- [08:29.402] very much for being here.
+- [08:30.870] I want to thank the media.
+- [08:32.370] The media has been very fair actually.
+- [08:34.970] And it's great honor to be with you.
+- [08:36.930] You take a look at this room.
+- [08:38.370] This room is the real deal.
+- [08:40.450] That's called white marble.
+- [08:41.690] It's very hard to buy, believe me.
+- [08:43.810] I know very well because you try to buy it.
+- [08:45.710] You can't buy it.
+- [08:47.210] And you just take a look at what you have here.
+- [08:49.230] It's been incredible what you've
+- [08:51.008] been able to build as a nation.
+- [08:53.730] And we're with you all the way and you know that.
+- [09:04.000] Female Speaker: Thank you.
+- [09:05.040] This ceremony has now come to [inaudible].

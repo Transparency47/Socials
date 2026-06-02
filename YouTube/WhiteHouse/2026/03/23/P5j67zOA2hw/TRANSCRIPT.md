@@ -1,0 +1,552 @@
+<!-- source: https://www.youtube.com/watch?v=P5j67zOA2hw -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: P5j67zOA2hw -->
+<!-- date_published: 2026-03-23T16:05:13+00:00 -->
+<!-- date_accessed: 2026-06-02T01:03:15.704658+00:00 -->
+
+# Transcript: President Trump Gaggles with Press Upon Departure in Palm Beach, FL, Mar. 23, 2026
+
+- [00:00.110] The President: Okay, hello, let me get out of the sun, here.
+- [00:05.210] Let me just, move over. Let's get out of the sun.
+- [00:20.180] That’s better. Isn't that more comfortable?
+- [00:21.810] The Press: Mr. President,
+- [00:23.050] Iran's foreign ministry says you're not telling the truth
+- [00:25.690] when it comes to productive conversations to end the war.
+- [00:27.980] The President: Well, they're going to have to get themselves
+- [00:29.360] better public relations people.
+- [00:32.410] We have had very, very strong talks.
+- [00:35.660] We'll see where they lead.
+- [00:37.010] We have point -- major points of agreement;
+- [00:39.910] I would say almost all points of agreement.
+- [00:43.010] Perhaps that hasn't been conveyed.
+- [00:44.610] The communication, as you know, has been blown to pieces.
+- [00:47.970] They're unable to talk to each other.
+- [00:50.190] But we've had very strong talks.
+- [00:52.030] Mr. Witkoff and Mr. Kushner had them.
+- [00:55.700] Uh, they went, I would say, perfectly.
+- [00:59.040] I would say that if they carry through with that,
+- [01:03.530] it'll end that that problem, that conflict,
+- [01:06.500] and I think it will end it very, very substantially.
+- [01:09.610] We have very much in mind, our partners in the Middle East.
+- [01:12.770] We have great relationships with a lot of them, as you know.
+- [01:15.880] A lot of them were surprisingly hit,
+- [01:18.500] and I was surprised to see it and so was everyone else.
+- [01:21.790] But we have -- uh, they're very much in mind in the discussions.
+- [01:27.050] So the discussions took place yesterday.
+- [01:29.200] They went into yesterday evening.
+- [01:33.350] They want very much to make a deal.
+- [01:35.790] We'd like to make a deal too.
+- [01:37.750] We're going to get together today by, probably phone,
+- [01:42.460] because it's very hard to find a country.
+- [01:45.700] It's very hard for them to get out, I guess.
+- [01:48.670] But we'll at some point very, very soon meet.
+- [01:51.860] We're doing a five-day period. We'll see how that goes.
+- [01:54.940] And if it goes well, we're going to end up with settling this.
+- [01:58.360] Otherwise, we'll just keep bombing our little hearts out.
+- [02:01.160] The Press: Who is Steve speaking with, Mr. President?
+- [02:04.350] The President: A top -- a top person.
+- [02:05.660] Don't forget, we've wiped out the leadership phase one,
+- [02:09.260] phase two, and largely phase three.
+- [02:12.510] But we're dealing with a man who I believe
+- [02:14.410] is the most respected and the leader.
+- [02:17.660] You know, it's a little tough.
+- [02:19.790] They've wiped out -- we've wiped out everybody.
+- [02:22.620] The Press: (Inaudible) supreme leader?
+- [02:24.340] The President: No, not the supreme leader.
+- [02:25.610] We don't -- well, nobody's ever --
+- [02:27.620] nobody heard of the second supreme leader, the son.
+- [02:31.210] Nobody -- we have not heard from the son.
+- [02:34.180] Every once in a while, you see a statement made,
+- [02:36.050] but we haven't -- we don't know if he's living.
+- [02:38.580] But the people that seem to be running it
+- [02:41.180] and they seem that based on really fact
+- [02:44.000] because things they've said have taken place.
+- [02:47.160] The Press: Mr. President -- Can you say where that is?
+- [02:48.760] The President: I can't.
+- [02:49.970] I can't, because I don't want them to be killed. OK?
+- [02:54.220] I don't want them to be killed. Nobody wants to be that --
+- [02:58.060] nobody wants that job right now, you know?
+- [03:00.360] Nobody's exactly looking forward
+- [03:02.010] to being the head of that particular country,
+- [03:04.590] but perhaps we'll be able to solve that problem.
+- [03:06.530] The Press: Mr. President,
+- [03:07.750] you've deployed ICE agents to American airports --
+- [03:10.420] Newsmax, sir. You've deployed ICE agents --
+- [03:12.100] The President: You're not doing a very good job.
+- [03:13.350] The Press: You've deployed ICE agents --
+- [03:14.580] The President: You're not doing a good job.
+- [03:15.800] Did you hear me? OK. Go ahead.
+- [03:17.080] The Press: What exactly do you want from these talks?
+- [03:18.300] The President: Can you believe it?
+- [03:19.560] I'm taking CNN over Newsmax. Do you believe it?
+- [03:21.110] The Press: What exactly are you looking for
+- [03:22.400] in these talks, Mr. President?
+- [03:23.860] The President: We're looking for all of the things
+- [03:25.440] that we've been talking about.
+- [03:26.710] We want to see no nuclear bomb, no nuclear weapon,
+- [03:31.190] not even close to it, low key in the missiles.
+- [03:33.850] We want to see peace in the Middle East.
+- [03:36.440] We want -- the nuclear dust, we're going to want that,
+- [03:40.780] and I think we're going to get that.
+- [03:42.210] We've agreed to that.
+- [03:43.500] Yeah, we've agreed to that.
+- [03:44.800] The Press: Do you want the enriched uranium
+- [03:46.070] before you can end this war?
+- [03:47.300] The President: Yeah, and we want no enrichment,
+- [03:48.810] but we also want the enriched uranium.
+- [03:51.890] We're -- if this happens,
+- [03:55.390] it's a great start for Iran to build itself back
+- [03:59.970] and it's everything that we want.
+- [04:02.050] And it's also great for Israel
+- [04:03.650] and it's great for the other Middle Eastern countries,
+- [04:06.190] Saudi Arabia, UAE, Qatar, all of them,
+- [04:10.310] Kuwait and Bahrain, in particular.
+- [04:12.710] So it's great for all of them.
+- [04:14.420] The Press: Mr. President?
+- [04:15.640] If the war is ending, do you still need $200 billion?
+- [04:19.480] The President: We -- it's always nice to have.
+- [04:22.370] It's always nice to have.
+- [04:23.700] It's a very inflamed world and the Democrats inflame it.
+- [04:27.720] You know, largely, the Democrats inflame it.
+- [04:30.390] Let me just talk about the other.
+- [04:31.730] So ICE has done very well. I've requested --
+- [04:34.810] Now, you know I'm a big believer
+- [04:36.150] that they should be able to wear masks
+- [04:37.850] when they go and hunt down,
+- [04:39.550] you know, murderous, criminals and others,
+- [04:41.440] but for purposes of the airport,
+- [04:44.030] I've requested that they take off the mask.
+- [04:45.990] I don't like it for the airport.
+- [04:48.140] And I believe they are willing to do that.
+- [04:50.580] The Press: Mr. President, ICE -- Why (Inaudible)
+- [04:51.990] wear masks not at the airport,
+- [04:53.460] but they need to do it when they're out in the country?
+- [04:55.200] The President: Because the people coming into the airport,
+- [04:57.860] typically speaking, aren't murderers,
+- [04:59.820] killers, drug dealers, etc.
+- [05:02.150] There may be a few of them, but there aren't many.
+- [05:04.500] They're people that want to come into the country,
+- [05:06.300] or they're people want to leave the country,
+- [05:07.820] going to maybe their home country.
+- [05:09.740] So I didn't think it was an appropriate look for an airport.
+- [05:13.180] I think it's a very appropriate look
+- [05:15.110] when they're out on the street
+- [05:16.660] trying to find one of the 11,888 murderers
+- [05:20.890] that Sleepy Joe Biden let into our country.
+- [05:23.470] The Press: Elon Musk, sir. Elon Musk --
+- [05:24.680] Last year, you gave a $10,000 bonus -- sorry.
+- [05:27.960] Last year, you gave a $10,000 bonus to TSA workers
+- [05:30.160] who kept showing up to work during the shutdown.
+- [05:31.810] Will you do that again?
+- [05:33.010] The President: Well, it could happen.
+- [05:34.460] It's amazing. They're such -- they're people that are really,
+- [05:37.310] really loyal and great, and it's not easy for them.
+- [05:41.450] And this is all caused by the Democrats.
+- [05:44.110] Just so you know, all this money was approved,
+- [05:46.720] everything was approved. This is done.
+- [05:49.110] The Democrats went in
+- [05:50.780] and they want to have radical left lunatics
+- [05:52.730] come into our country.
+- [05:53.970] They want to have drug dealers,
+- [05:55.450] they want to have murderers come into our country.
+- [05:57.770] They want to have open borders, and we're not letting it happen.
+- [06:00.870] That's what this is all about. They don't want voter ID.
+- [06:04.450] They don't want proof of citizenship
+- [06:06.660] they don't want mail-in ballots. They're so corrupt.
+- [06:10.810] What they want -- the only thing they want is mail-in ballots.
+- [06:14.580] So we also added, as you know, into the --
+- [06:17.690] into the SAVE America Act,
+- [06:19.680] and it's called SAVE America, it's not the SAVE Act,
+- [06:22.720] but we added no transgender mutilization of our children
+- [06:26.880] and no men in women's sports.
+- [06:28.610] The Press: Elon Musk, sir.
+- [06:29.820] If these talks go well and you reach --
+- [06:32.960] The President: I don't think he's going to be
+- [06:34.170] at Newsmax long.
+- [06:35.600] The Press: If these talks go well
+- [06:36.820] and you reach a ceasefire agreement with Iran,
+- [06:39.560] do you believe Israel would abide by that agreement?
+- [06:43.260] The President: I think Israel will be very happy
+- [06:45.690] with what we have.
+- [06:47.090] We just spoke to Israel a little while ago.
+- [06:50.350] I think they'll be very happy.
+- [06:51.610] This will be peace for Israel, long-term peace,
+- [06:54.790] guaranteed peace.
+- [06:56.500] If this happens, and I can't guarantee it,
+- [06:58.980] but I think it's going to. My life is a deal.
+- [07:02.300] That's all I do is deals, my whole life.
+- [07:04.700] I think this is something that's going to happen.
+- [07:06.610] And why wouldn't it happen?
+- [07:08.470] So tomorrow morning sometime, their time,
+- [07:13.260] we were expected to blow up their largest electric
+- [07:17.160] generating plants that cost over $10 billion to build.
+- [07:22.660] It's a very good one. There was no dearth of money.
+- [07:25.420] And one shot, it's gone, it collapses.
+- [07:31.190] Why would they want that? So they called.
+- [07:34.530] I didn't call, they called. They want to make a deal.
+- [07:37.880] And we are very willing to make a deal.
+- [07:40.010] It's got to be a good deal
+- [07:41.330] and it's got to be no more wars, no more nuclear weapons.
+- [07:44.820] They're not going to have nuclear weapons anymore.
+- [07:46.820] They're agreeing to that.
+- [07:48.440] Any of that stuff, there's no deal.
+- [07:50.740] The Press: Have they offered to reopen --
+- [07:51.950] How are you -- you said you want to get the enriched uranium.
+- [07:55.130] How are you going to get the enriched uranium?
+- [07:56.860] Are you going to send --
+- [07:58.110] The President: Well, it's very easy.
+- [07:59.340] If we have a deal with them,
+- [08:01.250] we're going down and we'll take it ourselves.
+- [08:03.830] The Press: Can I ask you, the Treasury lifted sanctions
+- [08:06.010] on Iranian oil that was out to sea.
+- [08:08.020] You criticized President Obama for giving Iran $1.7 billion --
+- [08:11.650] The President: Well, I just want to have as much oil
+- [08:13.550] in the system as possible.
+- [08:15.570] And we don't even know if Iran gets that money.
+- [08:17.750] Frankly, I think it's very hard for them to get it.
+- [08:20.240] But you have ships that are out there
+- [08:21.610] that are loaded up with oil. Rather than keep it there,
+- [08:24.540] I would rather see it go to the system.
+- [08:26.810] Any small amount of money that Iran gets
+- [08:29.240] is not going to have any difference in this war,
+- [08:31.450] but I want to have the system be lubricated.
+- [08:34.990] The Press: Even $14 billion, you don't think helps them?
+- [08:39.280] The President: Where's the 14 billion?
+- [08:40.520] The Press: Because the inflated price,
+- [08:41.820] they get $14 billion from the oil.
+- [08:43.910] The President: I don't think they're getting the money.
+- [08:45.490] I could tell you -- when this is all over,
+- [08:47.780] I will tell you who's getting the money.
+- [08:49.440] It's not them.
+- [08:50.690] The Press: (Inaudible) Marines from California,
+- [08:52.510] given that it'll take them weeks to arrive,
+- [08:54.230] is the intention to police the strait or take
+- [08:56.090] (Inaudible)
+- [08:57.290] The President: What are you talking about?
+- [08:58.560] The Press: Well, it's been reported that there are Marines
+- [08:59.900] that left California,
+- [09:01.140] left San Diego last week at the end of the week.
+- [09:03.660] Why are they headed there now? And --
+- [09:05.200] The President: Well, let me ask you this.
+- [09:07.400] If you were in my position and I asked you that question,
+- [09:10.430] do you really believe I'd give you an answer?
+- [09:12.630] Crazy question. We don't talk about strategy.
+- [09:16.660] Yeah?
+- [09:17.870] The Press: Another young woman was killed
+- [09:19.100] by an illegal immigrant that was let in
+- [09:20.300] under the Biden administration.
+- [09:21.590] The President: Let in by Biden.
+- [09:22.810] The Press: Do you have a message for her family?
+- [09:24.960] The President: It's devastating.
+- [09:26.310] These people were led in by Biden.
+- [09:28.430] We're getting them out. We're getting them out fast.
+- [09:30.360] That's why ICE is so important. They're doing such a good job.
+- [09:34.670] This animal -- I saw the whole thing last night.
+- [09:37.960] They gave me a briefing, came in through Joe Biden
+- [09:41.680] with his open door policy and his border czar, Kamala,
+- [09:44.900] who never saw the border, never made one phone call.
+- [09:48.410] All the ICE people, you see, they all know me.
+- [09:50.330] Everyone knows me. They like me. I speak to them all the time.
+- [09:53.920] Didn't make one phone call during four years
+- [09:57.530] she was the border czar to anybody on the border,
+- [10:00.920] never went there.
+- [10:02.590] This person came in through the open door policy
+- [10:05.320] of Joe Biden and we have others.
+- [10:07.140] We're taking them out by the tens of thousands.
+- [10:10.000] We're doing a great job, but it's a shame.
+- [10:13.580] They've -- they've hurt our country.
+- [10:15.510] Just remember this, Joe Biden
+- [10:17.630] and that gang of radical left lunatics,
+- [10:20.870] some very smart but radical left and bad ideology,
+- [10:25.020] sick people, these people have hurt our country very badly.
+- [10:28.850] The Press: Are we directly talking with Iran?
+- [10:30.450] If you end up hitting those Iranian power plants,
+- [10:33.540] how is that different from what Russia is doing in Ukraine
+- [10:36.440] by ending Ukrainian power?
+- [10:38.600] The President: Well, I think it's a lot different.
+- [10:40.240] And if you look at the nuclear weapons
+- [10:42.260] that they wanted to have,
+- [10:43.480] that they wanted to possess, a lot of things are different.
+- [10:46.560] Uh, I'm no -- I'm not a fan of what Russia
+- [10:48.740] is doing either, just so you understand.
+- [10:50.930] All right? But it's a lot different.
+- [10:53.030] You're talking about a country that has been evil for 47 years.
+- [10:58.220] They've been horrible, death all over the world, not just us.
+- [11:02.800] Look at the way they attacked, unexpectedly,
+- [11:05.430] all of those countries surrounding them.
+- [11:07.950] That was not supposed to --
+- [11:09.240] nobody was even thinking about it,
+- [11:11.470] but they wanted to take over the Middle East,
+- [11:13.340] and they wanted to knock out Israel permanently.
+- [11:15.660] And if they had a nuclear weapon,
+- [11:17.280] they would have been able to do that.
+- [11:18.620] What? The Press: Mr. President,
+- [11:19.840] do you know whether Joe Kent was leaking?
+- [11:24.340] The President: Look, I'm not a fan of the guy.
+- [11:26.110] If you look at -- and you never cover this.
+- [11:28.340] If you look at his Truths or whatever, he went on,
+- [11:30.720] if it's X or Truth if you look at his Truths,
+- [11:34.250] or his statements, he was all for everything.
+- [11:37.250] All of a sudden, he wasn't.
+- [11:39.850] He was a man that I met at Dover.
+- [11:44.600] He came, and his wife was killed.
+- [11:46.970] He remarried fairly quickly.
+- [11:49.900] His wife was killed, and I felt badly for him.
+- [11:53.290] He ran for Congress, he lost.
+- [11:55.700] He ran for Congress again, and he lost.
+- [11:57.710] I said, you know, he's a guy -- nice guy,
+- [12:01.160] seemed like a very nice guy.
+- [12:02.510] I met him. He was pretty heartbroken, pretty.
+- [12:06.940] But I said, you know, it's a shame,
+- [12:09.100] he ran for Congress twice,
+- [12:11.450] call him up, give him a job in the White House, smart.
+- [12:15.180] They gave him a job in the White House
+- [12:16.650] and this is what he does to me.
+- [12:19.120] You know, being a nice guy doesn't pay off too much.
+- [12:23.180] Think of it, he loses twice in Congress,
+- [12:26.480] ran not very good campaigns. He should have won.
+- [12:30.420] But he loses twice. How do I get him?
+- [12:33.310] I have my people call him,
+- [12:34.840] because I didn't deal with him, for the most part.
+- [12:36.670] I saw him a couple of times,
+- [12:38.140] but I never dealt with him at all.
+- [12:40.580] I had no idea his ideology was left or right, whatever it is.
+- [12:44.810] I can say this, he said very strongly
+- [12:47.870] that Iran is not a threat.
+- [12:50.560] Iran's been a threat for 47 years,
+- [12:53.310] and there's not a country in the world
+- [12:54.810] that doesn't agree with me on that.
+- [12:56.980] So I take this guy, Joe Kent,
+- [12:59.620] who lost twice for Congress pretty badly and tough,
+- [13:03.980] and it was devastated and I know that he lost his wife.
+- [13:08.080] So instead of letting him live out his life,
+- [13:11.430] I brilliantly have my people call him
+- [13:13.990] and offer him a job in security, essentially, in the White House.
+- [13:19.590] And what does he do? He goes out and he says
+- [13:21.730] that Iran is not a threat to get publicity.
+- [13:25.430] Now, he probably signed up with CNN
+- [13:28.240] or maybe signed up with your division of Newsmax.
+- [13:30.790] I don't know. But probably signed up with CNN or somebody.
+- [13:34.870] But if you look at his -- his tweets,
+- [13:38.120] Xs or Truths, whatever he uses,
+- [13:41.070] I don't know because I don't follow him,
+- [13:43.380] what he said is 100 percent he agrees with me.
+- [13:46.610] All of a sudden, he leaves. I never knew he had a problem.
+- [13:50.050] Now, I hear they're looking at him for leaking.
+- [13:52.620] That's possible. But just so you understand,
+- [13:55.140] just to put it to rest, he lost twice badly.
+- [13:59.180] He also lost his wife. He's remarried since.
+- [14:02.470] He lost his wife. I felt badly for him.
+- [14:05.380] So I told my people, reach out to him,
+- [14:07.770] give him a job at the White House.
+- [14:09.690] This is the thanks I get. Any other questions?
+- [14:12.140] The Press: He said Iran was not an imminent threat,
+- [14:13.620] that that's what the intelligence showed.
+- [14:17.030] The President: I think it was an imminent threat.
+- [14:18.840] I think that Iran, if they --
+- [14:20.420] if we didn't bomb them with the B-2 bombers,
+- [14:23.230] now that set them back,
+- [14:24.870] but if we didn't hit them with the B-2 bombers,
+- [14:27.290] they would have had a nuclear weapon
+- [14:29.080] within two weeks to a month.
+- [14:31.380] And if they had a nuclear weapon,
+- [14:33.270] they would have used it as soon as they got it.
+- [14:35.800] The Press: If you obliterated their nuclear sites
+- [14:38.250] last summer with your strikes,
+- [14:39.840] then how can you argue it was an imminent threat now?
+- [14:42.510] The President: Oh, we hit them so hard.
+- [14:43.890] We obliterate them, but -- obliterated them.
+- [14:46.240] But that doesn't mean with the right equipment,
+- [14:48.710] you can't dig down and go get it.
+- [14:51.170] We don't want that, and we won't have that,
+- [14:53.850] but we obliterated that site.
+- [14:55.580] They still haven't been able to get it.
+- [14:57.370] That was a complete success.
+- [14:59.950] But if it wasn't, they would have had --
+- [15:02.650] If we didn't hit them, if we didn't use
+- [15:04.590] the B-2 bombers, which are unbelievable.
+- [15:07.810] We just ordered 22 more of them, modern version
+- [15:10.940] by the way, super modern version.
+- [15:13.070] If we didn't hit them with the B-2 bombers,
+- [15:15.040] they would have had,
+- [15:16.280] within two weeks of that attack --
+- [15:18.450] that's why we hit them, because we knew.
+- [15:20.940] They would have had a nuclear weapon.
+- [15:22.750] They would have used it on Israel
+- [15:24.850] and the entire Middle East.
+- [15:27.390] The Press: Overall crime in Memphis is down 43 percent
+- [15:30.220] since you began this task force.
+- [15:31.600] Is this a template you think is working --
+- [15:33.070] The President: Well, what I'm doing --
+- [15:34.280] what I'm doing today, really, this was supposed to be --
+- [15:36.370] this was a little bit before -- set up a couple of weeks ago.
+- [15:39.220] This was before we had this situation
+- [15:42.750] with Iran take place last night.
+- [15:46.080] And by the way, they're just not -- when they say --
+- [15:48.050] I'm sure they don't mean that, when somebody says,
+- [15:50.490] oh, I didn't know you were talking --
+- [15:51.970] we were talking last night
+- [15:53.490] and I'm sure they have a lack of communication,
+- [15:55.440] which is appropriate considering we blew up,
+- [15:58.520] in addition to their Navy Air Force,
+- [16:01.480] every division, their radar.
+- [16:03.930] We also blew up all of their anti-aircraft
+- [16:06.980] and communications.
+- [16:08.270] So they have no telecommunications,
+- [16:10.580] so there is a lack of --
+- [16:11.810] I would imagine a lack of coordination.
+- [16:13.170] The Press: (Inaudible) are reliable.
+- [16:14.410] If there -- if you're worried about the miscommunication,
+- [16:15.980] how -- The President: Well, we think --
+- [16:17.200] we think -- all we can do is think --
+- [16:18.480] look, we have numerous leader groups.
+- [16:21.510] They've all been killed, very dangerous position.
+- [16:25.470] Khomeini was killed. Khomeini's son is unavailable.
+- [16:29.400] Nobody knows what happened to him.
+- [16:31.270] I can say, they haven't seen him there either.
+- [16:33.400] Something is going on with him.
+- [16:34.700] But regardless, I don't consider him really the leader,
+- [16:39.050] but they do have some leaders left.
+- [16:41.850] Because we blew up group number one, group number two,
+- [16:46.330] a lot of group number three, but we think we have people
+- [16:49.350] that are very representative of the country
+- [16:51.730] and will do a good job in representing.
+- [16:54.400] The Press: Elon Musk, sir? Elon Musk has offered to pay --
+- [16:57.140] Elon Musk has offered to pay TSA workers
+- [16:58.680] during this DHS shutdown. The President: Yeah.
+- [17:00.020] The Press: Is this something that you've been
+- [17:01.340] speaking to him about?
+- [17:02.600] The President: Yeah, I'd love it.
+- [17:03.810] I think it's great. Let him do that.
+- [17:05.100] And I want to thank ICE because they stepped in so --
+- [17:08.530] so strongly. They'll do great. And if that's not enough,
+- [17:12.740] I'll bring in the National Guard.
+- [17:14.140] We're not going to have the Democrats destroy our country.
+- [17:17.550] These people are the most destructive,
+- [17:20.040] sick people, the Democrats.
+- [17:22.210] They want -- and they're fighting for this.
+- [17:24.070] They're fighting for men in women's sports.
+- [17:26.560] They're fighting for transgender for everybody, everybody go out,
+- [17:30.920] get your kid a nice operation and change the sex of your kid.
+- [17:35.420] They're fighting for no -- think of it,
+- [17:38.340] they don't want you to do voter ID.
+- [17:40.260] You walk into a booth -- in California,
+- [17:42.640] if a person who's doing voting,
+- [17:44.700] an official, asks you for identification,
+- [17:48.480] they're subject to being arrested.
+- [17:50.770] What's wrong with this country? So we're fighting it hard.
+- [17:53.880] And I think they should --
+- [17:55.340] because the Democrats are being blamed for the shutdown
+- [17:59.320] and it's their fault and they're getting killed.
+- [18:01.600] That's why when I --
+- [18:02.840] when I announced yesterday about ICE, the Democrats called,
+- [18:08.310] we want to settle, we want to settle.
+- [18:10.620] And I told the people, don't settle, don't settle,
+- [18:13.620] because we have something bigger.
+- [18:15.060] Only settle if you get the SAVE America Act, voter ID
+- [18:19.950] and so important, proof of citizenship, etc.
+- [18:22.980] Thank you very much.
+- [18:24.280] The Press: Whose idea was that, to put ICE at the airport?
+- [18:27.290] (Inaudible) Iranians? Whose idea was it?
+- [18:28.960] The President: Mine. That was mine.
+- [18:30.710] That was like the paperclip.
+- [18:32.290] You know the story of the paperclip?
+- [18:34.220] 182 years ago, a man discovered the paperclip.
+- [18:38.590] It was so simple and everybody that looked at it, say,
+- [18:41.540] why didn't I think of that? ICE was my idea.
+- [18:45.440] I called -- first person I called was Tom Homan.
+- [18:47.840] I said, what do you think? He said, I think it's great.
+- [18:51.120] Then I saw today there was some masks on.
+- [18:52.930] I didn't think the masks were appropriate.
+- [18:54.600] I put out a statement and I asked him,
+- [18:57.570] would it be possible to take off the masks?
+- [18:59.760] Because they should wear a mask
+- [19:01.810] when they're dealing with the murderers
+- [19:03.240] and the thugs left -- let into our country.
+- [19:04.850] The Press: And just a detail,
+- [19:06.060] you said there's many points of agreement with Iran right now.
+- [19:07.810] The President: Many. Many.
+- [19:09.050] The Press: What -- can you give us just a few of those?
+- [19:10.410] The President: Like 15 points. 15 points.
+- [19:14.290] Well, they're not going to have a nuclear weapon.
+- [19:16.120] That's number one.
+- [19:17.420] That's number one, two and three.
+- [19:18.630] They will never have a nuclear weapon.
+- [19:19.940] The Press: And they've said yes to that?
+- [19:21.180] The President: They've agreed to that.
+- [19:22.380] The Press: (Inaudible)
+- [19:23.580] illegal migrant arrests at airports, sir?
+- [19:26.740] Will we see ICE arresting illegal migrants at airports?
+- [19:28.800] The President: Yeah. Yeah, that's --
+- [19:30.090] that's why the Democrats are going crazy,
+- [19:32.210] because they've allowed -- by what they did and hold up,
+- [19:36.110] we put ICE, who are a very high level --
+- [19:40.400] I mean, they really are a high level group of people.
+- [19:43.390] And they love it because they're able to now arrest illegals
+- [19:46.950] as they come into the country.
+- [19:49.210] That's -- that's very fertile territory, but that's not
+- [19:52.140] why they're there. They're really there to help.
+- [19:54.390] The Press: Are we talking to Iran directly?
+- [19:55.790] (Inaudible) have they agreed to no enrichment whatsoever
+- [19:57.920] even for medical purposes, civilian purposes?
+- [19:59.720] The President: They have. Thank you. Thank you.
+- [20:00.970] The Press: What about the Strait of Hormuz,
+- [20:02.190] who's going to be in control of that?
+- [20:03.530] The President: That'll be opened very soon if this works.
+- [20:05.200] The Press: How soon?
+- [20:06.470] The President: Immediately. Immediately.
+- [20:07.700] The Press: And who's in control of it?
+- [20:08.940] Will Iran still be able to control the flow of oil?
+- [20:11.480] The President: Be jointly controlled.
+- [20:13.570] The Press: By whom?
+- [20:14.940] The President: Maybe me. Maybe me.
+- [20:16.540] The Press: Both the United States --
+- [20:17.830] The President: Me and the Ayatollah,
+- [20:19.070] whoever the Ayatollah is, whoever the next Ayatollah --
+- [20:21.940] look, and there'll also be a form of a --
+- [20:24.970] a very serious form of a regime change.
+- [20:28.010] Now, in all fairness, everybody's been killed
+- [20:31.190] from the regime. They're really starting off --
+- [20:33.820] there's automatically a regime change.
+- [20:36.380] But we're dealing with some people
+- [20:38.360] that I find to be very reasonable, very solid.
+- [20:43.460] The people within know who they are.
+- [20:45.120] They're very respected.
+- [20:46.900] And maybe one of them will be exactly what we're looking for.
+- [20:51.220] Look at Venezuela, how well that's working out.
+- [20:54.220] We are doing so well in Venezuela with oil
+- [20:56.800] and with the relationship
+- [20:58.600] between the president elect and us.
+- [21:02.400] And maybe we find somebody like that in Iran.
+- [21:06.200] The Press: Are you considering any more options
+- [21:08.160] to lower the price of oil while these talks --
+- [21:10.260] The President: The price of oil will drop like a rock
+- [21:12.210] as soon as a deal is done. I guess it already is today.
+- [21:15.720] No, we have a very serious chance of making a deal.
+- [21:18.210] That doesn't guarantee anything. I'm not guaranteeing anything.
+- [21:21.110] I'm not going to come out here in a week or two weeks
+- [21:23.320] and have you all say, oh, you said --
+- [21:25.780] I didn't say anything.
+- [21:27.010] All I'm saying is we are in the throes of a real possibility
+- [21:31.700] of making a deal.
+- [21:32.960] And I think -- if I were a betting man, I'd bet for it.
+- [21:36.400] But again, I'm not guaranteeing anything.
+- [21:39.050] They want to make a deal very badly. Thank you.
+- [21:41.430] The Press: What changes would you like to see in DHS
+- [21:43.430] under Markwayne Mullin?
+- [21:44.650] The President: Well, he's going to be fantastic.
+- [21:45.930] He'll make his own change.
+- [21:47.190] He's already given me a list of people he wants to bring.
+- [21:49.600] He's a fantastic guy. I think he's just the right guy.
+- [21:52.120] You all know him.
+- [21:53.380] He's a very open, smart guy, very successful actually,
+- [21:56.530] in business, which people don't know.
+- [21:58.570] And he's a friend of mine.
+- [21:59.870] I think Markwayne is going to be fantastic.
+- [22:01.510] Thank you. Thank you. The Press: (Inaudible)
+- [22:02.730] LaGuardia, Mr. President, on the plane crash
+- [22:04.590] that happened there last night?
+- [22:05.870] The President: Terrible. They made a mistake.
+- [22:08.190] It's a dangerous business. That's terrible. Thank you.
+- [22:12.290] The Press: Thank you.

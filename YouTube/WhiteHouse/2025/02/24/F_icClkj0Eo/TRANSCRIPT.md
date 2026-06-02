@@ -1,0 +1,854 @@
+<!-- source: https://www.youtube.com/watch?v=F_icClkj0Eo -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: F_icClkj0Eo -->
+<!-- date_published: 2025-02-24T20:36:55+00:00 -->
+<!-- date_accessed: 2026-06-02T02:53:31.575282+00:00 -->
+
+# Transcript: President Trump Holds a Press Conference with President Emmanuel Macron of France
+
+- [00:14.800] President Trump: Well, thank you very much everyone.
+- [00:16.400] Great honor to be here with my friend.
+- [00:22.730] I am delighted to welcome President Macron
+- [00:27.120] back to the White House. We've been together quite often,
+- [00:30.720] but not that often in the White House.
+- [00:33.540] We honored the President,
+- [00:36.100] First Lady of France not so long ago.
+- [00:39.910] There was a beautiful evening and we will not soon forget it.
+- [00:43.780] It was a beautiful day and evening and many fond memories.
+- [00:48.700] I also want to thank Emmanuel
+- [00:50.220] for hosting me in Paris last December
+- [00:53.140] after a historic election win to witness the reopening
+- [00:56.730] of the spectacular Notre Dame Cathedral
+- [00:59.650] where you did an outstanding job in bringing it back together.
+- [01:03.180] That was a sad day, watching that burn,
+- [01:06.020] and five years later you had it up
+- [01:07.790] and it was they say more beautiful than it was before.
+- [01:11.430] So I think that's a great achievement.
+- [01:13.150] That was not easy.
+- [01:15.920] France is America's oldest ally.
+- [01:17.970] Our cherished partnership has been a force for freedom,
+- [01:21.960] prosperity, and peace from the very beginning.
+- [01:24.090] We're now working on some very interesting developments,
+- [01:27.490] one in particular, as you know,
+- [01:28.920] the war between Russia and Ukraine.
+- [01:31.690] In the American Revolution,
+- [01:32.990] French support helped us to seize our destiny
+- [01:35.690] as an independent nation.
+- [01:37.580] In the first and second World Wars,
+- [01:39.470] our citizens shed blood together on the battlefields of Europe.
+- [01:45.490] And I'll never forget joining President Macron
+- [01:48.280] six years ago on the 75th anniversary of D-Day.
+- [01:51.270] That was some day. The purpose of our meeting today
+- [01:54.740] is to end another battle, a really horrible one,
+- [01:57.990] a war, something that we haven't seen
+- [02:00.970] since the Second World War that is ravaging European soil,
+- [02:06.110] the deadliest and most destructive conflict
+- [02:08.340] that one can imagine. I've seen the pictures,
+- [02:11.120] I've seen the satellite photos and lots of other photos,
+- [02:14.680] and it's a horrible thing that's happening.
+- [02:17.050] Thousands of people are dying a week.
+- [02:20.050] This very day is the third anniversary
+- [02:22.030] of the invasion of Ukraine,
+- [02:23.420] which would never have happened if I was president.
+- [02:26.400] That was not going to happen.
+- [02:28.480] The horrors of this gruesome and bloody war
+- [02:31.280] can scarcely be overestimated. Hundreds of thousands of people,
+- [02:35.870] Russians and Ukrainians in particular have needlessly died.
+- [02:41.420] An entire generation of Ukrainians
+- [02:43.380] and Russian men has been decimated.
+- [02:46.260] One thousand-year-old cities have been turned into rubble,
+- [02:51.710] those beautiful spires that you used to see there,
+- [02:56.220] they were most beautiful in the world they say,
+- [02:59.000] are lying in heaps of rubble, blasted to smithereens.
+- [03:05.330] It's time to end this bloodletting and restore peace,
+- [03:08.700] and I think we're going to do it.
+- [03:09.930] We've had some great conversations,
+- [03:12.290] including with Russia.
+- [03:14.120] Since my return to the White House,
+- [03:15.740] we've made more progress toward that goal
+- [03:18.400] in one month than occurred in the past three years.
+- [03:22.570] And I've spoken with both President Putin
+- [03:25.500] and President Zelensky.
+- [03:28.260] And again, a lot of good things toward peace are happening.
+- [03:33.190] Moving it, I think, pretty quickly.
+- [03:35.670] Last week, Secretary of State Marco Rubio,
+- [03:39.610] National Security Advisor Michael Walz
+- [03:42.390] and Special Envoy Steve Witkoff
+- [03:45.290] conducted successful talks in Saudi Arabia
+- [03:47.980] with the delegation from Russia.
+- [03:51.320] And I'd like to thank the Kingdom of Saudi Arabia
+- [03:54.950] and the King Mohammed.
+- [03:58.960] Great people, really working hard to get this done.
+- [04:02.290] Our focus is on achieving a ceasefire as soon as possible
+- [04:06.440] and ultimately a permanent peace.
+- [04:09.600] My meeting with President Macron today
+- [04:11.380] was another important step forward in that sphere
+- [04:16.140] because he's been very much involved
+- [04:18.310] right from the beginning in trying to get it over.
+- [04:20.110] We're going to get it done.
+- [04:22.080] I believe that Emmanuel agrees with me
+- [04:24.300] on many of the most important issues,
+- [04:26.090] chief among them is this is the right time.
+- [04:30.690] It may be the only time.
+- [04:33.000] That's a very interesting and horrible situation,
+- [04:36.680] and that could evolve into a third world war.
+- [04:39.220] We're not going to let that happen.
+- [04:41.230] Should have never started, but it did.
+- [04:43.320] And what a mess, what a horrible bloody mess.
+- [04:47.330] I'm also pleased that President Macron agrees
+- [04:49.860] that the cost and burden of securing the peace
+- [04:53.300] must be borne by the nations of Europe,
+- [04:56.860] not alone by the United States.
+- [04:59.150] And Europe must take that central role
+- [05:01.980] in assuring long-term security of Ukraine,
+- [05:04.800] which they want to do. And that's not a very big step.
+- [05:08.850] A big step is what's going to happen over the next few weeks.
+- [05:12.850] The United States has put up far more aid for Ukraine
+- [05:16.870] than any other nation, hundreds of billions of dollars.
+- [05:20.240] We've spent more than $300 billion,
+- [05:22.730] and Europe has spent about a hundred billion.
+- [05:26.380] That's a big difference.
+- [05:27.640] And at some point we should equalize,
+- [05:31.360] but hopefully we won't have to worry about that.
+- [05:33.460] We have other things happening
+- [05:34.800] that maybe take that out of the realm of necessity.
+- [05:38.670] And while we've given vast amounts of military aid
+- [05:41.800] and money in form of grants,
+- [05:43.850] much of Europe's contribution has been economic relief
+- [05:47.460] structured as loans for which they'll be repaid.
+- [05:51.990] Like the Europeans,
+- [05:53.190] I believe that taxpayers in the United States
+- [05:55.820] also deserve to recoup the colossal amounts of money
+- [06:00.020] that we've sent.
+- [06:02.590] The previous administration never even thought of that.
+- [06:05.970] They didn't think of a lot of things like why
+- [06:08.920] did they let it start in the first place?
+- [06:10.970] That is why we must have an agreement with Ukraine
+- [06:15.310] on critical minerals and rare earths
+- [06:18.290] and various other things as security.
+- [06:20.180] And I think that that's happening.
+- [06:21.560] I think we've made a lot of progress.
+- [06:22.990] I had a report just given to me before walking in
+- [06:26.250] and we've made, Emmanuel,
+- [06:29.090] a great deal of progress toward getting that.
+- [06:31.710] I've been elected by the American people
+- [06:35.220] to restore common sense
+- [06:36.440] to Washington and indeed to the world.
+- [06:39.610] And I believe strongly
+- [06:40.910] that it's in the best interest of the United States,
+- [06:44.130] the best interest of Europe, the best interest of Ukraine,
+- [06:47.070] and indeed the best interest of Russia
+- [06:48.950] to stop the killing now and bring the world to peace.
+- [06:53.560] My administration is making a decisive break
+- [06:56.700] with the foreign policy values of the past administration
+- [07:00.110] and frankly, the past.
+- [07:02.720] I ran against a very foolish foreign policy establishment.
+- [07:06.230] And their recklessness has led to the death of many,
+- [07:08.880] many people. Under our administration,
+- [07:12.050] we are forging a new path that promotes peace around the world.
+- [07:16.020] And when I left office for the first administration,
+- [07:18.970] first term, we had no wars, we had no problems.
+- [07:22.660] We didn't have October 7th with Israel.
+- [07:25.150] We didn't have Russia and Ukraine going at it.
+- [07:28.720] We didn't have the problems in other parts of the Middle East.
+- [07:32.750] We didn't have inflation. It was a whole different world.
+- [07:36.910] And you know what else we didn't have?
+- [07:38.490] Millions of people pouring through our borders,
+- [07:40.560] many of them criminals released from other nations
+- [07:43.030] and put right into our land.
+- [07:45.370] Murderers and drug dealers, gangs.
+- [07:48.600] We didn't have any of that. It's a different time.
+- [07:51.570] But now we have it and we're fixing it.
+- [07:53.260] We'll fix it all up.
+- [07:54.480] We'll get it done as quickly as possible.
+- [07:57.480] And we've made a great deal of progress.
+- [07:59.210] People are saying it was the best month
+- [08:00.730] for a president in our country's history.
+- [08:03.410] I hope that's right. But I feel it's right.
+- [08:05.890] We've done a lot of things in a very short period of time,
+- [08:08.290] four weeks.
+- [08:09.770] As I've said before, it's my hope
+- [08:11.420] that my greatest legacy, however,
+- [08:13.690] will be as a peacemaker and a unifier.
+- [08:17.050] I want to bring peace, not war.
+- [08:18.560] I thank President Macron for joining us today
+- [08:22.640] in this urgent work we're doing,
+- [08:25.810] and we have some wonderful people up front right here
+- [08:28.130] that have worked so hard.
+- [08:29.940] Steve Witkoff, thank you very much.
+- [08:31.710] And Michael Waltz, thank you.
+- [08:33.470] Scott, thank you very much. And JD, thank you.
+- [08:38.420] They've really done a job. They worked very hard.
+- [08:41.530] It's a real passion to get this war ended.
+- [08:44.820] And now we invite Emmanuel to say a few words,
+- [08:49.680] and then we'll take questions. And again, Emmanuel,
+- [08:52.760] it's a great honor to have you with us at the White House.
+- [08:54.990] Thank you very much, please.
+- [08:56.800] President Macron: Thank you. Thank you, Mr. President.
+- [08:58.260] Thank you, dear Donald. Ministers, ladies and gentlemen.
+- [09:03.410] Ladies and gentlemen, I'll be saying a few words in French.
+- [09:07.960] Thank you very much, Mr. President, dear
+- [09:11.140] Donald, for your hospitality and for this visit.
+- [09:14.800] As you mentioned,
+- [09:16.430] we have had the opportunity to meet over the past few years.
+- [09:20.130] Since your first term,
+- [09:21.340] we've been able to discuss matters in Paris
+- [09:24.550] and also here at the White House,
+- [09:27.100] and it has always been a great joy to do that.
+- [09:32.210] And I would like to commend you and thank you, Mr. President,
+- [09:37.330] for extending this friendship to France
+- [09:40.370] and taking part in the ceremony at Notre Dame
+- [09:42.850] that you mentioned before.
+- [09:44.320] It was a great honor for the French people
+- [09:46.330] to reopen the cathedral to the rest of the world,
+- [09:49.260] and your presence was a testament to that friendship.
+- [09:53.780] As the president said,
+- [09:55.190] this friendship dates back to the Revolutionary War,
+- [09:58.580] since the beginning of the United States,
+- [10:01.240] and whenever we've needed to,
+- [10:04.520] we've been able to come together and be on the right side.
+- [10:07.710] We've been able to be united to defend peace and sovereignty,
+- [10:12.720] namely in the two World Wars that marked the 20th century,
+- [10:19.010] from Lafayette to Pershing,
+- [10:21.550] and to the many Americans who landed on Omaha Beach.
+- [10:26.940] And we spoke earlier before,
+- [10:31.320] and you mentioned that one of those gentlemen
+- [10:35.090] was able to visit you here, one of the veterans.
+- [10:40.460] This is part of history,
+- [10:43.880] which puts us in the world that we are in today.
+- [10:46.570] And as the president just said,
+- [10:48.600] there are many challenges in this world.
+- [10:50.800] And over the past few days, we have one main objective,
+- [10:56.290] which is the geopolitical situation.
+- [10:59.690] Mr. President, I really wish to thank you
+- [11:03.930] for making changes to your schedule
+- [11:06.870] to meet with us so quickly.
+- [11:10.360] I think we've made very substantive steps forward
+- [11:14.600] during our discussions,
+- [11:15.830] and this is a major step in what we're experiencing today.
+- [11:20.590] We had a videoconference with all of the G7 leaders,
+- [11:24.760] which was an opportunity for us to discuss
+- [11:27.770] this matter three days after the Russian War in Ukraine,
+- [11:33.040] and to express our support for President Zelenskyy
+- [11:37.290] to the Ukrainian people, but also to speak
+- [11:39.920] and share about our desire for a lasting peace.
+- [11:45.180] This is what we have spoken about very forcibly
+- [11:49.610] over the past few weeks.
+- [11:52.000] We thought that this war was only going to last a few weeks
+- [11:57.890] when it broke out in 2022.
+- [11:59.430] We admire greatly the courage of the Ukrainian people.
+- [12:03.180] And Mr. President, I wish to thank you you for this.
+- [12:08.630] You mentioned that there are responsibilities
+- [12:13.080] on Europe's side.
+- [12:14.340] And indeed, we have invested 128 billion
+- [12:19.770] in aid to Ukraine and the Ukrainians.
+- [12:23.220] Ukraine has been able to hold the front
+- [12:25.900] of our collective security.
+- [12:27.170] It's fought over these past few years for its independence
+- [12:30.560] and for its sovereignty,
+- [12:31.850] but also for our collective security,
+- [12:33.940] because I think that no one in this room
+- [12:36.360] wants to live in a world where it's the law of the strongest,
+- [12:41.210] and international borders can be violated
+- [12:43.440] from one day to the next by anyone.
+- [12:47.350] Over the past few hours, and as you mentioned this,
+- [12:50.640] Mr. President, we've been able to see a few things take shape.
+- [12:54.560] First of all, allow me to commend you on your decision
+- [12:58.200] to work with President Zelenskyy,
+- [13:01.060] and to conclude this agreement
+- [13:02.670] that's so important for the US and Ukraine
+- [13:05.310] on rare earths, critical minerals.
+- [13:07.800] But also having substantive conversations
+- [13:11.320] with President Zelenskyy
+- [13:12.670] during this key phase of achieving this deal,
+- [13:16.330] which is a major commitment to Ukraine's sovereignty,
+- [13:19.810] and I think that's very commendable.
+- [13:22.870] We also have a shared desire to build peace.
+- [13:31.970] We will have this responsibility.
+- [13:35.050] This is 10 years after the war started in Crimea,
+- [13:38.140] and then we saw the events in the Donbas region,
+- [13:42.550] and along the northern part of the country.
+- [13:45.120] We want to save lives, we want to bring prisoners back,
+- [13:48.940] and bring back families and children,
+- [13:51.250] because there is also a humanitarian tragedy
+- [13:53.700] affecting the Ukrainian people.
+- [13:56.000] We had lengthy discussions with the president,
+- [13:59.160] and we spoke about our desire to bring an end to conflicts,
+- [14:04.650] to have a truce that is measurable, verifiable,
+- [14:08.680] and that enables negotiation of a lasting peace
+- [14:12.600] where we will discuss not only Ukraine's reconstruction,
+- [14:16.330] its territories, but also the security guarantees,
+- [14:20.090] meaning maintaining peace over the long-term.
+- [14:24.020] As I said to the president,
+- [14:25.650] we've experienced peace accords that were only ceasefires
+- [14:30.170] without ensuring security guarantees,
+- [14:33.200] Minsk I and II,
+- [14:34.750] and we want to make sure this doesn't happen again.
+- [14:37.140] And I know that the president has expressed the desire
+- [14:41.280] to be a player for peace in the region.
+- [14:46.020] I've spoken with some 30 European leaders
+- [14:48.860] and allies in recent days.
+- [14:50.630] We want to bring together these allies…
+- [14:53.630] Allies, rather, and share the same vision.
+- [14:57.750] This peace must not mean a surrender of Ukraine,
+- [15:00.740] it must not mean a ceasefire without guarantees.
+- [15:03.870] This peace must allow for Ukrainian sovereignty
+- [15:07.710] and allow Ukraine to negotiate with other stakeholders
+- [15:11.500] regarding the issues it affects… That affects it, rather.
+- [15:15.950] But it is also a country in which
+- [15:18.360] we need to shoulder our responsibilities
+- [15:21.470] so that we ensure security and stability for Ukraine
+- [15:24.590] and for the entire region.
+- [15:26.140] And for us Europeans, this is an existential issue.
+- [15:30.660] We also spoke about these issues at length with the president.
+- [15:35.390] We've worked with President Zelenskyy
+- [15:37.820] and gotten to some of the details
+- [15:40.180] of the various phases of the negotiation,
+- [15:43.270] and we've also been able to speak about some of this work
+- [15:46.280] with our British partners
+- [15:48.630] to talk about deployments of peace forces on Ukrainian soil,
+- [15:57.430] which are part of these security guarantees.
+- [16:00.320] Other countries are ready to join in this effort.
+- [16:03.960] Solidarity and support from the US will be crucial to this,
+- [16:07.180] and I thank you, Mr. President,
+- [16:08.770] for beginning to work with us on this issue,
+- [16:12.000] and the agreement that you were preparing to sign with Ukraine,
+- [16:16.760] and with all these discussions
+- [16:18.780] we've had are very solid guarantees
+- [16:21.670] that we are understood, that we have the same wish:
+- [16:25.470] peace, as soon as possible.
+- [16:27.760] Lasting, solid peace for everyone,
+- [16:31.820] and the renewal of an international situation
+- [16:35.870] where we are all able to shoulder our responsibilities,
+- [16:39.370] Europeans shouldering their responsibilities
+- [16:41.440] alongside their American allies
+- [16:43.160] will shoulder their own responsibilities.
+- [16:46.090] I also wanted to be very clear, Mr. President,
+- [16:49.450] about Europe's commitment.
+- [16:51.610] We have committed to building a lasting peace.
+- [16:54.830] As Europeans, we have committed to being stakeholders
+- [17:00.380] in these security guarantees, and we are also well aware
+- [17:05.560] that Europeans need to do more for security in Europe,
+- [17:10.990] for defense in Europe,
+- [17:12.920] and to more fairly share the security burden
+- [17:16.350] that your country has been carrying for so many years.
+- [17:20.150] Mr. President, you know how much friendship I showed towards you,
+- [17:26.460] and I have towards you, since your first term.
+- [17:29.370] Europe is very clear-eyed about this.
+- [17:31.920] We know what we need to do as Europeans,
+- [17:34.750] given the threats surrounding us
+- [17:37.400] and the responsibilities that we must shoulder.
+- [17:40.850] We spoke about the Versailles agenda,
+- [17:44.350] which allowed the Europeans to take a historic step
+- [17:48.230] and increase their investments.
+- [17:50.250] Europeans are ready to do even more and to go even farther.
+- [17:55.590] And several leaders said that to me
+- [17:57.350] before I came here to meet you. Mr. President, dear Donald,
+- [18:01.720] you spoke about this peace through strength.
+- [18:05.210] We fully share that,
+- [18:08.140] because we must recognize the sacrifices made
+- [18:10.790] by the Ukrainian people and what we owe to them.
+- [18:13.730] The president and I also spoke about economic matters,
+- [18:17.310] and our desire to see more prosperity
+- [18:20.420] in the United States and in Europe.
+- [18:23.670] We had discussions which will be carried on by our teams,
+- [18:26.610] our ministers and secretaries,
+- [18:28.340] to flesh out some of those ideas.
+- [18:31.710] But the idea is to have fair competition,
+- [18:35.340] and no bias within competition between our industries.
+- [18:42.390] Now, the American and European economies
+- [18:46.780] are extremely intertwined.
+- [18:50.810] Some 1.5 billion in trade…
+- [18:57.070] Trillion, rather, in goods and services.
+- [19:01.270] And I know you've spoken about
+- [19:02.580] wanting to look at the balance of payments.
+- [19:06.430] We also have a trade deficit,
+- [19:08.980] and I know that we need to look not only at goods,
+- [19:15.010] but also digital items and goods which you export,
+- [19:19.360] and we want to make a sincere commitment
+- [19:22.330] towards fair competition,
+- [19:25.710] where we have smooth trade and more investments.
+- [19:29.520] You already invest a great deal in France,
+- [19:33.490] and France is the fifth-largest investor in the United States.
+- [19:38.430] And I would like to recognize here
+- [19:40.970] all of the American investors who announced investments,
+- [19:47.930] some $120 billion, that were announced at the AI Summit.
+- [19:54.350] This is our wish: we want to have more prosperity
+- [19:57.650] on both sides of the Atlantic.
+- [19:59.190] We have a shared agenda in that regard.
+- [20:01.750] We also spoke about the Middle East, among other subjects,
+- [20:05.640] and here again, we have the same desire.
+- [20:08.320] We don't want to see Iran obtain nuclear weapons.
+- [20:11.700] We don't want…
+- [20:15.410] Or rather we want an approach with partners
+- [20:18.060] in the region that we can trust. Given Iran's nuclear activities,
+- [20:22.370] we want to limit its ballistic capabilities
+- [20:24.550] want to limit its ballistic capabilities
+- [20:27.080] and avoid any type of regional destabilization.
+- [20:30.260] With respect to Syria and Iraq, we also share the same desire.
+- [20:33.900] We don't want to see Islamic terrorist groups
+- [20:37.780] resume any of their activities, because for some time our armies
+- [20:41.540] have very bravely been engaged in the Gulf,
+- [20:45.660] as you have led,
+- [20:48.060] and contributions have been significant
+- [20:50.850] and helped stability in the region.
+- [20:53.640] And I say this with great sincerity.
+- [20:57.970] France was affected by a terrorist attack in 2015,
+- [21:01.390] which is linked to the terrorist activity in Syria,
+- [21:04.170] and we are in that region at your side
+- [21:06.750] to work for more security.
+- [21:10.220] Ladies and gentlemen, we had extremely productive discussions
+- [21:15.330] this morning during the conference
+- [21:18.340] and we spoke with our ministers and councilors and advisors.
+- [21:22.280] And I wish to say after speaking with President Trump,
+- [21:27.220] I fully believe that there is a path forward.
+- [21:30.200] We share the same beliefs,
+- [21:32.680] we know what work needs to be done.
+- [21:34.990] In the weeks to come, we will work on that.
+- [21:37.520] Our teams will come together in various formats
+- [21:40.560] to make sure that we have this solid,
+- [21:44.020] lasting peace with great strength.
+- [21:49.170] Mr. President, thank you so much for welcoming me here today.
+- [21:52.810] Thank you so much for these productive discussions
+- [21:55.330] and for your commitment. Thank you, dear Donald.
+- [21:57.240] President Trump: Thank you very much.
+- [21:58.480] Thank you, Emmanuel. Thank you. Great job.
+- [22:00.690] President Macron: Thank you. Thank you.
+- [22:04.500] President Trump: Okay, thank you very much.
+- [22:06.770] Brian, would you like to ask a question? Go ahead.
+- [22:09.360] The Press: Mr. President, welcome.
+- [22:11.290] President Trump, I just want to touch upon real
+- [22:13.690] quickly the Harvard poll that came out that had…
+- [22:16.960] Thank you very much.
+- [22:18.240] The Harvard poll that came out had you up 9 plus points
+- [22:21.100] and all of your agenda that you ran on,
+- [22:24.040] you're accomplishing that.
+- [22:25.350] You've got the support of the American people,
+- [22:26.950] including stopping the war in Ukraine.
+- [22:29.890] If you can comment on the latest Harvard poll,
+- [22:31.600] I'd appreciate that.
+- [22:32.810] President Trump: Well, I was honored by it.
+- [22:34.020] It was a big poll and it's usually a poll
+- [22:36.890] that leans on the other side of things,
+- [22:39.320] the other side of the world, so to speak.
+- [22:41.730] But the Harvard poll is a respected poll
+- [22:43.740] and it has us not only leading but leading by a lot
+- [22:47.490] and leading on every single issue that we've talked about.
+- [22:51.680] And as I said, we've become the party of common sense.
+- [22:55.070] And I think that's a very important element now,
+- [22:56.760] common sense.
+- [22:57.960] Because what's happening in the world
+- [22:59.970] and even in this country,
+- [23:01.300] some of the things that took place,
+- [23:02.630] many of them are now canceled
+- [23:04.030] and the rest are being canceled as we speak.
+- [23:06.060] But we've moved very rapidly and I think very effectively.
+- [23:09.460] So I was honored by that poll.
+- [23:10.860] Thank you very much. Appreciate it.
+- [23:14.160] The Press: Mr. President.
+- [23:15.410] President Trump: Go ahead. Please, go ahead.
+- [23:18.700] The Press: Mr. President, you said
+- [23:20.190] before that you would like to see Russia-
+- [23:24.310] President Trump: Yes. Go ahead.
+- [23:26.770] The Press: What are the conditions that you want
+- [23:31.770] [inaudible 00:29:05]?
+- [23:34.080] When you're meeting in Saudi Arabia with President Putin,
+- [23:37.300] would that happen regardless of any progress
+- [23:40.170] on the Ukrainian file?
+- [23:41.830] President Trump: Yeah, I think the meeting in Saudi Arabia
+- [23:43.790] was a fantastic one.
+- [23:46.260] We met with the Crown Prince, who is a fantastic young guy.
+- [23:52.310] He's young but with great imagination
+- [23:54.740] and tremendously respected all over the world.
+- [23:57.940] And he goes right to the king and the king is incredible.
+- [24:02.090] Gotten to be friends with both of them very much,
+- [24:04.640] and they want to see this ended
+- [24:06.020] and they're going all out to make sure that it is ended.
+- [24:09.700] I think Russia… Likewise, I've spoken to President Putin
+- [24:14.280] and my people dealing with him constantly
+- [24:17.880] and his people in particular, and they want to do something.
+- [24:21.600] I mean, that's what I do. I do deals.
+- [24:23.230] My whole life is deals. That's all I know is deals.
+- [24:26.060] And I know when somebody wants to make it
+- [24:28.580] and when somebody doesn't.
+- [24:29.920] I will say this, before I came here,
+- [24:32.300] there was no communication with Russia whatsoever.
+- [24:34.780] And Russia wasn't answering calls.
+- [24:37.810] They were not talking to anybody.
+- [24:39.160] They wouldn't talk to anybody. And people sort of accepted
+- [24:43.410] that as being that they want to go forward
+- [24:46.080] and just keep going without stop.
+- [24:49.560] But when I got here, one of the first calls I made
+- [24:51.750] was to President Putin
+- [24:53.900] and we were treated with great respect
+- [24:55.740] and they want to end this war.
+- [24:58.840] So that's a big thing because I didn't know
+- [25:00.620] if I could say that, but it's a big thing.
+- [25:02.160] They want to do it.
+- [25:03.370] And the group in the front row that I introduced,
+- [25:05.580] they're all very active in it.
+- [25:07.290] And we're working on deals right now,
+- [25:10.180] transactions right now.
+- [25:11.590] And in particular, the big one is to get the war stopped,
+- [25:15.880] whether it's ceasefire or direct to an agreement.
+- [25:20.470] I' like to go directly to an agreement.
+- [25:22.270] But ceasefire will always happen a little bit quicker
+- [25:24.950] and every day you're saving thousands or at least hundreds,
+- [25:28.500] but thousands in some cases lives.
+- [25:30.480] So we want to see if we can get that done very quickly.
+- [25:34.380] Yes, for the president, please.
+- [25:39.140] The Press: Thank you. Correspondent based in Paris.
+- [25:42.920] Question for both of you actually.
+- [25:45.110] Mr. Macron, you were one of the last Western leaders
+- [25:48.720] to speak to Putin before Ukraine's invasion.
+- [25:51.660] What advice, what recommendation
+- [25:54.070] could you make to President Trump
+- [25:57.470] to make sure that this time you can get strong enough
+- [26:04.660] guarantees from Putin
+- [26:08.130] to get a peace deal that lasts this time?
+- [26:11.970] President Trump, what makes you think you can trust Putin
+- [26:16.460] in those negotiations? Thank you.
+- [26:20.060] President Macron: Look, I will never give any advice
+- [26:22.350] to President Trump.
+- [26:24.370] We have friendly and trustful discussions,
+- [26:27.290] but my experience with President Putin is the following.
+- [26:30.770] Number one, I always think it's good
+- [26:32.970] to have discussion with other leaders
+- [26:34.440] and especially when you disagree.
+- [26:37.570] I stopped my discussion with President Putin after Bucha
+- [26:41.900] and the war crimes because I considered that…
+- [26:45.280] I mean, we had nothing to get from him in the time.
+- [26:47.690] Now there is a big change
+- [26:50.510] because there is a new US administration,
+- [26:52.400] so this is a new context.
+- [26:54.390] So there is good reason for President Trump
+- [26:57.040] to reengage with President Putin.
+- [26:59.780] But my experience is the following
+- [27:02.190] and I shared it with President Trump and his team.
+- [27:05.700] In 2014, our predecessors negotiated peace
+- [27:10.020] with President Putin.
+- [27:13.200] But because of the lack of guarantees
+- [27:14.870] and especially security guarantees,
+- [27:17.370] President Putin violated this peace.
+- [27:20.810] And I had several discussion, especially beginning of 2022,
+- [27:24.160] several times seven hours with President Putin.
+- [27:29.210] 15 days before launching of the attack,
+- [27:36.270] he denied everything,
+- [27:38.460] but we didn't have security guarantees.
+- [27:41.350] So this is why being strong and having deterrence capacities
+- [27:46.370] is the only way to be sure it'll be respected.
+- [27:50.040] And I insisted on that, and this is why I believe
+- [27:53.690] that the US has the capacity to do so.
+- [27:58.060] And this is why I think we should never say,
+- [28:00.400] "I will never send any boots on the ground,"
+- [28:01.970] because you give a blank check
+- [28:04.990] to violate any type of commitment.
+- [28:09.270] So I think it's good to have discussion.
+- [28:12.010] I think it's useful to have negotiation.
+- [28:14.370] I think it's super important to go to the peace,
+- [28:17.850] but my strong point was to say,
+- [28:20.400] "Let's try to get something first which can be assessed,
+- [28:25.500] checked, and verified, and let's be sure
+- [28:28.650] that we build sufficient guarantees in the short run."
+- [28:31.460] And this is where we are ready to be engaged, as for France,
+- [28:36.120] a lot of my European colleagues are ready to be engaged,
+- [28:39.100] but we do need this American backup
+- [28:41.670] because this is part of the credibility
+- [28:43.840] of the security guarantees,
+- [28:45.570] and this is our collective deterrence capacity.
+- [28:49.030] And I have the feelings that the President has this capacity.
+- [28:54.830] President Trump: I think it's very much
+- [28:56.130] to the benefit of Russia to make a deal.
+- [28:59.050] And I feel that we'll do that. It is what it is.
+- [29:04.140] Again, it's a war that should have never been started.
+- [29:06.340] It's a war that would not have been started
+- [29:08.260] if I were president,
+- [29:09.470] but it did start and it's at a terrible level
+- [29:13.490] where cities are burned down and shot down to the ground.
+- [29:17.840] It looks like demolition sites,
+- [29:19.860] a whole big pile of demolition sites.
+- [29:22.050] And we got to get it stopped.
+- [29:23.640] Too many people, too much agony. The whole culture is destroyed.
+- [29:27.980] When you rip down some of those really ancient
+- [29:31.790] or near-ancient buildings, it's so sad to see.
+- [29:35.930] But I think it's very much to the benefit of…
+- [29:38.100] There's tremendous distrust on both sides.
+- [29:40.760] That's why it's good that I'm coming in now,
+- [29:42.230] but I think it's to the very much benefit of Russia
+- [29:45.700] to make a deal
+- [29:48.120] and to go on with leading Russia in a very positive way.
+- [29:54.640] That's what you have to do.
+- [29:56.370] But I really believe that he wants to make a deal.
+- [29:58.800] May be wrong, but I believe he wants to make a deal.
+- [30:02.390] Yeah, go ahead, please.
+- [30:04.820] The Press: Mr. President, next week there's a key deadline
+- [30:08.050] for your Canada and Mexico tariffs.
+- [30:09.760] Do you expect those will go back on?
+- [30:11.170] The Press: [foreign language].
+- [30:12.370] The Press: Do you believe those countries have done enough
+- [30:14.450] on the border to stop those from taking effect?
+- [30:17.290] And for President Macron, I'm wondering if you believe
+- [30:20.450] that this critical minerals deal with Ukraine
+- [30:22.660] represents a de facto security guarantee by the United States
+- [30:26.310] since the US would have an interest
+- [30:27.800] in protecting those reserves in Ukraine?
+- [30:29.580] Thank you.
+- [30:30.780] President Trump: We're on time with the tariffs
+- [30:32.650] and it seems like that's moving along very rapidly.
+- [30:35.980] We've been mistreated very badly by many countries,
+- [30:38.490] not just Canada and Mexico. We've been taken advantage of.
+- [30:42.880] We were led by, in some cases fools
+- [30:45.230] because anybody that would sign documents like they signed
+- [30:48.360] where they were able to take advantage of the American people
+- [30:51.010] like has happened over a long period of time,
+- [30:54.370] except for a little four-year period
+- [30:57.090] that took place four years ago…
+- [31:00.120] But anybody that would agree to allow this
+- [31:02.770] to happen to our country should be ashamed of themselves.
+- [31:06.740] Now the tariffs are going forward on time, on schedule.
+- [31:12.530] This is an abuse that took place for many, many years.
+- [31:16.520] And I'm not even blaming the other countries that did this.
+- [31:19.880] I blame our leadership for allowing it to happen.
+- [31:23.060] I mean, who can blame them
+- [31:24.760] if they made these great deals with the United States,
+- [31:27.050] took advantage of the United States
+- [31:30.380] on manufacturing, on just about everything.
+- [31:33.390] Every aspect that you could imagine they took advantage of.
+- [31:36.190] I look at some of these agreements,
+- [31:37.950] I'd read them at night and I'd say,
+- [31:39.270] "Who would ever sign a thing like this?"
+- [31:42.270] So the tariffs will go forward, yes,
+- [31:44.240] and we're going to make up a lot of territory.
+- [31:46.990] All we want is reciprocal. We want reciprocity.
+- [31:50.370] We want to have the same.
+- [31:53.440] So if somebody charges us, we charge them.
+- [31:55.490] It's very simple, but it'll be very good for our country.
+- [31:59.460] Our country will be extremely liquid and rich again.
+- [32:03.520] Plus we're doing other things, as you know.
+- [32:05.190] We're finding tremendous waste, fraud,
+- [32:08.960] and abuse at levels that nobody thought possible.
+- [32:11.930] You're seeing what's going on.
+- [32:13.300] And that was also part of the Harvard poll.
+- [32:15.940] "Do you agree with what President Trump
+- [32:18.070] is doing with Elon
+- [32:19.360] and others that are looking for the waste, fraud, and abuse?"
+- [32:22.150] And the numbers were staggering. It was like 70% to 2%.
+- [32:28.220] Everybody wants to find out. They don't like it.
+- [32:30.230] And the radical left, or whoever it may be,
+- [32:34.150] starts screaming about the constitution.
+- [32:36.090] But it has nothing to do with the constitution.
+- [32:37.750] It has to do with fairness to this country.
+- [32:40.270] It has to do with being ripped off.
+- [32:42.030] And when you read the things that all of these billions
+- [32:45.590] and I mean many billions, hundreds of billions of dollars,
+- [32:48.690] have been spent on,
+- [32:50.400] that's all you have to do is stand up here and read them.
+- [32:52.410] I could stand up all day and read the kind of things
+- [32:54.560] where we're spending all of this money.
+- [32:57.020] The good news is that when you think of how rich a nation
+- [33:00.800] we can be when we get rid of this…
+- [33:02.830] Sometimes you'll buy a company
+- [33:04.270] and you'll see it was really well run.
+- [33:07.170] They accounted for every penny. Well, not much you can do there.
+- [33:11.870] You got yourself a bad deal. This one is the exact opposite.
+- [33:15.290] Tremendous fraud, tremendous waste.
+- [33:19.110] And when you think of what it is…
+- [33:21.530] Elon uses an expression, caring.
+- [33:23.910] If we had people that cared, here,
+- [33:25.160] just cared a little bit when they did contracts,
+- [33:27.860] when they negotiated with outside vendors
+- [33:31.630] on behalf of the United States. That's what I'm doing now.
+- [33:33.900] I'm negotiating for the people of the United States.
+- [33:37.940] So we're doing a great job of it.
+- [33:39.390] I will say we found, it'll be hundreds of billions of dollars
+- [33:42.850] of waste and fraud and abuse. Thank you. Please.
+- [33:46.420] President Macron: Look, I think this discussion
+- [33:47.710] is a very important one.
+- [33:48.920] First, because it's important for the U.S.
+- [33:51.040] and it will be a good occasion
+- [33:52.260] for a first very important meeting
+- [33:54.730] between President Trump and President Zelensky.
+- [33:58.310] Second, I think there is a lot of economic upside
+- [34:03.180] on both sides. And third, de facto,
+- [34:06.010] there is a recognition of Ukrainian sovereignty,
+- [34:08.850] a recognition of the Ukrainian interests,
+- [34:11.350] and this is de facto
+- [34:13.050] a very important alignment of interests.
+- [34:15.960] Now, the security guarantees will be negotiated
+- [34:18.450] in due time in a full-fledged package of a peace security.
+- [34:21.830] But this peace, as it is now written and negotiated,
+- [34:27.710] and as this meeting is scheduled,
+- [34:30.670] is an important step forward, full-fledged peace agreement.
+- [34:36.230] President Trump: Okay, please go ahead.
+- [34:39.250] To the president.
+- [34:42.920] The Press: President Trump, President Macron,
+- [34:45.170] first of all you say, "I would like to make a deal with Putin."
+- [34:48.240] So when you do a deal, it's a win-win deal.
+- [34:52.410] What are you giving to him
+- [34:54.020] and what is he going to give you, to America?
+- [34:57.140] And I was impressed by the way you referred to Notre Dame
+- [35:00.530] and that you were impressed
+- [35:01.810] by the reconstruction of Notre Dame.
+- [35:04.440] A lot of Americans have sent money to Paris
+- [35:07.130] to participate to the reconstruction of Notre Dame.
+- [35:11.040] As the President of the United States
+- [35:12.730] are you going to contribute to the reconstruction of Ukraine?
+- [35:19.000] President Macron, what, for you, is the main area of progress
+- [35:24.870] in your meeting with President Trump?
+- [35:27.070] Can you confirm that there is an agreement
+- [35:29.430] to send European peacekeeping troops?
+- [35:32.660] Will France participate in that?
+- [35:34.570] How many troops? What would they be doing?
+- [35:37.330] Would this represent a great danger
+- [35:39.960] to send French and European troops to Ukraine?
+- [35:43.070] President Trump: Well, I guess it's a little strange question
+- [35:46.440] because you ask whether or not we're going to,
+- [35:48.300] on behalf of the United States, contribute to Ukraine.
+- [35:52.240] We're in there for about $350 billion.
+- [35:54.890] I think that's a pretty big contribution.
+- [35:57.630] I do appreciate the first part of your question, however,
+- [36:00.130] because I think they've done an incredible job
+- [36:02.130] with the Cathedral of Notre Dame.
+- [36:05.330] I think the president has done, I know he headed it up
+- [36:07.820] and I know how hard he worked and it took a period of time,
+- [36:11.340] but really not a long period of time considering what that was.
+- [36:14.030] So delicate, so beautiful.
+- [36:16.330] And I was there and I saw the work.
+- [36:18.570] And I'm very good at construction.
+- [36:20.090] I know good construction and I know bad construction.
+- [36:22.440] They did a beautiful job
+- [36:24.090] and this man has to be given a lot of credit for that.
+- [36:26.210] It's an incredible cathedral.
+- [36:28.370] Most people thought it couldn't be saved,
+- [36:30.100] and if it was, it would have to be built in a different form.
+- [36:32.930] And we didn't want to see a different form.
+- [36:35.080] We wanted to see the same form that you built.
+- [36:38.040] So I just want to congratulate you.
+- [36:39.760] That was an amazing job.
+- [36:41.010] I don't think you've gotten enough credit for it.
+- [36:42.940] Someday you will. Someday you will.
+- [36:47.440] President Macron: Thank you, Donald.
+- [36:48.730] [foreign sp.]. Thank you very much.
+- [36:52.280] To go back to your question,
+- [36:54.050] today's discussion showed several areas of progress.
+- [36:58.720] First, we have been working a great deal
+- [37:04.040] with President Zelensky
+- [37:06.020] to have a proposal that's acceptable to Ukraine.
+- [37:10.480] President Trump has confirmed
+- [37:12.130] that he will be meeting with President Zelensky
+- [37:13.960] very soon to finalize the agreement
+- [37:16.630] on critical minerals and rare earths
+- [37:19.840] and to speak together about that matter.
+- [37:21.900] That's a very important step forward.
+- [37:23.460] The second thing is that during our discussions
+- [37:26.500] we were able to go into some of the details
+- [37:28.420] about the proposal that we have just made to have a truce,
+- [37:36.180] a peace and be able to measure that
+- [37:38.940] and then structure our discussions on that basis.
+- [37:42.640] France and several other European countries,
+- [37:45.240] along with Ukraine,
+- [37:46.490] are hard at work to build this lasting peace
+- [37:50.450] with very specific points, including security guarantees,
+- [37:56.150] the territories that belong to Ukraine,
+- [37:58.840] the issue of reconstruction,
+- [38:00.930] the economy and critical minerals.
+- [38:03.790] We've been able to go into the details of those proposals.
+- [38:07.890] The third area of progress,
+- [38:09.640] which really marked a turning point,
+- [38:14.460] is the fact that we were able to talk
+- [38:15.970] about the details of the security guarantees.
+- [38:19.560] The president has shown this over the past few days
+- [38:23.150] and he said so a moment ago, we want peace.
+- [38:25.190] He wants peace. We want peace swiftly,
+- [38:28.980] but we don't want an agreement that is weak.
+- [38:32.790] The fact that there are Europeans that are ready
+- [38:34.680] to engage to provide for these security guarantees,
+- [38:39.040] and now there's a clear American message
+- [38:41.580] that the U.S., as an ally,
+- [38:43.930] is ready to provide that solidarity for that approach.
+- [38:47.820] That's a turning point in my view,
+- [38:50.060] and that is one of the great areas of progress
+- [38:53.060] that we've made during this trip and during this discussion.
+- [38:56.590] When it comes to troops, in the past,
+- [39:00.440] a year ago specifically,
+- [39:03.210] we saw a reason to talk about sending troops
+- [39:09.750] for strategic reasons. Today when we talk about troops,
+- [39:14.320] we're talking about sending them in after
+- [39:16.260] we've negotiated a lasting peace.
+- [39:18.170] And once we have that solid,
+- [39:20.330] lasting peace that's part of an agreement signed by Ukraine,
+- [39:23.710] signed by Russia, and for which we will provide the guarantees,
+- [39:28.580] then at that point.
+- [39:30.640] And recently France has worked with the UK
+- [39:34.460] to provide its contributions.
+- [39:37.010] We've worked on plans, we've worked with our militaries,
+- [39:40.240] not to go to the front lines,
+- [39:42.120] not to go into occupied territories,
+- [39:45.140] but as a show of support to show
+- [39:48.760] that we have a negotiated peace signed by both sides.
+- [39:52.120] And that is a peace we will preserve.
+- [39:54.600] So these would be peaceful deployments, not for combat.
+- [39:59.970] These would be deployments of an assurance force.
+- [40:04.850] They would be limited, but they show solidarity.
+- [40:08.900] I've also spoken with all of our allies,
+- [40:11.150] and there are European and non-European allies
+- [40:13.230] who are already and willing to take part in that effort.
+- [40:17.010] Countries have helped Ukraine
+- [40:18.910] maintain its military capabilities
+- [40:22.220] in terms of the number of soldiers it has, equipment,
+- [40:25.750] whereas others have provided logistical support
+- [40:29.380] on the ground. The question is whether or in
+- [40:35.160] what form the U.S. will contribute.
+- [40:38.480] And during our discussions
+- [40:40.820] and during the discussions with Russia,
+- [40:42.400] we've understood that this would be acceptable to Russia.
+- [40:45.160] That's a very important area of progress.
+- [40:47.480] And that means that, in this context,
+- [40:51.020] the Europeans will shoulder their part of the burden,
+- [40:54.490] their share of the burden.
+- [40:56.790] We have a strong alliance that we've built over the decades.
+- [40:59.980] We have our solidarity,
+- [41:01.420] and we have deterrence capacities.
+- [41:06.290] What does it mean? Would it be dangerous?
+- [41:10.370] If there is an agreement signed by Ukraine and Russia,
+- [41:13.980] thanks to the efforts of President Trump,
+- [41:16.870] and if we provide the guarantees and Russia
+- [41:19.430] violates the agreement, then it would be in conflict
+- [41:24.650] with everyone who has engaged in the peace process.
+- [41:27.060] And that is a change.
+- [41:29.420] That was something we did not see in the past.
+- [41:31.320] It's not what we saw in 2014.
+- [41:33.340] So that is the real change that we're marking.
+- [41:36.960] We have this deterrence capacity on the American side.
+- [41:41.100] We have the capacity for engagement on the European side,
+- [41:45.670] and that's something we're going to continue working on together.
+- [41:47.850] It's not dangerous, but it's credible.
+- [41:51.200] It's less dangerous than things
+- [41:53.350] that could happen in the long term.
+- [41:55.210] And I think this is what we need to do to ensure security.
+- [41:58.360] And I say this very clearly.
+- [42:00.190] We're also talking about security for Europeans.
+- [42:03.340] I've been saying this for weeks now.
+- [42:05.140] If we do not guarantee the security of this territory
+- [42:09.520] within Europe,
+- [42:10.910] then how can we guarantee our own security for one and all?
+- [42:16.970] We live just 1,500 kilometers from Ukraine,
+- [42:22.670] and the Germans and Polish are even closer.
+- [42:25.910] So our collective security is important.
+- [42:28.250] We need to answer this call for Europeans to be more engaged
+- [42:32.780] and Americans will be there still in solidarity.
+- [42:36.750] Europeans are working for their collective security,
+- [42:39.350] but I really think this was a turning point today
+- [42:41.370] in our discussions.
+- [42:43.140] The Press: President Trump.
+- [42:44.360] President Trump: Emmanuel, thank you very much.
+- [42:45.800] Great job. And it's been wonderful being with you.
+- [42:48.780] Say hello to your beautiful wife and we will see you again soon.
+- [42:52.080] We'll be speaking often, and we'll get this thing worked out.
+- [42:54.530] We're going to get it done. So important and great job.
+- [42:58.180] President Macron: Thank you.
+- [43:01.870] The Press: Mister President [inaudible]
+- [43:08.420] The Press: Mister President,
+- [43:10.320] don't you think Russia is an investor
+- [43:13.920] [inaudible]? Mister President?

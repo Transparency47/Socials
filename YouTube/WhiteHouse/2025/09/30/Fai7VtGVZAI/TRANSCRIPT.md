@@ -1,0 +1,143 @@
+<!-- source: https://www.youtube.com/watch?v=Fai7VtGVZAI -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: Fai7VtGVZAI -->
+<!-- date_published: 2025-09-30T14:14:15+00:00 -->
+<!-- date_accessed: 2026-06-02T01:13:59.829446+00:00 -->
+
+# Transcript: President Trump Gaggles with Press Before Departing the White House, Sep. 30, 2025
+
+- [00:00.410] [Music]
+- [00:09.880] Well, we may do a lot and that's only
+- [00:11.440] because of the Democrats and as you
+- [00:13.640] know, they wanted to be able to take
+- [00:14.840] care of people that have come into our
+- [00:16.840] country illegally and no system can
+- [00:18.800] handle that. And so we're totally
+- [00:20.760] opposed on that, but we can't take it.
+- [00:23.000] We just can't do it. I'd love to do
+- [00:24.320] everybody. I'd love to do the whole
+- [00:25.640] world, but our country can't handle
+- [00:27.640] people that come into our country
+- [00:29.080] illegally and they want to give them
+- [00:31.000] full health care benefits. They want to
+- [00:33.080] open the wall again. Can you believe it?
+- [00:34.960] I can't even believe it. They want to
+- [00:36.840] open the wall. They haven't taken away
+- [00:39.280] boys playing in women's sports. They
+- [00:41.480] haven't done that. Men playing in
+- [00:43.000] women's sports. It's like they they
+- [00:44.960] don't change. They lost an election in a
+- [00:47.240] landslide and they don't change.
+- [00:57.080] Well, we're going to do about three or
+- [00:58.160] four days. We'll see how it is.
+- [01:00.360] All of the Arab countries have signed
+- [01:02.800] up. The Muslim countries have all signed
+- [01:04.720] up.
+- [01:06.240] Israel's all signed up. We're just
+- [01:08.360] waiting for Hamas and Hamas is either
+- [01:10.360] going to be doing it or not and if it's
+- [01:12.760] not, it's going to be a very sad end.
+- [01:21.060] [Music]
+- [01:23.800] Not much.
+- [01:25.240] You know, with Hamas we want very
+- [01:26.600] simple. We want the hostages back
+- [01:28.400] immediately
+- [01:29.880] and uh we want some good behavior
+- [01:32.320] and uh you know, it's pretty pretty
+- [01:34.480] simple. You don't get simpler. Think of
+- [01:37.200] it. We've signed every country in the
+- [01:39.120] Middle East.
+- [01:40.560] This was like an impossible thing. It's
+- [01:42.200] never been done before. This is more
+- [01:44.400] than Gaza. Gaza was big stuff, but this
+- [01:47.240] is Gaza is a piece of it.
+- [01:54.920] I will let them go and do what they have
+- [01:56.520] to do. They can do it pretty easily. I
+- [01:58.080] would let them go and do what they have
+- [01:59.520] to do. You know, uh we've killed about
+- [02:02.640] 25,000
+- [02:04.200] Hamas. So certainly they've paid a big
+- [02:06.600] price for October 7th and this is a
+- [02:09.399] whole new group. You know, they come in
+- [02:11.080] and they come in and they keep coming,
+- [02:13.160] but this is a whole different group and
+- [02:15.320] their leadership has been killed three
+- [02:17.480] different times.
+- [02:19.200] So they paid a big price. We hope that
+- [02:21.080] they're going to have a nice calm life.
+- [02:24.160] Maybe it won't happen, but if it does,
+- [02:26.240] it'll be one of the greatest things ever
+- [02:27.800] to happen. We'll have actual peace in
+- [02:29.920] the Middle East.
+- [02:39.640] We'll see what happens with Venezuela.
+- [02:41.400] Venezuela has been very
+- [02:43.480] dangerous with drugs and with other
+- [02:45.360] things
+- [02:46.400] and they've been very very dangerous. So
+- [02:48.240] we'll see what happens with Venezuela.
+- [02:50.440] We uh
+- [02:51.920] We had a lot of drugs coming in through
+- [02:53.560] what we call water drugs. It's a simple
+- [02:55.640] term.
+- [02:56.720] We don't have any boats on the water.
+- [02:58.680] There are no boats. There are no fishing
+- [03:00.680] boats. There are no anything.
+- [03:02.440] So we hit a number of boats. You
+- [03:04.000] probably saw that and since we did that,
+- [03:06.760] we have absolutely no drugs coming into
+- [03:09.040] our country via water
+- [03:11.600] because it was lethal and now we'll look
+- [03:14.040] at cartels. We're going to look very
+- [03:15.560] seriously at cartels coming by land.
+- [03:24.880] Well, this is only in a spirit accord.
+- [03:26.560] You know what a spirit accord is? It's
+- [03:27.920] only a spirit. We're going to be talking
+- [03:31.240] to him. Pete Hegseth is
+- [03:32.880] talking right now. I'm going to have to
+- [03:34.200] leave because I have to talk to him, but
+- [03:36.120] these are our generals, our admirals,
+- [03:37.720] our leaders and it's a good thing. A
+- [03:39.560] thing like this is never been done
+- [03:41.520] before because they came from all over
+- [03:43.240] the world and there's a little bit of
+- [03:45.120] expense, not much, but there's a little
+- [03:46.800] expense to that. We don't like to waste
+- [03:48.440] it. We'd rather spend it on bullets and
+- [03:50.760] rockets, frankly,
+- [03:52.320] but this was the one time we had to do a
+- [03:55.360] a great spiritizing. It's uh it's going
+- [03:57.600] to be great. I've seen it already. We
+- [03:59.440] have every general, every admiral. We
+- [04:01.680] have great people. We have our real
+- [04:03.880] warriors over there and when they're not
+- [04:06.200] good, when we don't think they're our
+- [04:07.840] warriors, you know what happens? We say,
+- [04:10.080] "You're fired. Get out." We had some
+- [04:12.360] real bad ones last time and I rebuilt
+- [04:14.840] the military, the entire military,
+- [04:17.079] but I had a couple and I had
+- [04:18.160] unbelievable people to do that. You have
+- [04:20.200] to, but I had unbelievable people in
+- [04:22.680] there, but I also had some bad ones at
+- [04:24.760] the top
+- [04:26.600] like Milley and Mattis and
+- [04:29.960] that
+- [04:31.000] Esper.
+- [04:32.600] I told him too. Always too late. Esper,
+- [04:35.360] he was horrible.
+- [04:36.800] So but I learned because you know, that
+- [04:38.440] was I was just in there and I put these
+- [04:40.000] people in. They were recommended by
+- [04:42.080] rhinos and others and then I could what
+- [04:44.480] we have now is the best, but even
+- [04:46.720] despite that, I rebuilt the military in
+- [04:49.080] my first term. We had a great first
+- [04:50.640] term. We had the greatest economy ever
+- [04:53.160] and it's being beaten by a lot this
+- [04:55.480] time. So I'm going over. I'm going to be
+- [04:57.280] meeting
+- [04:58.600] I'm going to be meeting with general and
+- [05:00.480] with admirals and with leaders
+- [05:02.920] and if I don't like somebody, I'm going
+- [05:04.440] to fire them right on the spot.

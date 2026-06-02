@@ -1,0 +1,488 @@
+<!-- source: https://www.youtube.com/watch?v=3rmWeGbfN8o -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 3rmWeGbfN8o -->
+<!-- date_published: 2025-01-24T12:23:39+00:00 -->
+<!-- date_accessed: 2026-06-02T01:31:08.343359+00:00 -->
+
+# Transcript: 01/23/25: President Trump Signs Executive Orders
+
+- [00:00.599] we signed some executive orders they
+- [00:02.800] were uh very important in just about
+- [00:06.000] every case and it will go through the
+- [00:08.599] first one please do you want to yeah uh
+- [00:11.480] Mr President this is an executive order
+- [00:13.240] on crypto we're going to be oh sorry
+- [00:15.799] we're sorry this is executive order on
+- [00:18.359] AI we're forming we're uh we're
+- [00:21.119] basically um announcing the
+- [00:23.199] administration's policy to make uh
+- [00:25.160] America the the world capital in
+- [00:27.320] artificial intelligence and to dominate
+- [00:29.720] and to lead the world in AI do you want
+- [00:32.279] to say your name your full name David AI
+- [00:34.920] cryptar David is one of the greatest in
+- [00:37.399] the world at AI most respected probably
+- [00:40.760] there
+- [00:49.680] is so that should take us to the
+- [00:51.920] Forefront right absolutely we got a
+- [00:57.840] wi okay
+- [01:01.719] thank
+- [01:03.119] you and this David is cryp yeah this is
+- [01:06.320] the crypto EO we're going to be forming
+- [01:08.360] a internal working group to make uh
+- [01:10.439] crypto to make America the world capital
+- [01:12.040] and crypto under your
+- [01:13.439] leadership which is really going up
+- [01:15.680] right
+- [01:25.320] absolutely all right David that's for
+- [01:27.400] you thanks
+- [01:36.320] you find them exciting they might not be
+- [01:38.799] excited but we're going to make a lot of
+- [01:40.040] money for the country thank you sir and
+- [01:43.439] so is David you have to check him out
+- [01:46.840] there's nobody like this guy he said how
+- [01:49.360] did you get David saxs how did you do
+- [01:51.399] that and he's uh he's doing it for the
+- [01:55.040] country more than anything else so we
+- [01:56.680] appreciate it David thank you very much
+- [01:59.520] this is an executive order establishing
+- [02:01.799] a presidential commission an advisory
+- [02:04.119] Commission on Science and Technology
+- [02:17.040] good you want to explain that a little
+- [02:19.200] bit uh the basic idea is to get together
+- [02:21.720] top people from government the private
+- [02:23.879] sector uh technology industry uh as well
+- [02:27.440] as educational institutions
+- [02:30.120] to make sure that America maintains its
+- [02:31.879] leadership position respect to Science
+- [02:33.720] and Technology development in the years
+- [02:36.519] ahead
+- [02:38.959] good that's
+- [02:40.920] great next sir we have a presidential
+- [02:43.480] memorandum uh encouraging departments
+- [02:45.879] and agencies in your government
+- [02:47.200] including the department of the interior
+- [02:49.440] uh to promote uh Federal recognition of
+- [02:52.080] the Lumby tribe of North Carolina I love
+- [02:55.480] the Lumby tribe so this is their first
+- [02:58.360] big step right this would be a huge huge
+- [03:00.040] step for them yeah they were with me all
+- [03:01.879] the way they were great North Carolina
+- [03:04.720] Lumby
+- [03:14.480] track okay you'll send you'll send them
+- [03:17.000] a copy of that yes sir they were
+- [03:23.080] great okay and if you'd like I could get
+- [03:25.480] them that pen sir as well yeah let's do
+- [03:27.760] that
+- [03:32.000] next we have uh a set of Pardons for
+- [03:34.959] peaceful pro-life protesters who were
+- [03:37.519] prosecuted by the Biden Administration
+- [03:39.439] for exercising their first amendment
+- [03:41.319] rights do you know how many uh I believe
+- [03:44.200] it's 23 sir 23 people that were
+- [03:50.120] prosecuted they should not have been
+- [03:52.239] prosecuted men of many of them
+- [03:55.560] are elderly people they should not have
+- [03:59.360] been
+- [04:00.439] prosecutor this is a great honor to sign
+- [04:19.880] this they'll be very happy so they're
+- [04:22.960] all in prison now uh some are uh some
+- [04:25.919] are are out of custody
+- [04:28.560] ridiculous okay okay lastly sir we have
+- [04:31.400] an executive order ordering the
+- [04:33.440] declassification of files relating to
+- [04:36.240] the assassinations of President John F
+- [04:38.199] Kennedy uh Senator Robert F Kennedy and
+- [04:41.240] the Reverend Dr Martin Luther King Jr
+- [04:43.080] that's a big one huh lot of people are
+- [04:46.120] waiting for this longed for
+- [04:48.520] years for
+- [04:54.639] decades and everything will be revealed
+- [05:03.680] okay give that to RFK okay
+- [05:09.080] sir
+- [05:14.639] okay okay thank you very much Mr
+- [05:17.120] President Mr President Mr President a US
+- [05:19.880] judge temporarily blocks um the
+- [05:22.440] birthright citizenship order do you have
+- [05:24.199] any reaction no obviously we'll appeal
+- [05:26.600] it they put it before a certain judge in
+- [05:29.759] Seattle I guess right and uh there's no
+- [05:33.360] surprises with that
+- [05:34.840] judge Mr senators cins and marowski have
+- [05:38.360] now said they will vote against Pete heg
+- [05:41.120] are you worried about his confirmation
+- [05:43.319] and your reaction and no surprises there
+- [05:45.520] too bad you know since the way the way
+- [05:48.479] it is too bad and when would you adjourn
+- [05:50.840] Congress to make recess appointments Mr
+- [05:52.919] President well i' take a look at that I
+- [05:55.039] listened to John th he's doing a
+- [05:56.680] fantastic job we're moving along the
+- [05:58.520] Democrats are trying to delay government
+- [06:01.039] as they always do they can't help
+- [06:03.360] themselves even John Ratliff who's very
+- [06:06.599] very strong very popular and uh like by
+- [06:10.039] the Democrats I guess he gets a lot of
+- [06:12.039] democrat votes uh that's taking a long
+- [06:14.639] time and it shouldn't be taking a long
+- [06:16.319] time they they're maxing everything out
+- [06:18.400] so they can delay everything as much as
+- [06:21.520] possible support an effort to use recess
+- [06:24.479] appointments if you choose to do that
+- [06:26.479] I'd be willing to use recess
+- [06:27.759] appointments it's up to John we'll see
+- [06:30.759] and John th's a great guy great Senator
+- [06:33.960] knows his stuff inside out and backwards
+- [06:36.639] but I would use recess appointments if
+- [06:39.440] he wants to do that
+- [06:42.199] absolutely the Democrats are just
+- [06:44.120] delaying they always delay Mr President
+- [06:46.479] you spoke with the Saudi CR Prince
+- [06:48.639] yesterday who the Saudi CR Prince how
+- [06:51.639] was the uh the call and $600 million
+- [06:55.319] billion dollar to get invest 600 I'll
+- [06:57.720] ask him for a trillion you said you can
+- [06:59.879] ask for a trilon will Saudi Arabia be
+- [07:01.960] the first foreign country you would
+- [07:03.400] visit since they inves in that much well
+- [07:05.879] if they do that I would yeah I would be
+- [07:08.280] glad to do that I did it as you know
+- [07:10.520] four years ago we did $450 billion
+- [07:13.639] meaning the money all goes to American
+- [07:15.840] companies and uh they purchase Jets and
+- [07:18.599] they purchased computers and everything
+- [07:20.840] else and we did 450 billion and I guess
+- [07:24.440] we're at 600
+- [07:27.000] 650 and I'll see if I can talk him into
+- [07:29.319] it the East again um you showed great
+- [07:32.400] confidence in Steve W why you said that
+- [07:35.560] you doubt that the ceasefire in Gaza
+- [07:37.400] will will hold since you appraised his
+- [07:40.280] well no I think he's great but it's a
+- [07:42.479] very tricky place it's very tricky and
+- [07:44.599] we'll see and if it if something does
+- [07:46.840] happen uh they will not be happy so
+- [07:50.840] follow up on that one in terms of Steve
+- [07:53.479] wiof are you going to put him in charge
+- [07:55.120] of of Iran's strategy and do you want
+- [07:57.159] him talking directly with Iran no but
+- [07:59.520] he's certainly somebody I would use he's
+- [08:01.120] done a fantastic job he's a great
+- [08:02.800] negotiator he's a very good person great
+- [08:05.879] a very popular person gets along with
+- [08:08.360] people I have great negotiators they
+- [08:10.599] they have no personality whatsoever and
+- [08:12.599] then I have some that Steve has a
+- [08:14.720] wonderful way about him and people like
+- [08:16.599] him and even in this case both sides
+- [08:19.039] like him and he was able to make a deal
+- [08:21.800] that deal would have never been made
+- [08:23.080] without Steve the Biden people couldn't
+- [08:25.400] make the deal they were working on it
+- [08:26.919] for a year and a half they couldn't make
+- [08:28.879] a deal we got got it done prior to the
+- [08:31.240] inauguration we said it has to be before
+- [08:33.240] the
+- [08:33.880] inauguration uh I mean the deal should
+- [08:35.880] hold but if it doesn't
+- [08:37.800] hold there'll be a lot of problem to
+- [08:40.599] your AI EO just hours after you made
+- [08:42.959] that big star date announcement Elon
+- [08:45.240] must twed that they don't actually have
+- [08:47.240] the money is that true I don't know if
+- [08:49.399] they do but you know they're putting up
+- [08:50.880] the money the government's not putting
+- [08:52.160] up anything uh they're putting up money
+- [08:54.680] they're very rich people so I hope they
+- [08:56.760] do and I mean Elon doesn't like one of
+- [08:59.160] those people
+- [09:02.920] so to replace many American jobs no no
+- [09:07.920] no it's going to create tremendous
+- [09:09.360] numbers of jobs it's going to also uh
+- [09:11.800] create a lot of benefits medically for
+- [09:14.519] cancer research and other things it's
+- [09:16.240] going to have a huge positive impact and
+- [09:19.200] you know we want to be ahead of China
+- [09:20.640] we're right now way ahead of
+- [09:22.279] China uh David saxs is one of the
+- [09:24.839] alltime experts you know that people are
+- [09:26.800] amazed that he you just met him I don't
+- [09:28.560] know if he's still here there he is but
+- [09:31.320] um but one of the most respected people
+- [09:33.920] in that world it's a world that's a
+- [09:35.839] whole different world and we're ahead of
+- [09:38.680] China now because of what I'm doing and
+- [09:41.440] I think it's going to be very
+- [09:43.839] successful please you just asked the D
+- [09:46.240] was Forum again that NATO countries
+- [09:48.360] should spend 5% of GDP on defense the
+- [09:51.839] United States don't spend 5% should also
+- [09:55.120] apply to the United States we're
+- [09:56.480] protecting them you know they're not
+- [09:58.640] protecting us we're protecting them so I
+- [10:01.279] don't think we should be spending I'm
+- [10:02.600] not sure we should be spending anything
+- [10:04.200] but we should certainly be helping them
+- [10:05.760] but they should they should up there 2%
+- [10:08.360] to 5% yeah Mr President Mr President Mr
+- [10:11.480] President you said earlier during your
+- [10:13.120] speech at Davos that you would like to
+- [10:14.560] see interest rates come down how much
+- [10:16.519] would you like to see them come down you
+- [10:18.000] talk I'd like to see them come down a
+- [10:19.440] lot and oil prices will come down and
+- [10:21.600] when oil prices come down everything's
+- [10:24.000] going to be cheaper for the American
+- [10:25.560] people and actually for the world but
+- [10:27.720] for the American people so I'd like to
+- [10:29.320] to see oil prices come down and when the
+- [10:31.920] energy comes down that's going to knock
+- [10:33.600] out a lot of the inflation that's going
+- [10:35.839] to automatically bring the interest
+- [10:37.600] rates down are you
+- [10:40.079] worried are you worried that there's too
+- [10:42.000] much going on at once if you're trying
+- [10:43.360] to bring interest rates down get the
+- [10:45.120] economy it just works that way I it's
+- [10:47.600] just economically works that way when
+- [10:49.880] the oil comes down it'll bring down
+- [10:51.639] prices then you won't have inflation and
+- [10:53.440] then uh the interest rates will come
+- [10:55.480] down you said that you would demand that
+- [10:57.320] the interest rates come down well I
+- [10:58.959] would
+- [11:00.040] I would put in a strong statement do you
+- [11:02.399] expect the FED to listen to
+- [11:04.240] you yeah are you going to talk to Powell
+- [11:07.000] about this and bringing the r down at
+- [11:09.560] the right time I
+- [11:11.120] would people you pardon that were
+- [11:13.519] participated in the January 6 2021 you
+- [11:15.920] plan to meet with any of them or meet
+- [11:17.240] with them at the White House I don't
+- [11:18.480] know I'm sure that they probably would
+- [11:20.240] like to I did I did them something
+- [11:22.279] important but what they did is they were
+- [11:23.920] protesting a crooked election and you
+- [11:25.959] know I mean people understand that also
+- [11:29.000] and they were treated very badly
+- [11:30.880] nobody's been treated like that so I'd
+- [11:34.200] be open to it certainly I I don't know
+- [11:35.959] of anything like that but I think they
+- [11:37.720] they're going to meet in some of the
+- [11:39.200] Congress people congressmen women want
+- [11:42.079] to uh want to meet but uh I'd certainly
+- [11:45.120] be open to have you spoken to them since
+- [11:46.720] you the pardons I haven't spoken to any
+- [11:48.680] of them yet but I know they're very
+- [11:50.320] happy I gave I gave them their life back
+- [11:53.279] their life was taken away from them
+- [11:55.320] unnecessarily and unfairly I gave them
+- [11:57.800] their life back so I can imagine IM they
+- [11:59.720] probably would like to Mr what does it
+- [12:01.800] mean when you said that Biden took bad
+- [12:03.880] advice and not parting himself yesterday
+- [12:06.519] well he did I think he did because he he
+- [12:09.079] pardoned all these people that are
+- [12:11.240] crooked as hell look the congressman
+- [12:13.000] they're crooked what they did is they
+- [12:15.560] destroyed evidence when you destroy
+- [12:17.560] evidence especially criminally like that
+- [12:19.720] they did it criminally and the reason
+- [12:22.079] they destroyed the evidence is because
+- [12:23.720] it proved that I was right they didn't
+- [12:25.279] destroy evidence for no reason they
+- [12:26.959] destroyed it because they found many
+- [12:29.639] documents saying that I offered 10,000
+- [12:33.360] soldiers if they had 500 soldiers or
+- [12:36.720] National Guard there would have been no
+- [12:38.680] problem if they had 200 that would have
+- [12:40.519] been I offered 10,000 if they needed
+- [12:42.440] them there would have been no problem
+- [12:44.360] that's been now totally disproven and
+- [12:46.360] it's also been disproven by Nancy
+- [12:48.760] Pelosi's daughter who has her own tape
+- [12:50.800] saying it was her fault that she has
+- [12:52.800] full responsibility for this but and
+- [12:55.600] they have all that stuff they destroyed
+- [12:57.959] everything and and they go through a
+- [13:01.079] year and a half two years of nonsense
+- [13:04.240] they come up with tremendous evidence
+- [13:06.519] and they destroyed
+- [13:08.440] evidence uh and shiff knew about it
+- [13:10.880] that's why he's on there he knew all
+- [13:12.199] about the destruction of evidence a lot
+- [13:13.880] of people said he's the one that got him
+- [13:15.440] to do it and he's a crooked guy you a
+- [13:18.079] totally crooked politician and so he's
+- [13:21.199] pardoned and some other people are
+- [13:22.720] pardoned and these are crooked
+- [13:24.920] politicians every one of them Benny
+- [13:27.720] Johnson what he did is incred incredible
+- [13:29.519] I mean he was the leader of the
+- [13:30.639] committee and he did it Janie crying
+- [13:33.639] Adam kinzinger all of them they
+- [13:36.279] destroyed evidence and deleted
+- [13:39.160] everything there's nothing there's no
+- [13:41.720] evidence now they're crooked politicians
+- [13:44.920] and they should be punished you know
+- [13:47.519] that's even in a Civil Trial you go to
+- [13:49.560] jail for a thing like that they
+- [13:51.519] destroyed every document from what I
+- [13:54.440] understand every document because it
+- [13:56.920] proved that I was to
+- [14:00.519] innocent s000 troops to the southern
+- [14:03.600] border yeah oh Southern border yes when
+- [14:07.240] you say Southern border when I said
+- [14:08.600] 10,000 troops I was referring to the
+- [14:11.199] capital oh I see and no you got I was
+- [14:14.399] referring to the I offered 10,000 troops
+- [14:17.399] for the capital
+- [14:18.880] before January 6th and as for the 1500
+- [14:22.360] at the southern border s to clarify what
+- [14:25.079] exactly do you want them to be doing
+- [14:26.959] right now um making sure that the border
+- [14:29.519] is safe and secure and that criminals
+- [14:32.320] don't come into our
+- [14:33.959] country you think that sanctions on
+- [14:36.199] Russia will force President Putin to
+- [14:38.839] negotiate I don't know but I think he
+- [14:40.399] should make a deal Mr President does it
+- [14:43.079] bother you that Elon Musk criticized a
+- [14:45.320] deal that you made publicly that he said
+- [14:47.240] that he tweeted that no it doesn't he
+- [14:49.360] hates one of the people in the deals
+- [14:51.160] have you spoken to him since then no no
+- [14:53.639] well I spoken El but uh spoken all of
+- [14:55.920] them actually no look the people in the
+- [14:58.360] deal are very very very smart people but
+- [15:00.000] Elon one of the people he happens to
+- [15:02.399] hate but I have certain hatreds of
+- [15:04.440] people too sir you know sir China uh
+- [15:08.000] what do you think Xi Jinping can do on
+- [15:10.000] the Ukraine Russia War which one Ukraine
+- [15:12.519] R Russia War what can Xi Jinping do
+- [15:14.199] about that uh China yeah uh they have a
+- [15:18.199] lot of power over
+- [15:20.360] Russia uh they supply energy to
+- [15:25.519] Russia and uh Russia supplies energy to
+- [15:29.000] to them they Supply other things to you
+- [15:31.279] know it's really a very big trade it's a
+- [15:33.920] very big trading partner but Russia
+- [15:35.480] supplies a lot of energy to China that
+- [15:39.079] China pays them a lot of money for that
+- [15:41.199] and uh I think they have a lot of power
+- [15:43.000] over Russia so I think Russia should
+- [15:45.440] want to make a deal maybe they want to
+- [15:46.759] make a deal I think from what I hear
+- [15:48.680] Putin would like to see me and we'll
+- [15:50.160] meet as soon as we can i' I'd meet
+- [15:52.040] immediately every day we don't meet
+- [15:54.639] soldiers are being killed in a
+- [15:56.040] battlefield and that battle Battlefield
+- [15:59.120] is like no Battlefield since World War
+- [16:02.839] II that's and I have I have pictures
+- [16:07.120] that you don't want to see soldiers are
+- [16:10.079] being killed on a daily basis at numbers
+- [16:13.279] that we haven't seen in decades and it
+- [16:16.079] would be nice to end that war it's a
+- [16:17.639] ridiculous War he said that Ukraine's
+- [16:19.600] ready to make a deal did President
+- [16:21.279] zalinsky tell you that yeah sure he's
+- [16:23.600] ready to negotiate a deal he'd like to
+- [16:25.440] stop he's uh he's uh
+- [16:29.560] somebody that lost a lot of soldiers and
+- [16:33.000] so did Russia lost a lot Russia lost
+- [16:35.199] more soldiers they
+- [16:37.319] lost 800,000 soldiers would you say
+- [16:40.480] that's a lot I'd say it's a
+- [16:42.639] lot you said that you wanted toit Dr
+- [16:45.360] King's dream of reality what's your
+- [16:46.839] response to his children and civil
+- [16:48.880] rights leaders who say that your Dei
+- [16:51.319] orders are a contradiction of his dream
+- [16:53.800] and could further drve well I haven't
+- [16:55.839] heard that Mr President uh you put the
+- [16:59.079] is back on the terror list how do you
+- [17:01.360] see the war in Yemen in well we'll see
+- [17:03.880] what happens but they can't shoot down
+- [17:07.000] our ships the hooes yes they're not you
+- [17:09.559] can't shoot down our ships or any ships
+- [17:12.079] and that's what they've been doing so
+- [17:14.280] they're run the terrorist that that's
+- [17:16.480] not good for them why do roke security
+- [17:19.199] protections for former Secretary of
+- [17:21.120] State Mike Pompeo and and Brian
+- [17:23.760] H well the same reason I do when you you
+- [17:26.439] know have protection you can't have it
+- [17:28.240] for the rest of life do you want to have
+- [17:29.679] a large detail of people guarding people
+- [17:32.400] for the rest of their lives I mean
+- [17:34.559] there's risks to
+- [17:36.480] everything so would you support striking
+- [17:39.400] Iran's nuclear facilities say it would
+- [17:42.600] you support Israel for example striking
+- [17:45.360] Iran's nuclear
+- [17:47.520] facilities obviously I'm not going to
+- [17:49.280] answer that question we'll have to see
+- [17:51.000] I'm going to be meeting with various
+- [17:53.200] people over the next couple of days
+- [17:55.159] we'll see but hopefully that could be
+- [17:57.280] worked out without having to worry about
+- [17:58.880] about it it would be nice it would
+- [18:00.600] really be nice if that could be worked
+- [18:02.120] out without having to go that further
+- [18:03.960] step and who are you going to meet with
+- [18:05.799] as I'm well I'd rather not say that but
+- [18:07.960] very high level people but hopefully
+- [18:10.240] that could be worked out you know look
+- [18:11.640] Iran hopefully will be make a deal and
+- [18:14.039] if they don't make a deal I guess that's
+- [18:16.679] okay too and Mr President just to follow
+- [18:19.400] up you said you think the FED should
+- [18:20.880] listen to you can you elaborate on why
+- [18:23.480] you think it should with regard to
+- [18:25.200] interest rates corre because I think I
+- [18:26.840] know interest rates much better than
+- [18:28.480] they do and I think I know it certainly
+- [18:31.039] much better than uh the one who's
+- [18:33.880] primarily in charge of making that
+- [18:35.559] decision but uh no I'm Guided by them
+- [18:38.480] very much but if I disagree I will let
+- [18:40.799] it be known sir if your tff plan for
+- [18:43.240] China and Mexico are much tougher the
+- [18:45.120] ones for Canada and Mexico are much
+- [18:46.600] tougher than the one for China why is it
+- [18:48.440] softer for China well China is already
+- [18:50.919] paying a lot of tariffs because of me
+- [18:53.559] and when you add them up that would say
+- [18:55.760] you know they're paying a lot they've
+- [18:56.960] paid hundreds of billions of dollars
+- [18:59.679] they never paid 10 cents until I came
+- [19:02.000] along when I came along uh they pay
+- [19:04.600] hundreds of they've paid hundreds of
+- [19:07.280] billions of dollars never paid
+- [19:10.679] anything and uh so they've already
+- [19:12.960] started at a higher base February 1 the
+- [19:16.200] date for Chinese tariffs as well sir
+- [19:18.200] February 1 or was that just Mexico and
+- [19:20.120] Canada uh it's Mexico and Canada but
+- [19:22.200] we'll we'll talking about China too look
+- [19:24.080] China is sending us tremendous amounts
+- [19:26.760] of bad drugs fent andol really bad stuff
+- [19:30.559] most of it comes through
+- [19:33.159] Mexico and we're
+- [19:35.200] losing I I think 300,000 lives a year
+- [19:38.840] because of that people say 150 100 12 I
+- [19:42.440] think 300,000 lives a year those are old
+- [19:45.360] numbers the other the lower num is a low
+- [19:47.960] number and we can't have that they've
+- [19:50.440] got to stop sending it I had a deal with
+- [19:52.520] presiden she but it was a deal that
+- [19:54.120] wasn't followed up by Biden of course
+- [19:57.000] where they were going to issue the death
+- [19:58.200] penalty to people that make fentin all
+- [20:01.200] and that would have stopped it but
+- [20:04.360] um we'll have to stop it with tariffs
+- [20:07.400] okay thank you very much everybody

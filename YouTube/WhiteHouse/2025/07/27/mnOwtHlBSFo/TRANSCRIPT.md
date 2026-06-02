@@ -1,0 +1,569 @@
+<!-- source: https://www.youtube.com/watch?v=mnOwtHlBSFo -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: mnOwtHlBSFo -->
+<!-- date_published: 2025-07-27T16:25:47+00:00 -->
+<!-- date_accessed: 2026-06-02T02:46:36.951260+00:00 -->
+
+# Transcript: President Trump Meets with the President of the European Commission
+
+- [00:17.350] The President: Nice to see you.
+- [00:38.130] Well, thank you very much.
+- [00:39.390] It's a beautiful Sunday in Scotland
+- [00:43.630] and we thought we could cut things short by
+- [00:47.640] – And certainly travel distance by having our meeting here.
+- [00:50.500] So we discussed options and it's an honor
+- [00:54.590] to have the president of the European Union with us.
+- [00:58.900] Ursula has been really done a terrific job.
+- [01:03.380] For them, not for us, but she's done a great job
+- [01:06.320] and she's highly respected by us also.
+- [01:10.220] And we look forward to talking to see if we can do something.
+- [01:14.830] We've had a very good relationship over the years,
+- [01:18.580] but it's been a very one-sided transaction,
+- [01:21.670] very unfair to the United States,
+- [01:25.190] and I think both sides want to see fairness,
+- [01:27.250] but it's been a very, very one-sided deal
+- [01:30.430] and it shouldn't be.
+- [01:32.280] And so we're here with her very brilliant staff
+- [01:36.120] and hopefully we'll resolve a few issues.
+- [01:39.620] But it's a great honor.
+- [01:40.900] You know, we just built this ballroom
+- [01:43.020] and we're building a great ballroom at the White House.
+- [01:44.910] The White House has wanted a ballroom for 150 years,
+- [01:48.760] but they never had a real estate person.
+- [01:50.540] Nobody, no president knew how to build a ballroom.
+- [01:53.180] But this just opened relatively short time ago
+- [01:56.810] and it's been quite the success.
+- [01:58.300] And I think I was just saying I could take this one,
+- [02:01.630] drop it right down there and it would be beautiful.
+- [02:03.570] This is exactly what they've wanted,
+- [02:05.700] but it's an honor to have you at the new ballroom at Turnberry
+- [02:09.720] and thank you very much. Thank you.
+- [02:12.590] Ursula Von Der Leyen: Thank you very much, Mr. President.
+- [02:14.410] Thank you very much for inviting me here.
+- [02:17.280] Indeed, it is today about trade
+- [02:21.870] between the European Union and the United States.
+- [02:24.770] We are together the two largest economies worldwide.
+- [02:27.470] The President: Right.
+- [02:28.690] Ursula Von Der Leyen: If you look at the trade volume,
+- [02:30.260] it's the biggest trade volume
+- [02:31.910] globally with $1.7 trillion among us.
+- [02:37.590] And if you look at our markets,
+- [02:39.160] it's a huge market, 800 million people
+- [02:42.230] if you take the United States and the European Union.
+- [02:45.280] So I'm very much looking forward
+- [02:47.460] to the discussions we will have now.
+- [02:50.880] Our staff have done some of the heavy lifting,
+- [02:53.580] but now it's on us.
+- [02:55.910] And you are known as a tough negotiator and dealmaker.
+- [03:01.650] The President: But fair.
+- [03:02.890] [laughter]
+- [03:04.090] Ursula Von Der Leyen: And fair and what is in front of us-
+- [03:05.910] The President: That's less important.
+- [03:07.130] Ursula Von Der Leyen: If we are successful,
+- [03:08.360] I think it would be the biggest deal each of us has ever struck.
+- [03:12.830] So I'm very much looking forward-
+- [03:14.490] The President: Ever struck by anybody.
+- [03:15.760] That's true. That's true.
+- [03:17.450] Right now we have that honor goes to Japan.
+- [03:20.430] We just struck a deal with Japan, as you know,
+- [03:23.230] and we're very close to a deal with China.
+- [03:25.810] We really sort of made a deal with China,
+- [03:27.700] but we'll see how that goes.
+- [03:29.840] And we have numerous other deals,
+- [03:31.170] and mostly I'm just going to charge tariffs
+- [03:34.100] and it is not a deal per se,
+- [03:35.790] but people are going to pay tariffs
+- [03:37.600] and we're doing them at the low end, not the high end
+- [03:39.530] because we don't want to hurt anybody and pretty well.
+- [03:43.270] But you and I both figured this is really the biggest
+- [03:47.690] trading partnership in the world,
+- [03:49.980] so we should give it a shot, right?
+- [03:51.540] Ursula Von Der Leyen: Yeah, I'm much looking forward to that.
+- [03:53.880] The President: Thank you very much.
+- [03:55.200] I do too. Any questions, please.
+- [03:58.640] The Press: On Friday, you put the chances of a deal at 50%,
+- [04:01.690] maybe less. It seems like you're in quite a good mood.
+- [04:03.960] How would you rate those chances now?
+- [04:06.140] The President: I'm actually not in a good mood,
+- [04:07.470] but I will tell you,
+- [04:09.210] [laughter]
+- [04:10.560] I think the chances are – yeah,
+- [04:13.350] I think Ursula would say probably 50/50 of making a deal.
+- [04:17.970] I'd like to make a deal. I think it's good for both.
+- [04:20.980] But yeah, I'd say 50/50.
+- [04:22.700] The Press: And what would you say the main sticking points
+- [04:24.400] are at this moment?
+- [04:26.500] The President: We have three or four sticking points.
+- [04:27.850] I'd rather not get in. We'll be discussing them,
+- [04:29.940] but I think the main sticking point is fairness.
+- [04:34.110] Please?
+- [04:35.330] The Press: Why you were in a bad mood?
+- [04:36.610] Was it a bad morning of golf or why you not in a good mood?
+- [04:40.040] The President: No, the golf was beautiful.
+- [04:43.500] Golf can never be bad.
+- [04:44.740] Even if you play badly, it's still good.
+- [04:47.570] If you had a bad day on the golf course, it's okay.
+- [04:51.140] It's better than other days.
+- [04:53.500] But no, I think I look forward to this meeting.
+- [04:57.880] We've had a hard time with trade with Europe, very hard time,
+- [05:03.840] and I'd like to see it resolved,
+- [05:07.470] but if it isn't, we'll have tariffs
+- [05:10.060] and they'll do what they have to do.
+- [05:11.700] But we have a good chance of getting it resolved.
+- [05:13.810] We'll probably know in about an hour.
+- [05:16.240] It shouldn't take that long.
+- [05:18.050] It's complicated, but not really complicated
+- [05:20.370] when you get right down to it. Right?
+- [05:22.110] The Press: August 1st deadline, is there any chance that gets-
+- [05:25.350] The President: No, no, no.
+- [05:26.600] The August 1st is there for everyone.
+- [05:29.260] The deals all start on August 1st.
+- [05:31.640] Most of the deals other than steel and aluminum,
+- [05:34.310] which we've been getting 50% tariffs from,
+- [05:38.250] I guess just about everybody.
+- [05:40.100] And those have come in and we've taken
+- [05:42.800] in hundreds of billions of dollars
+- [05:44.690] just on steel and aluminum. You've see in the numbers.
+- [05:48.070] We had a tremendous amount of money
+- [05:50.880] coming over the last month,
+- [05:52.900] and it's coming in very rapidly, which is fair.
+- [05:56.470] We have a lot of steel mills and plants,
+- [05:58.930] aluminum mills and plants being built.
+- [06:01.190] We have a lot of AI being built,
+- [06:02.800] and we have a lot of auto plants being built or going to be built
+- [06:06.520] because they don't want to pay tariffs.
+- [06:07.940] So if they don't want to pay tariffs, the best way to do it
+- [06:11.260] is just build your plant in the United States.
+- [06:14.110] Yes, please.
+- [06:15.450] The Press: What do you expect from the Europeans
+- [06:17.250] in terms of opening the markets to American products?
+- [06:21.310] The President: Well, they have to open up to American products.
+- [06:23.390] We're open to European products, and we have been forever.
+- [06:27.490] We just about don't have any –
+- [06:29.950] I don't think we have any product we say you can't sell.
+- [06:32.880] I guess you could get a little bit cute with chips,
+- [06:35.880] but that's a little bit different category too.
+- [06:39.100] Now, Europe is very close. We don't sell cars into Europe.
+- [06:45.120] We don't sell essentially agriculture of any great degree.
+- [06:47.920] They want to have their farmers do it,
+- [06:50.150] and they want to have their car companies do it.
+- [06:53.140] I'm not saying anything that nobody knows,
+- [06:55.400] that we have a rough situation.
+- [06:58.070] If we want to sell cars in Europe, we're not allowed to.
+- [07:01.390] And as you know, they sell millions and millions of cars,
+- [07:05.430] Mercedes, BMW, so many different – Volkswagen,
+- [07:10.680] so many different cars and so many millions of cars.
+- [07:14.590] I would imagine number one. I didn't look at that,
+- [07:16.850] but I would imagine number one by far more so than even Japan.
+- [07:19.760] Japan sells a lot of cars too,
+- [07:22.420] but the Japan deal worked out very good
+- [07:25.210] I think. I hope for them too. And that's what we want to do.
+- [07:30.210] Make everybody happy. Yes, please.
+- [07:32.240] The Press: Mr. President, should Israel
+- [07:33.670] be doing more to allow food into Gaza?
+- [07:35.350] The President: Say it?
+- [07:36.610] The Press: Should Israel be doing more
+- [07:37.850] to allow food into Gaza?
+- [07:40.760] The President: What did you say?
+- [07:42.380] Staff: Should Israel be doing more to allow food into Gaza?
+- [07:45.390] The President: Well, we gave $60 million two weeks ago
+- [07:51.250] and nobody even acknowledged it for food.
+- [07:54.770] And it's terrible.
+- [07:57.660] You really at least want to have somebody say thank you.
+- [08:00.230] No other country gave anything.
+- [08:02.210] We gave $60 million two weeks ago for food for Gaza,
+- [08:07.250] and nobody acknowledged it. Nobody talks about it.
+- [08:13.000] And it makes you feel a little bad when you do that.
+- [08:15.340] And you have other countries not giving anything.
+- [08:19.760] None of the European countries, by the way, gave – I mean,
+- [08:22.220] nobody gave but us and nobody said thank you very much,
+- [08:26.100] and it would be nice to have at least a thank you.
+- [08:28.610] And I took a lot of heat. When I do that,
+- [08:30.930] a lot of people aren't happy about that because they say,
+- [08:33.550] well, why are we doing it and nobody else?
+- [08:36.470] But I think we had a humanitarian reason
+- [08:39.370] for doing it.
+- [08:40.570] What's going to happen? I don't know.
+- [08:42.450] I can tell you that Hamas,
+- [08:45.280] as I said, would happen at the end.
+- [08:47.490] We've gotten back a lot of hostages,
+- [08:49.590] a tremendous number of hostages, most of them.
+- [08:53.220] Now we have dead hostages and the mothers want them back.
+- [08:58.050] And we have 20 people approximately,
+- [09:00.640] but that are living. But we have a lot of bodies.
+- [09:04.540] And the parents want those bodies as much
+- [09:06.550] as they would want their child, if that child were alive.
+- [09:11.460] I met with parents that it was so sad.
+- [09:15.150] "Sir, please get my son back. How is your son doing?
+- [09:18.870] Well, he's dead, but they have his body."
+- [09:21.920] And it's so important. It's almost like more,
+- [09:25.470] but it's as important as if the child were living.
+- [09:28.730] These people were – I mean, they're devastated.
+- [09:33.370] And I said, when you get it down to a certain number,
+- [09:36.360] you're not going to be able to make a deal with Hamas.
+- [09:39.190] Because once they give them up,
+- [09:41.380] then they feel that that's going to be the end of them.
+- [09:45.970] And what I said is exactly true.
+- [09:47.940] They had a routine discussion the other day,
+- [09:49.850] and all of a sudden they hardened up.
+- [09:51.310] They don't want to give them back.
+- [09:53.360] And so Israel's going to have to make a decision.
+- [09:58.270] I know what I'd do,
+- [09:59.650] but I don't think it's appropriate that I say,
+- [10:01.590] but Israel's going to have to make a decision.
+- [10:04.770] The Press: Mr. President, when you were in the Middle East,
+- [10:06.790] you talked about the images coming out of Gaza
+- [10:09.240] and starving kids. Those images are still going.
+- [10:12.380] Many of them are much worse, thinner children starving.
+- [10:16.170] What do you see or feel when you look at those images today?
+- [10:19.010] The President: Well, it's terrible.
+- [10:20.240] When I see the children and when I see,
+- [10:22.410] especially over the last couple of weeks,
+- [10:25.050] and people are stealing the food.
+- [10:26.810] They're stealing the money.
+- [10:28.160] They're stealing the money for the food.
+- [10:31.390] They're stealing weapons. They're stealing everything.
+- [10:33.570] It's a mess. That whole place is a mess.
+- [10:37.660] The Gaza Strip was given many years ago,
+- [10:41.800] said that they could have peace.
+- [10:43.640] That didn't work out too well. When Israel gave that up,
+- [10:47.890] whoever was the prime minister at the time,
+- [10:51.220] who I know who it was,
+- [10:54.030] but it was not exactly a very clever thing to do
+- [10:56.820] because that was given so that they finally have peace.
+- [10:59.930] And it's actually made the situation worse,
+- [11:03.110] but we'll see what happens. I think Iran is acting up.
+- [11:07.090] I think that we have a lot of people,
+- [11:09.430] we have Venezuela acting up in a different way.
+- [11:13.230] They continue to send people that we rebuff to our border.
+- [11:17.110] They continue to send drugs into our country.
+- [11:19.730] Venezuela, they've been very nasty
+- [11:23.660] and we can't let that happen. And we have other countries too.
+- [11:28.700] We do have, and this is just getting a little off-subject,
+- [11:30.990] but we have now the safest border we've ever had.
+- [11:34.410] And I think in many respects,
+- [11:35.780] we probably have the most successful.
+- [11:37.750] And I say it all the time, every leader,
+- [11:39.400] when I went to NATO the other day,
+- [11:41.820] every leader said you have the hottest country in the world.
+- [11:45.340] We have the hottest country in the world now.
+- [11:47.850] We're taking in hundreds of billions of dollars.
+- [11:51.010] We have the highest stock market we've ever had.
+- [11:54.090] We have the best numbers we've ever had,
+- [11:56.500] but we have hundreds of billions of dollars
+- [11:58.440] pouring into our country. And I think it's the hottest.
+- [12:02.350] And by the way, one year ago, our country was dead.
+- [12:06.890] We had a dead country because of an incompetent president
+- [12:10.620] and incompetent Democrats. All they know how to do is talk
+- [12:14.070] and think about conspiracy theories and nonsense.
+- [12:17.480] If they'd waste their time talking about America
+- [12:20.570] being great again, it would be so much nicer,
+- [12:23.340] so much easier, be very successful.
+- [12:26.510] But we were a dead country
+- [12:28.010] and now we have the hottest country anywhere in the world.
+- [12:30.600] Any other questions?
+- [12:32.210] The Press: President Trump, on this particular deal,
+- [12:34.590] if you managed to do a deal today,
+- [12:36.350] will that be the end of the matter
+- [12:37.690] or could there be more tariffs coming, particularly on France?
+- [12:40.570] The President: No. If we do a deal today
+- [12:42.100] with the European Union, that will be the end of it.
+- [12:45.400] Yeah. We'll go I guess a number of years,
+- [12:49.180] at least before we have to even discuss it again.
+- [12:51.780] No, that would be the end of it for
+- [12:53.390] – And this is the biggest deal.
+- [12:54.770] People don't realize this is bigger than any other deal.
+- [12:58.390] We have great countries, great countries.
+- [13:03.060] I'm familiar with many of them. So are you.
+- [13:06.190] And this is really the biggest deal.
+- [13:08.750] I guess we are the biggest out there, and they're the second.
+- [13:12.770] And when we come together, this will be the biggest deal.
+- [13:15.380] If that happens and it could happen, it should happen.
+- [13:18.530] Okay. Thank you.
+- [13:19.810] The Press: Mr. President,
+- [13:21.050] will pharmaceuticals be part of today's-
+- [13:22.570] The President: No, it won't. Pharmaceuticals will be –
+- [13:25.350] I mean, could be we'll do something,
+- [13:26.860] but basically pharmaceuticals won't be part of it
+- [13:29.920] because we have to have them made in the United States,
+- [13:33.970] and we want them made in the United States.
+- [13:35.860] And I think it's easy to say, and I think it's important
+- [13:38.640] to say pharmaceuticals are very special.
+- [13:42.280] We can't be in a position
+- [13:44.460] where we're relying on other countries.
+- [13:46.190] Now, Europe is going to make pharmaceuticals, drugs,
+- [13:49.200] and everything else for us too, a lot.
+- [13:50.820] But we're going to have also our own.
+- [13:53.050] The Press: A question for President Von Der Leyen.
+- [13:54.600] The President: Yes.
+- [13:55.870] The Press: Can you give your assessment
+- [13:57.290] of what you feel the chances are a deal?
+- [13:59.470] The president just talked about 50/50 chance
+- [14:01.550] and the biggest obstacle being fairness.
+- [14:03.810] What would you say are those things for you?
+- [14:06.120] Ursula Von Der Leyen: I think the president is right.
+- [14:07.470] We have a 50/50% chance to strike a deal.
+- [14:11.240] And indeed, it is about rebalancing.
+- [14:14.000] So you can call it fairness, you can call it rebalancing.
+- [14:17.650] We have a surplus.
+- [14:18.920] The United States has a deficit and we have to rebalance it.
+- [14:22.310] You have an excellent trade relation.
+- [14:23.790] It's a huge volume of trade that we have together,
+- [14:27.330] so we will make it more sustainable.
+- [14:29.880] The Press: Mr. Trump, can you do better
+- [14:31.240] than 15% tariff ratio with the EU?
+- [14:35.400] The President: Better meaning lower?
+- [14:36.620] The Press: Yeah. The President: No.
+- [14:37.950] The Press: Mr. President to return to Gaza.
+- [14:39.160] You're going to meet the British Prime Minister tomorrow.
+- [14:41.290] He's going to ask you to consider again peace
+- [14:43.870] talks between Israel and Hamas.
+- [14:45.640] Are you now saying there is no point in going to-
+- [14:47.850] The President: Well, we're meeting about a lot of things.
+- [14:49.350] We have our trade deal, and it's been a great deal.
+- [14:54.630] It's good for them and good for us.
+- [14:56.500] I think the UK is very happy.
+- [14:58.880] They've been trying for 12 years to get it, and they got it.
+- [15:01.760] And it's a great trade deal for both.
+- [15:03.850] It works out very well.
+- [15:05.130] But we are discussing, we'll be discussing that.
+- [15:07.850] I think we're going to be discussing a lot about Israel.
+- [15:11.510] They're very much involved in terms
+- [15:13.290] of wanting something to happen.
+- [15:14.940] He's doing a very good job, by the way.
+- [15:16.690] The Press: Also on Gaza sir,
+- [15:17.980] did you speak with Prime Minister Netanyahu
+- [15:20.080] this weekend about getting more aid in the Gaza Strip?
+- [15:22.810] The President: I talked to him. Yeah, I did.
+- [15:24.350] I talked to him about a lot of things.
+- [15:27.660] I talked to them about Iran.
+- [15:29.080] I think Iran's been very nasty with their words,
+- [15:32.380] with their mouth. I think they've been very nasty.
+- [15:39.110] They got the hell knocked out of them,
+- [15:40.640] and I don't think they know it.
+- [15:43.390] I actually don't think they know.
+- [15:44.770] They really do. The whole thing's a con job.
+- [15:47.390] We have a lot of con jobs going on,
+- [15:49.460] but Iran was beaten up very for good reason.
+- [15:58.100] We cannot have them have a nuclear weapon.
+- [16:00.990] But they still talk about enrichment.
+- [16:02.410] I mean, who would do that?
+- [16:03.690] You just come out of something that's so bad
+- [16:05.720] and they talk about we want to continue enrichment.
+- [16:09.630] Who would say that? How stupid can you be to say that?
+- [16:12.780] So we're not going to allow that to happen.
+- [16:15.120] We're not allowing that to happen.
+- [16:16.650] The Press: Did you talk about more aid in Gaza?
+- [16:19.690] The President: Will I do more aid?
+- [16:20.900] Yeah. The US is going to do more aid for Gaza,
+- [16:25.010] but we'd like to have other countries participate.
+- [16:27.370] We're going to mention that to the European Union today.
+- [16:31.940] That's an international problem. It's not a US problem.
+- [16:35.470] It's an international problem. And we're giving a lot of money
+- [16:38.890] and a lot of food and a lot of everything.
+- [16:40.290] If we weren't there, I think people would have starved,
+- [16:43.240] frankly, they would've starved.
+- [16:45.780] And it is not like they're eating well.
+- [16:48.810] But a lot of that food is getting stolen by Hamas.
+- [16:52.690] They're stealing the food,
+- [16:53.930] they're stealing a lot of things.
+- [16:55.960] You ship it in and they steal it, then they sell it.
+- [17:00.550] The Press: Friday, you said that Europe is being crushed
+- [17:03.490] by mass migration,
+- [17:04.890] and I wonder whether your friends on this side
+- [17:06.490] of the room agree with you on that.
+- [17:08.790] The President: Well, I'd let you respond to that if you'd like.
+- [17:11.290] Ursula Von Der Leyen: So we have been working intensively
+- [17:13.780] on the topic of regular migration.
+- [17:16.460] And we have from the very beginning said
+- [17:20.120] that migration is a European challenge
+- [17:22.860] that needs a European answer.
+- [17:25.610] As Europeans, we will fulfill our international obligations
+- [17:29.730] as we've done in the past, also in the future.
+- [17:32.210] But we as Europeans are the ones who decide
+- [17:35.780] who comes to the European Union and under what circumstances
+- [17:39.730] and not the smugglers and traffickers.
+- [17:41.820] That's the principle in which we are working.
+- [17:45.460] The President: I will say this, they did ask me
+- [17:47.310] when I got off the plane, immigration,
+- [17:50.690] Europe has a tremendous problem.
+- [17:53.390] We do too. But we've sealed our borders.
+- [17:55.980] We have nobody coming in,
+- [17:57.300] and we have hundreds of thousands of people
+- [18:00.160] being taken out and the bad ones first.
+- [18:02.600] And I think we're doing a very good job of that.
+- [18:05.550] I mean, it literally registered zero people last month.
+- [18:08.720] You probably saw that, nobody,
+- [18:11.170] and Europe has a very similar problem.
+- [18:15.970] I think they're going to end up in the same place.
+- [18:17.950] You might as well go there quicker.
+- [18:20.180] And the other thing I say to Europe,
+- [18:22.770] we will not allow a windmill to be built in the United States.
+- [18:25.120] They're killing us.
+- [18:26.400] They're killing the beauty of our scenery,
+- [18:28.890] our valleys, our beautiful plains.
+- [18:33.020] And I'm not talking about airplanes.
+- [18:34.390] I'm talking about beautiful plains,
+- [18:36.520] beautiful areas in the United States.
+- [18:39.050] And you look up and you see windmills all over the place.
+- [18:43.190] It's a horrible thing.
+- [18:44.410] It's the most expensive form of energy.
+- [18:46.150] It's no good.
+- [18:47.370] They're made in China, almost all of them.
+- [18:51.100] When they start to rust and rot in eight years,
+- [18:54.210] you can't really turn them off. You can't bury them.
+- [18:55.880] They won't let you bury the propellers, you know, the props,
+- [18:59.640] because they are certain type of fiber
+- [19:01.950] that doesn't go well with the land.
+- [19:03.180] That's what they say.
+- [19:04.380] The environmentalists say you can't bury them
+- [19:06.820] because the fiber doesn't go well with the land.
+- [19:09.800] In other words, if you bury it will harm our soil.
+- [19:13.100] The whole thing is a con job. It's very expensive.
+- [19:17.490] And in all fairness, Germany tried it and wind doesn't work.
+- [19:21.850] You need subsidy for wind and energy should not need subsidy.
+- [19:24.870] With energy, you make money, you don't lose money.
+- [19:27.950] But more important than that is it ruins the landscape.
+- [19:31.140] It kills the birds. They're noisy.
+- [19:34.740] You have a certain place in the Massachusetts area
+- [19:39.460] that over the last 20 years had one or two whales wash ashore.
+- [19:44.170] And over the last short period of time,
+- [19:46.860] they had 18 because it's driving them loco.
+- [19:51.450] It's driving them crazy. Now, windmills will not come.
+- [19:55.000] It is not going to happen in the United States.
+- [19:57.670] And it's a very expensive, and I would love to see –
+- [20:00.730] I mean, today I'm playing the best course
+- [20:02.770] I think in the world, Turnberry, even though I own it.
+- [20:05.580] It's probably the best course in the world.
+- [20:08.120] And I look over the horizon and I see nine windmills.
+- [20:11.720] It's like right –.
+- [20:13.390] At the end of the 18, I said, isn't that a shame?
+- [20:15.830] What a shame. You have the same thing all over,
+- [20:18.700] all over Europe in particular.
+- [20:20.270] You have windmills all over the place.
+- [20:21.810] Some of the countries prohibited it.
+- [20:24.210] But people ought to know
+- [20:28.180] that these windmills are very destructive.
+- [20:30.540] They're environmentally unsound, just the exact opposite.
+- [20:33.890] Because the environmentalists,
+- [20:35.370] they're not really environmentalists.
+- [20:36.870] They're political hacks. These are people that –
+- [20:42.230] they almost want to harm the country.
+- [20:44.530] But you look at these beautiful landscapes all over the world,
+- [20:48.750] many countries have gotten smart.
+- [20:50.370] They will not allow it. They will not.
+- [20:52.520] So worst form of energy,
+- [20:53.830] the most expensive form of energy,
+- [20:56.050] but windmills should not be allowed.
+- [20:59.080] Okay.
+- [21:00.460] The Press: [inaudible]
+- [21:01.730] Cambodia and Thailand.
+- [21:03.110] You spoke to the leaders of those countries?
+- [21:04.670] The President: I did.
+- [21:05.900] The Press: Are they doing enough [inaudible]?
+- [21:07.230] The President: I hope so.
+- [21:08.450] You're talking about Cambodia and Thailand?
+- [21:11.410] So I had an interesting time – we're dealing with Thailand
+- [21:14.300] and we do a lot of trade with Thailand and with Cambodia.
+- [21:18.620] And yet I'm reading that they're killing each other.
+- [21:21.480] They're fighting. They're in a war.
+- [21:23.890] And I say, this should be an easy one for me
+- [21:25.510] because I've settled with India and Pakistan
+- [21:28.720] and Serbia and Kosovo was going at it.
+- [21:31.260] But they have for a long time, in all fairness.
+- [21:33.290] You know about that, and others,
+- [21:37.500] the Congo, what's going on there.
+- [21:41.890] That's been a horrible thing with Rwanda.
+- [21:45.630] That's been a horrible thing.
+- [21:46.890] 31 years, 7 million, 8 million people killed.
+- [21:51.000] Machetes. Machetes all over the place.
+- [21:55.290] It's a terrible thing. We got that one solved.
+- [21:58.170] So we did five of them.
+- [22:00.720] And I was saying, we have a trade deal.
+- [22:02.980] We were working on another –
+- [22:04.260] we finalized another trade deal yesterday,
+- [22:06.130] and I asked my people, I said, how are we doing with Cambodia
+- [22:10.480] and how are we doing with Thailand?
+- [22:13.790] And they said, they're going to be coming in
+- [22:15.360] at some point to talk.
+- [22:16.680] I said, well, let's call them right now.
+- [22:17.980] So I called the prime ministers of each,
+- [22:20.890] and I said, we're not going to make a trade deal
+- [22:22.420] unless you settle the war. A lot of people are killed,
+- [22:25.870] you know that, in a short period of time,
+- [22:27.400] the border, they're fighting pretty like wild.
+- [22:31.550] And I spoke to both of the prime ministers,
+- [22:33.940] and I think by the time I got off,
+- [22:35.970] I think they want to settle now.
+- [22:37.490] I know they're meeting today or tomorrow,
+- [22:40.860] and we're going to work with them.
+- [22:42.860] Marco Rubio is working with him also, his people and him.
+- [22:46.880] I think we're going to get that. That would be a great thing.
+- [22:49.750] But that would've turned out to be a bad one.
+- [22:52.920] And I will tell you, India and Pakistan,
+- [22:56.070] they were really getting ready to go at it.
+- [22:59.150] So getting those things settled, if I can do it
+- [23:01.120] and if I can use trade to do that, it's my honor.
+- [23:04.200] But I had great talks with two very good people
+- [23:07.110] that they both really would like to make a deal.
+- [23:12.190] So we'll see what happens. Okay.
+- [23:13.740] How about one more, two more.
+- [23:15.310] The Press: Europe is now spending a lot more
+- [23:16.690] on defense thanks to you.
+- [23:17.890] The President: They are.
+- [23:19.090] The Press: Should they get a fairer deal on trade
+- [23:20.430] in exchange?
+- [23:21.670] The President: Well, they're spending a lot on defense,
+- [23:23.400] but we're spending a lot more,
+- [23:25.570] and we've been very generous to NATO for many, many years.
+- [23:30.840] And no, but we had a terrific meeting with NATO.
+- [23:34.370] I'd love to do as well, we had a meeting
+- [23:37.740] where they put up 5% instead of 2%,
+- [23:41.620] and they're going to pay it instead of not paying,
+- [23:43.210] because many people didn't pay the 2% or anywhere near it,
+- [23:46.710] and the 2% was too low.
+- [23:49.030] And we're going to be sending now military equipment
+- [23:52.900] and other equipment to NATO,
+- [23:55.030] and they'll be doing what they want.
+- [23:56.700] But I guess for the most part, working with Ukraine,
+- [24:00.910] but we had a fantastic meeting.
+- [24:03.340] I guess it's now almost four weeks ago,
+- [24:06.550] one of the best meetings they've ever had at NATO.
+- [24:08.620] And the spirit and the coming together was incredible.
+- [24:13.100] And I stood and I listened to almost 30 speeches.
+- [24:17.670] That was a lot.
+- [24:19.040] And I was really late, and I had to leave,
+- [24:21.250] but I didn't want to leave before those last 10 spoke.
+- [24:24.130] Because they'd go home and they'd tell their wife,
+- [24:27.000] Trump left.
+- [24:28.420] And they were so nice to the United States.
+- [24:30.050] They were all mentioning the United States and me,
+- [24:32.390] but they were mentioning the United States
+- [24:34.630] to be here, such an honor, et cetera.
+- [24:36.450] And I thought it would've been inappropriate.
+- [24:37.940] But I did stay.
+- [24:39.150] It was very hard because I was extremely late
+- [24:41.570] for something else that was pretty important.
+- [24:44.560] And we had a tremendous NATO meeting.
+- [24:48.530] I'm sure you heard that too. It was great.
+- [24:52.520] Some great people that you deal with on two fronts, right?
+- [24:56.010] But you deal with on primarily the trade front.
+- [24:59.400] But I will tell you, they came together
+- [25:01.710] and the relationship is really good.
+- [25:04.490] That was a great – an interesting question
+- [25:06.660] because you probably have reported it that way.
+- [25:10.550] It came together and they went from 2% to 5%,
+- [25:15.290] which nobody would've thought that was even
+- [25:17.460] – Who would even think that?
+- [25:19.570] Because they didn't want to be a 2%.
+- [25:21.020] All of a sudden they're 5%. And that's the right number.
+- [25:26.170] And so it was a great honor.
+- [25:28.410] I got to know the heads of those countries
+- [25:30.410] really very well at that meeting almost a month ago.
+- [25:33.630] Okay? Thank you very much, everybody.
+- [25:35.760] We'll let you know what's happening.
+- [25:37.620] The Press: [inaudible] golf course anytime soon.
+- [25:40.850] The President: I will. I love Doonbeg. I'll go
+- [25:43.410] – Not in the strip, but I'll go soon.
+- [25:45.570] Okay. Thank you very much. Thank you.

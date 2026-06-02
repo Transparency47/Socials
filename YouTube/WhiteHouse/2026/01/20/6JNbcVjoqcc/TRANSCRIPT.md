@@ -1,0 +1,104 @@
+<!-- source: https://www.youtube.com/watch?v=6JNbcVjoqcc -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 6JNbcVjoqcc -->
+<!-- date_published: 2026-01-20T22:18:30+00:00 -->
+<!-- date_accessed: 2026-06-02T01:07:04.009340+00:00 -->
+
+# Transcript: President Donald J. Trump's First Year in Office
+
+- [00:03.040] Sometimes in history
+- [00:06.799] there's this magic moment.
+- [00:11.200] Somebody appears on the scene
+- [00:14.000] and everything changes.
+- [00:18.960] >> I am with you.
+- [00:21.600] >> We've never seen anything like this.
+- [00:25.279] >> I will fight for you. This was a man
+- [00:27.519] who's met his destiny
+- [00:29.679] >> and I will win for you. He said he was
+- [00:32.880] saved by God in order to make America
+- [00:35.200] great again.
+- [00:36.239] >> His victory was the greatest comeback of
+- [00:38.960] all time.
+- [00:39.680] >> You're watching history, so buckle up.
+- [00:42.079] >> I don't think the American people have
+- [00:43.520] ever seen this before. A government that
+- [00:45.360] has moved this quickly and a president
+- [00:47.200] that has done so much when it comes to
+- [00:48.960] the border and energy and major
+- [00:51.039] investments from other countries. It's
+- [00:52.960] like warp speed. 47's on a hot streak
+- [00:55.120] bringing head snapping change to
+- [00:56.879] Washington overwhelming the system with
+- [00:58.800] a volcanic eruption of action. Trump has
+- [01:01.120] a mandate from the people and he's using
+- [01:03.280] it and they're just getting started.
+- [01:05.280] >> President Trump said on the campaign
+- [01:06.560] trail, "Success will be my retribution."
+- [01:09.360] >> Despite the best efforts of those who
+- [01:11.280] would try to censor us, silence us,
+- [01:13.840] break us, destroy us, Americans are
+- [01:16.400] today a proud, free, sovereign, and
+- [01:18.400] independent nation that will always be
+- [01:21.759] free.
+- [01:24.320] We're going to have one shot at this and
+- [01:26.479] no other president's going to do what
+- [01:28.080] I'm doing.
+- [01:28.799] >> America's back. Common sense is back. He
+- [01:31.119] is keeping his promise to you, the
+- [01:33.200] American people. Inflation is down.
+- [01:35.040] Growth is up. The numbers don't lie. The
+- [01:36.880] economy is soaring.
+- [01:37.840] >> Lowest gas prices in four years and
+- [01:39.920] record tariff revenue.
+- [01:41.360] >> The USA is on a roll, culminating in the
+- [01:44.560] signing of the one big beautiful bill on
+- [01:46.560] July 4th.
+- [01:47.520] >> The Trump economic golden age is full
+- [01:50.079] steam ahead. America is back thanks to
+- [01:52.960] the courage of President Trump, thanks
+- [01:54.720] to the leadership of his amazing
+- [01:56.640] cabinet, and thanks of course to our
+- [01:58.799] brave men and women in the United States
+- [02:00.719] military.
+- [02:01.600] >> This is a message to the rest of the
+- [02:03.600] world. The days of ripping off America
+- [02:06.399] and Americans are officially over.
+- [02:08.720] Between the attacks on Iran's nuke site
+- [02:10.720] and the Maduro operation, the US
+- [02:12.879] military recruitment at an all-time
+- [02:15.120] high. This president will go down in
+- [02:16.959] history as a peacemaking president.
+- [02:19.440] >> Peace through strength. America's in
+- [02:20.879] charge and he's just got one filter and
+- [02:23.280] that is America first. Whatever they're
+- [02:25.120] doing, it's working. Zero illegal
+- [02:26.959] crossing, drug cartels frustrated, less
+- [02:29.280] crimes.
+- [02:29.680] >> We have the most secure border in the
+- [02:31.599] history of this nation. If you think
+- [02:33.280] we're doing good now, you just wait for
+- [02:34.959] this coming year.
+- [02:35.680] >> The president isn't taking his foot off
+- [02:37.599] the gas in 2026.
+- [02:39.599] >> It's a new year. The stock markets are
+- [02:41.840] already making new record highs. The
+- [02:44.080] Trump archives are a series of near
+- [02:46.720] impossible feats. As for the next year,
+- [02:48.879] the American people have so much to look
+- [02:50.959] forward to. The president will continue
+- [02:52.640] to build off of his historic
+- [02:54.239] accomplishments.
+- [02:55.040] >> 2025 is setting the table that the
+- [02:57.120] banquet's going to be in 2026.
+- [02:59.519] >> This is the golden age coming.
+- [03:01.280] >> He says, "Make America great again
+- [03:04.000] because every American is invited." My
+- [03:07.040] fellow Americans, get ready for an
+- [03:09.280] incredible future because the golden age
+- [03:12.480] of America has only just begun.
+- [03:16.560] America.
+- [03:20.959] God shed his grace on me and crown thy
+- [03:29.040] good when brotherhood
+- [03:33.280] from sea to shining
+- [03:37.760] sea.

@@ -1,0 +1,95 @@
+<!-- source: https://www.youtube.com/watch?v=tRVJgGxHYIg -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: tRVJgGxHYIg -->
+<!-- date_published: 2025-11-12T19:25:00+00:00 -->
+<!-- date_accessed: 2026-06-02T01:10:41.318237+00:00 -->
+
+# Transcript: Road to Liberty: Battle of Trenton
+
+- [00:02.720] You know this painting.
+- [00:05.080] Iconic.
+- [00:06.920] Hopeful.
+- [00:08.920] Bright. [music]
+- [00:10.520] But I remember a much darker night.
+- [00:21.080] We were Continental soldiers crossing in
+- [00:22.920] storm and darkness.
+- [00:26.160] Hell of a way to spend Christmas.
+- [00:28.960] No families.
+- [00:30.560] No feast.
+- [00:31.960] No cheer.
+- [00:34.320] Just river,
+- [00:36.000] ice,
+- [00:37.240] and our orders.
+- [00:39.320] We were to hit the Hessians, German
+- [00:41.000] mercenaries, as they rested in their
+- [00:42.520] quarters [music] in Trenton.
+- [00:44.240] Chill the enemy as well as our men's
+- [00:45.600] morale before enlistments were set to
+- [00:47.080] expire within days.
+- [00:52.080] New York was gone.
+- [00:55.200] Fort Washington and Fort Lee, too.
+- [00:59.960] On the road through New Jersey, and
+- [01:01.480] whispered the general was outmatched.
+- [01:06.160] We hung by a thread,
+- [01:08.000] underfed,
+- [01:09.280] underpaid,
+- [01:11.240] underclothed.
+- [01:14.120] With hope this low,
+- [01:15.800] who would want to reenlist?
+- [01:19.120] We'd later learn that two of our three
+- [01:20.440] brigades failed to cross.
+- [01:22.560] Even Washington with 2,600 less men.
+- [01:27.280] He pushed on anyway.
+- [01:33.640] Victory
+- [01:35.280] or death.
+- [01:37.520] All together now. Crossing the Delaware
+- [01:39.080] was only the beginning.
+- [01:41.240] Nine hard miles in the nor'easter to
+- [01:43.320] reach Trenton by night, where 1,500
+- [01:46.160] well-rested Hessians awaited us.
+- [01:50.000] I saw rags where boots should be.
+- [01:52.640] Sometimes,
+- [01:54.120] I hear of the blood in the snow.
+- [01:56.560] Two men froze to death on the march.
+- [01:59.320] Press on, men. We mustn't tarry.
+- [02:02.400] The storm continued to grow worse.
+- [02:04.560] The storm is too strong. Our gunpowder
+- [02:05.840] was soaked, and we were hours behind
+- [02:07.640] schedule. The men are exhausted. We were
+- [02:09.720] set to find the Hessians wide awake,
+- [02:11.480] with no cover or darkness to provide any
+- [02:13.320] element of surprise.
+- [02:14.360] >> The general marches us to our graves.
+- [02:17.480] Washington had a tough choice.
+- [02:19.640] Push on,
+- [02:20.760] or turn back.
+- [02:24.200] Some of us planned on going home when
+- [02:26.240] our time had out, if we survived.
+- [02:29.320] Until then, we had to push on. We were
+- [02:31.360] split into two columns, hoping to flank
+- [02:33.200] Trenton. One from north,
+- [02:36.080] the other from the river road.
+- [02:44.440] The storm that had beaten us for the
+- [02:45.720] past 9 miles became the cover we needed.
+- [02:50.720] Push through the snow!
+- [02:52.280] We posted guns at the crossings. Keep
+- [02:54.200] moving! The Hessian Colonel Rall tried
+- [02:56.440] to form, but it was too late.
+- [03:03.400] The Hessians buckled. Push forward!
+- [03:06.080] They lost by the hundreds.
+- [03:08.240] About 22 killed, more than 80 wounded,
+- [03:11.560] nearly 900 captured.
+- [03:15.240] We lost little in the streets.
+- [03:17.680] For the first time in months,
+- [03:20.920] we could breathe.
+- [03:21.742] >> [music]
+- [03:23.280] >> On a night of ice and doubt, a
+- [03:25.080] questioning commander chose risk to turn
+- [03:27.400] caution into daring, and despair into
+- [03:29.240] hope.
+- [03:30.360] That choice didn't just win Trenton.
+- [03:33.160] It invigorated men to reenlist, which
+- [03:35.520] saved the revolution,
+- [03:37.200] and turned troops
+- [03:39.320] into legend.

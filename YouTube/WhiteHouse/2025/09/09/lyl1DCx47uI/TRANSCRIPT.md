@@ -1,0 +1,1230 @@
+<!-- source: https://www.youtube.com/watch?v=lyl1DCx47uI -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: lyl1DCx47uI -->
+<!-- date_published: 2025-09-09T18:27:21+00:00 -->
+<!-- date_accessed: 2026-06-02T02:44:51.011791+00:00 -->
+
+# Transcript: Press Secretary Karoline Leavitt Briefs Members of the Media, Sep. 9, 2025
+
+- [00:01.400] Karoline Leavitt: -- my tardiness today.
+- [00:02.001] Thanks for being here.
+- [00:03.036] Another packed room, it's good to see.
+- [00:05.372] We'll begin with a scheduling update today.
+- [00:07.407] President Trump will commemorate the 24th
+- [00:10.009] anniversary of 9/11 on Thursday with a visit to
+- [00:13.480] the Pentagon Memorial in the morning, followed by
+- [00:16.216] an appearance at the New York Yankees game at
+- [00:18.518] Yankee Stadium in the Bronx on Thursday evening.
+- [00:21.988] Next week, as you all know, the President and
+- [00:24.190] the First Lady will depart for their historic state
+- [00:26.826] visit to the United Kingdom on Tuesday, and
+- [00:30.163] they return to Washington on Thursday.
+- [00:33.133] Today, I would like to address the tragedy that
+- [00:35.668] has not received nearly enough media attention.
+- [00:38.471] The brutal murder of Iryna Zarutska.
+- [00:41.708] Here are the facts that many outlets have
+- [00:43.376] shamefully and intentionally failed to
+- [00:45.645] report until President Trump drew attention to
+- [00:48.848] it.
+- [00:49.516] On August 22nd, Iryna Zarutska was stabbed to
+- [00:52.819] death on the rail system in Charlotte, North
+- [00:55.188] Carolina, by a savage career criminal.
+- [00:58.825] This is a public transportation system that
+- [01:00.860] many in the area use every single day to go to school
+- [01:04.564] and work.
+- [01:05.665] Iryna was on the train that night traveling home
+- [01:07.901] from her job at a pizzeria, still in uniform
+- [01:11.004] from her shift.
+- [01:12.338] This beautiful, innocent 23-year-old young woman
+- [01:15.175] was a Ukrainian refugee who had recently fled her
+- [01:18.445] country for a chance at a safer life and a promising
+- [01:21.815] new beginning here in the United States of America.
+- [01:25.285] But tragically, a public transportation system in a
+- [01:28.354] major American city was more dangerous than the
+- [01:30.957] active war zone that she left.
+- [01:33.827] The President and the entire White House are
+- [01:35.695] praying for her family and friends during this
+- [01:37.630] unimaginably difficult time.
+- [01:39.766] But while we extend our thoughts and prayers, we
+- [01:42.202] must also seek justice for this crime and call
+- [01:44.637] attention to this heinous incident.
+- [01:47.173] Surveillance video of the killing was finally
+- [01:49.108] released to the public this past Friday.
+- [01:51.411] It shows the alleged killer, Decarlos Brown
+- [01:54.214] Jr., pull out a knife, get up from his seat behind
+- [01:57.717] Iryna, and prepare to thrust a blade into her
+- [02:00.720] neck before the released footage gets cut.
+- [02:04.123] This is pure evil on full display.
+- [02:06.893] The most enraging and unacceptable part of this
+- [02:09.362] story is that her death was entirely preventable.
+- [02:12.765] Decarlos Brown never should have been on that
+- [02:15.335] train that night.
+- [02:16.803] In fact, he should have been behind bars.
+- [02:19.305] Decarlos Brown has been charged with crimes no
+- [02:21.674] fewer than 14 times, dating back to 2011,
+- [02:26.112] including for armed robbery, felony larceny,
+- [02:28.715] breaking and entering, and shoplifting.
+- [02:31.184] Brown had previously served five years in
+- [02:34.053] prison for a robbery with a deadly weapon charge,
+- [02:36.990] and he had also forfeited bonds three different
+- [02:39.325] times, twice in 2014, and once in 2023.
+- [02:44.564] Despite all of this past documented criminal
+- [02:46.799] history, when Brown was arrested yet again in
+- [02:49.402] January of this past year, a Democrat judge, who I
+- [02:53.673] will add was a supporter, a strong supporter of
+- [02:56.276] former Vice President Kamala Harris, released
+- [02:59.178] this insane criminal once again without requiring
+- [03:02.448] him to pay any bail.
+- [03:04.784] He simply had to sign a written promise to return
+- [03:08.021] for his court hearing.
+- [03:09.589] Think about how crazy it is to ask a career
+- [03:12.358] criminal, someone who by definition repeatedly
+- [03:15.395] breaks the law, to just sign a written promise and
+- [03:18.565] come back again another day.
+- [03:19.933] This is madness.
+- [03:21.434] This monster should have been locked up and Iryna
+- [03:23.870] should still be alive.
+- [03:25.338] But Democrat, politicians, liberal judges and weak
+- [03:28.007] prosecutors would rather virtue signal than lock up
+- [03:30.677] criminals and protect their communities.
+- [03:33.413] And perhaps most shamefully of all, the
+- [03:35.448] majority of the media, many outlets in this room,
+- [03:38.751] decided that her murder was not worth reporting on
+- [03:41.421] originally because it does not fit a preferred
+- [03:44.424] narrative.
+- [03:45.458] Many of the journalists in this room spilled plenty
+- [03:48.394] of ink trying to smear Daniel Penny for defending
+- [03:51.464] a subway car from a deranged lunatic in New
+- [03:53.866] York City.
+- [03:54.934] But none of those same reporters lift a finger to
+- [03:58.037] write stories about an actual murderer.
+- [04:01.374] Here's the truth that every American must know.
+- [04:03.476] Too many innocent people across the country
+- [04:06.145] continue to pay the price of the failed experiment
+- [04:08.982] known as cashless bail, that has been championed
+- [04:12.385] by the Democrat Party for years.
+- [04:14.887] All the way back in 2020, North Carolina's then
+- [04:17.757] Democrat Governor, Roy Cooper, established a
+- [04:20.326] so-called task force for racial equity and criminal
+- [04:23.496] justice.
+- [04:24.364] Sounds nice, but it's not.
+- [04:26.132] That task force was co-authored by then
+- [04:28.167] Attorney General and current Democrat Governor
+- [04:30.403] Josh Stein, and recommended "reimagining
+- [04:32.872] public safety," to "Promote diversion and
+- [04:36.676] other alternatives to arrest," it also advised
+- [04:40.279] to de-emphasize some felony crimes, prioritize
+- [04:43.883] "restorative justice" and eliminate cash bail.
+- [04:48.354] Democrats in North Carolina and nationwide
+- [04:50.590] are consumed with pushing a woke soft on crime
+- [04:53.326] agenda no matter how many innocent Americans suffer
+- [04:56.729] as a result, instead of aggressively prosecuting
+- [04:59.766] and locking up violent criminals, the
+- [05:01.567] Democrat-backed cashless bail approach lets these
+- [05:05.238] criminals roam free in our country to offend again
+- [05:08.374] and again.
+- [05:09.375] These reckless policies have turned too many, many
+- [05:12.345] of American cities into hunting grounds for career
+- [05:14.947] criminals who mock our justice system, drain law
+- [05:18.151] enforcement resources, and wreak havoc on law-abiding
+- [05:21.187] citizens.
+- [05:22.255] Enough is enough, and that is why President Trump is
+- [05:24.757] doing everything in his power by taking action to
+- [05:27.427] undo these absurd policies.
+- [05:30.496] The President recently signed a powerful
+- [05:32.465] executive order directing the AG to submit a list of
+- [05:35.735] states and local jurisdictions with
+- [05:37.904] cashless bail policies, so that the Trump
+- [05:40.206] Administration may identify federal funds
+- [05:42.675] that are being provided to these states and can
+- [05:45.545] potentially be suspended or terminated.
+- [05:48.815] President Trump firmly believes that to maintain
+- [05:50.983] order in public safety, we must incarcerate
+- [05:54.187] individuals whose pending criminal charges or
+- [05:56.956] criminal history demonstrate a clear
+- [05:59.392] ongoing risk to civil society.
+- [06:01.861] This is a common sense and sensible approach that the
+- [06:04.797] vast majority of Americans agree with, and it's time
+- [06:07.633] for the Democrat Party to get on board with what is
+- [06:10.336] right.
+- [06:11.204] When these criminals are caught, they must be
+- [06:13.005] prosecuted to the fullest extent of the law and be
+- [06:15.374] sent to prison, where they can no longer terrorize
+- [06:18.144] our streets.
+- [06:19.278] This is the mandate the American people delivered
+- [06:21.414] to President Trump, and it's a mandate he intends
+- [06:23.816] to fulfill.
+- [06:25.184] Staying on the topic of public safety, new
+- [06:27.453] preliminary data released today by Customs and
+- [06:30.223] Border Protection in August shows that
+- [06:32.592] President Trump has delivered the most secure
+- [06:34.694] border in American history.
+- [06:36.996] For the fourth straight month, zero illegal aliens
+- [06:40.266] were released into the United States by CBP.
+- [06:43.503] Nationwide encounters are down 93%, below the peak
+- [06:47.373] of the Biden Administration.
+- [06:49.275] Border Patrol apprehensions on the
+- [06:50.910] southwest border in the entire month of August
+- [06:53.179] were less than what was apprehended in four days
+- [06:55.948] in August 2024 under the Biden administration.
+- [06:59.819] President Trump has ended disastrous Biden illegal
+- [07:03.055] alien invasion, he sealed our border and record
+- [07:05.658] time, keeping this central promise he made to the
+- [07:08.761] American public.
+- [07:10.029] With that, I will take your questions.
+- [07:11.497] Here in our new media seat today we have Michael
+- [07:13.366] Shellenberger, who is the Founder of Public News
+- [07:15.802] with nearly two million readers and subscribers.
+- [07:18.137] Michael, thank you for being here today.
+- [07:19.806] The Press: Thank you for making space.
+- [07:21.707] Karoline Leavitt: And why don't you kick us off?
+- [07:23.242] Sure.
+- [07:23.943] The Press: Thank you for making space for new
+- [07:25.278] media.
+- [07:25.945] Nice to meet all of you, it's great to be here.
+- [07:27.280] I want to see if you could give some insight into
+- [07:28.915] whether the President is considering additional
+- [07:30.750] measures against Europe and Brazil, not just for
+- [07:33.553] censorship, but also for preventing political
+- [07:36.455] candidates from actually competing in elections.
+- [07:38.858] We've now seen in Romania, France, and now Germany
+- [07:42.261] with Joachim Paul, efforts to basically just prevent
+- [07:45.164] candidates from being able to compete in elections.
+- [07:47.333] President has shown some concern around President
+- [07:49.602] Bolsonaro who's being prevented from running.
+- [07:52.305] All of this is coming in the context of increased
+- [07:54.440] censorship of online platforms, of American
+- [07:56.909] platforms, and efforts to censor Americans.
+- [07:59.345] I'm personally being investigated under
+- [08:02.048] criminal investigation with my Brazilian
+- [08:03.749] colleagues for publishing the Twitter files Brazil,
+- [08:06.185] we're very grateful that the President has imposed
+- [08:08.387] Magnitsky sanctions on the judge.
+- [08:10.189] Is the President considering additional
+- [08:11.991] actions given that it appears that they're going
+- [08:14.093] to end up with a conviction against
+- [08:15.428] President Bolsonaro preventing him from
+- [08:17.129] running?
+- [08:17.897] Is he considering doing anything about this
+- [08:19.398] crackdown in Europe?
+- [08:20.299] I mean, it's shocking to see Joachim Paul, this
+- [08:23.069] mayoral candidate in Germany, the criminal
+- [08:25.972] indictment against him cites him saying that he
+- [08:28.975] loves The Lord of the Rings as reason why he's
+- [08:32.278] an extremist and shouldn't be able to run.
+- [08:33.813] So I just wonder if you could speak to that.
+- [08:35.381] And again, I'm grateful to be here.
+- [08:36.716] Nice to meet you all, and I'm grateful for what the
+- [08:38.584] Trump administration has done to push for free
+- [08:40.519] speech abroad.
+- [08:41.187] Karoline Leavitt: Well, thanks for being here,
+- [08:42.755] Michael.
+- [08:43.422] We appreciate it.
+- [08:44.090] Freedom of speech is arguably the most
+- [08:46.259] important issue of our time.
+- [08:48.294] It is enshrined in our constitution and the
+- [08:50.296] President believes in it strongly.
+- [08:52.198] He himself faced censorship in his road
+- [08:54.634] back to this beautiful Oval Office here in
+- [08:56.969] Washington D.C. So he takes this very seriously,
+- [08:59.705] as does I know, the Vice President of the United
+- [09:01.707] States and the entire Trump Administration,
+- [09:03.809] which is why we have taken significant action with
+- [09:06.479] regards to Brazil in the form of both sanctions and
+- [09:09.415] also leveraging the use of tariffs to ensure that
+- [09:11.918] countries around the world are not punishing their
+- [09:14.387] citizens in this way.
+- [09:15.922] And at the same time, the President is, while he's
+- [09:19.025] leveraging the United States to safeguard our
+- [09:20.793] interests abroad, he's also making sure that
+- [09:23.296] freedom of speech remains here in the United States
+- [09:26.065] of America.
+- [09:26.732] So I don't have any additional actions to
+- [09:29.101] preview for you today, but I can tell you, this is a
+- [09:31.470] priority for the administration and the
+- [09:33.005] President is unafraid to use the economic might,
+- [09:36.342] the military might of the United States of America
+- [09:38.511] to protect free speech around the world.
+- [09:40.413] The Press: Quick follow up to that.
+- [09:41.747] Karoline Leavitt: Sure.
+- [09:42.415] The Press: Quick follow up, which is just, there
+- [09:43.783] was a Reuters story saying that the Trump
+- [09:45.117] Administration was looking at this Europe-US trade
+- [09:47.353] deal as one of the sticking points, this
+- [09:49.021] issue of the censorship, not just of U.S platforms
+- [09:51.624] of Americans.
+- [09:52.458] Do you have any updates on how those trade talks are
+- [09:54.393] going?
+- [09:55.061] And I also wonder if the President is concerned
+- [09:56.896] about NATO membership.
+- [09:58.564] NATO membership requires that you be a democracy
+- [10:01.300] and you have free speech.
+- [10:02.268] Is it possible that some of these actions that
+- [10:04.303] we've seen in Romania, France, and Germany would
+- [10:07.139] disqualify those countries from being in NATO after
+- [10:09.375] this?
+- [10:10.042] Karoline Leavitt: I have not heard the President
+- [10:11.377] discuss NATO membership in regards to this issue in
+- [10:14.113] particular, but I have heard him discuss the
+- [10:16.716] issue of free speech and the importance of free
+- [10:18.851] speech with foreign leaders (inaudible) around
+- [10:21.087] the world, including the prime minister of the
+- [10:22.922] United Kingdom when we were in Scotland.
+- [10:24.824] The President brought this up and how important it is
+- [10:27.626] for the prime minister to protect free speech in the
+- [10:29.595] UK and in various conversations with other
+- [10:32.131] world leaders.
+- [10:32.798] So he brings it up and I think the entire world
+- [10:34.867] knows that this is a priority for the President
+- [10:36.602] of the United States.
+- [10:38.037] Gabe.
+- [10:38.704] The Press: Thank you, Karoline.
+- [10:39.772] Regarding the Israeli strike in Doha, how much
+- [10:42.475] time or how much of a heads-up did the US get
+- [10:45.511] and does the President support the strike?
+- [10:47.079] Karoline Leavitt: Sure.
+- [10:47.880] Well, I have a statement to read for all of you
+- [10:50.116] with respect to the Israeli strike in Doha and
+- [10:52.885] here it is.
+- [10:53.753] This morning the Trump administration was
+- [10:55.588] notified by the United States military that as
+- [10:58.324] Israel was attacking Hamas, which very
+- [11:01.027] unfortunately was located in a section of Doha, the
+- [11:04.530] capital of Qatar.
+- [11:06.265] Unilaterally bombing inside Qatar, a sovereign
+- [11:09.035] nation and close ally of the United States that is
+- [11:12.238] working very hard and bravely taking risks with
+- [11:14.974] us to broker peace does not advance Israel or
+- [11:18.177] America's goals.
+- [11:19.478] However, eliminating Hamas who have profited off the
+- [11:22.581] misery of those living in Gaza is a worthy goal.
+- [11:26.185] President Trump immediately directed
+- [11:28.120] special envoy Witkoff to inform the Qataris of the
+- [11:31.190] impending attack which he did.
+- [11:33.659] The President views Qatar as a strong ally and
+- [11:36.595] friend of the United States and feels very
+- [11:38.798] badly about the location of this attack.
+- [11:42.234] President Trump wants all of the hostages in Gaza
+- [11:45.938] and the bodies of the dead released and this war to
+- [11:49.442] end now.
+- [11:51.043] President Trump also spoke to Prime Minister
+- [11:53.012] Netanyahu after the attack.
+- [11:55.181] The prime minister told President Trump that he
+- [11:57.349] wants to make peace and quickly.
+- [12:00.086] President Trump believes this unfortunate incident
+- [12:02.488] could serve as an opportunity for peace.
+- [12:05.191] The President also spoke to the Amir and prime
+- [12:07.526] minister of Qatar and thanked them for their
+- [12:09.895] support and friendship to our country.
+- [12:12.398] He assured them that such a thing will not happen
+- [12:14.700] again on their soil.
+- [12:16.135] The Press: And to be clear, the President
+- [12:17.536] disagrees with the location of the strike and
+- [12:19.738] that he passed that along to the Prime Minister
+- [12:21.440] Netanyahu.
+- [12:22.141] Karoline Leavitt: The President just confirmed
+- [12:24.009] that in the statement that I just read to you, which
+- [12:26.479] I spoke with him about before coming out here.
+- [12:28.214] The Press: Thank you, Karoline.
+- [12:29.548] One-
+- [12:30.216] Karoline Leavitt: Jackie.
+- [12:30.883] The Press: Thank you, Karoline.
+- [12:31.550] So is the President upset with Netanyahu now?
+- [12:32.918] Karoline Leavitt: The President made his
+- [12:35.020] thoughts and concerns about this very clear and
+- [12:37.723] he spoke again both to Prime Minister Netanyahu
+- [12:39.892] and also the Amir and the prime minister of Qatar
+- [12:43.162] after this attack.
+- [12:44.130] And the President has always made it very clear
+- [12:46.599] that he wants peace in the Middle East just like he
+- [12:48.767] sought that and accomplished that in his
+- [12:50.402] first term.
+- [12:51.303] He expects all of our allies and friends in the
+- [12:53.472] region that includes both Qatar and Israel to seek
+- [12:56.842] peace as well, and he wants to see that happen
+- [12:58.844] and he's working with all of our allies in the
+- [13:01.113] region to get that done.
+- [13:02.348] The Press: Would there be any consequences, so to
+- [13:05.985] speak, for Netanyahu doing this as it sounds against
+- [13:09.021] the President's wishes or at least his belief that
+- [13:12.057] it was appropriate?
+- [13:13.058] Is there going to be any directive from the
+- [13:16.095] President to Netanyahu in terms of what's allowed in
+- [13:19.131] the future and also is there any concern this
+- [13:21.367] could jeopardize the Abraham Accords?
+- [13:22.801] Karoline Leavitt: Look, that's a decision only the
+- [13:25.137] President can make, with respect to your first
+- [13:27.039] question.
+- [13:27.706] To answer your second question, as you heard
+- [13:29.775] from the President, he said he believes that this
+- [13:31.710] can serve as an opportunity for peace and
+- [13:33.546] he's still actively and aggressively pursuing it
+- [13:36.315] with all of our allies and partners in the region.
+- [13:38.217] Jennifer.
+- [13:38.884] The Press: Just to follow up on that, Karoline, are
+- [13:40.486] you able to say how often the President spoke to the
+- [13:43.255] prime minister of Israel before this because he...
+- [13:45.591] That's one question.
+- [13:46.458] And then what did he mean on Sunday when he posted,
+- [13:49.662] "I've given my last warning to Hamas," et
+- [13:52.264] cetera.
+- [13:52.932] He wasn't talking about this strike on Doha?
+- [13:54.833] Karoline Leavitt: No, he was not.
+- [13:56.268] As I told you, the Trump administration was
+- [13:58.637] notified by the United States military that
+- [14:01.073] Israel was attacking Hamas and the President spoke to
+- [14:03.442] the prime minister after the attack as well as
+- [14:05.811] again, the Amir and the prime minister of Qatar.
+- [14:08.414] And I know Secretary Rubio and special envoy Witkoff
+- [14:11.684] were present for that call with the Qataris as well.
+- [14:14.420] Reagan.
+- [14:15.087] The Press: Thanks Karoline.
+- [14:15.988] I have two questions for you on crime crackdown.
+- [14:18.791] Karoline Leavitt: Sure.
+- [14:19.725] The Press: Democrats try to argue that red states
+- [14:22.528] have higher crime rates while overlooking problems
+- [14:24.730] of high crime in blue cities.
+- [14:26.599] I'm wondering if the President would consider
+- [14:28.801] working with red state Governors to fix high
+- [14:31.303] crime in blue cities like in Memphis, Tennessee.
+- [14:33.806] Karoline Leavitt: So first of all, I want to get to
+- [14:37.176] the premise of your question, Reagan, which is
+- [14:38.911] being pushed by Democrats that there is crime in red
+- [14:41.113] states.
+- [14:41.814] Of course there is crime in all states, but the
+- [14:43.816] crime in these cities is all in cities that are run
+- [14:47.987] by Democrats.
+- [14:48.687] If you look at the list of the top 20 high crime
+- [14:51.757] cities in the United States, every single one,
+- [14:55.227] with the exception of one in Louisiana, is run by a
+- [14:58.764] Democrat.
+- [14:59.431] And these Democrats have supported the same
+- [15:01.433] policies that I spoke about at the beginning of
+- [15:03.235] this briefing, like cashless bail.
+- [15:05.204] If you look at a red state, Mississippi, but a
+- [15:08.040] Democrat-run city in that state, Jackson.
+- [15:10.676] In 2019, Jackson, Mississippi eliminated
+- [15:13.479] cash bail for virtually all misdemeanor cases.
+- [15:16.749] And while Jackson is not formally a sanctuary city,
+- [15:19.051] the state of Mississippi formally banned sanctuary
+- [15:22.288] cities and this city has acted as a de facto
+- [15:25.224] sanctuary city for criminals and illegal
+- [15:27.493] aliens since 2017.
+- [15:29.228] Same thing, Birmingham, Alabama, a Democrat-run
+- [15:32.264] city in a red state.
+- [15:33.866] In 2017, the Birmingham City Council unanimously
+- [15:37.436] passed a resolution "committing to establish
+- [15:40.306] sanctuary policies." So if you actually look at the
+- [15:43.008] facts from these Democrat-run cities, these
+- [15:45.477] are cities that are run by Democrats and by members
+- [15:48.047] of the Democrat Party.
+- [15:49.515] These are blue cities and they have all supported
+- [15:54.186] these disastrous policies which allow repeated
+- [15:57.389] career criminals back onto the streets to further
+- [16:00.359] commit acts of violence.
+- [16:01.794] And so to answer your question, yes, the
+- [16:03.562] President wants to work with anyone across this
+- [16:06.231] country who wants to end these horrible policies
+- [16:09.702] and to bring law and order to our streets, and I
+- [16:12.538] think that is proven by his tremendous cooperation
+- [16:16.308] with the mayor of Washington DC and our
+- [16:18.911] nation's capital and just look at the results of
+- [16:21.313] that.
+- [16:21.980] And I do have some updates for you on the DC crime
+- [16:24.016] crackdown if anyone is interested.
+- [16:26.218] There have been a total of 2,177 arrests made since
+- [16:30.889] the start of the operation on August 7th.
+- [16:33.759] Just last night there were 57 arrests made in
+- [16:36.829] Washington DC.
+- [16:38.297] Of the 57 arrests, there were 14 illegal aliens who
+- [16:41.834] were arrested, many of whom had prior criminal
+- [16:44.636] histories and other arrests just last night in
+- [16:47.506] our nation's capitol.
+- [16:48.907] So you all can be very grateful for this.
+- [16:51.176] Our great men and women of law enforcement, both
+- [16:53.078] federal and local, working together as they should,
+- [16:56.181] made an arrest on a warrant for assault with
+- [16:58.517] the intent to kill.
+- [16:59.685] The subject shot two adult males after an
+- [17:02.020] altercation.
+- [17:03.389] They made an arrest on a warrant for an armed
+- [17:05.257] carjacking.
+- [17:06.291] The subject assaulted an adult male in the face
+- [17:08.627] with a firearm and then took his keys.
+- [17:11.130] We also made an arrest on a warrant for simple
+- [17:13.298] assault and the destruction of property
+- [17:15.167] and subsequently charged with second degree theft.
+- [17:18.103] Last night in DC there was an arrest for possession
+- [17:20.472] of a controlled substance with second degree theft.
+- [17:22.908] There was an arrest for possession of a controlled
+- [17:24.877] substance with the intent to distribute.
+- [17:27.579] The person is also a subject of interest in a
+- [17:29.715] homicide and a carjacking.
+- [17:31.683] Last night in DC, we also arrested a felon in
+- [17:34.219] possession of a firearm who is carrying that
+- [17:36.989] firearm without a license.
+- [17:38.524] So these are the career criminals.
+- [17:39.925] These are the bad guys that we are picking up in
+- [17:41.794] Washington DC every day.
+- [17:43.228] The President would love to do this in every
+- [17:45.431] Democrat run city across the country and he hopes
+- [17:48.033] that more Democrats will call the White House to
+- [17:49.735] allow us to help them.
+- [17:51.003] The Press: One more that's DC specific.
+- [17:53.605] Congress is poised to not extend Trump's
+- [17:55.908] federalization of the DC police.
+- [17:57.543] Mayor Bowser signed the executive order
+- [17:59.478] formalizing cooperation with federal forces.
+- [18:01.113] You just mentioned all the success that the operation
+- [18:04.049] has had.
+- [18:04.716] Does the White House believe that Mayor
+- [18:06.985] Bowser's action is enough to continue the crime
+- [18:09.588] crackdown?
+- [18:10.255] Karoline Leavitt: We are very grateful for the
+- [18:12.157] mayor's cooperation in this effort and we look
+- [18:14.092] forward to continuing to work with her and the
+- [18:16.562] Metropolitan Police Department.
+- [18:17.496] Bloomberg.
+- [18:18.163] The Press: Thanks Karoline.
+- [18:19.064] The President says (inaudible) speak with
+- [18:20.899] Putin soon.
+- [18:21.567] Can we expect a good call between the two leaders
+- [18:24.636] this week?
+- [18:25.304] Karoline Leavitt: I don't have any phone calls to
+- [18:27.973] read out between the President and any other
+- [18:30.075] foreign leaders.
+- [18:30.742] Ed.
+- [18:31.410] The Press: Thanks Karoline.
+- [18:32.077] I'm going to ask about the benchmark revisions that
+- [18:33.879] came out.
+- [18:34.546] If you look at the revisions between March of
+- [18:37.216] 2024 and March of 2025 and you do a little math, it
+- [18:40.486] averages out to 73,000 jobs roughly per month
+- [18:43.188] added to the economy, less than what was thought.
+- [18:46.325] When can we expect the Trump administration, now
+- [18:49.027] their policies are rolling out, for that average to
+- [18:50.362] increase?
+- [18:51.029] Karoline Leavitt: Well, let me just say something
+- [18:52.364] about the revisions that came out this morning and
+- [18:54.433] this was one of the biggest revisions in
+- [18:58.804] absolute terms in decades in the benchmark year,
+- [19:02.074] March 2024 to 2025, shows that the job growth was
+- [19:05.410] vastly weaker during the Biden administration than
+- [19:08.847] ever previously reported.
+- [19:10.716] Between this revision and last year's, job growth
+- [19:13.218] was actually overstated by approximately 2 million
+- [19:16.822] jobs and the Biden administration stood up
+- [19:18.891] here and vouched for that data and told you that
+- [19:21.126] data was real.
+- [19:22.261] And when President Trump calls into question the
+- [19:24.229] veracity of that data like he did before he took the
+- [19:27.165] oath of office and even now as President of the
+- [19:29.201] United States, he was ridiculed for that.
+- [19:31.270] And turns out this revision proves two
+- [19:33.372] things.
+- [19:34.039] Number one, the President was right and this is why
+- [19:36.108] we need new leadership at the Fed and this makes it
+- [19:39.044] very clear that President Trump inherited a much
+- [19:41.480] worse economy by the Biden administration than ever
+- [19:44.016] reported, and it also proves that the Federal
+- [19:46.451] Reserve is holding our monetary policy far too
+- [19:49.221] restrictive.
+- [19:50.155] Interest rates are too high, the Fed needs to cut
+- [19:52.424] the rates because of the mess that we inherited
+- [19:54.726] from the Biden administration.
+- [19:55.694] The Press: (inaudible) timeframe.
+- [19:57.029] The President has said a year, Secretary Bessent
+- [19:58.530] said maybe the fourth quarter.
+- [19:59.932] When can we expect these numbers to increase?
+- [20:01.633] Karoline Leavitt: Well, first we need accurate
+- [20:03.035] numbers.
+- [20:03.702] We need truthful and honest data, which is why
+- [20:05.404] the President took the monumental step to try and
+- [20:07.873] appoint and confirm new leadership at the BLS so
+- [20:11.109] we can have data that we can actually rely on and
+- [20:14.379] that's what the President is doing and we hope that
+- [20:17.082] his nominee will soon be confirmed.
+- [20:18.550] Charlie.
+- [20:19.217] The Press: You addressed the crime of (inaudible)
+- [20:21.987] and the President has done a lot to deliver justice
+- [20:25.490] for victims of crimes like that horrific stabbing and
+- [20:28.126] the Epstein files are back in the news because a lot
+- [20:31.196] of Americans feel that Jeffrey Epstein's victims
+- [20:33.865] never got justice.
+- [20:35.167] Does the President care about these victims?
+- [20:38.136] Do you think he can delete...
+- [20:40.472] Does he want to deliver more justice for them and
+- [20:42.908] is he willing to meet with them?
+- [20:44.242] Karoline Leavitt: The President cares about
+- [20:45.811] victims of all crimes and that's why Republicans in
+- [20:49.281] the Trump Department of Justice have done more in
+- [20:51.750] terms of transparency when it comes to the Epstein
+- [20:54.086] case than any prior administration.
+- [20:57.089] Why are the Democrats all of a sudden caring about
+- [20:59.958] this?
+- [21:00.626] It's because they're desperately trying to
+- [21:01.994] concoct a hoax to smear the President of the
+- [21:04.863] United States.
+- [21:05.530] We have seen this time and time again.
+- [21:07.566] Ro Khanna and all of these other Democrats, they
+- [21:10.102] could have cared about those victims four years
+- [21:12.037] ago when Joe Biden was in office.
+- [21:13.839] They could have pushed for transparency then.
+- [21:15.907] Unfortunately, the Democrats are using
+- [21:18.110] victims as political pawns to try to smear and to
+- [21:22.014] push a hoax against the President of the United
+- [21:23.982] States.
+- [21:24.683] And I will get you numbers on the amount of child
+- [21:27.719] predators that this administration and this
+- [21:30.055] FBI and this Department of Justice have locked up
+- [21:33.225] under President Trump's leadership.
+- [21:34.726] We have done more than any President to protect
+- [21:37.562] victims of crime, especially disgusting
+- [21:39.865] heinous sexual crimes and that includes the
+- [21:42.334] deportation of illegal aliens who are
+- [21:45.137] perpetrating these crimes against innocent victims
+- [21:47.406] in our country right now today, and that remains a
+- [21:50.108] top priority for this administration.
+- [21:51.943] The Press: Does the President -- will he meet
+- [21:53.378] with the victims on the Doha strikes?
+- [21:55.647] Did the President speak with Netanyahu before they
+- [21:58.583] were carried out and did he urge him to not go
+- [22:00.485] through with it or did they only speak
+- [22:01.820] afterwards?
+- [22:02.487] Karoline Leavitt: Again, I read you a statement.
+- [22:03.955] The Trump administration was notified by the United
+- [22:06.024] States military that Israel was attacking
+- [22:08.193] Hamas.
+- [22:09.061] The President directed the special envoy Witkoff to
+- [22:12.297] immediately call the Qataris and after the
+- [22:15.033] attack he spoke to Prime Minister Netanyahu.
+- [22:17.369] Behind you.
+- [22:18.437] The Press: Thank you.
+- [22:20.505] Karoline Leavitt: Go ahead.
+- [22:22.074] The Press: About the Epstein case, would the
+- [22:23.408] White House support a professional handwriting
+- [22:24.743] expert review of the document released
+- [22:26.078] yesterday to prove that it's not the President's
+- [22:28.613] signature?
+- [22:29.314] Karoline Leavitt: Sure we would support that and in
+- [22:31.783] fact, I have already seen many forensic analysts of
+- [22:34.686] signatures coming out.
+- [22:35.687] I believe it was the Daily Signal that published a
+- [22:38.957] piece with three separate signature analysts who
+- [22:41.593] said that this absolutely was not the President's
+- [22:44.396] authentic signature and we have maintained that
+- [22:46.832] position all along.
+- [22:47.833] The President did not write this letter.
+- [22:49.901] He did not sign this letter and that's why the
+- [22:51.903] President's external legal team is aggressively
+- [22:54.072] pursuing litigation against the Wall Street
+- [22:55.774] Journal and they will continue to.
+- [22:57.409] Christian.
+- [22:58.076] The Press: Thanks Karoline.
+- [22:59.010] Following up on Ed, now that we have these revised
+- [23:02.013] jobs numbers, is the President concerned at all
+- [23:05.851] that price spikes stemming from his tariffs through
+- [23:08.854] the end of the year might actually be driving the
+- [23:11.389] country towards a depression or a recession?
+- [23:14.025] What I'm asking is he committed to these
+- [23:16.995] policies now that we know how faulty the job data
+- [23:19.765] was?
+- [23:20.432] Karoline Leavitt: The President is committed to
+- [23:21.767] his policies because his policies are working,
+- [23:23.902] Christian, and there have been a lot of people
+- [23:27.172] fearmongering about inflation in this room,
+- [23:29.875] but it just has not come to fruition.
+- [23:31.710] On a monthly basis, CPI inflation has now come in
+- [23:35.046] at or below the market's expectation for six
+- [23:37.749] consecutive months.
+- [23:39.885] Every month that President Trump has been in office,
+- [23:42.320] overall inflation has run at a 1.9% average pace in
+- [23:46.458] the President's first six months in office.
+- [23:49.528] I would've told all of you that in January, you would
+- [23:51.797] not have believed me, but those are the facts and
+- [23:53.899] those are the numbers.
+- [23:54.633] And we also see many other positive signs and
+- [23:57.235] economic indicators like real GDP.
+- [23:59.971] In the second quarter it was revised up to 3.3%,
+- [24:03.575] that beat the market's expectation.
+- [24:05.811] We know there's a capital spending boom right now,
+- [24:08.146] which we know is one of the greatest economic
+- [24:10.382] indicators of job growth.
+- [24:11.883] We know wages are increasing at a far faster
+- [24:14.386] pace than they were under the previous
+- [24:16.288] administration.
+- [24:17.289] We see productivity and the second quarter was
+- [24:19.391] also revised up to a strong 3.3%.
+- [24:22.093] In total industrial production, factory output
+- [24:25.764] also surged.
+- [24:26.665] All of this means the economy is moving, people
+- [24:29.167] are working, people are spending money.
+- [24:30.836] You look at consumer spending, that is also
+- [24:33.071] ticking up and in the right direction.
+- [24:34.806] And a large part it's because of the incredible
+- [24:37.242] work the President has done in terms of energy
+- [24:40.078] and unlocking our energy dominance in this country.
+- [24:42.581] Again, these jobs, the numbers from the BLS today
+- [24:46.451] prove that the economy was an absolute mess and we
+- [24:49.254] are working every single day to fix it.
+- [24:51.022] And all of those indicators I just read for
+- [24:53.525] you are positive sign of what is to come.
+- [24:56.995] Sure, Danny.
+- [24:57.696] The Press: I just wanted to get a bit of clarity on
+- [25:01.366] the sequence of events for the Doha attack and the
+- [25:04.402] notification.
+- [25:05.070] You said that the US military notified if I got
+- [25:07.739] it right (inaudible) the Trump administration was
+- [25:09.841] notified by the US military?
+- [25:11.376] Karoline Leavitt: That's right.
+- [25:12.577] The Press: Was the US military notified by the
+- [25:15.213] Israeli military or did the US military detect an
+- [25:18.283] incoming Israeli attack on Qatar?
+- [25:19.751] Karoline Leavitt: The US military notified the
+- [25:22.120] White House and the President of the United
+- [25:24.022] States.
+- [25:24.689] That's all I have to share for you on that, Danny.
+- [25:26.858] Jeff.
+- [25:27.525] The Press: Also, following up, you said that the
+- [25:29.160] President assured the leaders in Qatar that this
+- [25:31.630] would never happen again.
+- [25:32.864] Did he say that to the prime minister of Israel
+- [25:35.433] and did Prime Minister Netanyahu agree to that?
+- [25:37.535] Karoline Leavitt: The President told that to the
+- [25:39.804] Amir and the prime minister of Qatar, and the
+- [25:41.873] President also overstressed the
+- [25:43.742] importance of peace in the region in his conversation
+- [25:46.711] with Prime Minister Netanyahu as well.
+- [25:48.680] And Prime Minister Netanyahu told President
+- [25:50.615] Trump he wants peace and he wants it quickly.
+- [25:53.084] That's what the President expects to happen.
+- [25:55.053] The President is very clear in the statement
+- [25:58.156] that he just had me read, and you will all see it
+- [26:00.592] out on Truth Social very shortly.
+- [26:02.294] I am sure the whole world will see it.
+- [26:04.262] He wants all of the hostages released out of
+- [26:06.965] Gaza and he wants this war to end.
+- [26:08.934] Those are very two clear directives that the
+- [26:11.036] President is making very clear for the entire world
+- [26:14.039] to understand.
+- [26:14.706] Mary.
+- [26:15.373] The Press: The President has been helping to
+- [26:17.175] negotiate these ceasefire talks.
+- [26:18.977] Does the President think that Israel is undermining
+- [26:21.446] negotiations by striking Qatar?
+- [26:22.814] Is he concerned that Qatar is no longer going to want
+- [26:25.050] to play that intermediary role?
+- [26:25.984] Karoline Leavitt: I think the President addressed
+- [26:27.886] that in this statement.
+- [26:28.586] I can read the whole thing for you again.
+- [26:29.955] I think it's very thorough because the President
+- [26:31.923] wanted to address all of your questions.
+- [26:33.391] He wrote, we wrote, "Unilaterally bombing
+- [26:35.961] inside Qatar, a sovereign nation and close ally of
+- [26:38.730] the United States that is working very hard and
+- [26:41.399] bravely taking risks with us to broker peace does
+- [26:44.169] not advance Israel or America's goals.
+- [26:46.671] However, eliminating Hamas who have profited off the
+- [26:49.474] misery of those living in Gaza is a worthy goal." So
+- [26:52.344] he answered that question himself.
+- [26:53.745] The Press: In paper you can't say that Israel
+- [26:55.747] informed the US.
+- [26:56.414] Karoline Leavitt: What I can tell you is the United
+- [26:57.916] States military informed the Trump administration.
+- [26:59.918] Weijia.
+- [27:00.585] The Press: Thank you.
+- [27:01.252] The Press: A quick follow on that.
+- [27:02.587] Can you tell us when the US military was notified,
+- [27:05.023] given that the largest US military base is in Doha?
+- [27:08.093] And then I have a question on DC crime.
+- [27:10.829] Karoline Leavitt: This morning just before the
+- [27:12.964] attack, as I said earlier as well.
+- [27:14.566] The Press: Thank you.
+- [27:16.468] And yesterday the President spoke about DC
+- [27:19.838] crime and talked about how there was virtually none.
+- [27:24.242] And then he expressed frustration about things
+- [27:27.712] that take place in the home they call crime.
+- [27:30.348] He said, "They'll do anything they can to find
+- [27:33.451] something.
+- [27:34.119] If a man has a little fight with the wife, they
+- [27:37.555] say, this is crime.
+- [27:39.290] See, now I can't claim 100%." Exactly what crimes
+- [27:41.826] was the President referring to?
+- [27:43.695] Karoline Leavitt: He wasn't referring to
+- [27:45.964] crimes.
+- [27:46.631] That's exactly the point he was making, Weijia.
+- [27:49.467] The President is saying is that these crimes will be
+- [27:52.270] made up and reported as a crime to undermine the
+- [27:55.807] great work that the federal task force is
+- [27:57.976] doing to reduce crime in Washington DC.
+- [28:00.645] And I think the President has every reason to
+- [28:02.514] believe that given the efforts of many reporters
+- [28:04.816] in this room who actively seek to undermine the
+- [28:07.252] President and what he's doing in our nation's
+- [28:08.953] capitol.
+- [28:09.621] We all know that deep inside you all agree with
+- [28:11.956] this because you all live here and I'm sure you are
+- [28:14.526] very grateful for the administration's efforts
+- [28:16.294] to make the city which we all reside in much safer
+- [28:18.963] for ourselves and our families.
+- [28:20.432] Michael.
+- [28:21.099] The Press: Thank you.
+- [28:21.766] Karoline.
+- [28:22.434] Florida Congressman Randy Fine is calling for judges
+- [28:25.203] to face consequences if the violent repeat
+- [28:27.772] offenders they release go on to commit new crimes.
+- [28:30.608] Is that something the President supports?
+- [28:32.410] Karoline Leavitt: That's not something I've heard
+- [28:34.345] the President discuss.
+- [28:35.413] You can ask him yourself next time you have the
+- [28:37.215] opportunity to.
+- [28:37.982] How's that?
+- [28:38.650] The Press: Karoline, one more question.
+- [28:39.984] On Thursday, President Trump will head to the
+- [28:41.619] Pentagon and also to New York City in honor of the
+- [28:44.489] 24th anniversary of 9/11.
+- [28:46.357] Has President expressed any interest on creating
+- [28:49.527] or having congressmen create a new 9/11
+- [28:52.664] commission to answer some of the ongoing questions
+- [28:55.066] many Americans have about that day?
+- [28:56.868] Karoline Leavitt: I, again, have not heard the
+- [28:59.304] President discuss that.
+- [29:00.138] You're welcome to ask him yourself, but I do know he
+- [29:02.240] very much looks forward to going to both the Pentagon
+- [29:05.143] and the Yankees game in New York City on Thursday
+- [29:07.378] to commemorate the 24th anniversary.
+- [29:09.314] As you know, the President is a New Yorker at heart.
+- [29:12.117] He loves the city very much.
+- [29:13.384] It is his home, and you'll hear more about that on
+- [29:15.887] Thursday when the President speaks on this
+- [29:17.422] himself.
+- [29:18.189] Kelly.
+- [29:18.857] The Press: Karoline, thank you.
+- [29:19.757] I wanted to ask you a question about the
+- [29:21.092] President speaking yesterday before the
+- [29:23.695] Religious Liberty Commission.
+- [29:25.029] As you know, he's created the White House Faith
+- [29:27.165] office, the task force on Anti-Christian bias.
+- [29:30.668] And yesterday he talked about the importance of
+- [29:32.704] the Bible in America and the importance of prayer
+- [29:36.107] in America.
+- [29:37.642] Some people have criticized him for that in
+- [29:39.744] stating that he's espousing Christian
+- [29:41.346] nationalism, yet the President is called on the
+- [29:43.948] American people to band together in praying for
+- [29:47.652] this nation, for people of all faiths.
+- [29:50.388] How important is that to the Trump administration
+- [29:53.625] and are there guidelines for implementing that?
+- [29:56.261] Karoline Leavitt: Well, last time I checked, it's
+- [29:57.829] not just Christians who pray, it's people of all
+- [30:00.098] faith who pray.
+- [30:00.865] And that's what the President wants to
+- [30:02.667] protect.
+- [30:03.334] The religious freedom for Americans of all faith.
+- [30:07.038] And he spoke about that yesterday and that's why
+- [30:09.908] he was very proud and excited to announce this
+- [30:12.310] new initiative, Pray America, encouraging all
+- [30:15.113] Americans to pray for our country and the goodness
+- [30:18.049] of our country leading up to America's 250th
+- [30:20.585] birthday next year.
+- [30:22.620] Why don't we take some from the sides.
+- [30:23.955] Elizabeth, go ahead.
+- [30:25.590] The Press: Thank you, Karoline.
+- [30:26.724] I have two questions.
+- [30:27.892] First on prayer again, is the Trump administration
+- [30:30.261] looking for the forthcoming prayer
+- [30:31.729] guidelines to challenge existing court precedent
+- [30:33.464] on the right to pray in public schools?
+- [30:35.833] Karoline Leavitt: Well, the President spoke about
+- [30:37.802] that yesterday and some of the changes we are making
+- [30:40.238] to ensure that the religious liberties of
+- [30:42.874] America's students and our youth are respected in
+- [30:45.243] public schools.
+- [30:45.944] In fact, he had a young student and invited him on
+- [30:48.346] stage to share his story about how when this young
+- [30:51.115] boy spoke about biological and biblical truth in his
+- [30:54.219] classroom, he faced consequences for that and
+- [30:57.555] how Americans of faith should not be facing
+- [31:00.024] consequences for expressing their religious
+- [31:02.627] freedom and their religious views, not in
+- [31:04.996] any public school in America should that be
+- [31:06.531] happening.
+- [31:07.265] You heard their President talk about that yesterday.
+- [31:09.000] The Press: Sure.
+- [31:09.734] Karoline, thank you so much regarding Israel
+- [31:11.803] attacking Doha beside from home.
+- [31:13.371] What was President Trump's involvement in the attack,
+- [31:16.040] if any?
+- [31:16.708] Karoline Leavitt: Look, I don't have anything more
+- [31:18.476] to read out for you on this other than the very
+- [31:20.211] lengthy and thorough statement that I have
+- [31:22.080] shared repeatedly now.
+- [31:23.014] Go ahead.
+- [31:23.915] The Press: Thank you.
+- [31:25.550] After the Supreme Court ruling yesterday on the
+- [31:28.319] ICE raids in Los Angeles, some particularly
+- [31:30.755] non-white US citizens are saying that they're going
+- [31:33.558] to begin carrying their US passports with them at all
+- [31:37.028] times.
+- [31:37.695] What is the White House's response to Americans who
+- [31:39.530] are concerned about being swept up as others have
+- [31:42.433] been already in these enforcement actions?
+- [31:44.335] Karoline Leavitt: They should not be concerned
+- [31:46.738] because this administration is focused
+- [31:49.040] on the detention and deportation of illegal
+- [31:51.943] alien criminals who broke our nation's immigration
+- [31:54.479] laws.
+- [31:55.146] And the Supreme Court upheld the Trump
+- [31:56.948] administration's right to stop individuals in Los
+- [31:59.484] Angeles to briefly question them regarding
+- [32:02.053] their legal status because the law allows this, and
+- [32:04.722] this has been the practice of the federal government
+- [32:07.191] for decades, and the Immigration and
+- [32:09.427] Nationality Act states that immigration officers
+- [32:11.863] can briefly stop an individual to question
+- [32:14.265] them about their immigration status if the
+- [32:16.501] officer has reasonable suspicion that the
+- [32:19.370] individual is illegally present in the United
+- [32:21.739] States.
+- [32:22.407] And reasonable suspicion is not just based on race,
+- [32:24.509] it's based on a totality of the circumstances to
+- [32:27.345] review.
+- [32:28.012] And I will tell you, I spoke to our border czar
+- [32:30.214] about this morning when ICE goes out to conduct a
+- [32:33.551] targeted operation to deport illegal criminals
+- [32:36.454] from our community, they are doing so with
+- [32:38.089] intelligence.
+- [32:39.123] They are doing so with law enforcement sources.
+- [32:41.793] They are doing so in most cases with the backing of
+- [32:45.430] local law enforcement who know exactly where these
+- [32:48.399] illegal alien criminals and drug traffickers and
+- [32:51.636] drug dealers are hiding in plain sight in American
+- [32:54.505] communities.
+- [32:55.206] And the men and women of ICE are doing everything
+- [32:57.475] they can to not only follow the law, but to
+- [33:00.011] enforce the law.
+- [33:00.945] And it's about time that has happened because we
+- [33:02.847] had four years of an administration who
+- [33:05.216] completely ignored and evaded our nation's very
+- [33:08.720] clear administration immigration laws and the
+- [33:11.456] Supreme Court has reaffirmed that
+- [33:12.990] The Press: Thank you, Karoline.
+- [33:14.759] One of the other documents released by the House
+- [33:17.462] Oversight Committee contained a photo of
+- [33:20.665] Jeffrey Epstein holding an oversized check that was
+- [33:24.102] made out to him in the check from the President
+- [33:28.940] for $22,000 for a fully depreciated woman.
+- [33:32.343] I wondered if the President has any
+- [33:35.279] recollection of that or what you guys make of that
+- [33:38.282] photo that was included in those documents.
+- [33:39.984] Karoline Leavitt: Did you see the signature on that
+- [33:42.220] check?
+- [33:42.887] It is not Donald Trump's signature.
+- [33:44.322] It is absolutely not.
+- [33:45.590] The President did not sign that check.
+- [33:47.024] The Press: But does he recognize the woman?
+- [33:48.726] Karoline Leavitt: No.
+- [33:49.394] The Press: Thank you, Karoline.
+- [33:50.428] On the New York City election.
+- [33:52.163] Is he considering--
+- [33:52.930] Karoline Leavitt: Well, I'll take both of you.
+- [33:54.966] Go ahead.
+- [33:55.633] The Press: So first is the President considering
+- [33:57.568] offering Mayor Eric Adams a job?
+- [33:59.137] If so, why?
+- [33:59.937] And does he think Curtis Lee was a serious
+- [34:01.672] candidate for New York City Mayor?
+- [34:03.007] Karoline Leavitt: Look, the President has made it
+- [34:04.375] quite clear he wants this race to move forward in
+- [34:07.044] New York City.
+- [34:07.712] He does not want a communist to be running
+- [34:09.847] New York City.
+- [34:10.515] But as for weighing in on other individual
+- [34:12.417] candidates, I'll leave that to the President to
+- [34:14.285] do himself.
+- [34:14.952] The Press: Karoline, following up on Reagan's
+- [34:17.288] question, many of these highest crime cities in
+- [34:20.124] America, they're led by Black mayors including the
+- [34:22.894] three that you mentioned, Jackson, Memphis,
+- [34:26.864] Birmingham.
+- [34:27.732] So given that, what's your response from the two
+- [34:30.334] criticism from the left that Trump is targeting
+- [34:32.470] black mayors?
+- [34:33.137] Isn't he just trying to protect Black people?
+- [34:35.173] Karoline Leavitt: The President is trying to
+- [34:37.141] protect all Americans from crime and he wants to make
+- [34:41.212] all of our cities in America safe.
+- [34:43.314] And the fact is the most dangerous cities in
+- [34:45.850] America are run by Democrats overwhelmingly,
+- [34:49.020] and according to the FBI crime statistics, 19 of
+- [34:52.123] the top 20 cities with the highest murder rate are
+- [34:54.792] run by Democrats.
+- [34:56.327] And these high crime Democrat run cities are
+- [34:58.296] driving up the crime stats, and otherwise safe
+- [35:02.433] red states.
+- [35:03.201] So of course he wants to address this problem.
+- [35:04.735] He's made that quite clear.
+- [35:05.770] The Press: Mike Johnson, he came out and said that
+- [35:08.339] the President was an FBI informant.
+- [35:10.408] Do you know what he meant by that?
+- [35:11.909] If it's not true.
+- [35:13.211] Karoline Leavitt: I can affirm that is not true.
+- [35:15.813] I think the speaker was to the fact that President
+- [35:18.850] Trump kicked Jeffrey Epstein out of his
+- [35:20.885] Mar-a-Lago property for reasons the President has
+- [35:24.055] already discussed.
+- [35:24.722] John.
+- [35:25.389] The Press: Thank you Karoline.
+- [35:26.757] First of all, as a Washington D.C resident
+- [35:29.527] with my family, I just want to thank the
+- [35:32.630] administration for revitalizing safety here.
+- [35:34.365] In the last three weeks it's been stunning.
+- [35:37.268] Well, I want to go to Virginia.
+- [35:39.070] All of a sudden out of the blue Winston Sears has
+- [35:41.906] closed the gap on Abigail Spanberger.
+- [35:43.908] Now four issues.
+- [35:45.610] Coerced portions in Fairfax County without
+- [35:49.380] telling mom or dad, no parents.
+- [35:52.149] Girls going in boys bathrooms on film.
+- [35:56.487] Two of the young fellows get suspended for
+- [35:59.357] complaining about it.
+- [36:01.459] Virginia beach man, an innocent man is now in a
+- [36:07.198] car crash by a drunk, illegal going on the other
+- [36:10.835] side of the road.
+- [36:12.803] And now you've got Spanberger has got these
+- [36:15.106] racist signs.
+- [36:16.474] When are we going to get the President to make an
+- [36:19.443] official endorsement of Winston Sears and maybe
+- [36:23.748] come and campaign in South West Virginia?
+- [36:25.783] Karoline Leavitt: Well, as you know, I'm very limited
+- [36:28.786] in what I can talk about when it comes to political
+- [36:31.055] endorsements and future elections from this
+- [36:33.658] government podium.
+- [36:34.825] But all of the issues that you just mentioned I know
+- [36:37.962] are very important to the President and it's quite
+- [36:40.531] common sense.
+- [36:41.198] It's the foundation of the Republican Party and it's
+- [36:43.634] what sent this President back to the Oval Office.
+- [36:46.237] We want to keep men out of women's sports and
+- [36:48.005] bathrooms.
+- [36:48.806] We want criminals to be locked up.
+- [36:50.508] The President wants to see law and order in every
+- [36:52.476] state across the country.
+- [36:53.544] But as for political endorsements, I'll leave
+- [36:55.680] that to him and his political advisors to make
+- [36:57.982] those.
+- [36:58.649] Sure.
+- [36:59.317] Haley.
+- [36:59.984] The Press: Thanks Karoline.
+- [37:00.851] I have two questions for you if it's okay.
+- [37:03.354] One on Doha and one on immigration and crime.
+- [37:05.923] On Doha ahead of the strike we saw today, did
+- [37:08.292] the administration at any point try to dissuade the
+- [37:11.862] Israelis from the potential for an action
+- [37:14.398] like we saw today?
+- [37:15.232] Karoline Leavitt: Again, I have answered questions
+- [37:16.867] repeatedly on this.
+- [37:17.835] I have a very lengthy statement which we will
+- [37:19.470] release after this briefing for all of you to
+- [37:21.205] read and to report on once again.
+- [37:22.773] The Press: Okay.
+- [37:23.474] And then on a case in Maryland, the killing of
+- [37:25.910] Dacara Thompson, there are reports that the suspect
+- [37:29.547] arrested for her murder was in the country
+- [37:31.749] illegally and arrested and released for driving under
+- [37:35.286] the influence both in 2022 and in April of this year
+- [37:38.923] by US Park Police.
+- [37:39.857] Is administration looking into what process allowed
+- [37:42.126] this to take place?
+- [37:43.427] Karoline Leavitt: Yes, we absolutely are.
+- [37:45.329] As soon as we saw this case, we ensured that the
+- [37:47.398] Department of Homeland Security and the
+- [37:49.066] Department of Justice were on it.
+- [37:50.701] And I can assure you that they are.
+- [37:52.069] This is another heinous act of violence against
+- [37:54.405] someone who should have never been in our country
+- [37:56.140] illegally in the first place.
+- [37:57.742] And that's exactly why the deportation of illegal
+- [38:00.645] criminals from our country is a top priority for this
+- [38:03.314] administration.
+- [38:04.348] And it's something that is happening every single
+- [38:06.317] day.
+- [38:06.984] And I would encourage all of you to continue to
+- [38:08.786] report on the very violent, illegal alien
+- [38:12.223] criminals that we are deporting daily from
+- [38:14.725] American communities across the country.
+- [38:17.028] There will never...
+- [38:17.795] We understand how many lives have been saved by
+- [38:21.866] these efforts or how many lives would have been
+- [38:23.801] lost, if not for this President in the
+- [38:26.404] administration's policy to deport illegal criminal
+- [38:28.906] aliens.
+- [38:29.573] The Press: Karoline, follow up on Charlie's
+- [38:31.275] question.
+- [38:31.942] Would the President meet with the Jeffrey Epstein
+- [38:33.844] victims?
+- [38:34.512] Karoline Leavitt: I don't have any meetings for you
+- [38:36.547] to read out on that.
+- [38:37.481] Go ahead.
+- [38:38.182] The Press: Thanks, Karoline.
+- [38:39.550] Is the Trump administration considering
+- [38:41.952] a ban on transgender Americans owning guns?
+- [38:43.754] Is that something the President would support
+- [38:45.890] even as we've seen some gun groups oppose the idea
+- [38:48.926] of it?
+- [38:49.593] Karoline Leavitt: I saw reporting on this.
+- [38:51.662] I understand there were very preliminary low-level
+- [38:53.764] discussions about this at the Department of Justice,
+- [38:56.200] and then sometimes those discussions are reported
+- [38:58.903] as fact.
+- [38:59.770] I'm not tracking any potential actions on this
+- [39:02.306] front and I'll let the President weigh in on
+- [39:04.475] that.
+- [39:05.142] It's a policy decision and it's far too early or
+- [39:07.778] would be premature, inappropriate for me to
+- [39:10.347] weigh in on it at this point in time.
+- [39:11.716] Behind you.
+- [39:12.717] Go ahead.
+- [39:13.384] The Press: After the immigration raid at the
+- [39:16.487] plant in Georgia on Friday, the President said
+- [39:19.156] over the weekend that he's open to some kind of
+- [39:22.093] changes in perhaps rules or visa rules or law that
+- [39:25.930] would prevent something like that happening in the
+- [39:28.065] future for skilled workers to train American workers.
+- [39:30.334] Karoline Leavitt: That's right.
+- [39:31.469] The Press: Can you confirm that and that the
+- [39:34.038] administration supports those changes and what
+- [39:35.506] exactly would that look like?
+- [39:36.674] Karoline Leavitt: Well, the President said it
+- [39:38.309] himself in a statement that he put out on Sunday
+- [39:40.678] night where he is very grateful for foreign
+- [39:43.981] companies from around the world and the investments
+- [39:46.684] that they're making right here in the United States
+- [39:48.686] of America.
+- [39:49.353] And he understands that these companies want to
+- [39:51.655] bring their highly skilled and trained workers with
+- [39:54.992] them, especially when they're creating very
+- [39:56.994] niche products like chips or in this point, in this
+- [39:59.463] case in Georgia like batteries.
+- [40:01.832] But the President also expects these foreign
+- [40:03.734] companies to hire American workers and for these
+- [40:06.737] foreign workers and American workers to work
+- [40:09.173] together to train and to teach one another.
+- [40:11.742] And so he expects these foreign companies to hire
+- [40:14.712] American labor.
+- [40:15.579] We want Americans to have these jobs.
+- [40:17.448] Americans need these jobs, but he also understands
+- [40:20.718] the need for these companies to bring over
+- [40:22.286] their workers who already have these skills.
+- [40:23.988] So I think it's a very-
+- [40:25.055] The Press: Can you shed light on what those
+- [40:26.390] changes might be?
+- [40:27.057] Karoline Leavitt: I think it's a very nuanced and
+- [40:28.425] responsible and sensible approach for the President
+- [40:30.227] to take.
+- [40:30.928] And I know that the Department of Homeland
+- [40:32.329] Security and the Department of Commerce are
+- [40:34.131] working on this matter together.
+- [40:35.466] I would defer you to them for any further action on
+- [40:38.302] this front.
+- [40:38.969] The Press: Karoline, thank you.
+- [40:40.004] Just I want to follow up on something you said.
+- [40:42.973] You said the Epstein documents are a hoax that
+- [40:45.342] Democrats are perpetrating against the President.
+- [40:47.111] You've said he didn't sign that check, that he didn't
+- [40:50.614] sign the birthday card that he allegedly signed.
+- [40:53.417] So what is the theory since these documents came
+- [40:55.452] from the Epstein Estate, who is I guess in your
+- [40:58.589] view, faking these documents?
+- [41:00.224] Karoline Leavitt: I did not say the documents are
+- [41:02.126] a hoax.
+- [41:02.793] I said the entire narrative surrounding
+- [41:04.261] Jeffrey Epstein right now that is absorbing many of
+- [41:07.565] the liberal cable channels on television is a hoax
+- [41:11.035] that is being perpetuated by opportunistic Democrats
+- [41:14.638] like Ro Khanna and the others whom you saw on
+- [41:16.874] that press conference outside of Capitol Hill,
+- [41:19.643] who are trying to push this hoax against the
+- [41:21.645] President of the United States.
+- [41:22.880] The Press: What exactly is the hoax?
+- [41:24.215] I'm just trying to understand what's fake.
+- [41:25.583] What's fake is not the documents --
+- [41:27.051] Karoline Leavitt: The hoax is the Democrats
+- [41:28.719] pretending to care about victims of crime when they
+- [41:31.155] do not care about victims of crime, when they have
+- [41:33.057] done nothing to solve crimes, when they have
+- [41:35.226] done nothing to lock up child pedophiles and child
+- [41:38.362] rapists across the country.
+- [41:39.864] And when they're now using victims as political props
+- [41:43.234] to try and again smear the President of United States
+- [41:46.337] and drag on this bad story about him.
+- [41:47.972] It is a distraction.
+- [41:49.506] The Democrats view this story as nothing more than
+- [41:52.309] an attempt to distract from the accomplishments
+- [41:54.578] and the achievements of this administration.
+- [41:57.014] And that is what we mean when we call it a hoax.
+- [41:59.216] The Press: If he didn't sign these, if you said he
+- [42:01.285] didn't sign the birthday card, he didn't do this,
+- [42:03.420] he also didn't do the check.
+- [42:04.555] Those were in documents from the estate.
+- [42:06.223] So what is the working theory as to why he's in
+- [42:08.959] --
+- [42:09.627] Karoline Leavitt: The President has one of the
+- [42:10.961] most famous signatures in the world and he has for
+- [42:12.696] many, many years.
+- [42:13.464] You know that Maggie, you've covered him for a
+- [42:15.332] long time.
+- [42:16.000] Long before he assumed this office when he was a
+- [42:17.835] businessman in New York, the President did not
+- [42:20.437] write that letter.
+- [42:21.538] He did not sign those documents.
+- [42:23.073] He maintains that position and that position will be
+- [42:25.743] argued in court by his lawyers.
+- [42:27.344] The President is very confident he's going to
+- [42:29.213] win this case.
+- [42:29.880] The Press: Thank you.
+- [42:31.181] Is the President planning to meet with Eric Adams in
+- [42:34.084] New York, maybe at the Yankees game, and has he
+- [42:36.787] personally talked to him about the race?
+- [42:38.355] Karoline Leavitt: I am not tracking any meeting with
+- [42:41.425] Mayor Adams at this time, but if that happens, I'm
+- [42:44.295] sure the New York Post will be one of the first
+- [42:46.196] people to know about it.
+- [42:47.731] I'll take a couple more questions.
+- [42:49.166] Why don't we go to the back?
+- [42:50.034] News Nation, all the way in the back.
+- [42:54.672] The Press: Regarding the US military, growing US
+- [42:57.975] military presence in the Caribbean, when asked
+- [43:00.844] directly about possible future military action,
+- [43:03.213] President Trump responded, "You're going to find
+- [43:05.149] out." What could the US public expect of that
+- [43:07.484] situation moving forward and what sort of ongoing
+- [43:09.320] threat is (inaudible)?
+- [43:10.287] Karoline Leavitt: I think it would be very unwise of
+- [43:13.023] me to preview what the President meant from this
+- [43:15.859] podium, but I think the heart of the President was
+- [43:18.762] saying, I know what the heart the President was
+- [43:20.364] saying in this administration believes is
+- [43:22.433] that the regime in Venezuela is illegitimate
+- [43:25.736] and it is unacceptable to this President in this
+- [43:28.005] administration to traffic illegal, deadly drugs into
+- [43:31.542] the United States of America.
+- [43:33.143] And that's why the President and the
+- [43:34.478] administration took very strong action against a
+- [43:37.247] boat and 11 narco-terrorists in
+- [43:40.017] international waters.
+- [43:41.118] As you all saw.
+- [43:41.885] I think that sends a very strong message to drug
+- [43:44.388] traffickers around the world.
+- [43:45.556] The President will not tolerate it, and the
+- [43:47.891] amount of drugs on that boat represents the lives
+- [43:50.761] of thousands of Americans that could have been
+- [43:52.463] killed by that deadly poison.
+- [43:53.764] And we're not going to allow that deadly poison
+- [43:55.733] to come into our country.
+- [43:57.501] The President will be signing a proclamation in
+- [43:59.470] the Oval Office later this afternoon, and we will see
+- [44:01.972] you all later.
+- [44:02.639] Thank you.
+- [44:03.774] The Press: Thank you.

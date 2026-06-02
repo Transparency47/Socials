@@ -1,0 +1,676 @@
+<!-- source: https://www.youtube.com/watch?v=-Ijn-W6VAPw -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: -Ijn-W6VAPw -->
+<!-- date_published: 2025-12-12T01:44:31+00:00 -->
+<!-- date_accessed: 2026-06-02T01:08:54.773478+00:00 -->
+
+# Transcript: President Trump Participates in a Signing Ceremony, Dec. 11, 2025
+
+- [00:00.340] The President: Well, thank you very much.
+- [00:01.570] We have a big signing right now.
+- [00:03.710] And we have a tremendous industry
+- [00:06.270] where we're leading by a lot.
+- [00:08.170] It's the AI. Artificial intelligence.
+- [00:11.190] I always thought it should be SI, Supreme Intelligence,
+- [00:14.670] but I guess somewhere along the line
+- [00:16.960] they decided that the word artificial
+- [00:18.800] and that's okay with me. That's up to them.
+- [00:21.130] It's a massive industry. We're leading China.
+- [00:24.680] We're leading everybody by a tremendous amount.
+- [00:27.490] We're -- the electricity
+- [00:29.300] is being built by them in every plant.
+- [00:31.040] They're building the electricity.
+- [00:32.260] We're getting them rapid approvals.
+- [00:34.450] But they're spending trillions of dollars and they can't --
+- [00:38.840] basically, this has a couple of other things
+- [00:40.510] that are less important.
+- [00:41.760] But one of the things that it has
+- [00:43.510] is you have to have a central source of approval.
+- [00:46.130] When they need approvals on things
+- [00:48.130] they have to come to one source.
+- [00:49.720] They can't go to California, you know, a, New York
+- [00:52.080] and various other places like Illinois with Pritzker,
+- [00:55.270] who's you know totally unreasonable person.
+- [00:58.060] And they have to have, you know,
+- [00:59.340] they're putting all this money in.
+- [01:01.160] It's a big part of the economy.
+- [01:03.320] And there's only going to be, I think, one winner here.
+- [01:05.580] I don't know if anybody agrees with that.
+- [01:07.120] I think most people agree,
+- [01:08.320] but there's only going to be one winner here,
+- [01:10.350] and that's probably going to be the US or China.
+- [01:14.130] And right now we're winning by a lot.
+- [01:16.080] China has a central source of approval.
+- [01:17.740] I don't think they have any approval.
+- [01:19.160] They just go in and build.
+- [01:20.860] But people want to be in the United States.
+- [01:22.550] And they want to do it here.
+- [01:23.770] And we have the big investment coming
+- [01:26.270] but if they had to get 50 different approvals
+- [01:28.090] from 50 different states, you can forget it,
+- [01:29.880] because it's not possible to do,
+- [01:31.850] especially if you have some hostile.
+- [01:33.340] All you need is one hostile actor
+- [01:35.770] and you wouldn't be able to do it.
+- [01:37.330] So it doesn't make sense.
+- [01:38.950] I didn't have to be briefed on this, by the way,
+- [01:40.620] this is real easy business. I mean, this is simple.
+- [01:44.190] We're taking in trillions of dollars.
+- [01:46.290] We're taking in tremendous amounts of countries, jobs.
+- [01:50.610] Everything's coming in.
+- [01:53.030] Now just to get off AI for a second.
+- [01:56.400] Auto plants are being built at levels
+- [01:58.500] that we've just about never seen before.
+- [02:00.640] We had -- our auto industry was decimated.
+- [02:03.530] 56 percent of our auto industry left our country over the years.
+- [02:08.100] It was at 1.100 percent. And then it got shriveled down.
+- [02:12.290] And really we lost a lot.
+- [02:14.410] And now because of tariffs, which have been so incredible,
+- [02:17.000] we've taken in hundreds of billions of dollars.
+- [02:19.810] And we're bringing back our factories.
+- [02:21.480] We're bringing back everything.
+- [02:23.460] It's -- we've never been in a position like this.
+- [02:26.100] Our stock market today was -- well, I saw it a few hours ago,
+- [02:29.760] but a few hours ago. It was way up.
+- [02:31.370] And we hit a new high. For the 52nd time in ten months,
+- [02:35.970] we have an all-time high stock market.
+- [02:38.950] And it's all reasons.
+- [02:40.200] A big reason was the election November 5th.
+- [02:42.280] And another big reason and maybe the biggest reason,
+- [02:44.600] but maybe not.
+- [02:45.850] Because without the election, this wouldn't have been done
+- [02:47.870] because people don't know how to do it.
+- [02:49.930] The second reason is the tariffs.
+- [02:51.450] We're charging countries that were really hurting us badly,
+- [02:56.050] were really decimating us.
+- [02:57.760] Hence, we have $38 trillion in debt,
+- [02:59.920] which we'll start paying off pretty soon
+- [03:01.440] with the tariff money coming in.
+- [03:03.380] But countries that were really decimating us
+- [03:05.650] use tariffs against us. Now we're using tariffs.
+- [03:08.120] All we want is fair.
+- [03:09.410] All we want is national security.
+- [03:10.950] It's given us great national security.
+- [03:13.180] I settled eight wars, and numerous of them
+- [03:15.690] was because of trade and because of tariffs.
+- [03:18.530] So we're very happy with that.
+- [03:19.990] But this is about something a little bit different.
+- [03:22.740] We want to have one central source of approval.
+- [03:25.930] And we have, I think, great Republican support.
+- [03:29.440] I think we probably have Democrat support, too,
+- [03:31.550] because it's common sense.
+- [03:32.820] I mean, you can't go to -- every time you make a change,
+- [03:35.220] and it could be a very reasonable change,
+- [03:37.710] you still won't get it approved if you have to go to 50 states.
+- [03:41.030] So this centralizes it.
+- [03:43.020] And it's something which the people behind me,
+- [03:45.870] the very distinguished people,
+- [03:47.640] all, but Tim Cook just left of Apple.
+- [03:50.910] And I spoke to all of the --
+- [03:53.120] the big companies, great companies.
+- [03:55.210] And they won't be able to do this.
+- [03:58.030] This will not be successful
+- [03:59.290] unless they have one source of approval.
+- [04:01.490] Or disapproval, frankly.
+- [04:02.800] You could have disapproval too, but it's got to be one source.
+- [04:05.190] They can't go to 50 different sources.
+- [04:07.910] So I just want to thank everybody for being here.
+- [04:10.170] And, Will, what would you like to add to that?
+- [04:12.090] Will Scharf: Sure.
+- [04:13.380] Mr. President, as you said in keeping with your commitment
+- [04:16.770] to grow the American economy,
+- [04:18.270] create potentially millions of new American jobs
+- [04:21.190] and maintain America's technological
+- [04:23.200] and military superiority in the years ahead,
+- [04:25.620] this is an executive order
+- [04:26.960] that orders aspects of your administration
+- [04:29.350] to take decisive action to ensure that AI can operate
+- [04:32.920] within a single national framework in this country
+- [04:36.000] as opposed to being subject to state level regulation
+- [04:39.950] that could potentially cripple the industry.
+- [04:42.290] David Sacks, your AI and crypto czar
+- [04:45.420] has been one of the key players and key authors behind this EO.
+- [04:48.590] He can give you more of the granular detail.
+- [04:50.860] But the big picture is that we're taking steps
+- [04:53.050] to ensure that AI operates under a single national standard
+- [04:57.320] so that we can reap the benefits that will come from it
+- [04:59.900] in terms of economic growth, job development,
+- [05:02.310] national security and technological edge.
+- [05:04.540] Yeah. And it's really the biggest industry
+- [05:06.940] that anybody's seen. I mean, it's -- it's taking off.
+- [05:10.500] And again, I believe there'll only be
+- [05:12.670] one country that really benefits.
+- [05:14.650] And it should be the United States.
+- [05:16.020] And it -- it will be if we do this, if we're unified.
+- [05:19.710] We have to be unified.
+- [05:21.450] China is unified because they have one vote.
+- [05:23.270] That's President Xi.
+- [05:24.780] He says do it and that's the end of that.
+- [05:26.540] You know, we have a different system,
+- [05:28.370] but we have a system that's good,
+- [05:29.690] but we only have a system that's good if it's smart.
+- [05:32.050] David Sacks, could you say a few words please?
+- [05:33.660] David Sacks: Yes, sir.
+- [05:34.890] So as you pointed out, we have over a thousand bills
+- [05:37.530] going through state legislatures right now to regulate AI.
+- [05:40.300] Over 100 of them have already passed.
+- [05:41.820] 25 percent of them are in California
+- [05:43.180] and New York and Illinois.
+- [05:44.380] You've got 50 states running in 50 different directions.
+- [05:46.650] It just doesn't make sense.
+- [05:47.930] We're creating a confusing patchwork of regulation.
+- [05:50.490] And what we need is a single federal standard.
+- [05:53.250] And that's what the CEO says, sir, is it --
+- [05:55.720] it basically states that the policy or administration
+- [05:57.550] is to create that federal framework.
+- [05:58.920] We're going to work with Congress
+- [06:00.640] like the chairman of the Commerce Committee,
+- [06:02.240] Senator Cruz and other --
+- [06:04.520] other members of Congress to define that framework.
+- [06:06.710] In the meantime, this EO gives your administration tools
+- [06:09.780] to push back on the most onerous and excessive state regulations.
+- [06:12.860] We're not going to push back on all of them.
+- [06:14.450] For example, kid safety, we're going to protect.
+- [06:16.520] We're not pushing back on that.
+- [06:18.000] But we're going to push back on most onerous examples
+- [06:20.260] of state regulation, sir.
+- [06:22.030] The President: So I spoke with other Republican senators,
+- [06:25.220] and we have great approval.
+- [06:26.430] I think I spoke to anybody that even had any question
+- [06:29.840] and seemed to have gotten approval.
+- [06:33.000] Ted Cruz has been a very strong advocate of common --
+- [06:35.590] this is common sense.
+- [06:36.860] I mean, I think it's nothing more than common sense.
+- [06:38.780] Please, Ted.
+- [06:40.050] Senator Cruz: Listen, this is the single
+- [06:41.810] most important economic question in the country and in the world.
+- [06:45.790] Who wins the race for AI? If you look back to the 1990s,
+- [06:50.830] there was a similar inflection point
+- [06:52.330] with the beginning of the internet.
+- [06:53.660] The dawn of the internet.
+- [06:55.340] And Bill Clinton was president at the time.
+- [06:57.300] He signed an executive order, just like you're doing, that --
+- [07:00.390] that put into law a light touch regulatory
+- [07:03.360] approach to the Internet.
+- [07:05.030] And the result was incredible economic growth and jobs
+- [07:09.190] in the United States.
+- [07:10.470] It was at the same time the European Union
+- [07:13.270] took a very heavy handed regulatory approach.
+- [07:16.270] Here's an amazing statistic, Mr. President.
+- [07:19.220] In 1993, the US economy's and Europe's economy
+- [07:22.970] were virtually identical in size.
+- [07:25.590] Today, America's economy
+- [07:26.980] is more than 50 percent larger than Europe's.
+- [07:29.920] And the two drivers of that are tech and the shale revolution.
+- [07:33.790] It transformed this country. And AI is the same thing.
+- [07:37.310] It's a race. And if China wins the race,
+- [07:40.100] whoever wins the values of that country will affect all of AI.
+- [07:46.610] We don't want China's values of surveillance
+- [07:49.670] and centralized control
+- [07:51.070] by the communist government governing AI.
+- [07:53.640] We want American values of free speech of individual liberty
+- [07:56.800] of respecting the individual.
+- [07:58.520] So this executive order, I believe,
+- [08:00.030] is tremendously important. Thank you for your leadership.
+- [08:02.220] The President: Well, thank you very much.
+- [08:03.420] And Scott, please.
+- [08:05.270] Secretary Bessent: Yes, sir, this is pass, fail.
+- [08:07.370] And the -- as you said,
+- [08:08.780] this is the biggest technological innovation
+- [08:12.400] in our country's history. We've seen the canals.
+- [08:15.090] We've seen the railroads. We've seen the utilities.
+- [08:17.330] We've seen the build out of the internet and the fiber.
+- [08:20.190] And now it's AI.
+- [08:21.780] And it is pass, fail versus China.
+- [08:24.580] We have the lead. We've got to maintain it.
+- [08:27.010] And it is also going to be
+- [08:28.940] the single biggest source of economic growth,
+- [08:32.440] but everything else we do but with our defense,
+- [08:35.390] there's no use in having a golden dome
+- [08:37.280] if China's AI can get around it.
+- [08:39.390] There's no use in spending all this money on defense
+- [08:42.540] and the US will remain the leader in this
+- [08:45.720] under President Trump's leadership.
+- [08:47.250] He has the accelerated the growth.
+- [08:49.970] We're actually going to move ahead further.
+- [08:52.820] We are seeing building everywhere construction jobs
+- [08:56.210] that are going to be jobs at the AI data centers.
+- [08:59.220] And most importantly President Trump had the incredible idea
+- [09:03.270] to allow the companies to create their own power.
+- [09:07.370] And we are going to see soon that communities
+- [09:11.300] near AI facilities will have the same or lower electric
+- [09:16.370] cost than other communities, which is a great innovation.
+- [09:20.280] So this is an important document today.
+- [09:23.020] The President: Do you have any questions?
+- [09:25.450] The Press: On this subject, President Trump,
+- [09:27.280] are you more worried about the US
+- [09:28.680] winning the race for AI dominance with China
+- [09:31.170] or about AI's potential threat to humanity?
+- [09:34.570] The President: Both.
+- [09:35.800] We're looking at that very strongly.
+- [09:37.210] We have a lot of threats in the opposite way.
+- [09:40.510] If we don't do it, you know,
+- [09:41.710] you look at the medical and medical research.
+- [09:43.550] Already, the things that come have come out of AI
+- [09:45.960] in terms of medical and cancer research and things.
+- [09:49.230] We're way ahead of what we ever thought
+- [09:51.310] we'd be just from the infancy of AI.
+- [09:54.260] So really both and we want to be very careful with -- with it.
+- [09:58.630] We also know that a big part of our economy,
+- [10:01.470] it could be 50, 60 percent of our economy
+- [10:04.420] going forward for a period of time,
+- [10:05.720] at least especially during the startup is AI and AI based.
+- [10:10.090] We have trillions of dollars of construction
+- [10:13.190] going on and that construction would stop
+- [10:16.620] or it would certainly be -- a lot of it would be halted.
+- [10:19.280] So look, we're leading China. We're leading China by a lot.
+- [10:23.400] China knows that.
+- [10:24.960] And not doing this would be the greatest gift to China
+- [10:28.910] and other countries,
+- [10:30.140] but China in particular that China has ever received.
+- [10:33.940] The Press: And with Venezuela, is that --
+- [10:36.410] now that we've seized this tanker,
+- [10:38.780] is the campaign against Venezuela
+- [10:41.740] still just about drugs or is it now also about oil?
+- [10:45.540] The President: Well, it's about a lot of things,
+- [10:47.030] but one of the things it's about
+- [10:48.360] is the fact that they've allowed millions of people
+- [10:50.360] to come into our country from their prisons,
+- [10:52.270] from gangs from drug dealers and from mental institutions,
+- [10:56.190] probably proportionately more than anybody else.
+- [10:58.970] They came in from many countries.
+- [11:00.380] We're getting them out.
+- [11:01.610] We had 11,888 murderers come into our country.
+- [11:06.040] Many of them are from Venezuela.
+- [11:08.460] We had thousands of Tren de Aragua,
+- [11:10.840] the gang come in from --
+- [11:12.560] which they say is the most violent gang.
+- [11:14.330] I don't know MS-13 is pretty bad,
+- [11:16.750] but Tren de Aragua they say is the most violent gang
+- [11:19.060] that comes out of from the prisons of Venezuela
+- [11:21.830] came out of the prisons of Venezuela.
+- [11:24.190] So it has to do with a lot of things.
+- [11:25.750] They've treated us badly
+- [11:26.950] and I guess now we're not treating them so good.
+- [11:29.680] If you look at the drug traffic,
+- [11:32.040] drug traffic by sea is down 92 percent
+- [11:35.670] and nobody can figure out who the 8 percent
+- [11:37.540] is because I have no idea.
+- [11:39.440] Anybody getting involved in that right now is not doing well
+- [11:42.900] and we'll start that on land too.
+- [11:44.610] It's going to be starting on land pretty soon.
+- [11:46.410] Thank you, Peter.
+- [11:48.210] The Press: In Indiana, just a few moments ago,
+- [11:50.370] the Senate there rejected the Congressional maps
+- [11:53.830] to redistrict in that state. A number of Republicans
+- [11:57.230] voted against that redistricting effort.
+- [11:59.350] You have spent a lot of time talking about this,
+- [12:01.510] the vice president traveled to Indiana.
+- [12:03.290] What's your reaction?
+- [12:04.500] Well, we want every other state that's the only state.
+- [12:06.570] The President: It's funny because I won the --
+- [12:07.870] I won Indiana all three times by a landslide
+- [12:11.430] and I wasn't working on it very hard, would have been nice.
+- [12:14.680] I think we would have picked up two seats if we did that.
+- [12:17.420] You had one gentleman the head of the Senate,
+- [12:19.270] I guess, Bray, whatever his name is,
+- [12:22.210] I heard he was against it.
+- [12:23.790] He probably loses next primary whatever that is.
+- [12:26.900] I hope he does.
+- [12:28.170] But because he's done a tremendous disservice.
+- [12:29.990] I mean, think of it, it's a great place.
+- [12:32.300] I love the people there. They love me.
+- [12:34.390] We won in a landslide.
+- [12:35.650] All three times got tremendous votes, record --
+- [12:38.100] I got record votes.
+- [12:39.450] And then you -- there's no reason for doing that.
+- [12:42.460] And the Democrats do it to us.
+- [12:43.890] So I can't imagine that they do it,
+- [12:45.450] but I wasn't very much involved.
+- [12:48.080] But there's a man named Bray as a,
+- [12:51.280] I guess, head of the Senate.
+- [12:53.160] Was that Bray? Is that the name Bray?
+- [12:57.280] And I mean, I'm sure that whatever his primary is,
+- [13:01.610] it's I think, in two years.
+- [13:02.990] But I'm sure he'll go down. He'll go down.
+- [13:06.210] I'll certainly support anybody that wants to go against it.
+- [13:08.570] The Press: Mr. President,
+- [13:09.790] if I could ask you briefly about on AI
+- [13:12.180] and then a question on Ukraine.
+- [13:14.030] On the AI side, the flip side of what you've done today
+- [13:17.050] is what kind of agreements you can get with China,
+- [13:20.430] particularly on the national security threats posed by AI.
+- [13:24.500] During the Biden administration, there was a vague agreement
+- [13:27.120] on not using AI in the nuclear weapons complex.
+- [13:31.540] Tell us what you envision and what conversations you've had,
+- [13:35.890] if any, with President Xi on -- on that topic?
+- [13:38.290] The President: Well, relative to AI?
+- [13:39.670] The Press: Yes.
+- [13:40.910] The President: I speak to him a lot about it.
+- [13:42.120] I speak to him a lot actually.
+- [13:43.410] I have a very good relationship with him, as you know.
+- [13:46.620] If you had another president,
+- [13:48.600] you would have had a big rare earth problem
+- [13:50.250] and it turned out not to be a problem.
+- [13:53.030] They're purchasing tremendous amounts of the soybeans
+- [13:55.650] and other agricultural products.
+- [13:57.150] Now. we're getting along with them very well.
+- [13:59.350] Now we talk about AI quite a bit.
+- [14:00.860] We talk about everything quite a bit.
+- [14:02.430] The Press: Well, do you have specific one of the things
+- [14:05.840] you're trying to put together with them?
+- [14:07.350] The President: One of the things I talked to China about
+- [14:09.140] is the denuclearization of weapons that we'd like to see
+- [14:13.900] if we could stop that.I've spoken to --
+- [14:16.670] I'm talking about nuclear weapons
+- [14:18.900] I've spoken to China about that.
+- [14:20.150] I've spoken to Russia about that.
+- [14:22.270] And I think it would be something
+- [14:23.780] that we would want to do and they would like to do.
+- [14:26.010] And I think Russia would like to do.
+- [14:27.470] The Press: They've said they won't join New Start
+- [14:29.330] or a follow on to New Start.
+- [14:30.740] The President: Well, that's what they've told you,
+- [14:32.110] but, you know, what they tell you is different
+- [14:34.220] than what they tell me.
+- [14:35.670] The Press: And I'm
+- [14:36.880] (Inaudible), Mr. President, just briefly,
+- [14:38.280] you made a commitment to the Europeans back in July,
+- [14:41.260] if I remember right,
+- [14:42.570] to participate in some kind of a -- of a peacekeeping force.
+- [14:47.570] Should there be a peace agreement?
+- [14:49.250] You mentioned, I think,
+- [14:50.500] air support intelligence and so forth.
+- [14:53.270] Does that commitment still stand?
+- [14:55.640] Is the US ready to go contribute to this?
+- [14:58.410] The President: It's called the security agreement
+- [14:59.840] basically that they call it the security agreement.
+- [15:01.840] Yeah, we would help -- we would help with security
+- [15:03.790] because it's I think a necessary factor in getting it done.
+- [15:08.190] I thought that we were very close with Russia
+- [15:10.450] to having a deal.
+- [15:11.770] I thought we were very close with Ukraine to having a deal.
+- [15:14.480] In fact, other than President Zelenskyy's,
+- [15:17.270] people loved the concept of the deal.
+- [15:19.010] You know, we threw something out.
+- [15:20.400] The Press: This is the four-part deal that?
+- [15:22.060] The President: Well, there's four or five different parts,
+- [15:24.070] you know, a little bit complicated
+- [15:25.550] because you're cutting up land in a certain way.
+- [15:27.350] It's not the easiest thing.
+- [15:28.780] It's sort of like a complex real estate deal,
+- [15:30.470] times a thousand, right?
+- [15:32.110] But it's a deal that would have stopped
+- [15:35.100] the killing of thousands of lives every month.
+- [15:38.010] Thousands and thousands of lives, mostly soldiers.
+- [15:40.630] But as you know, there are some bombs being dropped.
+- [15:42.430] The Press: Are you headed to sort of a Korea-like cease fire
+- [15:45.560] there where you don't resolve?
+- [15:46.930] The President: Well, there's a meeting on Saturday.
+- [15:48.430] We'll see whether or not we attend the meeting.
+- [15:50.620] We said we'll attend the meeting
+- [15:51.820] if we think there's a good chance of --
+- [15:53.370] they want me to attend, they want us to attend.
+- [15:55.910] And we'll be attending the meeting on Saturday in Europe
+- [15:59.110] if we think there's a good chance
+- [16:00.920] and we don't want to waste a lot of time, we think it's negative.
+- [16:04.610] We -- you know, we -- we want it to get settled.
+- [16:07.490] We want to save a lot of lives.
+- [16:09.730] As you know in the past, we spent --
+- [16:12.710] could be $300, $350 billion, giving it to Ukraine.
+- [16:17.120] You know we got nothing in return,
+- [16:19.670] but we gave it to Ukraine.
+- [16:21.000] I ended up getting rare earth in return.
+- [16:23.360] Even though I didn't spend money, we --
+- [16:25.460] we are now selling weapons to NATO.
+- [16:27.090] We're not selling it to Ukraine.
+- [16:28.410] We're selling weapons at full price to --
+- [16:32.100] to NATO, as you know. They distribute those weapons
+- [16:35.040] probably to Ukraine for the most part.
+- [16:37.340] They're probably doing it to others also,
+- [16:40.170] but we're not involved in the war
+- [16:42.190] other than the fact that we are involved in a negotiation
+- [16:46.310] because people want us there.
+- [16:48.250] Ukraine wants us involved very much.
+- [16:50.660] Europe is -- Europe wants us involved.
+- [16:53.110] I have a great relationship with the countries of Europe.
+- [16:55.620] As you know, I took the -- I took GDP if you -- you know,
+- [16:58.760] I took what they're spending as a percentage of GDP,
+- [17:02.950] but it was a two and they weren't paying.
+- [17:05.660] And now it's at five and everybody's amazed,
+- [17:08.210] but that 5 percent
+- [17:09.740] is a lot of it's coming back to the United States.
+- [17:12.780] With that being said I'd like to see the killing stop.
+- [17:17.190] 25,000 people died last month, soldiers, mostly soldiers,
+- [17:22.790] but some people also where bombs were dropped,
+- [17:25.250] but for the most part 25,000 soldiers died last month.
+- [17:28.560] I would love to see it stop and we're working very hard.
+- [17:31.760] It doesn't really affect the United States
+- [17:33.910] unless it got out of control.
+- [17:35.940] You know a thing like that as you probably know
+- [17:37.950] because you are a professional, a real professional,
+- [17:40.420] which is something I don't say about a lot of other people,
+- [17:42.910] but you are a great professional.
+- [17:45.800] Things like this end up in third world wars
+- [17:49.740] and I'm told that the other day
+- [17:51.430] I said, you know everybody keeps playing games like this.
+- [17:54.550] You'll end up in a third world war
+- [17:56.710] and we don't want to see that happen.
+- [17:58.730] The Press: Mr. President. Mr. President,
+- [18:01.980] can you confirm that you have appointed a general
+- [18:04.910] to lead the stabilization forces in Gaza?
+- [18:08.050] What will be his mission? And how soon do you want to see?
+- [18:10.720] Well, we're working very strongly on Gaza.
+- [18:12.580] The President: Yeah, we're working very much on Gaza.
+- [18:15.490] We actually do have a real peace in the Middle East.
+- [18:17.630] We have 59 countries supporting it,
+- [18:19.600] which is you know, never happened before.
+- [18:21.210] We have countries that want to come in
+- [18:22.870] and take care of of Hamas as an example.
+- [18:27.830] We have countries that want to come in
+- [18:29.210] and take care of Hezbollah in Lebanon as an example.
+- [18:33.150] And I say right now you don't have to do that.
+- [18:34.790] You may have to do that.
+- [18:36.080] But we have countries that are volunteering to come in
+- [18:38.330] and literally take care of the whole thing.
+- [18:40.610] We have a great peace in the Middle East.
+- [18:42.140] It's never happened before.
+- [18:44.070] And I think it's very strong, actually.
+- [18:47.200] The Press: And Prime Minister Netanyahu,
+- [18:48.750] you're supposed to meet him end of this month.
+- [18:50.530] What's on the agenda?
+- [18:51.770] The President: Well, we get along with him very well.
+- [18:53.350] He's been a wartime prime minister, certainly.
+- [18:56.820] We did a big thing.
+- [18:58.190] When we -- when we went in with this very plane right here,
+- [19:01.400] this beautiful plane, we went in with those B-2s.
+- [19:05.490] And we -- and now I can use the word
+- [19:07.890] because it's been confirmed by the Atomic Energy Commission.
+- [19:10.640] We obliterated their nuclear capability, their potential.
+- [19:14.940] And their nuclear capability
+- [19:16.300] would have been there in about two months.
+- [19:18.370] I think it looked like it was -- some people say two weeks.
+- [19:20.580] I don't know if it's two weeks, but a very short period of time.
+- [19:22.670] They were very close to having massive nuclear weapons.
+- [19:27.280] And these guys went in and they did a job.
+- [19:30.630] And that made peace possible
+- [19:32.520] because everybody was afraid of Iran
+- [19:34.770] and now they're not afraid of Iran anymore.
+- [19:36.660] And Iran would like to make a deal with us, okay.
+- [19:39.550] The Press: Your national security strategy
+- [19:40.960] does not say obliterated, sir. It says -- Sset them back.
+- [19:44.070] Your -- your intro does that. But --
+- [19:46.470] The President: Well, the Atomic Energy Commission
+- [19:48.040] said obliterated.
+- [19:49.250] And the people that have seen the site said obliterated.
+- [19:51.550] And frankly, Iran said it was obliterated.
+- [19:54.170] And to show you how accurate it was.
+- [19:57.350] And -- and you know, I --
+- [19:58.870] I fight for the pilots because the pilots
+- [20:00.720] and those people went in there at great risk.
+- [20:02.480] And they hit every single target on every single bomb.
+- [20:07.010] And they did a lot of damage.
+- [20:09.280] And for them to be given anything
+- [20:11.360] less than 100 percent of the credit is unfair.
+- [20:14.080] So I will tell you, the Atomic Energy Commission
+- [20:18.500] said it's like gonzo.
+- [20:20.500] It's one person actually used the term obliterated.
+- [20:24.700] But Iran actually said
+- [20:26.020] that they probably can never go there again.
+- [20:28.310] They can probably never start there again.
+- [20:30.220] If they ever started, it probably choose a new site.
+- [20:33.300] But regardless, we took out the Iran nuclear site
+- [20:37.270] with great talent.
+- [20:38.550] No other country could have done that.
+- [20:39.920] No other country has weapons like we do,
+- [20:41.800] but no other country could have done that.
+- [20:43.760] We had the best weapons in the world.
+- [20:45.480] We have the best military in the world.
+- [20:47.600] And when we took out Iran that allowed for peace.
+- [20:51.670] There's no way that -- and I really have great respect
+- [20:55.070] for the king of Saudi Arabia for the Amir.
+- [20:59.190] I'm friends with UAE. These are great people.
+- [21:02.030] These are actually great people and great leaders.
+- [21:04.370] There's no way they could have done a deal
+- [21:07.310] if Iran was not really nullified to a large extent.
+- [21:12.360] Iran is not the same country.
+- [21:14.270] Iran was a country that was feared by everybody.
+- [21:17.640] And now it's a country that's been very much downgraded.
+- [21:21.960] I'm sure they'll try and come back.
+- [21:24.310] And they're very capable people.
+- [21:26.150] Maybe they will, maybe they won't.
+- [21:27.500] The Press: There are already constituting
+- [21:28.960] their missile program quite quickly.
+- [21:32.680] The President: Well, you know, they can try,
+- [21:34.100] but it's going to take them a long time to come back.
+- [21:36.070] But if they do want to come back
+- [21:37.730] and they want to come back without a deal,
+- [21:39.240] then we're going to obliterate that one too.
+- [21:41.160] You know, we can knock out their missiles very quickly.
+- [21:43.610] We have great power. And we helped Israel a lot.
+- [21:46.790] We were shooting down the drones.
+- [21:48.360] We were doing a lot of things for Israel.
+- [21:50.020] We did a good job for Israel.
+- [21:51.800] But Israel did a good job, they fought.
+- [21:53.580] And they all fought bravely. Look, it's a war.
+- [21:55.910] That's a vicious war. They're all vicious wars.
+- [21:58.630] When you write -- hey, you covered a lot of wars.
+- [22:01.800] We never saw a nice one, right?
+- [22:03.560] They're all vicious.
+- [22:04.860] But that was a -- that was a big fight.
+- [22:07.820] But the big thing was the knockout
+- [22:09.370] of the possible nuclear capability.
+- [22:12.810] And it was a complete knockout of nuclear capability.
+- [22:15.310] That doesn't mean that over the next two years or three years,
+- [22:18.700] they're not going to come back. They're not going to try.
+- [22:21.980] I think they got hit so hard, they may talk about trying,
+- [22:24.620] but I don't think they want to try.
+- [22:25.930] And I can tell you that they would love
+- [22:28.230] to be able to make a deal with me.
+- [22:30.140] They would love to be able to make a deal with me.
+- [22:32.260] And I'd love to make a deal with them if we could.
+- [22:34.280] You know, we were not close but not so close,
+- [22:38.310] but we were reasonably there
+- [22:40.120] for a deal with Iran before the bombing.
+- [22:42.520] And they would have been much better off if they made a deal.
+- [22:46.790] They could have had a deal -- they could have had a deal
+- [22:49.930] where they would have been much better off.
+- [22:51.590] Look at what we've done. I mean, their place is blown up.
+- [22:54.980] Forget about the nuclear. The nuclear is gone.
+- [22:56.910] But look at the damage they've suffered,
+- [22:59.140] the death that they've suffered.
+- [23:01.340] They could have had a deal with -- nobody would have died.
+- [23:03.330] No buildings would have been down.
+- [23:04.660] Nothing would have happened.
+- [23:06.660] We would have -- we would have blown up their nuclear.
+- [23:08.760] That would have been it.
+- [23:10.130] They could have had a great deal,
+- [23:12.130] but they missed that opportunity.
+- [23:13.380] But they would like to make a deal right now.
+- [23:15.240] Iran would like to make a deal with me.
+- [23:16.900] Yes, please.
+- [23:18.100] The Press: On -- Yeah, thank you, Mr. President.
+- [23:21.030] Do you think the Senate should confirm your nominee
+- [23:23.320] for religious freedom ambassador Mark Walker
+- [23:26.120] in time for Christmas as a Christmas gift
+- [23:28.350] to Christians around the world?
+- [23:29.880] The President: Well, I don't know.
+- [23:31.160] I mean, I've heard good things about Mark.
+- [23:33.080] Why has something come up that I don't know about?
+- [23:35.600] The Press: Well, he was nominated in April,
+- [23:36.990] and he still hasn't received --
+- [23:38.680] The President: Well, I'd like to see him.
+- [23:39.910] I mean, I'm hearing very good things about him, so.
+- [23:42.450] I thought by asking that question,
+- [23:44.160] you know, something new came up.
+- [23:45.730] You know, there's breaking news about Mark Walker.
+- [23:48.730] No. Yeah, I'd like to see him. Look, I've always found him
+- [23:51.520] to be a high quality person, frankly.
+- [23:53.640] Yeah, I'd like to see that happen.
+- [23:55.370] I will say John Thune though has done a good job.
+- [23:57.500] He's improved. He's gotten hundreds of people approved.
+- [24:01.830] You know, we have a roadblock with the Democrats.
+- [24:03.920] They're just obstructionist, that's all.
+- [24:05.460] That's all they're good at is obstructing.
+- [24:07.070] They're not good at creating. They're only good at obstructing
+- [24:10.020] and wanting open borders and men in women sports and transgender,
+- [24:15.380] all things that transgender for everybody,
+- [24:17.390] all things that people don't want.
+- [24:19.920] And they're obstructionists, you know.
+- [24:22.530] They're doing that with healthcare.
+- [24:23.980] We have a great healthcare proposal
+- [24:25.610] where we pay all of the hundreds of billions of dollars
+- [24:29.770] that the insurance companies have been making.
+- [24:31.500] You know their stock is up 1,700 percent.
+- [24:34.870] And by the way, the stock market today hit another high.
+- [24:37.930] 52 times we hit a high in a ten month period.
+- [24:42.400] That's during my second presidency.
+- [24:44.710] And it's been amazing. Nobody's seen anything like it.
+- [24:49.490] You know, we had the greatest economy in history
+- [24:52.560] in my first term.
+- [24:54.020] I think we're blowing it away right now.
+- [24:56.030] I think we're blowing it away.
+- [24:57.420] And again, prices were the highest they ever were.
+- [25:01.740] Inflation was the highest in 48 years or I think ever.
+- [25:05.700] They say 48 years.
+- [25:07.010] The press is 48 years. I'll accept that.
+- [25:09.930] But I think it was the highest inflation we've ever had.
+- [25:12.510] Under the past administration with the highest prices.
+- [25:15.050] We have high inflation. You have high prices.
+- [25:17.320] Prices are coming way down, energy is coming way down,
+- [25:21.010] gasoline is hitting now $1.99 in a couple of states,
+- [25:25.190] and it's way down.
+- [25:26.420] Gasoline is way down.
+- [25:27.890] And when gasoline and energy comes down, everything follows.
+- [25:30.510] But prices are coming down.
+- [25:32.480] And we have an unbelievable economy.
+- [25:34.650] 401(k)s are setting a record.
+- [25:37.420] 401(k)s that's owned by a lot of people
+- [25:40.590] because they're based on the stock market.
+- [25:43.080] And the stock market for 52nd --
+- [25:45.220] it's 52nd time has just hit a brand new high.
+- [25:48.000] So it's amazing what's happening.
+- [25:51.420] And I will say this our country is respected again.
+- [25:55.870] I think we're respected like never before.
+- [25:58.270] The United States is respected again.
+- [26:00.780] We have a country that was a dead country one year ago,
+- [26:04.030] dead,
+- [26:05.380] and now it's the hottest country anywhere in the world.
+- [26:07.800] Thank you very much everybody.
+- [26:10.560] (background chatter)
+- [26:33.570] The President: Let's get a good picture.
+- [26:35.120] Pulitzer Prize.
+- [26:36.440] This is going to be a Pulitzer Prize picture.
+- [26:38.080] Let's give him the Pulitzer Prize.
+- [26:39.520] He's in that -- do you like this guy?
+- [26:42.460] Everybody likes Albert, right?
+- [26:54.110] No auto pen necessary.
+- [26:57.050] That's a whole big deal, isn't it?
+- [26:59.160] What's that all about?
+- [27:05.350] Who am I giving this pen to, David?
+- [27:07.700] Who am I giving it to? What a job he's done.
+- [27:13.810] That's a good choice. I almost gave it to Howard.
+- [27:19.370] Thank you everybody very much.
+- [27:20.700] Thank you very much. Thank you, Peter.
+- [27:23.980] The Press: Thank you, President Trump.

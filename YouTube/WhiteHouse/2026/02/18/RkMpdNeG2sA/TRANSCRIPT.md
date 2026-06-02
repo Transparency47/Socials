@@ -1,0 +1,1060 @@
+<!-- source: https://www.youtube.com/watch?v=RkMpdNeG2sA -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: RkMpdNeG2sA -->
+<!-- date_published: 2026-02-18T19:12:23+00:00 -->
+<!-- date_accessed: 2026-06-02T02:37:51.480268+00:00 -->
+
+# Transcript: Press Secretary Karoline Leavitt Briefs Members of the Media, Feb. 18, 2026
+
+- [00:06.700] Karoline Leavitt: Hello,everybody.
+- [00:08.510] Good afternoon.
+- [00:09.940] Thank you for your patience, as always.
+- [00:13.160] Let's begin with some scheduling announcements
+- [00:15.080] for the remainder of President Trump's very busy week.
+- [00:18.270] Today at 3:00 p.m.,
+- [00:20.250] President Trump will host a Black History Month reception
+- [00:23.260] in the East Room of the White House.
+- [00:25.280] I know many of you will attend and we will see you up there.
+- [00:27.980] Tomorrow President Trump will host a Board of Peace
+- [00:30.560] meeting at the Donald J. Trump Institute of Peace,
+- [00:33.610] where he will announce that member states
+- [00:35.710] have pledged more than $5 billion
+- [00:38.850] towards the Gaza humanitarian and reconstruction efforts,
+- [00:42.390] and have also committed thousands of personnel
+- [00:45.350] to the International Stabilization Force
+- [00:47.710] and local police to maintain security and peace for Gazans.
+- [00:52.290] Tomorrow afternoon, the President will travel
+- [00:54.440] to the great state of Georgia,
+- [00:56.300] where he will visit two local businesses
+- [00:58.320] and give a speech on his efforts
+- [01:00.040] to make life affordable for working people.
+- [01:03.710] On Friday, President Trump will host a working breakfast
+- [01:06.540] with governors in the East Room here at the White House.
+- [01:09.730] And on Saturday night, President Trump and the first lady
+- [01:12.760] will host the annual governors dinner.
+- [01:15.660] Next, I'd like to provide an update on the economy.
+- [01:18.730] We're seeing promising signs every day that 2026 is going
+- [01:22.590] to be a record successful year for the American people,
+- [01:26.310] just as President Trump promised them.
+- [01:28.630] The January jobs report shattered expectations,
+- [01:31.780] highlighting how the President's pro-growth economic agenda
+- [01:34.890] is fueling American prosperity.
+- [01:37.550] The economy added 172,000 new private sector jobs
+- [01:43.100] to kick off the year.
+- [01:44.460] That's more than two and a half times economists' predictions.
+- [01:48.340] The labor force participation rate went up
+- [01:51.110] while the unemployment rate fell.
+- [01:53.170] The prime age labor force participation rate
+- [01:55.780] is now at its highest since 2001.
+- [01:59.700] Most importantly, 100 percent of all job creation
+- [02:03.810] under President Trump continues to be in the private sector.
+- [02:08.040] This is truly remarkable.
+- [02:09.730] That's 615,000 private sector jobs that have been added
+- [02:14.480] in President Trump's second term thus far.
+- [02:16.820] These are real working people. These are real American families
+- [02:20.130] who will be living out their American dream.
+- [02:22.540] Meanwhile, federal government employment
+- [02:24.470] has shrunk to its lowest level since 1966,
+- [02:28.430] saving taxpayers $29 billion annually.
+- [02:32.940] And all of the net job growth under President Trump
+- [02:35.600] has gone to native born Americans,
+- [02:38.550] ending the disgraceful pattern under Joe Biden of job gains
+- [02:42.060] going to noncitizens and illegal aliens.
+- [02:45.360] Additionally, on inflation, the new CPI report is even
+- [02:48.950] more proof of the progress made by President Trump.
+- [02:52.150] Despite all of the doom casting from the so-called experts,
+- [02:55.680] the President has managed to utilize powerful tariffs
+- [02:58.580] to secure trillions of dollars in investments into our country
+- [03:02.570] and rebalance our trade deals
+- [03:04.270] while simultaneously cooling inflation.
+- [03:07.480] Year-over-year inflation fell to 2.4 percent
+- [03:10.800] in January, beating expectations again
+- [03:13.990] and marking the lowest level since May.
+- [03:16.960] Core inflation, the best measure of inflation,
+- [03:19.720] dropped to its lowest level in nearly five years.
+- [03:23.200] Meanwhile, real average hourly earnings
+- [03:25.510] for all private sector workers rose in the month of January,
+- [03:29.430] which means more money is going back
+- [03:31.200] directly into people's pockets.
+- [03:33.580] After only one year of President Trump back in office,
+- [03:36.170] real earnings for all private sector workers
+- [03:39.020] have outpaced inflation by nearly $1,400,
+- [03:42.930] earning back roughly half of the $2,900
+- [03:46.190] they lost under Joe Biden, when 40 year high inflation
+- [03:49.280] was stealing American's purchasing power.
+- [03:52.320] President Trump's policies are and will continue
+- [03:55.450] to allow American's incomes to go further for bills,
+- [03:58.980] retirement and achieving the American dream.
+- [04:02.100] A key part of the American dream is buying a home,
+- [04:05.590] and that is finally becoming more affordable
+- [04:07.890] under this president.
+- [04:09.180] This past week it was announced the annual mortgage cost
+- [04:12.170] for a new home has fallen by $4,000
+- [04:16.140] so far under President Trump,
+- [04:18.060] after rising by roughly $15,000 under Joe Biden.
+- [04:22.990] As a result,
+- [04:24.220] mortgage affordability has reached a four year
+- [04:26.870] best following recent bold action by the President
+- [04:30.060] to make homeownership more attainable
+- [04:32.170] for American families,
+- [04:33.840] not large Wall Street corporate institutional investors.
+- [04:37.810] At the same time, national median rates --
+- [04:40.640] rents have fallen to a four year low
+- [04:43.560] and have declined for six consecutive months.
+- [04:46.720] The annual rental cost for a new rental unit
+- [04:49.220] has fallen nearly $100 so far under President Trump
+- [04:53.300] after rising more than $3,000 under Joe Biden,
+- [04:57.470] and many are crediting that
+- [04:58.740] to the President's deportation efforts
+- [05:00.490] to remove illegal aliens from our communities
+- [05:03.320] and therefore from housing
+- [05:04.690] that should be used for American citizens.
+- [05:07.600] At the grocery store, the price of eggs, dairy,
+- [05:09.900] cheese, fresh fruit, apples, oranges,
+- [05:11.910] potatoes, tomatoes and butter have fallen
+- [05:14.560] since President Trump took office,
+- [05:16.390] and he is continuing to fight for even lower prices
+- [05:19.730] at the grocery store for the American consumer.
+- [05:22.400] At the gas pump, fuel prices are down
+- [05:24.490] by almost 10 percent over the past year.
+- [05:27.310] The average national price for a gallon of regular gas
+- [05:30.240] is now less than $3.00,
+- [05:31.710] and is approaching $2.70 in some states and much lower
+- [05:36.090] than that in many states across the country as well.
+- [05:38.840] We've seen in several states gas is under $2.00 a gallon.
+- [05:42.700] And at the pharmacy, prescription drug prices
+- [05:45.030] are down over the past year,
+- [05:46.970] with even more price relief ahead for American patients
+- [05:50.340] thanks to President Trump's most favored nation
+- [05:52.380] drug pricing deals and the great health care plan,
+- [05:55.040] which he is calling on Congress to pass as soon as possible.
+- [05:58.820] What President Trump wants Americans to understand
+- [06:01.210] is that this is only the start and the best is yet to come.
+- [06:04.850] The historic success that we have seen since he took office
+- [06:07.810] is just the beginning of enormous growth and opportunity
+- [06:11.190] that we are about to witness.
+- [06:12.540] And I know the President looks forward to hitting the road
+- [06:14.440] and being with the great people of Georgia tomorrow
+- [06:16.790] to talk about just this.
+- [06:18.460] So, with that today, I know there's a lot of news,
+- [06:20.280] I will open it up to take your questions.
+- [06:21.810] And we're going to start, as always,
+- [06:23.400] with our new media seat,
+- [06:24.730] the great Michael Graham from InsideSources.
+- [06:26.460] Thank you for being here, Michael.
+- [06:27.730] The Press: Thank you for having us,
+- [06:28.990] and thanks from our 200 newspaper partners
+- [06:30.720] around the country.
+- [06:31.990] So, you mentioned gas, but you didn't mention natural gas.
+- [06:34.290] And back where you live, your friends and family
+- [06:36.690] are paying among the highest prices for natural gas
+- [06:39.060] to heat their home and for electricity generation,
+- [06:41.160] the number one source of power across New England.
+- [06:43.800] The cheap gas is in Pennsylvania.
+- [06:45.670] The two highest places to buy gas in the country:
+- [06:48.390] New York City and Boston.
+- [06:50.620] The problem is the blue states will not allow the gas
+- [06:53.750] to travel to produce electricity or to reach customers.
+- [06:56.690] When President Trump first came into office,
+- [06:58.270] there was some talk him and Governor Hochul in New York
+- [07:00.080] possibly reaching a deal.
+- [07:01.470] When will consumers in the Northeast feel relief
+- [07:04.830] from President Trump's energy policies?
+- [07:07.440] And what can he do about state objections
+- [07:10.530] to expansion of infrastructure? Then I have a quick follow up.
+- [07:12.580] Karoline Leavitt: Sure. Absolutely.
+- [07:13.790] Well, the President has promised all Americans
+- [07:15.680] across the country,
+- [07:16.890] and in particular in the Northeast,
+- [07:18.540] where we do face much higher costs of electricity
+- [07:21.480] and of energy, unfortunately,
+- [07:24.100] because of the Democrat policies in the area.
+- [07:26.480] From the federal government's perspective,
+- [07:28.000] the President and the National Energy Dominance Council,
+- [07:30.840] Secretaries Wright and Burgum,
+- [07:32.430] are doing all we can when it comes to federal permitting.
+- [07:35.420] The drill baby, drill agenda is obviously underway.
+- [07:38.090] The President has made a huge push
+- [07:40.270] for more fossil fuels in this country.
+- [07:42.850] You look at what he did last week with respect to coal.
+- [07:45.240] Coal truly keeps the lights on in this country.
+- [07:47.360] We learned that in the recent winter storms.
+- [07:49.960] However, there's only so much
+- [07:51.260] that can be done at the federal level.
+- [07:53.080] That's why the President has called on blue state governors
+- [07:55.530] to participate in this energy dominance agenda,
+- [07:59.230] including governors in New England
+- [08:00.740] and the Northeast by contacting Governor Hochul
+- [08:03.330] directly to get this Constitution pipeline underway.
+- [08:07.020] This is not only going to bring down
+- [08:08.490] the cost of energy in the Northeast,
+- [08:10.360] it's also going to support job growth and --
+- [08:12.810] and energy affordability
+- [08:14.440] and more opportunity for workers in the Northeast.
+- [08:17.180] And I just have a quick statistic here on energy
+- [08:20.830] that I found fascinating,
+- [08:22.040] and it's obviously true because I'm saying it up here.
+- [08:24.860] Red states with Republican legislatures
+- [08:27.430] currently enjoy lower average retail electricity prices
+- [08:30.860] than blue states with Democrat legislatures.
+- [08:34.040] And that's exactly why the President is calling on
+- [08:35.980] all blue state governors across New England
+- [08:38.330] and the Northeast to get on board.
+- [08:40.190] Let's bring prices down for all Americans,
+- [08:42.090] whether they live in a red or a blue state.
+- [08:43.600] The Press: So, right down the street from your alma mater,
+- [08:45.030] Saint Anselm College,
+- [08:46.240] there's talk about building an ICE facility
+- [08:48.030] that's causing a lot of political agita in New Hampshire
+- [08:51.110] and for the Republican Governor Kelly Ayotte.
+- [08:53.190] Seems to be some miscommunications,
+- [08:54.770] arguing on both sides.
+- [08:56.010] Even Republican supporters of Trump who live in the town
+- [08:58.290] say we're not sure we want this.
+- [08:59.620] What's your message to the folks in New Hampshire
+- [09:01.410] about this proposed ICE facility?
+- [09:03.090] Karoline Leavitt: The message is that illegal immigration,
+- [09:05.760] while the border is secure,
+- [09:07.080] is still a problem across our entire homeland.
+- [09:09.870] And the previous administration
+- [09:11.350] allowed nearly 20 million illegal aliens
+- [09:14.280] from countries all over the world into our country.
+- [09:17.250] And the President and Secretary Noem
+- [09:18.710] have done a phenomenal job at deporting --
+- [09:21.840] nearly three million illegals have left the country
+- [09:24.450] either through deportation or self-deportation under --
+- [09:27.580] over the past year.
+- [09:28.890] But obviously, there are a lot more illegal alien criminals
+- [09:31.470] left in our homeland. That includes in New England.
+- [09:34.460] There are many within our communities in New Hampshire,
+- [09:37.310] in Maine, definitely in Massachusetts
+- [09:39.350] and in the Boston suburbs that need to be arrested,
+- [09:42.000] detained and deported back to their home countries.
+- [09:44.950] And so, the President and Secretary Noem,
+- [09:47.090] and I know ICE, are engaged with local governors
+- [09:49.980] across the whole country, including in New Hampshire,
+- [09:51.910] to open more detention facilities.
+- [09:53.950] This is an unfortunate consequence
+- [09:56.220] of the previous administration's border invasion
+- [09:58.850] that the President has thankfully put a stop to.
+- [10:01.290] But of course, we still need to grapple
+- [10:02.670] with the illegal alien criminals who are here,
+- [10:04.960] and that requires more detention space.
+- [10:06.960] Thank you, Michael.
+- [10:08.160] Garrett?
+- [10:09.400] The Press: On Iran, I'm not asking you for
+- [10:10.760] like military secrets here -- But can you share --
+- [10:13.180] Karoline Leavitt: You know I wouldn't be --
+- [10:14.570] would never be so unwise.
+- [10:16.060] The Press: Unless you want to give them.
+- [10:17.460] Can you share a little bit about the President's thinking
+- [10:20.160] on whether or not to strike Iran,
+- [10:21.780] who he's talking to, what information he's consuming
+- [10:24.850] and why a strike might be necessary on a nuclear program
+- [10:27.950] he says was obliterated by the last US strike?
+- [10:30.940] Karoline Leavitt: Well, there's many reasons and arguments
+- [10:33.290] that one could make for a strike against the -- against Iran.
+- [10:38.010] The President had a very successful operation
+- [10:41.490] as commander in chief with Operation Midnight Hammer,
+- [10:43.600] as you know, as you just said,
+- [10:45.460] totally obliterated Iran's nuclear facilities.
+- [10:49.020] The President has always been very clear, though,
+- [10:50.720] with respect to Iran or any country around the world,
+- [10:52.980] diplomacy is always his first option.
+- [10:55.020] And Iran would be very wise to make a deal
+- [10:58.260] with President Trump and with this administration.
+- [11:01.180] He's talking to many people,
+- [11:02.760] of course his national security team,
+- [11:04.480] first and foremost,
+- [11:06.160] and you know who the members of that team are.
+- [11:08.700] And this is something obviously the President takes seriously.
+- [11:11.810] He's always thinking about what's in the best interest
+- [11:13.800] of the United States of America,
+- [11:15.030] of our military, of the American people,
+- [11:17.830] and that's how he makes decisions with respect
+- [11:19.870] to military action of any kind.
+- [11:21.420] The Press: And on the flip side of that,
+- [11:22.760] he's got the State of the Union speech next week.
+- [11:24.400] If he is going to take military action,
+- [11:26.830] does the administration believe it's important to sort of
+- [11:29.300] convince the American people, sell the American people,
+- [11:31.470] will we hear something about that in the State of the Union
+- [11:33.780] to make the case for why something like that
+- [11:35.690] might be necessary to risk American lives?
+- [11:37.020] Karoline Leavitt: Look, again,
+- [11:38.220] I'm not going to engage in a hypothetical.
+- [11:39.760] Good try, Garrett, but you can't catch me there.
+- [11:42.590] I will say with respect to the State of the Union,
+- [11:44.430] you'll be hearing more about
+- [11:45.670] what is to come from the President's speech
+- [11:47.470] very soon at the appropriate time.
+- [11:49.100] It is going to be a very good and powerful speech,
+- [11:52.210] so everyone should tune in. Ed.
+- [11:54.270] The Press: Karoline, thank you. I got two questions for you.
+- [11:55.920] Karoline Leavitt: Sure.
+- [11:57.120] The Press: About Independence Hall in Philadelphia, um,
+- [12:00.240] the administration has decided to appeal a judge's ruling that
+- [12:04.240] in essence was trying to put the slavery displays back,
+- [12:06.950] arguing that the federal government believed
+- [12:08.620] it had the power to assemble and disassemble historical truths
+- [12:12.130] when it has some domain over historical facts.
+- [12:14.190] The judge said it does not.
+- [12:15.910] The administration said that you were planning
+- [12:17.900] to put up a updated interpretive materials
+- [12:21.290] and provide a fuller account of the history of slavery
+- [12:24.500] at Independence Hall. What more was the administration
+- [12:27.300] or is the administration planning to add?
+- [12:28.930] Karoline Leavitt: I'm not familiar
+- [12:30.170] with this specific instance, Ed,
+- [12:31.720] to be honest with you, but I will check in
+- [12:33.380] with the appropriate people who are overseeing this
+- [12:34.910] and we'll get you a more firm answer.
+- [12:36.290] The Press: One other question then.
+- [12:37.600] Karoline Leavitt: Sure.
+- [12:38.800] The Press: Yesterday, in his statement about Jesse Jackson,
+- [12:40.350] the President said, despite the fact that I'm falsely
+- [12:42.480] and consistently called a racist
+- [12:44.580] by the scoundrels and lunatics on the radical left, Democrats,
+- [12:47.230] all, who was always my pleasure to help Jesse along the way.
+- [12:51.590] Where or when does the President believe
+- [12:54.680] he's been falsely called racist?
+- [12:56.840] Karoline Leavitt: You're kidding, right?
+- [12:58.100] The Press: No.
+- [12:59.420] Karoline Leavitt: I will pull you plethora of examples.
+- [13:02.210] I'm going to get my team in that room
+- [13:03.680] to start going through the internet
+- [13:06.040] of radical Democrats throughout the years, Ed,
+- [13:08.960] who have accused this president falsely of being a racist.
+- [13:12.200] And I'm sure there's many people in this room
+- [13:14.070] and on network television across the country
+- [13:16.090] who have accused him of the same.
+- [13:17.530] In fact, I know that because I've seen it with my own eyes.
+- [13:20.590] And the President, very much looks forward
+- [13:22.270] to having an event later this afternoon at 3:00 p.m.
+- [13:26.190] to celebrate Black History Month
+- [13:28.120] and to talk about how his policies
+- [13:30.020] are advancing opportunity and prosperity
+- [13:32.540] for all Americans through record tax cuts,
+- [13:36.430] through the Trump accounts that all Americans
+- [13:38.520] can access regardless of race.
+- [13:40.230] These are a great thing
+- [13:41.550] for the next generation of Americans.
+- [13:43.210] The President has also awarded hundreds of millions of dollars
+- [13:46.450] in additional funding to strengthen educational
+- [13:48.960] outcomes at historically Black colleges and universities
+- [13:52.270] across the country.
+- [13:53.680] Again, the President is protecting
+- [13:55.410] the hard-earned benefits of the 2.4 million Black veterans
+- [13:58.920] who honorably served in our nation's armed forces
+- [14:01.050] by reducing the backlog of veterans
+- [14:03.410] waiting for their VA benefits and for their home
+- [14:07.100] loans through the veteran -- Department of Veterans Affairs.
+- [14:10.580] So there is a lot this president has done
+- [14:12.580] for all Americans regardless of race,
+- [14:14.410] and he has absolutely been falsely called
+- [14:17.480] and smeared as a racist
+- [14:18.680] and I am happy to provide you those receipts
+- [14:20.720] and we gladly will right after this briefing.
+- [14:23.710] Jennifer, go ahead.
+- [14:25.050] The Press: You mentioned the $5 billion
+- [14:26.430] in pledges for the Board of Peace.
+- [14:28.170] Will we be able to get a breakdown of which countries
+- [14:30.360] are providing each of those pledges?
+- [14:31.770] Karoline Leavitt: Yes.
+- [14:33.000] The Press: And which countries are providing troops?
+- [14:34.340] Karoline Leavitt: Sure.
+- [14:35.570] We're happy to provide that breakdown,
+- [14:36.940] and I'm also happy to provide the list of countries
+- [14:39.400] that will be attending tomorrow.
+- [14:41.120] I know it's more than 20 countries.
+- [14:42.630] I know there's a lot of interest in that.
+- [14:44.340] I'll spare myself reading you the list of 20 countries
+- [14:46.820] from the podium, but we will provide it.
+- [14:48.930] And the President will be opening the meeting tomorrow
+- [14:51.570] with remarks and will sort of formally be chairing the meeting
+- [14:54.510] at the beginning before he departs for Georgia tomorrow.
+- [14:57.780] The Press: And then on the sewage spill,
+- [14:59.330] the sewage pipe that broke on the Potomac,
+- [15:01.340] can you give us an update on the federal government's response?
+- [15:04.000] And officials have told CBS
+- [15:06.040] that some of that aging infrastructure is a concern,
+- [15:09.150] that this particular pipe wasn't even of the most urgent concern.
+- [15:13.350] Do you know if the government is looking into
+- [15:15.680] which other pipes could be at risk of collapsing?
+- [15:19.470] Karoline Leavitt: Well, the next step in this process
+- [15:21.620] is for any of the three local jurisdictions involved,
+- [15:25.560] whether that's the Commonwealth of Virginia,
+- [15:27.770] the State of Maryland and Governor Moore
+- [15:29.580] or the District of Columbia to step forward
+- [15:32.150] and to ask the federal government for help,
+- [15:34.460] and to ask for the Stafford Act to be implemented here
+- [15:38.190] so that the federal government can go
+- [15:39.850] and take control of this local infrastructure
+- [15:42.890] that has been abandoned and neglected
+- [15:45.500] by Governor Moore in Maryland for far too long.
+- [15:48.070] In fact, it's no secret that Maryland's water
+- [15:50.570] and infrastructure have been in dire need of repair.
+- [15:53.560] Their infrastructure has received a nearly failing grade
+- [15:57.060] in the 2025 report card
+- [15:58.690] from the American Society of Civil Engineers.
+- [16:00.680] This is the same grade they've received five years earlier.
+- [16:04.060] There has been no improvement
+- [16:05.670] under the leadership of Governor Moore.
+- [16:07.100] He's clearly shown he's incapable
+- [16:08.840] of fixing this problem, which is why President Trump
+- [16:11.580] and the federal government are standing by to step in.
+- [16:14.380] And for all of the environmentalists in the room
+- [16:16.530] and across the District of Columbia,
+- [16:18.160] let's all hope and pray
+- [16:19.380] that this governor does the right thing
+- [16:20.900] and asks President Trump to get involved,
+- [16:22.360] because it will be an ecological and environmental disaster
+- [16:26.190] if the federal government does not step in to help.
+- [16:28.180] But of course, we need the state and local jurisdictions
+- [16:31.150] to make that formal request.
+- [16:32.670] That's part of the legal process to move forward.
+- [16:34.830] Peter.
+- [16:36.050] The Press: So you said that any of the three Democrats
+- [16:38.100] just need to ask.
+- [16:39.330] A few minutes ago, Maryland's Governor Wes Moore asked.
+- [16:41.740] Karoline Leavitt: Wow.
+- [16:42.950] The Press: He said, if the President
+- [16:44.160] wants me to ask nicely,
+- [16:45.370] our response is this, please, Mr. President, do your job.
+- [16:50.630] Karoline Leavitt: To which I say,
+- [16:51.830] I'll ask the President
+- [16:53.060] and we will provide you with the next steps.
+- [16:55.310] But in all seriousness, the federal government
+- [16:57.620] has been preparing plans.
+- [16:59.070] The White House has been in contact with FEMA,
+- [17:01.250] with the Army Corps of Engineers,
+- [17:02.640] with the Environmental Protection Agency.
+- [17:04.610] Again, we've been standing by.
+- [17:05.950] This is a problem we want to fix,
+- [17:07.720] not just for the federal government
+- [17:09.410] but for everyone who lives in the District of Columbia,
+- [17:11.390] including all of you.
+- [17:12.620] So you're welcome.
+- [17:13.850] The Press: To your point about that,
+- [17:15.140] there are a lot of events coming up for America 250.
+- [17:18.100] The President wants people from all over
+- [17:19.650] to come to the nation's capital.
+- [17:21.390] Is he worried that by the summer the Potomac River
+- [17:26.660] will still smell like poop?
+- [17:29.770] Karoline Leavitt: He is worried about that,
+- [17:31.140] which is why the federal government wants to fix it
+- [17:34.430] and we hope that the local authorities
+- [17:36.880] will cooperate with us in doing so.
+- [17:38.680] Steve.
+- [17:39.970] The Press: What will the $5 billion
+- [17:41.720] be used for in Board of Peace?
+- [17:43.710] And will that be sort of a down payment for much more money?
+- [17:46.340] Karoline Leavitt: You'll be hearing
+- [17:47.670] more about that tomorrow at the meeting.
+- [17:49.340] If you recall at the first meeting when we were in Davos,
+- [17:52.980] Jared Kushner did provide a very detailed PowerPoint presentation
+- [17:56.720] for the vision of Gaza,
+- [17:58.040] the reconstruction and the humanitarian efforts,
+- [18:00.430] of course, providing local security on the ground.
+- [18:03.360] That will be part of the discussion tomorrow,
+- [18:05.090] is how can we maintain security.
+- [18:07.990] First, you must achieve security to get to prosperity,
+- [18:11.440] which is sort of the second part of this plan.
+- [18:13.360] So you'll be hearing more about that tomorrow.
+- [18:15.030] But I would just point out, $5 billion worth of investment.
+- [18:19.070] We're talking about reconstructing Gaza.
+- [18:21.230] I remember when those words came from the President's lips
+- [18:24.650] in the East Room many months ago
+- [18:26.500] and all of you in the press were bewildered
+- [18:28.420] at how the President could have such an ambitious goal
+- [18:31.520] of rebuilding Gaza,
+- [18:32.820] which is obviously a place that has been just turmoiled
+- [18:35.610] by violence and chaos for many, many years.
+- [18:37.720] But we are well underway in doing that and it's
+- [18:39.600] a historic accomplishment for this president.
+- [18:40.940] Sure.
+- [18:42.140] The Press: Is the President
+- [18:43.340] seeing enough progress in the Iran talks
+- [18:45.880] to let negotiations go a little further?
+- [18:47.740] I mean, where do things stand after yesterday's talks?
+- [18:49.910] Karoline Leavitt: I think you heard
+- [18:51.230] from the administration
+- [18:52.490] and the State Department yesterday,
+- [18:53.690] that there was a little bit of progress made,
+- [18:55.850] but we're still very far apart on some issues.
+- [18:57.770] I believe the Iranians are expected to come back to us
+- [19:01.630] with some more detail in the next couple of weeks
+- [19:03.550] and so the President
+- [19:04.800] will continue to watch how this plays out.
+- [19:06.210] The Press: Follow-up on that. Karoline Leavitt: Sure.
+- [19:07.440] The Press: Follow up on that. Thank you, Karoline.
+- [19:08.890] On these Iran talks, I mean,
+- [19:10.730] how much time is the President willing to give it
+- [19:13.250] before he is seriously maybe considering military action?
+- [19:16.440] Is he willing to give it that full two weeks?
+- [19:18.420] And has he given the Iranian officials a deadline on
+- [19:21.230] when he wants to see a deal?
+- [19:22.570] Karoline Leavitt: It's a fair question, Rachel,
+- [19:23.860] but I'm not going to set deadlines
+- [19:25.120] on behalf of the President of the United States from up here.
+- [19:27.000] The Press: And then just one more on the shutdown.
+- [19:29.080] Um, we're now in this partial shutdown over DHS funding.
+- [19:33.560] Has the President personally spoken
+- [19:35.080] to the Democratic leaders in Congress?
+- [19:36.880] Can we expect to see them at the White House
+- [19:38.680] to try to make a deal on this?
+- [19:40.020] Karoline Leavitt: Not to my knowledge,
+- [19:41.250] he hasn't had any direct conversation or correspondence
+- [19:44.070] with Democrat lawmakers recently.
+- [19:45.560] It doesn't mean he's not willing to.
+- [19:46.930] I'm just not aware of any conversations
+- [19:49.170] that have taken place. I do know the White House
+- [19:51.750] and the President's representatives have been
+- [19:54.370] in direct conversations with both Democrats and Republicans.
+- [19:57.390] But, of course, Democrats are the reason
+- [19:59.500] that the Department of Homeland Security
+- [20:01.250] is currently shut down.
+- [20:02.900] They have chosen to act against the American people
+- [20:06.290] for political reasons. And now we have FEMA workers,
+- [20:09.770] the men and women of the United States Coast Guard,
+- [20:12.140] men and women of TSA, who keep our airports moving,
+- [20:15.160] who will be working without paychecks
+- [20:17.730] for no good reason other than the Democrats
+- [20:20.000] wanting to pick a fight with Donald Trump.
+- [20:21.780] And the President thinks that is irresponsible and despicable.
+- [20:24.800] He wants the government to be open.
+- [20:26.180] We've been engaged in good faith negotiations with Democrats.
+- [20:30.560] Last night, they sent over a counterproposal
+- [20:32.980] that frankly was very unserious
+- [20:34.820] and we hope they get serious very soon
+- [20:36.310] because Americans are going to be impacted by this.
+- [20:38.760] Sure.
+- [20:40.020] The Press: Thanks, Karoline. President Trump has talked about
+- [20:42.690] a forthcoming executive order on voter ID.
+- [20:45.880] Is there more details you can provide about -- for that?
+- [20:48.900] And can you talk about any steps
+- [20:50.620] that you're taking to overcome court challenges
+- [20:52.930] that you've kind of faced in this area before on voting?
+- [20:54.940] Karoline Leavitt: Well, as the President said
+- [20:56.150] in that Truth Social post,
+- [20:57.380] he's discussing and exploring legal options
+- [21:00.230] for a potential executive order with respect to voter ID,
+- [21:03.430] but this is something he's made very clear
+- [21:05.320] he wants Congress to get done.
+- [21:07.520] The SAVE Act is a common sense piece of legislation
+- [21:11.080] that has now passed the House of Representatives
+- [21:13.880] to ensure that voter ID is a requirement
+- [21:16.480] in the United States of America.
+- [21:18.260] This is a common sense policy
+- [21:20.120] that nearly 90 percent of the country agrees with.
+- [21:23.170] You need an ID to go in and purchase alcohol.
+- [21:26.470] You need an ID to go to the library and check out a book.
+- [21:29.520] And so, the President thinks you should have an ID
+- [21:31.530] to vote in our nation's elections.
+- [21:33.390] And I know the vast majority of Americans agree
+- [21:34.900] with him on that,
+- [21:36.100] and he wants Congress to move and move quickly to get it done.
+- [21:38.860] The Press: Thank you so much. Can I ask on Cuba?
+- [21:40.320] Karoline Leavitt: Sure.
+- [21:41.520] The Press: On Cuba, you know,
+- [21:42.950] it's increasingly being described
+- [21:44.610] as a humanitarian crisis.
+- [21:47.220] What is a successful outcome for the US
+- [21:50.650] that the US wants to see in Cuba?
+- [21:54.260] Is there anything less than regime change
+- [21:56.160] that would be considered success?
+- [21:58.230] Karoline Leavitt: I think as Secretary Rubio has articulated,
+- [22:00.850] and the President himself, we obviously want to see
+- [22:03.990] flourishing and prosperous democracies all over the world,
+- [22:07.790] especially in our own hemisphere.
+- [22:10.480] I'm not dictating any actions the United States
+- [22:12.880] may take to get there,
+- [22:14.360] but I -- of course, that's in the United States best interest,
+- [22:17.010] to have Cuba be a truly free and prosperous democracy.
+- [22:20.670] Unfortunately, right now that is not the case.
+- [22:22.920] They are a regime that is falling.
+- [22:25.270] Their country is collapsin
+- [22:27.730] and that's why we believe it's in their best interest
+- [22:29.760] to make very dramatic changes very soon.
+- [22:32.390] And we'll see what they decide to do.
+- [22:34.010] Sure.
+- [22:35.220] The Press: Thank you so much.
+- [22:36.430] Following up on Gaza, this $5 billion,
+- [22:38.950] who exactly will be in charge of managing this -- this money?
+- [22:42.530] Would that be the President himself
+- [22:44.310] making the final decisions on how these funds are spent?
+- [22:47.500] Karoline Leavitt: It will be the Board of Peace,
+- [22:49.040] which the President is, of course, the chairman of.
+- [22:50.950] But all of the member parties, I believe,
+- [22:52.850] will have votes on the funding,
+- [22:54.160] and then of course there is that technocratic layer
+- [22:56.800] underneath the official Board of Peace
+- [22:58.880] with the member countries
+- [23:00.150] that will be making decisions as well.
+- [23:02.080] So, if you just go back and look at the first event
+- [23:04.700] that we had where we sort of unveiled
+- [23:06.650] the structure of the Board of Peace,
+- [23:08.810] that structure remains in place
+- [23:10.140] and they'll be overseeing the funds
+- [23:11.440] that will be announced tomorrow for their reconstruction
+- [23:13.390] and humanitarian efforts.
+- [23:14.610] Sure.
+- [23:15.880] The Press: Another question on that Board
+- [23:17.080] of Peace announcement.
+- [23:18.320] You mentioned there will be the announcement
+- [23:20.120] of who comprises that international stability force.
+- [23:22.970] How soon will that force be deployed?
+- [23:25.220] And have all of the regional partners,
+- [23:27.600] all of the regional countries signed off
+- [23:29.530] on the makeup of that force?
+- [23:31.420] Karoline Leavitt: I don't have a timeline for you today.
+- [23:32.870] But again, I'm sure you'll hear more about this tomorrow.
+- [23:35.120] So -- hope you'll join us at the event. Deanna?
+- [23:37.520] The Press: Thanks, Karoline. Two questions.
+- [23:38.810] Karoline Leavitt: Sure.
+- [23:40.060] The Press: First, the President has talked a lot
+- [23:41.340] about housing affordability,
+- [23:43.440] and several countries that are facing housing shortages,
+- [23:46.670] including Canada for example,
+- [23:48.770] have imposed a ban on non-citizens,
+- [23:52.140] like foreigners, from buying their houses.
+- [23:55.860] Do you know if that's a strategy
+- [23:57.100] that the President would be willing to deploy?
+- [23:59.440] Karoline Leavitt: Well, first of all,
+- [24:00.830] the President is obviously committed
+- [24:02.580] to deporting illegal aliens from our country
+- [24:05.700] and those who are not lawfully present in the United States,
+- [24:08.740] which he has done at a record pace,
+- [24:10.650] which has led to the falling of rents,
+- [24:12.550] as I pointed out in my opening remarks.
+- [24:14.790] Secondly, the President has recently announced
+- [24:17.690] that he is fighting for a ban on institutional investors
+- [24:21.700] and Wall Street billionaire corporations
+- [24:24.210] from buying up single family homes
+- [24:26.130] that should be lived in, in his opinion,
+- [24:28.240] by American families.
+- [24:29.640] We know this is going to have a remarkable impact
+- [24:32.620] on the housing market and on prices and supply
+- [24:34.850] and demand for the American consumer
+- [24:36.760] and the American family.
+- [24:38.070] And then thirdly, the President is also expediting permitting
+- [24:41.230] as fast as we possibly can to build more homes,
+- [24:44.440] to increase supply to obviously bring down the cost of --
+- [24:47.420] of -- of homeownership
+- [24:49.100] and purchasing homes for the American people.
+- [24:51.510] And then also, as I mentioned as well,
+- [24:53.030] we do see mortgage rates falling.
+- [24:54.490] So, all of this is --
+- [24:56.110] is combining to make housing more affordable in this country.
+- [24:58.950] There's still a lot more to do.
+- [25:00.580] The President is still digging his way out of the mess
+- [25:02.930] that was created by Joe Biden's administration
+- [25:06.210] in jacking up mortgage rates and jacking up housing costs.
+- [25:09.310] But we do see very positive trends in this direction,
+- [25:11.670] and the President wants the United States
+- [25:13.580] to be a nation of owners, not renters.
+- [25:16.900] He wants families to live in homes,
+- [25:18.540] not institutions and big corporations.
+- [25:20.140] Michael?
+- [25:21.360] The Press: On Ukraine, Karoline --
+- [25:22.560] secondly, on Ukraine -- Karoline Leavitt: Sure.
+- [25:23.790] The Press: Yesterday Zelenskyy said in an interview
+- [25:26.130] that he doesn't --
+- [25:27.410] he says that it's not fair that the President is saying
+- [25:30.610] that Ukraine has to make concessions,
+- [25:33.060] he's saying this publicly, and not Russia.
+- [25:35.940] Has the President seen these comments?
+- [25:37.700] And when the President says that Ukraine has to make concessions,
+- [25:41.110] is he referring to giving up Donbas?
+- [25:43.530] Karoline Leavitt: I think the President would respond to that
+- [25:45.260] by saying he does not think it's fair
+- [25:46.980] that thousands of Ukrainians are losing their lives,
+- [25:49.600] and Russians too, in this deadly war.
+- [25:52.180] And that's why the President and his team
+- [25:54.260] have committed a tremendous amount of time and energy
+- [25:57.080] in bringing this war --
+- [25:58.320] that is very far away from the United States of America.
+- [26:00.590] But nevertheless, this is a president of peace
+- [26:03.280] and so he's committed a tremendous amount of time
+- [26:05.270] and energy to bringing this war to an end.
+- [26:07.740] Just yesterday, there was another round of trilateral
+- [26:10.290] talks between the US, Russia and Ukraine.
+- [26:12.900] There was meaningful progress made.
+- [26:14.730] And both parties --
+- [26:16.020] both sides agreed to update their respective leaders
+- [26:18.440] and to continue to work towards a peace deal together.
+- [26:21.140] So, there will be another round of talks in the future.
+- [26:23.670] But I think the President views this entire situation
+- [26:26.610] as very unfair,
+- [26:28.070] not just for Russians and Ukrainians
+- [26:29.890] who have lost their lives,
+- [26:31.170] but also for the American people and the American taxpayer,
+- [26:34.390] who are footing the bill for this war effort
+- [26:36.030] before President Trump put a stop to it.
+- [26:38.020] And I would just remind everyone around the world
+- [26:41.380] that the United States is still selling weapons to NATO
+- [26:44.180] that are then being sent to Ukraine
+- [26:45.900] in their defense of their freedom and their borders.
+- [26:48.790] Michael?
+- [26:50.060] The Press: Karoline, Russia is reportedly joining Iran
+- [26:52.850] for joint naval exercises in the Gulf of Oman this week.
+- [26:56.590] Has the President issued any kind of warning to Russia
+- [26:59.450] or even China not to involve itself
+- [27:01.720] if the US decides to strike Iran?
+- [27:04.690] Karoline Leavitt: Not to my knowledge, no,
+- [27:05.970] or not that I would dictate from this podium.
+- [27:07.970] I wouldn't reveal the President's
+- [27:09.170] private conversations with world leaders
+- [27:11.260] with respect to that. Again, when it comes to Iran,
+- [27:14.240] the President has a decision to make and he will do that,
+- [27:17.270] and I'm not going to broadcast
+- [27:18.630] what that decision may be ahead of him.
+- [27:20.090] The Press: Karoline?
+- [27:21.320] President Barack Obama, Karoline,
+- [27:22.920] was recently asked if aliens are real.
+- [27:24.990] He says they're real but he hasn't seen them.
+- [27:27.350] The President's daughter in law, Lara Trump,
+- [27:30.250] told Miranda Devine of the New York Post
+- [27:31.980] that the President has a prepared speech on this issue
+- [27:34.760] that he prepares to deliver at the right time.
+- [27:37.280] Is that true? And does the Trump administration
+- [27:39.870] believe aliens are real?
+- [27:42.240] Karoline Leavitt: Well, a speech on aliens would be news to me.
+- [27:44.770] That sounds very exciting,
+- [27:46.050] though I'll have to check in with our speechwriting team.
+- [27:49.710] And that would be of great interest to me personally,
+- [27:51.490] I'm sure all of you in this room,
+- [27:52.830] and apparently former President Obama too.
+- [27:54.940] So, we'll keep you posted on that.
+- [27:57.490] Tyler?
+- [27:59.600] The Press: Thank you, Karoline.
+- [28:00.830] The White House has touted an unprecedented amount
+- [28:03.410] of cooperation with counties in Minneapolis
+- [28:05.840] after the negotiations with Tom Homan.
+- [28:08.850] Are those written or verbal deals with the sheriff?
+- [28:12.020] How many have agreed to cooperate
+- [28:13.450] on immigration enforcement who previously refused to do so?
+- [28:16.080] Karoline Leavitt: Yeah, the last time
+- [28:17.360] I spoke with Mr. Homan, which was just a few days ago,
+- [28:19.680] he assured us that nearly every single county
+- [28:22.590] in the state of Minnesota has agreed to notify ICE
+- [28:26.070] when they are releasing criminal illegal aliens from their jails.
+- [28:29.500] This is an unprecedented level of cooperation
+- [28:32.410] that we have not seen.
+- [28:33.870] It has led to not only cooperation
+- [28:36.230] to detain illegal aliens in Minnesota --
+- [28:39.200] which just this past week I have looked at the list,
+- [28:42.050] they've detained some very heinous people
+- [28:44.400] who none of you would want living in your communities --
+- [28:46.830] but it also led to a much more calm situation on the ground.
+- [28:50.170] We've also seen, and you've seen this
+- [28:51.820] with your own eyes play out,
+- [28:53.450] the local police and the state police have now
+- [28:55.670] cooperated in the arrests of left wing agitators
+- [28:59.040] and criminals who are unlawfully obstructing
+- [29:01.740] immigration enforcement and their efforts.
+- [29:03.660] So, this is a huge win.
+- [29:05.560] And again, the President sent Mr. Homan to Minnesota
+- [29:08.400] to do a job, and he has done it well.
+- [29:11.140] And I think the situation on the ground proves that.
+- [29:13.190] The Press: Karoline?
+- [29:14.430] Are those, like, written agreements that --
+- [29:15.870] they've been signed by various officials in the state?
+- [29:18.710] Karoline Leavitt: These are agreements that have been made
+- [29:20.130] by state and local officials and the federal government,
+- [29:23.000] and we are seeing that cooperation play
+- [29:24.870] out every single day. These counties are notifying ICE
+- [29:28.350] when they are releasing criminal illegals from their jail,
+- [29:30.620] and we do know that they are arresting left wing agitators
+- [29:33.860] who are unlawfully impeding law enforcement.
+- [29:36.210] There's video to show that -- show it yourself.
+- [29:39.160] You can view it with your own eyes.
+- [29:41.750] John?
+- [29:43.120] The Press: Thank you, Karoline.
+- [29:44.620] The -- you mentioned two things, DHS closed and the SAVE Act IDs.
+- [29:51.580] Both of these could get solved in 15 minutes
+- [29:54.480] if Senate Leader John Thune
+- [29:56.680] simply got rid of this phony 60 vote cloture rule
+- [30:00.710] and got 51 votes, and that would be the end of it.
+- [30:03.490] Because everyone in this room
+- [30:05.630] knows if the Democrats take over,
+- [30:08.470] they'll get rid of that rule in 90 minutes.
+- [30:10.520] They already tried it one time, and the two Democratic senators
+- [30:14.110] that stopped it are no longer there, Manchin and Sinema.
+- [30:18.430] President Trump is backing a lot of these senators
+- [30:22.000] for reelection,
+- [30:23.280] and yet they will not get rid of the 60 vote cloture rule
+- [30:27.420] which is holding everything up.
+- [30:28.940] What is the President's position on John Thune
+- [30:31.820] and the Senate finally getting rid of this
+- [30:34.870] so this legislation can get moved?
+- [30:37.440] Karoline Leavitt: Well, the President has
+- [30:38.640] a good relationship with Senate Majority Leader John Thune.
+- [30:42.520] They keep in very close contact
+- [30:44.590] and they work together all of the time.
+- [30:46.770] I hear your passion in your voice,
+- [30:48.590] and I know it's shared by many Americans across the country,
+- [30:51.600] including the President himself.
+- [30:53.450] He wants to see the SAVE Act voted,
+- [30:55.190] and he's expressed that both publicly to all of you,
+- [30:58.370] the American people,
+- [30:59.680] but also privately in his conversations
+- [31:02.430] with Senate Majority Leader Thune
+- [31:04.160] and many other members of Congress as well.
+- [31:06.770] Yes, Rob, go ahead. Good to see you.
+- [31:09.020] The Press: So JB Pritzker just recently signed the bill.
+- [31:12.340] The law went into effect in January
+- [31:14.720] and it's supposedly going to allocate about $2.5 billion
+- [31:18.850] to illegals to go to college on financial aid,
+- [31:22.440] um, in the state of Illinois.
+- [31:23.640] What is the White House's reaction to this?
+- [31:25.140] Illinois is already by 2027,
+- [31:26.880] they're supposed to have a $3 billion deficit.
+- [31:29.590] What's your reaction to that?
+- [31:30.820] Karoline Leavitt: Yeah.
+- [31:32.030] We'll have to take a look at that.
+- [31:33.250] I would say the President
+- [31:34.940] certainly thinks that Governor Pritzker
+- [31:36.780] is not doing a very good job of managing his state,
+- [31:39.600] as evidenced by not only the waste, fraud and abuse,
+- [31:42.700] but also the crime in the city of Chicago that unfortunately,
+- [31:46.060] Governor Pritzker has refused to pick up the phone call --
+- [31:49.810] phone and call the White House and ask for help on,
+- [31:52.480] which is something his residents want him to do,
+- [31:54.350] but he refuses to do for political reasons.
+- [31:56.700] As for the specific money, we'll take a look
+- [31:58.710] and get you an answer.
+- [31:59.930] You're welcome. John.
+- [32:01.860] The Press: Thanks a lot, Karoline. Two questions.
+- [32:03.770] One is about the President's trip to Georgia tomorrow,
+- [32:06.930] if you can provide some additional information
+- [32:09.410] about that, why Northwest Georgia was chosen
+- [32:12.740] for this particular trip, for instance?
+- [32:14.430] Karoline Leavitt: Sure.
+- [32:15.640] Well, Georgia is obviously a very important state
+- [32:17.970] to the President and to the Republican Party.
+- [32:20.760] And the President loves the people of Georgia.
+- [32:22.530] He'll be touring, like I said, a steel facility
+- [32:25.880] and then he'll also be stopping by another local business.
+- [32:28.850] And he will be giving remarks on affordability,
+- [32:31.320] on the economy, on all of the great economic news
+- [32:33.990] that I just shared with you earlier.
+- [32:35.410] He'll be meeting and greeting with everyday Americans
+- [32:38.220] and that's what the President loves to do,
+- [32:39.870] to get out across the country.
+- [32:41.520] And he's spoken about his intention
+- [32:43.230] to go across the country a lot more
+- [32:45.980] and obviously tomorrow's trip is evidence of that.
+- [32:48.380] The Press: And secondly, last week, as you know,
+- [32:50.910] big event that took place in the Roosevelt Room,
+- [32:53.580] the President announcing that the EPA has repealed
+- [32:57.180] these federal limits on emissions for cars,
+- [33:00.020] trucks and power plants.
+- [33:01.760] And in the President's presentation,
+- [33:03.800] he mentioned that American families will save $2,500
+- [33:08.230] for a new car or truck.
+- [33:10.490] Where is the promise coming from automakers
+- [33:13.140] that they're going to pass along their savings
+- [33:16.310] to those families all across the country?
+- [33:18.550] Karoline Leavitt: It's a great question, John.
+- [33:19.840] That was an economic analysis
+- [33:21.300] that was provided to the President
+- [33:23.130] and I'd be happy to provide that to you,
+- [33:25.540] so you can take a look yourself. But I'm glad you brought up
+- [33:28.450] the President's announcement last week
+- [33:29.910] because this is one of the largest deregulatory actions
+- [33:33.350] ever taken in the United States of America.
+- [33:36.150] And overall, it's going to save our country $1.3 trillion
+- [33:41.460] in regulatory -- regulatory burdens
+- [33:44.340] that have really done nothing for our country,
+- [33:46.740] nothing for our environment, nothing for our economy.
+- [33:49.610] In fact, this announcement received widespread
+- [33:52.420] and bipartisan praise.
+- [33:53.880] I think I recall seeing the editorial board
+- [33:56.330] of the Washington Post, of all places,
+- [33:58.710] even commending the President and Administrator Zeldin
+- [34:01.400] for this historic action last week.
+- [34:03.020] So there's no doubt it is going to save
+- [34:05.040] the American consumer money and I'd be happy to provide
+- [34:07.590] that specific economic analysis to you.
+- [34:10.620] Sure, in the middle. Go ahead. Yes.
+- [34:12.410] The Press: Thank you.
+- [34:13.640] Governor Moore in Maryland signed a bill that is ending
+- [34:16.900] the law enforcement cooperation with ICE.
+- [34:20.430] And by doing that, a lot of local sheriffs are not happy.
+- [34:23.100] And in fact, they met today in Annapolis
+- [34:24.880] to come up with a legal action.
+- [34:26.980] What is the message to the White House to all sheriffs
+- [34:29.130] and to the residents of Maryland?
+- [34:30.430] Karoline Leavitt: Well, first of all,
+- [34:31.670] it's another despicable action by Governor Wes Moore.
+- [34:34.850] Why would you prevent your state and local law enforcement
+- [34:37.790] from cooperating with federal law enforcement?
+- [34:40.210] If you just ask them -- to your point,
+- [34:41.900] if you ask sheriff across the country,
+- [34:44.320] if they want to have that level of cooperation and coordination
+- [34:47.510] with the federal government, of course they do.
+- [34:49.670] It makes their jobs easier.
+- [34:51.040] It keeps them out of hostile and dangerous environments.
+- [34:54.300] It allows them to detain illegal alien criminals
+- [34:57.070] who have committed heinous crimes in our country with --
+- [35:00.880] with, um, the most safe circumstances possible.
+- [35:05.230] So the President, of course,
+- [35:06.610] continues to always stand on the side of law enforcement
+- [35:09.370] and this is another just horrible
+- [35:11.650] and frankly, political action taken by Governor Wes Moore.
+- [35:15.070] And unfortunately, the people of his state
+- [35:17.120] are going to reap the consequences of it.
+- [35:19.620] Sure.
+- [35:20.980] The Press: Thank you, Karoline.
+- [35:22.320] President Trump just said on Truth Social
+- [35:24.200] that it would be a big mistake for the UK
+- [35:26.180] to hand over control of Chagos Islands to Mauritius.
+- [35:29.850] But the State Department earlier this week
+- [35:31.390] has said the US does support that handover.
+- [35:33.440] So does this post now suggest
+- [35:35.360] that the US does not or that Trump --
+- [35:37.560] President Trump had changed his mind on this?
+- [35:39.350] Karoline Leavitt: The post should be taken
+- [35:40.580] as the policy of the Trump administration.
+- [35:42.650] It's coming straight from the horse's mouth.
+- [35:44.430] When you see it on Truth Social,
+- [35:45.760] you know it's directly from President Trump.
+- [35:47.640] That's the beauty of this president in his transparency
+- [35:50.170] and relaying this administration's policies
+- [35:53.300] to all of you and to the rest of the world.
+- [35:56.180] Kerry. Go ahead.
+- [35:57.820] The Press: Karoline, there's been a series of walkouts
+- [36:00.610] from public school students that have been sort of provoked
+- [36:05.000] by a number of public school administrators.
+- [36:09.770] What are your thoughts on this?
+- [36:10.990] What's the administration's thoughts on this?
+- [36:12.760] Will they be taking any actions on these walkouts against ICE?
+- [36:17.730] Karoline Leavitt: Look, I think obviously the President
+- [36:19.720] and the administration support the First Amendment rights
+- [36:22.070] of all American citizens.
+- [36:23.960] And if they're peacefully protesting,
+- [36:26.760] then that's their constitutional obligation
+- [36:29.150] and right and responsibility to do so.
+- [36:31.280] Of course, the administration also wants to see
+- [36:33.250] American school children in school,
+- [36:35.440] learning and educating.
+- [36:37.080] And I think it does speak to the left wing bias
+- [36:40.110] that is unfortunately very present
+- [36:42.640] in our nation's public school system.
+- [36:44.180] And it's something that Secretary McMahon
+- [36:46.590] has been working very hard to root
+- [36:48.820] out of our public school system
+- [36:50.420] by ensuring that local governance and local control
+- [36:54.600] takes place over our nation's public schools,
+- [36:56.950] and that parents and educators closest to students
+- [37:00.320] have a greater say over curriculum
+- [37:02.260] and academia in our country.
+- [37:04.650] Take a couple more. Go ahead.
+- [37:05.900] The Press: Thank you, Karoline.
+- [37:07.110] The Vatican announced earlier today
+- [37:08.830] that they would not be joining the Board of Peace Initiatives
+- [37:11.670] over concerns that it could potentially compete
+- [37:14.450] with the United Nations over handling crisis conflicts.
+- [37:18.020] What's the White House's response to that?
+- [37:20.110] Karoline Leavitt: Yeah. Look, we saw that.
+- [37:21.780] I think it's deeply unfortunate.
+- [37:23.870] I don't think that peace should be partisan
+- [37:26.130] or political or controversial.
+- [37:28.860] And of course, the administration wants all those
+- [37:31.610] who were invited to join the Board of Peace to join,
+- [37:34.670] because again, the Board of Peace
+- [37:35.960] is overseeing the reconstruction of a territory
+- [37:38.420] that has been plagued with violence,
+- [37:40.690] with bloodshed, with poverty for far too long.
+- [37:44.010] And this president has a very bold and ambitious plan
+- [37:46.860] and vision to rebuild and reconstruct Gaza,
+- [37:49.150] which is well underway because of the Board of Peace.
+- [37:52.280] This is a -- a legitimate organization
+- [37:55.210] where there are tens of --
+- [37:57.220] of member countries from around the world
+- [38:00.160] and we think that's an unfortunate decision.
+- [38:03.530] In the back.
+- [38:04.910] Sure. I'll go to both of you. Sure.
+- [38:08.810] Go ahead and then, Jake, you can go.
+- [38:10.650] The Press: Karoline, can you tell me,
+- [38:12.170] is there an update regarding the tariff rebate checks
+- [38:15.240] that the White House has promised?
+- [38:17.120] Karoline Leavitt: I don't have an update for you on timeline,
+- [38:18.890] but I know that it's something
+- [38:20.160] that the President and his economic team
+- [38:22.030] continue to very seriously discuss.
+- [38:24.740] The Press: Thank you, Karoline. I've got two questions.
+- [38:27.260] First, does the President see some sort of religious
+- [38:30.590] or prophetic component
+- [38:32.250] to the unfolding developments in the Middle East?
+- [38:37.160] Karoline Leavitt: I haven't spoken to him
+- [38:38.490] about that particular perspective,
+- [38:41.110] to be honest with you.
+- [38:42.340] But, of course, the President wants peace
+- [38:44.270] for all people of all faiths all around the world.
+- [38:46.580] And that's part of his push to create peace in the Middle East,
+- [38:50.470] which he has done successfully.
+- [38:52.160] The Press: And my second question is,
+- [38:53.770] as his popularity rises around the world
+- [38:57.690] and especially in regions where he's invested so much effort
+- [39:00.310] in promoting peace and ending wars,
+- [39:03.010] do you think we might be watching the emergence
+- [39:05.290] of a global MAGA movement?
+- [39:07.340] Is this something that the President has discussed at all?
+- [39:10.580] Karoline Leavitt: Well, I don't know, Jake,
+- [39:11.920] but I sure hope so.
+- [39:14.560] Take a couple more. Go ahead. Sure.
+- [39:17.300] The Press: I wanted to ask you about Iran.
+- [39:19.020] As the US military builds up around Iran,
+- [39:22.410] is President Trump coordinating war plans with Israel
+- [39:25.280] so that if he does decide to strike,
+- [39:26.880] that Israel will be a part of those strikes?
+- [39:28.980] Karoline Leavitt: Look, I don't have any specifics
+- [39:30.440] on the President's recent conversations with Israel.
+- [39:32.480] As you know, Prime Minister Netanyahu
+- [39:33.940] was just here at the White House last week or the week before.
+- [39:37.330] But again, with respect to Iran,
+- [39:38.750] there was some progress made yesterday.
+- [39:40.340] There are still a lot of details to discuss
+- [39:42.790] and we'll continue to see how this plays out.
+- [39:45.190] You know, the United States government, of course,
+- [39:47.240] is always in close communication and correspondence
+- [39:49.510] with the State of Israel and that starts right at the top
+- [39:51.990] with the President and Prime Minister Netanyahu themselves.
+- [39:55.090] One more. Go ahead.
+- [39:56.480] The Press: Last week, we saw the underlying affidavit
+- [39:58.620] for the search warrant that was executed in Fulton County
+- [40:01.400] and there was not any mention in that document
+- [40:04.040] about foreign election interference
+- [40:06.460] in the 2020 election. I'm wondering if DNI Gabbard
+- [40:09.260] has uncovered that in Georgia or in Puerto Rico,
+- [40:12.830] where we know her team was sent as well?
+- [40:14.680] Karoline Leavitt: I don't have any updates for you
+- [40:16.010] on that today.
+- [40:17.220] I would refer you to the director's office herself.
+- [40:19.360] Sure.
+- [40:20.590] The Press: Karoline, two questions, one on the --
+- [40:22.190] on the President's schedule today,
+- [40:23.460] it says he has signing time. What is he signing today?
+- [40:25.880] Are we expecting executive orders or actions?
+- [40:28.030] That's the first question.
+- [40:29.290] And then second, the Wall Street Journal is reporting
+- [40:31.970] that a US arms sale package for Taiwan is in limbo.
+- [40:35.700] Can you just confirm this reporting slash offer
+- [40:37.760] any additional comment?
+- [40:38.980] And how concerned is the administration that if --
+- [40:41.840] if an arms deal with Taiwan went through,
+- [40:43.830] that this could disrupt the China-US trade truce?
+- [40:46.430] Karoline Leavitt: Sure.
+- [40:47.660] Well, I haven't read the full Wall Street Journal report.
+- [40:49.940] I will just say with respect to an arms sale to Taiwan,
+- [40:52.350] I don't have any announcements or updates
+- [40:54.100] on that for you today. Uh, and to your first question
+- [40:57.080] about what the President will be signing,
+- [40:58.450] he will be signing an executive order,
+- [41:00.490] which you will all be hearing about later this afternoon
+- [41:02.720] and you will see him in one hour
+- [41:04.600] at the Black History Month reception.
+- [41:06.520] We'll see you there. Thank you.

@@ -1,0 +1,943 @@
+<!-- source: https://www.youtube.com/watch?v=OXo-XBvMAUQ -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: OXo-XBvMAUQ -->
+<!-- date_published: 2025-01-25T21:26:21+00:00 -->
+<!-- date_accessed: 2026-06-02T02:54:37.689558+00:00 -->
+
+# Transcript: President Trump Gives Speech on No Tax on Tips Policy in Las Vegas
+
+- [00:40.940] The President: Ah,
+- [02:35.080] hello, Las Vegas.
+- [02:36.900] Hello, Las Vegas.
+- [02:38.210] Hello, Nevada.
+- [02:40.500] (Applause.) Thank you. Thank you.
+- [02:47.180] Audience: Trump! Trump! Trump!
+- [02:50.890] The President: Well, we won. We won. We won.
+- [02:55.000] (Applause.)
+- [02:56.270] And it’s great to be back in this beautiful city
+- [02:58.560] to celebrate the historic first week in the White House.
+- [03:02.320] That was definitely a start. (Applause.)
+- [03:06.930] And I had a lot of help in winning.
+- [03:08.640] Joe Lombardo, your governor, is here someplace.
+- [03:11.240] Where’s Joe? (Applause.)
+- [03:12.500] Thank you, Joe. You’re looking good, Joe.
+- [03:15.850] Thank you very much. What a group.
+- [03:17.690] Look at who you have next you. How can you fail with that guy?
+- [03:20.930] (Applause.)
+- [03:25.840] Also, Lieutenant Governor Stavros.
+- [03:28.450] Anthony Stavros, thank you very much.
+- [03:30.320] (Applause.)
+- [03:31.660] Thank you very much. Where are you?
+- [03:33.010] There you are, Stavros. You’re very good.
+- [03:35.490] Is he doing a good job, Joe? I think so, huh?
+- [03:37.640] He’s all right, huh? (Laughter.)
+- [03:40.210] Nevada GOP Chair Michael McDonald, he --
+- [03:44.190] (applause) -- he did something which not a lot of people
+- [03:47.580] have been able to do, but I think Republicans
+- [03:50.100] are going to start winning this state.
+- [03:51.650] You know, typically, they don’t necessarily do so good.
+- [03:54.980] We did really well.
+- [03:56.930] (Applause.) We won in a landslide.
+- [03:58.700] That’s really why I’m here, I must be honest with you.
+- [04:01.620] Republican National Committeewoman Sigal Chattah.
+- [04:05.260] (Applause.)
+- [04:06.560] Sigal, thank you, wherever you may be.
+- [04:10.360] Hi, Sigal. Thank you very much.
+- [04:12.520] Republican National Committeeman Jim DeGraffenreid.
+- [04:16.810] (Applause.)
+- [04:18.020] That’s a hell of a beautiful name.
+- [04:19.970] But I know the name so long, it’s easy to say.
+- [04:22.710] One of the greatest people, I’ll tell you --
+- [04:24.760] a man who’s done so damn well.
+- [04:27.610] I don’t know what it is with him. He’s just a legend.
+- [04:29.820] He’s one person -- you know, we can all sort of be replaced,
+- [04:32.960] although we don’t like to think that -- maybe it’s not true --
+- [04:36.630] but this is a guy that can’t be replaced.
+- [04:38.740] There’s nobody like him: Dana White.
+- [04:40.810] (Applause.) Where’s Dana White?
+- [04:42.990] Where is Dana White? Where the hell is he? UFC.
+- [04:49.610] Audience Member: Nelk Boys!
+- [04:51.460] The President: He’s great. Are the Nelk Boys here?
+- [04:53.410] Oh, yeah. There they are, the Nelk Boys. Right there.
+- [04:56.780] (Applause.) (Laughs.)
+- [04:58.330] And Rick Harrison.
+- [05:00.150] Rick, thank you very much for being here.
+- [05:02.350] (Applause.) You’re around here someplace with Dana.
+- [05:05.330] Mr. Phil Ruffin; his wife, Oleksandra;
+- [05:08.250] and their two beautiful children, Richard and Malena.
+- [05:11.220] (Applause.)
+- [05:12.440] Phil? Where’s Ruffin?
+- [05:15.960] Where is Phil Ruffin? He’s right here.
+- [05:17.780] Say, he’s some legend, I’ll tell you.
+- [05:19.920] He’s a legend in Las Vegas and beyond.
+- [05:22.170] Phil. He’s here. He’ll be coming out.
+- [05:25.610] Today, we talk about how we’re going to end
+- [05:28.180] the economic suffering and stagnation
+- [05:31.080] and disaster of the past four years
+- [05:32.890] and create the four greatest years
+- [05:35.190] in the history of our country. That’s what’s going to happen.
+- [05:38.010] (Applause.) That’s what’s going to happen.
+- [05:42.920] And as I said in my Inaugural Address
+- [05:45.730] which, by the way, it got the highest rating
+- [05:48.590] in the history of Fox. (Applause.)
+- [05:51.150] Can you believe that? That’s nice --
+- [05:55.800] “the golden age of America begins right now.” (Applause.)
+- [06:00.020] But I have to be honest with you,
+- [06:01.390] I’m really here for a different reason.
+- [06:03.080] I’m here to say thank you. (Applause.)
+- [06:04.440] I went to North Carolina yesterday,
+- [06:07.530] and then I flew to see just an unbelievable problem in --
+- [06:13.210] just a mess in Los Angeles, right?
+- [06:16.850] And I said, “You know what I ought to do?
+- [06:18.550] I want to come to a state known as ‘Nevada.’”
+- [06:22.450] Has anyone ever heard of it? (Applause.)
+- [06:26.250] And don’t ever mispronounce the name.
+- [06:27.990] You’re not allowed to do that, Chair.
+- [06:29.290] You mispronounce the name; you’re going have a problem.
+- [06:32.140] (Laughter.)
+- [06:33.790] You ever see somebody when they say it’s “Nev-ah-da”?
+- [06:36.450] Audience: Booo --
+- [06:37.690] The President: “Nev-ah-da”?
+- [06:39.740] No, they’re in deep -- they’re in deep trouble.
+- [06:42.450] I want to come to Nevada to pay my respects,
+- [06:48.490] because this is the only Republican win
+- [06:51.270] of this state in decades,
+- [06:52.740] and it was a very big landslide, so --
+- [06:55.230] (applause).
+- [06:58.010] But I think Republicans are going to win a lot now.
+- [07:00.310] But it was a big -- we had a big win,
+- [07:02.710] and it was an early win.
+- [07:03.950] And that was a bad signal for the Democrats;
+- [07:06.550] they heard that we were leading so big here.
+- [07:09.160] And Joe helped us so much, and a lot of people in this room
+- [07:13.980] helped us a lot. Special group. Special group.
+- [07:17.300] And so, I said, “You know what I’ll do?
+- [07:19.370] We’re going to fly around it.”
+- [07:21.340] And I said, “Let’s fly right over it.
+- [07:22.740] Let’s land, and I’ll do something.
+- [07:24.240] And I’ll just say it.” But I want to say it,
+- [07:25.670] and I’m almost saying it right here for the media.
+- [07:28.000] I just came here because I wanted to thank
+- [07:30.440] the people of Nevada for giving us such a big win.
+- [07:35.020] (Applause.)
+- [07:44.790] Audience: USA! USA! USA!
+- [07:46.780] The President: Right.
+- [07:48.930] Audience: USA! USA! USA!
+- [07:53.790] The President: A lot of great friends.
+- [07:54.990] I better not introduce them all, I’ll be here all day.
+- [07:58.180] Under our leadership, we’re going to defeat inflation,
+- [08:00.910] bring down prices, we’re going to raise those wages.
+- [08:04.130] They’re going to go up. (Applause.)
+- [08:05.710] They’re going to go up. Put more money in your pocket,
+- [08:09.460] secure our borders, restore law and order to our cities,
+- [08:13.100] and we’re going to make America great again.
+- [08:15.450] (Applause.)
+- [08:16.670] And for four long years,
+- [08:20.460] the last administration waged war
+- [08:22.880] on the American middle class and everybody else.
+- [08:25.100] They had a lot of wars. We had no wars when I left.
+- [08:27.210] You know, we defeated ISIS, and we stayed out.
+- [08:31.010] Nobody wanted to mess with us. They had a lot of wars.
+- [08:33.340] We’re still -- we’re trying to put them out.
+- [08:36.100] We’ll get them put out.
+- [08:37.360] Don’t worry, we’ll get them put out.
+- [08:39.270] We were -- we were headed to World War III.
+- [08:41.140] I’m telling you; we would have had problems
+- [08:43.200] like you wouldn’t believe.
+- [08:44.440] They shut down American energy;
+- [08:46.020] buried you in crippling regulation;
+- [08:48.890] imposed hidden taxes;
+- [08:50.420] and spent trillions and trillions of dollars
+- [08:52.740] on waste, corruption, and radical left lunacy.
+- [08:55.920] These were lunatics.
+- [08:57.720] The result was the most brutal inflation in a half a century --
+- [09:01.740] perhaps ever in this country -- I think ever --
+- [09:05.120] and soaring prices for food, groceries,
+- [09:07.400] and other household goods.
+- [09:09.470] The people of Nevada are now paying nearly $1,200 per month
+- [09:14.290] more to make ends meet since I left office.
+- [09:18.250] Think of that: $1,200, at least.
+- [09:22.300] But since I became the 47th president at noon on Monday,
+- [09:25.890] I’ve been moving with urgency and historic speed --
+- [09:29.150] (applause) -- to fix every single calamity
+- [09:32.430] of the Biden administration that they’ve created.
+- [09:35.800] And this week alone, I took nearly 350 executive actions
+- [09:40.140] to reverse -- (applause)
+- [09:43.620] -- the horrible failures and betrayals
+- [09:45.680] that we inherited from a group of people
+- [09:47.580] that didn’t know what the hell they were doing.
+- [09:49.420] (Laughter.) What they’ve done to the --
+- [09:50.890] what they’ve done to this country,
+- [09:52.170] especially the open borders, where they have --
+- [09:55.510] think of it -- 21 million people came in.
+- [09:57.890] Many of them are criminals, murderers.
+- [10:01.220] Well, we’re getting them out. You see it.
+- [10:03.130] You see it yesterday -- first day.
+- [10:06.460] (Applause.)
+- [10:08.030] Our message could not be clearer: America’s decline
+- [10:09.410] is over. American decline is over.
+- [10:11.350] We’re laughed at all over the world.
+- [10:12.850] Now we’re not laughed at anymore, I’ll tell you.
+- [10:15.780] What the world witnessed this week is nothing less
+- [10:18.430] than a revolution of wealth creation
+- [10:20.750] for everyone and also common sense.
+- [10:22.910] It’s about common sense. It really is.
+- [10:25.270] We’re the party of common sense.
+- [10:26.600] (Applause.)
+- [10:27.830] On day one, I directed every member of my Cabinet to --
+- [10:31.280] and, by the way, Pete Hegseth got approved.
+- [10:34.550] (Applause.)
+- [10:39.490] And Kristi Noem just got approved.
+- [10:41.330] Governor, she’s going it --
+- [10:42.880] (applause). She’s tough. She’s a tough one.
+- [10:46.880] She’s a tough one, and she’s going to do a great job.
+- [10:49.910] On day one, I directed every member of my Cabinet to marshal
+- [10:53.800] all powers at their disposal to defeat inflation
+- [10:56.600] and bring down the cost of daily life.
+- [10:58.310] We want to bring prices down.
+- [11:00.450] Too high. They went way up. They didn’t come down.
+- [11:03.860] I imposed a federal hiring freeze,
+- [11:06.030] a federal regulation freeze, a foreign aid freeze.
+- [11:09.280] Oh, that’s a nice one. (Applause.)
+- [11:12.110] And I created the new Department of Government Efficiency.
+- [11:15.700] And we’re going to have a lot of good people --
+- [11:17.520] Elon. We’re going to get Elon Musk
+- [11:19.230] to get involved in that a little bit.
+- [11:21.520] (Applause.) He already is. People like him.
+- [11:24.740] I terminated the ridiculous and incredibly wasteful
+- [11:27.660] Green New Scam.
+- [11:29.170] (Applause.)
+- [11:33.830] Wasn’t the environment supposed to eat us up, like, in 12 years?
+- [11:37.820] But that was, like, 13 years ago.
+- [11:40.120] What happened? We’re still here. We’re still here.
+- [11:43.570] Remember, “We have 12 years to live.”
+- [11:45.230] Remember that?
+- [11:46.850] Done by somebody that never even took a course
+- [11:49.110] on the environment.
+- [11:51.120] AOC plus three. Do you remember those three?
+- [11:54.540] They were telling us about the environment.
+- [11:56.290] AOC plus three.
+- [11:58.380] This action alone will save hundreds of billions of dollars
+- [12:01.500] of American taxpayers’ money.
+- [12:04.010] I withdrew from the one-sided Paris Climate Accord.
+- [12:07.660] (Applause.)
+- [12:09.990] And I canceled the insane
+- [12:11.470] and costly electric vehicle mandate --
+- [12:15.160] (applause)
+- [12:17.470] -- keeping my sacred pledge to America’s autoworkers.
+- [12:20.520] Boy, did we get a big vote with the autoworkers,
+- [12:22.640] I’ll tell you -- and the Teamsters.
+- [12:23.940] Any Teamster in the room? (Applause.)
+- [12:25.740] We got a tremendous vote from the Teamsters.
+- [12:28.610] Thank you. (Laughs.)
+- [12:29.900] Pointing like -- one -- one guy, all there is.
+- [12:32.260] (Laughter.)
+- [12:33.640] But they voted for us in the millions.
+- [12:36.680] We had a lot of Teamsters voting for us.
+- [12:38.820] I withdrew from the World Health Organization --
+- [12:41.880] (applause)
+- [12:45.750] -- where we paid $500 million a year
+- [12:49.610] and China paid $39 million a year,
+- [12:52.060] despite a much larger population.
+- [12:55.380] Think of that: China is paying $39 million.
+- [12:57.660] They have 1.4 billion people. We pay $500 million.
+- [13:00.800] We have -- nobody knows what the hell we have.
+- [13:03.240] Does anyone know? (Laughter.)
+- [13:04.640] We have so many people pouring in, we have no idea.
+- [13:08.950] We go up, but we’re going down a little bit now.
+- [13:10.910] You don’t mind that, do you?
+- [13:13.500] (Applause.) Going to take some bad ones out.
+- [13:15.670] I would do it four years ago,
+- [13:17.100] but Biden immediately went back for even more money.
+- [13:20.970] I mean, he went back and --
+- [13:22.660] you know, they offered me at $39 million.
+- [13:24.970] They said, “We’ll let you back in at $39.
+- [13:26.740] So, we’re going to reduce it from $500 to $39.”
+- [13:29.260] I turned them down, because it became so popular.
+- [13:32.600] I didn’t know if it would be well received, even at $39.
+- [13:36.340] But maybe we would consider doing it again.
+- [13:38.210] I don’t know. Maybe we would.
+- [13:39.530] They have to clean it up a little bit.
+- [13:40.860] But China pays $39 million for 1.4 billion,
+- [13:44.890] and we’re paying $500 million for 325 million.
+- [13:48.790] I don’t know what the hell is wrong with these people.
+- [13:52.150] (Laughter.)
+- [13:54.120] And then when Biden went back in --
+- [13:55.640] you know, they immediately went back in --
+- [13:57.770] they paid more than we were paying in the first place.
+- [14:01.530] They paid more than the $500 million.
+- [14:03.460] So, they knew they could have had it for $39.
+- [14:05.840] They paid more.
+- [14:07.110] You wouldn’t do that, Joe, right?
+- [14:08.930] No, think of it. They know they have a deal at $39,
+- [14:12.150] so they went back in at $525 million.
+- [14:15.210] What the hell? Man, oh, man.
+- [14:18.350] It just infuriates you, doesn’t it?
+- [14:21.860] I declared a national energy emergency
+- [14:25.130] to unlock the liquid gold under our feet --
+- [14:27.480] (applause) -- and pave the way for rapid approvals
+- [14:30.190] of the new energy infrastructure.
+- [14:32.190] (Applause.)
+- [14:33.570] The United States has the largest amount of oil
+- [14:36.070] and gas of any country on Earth.
+- [14:37.910] We may be a very substantially enlarged country
+- [14:42.130] in the not too distant– isn’t it nice to see?
+- [14:45.460] You know, for years, for decades,
+- [14:47.410] we’re the same size to the square foot --
+- [14:50.970] probably got smaller, actually --
+- [14:53.010] but we might be an enlarged country pretty soon.
+- [14:57.060] And one of the things we’re going to be doing
+- [14:59.030] is drill, baby --
+- [15:01.590] Audience: Drill! The President: -- drill.
+- [15:02.790] (Applause.) Because that’s going to bring everything down.
+- [15:05.140] It’s going to bring everything down.
+- [15:08.360] My administration has also begun the largest
+- [15:10.930] deregulation campaign in the history of our country,
+- [15:14.250] far exceeding I had the record four year --
+- [15:17.250] we ran -- we had a great economy --
+- [15:19.060] the greatest economy that we’ve ever had --
+- [15:21.950] four years ago. But this is going to be better.
+- [15:23.810] You watch, this will be better even than the first term.
+- [15:27.580] (Applause.)
+- [15:28.800] And the reason I got elected was because of the first term.
+- [15:31.680] You know, somebody said, “What was the reason you got elected?
+- [15:34.040] I mean, you won by so much.”
+- [15:35.330] I said, “My first term.” (Applause.)
+- [15:38.170] You know. It’s all I did.
+- [15:39.780] I just said, “Well, take a look at the numbers.
+- [15:42.120] Take a look at the numbers.”
+- [15:43.480] In total, the Biden administration imposed $50,000
+- [15:47.280] in additional regulation costs on the average American.
+- [15:50.820] And think of this:
+- [15:52.150] The average American was paying much more than $50,000.
+- [15:57.370] And, you know, just think of it.
+- [15:59.350] Nobody can even believe the numbers.
+- [16:00.910] I promise to eliminate 10 old regulations
+- [16:04.150] for every new regulation.
+- [16:05.670] So, if we put in a regulation -- (applause)
+- [16:08.020] -- we have to get rid of 10. That’s what I did.
+- [16:10.030] I did it -- I did it one in seven.
+- [16:12.570] We’re going to do 1 in 10 this time,
+- [16:15.420] which will soon put many thousands of dollars
+- [16:17.490] back into your pockets,
+- [16:18.790] in the pockets of American families.
+- [16:21.020] As a result of the reforms,
+- [16:22.700] we’ve just begun to implement economic confidence,
+- [16:25.490] and it’s soaring.
+- [16:26.720] So, this week, Oracle, OpenAI, and SoftBank announced Stargate,
+- [16:32.290] a $500 billion investment in AI infrastructure --
+- [16:35.840] which is going to be very big for Nevada,
+- [16:38.020] I have to tell you, the largest in history,
+- [16:40.630] and which will create an estimated 100,000 American jobs.
+- [16:43.190] (Applause.)
+- [16:44.390] Saudi Arabia just said
+- [16:46.210] that they’re going to invest at least $600 billion.
+- [16:48.770] This is because of the election, by the way.
+- [16:51.360] (Applause.)
+- [16:53.590] And I believe they’ll make it a trillion.
+- [16:55.240] I’m going to ask them to make it $1 trillion.
+- [16:57.000] What the hell, the money means nothing to them.
+- [16:59.610] You know, where they made their money?
+- [17:01.150] From liquid gold, right? They got a lot of liquid gold.
+- [17:04.530] We have more. We have more than Saudi Arabia.
+- [17:07.710] They’ve got a lot. We’ve got more.
+- [17:09.020] We’ve got more than anybody.
+- [17:10.410] We just don’t use it because of the environment.
+- [17:13.240] These people are crazy. (Laughter.)
+- [17:16.310] And many other companies, likewise, are looking to invest,
+- [17:19.270] but I don’t have enough time to do that,
+- [17:21.690] and we have a lot of news conferences.
+- [17:24.420] Everybody wants to have a news conference.
+- [17:26.120] You know, they’re calling up by the hundreds,
+- [17:27.750] “We want to have a news conference.
+- [17:29.220] We’re going to invest $12.” (Laughter.)
+- [17:31.240] I said, “No, I don’t do that.” I said,
+- [17:33.350] “It’s got to be $1 billion or more for a news
+- [17:35.270] conference.” (Laughter and applause.)
+- [17:36.780] It’s $1 billion or more.
+- [17:40.290] Just two days ago, because of our tariff plans,
+- [17:43.730] Stellantis announced --
+- [17:44.940] that’s a very good automobile company --
+- [17:47.780] the revival of its Belvidere, Illinois,
+- [17:50.250] plant, saving 1,500 American auto jobs
+- [17:54.550] that were previously headed to Canada --
+- [17:56.420] (applause) -- along with major investments
+- [17:58.130] to expand American auto production in Detroit, Michigan;
+- [18:01.020] Toledo, Ohio; and Kokomo, Indiana. Good place.
+- [18:06.200] All of these investments are happening
+- [18:07.970] only because of our historic victory.
+- [18:10.220] And if we didn’t win, it’d be just the opposite.
+- [18:13.420] They’re pulling out. They were pulling out.
+- [18:15.540] They were really pulling out.
+- [18:17.460] So, they would be withdrawing money.
+- [18:19.290] Our country was on the verge of some of the very bad things,
+- [18:21.960] and bad things were happening.
+- [18:23.930] And now there’s light, not only over America --
+- [18:25.960] I’ve heard it from even our enemies.
+- [18:27.500] They call up and they say, “Sir, we hate you.
+- [18:30.130] We do hate you,
+- [18:31.520] but there’s light over the world right now.” (Laughter.)
+- [18:33.930] They hate me. Some of them hate me.
+- [18:35.890] If they liked me, you got a problem, right?
+- [18:38.830] They liked Sleepy Joe. What’s not to like?
+- [18:41.560] Audience: Booo --
+- [18:42.840] The President: You know, they’d call up -- it’s funny.
+- [18:44.640] I was told today by one of the big leaders of the world --
+- [18:48.190] would call for a telephone call with the president
+- [18:50.420] of the United States a year ago,
+- [18:53.450] and they’d say, “We’d like to speak with….”
+- [18:55.730] “Who is this?”
+- [18:56.970] “It’s the head of Germany, the head of --
+- [19:00.460] it’s” -- name it -- “the head of France.”
+- [19:02.660] The name of any country; it didn’t matter.
+- [19:06.420] He would never pick up the call. They’d say, “He’ll call you back
+- [19:10.400] in two months.” (Laughter.) “Two months?”
+- [19:12.910] Audience Member: He’s sleeping!
+- [19:14.170] The President: “Yeah, it’s his schedule.
+- [19:15.390] He’s extremely busy” -- (laughs)
+- [19:16.620] -- sleeping -- no, it -- (laughter) --
+- [19:19.740] Macron of France,
+- [19:21.010] “He’ll call you back in two months.”
+- [19:23.210] So, two months comes along, and there’s no call.
+- [19:25.910] They’d say -- Audience Member: (Inaudible.)
+- [19:27.160] The President: -- “He didn’t call.” (Laughs.)
+- [19:28.440] He’s -- (laughter)
+- [19:32.240] -- The stories are --
+- [19:33.610] I mean, these stories are not very exaggerated.
+- [19:36.980] I want to tell you, they’re a little bit for laughter,
+- [19:40.030] but, you know, it’s only for laughter.
+- [19:41.350] The fake news will say, “Oh, he exaggerated.
+- [19:43.460] It was only one month.” You know? (Laughter.)
+- [19:47.630] But they would say, “He’ll call you back.”
+- [19:49.640] And then he’d never call,
+- [19:50.920] and then they could never get him on the phone.
+- [19:52.500] And the problem I have is that when I speak to the --
+- [19:55.830] and I speak to them immediately --
+- [19:57.080] they’ll say, “Could we speak to the president?
+- [19:59.150] Would that be possible?
+- [20:00.400] We can do it any time over the next month.”
+- [20:02.260] They’re so used to this, right?
+- [20:04.090] I say, “No, I’ll pick it up right now.
+- [20:05.380] Is he on the other phone?” “Yeah.”
+- [20:06.580] “Hello. How you doing?” (Laughter.)
+- [20:08.990] That’s what -- you know, get it --
+- [20:11.860] get it over with, right? (Applause.) Get it over with.
+- [20:17.470] The only problem: They were so starved for love
+- [20:19.590] from the United States, I cannot get them off the phone.
+- [20:22.040] (Laughter.) I can’t get people --
+- [20:23.390] if you can’t, I say, “I have to go now, King,”
+- [20:25.290] or “I have to go now, President.” (Laughter.)
+- [20:27.850] But you can’t get them off the phone.
+- [20:29.340] They’re starved for love.
+- [20:30.580] You know, for years, they haven’t spoken.
+- [20:32.450] (Laughter.)
+- [20:33.790] They didn’t even know we had a president,
+- [20:35.300] if you want to know. (Laughter.)
+- [20:37.240] But under our leadership, America is back,
+- [20:39.840] open for business, and it’s really a big deal.
+- [20:43.730] (Applause.) It’s really a big --
+- [20:46.690] And they have, though. They said, you know,
+- [20:48.290] there’s like a light all over the world now.
+- [20:50.180] It’s not just here. We feel the light over our country.
+- [20:52.790] Everyone does.
+- [20:54.000] But there’s a light all over the world.
+- [20:55.920] We’ve accomplished more in one week
+- [20:58.280] that other administrations have accomplished in four years,
+- [21:01.340] and we’re just getting started. (Applause.)
+- [21:03.310] We got rid of the woke. We got rid of the woke crap.
+- [21:06.420] What a lot -- (applause)
+- [21:08.240] -- what a lot of stuff.
+- [21:17.520] What a lot of crap that was.
+- [21:19.900] (Laughter.)
+- [21:21.230] It was -- and, you know, these people were petrified of it.
+- [21:23.850] I’ll tell you, these companies --
+- [21:25.220] they run these big companies -- they were petrified of it.
+- [21:28.300] It was like -- you know, I don’t think they believed it.
+- [21:30.790] I’m sure they didn’t believe it.
+- [21:32.170] Some, I know, didn’t believe it, but they were so afraid.
+- [21:35.710] Near the top of the agenda
+- [21:37.220] for our historic Republican majorities in Congress
+- [21:40.200] is to pass a massive tax cut for American workers and families.
+- [21:44.070] Last year, we campaigned across the country on a pledge
+- [21:47.400] that I’m sure most of you didn’t hear too much about --
+- [21:51.240] a pledge to take the Trump tax cuts and make them permanent,
+- [21:54.480] and that’s exactly what we’re doing.
+- [21:56.690] (Applause.)
+- [21:58.940] In the coming weeks,
+- [22:01.860] I’ll be working with Congress to get a bill on my desk
+- [22:04.830] that cuts taxes for workers, families, small businesses,
+- [22:07.660] and, very importantly, keeps my promise for a thing called --
+- [22:12.360] and I know you didn’t hear anything about this,
+- [22:15.440] and I’m sure it had no influence on the state;
+- [22:17.790] the fact that we won this crazy, massive majority --
+- [22:21.260] the state that hadn’t been won by a Republican in decades.
+- [22:24.540] But I’m sure you haven’t heard,
+- [22:26.310] but we’re going to get it for you:
+- [22:27.750] No tax on tips. Right? (Applause.)
+- [22:31.060] No tax on tips. Right?
+- [22:39.300] So, if you’re a restaurant worker, a server,
+- [22:41.650] a valet, a bellhop, a bartender, or one of my caddies --
+- [22:48.110] I go through caddies like candy --
+- [22:50.200] (laughter); if I play badly,
+- [22:52.320] I always blame my caddy -- (laughter)
+- [22:55.320] -- or any other worker who relies on tipped income,
+- [22:58.330] your tips will be 100 percent yours.
+- [23:01.800] Won’t that be nice?
+- [23:05.260] (Applause.)
+- [23:07.170] Joe -- Governor, do you think
+- [23:08.510] that had an impact on the election?
+- [23:10.110] Governor Lombardo: Absolutely!
+- [23:11.380] The President: You do? Like, what, a half a point?
+- [23:14.320] (Laughter.) It’s pretty big.
+- [23:16.790] You had an impact, let me tell you.
+- [23:18.760] Nationwide, over 4 million workers depend on tip income,
+- [23:22.060] including an estimated 700,000 single moms.
+- [23:26.150] And here in Nevada, we will have a quarter --
+- [23:29.560] think of it, a quarter of the typical restaurant
+- [23:32.380] worker’s pay comes from tips.
+- [23:33.830] I didn’t know that much. That’s a lot.
+- [23:35.950] You haven’t been reporting them for the last 10 years.
+- [23:39.230] (Laughter.)
+- [23:41.060] So, here’s our deal,
+- [23:42.400] we’re going to have no tax on tips from now on,
+- [23:44.660] but we’re going to go after you viciously for all the money
+- [23:47.920] you didn’t report for the last ten, fif- -- (laughter)
+- [23:50.120] -- we’re going to go after you
+- [23:52.410] for all the money you didn’t report for --
+- [23:53.850] I’m only kidding.
+- [23:55.070] (Laughter.) I’m only kidding.
+- [23:56.350] I have to say to the fake news, because they’re going to say,
+- [24:00.870] “Trump is after all restaurant workers.”
+- [24:04.150] Many of these workers are some of the very citizens
+- [24:06.990] who were hit hard and very hard
+- [24:08.840] by the ravages of the Biden economy, which was inflation.
+- [24:13.340] When I think of Biden, I think of incompetence --
+- [24:16.030] (laughter) -- and inflation.
+- [24:18.280] I’m being nice by saying -- I’m being nice when I say that.
+- [24:23.970] Yet, even in the midst of the suffering he created,
+- [24:27.090] Joe Biden launched a cruel campaign
+- [24:29.070] to extract more money from tip workers,
+- [24:31.530] and that’s what happened.
+- [24:32.840] I’m telling you, a young waitress --
+- [24:35.560] I won’t say “beautiful,”
+- [24:36.800] because you’re not allowed to say that -- (laughter)
+- [24:38.960] -- as a politician. It used to be, you could say,
+- [24:41.000] “A young, beautiful waitress,” because --
+- [24:42.440] and this was a young, beautiful waitress,
+- [24:43.960] but I won’t say that because I feel like --
+- [24:45.520] (laughter) --
+- [24:46.740] I want to continue my political career.
+- [24:49.180] (Laughter.)
+- [24:50.680] If you call some the governor won’t say it.
+- [24:53.040] If you call a woman “beautiful” today,
+- [24:54.920] it’s the end of your political career,
+- [24:56.470] so I won’t do it. (Laughter.)
+- [24:59.290] But a young waitress -- I think you could call “young.”
+- [25:01.400] You’re probably not even supposed
+- [25:02.730] to say “young.” (Laughter.) You’re probably supposed to say
+- [25:05.860] “a waitress.” (Laughter.)
+- [25:07.700] But a young waitress came up, and I said, “How are you doing?”
+- [25:10.380] And in my restaurant, in the hotel, in Trump --
+- [25:13.280] I said, “How are you doing?” And she said, “Not great,
+- [25:16.590] because they’re after me so viciously for tips.
+- [25:19.180] They just want my tip income, and they don’t believe me,”
+- [25:22.120] and all of this.
+- [25:23.500] And she said, “It’s terrible.
+- [25:25.840] You know, sir, you should have no tax on tips.”
+- [25:28.930] I said, “What?” (Laughter.)
+- [25:31.860] I said, “What you just say?” “No tax on tips.”
+- [25:34.910] That was about the amount of my consultation.
+- [25:38.030] (Laughter.) It’s true. No tax.
+- [25:41.970] I said, “What did you just say? Say those words again.”
+- [25:44.400] “Sir, no tax on tips.”
+- [25:45.910] I said, are you -- thank you very much.
+- [25:47.550] You just won the election for” --
+- [25:50.370] (applause).
+- [25:56.980] No, but, we did research into it.
+- [25:59.510] I think it’s going to be great.
+- [26:00.900] But under the Trump administration,
+- [26:02.680] the forgotten men and women of our country
+- [26:04.980] are going to be forgotten no longer.
+- [26:07.410] You know that. They weren’t forgotten four years ago.
+- [26:10.170] On day one, I immediately halted the hiring
+- [26:12.790] of any new IRS agents.
+- [26:14.630] You know they hired -- (applause)
+- [26:19.060] -- they hired or tried to hire 88,000 new workers
+- [26:23.970] to go after you,
+- [26:25.310] and we’re in the process of developing a plan
+- [26:28.220] to either terminate all of them,
+- [26:29.920] or maybe we’ll move them to the border.
+- [26:32.970] (Applause.)
+- [26:36.460] I think we’re going to move them to the border.
+- [26:38.800] (Applause.)
+- [26:40.580] Well, they’re allowed to carry guns.
+- [26:42.040] You know, they’re so strong on guns,
+- [26:44.630] but these people are allowed to carry guns,
+- [26:46.530] so we’ll probably move them to the border.
+- [26:49.390] Audience Member: How about no tax on anything?
+- [26:51.860] The President: Yeah. (Laughs.) She said “no tax on any-”
+- [26:53.300] -- how about just no tax, period?
+- [27:00.490] (Applause.) We could do that.
+- [27:02.200] You know, if the tariffs work out like I think,
+- [27:05.330] a thing like that could happen, if you want to know the truth.
+- [27:07.330] (Applause.)
+- [27:08.530] You know, years ago, 1870 to 1913,
+- [27:13.340] we didn’t have an income tax. What we had is tariffs.
+- [27:17.010] Where foreign countries came in and they stole our jobs,
+- [27:19.960] they stole our companies, they stole our product,
+- [27:22.180] they ripped us off,
+- [27:23.450] and, you know, they used to do numbers,
+- [27:25.860] and then we went to tariff -- a tariff system.
+- [27:28.280] And the tariff system made so much money.
+- [27:30.870] It was when we were the richest --
+- [27:32.290] from 1870 to 1913 -- then we came in with the --
+- [27:36.810] brilliantly came in with an income tax.
+- [27:38.400] “No, we don’t want others to pay.
+- [27:39.710] Let’s have our people pay.”
+- [27:41.990] And then you had the depression in 1928, 1929.
+- [27:45.540] I call it 1929. That was a bad time.
+- [27:48.410] But, you know, you didn’t have tariffs,
+- [27:49.990] and you had tariffs that ended in 1913.
+- [27:53.320] But it was the richest our country ever was.
+- [27:58.420] That was President McKinley.
+- [28:00.820] In fact, we’re renaming the mountain “Mount McKinley” --
+- [28:04.380] in Alaska.
+- [28:06.710] (Applause.)
+- [28:11.280] You know what else we’re renaming?
+- [28:12.790] We’re renaming the Gulf of --
+- [28:16.110] Audience Members: Mexico!
+- [28:17.500] Audience Members: America!
+- [28:18.720] The President: -- Mexico into the Gulf of America.
+- [28:21.890] Right? (Applause.)
+- [28:26.180] And Mexico -- actually, they were thrilled when they heard.
+- [28:28.470] They said, “That’s nice.”
+- [28:30.240] A few months from now,
+- [28:31.500] when I sign our tax cut into law,
+- [28:33.340] we’re going to deliver for the tip-earning men
+- [28:36.900] and women who make it all work.
+- [28:39.500] I mean, it’s going to be something very special,
+- [28:41.190] I think, for you.
+- [28:42.420] It’s going to be a big difference.
+- [28:45.000] And with us today is Jessica Angiano
+- [28:47.940] [ph], an employee here at Circa.
+- [28:49.870] This is a nice place, by the way,
+- [28:51.160] and I just met your owner.
+- [28:52.370] He’s a nice man. He’s rich, too -- very rich.
+- [28:55.250] (Laughter and applause.) But Circa is very nice.
+- [28:59.420] And a hardworking single mother of two with incredible children,
+- [29:03.000] Jessica is struggling to pay for medical bills
+- [29:05.470] to remove a tumor behind her right eye.
+- [29:07.870] She’s had some real difficulty,
+- [29:09.140] and she’s currently saving up for a second surgery,
+- [29:12.480] which will hopefully be very successful,
+- [29:14.230] while also paying for her children’s day care.
+- [29:17.290] Jessica says that no tax on tips would transform her life.
+- [29:21.290] It would make such a big difference.
+- [29:22.590] So, Jessica, we’re going to get that for you.
+- [29:25.140] Where are you, Jessica?
+- [29:26.420] You’re around here someplace, huh?
+- [29:28.250] Hi, Jessica. Oh, so beautiful. (Applause.) Very nice.
+- [29:32.820] It’s working out, medically, good?
+- [29:34.460] Everything good?
+- [29:35.830] Going to be good. I think it’s going to.
+- [29:37.610] You look fantastic. It’s good. You look great.
+- [29:41.510] Also with us is Lexi York,
+- [29:43.680] a 28-year-old cocktail server here at Circa,
+- [29:47.220] who’s got big dreams of being an entrepreneur.
+- [29:50.320] Lexi says that no tax on tips
+- [29:52.920] will help bring those dreams much closer to reach
+- [29:56.380] and she’s going to be one of the biggest proponents for it.
+- [30:00.040] We’re going to have a lot of support when we go
+- [30:01.650] before Congress very soon to get that passed.
+- [30:04.550] Lexi, where are you? Where are you? Hi, Lexi.
+- [30:07.820] (Applause.)
+- [30:09.470] Wow. Good. We’ll get it done.
+- [30:13.390] And we’re also pleased to be joined by Rosanna Maietta,
+- [30:17.310] president and CEO of the American Hotel
+- [30:19.890] and Lodging Association,
+- [30:21.290] which strongly supports this pro-worker reform.
+- [30:24.360] And, Rosanna, would you like to come up
+- [30:26.210] and say a few words on behalf of so many people?
+- [30:28.890] Come on up. Come on up.
+- [30:32.320] (Applause.)
+- [30:41.010] Audience Member: We love you, Trump!
+- [30:42.470] (Applause.) The President: (Inaudible.)
+- [30:43.740] Ms. Maietta: It’s so nice to meet you.
+- [30:45.830] The President: Thank you.
+- [30:47.070] Ms. Maietta: Thank you.
+- [30:49.930] Hello, Mr. President, on behalf of the American Hotel
+- [30:53.530] and Lodging Association, I’m so honored to be here today.
+- [30:58.660] We represent 30,000 members around the country
+- [31:02.280] in an industry
+- [31:03.520] that represents more than 2 million hotel workers.
+- [31:08.150] And I am here to tell you that the American dream is alive
+- [31:12.100] and well in the hotel industry today.
+- [31:15.460] (Applause.)
+- [31:18.120] It is still one of the few places
+- [31:20.700] where you can have and grow your career,
+- [31:24.130] starting a job as a housekeeper or a dishwasher or bellhop,
+- [31:28.990] to running a hotel, to owning a hotel or a few,
+- [31:33.180] and to even becoming the CEO of a global brand
+- [31:36.620] or president of the United States.
+- [31:39.620] (Applause.)
+- [31:43.920] Mr. President, in 2017,
+- [31:46.750] the tax bill that you championed cut taxes
+- [31:50.070] for so many working families and American workers.
+- [31:54.040] It helped small businesses -- small bus- --
+- [31:58.160] hotel owners in our country,
+- [32:00.130] who make up the majority of the industry,
+- [32:03.470] reinvest in the economy, spurring jobs and -- and cur- --
+- [32:08.560] and growing and strengthening the economy.
+- [32:11.370] And the no tax on tips builds on that momentum,
+- [32:15.310] and so we are so excited to support you in that effort.
+- [32:18.350] That’s why we’re here today.
+- [32:20.350] We stand with you to urge Congress to pass this proposal
+- [32:24.710] so that more than the 800,000 hotel workers
+- [32:29.180] who benefit from these --
+- [32:32.240] from tips, many who are here in the room today,
+- [32:35.840] representing all -- all types of jobs --
+- [32:39.170] from restaurant workers to housekeepers
+- [32:41.310] to bellhops and so many others --
+- [32:43.960] can take home more of the pay that they earn every day.
+- [32:48.150] So, thank you for having us and for promoting this proposal.
+- [32:50.370] (Applause.)
+- [32:51.570] The President: Thank you very much.
+- [32:53.940] Well done.
+- [33:00.470] Thank you very much, Jessica [sic.
+- [33:01.830] Rosanna]. Great.
+- [33:03.290] After for you- -- long years --
+- [33:04.910] and these were long years --
+- [33:06.270] of a government that always put you last --
+- [33:09.180] they put America last, they put you last,
+- [33:11.360] they put everybody last that was associated with us --
+- [33:14.040] you once again have a president
+- [33:15.400] that is putting our workers first,
+- [33:17.460] putting our families first,
+- [33:18.810] and above all, putting America first,
+- [33:21.120] and we’re going to keep America first.
+- [33:22.650] And you see it. (Applause.)
+- [33:28.910] We’re restoring our prosperity. We’re restoring our borders.
+- [33:32.420] We’re restoring our strength, our dignity, and our pride.
+- [33:35.720] We’ve been hurt badly by this group of people --
+- [33:38.130] this group of people.
+- [33:39.640] They didn’t have a clue what the hell was happening.
+- [33:42.430] It’s so disgraceful that they were allowed to do it.
+- [33:45.350] But quite honestly, we’re restoring our country.
+- [33:48.300] Within hours of taking the oath of office,
+- [33:50.530] I declared a national emergency at our southern border.
+- [33:53.130] (Applause.)
+- [33:54.340] I sent active-duty troops to the border
+- [33:56.610] to help repel the invasion.
+- [33:59.270] Tom Homan is leading the charge. You know that.
+- [34:01.900] We like Tom Homan, right? Doing a great job.
+- [34:06.320] We immediately halted all illegal entry
+- [34:09.120] and began sending every border trespasser and violator
+- [34:12.140] back to the places from which they came.
+- [34:15.120] (Applause.)
+- [34:17.340] I signed an order that will designate the cartels
+- [34:21.390] as “foreign terrorist organizations.” (Applause.)
+- [34:25.490] It’s a big deal. That’s a big deal.
+- [34:28.900] Biden didn’t want to do that.
+- [34:30.250] “No, I don’t want to that.” Biden didn’t know he was alive.
+- [34:33.350] (Laughter.)
+- [34:34.580] He didn’t want to do it. He didn’t want to do that.
+- [34:38.240] I always wanted to do it, you know? I mean, think of it.
+- [34:41.630] Is that a terrorist organization or what?
+- [34:44.380] And we began to leverage the full and immense power
+- [34:47.180] of federal government and state government
+- [34:49.170] and enforcement to eliminate the presence
+- [34:52.240] of all foreign gangs and criminal networks
+- [34:54.480] bringing devastating crime to American soil.
+- [34:57.550] And we don’t allow people to enter our country
+- [35:00.320] and to dump their prisons
+- [35:01.690] into the United States of America anymore.
+- [35:04.050] (Applause.) When we see that, our people are instructed
+- [35:07.550] to do whatever they have to do.
+- [35:09.000] They can do whatever the hell they want to do.
+- [35:11.620] Throughout this week, the heroes of ICE have been hunting down
+- [35:14.890] and arresting hundreds of illegal alien criminals.
+- [35:18.880] (Applause.)
+- [35:25.020] And it’s immediate expulsion,
+- [35:26.600] including those with charges of convictions for rape,
+- [35:29.840] child sexual assault, terrorism and even murder.
+- [35:33.490] Members of the savage Venezuelan prison gang
+- [35:36.520] known as Tren de Aragua -- you know that gang?
+- [35:39.760] This is not a nice group of people.
+- [35:42.320] They formed in prison,
+- [35:44.250] and then they dumped their prisons into our country.
+- [35:46.400] So, we had them all over the place.
+- [35:48.610] Ask Colorado. The governor of Colorado,
+- [35:51.160] he doesn’t know what to do about it.
+- [35:52.510] They’re all over the place. We’ll get them out.
+- [35:54.610] We’ll get them out. (Applause.)
+- [35:58.630] They’re -- in a sense, they’re in the real estate business.
+- [36:02.730] They go into a building, and they take it. You know?
+- [36:05.140] (Laughter.) See, when you buy a building,
+- [36:06.760] you have to go out and get a mortgage or use your own cash.
+- [36:09.020] They just go into a building and take it.
+- [36:11.530] And they actually said, “Well, it’s not that bad.
+- [36:14.340] They haven’t taken that many buildings.”
+- [36:15.830] Can you imagine that?
+- [36:17.410] “They haven’t taken that many buildings.
+- [36:18.980] Oh, they’re not that bad.”
+- [36:20.720] But they’re bad as the bloodthirsty MS-13 gangs
+- [36:24.020] that we have gotten thousands and thousands of them out.
+- [36:27.650] In fact, over 11,000 murderers were released into our country
+- [36:31.420] by other countries all over the world
+- [36:33.110] because of Biden’s open-border policy.
+- [36:35.810] When I heard about that, I said, “They’re just going to --
+- [36:38.300] everybody is going to empty out their prisons into our country.”
+- [36:40.640] I said that.
+- [36:41.930] I’d do that if I were heading up
+- [36:43.840] any one of the many countries that you know about.
+- [36:45.740] Not just South America, all over --
+- [36:48.250] they take their prisons, their mental institutions
+- [36:50.730] and they empty them out into our country.
+- [36:52.670] Can you imagine a person doing this?
+- [36:55.810] Can you imagine somebody doing that to our country?
+- [36:59.270] For American citizens, January 20th, 2025,
+- [37:03.460] was truly liberation day.
+- [37:04.990] (Applause.) That was really liberation day.
+- [37:12.640] This week, I also signed an order
+- [37:14.410] to end the weaponization of our government
+- [37:16.440] against American people and political people like me.
+- [37:19.640] (Applause.) We never had a thing like that.
+- [37:23.580] He went after his political opponent.
+- [37:25.790] Who would have thought he helped me?
+- [37:27.610] I think you helped me get elected, Joe,
+- [37:29.080] you want to know the truth. I became much more popular --
+- [37:32.340] I’m the only guy that ever became more popular
+- [37:34.510] when something like that happened.
+- [37:36.360] But they -- these guys were just so inept.
+- [37:39.820] We had the guy Deranged Jack Smith -- deranged.
+- [37:42.830] He was a deranged human being.
+- [37:44.750] Audience: Booo --
+- [37:45.970] The President: But they thought this way Biden could sneak by
+- [37:48.200] and he could win an election, another --
+- [37:49.830] cheating in another election. That’s what it was. But we won.
+- [37:54.580] We won. You think that was fun? You think that was easy?
+- [37:57.060] (Applause.) It wasn’t fun.
+- [37:58.880] And investigate all of the abuses of power --
+- [38:01.460] I pardoned hundreds of political prisoners
+- [38:03.760] who had been viciously persecuted --
+- [38:05.880] (applause) -- by the Biden regime.
+- [38:08.090] Hundreds of people were persecuted,
+- [38:12.240] including Christians, pro-life activists,
+- [38:14.670] two Washington, D.C., police officers just yesterday,
+- [38:18.220] whose lives were destroyed from chasing down a dangerous,
+- [38:21.560] illegal alien criminal.
+- [38:23.650] And of course, I was very proud to pardon the J6 hostages.
+- [38:29.170] (Applause.)
+- [38:33.520] Once and for all, I stopped government censorship,
+- [38:37.420] and we brought back free speech in America.
+- [38:39.710] We brought it back. We did more in this last week --
+- [38:42.230] people can’t even believe it.
+- [38:44.070] I also signed an order to declassify and publish
+- [38:46.980] all remaining files related to the assassinations --
+- [38:48.930] (applause)
+- [38:50.130] -- of President John F. Kennedy, Robert Kennedy,
+- [38:53.100] and Martin Luther King, Jr.
+- [38:58.150] I signed an order that will end all of the lawless diversity,
+- [39:01.830] equity, and inclusion nonsense --
+- [39:04.250] (applause) --
+- [39:05.580] all across the government and the private sector.
+- [39:08.890] We abolished 60 years of prejudice
+- [39:12.010] and hatred with the signing of one order,
+- [39:14.510] all approved by the United States Supreme Court.
+- [39:17.140] We’re allowed to do it
+- [39:18.460] because we are now in a merit-based world.
+- [39:22.670] (Applause.) We’re a merit-based country.
+- [39:26.680] Did you ever think you’re going to hear that again?
+- [39:30.060] It’s based on merit.
+- [39:31.350] If you’ve got the talent, if you’ve got the work,
+- [39:34.030] the ethic, the whole thing, it’s based now on --
+- [39:36.790] it’s not based on any other thing.
+- [39:38.280] It’s based on merit. It’s based on your capability.
+- [39:41.550] The United States has now become, again, a meritocracy.
+- [39:46.320] Isn’t that a beautiful word? A meritocracy.
+- [39:51.030] Based on merit -- if you do your job well,
+- [39:53.190] you’re going to go places.
+- [39:55.210] And I made it the official policy
+- [39:57.080] of the United States government
+- [39:58.570] that there are only two genders: male and female.
+- [40:02.990] (Applause.) Male and female.
+- [40:13.160] Every single day of my term, we’re living by the motto
+- [40:16.410] “Promises made, promises kept.” I kept my promises.
+- [40:20.830] It’s why we won. It really is why we won.
+- [40:23.900] We won because of the past four years.
+- [40:25.620] We won because of that.
+- [40:27.300] But this is going to blow it away,
+- [40:29.190] because when I came in, I had no experience.
+- [40:31.270] I didn’t do this before. I never did this.
+- [40:33.320] I was never a politician before.
+- [40:36.020] I was talking -- JD Vance --
+- [40:37.220] by the way, hasn’t he done a great job, JD Vance?
+- [40:39.750] (Applause.)
+- [40:43.690] Because JD went right to the Senate,
+- [40:45.550] and then he went to the vice president.
+- [40:47.110] I said, “JD, you’re really upwardly mobile.”
+- [40:49.210] He said, “You’re more so than me.”
+- [40:50.520] I said, “Why do you say that?” He said, “You went from being
+- [40:54.210] a real estate developer to the president.”
+- [40:56.960] That’s a pretty big -- I never thought of it that way.
+- [40:59.990] I guess I’m the most upwardly mobile politician in history.
+- [41:04.440] (Applause.)
+- [41:05.820] I didn’t make any stops along the way.
+- [41:08.600] It will be the greatest honor of my life
+- [41:10.670] to serve not once but twice -- or three times or four times.
+- [41:16.230] (Laughs.) No. (Applause.)
+- [41:20.640] Headlines -- headlines from the fake news.
+- [41:23.690] No. No, it will be to serve twice.
+- [41:27.500] For the next four years, I will not rest,
+- [41:30.430] I will not yield, and together we will not fail.
+- [41:33.560] We will win, win, win. (Applause.)
+- [41:35.150] We will bring back the American dream.
+- [41:38.350] We’re going to bring it back.
+- [41:40.450] You know, in recent years, our nation has suffered greatly,
+- [41:43.250] but we are going to make it great again,
+- [41:45.220] greater than ever before. We’ll be a nation like no other,
+- [41:49.440] full of compassion, courage, and exceptionalism.
+- [41:52.240] That’s what we’re doing, and that’s what it’s all about.
+- [41:54.250] And you see that --
+- [41:56.450] I think you see it more in the last week
+- [41:58.130] than you’ve seen it in years.
+- [42:03.770] And I walked up the stairs of that massive plane
+- [42:07.490] that’s waiting for me, that big 747, and I said,
+- [42:12.770] “There’s no way I’m going to let myself fall
+- [42:15.160] because that was -- (laughter)
+- [42:17.170] -- that was one hell of a” -- that triple fall was a disaster.
+- [42:22.670] I would call that a political disaster.
+- [42:26.020] You can fall once, you can fall twice,
+- [42:28.560] but you can’t fall three times.
+- [42:30.370] (Laughter.)
+- [42:31.660] You can’t fall three times. What a disaster.
+- [42:35.610] I’ve used that in every ad I think I ever did.
+- [42:37.820] (Laughter.)
+- [42:39.210] Our power will stop all wars and bring new spirit of unity
+- [42:43.080] to a world that’s been angry, violent, and very unpredictable.
+- [42:47.670] America will be respected again and admired again,
+- [42:50.350] including by the people of religion, faith, and goodwill.
+- [42:54.050] We’re bringing back religion in this country.
+- [42:56.400] (Applause.)
+- [42:59.320] We will be prosperous. We will be free.
+- [43:02.670] We will be bigger, bolder, and more ambitious than ever before.
+- [43:06.400] And together, we will make America powerful again --
+- [43:12.000] (applause); make America wealthy again --
+- [43:15.750] (applause); make America healthy again.
+- [43:20.380] (Applause.)
+- [43:21.830] We will make America strong again.
+- [43:25.470] (Applause.) Make America proud again.
+- [43:29.120] (Applause.)
+- [43:30.510] We’re going to make America safe again.
+- [43:34.160] (Applause.)
+- [43:35.540] And we will --
+- [43:38.040] Audience: Make America great again!
+- [43:39.410] The President: -- make America great again!
+- [43:40.950] (Applause.)
+- [43:42.150] Thank you very much. And thank you very much, Nevada.
+- [43:45.650] Thank you, Joe. Thank you very much.
+- [43:48.240] We’ll be back. We’ll be back. Thank you.
+- [43:50.740] (Applause.) Thank you, my man. Great job.
+- [43:53.810] Thank you, everybody.
+- [43:56.410] (Applause.)

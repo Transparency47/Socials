@@ -1,0 +1,293 @@
+<!-- source: https://www.youtube.com/watch?v=Uea1vQn4QqM -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: Uea1vQn4QqM -->
+<!-- date_published: 2025-11-17T02:25:30+00:00 -->
+<!-- date_accessed: 2026-06-02T01:10:23.561630+00:00 -->
+
+# Transcript: President Trump Gaggles with Press Upon Departure in Palm Beach, FL, Nov. 16, 2025
+
+- [00:02.560] Okay everybody, we had a a great
+- [00:04.000] weekend.
+- [00:05.520] From an economic standpoint, our
+- [00:08.360] prices are coming down very
+- [00:09.920] substantially on groceries and things.
+- [00:12.720] They're already at a much lower level
+- [00:14.320] than they were with the last
+- [00:15.360] administration.
+- [00:17.120] And we worked on it this weekend and
+- [00:18.720] you're going to see some of the items
+- [00:20.120] that were a little bit higher,
+- [00:21.880] they were lower than the last
+- [00:22.920] administration, but a little bit higher.
+- [00:24.400] We We're going to have some
+- [00:26.040] little price reductions and in some
+- [00:27.600] cases some pretty good ones.
+- [00:29.600] Uh
+- [00:30.840] they use the affordability word. The
+- [00:33.120] affordability is much, much better with
+- [00:35.200] us. And again, I
+- [00:36.840] go to Walmart and other companies, and
+- [00:39.640] in every case, it's about 25%
+- [00:43.080] that a meal, a Thanksgiving meal and
+- [00:45.640] surroundings are 25% lower than it was
+- [00:49.440] under the Biden administration. That's a
+- [00:51.160] big fact, and that comes from Walmart
+- [00:53.520] and others that do that. Okay? Any
+- [00:56.160] questions? Is there an update on
+- [00:57.760] Venezuela, Mr. President? On Venezuela?
+- [01:01.440] No. No No update on Venezuela. Does the
+- [01:03.640] designation of that cartel associated
+- [01:06.240] with Maduro, does that mean that the US
+- [01:09.440] government can target Maduro's assets or
+- [01:12.600] infrastructure inside Venezuela? It
+- [01:15.240] allows us to do that, but we haven't
+- [01:17.080] said we're going to do that.
+- [01:19.160] And we may be discussing We may be
+- [01:21.720] having some
+- [01:23.120] discussions with
+- [01:25.000] Maduro.
+- [01:26.240] And we'll see how that turns out. They
+- [01:28.600] would like They would like to talk. Mr.
+- [01:31.000] President, Representative Massie says
+- [01:32.680] he's concerned that the Epstein probe
+- [01:34.480] you are calling for could be a smoke
+- [01:36.640] screen
+- [01:37.840] to block the release of more files. Is
+- [01:40.200] that the case? Well, I don't want to
+- [01:41.400] talk about it because uh fake news like
+- [01:44.120] you, you're a terrible reporter. And
+- [01:46.120] fake news like you, they just keep
+- [01:47.800] bringing it up to deflect from the
+- [01:49.720] tremendous success of the Trump
+- [01:51.640] administration. So, a guy like Massie,
+- [01:54.280] his poll numbers are showing he's at 6%
+- [01:56.840] approval rating right now.
+- [01:58.840] And uh we call him Rand Paul Jr. because
+- [02:01.320] he never he never votes for the
+- [02:02.880] Republican Party.
+- [02:04.680] So, they're using uh Jeffrey Epstein as
+- [02:07.360] a deflection from the tremendous success
+- [02:10.119] that we're having as a party. Mr.
+- [02:12.200] President, on Venezuela? You said they
+- [02:14.080] want to talk. You said Venezuela wants
+- [02:15.960] to talk. What does that mean?
+- [02:17.200] >> Venezuela would like to talk.
+- [02:19.560] What does it mean? You tell me. I don't
+- [02:21.200] know.
+- [02:21.400] >> want to talk to them?
+- [02:22.960] I would talk I talk to anybody. I talk
+- [02:24.560] to you, right? I talk to anybody. We'll
+- [02:27.440] see what happens. Marjorie Greene says
+- [02:28.880] that her life could be in danger because
+- [02:30.800] of the rhetoric. Her life is in danger?
+- [02:34.400] Who's that? Marjorie Taylor Greene. She
+- [02:36.520] says Marjorie Taylor Greene.
+- [02:39.400] Uh I don't think her life is in danger.
+- [02:41.160] I don't think
+- [02:42.680] Frankly, I don't think anybody cares
+- [02:44.160] about her. Okay, what about
+- [02:46.160] >> the affordability of health care. Are
+- [02:47.560] you negotiating Are you negotiating with
+- [02:50.520] lawmakers on health care ahead of a vote
+- [02:53.000] next
+- [02:53.240] >> I am We're negotiating with lawmakers,
+- [02:56.080] and I've had personal talks with some
+- [02:57.840] Democrats. I can't tell you who they
+- [02:59.440] are.
+- [03:00.680] I just don't want to do that. It's not
+- [03:01.960] fair to them. About uh paying
+- [03:05.160] large amounts of dollars back to the
+- [03:07.640] people.
+- [03:08.840] You know, this was my idea. It came up
+- [03:11.280] during that You know, oftentimes in uh
+- [03:14.360] time under times of stress like the
+- [03:16.680] shutdown, you come up with good great
+- [03:19.040] ideas that you wouldn't have thought of
+- [03:20.440] before.
+- [03:21.800] The insurance companies are making a
+- [03:23.320] fortune. Their stock is up over 1,000%
+- [03:26.560] over a short period of time.
+- [03:28.520] They are taking in hundreds of billions
+- [03:30.880] of dollars, and they're not really
+- [03:32.760] putting it back, certainly not like they
+- [03:34.480] should.
+- [03:35.480] So, when I see this and when I've seen
+- [03:37.360] this over the last pretty short period
+- [03:39.280] of time,
+- [03:40.480] I said, "Why do we Why do we just pay
+- [03:43.440] this money directly to the people of our
+- [03:46.080] country and let them buy their own
+- [03:48.440] health insurance?"
+- [03:49.840] And you know, I made that statement and
+- [03:51.360] I made it
+- [03:52.720] a little bit cavalierly, but it sounded
+- [03:54.720] good, and everybody has picked up,
+- [03:57.040] including Democrats. And we I am talking
+- [03:59.480] to some Democrats right now about doing
+- [04:02.240] that. People love it. We're going to
+- [04:04.120] take the money Well, if it gets
+- [04:05.760] approved, we're going to take the money,
+- [04:07.600] we're going to pay it back to the people
+- [04:09.920] of our country to go out and buy health
+- [04:12.960] insurance. Now, they can put it in a
+- [04:14.400] health account. We can do it a lot of
+- [04:16.440] different ways. But they'd buy their own
+- [04:18.760] health insurance. They can negotiate
+- [04:20.560] price.
+- [04:21.720] And it's It's going to be locked, so
+- [04:23.000] they can't go out and buy a
+- [04:25.000] a Cadillac.
+- [04:26.320] They can go out and buy health
+- [04:28.280] insurance.
+- [04:29.440] Mr. President, is it time for Carlson
+- [04:31.840] Is it time for Congress to move
+- [04:34.120] legislation that puts pressure on
+- [04:36.320] Russia, that puts pressure on Putin?
+- [04:38.560] Well, I hear they're doing that, and
+- [04:39.960] that's okay with me. They're passing
+- [04:42.560] legislation. The putting The Republicans
+- [04:44.680] are putting in legislation that uh
+- [04:48.800] very tough. It's sanctioning, etc., etc.
+- [04:52.240] on any country doing business with
+- [04:54.040] Russia. They may add uh Iran to that, as
+- [04:57.120] you know. I suggested it.
+- [04:59.120] So, any uh country that does business
+- [05:01.360] with Russia
+- [05:02.760] will be very severely sanctioned.
+- [05:05.160] Uh we may add Iran to the formula, yeah.
+- [05:07.800] MR. PRESIDENT, TUCKER CARLSON recently
+- [05:09.680] had a friendly interview with
+- [05:11.320] anti-Semite Nick Fuentes. What uh Tucker
+- [05:14.080] Carlson What role do you think Tucker
+- [05:15.880] Carlson should play in the Republican
+- [05:17.840] Party and the conservative movement
+- [05:18.840] going forward? Well, I found him to be
+- [05:20.240] good. I mean, he's said good things
+- [05:21.600] about me over the years. He's
+- [05:24.320] I think he's good. We've had some good
+- [05:25.840] interviews. I did an interview with him.
+- [05:28.000] We had 300 million hits. You know that.
+- [05:31.360] Uh
+- [05:33.200] Look, I can't tell him
+- [05:36.840] Should he be Will you let me finish my
+- [05:38.560] statement? You are the worst. You're
+- [05:40.360] with Bloomberg, right? You are the
+- [05:42.240] worst. I don't know what why they even
+- [05:44.000] have you.
+- [05:45.640] Uh
+- [05:46.800] We've had some great interviews with
+- [05:48.240] Tucker Carlson.
+- [05:49.680] But you can't tell him who to interview.
+- [05:51.240] I mean, if he wants to interview Nick
+- [05:53.080] Fuentes, I don't know much about him,
+- [05:55.320] but if he wants to do it, get the word
+- [05:57.240] out. Let him You know, people have to
+- [05:58.840] decide. Ultimately, people have to
+- [06:00.560] decide.
+- [06:01.840] Uh the mayor of New York, I will say
+- [06:03.680] would like to meet with us and we'll
+- [06:05.120] work something out. But he he would like
+- [06:07.520] to come to Washington and meet, and
+- [06:09.080] we'll work something out. We want to see
+- [06:11.120] everything work out well for New York.
+- [06:13.040] >> You yourself had dinner with Nick
+- [06:14.000] Fuentes at Mar-a-Lago a few years ago.
+- [06:16.320] What role should he play in the
+- [06:17.320] conservative movement?
+- [06:18.160] >> Well, I didn't know he was coming, and
+- [06:19.960] he was with, as you know, somebody.
+- [06:22.480] Kanye.
+- [06:23.840] And Kanye asked if he could have dinner,
+- [06:25.520] and he brought Nick. I didn't know Nick
+- [06:27.040] at the time.
+- [06:28.560] And uh
+- [06:30.280] He did. He came and along with a few
+- [06:32.000] other people. He brought a few people
+- [06:33.320] with him.
+- [06:35.160] Uh
+- [06:35.960] Meeting people, talking to people like
+- [06:37.920] for somebody like Tucker,
+- [06:39.920] that's what they do. You know, people
+- [06:41.840] are controversial. Some are, some
+- [06:43.360] aren't. I'm not controversial, so I like
+- [06:45.880] it that way.
+- [06:47.760] On Venezuela, are you discussing options
+- [06:50.480] with Congress? Are you going to Congress
+- [06:52.880] to discuss potential options you're
+- [06:54.720] considering?
+- [06:55.320] >> I like to keep Congress Congress
+- [06:56.720] involved. I mean, we're stopping
+- [06:59.000] drug dealers and drugs to come from
+- [07:00.800] coming into our country. And I actually
+- [07:03.200] told Marco and some of the people The
+- [07:05.040] Secretary of State has done a great job,
+- [07:06.640] by the way.
+- [07:07.680] I said, "Go to Congress and let them
+- [07:09.720] know we're not letting drugs come
+- [07:11.360] through Mexico.
+- [07:13.120] We're not letting them come through
+- [07:14.360] Venezuela. And let Congress know about
+- [07:17.200] it. We don't have to get their approval,
+- [07:19.400] but I think letting them know is good.
+- [07:21.240] The only thing I don't want them to do
+- [07:23.120] is leak information that's very
+- [07:25.120] important and confidential and may put
+- [07:27.440] our our military at risk or whoever is
+- [07:30.480] doing, you know, CIA, military, etc.
+- [07:33.280] But I did say I said, "Go and see
+- [07:35.720] Congress. See the representatives that
+- [07:38.480] we're supposed to be seeing, and be open
+- [07:40.560] about it." If they say, "We don't want
+- [07:43.240] you to stop drugs from coming into the
+- [07:45.240] country,"
+- [07:46.680] I don't think that would be good. Yes.
+- [07:48.280] Have any other countries committed to
+- [07:50.200] helping the US with Venezuela Venezuela
+- [07:52.880] or is all our actions still Yeah, we
+- [07:54.920] have great support because it's all
+- [07:56.480] about drugs. Well, in Venezuela's case,
+- [07:59.680] it's about drugs, and it's also about
+- [08:02.320] thousands, hundreds of thousands of
+- [08:04.240] people that they've released into our
+- [08:06.480] country. And some are gang members from
+- [08:09.040] Tren de Aragua. Some are uh drug Many
+- [08:12.040] are drug dealers. Some are murderers.
+- [08:14.560] So, in the case of Venezuela, it's about
+- [08:17.000] It's the prison population. Their almost
+- [08:20.120] entire prison population was released
+- [08:23.760] into the United States. Do you know what
+- [08:25.600] that means?
+- [08:27.880] Their prison population was released
+- [08:30.280] into the United States. And we're
+- [08:32.120] getting it out. We're doing an amazing
+- [08:33.919] job. We have a strong border now. We
+- [08:36.240] have everything Our country's doing so
+- [08:38.000] well.
+- [08:38.919] But what the Biden administration did to
+- [08:41.080] our country should never be forgotten.
+- [08:43.320] And the single worst thing they did is
+- [08:45.680] allowed 20 or 25 million people to pour
+- [08:49.440] into our country.
+- [08:51.280] People from prisons, drug dealers,
+- [08:54.440] mental institutions,
+- [08:56.480] bad people, gang members. To allow that
+- [08:59.160] to happen to the United States, totally
+- [09:01.800] unchecked and unvetted, should never be
+- [09:05.120] forgotten. What they've done to our
+- [09:06.680] country is a very bad thing. But we are
+- [09:08.960] correcting it. We have strong borders
+- [09:11.160] now. We have a great economy. Uh the uh
+- [09:14.080] prices are coming down. The Democrats
+- [09:16.640] like to use the word affordability, but
+- [09:18.800] their affordability was terrible.
+- [09:21.640] The problem with the Democrats, they
+- [09:23.200] lie. They do it so well. They talk about
+- [09:24.880] affordability, but I'm the one that's
+- [09:26.880] getting the prices down. And as an
+- [09:28.280] example,
+- [09:29.520] they had the highest inflation in the
+- [09:31.600] history of our country.
+- [09:33.720] I have it down now to a normal level,
+- [09:35.560] and it's going down further. Thank you
+- [09:37.160] very much, everybody.

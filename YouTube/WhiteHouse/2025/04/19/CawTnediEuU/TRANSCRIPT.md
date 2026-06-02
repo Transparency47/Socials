@@ -1,0 +1,214 @@
+<!-- source: https://www.youtube.com/watch?v=CawTnediEuU -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: CawTnediEuU -->
+<!-- date_published: 2025-04-19T00:45:11+00:00 -->
+<!-- date_accessed: 2026-06-02T01:27:34.883854+00:00 -->
+
+# Transcript: “The Shot Heard Round the World”: The Battles of Lexington and Concord
+
+- [00:03.000] Four and seven years
+- [00:06.040] ago, our fathers crossed
+- [00:10.380] [Applause]
+- [00:13.160] north to be ever devotion
+- [00:17.460] [Music]
+- [00:38.960] Hello, my name is Wilfried Mcclelay and
+- [00:41.040] I teach history at Hillsdale College. My
+- [00:43.840] assignment today is to relate the story
+- [00:46.079] of how the American Revolution began
+- [00:49.200] with the dramatic clashes between
+- [00:51.120] British regular troops and American
+- [00:53.440] militia men in the New England towns of
+- [00:56.000] Lexington and conquered on April 19th,
+- [01:01.320] 1775, 250 years ago today.
+- [01:05.600] The fuse of war was lit at last when
+- [01:08.320] orders from Britain reached the royal
+- [01:10.320] governor of Massachusetts, General
+- [01:12.479] Thomas
+- [01:13.640] Gage, instructing him to move
+- [01:16.000] aggressively to stop the growing
+- [01:18.320] rebellion. After careful deliberation,
+- [01:21.119] Gage decided he would march 700
+- [01:24.000] redcoated British troops to conquer town
+- [01:27.360] about 20 miles west of Boston where they
+- [01:31.040] would seize a militia supply depot that
+- [01:34.640] had been established by the Patriot
+- [01:37.200] forces. The fact that such a depo had
+- [01:39.920] already been created is an indication of
+- [01:42.960] the extent to which the patriot side of
+- [01:45.680] this conflict had organized and was
+- [01:48.399] preparing for
+- [01:50.200] conflict. They were not an unorganized
+- [01:52.799] rabble. Far from it. They knew that Gage
+- [01:55.840] was contemplating some sort of move,
+- [01:58.320] although they didn't know where or when
+- [02:00.880] exactly it would come until the
+- [02:02.719] operation was underway.
+- [02:05.119] And they knew it was important to wait
+- [02:07.759] and make sure that the British fired the
+- [02:10.959] first shots so that the patriots would
+- [02:13.440] be able to claim the high moral
+- [02:16.840] ground. Samuel Adams put it this way
+- [02:20.000] back in March of
+- [02:22.120] 1775. Put your enemy in the wrong and
+- [02:25.280] keep him so. This is a wise maxim in
+- [02:28.640] politics as well as in war as indeed it
+- [02:32.280] was. The success of Gage's operations
+- [02:35.120] depended on secrecy, surprise, and sound
+- [02:39.640] intelligence. So thus the words of
+- [02:41.840] historian David Hackett Fiser. Gage
+- [02:44.800] would have to strike at the heart of the
+- [02:46.640] rebel movement and it with quick
+- [02:50.239] clean blows, preferably with as little
+- [02:53.200] bloodshed as possible.
+- [02:56.000] But it didn't quite work out that
+- [02:58.440] way. It was a disaster instead for the
+- [03:01.680] British. In many ways, the outcome of
+- [03:04.640] Lexington and Conquered provided the
+- [03:07.040] patriots with a great public relations
+- [03:09.840] victory, putting the enemy firmly in the
+- [03:12.879] wrong and keeping him there. Along the
+- [03:16.319] road to conquered was the town of
+- [03:18.280] Lexington, which was not an objective of
+- [03:20.959] Gage's troops. And yet when the British
+- [03:23.360] arrived there at dawn, they encountered
+- [03:26.640] a group of 70 or so minutemen gathered
+- [03:30.080] in the mist on the town common. The men
+- [03:33.599] were there because they'd been warned by
+- [03:36.159] means of the famous midnight ride of
+- [03:38.480] Paul Rivera, who was one of maybe as
+- [03:41.840] many as 60 messengers whom he'd help
+- [03:45.400] organize. pass to inform the scattered
+- [03:48.560] militias in the area that the British
+- [03:51.200] regulars were coming from Boston had
+- [03:54.640] crossed the Charles River at Cambridge
+- [03:57.599] and were now heading west to conquer.
+- [04:00.720] They came to Lexington upon an awkward
+- [04:04.920] confrontation. After some to taunting
+- [04:07.280] shouts and argument coming from both
+- [04:09.959] sides, the patriot militia men appeared
+- [04:13.760] to be beginning to withdraw. And then a
+- [04:17.359] shot was fired. No one knows by whom,
+- [04:21.040] which led to the British opening fire on
+- [04:23.840] the assembled patriots, killing eight of
+- [04:26.960] them. It was more of a skirmish than a
+- [04:29.960] fullthroated battle, but blood was shed
+- [04:33.199] on both sides and deaths on the patriot
+- [04:36.639] side. News spread quickly throughout the
+- [04:39.880] countryside of what was already being
+- [04:42.479] called the massacre at
+- [04:45.000] Lexington. Then the British went on to
+- [04:47.199] conquer where they encountered half
+- [04:49.600] empty storehouses. As the patriots
+- [04:52.320] excellent advanced intelligence had
+- [04:54.360] indicated a move against conquered was
+- [04:57.680] coming and they cleared out most of
+- [05:00.400] their arms and armaments and ammunition
+- [05:02.880] and burned the rest. The regulars
+- [05:05.280] encountered stiff resistance from the
+- [05:08.000] gathered militia troops as they poured
+- [05:11.520] in from the countryside and fought
+- [05:14.560] bravely and truly against the rather
+- [05:18.080] mechanical British. The British lost 14
+- [05:22.000] men in a fight at the conquered North
+- [05:24.080] Bridge, which the terrified regulars
+- [05:27.120] turned tail and ran for their lives,
+- [05:29.680] breaking discipline, disobeying their
+- [05:31.600] officers, and abandoning the wounded. A
+- [05:35.160] disgraceful display. The British began
+- [05:38.160] to retreat to Boston and would face
+- [05:40.560] deadly fire all along the route. Bloody
+- [05:44.960] sniper fire. They were outnumbered,
+- [05:47.520] outmaneuvered at every turn. And in the
+- [05:49.520] end, they limped back to Boston, having
+- [05:52.800] lost three times as many men as the
+- [05:56.280] Americans. And so the war had
+- [06:04.280] begun. But now, a few words about
+- [06:08.080] historical memory, because that, after
+- [06:10.240] all, is why we're here, to remember and
+- [06:13.520] to gain the value of remembering our own
+- [06:16.960] past. Why is it so important to do that?
+- [06:21.199] Much of what we remember Lexington and
+- [06:24.000] Conquered for today flows from a single
+- [06:27.319] poem written in 1860 by Henry Wodsworth
+- [06:31.720] Longfellow. The poem is called Paul
+- [06:33.919] River's Ride. It used to be memorized by
+- [06:38.639] every schoolage child in America. It
+- [06:42.080] opens like this.
+- [06:44.800] Listen my children and you shall hear of
+- [06:47.199] the midnight ride of Paul Rivere on the
+- [06:50.160] 18th of April in 75. Hardly a man is now
+- [06:54.319] alive who remembers that famous day and
+- [06:58.440] year. It's really such an infectious
+- [07:02.000] poem you catch it has the rhythm. It has
+- [07:05.440] is a riven of rhythm of drum taps.
+- [07:08.400] Listen my children and you shall hear
+- [07:10.400] the midnight ride of Paul revered.
+- [07:14.880] But why did Longfellow address the poem
+- [07:17.360] to
+- [07:18.360] children? Surely children were not the
+- [07:20.720] only audience he had in mind. Maybe not
+- [07:23.039] even the primary audience he had in
+- [07:24.800] mind. No, but he's indicating something.
+- [07:29.039] He's indicating that his poem is
+- [07:30.880] primarily meant as an expression of a
+- [07:34.400] precious memory, a memory of something
+- [07:38.319] that needs to be preserved, needs to be
+- [07:41.520] passed along. to successive
+- [07:44.919] generations lest it be lost. The memory
+- [07:48.960] in this case of Paul Rivere and his
+- [07:52.240] heroic deeds. To be sure, the poem does
+- [07:56.080] not provide a fully accurate rendering
+- [07:58.639] of the events that took place in those
+- [08:00.680] days. For that, I recommend you turn to
+- [08:03.520] David Hackett Fischer or other
+- [08:06.360] historians who have covered that
+- [08:08.720] territory.
+- [08:10.240] But the poem does something different.
+- [08:12.960] It conveys the essential spiritual
+- [08:16.080] meaning of the events, the legacy they
+- [08:19.280] had left with us, a meaning that we can
+- [08:23.840] and should and must make our own. And it
+- [08:27.520] conveyed that meaning at a crucial
+- [08:29.360] moment in American history. The poem was
+- [08:32.880] composed in
+- [08:34.360] 1860 on the cusp of our greatest
+- [08:37.279] national crisis and trial. the American
+- [08:40.560] Civil War. We were being called to look
+- [08:44.040] back, I long fellow, just as Abraham
+- [08:47.200] Lincoln urged Americans to heed the
+- [08:50.000] mystic chords of memory when he's
+- [08:52.240] inaugurated as president and to remember
+- [08:55.519] the spirit of 76 and their heroic
+- [08:59.040] forebears. So Longfellow reminded them
+- [09:02.880] of a hero of Lexington and conquered on
+- [09:06.399] the very moment when the nation was
+- [09:08.720] entering the great trial, the great
+- [09:12.959] crisis of
+- [09:19.880] revolution. The poem concludes too with
+- [09:22.560] a haunting prediction that speaks to our
+- [09:26.720] moment as well. And let me close with
+- [09:29.279] that.
+- [09:30.640] For born on the night wind of the past,
+- [09:33.839] through all our history to the last, in
+- [09:36.880] the hour of darkness and peril and need,
+- [09:39.760] the people will waken and listen to hear
+- [09:44.399] the hurrying hoof beatats of that steed
+- [09:47.600] and the midnight message of Paul Rivere.
+- [09:52.000] If Longfellow is right, the deeds of
+- [09:54.000] Lexington and conquered exemplifying
+- [09:56.720] enduring qualities of the character of
+- [09:59.519] the American people that will continue
+- [10:02.160] to manifest themselves if we have the
+- [10:05.440] willingness to call on those memories,
+- [10:08.560] the capacity to respond to darkness with
+- [10:12.920] light, to peril with energy and
+- [10:16.760] determination, boyed by the knowledge
+- [10:19.760] that others have done these things
+- [10:22.160] before us and in a sense for
+- [10:25.640] us. What was done before can be done
+- [10:30.279] again. Thank you.
+- [10:34.230] [Music]
+- [10:57.990] [Music]
+- [11:04.470] [Music]
+- [11:10.730] [Music]

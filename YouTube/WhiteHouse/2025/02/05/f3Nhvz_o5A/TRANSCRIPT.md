@@ -1,0 +1,580 @@
+<!-- source: https://www.youtube.com/watch?v=_f3Nhvz_o5A -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: _f3Nhvz_o5A -->
+<!-- date_published: 2025-02-05T21:18:46+00:00 -->
+<!-- date_accessed: 2026-06-02T02:54:05.222496+00:00 -->
+
+# Transcript: President Trump Signs No Men in Women's Sports Executive Order Into Law
+
+- [00:11.120] Female Speaker: Ladies and gentlemen,
+- [00:12.750] the President of the United States.
+- [00:51.420] The President: Thank you very much.
+- [00:54.840] This is a nice crowd, isn't it?
+- [00:57.930] You've been waiting a long time for this.
+- [01:00.270] So have I, actually.
+- [01:02.350] It was so ridiculous, but here we are.
+- [01:06.900] And this doesn't have to be long,
+- [01:08.340] it's just all about common sense.
+- [01:10.910] Doesn't have to be long. In a few moments,
+- [01:13.970] I'll sign a historic executive order to ban men
+- [01:18.110] from competing in women's sports.
+- [01:20.080] It's about time.
+- [01:34.740] Under the Trump administration,
+- [01:36.520] we will defend the proud tradition of female athletes
+- [01:40.270] and we will not allow men to beat up, injure,
+- [01:43.670] and cheat our women and our girls.
+- [01:45.910] From now on, women's sports will be only for women,
+- [01:58.340] but before going further,
+- [01:59.690] I want to share some very exciting news from our military.
+- [02:03.980] After years of shrinking force numbers at levels
+- [02:08.230] that nobody has ever seen before,
+- [02:10.200] four years of this, we went through,
+- [02:12.740] and missed recruiting targets every single month,
+- [02:16.150] it was just announced that in December,
+- [02:17.980] the U.S. Army had its single best recruitment
+- [02:20.890] in more than 15 years. Big.
+- [02:29.230] Every single day,
+- [02:30.510] nearly 350 new soldiers enlisted to defend our nation,
+- [02:35.280] and they're very, very happy to have done so.
+- [02:38.400] We've done lots of interviews and we asked
+- [02:41.400] why this was taking place now,
+- [02:43.430] and they just said there's a spirit about our country
+- [02:45.660] that they haven't seen in many, many years,
+- [02:48.180] and I happen to agree with that.
+- [02:54.100] But it really is clear proof
+- [02:55.700] that the spirit is sweeping our armed forces.
+- [02:59.460] And we have a great leader in Pete, as you know.
+- [03:03.790] We all know Pete so well. He's going to be fantastic.
+- [03:06.710] And so many of our great heroes.
+- [03:09.060] And people are starting to understand
+- [03:10.870] what hero is all about,
+- [03:12.480] so that is something that is very important.
+- [03:15.680] We've gotten the woke lunacy out of our military,
+- [03:22.590] and now we're very importantly getting it
+- [03:26.020] out of women's sports.
+- [03:27.540] That's taking place very strongly.
+- [03:33.040] So in recent years,
+- [03:34.350] the radical left has waged an all-out campaign
+- [03:37.230] to erase the very concept of biological sex
+- [03:40.290] and replace it with a militant transgender ideology.
+- [03:44.610] You've heard a little bit about this, haven't you?
+- [03:46.610] Just a little bit. Does anybody agree with them?
+- [03:50.100] Audience: No.
+- [03:51.300] The President: It would be not a good thing
+- [03:52.670] to say yes right here.
+- [03:55.230] Female athletes have been forced onto the front lines
+- [03:58.530] and men claiming to be girls
+- [04:00.660] have stolen more than 3,500 victories.
+- [04:03.630] That's a lot.
+- [04:04.890] And invaded more than 11,000 competitions designed for women.
+- [04:09.460] Last year, a male cyclist posing as a woman
+- [04:13.090] competed in the 800-mile Arizona Trail race,
+- [04:16.640] a very big deal in cycling,
+- [04:19.930] and obliterated the woman's course record
+- [04:22.100] by nearly five and a half hours.
+- [04:25.400] Sounds like a lot, doesn't it? Five and a half hours.
+- [04:29.550] But you have to hear the weightlifting records.
+- [04:31.440] If you think that's bad, the weightlifting's worse.
+- [04:36.110] In 2023, a man in women's powerlifting
+- [04:40.500] broke two world records and outlifted his closest female
+- [04:44.580] opponent in one event by 440 pounds.
+- [04:51.220] And they continue to defend themselves, Mr. Congressman.
+- [04:54.390] You know that, right?
+- [04:55.620] They continue to defend themselves.
+- [04:58.180] We hope they continue onward
+- [04:59.620] because I don't think we can lose a race.
+- [05:03.000] This was one of the big reasons that we all won
+- [05:05.170] and it's one of the big reasons that we had a record,
+- [05:08.080] a landslide like they haven't seen before, very often, anyway.
+- [05:13.500] And who could forget last year's Paris Olympics,
+- [05:16.300] where a male boxer stole the woman's gold medal
+- [05:18.950] after brutalizing his female opponent so viciously
+- [05:22.430] that she had to forfeit just after 46 seconds,
+- [05:25.610] and she was a championship fighter.
+- [05:27.900] And actually they had two women, or two people that transitioned,
+- [05:31.690] and both of them won in gold medals
+- [05:34.290] and they won them very convincingly.
+- [05:37.370] But all of that ends today
+- [05:38.610] because with this executive order,
+- [05:40.500] the war on women's sports is over.
+- [06:03.630] Thank you, everybody.
+- [06:04.840] Audience: Thank you.
+- [06:10.760] The President: Great. Great.
+- [06:20.970] Okay. It should have been done long ago, actually.
+- [06:23.700] Audience: [inaudible 00:06:14].
+- [06:25.320] The President: Thank you. Thank you very much.
+- [06:28.950] With my action this afternoon, we're putting every school
+- [06:31.800] receiving taxpayer dollars on notice
+- [06:34.060] that if you let men take over women's sports teams
+- [06:37.340] or invade your locker rooms,
+- [06:40.040] you will be investigated for violations of Title IX
+- [06:43.590] and risk your federal funding.
+- [06:44.990] There will be no federal funding.
+- [06:55.280] So this will effectively end the attack
+- [06:57.390] on female athletes at public K-12 schools,
+- [07:00.840] and virtually all U.S. colleges and universities.
+- [07:03.610] I don't think we've missed anything,
+- [07:04.940] but if we do, we'll make it up very quickly with an order,
+- [07:09.620] and I don't think we will at all.
+- [07:11.880] Before we go on, I want to thank so many people
+- [07:14.810] that have worked so hard in the political establishment
+- [07:18.260] and they're before me largely.
+- [07:20.410] And I think I'm going to miss a few,
+- [07:22.730] it always happens when you do this,
+- [07:24.320] but it's just one of those things.
+- [07:25.800] But we have many senators here, many governors here,
+- [07:29.320] many state attorneys generals here.
+- [07:33.610] They're all over the place, actually, I see.
+- [07:36.150] Some of them went after me, but they failed.
+- [07:50.220] And they're really friends
+- [07:51.430] and they're friends of women's sports,
+- [07:53.400] that I can tell you. So, Senator Marsha Blackburn.
+- [07:56.970] Where's Marsha? Hi. Senator Katie Britt.
+- [08:04.450] Thank you, Katie. Mike Lee. Where's Mike?
+- [08:10.560] Mike. I love his new haircut. I love that haircut, Mike.
+- [08:17.630] He just said the hell with it, right?
+- [08:21.410] I think you look great. Senator Cynthia Lummis.
+- [08:25.870] Cynthia, where are you? Cynthia?
+- [08:27.590] Hi, Cynthia. Doing a good job. And Roger Marshall.
+- [08:32.340] Thank you, Roger. Great. Markwayne Mullin, Oklahoma.
+- [08:38.260] I love Oklahoma. I don't know what it is.
+- [08:42.250] Oklahoma, I went 77 out of 77 counties.
+- [08:46.070] It's never been done.
+- [08:47.420] Second was Ronald Reagan, 56, right?
+- [08:50.990] Yeah. And Tommy Tuberville, a great coach.
+- [08:59.570] You know, his quarterback was named Mahomes.
+- [09:02.850] He was a great college coach.
+- [09:04.900] And I said, How good was he? He said,
+- [09:07.670] You don't want to know how good. He made me into a great coach.
+- [09:11.270] He's a pretty good quarterback, right?
+- [09:14.450] Yeah, he was very good. He is a good guy too.
+- [09:17.990] Also, governors,
+- [09:19.210] we have Governor Glenn Youngkin of Virginia.
+- [09:22.020] Thank you, Glenn. Good job.
+- [09:26.210] Bill Lee of Tennessee. Bill, thank you.
+- [09:30.950] Jeff Landry, Louisiana. Thank you, Jeff.
+- [09:35.790] Kim Reynolds of Iowa. Thank you.
+- [09:39.600] We're trying to move education back to the States.
+- [09:42.960] You do know that, we're making a big move
+- [09:44.870] and we're counting on Linda McMahon, Linda McMahon,
+- [09:50.060] and sitting next to you is… The new star is born.
+- [09:54.450] Karoline, congratulations. You've done great. New star.
+- [09:59.720] Star is born. Patrick Morrissey.
+- [10:03.690] Patrick, congratulations. Great race.
+- [10:08.970] A great friend of mine and he's really helped us at the border.
+- [10:11.750] Done a great job. Of Texas, Greg Abbott.
+- [10:15.190] Thank you, Greg.
+- [10:20.970] Jim Pillen, where are you? Jim, very good. Very good.
+- [10:25.480] Are you feeling good? He had a bad fall.
+- [10:28.700] You doing all right, huh? Good. You look great.
+- [10:32.520] Brad Little, Brad. Thank you, Brad.
+- [10:34.800] Good job. Good job.
+- [10:38.020] You like education going back to your state,
+- [10:40.420] you'll make it top, right?
+- [10:42.730] Just so people understand, in the education world,
+- [10:46.590] we're ranked very, very poorly. We're 38, 39, and 40.
+- [10:50.410] Out of 40 countries, we're at the bottom of the pack
+- [10:53.440] almost always or very close to it.
+- [10:56.370] That just came out. We're 40 out of 40,
+- [10:59.110] and if we move it back to the states,
+- [11:01.430] I will guarantee you that if you take Idaho,
+- [11:04.700] you take Iowa, you take almost any of the states
+- [11:07.580] that I'm looking at right now, they'll be as good as Norway…
+- [11:11.490] You have Norway, you have Sweden, you have Denmark.
+- [11:14.700] I must say you have China that's very high in the pack,
+- [11:17.060] which is no longer we can say it has to be a small area.
+- [11:20.230] China's very big, but they do a very good job.
+- [11:23.170] But we'll have at least 35 of our states
+- [11:26.740] that will be as good or better than any of those countries
+- [11:29.980] and we have to get it done.
+- [11:36.050] Attorney General Steve Marshall.
+- [11:38.200] Steve, thank you very much, Steve, wherever you may be.
+- [11:42.330] General Tim Griffin, thank you. Thank you.
+- [11:48.840] A person who was so wonderful, Brenna Bird.
+- [11:54.770] Where are you, Brenna? Brenna Bird. Thank you.
+- [11:59.620] She supported me before people
+- [12:02.570] wanted to support me, right, Brenna?
+- [12:04.260] Ms. Bird: I love you.
+- [12:06.280] The President: Wow, thank you very much.
+- [12:07.980] I appreciated it. Andrew Bailey, great job.
+- [12:12.170] Where's Andrew? Great.
+- [12:14.120] Stand up, Andrew, one of the great Attorney Generals.
+- [12:17.340] Thank you very much.
+- [12:18.730] One of the greats, really, and Jason Miyares.
+- [12:23.580] Thanks, Jason.
+- [12:28.910] And now we get back to our members of Congress
+- [12:32.280] and we'll go quickly, but it's a great group of people.
+- [12:36.420] Steve Scalise is right in front here.
+- [12:38.510] What a brave guy Steve is.
+- [12:42.750] Steve went through a lot and he proved one thing to me,
+- [12:45.680] only one thing, that his wife loved him.
+- [12:49.070] His wife loves him because I went to the hospital that night
+- [12:51.930] and he was not given even a shot.
+- [12:54.860] Right, Mike?
+- [12:56.240] And I was with him and I was with his wife
+- [12:58.300] and she was devastated. She was really devastated,
+- [13:02.040] and I've been to similar situations,
+- [13:04.560] not quite as bad, but the wives were not so devastated
+- [13:07.710] and I can tell you that great wife of yours loves you.
+- [13:13.530] And what you've done is incredible.
+- [13:14.950] The way you've come back, it's…
+- [13:17.360] You look better now than you did before it happened,
+- [13:21.150] but nobody wants go through that.
+- [13:24.110] Yeah, it's amazing.
+- [13:25.900] Tom Emmer, doing a fantastic job.
+- [13:28.040] Thank you, Tom. Great job.
+- [13:33.710] Lisa McLean. Lisa?
+- [13:39.410] Hi, Lisa. Hi. Good job. Virginia Foxx. Hi, Virginia.
+- [13:46.980] Tim Wahlberg, Michigan. Tim, great.
+- [13:52.760] Jason Smith, great man on taxes.
+- [13:56.260] Great man on… How are the taxes? Doing okay?
+- [13:59.660] We're going to get good things passed, I hope.
+- [14:03.020] Juan Ciscomani, Arizona.
+- [14:09.730] Where are you, Juan? Hello, Juan. Stand up, Juan.
+- [14:13.740] You look so good. You always look good.
+- [14:17.170] Kevin Kiley. Kevin, wherever you may be…
+- [14:23.020] What happened? How come he had no applause?
+- [14:30.870] Lauren Boebert. Lauren Boebert. Very much a leader in this.
+- [14:35.550] Thank you, Lauren.
+- [14:38.240] Kat Cammack, Florida. Thank you, Kat.
+- [14:44.590] Byron Donnells. He's doing good. Byron's doing good.
+- [14:51.360] You're doing good, Byron. Laurel Lee.
+- [14:56.320] Thank you, Laurel. Thank you. Great job.
+- [15:00.620] Anna Paulina Luna. Thank you. Thank you, Anna.
+- [15:06.860] Greg Steube hit a home run wearing a Trump cap,
+- [15:11.570] the only one to hit a home run out of the park
+- [15:14.570] during your crazy baseball game, right?
+- [15:17.930] I think I will come. I think I'll come.
+- [15:20.170] If you're playing, I'll come.
+- [15:22.520] Somebody that's very shy, this is a very shy person
+- [15:26.960] but she's trying to break out of it,
+- [15:30.030] Marjorie Taylor Greene.
+- [15:39.120] Victoria Sparks. Thank you, Victoria. Great job.
+- [15:44.590] Ashley Henson. Ashley, thank you.
+- [15:49.160] Mariannette Miller-Meeks. Good job you did. Good job.
+- [15:54.310] Great job. Mary Miller. Hi, Mary.
+- [16:02.170] Julia Letlow. Hi, Julia.
+- [16:08.290] Claudia Tenney from New York.
+- [16:10.740] Claudia. Hi, Claudia. Hi. Great job.
+- [16:15.880] Nicole Malliotakis. Hi, Nicole. Doing good.
+- [16:22.300] I saw a great poll with you, Nicole.
+- [16:25.900] Michelle Fischbach. Thank you. Great job.
+- [16:32.180] Anne Wagner, Missouri. Thanks.
+- [16:38.070] Sherry Biggs, South Carolina. Thanks, Sherry. Great job.
+- [16:45.040] Nancy Mace. Where's Nancy? She's something.
+- [16:49.630] Oh, are you a believer in what we're doing, Nancy?
+- [16:52.950] Nancy takes it on right from the start, right?
+- [16:56.970] Would you like to say something?
+- [16:58.350] Would you like to say we're doing the right thing?
+- [17:00.280] Ms. Mace: You're doing absolutely right
+- [17:02.080] all across the country.
+- [17:04.870] The President: Good. Good. Thank you very much.
+- [17:06.220] Thank you, Nancy. Stephanie Bice, Oklahoma.
+- [17:13.720] Oklahoma. Thanks, Stephanie. Diana Harshbarger.
+- [17:21.300] Thanks, Diana. Good job. Tim Burchett.
+- [17:27.290] Tim, I watched you on television the other day.
+- [17:30.810] You were unbelievable. You ripped that guy apart.
+- [17:34.530] Man, that poor guy, he started getting a little fresh
+- [17:37.090] with Tim and Tim just ripped him apart.
+- [17:39.240] That was beautiful. I actually left a message.
+- [17:42.070] And Marsha Black.
+- [17:43.360] Oh, that's good. Great job, Tim.
+- [17:51.210] Monica De La Cruz. Great job, Monica.
+- [17:58.770] Ronnie Jackson. Ronnie… Dr. Ronnie.
+- [18:04.980] He's a great doctor, a great admiral,
+- [18:07.430] and a great congressman, right? Pretty good.
+- [18:10.970] He has his choice.
+- [18:13.400] What do you like doing best, Ronny?
+- [18:15.450] Mr. Jackson: I like being your doctor best.
+- [18:16.990] The President: Awesome.
+- [18:18.940] Who is the healthiest patient you ever had?
+- [18:23.530] Mr. Jackson: Donald Trump.
+- [18:25.920] The President: You know why I liked him?
+- [18:27.740] The fake news asked, he had Obama,
+- [18:32.080] Bush and Trump in the White House.
+- [18:34.090] He was the White House doctor,
+- [18:36.150] and they asked him, "Who's the healthiest of the three?
+- [18:39.980] He said, "It's not close. It's Donald Trump."
+- [18:43.060] And from that moment, I love this guy.
+- [18:47.400] Thank you. Ronny.
+- [18:50.160] Wesley Hunt from Texas. Hi, Wesley.
+- [18:57.460] Beth Van Duyne. Beth from Texas. Thanks, Beth.
+- [19:04.190] Burgess Owens, a great athlete, an NFL star.
+- [19:08.020] An NFL star. Jen Kiggans from Virginia.
+- [19:15.580] Thank you. Thank you, honey.
+- [19:18.690] Thank you very much, Jen. I appreciate it.
+- [19:21.150] Harriet Hageman, what a lawyer. One of the best,
+- [19:27.150] one of the most talented lawyers you'll ever see.
+- [19:29.450] What she did to her opponent was horrible.
+- [19:33.520] Let's see. Who was her opponent? Let's see.
+- [19:36.620] Oh, does anybody remember her opponent?
+- [19:38.790] We tend to forget. We forgot that one, huh?
+- [19:42.470] And your speaker. I'm going to introduce him later.
+- [19:44.620] Ronny, your speaker has been fantastic.
+- [19:46.860] Stand up, Mike. He's great. What a good man.
+- [19:54.010] A really good man. Also, some friends of ours,
+- [19:57.330] Sage Steele has been very strong on the issue.
+- [20:00.990] Sage, thank you. Thank you very much.
+- [20:11.130] Thank you. Thank you. Great job. Tiffany, Justice, Tina
+- [20:16.310] Descovich, founders of Moms for Liberty,
+- [20:19.820] and they honored me and it was a great honor.
+- [20:22.470] And thank you very much, both of you.
+- [20:23.900] Thank you. Heather Higgins,
+- [20:27.160] Andy Bottner, Victoria Coley from Independent Women's Forum.
+- [20:32.700] It's a fantastic group of people
+- [20:34.420] that fought very hard on this issue.
+- [20:36.110] I think everybody in this room
+- [20:37.480] really fought very hard on this issue.
+- [20:40.020] Kim Fletcher. You know Kim?
+- [20:49.660] Debbie, I think Debbie's here. Kraulidis.
+- [20:53.700] Kraulidis, from also Moms of America.
+- [20:57.750] And Penny Nance, of course CEO of the Concerned Women
+- [21:01.810] for America. That is a lot of people.
+- [21:03.570] Thank you very much, Penny. Good job you do.
+- [21:05.520] That's a lot of people. Can I give…
+- [21:07.630] Here, why don't you hold that? You'll sell it tonight?
+- [21:12.060] So just to finish up,
+- [21:14.950] I'm directing the Secretary of State, Marco Rubio,
+- [21:18.500] who by the way is doing a fantastic job.
+- [21:26.540] In fact, he just left Panama.
+- [21:27.920] We're trying to take back the Panama Canal.
+- [21:29.920] Little things like that, it'll all happen.
+- [21:33.530] But Marco is going to make clear to…
+- [21:35.880] The International Olympic Committee is there,
+- [21:38.170] and he's going to make it as clear as anybody can make it,
+- [21:41.010] that America categorically rejects transgender lunacy.
+- [21:45.300] We want them to change everything having to do
+- [21:46.850] with the Olympics
+- [21:48.080] and having to do with this absolutely ridiculous subject
+- [21:52.040] that we even have to talk about this subject.
+- [21:54.020] If you went back 10 years or 15 years
+- [21:57.010] and you would move forward and listen to this, you'd say,
+- [21:59.980] "What the hell are they talking about?"
+- [22:01.410] This isn't impossible.
+- [22:02.620] But you have people out there, Democrats,
+- [22:04.210] that are still totally in favor. They can't win the argument.
+- [22:08.750] They can't win a debate. They look like fools.
+- [22:10.870] And they continue to go on and it's okay because as long
+- [22:14.390] as they do this and open borders and all of the other things,
+- [22:17.400] they talk about transgender everything,
+- [22:20.330] all they want to do is transgender and men
+- [22:22.960] playing in women's sports and all of these crazy things.
+- [22:25.870] And if they continue, I think we're going to end up…
+- [22:29.500] Ultimately it's not going to matter
+- [22:30.930] because we're never going to go along with them
+- [22:32.850] and we're just going to keep winning elections.
+- [22:34.490] Right, Mike?
+- [22:39.550] So when the Olympics comes to Los Angeles,
+- [22:43.530] I was responsible for getting the Olympics.
+- [22:45.630] And I said, "Oh, boy, this is terrible
+- [22:47.370] because I got the Olympics and I won't be president."
+- [22:50.880] And then what happened is that an election,
+- [22:53.060] strange things happened in that election.
+- [22:55.940] So I missed four years and now I have the Olympics.
+- [22:58.580] It was circuitous. It was a circuitous situation.
+- [23:04.370] And we also have the World Cup coming,
+- [23:06.120] which is going to be fantastic.
+- [23:07.610] And we have, as you know, very importantly,
+- [23:09.980] 250 years coming. That's a big one next year.
+- [23:12.920] So that's a very big one. But in Los Angeles in 2028,
+- [23:16.550] my administration will not stand by
+- [23:18.550] and watch men beat and batter female athletes.
+- [23:22.760] And we're just not going to let it happen.
+- [23:24.560] And it's going to end and it's ending right now.
+- [23:27.240] And nobody's going to be able to do a damn thing about it
+- [23:30.050] because when I speak, we speak with authority.
+- [23:37.910] And for the same reason. Just to make sure,
+- [23:40.800] I'm also directing our Secretary of Homeland Security,
+- [23:45.350] Kristi Noem, who's also doing out…
+- [23:47.410] She's out there with you, Greg, a fantastic job.
+- [23:50.140] She's unbelievable.
+- [23:51.430] I was watching her riding yesterday on a horse.
+- [23:54.530] She was as good as anybody. She's very good.
+- [23:57.650] To deny any and all visa applications
+- [24:00.600] made by men attempting to fraudulently enter
+- [24:03.120] the United States
+- [24:04.410] while identifying themselves as women athletes,
+- [24:08.350] try and get into the games
+- [24:09.620] maybe where they are unable to get into the games.
+- [24:15.430] We're honored to be joined today by many incredible
+- [24:18.440] advocates for women's sports,
+- [24:20.100] including the brave swimmer at the forefront of this battle.
+- [24:23.930] And Riley Gaines is a person that I've been watching.
+- [24:31.390] Yeah, good job. She fought hard.
+- [24:42.820] Riley was a 12-time All-American.
+- [24:45.450] Well that's pretty good. 12-time
+- [24:47.030] All-American who sacrificed countless hours in the pool
+- [24:50.620] just for a chance at the title that's so important to her.
+- [24:54.130] She gave up everything and just gave everything she had.
+- [24:59.130] But then the league forced her to share a spot on the podium
+- [25:03.730] with a male swimmer who took her trophy
+- [25:06.340] while the media celebrated this stolen glory.
+- [25:09.440] And Riley is just a tremendous athlete.
+- [25:12.940] And it was a very unfair situation.
+- [25:14.700] I watched it. A lot of people watched it.
+- [25:16.250] It was ridiculous, frankly. But I want to thank Riley.
+- [25:19.160] She really has been in the forefront.
+- [25:20.620] People that aren't that well-versed
+- [25:23.340] in this would say that she was the leader.
+- [25:27.150] And great job, Riley. Thank you very much.
+- [25:30.390] Appreciate it.
+- [25:34.950] And also with us is another great champion for women,
+- [25:38.920] Payton McNabb. In high school,
+- [25:41.440] Payton was a rock star athlete, where is Payton?
+- [25:49.940] Where is Payton? I like Payton. Nice to see you. Good job.
+- [25:53.290] Ms. McNabb: Good to see you.
+- [25:54.580] The President: Good job. Looks like a good athlete to me.
+- [25:57.890] In high school, Payton was a rock star athlete
+- [26:00.660] preparing for a future in college sports,
+- [26:02.820] but in one volleyball match, a much taller and stronger male
+- [26:06.820] spiked the ball right in her face,
+- [26:08.730] knocking her unconscious,
+- [26:10.590] partially paralyzing her right side,
+- [26:12.900] and leaving her with a traumatic brain injury.
+- [26:17.060] And Payton said it was 100% avoidable
+- [26:20.600] if only my rights as a female athlete
+- [26:22.510] had been more important than a man's feelings.
+- [26:25.310] And we can't let it happen. And it's not going to happen.
+- [26:35.460] Not going to happen anymore, Payton.
+- [26:38.110] It's not going to happen. Are you okay? Are you good?
+- [26:40.160] Ms. McNabb: I'm doing a lot better.
+- [26:41.400] The President: Good. Ms. McNabb: Thank you.
+- [26:42.600] The President: That's good. Thank you.
+- [26:44.310] We're also pleased to be joined
+- [26:45.730] by many incredible leaders on this issue.
+- [26:48.410] And as I mentioned before, Speaker Mike Johnson,
+- [26:51.230] and he has been so strong on this issue
+- [26:54.170] because he's a man of common sense.
+- [26:55.410] I mean, it really is.
+- [26:56.620] It's common sense more than anything else.
+- [26:58.310] So Mike, thank you. Great job. Great job in everything.
+- [27:02.160] He's got the easiest job of any politician in history.
+- [27:06.260] He's got the nicest like 200 and almost 20.
+- [27:09.810] It varies. It's between.
+- [27:11.850] Depends on how many people I take for my administration.
+- [27:14.530] It goes up and down a little bit,
+- [27:16.740] but I promised I won't take anymore.
+- [27:18.800] I just wanted to see how good he was.
+- [27:20.370] I was testing you and we have some great people,
+- [27:23.380] but he's filling them up rapidly.
+- [27:24.950] He had some big wins the other day.
+- [27:26.390] Very big wins the other day.
+- [27:28.450] But you've done a fantastic job. Thank you very much, Mike.
+- [27:31.620] We appreciate it. We all appreciate it.
+- [27:36.450] And also the dozens of members of the house and senator,
+- [27:39.630] and governor's that we, attorney generals,
+- [27:41.930] so many people and the people outside that can't even get in.
+- [27:44.500] This room is packed and I offered to build a ballroom.
+- [27:49.080] I'm very good at building ballrooms.
+- [27:50.460] I build beautiful ballrooms
+- [27:51.730] and I actually offered to build a ballroom for the White House.
+- [27:55.170] I was going to build it right there.
+- [27:56.570] This was going to be the reception room.
+- [27:58.410] And then I was going to build a beautiful, beautiful ballroom.
+- [28:01.030] I have at Mar-a-Lago. As beautiful as it can be,
+- [28:03.880] it was going to cost about a hundred million dollars.
+- [28:06.030] I offered to do it and I never heard back.
+- [28:09.830] I offered to do it to the Biden administration,
+- [28:13.420] very active administration. They didn't hear back.
+- [28:17.240] And I said again and again,
+- [28:18.630] three, four times I said to top people
+- [28:20.430] and they just didn't know what to do.
+- [28:24.310] They sort of said this is good, but they had no idea.
+- [28:27.590] So I'm going to try and make the offer to myself.
+- [28:32.080] We could use a bigger room, right Marsha?
+- [28:34.150] We could use a bigger room. President.
+- [28:38.720] Would you like to build? Yeah, I would.
+- [28:40.060] We could use at the White House.
+- [28:41.570] It would actually be a beautiful addition.
+- [28:43.720] It's going to cost nothing.
+- [28:44.970] I'll spend the whole thing myself.
+- [28:46.590] We'll do a big beautiful room,
+- [28:48.450] but we could use it at the White House.
+- [28:49.820] You know what they do when they have a big ceremony,
+- [28:53.690] put up a tent and somehow
+- [28:55.820] I think we've outgrown the tent stuff, right?
+- [28:57.770] Don't you think? So, we'll see if they can.
+- [29:00.360] We'll see if Trump will approve it.
+- [29:04.720] But the actions we're taking today
+- [29:06.380] are the latest in a sweeping effort
+- [29:08.430] to reclaim our culture and our laws from the radical
+- [29:11.330] left crusade against biological reality.
+- [29:15.510] On day one, I made it official
+- [29:17.990] and I'm making it official policy
+- [29:19.920] of the United States government that there is two genders.
+- [29:24.320] We have two genders. What might they be?
+- [29:26.830] Man and woman, right? Male and female.
+- [29:32.450] Male and female.
+- [29:37.080] Can't think of too many others, but it's pretty amazing.
+- [29:41.040] I rescinded federal funds to, and this is so important,
+- [29:45.540] to any program that promotes transgender ideology
+- [29:48.830] using taxpayer dollars.
+- [29:50.260] We're not going to do it. We're not going to do it.
+- [29:55.900] And last week I effectively banned the chemical castration
+- [29:59.390] and surgical mutilation of minor children.
+- [30:17.270] Can you believe I even have to say that, I banned…
+- [30:19.850] Governor. I banned… That's just like-
+- [30:23.260] Who would ever think we have to even say that?
+- [30:25.760] Last week I banned… Every day
+- [30:28.400] we're ending the extremism of the last four years.
+- [30:32.290] We have other things that are just as ridiculous,
+- [30:34.320] not having to do with the subject,
+- [30:36.390] but just as ridiculous. Open borders,
+- [30:38.650] where people are allowed to pour in from all over the world.
+- [30:42.120] From jails and prisons and mental institutions
+- [30:44.910] and insane asylums. People that are very sick,
+- [30:47.730] people that are very evil killers,
+- [30:49.370] murderers, many of them murdered more than one person.
+- [30:53.900] And we have to justify the fact that we're moving them out.
+- [30:57.880] We are moving them out in tremendous numbers.
+- [30:59.830] Tom Homan and Christie are doing a fantastic job, but --
+- [31:03.090] and the governor and other governors too,
+- [31:06.200] but that we have to even fight for this stuff
+- [31:09.300] is just incredible.
+- [31:10.500] And the media doesn't want to talk about it
+- [31:13.610] because it's nothing they can talk about.
+- [31:15.980] They just don't want to really talk very much about it.
+- [31:18.610] Serious problem. But we're doing a great job
+- [31:20.540] and the people understand and that's why we won,
+- [31:22.600] in a landslide, they made it easy.
+- [31:26.910] And at some point we have to hope they do come around
+- [31:29.980] because we can never let this happen again.
+- [31:31.890] What's happened to our country,
+- [31:33.100] we can never let this happen again.
+- [31:39.150] So we are restoring sanity and common sense
+- [31:42.960] very simply to our government.
+- [31:44.420] We're defending the rights and safety
+- [31:46.640] and pride of the American people,
+- [31:48.670] including our great, great, great female athletes.
+- [31:52.010] What athletes you are too.
+- [32:05.210] And I am not allowed to say this politically.
+- [32:07.560] It could end my career. They're really beautiful people.
+- [32:10.080] These are beautiful people.
+- [32:13.500] Like everything else, it's a little bit different today.
+- [32:15.870] You're not allowed to say that, because if you call a woman
+- [32:19.120] or a girl, beautiful, that's the end of your career.
+- [32:21.240] But let's take a chance on it.
+- [32:23.070] Mike, let's take a chance. So I'm going to--
+- [32:25.760] I want to thank everybody for being here. It's fantastic.
+- [32:28.310] And this is sort of a big, big day.
+- [32:30.250] It shouldn't have even been necessary to take place.
+- [32:33.190] This started a long time ago and we ended it today.
+- [32:37.320] And I'm going to sign the executive order right now
+- [32:40.240] and everything I said will go into effect immediately. Okay?
+- [33:04.180] Thank you.
+- [33:06.810] You know? If you'd like to gather around me,
+- [33:08.780] I think I'm going to be okay. Come on. Come on.
+- [33:19.680] Secret Services is worried about them.
+- [33:22.870] If we have to worry about them, we have big problems. Okay.
+- [33:27.090] Do you want to have a pen? Do you want do this one?
+- [33:30.080] Watch what I do and then I'm going to give you some pens.
+- [33:31.950] Okay? Are you ready?
+- [33:34.020] What a nice picture this is. Huh, Governor?
+- [33:37.430] You ready? We'll do a good job. Wait, let me press that.
+- [33:44.440] I want to make this a really good signature,
+- [33:47.050] because this is a big one, right?
+- [33:55.360] Oh, I think we have a 10. We have a 10.
+- [34:13.940] Pretty good. Huh? Okay, good.
+- [34:17.050] Now you're going to go out and win those events, right?
+- [34:20.060] Nice to see you all. Great going everybody.

@@ -1,0 +1,1871 @@
+<!-- source: https://www.youtube.com/watch?v=11CnoIJidr8 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 11CnoIJidr8 -->
+<!-- date_published: 2025-02-20T00:06:47+00:00 -->
+<!-- date_accessed: 2026-06-02T02:53:40.586299+00:00 -->
+
+# Transcript: President Trump Participates in the FII PRIORITY Summit
+
+- [00:00.050] Male Speaker: Your royal highnesses,
+- [00:02.580] your excellencies, ladies and gentlemen, dear friends,
+- [00:06.840] welcome to the third edition
+- [00:09.190] of the FII Priority Summit in Miami.
+- [00:12.370] This year, we're starting with an exceptional session.
+- [00:16.770] It is my distinct honor to introduce a man
+- [00:20.560] who is the 45th and 47th president
+- [00:24.470] of United States of America.
+- [00:26.630] This man is a visionary business person,
+- [00:30.450] a media icon, and a political leader, of course.
+- [00:34.600] His impact on the global stage has been profound.
+- [00:38.850] From transforming the real estate industry
+- [00:42.230] to reshaping economic and foreign policy,
+- [00:45.350] his leadership continues to spark dialogue and drive change.
+- [00:50.120] At the Future Investment Initiative Institute,
+- [00:53.210] we are committed to shaping a brighter,
+- [00:56.010] more sustainable future by fostering innovation
+- [01:00.100] and global collaboration.
+- [01:02.460] These are principles that align with the President's
+- [01:05.740] bold approach to leadership and economic growth.
+- [01:09.690] Please, ladies and gentlemen, join me in welcoming 45th
+- [01:14.030] and 47th President of United States,
+- [01:16.430] Donald J. Trump.
+- [03:40.740] THE PRESIDENT: Thank you very much.
+- [03:42.560] (Applause.) What a great group this is.
+- [03:44.720] You have to see outside. It’s going wild outside
+- [03:47.270] with a lot of love for all of us, I guess.
+- [03:48.860] (Laughter.)
+- [03:50.140] But thank you, Richard, for the introduction.
+- [03:52.220] And thank you to all for such a warm welcome.
+- [03:55.670] It’s great to be back in beautiful Miami,
+- [03:57.720] where I’ve actually built a lot of great buildings
+- [04:01.010] with the Dezer family and some others.
+- [04:02.940] We’ve had tremendous success in Miami.
+- [04:04.890] We have Trump Towers in Sunny Isles Beach.
+- [04:08.560] It’s four beautiful buildings right on the ocean.
+- [04:12.000] The Trump Grande —
+- [04:14.220] put the little E on the end for a little —
+- [04:16.170] class it up a little bit. (Laughter.) Trump Grande.
+- [04:19.940] And the 700-acre Doral.
+- [04:23.100] That’s a tremendous country club in the —
+- [04:25.640] it’s actually the most successful country club
+- [04:27.410] in the U.S.,
+- [04:28.630] where I was just given approval to build 1,500 units.
+- [04:32.590] And I couldn’t care less about building units.
+- [04:34.570] When you’re president, who the hell wants to build units?
+- [04:36.530] (Laughter.)
+- [04:37.830] I’ve been building units all my life.
+- [04:40.180] I don’t want to build units,
+- [04:41.490] but they gave us permission to do it.
+- [04:43.800] But today is a tremendous honor
+- [04:47.120] to become the first American president
+- [04:49.150] to address the Future Investment Initiative Institute.
+- [04:52.290] That’s the first one. That’s very — it’s always nice.
+- [04:55.010] (Applause.)
+- [04:58.870] And I want to thank Mayor of Miami Francis Suarez
+- [05:03.850] for being here.
+- [05:05.130] Thank you very much, Francis, wherever you may be.
+- [05:07.460] (Applause.) Hi, Francis.
+- [05:09.620] And thank you for the endorsement when I ran.
+- [05:11.690] I was very appreciative.
+- [05:13.650] Along with the mayor of Miami Beach, Steven Meiner.
+- [05:17.310] Steven, thank you very much. Thank you.
+- [05:19.740] (Applause.) Thank you.
+- [05:21.090] Thank you, Steven. Thank you very much.
+- [05:23.730] And numerous American business leaders, some of the bi- —
+- [05:26.500] biggest business leaders, actually, anywhere in the world,
+- [05:29.220] and many distinguished guests from the Middle East,
+- [05:32.470] and, in particular, the Kingdom of Saudi Arabia —
+- [05:34.710] a special place with special leaders.
+- [05:37.590] (Applause.)
+- [05:42.820] And including FII Institute chairman and governor
+- [05:47.170] of the Public Investment Fund,
+- [05:48.550] which is a seriously big fund, Yasir.
+- [05:51.130] I see you there. Stand up, Yasir.
+- [05:53.280] (Applause.)
+- [05:54.550] Everyone knows Yasir. Thank you. Great guy. Great, great person.
+- [06:00.610] And Finance Minister Mohammed, thank you very much.
+- [06:03.920] Thank you right — thank you very much.
+- [06:05.510] (Applause.)
+- [06:06.800] Good to see you again. That’s pretty good:
+- [06:09.660] finance minister of that part of the world.
+- [06:11.420] That’s not bad. (Laughter.)
+- [06:13.160] Other parts of the world, not so good,
+- [06:14.800] but that one is good. (Laughter.)
+- [06:16.970] And many other senior government leaders.
+- [06:18.940] I also want to recognize
+- [06:20.380] the Kingdom’s ambassador to the United States,
+- [06:22.870] Her Royal Highness Princess Reema.
+- [06:25.170] (Applause.) Ooh, very popular. Very popular.
+- [06:32.110] Wow. That’s very nice. Sitting next to Elon.
+- [06:38.570] Wow, that’s — you couldn’t do better than that, huh?
+- [06:42.420] (Applause.)
+- [06:44.110] As well as my own special envoy to the Middle East,
+- [06:48.100] who has really done a fantastic job, Steve Witkoff.
+- [06:51.290] Thank you, Steve. (Applause.)
+- [06:52.910] He’s been busy. And Michael Waltz is here.
+- [06:56.870] Where is Michael? Michael has been so busy.
+- [06:58.970] They’ve been going back and forth and back.
+- [07:01.080] And a woman who was just voted the most powerful woman an- —
+- [07:06.670] anywhere in the world — (applause)
+- [07:08.180] — no, I’ll go with — I’m going to go with Princess Reema —
+- [07:11.210] but she was voted the most powerful woman
+- [07:13.660] anywhere in the world: Susie Wiles. Thank you.
+- [07:16.840] (Applause.) Thank you.
+- [07:18.200] Most powerful woman, that’s pretty good.
+- [07:21.860] We have to talk to you about that, Susie.
+- [07:23.680] That’s pretty good. (Laughter.)
+- [07:25.250] And also, we all know Jared Kushner, a very special guy.
+- [07:29.550] (Applause.)
+- [07:31.260] Thank you, Jared. Thank you, Jared.
+- [07:34.390] And Elon Musk.
+- [07:35.710] He’s been making a little news lately, hasn’t he, though?
+- [07:38.210] (Applause.) Very positive news. Stand up, Elon.
+- [07:40.600] (Applause.) He’s a great guy.
+- [07:47.430] We did a little show last night.
+- [07:48.920] I heard that it got very good ratings, too, by the way.
+- [07:51.220] We did “Hannity.” Sean Hannity was fantastic —
+- [07:54.630] a fantastic man, a fantastic guy,
+- [07:56.360] and he did a show.
+- [07:57.560] And it was great being on the show with you last night.
+- [08:01.700] I come today with a simple message for business leaders
+- [08:04.800] from all across the nation and all around the world:
+- [08:07.280] If you want to build the future, push boundaries,
+- [08:10.960] unleash breakthroughs,
+- [08:12.280] transform industries, and make a fortune —
+- [08:15.020] because you want to make fortune;
+- [08:16.630] most of you have already made a fortune,
+- [08:18.480] I don’t want to say — (laughter)
+- [08:20.170] — there is no better place on Earth
+- [08:22.050] than the current and future United States of America
+- [08:26.440] under a certain president named Donald J. Trump.
+- [08:28.810] I think that you’re going to do very well.
+- [08:31.590] (Applause.)
+- [08:34.400] They’re saying that November 5th — Election Day —
+- [08:38.040] 2024, will go down as one of the most important days
+- [08:41.060] in the history of our country. They said, “In 129 years,
+- [08:46.020] the most consequential election.”
+- [08:47.870] I don’t know if they’re right about that or not,
+- [08:49.790] but it sounds good.
+- [08:51.650] I wanted to see if I could get a couple of more years tacked on,
+- [08:54.200] but I figured the fight wasn’t really worth it.
+- [08:56.100] One hundred and twenty-nine is a lot.
+- [08:58.540] And as of January 20th, 2025, the dark days of high taxes,
+- [09:02.720] crushing regulations, rampant inflation,
+- [09:06.040] flagrant corruption, government weaponization —
+- [09:09.020] ooh, I know about weaponization —
+- [09:11.410] and total incompetence will be gone forever.
+- [09:15.010] Will be gone forever. (Applause.)
+- [09:18.340] Because the United States is back and open for business,
+- [09:22.010] and the golden age of America has officially begun.
+- [09:25.060] You see it happening. (Applause.)
+- [09:27.880] Since my election, America’s economic engines
+- [09:31.410] have come roaring back to life
+- [09:32.960] in just a very short period of time.
+- [09:34.970] Think of it. From November 5th,
+- [09:37.100] the — the progress that’s been made has been amazing.
+- [09:41.390] The Nasdaq is up nearly 10 percent in just a few months,
+- [09:45.230] and that’s a lot.
+- [09:48.130] The Dow Jones Industrial Average is up 2,200 points.
+- [09:51.830] And Bitcoin has set multiple all-time record highs,
+- [09:55.440] because everyone knows that I’m committed
+- [09:57.270] to making America the crypto capital.
+- [09:59.370] We want to stay — we want to stay
+- [10:01.850] at the forefront of everything, and one of them is crypto.
+- [10:05.630] And Miami seems to be the center of the action,
+- [10:09.310] come to think of it, and maybe it’ll stay there.
+- [10:12.610] Business optimism skyrocketed 42 points —
+- [10:16.070] think of that — in a single month.
+- [10:17.550] The most in history, by far.
+- [10:19.700] That’s the biggest increase in history by not even close.
+- [10:24.350] The ISM index of manufacturing activity
+- [10:27.350] surged into positive territory
+- [10:29.770] for the first time in many years.
+- [10:32.560] Amazing.
+- [10:33.880] And it was just announced — this is an interesting one.
+- [10:36.210] I didn’t realize it was that bad for so long.
+- [10:38.490] But it was just announced by one of the nation’s
+- [10:40.420] most historically accurate and respected pollsters,
+- [10:43.880] Rasmussen, that the number of Americans
+- [10:46.720] who believe our country is on the right track
+- [10:48.930] now exceeds those who think it’s heading in the wrong direction
+- [10:53.020] for the first time in 20 years. Can you believe you that?
+- [10:56.000] Twenty years. (Applause.)
+- [10:59.610] And this is really a seismic 27-point swing
+- [11:04.090] from just before the election.
+- [11:05.540] That’s — nobody has ever seen anything like that one, Yasir.
+- [11:07.940] I want to tell you. That’s a big one.
+- [11:09.550] (Laughter.)
+- [11:10.860] The best and most successful business leaders on Earth
+- [11:13.470] are now racing to invest in the United States.
+- [11:16.250] Since November,
+- [11:17.930] DAMAC has announced plans to invest $40 billion
+- [11:21.170] in the U.S., creating at least 10,000 jobs.
+- [11:24.150] SoftBank has announced investments of between $100-
+- [11:27.870] and $200 billion,
+- [11:29.460] creating at least 100,000 American jobs.
+- [11:32.910] Oracle and OpenAI and SoftBank
+- [11:35.680] are now collectively committing $500 billion
+- [11:38.390] to keep the United States
+- [11:39.700] on the cutting edge of artificial intelligence.
+- [11:42.580] And so many more — I mean, so many companies,
+- [11:46.040] they want to come to the White House
+- [11:47.510] and have a little news conference all the time.
+- [11:50.090] I said, “Why don’t you just announce it?”
+- [11:52.810] But they want to come, and I’ll do that.
+- [11:54.330] I don’t mind doing that.
+- [11:55.570] I say anytime they want to go $10 billion
+- [11:57.380] or more, I’m — I’m there.
+- [11:59.300] (Laughter and applause.) Ten billion or more.
+- [12:03.680] But on his recent visit to the White House,
+- [12:06.150] the prime minister of Japan announced
+- [12:08.660] he anticipates Japanese investment in the United States
+- [12:11.790] of well over a trillion dollars,
+- [12:13.420] and we’re working on an Alaska pipeline already,
+- [12:16.380] which is the closest point to Asia.
+- [12:19.160] And as you know, the ANWR, which we’ve started,
+- [12:23.460] Ronald Reagan couldn’t get it approved.
+- [12:25.090] Nobody could get it approved for so many years.
+- [12:27.370] Couldn’t get it approved. I got it approved.
+- [12:28.920] Actually, I got it approved twice.
+- [12:30.180] I got it approved, and Biden ended it.
+- [12:32.340] That was a shocker.
+- [12:33.570] But we just got it approved again.
+- [12:35.880] And we’re going to be — (applause)
+- [12:37.470] — it’s — it’s probably the largest deposit
+- [12:42.020] maybe anywhere in the world, just by itself.
+- [12:45.120] It’s — they say of similar size to Saudi Arabia,
+- [12:47.800] so we hope that’s correct.
+- [12:49.140] But all of this is only happening
+- [12:51.370] because of the world-changing results of the 2024 election.
+- [12:56.810] We won the House.
+- [12:58.260] We won the Senate, the White House,
+- [13:00.380] and the Electoral College and the popular vote in a landslide.
+- [13:04.250] We also won all seven swing states,
+- [13:07.930] and all 50 states shifted in the Republican direction
+- [13:11.090] for the first time ever. So, every state —
+- [13:13.490] every single state of the 50 states shifted Republican.
+- [13:17.960] That’s never happened before. Either way, it’s never happened.
+- [13:21.710] And 85 percent of counties voted for Trump.
+- [13:24.940] Think of that.
+- [13:26.200] So, you have 2,600 counties versus 525.
+- [13:32.230] Two thousand six hundred, think of that.
+- [13:34.230] That’s why when you look at the election map,
+- [13:36.870] after it was all done — the certified map —
+- [13:40.040] the whole thing was red — 2,600 versus 500.
+- [13:46.680] It’s a big, big dif- —
+- [13:48.080] nobody’s seen anything like it, actually.
+- [13:49.780] So, as a result of this very historic victory,
+- [13:52.630] investors from all over the planet, once again,
+- [13:55.400] have confidence in America’s future
+- [13:57.490] and respect for America’s leaders,
+- [14:00.120] and it’s about time we get a little respect.
+- [14:03.720] The last administration was the worst and most incompetent
+- [14:07.280] in the history of our country, but we are moving quickly to fix
+- [14:10.160] every single disaster Joe Biden created
+- [14:12.960] and make America stronger and more prosperous
+- [14:15.730] than ever before.
+- [14:17.460] (Applause.)
+- [14:23.010] Our first and most urgent mission
+- [14:26.020] is to remove the criminals
+- [14:27.380] that Biden allowed into our country with the ridiculous
+- [14:30.370] and very dangerous open-borders policy.
+- [14:33.340] They came from all over the world.
+- [14:36.250] They came from prisons and jails.
+- [14:38.370] They came from mental institutions and insane asylums.
+- [14:43.740] They were gang members. They were drug lords.
+- [14:47.080] They came from all over,
+- [14:48.730] and they were allowed to come into our country.
+- [14:52.150] And we’re getting them out in record levels,
+- [14:56.380] just like they came in in record levels.
+- [14:58.500] I want to thank Tom Homan and Kristi,
+- [15:02.790] who is just doing — she’s doing a fantastic job —
+- [15:05.890] governor of South Dakota — and Tom Homan, you know,
+- [15:11.220] and they are doing a fantastic job.
+- [15:13.660] (Applause.) And the results are incredible.
+- [15:17.030] And every country is taking them back.
+- [15:20.180] They’re sending their criminals to us,
+- [15:21.530] and they’re all taking them back.
+- [15:22.770] We had a little problem with a couple of them.
+- [15:24.400] That ended very quickly.
+- [15:26.720] And because some said, “We don’t really want
+- [15:28.540] MS-13 back in our country.”
+- [15:30.290] But I said, “Congratulations, you’re taking them back,”
+- [15:32.820] and they take them back.
+- [15:34.800] And, by the way, Europe and other places
+- [15:36.930] ought to start also doing that.
+- [15:39.340] They better start looking at immigration,
+- [15:41.020] because it’s really hurting Europe very, very badly.
+- [15:43.210] And they better get smart
+- [15:44.410] and they better get tough before it’s too late.
+- [15:47.090] We’re also working to end the highest inflation
+- [15:49.410] in our country’s history,
+- [15:50.610] all caused because they played with our energy policy
+- [15:54.190] and wasted money on the Green New Scam
+- [15:56.120] and other things such as that,
+- [15:58.490] and they wasted monies at — at never-seen-before levels.
+- [16:03.500] If Joe Biden had simply held federal
+- [16:05.410] spending at the pre-pandemic levels we had in 2019,
+- [16:10.450] we — right now, we would have virtually no inflation.
+- [16:14.950] We’re trying to balance the budget immediately,
+- [16:17.190] and because of the tariff income, which is really go- —
+- [16:20.860] it’s — it’s already turned out to be amazing, actually.
+- [16:26.180] It’s really meant more for bringing countries
+- [16:29.430] and companies into our country,
+- [16:31.960] but it’s — the numbers are rather staggering,
+- [16:36.980] because we’re the big piggy bank that everybody wants to be.
+- [16:39.560] And they can play games, and they can say,
+- [16:41.220] “Well, there’ll be retribution and, you know,
+- [16:43.600] equal this and that,” but they can’t be equal.
+- [16:46.260] But we want to keep it so that we’re the big piggy bank.
+- [16:48.730] And if we had years like we did the last four years,
+- [16:51.220] that wouldn’t have lasted too long.
+- [16:53.610] So, we’re not promising it, but you know,
+- [16:57.970] all of these things could happen.
+- [16:59.280] We — we hope to balance our budget.
+- [17:01.170] So, I don’t want to promise it,
+- [17:02.520] because if I do and we come about $10 short,
+- [17:06.650] the fake news media back there would say,
+- [17:08.880] “We have breaking news. He did not make it.
+- [17:11.500] He did not make it.”
+- [17:14.050] But we’ll get it done very soon.
+- [17:15.380] It might not be this year, but it could be this year.
+- [17:17.390] Actually, we have a chance at getting it even this year,
+- [17:19.570] which people would be shocked at,
+- [17:20.880] because they were talking about 10 years,
+- [17:22.660] 15 years, 20 years from now.
+- [17:25.510] When I took office last month,
+- [17:26.980] we inherited the consequences of inflation
+- [17:30.410] that was more than four times what it was
+- [17:32.970] when I left four years ago.
+- [17:34.980] Think of that, I left, it was at 1.4 percent.
+- [17:38.610] And the annual government spending over $1.5 trillion
+- [17:43.470] more than projected in 2020 alone — $1.5 trillion.
+- [17:48.010] But under the Trump administration,
+- [17:49.670] all of that is changing faster and more dramatically
+- [17:52.560] than anyone ever thought possible.
+- [17:54.450] They didn’t think it was possible
+- [17:55.670] to do what we’ve done in just a very short period of time.
+- [17:59.300] We’ve accomplished more in four weeks
+- [18:01.050] than most administrations accomplish in four years.
+- [18:04.760] On my first day in office,
+- [18:06.130] I imposed an immediate federal hiring freeze,
+- [18:08.540] a federal regulation freeze, and a foreign aid freeze.
+- [18:12.890] I signed an order
+- [18:14.110] creating the Department of Government Efficiency
+- [18:16.690] and put a man named Elon Musk in charge.
+- [18:19.620] Thank you, Elon, for doing it.
+- [18:21.840] (Applause.) Thank you very much.
+- [18:26.260] And he’s doing a great job.
+- [18:28.020] I wish you could have seen him last night.
+- [18:29.930] It’s really — you know, he’s a very committed person.
+- [18:32.840] He’s a very serious person. And he’s a very high-IQ people.
+- [18:36.440] You know, I like high-IQ people. Not all have to be, but,
+- [18:39.300] you know, it’d be nice to have some people up there that —
+- [18:41.220] (laughter)
+- [18:42.440] — he’s a seriously high-IQ individual.
+- [18:45.700] Now, he’s got his faults also, I will tell you that —
+- [18:48.180] (laughter) — but not too many of them.
+- [18:50.600] Which is now really waging war
+- [18:52.540] on government waste, fraud, and abuse,
+- [18:54.440] and they’re curbing inflation and saving taxpayers billions
+- [18:58.380] and billions of dollars every single day.
+- [19:00.610] And there’s even under consideration a new concept
+- [19:04.640] where we give 20 percent of the DOGE
+- [19:06.940] savings to American citizens and 20 percent
+- [19:10.030] goes to paying down debt,
+- [19:11.340] because the numbers are incredible, Elon.
+- [19:14.330] So many billions of dollars —
+- [19:15.720] it’s billions — hundreds of billions,
+- [19:17.280] and we’re thinking about giving 20 percent
+- [19:19.940] back to the American citizens
+- [19:21.760] and 20 percent down to pay back debt —
+- [19:24.340] and pay down debt, which is — if you look at value,
+- [19:27.800] if it were a real estate balance sheet, the debt is tiny,
+- [19:31.400] but we still — we still want to pay it down.
+- [19:33.640] Doesn’t matter. We don’t look at it as a piece of real estate.
+- [19:36.300] It’s America.
+- [19:37.600] We’re going to get it down through intelligence, hard work,
+- [19:40.840] and, as Elon said, a word called “caring.”
+- [19:43.440] You have to have — you have to care.
+- [19:45.580] By doing this, Americans will tell us where there is waste.
+- [19:49.820] They’ll be reporting it themselves.
+- [19:51.730] They participate in the process of saving money.
+- [19:54.870] So many of the men and women in this room, as an example,
+- [19:58.570] they pay tremendous amounts of taxes.
+- [20:01.310] And here are just a few examples
+- [20:03.450] of where your money was going before I came along.
+- [20:06.710] These are just some of the — just taken at random.
+- [20:09.510] Oh, there are much worse examples than this.
+- [20:12.100] I was just looking at them before the speech,
+- [20:13.960] and I can tell you there were much worse.
+- [20:16.430] And there are some that are horrible,
+- [20:18.640] but I don’t want to really say them,
+- [20:20.110] because they’re very, very embarrassing to people —
+- [20:25.750] very, very embarrassing.
+- [20:27.580] And they’re really something, but you’ll be seeing it
+- [20:30.850] and you will be reading about it.
+- [20:33.410] But just some taking at random:
+- [20:34.740] $2 million for sex change operations in Guatemala.
+- [20:39.680] $20 million for “Sesame Street” performances in Iraq.
+- [20:44.210] Twenty million, that’s a lot of money.
+- [20:46.170] (Laughter.)
+- [20:47.450] You know, I know what it costs to do those things.
+- [20:49.200] You get a cast over for $50,000, give them a couple of bucks tip.
+- [20:54.370] That’s it. Not $20 million. (Laughter.)
+- [20:57.010] Twenty million, that’s “Gone With the Wind” on steroids.
+- [21:00.530] (Laughter.)
+- [21:01.910] $101 million for 29 diversity, equity, and inclusion contracts
+- [21:07.120] at the Department of Education. Wow.
+- [21:10.470] And we’ve also canceled — we’ve canceled all of these,
+- [21:14.980] saved all of this money.
+- [21:16.790] And, again, this is just a small sample.
+- [21:18.640] This could go on. I could read them all day.
+- [21:21.260] $520 million for a consultant —
+- [21:24.810] I want to know who is that consultant —
+- [21:27.080] (laughter) — to do ESG —
+- [21:30.170] that’s environmental, social, and governance —
+- [21:32.700] investments in Africa.
+- [21:35.040] $25 million to promote biodiversity conservation
+- [21:39.120] and licit livelihoods by developing
+- [21:42.160] socially responsible behavior in Colombia.
+- [21:46.530] $40 million to improve the social and economic inclusion
+- [21:50.420] of sedentary migrants.
+- [21:52.110] Nobody knows what that even means.
+- [21:53.500] None of this stuff. Nobody. (Laughter.)
+- [21:55.450] Everyone is trying to figure out,
+- [21:56.690] “What the hell does it all mean?”
+- [21:59.160] $42 million for social and behavior changes in Uganda.
+- [22:05.090] Forty million is a lot of newspaper ads in Uganda.
+- [22:07.990] (Laughter.)
+- [22:09.210] $70 million for research of evidence-based solutions
+- [22:12.730] for development challenges.
+- [22:15.100] $10 million for Mozambique medical male circumcision.
+- [22:20.440] (Laughter.)
+- [22:24.040] What does that — what does that mean?
+- [22:26.720] $2.3 million dollars for strengthening independent voices
+- [22:30.110] in Cambodia. (Laughter.)
+- [22:32.350] $14 million for improving public procurement in Serbia.
+- [22:36.990] $486 million to the Consortium for Elections and Political
+- [22:42.130] Process Strengthening, including $22 million for inclusion
+- [22:46.980] — inclusive and participatory political process in Moldova
+- [22:53.120] and $21 million for voter turnout in India.
+- [22:56.160] What do we need to spend $21 million
+- [22:58.040] for voter turnout in India?
+- [23:01.380] Wow, $21 million.
+- [23:03.310] I guess they were trying to get somebody else elected.
+- [23:05.510] Wow, we ought to tell the Indian government,
+- [23:08.680] because when we hear that Russia spent
+- [23:11.070] about two dollars in our country,
+- [23:12.570] it was a big deal. Right? (Laughter.)
+- [23:13.940] They took — they took some Internet ads for $2,000.
+- [23:18.360] This is a total breakthrough:
+- [23:20.550] twenty-one million dollars for India elections.
+- [23:23.910] $29 million to strengthen
+- [23:25.960] the political landscape in Bangladesh.
+- [23:29.660] $20 million for fiscal federalism,
+- [23:32.320] and $19 million in addition to the $21 million,
+- [23:37.340] for biodiversity conversion [conservation] in Nepal.
+- [23:42.530] $1.5 million for voter confidence in Liberia.
+- [23:45.820] We need voter confidence too, when you read this list.
+- [23:48.720] (Laughter.)
+- [23:49.980] $14 million for social cohesion in Mali.
+- [23:54.710] $2.5 million for inclusive democracies in South Africa.
+- [23:59.720] $47 million for improving learning outcomes in Asia.
+- [24:03.190] Asia is doing very well.
+- [24:04.390] We don’t need to give them money.
+- [24:05.850] (Laughter.)
+- [24:07.160] And in another program, $50 million,
+- [24:09.880] plus another $50 million, for condoms for Hamas.
+- [24:13.440] You know about that? (Laughter.)
+- [24:15.130] A hundred million dollars for condoms.
+- [24:17.570] Condoms. Does everybody know what a condom is?
+- [24:20.220] (Laughter.) For Hamas — $100 million.
+- [24:25.740] And these are just some.
+- [24:27.020] I could read this list all day long.
+- [24:28.580] I just don’t want to bore you.
+- [24:30.440] But these are just some, and not nearly as bad as others.
+- [24:32.960] And some are just — I just don’t want to say them
+- [24:35.360] because they’re too —
+- [24:36.970] they’re too incenduary [incendiary].
+- [24:39.690] We’re also finding tremendous abuse,
+- [24:41.470] waste, and fraud in Social Security.
+- [24:43.360] Social Security is —
+- [24:44.730] what’s happening there is going to be
+- [24:46.520] one of the great potential scandals in history.
+- [24:52.640] On the program, there are over 4.7 million
+- [24:56.000] Social Security numbers from people
+- [24:59.160] from 100 years old to 109. Think of that.
+- [25:03.900] Now, over 100, there aren’t a lot of people that make it.
+- [25:07.020] Hopefully most of the people in this room will make it,
+- [25:09.270] but historically,
+- [25:11.560] you don’t have thousands and thousands of people.
+- [25:14.370] But listen to this: 3.6 million people are on Social Security
+- [25:20.560] rolls from the age of 110 years old to 119.
+- [25:25.760] Do you think there are really that many?
+- [25:27.770] (Laughter.) Those people are seriously old.
+- [25:32.040] (Laughter.) But it gets worse.
+- [25:33.660] 3.47 million — 3.47 million people are on Social Security
+- [25:41.600] from the age of 120 years old to 129 years old.
+- [25:47.220] 3.9 million people are on the age of Social Security
+- [25:52.940] from 130 years old to 139 years old.
+- [25:59.840] Now the all-time record,
+- [26:01.300] I heard, is a woman who was a hundred —
+- [26:04.710] she was 127 years old. That’s the record.
+- [26:08.610] A woman from a certain country
+- [26:11.630] where they have actually people that live pretty long, actually.
+- [26:15.470] And she was 127 years old. That’s pretty old,
+- [26:20.460] but we’re topping her by millions — millions of people.
+- [26:23.090] (Laughter.)
+- [26:24.320] 3.5 million people from the age 140 to 149 years old.
+- [26:30.830] 1.3 million people are on Social Security
+- [26:35.290] from the age 150 to 159.
+- [26:39.640] And over 130,000 people are on Social Security
+- [26:45.190] over the age of 160 years old — okay?
+- [26:48.950] — including 1,039 people — think of it
+- [26:52.710] — over 1,000 people — between the ages of 220 to 229.
+- [26:58.780] (Laughter.)
+- [27:00.160] And one person between the age of 240 to 249.
+- [27:05.670] And the record-topper:
+- [27:07.330] There is one person on Social Security
+- [27:10.370] who is 360 years old —
+- [27:13.610] (laughter) — which is approximately
+- [27:16.020] 110 years older than our country.
+- [27:20.140] (Laughter and applause.)
+- [27:26.950] So, what we’re trying to find out
+- [27:28.970] and what we will find out
+- [27:30.280] is are people being paid from all of these.
+- [27:33.560] You know, is somebody pocketing $10,000 here,
+- [27:36.330] $10,000 there? What’s going on?
+- [27:38.110] So, we’ll find that out pretty easily
+- [27:39.690] because we have a lot of computer geniuses.
+- [27:42.180] I said to Elon, “Who are these people that are doing this,
+- [27:45.740] the DOGE people?”
+- [27:47.720] I said, “Who are they? Where do they come from?”
+- [27:49.720] He said, “Well, number one, they love our country,
+- [27:51.270] and, number two, they’re really genius at computers.”
+- [27:54.570] So, nobody is going to fool them.
+- [27:55.790] When they go in, they see some bureaucrat
+- [27:57.640] that’s scamming the country, and they try and talk about,
+- [28:02.690] you know, certain computer language,
+- [28:04.620] these people say, “No, it doesn’t work that way.”
+- [28:06.330] These are people that are — have a natural ability as —
+- [28:09.560] as, you know, brilliant computer people.
+- [28:11.860] It was very interesting when he told me that.
+- [28:13.500] I said, “That’s what you need today.”
+- [28:15.990] But all of these scams have now been terminated.
+- [28:18.430] In addition, over the past month,
+- [28:20.090] we have effectively eliminated
+- [28:22.270] the U.S. Agency for International Development,
+- [28:25.320] which was funding much of this lunacy.
+- [28:29.580] We virtually shut down the out-of-control CFPB,
+- [28:33.310] escorting radical-left bureaucrats out of the building
+- [28:36.730] and locking the doors behind them.
+- [28:39.510] What they were doing was so terrible.
+- [28:41.420] Where they were spending the money was so terrible.
+- [28:43.470] What we haven’t looked at yet
+- [28:45.690] but will be is does the money come back to them,
+- [28:47.900] because nobody can be stupid like that.
+- [28:50.450] And they’re not stupid. They’re smart, actually.
+- [28:52.360] And, you know, why are doing that?
+- [28:54.750] Does money come back to them?
+- [28:56.030] So, we’ll figure that out pretty easily, I think, and quickly.
+- [28:59.720] But I’ve ended all of the so-called diversity,
+- [29:02.330] equity, and inclusion programs
+- [29:04.060] across the entire federal government
+- [29:05.840] and private sector
+- [29:07.430] and notified every single government DEI officer
+- [29:10.350] that their jobs have been deleted.
+- [29:12.480] They’re all deleted.
+- [29:14.400] And it’s interesting, even these country —
+- [29:16.440] these companies that have tremendous —
+- [29:19.360] the amounts of money — a number of them just announced
+- [29:24.240] — Walmart, if you can believe it,
+- [29:25.960] they just announced that they’re stopping.
+- [29:27.610] And, you know, these companies are writing off, like,
+- [29:30.520] $220 million.
+- [29:33.200] How can you spend that much money
+- [29:34.730] no matter what you’re doing? If you’re teaching something,
+- [29:36.810] you’re going to have an instructor,
+- [29:38.570] you’re going to talk,
+- [29:39.830] you’re going to give them a book, “Please read the book.”
+- [29:41.910] You know, and then you find they spent $225 million on that.
+- [29:45.150] What’s going on?
+- [29:47.180] And we were going in the wrong way,
+- [29:48.650] and our military was really —
+- [29:50.900] although, I tell you, you know, we — we defeated
+- [29:53.700] ISIS with our military in three weeks.
+- [29:57.150] General “Razin” Caine was — he’s some general.
+- [29:59.520] He’s a real general, not a television general.
+- [30:02.440] And three weeks — ISIS.
+- [30:04.710] And I — I asked him, and I saw some of his people
+- [30:08.260] that were so great, the soldiers.
+- [30:10.110] We have the greatest military in the world,
+- [30:12.370] but we don’t have the greatest top, top leadership.
+- [30:14.470] That’s why Afghanistan was such a horrible situation
+- [30:17.710] and so embarrassing and so many other things.
+- [30:20.750] But when we want to, with proper leadership,
+- [30:23.710] there’s nobody even close to us.
+- [30:25.160] We have the best equipment in the world.
+- [30:26.720] We make the best equipment in the world.
+- [30:29.330] But we have the best military,
+- [30:30.710] but, you know, we never fight to win.
+- [30:32.330] We fight to just keep it going forever.
+- [30:35.810] And when we fight to win,
+- [30:37.700] there’s nobody that can even come close to us.
+- [30:40.430] But I was talking to General Dan Caine,
+- [30:43.550] and we call him “Razin” Caine.
+- [30:45.880] And I was told it would take about four years to defeat ISIS,
+- [30:50.190] and he did it in three weeks.
+- [30:52.160] I said to him, “What do you think, General?
+- [30:53.710] How long will it take?”
+- [30:55.000] “Sir, I think we should do it in less than four weeks.
+- [30:58.460] You’re going to have time leftover.”
+- [30:59.940] And he did. He did that.
+- [31:01.710] And we were told by the television generals
+- [31:03.790] it would take four years.
+- [31:05.550] So, we did it. That’s when I went to Iraq.
+- [31:07.320] I flew to Iraq and — late at night —
+- [31:11.010] the dark of night, all the windows closed,
+- [31:13.560] all the lights off in the plane, in Air Force One.
+- [31:17.370] And we flew in, and it was pretty amazing.
+- [31:20.460] I’ll tell you, we were landing, and there were no lights.
+- [31:22.270] No lights on the plane.
+- [31:23.510] “Sir, we have to turn off all lights.”
+- [31:25.120] I said, “You mean we spend $9 trillion,
+- [31:27.520] and we have to fly in on Air Force One with the lights off?”
+- [31:31.470] And I went up to the pilot and said hello.
+- [31:34.790] And, by the way, these guys are like central casting.
+- [31:36.910] These are the best-looking human beings.
+- [31:38.670] Everybody is, like, perfect. (Laughter.)
+- [31:40.330] The most handsome people,
+- [31:41.740] the best-looking people you’ve ever seen,
+- [31:43.980] with the flattops and the whole thing.
+- [31:47.620] And I was a little concerned because the lights are off,
+- [31:50.060] and everything is off,
+- [31:51.340] and even the lights in where he was were down very dim —
+- [31:54.250] very, very dim with all of the lights
+- [31:55.980] on the fancy dashboards of the plane of Air Force One.
+- [32:00.430] We’re getting a new Air Force One
+- [32:01.790] if they can ever finish the damn thing.
+- [32:03.780] (Laughter.) We’re getting two of them, actually.
+- [32:06.660] But we may have to go a different route
+- [32:08.250] because it’s taking them a long time.
+- [32:09.560] We’re going to get military that’s going to start building.
+- [32:11.530] We’re going to get people to start building properly again
+- [32:13.730] in our country, because they don’t build properly.
+- [32:16.270] (Applause.) This was Boeing.
+- [32:19.960] But we’re — we’re up there, and I’m looking at these people.
+- [32:24.090] And, again, cent- —
+- [32:25.350] I say they look like Tom Cruise but better —
+- [32:28.510] (laughter) — stronger, tougher.
+- [32:30.780] And I like Tom Cruise, but these are better.
+- [32:33.120] And I said — I said, “Are we okay, Captain?”
+- [32:38.190] “Yes, sir, we’re fine.” But I’m looking out.
+- [32:40.060] I don’t see any lights, and we’re landing.
+- [32:42.230] And I’m — you know, I’m used to that.
+- [32:43.750] I like to sit with the pilots a lot,
+- [32:45.520] and I respect the pilots greatly.
+- [32:48.240] And we’re up there, and, you know, we have the computer —
+- [32:51.980] I call it the computer voice, where it goes 1,000, 900, 800.
+- [32:56.250] That’s feet — your feet above ground.
+- [32:58.660] So, that means you’re very low.
+- [33:00.060] And I’m looking out, and my eyes are pretty good,
+- [33:02.230] and I don’t see any lights. And the computer goes out.
+- [33:06.110] It sounds like a — an intelligent individual.
+- [33:08.950] It goes, “1,000.” We’re a thousand feet up.
+- [33:12.790] That’s very — it’s a 10-story building.
+- [33:14.970] This is a big, big plane.
+- [33:17.400] And then it goes, “900, 800, 700.”
+- [33:23.190] I say, “Captain.” (Clears throat.)
+- [33:25.935] (Laughter.)
+- [33:27.630] “Captain, we don’t see any lights.”
+- [33:29.410] I said, “Is everything” — “Yes, sir.
+- [33:31.040] Everything is fine, sir.
+- [33:32.270] We’ll be landing in three minutes.”
+- [33:35.120] And then it goes, like, “600, 500.”
+- [33:41.540] “Captain, are we okay?” (Laughter.)
+- [33:44.590] And then it goes, “400, 300, 200.”
+- [33:48.760] And I’m saying, “Man, there’s nothing out there.” (Laughter.)
+- [33:54.800] And then he goes boom.
+- [33:56.560] Perfect landing, right on this thing.
+- [33:58.660] There are no lights on the runway.
+- [34:00.260] There’s no n- — I don’t know how the hell they do it,
+- [34:03.160] but I’m sure as hell glad we had somebody that knows how to fly.
+- [34:05.990] (Laughter.)
+- [34:07.190] But they didn’t want to have any lights
+- [34:08.490] because they didn’t want the enemy —
+- [34:09.730] after spending, you know, years and trillions of dollars,
+- [34:13.600] we have to land with Air Force One
+- [34:15.470] with no lights on the runway. But they were incredible people.
+- [34:19.350] And then I got out of the plane,
+- [34:21.450] and I actually asked my people — you know, I said,
+- [34:23.980] “Excuse me, I was very brave sitting in that cockpit.
+- [34:26.670] Am I allowed to give myself
+- [34:28.350] the Congressional Medal of Honor?” (Laughter and applause.)
+- [34:32.630] And they said, “I don’t think so, sir.”
+- [34:34.100] I said, “Well, I felt I was extremely brave.” (Laughter.)
+- [34:37.220] But now here’s the problem with saying a story like that.
+- [34:39.340] When you kid, the press will say,
+- [34:42.160] “President Donald Trump wanted to give himself
+- [34:44.760] the Congressional Medal of Honor.” (Laughter.)
+- [34:46.510] Headlines, you know?
+- [34:47.860] Headlines all over the fake news.
+- [34:49.460] We call it the fake news, but we’re all wise to them.
+- [34:52.460] But it was something.
+- [34:53.970] And then I went down, and it was the same thing.
+- [34:55.970] I’m standing on the top, and I look down
+- [34:59.110] and there’s these handsome people.
+- [35:00.610] Everybody is like from a movie set.
+- [35:03.380] Good-looking guys. I get down the stairs,
+- [35:05.490] and “What’s your name?” “My name is Caine, sir.”
+- [35:10.390] “What’s your first name?” “They call me ‘Razin.’”
+- [35:12.430] I say, “Wait a minute. Your name is Razin Caine?
+- [35:14.560] I love you. I’ve been looking for you for five years.
+- [35:17.270] You are the grea-” — (laughter) — “This is what I want.”
+- [35:19.410] And there was a general next to him.
+- [35:21.080] There was a colonel.
+- [35:22.300] There was a drill sergeant, a master sergeant.
+- [35:24.650] They were all, like, people — I could make a movie right now.
+- [35:26.900] I’d have the best-looking people ever.
+- [35:28.760] And they were great.
+- [35:29.960] And then I went in,
+- [35:31.170] and “Sir, would you like to rest before the me-”
+- [35:33.670] — “No, I don’t want to rest. I don’t want to rest.
+- [35:35.500] I’ve been resting on the plane,”
+- [35:37.220] other than the last few moments, which were quite harrowing.
+- [35:40.940] (Laughter.) And I said, “I don’t want to rest.”
+- [35:43.340] He was thinking about Biden in advance, you know?
+- [35:46.010] Biden would have gone there; he would have rested for days.
+- [35:48.740] (Laughter.) They — and then they wouldn’t have had a meeting.
+- [35:52.300] He’d just go home. (Laughter.)
+- [35:54.350] No, I said, “I don’t want to rest.
+- [35:55.780] I don’t want to rest at all. I want to go.”
+- [35:57.330] So, we went into this, like, bunker,
+- [35:59.810] and we had a lot of very good, talented people.
+- [36:02.690] And that’s when I asked him.
+- [36:03.980] I said, “You know, I’m hearing it’s going to take a long time.”
+- [36:06.050] “No, that’s not right, sir.
+- [36:07.270] It’s not going to take a long time.
+- [36:08.520] We’ll have it done in four weeks.”
+- [36:10.710] I said, “How can you say four weeks when, in Washington,
+- [36:13.150] they said four years?”
+- [36:15.200] He said, “It’s four weeks, sir. We’ll hit them left.
+- [36:17.240] We’ll hit them right. We’ll hit them up the center.
+- [36:19.050] We’ll hit them underground and overground.
+- [36:20.780] We’ll knock the hell out of them, sir.”
+- [36:23.320] And I said, “Why is it that they said so long?”
+- [36:25.750] He said, “Because they wouldn’t let us fight,
+- [36:28.190] and we’re very far away.
+- [36:29.510] They want us to fight for this — from this airport.
+- [36:32.880] We’re very, very far away, sir, and they want us to fight here.
+- [36:36.140] We have many substations out” — sub-airports, they call them.
+- [36:39.110] Remote airports, where they build them in the sand.
+- [36:41.240] “And we have many of them, and I’d use them all, sir,
+- [36:46.660] and I would hit them so hard
+- [36:48.250] from so many different directions.”
+- [36:50.920] I said, “Well, what do you think?”
+- [36:53.570] He said, “You just let me know.”
+- [36:55.030] And I called him back, and I said, “Go ahead and do it.
+- [36:57.560] Are you sure you can do this, General?”
+- [36:59.110] He said, “Yes, sir.”
+- [37:01.550] And he did it, actually, in three weeks.
+- [37:03.040] It was over. A hundred percent of people
+- [37:05.660] that are really hurting the Middle East,
+- [37:08.260] hurting the world — and it was done.
+- [37:11.600] And we have — I’m telling you,
+- [37:13.050] we have the greatest military in the world,
+- [37:14.790] but you have to use the right people.
+- [37:17.470] But there’s nothing like what they were able
+- [37:19.120] to do in that case.
+- [37:20.620] And in other cases, wherever I gave them something,
+- [37:23.340] it was done incredibly well and very —
+- [37:26.370] and you know many of the instances,
+- [37:27.950] because it’s been well reported.
+- [37:30.140] But we’ve also required — and we ha- —
+- [37:32.880] so, we have a country that’s a great country.
+- [37:34.720] It’s a strong country, but it’s a country
+- [37:37.590] that’s just now gaining its respect back
+- [37:39.700] to the levels that it should — should have never lost.
+- [37:43.100] We were being laughed at by the entire world,
+- [37:46.990] but we’re not being laughed at anymore.
+- [37:49.590] But we’ve also required that all federal employees
+- [37:52.070] must once again show up to work.
+- [37:55.100] This is a new phenomenon, you know, since COVID.
+- [37:58.610] (Applause.)
+- [38:00.330] Show up to work in person like the rest of us.
+- [38:03.520] So, I mean, it doesn’t work when you don’t show up.
+- [38:06.120] And I see companies now are all going back to it.
+- [38:08.210] They’re all going back. It’s great.
+- [38:10.080] I want some of the big business leaders saying,
+- [38:11.900] “We absolutely are going back.”
+- [38:13.300] You — you j- — you can’t work at home. They’re not working.
+- [38:16.060] They’re playing tennis, they’re playing golf,
+- [38:17.770] or they have other jobs, but they’re not working —
+- [38:20.490] or they’re certainly not working hard.
+- [38:21.920] You could never build a company or a country with that.
+- [38:25.570] So, we have a very strong policy.
+- [38:27.230] And if they don’t show up to work, they — they get fired.
+- [38:30.740] And we’re trying to make our government smaller
+- [38:33.510] but much stronger.
+- [38:35.310] And we have tremendous bureaucracy, but it’s happening.
+- [38:37.950] A lot of people are leaving and, in some cases,
+- [38:41.120] leaving with pretty good offers. You know, you’re paid seven
+- [38:43.490] or eight months and go out, find a job.
+- [38:46.180] But some of these people had jobs.
+- [38:47.560] They were actually working for us,
+- [38:48.790] but they also had other jobs.
+- [38:50.140] And those people, in theory, they have problems.
+- [38:52.760] I don’t know if we’re going to do anything about that.
+- [38:55.030] So, we have other things to do,
+- [38:56.440] but they were working other jobs instead of working for us.
+- [38:59.510] So, they were staying home working,
+- [39:00.960] but they were working other jobs,
+- [39:02.300] getting paid a lot of money, perhaps.
+- [39:05.640] We offered deferred resignation buyouts to all federal workers,
+- [39:09.900] resulting in more than 75,000 bureaucrats
+- [39:13.720] voluntarily surrendering their taxpayer-funded jobs.
+- [39:16.820] A lot of them are leaving because they don’t want to be
+- [39:19.580] caught having the second job, some are leaving
+- [39:21.530] because they didn’t want to be in government any longer,
+- [39:23.720] and — and some are leaving
+- [39:24.930] because they didn’t want to show up to work.
+- [39:26.440] They wanted to work outside of an office,
+- [39:28.330] and that’s never going to work for anybody,
+- [39:30.540] including companies.
+- [39:31.860] The companies ought to get smart.
+- [39:33.160] You watch these companies where they do that:
+- [39:35.430] They start going bad.
+- [39:36.690] Nobody knows — “what’s wrong with this company?”
+- [39:38.430] Well, try getting the people back into the office
+- [39:40.610] where they can be cohesive and together.
+- [39:43.320] In less than a single month,
+- [39:44.590] the Department of Government Efficiency
+- [39:47.800] has already saved over 55- —
+- [39:50.170] this is just a short period of time —
+- [39:52.150] $55 billion, and we’re just getting started.
+- [39:55.560] That’s nothing compared to the numbers
+- [39:57.310] that you’re talking about, right?
+- [39:59.630] (Applause.)
+- [40:03.030] We’re ending trillions of dollars in waste,
+- [40:05.560] and it’ll mean much lower inflation; lower interest rates;
+- [40:09.010] lower payments on mortgages, credit cards, car loans;
+- [40:13.140] and much higher stock markets.
+- [40:15.970] I think the stock market is going to be great.
+- [40:17.750] In other words, we will rapidly grow our economy
+- [40:20.520] by dramatically shrinking the federal government,
+- [40:22.950] and we have to do it.
+- [40:24.590] I’m also taking fast action
+- [40:26.200] to end the radical left’s nation-wrecking crusade
+- [40:29.120] against oil and natural gas. Over the past four years,
+- [40:33.070] the Biden administration cut the number of new oil leases
+- [40:36.470] and gas leases by 95 percent. They slowed new pipeline.
+- [40:41.340] I mean, look at the — any one.
+- [40:44.720] Dakota Access, they wanted that one knocked out.
+- [40:47.860] The Keystone Pipeline, they wanted that one knocked out.
+- [40:50.580] They ended the Keystone. We got the Dakota Access done,
+- [40:54.810] but it wasn’t easy after they tried to stop it.
+- [40:57.780] They slowed new oil and gas pipeline construction
+- [41:00.370] to virtually a halt.
+- [41:01.830] They shut down 38 percent of active oil
+- [41:05.190] and gas rigs in the United States.
+- [41:06.930] But they love the wind turbines.
+- [41:08.240] They go round and round and round.
+- [41:09.810] And if the wind doesn’t blow, they got problems.
+- [41:12.550] They kill all the birds. They ruin the sight lines.
+- [41:15.040] They ruin the plains and the beautiful areas of our country,
+- [41:18.650] including the oceans, the lakes.
+- [41:22.390] They closed more than 50 power plants,
+- [41:24.350] all causing energy prices to skyrocket.
+- [41:27.000] You saw that happen. That’s what caused the inflation.
+- [41:29.060] It’s pretty easy.
+- [41:30.630] These policies were so destructive
+- [41:32.370] that despite draining nearly 40 percent
+- [41:34.420] of U.S. Strategic Petroleum Reserve
+- [41:37.300] meant for emergencies — it was meant for emergencies.
+- [41:40.730] It wasn’t meant for getting the price of gasoline down
+- [41:43.780] so that you can win an election.
+- [41:45.870] Didn’t work for winning the election.
+- [41:47.650] Actually, there’s so many people that are driving
+- [41:52.640] that it’s a very small number. It just had a very small effect.
+- [41:56.120] But in the meantime, it takes it down.
+- [41:58.010] It’s at — now it’s at the lo- —
+- [41:59.340] we’ll fill it up fast, but it’s at the lowest level.
+- [42:02.140] When we made the transition,
+- [42:05.360] it was at the lowest level in history ever recorded.
+- [42:07.840] It’s the lowest level. Nobody’s ever seen it that way.
+- [42:09.700] They — they put it all out because they thought
+- [42:12.150] they could keep gasoline prices down a little bit.
+- [42:15.380] Just go past the election,
+- [42:16.610] and then after that, they didn’t care.
+- [42:18.940] And it didn’t work, because they didn’t get elected.
+- [42:21.250] I got elected.
+- [42:22.450] But the price of gasoline still rose over 35 percent
+- [42:25.380] and, in some cases, at some periods,
+- [42:27.050] it was 100 percent and 125 percent
+- [42:29.610] during certain periods of time.
+- [42:31.890] Under the Trump administration,
+- [42:33.660] we have implemented a very different plan.
+- [42:37.570] You probably heard of it.
+- [42:38.780] It’s called drill, baby, drill, and we’re doing a — (applause).
+- [42:45.330] The world runs on low-cost energy,
+- [42:47.360] and energy-producing nations
+- [42:49.090] like us have nothing to apologize for.
+- [42:52.610] We have more energy than any other nation in the world,
+- [42:56.210] and we’re going to use it.
+- [42:58.330] And we’re going to use it on AI plants.
+- [43:00.350] I was telling some of the people that came in that —
+- [43:03.980] you know, they’re very inter- — everybody’s talking about AI.
+- [43:06.220] I hope you’re right. You know, I don’t know.
+- [43:07.900] Who knows? (Laughter.)
+- [43:09.170] But, Elon, are they right?
+- [43:11.010] Are they right in going all i- — they are all in for AI.
+- [43:14.090] But the problem is, to do it, just in our country,
+- [43:18.050] you need twice the electricity just to open up
+- [43:21.470] and be the top of AI.
+- [43:23.230] You need twice the electricity that we have right now.
+- [43:25.290] In the entire country, if you take all of the electricity,
+- [43:28.780] you need more than twice. You need twice.
+- [43:30.820] You need double what we have right now
+- [43:32.350] just to fuel this new industry that’s growing.
+- [43:36.170] I was amazed when I heard that number.
+- [43:38.010] And they all said, “How can we do this?”
+- [43:40.130] Because, you know, in China and various other places,
+- [43:42.410] you can probably get it with the shake of a hand,
+- [43:46.950] but in our country, you can’t.
+- [43:48.270] But now you can, because we’ve declared —
+- [43:50.440] I’m declaring a national emergency
+- [43:52.420] in order to get fast approvals.
+- [43:54.370] And we’re going to have — if you build a plant,
+- [43:56.580] you’re able to build an electric-generating facility
+- [44:00.450] right next to your plant, so you’ll be making your own.
+- [44:03.110] You won’t have to count on utilities.
+- [44:04.890] You won’t have to count on an old grid that could fail,
+- [44:09.280] could get hit by something — bad things or good things —
+- [44:12.300] but you’re not going to have to —
+- [44:14.380] you’re not going to have to worry about grids.
+- [44:15.900] You’re not going to have — you’ll build your plant,
+- [44:17.380] and you’ll build your — your —
+- [44:18.590] essentially, you become a utility, in a way.
+- [44:20.590] You build your own electricity. If you want to build extra
+- [44:23.010] and put it out and get paid for that,
+- [44:26.200] you’re going to be able to do that.
+- [44:27.500] You could put it back into the grid,
+- [44:28.970] but you’re going to be able to build
+- [44:30.550] with your plant a generating facility.
+- [44:33.530] And we’re going to get you Lee Zeldin,
+- [44:35.240] head of the environment — head of Environmental —
+- [44:38.870] the Environmental group — various groups.
+- [44:41.400] And we’ve got them unified now,
+- [44:43.050] but we’re going to get you very fast approvals,
+- [44:44.880] and they’ll be approved so fast your head will spin.
+- [44:48.180] And we’re going to get that whole industry started,
+- [44:51.430] and we’re going to be the head of it.
+- [44:52.840] We’re leading right now. We have the greatest brain power.
+- [44:55.090] We’re leading right now,
+- [44:56.920] and I expect that we’re going to be leading by a lot.
+- [44:59.050] But we’re going to get you the energy very, very quickly.
+- [45:01.140] That would be the one thing that everybody was concerned,
+- [45:04.050] “How do we have that much electricity
+- [45:05.610] when Los Angeles has blackouts and brownouts right now,
+- [45:10.200] and there’s a lack of electricity?”
+- [45:11.980] But we’re going to get it at levels never seen before.
+- [45:15.020] I ended the ridiculous Green New Scam,
+- [45:18.240] halting tens of billions of dollars
+- [45:20.210] of wasteful deficit spending.
+- [45:23.160] And I withdrew the United States from the unfair,
+- [45:25.400] one-sided Paris Climate Accord.
+- [45:27.430] And I ended Joe Biden’s insane electric vehicle mandate,
+- [45:32.080] because it was just insane. I repealed the last — and,
+- [45:36.180] by the way, if you want to buy an electric car, that’s great.
+- [45:38.540] If you want to buy a gasoline-driven car
+- [45:41.140] or a hybrid, it’s great.
+- [45:42.680] Whatever the — whatever the thing happens to be.
+- [45:46.520] I heard hydrogen is hot.
+- [45:47.920] The problem is, when it’s not, you’re in deep trouble.
+- [45:51.300] Because when that sucker blows up,
+- [45:53.200] they don’t find the body. (Laughter.)
+- [45:54.860] So, that’s one that I said, “You know what?
+- [45:56.580] Let’s take a pass on that one.”
+- [45:57.960] They said it’s good, but when it’s bad, it’s really bad.
+- [46:00.160] You find the bodies on trees — on the side of a tree.
+- [46:02.750] (Laughter.)
+- [46:04.000] I said, “I think we’ll pass on that one. Right?
+- [46:06.030] We’re not going to want that one.”
+- [46:07.780] But you never know. Maybe someday it’ll be good.
+- [46:09.660] But it doesn’t sound like it’s off to a good start.
+- [46:11.820] I repealed the last administration’s
+- [46:14.550] very destructive natural gas export ban,
+- [46:18.270] and, last week, we approved our first new liquefied
+- [46:21.710] natural gas export license,
+- [46:23.690] and we have literally hundreds of people that want to export.
+- [46:28.480] I recently met with the Japanese prime minister, Ishiba,
+- [46:32.660] to discuss large increases in American oil and gas exports.
+- [46:36.480] They want it so badly.
+- [46:37.760] They said, “We went to the Biden administration,
+- [46:39.550] and they wouldn’t sell it. They wouldn’t sell it.”
+- [46:42.950] Nobody knows why. Biden didn’t know why either.
+- [46:44.860] They asked him. “I don’t know.” (Laughter.)
+- [46:47.270] “He wanted — they did? Oh, I didn’t know that.”
+- [46:50.400] But we’re going to sell it.
+- [46:51.710] And the new project in Alaska is going to feed all of Asia.
+- [46:55.870] We’re going to take care of all of Asia.
+- [46:57.500] We have so much oil and gas, like very few people
+- [47:02.220] — like very few countries have —
+- [47:03.680] like, really, actually, no country has.
+- [47:05.360] I also met with Prime Minister Modi of India,
+- [47:08.010] who wants to greatly expand
+- [47:09.360] India’s purchase of American energy.
+- [47:12.330] And my administration has also launched
+- [47:14.250] the most aggressive deregulation program
+- [47:16.490] of any nation in history.
+- [47:18.470] Under my executive order, for every 1 new regulation
+- [47:21.850] added, 10 old regulations have to be eliminated.
+- [47:25.860] (Applause.)
+- [47:29.220] And, you know, in our first term,
+- [47:31.270] which was actually an incredible success —
+- [47:33.800] we had the greatest economy in history until COVID,
+- [47:36.550] and even after that, we did great.
+- [47:38.100] The stock market was higher.
+- [47:39.930] If you think of it, it was higher after the fact
+- [47:42.950] — after we went through that whole thing,
+- [47:45.340] it was higher than it was just prior to COVID coming in,
+- [47:49.770] which is a pretty amazing thing.
+- [47:52.360] But we did a great job on that,
+- [47:54.300] but it was a terrible thing for the world.
+- [47:56.380] The whole world suffered. It suffered terribly,
+- [47:58.920] including China, including other countries.
+- [48:01.120] It just was a terrible period of time.
+- [48:04.320] But despite that, we did well.
+- [48:05.700] But we had the greatest economy in the history of our country,
+- [48:08.980] and I think this time we’re going to do even better.
+- [48:11.120] We had — we were artificially hurt by COVID.
+- [48:14.650] We had to focus on that instead of focusing on —
+- [48:16.880] but just prior to COVID coming in,
+- [48:18.430] there’s never been anything like what we did, what we achieved.
+- [48:21.730] And even after, we did very well con- —
+- [48:23.700] and especially considering what all of us had to do with COVID.
+- [48:27.100] Some nations were hit so badly, it was —
+- [48:29.630] it was just unbelievable what happened to them.
+- [48:32.020] As part of our effort,
+- [48:34.300] I’ve signed executive orders to keep the United States
+- [48:37.190] at the forefront of artificial intelligence
+- [48:39.610] and to end Joe Biden’s war on Bitcoin and crypto.
+- [48:43.140] We ended that war totally. That war is over.
+- [48:46.090] They were very hostile toward them until the very end,
+- [48:48.340] just because there are so many people on Bitcoin
+- [48:51.440] and crypto that —
+- [48:52.890] just before the end, the SEC came out,
+- [48:55.140] and they were being very nice. I was so nice to people,
+- [48:57.860] because so many people were being indicted
+- [49:00.530] for no reason whatsoever — very political group of people.
+- [49:03.960] That’s all they did was they liked indicting people.
+- [49:07.700] But they were being indicted, and many of those indictments
+- [49:10.910] were dropped just before the election
+- [49:13.440] because they said, “Wait a minute.
+- [49:15.250] There’s 100 million, 125 million people using this,”
+- [49:19.470] and they didn’t want to have, you know,
+- [49:22.300] all these people being — voting against.
+- [49:24.170] But by the time they did that, it was too late.
+- [49:26.330] We had that vote entirely, I think.
+- [49:28.740] I think anybody would — smart that believed in that,
+- [49:31.340] and there were a lot of people believing it —
+- [49:32.900] anybody that was smart voted for Trump.
+- [49:35.100] And they pulled the indictments.
+- [49:36.350] And I see people that were indicted.
+- [49:37.800] I said, “I saved your life. I saved your life.”
+- [49:41.640] Because if they thought that —
+- [49:43.730] they actually thought that I was doing —
+- [49:45.350] they said, “Why is Trump doing it?
+- [49:46.720] Is he doing it for political reasons?”
+- [49:48.330] I don’t do anything for political reasons.
+- [49:49.970] I do what’s right. I do —
+- [49:51.560] I want to be on the forefront of every industry.
+- [49:54.440] (Applause.)
+- [49:55.920] So, I’ll be working with the Republican Congress
+- [50:00.150] to pass the largest tax cuts in American history.
+- [50:03.770] And that includes, obviously — (applause)
+- [50:06.120] — yeah. That includes we have to extend the Trump tax cuts,
+- [50:09.470] which were, until now, the largest.
+- [50:11.420] We’re going to dramatically cut taxes for families
+- [50:14.880] and for workers and for companies,
+- [50:16.690] including no tax on tips
+- [50:18.250] and hopefully no tax on Social Security
+- [50:20.500] and no tax on overtime.
+- [50:22.450] And that overtime one is a sleeper,
+- [50:24.150] because I think a lot of people are going to be spurred on
+- [50:26.420] to do a lot of extra work. When they hear that, it’s —
+- [50:29.990] a lot of companies really like it
+- [50:31.370] and a lot of people really like it.
+- [50:32.880] The new Trump tax cuts will also include 100 percent expensing
+- [50:38.370] for new factory construction in the United States
+- [50:41.380] and anything else that you’re going to buy with capital.
+- [50:44.840] If you buy something — if you buy something
+- [50:47.330] that is going to be good for our country,
+- [50:49.970] we’re going to let you expense it — one-year expense.
+- [50:51.740] (Applause.)
+- [50:52.940] And I did that the first time, and everybody was saying,
+- [50:55.950] “Can you go back to that?”
+- [50:57.170] Now you still get, I guess, 40 percent or whatever,
+- [50:59.590] but it, you know, pares down. But we’re going to bring that
+- [51:02.000] right up to the — to the top level.
+- [51:04.560] I think that had a lot to do with the success
+- [51:06.450] that I had during my first term.
+- [51:08.970] And we’ll substantially cut taxes
+- [51:10.700] for all domestic producers of oil and gas
+- [51:13.460] and just about everything else that they produce.
+- [51:16.310] In my first term, I brought the business tax down
+- [51:19.090] from around 40 percent to 21 percent,
+- [51:22.640] which everybody said was an impossible thing to do.
+- [51:25.030] I cut it from 40 or —
+- [51:26.310] it actually — with state and city,
+- [51:27.820] it was much higher than 40, but I got it down to 21 percent.
+- [51:31.540] And now I’m bringing it down to a goal of 15 percent,
+- [51:35.380] but only if you make your product in America.
+- [51:38.140] In other words, you’re going to be at 21 percent,
+- [51:40.560] but if you make your product in America,
+- [51:42.590] you’re going to go from 21 to 15.
+- [51:44.220] If you don’t, you’re going to pay 21 percent,
+- [51:45.900] which is still lower than anything.
+- [51:47.690] (Applause.)
+- [51:48.890] So, guys like Elon are going to come
+- [51:50.410] and make his great cars in the United States.
+- [51:53.500] There — a lot of — a lot of people will.
+- [51:55.320] A lot of people are calling.
+- [51:56.660] A lot of car companies are calling.
+- [51:58.220] They called me — three of them.
+- [51:59.530] Three of the majors, they called, and they said,
+- [52:02.660] “We’re looking all over the place.
+- [52:04.080] We want to be there.”
+- [52:06.120] I’m going to be announcing tariffs on cars
+- [52:08.250] and semiconductors and chips and pharmaceuticals —
+- [52:12.230] drugs and pharmaceuticals and lumber, probably,
+- [52:15.750] and some other things over the next month or sooner,
+- [52:19.930] and it’s going to have a big impact on America.
+- [52:23.250] We’re bringing our businesses back.
+- [52:24.800] If they don’t make their product in America,
+- [52:27.040] then they — very simply, they have to pay a tariff.
+- [52:30.120] But if they do make their product in America, they ha- —
+- [52:32.430] they don’t have to pay any tariff,
+- [52:33.850] which will bring —
+- [52:35.200] it’s all going to bring trillions of dollars
+- [52:36.960] into our Treasury,
+- [52:38.180] or it’s going to mean that there won’t be any taxes
+- [52:40.730] because we won’t have a fair base.
+- [52:42.330] If they don’t have it, we don’t have it.
+- [52:44.950] If they don’t pay — if they don’t charge us,
+- [52:46.920] we don’t charge them. It’s pretty simple.
+- [52:49.520] The Republican Party is, once again,
+- [52:51.430] the party of common sense.
+- [52:52.810] We’re a party of common sense. We want strong borders.
+- [52:55.190] We don’t want men playing in women’s sports.
+- [52:57.200] We don’t want to have transgender for everybody.
+- [53:01.210] We’re the party of common sense.
+- [53:02.690] That’s how we won the election in such a big manner.
+- [53:05.900] We’ll no longer allow other countries to ransack
+- [53:08.500] and plunder our nation.
+- [53:09.840] That’s why I’ve announced that we will soon begin imposing
+- [53:13.900] reciprocal tariffs on any country that engages
+- [53:16.810] in unfair and unequal trading practices.
+- [53:20.580] If they tariff us, as I said,
+- [53:22.470] we will tariff them at the exact same rate.
+- [53:25.890] So, if a certain country — because some of these countries,
+- [53:28.880] even countries that I’ve already mentioned,
+- [53:30.480] are extremely aggressive with tariffs. Nobody knows that.
+- [53:34.130] The European Union, they have a VAT tax that’s devastating.
+- [53:37.950] It’s very tough for people on the outside.
+- [53:40.830] Hard to sell cars. Really impossible to sell them,
+- [53:43.930] because they also have nonmonetary tariffs
+- [53:46.150] that are very, very tough.
+- [53:47.850] But if you take a look at that, it’s a very unfair situation.
+- [53:51.520] And the VAT tax is similar to the tariff.
+- [53:54.010] Around the world, I’m moving quickly to end wars,
+- [53:56.980] settle conflicts, and restore the planet to peace.
+- [53:59.400] I want peace, and I don’t want to see these —
+- [54:01.570] everybody being killed.
+- [54:02.860] And you take a look at the death in the Middle East
+- [54:05.400] and the death that’s taking place between Russia and Ukraine
+- [54:08.960] that’s been going on, and we’re going to end it.
+- [54:12.240] There’s no profit for anyone in having World War III,
+- [54:15.160] and you’re not so far away from it.
+- [54:16.690] I’ll tell you right now, you’re not so far away.
+- [54:19.620] If we would have had this administration for another year,
+- [54:22.140] you would have been in World War III,
+- [54:23.690] and now it’s not going to happen.
+- [54:25.890] In the Middle East, I’ve restored my policy
+- [54:28.130] of maximum pressure on Iran, designed to — to bring peace.
+- [54:34.090] (Applause.)
+- [54:36.780] And we’ve designated the Houthis a terrorist organization.
+- [54:40.600] They’re, you know, destroying shipping lanes
+- [54:43.020] all over the place. They’re making it very hard
+- [54:44.980] for people to get their product delivered.
+- [54:48.120] They’re making it very difficult.
+- [54:49.740] But we’ll take care of that situation.
+- [54:52.220] And we’ve secured a ceasefire in Gaza,
+- [54:54.720] and we’re bringing in the hostages,
+- [54:56.550] and we’re bringing them home to their families.
+- [54:58.950] Some of them are in pretty bad shape, I have to tell you.
+- [55:01.780] To end the horrible war in Ukraine,
+- [55:03.750] I have spoken with President Putin and President Zelenskyy,
+- [55:07.450] and our teams began negotiations this week in Saudi Arabia.
+- [55:10.750] I want to thank Saudi Arabia for that.
+- [55:12.270] That was so great. (Applause.) Yeah.
+- [55:18.420] And I want to thank,
+- [55:20.830] in particular — I mean, we have so many of the people —
+- [55:23.420] Yasir, Mohammed, all the people —
+- [55:25.210] but — but, in particular,
+- [55:27.850] we have to thank Crown Prince Mohammed bin Salman
+- [55:31.150] for hosting these historic talks —
+- [55:35.110] (applause)
+- [55:36.510] — and talks that went very, very well.
+- [55:39.390] Steve was there — Steve Witkoff was there,
+- [55:41.770] and Michael was there — Michael Waltz — and others.
+- [55:45.370] And they really went well. It’s a big — it’s a big step.
+- [55:47.580] We’ve got to get that war over with.
+- [55:49.000] You have to see the people that are dying.
+- [55:50.500] I look at the pictures,
+- [55:51.740] the — the satellite pictures of the field.
+- [55:54.740] It’s a level field, and it looks like a modern-day
+- [55:58.720] version of Gettysburg, and you know what that means.
+- [56:01.080] It is just carnage. It’s horrible.
+- [56:03.580] And, you know, it’s not American soldiers.
+- [56:07.460] It’s not even soldiers from the Middle East,
+- [56:09.770] in the case of Ukraine-Russia, but it’s people.
+- [56:12.630] It’s young people from Russia and Ukraine, mostly,
+- [56:15.360] that are just being decimated.
+- [56:17.170] It’s flat fields, and a bullet goes,
+- [56:19.850] and a bullet only stops when it hits somebody.
+- [56:23.440] And the level of people being killed in that battle —
+- [56:25.910] soldiers, young soldiers — in some cases, old soldiers,
+- [56:29.500] because they’re running out of people;
+- [56:31.630] they’re running out of soldiers, one case.
+- [56:34.580] But think of it, a modestly successful comedian,
+- [56:39.090] President Zelenskyy, talked the United States of America
+- [56:43.180] into spending $350 billion to go into a war
+- [56:47.230] that basically couldn’t be won, that never had to start,
+- [56:51.620] and never would have started if I was president —
+- [56:53.360] not even a chance.
+- [56:54.590] And it didn’t start for four years.
+- [56:56.230] Never would have started.
+- [56:57.940] But a war that he, without the U.S. and Trump,
+- [57:01.730] will never be able to settle.
+- [57:03.000] They’ll never settle that war without our involvement.
+- [57:05.790] That’s why they did such a great job this weekend.
+- [57:07.710] That’s why Saudi Arabia did such a great job
+- [57:09.600] this weekend in hosting.
+- [57:11.670] The United States has spent $200 billion more than Europe,
+- [57:16.630] and Europe’s money is guaranteed.
+- [57:18.870] They get their money back. It’s a form of a loan.
+- [57:20.950] Nobody knows that. I know that.
+- [57:22.530] I said, “Why isn’t somebody saying,
+- [57:24.540] you know, we do it the same way?”
+- [57:26.850] And we spent much more money. We have to equalize.
+- [57:29.600] But while the United States gets nothing back —
+- [57:32.160] so, they get their money back.
+- [57:33.730] It’s a loan. We just give our money.
+- [57:37.260] And we had a deal based on rare earth and things,
+- [57:40.160] but they broke that deal.
+- [57:42.740] But we — they broke it two days ago.
+- [57:44.970] We had a deal, because I said, “We’re spending $350 billion,
+- [57:49.790] and Europe gets their money
+- [57:52.220] back in the form of a loan and we don’t.
+- [57:54.150] We’re just giving the money hand over fist.”
+- [57:56.120] That’s the Biden administration for you.
+- [57:59.350] But they’re no longer dealing with the same United States
+- [58:01.950] as they were dealing with a few months ago.
+- [58:03.770] Why didn’t crooked Joe Biden demand equalization?
+- [58:08.380] And that this war is far more important
+- [58:10.890] to Europe than it is to us,
+- [58:13.070] and that there’s a very big, beautiful ocean as separation.
+- [58:17.050] This is — you know, we’re helping Europe.
+- [58:19.560] We’re trying to help Europe.
+- [58:21.560] On top of this, Zelenskyy admits that half of the money
+- [58:24.140] that we sent them is missing.
+- [58:25.350] They don’t know where the money is.
+- [58:26.690] He said, “Well, we don’t know where half of it is.”
+- [58:28.980] That’s great. Wonderful. (Laughter.)
+- [58:31.470] He refuses to have elections.
+- [58:33.110] He’s low in the real Ukrainian polls.
+- [58:36.470] I mean, how can you be high with every city is being demolished?
+- [58:39.410] It’s hard to be high.
+- [58:40.640] Somebody said, “Oh, no, his polls are good.”
+- [58:42.380] Give me a break. (Laughter.)
+- [58:43.950] Every city is being demolished.
+- [58:46.290] They look like a demolition site,
+- [58:47.800] every single one of them.
+- [58:49.650] And the only thing he was really good
+- [58:52.210] at was playing Joe Biden like a fiddle.
+- [58:54.310] He played him like a fiddle. That’s an expression we use,
+- [58:56.550] Yasir, to say that he’s pretty easy.
+- [59:00.930] Pretty easy. (Laughter.)
+- [59:02.760] A dictator without elections, Zelenskyy better move fast
+- [59:06.480] or he’s not going to have a country left.
+- [59:08.180] Got to move. Got to move fast,
+- [59:09.740] because that war is going in the wrong direction.
+- [59:12.400] In the meantime, we’re successfully negotiating
+- [59:15.170] an end to the war with Russia —
+- [59:18.110] something all admit that only Trump
+- [59:19.740] is going to be able to do and the Trump administration.
+- [59:21.990] We’re going to be able to do it.
+- [59:23.990] I think Putin even admitted that.
+- [59:26.810] Biden never tried.
+- [59:29.100] Europe has failed to bring peace.
+- [59:30.740] And Zelenskyy probably wants to —
+- [59:32.460] maybe he wants to keep the gravy train going.
+- [59:34.600] I don’t know what’s the problem, but he hasn’t been able to —
+- [59:36.630] he’s very upset that he wasn’t invited —
+- [59:38.920] he could have come if he wanted to —
+- [59:40.350] but that he wasn’t invited to Saudi Arabia.
+- [59:42.300] But he’s been working for three years.
+- [59:44.760] There’s never been even meetings or phone calls to stop this war.
+- [59:48.030] It’s a horrible thing.
+- [59:49.750] I figure Russia has lost 900,000 soldiers.
+- [59:52.580] I think that Ukraine has lost probably 700,000,
+- [59:56.880] and it’s a terrible thing. You’ll see body parts —
+- [59:59.200] bodies and body parts all over the field. All over.
+- [01:00:02.220] We see them through — very accurately through satellites.
+- [01:00:06.680] I love Ukraine, but Zelenskyy has done a terrible job.
+- [01:00:10.290] His country is shattered, and millions and millions
+- [01:00:13.660] of people have unnecessarily died.
+- [01:00:16.570] And you can’t bring a war to an end
+- [01:00:19.130] if you don’t talk to both sides. You got to talk.
+- [01:00:21.290] They haven’t been talking for three years.
+- [01:00:24.180] So, we hope to see a ceasefire soon
+- [01:00:26.020] and to reestablish stability in Europe and the Middle East.
+- [01:00:30.370] (Applause.)
+- [01:00:33.850] But as I — thank you very much. And as I’ve said before,
+- [01:00:37.560] it’s my hope that my greatest legacy
+- [01:00:40.420] will be as a peacemaker and a unifier.
+- [01:00:43.250] That would be a great legacy. (Applause.)
+- [01:00:48.160] So, in conclusion, the golden age of America is upon us,
+- [01:00:51.980] and I’m inviting everyone here today
+- [01:00:54.180] and every citizen across our land
+- [01:00:55.890] to take part in the most extraordinary period of peace,
+- [01:00:59.260] prosperity, growth, innovation, wealth creation,
+- [01:01:02.110] and expansion the world has ever seen.
+- [01:01:04.340] We’re on our way. I mean, everyone is talking about us.
+- [01:01:06.670] Three weeks.
+- [01:01:07.980] We’re in there for a couple of days more than three weeks,
+- [01:01:11.210] and everyone is talking about it.
+- [01:01:13.540] You have to see the crowds of people outside.
+- [01:01:16.120] It’s pretty amazing what’s happening.
+- [01:01:18.190] We’re on the verge of soaring markets,
+- [01:01:20.620] surging incomes, booming production,
+- [01:01:23.310] groundbreaking technologies, thrilling discoveries,
+- [01:01:26.250] and a quantum leap in the quality of life.
+- [01:01:29.680] Absolutely, a quantum leap.
+- [01:01:31.240] One day very soon, our country will have the greatest economy
+- [01:01:34.050] in the history of the world,
+- [01:01:35.410] because we once again have a president
+- [01:01:38.240] who puts America first. And we put America first,
+- [01:01:40.960] and your country should put your country first,
+- [01:01:43.030] but in the end, we want America first.
+- [01:01:45.190] And when it’s all beautiful,
+- [01:01:46.920] which it’s going to be pretty soon,
+- [01:01:48.870] we want to help other countries
+- [01:01:50.120] and you want to help other countries.
+- [01:01:51.560] But, you know, I tell your leaders —
+- [01:01:53.470] and some of the leaders are in this room right now —
+- [01:01:55.240] you got to put your country first.
+- [01:01:56.620] Whether it’s Saudi Arabia, whether it’s something else,
+- [01:01:58.450] you’re going to put your country first,
+- [01:01:59.820] but we’re going to have plenty left over to help others also.
+- [01:02:03.740] As long as you invest in America, build in America,
+- [01:02:06.660] and hire in America, that means that I’m fighting for you.
+- [01:02:10.170] I am fighting very hard for you.
+- [01:02:12.380] Together, we’re going to make the United States of America
+- [01:02:16.530] bigger, better, bolder, richer, and greater than ever before.
+- [01:02:20.880] It’s going to be stronger than ever before.
+- [01:02:22.760] We’re going to be a peacemaker and a peacekeeper.
+- [01:02:24.860] We’re going to stop people from these stupid, never-ending wars.
+- [01:02:30.120] We’re not going to partake in them ourselves,
+- [01:02:32.360] but we’ll be stronger and more powerful than anybody by far.
+- [01:02:35.680] And if it ever came to war,
+- [01:02:37.520] there is nobody that will be able to come close to us,
+- [01:02:39.820] but we don’t think that’s going to ever happen.
+- [01:02:42.010] So, I want to thank you all very much.
+- [01:02:43.530] It’s a great honor to be here.
+- [01:02:44.980] And I think somebody said they’re going to ask questions,
+- [01:02:48.440] and I didn’t say, “Gee, what are the questions,” like Biden does.
+- [01:02:51.010] I say, “Just ask. It doesn’t matter.”
+- [01:02:53.770] You ask a question, and I give an answer.
+- [01:02:55.610] So, I think, Richard, you’re going to come up
+- [01:02:57.150] and you’re going to give me some questions.
+- [01:02:59.070] Thank you very much. (Applause.)
+- [01:03:01.170] MR. ATTIAS: Thank you. Thank you very much, Mr. President.
+- [01:03:03.700] Please, a round of applause for the president
+- [01:03:06.210] of United States of America. Thank you.
+- [01:03:07.670] (Applause.)
+- [01:03:08.870] THE PRESIDENT: Thank you.
+- [01:03:19.390] MR. ATTIAS: Mr. President,
+- [01:03:21.220] thank you for accepting to take a few questions.
+- [01:03:24.820] Twenty years ago, I don’t know if you will remember,
+- [01:03:28.300] we were under the same roof in Orlando,
+- [01:03:30.290] and you were delivering an amazing speech
+- [01:03:32.720] in front of 3,000 sales rep,
+- [01:03:35.660] giving them the best advice to be successful.
+- [01:03:38.860] So, what is the best piece of advice
+- [01:03:40.780] that you have ever received?
+- [01:03:43.390] THE PRESIDENT: Well, I think it was watching my father.
+- [01:03:44.750] You know, my father was a very hard worker,
+- [01:03:47.170] and he just worked hard and he was very smart.
+- [01:03:50.180] He had good genetics.
+- [01:03:51.480] His brother was the longest-serving professor
+- [01:03:53.650] in the history of MIT, Dr. John Trump.
+- [01:03:56.530] And my father was every bit as smart,
+- [01:03:58.520] but my father was — had to work.
+- [01:04:01.070] He was older, and he put his brother through school.
+- [01:04:04.420] In fact, he once said,
+- [01:04:05.620] “Boy, I put him through so much school.”
+- [01:04:07.180] He had three different degrees,
+- [01:04:09.370] and they asked him to stay on at MIT.
+- [01:04:11.090] But my father was the same ilk.
+- [01:04:13.000] And I noticed that my father was a happy man,
+- [01:04:18.540] and what he did is he worked. He just worked all the time.
+- [01:04:21.620] He worked, worked, worked, and he loved it.
+- [01:04:25.390] And, really, I think the best piece of advice I got from that
+- [01:04:28.040] is you have to love what you do, and if you love what you do,
+- [01:04:30.120] you’re going to have a happy life.
+- [01:04:31.370] If you don’t — I mean, I see so many people,
+- [01:04:33.040] they’re in businesses that they don’t want to be in.
+- [01:04:35.500] They’re in businesses that, you know, they’re bored in
+- [01:04:37.820] or they’re not good at,
+- [01:04:39.430] they don’t have a natural ability at it.
+- [01:04:41.060] There is such a thing as natural ability,
+- [01:04:42.830] whether it’s sports or acting or anything else.
+- [01:04:46.340] I mean, some people have an ability for something.
+- [01:04:48.430] Try and find that ability.
+- [01:04:49.660] But you have to love what you do.
+- [01:04:51.500] If you love what you do, you’re going to be —
+- [01:04:53.020] at least you have a good chance of being successful.
+- [01:04:56.130] MR. ATTIAS: Mr. President, it’s almost time for —
+- [01:04:58.790] (applause) — for an early dinner.
+- [01:05:01.030] So, if you are throwing a dinner party,
+- [01:05:04.310] and you can invite three fascinating guests,
+- [01:05:07.590] living or dead, who would you bring?
+- [01:05:09.720] THE PRESIDENT: Well, they’re all sitting right in the front row.
+- [01:05:12.210] (Laughter and applause.) Yasir, are you ready?
+- [01:05:14.800] Mohammed, are you ready? Steve Witkoff.
+- [01:05:17.470] And we have Mr. — the most important person,
+- [01:05:21.370] at least until the World Cup is over, is here.
+- [01:05:23.360] Gianni, stand up. He gave the United States the World Cup.
+- [01:05:27.090] (Applause.)
+- [01:05:29.070] Gianni, thank you very mu- — I didn’t know you were here.
+- [01:05:31.250] That’s very good. He’s the king of soccer.
+- [01:05:33.570] That’s not bad. And you’ve done a fantastic job.
+- [01:05:36.480] You know, but it’s very interesting,
+- [01:05:38.990] when I was president, I got the World Cup
+- [01:05:42.640] and I got all of the — you know, we have the 250 anniversary,
+- [01:05:47.560] so that fell in this administration.
+- [01:05:49.470] That’s a big deal: 250 years.
+- [01:05:52.110] But we have all of these things happening,
+- [01:05:53.940] and I also got the Olympics.
+- [01:05:55.290] And I was called by the mayor of Los Angeles,
+- [01:05:58.640] “Sir, would you call up the Olympic Committee because”
+- [01:06:01.870] — it was at that time —
+- [01:06:03.070] “President Obama will not take their phone call.
+- [01:06:05.210] And we’re going to get the Olympics in Los Angeles.”
+- [01:06:07.230] And, by the way, they’ve recommitted to Los Angeles
+- [01:06:09.320] at a level that — you know, I was very worried about that.
+- [01:06:12.130] And they’ve — the opposite.
+- [01:06:13.390] You know, somebody could have said,
+- [01:06:14.680] “Well, we’re going to do it someplace else until” —
+- [01:06:16.850] they have actually recommitted.
+- [01:06:18.340] They’re going to make it bigger and better than ever.
+- [01:06:20.070] So, I want to let you know that. (Applause.)
+- [01:06:21.470] But I got — I had the Olympics. So, I got the Olympics.
+- [01:06:24.590] I got the World Cup, and I said — and the 250,
+- [01:06:27.510] but that one I didn’t get.
+- [01:06:29.320] But it was there. It was in this term.
+- [01:06:32.300] And I ran an election, and we did fantastic in 2016.
+- [01:06:35.540] We did much better — millions and millions — tens of millions,
+- [01:06:39.040] but millions and millions of votes better.
+- [01:06:40.820] And bad things happened, and I didn’t get that one.
+- [01:06:45.240] And I said, “You know” —
+- [01:06:46.840] when I originally signed the Olympics, I said,
+- [01:06:49.740] “I won’t be able to even be president,
+- [01:06:52.180] and I got the Olympics,” because if I didn’t —
+- [01:06:53.880] when I spoke with the people — the organizing committee
+- [01:06:56.230] and the people in different parts of the world —
+- [01:06:59.020] they asked me to do it because the president wouldn’t do it.
+- [01:07:01.360] I was president-elect, and I gave them a talk.
+- [01:07:03.850] I couldn’t get them off the phone.
+- [01:07:05.240] They were starving for love.
+- [01:07:07.260] And the bottom line: They gave us the Olympics.
+- [01:07:09.090] And I said, “You know, isn’t it sad
+- [01:07:10.420] I won’t be president?” Then we had the election result,
+- [01:07:12.670] and now I’m president for the Olympics
+- [01:07:14.620] and for the World Cup. (Applause.)
+- [01:07:16.630] So, I’m very happy about that, Gianni.
+- [01:07:18.400] Thank you very much.
+- [01:07:19.620] Thank you, G- — (laughs)
+- [01:07:20.850] — I’ll be there. I promise, I’ll be there.
+- [01:07:22.480] MR. ATTIAS: And, by the way, Mr. President,
+- [01:07:23.820] backstage, you have a gift from Gianni.
+- [01:07:26.030] He gave us the first ball with your name —
+- [01:07:28.760] THE PRESIDENT: Ooh —
+- [01:07:29.990] MR. ATTIAS: — which will be played for the cup —
+- [01:07:32.460] World Cup in America.
+- [01:07:33.780] THE PRESIDENT: That’s great. It’s going to be great.
+- [01:07:35.020] Thank you, Gianni, very much. (Applause.)
+- [01:07:37.140] MR. ATTIAS: I doubt that any day you will take a sabbatical year,
+- [01:07:41.010] but if you could take a sabbatical year, Mr. President,
+- [01:07:43.970] what unconventional thing would you do?
+- [01:07:45.870] THE PRESIDENT: What was the word?
+- [01:07:47.130] MR. ATTIAS: Sabbatical. You don’t work for one year.
+- [01:07:48.520] THE PRESIDENT: Oh, sabbatical.
+- [01:07:49.750] I thought — thought you said “sabbath.” (Laughter.)
+- [01:07:51.400] That’s a big difference. It’s almost the opposite,
+- [01:07:53.560] when you think about it. Right?
+- [01:07:55.100] (Laughter.)
+- [01:07:56.580] I think what I’d do is — look, what I’m doing now
+- [01:08:00.930] is the most exciting job in the world.
+- [01:08:02.970] It’s a hard job, not an easy job.
+- [01:08:04.870] It’s a nasty job.
+- [01:08:06.660] It could be a lot easier with — you know, I —
+- [01:08:08.670] I think that the — the news media
+- [01:08:11.380] has to straighten themselves out,
+- [01:08:12.810] because people are getting it.
+- [01:08:14.020] You know, they — they’re losing tremendous popularity,
+- [01:08:17.580] and they’ve lost their prestige
+- [01:08:19.050] and they’ve lost their credibility.
+- [01:08:21.320] And I think it’s a very important thing, the news media,
+- [01:08:24.660] but I think they have to straighten themselves out,
+- [01:08:26.880] because the people are going around them.
+- [01:08:28.600] Now, they have so many different things with —
+- [01:08:30.360] like Elon with X, which was a big — a big thing.
+- [01:08:33.200] And we have Truth, which has been fantastic.
+- [01:08:35.400] And we have so many other things
+- [01:08:36.730] that you don’t really need traditional.
+- [01:08:39.180] But I — I will tell you that there is just nothing
+- [01:08:43.290] I could do to enjoy my life,
+- [01:08:45.860] whether it’s that or anything else that you’d ask,
+- [01:08:48.270] because this is the ultimate.
+- [01:08:49.790] I mean, I had to make a big decision,
+- [01:08:51.610] and it was a very risky decision,
+- [01:08:53.070] because if I would have lost,
+- [01:08:54.960] my life would have been a much different life.
+- [01:08:56.690] It would have been a very nasty life.
+- [01:08:58.180] They were going after me at levels
+- [01:08:59.690] that nobody has ever seen before —
+- [01:09:01.080] not Andrew Jackson, not Abraham Lincoln.
+- [01:09:03.410] You know, the historians say that the president
+- [01:09:07.020] that was treated the worst by far by the media
+- [01:09:09.250] and overall was Andrew Jackson.
+- [01:09:12.620] In fact, his wife died of heartbreak.
+- [01:09:16.490] They were treated really rough.
+- [01:09:17.840] And Abraham Lincoln was second, but he had a civil war.
+- [01:09:20.790] You know, you can understand that.
+- [01:09:22.700] But nobody was treated like me. Nobody.
+- [01:09:26.020] And I will tell you, you learn a lot about yourself.
+- [01:09:30.280] But there’s nothing I’d rather do.
+- [01:09:31.770] I had to make a decision: Do I do this?
+- [01:09:33.520] Because if I lost, it would have been very, very bad.
+- [01:09:36.770] It was dangerous, actually.
+- [01:09:37.980] Very dangerous in so many different ways.
+- [01:09:40.700] And I decided to do it.
+- [01:09:42.300] And I said, “I have to win, because if I don’t” —
+- [01:09:44.340] when I spoke to a friend of mine the other night, he said,
+- [01:09:46.110] “You know, if you lost, it would have been very” —
+- [01:09:48.400] it was actually Sean Hannity,
+- [01:09:49.870] just before we did the interview last night.
+- [01:09:52.500] He said, “Boy, if you would have lost, it would have —
+- [01:09:54.450] you would have had a tough life.
+- [01:09:56.160] You would have had a very tough life.”
+- [01:09:57.700] So, it was — there was a certain amount of courage
+- [01:10:00.260] involved in this decision to run.
+- [01:10:02.270] And it’s a great honor to win by this much —
+- [01:10:06.480] to win all seven swing states, the popular vote.
+- [01:10:09.260] Popular vote doesn’t get won that much by Republicans,
+- [01:10:11.800] for whatever reason. I think that’s changing,
+- [01:10:14.090] because, again, we’re the party of common sense
+- [01:10:16.110] and they’re the party of some real bad things.
+- [01:10:18.450] And I think they’ll change. I think they have to change.
+- [01:10:20.840] It would be wonderful. I’m going to be having lunch
+- [01:10:22.680] with some of the Democrats next week,
+- [01:10:24.310] and it would be wonderful if we could work together.
+- [01:10:26.860] I think working together would be great.
+- [01:10:28.500] But they have to change.
+- [01:10:29.730] You can’t get elected on the programs that they want,
+- [01:10:31.910] and that’s one of —
+- [01:10:33.110] that’s really what America wants to see.
+- [01:10:35.340] So, there’s nothing I’d rather do
+- [01:10:37.120] than what I’m doing right now.
+- [01:10:39.110] (Applause.)
+- [01:10:40.790] MR. ATTIAS: When we started this conference —
+- [01:10:42.940] Mr. President, when we started this conference,
+- [01:10:45.280] Yasir and I, His Royal Highness Crown Prince told us,
+- [01:10:47.970] “I want that to be the place
+- [01:10:49.350] where people will come to understand
+- [01:10:51.860] where to invest in terms of geographies and sector.”
+- [01:10:55.630] So, what is the best investment you have made
+- [01:10:58.270] in your personal growth, Mr. President?
+- [01:11:00.770] THE PRESIDENT: Well, I was involved in real estate
+- [01:11:03.160] from, you know, most of my life and was — you know,
+- [01:11:07.170] guys like Witkoff will tell you I was really good at it
+- [01:11:10.190] and I was successful at it — very successful at it.
+- [01:11:13.620] I’ve been involved in things prior to being president,
+- [01:11:17.150] but during the four years —
+- [01:11:18.850] during the last four years, you know,
+- [01:11:20.470] I followed sort of the trends, and I’ve made a lot of money
+- [01:11:23.490] with following some of these trends.
+- [01:11:25.810] And, you know, it’s — again, it’s something that you do.
+- [01:11:30.180] You — it’s — I really believe that some people have instinct.
+- [01:11:33.410] I think I’ve always had an instinct for making money.
+- [01:11:35.460] I make money.
+- [01:11:36.950] And I went into show business.
+- [01:11:38.750] I had one of the most successful shows on television.
+- [01:11:41.130] I wrote books, and they were all bestsellers.
+- [01:11:44.260] Virtually every book a bes- —
+- [01:11:45.630] was a big bestseller, some really big bestsellers.
+- [01:11:48.200] And so, I don’t know, it’s — whatever I do,
+- [01:11:51.130] I just want to make it successful.
+- [01:11:52.350] It’s very important to me.
+- [01:11:53.570] There are many ways to make money.
+- [01:11:54.790] You can be in many different fields,
+- [01:11:56.830] and a lot of them is being in the right country.
+- [01:12:00.180] You know, if you’re in a certain country —
+- [01:12:03.600] our country was actually getting very bad —
+- [01:12:05.800] a very dangerous place, actually.
+- [01:12:08.060] Bad things were happening.
+- [01:12:09.460] But if you’re in a certain country,
+- [01:12:11.330] you have a chance to do well. And no matter how good you are,
+- [01:12:14.330] if you were born into the wrong country,
+- [01:12:16.050] you’re not going to make money.
+- [01:12:17.390] Now, you can do other things. You can attain power, I guess.
+- [01:12:21.340] Maybe it’s the wrong kind of power, but it’s power.
+- [01:12:24.200] But being in the right country,
+- [01:12:26.920] where you have the right incentives
+- [01:12:28.460] and, you know, entrepreneurship, et cetera.
+- [01:12:31.410] And America has always been sort of at the top —
+- [01:12:34.740] or one of the top, but always pretty much at the top.
+- [01:12:37.710] But it was losing that — it was losing that position
+- [01:12:41.410] and, I think, losing it rapidly.
+- [01:12:42.780] This last administration — look, I don’t want to be —
+- [01:12:44.980] I wish I could say I —
+- [01:12:46.410] I wouldn’t have run if — if I thought
+- [01:12:49.140] Biden was doing a good job, if I thought they were —
+- [01:12:51.540] I wouldn’t have run, because, as I said,
+- [01:12:54.030] it was very dangerous to run in a lot of ways.
+- [01:12:56.330] In fact, my ear will show that when you look at it closely.
+- [01:12:58.870] My ear — I have that throbbing feeling every once in a while.
+- [01:13:02.720] But it was dangerous in a lot of different ways.
+- [01:13:05.610] But he was so bad that I had no choice but to do it.
+- [01:13:08.870] If I thought he was doing a great job,
+- [01:13:10.620] I wouldn’t have run, and I would be very happy.
+- [01:13:13.100] I actually wanted him to do a good job.
+- [01:13:15.090] I was saying, “Do this. Do that.”
+- [01:13:16.860] I’m telling them do things.
+- [01:13:18.200] They should have done what I said.
+- [01:13:20.330] And — but I would have been — I would have been very happy
+- [01:13:23.000] not to have run
+- [01:13:24.210] and, frankly, to have seen somebody do a good job.
+- [01:13:27.500] But our country was going to hell,
+- [01:13:30.310] and I really sort of had to run.
+- [01:13:33.440] MR. ATTIAS: If you were a historical ruler,
+- [01:13:35.970] would you prefer to rule during war or peace?
+- [01:13:39.260] THE PRESIDENT: Well, I — I’d — I want to be,
+- [01:13:41.130] again, a peacemaker and I want to keep us out of war.
+- [01:13:43.590] But sometimes, to do that,
+- [01:13:45.430] you have to have a very strong country.
+- [01:13:46.880] You have to have a very strong military.
+- [01:13:49.480] And as I said, we have a much stronger military
+- [01:13:51.590] than anyone would know.
+- [01:13:52.850] We have the best equipment, and I bought a lot of it.
+- [01:13:55.260] I rebuilt our military in the first four years.
+- [01:13:57.460] I rebuilt it.
+- [01:13:58.740] We gave a lot of it away to Afghanistan,
+- [01:14:00.810] to the Taliban, stupidly —
+- [01:14:03.180] but that’s a very small amount, relative.
+- [01:14:04.910] It was billions and billions,
+- [01:14:06.440] but it’s still a very small amount
+- [01:14:08.150] relatively to what we built.
+- [01:14:10.290] But I rebuilt — largely rebuilt our military.
+- [01:14:12.680] Now I’m going to have to do it again,
+- [01:14:13.970] because so much has been given away,
+- [01:14:15.610] so much has been treated so badly.
+- [01:14:18.790] And — but to keep peace, you really have to —
+- [01:14:21.930] I have a thing: strength through —
+- [01:14:25.300] and I mean it, you really have it.
+- [01:14:27.070] You have strength, and you need the strength,
+- [01:14:28.710] but it’s really peace through strength,
+- [01:14:30.120] because without the strength,
+- [01:14:31.730] it’s going to be very hard to have peace
+- [01:14:33.650] because you’re going to be taken over,
+- [01:14:35.240] bad things are going to happen.
+- [01:14:36.470] So, you really want to have peace through strength,
+- [01:14:38.370] and that’s where I’ve done it.
+- [01:14:41.090] Having strength, having power, in that sense,
+- [01:14:44.460] to protect yourself
+- [01:14:45.750] and your people is a very important thing.
+- [01:14:47.600] Hopefully, you don’t have to use that power.
+- [01:14:49.250] I will tell you, I was dealing with President Putin
+- [01:14:52.210] very successfully on denuclearization.
+- [01:14:55.260] We were talking about it very seriously,
+- [01:14:57.940] and then COVID came and lots of things came.
+- [01:15:00.210] And we had also talked to China about it.
+- [01:15:02.160] Now, Russia and us have the biggest nuclear by far.
+- [01:15:06.840] China is not close, but they will be close.
+- [01:15:09.570] In three or four years or five years, they’ll be equal.
+- [01:15:13.250] But we were going to talk to China,
+- [01:15:15.750] and I spoke to President Xi about it very successfully.
+- [01:15:18.440] I think we were going to denuclearize it.
+- [01:15:20.430] We were — had to get the smaller nuclear powers,
+- [01:15:23.650] of which there are four — three, maybe,
+- [01:15:26.490] but four probably — to do something.
+- [01:15:29.160] We would have been able to do that.
+- [01:15:30.680] But I was having very strong talks
+- [01:15:32.870] with President Putin about denuclearization.
+- [01:15:36.680] And, you know, if you’re president,
+- [01:15:38.410] you get presentations about what we’re building;
+- [01:15:41.340] what we’re having; the power of weapons;
+- [01:15:43.380] the power of many things besides weapons, per se.
+- [01:15:48.020] When I saw the power of nuclear weapons —
+- [01:15:51.070] and we can never let that happen.
+- [01:15:54.040] If that happens, the ball game will be —
+- [01:15:58.660] the world will be destroyed. The power is so enormous.
+- [01:16:03.900] You look at Hiroshima, you look at Nagasaki —
+- [01:16:08.370] multiply that times 500 times,
+- [01:16:12.140] and the world would be destroyed.
+- [01:16:14.960] So, you want somebody as your president
+- [01:16:17.080] or you want somebody as your leader that understands that.
+- [01:16:20.200] We just can’t let that happen.
+- [01:16:21.950] We can’t let other countries get nuclear weapons — not only Iran.
+- [01:16:26.650] Iran is a good example, and maybe the one
+- [01:16:28.720] that people think about, but we can’t let that happen.
+- [01:16:31.520] The power of weaponry today is so enormous that the world —
+- [01:16:37.570] the world would disintegrate. So, we can’t let it happen.
+- [01:16:42.140] MR. ATTIAS: Mr. President, if you had to describe
+- [01:16:44.010] United States of America
+- [01:16:45.290] in just three words, what would they be?
+- [01:16:49.610] THE PRESIDENT: In three words?
+- [01:16:50.900] MR. ATTIAS: Three words.
+- [01:16:54.150] THE PRESIDENT: Love, respect, and strength.
+- [01:16:59.180] (Applause.)
+- [01:17:00.660] That’s a tough question.
+- [01:17:02.840] That might be my best answer, Yasir.
+- [01:17:05.260] That’s — that reminds me of high school, that one.
+- [01:17:08.280] But that may have been the toughest question, actually.
+- [01:17:10.870] Do you think Joe Biden could have done that?
+- [01:17:12.350] I don’t think so. (Laughter.) I don’t think so.
+- [01:17:16.630] MR. ATTIAS: We’re almost at the end, Mr. President.
+- [01:17:18.500] But talking about United States of America,
+- [01:17:21.590] what is one cultural habit in the Uni- —
+- [01:17:24.720] in the U.S. business
+- [01:17:27.030] that the rest of the world could learn from?
+- [01:17:29.730] What is the best practice that (inaudible).
+- [01:17:31.390] THE PRESIDENT: Well, I think we love our families,
+- [01:17:32.690] but I think a lot of the world loves their families, you know?
+- [01:17:35.610] I was speaking to the head of Mexico,
+- [01:17:38.490] because I complain constantly about people pouring in.
+- [01:17:41.170] Now our border is the strongest border we’ve ever had.
+- [01:17:43.190] We’ve gone from the worst border ever in history
+- [01:17:45.240] to the strongest border.
+- [01:17:47.130] But I was speaking to the president of Mexico —
+- [01:17:50.550] a very wonderful woman, actually —
+- [01:17:53.800] and I said — we were talking about drugs —
+- [01:17:56.860] “You can’t let people come through your country
+- [01:17:58.570] and come into the country.” You know, I was not that nice,
+- [01:18:00.960] but they understood what I was saying.
+- [01:18:04.060] And she said something that really got me.
+- [01:18:05.720] She said — I said, “Are you a —
+- [01:18:08.130] you’re not a big drug-taking nation?”
+- [01:18:10.430] And she said, “No, we are not a consumer.”
+- [01:18:12.710] And I said, “A consumer.
+- [01:18:14.010] What a — you know, an interesting word.
+- [01:18:16.180] ‘We’re not a consumer nation. We’re not a consumer of drugs.’”
+- [01:18:19.480] I said, “What an interesting — and why — why is that?”
+- [01:18:21.540] He said — she said, “Well, we have
+- [01:18:23.800] very strong family values.”
+- [01:18:25.390] I said, “But we do too. We do too.”
+- [01:18:27.490] We have very strong — our families are devastated
+- [01:18:30.260] by what’s happening with fentanyl.
+- [01:18:31.810] And China will not be doing —
+- [01:18:33.960] we’re going to make a deal with China.
+- [01:18:35.740] We’re not letting that happen anymore.
+- [01:18:38.430] And I had a deal — by the way, before I left,
+- [01:18:41.000] I had a deal with President Xi
+- [01:18:42.320] where they were going to give the maximum penalty
+- [01:18:44.250] to anybody making fentanyl
+- [01:18:45.770] and sending it into the United States,
+- [01:18:48.110] and their maximum penalty is the death penalty.
+- [01:18:50.180] And it would have stopped.
+- [01:18:51.620] But when the election turned out to be a rigged election —
+- [01:18:54.490] but that’s okay — when election turned out to be —
+- [01:18:58.360] it was an election that shouldn’t have happened.
+- [01:19:00.020] All the — all the things that happened —
+- [01:19:02.340] I give you an example:
+- [01:19:04.830] We wouldn’t have had October 7th Israel attack.
+- [01:19:08.070] We wouldn’t have had Ukraine and Russia fighting.
+- [01:19:10.090] We wouldn’t have had inflation.
+- [01:19:11.400] We wouldn’t have had all of these things
+- [01:19:13.110] that, you know, happened.
+- [01:19:14.310] But in speaking with her — she said about family values —
+- [01:19:17.900] I said,
+- [01:19:19.100] “Well, you’re not really saying anything there,
+- [01:19:21.030] because we have great families too.
+- [01:19:22.460] We have great family values.”
+- [01:19:24.430] She said, “Plus, we advertise a lot.”
+- [01:19:26.450] I said, “Ooh.
+- [01:19:27.790] You mean you advertise about how bad drugs are?”
+- [01:19:29.710] “Yes, we do. We spend a lot of money on advertising.”
+- [01:19:32.000] And I said, “Unbelievable.”
+- [01:19:34.010] That was such a great conversation,
+- [01:19:35.690] because we’re going to spend hundreds of millions of dollars
+- [01:19:38.290] advertising how bad drugs are so that kids don’t use them —
+- [01:19:41.180] that they chew up your brain;
+- [01:19:42.770] they destroy your teeth, your skin, your everything.
+- [01:19:45.590] (Applause.)
+- [01:19:46.810] And I thanked her for that.
+- [01:19:48.360] You know, I — I make so many calls,
+- [01:19:49.980] and I never learn anything from anybody.
+- [01:19:51.570] I know everything, and I never learned anything from anybody.
+- [01:19:53.580] (Laughter.)
+- [01:19:54.780] And I spoke to this woman — as soon as she said it —
+- [01:19:57.080] she didn’t have to say exactly what —
+- [01:19:58.980] I said, “Exactly. What a great idea.”
+- [01:20:01.820] And I think we’re going to have a — and I saw pieces of it.
+- [01:20:04.260] We’re going to go in with $100 million
+- [01:20:06.150] and then another $100 million initially.
+- [01:20:08.580] But I saw some of the ads, and they are really violent.
+- [01:20:11.760] I said, “You have to make them strong.”
+- [01:20:13.870] Your skin practically comes off after a period of time.
+- [01:20:16.790] You lose your hearing.
+- [01:20:18.330] You — you lose your teeth. You lose — I mean, you — it —
+- [01:20:21.400] it is terrible, and we show this happening to people.
+- [01:20:25.660] And I think we’re going to — you know,
+- [01:20:27.030] we — we did very well with — we had blue-ribbon committees,
+- [01:20:31.340] headed up by the first lady of the United States
+- [01:20:33.930] and a lot of other people that — you know, they have no idea
+- [01:20:37.110] the viciousness of these cartels and these people.
+- [01:20:40.050] And they’re smarts. I mean, they’re very smart, tough people
+- [01:20:43.710] — making a fortune, by the way — an absolute fortune.
+- [01:20:45.900] But we got it down 18 percent, which was a record.
+- [01:20:50.520] But 18 percent is not great, when you think about it.
+- [01:20:53.210] I think we could get it down 50 or 55
+- [01:20:55.370] or maybe even 60 percent with advertising.
+- [01:20:57.510] So, she really gave me something.
+- [01:20:59.430] I — I was going to call her and tell her that she did,
+- [01:21:01.730] but now I don’t have to call her
+- [01:21:03.020] because she’s going to be seeing this right now.
+- [01:21:04.560] (Laughter.)
+- [01:21:05.780] So, to the president of Mexico:
+- [01:21:07.130] Thank you very much. I appreciate it.
+- [01:21:08.820] But we’re going to do a great advertising campaign
+- [01:21:11.110] saying how bad it is, how drugs are so bad for you.
+- [01:21:15.230] (Applause.)
+- [01:21:17.950] MR. ATTIAS: My last question, Mr. President.
+- [01:21:20.140] You have mentioned briefly in your speech about the legacy.
+- [01:21:25.700] What would you like your legacy to be,
+- [01:21:27.700] if you can tell us more about it?
+- [01:21:29.810] THE PRESIDENT: That I came into a country that was great
+- [01:21:35.280] but is in trouble,
+- [01:21:37.190] and I made America great again, and I got it out of trouble.
+- [01:21:41.180] And people respect America now. And we were a country of peace,
+- [01:21:45.210] and we brought peace to the rest of the world.
+- [01:21:47.390] (Applause.)
+- [01:21:48.670] MR. ATTIAS: Thank you.
+- [01:21:49.870] Thank you very much, Mr. President.
+- [01:21:51.260] (Applause.)
+- [01:21:52.460] THE PRESIDENT: Thank you very much, everybody.
+- [01:21:53.720] Thank you. (Applause.)

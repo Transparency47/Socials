@@ -1,0 +1,158 @@
+<!-- source: https://www.youtube.com/watch?v=P6zgXhLYBQg -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: P6zgXhLYBQg -->
+<!-- date_published: 2025-09-26T15:34:02+00:00 -->
+<!-- date_accessed: 2026-06-02T01:14:12.158878+00:00 -->
+
+# Transcript: President Trump Gaggles with Press Before Departing the White House, Sep. 26, 2025
+
+- [00:01.600] Thank you everybody.
+- [00:03.679] >> So, I'm gonna go for a little while to
+- [00:06.160] represent the United States at the RDER
+- [00:08.320] Cup, which is very exciting. And we'll
+- [00:11.280] be watching that. This is Kai, by the
+- [00:13.120] way, in case you didn't know. How are
+- [00:14.480] you?
+- [00:14.880] >> Hi, Kai.
+- [00:15.759] >> And we'll be watching uh a little golf.
+- [00:18.640] I think we have u maybe a deal on Gaza.
+- [00:22.480] Very close to a deal on Gaza. How are
+- [00:25.039] you? Hello, Peter.
+- [00:28.160] And it's looking like we have a deal on
+- [00:30.160] Gaza.
+- [00:31.439] >> And we'll we'll let you know
+- [00:34.399] Mr. President. Mr. President,
+- [00:36.079] >> I think it's a deal that will get the
+- [00:37.760] hostages back. It's going to be a deal
+- [00:39.680] that will end the war. Uh it's going to
+- [00:43.200] be a deal which it's going to be peace.
+- [00:45.120] I think we have a deal. That'll be
+- [00:46.559] number eight. Peter, not
+- [00:49.840] >> Mr. President. I'm James Comey. Now that
+- [00:52.079] James Comey has been indicted, who is
+- [00:54.239] the next person on your list in this
+- [00:56.239] retribution? not a list, but I think
+- [00:58.000] there'll be others. I mean, they're
+- [00:59.359] corrupt. These uh these were corrupt
+- [01:02.160] radical left Democrats cuz Comey
+- [01:04.879] essentially was a He's worse than a
+- [01:06.640] Democrat. I would say the Democrats are
+- [01:09.040] better than Comey,
+- [01:10.640] >> but uh no, there'll be others. Look, it
+- [01:13.040] was that's my opinion. Uh they
+- [01:17.439] weaponized
+- [01:19.119] the Justice Department like nobody in
+- [01:21.360] history. What they've done is terrible.
+- [01:23.520] And so I would I hope there frankly I
+- [01:25.840] hope there are others because you can't
+- [01:27.520] let this happen to a country.
+- [01:29.200] >> And will you appoint will you appoint a
+- [01:31.200] permanent US attorney to try this case?
+- [01:33.439] Lindsay Helan has never tried a
+- [01:35.200] >> Well, we'll see. But it's a pretty easy
+- [01:36.799] case because look, he lied. You saw my
+- [01:39.439] truth today. He lied. It was Yes. No. He
+- [01:42.960] didn't say, "Well, in my opinion, he
+- [01:44.960] didn't do a lot of things that maybe he
+- [01:47.439] should have, but I don't think he could
+- [01:49.119] because he lied." That was a very
+- [01:52.240] important question that he was asked and
+- [01:54.320] he wanted to be specific but he didn't
+- [01:56.799] the only thing that happened to him he
+- [01:58.640] didn't think he'd get caught
+- [02:02.079] >> that answer that he gave that was a very
+- [02:04.320] important answer and it was very for him
+- [02:07.040] it was a very good answer if he didn't
+- [02:08.879] get caught but he got caught lying to
+- [02:10.959] Congress
+- [02:15.360] from President Trump are you worried now
+- [02:18.239] that the next time there's a Democratic
+- [02:21.599] They will indict your FBI director or
+- [02:26.080] people in your
+- [02:27.200] >> That's what they tried to do, right?
+- [02:28.640] They did it with me for four years. They
+- [02:30.400] went after me. They went after me for
+- [02:32.640] four years. And that doesn't include the
+- [02:35.040] four great years that we had in the
+- [02:36.640] White House. So when I ran it from, you
+- [02:39.120] know, 2016 when we won, it began before
+- [02:42.879] I got to office. You know that. Wait a
+- [02:45.440] minute. Before I came to office, I
+- [02:48.239] started hearing rumors about Russia. I
+- [02:51.040] said, "What the hell do I have to do
+- [02:52.480] with Russia?" Nothing. And then it got
+- [02:54.400] worse and worse. And some of the fakers,
+- [02:56.319] not you, but some of the fake news
+- [02:58.239] picked it up and they loved it. And we
+- [03:00.400] went through a long time with that. And
+- [03:02.159] despite that, we had a great first term.
+- [03:06.560] That's how it went. That's how it went
+- [03:08.640] where they hate to go and take a mug
+- [03:11.040] shot. Is this more about justice or is
+- [03:14.239] it about revenge?
+- [03:15.440] >> It's about justice. It's not revenge.
+- [03:18.400] It's also It's also about the fact that
+- [03:21.440] you can't let this go on. They are sick
+- [03:25.360] radical left people and they can't get
+- [03:27.920] away with it. And Comey Comey was one of
+- [03:30.799] the people. He wasn't the biggest, but
+- [03:33.360] he's a dirty cop. He's always been a
+- [03:35.440] dirty cop. Everybody knew it. And it's
+- [03:38.720] uh you know as far as the case is
+- [03:40.560] concerned he gave an answer. It was a
+- [03:43.680] strong answer. He then verified it a
+- [03:46.799] couple of times because that was a very
+- [03:49.360] important answer. If he would have
+- [03:51.599] equivocated if he would have been like a
+- [03:53.840] little bit less sure that would have
+- [03:55.440] been very bad for him. So he gave an
+- [03:57.439] answer. The only problem is for him he
+- [04:00.319] didn't think it'd be caught and he got
+- [04:02.000] caught.
+- [04:09.439] that sometimes revenge.
+- [04:12.879] >> This is about justice. He lied. He lied
+- [04:15.599] a lot. But this was a very important
+- [04:18.639] thing. This was he could have said,
+- [04:20.320] "Well, maybe or I don't remember." He
+- [04:22.160] didn't say that. He gave a very specific
+- [04:24.479] answer and then he verified it numerous
+- [04:27.120] times and he got caught. The problem
+- [04:30.160] that Comey has is he got caught lying
+- [04:33.040] and he was very strong. It's not like
+- [04:36.000] well maybe or I don't remember or he
+- [04:38.800] gave a very specific answer because it
+- [04:40.960] was a very powerful question a very
+- [04:43.280] important question and when he gave the
+- [04:45.360] answer the only problem is he got
+- [04:47.440] caught. So
+- [04:49.600] >> Mr. President Mr.
+- [04:55.840] revenue shut down. And do you have plans
+- [04:57.759] for coming?
+- [04:58.240] >> Well, we're going to see. But the
+- [04:59.280] radical left Democrats want to shut it
+- [05:01.360] down. I mean, it's up to them. We have a
+- [05:02.880] great economy going. You saw the numbers
+- [05:05.280] yesterday. They're fantastic. The
+- [05:07.120] economy is doing well. Prices are down.
+- [05:10.000] We have virtually no inflation.
+- [05:11.840] Everything's going good. We're respected
+- [05:14.160] by every nation in the world. And you
+- [05:16.000] know what happened? The Democrats want
+- [05:18.160] to shut it down. and they want to shut
+- [05:20.160] it down because they want to give
+- [05:23.520] billions, ultimately trillions of
+- [05:25.520] dollars to illegal migrants, people that
+- [05:28.560] came into our country illegally. Some of
+- [05:30.880] those people are criminals, but they
+- [05:32.880] came into our country illegally. And
+- [05:35.280] they want to give them the essential
+- [05:36.960] over years, trillions of dollars. And
+- [05:39.680] our people aren't going to stand for it.
+- [05:41.840] They also want to have open borders.
+- [05:43.919] They want to have men and women's
+- [05:45.280] sports. They want to have transgender
+- [05:47.520] for everybody. These people are crazy,
+- [05:49.759] the Democrats. So, if it has to shut
+- [05:52.080] down, it'll have to shut down. But
+- [05:53.840] they're the ones that are shutting down.

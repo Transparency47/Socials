@@ -1,0 +1,970 @@
+<!-- source: https://www.youtube.com/watch?v=Qm3Z3EHJ2IA -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: Qm3Z3EHJ2IA -->
+<!-- date_published: 2026-02-05T20:00:50+00:00 -->
+<!-- date_accessed: 2026-06-02T02:38:14.440157+00:00 -->
+
+# Transcript: Press Secretary Karoline Leavitt Briefs Members of the Media, Feb. 5, 2026
+
+- [00:07.000] Karoline Leavitt: Wow, we have a very packed room here today.
+- [00:10.500] Thank you all so much for showing up and for joining.
+- [00:12.980] I apologize for the delay.
+- [00:14.210] The President and I were watching the press conference
+- [00:16.850] about the search for Savannah Guthrie's mother,
+- [00:19.650] which is just a heartbreaking situation.
+- [00:22.090] The President, as you all know,
+- [00:23.560] spoke directly with Savannah yesterday
+- [00:26.110] and told her that the federal government is here to help.
+- [00:29.360] Any requests that are made by state
+- [00:31.140] and local officials in the search of Ms. Guthrie
+- [00:34.460] will absolutely be accommodated.
+- [00:36.240] I spoke with the FBI directly about that today as well.
+- [00:39.310] And our hearts and our prayers
+- [00:40.680] are with Savannah and her entire family
+- [00:43.410] as they search for her dear mother.
+- [00:45.510] I also have a quick scheduling announcement for all of you.
+- [00:48.200] Tonight at 7:00 PM during prime time,
+- [00:51.390] President Trump, Dr. Oz,
+- [00:53.110] and National Design Studio Director Joe Gebbia
+- [00:56.430] will officially unveil TrumpRX,
+- [00:59.290] a state of the art website for American consumers
+- [01:02.670] to purchase low cost prescription drugs.
+- [01:06.200] This historic announcement will save millions of Americans
+- [01:10.050] their hard-earned money, so make sure to tune in tonight.
+- [01:13.400] And we will see all of you in the news media there.
+- [01:16.550] President Trump promised to restore law
+- [01:18.580] and order to the United States of America,
+- [01:21.260] and newly released data proves he is delivering
+- [01:23.810] overwhelmingly on this promise.
+- [01:26.250] A study from the Council on Criminal Justice
+- [01:28.510] shows that the murder rate across America's largest cities
+- [01:32.610] plummeted in 2025 to its lowest level since at least 1900.
+- [01:39.020] Again, let me repeat, to put this in perspective,
+- [01:41.910] this marks the largest single year
+- [01:44.160] drop in murders in recorded history.
+- [01:47.510] This dramatic decline is what happens
+- [01:49.400] when a president secures the border,
+- [01:51.450] fully mobilizes federal law enforcement
+- [01:53.810] to arrest violent criminals and aggressively deports
+- [01:57.240] the worst of the worst illegal aliens from our country.
+- [02:01.390] The numbers don't lie. Under President Trump in 2025,
+- [02:05.300] the FBI increased violent crime arrests by 100 percent
+- [02:09.900] compared to the prior year.
+- [02:11.790] The FBI also conducted more than 67,000 arrests
+- [02:16.120] from Inauguration Day 2025 to January 20th, 2026,
+- [02:21.070] which is 197 percent more arrests
+- [02:24.720] than the same period previously.
+- [02:27.020] The FBI also disrupted 1,800 gangs and criminal enterprises,
+- [02:31.860] a 210 percent increase from the year prior.
+- [02:35.960] The FBI has arrested 1,700 child predators
+- [02:39.910] and more than 300 human traffickers across the country.
+- [02:44.130] Since President Trump took office,
+- [02:45.690] six of the FBI's top ten
+- [02:48.340] most wanted fugitives have been captured.
+- [02:51.610] Right here in our nation's capital where you all live,
+- [02:54.460] so you know it well whether you choose to report it or not,
+- [02:57.760] the President's efforts to make DC safe
+- [03:00.220] and beautiful have worked.
+- [03:02.400] As of last week, DC homicides were down 62 percent,
+- [03:06.750] motor vehicle theft down 53 percent,
+- [03:09.690] and 2025 had the fewest violent gun crimes
+- [03:13.030] of any year of available data in our nation's capital.
+- [03:17.270] For more proof that these tough on crime efforts are working,
+- [03:20.550] look at the President's Make Memphis Safe Again campaign.
+- [03:24.870] As of last week, there have been nearly 5,600 arrests made.
+- [03:29.400] And aggravated assaults are down 53 percent,
+- [03:32.430] sexual assaults are down 53 percent,
+- [03:34.890] and robberies are down 70 percent.
+- [03:37.240] Again, that's just in the city of Memphis.
+- [03:39.890] 5,600 arrests have taken place
+- [03:42.610] because of this president and his Homeland Security
+- [03:45.290] task force that has surged into Memphis
+- [03:47.620] at the request of both the governor
+- [03:49.690] and the mayor in that city, a Democrat mayor, I will add.
+- [03:53.110] These are the results that can happen
+- [03:55.320] when Democrats and Republicans,
+- [03:57.060] when the federal government and state
+- [03:58.550] and local officials, work together.
+- [04:00.680] And that's what President wants --
+- [04:01.890] Trump wants to see to improve public safety
+- [04:04.690] across our country.
+- [04:06.290] When you have a leader like President Trump,
+- [04:08.100] who empowers good cops to be cops
+- [04:10.140] and to arrest bad criminals,
+- [04:11.950] American communities will become safer.
+- [04:15.010] Many of the media outlets in this room have expressed
+- [04:17.710] shock and confusion at these remarkable statistics.
+- [04:21.130] The New York Times declared that "No one knows for sure
+- [04:24.480] what's behind the staggering drop in the murder rate."
+- [04:27.690] The reason is very clear.
+- [04:29.650] It is President Trump's leadership
+- [04:31.310] and his unwavering commitment to law and order.
+- [04:34.440] The drop in crime is more proof that all that
+- [04:36.610] is required to improve public safety on our streets
+- [04:39.700] is a leader with the will to do what is necessary
+- [04:42.590] to protect law-abiding American citizens.
+- [04:46.090] The terror and chaos that was unleashed under Democrat rule
+- [04:49.200] is a choice.
+- [04:50.520] It's a choice to put violent criminals
+- [04:52.360] ahead of innocent Americans,
+- [04:54.190] a choice to force us all to live in fear
+- [04:56.420] because of soft on crime liberal politicians,
+- [04:59.670] prosecutors and judges,
+- [05:01.370] who lack the basic willingness to do their jobs
+- [05:04.240] and put dangerous people behind bars.
+- [05:06.970] On November 5th, 2024,
+- [05:09.070] the American people made a resounding choice
+- [05:11.300] that they've had enough of that,
+- [05:13.180] and that's precisely why they reelected President Trump.
+- [05:16.890] So, even as Democrats and the liberal media
+- [05:19.450] are engaged in hysteria about this administration arresting
+- [05:23.330] and deporting violent criminal illegal aliens,
+- [05:26.590] the undeniable truth is that deporting these individuals
+- [05:29.660] is one of the primary reasons
+- [05:31.570] why America's streets are safer today
+- [05:34.580] than they were one year ago when President Trump assumed office.
+- [05:38.620] Former President Biden and the Democrats
+- [05:40.520] left our borders wide open,
+- [05:42.540] and President Trump and the brave men and women of ICE
+- [05:45.560] are removing these dangerous criminals.
+- [05:47.590] So, here are just a few recent examples.
+- [05:50.580] Number one, a Venezuelan national
+- [05:53.030] and active Tren de Aragua gang member with a rap sheet,
+- [05:56.070] including homicide, assault, child cruelty,
+- [05:59.680] domestic violence and property damage.
+- [06:02.390] This is an individual, I can assure you,
+- [06:04.020] not a single one of you in this room
+- [06:05.520] would want in your neighborhood whether you admit it or not.
+- [06:08.210] He entered the US in 2022,
+- [06:10.180] and he was released into our country
+- [06:12.470] by the Biden administration.
+- [06:13.970] He is no longer here thanks to President Trump.
+- [06:17.170] An El Salvadorian national and known MS-13 associate,
+- [06:21.120] previously convicted of homicide conspiracy
+- [06:23.760] to commit homicide and kidnaping,
+- [06:26.080] arrested for arson, battery, armed carjacking and assault.
+- [06:30.160] He entered illegally in 2016,
+- [06:32.110] was released by the Obama administration
+- [06:34.670] and ICE just arrested him on January 8, 2026.
+- [06:38.910] This example shows you how many criminal illegal aliens
+- [06:42.440] have been roaming American streets freely
+- [06:44.910] because of a lack of attention to this matter
+- [06:47.430] from the previous administration and President Trump
+- [06:50.230] is cleaning up their mess.
+- [06:52.000] A Cuban national and Blood gang's member
+- [06:54.180] convicted of multiple homicides in robbery.
+- [06:57.400] ICE arrested him on October 27
+- [07:00.170] and removed him on January 6, 2026.
+- [07:04.320] Arresting and deporting these types of illegal criminals
+- [07:07.160] is precisely what the American people voted for.
+- [07:10.510] And despite desperate recent attempts by Democrats
+- [07:13.420] and those in the media
+- [07:14.700] to undermine the President's deportation agenda,
+- [07:17.560] these efforts are failing.
+- [07:19.410] Brand new Harvard Harris polling shows
+- [07:21.310] overwhelming support for President Trump's efforts
+- [07:24.110] to protect law abiding citizens from criminal illegal aliens.
+- [07:28.160] Nearly 8 in 10 Americans say criminal,
+- [07:30.480] illegal aliens should be deported.
+- [07:32.900] A solid majority also support deporting all illegal aliens
+- [07:36.770] regardless of additional crimes.
+- [07:38.860] And more than two in three Americans
+- [07:40.850] back the Trump administration's common-sense requirement
+- [07:44.410] that state and local officials
+- [07:45.830] cooperate with federal authorities
+- [07:48.040] and work to hand over criminal illegal aliens
+- [07:50.560] in local jails for swift deportation.
+- [07:54.360] Finally, to prevent another invasion
+- [07:56.360] of millions of illegal aliens from happening again,
+- [07:59.120] President Trump and Secretary Noem
+- [08:00.850] delivered the most secure border in and American history.
+- [08:04.510] Zero illegal aliens were released into our homeland
+- [08:07.680] over the past nine months.
+- [08:09.300] This is a truly remarkable achievement.
+- [08:12.270] Again, zero illegal aliens
+- [08:14.600] released into the country in nine months.
+- [08:17.330] This is staggering and it deserves more attention
+- [08:20.270] from all of you.
+- [08:21.480] Overall, Customs and Border Protection
+- [08:23.470] recorded the lowest total encounters in agency history.
+- [08:27.150] Daily encounters have fallen by 95 percent,
+- [08:30.790] averaging just 250 apprehensions at the southern border a day.
+- [08:35.240] This is compared to over 5,100 daily apprehensions
+- [08:39.880] during the Biden years. It's a night and day difference
+- [08:43.000] because we finally have a president
+- [08:44.890] who enforces the law and lets our law enforcement
+- [08:47.960] do their noble jobs of protecting our homeland.
+- [08:51.490] When President Trump campaigned on making America safe again,
+- [08:54.570] this is exactly what he meant and the numbers
+- [08:57.220] and the results speak for themselves.
+- [08:59.770] With that I will open it up to questions today.
+- [09:02.140] We're going to start with Daniel Baldwin from One America News
+- [09:04.660] who is here religiously covering the White House beat every day.
+- [09:08.020] So, it's good to see you in a chair
+- [09:09.440] instead of standing up today, Daniel.
+- [09:11.050] Thanks for being here and why don't you kick us off?
+- [09:12.810] The Press: Thank you, Karoline.
+- [09:14.050] It's an honor and a privilege to represent
+- [09:15.450] One America News in the new media seat.
+- [09:17.070] First question on the DHS funding bill.
+- [09:19.590] Funding runs out in the better part of eight days or so,
+- [09:21.620] democrats at least verbally are very dug in.
+- [09:24.070] What does the White House believe their end goal
+- [09:26.790] is when it comes to this funding fight,
+- [09:28.380] when it comes to immigration policy at large?
+- [09:30.310] What is their end goal when they're dug in,
+- [09:32.480] in a position like this at this point in time?
+- [09:34.670] Karoline Leavitt: Well, the President has two end goals:
+- [09:36.640] one is to obviously keep the government funded and open,
+- [09:39.420] and that includes the Department of Homeland
+- [09:40.950] Security, which does not just touch upon
+- [09:43.320] ICE and Border Patrol,
+- [09:44.830] but also FEMA, the United States Coast Guard,
+- [09:47.680] the United States Secret Service.
+- [09:49.430] These are brave public servants
+- [09:51.130] who work to protect our homeland.
+- [09:53.160] The President wants these individuals to get paid.
+- [09:55.630] Secondly, when it comes to any discussions
+- [09:57.710] about immigration policy,
+- [09:59.310] the President is never going to waver in his commitment
+- [10:01.850] to allow immigration enforcement efforts in this country
+- [10:04.920] and to support ICE and Border Patrol
+- [10:07.720] and the deportation of illegal alien criminals.
+- [10:10.450] I know Senator Schumer and Leader Jeffries
+- [10:12.410] sent over a very long list of demands,
+- [10:15.350] some of which the administration is willing to discuss.
+- [10:17.970] Others don't seem like they are grounded in any common sense,
+- [10:21.240] and they are nonstarters for this administration.
+- [10:24.060] But we're not going to negotiate policy from the podium.
+- [10:26.290] I'm going to allow the President to do that
+- [10:28.420] and any final decisions that are made
+- [10:30.090] will be made ultimately by him.
+- [10:32.020] But rest assured, he is never going to allow law enforcement
+- [10:35.620] and the jobs that they do --
+- [10:36.950] the important jobs that they do to be undermined.
+- [10:38.800] The Press: And secondly, Karoline,
+- [10:40.070] the Department of Homeland Security
+- [10:41.350] put out a tweet a better part of an hour ago
+- [10:43.470] alleging that an illegal alien was involved
+- [10:45.620] in a major car wreck in Indiana, killing four people.
+- [10:48.840] And they allege that the suspect in question
+- [10:51.540] came in under the CBP
+- [10:52.770] One app under the Biden administration
+- [10:54.260] and received a commercial driver's license
+- [10:55.950] from the state of Pennsylvania.
+- [10:57.510] What is the White House's reaction
+- [10:59.010] to a situation like this?
+- [11:00.500] And what is the White House doing to crack down on cases
+- [11:03.130] like this where illegal aliens
+- [11:04.690] are obtaining commercial driver's licenses?
+- [11:06.380] Karoline Leavitt: Yes, this is another abhorrent example
+- [11:09.850] of the border crisis over the past four years,
+- [11:12.850] and it again exemplifies why the administration must continue
+- [11:17.440] and will always continue to fully back and support
+- [11:20.290] ICE and Border Patrol and law enforcement
+- [11:22.280] in their removal of illegal alien criminals
+- [11:24.360] from our country. For those who don't know,
+- [11:26.800] and all of you should report on it,
+- [11:28.400] four Americans were tragically killed
+- [11:30.390] and lost their lives this week yet again from an illegal alien,
+- [11:34.050] an individual who was paroled into the country
+- [11:36.840] by the Biden administration using the CBP One app,
+- [11:40.230] which they created like it was a magic pass for Disneyland.
+- [11:43.980] That's not how immigration in this country should work.
+- [11:46.590] And this illegal alien from Kyrgyzstan
+- [11:49.200] was traveling on an Indiana highway
+- [11:51.310] and he failed to break for a slowed semi-truck
+- [11:54.030] in front of him. He swerved into the lane,
+- [11:56.270] and he crashed into a van carrying 15 passengers
+- [11:59.360] and four people were killed in that crash.
+- [12:01.630] This is another tragedy that could have been prevented
+- [12:04.310] if not for the wide-open borders
+- [12:06.360] from the previous administration.
+- [12:08.050] That's why we now have a secure border.
+- [12:09.980] That's why this administration will continue
+- [12:11.670] to deport illegal aliens from our country.
+- [12:13.810] Thank you for being here. Garrett.
+- [12:15.370] The Press: Thank you for your comments
+- [12:16.680] and your prayers for the Guthrie family.
+- [12:18.330] I have two questions related to the President's interview
+- [12:20.740] with NBC yesterday. At one point in the interview,
+- [12:23.060] the President said that he believes states
+- [12:25.580] are accumulating the votes for who wins the election.
+- [12:28.610] He says if they, meaning the states,
+- [12:29.970] can't do it honestly and can't be done properly and timely,
+- [12:33.270] then something else has to happen.
+- [12:35.230] What did he mean by that?
+- [12:36.490] Is he suggesting that the federal government
+- [12:38.680] count votes in elections?
+- [12:41.160] Karoline Leavitt: What the President is suggesting,
+- [12:42.600] and I just spoke to him about this,
+- [12:44.620] is that Republicans and Democrats in Congress
+- [12:47.380] should pass the SAVE America Act.
+- [12:50.010] This piece of legislation is going to ensure
+- [12:53.000] that states are abiding by federal election law
+- [12:56.150] by removing noncitizens from their voter rolls.
+- [12:58.940] In addition, the SAVE America Act
+- [13:00.560] will require voter ID to vote,
+- [13:02.800] and it will require proof of citizenship to register to vote.
+- [13:06.330] These are very commonsense policies and proposals
+- [13:09.680] that 89 percent of our country agree with.
+- [13:12.430] So, that's what the President is talking about.
+- [13:14.210] Again, I just spoke with him about this
+- [13:16.170] and he's calling on both Republicans and Democrats
+- [13:18.980] to send the SAVE America Act -- to pass it into law
+- [13:21.860] and to send it to his desk as quickly as possible.
+- [13:24.090] To be clear, the SAVE Act doesn't say anything about
+- [13:26.100] who counts votes,
+- [13:27.320] which has always been a state, a local, a county function.
+- [13:30.560] Why does he keep talking about somebody else,
+- [13:33.210] presumably the federal government, counting votes.
+- [13:35.540] Because the SAVE Act directs states to remove
+- [13:38.140] non-citizens from their voter rolls.
+- [13:40.030] And we know in states across the country,
+- [13:42.180] the President is right to point this out.
+- [13:44.060] In states like California or in places like New York City,
+- [13:47.250] non-citizens are allowed to vote in state and local elections,
+- [13:51.170] and the federal government
+- [13:52.430] should absolutely do away with that.
+- [13:54.430] I don't think a single person in this room,
+- [13:57.070] if you really are being honest with yourselves,
+- [13:59.370] should agree that non-citizens should vote
+- [14:01.450] in American elections
+- [14:02.720] no matter where that election is up and down the ticket.
+- [14:05.650] And so, this is a piece of federal legislation
+- [14:08.590] that will help states ensure the integrity
+- [14:11.030] and the sanctity of their elections
+- [14:12.300] and that's what the President wants.
+- [14:13.610] Peter?
+- [14:14.840] The Press: Thanks, Karoline.
+- [14:16.050] President Trump posted about Nancy Guthrie,
+- [14:17.510] that he is directing all federal law enforcement
+- [14:20.030] to be at the families'
+- [14:21.300] and local law enforcement's complete disposal immediately.
+- [14:25.640] What should we expect to see from the federal government
+- [14:28.260] in coming days in the search to find Nancy Guthrie?
+- [14:32.070] Karoline Leavitt: It's a very good question, Peter,
+- [14:33.440] and it's why I was on the phone
+- [14:34.680] with the FBI earlier this morning to ask that.
+- [14:37.430] And what they told me is that the FBI, again,
+- [14:39.900] is at the disposal of the state and local government.
+- [14:43.060] Whatever personnel or assets or resources
+- [14:46.220] that the state and local authorities and police
+- [14:48.170] need will be granted to them at the direction of the President,
+- [14:51.540] the FBI director and the attorney general.
+- [14:53.630] The Press: A different law enforcement issue,
+- [14:56.090] the FBI just found 1,000 samples
+- [14:58.780] inside an illegal bio lab in Las Vegas.
+- [15:02.300] It is linked to a different biolab
+- [15:04.140] that was previously raided. There are ties to China.
+- [15:07.290] What does the President think the CCP might be up to here?
+- [15:11.060] Karoline Leavitt: I haven't spoken to him
+- [15:12.340] about this specific investigation from the FBI,
+- [15:15.250] but I'm happy to, and I'm sure he's very glad
+- [15:17.920] that this is something the FBI discovered
+- [15:19.810] and will make sure anyone who is involved in illegal activity
+- [15:22.980] will be held accountable.
+- [15:24.230] The Press: And just one more about this weekend.
+- [15:25.760] At the Mar-a-Lago Super Bowl party,
+- [15:27.950] after the first two quarters, are the TVs going to be
+- [15:30.910] on the half-time show with Bad Bunny
+- [15:33.190] or the half-time show with Kid Rock?
+- [15:35.930] Karoline Leavitt: I think the President would much prefer
+- [15:37.880] a Kid Rock performance over Bad Bunny;
+- [15:39.970] I must say that. Jennifer.
+- [15:41.940] The Press: On the nuclear arms pact,
+- [15:43.500] we saw the President's post on that.
+- [15:45.320] But can you say, is there a temporary agreement with Russia
+- [15:49.450] to stand by the terms of the New START
+- [15:51.490] Treaty while negotiations are happening?
+- [15:54.220] Karoline Leavitt: Not to my knowledge.
+- [15:55.630] Again, to your point, Jennifer,
+- [15:57.350] I just do want to reiterate exactly what the President said.
+- [16:00.320] He wrote just moments ago,
+- [16:01.620] the United States is the most powerful country in the world.
+- [16:04.730] I completely rebuilt its military in my first term,
+- [16:07.840] including new and many refurbished nuclear weapons.
+- [16:11.190] I also added Space Force,
+- [16:12.820] and now continue to rebuild our military
+- [16:15.120] at levels never seen before. We are even adding battleships,
+- [16:18.770] which are 100 times more powerful
+- [16:20.600] than the ones that roamed the seas during World War II,
+- [16:23.520] the Iowa, Missouri, Alabama and others.
+- [16:26.020] I have stopped nuclear wars
+- [16:27.280] from breaking out across the world
+- [16:28.690] between Pakistan and India, Iran and Israel,
+- [16:31.280] and Russia and Ukraine rather than extend New START,
+- [16:34.700] a badly negotiated deal by the United States,
+- [16:37.040] which I will add is --
+- [16:38.270] was renegotiated under former President Barack Obama,
+- [16:42.060] aside from everything else, is being grossly violated.
+- [16:45.270] The President wants to have our nuclear experts work on a new,
+- [16:48.220] improved and modernized treaty
+- [16:49.770] that can last long into the future.
+- [16:52.010] And that's what the United States
+- [16:53.300] will continue to discuss with the Russians.
+- [16:56.170] The Press: Thank you, Karoline.
+- [16:57.420] Karoline Leavitt: Sure.
+- [16:58.660] The Press: Did President Trump himself ever ask DNI Gabbard
+- [17:02.620] to head down to Fulton County, Georgia?
+- [17:04.480] Karoline Leavitt: The President was asked and answered
+- [17:06.090] that question just yesterday.
+- [17:07.930] I've seen a lot of the media in this room
+- [17:10.240] get very caught up with the semantics
+- [17:12.540] of why Tulsi Gabbard is there.
+- [17:14.280] I will tell you why, and the President agrees with this,
+- [17:17.270] because election security is essential to national security.
+- [17:20.950] And as the director of national intelligence,
+- [17:22.940] it is a part of Ms. Gabbard's role
+- [17:25.840] to make sure that American elections
+- [17:28.000] are free of foreign interference
+- [17:30.160] and that American elections are safe and secure.
+- [17:32.880] And so, the ODNI director is working with the FBI
+- [17:36.330] on this effort, and the President wholeheartedly
+- [17:38.530] supports both Kash Patel and Tulsi Gabbard
+- [17:41.540] in ensuring that American elections are safe,
+- [17:43.600] are secure and are free of foreign intervention.
+- [17:45.380] Michael, go ahead.
+- [17:46.600] The Press: Is there any indication
+- [17:47.830] that there's foreign influence? Thank you, Karoline.
+- [17:49.060] With the federal law enforcement's
+- [17:50.260] involvement in the search for --
+- [17:51.530] Karoline Leavitt: Excuse me one second.
+- [17:52.850] It's the media who has said that there's Russian interference
+- [17:55.300] in American elections. You guys have been saying that
+- [17:57.210] for many, many years. So, the people --
+- [17:58.440] The Press: I mean specifically in Fulton County.
+- [17:59.660] Karoline Leavitt: Well, the -- well, the people in this room,
+- [18:01.260] considering that you all -- you all said for many years
+- [18:04.210] that Russia interfered in the 2016 election
+- [18:07.060] to help Donald Trump, you should all be very happy
+- [18:09.400] that we finally have an administration
+- [18:10.950] that is looking into that.
+- [18:12.220] And we'll be happy to keep you posted. Michael?
+- [18:14.060] The Press: Thanks, Karoline.
+- [18:15.290] With the FBI's involvement in the search
+- [18:16.700] for Nancy Guthrie now,
+- [18:18.690] has this search expanded nationwide outside of Arizona?
+- [18:21.800] And given Pima County's proximity to Mexico,
+- [18:24.700] is this now an international search?
+- [18:26.550] Karoline Leavitt: Well, Michael, that would be a question
+- [18:28.030] for state and local authorities,
+- [18:29.360] as they continue to oversee the investigation at this time.
+- [18:32.940] Again, the federal government
+- [18:34.280] and the FBI have offered any and all resources,
+- [18:37.200] but the state and local authorities
+- [18:38.600] are still leading the investigation,
+- [18:40.310] so I would direct you to them.
+- [18:41.540] I'm certainly not in a position to talk about it.
+- [18:42.880] The Press: One other question, Karoline.
+- [18:44.210] Karoline Leavitt: Sure.
+- [18:45.490] The Press: Friday's talks with Iran,
+- [18:46.730] they were originally supposed to take place in Turkey.
+- [18:48.610] They've now been moved to Oman.
+- [18:50.090] Can you tell us the reason for that move?
+- [18:52.760] Karoline Leavitt: Look, the President --
+- [18:54.390] diplomacy is always his first option
+- [18:56.290] when it comes to dealing with countries all around the world,
+- [18:59.530] whether it's our allies or our adversaries.
+- [19:01.630] And so, Special Envoy Witkoff and Jared Kushner
+- [19:04.270] will be traveling to Oman for those talks tomorrow,
+- [19:08.100] and we will see what comes of those.
+- [19:09.420] The President is standing by for an update from them.
+- [19:13.340] Sure, in the pink.
+- [19:14.850] The Press: Thank you, Karoline.
+- [19:16.550] Cuban leader Miguel Diaz-Canel said today
+- [19:19.270] that Cuba would be willing to engage in dialog
+- [19:22.580] with the United States
+- [19:24.310] only without pressure, without preconditions,
+- [19:27.150] on equal footing and with respect for sovereignty.
+- [19:31.020] But his government is denying what President Trump said,
+- [19:33.800] that they're already holding talks.
+- [19:36.530] How would you respond to that?
+- [19:37.850] Karoline Leavitt: I think the fact
+- [19:39.080] that the Cuban government is on its last leg
+- [19:41.030] and its country is about to collapse,
+- [19:43.110] they should be wise in their statements
+- [19:44.460] directed towards the President of the United States.
+- [19:46.500] But as I just reiterated,
+- [19:48.230] the President is always willing to engage in diplomacy.
+- [19:50.540] And I believe that's something that is taking place,
+- [19:52.580] in fact, with the Cuban government.
+- [19:54.300] Ed?
+- [19:55.520] The Press: Yeah. Thank you, Karoline.
+- [19:56.750] So, the Office of Personnel Management
+- [19:58.200] released a final rule today that makes it easier
+- [19:59.950] to fire government employees
+- [20:01.670] who are not doing their job, basically.
+- [20:03.450] Does the President believe that there are people
+- [20:06.050] in his government still that are not following his agenda?
+- [20:10.600] Karoline Leavitt: That's a good question.
+- [20:11.820] I have not asked him about that.
+- [20:13.530] I mean, look, it's a very big government, right?
+- [20:15.650] There are thousands of people who work
+- [20:17.600] for the federal government here in Washington, DC.
+- [20:20.280] This administration has been very much focused on ensuring
+- [20:23.080] that we have an efficient and productive workforce
+- [20:26.310] for the American taxpayer.
+- [20:28.100] There's not a day that goes by where we don't show up
+- [20:30.140] and realize we are public servants
+- [20:31.620] working on behalf of the American people.
+- [20:33.690] And everybody in the federal government
+- [20:35.620] best have that mindset
+- [20:37.090] or they won't be welcomed to work for this administration.
+- [20:39.330] So, I think it's a good thing
+- [20:40.750] that the Office of Personnel Management put this rule out.
+- [20:43.340] I think if people aren't doing their jobs,
+- [20:45.390] if they aren't showing up for work,
+- [20:46.610] if they're not working hard on behalf of this president,
+- [20:48.960] they're not welcome to work for him at all.
+- [20:50.640] The Press: The New York City mayor
+- [20:52.420] is dealing with a $12 billion budget deficit.
+- [20:55.440] If he texted President Trump,
+- [20:57.110] would the President bail him out?
+- [21:00.540] Karoline Leavitt: I'll leave that answer
+- [21:01.880] to the President himself, Ed.
+- [21:04.730] Kristen, go ahead.
+- [21:06.540] The Press: One more follow up on DNI Gabbard.
+- [21:09.340] You said that the President supports the fact
+- [21:11.470] that she was there.
+- [21:12.790] But last night when she was -- when he was asked about it,
+- [21:14.980] he said he didn't know why she was there.
+- [21:17.180] He didn't say that he directed her.
+- [21:18.560] Can you clarify on that?
+- [21:19.850] Did she go by herself and he learned later and supports it?
+- [21:22.790] Karoline Leavitt: Well, did you look
+- [21:24.010] at the full entirety of his response?
+- [21:26.160] I was in the room for that NBC interview, Kristen,
+- [21:28.960] and he just said exactly what I told you,
+- [21:31.520] which is that election security
+- [21:33.760] is essential to national security.
+- [21:35.280] We need to ensure that our elections are free
+- [21:37.840] and are fair and are free of foreign interference.
+- [21:40.980] And he spoke about how Ms. Tulsi Gabbard
+- [21:43.370] is involved in that effort.
+- [21:44.750] So, you're taking, like, the first three words
+- [21:47.200] that he said to one question
+- [21:49.140] and not looking at his entire response.
+- [21:50.660] The Press: But to follow up on what you said
+- [21:51.920] about foreign interference,
+- [21:53.420] you talked about 2016 and Russian interference.
+- [21:56.730] But what we've learned from these Georgia officials
+- [21:58.590] is what was seized by the FBI were ballots from 2020
+- [22:02.050] in this Fulton County Election Center.
+- [22:04.150] Do you have any evidence
+- [22:05.530] that there was international interference
+- [22:08.690] in the 2020 election in this election center?
+- [22:11.270] Karoline Leavitt: What I do have evidence of,
+- [22:13.110] and what the media seems to be undermining,
+- [22:15.500] is why Tulsi Gabbard is there in the first place.
+- [22:18.190] And I would point you again to federal law
+- [22:20.220] that clearly assigns the DNI and the office
+- [22:23.070] with the statutory responsibility
+- [22:24.970] to lead counter-intel matters related to election security.
+- [22:28.380] This includes assessing risks to election voting systems,
+- [22:31.680] software, voter registration databases and more,
+- [22:34.760] and analyzing foreign interference.
+- [22:37.160] And the ODNI is responsible for supporting
+- [22:40.120] the White House interagency action
+- [22:42.120] to secure our elections through intel analysis
+- [22:44.740] and vulnerability assessments.
+- [22:46.520] And they should be routinely collaborating
+- [22:50.210] with agencies like the --
+- [22:51.850] DHS, the DOJ and the FBI. So, as for that question,
+- [22:55.830] it would be better suited to ask the director
+- [22:57.920] of National Intelligence herself and her office.
+- [23:00.620] But what I'm telling you is that it is more than appropriate,
+- [23:03.440] in fact it is Tulsi Gabbard's job
+- [23:06.050] to ensure that our elections are safe and secure.
+- [23:08.890] And that's exactly what she's been doing
+- [23:10.420] on the ground in Georgia.
+- [23:11.740] And I don't understand why anyone in this room,
+- [23:14.330] considering you're all American citizens,
+- [23:16.210] I believe, and like to vote in our nation's elections,
+- [23:19.220] should have any problem with that whatsoever.
+- [23:21.610] Natalie?
+- [23:22.810] The Press: Thank you, Karoline.
+- [23:24.030] The President said that the administration
+- [23:25.960] should take a softer approach on immigration enforcement.
+- [23:29.890] He's also suggested for months
+- [23:31.460] that some migrant workers should be spared from these raids
+- [23:34.820] based on what they're doing.
+- [23:36.400] Is the administration going to continue
+- [23:38.380] to conduct large worksite raids
+- [23:40.130] as it seeks to target violent criminals?
+- [23:42.930] And can you clarify, is the federal government
+- [23:44.990] going to continue doing these deportation operations
+- [23:47.500] in blue cities,
+- [23:48.710] where authorities say they don't want them?
+- [23:50.960] Karoline Leavitt: Well, first, again,
+- [23:52.250] to the President's answer yesterday,
+- [23:54.100] the full context of his answer
+- [23:55.800] was that he'd like to see a softer touch,
+- [23:58.230] but we are always going to remain tough.
+- [24:00.700] That softer touch the President is referring to
+- [24:03.480] is that cooperation that is necessary between state
+- [24:06.740] and local authorities and federal government authorities
+- [24:09.690] to ensure that we can continue deporting illegal aliens
+- [24:12.900] from our communities without tons of agents
+- [24:17.150] having to go after one illegal alien.
+- [24:19.470] If the states and the local governments
+- [24:21.280] just turn over their illegal aliens to ICE
+- [24:23.760] at jails as they should be doing,
+- [24:26.050] it requires one agent to deport that one illegal alien,
+- [24:29.170] who can then go on their way to their home country
+- [24:31.150] in a peaceful manner.
+- [24:32.390] The escalation that we've seen take place in Minnesota
+- [24:35.210] is a direct result of the refusal of state
+- [24:37.760] and local officials to cooperate with the federal government
+- [24:40.790] and with ICE, which has led to these hostile
+- [24:43.000] and dangerous environments.
+- [24:44.520] And so, we don't want that.
+- [24:45.770] Again, the President wants direct cooperation,
+- [24:48.220] and that's what he was referring to.
+- [24:49.760] As for worksite raids, I don't broadcast any future action
+- [24:54.100] that may or may not happen
+- [24:56.030] from the Department of Homeland Security.
+- [24:57.490] But again, the President's focus and the administration's focus
+- [25:00.930] is on targeting illegal alien criminals,
+- [25:03.490] especially those who have committed heinous crimes
+- [25:06.190] in our country,
+- [25:07.390] as evidenced by the few illegal aliens
+- [25:09.220] that I just shared with you here today.
+- [25:10.550] The Press: So, will ICE and Border Patrol
+- [25:11.990] avoid going to other blue cities,
+- [25:14.060] where the local officials are saying we won't work with you,
+- [25:16.040] we don't want you here?
+- [25:17.330] Karoline Leavitt: Well, first of all,
+- [25:18.560] those local officials should be wanting to work with ICE.
+- [25:21.090] Why would any official, whether you're a Democrat
+- [25:23.960] or a Republican, want murderers and predators in your city?
+- [25:28.320] It makes zero sense. It's an untenable position.
+- [25:31.380] The only reason Democrats are taking that position now
+- [25:34.160] is because their entire party platform is just anti-Trump.
+- [25:37.100] It makes no sense for the American people.
+- [25:39.200] They should be calling this White House,
+- [25:40.590] they should be calling Secretary Noem,
+- [25:42.070] they should be calling Tom Homan,
+- [25:43.680] and they should be saying we want to work with you
+- [25:46.040] to remove the worst of the worst criminals from our city.
+- [25:48.820] Please come here.
+- [25:50.030] So, yes, ICE is going to continue to do their job
+- [25:52.630] in cities and communities across the country.
+- [25:54.840] But it certainly makes it much easier
+- [25:56.620] when we have that level of cooperation
+- [25:58.460] and corroboration at the state
+- [26:00.180] and local level in places like Florida,
+- [26:02.740] where there has been the arrest of thousands,
+- [26:05.000] tens of thousands of illegal alien criminals,
+- [26:07.870] none of you talk about that or none of you hear about that
+- [26:10.440] because these operations are going seamlessly and peacefully.
+- [26:13.420] Why? Because there is an intimate cooperation
+- [26:17.300] between the state government and the federal government.
+- [26:19.770] And that's what the President wants to see in all 50 states.
+- [26:22.720] In the white, yes.
+- [26:23.960] The Press: Thank you, Karoline. Over the weekend President Trump
+- [26:27.110] said that he was giving a serious look at endorsing
+- [26:30.210] in the Texas Republican Senate primary.
+- [26:32.610] We know that Minnesota and Georgia
+- [26:34.390] also have competitive crowded primaries.
+- [26:36.560] Is he giving those races a serious look as well?
+- [26:39.380] Karoline Leavitt: Well, I'm not allowed to speak from the podium
+- [26:41.510] on any future political endorsements
+- [26:43.180] the President may or may not make,
+- [26:45.140] but I know that he is watching all of these races
+- [26:48.020] across the country quite carefully.
+- [26:49.730] I won't get ahead of him on any potential endorsements.
+- [26:52.270] John.
+- [26:53.510] The Press: Thanks a lot, Karoline.
+- [26:54.740] Two questions for you about the continuing resolution
+- [26:57.170] that the President signed for the Department
+- [26:59.360] of Homeland Security. What would be the repercussions
+- [27:03.040] for all of the agencies under DHS
+- [27:06.720] if no agreement is reached on funding
+- [27:10.050] when that deadline approaches next Friday?
+- [27:11.800] Karoline Leavitt: Well, there will be
+- [27:13.030] grave repercussions for all of those agencies,
+- [27:15.530] but more importantly, frankly, for the American people
+- [27:18.670] who those agencies serve.
+- [27:20.020] And that's exactly what the President
+- [27:21.530] and the White House want to avoid.
+- [27:23.180] Again, we want to keep the government funded.
+- [27:24.890] We want the Department of Homeland Security,
+- [27:26.630] of course, to be up and operationalized
+- [27:29.110] and continuing as necessary to protect our homeland,
+- [27:32.480] to secure our border,
+- [27:33.880] to ensure the brave men and women
+- [27:35.310] of the United States Coast Guard are getting paid,
+- [27:37.280] the brave men and women of the United States Secret Service
+- [27:40.520] who protect the President, the vice president
+- [27:42.280] and, frankly, all of you in this building every day
+- [27:44.520] continue to receive
+- [27:45.930] the paychecks that they so well deserve.
+- [27:47.700] And so, that's why the White House
+- [27:49.330] will engage in these talks with Democrats.
+- [27:51.500] But again, the President is never going to cave
+- [27:54.080] on this administration's core promise
+- [27:56.290] to deport illegal aliens from our country.
+- [27:59.220] The Press: Karoline, in your statement
+- [28:00.830] that there are certain proposals that Democrats
+- [28:03.390] are putting up that are nonstarters,
+- [28:05.580] what are some of those nonstarters?
+- [28:06.860] Karoline Leavitt: There are a few
+- [28:08.100] and it's a very good question,
+- [28:09.330] but I won't negotiate from the podium.
+- [28:10.890] I know the White House will be engaged
+- [28:12.270] in direct serious talks with Democrats
+- [28:14.700] on this important matter. Natalie.
+- [28:17.520] The Press: Thank you.
+- [28:18.730] In addition to launching TrumpRx tonight,
+- [28:20.930] Trump has said that he wants to meet with insurance companies
+- [28:23.000] to lower health care costs.
+- [28:24.280] Do you have any update on when those meetings will be going on?
+- [28:26.300] Karoline Leavitt: Yes, he does want to meet
+- [28:28.010] with insurance companies. That meeting will take place.
+- [28:30.200] I don't have an update on when it will be on the schedule,
+- [28:33.180] but the purpose of that meeting will be to continue to negotiate
+- [28:36.410] with these companies to ensure that more money
+- [28:38.730] is going back to the American consumer.
+- [28:40.800] And you are all going to see that on full display tonight
+- [28:43.200] at 7:00 with the formal launch of TrumpRx.
+- [28:46.480] I'm telling you this is going to be a very cool and unique event,
+- [28:49.300] so everybody really should tune in.
+- [28:50.880] The Press: Can you clarify what the President said
+- [28:54.080] on the Diego Garcia deal?
+- [28:55.520] He said he didn't like it now, he says he's for it.
+- [28:58.460] Karoline Leavitt: He spoke with Prime Minister Starmer directly.
+- [29:00.810] He understands Prime Minister Starmer's position
+- [29:03.630] and he supports it.
+- [29:04.970] But as the President reiterated in that statement,
+- [29:07.280] of course the United States
+- [29:09.070] reserves the right to protect our assets.
+- [29:11.370] We still have a military base, of course,
+- [29:13.690] on the island of Diego Garcia.
+- [29:15.850] And so, the President reiterated to the prime minister
+- [29:18.680] and to all of you that the United States will never waver,
+- [29:21.630] if necessary, in protecting our assets anywhere in the world,
+- [29:24.670] but including on Diego Garcia.
+- [29:26.640] And he supports the prime minister's decision.
+- [29:28.330] Elizabeth.
+- [29:29.540] The Press: On that one, Karoline, can I ask you --
+- [29:30.810] The President said that he's now seeking --
+- [29:32.250] Karoline Leavitt: John, I'll go to you after.
+- [29:34.190] The Press: The President said he's now seeking $1 billion
+- [29:36.430] from Harvard, considerably more than before.
+- [29:38.580] What changed here and how are negotiations going?
+- [29:40.850] Karoline Leavitt: Well, look,
+- [29:42.060] this has been an ongoing negotiation
+- [29:44.330] and, frankly, a frustrating negotiation
+- [29:46.880] for the President and the administration
+- [29:48.540] because we want a deal. And it's very unfortunate
+- [29:51.410] that Harvard has dragged its feet in understanding
+- [29:54.330] they need to rectify the wrongs
+- [29:56.610] and the illegal behavior that took place on their campus
+- [30:00.040] over the course of the past several years
+- [30:02.630] under the previous administration.
+- [30:04.700] And so, the President wants a justified deal to correct
+- [30:07.770] for that criminal behavior that took place on their campus.
+- [30:10.070] He is now demanding $1 billion
+- [30:12.770] from Harvard University and Secretary McMahon
+- [30:15.330] will be continuing to lead this negotiation
+- [30:17.570] in these talks. John.
+- [30:19.650] The Press: Karoline, thank you.
+- [30:21.810] You mentioned some polling earlier
+- [30:24.190] that was very compelling on deportations.
+- [30:27.030] Rasmussen came out with a poll today,
+- [30:28.480] said 75 percent of Republicans want all illegals deported.
+- [30:32.480] It seems like the conversation has shifted again to focusing
+- [30:36.380] only on deporting illegal aliens who are criminals.
+- [30:40.710] Is the President still committed to deportations
+- [30:44.740] of the 20 million illegals that came here under Joe Biden
+- [30:48.410] or are you starting to cede that back?
+- [30:51.160] Karoline Leavitt: Yes, and the President
+- [30:52.370] has always been committed to that, John.
+- [30:53.940] But we must prioritize and the prioritization
+- [30:56.970] is on those tens of thousands of convicted criminals
+- [31:00.550] whom we know are still roaming our streets.
+- [31:03.070] ICE and Border Patrol and DHS have done a phenomenal job
+- [31:06.750] of removing tens of thousands of them.
+- [31:11.440] Actually, nearly 1 million people
+- [31:13.180] have been deported from our country over the past year,
+- [31:15.810] 2 million additional self-deportations,
+- [31:18.010] so nearly 3 million people have left the United States.
+- [31:21.470] But again, as you pointed out, rightfully, Joe Biden
+- [31:23.810] and the Democrats allowed approximately 20 million people
+- [31:26.500] into our country illegally.
+- [31:28.040] So, yes, of course the President is committed to ensuring
+- [31:30.840] that America is and always will be a nation of laws.
+- [31:33.780] Jess.
+- [31:34.980] The Press: Thank you, Karoline.
+- [31:36.210] Steve Bannon recently said, quote,
+- [31:38.100] we're going to have ICE around the polls come November.
+- [31:41.360] Is that something that the President is considering?
+- [31:43.320] Karoline Leavitt: That's not something I've ever heard
+- [31:44.600] the President consider, no.
+- [31:45.830] The Press: Do you even guarantee to the American public
+- [31:47.630] that ICE will not be around polling locations
+- [31:51.880] or voting locations in November.
+- [31:53.810] Karoline Leavitt: I can't guarantee
+- [31:55.120] that an ICE agent
+- [31:56.840] won't be around a polling location in November.
+- [31:59.940] I mean that's frankly a very silly hypothetical question.
+- [32:03.450] But what I can tell you is I haven't heard the President
+- [32:05.890] discuss any formal plans
+- [32:07.800] to put ICE outside of polling locations.
+- [32:09.940] It's a disingenuous question.
+- [32:12.820] The Press: Karoline, I have two questions regarding DHS.
+- [32:15.450] The first one is, one of the Democrats main demands for DHS
+- [32:19.010] funding was to demask ICE agents.
+- [32:21.830] Is this something that the President is even considering?
+- [32:23.960] Karoline Leavitt: Again, this is one of the specific points
+- [32:26.100] in the letter that went out by Senate Majority
+- [32:29.260] Leader Schumer and Hakeem Jeffries.
+- [32:31.060] I won't negotiate the individual points from the podium,
+- [32:34.420] but it is obviously something the White House
+- [32:36.010] will be discussing with lawmakers on Capitol Hill
+- [32:38.460] in the coming days.
+- [32:39.670] The Press: Is the administration concerned that the shakeup
+- [32:41.750] that we're seeing of DHS activity in Minneapolis
+- [32:44.600] could potentially embolden different obstructionist
+- [32:47.210] protesters around the country as they now have a playbook
+- [32:49.560] on how to get ICE out of their cities?
+- [32:52.270] Karoline Leavitt: No, because what you saw yesterday
+- [32:55.200] with the drawdown of 700 agents only occurred
+- [32:59.340] because the condition that the President of the United States
+- [33:02.090] set for local states --
+- [33:04.680] local counties to turn over illegal aliens
+- [33:07.110] to ICE has been met. The vast majority of counties --
+- [33:10.860] nearly every single county now in Minnesota --
+- [33:13.610] have made an agreement to notify ICE
+- [33:16.140] when they are releasing an illegal criminal
+- [33:17.830] from their jail.
+- [33:19.070] This is a huge win for the administration.
+- [33:21.700] Again, it's a condition the President set out
+- [33:23.620] and has been met,
+- [33:24.830] thanks to the tireless efforts of Mr. Homan.
+- [33:27.600] And as for the left-wing agitators
+- [33:29.810] who have been illegally obstructing
+- [33:32.780] ICE's immigration efforts,
+- [33:34.440] we are not letting that behavior go unnoticed or unpunished.
+- [33:38.180] In fact, just today the Department of Homeland Security
+- [33:41.540] arrested this individual. He is a self-proclaimed Antifa
+- [33:45.770] member who has been threatening, doxing, harassing ICE.
+- [33:50.920] He called for the murder
+- [33:52.220] of federal law enforcement officers.
+- [33:54.000] He encouraged bloodshed in the streets of Minnesota.
+- [33:57.570] He proudly acclaimed affiliation
+- [33:59.460] with the domestic terrorist organization, Antifa.
+- [34:02.370] And the Department of Justice,
+- [34:03.710] thanks to the great work of HSI and the FBI,
+- [34:07.150] was able to locate and arrest this individual today.
+- [34:10.550] So, we are committed to enforcing our immigration laws.
+- [34:13.480] We want that level of cooperation from state
+- [34:15.420] and local officials.
+- [34:16.660] And if people are illegally obstructing
+- [34:19.210] our federal law enforcement operations,
+- [34:21.150] if they are targeting, doxing, harassing
+- [34:24.150] and vilifying ICE agents,
+- [34:26.200] they are going to be held accountable,
+- [34:27.540] like this individual here who, again,
+- [34:29.380] is a self-proclaimed member of Antifa,
+- [34:31.770] he is a domestic terrorist
+- [34:33.090] and he will be held accountable in the United States.
+- [34:35.640] The Press: A question on Iran. Thanks, Karoline.
+- [34:37.530] Just to follow up on Garrett's earlier question,
+- [34:39.560] I mean you've talked a lot about the SAVE Act.
+- [34:41.390] I know you spoke with the President about it
+- [34:42.770] before you came out here.
+- [34:44.550] The President has gone beyond that though.
+- [34:46.250] He's talking about Republicans taking over elections,
+- [34:48.200] states or agents of the federal government.
+- [34:49.960] So, just to be clear,
+- [34:51.240] is the President only calling on Congress
+- [34:53.480] to pass the SAVE Act, or does he want Republicans
+- [34:56.010] to go further than that before the midterm elections?
+- [34:58.100] Karoline Leavitt: The President is calling on Republicans again,
+- [35:00.740] and Democrats, to pass the SAVE Act.
+- [35:03.200] I will reiterate; requirement for voter ID to vote,
+- [35:06.870] that should be something that no American should oppose.
+- [35:10.910] In fact, we know that the vast majority
+- [35:12.540] of Americans support it.
+- [35:13.840] Requiring proof of citizenship to register to vote,
+- [35:17.130] which is not hard to do.
+- [35:18.720] We should be able to do that in this country.
+- [35:20.410] If you want to register to vote in the United States of America,
+- [35:22.990] you have to be a citizen in the United States of America.
+- [35:25.520] And this piece of federal legislation will direct states
+- [35:28.970] to remove non-citizens from the voter rolls.
+- [35:31.630] I just had a conversation with the President about it.
+- [35:35.030] The Press: Thank you. Thank you, Karoline.
+- [35:36.370] I have two questions. Tariffs on South Korea.
+- [35:39.960] As you know, President Trump recently mentioned tariffs --
+- [35:44.170] or increasing tariffs on South Korea.
+- [35:47.290] When will the 25 percent tariffs increasing on South Korea begin.
+- [35:52.890] Secondly, what impact will this have on national security?
+- [35:58.730] Karoline Leavitt: Sure.
+- [36:00.080] I don't have a timeline for you on that,
+- [36:02.210] but I will make sure that our trade team
+- [36:04.180] here at the White House gets you an answer swiftly and promptly.
+- [36:07.310] John?
+- [36:08.530] The Press: Thank you so much, Karoline.
+- [36:09.870] Yesterday President Trump in the NBC interview
+- [36:12.300] said that it bothers me
+- [36:13.510] that somebody is going after Bill Clinton.
+- [36:15.610] That somebody is the House Oversight Chairman
+- [36:17.970] James Comer, a Republican. Why is the President bothered
+- [36:21.660] that they're investigating Bill Clinton and his Epstein ties?
+- [36:24.900] Karoline Leavitt: Look, I think that the President has respect
+- [36:27.730] for the former President of the United States Bill Clinton.
+- [36:29.960] He said yesterday himself
+- [36:31.970] they've shared a good relationship,
+- [36:33.250] and that's what he was reiterating
+- [36:34.590] in that NBC interview.
+- [36:37.940] Go ahead.
+- [36:39.140] The Press: Karoline, can you tell us a little bit
+- [36:41.140] about the agenda for tomorrow's talks with the Iranians?
+- [36:44.450] What will be the focus of the discussions?
+- [36:47.420] Karoline Leavitt: Diplomacy moving forward.
+- [36:48.980] The President has obviously been quite clear
+- [36:52.050] in his demands of the Iranian regime.
+- [36:54.740] Zero nuclear capability
+- [36:56.260] is something he's been very explicit about,
+- [36:58.840] and he wants to see if a deal can be struck.
+- [37:01.850] And while these negotiations are taking place,
+- [37:04.190] I would remind the Iranian regime
+- [37:06.310] that the President has many options at his disposal
+- [37:09.320] aside from diplomacy,
+- [37:10.990] as the commander in chief of the most powerful military
+- [37:13.890] in the history of the world.
+- [37:15.680] Take one from the Washington Examiner.
+- [37:17.450] Go ahead.
+- [37:19.460] The Press: Lynchburg County, Virginia is the third --
+- [37:21.760] local law enforcement is defying the blue --
+- [37:25.820] the blue government's demand
+- [37:27.320] that they no longer cooperate with ICE.
+- [37:29.630] There's a lot of red counties that are thumbing their nose
+- [37:32.470] at the blue -- blue government -- blue states' leadership,
+- [37:38.160] telling them not to cooperate with ICE.
+- [37:39.590] Will this administration support those counties in any way,
+- [37:42.730] support them either in -- through legal help or --
+- [37:45.880] Karoline Leavitt: Absolutely.
+- [37:47.100] And if there is a county in this country,
+- [37:49.290] whether it's red or blue,
+- [37:50.580] that seeks to cooperate with the federal government
+- [37:52.630] to remove violent illegal criminal aliens
+- [37:54.820] from their communities,
+- [37:56.100] this administration is here to help.
+- [37:57.710] You've heard the calls from --
+- [37:58.930] again, from the President himself
+- [38:00.940] on asking Democrats and Republicans
+- [38:03.630] across the country to call on the Trump administration,
+- [38:06.380] to work with them, not against them, in --
+- [38:09.720] in the matter of public safety and securing our homeland.
+- [38:12.340] Thank you all very much.
+- [38:13.690] You'll hear directly from the President tonight at 7:00.
+- [38:17.290] And I hope everybody has a good weekend.
+- [38:18.680] Happy Super Bowl weekend. The President has wisely chosen
+- [38:22.100] not to make a prediction in Sunday night's game.
+- [38:24.440] But as a native girl from New Hampshire, go Patriots.
+- [38:29.090] Thank you, guys.

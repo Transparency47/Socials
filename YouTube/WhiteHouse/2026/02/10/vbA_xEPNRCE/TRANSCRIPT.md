@@ -1,0 +1,199 @@
+<!-- source: https://www.youtube.com/watch?v=vbA-xEPNRCE -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: vbA-xEPNRCE -->
+<!-- date_published: 2026-02-10T15:20:46+00:00 -->
+<!-- date_accessed: 2026-06-02T02:38:05.860702+00:00 -->
+
+# Transcript: Vice President JD Vance Delivers Remarks with President Ilham Aliyev of Azerbaijan
+
+- [00:07.690] Male Speaker: Ladies and gentlemen,
+- [00:09.460] President of the Republic of Azerbaijan, Mr. Ilham Aliyev
+- [00:12.880] and Vice President of the United States of America, Mr. JD Vance
+- [00:16.530] will now sign the Charter on Strategic Partnership
+- [00:20.080] between the Government of the Republic of Azerbaijan
+- [00:22.710] and the Government of the United States of America.
+- [00:48.540] (applause)
+- [01:00.620] Statements for the media by the President of Azerbaijan
+- [01:04.300] and the Vice President of the United States.
+- [01:11.240] President Aliyev: Dear Mr. Vice President,
+- [01:12.790] dear guests, ladies and gentlemen,
+- [01:15.330] it's a big honor for us to welcome Mr. Vice President
+- [01:18.480] on official visit to Azerbaijan.
+- [01:21.020] We had a very good conversation today
+- [01:23.770] covering many issues of our bilateral agenda.
+- [01:27.300] We are very grateful to Trump-Vance administration
+- [01:31.240] for a very positive attitude to Azerbaijan,
+- [01:34.270] today's ceremony of signing of Charter
+- [01:37.560] on Strategic partnership.
+- [01:39.690] Is a reflection of the very hard work
+- [01:42.350] which our teams conducted for six months.
+- [01:46.950] Six months ago, historical meeting
+- [01:49.660] in Washington with President Trump
+- [01:52.490] and signing a document to establish the working group
+- [01:56.910] to elaborate the charter on strategic partnership
+- [02:00.240] opened the new opportunities for bilateral cooperation.
+- [02:04.780] For us, it's a great honor to be a strategic partner
+- [02:09.320] to the most powerful country of the world,
+- [02:12.410] United States of America.
+- [02:14.640] We are also very grateful to President Trump,
+- [02:17.410] Vice President Vance,
+- [02:18.780] and their team for their contribution
+- [02:22.790] to peace in the Caucasus.
+- [02:25.240] Last August, Armenia and Azerbaijan in the White House,
+- [02:29.070] in the presence of President Trump initial peace agreement,
+- [02:33.520] and also we signed a joint declaration on peace
+- [02:38.510] which President Trump signed also as a witness.
+- [02:43.170] And for these six months, we already live in peace.
+- [02:47.150] We are learning to live in the peace,
+- [02:48.800] and we are very grateful to the United States government
+- [02:52.500] for this great contribution.
+- [02:54.720] Not only we lifted all the restrictions
+- [02:59.190] on the transit of cargo through Azerbaijan to Armenia,
+- [03:03.120] but we ourselves started to supply oil products to Armenia,
+- [03:07.750] thus beginning actually, trade and beginning cooperation.
+- [03:13.580] One of the important results
+- [03:16.590] of Trump-Vance administration's efforts
+- [03:19.560] in our region is implementation of Trump's route
+- [03:23.410] for international peace and prosperity,
+- [03:25.630] TRIP, which will not only connect to parts of Azerbaijan,
+- [03:31.030] but also will be a very reliable, safe
+- [03:35.390] and a large-scale transportation corridor
+- [03:38.460] which will connect Asia with Europe
+- [03:42.150] through the territory of Azerbaijan, Armenia,
+- [03:45.900] and other neighbors,
+- [03:47.530] thus strengthening what has been achieved
+- [03:50.490] on the peace track in the region.
+- [03:53.490] Today, relations between the United States and Azerbaijan
+- [03:56.640] are entering absolutely new phase.
+- [04:01.250] In the charter which we signed with our dear guest
+- [04:05.830] there are different directions of our cooperation.
+- [04:10.560] We will continue to work closely
+- [04:12.490] on the issues related to security,
+- [04:15.210] anti-terror operations.
+- [04:17.370] We will work on the issue related to energy security.
+- [04:21.930] Azerbaijan today provides energy security
+- [04:25.310] with its natural gas resources to 16 countries.
+- [04:30.320] Eleven of them are NATO members, the allies of the United States.
+- [04:37.010] Connectivity, as I already mentioned, with TRIP,
+- [04:40.710] will be another contribution to peace, development,
+- [04:44.140] and cooperation in the region.
+- [04:46.830] We're also opening the chapter of cooperation
+- [04:51.940] in defense sales, which is also very promising.
+- [04:55.650] And of course, AI data centers,
+- [04:58.690] which today is part of our bilateral agenda
+- [05:03.420] and where we already have preliminary results
+- [05:07.080] in interaction with the leading American companies.
+- [05:10.840] In other words, today's visit of Vice President Vance
+- [05:15.870] can be called a historical,
+- [05:17.850] from point of view of hosting our friend and guest,
+- [05:24.500] and from the point of view of the substance of negotiations
+- [05:27.860] and the strategic charter which have been signed.
+- [05:30.640] Once again, Mr. Vice President, welcome to Azerbaijan.
+- [05:34.610] The Vice President: Thank you, President Aliyev,
+- [05:36.030] and I want to send the best regards from the President
+- [05:38.740] of the United States both to you personally,
+- [05:40.320] but also to the people of Azerbaijan.
+- [05:42.760] This is for a very long time,
+- [05:44.140] I think, been an underappreciated,
+- [05:45.910] but very, very important partnership and friendship
+- [05:48.600] for the United State of America.
+- [05:50.520] I think many Americans may not know that, for example,
+- [05:52.830] the Azerbaijanis were some of the last
+- [05:55.840] to leave in Afghanistan.
+- [05:57.240] They were very supportive in the global war on terrorism.
+- [05:59.950] They fought alongside United States Marines in Afghanistan.
+- [06:03.490] And in fact earned a reputation
+- [06:05.580] as being some of the toughest and fiercest troops
+- [06:07.970] anywhere in the world.
+- [06:09.440] And so we wanted to come today
+- [06:11.130] to show our appreciation for this friendship,
+- [06:13.330] but also to really turn the page and to open up the next chapter.
+- [06:16.650] And I think what will be a stronger
+- [06:18.110] and even better relationship
+- [06:19.860] under President Trump's leadership
+- [06:21.430] and under President Aliyev's leadership here in Azerbaijan.
+- [06:24.450] There's a lot to talk about, and there's a to announce.
+- [06:27.060] We could spend, I think, all day up here
+- [06:28.840] talking about some of great things that are happening.
+- [06:31.600] We're going to ship some new boats to Azerbaijan
+- [06:33.340] to help you all
+- [06:34.620] with some of your territorial waters protection.
+- [06:37.660] We're proud to announce, and I believe
+- [06:39.350] I was one of the very first to fly along the new Trump Road
+- [06:43.050] for International Peace and Prosperity
+- [06:45.020] that will connect the two separate parts of Azerbaijan.
+- [06:47.820] And our hope is that that will build
+- [06:49.690] the kind of economic and natural resource
+- [06:52.760] and critical mineral cooperation that will make it possible
+- [06:56.300] to really make this incredible peace agreement
+- [06:59.350] between Azerbaijan and Armenia stick
+- [07:01.410] because we know that one of the great things
+- [07:03.950] that can prevent fighting and prevent wars from breaking out
+- [07:07.060] is when two peoples culturally exchange with one another,
+- [07:09.910] when they spend time working with one other,
+- [07:12.190] and of course when they create great prosperity
+- [07:14.660] by working together as opposed to fighting one another.
+- [07:18.040] Now on the point of the peace agreement,
+- [07:19.650] I really do think that President Aliyev
+- [07:21.300] deserves a great amount of credit,
+- [07:23.000] I was, of course, just in Armenia earlier today.
+- [07:26.320] And without the leadership of the prime minister of Armenia
+- [07:29.250] and the President of Azerbaijan,
+- [07:31.070] we would not have gotten that peace agreement done.
+- [07:33.660] And really, three people, I think,
+- [07:35.170] created historic peace. The president of this country,
+- [07:38.060] the prime minister of of Armenia,
+- [07:39.810] and of course the President of the United States
+- [07:41.660] working together, created peace where previously there was war.
+- [07:45.280] And I think in the future we'll create prosperity
+- [07:47.860] where once there was only fighting and conflict.
+- [07:50.150] That is an amazing testament to the president's leadership
+- [07:53.240] but also to President Aliyev's leadership as well.
+- [07:56.130] And again, this is the sort of thing
+- [07:58.980] that the President of the United States
+- [08:00.600] has committed our foreign policy to.
+- [08:02.700] Why should we be fighting one another
+- [08:04.970] when we can engage in commerce with one another,
+- [08:07.600] when we could build partnerships with one other?
+- [08:09.860] And I think that partnership,
+- [08:11.180] the partnership of the Unites States and Azerbaijan
+- [08:13.650] will lead to greater peace and prosperity in the region.
+- [08:16.330] It will lead more access to more markets
+- [08:18.910] for the workers of the United States of America.
+- [08:21.380] And it's just going to create a much better world.
+- [08:24.220] Where people are engaging in commerce
+- [08:26.000] with one another rather than fighting with one other.
+- [08:29.130] And I think that is the core of the President
+- [08:31.030] of the United States' mission and foreign policy
+- [08:34.130] is this recognition that we can organize around shared interests
+- [08:38.140] and actually build something great with one another.
+- [08:41.130] We signed a strategic partnership
+- [08:42.950] which I think will formalize that partnership
+- [08:45.490] and make it very clear that the United States-
+- [08:47.550] Azerbaijan relationship is one that will stick,
+- [08:50.680] is one that will continue to produce great fruits
+- [08:53.000] for both of our peoples. And just on a personal note,
+- [08:56.360] I'm incredibly pleased to be here.
+- [08:57.970] I was telling my staff before we landed
+- [09:00.410] that other than President Trump, the only leader in the world
+- [09:03.670] that has really good relations with both the Turks
+- [09:06.810] and the Israelis is President Aliyev.
+- [09:08.690] And I said, so that means,
+- [09:10.010] one, the food must be really good here,
+- [09:12.340] or, two, he must be very charming.
+- [09:14.810] I can confirm that he's very charming,
+- [09:17.100] We're going to find out in a little bit about the food
+- [09:20.140] and I'm sure it will be great.
+- [09:21.660] But let me just say that the Second Lady and I
+- [09:23.830] are very pleased to be having dinner later today.
+- [09:26.580] And as I understand it,
+- [09:28.250] the vice president of Azerbaijan is also the president's wife.
+- [09:33.030] And hopefully that doesn't give the second lady any ideas.
+- [09:35.740] But I just want to say that on a personal note
+- [09:38.410] but also because of the friendship of our great nations
+- [09:40.900] I'm very honored to be here and very honored
+- [09:43.010] to continue the discussion. God bless you.
+- [09:44.400] President Aliyev: Thank you very much.
+- [09:45.610] The Vice President: Thank you.
+- [09:47.280] (applause)

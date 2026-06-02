@@ -1,0 +1,818 @@
+<!-- source: https://www.youtube.com/watch?v=csTu3YEniMM -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: csTu3YEniMM -->
+<!-- date_published: 2025-08-19T17:48:55+00:00 -->
+<!-- date_accessed: 2026-06-02T02:45:32.912190+00:00 -->
+
+# Transcript: Press Secretary Karoline Leavitt Briefs Members of the Media, Aug. 19, 2025
+
+- [00:03.860] Karoline Leavitt: Good afternoon everybody. How are you?
+- [00:06.620] Good to see all of you.
+- [00:10.490] What we've witnessed President Trump accomplish
+- [00:12.720] over the last few days has been nothing short of remarkable.
+- [00:16.290] We are now three and a half years
+- [00:18.060] into the war between Russia and Ukraine,
+- [00:20.590] a brutal conflict that has claimed hundreds of thousands
+- [00:23.860] of Russian and Ukrainian lives and cost trillions of dollars.
+- [00:28.470] The weakness and incompetence of Joe Biden
+- [00:30.760] foolishly allowed the killing to start in the first place.
+- [00:34.570] Until President Trump returned to office in January.
+- [00:37.570] The bloody and broken Biden status quo
+- [00:39.860] was to endlessly force American taxpayers to fund Ukraine
+- [00:43.840] no matter the cost, no matter how long it takes,
+- [00:46.800] and no matter many lives were lost.
+- [00:49.210] There is no denying that Biden's America Last foreign policy
+- [00:52.840] moved the world further away from peace.
+- [00:56.090] President Trump rejected that failed approach
+- [00:58.580] and instead, over the last seven months,
+- [01:00.480] has relentlessly pursued peace throughout his second term.
+- [01:04.560] And thanks to President Trump's efforts,
+- [01:06.260] we finally have movement after years of deadly gridlock.
+- [01:10.150] On Friday, as you all know, many of you were there,
+- [01:12.530] President Trump hosted Russian President Vladimir Putin
+- [01:15.630] in Anchorage, Alaska, for a bilateral meeting.
+- [01:18.590] This was the first time President Putin
+- [01:20.520] has been to the United States since 2015
+- [01:23.550] and the first he has met with an American president in years.
+- [01:27.500] President Putin publicly confirmed
+- [01:29.450] what President Trump has said all along.
+- [01:32.350] The war between Russia and Ukraine
+- [01:34.260] never would have started in the first place
+- [01:36.630] if President Trump were in office.
+- [01:39.050] This was always obvious to any person
+- [01:41.250] with a shred of common sense. Just look at what took place
+- [01:44.860] during the last four administrations.
+- [01:47.510] Under George W. Bush, Russia invaded Georgia.
+- [01:50.840] Under Barack Obama, Russia took Crimea.
+- [01:53.840] Under Joe Biden, Russia invaded Ukraine.
+- [01:56.710] But under President Trump,
+- [01:58.190] Russia did not invade nor take anything.
+- [02:01.240] President Trump is the only president this century,
+- [02:03.800] Republican or Democrat,
+- [02:05.290] who has held Russia in check and ensured peace in Europe.
+- [02:09.400] That's because Russia has always greatly respected
+- [02:11.380] President Trump
+- [02:12.590] and his peace-through-strength foreign policy approach.
+- [02:15.520] But overall, the bilateral talks in Alaska
+- [02:17.970] were very productive, and multiple key points
+- [02:20.570] were agreed to between the two leaders
+- [02:22.550] that truly opened up the door for phase two discussions,
+- [02:25.910] which took place yesterday here at the White House.
+- [02:28.800] Within 48 hours of that meeting in Anchorage, I may add.
+- [02:32.410] As you all know, there were many European leaders here,
+- [02:34.900] as well as Ukrainian President Zelensky.
+- [02:37.720] They all traveled here to meet with President Trump,
+- [02:40.570] to maintain the momentum and work toward a lasting peace.
+- [02:44.270] Across the board, every leader credited President Trump
+- [02:47.260] for his decisive leadership
+- [02:48.670] that has reignited the dialog in hopes
+- [02:51.070] of finally bringing this war to a peaceful conclusion.
+- [02:55.080] Two quotes in particular capture the progress that was made
+- [02:57.910] and the optimism moving forward.
+- [03:00.240] Finnish President Alexander Stubb said,
+- [03:02.540] "I think in the past two weeks
+- [03:04.330] we've probably had more progress in ending this war
+- [03:06.940] than we have had in the last two and a half years".
+- [03:10.910] Again, that is the President of Finland,
+- [03:13.010] a country that shares a border with Russia.
+- [03:15.860] That's what we call the President Trump effect.
+- [03:18.540] NATO Secretary General Mark Rutte
+- [03:20.490] also summed it up well. "Without President Trump,
+- [03:23.210] this deadlock with Putin would not have been broken.
+- [03:25.800] He is the only one who could do this."
+- [03:28.840] Following the encouraging conversations yesterday,
+- [03:31.190] President Trump spoke with President Putin by phone,
+- [03:34.040] and he agreed to begin the next phase of the peace process,
+- [03:37.170] a meeting between President Putin and President Zelensky,
+- [03:40.480] which would be followed, if necessary,
+- [03:42.420] by a trilateral meeting between President Putin,
+- [03:45.550] President Zelinski, and President Trump.
+- [03:48.070] As the President said, Vice President Vance,
+- [03:50.360] Secretary Rubio and Special Envoy Wittkopf
+- [03:52.770] will continue to coordinate with Russia and Ukraine
+- [03:55.500] to make this happen as soon as possible.
+- [03:58.010] It's very important to remember
+- [03:59.560] that before President Trump's landslide victory last November,
+- [04:02.840] there was no end in sight to this bloodshed.
+- [04:05.490] Now there may finally be light at the end of the tunnel
+- [04:08.460] and an opportunity for lasting peace.
+- [04:11.070] That's because President Trump is the peace president
+- [04:13.690] and American leadership is back on the world stage.
+- [04:16.680] It should not be lost on anyone in this room
+- [04:19.540] that world leaders are coming right here to Washington, D.C.
+- [04:23.720] For help. While previous presidents
+- [04:25.910] have traveled halfway around the world
+- [04:27.520] to apologize for America,
+- [04:29.610] President Trump stands up for America
+- [04:31.810] and he has firmly restored America's status
+- [04:34.480] as the undisputed leader of the free world.
+- [04:38.020] However, one thing that has absolutely not changed
+- [04:40.590] is the media's negative and downright false coverage
+- [04:43.620] of President Trump and his foreign policy accomplishments.
+- [04:47.000] From the beginning of this entire process.
+- [04:49.580] Much of the left-wing media has been actively rooting
+- [04:52.170] against the President of the United States
+- [04:54.100] in the pursuit of peace.
+- [04:55.910] Initially, the media ridiculously claimed
+- [04:58.660] that President Trump was somehow beholden to Russia
+- [05:01.640] for even agreeing to have a face-to-face discussion
+- [05:04.410] with President Putin inside of the U.S.
+- [05:07.190] The media said President Trump was making a grave mistake by,
+- [05:10.160] quote, "legitimizing Putin."
+- [05:11.680] They were aghast that President Trump
+- [05:13.690] would treat another world leader like a world leader.
+- [05:17.370] The media relentlessly attacked President Trump
+- [05:19.430] and claimed he suffered a, quote,
+- [05:20.820] "major defeat for not immediately emerging
+- [05:23.960] with a final agreement,"
+- [05:25.160] even though he said, heading into that meeting,
+- [05:27.590] this was a meeting to listen
+- [05:29.380] and to understand how to move the ball forward.
+- [05:31.780] All weekend following
+- [05:33.060] those historic U.S.-Russia bilateral talks,
+- [05:35.410] we listened to clueless pundits on television
+- [05:38.300] trying but failing to claim that the President had failed.
+- [05:42.500] The so-called experts in the foreign policy establishment,
+- [05:45.140] whose record is nothing but endless wars,
+- [05:47.630] trillions of wasted taxpayer dollars,
+- [05:49.630] and dead Americans have the nerve to try and lecture
+- [05:52.610] President Trump, who has solved seven global conflicts
+- [05:55.710] in seven months about peace.
+- [05:58.360] This is the same president, by the way,
+- [06:00.010] who brokered the Abraham Accords in his first term
+- [06:02.890] on top of more than half a dozen other peace deals
+- [06:05.260] this year alone, as I just said.
+- [06:07.290] We also saw yesterday the President of Ukraine
+- [06:09.650] and all of the other major leaders of Europe
+- [06:11.400] fly across the Atlantic Ocean
+- [06:13.450] to meet President Trump at the White House
+- [06:15.160] because of the progress that was made and that,
+- [06:18.040] if you ask the media, failed meeting, but it was not.
+- [06:21.020] It was highly productive and it was successful.
+- [06:23.650] This is why Americans trust in the mass media
+- [06:26.040] is at a lowest point in more than five decades.
+- [06:29.160] Diplomacy is a delicate process
+- [06:31.140] and instead of reporting the facts
+- [06:32.720] about what is happening here at this White House
+- [06:35.020] and what is happening between this president
+- [06:36.990] and other leaders around the world,
+- [06:38.240] many outlets in this room
+- [06:39.470] continue to try to actively undermine the President
+- [06:42.680] and sabotage the efforts towards peace.
+- [06:45.240] That is why I felt the need to set the record straight.
+- [06:48.630] In other news, on the home front,
+- [06:50.180] President Trump's efforts to make DC safe again are working.
+- [06:53.590] There have been a total of 465 arrests
+- [06:57.580] since the start of this operation on Thursday,
+- [07:00.270] August 7th.
+- [07:01.500] Last night, there were a total of 52 arrests,
+- [07:04.430] including the arrest of an illegal alien,
+- [07:06.730] MS-13 gang member with convictions for DWI
+- [07:10.410] and drug possession.
+- [07:11.910] Thanks to President Trump's leadership
+- [07:13.520] in the outstanding work of both federal
+- [07:15.470] and local law enforcement,
+- [07:17.140] dangerous gang members like the one picked up last night
+- [07:19.740] will not be allowed on the streets of our nation's capital.
+- [07:23.400] Other arrests last night included assault
+- [07:25.770] with a deadly weapon for stabbing,
+- [07:27.800] parole violation for robbery, murder,
+- [07:30.440] outstanding warrant for attempted murder,
+- [07:32.780] assault on federal law enforcement officer,
+- [07:35.080] and felony assault.
+- [07:36.570] Four more homeless encampments were also removed
+- [07:38.920] during yesterday's reporting period.
+- [07:41.020] To date, a total of 48 homeless encamps
+- [07:43.740] have been cleared in Washington D.C.
+- [07:45.970] By multi-agency teams.
+- [07:47.930] MPD patrol units are actively working with city officials
+- [07:51.040] to locate and clear additional encampment
+- [07:53.740] and remove homeless residents off of Washington's streets.
+- [07:57.170] And despite fake narratives from the media again,
+- [07:59.660] a significant number of the arrests
+- [08:01.340] have been in high crime areas of D.
+- [08:03.670] C. In fact, nearly half.
+- [08:06.190] Of all of the non-illegal alien-related arrests
+- [08:09.560] have occurred in wards 7 and 8,
+- [08:12.370] the two wards that have the highest number of violent crime,
+- [08:15.810] as well as homicides and assaults
+- [08:17.440] with dangerous weapons last year.
+- [08:19.690] So while Democrats continue to coddle violent criminals,
+- [08:22.880] President Trump and this administration are focused
+- [08:25.160] on putting them behind bars and unapologetically standing up
+- [08:28.540] for the safety of law-abiding American citizens,
+- [08:31.490] and the White House will continue to provide all of you.
+- [08:34.300] With the results of this operation in the days ahead.
+- [08:37.040] So with that, I will take your questions today.
+- [08:38.930] Here in our new media seat today, we have Jack Pasobic,
+- [08:41.280] who joined us in Anchorage, Alaska last week.
+- [08:43.700] Jack, thanks for being here. Why don't you kick us off?
+- [08:45.810] The Press: Karoline, thanks so much.
+- [08:47.030] So a couple of questions
+- [08:48.250] regarding the status of these peace talks.
+- [08:51.000] Obviously, we saw the President
+- [08:52.770] and President Putin there in Anchorage.
+- [08:54.740] We saw the world leaders here yesterday with this summit.
+- [08:57.820] We've heard phrases like coalition of the willing.
+- [09:00.080] We've also heard Article 5-like guarantees.
+- [09:03.100] When it comes to the security guarantees,
+- [09:06.020] what is the current status of that?
+- [09:07.380] I know the President earlier today
+- [09:09.150] mentioned boots on the ground
+- [09:11.180] would be UK, France, Germany possibly,
+- [09:13.540] but unequivocally said no U.S. Troops on the ground,
+- [09:16.910] but U. S. coordination. Can you elaborate on that?
+- [09:19.340] And what would the red lines be? Sure.
+- [09:20.830] Karoline Leavitt: Well, you got to the heart of what I was
+- [09:23.070] going to say to all of you today on security guarantees,
+- [09:25.570] which is the President has definitively stated
+- [09:28.370] U.S. Boots will not be on the ground in Ukraine.
+- [09:30.530] But we can certainly help in the coordination
+- [09:32.930] and perhaps provide other means of security
+- [09:34.860] guarantees to our European allies.
+- [09:37.150] The President understands security guarantees
+- [09:39.040] are crucially important to ensure a lasting peace
+- [09:42.290] and he has directed his national security team
+- [09:44.710] to coordinate with our friends in Europe
+- [09:47.050] and also to continue to cooperate and discuss.
+- [09:49.680] These matters with Ukraine and Russia as well.
+- [09:51.810] The Press: (inaudible)
+- [09:53.060] have the Russians responded at all?
+- [09:54.800] I know he spoke with President Putin last night.
+- [09:56.530] What has been their response?
+- [09:57.890] Because we've heard some reports from the Kremlin
+- [10:00.500] and others saying they're unequivocally
+- [10:01.970] against NATO troops on the ground.
+- [10:03.490] Karoline Leavitt: Well, look, the President continues to have
+- [10:05.170] these conversations with both leaders.
+- [10:07.610] Those conversations took place in Anchorage, Alaska,
+- [10:10.290] again yesterday with the Europeans
+- [10:12.120] and President Zelensky,
+- [10:13.420] and he has directed his team to come up with a framework
+- [10:16.490] for these security guarantees that can be acceptable
+- [10:19.320] to help ensure a lasting peace and end this war.
+- [10:21.820] The Press: Last question really quick on this.
+- [10:23.520] Regarding some of the funding,
+- [10:25.070] we're hearing questions about another round of weapons sales
+- [10:28.930] and possibly a round of US purchases of Ukrainian drones.
+- [10:33.160] Will that money be funded by the US taxpayers?
+- [10:36.220] Are we finally going to see an end to the US taxpayer
+- [10:39.670] funded seemingly endless mandate for these foreign wars?
+- [10:42.500] Karoline Leavitt: Well, the President is very sensitive
+- [10:44.200] to the needs of the American taxpayer,
+- [10:46.720] and immediately upon entering office back in January,
+- [10:49.690] he made it very clear that we're not going to continue
+- [10:51.620] writing blank checks to fund a war very far away,
+- [10:54.310] which is why he came up with a very creative solution
+- [10:57.720] to have NATO purchase American weaponry,
+- [11:00.120] because it is the best in the world
+- [11:02.060] and then to backfill the needs of the Ukrainian army.
+- [11:05.570] In the Ukrainian people and their military.
+- [11:07.440] So that's the solution the President has came up with.
+- [11:09.900] We'll continue to see that forward.
+- [11:11.510] As for any additional sales,
+- [11:13.020] I'll have to defer you to the Department of Defense.
+- [11:15.170] Thanks Jack. Kelly.
+- [11:16.690] The Press: What has President Trump
+- [11:17.940] learned that tells him that Vladimir Putin
+- [11:19.980] would be willing to make a deal for him, for President Trump?
+- [11:23.810] Karoline Leavitt: Well, the President has learned a lot,
+- [11:25.340] which is part of the reason he opened up this dialog.
+- [11:28.130] The previous administration,
+- [11:29.620] who oversaw the beginning of this war, refused to talk.
+- [11:33.580] And President Trump has always said, in order to learn,
+- [11:36.110] in order to move the ball forward with diplomacy
+- [11:38.440] and towards peace, you have to have open dialog.
+- [11:41.140] And so that's why the President has had
+- [11:43.210] several conversations by phone and, of course,
+- [11:45.590] an in-person meeting last Friday with President Putin.
+- [11:48.650] He also has talked to President Zelensky dozens of times,
+- [11:52.350] had him here at the White House yesterday,
+- [11:54.500] and he's understanding what both sides want,
+- [11:57.800] what both side are going to have to give up,
+- [11:59.800] and he has always said, in order to get a good deal,
+- [12:02.480] both sides are going have to walk away a little bit unhappy.
+- [12:05.030] So he continues to learn a lot throughout these conversations,
+- [12:08.180] which is why we've seen progress from both sides.
+- [12:11.170] And I would also just add,
+- [12:12.980] when it comes to learning and moving the ball forward,
+- [12:15.890] look at how both Russia and Ukraine
+- [12:17.680] have actually talked directly
+- [12:19.520] for the first time in many years,
+- [12:21.070] thanks to the efforts of this president
+- [12:23.440] and this administration.
+- [12:24.690] The Press: Specifically for President Trump, though,
+- [12:26.430] what do you think Putin's motivation
+- [12:28.570] is to try to do something for President Trump,
+- [12:31.570] as opposed to just resolving the conflict?
+- [12:33.040] I think.
+- [12:34.280] Karoline Leavitt: I think, as I just spoke
+- [12:35.490] to in my opening remarks, Kelly,
+- [12:37.470] Russia and all countries around this world
+- [12:39.350] actually respect the United States again,
+- [12:41.720] and the President is using the might of American strength
+- [12:45.810] to demand that respect from our allies,
+- [12:49.470] our friends, our adversaries all around the world.
+- [12:51.980] And we've seen that not just lead to progress
+- [12:54.340] with Russia and Ukraine,
+- [12:55.670] but also we've seen it in the closing of seven
+- [12:57.970] global conflicts around the word as well.
+- [13:00.220] We've seen it with the release of hostages in Gaza.
+- [13:02.900] You've seen it with the end of the conflict
+- [13:05.180] between India and Pakistan,
+- [13:06.650] which could have resulted in a nuclear war
+- [13:09.040] if we had not had a president who believed in the strength
+- [13:11.910] and the leverage that comes with the job of being the President
+- [13:15.280] of the United States of America. Rachel.
+- [13:17.190] The Press: Thanks, Karoline.
+- [13:18.430] Heading into Alaska, a lot of the focus in the talk
+- [13:20.570] was on this trilateral meeting between these three leaders.
+- [13:23.660] Can you explain how this went from a trilateral meeting
+- [13:26.170] involving President Trump
+- [13:27.470] to now the focus being on this bilateral meeting
+- [13:29.830] without the President first?
+- [13:31.270] Karoline Leavitt: Well, look, the President has spoken
+- [13:33.350] to both leaders about this,
+- [13:34.750] and both leaders have expressed a willingness
+- [13:37.240] to sit down with each other.
+- [13:39.290] And so our national security team
+- [13:40.970] will help both countries do that.
+- [13:42.450] Ultimately, the President has always said
+- [13:44.540] that there are areas of disagreement in this war
+- [13:47.390] that will have to be discussed
+- [13:48.720] and decided upon by these two countries.
+- [13:51.290] And so he wants these two country
+- [13:53.150] to engage in direct diplomacy.
+- [13:54.530] He said that from the very beginning,
+- [13:56.670] which is why he's agreeable to the idea
+- [13:59.170] of having President Zelensky and President Putin get together.
+- [14:02.160] And I understand accommodations for that meeting are underway.
+- [14:05.160] As soon as we hear more details,
+- [14:06.440] we'll be sure to let all of you know.
+- [14:07.760] The Press: Quick follow up.
+- [14:08.990] We know as of right now there is no ceasefire in place.
+- [14:11.310] We've seen Russia continue its attacks on Ukraine.
+- [14:14.760] What indications is the President getting from Putin
+- [14:18.250] that he wants to have this meeting with Zelenskyy soon?
+- [14:21.680] Karoline Leavitt: Because he spoke to him directly yesterday.
+- [14:25.220] He spoke to that directly yesterday
+- [14:26.680] and the President put that in his statement
+- [14:28.570] that he gave to all of you, the news media,
+- [14:30.560] knowing you'd be asking, following that conversation
+- [14:33.000] in the effort of transparency. Haley.
+- [14:35.060] The Press: Thanks, Karoline.
+- [14:36.310] You made clear no U.S. boots on the ground.
+- [14:38.730] Is the President considering U.S. boots in the air
+- [14:41.500] as a form of a security guarantee?
+- [14:42.820] Karoline Leavitt: Look, that was something the President
+- [14:44.170] mentioned on his interview this morning.
+- [14:46.220] It is an option and a possibility.
+- [14:48.220] I won't certainly rule out anything
+- [14:50.320] as far as military options
+- [14:52.290] that the President has at his disposal.
+- [14:53.920] I'll let him do that.
+- [14:55.120] I can tell you he's definitively ruled out boots on the ground.
+- [15:00.560] The Press: Just about the possible venue for the talks,
+- [15:04.390] can you confirm that Putin suggested Moscow
+- [15:08.510] as a venue for bilateral talks, and if so, doesn't that indicate
+- [15:12.470] that Putin is perhaps not serious about this,
+- [15:14.380] that he's suggesting a venue that there's no way
+- [15:16.410] that Zelensky is going to go to?
+- [15:18.240] Karoline Leavitt: Look, I'm not going to litigate
+- [15:19.630] the private conversations
+- [15:20.840] between the President and President Putin
+- [15:22.680] aside from what the President himself has already spoken on,
+- [15:25.910] but I can tell you there are many options
+- [15:27.500] that are being discussed by our national security team
+- [15:29.200] right now with both parties.
+- [15:30.440] The Press: (inaudible)
+- [15:31.640] can give us an indication of where.
+- [15:32.880] Karoline Leavitt: I just told you we'll provide
+- [15:34.080] you details as soon as we can. Thank you for trying, though.
+- [15:36.540] Libby.
+- [15:37.990] The Press: I wanted to ask about the National Guard troops.
+- [15:40.200] How is the White House coordinating
+- [15:42.080] how they're being placed in D.C.?
+- [15:43.610] What areas?
+- [15:44.810] And then also, how long should people here
+- [15:46.760] in the district anticipate National Guard
+- [15:49.130] to be on the ground, the patrol of the troops?
+- [15:51.980] Karoline Leavitt: I don't have a timeline for you, Libby,
+- [15:53.710] but we will keep you posted on that.
+- [15:55.350] I think the President, as you know,
+- [15:57.130] and this administration,
+- [15:58.430] he came to this briefing room with members of his cabinet
+- [16:02.000] to lay out the rationale and the reasoning
+- [16:04.560] for federalizing the National Guard here
+- [16:07.070] in Washington, D.C.,
+- [16:08.540] and for our work with the Metropolitan Police Department
+- [16:12.220] to make our district safer.
+- [16:14.560] We've seen violent crime has taken the lives
+- [16:16.740] of far too many residents here in our capital
+- [16:19.170] and the President wants to make it safe again.
+- [16:21.230] And as for the coordination efforts,
+- [16:23.390] this inter-agency team is meeting and talking daily.
+- [16:27.260] In fact, there's a meeting taking place right now
+- [16:29.820] in the West Wing with members of the inter-
+- [16:32.330] agency task force to continue to discuss
+- [16:34.910] not just the National Guard deployment,
+- [16:36.660] but also how we can continue to remove public safety threats
+- [16:39.560] off of the streets of Washington,
+- [16:41.370] which as the numbers I just showed you prove,
+- [16:43.670] they are doing every single night.
+- [16:45.080] I will just reiterate, 465 total arrests and counting.
+- [16:49.550] Since the start of this operation.
+- [16:50.990] I believe 11 or 12 days ago, I'll have to check the calendar,
+- [16:54.150] but those are pretty remarkable results.
+- [16:56.070] If not for this task force and their high level of coordination
+- [17:00.090] and the leadership of this president,
+- [17:01.680] there would have been 465 more violent criminals
+- [17:04.410] on the streets of this Capitol that you all live in every day.
+- [17:06.640] So I think we should all be very grateful for that. Stephen.
+- [17:09.210] The Press: Thank you, Karoline.
+- [17:10.540] Three questions about the D.C. crackdown.
+- [17:12.600] Sure. First, I was wondering if you could clarify
+- [17:15.440] something President Trump said.
+- [17:16.940] He mentioned getting rid of the slums where criminals live.
+- [17:20.460] Was he talking about tents or permanent residential buildings?
+- [17:24.130] And then the mayor has expressed an interest
+- [17:26.510] in clarifying how much of a focus
+- [17:28.750] illegal immigration enforcement is as part of this crackdown?
+- [17:32.160] Can you say anything about that? Sure.
+- [17:34.200] Any preview on the beautification?
+- [17:35.590] Karoline Leavitt: Three questions.
+- [17:36.790] I'll try to answer all three of them pointedly for you.
+- [17:39.660] First, when it comes to what you said and the President said,
+- [17:42.860] the slums of Washington, D.C.,
+- [17:44.420] he's referring to the most dangerous communities,
+- [17:47.020] neighborhoods, and streets in the city where,
+- [17:49.360] unfortunately, violence has ravaged these communities
+- [17:52.900] and taken the lives of, again,
+- [17:54.390] far too many law-abiding D.C. residents.
+- [17:56.850] We know on July 5th of this year,
+- [18:00.060] just more than a month ago,
+- [18:01.290] a three year old beautiful young girl
+- [18:03.290] was shot and killed in her car with her family
+- [18:06.510] in one of these communities,
+- [18:07.820] which is why there has been a surge,
+- [18:09.830] despite what many of you have been falsely reporting.
+- [18:12.450] And I believe it was the Washington Post
+- [18:14.070] to put out a map claiming it to be fact based
+- [18:16.780] when it was just based on,
+- [18:18.170] I don't know, accounts that they've heard on the street,
+- [18:20.140] not actual statistics and data.
+- [18:21.990] So we went and reconfigured the numbers.
+- [18:24.010] And as I said, half, nearly half of all the non illegal alien
+- [18:28.360] related arrests have occurred and ward seven
+- [18:31.080] and eight in the District of Columbia
+- [18:32.940] where we know -- excuse me --
+- [18:34.740] there's the highest rate of crime.
+- [18:36.090] So we'll continue to do that.
+- [18:38.030] And what was your second question, Stephen?
+- [18:39.710] The Press: Immigration, how much of a focus that is.
+- [18:41.590] Karoline Leavitt: Yeah, look, I mean,
+- [18:42.820] the focus is to make D.C. safe and beautiful
+- [18:45.150] and to remove public safety threats
+- [18:46.790] and violent criminals from our streets.
+- [18:49.000] If federal law enforcement,
+- [18:50.410] with the help of the Metropolitan Police Department,
+- [18:52.670] come across illegal aliens, of course we are going to abide
+- [18:56.250] by this administration's policy of law and order,
+- [18:58.890] and we are going to remove illegal criminals
+- [19:01.330] from the nation's capital.
+- [19:02.970] They will be detained and deported just like
+- [19:05.020] they are in every other community across the country.
+- [19:08.570] The Press: My first question is whose idea
+- [19:10.770] was it to change the next steps
+- [19:13.300] from a trilateral to a bilateral meeting?
+- [19:16.980] Karoline Leavitt: It was an idea that evolved in the course
+- [19:19.040] of the President's conversations with both President Putin,
+- [19:21.350] President Zelensky,
+- [19:22.680] and the European leaders yesterday.
+- [19:25.020] And as you saw, Kristen, with all of those European leaders
+- [19:27.510] leaving the White House,
+- [19:28.740] including the NATO Secretary General,
+- [19:31.010] they all agree that this is a great first step.
+- [19:33.170] And it's a good thing that these two leaders
+- [19:35.780] are going to be sitting down together,
+- [19:37.090] and the President expects that to happen.
+- [19:38.870] The Press: How long is Trump willing to wait and operate
+- [19:40.950] in good faith for Putin
+- [19:42.180] to actually arrange a meeting before he intervenes?
+- [19:44.720] Karoline Leavitt: Look, the President
+- [19:46.100] has put tremendous public pressure
+- [19:48.260] to bring this war to a close.
+- [19:50.060] He's taken actions, as you've seen,
+- [19:52.110] sanctions on India and other actions as well.
+- [19:55.510] He's made himself very clear
+- [19:57.050] that he wants to see this war end.
+- [19:58.810] And he has scoffed at the ideas of others
+- [20:01.350] that have been raised that we should wait another month
+- [20:03.950] before any meeting takes place.
+- [20:05.300] The president wants to move and he wants bring this to war
+- [20:07.980] to an end as quickly as possible.
+- [20:09.850] The Press: (inaudible)
+- [20:11.170] about Putin agreeing to the meeting.
+- [20:14.240] The Kremlin seemed to indicate
+- [20:15.570] that Putin did not firmly agree to a bilateral.
+- [20:19.190] Did he agree to have a sit down with just Zelensky on the phone?
+- [20:22.730] Karoline Leavitt: I can assure you
+- [20:24.000] that the United States government
+- [20:25.540] and the Trump administration is working
+- [20:27.110] with both Russia and Ukraine
+- [20:28.640] to make that bilateral happen as we speak.
+- [20:30.400] Sean.
+- [20:31.710] The Press: If the point is to get everybody on the same page,
+- [20:34.530] why wouldn't Trump just take the call from Putin
+- [20:36.710] while the other leaders were in the room?
+- [20:38.300] He said it would be disrespectful to do that.
+- [20:40.420] Why is it disrespectful?
+- [20:41.660] Karoline Leavitt: With all due respect,
+- [20:42.900] only a reporter from the New York Times
+- [20:44.460] would ask a question like that, Sean.
+- [20:46.570] The president met with all of these European leaders
+- [20:49.200] at the White House 48 hours after sitting down
+- [20:51.940] with President Putin on American soil.
+- [20:54.710] In fact, there was so much progress in the readout
+- [20:57.540] that was given to these European leaders
+- [20:59.380] immediately following his meeting with President Putin
+- [21:02.190] that every single one of them got on a plane 48 hours later
+- [21:05.890] and flew to the United States of America.
+- [21:07.940] And if I could just read for all of you
+- [21:09.510] some of the statements
+- [21:10.710] from those European leaders yesterday,
+- [21:12.230] you had President Zelensky himself
+- [21:14.460] saying it was a very good conversation.
+- [21:16.140] It was really good.
+- [21:17.390] We spoke about very sensitive points.
+- [21:20.050] The Secretary General, Mark Ruta,
+- [21:22.430] it was the President only because of the President
+- [21:25.190] that this deadlock was broken,
+- [21:27.400] but with President Putin by starting a dialog.
+- [21:30.360] So these leaders who this war is in their backyard
+- [21:33.880] are very grateful that the President took that call.
+- [21:36.630] And that he was there to provide them
+- [21:38.610] with a readout of Russia's thinking on this,
+- [21:40.680] something that was not done
+- [21:42.100] by the previous administration at all.
+- [21:43.550] Catherine.
+- [21:44.790] The Press: (inaudible)
+- [21:46.380] looking at Budapest as a possible location?
+- [21:48.570] Karoline Leavitt: I'm not going to confirm or deny locations.
+- [21:51.040] We'll provide you with details as soon as we can.
+- [21:53.270] The Press: On Kristen's question,
+- [21:54.520] I understand that the White House is working
+- [21:56.060] and allies are working to make this meeting happen,
+- [21:57.790] but did Putin promise to do a meeting with Zelensky,
+- [22:01.800] a direct meeting, in the coming weeks?
+- [22:03.760] Karoline Leavitt: He has, and I just answered
+- [22:05.180] that question for you. Franco.
+- [22:06.760] The Press: Thanks. I just want to clarify.
+- [22:08.780] So you are saying that President Trump
+- [22:10.740] is considering U.S. pilots and U.S. aircraft
+- [22:16.060] potentially supporting European or Ukrainian forces.
+- [22:20.070] Karoline Leavitt: The President spoke to that himself
+- [22:22.010] this morning when he called into Fox& Friends
+- [22:24.670] and I would defer you to his answer.
+- [22:26.150] You can read it directly yourself.
+- [22:28.400] The Press: In addition, can I ask,
+- [22:31.270] no boots on the ground, Steve Witkoff's talking
+- [22:33.930] about Article 5-like security guarantees.
+- [22:37.070] Can you talk about what other Article 5 like security
+- [22:40.680] guarantees that are being considered
+- [22:43.260] if it's not boots on the ground?
+- [22:44.500] Karoline Leavitt: These are very sensitive diplomatic discussions
+- [22:46.790] that are currently taking place literally as we speak.
+- [22:49.370] So I will leave it to the national security team
+- [22:51.630] and I'll leave it the President
+- [22:52.970] to have those private discussions with these leaders
+- [22:55.760] as we try to bring this war to an end.
+- [22:58.930] The Press: Thanks, Karoline. Two questions, if that's okay.
+- [23:01.820] So on these meetings, I know you said
+- [23:03.830] that the trilateral will take place if necessary.
+- [23:06.230] Do you think that we might not need the trilateral
+- [23:09.130] and that Zelensky and Putin
+- [23:10.650] might come to this conclusion on their own?
+- [23:12.750] And then, as a follow-up,
+- [23:13.960] I know the President said on Fox News this morning
+- [23:15.990] that he's partially seeking peace in order to get to heaven.
+- [23:19.360] Was he joking, or is there spiritual motivation
+- [23:22.530] behind his peace deal here?
+- [23:24.330] Karoline Leavitt: I think the President was serious.
+- [23:26.300] I think president wants to get to heaven,
+- [23:27.930] as I hope we all do in this room as well.
+- [23:31.310] The Press: Thanks Karoline.
+- [23:32.600] I'm just shifting gears to the Department of Justice
+- [23:34.980] for a minute. Can you walk us through
+- [23:37.400] why another deputy FBI director was named?
+- [23:41.150] Does Trump have any displeasure
+- [23:42.910] with how the FBI has been being run to date?
+- [23:46.300] I have a question about the antitrust.
+- [23:47.870] Karoline Leavitt: Andrew Bailey is extremely qualified,
+- [23:49.900] as you know, he's been serving with honor
+- [23:52.160] as the Attorney General of Missouri
+- [23:54.080] and he's brought on as another set of very credible
+- [23:57.630] and experienced hands to work alongside the current
+- [24:00.290] Deputy Director, Dan Bongino,
+- [24:02.190] under the leadership of the Director, Cash Patel,
+- [24:05.030] and the Attorney General, Pam Bondi.
+- [24:07.420] And the FBI has been doing a tremendous job,
+- [24:09.760] we've seen their agents out on the
+- [24:15.100] But the crime that they've been stopping here in Washington,
+- [24:17.790] they've being doing this for seven months
+- [24:19.650] all across the country.
+- [24:21.040] In fact, there's been 19,000 arrests by the FBI nationwide.
+- [24:25.140] That's more than double last year in the same time period.
+- [24:28.450] Of those 1,600 arrests were for violent crimes against children.
+- [24:32.570] 4,000 child victims have been rescued by this FBI
+- [24:36.340] under this current leadership, 1,000 arrest from investigations
+- [24:39.540] of foreign terrorist organizations.
+- [24:41.150] There's been 1,500 kilos of fentanyl seized,
+- [24:44.010] 6,300 kilos of meth have been seized,
+- [24:47.140] and three of the top 10 most wanted
+- [24:49.570] have been arrested so far.
+- [24:51.280] Not a single one of the individuals on the top
+- [24:53.830] ten most wanted lists were arrested
+- [24:55.730] under the previous administration.
+- [24:57.230] We've arrested three in seven months.
+- [24:59.310] So when you're actually working and enforcing law and order,
+- [25:02.250] you need all hands on deck.
+- [25:03.490] And so we look forward to welcoming Andrew Bailey
+- [25:05.340] to this new post. Jackie.
+- [25:07.230] The Press: I had a quick question about Roger Alfred,
+- [25:10.210] who is a former DOJ official.
+- [25:11.770] He gave a speech in Aspen yesterday
+- [25:14.460] where he said that senior DOJ aides
+- [25:16.540] are cutting deals with favored lobbyists.
+- [25:19.320] I'm wondering if the President has any concerns at all
+- [25:21.520] with the way the antitrust division is working.
+- [25:23.890] Karoline Leavitt: I have no idea who that individual is.
+- [25:25.940] I don't know why he made those comments.
+- [25:27.480] I don't know what basis he's making those comments on.
+- [25:30.310] My instinct tells me it's not true,
+- [25:32.330] but we will definitely look into them
+- [25:33.690] and I'll get you a response. Jackie.
+- [25:35.900] The Press: Karoline, since the President often says
+- [25:38.030] that this war would not have started if he were in office
+- [25:41.060] and Putin confirmed that, how --.
+- [25:43.250] Karoline Leavitt: It's true. Do you accept that as true?
+- [25:46.120] The European leaders do.
+- [25:48.080] And President Putin himself said that, by the way.
+- [25:50.160] The Press: He did say that. The question I have, though,
+- [25:51.540] is what is the President going to do
+- [25:54.090] to ensure that these security guarantees
+- [25:57.350] last beyond him into the time when he is no longer president?
+- [26:02.140] And does that have to involve Congress at all?
+- [26:04.060] Karoline Leavitt: Well, he understands the need for that,
+- [26:05.760] which he spoke to yesterday, and what's he going to do?
+- [26:08.710] It's why he's engaging in so many talks
+- [26:12.050] and so many conversations with both sides of this war
+- [26:14.680] with our European allies.
+- [26:15.920] It's way on the way home from Anchorage, Alaska,
+- [26:19.090] very late at night, when I know many of you
+- [26:21.270] on the press plane were sleeping and many staff were sleeping,
+- [26:24.530] the President himself was still awake at 2 o'clock
+- [26:27.800] in the morning talking to European leaders and NATO.
+- [26:30.970] About how we can ensure a lasting peace
+- [26:33.090] and bring this conflict to an end.
+- [26:34.350] He has expended an incredible amount of time, energy,
+- [26:38.840] and effort into bringing this war to an
+- [26:40.760] and he remains determined to do that.
+- [26:44.480] Go ahead. Sure, Jake, and then to your right.
+- [26:47.970] The Press: Thank you, Karoline.
+- [26:49.560] Which of the half-dozen peace deals
+- [26:51.770] that the President's pulled off
+- [26:53.760] would you say he's the most proud of?
+- [26:56.920] Karoline Leavitt: That's a good question, Jake.
+- [26:58.260] I'll leave that to the President to answer.
+- [26:59.840] I think he's proud of all of the peace deals
+- [27:02.170] that he's been able to achieve.
+- [27:03.410] You saw the President of Armenia and the head of Azerbaijan
+- [27:08.470] both at the White House just a couple of weeks ago.
+- [27:10.650] The president, I know, very much enjoyed
+- [27:12.410] spending time with them
+- [27:13.700] and helping to bring that conflict to an end.
+- [27:16.100] He very much enjoy his time with leaders of Rwanda
+- [27:19.300] and the Democratic Republic of the Congo in the Oval Office,
+- [27:22.400] talking to them about bringing that decades-long war
+- [27:24.640] to an end, India and Pakistan
+- [27:26.890] He used trade in a very powerful way
+- [27:28.920] as leverage to bring that conflict to an end.
+- [27:30.910] So I know he's very proud of all of these achievements,
+- [27:33.710] and I know he's honored to serve
+- [27:35.830] as the President of the United States
+- [27:37.650] and to restore peace around this world.
+- [27:39.610] Go ahead.
+- [27:40.880] The Press: You mentioned a meeting in Azerbaijan.
+- [27:42.170] That's a conflict that, you know,
+- [27:43.620] I spent time in the Southern caucuses covering that.
+- [27:46.200] And, you, know, a conflict of over 30 years,
+- [27:49.000] and he resolved it in just a couple of months.
+- [27:53.360] Are there other conflicts
+- [27:54.710] that the President is working on right now
+- [27:56.680] that are off the radar screen that we should be tracking?
+- [28:00.390] Karoline Leavitt: In fact, there are many.
+- [28:02.080] The State Department is always working around the clock
+- [28:04.140] under the leadership of Secretary Rubio
+- [28:05.850] and keeping the President apprised of conflicts
+- [28:08.290] that are bubbling up all over the world.
+- [28:09.950] But of course, as you all know,
+- [28:11.190] as we've talked a lot about in this briefing,
+- [28:13.300] he's spending a lot of time right now
+- [28:14.760] on ending this war on Russia-Ukraine,
+- [28:16.610] and of course the conflict in Israel and Gaza,
+- [28:18.570] which he wants to see come to a close as well.
+- [28:20.620] Sure, go ahead.
+- [28:21.930] The Press: So the President says that he's starting
+- [28:24.300] a movement to eliminate mail-in voting.
+- [28:27.560] But states administer elections, not federal authorities.
+- [28:30.490] So can you provide any more details
+- [28:32.100] about how the White House plans to eliminate that?
+- [28:35.100] Karoline Leavitt: The White House continues to work on this,
+- [28:36.900] and when Congress comes back to Washington,
+- [28:39.090] I'm sure there will be many discussions
+- [28:40.950] with our friends on Capitol Hill
+- [28:42.400] and also our friends in state legislatures across the country
+- [28:45.420] to ensure that we're protecting the integrity of the vote
+- [28:48.630] for the American people.
+- [28:49.860] And I think Republicans generally and the President
+- [28:52.360] generally wants to make it easier for Americans
+- [28:54.980] to vote and harder for people to cheat in our elections.
+- [28:58.380] And it's quite mind-boggling that the Democrat Party
+- [29:00.660] could stand in opposition to common sense.
+- [29:03.100] He wants to ensure election integrity.
+- [29:05.220] There were great efforts that were made in 2024.
+- [29:08.110] I won't get ahead of myself for Hatch Act reasons
+- [29:11.260] to get ahead for the next election.
+- [29:13.470] But I can assure you this is a priority for the President.
+- [29:15.510] Go ahead.
+- [29:16.730] The Press: If I could just follow up on your comments
+- [29:18.170] about Gaza, there was a ceasefire proposal
+- [29:21.660] put forward by both Qatar and Egypt.
+- [29:25.220] Hamas accepted it on Monday.
+- [29:27.500] Israel has yet to officially weigh in.
+- [29:29.770] I'm wondering if the U.S. was at all involved in it,
+- [29:32.800] if it's supportive of it, and whether or not the President
+- [29:35.390] believes Israel should accept it.
+- [29:37.730] Karoline Leavitt: I don't think it's a coincidence
+- [29:39.440] that Hamas accepted this proposal
+- [29:41.600] after the President of the United States
+- [29:43.440] posted a very strong statement about this conflict
+- [29:46.450] on truth social yesterday.
+- [29:48.300] I would refer you back to that statement.
+- [29:50.160] As for this proposal that Hamas has now accepted,
+- [29:53.900] the United State continues to discuss it
+- [29:55.880] and I'll let the President weigh in on it definitively.
+- [29:58.440] You're welcome. Sure.
+- [30:00.080] The Press: Can you describe the President's perspective
+- [30:02.410] on taking a stake in Intel in exchange for federal grants?
+- [30:05.470] And is this a --
+- [30:06.840] are we expecting to see the White House
+- [30:08.100] make similar arrangements with other semiconductor companies
+- [30:10.400] and manufacturing companies?
+- [30:11.670] Karoline Leavitt: Well, the President,
+- [30:12.870] he's been very clear about the need to reshore
+- [30:14.670] manufacturing
+- [30:15.890] that's critical to our national and economic security.
+- [30:18.700] That is especially in regards to chips and semiconductors,
+- [30:21.790] which is why the President has initiated
+- [30:24.780] the Commerce Department
+- [30:26.100] to conduct a study on semiconductors --
+- [30:28.190] a Section 232 investigation --
+- [30:30.470] so we can ultimately implement tariffs.
+- [30:33.020] And it's why our export license requirements
+- [30:35.350] remain in place as well.
+- [30:36.970] As for this 10% government stake deal,
+- [30:39.260] the Department of Commerce continues to work on it.
+- [30:41.580] I know Secretary Lutnick is working on it
+- [30:44.110] and ironing out the details,
+- [30:45.420] but the President wants to put America's needs first,
+- [30:48.800] both from a national security and economic perspective.
+- [30:51.920] And it's a creative idea that has never been done before
+- [30:55.080] to ensure that we're both reshoring
+- [30:56.990] these critical supply chains
+- [30:59.180] while also gaining something of it for the American taxpayer.
+- [31:01.770] You're welcome. Emily.
+- [31:03.530] The Press: Thanks Karoline.
+- [31:04.800] I wanted to ask about the (inaudible)
+- [31:06.640] warships that are being sent to Venezuela
+- [31:08.520] and there's 4,000 Marines on board.
+- [31:10.190] Are you looking at possibility of boots on the ground there?
+- [31:13.440] Karoline Leavitt: What I will say with respect to Venezuela,
+- [31:15.920] President Trump has been very clear and consistent.
+- [31:18.470] He's prepared to use every element of American power
+- [31:21.290] to stop drugs from flooding into our country
+- [31:24.000] and to bring those responsible to justice.
+- [31:26.900] The Maduro regime is not the legitimate government
+- [31:29.250] of Venezuela. It is a narco-terror cartel.
+- [31:32.230] In Maduro, it is the view of this administration
+- [31:34.470] is not a legitimate president.
+- [31:36.160] He is a fugitive head of this cartel
+- [31:38.060] who has been indicted in the United States
+- [31:40.110] for trafficking drugs into the country.
+- [31:42.430] And with that, I will leave you all,
+- [31:43.700] and we will see you later, if not tomorrow.
+- [31:46.340] And I look forward to taking more of your questions.
+- [31:47.980] Thank you.
+- [31:49.230] The Press: Thanks, Karoline.

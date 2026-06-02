@@ -1,0 +1,887 @@
+<!-- source: https://www.youtube.com/watch?v=lLRc5r9msso -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: lLRc5r9msso -->
+<!-- date_published: 2025-10-23T18:11:34+00:00 -->
+<!-- date_accessed: 2026-06-02T02:42:59.072220+00:00 -->
+
+# Transcript: Press Secretary Karoline Leavitt Briefs Members of the Media, Oct. 23, 2025
+
+- [00:06.940] Karoline Leavitt: Good afternoon, everybody.
+- [00:09.740] I apologize for my tardiness today,
+- [00:11.620] so let's get right to it.
+- [00:13.840] We'll begin today with some scheduling announcements
+- [00:16.190] for President Trump's upcoming trip to Asia.
+- [00:19.280] Tomorrow night at 11:00 p.m.,
+- [00:21.260] the President will depart the White House to fly to Malaysia,
+- [00:24.760] where he will arrive on Sunday morning, local time.
+- [00:27.860] It's a long flight.
+- [00:29.310] President Trump will participate in a bilateral meeting
+- [00:31.860] with the Prime Minister of Malaysia in the afternoon,
+- [00:34.490] and then he will attend the ASEAN leaders'
+- [00:37.260] working dinner that evening.
+- [00:39.260] On Monday morning local time, the President will fly to Tokyo.
+- [00:42.960] Tuesday morning local time,
+- [00:44.450] President Trump will participate in a bilateral meeting
+- [00:47.650] with the new Prime Minister of Japan.
+- [00:50.270] On Wednesday morning local time, the President will fly to Busan,
+- [00:53.830] where he will participate in a bilateral meeting
+- [00:56.580] with the President of the Republic of Korea,
+- [00:59.270] deliver keynote remarks at the APEC CEO luncheon,
+- [01:03.050] and then participate in a U.S.-APEC Leaders
+- [01:05.920] Working Dinner. On Thursday morning local time,
+- [01:09.130] President Trump will participate in bilateral meeting
+- [01:11.860] with President Xi of the People's Republic of China
+- [01:14.870] before departing to return home to Washington, D.C.
+- [01:18.420] On Thursday night, upon arrival in Washington,
+- [01:21.030] President Trump and First Lady Melania Trump
+- [01:23.540] will participate at Halloween at the White House,
+- [01:26.460] where they will welcome law enforcement,
+- [01:28.560] military, and foster families.
+- [01:30.490] And I know many of us look forward to that.
+- [01:32.780] In other news, we are now on day
+- [01:34.580] 23 of the Democrat government shutdown.
+- [01:38.480] Senate Democrats have voted 12 separate times now
+- [01:42.040] to keep the government closed.
+- [01:44.200] Innocent Americans are suffering every day as a result.
+- [01:48.420] More than 500,000 civilian federal employees
+- [01:51.810] will miss a full paycheck tomorrow.
+- [01:54.610] Thousands of small business loans
+- [01:56.260] are going unapproved each month.
+- [01:58.650] This means almost $4 billion in capital
+- [02:01.930] is being withheld from small businesses across the country.
+- [02:05.380] The Democrat shutdown is also causing severe impacts
+- [02:08.560] at airports across the county. And one single day this week,
+- [02:12.790] the FAA had to issue ground stops impacting flights
+- [02:16.230] at Houston's George Bush Intercontinental Airport
+- [02:19.490] and Hobby Airport. 13,000 air traffic controllers
+- [02:23.760] who ensure that we all fly safely
+- [02:26.570] are continuing to work without pay.
+- [02:28.600] This is egregious and truly sad.
+- [02:30.870] Some of them are reportedly being forced
+- [02:32.700] to turn to driving for Uber and taking on other second jobs
+- [02:36.390] to make ends meet as the Democrats
+- [02:38.580] continue to shut down the government.
+- [02:40.770] Pilots are calling on Democrats
+- [02:42.830] to end this dangerous political game.
+- [02:45.480] The President of the Southwest Airlines Pilot Association
+- [02:48.560] called for the clean continuing resolution to be passed,
+- [02:51.910] saying, quote, "our air traffic controllers
+- [02:54.410] and the broader air traffic system
+- [02:56.130] are already operating under immense pressure.
+- [02:59.290] A government shutdown only compounds that stress
+- [03:02.060] and threatens the efficiency of our skies."
+- [03:05.010] The Airline Pilots Association International,
+- [03:07.400] which represents more than 80,000 pilots,
+- [03:10.090] is sounding the alarm as well.
+- [03:11.810] They said this shutdown is undermining our system's
+- [03:14.830] safety resources are stretched thin,
+- [03:17.660] negotiations are delayed, and strain grows daily.
+- [03:21.170] With the Thanksgiving holiday approaching,
+- [03:23.060] we are nearing the busiest travel period
+- [03:25.380] of the entire year,
+- [03:26.920] when millions of Americans will go to airports
+- [03:29.270] to spend time with their loved ones.
+- [03:31.470] Let us be very clear from the White House today.
+- [03:34.390] If the Democrats continue to keep the government closed,
+- [03:37.460] we fear there will be significant flight delays,
+- [03:40.400] disruptions, and cancelations in major airports
+- [03:43.640] across the country this holiday season.
+- [03:46.430] If Democrats continue to shut down the government,
+- [03:48.750] they will also be shutting down American air travel.
+- [03:51.860] The White House is in constant communication
+- [03:54.260] with the air traffic controllers,
+- [03:55.660] with the airline associations.
+- [03:57.450] And with them, we urge Democrats to please
+- [04:00.160] pass the continuing resolution so we can just end this madness
+- [04:04.370] and this chaos and reopen the government.
+- [04:07.260] These are very avoidable consequences.
+- [04:10.080] The unnecessary pain unfortunately
+- [04:11.930] does not end there.
+- [04:13.310] Funding for the Supplemental Nutrition Assistance Program,
+- [04:15.870] known as SNAP,
+- [04:17.120] which provides food benefits to low-income families,
+- [04:19.790] is beginning to lapse this week in some states.
+- [04:22.770] If Democrats continue to hold Americans hostage,
+- [04:26.160] there will not be enough funds to provide SNAP benefits
+- [04:28.810] for more than 40 million Americans on November 1st.
+- [04:32.170] That is next week. Democrats are solely responsible
+- [04:35.560] for all of this unnecessary pain.
+- [04:38.030] Why are they doing it?
+- [04:39.350] To give taxpayer-funded health care benefits to illegal aliens.
+- [04:43.610] Some of whom are violent criminals.
+- [04:45.950] During the four years of Joe Biden's administration,
+- [04:48.820] the Democrats forced border patrol
+- [04:50.590] to admit illegal aliens into our country
+- [04:52.810] with no legal status and minimal screening.
+- [04:55.600] A significant number of these individuals
+- [04:57.550] are the worst of the worst criminals,
+- [04:59.740] rapists, pedophiles, murderers,
+- [05:02.060] and even members of the terrorist watch list.
+- [05:04.990] Despite having no legal statistics,
+- [05:07.160] paroled aliens were able to file for work authorization,
+- [05:10.760] receive social security numbers,
+- [05:12.710] and access other benefits like Medicaid
+- [05:14.680] that are meant for Americans.
+- [05:16.860] Since I've found many in this room
+- [05:18.340] to repeatedly deny the reality
+- [05:20.430] that Democrats gave Medicaid benefits to illegals
+- [05:23.250] and they continue to seek to do just that,
+- [05:25.740] I brought a few verified examples for you today.
+- [05:29.060] These are examples of some of the illegals
+- [05:31.150] who received Medicaid benefits
+- [05:33.310] under President Biden's leadership.
+- [05:35.170] And this is what Democrats are wanting to do.
+- [05:37.560] This is why they are continuing to keep the government closed.
+- [05:40.540] An illegal alien from Laos was arrested for murder,
+- [05:43.270] robbery, and felony possession of a firearm.
+- [05:46.290] An illegal from Guatemala,
+- [05:48.380] who was arrested from rape and burglary.
+- [05:51.140] An illegal Alien from El Salvador,
+- [05:53.050] who is arrested for strangulation, DUI,
+- [05:56.210] and burglary. An illegal for Mexico,
+- [05:59.360] who's arrested for attempted murder.
+- [06:03.540] The Democrats' open border policies
+- [06:05.390] allowed these threats into our country
+- [06:07.690] and then they provided them with free health care.
+- [06:10.610] The President and Republicans,
+- [06:12.320] through the One Big Beautiful bill,
+- [06:14.010] implemented a common sense
+- [06:15.410] reform to end this fraudulent scheme.
+- [06:18.310] But that's why the Democrats are continuing
+- [06:20.460] to shut down the federal government.
+- [06:21.930] They are trying to reverse this and restore taxpayer-funded
+- [06:25.340] health care for illegal aliens like these.
+- [06:28.140] Throughout this shutdown,
+- [06:29.480] Democrats have said this quiet part out loud.
+- [06:32.090] Senator Chuck Schumer, the leader of the caucus
+- [06:35.110] that is refusing to open the government, said quote,
+- [06:37.800] "every day gets better." As the shutdown continues.
+- [06:41.530] Ask the air traffic controllers if every day is getting better,
+- [06:44.590] Senator Schumer, and they will tell you absolutely not.
+- [06:47.880] House Democrat Katherine Clark said,
+- [06:50.850] there are going to be families that are going to suffer.
+- [06:53.700] We take that responsibility seriously,
+- [06:55.680] but this is one of the few leverage points that we have.
+- [06:59.670] Here is a House Democrat who is admitting
+- [07:02.290] that they are using Americans
+- [07:03.860] who are suffering as political leverage.
+- [07:06.330] And Senator Bernie Sanders said
+- [07:08.290] If you reopen the government, we lose our leverage.
+- [07:11.940] This is pure partisan games.
+- [07:15.370] A senior Democrat aide said the party will not end
+- [07:18.280] the shutdown, quote,
+- [07:19.500] "short of planes falling out of the sky."
+- [07:22.740] That is truly a disturbing statement.
+- [07:25.150] The Democrats clearly don't care about this suffering.
+- [07:27.680] They care about playing political games
+- [07:30.020] against President Trump,
+- [07:31.490] and this dangerous charade needs to end.
+- [07:34.630] The President and Republican's position
+- [07:36.570] has been clear and unchanged. Pass a clean,
+- [07:40.450] nonpartisan funding bill to reopen the government.
+- [07:43.790] And then we can talk about all of the partisan issues
+- [07:46.510] that the Democrats wish to. If you're watching at home,
+- [07:49.360] we urge you to call your Democrat senators
+- [07:51.310] and tell them to put our country over their party
+- [07:54.780] and reopen the governments today.
+- [07:56.940] Here in our new media seat,
+- [07:58.260] we have Brittany Gibson of Axios.
+- [08:00.010] Brittany, why don't you start us off for our Q&A today?
+- [08:02.230] Thank you for being here.
+- [08:04.440] The Press: The first is,
+- [08:06.280] we understand that the President and Republicans
+- [08:08.550] will not negotiate on ACA extensions
+- [08:11.540] until the government reopens. If and when that happens,
+- [08:15.050] what does the President think should be or what are his plans
+- [08:17.960] for preventing rising health care costs for Americans?
+- [08:21.140] Karoline Leavitt: It's a very good question,
+- [08:22.610] and I'll leave that to the President to negotiate
+- [08:24.530] that when Democrats vote to reopen the government.
+- [08:27.390] When it comes to lowering healthcare costs,
+- [08:29.010] the President is deeply committed to this.
+- [08:30.790] It's why he has spent so much time and effort
+- [08:33.510] negotiating with Big Pharma
+- [08:35.560] to lower the healthcare cost of prescription drugs.
+- [08:38.000] All of you have been in the Oval Office
+- [08:39.620] for multiple different announcements.
+- [08:41.570] We've had these Most Favored Nations
+- [08:43.280] deals with these large pharmaceutical companies
+- [08:46.370] committing to lowering drug costs in this country.
+- [08:49.050] So. It's something the President wants to do.
+- [08:51.240] And Brittany, one more point.
+- [08:52.540] I'll just point out the irony in Democrats
+- [08:54.840] holding the government and the American public hostage
+- [08:57.310] over a health care system that they created.
+- [09:00.500] The health care was called Obamacare.
+- [09:03.340] Why? Because Democrats and President Obama implement it.
+- [09:06.480] And Republicans have always said it's a broken system,
+- [09:08.900] yes, but they caused it.
+- [09:10.520] And now they want to shut down the government to fix it.
+- [09:13.540] We need to open the government, and then we can have these
+- [09:15.640] very important conversations about health care.
+- [09:18.290] The Press: Second, on H-1Bs and foreign students,
+- [09:20.850] during the campaign,
+- [09:22.140] President Trump said he wanted to make it easier
+- [09:24.690] for foreign students to work at U.S.
+- [09:26.200] Companies, staple a green card to every diploma,
+- [09:29.030] but the changes from several agencies
+- [09:31.000] now on H-1B are adding more obstacles to that.
+- [09:33.860] The administration is being sued over those changes.
+- [09:36.080] Can you explain the changes
+- [09:37.340] to the President's thinking on H-1Bs?
+- [09:39.120] Karoline Leavitt: The administration will fight
+- [09:40.460] these lawsuits in court. The President's main priority
+- [09:43.370] has always been to put American workers first
+- [09:46.500] and also to strengthen our visa system.
+- [09:48.840] We know for far too long the H-1B visa system
+- [09:51.690] has been spammed with fraud, basically,
+- [09:55.150] and that's driven down American wages.
+- [09:57.340] So the President wants to refine this system,
+- [09:59.910] which is part of the reason he implemented these new policies.
+- [10:03.570] These actions are lawful, they are necessary,
+- [10:05.760] and we'll continue to fight this battle in court.
+- [10:07.630] Gary.
+- [10:08.870] The Press: I have two questions on different topics,
+- [10:10.510] if you'll indulge me. On the pardon of Changping Zhao,
+- [10:13.750] and apologies if I'm mispronouncing that name,
+- [10:16.950] finance has significant business interests
+- [10:18.540] with World Liberty Financial,
+- [10:19.770] the President's family's crypto company.
+- [10:21.490] How do you respond to the allegations from Democrats
+- [10:23.700] that this is a corrupt act?
+- [10:25.320] Karoline Leavitt: I would respond
+- [10:26.710] and say the President is exercising his constitutional
+- [10:29.300] authority to grant clemency requests.
+- [10:32.180] And the President and the White House
+- [10:34.020] have a very thorough examination of every pardon request
+- [10:37.270] that comes to the President's desk.
+- [10:39.250] It is thoroughly reviewed by the Whitehouse Counsel Office,
+- [10:41.600] and I spoke with our great White House Counsel
+- [10:43.700] about the pardon after it happened.
+- [10:46.000] This was an overly prosecuted case
+- [10:48.160] by the Biden administration.
+- [10:49.630] Even the judge in the case admitted
+- [10:51.850] that the Biden administration was pursuing a egregious
+- [10:55.250] over-sentencing of this individual.
+- [10:57.700] And the previous administration was very hostile
+- [11:00.220] to the cryptocurrency industry.
+- [11:01.850] So the President wants to correct this overreach
+- [11:05.280] of the Biden administration's misjustice,
+- [11:08.030] and he exercised
+- [11:09.260] his constitutional authority to do so.
+- [11:11.230] And to the Democrats, I would just say,
+- [11:13.500] there's nothing more corrupt
+- [11:14.950] than what President Biden did on his way out the door,
+- [11:17.670] pardoning his extremely corrupt son and many of his associates.
+- [11:23.150] The Press: On the ballroom, first of all,
+- [11:25.250] there will probably be several questions about this today,
+- [11:27.200] I imagine.
+- [11:28.590] Karoline Leavitt: Is it a big story?
+- [11:29.830] The Press: It seems that way.
+- [11:31.660] The President's cost estimate has changed several times.
+- [11:34.170] I think it's up to $300 million now.
+- [11:36.300] Given the nature of all this,
+- [11:37.520] will the White House commit to releasing all of the donors
+- [11:40.190] and how much they're spending and how much of his own money
+- [11:42.670] the President is putting on the line to this?
+- [11:44.590] Karoline Leavitt: We have released
+- [11:45.810] the full list of donors thus far.
+- [11:48.000] Perhaps there will be more people
+- [11:49.300] who want to generously contribute to this project.
+- [11:52.280] And the President, yes, has committed his own resources.
+- [11:55.070] And when he releases that information,
+- [11:57.600] which I'm very confident he will,
+- [11:58.990] you will all see that.
+- [12:00.510] The Press: We'll see a dollar figure from the President.
+- [12:02.080] Karoline Leavitt: Yes, you will.
+- [12:03.520] And I would also just add the President
+- [12:05.190] has been incredibly transparent.
+- [12:07.490] I would reject any notion otherwise
+- [12:09.280] when it comes to this ballroom project.
+- [12:10.730] It's something he personally has obviously taken an interest into
+- [12:14.680] and has talked with all of you in this room many times about.
+- [12:18.020] You have seen the model in the Oval Office.
+- [12:20.870] Last night he showed that for you.
+- [12:22.230] But when this plan was presented
+- [12:24.500] and when these renderings, as soon as they were complete,
+- [12:27.050] the President directed me to come out here
+- [12:28.760] and to share them with all of you.
+- [12:30.190] I did an entire opening remarks
+- [12:32.540] about what this ballroom project was going to look like.
+- [12:34.990] With any construction project, there are changes over time
+- [12:38.590] as you assess what the project is going to looks like,
+- [12:41.170] and we'll continue to keep you apprised
+- [12:42.760] of all of those changes. But just trust the process.
+- [12:45.800] This is going to be a magnificent addition
+- [12:48.500] to the White House for many years to come,
+- [12:50.970] and it's not costing the taxpayers anything.
+- [12:52.810] The President is privately funding this ball room addition
+- [12:56.000] to White House grounds. Jennifer.
+- [12:57.390] The Press: To follow up on that,
+- [12:58.770] one thing that's not in the President's model
+- [13:00.770] is the East Wing bunker,
+- [13:02.750] the President Emergency Operations Center.
+- [13:04.790] Can you say if his update, that 300 million,
+- [13:06.590] does that include the cost for upgrading that bunker?
+- [13:10.740] Karoline Leavitt: Look, like any security enhancements
+- [13:13.000] that are made on the White House grounds,
+- [13:14.400] those will be made and maintained
+- [13:15.960] by United States Secret Service.
+- [13:18.560] As for the cost of the ballroom and the construction itself,
+- [13:22.240] all of that is going to be, like I've said, privately funded
+- [13:24.980] and paid for by the President himself
+- [13:26.660] and many generous patriots who have stepped up.
+- [13:28.340] The Press: In that funding?
+- [13:29.630] Karoline Leavitt: Correct.
+- [13:30.860] The Press: Okay and then can you say --
+- [13:33.580] well that's right -- I'll skip that one
+- [13:39.820] The Press: So the White House has explained
+- [13:41.490] that the reason you didn't submit construction plans
+- [13:44.340] to the NCPC
+- [13:46.780] is because that commission along with others
+- [13:49.770] don't have oversight over demolitions
+- [13:52.470] but only over construction.
+- [13:54.730] And so far you haven't built anything.
+- [13:57.250] So can you help us understand, can the President tear down
+- [14:01.210] anything he wants without oversight?
+- [14:04.000] Can he demolish this building or say the Jefferson Memorial?
+- [14:07.420] Karoline Leavitt: So it's not the President who came up
+- [14:10.040] with that legal opinion himself,
+- [14:11.540] that's a legal opinion that's been held
+- [14:13.220] by the NCPC for many years.
+- [14:16.350] It's written, so we can get you that background
+- [14:19.040] and that research if you wish to include it in your reporting
+- [14:21.750] because it is very important.
+- [14:24.030] They have ruled consistently, their general counsel has said
+- [14:27.520] when it comes to phase one of this project,
+- [14:30.540] the tearing down of the current East Wing structure,
+- [14:33.910] a submission is not required legally for that.
+- [14:36.910] Only for vertical construction will a submission be required.
+- [14:39.810] And that's a legal opinion from them,
+- [14:41.950] and we are following that legal opinion.
+- [14:43.450] And again, I would just add, can any President
+- [14:45.890] do such a thing to the White House grounds?
+- [14:48.000] There have been many Presidents
+- [14:50.020] in the past who have made their mark on this beautiful
+- [14:52.930] White House complex.
+- [14:54.260] This briefing room, as you all know,
+- [14:55.590] was not once a briefing room.
+- [14:56.870] It was a swimming pool. There have been Presidents
+- [14:59.400] who have completely torn down the executive mansion.
+- [15:01.800] If you look at what President Truman did,
+- [15:03.800] some of the photos of the construction project
+- [15:06.500] that took place in those years. I think sitting here today,
+- [15:09.080] we're all grateful for those efforts
+- [15:10.770] and the modifications that happened at that time.
+- [15:13.500] And again, in due time, the East Wing
+- [15:15.410] is going to be more beautiful and modern than ever before.
+- [15:18.380] And in addition, there will be a big, beautiful ballroom
+- [15:20.990] that can hold big parties
+- [15:22.930] and state visits for generations to come.
+- [15:24.970] The Press: It sounds like the answer is yes,
+- [15:26.890] he can tear down whatever he wants.
+- [15:28.580] And then secondly, I mean --.
+- [15:30.350] Karoline Leavitt: That's not what we're saying.
+- [15:31.670] That's a legal opinion that's been held for many years.
+- [15:33.960] And no, it's something that
+- [15:35.870] Presidents have done for years and years.
+- [15:37.470] In fact, I have some photos here.
+- [15:39.040] Thank you, Pat, to show you the construction
+- [15:41.340] that's taken place on the on the White House grounds.
+- [15:43.700] This is the construction of the West Wing in 1902.
+- [15:47.310] Look at this. The construction of The West Terrace in 1902.
+- [15:50.240] These images look quite similar to what you
+- [15:52.500] and the American people are seeing today.
+- [15:53.940] Construction of the East Terrace as well.
+- [15:57.070] Look at the construction of the West
+- [15:58.610] Wing expansion in 1934.
+- [16:00.400] So look, this is a legal opinion that's been held for many years.
+- [16:04.300] Look it, this was 1950.
+- [16:06.230] It looks a lot like what we're seeing today.
+- [16:08.130] The Press: Can he demolish anything he wants?
+- [16:09.910] Karoline Leavitt: What do you think that rubble is?
+- [16:11.340] How did that ruble get there?
+- [16:13.260] The Press: Right, so I'm asking -- many of them are --
+- [16:17.630] Karoline Leavitt: (inaudible) go ahead.
+- [16:18.920] The Press: (inaudible)
+- [16:22.190] it's being reported that the semi truck driver suspected
+- [16:25.130] of killing three people in a DQI crash
+- [16:27.450] is an illegal immigrant who came in
+- [16:29.160] under the Biden administration. Do you know if California
+- [16:32.070] gave him a commercial driver's license?
+- [16:34.070] And then it also appears that California largely
+- [16:36.480] has not been cooperating with English proficiency standards.
+- [16:39.480] I'm wondering if the administration
+- [16:40.700] has any further plans to punish the state.
+- [16:43.520] Karoline Leavitt: Yes, I can confirm that California
+- [16:45.310] gave this individual license,
+- [16:47.210] and it is something that the Department of Transportation
+- [16:49.270] has already looked into.
+- [16:50.540] I know Secretary Duffy, who's doing a phenomenal job,
+- [16:53.240] has spoken on this many times in the crackdown
+- [16:56.640] that the Department Of Transportation
+- [16:57.940] is taking on these licenses
+- [16:59.750] that are wrongfully being issued to people
+- [17:02.020] who clearly do not deserve to uphold these positions.
+- [17:05.850] As for this case in California, on October 22,
+- [17:09.060] ICE lodged an immigration detainer for this individual
+- [17:12.110] following his arrest by local authorities in California
+- [17:14.950] on charges as you know of manslaughter while intoxicated
+- [17:18.340] and driving under the influence. He killed three people
+- [17:21.470] and he first entered the United States in 2022
+- [17:24.590] through the southern border
+- [17:25.930] and he was released into our country
+- [17:28.210] by the previous administration.
+- [17:30.390] So now ICE has lodged a separate detainer for this individuals
+- [17:34.010] and these tragedies are following a disturbing pattern
+- [17:36.640] of these criminal illegal alien
+- [17:38.670] being issued commercial vehicle licenses.
+- [17:41.460] And so, yes, the Department of Transportation
+- [17:43.470] is absolutely cracking down on that.
+- [17:44.960] I'd defer you to them for any specifics.
+- [17:47.010] The Press: Venezuela. President Trump has said
+- [17:49.010] Maduro doesn't want to mess with the United States,
+- [17:51.430] and this administration is continuing to position
+- [17:53.980] more military assets towards Venezuela.
+- [17:56.700] I'm wondering if the end goal of this narco-terrorist war
+- [17:59.550] is to implement a regime change in Venezuela.
+- [18:02.840] Karoline Leavitt: The President has spoken on that, Reagan,
+- [18:04.440] and I certainly won't get ahead of him.
+- [18:06.780] What we've made very clear is that this administration
+- [18:09.680] is not going to tolerate
+- [18:11.570] international narco-terrorist organizations
+- [18:14.280] from trafficking drugs into the United States.
+- [18:16.850] And these cartels, over time, have grown more armed,
+- [18:19.550] well-organized, and violent.
+- [18:20.870] They have financial means, sophistication,
+- [18:23.560] and capabilities needed to operate
+- [18:25.600] in the way this administration has.
+- [18:27.230] And they have illegally caused the deaths
+- [18:29.570] of tens of thousands of American citizens each year.
+- [18:32.420] So that's where we are right now with respect to Venezuela,
+- [18:35.550] but also any country that is sending purposefully
+- [18:39.110] illegal narco terrorists to the United States of America
+- [18:41.370] to bring illegal drugs. Why don't we go in the back?
+- [18:45.400] The Press: The U.S. And Colombian relationship
+- [18:46.880] right now is at one of its lowest points in decades.
+- [18:49.920] We heard what President Gustavo Petro
+- [18:51.760] had to say about President Trump.
+- [18:53.010] We heard yesterday the response from President Trump
+- [18:55.820] Is there any kind of compromises or gestures
+- [18:59.140] from the Colombian President
+- [19:00.600] that President Trump would like to see
+- [19:02.290] in order to de-escalate the tensions?
+- [19:05.140] Is it possible a de- escalation?
+- [19:08.390] Karoline Leavitt: I don't think we're seeing de-escalation
+- [19:10.350] from the unhinged leader of Colombia right now,
+- [19:14.420] and I don't think the President frankly is interested in that
+- [19:17.670] at this point. He spoke on this yesterday,
+- [19:19.520] and I have nothing to add to his comments.
+- [19:21.280] Go ahead.
+- [19:22.670] Thank you, Karoline.
+- [19:23.900] The Press: In addition to the ballroom
+- [19:25.180] and the Rose Garden patio --.
+- [19:26.420] Karoline Leavitt: I'm going into the back. Sorry. Go ahead
+- [19:27.810] The Press: In addition to the ballroom
+- [19:29.080] and the rose garden patio is the President
+- [19:30.850] looking at any other renovations
+- [19:32.270] or significant kind of projects here at the White House?
+- [19:34.840] Karoline Leavitt: Not to my knowledge,
+- [19:36.050] no, but he's a builder at heart, clearly,
+- [19:39.390] and so his heart and his mind is always churning about
+- [19:42.140] how to improve things here on the White House grounds,
+- [19:44.230] but at this moment in time, of course,
+- [19:46.060] the ballroom is really the President's main priority.
+- [19:51.480] The Press: Last week, President Trump announced
+- [19:53.440] that he had a productive call with Vladimir Putin.
+- [19:55.570] They scheduled a meeting in Hungary.
+- [19:58.270] Since then, he has canceled the meeting,
+- [20:00.250] and he has imposed sanctions on Russian oil companies.
+- [20:02.940] Can you talk about what changed that led to this dramatic shift,
+- [20:06.850] or even just what occurred in the last week
+- [20:08.730] that got us from point A to point B?
+- [20:10.180] Karoline Leavitt: Sure.
+- [20:11.400] Look, the President has always maintained
+- [20:13.550] that he would implement sanctions on Russia
+- [20:15.500] when he felt it was appropriate and necessary,
+- [20:18.890] and yesterday was that day.
+- [20:20.490] I think the President also has long expressed his frustration
+- [20:23.720] with Vladimir Putin and frankly both sides of this war,
+- [20:26.840] and he's always said in order to negotiate a good peace deal,
+- [20:30.340] both sides need to be interested in a good piece deal,
+- [20:33.130] and feels as though unfortunately from
+- [20:35.770] the Russian side as of late.
+- [20:37.610] He has not seen enough interest and enough action
+- [20:40.460] in terms of moving the ball forward towards peace.
+- [20:42.540] And so a meeting between these two leaders
+- [20:44.740] is not completely off the table.
+- [20:46.190] I think the President and the entire administration
+- [20:48.280] hopes that one day that can happen again.
+- [20:51.270] But we want to make sure that there's a tangible positive
+- [20:53.660] outcome out of that meeting
+- [20:55.520] and that it's a good use of the President's time.
+- [20:57.390] Of course, he's traveling to Asia next week.
+- [20:59.560] He has a number of events coming up here
+- [21:01.380] on the home front as well. He's been incredibly busy.
+- [21:03.820] As you all know, you're all tired from covering him.
+- [21:06.390] And his movements every day, and so we want to make sure
+- [21:09.460] it's a good use of the President's time,
+- [21:10.850] and the President doesn't want to waste his time,
+- [21:12.340] and he said that. The Press: (inaudible)
+- [21:13.550] between the Secretary of State and Lavrov
+- [21:15.570] that led President Trump
+- [21:16.790] to believe that President Putin or the Russians
+- [21:19.510] did not want a peace deal.
+- [21:20.900] Karoline Leavitt: That was not the sole reason, no.
+- [21:22.270] I think that Secretary Rubio
+- [21:23.790] felt that was actually a productive call.
+- [21:26.120] But again, the President wants to make sure
+- [21:27.700] that a meeting between himself and President Putin
+- [21:30.760] will be a good use of his time.
+- [21:32.080] The Press: What exactly led to President Trump
+- [21:34.270] not believing after his call on Thursday,
+- [21:37.330] where he said he did think he wanted peace
+- [21:38.820] and wanted a peace deal,
+- [21:40.040] to believing that Russia's were not?
+- [21:41.480] Karoline Leavitt: Again, the President wants
+- [21:42.710] to see action, not just talk.
+- [21:44.600] And I think the President is extremely motivated
+- [21:46.730] by the success of his peace deal in the Middle East
+- [21:50.020] to get things done.
+- [21:51.460] And he wants this war to come to an end.
+- [21:53.000] He's been saying it now for nine months, being in office.
+- [21:56.200] And he's grown increasingly frustrated
+- [21:58.390] with the lack of progress from both sides of this war.
+- [22:01.060] Mary.
+- [22:02.600] The Press: You two quick construction questions if I can.
+- [22:04.860] You mentioned any construction project comes with changes.
+- [22:07.630] The President had initially said that this project
+- [22:10.030] wouldn't interfere with or touch the current structure.
+- [22:12.330] Now he says to do this properly he realized that the East Wing
+- [22:15.350] had to be demolished. This is the people's house.
+- [22:18.120] Why not inform the public of that change
+- [22:20.920] and when it was decided that the East
+- [22:22.390] Wing would have to be demolished?
+- [22:24.060] Karoline Leavitt: Look, again, with any construction project,
+- [22:26.280] changes come, and we have informed all of you.
+- [22:29.550] We've been keeping you apprised of this project.
+- [22:31.370] We've shown you the renderings.
+- [22:32.610] And if you look at the renderers,
+- [22:34.030] it's very clear the East Wing was going to be modernized.
+- [22:36.950] Instead -- in fact, I said that in the briefing
+- [22:39.770] when we initially introduced this plan to all of
+- [22:42.280] and to the public. The East --.
+- [22:43.550] The Press: But modernized and tearing down
+- [22:44.820] is two different things.
+- [22:46.100] Karoline Leavitt: Well, again the plans changed
+- [22:48.120] when the President heard counsel from the architects
+- [22:50.280] in the construction companies
+- [22:51.880] who said that in order for this East Wing,
+- [22:54.140] to be modern and beautiful for many, many years to come,
+- [22:56.800] for it to be a truly strong and stable structure.
+- [22:59.920] This phase one that we're now in was necessary,
+- [23:02.140] and the President wants to do right by the people's house.
+- [23:04.850] And so that's exactly what he's doing.
+- [23:06.320] It's going to be, again, like I said,
+- [23:08.040] much more stable, strong, secure,
+- [23:10.610] and more beautiful than ever once it's complete.
+- [23:12.880] The Press: Where will those be?
+- [23:14.160] The First Lady's offices, the Social Secretary's office?
+- [23:15.760] Karoline Leavitt: In the East Wing?
+- [23:16.970] The Press: They will be back where they were?
+- [23:18.200] Karoline Leavitt: Yes. The Press: (inaudible)
+- [23:19.440] who supported the President's election and raised
+- [23:22.490] some concerns about plans to (inaudible)
+- [23:25.010] from Argentina. How will the Trump
+- [23:26.970] administration support those farmers?
+- [23:28.600] Karoline Leavitt: Look, the President hears
+- [23:29.820] those concerns.
+- [23:31.060] He addressed them yesterday himself.
+- [23:32.990] President loves our ranchers,
+- [23:34.380] and our rancher love our President.
+- [23:36.000] And in fact, the President did a lot for them
+- [23:38.470] in his first term here.
+- [23:39.900] They are struggling because of the many horrible policies
+- [23:42.180] of the previous administration.
+- [23:43.920] President loves ranchers and he also loves American consumers,
+- [23:46.670] and he wants to do right by both.
+- [23:48.480] So the immediate solution
+- [23:49.780] to the problem of the rising cost of beef,
+- [23:52.220] President wants to bring that down,
+- [23:53.470] is we have to increase our supply.
+- [23:55.430] And so that's what he's doing with respect to these imports.
+- [23:58.350] The President also is looking out for our ranchers
+- [24:00.580] with a long-term plan that was released
+- [24:02.440] by the Secretary of Agriculture yesterday.
+- [24:05.080] It's a three-part plan.
+- [24:06.420] It's very extensive and detailed.
+- [24:08.060] I would encourage all of you to read through it.
+- [24:10.150] But there's really three points to this plan
+- [24:12.190] that the President has agreed upon
+- [24:13.590] and has entrusted Secretary Rollins to implement.
+- [24:16.850] Number one, strengthening U.S. cattle production
+- [24:19.070] through increased grazing access,
+- [24:21.040] endangered species reforms,
+- [24:22.590] enhanced disaster relief, increased access to capital.
+- [24:25.650] And reducing costs for new and young ranchers.
+- [24:28.190] We want to incentivize more Americans
+- [24:30.200] to get into this noble profession.
+- [24:32.090] Lowering long-term costs by cutting inspection costs,
+- [24:34.720] increasing market options
+- [24:36.370] for consumers with product of USA labeling
+- [24:38.590] and ensuring consumers know that they are eating American beef.
+- [24:41.640] It's a good incentive for the American consumer.
+- [24:44.240] And lastly, growing the domestic herd while boosting long-
+- [24:46.760] term demand to reduce prices for consumers
+- [24:48.890] while growing the markets for our ranchers,
+- [24:51.040] so the President hears them.
+- [24:52.400] He has to address both of these problems for the ranchers,
+- [24:55.760] but also for the American consumer.
+- [24:57.530] He promised to lower costs,
+- [24:58.780] and that's what he's committed to doing. .
+- [25:01.220] The Press: Two questions not on the ballroom.
+- [25:03.190] The first is, there's a Democrat in Texas
+- [25:05.830] who's actually running for Congress
+- [25:07.350] who said last night during an interview
+- [25:09.070] when talking about fighting Republicans
+- [25:10.730] and this administration, quote, "if you hit me in my face,
+- [25:14.390] I'm not going to punch you back in your face.
+- [25:17.030] I'm going to go across your neck."
+- [25:19.130] This is obviously really upset those folks
+- [25:21.570] over at Turning Point USA
+- [25:23.070] after the Charlie her assassination,
+- [25:24.750] just your response to that kind of rhetoric.
+- [25:27.010] Karoline Leavitt: Very jarring rhetoric,
+- [25:28.950] and I think it's very unacceptable.
+- [25:30.780] I hope the people of Texas will do the right thing
+- [25:32.610] and reject this person's candidacy.
+- [25:35.200] It should have no place in American politics.
+- [25:37.320] The Press: And then just a quick second question on oversight
+- [25:39.600] Democrats that are saying that they're creating this master
+- [25:43.830] ICE tracker, basically tracking all ICE activity.
+- [25:46.840] We've seen the protests in New York just yesterday.
+- [25:49.830] Homeland Security is saying
+- [25:51.180] that this sounds like obstruction of justice.
+- [25:53.790] What do you say?
+- [25:55.180] Karoline Leavitt: Again, this is actively putting the lives
+- [25:57.800] of our ICE agents at risk.
+- [25:59.420] We've seen media outlets, in fact in this room,
+- [26:02.630] also write stories about ICE tracker apps
+- [26:05.370] that Democrats and other left-wing activists
+- [26:07.850] have created to track the location of ICE agents
+- [26:10.570] on the ground in our communities.
+- [26:12.460] Again, I've said this repeatedly and I will continue to say it.
+- [26:15.690] The men and women of ICE are outstanding people.
+- [26:18.390] I wish a Democrat on Capitol Hill
+- [26:20.180] would actually have the courage or the guts to up to their party
+- [26:23.510] and sit down with some of these men and women
+- [26:25.490] who are doing this incredibly difficult job
+- [26:28.060] of enforcing our federal immigration laws.
+- [26:31.080] They are, again,
+- [26:32.380] simply trying to enforce the law and do their jobs.
+- [26:35.790] And if Democrats spent a little bit more time
+- [26:37.880] understanding that and also focusing on the people
+- [26:40.540] who they are trying to get out of our country every single day.
+- [26:43.590] As I spoke about earlier,
+- [26:45.100] three innocent people in California are dead
+- [26:47.680] because an illegal alien who Democrats led into this country
+- [26:51.000] was wrongfully issued. Trucker's driving license
+- [26:54.460] and clearly was not fit for the job
+- [26:55.870] because he was driving intoxicated
+- [26:57.540] and killed three innocent people.
+- [26:59.280] Democrats should focus a little bit more on that.
+- [27:01.110] Stop trying to fight this President
+- [27:03.090] and his administration on every turn and restore law and order.
+- [27:06.410] That's all that we and these brave men and women of ICE
+- [27:08.670] are trying to do. Mary.
+- [27:10.230] The Press: Thanks, Caroline.
+- [27:11.540] I have two questions, one on San Francisco
+- [27:13.310] and one on the no-kings protesters.
+- [27:15.380] On San Francisco, the President said
+- [27:17.560] that he had a call with the mayor
+- [27:19.250] and he was planning on surging there, but now,
+- [27:21.480] because the mayor really wants to fix it up himself,
+- [27:23.500] they're going to do that.
+- [27:24.740] Is this what Trump hopes happens in pretty much every city.
+- [27:27.700] Karoline Leavitt: The President hopes,
+- [27:28.970] and I've said this so many times,
+- [27:30.540] and I think the President's conversation
+- [27:32.570] with the San Francisco mayor last night
+- [27:34.640] and his statement today
+- [27:35.920] prove the President is willing to work
+- [27:38.390] with anyone across the aisle,
+- [27:40.760] across the country to do the right thing
+- [27:43.160] and clean up America's cities.
+- [27:45.290] He is genuinely interested in this effort
+- [27:48.140] to make our streets safer,
+- [27:49.880] to make out cities safe and clean again.
+- [27:52.910] And he heard from the mayor last night
+- [27:54.910] who told him that he is going to earnestly
+- [27:56.890] try to make his city better on his own.
+- [27:59.460] The President heard him out,
+- [28:00.750] he said okay I'll give you a chance,
+- [28:02.510] we'll be watching and if you need us we are here
+- [28:04.680] and if I feel as though you continue to fail your citizens
+- [28:07.780] the federal government may have to step in.
+- [28:10.130] But we'll continue to watch San Francisco
+- [28:12.150] and that law enforcement operation has now been paused.
+- [28:14.300] Thank you.
+- [28:15.580] And then on the No Kings protestors,
+- [28:17.140] I saw videos of people explicitly calling for violence
+- [28:19.720] against Stephen Miller, against the President,
+- [28:21.580] shirts saying we don't have enough assassins,
+- [28:23.970] calling for more political violence.
+- [28:25.600] Does the President want to see arrests here,
+- [28:27.480] and are we going to see arrest of these types
+- [28:29.880] of explicit calls to violence?
+- [28:31.520] Karoline Leavitt: I would thank myself, the President,
+- [28:33.470] and everyone here at the White House
+- [28:34.860] certainly hopes that anyone
+- [28:36.100] who is making violent and illegal threats
+- [28:38.770] in that way against public officials
+- [28:40.390] will be arrested and prosecuted.
+- [28:43.850] The Press: Two questions.
+- [28:46.110] Would the President support the Senate
+- [28:47.710] ending the legislative filibuster to end the shutdown?
+- [28:50.770] Karoline Leavitt: This is something I haven't heard
+- [28:52.150] the President talk about much,
+- [28:53.380] so I don't want to speak on him for it.
+- [28:54.740] I'll let him answer that question himself.
+- [28:56.500] The Press: Do you have an update
+- [28:57.730] on the NASA Administrator nominee?
+- [29:00.200] Do you plan to nominate anyone soon?
+- [29:05.980] Karoline Leavitt: I'll leave that to the President himself.
+- [29:08.640] He'll make a decision in due time
+- [29:10.410] and when he does you will hear directly from him
+- [29:12.520] as you always do.
+- [29:16.430] We'll give our friends in the back a chance.
+- [29:18.300] The Press: You mentioned at the top
+- [29:20.150] of the briefing USDA has warned
+- [29:21.950] that it will run out of funds to pay full
+- [29:24.890] SNAP benefits next month if the shutdown continues.
+- [29:28.530] Senator Hawley is floating a bill that would ensure SNAP
+- [29:31.830] that if it's are continued to pay during the shutdown.
+- [29:34.770] Would the President support such a move?
+- [29:36.330] And you also announced that the administration
+- [29:39.170] was using tariff revenue to keep
+- [29:40.570] (inaudible)
+- [29:41.770] going during the shut down. How long will that last?
+- [29:44.500] And is anything similar being considered for SNAP.
+- [29:47.340] Karoline Leavitt: Yes, the administration
+- [29:48.950] would absolutely support that legislation.
+- [29:50.930] We hope that it would come over the finish line,
+- [29:53.330] but the bill that will get everyone paid
+- [29:55.860] and put everyone back to work is the clean continuing resolution.
+- [29:59.630] That's what the President and Republicans want to see.
+- [30:03.540] Ed, go ahead, Ed.
+- [30:05.340] The Press: On the Russian's sanctions again.
+- [30:06.930] How much pressure do you think this sanctioning
+- [30:09.970] these two Russian companies
+- [30:11.300] actually puts on President Putin?
+- [30:13.120] Because the last administration
+- [30:14.550] sanctioned two other oil companies.
+- [30:15.920] So how much (inaudible) pressure is this really?
+- [30:18.730] Karoline Leavitt: If you read the sanctions and look at them,
+- [30:20.260] they're pretty hefty.
+- [30:21.490] And I saw some international news out of China this morning
+- [30:24.590] that they're scaling back oil purchases from Russia.
+- [30:27.430] We know India has done the same at the request of the President.
+- [30:30.590] President has also pushed European countries,
+- [30:32.860] our allies,
+- [30:34.150] to please stop their purchases of Russian oil as well.
+- [30:37.150] So it's full court press for sure,
+- [30:39.490] and we expect that these sanctions are going to do harm,
+- [30:41.950] as the Secretary of Treasury said yesterday.
+- [30:44.940] The Press: Is this just the first step
+- [30:46.180] or could there be more sanctions?
+- [30:47.480] Karoline Leavitt: I'll leave that to the President
+- [30:48.760] to decide. Sure.
+- [30:50.290] The Press: (inaudible)
+- [30:51.550] or heard the NBA gambling involved
+- [30:54.660] in the gambling issue there.
+- [30:56.090] Does the President gamble? What do you think about that?
+- [30:59.870] Karoline Leavitt: I'm not sure, I don't think he does.
+- [31:01.880] I've been with him quite some time
+- [31:03.410] and I have not seen him gamble before.
+- [31:05.630] I don't think he's a big gambler,
+- [31:07.330] but you can ask him yourself
+- [31:08.680] the next time you have a chance to, Edward.
+- [31:10.220] Go ahead.
+- [31:11.460] The Press: Thank you, Karoline.
+- [31:12.910] Karoline Leavitt: Hi, Jake, and then we'll go to you.
+- [31:16.320] The Press: Two quick questions back to the ballroom.
+- [31:18.070] It is a very spectacular ballroom
+- [31:19.740] according to the renderings and if it's half as nice
+- [31:22.210] as the one in Mar-a-Lago then future
+- [31:24.140] Presidents are really going to appreciate it.
+- [31:25.870] Karoline Leavitt: They will. Thank you, Jake, for saying so.
+- [31:27.660] The Press: First of all, is there --
+- [31:30.240] is it like an official name?
+- [31:31.450] Like are we calling it the Trump ballroom
+- [31:33.130] or does the President have a vision
+- [31:34.440] for what the name for the ball is gonna be?
+- [31:36.970] Karoline Leavitt: There will be an official name.
+- [31:38.340] I will let the President announce
+- [31:39.750] that once he firmly decides on it.
+- [31:42.910] The Press: My second question is,
+- [31:44.330] looking at these renderings and it kind of got me thinking,
+- [31:47.720] he's likely going to go down as the greatest builder of this era
+- [31:50.910] and you've been in on a lot of those meetings with him,
+- [31:53.480] has to your knowledge,
+- [31:55.620] has the subject of rebuilding the Holy Temple
+- [31:59.640] in Jerusalem come up?
+- [32:01.100] Karoline Leavitt: It has not. No, it has not.
+- [32:03.430] The Press: (inaudible)
+- [32:04.790] Karoline Leavitt: I don't. I'm sorry, Jake.
+- [32:07.490] The Press: On the (inaudible)
+- [32:08.870] pardon, could this clear the way for Finance
+- [32:11.160] to resume U.S. Operations?
+- [32:13.120] Karoline Leavitt: I won't get ahead of that.
+- [32:14.360] That's something for Treasury or the Departments of Commerce
+- [32:16.870] to comment on, so you're welcome to ask them.
+- [32:18.850] The Press: I have one follow-up question.
+- [32:21.620] Any more details on the President's Walter Reed visit?
+- [32:24.340] The readout from his doctor mentioned advanced imaging.
+- [32:27.970] What procedure was he referring to?
+- [32:30.190] Karoline Leavitt: Advanced imaging is something
+- [32:31.940] that Presidents receive and people receive
+- [32:34.600] when they go to the doctor.
+- [32:36.260] And so we provide a detailed readout of that physical
+- [32:39.960] and I would encourage you back to that.
+- [32:41.490] The Press: (inaudible) MRI?
+- [32:42.750] Karoline Leavitt: I don't know
+- [32:43.960] the exact imaging that took place.
+- [32:45.480] But as the physician's note said,
+- [32:48.050] the President is incredibly good shape
+- [32:49.970] and I think that's evidenced here every single day.
+- [32:52.720] Danny.
+- [32:54.200] The Press: Back to the ballroom, I'm afraid.
+- [32:56.330] I just wanted to ask, because in July the White House
+- [32:59.760] said it would cost 200 million.
+- [33:02.150] Yesterday the President said 300 million.
+- [33:04.880] Is 300 million now the operative figure,
+- [33:06.970] and why did it go up by so much?
+- [33:08.760] Karoline Leavitt: $300 million is the figure,
+- [33:10.860] and again, it's not going to cost the taxpayers a dime.
+- [33:13.320] So we look forward to this project continuing,
+- [33:15.790] and we will continue to keep everyone apprised on it.
+- [33:18.170] Perhaps the President will even bring you all out
+- [33:20.090] to see it one day at the appropriate time.
+- [33:22.080] You're also going to hear from the President
+- [33:23.700] directly in about an hour.
+- [33:25.250] He's hosting an event with the Homeland Security Task Force.
+- [33:28.300] This was a newly created federal task force
+- [33:30.390] that the President and his law enforcement team
+- [33:32.090] have put together.
+- [33:33.300] I would encourage you all to tune in to the remarks.
+- [33:35.350] They have really done a tremendous job
+- [33:37.210] at refocusing how federal law enforcement
+- [33:40.010] and local law enforcement work together.
+- [33:42.200] There will be some local sheriffs
+- [33:43.730] and law enforcement officials in attendance as well,
+- [33:46.350] and they'll be talking about the success
+- [33:48.220] and the many arrests they have made of drug traffickers
+- [33:50.740] and cartel members all across the country
+- [33:52.570] by just simply working together. So we will see you at the event.
+- [33:55.960] Thank you.

@@ -1,0 +1,623 @@
+<!-- source: https://www.youtube.com/watch?v=CJq1ijIQu1w -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: CJq1ijIQu1w -->
+<!-- date_published: 2025-12-29T21:19:45+00:00 -->
+<!-- date_accessed: 2026-06-02T02:39:32.499497+00:00 -->
+
+# Transcript: President Trump and the Prime Minister of Israel Deliver Remarks
+
+- [00:09.040] The President: You people could come in.
+- [00:10.270] Come on over, fellas.
+- [00:13.110] We had a big meeting with a lot of people,
+- [00:15.240] a lot of talent, from Israel and from the U.S.
+- [00:20.220] And I think we came to a lot of conclusion,
+- [00:23.940] a lot of conclusion and conclusions.
+- [00:27.050] And there's very little difference
+- [00:32.210] in what we're looking at and where we want to be,
+- [00:35.140] where we want to go.
+- [00:37.410] And so I just want to thank you for spending time.
+- [00:41.170] I know you're going to be over here for a couple of days
+- [00:43.810] and maybe will be surprising us on New Year's Eve.
+- [00:46.150] That would be fine.
+- [00:47.420] Prime Minister Netanyahu: Well, thank you.
+- [00:48.700] The President: And it's wonderful seeing you and Sarah
+- [00:50.890] and your whole group, very talented group.
+- [00:53.900] We've done very good work together and it will continue.
+- [00:56.750] So thank you very much, Bibi.
+- [00:58.650] Prime Minister Netanyahu: Thank you, Mr. President.
+- [01:05.300] I have to say that --
+- [01:10.040] I have to say that in addition to what I said,
+- [01:13.320] that we've never had a friend even close a friend
+- [01:19.400] as President Trump in the White House.
+- [01:22.480] I think he's been extraordinary in his friendship
+- [01:24.920] and his support for Israel, his principled positions,
+- [01:30.410] his willingness to just cut through
+- [01:32.970] and get to the essence of things,
+- [01:34.470] and I don't say that as a compliment.
+- [01:36.660] I just mean it.
+- [01:38.480] People have heard me say that behind your back,
+- [01:40.360] Mr. President, many times.
+- [01:43.050] But I want to say something else.
+- [01:44.270] I think we have a partnership,
+- [01:45.890] if I can quote you, second to none.
+- [01:50.000] I think it's allowed us to do enormous things.
+- [01:52.890] You know, people said there was a different conception
+- [01:55.150] at one time, which means that America
+- [01:57.640] can advance its interests in the Middle East
+- [01:59.590] if it opens a lot of daylight between it and Israel.
+- [02:04.350] And President Trump has done the exact opposite.
+- [02:07.030] He's achieved remarkable things in the Middle East
+- [02:09.890] because we work together. We talk about our ideas.
+- [02:14.400] Sometimes we have different ideas, but we work it out.
+- [02:17.990] And most of the time we see eye to eye.
+- [02:20.430] But it's been a remarkable experience
+- [02:22.060] and this was a very, very productive meeting.
+- [02:25.810] And may I say, a very good lunch.
+- [02:27.020] Thank you. Thank you for your friendship.
+- [02:29.280] The President: Thank you very much, Bibi.
+- [02:30.580] Prime Minister Netanyahu: And thank you for your support.
+- [02:31.820] It's been from the heart.
+- [02:33.940] The President: Thank you. You know, as I said outside,
+- [02:35.860] he's been a wartime prime minister.
+- [02:38.530] And we were --
+- [02:40.610] I guess I could say it was a wartime president,
+- [02:43.010] in more places than just Israel if you think about it.
+- [02:45.570] But Israel was a big factor and we're with you
+- [02:49.670] and we'll continue to be with you
+- [02:51.620] and a lot of good things are happening in the Middle East.
+- [02:54.430] We have peace in the Middle East
+- [02:55.900] and we're going to try and keep it that way.
+- [02:57.280] I think we will be very successful
+- [02:59.850] in keeping it that way. And you've been a great friend
+- [03:04.720] and I've been a great friend to you and to Israel
+- [03:06.760] and it's been my honor.
+- [03:08.780] And the award that I was given was really surprising
+- [03:13.540] and very much appreciated.
+- [03:15.880] Prime Minister Netanyahu: Well, President Trump has broken
+- [03:18.190] so many conventions
+- [03:20.070] to the surprise of people and then they figure out,
+- [03:22.190] oh, wow, maybe he was right after all.
+- [03:25.380] So we decided to break a convention too,
+- [03:27.350] or create a new one,
+- [03:28.790] and that is to award the Israel Prize,
+- [03:32.500] which in almost our 80 years,
+- [03:34.290] we've never awarded it to a non-Israeli.
+- [03:37.400] And we're going to award it this year to President Trump.
+- [03:41.770] This was announced formally over lunch
+- [03:45.350] by our minister of education,
+- [03:47.910] who's responsible for the Israel Prize.
+- [03:51.490] It's going to be awarded to President Donald J. Trump
+- [03:54.560] for his tremendous contributions to Israel
+- [03:57.030] and the Jewish people.
+- [04:00.150] I think there's -- it's such a fitting thing.
+- [04:04.100] And it would honor us, obviously, Mr. President,
+- [04:06.120] if you could visit Israel on the occasion
+- [04:09.510] on our Independence Day,
+- [04:11.260] but I have to say that this reflects
+- [04:14.450] the overwhelming sentiment of Israelis across the spectrum.
+- [04:20.870] They appreciate what you've done to help Israel
+- [04:24.380] and to help our common battle against the terrorists
+- [04:27.030] and those who would destroy our civilization.
+- [04:29.120] So, again, that's an expression of thanks and appreciation.
+- [04:34.750] The President: Thank you, Bibi, very much.
+- [04:36.170] That really is a great honor.
+- [04:38.200] Any questions, please? We'll go pretty quickly
+- [04:40.570] because pretty much we agree on most of the things,
+- [04:44.020] and you would know what most of those things are.
+- [04:45.960] Please, go ahead.
+- [04:47.180] The Press: Thank you, Mr. President.
+- [04:48.410] I'd like to know if you and the prime minister
+- [04:50.120] talked about having Israel pull back its troops
+- [04:54.020] before Hamas fully disarms.
+- [04:56.940] I know that's been an issue. Did you push for that today?
+- [04:59.030] The President: Well, we talked about Hamas
+- [05:00.330] and we talked about disarmament and they're going to be given
+- [05:04.700] a very short period of time to disarm,
+- [05:07.420] and we'll see how that works out.
+- [05:09.410] Steve Witkoff and Jared Kushner
+- [05:11.960] will be in charge of that from our side,
+- [05:16.380] but if they don't disarm, as they agreed to do,
+- [05:21.240] they agreed to it, then they'll be held to pay for them.
+- [05:25.050] And we don't want that -- we're not looking for that,
+- [05:27.570] but they have to disarm within a fairly short period of time.
+- [05:31.240] The Press: Is Israel withdrawing its forces?
+- [05:33.430] The President: Well, that's a separate subject.
+- [05:35.600] We'll talk about that. Yes.
+- [05:38.230] The Press: Did you have a message
+- [05:39.620] for the prime minister about the West Bank?
+- [05:41.720] And are you at all concerned that settler violence --
+- [05:44.010] Israeli settler violence could be undermining the peace plan?
+- [05:46.930] The President: Well, we have had a discussion --
+- [05:49.070] big discussion for a long time on the West Bank,
+- [05:51.780] and I wouldn't say we agree on the West Bank 100 percent,
+- [05:55.390] but we'll come to a conclusion on the West Bank.
+- [05:59.260] The Press: If I could ask, what is the discussion?
+- [06:00.850] The President: Well, I don't want to do that.
+- [06:02.080] It'll be announced at an appropriate time,
+- [06:04.590] but he will do the right thing, I know that.
+- [06:06.900] I know him very well; he will do the right thing.
+- [06:08.760] Yes.
+- [06:09.960] The Press: And there is a growing fear
+- [06:11.850] of a confrontation between Israel and Turkey.
+- [06:14.300] How are you going to ease this tension
+- [06:16.160] given the fact that Erdoğan --
+- [06:17.580] President Erdoğan calls Mr. Netanyahu Hitler
+- [06:20.600] and compares Israel to the Nazis.
+- [06:22.390] The President: Well, I know President Erdoğan very well
+- [06:24.880] and, as you all know, he's a very good friend of mine.
+- [06:27.670] And I believe that --
+- [06:30.270] and I do respect him and Bibi respects him,
+- [06:33.730] and they're not going to have a problem.
+- [06:36.190] They're not going to have a problem.
+- [06:37.650] I know him very well and you've seen me do things
+- [06:40.780] with President Erdoğan and Turkey
+- [06:42.570] that nobody else could have done.
+- [06:45.150] We're not going to have a problem.
+- [06:47.900] He's done a fantastic job. I'm with him all the way.
+- [06:51.270] I'm with Bibi all the way. Nothing's going to happen. Yes.
+- [06:55.280] The Press: Thank you, Mr. President.
+- [06:56.770] Are you concerned that Israel is not moving quickly enough
+- [06:59.660] to phase two of the peace plan?
+- [07:02.880] The President: Well, I'm not concerned about anything
+- [07:04.330] that Israel is doing.
+- [07:05.610] I'm concerned about what other people are doing
+- [07:08.190] or maybe aren't doing. But I'm not concerned.
+- [07:11.020] They've lived up to the plan. They're strong, they're solid.
+- [07:16.580] And sometimes they don't understand
+- [07:18.040] when somebody violates something
+- [07:19.510] that you want to give them a second chance.
+- [07:21.680] We'll give them a couple of second chances,
+- [07:23.650] but no, Israel has lived up to the plan 100 percent.
+- [07:28.440] Don't forget, we made the plan possible by taking out Iran.
+- [07:34.130] And speaking of Iran,
+- [07:35.350] I hope they're not trying to build up again
+- [07:37.030] because, if they are, we're going to have no choice
+- [07:40.050] but very quickly to eradicate that buildup.
+- [07:43.400] So, I hope Iran is not trying to build up as I've been reading
+- [07:47.550] that they're building up weapons and other things.
+- [07:51.350] And if they are,
+- [07:53.190] they're not using the sites that we obliterated,
+- [07:56.510] but they're using possibly different sites.
+- [07:59.290] We know exactly where they're going, what they're doing,
+- [08:02.040] and I hope they're not doing it
+- [08:03.340] because we don't want to waste the fuel on a B-2,
+- [08:07.100] it's a 37-hour trip both ways.
+- [08:09.900] I don't want to waste a lot of fuel. Okay?
+- [08:12.980] The Press: Mr. President, per your last remarks
+- [08:15.670] regarding the Herzog request of Prime Minister Netanyahu,
+- [08:18.960] her office told us that you have not talked
+- [08:22.900] after the official request
+- [08:24.410] of Prime Minister Netanyahu pardon.
+- [08:26.720] Can you clarify to us, did you talk about it?
+- [08:28.870] The President: Which request are you talking about?
+- [08:30.520] The Press: With President Herzog,
+- [08:33.080] the Israeli president, Herzog, did you talk with him directly?
+- [08:35.610] The President: President Erdoğan?
+- [08:36.840] The Press: Herzog, Herzog, the Israeli president.
+- [08:38.360] The President: Oh, so, you're talking about pardon.
+- [08:39.720] The Press: Yeah.
+- [08:40.980] The President: Oh, well, you've got to say that.
+- [08:42.720] No, I think he's going to be in great shape.
+- [08:44.460] He's a wartime prime minister at the highest level.
+- [08:48.100] He's achieved tremendous success.
+- [08:51.270] And I'll say it, you know, if you had eight out of
+- [08:55.510] 10 prime ministers in his position right now,
+- [08:59.240] or before right now maybe,
+- [09:01.310] you wouldn't have Israel any longer.
+- [09:03.040] Israel wouldn't exist,
+- [09:05.240] I'd say two of them would and eight of them wouldn't.
+- [09:08.880] Those are not good odds.
+- [09:10.820] You needed a very special man to really carry through
+- [09:17.200] and really help Israel through this horrible jam.
+- [09:20.200] You know, these are major factions
+- [09:23.010] and it started with our negotiation with Iran.
+- [09:26.540] I think it probably started with Soleimani.
+- [09:30.580] That was really where you mentioned that today,
+- [09:32.930] it started with Soleimani, a bad guy doing bad things,
+- [09:37.710] hurting a lot of people, killing American soldiers
+- [09:40.760] and other soldiers. But it started --
+- [09:43.290] right there would probably be the starting point.
+- [09:46.380] And then from that point forward.
+- [09:48.780] But you have a wartime prime minister at the highest level.
+- [09:53.330] There could be other wartime prime ministers,
+- [09:55.150] but they'd lose.
+- [09:57.120] He won and I think the people of Israel appreciate it.
+- [10:00.910] I think a lot of the people in the world
+- [10:02.320] appreciate it actually. And because of that victory,
+- [10:04.890] we were able to get peace in the Middle East.
+- [10:07.600] If you had a different kind of a personality,
+- [10:10.550] if you had a weak person or a stupid person,
+- [10:13.300] and there are plenty of both of them,
+- [10:15.310] you would not have had success,
+- [10:16.840] and you might not have Israel and you report for Israel.
+- [10:19.740] I know you're very proud of it and you do a great job.
+- [10:22.210] You might not have a job
+- [10:23.440] because there might not be an Israel right now
+- [10:25.560] if you had a different prime minister.
+- [10:27.280] That's a big statement.
+- [10:28.550] But to me, it's a very simple statement to make.
+- [10:31.720] I'm looking at Pete Hegseth, and he's sort of nodding.
+- [10:34.700] If they don't have a strong prime minister, Pete,
+- [10:36.760] you might not have Israel today.
+- [10:38.130] I think he'll go down in the record books
+- [10:41.200] and, you know, I was a big help.
+- [10:43.260] I'll be honest with you, a big, big help.
+- [10:46.240] Somebody said in the room, if you don't have Trump --
+- [10:49.100] you needed a proper combination of everything.
+- [10:53.630] And if you didn't have that combination, which they had,
+- [10:57.060] you would not have an existing Israel right now.
+- [10:59.840] And the people of Israel know it, that's why they like me
+- [11:03.350] and that's why they really -- they actually like him.
+- [11:05.450] He's got a little bit of love/hate
+- [11:06.730] more than I do over there. But you know what?
+- [11:10.220] Even the haters have a lot of respect for him.
+- [11:12.310] There's a lot of jealousy about him, a lot of jealousy.
+- [11:16.210] Jealousy is a bad word,
+- [11:17.900] but I believe you would not have Israel right now.
+- [11:20.400] So, it's a big deal. Yeah, please.
+- [11:22.200] The Press: Mr. President, a recent poll showed
+- [11:24.760] that as many as half of Gazans
+- [11:26.820] would be willing to leave the Gaza Strip
+- [11:28.650] if afforded the opportunity to do so.
+- [11:30.830] Back in February, you said that all Gazans should --
+- [11:32.990] The President: I heard that number today,
+- [11:34.240] half of Gaza would leave.
+- [11:36.160] I've always said it, I said if you were given the opportunity
+- [11:39.240] to live in a better climate, they would move.
+- [11:44.190] They're there because they sort of have to be.
+- [11:45.880] I think it would be a great opportunity,
+- [11:48.190] but let's see if that opportunity presents itself.
+- [11:51.170] But we're helping the people of Gaza a lot.
+- [11:55.170] So is Israel by the way. So, we'll see what happens.
+- [11:58.580] But I saw that -- there was a poll,
+- [11:59.920] it was actually more than half the people would leave
+- [12:01.950] if they were given the opportunity.
+- [12:04.290] And I've been saying that for a long time.
+- [12:05.990] To me it was common sense. So, it's interesting.
+- [12:08.590] The Press: Why wouldn't countries accept them?
+- [12:11.230] The President: Look, let's not talk about it
+- [12:13.130] because we don't want the controversy.
+- [12:15.880] Right now, we're helping Gaza,
+- [12:17.750] but if they were given the opportunity,
+- [12:20.130] I think even higher than that.
+- [12:22.710] The person -- the group that did the poll is usually --
+- [12:25.960] I call them negative pollsters. You have a lot of them.
+- [12:28.580] And yet this poll was, I think, very accurate,
+- [12:31.490] other than it would be more than half the people
+- [12:34.120] if given the opportunity,
+- [12:35.440] but they haven't been given that opportunity.
+- [12:37.530] So, we'll see what happens.
+- [12:38.850] The Press: Mr. President, (Inaudible)
+- [12:40.890] the point of understanding regarding Syria.
+- [12:44.640] The President: We do have
+- [12:45.850] an understanding regarding Syria.
+- [12:48.340] Now with Syria, your new president.
+- [12:52.350] I respect him. He's a very strong guy,
+- [12:54.360] and that's what you need in Syria.
+- [12:56.110] You can't put a choir boy -- you can't put, you know,
+- [13:00.670] somebody that's a perfect person.
+- [13:03.160] Everything's nice, no problems in life.
+- [13:05.700] You have the opposite there.
+- [13:07.000] He's a strong guy. We get along with him great.
+- [13:11.990] I can't ask for anymore. He's been with us all the way.
+- [13:14.480] We had that mishap with ISIS and he was with us all the way.
+- [13:18.110] He was fighting -- you know, he was fighting them.
+- [13:20.980] So, I hope Israel --
+- [13:22.940] I'm sure that Israel and he will get along.
+- [13:25.390] I will try and make it so that they do get along,
+- [13:29.500] I think they will, Bibi, do you have anything to say about that?
+- [13:32.220] Prime Minister Netanyahu: Yeah, well, our interest
+- [13:34.740] is to have a peaceful border with Syria.
+- [13:39.920] Our interest is to have, and we openly say it,
+- [13:43.630] we want to make sure that the border area
+- [13:46.690] right next to our border is safe,
+- [13:50.400] we don't have terrorists, we don't have attacks.
+- [13:52.700] And we also want to secure our Druze friends.
+- [13:56.110] And by the way, I think not only the Druze but other minorities,
+- [13:59.340] especially the Christians,
+- [14:00.610] should be protected as well in Syria
+- [14:03.700] and throughout the Middle East and in Nigeria,
+- [14:06.790] and your efforts would back completely,
+- [14:08.430] because Christian communities are beleaguered
+- [14:10.540] around the world,
+- [14:11.750] and especially in the Middle East
+- [14:13.240] but in parts of Africa too and --
+- [14:16.040] and we stand for the same thing.
+- [14:17.810] The President: And don't forget, it was President Erdogan
+- [14:20.510] that helped very much get rid of a very bad ruler of Syria.
+- [14:26.320] That was President Erdogan.
+- [14:29.000] And he never wanted the credit for it,
+- [14:30.580] but he really gets a lot of credit.
+- [14:32.480] Bibi agrees with that.
+- [14:33.680] I agree with -- I mean, I know it.
+- [14:36.010] And President Erdogan should get a lot of credit for what he did.
+- [14:39.440] He got rid of some very bad people.
+- [14:42.240] And you know, they've been wanting to do that
+- [14:44.180] for a thousand years,
+- [14:45.420] with different names but for a thousand years in Syria.
+- [14:47.970] President Erdogan did it and we give him a lot of credit.
+- [14:51.880] I give him a lot of credit.
+- [14:53.840] But I think it's going to work out
+- [14:55.330] well between Syria and Israel. Yeah, go ahead, please.
+- [15:03.100] The Press: The Lebanese government
+- [15:04.780] (Inaudible)
+- [15:06.500] is not meeting the terms of the ceasefire agreement,
+- [15:09.750] has failed to disarm Hezbollah, actually.
+- [15:13.220] In your view, should Israel
+- [15:14.720] strike the terrorist organization again?
+- [15:16.740] The President: Well, we're going to see about that.
+- [15:18.190] We'll see about it.
+- [15:20.280] The Lebanese government is at a little bit of a disadvantage,
+- [15:23.710] if you think of it, with Hezbollah.
+- [15:25.710] But Hezbollah has been behaving badly,
+- [15:29.090] so we'll see what happens.
+- [15:30.300] The Press: Mr. President, on China.
+- [15:31.680] Are you going to -- Mr. President, how close are we
+- [15:33.350] to another operation of Israel in Iran?
+- [15:35.980] You said before the meeting with Netanyahu
+- [15:38.120] that you are in support of Israel
+- [15:39.840] if the ballistic missile project will take on
+- [15:42.330] and also the nuclear weapon. But after the meeting,
+- [15:44.840] after what you know from the intelligence,
+- [15:46.500] how close are we to another war with Iran?
+- [15:49.140] The President: Well, I don't want to say that,
+- [15:50.530] but Iran may be behaving badly. It hasn't been confirmed.
+- [15:57.090] But if it's confirmed, look, they know the consequences.
+- [16:00.370] You know, consequences will be very powerful,
+- [16:04.470] maybe more powerful than the last time.
+- [16:06.330] Yeah. And Iran should have made a deal the last time.
+- [16:10.200] I gave them the option.
+- [16:11.920] I said, you can make a deal, do it.
+- [16:14.680] I told them, do it, and they didn't believe me.
+- [16:17.540] Now they believe me.
+- [16:18.760] The Press: (Inaudible)
+- [16:20.000] evidence that Iran is behaving badly?
+- [16:21.570] And what do you mean by that?
+- [16:22.810] The President: This is just what we hear,
+- [16:24.110] but usually, where there's smoke, there's fire.
+- [16:29.260] Have you heard the expression?
+- [16:30.660] The Press: But what -- do you mean related
+- [16:31.940] to the nuclear capability?
+- [16:33.220] The President: Well, no, I'm hearing that they're --
+- [16:34.880] not nuclear yet, but maybe nuclear too.
+- [16:37.360] The sites were obliterated,
+- [16:38.630] but they're looking at other sites.
+- [16:39.890] That's what I've heard. They're looking.
+- [16:41.120] The Press: (Inaudible)
+- [16:42.320] The President: So it will take a long time.
+- [16:43.790] They're not going to go back to where they were, but they --
+- [16:46.280] they have other places they can go.
+- [16:48.940] And if they're doing that, they're making a big mistake.
+- [16:51.290] Yeah, please. There's no reason for them to do it.
+- [16:54.100] The Press: Mr. President -- Mr. President,
+- [16:56.210] is the United States currently open to engaging
+- [17:00.170] in bilateral discussions with Tehran.
+- [17:01.970] We're hearing reports from numerous countries
+- [17:03.830] that there may be some discussions.
+- [17:05.340] Is that something you would support
+- [17:06.660] or something that is happening?
+- [17:07.940] The President: Yeah. I would. Sure.
+- [17:08.730] The Press: You would support that?
+- [17:09.940] The President: I would. Yes.
+- [17:10.310] The Press: Right now? Thank you, sir.
+- [17:11.530] The President: I have been -- by the way,
+- [17:12.790] before the war, I would support that.
+- [17:14.020] I said to him, Bibi, I said, let's negotiate
+- [17:18.510] and they didn't believe what was going to happen would happen.
+- [17:21.370] Yes, ma'am.
+- [17:22.660] The Press: Mr. President, on China.
+- [17:23.900] So China has been doing naval exercises
+- [17:26.110] basically to test encircling Taiwan.
+- [17:28.390] Can you explain to us what your knowledge is of that?
+- [17:31.990] What do you think about that?
+- [17:33.300] Have you had any discussions with China about that?
+- [17:35.050] The President: Well, I have a great relationship
+- [17:36.400] with President Xi
+- [17:38.050] and he hasn't told me anything about it.
+- [17:40.150] I certainly have seen it,
+- [17:42.130] but he hasn't told me anything about it.
+- [17:44.100] And I don't believe he's going to be doing it.
+- [17:48.030] The Press: Does it worry you?
+- [17:49.380] The President: No, nothing worries me, nothing.
+- [17:50.610] The Press: But you said where there's smoke,
+- [17:51.840] there's fire, right? The President: Yeah.
+- [17:53.040] The Press: So if you're in (Inaudible)
+- [17:54.300] -- if you're doing naval exercises and air exercises --
+- [17:56.240] The President: Well, they've been doing naval exercises
+- [17:58.680] for 20 years in that area.
+- [18:03.290] Now, people take it a little bit differently,
+- [18:05.070] but in fact, larger than they're doing right now.
+- [18:08.670] So we'll see, but they've been --
+- [18:09.910] they've been doing that for 20, 25 years. Yeah.
+- [18:11.990] The Press: Mr. President, if you don't see Hamas disarm
+- [18:14.370] in that short amount of time they're giving them,
+- [18:16.070] can you tell us what the next steps would be?
+- [18:17.620] The President: It'll be horrible for them, horrible.
+- [18:24.410] Going to be really, really bad for them.
+- [18:28.070] And I don't want that to happen,
+- [18:29.820] but they made an agreement that they were going to disarm,
+- [18:32.790] and you couldn't blame Israel.
+- [18:34.540] By the way, we have other countries
+- [18:35.900] that will come in and do it.
+- [18:37.930] They said, let us do it for you if they don't.
+- [18:40.980] Countries that were with them wanted the deal to be made,
+- [18:45.100] agreed that they would disarm.
+- [18:46.660] And now if they say they're going to disarm, that's fine.
+- [18:49.910] If they say they're not going to disarm,
+- [18:51.770] those same countries will go and wipe them out.
+- [18:55.990] They don't even need Israel.
+- [18:57.900] You know, we have many countries,
+- [18:59.270] 59 countries that are in agreement.
+- [19:02.030] This is a real peace in the Middle East
+- [19:04.720] and Hamas is a small part of it, but it's still a part of it.
+- [19:09.210] But we have 59 countries that signed on, big countries,
+- [19:12.100] countries that are outside of the Middle East,
+- [19:16.310] as you know the Middle East.
+- [19:18.920] They want to go in and wipe out Hamas.
+- [19:23.400] They don't want Israel; they don't need Israel.
+- [19:25.610] They want to do it because it's the right thing to do
+- [19:27.650] because they were for the deal
+- [19:29.050] based on the fact that Hamas pledged,
+- [19:31.860] they swore that they were going to disarm.
+- [19:34.680] Now, if they're not going to disarm,
+- [19:36.290] those same countries will wipe out Hamas.
+- [19:39.600] Yeah.
+- [19:40.800] The Press: President Trump, do you think that
+- [19:42.050] the PA should be involved in the day after in Gaza Strip
+- [19:45.350] even in the near future?
+- [19:46.600] And the same question to Prime Minister Netanyahu,
+- [19:48.750] do you see a real opportunity that the PA will be in Gaza?
+- [19:51.900] The President: Go ahead, Bibi.
+- [19:53.170] Prime Minister Netanyahu: I think President Trump
+- [19:54.400] put clearly the conditions that --
+- [19:56.160] of reform that he wants to see in the PA
+- [19:58.730] for them to be involved.
+- [20:00.970] And I think he put it very clearly what he wants to see,
+- [20:03.340] the kind of real reforms, not just perfunctory reforms,
+- [20:07.740] but real reform, stop pay to slay,
+- [20:10.150] change the curriculum in your textbooks,
+- [20:12.700] open up, you know, a different society and a different future.
+- [20:16.160] If they do it -- The Press: (Inaudible) future --
+- [20:17.780] Prime Minister Netanyahu: Well, you know, let them --
+- [20:19.760] you know, I think it was clear.
+- [20:21.160] He put -- he put -- he put guidelines that were,
+- [20:25.190] by the way, in the Trump plan of 2020.
+- [20:29.430] And they were put then in the 20 points and it's up to them.
+- [20:33.820] The President: Remember this,
+- [20:35.190] if we didn't do what we did to Iran,
+- [20:37.950] just to make the subject just slightly different,
+- [20:41.190] you wouldn't have peace in the Middle East.
+- [20:43.240] You wouldn't have a deal signed in the Middle East.
+- [20:45.490] You wouldn't have a deal, because other Arab nations,
+- [20:49.320] which are great, great, great people.
+- [20:51.180] I know them very well.
+- [20:52.470] I know them. They're great people.
+- [20:54.910] They wouldn't be able to have agreed to peace
+- [20:57.350] in the Middle East because you would have had
+- [20:59.060] a dark cloud hanging over everything.
+- [21:00.770] It wouldn't -- it wouldn't have been possible.
+- [21:03.150] So Iran has been greatly reduced in power, prestige.
+- [21:10.630] I don't want to use the word humiliation
+- [21:12.220] because, you know, they're trying to build up again.
+- [21:15.290] But we can't let them build up because if they build up,
+- [21:17.670] there can't be peace in the Middle East.
+- [21:19.550] It was a mistake.
+- [21:20.880] You know, when they wiped out Iraq,
+- [21:22.600] Iraq and Iran were about the same power
+- [21:25.360] and they fought each other with different names
+- [21:27.050] for a thousand years. And then our country came out
+- [21:31.290] and blew up one of those two countries, namely Iraq.
+- [21:36.730] And all of a sudden,
+- [21:38.010] Iran had the whole Middle East all to itself.
+- [21:41.080] But that's not true anymore, that's not true anymore.
+- [21:44.420] The Press: (Inaudible)
+- [21:45.790] The President: Say it.
+- [21:46.990] The Press: Tell us something about your plan to expand
+- [21:49.000] the Abraham Accords.
+- [21:51.910] If you can tell us something about your plan
+- [21:54.180] to expand Abraham Accords.
+- [21:56.630] The President: Well, the Abraham Accords are a great --
+- [21:58.890] a great achievement of Jared and everybody.
+- [22:03.440] I mean, it was one of the great achievements.
+- [22:06.450] They'll be expanded.
+- [22:09.080] Countries are already talking about expanding it
+- [22:11.520] and they'll be expanded fairly quickly. Yeah, please.
+- [22:13.380] The Press: (Inaudible)
+- [22:14.580] on Saudi Arabia, is it still on the table?
+- [22:17.300] The President: Saudi Arabia is great.
+- [22:18.700] We have a great leader and a friend of mine
+- [22:22.630] and a friend of a lot of people, also an enemy of some people,
+- [22:28.610] but those people aren't doing so well.
+- [22:30.730] You know, Saudi Arabia has been very good
+- [22:33.860] as far as I'm concerned.
+- [22:35.120] They've done everything that we can ask for.
+- [22:38.310] The Press: (Inaudible) normalization with Israel --
+- [22:40.650] The President: They're getting along great with Israel.
+- [22:42.110] They will.
+- [22:43.420] And at some point, they'll sign the Abraham Accords.
+- [22:46.020] The Press: Mr. President --
+- [22:47.530] So one of the big domestic tasks ahead of you
+- [22:50.660] is to pick a new chairman for the fed.
+- [22:52.430] The President: Yeah.
+- [22:53.650] The Press: You're -- you've said that you have one favorite
+- [22:56.030] but you're also doing interviews.
+- [22:58.520] The President: Hasn't changed.
+- [22:59.720] Yeah, I'll announce him at the right time.
+- [23:01.070] There's plenty of time.
+- [23:02.780] In the meantime, we're doing numbers that nobody's ever seen.
+- [23:05.280] We have $18 trillion coming in. We had a 4.3 percent GDP.
+- [23:09.910] They thought it was going to be two percent,
+- [23:11.990] and that's despite the Democrat shutdown.
+- [23:14.490] Had the shutdown not occurred, we would have had an extra point
+- [23:17.530] and a quarter. Think of that.
+- [23:21.530] We are doing -- and also, despite the fact
+- [23:24.160] that we have a fool at the Federal Reserve.
+- [23:28.270] I mean, Biden reappointed him. It's too bad.
+- [23:30.300] You would have thought he wouldn't have done that.
+- [23:32.710] But he's an absolute fool who's building a new Federal Reserve,
+- [23:38.250] or he's doing a renovation of a building.
+- [23:40.970] Bibi, he's up to $4.1 billion to do a renovation
+- [23:45.140] of a few very small buildings.
+- [23:48.650] It's the highest price in the history of construction.
+- [23:52.250] He's spending more money than any building
+- [23:54.140] has ever spent per square foot on the renovation of --
+- [23:58.610] as an example, I'm doing a magnificent big,
+- [24:02.150] beautiful ballroom that the country has wanted,
+- [24:06.310] the White House has wanted for 150 years it's a massive job
+- [24:11.400] and it's a tiny fraction of that number,
+- [24:13.880] and we're under budget and ahead of schedule.
+- [24:15.770] Now it's bigger than I told you, it's you know --
+- [24:20.170] after realizing we're going to do the inauguration
+- [24:22.640] in that building, it's got all bulletproof glass,
+- [24:25.980] it's got all drone -- they call it drone free roof.
+- [24:30.760] Drones won't touch it. It's a big, beautiful,
+- [24:35.580] safe building. But it's --
+- [24:38.120] you know, it's a big project for a tiny fraction of that.
+- [24:41.570] We're under budget and ahead of schedule
+- [24:44.710] and they've wanted it for 150 years.
+- [24:47.570] Think of it, the Federal Reserve building,
+- [24:49.730] two buildings there, they don't know what they're doing.
+- [24:54.930] They're way over budget. I mean, almost --
+- [24:58.480] this was built during the Biden administration.
+- [25:02.200] And I drove by it the other day
+- [25:03.830] and it's headed by the head of the Federal Reserve,
+- [25:07.010] too late -- you know, too late Powell.
+- [25:09.390] Too late because he's always too late with interest rates
+- [25:12.090] except before the election.
+- [25:13.390] He was too early because that would have helped --
+- [25:15.480] that was supposed to help get her elected.
+- [25:17.850] It had no impact. We won all seven swing states.
+- [25:21.210] But no, no, we're thinking about bringing a suit
+- [25:24.650] against Powell for incompetence because, think of it.
+- [25:28.000] These are two -- these aren't outstanding buildings;
+- [25:29.940] these are small buildings. He's at $4 billion more.
+- [25:33.850] It's going to end up costing more than $4 billion,
+- [25:36.240] $4 billion.
+- [25:37.760] It's the highest price of construction --
+- [25:41.430] again, Democrats --
+- [25:43.360] highest price of construction per square foot
+- [25:45.770] in the history of the world.
+- [25:47.200] There's never been -- gorgeous monuments
+- [25:49.870] are built for a much smaller price.
+- [25:53.280] So, we're thinking about bringing a gross incompetence --
+- [25:57.090] what's called a gross incompetence lawsuit.
+- [25:59.010] It's gross incompetence against Powell
+- [26:02.240] and it was his baby. And the guy's just incompetent.
+- [26:08.250] There is nothing you can do about it;
+- [26:09.700] he's just a very incompetent man.
+- [26:11.900] But we're going to probably bring a lawsuit against him.
+- [26:14.500] Thank you all very much. I appreciate it.
+- [26:16.270] Bibi, congratulations.
+- [26:17.840] The Press: Mr. President, when do you expect
+- [26:19.290] an announcement on Powell's replacement?
+- [26:24.270] The President: January some time.
+- [26:25.580] The Press: And will you ask Jay Powell to resign entirely?
+- [26:28.500] The President: Well, he should resign,
+- [26:29.700] it'd be a favor to the nation. He's come close.
+- [26:32.960] I mean, we're getting pretty close.
+- [26:34.890] I would fire him. I would love to fire him,
+- [26:38.010] but we're so close -- maybe -- but maybe I still might.
+- [26:42.720] The Press: Will you sell F-35s to Turkey?
+- [26:45.660] Are you going to approve a sale of F-35s to Turkey?
+- [26:50.150] The President: We're thinking about it very seriously.

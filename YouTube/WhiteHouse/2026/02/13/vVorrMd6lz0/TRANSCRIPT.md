@@ -1,0 +1,735 @@
+<!-- source: https://www.youtube.com/watch?v=vVorrMd6lz0 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: vVorrMd6lz0 -->
+<!-- date_published: 2026-02-13T19:08:51+00:00 -->
+<!-- date_accessed: 2026-06-02T02:37:54.322708+00:00 -->
+
+# Transcript: President Trump Delivers Remarks to Fort Bragg Military Families
+
+- [00:01.300] Announcer: Ladies and gentlemen, the First Lady
+- [00:03.660] of the United States, Melania Trump.
+- [00:07.650] ♪ (rock music playing) ♪
+- [00:36.840] The First Lady: Good afternoon.
+- [00:39.310] Hello, and thank you for your warm welcome.
+- [00:43.980] The president and I are grateful to be with you
+- [00:47.750] to honor the passion you share through
+- [00:50.190] unmatched bravery, resilience and service to our great nation.
+- [00:56.330] Thank you for defending our freedom.
+- [01:00.290] It is with immense pleasure for me to address the Fort Bragg
+- [01:04.630] and Pope Army Airfield community today.
+- [01:08.490] To our great armed forces of the United States station
+- [01:12.480] all over the world,
+- [01:14.200] I have a nostalgia-filled message,
+- [01:17.350] happy Valentine's Day.
+- [01:21.820] Love letters have symbolized
+- [01:24.500] the union of patriotism and family devotion
+- [01:28.370] among our soldiers for 250 years.
+- [01:33.090] The harmony of love, of country and love of family
+- [01:37.190] is what make us uniquely American.
+- [01:42.130] It is very balanced,
+- [01:44.000] which strengthens our military and builds our communities.
+- [01:50.630] And now it is my distinct honor
+- [01:54.250] to introduce your Commander in Chief,
+- [01:57.250] our leader who maintains a mission of peace
+- [02:01.250] through strength, President Donald J. Trump.
+- [02:06.980] ♪ ("God Bless the U.S.A." by Lee Greenwood) ♪
+- [02:55.310] (applause)
+- [03:02.540] The President: Thank you, everybody.
+- [03:04.230] I love that song. I must tell you.
+- [03:06.430] I was really referring to the song.
+- [03:08.610] They turned it off.
+- [03:09.860] That's terrible, but that's all right.
+- [03:12.240] Honey, thank you very much.
+- [03:13.460] I appreciate it. Please.
+- [03:17.770] So we have an amazing group of people before me, amazing.
+- [03:24.310] And very proud of you. Somebody said --
+- [03:27.080] I was just watching a little news coming down.
+- [03:28.730] They said, oh, it's amazing
+- [03:29.980] he can find the time in his busy schedule.
+- [03:31.810] Believe me, you have -- you're the time.
+- [03:34.310] My schedule is not the time,
+- [03:36.520] although we do have a couple of interesting things happening.
+- [03:39.630] We just had fantastic reports on inflation, way down;
+- [03:44.310] costs of products, way down.
+- [03:45.980] We inherited a mess, a total mess
+- [03:48.270] and now it's really coming along.
+- [03:50.900] We have the greatest numbers that we've ever had.
+- [03:53.890] We're hitting all-time high stock numbers.
+- [03:56.790] We're hitting all time high S&P and Dow numbers.
+- [04:00.330] You saw that a few days ago, at the end of the first year.
+- [04:04.030] They said that it was going to take maybe four years,
+- [04:07.780] the end of the term, to hit 50,000 on the DOW.
+- [04:11.060] We did it in one year. And likewise to hit 7,000
+- [04:17.340] on the S&P was going to take at least four years,
+- [04:19.670] could be five or six. We did it in one year.
+- [04:22.880] So -- and all I know is forget about the stock market,
+- [04:26.200] forget about Wall Street,
+- [04:27.880] your 401(k)s are doing very well.
+- [04:31.010] I don't have to ask you.
+- [04:32.250] Is anybody doing poorly with their 401(k)?
+- [04:35.140] If they were, you're a pretty bad investor, I'll tell you.
+- [04:38.560] But I want to thank Melania. Our country is truly blessed
+- [04:41.230] to have such a phenomenal first lady.
+- [04:47.650] And now she's a movie star on top.
+- [04:49.330] Can you believe? She did a movie.
+- [04:52.100] It's the hottest thing you've ever -- it's crazy.
+- [04:55.270] Congratulations, by the way. Very good.
+- [04:58.200] You know, who loves that movie, the ladies.
+- [04:59.820] They go see it three or four times.
+- [05:01.070] That's what I heard.
+- [05:02.280] They go see it with the husband, husband really likes it a lot,
+- [05:04.440] but the women go back and see it.
+- [05:07.180] But she's a great First Lady.
+- [05:10.130] And I'm thrilled to be back on one of the greatest
+- [05:12.270] and most celebrated military bases
+- [05:15.860] in the history of the world, Fort Bragg.
+- [05:18.450] We have your name back.
+- [05:22.720] We got your name back from the radical left.
+- [05:24.900] The radical left is not happy about it.
+- [05:27.600] It's another reason you have to vote for us,
+- [05:29.180] because they'll change it back to whatever it might be.
+- [05:32.560] This is the home of the legendary
+- [05:34.490] Green Berets, the home of the Sky Dragons
+- [05:37.840] and the All American 82nd airborne.
+- [05:42.270] And particularly here that we are joined
+- [05:45.240] by many exceptional soldiers from the first
+- [05:48.130] Brigade Combat Team, also known as the Devils in Baggy Pants.
+- [05:53.330] What's that all about?
+- [05:55.260] The Devils -- they are devils and you are devils, I will say.
+- [05:59.050] And I have no higher honor in life
+- [06:00.910] than to be your commander in chief.
+- [06:03.160] I'm so proud of you all.
+- [06:05.230] And so let me begin by saying
+- [06:06.990] a very, very big thank you to our great warriors
+- [06:09.440] and the men and women of the United States Army.
+- [06:12.360] Unbelievable.
+- [06:14.290] Very special thanks also to all of the incredible
+- [06:16.740] military families who are here today.
+- [06:18.390] You know, without that family our soldiers
+- [06:21.760] would not be the same. It's a whole big deal.
+- [06:24.760] I don't think they get enough credit,
+- [06:26.330] but they do get credit with me. That's why I sent you a $1,776
+- [06:30.910] a couple of weeks ago, a little while ago.
+- [06:35.630] We had a lot of money coming into our country from tariffs
+- [06:39.390] and I said, let's send a little to our --
+- [06:41.230] you know, they came in, they said, sir,
+- [06:42.500] we can do $1,775. I said, oh, that's good.
+- [06:47.110] They put the number --
+- [06:48.380] I said, you know, if we had one more dollar, it's $1,776.
+- [06:51.510] I said, add a dollar, add a dollar.
+- [06:54.990] Did everybody get $1,776? I think so, right?
+- [07:00.400] Do you think the Democrats would have done that? Forget it.
+- [07:03.750] But it's really because of your incredible sacrifices
+- [07:06.460] to keep America safe and free.
+- [07:08.740] There's nobody more respected than the people in this room.
+- [07:12.170] We're also joined by General Gregory Anderson,
+- [07:15.700] General Brandon Teftmeier, Secretary Howard Lutnick,
+- [07:20.670] Senator Ted Budd. He's doing a fantastic job, too.
+- [07:24.090] Members of Congress, Mark Harris,
+- [07:27.350] Pat Harrigan, Brad Knott, David Roser, Addison McDowell
+- [07:32.830] and your own Congressman from right here in the district,
+- [07:36.370] a really great guy.
+- [07:37.660] He's a real leader, too, Richard Hudson.
+- [07:40.390] Where are they? Where are they all?
+- [07:41.770] Look at them. They're all dressed up.
+- [07:44.560] They have to be nice to you because without your vote,
+- [07:47.180] forget it, they're out of --
+- [07:48.640] they're out of commission, right, fellas?
+- [07:50.800] But what a good job.
+- [07:52.020] And Richard, this is your area, congratulations.
+- [07:54.240] He's always bugging me for more money for Fort Bragg.
+- [07:56.750] I said, Richard, get off my back.
+- [07:58.980] And we're going to do that.
+- [08:00.230] You know, they're talking about a big compound, right?
+- [08:02.000] And we're going to get that done.
+- [08:03.250] We're going to get it done for you.
+- [08:05.010] Now, if the Democrats get in, it's not going to happen,
+- [08:07.310] I guarantee you that, but we're going to get that done.
+- [08:09.560] That's your number one priority, I think.
+- [08:11.170] Richard Hudson: Yes, sir.
+- [08:12.390] The President: Richard Hudson.
+- [08:13.600] So you have another man who is running for the Senate,
+- [08:20.360] who is phenomenal.
+- [08:21.840] The only thing is he's not as well known.
+- [08:23.460] He was behind the scenes.
+- [08:24.680] He was the head of my three campaigns.
+- [08:27.110] I won all three times here by a lot.
+- [08:29.110] It wasn't even close.
+- [08:31.020] And he was responsible, along with Lara Trump.
+- [08:34.310] Lara is fantastic.
+- [08:36.370] Born here and loves the area, but they work together.
+- [08:39.120] But Michael Whatley, if he's here.
+- [08:40.580] I don't know. Michael? Michael.
+- [08:42.790] Michael, will you come here for a second, please?
+- [08:45.830] He's running for the Senate and if he gets in,
+- [08:48.060] you're going to be taken care of.
+- [08:49.260] If he doesn't get in,
+- [08:50.500] we're going to be stripping the military
+- [08:51.880] like they always do, the Democrats.
+- [08:54.050] This is a man who was the head of North Carolina, so --
+- [08:58.180] he did so well that I said,
+- [09:01.270] who is that guy that did so well?
+- [09:02.920] Because when it came time
+- [09:04.560] to picking the head of the Republican Party,
+- [09:07.530] I picked him and you saw what happened in the last election.
+- [09:10.580] We won in a landslide.
+- [09:11.860] We won every swing state, all seven swing states.
+- [09:14.780] We won by millions of votes, the popular vote.
+- [09:17.060] You know, the first time, I won, but they say
+- [09:19.680] I didn't win the popular vote. You know I did.
+- [09:22.270] I won it by a lot, but they say I didn't.
+- [09:23.980] So every time they'd introduce Donald Trump,
+- [09:26.280] who didn't win the popular vote, but he -- you know, whatever.
+- [09:29.840] I was always -- I said, I don't ever want that to happen again.
+- [09:33.150] But we did, we won everything and this is the man that was
+- [09:35.410] in charge of this state. He did so well here.
+- [09:38.650] There was nobody else that I even considered to run the RNC.
+- [09:42.040] That's the whole country. And we had a big, big victory
+- [09:46.090] just recently that you know very well,
+- [09:47.760] a victory like they've never seen.
+- [09:49.050] So I'd just like you to say a couple of words, Michael.
+- [09:50.410] Michael Whatley: Well, thank you, sir.
+- [09:51.630] The President: Congratulations.
+- [09:52.860] Michael Whatley: Absolutely. Thank you.
+- [09:54.120] The President: Thank you very much.
+- [09:55.370] Michael Whatley: Good to see you.
+- [09:56.930] In 2015, Donald Trump came down an escalator
+- [10:01.950] and said that he was going to make America great,
+- [10:04.980] that he was going to protect our country,
+- [10:07.530] that he was going to make sure that our men and women
+- [10:10.460] in uniform had what they needed to protect our interests
+- [10:14.810] and our allies around the world.
+- [10:17.520] And North Carolina stood up and said, that's our guy.
+- [10:22.380] And in his term in office and in this term in office,
+- [10:26.140] there has never been a president who has fought for Fort Bragg,
+- [10:30.060] who has fought for the men and women
+- [10:31.830] in uniform in North Carolina, as well as our veterans,
+- [10:35.440] more and harder and better than Donald J. Trump,
+- [10:39.300] our 45th and 47th president of the United States of America.
+- [10:45.170] I am thrilled that he has asked me
+- [10:48.610] to run for Senate in North Carolina
+- [10:50.970] and is giving me an opportunity to represent you
+- [10:54.910] and to fight for you and every other base
+- [10:58.490] that we have in this great state,
+- [11:01.010] to protect our interests,
+- [11:03.620] to make sure that America and our allies
+- [11:06.740] are going to be protected.
+- [11:08.640] Because the highest most important function
+- [11:10.690] for any government
+- [11:12.210] is to keep its communities and its citizens safe.
+- [11:16.590] And we have the best president right now to do that.
+- [11:20.870] And I am honored to be with him today.
+- [11:22.670] Thank you.
+- [11:23.880] Thank you.
+- [11:25.170] The President: Good to see you.
+- [11:28.340] And the word is he's doing really well,
+- [11:30.100] but when I heard they were taking the name Fort Bragg off,
+- [11:32.400] I said no, no, no, they're kidding.
+- [11:33.960] They're not going to do -- they did --
+- [11:35.450] they took the name off.
+- [11:36.720] We got it back very quickly, but they took it off.
+- [11:39.550] And if we don't win the midterms,
+- [11:41.960] they'll take it off again.
+- [11:43.510] They'll take it off again. You can't let that happen.
+- [11:46.020] And this man is exceptional, I'll tell you right now.
+- [11:48.220] So with the help of everyone in this room,
+- [11:49.770] America has the strongest military
+- [11:52.340] on the face of the earth. We rebuilt it. We really did.
+- [11:55.010] We rebuilt it in my first term. We had a great first term.
+- [11:58.110] We had the best economy in history,
+- [12:00.340] but this is blowing it away.
+- [12:02.130] But we had a great economy in the first term.
+- [12:04.010] We did everything, but we really created a tremendous military.
+- [12:09.240] Now, some of it was given away, actually a lot,
+- [12:11.600] but small compared to what we did to Afghanistan.
+- [12:15.160] You remember that, where they left
+- [12:16.430] all the military equipment behind?
+- [12:18.070] We didn't -- We wouldn't have left anything.
+- [12:19.500] We were going to get out with dignity and strength, respect.
+- [12:23.460] We looked like we were running. We don't run from anybody.
+- [12:27.090] That was a Biden embarrassment.
+- [12:29.120] What a -- what a terrible president.
+- [12:31.600] But we came back and we already have rebuilt
+- [12:35.270] our military to stronger than it was even then,
+- [12:38.200] and we don't leave equipment behind.
+- [12:39.880] We don't leave jets behind.
+- [12:41.220] I said, why did you leave those jets behind?
+- [12:43.240] Sir, I thought it was cheaper to leave it behind.
+- [12:45.690] You know, $150 million plane.
+- [12:47.340] All they had to do was put a little jet fuel in there
+- [12:49.720] and fly it to wherever they want to fly it.
+- [12:51.280] These people were the worst. We can't let it happen again.
+- [12:54.800] Our military, if the Democrats get in,
+- [12:57.300] will be severely mis-served.
+- [13:00.730] But we rebuilt it in my first term
+- [13:02.480] and now we're making it stronger and bigger
+- [13:05.060] and better than ever before.
+- [13:06.640] The recruiting is through the roof. You know that.
+- [13:08.440] After years of recruiting shortfalls, as an example,
+- [13:11.760] new enlistments have soared to record highs.
+- [13:13.860] We had -- a year and a half ago,
+- [13:15.980] nobody wanted to join the military.
+- [13:17.390] They didn't want to join the Army.
+- [13:19.370] You know that. It was, like, terrible.
+- [13:23.470] They didn't want to join the Army, the Navy,
+- [13:25.260] the Air Force, the Marines, the Coast Guard or my beloved --
+- [13:30.350] how about that, Space Force? Do we like Space Force?
+- [13:33.270] It's turning out to be very important.
+- [13:35.410] But they tried to end that and actually,
+- [13:37.500] the military refused to allow that to happen.
+- [13:40.310] But they -- you couldn't get people to join.
+- [13:43.410] And as soon as we won the election,
+- [13:45.410] that election took place on November 5th.
+- [13:47.260] From November 5th on, it was like a miracle.
+- [13:50.610] Now we have waiting lists for every branch of the military,
+- [13:53.260] waiting lists of people to get in.
+- [13:55.200] In other words, your jobs are wanted by everybody.
+- [14:00.050] And isn't that a better feeling? I'm looking at smiling faces.
+- [14:03.490] We got a lot of smiling faces. You should be smiling.
+- [14:06.810] Last year, the Navy and Air Force and Space Force
+- [14:10.600] all surpassed their recruiting goals by five months early,
+- [14:16.470] and the numbers are through the roof.
+- [14:18.000] In fact, be a very good time to expand.
+- [14:20.490] You know, it's a good time to expand.
+- [14:22.710] But the Army did even better than the others
+- [14:25.480] and you shattered your annual recruitment
+- [14:28.070] by almost five months and lots of days.
+- [14:31.950] But more importantly, the number and the quality of recruit
+- [14:34.920] has never been higher.
+- [14:37.080] This year, the Army is beating its recruitment goal
+- [14:39.360] by 116 percent and I'm very proud of that.
+- [14:44.370] I was very embarrassed for a period of years
+- [14:47.800] as I watched how badly this country was run,
+- [14:50.310] standing outside and hearing constantly
+- [14:52.880] that we couldn't get people to join our great forces.
+- [14:57.800] We ended the scourge of political correctness
+- [15:00.880] in our military.
+- [15:02.400] We renamed the Department of Defense
+- [15:04.710] to the Department of War. Think of it, we won World War I.
+- [15:09.420] We won everything, World War II
+- [15:12.070] and everything before, during and a little bit after,
+- [15:16.040] except we fought a little bit differently.
+- [15:17.730] We fought to be politically correct.
+- [15:21.470] We were a politically correct force with the presidents.
+- [15:25.000] But now we have a real force and you see that
+- [15:27.970] with what we did in Iran with the B-2 bombers.
+- [15:32.710] A lot of you were involved in that.
+- [15:35.380] And what we did recently in Venezuela,
+- [15:37.390] nobody ever Saw anything like that happen.
+- [15:39.380] A Venezuelan general who was on the site,
+- [15:42.090] but he moved out fast enough that he lived,
+- [15:45.050] because most of them didn't. But he was on the site.
+- [15:47.210] He said, we were totally prepared.
+- [15:49.790] We saw the planes coming. We saw everything coming.
+- [15:52.440] You know, they're a good, strong force.
+- [15:54.830] And he said, we got hit like nobody's --
+- [15:57.600] they were hit from 17 different directions.
+- [15:59.570] They said, there's never been anything like that.
+- [16:02.060] It was over in like literally a minute.
+- [16:03.910] Everybody was running for the hills.
+- [16:06.470] And that's what we have,
+- [16:08.160] we have the strongest military in the world by far.
+- [16:10.310] We have the best equipment.
+- [16:12.060] We have the greatest people, soldiers.
+- [16:15.750] We brought back merit as the sole consideration
+- [16:19.130] for advancement and promotion in our military.
+- [16:21.310] We won the Supreme Court case, shockingly in that case.
+- [16:24.770] It took courage to come up with that decision.
+- [16:27.700] It's based on merit.
+- [16:28.900] Now you want to get into a college, it's based on merit.
+- [16:31.290] It's not based on anything else.
+- [16:33.370] You want to get into the military,
+- [16:34.910] you've got to have a little muscle.
+- [16:37.390] You got to be strong, like these people here.
+- [16:40.060] It's like -- you're like central casting.
+- [16:41.920] I'm looking at all these beautiful-looking people.
+- [16:45.050] But you have to be a certain type to do well
+- [16:48.590] and we were taking anybody that wanted to get in,
+- [16:52.150] because we wanted to be politically correct.
+- [16:53.910] No, no, it's based on merit now.
+- [16:55.570] You get into the military based on merit
+- [16:58.210] and other places also based on merit.
+- [17:00.060] There might be advantages to other people in other fields,
+- [17:04.480] but this is all based on merit.
+- [17:05.970] As long as I'm president, we will be the best led,
+- [17:09.360] the best trained, the best equipped,
+- [17:11.350] the most disciplined
+- [17:13.260] and the most elite fighting force the world has ever seen.
+- [17:16.350] That's what we've turned out to be and everybody knows it.
+- [17:19.540] They all know it. Every -- every country knows it.
+- [17:21.750] I speak to all of them.
+- [17:22.970] They know exactly what they would be up against.
+- [17:25.660] Hopefully, we'll never have to test them.
+- [17:28.700] And because of our strength and because of what we do,
+- [17:31.940] we probably won't have to be tested.
+- [17:34.460] That's why this year we're investing also $1 trillion
+- [17:39.780] in our armed forces, most we've ever spent.
+- [17:42.130] And next year it's being raised.
+- [17:44.220] In fact, we're going to be building
+- [17:46.110] a number of battleships.
+- [17:47.460] You ever hear of battleship?
+- [17:48.660] You know, World War II, you saw those big ships,
+- [17:51.350] the Iowa, the Alabama, the Missouri.
+- [17:53.800] They're going -- they're sailing through that water
+- [17:55.740] like it's nothing --
+- [17:56.970] those big waves are crashing into the front.
+- [18:00.000] The hulls are made of seven inches of steel,
+- [18:02.240] not aluminum. Aluminum is fine, by the way.
+- [18:04.360] I don't want to hurt the industry.
+- [18:05.790] We're doing very well. But I'll take steel.
+- [18:08.960] And it's going through those waves
+- [18:10.360] like it's a hot knife through butter, right?
+- [18:14.400] And it was incredible. It was a great thing.
+- [18:19.030] It was a great act of beauty when you looked at that,
+- [18:21.860] the scenes, Victory at Sea.
+- [18:23.100] I don't know -- has anyone ever seen Victory at Sea?
+- [18:25.190] Probably, the ones that have would have joined
+- [18:27.310] the armed forces when you have, but Victory at Sea.
+- [18:30.240] And you looked at those battleships.
+- [18:31.850] So now we're building 10 of them, initial order, 10.
+- [18:36.650] And I said what about reinstating the old ships?
+- [18:39.780] We have some of them in dry dock.
+- [18:41.330] Some of them are in museums right now,
+- [18:44.330] like the Iowa is in Rancho Palos Verdes in California.
+- [18:48.500] You have a couple of them
+- [18:49.960] and they're still very powerful-looking to me.
+- [18:53.560] So I said, what about bringing them back?
+- [18:55.380] They said, sir, it'd be no good. Why do you say that?
+- [18:58.630] The new battleship that we have,
+- [19:00.250] which I've seen and helped design,
+- [19:01.990] I put a little more spirit in the hull, a little more --
+- [19:05.080] give me a little bit more hull and give me --
+- [19:07.430] I want that ship to look gorgeous.
+- [19:09.110] You know? Forget about stealth. They say, oh, it's stealth.
+- [19:12.260] They design ugly equipment for stealth.
+- [19:13.970] Well, we're designing great- looking equipment, also stealth.
+- [19:17.200] But I said, well, what about bringing it back?
+- [19:21.090] Sir, the new ships, the new battleships that we have --
+- [19:24.760] almost, very soon under construction will be,
+- [19:27.400] listen to this, 100 times more powerful
+- [19:31.610] than the ships that we got to sea in the 1940s.
+- [19:34.900] Think of that, 100 times more powerful.
+- [19:37.990] We need that. This way, nobody messes with us, right?
+- [19:41.640] We need it. For every service member in our military,
+- [19:43.950] this historic investment also includes
+- [19:46.680] a well-deserved across the board pay raise,
+- [19:49.280] not including $1,776.
+- [19:52.160] And in my request just before Christmas, we did the --
+- [19:55.900] and really in honor of the 250th anniversary,
+- [19:59.600] we did that a little special payment,
+- [20:01.240] which everybody appreciated.
+- [20:02.710] And it was an honor for me to do it.
+- [20:05.190] As part of the One Big, Beautiful Bill
+- [20:06.770] that we got approved, which was amazing
+- [20:08.640] because it really encompasses all four years of the term,
+- [20:12.760] we'll also be investing over $1 billion
+- [20:15.690] to improve on-base housing,
+- [20:17.790] and a lot more than that at Fort Bragg.
+- [20:20.260] We're going to be doing --
+- [20:21.530] if we get the Congressman's wish,
+- [20:23.090] we're going to be doing a lot more than that.
+- [20:25.280] We're also going to spend billions of dollars
+- [20:28.230] on improving here and around the area.
+- [20:31.840] We're going to make it great, because the people in this area
+- [20:34.450] have been so incredible, the spirit they had.
+- [20:37.280] When they changed the name of this base,
+- [20:39.030] the spirit, not even military people,
+- [20:41.670] they were so proud of that name, Bragg.
+- [20:44.240] They said, we have to -- we have to bring it back
+- [20:46.630] and keep the area safe. It's a great area.
+- [20:49.530] In fact, I'm thinking about moving here someday.
+- [20:51.440] Maybe I'll -- maybe I'll move here with our great movie star.
+- [20:55.450] I'll move here with our first lady.
+- [20:58.200] We'll move to Fort Bragg. Would you like that darling?
+- [21:00.580] The First Lady: Very much.
+- [21:01.810] The President: Ah, she loves you.
+- [21:03.120] It's a possibility.
+- [21:04.360] Actually, it's not a bad idea, because we love it.
+- [21:08.260] But we want to keep this area safe
+- [21:09.920] and we can't do that without the leaders.
+- [21:13.210] And your ex-governor is not one of them.
+- [21:16.810] It'll be a disaster if he got in.
+- [21:18.450] And one of the things that I just mentioned and saw,
+- [21:21.610] you saw the monster that killed an innocent young,
+- [21:25.600] Ukrainian girl a couple of months ago,
+- [21:28.710] slitting her throat from behind.
+- [21:30.980] And this was the man -- the governor that allowed
+- [21:32.970] this man to get out and to do that.
+- [21:35.660] We don't do that. We don't do that.
+- [21:37.600] Everybody knew he was trouble, many, many crimes,
+- [21:40.320] one of the worst pasts I've ever seen.
+- [21:42.740] And she sat down, she had her throat slit,
+- [21:45.850] and that's not going to happen with Michael Whatley.
+- [21:47.690] That I can tell you.
+- [21:48.930] So I just want to tell you, it's very important.
+- [21:51.360] Because our military has to be protected.
+- [21:53.790] Our people have to be protected
+- [21:55.670] and they will decimate our military.
+- [21:57.630] Every time you come in as a Republican --
+- [21:59.390] a lot of Republicans,
+- [22:00.620] they come in, they don't do anything about it.
+- [22:02.110] I do beyond what anyone's ever done, not even close.
+- [22:05.490] To give you all of the equipment you need,
+- [22:07.870] we're also purchasing 30 new and modified Abrams tanks.
+- [22:12.030] Still the best tank, right, still?
+- [22:14.510] It was named in honor of Stacey Abrams.
+- [22:20.170] Only a few very political people would understand that.
+- [22:23.120] Congratulations.
+- [22:24.410] Thank you very much for a great name, Stacey.
+- [22:27.390] But brand new Abrams tanks,
+- [22:28.960] 48 new Blackhawk Chinook and King Stallion helicopters,
+- [22:33.280] the best in the world, the -- the latest equipment,
+- [22:35.110] and 86 armored multi-purpose fighting vehicles,
+- [22:38.890] all of the things that you've been wanting to get,
+- [22:41.090] all brand new.
+- [22:42.290] And not only we're going to be reviving our strength,
+- [22:46.200] we're going to be doing many other things
+- [22:48.340] that nobody thought was even possible.
+- [22:50.710] And we're actually using that strength to defend the core
+- [22:53.250] and vital interests of the United States.
+- [22:55.520] And very simply put, America first.
+- [22:59.310] You know, it's all about America first.
+- [23:00.770] We were putting America last.
+- [23:02.130] These people that were running our country
+- [23:04.800] were putting us last.
+- [23:06.780] We're now America first and we'll help other countries.
+- [23:09.990] We have a very good relationship with NATO,
+- [23:11.760] but NATO took advantage of us for many years.
+- [23:14.410] We were paying for almost 100 percent of NATO.
+- [23:16.340] Now they're paying their own bills.
+- [23:17.730] I got them to pay. We took them from not paying two percent GDP
+- [23:21.790] to paying in full, five percent
+- [23:24.370] GDP, big difference, like day and night.
+- [23:27.630] With the help of our military,
+- [23:28.880] we stopped the invasion on our southern border.
+- [23:31.720] For nine straight months, zero illegal aliens
+- [23:34.560] have been admitted into the United States
+- [23:36.380] and that's done by the radical left.
+- [23:38.680] Those charts are made up by the radical left.
+- [23:40.560] So I can't imagine that they could be wrong,
+- [23:42.370] because it seems hard to believe we could have had zero.
+- [23:45.410] My friends, these are early supporters.
+- [23:47.010] I have so many supporters up here.
+- [23:49.020] How the hell did you get into the military base?
+- [23:50.960] It's amazing. I'm a little worried about that.
+- [23:53.440] Let's check security. But no, I have so many.
+- [23:56.230] You know, I have women from North Carolina,
+- [23:59.270] it's about 50 or 60 of them
+- [24:01.680] and they followed me all over the place.
+- [24:04.770] Where are they? They got to be here.
+- [24:06.860] Oh, yeah, there they are. They're great.
+- [24:09.100] Oh, there they are.
+- [24:10.440] They -- uh, there are sometimes 50
+- [24:13.410] and I don't know what the hell is going on with their husband
+- [24:15.380] because they're, you know, traveling to California.
+- [24:17.330] They're all over the place.
+- [24:18.760] But they've gone to almost 200 rallies and it's it's so --
+- [24:23.610] it's so great. It's so great. We have Susie Wiles here also,
+- [24:26.970] who's the first female chief of staff.
+- [24:32.020] And she's done a fantastic job.
+- [24:33.680] And she's standing right next to those great patriots
+- [24:36.290] from North Carolina. No, they would go all over.
+- [24:37.800] It didn't matter where I was.
+- [24:39.090] Sometimes I'd see them -- like, I made a speech in London.
+- [24:41.640] They ended up being -- they must be pretty wealthy.
+- [24:43.680] That's all I know, because they do a lot of traveling.
+- [24:46.150] But thank you very much for being here
+- [24:47.550] and for your support for years,
+- [24:49.010] because they were there right at the beginning, 2015,
+- [24:51.940] even 20 -- 2015, before we started.
+- [24:55.950] They were -- some of them were there before I even announced.
+- [24:58.380] They said, he'll be a good president,
+- [24:59.870] we need a good president.
+- [25:01.600] But they're amazing patriots. Thank you very much.
+- [25:04.690] Appreciate it. And last summer,
+- [25:07.970] I ordered devastating strikes on Iran's key nuclear facilities
+- [25:11.580] and something that was called Operation Midnight Hammer.
+- [25:15.030] That's exactly what it was.
+- [25:17.020] 1:00 in the morning at midnight with no moon.
+- [25:20.290] You couldn't see a thing. And I got the message, sir,
+- [25:23.560] they have entered Iranian airspace.
+- [25:27.200] And I got to see it all on -- on -- take place.
+- [25:30.190] It was amazing, the B-2s, the flying wing.
+- [25:34.180] And I didn't understand the B-2s until then,
+- [25:36.320] but now I understand it very well.
+- [25:37.820] So does -- we just ordered
+- [25:39.060] a lot more super-duper new model, right?
+- [25:42.620] But they flew in, they were totally undetected.
+- [25:45.730] And those pilots, I met the pilots,
+- [25:47.310] I had them down to the White House in the Oval Office.
+- [25:49.640] I gave them all medals, actually.
+- [25:52.410] And I said, do you really like doing this stuff?
+- [25:55.470] You know, they're flying into very hostile territory.
+- [25:58.790] And they said, sir, we couldn't wait.
+- [26:01.960] In fact, they wanted to wait.
+- [26:03.870] You saw what was happening. People wanted to wait.
+- [26:06.340] And the pilots and their commander called me
+- [26:08.540] and said, sir, we're ready to go,
+- [26:10.230] don't worry about that, that weather is nothing.
+- [26:12.330] We want to go, sir, we want to go.
+- [26:15.380] Now, if it were me, I'd say take it easy, let's relax.
+- [26:18.750] But you know, you people have a lot of courage,
+- [26:21.010] amazing, amazing. So we gave them medals.
+- [26:23.460] But that was Operation Midnight Hammer,
+- [26:26.240] achieving total obliteration of the Iran
+- [26:29.730] nuclear potential capability, totally obliterated.
+- [26:33.930] And think, every single one of those 100,000 pound bombs
+- [26:37.580] hit its target, which happens to be an air shaft
+- [26:40.460] that goes directly into the facility.
+- [26:43.120] I don't think they'll be building airships anymore.
+- [26:45.250] That's not a good concept. They wanted to get a little air.
+- [26:47.610] They wanted to get a little fresh air.
+- [26:49.000] It didn't work out too well.
+- [26:50.860] No other country on earth could have done what we did.
+- [26:53.090] No other country has the weapons.
+- [26:55.310] No other country has the skill.
+- [26:57.390] No other country has the guts and no other country
+- [27:00.240] has the extraordinary warriors that we have.
+- [27:02.080] We have the best warriors in the world.
+- [27:03.790] Because you can have the greatest equipment,
+- [27:05.680] but if you don't have the warriors,
+- [27:07.120] the equipment doesn't mean much.
+- [27:09.310] Last month, we proved this truth once again,
+- [27:12.460] when some of our greatest soldiers,
+- [27:14.120] right here, to ever live,
+- [27:17.290] frankly, successfully captured the outlaw,
+- [27:20.500] dictator of Venezuela, Nicolas Maduro
+- [27:24.430] and brought him back to face American justice,
+- [27:26.770] where he's now, right now waiting.
+- [27:29.310] And that was an amazing night. People saw that.
+- [27:33.790] They -- they've never seen anything like it.
+- [27:35.750] You know, it's a pretty military country.
+- [27:37.580] It was a big base, one of the biggest bases
+- [27:39.860] in South America, where he lived.
+- [27:43.600] And it was in a matter of minutes
+- [27:45.140] before he was on a helicopter being taken out of there.
+- [27:48.200] They had to go through steel doors, the steels were like --
+- [27:50.200] It was like papier mache.
+- [27:51.450] You know what papier mache is, that's weak paper.
+- [27:54.250] These guys blasted through every door.
+- [27:56.770] They got up to him before he got to the big safe.
+- [27:58.540] But that wouldn't have worked either
+- [27:59.860] because they had equipment that was going to knock that out
+- [28:01.930] in a matter of minutes, but he never got there.
+- [28:06.520] It went so fast. Think of it,
+- [28:08.450] in a matter of minutes when people realize what happened,
+- [28:11.050] they're looking up and there's the helicopter
+- [28:13.360] heading back to aircraft carriers.
+- [28:16.430] So that night, the entire world saw what the full military
+- [28:19.840] might of the US military is capable of.
+- [28:23.050] And that was an unbelievable operation,
+- [28:25.850] but that was a smaller operation.
+- [28:28.190] But it was so precise, so incredible.
+- [28:30.690] Nobody thought a thing like that could happen.
+- [28:33.630] They even talk about the discombobulated
+- [28:35.740] because they never got a shot off.
+- [28:37.910] The Russian equipment didn't work.
+- [28:39.380] The Chinese equipment didn't work.
+- [28:40.890] Everyone's trying to figure out why it didn't work.
+- [28:44.020] Someday you're going to find out, but it didn't work.
+- [28:47.800] It's nice when you can fly in and not get shot at.
+- [28:50.670] Although we did have three helicopter pilots
+- [28:52.680] who were wounded pretty badly in the legs,
+- [28:55.490] landing on a couple of -- machine gunners
+- [28:59.290] seemed to have make it through a thicket of bombs.
+- [29:01.760] But they were taken out rapidly by our snipers
+- [29:05.890] who were stationed on platforms,
+- [29:08.160] actually unbelievable helicopter platforms
+- [29:11.470] all the way the line and they were taken out immediately.
+- [29:14.590] And those pilots were incredible and really brave.
+- [29:16.600] I may see some of them very shortly.
+- [29:19.490] They were hit pretty bad in the legs.
+- [29:22.010] You know, they're landing a big chopper
+- [29:24.560] and they're being shot at from close range by a machine gun,
+- [29:28.700] so that's not a comfortable feeling.
+- [29:30.230] They landed it perfectly and they got out of there perfectly.
+- [29:33.750] And they're just brave guys and very talented, skilled people.
+- [29:37.680] With your help, America is winning again.
+- [29:39.430] America is respected again.
+- [29:41.440] And perhaps most importantly,
+- [29:42.830] we are feared by the enemies all over the globe.
+- [29:47.020] They fear us. And you know, I don't like to say fear,
+- [29:49.060] but sometimes you have to have fear
+- [29:51.150] because that's the only thing
+- [29:52.490] that really will get the situation taken care of.
+- [29:56.090] We have a situation right now
+- [29:57.470] where we sent a very big carrier group to Iran.
+- [30:03.350] I'd love to see if we could make a deal.
+- [30:04.870] They've been difficult to make a deal.
+- [30:06.370] I thought we would have had a deal last time.
+- [30:07.910] They wished they did and that's why we did Midnight Hammer.
+- [30:11.810] But uh, with the restored strength
+- [30:15.460] and the tremendous power that we've now built up
+- [30:17.550] over the last number of years, even though we were --
+- [30:20.080] there was an interlude with Biden,
+- [30:21.950] who was the worst president in the history of our country.
+- [30:25.570] But the interlude fortunately was ended quickly
+- [30:27.950] and we started the process again and --
+- [30:30.480] and built upon what we had already done
+- [30:31.960] the first four years.
+- [30:33.190] But we're also bringing peace all over the world.
+- [30:35.920] I ended eight wars in just 10 months.
+- [30:37.770] Eight wars are ended and we have a couple of more to go
+- [30:41.430] but one in particular, Russia, Ukraine.
+- [30:43.740] It's a mess, it's a horrible thing
+- [30:46.160] and I think we'll get there. It takes two to tango.
+- [30:49.320] You have to remember that. And we have to get there.
+- [30:52.990] Tremendous casualties, number of casualties.
+- [30:56.440] There's a war that if we were involved in that war,
+- [30:58.450] it would have been over very quickly and effectively.
+- [31:00.970] But we're not, fortunately.
+- [31:02.980] In fact, we're not spending any money.
+- [31:04.830] We are spending and sending weapons to NATO.
+- [31:08.600] And because of the increase from two percent
+- [31:10.940] to five percent of GDP
+- [31:12.250] that the NATO countries are paying,
+- [31:14.100] they pay us full for the weapons
+- [31:16.620] and then they distribute the weapons to mostly,
+- [31:19.770] I guess Ukraine, but that's up to them.
+- [31:21.770] They buy them.
+- [31:23.230] And we do make the greatest weapons of any country
+- [31:26.010] in the world by far, most effective weapons.
+- [31:28.820] So my message to all of the warriors here today
+- [31:31.260] is that your commander in chief supports you totally.
+- [31:35.620] I have -- I support you more than --
+- [31:37.790] I know you've had a couple of good ones,
+- [31:39.440] not that many, if you want to know the truth.
+- [31:42.080] But we support you more than any of them
+- [31:45.270] and you're going to get out and when needed,
+- [31:47.260] you're going to fight, fight, fight,
+- [31:48.460] you're going to win, win, win.
+- [31:50.380] And we're going to continue to make our country bigger
+- [31:54.160] and better and stronger than ever before.
+- [31:56.450] And that's exactly where we are right now.
+- [31:58.010] We are the most respected country anywhere in the world.
+- [32:02.060] And I say it, the king of Saudi Arabia
+- [32:03.710] told me when I was there, he spent $2 trillion.
+- [32:06.470] We have $18 trillion being invested right now
+- [32:09.260] in our country from other companies
+- [32:11.690] and countries all over the world.
+- [32:13.600] The most any country has ever had is $3 trillion
+- [32:16.520] that was a long time ago
+- [32:18.140] and it didn't happen to be us, it was another country.
+- [32:20.220] It starts with a C.
+- [32:21.850] Can you imagine what I'm talking about, China?
+- [32:24.610] But we have $18 trillion being invested.
+- [32:27.120] As an example, in the Biden four years
+- [32:29.950] they had less than a trillion.
+- [32:31.780] Think of this, less than a trillion over four years.
+- [32:33.890] We have $18 trillion in 11 months
+- [32:37.290] because we haven't gotten the final numbers on the 12 month,
+- [32:40.020] so that's only going to go up.
+- [32:41.830] There's never been anything like it.
+- [32:43.640] But the king of Saudi Arabia looked at me
+- [32:45.300] and says, you know, a year and a half ago,
+- [32:47.900] I thought the United States of America was finished.
+- [32:51.450] I thought it was dead.
+- [32:53.250] And now you have the hottest country anywhere in the world.
+- [32:56.840] We have the hottest country anywhere in the world.
+- [32:58.930] And you're a very, very big part of it.
+- [33:01.190] Thank you to the Army. Thank you to everybody here.
+- [33:04.210] Thank you also to our great politicians.
+- [33:06.240] They're great leaders and they love you as much as I do.
+- [33:09.180] Thank you very much, everybody. Thank you.
+- [33:14.770] ♪ ("Y.M.C.A" by the Village People) ♪

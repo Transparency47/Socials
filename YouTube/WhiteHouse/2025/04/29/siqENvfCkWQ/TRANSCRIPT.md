@@ -1,0 +1,634 @@
+<!-- source: https://www.youtube.com/watch?v=siqENvfCkWQ -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: siqENvfCkWQ -->
+<!-- date_published: 2025-04-29T13:10:54+00:00 -->
+<!-- date_accessed: 2026-06-02T02:51:13.469027+00:00 -->
+
+# Transcript: Press Secretary Karoline Leavitt and Scott Bessent Brief Members of the Media, Apr. 29, 2025
+
+- [00:01.620] Mrs. Leavitt: Good morning, everybody.
+- [00:02.850] The Press: Good morning.
+- [00:04.080] Mrs. Leavitt: Happy first 100 days.
+- [00:06.530] Before we begin, I want to acknowledge that the bipartisan
+- [00:09.730] Take It Down Act passed the House last night.
+- [00:12.570] This important legislation was championed
+- [00:14.620] and guided through Congress
+- [00:15.910] by our wonderful First Lady, Melania Trump,
+- [00:18.760] including through her direct advocacy
+- [00:20.700] on behalf of survivors during the passage efforts.
+- [00:25.230] The Take It Down Act criminalizes the publication
+- [00:27.610] of non-consensual intimate imagery,
+- [00:30.390] and require social media and similar websites
+- [00:33.180] to remove such content within 48 hours of notice from a victim.
+- [00:37.410] The First Lady thanks all those
+- [00:39.330] who voted in favor of this important legislation,
+- [00:42.430] and the President looks forward to signing it
+- [00:44.380] when it arrives on his desk.
+- [00:46.330] Today officially marks 100 Days of promises made
+- [00:49.630] and promises kept by President Trump.
+- [00:52.420] This has truly been the most historic start
+- [00:55.200] to a presidency in American history.
+- [00:57.860] After building the greatest economy in the world
+- [01:00.650] in his first term as President,
+- [01:02.940] President Trump is in the process of doing
+- [01:04.880] that all over again.
+- [01:06.620] The American people trust in President Trump.
+- [01:10.110] Since his first day in office, President Trump has focused
+- [01:12.970] on defeating the Biden inflation crisis,
+- [01:15.700] bringing down the cost of living,
+- [01:17.590] and making the United States the best place in the world
+- [01:20.370] to do business, invest, create jobs, and innovate.
+- [01:24.320] And President Trump's efforts are working.
+- [01:27.320] 345,000 jobs have already been added
+- [01:30.820] since the start of President Trump's term.
+- [01:33.470] Last month's Jobs Report saw nearly 100,000 more jobs
+- [01:36.850] than economists predicted,
+- [01:38.110] and it was the fourth-highest month
+- [01:40.280] for private payroll growth in the past two years.
+- [01:43.840] 9,000 manufacturing jobs have been added
+- [01:46.700] to the economy already.
+- [01:48.160] This is a sharp contrast to the 6,000
+- [01:50.760] manufacturing jobs that were lost each month
+- [01:53.940] in the final two years of the Biden administration.
+- [01:57.320] The US employment rate remains at historic lows.
+- [02:00.850] And thanks to President Trump,
+- [02:02.100] Americans are seeing price relief
+- [02:04.160] for the first time in years.
+- [02:06.070] The last inflation report showed the first consumer price decline
+- [02:09.180] since the Covid pandemic, a decrease in energy prices,
+- [02:12.600] and real average hourly wage growth.
+- [02:15.050] President Trump is delivering on his promises to lower costs
+- [02:18.230] for American families and businesses.
+- [02:20.610] Prices across the board for everyday goods have seen decline
+- [02:23.730] since this President was inaugurated.
+- [02:25.900] From airfare to use motor vehicles to prescription drugs,
+- [02:29.680] prices are dropping.
+- [02:31.050] In fact, last month's drop in the price of prescription drugs
+- [02:34.120] was the largest ever recorded.
+- [02:36.530] And after Joe Biden botched the response to the Bird flu,
+- [02:39.670] President Trump and Secretary Rollin's aggressive plan
+- [02:42.520] have brought down wholesale egg prices
+- [02:44.770] more than 50% from Inauguration Day.
+- [02:47.990] President Trump ended Joe Biden's reckless war
+- [02:50.870] on energy and fossil fuels,
+- [02:52.740] and has restored American energy dominance.
+- [02:55.960] And Secretary Wright and Secretary Doug Burgum
+- [02:57.970] are working hard on that effort every single day.
+- [03:00.540] Oil and gas prices are now way down
+- [03:02.650] because of this bold approach. Gasoline price is down 7%.
+- [03:07.510] Energy prices are also down as well.
+- [03:09.920] The Department of Interior just announced a new offshore
+- [03:12.370] drilling policy that will boost oil production
+- [03:14.640] in the Gulf of America by 100,000 barrels per day.
+- [03:19.350] On the deregulation front,
+- [03:20.760] president Trump is committed to cutting senseless red tape,
+- [03:24.060] especially for America's small business owners
+- [03:26.760] who are the backbone of our economy.
+- [03:29.340] We know cutting regulation leads to lower costs
+- [03:31.910] and higher growth.
+- [03:33.180] The mass deregulation effort by this administration
+- [03:35.810] will help usher in the Golden Age of America,
+- [03:39.410] which is underway. Immediately upon taking office
+- [03:42.510] President Trump blocked all of the unfinalized Biden era rules,
+- [03:47.400] saving Americans more than $100 billion dollars,
+- [03:51.000] or $2,100 per family of four over the next decade.
+- [03:55.560] And the President also launched a bold multi-agency effort
+- [03:58.810] to roll back existing federal regulations
+- [04:01.360] that drive up the cost of living on hardworking families.
+- [04:04.750] This effort is projected to yield significant
+- [04:07.050] cost savings in the coming months,
+- [04:08.780] including the EPA's rollback of tailpipe
+- [04:11.360] emission rules for light duty and medium duty vehicles,
+- [04:14.700] and the Department of Transportation's latest
+- [04:16.510] corporate average fuel economy standards.
+- [04:19.310] These two efforts alone yield $755 billion in total savings,
+- [04:24.680] or more than $8,800 per family of four over the next decade.
+- [04:29.050] In total, the combined savings from all of these actions
+- [04:32.420] equal just over $935 billion,
+- [04:36.380] or nearly $11,000 in real savings per family
+- [04:39.140] of four per the coming decade.
+- [04:41.390] The press is not talking nearly enough about the positive impact
+- [04:44.780] of President Trump's deregulation campaign,
+- [04:47.570] and investments from the biggest companies and countries
+- [04:50.420] in the world are pouring in under this President.
+- [04:53.760] So far, total investment commitments
+- [04:55.770] under the Trump administration
+- [04:57.050] have reached more than $5 trillion,
+- [04:59.990] including $500 billion from Apple in US-based
+- [05:02.720] manufacturing and training,
+- [05:04.340] $500 billion from NVIDIA in AI infrastructure,
+- [05:07.770] $100 billion from TSMC in US-based chips manufacturing,
+- [05:11.920] and the $500 billion private investment by OpenAI, Oracle,
+- [05:15.480] and SoftBank in AI infrastructure as well.
+- [05:18.870] All of these investment commitments are estimated
+- [05:21.180] to generate at least 451,000 new high paying jobs
+- [05:26.620] for American workers and families.
+- [05:29.160] At this point, President Trump has secured more investments
+- [05:32.140] in the United States of America in 100 days
+- [05:34.980] than Joe Biden did in four years.
+- [05:37.590] President Trump is America's Businessman in Chief,
+- [05:40.270] and that's why these trillions of dollars in investments
+- [05:42.910] are flooding to our country.
+- [05:45.290] The business community is bullish on America
+- [05:47.770] because President Trump is back in charge.
+- [05:50.540] Tomorrow the President will host CEOs and leaders
+- [05:53.140] from several companies that have made these investments
+- [05:55.320] to tout their historic commitments to our country
+- [05:57.890] and encourage others to follow suit.
+- [06:00.340] Under President Trump, there has never been a better time
+- [06:03.550] to invest in America. And the President finally said,
+- [06:06.970] enough is enough and refused to allow America
+- [06:09.360] and our workers to be ripped off any longer on trade.
+- [06:13.470] President Trump implemented powerful tariffs
+- [06:15.690] to end the era of economic surrender
+- [06:17.780] and to rebalance America's trading agreements.
+- [06:20.680] More than 100 countries have already come to the table
+- [06:23.710] looking to offer more favorable terms for America
+- [06:27.060] and our people.
+- [06:28.340] There has never been a president who has created his own leverage
+- [06:31.210] like this president, and we are just getting started.
+- [06:34.000] Republicans in Congress are getting very close
+- [06:36.170] to passing president Trump's one big, beautiful bill,
+- [06:39.210] which will include the largest tax cuts in American history,
+- [06:42.620] strong border security measures, major military advancements,
+- [06:46.530] dramatic deregulation and common sense spending reforms.
+- [06:50.200] As President Trump has said before, the best is yet to come.
+- [06:54.070] For more on President Trump's economic successes so far,
+- [06:56.970] and the plans ahead,
+- [06:58.280] I want to pass it off to our incredible
+- [07:00.140] Treasury Secretary Scott Bessent, who is here today
+- [07:03.350] and we will open it up to questions.
+- [07:05.150] In our new media seat, we have Brendan Pearson,
+- [07:07.710] the financial services reporter for Punchbowl News.
+- [07:10.490] Punchbowl News covers power,
+- [07:11.860] people and politics based in Washington DC.
+- [07:14.760] Laser focused on Capitol Hill, the politics of legislating.
+- [07:18.210] Founded in 2021 and it is the first newsletter
+- [07:21.230] that Capitol Hill and the White House
+- [07:22.980] reads every morning in the middle of the day
+- [07:25.060] and throughout the evening.
+- [07:26.400] Thanks for being here with us and we'll start with you today.
+- [07:30.940] The Press: Thanks so much for being here.
+- [07:32.220] I have a question for Secretary Bessent.
+- [07:35.710] On tariffs, the president said over the weekend
+- [07:38.760] that we are hoping
+- [07:40.120] that maybe tariff revenues could replace income tax.
+- [07:44.910] But we also keep hearing about the deals
+- [07:47.090] that the administration is pursuing.
+- [07:49.020] So my question is,
+- [07:50.540] what is the White House's ultimate objective here?
+- [07:54.830] Do you want to have long-term tariff revenue?
+- [07:57.910] Or deals that might reduce those tariffs?
+- [08:01.750] Mr. Bessent: I think it's a combination of both.
+- [08:03.300] So we're going to take in long-term tariff revenue.
+- [08:05.740] We put a process in place.
+- [08:07.900] We have 18 important trading relationships.
+- [08:11.550] We will be speaking to all of those partners,
+- [08:15.620] or at least 17 of them over the next few weeks.
+- [08:18.820] Many of them have already come to Washington.
+- [08:21.810] What President Trump is referring to
+- [08:23.710] is the ability for tariff revenue
+- [08:26.210] to give income tax relief.
+- [08:28.590] And I think there's a very good chance
+- [08:30.260] that we will see this in the upcoming tax bill.
+- [08:33.480] The president campaigned on no tax on tips,
+- [08:36.820] no tax on social security, no tax on overtime,
+- [08:39.970] and the restoring interest deductibility
+- [08:43.060] for American-made autos.
+- [08:45.980] So tariff income could be used for tax relief
+- [08:50.650] on all of those immediately.
+- [08:53.320] The Press: So you think that there is a role
+- [08:55.490] for significant tariff revenue in US fiscal policy?
+- [09:00.710] Mr. Bessent: I think that it is something
+- [09:02.840] that got put away a long time ago.
+- [09:05.290] And I think that tariffs will bring back
+- [09:08.920] American manufacturing
+- [09:10.490] and generate substantial revenues.
+- [09:12.880] The Press: On manufacturing,
+- [09:15.000] we've seen some pretty grisly surveys
+- [09:16.760] this month from the Philly Fed,
+- [09:19.650] which saw the biggest drop since May of 2020,
+- [09:22.610] and the Dallas Fed, similar plunging outlook,
+- [09:26.410] poor shipping orders.
+- [09:28.330] What are American manufacturers not understanding
+- [09:31.550] about your push for on-shoring in the US?
+- [09:34.230] Mr. Bessent: Well, I think I was
+- [09:36.130] in the investment business 35 years
+- [09:38.110] and I learned to ignore the survey data,
+- [09:41.420] or surveys and look at the actual data.
+- [09:43.670] And the actual data's been quite good.
+- [09:45.810] The job data is good.
+- [09:47.110] Americans keep spending, and as Caroline said,
+- [09:50.760] we have these incredible commitments
+- [09:52.450] to bring manufacturing back onshore with record investment
+- [09:57.300] by domestic corporations and foreigners
+- [10:00.130] who want to come into the US.
+- [10:02.620] The Press: Thank you so much, Karoline.
+- [10:03.940] Thank you, Mr. Secretary.
+- [10:05.540] The Chinese continue to say that the US and Chinese
+- [10:08.320] are not engaged in any consultation
+- [10:10.760] or negotiation on tariffs.
+- [10:13.140] You recently said you've talked to your counterpart,
+- [10:15.200] but more about traditional things like financial stability.
+- [10:18.820] So can you clarify,
+- [10:20.570] is the administration talking to Beijing
+- [10:22.910] specifically about tariffs, or not?
+- [10:24.790] Mr. Bessent: Well, we're not going to talk
+- [10:26.170] about who's talking to whom,
+- [10:27.620] but I think that over time we will see
+- [10:31.450] that the Chinese tariffs are unsustainable for China.
+- [10:35.710] I've seen some very large numbers over the past few days
+- [10:40.590] that show if these numbers stay on,
+- [10:43.030] Chinese could lose 10 million jobs very quickly.
+- [10:46.270] And even if there is a drop in the tariffs
+- [10:49.590] that they could lose five million jobs.
+- [10:51.710] So remember that we are the deficit country.
+- [10:55.910] They sell almost five times more goods to us
+- [10:58.920] than we sell to them.
+- [11:00.610] So the onus will be on them to take off these tariffs.
+- [11:06.640] They're unsustainable for them.
+- [11:08.480] The Press: And they are saying
+- [11:09.680] you guys are not talking about it.
+- [11:11.200] So is that true?
+- [11:13.400] Mr. Bessent: They have a different form of government.
+- [11:14.850] They're playing to a different audience.
+- [11:17.560] So I'm not going to get into the nitty-gritty again
+- [11:22.020] of who's talking to whom.
+- [11:24.520] But as I said, I believe for the Chinese,
+- [11:28.630] these tariffs are unsustainable.
+- [11:30.330] The Press: And very quickly, two days ago
+- [11:31.650] you said you didn't know
+- [11:32.890] if President Trump had spoken to Xi Jinping.
+- [11:35.520] Do you know now?
+- [11:36.730] Mr. Bessent: Again, I would say Karoline
+- [11:38.300] and I have a lot of jobs around the White House.
+- [11:40.250] Running the switchboard ain't one of them.
+- [11:41.870] Mrs. Leavitt: Bloomberg. Go ahead.
+- [11:43.080] The Press: Secretary Bessent, thank you so much
+- [11:44.430] for being here this morning.
+- [11:46.550] You've talked about the importance
+- [11:47.900] of giving investors certainty when it comes to the market.
+- [11:51.290] Yet the Trump administration is continuing to negotiate
+- [11:55.170] several complex trade deals in a very compressed timeframe.
+- [12:00.300] When do you expect you'll be able to give the markets
+- [12:02.460] some certainty around those deals?
+- [12:04.020] Do you have a deadline?
+- [12:05.310] Is it the 90-day pause? What are we looking at here?
+- [12:08.130] Mr. Bessent: Good question.
+- [12:09.470] And I think one thing that has been
+- [12:13.290] a little disconcerting for the markets
+- [12:15.090] is President Trump creates what I would call
+- [12:17.590] "strategic uncertainty" in the negotiations.
+- [12:20.290] So he is more concerned about getting the best possible trade
+- [12:24.040] deals for the American people.
+- [12:26.620] We had four years of bad deals for decades of unfair trading,
+- [12:32.180] and we are going to unwind those and make them fair.
+- [12:37.910] What we are doing is we've created a process.
+- [12:40.520] I think the aperture of uncertainty will be narrowing.
+- [12:44.510] And as we start moving forward announcing deals,
+- [12:48.600] then there will be certainty,
+- [12:51.300] but certainty is not necessarily a good thing in negotiating.
+- [12:54.440] The Press: And Mr. Secretary,
+- [12:55.670] last night there were reports on the administration
+- [12:59.750] walking back a little bit on the auto tariffs.
+- [13:01.710] Can you just elaborate on that decision there
+- [13:05.100] and what we can expect going forward?
+- [13:07.060] And why the shift in those auto tariffs?
+- [13:09.390] Mr. Bessent: Well, President Trump has had meetings
+- [13:11.770] with both domestic and foreign auto producers,
+- [13:16.630] and he's committed to bringing back auto production to the US.
+- [13:21.040] So we want to give the automakers a pass
+- [13:24.670] to do that quickly, efficiently and create
+- [13:27.180] as many jobs as possible.
+- [13:28.440] Mrs. Leavitt: Jasmine?
+- [13:29.640] The Press: Thank you so much, Karoline.
+- [13:30.840] Thank you, Secretary. Back to China,
+- [13:32.180] does the administration anticipate supply chain shocks
+- [13:36.900] or supply shocks coming now that cargo shipments from China
+- [13:40.520] are significantly down?
+- [13:42.250] And if so, are there plans in the process
+- [13:46.440] of how to address that?
+- [13:48.410] Mr. Bessent: I wouldn't think that we would have supply
+- [13:50.480] chain shocks.
+- [13:51.750] And I think retailers have managed
+- [13:54.790] their inventory in front of this.
+- [13:57.700] I speak to dozens of companies, sometimes daily,
+- [14:01.870] but definitely weekly.
+- [14:03.300] And they know that President Trump is committed to fair trade
+- [14:08.530] and have planned accordingly.
+- [14:09.940] The Press: And then second question.
+- [14:11.330] Can you outline the timeline
+- [14:12.850] for when you think some of these deals,
+- [14:14.240] particularly with your Asian countries like India,
+- [14:16.560] Japan, South Korea, you may have an announcement?
+- [14:19.850] Mr. Bessent: I'm glad you brought up
+- [14:21.140] our Asian trading partners and allies.
+- [14:24.420] They have been the most forthcoming
+- [14:27.660] in terms of doing the deals.
+- [14:29.840] As I mentioned, Vice President Vance was in India last week.
+- [14:33.980] I think that he and Modi made some very good progress,
+- [14:38.430] so I could see some announcements on India.
+- [14:41.260] I could see the contours of a deal
+- [14:43.570] with the Republic of Korea coming together.
+- [14:46.590] And then we've had substantial talks with the Japanese.
+- [14:50.460] Mrs. Leavitt: Andrea.
+- [14:51.730] The Press: Secretary Bessent,
+- [14:53.020] just continuing on the path of the progress.
+- [14:56.610] You said yesterday, I think,
+- [14:58.210] that it could happen as early as this week or possibly next week.
+- [15:02.040] Can you give us a bit of a timetable?
+- [15:04.460] And then I wanted to ask about South Korea, specifically.
+- [15:08.270] They've said that they probably won't be able
+- [15:09.870] to make a comprehensive deal until early July,
+- [15:13.740] because of their elections. Japan also has elections.
+- [15:16.830] And to what extent are domestic factors
+- [15:20.260] complicating your efforts? Canada just had an election.
+- [15:24.120] Are you seeing that you might have to think
+- [15:26.570] about delaying the 90 days?
+- [15:28.470] Mr. Bessent: Well, I would actually take the opposite tack,
+- [15:32.000] that I think from our talks that these governments
+- [15:35.600] actually want to have the framework of a trade deal done
+- [15:39.120] before they go into elections,
+- [15:40.750] to show that they have successfully negotiated
+- [15:44.190] with the United States.
+- [15:45.510] So we are finding that they are actually much more keen
+- [15:48.610] to come to the table, get this done,
+- [15:50.630] and then go home and campaign on it.
+- [15:53.010] Mrs. Leavitt: Sean?
+- [15:54.370] The Press: I'm sorry, did you have a comment
+- [15:56.120] on whether something could happen this week or next week?
+- [15:59.530] Mr. Bessent: For?
+- [16:00.730] The Press: For a deal? You said yesterday-
+- [16:03.190] Mr. Bessent: Again, I think that we are very close on India.
+- [16:07.150] And India, just a little insight.
+- [16:10.590] Baseball. India, in a funny way,
+- [16:13.320] is easier to negotiate with than many other countries,
+- [16:16.000] because they have very high tariffs and lots of tariffs.
+- [16:19.310] So it's much easier to confront the direct tariffs
+- [16:23.460] when, as we go through these unfair trade deals
+- [16:27.340] that have been put in over decades,
+- [16:29.790] that the non-tariff trade barriers
+- [16:32.030] can be much more insidious and also harder to detect.
+- [16:36.310] So a country like India,
+- [16:37.530] which has the posted and ready tariffs,
+- [16:42.070] it's much easier to negotiate with them.
+- [16:44.460] So I think the Indian negotiations are moving well.
+- [16:47.640] Mrs. Leavitt: Sean, go ahead.
+- [16:48.850] The Press: Hi, Mr. Secretary.
+- [16:50.300] So it was reported this morning that Amazon will soon display
+- [16:54.510] a little number next to the price of each product
+- [16:56.950] that shows how much the Trump tariffs
+- [16:59.630] are adding to the cost of each product.
+- [17:02.080] So isn't that a perfect, crystal clear demonstration
+- [17:05.550] that it's the American consumer and not China,
+- [17:08.810] who is going to have to pay for these policies?
+- [17:11.490] Mrs. Leavitt: I will take this, since I just got off the phone
+- [17:14.100] with the president about Amazon's announcement.
+- [17:16.820] This is a hostile and political act by Amazon.
+- [17:21.280] Why didn't Amazon do this
+- [17:22.650] when the Biden administration hiked inflation
+- [17:25.180] to the highest level in 40 years?
+- [17:27.640] And I would also add that it's not a surprise,
+- [17:30.740] because as Reuters recently wrote,
+- [17:33.650] Amazon has partnered with a Chinese propaganda arm.
+- [17:37.240] So this is another reason why Americans should buy American.
+- [17:40.760] It's another reason why we are on-shoring
+- [17:43.250] critical supply chains here at home,
+- [17:44.700] to shore up our own critical supply chain
+- [17:47.570] and boost our own manufacturing [inaudible].
+- [17:49.140] The Press: Is Jeff Bezos still a Trump supporter?
+- [17:51.840] Mrs. Leavitt: Look, I will not speak
+- [17:53.070] to the President's relationships with Jeff Bezos,
+- [17:56.770] but I will tell you that this is
+- [17:58.500] certainly a hostile and political action
+- [18:00.220] by Amazon and Secretary, if you have anything to add.
+- [18:02.420] Mr. Bessent: Yeah, I would also add that bringing down
+- [18:06.180] the terrible Biden inflation has been a priority
+- [18:09.210] for the first 100 days of the Trump administration.
+- [18:13.030] And President Trump has done a great job of leading
+- [18:15.780] that since January 20th.
+- [18:18.810] Interest rates, mortgage rates are down,
+- [18:21.550] gasoline and energy prices are down.
+- [18:24.760] We're expecting the further decreases, and as Karoline said,
+- [18:29.380] the big tax on consumers that goes unnoticed
+- [18:32.400] is deregulation or regulation,
+- [18:35.110] and we are deregulating and bringing that down.
+- [18:38.030] So from a household income point of view,
+- [18:41.630] we would expect real purchasing increases
+- [18:44.930] that we've seen them over the first 100 days
+- [18:46.910] and we would expect that to accelerate.
+- [18:49.870] We are doing peace deals, trade deals, tax deals,
+- [18:54.550] and deregulating.
+- [18:55.930] And the deregulation is a longer lead time,
+- [19:00.090] but I think by the third and fourth quarters
+- [19:02.210] that's really going to kick in.
+- [19:04.070] The Press: Thank you, Karoline.
+- [19:06.550] A question for you and Secretary Bessent.
+- [19:09.390] We talk a lot about volatility and uncertainty
+- [19:11.200] in the marketplace and the president
+- [19:13.110] has stated all along
+- [19:14.320] that he's more concerned about mainstream America,
+- [19:16.960] the American worker.
+- [19:18.420] You just talked about deregulation
+- [19:20.650] and this entire fair trade and reciprocals.
+- [19:24.120] What is your message to the American people
+- [19:27.310] in terms of letting them get through this disturbance
+- [19:31.220] and the outcome being greater
+- [19:33.190] and a greater good for the American worker,
+- [19:35.500] the American people, the American families?
+- [19:37.790] Mrs. Leavitt: I would say trust in President Trump.
+- [19:41.080] There is a reason he was reelected to this office.
+- [19:43.360] It's because of the historic success
+- [19:45.130] of his economic formula in the first term.
+- [19:47.270] And as I laid out at the beginning of the briefing,
+- [19:49.420] and the secretary has talked about,
+- [19:50.910] and the president talks about every day,
+- [19:53.100] there's a proven formula that works.
+- [19:55.410] Massive deregulation, energy independence and tax cuts,
+- [19:59.720] which are coming and the secretary
+- [20:01.250] is working very hard on that
+- [20:02.920] with our counterparts on Capitol Hill.
+- [20:04.860] If you want to talk about that,
+- [20:06.200] that's a huge deal to put more money
+- [20:09.030] back into the pockets of hardworking Americans.
+- [20:11.700] As for the fair trade deals,
+- [20:13.120] the president is trying to negotiate,
+- [20:14.860] he's not just righting the wrong of the mess
+- [20:16.830] that he inherited from the past
+- [20:18.110] four years of the Biden administration,
+- [20:19.980] this is a mess that has been created for the past
+- [20:21.900] four decades that has sold out the middle class,
+- [20:24.870] that has moved jobs overseas.
+- [20:26.420] You think about our Heartland, Middle America,
+- [20:28.700] what towns used to look like, what they look like today.
+- [20:30.920] President Trump wants to restore the Golden Age
+- [20:33.210] and it's a process to do that and that process is underway.
+- [20:36.150] But he's put together a fantastic trade team,
+- [20:38.420] Secretary Bessent, Secretary Lutnick, Jamieson Greer,
+- [20:40.930] all working incredibly hard on this effort 24/7,
+- [20:44.900] but tax cuts are coming and that's key.
+- [20:46.700] And Mr. Secretary, why don't you talk a little bit about that?
+- [20:48.670] Mr. Bessent: Yep.
+- [20:49.930] So it's really a three-legged stool in the economic policy.
+- [20:54.060] It's trade, its tax, and its deregulation.
+- [20:57.920] So we are in the midst of addressing, as Karoline said,
+- [21:01.720] these long-term trade imbalances.
+- [21:04.380] The tax bill is going much better than I would've thought
+- [21:09.920] when I took office on January 28th.
+- [21:14.110] And that's through President Trump's leadership
+- [21:16.760] that Speaker Johnson, Leader Thune are United.
+- [21:21.550] Speaker Johnson, we had a very good meeting yesterday
+- [21:24.770] with somebody called the big six.
+- [21:27.470] NEC director, Kevin Hassett, myself,
+- [21:30.170] Speaker Johnson, Leader Thune,
+- [21:32.580] Committee Chairman Jason Smith and Senator Crapo.
+- [21:36.190] And the tax bill is moving forward.
+- [21:39.280] It is going to give permanence
+- [21:41.100] to the 2017 Tax Cuts and Job Act,
+- [21:44.720] which, back to the question on certainty,
+- [21:47.530] it will give American business certainty,
+- [21:49.180] it will give American people certainty.
+- [21:51.290] And then President Trump is also adding the things
+- [21:55.790] for working Americans that I talked about earlier.
+- [21:59.040] No tax on tips, no tax on overtime,
+- [22:01.610] no tax on social security, making auto payments deductible.
+- [22:05.440] So that will substantially address
+- [22:08.350] the affordability crisis.
+- [22:10.240] And the other thing that I would note and back to data
+- [22:14.050] is that the Vanguard,
+- [22:17.210] one of the largest money management firms in America
+- [22:20.160] said that over the past 100 days,
+- [22:23.260] 97% of Americans haven't done a trade.
+- [22:26.620] And in fact, individual investors have held tight
+- [22:30.010] while institutional investors have panicked.
+- [22:33.250] So individual investors trust President Trump.
+- [22:42.830] Mrs. Leavitt: Megan, in the back.
+- [22:44.040] The Press: Thank you both.
+- [22:45.260] Can you detail for us exactly what we should expect
+- [22:47.340] as far as relief on the auto tariffs front
+- [22:49.720] and then further, Mr. Secretary,
+- [22:51.080] should we expect other industries to also get relief
+- [22:53.950] the way we've now seen for auto and tech as well?
+- [22:57.220] Mr. Bessent: I'm not going to go into the details
+- [22:59.770] of the auto tariff relief,
+- [23:03.140] but I can tell you that it will go
+- [23:04.750] substantially toward reshoring American auto manufacturing.
+- [23:09.700] And again, the goal here is to bring back
+- [23:14.490] the high quality industrial jobs to the U.S. President Trump
+- [23:19.360] is interested in the jobs of the future,
+- [23:22.360] not the jobs of the past.
+- [23:24.540] We don't need to necessarily have a booming textile industry,
+- [23:28.950] like where I grew up again,
+- [23:30.440] but we do want to have precision manufacturing
+- [23:33.520] and bring that back.
+- [23:34.870] And another very important function of this
+- [23:38.590] that does not get talked about enough is national security.
+- [23:42.450] President Trump, his overriding, the concern and belief
+- [23:49.620] is that economic security is national security.
+- [23:52.390] National security is economic security.
+- [23:55.350] And we saw during Covid that our supply chains got cut off
+- [23:59.840] and we need to bring back a lot of those supply chains,
+- [24:03.290] whether it's in semiconductors, medicines, via steel,
+- [24:07.740] and we have to onshore those.
+- [24:10.190] So it's a combination of making trade free and fair
+- [24:14.620] and remedying this gaping national security hole
+- [24:17.970] that he was left with.
+- [24:19.400] Mrs. Leavitt: If I could, I would just add, Megan,
+- [24:21.590] the president will sign the executive order
+- [24:23.190] on auto tariffs later today
+- [24:24.400] and we will release it as we always do.
+- [24:25.950] Go ahead.
+- [24:27.180] The Press: Secretary, any updates on the negotiation
+- [24:29.590] with the European Union,
+- [24:30.830] and is it hard to negotiate with the European Union?
+- [24:33.870] Mr. Bessent: Pardon?
+- [24:35.150] The Press: Do you have any updates on the negotiation
+- [24:37.220] with the European Union?
+- [24:39.060] Mr. Bessent: I'm more involved in the Asian negotiations.
+- [24:42.590] My observation would be, goes all the way back
+- [24:45.400] to Henry Kissinger's statement,
+- [24:46.880] when I call Europe, who do I call?
+- [24:48.900] So we're negotiating with a lot of different interests.
+- [24:53.110] Some of the European countries have put on
+- [24:55.340] an unfair digital service tax on our big internet provider.
+- [24:59.880] France and Italy, other countries,
+- [25:01.960] Germany and Poland, don't have that.
+- [25:04.360] So we want to see that unfair tax
+- [25:08.830] of one of America's great industries removed.
+- [25:11.860] So it's going to be a give and take.
+- [25:14.140] So they have some internal matters to decide
+- [25:17.240] before they can engage in an external negotiation.
+- [25:19.560] Mrs. Leavitt: Edward.
+- [25:20.910] The Press: Thanks, Karoline. Mr. Secretary, so contacts
+- [25:22.890] I have in the business community say
+- [25:24.640] that they're basically frozen for long-term investment
+- [25:27.260] because of the uncertainty around tariffs.
+- [25:29.050] How long do you think President Trump has to make a deal
+- [25:32.150] before there's damage to the economy?
+- [25:34.640] Mr. Bessent: Look, I think that what we're seeing
+- [25:36.970] is that business leaders, they've gone into a pause
+- [25:40.910] and I think we're going to give them great certainty
+- [25:43.490] on this tax bill.
+- [25:44.970] And I think over the next couple of weeks,
+- [25:48.150] as I said, we have 18 important trading relationships.
+- [25:52.040] We'll put China to the side, 17. They are in motion.
+- [25:56.620] And then as I said yesterday,
+- [25:58.530] I think there's a very good chance
+- [25:59.910] we're going to get this tax bill done
+- [26:01.820] and the tax bill is going to be very powerful
+- [26:04.930] for domestic U.S. Investment.
+- [26:06.760] So what we are going to do, one of the most powerful parts
+- [26:10.310] of President Trump's 2017 tax bill
+- [26:13.430] was full expensing of equipment. We are going to make that,
+- [26:17.430] as President Trump said in his speech to Congress,
+- [26:20.720] that will be retroactive to January 20th.
+- [26:24.020] The other thing that we are looking to add
+- [26:26.230] is full expensing for factories. So bring your factory back.
+- [26:31.020] You can fully expense the equipment and the building.
+- [26:35.020] We will couple that with deregulation,
+- [26:38.400] cheap energy and regulatory certainty,
+- [26:41.400] and that will continue to make the U.S.
+- [26:43.550] the greatest destination
+- [26:45.020] for domestic and foreign investments.
+- [26:46.600] Mrs. Leavitt: And just a part-
+- [26:47.930] The Press: If I can follow, just the president said
+- [26:49.680] that world leaders would like to meet with him
+- [26:51.470] in Vatican City about trade. Other than President Zelensky,
+- [26:56.030] who did the president meet with about trade
+- [26:59.770] and when could we get some of those deals?
+- [27:01.550] Mrs. Leavitt: The president met with President Zelensky,
+- [27:03.530] as you know, which we talked about.
+- [27:05.280] And the president continues to be engaged
+- [27:07.290] with his fellow leaders around the world.
+- [27:11.000] In the European Union,
+- [27:12.380] you've seen many of them visit the White House.
+- [27:14.410] I want to harp on, in closing,
+- [27:16.280] the point the secretary just made.
+- [27:17.800] On the campaign trail,
+- [27:19.020] the president promised the American public
+- [27:21.200] that he was going to make America
+- [27:22.930] the best country in the world to do business.
+- [27:24.500] Again, the lowest taxes, lowest regulation,
+- [27:27.190] lowest energy costs of anywhere in the world.
+- [27:29.030] And if you do business in the United States,
+- [27:31.000] you won't pay a tariff, you won't pay a price.
+- [27:33.260] That's not just good for companies around the world,
+- [27:35.510] but it's good for the American worker.
+- [27:37.150] That's what this team is focused so hard
+- [27:38.640] on every day we have work to do.
+- [27:40.920] The Golden Age of America is underway,
+- [27:43.830] but as I pointed out in the beginning,
+- [27:45.420] there's a lot of reason for the American consumer,
+- [27:48.000] the American CEO, the American small business owner
+- [27:50.220] to be confident and optimistic
+- [27:52.280] about this president and where we're headed.
+- [27:54.140] So you will hear more from the president himself
+- [27:56.800] later this evening.
+- [27:58.050] He is traveling to Michigan, as you all know.
+- [28:00.500] He'll make a stop at the Air Force base
+- [28:02.000] with Governor Whitmer
+- [28:03.390] and then we will head to a rally tonight
+- [28:06.260] where you'll hear more from him directly.
+- [28:07.910] So we'll see you in Michigan. Thank you, guys.
+- [28:10.030] The Press: Thank you.

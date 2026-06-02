@@ -1,0 +1,590 @@
+<!-- source: https://www.youtube.com/watch?v=tTz6E_uCG6I -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: tTz6E_uCG6I -->
+<!-- date_published: 2025-08-18T17:47:32+00:00 -->
+<!-- date_accessed: 2026-06-02T02:45:40.426888+00:00 -->
+
+# Transcript: President Trump Participates in a Bilateral Meeting with the President of Ukraine
+
+- [02:54.820] The President: Well, thank you very much.
+- [02:56.090] It's an honor to have the President of Ukraine with us.
+- [03:01.000] We've had a lot of good discussions
+- [03:02.460] and a lot of good talks,
+- [03:04.250] and I think progress is being made.
+- [03:06.040] Very, very substantial progress in many ways.
+- [03:09.570] We had a good meeting, as you know.
+- [03:12.300] Just a short while ago with the President of Russia,
+- [03:16.060] and I think there's a possibility
+- [03:18.130] that something could come out of it,
+- [03:19.650] and today's meeting is very important.
+- [03:21.270] We have, I guess, the seven very powerful leaders from Europe,
+- [03:26.650] and we're going to be meeting with them
+- [03:28.030] right after this meeting.
+- [03:29.240] And thank you very much for being here.
+- [03:32.590] President Zelensky: Thank you so much, Mr. President.
+- [03:34.540] If I can, first of all, thank you for your invitation,
+- [03:37.170] and thank you very much for your efforts,
+- [03:40.440] personal efforts to stop killings
+- [03:42.030] and stop this war. Thank you.
+- [03:43.780] And using this opportunity, many thanks to your wife,
+- [03:47.460] the first lady of the United States.
+- [03:50.240] She sent a letter to Putin about our children,
+- [03:53.480] abducted children, and my wife, she's a first lady of Ukraine.
+- [04:00.140] She gave the letter. It's not to you, to your wife.
+- [04:03.400] I won't. I won't. Yeah, yeah. Yeah, yeah.
+- [04:06.630] So we are saying this is a sensitive topic, yes, please.
+- [04:09.860] And thanks to our partners,
+- [04:11.880] and that you supported this format,
+- [04:13.680] and after our meeting, we can have leaders who are around us,
+- [04:18.240] U.K., France, Germany, Italy, Finland, even Asia.
+- [04:21.880] I mean, all partners around Ukraine supporting us.
+- [04:26.040] Thanks to them, and thank you very much for the invitation.
+- [04:30.540] The President: Thank you very much for being here.
+- [04:36.190] The Press: Thank you, President Trump.
+- [04:37.450] So, President Zelensky, you say in a post on X today,
+- [04:42.050] "Russia must end this war, which it itself started."
+- [04:45.850] President Trump, you say "President Zelensky of Ukraine
+- [04:49.770] can end the war with Russia
+- [04:51.040] almost immediately if he wants to," which isn't.
+- [04:56.130] The President: I think that's true.
+- [04:57.510] I think, Phil, we're going to have a meeting.
+- [04:59.640] I think if everything works out well today, we'll have a trilat.
+- [05:03.220] And I think there will be a reasonable chance
+- [05:05.280] of ending the war when we do that.
+- [05:07.320] The Press: And is this the end of the road
+- [05:10.290] for American support for Ukraine?
+- [05:11.980] Does today's meeting deal or no deal?
+- [05:16.030] The President: I can never say that.
+- [05:17.310] It's never the end of the road.
+- [05:18.510] People are being killed, and we want to stop that.
+- [05:20.890] So, I would not say it's the end of the road.
+- [05:23.150] No, I think we have a good chance of doing it.
+- [05:25.830] It's been almost four years now
+- [05:28.010] that a lot of people were killed last week.
+- [05:29.950] A lot of people last week.
+- [05:31.260] I mean, millions of people killed,
+- [05:33.410] but a lot of people last week, for whatever reason,
+- [05:36.440] a big number, a lot of soldiers, both, on both sides.
+- [05:39.950] And I know the President, I know myself,
+- [05:44.060] and I believe Vladimir Putin wants to see it ended.
+- [05:46.570] The Press: And you met with Putin on Friday.
+- [05:49.130] Today you've got President Zelensky here.
+- [05:51.410] As you listen to Russia and Ukraine,
+- [05:53.310] which side has the better cards right now?
+- [05:55.160] The President: Well, I don't want to say that.
+- [05:56.520] I'm just going to, I'm just here to be.
+- [05:58.080] Look, this isn't my war. This is Joe Biden's war.
+- [06:01.030] He's the one that had a lot to do with this happening,
+- [06:05.100] and we want to get it ended.
+- [06:07.170] And we want it to end good for everybody.
+- [06:08.990] We want it to end good.
+- [06:10.330] The people of Ukraine have suffered incredibly.
+- [06:14.890] The Press: President Zelensky,
+- [06:16.240] are you prepared to keep sending Ukrainian troops
+- [06:19.500] to their deaths for another couple years,
+- [06:21.530] or are you going to agree to redraw the maps?
+- [06:26.020] President Zelensky: Thank you for your question.
+- [06:27.330] So, first of all, you know, we live under each day attacks.
+- [06:31.590] You know, that today has been a lot of attacks
+- [06:33.620] and a lot of wounded people,
+- [06:35.390] and the charge was that small bomb, one year and a half.
+- [06:41.610] So we need to stop this war to stop Russia,
+- [06:44.700] and we need support American and European partners.
+- [06:48.390] And we will do our best for this.
+- [06:51.430] So, and I think we show that we are strong people,
+- [06:55.760] and we supported the idea of the United States
+- [06:57.840] of personally President Trump to stop this war
+- [07:01.890] to make diplomatic way of finishing this war,
+- [07:06.380] and we are ready for trilateral as President said.
+- [07:09.820] It's a good signal about trilateral.
+- [07:11.370] I think this is very good. Thank you.
+- [07:17.540] The Press: Mr. President,
+- [07:21.940] if the peace deal will be achieved,
+- [07:24.080] are you going to be willing to send American peacekeepers
+- [07:26.220] to Ukraine?
+- [07:27.430] The President: Well, we're going to work with Ukraine.
+- [07:28.820] We're going to work with everybody,
+- [07:30.110] and we're going to make sure that if there's peace,
+- [07:33.210] the peace is going to stay long term.
+- [07:34.770] This is very long term.
+- [07:36.040] We're not talking about a two-year peace,
+- [07:37.660] and then we end up in this mess again.
+- [07:40.650] We're going to make sure that everything's good.
+- [07:42.310] We're going to work with Russia.
+- [07:43.510] We're going to work with Ukraine.
+- [07:44.740] We're going to make sure it works.
+- [07:46.290] And I think if we can get to peace, it's going to work.
+- [07:49.150] I have no doubt about it.
+- [07:51.910] The Press: Mr. President,
+- [07:55.200] you just talked about security guarantees.
+- [07:56.860] Will that involve U.S. troops? Will you roll down U-turns?
+- [08:00.840] The President: We'll let you know that maybe later today.
+- [08:03.600] We're meeting with seven great leaders of great countries also,
+- [08:08.410] and we'll be talking about that. They'll all be involved.
+- [08:10.860] But there'll be a lot of help. When it comes to security,
+- [08:14.430] there's going to be a lot of help.
+- [08:15.880] It's going to be good.
+- [08:17.710] They are first line of defense because they're there.
+- [08:20.840] They're Europe.
+- [08:22.090] But we're going to help them out also.
+- [08:23.520] We'll be involved.
+- [08:25.300] The Press: When you mentioned that the war will not end
+- [08:30.490] without addressing the root causes of this war,
+- [08:34.110] have you had an understanding
+- [08:36.080] of what are the root causes of this war?
+- [08:38.330] The President: Well, look, the war is going to end.
+- [08:40.840] When it ends, I can't tell you. But the war is going to end,
+- [08:44.340] and this gentleman wants it to end,
+- [08:46.580] and Vladimir Putin wants it to end.
+- [08:48.980] I think the whole world is tired of it,
+- [08:51.490] and we're going to get it ended.
+- [08:54.060] You know, I've done six wars. I've ended six wars,
+- [08:56.350] and I thought this maybe would be the easiest one.
+- [08:59.120] And it's not the easiest one. It's a tough one.
+- [09:04.640] A lot of reasons for it,
+- [09:07.220] and they'll be talking about it for a long time,
+- [09:09.030] but they'll be talking about the others.
+- [09:10.400] Look, India, Pakistan, we're talking about big places.
+- [09:14.940] When you look at, you just take a look at some of these wars.
+- [09:17.980] You go to Africa and take a look at that,
+- [09:20.580] Rwanda and the Congo, Republic of the Congo.
+- [09:24.940] That's been going on for 31 years.
+- [09:28.680] And so we've done a total of six,
+- [09:30.630] and we really have six,
+- [09:31.940] not including the fact that we obliterated
+- [09:35.160] and turned out to be a total obliteration,
+- [09:37.680] the nuclear in, as you said,
+- [09:40.220] the future nuclear capability of Iran.
+- [09:43.760] And this is one I think we're going to get solved also.
+- [09:47.110] I think I feel confident we're going to get it solved.
+- [09:53.470] The Press: Thank you, Mr. President.
+- [09:54.770] Can you tell us about your conversations
+- [09:56.750] with European leaders
+- [09:58.060] and what they need to see to support an actual war?
+- [10:01.220] The President: Well, we're going to be meeting
+- [10:02.520] with a great representative group
+- [10:06.350] and seven very powerful,
+- [10:08.970] very big countries and great people,
+- [10:11.430] all friends of mine and friends of yours.
+- [10:13.990] And we're going to have some suggestions made.
+- [10:17.200] They want to see peace. They would like to see peace.
+- [10:25.710] The Press: President Trump,
+- [10:26.960] do you think it's fair for Ukraine
+- [10:30.470] and for Russia to achieve lasting and durable peace
+- [10:34.360] if Ukraine cedes its territories
+- [10:36.680] that Russia hasn't yet conquered?
+- [10:38.600] Do you think it's a fair peace for Ukraine?
+- [10:41.860] The President: We're going to have a lasting peace.
+- [10:43.280] Just to answer the first part of your question,
+- [10:45.060] we're going to have a lasting peace.
+- [10:47.750] I hope it's going to be immediately.
+- [10:49.800] I hope it doesn't have to go on.
+- [10:51.720] And I think people in the whole world
+- [10:54.060] is going to be very happy when that's announced.
+- [10:57.970] The Press: You posted on social media, Mr. President,
+- [11:00.360] a very touching letter from the First Lady.
+- [11:02.710] And the letter was hand- delivered to President Putin.
+- [11:06.630] And it calls for an end to the war, essentially,
+- [11:09.400] because of the children and the children's future.
+- [11:12.330] Why did the First Lady feel that letter was necessary?
+- [11:15.780] Was it because she believes that Mr. Putin
+- [11:18.600] is the aggressor in the war?
+- [11:20.390] Is a similar letter being hand-delivered
+- [11:22.560] to President Zelensky?
+- [11:23.960] The President: So the First Lady felt very strongly.
+- [11:27.080] She's watched the same thing that you watch and that I watch.
+- [11:32.150] I see things that you don't get to see, and it's horrible.
+- [11:35.820] But when she's got a great love of children,
+- [11:38.000] she has a wonderful son that she loves,
+- [11:42.120] probably more than anybody, including me.
+- [11:44.350] I hate to say it, but she loves her son.
+- [11:47.420] She loves children.
+- [11:48.970] And she hates to see something like this happening.
+- [11:53.130] And that goes for other wars, too.
+- [11:55.000] I mean, she sees the heartbreak,
+- [11:57.690] the parents, the funerals that you see on television.
+- [11:59.820] Always funerals.
+- [12:01.090] We want to see something other than funerals.
+- [12:03.730] No, she felt it was a beautiful letter.
+- [12:06.620] It was very well received by him.
+- [12:09.520] And she did ask me to say, you know,
+- [12:13.290] she would love to see this end. She would love to see it end.
+- [12:16.350] And she says it very openly, very proudly,
+- [12:20.120] and with great sorrow,
+- [12:21.370] because so many people have been killed.
+- [12:23.300] The Press: Mr. President, last week, Mr. President.
+- [12:27.410] Yes, sir, I've got a question for each of you.
+- [12:29.170] First of all, Mr. President Zelensky,
+- [12:31.290] you look fabulous in that suit.
+- [12:32.880] The President: I said the same thing.
+- [12:34.090] You look good. I said the same thing.
+- [12:37.380] That's the one that attacked you last time.
+- [12:39.510] I remember that.
+- [12:40.810] I apologize to you, but you look wonderful.
+- [12:43.170] The Press: No, my first question for you, Mr. President Zelensky.
+- [12:45.330] And this changed you.
+- [12:51.260] President Zelensky: Maybe yours is much better than mine.
+- [12:53.790] The Press: Real quickly, upon peace,
+- [12:55.130] God willing we get peace,
+- [12:56.420] are you open to holding an election in your country?
+- [12:59.780] President Zelensky: Yes, of course.
+- [13:01.000] We are open to an election, yes.
+- [13:02.590] But we have to do safety circumstances.
+- [13:05.740] And a little bit, we need to work in the Parliament,
+- [13:09.900] because during the war you can't have an election.
+- [13:11.980] But we can do security.
+- [13:15.490] We need, maybe, how to say, we need a truce, yes,
+- [13:19.240] everywhere, in the battlefield, in the sky, in the sea,
+- [13:22.290] to make possible for people to do democratic,
+- [13:27.160] open, legal elections.
+- [13:29.970] The President: So you say during the war
+- [13:32.310] you can't have elections.
+- [13:33.880] So let me just say, three and a half years from now,
+- [13:37.150] so you mean if we happen to be in a war with somebody,
+- [13:41.260] no more elections.
+- [13:42.550] Oh, this is, I wonder what the fate is.
+- [13:45.010] You like this idea.
+- [13:46.350] The Press: Speaking of news, I got a question for you.
+- [13:50.070] This sounds insane for me even to ask this,
+- [13:52.970] but do you think the American media really
+- [13:54.970] doesn't even want a peace deal?
+- [13:56.660] Because they seem, they've been so critical of you,
+- [13:58.940] every step of the way as you lead the charge for peace.
+- [14:04.810] The President: It's an amazing phenomenon.
+- [14:06.250] I said that if in the settlement you got Moscow,
+- [14:09.810] St. Petersburg, and thousands of miles around them,
+- [14:12.480] they would say I made a bad deal.
+- [14:16.420] The level of hatred and animosity is incredible.
+- [14:21.030] Not with all. I mean, we have great people up here.
+- [14:23.450] We also have terrible people up there
+- [14:25.260] that I think are told what to say.
+- [14:28.180] But, you know, in solving all of these wars,
+- [14:30.810] they don't even write about it.
+- [14:32.190] You know, I saw major wars.
+- [14:33.560] I saw wars that have been going on to 31, 35, and 37,
+- [14:37.530] and a couple quicker ones.
+- [14:39.990] One that was going to go into a full-blown deal
+- [14:43.380] very quickly, you know, with the one I'm talking about.
+- [14:45.330] It was a big one.
+- [14:46.920] But they don't even write about that.
+- [14:49.860] No matter what I do, no matter what,
+- [14:52.070] and, you know, this is not anything to do with you.
+- [14:55.810] It's probably to your advantage in a certain way.
+- [14:57.950] But no matter what I do, no matter what deal I make,
+- [15:00.460] from my standpoint, you'll come out good.
+- [15:03.830] Maybe President Putin will come out good.
+- [15:06.860] But they'll say Trump was absolutely horrible.
+- [15:10.260] It's just that, and I've lived with that for a long time.
+- [15:13.470] I've lived with it since just before the first election.
+- [15:17.110] I used to get great publicity.
+- [15:19.480] Now I get the worst publicity anyone's ever gotten in office.
+- [15:24.230] I wanted to lancelot so that people understand
+- [15:26.420] they're the only ones that count, ultimately.
+- [15:28.570] But I've also had great reporters.
+- [15:30.260] I've had journalists that are very good.
+- [15:33.420] But it's very sad when you do the right thing.
+- [15:37.250] As an example, they said, because of the fact
+- [15:40.590] that Vladimir Putin came to American soil,
+- [15:43.870] this was a tremendous defeat for Donald Trump.
+- [15:46.760] No, it was really wonderful that he did it.
+- [15:50.920] It was a hard thing for him to do, to be honest with you.
+- [15:54.130] It was the opposite of what they said.
+- [15:56.450] But they said it. Now, if he didn't come,
+- [15:58.650] they'd say, that was also bad for Trump.
+- [16:00.620] There's no way.
+- [16:01.850] And it's just a great dishonesty of the president.
+- [16:05.730] I think that's why it's lost its credibility.
+- [16:08.220] Its credibility is at an all-time low.
+- [16:11.650] We have a thing going on right now in D.C.
+- [16:14.650] We went from the most unsafe place
+- [16:17.840] anywhere to a place that now people,
+- [16:20.280] friends are calling me up, Democrats are calling me up,
+- [16:22.580] and they're saying, "Sir, I want to thank you.
+- [16:24.910] My wife and I went out to dinner last night
+- [16:27.520] for the first time in four years.
+- [16:30.430] And Washington, D.C. is safe.
+- [16:33.190] And you did that in four days." I'll tell you, it's safe.
+- [16:36.350] I had another friend of mine.
+- [16:37.550] He has a son who's a great golfer.
+- [16:40.510] He's on tour.
+- [16:41.860] And he came in fourth yesterday in the big tournament
+- [16:44.280] where Scottie Scheffler made the great shot.
+- [16:46.950] And he said his son is going to dinner in Washington, D.C.
+- [16:51.120] tonight.
+- [16:52.340] I said, "Would you allow that to happen a year ago?"
+- [16:54.990] He said, "No way. No way."
+- [16:56.670] He said, "What you've done is incredible."
+- [16:59.220] And I think the people realize it.
+- [17:01.710] But the press says, "He's a dictator.
+- [17:04.550] He's trying to take over."
+- [17:06.460] Now, all I want is security for our people.
+- [17:08.940] But people that haven't gone out to dinner in Washington, D.C.
+- [17:11.990] in two years are going out to dinner.
+- [17:14.840] And the restaurants, the last two days,
+- [17:16.670] were busier than they've been in a long time.
+- [17:20.200] I walked around yesterday with MTG.
+- [17:22.270] If you can walk around D.C.
+- [17:23.890] with MTG and not be attacked, the city is safe.
+- [17:30.630] The Press: Thank you, Mr. President.
+- [17:31.840] Last week, you warned of what you call severe consequences
+- [17:36.230] if a 30-day ceasefire or any type of ceasefire
+- [17:38.880] were not agreed to by Russia.
+- [17:41.030] Will there be severe consequences?
+- [17:43.030] Does that change because of the meeting?
+- [17:46.040] The President: If you look at the six deals
+- [17:47.480] that I settled this year, they were all at war.
+- [17:50.130] I didn't do any ceasefires,
+- [17:52.090] and I know that it might be good to have,
+- [17:55.420] but I can also understand strategically why one country
+- [17:59.760] or the other wouldn't want it. You have a ceasefire,
+- [18:02.500] and they rebuild and rebuild and rebuild,
+- [18:04.360] and maybe they don't want that.
+- [18:06.600] But if you look at the six deals that we made peace, long-term,
+- [18:11.160] long-running wars, I didn't do any ceasefires.
+- [18:15.430] Would I like? I like the concept.
+- [18:17.430] You know, I like the concept of a ceasefire for one reason,
+- [18:20.650] because you'd stop killing people immediately,
+- [18:22.800] as opposed to in two weeks or one week or whatever it takes.
+- [18:26.180] But we can work a deal where we're working on a peace deal
+- [18:29.310] while they're fighting. They have to fight.
+- [18:31.230] I wish they could stop. I'd like them to stop,
+- [18:33.340] but strategically that could be a disadvantage
+- [18:35.540] for one side or the other. But all of these deals I made
+- [18:39.930] without even the mention of the words ceasefire.
+- [18:43.000] The Press: Are you disappointed that there's no ceasefire?
+- [18:44.740] Are you disappointed that there's no ceasefire?
+- [18:46.240] Are you disappointed that there's no ceasefire?
+- [18:47.640] There's no decision to offer Ukraine Article
+- [18:50.730] 5 life security guarantees.
+- [18:52.710] Let's stop sort of pushing for their full membership.
+- [18:56.220] The President: Well we haven't done anything on that yet.
+- [18:59.540] If you look back and you go back long before President Putin,
+- [19:03.680] it was always the statement that they would never allow
+- [19:05.850] Ukraine into NATO.
+- [19:07.120] So that was the statement that was made,
+- [19:08.640] but we haven't discussed any of that yet.
+- [19:10.730] We're going to be discussing it today.
+- [19:12.610] But we will give them very good protection, very good security.
+- [19:14.780] That's part of it.
+- [19:16.040] And the people that are waiting for us, they are,
+- [19:19.690] I think they're very like-minded.
+- [19:21.040] They want to help out also.
+- [19:24.590] The Press: Thank you, President Trump.
+- [19:25.930] Thank you, President Trump.
+- [19:28.610] The United States has already given hundreds of billions
+- [19:31.940] of dollars to this war effort in Ukraine.
+- [19:34.970] At best, it is a stalemate and the killing continues.
+- [19:38.680] So President Trump, how much more is the United States
+- [19:41.220] willing to give Ukraine?
+- [19:42.670] And President Zelensky, how much more do you want?
+- [19:46.030] The President: Well, I'll start off
+- [19:47.290] just by saying we're not giving anything.
+- [19:49.420] Now we're selling weapons. This is something before,
+- [19:53.430] I guess the numbers well over $300 billion
+- [19:56.220] that was under Joe Biden, a corrupt politician,
+- [20:01.960] not a smart man, never was. By the way, go back 40 years.
+- [20:05.270] He was not a smart man 40 years ago either.
+- [20:07.830] But now he's in particular bad.
+- [20:10.380] This was done by a corrupt administration
+- [20:12.410] that shouldn't have been in.
+- [20:13.610] And frankly, if the right results of the election were
+- [20:18.290] The President: Given, if I were president,
+- [20:20.270] this war would have never taken place.
+- [20:22.140] And he would have been very happy
+- [20:24.000] because he would have liked to have seen.
+- [20:25.450] I mean, they went through hell. He went through hell.
+- [20:28.110] This war would have never happened.
+- [20:29.780] And the people that were killed, a couple of million people,
+- [20:32.810] a lot of people with soldiers and everything else.
+- [20:35.460] And the people that have been displaced
+- [20:37.120] and forced into other areas and other countries
+- [20:39.220] because of what's happened,
+- [20:40.490] none of that would have happened.
+- [20:42.300] And I'm just saying that he was a horrible president,
+- [20:47.040] whether it was the borders or this.
+- [20:49.470] He was just a horrible, corrupt president.
+- [20:55.960] President Zelenzky: Thank you so much.
+- [20:57.250] First of all, we have the ability now
+- [20:59.620] to buy weapons from the United States.
+- [21:02.490] We are thankful for this program and this opportunity.
+- [21:05.460] We are thankful for Europe. They pay for this.
+- [21:07.930] And through NATO program, for example, and et cetera,
+- [21:10.980] we have some programs where we can have
+- [21:13.020] some money to finance this. And this is a part, I think,
+- [21:17.400] it's not a part for the war and to defend us.
+- [21:21.680] It also will be a part for security guarantees,
+- [21:25.150] to strengthen our army, to rearm Ukrainian army.
+- [21:29.300] This is very, very important.
+- [21:31.550] And it depends how much money we need to rearm.
+- [21:35.070] For example, the question of air defense,
+- [21:36.880] we spoke about it with President Trump.
+- [21:39.020] And I'm happy that we have now bilateral decisions
+- [21:42.060] and we'll work on it with production, American production.
+- [21:44.760] Nobody in Europe has so many air defense,
+- [21:49.010] like Patriots, for example. We need it very much.
+- [21:51.850] And this is also about defending.
+- [21:56.490] The President: And I think, you know, I think the good news,
+- [21:58.090] we make the best military equipment in the world by far.
+- [22:01.080] You mentioned the Patriots. How good are they?
+- [22:02.730] Yeah, systems. We have systems.
+- [22:05.390] They're literally a hundred percent foolproof.
+- [22:09.290] And it's really like shooting two bullets,
+- [22:11.440] you know, two bullets hitting each other in the air
+- [22:13.360] in a space like this that chances a hundred percent.
+- [22:16.580] It's 99 to 100 percent.
+- [22:19.060] So we sell the equipment to NATO.
+- [22:23.420] And NATO does what I don't know
+- [22:24.980] what the arrangement is that you have with.
+- [22:27.660] But I know that they want you to have the equipment.
+- [22:30.310] And we're getting the best equipment in the world.
+- [22:32.520] But they pay us for the equipment.
+- [22:34.190] Under Biden, it was just crazy what was going on.
+- [22:38.070] I believe the number is over 300.
+- [22:40.190] I think it could be $350 billion
+- [22:42.450] worth of equipment and money and everything else.
+- [22:45.580] And we've made more progress in settling this war
+- [22:48.100] in the last two months than they made in four years.
+- [22:51.370] This should have been settled a long time ago,
+- [22:53.050] but it should have never happened.
+- [22:59.800] The Press: You pushed out on social media
+- [23:01.620] about doing away with mail-in ballots
+- [23:04.680] and potentially electronic voting machines.
+- [23:06.340] Can you explain on that?
+- [23:07.560] The President: Well, that's a very off topic.
+- [23:09.090] Just mail-in ballots are corrupt.
+- [23:12.160] Mail-in ballots.
+- [23:13.440] You could never have a real democracy with mail-in ballots.
+- [23:18.260] And we, as a Republican Party,
+- [23:20.240] are going to do everything possible
+- [23:21.910] that we get rid of mail-in ballots.
+- [23:24.200] We're going to start with an executive order
+- [23:25.920] that's being written right now
+- [23:27.140] by the best lawyers in the country
+- [23:29.410] to end mail-in ballots because they're corrupt.
+- [23:33.390] And you know that we're the only country in the world,
+- [23:37.030] I believe, I may be wrong,
+- [23:38.390] but just about the only country in the world
+- [23:40.420] that uses it because of what's happened.
+- [23:42.970] Massive fraud all over the place.
+- [23:44.550] The other thing we want changed are the machines.
+- [23:47.740] For all of the money they spend, it's approximately ten times
+- [23:53.030] more expensive than paper ballots.
+- [23:54.790] And paper ballots are very sophisticated
+- [23:56.500] with the watermark paper and everything else.
+- [23:58.970] We would get secure elections. We'd get much faster results.
+- [24:01.920] But machines, I mean,
+- [24:03.180] they say we're going to have the results in two weeks.
+- [24:05.680] With paper ballots, you have the results that night.
+- [24:09.080] Most people, almost, but most people,
+- [24:11.850] many countries use paper ballots.
+- [24:13.540] It's the most secure form.
+- [24:15.390] So between paper ballots, very, very important, paper ballots,
+- [24:20.150] and I think maybe even more important, the mail-in voting.
+- [24:24.160] We're going to end mail-in voting.
+- [24:26.250] It's a fraud.
+- [24:27.640] If you have mail-in, even Jimmy Carter with his commission,
+- [24:30.400] they set it up.
+- [24:31.680] He said the one thing about mail-in voting,
+- [24:34.050] "you will never have an honest election if you have mail-in."
+- [24:36.790] And it's time that the Republicans get tough
+- [24:39.350] and stop it. Because the Democrats want it.
+- [24:42.500] It's the only way they can get elected.
+- [24:45.080] Because with men and women's sports,
+- [24:47.290] and with transgender for everybody, and open borders,
+- [24:50.250] and all of the horrible things,
+- [24:51.710] and now the new thing is, they love crime.
+- [24:54.800] They're fighting me on the fact that I've made Washington,
+- [24:58.460] D.C. safe.
+- [24:59.660] We're not going to get mugged, beaten up, or killed
+- [25:02.350] like all the people you've been watching get so badly hurt.
+- [25:05.930] I'm glad, I hate to take your time with this,
+- [25:08.250] but I'm glad you asked me that question.
+- [25:11.070] We're going to stop mail-in ballots because it's corrupt.
+- [25:15.530] You know, when you go to a voting booth,
+- [25:17.120] and you do it the right way,
+- [25:18.320] and you go to a state that runs it properly, you go in.
+- [25:21.650] They even asked me.
+- [25:22.910] They asked me for my license plate.
+- [25:25.070] I said, I don't know if I have it.
+- [25:27.510] They said, "sir, you have to have it."
+- [25:28.910] I was very impressed, actually.
+- [25:31.050] But it's very hard to cheat with mail-in voting.
+- [25:34.740] As you know, what happens in California is so corrupt,
+- [25:38.050] where some people get five, six, seven ballots delivered to them.
+- [25:41.810] Now, we've got to stop mail-in voting,
+- [25:43.330] and the Republicans have to lead the charge.
+- [25:45.600] The Democrats want it because they have horrible policy.
+- [25:48.680] If you have mail-in voting,
+- [25:50.050] you're not going to have many Democrats get elected.
+- [25:52.290] That's bigger than anything having to do
+- [25:53.900] with redistricting, believe me.
+- [25:55.740] And the Republicans have to get smart.
+- [25:57.770] You're not going to have a country.
+- [25:59.650] I said for a long time in rallies, you need borders,
+- [26:04.520] and you need free and fair elections.
+- [26:07.290] Those two things. Otherwise, you don't have them.
+- [26:09.220] We have strong borders now. In 90 days, Mr. President,
+- [26:13.580] we didn't have one, zero, zero, three months.
+- [26:17.480] Not one person came in illegally into our country.
+- [26:20.460] In fact, even I find that hard to believe.
+- [26:22.180] But it's run by a little bit of a liberal group
+- [26:24.440] that put out the numbers.
+- [26:25.720] I guess it's zero, zero, and zero.
+- [26:30.120] You go back a year ago, two years ago,
+- [26:32.040] three, millions of people poured into our country.
+- [26:34.430] It was terrible.
+- [26:35.790] The Press: Thank you very much.
+- [26:39.330] What security guarantees do you need for President
+- [26:42.550] Trump to be able to make a deal with American troops,
+- [26:45.340] intelligence, equipment? What is it?
+- [26:48.710] President Zelensky: Everything. Everything.
+- [26:50.970] Really, it includes two parts. First, strong Ukrainian army.
+- [26:56.980] That's what I began to discuss with your colleagues.
+- [27:00.610] And it's a lot about weapon and people
+- [27:03.590] and training missions and intelligence.
+- [27:05.560] And second, we will discuss with our partners.
+- [27:09.100] It depends on the big countries, on the United States,
+- [27:13.350] on a lot of our friends.
+- [27:14.770] The Press: What do you need for President Trump
+- [27:16.450] to make American troops do that NATO-like protection
+- [27:20.260] in order to get President Zelensky to a deal today?
+- [27:22.060] The President: Well, I don't know
+- [27:23.280] if you define it that way, but NATO-like.
+- [27:25.170] I mean, we have people waiting in another room right now.
+- [27:29.430] They're all here from Europe, biggest people in Europe.
+- [27:33.030] And they want to give protection.
+- [27:34.470] They feel very strongly about it.
+- [27:35.880] And we'll help them out with that.
+- [27:37.260] I think it's very important.
+- [27:38.990] I think it's very important to get the deal done.
+- [27:41.720] The Press: Mr. President,
+- [27:44.020] you were getting involved in the peacekeeping in Ukraine
+- [27:46.990] since your first day in the administration.
+- [27:49.850] What would you say to the Ukrainian people
+- [27:52.380] right now who are suffering under the Russian attacks
+- [27:57.000] and hoping that the American people will stand with them?
+- [28:00.030] The President: Well, I know Ukrainian people.
+- [28:01.510] I've known many over the years. They're great people.
+- [28:04.320] They're smart. They're energetic.
+- [28:07.230] They love their country. I mean, they love their country.
+- [28:10.020] I want to get this war ended. That's all I can do.
+- [28:13.270] I love the Ukrainian people, but I love all people.
+- [28:15.530] I love the Russian people. I love them all.
+- [28:18.200] I want to get the war stopped. It's very important.
+- [28:20.820] The Press: Mr. President,
+- [28:24.020] was there any aspect of your discussion with Vladimir Putin
+- [28:27.630] that left you disappointed?
+- [28:30.220] The President: Look, we just spoke to,
+- [28:33.160] I was just telling the President,
+- [28:35.290] I just spoke to President Putin indirectly.
+- [28:37.670] And we're going to have a phone call
+- [28:39.210] right after these meetings today.
+- [28:41.460] And we may or may not have a trilat.
+- [28:43.840] If we don't have a trilat, then the fighting continues.
+- [28:46.930] And if we do, we have a good chance.
+- [28:48.430] I think if we have a trilat,
+- [28:49.670] there's a good chance of maybe ending it.
+- [28:51.300] But he's expecting my call
+- [28:55.140] when we're finished with this meeting.
+- [28:56.790] Thank you very much, everyone.

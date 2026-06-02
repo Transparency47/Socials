@@ -1,0 +1,1427 @@
+<!-- source: https://www.youtube.com/watch?v=4a2QPOMbafw -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 4a2QPOMbafw -->
+<!-- date_published: 2026-05-19T18:36:16+00:00 -->
+<!-- date_accessed: 2026-06-02T02:33:39.096634+00:00 -->
+
+# Transcript: Vice President JD Vance Briefs Members of the Media, May 19, 2026
+
+- [00:06.540] The Vice President: All right. Good afternoon everybody.
+- [00:08.470] How you guys doing? Good, good. Okay.
+- [00:11.040] I've got my cheat sheet here so I know who to call on,
+- [00:13.810] most importantly, who not to call on.
+- [00:16.660] Let me start out with a few things.
+- [00:18.110] So first of all, proud to announce that next week
+- [00:20.190] I will be speaking at the Air Force Academy
+- [00:22.170] Commencement Ceremony.
+- [00:23.610] Last year I spoke at the Naval Academy Commencement Ceremony
+- [00:27.060] and it was one of the great honors
+- [00:28.510] and privileges of my life.
+- [00:29.880] So I'm excited to go out there to Colorado
+- [00:31.450] and participate in that ceremony.
+- [00:33.460] The second thing is, I want to highlight
+- [00:35.080] a little bit of some of the work that we've been doing,
+- [00:36.850] the great work our team has been doing
+- [00:38.310] on the anti-fraud task force
+- [00:39.900] where we have caught just in the last couple of months
+- [00:42.660] billions upon billions of dollars of fraud
+- [00:45.250] in our hospice system, in our Medicaid system
+- [00:47.720] and our Medicare system and our immigration system.
+- [00:50.250] We've seen hundreds of millions of dollars of fraudulent loans
+- [00:53.630] that were being handed out
+- [00:54.920] through the small business administration
+- [00:56.410] that we've identified and stopped.
+- [00:58.060] We've also started investigating
+- [00:59.760] some of the fraudulent criminal activity
+- [01:01.910] and also prosecuting some of the fraudulent criminal activities.
+- [01:04.500] So the thing that I say to the American people
+- [01:06.750] and I'll repeat here to all of you is,
+- [01:08.900] fraud is a crime that has two victims.
+- [01:11.490] It has, first of all, the American taxpayer,
+- [01:13.430] people who pay their taxes, who out of their generosity
+- [01:17.450] and because they have to, of course, they pay their taxes
+- [01:19.980] expecting that it's going to go to pay our troops
+- [01:22.150] and ensure that low income children have access to food
+- [01:24.650] and ensure that people get medical benefits
+- [01:26.820] even if they're not able to afford a doctor.
+- [01:28.740] I think that's a great thing about our country
+- [01:30.510] is that we have this generosity of spirit
+- [01:32.180] where we take care of one another,
+- [01:33.950] but fraud takes that away from us
+- [01:35.500] because it steals money from the taxpayer
+- [01:38.290] when they pay their taxes
+- [01:39.870] and it also steals money from innocent people
+- [01:42.590] who are meant to benefit from these programs
+- [01:44.270] but can't when the money runs dry
+- [01:46.150] because it's gone to fraudsters instead of the people
+- [01:48.360] who benefit from it or should benefit from it.
+- [01:50.570] So we're going to keep that work up.
+- [01:51.880] The President of the United States
+- [01:53.130] has been very clear that he wants us to focus on fraud.
+- [01:56.500] He wants us to prosecute the fraudsters
+- [01:58.710] and he wants us to save the American people
+- [02:00.350] as much money as we possibly can.
+- [02:01.660] So we're going to keep at it.
+- [02:03.020] We're very proud of that work and importantly,
+- [02:04.560] very proud of the team who've done an incredible job.
+- [02:08.190] And then finally, just to give an update
+- [02:09.790] on the Iran negotiation, the Iran situation.
+- [02:12.770] I just talked to the president very briefly
+- [02:14.740] before I came out here.
+- [02:16.100] It's actually a very simple proposition here.
+- [02:18.360] There are two options, two pathways we can go down
+- [02:21.640] when it comes to the Iran situation.
+- [02:23.670] So step back for a little bit.
+- [02:25.390] What the President of the United States has said is number one,
+- [02:27.280] Iran can never have a nuclear weapon.
+- [02:29.300] And I think it's important for the American people
+- [02:31.300] and all of you to appreciate that when we say
+- [02:33.450] that it's not just that Iran cannot have a nuclear weapon,
+- [02:36.050] it's what would happen
+- [02:37.290] if the Iranians did get a nuclear weapon.
+- [02:39.160] We know that a lot of nations all across the Gulf
+- [02:42.210] would then want their own nuclear weapon
+- [02:44.340] and then a lot of nations all across the world.
+- [02:46.870] And what has been a very effective bright spot
+- [02:49.650] of American foreign policy really for the last 20
+- [02:52.590] or so years would disappear overnight.
+- [02:54.920] If you have every country in the world
+- [02:57.140] scrambling to try to get a nuclear weapon,
+- [02:59.600] it would make us all much less safe
+- [03:01.800] and Iran would really be the first domino
+- [03:04.490] and what would set off a nuclear arms race all over the world,
+- [03:07.760] that's very, very bad for the safety of our country.
+- [03:10.410] As the father of three young kids,
+- [03:12.050] I don't want them to inherit
+- [03:13.290] a world where 20 additional regimes,
+- [03:16.550] half of them very dangerous and very sympathetic
+- [03:18.910] to terrorists have nuclear weapons.
+- [03:21.400] We want to keep the number of countries
+- [03:22.970] that have nuclear weapons small
+- [03:24.360] and that's why Iran cannot have a nuclear weapon
+- [03:27.480] on top of all the other things that we might be worried about,
+- [03:30.290] that they themselves could use it,
+- [03:31.700] that they could use it in leverage in economic control
+- [03:34.190] or economic negotiations.
+- [03:35.860] We just don't want them to have a nuclear weapon.
+- [03:38.550] Now, what we did here is that we effectively degraded
+- [03:41.810] their conventional military capability.
+- [03:43.930] That has been done. That has been successfully done.
+- [03:46.260] You could always do a little bit more,
+- [03:47.670] but where we are now is the president has asked us,
+- [03:50.570] has told us to aggressively negotiate with the Iranians.
+- [03:54.020] Why did I go to Islamabad, Pakistan?
+- [03:55.750] Why did I spend, I think, probably 22 hours on a plane
+- [03:59.670] going there, 24 hours coming back,
+- [04:01.790] and then 21 hours on the ground, negotiating with the Iranians,
+- [04:05.480] is because we wanted to show a sign of good faith.
+- [04:07.550] The Vice President of the United States
+- [04:09.130] is willing to cut a deal,
+- [04:10.800] so long as the Iranians are willing to meet us,
+- [04:13.480] again, on that core issue of never having a nuclear weapon.
+- [04:17.900] We think that we've made a lot of progress.
+- [04:19.710] We think the Iranians want to make a deal.
+- [04:21.560] The President of the United States has asked us
+- [04:23.440] to negotiate in good faith,
+- [04:24.650] and that's exactly what we've done,
+- [04:26.290] so we're in a pretty good spot here, but there's an option B.
+- [04:30.510] The option B is that we could restart the military campaign
+- [04:33.420] to continue to prosecute the case,
+- [04:36.650] to continue to try to achieve America's objectives,
+- [04:39.470] and we could talk a little bit about what that looks like,
+- [04:41.300] but that's not what the president wants,
+- [04:42.690] and I don't think it's what the Iranians want either.
+- [04:44.760] We have an opportunity here, I think,
+- [04:46.330] to reset the relationship that has existed
+- [04:49.290] between Iran and the United States for 47 years.
+- [04:52.210] That's what the president has asked us to do.
+- [04:53.930] That's what we're going to keep on working at,
+- [04:55.610] but it takes two to tango. We are not going to have a deal
+- [04:59.240] that allows the Iranians to have a nuclear weapon,
+- [05:01.400] so as the president just told me, we're locked and loaded.
+- [05:04.290] We don't want to go down that pathway,
+- [05:05.750] but the president is willing
+- [05:06.990] and able to go down that pathway if we have to.
+- [05:09.920] With that, I will say thank you all.
+- [05:12.140] It's cool to be here.
+- [05:13.430] I'm going to give a shout-out, of course,
+- [05:14.720] to the person I am replacing today,
+- [05:16.550] Carolyn Levitt, who hopefully is at home
+- [05:19.020] enjoying some time with her beautiful kids.
+- [05:21.870] I told Carolyn I would stand in for her today
+- [05:24.870] for the White House press briefing on the condition
+- [05:27.710] that when Usha has our baby in July,
+- [05:29.790] that she would be vice president for a couple of weeks.
+- [05:31.820] So, thank you guys.
+- [05:34.510] I actually want to start first with Nick from Breitbart.
+- [05:37.220] Nick, it's good to see you.
+- [05:38.530] The Press: Good to see you, Mr. Vice President. Thank you.
+- [05:41.110] Today we saw the president endorse Ken Paxton
+- [05:43.570] over John Cornyn in the Texas Senate race.
+- [05:46.380] Do you think that sends a message,
+- [05:48.020] going forward, for the next cycle to senators
+- [05:51.720] considering running for reelection
+- [05:53.690] or any mega-aligned potential candidates
+- [05:55.910] that are considering challenging them?
+- [05:57.310] The Vice President: Well, I'd say
+- [05:58.510] a couple of things, Nick.
+- [05:59.720] First of all, the president's very gratified
+- [06:02.070] by the response that he's heard from the base
+- [06:04.490] and from a lot of voters.
+- [06:05.800] I think we're passionate about Ken Paxton.
+- [06:07.910] We think Ken Paxton is going to be a great senator
+- [06:09.950] for the people of Texas, but most importantly,
+- [06:12.160] a great United States Senator
+- [06:13.470] who can work on solving the problems
+- [06:15.250] that all of us confront as a country together.
+- [06:18.500] I've known John Cornyn for a long time,
+- [06:21.050] but unfortunately, when it really counted,
+- [06:24.040] Ken Paxton was there for the country,
+- [06:26.300] was there for the president, and that's why he ultimately
+- [06:29.080] earned the president's endorsement.
+- [06:30.350] He thinks he's going to be a better senator,
+- [06:32.350] thinks he's going to make a better candidate,
+- [06:34.200] and so I do think it sends a message,
+- [06:36.780] but really, not just the endorsement,
+- [06:38.990] but one of the things the president
+- [06:40.430] has done very effectively, going back 10 years
+- [06:43.520] in his leadership of the Republican Party
+- [06:45.410] and the country as President of the United States,
+- [06:47.570] is he said, "I want people who fight for the good.
+- [06:51.810] I want people who can't be bought by corporate lobbyists,
+- [06:54.290] who can't be bought by Wall Street,
+- [06:55.720] who can't be bought by special interests,
+- [06:57.260] who are going to go to Washington
+- [06:58.730] and fight for the people
+- [06:59.930] who actually elected them to those positions."
+- [07:02.280] I think one of the things we've seen in the Republican Party,
+- [07:05.030] while I can't say that all of our representatives are perfect
+- [07:07.880] or all of our senators are perfect,
+- [07:09.610] we have seen a much better crop of talent
+- [07:13.640] come into Washington since Donald Trump
+- [07:15.440] has been the leader of the party and the leader of the movement.
+- [07:18.050] I do think we're going to continue to see that happening,
+- [07:19.900] but I think the message that people should take from this
+- [07:22.170] is, fundamentally,
+- [07:23.560] you have got to serve the people who sent you,
+- [07:27.110] and if you don't do that,
+- [07:28.350] you're going to find yourself out of step with voters
+- [07:30.200] or out of step with the President of the United States,
+- [07:32.270] and that's not a good place to be politically.
+- [07:34.680] Yeah. Go ahead.
+- [07:36.050] The Press: Thank you very much.
+- [07:37.290] Just following up on what you just said,
+- [07:38.710] you said that the White House
+- [07:41.030] is negotiating with Iran in good faith.
+- [07:44.630] I think Americans tend to believe that,
+- [07:46.550] but what is it about the Iranian side
+- [07:49.380] that you personally have seen, where you believe
+- [07:51.700] that they are negotiating with us in good faith?
+- [07:54.410] The Vice President: Well, first of all,
+- [07:55.680] I'd say it's a very complicated country,
+- [07:57.700] and it's a country that I wouldn't pretend
+- [07:59.530] that I understand,
+- [08:00.740] even after as deep as I've been involved in this process
+- [08:03.620] from the very beginning,
+- [08:04.990] it's a great and proud civilization, amazing people.
+- [08:07.910] We, obviously, have a great Iranian American community
+- [08:10.030] here in the United States of America,
+- [08:11.930] smart people, very hardworking, and you see some of that
+- [08:15.980] in the negotiating team on the other side.
+- [08:18.480] You also see some very hard lined positions
+- [08:21.320] in the negotiating team on the other side,
+- [08:22.870] and so I think you see that conflict,
+- [08:24.710] the fact that maybe the Iranians aren't themselves quite clear
+- [08:28.330] in what direction they want to go to.
+- [08:30.140] They also are just a fractured country,
+- [08:32.290] so you have the leadership of the country,
+- [08:34.600] there's the Supreme leader,
+- [08:35.860] and there are a lot of officials below the Supreme leader
+- [08:38.040] that has some influence in the negotiation.
+- [08:40.200] It's not sometimes totally clear
+- [08:42.550] what the negotiating position of the team is.
+- [08:45.550] I don't know if that's sometimes bad communication,
+- [08:48.230] if that's bad faith.
+- [08:50.120] I wouldn't pretend to venture a guest there,
+- [08:52.170] but I will say, with confidence,
+- [08:54.100] it's sometimes hard to figure out
+- [08:55.610] exactly what it is that the Iranians
+- [08:57.300] want to accomplish out of the negotiation,
+- [08:59.360] so what we've done is tried to be as clear as possible.
+- [09:03.110] What are our red lines?
+- [09:04.430] What are the things that we're willing to be accommodating on,
+- [09:06.720] and what are the things that we absolutely must have?
+- [09:09.220] As the president has said, ad nauseum,
+- [09:11.240] and I think I've said it a lot too,
+- [09:13.480] Iran cannot have a nuclear weapon.
+- [09:15.060] We want to see not just the commitment
+- [09:16.740] to not have a nuclear weapon,
+- [09:18.360] but the commitment to work with us on a process
+- [09:20.440] to ensure that not just now,
+- [09:22.400] not just when Donald Trump is president,
+- [09:24.340] but years down the road,
+- [09:25.580] that the Iranians are not rebuilding
+- [09:27.180] that nuclear capability,
+- [09:28.750] and that's what we're trying to accomplish in the negotiation.
+- [09:30.900] Sorry. You had a follow-up.
+- [09:32.140] The Press: For Americans at home,
+- [09:33.340] because this has been going on for several weeks now,
+- [09:35.650] I think what people just want to know is,
+- [09:37.790] do you personally believe
+- [09:39.350] that the Iranians will come to a deal?
+- [09:41.820] Because we keep seeing this over and over again
+- [09:43.860] when they go back and forth.
+- [09:45.490] The Vice President: So, do I personally believe
+- [09:46.830] that the honest answer is how could I possibly know?
+- [09:49.680] And you negotiate with people,
+- [09:51.400] and sometimes you feel like you're making progress
+- [09:53.230] and sometimes you feel like you're not making progress.
+- [09:55.780] What I think is that the Iranians want to make a deal.
+- [09:59.870] What I think is that the Iranians recognize
+- [10:02.340] that a nuclear weapon is the red line
+- [10:04.380] for the United States of America,
+- [10:05.730] that they've internalized that, but we're not going to know
+- [10:08.440] until we're actually putting pen to paper on signing a deal.
+- [10:11.310] We've had a lot of drafts, a lot of pieces of paper,
+- [10:15.450] going back and forth,
+- [10:16.860] but I will not say with confidence
+- [10:18.420] that we're going to reach a deal
+- [10:19.700] until we're actually signing a negotiated settlement here.
+- [10:23.450] I think that it's ultimately up to the Iranians
+- [10:26.160] whether they're willing to meet us,
+- [10:28.090] because I think we're certainly doing a good job
+- [10:30.170] and we're certainly negotiating in good faith.
+- [10:32.590] We're going to have to see what ultimately happens with them.
+- [10:34.910] I can't say with confidence, because I don't know
+- [10:36.750] what's in the mind of the other side. John?
+- [10:39.530] The Press: (inaudible). Vice President, thank you.
+- [10:41.290] I want to ask you about that $1.8 billion fund set up,
+- [10:45.480] weaponization fund as it's being called.
+- [10:48.010] Why should taxpayers be paying to settle a $10 billion lawsuit
+- [10:53.480] that was brought by the President of the United States,
+- [10:55.590] and should people that attacked the Capitol building
+- [10:59.240] and assaulted police officers, should they be eligible?
+- [11:03.250] Should they receive money?
+- [11:04.490] Should they receive money from this fund?
+- [11:05.770] The Vice President: Well, let me say
+- [11:06.990] a couple of things about that.
+- [11:08.210] First, John, I think in some ways
+- [11:09.600] the media has misrepresented what this is actually about.
+- [11:12.420] This is about compensating Americans for the lawfare
+- [11:15.350] that we saw under the last administration.
+- [11:17.490] By the way, anybody can apply for it.
+- [11:19.940] Republicans can apply for it. Democrats can apply for it.
+- [11:22.770] As you know, the President of the United States
+- [11:24.520] has pardoned a number of Democrats
+- [11:26.710] who he felt were actually subject to this lawfare.
+- [11:29.860] I mean, if Hunter Biden wants to apply
+- [11:31.870] for this particular fund, he is welcome to.
+- [11:33.960] It's going to go through a normal process
+- [11:35.560] where we vet everything, where we try to identify
+- [11:38.040] whether people's claims are actually legitimate,
+- [11:40.530] but here's the question.
+- [11:42.030] When you say, "Why should taxpayers fund this?"
+- [11:44.780] Whenever the United States government
+- [11:46.550] incurs legal expenses,
+- [11:48.420] it pays out those legal expenses.
+- [11:50.640] When it's settling a lawsuit,
+- [11:52.310] it pays out money to settle that lawsuit.
+- [11:54.940] The question is, is a dollar of this money
+- [11:56.990] going to the Trump administration?
+- [11:58.510] No.
+- [11:59.770] Is a dollar of this money going to Donald Trump personally?
+- [12:02.410] No. Is a dollar of this money going to Donald Trump's family?
+- [12:05.530] No. The people that would get the money are people
+- [12:09.050] some of whom have been prosecuted completely
+- [12:11.470] disproportionate to any crime they've ever committed.
+- [12:14.130] Let's just take a couple of examples.
+- [12:16.280] Tina Peters is this woman who is about to get out of prison,
+- [12:18.770] thanks in large part to the president's good work
+- [12:21.670] in Colorado. This is a woman who, at worst,
+- [12:25.020] if you believe everything that the prosecutor said about her,
+- [12:28.950] committed misdemeanor trespassing,
+- [12:31.470] and somebody threw the book at her.
+- [12:32.890] This innocent grandmother
+- [12:34.250] was going to spend 10 years in prison,
+- [12:36.280] completely disproportionate to any misdemeanor
+- [12:38.610] trespassing that I've ever seen.
+- [12:40.710] Was that fair? No.
+- [12:42.200] Is it reasonable for her to get some compensation for the fact
+- [12:45.110] that she was treated unfairly? I think the answer is yes.
+- [12:48.100] I think that what we're going to see, hopefully,
+- [12:50.430] is the entire country led by this Department of Justice
+- [12:54.190] turning the page on the law fair.
+- [12:55.980] What I would like to propose, and I think the Democrats,
+- [12:58.870] hopefully they're willing to meet us halfway here.
+- [13:00.910] I won't hold my breath,
+- [13:02.140] but what I would propose is something very simple,
+- [13:04.310] that if you are willing to turn the page
+- [13:06.510] on Joe Biden's law fair, why don't we prosecute people?
+- [13:09.820] Very simple principle.
+- [13:11.180] Why don't we prosecute people who violate the law?
+- [13:14.160] Let's not prosecute people
+- [13:15.490] because they said the wrong thing,
+- [13:17.460] because they had the wrong political candidate,
+- [13:19.650] or because they had the wrong viewpoint.
+- [13:21.560] I think part of that, part of turning the page on that,
+- [13:24.330] is to actually ensure the real victims
+- [13:26.520] of that lawfare receive some compensation.
+- [13:29.310] That's what this fund is going to be targeted at.
+- [13:31.460] Again, there's going to be a process
+- [13:32.820] to ensure that that money is only given
+- [13:34.670] to people who have actually, I hate to say earned it,
+- [13:37.510] but the people who actually were really mistreated
+- [13:40.240] by the previous administration and Department of Justice.
+- [13:45.430] The Press: I understand that everybody is eligible
+- [13:47.540] to apply for this fund. I mean, you're eligible,
+- [13:49.790] but I assume you're not going to apply
+- [13:51.170] and you don't think you should get money out of this fund.
+- [13:52.770] The Vice President: Of course.
+- [13:53.990] The Press: So, isn't it just as easy to say
+- [13:55.610] that people that attacked police officers
+- [13:58.010] should not get taxpayer money from this fund?
+- [14:01.300] The Vice President: Look, John. We're not trying to give money
+- [14:03.320] to anybody who attacked a police officer.
+- [14:06.070] We're trying to give money, not give money,
+- [14:07.990] we're trying to compensate people,
+- [14:09.980] where the book was thrown at them,
+- [14:12.060] they were mistreated by the legal system.
+- [14:14.320] Sometimes we do have, John, in this country,
+- [14:17.720] innocent until proven guilty.
+- [14:19.530] We do have people who are accused
+- [14:21.290] of attacking law enforcement officers.
+- [14:25.570] That doesn't mean that we're going to completely ignore
+- [14:28.780] some of the claims that they're going to make.
+- [14:30.340] We're going to evaluate these things on a case-by-case basis.
+- [14:32.730] If we think that somebody, whatever they were accused of,
+- [14:36.180] if we think that somebody was unfairly prosecuted
+- [14:40.880] and deserves just compensation,
+- [14:42.890] then that's what this fund is going to exist to provide.
+- [14:44.950] It's just going to correct a wrong,
+- [14:46.810] and I think that's a good thing,
+- [14:48.140] and I'd encourage everybody, Democrat, Republican,
+- [14:50.230] independent, let's turn the page on this thing
+- [14:52.700] that we did under the last administration,
+- [14:54.990] where we tried to throw people in prison
+- [14:56.810] because they had the wrong politics.
+- [14:58.520] Let's throw people in prison who broke the law.
+- [15:00.660] I think this fund is a good part of getting justice
+- [15:03.890] for the people who are wrongly treated.
+- [15:05.670] Back there, yeah?
+- [15:07.030] The Press: Thank you, sir.
+- [15:09.160] Just to follow up on that quickly,
+- [15:10.540] does that mean that people that were violent,
+- [15:14.400] that were convicted, were mistreated?
+- [15:16.710] Are you saying that?
+- [15:18.350] The Vice President: Well, you're asking me to comment
+- [15:20.520] on hypotheticals
+- [15:22.450] and on any number of dozens of cases.
+- [15:24.730] Here's the thing.
+- [15:25.930] We're going to look at everything case by cases.
+- [15:27.820] As you know, every single case has its own details.
+- [15:33.100] There are things about it that maybe don't meet the eye.
+- [15:36.110] We're just going to look at every case, case by case.
+- [15:37.950] That's all I'm saying.
+- [15:39.240] I'm not committing to giving anybody money
+- [15:41.250] or committing to giving no one money.
+- [15:43.300] What I'm committing to is a legal process
+- [15:45.780] to review these claims
+- [15:47.860] and to make sure that people who are mistreated
+- [15:49.640] by their government get a little bit of compensation
+- [15:52.050] because of it. Go ahead.
+- [15:54.400] The Press: Thank you, sir. Thank you, Mr. Vice President.
+- [15:56.920] The Vice President: I realized that the pointer finger
+- [15:58.450] is not as precise as I thought it was.
+- [16:02.170] Sorry. I have this cheat sheet,
+- [16:03.940] but the problem with being 41 years old
+- [16:05.470] is I am blinder than I was a few years ago.
+- [16:07.760] So, we'll say blue blazer, blue tie.
+- [16:09.230] The Press: This one right here?
+- [16:10.430] The Vice President: Yeah.
+- [16:11.670] The Press: Okay, great. Thank you, Mr. Vice President.
+- [16:13.290] I'd like to ask a quick follow up on Iran,
+- [16:15.260] but first I'd like to ask you about fentanyl.
+- [16:18.060] Fentanyl, sourced largely from China,
+- [16:19.950] killed about 403,000 Americans over the past seven years,
+- [16:24.230] according to CDC data.
+- [16:25.550] That's 1 in every 850 Americans who died.
+- [16:30.710] White House counter-terrorism director Sebastian Gorka said,
+- [16:33.260] last week, that China's exports amounted to the targeted
+- [16:36.840] killing of Americans and war by other means.
+- [16:39.860] Do you agree with that assessment,
+- [16:41.150] and what is the Trump administration
+- [16:42.560] doing to punish and deter China,
+- [16:44.850] especially since the Supreme Court struck down
+- [16:47.030] the (inaudible) tariffs?
+- [16:48.520] The Vice President: So, go ahead ask the second question,
+- [16:49.980] because I'll try to take each question,
+- [16:51.860] and then I'll try to answer them and then we'll go on.
+- [16:53.550] If you ask two questions,
+- [16:54.790] I can only guarantee that I'll answer one.
+- [16:56.460] In fact, I'm a politician,
+- [16:57.740] maybe I won't even answer the one that you asked,
+- [16:59.310] but I will try at least to answer one question.
+- [17:01.790] The Press: Well, I'd love to hear
+- [17:03.050] the fentanyl response too. If not today, sometime.
+- [17:04.910] The Vice President: Go ahead.
+- [17:06.140] The Press: On Iran, is Russia taking possession
+- [17:09.230] of the enriched uranium in Iran a plausible end to the war,
+- [17:12.520] and if not, why not?
+- [17:14.340] The Vice President: So first, on the Russia taking possession
+- [17:16.030] of the enriched uranium,
+- [17:17.950] look, these things are being discussed through negotiation.
+- [17:20.330] That is not currently our plan. That has never been our plan.
+- [17:22.800] I've seen some reporting on that.
+- [17:24.220] I don't know where it comes from,
+- [17:26.250] but the president's going to continue to negotiate a deal.
+- [17:28.910] That is not currently the plan of the United States government.
+- [17:31.270] The Iranians have not raised it.
+- [17:33.050] My sense is that's not something the Iranians
+- [17:34.950] would be particularly excited about,
+- [17:36.880] and I know the president isn't particularly excited
+- [17:38.650] about it either, but who knows?
+- [17:40.590] I'm not going to make pre-commitments
+- [17:42.000] in a negotiation on any particular topic.
+- [17:44.440] On the question of fentanyl,
+- [17:45.720] a lot of people have died from fentanyl, absolutely.
+- [17:48.140] A lot of it has come from mainland China.
+- [17:50.850] We're certainly aware of that, but here's what I'll say.
+- [17:52.760] First of all, we've made incredible strides
+- [17:55.740] under Donald Trump's leadership to cut down on fentanyl deaths.
+- [17:58.640] If you look at the number of people who died in 2026,
+- [18:01.790] it's going to be lower than the number who died in 2025,
+- [18:04.660] which is way lower than the number who died in 2024.
+- [18:07.930] This is one of the things that I think all Americans,
+- [18:10.130] we should be celebrating,
+- [18:11.490] and I'm certainly proud of the president's leadership
+- [18:13.310] for making this possible. We ran, if you remember,
+- [18:16.150] in November of 2024 on a very simple idea,
+- [18:19.330] that a lot of fentanyl came from East Asia.
+- [18:22.040] It was smuggled into Central and South America,
+- [18:25.110] and then the cartels would bring it into our country
+- [18:27.510] and a lot of our people would get poisoned
+- [18:29.100] and killed because of it.
+- [18:30.400] We said, if you got control of the southern border,
+- [18:33.370] we would see a substantial reduction
+- [18:35.160] in the number of people who died from fentanyl overdoses
+- [18:37.930] in the United States of America,
+- [18:39.490] and that is exactly what's happened.
+- [18:41.170] Now, yes, the president has raised this
+- [18:43.190] with President Xi any number of times.
+- [18:44.960] I know it came up during the meeting
+- [18:46.250] that they had in China just last week,
+- [18:48.690] but it's come up in any number of phone calls,
+- [18:50.630] and our sense is that President Xi has been willing
+- [18:53.440] to work with us on this,
+- [18:54.770] and obviously we want to continue to ensure
+- [18:56.930] that the Chinese work with us as much as possible,
+- [18:59.340] because we don't want our people to be poisoned.
+- [19:01.520] We'll keep working on that issue with the Chinese.
+- [19:05.320] There's been, I think,
+- [19:06.540] a big amount of progress that's been made,
+- [19:09.180] but of course we can make a lot more progress,
+- [19:10.970] and we're certainly going to be committed to doing exactly that.
+- [19:14.690] Yeah, white jacket. Sorry.
+- [19:17.020] The Press: Oh, hey. Yeah. Natalie with Washington.
+- [19:18.560] The Vice President: Natalie, thank you.
+- [19:19.840] The Press: Yeah. Thank you, Mr. Vice President.
+- [19:21.740] Does the government need to create new mandatory
+- [19:24.340] review process for new AI models,
+- [19:26.830] given the concerns about Mythos?
+- [19:28.060] And secondly, in a few days, Pope Leo is going to release
+- [19:30.780] his encyclical on artificial intelligence.
+- [19:34.020] What influence, if any,
+- [19:35.550] do you see the Pope's guidance on AI having to broader society?
+- [19:40.360] The Vice President: Well, I mean,
+- [19:41.610] I think when the Pope issues its encyclical
+- [19:43.470] on artificial intelligence,
+- [19:44.720] it's going to have some influence.
+- [19:45.940] I, of course, don't know how much influence.
+- [19:47.640] I don't know exactly what it's going to say,
+- [19:50.310] but I think when the leader of the world's
+- [19:52.290] largest Christian denomination speaks on an issue like that,
+- [19:54.800] it's certainly going to have some influence,
+- [19:56.420] and I'm sure it'll contain a lot of insights,
+- [19:58.460] some of which I'll probably agree with,
+- [19:59.850] some of which I may not,
+- [20:01.190] but I think that it's going to be
+- [20:02.950] a very, very important document. I think that one of the things
+- [20:06.100] I always found fascinating about Pope Leo
+- [20:08.270] is that he chose the name Leo the 14th,
+- [20:10.620] which of course is recollecting Leo the 13th.
+- [20:13.550] Leo the 13th was the Pope during a period of incredible
+- [20:16.890] industrial transformation in the entire world.
+- [20:19.210] Of course, that industrial transformation,
+- [20:21.080] according to a lot of people,
+- [20:22.380] led to the rise of fascism and communism in Europe.
+- [20:25.620] I think it was interesting that Leo the 14th chose that name
+- [20:29.180] to maybe apply Christian social teaching in a new era
+- [20:32.350] with a new technological innovation
+- [20:35.030] in the same way that the Industrial Revolution
+- [20:36.650] was the technological innovation of its time,
+- [20:38.650] so I think it'll be fascinating.
+- [20:40.070] I'm looking forward to reading it.
+- [20:41.360] My guess is it's going to have a lot of influence.
+- [20:43.510] On the question of what our policy is going to be,
+- [20:45.930] look, what we're trying to do
+- [20:47.240] in the Trump administration is very simple.
+- [20:48.910] The president wants us to be pro innovation.
+- [20:51.060] He wants us to win the AI race
+- [20:52.720] against all other countries in the world.
+- [20:54.560] He recognizes that AI is going to be an important tool,
+- [20:57.240] not just for our economy, but for our military.
+- [20:59.180] And so, he wants to ensure
+- [21:00.810] that we are winning that particular race.
+- [21:03.040] We also want to make sure that we're protecting people.
+- [21:05.180] We're protecting people's data.
+- [21:06.870] We're protecting people's privacy.
+- [21:08.440] I think with this mythos release,
+- [21:09.880] one of the things that we're very focused on, of course,
+- [21:12.040] is whether, not necessarily the developers of Mythos,
+- [21:15.680] but whether some other bad actor could use Mythos
+- [21:19.010] to target various cybersecurity vulnerabilities.
+- [21:21.830] It's something that, right now,
+- [21:23.040] we're working in a collaborative way
+- [21:25.600] with the technology companies. We're just trying to make sure
+- [21:28.420] that the American people are as safe as possible.
+- [21:30.810] I'm not going to get ahead of the executive order
+- [21:32.750] or any other actions that are going to come out,
+- [21:34.990] but we're trying to balance those two things.
+- [21:36.880] We want to be pro innovation.
+- [21:38.490] We recognize artificial intelligence could be great.
+- [21:41.870] It could help us find cures to diseases
+- [21:44.060] that currently people are dying from or suffering from.
+- [21:47.020] It also does have some downsides,
+- [21:49.440] and we're trying to balance that safety against innovation.
+- [21:52.680] We think that we've got the right balance here
+- [21:54.330] in the Trump administration,
+- [21:55.540] but it's something we're going to have to keep on working on,
+- [21:57.360] because that's just the nature of these technologies,
+- [22:00.310] is they certainly change.
+- [22:02.330] Let's go, is that Reagan all the way in the back, Daily Caller?
+- [22:04.690] There we go. Okay.
+- [22:06.930] I figured out, finally, how the seating chart works.
+- [22:10.330] The Press: I want to ask you about the anti-fraud task force.
+- [22:13.600] You previously mentioned that Ilhan Omar seemed
+- [22:16.340] to have committed immigration fraud.
+- [22:18.930] Do you anticipate an indictment against her,
+- [22:20.980] an indictment related to that situation?
+- [22:23.400] The Vice President: Yeah. So Reagan,
+- [22:24.640] I don't want to prejudge an investigation.
+- [22:26.830] I mean, you read the things about Ilhan Omar,
+- [22:29.700] and about who she married
+- [22:31.360] and whether she didn't marry this person or that person.
+- [22:33.640] It certainly seems like something fishy is there,
+- [22:35.840] but everybody's entitled to equal justice under the laws.
+- [22:39.350] So we're going to investigate it.
+- [22:40.600] We're going to take a look at it.
+- [22:41.810] If we think that there's a crime,
+- [22:43.060] we're going to prosecute that crime.
+- [22:44.510] And that's something the Department of Justice
+- [22:46.020] is looking at right now. Go ahead.
+- [22:50.800] The Press: Based on what you've seen during your work
+- [22:52.920] on this anti-fraud task force,
+- [22:54.300] do you believe anything should change
+- [22:56.030] about our immigration or refugee policies
+- [22:58.670] to stop fraud in the United States?
+- [23:00.380] The Vice President: Well, yeah.
+- [23:01.580] Look, one thing I'd say is that the biggest immigration fraud
+- [23:05.580] that existed under the Biden administration,
+- [23:07.210] it's not just that they let a flood of people
+- [23:08.900] across the southern border.
+- [23:10.190] That was obviously a very major problem,
+- [23:12.040] and something I'm proud of the President for stopping,
+- [23:13.900] but it's also that they allowed the asylum and refugee
+- [23:17.280] claimant process to become totally fraudulent.
+- [23:20.460] And so here's what would happen.
+- [23:21.950] You would take a person, who in normal cases,
+- [23:25.060] would just be a traditional economic immigrant.
+- [23:26.930] Whether you let them into the country or not,
+- [23:28.650] they're trying to come because they want a better job.
+- [23:31.590] They would come into the country
+- [23:32.790] and say that they were fleeing persecution,
+- [23:35.350] and they would say that they were an asylum claimant.
+- [23:37.420] And then effectively what the Biden administration
+- [23:39.220] would do is say,
+- [23:40.550] "Okay, you're an asylee, go into the interior of the country,
+- [23:45.630] here's a work permit,
+- [23:46.910] maybe come back in 10 or 12 years for your hearing
+- [23:49.450] on whether you actually have a legitimate asylum claim."
+- [23:51.700] So what did that mean?
+- [23:52.900] That meant that person was just completely given amnesty
+- [23:55.330] and released into the interior of the country.
+- [23:57.270] Well, what if that person was a criminal?
+- [23:58.960] What if that person actually had a violent history?
+- [24:01.980] We didn't do any of the work necessary
+- [24:03.910] to ensure that the people coming into our country
+- [24:06.380] claiming to be asylum claimants actually had anything legitimate
+- [24:10.560] or anything good in their background.
+- [24:11.980] So, that is a serious problem.
+- [24:14.030] It is something that we have fixed
+- [24:15.330] in the Trump administration, but fundamentally that loophole,
+- [24:19.010] you're going to see sometime in the future
+- [24:21.640] somebody is going to try to exploit that loophole.
+- [24:24.170] And it's one of the things that we're very focused on
+- [24:25.920] in the fraud task force,
+- [24:27.160] is making sure that the people who exploited that loophole
+- [24:30.390] are actually prosecuted for it, assuming they committed a crime.
+- [24:34.290] So I don't know your name.
+- [24:35.910] You have a beautiful cross necklace though, so go ahead.
+- [24:37.800] The Press: Cara Castronuova from Lindell TV.
+- [24:39.070] Thank you so much. The Vice President: Hi, Cara.
+- [24:40.370] The Press: I have two questions.
+- [24:42.390] One of them is going back to the $1.8 billion fund,
+- [24:46.260] not to keep beating that,
+- [24:47.490] but sadly Democrat lawmakers are misrepresenting that fund.
+- [24:51.020] The Vice President: I agree. The Press: Yes.
+- [24:52.220] The Vice President: It's a great question.
+- [24:53.440] The Press: And sadly, some of the mainstream media
+- [24:54.930] doesn't understand the magnitude
+- [24:56.230] of the political persecution of J6ers.
+- [24:58.870] So if a violent offender like a J6er
+- [25:00.690] was still over sentenced and mistreated,
+- [25:02.940] literally some of them were sentenced to 24 years in prison,
+- [25:06.050] put in on an unconstitutional pre-trial detention,
+- [25:10.070] literally tortured in cages,
+- [25:11.970] wouldn't that person still be able to apply for the fund
+- [25:14.370] because of due process? And-
+- [25:17.050] The Vice President: This is why we say,
+- [25:18.300] just to answer that very briefly,
+- [25:19.770] this is why we say we have to evaluate
+- [25:21.260] this thing case by case. We don't in the United States
+- [25:24.470] say that everybody who's accused of a crime
+- [25:27.750] is automatically guilty in a court of public opinion.
+- [25:30.950] You've got to actually look at this stuff
+- [25:32.590] and figure out what were they accused of.
+- [25:34.490] Maybe they did something bad even,
+- [25:36.120] but what they were accused of
+- [25:37.400] was way worse of what they actually did.
+- [25:39.550] Maybe they had their entire lives ruined
+- [25:41.840] in a totally disproportionate way.
+- [25:43.950] That's fundamentally illegitimate and political.
+- [25:47.070] And I find, just here on this point,
+- [25:49.790] one of the interesting things about the American media
+- [25:51.960] is there is a fascination.
+- [25:53.740] If you go to any American law school,
+- [25:56.120] there are these prisoner rights clinic.
+- [25:58.600] There are people who objectively committed heinous crimes,
+- [26:02.680] but the American media and the American legal academy
+- [26:05.460] has decided that even though they committed bad crimes,
+- [26:08.730] their sentence was disproportionate,
+- [26:10.400] they were mistreated in some way.
+- [26:12.200] You know who never ever gets an ounce of sympathy
+- [26:15.890] when it comes to that disproportionate sentencing?
+- [26:18.670] Is people who voted for Donald Trump
+- [26:20.100] and participated in the January 6th protest.
+- [26:21.480] The Press: Thank you so much.
+- [26:22.690] The Vice President: Go to your second question.
+- [26:23.920] The Press: (inaudible) about Pete Davidson.
+- [26:25.130] He made a horrific obscene joke
+- [26:26.460] about the murder of your friend Charlie Kirk.
+- [26:28.370] What does this still say about
+- [26:29.570] where our political divisions have gone,
+- [26:31.060] and what are you specifically doing to bridge the divide,
+- [26:33.870] especially as a potential future president?
+- [26:36.360] The Vice President: Well, sorry, who was it that said something?
+- [26:38.610] The Press: Pete Davidson made a really obscene joke
+- [26:40.490] about Charlie Kirk.
+- [26:41.770] So what are you doing as a potential future candidate
+- [26:43.760] or a president to bridge a divide?
+- [26:45.080] The Vice President: Well, first of all,
+- [26:46.310] I'm not a potential future candidate.
+- [26:47.780] I'm a vice president and I really like my job,
+- [26:49.780] and I'm going to try to do as good of a job as I can,
+- [26:51.860] but let me just say this.
+- [26:53.110] So, you talked about Pete Davidson
+- [26:55.180] who said something bad about Charlie Kirk.
+- [26:57.720] Charlie was a very, very dear friend,
+- [26:59.400] but more importantly than that,
+- [27:00.800] Charlie was a father of two beautiful kids,
+- [27:03.980] and he did not deserve
+- [27:05.320] to have all of those moments with his kids,
+- [27:07.560] all of those moments with his beautiful wife
+- [27:09.580] taken from him in the way that that happened.
+- [27:12.790] I would expect everybody, everybody with a heart
+- [27:15.660] or a conscience would say whatever we agreed or disagreed
+- [27:18.410] with about his particular viewpoints,
+- [27:21.000] this is a tragedy and it's totally unacceptable
+- [27:23.580] that it happens in the United States of America.
+- [27:25.530] To their credit, a lot of the reporters in this room,
+- [27:27.990] even though I don't agree with their politics,
+- [27:30.000] they were open about the fact
+- [27:31.550] that what happened to Charlie was disgusting
+- [27:33.450] and it shouldn't happen in a civilized country.
+- [27:36.390] You talk about bridging the divide.
+- [27:38.280] One thing that happened
+- [27:39.590] that hits not quite literally close to home,
+- [27:42.100] but there was a very terrible shooting that happened today
+- [27:45.010] at a Muslim community center.
+- [27:46.310] It seems like three people are dead, plus the shooters,
+- [27:49.510] and that community center is actually very close
+- [27:54.100] to this restaurant that Usha and I go to.
+- [27:58.040] Her family lives in San Diego.
+- [27:59.470] She was born and raised in San Diego.
+- [28:01.360] Every time we go to San Diego, we go to this restaurant that
+- [28:04.900] is maybe a five-minute drive from this community center.
+- [28:07.900] And I found out about it actually on my way
+- [28:09.790] to the White House this morning and I texted her, I said,
+- [28:12.290] "Would you have known anybody who was involved in this?"
+- [28:14.480] And she said, "Absolutely, I would have known some people
+- [28:17.190] or at least their parents who might have actually
+- [28:19.270] used the services at this community center."
+- [28:21.680] I don't know a single person who would say anything
+- [28:24.150] other than what I'm about to say,
+- [28:25.640] which is that that type of violence
+- [28:27.670] in the United States of America is reprehensible,
+- [28:30.270] and I encourage every single American
+- [28:32.190] to pray for everybody who was involved and affected by it.
+- [28:35.120] We don't want that to happen in our country,
+- [28:37.150] and may God rest the souls of the people who lost their lives.
+- [28:40.380] What I do find a little distressing,
+- [28:43.020] is that while every person I know,
+- [28:45.600] every politically conservative person I know
+- [28:48.340] would say exactly what I said about these innocent people
+- [28:51.780] who were killed, there were a lot of people
+- [28:53.820] who were celebrating the death of Charlie Kirk.
+- [28:55.600] And I think one way that we can bridge the divide
+- [28:57.340] is just have a very simple principle in this country.
+- [28:59.870] Number one, we don't want
+- [29:01.370] the government throwing people in prison
+- [29:03.150] because they have bad politics, however you define bad politics.
+- [29:06.890] Number two, and way more importantly, political violence,
+- [29:10.440] wherever it comes from,
+- [29:11.860] is unacceptable in the United States of America.
+- [29:14.250] Let's talk with one another,
+- [29:15.730] not shoot each other when we disagree.
+- [29:17.520] I think that's the principle
+- [29:19.080] that everybody in this room agrees with.
+- [29:20.690] It's certainly the principle
+- [29:21.920] the President of the United States agrees with.
+- [29:26.270] All right. Sorry.
+- [29:30.010] Sorry, I'm going to try to read this here.
+- [29:33.530] I'm sorry? Okay. Okay. That was kind of interesting,
+- [29:38.460] so I'm going to give you the question.
+- [29:39.970] All right, go ahead.
+- [29:41.480] The Press: So last week,
+- [29:43.010] the Pentagon halted deployment of 4,000 troops,
+- [29:48.590] US troops in Poland, to Poland.
+- [29:52.520] This is in direct contradiction to President Trump
+- [29:55.890] explicitly promised
+- [29:57.650] not to reduce the troop level in Poland.
+- [30:01.250] So, I'm going to ask you this question,
+- [30:03.970] which many people in Poland think.
+- [30:06.850] Why are you rewarding Putin
+- [30:09.630] and punishing your best ally in Europe?
+- [30:12.930] The Vice President: Well, first of all,
+- [30:14.260] I'd say there's been no president
+- [30:16.380] who's done more, frankly,
+- [30:18.110] to ensure that Ukraine survived the invasion of Russia
+- [30:22.760] than Donald Trump. As he famously said,
+- [30:24.790] "Obama gave them sheets, I gave them javelins,"
+- [30:26.810] and it was those javelins that ensured that Ukraine
+- [30:28.950] still has its territorial sovereignty.
+- [30:31.000] What he's also said is that he wants to pursue
+- [30:32.570] an American policy
+- [30:33.810] that focus on the interests of the United States.
+- [30:36.100] And part of that foreign policy is not to reward Putin
+- [30:40.310] or not to punish a country like Poland, which we love.
+- [30:43.270] We love Poland. We love the Polish people.
+- [30:45.670] No, no, no. What we're trying to do,
+- [30:47.730] what our foreign policy is geared towards
+- [30:49.830] is promoting European independence and sovereignty.
+- [30:53.720] We want Europe to take more ownership
+- [30:56.360] over its own territorial integrity.
+- [30:58.670] We want Europe to step up in a big way.
+- [31:00.440] Now, I think you said 4,000 troops.
+- [31:03.270] We've not reduced the troop levels in Poland
+- [31:05.160] by 4,000 troops.
+- [31:06.450] What we did is that we delayed a troop deployment
+- [31:10.140] that was going to go to Poland. That's not a reduction.
+- [31:12.670] That's just a standard delay in rotation
+- [31:14.900] that sometimes happens in these situations.
+- [31:17.370] But here's the fundamental problem.
+- [31:19.400] Poland is capable of defending itself
+- [31:23.840] with a lot of support from the United States.
+- [31:25.330] We're not talking about
+- [31:26.530] pulling every single American troop out of Europe.
+- [31:29.580] We're talking about shifting some resources around
+- [31:32.640] in a way that maximizes American security.
+- [31:35.290] I don't think that's bad for Europe.
+- [31:37.310] That's encouraging Europe to take more ownership.
+- [31:39.610] The United States cannot be the policeman of the world.
+- [31:42.770] We want to be good allies.
+- [31:44.290] We want to make sure that our troop presence promotes
+- [31:46.520] regional stability in Europe.
+- [31:48.430] The President has not said that he could.
+- [31:50.550] The President has not said
+- [31:51.820] that he's taken all of the troops out of Europe,
+- [31:54.420] but Europe has to stand on its own two feet.
+- [31:57.110] And that's something that he's been consistent of.
+- [31:59.130] Frankly, not even since the beginning
+- [32:00.850] of this administration,
+- [32:02.220] going back to the first administration
+- [32:04.220] is we have got to have more sovereignty
+- [32:07.850] and more of Europe standing on its own two feet.
+- [32:10.330] That will continue to be our policy in Europe.
+- [32:13.970] The Press: Those troops will go eventually to Poland?
+- [32:17.000] The Vice President: What I said is that it is a delay
+- [32:18.540] in troop rotation.
+- [32:19.780] Those troops could go elsewhere in Europe.
+- [32:21.630] We could decide to send them elsewhere.
+- [32:23.010] We actually haven't made the final determination
+- [32:24.830] about where those troops are ultimately going to go.
+- [32:27.070] But what I'm saying is it is not accurate to say
+- [32:29.170] that we are pulling a bunch of troops out.
+- [32:31.310] It is a very small and very minor thing.
+- [32:34.030] And I think frankly, a lot of the European media,
+- [32:36.450] again, is overreacting to this a bit.
+- [32:38.870] And here's one thing I'll say about this.
+- [32:41.320] Look, I have for my entire life,
+- [32:43.290] I'm 41 years old, for my entire life,
+- [32:46.030] I have heard chirping from the European media
+- [32:49.680] about everything that's wrong
+- [32:50.930] with the United States of America.
+- [32:52.670] "We don't have this. We don't have that.
+- [32:54.640] We don't spend enough on healthcare,"
+- [32:56.830] even though part of the reason why we spend so much on defense
+- [32:59.950] was because we have tens of thousands of troops in Europe.
+- [33:03.200] I think that if the European media
+- [33:04.920] wants to attack the President of the United States,
+- [33:07.140] they need to start looking in the mirror.
+- [33:09.240] All he has said is that we're going to be good allies,
+- [33:11.980] we're going to be good friends,
+- [33:13.330] we're going to be trading partners,
+- [33:14.810] but it is reasonable for Europe
+- [33:16.890] to take a little bit more ownership
+- [33:19.880] over its continental integrity. Kaitlan?
+- [33:25.020] The Press: I have a question on the war,
+- [33:26.600] but just to follow up, you previously told me
+- [33:29.320] that anyone who assaulted a police officer on January 6th
+- [33:32.070] should go to prison.
+- [33:33.360] So why not rule out giving them taxpayer funded money?
+- [33:36.160] The Vice President: Well, Kaitlan,
+- [33:37.490] what I said is we're going to look at everything case by case.
+- [33:39.550] The Press: But why not rule it out?
+- [33:40.760] The Vice President: Because Kaitlan,
+- [33:41.990] there are people
+- [33:43.210] who I don't know their individual circumstances
+- [33:46.720] and I don't rule things out categorically when I know
+- [33:49.300] nothing about a person's individual circumstances.
+- [33:51.710] Let's say a person is accused, let's say hypothetically,
+- [33:54.960] a person is accused of doing something
+- [33:56.750] that they never actually did, that they got a kangaroo court,
+- [34:00.750] that they had a judge who mistreated them.
+- [34:02.820] I think that we should look at those things case by case.
+- [34:05.840] We're not making commitments to give anybody money.
+- [34:08.330] We're just making commitments to look at things case by case.
+- [34:13.220] The Press: But just to follow up on the war,
+- [34:15.200] you, last week, denied that the President said
+- [34:17.040] he was not taking Americans financial situations
+- [34:19.780] into consideration
+- [34:21.070] when he's making decisions on the Iran war.
+- [34:23.420] He was asked about that again.
+- [34:25.060] He stood by it, called it a perfect statement,
+- [34:27.090] and said he would make it again.
+- [34:28.820] Do you believe that Americans' financial situations
+- [34:31.390] should be taken into consideration
+- [34:33.190] when you're making decisions as an administration about the war?
+- [34:35.470] The Vice President: No. See, Kaitlan, what you did
+- [34:36.910] is you misrepresented the question that I was asked
+- [34:39.760] and then you misrepresented the answer that I gave.
+- [34:41.510] What I said is that a question that was asked
+- [34:44.280] where the President allegedly,
+- [34:46.090] he allegedly said that he didn't care
+- [34:47.770] about Americans' financial situations, he never said that.
+- [34:52.730] It was totally taken out of context.
+- [34:54.600] What he said is that when he is negotiating with the Iranians,
+- [34:57.390] he's focused on the national security objectives
+- [35:00.350] that he's trying to achieve.
+- [35:01.830] Of course, the President has a mandate
+- [35:04.110] to be focused on a number of things.
+- [35:06.130] And I guarantee you every single day,
+- [35:08.220] I have conversations with him about it,
+- [35:09.820] every single day he's worried about his fellow Americans.
+- [35:12.990] He wants them to be prosperous. He wants them to thrive.
+- [35:15.520] He wants them to have good jobs. That's why we've done the things
+- [35:18.270] and taken the steps that we've taken
+- [35:20.040] in order to create record job growth,
+- [35:22.340] in order to create record wage growth,
+- [35:24.450] in order to induce trillions of dollars of new investment
+- [35:27.340] into our country, that's because he cares about that stuff.
+- [35:30.070] What he also said, is that when he's talking to the Iranians,
+- [35:32.460] he's talking to the Iranians about questions,
+- [35:34.190] of course, of national security. Like their nuclear program.
+- [35:38.350] You could hold two thoughts in your head at the same time,
+- [35:40.470] that the President cares
+- [35:41.750] about financial security for Americans,
+- [35:43.810] but also when he's negotiating with the Iranians,
+- [35:46.000] he's talking about the issues
+- [35:47.350] that are germane to the concerns of that particular conflict.
+- [35:51.350] Go ahead.
+- [35:53.890] The Press: Just going back to the price tag
+- [35:56.080] for this DOJ fund,
+- [35:57.560] $1.8 billion, you have people that can't afford groceries.
+- [36:02.560] Gas is high.
+- [36:03.880] People are making sacrifices in their personal
+- [36:06.250] lives to accommodate for this rise in prices.
+- [36:08.770] People are telling us that they feel financially worse off.
+- [36:12.670] They're very concerned about the uncertainty.
+- [36:14.990] How can you justify that amount of taxpayer money for that fund
+- [36:19.910] when people are struggling?
+- [36:21.540] What do you say to Americans who wonder,
+- [36:23.950] "Why this fund is getting all this money
+- [36:25.940] and I can't afford basic life amenities?"?
+- [36:28.190] The Vice President: Well, let me say
+- [36:29.430] a couple of things about that.
+- [36:30.670] First of all, you said $1.8 billion,
+- [36:32.970] and it's important for people to realize
+- [36:35.240] we're not just writing a $1.8 billion check.
+- [36:37.790] We're going to take a lot of people who are going to apply
+- [36:40.340] and say that they have been mistreated by their government.
+- [36:42.670] We're going to handle those situations case by case.
+- [36:44.850] And if we determine they were,
+- [36:46.190] in fact, mistreated by their government,
+- [36:48.000] we think it's reasonable to give them just compensation.
+- [36:51.300] But when you talk about funds and pots of money
+- [36:54.250] that are out there,
+- [36:55.700] thanks to Donald Trump's leadership
+- [36:57.340] and the Working Families Tax Cut,
+- [36:59.090] we put $40 billion into a rural healthcare fund
+- [37:03.120] in order to stop the closure,
+- [37:04.870] or at least prevent some closure of rural hospitals
+- [37:08.510] and rural clinics that had been decimated
+- [37:10.070] under the Biden administration.
+- [37:11.640] We had a piece of tax legislation
+- [37:13.470] that put hundreds of billions of dollars
+- [37:16.100] into the pockets of families, no taxes on social security,
+- [37:19.840] no taxes on overtime, no taxes on tips.
+- [37:22.410] So, I reject the idea that we can't walk
+- [37:25.340] and chew gum at the same time.
+- [37:26.840] We can give just compensation to people
+- [37:29.110] who are mistreated by the government.
+- [37:30.720] We can also make sure that the American people,
+- [37:33.500] we do everything that we can to make their lives better,
+- [37:36.190] to make them more prosperous, to give them better jobs.
+- [37:38.850] That is the primary focus of Donald J. Trump's White House.
+- [37:42.540] That's the question all of us ask every single day is,
+- [37:45.500] "How do we make our fellow citizens more prosperous?"
+- [37:48.140] We can do that while also taking care of people
+- [37:50.350] who are mistreated by the last administration.
+- [37:52.700] Go ahead, sir. Yeah.
+- [37:54.080] The Press: Thank you, Mr. Vice President.
+- [37:56.630] Thank you very much, Mr. Vice President.
+- [37:58.970] Mr. Kudis here.
+- [38:00.420] After the ceasefire with Iran, drone and missile attacks
+- [38:04.060] on the Kurdistan region have not stopped it.
+- [38:07.560] That happened yesterday as well.
+- [38:09.410] What is your position on this issue,
+- [38:11.780] and what do you expect from the new Iraqi government
+- [38:15.840] regarding the control of militias?
+- [38:19.040] The Vice President: Well, you've asked the President
+- [38:21.380] this question before,
+- [38:22.660] and we certainly love the people of Kurdistan.
+- [38:25.540] Anytime that drone attacks or missile attacks
+- [38:27.770] are hitting anybody,
+- [38:29.110] but particularly civilian populations,
+- [38:30.740] that's not something we like to see at all.
+- [38:32.950] And it's one of the things that sometimes happens.
+- [38:34.680] Unfortunately, these ceasefires, they're not always perfect.
+- [38:37.740] We've seen that in Gaza.
+- [38:39.080] We've seen that certainly in Iran and some of its neighbors,
+- [38:42.720] but we have seen a significant reduction in violence
+- [38:45.620] over the last few weeks of the ceasefire.
+- [38:47.530] And look, fundamentally, the President's been quite clear
+- [38:50.340] this is going to go again in one of two directions.
+- [38:52.700] We're going to restart the war, which is not the preference
+- [38:55.080] of the President of the United States.
+- [38:56.280] We're going to restart the operation
+- [38:58.750] or we're going to strike a deal,
+- [39:01.940] and I think that's an important thing.
+- [39:03.410] That's what we're focused on
+- [39:04.610] and that's what we're going to keep on working for.
+- [39:10.480] Okay. In kind of the purple dress there.
+- [39:18.130] Yeah. Go ahead.
+- [39:24.870] The Press: Thank you so much, Mr. Vice President.
+- [39:26.240] Rowena Ortiz with Turning Point USA.
+- [39:28.610] There has been an uptick in religious violence
+- [39:31.390] across the country.
+- [39:33.970] What's your message to protect people
+- [39:37.150] across all faiths in America?
+- [39:39.460] The Vice President: I appreciate that question.
+- [39:41.550] Obviously, Turning Points would know a lot about this issue.
+- [39:44.320] As we talked about earlier, you guys have been the subject
+- [39:46.830] of a fair amount of violence yourself.
+- [39:48.770] I guess what I would say is the principle of religious violence
+- [39:53.820] is particularly disgusting,
+- [39:56.430] especially in the United States of America.
+- [39:57.890] And as a devout Christian,
+- [39:59.100] I would say it's one of the most anti-Christian things
+- [40:03.210] and anti-American things that you could do, and here's why.
+- [40:06.730] One, because a fundamental principle
+- [40:09.790] of all the great faiths is we are all children of God.
+- [40:13.850] And because of that, we are endowed by certain rights
+- [40:16.940] that are unique to our status as human beings.
+- [40:19.490] You violate those rights,
+- [40:20.770] most importantly when you commit violence against another person.
+- [40:23.860] You can violate them in other ways as well,
+- [40:25.510] but the most profound way to violate the fundamental
+- [40:28.020] right of human dignity is to commit violence.
+- [40:30.170] But here's why the religious piece of it
+- [40:31.810] is particularly egregious.
+- [40:33.290] One of the fundamental American rights
+- [40:36.230] that I think came from our Christian heritage
+- [40:38.620] as a civilization is the idea
+- [40:40.640] that we respect people's religious freedom,
+- [40:42.950] in part because we respect them as human beings,
+- [40:45.450] but also because we respect
+- [40:47.180] their right to find their own pathway to God.
+- [40:49.880] You can't force anybody to a pathway to God.
+- [40:53.610] They have to, through their own free will, find God themselves.
+- [40:57.330] That's one of the reasons why that right of religious freedom
+- [41:00.300] is the very first right enshrined in our Constitution.
+- [41:03.350] So when you commit acts of violence,
+- [41:05.310] you're committing an act against this fundamental idea
+- [41:07.900] that people are created in the image of God,
+- [41:10.840] and that they have the right, through their own free will,
+- [41:13.120] to find God however they might want.
+- [41:14.860] And as a Christian, of course, you might have your preference
+- [41:17.920] for how they find their pathway to God.
+- [41:21.200] They have to find that choice.
+- [41:22.540] And anybody who would commit violence
+- [41:23.970] against another human being in the name of religion is,
+- [41:25.650] I think, doing something against another human
+- [41:26.930] being in the name of religion
+- [41:28.170] is I think doing something that is a violation,
+- [41:29.600] of course of the laws of man. But I think more importantly,
+- [41:33.070] it is a fundamental violation of the laws of God.
+- [41:42.270] Let me go with... Okay.
+- [41:45.390] Garrett, you have your hand up. Garrett, that's right.
+- [41:47.560] The Press: That's right. Okay. Thank you, Mr. Vice President.
+- [41:49.510] Midterms are well underway.
+- [41:50.800] You've got voters going to the polls in six states today.
+- [41:53.840] You and the President ran on a platform
+- [41:55.280] that included no new wars,
+- [41:57.230] cutting gas prices, cutting inflation.
+- [41:59.440] What do you say to people who are going to the polls today
+- [42:01.500] and who feel like those promises are unkept?
+- [42:04.140] The Vice President: Well, I'd say a few things.
+- [42:05.580] First of all, we've delivered great wins
+- [42:08.120] for the American people.
+- [42:09.350] We ran on delivering tax cuts to the American people,
+- [42:12.050] which we did, the largest tax cuts in American history.
+- [42:15.270] We ran on cutting taxes,
+- [42:16.750] particularly on people who were working on overtime,
+- [42:19.070] working on tips.
+- [42:20.530] We cut taxes for those Americans.
+- [42:22.510] We ran on the promise of bringing investment
+- [42:24.400] back into the United States of America.
+- [42:25.910] That rather than factory closures,
+- [42:27.910] we were going to have factories opening.
+- [42:29.780] And we've seen both construction jobs and manufacturing,
+- [42:32.170] but also manufacturing jobs have great rebounds
+- [42:34.930] under the Trump administration and under our leadership.
+- [42:37.730] We are very aware, that because of what's going on
+- [42:40.180] in the Middle East, gas prices have gone up,
+- [42:42.620] and a lot of Americans are struggling because of that.
+- [42:45.320] Our view is that it is a temporary increase.
+- [42:48.220] We're taking a number of steps to try to push back against it
+- [42:51.080] and try to ensure that Americans
+- [42:53.100] are paying as little at the pump as possible.
+- [42:55.020] But I feel quite confident,
+- [42:56.280] after we've taken care of business in the Middle East,
+- [42:58.510] those prices are going to come down.
+- [42:59.980] And there have been a lot of prices, as you know,
+- [43:02.000] a lot of prices from rent to housing
+- [43:05.300] where we still got a lot of work to do,
+- [43:07.180] but we do see some real progress made across the economy
+- [43:10.950] on pricing but also on people's jobs.
+- [43:15.840] Okay, I have... I'm going to call on John.
+- [43:21.140] I'm just going to start calling. John Ross.
+- [43:22.770] The Press: John Ross with the Daily Mail?
+- [43:24.110] The Vice President: Yes.
+- [43:25.330] The Press: Great to see you. Thank you.
+- [43:26.570] The Vice President: Great to see you too. Thank you.
+- [43:27.960] The Press: Trump initially said that the war
+- [43:29.520] would last six weeks.
+- [43:30.790] We are now, it's been going on for 11 weeks and three days.
+- [43:33.530] What's your message to the American people
+- [43:35.760] as to why it's gone on so long and it hasn't ended yet?
+- [43:37.950] The Vice President: Well, first of all,
+- [43:39.220] the President said it's going to be a short-term operation,
+- [43:41.790] and I think that has proven out to be true.
+- [43:44.110] The active period of conflict lasted about five,
+- [43:46.430] five and a half weeks.
+- [43:47.860] And now we've been in the ceasefire
+- [43:49.120] where we're trying to get a negotiated settlement
+- [43:51.160] that gets the American people the things that we need
+- [43:53.860] for our national security.
+- [43:55.590] I've said before that we're going to go
+- [43:57.070] one of two options here.
+- [43:58.270] We're going to have a good settlement
+- [43:59.970] that actually gets the American people what they need,
+- [44:02.250] or we're going to go back to a kinetic operation.
+- [44:04.680] Obviously, the President prefers to get that settlement.
+- [44:07.480] I think the Iranians prefer to get that settlement.
+- [44:09.820] But regardless of what direction the President
+- [44:12.020] ultimately goes down, whatever he ultimately decides,
+- [44:14.120] I think it's important for the American people
+- [44:15.670] to know two things.
+- [44:16.890] Number one, it will be for their security and their prosperity.
+- [44:19.590] That's why we're doing this.
+- [44:21.040] And number two, this is not going to be
+- [44:24.540] the sort of thing that lasts forever.
+- [44:26.650] I think a lot of Americans, especially in my generation
+- [44:29.160] who are worried about forever endless conflicts,
+- [44:31.870] we have to remember... I think you said 11 weeks,
+- [44:34.260] a big chunk of that has been a ceasefire.
+- [44:36.450] This is not a forever war.
+- [44:37.860] We're going to take care of business and come home.
+- [44:39.750] That's what the President's promised,
+- [44:41.220] and that's exactly what he's going to deliver.
+- [44:43.760] Go ahead. Yes.
+- [44:50.670] The orange. Yeah.
+- [44:52.360] Guys, please don't shout over each other.
+- [44:54.430] The Press: Thank you, Mr. Vice President.
+- [44:55.880] Egyptian foreign minister today on an interview on CNN,
+- [45:00.000] he said that the Arab countries are working with you
+- [45:03.360] on a memorandum of understanding between the US and Iran
+- [45:08.990] that can lead to (inaudible). Can you confirm that?
+- [45:11.990] And on other question also on Iran.
+- [45:15.380] You've spent over than 20 hours with the Iranian negotiating.
+- [45:20.610] Do you believe that other countries may be able to achieve
+- [45:24.290] what those negotiations could not?
+- [45:28.260] The Vice President: Well, I think that the purpose
+- [45:30.150] of our initial negotiation was,
+- [45:31.520] one, to establish some relationships
+- [45:33.390] between two countries that hadn't talked directly
+- [45:35.430] in a very, very long time. And number two,
+- [45:37.730] just to get the pathway started to negotiation.
+- [45:40.930] I don't think any of us, meaning me,
+- [45:43.640] Jared Kushner and Steve Witkoff, had any great confidence
+- [45:46.240] that we were going to be able to reach a deal,
+- [45:48.320] but we did think we were going to take important steps
+- [45:50.380] along the pathway to reaching a deal.
+- [45:51.900] And we did.
+- [45:53.110] Now, you asked what the Egyptian foreign minister said.
+- [45:55.560] I haven't seen his comments,
+- [45:56.810] so I won't comment on them myself.
+- [45:58.330] What I'd say is I'm not going to detail
+- [46:00.540] what's going on in the negotiation.
+- [46:02.020] There's a lot of back and forth,
+- [46:03.400] a lot of good progress is being made.
+- [46:05.490] But we're just going to keep on working at it,
+- [46:07.470] and eventually we'll either hit a deal or we won't,
+- [46:11.160] but we're going to keep on working at it.
+- [46:12.790] And I think it's important for us
+- [46:14.170] to actually privately have these conversations.
+- [46:16.750] Because sometimes when you're doing a negotiation
+- [46:19.600] and you put everything out there in public,
+- [46:21.970] it actually complicates things more than it should.
+- [46:24.040] So we're going to keep these negotiations private
+- [46:25.840] until we've got something, of course,
+- [46:27.110] to tell the American people. And at that time we will.
+- [46:33.870] Is that a magenta tie? It's hard to tell.
+- [46:40.050] Like a purple tie there, right?
+- [46:41.750] Press: Thank you, Mr. Vice President.
+- [46:43.050] The Vice President: Thank you.
+- [46:44.290] This guy insists that he has the real purple tie,
+- [46:48.290] so I'll give you a question too. Go ahead.
+- [46:50.230] The Press: Thank you, Mr. Vice President.
+- [46:51.740] Two questions for you, one on Iran and one on China,
+- [46:55.670] given the President's trip last week to Beijing.
+- [46:58.610] On Iran, you met on April the 11th
+- [47:01.470] with Iranian negotiators, including the foreign minister.
+- [47:04.730] Is it your sense, Mr. Vice President,
+- [47:07.240] that they're just stringing the US along?
+- [47:09.370] That's this sense from lawmakers from both parties.
+- [47:12.810] And then on China, you come from a state
+- [47:15.620] that manufactures a lot of automobiles.
+- [47:18.720] Is it your sense that within this term
+- [47:21.590] that you have with the President that China branded vehicles
+- [47:25.880] will be sold right here in America?
+- [47:28.550] The Vice President: Well, I think that what the President
+- [47:31.310] has shown a willingness to do,
+- [47:33.060] unlike any President in my lifetime,
+- [47:35.260] is to protect the American automotive industry.
+- [47:37.080] We are not going to let the American automotive
+- [47:38.900] industry disappear.
+- [47:40.320] There are a lot of ways in which we've reinvested
+- [47:42.880] and which we've tariffed foreign competitors
+- [47:44.940] to ensure that American car workers,
+- [47:47.170] American auto workers, and the products they develop
+- [47:50.170] are going to be made right here in the United States of America
+- [47:52.960] and also available right here in the United States of America.
+- [47:55.690] I think it's important for just the American people...
+- [47:58.450] I want to make this point.
+- [48:00.050] Car manufacturing is one of those skills
+- [48:02.170] that when it disappears, it's hard to regain.
+- [48:04.780] And when you've got people who can build complex machines,
+- [48:07.820] and are great workers in Ohio, Michigan,
+- [48:09.500] and elsewhere, they do a very good job.
+- [48:11.810] They also, God forbid in times of national emergency,
+- [48:15.200] can be called on to manufacture other complex machinery.
+- [48:18.740] It's very, very important
+- [48:20.450] that we protect that native auto industry.
+- [48:22.400] The President has done more on this than anybody,
+- [48:24.600] but we're certainly going to keep on working at it.
+- [48:26.450] You asked about being strung along.
+- [48:27.870] Look, you never know until you know. Right?
+- [48:30.400] Well, all we can do is negotiate in good faith,
+- [48:32.910] try to find a pathway
+- [48:34.150] that accomplishes the President's objectives,
+- [48:36.340] that accomplishes the national security interest
+- [48:38.050] of the American people,
+- [48:39.280] and gets this thing in a good place.
+- [48:40.590] I think somebody earlier asked this question.
+- [48:42.650] I am not certain, and I'm not going to be certain
+- [48:45.300] until we sign a deal that we have a deal.
+- [48:48.390] But I feel confident enough to keep on doing the work
+- [48:51.290] and to try to find a good deal for the American people,
+- [48:53.480] and that's what I'm going to do.
+- [48:55.190] The guy with the real purple tie,
+- [48:57.030] I will give you the final question
+- [48:58.330] and then I'm going to have to hit the road.
+- [49:03.680] Sorry.
+- [49:04.910] This guy and then the very tall guy here, we'll give him
+- [49:07.970] (inaudible).
+- [49:10.110] Sorry, I can't get to everybody.
+- [49:12.080] Marco's right, this really is chaos.
+- [49:14.040] This is crazy. You guys got to behave yourself.
+- [49:17.640] The Press: Thank you, Mr. Vice President.
+- [49:19.900] The President's financial disclosures
+- [49:21.760] were released recently,
+- [49:23.050] and they showed a lot of stock trades in companies
+- [49:27.770] that he has talked up at events,
+- [49:31.350] official events at the White House,
+- [49:33.330] on his Truth Social account.
+- [49:35.550] Sometimes even putting the stock ticker symbols in his posts
+- [49:41.560] and encouraging people to buy their stock.
+- [49:45.700] Americans, according to recent polling,
+- [49:47.890] are increasingly describing the President as corrupt.
+- [49:53.760] And trading stocks --
+- [49:55.660] The Vice President: This is a hell of a question.
+- [49:57.110] The Press: Thank you, sir.
+- [49:58.350] Trading individual stocks is something that you said
+- [50:01.770] that public officials should not be able to do
+- [50:04.100] when you ran for Senate, all those years ago.
+- [50:07.570] And yet the President, who arguably has access
+- [50:12.210] to more non-public information than your average senator,
+- [50:16.150] is not only buying and selling individual stocks
+- [50:18.680] either through his trust --
+- [50:21.000] The Vice President: Okay. What's the question?
+- [50:24.190] The Press: The question, sir, is how can you
+- [50:27.770] and your administration argue to Americans
+- [50:31.200] that you're cleaning up corruption,
+- [50:33.040] you're preventing fraud,
+- [50:34.690] you're fighting the sorts of things that harm people
+- [50:38.270] and people's financial situations,
+- [50:40.740] when the President seems to be talking up stocks that he owns,
+- [50:43.810] selling them and enriching himself?
+- [50:45.290] The Vice President: Okay.
+- [50:46.520] Here, let me answer your question here.
+- [50:48.350] That was a doozy.
+- [50:49.800] Before I answer your question, I want to just observe
+- [50:52.640] there are different ways to ask a question, okay?
+- [50:54.870] You can just ask a question, try to get your answer.
+- [50:57.780] Or you could do a speech where you say,
+- [51:01.100] "Mr. Vice President, you're a terrible human being
+- [51:05.050] and so is the President, so is the entire cabinet."
+- [51:07.550] And then I'm like, "What's your question?"
+- [51:09.120] And then your question is, "How dare you?"
+- [51:10.970] Come on, man. Have a little bit of objectivity
+- [51:14.650] in the way that you ask these questions.
+- [51:16.090] Because there were a lot of things in that speech
+- [51:18.340] masquerading as a question that didn't actually get asked. Okay?
+- [51:22.050] Number one, the President doesn't sit at the Oval Office
+- [51:25.610] on his computer on his Robinhood account
+- [51:27.880] buying and selling stocks. That's absurd.
+- [51:30.430] He has independent wealth advisors who manage his money.
+- [51:34.550] He is a wealthy person. He has had success in business.
+- [51:37.360] He's not making these stock trades himself,
+- [51:40.100] and your question imputes that. It doesn't say it exactly,
+- [51:44.130] but a reasonable person listening to that question
+- [51:46.060] would assume the President is sitting around and doing that.
+- [51:48.350] He's not.
+- [51:49.590] Second of all, you're right,
+- [51:51.220] I am a big fan of banning members of Congress
+- [51:53.340] from trading stocks.
+- [51:54.550] So is the President of the United States.
+- [51:57.270] All of us believe that nobody
+- [51:59.380] should be taking proprietary information
+- [52:01.570] gained from public service and buying and selling stocks.
+- [52:06.900] We want to ban that process.
+- [52:08.330] And I think the way to lead by example
+- [52:10.320] is banning that process,
+- [52:12.020] banning that approach and making it illegal,
+- [52:14.130] which is exactly what the President has proposed doing.
+- [52:18.540] Yes.
+- [52:19.750] The Press: (inaudible)
+- [52:20.980] Gateway Pundit. I'll try to make this short.
+- [52:23.280] You might have seen this, there was a massive
+- [52:24.840] United Kingdom rally in London just last weekend,
+- [52:27.950] they were protesting mass illegal immigration
+- [52:30.450] and the replacement of British culture.
+- [52:32.490] What message do you think this should send to globalist
+- [52:34.870] European leaders and to leaders here?
+- [52:37.090] And also, I wanted to ask about several House members
+- [52:40.620] are revamping this push to pass a...
+- [52:44.290] It's called the Dignity Act,
+- [52:45.600] but it's really just an amnesty bill giving work visas
+- [52:48.090] and allowing millions of illegals in countries.
+- [52:50.520] Is that something the White House
+- [52:51.720] wants to see stopped in the House?
+- [52:53.130] The Vice President: Well, number one,
+- [52:54.420] I don't like giving amnesty to anybody.
+- [52:56.230] Number two, since you asked about
+- [52:57.630] Great Britain and the United Kingdom rally,
+- [53:01.510] one of the great ironies of this job
+- [53:03.150] is that for the past couple of years
+- [53:05.680] you see these protests break out all over the country,
+- [53:08.110] and sometimes they're fairly well attended
+- [53:10.930] and sometimes they're very poorly attended.
+- [53:12.480] Everybody holds these signs saying "No kings", right?
+- [53:15.550] And how many Democratic lawmakers
+- [53:16.900] have I seen holding up signs that say "No kings"?
+- [53:19.290] They were very, very insistent that we not have kings.
+- [53:22.630] And then King Charles comes to the congressional chamber
+- [53:25.920] and these guys break out in rapturous applause.
+- [53:28.450] So maybe they don't care so much about kings
+- [53:30.770] as they pretend that they do.
+- [53:32.220] Maybe they just don't like the agenda
+- [53:33.890] that we're implementing that's actually making American workers
+- [53:36.660] and American families safe and prosperous again.
+- [53:39.630] But to answer your question about this immigration issue,
+- [53:42.600] look, one of the problems that we have in
+- [53:46.210] all of Western societies is that we have a lot of people
+- [53:50.460] who've decided Wall Street bankers, corporate lobbyists,
+- [53:53.510] and government officials that what the United States
+- [53:56.050] and what the West need is more and more cheap labor.
+- [53:59.080] What we believe in this White House
+- [54:00.580] is what we need more and more of is high wages
+- [54:03.080] for American workers and investing in our own people.
+- [54:06.270] What you see all over the West, and it's kind of crazy,
+- [54:10.270] is this idea that the way to generate prosperity
+- [54:13.230] is to bring in millions and millions of unvetted people
+- [54:15.980] and drop them into your neighborhoods.
+- [54:17.880] And we simply reject that idea.
+- [54:20.330] So to everybody in the UK who rejects that idea,
+- [54:23.450] I'd encourage them to just keep on going.
+- [54:25.610] It's okay to want to defend your culture.
+- [54:28.060] It's okay to want to live in a safe neighborhood.
+- [54:30.220] It's okay to want your job to go to yourself and your neighbors
+- [54:34.040] and not to a stranger who you don't even know.
+- [54:36.380] It is reasonable for the people in Western societies to want
+- [54:40.620] to control who comes into their country and who doesn't.
+- [54:44.180] A lot of people, frankly, a lot of people in the media
+- [54:46.690] have tried to persuade all of those people
+- [54:49.710] that it's somehow racist to want to protect your borders.
+- [54:52.630] Even though very often the very people
+- [54:55.350] who are most affected by low wage immigration
+- [54:58.290] are lower income Black and Hispanic Americans
+- [55:00.680] right here in the United States of America.
+- [55:02.270] And I guarantee that's true in the UK.
+- [55:04.610] We believe in making America great again.
+- [55:07.060] You can't do that unless you protect your borders.
+- [55:09.290] I'd encourage our friends in the UK to follow the same path.
+- [55:11.470] Thank you all. Good to see you.

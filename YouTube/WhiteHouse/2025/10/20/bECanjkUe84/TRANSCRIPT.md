@@ -1,0 +1,798 @@
+<!-- source: https://www.youtube.com/watch?v=bECanjkUe84 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: bECanjkUe84 -->
+<!-- date_published: 2025-10-20T16:21:49+00:00 -->
+<!-- date_accessed: 2026-06-02T02:43:13.634964+00:00 -->
+
+# Transcript: President Trump Participates in a Bilateral Lunch with the Prime Minister of Australia
+
+- [00:02.960] The President: Well, thank you very much.
+- [00:04.210] It’s great to have the Prime Minister of Australia,
+- [00:07.930] a fantastic place, and a lot of friends over there.
+- [00:11.670] And this is one of them right here.
+- [00:13.850] The Prime Minister is, as you know, Anthony Albanese,
+- [00:17.140] and he’s highly respected and very well in his election.
+- [00:21.660] And I hear you’re very popular today.
+- [00:25.010] I mean, it varies from day to day, but with all of us.
+- [00:28.690] But he’s done a fantastic job as the Prime Minister.
+- [00:32.110] We’re here to talk about trade, submarines,
+- [00:35.800] lots of other military equipment.
+- [00:37.420] They’re big orders of our great military equipment.
+- [00:39.860] We have the best equipment in the world, by far.
+- [00:43.450] And, ooh, you’ve got to watch that.
+- [00:46.950] You’re not allowed to break that.
+- [00:48.370] That mirror is 400 years old. The camera just hit the mirror.
+- [00:53.370] Thank you for a --
+- [00:55.710] I just moved that up here special from DeWalt’s,
+- [00:58.010] and first thing that happens, a camera hits it.
+- [01:01.730] Hard to believe, isn’t it? Hard to believe.
+- [01:04.370] But these are the problems in life.
+- [01:06.330] So we’re going to be here
+- [01:07.680] to talk about lots of different things.
+- [01:10.460] And we might take a few questions before.
+- [01:15.340] But we are discussing critical minerals and rare earths,
+- [01:19.580] and we’re going to be signing an agreement
+- [01:21.120] that’s been negotiated over a period of four or five months.
+- [01:24.520] And it was pretty good timing,
+- [01:26.030] and we got it done just in time for the visit.
+- [01:28.730] And we work together very much on rare earths,
+- [01:31.500] critical minerals, and lots of other things.
+- [01:34.270] And we’ve had a very good relationship.
+- [01:36.240] We’ve been working on that for quite a while.
+- [01:39.230] In about a year from now,
+- [01:40.730] we’ll have so much critical mineral and rare earths
+- [01:43.790] that you won’t know what to do with them.
+- [01:45.420] They’ll be worth about $2.
+- [01:47.560] But in the meantime, we’re working with Australia
+- [01:51.570] and other countries. They’re working with us too,
+- [01:54.510] but other countries also on that.
+- [01:57.090] But we’re really working on anything having to do
+- [02:00.200] with military, military protection,
+- [02:02.440] military ships,
+- [02:04.550] vehicles, guns, ammunition, everything, the whole thing.
+- [02:09.320] We’ve been long-term, long-time allies.
+- [02:12.670] And I would say there’s never been anybody better.
+- [02:16.550] We fought wars together. We never had any doubts.
+- [02:20.330] And it’s a great honor to have you as my friend.
+- [02:22.940] It’s a great honor to have you in the United States of America.
+- [02:26.850] Please, would you like to say something?
+- [02:28.710] Prime Minister Albanese: Well, thank you so much,
+- [02:30.050] Mr. President,
+- [02:31.270] for the invitation here to the White House
+- [02:34.660] and to showing us around the improved Oval Office,
+- [02:38.930] and for what you’re doing around here as well,
+- [02:41.470] and for the great honor as well of my delegation,
+- [02:45.110] staying just across the road.
+- [02:46.430] We could have walked, but they didn’t let us.
+- [02:49.730] We drove all of 20 meters there from Blair House,
+- [02:54.760] but it’s a great honor to be able to stay there.
+- [02:58.990] We are great friends, and we’re great allies.
+- [03:02.830] And this is a relationship that’s been forged
+- [03:05.670] in the battlefields of the world.
+- [03:09.360] We have stood side by side for freedom and democracy.
+- [03:13.490] And congratulations, I must say, Mr. President,
+- [03:16.980] on the work that you’ve done with the Middle East.
+- [03:19.850] It’s an extraordinary achievement.
+- [03:22.210] And on defense, we’ve already had a discussion
+- [03:25.590] about taking it to the next level.
+- [03:28.350] Our defense and security partnership with AUKUS
+- [03:30.770] is so important for us. And I thank you for the support
+- [03:35.990] that the administration are giving as well.
+- [03:39.100] We’ve had the Chief of the Navy here as well, which will play,
+- [03:43.210] obviously, a very critical role with the subs
+- [03:48.310] and increasing the security for the region and the world.
+- [03:52.980] And our economic relationship is so important.
+- [03:55.830] The U.S. has a trade surplus with Australia, as you know,
+- [03:59.370] and we can continue to take what is every opportunity
+- [04:05.710] to improve the relationship even further
+- [04:08.760] and make it even stronger.
+- [04:10.120] And today’s agreement on critical minerals
+- [04:12.660] and rare earths
+- [04:14.110] is just taking it to the next level,
+- [04:16.670] seizing those opportunities which are before us
+- [04:21.620] to take our relationship to that next level.
+- [04:26.840] And it’s been fantastic, the contact that we’ve had together,
+- [04:30.470] the friendship that we’ve developed.
+- [04:33.180] And Australians love America,
+- [04:35.320] and I think Americans kind of like Australia.
+- [04:38.970] The President: We do.
+- [04:40.330] Prime Minister Albanese: And as we go forward,
+- [04:41.880] I think that today will be seen
+- [04:44.420] as a really significant day in our relationship.
+- [04:47.870] So I thank you very much, Mr. President.
+- [04:49.720] The President: Well, thank you very much, Anthony.
+- [04:51.170] It’s an honor to sign this, and we’ll do it now.
+- [04:55.350] And then we’ll take some questions,
+- [04:58.520] some good ones, I think.
+- [05:08.980] Okay.
+- [05:21.090] Well, this is an $8.5 billion pipeline
+- [05:24.000] that we have ready to go.
+- [05:25.800] That’s right. It’s all ready to go.
+- [05:27.380] Just getting started.
+- [05:28.930] And we’re doing a real job on rare earth
+- [05:31.540] and many other things.
+- [05:34.040] Perhaps I could ask John to say a few words,
+- [05:36.230] and then we’ll exchange papers.
+- [05:38.070] But just how are we doing on your naval purchases
+- [05:41.620] and all of the submarines that we’re working on with Australia?
+- [05:44.780] How’s that going?
+- [05:46.070] Male Speaker: Thank you, Mr. President.
+- [05:47.300] Obviously, Australia is a very important ally of ours
+- [05:49.990] in the Indian Pacific
+- [05:51.360] and in every battle we fought since World War I,
+- [05:54.080] and they’ve always been side by side.
+- [05:57.070] The facility that they’re building to surf west
+- [06:00.070] is critical and very important to our ability
+- [06:04.540] to project power in the Indian Pacific
+- [06:08.290] and work with our allies. So we’re working very closely.
+- [06:11.420] I think what we’re really trying to do
+- [06:13.270] is take the original AUKUS framework
+- [06:15.660] and improve it for all three parties to make it better
+- [06:18.270] and clarify some of the ambiguity
+- [06:20.760] that was in the prior agreements.
+- [06:22.720] So it should be a win-win for everybody.
+- [06:25.140] The President: And the submarines
+- [06:26.390] that we’re building for Australia
+- [06:27.680] are starting to really move along, right?
+- [06:29.310] The process is getting very exciting, isn’t it?
+- [06:32.760] Male Speaker: Getting better.
+- [06:34.150] The President: That’s good. Very good.
+- [06:35.720] It’s going to be great. Thank you very much.
+- [06:38.340] Maybe we’ll hold this up. Okay.
+- [06:47.600] Here we go. Thank you.
+- [06:54.870] The Press: The AUKUS defense pact
+- [06:58.990] that the Prime Minister just mentioned,
+- [07:00.400] it is a critical issue for Australia.
+- [07:02.010] You haven’t really spoken much about it publicly.
+- [07:03.960] It was a deal that was done under Joe Biden
+- [07:06.530] to sell submarines to Australia at a time
+- [07:09.040] when you’re not really making enough for your own needs.
+- [07:11.950] So can you tell us,
+- [07:13.750] have you gone across the details of the deal?
+- [07:16.380] Did you support it?
+- [07:18.320] The President: It was made a while ago
+- [07:20.620] and nobody did anything about it.
+- [07:22.320] And it was going too slowly.
+- [07:24.450] We do actually have a lot of submarines.
+- [07:26.240] We have the best submarines in the world,
+- [07:27.930] anywhere in the world.
+- [07:29.190] And we’re building a few more currently under construction.
+- [07:33.630] And now we’re starting. We have it all set with Anthony.
+- [07:37.370] We’ve worked on this long and hard.
+- [07:38.940] And we’re starting that process right now.
+- [07:40.620] And I think it’s really moving along very rapidly, very well.
+- [07:44.030] Right? That’s a great question.
+- [07:45.760] Don’t be absurd, Anthony. Oh, it’s getting.
+- [07:49.440] Oh, no. They’re getting. 32 people have been killed.
+- [07:53.450] Excuse me. You’re next. Thank you.
+- [07:56.860] The Press: China’s bad behavior has really only gotten worse
+- [07:59.540] since the AUKUS partnership was formed.
+- [08:01.660] With that in mind, is the door open for Australia
+- [08:04.570] to get additional nuclear-powered submarines
+- [08:06.720] or other military capabilities not already in the deal?
+- [08:09.460] The President: I think China’s been very respectful of us.
+- [08:11.880] They’re paying tremendous amounts of money
+- [08:14.550] to us in the form of tariffs.
+- [08:17.110] As you know, they’re paying 55 percent.
+- [08:18.900] That’s a lot of money.
+- [08:20.380] They never were paying anything over years and years and years.
+- [08:25.410] But they were like anybody else.
+- [08:27.020] A lot of countries took advantage of the U.S.
+- [08:30.140] and are not taking advantage anymore.
+- [08:32.000] China’s paying 55 percent and a potential 155 percent
+- [08:38.130] come November 1st, unless we make a deal.
+- [08:40.220] And I’m meeting with President Xi.
+- [08:41.650] We have a very good relationship.
+- [08:43.150] We’re going to be meeting in South Korea
+- [08:44.440] in a couple of weeks. And we’ll see what we can do.
+- [08:48.900] We have a very good relationship with China.
+- [08:52.160] But, you know, it’s been probably a little bit
+- [08:55.490] like your relationship with China.
+- [08:58.080] They try and take advantage, but most countries do.
+- [09:00.620] I mean, I can say the European Union took advantage,
+- [09:03.020] but not anymore.
+- [09:04.390] We worked out a very fair trade deal.
+- [09:06.490] Japan, we worked out a very fair deal.
+- [09:10.010] South Korea, where I’ll be meeting President Xi,
+- [09:11.970] we worked out a very fair deal.
+- [09:13.430] And I expect we’ll probably work out a very fair deal
+- [09:16.410] with President Xi of China.
+- [09:19.560] So most of you will be with us. It’s going to be very exciting.
+- [09:22.760] And I think we’re going to work out
+- [09:24.150] something that’s good for both countries.
+- [09:29.500] The Press: Are you at least interested in expediting
+- [09:31.350] the nuclear-powered subs to Australia?
+- [09:32.980] The President: Well, we are doing that, yeah.
+- [09:34.210] We’re doing that. We have them moving very, very quickly.
+- [09:40.220] Yeah, please.
+- [09:41.580] The Press: Mr. President,
+- [09:42.810] I don’t think you had to leave to Australia.
+- [09:44.730] Have you thought about coming to Australia
+- [09:46.170] and trying out some of the golf courses?
+- [09:47.440] The President: I would.
+- [09:48.650] And I actually have been to Australia.
+- [09:50.770] And I did play one of your great golf courses.
+- [09:52.830] They have great golf courses there.
+- [09:54.620] But I have been to Australia, actually.
+- [09:56.190] The Press: Would you come again?
+- [09:57.460] The President: Oh, I would.
+- [09:58.700] In fact, I’ve been invited to go,
+- [10:00.080] and I’ll have to give it serious consideration.
+- [10:02.400] No, it’s a real possibility.
+- [10:03.720] The Press: Did the Prime Minister invite you today?
+- [10:05.140] The President: He did.
+- [10:07.720] And perhaps we could time it, it must be said,
+- [10:10.260] with the President’s Cup in Australia.
+- [10:16.640] Prime Minister Albanese: We’ll organize it at a time suitable
+- [10:18.410] to be here, Mr. President.
+- [10:23.780] The President: Please, in the back, please.
+- [10:25.440] Yeah, in the back, please.
+- [10:26.730] The Press: Mr. President, the Prime Minister mentioned
+- [10:29.120] that there’s a China imbalance
+- [10:31.010] that’s very heavily in America’s favor.
+- [10:34.910] Why does America slap such heavy tariffs
+- [10:37.630] on our friends and allies?
+- [10:38.880] The President: Well, we do, yeah.
+- [10:40.290] Well, we do in some cases. We do in many cases,
+- [10:43.620] because we’ve been treated unfairly.
+- [10:45.100] But actually, the tariffs are very light.
+- [10:48.040] The one thing is you buy a lot of airplanes.
+- [10:50.290] So that helps, because you buy a lot of the beautiful Boeings,
+- [10:53.330] the best of the Boeings.
+- [10:55.060] And by the way, Boeing is really doing well.
+- [10:57.950] They have lots of orders,
+- [10:59.280] and they’re really doing a great job.
+- [11:00.830] They make a great plane.
+- [11:02.550] But Australia, because of its location, which is great,
+- [11:06.630] but one of the things dictated by that location
+- [11:09.110] is you have to order a lot of airplanes.
+- [11:11.360] So I guess we have that advantage.
+- [11:12.930] They need a lot of airplanes in Australia,
+- [11:14.960] and that gives us a little bit of an advantage.
+- [11:20.150] The Press: Yeah, your Secretary of War,
+- [11:21.710] I think he said it in his Shangri-La speech,
+- [11:24.120] I think it was in May,
+- [11:25.670] warned about the potential likelihood
+- [11:29.380] or threat of President Xi ordering an invasion of Taiwan.
+- [11:33.360] 2027 is also the year that Fleet Base West
+- [11:36.420] is supposed to start rotating those US and UK submarines.
+- [11:41.450] Do you see AUKUS as a deterrent for China in the United States?
+- [11:44.230] The President: Yeah, I do.
+- [11:45.550] I think it is, but I don’t think we’re going to need it.
+- [11:49.920] I think we’ll be just fine with China.
+- [11:52.480] China doesn’t want to do that. First of all, the United States
+- [11:55.670] is the strongest military power in the world by far.
+- [11:58.510] It’s not even close. Not even close.
+- [12:00.890] We have the best equipment, we have the best of everything,
+- [12:03.400] and nobody’s going to mess with that.
+- [12:05.180] And I don’t see that at all with President Xi.
+- [12:08.150] I think we’re going to get along very well
+- [12:10.300] as it pertains to Taiwan and others.
+- [12:13.790] Now, that doesn’t mean it’s not the apple of his eye,
+- [12:17.070] because probably it is, but I don’t see anything happening.
+- [12:20.280] We have a very good trade relationship.
+- [12:21.950] We’re going to have a very good,
+- [12:23.200] I think when we leave South Korea, it could be wrong,
+- [12:25.830] but I think we’ll end up with a very strong trade deal.
+- [12:29.120] Both of us will be happy. I don’t see that happening.
+- [12:32.740] These are great questions.
+- [12:42.640] Yeah, well, the tariffs have been amazing
+- [12:44.580] because tariffs have been really a reason
+- [12:48.040] that I was able to settle almost all of the --
+- [12:50.480] I’ve settled eight wars in eight months.
+- [12:54.170] Not bad. I have one more to go.
+- [12:56.180] It’s Russia-Ukraine, and I think we’ll get there,
+- [12:58.340] but it’s turned out to be nasty
+- [13:00.780] because you have two leaders that truly hate each other.
+- [13:03.580] You can’t have it all, right?
+- [13:06.070] They hate each other beyond all else,
+- [13:08.840] and it makes it actually a little bit difficult.
+- [13:11.100] But of the eight deals, I would say because of tariffs,
+- [13:15.940] four or five of them were settled.
+- [13:18.280] It’s an amazing thing,
+- [13:19.540] the power of tariffs in terms of our country,
+- [13:22.320] but tariffs have always been used against us.
+- [13:24.300] We never used them against anywhere else,
+- [13:26.060] and now you have a precedent
+- [13:27.610] that for national security reasons
+- [13:29.340] and other reasons is using them,
+- [13:30.880] and we’ve become a very rich nation again
+- [13:34.950] and a very secure nation again.
+- [13:36.340] But we’ve also become a nation that used that power of tariffs
+- [13:39.350] and the power of trade to settle five of the eight wars
+- [13:43.590] that I said. I settled eight.
+- [13:44.880] I’m very proud of that. Nobody else has settled one.
+- [13:47.060] I don’t think there’s been an American president
+- [13:48.960] that’s settled one.
+- [13:50.330] I think there probably hasn’t been outside
+- [13:52.170] of the two countries involved, or however many are at war.
+- [13:55.750] I don’t think there’s ever been an outside country
+- [13:57.660] that settled a war, period.
+- [13:59.360] So I settled eight in eight months.
+- [14:00.630] I’m proud of that.
+- [14:01.850] Now, in the meantime, I’m running a country that’s --
+- [14:04.570] Right now, we’re the hottest country anywhere in the world.
+- [14:06.660] We were dead.
+- [14:07.860] A year and a half ago, we were a dead country.
+- [14:09.750] Now we’re the hottest country in the world,
+- [14:11.320] economically and otherwise. So --
+- [14:13.630] But I will say this. Australia pays very low tariffs.
+- [14:16.990] Very, very low tariffs. In fact --
+- [14:20.130] Australia pays among the lowest tariffs.
+- [14:25.210] Go ahead.
+- [14:26.430] The Press: Have you ever been concerned in Australia
+- [14:28.390] that it’s taken nine months to get this meeting?
+- [14:31.110] Have you had any concerns with this administration
+- [14:33.530] with a stance on Palestine, climate change,
+- [14:36.360] or even things the ambassador said about you in the past,
+- [14:39.220] the Australian ambassador?
+- [14:40.670] The President: I don’t know anything about him.
+- [14:42.470] If he said bad, then maybe he’ll like to apologize.
+- [14:45.250] I really don’t know.
+- [14:46.510] Did an ambassador say something bad about me?
+- [14:49.300] Don’t tell me. I don’t know.
+- [14:50.930] Where is he? Is he still working?
+- [14:52.330] Prime Minister Albanese: Yeah, yeah.
+- [14:53.530] The President: He said bad. He said bad. He said bad?
+- [14:57.260] Prime Minister Albanese: He’s proud of his position,
+- [14:58.480] Mr. President.
+- [14:59.700] The President: I don’t like him. I don’t know about you either.
+- [15:02.000] I don’t. And I probably never will.
+- [15:03.750] Go ahead. Go ahead. Go ahead. Behind you.
+- [15:09.980] The Press: Mr. President, your secretary of the 90s
+- [15:12.920] said there will be some clarifications
+- [15:14.940] around some ambiguities. Can you tell us more?
+- [15:17.140] The President: Well, let me get that taken care of.
+- [15:18.660] These are just minor details.
+- [15:21.320] John, you’re going to get that taken care of, right?
+- [15:23.180] Male Speaker: Correct.
+- [15:24.400] The President: There shouldn’t be any more clarifications
+- [15:26.020] because we’re just going now full steam ahead buildings.
+- [15:28.350] Steam ahead.
+- [15:32.370] The Press: Are you satisfied
+- [15:33.620] with Australia’s defense investment or do
+- [15:35.890] you want Australia to invest more in defense?
+- [15:37.910] The President: Well, I’ll always like more
+- [15:39.170] but they have to do what they have to do.
+- [15:40.730] You know, you can only do so much.
+- [15:42.820] I think they’ve been great.
+- [15:44.110] They’re building magnificent holding pads for the submarines.
+- [15:47.680] It’s going to be expensive,
+- [15:48.880] you wouldn’t believe the level of complexity, right?
+- [15:51.820] And how expensive it is.
+- [15:53.150] They’re building tremendous docking
+- [15:55.260] because they have a lot of things happening
+- [15:58.930] and I think their military has been very strong.
+- [16:07.300] The Press: On the war that you haven’t solved yet,
+- [16:09.600] the Ukraine, Russia situation. Have you not locked in a meeting
+- [16:13.480] and can you explain just a few weeks ago
+- [16:16.370] you said that Ukraine could possibly win the war?
+- [16:20.600] The President: Well they could and they could still win it.
+- [16:22.860] I don’t think they will but they could still win it.
+- [16:25.370] I never said they would win it. Anything can happen.
+- [16:28.720] You know war is a very strange thing.
+- [16:31.080] A lot of bad things happen. A lot of good things happen.
+- [16:33.680] If you look at the Middle East,
+- [16:35.930] I would say prior to us hitting Iran so hard,
+- [16:39.500] we could have never made that deal
+- [16:40.930] because you would have had a dark cloud over the Middle East
+- [16:43.220] where we took out their nuclear capability
+- [16:45.330] which was one of the great military maneuvers of all time.
+- [16:49.430] It was flawless. You saw that. Those magnificent B-2’s,
+- [16:53.160] I mean that was a flawless move that was done
+- [16:56.950] by some very talented people headed up by Pete
+- [17:00.480] and everybody else and our great generals and general
+- [17:03.740] in particular Raisin Cain.
+- [17:06.110] We did a great job
+- [17:07.790] and when that happened everything was different
+- [17:11.020] and we were able to get a deal.
+- [17:12.490] If we didn’t do that, if it wasn’t,
+- [17:14.050] you know they wanted to do that for 22 years Mr. Prime Minister.
+- [17:18.770] I had the pilots here, the B-2 pilots
+- [17:20.720] and they came to the Oval Office and I thought they deserved it.
+- [17:23.910] They flew 37 hours back and forth.
+- [17:28.120] We had 52 tankers up there.
+- [17:29.660] We had a lot of planes up there with them
+- [17:31.450] but they were the primary plane but we had a lot of planes,
+- [17:33.680] F-22’s and F-35’s and F-16’s.
+- [17:36.780] We had a lot of planes but we had 52 tankers.
+- [17:39.070] Can you believe that?
+- [17:40.430] And it was just like a flawless mission
+- [17:42.180] and when it was finished the Middle East just opened up.
+- [17:47.290] Amazing. And they wanted to do it for 22 years.
+- [17:49.880] The pilots came up to me and they said you know for 22 years
+- [17:53.260] we practiced this maneuver three times a year
+- [17:55.620] for 22 years, our predecessors and us.
+- [17:58.620] These are now young pilots you know
+- [18:00.650] but they’re older now, predecessors practiced it
+- [18:04.410] and they said we never had a president
+- [18:07.230] that would let us do it but I let them do it
+- [18:10.000] and it totally opened up the Middle East.
+- [18:12.490] It took the cloud over the,
+- [18:14.550] we had a dark cloud over the Middle East
+- [18:16.600] and now it’s all, I mean we have a little situation
+- [18:19.980] relatively with Hamas
+- [18:21.600] and that will be taken care of very quickly
+- [18:25.790] if they don’t straighten it out themselves
+- [18:27.410] because they’re in violation of the agreement.
+- [18:35.420] The Press: On rare earth minerals,
+- [18:36.750] Australia is one of the only places in the world
+- [18:39.130] that processes rare earth minerals.
+- [18:40.450] The President: Yeah.
+- [18:41.660] The Press: Could there be an agreement,
+- [18:42.900] China has 90 percent of the processes,
+- [18:44.240] could there be an agreement over processing rare earth minerals
+- [18:46.510] with Australia?
+- [18:47.720] The President: Sure. That’s what we’re doing.
+- [18:49.030] And it’s part of the agreement.
+- [19:00.020] The Press: On a follow up on Taiwan,
+- [19:01.610] there are reports that will come up of China’s pressure in the EU
+- [19:04.860] to not support independence for Taiwan
+- [19:06.690] in exchange for a trade deal.
+- [19:08.150] The President: Well I’m not going to talk about that.
+- [19:09.550] What I’ll talk about,
+- [19:11.350] you and I will have that discussion in a couple of weeks
+- [19:13.690] when I’m in South Korea with President Xi,
+- [19:17.060] we’re going to be talking about a lot of things.
+- [19:18.670] I assume that’s going to be one of the things
+- [19:20.260] but I’m not going to talk about that now.
+- [19:22.280] The Press: Mr. President,
+- [19:24.290] you just alluded to the violence in the Middle East,
+- [19:26.590] what steps is the administration
+- [19:28.250] taking to maintain the ceasefire?
+- [19:30.270] The President: Well a lot of steps
+- [19:31.930] and right now it’s in the hands of others.
+- [19:33.940] You know we have 59 countries that agreed to the deal,
+- [19:36.310] we have peace in the Middle East for the first time ever.
+- [19:39.950] We made a deal with Hamas that,
+- [19:41.800] you know, they’re going to be very good,
+- [19:43.400] they’re going to behave, they’re going to be nice,
+- [19:44.930] and if they’re not we’re going to go
+- [19:46.240] and we’re going to eradicate them if we have to.
+- [19:49.310] They’ll be eradicated and they know that.
+- [19:52.190] So they went in, they went in,
+- [19:55.330] and I don’t believe it was the leadership
+- [19:57.720] but they had some rebellion in there among themselves
+- [20:01.440] and they killed some people, you know,
+- [20:04.740] pretty a lot of people.
+- [20:06.070] But this is a violent group, you know,
+- [20:07.750] you probably noticed over the last hundred years.
+- [20:09.920] This is a very violent group of people
+- [20:12.770] and they got very rambunctious
+- [20:17.190] and they did things that they shouldn’t be doing
+- [20:19.350] and if they keep doing it then we’re going to go in
+- [20:21.330] and straighten it out and it’ll happen very quickly
+- [20:23.720] and pretty violently, unfortunately.
+- [20:30.000] The Press: Following up on that question,
+- [20:31.330] when you say we are going to eradicate Hamas, who is we?
+- [20:34.400] Does that include American troops on the ground?
+- [20:36.610] The President: No, it won’t be on the ground at all.
+- [20:38.470] We don’t need to because we have many countries,
+- [20:41.330] as you know, signed on to this deal.
+- [20:44.400] The way I view it, 59 countries and unanimous.
+- [20:49.250] There’s never been, nobody ever believed in this.
+- [20:51.080] Countries that four months ago didn’t like each other
+- [20:54.680] and now they’re all aligned together.
+- [20:58.400] I mean, we’ve had countries calling me
+- [21:00.800] when they saw some of the killing with Hamas
+- [21:03.800] saying we’d love to go in
+- [21:05.000] and take care of the situation ourselves.
+- [21:07.420] In addition, you have Israel would go in in two minutes
+- [21:09.680] if I asked them to go in.
+- [21:10.880] I could tell them go in and take care of it
+- [21:13.110] but right now we haven’t said that.
+- [21:14.900] We’re going to give it a little chance
+- [21:16.230] and hopefully there will be a little less violence.
+- [21:19.010] But right now, you know, they’re violent people.
+- [21:20.810] Hamas has been very violent.
+- [21:23.330] But they don’t have the backing of Iran anymore.
+- [21:26.110] They don’t have the backing of really anybody anymore.
+- [21:28.480] They have to be good and if they’re not good,
+- [21:30.540] they’ll be eradicated.
+- [21:52.890] The Press: Can Australia expand the process of arms trafficking?
+- [21:55.200] Prime Minister Albanese: Absolutely we can
+- [21:56.430] and we have the capacity to do so
+- [21:58.060] and part of this deal is very specific.
+- [22:00.310] Eight and a half billion dollar pipeline.
+- [22:02.100] There will be a billion dollars contributed from Australia
+- [22:05.270] and the United States over the next six months
+- [22:08.130] with projects that are immediately available.
+- [22:10.840] There’s three groups of projects.
+- [22:13.810] Ones that are joint activities between Australia
+- [22:17.900] and the United States such as Alcoa.
+- [22:21.360] Secondly is projects that will be US investment
+- [22:25.330] that the US will undertake in Australia including processing
+- [22:29.580] and then ones that Australia will undertake.
+- [22:33.210] Some as well.
+- [22:34.890] One of them is Australia, the US and Japan as well.
+- [22:38.950] So what we’re trying to do here
+- [22:40.940] is to take the opportunities which are there.
+- [22:44.380] Australia has had a view for some time.
+- [22:46.960] It’s similar to putting America first.
+- [22:49.810] Our plan is called “A Future Made in Australia”
+- [22:52.980] which is about not just digging things up and exporting them
+- [22:56.080] but how do we make sure that we have across the supply chains
+- [23:02.140] with our friends being able to benefit,
+- [23:05.070] seize those opportunities.
+- [23:06.340] So we certainly see part of what this is about
+- [23:09.100] isn’t just digging things up.
+- [23:11.980] It’s also about processing including the joint ventures
+- [23:15.540] between Australia and the United States.
+- [23:17.890] The Press: Is there a way in which the US and Australia
+- [23:24.330] really compete with China?
+- [23:25.670] I’m a decade behind in terms of development.
+- [23:27.530] The President: No, no.
+- [23:28.860] You’ve been reading the wrong newspapers.
+- [23:30.470] We’re not that good.
+- [23:32.140] We are way ahead of China militarily, the United States.
+- [23:35.580] We’re way ahead of them in every form of military other
+- [23:38.610] than they’re building a lot of ships
+- [23:39.950] and we’ll have that started. We’ll be catching them on that.
+- [23:43.600] But when it comes to weaponry, when it comes to,
+- [23:48.530] I’ll go right now, AI. The big thing is AI.
+- [23:52.370] They’re building more plants in this country
+- [23:54.180] than anybody ever imagined.
+- [23:56.030] We’re going to have over $20 trillion of investment
+- [23:59.160] for this year.
+- [24:00.370] The most we ever had was a tiny fraction of that.
+- [24:03.260] As an example, Biden who is, you know, the worst president
+- [24:06.080] in the history of our country by far,
+- [24:07.700] by the way, but they were less than a trillion for four years.
+- [24:11.860] We’re already now breaking $18 trillion of investment
+- [24:15.160] in eight months, 18 trillion.
+- [24:17.610] No country in history has ever done that.
+- [24:19.830] We’re way ahead of China in AI and we’re way ahead of China
+- [24:22.780] militarily from the standpoint of the sophisticated weapons.
+- [24:26.610] We have weapons that a lot of people don’t even know about.
+- [24:29.460] And I got them started four years ago.
+- [24:31.140] I rebuilt the military four years ago, fortunately,
+- [24:34.000] because Biden didn’t do anything
+- [24:35.300] but give a piece of it away to Afghanistan.
+- [24:38.750] Fortunately, as much as it sounded like it
+- [24:40.920] was a small part of what I built,
+- [24:43.990] but the Afghanistan giveaway was one of the worst.
+- [24:47.300] That was probably the most embarrassing day in the period
+- [24:50.560] in the history of our country.
+- [24:52.290] But we have the greatest military.
+- [24:53.910] We have the best equipment.
+- [24:55.160] We have the best manufacturers of equipment.
+- [24:57.500] We have the best weapons. When you look at our weapons,
+- [25:00.280] they’ve been talking a lot about our weapons.
+- [25:02.120] Everybody wants our weapons.
+- [25:04.120] But it’s great to be working with Anthony.
+- [25:09.060] It’s great to be working with the people of Australia
+- [25:11.270] because they also – I mean, it’s a smaller country,
+- [25:14.040] but you have done a fantastic job in weaponry
+- [25:17.300] and the kind of things.
+- [25:19.400] We do a lot of joint work together.
+- [25:21.890] Our militaries work very, very closely together.
+- [25:24.260] We’ve been an amazing ally when you think of it, right?
+- [25:27.690] There’s never been any games.
+- [25:29.810] We’re strongly committed and they’re strongly committed.
+- [25:32.330] There are some games with other countries,
+- [25:34.240] but there haven’t been games with Australia.
+- [25:40.960] Where do you come from?
+- [25:42.330] The Press: I’m from Australia.
+- [25:43.540] The President: Who are you with?
+- [25:44.750] The Press: Sydney Morning Herald.
+- [25:46.070] The President: Nasty guy. Go ahead.
+- [25:47.290] The Press: Oh, sorry. I was just going to ask.
+- [25:48.530] The President: All right. Go ahead.
+- [25:49.730] The Press: On your first term,
+- [25:50.960] you worked with two Australian prime ministers,
+- [25:53.230] Scott Morrison and Malcolm Turnbull, you might remember.
+- [25:55.560] They’re from the same side of politics as you.
+- [25:57.830] Mr. Albanese is a different side.
+- [25:59.510] Can you tell us a bit more about what it’s like
+- [26:01.620] to work with Mr. Albanese and compare to those two?
+- [26:03.390] The President: Well, I got along.
+- [26:04.590] I mean, that wouldn’t be fair because,
+- [26:06.250] you know, the man on my right has a big advantage.
+- [26:09.080] You know that, right?
+- [26:10.690] But I think he’s doing a really good job
+- [26:13.470] and we’ve had a very good relationship.
+- [26:15.240] I don’t want to compare one with the other,
+- [26:16.680] but I’ll tell you, this one is, they’ve got a great,
+- [26:18.980] they really have a great prime minister.
+- [26:20.500] Prime Minister Albanese: Thank you.
+- [26:21.710] The President: Thank you.
+- [26:24.160] I’ll use it in my ads in 20 hours.
+- [26:32.960] The Press: Mr. President,
+- [26:34.210] you spoke with President Putin on Thursday.
+- [26:37.030] Did you discuss his ongoing attacks
+- [26:39.750] on civilian areas in Ukraine?
+- [26:42.140] Did you talk? Did you say, cut it out?
+- [26:43.850] Did you say, show an article of good faith to me?
+- [26:46.120] The President: I did. I did.
+- [26:47.500] But as you know, most of the people dying are soldiers.
+- [26:50.230] The soldiers that are dying in Russia and Ukraine,
+- [26:52.580] it’s unbelievable.
+- [26:53.870] Five to 7,000 a week. Can you believe it?
+- [26:57.430] And I look at that and I say it’s pretty amazing.
+- [26:59.840] But in addition to that, there are attacks on Kiev
+- [27:03.190] and some of the other places. And it’s human lives.
+- [27:07.930] But the big number of human lives are soldiers
+- [27:10.400] that are being killed on the battlefield.
+- [27:12.410] Anywhere from five to 7,000,
+- [27:14.190] sometimes more than that every single week.
+- [27:16.120] It’s not even believable. It’s a bloodbath.
+- [27:19.180] It’s the worst since the Second World War.
+- [27:22.120] The worst number of people.
+- [27:24.270] And, you know, it doesn’t affect us in any way.
+- [27:26.270] We don’t pay anything because now they pay us
+- [27:28.430] for the weapons that they get.
+- [27:30.410] The NATO is paying us for the weapons, as you know.
+- [27:32.810] It doesn’t affect.
+- [27:34.170] I guess you could say that’s a positive thing.
+- [27:36.100] They pay us. But I’m not interested in that.
+- [27:37.810] I did straighten it out.
+- [27:39.440] Biden gave them $350 billion. Can you believe it?
+- [27:43.530] And all they did is get deeper in it.
+- [27:45.030] It’s a shame. It’s a shame. Gave them $350 billion.
+- [27:48.260] A lot of lives were lost.
+- [27:50.100] That’s a war that would have never happened
+- [27:51.610] if I were president. But we do speak about that.
+- [27:54.010] I speak about all of the lives.
+- [27:55.760] But I do speak about the civilian lives.
+- [27:57.700] The Press: You have done such an amazing job
+- [28:01.540] on the Ukrainian children who were abducted by Russia.
+- [28:04.590] Would you support Senator Lindsey Graham’s bill
+- [28:06.910] to declare Russia a terrorist state?
+- [28:09.200] And you have within your power the most powerful man on Earth.
+- [28:12.760] Why don’t you just enable Ukraine
+- [28:14.580] to finish this war tomorrow?
+- [28:17.570] The President: Well, if you knew anything about
+- [28:18.870] what you were talking about, you’d be able -- You do?
+- [28:21.010] I don’t think you do, really. I don’t think you do
+- [28:23.570] because it’s a little more complicated than that.
+- [28:25.720] But it sounds easy.
+- [28:27.680] We’re in the process of trying to make a deal.
+- [28:30.080] If we make a deal, that’s great.
+- [28:31.330] If we don’t make a deal, it’ll be --
+- [28:34.330] A lot of people are going to be paying a big price.
+- [28:38.900] Quiet, quiet, quiet, quiet.
+- [28:40.250] The Press: President Trump, sir,
+- [28:41.620] a question for both of you, if you don’t mind.
+- [28:43.970] The President: I love his haircut.
+- [28:47.260] I’m going to try that. No, I love it. Go ahead.
+- [28:50.000] The Press: So, as we all know, China controls 90 percent
+- [28:52.740] of the global supply of critical minerals.
+- [28:56.070] They have launched attacks on Australian companies,
+- [28:58.490] primarily Linus Revit.
+- [29:01.990] What will happen to China if they don’t play fair with this?
+- [29:05.910] The President: So, it’s a very interesting question.
+- [29:10.010] We have a tremendous power, and that’s the power of tariff.
+- [29:14.500] And I think that China will come to the table
+- [29:17.740] and make a very fair deal.
+- [29:19.790] Because if they don’t, they’re going to be paying us
+- [29:21.610] 157 percent in tariffs.
+- [29:24.440] Right now, they’re paying 55 percent to 57 percent.
+- [29:27.910] When I was first president and first term,
+- [29:30.520] we had the greatest economy we’ve ever had.
+- [29:33.210] And, as you know, people don’t write too much about it,
+- [29:36.290] but China paid us hundreds of billions of dollars
+- [29:39.730] worth of money for tariffs.
+- [29:42.860] Biden left it, but he didn’t enforce it.
+- [29:45.790] He gave exceptions to almost everything.
+- [29:48.970] And so, he left the tariffs, but he didn’t really collect
+- [29:52.440] the numbers that he should have collected,
+- [29:55.630] because he didn’t know what the hell he was doing.
+- [29:58.050] So, now, the tariffs are much higher in China
+- [30:01.460] than they were before,
+- [30:02.930] and they’re high on other countries,
+- [30:04.690] depending on whether or not we like that country
+- [30:06.540] or we get along.
+- [30:07.750] And that’s for national security purposes.
+- [30:10.210] So I made deals with Japan.
+- [30:11.660] I made deals with the European Union,
+- [30:13.720] or the whole of Europe, practically,
+- [30:16.020] but the European Union.
+- [30:17.650] Made deals with a lot of different people.
+- [30:20.870] We have a very fair deal for --
+- [30:24.270] I will say, Australia is paying a low number.
+- [30:26.660] They do have -- or I’ll change it.
+- [30:29.730] We have a little bit of an advantage on that one.
+- [30:31.730] I told you, the advantage we have is airplanes.
+- [30:33.760] We sell a lot of airplanes to them, and they need them.
+- [30:36.720] It’s a very vibrant place, and people go in and out.
+- [30:39.440] And I look forward to going there myself.
+- [30:41.240] And I think it’s unlikely I’ll be taking a ship.
+- [30:45.580] That’s a long -- That’s a long journey.
+- [30:47.450] That’s a long -- So --
+- [30:50.650] but China has treated us with great respect.
+- [30:56.030] Now, in the past, they didn’t treat other
+- [30:58.570] Presidents with great respect.
+- [31:00.980] They would take hundreds of billions
+- [31:03.310] and even trillions of dollars out of the country,
+- [31:05.430] and they would spend it and build their military.
+- [31:08.020] Now they’re treating us with great respect.
+- [31:09.760] Now, we’ll see what happens. I said, if we don’t make a deal,
+- [31:13.040] I’m putting on an additional 100 percent on November 1st.
+- [31:18.020] I think we’ll make a deal.
+- [31:19.720] They threatened us with rare earths,
+- [31:21.660] and I threatened them with tariffs,
+- [31:23.210] but I could also threaten them with many other things,
+- [31:25.490] like airplanes. You know about airplanes.
+- [31:27.360] Because they can’t get parts for their airplanes.
+- [31:30.590] We build their airplanes. We do a great job.
+- [31:34.120] They’re largely Boeings.
+- [31:36.410] And we could stop the parts. We did stop the parts, actually,
+- [31:39.740] when they did the initial threat.
+- [31:41.060] That’s a big -- they closed down over 400 of their airplanes.
+- [31:45.360] But we don’t want to do that.
+- [31:46.760] But we have a much simpler thing.
+- [31:48.220] If they don’t -- if we don’t make a deal,
+- [31:49.980] we’ll charge them a very substantial tariff.
+- [31:52.510] And they’ll be paying us
+- [31:53.800] hundreds of billions of dollars a year,
+- [31:55.680] which they’re basically paying right now.
+- [31:58.660] We had Presidents that allowed China and other countries
+- [32:02.690] to get away with murder. We’re not going to allow that.
+- [32:04.630] But we’re going to have a fair deal.
+- [32:06.000] I want to be good to China.
+- [32:07.230] I love my relationship with President Xi.
+- [32:09.210] We have a great relationship.
+- [32:10.860] I believe, after we leave South Korea, we’ll be there together.
+- [32:16.760] We thought that would be a good place to meet.
+- [32:19.090] And we’re going to be meeting. I’ll be in Malaysia.
+- [32:21.640] I’ll be in Japan. I’ll be in a couple of others.
+- [32:23.650] We’ll be sort of doing a little bit of a tour.
+- [32:27.400] I’ve been invited to go to China,
+- [32:29.830] and I’ll be doing that sometime fairly early next year.
+- [32:34.560] We have it sort of set.
+- [32:36.150] But I think we’re going to have
+- [32:37.400] a very good relationship with China.
+- [32:40.010] And again, they will threaten us with rare earths.
+- [32:42.690] I don’t think they’re threatening us
+- [32:44.170] too much right now. But they could do that.
+- [32:47.010] But I threaten them with something
+- [32:48.380] I think is much more powerful, and that’s tariffs.
+- [32:51.010] Because at a certain point,
+- [32:52.830] they will not be able to do any business with us.
+- [32:55.500] At a certain point, if they pay enough tariffs,
+- [32:57.980] it’s almost like saying,
+- [32:59.320] “We don’t want to do business with you,”
+- [33:01.320] but it’s probably nicer.
+- [33:02.610] Saying you’re going to pay 158, 157 percent tariff
+- [33:07.140] is a nicer way of saying
+- [33:09.060] that we don’t want to do business with you.
+- [33:11.470] And if they don’t do business with us,
+- [33:13.240] I think China is in big trouble, I’ll be honest with you.
+- [33:15.420] I think China is -- I don’t know that they even make it.
+- [33:19.510] I really do. I believe that they’re in big trouble.
+- [33:21.830] And I don’t want them to be in big trouble.
+- [33:23.590] I want them to do great. I want them to thrive.
+- [33:26.710] But we have to thrive together. It’s a two-way street.
+- [33:29.520] I think when we finish our meetings --
+- [33:32.440] and it’s going to be a big deal.
+- [33:33.860] I’m meeting with a lot of other countries,
+- [33:35.330] but this seems to be the one
+- [33:36.580] that people are very interested in.
+- [33:38.960] I think when we finish our meetings in South Korea,
+- [33:42.340] China and I will have a really fair
+- [33:44.930] and really great trade deal together.
+- [33:46.930] I want them to buy soybeans. They stopped buying our soybeans
+- [33:49.930] because they thought that was punishment.
+- [33:51.910] And it is punishment to our farmers,
+- [33:53.640] but we’re not going to allow that to happen.
+- [33:55.810] Because I made a great trade deal with China --
+- [33:58.270] a $50 billion trade deal. And they were great about it.
+- [34:02.200] They were doing everything that they were supposed to do.
+- [34:04.190] And then when Biden came in -- you know,
+- [34:06.040] I used to call President Xi all the time to say,
+- [34:09.010] “Thank you,” or “You’re not buying enough.”
+- [34:11.560] In other words, they were supposed to buy.
+- [34:13.820] Biden -- do you think Biden ever called him?
+- [34:15.930] I don’t think Biden ever called him.
+- [34:17.300] Do you think Biden laid awake at night
+- [34:19.470] thinking about trade with China?
+- [34:20.930] He didn’t know what he was doing.
+- [34:22.550] He was an incompetent President.
+- [34:23.910] We had an incompetent President, but you don’t have that anymore.
+- [34:26.810] So, I think we’re going to end up
+- [34:28.150] having a fantastic deal with China.
+- [34:30.640] It’s going to be a great trade deal.
+- [34:32.200] It’s going to be fantastic for both countries,
+- [34:34.900] and it’s going to be fantastic for the entire world.
+- [34:37.550] Thank you very much.

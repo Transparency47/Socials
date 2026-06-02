@@ -1,0 +1,789 @@
+<!-- source: https://www.youtube.com/watch?v=4tT2lp_k1w8 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 4tT2lp_k1w8 -->
+<!-- date_published: 2026-03-12T20:57:40+00:00 -->
+<!-- date_accessed: 2026-06-02T02:36:44.604029+00:00 -->
+
+# Transcript: President Trump and the First Lady Participate in a Women's History Month Event
+
+- [00:09.550] Announcer: Ladies and gentlemen,
+- [00:10.760] the President of the United States,
+- [00:12.610] Donald J. Trump, and First Lady Melania Trump.
+- [00:17.050] ♪ (Hail to the Chief) ♪
+- [00:47.150] The First Lady: Good afternoon. Please, sit down.
+- [00:53.350] It is wonderful to see, here in the White House,
+- [00:58.280] so many incredible women.
+- [01:01.450] This afternoon, the strength of America
+- [01:05.750] is closely tied to the role women play
+- [01:09.340] in shaping their children's character education and morals.
+- [01:15.650] The values cultivated within our communities,
+- [01:19.360] shape the voice and vision of our next generation.
+- [01:24.440] A woman's influence strengthens our democracy, capital markets
+- [01:30.320] and time tested business institution.
+- [01:34.550] Across the country today, women are finding unique ways
+- [01:39.040] to balance career ambition and family.
+- [01:42.750] We all know these incredible women.
+- [01:46.980] They dominate America's workforce
+- [01:50.570] now more than ever before.
+- [01:54.140] As a visionary, I know success is not born overnight,
+- [01:59.390] but rather takes shape after long
+- [02:02.850] and sometimes challenging process.
+- [02:06.460] Often alone at the top, I follow my passion,
+- [02:10.650] listen to my instinct and always maintain a laser focus.
+- [02:16.120] In solitude, my creative mind dances,
+- [02:19.980] filling my imagination with originality.
+- [02:24.450] Attention to detail, demanding schedules
+- [02:28.470] and multitasking are everyday realities
+- [02:32.080] when building towards success.
+- [02:34.940] The principle resonates across all my roles
+- [02:38.260] as a mother, humanitarian, philanthropist and entrepreneur,
+- [02:44.650] as well as with my new film,
+- [02:47.240] where I shaped its creative direction,
+- [02:49.930] served as a producer, managed post-production
+- [02:54.250] and activated the marketing campaign.
+- [02:58.590] Curiosity is a core value that keeps me ahead of the curve.
+- [03:04.860] Curiosity begets knowledge,
+- [03:07.560] opening doors to ideas and industry
+- [03:11.840] that I have otherwise overlooked.
+- [03:15.900] This unrestricted mindset has led me to build
+- [03:19.280] across very different sectors, fashion, digital assets,
+- [03:23.830] publishing, accessories, skincare, commercial television
+- [03:28.220] and, of course, filmmaking.
+- [03:30.800] The lessons I learned when launching my earliest ventures,
+- [03:35.150] such as how to build a brand, create superior product design
+- [03:39.600] and activate an advertising campaign
+- [03:42.190] remains just as relevant today.
+- [03:45.360] Markets evolve, technologies change,
+- [03:48.630] but the fundamentals of thoughtful leadership
+- [03:52.130] and continuous learning are everlasting.
+- [03:56.260] To all of the young women entrepreneurs
+- [03:59.730] and future leaders,
+- [04:01.600] make time for yourself, educate yourself daily
+- [04:05.740] and spread your passion. Be courageous and take risks.
+- [04:11.120] Advance your profession through inspiration.
+- [04:14.900] Be a bold chief executive while keeping your family,
+- [04:18.730] if you choose so, at the center of your nation's future.
+- [04:24.400] And now it is my privilege to introduce our commander in chief
+- [04:29.210] who throughout his career has demonstrated a strong commitment
+- [04:33.470] to promoting women in leadership roles.
+- [04:36.670] Please welcome the president, Donald J. Trump.
+- [04:41.980] (applause)
+- [04:57.400] The President: Well, thank you very much.
+- [04:58.760] Movie star, can you believe this?
+- [05:00.980] Can you believe it?
+- [05:02.430] (applause)
+- [05:04.220] That wasn't supposed to happen.
+- [05:05.820] We're supposed to have a nice, normal life,
+- [05:08.820] but she's terrific and a big success.
+- [05:13.770] And I think it was number one last night, streaming.
+- [05:15.920] It went on streaming last night.
+- [05:17.390] It was number one. So I don't know,
+- [05:20.090] maybe she's getting a little too big for the White House.
+- [05:22.010] We'll have to think about that. Anyway.
+- [05:25.160] Thank you, honey. She really is something.
+- [05:27.170] And I want to really congratulate you
+- [05:30.520] and I want to thank everyone for being here today.
+- [05:33.820] Very exciting, it's always exciting to be with you.
+- [05:36.110] We love women. Women are the whole deal. OK?
+- [05:44.510] And today is very special
+- [05:46.020] because we celebrate Women's History Month.
+- [05:49.020] That's what it's about every year.
+- [05:51.460] And before we begin, I want to send our love
+- [05:54.720] to the Michigan Jewish community
+- [05:58.010] and all of the people in Detroit --
+- [06:00.120] Detroit area following the attack
+- [06:02.590] on the Jewish synagogue early today.
+- [06:05.130] And I've been briefed, fully briefed
+- [06:07.970] and it's a terrible thing, but it goes on.
+- [06:11.630] We're going to be right down to the bottom of it.
+- [06:15.490] It's absolutely incredible that things like this happen.
+- [06:20.190] Uh, on another front, an entirely different front,
+- [06:24.060] the situation with Iran is moving along very rapidly.
+- [06:28.810] It's doing very well.
+- [06:31.340] Our military is unsurpassed.
+- [06:32.920] There's never been anything like it.
+- [06:34.230] Nobody's ever seen anything like it,
+- [06:36.780] and we're doing what has to be done, should have been done.
+- [06:39.910] During a 47-year period,
+- [06:41.560] could have been done by a lot of different people.
+- [06:43.360] They chose not to do it.
+- [06:44.900] But they really are a nation of terror and hate
+- [06:49.490] and they're paying a big price right now.
+- [06:53.400] We're honored to be joined by many extraordinary ladies,
+- [06:57.200] working moms and amazing women
+- [06:59.790] who are making history themselves.
+- [07:02.020] You really are.
+- [07:03.770] I want to thank Second Lady Usha Vance,
+- [07:06.680] who is a fantastic person. Where is Usha?
+- [07:15.950] And really, you have been such an inspiration
+- [07:19.340] to a lot of women. Usha, thank you very much.
+- [07:21.500] Appreciate it.
+- [07:22.960] And your husband's doing a good job.
+- [07:26.310] The youngest and perhaps the best White House
+- [07:30.190] press secretary in history, Karoline.
+- [07:33.320] Where is Karoline? Doing a fantastic job, Karoline.
+- [07:40.100] She keeps me straight. She keeps me --
+- [07:41.940] no, sir, you can't do that, you can't do this.
+- [07:44.770] I can't do anything.
+- [07:46.250] Life would be so much more exciting, wouldn't it?
+- [07:49.540] Thank you, Karoline.
+- [07:50.840] Great. Attorney General Pam Bondi, my friend.
+- [07:56.040] Good. Good. Got some big things in store.
+- [07:59.300] She's doing a great job. Thank you, Pam.
+- [08:02.040] Labor Secretary Lori Chavez-DeRemer thank you, Lori.
+- [08:07.350] Thank you very much.
+- [08:10.320] Senator Cindy Hyde-Smith, who just had, what did you get,
+- [08:13.110] 84, 85 percent of the vote?
+- [08:15.590] What's going on? You know, now I can tell this story,
+- [08:20.950] but Cindy Hyde called me up years ago when she first ran.
+- [08:24.470] It was a tough race.
+- [08:26.110] It was -- one of their top people in the White House.
+- [08:29.170] I won't mention the president,
+- [08:30.480] because we don't want to mention anybody,
+- [08:32.070] get yourself a lot of trouble.
+- [08:34.220] But it was a top person and it looked very tough
+- [08:37.020] for any Republican candidate.
+- [08:39.370] And Cindy Hyde was the one and she was not --
+- [08:43.060] I don't know, not like --
+- [08:44.720] the people that knew her loved her,
+- [08:45.960] but not a lot of people knew her.
+- [08:47.190] And she said, sir, could you do me a favor?
+- [08:48.790] Could you give me a rally? I said, a rally is a big deal.
+- [08:53.530] And I got there and she said, would you stay
+- [08:55.210] and do another rally in another part of the state?
+- [08:57.620] Nobody's ever -- and we ended up with three of them
+- [09:00.490] and she won in a landslide, right?
+- [09:02.920] And now she's at 85 percent.
+- [09:07.340] And now she wins -- she doesn't need rallies.
+- [09:09.410] I say, do you want me to do a rally?
+- [09:10.900] I don't need any rallies, sir. She got 85 percent.
+- [09:15.250] Good. I'm so happy to see --
+- [09:16.450] I'm not surprised, but I'm so happy,
+- [09:18.300] and that's because you've done a great job.
+- [09:20.730] Great job. Thank you very much.
+- [09:22.700] Representatives Virginia Foxx, my friend for a long time.
+- [09:26.420] Virginia, thank you. Kat Cammack.
+- [09:30.500] Kat, thank you very much. Thank you, Kat.
+- [09:34.270] Diana Harshbarger. Where is Diana?
+- [09:37.100] Diana, thank you. A friend of mine,
+- [09:40.880] a very talented person too, very smart, Victoria Spartz.
+- [09:44.910] We argue, but we always come to the same place.
+- [09:47.490] Doing a good job. And of course, Kellyanne Conway.
+- [09:51.210] Has anyone ever heard of her? She's fantastic.
+- [09:55.840] She's in there fighting. She's a -- Kellyanne.
+- [09:58.210] A man, a friend of mine, said, you know, that Kellyanne,
+- [10:00.740] I admire the way she goes in and she screams at those people.
+- [10:04.370] She's got us -- meaning the media,
+- [10:06.690] because this is a man
+- [10:07.890] that doesn't do very well with the media.
+- [10:09.580] It's one of those things, but thank you, Kellyanne.
+- [10:12.760] And also, I want to thank the New York Stock Exchange
+- [10:16.810] and the person who is so instrumental
+- [10:19.210] in its great success, Lynn Martin.
+- [10:22.080] Thank you very much, Lynn. Great job. Great job.
+- [10:26.350] Say hello to Jeff, right? Thank you very much.
+- [10:29.400] Going all the way back to our nation's founding, in 1776,
+- [10:33.400] America has been strengthened beyond measure by the courage,
+- [10:37.630] by the spirit, love devotion and the incredible woman.
+- [10:41.350] I mean, all of these incredible women
+- [10:43.790] who have served our nation, uplifted our communities,
+- [10:46.490] pioneered new industries
+- [10:48.120] and been the heart and soul of the American family.
+- [10:51.520] And they are the heart and soul,
+- [10:53.910] from Martha Washington to Betsy Ross,
+- [10:57.850] from Clara Barton to Amelia Earhart,
+- [11:00.900] and Rosa Parks to Aretha Franklin,
+- [11:03.010] American women have propelled us to even greater heights.
+- [11:06.850] And now, the Trump administration
+- [11:09.400] is working every single day
+- [11:10.940] to make America better, safer and more prosperous for women,
+- [11:15.140] and men, but -- but much more importantly, for women.
+- [11:22.070] And they are really the inspiration.
+- [11:25.150] They are so, so powerful and so important and so beautiful.
+- [11:29.550] I'm not allowed to use the word beautiful,
+- [11:31.140] but I'm using it anyway.
+- [11:33.190] Usually, it's the end of your political career
+- [11:35.140] if you say a woman's a beautiful woman.
+- [11:37.740] They say, that's a termination of his career,
+- [11:39.860] but somehow it hasn't hurt too much.
+- [11:43.840] You are, you're incredible women and you're beautiful women.
+- [11:46.500] While we're here to celebrate Women's History Month today,
+- [11:49.920] we also are celebrating National
+- [11:53.200] Working Moms Day, a very special day.
+- [11:56.860] And since I took office, we've created more than --
+- [12:00.710] listen to this number, 300,000 jobs
+- [12:03.730] now filled by proud, hardworking American women.
+- [12:06.470] It's a record. The number of women-owned businesses
+- [12:09.910] increased by 1.2 million last year alone.
+- [12:13.520] That's also a record. These are all records.
+- [12:16.700] Got a lot of records.
+- [12:21.050] Think of that, 1.2 million last year alone,
+- [12:24.210] businesses opened by women, very ambitious people,
+- [12:28.390] very, very ambitious, very, very amazing.
+- [12:31.770] To support working moms like many in this room,
+- [12:34.590] last year, we passed the largest tax cuts in American history.
+- [12:38.370] So our opponents, as you know, want to raise taxes,
+- [12:41.650] we decided to lower taxes.
+- [12:43.090] All my life, I've watched politicians.
+- [12:45.550] I've only started this about 10 years ago.
+- [12:48.010] But I watched politicians and I watched them so diligently.
+- [12:52.470] I loved it. I loved watching.
+- [12:53.710] They say, we will cut your taxes,
+- [12:55.470] we're going to cut your taxes, we'll cut your taxes even.
+- [12:59.170] If they didn't mean it, they said it.
+- [13:01.630] The Democrats say we will raise your taxes.
+- [13:03.910] I've never heard anything --
+- [13:05.530] but maybe that's why we won in a landslide, maybe.
+- [13:08.910] But we did cut your taxes.
+- [13:11.920] And that includes no tax on tips,
+- [13:13.800] no tax on overtime and no tax on Social Security
+- [13:17.620] for our great seniors. That's a big deal.
+- [13:20.230] And with us today is Heather Kell,
+- [13:22.890] joined by her 14-year-old beautiful son, Finley.
+- [13:27.250] Heather is a single mom and waitress in Hendersonville,
+- [13:31.090] North Carolina, great place.
+- [13:33.320] And thanks to the One Big, Beautiful Bill,
+- [13:36.810] she got a big, beautiful tax refund of $4,000
+- [13:41.910] this year, which she didn't expect.
+- [13:44.730] And Heather, please come up
+- [13:46.090] and tell us how excited you are to receive that.
+- [13:49.240] Come on up, Heather. Thank you. Thank you, darling.
+- [13:56.310] Heather Kell: Thank you. I'm honored to be here today.
+- [13:59.410] Um, I have been a waitress for over 20 years
+- [14:02.860] and a lot of the people I've seen come
+- [14:05.270] and go in the industry are single moms, and they work hard.
+- [14:10.220] They're the hardest working people I know.
+- [14:11.770] And then at the end of the year,
+- [14:13.820] they're always super stressed out
+- [14:15.350] because they don't know where they're going to come up
+- [14:17.000] with the extra couple thousand dollars
+- [14:18.710] that they owe on the taxes.
+- [14:20.120] And this year, I had to do a double take.
+- [14:23.070] I had to do my taxes twice to make sure this was real.
+- [14:26.140] I couldn't believe it. Thank you. Thank you so much.
+- [14:30.170] The President: Thank you, honey. Thank you.
+- [14:33.640] Heather Kell: I appreciate you.
+- [14:34.840] The President: I love that ending.
+- [14:36.040] Wasn't that great? That's from the heart.
+- [14:38.800] That's from the heart. Thanks, Heather.
+- [14:43.120] Spend it wisely, right? Thank you.
+- [14:47.310] Also with us is Nora Pruitt, a proud mom of seven
+- [14:51.700] and a sheet metal worker from Baltimore, Maryland.
+- [14:54.720] She's seeing how our manufacturing renaissance
+- [14:57.820] is bringing opportunity back to America.
+- [15:00.230] And if you would, please come up, Nora.
+- [15:03.680] Thank you. Thank you very much. Thank you.
+- [15:11.770] Nora Pruitt: Hi. I'm Nora Pruitt.
+- [15:13.260] I'm blessed with a wonderful husband, Jason Pruitt,
+- [15:15.950] and my seven adorable children.
+- [15:25.120] I'm a working mom.
+- [15:26.370] I used to be a housekeeper for nine years.
+- [15:28.520] A year ago, I got a job, a career job
+- [15:31.410] at Marlin Steel Wire Productions in Baltimore, Maryland.
+- [15:35.620] I was matched with great pay, a 401(k) with great match.
+- [15:40.310] I got a huge promotion to set up a wire forming machine.
+- [15:44.460] We only use USA steel and we only make in the USA.
+- [15:48.160] With the Big, Beautiful Bill, we were able to buy
+- [15:50.300] one of the most expensive tools our factory has ever bought.
+- [15:54.440] Within that, it totally changed our lives.
+- [15:56.750] We were able to buy a five-bedroom home
+- [15:59.350] on an acre of land.
+- [16:01.830] (applause)
+- [16:09.070] The President: Wow. That's pretty good, huh?
+- [16:14.830] So we have another person that I'm going to introduce.
+- [16:18.140] You know, they said, do you mind bringing up five people?
+- [16:20.880] I said, not really, but it's a lot.
+- [16:24.120] Then I looked at them; I said, how about some more like that?
+- [16:26.740] We want more. But thank you. It's great -- great job you did.
+- [16:31.620] Another working mom benefiting from our policies
+- [16:34.680] is Lexie Chambers.
+- [16:36.560] And she's a second generation farmer from Virginia,
+- [16:39.550] who's got two wonderful daughters, June and Tillie.
+- [16:43.620] They're benefiting from our One Big, Beautiful Bill.
+- [16:45.990] I always say Great, Big, Beautiful Bill,
+- [16:47.800] because I like it better, Pam.
+- [16:50.630] They say, sir, that's not the exact --
+- [16:52.010] I said, don't worry about it, it'll be just fine.
+- [16:54.140] Great Big, Beautiful Bill, because that's what it is.
+- [16:57.010] And the $12 billion in farm relief
+- [16:59.240] we issued using tariff revenue, we get $12 billion.
+- [17:04.500] We took in tremendous amounts of money.
+- [17:06.260] We're taking in money because of the tariffs
+- [17:08.370] and really jobs are coming in through the roof
+- [17:11.250] and we have factories being built all over the country.
+- [17:14.630] As an example, in the last administration,
+- [17:16.760] less than $1 trillion in four years,
+- [17:19.740] we've taken in $18 trillion plus in 11 months.
+- [17:24.060] We haven't included the 12th month yet,
+- [17:26.530] so we're at more than $18 trillion
+- [17:29.690] and it's a record in the history of our country.
+- [17:31.590] We've never done anything
+- [17:32.840] and that was for a lot of good things.
+- [17:34.080] It was because of November 5th,
+- [17:36.280] but it was also because of tariffs.
+- [17:37.920] So, Lexie, please come up and say a few words.
+- [17:41.070] Lexie? Come on up, Lexie. She's so beautiful.
+- [17:46.880] How are you? Nice to see you come on in.
+- [17:51.680] Lexie Chambers: Hi, my daughter, June had to join me.
+- [17:53.850] She was not one to stay. As the second generation,
+- [17:58.530] the wife of a second generation Virginia farmer,
+- [18:00.840] one of my biggest goals second, to teaching my children to love
+- [18:04.510] Jesus above all else is to ensure that my daughters
+- [18:09.460] have the opportunity to farm one day.
+- [18:12.700] President Trump, your support of American agriculture
+- [18:16.220] through your changes and updates of the estate tax
+- [18:19.420] relief for family farms has allowed families like mine
+- [18:23.620] the opportunity to ensure that my daughters can farm one day.
+- [18:27.610] Thank you for your work on OBBB,
+- [18:30.000] and your support of the American Family Farm.
+- [18:31.880] The President: Thank you very much thank you.
+- [18:39.740] That's beautiful.
+- [18:40.980] You know, one of the things that we were just thinking about
+- [18:45.140] and talking about and something so important
+- [18:47.720] is exactly that you mentioned, I never mention it,
+- [18:49.800] but it's so big when you want to pass on your farm
+- [18:53.740] to your beautiful daughter someday,
+- [18:56.140] a lot of people until we came along,
+- [18:58.380] I came along, we all came along together,
+- [19:00.940] you had a tremendous estate tax, they call it a death tax.
+- [19:04.090] You want the farm to go?
+- [19:05.360] Well, they had tremendous estate tax.
+- [19:07.600] In some cases they're sort of semi land rich, but cash poor.
+- [19:11.210] But that's the way it is sometimes and farms
+- [19:14.350] were being lost all over the country.
+- [19:15.870] They were being taken away from the banks.
+- [19:18.000] And we ended the death tax, we ended it for the farmers,
+- [19:20.770] for manufacturers and small businesses.
+- [19:23.080] So you're not going to be losing your farms anymore, Ok?
+- [19:26.950] It's going to be a long time from now many, many years,
+- [19:30.030] 70, 80 years, but it's going to have no tax to pay.
+- [19:33.670] Ok? It's going to be in a long time.
+- [19:35.900] Thank you very much. That was great.
+- [19:38.650] One of the most important ways we can support women
+- [19:41.780] is by bringing law
+- [19:43.170] and order and public safety back to our country.
+- [19:46.260] And for the past ten months in a row, think of that,
+- [19:49.260] ten months in a row, zero illegal aliens
+- [19:51.670] have been admitted to the United States,
+- [19:54.380] which is an amazing number.
+- [19:58.070] In one year, we've seen the largest decline in murder --
+- [20:02.230] in the murder rate in 125 years. It's back to the year 1900.
+- [20:07.640] That's before my father was born.
+- [20:09.080] He never liked talking about age.
+- [20:11.190] He probably would hate me saying that.
+- [20:12.790] But it was -- it was before way before my father was born
+- [20:17.280] and 125 years the lowest number of murders.
+- [20:23.080] And part of that is what we've done with your department, Pam,
+- [20:26.890] and what we've done with some other departments
+- [20:29.250] and Homeland has been amazing.
+- [20:31.790] So many people have worked so hard.
+- [20:33.390] You know, Washington DC did not have a great reputation
+- [20:36.890] for security and safety.
+- [20:38.550] And now as you know, it's the single --
+- [20:40.920] well, let's just say it's real safe
+- [20:43.290] because somebody's going to have to be very careful
+- [20:45.610] with the fake news media.
+- [20:46.820] They will find they will say, well, wait a minute.
+- [20:49.240] There was a place in Tennessee that was slightly --
+- [20:52.650] it's gone from a very dangerous place
+- [20:55.470] where a lot of bad things happened
+- [20:57.240] to one of the safest cities in the country.
+- [20:59.200] You can come here now and we've had an amazing record.
+- [21:02.370] It's been incredible. It's a -- it's a real turnaround.
+- [21:05.470] Likewise, Memphis, Tennessee, a lot of problems.
+- [21:08.400] The mayor called, the governor called
+- [21:10.430] and we went out and did a job
+- [21:12.630] and in three months crime is down 74 percent
+- [21:16.190] and we'll get it down even beyond that.
+- [21:18.810] Much beyond that, it was very quick.
+- [21:21.050] But I also deployed the National Guard
+- [21:22.910] to bring back safety to Memphis and New Orleans
+- [21:25.790] and all these other places
+- [21:27.780] and they have done some job what great people they are.
+- [21:30.960] Our capital is now considered, in fact, here's a stat,
+- [21:34.260] the safest capital anywhere in the world.
+- [21:37.060] How about that? We went from probably the most unsafe.
+- [21:42.250] I think we went from the most unsafe
+- [21:45.080] to certainly one of the safest.
+- [21:46.520] And here today is an outstanding female law enforcement officer,
+- [21:50.210] keeping our community safe.
+- [21:52.720] Sheriff Michelle Cook from Clay County, Florida.
+- [21:56.500] Great place, Florida come on up.
+- [21:58.640] Michelle grew up in a military family,
+- [22:02.890] started as an officer almost 35 years ago
+- [22:05.770] and has now been sheriff for nearly six years.
+- [22:08.750] And she's done a great job
+- [22:10.410] and maybe more importantly, she's a great mom.
+- [22:12.620] They say, I think you're a great mom.
+- [22:14.810] So thank you very much, Michelle, please.
+- [22:16.840] Michelle Cook: Thank you. Thank you.
+- [22:20.400] Mr. President, the only place safer than Washington
+- [22:23.420] is going to be Clay County, Florida.
+- [22:25.220] All right, good afternoon. My name is Michelle Cook
+- [22:29.720] and I am a 35-year law enforcement veteran
+- [22:32.770] and I currently serve as the sheriff --
+- [22:35.570] elected sheriff in Clay County, Florida.
+- [22:37.290] And I'd like to thank the President, Mrs. Trump
+- [22:39.610] for having all these beautiful women in here today.
+- [22:42.730] Thank you so much. My husband,
+- [22:44.970] Don and I are raising a big, beautiful blended family
+- [22:49.410] that includes six kids and there's two topics
+- [22:52.390] that I know very, very well, that's raising kids
+- [22:56.560] and serving my community.
+- [22:58.570] Raising a family is an honor and with President
+- [23:01.970] Trump's no tax on overtime law,
+- [23:04.560] families can now recognize additional dollars
+- [23:07.960] from their hard work.
+- [23:10.070] $12,000 -- up to $12,500 per individual
+- [23:13.790] and up to $25,000
+- [23:16.090] back in the pockets of hard working Americans
+- [23:18.430] who work overtime to make their families happy
+- [23:22.090] and to provide the necessities that they need.
+- [23:24.790] And I want to say thank you for that
+- [23:26.280] because it is making a difference
+- [23:28.150] in Clay County, Florida.
+- [23:29.880] I'd also like to talk about law enforcement.
+- [23:31.940] As I mentioned, I've done 35 years in this field
+- [23:35.230] and one thing that I will tell you is that crime will rise
+- [23:39.650] to the level that a community allows it to rise.
+- [23:43.320] And when you have a president of the United States
+- [23:45.940] standing up from the -- the Whitest House
+- [23:48.030] or the White House and the Washington DC
+- [23:51.090] saying that we will have law and order in our nation
+- [23:54.880] that sets the tone and that sets the expectation.
+- [23:58.640] And I can tell you it is an honor
+- [24:00.900] to serve my community with you at the very top, sir.
+- [24:04.760] Thank you so much.
+- [24:14.370] In closing, I would like to say, God bless our first responders,
+- [24:18.360] God bless our military, God bless our president,
+- [24:21.430] and God bless the United States of America.
+- [24:23.140] Thank you.
+- [24:30.520] The President: Thank you. Great job.
+- [24:34.580] And she looks like no games. I'm watching her.
+- [24:38.000] He (Sic) looks like a tough one. Thank you.
+- [24:40.060] And I hear you do an incredible job.
+- [24:42.430] I got the word from Florida. Great honor.
+- [24:46.180] As we make our community safe again,
+- [24:48.480] my administration is also fighting for school choice
+- [24:52.270] and also bringing education back to the states
+- [24:54.630] so that you run them.
+- [24:55.880] Right, Virginia?
+- [24:57.100] So that you run them from your local community,
+- [24:59.790] not from Washington DC.
+- [25:01.500] We've done that and Linda McMahon
+- [25:02.860] has done an incredible job, by the way.
+- [25:08.270] And that's done so that American moms
+- [25:10.390] can send their children to a school
+- [25:12.210] that shares their values and everything else.
+- [25:15.550] The Trump administration listens to women and moms,
+- [25:18.430] which is why we are doing more to help women
+- [25:21.430] struggling with infertility than any administration in history.
+- [25:26.060] This all started when I got a call from Katie Britt,
+- [25:29.620] a great senator from Alabama.
+- [25:32.200] I don't know if she's here, but I never said be here,
+- [25:35.890] but she did call me and she said,
+- [25:37.390] listen, we have a problem and she explained the problem.
+- [25:40.270] I wasn't that familiar with it, I must tell you,
+- [25:42.480] but after about two minutes, I understood it very well
+- [25:45.680] and we really took that issue, infertility.
+- [25:48.150] We took the whole situation with what was happening,
+- [25:51.970] so many bad things were happening throughout the country
+- [25:54.540] and we solved it with my most favored nation agreements
+- [25:58.660] that we just had approved by other countries.
+- [26:01.470] Just about all the countries all over the world,
+- [26:03.690] which had nobody was --
+- [26:05.130] they always said, Kellyanne, you couldn't get them to do it.
+- [26:07.960] I got them all to do it and the calls lasted
+- [26:10.100] not even that long a period.
+- [26:11.430] I said you got to do it because we were paying the highest price
+- [26:15.260] anywhere in the world for drugs and prescription drugs
+- [26:18.230] and now we're paying the lowest price
+- [26:20.020] anywhere in the world. They had to agree to it.
+- [26:21.880] They did. They had to agree. They said it would be impossible
+- [26:26.860] to get the drug companies had to get them,
+- [26:29.500] but they didn't care because they said
+- [26:31.170] you'll never get the countries.
+- [26:32.540] But I got the countries quickly.
+- [26:33.820] I said, listen, Emmanuel -- like France, just as an example,
+- [26:39.670] you have to double the price of your drugs,
+- [26:41.850] you'll still be low, but you have to double them.
+- [26:43.430] No, no, no, I will not do that, Donald.
+- [26:45.930] I will not do that. Are you crazy?
+- [26:48.180] I'm not going to double the price,
+- [26:49.740] but this has gone on for 35 years
+- [26:52.600] and I said no, you're going to do it.
+- [26:54.190] You're going to no, no, I will not do it.
+- [26:55.620] Yes, you are.
+- [26:56.820] And I'll tell you why, because if you don't do it,
+- [26:58.470] I'm going to put a big tariff
+- [26:59.680] on everything coming in from France or whatever country
+- [27:03.030] because they made numerous of these calls and it took me.
+- [27:07.060] The first answer was always no, no, no,
+- [27:09.240] no, no, I will not do it.
+- [27:10.690] The second answer was like well, I agreed to do it.
+- [27:14.590] And every single country agreed and because of that we are
+- [27:18.550] cutting your drug prices by 60, 70, 80 and even 90 percent.
+- [27:22.710] Can you believe that?
+- [27:24.090] That's the biggest thing to happen in medicine in so long
+- [27:30.800] and when you think about it,
+- [27:32.820] you know, it used to be ahead of time.
+- [27:35.420] We had a very successful first term, best economy ever.
+- [27:38.240] We did a lot of great things. We rebuilt our military.
+- [27:41.320] That's one of the reasons we're doing so well
+- [27:42.810] now with our military.
+- [27:44.050] I never thought I'd have to be using it so much,
+- [27:46.520] but when you look at what they did in Venezuela
+- [27:50.160] and now what they're doing in Iran,
+- [27:52.450] it's been -- it's been amazing.
+- [27:54.290] But when you look at all of this,
+- [27:56.570] everybody was saying that this could never be done
+- [27:59.590] with the drugs, it could never be done.
+- [28:01.190] And in my first term, I was so proud of myself
+- [28:04.690] because I was able to cut the drugs,
+- [28:08.130] one quarter of a pence.
+- [28:09.450] Now this doesn't sound so good,
+- [28:10.840] but I was about 28 years drug costs went up
+- [28:14.100] and it never stopped, went up, up, up.
+- [28:17.610] And I had in my third year I cut drugs
+- [28:20.330] by one quarter of 1 percent, and it was like a big deal
+- [28:24.330] because that never happened before.
+- [28:26.590] And I had a news conference I announced
+- [28:28.540] that I cut drugs one quarter.
+- [28:30.300] It's the first time in 28 years,
+- [28:32.920] but now I cut drug prices by 80 percent, 75 percent,
+- [28:39.300] a low one, a bad one would be 50 percent.
+- [28:41.940] Think of it one quarter of a percent. I was happy.
+- [28:45.090] But you know with experience you learn
+- [28:47.420] and these are the biggest drug price cuts this country
+- [28:50.350] has ever had by 25 times
+- [28:53.710] and I think it's going to make a very big difference.
+- [28:56.150] All you -- great Congress people back there that helped me,
+- [28:59.070] it's going to make a great --
+- [29:00.410] it's going to make a great difference,
+- [29:01.740] has never been anything like it.
+- [29:02.960] It's called Most Favored Nation agreements.
+- [29:05.500] I got them with all the countries.
+- [29:07.540] And so now instead of paying the highest price
+- [29:10.190] in the whole world,
+- [29:11.450] we're paying the lowest price in the whole world.
+- [29:14.760] So it's pretty good.
+- [29:19.970] And I'm very, very happy, very proud of that actually.
+- [29:23.560] It should be the biggest story. I don't get any --
+- [29:26.000] nobody wants to write about it. That's why I talk about it.
+- [29:28.620] They don't want to write about it.
+- [29:30.100] There was a little story like this in the New York Times
+- [29:32.600] should have been headlines.
+- [29:33.860] I picked up the New York Times,
+- [29:35.300] I said to my wife, oh, this is a big one.
+- [29:38.300] This is going to be front page. I couldn't find a story.
+- [29:42.280] I said, oh, they must have been a little bit late.
+- [29:44.870] You know, they are a lot late. So I figured it was the next day
+- [29:48.120] I looked the next day, there was nothing, it's unbelievable.
+- [29:51.760] How would you like to cut drug prices, Kellyanne?
+- [29:53.940] How would you like to cut drug prices by 80 percent
+- [29:57.450] and not have a story about it?
+- [29:59.370] There's something a little cuckoo
+- [30:00.870] there isn't it, but the people got it.
+- [30:04.180] That's why we won the people. Got it, Sheriff, right?
+- [30:09.860] But I'm also doing something else with,
+- [30:11.490] I think it was, you know,
+- [30:12.710] not, not much to me, I say, can this really be possible?
+- [30:17.700] We're keeping men out of women's sports. Is that
+- [30:19.630] Ok with 90 percent of the people?
+- [30:30.000] And we're putting that in the SAVE America Act
+- [30:32.670] as one of our five that's voter ID.
+- [30:34.690] We want voter ID. We want proof of citizenship.
+- [30:38.030] We want no transgender mutilization of your children.
+- [30:43.090] We don't want transgender mutilation.
+- [30:45.050] That's number three.
+- [30:47.240] We want no men in women's sports, that's number four.
+- [30:50.100] And we don't want to have mail-in voting
+- [30:52.190] where the votes go,
+- [30:53.480] where the hell do they come from.
+- [30:55.700] So we're going to -- we do that. It's five things.
+- [30:58.740] They're all 99 percent, they say,
+- [31:01.460] oh, that's an 80 percent issue like voter ID.
+- [31:04.370] No, I think it's a 99.
+- [31:06.140] I think the Democrats have it at 87 percent.
+- [31:09.470] The leadership doesn't want it. Why don't you want voter ID?
+- [31:14.450] There's only one reason. Ready, because you want to cheat, Ok?
+- [31:18.630] They blame it on all sorts of things. They came up.
+- [31:21.300] They said it's racist. They came up with things
+- [31:24.320] that you have to say their imagination is great.
+- [31:26.500] No, we're not going to let them cheat like they did
+- [31:28.940] in a certain election that we won't talk about,
+- [31:31.940] but that election was -- and they cheat now look,
+- [31:35.230] we're not going to let it happen.
+- [31:36.640] So we're going to go get the SAVE America Act,
+- [31:39.430] not the SAVE Act.
+- [31:40.640] Nobody knew what the SAVE Act meant the SAVE
+- [31:42.710] Act, what save, what SAVE America Act.
+- [31:46.250] And it's -- we're going to do everything we can.
+- [31:48.340] It's hard to believe it's hard to believe
+- [31:50.660] we're having a hard time.
+- [31:52.730] I think anybody that votes against it
+- [31:54.690] shouldn't be allowed to run for office.
+- [31:56.720] You want to know the truth.
+- [31:58.110] But we're working very hard on it.
+- [31:59.730] It shouldn't be -- it should be every one of those five points.
+- [32:02.880] Every one of them is, I think, close to a 95 percent,
+- [32:06.530] They say voter ID, That's an 80 percent issue.
+- [32:09.750] It's not 80 percent. It's 99 percent, I believe.
+- [32:13.990] And so are most of the others, so there's five points,
+- [32:16.700] I call them best of their best of Trump,
+- [32:19.140] you know, like best of for an athlete,
+- [32:21.210] the best plays, best of these are best of Trump.
+- [32:24.170] So hopefully we're going to get them.
+- [32:25.820] But I'm also keeping the men out of the women's sports
+- [32:29.240] and I signed an executive order declaring
+- [32:32.550] that there are only two genders, male and female.
+- [32:35.600] Complicated, isn't it? Male and female.
+- [32:40.360] I don't think the first lady's going to have a problem here.
+- [32:42.570] Am I Ok with that one?
+- [32:43.790] I'm not because she will say to me sometimes
+- [32:45.870] I don't like that particular stance.
+- [32:48.210] I don't know. That's Ok. We like that baby crying.
+- [32:51.330] Melania, would say I don't like that particular stance.
+- [32:53.320] But I think we're Ok on that one. Two genders, Ok?
+- [32:56.440] Male and female. I think so. We'll be Ok.
+- [33:02.100] And we have put the world on notice
+- [33:03.920] that America will not allow men to compete against women
+- [33:08.230] in the 2028
+- [33:09.840] Olympics, where we have -- we have the Olympics.
+- [33:14.410] And we have the Olympics, we have the World Cup coming up
+- [33:19.310] and we have 20 -- you know, the really the biggest of is 250
+- [33:24.450] and I did all three of them.
+- [33:27.140] I did the Olympics, I got the Olympics,
+- [33:29.680] then I got the World Cup, then I got 250.
+- [33:32.940] But I've never been given credit for that.
+- [33:34.630] The men they won't give me credit for 250 years,
+- [33:37.380] but I'm here for 250. I tried to take credit for that.
+- [33:41.710] But I haven't been able to get it,
+- [33:44.420] but a person that I recognized immediately
+- [33:47.110] when I came into the room, I looked down,
+- [33:49.040] I said because I didn't read, I can't --
+- [33:52.300] If I prepare my speeches,
+- [33:53.650] I won't have time to get things done.
+- [33:55.100] You know, do you ever hear that? I cannot prepare.
+- [33:57.720] So I didn't know who the hell I was speaking to,
+- [33:59.730] but I walked in and I saw this beautiful woman
+- [34:02.230] with the blond hair.
+- [34:03.490] I watched that bobsled.
+- [34:04.690] I don't know how the hell you do it, Kaillie,
+- [34:07.370] but Kaillie was the star, a big star of the Olympics
+- [34:10.570] and other Olympics also.
+- [34:12.480] And she's -- she's a six time Olympic medalist, think of that.
+- [34:19.480] And she's won more gold medals than any other female
+- [34:22.180] bobsledder in history. She's a total champion.
+- [34:25.150] I watched the whole deal with you.
+- [34:27.300] You were getting ready and they said maybe
+- [34:29.590] I don't know, she was prime -- prime eight -- eight years ago.
+- [34:33.340] They said that that was terrible.
+- [34:35.080] And then you ended up winning again, you know.
+- [34:37.590] You're going to be prime for a long time.
+- [34:39.110] I'll tell you that.
+- [34:40.350] What a -- what a tremendous athlete and it's an honor.
+- [34:42.720] But I literally I walked in and I said
+- [34:45.830] because I don't know most of you,
+- [34:47.130] unfortunately, but I knew her -- --
+- [34:48.610] because I watched that whole thing
+- [34:50.770] and she recently got back from Cortina,
+- [34:53.970] Italy where she won two bronze medals
+- [34:56.680] as America cheered her on and she's won the golds
+- [34:59.650] and she's won more than anybody else.
+- [35:01.710] And it's amazing to have you here and it's a great honor.
+- [35:03.980] Come on up, Kaillie. Please.
+- [35:14.700] Kaillie Humphries: I don't know about braver.
+- [35:15.950] But, um, it's a real honor to be here today.
+- [35:20.010] Yes, I'm a six-time Olympic medalist,
+- [35:21.990] three of them gold, but the title --
+- [35:24.170] sorry, I'm most proud of his mom.
+- [35:27.720] Thank you. Yes.
+- [35:33.610] My journey to motherhood was a
+- [35:34.990] two-and-a-half-year process through IVF
+- [35:38.100] and I was constantly told that as soon as I became a mom,
+- [35:41.230] my career in athletics was going to be over.
+- [35:43.030] I was never going to reach the Olympic podium again
+- [35:45.210] mentally physically.
+- [35:46.440] I could never get my body and my mind back.
+- [35:49.770] And I think the ultimate way to tell somebody that,
+- [35:52.910] you know, they'll never do it, say don't do it.
+- [35:54.730] And I'm going to go out and do it.
+- [35:56.500] That's just how it goes.
+- [35:58.190] Um, the ultimate dream I had was to become a mom
+- [36:01.980] and then be able to stand on the Olympic podium.
+- [36:04.230] And this year I got to do that
+- [36:05.870] with my one-and-a-half-year-old son.
+- [36:08.650] Thank you. Yes.
+- [36:16.760] So being able to earn these two bronze medals,
+- [36:19.240] they feel like gold, they really do.
+- [36:20.920] He is my gold medal
+- [36:22.230] and will always be for the rest of my entire life.
+- [36:25.580] As a legal immigrant
+- [36:27.040] competing for the United States of America,
+- [36:29.280] a country that has adopted me,
+- [36:32.070] it's one of the greatest honors I've had in my entire life.
+- [36:35.590] Having my one-year-old son chase me
+- [36:37.310] around the Olympic podium,
+- [36:38.900] another huge honor and a dream come true.
+- [36:41.780] I want to encourage every single mother
+- [36:43.450] out there to follow your dreams
+- [36:45.270] and don't let anybody put limits on what you believe you can do.
+- [36:50.610] The only Olympic medalists --
+- [36:57.420] So every Olympic medalist in the United States
+- [37:00.150] gets an Order of Ikkos
+- [37:01.370] that they get to hand to somebody in honor
+- [37:03.940] and recognition of somebody
+- [37:05.460] who's made a meaningful contribution
+- [37:07.090] to their journey to the podium,
+- [37:09.100] because Olympic medals are never achieved alone.
+- [37:12.260] So I am here today and I'm so honored to present this,
+- [37:16.340] my Order of Ikkos medal to you, Donald Trump.
+- [37:19.920] The President: Wow. Wow. Thank you.
+- [37:23.340] I knew I liked her. Wow. Thank you.
+- [37:34.790] Kaillie Humphries: So we only get one,
+- [37:36.040] but I want to recognize the support
+- [37:38.000] and the impact you've had on women's sports
+- [37:39.790] throughout the Olympic movement,
+- [37:41.310] specifically standing up to keep biological women
+- [37:44.800] in women's sports,
+- [37:46.090] to keep the field of play safe and allow for fair competition.
+- [37:49.970] Furthermore, because your policies
+- [37:51.450] are creating greater access to IVF,
+- [37:54.080] so families like mine can continue to grow
+- [37:56.450] as I look to become and expand my family again.
+- [37:59.580] I believe this actually makes you the first president
+- [38:01.860] in history to ever be awarded an Order of Ikkos as well.
+- [38:04.570] So thank you.
+- [38:06.870] (applause)
+- [38:26.240] Isn't he just the best? He's the best. So, thank you.
+- [38:29.150] The President: Thank you very much.
+- [38:30.400] Thank you. I knew I liked her.
+- [38:37.480] I liked her right from the first second.
+- [38:39.760] Now I know why that's good. That's really nice, beautiful.
+- [38:43.020] Thank you both very much. Appreciate it.
+- [38:45.360] So I'm going to now do a little signing.
+- [38:48.490] And the signing is going to be very impactful, very important
+- [38:52.000] and it's something that Melania feels very strongly about,
+- [38:54.760] and so do I.
+- [38:55.960] And perhaps the people that I called before,
+- [38:59.490] come on up and if you want, bring your families up.
+- [39:02.100] Bring your families and we'll sign all together.
+- [39:04.090] Is that OK? Come on.
+- [39:07.380] (applause)
+- [39:21.690] So, you ready?
+- [39:25.930] Okay, no auto-pen, right, Pam? Am I allowed? Nope, no autopen.
+- [39:32.550] Okay, ready? Watch what I do.
+- [39:42.040] It's so quiet. Okay, we did it.
+- [39:49.820] (applause)
+- [40:07.080] Here you go, you champion.
+- [40:10.080] Won so much gold, she doesn't know what to do with it.
+- [40:13.480] It's gotten very valuable lately.
+- [40:16.620] Kaillie Humphries: It has, it has.
+- [40:23.150] The President: I want to thank you all very much.
+- [40:24.610] It's really nice. Here, take another one.
+- [40:27.000] There you go. Thank you all very much.
+- [40:30.860] Fantastic. Thank you.
+- [40:33.670] (applause)
+- [40:40.970] ♪ (soft music playing) ♪

@@ -1,0 +1,441 @@
+<!-- source: https://www.youtube.com/watch?v=uenmSj0z7Uo -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: uenmSj0z7Uo -->
+<!-- date_published: 2026-05-06T19:07:49+00:00 -->
+<!-- date_accessed: 2026-06-02T02:34:10.053938+00:00 -->
+
+# Transcript: President Trump Delivers Remarks, May 6, 2026
+
+- [00:06.340] The President: You guys ready?
+- [00:07.620] Justin: Yes, sir.
+- [00:08.870] The President: Well, thank you very much.
+- [00:12.120] I'm a big sports fan.
+- [00:15.030] There are no people tougher in sports
+- [00:17.460] than the people behind me. These are the toughest people.
+- [00:21.230] I know them all. I know the football players.
+- [00:24.220] I know just about everybody you can know.
+- [00:26.060] When they come to the Oval Office,
+- [00:29.080] we give out all championships,
+- [00:30.740] baseball, football, basketball, everything.
+- [00:32.620] They're always up here.
+- [00:34.190] We take the champions and these are the great champions.
+- [00:37.420] And as you know, on June 14th, we're having a big fight.
+- [00:42.690] It's never going to happen again.
+- [00:45.120] Never happened before.
+- [00:46.580] And it's all of the best fighters, best four fighters
+- [00:50.650] standing right behind me and all champions.
+- [00:54.370] And it's going to happen right in front of the White House.
+- [00:56.580] Here's a picture.
+- [00:57.800] I think a lot of people haven't seen this yet.
+- [01:00.300] I'll give you that.
+- [01:01.560] I think you'll probably be able to do okay with it.
+- [01:04.640] Unidentified: Wow. The media's going to go crazy.
+- [01:07.000] The President: Connect him. Not bad, right?
+- [01:09.250] Championship belt. Dana White was here last night.
+- [01:11.870] Did you know that he was here last night?
+- [01:13.420] Justin: No.
+- [01:14.650] The President: He loves this guy.
+- [01:15.880] He loves all of them. Here's another one.
+- [01:20.030] This is another. They're going all the way out, all online.
+- [01:24.270] It's all people invited.
+- [01:27.180] Our country is invited to this. It's free.
+- [01:30.620] And on the park right across the street,
+- [01:33.500] they're going to have,
+- [01:34.710] I guess, anywhere from 75 to 100,000 people free.
+- [01:39.740] They're going to set up eight big screens
+- [01:41.740] and they're going to have the fight.
+- [01:43.200] And then out here, we're going to have 4,000 seats
+- [01:46.600] right in front of the front door of the White House.
+- [01:50.070] The hardest ticket I've ever had to.
+- [01:51.920] Unidentified: The best live show on earth.
+- [01:53.770] The President: This will be the greatest show on earth
+- [01:55.580] is at night. That's all lighting and cover.
+- [02:00.610] And I think you get the idea.
+- [02:03.070] So it's going to be June 14th and it's going to be great.
+- [02:08.400] And this is a little different for these political people.
+- [02:12.590] But these are real warriors.
+- [02:16.320] When we talk about warriors, these are warriors.
+- [02:19.760] Cyril Gane. These are all champions.
+- [02:23.320] I don't have to say champions, and most of you know,
+- [02:25.090] many of you know who they are.
+- [02:26.420] Cyril, great honor. Alex Pereira, who's ...
+- [02:32.710] I've seen him knock out a lot of people.
+- [02:35.550] That's what he does. He knocks out people.
+- [02:37.830] Congratulations on an unbelievable career.
+- [02:40.510] Wow. Ilia Topuria, who they say does not get tougher.
+- [02:49.810] So pretty much, I mean, that's it.
+- [02:52.760] Yeah, very special. And a friend of mine,
+- [02:55.310] Justin Gaethje,
+- [02:57.050] who is just a fighter like you've never seen.
+- [03:02.960] You see the kind of pounding he'll take
+- [03:05.320] and then all of a sudden it's over
+- [03:07.250] and the other guy's not in good shape, right?
+- [03:09.380] Justin: It's a crazy game. It is a crazy game.
+- [03:10.790] The President: Not in good shape.
+- [03:12.080] So these are the toughest people.
+- [03:15.110] These are the greatest fighters in the world.
+- [03:16.850] They're all champions.
+- [03:18.440] And they'll be fighting against very tough people also.
+- [03:23.350] But I think you always go in thinking you're going to win.
+- [03:25.220] Justin: Of course.
+- [03:26.460] The President: But they're fighting against ...
+- [03:28.290] They're Olympians. They come from all over the world.
+- [03:31.980] Some come from extreme poverty. Some come from ...
+- [03:35.800] Not too many people come from Fifth Avenue for the most part.
+- [03:38.390] I would say Fifth Avenue's not well covered in the sport.
+- [03:42.420] But it's a special group of people with tremendous heart
+- [03:47.170] and really tremendous talent.
+- [03:48.960] And I really believe you're probably born with a punch
+- [03:52.780] and you're born with an ability to take a punch too.
+- [03:55.010] I was talking to Dana White last night.
+- [03:56.620] He was talking about that.
+- [03:58.600] Some people can take a punch and some people can't.
+- [04:01.770] And in life, it's always good to be able to do that.
+- [04:03.980] And if you guys want to say anything,
+- [04:06.870] I don't want to pick out individual,
+- [04:08.340] but if you want to say anything, you could.
+- [04:09.990] But we're going to see you all here on June 14th.
+- [04:14.080] Justin: Yeah. What an unbelievable honor.
+- [04:15.400] I mean, I'm not sure many know
+- [04:20.230] how big of a part you were to the UFC coming on
+- [04:22.890] and becoming mainstream in the early '90s
+- [04:24.980] when nobody would let us and nobody believed in us.
+- [04:26.960] And they thought we were just absolute animals.
+- [04:29.370] And you gave us a chance to fight in your properties.
+- [04:31.390] The President: Well, they're right about that.
+- [04:32.680] Justin: Well, yeah. Somewhat. Somewhat. We just ...
+- [04:37.520] Yeah, I mean, it's truly an honor.
+- [04:39.100] It's awesome. It's your birthday.
+- [04:40.380] Awesome it's Flag Day.
+- [04:41.920] Wonderful to represent this country.
+- [04:43.880] These guys aren't from this country,
+- [04:45.340] but I'm sure it's an honor for them as well.
+- [04:47.310] But I think we'd be 10 years behind if it wasn't for you.
+- [04:49.930] And so thank you for that.
+- [04:51.180] The President: Well, Justin, it's great being with you.
+- [04:53.510] What he's saying is that they couldn't get ...
+- [04:56.400] Dana says it better than anybody can say.
+- [04:59.110] They couldn't get any arenas because it was so violent
+- [05:03.300] that they couldn't get arenas. I was able to give them,
+- [05:05.990] I guess, the first four or five fights.
+- [05:08.170] And I went and I said, "This sport is unbelievable."
+- [05:11.900] They had some of the greatest fighting I've ever seen
+- [05:14.900] and it's continued on. Now it's really at a new level
+- [05:17.670] because the talent is much greater
+- [05:20.070] than it was even then and much tougher.
+- [05:22.310] These are the best in the world right here.
+- [05:24.720] So I think a lot of the press is going to be there.
+- [05:28.530] And I think this is going to be an event
+- [05:31.280] you're really going to like.
+- [05:32.610] Anybody want to say?
+- [05:33.870] We have all of the great representatives there.
+- [05:36.680] They're making a lot of money. They're making a lot of money.
+- [05:39.580] Look at that guy over there.
+- [05:41.290] Don't fight that one right there.
+- [05:43.460] But do you have anything to say? How about you?
+- [05:45.350] Unidentified: Me?
+- [05:46.550] The President: Manager?
+- [05:49.490] Unidentified: Like Justin said, without President Trump,
+- [05:51.440] probably the UFC would be 20 years behind.
+- [05:54.380] He gave us the jumpstart from the beginning.
+- [05:57.060] And I think this is going to be the greatest sport event
+- [06:01.070] ever created on planet Earth,
+- [06:02.980] as again is going to be the most watched sports event
+- [06:05.320] and granted, there's ...
+- [06:06.540] What an honor to fight on the ground,
+- [06:09.530] the red and white and blue.
+- [06:12.080] I know Justin is only American,
+- [06:14.230] but it's an honor, the guy from France, Spain, Brazil.
+- [06:18.150] But America's the dream.
+- [06:19.900] All these guys living the American dream
+- [06:21.490] and all of it, all of us live in an American dream.
+- [06:24.470] It's an honor to be in Oval Office
+- [06:26.060] and it's an honor to have a president
+- [06:28.990] actually welcome the people, welcome the people.
+- [06:34.140] Most of the president is just too good to do other things,
+- [06:37.290] other people.
+- [06:38.520] But this is the greatest president
+- [06:39.810] of all the time in any country, in any world, in any time.
+- [06:43.220] And thank you, President Trump.
+- [06:44.560] The President: I'll tell you, I like him.
+- [06:46.930] I made a good move by asking him to say that.
+- [06:49.110] That was very good. Thank you.
+- [06:50.400] Unidentified: Yes, sir.
+- [06:51.630] The President: I really do. I appreciate it.
+- [06:52.920] Well, you're one of the greats
+- [06:54.160] and one of the great managers too,
+- [06:57.760] and a very good friend of a very special fighter
+- [07:01.300] that we know, right?
+- [07:02.660] Unidentified: Yes, sir. The President: Khabib.
+- [07:03.870] Unidentified: Yes, Khabib.
+- [07:05.180] The President: Who fought 29 fights.
+- [07:07.920] I think he won 29 fights, right?
+- [07:10.210] Unidentified: Yes, sir.
+- [07:11.490] The President: He had a tough fight with this guy right here.
+- [07:13.320] Justin: I was his 29th.
+- [07:16.640] The President: That was some fight.
+- [07:19.450] So they're going to be going outside. Would you guys,
+- [07:21.550] anybody like to say something, I mean, if you want?
+- [07:23.380] Unidentified: We want to thank you
+- [07:24.630] for giving us this opportunity
+- [07:26.110] to build the biggest event in sports history.
+- [07:28.580] I also want to thank God to give us this beautiful day
+- [07:31.440] and to give us the opportunity to experience
+- [07:34.980] how it feels to be in the Oval Office.
+- [07:37.160] So it's going to be amazing.
+- [07:38.440] And we want to thank you for this very much.
+- [07:40.480] Thank you very much.
+- [07:41.700] And I never thought you would be so kind, honestly.
+- [07:44.990] The President: I have a false image.
+- [07:46.630] Unidentified: And I wanted to give the toughest test to you,
+- [07:50.580] to a friend of you?
+- [07:51.840] The President: To which?
+- [07:53.040] Unidentified: To friend of you. You said he's a friend of you.
+- [07:54.400] The President: Oh yeah.
+- [07:55.620] Unidentified: I wanted to give him the-
+- [07:56.960] The President: You know, that's what I want.
+- [07:59.700] I want to give the hardest test is right.
+- [08:01.680] We're going to give the hardest test.
+- [08:03.380] And actually each one of you are fighting
+- [08:04.990] your hardest test, I think, right?
+- [08:06.230] Unidentified: Yeah.
+- [08:07.430] The President: How do you think you know your opponent
+- [08:08.720] very well, very tough.
+- [08:09.940] Unidentified: I know, a very tough opponent.
+- [08:11.140] The President: Do you feel good?
+- [08:12.340] Unidentified: Very good.
+- [08:13.560] The President: What are your chances of winning?
+- [08:14.880] Unidentified: Me? The President: Yeah.
+- [08:16.170] Unidentified: I have complete faith.
+- [08:17.410] The President: 100%.
+- [08:18.680] Unidentified: 100%. That's why you're here.
+- [08:21.040] The President: And they believe that too.
+- [08:22.290] Would you like to say something?
+- [08:23.580] Unidentified: And I hope he has the same fate.
+- [08:25.110] That's going to make an amazing fight.
+- [08:26.520] The President: It's going to be great.
+- [08:27.740] Yeah. That's right.
+- [08:29.390] Would you like to say something?
+- [08:32.220] Unidentified: (foreign language)
+- [08:39.390] Unidentified: I would like to take the opportunity
+- [08:40.950] to be fighting on the White House.
+- [08:42.200] We know it's a special event
+- [08:43.920] that everybody likes to be present.
+- [08:45.840] It makes me feel special. Thank you.
+- [08:47.180] The President: Thank you very much.
+- [08:48.420] One of the greatest punches in the history of the business.
+- [08:52.020] I just shook his hand. He's a large hand.
+- [08:54.380] That's a powerful hand, I think.
+- [08:57.890] They're very unusual people born with great talent
+- [09:00.440] and then they honed the talent.
+- [09:02.410] I'll save you for last, okay, because ...
+- [09:04.390] Justin: Yes, sir.
+- [09:05.590] The President: He loves his country so much,
+- [09:07.180] but I'll save you for last.
+- [09:08.420] Justin: Yes, sir.
+- [09:09.630] The President: Please, would you like to say something?
+- [09:10.980] Unidentified: Yeah, I just want to say thank you.
+- [09:12.570] It's an honor and I'm really proud.
+- [09:14.380] It's going to be really special, one time in your life,
+- [09:17.560] so I just want to say thank you. Thank you very much.
+- [09:20.050] The President: It's an honor to have you here.
+- [09:21.250] Unidentified: It's an honor to be out here.
+- [09:22.530] The President: And we'll all be there watching him.
+- [09:24.200] There's something special. So we'll all be there watching.
+- [09:28.110] I don't know how the hell you do it,
+- [09:30.280] but they wouldn't have it any other way.
+- [09:32.440] They love the sport. They really love the sport.
+- [09:34.320] They come out of a ring or the most incredible fight
+- [09:37.830] you've ever seen and they say this is the greatest sport.
+- [09:40.870] I can do it. I'd rather sink a three footer personally.
+- [09:44.530] But there's no better thing to watch on this.
+- [09:47.540] And Justin is known as just one of the truly,
+- [09:51.090] obviously talent and everything else,
+- [09:52.670] but he's got more heart and he just has an ability.
+- [09:57.550] They call it a motor.
+- [09:59.580] He's got a motor that doesn't stop
+- [10:01.390] and it all starts right up here.
+- [10:03.530] Justin: Yep, here and here.
+- [10:04.820] And I mean, I learned that growing up to a small town,
+- [10:07.670] Safford, Arizona.
+- [10:09.060] Copper, cattle and cotton, that's what we do down there.
+- [10:11.900] Three generations in the copper mine.
+- [10:14.030] And like you said, none of us come from opportunity or wealth.
+- [10:17.090] And this is one of the truest merit-based systems
+- [10:20.130] in the world, this sport right here.
+- [10:22.220] Everybody has an opportunity and we all get a chance.
+- [10:24.480] And we will get a chance.
+- [10:25.850] And so of course my faith is as strong as his.
+- [10:30.640] I've committed my whole life to this.
+- [10:32.080] And so to have a president
+- [10:34.330] that's willing to go against an upstream
+- [10:36.240] and against the norms, it's truly special.
+- [10:38.310] It's why you got my vote
+- [10:40.550] and it's why we're such a great nation right now
+- [10:42.890] compared to where we were.
+- [10:44.540] The President: Well, we all love you.
+- [10:45.860] He's got tremendous fan base.
+- [10:47.820] Each one of these people, in the sporting world really,
+- [10:52.220] 'cause I think most of the sporting world
+- [10:53.670] is watching the UFC.
+- [10:55.600] But Dana White was here last night.
+- [10:57.070] We were talking about it.
+- [10:58.580] He said they've never had anything like what's happening.
+- [11:01.750] The problem was everybody wanted to fight.
+- [11:03.770] We had so many guys.
+- [11:05.300] They were all saying, "We want to fight at the White House."
+- [11:07.470] Justin: They all said we don't want to
+- [11:08.700] 'cause the optics and then they cried
+- [11:10.320] when they didn't get on it.
+- [11:11.520] The President: That's right. Now they're crying.
+- [11:13.300] Justin: Now they're crying.
+- [11:14.570] The President: It's true. But anyway.
+- [11:15.770] So they're going to go outside.
+- [11:17.250] They're going to have some pictures taken
+- [11:18.560] on the balcony, the Truman balcony.
+- [11:20.170] I think they're going up to Truman
+- [11:22.330] and there's a beautiful balcony on the White House.
+- [11:24.590] And do you have any questions?
+- [11:26.520] Only for the fighters now, I think is ...
+- [11:28.300] I mean, they want to ask about Iran
+- [11:30.010] and a couple of other things.
+- [11:31.320] Unidentified: I can try on Iran.
+- [11:32.570] The President: Go ahead. Go ahead.
+- [11:33.800] Unidentified: I'll bridge this. Here you go.
+- [11:35.070] The President: So I guess that's --
+- [11:36.300] The Press: You're basic. I'll try.
+- [11:37.540] Wait, wait, this will work.
+- [11:38.770] You're facing an opponent right now in Iran
+- [11:40.570] that has refused to submit.
+- [11:43.660] You seem optimistic now that you may be closer to a deal.
+- [11:46.140] What's different about this moment
+- [11:47.880] now than in other moments where a deal has seemed close?
+- [11:50.920] The President: Well, why do you say they refuse to submit?
+- [11:53.120] You don't know that. You don't know what's going on here.
+- [11:54.890] Unidentified: They were firing on US ships a few days ago.
+- [11:56.580] The President: Yeah, a few days ago it's a long time ago,
+- [11:59.530] in the world of war, a few days ago.
+- [12:02.030] No, they want to make a deal badly,
+- [12:04.220] and we'll see if we get there if we get there.
+- [12:05.820] They can't have nuclear weapons. It's very simple.
+- [12:08.280] But what's not to submit?
+- [12:10.480] So they had a Navy with 159 ships
+- [12:12.850] and now every ship is blown to pieces
+- [12:15.340] and lying at the bottom of the water.
+- [12:17.560] They had an Air Force, lots of planes
+- [12:19.030] and they don't have any planes.
+- [12:20.270] They don't have any anti-aircraft.
+- [12:22.580] They don't have any radar left.
+- [12:24.380] Their missiles are mostly decimated.
+- [12:26.350] They have some, they have probably 18, 19%,
+- [12:29.190] but not a lot by comparison to what they had.
+- [12:32.950] And the leaders are all dead. So I think we won.
+- [12:39.180] Now it's only a question of, look,
+- [12:41.550] if we left right now around,
+- [12:43.040] it would take them 20 years to rebuild.
+- [12:45.050] You would call that, we're in good shape, right?
+- [12:47.740] Justin: Fantastic, sir.
+- [12:48.950] The President: We're in good shape.
+- [12:50.440] And now we're doing well.
+- [12:52.500] Now we have to get what we have to get.
+- [12:54.900] If we don't do that, we'll have to go a big step further.
+- [12:57.110] But-
+- [12:58.330] Unidentified: Is that what it's about --
+- [12:59.410] The President: With that being said,
+- [13:00.720] they want to make a deal.
+- [13:02.000] We've had very good talks over the last 24 hours,
+- [13:05.130] and it's very possible that we'll make a deal.
+- [13:06.750] Yeah, please.
+- [13:08.010] Unidentified: Thank you, Mr. President.
+- [13:09.230] It's good to see you.
+- [13:10.490] What are the status of these talks?
+- [13:12.010] They're very good. Just give us some insight
+- [13:14.480] as to where we are with them at this point.
+- [13:15.910] The President: We are in talks and we've had some good talks
+- [13:17.880] before, as you know.
+- [13:19.470] And all of a sudden, the next day, they forgot what happened.
+- [13:25.670] They're proud. These guys are proud.
+- [13:27.690] Nobody more proud than these guys.
+- [13:29.710] Sometimes they fight on pride
+- [13:31.160] because they're injured, they're hurt.
+- [13:32.760] No matter how great you are, you get hit by somebody else
+- [13:35.740] that looks like them, it's very tough.
+- [13:38.500] But they have great pride. These people have great pride.
+- [13:41.830] The others do too. Enemies have great pride.
+- [13:44.730] We went into Venezuela, smart people, great people,
+- [13:49.290] a really strong military. We won it very quickly.
+- [13:52.810] And it's been a great thing for Venezuela.
+- [13:55.710] The people are really happy. They're dancing in the streets
+- [13:58.550] because they have a lot of money coming in
+- [14:00.750] through the big oil companies that are all moving in.
+- [14:03.250] I was with ExxonMobil last night.
+- [14:05.760] The chairman was here and we're talking about Venezuela,
+- [14:09.220] along with a lot of them, Chevron.
+- [14:10.950] They were all here last night.
+- [14:12.290] They all want to go there and elsewhere.
+- [14:15.820] We just hit a new high in the stock market.
+- [14:17.830] The stock market's the highest it's ever been.
+- [14:21.250] And I expected that the market would be down 20, 25%.
+- [14:24.590] I was willing to do that to get rid of a crazy country, crazy.
+- [14:29.080] The people ...
+- [14:30.500] Look, you talk about regime change.
+- [14:33.420] Their first level leaders are dead.
+- [14:35.220] Their second level leaders are dead.
+- [14:37.310] Some of their third level leaders are dead.
+- [14:39.910] I call that regime change.
+- [14:41.920] But I thought we'd be down maybe 20% and we're up.
+- [14:46.150] The stock market's higher now than when we started this war.
+- [14:50.200] And I thought oil prices would go to 200, $250.
+- [14:53.720] It's at $100 now.
+- [14:56.190] And I think you're surprised and I'm surprised.
+- [14:57.960] But even if it went to 200, it would have been worth it.
+- [15:01.150] I understood that.
+- [15:02.430] We had just set a record, 50,000 on the Dow,
+- [15:06.120] 7,000 on the S&P, a record. And I said, "I hate to do this,
+- [15:10.860] but we have to make an excursion down to Iran
+- [15:14.750] because we can't let them have a nuclear weapon."
+- [15:17.500] Look, and this is very simple.
+- [15:20.340] Iran cannot have a nuclear weapon
+- [15:22.740] because as tough as they are, we want to keep them alive.
+- [15:26.370] We want to keep all of you alive.
+- [15:28.440] Iran cannot have a nuclear weapon, and they won't.
+- [15:31.610] And they've agreed to that, among other things. Yep?
+- [15:34.540] Unidentified: Mr. President,
+- [15:35.980] you've had some recent back and forth with Pope Leo.
+- [15:39.060] I understand Secretary of State Marco Rubio
+- [15:41.620] is going to meet with the Pope tomorrow.
+- [15:43.760] What message do you hope he delivers to the Holy Father?
+- [15:46.280] The President: Well, I can tell you this,
+- [15:47.600] that as far as the Pope is concerned,
+- [15:50.580] and it's very simple. Whether I make him happy
+- [15:54.090] or I don't make him happy,
+- [15:56.250] Iran cannot have a nuclear weapon.
+- [16:00.670] And he seemed to be saying that they can,
+- [16:03.430] and I say they cannot because if that happened,
+- [16:07.600] the entire world would be hostage
+- [16:09.630] and we're not going to let that happen.
+- [16:11.360] That's my only message. Okay?
+- [16:13.960] So they're going to go out now
+- [16:15.490] and they're going to have some great pictures taken
+- [16:17.170] and we'll see you guys on June 14th,
+- [16:18.710] but I know in your case, we're going to see a lot more.
+- [16:22.720] We'll see you probably tomorrow.
+- [16:24.020] The Press: Of all the events in the South Lawn,
+- [16:25.880] why this event?
+- [16:27.410] The President: I think it's going to be the biggest event
+- [16:28.920] we've ever had at the White House.
+- [16:30.720] I mean, the White House doesn't really do athletic events
+- [16:33.120] for the most part.
+- [16:34.550] And these are all the greatest champions.
+- [16:36.780] They're the greatest fighters in the world.
+- [16:38.310] You can tell by looking at them.
+- [16:40.050] These are the greatest fighters in the world.
+- [16:41.820] How do you think if you went into heavy training?
+- [16:43.820] Do you think you'd be because-
+- [16:45.220] Unidentified: I think those days are behind me.
+- [16:46.480] The President: It'd be a little tough.
+- [16:48.840] Have a good time, everybody. Thank you.
+- [16:54.840] Never a deadline.
+- [16:57.040] It'll happen, but never a deadline.
+- [16:59.940] Thank you.

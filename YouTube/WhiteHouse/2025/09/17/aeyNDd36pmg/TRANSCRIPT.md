@@ -1,0 +1,284 @@
+<!-- source: https://www.youtube.com/watch?v=aeyNDd36pmg -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: aeyNDd36pmg -->
+<!-- date_published: 2025-09-17T21:56:11+00:00 -->
+<!-- date_accessed: 2026-06-02T01:15:22.618341+00:00 -->
+
+# Transcript: President Trump and the First Lady Participate in a State Banquet
+
+- [00:10.310] King Charles: Mr. President, Mrs. Trump,
+- [00:13.613] it is with great pleasure that my wife and I welcome
+- [00:17.283] you to Windsor Castle on this your second state
+- [00:20.887] visit to the United Kingdom.
+- [00:24.724] This unique and important occasion reflects the
+- [00:28.962] enduring bond between our two great nations,
+- [00:32.966] anchored by the deep friendship between our
+- [00:36.169] people.
+- [00:37.404] This relationship, which with good reason, we and
+- [00:42.075] our predecessors have long called special, has made
+- [00:46.579] us safer and stronger through the generations.
+- [00:53.052] Our people have fought and died together for the
+- [00:55.755] values we hold dear.
+- [00:59.125] We have innovated, traded and created together,
+- [01:04.030] fueling our economies and cultures through myriad
+- [01:08.401] forms of exchange.
+- [01:11.871] We have celebrated together, mourned
+- [01:14.541] together, and stood together in the best and
+- [01:19.379] worst of times.
+- [01:22.882] Mr. President, as we approach the 250th
+- [01:26.085] anniversary of the Declaration of
+- [01:28.688] Independence next year, it is remarkable to think
+- [01:33.860] just how far we have come.
+- [01:35.428] I cannot help but wonder what our forebears from
+- [01:40.433] 1776 would make of this friendship today.
+- [01:46.506] The rebel commander and pioneering first President
+- [01:49.976] George Washington famously vowed never to set foot on
+- [01:54.414] British soil.
+- [01:56.516] And my five-times great-grandfather, King
+- [01:59.185] George III, for his part, did not spare his words
+- [02:03.990] when he spoke of the revolutionary leaders.
+- [02:08.328] Today, however, we celebrate a relationship
+- [02:11.965] between our two countries that surely neither
+- [02:15.368] Washington nor King George III could possibly have
+- [02:19.172] imagined.
+- [02:21.608] The ocean may still divide us, but in so many other
+- [02:25.645] ways, we are now the closest of kin.
+- [02:30.950] Mr. President, you have spoken of your pride in
+- [02:33.987] your British roots.
+- [02:35.955] In fact, not only have you set foot on British soil
+- [02:39.926] twice in the last two months alone, but I
+- [02:44.197] understand that British soil makes for rather
+- [02:48.401] splendid golf courses.
+- [02:53.573] Now, for my part, I have always admired the
+- [02:56.809] ingenuity of the American people and the principles
+- [03:01.014] of freedom, which your great democracy has
+- [03:03.850] represented since its inception.
+- [03:08.688] Throughout my life, from the very first visit to
+- [03:12.292] the United States in 1970 and over 20 visits since
+- [03:17.897] that time, I have cherished the close ties
+- [03:22.535] between the British and American people.
+- [03:27.073] In fact, had the media succeeded in the 1970s in
+- [03:33.212] their own attempt at deepening the special
+- [03:35.748] relationship, I myself might have been married
+- [03:39.552] off within the Nixon family.
+- [03:45.992] Mr. President from York to New York, from Birmingham,
+- [03:50.263] England to Birmingham, Alabama, we are united by
+- [03:55.234] a common language and shared heritage.
+- [03:59.572] The many thousands of people from each of our
+- [04:02.675] countries who have made the other their home have
+- [04:07.146] enriched our societies immeasurably.
+- [04:10.516] The fact that gives me the greatest pride.
+- [04:14.821] Our cultural connections too continue to flourish
+- [04:18.524] with our actors, musicians, writers, and
+- [04:22.128] television presenters prospering in the hearts
+- [04:26.265] of transatlantic audiences.
+- [04:30.770] Today, our alliance spans every field of endeavor
+- [04:35.775] and shows vast potential for growth.
+- [04:39.112] The United Kingdom was your partner in the first
+- [04:43.383] trade deal of your administration,
+- [04:46.119] Mr. President, bringing jobs and growth to both
+- [04:49.489] our countries.
+- [04:51.424] And no doubt we can go even further as we build
+- [04:54.994] this new era of our partnership.
+- [04:59.899] Our two nations have an exceptional legacy of
+- [05:04.003] shared discovery.
+- [05:06.472] Together we laid the foundations of nuclear
+- [05:09.542] science, mapped the human genome, and built the
+- [05:15.281] internet upon which all contemporary commerce,
+- [05:19.752] communication and defense is based.
+- [05:24.357] Together, our scientists and engineers are shaping
+- [05:27.260] the world of tomorrow, not least, with new
+- [05:31.164] partnership agreements on technology and the
+- [05:35.134] prosperity that stands to bring.
+- [05:40.773] Our countries have the closest defense, security,
+- [05:44.844] and intelligence relationship ever known.
+- [05:49.048] In two world wars, we fought together to defeat
+- [05:53.920] the forces of tyranny.
+- [05:54.987] Today, as tyranny once again threatens Europe, we
+- [06:02.195] and our allies stand together in support of
+- [06:05.631] Ukraine to deter aggression and secure
+- [06:09.736] peace.
+- [06:12.071] And our AUKUS submarine partnership with Australia
+- [06:15.508] sets the benchmark for innovative and vital
+- [06:18.578] collaboration.
+- [06:23.282] The successes of the British Red Coats and of
+- [06:26.753] George Washington's continental army today
+- [06:29.856] stand shoulder to shoulder, brothers and
+- [06:32.492] sisters in arms protecting the freedoms we both
+- [06:36.129] cherish.
+- [06:37.997] Our countries are working together in support of
+- [06:42.068] crucial diplomatic efforts, not least of
+- [06:45.104] which Mr. President is your own personal
+- [06:48.741] commitment to finding solutions to some of the
+- [06:52.678] world's most intractable conflicts in order to
+- [06:56.182] secure peace.
+- [06:59.819] In striving for a better world, we also have a
+- [07:04.624] precious opportunity to safeguard and to restore
+- [07:09.262] the wonders and beauty of nature for the generations
+- [07:13.199] who follow us.
+- [07:15.468] We share the ambition and determination to preserve
+- [07:19.772] our majestic lands and waters, above all, to
+- [07:25.044] ensure that we have clean water, clean air, and
+- [07:27.914] clean food.
+- [07:31.017] Our legacy for the next 250 years and beyond is to
+- [07:35.655] ensure that our children, grandchildren, and those
+- [07:39.392] who come after them, can experience the awe and
+- [07:45.698] magnificence of the natural treasures found in
+- [07:48.701] the countryside, on the coasts, in the seas, and
+- [07:53.439] in the national parks established by your
+- [07:56.409] predecessors and mine.
+- [07:57.777] Mr. President, Mrs. Trump, the bond between our two
+- [08:05.117] nations is indeed a remarkable one.
+- [08:08.921] Forged in the fire of conflict, it has been
+- [08:12.225] fortified through our shared endeavors and
+- [08:15.494] burnished by the deep affection between our
+- [08:18.764] people.
+- [08:20.700] Tested time and again, it has borne the weight of
+- [08:25.671] our common purpose and raised our ambition for a
+- [08:29.475] better world.
+- [08:32.378] So in renewing our bond tonight, we do so with
+- [08:36.148] unshakable trust in our friendship and in our
+- [08:40.219] shared commitment to independence and liberty.
+- [08:45.591] Therefore, as we celebrate this unparalleled
+- [08:48.261] partnership, allow me to propose a toast to
+- [08:52.598] President Trump and the First Lady, and to the
+- [08:56.168] health, prosperity and happiness of the people of
+- [09:00.106] the United States of America.
+- [09:05.678] ♪ ("The Star Spangled Banner") ♪
+- [10:37.837] (applause)
+- [10:56.255] The President: Your Majesty, Melania and I
+- [10:59.325] are deeply grateful to you and Queen Camilla for your
+- [11:03.462] extraordinary graciousness.
+- [11:07.166] And to William and Kate, thank you so much.
+- [11:09.435] It's been so great being with you today.
+- [11:10.703] Thank you very much.
+- [11:11.404] Appreciate it.
+- [11:12.738] It's a singular privilege to be the first American
+- [11:16.776] president welcomed here.
+- [11:18.077] And if you think about it, it's a lot of presidents,
+- [11:23.149] and this was the second state visit.
+- [11:27.119] And that's the first, and maybe that's going to be
+- [11:31.357] the last time.
+- [11:32.258] I hope it is actually.
+- [11:35.127] But this is truly one of the highest honors of my
+- [11:37.329] life.
+- [11:38.264] Such respect for you and such respect for your
+- [11:40.399] country.
+- [11:41.367] For many decades, His Majesty The King, has
+- [11:44.603] epitomized the fortitude, nobility, and the spirit
+- [11:48.474] of the British monarchy and the British people.
+- [11:52.011] He's dedicated himself to preserving the glory and
+- [11:54.947] unique character of this kingdom, restoring life to
+- [11:58.250] the rivers and streams, supporting the works of
+- [12:01.554] its artists and composers, planting trees and gardens
+- [12:05.257] in its countryside.
+- [12:06.358] And I just visited one of the most beautiful I've
+- [12:09.562] ever seen that you just completed.
+- [12:11.864] And protecting the architectural integrity of
+- [12:14.433] cities, villages, and towns.
+- [12:16.869] He has uplifted the poor, cared for rural farmers
+- [12:21.173] and tended to wounded veterans like nobody else.
+- [12:25.711] I'll tell you that I just stood in line and shook
+- [12:28.147] about 150 hands, and the King knew every single
+- [12:32.885] person and every single company.
+- [12:34.854] And some of them had bad names, like XYZ-Q3, and he
+- [12:39.959] knew every one of them, or at least I think he did
+- [12:43.762] because nobody was complaining.
+- [12:45.798] I was very impressed with that.
+- [12:48.567] But I just want to say that His Majesty has also
+- [12:51.737] raised a remarkable son, in his Royal Highness
+- [12:56.642] Prince of Wales.
+- [12:58.878] Really amazing.
+- [13:00.446] We've gotten to know you and I think you're going
+- [13:02.281] to have an unbelievable success and future.
+- [13:05.684] Melania and I are delighted to visit again
+- [13:08.420] with Prince William and to see her Royal Highness
+- [13:11.824] Princess Catherine, so radiant and so healthy, so
+- [13:15.194] beautiful.
+- [13:15.861] It's really a great honor.
+- [13:17.396] Thank you.
+- [13:18.797] Many years ago, His Majesty opened his
+- [13:21.200] archives to a biographer.
+- [13:23.035] Among the documents was a letter from 1993 in which
+- [13:28.774] he described the patriotism and guided as
+- [13:31.810] many projects.
+- [13:32.845] He wrote that he was, quote, "Entirely motivated
+- [13:36.615] by a desperate desire to put the great back into
+- [13:40.786] Great Britain." In the finest tradition of
+- [13:44.323] British sovereigns, he has given his whole heart,
+- [13:48.194] everything he's got, to those parts of Britain
+- [13:50.863] that are beyond the realm of mere legislation...
+- [13:56.502] it's not easy...
+- [13:58.237] but which define its essence and its virtue,
+- [14:00.539] its harmony and its soul.
+- [14:01.907] It's an amazing calling, and there's nobody that's
+- [14:07.246] answered that calling like you have.
+- [14:11.417] And fifth of all, if humanity speaks, writes,
+- [14:14.820] thinks, and prays in the language born on these
+- [14:17.923] isles, and perfected in the pages of Shakespeare
+- [14:21.527] and Dickens and Tolkien and Lewis, Orwell and
+- [14:25.064] Kipling.
+- [14:26.732] Incredible people, unbelievable people like
+- [14:31.036] we have rarely seen before, probably won't see
+- [14:35.474] again.
+- [14:36.575] The lionhearted people of this kingdom defeated
+- [14:39.011] Napoleon, unleashed the Industrial Revolution,
+- [14:42.014] destroyed slavery and defended civilization in
+- [14:45.317] the darkest days of fascism and communism.
+- [14:49.455] The British gave the world the Magna Carta, the
+- [14:51.857] modern parliament and Francis Bacon's scientific
+- [14:56.061] method.
+- [14:57.129] They gave us the works of Locke, Hobbes, Smith and
+- [15:00.966] Burke, Newton and Blackstone.
+- [15:03.502] The legal, intellectual, cultural and political
+- [15:06.105] traditions of this kingdom have been among the
+- [15:09.108] highest achievements of mankind.
+- [15:11.377] There's really never been anything like it.
+- [15:15.147] The British Empire laid the foundations of law,
+- [15:17.683] liberty, free speech and individual rights
+- [15:20.119] virtually everywhere the Union Jack has ever flown,
+- [15:23.889] including a place called America.
+- [15:28.394] You know that place very well, don't you?
+- [15:31.463] His Majesty spoke eloquently about the bond
+- [15:34.833] which inspired Sir Winston Churchill...
+- [15:37.002] And the bust is in the Oval Office right now, the
+- [15:40.539] beautiful bust of Winston Churchill...
+- [15:42.875] to coin the phrase special relationship.
+- [15:46.478] But seen from American eyes, the word special
+- [15:49.715] does not begin to do it justice.
+- [15:52.751] We're joined by history and fate, by love and
+- [15:55.954] language, and by transcendent ties of
+- [15:59.024] culture, tradition, ancestry and destiny.
+- [16:02.628] We're like two notes in one chord or two verses of
+- [16:07.766] the same poem, each beautiful on its own, but
+- [16:12.538] really meant to be played together.
+- [16:15.407] The bond of kinship and identity between America
+- [16:18.310] and the United Kingdom is priceless and eternal.
+- [16:22.081] It's irreplaceable and unbreakable.
+- [16:24.149] And we are, as a country, as you know, doing
+- [16:28.821] unbelievably well.
+- [16:30.422] We had a very sick country one year ago, and today I
+- [16:35.794] believe we're the hottest country anywhere in the
+- [16:38.263] world.
+- [16:39.431] In fact, nobody's even questioning it.
+- [16:41.266] But we owe so much of that to you and the footing
+- [16:44.403] that you gave us when we started.
+- [16:46.839] Together, we've done more good for humanity than any
+- [16:49.975] two countries in all of history.
+- [16:52.444] Together, we must defend the exceptional heritage
+- [16:55.481] that makes us who we are.
+- [16:57.649] And we must continue to stand for the values and
+- [17:00.886] the people of the English-speaking world.
+- [17:04.590] And we do indeed stand for that.
+- [17:06.992] On behalf of all Americans, I offer a toast
+- [17:09.461] to one of the great friendships, to two great
+- [17:13.432] countries, and to His Majesty King Charles III,
+- [17:18.604] a very, very special man, and also a very, very
+- [17:23.008] special Queen.
+- [17:23.876] Thank you very much.
+- [17:25.244] Thank you.
+- [17:25.911] Thank you very much.
+- [17:26.779] It's a great honor to be with you.
+- [17:32.251] ♪ ("The Star Spangled Banner") ♪
+- [18:22.468] (applause)

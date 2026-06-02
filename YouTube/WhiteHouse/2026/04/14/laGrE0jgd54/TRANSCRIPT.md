@@ -1,0 +1,1531 @@
+<!-- source: https://www.youtube.com/watch?v=laGrE0jgd54 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: laGrE0jgd54 -->
+<!-- date_published: 2026-04-14T22:58:33+00:00 -->
+<!-- date_accessed: 2026-06-02T02:35:12.840214+00:00 -->
+
+# Transcript: Vice President JD Vance Delivers Remarks at a TPUSA Tour Event at the University of Georgia
+
+- [00:00.000] The Vice President: What’s up, man?
+- [00:01.220] Andrew Kolvet: Vice President, good to see you.
+- [00:03.830] The Vice President: Thank you all.
+- [00:05.120] What a welcome.
+- [00:08.250] Andrew Kolvet: Hello Athens. Yeah.
+- [00:11.790] (cheers)
+- [00:17.650] Andrew Kolvet: I think that's their thing.
+- [00:18.900] I like it.
+- [00:20.280] The Vice President: That is definitely their thing.
+- [00:21.510] So I've been to two SEC schools with Turning Point USA,
+- [00:24.530] and my Ohio State brethren are ashamed of me
+- [00:27.620] because I've given you guys way more love
+- [00:29.760] than my own alma mater,
+- [00:31.050] but it's pretty good to be an SEC country,
+- [00:33.090] I have to say. It's great to be here.
+- [00:34.980] (cheers)
+- [00:36.260] Andrew Kolvet: We can help fix that.
+- [00:38.670] We can work on that. So for those of you wondering
+- [00:42.680] why I don't have really flowing long blonde hair right now,
+- [00:48.140] so I'm going to address it right at the front.
+- [00:50.780] Mr. Vice President, I'm on stage here
+- [00:52.710] instead of our friend, Erika Kirk
+- [00:56.440] because unfortunately she has received
+- [00:58.460] some very serious threats in her direction,
+- [01:02.750] which is terrible.
+- [01:04.540] It's a terrible reflection on the state of reality
+- [01:06.690] and the state of the country,
+- [01:07.930] but it underscores a larger point
+- [01:11.010] that she has received a lot of attacks
+- [01:16.540] from surprising places, perhaps.
+- [01:20.570] Tell us what you think about that and some of the people
+- [01:22.730] that have made part-time jobs out of attacking Erika,
+- [01:26.160] and this is the net result.
+- [01:27.390] The Vice President: Sure.
+- [01:28.670] Well, first of all, I love Erika,
+- [01:29.960] and I know that she did get some threats.
+- [01:31.870] And about two hours ago, as you know,
+- [01:34.380] Andrew, I was a little worried
+- [01:35.860] that we were going to have to cancel the event
+- [01:37.550] because Erika was not going to come
+- [01:39.460] and she was very worried about it.
+- [01:40.950] And I talked to the Secret Service
+- [01:42.290] and obviously these guys do a very good job.
+- [01:44.470] And I said, "You know what? Let's let Erika
+- [01:47.410] do what she needs to do for herself and her family.
+- [01:50.020] I'm sure Andrew will fill in and let's go
+- [01:52.540] and make this an amazing event
+- [01:53.890] with the Georgia Bulldogs in Athens, Georgia."
+- [01:56.070] So absolutely we're going to do this thing.
+- [02:02.350] But look, in so many ways, when did Charlie die?
+- [02:07.090] It was mid-September, I believe.
+- [02:09.080] Andrew Kolvet: September 10th.
+- [02:10.690] The Vice President: That's right,
+- [02:11.900] it was the day right before September 11th.
+- [02:14.320] And in so many ways, the past six or so months
+- [02:16.900] have been two separate living hells for Erika Kirk.
+- [02:19.970] And the first is, of course, that she lost her husband,
+- [02:22.740] she lost the father of her children.
+- [02:24.990] And I'll never forget this because,
+- [02:27.850] frankly, I think a lot about it
+- [02:29.140] because my wife is now pregnant with our fourth baby,
+- [02:32.340] is when we went and picked up -- thank you.
+- [02:37.630] But when we went and picked up Charlie's body in Utah,
+- [02:39.850] and, of course, you were there with us,
+- [02:41.580] and I met Erika and I met the family.
+- [02:45.480] I met Charlie's, his parents and his little sister.
+- [02:48.680] And I just think about that moment
+- [02:51.750] and where she was so broken.
+- [02:54.570] And any of you know who anybody who's grieved before
+- [02:57.270] is you go from just crestfallen and sad
+- [03:02.520] and then you want to remember the person that you just lost
+- [03:06.100] and there's just this constant flood of emotions.
+- [03:08.950] At one moment you're laughing about something
+- [03:10.670] they said two years ago. In another moment you're sobbing
+- [03:13.200] because they're not there anymore.
+- [03:15.020] And I thought about that moment a lot because Erika told me,
+- [03:17.490] and that was the first time she'd ever told me this,
+- [03:21.630] and I guess I thought about it a lot in the context of our own,
+- [03:25.870] my wife's pregnancy, she said,
+- [03:28.090] "I really wish that we had had more babies together."
+- [03:31.170] And that hit me like, "It's just it. He's gone."
+- [03:35.790] That was one of the moments where I realized
+- [03:38.190] Charlie's not coming back here.
+- [03:40.260] And you have this mom who's really sad about the fact
+- [03:43.690] that her two little kids may never have memories.
+- [03:46.500] You think about as a father,
+- [03:47.980] I know most of you out there are too young to have kids,
+- [03:51.150] but one of the things that you think about as a father is,
+- [03:55.470] "I want my kids to remember this moment.
+- [03:57.780] I want my six-year-old
+- [03:59.140] to remember when I took him to the zoo or,
+- [04:00.940] my six-year-old son was just baptized on Easter Sunday
+- [04:03.970] and I want him to remember that moment with me."
+- [04:07.060] Thank you.
+- [04:10.880] But so Erika's struggling with this
+- [04:13.610] and, of course, that's terrible, unspeakable.
+- [04:16.150] Most of us cannot even put ourselves in her shoes
+- [04:18.630] while at the same time, she's trying to make sure
+- [04:21.660] that Charlie's legacy doesn't die.
+- [04:23.990] And in that context, everybody is attacking her over everything
+- [04:28.120] and they're lying about her.
+- [04:29.420] And it's one of the most disgraceful things
+- [04:31.390] that I've ever seen in public life,
+- [04:33.730] and I've seen a lot of crazy stuff in my life
+- [04:36.910] as a political leader.
+- [04:38.130] And I will tell you that the people who tell you,
+- [04:40.760] I was there with her, I was holding her hand,
+- [04:43.430] my wife was hugging her
+- [04:45.180] while we loaded Charlie's body on to Air Force Two
+- [04:49.210] and said the Lord's prayer, the people telling you
+- [04:52.520] that Erika wasn't grieving her husband are full of shit.
+- [04:56.250] And we need to be honest about that fact.
+- [05:02.840] Excuse my language. My wife says I got to work on my language.
+- [05:05.610] She's been telling me that for 12 years
+- [05:07.360] and it still hasn't taken.
+- [05:08.910] But the thing is, look, when you become a public figure,
+- [05:13.190] the natural thing,
+- [05:14.460] and I've talked to Erika about this privately,
+- [05:16.600] is a ton of crazy people say a ton of things about you
+- [05:19.380] that simply aren't true.
+- [05:21.140] But the thing that makes it so egregious with Erika
+- [05:24.940] is that she's a grieving person
+- [05:28.370] who's trying to carry on her husband's legacy.
+- [05:30.500] And look, we all do things that are wrong.
+- [05:32.610] If you want to criticize Turning Point USA
+- [05:35.900] for not taking this position
+- [05:37.280] or having this political disagreement,
+- [05:38.930] or maybe it should do this or that, that's all above board.
+- [05:42.190] But to say that Erika Kirk
+- [05:44.840] wasn't grieving her husband on that day,
+- [05:47.200] to say that Erika Kirk was somehow complicit in it
+- [05:50.110] is so preposterous and so disgusting.
+- [05:53.300] And it's one of the things that has broken, I think,
+- [05:56.310] the American public conversation over the last six months.
+- [05:58.690] I mean, Andrew, we could talk about this for a long time.
+- [06:03.130] Charlie's absence, I felt it so many times
+- [06:05.490] in so many different ways.
+- [06:06.740] There have been so many times where I wanted to call Charlie
+- [06:09.380] and say, "Man, you've got to call this person,"
+- [06:11.900] or, "Man, you've got to put this event together
+- [06:13.740] so we can help this candidate."
+- [06:15.320] Or just to bounce ideas off of as a friend.
+- [06:18.110] There have been so many ways in which I felt that void,
+- [06:20.960] but one of the ways in which I felt that void
+- [06:23.460] is that it's like the response to Charlie Kirk dying.
+- [06:29.280] The response to Charlie Kirk getting assassinated
+- [06:32.520] by a left wing furry lover
+- [06:36.070] is the response should have been,
+- [06:38.250] "Let's go after left wing violence and terrorism.
+- [06:40.740] Let's defund the networks
+- [06:42.200] of left wing violence and terrorism."
+- [06:43.640] That's what we've been doing in Washington DC
+- [06:46.020] and that's what we've been fighting for every single day.
+- [06:48.750] Savannah Hernandez, of course,
+- [06:50.290] was assaulted in Minnesota a couple of days ago.
+- [06:52.720] I talked to Kash Patel on the way down here and I said,
+- [06:55.040] "I assume that we're doing something here."
+- [06:56.880] And he said, "Yes, we've had multiple agents on the ground.
+- [06:59.090] We've already talked to Savannah.
+- [07:00.740] We're going to use the video
+- [07:01.980] to try to go after the people who assaulted her
+- [07:04.690] and then try to defund the networks
+- [07:06.580] that fund those radicals
+- [07:07.860] who are going around assaulting activists."
+- [07:09.960] That's what we should be doing.
+- [07:17.570] And I know that politics is hard and I know that it's challenging
+- [07:20.530] and I know that things aren't always easy
+- [07:22.150] and we're going to have disagreements
+- [07:23.360] even within our coalition.
+- [07:25.140] But if you're going after Erika Kirk
+- [07:28.370] and not the people who are trying to destroy
+- [07:30.660] the United States of America,
+- [07:32.210] you're part of the problem, not part of the solution.
+- [07:34.510] Andrew Kolvet: Yeah, amen.
+- [07:40.120] I think that's really well said, Mr. Vice President.
+- [07:42.570] And I always try and remember
+- [07:44.640] that Erika has to live with this constant reality
+- [07:47.910] that her kids are one parent away from being orphans.
+- [07:51.700] And so we take that extremely seriously.
+- [07:53.530] And as you mentioned, what happened with Savannah,
+- [07:56.540] and I think it's just important that we remember
+- [07:58.590] that we're dealing with humans.
+- [08:00.010] Andrew Kolvet These are human beings.
+- [08:03.810] The Vice President: Yeah, exactly.
+- [08:05.610] And I've heard some people say,
+- [08:06.830] "Well, Erika was smiling two days after Charlie Kirk died,"
+- [08:11.020] or something like that.
+- [08:12.270] And it's like most of us in this room
+- [08:15.900] have grieved somebody that we loved.
+- [08:18.820] Maybe hopefully not a spouse
+- [08:20.690] who dies in the prime of their life,
+- [08:22.250] but when you deal with somebody who's grieving,
+- [08:24.520] it's always this weird combination of emotions.
+- [08:27.790] It's intense sadness, intense affection.
+- [08:32.200] You sort of love that person in that moment
+- [08:34.780] maybe more than you ever have because you feel their absence.
+- [08:38.240] You think about all the happy moments that you had
+- [08:40.460] and you can't help but smile,
+- [08:41.880] and then you remember they're not there
+- [08:43.340] and you can't help but sob. That's what grief is like.
+- [08:47.170] And so again, if your instinct is to go
+- [08:50.020] after not the left wing radicals who are assaulting Savannah
+- [08:54.090] or not the people who shot Charlie Kirk,
+- [08:56.460] but if your instinct is to go after a young mother
+- [09:00.030] because she's grieving in a way that you find wrong,
+- [09:04.810] well, why don't you stay in your lane and mind your own business?
+- [09:06.920] Andrew Kolvet: Yeah, amen.
+- [09:08.180] The Vice President: Grief is complicated.
+- [09:13.820] So there's another angle of this, Andrew,
+- [09:16.450] which is just so absurd,
+- [09:17.740] which is that people will say that Erika,
+- [09:23.990] she's been doing this or she's been doing that
+- [09:26.040] and I would be doing something different.
+- [09:27.410] And it's like, first of all, that's fine.
+- [09:30.650] If you want to criticize somebody
+- [09:32.080] because you have a disagreement,
+- [09:33.390] disagree with my politics, disagree with something
+- [09:35.340] that Erika or Andrew say on the Turning Point podcast,
+- [09:39.990] but this desire to go after her
+- [09:43.090] for the way she's grieving her husband,
+- [09:45.360] that's the most preposterous thing
+- [09:47.330] I've seen in a very long time,
+- [09:48.740] and I've seen a lot of crazy stuff in politics.
+- [09:50.710] Andrew Kolvet: Amen.
+- [09:51.980] Thank you for saying that, Mr. Vice President.
+- [09:55.340] So I think this segues very well into our next question here.
+- [09:59.660] You are a practicing Catholic. Despite your language,
+- [10:04.090] you're attempting to be a faithful Catholic.
+- [10:05.930] The Vice President: That's right. That's right.
+- [10:09.020] Andrew Kolvet: I think it was well-placed if I may say.
+- [10:12.440] I'm sure you've seen that the Vatican and the Pope
+- [10:15.820] and the President have been in the news lately.
+- [10:19.300] So as a Catholic,
+- [10:20.930] what does it feel like to be in the middle of that?
+- [10:24.220] The Vice President: I thought I was getting easy questions.
+- [10:25.800] This is kind of a tough question here.
+- [10:27.000] Andrew Kolvet: Nope. No easy ones in.
+- [10:28.400] The Vice President: So here's the thing about this.
+- [10:29.930] So first of all, you will sometimes hear people say,
+- [10:33.470] "Well, the Vatican, the church,
+- [10:37.040] whether it's the Protestant church,
+- [10:38.520] the Catholic Church, they should preach the gospel,
+- [10:42.550] they should ignore public policy."
+- [10:44.370] I actually don't agree with that.
+- [10:46.160] I actually think that it's a good thing
+- [10:47.770] when Christian leaders,
+- [10:48.970] whether they're Catholic or Protestant,
+- [10:50.710] part of preaching the gospel is talking about
+- [10:53.010] how the gospel applies to the issues of the day.
+- [10:55.870] So I've never been one of these people who say
+- [10:58.650] that you should never have Christian leadership
+- [11:01.430] not talking about politics, or frankly, political leaders
+- [11:04.930] not talking about their Christian faith.
+- [11:06.910] But I do think that we have to remember
+- [11:09.420] that each of us has our own role.
+- [11:12.850] I'm the Vice President of the United States.
+- [11:15.050] The fundamental way I understand my role
+- [11:17.130] is that I'm trying to take the lessons,
+- [11:19.660] the moral truths that are rooted in Christianity,
+- [11:23.400] and I'm trying to apply them to a whole host
+- [11:25.430] of complicated real world scenarios.
+- [11:29.570] Thank you.
+- [11:34.230] So my job is to apply moral truth
+- [11:36.060] to try to do the best thing for the American people.
+- [11:38.010] That's my job.
+- [11:39.260] And that's the President of the United States' job.
+- [11:40.810] And of course, he's the person who leads our administration.
+- [11:43.770] The Pope's job is to preach the gospel.
+- [11:46.310] And again, I think that sometimes in the context,
+- [11:49.460] it doesn't bother me even when I disagree with him.
+- [11:52.330] And I have a lot of respect for the Pope.
+- [11:53.890] I like him. I admire him.
+- [11:55.700] I've gotten to know him a little bit.
+- [11:58.220] It doesn't bother me when he speaks on issues of the day,
+- [12:01.510] frankly, even when I disagree
+- [12:03.220] with how he's applying a particular principle.
+- [12:05.030] So the most obvious example is it has frustrated me
+- [12:09.670] that some of the Catholic clergy have attacked mercilessly
+- [12:14.170] the Trump administration on immigration.
+- [12:17.110] It is a constant idea that somehow,
+- [12:19.630] everything that the Trump administration does
+- [12:22.060] when it comes to securing our borders is inhumane.
+- [12:25.230] And my constant response to that is,
+- [12:28.360] how is it humane to allow drug traffickers and sex traffickers
+- [12:32.040] to bring little kids across the southern border?
+- [12:33.680] Andrew Kolvet: Amen.
+- [12:34.890] The Vice President: How is that humane?
+- [12:41.150] But again, I'd almost rather have the conversation.
+- [12:44.370] So I kind of like, even when there's disagreement,
+- [12:47.380] I like it when the Pope comments on questions of immigration.
+- [12:50.350] I like it when the Pope talks about abortion.
+- [12:52.820] I like it when the Pope talks about matters of war and peace
+- [12:56.340] because I think that at the very least it invites a conversation.
+- [12:59.780] So I think some people,
+- [13:01.230] their reaction to this is to say,
+- [13:03.240] "Well, he shouldn't have said that."
+- [13:05.380] And look, there are certainly things that the Pope
+- [13:06.980] has said in the last few months that I disagree with.
+- [13:09.760] Let me just take one very concrete example
+- [13:12.810] related to this conflict in Iran.
+- [13:15.890] So the Pope said something where he said,
+- [13:18.800] and I'm going to try to remember the exact quote,
+- [13:21.370] but he said that,
+- [13:22.650] "God is never on the side of those who wield the sword.
+- [13:26.190] God is never on the side of those who wield the sword."
+- [13:28.680] I'm pretty sure that he said that exact statement.
+- [13:31.720] Now, on the one hand, again,
+- [13:33.870] I like that the Pope is an advocate for peace.
+- [13:36.910] I think that's certainly one of his roles.
+- [13:39.140] On the other hand, how can you say
+- [13:41.420] that God is never on the side of those who wield the sword?
+- [13:44.830] Was God on the side of the Americans
+- [13:47.220] who liberated France from the Nazis?
+- [13:50.430] Was God on the side of the Americans
+- [13:52.240] who liberated Holocaust camps
+- [13:54.290] and liberated those innocent people
+- [13:56.320] from those who had survived the Holocaust?
+- [14:02.230] I certainly think the answer is yes.
+- [14:04.200] And I agree. Jesus Christ does not, I agree.
+- [14:06.500] Jesus Christ certainly does not support genocide,
+- [14:08.840] whoever yelled that out from the dark.
+- [14:10.770] He certainly does not. I think that's pretty easy.
+- [14:14.150] I think that's a pretty easy principle.
+- [14:15.790] (Audience member calls out, inaudibly, in regard to
+- [14:17.850] genocide.)
+- [14:19.150] Okay. So here's a guy, let me just say this.
+- [14:22.440] This is a guy –
+- [14:23.710] No, no, no, no, no, no, no, no, no, no, no.
+- [14:26.450] First of all, random dude who's shouting,
+- [14:28.610] can I finish my point
+- [14:29.880] and then I'll respond to what you just shouted?
+- [14:31.500] Is that okay? Okay, great.
+- [14:32.760] Andrew Kolvet: Yeah.
+- [14:34.050] Can we give him one second to answer this?
+- [14:35.600] The Vice President: So let me
+- [14:36.810] just finish this question on the Pope
+- [14:38.150] and then I want to respond to what this guy said.
+- [14:40.190] So number one, when the Pope says
+- [14:45.120] that God is never on the side of those who will the sword,
+- [14:48.400] there is more than a thousand-year tradition
+- [14:51.910] of just war theory. Okay?
+- [14:54.410] Now we can of course have disagreements
+- [14:55.980] about whether this or that conflict is just,
+- [14:58.620] but I think that it's important in the same way
+- [15:00.380] that it's important for the Vice President of the United States
+- [15:02.350] to be careful when I talk about matters of public policy.
+- [15:05.820] I think it's very, very important for the Pope
+- [15:08.450] to be careful when he talks about matters of theology.
+- [15:11.270] And I think that one of these issues here
+- [15:13.640] is that there has been, again, hey, random dude screaming,
+- [15:17.900] I told you I'd respond to your point.
+- [15:19.290] I just want to respond to this question first.
+- [15:22.020] But I think one of the issues here
+- [15:24.040] is that if you're going to opine on matters of theology,
+- [15:27.700] you've got to be careful.
+- [15:28.910] You've got to make sure it's anchored in the truth.
+- [15:30.940] And that's one of the things that I try to do,
+- [15:33.040] and it's certainly something I would expect from the clergy,
+- [15:35.150] whether they're Catholic or Protestant.
+- [15:36.580] Now, to respond to this guy here,
+- [15:40.630] I believe he said,
+- [15:41.850] "The administration supports a genocide in Gaza."
+- [15:45.720] And here's my response to that.
+- [15:47.690] When we came in, the humanitarian situation in Gaza
+- [15:51.980] was an absolute catastrophe. You know who's the person
+- [15:55.290] who got a peace agreement in Gaza?
+- [15:57.810] Donald J. Trump.
+- [15:59.070] So if you want to complain about what happened in Gaza,
+- [16:07.210] so if you want, sir, to complain about what happened in Gaza,
+- [16:10.670] why don't you complain about Joe Biden
+- [16:12.650] in the last administration?
+- [16:13.870] We're the administration that solved that problem.
+- [16:21.210] And by the way, not only was our administration
+- [16:24.910] like the administration that solved the problem,
+- [16:27.390] but the President --
+- [16:28.610] (Audience member calls out: "You're killing children.
+- [16:30.540] You're slaughtering children.")
+- [16:31.840] Excuse me, sir.
+- [16:36.880] Right now, you see more humanitarian aid coming into
+- [16:40.310] Gaza than it has anytime in the past five years,
+- [16:43.720] because we have taken that situation seriously.
+- [16:46.940] And that's one of the things
+- [16:48.300] that I'm proud of about our administration
+- [16:51.000] is whether it's there or Thailand and Cambodia,
+- [16:54.600] we have consistently tried as much as we can
+- [16:58.090] to solve these problems, not just complain about them
+- [17:00.990] like the guy who just ran away angry.
+- [17:10.770] Andrew Kolvet: JD, I'll never forget your speech
+- [17:12.900] at Charlie's memorial and you talked about how your faith
+- [17:17.110] and the wake of Charlie's assassination
+- [17:19.170] has become so central to you. You talk about it more
+- [17:23.180] and now you're even writing a book about it.
+- [17:26.810] Tell us about it. And what's it called?
+- [17:28.890] It's called, The Way --
+- [17:30.130] The Vice President: Well, it's called Communion
+- [17:33.370] and I think the subtitle is Finding My Way Back to Faith.
+- [17:38.940] And here's why I wanted to write this book, Andrew,
+- [17:42.060] because I think that like a lot of you,
+- [17:48.910] there was a point in my life,
+- [17:50.290] I mean, this is probably a much more Christian audience
+- [17:55.030] than maybe I was when I was a 22-year-old college student.
+- [17:58.990] I just got out of the Marine Corps
+- [18:00.340] and I realized that I was sort of winning this game of life
+- [18:05.250] in one sense and I was losing it in the way that mattered.
+- [18:08.510] And I was raised in a Christian household.
+- [18:11.240] I was raised in a very sort of Pentecostal family.
+- [18:15.350] Our church had really good music and amazing people.
+- [18:18.410] And one of the things I love about evangelical culture
+- [18:20.760] in the United States of America
+- [18:22.080] is just how welcoming it is of everybody.
+- [18:24.120] And you know that, you're an evangelical Christian.
+- [18:26.530] And so the thing is,
+- [18:28.460] I hadn't been properly formed in my faith.
+- [18:31.200] And so I got to the Marine Corps
+- [18:33.240] and by the time I left the Marine Corps
+- [18:34.860] and I was starting college, I called myself an atheist.
+- [18:38.170] And I kind of went through this period
+- [18:39.490] of being an angry atheist.
+- [18:40.840] And then I realized when, I got to a point
+- [18:45.210] where I thought to myself, "What actually matters in life?"
+- [18:49.260] It's not getting any a law school, which I had done.
+- [18:52.220] It's not making a lot of money. It's not credentials.
+- [18:55.010] It's not good jobs. It's being a good person.
+- [18:59.320] I'd fallen in love with this, thank you.
+- [19:03.280] I'd fallen in love with a girl,
+- [19:06.820] and that girl eventually became my wife
+- [19:09.380] and the mother to our now four children.
+- [19:11.700] And I remember thinking to myself like,
+- [19:13.260] "She doesn't care whether I make a certain amount of money.
+- [19:17.270] She wants me to be a good husband.
+- [19:18.750] She wants me to be a good father.
+- [19:20.070] She wants me to be a virtuous person."
+- [19:21.930] And I started to realize --
+- [19:23.290] Andrew Kolvet: She wants date night.
+- [19:24.490] The Vice President: Yes, she does want that,
+- [19:25.990] which is hard when you're vice president of United States.
+- [19:27.950] Andrew Kolvet: Yeah, I bet.
+- [19:29.180] The Vice President: But what I realized
+- [19:30.530] is that the philosophy of secular liberalism,
+- [19:34.030] it was achieve, achieve, achieve.
+- [19:36.250] Get as many credentials, make as much money as possible,
+- [19:39.060] and that left me feeling empty.
+- [19:40.780] And meanwhile, it was this faith that I had discarded as a kid,
+- [19:44.670] which actually provided a real sense of meaning and purpose.
+- [19:48.440] And then I talked to a priest and this priest was like,
+- [19:50.470] "You know what? If you think that the Christian faith
+- [19:53.050] is right about all these moral questions,
+- [19:55.430] maybe it's right because there's a witness element to it.
+- [19:59.660] Maybe the fact that it's right about morality
+- [20:02.660] and about virtue and about sin,
+- [20:04.960] maybe that means it's also right about the fact
+- [20:07.070] that Jesus Christ was the son of God.
+- [20:09.330] Maybe it's also right that Jesus Christ died
+- [20:12.860] and rose from the dead on the third day.
+- [20:22.390] Maybe these things that appeal to you about the Christian faith
+- [20:25.540] come from the deeper truth of the Christian faith."
+- [20:28.540] And that kind of got me down a pathway
+- [20:30.470] of where eventually I was baptized
+- [20:33.620] and became a very devout Christian.
+- [20:35.540] And at this point --
+- [20:36.880] Andrew Kolvet: Amen.
+- [20:38.140] The Vice President: Amen. Thank you.
+- [20:39.670] Andrew Kolvet: Amen.
+- [20:43.400] The Vice President: First of all,
+- [20:44.680] a lot of people have asked me about that journey
+- [20:46.410] and I thought,
+- [20:48.260] "What better way than to sit down
+- [20:49.600] and actually force myself to write it out?"
+- [20:51.780] I actually started writing the book back in 2017,
+- [20:54.720] right after Usha had our first baby,
+- [20:59.260] my son Ewen, who's now eight years old.
+- [21:01.460] And so I've been kind of writing it off and on since then.
+- [21:04.440] And a little bit Charlie's death,
+- [21:06.970] a little bit just being in the public eye,
+- [21:09.560] but mostly just I've been at this thing for 10 years
+- [21:12.160] and I was like,
+- [21:13.370] "It's finally time to get it out there."
+- [21:15.380] And so I put the finishing touches on it,
+- [21:17.010] submitted to the publisher a couple of months ago
+- [21:18.560] and it's coming out in June.
+- [21:19.830] Andrew Kolvet: Amen.
+- [21:21.060] The Vice President: So buy the book, Communion.
+- [21:22.280] Andrew Kolvet: I love that.
+- [21:25.260] Not that that wasn't also really riveting,
+- [21:27.310] but we're getting to the part of the interview
+- [21:28.870] that I'm really excited about.
+- [21:31.000] You are working on fraud. You're the fraud tsar.
+- [21:35.480] How many bad guys, yes, we can clap.
+- [21:38.720] How many bad guys are we going to get?
+- [21:40.450] I mean, that's the way I,
+- [21:42.510] there's a really nice framing of this question that I worked on.
+- [21:44.650] No, no. I want to know.
+- [21:45.940] The Vice President: This is important.
+- [21:47.140] Andrew Kolvet: How's the progress? Tell us about it.
+- [21:48.460] The Vice President: Well, we've already gotten
+- [21:49.670] a lot of bad guys.
+- [21:51.800] One of the things I'm very proud about
+- [21:53.380] is that people don't just want talk, they want action.
+- [21:56.260] They want us to actually go and arrest
+- [21:57.790] the people who committed fraud, and that's happening.
+- [21:59.910] We're starting to do that. And that's a good thing.
+- [22:01.550] And a lot more is going to be happening in the future.
+- [22:05.720] But actually, you know what's been amazing on this, is Dr. Oz.
+- [22:08.140] Mehmet Oz, who runs the Center for Medicare
+- [22:11.020] and Medicaid Services,
+- [22:12.240] because so much of the fraud in our system
+- [22:14.370] is people who are defrauding Medicare and Medicaid.
+- [22:16.270] Let me just give you a couple of examples.
+- [22:18.420] So we have in South Florida,
+- [22:21.810] we have entire companies that sell medical devices.
+- [22:27.240] They sell prosthetic knees and they sell prosthetic hips.
+- [22:30.500] And you know that they've received hundreds of millions,
+- [22:33.490] some of them billions of dollars in government funds,
+- [22:35.990] and they've never shipped a single product.
+- [22:38.390] They're just set up by fraudsters,
+- [22:40.910] and there's so many of them and many of them haven't,
+- [22:43.510] there are like over a hundred of these companies
+- [22:45.680] that haven't shipped a single product.
+- [22:47.890] Okay? I'll give you another example of fraud.
+- [22:49.990] So this ridiculous situation with Somali fraudsters
+- [22:54.760] in Minneapolis, in the Minneapolis area.
+- [22:57.240] So you have a program that exists to help autistic children
+- [23:01.300] get the resources they need to help their parents
+- [23:04.220] find them a ride to school,
+- [23:05.660] or if they need afterschool support
+- [23:07.380] to make sure their parents have what they need.
+- [23:09.580] And that program has been defrauded
+- [23:12.500] by Somali fraudsters who will go in,
+- [23:15.450] "Who will say that we have three kids.
+- [23:17.130] Every single one of them is autistic."
+- [23:19.000] There's no verification from the state of Minnesota,
+- [23:21.270] so that family will receive
+- [23:23.150] tens of thousands of dollars from the taxpayer
+- [23:26.380] and then the autistic children in Minneapolis
+- [23:28.320] who actually do need those services,
+- [23:30.380] the money's not there anymore
+- [23:31.870] because it's been taken away by fraudsters.
+- [23:33.940] We've completely stopped the funding to that program.
+- [23:37.030] And we basically told the state of Minnesota,
+- [23:39.410] "You don't get any more of our money
+- [23:40.830] unless you verify that you're taking fraud seriously."
+- [23:43.030] So we just turned it off. But what Dr. Oz,
+- [23:50.500] working with some of the people in our Department of Justice,
+- [23:53.310] found is that in Southern California,
+- [23:55.500] you had all these people who were engaged in massive fraud
+- [23:59.280] against the Medicare system.
+- [24:00.550] You had just tons and tons of people getting rich off fraud.
+- [24:04.250] And so we had our weekly fraud check-in call two weeks ago
+- [24:09.280] and Dr. Oz called in, but he's like,
+- [24:12.140] "Hey, I got to go because I'm about to hop on the bus
+- [24:14.470] and we're going to go arrest
+- [24:15.730] a bunch of fraudsters in Los Angeles."
+- [24:17.440] And I was like, "That's exactly what I want you to do.
+- [24:19.490] By all means, get off the phone."
+- [24:21.060] So we're doing a lot of that stuff.
+- [24:23.640] And I think one of the biggest things
+- [24:25.840] and the most important things we're doing on this, Andrew,
+- [24:27.920] is that there was sort of in the Biden administration,
+- [24:30.590] probably intentionally, but regardless,
+- [24:33.330] this attitude of if you were committing fraud
+- [24:35.790] of under a million dollars, you were committing fraud
+- [24:37.680] of under a million and a half dollars,
+- [24:39.350] we're just going to look the other way.
+- [24:40.890] And the approach that we've taken in the last couple
+- [24:43.380] of months is no amount of fraud is too big or too small.
+- [24:46.720] If you're defrauding the taxpayer,
+- [24:48.020] you ought to go to prison
+- [24:49.260] and anybody who's helping you ought to go to prison too.
+- [24:52.310] Andrew Kolvet: That's great.
+- [24:54.990] I mean, I think this is one of the absolute slam dunk issues.
+- [24:58.090] How many of you guys out in this audience care
+- [24:59.870] about American taxpayers getting ripped off? Right?
+- [25:04.700] This is like a 90/10, 99/1 issue.
+- [25:08.050] The Vice President: The guy who was shouting at us earlier,
+- [25:09.550] he doesn't care at all about people
+- [25:11.660] getting ripped off by fraud.
+- [25:13.150] Andrew Kolvet: But I think it underscores
+- [25:14.870] a bigger problem, right?
+- [25:16.070] Because there's a lot of young people in this room.
+- [25:18.670] Okay. A lot of you had some very formative years
+- [25:21.970] ripped off as well during COVID. You didn't get to do prom.
+- [25:24.470] The Vice President: Absolutely.
+- [25:25.700] Andrew Kolvet: You didn't get graduation.
+- [25:26.930] There was so many things taken from you.
+- [25:29.350] And you entered into the college years
+- [25:32.580] maybe with a really anemic workforce environment,
+- [25:37.420] inflation, historic, life's expensive.
+- [25:40.580] What do you tell young people right now
+- [25:42.640] that even right now they're wondering,
+- [25:44.240] what's the future that I can get?
+- [25:45.500] Andrew Kolvet What's the career I can get?
+- [25:47.020] Can I afford to have a family, kids, buy a home?
+- [25:50.390] What's your message to them right now
+- [25:51.810] that have big questions ahead of their future?
+- [25:53.950] The Vice President: I think my message to young people
+- [25:55.500] who are wondering whether they can afford a family,
+- [25:57.390] whether they can afford a home,
+- [25:58.650] whether they can afford kids in the American dream
+- [26:01.510] is you guys have every right
+- [26:05.030] to demand more of your elected leadership.
+- [26:07.190] And my job is to make it as possible
+- [26:09.150] for the answer to that question to be yes.
+- [26:11.330] And fundamentally, the question you should ask
+- [26:13.640] your politicians is exactly that,
+- [26:16.150] are you pursuing policies that make it easier
+- [26:19.160] for me to afford a house, easier for me to get a good job,
+- [26:22.900] easier for me to get a good education,
+- [26:25.080] and easier for me to raise my family in safety
+- [26:28.380] and security and comfort? That is the fundamental issue.
+- [26:31.980] And the thing that bothered me so much
+- [26:34.390] about the last administration,
+- [26:37.050] there are all these unique policies
+- [26:39.270] that I could sort of point to that were disastrous
+- [26:41.270] and a lot of them were absolutely terrible,
+- [26:43.430] but so much of it goes back to housing and immigration
+- [26:48.020] and the connection between the two.
+- [26:50.030] Under the four years that Joe Biden was president,
+- [26:52.770] housing literally doubled in value.
+- [26:56.570] Meaning if you're a young person trying to buy a house,
+- [26:58.920] it costs twice as much as it did before.
+- [27:00.900] And you layer on top of that higher interest rates.
+- [27:03.930] That's just in four years.
+- [27:05.480] Nobody can afford that kind of inflation in the housing market.
+- [27:08.110] And one of the biggest drivers of it
+- [27:10.010] is the fact that we let in tens of millions of illegal aliens.
+- [27:14.340] People who shouldn't have been here,
+- [27:15.940] who are taking homes that ought by right
+- [27:17.780] go to you and your generation.
+- [27:19.700] And so what have we done in the Trump administration?
+- [27:21.900] We've shut the border.
+- [27:23.310] We've kicked a lot of those people
+- [27:24.570] who have come into the United States,
+- [27:25.890] we've kicked them out of our country.
+- [27:27.540] And importantly, we have actually instituted
+- [27:30.380] a ban on institutional investors
+- [27:32.550] buying up American homes because I don't want,
+- [27:41.370] I don't want private equity firms,
+- [27:43.370] many of them backed by foreign money to buy American homes.
+- [27:46.480] I want you guys to be able to buy American homes.
+- [27:48.660] And I will say, and I say this not to brag
+- [27:54.150] because I think you guys should be impatient.
+- [27:55.990] When a politician comes to you and tells you,
+- [27:57.890] "I've done all these things," you should be asking,
+- [28:00.140] "Good. Now go and do more."
+- [28:01.580] That's how I think of my job. I don't wake up and say,
+- [28:04.490] "Oh, we did something really good last week."
+- [28:06.130] I think to myself, "We did something good last week.
+- [28:08.570] Now let's go do more of it,
+- [28:09.780] or let's go do something different."
+- [28:11.510] Because maybe the statistic that I'm proudest of
+- [28:14.140] in the entire Trump administration
+- [28:16.160] is that over the last eight months,
+- [28:18.420] rents and home prices have come down,
+- [28:22.000] not stayed the same, they have come down.
+- [28:24.730] And what I think of as our ultimate ambition
+- [28:27.210] is that after another few years of this administration,
+- [28:30.170] of stopping private equity bearings from buying up homes,
+- [28:33.070] from kicking out more illegal immigrants,
+- [28:34.670] from securing the border, what we're going to see
+- [28:37.090] is housing that is much more affordable
+- [28:39.560] and then we're going to keep on building on it year
+- [28:41.740] after year after year because the American dream
+- [28:44.560] should not be sold to the highest foreign bidder.
+- [28:46.720] It belongs to you.
+- [28:47.980] Andrew Kolvet: Yeah. That's so well said.
+- [28:52.180] And a lot of the people in this audience will know
+- [28:55.190] that this is one of the issues near and dear
+- [28:56.800] to Charlie's heart as well,
+- [28:58.100] to make sure that you guys could afford the American dream,
+- [29:00.610] that we thought about you first as a country.
+- [29:02.970] And so thank you for saying it so well.
+- [29:07.290] Naturally, we have to ask about what's going on in Iran.
+- [29:11.450] But I just want everybody,
+- [29:12.700] I want to give the Vice President his due here
+- [29:14.760] because you have been to Europe in the last week
+- [29:18.070] and you flew back to the United States
+- [29:20.270] only to fly back across the globe
+- [29:22.790] to negotiate in Pakistan to come back.
+- [29:26.000] And somehow we called them, we're like,
+- [29:27.630] "Are you really going to come to Georgia?"
+- [29:29.320] And he's like, "I'll be there."
+- [29:31.010] So I want to give him a big round of applause.
+- [29:33.750] The Vice President: Thank you.
+- [29:36.540] Andrew Kolvet: I mean, may I just say
+- [29:39.220] that's almost Trumpian level endurance.
+- [29:42.600] So do you know what time zone you are
+- [29:44.430] and how many hours of sleep did you get?
+- [29:45.930] The Vice President: I have no idea
+- [29:47.170] what the hell time it is right now.
+- [29:48.640] And it's kind of good actually because you just run on coffee
+- [29:51.760] and then you sleep when you can, you wake up when you have to
+- [29:54.280] and you just drink a whole lot of coffee.
+- [29:56.170] And look, it's the job that I asked for,
+- [29:59.270] but yes, I will say, look, I think that,
+- [30:02.680] let me just say you asked young people
+- [30:04.480] and I want to make some observation
+- [30:06.020] because it made me think of something,
+- [30:07.970] which is that young people in the United States,
+- [30:11.560] but particularly young Americans in the conservative movement,
+- [30:15.890] I think that we have a tendency to get too black-billed.
+- [30:19.890] And here's what I say by this.
+- [30:21.290] We have a tendency to get too cynical, too pessimistic.
+- [30:25.260] I'm sure that I've said mostly things that you agree with,
+- [30:28.110] and I'm sure that I've said some things you may not agree with,
+- [30:30.230] and you may not agree with everything
+- [30:31.510] that I say about the Iran negotiation,
+- [30:33.120] which I will get to answer your question.
+- [30:35.490] But here's fundamentally the issue.
+- [30:37.210] When you see a politician or you see a political movement
+- [30:39.940] or you see an administration
+- [30:41.270] that isn't doing what you want to do,
+- [30:42.510] I think you have two choices. You can say,
+- [30:45.120] Ah, to hell with those people," and check out of the process.
+- [30:48.300] Or you can say, "You know what? I'm going to get more involved.
+- [30:50.930] I'm going to make my voice heard even more.
+- [30:53.510] I'm going to pressure that administration
+- [30:55.060] to do exactly what I want them to do
+- [30:57.140] because they got my vote, they earned my vote,
+- [31:00.290] but they can't take it for granted."
+- [31:01.980] And I've seen some of this on various issues.
+- [31:04.830] For example, I recognize that a lot of young voters
+- [31:10.040] don't love the policy that we have in the Middle East.
+- [31:13.320] Okay. I understand that.
+- [31:15.210] I also know that we've secured the border.
+- [31:17.450] We've lowered housing prices now for eight months in a row,
+- [31:20.250] and there's going to be more to come beyond that.
+- [31:22.220] We've made America energy dominant,
+- [31:23.990] which has lowered electricity costs and things like that.
+- [31:26.840] We've made it so that we have the lowest murder rate
+- [31:29.250] in 127 years.
+- [31:30.940] I'm not saying you have to agree with me on every issue.
+- [31:35.730] I'm not saying you have to agree with me on every issue.
+- [31:37.760] What I'm saying is don't get disengaged
+- [31:41.190] because you disagree with the administration on one topic.
+- [31:44.680] Get more involved. Make your voice heard even more.
+- [31:47.890] That's how we ultimately take the country back.
+- [31:50.060] It's not by you, if you get five things you want
+- [31:54.050] and one thing you don't want, I see way too many people,
+- [31:56.950] especially in sort of the online
+- [31:58.640] conservative Twitter sphere who say,
+- [32:01.350] "Ah, there's no point. No, no, no, no."
+- [32:05.430] Or let me give you another example, the SAVE Act.
+- [32:07.680] Okay? A lot of people want the SAVE Act.
+- [32:10.060] I want the SAVE Act.
+- [32:11.370] I've been fighting for the SAVE Act
+- [32:12.870] literally since day one of the administration.
+- [32:15.120] And I've seen a lot of people saying,
+- [32:16.670] "What the hell's the point of voting
+- [32:18.470] for these guys if you've got three Republicans
+- [32:22.340] joining with the Democrats to prevent the SAVE Act
+- [32:25.500] from passing," or I guess four Republicans?
+- [32:27.900] And here's my response to that.
+- [32:29.850] Yes, it is annoying to me that there are only 45
+- [32:33.050] or 46 Republicans
+- [32:34.680] who will fight politically to get the SAVE Act passed.
+- [32:37.040] But you know what?
+- [32:38.310] 10 years ago, that number was 35.
+- [32:41.230] So, the answer to frustration is engagement.
+- [32:45.090] Don't give up on this process.
+- [32:46.720] Get more involved in this process
+- [32:48.520] and demand more from people like me.
+- [32:51.000] That's how we take our country back.
+- [32:52.400] I just think it's important to say that.
+- [32:55.650] Andrew Kolvet: That's such a good point.
+- [32:57.820] The Senate is such an example, as frustrating as it is,
+- [33:01.170] but you were part of that new wave of new thinking,
+- [33:03.460] of new energy, a new generation. And there's so many new voices
+- [33:07.330] that are bringing real change to the Senate.
+- [33:09.230] I mean, we're one, two elections away
+- [33:10.560] from maybe having it all the way around.
+- [33:11.830] The Vice President: 100%.
+- [33:13.070] And I understand people get frustrated at it.
+- [33:14.720] I get frustrated at it, but it's a lot better
+- [33:16.940] than it was 10 years ago. And frankly, 10 years ago,
+- [33:19.450] it was a lot better than it was 10 years before that.
+- [33:22.050] But here's where we are on, fundamentally,
+- [33:25.440] the President set a policy,
+- [33:27.320] Iran cannot have a nuclear weapon.
+- [33:28.890] And right now, we are negotiating to make sure
+- [33:31.090] that very thing happens.
+- [33:32.760] And what's interesting about this is,
+- [33:40.940] what's interesting about this
+- [33:42.240] is that we have this ceasefire that's in place.
+- [33:44.160] I think it's six or seven days old.
+- [33:45.660] Right now, the ceasefire is holding.
+- [33:47.880] And what you're seeing is,
+- [33:50.330] what the President wants to make,
+- [33:52.250] he doesn't want to make a small deal.
+- [33:54.590] He wants to make the grand bargain.
+- [33:56.570] And what he's basically offering to Iran is very simple.
+- [33:59.350] And frankly, it's something that no President
+- [34:01.530] has had the ability to offer.
+- [34:04.380] He said that if you're willing to act like a normal country,
+- [34:08.200] we are willing to treat you economically
+- [34:10.300] like a normal country. He doesn't want a small deal.
+- [34:13.310] And that's one of the reasons why, one, I'd say in
+- [34:16.180] Pakistan, we made a ton of progress,
+- [34:18.440] but the reason why the deal is not yet done
+- [34:20.370] is because the President, he really wants a deal
+- [34:23.780] where Iran doesn't have a nuclear weapon,
+- [34:26.140] Iran is not state sponsoring terrorism,
+- [34:28.390] but also the people of Iran can thrive and prosper
+- [34:32.410] and join the world economy.
+- [34:34.150] And that's the trade that he's offering.
+- [34:36.070] He's saying, "If you guys --"
+- [34:41.550] He said, "If you guys commit to not having a nuclear weapon,
+- [34:45.290] we are going to make Iran thrive.
+- [34:47.720] We're going to make it economically prosperous,
+- [34:49.500] and we're going to invite the Iranian people
+- [34:51.280] into the world economy
+- [34:52.510] in a way they haven't been in my entire life."
+- [34:55.300] And that's the kind of Trumpian grand bargain
+- [34:57.730] that the President has put on the table.
+- [34:59.590] Man, we're going to keep on negotiating
+- [35:00.990] and try to make it happen
+- [35:02.210] because it would be great for the world.
+- [35:03.900] It'd be great for our country. It'd be great for everybody.
+- [35:06.960] So, I'm going to keep on fighting to make it happen.
+- [35:08.700] Andrew Kolvet: Yeah. Just a few more
+- [35:13.320] and then we've got a few questions here.
+- [35:14.670] The Vice President: Yeah, please.
+- [35:15.880] I know we have some questions from the audience too.
+- [35:17.470] Andrew Kolvet: Yeah. So my one question is,
+- [35:18.700] when you looked across from these Iranian negotiators,
+- [35:21.810] what did you make of them?
+- [35:23.040] Did you get the sense that they really were the right people?
+- [35:25.940] I mean, I'm assuming you guys know this type of thing, but --
+- [35:28.520] The Vice President: Yeah. I mean, look, you never know.
+- [35:31.830] The United States had never had meetings at that level
+- [35:36.180] with the Iranian government in 49 years.
+- [35:39.470] It's a meeting that had never before happened,
+- [35:41.370] not Democrat, not Republican.
+- [35:42.750] We had never had a meeting like that where you have the person
+- [35:46.470] who's effectively running the country in Iran,
+- [35:48.490] sitting across from the Vice President of the United States.
+- [35:50.770] That had never happened.
+- [35:54.440] Look, honestly, after 49 years, there's a lot, of course,
+- [35:58.440] mistrust between Iran and the United States of America.
+- [36:01.520] You're not going to solve that problem overnight.
+- [36:03.660] But yeah. I think the people we're sitting across
+- [36:05.700] from wanted to make a deal.
+- [36:06.930] And I know the President of the United States told us
+- [36:09.540] to go out there and negotiate in good faith.
+- [36:12.510] That's what we did. That's what we're going to keep on doing.
+- [36:14.600] So, you never know though, right?
+- [36:17.790] I mean, I've sat across from United States Senators
+- [36:20.640] that I thought I agreed with,
+- [36:21.970] and you don't know with those people, right?
+- [36:25.010] I won't say who, you can guess.
+- [36:27.720] But I feel very good about where we are.
+- [36:30.360] Andrew Kolvet: Right. All right. So this is the last one from me.
+- [36:33.510] Now, a lot of people make a big deal about illegal immigration.
+- [36:36.870] And we should, it's terrible, right?
+- [36:38.420] And this administration has made historic progress on that issue.
+- [36:41.990] I think you don't get enough credit for it.
+- [36:44.030] And the problem with immigration,
+- [36:45.520] illegal immigration, is once it's not a problem anymore,
+- [36:48.010] our memories are about six days long
+- [36:49.860] and we move on to the next thing.
+- [36:51.180] Andrew Kolvet But
+- [36:52.440] what about legal immigration?
+- [36:54.960] And reforming it, correcting it, addressing abuses?
+- [36:57.980] Because I look around here
+- [36:59.330] and I see a bunch of American students
+- [37:01.570] that want jobs, that want homes,
+- [37:03.220] that want a space in this country.
+- [37:04.600] The Vice President: Of course.
+- [37:05.810] Andrew Kolvet: And I think reforming legal is so,
+- [37:07.880] so critical.
+- [37:09.140] Maybe talk about some of the reforms that this administration
+- [37:11.430] has done specifically on the legal front.
+- [37:13.440] The Vice President: So this is exactly right.
+- [37:14.750] And this is a hundred percent,
+- [37:17.240] I think, one of the first pieces of legislation
+- [37:18.940] I sponsored in the United States Senate
+- [37:21.290] was effectively to get rid of the H-1B visa,
+- [37:24.070] because I cared so much about this when I was in the Senate.
+- [37:30.090] And yes, it is the case
+- [37:32.120] that Congress has not exactly come along.
+- [37:34.690] Again, to my point about the United States Senate,
+- [37:37.060] there are far more people who are sponsoring
+- [37:38.640] that legislation today than there were 10 years ago,
+- [37:40.720] but it's not nearly enough to get it through.
+- [37:42.790] But just through administrative action,
+- [37:44.470] I don't think people realize this,
+- [37:45.900] the number of new H-1B visas is down about 90%
+- [37:49.240] in the United States of America.
+- [37:51.020] That's something that we accomplished purely through,
+- [37:55.010] that's something we accomplished purely
+- [37:56.550] through administrative action.
+- [37:57.770] And again, it's something I cared a lot about.
+- [37:59.550] It's something the president cared a lot about.
+- [38:01.350] So there are other things too.
+- [38:03.440] There are ways in which our visa system
+- [38:06.830] is taken completely advantage of,
+- [38:08.910] one of the biggest loopholes in American immigration,
+- [38:11.240] legal immigration policy.
+- [38:13.250] And I'll never forget my debate against Tim Waltz
+- [38:15.660] where the moderator tried to fact check me
+- [38:18.850] because I said this person is an illegal immigrant.
+- [38:21.540] It's like, "No, actually they came in as an asylum claimant."
+- [38:24.880] And it's like, if you came in on a fraudulent asylum claim,
+- [38:28.320] you are an illegal immigrant,
+- [38:29.590] whatever the hell somebody from CBS says that you are.
+- [38:32.410] And the asylum process was, I mean, guys,
+- [38:37.830] there were literally millions of people
+- [38:39.540] coming into the United States
+- [38:40.870] every single year on false asylum claims.
+- [38:44.300] We have those claims down something like north of 95%.
+- [38:48.520] So there are all of these things that you can do,
+- [38:51.610] all these things that you can do purely
+- [38:53.850] through administrative action.
+- [38:55.530] But for us to really make this stick,
+- [38:57.910] I mean, look, as much as I don't want this to happen,
+- [39:00.260] eventually, hopefully 20 years from now,
+- [39:02.530] you're going to have a Democratic president
+- [39:04.250] who tries to undo everything that we've done on immigration.
+- [39:07.060] That's why we need Congress to codify this stuff.
+- [39:10.000] But right now, I'm very proud of what we've done
+- [39:12.010] in the Trump administration.
+- [39:13.410] Massive reductions in fraudulent visas,
+- [39:15.920] massive reductions in fraudulent number of asylum claims,
+- [39:18.980] massive reduction in H-1B visas granted.
+- [39:21.800] We're making a lot of progress.
+- [39:23.510] As I said to you, we want to make more.
+- [39:25.550] We are certainly going to make
+- [39:26.890] more over the remaining three years.
+- [39:28.790] But what that means, fundamentally,
+- [39:31.010] is you guys deserve to have good jobs.
+- [39:34.070] And I don't want,
+- [39:35.780] when you graduate from this amazing university,
+- [39:38.620] and it hurts me to say that as an Ohio State fan,
+- [39:40.600] but this is an amazing university.
+- [39:41.970] Audience Member: (Inaudible)
+- [39:43.210] The Vice President: I know. When you graduate, when you,
+- [39:46.600] I think the guy who was screaming earlier,
+- [39:48.610] he's clearly a Michigan guy, just put it on the table.
+- [39:53.730] Oh no, we have another Michigan guy over here, but --
+- [39:57.460] Andrew Kolvet: They did win the Natty, so --
+- [39:59.560] The Vice President: Yes, that's right. That's right.
+- [40:00.820] But when you guys graduate from this university,
+- [40:04.360] I don't want you competing against a low wage foreigner
+- [40:06.810] for your first job.
+- [40:08.160] I want a company to have to pay you a fair wage
+- [40:10.220] for a fair day's work. It's common sense.
+- [40:17.410] But to do that, you really have to do reform of the H-1B
+- [40:21.630] and other, it's not just the H-1B,
+- [40:23.100] a number of the other visa systems.
+- [40:25.120] We made a lot of progress, but man,
+- [40:26.910] I would love that Congress, and you guys advocated.
+- [40:28.800] Ask yourself, I mean,
+- [40:30.030] you have a Senate primary going on right now.
+- [40:32.600] This is what I say about getting more involved.
+- [40:34.820] Every single one of you should ask those Senate candidates,
+- [40:37.990] "What do you think about the H-1B visa?
+- [40:40.400] Would you co-sponsor the vice president,
+- [40:42.910] former senator's legislation to eliminate that program
+- [40:45.450] because it's basically just something
+- [40:47.400] that big tech companies take advantage of?"
+- [40:49.580] These are the things that you guys have to do
+- [40:52.220] because I can't keep these politicians honest by myself,
+- [40:54.670] I need your help.
+- [40:55.900] It's a very big job.
+- [40:57.620] Andrew Kolvet: Great stuff.
+- [41:00.770] So thank you, Mr. Vice President.
+- [41:03.150] We have some questions.
+- [41:04.420] I believe we're ready for some questions.
+- [41:06.140] The Vice President: Yeah.
+- [41:07.440] Let's do some questions from the audience.
+- [41:08.940] Andrew Kolvet: Oh, right here.
+- [41:10.170] The Vice President: Okay. There we are. Hello.
+- [41:11.890] Audience Member: Hi, my name is Hope.
+- [41:13.920] I have a serious question and then a fun question.
+- [41:15.740] The Vice President: Okay.
+- [41:16.970] Audience Member: So your serious question
+- [41:18.320] is when you were growing up, who was your voice/influencer
+- [41:22.940] that helped you see your conservative views?
+- [41:25.650] And then for now, who can we look at
+- [41:29.780] as an influencer or a voice?
+- [41:33.660] The Vice President: Okay. So that's very interesting.
+- [41:36.270] So when I was a kid and I was kind of developing my politics,
+- [41:40.780] there was actually a radio host,
+- [41:43.800] a guy who founded this organization called Focus
+- [41:46.060] on the Family, James Dobson,
+- [41:48.070] who was really influential to me.
+- [41:51.650] And he was a good Christian guy. He talked about the family.
+- [41:54.900] He talked about things I cared a lot about.
+- [41:56.570] And I came from a broken home.
+- [41:58.400] So when he talked about the ways in which a broken home
+- [42:01.010] had a negative effect on kids,
+- [42:03.150] it made sense to me because I was seeing it in my own life
+- [42:05.990] and then here was a guy who was actually talking about it.
+- [42:08.200] And what I liked about him
+- [42:09.420] is that he didn't talk about it in this judgmental way.
+- [42:12.190] He wasn't attacking a kid like me
+- [42:13.970] who didn't have everything handed to him.
+- [42:15.960] He was just explaining in a very real world
+- [42:19.560] with a fundamentally Christian underpinning,
+- [42:21.890] here's what happens when things are broken.
+- [42:24.020] And when you ask, who are some of the conservative influencers
+- [42:28.310] or the political influencers today?
+- [42:30.800] And there are a few people that I look to who I think have
+- [42:33.170] very, very smart and wise spiritual wisdom.
+- [42:36.530] I think Andrew and Blake and the podcast
+- [42:38.760] that they have at TPUSA is amazing.
+- [42:41.040] I listen to it all the time. I think it's great.
+- [42:43.850] I think if you want a good laugh, I love Theo Von.
+- [42:46.060] He's one of my favorite. He's just incredible.
+- [42:48.650] And he's got one of these senses of humor
+- [42:50.940] where like 30% of the time it goes completely over my head,
+- [42:54.660] and 70% of the time he's the funniest person imaginable.
+- [42:57.630] But I think Theo has a good heart
+- [42:59.200] and that's one of the reasons
+- [43:00.430] why I really like listening to his show.
+- [43:03.320] And then just in terms of like pure politics,
+- [43:06.020] of course you should be listening
+- [43:07.510] to the vice president of these United States.
+- [43:10.120] Thank you.
+- [43:11.340] Audience Member: And then my fun question is,
+- [43:13.610] if you could have a free day with zero responsibilities,
+- [43:17.910] what would your day look like?
+- [43:20.440] The Vice President: Oh, that's a good question.
+- [43:22.110] And honestly, I would add not just zero responsibilities,
+- [43:25.890] but total anonymity.
+- [43:27.740] Because the thing that I really, I love this job.
+- [43:31.020] It's very cool. I'm very honored to have it.
+- [43:32.900] But what I really want to do, honestly, is take
+- [43:37.100] Usha and the three kids and just walk to a local cafe,
+- [43:43.660] eat a ton of pancakes,
+- [43:44.870] and then take the kids to the zoo
+- [43:46.090] without anybody knowing who the hell I am.
+- [43:48.380] That's what I would do if I had a day.
+- [43:49.790] Audience Member: Awesome. Thank you.
+- [43:51.070] The Vice President: Thank you. Very nice question.
+- [43:53.200] Audience Member: All right. Hi, JD.
+- [43:56.270] My name is Jacob and I'm also from Cincinnati,
+- [43:58.760] so I'm with you there on the zoo.
+- [44:00.260] That's pretty awesome.
+- [44:01.640] The Vice President: Yeah, appreciate that. Thank you.
+- [44:03.790] Audience Member: Anyway, my question is that
+- [44:05.480] there's a lot of division within our country
+- [44:08.020] right now from right to left and everybody in between.
+- [44:11.490] And leading up to the 2024 election and Charlie's death,
+- [44:15.650] I found that Charlie was definitely the glue
+- [44:17.890] that held at least the conservative movement together.
+- [44:21.080] And since he has passed, there has been a lot of division
+- [44:24.750] within our conservative movement,
+- [44:26.470] and especially with the 2026 midterms
+- [44:28.910] and the 2028 election coming up.
+- [44:31.340] How do you think the conservative movement
+- [44:33.570] can be united?
+- [44:34.830] Audience Member: And if there is a who,
+- [44:36.250] who do you think that could be?
+- [44:38.300] The Vice President: Well, that's a very good question.
+- [44:39.800] And look, man, I agree with you.
+- [44:41.710] I think part of the division is Charlie's death
+- [44:44.370] because Charlie as Andrew knows well,
+- [44:46.940] and a lot of this was behind the scenes,
+- [44:48.930] Charlie was the guy who was talking
+- [44:50.900] to different segments of the movement.
+- [44:53.890] So just this Iran thing, Charlie would be the guy
+- [44:57.350] who was talking to the people
+- [44:58.740] who really wanted to go to war with Iran
+- [45:00.390] and the people who really didn't want to go to war with Iran.
+- [45:02.800] And he would try to find ways for those guys to work together,
+- [45:05.700] even if they disagreed over one issue.
+- [45:08.200] And so Charlie's absence is a huge thing.
+- [45:11.340] And my answer to your question is, who replaces Charlie Kirk?
+- [45:14.940] I think it's going to be a combination of people.
+- [45:16.960] I think Andrew's got a role.
+- [45:18.170] I've got a role. You guys have got a role.
+- [45:20.270] And I think the most important thing to remember
+- [45:22.220] about how Charlie thought about this,
+- [45:24.520] is he always recognized what was the goal
+- [45:27.890] and who was the real problem.
+- [45:29.730] The real problem is not a person who disagrees with you
+- [45:32.970] about this or that foreign policy
+- [45:34.990] or domestic policy issue.
+- [45:36.790] The real problem is the person who killed our friend,
+- [45:39.950] and anybody who defended the people who killed our friend.
+- [45:43.430] And we got to keep our eye on the ball
+- [45:45.050] and recognize that those who want to kill conservatives
+- [45:49.440] because they have the wrong viewpoints,
+- [45:51.260] we need to defeat those people.
+- [45:52.760] We need to unite with each other and actually fight together
+- [45:56.100] to defeat the real enemy that's out there.
+- [45:57.650] That's the most important message.
+- [46:00.160] And I'll also give you, one of the reasons
+- [46:04.760] why I'm optimistic about this is even when Charlie was alive,
+- [46:09.310] you saw some of these divisions
+- [46:10.870] starting to bubble to the surface.
+- [46:13.070] And I remember, Charlie died in September of 2025.
+- [46:17.270] I'd been vice president for all of eight months
+- [46:21.220] when Charlie lost his life to an assassin's gun.
+- [46:24.950] One thing that makes people in politics sort of divide
+- [46:29.170] against each other is just being in power.
+- [46:32.630] When you have control of the house,
+- [46:34.570] the Senate, the White House,
+- [46:37.550] and there's not an election around the horizon,
+- [46:39.600] it's very easy to forget what your goal is.
+- [46:42.310] Well, starting in a few months,
+- [46:44.020] we're going to have primaries that are over,
+- [46:45.630] we're going to have candidates on the ballot.
+- [46:47.690] And we're all going to need to get out there and work hard
+- [46:50.180] because the people who want to kill Donald Trump,
+- [46:53.550] the people who want to throw Donald Trump in prison,
+- [46:55.570] the people who murdered our friend,
+- [46:57.260] and then the people who celebrated it afterwards,
+- [46:59.600] those people who are trying to achieve political power.
+- [47:02.040] We cannot let them and we have to unite
+- [47:04.830] to make sure that doesn't happen.
+- [47:06.480] Audience Member: Amen. Thank you, JD.
+- [47:10.960] Audience Member: Good evening, Mr. Vice President.
+- [47:12.480] Thank you for taking the time to come out here.
+- [47:14.560] My name is Dane Hoff.
+- [47:15.840] I'm originally from the great state of Arizona
+- [47:18.110] and proudly voted for you and Donald J.
+- [47:19.970] Trump in November 2024.
+- [47:21.560] The Vice President: Here we go.
+- [47:22.780] Audience Member: And my question is that many people
+- [47:24.820] believe the midterms are already gone for us.
+- [47:27.300] I disagree.
+- [47:28.670] So what is the game plan to win the midterms
+- [47:32.100] and what's the strategy to maintain the coalitions
+- [47:35.410] Trump won in '24?
+- [47:37.470] The Vice President: So number one is,
+- [47:39.160] I totally agree with you.
+- [47:40.380] The idea that midterms are gone is preposterous.
+- [47:42.730] And if you go back to 2018
+- [47:44.710] and you look at the polling picture in 2018,
+- [47:47.110] that was Trump's first term.
+- [47:48.890] And what it showed is that Republicans were getting crushed
+- [47:52.280] in the generic ballot by 10, 11, 12 points.
+- [47:55.980] The worst polls right now, the worst polls,
+- [47:59.010] not all of them,
+- [48:00.340] the worst polls have us down by five or six points.
+- [48:03.660] And what happened in 2018
+- [48:05.180] is that as we got closer to the election,
+- [48:07.600] and again, the right kind of unified
+- [48:10.370] in the face of an election campaign,
+- [48:13.000] what happened is those margins narrowed
+- [48:15.620] and the Republican Party
+- [48:16.820] did much better than expected in 2018.
+- [48:18.830] It wasn't a great election by any means,
+- [48:21.200] but the idea that this is done now, it's ridiculous.
+- [48:24.020] And frankly, it's cynical,
+- [48:25.990] pessimistic garbage pushed by people
+- [48:28.390] who want us to completely give up.
+- [48:31.490] Don't give up. We got to keep on fighting.
+- [48:33.420] That's the fundamental and most important thing,
+- [48:35.510] is the people telling you to give up on the midterms
+- [48:38.050] are the people who want us to lose the midterms.
+- [48:40.360] Don't listen to them.
+- [48:41.570] But what's the game plan? You asked what the game plan is.
+- [48:43.480] So I'll give you a little good news
+- [48:45.060] and a little bad news on that, because the bad news
+- [48:48.450] and the good news about the modern Congress is,
+- [48:51.900] whether you agree with this or not,
+- [48:53.620] the districts are so gerrymandered,
+- [48:55.760] there aren't that many battleground
+- [48:57.160] congressional districts left.
+- [48:58.920] If you go back to 2014 where I think Republicans
+- [49:01.610] won like 80 seats in the House, that's not going to happen.
+- [49:05.710] Elections like that don't happen anymore.
+- [49:08.030] So what we got to fight is 20 or 30 districts
+- [49:11.880] where there's actually some real competition in those districts.
+- [49:16.730] We got to put a lot of resources.
+- [49:17.990] We got to knock on a lot of doors.
+- [49:19.730] We got to get out the marginal Trump voter,
+- [49:22.240] because one of the things we saw in 2024 is a lot of our voters,
+- [49:25.780] they're dedicated, they love the president,
+- [49:27.820] they don't show up in midterm elections.
+- [49:29.700] So we got to knock on as many doors
+- [49:31.160] and make sure those people get out and vote.
+- [49:32.890] We have a game plan,
+- [49:34.500] but the House is going to be determined by 20 or 30 seats.
+- [49:37.600] We just got to win as many of those as possible.
+- [49:39.860] And yes, we can win the midterms in 2026.
+- [49:42.450] Audience Member: Thank you.
+- [49:43.920] Andrew Kolvet: And we should say what's happening in Virginia.
+- [49:47.210] The Vice President: Exactly, exactly.
+- [49:48.440] And then this is the thing, Democrats always overreact,
+- [49:50.960] they always overreach, they always do crazy things.
+- [49:54.090] And look, there are districts where MSNBC will say,
+- [49:59.120] "Well, this district, Donald Trump won it by 20 points
+- [50:02.200] and then this guy only won it by 12 points.
+- [50:04.480] That means everything's terrible."
+- [50:05.910] You look in Virginia or look at some of these other places
+- [50:08.390] where Kamala Harris won it by four points and now
+- [50:11.310] Republicans are winning by a few points.
+- [50:13.340] There's a lot of reason to think that we have a good chance here.
+- [50:16.190] We just got to keep on working at it.
+- [50:17.470] Sorry, next question.
+- [50:18.680] Andrew Kolvet: And the redistricting,
+- [50:19.880] make sure if you're watching in Virginia.
+- [50:21.240] The Vice President: Yes. Yeah. Sorry.
+- [50:22.720] Virginia, vote against the Obama/Spanberger
+- [50:26.240] redistricting plan. Vote against it.
+- [50:28.080] And frankly, the polls are moving
+- [50:29.570] in our direction a little bit.
+- [50:30.820] We just got to get out there and defeat that ballot measure.
+- [50:34.140] Audience Member: Hi, Mr. Vice President.
+- [50:36.290] Thank you so much for being here.
+- [50:38.380] It's truly incredible that you can come all across the world
+- [50:41.240] and then just be in Athens.
+- [50:44.960] So my question, not to sound pessimistic,
+- [50:48.430] but my question revolves around Congress.
+- [50:50.090] The Vice President: Sure.
+- [50:51.290] Audience Member: And many Americans feel discouraged,
+- [50:54.170] even somewhat dissatisfied. The executive sets out a plan.
+- [50:57.950] We know you want to do something,
+- [51:00.190] but Congress sometimes is just unable to deliver.
+- [51:03.410] And with the inability to keep the government
+- [51:06.670] open during shutdowns
+- [51:08.050] and all of that stuff, what are your thoughts?
+- [51:11.180] I know leaders such as Governor DeSantis
+- [51:12.920] have called on term limits for Congress members,
+- [51:15.890] balanced budget amendments and banning stock trading.
+- [51:19.130] But what do you think are just some practical measures
+- [51:22.170] that we can take to ensure Congress
+- [51:24.210] is delivering results to the American people?
+- [51:26.650] The Vice President: Yeah. So great question.
+- [51:28.020] And I remember during the State of the Union address
+- [51:31.510] when the president talked about banning members of Congress
+- [51:34.330] from trading stocks, I looked over at Nancy Pelosi
+- [51:37.370] and she was sitting in her chair like,
+- [51:42.320] and if you watch the State of the Union,
+- [51:44.270] I start laughing hysterically. It's because I looked over
+- [51:46.940] and saw the look on Nancy Pelosi's face.
+- [51:50.050] Look, I think people don't have any idea
+- [51:51.850] how bad the corruption is in Washington DC.
+- [51:53.860] So yeah, I love the idea of term limits for Congress.
+- [51:56.400] You know what I love more?
+- [52:00.700] I love the idea of term limits for bureaucrats.
+- [52:04.340] Nobody in Washington DC
+- [52:05.830] should be able to sit in a chair for 30 years,
+- [52:08.950] do your public service and go back home
+- [52:10.820] and do something productive.
+- [52:15.660] But look, so much of what's broken about
+- [52:19.440] Congress really does go down to corruption.
+- [52:22.100] So there's so many examples, let's say of a congressman
+- [52:27.200] who got a classified briefing on COVID.
+- [52:29.340] It's like, "Oh, there's this crazy Wuhan flu
+- [52:31.640] that's floating around Wuhan, China."
+- [52:34.650] And again, at that point,
+- [52:36.650] everybody called it the Wuhan Flu.
+- [52:38.710] And then you come out of that classified briefing
+- [52:41.100] and you buy a bunch of biotech stocks
+- [52:43.620] or you buy a bunch of pharmaceutical stocks,
+- [52:45.810] or maybe you sell airline stocks because you know
+- [52:49.550] that the airlines aren't going to work
+- [52:51.010] that well if everybody's sort of sheltering in place
+- [52:53.390] and governments are shutting down the economy.
+- [52:55.580] That stuff should be illegal
+- [52:56.930] and you should go to prison for it.
+- [52:58.400] And if you just cut out the basic corruption,
+- [53:00.660] you'd solve a lot of the problem.
+- [53:02.860] Audience Member: Thank you so much.
+- [53:06.340] Unidentified: This will be the last question.
+- [53:08.780] The Vice President: Okay. Can we take two more?
+- [53:10.830] Because I like it. I like answering questions.
+- [53:13.230] We'll take a couple more.
+- [53:15.590] Audience Member: Hi, Mr. Vice President.
+- [53:17.150] Before I get to my question, I just want to, number one,
+- [53:19.480] thank you for your service to the United States military.
+- [53:22.190] And number two, welcome you to the greatest university
+- [53:24.380] in this country.
+- [53:29.780] The Vice President: Thank you.
+- [53:31.000] Audience Member: So my question is,
+- [53:32.780] as somebody whose parents adopted three children
+- [53:35.160] from the foster care system,
+- [53:36.460] and coming from a broken household yourself,
+- [53:38.820] we have seen different sides of a somewhat similar narrative.
+- [53:43.630] How would you respond to somebody who says
+- [53:45.760] that the only way to succeed in this country
+- [53:47.950] is to come from a generationally wealthy family?
+- [53:51.080] The Vice President: That's a good question.
+- [53:52.890] Wow, I didn't expect that one.
+- [53:56.160] Well, first of all, it's just not true.
+- [53:59.120] I think that one of the things that,
+- [54:01.760] a very powerful thing that somebody told me
+- [54:04.510] is that disadvantage and unfairness, it is true.
+- [54:09.830] Not everybody started at the exact same place.
+- [54:12.030] Some people were dealt a much worse hand than others.
+- [54:14.960] But what somebody, again,
+- [54:16.700] this person gave me a very good piece of advice and said,
+- [54:19.680] "No matter what hand you were dealt,
+- [54:22.020] you have the responsibility to play it as well as you can."
+- [54:25.340] I think that for me at least,
+- [54:29.510] there was something empowering for me about recognizing
+- [54:32.600] that, yeah, my life wasn't as easy as most other kids.
+- [54:35.780] I wasn't born with money.
+- [54:37.060] I wasn't born with parents who had connections,
+- [54:39.830] but I still had a responsibility to God.
+- [54:42.380] I had a responsibility to myself to play that hand
+- [54:45.350] as well as I possibly could. That was very empowering to me.
+- [54:49.280] First, the message is look at the stories.
+- [54:51.370] Look at Clarence Thomas.
+- [54:52.690] Look at all the people in the United States
+- [54:55.120] who have come from very humble beginnings
+- [54:57.470] and achieved great things.
+- [54:59.190] You can believe as I do that we have to do a lot better job
+- [55:02.740] by the young people of this country,
+- [55:04.040] while at the same time knowing
+- [55:05.860] that you are the master of your own destiny.
+- [55:08.300] Never give up on yourself and never believe
+- [55:10.790] that you're a victim of circumstances
+- [55:12.390] because when you believe that,
+- [55:13.840] you will be a victim of circumstances.
+- [55:17.120] Audience Member: Thank you so much, and Go Dawgs.
+- [55:18.470] The Vice President: All right.
+- [55:20.960] Andrew Kolvet: She's trolling you with that.
+- [55:22.250] The Vice President: I know, I know.
+- [55:23.480] Audience Member: Hi, Mr. Vice President.
+- [55:24.750] The Vice President: Hello.
+- [55:25.990] Audience Member: My name's Esther.
+- [55:27.190] This is so cool.
+- [55:30.940] I know the whole H-1B thing you talked about,
+- [55:35.080] but I am also a daughter of a legal immigrant
+- [55:38.240] who came here on an H-1B visa.
+- [55:40.620] The Vice President: Sure.
+- [55:42.000] Audience Member: My mom and my dad,
+- [55:43.580] we've been here for over 10 years.
+- [55:45.710] I was born here.
+- [55:47.060] Well, more than over 10 years, I'm 20 years old.
+- [55:49.800] Sorry. Sorry, I'm a little nervous.
+- [55:52.560] The Vice President: That's okay. Take your time.
+- [55:54.500] Audience Member: But for people who have been here
+- [55:56.790] on H-1B visas,
+- [55:58.370] it's been really hard getting the Green Card
+- [56:02.080] based on everything with quotas and everything.
+- [56:05.430] My family, we're from India, the quotas are so bad
+- [56:08.520] and they are still open, and they're taking the money.
+- [56:11.770] How do we fix the immigration system for people
+- [56:14.540] who have been waiting for their Green Cards for so long?
+- [56:18.880] They're not getting it in time.
+- [56:20.780] Because a lot of people don't know that
+- [56:22.750] during the Biden administration, to get a Green Card,
+- [56:26.230] it would've taken my family 150 years
+- [56:29.970] to get a Green Card.
+- [56:31.280] The Vice President: Sure.
+- [56:32.500] Audience Member: How is the Trump administration
+- [56:34.140] trying to fix that for people who have been here,
+- [56:37.260] are paying taxes,
+- [56:38.830] and doing a lot of stuff that citizens do,
+- [56:42.330] but they can't do a lot of things that citizens do?
+- [56:45.170] We're also looking for the American Dream.
+- [56:48.000] My parents, they send me to private Catholic school,
+- [56:51.520] even though sometimes we used to live paycheck to paycheck.
+- [56:54.850] How is the Trump administration
+- [56:56.250] going to fix that for people like that?
+- [56:58.480] The Vice President: Sure, sure.
+- [56:59.870] Let me just offer a couple of observations there.
+- [57:02.270] One, I appreciate the question. Two, what I would say is,
+- [57:06.860] you heard me talk about H-1B fraud
+- [57:10.190] because there is a lot of fraud in the H-1B system.
+- [57:14.100] You can believe on the one hand
+- [57:15.450] that there's a lot of fraud in the H-1B system,
+- [57:17.800] while also believing that there are people
+- [57:19.530] who have come to the United States
+- [57:20.860] in the past who have enriched this country.
+- [57:23.040] Look, I'm married to the daughter
+- [57:24.920] of immigrants from India, and I love my in-laws.
+- [57:28.980] They're great people and they've been great contributors
+- [57:30.830] to the United States of America.
+- [57:32.680] But I also think that when you become an American citizen,
+- [57:35.660] whether your family is nine generations of lineage
+- [57:38.380] in the United States or whether your family
+- [57:39.940] has zero generations of lineage in the United States,
+- [57:43.360] one of the responsibilities that we must expect of citizens,
+- [57:47.080] and I of course, it's always hard to talk in specifics
+- [57:49.480] about your situation because I don't know about it,
+- [57:51.850] but one of the obligations of citizens
+- [57:53.790] is that you have to think about the best interest of the country
+- [57:57.540] and not the country you came from beforehand,
+- [58:00.370] and not of any group that you came from,
+- [58:04.540] you've got to think of yourself as an American.
+- [58:06.340] The system only works
+- [58:08.000] if everybody thinks of themselves as an American.
+- [58:10.000] I remember having this conversation
+- [58:11.550] with my father-in-law, who's an amazing guy.
+- [58:17.690] It was actually during a Senate event that I had done,
+- [58:20.990] where I had somebody who came up to me
+- [58:22.940] and I'm sure a great person, a wonderful person
+- [58:25.260] who was a Ukrainian American in Cleveland, Ohio.
+- [58:27.860] I was campaigning for the Senate.
+- [58:29.340] There are a lot of Ukrainian Americans in Cleveland, Ohio.
+- [58:32.620] This person got really agitated at me because I was saying,
+- [58:35.310] "We should stop funding the Ukraine war."
+- [58:37.900] I still believe that obviously, and it's one of the things
+- [58:39.900] I'm proudest that we've done as administration
+- [58:42.050] is we've told Europe that if you want to buy weapons,
+- [58:43.970] you can, but the United States is not buying weapons
+- [58:45.980] and sending them to Ukraine anymore.
+- [58:47.180] We're just out of that business. It's a very good thing.
+- [58:49.450] But this Ukrainian American, again, a kind person,
+- [58:54.170] they probably didn't vote for me after this conversation,
+- [58:56.040] but he was sticking his finger in my face saying,
+- [58:59.130] "You need to support my country. You need to support my country."
+- [59:04.470] I said, "Sir, with all due respect, if you're an American,
+- [59:07.180] your country is the United States of America,
+- [59:09.050] not a place that you immigrated from whenever that was."
+- [59:16.060] It occurred to me, and I know this after the last question,
+- [59:18.070] I'll try to be quick here,
+- [59:19.300] but it occurred to me that my father-in-law,
+- [59:21.150] who came from India, who moved to the United States,
+- [59:24.140] who got an education and became an American citizen,
+- [59:28.760] that never once, never once in my life has he ever said,
+- [59:33.440] "You have to do this," or, "You should do this because
+- [59:35.970] it's in the best interest of the country that I came from."
+- [59:38.300] And I think that attitude,
+- [59:40.030] to the extent that attitude dominates
+- [59:42.260] among the new generation of Americans,
+- [59:44.580] that makes Americans feel welcoming towards people
+- [59:48.100] because everybody, again,
+- [59:49.870] whether your family's been here for 300 years or one second,
+- [59:53.120] to be an American means to look out for Americans first,
+- [59:56.290] and that's the perspective we have to take
+- [59:57.850] to our immigration policy.
+- [59:59.120] Thank you.
+- [01:00:00.330] Audience Member: Thank you.
+- [01:00:02.000] The Vice President: Okay. Yeah. We'll do one more.
+- [01:00:04.560] Sorry, real quick. I love this, but I got to go.
+- [01:00:08.540] Audience Member: Thank you so much, Mr. Vice President
+- [01:00:10.690] and coming to UGA
+- [01:00:13.350] and allowing us to express our freedom of speech.
+- [01:00:16.820] So thank you so much.
+- [01:00:18.830] The first lady said Epstein was not acting alone
+- [01:00:22.970] and had to be held accountable.
+- [01:00:24.740] She said and called for a congressional hearing,
+- [01:00:28.160] but President Trump multiple times called the files a hoax.
+- [01:00:32.390] The acting Attorney General said Epstein
+- [01:00:34.610] shouldn't be a part of anything at the DOJ.
+- [01:00:37.710] If there are compromised government officials
+- [01:00:40.480] in those files,
+- [01:00:41.740] how can the public trust that this administration
+- [01:00:45.070] will hold anyone accountable when its own justice department
+- [01:00:48.900] is actively blocking the investigation?
+- [01:00:52.140] Given that, can you clearly articulate your stance
+- [01:00:55.750] on whether federal entities
+- [01:00:59.070] should have a formal investigation?
+- [01:01:00.950] Thank you.
+- [01:01:02.240] The Vice President: Yeah. So first of all,
+- [01:01:08.120] you said the Associate Attorney General something.
+- [01:01:10.490] I haven't seen that quote,
+- [01:01:11.790] but here's my view on the Epstein matter.
+- [01:01:15.170] Number one, the guy was clearly a scumbag. Okay?
+- [01:01:18.820] Number two, he clearly had extraordinary connections
+- [01:01:22.500] both with intelligence services,
+- [01:01:24.040] both inside the United States and outside the United States,
+- [01:01:26.990] and also with a lot of very wealthy and powerful people.
+- [01:01:29.410] Okay?
+- [01:01:30.650] Number three, I have been a firm advocate
+- [01:01:33.240] and will continue to be a firm advocate
+- [01:01:35.320] of where we have something.
+- [01:01:37.180] And I'm probably more obsessed with this
+- [01:01:40.940] than most officials, okay? Probably more obsessed with this
+- [01:01:43.970] than most people even in this room,
+- [01:01:45.830] is when you see somebody who says something
+- [01:01:48.320] in an email that suggests, there's one email I read,
+- [01:01:52.320] and it's been a little while ago,
+- [01:01:53.570] but it was talking about one person
+- [01:01:55.830] sent an email to Jeffrey Epstein saying,
+- [01:01:58.460] "Oh, there was some really nice pizzas and grape sodas,"
+- [01:02:01.440] or something like that.
+- [01:02:02.690] And I remember it sounded
+- [01:02:03.970] like the pizza gate conspiracy theory,
+- [01:02:05.770] but here it was in an email from a guy.
+- [01:02:08.650] And my reaction to that was,
+- [01:02:10.250] "We should absolutely investigate that person."
+- [01:02:13.110] And you remind me, I'm going to follow up on that
+- [01:02:16.400] to see whether we've investigated that person
+- [01:02:18.310] because we should. We absolutely should.
+- [01:02:20.170] When you see evidence of sexual assault, sexual misconduct,
+- [01:02:23.470] regardless of whether you're powerful or not,
+- [01:02:25.190] in fact, you should probably investigate it more
+- [01:02:27.600] if you're a powerful person.
+- [01:02:29.240] I don't want powerful people being involved
+- [01:02:33.510] in this disgusting behavior,
+- [01:02:34.790] but I have to defend the president on this
+- [01:02:36.910] because when he said that it was a hoax,
+- [01:02:39.950] what he was talking about was this Democratic idea
+- [01:02:42.980] that he's connected to Epstein.
+- [01:02:45.430] If you look at those emails, it's like they were in the same,
+- [01:02:49.830] everybody in Palm Beach knew everybody, okay?
+- [01:02:52.730] The president has said he knew Jeffrey Epstein
+- [01:02:54.650] and he was a scumbag. But what you see in those emails
+- [01:02:57.350] is that Jeffrey Epstein hated Donald Trump
+- [01:03:00.880] and Donald Trump hated Jeffrey Epstein.
+- [01:03:02.590] In fact, one of the emails is about Donald Trump
+- [01:03:05.390] narcing on Jeffrey Epstein to the local sheriff saying,
+- [01:03:08.240] "This guy's a scumbag.
+- [01:03:09.570] You should go and pick him up." So when Donald Trump says,
+- [01:03:12.470] when the president says this is a hoax,
+- [01:03:14.940] he's not saying it's a hoax that Epstein was the scumbag.
+- [01:03:17.500] He's not saying that it's a hoax
+- [01:03:18.820] that Epstein was connected to powerful people.
+- [01:03:21.660] He's saying this Democratic idea
+- [01:03:23.840] that somehow he was Epstein's best friend, that is a hoax.
+- [01:03:27.160] And if you look at the emails,
+- [01:03:28.480] it's obvious that Jeffrey Epstein hated Donald J. Trump.
+- [01:03:31.680] And by the way, one of the best signs
+- [01:03:35.500] for whether you're a good person or not,
+- [01:03:37.260] for whether you're a decent human being
+- [01:03:39.070] is if the worst people in the world hate your guts.
+- [01:03:41.780] The fact that Jeffrey Epstein hates Donald J. Trump
+- [01:03:43.800] is a pretty good thing for Donald J. Trump.
+- [01:03:46.910] Andrew Kolvet: Yeah. I will say, by the way,
+- [01:03:49.360] just so you know, the DOJ, just before we got on stage,
+- [01:03:52.150] I guess I saw the news has unredacted
+- [01:03:55.480] fully the six million documents,
+- [01:03:58.530] made it available to your congressmen and women.
+- [01:04:00.980] So put pressure on them to go give you
+- [01:04:02.760] a report of what they find.
+- [01:04:04.330] Mr. Vice President, thank you so much.
+- [01:04:06.240] The Vice President: Thank you, guys.
+- [01:04:07.480] Appreciate you.
+- [01:04:09.690] (cheers)
+- [01:04:16.650] Bye you all. Thank you.
+- [01:04:18.240] (cheers)
+- [01:04:21.140] My big fat head. Bye. Thank you all.
+- [01:04:26.100] ♪ (music playing) ♪

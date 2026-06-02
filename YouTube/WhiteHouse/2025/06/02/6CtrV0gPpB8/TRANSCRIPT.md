@@ -1,0 +1,184 @@
+<!-- source: https://www.youtube.com/watch?v=6CtrV0gPpB8 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 6CtrV0gPpB8 -->
+<!-- date_published: 2025-06-02T19:12:54+00:00 -->
+<!-- date_accessed: 2026-06-02T01:25:05.106780+00:00 -->
+
+# Transcript: President Trump Gaggles with Press at Joint Base Andrews, May 30, 2025
+
+- [00:04.037] The President: It was a great trip to a fantastic
+- [00:07.073] place, the Commonwealth, Pennsylvania.
+- [00:09.809] The steelworkers are very happy.
+- [00:12.746] We did the tariffs.
+- [00:14.447] It's going to put them -- even and make them even
+- [00:16.416] more competitive.
+- [00:17.784] And it's turning out to be a great deal.
+- [00:19.319] I think it's going be a fantastic deal.
+- [00:21.254] Seventeen billion dollars is being invested for new
+- [00:27.560] steel mills, new everything, and it's going
+- [00:29.295] to be something special.
+- [00:30.497] So, that was in honor of the steelworkers of
+- [00:34.501] Pennsylvania, and it was a fantastic time.
+- [00:36.669] We had a great day.
+- [00:38.138] And it is raining quite hard, but that's okay.
+- [00:40.373] How are you?
+- [00:40.840] Go ahead.
+- [00:41.708] The Press: (inaudible) Pennsylvania the steel
+- [00:42.742] capital of the world again?
+- [00:44.511] The President: I think that's going to happen.
+- [00:45.545] I think it's going happen.
+- [00:47.213] Not much.
+- [00:48.114] We just had $17 billion given.
+- [00:51.017] And again, we're going to have control in the U.S.
+- [00:53.219] It's going to be a USA deal.
+- [00:55.455] The board is controlled.
+- [00:56.890] More importantly, the money is built -- you
+- [00:58.525] know, spent on facilities.
+- [01:00.460] You can't take them and leave and let's put them
+- [01:02.796] in a boat.
+- [01:03.396] Somebody said, well, what about that?
+- [01:04.597] Supposing they leave?
+- [01:05.832] Well, the money's invested on the, you know, on brick
+- [01:08.501] and mortar.
+- [01:09.302] You can lift it up and take it.
+- [01:11.004] But I think much more importantly, that's going
+- [01:13.006] to be a great partnership.
+- [01:14.874] And the company, Nippon, is coming in with 17
+- [01:17.544] billion plus.
+- [01:19.112] So it's going be fantastic for all steelworkers.
+- [01:22.449] The Press: (inaudible).
+- [01:26.386] The President: It's controlled by the United
+- [01:29.823] States and, more importantly, they're
+- [01:32.225] spending the money on brick and mortar.
+- [01:33.793] You can't take it.
+- [01:35.228] What are you going to do?
+- [01:36.362] Pick it up and move it to Japan?
+- [01:37.664] That's not going to happen.
+- [01:38.932] And, you know, I rejected this about four times now,
+- [01:43.303] and when they finally got it right, I liked it a
+- [01:45.305] lot.
+- [01:46.172] And you can see how happy the steelworkers were.
+- [01:48.975] More importantly, you can see from the union's
+- [01:50.710] standpoint, the union loved it.
+- [01:53.146] The Press: (inaudible) means thousands of jobs in
+- [01:55.148] Pennsylvania, right?
+- [01:57.250] Many more from the state of Pennsylvania going
+- [01:59.385] forward, isn't it?
+- [02:00.820] The President: I like this man.
+- [02:01.721] I like him.
+- [02:04.123] The Press: (inaudible)
+- [02:06.726] The President: No, I wasn't.
+- [02:07.861] I think he's fantastic.
+- [02:09.329] I think Elon is a fantastic guy.
+- [02:11.798] And I'm not troubled by anything with Elon.
+- [02:15.869] I think he's fantastic, did a great job.
+- [02:18.805] And you know, DOGE continues.
+- [02:20.373] And by the time it's finished, we'll have
+- [02:22.375] numbers that will knock your socks off.
+- [02:25.011] It's going to be -- he did a fantastic job.
+- [02:27.514] And he didn't need it.
+- [02:28.715] He didn't need to do it.
+- [02:30.750] The Press: How do you replace him?
+- [02:32.685] The President: He's not easily replaced.
+- [02:35.421] The Press: (inaudible).
+- [02:38.858] The President: No, I have to approve the final deal.
+- [02:41.327] The Press: (inaudible).
+- [02:44.030] The President: Well, you'll see.
+- [02:45.164] I mean, but I have to approve the final deal
+- [02:47.000] with Nippon.
+- [02:48.401] And we haven't seen that final deal yet.
+- [02:50.937] But they've made a very big commitment, and it's a
+- [02:53.973] very big investment.
+- [02:55.675] It's the largest investment in the history
+- [02:58.344] of the state of Pennsylvania in any deal,
+- [03:00.647] not just steel.
+- [03:02.215] And it's thousands of steel workers, and not
+- [03:04.284] only there, all throughout the country.
+- [03:07.453] The Press: (inaudible) that would (inaudible)
+- [03:12.425] sanctions on Russia?
+- [03:13.927] The President: I don't know.
+- [03:14.761] I have to see it.
+- [03:15.595] I'll take a look at.
+- [03:15.895] The Press: Are you confident that your
+- [03:17.397] proposal for a ceasefire in Gaza that was just
+- [03:20.867] submitted this week will get approved by Hamas?
+- [03:24.737] The President: I think they want to get out of
+- [03:26.906] that mess.
+- [03:28.007] They're in a big mess, I think they want out of it.
+- [03:30.910] The Press: (inaudible).
+- [03:40.787] The President: Well, Japan very much wants to make a
+- [03:42.188] trade deal.
+- [03:42.889] I don't think this has much to do with it.
+- [03:45.258] But certainly, it certainly won't hurt
+- [03:48.294] because we have a very good relationship with
+- [03:49.963] Japan.
+- [03:51.064] But, as you know, Japan is in there right now
+- [03:52.966] negotiating as we speak, and they want to very much
+- [03:55.501] make a deal.
+- [03:56.569] I think the deal I'm most proud of is the fact that
+- [03:59.405] we're dealing with India, we're dealing with
+- [04:01.174] Pakistan, and we were able to stop potentially a
+- [04:04.110] nuclear war through trade, as opposed through
+- [04:06.746] bullets.
+- [04:07.847] You know, normally they do it through bullets, we do
+- [04:09.582] it through trade.
+- [04:10.883] So, I'm very proud of that.
+- [04:13.152] Nobody talks about it, but we had a very nasty
+- [04:17.256] potential war going on between Pakistan and
+- [04:19.592] India.
+- [04:20.760] And now, if you look, they're doing fine.
+- [04:24.430] It was getting very bad.
+- [04:25.431] It was getting very nasty.
+- [04:26.566] They're both nuclear powers.
+- [04:28.568] The Pakistan representatives are coming
+- [04:32.105] in next week.
+- [04:33.539] And India, as you know, we're very close to making
+- [04:35.575] a deal with India.
+- [04:38.678] And I wouldn't have any interest in making a deal
+- [04:40.713] with either if they were going to be at war with
+- [04:42.982] each other.
+- [04:43.916] I was not going to let them, no.
+- [04:45.785] The Press: Your message to the G7 here in two weeks.
+- [04:47.220] You're going to Canada.
+- [04:48.287] Mark Carney up there, obviously, has a different
+- [04:50.023] view of the world than you do when it comes to energy
+- [04:52.892] clearly.
+- [04:54.027] What's your message going to be at G7 in a couple of
+- [04:56.029] weeks?
+- [04:57.063] The President: Well, it's in Canada, and he's a very
+- [04:58.831] nice guy, by the way, Mark Carney.
+- [05:00.633] I think he's really a very very nice person, and
+- [05:03.102] we've had some good talks.
+- [05:04.137] We'll see what happens.
+- [05:05.605] We'll se what happens.
+- [05:07.306] The Press: Are you aware (inaudible) somebody's
+- [05:10.576] been impersonating her?
+- [05:11.978] The President: I've heard that, yeah.
+- [05:13.446] The Press: (inaudible)
+- [05:14.681] The President: No, she's an amazing woman.
+- [05:17.316] She can handle it.
+- [05:18.584] But I've heard that they breached her boat or they
+- [05:21.754] tried to impersonate her.
+- [05:23.990] Nobody can impersonate Suzy.
+- [05:26.125] There's only one Suzy.
+- [05:29.295] The Press: (inaudible)
+- [05:36.736] The Press: Well, they're going to be okay.
+- [05:37.970] It's going to work out fine.
+- [05:38.938] We just want to check out the individual students.
+- [05:41.941] We have to - and that's true of all colleges.
+- [05:43.976] And I don't know why Harvard is not giving us
+- [05:45.778] the list.
+- [05:46.813] There's something going on because Harvard is not
+- [05:48.581] giving a list.
+- [05:50.049] They ought to give us a list and get themselves
+- [05:51.751] out of trouble.
+- [05:53.286] But they don't want to give the list because they
+- [05:55.254] have names on there that supposedly are quite bad.
+- [05:58.391] We want people that can love our country and take
+- [06:00.426] care of our country and cherish our country.
+- [06:03.730] And for some reason, Harvard doesn't want to
+- [06:06.365] give us a list.
+- [06:07.200] I would suggest you all get out of the rain now.
+- [06:09.102] Goodbye, everybody.
+- [06:10.435] Have a good time.

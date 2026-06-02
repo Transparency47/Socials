@@ -1,0 +1,1739 @@
+<!-- source: https://www.youtube.com/watch?v=QSUsXH3Ft6I -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: QSUsXH3Ft6I -->
+<!-- date_published: 2026-02-05T17:15:43+00:00 -->
+<!-- date_accessed: 2026-06-02T01:05:52.065080+00:00 -->
+
+# Transcript: President Trump Attends the National Prayer Breakfast
+
+- [00:01.420] Announcer: Ladies and gentlemen, please welcome
+- [00:03.180] Pastor Paula White, Senior Advisor,
+- [00:05.200] to the White House Faith Office.
+- [00:07.570] (applause)
+- [00:13.680] Paula White: Good morning.
+- [00:15.420] It is an honor to stand in this sacred
+- [00:17.930] gathering where faith, leadership, and conscience
+- [00:21.420] meet at the National Prayer Breakfast,
+- [00:24.190] a moment that reminds our nation
+- [00:25.680] and the world that faith matters, prayer matters,
+- [00:29.450] and awareness of God's sovereignty matters,
+- [00:33.060] something the President reminded us of last year
+- [00:36.720] when he publicly gave God praise for the miracle of his life
+- [00:41.270] and God's sovereign plan.
+- [00:43.410] This morning we gather not only to pray,
+- [00:46.240] but to give thanks. We give thanks for a president
+- [00:49.520] who understands that faith is not a private afterthought,
+- [00:53.690] but a public good.
+- [00:55.540] A president who has not merely spoken about faith,
+- [00:59.090] but has acted to protect it, defend it,
+- [01:03.120] and to elevate it to the highest level possible.
+- [01:07.790] I stand before you today with a very unique perspective.
+- [01:12.830] I've known this president for more than 25 years.
+- [01:17.350] I've had a front row seat,
+- [01:19.500] not just to the public moments the world sees,
+- [01:23.130] but to the private ones that most will never see.
+- [01:26.600] And it is there, away from the cameras and the crowds,
+- [01:30.260] that character is truly revealed.
+- [01:33.590] I've seen his compassion when no one was looking.
+- [01:37.530] I've witnessed his generosity when there was nothing to gain.
+- [01:42.360] I've watched him step in to help the forgotten,
+- [01:45.600] the overlooked, the vulnerable,
+- [01:48.710] not because it was politically expedient,
+- [01:52.120] but because it was the right thing to do.
+- [01:55.010] And more than 20 years ago,
+- [01:56.320] I was in his office in Trump Tower,
+- [01:59.010] and a well-known minister and my friend were with me.
+- [02:02.130] As the conversation was happening,
+- [02:04.470] the President turned, not to the famous voice in the room,
+- [02:08.840] but to my friend, and simply asked her what she did.
+- [02:13.040] She said, sir, I serve on the streets,
+- [02:15.860] the broken, the homeless, those struggling with addiction
+- [02:19.930] and women trapped in prostitution.
+- [02:22.520] Without any hesitation, he called for his executive
+- [02:26.010] assistant to bring his checkbook.
+- [02:28.030] And he said, now that is real ministry.
+- [02:31.690] And he gave, not for recognition or for credit,
+- [02:34.310] no one outside of that room ever knew.
+- [02:37.580] But he continued to support that work quietly, faithfully.
+- [02:43.040] And privately for a very long time.
+- [02:46.320] Scripture commands us to care for the widow and the orphan,
+- [02:49.520] to defend the poor, and to love mercy.
+- [02:52.780] I've seen this president live that out quietly,
+- [02:55.990] time and time again, through actions, not just words.
+- [03:01.470] And a senior advisor to the President
+- [03:03.130] of the White House Faith Office, and my White House director
+- [03:06.560] Jenny Korn is up here, I can say without hesitation
+- [03:11.650] that no president in modern history,
+- [03:14.990] or perhaps all of history, has done more,
+- [03:18.790] structurally, substantively,
+- [03:21.810] and sincerely, to elevate and protect religious liberty.
+- [03:26.380] For the first time in my life, I
+- [03:36.070] For the first time in our nation's history,
+- [03:38.930] faith has been institutionally elevated through the creation
+- [03:42.780] of the historic White House
+- [03:44.210] Faith Office, our one-year anniversary.
+- [03:47.750] Not a symbolism, but a substance.
+- [03:50.420] Housed in the West Wing,
+- [03:52.600] it ensures that people of faith are essential partners
+- [03:55.660] in serving the vulnerable,
+- [03:57.210] strengthening families, defending life,
+- [03:59.930] and shaping the soul of nation here and abroad.
+- [04:03.840] The president understands something very profound,
+- [04:07.220] that faith is not a threat to freedom.
+- [04:09.880] It is its foundation. That prayer is not weakness.
+- [04:19.850] It is wisdom, and that leadership at its best
+- [04:23.860] is accountable not only to the people, but to God.
+- [04:28.770] At a time when faith is under pressure globally,
+- [04:31.140] this president has stood on his shame,
+- [04:34.250] championing religious freedom at home and abroad,
+- [04:38.330] defending persecuted believers.
+- [04:47.560] And affirming that America will always be a nation
+- [04:50.020] where people are free to worship, free to speak,
+- [04:53.620] and free to live their conscious.
+- [04:56.890] He is bringing peace through great strength.
+- [04:59.790] In fact, President Trump has brought religion back
+- [05:03.920] to this nation and beyond.
+- [05:10.130] It is my great honor to introduce,
+- [05:12.830] and I think I can say this not as senior advisor,
+- [05:15.180] but as his friend, the GOAT, the greatest of all time,
+- [05:19.980] the greatest champion of faith
+- [05:22.060] that we have ever had in the executive branch,
+- [05:26.120] the 45th and 47th president. Stand to your feet
+- [05:29.250] and give him the biggest welcome of the United States,
+- [05:31.940] a man I am honored to call friend,
+- [05:34.320] President Donald J. Trump.
+- [05:37.760] (applause)
+- [06:49.940] The President: Well, thank you very much
+- [06:51.200] and thank you to Pastor Paula. Paula's an incredible woman.
+- [06:55.440] She's been with me a long time, right from the beginning.
+- [06:59.210] This is a beautiful American tradition
+- [07:03.040] and it's a true honor to be back with so many incredible leaders
+- [07:06.770] and people of faith at the National Prayer Breakfast.
+- [07:11.210] I think I've been here just about every time.
+- [07:14.040] It's hard to turn it down.
+- [07:15.250] I don't have the courage to turn it down.
+- [07:16.910] Sometimes I want to -- come back from a horrendous trip
+- [07:22.890] fighting people that can't stand us,
+- [07:25.620] keeping us out of wars and seeing things
+- [07:28.620] that nobody would believe that anybody would see.
+- [07:32.500] And last time I came, it was -- I got in at 4:00 in the morning.
+- [07:36.740] They said, sir, you're going to be speaking at seven.
+- [07:39.430] I said really, oh, that's wonderful.
+- [07:43.060] I said where. National Prayer Breakfast.
+- [07:45.090] I said I'll be there, I'm afraid not to be.
+- [07:48.040] I need all the help I can get.
+- [07:56.690] And you know, I never get a fair break
+- [07:58.810] from the fake news which is back there.
+- [08:00.380] That's a lot of fake news, aye yai yai.
+- [08:03.210] Because last time I was having a lot of fun,
+- [08:05.440] we had a big room, we had 60,000 people
+- [08:07.350] and I'm talking about the fact
+- [08:08.960] that I will never make it to heaven.
+- [08:11.610] I will never ever -- and I was being funny;
+- [08:13.340] I was trying to be.
+- [08:14.540] You know, you can't be sarcastic with them
+- [08:16.370] because they write your words and they don't --
+- [08:19.080] the people who are reading the words
+- [08:20.590] are much different than that.
+- [08:21.810] But I said I'm never going to make it to heaven.
+- [08:24.100] I just don't think I qualify.
+- [08:26.780] I don't think there's a thing I can do.
+- [08:28.620] But all of these good things I'm doing, including for religion.
+- [08:31.630] You know, religion is back now hotter than ever before.
+- [08:34.230] I mean, I have to tell you.
+- [08:37.850] But I said even though I did that and so many other things,
+- [08:40.610] I named things, I said I won't qualify,
+- [08:42.290] I'm not going to make it to heaven.
+- [08:43.780] And The New York Times did a front-page story
+- [08:46.180] that Donald Trump is questioning his life
+- [08:50.100] and the meaning of his life. No, I was just having fun.
+- [08:53.800] I really think I probably should make it.
+- [08:56.500] I mean, I'm not a perfect candidate,
+- [08:58.000] but I did a hell of a lot of good for perfect people.
+- [09:01.350] That's for sure, right, right, Mr. Speaker?
+- [09:06.250] But I want to thank the dozens of members of Congress
+- [09:08.670] here this morning,
+- [09:09.960] including a man of immense faith and immense talent.
+- [09:13.660] He's a very talented man. He is a small minority.
+- [09:18.500] It's really because we go back and forth
+- [09:21.220] between minority and majority
+- [09:23.840] and, half the time, we're minority and we still win.
+- [09:26.020] How do we win with a minority?
+- [09:27.470] You know, we have a couple of people
+- [09:28.740] that I consider to be negative.
+- [09:31.850] But we're one up, two up, sometimes we're three up.
+- [09:36.540] In fact, we'll have two more victories very soon.
+- [09:38.980] We'll be three up,
+- [09:40.270] and we consider that having a massive majority, OK.
+- [09:44.210] Right, Mike? That's like, that's considered -- we're not spoiled.
+- [09:47.700] Can you imagine if we ever picked up like 20 or 30 seats?
+- [09:50.650] Wouldn't that be great? That would be too easy.
+- [09:52.740] I think it would be too easy. It wouldn't be fun.
+- [09:56.620] I get these calls from Mike.
+- [09:58.160] Sir, could you speak to so and so, 3:00 in the morning.
+- [10:01.800] You know, we have two types.
+- [10:03.710] We have the type that goes along with us
+- [10:05.810] and believes in us and they're with us all the way.
+- [10:09.030] And that I would say is 95 percent, right.
+- [10:12.330] And then we have the type that needs a little love
+- [10:16.310] all the time, no matter what it is.
+- [10:19.180] For the easiest thing on religion or republicanism,
+- [10:23.350] the easiest thing to pass, they always make it difficult,
+- [10:26.910] but they always get there.
+- [10:29.200] But I have to call them always at three in the morning.
+- [10:32.940] I'll always get that call. Sir, Speaker Johnson's calling.
+- [10:38.990] So, I get up, hi, Mike, what's up?
+- [10:40.800] What time is it? It's three in the morning.
+- [10:43.910] Sir, we have nine names that're giving us difficulty.
+- [10:46.800] They want to have a phone call.
+- [10:49.220] I said, all right, let's go. Here we go.
+- [10:52.280] Same nine all the time, right? You know?
+- [10:57.600] So I call up. I say Chip, how you doing, Chip?
+- [11:04.850] Hello, sir. Sir, I can't quite get there.
+- [11:07.470] I just don't know. Could I come over for breakfast?
+- [11:11.020] You know, we have a 9:00 vote, right?
+- [11:13.600] I said really, is it not --
+- [11:16.130] Sir, I just -- you got to get me there, sir.
+- [11:20.450] Let's have breakfast, Chip, great.
+- [11:22.870] Then I get others, pretty much the same nine.
+- [11:26.490] I don't want to name too many, but I would --
+- [11:30.900] and they always get there.
+- [11:32.190] We have one that doesn't get there.
+- [11:33.770] We have one guy, he's an automatic no,
+- [11:38.500] no matter what. If we did welfare reform,
+- [11:41.620] if we did the greatest thing in history for religion,
+- [11:45.490] no matter what we did, no matter how good it is,
+- [11:47.710] greatest tax cuts in --
+- [11:48.970] we just did the greatest tax cuts in history.
+- [11:50.970] He voted against.
+- [11:52.710] He voted -- no matter what we do,
+- [11:58.780] this moron, no matter what it is.
+- [12:03.100] We could put them all together.
+- [12:04.680] I think, Mike, what would you say the top five things,
+- [12:07.740] name them, we'll put them in one bill
+- [12:10.110] and we'll put them before, we'll get 100 percent vote,
+- [12:12.190] except for this guy named Thomas Massie.
+- [12:16.330] There's something wrong with him.
+- [12:18.480] We call him Rand Paul Jr.
+- [12:20.360] You know, it's like they just vote no.
+- [12:22.640] They love voting no. They think it's good politically.
+- [12:24.920] The guy's polling at about nine percent.
+- [12:27.350] It's not good, but we have great support
+- [12:29.870] and we have great support for religion.
+- [12:32.300] You know, I've done more for religion
+- [12:35.200] than any other president.
+- [12:36.410] When Paula was saying that, it was so nice.
+- [12:38.310] I was proud of it and I said that's true.
+- [12:40.080] I told the people backstage, what she said is true.
+- [12:43.100] Who else would say that, right? But it is true.
+- [12:45.800] But then I said, but that's not saying much
+- [12:48.690] because not too many presidents have done too much for religion.
+- [12:51.530] I want to tell you that, certainly modern day.
+- [12:55.460] Certainly modern day presidents, they didn't.
+- [12:58.090] They bailed out on you.
+- [12:59.700] They bailed out. They want to be neutral.
+- [13:02.010] They want to be neutral or against.
+- [13:03.770] You know, the Democrats are against.
+- [13:05.730] I don't know how a person of faith can vote for a Democrat.
+- [13:08.620] I really don't.
+- [13:11.180] And I know we have some here today
+- [13:12.790] and I don't know why they're here
+- [13:14.060] because they certainly don't give us their vote.
+- [13:16.360] I certainly know that we're not going to be convincing them
+- [13:18.900] to vote for a little thing called voter ID.
+- [13:23.490] It polls at 97 percent, and even the Democrats --
+- [13:27.630] the people, the voters are at 82 percent for voter ID,
+- [13:31.260] but the leaders don't want to approve it.
+- [13:33.880] They said they will strike,
+- [13:35.260] they will not allow it to happen.
+- [13:37.050] It's polling at over 90 percent.
+- [13:39.320] It's called voter identification.
+- [13:40.690] When you go to the polls, you show, yes, my name is
+- [13:43.580] so-and-so and I live in the country.
+- [13:45.870] I'm here, I can vote. They say, that's not allowed
+- [13:49.730] and everyone's trying to figure it out.
+- [13:52.770] And they do something to win. You know what it is, they cheat,
+- [13:57.210] but let's get on to another subject.
+- [13:59.580] No, at that, they're the finest,
+- [14:01.830] probably anywhere in the world, I would say.
+- [14:04.300] But we're trying to pass voter ID and other things
+- [14:06.570] and other things having to do with your religion.
+- [14:09.690] And getting the Democrats to vote is very, very tough.
+- [14:13.430] But we're grateful to the co-chairs of the breakfast,
+- [14:17.920] Representatives Ben Kline and Jonathan Jackson
+- [14:22.020] and Governor Bill Lee of Tennessee.
+- [14:23.770] Thank you very much. Thank you very much.
+- [14:27.370] Thank you very much.
+- [14:31.670] And I want to thank a man who's been with me for a long time.
+- [14:34.540] We've been friends.
+- [14:35.900] And I used to be interviewed by him
+- [14:37.670] and all he wanted to talk about was war.
+- [14:39.370] I said, this guy. You know, he's very smart,
+- [14:42.250] went to the top, top schools and was a top student.
+- [14:46.180] He's like me. I was a very good student too,
+- [14:47.890] but nobody would think so, you know?
+- [14:49.370] And nobody thinks Pete was a good student.
+- [14:51.660] They think of him as a tough cookie, flamethrower,
+- [14:54.610] which I like actually in the position of secretary of War.
+- [14:58.260] I just -- but he has done some job, Pete Hegseth.
+- [15:08.020] You know, he was very popular.
+- [15:09.240] He turned down a very large five year extension contract
+- [15:12.660] for millions of dollars a year.
+- [15:14.010] Oops, I don't want to say that. Your wife is here.
+- [15:16.150] She's saying, are you crazy? He's got the greatest wife,
+- [15:20.640] but it's true that Pete has just been incredible.
+- [15:23.680] And I used to go and be interviewed on Fox and Friends.
+- [15:27.010] Remember those beautiful days?
+- [15:28.370] And I'd say, what do you want to talk about?
+- [15:30.410] Sir, I want to talk about releasing about 25 prisoners.
+- [15:35.190] They have arrested American soldiers
+- [15:37.740] because they taught them --
+- [15:38.950] they taught them how to fight and they fought really well
+- [15:43.430] and they won every battle. And now they put them in jail
+- [15:46.960] because they said they were too tough.
+- [15:49.410] I said, so how many are there, 22.
+- [15:51.720] And some of these guys were on the --
+- [15:53.710] they were fairly tough, wouldn't you say, Pete?
+- [15:55.850] But you know, it's true, we teach people how to fight
+- [15:57.650] and then you put them in jail
+- [15:58.900] because they fought a little bit too hard.
+- [16:01.260] And we -- we took care of a lot of business, but that's all.
+- [16:04.440] We didn't talk about the things --
+- [16:05.670] the normal things that a interview
+- [16:07.450] would be talking about, right?
+- [16:09.320] But I saw that and I saw his love for the military.
+- [16:12.010] It was obvious. He was always looking to protect soldiers.
+- [16:16.300] And I said, you know, he's a really smart guy.
+- [16:18.840] If I ever get this thing, I got to get it. It wasn't easy.
+- [16:22.930] You know, they rigged the second election.
+- [16:24.960] I had to win it, had to win it. I needed it for my own ego.
+- [16:28.370] I would have had a bad ego for the rest of my life.
+- [16:32.210] No, I really have a big ego, though.
+- [16:34.490] Beating these -- beating these lunatics was incredible,
+- [16:37.460] right, what a great feeling, winning every swing state,
+- [16:41.340] winning the popular vote.
+- [16:42.600] The first time, you know,
+- [16:43.880] they said I didn't win the popular vote.
+- [16:45.490] I did, but they said. So they'd always say --
+- [16:49.000] it would always start, they'd introduce me,
+- [16:51.690] while Donald Trump did not win the popular vote --
+- [16:55.480] You know, I'm sitting up being introduced
+- [16:56.930] by a Democrat or somebody
+- [16:59.060] and they say while Donald Trump did not win the popular vote,
+- [17:02.740] he won the presidency, here he is.
+- [17:05.190] I said, that was terrible.
+- [17:06.470] I said, we got to --
+- [17:07.690] we won the popular vote by a lot.
+- [17:09.460] We didn't want to play any games.
+- [17:11.060] This has been a much different --
+- [17:13.260] We had a great first term.
+- [17:15.480] We had the greatest economy in history,
+- [17:17.320] but this one's going to blow it away.
+- [17:18.740] Already, it's blowing everything away.
+- [17:20.590] We have $18 trillion coming into our country,
+- [17:23.420] blowing everything away.
+- [17:25.470] But we had a great first term. We rebuilt the military.
+- [17:29.270] You know, Biden gave a little chunk of it
+- [17:32.800] to Afghanistan, brilliantly.
+- [17:34.770] He left -- left tanks and planes and, you know, little things.
+- [17:38.310] I said, why didn't you fly the planes out?
+- [17:40.110] He said, well, nobody thought of it.
+- [17:42.720] You could have flown --
+- [17:44.500] he said, it's very hard to remove the equipment.
+- [17:46.530] Really, you couldn't fly an airplane?
+- [17:49.660] Buy 150 brand new -- $150 million brand new airplane.
+- [17:53.980] Sir, I think it's better to leave it.
+- [17:56.380] Why? It's more cost effective.
+- [17:58.490] So we leave them a brand new jet.
+- [18:00.140] I said, these people are crazy,
+- [18:02.280] but we have it under control now like you've never seen,
+- [18:04.820] and our military has never been stronger.
+- [18:06.750] And you saw that with the B-2 bombers in Iran and --
+- [18:13.950] and you saw it with -- recently with Venezuela,
+- [18:16.590] where we're getting along fantastically with leadership,
+- [18:19.590] really -- become a great relationship.
+- [18:21.890] I don't think there's been anything quite like it, ever.
+- [18:24.630] In fact, we have 50 million barrels of oil
+- [18:28.580] floating right now over to Houston and we're you know,
+- [18:32.790] we're working with them really well.
+- [18:34.210] It's -- I don't think I've ever seen anything --
+- [18:36.000] the cooperation that we have is --
+- [18:37.710] and it's great for them
+- [18:39.460] because they were they were in big trouble economically.
+- [18:44.420] And yet they have more oil than any other country in the world,
+- [18:47.000] I think except us, but they have more oil just about than any --
+- [18:50.700] and by the way, us and them,
+- [18:53.200] we have 68 percent of the world's oil.
+- [18:57.620] Now I know that doesn't mean too much
+- [18:59.320] to people of great religion. I know you want to hear about --
+- [19:03.210] but, you know, we got to keep our country strong
+- [19:05.710] and we're doing really good.
+- [19:07.360] But that's been an amazing operation.
+- [19:09.710] I would say when people saw that,
+- [19:11.700] I was just talking to a great leader from El Salvador
+- [19:15.980] and he said, man, that was some attack,
+- [19:18.220] I've never seen anything like that one.
+- [19:19.730] Right? Right? That was good even by your high standard, right?
+- [19:23.970] That was a hell of an attack.
+- [19:26.080] But we have we have a great -- a great country.
+- [19:30.410] We have tremendous leaders, we have a fantastic cabinet.
+- [19:35.900] We have unbelievable bench and one of them
+- [19:38.430] is Attorney General Pam Bondi, who may be here. Where's Pam?
+- [19:41.220] Is she here? Where? Where are you, Pam? Where?
+- [19:48.100] See, she wants to keep it nice and low key.
+- [19:51.670] You're really catching fire, by the way, Pam.
+- [19:55.190] You know, they were saying about Kristi Noem yesterday.
+- [19:58.240] I did the Super Bowl interview, sir,
+- [20:01.660] are you going to relieve Kristi Noem of her duties?
+- [20:06.540] No. Oh. I said, why would I do that?
+- [20:11.290] We have the strongest border in the history of our country.
+- [20:17.900] We have the best crime numbers we've ever had,
+- [20:22.480] going back to the year 1900.
+- [20:25.190] That's 125 years. We have the lowest crime numbers.
+- [20:28.740] Despite the fact that this horrible, world's worst --
+- [20:32.530] this is the worst president we've ever had, Biden.
+- [20:35.830] He had no idea he was president,
+- [20:37.220] so he doesn't take it personally.
+- [20:40.330] I don't want him to take it personally.
+- [20:42.500] Fortunately, he has no idea what the hell I'm saying
+- [20:46.160] and he's watching right now.
+- [20:47.360] He's happy with what he just said.
+- [20:49.000] OK. This is what we had running our country.
+- [20:52.710] But no, he was our worst president.
+- [20:54.730] We had some bad ones. We had --
+- [20:57.540] Obama was very bad, terrible divider of our country.
+- [21:01.320] He divided our -- he was a divider.
+- [21:03.820] And believe it or not, we're bringing the country together.
+- [21:05.970] You know what's bringing it together?
+- [21:07.290] Tremendous success. We're having tremendous success.
+- [21:10.200] We have more investment being made in our country
+- [21:12.200] now than any country has ever had by many times.
+- [21:16.990] If you go back 10 years, a certain country, not us,
+- [21:20.560] $3 trillion.
+- [21:22.040] We have in 11 months,
+- [21:23.300] because that 12th month is coming out next week,
+- [21:26.050] we have $18 trillion of investment coming in;
+- [21:30.270] the biggest ever was $3 trillion, many years ago.
+- [21:35.360] And one of the reasons for it is secretaries Doug Burgum
+- [21:40.640] and Doug Collins, they are drilling like --
+- [21:43.490] you know, my whole thing was drill baby drill.
+- [21:46.500] Where are they sitting? I love those two guys.
+- [21:48.970] Come on, stand up. And is Catherine there?
+- [21:52.140] That's Catherine. Yes, hi, Catherine, Chris.
+- [21:59.000] What -- they are drilling like nobody.
+- [22:01.880] I spoke with Chris yesterday, Doug, I said how are we doing?
+- [22:04.390] Sir, we're drilling more oil than anybody's ever drilled
+- [22:07.460] by double, right, by double, we're doing it.
+- [22:11.420] That's why -- I was in Iowa last week
+- [22:14.060] with the farmers who were doing very well.
+- [22:16.110] We just handed them $12 billion out of tariff money
+- [22:19.300] because they were taken advantage of by foreign
+- [22:21.660] countries, various foreign countries.
+- [22:23.430] And I said how much was it that they got hurt for?
+- [22:25.690] $12 billion. I said good, let's write them a check.
+- [22:27.820] I gave the farmers $12 billion. And they don't even want it;
+- [22:31.160] they just want to be treated fairly.
+- [22:33.640] But we're getting it from that. But we're getting it,
+- [22:35.590] nobody's ever in history and it's --
+- [22:39.840] we've never done it either,
+- [22:41.150] like anywhere close, we're taking out more energy
+- [22:44.640] out of our beautiful land, oil and gas, clean oil and gas.
+- [22:49.980] And I always say clean, beautiful coal.
+- [22:52.500] You know, I told --
+- [22:53.760] the only thing I told these two guys they have to do,
+- [22:56.080] because they're the greatest energy people
+- [22:58.210] in the world, the best.
+- [23:00.160] I said, when you mention the word coal,
+- [23:03.000] anytime you mention coal, c-o-a-l,
+- [23:07.360] anytime you mention it has to be preceded
+- [23:09.680] by two words, clean and beautiful.
+- [23:13.660] So, Doug was making a speech the other day,
+- [23:15.560] and I sort of tried to pass a note because he said --
+- [23:18.180] he mentioned coal about 40 times
+- [23:19.940] and he kept saying clean, beautiful coal, clean.
+- [23:22.490] It really only works a few times, right?
+- [23:25.730] I said no, no.
+- [23:27.110] When you say coal -- clean, beautiful.
+- [23:29.410] You know, we buy all that wind from -- we don't anymore.
+- [23:32.660] So, we haven't approved anything in wind, right, Doug, nothing?
+- [23:35.540] Because it's, you know, just it's a quick way
+- [23:37.970] of losing money, losing beauty,
+- [23:39.450] losing your fields, killing your birds.
+- [23:42.360] And other than that, it doesn't work.
+- [23:44.760] And Europe is getting -- you know,
+- [23:47.000] Europe is so bad with the windmills
+- [23:49.530] they're destroying their country with wind.
+- [23:51.350] And I was over there,
+- [23:52.790] it's not even recognizable what they've done.
+- [23:54.850] They've got a big problem on their hands.
+- [23:57.690] Between immigration and energy,
+- [24:00.520] Europe is destroying itself and they'd better get smart.
+- [24:03.110] And I love them all,
+- [24:04.380] I'm friends with every one of every country over there.
+- [24:06.720] I've helped them a lot.
+- [24:08.000] Got the GDP up from two percent to five percent, which is --
+- [24:13.380] you know, for spending, for military spending.
+- [24:15.400] Nobody thought that was possible.
+- [24:16.670] Nobody thought two percent was possible,
+- [24:18.570] got them to five percent.
+- [24:20.370] But it's not recognizable, Europe.
+- [24:23.810] If you go through the different cities, it's a very sad thing.
+- [24:28.150] And I tell it -- I went over to Davos,
+- [24:30.510] they invited me. And when I left,
+- [24:32.920] they said that may have been the stupidest invitation
+- [24:35.550] we ever gave to somebody, Switzerland.
+- [24:38.960] But they have to -- I just say it like it is,
+- [24:41.280] they're destroying their country.
+- [24:44.420] Their energy is ridiculous what they've done,
+- [24:47.410] and the immigration is -- I'm telling you,
+- [24:50.800] it's a place where many of these countries are not recognizable
+- [24:56.140] and I'd like to see them straighten it out.
+- [24:58.700] Very soon it's going to be impossible for them
+- [25:01.620] to straighten it out.
+- [25:03.310] We have our director of National and International Intelligence,
+- [25:09.250] Tulsi Gabbard, who's doing a great job.
+- [25:10.990] Where's Tulsi?
+- [25:16.960] She took a lot of heat two days ago
+- [25:18.760] because she went in --
+- [25:20.690] at Pam's insistence, she went in and she looked at votes
+- [25:26.090] that want to be checked out from Georgia.
+- [25:29.750] They say, why is she doing it? Right, Pam? Why is she doing it?
+- [25:34.030] Because Pam wanted her to do it and, you know why?
+- [25:37.360] Because she's smart.
+- [25:38.910] And they said, well, this has to do her position,
+- [25:41.300] has to do -- it's really not so,
+- [25:42.540] but her position has to do with international.
+- [25:45.500] I say, well, the same people that said
+- [25:47.850] that they've been saying Russia, Russia,
+- [25:49.580] Russia has been screwing our elections, OK?
+- [25:52.470] So, let's assume Russia had something to do with it.
+- [25:55.970] They say no, no, Russia didn't have.
+- [25:57.770] So, now they're saying Russia had nothing to do with it
+- [26:00.580] because if I say Russia that it's perfectly fine.
+- [26:02.650] But you could add China
+- [26:03.910] and about five other countries to it.
+- [26:06.280] But she's done a great job, and Pam has done a fantastic job
+- [26:09.010] and we appreciate it, both.
+- [26:10.600] I haven't seen you in a couple of days.
+- [26:14.080] And I have one of the greatest negotiators.
+- [26:17.570] I'm so proud of him. He's a great negotiator.
+- [26:20.420] He's smart and respected by everybody.
+- [26:23.530] Jamieson Greer, US Trade. Where is Jamieson?
+- [26:26.650] He's around here someplace. Thank you, Jamieson.
+- [26:31.350] Boy, he's good. We have a great team.
+- [26:33.740] We have a great economic team, a great military team.
+- [26:36.380] We have "Razin" Caine helps, Pete,
+- [26:38.110] "Razin" Caine, General Caine.
+- [26:40.120] He wiped out ISIS in three weeks.
+- [26:43.100] I was told by General Mattis and General Milley, sir,
+- [26:46.160] it will take five years.
+- [26:48.510] I said what. Sir, it'll take five years.
+- [26:52.880] I said, you mean we have the best equipment in the world
+- [26:56.100] and we're finding guys that use bad rifles, knives preferably.
+- [27:01.300] They're very good with a knife, but a knife shouldn't do it.
+- [27:04.270] And I said why, and I flew over to Iraq
+- [27:06.950] and I met a guy named Caine.
+- [27:11.280] I came out of the plane
+- [27:12.850] and there's this handsome general
+- [27:14.280] standing there, three generals. I went there to find out
+- [27:16.750] why the hell we couldn't win the war.
+- [27:18.190] Why aren't we winning the war against ISIS?
+- [27:22.610] They've been playing games with us.
+- [27:25.470] So, I wanted to see and I met --
+- [27:27.740] that's where I met "Razin" Caine.
+- [27:31.350] I said what's your first name. "Razin", sir?
+- [27:33.330] They call me "Razin".
+- [27:35.590] I said what the hell kind of name is that, right?
+- [27:40.930] We've learned a lot about him.
+- [27:42.320] Now we get it and this very quiet manner.
+- [27:44.890] He's brutal, just ask Venezuela, ask Iran.
+- [27:51.990] They're negotiating now.
+- [27:53.310] They don't want to -- they don't want us to hit them.
+- [27:55.850] You know, we have a big fleet going over to Iran.
+- [27:59.080] But so, "Razin" was there at the bottom of the plane.
+- [28:03.000] What's your name? "Razin". What's your last name? Caine.
+- [28:06.390] I said, so your name is -- let's get this straight,
+- [28:08.290] your name is "Razin" Caine, right?
+- [28:11.410] Yes, sir, that's what they call me.
+- [28:13.110] You're the guy I'm looking for.
+- [28:16.840] And then he said, sir, if you'd like,
+- [28:18.230] you can go and sleep -- you know, it's a 20-hour trip.
+- [28:20.900] If you'd like, you can go and sleep,
+- [28:22.460] we have quarters prepared for you.
+- [28:25.480] I said no, no, I don't have to sleep.
+- [28:28.500] I've been on a plane sleeping for 20 --
+- [28:30.270] I mean I sleep on the plane. I don't sleep on planes.
+- [28:33.640] I don't like sleeping on planes, you know.
+- [28:35.800] I like looking out the window
+- [28:37.270] watching for missiles and enemies actually.
+- [28:41.210] But he said, sir, we have a place prepared for you
+- [28:44.520] and we can meet after you've rested.
+- [28:46.520] I said no, no, no, let's go right now.
+- [28:49.370] So, we did that.
+- [28:50.570] And I said to him, I said they tell me
+- [28:53.870] it's going to take five years to defeat ISIS.
+- [28:57.550] No, sir. I said, well, how long would it be, General Caine?
+- [29:05.400] Sir, we can do it in four weeks.
+- [29:07.490] I said what? We can do it in four weeks, sir,
+- [29:12.290] and I should have maybe a couple of weeks left over.
+- [29:15.690] You mean you can do it in less than four weeks?
+- [29:17.730] Yes, sir. I said, well, how come they tell me --
+- [29:22.020] our television generals as I call them --
+- [29:24.420] two very poor generals.
+- [29:25.940] I mean, these guys, they looked nice, they were nice guys.
+- [29:28.850] They didn't have what it took, believe me.
+- [29:31.430] Some people have that;
+- [29:32.720] they don't have what it takes no matter what.
+- [29:35.190] I said, how come they tell me it's four to five years?
+- [29:39.070] He said, well, I don't want to speak badly about anybody, sir,
+- [29:41.450] I'd rather not comment on that. I found that to be nice, OK.
+- [29:45.750] But I said all right, tell me how you're going to do it.
+- [29:47.530] Well, sir, we use this one base here
+- [29:50.380] and we're hundreds of miles away.
+- [29:52.410] And by the time the planes get to the target,
+- [29:54.390] they have to come back and refuel and we're too far.
+- [29:57.580] I said why do we do that?
+- [29:58.880] Because we don't want to offend any of the other countries.
+- [30:03.350] I said we have a lot of portable airports, right, Pete?
+- [30:06.110] We have portable airports all over the Middle East,
+- [30:08.250] runways that are portable.
+- [30:09.640] You put them down; you take them up.
+- [30:11.030] We have equipment, nobody has the stuff we have.
+- [30:13.740] We have airports that look better than Kennedy Airport
+- [30:19.260] and they're built in sand
+- [30:21.650] and it took us about two minutes to build them.
+- [30:23.790] No, the equipment is incredible.
+- [30:25.170] You can land any plane on them, right, portable.
+- [30:28.340] And we've got many of them, sir.
+- [30:29.730] We have to use them. I said why don't we?
+- [30:31.870] Because we didn't want to offend another country.
+- [30:34.500] I said, let me ask you a question.
+- [30:35.950] You're in the middle of the desert.
+- [30:37.820] Would another country know if we're taking off
+- [30:39.750] from some strip in the desert? They would have no idea, sir.
+- [30:45.640] They don't have radar. They don't have anything.
+- [30:49.170] So he explained it, so we want to hit them, sir,
+- [30:51.690] from 17 different locations
+- [30:54.560] and we want to hit them left, and we hit them.
+- [30:57.400] And he would go, and we want to hit them right.
+- [31:00.870] Sir, and we want to hit them from the top
+- [31:02.730] and we want to hit them from the bottom, east, west,
+- [31:05.830] north, south, sir, they won't know what the hell --
+- [31:09.670] and we'll knock them out.
+- [31:12.980] We did it politically correct.
+- [31:16.040] Five years, we'd call up the country head
+- [31:20.590] and we'd tell them we'd like to attack ISIS today.
+- [31:24.760] As soon as the call was made, they'd call ISIS and tell them,
+- [31:28.870] you're going to be attacked, get the hell out of --
+- [31:31.040] this is what we were doing for years, not with --
+- [31:33.410] but not with "Razin" Caine and not with Pete Hegseth.
+- [31:35.870] Right, Pete, we don't do that. And we have a little different
+- [31:40.340] (inaudible)
+- [31:42.210] so I went back to Washington and I said, you know,
+- [31:45.360] this guy, he said --
+- [31:47.430] and then I checked up on him and he was so respected.
+- [31:50.840] I said, he's really like respected and I called him back.
+- [31:54.970] I said, General, go at it, do -- good luck. God bless you.
+- [32:00.900] And he said -- I say that to the people going out every time.
+- [32:04.260] And they say it, when we give the OK
+- [32:06.080] for like the attack on Venezuela or the attack on Iran,
+- [32:10.700] he says, I say, we all say, we're all in a room together,
+- [32:13.570] watching. We watch it. We watch these attacks.
+- [32:17.270] We always say, God bless you, have a safe journey.
+- [32:20.930] It's a dangerous journey. These are dangerous journeys,
+- [32:23.600] flying through the middle of Iran.
+- [32:25.000] They know you're coming and you're in a B-2 bomber,
+- [32:27.650] the most incredible thing,
+- [32:29.460] and they weren't able to see it because it's stealth.
+- [32:32.970] So good we ordered 20 more of them,
+- [32:34.630] brand new, updated version. I actually said,
+- [32:38.630] don't get the updated, just take the one you have.
+- [32:40.680] They said , no, sir, the new one's even better.
+- [32:43.350] We have a military -- nobody has a military like we do.
+- [32:45.960] I rebuilt it, by the way, during my first term.
+- [32:48.350] I mean, I think it's one of the best things I did.
+- [32:50.360] I rebuilt the military during the first term
+- [32:52.530] and now we're really rebuilding the military, right?
+- [32:57.440] But the bottom line, I called him, I said,
+- [32:59.400] so you think you can do it, General?
+- [33:00.850] Yes, sir, I can do it, and it was over in three weeks.
+- [33:03.380] It was incredible. And I mean over.
+- [33:05.760] And then the election is rigged and I wasn't there
+- [33:09.070] and for four years, ISIS rebuilt, rebuilt, rebuilt
+- [33:13.200] and they have a little bit of ISIS now again.
+- [33:16.860] And we knocked the hell out of them the other day in Nigeria
+- [33:19.580] because they were killing Christians.
+- [33:21.300] You know about that. They were killing Christians.
+- [33:23.590] I said, you can't do that.
+- [33:28.360] When Christians come under attack,
+- [33:31.740] they know they're going to be attacked violently
+- [33:34.300] and viciously by President Trump.
+- [33:36.280] I know it's not a nice thing to say,
+- [33:38.150] but that's the way it is.
+- [33:42.390] So we're also delighted to welcome visiting leaders
+- [33:46.980] and dignitaries from more than 110 countries.
+- [33:50.340] They're here, including one of my favorite people,
+- [33:54.640] President Bukele of El Salvador. He has been so incredible.
+- [33:58.790] He has been such a great ally of this country.
+- [34:01.990] Thank you very much. Such a great ally.
+- [34:06.840] He's -- some of you have seen,
+- [34:08.580] he operates rather large prisons,
+- [34:12.560] like prisons that's so large
+- [34:14.420] you can't see from one side to the other,
+- [34:16.260] unless you have perfect 20/20 eyesight with binoculars.
+- [34:20.630] That's how long and big. And they do a job.
+- [34:23.910] They do a very humane job, but they're very strong prisons.
+- [34:27.100] And we send a lot of the people that we capture,
+- [34:29.960] the murderers, the drug dealers,
+- [34:32.550] the people that came into our country illegally
+- [34:34.790] and have already committed massive crimes.
+- [34:37.250] We had 11,888 murderers and many of them
+- [34:42.190] are in your prisons right now, right?
+- [34:44.510] And he does a fantastic job. I mean, he really --
+- [34:47.440] sounds like a different kind of --
+- [34:49.010] you know, this is a religious breakfast.
+- [34:50.560] You're going to walk away and say,
+- [34:51.820] he's the meanest son of a gun I've ever seen.
+- [34:54.290] But I'm not, I just want to keep our country safe.
+- [34:56.630] It's very simple. We have to keep our country safe.
+- [35:02.580] So I want to thank you, Mr. President, for a great --
+- [35:05.450] amazing job you do with our people too.
+- [35:07.390] They work together so well, appreciate it, not easy.
+- [35:10.480] This prayer breakfast comes at a special time for our country
+- [35:13.380] as we prepare to celebrate the 250th anniversary
+- [35:17.520] of American Independence.
+- [35:25.740] And we're also very shortly
+- [35:27.390] going to have the Olympics and the World Cup.
+- [35:29.710] And you know, I got them.
+- [35:31.590] I was the one that got the Olympics
+- [35:33.180] and I was the one that got --
+- [35:34.390] and I was so upset because I got them.
+- [35:37.230] I tried to move them up, but I couldn't.
+- [35:39.620] And my first term, I was getting them and Barack Hussein Obama
+- [35:45.030] would refuse to call the Olympics
+- [35:46.890] because in all fairness, they took advantage of him.
+- [35:49.580] Remember, he went there.
+- [35:51.310] He flew all the way to whatever country,
+- [35:53.560] some beautiful country in Europe and he sat,
+- [35:57.400] he made his presentation and he ended up coming in last.
+- [36:01.050] And that shouldn't happen to a president.
+- [36:03.280] You know, if you're a president, you have to get a wink.
+- [36:05.870] I'll go there, but are you going to give us the Olympics?
+- [36:09.310] Otherwise, I'm not going there. I don't want to --
+- [36:11.540] so he sat there and made a very nice presentation.
+- [36:13.970] He came in last, came in fourth place.
+- [36:16.730] So he hated those people. He won't say that,
+- [36:19.870] I don't think, but I'll say it for him.
+- [36:22.770] And so he refused to be involved with the Olympics.
+- [36:25.150] I got a call from Democrats,
+- [36:26.530] the Democrat mayor of Los Angeles called me, sir,
+- [36:29.040] we have a problem.
+- [36:30.240] We have a president that refuses to call the Olympic Committee,
+- [36:34.180] and I just won the presidency.
+- [36:35.820] I was president elect. And so I wasn't even in office.
+- [36:40.800] And I called this gentleman from, I think Denmark,
+- [36:44.760] can you believe? They own a large piece of ice
+- [36:47.770] that we're negotiating for, extremely --
+- [36:50.330] it's the biggest piece of ice in the world.
+- [36:53.940] The largest -- world's largest piece of ice.
+- [36:58.100] They'll never run out of water.
+- [37:01.450] But I called the President, I called the various people,
+- [37:06.130] but the head of the Olympic Committee,
+- [37:08.570] a very nice guy and I couldn't get him off the phone.
+- [37:12.350] He was starving for love because nobody called him.
+- [37:16.440] They just wanted to know from the President,
+- [37:19.650] does the United States want the Olympics?
+- [37:22.150] They didn't want to choose the United States and then,
+- [37:24.490] you know, have somebody say, like, you know, we don't care.
+- [37:27.740] I said, I desperately want it,
+- [37:29.780] we're going to get it, blah, blah, blah.
+- [37:31.300] And I spoke to him, I spoke to other people and I got it.
+- [37:33.690] I called up the Democrat from Los Angeles,
+- [37:37.100] happened to be the mayor of Los Angeles.
+- [37:38.800] He was devastated. He couldn't get the --
+- [37:40.470] all they wanted to do is have an acknowledgment
+- [37:42.540] from the head of the country, wouldn't do it.
+- [37:45.170] But I did it.
+- [37:46.450] We got the Olympics and we got the World Cup.
+- [37:48.820] But then I was --
+- [37:50.020] I don't know if Gianni is here from the World Cup,
+- [37:51.830] but that guy is great. He's my great friend.
+- [37:54.070] But I got them both.
+- [37:55.450] And I was really upset because I got him
+- [37:58.840] and then I said, I won't be --
+- [38:00.910] think of it, I won't be president
+- [38:04.040] because they're in the following term.
+- [38:06.370] Because, you know, when you get the Olympics,
+- [38:07.860] usually it's 10 years in advance.
+- [38:10.380] I said, so I did all that good work.
+- [38:12.910] It wasn't that easy. I got it. Then I got the World Cup.
+- [38:16.420] They both were happening now in a year,
+- [38:19.170] another year and a half, a year, right after the 250.
+- [38:24.220] I didn't get 250.
+- [38:25.430] I tried to claim it a couple of times.
+- [38:27.650] I said -- and I produced 250 year anniversary.
+- [38:31.330] That was my deal.
+- [38:32.580] I got 250 years and the press hit me hard on that one.
+- [38:35.980] So I gave that up immediately.
+- [38:38.300] But I happen to be president during that.
+- [38:40.620] So think of it. So I'm --
+- [38:42.200] I'm the President and I got these two things
+- [38:45.450] and I said, you know what,
+- [38:46.890] I got the Olympics to come to the United States
+- [38:49.520] and I got the World Cup to come to the United States
+- [38:52.360] and I probably won't even be invited to be there.
+- [38:55.110] And I was really angry.
+- [38:56.390] And then they rigged the election.
+- [39:01.350] And then I said, I'm coming back.
+- [39:05.110] And I got the Olympics and I got the World Cup, right?
+- [39:14.090] And at some point,
+- [39:15.310] I'm going to get right back onto the teleprompter
+- [39:17.570] and you're going to say, that was a wonderful speech.
+- [39:26.300] On that momentous day in 1776 --
+- [39:33.890] isn't that -- this is so much easier.
+- [39:35.900] You know, it takes real talent to do the other.
+- [39:40.640] The other is much more talent,
+- [39:43.890] but that's why we're president, I think.
+- [39:47.630] But we have very important words to say
+- [39:50.490] and this is such an important group,
+- [39:52.850] and we have plenty of time to say it because
+- [39:55.610] when it comes to religion, I have all the time.
+- [39:58.530] I'm one of the few that say we have all the time in the world.
+- [40:02.880] But in that momentous day in 1776, history changed forever
+- [40:07.210] when our founders proclaimed the immortal truths
+- [40:10.480] that echoed around the world
+- [40:13.310] and down all the way through time.
+- [40:15.870] They declared that all of us are made free
+- [40:19.010] and equal by the hand of our creator.
+- [40:22.340] A lot of presidents refused to say that.
+- [40:25.190] They refused to say that they.
+- [40:27.630] Some refused.
+- [40:28.850] Some major politicians refuse to say the word, God.
+- [40:34.170] They don't want to say it.
+- [40:35.550] I say it, that we are endowed with our sacred rights
+- [40:39.890] to life, liberty and not by government,
+- [40:43.500] but by God Almighty himself.
+- [40:50.800] And those words rang out from Philadelphia
+- [40:53.450] and launched a revolution, not just in America,
+- [40:56.080] but in the hearts of all humanity.
+- [40:58.980] The principles of the Declaration of Independence,
+- [41:03.100] which is one of three sitting right beautifully
+- [41:08.380] in the Oval Office.
+- [41:09.810] I took it out of the vaults and it's beautiful,
+- [41:13.620] it's beautifully protected and it's a magnificent document.
+- [41:18.420] I stare at it all the time and I read it as often as I can,
+- [41:22.850] a true brilliant work of art.
+- [41:26.900] They've stirred the spirit of patriots in every nation,
+- [41:30.780] liberated millions from tyranny
+- [41:32.610] and lifted billions from poverty.
+- [41:35.140] And it's doing now more than ever before.
+- [41:37.750] We're doing better than this country has ever done --
+- [41:40.090] in one year.
+- [41:41.330] Think of what we can do, we just have to keep it going,
+- [41:43.310] Mr. Speaker, if you don't mind, OK, got to keep it going.
+- [41:47.230] But no -- and they -- I mean the Democrats admit this,
+- [41:50.060] no president in his first year
+- [41:51.650] has ever done the things we've done.
+- [41:53.650] When you think, we've gotten the largest tax cut in history,
+- [41:57.360] largest -- larger than even in the first term.
+- [42:00.660] But we've done something else
+- [42:02.430] and I think we brought back spirit to our country.
+- [42:05.820] You know, two years ago, two years ago,
+- [42:12.770] you couldn't get anybody to go into the military.
+- [42:15.080] They laughed at you
+- [42:16.910] and they said they didn't respect our country.
+- [42:18.890] They didn't respect our president.
+- [42:20.430] They thought he was a joke.
+- [42:22.580] They thought our country was a joke.
+- [42:25.070] Other countries laughed at us
+- [42:26.620] and took advantage of us with tariffs,
+- [42:28.760] and we weren't allowed to charge,
+- [42:30.290] and they were allowed to charge.
+- [42:32.450] But we are allowed to charge,
+- [42:33.920] and I hope we get that Supreme Court decision
+- [42:36.190] because we have taken in hundreds of billions
+- [42:38.650] of dollars of money, we're a rich nation again,
+- [42:42.370] doing what other nations have done to us for many, many years.
+- [42:46.720] But the biggest thing is what's happened to me,
+- [42:51.200] the spirit of our country, and that goes for religion,
+- [42:53.890] but it also goes for the military.
+- [42:56.340] We couldn't recruit anybody to go into our great military.
+- [42:59.490] We were the worst, I think, it's ever been,
+- [43:01.580] two and a half years ago
+- [43:02.790] under the sleepy Joe Biden administration.
+- [43:07.440] I call him Crooked Joe and Sleepy Joe.
+- [43:09.580] I find them to be equal actually.
+- [43:11.990] I say -- I do polls, which is better,
+- [43:14.140] Crooked Joe or Sleepy Joe?
+- [43:17.170] And they poll about even, so I use both.
+- [43:22.530] But we have now the greatest recruiting that we've ever had.
+- [43:30.370] Everybody wants to be in the military.
+- [43:33.110] We're hot as a pistol.
+- [43:34.840] We couldn't get anybody to go into the --
+- [43:37.310] not me, they -- the last administration,
+- [43:40.030] nobody wanted to be in the Army, Navy, Air Force, Marines,
+- [43:43.780] the Coast Guard, Space Force, which is turning out to be --
+- [43:46.630] I'm so proud of it because I was the --
+- [43:49.180] I'm the father of Space Force, I'm the one that wanted it, so.
+- [43:54.400] But we couldn't get people, we couldn't get people.
+- [43:57.300] They couldn't get people to go into any of them,
+- [43:59.260] including our police departments and our fire departments.
+- [44:02.700] They weren't proud of our nation.
+- [44:04.360] They had no spirit.
+- [44:05.860] And now we have had the single greatest recruitment
+- [44:08.830] in the history of our country.
+- [44:10.260] There's never been anything like it.
+- [44:11.610] We have waiting lists of people wanting to get in.
+- [44:13.730] In fact, if we want to expand the military, Mr. Speaker,
+- [44:17.640] this would be a very good time to do it.
+- [44:19.550] We have so many people who want to get into
+- [44:21.230] the military that, you know, we just --
+- [44:23.250] but we also won in the Supreme Court,
+- [44:25.890] as you know, based on merit.
+- [44:27.770] It was a merit -- and we take people based on merit.
+- [44:30.430] Like we prefer a strong person in the military
+- [44:33.810] as opposed to a weak person.
+- [44:35.790] We prefer somebody that's a strong, powerful person
+- [44:39.920] with extremely good vision that can shoot a rifle very well
+- [44:43.750] to a person that's extremely weak, non-muscular,
+- [44:50.100] can't shoot a rifle, has no idea where the hell he is.
+- [44:55.480] We have a military where they all look like
+- [44:58.580] Tom Cruise only bigger.
+- [45:03.740] No, we hire on merit now.
+- [45:05.660] And that goes for colleges, people get into colleges now.
+- [45:08.900] If you have great boards and great marks
+- [45:11.580] and you worked and worked and worked,
+- [45:12.990] and then somebody else gets in that's not nearly as qualified.
+- [45:17.980] Now it's a merit system.
+- [45:19.370] It's tough in one way, but it's --
+- [45:21.120] you know, our country was built on a system of merit
+- [45:26.210] and then we went away from it a number of years ago.
+- [45:28.610] We got it back.
+- [45:29.820] That was a brave decision by the Supreme Court,
+- [45:31.890] I'll say, and it's tough on some people.
+- [45:35.230] Actually, it makes people work harder, I think.
+- [45:38.140] But we have to base our country on merit,
+- [45:40.570] or we won't have a country.
+- [45:41.850] We were going in such a bad direction, it's incredible.
+- [45:48.300] And I give a lot of credit on that one to the Supreme Court
+- [45:51.300] and they give me some bad ones too.
+- [45:53.810] But I give a lot of credit;
+- [45:55.660] that took a lot of courage to do it,
+- [45:57.130] but they understood it was the right thing to do.
+- [45:59.250] To be a great nation, however, I think -- and I may be wrong,
+- [46:05.050] but I don't think so because I've watched a lot
+- [46:07.300] and I study a lot.
+- [46:09.460] You have to have religion; you have to have it.
+- [46:12.150] You have to have faith; you have to have God.
+- [46:14.990] And thankfully as we gather today,
+- [46:17.650] there are many signs that religion is coming back
+- [46:21.780] and now it's no longer signs.
+- [46:24.020] It's just coming back; it's coming back so strong.
+- [46:27.790] You know, your churches are filling up.
+- [46:29.630] You didn't have that two years ago.
+- [46:33.350] It was hurt by COVID, but it really --
+- [46:35.430] and they treated you terribly,
+- [46:36.790] the Democrats treated you terribly.
+- [46:38.580] Sorry, Mr. Congressman, but the truth is --
+- [46:41.660] I mean, you had pastors holding services outside.
+- [46:44.690] The people were standing 15 feet away from each other
+- [46:47.240] and everybody was arrested.
+- [46:48.740] You know, this was -- it was like they ran it.
+- [46:52.710] You know, they always like to say Trump is a dictator.
+- [46:55.830] They love that.
+- [46:57.200] I'm not a dictator, but they were like dictators.
+- [46:59.980] They were like the Gestapo;
+- [47:01.550] they were arresting people for going to church
+- [47:04.730] and they were arresting people
+- [47:06.400] and treating people like, horribly.
+- [47:09.260] And I've made a lot of amends to those people.
+- [47:12.880] Those people were treated very badly
+- [47:14.860] for wanting to go to church.
+- [47:16.090] It had a huge impact, negative impact on churches,
+- [47:18.740] but the churches are now coming back stronger than ever.
+- [47:22.090] Nobody's ever seen anything like it actually, so.
+- [47:27.670] You're all hot, OK.
+- [47:29.300] You know, it's like the king of Saudi Arabia, he said --
+- [47:32.180] and you probably heard me say it,
+- [47:33.730] I love it, I was with him.
+- [47:35.650] And he said -- a year and a half ago,
+- [47:37.350] he said, you know, a year and a half ago,
+- [47:41.580] he said we thought your country was dead
+- [47:46.240] and now you have the hottest country anywhere in the world.
+- [47:49.270] We're the hottest country anywhere in the world right now,
+- [47:51.810] nobody even close.
+- [47:53.010] I think you can say that, Mr. -- I mean, El Salvador is very hot,
+- [47:55.830] but I think we can say that right.
+- [48:02.580] We have the Congo here. I don't know. The Congo is hot.
+- [48:06.390] We just ended a war --
+- [48:08.800] one of our eight wars that we ended, right?
+- [48:12.650] We have -- he's a great guy, too.
+- [48:14.490] He's a great guy. You talk about people that suffered.
+- [48:17.140] Those people suffered.
+- [48:19.070] In 2025, more copies of the Holy Bible
+- [48:22.230] were sold in the United States
+- [48:24.510] than at any time in the last 100 years.
+- [48:28.850] Now how about that? How about that?
+- [48:34.160] Did you know that, Mr. Speaker?
+- [48:36.220] You know, Mike Johnson's a very religious person
+- [48:39.860] and he does not hide it.
+- [48:41.930] He'll say to me sometimes at lunch, sir, may we pray?
+- [48:46.380] I say, excuse me, we're having lunch in the Oval?
+- [48:50.310] It's OK with me.
+- [48:52.250] But he's a very religious person and he is popular
+- [48:55.650] and he's doing an unbelievable job.
+- [48:58.240] So, I think God is watching over you.
+- [49:00.780] God is watching over him. I don't know about me.
+- [49:03.840] So, I hang around with him
+- [49:05.180] because I feel I'm protected a little bit.
+- [49:08.320] In the last 12 months, young Americans attended church
+- [49:12.420] at nearly twice the rate as they did four years ago.
+- [49:22.320] And many churches, you see the stats,
+- [49:24.560] I mean people are talking about it.
+- [49:26.470] The radical left is not happy about it.
+- [49:29.870] Many Democrats are not happy about it.
+- [49:33.220] This, by the way, will be the last year
+- [49:35.800] that Democrats show up to this event, I tell you.
+- [49:38.530] But I've got to say,
+- [49:40.090] how the hell do you vote for these people?
+- [49:42.930] But some churches are seeing a 30 percent, 50 percent
+- [49:46.070] or even 70 percent increase in the number of converts.
+- [49:50.440] And also, the number of people going to church every week.
+- [49:54.600] To support this exciting renewal this morning,
+- [49:56.900] I'm pleased to announce that on May 17, 2026,
+- [50:02.330] that we're inviting Americans from all across the country
+- [50:05.400] to come together on our National Mall to pray,
+- [50:09.830] to give thanks and to re -- we are going to do something
+- [50:13.320] that everyone said like, that's tough.
+- [50:16.880] We're going to rededicate America as one nation under God.
+- [50:22.140] You know, a lot of people
+- [50:47.230] Yeah. Thank you very much. That's great.
+- [50:49.710] That's what I mean by -- that's what I mean by the spirit.
+- [50:52.720] It's so incredible to see it. I see it so much.
+- [50:55.690] I've never seen anything like it, in one year.
+- [50:58.140] I thought it would take two years, three years,
+- [50:59.790] four years to be where we are.
+- [51:01.690] We've done it in, I mean, really 10 months.
+- [51:05.350] We're at 12, but now it's just getting to a level
+- [51:08.170] that we've never reached before as a country,
+- [51:10.920] but that includes religion.
+- [51:12.510] I mean, maybe that's part of the reason that we're doing so well.
+- [51:15.220] There's great -- such great spirit.
+- [51:16.950] It's all spirit and it includes religion.
+- [51:19.510] I've always said, you just can't have a great country
+- [51:22.510] if you don't have religion.
+- [51:24.590] You have to believe in something.
+- [51:26.430] You have to believe that what we're doing,
+- [51:29.180] there's a reason for it. There has to be a reason for it.
+- [51:32.810] We're all working and we're doing -- we're behaving.
+- [51:37.420] I mean, I behave because I'm afraid not to,
+- [51:39.980] OK, because I don't want to get in trouble.
+- [51:44.460] No, it's such a positive thing.
+- [51:46.690] And people are starting to see it
+- [51:48.250] and they're going to church and they're meeting people
+- [51:51.810] and families are developing. It's really --
+- [51:54.610] things are happening in our country right now
+- [51:57.540] and we have to get the bad ones out.
+- [51:59.190] We have to do it. We can't let that happen
+- [52:01.160] and we're being very tough on law and order and crime.
+- [52:04.070] And I hate to say it because it doesn't seem to go hand in hand,
+- [52:07.050] but you can't have people going to churches and coming out
+- [52:12.140] and have criminals taking advantage
+- [52:15.080] and doing things that nobody wants to even describe.
+- [52:18.840] And that's not happening anymore.
+- [52:20.260] You know, Washington, DC is a very safe city now.
+- [52:22.750] When I took over, Washington, DC was a death trap.
+- [52:26.920] Many people were being killed, two, three a week.
+- [52:30.730] They were being killed. Come in from Iowa to look at the Lincoln
+- [52:36.020] Memorial, the Jefferson, the George Washington,
+- [52:40.590] the monument and they call the parents,
+- [52:44.160] I'm sorry, sir, your son has been killed.
+- [52:48.210] What? Your son has been killed. That doesn't happen.
+- [52:53.240] You know, we took out 2,000 monsters out of Washington, DC.
+- [52:58.040] It's not just that we have the troops
+- [53:00.490] and they are central casting.
+- [53:02.200] I love them. I think, to me, it looks much more beautiful.
+- [53:05.180] You walk down the street, you have three guys
+- [53:06.770] that are six foot six and angry-looking people,
+- [53:10.240] but they actually are very nice.
+- [53:12.000] They're angry when they see criminals,
+- [53:13.600] that's all. They get angry. They took Tren de Aragua.
+- [53:18.020] And honestly, I don't want to say this,
+- [53:19.690] but they beat the crap out of them.
+- [53:22.020] They beat the crap out of them.
+- [53:23.310] They found that they were doing bad things and Tren de Aragua
+- [53:28.250] didn't want anything to do with these guys.
+- [53:30.680] Then we put them in the paddy wagon,
+- [53:32.180] we took them back to where they came from.
+- [53:34.770] You know that.
+- [53:36.100] But we took out over 2,000 hardcore criminals.
+- [53:39.430] You know, two percent of the population
+- [53:44.440] produces 90 percent of the violent crime.
+- [53:48.730] Think of that. Think of that.
+- [53:52.250] And Washington now is a very safe place.
+- [53:54.830] I get it all the time.
+- [53:56.040] I go into the White House and people that work
+- [53:57.920] in the White House come up, sir, I want to thank you so much.
+- [54:02.090] Young woman, man, they say, I walk to work.
+- [54:04.960] I couldn't have walked to work.
+- [54:06.320] I wouldn't have even thought to walk to work before.
+- [54:09.320] They walk to work. The place is booming.
+- [54:12.240] Restaurants are opening up.
+- [54:13.650] The restaurants were almost going to be all closed.
+- [54:15.720] It would have been all closed. You couldn't even go.
+- [54:17.570] Even if you got there,
+- [54:18.900] the restaurant would be robbed with people sitting there.
+- [54:21.550] Hold up your hands, everybody, give us your money,
+- [54:24.820] and then they'd whack people with the butt of a gun.
+- [54:27.230] And oh, it doesn't -- Washington is a very safe city.
+- [54:32.120] We have almost no crime.
+- [54:34.300] And it's a miracle, but it took place very quickly
+- [54:38.850] and it's the same thing for every other place we've gone.
+- [54:42.030] In Louisiana, New Orleans, I got a call from the governor,
+- [54:46.400] Jeff Landry, great guy, great governor.
+- [54:49.070] He said, could you send the troops?
+- [54:50.560] Because I'll tell you what, this is --
+- [54:53.870] this place is out of control.
+- [54:56.270] I did and in a period of two weeks,
+- [54:59.060] we got crime down by 25 percent.
+- [55:01.100] Now it's been about seven or eight weeks.
+- [55:02.930] We have it down 77 percent. And within another month,
+- [55:06.830] they're not going to have any crime --
+- [55:09.230] they're not going to have any crime
+- [55:10.640] in that wonderful city of joy
+- [55:13.440] that people go up and down, right?
+- [55:15.600] They're not going to have any crime there.
+- [55:17.440] It's -- uh, it's amazing. Uh, Memphis,
+- [55:20.580] Tennessee is another one. The mayor works with us.
+- [55:24.710] And you know, it's nice when they work with us.
+- [55:26.920] It's just so much easier.
+- [55:28.140] Sometimes we can't work with them.
+- [55:29.810] Like in Minnesota, they won't work with us,
+- [55:32.530] but we still driven crime down 25 percent.
+- [55:35.470] If we didn't have to fight this horrible governor
+- [55:40.110] and this horrible fake mayor, Frey.
+- [55:44.070] You know,
+- [55:45.320] this is the Constitution of the United States.
+- [55:48.050] People don't want to be mugged.
+- [55:50.120] They don't want to have a murderer living next door,
+- [55:52.990] that was --
+- [55:54.320] you know, killed three people in a certain country
+- [55:56.930] and is now living beautifully here.
+- [55:59.570] Because generally speaking,
+- [56:00.940] if they've killed in another country,
+- [56:02.520] they're not going to be the best of citizens.
+- [56:06.550] And they're rough people. Remember in the campaign,
+- [56:09.610] I used to say that their criminals
+- [56:12.210] make our criminals look like babies. It's true.
+- [56:15.870] These are some of the meanest, most vicious people.
+- [56:18.200] They only gave us the worst.
+- [56:20.640] They don't send -- you know, they're very smart,
+- [56:22.400] guys like the President over here, El Salvador.
+- [56:25.820] He's sent us a few.
+- [56:27.620] I don't want to talk to him about it.
+- [56:30.300] But he's -- he's -- he sends us some real bad ones.
+- [56:32.940] He's not -- I -- look, you just say --
+- [56:35.270] we'll do it more positive. Isn't it true that you will not
+- [56:38.070] send your good people to the United States?
+- [56:40.420] Wouldn't you say? Look at him.
+- [56:42.730] He doesn't know -- he said, what's going on here?
+- [56:45.350] But no, he sends bad people to the United States,
+- [56:49.370] and I'm going to talk to him after this.
+- [56:51.710] But I love him. He's done a great job. Right?
+- [56:54.280] He's not going to -- he's not -- they're smart people
+- [56:57.530] and they're very street wise.
+- [56:59.180] You know, when you're running some of these countries
+- [57:01.670] in South America, Latin America,
+- [57:04.290] you got to be street wise, you got to be smart.
+- [57:06.420] He's very smart, very street wise.
+- [57:08.890] But these leaders of those countries,
+- [57:11.270] they're not sending --
+- [57:12.480] they cherish, they cherish they're good people.
+- [57:15.110] They only send us their bad people.
+- [57:17.910] But we have done some job.
+- [57:19.250] And we have -- uh, in Minnesota, crime is down just --
+- [57:22.910] despite that we have to fight these lunatics over there,
+- [57:27.880] that are stealing money, by the way, also.
+- [57:29.830] I believe it's actually a cover up of the $19 billion
+- [57:33.180] at least that they've stolen.
+- [57:34.400] I actually think they do this as a cover up.
+- [57:37.600] Under the Trump administration,
+- [57:38.980] we're standing strongly behind Americans of faith,
+- [57:42.950] stopping the attacks on our values, our traditions,
+- [57:46.470] defending religious liberty, like no president --
+- [57:49.450] I believe like no president has ever done before.
+- [57:52.240] I do believe that.
+- [57:54.160] We got rid of the sinister Johnson Amendment
+- [57:57.190] so that pastors can speak the truth and they can speak it
+- [58:00.530] without having their tax exempt status revoked.
+- [58:08.650] I was with a large group of ministers,
+- [58:11.200] pastors, priests, rabbis.
+- [58:14.420] We had a group of people that were -- great group.
+- [58:19.570] And I asked them for help.
+- [58:20.880] Paula White was there. Remember, Trump Tower,
+- [58:22.940] the top of the building, beautiful building,
+- [58:25.720] and they were so enthusiastic.
+- [58:27.170] For the first election, they were so enthusiastic.
+- [58:30.410] And I didn't want to be pushy
+- [58:31.750] because I'm not a pushy individual,
+- [58:35.140] but I didn't want to be overly aggressive.
+- [58:37.690] So I figured I'll ask them in the second meeting.
+- [58:40.270] So the second meeting came, the similar group, ministers.
+- [58:43.960] We had Muslim leaders there. We had everybody there.
+- [58:49.000] But there were about 55 of them,
+- [58:52.050] beautiful boardroom on the top floor,
+- [58:54.650] tall building, beautiful building in New York.
+- [58:56.620] And I said, I'd like to ask -- and they were so good.
+- [58:59.730] They, sir, we love you, you're great, blah, blah, blah.
+- [59:01.890] I figured this was going to be
+- [59:03.110] the easiest endorsement I ever got.
+- [59:05.720] And I said, I'd love to have your endorsement.
+- [59:07.550] And it was like ice. It was like death.
+- [59:12.280] I said, what the hell, what happened?
+- [59:15.690] And I said, could I ask what's going on?
+- [59:17.370] You were really nice.
+- [59:18.610] And now you've just clammed up and you're like scared.
+- [59:24.600] And one of them stood up, that Paula knows very well.
+- [59:28.010] He said, sir, we're very concerned
+- [59:31.130] because if we speak about religion,
+- [59:34.020] if we ever endorsed you, as an example,
+- [59:35.850] we would lose our tax exempt status immediately
+- [59:38.710] and our church would go out of business.
+- [59:41.070] I said, what's that all about?
+- [59:43.670] And it was the Johnson Amendment.
+- [59:45.200] Lyndon Johnson had a fight with somebody in Dallas
+- [59:49.110] or Houston with a minister and he didn't like him
+- [59:51.740] and they didn't like each other.
+- [59:52.950] And the minister thought he was terrible.
+- [59:57.820] And I guess he didn't like the minister
+- [01:00:00.810] and he was a powerful president. He knew how to do things
+- [01:00:04.770] and he got something passed called the Johnson Amendment,
+- [01:00:07.220] which basically takes away your right of speech.
+- [01:00:09.870] And people like me, and people like a lot of people,
+- [01:00:13.450] they want to hear from ministers.
+- [01:00:16.370] They want to hear from priests. They want to hear from them.
+- [01:00:20.160] And you were restricted from talking about
+- [01:00:24.480] very important things, like who to elect.
+- [01:00:27.780] If you said that, you were gone, you couldn't do it,
+- [01:00:29.950] even if you said it in a very nice way
+- [01:00:31.710] because they were going to be better for the church.
+- [01:00:35.340] And we worked hard and we're going to make that permanent
+- [01:00:37.490] pretty soon, I think, Mike.
+- [01:00:38.730] But we worked hard on getting rid of the Johnson Amendment.
+- [01:00:41.130] It's gone as far as -- you can say anything you want.
+- [01:00:43.390] Now, if you do say something bad about Trump --
+- [01:00:47.280] I will change my mind and I will have --
+- [01:00:50.060] I will have your tax-exempt status immediately revoked.
+- [01:00:55.710] If I go into one of these services, we will stop Trump.
+- [01:00:58.950] You ever hear some of these guys?
+- [01:01:00.160] They said -- not too many, I can tell you,
+- [01:01:02.350] because we won like 94 percent of the vote.
+- [01:01:07.150] People got it, people got it. We had an unbelievable --
+- [01:01:10.160] we had a lot of people pretending.
+- [01:01:11.570] They pretended to be very religious,
+- [01:01:14.620] but I don't believe they were.
+- [01:01:16.790] But the people ultimately -- they ultimately got it.
+- [01:01:20.630] You know, you have a Robert Jeffress.
+- [01:01:22.920] I don't know if he's here, is he here?
+- [01:01:24.450] Robert, is he here?
+- [01:01:26.200] Robert Jeffress was on television in 2016
+- [01:01:30.730] when I just sort of announced I was running,
+- [01:01:33.810] and he said I know every candidate very well.
+- [01:01:37.050] There were 17, 18 candidates, me and 17 others.
+- [01:01:40.710] He said I know every candidate very well,
+- [01:01:44.870] and I know Trump a little bit.
+- [01:01:48.470] But he may not be as good with the Bible as some of them.
+- [01:01:51.930] He may not have read the Bible as much as some of them.
+- [01:01:56.980] In fact, he may not have ever read the Bible,
+- [01:02:00.960] but he will be a much stronger messenger for us,
+- [01:02:05.850] and he will get things done that
+- [01:02:07.410] No other man has the ability to get done.
+- [01:02:10.250] And I endorse him fully.
+- [01:02:11.580] And I said, you know, that guy --
+- [01:02:12.880] I didn't want to admit anything, but that was very interesting.
+- [01:02:16.210] And I think we've gotten more done, Paula,
+- [01:02:18.010] than anybody could have ever gotten done.
+- [01:02:19.780] What we've done, nobody else would have been able to do it.
+- [01:02:27.410] We reinstated also servicemembers
+- [01:02:30.150] who were thrown out
+- [01:02:31.410] of our military over religious objections.
+- [01:02:33.640] That was a big deal.
+- [01:02:35.630] They were thrown out of religious objections
+- [01:02:38.100] to vaccine mandates and all of the other things.
+- [01:02:41.630] They used any excuse they could. We restored those patriots
+- [01:02:44.430] to their former ranks with full pay.
+- [01:02:46.520] We've given them full pay. They were taken advantage of,
+- [01:02:49.220] and I really think it was over religion.
+- [01:02:51.400] I actually think that they used the vaccines
+- [01:02:53.400] as a way of really punishing people over religion.
+- [01:02:57.310] I don't know how you can vote for these people,
+- [01:02:59.140] I really don't -- I don't know how you can.
+- [01:03:01.770] We passed the largest ever expansion of school choice
+- [01:03:04.750] so that every parent has a chance to send their child
+- [01:03:07.340] to a school that shares their values.
+- [01:03:11.330] And today, I'm also pleased to announce
+- [01:03:13.410] that the Department of Education
+- [01:03:15.540] is officially issuing its new guidance
+- [01:03:17.780] to protect the right to prayer in our public schools.
+- [01:03:21.490] That's a big deal.
+- [01:03:35.390] Now the Democrats will sue us, but we'll win it, we'll win it.
+- [01:03:40.050] They'll sue us, they sue us for everything.
+- [01:03:43.060] I'm the most sued human being in history.
+- [01:03:46.850] They've sued me for everything.
+- [01:03:49.390] I got impeached twice over nothing,
+- [01:03:51.320] but the Republicans were great, just wiped them right out.
+- [01:03:55.000] But I got impeached. I got indicted, wiped them out.
+- [01:03:59.690] There's never been -- you know, there's never been,
+- [01:04:01.740] to the best of our knowledge,
+- [01:04:03.030] any politician that's ever been indicted who won an election.
+- [01:04:07.890] Very popular politicians got indicted, they lost.
+- [01:04:10.660] I got indicted so much; I got tired of calling my wife.
+- [01:04:15.270] I'd say, darling, I was just indicted again.
+- [01:04:23.500] She said, oh, darling, what, oh, what does that mean?
+- [01:04:28.980] You know, she's very elegant. You saw that from the movie.
+- [01:04:32.200] She's not into the world of indictments.
+- [01:04:34.950] Not Melania, she doesn't know what an indictment --
+- [01:04:37.400] you know, it's not her deal.
+- [01:04:39.370] Her movie, by the way, big success.
+- [01:04:41.120] That movie is a big success, right?
+- [01:04:47.370] Yeah, I called up so many times. I'd say, you know, honey,
+- [01:04:50.500] I just got indicted again, don't worry about it, it's fine.
+- [01:04:53.830] But think of it many times, and then they say
+- [01:04:58.580] Donald Trump is using the Justice Department to get even.
+- [01:05:04.860] And I don't -- but wouldn't I have a right to?
+- [01:05:08.750] Think of it, there's never been in history
+- [01:05:13.070] a president treated like I got treated.
+- [01:05:16.450] But they say I use it, and it's amazing.
+- [01:05:18.980] I did that interview yesterday
+- [01:05:20.610] and they said there, they said the question --
+- [01:05:22.850] are you using the Justice Department
+- [01:05:25.830] for your own personal gain.
+- [01:05:28.720] They said they indicted me 87 times.
+- [01:05:31.510] It's the most incredible thing.
+- [01:05:33.770] But we don't do that, Pam, do we?
+- [01:05:36.580] Yeah, we do what's right.
+- [01:05:38.510] We do what's right, and Pam does it.
+- [01:05:42.700] We have great people. We have great people working there.
+- [01:05:46.050] But we do what's right.
+- [01:05:47.440] We expanded the Mexico City policy
+- [01:05:50.990] to stop taxpayer dollars from being used to promote
+- [01:05:54.580] radical gender ideology all around the world.
+- [01:05:57.240] No other president would do that.
+- [01:06:00.390] No other president would do it.
+- [01:06:03.010] And my administration also rejoined the Geneva
+- [01:06:06.640] consensus declaration to affirm the right to sovereign nations
+- [01:06:10.210] to protect life, defend the family
+- [01:06:12.150] and to be faithful to God.
+- [01:06:14.270] Nobody ever did that.
+- [01:06:17.460] I signed an executive order to slash federal funding
+- [01:06:20.680] for any public school that pushes transgender insanity.
+- [01:06:26.950] This is crazy, on our youth. Who would think about that?
+- [01:06:33.190] Who would think, if you go back 15 years,
+- [01:06:35.820] you're talking about --
+- [01:06:37.140] and I stopped the mutilation of children, the mutilation.
+- [01:06:41.490] The word is mutilation. They mutilate --
+- [01:06:43.920] the mutilation of children. I stopped it.
+- [01:06:46.120] Who would think? If you said that 15 years ago,
+- [01:06:48.380] they'd say what the hell is he talking -- is he crazy?
+- [01:06:51.780] It's levels you've never seen. We're still fighting it.
+- [01:06:56.510] But transgender for everybody,
+- [01:06:58.870] they want transgender for everybody.
+- [01:07:00.620] We stopped it. And we also, very importantly,
+- [01:07:03.930] we got men out of women's sports.
+- [01:07:05.840] You know, it's enough of that nonsense.
+- [01:07:13.350] We created the White House Faith Office,
+- [01:07:17.020] first time ever, which has its one-year anniversary this month
+- [01:07:20.580] and headed up with Paul and Jenny
+- [01:07:23.310] and some incredible people.
+- [01:07:24.940] And we created the Presidential Commission on Religious Liberty.
+- [01:07:28.690] We do a lot -- that's a great commission by the way.
+- [01:07:32.010] That's a phenomenal commission.
+- [01:07:33.410] I signed it, everybody wanted to be on that commission.
+- [01:07:36.260] It was really something, that was a good sign too.
+- [01:07:39.490] And we have incredible people on it.
+- [01:07:41.160] I signed an executive order
+- [01:07:43.870] to combat the vile scourge of antisemitism,
+- [01:07:47.570] which is really raging, rising -- surprising.
+- [01:07:55.030] Nobody thought they'd see that --
+- [01:07:56.690] happened very, very rapidly during the four years of Biden.
+- [01:08:01.060] And I set up an official Department of Justice task force
+- [01:08:04.330] to eradicate anti-Christian bias
+- [01:08:07.550] because you do have a lot of that.
+- [01:08:09.280] They don't talk about that.
+- [01:08:11.590] They're always talking about other religions
+- [01:08:13.620] and other different.
+- [01:08:14.860] But a lot of anti-Christian bias.
+- [01:08:17.620] And you see it going in foreign countries.
+- [01:08:19.570] I mentioned Nigeria, there are others.
+- [01:08:21.870] We're hitting them very hard.
+- [01:08:24.190] My administration is confronting head on the militant
+- [01:08:29.400] and really intolerant campaign that tried to drive religious
+- [01:08:33.170] believers out of public life and out of society.
+- [01:08:37.010] I mean, religious leaders --
+- [01:08:39.500] and now religious leaders are respected as much or more
+- [01:08:43.890] as any leader of any type anywhere in the world.
+- [01:08:48.100] Religious leaders are respected again
+- [01:08:50.670] and that's the way we have to have it.
+- [01:08:52.980] They really are respected again. They were having a hard time.
+- [01:08:56.520] They were having a very hard time.
+- [01:08:58.910] The last four years previous to the one that we served,
+- [01:09:02.990] the last four years were brutal on religious leaders.
+- [01:09:05.920] They were brave. Some were very brave.
+- [01:09:08.150] Some couldn't take it and that's --
+- [01:09:09.520] a lot of people understand it.
+- [01:09:11.240] Some were brave, really brave. The Department of Justice
+- [01:09:15.080] recently charged nine individuals
+- [01:09:18.400] for storming a church in Minnesota
+- [01:09:20.510] during a worship service and trampling
+- [01:09:22.670] on Americans' First Amendment rights.
+- [01:09:24.570] I watched that tape and, you know, that was violent.
+- [01:09:28.410] I saw the people sitting there, Pam, and they were scared.
+- [01:09:32.450] They were -- well, some were scared
+- [01:09:34.180] and some were holding up their hands
+- [01:09:35.790] like I believe in God. But they were violent people --
+- [01:09:42.750] screaming your parents are Nazis.
+- [01:09:45.400] Your parents are Nazis, to people sitting there.
+- [01:09:48.770] And I thought the minister was great.
+- [01:09:50.870] He was so calm and good.
+- [01:09:52.990] They're screaming at him, terrible,
+- [01:09:55.130] right in the middle of a church service.
+- [01:09:56.480] It's got to be illegal.
+- [01:09:57.710] I mean, Pam is doing it. I'm not doing it.
+- [01:09:59.670] But Pam is doing it and I'll tell you,
+- [01:10:02.460] people are happy with the job that's taking place
+- [01:10:04.390] because they're bad people.
+- [01:10:05.660] They're bad people.
+- [01:10:06.860] You have one Trump hater in particular that just --
+- [01:10:09.730] I watched his performance. It was terrible.
+- [01:10:11.650] They try and use freedom of the press
+- [01:10:13.190] and all this to get out of a criminal event.
+- [01:10:16.130] But they were -- that was a horrible thing to witness.
+- [01:10:19.620] And if we allowed that to go on,
+- [01:10:21.020] you wouldn't be able to have a church.
+- [01:10:22.880] Everybody would be afraid to go to church
+- [01:10:25.380] and that we are not going to allow, are we, huh?
+- [01:10:32.760] And in the audience today is an incredible woman
+- [01:10:35.180] who reminds us what a precious gift of religious liberty
+- [01:10:38.350] we have here in America.
+- [01:10:39.690] A tradition that sadly is not shared in the --
+- [01:10:44.040] in so many places in the world and even in our country.
+- [01:10:51.410] And our media is so bad.
+- [01:10:52.690] If we had a good media, it would be so much easier.
+- [01:10:55.150] But think of it, we're doing this all
+- [01:10:56.600] with a really corrupt and bad media.
+- [01:11:00.670] Mariam Ibrahim is a Christian from Sudan,
+- [01:11:06.120] and I'm working hard to end that war.
+- [01:11:07.880] We're very close to getting it done.
+- [01:11:10.550] That'll be number nine.
+- [01:11:14.270] If we don't get Russia, Ukraine first,
+- [01:11:16.290] but we're -- we're working hard to end that whole war.
+- [01:11:18.530] We're very close to doing -- we've almost done it.
+- [01:11:21.300] In 2014, a Sharia court in that country,
+- [01:11:25.180] sentenced her to 100 lashes and death
+- [01:11:28.970] for marrying a Christian man.
+- [01:11:32.650] At the time, she was eight months pregnant with a daughter.
+- [01:11:36.690] Mariam was ordered to renounce her faith in Christ,
+- [01:11:39.830] but she refused to do so
+- [01:11:41.610] and gave birth to that daughter, Maya,
+- [01:11:45.180] while she was in shackles, being beaten
+- [01:11:49.460] and living in a condition that nobody in this room
+- [01:11:53.750] would even be able to imagine.
+- [01:11:56.600] Believers all over the planet rallied to Mariam's cause,
+- [01:12:00.500] prayed for her protection
+- [01:12:02.170] and successfully pressured for her release.
+- [01:12:05.160] I did that. I did that.
+- [01:12:07.430] I did that with one phone call, actually.
+- [01:12:10.260] And she had such support. It was so easy.
+- [01:12:13.240] And when I explained it to the powers that be,
+- [01:12:15.980] yes, sir, we will do it right away.
+- [01:12:18.140] I just wish I knew earlier,
+- [01:12:20.350] but it's a big world with a lot of people.
+- [01:12:23.150] Mariam and Maya are here this morning
+- [01:12:25.660] and now live safely in America, where we protect Christians.
+- [01:12:30.200] We don't kill them, we protect them,
+- [01:12:31.790] and you're getting protected better now
+- [01:12:33.460] than you've ever been protected before.
+- [01:12:36.440] So Mariam and Maya, thank you.
+- [01:12:38.190] Where are you? Are they here? They're here someplace.
+- [01:12:44.400] Where are you? Please, stand up. Stand up. Thank you.
+- [01:13:05.690] That's great. A lot of bravery.
+- [01:13:09.860] No administration in modern history
+- [01:13:11.790] has done more to confront the plight of persecuted
+- [01:13:15.250] Christians around the world than we have.
+- [01:13:17.160] With us, it's a -- it's a mission.
+- [01:13:18.740] It's actually a mission.
+- [01:13:20.850] On Christmas Day in close coordination
+- [01:13:23.850] with the government of Nigeria,
+- [01:13:26.180] we worked with them but they got to get tougher,
+- [01:13:29.500] I ordered powerful airstrikes to decimate
+- [01:13:31.820] the ISIS terrorists who have been slaughtering Christians
+- [01:13:34.910] in that country by the thousands.
+- [01:13:37.290] It's not even believable. We hit them so hard,
+- [01:13:40.700] they still don't know what the hell happened.
+- [01:13:44.290] And we were going to do it on a different day.
+- [01:13:46.000] I said, no, do it on Christmas so they understand it.
+- [01:13:50.020] Remember, Christmas was -- when I ran in 2015,
+- [01:13:54.460] when I announced,
+- [01:13:56.060] I said, we're going to bring back Christmas,
+- [01:13:57.530] because the word Christmas was almost gone.
+- [01:13:59.840] And we did. People use Christmas anymore.
+- [01:14:02.140] We -- we brought back the word Christmas.
+- [01:14:04.640] They didn't want to use it, and we're using it again.
+- [01:14:08.740] But I specifically told Pete, I said,
+- [01:14:12.600] hit him on Christmas Day,
+- [01:14:14.620] not earlier and not later, right, Pete?
+- [01:14:18.960] And man did he hit him.
+- [01:14:21.320] So then we hit him again recently.
+- [01:14:23.820] We hit him again pretty hard.
+- [01:14:26.800] But we're honored to be joined today
+- [01:14:28.440] by the first lady of Nigeria,
+- [01:14:30.830] who also happens to serve as a Christian pastor
+- [01:14:34.170] at the largest church in Nigeria,
+- [01:14:37.490] a very respected woman.
+- [01:14:38.890] First lady, please, where are you?
+- [01:14:45.430] Thank you very much. It's a great honor.
+- [01:14:50.390] Thank you very much.
+- [01:14:52.710] Very respected person too. Thank you.
+- [01:14:55.940] I'm also working tirelessly to end dangerous conflicts
+- [01:14:59.140] and help move past ancient hatreds.
+- [01:15:02.680] In October, I ended the war in Gaza,
+- [01:15:06.160] saving hundreds of thousands of lives.
+- [01:15:07.740] It's amazing.
+- [01:15:08.960] We have peace in the Middle East,
+- [01:15:10.200] by the way, first time in 3,000 years.
+- [01:15:12.580] We have peace.
+- [01:15:13.860] They're little members, but it's nothing much.
+- [01:15:18.270] You know, we got back the last hostage, dead hostage.
+- [01:15:21.770] We got back all the hostages now, all of them.
+- [01:15:24.140] We got the 20, but we got many --
+- [01:15:26.300] you know, we got hundreds back before that,
+- [01:15:28.990] but we got back the last hostage, dead hostage
+- [01:15:31.970] and Hamas helped us get it back.
+- [01:15:33.680] It was a big statement. Now they have to disarm.
+- [01:15:37.740] Some people say they won't, but they will.
+- [01:15:40.280] And if they don't, they're going to not be around any longer.
+- [01:15:43.510] But they agreed to disarm.
+- [01:15:47.540] As the Bible tells us, blessed are the peacemakers.
+- [01:15:50.920] That's true. The peacemakers are very important.
+- [01:15:55.000] But you can only have peace, I find, through strength.
+- [01:15:58.820] If you don't have strength, peace is very hard,
+- [01:16:02.340] and we have strength.
+- [01:16:04.350] In one year, I've ended eight raging wars
+- [01:16:07.100] such as Cambodia and Thailand,
+- [01:16:10.810] Kosovo and Serbia, Pakistan and India,
+- [01:16:15.100] Israel and Iran, Armenia and Azerbaijan.
+- [01:16:19.420] These are all wars that were --
+- [01:16:20.790] President Putin called me up in Azerbaijan and Armenia.
+- [01:16:25.120] He said, I've been working 10 years to get that war.
+- [01:16:28.600] How did you do it? And I got it done.
+- [01:16:30.970] I got it done, two really good leaders.
+- [01:16:33.350] All they knew was fighting each other.
+- [01:16:34.760] They were fighting each other for many years.
+- [01:16:36.910] That's all they knew.
+- [01:16:38.760] And we got it worked out pretty quickly.
+- [01:16:42.930] A few months ago right here in Washington,
+- [01:16:45.030] we signed a historic peace agreement
+- [01:16:46.740] between the Democratic Republic of the Congo and Rwanda,
+- [01:16:52.890] which provides the first ever pathway to peace
+- [01:16:55.510] to end a 30 year unbelievably violent conflict.
+- [01:17:01.750] And we're joined today by a very, very brave
+- [01:17:04.450] and wonderful man, the President of the Congo,
+- [01:17:13.390] President, would you stand up please?
+- [01:17:15.370] You are so -- President, thank you.
+- [01:17:27.360] And you really are -- you're brave --
+- [01:17:30.840] you're a brave man. I know what you've been through.
+- [01:17:33.330] I know that one very well. That was a hard one.
+- [01:17:35.150] That was many, many years and it's working out OK.
+- [01:17:38.970] Nothing's easy. Every once in a while,
+- [01:17:41.100] I have to call them both back and --
+- [01:17:42.970] but it's working out OK. It's going to work out good.
+- [01:17:45.110] But you are brave and we appreciate you being here,
+- [01:17:47.430] great honor, great honor, good guy.
+- [01:17:50.440] Together, he and I have also signed
+- [01:17:52.820] the largest minerals deal in US Africa history.
+- [01:17:56.090] And you know, Congo has magnificent land.
+- [01:17:59.920] It's incredible land and he's going to --
+- [01:18:03.380] he's doing very well with it, so we appreciate it.
+- [01:18:05.860] But we've signed the largest deal
+- [01:18:07.830] with some of our big companies and they're going in.
+- [01:18:10.720] So thank you very much, Mr. President,
+- [01:18:12.580] and you call me for anything. Right? Thank you.
+- [01:18:19.540] And just in closing, scriptures always tell us
+- [01:18:23.210] that blessed are the pure in heart.
+- [01:18:27.430] I don't know if that applies to me, necessarily.
+- [01:18:30.020] I'm not so sure. I don't know. Paula, does that apply to me?
+- [01:18:33.790] I'm not sure. I try. But we're joined this morning
+- [01:18:38.560] by two incredible young American patriots
+- [01:18:40.880] and believers who show that, you know, that's so true.
+- [01:18:44.830] Last summer, Emma Foltz and London Smith
+- [01:18:47.840] were both camp counselors at Camp Mystic,
+- [01:18:51.350] the Christian girl's camp in central Texas.
+- [01:18:54.300] One of the worst things I've ever seen.
+- [01:18:57.400] On that fateful night, 20 inches of rain
+- [01:18:59.540] fell in a matter of minutes.
+- [01:19:02.870] Nobody's ever seen anything like it.
+- [01:19:05.080] And the river rose 20 feet in literally 30 minutes,
+- [01:19:11.000] leaving utter devastation and destruction.
+- [01:19:15.200] Emma bravely helped lead 14 precious little girls to safety.
+- [01:19:21.370] And London, seeing the water rise,
+- [01:19:22.950] gathered with other girls at the top of their building
+- [01:19:26.770] and prayed. They just prayed and prayed.
+- [01:19:30.350] And as they prayed, the water miraculously stopped rising,
+- [01:19:34.910] just a few inches from their feet.
+- [01:19:36.700] It was going to overwhelm them.
+- [01:19:39.520] Anybody in the cabins -- the cabins were gone.
+- [01:19:43.080] Anybody in the cabins were gone. Who would have known?
+- [01:19:46.630] They thought the cabins were the safe place to be.
+- [01:19:49.780] It wasn't.
+- [01:19:52.140] Then the water began to retreat and many hours later,
+- [01:19:55.140] they were finally rescued.
+- [01:19:58.080] As you know, many young people died that night.
+- [01:20:02.060] When asked what she hopes others to take away from her story,
+- [01:20:05.610] London said, this life is not promised.
+- [01:20:09.240] Our breath every minute is not guaranteed.
+- [01:20:12.280] Because of that, we shouldn't take life for granted
+- [01:20:15.790] and we should just live it well.
+- [01:20:18.250] I mean, it was an amazing statement.
+- [01:20:20.130] I saw her make the statement,
+- [01:20:21.930] young girl making that statement.
+- [01:20:25.270] Incredible, actually, very complex statement and smart,
+- [01:20:29.040] but true.
+- [01:20:30.350] London, I know exactly what you mean
+- [01:20:32.390] and I want to thank you both for being here
+- [01:20:35.530] and your remarkable, incredible courage.
+- [01:20:39.630] It's been really amazing. And if you could at least stand.
+- [01:20:43.400] You know, I said, would you like to speak?
+- [01:20:45.520] And they said, well, we're a little shy.
+- [01:20:47.880] But you know what? You may be shy but you're very brave.
+- [01:20:49.970] Would you please stand?
+- [01:21:14.450] Thank you. I went to the camp a few days
+- [01:21:21.290] after the flood with the first lady,
+- [01:21:26.280] and it was devastating.
+- [01:21:28.470] I met parents, they were just --
+- [01:21:30.530] there could be nothing worse than that.
+- [01:21:33.260] It was a horrible, horrible moment.
+- [01:21:37.670] Almost 250 years after our founding fathers
+- [01:21:41.680] took one of the greatest leaps of faith in human history,
+- [01:21:44.640] the story of Emma and London shows us that faith
+- [01:21:48.490] of the American people remains unbroken --
+- [01:21:52.310] actually became stronger than ever.
+- [01:21:55.950] And it reminds us that prayers strengthen,
+- [01:21:59.020] prayers heal prayer empowers and prayer saves.
+- [01:22:03.440] Quite simply, prayer is America's superpower.
+- [01:22:07.670] It really is a superpower,
+- [01:22:10.110] and it always has been and it always will be.
+- [01:22:17.860] And I have no doubt that with the love,
+- [01:22:19.990] devotion and patriotism of the people in this room
+- [01:22:23.170] and our friends from all over the world,
+- [01:22:26.260] some great ones right here, we can make our country
+- [01:22:29.680] and the world a safer, stronger, more peaceful
+- [01:22:32.970] and more faithful place than ever before.
+- [01:22:36.030] And it's all happening right before your very eyes.
+- [01:22:38.870] And I want to, again, thank you.
+- [01:22:41.060] God bless you and God bless America.
+- [01:22:42.980] Thank you, everybody, very much.
+- [01:22:45.980] (applause)
+- [01:23:07.800] Male Speaker: Thank you, Mr. President.
+- [01:23:09.670] Would you all please join me in a prayer for the President?
+- [01:23:14.980] Heavenly Father, we come before you
+- [01:23:17.150] with humble and grateful hearts,
+- [01:23:18.700] mindful that every authority on Earth
+- [01:23:20.390] is ultimately under your sovereign care.
+- [01:23:23.060] Today, we lift up President Donald J. Trump,
+- [01:23:25.280] and we ask for your wisdom and your guidance
+- [01:23:27.330] as he carries the mantle of leadership
+- [01:23:29.090] for this nation and around the world.
+- [01:23:31.610] We know that you have placed him in this position
+- [01:23:34.110] for this season in our nation's glorious 250 year history.
+- [01:23:38.100] And so we ask that whatever storm comes his way,
+- [01:23:41.050] he would weather with grace, favor, and clarity.
+- [01:23:44.500] Lord, strengthen him in moments of great responsibility
+- [01:23:47.830] and give him peace in moments a great weight.
+- [01:23:50.480] Surround him with advisors who speak honestly,
+- [01:23:52.850] serve faithfully, and place the good of the nation first.
+- [01:23:56.900] When decisions are difficult and the path forward is uncertain,
+- [01:24:00.140] may he be guided by your spirit of wisdom and understanding.
+- [01:24:04.100] Grant him discernment rooted not in human understanding,
+- [01:24:06.810] but in your eternal wisdom.
+- [01:24:08.930] Remind him where the root of his joy lies
+- [01:24:11.200] and of the plans you have in store for him,
+- [01:24:14.060] for his family, and for this nation.
+- [01:24:16.730] Remind them how very deeply he is loved by you
+- [01:24:19.640] and that you hold him in the palm of your hand.
+- [01:24:22.550] May he not doubt the things you have spoken to him
+- [01:24:24.580] in the quiet place.
+- [01:24:25.800] Instead, Lord, guide his steps and guard his heart.
+- [01:24:29.200] May his ear always be turned to you
+- [01:24:31.050] when he is faced with difficult decisions.
+- [01:24:33.230] And may he seek your will to be done through him.
+- [01:24:35.880] Continue to surround him with counselors who love truth,
+- [01:24:38.320] speak boldly, and walk humbly before you.
+- [01:24:41.660] Where there is weariness, bring renewal.
+- [01:24:43.870] Where there's pride, bring humility.
+- [01:24:46.160] Where there uncertainty, bring clarity through your spirit.
+- [01:24:50.080] Father, we ask for your divine protection
+- [01:24:51.790] over the president and his family.
+- [01:24:53.650] Draw him closer to you,
+- [01:24:55.040] and may his leadership reflect the fruits of your spirit
+- [01:24:58.630] We bring these things to you in your precious and holy name.
+- [01:25:02.160] A-men
+- [01:25:03.940] (applause)
+- [01:25:13.520] Male Speaker: In the Latin, Imago Dei,
+- [01:25:16.060] and we always be reminded we are made in the image of God.
+- [01:25:21.620] In the Latin, Verbin Dei.
+- [01:25:23.150] And we also be reminded that we ask for the word of God,
+- [01:25:28.870] our good and gracious God, we pray for the health
+- [01:25:30.830] and deliberations of the president of the United States.
+- [01:25:34.630] And we pray that you would be the final arbiter
+- [01:25:36.810] of whatever decisions he endeavors to make.
+- [01:25:40.300] That you would increase the stature of his wisdom
+- [01:25:43.210] because without you none of us can adjudicate
+- [01:25:46.100] the overwhelming details of leadership and life.
+- [01:25:49.980] Today we pray for America
+- [01:25:51.750] and we pray all parliamentarians around the world.
+- [01:25:55.730] The book of Timothy teaches us
+- [01:25:57.870] that you've been entrusted with leadership.
+- [01:26:00.610] Today we prayed for the future of this nation
+- [01:26:03.040] and that you would lead this president
+- [01:26:04.910] into greater levels of compassion for your namesake.
+- [01:26:08.310] We pray that you would protect him from the iniquities of evil.
+- [01:26:11.980] And that you would give him greater clarity,
+- [01:26:14.340] greater courage, and greater capacity
+- [01:26:16.660] to do what is right in the forever challenges.
+- [01:26:20.460] Today, we remind him that the lives of millions of people
+- [01:26:23.700] are in his hands
+- [01:26:25.270] and that he has the power to turn mourning into dancing
+- [01:26:29.190] or to reduce the country into a cosmic elegy of chaos
+- [01:26:32.770] and suffering.
+- [01:26:34.100] And it is because of this that we pray
+- [01:26:36.400] that the best of this president would rise among us
+- [01:26:39.300] For the sake of this nation, for the sake of this world.
+- [01:26:42.380] We pray that goodness and mercy would announce
+- [01:26:44.430] themselves in his life in new and powerful ways.
+- [01:26:48.320] We pray he would be mindful of the poor
+- [01:26:51.880] and that he would invested in the elevation,
+- [01:26:54.450] the alleviation of suffering happening on farms
+- [01:26:57.560] in the Midwest,
+- [01:26:59.080] in the families preparing to bury their loved ones
+- [01:27:01.950] in Minneapolis.
+- [01:27:03.560] Remind him that we are all Americans,
+- [01:27:05.320] all made in the image of God, and that none of us are free
+- [01:27:08.270] unless all of us have our freedoms protected.
+- [01:27:11.840] Many people are not lazy, many people are simply tired.
+- [01:27:16.140] Many people simply are not okay. Matthew 25 teaches us that.
+- [01:27:24.010] Gifts are given from God
+- [01:27:25.520] and that we should show them with compassion towards others.
+- [01:27:28.640] But most of all,
+- [01:27:29.930] we pray that you would work out your will in his life.
+- [01:27:34.210] May we all do more for the greater glory of God
+- [01:27:37.780] because when it's all said and done,
+- [01:27:40.080] we pray as Jesus taught us to pray.
+- [01:27:42.960] We ask that we surrender our all to Jesus.
+- [01:27:46.270] To all hope, I give him freely. I will ever love and trust him
+- [01:27:51.370] and in his life and presence live daily.
+- [01:27:55.120] Thy kingdom come, thy will be done on earth
+- [01:27:58.440] as it is in heaven. Amen.
+- [01:28:01.870] (applause)
+- [01:28:13.983] ♪ (music playing) ♪
+- [01:29:05.097] (applause)

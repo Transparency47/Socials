@@ -1,0 +1,716 @@
+<!-- source: https://www.youtube.com/watch?v=z_ZBVqBjqtM -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: z_ZBVqBjqtM -->
+<!-- date_published: 2025-06-11T17:42:17+00:00 -->
+<!-- date_accessed: 2026-06-02T02:48:37.568589+00:00 -->
+
+# Transcript: Press Secretary Karoline Leavitt Briefs Members of the Media, June 11, 2025
+
+- [00:04.118] Karoline Leavitt: How are you?
+- [00:06.531] Good to see you all.
+- [00:08.930] What we have seen transpire in
+- [00:11.391] Los Angeles, California in recent days is shameful.
+- [00:14.610] Left-wing radicals waving foreign flags
+- [00:16.710] viciously attacked ICE and Border Patrol
+- [00:18.811] agents as well as Los Angeles police officers.
+- [00:22.335] These criminals injured police, threw
+- [00:24.486] rocks at police cars and officers,
+- [00:26.339] burned vehicles, shut down freeways
+- [00:28.563] and lobbed Molotov cocktails.
+- [00:31.110] All because the Trump administration was
+- [00:33.270] removing violent criminal illegal aliens from the city.
+- [00:37.190] These attacks were aimed not just at law
+- [00:39.440] enforcement, but at American
+- [00:40.935] culture and society itself.
+- [00:44.260] Rioters burned American flags, chanted
+- [00:46.638] death to ICE, and spray-painted
+- [00:48.631] anti-American slogans on buildings.
+- [00:51.550] But President Trump will never allow
+- [00:54.194] mob rule to prevail in America.
+- [00:57.250] The most basic duty of government
+- [00:58.953] is to preserve law and order.
+- [01:00.730] And this administration embraces
+- [01:02.802] that sacred responsibility.
+- [01:05.130] Democrats like Governor Gavin Newsom and
+- [01:07.335] Mayor Karen Bass shamefully failed to meet
+- [01:09.850] their sworn obligations to their citizens.
+- [01:12.450] They didn't have the courage to do the
+- [01:14.085] right thing and protect law-abiding
+- [01:15.591] Californians from rioters.
+- [01:17.690] That's why President Trump deployed the
+- [01:19.670] National Guard and mobilized Marines to
+- [01:21.651] end the chaos and restore law and order.
+- [01:24.770] The mob violence is being stomped out.
+- [01:26.950] The criminals responsible will
+- [01:28.420] be swiftly brought to justice.
+- [01:30.250] And the Trump administration's operations
+- [01:32.392] to arrest illegal aliens are continuing unabated.
+- [01:36.250] When the initial immigration enforcement
+- [01:38.910] actions took place on June 6, Mayor Bass
+- [01:41.571] took to social media to say she was
+- [01:43.727] deeply angered by what has taken place.
+- [01:46.850] Mayor Bass then embarked on one of the
+- [01:48.867] most outrageous campaign of lies this
+- [01:50.831] country has ever seen from an elected
+- [01:52.851] official, blaming President Trump and
+- [01:54.871] brave law enforcement officers for the violence.
+- [01:58.050] She accused heroic American immigration
+- [02:00.361] and customs enforcement officers targeting
+- [02:02.851] illegal alien murderers, rapists and
+- [02:05.474] pedophiles of quote, sewing terror in
+- [02:08.171] communities and disrupting basic
+- [02:10.248] principles of safety in our city.
+- [02:13.170] Around the same time, Governor Newsom
+- [02:14.853] claimed that immigration enforcement
+- [02:16.491] actions were causing chaos.
+- [02:18.570] That's how radical Democrats have become.
+- [02:22.090] Their opposition to President Trump has
+- [02:23.994] forced them to side with illegal alien
+- [02:25.851] criminals in their communities and violent
+- [02:28.411] rioters and looters over law enforcement
+- [02:30.851] officers who are just doing their jobs.
+- [02:33.950] Mayor Bass and Governor Newsom fans
+- [02:35.887] the flames and demonized our brave ICE officers.
+- [02:39.090] Instead of defending their city and their
+- [02:41.194] state, Karen Bass and Gavin Newsom claimed
+- [02:43.600] that in order for the riots in the
+- [02:45.267] violence to stop, ICE needed to leave.
+- [02:47.490] An immigration raids must end.
+- [02:50.050] In other words, the position of the
+- [02:51.673] Democrat Party is that the federal
+- [02:53.251] government is not allowed to enforce our
+- [02:55.601] laws into arrest and deport illegal alien criminals.
+- [02:59.050] They're attempting to use a violent mob as
+- [03:01.140] a weapon against their own constituents to
+- [03:03.231] prevent the enforcement of immigration law.
+- [03:06.050] This is deeply un-American and morally reprehensible.
+- [03:09.470] President Trump received a clear mandate
+- [03:11.319] from voters to reverse the illegal
+- [03:12.891] invasion ushered in by Joe Biden's
+- [03:14.817] open Border and to end the lawlessness
+- [03:16.971] represented by Karen Bass and
+- [03:18.710] Gavin Newsom's California.
+- [03:21.110] President Trump promised to carry out
+- [03:23.071] the largest mass deportation campaign in
+- [03:25.191] American history and left-wing riots
+- [03:27.608] will not deter him in that effort.
+- [03:30.330] Sanctuary cities and states will
+- [03:32.185] no longer be allowed to shield
+- [03:33.687] illegal criminals from deportation.
+- [03:36.310] Just take a look at some of the illegal
+- [03:38.313] monsters who were taken off the
+- [03:39.849] streets in Los Angeles in recent days.
+- [03:42.630] A Vietnamese national and known gang
+- [03:44.633] member with a conviction for second-degree murder.
+- [03:48.100] A Mexican national with convictions for
+- [03:50.202] child molestation who was armed with a
+- [03:52.251] dangerous weapon and had previous arrests
+- [03:54.798] for robbery and domestic violence.
+- [03:57.610] A Filipino national with convictions
+- [03:59.750] of rape, assault, burglary and theft.
+- [04:02.710] A Mexican national convicted of statutory
+- [04:05.097] rape, narcotics violations and hit and run.
+- [04:08.150] A Nicaraguan national with convictions
+- [04:09.993] for domestic violence and hit and run in a
+- [04:12.031] previous assault arrest for willful cruelty to a child.
+- [04:16.780] And an illegal alien from Mexico who
+- [04:18.762] was arrested after allegedly throwing a
+- [04:21.160] Molotov cocktail at law enforcement
+- [04:22.939] officers during the Paramount riots on Saturday.
+- [04:25.710] He is now being charged with attempted murder.
+- [04:28.590] Law-abiding American citizens do not want
+- [04:30.777] these public safety threats living in
+- [04:32.950] their communities.
+- [04:34.170] No matter what Democrats like Karen
+- [04:35.957] Bass and Gavin Newsom may claim.
+- [04:38.150] And let this be an unequivocal message to
+- [04:40.225] left-wing radicals in other parts of the country
+- [04:42.315] who are thinking about copycatting
+- [04:44.249] the violence in an effort to stop this
+- [04:46.411] administration's mass deportation efforts.
+- [04:49.030] You will not succeed.
+- [04:51.230] Any lawlessness will only strengthen this
+- [04:53.403] President's resolve to defend the majority
+- [04:55.631] of Americans who want to live their lives peacefully,
+- [04:59.690] free from the fear of
+- [05:01.324] violent criminal illegal aliens.
+- [05:03.710] As President Trump said, order will be
+- [05:05.818] maintained and illegal aliens
+- [05:07.456] will be expelled from our country.
+- [05:10.140] In economic news, the latest consumer
+- [05:12.177] price index inflation report came
+- [05:13.939] in today below expectations again.
+- [05:16.850] Since President Trump took office,
+- [05:18.443] inflation has come in below economic
+- [05:20.131] expectations every single month.
+- [05:23.620] Core inflation held steady and remains
+- [05:25.583] at the lowest level since March of 2021.
+- [05:28.390] Wage growth remains strong.
+- [05:30.370] The average private sector worker is on
+- [05:32.094] track to see their real earnings increased
+- [05:33.951] by around $1,200 adjusted for inflation.
+- [05:37.190] And prices continue to fall for every day
+- [05:39.220] Americans.
+- [05:40.660] Energy prices fell from April to May.
+- [05:42.890] Gasoline has fallen each month since
+- [05:44.746] President Trump took office down
+- [05:46.409] 12 percent over the past year.
+- [05:48.730] And prices for meat, poultry, eggs and
+- [05:50.790] fish are all down from April to May as well.
+- [05:53.730] Under President Trump's strong leadership,
+- [05:55.740] America is beating Joe Biden's
+- [05:57.233] record high inflation crisis.
+- [05:59.680] And once the One Big Beautiful Bill
+- [06:01.495] passes, our economy will boom like never before.
+- [06:04.570] This Bill is the largest tax cut for
+- [06:06.864] middle-class Americans in history.
+- [06:09.230] The one big Beautiful Bill gives a
+- [06:11.258] 15 percent tax cut to working Americans
+- [06:13.192] and families, will see increased
+- [06:15.734] take-home pay of $10,000 per year.
+- [06:18.940] The One Big Beautiful Bill expands the
+- [06:21.400] child tax credit to $2,500 for more than
+- [06:24.390] 40 million American families with children.
+- [06:27.190] And the One Big Beautiful Bill cuts taxes
+- [06:29.458] for overtime workers, saving them nearly
+- [06:31.671] $2,000 per year, and end taxes on tips,
+- [06:34.911] saving tipped workers nearly $2,000 per year as well.
+- [06:39.335] All of these provisions are broadly
+- [06:41.442] popular with an overwhelming
+- [06:43.187] support from the American people.
+- [06:45.250] We need Republicans in Congress to finish
+- [06:46.983] the job and send the One Big Beautiful
+- [06:48.591] Bill back to President Trump's desk
+- [06:50.393] for his signature as soon as possible.
+- [06:53.030] With that, we'll get to questions.
+- [06:54.385] I'm sure you have many of them today.
+- [06:55.750] Here in our new media seat is Elizabeth
+- [06:57.233] Mitchell, the White House correspondent
+- [06:58.740] for the Daily Signal who's not
+- [06:59.976] afforded a seat in this room.
+- [07:01.270] But today, she is.
+- [07:02.310] Thank you, Elizabeth.
+- [07:03.540] The Press: Thank you so much, Karoline.
+- [07:04.510] I have two questions.
+- [07:06.120] First, a few Republicans on Capitol Hill
+- [07:08.300] are seeing suggesting that President Trump
+- [07:10.591] scale back deportations even as ICE is
+- [07:12.890] reported to be gearing up for raids in
+- [07:15.131] five more Democrat-led areas.
+- [07:17.390] Would anything disuade President Trump
+- [07:19.360] and would he consider sending in Marines
+- [07:21.331] if anti-ICE violence occurs in these cities?
+- [07:23.710] Karoline Leavitt: Well, I think I may have just answered
+- [07:25.270] both of your questions with my opening monologue.
+- [07:27.410] The Trump administration is going to
+- [07:29.505] continue the mass deportation effort that
+- [07:31.891] the President promised the American public.
+- [07:33.990] Many of you are at those rallies and
+- [07:35.495] cities and communities across the country
+- [07:37.211] when the President spoke about his
+- [07:38.939] commitment to removing violent illegal criminals.
+- [07:41.750] And anyone who has broken our nation's
+- [07:43.784] immigration laws from American communities.
+- [07:46.310] And God bless our ICE and Border Patrol
+- [07:47.922] who are working hard on that effort.
+- [07:49.650] This administration is going to continue that.
+- [07:51.670] And it's part of the reason we do need the
+- [07:53.830] One Big, Beautiful Bill to pass as well,
+- [07:55.170] may I add because the bill provides
+- [07:56.988] funding to hire more ICE agents and Border
+- [07:59.220] Patrol agents, more personnel on the ground
+- [08:01.196] to conduct this important public safety work.
+- [08:03.650] Thank you.
+- [08:04.150] The Press: And on another topic, President Trump has
+- [08:06.231] indicated that aides to former President
+- [08:08.211] Biden, who used the auto pen to sign
+- [08:10.438] major orders and pardons should be
+- [08:12.431] investigated for potential crimes.
+- [08:14.210] Does he think that Biden allowing or at
+- [08:16.287] least being negligently unaware of this
+- [08:18.311] activity was an impeachable offense?
+- [08:20.210] Karoline Leavitt: I haven't heard the President address
+- [08:21.943] whether it's an impeachable offense,
+- [08:24.050] but it could perhaps be a criminal
+- [08:25.773] offense, especially on behalf of staffers
+- [08:27.900] who may have been utilizing the
+- [08:29.581] President's signature without his authority or consent.
+- [08:32.790] I understand that Republicans on the Hill
+- [08:34.650] are moving in the right direction to call
+- [08:36.511] attention to this and to bring in some
+- [08:38.415] former White House staffers who clearly
+- [08:40.371] knew more than they ever shared and
+- [08:42.111] never addressed with the American public.
+- [08:44.450] And so we look forward to seeing
+- [08:45.845] where this investigation continues.
+- [08:47.371] And I know the Department of Justice is
+- [08:48.931] also looking into the matter as well.
+- [08:51.070] Alex, good to see you today.
+- [08:51.811] The Press: Thank you.
+- [08:53.311] You mentioned foreign flags being
+- [08:54.998] flown during these protests.
+- [08:57.095] There are protests and activities
+- [08:58.432] being organized for this weekend.
+- [09:00.550] Part of it are Democrats saying they
+- [09:02.473] want to reclaim the American flag.
+- [09:04.730] It's also being titled No Kings Day.
+- [09:07.190] Does the President see himself as a king?
+- [09:09.790] And does the White House expect to see
+- [09:11.754] American flags being flown
+- [09:13.771] during these protests as we get to them?
+- [09:15.210] Karoline Leavitt: The President views himself as the
+- [09:16.847] President of the United States of America.
+- [09:18.970] This is a constitutional Republic
+- [09:20.685] and we want to see all of our citizens be
+- [09:23.036] proud of the country in which they are
+- [09:25.451] given the privilege and the blessing to live.
+- [09:28.260] And I think those images of foreign flags
+- [09:31.251] being waived by illegal criminals and by
+- [09:34.171] violent rioters in the face of cars
+- [09:37.418] blowing up and of flames in the city.
+- [09:41.200] I have photos of that here to show you
+- [09:43.436] with this violence and destruction that
+- [09:45.731] occurred is an image that Governor Gavin Newsom owns.
+- [09:49.320] This is his city.
+- [09:50.350] And President Trump saw these images.
+- [09:51.760] and he said that is not going
+- [09:52.966] to be accepted or tolerated.
+- [09:54.370] And hence why he deployed the National
+- [09:56.348] Guard and United States Marines who have
+- [09:58.730] helped to quell that violence.
+- [10:01.750] The Press: If the President does end up deploying any
+- [10:04.540] National Guard members, perhaps Marines to blue states,
+- [10:08.990] would he be in contact with the governors prior to this?
+- [10:12.370] Would it be necessary?
+- [10:13.250] Karoline Leavitt: Well, President Trump was in contact
+- [10:15.100] with Governor Gavin Newsom despite some of the
+- [10:17.300] claims he's made in the last couple of days.
+- [10:19.310] The President called the governor on
+- [10:21.645] Friday evening and told him to let law
+- [10:24.160] enforcement in California do their jobs.
+- [10:26.130] And Los Angeles Police Department,
+- [10:27.937] by the way, are fantastic people.
+- [10:29.691] They are trying to do the work that
+- [10:31.645] they've so bravely signed up to do to enforce the law.
+- [10:34.630] But they have been kneecapped by
+- [10:36.360] incompetent Democrat policies and Democrat
+- [10:38.830] politicians who do not allow their
+- [10:41.140] local law enforcement to correspond and
+- [10:43.791] coordinate with federal immigration authorities.
+- [10:46.520] And so, President gave Gavin Newsom a
+- [10:48.527] warning and said get it together 24 hours
+- [10:50.751] later, we saw more images like this.
+- [10:52.830] We heard about Border Patrol agents
+- [10:55.120] who were being the target of rocks.
+- [10:58.130] These illegal criminals were throwing rocks at our
+- [10:59.671] Border Patrol and ICE agents.
+- [11:02.150] And so, the President made the decision
+- [11:03.710] to federalize California's National Guard.
+- [11:06.090] Stephanie.
+- [11:26.050] Thank you.
+- [11:28.145] Two questions on the China trade Bill by May.
+- [11:32.210] First, will the President formally sign the trade deal?
+- [11:35.430] And if so, when Secretary to open their
+- [11:36.951] markets to the United States, separately of this deal.
+- [11:39.271] And when it comes to this deal, we're
+- [11:40.729] going back to the terms that were
+- [11:42.031] agreed upon in Geneva for the release of
+- [11:44.036] some of those critical minerals and the
+- [11:45.991] magnets from China to the United States.
+- [11:48.331] And we have agreed to fully comply
+- [11:50.171] with the Geneva agreement as well.
+- [11:52.430] So, the President is reviewing the
+- [11:53.854] details of that with his trade team now.
+- [11:55.810] And you'll hear more from him, I'm sure.
+- [11:57.480] The Press: And then the second question on tarrifs, Secretary
+- [12:00.325] Lutnick suggested that the tariffs
+- [12:02.784] would remain unchanged with China.
+- [12:05.370] I'm wondering if there's any room for
+- [12:06.958] them to negotiate even lower, or if this is the floor.
+- [12:09.790] Karoline Leavitt: I won't get ahead of any further negotiations.
+- [12:12.630] We're in a great place right now.
+- [12:13.751] And I would add that this is the result of
+- [12:15.501] a lot of hard work from the President and his team.
+- [12:17.810] And the President has a good and
+- [12:19.289] respectful relationship with President Xi.
+- [12:21.400] And as you know, they had a direct
+- [12:22.831] conversation which led to this success
+- [12:24.555] that the President announced on Truth Social this morning.
+- [12:26.631] J.J.
+- [12:27.950] The Press: On North Korea, has the President tried
+- [12:30.500] to resume dialogue with Kim Jong-Un?
+- [12:33.070] There's some reporting that the President
+- [12:35.290] sent a letter and tried to give it
+- [12:37.151] to Kim Jong-Un through some North
+- [12:38.852] Korean diplomats through the U.N.
+- [12:40.451] and they declined to take it and send to Kim Jong-Un.
+- [12:43.590] The President remains receptive to
+- [12:45.331] correspondence with Kim Jong-Un.
+- [12:47.040] And he'd like to see the progress that
+- [12:48.839] was made at that summit in Singapore,
+- [12:50.610] which I know you covered in 2018
+- [12:52.539] during his first term, as for specific correspondence,
+- [12:55.850] I'll leave that to the President
+- [12:56.451] to answer.
+- [12:58.330] Sure.
+- [12:59.415] The Press: Back to the trade deal and negotiations with China.
+- [13:04.050] Jimmy Lai, as you know, is a pro-democracy
+- [13:06.381] advocate, Catholic sitting in solitary
+- [13:08.690] confinement in Hong Kong, as we speak.
+- [13:10.810] His family believes he may be close to death.
+- [13:13.590] Did his name come up?
+- [13:14.571] Jimmy Lai's name come up in
+- [13:16.011] these negotiations with China?
+- [13:18.410] Karoline Leavitt: Not to my knowledge.
+- [13:19.430] I understand the negotiations.
+- [13:20.680] We're very much focused on our trade
+- [13:22.460] and economic relationship with China.
+- [13:24.520] The Press: Does the President believe he
+- [13:26.043] can free Jimmy Lai from prison?
+- [13:27.910] Karoline Leavitt: I'll check with the President.
+- [13:28.950] It's certainly an important
+- [13:30.010] issue and I'll get back to you.
+- [13:31.980] The Press: The President said yesterday that paid
+- [13:34.733] insurrectionists were behind or involved
+- [13:37.631] in the protest in Los Angeles.
+- [13:40.550] Does the White House have any more details
+- [13:43.333] about who they believe is paying these --
+- [13:46.051] Karoline Leavitt: Yeah, the President spoke about this last
+- [13:48.137] night when he returned from Fort Bragg
+- [13:50.071] because, frankly, the President
+- [13:51.593] has a lot of common sense.
+- [13:52.871] And if you look at some of the imagery
+- [13:54.568] that we ever see from the Department of
+- [13:56.311] Homeland Security and ICE and law
+- [13:58.064] enforcement who are on the ground,
+- [14:00.190] you will see boxes and boxes of very
+- [14:02.700] professionalized masks and rioting
+- [14:05.071] equipment being dropped off for these protesters.
+- [14:07.330] So it's a good question the President is
+- [14:09.340] raising in one we are looking into about
+- [14:11.351] who is funding these insurrectionists and
+- [14:13.842] these rioters and these protesters
+- [14:15.944] and these illegal criminals.
+- [14:17.340] And I have updates for you on the numbers, by the way.
+- [14:19.750] Since June 6th, there have been 330
+- [14:22.228] illegal aliens that have been arrested as
+- [14:25.131] part of these riots in Los Angeles.
+- [14:27.250] 113 of those illegal aliens
+- [14:29.410] had prior criminal convictions.
+- [14:32.690] And overall, and this includes arrests of
+- [14:35.071] American citizens, there's been 157 people
+- [14:37.511] arrested for assault and obstruction,
+- [14:40.358] obstruction related charges, including the
+- [14:43.591] attempted murder of a police
+- [14:44.888] officer with a Molotov cocktail.
+- [14:46.840] So who is funding these illegal aliens who
+- [14:49.335] are coming in with this very professional riot gear?
+- [14:52.830] It's a question everyone in
+- [14:54.304] this room who cares about truth.
+- [15:16.460] should be asking.
+- [15:17.435] And we encourage your help in trying
+- [15:19.787] to get to the bottom of that question.
+- [15:26.470] What do you mean by that?
+- [15:31.090] The Press: Has the administration started a review of
+- [15:33.286] the contracts that Musk and
+- [15:34.593] his companies currently have?
+- [15:36.990] Karoline Leavitt: No efforts have been made on
+- [15:38.176] that front as far as I'm aware.
+- [15:39.740] The Press: And just one more, if I may, on just
+- [15:42.426] everything that we've seen so far with
+- [15:45.411] the President's response to the L.A. protests,
+- [15:49.330] there is criticism that seems to suggest
+- [15:51.416] that the President responded the way he
+- [15:53.451] did because it was a deliberate,
+- [15:55.608] calculated attempt to shift focus
+- [15:57.842] away from his fued with Musk.
+- [15:59.891] How would you respond to that?
+- [16:01.530] Karoline Leavitt: That the President responded to the L.A.
+- [16:04.363] riots condemning the violence to shift --
+- [16:08.030] that's an incredibly disingenuous attack.
+- [16:10.230] The President saw images of Border Patrol
+- [16:12.433] and ICE agents being hailed with rocks and
+- [16:14.840] Molotov cocktails.
+- [16:16.010] He saw vehicles being burned to the ground
+- [16:18.510] with illegal aliens flying foreign flags.
+- [16:20.951] And that's what prompted the President to
+- [16:23.005] have this response that has clearly worked
+- [16:25.285] because last night in Los Angeles,
+- [16:26.793] you didn't see many of those images.
+- [16:28.450] And I would add the governor and
+- [16:30.399] the mayor need to actually do more.
+- [16:32.630] I know Gavin Newsom had a big
+- [16:34.099] address to the nation last night.
+- [16:36.120] I guess he thought that's what it was
+- [16:37.747] for maybe his future political ambitions.
+- [16:40.130] But he spoke a lot of words.
+- [16:41.710] We haven't seen action.
+- [16:43.450] California has been a mess for years
+- [16:44.970] because of the incompetence of Gavin Newsom.
+- [16:46.890] So the President was responding to that only.
+- [16:49.310] Kaitlin.
+- [16:51.310] The Press: Over the weekend Secretary Noem sent a
+- [16:53.364] memo to the Pentagon asking Secretary
+- [16:55.770] Hegseth to have and direct the military
+- [16:58.364] that's on the ground in L.A. to arrest
+- [17:01.091] and detain what she said were lawbreakers.
+- [17:04.150] Is the President okay with that?
+- [17:05.690] And under what authority would the members
+- [17:07.708] of the military be able to arrest
+- [17:09.301] people inside the United States?
+- [17:10.930] Karoline Leavitt: I can't speak for a letter that came
+- [17:12.520] from the Department of Homeland Security.
+- [17:14.350] I can't speak for the President and what's
+- [17:16.083] currently happening on the ground now.
+- [17:17.750] And as you know, the President.
+- [17:21.260] has the authority to do.
+- [17:23.810] And our United States Marines and the
+- [17:25.387] National Guardsmen and women who are on
+- [17:27.051] the ground right now are helping to create
+- [17:29.297] a peaceful environment for ICE and Border
+- [17:31.540] Patrol who were being again hailed
+- [17:33.231] with rocks who were being
+- [17:34.523] violently and viciously attacked.
+- [17:36.350] They needed reinforcements.
+- [17:38.030] And so our United States Marines who
+- [17:39.736] are on the ground are providing those
+- [17:41.491] reinforcements to ensure the environment
+- [17:43.517] is peaceful so that these raids
+- [17:45.104] and deportations can continue.
+- [17:46.570] But he realizes they can't actually arrest
+- [17:48.371] people unless he invokes the Insurrection
+- [17:50.131] Act, which I mean seemingly was not
+- [17:52.346] something that was in Secretary Noem's
+- [17:54.751] memo a clear distinction she did not make there.
+- [17:57.590] Karoline Leavitt: Again, you're trying to conflate a
+- [17:58.696] letter that was sent to the Department of
+- [18:00.031] Homeland Security to the President's legal authority.
+- [18:02.400] The President understands the legal
+- [18:03.784] authority that he invoked and that's
+- [18:05.236] the current situation right now.
+- [18:06.650] The Press: When he comes to federalizing the National
+- [18:08.350] Guard, what is the specific criteria that
+- [18:10.011] the President is using for when he's
+- [18:12.201] deciding to do that in which state?
+- [18:14.331] Karoline Leavitt: The President was asked and answered this yesterday.
+- [18:16.231] He wants to see an end to the chaos and the violence.
+- [18:18.770] He doesn't want to see law
+- [18:19.810] enforcement officers being attacked.
+- [18:21.650] He wants to see peace.
+- [18:23.230] He wants law-abiding Californians to be
+- [18:25.066] able to bring their kids to school to be
+- [18:26.951] able to go to work without seeing
+- [18:28.271] this violence in the streets.
+- [18:29.530] That's what the President is hoping for
+- [18:31.090] and that's why he's taking this action.
+- [18:32.830] John.
+- [18:32.831] The Press: Thanks a lot, Karoline.
+- [18:34.250] Two questions,
+- [18:35.350] on two separate topics.
+- [18:36.450] One has to do with the military parade
+- [18:38.288] taking place here in Washington this weekend.
+- [18:40.490] There's a lot of security around the White
+- [18:42.910] House complex, around the Capitol
+- [18:44.930] complex, even along the Title Basin.
+- [18:46.970] Is that just proactive?
+- [18:48.670] Are you expecting anything in particular
+- [18:50.892] in terms of unrest like we've seen in Los Angeles?
+- [18:53.790] Karoline Leavitt: These are proactive security measures
+- [18:55.885] to protect those marching in the parade,
+- [18:58.230] many of whom will be veterans and
+- [19:00.259] are brave men and women in uniform.
+- [19:02.411] And gold star families, there's going
+- [19:04.163] to be military families from around the
+- [19:06.011] country who are flying into this parade.
+- [19:07.745] And of course, it's to protect the
+- [19:09.865] spectators who will be enjoying this
+- [19:12.111] incredibly patriotic show on Saturday.
+- [19:14.360] And I hope you all join us there.
+- [19:15.770] The Press: And then secondly, Secretary Hegseth
+- [19:18.001] testified on the Senate side of the Capitol today.
+- [19:21.950] And he was asked about America's
+- [19:25.308] administration's view of Vladimir Putin's intentions.
+- [19:29.890] Specifically, it was asked whether or not
+- [19:32.411] his intentions go beyond his
+- [19:34.079] territorial ambitions go beyond Ukraine.
+- [19:37.370] When that question was posed to the
+- [19:39.365] chairman of the Joint Chiefs of Staff,
+- [19:42.310] General Cain replied that he does believe
+- [19:45.036] that his current ambitions go beyond Ukraine.
+- [19:48.270] But Secretary Hegseth said
+- [19:50.029] it's not clear at this point.
+- [19:52.430] How does the President view this issue?
+- [19:54.650] Karoline Leavitt: The President has spoken on this.
+- [19:56.250] He said, as he calls it, he believes
+- [19:58.487] Ukraine was always the apple of Putin's eye.
+- [20:01.810] And he made it very clear to Putin in
+- [20:03.685] his first term, not to invade Ukraine.
+- [20:06.090] Putin didn't invade Ukraine because of
+- [20:07.610] President Trump's peace through strength,
+- [20:09.590] foreign policy agenda and the effective
+- [20:12.065] deterrence policies that he
+- [20:13.820] implemented in the first term.
+- [20:15.445] Unfortunately, because of the weakness
+- [20:17.055] and incompetence of the previous
+- [20:18.411] administration, Vladimir Putin made
+- [20:20.383] the decision to invade Ukraine.
+- [20:22.190] And now we have this brutal war, which
+- [20:23.953] the President is working very hard to end.
+- [20:26.190] Jasmine.
+- [20:26.670] The Press: Thanks so much, Karoline.
+- [20:27.830] The President warned that any protests
+- [20:31.137] on Saturday would be met with force,
+- [20:34.570] can you clarify what kind of protest
+- [20:36.577] President Trump does support or find acceptable?
+- [20:39.290] Karoline Leavitt: The President absolutely supports peaceful protests.
+- [20:42.230] He supports the First Amendment.
+- [20:43.690] He supports the right of Americans
+- [20:45.500] to make their voices heard.
+- [20:46.770] He does not support violence of any kind.
+- [20:49.340] He does not support assaulting law
+- [20:50.785] enforcement officers who are
+- [20:51.921] simply trying to do their job.
+- [20:53.690] It's very clear for the President
+- [20:55.103] what he supports and what he does not.
+- [20:56.870] Unfortunately for Democrats, that line has
+- [20:58.633] not been made clear and they've allowed
+- [21:00.271] this unrest and this violence to continue
+- [21:02.224] and the President has had to step in.
+- [21:04.490] The Press: So if there were peaceful protests
+- [21:06.375] on Saturday for the military parade,
+- [21:08.650] President Trump would allow that.
+- [21:09.850] Karoline Leavitt: Of course, the President supports peaceful protests.
+- [21:11.870] What a stupid question.
+- [21:13.290] The Press: Thank you so much, Karoline.
+- [21:16.930] Thank you so much, Karoline.
+- [21:19.120] I have two questions about Israel, yesterday
+- [21:23.990] the U.S. Ambassador to Israel said the U.S. no
+- [21:25.908] longer pursuing the goal of an
+- [21:27.448] independent Palestinian state.
+- [21:29.930] Can you confirm that the President is
+- [21:31.545] no longer supporting a two-state solution?
+- [21:33.750] And s President Trump considering
+- [21:35.965] diplomatic action against countries
+- [21:38.320] who takes action against Israel
+- [21:40.545] during next week, (inaudible) conference?
+- [21:42.931] Karoline Leavitt: Right now, the President views the
+- [21:45.106] situation in Israel and Gaza as deeply
+- [21:47.685] unfortunate and needing to end.
+- [21:49.411] And the President is realistic about the
+- [21:52.025] current state of affairs in this region of the world.
+- [21:55.190] And that's why the President has said
+- [21:57.026] the number one focus and priority of the
+- [21:59.011] administration is to release
+- [22:00.285] all of the hostages from Gaza.
+- [22:01.890] And to end this conflict as soon as
+- [22:03.494] possible, the administration is still
+- [22:05.215] pushing very hard for the release of all the hostages.
+- [22:08.650] And as for what happens next, clearly
+- [22:11.305] Gaza is an uninhabitable place.
+- [22:13.680] It needs to be rebuilt with the help of
+- [22:15.391] our Arab partners and the President
+- [22:16.989] wants to see that happen as well.
+- [22:19.070] The Press: Just one on the G7 engagement.
+- [22:21.810] President Trump is traveling there on Sunday.
+- [22:24.350] Other presidents, beyond the G7 leaders are also going.
+- [22:27.330] President Lula from Brazil, President
+- [22:29.310] Sheinbaum from Mexico and President
+- [22:31.131] Zelensky from Ukraine are also going.
+- [22:33.490] Do you have confirmation if President
+- [22:35.682] Trump is meeting any other
+- [22:37.123] leaders on the sideline of the G7?
+- [22:39.590] Karoline Leavitt: Yes.
+- [22:41.990] I can confirm there will be quite a few
+- [22:44.014] bilateral meetings between the
+- [22:45.633] President and other foreign leaders.
+- [22:47.370] The White House is still working
+- [22:48.697] very hard to finalize that schedule.
+- [22:50.350] And we will provide that for you as soon as we have it.
+- [22:53.130] Great.
+- [22:53.310] The Press: Thanks, Karoline.
+- [22:54.370] Just back to the China trade deal.
+- [22:57.010] Can you talk about the status of
+- [22:59.344] the export controls that the U.S.
+- [23:01.850] imposed?
+- [23:02.970] Are those no longer being imposed?
+- [23:05.070] Karoline Leavitt: We are fully complying with the Geneva Agreement.
+- [23:08.170] Sure.
+- [23:09.630] Go ahead.
+- [23:10.230] Sure.
+- [23:10.810] The Press: Thanks, Karoline.
+- [23:11.530] One foreign question for you,
+- [23:13.230] one domestic.
+- [23:14.130] The foreign -- the President, of course,
+- [23:16.267] has said he would relieve -- he
+- [23:17.885] would lift sanctions on Syria.
+- [23:20.230] Is there an executive order
+- [23:21.978] coming along soon to go do that?
+- [23:24.051] And is the President planning to try
+- [23:26.502] to get involved in any kind of a peace
+- [23:29.091] agreement between Israel and Syria
+- [23:31.695] that would disengage those two?
+- [23:34.800] Karoline Leavitt: To the best of my knowledge, the Treasury
+- [23:36.554] Department took action after the President
+- [23:38.351] made that announcement in Saudi Arabia.
+- [23:41.310] The Press: And then on the domestic side, you
+- [23:43.486] were just asked about the
+- [23:45.078] First Amendment rights issues.
+- [23:47.510] In the President's comments yesterday,
+- [23:49.848] though, he just said protesters
+- [23:51.634] would be strongly dealt with.
+- [23:54.670] In your list before you referred to
+- [23:56.936] insurrectionists, rioters and protesters, together.
+- [24:00.630] Obviously, they're quite different
+- [24:02.474] from your earlier answer.
+- [24:04.190] I'm struck by the fact that the President
+- [24:06.672] has not at any point said the most
+- [24:08.731] important thing here is to protect
+- [24:10.336] the First Amendment rights of peaceful protesters.
+- [24:12.890] So, I'm wondering, where in his hierarchy
+- [24:15.462] of interests does he place that?
+- [24:17.471] Is the First Amendment protection the most important?
+- [24:21.030] Is stopping violence
+- [24:23.670] most important?
+- [24:24.670] Why is he not out saying all peaceful
+- [24:27.137] protesters will be protected?
+- [24:29.330] Karoline Leavitt: I think two things can be important at the same time.
+- [24:32.070] And the President, as I just answered,
+- [24:34.044] supports the right of Americans to peacefully protest.
+- [24:36.710] He supports the First Amendment.
+- [24:37.975] But that is not the majority of the
+- [24:40.055] behavior that we have seen taking place in Los Angeles.
+- [24:43.220] We have seen mobs of violent rioters
+- [24:45.735] and agitators assaulting law
+- [24:47.805] enforcement officers, assaulting our
+- [24:49.739] federal immigration authorities.
+- [24:51.610] And we have seen, as I said, this goes
+- [24:53.899] back to what this administration
+- [24:55.910] is trying to do and accomplish.
+- [24:57.350] And that's enforcing law and
+- [24:58.560] order in our nation's communities.
+- [25:00.295] And it's removing public safety threats
+- [25:02.632] from communities in Los Angeles.
+- [25:06.750] I just read for you the arrest numbers.
+- [25:09.490] We've arrested nearly 400 illegal aliens
+- [25:12.070] alone, just illegal aliens who have been
+- [25:14.800] arrested in these riots since
+- [25:16.145] June 6th since they began.
+- [25:18.115] We've had hundreds of people who have
+- [25:20.219] assaulted law enforcement officers.
+- [25:22.470] Are you saying that that's appropriate behavior?
+- [25:25.471] Are you saying that the Democrats,
+- [25:27.973] the Democrat governor and the Democrat
+- [25:30.771] mayor of Los Angeles have failed their citizens.
+- [25:33.750] And the majority of Americans, the
+- [25:35.522] majority of Californians, do not want
+- [25:37.451] to see law enforcement officers
+- [25:39.061] being assaulted in the streets.
+- [25:40.910] And thankfully, the President took action
+- [25:43.230] and stepped in to protect our federal law
+- [25:45.551] enforcement agents, to protect federal
+- [25:48.138] buildings, to protect the federal mission
+- [25:51.080] of deporting illegal criminals off of our streets.
+- [25:53.630] And that mission will continue
+- [25:54.830] every day as far as we're concerned.
+- [25:56.590] Thank you, guys.

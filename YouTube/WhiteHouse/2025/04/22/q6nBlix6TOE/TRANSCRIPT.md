@@ -1,0 +1,557 @@
+<!-- source: https://www.youtube.com/watch?v=q6nBlix6TOE -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: q6nBlix6TOE -->
+<!-- date_published: 2025-04-22T10:16:38+00:00 -->
+<!-- date_accessed: 2026-06-02T02:51:37.894339+00:00 -->
+
+# Transcript: Vice President JD Vance Delivers Remarks on the U.S. and India's Shared Priorities
+
+- [00:25.670] The Vice President: Good to see everybody.
+- [00:26.890] How are we doing? Good. Good.
+- [00:29.410] Well, it's an amazing privilege to be here in Jaipur.
+- [00:34.080] I'm thrilled to address the Ananta Centre's India-US
+- [00:37.470] Forum and I'm thrilled to have you all here with me.
+- [00:40.270] Thanks to all of you, the business leaders,
+- [00:42.280] decision makers, and of course, the students for being here.
+- [00:45.730] And thanks to our great team at the US Embassy
+- [00:48.570] for everything that you guys do for our country.
+- [00:50.950] In the United States,
+- [00:52.190] we're proud of the deep connection between our nations,
+- [00:55.290] between India and the United States.
+- [00:57.510] Prime Minister Modi, as most of you probably know,
+- [00:59.620] was one of the first visitors welcomed into the Oval Office
+- [01:02.450] during President Trump's second term.
+- [01:05.160] And like President Trump,
+- [01:06.380] the Prime Minister inspires remarkable loyalty
+- [01:09.590] because of the strength of his belief in his people
+- [01:12.860] and in his country.
+- [01:15.210] Now we're so grateful for Prime Minister Modi's hospitality
+- [01:17.770] as well as the reception that he
+- [01:19.640] and everyone else in this country
+- [01:21.240] have given us on this first trip for me to India.
+- [01:25.280] This is my first time
+- [01:26.720] visiting the birthplace of my wife's parents
+- [01:30.280] and she's, of course, in the front row there.
+- [01:32.290] There you are, Usha.
+- [01:38.670] She's a bit of a celebrity it turns out in India,
+- [01:40.610] I think more so than her husband.
+- [01:42.420] But I haven't been here long, but already I've been fortunate
+- [01:45.930] enough to visit the Akshardham Temple.
+- [01:48.610] Did I pronounce that right, honey?
+- [01:50.170] I did okay. All right.
+- [01:51.720] With my family this morning, as a matter of fact.
+- [01:53.610] And last night, Prime Minister Modi welcomed me,
+- [01:57.180] Usha and our three small children at his beautiful home.
+- [02:00.650] I've been amazed by the ancient beauty
+- [02:03.770] of the architecture of India,
+- [02:05.730] by the richness of India's history and traditions,
+- [02:08.540] but also by India's laser-like focus on the future.
+- [02:12.200] And those things, I think,
+- [02:13.410] this appreciation for history and tradition
+- [02:15.940] and this focus on the future is very much something
+- [02:18.740] that I think animates this country in 2025.
+- [02:22.550] Now, in other countries I've visited,
+- [02:23.890] it sometimes feels like there's a flatness, a saneness,
+- [02:27.890] a desire to just be like everyone else in the world.
+- [02:32.440] But it's different here. There's a vitality to India,
+- [02:35.370] a sense of infinite possibility of new homes to be built,
+- [02:39.330] new skylines to be raised and lives to be enriched.
+- [02:43.080] And there's a pride in being Indian,
+- [02:45.230] a feeling of excitement about the days that lie ahead.
+- [02:48.800] Now, it's a striking contrast with too many in the West,
+- [02:52.290] where some in our leadership class
+- [02:54.010] seemed stricken by self-doubt and even fear of the future.
+- [02:58.070] To them, humanity is always one bad decision
+- [03:00.930] away from catastrophe.
+- [03:02.920] "The world will soon end" they tell us
+- [03:04.440] because we're burning too much fuel
+- [03:06.720] or making too many things or having too many children.
+- [03:10.000] And so rather than invest in the future,
+- [03:12.970] they too often retreat from it.
+- [03:15.290] Some of them pass laws
+- [03:16.530] that force their nations to use less power.
+- [03:19.290] They cancel nuclear and other energy generation facilities.
+- [03:23.020] Even as their choices, the choices of these leaders
+- [03:25.740] lead to more dependence on foreign adversaries.
+- [03:29.190] Meanwhile, their message to their friends,
+- [03:31.040] to countries like India is to tell them
+- [03:33.600] that they're not allowed to grow.
+- [03:35.590] Well, President Trump rejects these failed ideas.
+- [03:39.840] He wants America to grow. He wants India to grow.
+- [03:44.190] And he wants to build the future
+- [03:45.550] with our partners all over the globe.
+- [03:52.390] And when I look at this audience
+- [03:54.360] or when I visit this incredible country
+- [03:56.580] over these last couple of days,
+- [03:58.550] I see a people that will not be held back.
+- [04:01.630] Now, the most profound responsibility
+- [04:03.380] I believe that all of us have is not to ourselves,
+- [04:06.460] but to the next generation,
+- [04:08.040] to make sure we leave them with a better society
+- [04:10.470] than the one that our parents and our grandparents gave us.
+- [04:13.700] And this is the world
+- [04:15.000] that America seeks to create with you.
+- [04:17.680] We want to build a bright new world,
+- [04:19.670] one that's constantly innovating,
+- [04:21.850] one that's helping people to form families,
+- [04:24.040] making it easier to build, invest,
+- [04:26.610] and trade together in pursuit of common goals.
+- [04:30.360] Now I believe, that our nations have much to offer one another,
+- [04:34.780] and that's why we come to you as partners
+- [04:36.650] looking to strengthen our relationship.
+- [04:39.630] Now, we're not here to preach
+- [04:41.780] that you do things any one particular way.
+- [04:44.970] Too often in the past,
+- [04:46.330] Washington approached Prime Minister Modi
+- [04:48.370] with an attitude of preachiness or even one of condescension.
+- [04:52.990] Prior administration saw India as a source of low-cost labor
+- [04:57.130] on the one hand,
+- [04:58.410] even as they criticized the Prime Minister's government,
+- [05:01.210] arguably the most popular in the democratic world.
+- [05:04.160] And as I told Prime Minister Modi last night,
+- [05:06.550] he's got approval ratings that would make me jealous.
+- [05:10.940] But it wasn't just India,
+- [05:14.640] this attitude captured too much of our economic relationship
+- [05:18.040] with the rest of the world.
+- [05:19.790] So we shipped countless jobs overseas
+- [05:23.720] and with them our capacity to make things,
+- [05:26.620] from furniture, appliances and even weapons of war.
+- [05:30.660] We traded hard power for soft power,
+- [05:33.810] because with economic integration
+- [05:35.710] we were told, would also come peace through sameness.
+- [05:40.850] Over time, we'd all assume the same sort of bland,
+- [05:44.420] secular, universal values.
+- [05:46.530] "No matter where you lived, the world was flat after all."
+- [05:49.690] That was the thesis and that was what they told us.
+- [05:52.610] And when that thesis proved false or at least incomplete,
+- [05:56.510] leaders in the West took it upon themselves
+- [05:58.900] to flatten it by any means necessary.
+- [06:02.180] But many people across the world,
+- [06:03.760] and I think your country counts among them,
+- [06:05.780] they did not want to be flattened.
+- [06:08.170] Many were proud of where they came from,
+- [06:10.000] their way of life, the kind of jobs they worked
+- [06:12.680] and the kind of jobs their parents worked before them.
+- [06:15.740] And that very much includes people in my own country,
+- [06:19.340] the United States of America.
+- [06:21.510] Now, some of you are aware of my own background.
+- [06:23.970] I actually didn't plan to talk about my background at all
+- [06:27.280] until last night at dinner,
+- [06:28.650] while my children, mostly behaved.
+- [06:30.670] We gave an A minus for behavior with the Prime Minister.
+- [06:33.750] The Prime Minister said, "I have one request.
+- [06:36.350] I want you to talk a little bit about your background."
+- [06:38.980] And so I wanted to do that.
+- [06:40.210] For those of you who don't know anything about me,
+- [06:42.850] I wanted to talk about it.
+- [06:44.050] I come from, and I'm biased, the greatest state in the union,
+- [06:47.650] the state of Ohio,
+- [06:49.160] a longtime manufacturing powerhouse
+- [06:51.390] in the United States of America.
+- [06:53.330] My home specifically is a place called Middletown.
+- [06:56.990] Now, it's not a massive city by any means, it's not Jaipur.
+- [07:00.480] But it's a decent sized town
+- [07:02.010] and a place where people make things
+- [07:04.010] which has been a point of pride in Middletown for generations.
+- [07:07.810] It's filled with families like my own,
+- [07:09.760] some of whom called us hillbillies,
+- [07:11.830] Americans who came down from the surrounding hills
+- [07:14.940] and mountains of West Virginia, Tennessee,
+- [07:16.820] and Kentucky to cities like Middletown
+- [07:19.580] in pursuit of the manufacturing jobs
+- [07:22.460] that were creating widespread prosperity
+- [07:24.750] for families all across America. They came to Middletown
+- [07:27.790] in search of what we call back home, the American dream.
+- [07:31.580] In Middletown, my parents raised me.
+- [07:33.720] My grandparents raised me.
+- [07:35.260] They taught us to work hard, they taught me to study hard,
+- [07:38.730] and they taught me to love God and my country
+- [07:41.130] and always be good to your own.
+- [07:43.710] My granddad, who I called Papaw growing up, he typified that.
+- [07:48.250] Late into life, he worked as a steelmaker at the local mill.
+- [07:52.120] And I know India has a lot of those.
+- [07:54.000] Papaw's job gave him a good wage, stable hours,
+- [07:57.060] and a generous pension.
+- [07:58.900] All that allowed him to support not just him and my grandmother,
+- [08:02.380] but his own daughter and grandkids with him.
+- [08:05.140] Now by the time I came around, money was awfully tight,
+- [08:07.610] but he worked hard to make a good living for all of us.
+- [08:11.160] Now I know Papaw and Mammaw were grateful
+- [08:13.050] for the way of life their country made possible.
+- [08:16.110] Their generation bore witness to the formation
+- [08:18.640] of America's great middle class.
+- [08:21.290] And by creating an economy centered around production,
+- [08:24.130] around workers who build things
+- [08:26.190] and around the value of their labor,
+- [08:28.370] our nation's leaders then transformed their country
+- [08:31.430] and made thousands of little Middletowns possible.
+- [08:35.150] The government supported its labor force.
+- [08:37.580] We created incentives for productive industries
+- [08:40.100] to take root and struck good deals
+- [08:42.250] with international partners
+- [08:43.450] to sell the goods made in the United States of America.
+- [08:47.140] But as America settled in to world historic prosperity
+- [08:50.880] it generated,
+- [08:52.170] our leaders began to take that very prosperity
+- [08:55.160] and what created it for granted.
+- [08:57.210] They forgot the importance of building,
+- [08:59.610] of supporting productive industry,
+- [09:01.690] of striking fair deals,
+- [09:03.090] and of supporting our workers and their families.
+- [09:05.940] And as time went on, we saw the consequences.
+- [09:08.780] In my hometown, factories left, jobs evaporated,
+- [09:12.720] America's Middletowns ceased to be
+- [09:14.920] the lifeblood of our nation's economy.
+- [09:17.820] And the United States, as it became transformed,
+- [09:21.430] those very people, the working class,
+- [09:23.940] the background of the United States of America
+- [09:25.980] were dismissed as backwards for holding on to the values
+- [09:29.410] their people had held dear for generations.
+- [09:32.390] Now, Middletown's story is my story,
+- [09:34.690] but it's hardly unusual in the United States of America.
+- [09:37.890] There are tens of millions of Americans who,
+- [09:40.260] over the last 20 or so years,
+- [09:42.670] have woken up to what's happening in our nation.
+- [09:45.500] But I believe they woke up well before it's too late.
+- [09:49.500] Now like you, we want to appreciate our history,
+- [09:52.800] our culture, our religion. We want to do commerce
+- [09:55.360] and strike good deals with our friends.
+- [09:57.970] We want to found our vision of the future
+- [10:00.160] upon the proud recognition of our heritage
+- [10:02.920] rather than self-loathing and fear.
+- [10:06.030] I work for a president who has long understood all of this.
+- [10:09.760] Whether through fighting those who seek
+- [10:11.400] to erase American history
+- [10:13.590] or in support of fair trade deals abroad,
+- [10:16.270] he has been consistent on these issues for decades.
+- [10:19.450] And as a result, under the Trump administration,
+- [10:21.820] America now has a government
+- [10:23.730] that has learned from the mistakes of the past.
+- [10:27.080] It's why President Trump cares so deeply
+- [10:29.700] about protecting the manufacturing economy
+- [10:31.820] that is the lifeblood of American prosperity
+- [10:34.680] and making sure America's workers
+- [10:36.280] have opportunities for good jobs.
+- [10:38.910] As we saw earlier this month,
+- [10:40.390] he will go to extraordinary lengths to protect and expand
+- [10:44.080] those opportunities for all Americans.
+- [10:46.720] And so today, I come here with a simple message.
+- [10:49.470] Our administration seeks trade partners
+- [10:51.650] on the basis of fairness and of shared national interests.
+- [10:56.310] We want to build relationships with our foreign partners
+- [10:59.440] who respect their workers,
+- [11:00.800] who don't suppress their wages to boost exports,
+- [11:03.640] but respect the value of their labor.
+- [11:06.270] We want partners that are committed
+- [11:07.600] to working with America to build things,
+- [11:10.130] not just allowing themselves to become a conduit
+- [11:12.480] for transshipping others' goods.
+- [11:14.870] And finally, we want to partner with people and countries
+- [11:18.560] who recognize the historic nature of the moment we are in,
+- [11:22.280] of the need to come together and build something truly new,
+- [11:26.880] a system of global trade that is balanced,
+- [11:30.410] one that is open and one that is stable and fair.
+- [11:35.300] Now I want to be clear,
+- [11:36.530] America's partners need not look exactly like America,
+- [11:41.120] nor must our governments do everything exactly the same way,
+- [11:45.340] but we should have some common goals.
+- [11:46.960] And I believe here in India, we do, in both economics
+- [11:50.940] and in national security. And that's why we're so excited.
+- [11:54.410] That's why I'm so excited to be here today in India.
+- [11:57.730] America has a friend and we seek to strengthen
+- [12:01.090] the warm bonds our great nations already share.
+- [12:04.930] Now critics have attacked my president,
+- [12:07.700] President Trump, for starting a trade war in an effort
+- [12:10.950] to bring back the jobs of the past,
+- [12:12.810] but nothing could be further from the truth.
+- [12:16.500] He seeks to rebalance global trade
+- [12:19.130] so that America, with friends like India,
+- [12:21.740] can build a future worth having for all of our people together.
+- [12:25.500] And when President Trump and Prime Minister Modi
+- [12:28.580] announced in February that our countries aim to more
+- [12:31.550] than double our bilateral trade to $500 billion
+- [12:35.570] by the end of the decade, I know that both of them meant it.
+- [12:39.410] And I'm encouraged by everything our nations
+- [12:41.680] are doing to get us there. As many of you are aware,
+- [12:45.460] both of our governments are hard at work on a trade agreement
+- [12:48.630] built on shared priorities like creating new jobs,
+- [12:52.430] building durable supply chains,
+- [12:54.600] and achieving prosperity for our workers.
+- [12:57.390] In our meeting yesterday, Prime Minister Modi and I
+- [12:59.580] made very good progress on all of those points
+- [13:03.330] and we were especially excited to formally announce
+- [13:06.300] that America and India have officially finalized
+- [13:09.050] the terms of reference for the trade negotiation.
+- [13:12.120] I think this is a vital step. Thank you.
+- [13:19.950] I believe this is a vital step toward realizing
+- [13:23.090] President Trump's and Prime Minister Modi's vision
+- [13:26.330] because it sets a roadmap toward a final deal
+- [13:29.090] between our nations.
+- [13:30.830] I believe there is much that America and India
+- [13:33.690] can accomplish together. On that note,
+- [13:36.380] I want to talk about a few areas of collaboration today,
+- [13:39.480] how India and the United States can work together.
+- [13:42.480] First, perhaps most importantly, to protect our nations.
+- [13:46.120] Second, to build great things.
+- [13:48.850] And finally, to innovate the cutting edge technologies
+- [13:51.610] both our countries will need in the years to come.
+- [13:54.830] Now on defense,
+- [13:56.050] our countries already enjoy a close relationship,
+- [13:58.670] one of the closest relationships in the world.
+- [14:01.140] America does more military exercises with India
+- [14:04.500] than we do with any other nation on earth.
+- [14:07.600] The US-India COMPACT
+- [14:08.870] that President Trump and Prime Minister Modi
+- [14:10.880] announced in February will lay the foundation
+- [14:13.360] for even closer collaboration between our countries.
+- [14:16.740] From Javelins to Stryker combat vehicles,
+- [14:19.870] our nations will co-produce many of the munitions and equipment
+- [14:23.430] that will need to deter foreign aggressors.
+- [14:25.940] Not because we seek war, but because we seek peace
+- [14:29.030] and we believe the best path to peace
+- [14:31.710] is through mutual strength.
+- [14:33.770] And the launching the Joint Autonomous Systems
+- [14:36.170] Industry Alliance will enable America and India
+- [14:39.870] to develop the most state-of-the-art
+- [14:41.300] maritime systems needed for victory.
+- [14:44.020] It's fitting that India, this year,
+- [14:46.600] is hosting the Quad Leaders' Summit this fall.
+- [14:49.910] Our interests in a free, open, peaceful, and prosperous
+- [14:54.220] Indo-Pacific are in full alignment.
+- [14:57.530] Both of us know that the region must remain safe
+- [15:01.220] for many hostile powers that seek to dominate it.
+- [15:04.670] Growing relations between our countries over the last decade
+- [15:08.120] are part of what led America to designate India
+- [15:11.030] a major defense partner, the first of that class.
+- [15:14.740] This designation means that India now shares,
+- [15:18.130] with the UAE,
+- [15:19.680] a defense and technology infrastructure and partnership
+- [15:23.380] with the United States on par
+- [15:25.820] with America's closest allies and friends.
+- [15:30.220] But we actually feel that India has much more to gain
+- [15:34.180] from its continued defense partnership
+- [15:35.530] with the United States.
+- [15:36.730] And let me sketch that out a little bit.
+- [15:38.760] We, of course, want to collaborate more.
+- [15:40.800] We want to work together more.
+- [15:42.130] And we want your nation to buy more of our military equipment,
+- [15:45.600] which of course, we believe is the best-in-class.
+- [15:48.660] American fifth generation F35s, for example,
+- [15:51.420] would give the Indian Air Force
+- [15:53.270] the ability to defend your airspace
+- [15:55.470] and protect your people like never before.
+- [15:57.510] And I've met a lot of great people from the Indian Air Force
+- [15:59.840] just in the last couple of days.
+- [16:02.160] India, like America, wants to build.
+- [16:04.830] And that will mean that we have to produce more energy.
+- [16:08.960] That's more energy production and more energy consumption.
+- [16:12.740] And it's one of the many reasons
+- [16:14.020] why I think our nations have so much to gain
+- [16:16.660] by strengthening our energy ties.
+- [16:19.540] As President Trump is fond of saying,
+- [16:21.930] "America has once again begun to drill, baby drill."
+- [16:26.810] And we think that will allure to the benefit of Americans,
+- [16:29.980] but will also benefit India as well.
+- [16:33.520] Past administrations in the United States of America,
+- [16:36.500] I think motivated by a fear of the future,
+- [16:38.990] have tied our hands and restricted American investments
+- [16:42.430] in oil and natural gas production.
+- [16:45.390] This administration recognizes that cheap,
+- [16:49.450] dependable energy is an essential part of making things
+- [16:53.570] and is an essential part of economic independence
+- [16:56.330] for both of our nations.
+- [16:58.900] Of course, America is blessed with vast natural resources
+- [17:03.340] and an unusual capacity to generate energy,
+- [17:06.570] so much that we want to be able to sell it
+- [17:08.250] to our friends like India.
+- [17:10.650] We believe your nation will benefit from American energy
+- [17:13.740] exports in expanding those exports.
+- [17:16.410] You'll be able to build more, make more and grow more,
+- [17:20.650] but at much lower energy costs.
+- [17:23.790] We also want to help India
+- [17:25.080] explore its own considerable natural resources,
+- [17:27.810] including its offshore natural gas reserves
+- [17:30.540] and critical mineral supplies.
+- [17:33.200] We have the capacity and we have the desire to help.
+- [17:37.610] Moreover, we think energy co-production
+- [17:39.650] will help beat unfair competitors
+- [17:41.740] in other foreign markets.
+- [17:43.780] But India, we believe, can go a long way to enhance energy
+- [17:46.980] ties between our nations.
+- [17:48.790] And one suggestion I have is maybe consider
+- [17:51.480] dropping some of the non-tariff barriers
+- [17:53.940] for American access to the Indian market.
+- [17:57.780] Now, I've talked about this, of course,
+- [17:59.150] with Prime Minister Modi, and look, President Trump and I
+- [18:01.730] know that Prime Minister Modi is a tough negotiator.
+- [18:05.140] He drives a hard bargain.
+- [18:06.770] It's one of the reasons why we respect him.
+- [18:11.940] And we don't blame Prime Minister Modi
+- [18:14.680] for fighting for India's industry.
+- [18:18.060] But we do blame American leaders of the past
+- [18:20.910] for failing to do the same for our workers.
+- [18:23.590] And we believe that we can fix that to the mutual benefit
+- [18:26.810] of both the United States and India.
+- [18:29.500] Let me give an example. American ethanol,
+- [18:32.150] we believe made from the finest corn in the world,
+- [18:34.800] can play a tremendous role in enhancing our partnership.
+- [18:38.320] And I know our farmers would be delighted
+- [18:40.340] to support India's energy security ambitions.
+- [18:43.770] We welcome the Modi Government's budget announcement
+- [18:46.210] to amend India's Civil Nuclear Liability Laws,
+- [18:49.460] which currently prevent US producers from exporting
+- [18:52.170] small modular reactors and building larger
+- [18:54.860] US designed reactors in India.
+- [18:57.990] There's much that we can create, much that we can do together.
+- [19:02.710] We believe that American energy can help realize
+- [19:05.040] India's nuclear power production goals,
+- [19:07.470] and this is very important as well as it's AI ambitious.
+- [19:11.350] Because as the United States knows well,
+- [19:13.510] and I know that India knows well,
+- [19:15.380] there is no AI future
+- [19:17.500] without energy security and energy dominance.
+- [19:20.950] And that brings me to my final point of collaboration.
+- [19:24.370] I believe that the technological collaboration between
+- [19:27.310] our countries is going to extend well beyond defense and energy.
+- [19:31.670] The US-India Trust initiative
+- [19:33.430] that President Trump and Prime Minister Modi
+- [19:35.220] have launched will be a cornerstone
+- [19:37.600] of the partnership in the future.
+- [19:39.880] It'll build on billions of dollars of planned investments
+- [19:42.670] that American companies have already announced across India.
+- [19:46.550] In the years to come, we're going to see data centers,
+- [19:49.680] pharmaceuticals, undersea cables,
+- [19:51.850] and countless other critical goods being developed
+- [19:54.760] and being built
+- [19:56.080] because of the American and Indian economic partnership.
+- [19:59.860] And I'll say it again,
+- [20:01.070] I think that our nations have so much to gain
+- [20:03.740] by investing in one another, America investing in India,
+- [20:07.140] and of course, India investing in the United States of America.
+- [20:10.910] And I know that Americans,
+- [20:12.460] our people are excited about that prospect
+- [20:15.370] and that President Trump and I
+- [20:17.060] are looking forward to stronger ties.
+- [20:19.590] Americans want further access to Indian markets.
+- [20:22.380] This is a great place to do business
+- [20:24.050] and we want to give our people more access to this country.
+- [20:27.260] And Indians, we believe,
+- [20:28.590] will thrive from greater commerce for the United States.
+- [20:31.910] This is very much a win-win partnership,
+- [20:35.130] certainly will be far into the future.
+- [20:38.590] And as I know, this audience knows better than most.
+- [20:42.690] Neither Americans nor Indians are alone
+- [20:45.360] in looking to scale up their manufacturing capacity.
+- [20:49.230] The competition extends well beyond cheap consumer goods
+- [20:53.650] and into munitions, energy, infrastructure
+- [20:57.140] and all sorts of other cutting edge technologies.
+- [21:00.360] I believe that if our nations fail to keep pace,
+- [21:03.500] the consequences for the Indo-Pacific,
+- [21:05.840] but really the consequences for the entire world
+- [21:07.930] will be quite dire.
+- [21:09.490] And this, again, is where India and the United States
+- [21:12.290] have so much to offer one another.
+- [21:14.490] We've got great hardware,
+- [21:15.810] the leading artificial intelligence
+- [21:17.520] hardware in the world.
+- [21:18.980] You have one of the most exciting startup technology
+- [21:22.980] infrastructures anywhere in the world.
+- [21:25.500] There's a lot to be gained by working together.
+- [21:28.470] And this is why President Trump
+- [21:29.890] and I both welcome India's leadership
+- [21:32.490] in a number of diplomatic organizations,
+- [21:34.610] but of course, in of the Quad. We believe a stronger India
+- [21:38.850] means greater economic prosperity,
+- [21:41.250] but also greater stability across the Indo-Pacific,
+- [21:44.280] which is of course a shared goal for all of us in this room
+- [21:47.510] and it's a shared goal for both of our countries.
+- [21:50.800] Now I want to close with one last story
+- [21:53.170] or maybe a couple of stories.
+- [21:54.620] So my son, Ewan, is seven years old.
+- [21:58.000] He's our firstborn son. And yesterday,
+- [22:01.170] after we had dinner at the Prime Minister's house,
+- [22:05.570] the food was so good and the Prime Minister
+- [22:07.890] was so kind to our three children
+- [22:09.960] that Ewan came up to me afterwards
+- [22:11.360] and he said, "Dad, I think maybe I could live in India."
+- [22:18.350] But I think after about 90 minutes
+- [22:20.820] in the Jaipur sun today at the Great Palace,
+- [22:24.210] he suggested that maybe we should move to England.
+- [22:26.290] So you take the good with the bad here.
+- [22:29.130] But I want to talk about Prime Minister Modi
+- [22:30.880] because I think he's a special person.
+- [22:32.220] I first met Prime Minister Modi
+- [22:34.160] at the AI Action Summit in February,
+- [22:37.070] and we had a lot of important discussions on AI
+- [22:39.540] and other policies to prepare for.
+- [22:41.780] And the Prime Minister also managed to figure out
+- [22:44.200] that my son, Vivek,
+- [22:45.560] was actually turning five years old on the trip.
+- [22:47.940] This was in Paris just a couple of months ago.
+- [22:50.650] So think about this. Amid a huge international policy conference,
+- [22:54.570] he took the time to stop by where I was staying.
+- [22:57.510] Wish our second son, Vivek, a happy birthday
+- [23:00.650] and even bring him a gift.
+- [23:02.730] Usha and I were both genuinely touched by his graciousness,
+- [23:06.540] and we've been even more impressed by his warmth
+- [23:08.630] since we arrived in India.
+- [23:10.640] Now, it's interesting,
+- [23:11.920] some of you may know that when you're a politician,
+- [23:14.030] your kids spend almost as much time in the limelight as you do.
+- [23:18.280] And the great things about kids is they are brutally honest,
+- [23:22.130] they're brutally honest with everybody
+- [23:23.540] whether you want them to be or not.
+- [23:25.630] And our seven-year-old, our five-year-old,
+- [23:27.210] and then our three-year-old baby girl, Mirabel,
+- [23:29.730] it's interesting, they have only really been,
+- [23:33.700] they've only really attached themselves to,
+- [23:35.850] they've only really liked, I should say,
+- [23:38.180] they've only really built a rapport with two world leaders.
+- [23:41.380] The first, of course, is President Trump.
+- [23:43.840] He just has a certain energy about him.
+- [23:46.910] But Prime Minister Modi, it's the exact same thing.
+- [23:50.320] Our kids just like him.
+- [23:52.250] And I think that because kids are such, good --
+- [23:54.120] strong of characters,
+- [23:55.330] I just like Prime Minister Modi too.
+- [23:57.020] And I think it's a great foundation
+- [23:58.880] for the future of our relationship.
+- [24:03.020] I could tell then, I could tell when Prime Minister Modi
+- [24:05.490] came over a couple of months ago,
+- [24:07.780] and I believe today that he is a serious leader
+- [24:10.970] who has thought deeply about India's future prosperity
+- [24:13.830] and security,
+- [24:15.150] not just for the rest of his time in office,
+- [24:17.160] but over the next century.
+- [24:19.230] And I want to end by making a simple overarching point.
+- [24:23.080] We are now officially one quarter into the 21st century,
+- [24:28.580] 25 years, in 75 years to go.
+- [24:32.530] And I really believe that the future of the 21st century
+- [24:36.780] is going to be determined by the strength
+- [24:39.840] of the United States-India Partnership.
+- [24:42.380] I believe… Thank you.
+- [24:48.430] I believe that if India and the United States
+- [24:51.900] work together successfully,
+- [24:54.010] we are going to see a 21st century
+- [24:56.640] that is prosperous and peaceful. But I also believe
+- [24:59.650] that if we fail to work together successfully,
+- [25:02.330] the 21st century could be a very dark time for all of humanity.
+- [25:07.260] So I want to say, it's clear to me as it is to most observers
+- [25:11.900] that President Trump, of course,
+- [25:13.200] intends to rebalance America's economic relationship
+- [25:17.070] with the rest of the world. That's going to cause,
+- [25:20.040] fundamentally will cause profound changes
+- [25:22.470] within our borders in the United States,
+- [25:24.720] but of course with other countries as well.
+- [25:27.300] But I believe that this rebalancing
+- [25:30.310] is going to produce great benefits for American workers.
+- [25:33.900] It's going to produce great benefits
+- [25:35.810] for the people of India.
+- [25:37.310] And because our partnership is so important
+- [25:40.240] to the future of the world,
+- [25:42.010] I believe President Trump's efforts joined, of course,
+- [25:45.810] by the whole country of India and Prime Minister Modi
+- [25:48.670] will make the 21st century the best century in human history.
+- [25:52.750] Let's do it together.
+- [25:53.950] God bless you, and thank you for having me.

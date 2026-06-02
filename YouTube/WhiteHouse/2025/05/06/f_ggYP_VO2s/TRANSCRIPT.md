@@ -1,0 +1,773 @@
+<!-- source: https://www.youtube.com/watch?v=f_ggYP-VO2s -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: f_ggYP-VO2s -->
+<!-- date_published: 2025-05-06T19:53:58+00:00 -->
+<!-- date_accessed: 2026-06-02T01:26:38.830510+00:00 -->
+
+# Transcript: President Trump Participates in a Bilateral Meeting with the Prime Minister of Canada, May 6, 2025
+
+- [00:01.060] President Trump: Thank you very much everybody.
+- [00:02.850] It's a great honor to have Prime Minister Mark Carney with us.
+- [00:06.480] As you know, just a few days ago,
+- [00:08.670] he won a very big election in Canada,
+- [00:11.300] and I think I was probably the greatest thing
+- [00:13.920] that happened to him, but I can't take vote credit.
+- [00:17.500] His party was losing by a lot and he ended up winning,
+- [00:21.600] so I really want to congratulate him.
+- [00:23.340] Was probably one of the greatest comebacks
+- [00:25.290] in the history of politics, maybe even greater than mine.
+- [00:29.850] But I want to just congratulate you.
+- [00:32.010] That was a great election actually.
+- [00:33.780] We were watching it with interest
+- [00:35.150] and I think Canada chose a very talented person,
+- [00:37.940] a very good person, as we spoke before
+- [00:40.270] the election quite a few times, and it's an honor to have you
+- [00:44.050] at the White House and the Oval Office.
+- [00:46.290] You see the new and improved Oval Office
+- [00:49.270] as it becomes more and more beautiful with love.
+- [00:52.840] We handle it with great love and 24 carat gold.
+- [00:56.310] That always helps too. But it's been a lot of fun
+- [01:01.340] going over some of the beautiful pictures
+- [01:04.070] that were stored in the vaults that were,
+- [01:05.990] for many, many years, in some cases over 100 years,
+- [01:10.030] they were stored in vaults of the great presidents,
+- [01:13.170] or almost great presidents,
+- [01:15.560] all having a reason for being up, every one of them.
+- [01:18.210] So it's very interesting.
+- [01:19.520] But I just want to congratulate you and ran a really great race.
+- [01:23.700] I watched the debate. I thought you were excellent
+- [01:26.750] and I think we have a lot of things in common.
+- [01:28.660] We have some tough points to go over and that'll be fine,
+- [01:32.040] but we're going to also be discussing Ukraine-Russia,
+- [01:34.980] the war, because Mark wants it ended as quickly as I do.
+- [01:38.700] I think it has to end.
+- [01:40.670] We had some very good news last night.
+- [01:42.570] The Houthis have announced that they are not…
+- [01:45.290] Or they've announced to us at least
+- [01:46.800] that they don't want to fight anymore.
+- [01:49.080] They just don't want to fight.
+- [01:50.670] And we will honor that and we will stop the bombings.
+- [01:58.670] And they have capitulated, but more importantly,
+- [02:04.600] we will take their word.
+- [02:06.210] They say they will not be blowing up ships anymore,
+- [02:09.240] and that's what the purpose of what we were doing.
+- [02:11.610] So that's just news, we just found out about that.
+- [02:14.980] So I think that's very, very positive.
+- [02:17.820] They were knocking out a lot of ships going, as you know,
+- [02:22.590] sailing beautifully down the various seas.
+- [02:26.790] It wasn't just the canal, it was a lot of other places.
+- [02:30.820] And I will accept their word
+- [02:32.510] and we are going to stop the bombing
+- [02:34.750] of the Houthis effective immediately.
+- [02:38.590] And Marco, you'll let everybody know that. Okay?
+- [02:42.420] Do you have something to say about that, by the way?
+- [02:44.240] This is a pretty big announcement.
+- [02:45.510] Secretary Rubio: Yeah. This was always a freedom
+- [02:46.740] of navigation issue.
+- [02:48.070] These guys, these are a band of individuals
+- [02:50.390] with advanced weaponry that were threatening global shipping,
+- [02:53.160] and the job was to get that to stop.
+- [02:54.880] And if it's going to stop, then we can stop.
+- [02:57.180] And so I think it's an important development.
+- [03:01.390] President Trump: And we'll have, maybe before…
+- [03:03.130] We're going to, as you know, the Middle East, Saudi Arabia,
+- [03:06.450] we're going to UAE and Qatar,
+- [03:09.980] and that'll be I guess Monday night.
+- [03:12.440] Some of you are coming with us.
+- [03:13.890] I think before then we're going to have
+- [03:15.420] a very, very big announcement to make, as big as it gets
+- [03:20.260] and I won't tell you on what, and it's very positive.
+- [03:24.090] I'd tell you if it was negative or positive,
+- [03:26.270] I can't keep that out. It is really, really positive.
+- [03:30.870] And that announcement will be made
+- [03:32.470] either Thursday or Friday or Monday before we leave,
+- [03:36.480] but it'll be one of the most important announcements
+- [03:38.940] that have been made in many years about a certain subject.
+- [03:43.310] Very important subject. So you'll all be here.
+- [03:47.260] Mark, would you like to say a few words?
+- [03:48.960] Prime Minister Carney: Thank you,
+- [03:50.180] Mr. President. I'm on the edge of my seat
+- [03:51.920] actually for the big announcement.
+- [03:54.040] But thank you for your hospitality
+- [03:56.350] and above all for your leadership.
+- [03:58.920] You're a transformational president.
+- [04:01.310] The focus on the economy with a relentless focus
+- [04:04.250] on the American worker, securing your borders,
+- [04:08.710] ending the scourge of fentanyl and other opioids,
+- [04:13.170] and securing the world.
+- [04:14.590] And I've been elected with my colleagues here,
+- [04:18.360] with the help of my colleagues here,
+- [04:19.630] I'm going to spread the credit,
+- [04:23.800] to transform Canada with a similar focus on the economy,
+- [04:27.210] securing our borders. Again, on fentanyl.
+- [04:30.920] A much greater focus on defense and security,
+- [04:33.510] securing the Arctic and developing the Arctic.
+- [04:36.560] And the history of Canada and the US
+- [04:38.760] is we're stronger when we work together
+- [04:40.550] and there's many opportunities to work together
+- [04:42.270] and I look forward to addressing
+- [04:44.640] some of those issues that we have,
+- [04:45.970] but also finding those areas of mutual cooperation
+- [04:48.280] so we can move forward.
+- [04:49.620] President Trump: Great. That's great. Very nice.
+- [04:51.170] Thank you very much. That was a very nice statement.
+- [04:52.940] The Press: Mr. President.
+- [04:54.280] President Trump: Anybody [inaudible].
+- [04:55.480] The Press: Mr. President. Mr. President. Is USMCA dead?
+- [04:59.720] President Trump: No. It was actually very effective,
+- [05:02.990] and it's still very effective, but people have to follow it,
+- [05:07.890] so that's been a problem. People haven't followed it.
+- [05:11.710] But it was a transitional step a little bit.
+- [05:16.560] And as you know, it terminates fairly shortly.
+- [05:20.870] It gets renegotiated very shortly.
+- [05:23.520] But I thought it was a very positive step from NAFTA.
+- [05:26.630] NAFTA was the worst trade deal in the history of our country,
+- [05:29.400] probably in the history of the world.
+- [05:31.460] And this was a transitional deal,
+- [05:36.470] and we'll see what happens.
+- [05:38.190] We're going to be starting to possibly renegotiate
+- [05:41.670] that if it's even necessary.
+- [05:43.050] I don't know that it's necessary anymore.
+- [05:45.220] But it served a very good purpose.
+- [05:47.130] And the biggest purpose it served is we got rid of NAFTA.
+- [05:49.650] NAFTA was a very unfair deal for the United States.
+- [05:52.840] A very, very terrible deal.
+- [05:54.210] It should have never been made. It was made many years ago,
+- [05:56.360] but it should have never been made.
+- [05:57.960] The Press: Mr. President, [inaudible]
+- [05:59.330] Canada and the United States.
+- [06:01.960] Would you like to see your first trade deal
+- [06:03.710] be with Canada, our neighbors to the north?
+- [06:05.390] President Trump: I would love that.
+- [06:06.590] Look, I have a lot of respect for this man,
+- [06:08.840] and I watched him come up and ascend through the ranks
+- [06:13.370] when he wasn't given much of a chance.
+- [06:14.920] And he did a… He ran a really great campaign.
+- [06:16.690] He did a really great debate.
+- [06:17.890] I think that debate was very helpful.
+- [06:20.990] I was going to raise my hand.
+- [06:23.630] I don't know if that's good or bad.
+- [06:25.060] I shouldn't say that. That might hurt you.
+- [06:27.590] But no, he ran a really great election, I thought.
+- [06:30.080] And yeah, something could happen.
+- [06:31.620] Something could happen. Yeah. Please.
+- [06:35.260] The Press: What's the top concession
+- [06:36.470] you want out of Canada?
+- [06:37.710] The top concession you want out of Canada?
+- [06:39.190] President Trump: Concession? The Press: Yes.
+- [06:40.410] President Trump: Friendship.
+- [06:41.660] The Press: But that's not a concession.
+- [06:43.360] President Trump: No. We're going to be friends with Canada.
+- [06:46.310] Regardless of anything, we're going to be friends with Canada.
+- [06:49.260] Canada's a very special place to me.
+- [06:52.140] I know so many people that live in Canada.
+- [06:55.120] My parents had relatives that lived in Canada,
+- [06:57.600] my mother in particular. And no, I love Canada.
+- [07:02.730] I have a lot of respect for the Canadians.
+- [07:06.010] Wayne Gretzky. I mean, how good… The Great One.
+- [07:09.510] You happen to have a very, very good hockey player
+- [07:11.970] right here on the Capitals, who I have a lot of…
+- [07:14.460] He is a big tough cookie too. He just broke the record.
+- [07:18.250] And he's a great guy. And we had the team here
+- [07:21.980] and I got to know a lot of the players.
+- [07:24.270] But now, Canada's a very special place.
+- [07:27.640] Yeah, please.
+- [07:28.860] The Press: Mr. President, and Mr. Prime Minister.
+- [07:31.150] I'd like to get your response to this too.
+- [07:32.640] But Mr. President, you have said
+- [07:33.840] that Canada should become the 51st state.
+- [07:37.860] President Trump: No, no. Well, I still believe that,
+- [07:39.430] but it takes two to tango, right?
+- [07:43.020] But no, I do. I mean, I believe it would be a massive tax cut
+- [07:46.960] for the Canadian citizens. You get free military,
+- [07:50.420] you get tremendous medical cares and other things.
+- [07:55.020] There would be a lot of advantages,
+- [07:57.770] but it would be a massive tax cut.
+- [08:00.500] And it's also a beautiful… As a real estate developer,
+- [08:03.490] you know I'm a real estate developer at heart,
+- [08:05.990] when you get rid of that artificially drawn line…
+- [08:07.930] Somebody drew that line many years ago with a ruler,
+- [08:10.550] just a straight line right across the top of the country.
+- [08:13.790] When you look at that beautiful formation
+- [08:16.160] when it's together, I'm a very artistic person.
+- [08:20.020] But when I looked at that, I said,
+- [08:21.700] "That's the way it was meant to be."
+- [08:23.340] But I do feel it's much better for Canada.
+- [08:28.970] But we're not going to be discussing that
+- [08:31.090] unless somebody wants to discuss it.
+- [08:32.930] I think that there are tremendous benefits
+- [08:35.850] to the Canadian citizens,
+- [08:37.140] tremendously lower taxes, free military,
+- [08:40.510] which honestly we give you essentially anyway
+- [08:42.580] because protecting Canada if you ever had a problem.
+- [08:45.770] But I think it would really be a wonderful marriage
+- [08:50.680] because it's two places that get along very well.
+- [08:53.560] They like each other a lot.
+- [08:55.690] Prime Minister Carney: Well, if I may.
+- [08:58.780] As you know from real estate,
+- [09:00.060] there are some places that are never for sale.
+- [09:02.180] President Trump: That's true.
+- [09:03.390] Prime Minister Carney: We're sitting in one right now.
+- [09:05.290] Buckingham Palace, that you visited as well.
+- [09:07.030] President Trump: That's true.
+- [09:08.280] Prime Minister Carney: And having met
+- [09:09.680] with the owners of Canada over the course of the campaign
+- [09:12.970] last several months,
+- [09:14.570] it's not for sale, won't be for sale ever.
+- [09:17.680] But the opportunity is in the partnership
+- [09:21.280] and what we can build together.
+- [09:22.630] And we have done that in the past,
+- [09:24.130] and part of that, as the president just said,
+- [09:26.710] is with respect to our own security.
+- [09:29.650] And my government is committed for a step change
+- [09:33.190] in our investment in Canadian security and our partnership,
+- [09:37.000] and I'll say this as well,
+- [09:38.800] that the president has revitalized
+- [09:41.770] international security, revitalized NATO-
+- [09:43.340] President Trump: That's good.
+- [09:44.560] Prime Minister Carney: In us playing our full weight in NATO,
+- [09:46.610] and that will be part of it.
+- [09:47.900] President Trump: That's true. And they have.
+- [09:51.490] They have, I must say Canada
+- [09:53.840] is stepping up the military participation
+- [09:57.240] because Mark knew they were low and now they're stepping it up,
+- [10:01.560] and that's a very important thing.
+- [10:03.080] But never say, never say never.
+- [10:04.920] The Press: What would it take to get the tariffs off of Canada?
+- [10:13.970] President Trump: Well, we'll be talking about different things.
+- [10:16.740] We want to protect our automobile business
+- [10:19.960] and so does Mark, but we want to protect,
+- [10:22.730] we want to make the automobiles
+- [10:24.290] and we have a tremendous abundance of energy
+- [10:27.860] more than any country we have just in Alaska alone,
+- [10:31.570] ANWR has been reopened,
+- [10:32.920] now ANWR is probably the largest find anywhere in the world.
+- [10:35.620] They say it's larger than Saudi Arabia,
+- [10:37.200] I don't know, but it's a lot.
+- [10:39.200] But we have tremendous amounts of energy.
+- [10:42.150] Other countries don't. We're both lucky in that way,
+- [10:44.180] they have energy, we have energy.
+- [10:45.810] We have more than we can ever use
+- [10:47.580] and more than we could ever sell actually,
+- [10:50.300] and you have the same thing.
+- [10:52.000] So we're two countries that are very lucky,
+- [10:53.470] if you look at China,
+- [10:54.700] they don't have that, it's a big disadvantage.
+- [10:57.700] Other countries, most countries don't have,
+- [10:59.560] most countries don't have that.
+- [11:01.610] So, Canada and us, we have a lot of advantages over other places.
+- [11:07.500] The Press: Mr. President,
+- [11:11.680] when you consider what Mr. Carney just said,
+- [11:13.780] that Canada is not for sale. Does this make the discussion
+- [11:16.530] a little more difficult to start on?
+- [11:18.350] President Trump: No, not at all. No, not at all. Time will tell.
+- [11:22.070] It's only time. But I say never say never.
+- [11:26.640] I've had many, many things that were not doable
+- [11:28.790] and they ended up being doable
+- [11:30.330] and only doable in a very friendly way.
+- [11:32.660] But if it's to everybody's benefit,
+- [11:35.740] Canada loves us and we love Canada.
+- [11:38.700] That's I think the number one thing that's important,
+- [11:41.130] but we'll see.
+- [11:42.400] I mean over time we'll see what happens.
+- [11:44.400] China.
+- [11:46.950] The Press: Mr. President,
+- [11:48.270] I was hoping you can clarify something.
+- [11:49.770] Earlier this morning on Capitol Hill,
+- [11:51.170] secretary Bessent
+- [11:52.390] said that there had been no negotiations yet with China.
+- [11:54.980] You have said something different.
+- [11:56.370] [inaudible].
+- [11:57.590] President Trump: They want to meet
+- [11:58.790] and they're doing no business right now.
+- [12:01.310] And those ships are turning around in the Pacific Ocean.
+- [12:04.570] Big turn, those are big ships,
+- [12:05.840] those ships take about 10 miles to turn
+- [12:09.070] and we lost a trillion dollars to China on trade
+- [12:13.570] because of an incompetent president
+- [12:15.250] that we had who preceded me, grossly incompetent,
+- [12:18.020] you're finding it out more and more now.
+- [12:20.400] And by not trading, we're losing nothing.
+- [12:22.910] So we're saving a trillion dollars, it's a lot.
+- [12:26.490] But they want to negotiate and they want to have a meeting
+- [12:28.990] and we'll be meeting with them at the right time.
+- [12:31.480] The Press: But you haven't met with them yet?
+- [12:33.020] President Trump: I have not met with them, no.
+- [12:34.300] Of course you would know if I've met, I'd tell you.
+- [12:37.190] They want to meet, but we are right now…
+- [12:41.350] Look, they're suffering greatly,
+- [12:42.660] their economy is suffering greatly
+- [12:44.720] because they're not doing trade with the US
+- [12:46.280] and they made most of their money
+- [12:48.130] off the US, don't kid yourself.
+- [12:49.700] They don't make the money off other countries like this.
+- [12:54.330] They were making… We had a trade imbalance,
+- [12:56.320] we had a deficit or they had a surplus.
+- [12:59.870] Another way of saying it, of more than a trillion dollars.
+- [13:03.160] Think of it, more than a trillion dollars.
+- [13:05.460] And because of 145%, that's the only reason.
+- [13:08.310] But because of they have now 145% tariff,
+- [13:12.000] there's no trading, you can't trade with 145%.
+- [13:15.710] We are therefore making in a certain way,
+- [13:20.200] I guess $1.1 trillion.
+- [13:23.200] In other words, we're not losing $1.1 trillion.
+- [13:25.970] Our deficit is much better. When I started and I say
+- [13:30.020] we were losing billions of dollars a day on trade,
+- [13:33.750] that's rapidly turning around.
+- [13:36.390] We looked at numbers this morning.
+- [13:38.250] So we were losing, the United States during Biden
+- [13:40.920] was losing more than,
+- [13:43.840] I won't even give you numbers, they're so embarrassing.
+- [13:46.090] But billions of dollars a day on trade,
+- [13:49.710] those numbers are rapidly turning between the tariffs,
+- [13:52.360] don't forget, we're now getting 25% on cars,
+- [13:56.460] 25% on aluminum, 25% on steel.
+- [14:00.250] And maybe more importantly, massive numbers of companies
+- [14:04.110] are moving into the United States.
+- [14:06.730] Honda, we have tremendous, the car companies
+- [14:10.940] that are moving in at levels we've never seen before.
+- [14:14.500] The biggest investment ever made in the United States
+- [14:17.670] is being made right now. Trillions of dollars,
+- [14:21.250] I would say we could be at nine, $9 trillion.
+- [14:25.040] You could go back to other presidents.
+- [14:26.850] They haven't had $ 1 trillion for their entire term.
+- [14:31.570] Look at Biden, he had bad numbers,
+- [14:33.760] people leaving, they weren't coming in.
+- [14:35.490] They were leaving with Biden,
+- [14:37.120] and he didn't know the difference.
+- [14:38.390] The only thing he knew is people coming in,
+- [14:40.740] you know who they were, illegal immigrants from prisons,
+- [14:44.580] from mental institutions,
+- [14:46.890] from all sorts of places that weren't good,
+- [14:50.430] from gangs, from Venezuela.
+- [14:53.390] They were coming in and there were criminals and murderers.
+- [14:55.810] 11,888 people that murdered
+- [14:59.160] and at least half of them murdered more than one person.
+- [15:02.460] This is what Biden let into our country.
+- [15:04.410] I'm bringing in big companies.
+- [15:06.460] We have, Apple is investing $500 billion.
+- [15:10.590] We have Jensen, as you know, is going to be 500
+- [15:13.770] biggest chip maker or chip thinker, I call him.
+- [15:17.370] He's really a thinker more than a maker.
+- [15:19.550] But we also have the maker Mr. Wei.
+- [15:22.340] I get to know him all in the last, it was a cram course,
+- [15:26.350] but they're all moving into America because of the tariffs.
+- [15:30.170] And I don't think people have appreciated it.
+- [15:33.720] Some people do, some of the smart people do.
+- [15:36.050] So we have more money coming in, it's really an amazing thing.
+- [15:39.300] We have more money being invested in the United States
+- [15:42.670] now than at any time ever before in our history,
+- [15:45.420] and it's not even close.
+- [15:47.020] And I think the real number could be nine or 10 trillion.
+- [15:49.370] We don't know everybody that's doing it.
+- [15:50.960] We have many… I just heard about a plant
+- [15:52.980] that's being built right now,
+- [15:55.250] very, very top of the line company.
+- [15:57.470] And they didn't come to the White House.
+- [15:58.920] They're just doing it because they're making it
+- [16:00.810] because if they build here, there are no tariffs.
+- [16:03.870] And this is the big market,
+- [16:05.200] this is the market that sets us apart from it.
+- [16:07.270] This is the market where everyone wants to be.
+- [16:10.160] Now, if I didn't come here and do this,
+- [16:12.020] all of a sudden we wouldn't be the market
+- [16:13.640] where everyone wants to be. So we're able to do it in time,
+- [16:16.750] but we're going to have a great announcement,
+- [16:18.480] and I'm not necessarily saying it's on trade.
+- [16:21.940] Going to the beginning, we're going to have
+- [16:23.570] a great announcement over the next few days,
+- [16:25.580] an announcement that will be so incredible, so positive.
+- [16:30.310] And I'm not saying I don't want you
+- [16:31.820] to think it's necessarily on trade.
+- [16:34.160] Just to finish, we also have a situation,
+- [16:36.730] because everyone says,
+- [16:37.970] when, when, when are you going to sign deals?
+- [16:39.520] We don't have to sign deals.
+- [16:41.250] We could sign 25 deals right now, Howard, if we wanted.
+- [16:45.400] We don't have to sign deals, they have to sign deals with us.
+- [16:47.950] They want a piece of our market.
+- [16:49.660] We don't want a piece of their market,
+- [16:51.170] we don't care about their market,
+- [16:52.900] they want a piece of our market. So we can just sit down,
+- [16:56.260] and I'll do this at some point over the next two weeks,
+- [16:59.490] and I'll sit with Howard and Scott
+- [17:01.260] and with our great vice president
+- [17:03.560] who has done a really good job.
+- [17:06.010] We have some good news to report on, a lot of fronts,
+- [17:08.860] but JD will be there and Marco, and we're going to sit down
+- [17:12.110] and we're going to put very fair numbers down
+- [17:14.170] and we're going to say,
+- [17:15.810] here's what this country, what we want,
+- [17:19.750] and congratulations, we have a deal.
+- [17:22.160] And they'll either say, great, and they'll start shopping
+- [17:25.390] or they'll say, not good. We're not going to do it.
+- [17:28.440] And I said, "That's okay, you don't have to shop."
+- [17:30.210] Now, we may think, "Well, they have a right,"
+- [17:33.220] that maybe we were a little bit wrong, so we'll adjust it.
+- [17:36.980] And then people will say, "Oh, it's so chaotic."
+- [17:39.190] No, we're flexible. But we'll sit down and we'll,
+- [17:43.280] at some point, in some cases we'll sign some deals.
+- [17:45.800] It's much less important than what I'm talking about.
+- [17:47.800] For the most part,
+- [17:49.080] we're just going to put down a number and say,
+- [17:50.590] "This is what you're going to pay to shop,"
+- [17:51.990] and it's going to be a very fair number.
+- [17:53.270] It'll be a low number.
+- [17:54.500] We're not looking to hurt countries,
+- [17:55.900] we want to help countries.
+- [17:57.320] We want to be friendly with countries.
+- [17:59.240] But you keep writing about,
+- [18:00.560] "Deals, deals, when are we going to sign?"
+- [18:02.610] It's very simple. We're going to say, in some cases,
+- [18:06.210] we want you to open up your country.
+- [18:08.480] In some cases, we want you to drop your tariffs.
+- [18:10.940] I mean, India, as an example,
+- [18:12.390] is one of the highest tariffs in the world.
+- [18:14.690] We're not going to put up with that
+- [18:16.160] and they've agreed already to drop it,
+- [18:18.400] they'll drop it to nothing. They've already agreed.
+- [18:20.910] They would have never done that for anybody else but me.
+- [18:23.940] So we're going to put down some numbers
+- [18:26.870] and we're going to say, "
+- [18:28.150] Our country is open for business."
+- [18:29.930] And they're going to come in
+- [18:31.810] and they're going to pay for the privilege
+- [18:33.950] of being able to shop in the United States of America.
+- [18:38.410] It's very simple, it's very simple.
+- [18:40.540] So I wish they'd stop asking,
+- [18:43.620] "How many deals are you signing this week?"
+- [18:46.070] Because one day we'll come and we'll give you 100 deals,
+- [18:48.970] and they don't have to sign. All they have to do is say,
+- [18:52.520] "Oh, we'll start sending our ships right now
+- [18:55.120] to pick up whatever we want or to bring whatever we want."
+- [18:58.200] It's very, very simple,
+- [18:59.940] and I think my people haven't made it clear.
+- [19:02.180] We will sign some deals, but much bigger than
+- [19:05.460] that is we're going to put down the price that people
+- [19:08.230] are going to have to pay to shop in the United States.
+- [19:10.930] Think of us as a super luxury store,
+- [19:14.810] a store that has the goods.
+- [19:17.420] You're going to come and you're going to pay a price,
+- [19:19.820] and we're going to give you a very good price.
+- [19:21.320] We're going to make very good deals,
+- [19:22.540] and in some cases we'll adjust.
+- [19:25.070] But that's where it is and we've been ripped off
+- [19:29.280] by everybody for 50 years, for 50 years,
+- [19:33.680] and we're just not going to do that anymore.
+- [19:35.590] We can't do that.
+- [19:36.820] And we can't let any country do that to us,
+- [19:39.390] we're just not going to do it anymore.
+- [19:49.490] The Press: Can you tell us a bit more about the deal
+- [19:51.690] that you've reached with the Houthis?
+- [19:53.290] President Trump: No, it's not a deal.
+- [19:54.500] They've said, "Please don't bomb us anymore
+- [19:57.100] and we're not going to attack your ships."
+- [19:59.140] The Press: And where did you hear about that?
+- [20:00.360] President Trump: It doesn't matter
+- [20:01.610] where I hear it.
+- [20:02.850] A very good source, I could tell you.
+- [20:04.420] Very, very good source. Would you say, Marco?
+- [20:06.360] I would say pretty good, right, JD?
+- [20:07.680] Vice President Vance: Yes, sir.
+- [20:08.950] President Trump: A very good source.
+- [20:13.330] No, they don't want to be bombed anymore.
+- [20:17.850] I sort of thought that would happen.
+- [20:19.180] Right behind you, please.
+- [20:21.470] The Press: [inaudible] clarifying something you said.
+- [20:22.960] USMCA, is the US prepared to walk away from that pact?
+- [20:25.990] President Trump: From what pact?
+- [20:27.360] The Press: USMAC.
+- [20:28.890] President Trump: No, no, it's fine.
+- [20:30.130] It's there, it's good.
+- [20:31.560] We use it for certain things, it's there.
+- [20:33.960] The USMCA is a good deal for everybody.
+- [20:37.500] I won't say this about Mark,
+- [20:40.100] but I didn't like his predecessor,
+- [20:41.700] I didn't like a person that worked for…
+- [20:43.420] She was terrible actually, she was a terrible person.
+- [20:46.500] And she really hurt that deal very badly
+- [20:48.670] because she tried to take advantage of the deal
+- [20:51.510] and she didn't get away with it. You know who I'm talking about.
+- [20:58.480] We had a bad relationship having to do
+- [21:01.670] with the fact that we disagreed
+- [21:02.980] with the way they viewed the deal and we ended it.
+- [21:06.070] We ended that relationship, pretty much.
+- [21:09.530] The USMCA is great for all countries,
+- [21:12.100] it's good for all countries.
+- [21:13.510] We do have a negotiation coming up over the next year
+- [21:16.170] or so to adjust it or terminate it. Yeah.
+- [21:21.410] Prime Minister Carney: I'll just say a word on USMCA
+- [21:23.400] if I may, Mr. President.
+- [21:25.510] It is a basis for a broader negotiation.
+- [21:27.930] Some things about it are going to have to change.
+- [21:30.520] And part of the way you've conducted these tariffs
+- [21:32.650] has taken advantage of existing aspects of USMCA,
+- [21:35.720] so it's going to have to change.
+- [21:37.510] There's other elements that have come,
+- [21:38.980] and that's part of what we're going to discuss.
+- [21:41.030] President Trump: Right.
+- [21:45.780] The Press: During the campaign, Prime Minister Carney
+- [21:48.610] talked about the American vitriol.
+- [21:50.220] How do you react if Canada decided
+- [21:52.510] not to shop in the American store
+- [21:54.590] as much as before and decided to partner with other countries?
+- [21:59.010] President Trump: Well, we don't do much business
+- [22:00.980] with Canada from our standpoint,
+- [22:02.430] they do a lot of business with us.
+- [22:04.760] We're at like 4%,
+- [22:06.940] and usually those things don't last very long.
+- [22:09.060] We have great things, great product.
+- [22:10.770] The kind of product we sell,
+- [22:12.050] nobody else can sell, including military.
+- [22:15.600] Look, we make the best military equipment in the world,
+- [22:18.900] and Canada buys our military equipment, which we appreciate.
+- [22:22.570] But we make the best military equipment in the world
+- [22:25.190] by far, the missiles, the submarines, everything.
+- [22:28.790] Everything we have is really top notch.
+- [22:31.650] I rebuilt our military during our last term.
+- [22:33.840] Stupidly, we gave some away to Afghanistan,
+- [22:36.300] which shouldn't have happened.
+- [22:37.730] But that was, I think it was the most embarrassing moment
+- [22:41.910] in the history of our country.
+- [22:44.240] It was just very incompetent people.
+- [22:46.720] But if you look,
+- [22:48.480] the man that's now the head of our joint chiefs,
+- [22:50.420] he led the attack on ISIS for me.
+- [22:52.700] That's why he's the head of the Joint Chiefs.
+- [22:55.810] Raising Caine, he was unbelievable.
+- [22:58.750] And as you know, we defeated ISIS in three weeks.
+- [23:02.940] It was supposed to take five years,
+- [23:04.770] we did it in three weeks. And he ran the campaign.
+- [23:07.880] I said, "I like him," but I knew him before.
+- [23:11.030] I went to Iraq and we agreed to a plan,
+- [23:13.430] and that was the plan.
+- [23:14.710] And as you know, we did it in record time.
+- [23:18.520] So we have the best equipment in the world,
+- [23:22.310] we have the best a lot of things,
+- [23:25.130] but Canada does a lot more business with us
+- [23:28.580] than we do with Canada.
+- [23:32.460] The Press: Your investments, Mr. President.
+- [23:34.430] When do you think the investments
+- [23:35.840] that you've announced, the trillions,
+- [23:37.270] will finally hit economic data this year?
+- [23:40.700] President Trump: You're saying about the tariffs?
+- [23:41.980] The Press: No, no,
+- [23:43.180] about the investments that you've announced.
+- [23:44.800] President Trump: Oh, it's hitting right now.
+- [23:46.000] Look, they're already starting AI plans.
+- [23:47.980] These are not people that look for financing,
+- [23:49.720] that's a good thing. In real estate, you get a site,
+- [23:53.810] then you have to look for financing,
+- [23:55.130] you have to get your zoning.
+- [23:56.500] Five years later, you start building,
+- [23:57.980] you get a bank, then the bank's no good.
+- [24:00.460] These people have massive amounts of cash.
+- [24:03.860] The CHIPS Act was a ridiculous thing
+- [24:06.050] because that doesn't get them to build.
+- [24:07.470] All we did is hand very wealthy companies money.
+- [24:10.820] The CHIPS Act, that was done by Biden.
+- [24:14.120] Billions, we give them billions of dollars.
+- [24:16.190] They don't even have to do anything with it.
+- [24:18.420] And then I don't want to be a wise guy,
+- [24:24.620] but if you didn't go with the DEI,
+- [24:26.870] if you didn't go with all of the different things woke,
+- [24:29.970] if you weren't woke, you couldn't even use the money.
+- [24:33.150] You had to have a certain percentage of this
+- [24:34.720] and that and that
+- [24:35.990] and that, it's impossible, impossible to have.
+- [24:38.880] The people, the companies actually complained to me.
+- [24:40.980] They said, "They gave me all this money,
+- [24:43.330] but nobody can get these people to do anything."
+- [24:46.030] I mean, look, President Obama, and if he wanted help,
+- [24:50.130] I'd give him help because I'm a really good builder
+- [24:51.970] and I build on time, on budget.
+- [24:54.300] He's building his library in Chicago, it's a disaster.
+- [24:58.100] And he said something to the effect,
+- [25:00.270] "I only want DEI, I only want woke."
+- [25:04.280] He wants woke people to build it.
+- [25:05.590] Well, he got woke people and they have massive cost overruns,
+- [25:09.680] the job is stopped. I don't know, it's a disaster.
+- [25:13.280] And I don't like that happening
+- [25:14.750] because I think it's bad for the presidency
+- [25:17.320] that a thing like that should happen.
+- [25:18.610] He's got a library that's a disaster.
+- [25:22.560] And he wanted to be very politically correct,
+- [25:24.680] and he didn't use good, hard, tough,
+- [25:27.550] mean construction workers that I love, Marco.
+- [25:29.980] I love those construction worker.
+- [25:32.430] But he didn't want construction workers,
+- [25:33.980] he wanted people that never did it before
+- [25:36.320] and he's got a disaster in his hands,
+- [25:38.530] like millions of dollars, many.
+- [25:41.370] I mean, really many millions of dollars over budget.
+- [25:45.360] And I would love to help him with it or somebody else,
+- [25:48.120] I could recommend professionals.
+- [25:50.120] But it was not built in a professional manner.
+- [25:56.270] By the way, nor was in California,
+- [26:00.990] a little train going from San Francisco to Los Angeles
+- [26:05.420] that's being run by Gavin Newscum,
+- [26:08.090] the governor of California.
+- [26:09.590] Did you ever hear of Gavin Newscum?
+- [26:11.460] He has got that train, the worst cost overrun I've ever seen.
+- [26:15.970] It's totally out of control.
+- [26:18.420] So then they said, "All right, we won't go into San Francisco,
+- [26:21.210] we'll stop 25 miles short.
+- [26:23.350] And we won't go into Los Angeles,
+- [26:25.000] we'll stop 25 miles short."
+- [26:27.470] It's hundreds of billions of dollars for this stupid project
+- [26:32.460] that should have never been built.
+- [26:34.400] Then they realized that it would've been a lot less costly
+- [26:37.530] if we just gave limousine service back and forth,
+- [26:39.510] and gave it free.
+- [26:40.720] They would've saved hundreds of billions of dollars.
+- [26:43.730] They have airplanes that go there for 1/100th the cost.
+- [26:47.610] They have cars.
+- [26:48.810] They have a thing called the highway that goes back
+- [26:50.750] and forth that's not fully utilized.
+- [26:53.130] They got involved with this project,
+- [26:55.140] and Gavin, I always liked Gavin.
+- [26:57.610] I had a good relationship with him.
+- [26:59.740] I just got him a lot of water.
+- [27:01.900] I sent in people to open up that water
+- [27:04.040] because he refused to do it
+- [27:06.210] and we just got them a lot of water.
+- [27:07.770] If they would've had that water
+- [27:09.070] and if they would've done what I said to do,
+- [27:10.990] they wouldn't've had the fires in Los Angeles.
+- [27:13.460] Those fires would've been put out very quickly.
+- [27:15.860] But if you think about it,
+- [27:17.410] and you got to take a look at this,
+- [27:19.060] it's the worst cost over I've ever seen.
+- [27:21.200] I've watched a lot of stupid people
+- [27:23.450] build a lot of stupid things,
+- [27:24.670] but that's the worst cost over on I ever seen,
+- [27:27.390] what's happening between San Francisco and Los Angeles.
+- [27:30.300] You ought to ask about that
+- [27:31.870] because this government is not going to pay.
+- [27:33.760] I told our very great new Secretary of Transportation,
+- [27:38.100] he's doing a good job, Sean Duffy.
+- [27:39.510] I said, "We're not going to pay for that thing."
+- [27:42.800] They are just, it's out of control.
+- [27:45.700] This is something that you don't have things like this.
+- [27:49.830] It's not even conceivable.
+- [27:51.640] Like 30 times over budget, 30 times.
+- [27:54.700] It's the craziest thing. Now it's hundreds of,
+- [27:57.460] it was supposed to be a simple train
+- [27:59.880] and I think the media should take a look at it.
+- [28:02.740] I'd love him to run for president on the other side.
+- [28:05.470] I'd love to see that,
+- [28:06.720] but I don't think he's going to be running
+- [28:08.600] because that one project alone,
+- [28:10.960] well that and the fires and a lot of other things,
+- [28:14.180] pretty much put him out of the race.
+- [28:18.860] The Press: Mr. President,
+- [28:20.070] what changes would you like to see to the USMCA,
+- [28:22.130] or what changes would you like to make?
+- [28:23.620] President Trump: We're going to work on some
+- [28:25.000] subtle changes, maybe.
+- [28:26.740] I don't even know if we're going to be dealing with USMCA.
+- [28:29.320] We're dealing more with concepts right now.
+- [28:31.020] Look, right now we're doing trade.
+- [28:33.210] We have trade.
+- [28:34.930] They're paying a tariff on cars and steel and aluminum.
+- [28:38.940] I think we have a baseline of 10%
+- [28:40.840] or something like that for the tariffs.
+- [28:42.850] But, we're getting along very well.
+- [28:45.340] Right now, going no further, but we have an agreement.
+- [28:51.650] We did something with even parts.
+- [28:53.380] You want to discuss that, Howard,
+- [28:54.900] with respect to Canada, which helps Canada out.
+- [28:57.810] The Press: Sure.
+- [28:59.600] We've made an arrangement with the car companies
+- [29:01.950] that 15% of their, A, USMCA parts are included,
+- [29:07.020] and then 15% of foreign parts
+- [29:09.940] from the manufacturer's suggested retail price
+- [29:13.680] are not tariffed to help domestic
+- [29:15.560] manufacturing really thrive.
+- [29:18.420] President Trump: It gave them a chance to be able
+- [29:19.960] to build their car parts, factories, if they're going to.
+- [29:24.580] A lot of these companies already have factories
+- [29:27.440] and what they have to do is just fill them out,
+- [29:29.620] but they're able to build them in the United States.
+- [29:31.590] We gave them a pretty substantial period of time.
+- [29:33.580] The Press: Just to clarify, Mr. President,
+- [29:35.940] is there anything the Prime Minister
+- [29:37.400] can say to you today to change your mind on tariffing Canada?
+- [29:41.660] President Trump: Tariffing cars?
+- [29:42.930] The Press: Tariffing Canada.
+- [29:44.170] Is there anything he can say to you
+- [29:46.150] in the course of your meetings with him today
+- [29:47.840] that would get you to lift tariffs on Canada?
+- [29:50.240] President Trump: No.
+- [29:51.480] The Press: Why not?
+- [29:52.720] President Trump: Just the way it is.
+- [29:53.960] The Press: What's your position on the 51st state
+- [29:58.520] if Canadians don't want it, would you respect that?
+- [30:01.800] President Trump: Sure, I would.
+- [30:03.040] But, this is not necessarily a one-day deal.
+- [30:05.290] This is over a period of time they have to make that decision.
+- [30:08.120] Yes, go ahead.
+- [30:09.320] Prime Minister Carney: Yeah, if I may.
+- [30:10.570] Well, respectfully, Canadians view on this
+- [30:15.100] is not going to change on the 51st state.
+- [30:18.030] Secondly, we are the largest client of the United States
+- [30:21.970] in the totality, all the goods.
+- [30:24.560] We are the largest client of the United States.
+- [30:26.790] We have a tremendous auto sector between the two of us
+- [30:30.020] and the changes that made have been helpful.
+- [30:32.910] 50% of a car that comes from Canada is American.
+- [30:36.160] That's not like anywhere else in the world.
+- [30:39.180] To your question about, is there one thing?
+- [30:41.780] No. This is a bigger discussion.
+- [30:43.940] There are much bigger forces involved
+- [30:46.600] and this will take some time and some discussions,
+- [30:49.670] and that's why we're here to have those discussions.
+- [30:52.800] That is represented by who's sitting around the table.
+- [30:55.730] President Trump: See, the conflict is,
+- [30:57.140] and this is very friendly,
+- [31:00.770] this is not going to be like, we had another little blow up
+- [31:03.460] with somebody else that was a much different.
+- [31:06.110] This is a very friendly conversation,
+- [31:08.290] but we want to make our own cars.
+- [31:10.870] We don't really want cars from Canada.
+- [31:15.010] We put tariffs on cars from Canada
+- [31:17.060] and at a certain point it won't make economic sense
+- [31:20.190] for Canada to build those cars. We don't want steel from Canada
+- [31:24.200] because we're making our own steel
+- [31:25.620] and we're having massive steel plants
+- [31:27.680] being built right now as we speak.
+- [31:29.800] We really don't want Canadian steel
+- [31:32.200] and we don't want Canadian aluminum
+- [31:34.010] and various other things,
+- [31:35.630] because we want to be able to do it ourselves.
+- [31:38.830] Because of past thinking of people,
+- [31:42.130] we have a tremendous deficit with Canada.
+- [31:44.550] In other words, they have a surplus with us,
+- [31:47.820] and there's no reason for us to be subsidizing Canada.
+- [31:51.630] Canada's a place that will have to be able
+- [31:55.170] to take care of itself economically.
+- [31:58.750] I assume they can.
+- [32:00.040] I will tell you that Trudeau, when I spoke to him,
+- [32:03.700] I used to call him Governor Trudeau.
+- [32:05.060] I think that probably didn't help his election.
+- [32:07.140] But when I spoke to him, I said, "Why are we taking your cars?
+- [32:11.690] Why are we taking your, we want to make them ourself."
+- [32:14.270] I mean, I said, "and if the price of your cars went up
+- [32:18.900] or if we put a tariff, if we put a tariff on your cars of 25%,
+- [32:24.670] what would that mean to you?"
+- [32:26.410] He said, "That would mean the end of Canada."
+- [32:28.240] He actually said that to me.
+- [32:30.020] I said, "That's a strange answer,"
+- [32:32.370] but I understand his answer.
+- [32:34.950] But no, I mean, it's hard to justify
+- [32:40.110] subsidizing Canada to the tune of maybe $200 billion a year.
+- [32:44.890] We protect Canada militarily and we always will.
+- [32:48.700] That's not a money thing, but we always will.
+- [32:51.240] But, it's not fair.
+- [32:54.180] But, why are we subsidizing Canada $200 billion a year
+- [32:57.970] or whatever the number might be. It's a very substantial number.
+- [33:01.370] It's hard for the American taxpayer to say,
+- [33:04.440] gee whiz, we love doing that. Thank you very much.
+- [33:07.160] We're going to have a very substantial
+- [33:08.520] [inaudible 00:33:41] Thank you. Thank you very much.

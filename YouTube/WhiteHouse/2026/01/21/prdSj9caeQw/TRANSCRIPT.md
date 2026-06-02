@@ -1,0 +1,2231 @@
+<!-- source: https://www.youtube.com/watch?v=prdSj9caeQw -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: prdSj9caeQw -->
+<!-- date_published: 2026-01-21T16:42:36+00:00 -->
+<!-- date_accessed: 2026-06-02T01:06:54.350257+00:00 -->
+
+# Transcript: President Trump Delivers a Special Address to the World Economic Forum
+
+- [00:00.000] Larry Fink: Good afternoon, everybody and welcome.
+- [00:02.869] I guess we don't have enough seats today.
+- [00:04.437] Wow.
+- [00:08.608] In the last quarter century, a sitting
+- [00:10.944] President of the United States has come to Davos
+- [00:14.414] only twice.
+- [00:16.783] Both times it was Donald Trump.
+- [00:20.320] So when I asked to serve in this new role that I
+- [00:24.491] have, he was one of the first leaders I called and
+- [00:29.329] invited to return.
+- [00:32.632] I first met the President about 25 years ago.
+- [00:36.603] But I worked most closely with him during the early
+- [00:39.873] months of COVID.
+- [00:41.841] This was March 2020.
+- [00:44.077] Markets were under extreme stress.
+- [00:46.546] Some economists were warning we could be headed
+- [00:49.549] towards a second great depression.
+- [00:54.087] What stood out to me during the extraordinary
+- [00:56.623] period was a president's willingness to bring
+- [00:59.692] together people from governments, business,
+- [01:04.330] across institutions, across perspective, to
+- [01:07.967] think differently and importantly to act
+- [01:11.738] decisively.
+- [01:14.240] That instinct to act, especially in pivotal
+- [01:17.877] moments, is one reason I think he values the World
+- [01:20.914] Economic Forum.
+- [01:21.781] It is a unique institution that brings together the
+- [01:26.820] largest combination of government officials,
+- [01:30.623] business leaders, technology leaders, civil
+- [01:35.261] society and NGO leaders anywhere in the world for
+- [01:38.898] a genuine dialogue, and particularly importantly
+- [01:44.804] this year, thankfully, this group is meeting
+- [01:49.108] under better economic circumstances than during
+- [01:51.911] the pandemic.
+- [01:53.279] But once again, we're forcing very serious
+- [01:58.251] different economic conditions around the
+- [02:00.420] world.
+- [02:01.621] One of the central challenges that is
+- [02:04.624] impacting me is how capitalism can benefit
+- [02:09.596] more, and how can we broaden our global economy
+- [02:13.833] for greater and greater participation.
+- [02:17.403] That is a question where the president has shown
+- [02:19.706] real leadership through investing in
+- [02:21.741] infrastructure, reducing barriers to growth, and
+- [02:26.246] initiatives like the Trump Account, designed to give
+- [02:29.249] more Americans a direct stake in the growth of the
+- [02:32.418] US economy.
+- [02:34.787] As he enters the second year of his second term,
+- [02:38.057] we are interested in hearing his plans for 2026
+- [02:40.860] and beyond, and will no doubt create more and more
+- [02:44.230] conversation.
+- [02:45.765] And that's what the forum is about, a serious
+- [02:49.168] conversation in the spirit of dialogue, discussions
+- [02:53.473] where the world is headed.
+- [02:56.109] Where are we going?
+- [02:57.944] And these discussions would be incomplete
+- [03:01.881] without the President of the United States, the
+- [03:04.250] most important leader in the world.
+- [03:07.687] We appreciate him here, so let me introduce and
+- [03:12.692] welcome back to Davos, the President of the United States
+- [03:15.895] Donald J. Trump
+- [03:18.264] (applause)
+- [03:52.342] The President: Well, thank you very much, Larry.
+- [03:54.167] It's great to be back in beautiful Davos,
+- [03:57.804] Switzerland, and to address so many respected
+- [04:01.808] business leaders, so many friends, few enemies, and
+- [04:08.881] all of the distinguished guests.
+- [04:10.984] It's a who's who.
+- [04:11.851] I will say that.
+- [04:14.153] I've come to this year's World Economic Forum with
+- [04:17.056] truly phenomenal news from America.
+- [04:20.827] Yesterday marked the one-year anniversary of my
+- [04:24.497] inauguration, and today, after 12 months back in
+- [04:28.167] the White House, our economy is booming.
+- [04:31.004] Growth is exploding.
+- [04:32.839] Productivity is surging.
+- [04:34.407] Investment is soaring.
+- [04:36.676] Incomes are rising.
+- [04:40.046] Inflation has been defeated.
+- [04:41.681] Our previously open and dangerous border is closed
+- [04:46.619] and virtually impenetrable, and the
+- [04:49.922] United States is in the midst of the fastest and
+- [04:53.259] most dramatic economic turnaround in our
+- [04:57.263] country's history.
+- [04:59.699] Under the Biden administration, America
+- [05:01.868] was plagued by the nightmare of stagflation,
+- [05:04.971] meaning low growth and high inflation, a recipe
+- [05:08.775] for misery, failure, and decline.
+- [05:11.511] But now, after just one year of my policies, we
+- [05:15.481] are witnessing the exact opposite, virtually no
+- [05:18.718] inflation and extraordinarily high
+- [05:21.454] economic growth, growth like, I believe you'll see
+- [05:26.325] very shortly, our country has never seen before,
+- [05:30.063] perhaps no country has ever seen before.
+- [05:33.166] Over the past three months, core inflation has
+- [05:35.835] been just 1.6 percent.
+- [05:38.705] Meanwhile, fourth-quarter growth is projected to be
+- [05:42.642] 5.4 percent, far greater than anybody other than
+- [05:46.245] myself and a few others had predicted.
+- [05:49.115] Since the election, the stock market has set 52
+- [05:51.884] all-time-high records.
+- [05:53.986] So that's in one year, 52 records, adding $9
+- [05:59.192] trillion in value to retirement accounts,
+- [06:01.894] 401(k)s, and people's savings.
+- [06:06.632] People are doing very well.
+- [06:07.900] They're very happy with me.
+- [06:08.935] Since my inauguration, we've lifted more than 1.2
+- [06:12.839] million people off of food stamps.
+- [06:16.042] And after four years in which Biden secured less
+- [06:19.812] than $1 trillion of new investment in our country,
+- [06:23.282] think of that, one trillion, substantially
+- [06:26.385] less than that in four years, we've secured
+- [06:29.756] commitments for a record-breaking $18
+- [06:32.058] trillion, and we think when the final numbers
+- [06:34.427] come out, they'll be closer to $20 trillion of
+- [06:37.063] investment.
+- [06:38.731] That's never been done by any country at any time.
+- [06:41.367] Not even close.
+- [06:43.703] Just over one year ago, under the radical left
+- [06:46.139] Democrats, we were a dead country.
+- [06:49.709] Now we are the hottest country anywhere in the
+- [06:53.379] world.
+- [06:55.214] In fact, the United States economy is on pace to grow
+- [06:58.785] at double the rate that was projected by the IMF
+- [07:03.189] just last April, and with my growth and tariff
+- [07:07.460] policies, it should be much higher.
+- [07:09.162] I really believe we can be much higher than that.
+- [07:12.465] And this is all great news, and it's great for
+- [07:15.468] all nations.
+- [07:16.803] The USA is the economic engine on the planet, and
+- [07:20.206] when America booms, the entire world booms.
+- [07:22.608] It's been the history.
+- [07:24.143] When it goes bad, it goes bad.
+- [07:26.045] You all follow us down, and you follow us up, and
+- [07:31.751] we're at a point that we've never -- I don't
+- [07:34.020] believe we've ever been.
+- [07:35.087] I never thought we could do it this quickly.
+- [07:37.156] My biggest surprise is I thought it would take more
+- [07:40.193] than a year, maybe like a year and one month, but
+- [07:46.299] it's happened very quickly.
+- [07:47.600] This afternoon, I want to discuss how we've achieved
+- [07:50.870] this economic miracle, how we intend to raise living
+- [07:54.040] standards for our citizens to levels never seen
+- [07:56.475] before, and perhaps how you too and the places
+- [08:00.446] where you come from can do much better by following
+- [08:03.516] what we're doing, because certain places in Europe
+- [08:06.619] are not even recognizable, frankly, anymore.
+- [08:09.655] They're not recognizable.
+- [08:11.457] And we can argue about it, but there's no argument.
+- [08:15.461] Friends come back from different places, I don't
+- [08:17.530] want to insult anybody, and say, "I don't
+- [08:20.800] recognize it." And that's not in a positive way.
+- [08:24.003] That's in a very negative way.
+- [08:26.072] And I love Europe, and I want to see Europe go
+- [08:28.507] good, but it's not heading in the right direction.
+- [08:32.245] In recent decades, it became conventional wisdom
+- [08:36.282] in Washington and European capitals that the only way
+- [08:40.052] to grow a modern Western economy was through
+- [08:42.421] ever-increasing government spending, unchecked mass
+- [08:46.192] migration, and endless foreign imports.
+- [08:49.228] The consensus was that so-called dirty jobs and
+- [08:52.164] heavy industry should be sent elsewhere, that
+- [08:54.634] affordable energy should be replaced by the Green
+- [08:57.803] New Scam, and that countries could be propped
+- [09:01.274] up by importing new and entirely different
+- [09:04.010] populations from far away lands.
+- [09:07.747] This was the path that Sleepy Joe Biden
+- [09:09.982] administration and many other Western governments
+- [09:14.086] very foolishly followed, turning their backs on
+- [09:17.456] everything that makes nations rich and powerful
+- [09:20.359] and strong.
+- [09:21.994] And there's so much potential in so many
+- [09:24.297] nations.
+- [09:25.665] The result was record budget and trade deficits
+- [09:28.868] and a growing sovereign deficit, driven by the
+- [09:32.505] largest wave of mass migration in human
+- [09:35.007] history.
+- [09:36.075] We've never seen anything like it.
+- [09:38.344] Quite frankly, many parts of our world are being
+- [09:40.479] destroyed before our very eyes, and the leaders
+- [09:43.316] don't even understand what's happening, and the
+- [09:45.918] ones that do understand aren't doing anything
+- [09:48.020] about it.
+- [09:49.288] Virtually all of the so-called experts
+- [09:51.457] predicted my plans to end this failed model would
+- [09:54.860] trigger a global recession and runaway inflation, but
+- [09:59.198] we have proven them wrong.
+- [10:00.900] It's actually just the opposite.
+- [10:03.469] In one year, our agenda has produced a
+- [10:05.604] transformation like America's not seen in over
+- [10:08.541] 100 years.
+- [10:10.376] Instead of closing down energy plants, we're
+- [10:13.079] opening them up.
+- [10:14.714] Instead of building ineffective money-losing
+- [10:17.183] windmills, we're taking them down and not
+- [10:20.319] approving any.
+- [10:22.555] Instead of empowering bureaucrats, we're firing
+- [10:26.025] them, and they're going out and getting jobs in
+- [10:29.662] the private sector for two and three times what they
+- [10:33.499] were making in government.
+- [10:35.568] So they started off hating me when we fired them, and
+- [10:38.337] now they love me.
+- [10:40.906] Instead of raising taxes or domestic producers,
+- [10:44.243] we're lowering them, and raising tariffs on foreign
+- [10:47.313] nations to pay for the damage that they've cost.
+- [10:52.018] In 12 months, we have removed over 270,000
+- [10:55.654] bureaucrats from the federal payrolls, the
+- [10:58.724] largest single-year reduction in government
+- [11:01.027] employment since the end of World War II.
+- [11:04.730] Nobody thought that was coming, but we had no
+- [11:07.033] choice.
+- [11:07.700] To make a country great, you can't have all federal
+- [11:10.736] jobs.
+- [11:12.104] We've cut federal spending by $100 billion, and
+- [11:15.574] slashed the federal budget deficit by 27 percent in
+- [11:19.712] the single year.
+- [11:21.213] It's going to go down quite a bit more from
+- [11:22.948] that, driving inflation way down from the record
+- [11:26.385] highs of the Biden administration.
+- [11:29.221] Every month, they went up and up and up.
+- [11:33.359] I promised to cut 10 old regulations for every
+- [11:36.662] single new regulation, but instead, I've cut
+- [11:42.001] actually, till this point, 129 regulations for every
+- [11:46.338] one new regulation approved.
+- [11:48.107] So every time they come in with a new regulation, we
+- [11:52.645] do at least 10, but so far, it's averaging out to
+- [11:54.947] 129, if you can believe it.
+- [11:57.783] In July, we passed the largest tax cuts in
+- [12:00.052] American history, including no tax on tips,
+- [12:03.189] no tax on overtime, no tax on social security for our
+- [12:06.826] great seniors.
+- [12:08.761] We also provided 100 percent expensing, that's
+- [12:12.231] the one they like, and bonus depreciation for all
+- [12:15.835] new equipment and capital investments to help
+- [12:18.170] companies expand and shift production to America.
+- [12:21.307] They are so in love with that.
+- [12:25.911] They build a plant.
+- [12:26.779] They're able to deduct it immediately, the whole
+- [12:29.215] thing, rather than waiting 38 to 41 years in the old
+- [12:34.153] days.
+- [12:35.254] This is a miracle taking place.
+- [12:39.225] Nobody thought it would ever be done by any
+- [12:40.993] country, but it's done by us.
+- [12:42.595] It was what made my first term the most successful
+- [12:46.599] four-year term that we've ever had from a financial
+- [12:49.602] standpoint, and now we've upped it.
+- [12:51.971] This is a 10-year program, not a one-year program,
+- [12:55.441] but you're allowed to deduct everything in one
+- [12:57.977] year.
+- [12:58.644] It used to be 38 to 41 years.
+- [13:01.313] With tariffs, we've radically reduced our
+- [13:03.549] ballooning trade deficit, which was the largest in
+- [13:07.052] world history.
+- [13:07.820] We were losing more than $1 trillion every single
+- [13:10.756] year, and it was just wasted.
+- [13:12.958] It was going to waste.
+- [13:15.628] But in one year, I slashed our monthly trade deficit
+- [13:18.430] by a staggering 77 percent, and all of this
+- [13:23.669] with no inflation, something everyone said
+- [13:27.273] could not be done.
+- [13:28.340] There were a couple of brilliant people that
+- [13:31.243] actually thought I was doing the right thing.
+- [13:33.179] I thought I was doing the right thing.
+- [13:35.114] Now they all think I'm doing the right thing,
+- [13:36.916] because they can't believe the numbers.
+- [13:38.651] American exports are now up by more than $150
+- [13:42.888] billion.
+- [13:43.556] Domestic steel production is up by 300,000 tons a
+- [13:48.093] month, and it's doubling over the next four months.
+- [13:51.397] It's doubling and tripling.
+- [13:54.266] We have steel plants being built all over the
+- [13:56.202] country.
+- [13:56.936] Nobody thought they'd see that.
+- [13:58.837] Factory construction is up by 41 percent, and that
+- [14:02.441] number is really going to skyrocket right now,
+- [14:04.677] because that's during a process that they're
+- [14:07.746] putting in to get their approvals, and we've given
+- [14:10.416] very, very quick, fast approvals.
+- [14:13.752] In the process, we've made historic trade deals with
+- [14:16.422] partners covering 40 percent of all US trade,
+- [14:20.226] some of the greatest companies and countries in
+- [14:23.128] the world.
+- [14:23.796] We have countries as our partner too.
+- [14:26.332] The European nations, Japan, South Korea,
+- [14:30.669] they're our partners.
+- [14:31.604] They've gone into massive deals with us, especially
+- [14:34.306] on oil and gas.
+- [14:36.408] And these agreements raised growth and caused
+- [14:38.577] stock markets to boom, not only in the US, but
+- [14:41.814] virtually every country that came to make a deal,
+- [14:44.116] because as you've learned, when the United States
+- [14:48.821] goes up, you follow.
+- [14:51.023] It's really become a staple.
+- [14:54.760] In America, I've stopped the nation-wrecking energy
+- [14:57.763] policies that drive up prices while sending jobs
+- [15:00.599] and factories to the world's worst polluters.
+- [15:05.904] They are indeed polluters.
+- [15:07.906] Under sleepy Joe Biden, new domestic oil and gas
+- [15:12.544] leases fell by 95 percent.
+- [15:14.680] Think of that.
+- [15:16.081] And they wonder, why was gasoline going up so fast?
+- [15:19.918] The gasoline actually topped $5 a gallon, in
+- [15:22.621] some places $7 a gallon, and more than 100 major
+- [15:26.992] power plants were violently shut down by
+- [15:29.628] incompetent people that had no idea what the hell
+- [15:33.832] they were doing.
+- [15:35.901] Under my leadership, US natural gas production is
+- [15:39.605] at an all-time high, by far.
+- [15:42.007] US oil production is up by 730,000 barrels a day, and
+- [15:47.913] last week, we picked up 50 million barrels from
+- [15:51.984] Venezuela alone.
+- [15:54.420] Venezuela's been an amazing place for so many
+- [15:58.924] years, but then they went bad with their policies.
+- [16:01.527] 20 years ago, it was a great country, and now
+- [16:03.762] it's got problems, but we're helping them.
+- [16:07.232] And those 50 million barrels we're going to be
+- [16:11.403] splitting up with them, and they'll be making more
+- [16:14.973] money than they've made in a long time.
+- [16:17.776] Venezuela's going to do fantastically well.
+- [16:20.145] We appreciate all of the cooperation we've been
+- [16:23.682] giving.
+- [16:24.350] We've been given great cooperation.
+- [16:26.552] Once the attack ended, the attack ended, and they
+- [16:29.855] said, "Let's make a deal." More people should do
+- [16:33.192] that.
+- [16:35.260] But Venezuela's going to make more money in the
+- [16:37.262] next six months than they've made in the last
+- [16:40.232] 20 years.
+- [16:42.301] Every major oil company is coming in with us.
+- [16:44.737] It's amazing.
+- [16:45.404] It's a beautiful thing to see.
+- [16:48.107] The leadership of the country has been very
+- [16:50.576] good.
+- [16:52.978] They've been very, very smart.
+- [16:54.913] The price of gasoline is now below $2.50 a gallon
+- [16:57.916] in many states, $2.30 a gallon in most states,
+- [16:59.284] then we'll soon be averaging less than $2 a
+- [17:00.619] gallon.
+- [17:01.286] In many places, it's already down even lower,
+- [17:09.661] $1.95 a gallon.
+- [17:15.367] Numerous states are at $1.99, numbers that nobody
+- [17:18.937] has heard for years.
+- [17:21.273] Actually, since my last administration.
+- [17:23.342] We got it down to around those numbers.
+- [17:26.178] I've signed an order directing an approval of
+- [17:29.281] many new nuclear reactors.
+- [17:31.417] We're going heavy into nuclear.
+- [17:34.153] I was not a big fan, because I didn't like the
+- [17:36.488] risk, the danger, but the progress they've made with
+- [17:40.526] nuclear is unbelievable, and the safety progress
+- [17:43.829] they've made is incredible.
+- [17:45.798] We're very much into the world of nuclear energy,
+- [17:50.135] and we can have it now at good prices, and very,
+- [17:52.704] very safe.
+- [17:54.306] And we're leading the world in AI by a lot.
+- [17:57.843] We're leading China by a lot.
+- [18:00.379] I think President Xi respects what we've done,
+- [18:02.614] in part because I've allowed these big
+- [18:05.384] companies building these massive buildings to build
+- [18:08.620] their own electric capacity.
+- [18:10.088] They're building their own power plants, which when
+- [18:12.825] added up is more than any country anywhere in the
+- [18:16.862] world is doing.
+- [18:17.830] I read recently an article on the Wall Street Journal
+- [18:20.165] that China's creating so much energy, and they are.
+- [18:23.001] I got to hand it to them.
+- [18:24.503] But we're creating as much or more, and we're letting
+- [18:27.573] them do that.
+- [18:29.041] I'm very proud of it.
+- [18:29.908] It was my idea.
+- [18:32.177] I said, "You can't create this much energy." We
+- [18:34.146] needed more than double the energy currently in
+- [18:37.282] the country just to take care of the AI plants, and
+- [18:40.452] I said, "We can't do that.
+- [18:41.520] We have an old grid system." And I came up
+- [18:44.423] with the idea, "You people are brilliant.
+- [18:47.059] You have a lot of money.
+- [18:48.660] Let's see what you can do.
+- [18:49.728] You can build your own electric generating
+- [18:52.898] plants," and they looked at me.
+- [18:54.867] They didn't believe me.
+- [18:55.634] All of the names that are in, I think, in the room
+- [18:58.704] right now, if you want to know the truth, they
+- [19:00.472] didn't believe it.
+- [19:02.074] And I said, "No, no, you can." They came back two
+- [19:03.976] weeks, and they didn't have the plant.
+- [19:05.477] They said, "We thought you were kidding." I said,
+- [19:08.180] "No, not only am I not kidding, you're going to
+- [19:10.015] have your approvals within two weeks." I always say
+- [19:13.485] nuclear will take three weeks, but most aren't
+- [19:18.123] going that.
+- [19:18.790] They're going oil and gas.
+- [19:20.025] They're even going coal in some cases.
+- [19:23.095] Because of my landslide election victory, the
+- [19:25.464] United States avoided the catastrophic energy
+- [19:28.834] collapse which befell every European nation that
+- [19:32.704] pursued the Green New Scam, perhaps the greatest
+- [19:36.475] hoax in history, the Green New Scam.
+- [19:39.444] Windmills all over the place.
+- [19:40.846] Destroy your land, destroy your land.
+- [19:44.049] Every time that goes around, you lose $1,000.
+- [19:46.385] You're supposed to make money with energy, not
+- [19:50.856] lose money.
+- [19:52.157] Here in Europe, we've seen the fate that the radical
+- [19:56.328] left tried to impose on America.
+- [19:58.931] They tried very hard.
+- [20:01.133] Germany now generates 22 percent less electricity
+- [20:04.469] than it did in 2017, and it's not the current
+- [20:09.708] chancellor's fault.
+- [20:11.143] He's solving the problem.
+- [20:12.744] He's going to do a great job.
+- [20:14.813] But what they did before he got there -- I guess
+- [20:16.915] that's why he got there.
+- [20:19.384] And electricity prices are 64 percent higher.
+- [20:24.623] The United Kingdom produces just one-third of
+- [20:27.392] the total energy from all sources that it did in
+- [20:29.928] 1999.
+- [20:30.996] Think of that, one-third.
+- [20:33.298] And they're sitting on top of the North Sea, one of
+- [20:36.501] the greatest reserves anywhere in the world, but
+- [20:40.005] they don't use it.
+- [20:41.673] And that's one reason why their energy has reached
+- [20:44.109] catastrophically low levels with equally high
+- [20:47.546] prices.
+- [20:48.213] High prices, very low levels.
+- [20:50.215] Think of that, one-third, and you're sitting on top
+- [20:53.552] of the North Sea.
+- [20:54.252] And they like to say, "Well, that's depleted."
+- [20:56.321] It's not depleted.
+- [20:57.055] It's got 500 years.
+- [20:58.256] They haven't even found the oil.
+- [20:59.591] The North Sea is incredible.
+- [21:02.094] They don't let anybody drill.
+- [21:04.196] Environmentally, they don't let them drill.
+- [21:06.565] They make it impossible for the oil companies to
+- [21:08.800] go.
+- [21:09.468] They take 92 percent of the revenues.
+- [21:12.738] So the oil companies say, "We can't do it." They
+- [21:16.174] came to see me.
+- [21:16.975] "Is there anything you can do?"
+- [21:18.343] I want Europe to do great.
+- [21:20.278] I want UK to do great.
+- [21:23.015] Sitting on one of the greatest energy sources in
+- [21:25.417] the world, and they don't use it.
+- [21:26.752] In fact, their electricity prices have soared 139
+- [21:34.526] percent.
+- [21:36.695] There are windmills all over Europe.
+- [21:39.531] There are windmills all over the place, and they
+- [21:43.101] are losers.
+- [21:45.103] One thing I've noticed is that the more windmills a
+- [21:48.707] country has, the more money that country loses
+- [21:51.410] and the worse that country is doing.
+- [21:54.112] China makes almost all of the windmills, and yet I
+- [21:57.916] haven't been able to find any wind farms in China.
+- [22:00.752] Did you ever think of that?
+- [22:01.920] It's a good way of looking at it.
+- [22:03.255] They're smart.
+- [22:03.955] China's very smart.
+- [22:04.890] They make them, they sell them for a fortune, they
+- [22:07.893] sell them to the stupid people that buy them, but
+- [22:10.796] they don't use them themselves.
+- [22:13.131] They put up a couple of big wind farms, but they
+- [22:17.069] don't use them.
+- [22:17.736] They just put them up to show people what they
+- [22:20.205] could look like.
+- [22:20.872] They don't spin.
+- [22:21.540] They don't do anything.
+- [22:23.542] They use the thing called coal mostly.
+- [22:25.644] But China goes with the coal.
+- [22:28.914] They go with oil and gas.
+- [22:32.050] They're starting to look at nuclear a little bit,
+- [22:33.985] and they're doing just fine.
+- [22:36.855] They make a fortune selling the windmills,
+- [22:39.257] though, and I think really that's one that they
+- [22:42.394] wouldn't be surprised if it stopped.
+- [22:44.496] They are shocked that it continues to go.
+- [22:47.199] They're very friendly with me.
+- [22:49.367] They're shocked that people continue to buy
+- [22:51.236] those damn things.
+- [22:52.237] They kill the birds.
+- [22:53.171] They ruin your landscapes.
+- [22:55.273] Other than that, I think they're fabulous, by the
+- [22:57.375] way.
+- [22:58.310] Stupid people buy them.
+- [23:00.445] The consequences of such destructive policies have
+- [23:03.949] been stark, including lower economic growth,
+- [23:06.351] lower standards of living, lower birth rates, more
+- [23:09.354] socially disruptive migration, more
+- [23:12.090] vulnerability to hostile foreign adversaries, and
+- [23:16.561] much, much smaller militaries.
+- [23:19.765] The United States cares greatly about the people
+- [23:23.068] of Europe.
+- [23:23.735] We really do.
+- [23:24.903] I mean, look, I am derived from Europe, Scotland and
+- [23:29.574] Germany.
+- [23:32.110] 100 percent Scotland, my mother, 100 percent
+- [23:36.581] German, my father.
+- [23:38.817] And we believe deeply in the bonds we share with
+- [23:41.920] Europe as a civilization.
+- [23:44.356] I want to see it do great.
+- [23:46.424] That's why issues like energy, trade,
+- [23:48.460] immigration, and economic growth must be central
+- [23:51.363] concerns to anyone who wants to see a strong and
+- [23:55.300] united West, because Europe and those countries
+- [23:59.137] have to do their thing.
+- [24:00.472] They have to get out of the culture that they've
+- [24:03.675] created over the last 10 years.
+- [24:05.544] It's horrible, what they're doing to
+- [24:06.945] themselves.
+- [24:07.612] They're destroying themselves, these
+- [24:09.114] beautiful, beautiful places.
+- [24:11.583] We want strong allies, not seriously weakened ones.
+- [24:14.619] We want Europe to be strong.
+- [24:17.088] Ultimately, these are matters of national
+- [24:20.158] security, and perhaps no current issue makes the
+- [24:23.829] situation more clear than what's currently going on
+- [24:31.570] with Greenland.
+- [24:33.605] Would you like me to say a few words of Greenland?
+- [24:35.974] I was going to leave it out of the speech, but I
+- [24:40.178] think I would have been reviewed very negatively.
+- [24:46.151] I have tremendous respect for both the people of
+- [24:49.154] Greenland and the people of Denmark.
+- [24:51.523] Tremendous respect.
+- [24:53.725] But every NATO ally has an obligation to be able to
+- [24:56.661] defend their own territory, and the fact is
+- [24:59.764] no nation or group of nations is in any position
+- [25:02.834] to be able to secure Greenland other than the
+- [25:06.338] United States.
+- [25:07.339] We're a great power, much greater than people even
+- [25:10.809] understand.
+- [25:11.476] I think they found that out two weeks ago in
+- [25:13.411] Venezuela.
+- [25:16.348] We saw this in World War II, when Denmark fell to
+- [25:20.518] Germany after just six hours of fighting and was
+- [25:25.257] totally unable to defend either itself or
+- [25:27.626] Greenland.
+- [25:29.060] So the United States was then compelled.
+- [25:32.264] We did it.
+- [25:32.931] We felt an obligation to do it, to send our own
+- [25:36.167] forces to hold the Greenland territory, and
+- [25:40.205] hold it we did at great cost and expense.
+- [25:43.775] They didn't have a chance of getting on it and they
+- [25:46.711] tried, Denmark knows that.
+- [25:50.949] We literally set up bases on Greenland for Denmark.
+- [25:55.487] We fought for Denmark.
+- [25:56.922] We weren't fighting for anyone else.
+- [25:58.290] We were fighting to save it for Denmark.
+- [26:02.427] Big, beautiful piece of ice.
+- [26:04.596] It's hard to call it land.
+- [26:05.697] It's a big piece of ice.
+- [26:08.333] But we saved Greenland and successfully prevented our
+- [26:11.870] enemies from gaining a foothold in our
+- [26:15.006] hemisphere.
+- [26:15.807] So, we did it for ourselves also.
+- [26:18.410] And then, after the war, which we won, we won it
+- [26:22.147] big.
+- [26:22.814] Without us, right now you'd all be speaking
+- [26:25.884] German and little Japanese perhaps.
+- [26:30.622] After the war, we gave Greenland back to Denmark.
+- [26:35.794] How stupid were we to do that?
+- [26:37.796] But we did it.
+- [26:40.098] But we gave it back.
+- [26:41.933] But how ungrateful are they now?
+- [26:45.170] So, now our country and the world face much
+- [26:49.541] greater risks than it did ever before because of
+- [26:53.278] missiles, because of nuclear, because of
+- [26:56.014] weapons of warfare that I can't even talk about.
+- [26:59.884] Two weeks ago, they saw weapons that nobody ever
+- [27:01.953] heard of.
+- [27:03.088] They weren't able to fire one shot at us.
+- [27:05.123] They said, "What happened?"
+- [27:06.057] Everything was discombobulated.
+- [27:08.893] They said, "We've got them in our sights.
+- [27:10.929] Press the trigger," and nothing happened.
+- [27:12.897] No anti-aircraft missiles went up.
+- [27:18.837] There was one that went up about 30 feet and crashed
+- [27:21.773] down right next to the people that sent it.
+- [27:23.675] They said, "What the hell is going on?"
+- [27:25.977] Those defensive systems were made by Russia and by
+- [27:31.383] China, so they're going to go back to the drawing
+- [27:34.652] boards, I guess.
+- [27:36.688] Greenland is a vast, almost entirely
+- [27:39.190] uninhabited and undeveloped territory.
+- [27:41.960] It's sitting undefended in a key strategic location
+- [27:48.033] between the United States, Russia and China.
+- [27:50.702] That's exactly where it is, right smack in the
+- [27:53.171] middle.
+- [27:54.372] Wasn't important nearly when we gave it back.
+- [27:57.342] When we gave it back, it wasn't the same as it is
+- [28:00.378] now.
+- [28:01.379] It's not important for any other reason.
+- [28:03.248] Everyone talks about the minerals.
+- [28:04.616] There's no rare earth.
+- [28:05.383] No such thing as rare earth.
+- [28:06.451] There's rare processing, but there's so much rare
+- [28:12.824] earth and to get to this rare earth, you got to go
+- [28:16.594] through hundreds of feet of ice.
+- [28:20.999] That's not the reason we need it.
+- [28:22.333] We need it for strategic national security and
+- [28:27.272] international security.
+- [28:28.973] This enormous unsecured island is actually part of
+- [28:32.610] North America on the northern frontier of the
+- [28:35.814] Western Hemisphere, that's our territory.
+- [28:39.784] It is, therefore, a core national security interest
+- [28:42.687] of the United States of America.
+- [28:44.456] And in fact, it's been our policy for hundreds of
+- [28:47.592] years to prevent outside threats from entering our
+- [28:51.596] hemisphere, and we've done it very successfully.
+- [28:53.765] We've never been stronger than we are now.
+- [28:56.668] That's why American presidents have sought to
+- [28:59.404] purchase Greenland for nearly two centuries.
+- [29:02.774] For two centuries, they've been trying to do it.
+- [29:05.643] They should have kept it after World War II, but
+- [29:08.780] they had a different president.
+- [29:10.815] That's all right.
+- [29:12.016] People think differently.
+- [29:13.284] Much more necessary now than it was at that time,
+- [29:15.753] however.
+- [29:17.155] In 2019, Denmark said that they would spend over $200
+- [29:21.559] million to strengthen Greenland's defenses.
+- [29:25.830] But as you know, they spent less than 1 percent
+- [29:28.066] of that amount.
+- [29:28.800] 1 percent, there's no sign of Denmark there.
+- [29:31.669] And I say that with great respect for Denmark, whose
+- [29:35.673] people I love, whose leaders are very good.
+- [29:40.011] It's the United States alone that can protect
+- [29:42.514] this giant mass of land, this giant piece of ice,
+- [29:46.384] develop it and improve it and make it so that it's
+- [29:49.888] good for Europe and safe for Europe and good for
+- [29:52.290] us.
+- [29:53.224] And that's the reason I'm seeking immediate
+- [29:55.226] negotiations to once again discuss the acquisition of
+- [29:58.663] Greenland by the United States.
+- [30:01.399] Just as we have acquired many other territories
+- [30:03.835] throughout our history, as many of the European
+- [30:06.671] nations have, they've acquired.
+- [30:08.306] There's nothing wrong with it.
+- [30:09.574] Some went in reverse, actually, if you look.
+- [30:13.645] Some had great vast wealth, great vast lands
+- [30:18.116] all over the world, they went in reverse.
+- [30:20.018] They're stuck back where they started.
+- [30:22.687] That happens too, but some grow.
+- [30:25.456] But this would not be a threat to NATO.
+- [30:29.594] This would greatly enhance the security of the entire
+- [30:33.464] alliance, the NATO alliance.
+- [30:35.300] The United States is treated very unfairly by
+- [30:38.703] NATO, I want to tell you that.
+- [30:40.238] And when you think about it, nobody can dispute it.
+- [30:45.043] We give so much and we get so little in return.
+- [30:49.447] And I've been a critic of NATO for many years, and
+- [30:52.917] yet, I've done more to help NATO than any other
+- [30:54.986] president by far, than any other person.
+- [30:57.789] You wouldn't have NATO if I didn't get involved in
+- [31:01.059] my first term.
+- [31:03.061] The war with Ukraine is an example.
+- [31:05.663] We are thousands of miles away, separated by a giant
+- [31:09.801] ocean.
+- [31:10.468] It's a war that should have never started, and it
+- [31:13.972] wouldn't have started if the 2020 US presidential
+- [31:17.475] election weren't rigged.
+- [31:18.676] It was a rigged election.
+- [31:19.744] Everybody now knows that.
+- [31:20.979] They found out.
+- [31:23.214] People will soon be prosecuted for what they
+- [31:25.516] did.
+- [31:27.986] It's probably breaking news, but it should be.
+- [31:30.154] It was a rigged election.
+- [31:31.723] Can't have rigged elections.
+- [31:33.725] You need strong borders, strong elections, and
+- [31:35.893] ideally, a good press.
+- [31:37.128] I always say it.
+- [31:38.396] Strong borders, strong elections, free, fair
+- [31:42.233] elections, and a fair media.
+- [31:44.602] The media's terrible, it's very crooked, it's very
+- [31:48.606] biased, terrible.
+- [31:50.375] But someday it'll straighten out because
+- [31:51.943] it's losing all credibility.
+- [31:53.411] Think of it, when I win in a landslide, a giant
+- [31:56.114] landslide, won all seven swing states, won the
+- [31:59.484] popular vote, won everything and I only get
+- [32:02.553] negative press.
+- [32:04.188] That means that it has no credibility.
+- [32:06.291] And if they're going to get credibility, they're
+- [32:08.793] going to have to be fair.
+- [32:10.094] So, you need a fair press.
+- [32:12.563] But you also need those other elements.
+- [32:15.333] And I inherited a terrible, terrible
+- [32:20.705] situation.
+- [32:21.439] If you look, the border was open, the inflation
+- [32:25.510] was raging.
+- [32:26.177] Everything was bad with the United States when I
+- [32:28.079] came into office.
+- [32:30.181] But I also inherited a mess with Ukraine and
+- [32:32.483] Russia, something that would have never happened.
+- [32:34.319] And I know Putin very well, he and I would
+- [32:36.521] discuss Ukraine.
+- [32:38.256] It was the apple of his eye, but he wasn't going
+- [32:40.625] to do anything.
+- [32:41.292] I said, "Vladimir, you're not doing it." He would
+- [32:43.828] never have done it.
+- [32:45.296] It was terrible what happened.
+- [32:46.698] I could see it happening too.
+- [32:47.932] After I left, I could see it happening.
+- [32:51.002] Biden had given Ukraine and NATO $350 billion, a
+- [32:54.939] staggering sum, $350 billion.
+- [32:57.442] I came in and just like the Southern Border, just
+- [33:03.147] like inflation, just like our economy, I said, "Wow,
+- [33:08.586] this place is in trouble," meaning our country.
+- [33:11.189] All of these things were out of control.
+- [33:15.493] But the border was out of control, we fixed it with
+- [33:17.995] the strongest border anywhere in the world.
+- [33:20.631] And I've now been working on this war for one year,
+- [33:24.035] during which time I settled eight other wars,
+- [33:27.171] India, Pakistan.
+- [33:28.906] I settled other wars that were -- Vladimir Putin
+- [33:32.143] called me, Armenia and Azerbaijan.
+- [33:37.348] He said, "I can't believe you settled that one."
+- [33:39.250] They were going on for 35 years.
+- [33:41.686] I settled it in one day and President Putin called
+- [33:44.122] me, he said, "I can't believe I've worked on
+- [33:47.125] that war for 10 years trying to settle and I
+- [33:50.428] couldn't do it." I said, "Do me a favor.
+- [33:53.398] Focus on settling your war.
+- [33:55.032] Don't worry about that one."
+- [33:56.834] What does the United States get out of all of
+- [33:59.103] this work, all of this money other than death,
+- [34:03.341] destruction and massive amounts of cash going to
+- [34:07.845] people who don't appreciate what we do?
+- [34:10.114] They don't appreciate what we do.
+- [34:12.483] Talking about NATO.
+- [34:14.652] I'm talking about Europe.
+- [34:17.822] They have to work on Ukraine, we don't.
+- [34:21.125] The United States is very far away.
+- [34:22.894] We have a big, beautiful ocean separating us.
+- [34:25.696] We have nothing to do with it.
+- [34:27.598] Until I came along, NATO was only supposed to pay 2
+- [34:30.468] percent of GDP, but they weren't paying.
+- [34:34.071] Most of the countries weren't paying anything.
+- [34:36.674] The United States was paying for virtually 100
+- [34:40.077] percent of NATO and I got that stopped.
+- [34:43.781] I said, "That's not fair."
+- [34:46.350] But then, more importantly, I got NATO to
+- [34:48.886] pay 5 percent, and now they were paying, and now
+- [34:51.222] they are paying.
+- [34:51.923] So, something nobody said was possible.
+- [34:54.826] They said, "We will never go up higher than 2
+- [34:56.928] percent," but they went to 5 percent, and now they're
+- [35:00.331] paying the 5 percent.
+- [35:01.365] They didn't pay the 2 percent, and now they're
+- [35:03.568] paying the 5 percent.
+- [35:04.235] And they're stronger for it, and they have an
+- [35:05.603] excellent, by the way, secretary general, who's
+- [35:08.039] possibly in the room.
+- [35:10.141] Mark, are you here?
+- [35:11.108] Yes, he's here.
+- [35:14.045] Hello, Mark.
+- [35:16.848] We never asked for anything, and we never got
+- [35:20.852] anything, we probably won't get anything unless
+- [35:23.554] I decide to use excessive strength and force where
+- [35:26.891] we would be, frankly, unstoppable, but I won't
+- [35:32.163] do that, okay?
+- [35:33.431] Now everyone's saying, "Oh, good." That's
+- [35:37.335] probably the biggest statement I made because
+- [35:40.071] people thought I would use force.
+- [35:41.739] I don't have to use force.
+- [35:42.740] I don't want to use force.
+- [35:43.641] I won't use force.
+- [35:46.043] All the United States is asking for is a place
+- [35:48.579] called Greenland where we already had it as a
+- [35:52.817] trustee, but respectfully returned it back to
+- [35:55.820] Denmark not long ago after we defeated the Germans,
+- [36:00.091] the Japanese, the Italians and others in World War
+- [36:03.361] II.
+- [36:04.028] We gave it back to them.
+- [36:06.097] We were a powerful force then, but we are a much
+- [36:08.332] more powerful force now.
+- [36:10.501] After I rebuilt the military in my first term
+- [36:13.037] and continued to do so today, we have a budget of
+- [36:16.073] $1.5 trillion.
+- [36:17.608] We're bringing back battleships.
+- [36:20.945] The battleship is 100 times more powerful than
+- [36:25.950] the great battleships you saw in World War II, those
+- [36:28.619] great big gorgeous ships, the Missouri, the Iowa,
+- [36:32.657] the Alabama, because I thought maybe we could
+- [36:36.193] take them out of mothballs.
+- [36:37.595] They said, "No, sir.
+- [36:38.663] These ships are 100 --" Think of that, 100 times
+- [36:45.102] more powerful than those big, big, magnificent
+- [36:48.906] pieces of art that you saw so many times ago that you
+- [36:53.511] still see on television, you say, "Wow, what a
+- [36:56.380] force." Each ship 100 times more powerful than
+- [36:58.382] the big battleships of the past, so that was the end
+- [37:01.152] of the mothball story.
+- [37:02.420] So, what we have gotten out of NATO is nothing,
+- [37:14.498] except to protect Europe from the Soviet Union and
+- [37:17.335] now Russia.
+- [37:18.035] I mean, we've helped them for so many years.
+- [37:19.971] We've never gotten anything, except we pay
+- [37:22.940] for NATO and we paid for many years, until I came
+- [37:26.143] along, we paid for, in my opinion, 100 percent of
+- [37:29.714] NATO, because they weren't paying their bills.
+- [37:32.483] And all we're asking for is to get Greenland,
+- [37:37.722] including right, title and ownership, because you
+- [37:40.124] need the ownership to defend it.
+- [37:42.360] You can't defend it on a lease.
+- [37:44.862] Number one, legally, it's not defensible that way,
+- [37:49.667] totally.
+- [37:50.801] And number two, psychologically, who the
+- [37:52.903] hell wants to defend a license agreement or a
+- [37:57.274] lease?
+- [37:58.976] Which is a large piece of ice in the middle of the
+- [38:01.579] ocean where, if there is a war, much of the action
+- [38:05.750] will take place on that piece of ice.
+- [38:07.385] Think of it.
+- [38:08.352] Those missiles would be flying right over the
+- [38:10.354] center of that piece of ice.
+- [38:13.190] All we want from Denmark for national and
+- [38:17.561] international security and to keep our very energetic
+- [38:21.599] and dangerous potential enemies at bay is this
+- [38:24.935] land on which we're going to build the greatest
+- [38:27.505] golden dome ever built.
+- [38:29.206] We're building a golden dome that's going to, just
+- [38:32.476] by its very nature, going to be defending Canada.
+- [38:38.916] Canada gets a lot of freebies from us by the
+- [38:41.252] way.
+- [38:41.919] They should be grateful also, but they're not.
+- [38:43.387] I watched your prime minister yesterday.
+- [38:45.956] He wasn't so grateful, but they should be grateful to
+- [38:49.193] us.
+- [38:50.194] Canada lives because of the United States,
+- [38:53.597] remember that, Mark, the next time you make your
+- [38:56.233] statements.
+- [38:58.369] What we did for Israel was amazing, but that's
+- [39:02.073] nothing compared to what we have planned for the
+- [39:04.108] United States, Canada, and the rest of the world.
+- [39:06.410] We are going to build a dome like no other.
+- [39:10.114] We did it for Israel.
+- [39:12.216] And by the way, I told Bibi, "Bibi, stop taking
+- [39:14.251] credit for the dome.
+- [39:16.153] That's our technology.
+- [39:17.621] That's our stuff." But they had a lot of courage
+- [39:20.691] and they were good fighters and they did a
+- [39:22.159] good job.
+- [39:22.827] And we wiped out the Iran nuclear threat like nobody
+- [39:25.863] can believe.
+- [39:27.231] Nobody's ever seen anything like it.
+- [39:29.266] That, Venezuela, taking down Soleimani, wiping out
+- [39:36.073] al-Baghdadi when he tried to reinstitute ISIS.
+- [39:39.410] We did a lot.
+- [39:40.578] I did a lot, a lot of big things.
+- [39:43.247] All perfectly executed.
+- [39:44.715] Everyone was perfectly executed.
+- [39:46.450] Somebody told me that.
+- [39:47.284] A military expert told me, "Sir, everything you've
+- [39:49.987] done has been perfectly executed." I said, "I
+- [39:53.023] know."
+- [39:55.126] So, other presidents have spent, whether foolishly
+- [39:57.728] or not, trillions and trillions of dollars on
+- [40:00.164] NATO and gotten absolutely nothing in return.
+- [40:03.200] We've never asked for anything.
+- [40:05.536] It's always a one-way street.
+- [40:07.638] Now, they want us to help them with Ukraine and we
+- [40:10.541] say, "We're going to." I'm really helping, not even
+- [40:13.010] them.
+- [40:13.677] Last week, if you saw, it was 10,000 soldiers, but
+- [40:18.849] last month it was 31,000 soldiers died.
+- [40:23.521] 31,000.
+- [40:24.922] That's the number of people in this room times
+- [40:29.493] 30.
+- [40:31.395] Think of it.
+- [40:32.062] 30, 000 soldiers died in one month.
+- [40:36.534] The month before it was 27,000.
+- [40:38.569] The month before that, it was 28,000.
+- [40:40.571] The month before that, it was 25,000.
+- [40:42.506] It's a bloodbath over there and that's what I
+- [40:47.912] want to stop.
+- [40:48.679] It doesn't help the United States, but these are
+- [40:52.316] souls.
+- [40:52.983] These are young people look like you, look like
+- [40:58.322] some of you right in the front row.
+- [41:00.457] They go to war.
+- [41:01.192] Their parents are so proud.
+- [41:02.459] Oh, there he goes.
+- [41:03.627] Comes back.
+- [41:05.095] Two weeks later, they get a call, "Your son's head's
+- [41:07.164] been blown off." I want to stop it.
+- [41:10.000] It's a horrible war.
+- [41:11.769] It's the worst since World War II.
+- [41:13.704] If they keep going, they'll exceed World War
+- [41:17.241] II.
+- [41:17.908] The numbers are staggering how many people they've
+- [41:19.410] lost.
+- [41:20.077] They don't want to talk about it.
+- [41:21.412] Ukraine and Russia lost just tremendous amounts.
+- [41:26.116] And I'm dealing with President Putin and he
+- [41:28.519] wants to make a deal, I believe.
+- [41:30.321] I'm dealing with President Zelenskyy and I think he
+- [41:33.824] wants to make a deal.
+- [41:34.758] I'm meeting him today.
+- [41:35.826] He might be in the audience right now, but
+- [41:40.297] they got to get that war stopped because too many
+- [41:43.634] people are dying, needlessly dying.
+- [41:46.370] Too many souls are being lost.
+- [41:48.806] It's the only reason I'm interested in doing it.
+- [41:51.442] But in doing it, I'm helping Europe, I'm
+- [41:54.178] helping NATO.
+- [41:55.012] And until the last few days when I told them
+- [41:57.815] about Iceland, they loved me.
+- [42:01.619] They called me daddy last time.
+- [42:03.053] A very smart man said, "He's our daddy.
+- [42:07.758] He's running it." I was running it.
+- [42:09.493] I went from running it to being a terrible human
+- [42:11.595] being.
+- [42:13.597] But now, what I'm asking for is a piece of ice,
+- [42:18.168] cold and poorly located that can play a vital role
+- [42:23.073] in world peace and world protection.
+- [42:26.844] It's a very small ask compared to what we have
+- [42:30.681] given them for many, many decades.
+- [42:36.086] But the problem with NATO is that we'll be there for
+- [42:39.456] them 100 percent, but I'm not sure that they'd be
+- [42:44.395] there for us.
+- [42:45.229] If we gave them the call, "Gentlemen, we are being
+- [42:50.334] attacked.
+- [42:51.035] We're under attack by such and such a nation," I know
+- [42:55.072] them all very well.
+- [42:55.973] I'm not sure that they'd be there.
+- [42:57.708] I know we'd be there for them.
+- [42:59.076] I don't know that they'd be there for us.
+- [43:00.878] So, with all of the money we expend, with all of the
+- [43:05.049] blood, sweat and tears, I don't know that they'd be
+- [43:07.885] there for us.
+- [43:09.019] They're not there for us on Iceland, that I can
+- [43:12.089] tell you.
+- [43:12.756] I mean, our stock market took the first dip
+- [43:14.792] yesterday because of Iceland.
+- [43:17.094] So, Iceland's already cost us a lot of money, but
+- [43:20.364] that dip is peanuts compared to what it's gone
+- [43:22.533] up.
+- [43:23.534] And we have an unbelievable future in
+- [43:25.569] that -- That stock market is going to be doubled.
+- [43:28.939] We're going to hit 50,000 and that stock market's
+- [43:31.375] going to double in a relatively short period of
+- [43:34.545] time because of everything that's happening.
+- [43:37.214] But this is a good example.
+- [43:39.183] After giving NATO and European nations trillions
+- [43:44.121] and trillions of dollars in defense, they buy our
+- [43:47.191] weapons.
+- [43:47.858] We make the greatest weapons in the world, but
+- [43:49.426] now we're going to make them faster, much faster.
+- [43:51.895] You saw that.
+- [43:53.130] I put a cap on the salaries and I put no
+- [43:56.934] buybacks, no stock buybacks, no various other
+- [44:01.672] things that they were doing.
+- [44:03.007] I mean, they were making $50 million, but it would
+- [44:05.976] take them three years to give you a Patriot
+- [44:08.078] missile.
+- [44:09.213] I said, "That's not good.
+- [44:10.814] My chauffeur can do a better job than that," and
+- [44:13.617] he makes slightly less than $50.
+- [44:16.387] They make big salaries.
+- [44:17.488] If they're going to make those big salaries,
+- [44:18.889] they're going to have to produce a lot faster.
+- [44:20.557] The good news is we have the greatest equipment in
+- [44:22.626] the world.
+- [44:23.293] Now, we're going to start making it a lot faster.
+- [44:24.762] They're going to build additional plants.
+- [44:27.197] And all of the money that goes into stock buybacks
+- [44:30.801] is going to go into building plants.
+- [44:32.236] We're not allowing stock buybacks by defense
+- [44:34.338] companies any longer.
+- [44:35.372] They're going to build new plants to make Tomahawks,
+- [44:38.776] Patriots.
+- [44:39.676] We have the best equipment.
+- [44:41.145] F-35s, F-47, the new one just coming out.
+- [44:45.582] They say it's the most devastating plane, fighter
+- [44:47.885] jet ever.
+- [44:48.552] Who knows?
+- [44:49.353] They called it 47.
+- [44:51.155] If I don't like it, I'm going to take the 47 off
+- [44:53.524] it.
+- [44:54.191] I wonder why they called it 47.
+- [44:55.325] We'll have to think about that.
+- [44:56.460] But if I don't like it, I'm going to take that 47
+- [44:59.830] off.
+- [45:00.998] But it's supposed to be the first stage-six plane,
+- [45:04.034] undetectable, like our B-2 bombers were undetectable.
+- [45:05.369] They flew right over Iran.
+- [45:06.036] They were undetectable and they did their job and
+- [45:08.138] they got the hell out of there.
+- [45:09.740] So, we want a piece of ice for world protection and
+- [45:20.651] they won't give it.
+- [45:21.585] We've never asked for anything else and we could
+- [45:24.922] have kept that piece of land and we didn't.
+- [45:28.992] So, they have a choice, you can say yes and we
+- [45:34.231] will be very appreciative or you can say no and we
+- [45:38.936] will remember.
+- [45:42.072] A strong and secure America means a strong
+- [45:45.843] NATO, and that's one reason why I'm working
+- [45:49.079] every day to ensure our military is very powerful.
+- [45:52.449] Our borders are very strong.
+- [45:55.018] And above all, our economy is strong because national
+- [45:57.788] security requires economic security and economic
+- [46:00.958] prosperity, and we have the greatest that we've
+- [46:03.093] ever had.
+- [46:05.429] Biden and his allies destroyed our economy and
+- [46:08.765] gave us perhaps the worst inflation in American
+- [46:11.368] history.
+- [46:12.035] They say 48 years, I say forever, but I think 48
+- [46:15.873] years is the equivalent to forever.
+- [46:18.575] Whether it's 48 years or ever, it's terrible.
+- [46:24.615] Costing the typical family $33,000.
+- [46:28.352] What they did to this country should never, ever
+- [46:31.255] be forgotten.
+- [46:34.391] It's early, but he has to be rated as the worst
+- [46:37.694] president we've ever had by far.
+- [46:40.063] The autopen did much of the damage.
+- [46:42.566] He was the autopen president because I don't
+- [46:47.938] believe a sane president would have ever signed the
+- [46:50.174] kind of things that he signed.
+- [46:52.643] But now, grocery prices, energy prices, airfares,
+- [46:55.646] mortgage rates, rent, and car payments are all
+- [46:58.916] coming down and they're coming down fast.
+- [47:00.951] We inherited a mess, but we've done a hell of a job
+- [47:05.255] in 12 months.
+- [47:07.658] Under my most-favored nation policy for drug
+- [47:10.294] prices, the cost of prescription drugs is
+- [47:12.796] coming down by up to 90 percent, depending on the
+- [47:17.100] way you calculate.
+- [47:17.935] You could also say 500 percent, 600 percent, 700
+- [47:20.604] percent, 800 percent.
+- [47:21.271] There are two ways of figuring that, but we have
+- [47:25.042] a favored nation's policy that every president
+- [47:29.146] wanted.
+- [47:29.813] No president was able to get.
+- [47:31.081] I got it and other nations approved it.
+- [47:33.217] And I had to use tariffs in order to get it because
+- [47:35.752] they said, "No way."
+- [47:37.554] In other words, a pill that cost 10 percent in
+- [47:40.691] London, cost $130.
+- [47:43.160] Think it cost $10 in London, cost $130 in New
+- [47:48.832] York or in Los Angeles.
+- [47:53.804] And I'd say, "Boy, that's bad." Friends of mine
+- [47:56.206] would say, "We go to London, you can buy this
+- [47:58.575] stuff for nothing.
+- [47:59.309] We go all over the world.
+- [48:00.310] We could buy it for nothing." Because
+- [48:02.813] basically, America was subsidizing every nation
+- [48:05.415] in the world because presidents allowed them to
+- [48:08.352] get away with it.
+- [48:09.186] It became very tough.
+- [48:10.220] So, when I called up Emmanuel Macron, I watched
+- [48:14.591] him yesterday with those beautiful sunglasses.
+- [48:18.962] What the hell happened?
+- [48:20.430] But I watched him be tough, but he was at $10
+- [48:32.109] for a pill.
+- [48:33.777] And I said, "Emmanuel --" And I have all the big
+- [48:36.947] pharmaceutical companies are in total agreement.
+- [48:39.683] It wasn't easy, by the way.
+- [48:40.851] They're tough, smart.
+- [48:42.419] They've been getting away with this scam for a long
+- [48:44.421] time, but they gave it up, but they said, "You'll
+- [48:47.958] never get the countries to approve it." I said, "Why
+- [48:50.394] is that?"
+- [48:51.094] "Because they won't." They always said, "We're not
+- [48:52.663] paying anymore.
+- [48:53.830] Get the rest from the United States." So, over
+- [48:55.465] the years, they stayed the same.
+- [48:56.800] We just went up, up, up.
+- [48:58.335] And I mean, we would pay 13, 14, 15 times more than
+- [49:02.005] certain countries would.
+- [49:03.540] So, I said, "No, they'll approve it 100 percent."
+- [49:06.510] "Sir, you'll never get them to approve it." I
+- [49:08.111] said, "I guarantee you."
+- [49:08.845] But I actually started with Emmanuel, who
+- [49:10.814] probably is in the room too, and I like him.
+- [49:13.216] I actually like him, hard to believe, isn't it?
+- [49:16.887] And I said, "Emmanuel, you're going to have to
+- [49:20.023] lift the price of that pill to $20, maybe $30."
+- [49:25.362] Think of that, that means it's a doubling of
+- [49:31.435] prescription drugs, might be a tripling, might be a
+- [49:34.404] quadrupling.
+- [49:35.639] It's not easy.
+- [49:36.807] "No, no, no, Donald.
+- [49:37.841] I will not do that." I said, "Yes, you will 100
+- [49:41.111] percent." He said, "No, no, no.
+- [49:45.015] You're asking me to double." I said,
+- [49:47.484] "Emmanuel, you've been taking advantage of the
+- [49:49.519] United States for 30 years with prescription drugs.
+- [49:53.457] You really should do it and you will do it.
+- [49:56.326] I have no doubt.
+- [49:57.494] In fact, I am 100 percent sure you're going to --"
+- [50:00.063] "No, no, no, I will not do it."
+- [50:01.465] Because yes, in all fairness to him, he has to
+- [50:03.033] double or triple because the world being a bigger
+- [50:06.636] place than the United States, it's not that you
+- [50:09.306] meet in the middle.
+- [50:10.073] You just have to go up some and we come down a
+- [50:12.909] lot.
+- [50:13.577] They go up a little, we come down a lot.
+- [50:15.645] So we're at $130.
+- [50:17.180] They're at 10.
+- [50:17.981] So they may have to go to 20 or 30.
+- [50:21.752] No more than that.
+- [50:23.253] I said, "Emmanuel, are you going to be doubling or
+- [50:25.055] tripling?"
+- [50:26.156] "No, no, no." I said, "Here's the story,
+- [50:28.325] Emmanuel.
+- [50:29.025] The answer is you're going to do it.
+- [50:30.460] You're going to do it fast.
+- [50:32.162] And if you don't, I'm putting a 25 percent
+- [50:34.798] tariff on everything that you sell into the United
+- [50:37.167] States and a 100 percent tariff on your wines and
+- [50:39.803] champagnes.
+- [50:41.938] And that's about 10 times more than what I'm
+- [50:44.007] requesting and you're going to do it.
+- [50:46.643] I don't want to go public with it, but you may make
+- [50:49.312] me do that." "No, no, Donald, I will do it.
+- [50:52.916] I will do it."
+- [50:55.152] It took me, on average, three minutes a country
+- [51:00.023] saying the same thing, "You will do it." They all
+- [51:02.025] said, " No, no, no, I will not do it.
+- [51:05.195] You're asking me to double the cost of prescription."
+- [51:07.898] I said, "That's right, because you've been
+- [51:09.266] screwing us for 30 years." And they said, "We will
+- [51:17.307] not do it." I said, "That's all right." On
+- [51:19.943] Monday morning, we're putting a 25, 30, 50, I
+- [51:23.880] gave different numbers for different countries.
+- [51:29.152] This is also national security we're talking
+- [51:31.221] about.
+- [51:31.955] Not fair.
+- [51:32.622] We're not going to subsidize the whole world.
+- [51:35.826] And every one of those countries have agreed to
+- [51:37.794] do it.
+- [51:39.062] So one of the biggest things that I've done is
+- [51:41.031] the fact that we have now most favored nation.
+- [51:43.934] We will pay whatever the lowest price is in the
+- [51:46.803] entire world.
+- [51:48.872] So our drug prices are going to be coming down by
+- [51:52.175] a staggering 90 percent.
+- [51:54.344] Again, you could say 1,000 percent, 2,000 percent.
+- [51:57.814] Depends on the way you want to figure it, but
+- [51:59.316] we'll go with the way the fake news likes it better
+- [52:01.585] because it sounds -- Can you imagine a 90 percent
+- [52:04.187] reduction sounds much worse.
+- [52:06.923] But drug prices are going to be coming down
+- [52:09.159] tremendously in all the nations, and I appreciate
+- [52:11.728] them doing it, but they did it.
+- [52:13.763] In all fairness, without tariffs, I wouldn't have
+- [52:15.699] been able to get it done.
+- [52:16.766] After declining $3,000 under Biden, real incomes
+- [52:24.341] are up in the United States by 2,000, 3,000,
+- [52:27.944] and even $5,000 and more.
+- [52:31.114] Home-ownership has always been a symbol of health
+- [52:34.451] and vigor of American society, but that goal
+- [52:37.654] fell out of reach for millions and millions of
+- [52:40.824] people in the Biden era because interest rates
+- [52:42.959] went up so high.
+- [52:44.728] Today, I'm taking action to bring back this bedrock
+- [52:47.797] of the American dream.
+- [52:49.833] In recent years, Wall Street giants and
+- [52:51.935] institutional investment firms, many of you are
+- [52:54.237] here, many of you are good friends of mine.
+- [52:55.939] Many of you are supporters.
+- [52:57.073] Sorry to do this to you.
+- [52:58.275] I am so sorry.
+- [52:59.075] But you've driven up housing prices by
+- [53:01.978] purchasing hundreds of thousands of single family
+- [53:04.748] homes, and it's been a great investment for them.
+- [53:07.517] Often, as much as 10 percent of houses on the
+- [53:10.754] market.
+- [53:11.955] The crazy thing is a person can't get
+- [53:13.657] depreciation on a house, but when a corporation
+- [53:16.526] buys it, they get depreciation.
+- [53:18.094] Okay, that's something we're going to have to
+- [53:19.429] think about too.
+- [53:20.297] I don't know if too many people think about that.
+- [53:22.666] You buy a corporation, they buy 500 houses, they
+- [53:26.536] buy hundreds of thousands.
+- [53:28.171] They buy 500 houses, they can take depreciation.
+- [53:31.474] A person sweats and works and buys one house, they
+- [53:36.112] can't.
+- [53:36.780] But homes are built for people, not for
+- [53:38.682] corporations, and America will not become a nation
+- [53:42.052] of renters.
+- [53:42.819] We're not going to do that.
+- [53:44.521] That's why I have signed an executive order banning
+- [53:47.390] large institutional investors from buying
+- [53:49.526] single family homes.
+- [53:50.727] It's just not fair to the public.
+- [53:52.195] They're not able to buy a house.
+- [53:56.700] And I'm calling on Congress to pass that ban
+- [53:58.868] into permanent law and I think they will.
+- [54:01.705] One of the biggest barriers to saving for a
+- [54:03.773] down payment has been surging credit card debt.
+- [54:07.477] The profit margin for credit card companies now
+- [54:10.046] exceeds 50 percent, one of the biggest.
+- [54:13.183] And they charge Americans interest rates of 28
+- [54:16.720] percent, 30 percent, 31 percent, 32 percent.
+- [54:20.690] Whatever happened to usery?
+- [54:24.361] So to help our citizens recover from the Biden
+- [54:28.164] disaster, all caused by this just horrible
+- [54:31.401] president, I'm asking Congress to cap credit
+- [54:36.840] card interest rates at 10 percent for one year.
+- [54:42.078] And this will help millions of Americans save
+- [54:45.782] for a home.
+- [54:46.449] They have no idea they're paying 28 percent.
+- [54:48.852] They go out there a little late in their payment and
+- [54:50.854] they end up losing their house.
+- [54:53.823] It's terrible.
+- [54:55.392] To unleash innovation in savings and financing, I'm
+- [54:58.194] also working to ensure America remains the crypto
+- [55:01.264] capital of the world.
+- [55:03.333] And to that end, last year I signed a landmark Genius
+- [55:06.703] Act into law.
+- [55:07.637] Now Congress is working very hard on crypto market
+- [55:10.974] structure, legislation, Bitcoin, all of them,
+- [55:15.845] which I hope to sign very soon unlocking new
+- [55:18.048] pathways for Americans to reach financial freedom.
+- [55:21.217] And I did it for two reasons.
+- [55:22.519] Number one, I thought it was politically good and
+- [55:24.220] it was.
+- [55:24.888] I got tremendous political support.
+- [55:26.656] But more importantly, China wanted that market
+- [55:30.827] too.
+- [55:31.494] It's just like they want the AI and we've got that
+- [55:34.097] market, I think, pretty well locked up.
+- [55:35.832] If I didn't do it -- Biden was totally against it
+- [55:38.401] until before the election when they realized that
+- [55:41.671] there were millions of people voting against them
+- [55:43.907] over crypto and all of a sudden they loved it very
+- [55:47.177] much, but it was too late.
+- [55:48.344] They blew it.
+- [55:50.046] But it is politically popular, but much more
+- [55:53.683] importantly, we have to make it so that China
+- [55:56.252] doesn't get the hold of it.
+- [55:57.854] And once they have that hold, we're not going to
+- [55:59.456] be able to get it back.
+- [56:01.091] So I'm honored to have done it.
+- [56:02.392] Finally, I've instructed government backed
+- [56:04.694] institutions to purchase up to $200 billion in
+- [56:07.764] mortgage bonds to bring down interest rates, and
+- [56:11.935] I'll be announcing a new Fed chairman in the not
+- [56:14.537] too distant future.
+- [56:15.505] I think he'll do a very good job.
+- [56:17.674] See, I gave away some of it.
+- [56:18.842] He.
+- [56:20.510] Did give that away.
+- [56:21.411] So we have something, got something, but somebody
+- [56:25.148] that's very respected.
+- [56:27.117] They're all respected.
+- [56:28.418] They're all great.
+- [56:29.085] Everyone that I interviewed is great.
+- [56:30.920] Everyone could do, I think, a fantastic job.
+- [56:33.022] Problem is they change once they get the job.
+- [56:35.492] They do.
+- [56:36.159] They're saying everything I want to hear, and then
+- [56:39.496] they get the job.
+- [56:40.330] They're locked in for six years.
+- [56:41.865] They get the job and all of a sudden, let's raise
+- [56:44.534] rates a little bit.
+- [56:45.335] I call them, "Sir, we'd rather not talk about
+- [56:47.504] this." It's amazing how people change once they
+- [56:51.007] have the job, but it's too bad.
+- [56:52.942] Sort of disloyalty, but they got to do what they
+- [56:55.879] think is right.
+- [56:56.679] We have a terrible chairman right now.
+- [56:59.449] Jerome too late Powell, he's always too late.
+- [57:03.520] And he's very late with interest rates except
+- [57:06.356] before the election.
+- [57:07.223] He was just fine for the other side.
+- [57:09.759] So we're going to have somebody that's great, and
+- [57:13.963] we hope he does the right job.
+- [57:15.899] Last week, the average 30-year mortgage rate
+- [57:18.234] dropped below 6 percent for the first time in many
+- [57:20.603] years.
+- [57:21.604] Another major factor in driving up housing costs
+- [57:24.440] was the mass invasion of our borders.
+- [57:27.744] And I have to say one thing about housing,
+- [57:29.813] because nobody ever says this.
+- [57:32.515] I am very protective of people that already own a
+- [57:36.286] house, of which we have millions and millions and
+- [57:40.757] millions.
+- [57:41.891] And because we have had such a good run, the house
+- [57:46.496] values have gone up tremendously and these
+- [57:49.666] people have become wealthy.
+- [57:52.902] They weren't wealthy.
+- [57:53.703] They become wealthy because of their house.
+- [57:57.273] And every time you make it more and more and more
+- [58:00.877] affordable for somebody to buy a house cheaply,
+- [58:02.912] you're actually hurting the value of those houses,
+- [58:05.949] obviously, because the one thing works in tandem with
+- [58:09.519] the other.
+- [58:10.186] And I don't want to do anything that's going to
+- [58:12.789] hurt the value of people that own a house, who for
+- [58:15.091] the first time in their lives are walking around
+- [58:18.127] the streets of whatever city they're in very proud
+- [58:22.232] that their house is worth 500, 600, $700,000.
+- [58:26.803] Now, if I want to really crush the housing market,
+- [58:30.540] I could do that so fast that people could buy
+- [58:32.842] houses, but you would destroy a lot of people
+- [58:36.913] that already have houses.
+- [58:38.114] In some cases, they've mortgaged their house and
+- [58:40.884] the mortgage would be very low and all of a sudden,
+- [58:44.454] the mortgage without any changes becomes very high
+- [58:46.923] and they end up losing the house.
+- [58:48.892] I'm not going to hurt -- And I speak with Scott
+- [58:51.194] who's doing a fantastic job and Howard who's doing
+- [58:53.763] a fantastic job and all of my people.
+- [58:57.333] And I always say, "Look, I can crush the hell out of
+- [59:00.103] the market.
+- [59:00.770] We can drop interest rates to a level --" And that's
+- [59:03.406] one thing we do want to do.
+- [59:04.507] That's natural.
+- [59:05.308] That's good for everybody.
+- [59:06.342] The dropping of the interest rates, we should
+- [59:08.344] be paying a much lower interest rate than we are.
+- [59:11.781] We should be paying the lowest interest rate of
+- [59:14.717] any country in the world because without the United
+- [59:17.153] States, you don't have a country.
+- [59:18.521] I mean, I had a case with Switzerland.
+- [59:22.058] We happened to be in Switzerland.
+- [59:23.459] Maybe I'll give you a quick story.
+- [59:25.595] But they were paying nothing.
+- [59:26.696] They make beautiful watches, great watches,
+- [59:29.065] Rolex, all of them.
+- [59:30.500] They were paying nothing to the United States when
+- [59:32.635] they sent their product in.
+- [59:34.570] And we had a $41 billion deficit.
+- [59:39.142] $41 billion with this beautiful place.
+- [59:42.545] Flew over it.
+- [59:43.246] Isn't it nice?
+- [59:45.348] So I said, "Let's put a 30 percent tariff on them so
+- [59:49.252] that we get back some of it." Not all of it at all.
+- [59:51.621] We still have a deficit, big deficit.
+- [59:53.957] We had 40, 41 million.
+- [59:56.659] That's a big deficit.
+- [59:57.994] And I said, "Let's put a tariff on." Different
+- [01:00:02.165] tariffs, different places.
+- [01:00:03.333] You're all party to them.
+- [01:00:05.702] In some cases, victims to them, but in the end, it's
+- [01:00:08.304] a fair thing and most of you realize that.
+- [01:00:11.341] But we put a 30 percent tariff on Switzerland and
+- [01:00:17.914] all hell broke loose.
+- [01:00:20.984] They were calling, I mean, like you wouldn't believe.
+- [01:00:24.620] And I know so many people from Switzerland.
+- [01:00:27.090] Incredible place.
+- [01:00:28.358] Incredible, brilliant place.
+- [01:00:31.127] But I then realized that they're only good because
+- [01:00:33.296] of us, and there's so many other examples.
+- [01:00:36.466] I mean, probably other places, but a majority of
+- [01:00:39.435] the money that make us because of us because we
+- [01:00:42.672] never charged them anything.
+- [01:00:44.741] So they come in, they sell their watches, no tariffs,
+- [01:00:48.211] no nothing.
+- [01:00:48.878] They walk away, they make $41 billion on just us.
+- [01:00:55.718] So I said, "No, we can't do that.
+- [01:00:57.520] So I'm going to bring it up." I still would have a
+- [01:01:00.223] deficit pretty substantial, but I brought
+- [01:01:02.125] it up to 30 percent.
+- [01:01:03.393] And the, I guess prime minister, I don't think
+- [01:01:08.498] president, I think prime minister called, a woman,
+- [01:01:11.968] and she was very repetitive.
+- [01:01:16.239] She said, "No, no, no.
+- [01:01:17.507] You cannot do that 30 percent.
+- [01:01:19.942] You cannot do that.
+- [01:01:20.810] We are a small, small country." I said, "Yeah,
+- [01:01:23.646] but you have a big, big deficit.
+- [01:01:26.082] You may be small, but you have a big deficit than
+- [01:01:28.551] big countries." `She said, "No, no, no, please.
+- [01:01:30.987] You cannot do it.
+- [01:01:31.687] " Kept saying the same thing over and over.
+- [01:01:33.289] "We are a small country." I said, "But you're a big
+- [01:01:36.092] country in terms of --"
+- [01:01:37.794] And she just rubbed me the wrong way, I'll be honest
+- [01:01:41.197] with you.
+- [01:01:42.732] And I said, "All right, thank you, ma'am.
+- [01:01:45.435] Appreciate it." "Do not do this." "Thank you very
+- [01:01:48.504] much, ma'am." And I made it 39 percent and then all
+- [01:01:52.742] hell really broke out and I was paid visits by
+- [01:01:56.412] everybody.
+- [01:01:57.113] Rolex came to see me.
+- [01:01:58.448] They all came to see me, but I realized, and I
+- [01:02:02.018] reduced it because I don't want to hurt people.
+- [01:02:05.955] I don't want to hurt them.
+- [01:02:06.856] And we brought it down to a lower level.
+- [01:02:08.191] Doesn't mean it's not going up, but we brought
+- [01:02:09.525] it down to a lower level, but they pay now a tariff.
+- [01:02:16.966] But I realized that we have many places like that
+- [01:02:25.675] where they're making a fortune because of the
+- [01:02:27.410] United States.
+- [01:02:28.411] Without the United States, they wouldn't be making
+- [01:02:32.048] anything.
+- [01:02:33.382] Think of it.
+- [01:02:34.050] Switzerland made $41 billion on us.
+- [01:02:36.886] And as she said, it's a small place.
+- [01:02:41.624] And I realized with that, I don't know, because she
+- [01:02:45.328] was so aggressive.
+- [01:02:46.429] And I realized in that conversation that the
+- [01:02:50.933] United States is keeping the whole world afloat.
+- [01:02:55.538] Many places, I could give you six, seven places just
+- [01:02:59.509] in the people in this little area.
+- [01:03:00.843] I know every one of them, they're looking down.
+- [01:03:04.680] They don't want to see me and they don't want to
+- [01:03:06.015] stare me in the eyes, but they're taking advantage
+- [01:03:09.152] of.
+- [01:03:09.819] Everybody took advantage of the United States, but
+- [01:03:13.055] I've been very fair and I gave them a tariff and it
+- [01:03:15.658] was fine.
+- [01:03:17.126] But I realized that without us, it's not
+- [01:03:22.265] Switzerland anymore.
+- [01:03:23.499] Without us, it's not any of the countries that are
+- [01:03:26.035] represented here.
+- [01:03:26.869] And we want to work with the countries.
+- [01:03:29.138] We want to work with them.
+- [01:03:30.106] We're not looking to destroy them.
+- [01:03:31.541] I could have said 39, 40 percent.
+- [01:03:33.776] I could have said, "I want a 70 percent tariff." Then
+- [01:03:36.379] we make money with Switzerland, but
+- [01:03:38.047] Switzerland would have been probably destroyed.
+- [01:03:40.950] Financially destroyed.
+- [01:03:41.884] I don't want to do that, but we should be paying
+- [01:03:45.721] the lowest interest rate of everybody.
+- [01:03:47.523] I hope Scott's listening to this because we should
+- [01:03:50.493] be paying the lowest interest rate of
+- [01:03:52.662] everybody.
+- [01:03:53.329] Without us, most of the countries don't even work.
+- [01:03:59.268] And then you have the protection factor.
+- [01:04:00.870] Without our military, which is the greatest in
+- [01:04:03.005] the world by far.
+- [01:04:04.907] Without our military, you have threats that you
+- [01:04:07.677] wouldn't believe.
+- [01:04:08.978] You wouldn't believe.
+- [01:04:10.313] You don't have threats because of us and that's
+- [01:04:14.450] because of NATO.
+- [01:04:15.284] One other thing, and I have to say it so
+- [01:04:17.053] importantly, in the old days, and I used to say
+- [01:04:21.724] I'm the youngest in the room.
+- [01:04:22.692] Now I'm among the older, I hate to say it.
+- [01:04:25.228] I don't feel old, but I'm among the older.
+- [01:04:29.565] But I remember not long ago, 20, 25 years ago,
+- [01:04:33.536] when good news came out about, let's say the
+- [01:04:37.673] United States.
+- [01:04:38.674] The United States had a great quarter, the United
+- [01:04:41.277] States had a great month.
+- [01:04:43.212] All the stocks went up, and that's the way it's
+- [01:04:46.082] supposed to be.
+- [01:04:47.850] Now when they say, "The United States had a record
+- [01:04:50.886] quarter, it's unbelievable how well it's doing." All
+- [01:04:55.625] the stocks crash because they say oh no, inflation,
+- [01:05:00.329] inflation, they're going to raise interest rates.
+- [01:05:02.665] And they do.
+- [01:05:03.332] Some of these stupid people like Powell, they
+- [01:05:05.801] raise interest rates.
+- [01:05:07.236] And what they do is they stop you from being
+- [01:05:11.173] successful.
+- [01:05:11.841] It used to be when we had a great quarter, a great
+- [01:05:15.511] month, great earnings, great anything, any good
+- [01:05:17.980] news, the stock market went up.
+- [01:05:20.082] That's the way it's going to be.
+- [01:05:21.417] We got to do that again because that's the way it
+- [01:05:23.653] should be.
+- [01:05:24.320] Now when we have a great month, they want to kill
+- [01:05:27.790] it like we did over 5 percent.
+- [01:05:31.127] People were surprised.
+- [01:05:32.094] We should do 20 percent.
+- [01:05:33.396] We could do 25 percent.
+- [01:05:34.830] When we announced good numbers -- And the reason
+- [01:05:37.867] is they're so petrified of inflation and growth
+- [01:05:41.237] doesn't mean inflation.
+- [01:05:42.505] We've had tremendous growth with very low
+- [01:05:45.141] inflation.
+- [01:05:46.042] In fact, growth can fight inflation, proper growth.
+- [01:05:50.613] So we want to get back to the days when we announce
+- [01:05:53.683] great numbers, because we're going to be
+- [01:05:55.017] announcing phenomenal -- All these factories that
+- [01:05:57.320] are being built at record -- Thousands of businesses
+- [01:05:59.755] are being built right now.
+- [01:06:01.757] Remember, $18 trillion is invested.
+- [01:06:06.262] I think the second number is three, and that was
+- [01:06:10.700] China many years ago, investments in the country
+- [01:06:14.370] from outside.
+- [01:06:15.705] 18 trillion, nobody's ever seen and that's money
+- [01:06:18.574] coming in and building things, factories.
+- [01:06:21.210] Thousands of businesses are being built,
+- [01:06:23.913] thousands.
+- [01:06:25.715] Hundreds of big factories, car plants are moving back
+- [01:06:28.250] to the United States.
+- [01:06:29.318] They're coming in from Canada.
+- [01:06:30.486] They're coming in from Mexico, from Japan.
+- [01:06:32.922] Japan's coming in and building plants here in
+- [01:06:35.291] order to avoid tariffs.
+- [01:06:36.459] They're coming in from China.
+- [01:06:38.994] They're coming in from all over the world.
+- [01:06:41.163] We have more plants being built now, car plants,
+- [01:06:43.199] than we've ever had built even in the heyday from
+- [01:06:45.334] the 1940s and 50s, and they're bigger.
+- [01:06:48.471] They don't use renovations anymore where they take an
+- [01:06:51.340] old plant, they rip it down.
+- [01:06:52.375] They build a brand new plant, super modern plant,
+- [01:06:55.678] but it's happening at levels that nobody's ever
+- [01:06:57.980] seen.
+- [01:06:58.647] In 2024, the US built less than two million new
+- [01:07:02.618] homes, but Biden admitted more than eight million
+- [01:07:07.256] new migrants.
+- [01:07:08.824] And those days are over.
+- [01:07:10.025] In 2025 for the first time in 50 years, the United
+- [01:07:14.263] States had reverse migration.
+- [01:07:17.333] Boy, that was nice.
+- [01:07:19.635] And these were criminals that were being taken out
+- [01:07:21.704] of our country because they allowed people to
+- [01:07:24.473] come into our country from jails, from gangs, drug
+- [01:07:27.943] dealers, murderers.
+- [01:07:29.979] 11,888 murderers, we've gotten most of them out.
+- [01:07:34.550] And then ICE gets beat up by stupid people from
+- [01:07:39.088] leadership in Minnesota.
+- [01:07:42.291] We actually are helping Minnesota so much, but
+- [01:07:44.593] they don't appreciate it.
+- [01:07:45.494] Most places do.
+- [01:07:46.729] Washington DC is the safest place now in the
+- [01:07:49.298] United States.
+- [01:07:50.032] It was a very dangerous place to walk, and now you
+- [01:07:53.702] can walk with your wife, your kids, right through
+- [01:07:55.504] the middle of the city.
+- [01:07:56.305] Right now, Washington DC is as safe as it gets.
+- [01:08:00.209] It was one of the most unsafe, I had to admit.
+- [01:08:02.845] We sent in the military, the National Guard.
+- [01:08:05.815] Within two months, it was great.
+- [01:08:07.416] Within three months, it's like a really great place
+- [01:08:10.319] and a safe place and a beautiful place.
+- [01:08:13.022] It's even been cleaned up.
+- [01:08:14.757] The graffiti's gone.
+- [01:08:15.758] The fences are gone.
+- [01:08:17.293] We don't have to worry about fences anymore.
+- [01:08:19.295] All of the places, the grasses are cut and
+- [01:08:23.365] replaced with new grass in many cases.
+- [01:08:25.601] It's all going to happen in the spring.
+- [01:08:27.670] But Washington and DC is beautiful again and it's
+- [01:08:30.206] safe.
+- [01:08:30.873] New restaurants are opening up.
+- [01:08:32.241] They're all closing.
+- [01:08:33.576] Now you can't get into a restaurant.
+- [01:08:35.244] Restaurants in Washington, DC are all opening.
+- [01:08:38.948] Memphis also.
+- [01:08:40.349] Memphis, Tennessee, New Orleans, Louisiana.
+- [01:08:44.220] We were there for three weeks.
+- [01:08:45.721] We've cut the crime down to by 64 percent.
+- [01:08:49.291] Within another month we'll have virtually no crime
+- [01:08:52.094] there.
+- [01:08:52.962] We can do that all over.
+- [01:08:54.363] We're going to help the people in California.
+- [01:08:58.000] We want to have no crime.
+- [01:08:59.602] I know Gavin was here.
+- [01:09:00.669] I used to get along so great with Gavin when I
+- [01:09:02.505] was president.
+- [01:09:03.439] Gavin's a good guy.
+- [01:09:06.375] And if he needed it, I would do it in a
+- [01:09:08.811] heartbeat.
+- [01:09:09.478] I'd love to see -- We did help them a lot in Los
+- [01:09:11.914] Angeles, a lot early in my term when they had some
+- [01:09:15.584] problems, but we would love to do it.
+- [01:09:18.787] I will say this, if I were a Democrat governor or
+- [01:09:20.923] whatever, I would call up Trump.
+- [01:09:23.359] I'd say, come on in, make us look good because we're
+- [01:09:26.495] cutting crime down to nothing.
+- [01:09:28.063] And we're taking people out, career criminals who
+- [01:09:31.634] are only going to do bad things and we're bringing
+- [01:09:33.702] them back to their countries.
+- [01:09:35.871] But where we've done it has been amazing, and we
+- [01:09:38.674] have a capacity to do it at much greater levels.
+- [01:09:43.145] We're cutting illegal aliens off welfare and
+- [01:09:45.447] other government benefits and I have directed that
+- [01:09:48.150] starting immediately there will be no more payments
+- [01:09:51.887] to sanctuary cities because they are really
+- [01:09:54.156] just sanctuaries for criminals.
+- [01:09:55.891] They're really protecting criminals.
+- [01:09:57.526] And those are the ones we have to get out of the
+- [01:09:58.961] country.
+- [01:09:59.628] Murderers, drug dealers, the mentally insane.
+- [01:10:04.066] They emptied their mental institutions into the
+- [01:10:06.402] United States.
+- [01:10:08.203] And despite that, we have the lowest crime numbers
+- [01:10:10.539] that we've ever had in the history of the country.
+- [01:10:13.175] Just came out.
+- [01:10:14.343] But equally importantly, we're cracking down on
+- [01:10:17.246] more than $19 billion in fraud that was stolen by
+- [01:10:22.851] Somalian bandits.
+- [01:10:24.286] Can you believe that Somalian -- They turned
+- [01:10:26.055] out to be higher IQ than we thought.
+- [01:10:29.091] I always say, "These are low IQ people.
+- [01:10:30.893] How do they go into Minnesota and steal all
+- [01:10:32.861] that money?"
+- [01:10:34.563] And you know they're pirates.
+- [01:10:35.698] They're good pirates, right?
+- [01:10:36.765] But we shoot them out of the water just like we
+- [01:10:38.634] shoot the drug boats out.
+- [01:10:40.069] They're not pirating too many boats lately, do you
+- [01:10:42.037] notice?
+- [01:10:43.739] When they go out into those boats, they want to
+- [01:10:45.541] take over a billion and a half dollar tanker, load
+- [01:10:49.278] it up with oil.
+- [01:10:50.646] And they say, "We're going to blow up your boat."
+- [01:10:52.114] They have powerful weapons.
+- [01:10:53.549] You hit the side of the boat, you blow the whole
+- [01:10:55.150] thing up.
+- [01:10:56.151] The insurance companies are petrified.
+- [01:10:58.253] So they say, "Just give them the boat.
+- [01:10:59.822] We'll give them money instead." And I don't do
+- [01:11:03.626] that.
+- [01:11:04.326] We blow them right the hell out of the water.
+- [01:11:05.928] We see them going out.
+- [01:11:06.829] We blow them out of the water.
+- [01:11:07.963] We don't have any pirates so much anymore.
+- [01:11:10.199] If we do, they won't be there long.
+- [01:11:13.402] We've cut down with the hitting of the boats that
+- [01:11:17.640] are loaded up with drugs, including submarines.
+- [01:11:19.842] Can you believe they actually buy small -- They
+- [01:11:21.343] call mini subs, very fast.
+- [01:11:23.579] They're meant for drugs.
+- [01:11:25.714] We've knocked out two of them.
+- [01:11:26.815] The Democrats say they were fishing.
+- [01:11:28.584] You have ruined somebody's fishing weekend, I would
+- [01:11:32.354] say a submarine is not a fishing boat.
+- [01:11:35.190] You don't fish.
+- [01:11:36.525] But we've knocked down drugs by water, the
+- [01:11:37.860] oceans, the sea by 97.2 percent.
+- [01:11:39.194] Think of that.
+- [01:11:39.895] And I actually say, "Who the hell are the 3
+- [01:11:41.230] percent?"
+- [01:11:41.897] Because I would not want to be piloting one of
+- [01:11:43.232] those boats.
+- [01:11:43.899] We knocked them down and now we're going to start
+- [01:11:45.234] on land.
+- [01:11:47.636] We're going to knock it all out.
+- [01:11:57.212] The land is the easy part that what we did on sea is
+- [01:12:00.015] incredible.
+- [01:12:00.683] And that's our great military.
+- [01:12:01.884] The situation in Minnesota reminds us that the West
+- [01:12:07.189] cannot mass import foreign cultures, which have
+- [01:12:10.292] failed to ever build a successful society of
+- [01:12:13.028] their own.
+- [01:12:14.029] I mean, we're taking people from Somalia and
+- [01:12:16.465] Somalia, it's not a nation.
+- [01:12:21.203] Got no government, got no police, got no military,
+- [01:12:23.605] got no nothing.
+- [01:12:25.774] And then we have this fake Congressperson who they
+- [01:12:29.912] just reported is worth $30 million.
+- [01:12:31.947] You believe this?
+- [01:12:33.082] Ilhan Omar talking about the Constitution provides
+- [01:12:36.785] me -- She comes from a country that's not a
+- [01:12:39.121] country and she's telling us how to run America.
+- [01:12:42.157] Not going to get away with it much longer, let me
+- [01:12:44.293] tell you.
+- [01:12:44.960] The explosion of prosperity, in conclusion,
+- [01:12:49.565] and progress that built the West did not come from
+- [01:12:54.536] our tax codes.
+- [01:12:55.838] It ultimately came from our very special culture.
+- [01:12:59.274] This is the precious inheritance that America
+- [01:13:02.444] and Europe have in common and we share it.
+- [01:13:05.280] We share it, but we have to keep it strong.
+- [01:13:08.951] We have to become stronger, more successful
+- [01:13:11.420] and more prosperous than ever.
+- [01:13:13.589] We have to defend that culture and rediscover the
+- [01:13:16.391] spirit that lifted the West from the depths of
+- [01:13:18.994] the dark ages to the pinnacle of human
+- [01:13:22.231] achievement.
+- [01:13:23.599] We live in a incredible changing period.
+- [01:13:28.971] It's an unbelievable time, but we have to take
+- [01:13:31.507] advantage of the time that we're in.
+- [01:13:35.077] In our hands, our technologies that our
+- [01:13:37.746] ancestors could scarily have -- I mean, they
+- [01:13:40.349] couldn't have even dreamt some of the things that we
+- [01:13:42.618] see today.
+- [01:13:44.586] And so rapidly, they're produced.
+- [01:13:46.355] I mean, AI, two years ago, nobody ever heard of the
+- [01:13:49.324] term and now everybody's talking about it.
+- [01:13:51.460] And it can have some very good purpose.
+- [01:13:53.395] It could also have some dangerous purpose.
+- [01:13:55.230] And for that, we have to watch out.
+- [01:13:57.499] But some tremendous things are happening because of
+- [01:13:59.768] it.
+- [01:14:01.103] And we're leading by so much.
+- [01:14:02.504] We're doing so well.
+- [01:14:04.306] But opportunities that are bigger and grander than
+- [01:14:06.642] ever before in human history are right before
+- [01:14:09.545] us.
+- [01:14:10.846] It is the pioneers in this room.
+- [01:14:13.015] Many of you in this room are true pioneers.
+- [01:14:15.284] You're truly brilliant, brilliant people.
+- [01:14:19.121] Just your ability to get a ticket is brilliant
+- [01:14:22.591] because you have about 50 people for every seat.
+- [01:14:26.195] I don't know what, that's Larry.
+- [01:14:28.864] Everything Larry touches turns to gold.
+- [01:14:30.966] He made this very successful.
+- [01:14:32.534] But you're in this room and some of you are the
+- [01:14:36.004] greatest leaders anywhere in the world.
+- [01:14:37.873] You're the greatest brains anywhere in the world.
+- [01:14:41.009] And the future is unlimited and to a large
+- [01:14:44.479] part because of you and we have to protect you and we
+- [01:14:47.716] have to cherish you.
+- [01:14:49.518] I always say we have to cherish our brilliant
+- [01:14:52.154] people because there aren't many of them.
+- [01:14:54.456] So together with confidence, boldness, and
+- [01:14:57.993] persistence, let us lift up our people, grow our
+- [01:15:01.663] economies, defend our shared destiny and build a
+- [01:15:04.833] future for our citizens that is more ambitious,
+- [01:15:07.803] more exciting, more inspiring, and greater
+- [01:15:11.240] than the world has ever seen.
+- [01:15:13.508] We're in a position to do things that nobody else
+- [01:15:16.011] has ever even thought of before.
+- [01:15:18.647] And many of the people in this room are the ones
+- [01:15:20.883] that are doing it.
+- [01:15:21.583] And I want to congratulate you and I'm with you all
+- [01:15:23.852] the way.
+- [01:15:24.519] You can do things that nobody else can even think
+- [01:15:26.722] about.
+- [01:15:27.389] So I congratulate you and your tremendous success.
+- [01:15:30.425] And the United States is back bigger, stronger,
+- [01:15:36.465] better than ever before.
+- [01:15:37.966] And I'll see you around.
+- [01:15:44.139] Thank you all very much.
+- [01:15:50.279] Thank you very much.
+- [01:15:55.217] (applause)
+- [01:15:56.451] Thank you.
+- [01:15:58.921] I didn't know about this.
+- [01:16:05.060] Børge Brende: This was supposed to be a nice fire
+- [01:16:09.564] chat, Mr. President.
+- [01:16:10.899] The President: Yes.
+- [01:16:12.234] Good.
+- [01:16:12.901] I got set up.
+- [01:16:14.436] I did know.
+- [01:16:15.771] Børge Brende: You made the job for the moderator
+- [01:16:19.508] really easy.
+- [01:16:20.242] Thank you, Mr. President, for your speech.
+- [01:16:23.045] I do have a few follow-up questions, if it's okay.
+- [01:16:26.048] The President: Sure.
+- [01:16:26.949] Børge Brende: I don't think I should start with
+- [01:16:28.850] Greenland maybe.
+- [01:16:29.651] I'll start with the economy.
+- [01:16:31.353] The US economy is doing really, really well.
+- [01:16:34.723] But how to sustain this growth moving forward,
+- [01:16:38.126] because there's always a recession looming around
+- [01:16:41.396] the corner?
+- [01:16:42.297] The President: Well, the one thing about economies
+- [01:16:45.534] and recessions is sometimes you get hit
+- [01:16:48.003] unexpectedly and there's nothing you can do about
+- [01:16:50.105] it.
+- [01:16:50.806] All brilliant people, but there's nothing.
+- [01:16:52.140] One example was COVID.
+- [01:16:54.376] We had an economy going at levels like nobody had
+- [01:16:57.913] ever seen my first two and a half, three years.
+- [01:17:01.016] And then I heard the word pandemic, not COVID.
+- [01:17:05.487] They came up with that name over a period of
+- [01:17:08.390] time.
+- [01:17:09.057] We won't get into that, but I heard the word
+- [01:17:10.792] pandemic.
+- [01:17:12.327] And I had a poll come out that was so strong just
+- [01:17:15.630] prior to that and I was with the two best
+- [01:17:17.733] pollsters, McLaughlin, Fabrizio.
+- [01:17:20.335] And they said, "Sir, George Washington and
+- [01:17:25.073] Abraham Lincoln, if they came back and ran as
+- [01:17:27.275] president and vice president, they couldn't
+- [01:17:29.211] beat you." And then what happened is the following
+- [01:17:32.114] day, I was told to stay tuned because there's
+- [01:17:37.386] something really bad happening in China.
+- [01:17:39.221] There are bodies laying all over Wuhan, right
+- [01:17:44.192] around that certain building that we talk
+- [01:17:46.361] about.
+- [01:17:47.029] I always said it came from Wuhan.
+- [01:17:48.363] It did come from Wuhan.
+- [01:17:49.064] And there were body bags.
+- [01:17:50.699] We saw it by satellite.
+- [01:17:52.567] And they said, "There are strange things happening
+- [01:17:54.403] in China." And so it began.
+- [01:17:58.073] And we ended up with the COVID and the whole world
+- [01:18:00.342] suffered.
+- [01:18:01.009] We did a phenomenal job.
+- [01:18:02.210] I don't think we got the credit we deserved.
+- [01:18:04.446] We did something that, Operation Warp Speed,
+- [01:18:07.482] which some people say was one of the greatest
+- [01:18:10.452] military feats ever.
+- [01:18:11.720] We did a great job.
+- [01:18:13.088] Used our military, a lot of people.
+- [01:18:15.590] But sometimes you get hit with things, nothing you
+- [01:18:19.161] can do.
+- [01:18:20.162] You get hit with things like that unexpectedly.
+- [01:18:23.265] And we got through it.
+- [01:18:24.266] And when I left, the stock market was higher than it
+- [01:18:28.870] was previous to the COVID coming up.
+- [01:18:32.307] And I called it a great achievement.
+- [01:18:35.811] But things happen, bad things happen.
+- [01:18:38.880] The things that we can stop are wars, if we're
+- [01:18:41.283] smart.
+- [01:18:42.117] That, we can stop.
+- [01:18:43.051] Those are a matter of being intelligent and
+- [01:18:46.488] having intelligent people on the other side, because
+- [01:18:48.890] wars are the worst of all.
+- [01:18:50.125] Wars are worse than anything, but we can stop
+- [01:18:52.861] wars because that's sort of up to us.
+- [01:18:55.597] But things like dust flying in the air,
+- [01:18:59.601] wherever COVID comes from or whatever comes,
+- [01:19:02.838] sometimes you have to be a little bit lucky.
+- [01:19:04.673] But we are poised to have an economy like no other,
+- [01:19:06.007] not only in this country, but anywhere.
+- [01:19:07.375] And when you hear the kind of numbers that -- I can
+- [01:19:08.710] tell you that Scott Bessent was with me the
+- [01:19:10.045] other day and he's looking at numbers.
+- [01:19:11.379] He said, "I can't," and that's all he's done his
+- [01:19:12.714] whole life, pretty much your whole life.
+- [01:19:14.049] Scott, you weren't going to be a football player, I
+- [01:19:15.383] don't think.
+- [01:19:16.084] Scott was not that great at football, but he was
+- [01:19:17.419] always good at numbers, right?
+- [01:19:29.030] And he was looking at numbers.
+- [01:19:30.265] He said, "I've never seen anything like this.
+- [01:19:35.871] We're poised to do things that no other country has
+- [01:19:38.607] ever done." And luck, I hate to say it, but we
+- [01:19:44.946] need a little luck.
+- [01:19:45.780] We don't want to get hit by something that nobody
+- [01:19:48.250] could have thought.
+- [01:19:49.317] Whoever thought we were going to hit by a
+- [01:19:51.553] pandemic.
+- [01:19:52.721] When I heard the word pandemic, I said, "Oh,
+- [01:19:54.422] that's an ancient problem." World War I,
+- [01:19:57.292] they lost a hundred million people.
+- [01:19:58.693] It actually ended World War I.
+- [01:20:00.095] A lot of people don't know.
+- [01:20:01.096] The Spanish flu and World War I ended the war
+- [01:20:05.834] because all the soldiers were sick.
+- [01:20:07.369] The soldiers were so sick on both sides and that war
+- [01:20:10.405] was raging and they were all dying from the Spanish
+- [01:20:13.942] flu.
+- [01:20:14.609] They were sick as dogs.
+- [01:20:15.510] They couldn't fight.
+- [01:20:17.312] So you don't know how that would have turned out.
+- [01:20:20.215] So we do, subject to that, and I always have to put a
+- [01:20:24.052] caveat in for it, but we're poised to have the
+- [01:20:25.987] greatest growth of any large country.
+- [01:20:28.557] I think any country that there's been, when you
+- [01:20:31.526] look at what's happening in the United States, it's
+- [01:20:33.328] really amazing.
+- [01:20:34.329] Børge Brende: Thank you.
+- [01:20:35.730] One thing that maybe keeps you up at night, I know
+- [01:20:38.600] you don't sleep that much anyway, Mr. President, is
+- [01:20:41.736] the debt.
+- [01:20:42.604] The US debt is high, is now the biggest
+- [01:20:45.740] expenditure on your budget.
+- [01:20:47.676] How to get out of that impulse?
+- [01:20:51.046] The President: Well, the big thing is growth.
+- [01:20:53.515] I mean, growth is the way.
+- [01:20:54.649] If we grow like this, we go from having a 37, 36,
+- [01:20:58.220] $37 trillion.
+- [01:20:59.221] We go from having high debt to low debt, but we
+- [01:21:03.425] also are cutting expenses the old-fashioned way.
+- [01:21:06.861] We have extraordinary growth.
+- [01:21:08.296] I think we're going to be growing our way out.
+- [01:21:10.732] I think we're going to be paying off debt.
+- [01:21:12.867] We're taking in tremendous money from tariffs,
+- [01:21:15.270] fairly.
+- [01:21:15.937] And again, I'm using them judiciously.
+- [01:21:17.906] Switzerland's a case study.
+- [01:21:20.242] I could have gotten much more.
+- [01:21:22.477] I could have asked for much more, but we're using
+- [01:21:25.447] them judiciously.
+- [01:21:26.548] But I think growth, most importantly, and then
+- [01:21:30.819] cutting costs.
+- [01:21:31.486] Now, if you take a look at Minnesota, $19 billion in
+- [01:21:34.155] fraud and other things.
+- [01:21:34.823] People going to airports, they came into the
+- [01:21:36.157] country, they don't have 10 cents and they're
+- [01:21:37.492] leaving with hundreds of thousands of cash in their
+- [01:21:38.860] bags.
+- [01:21:39.527] When we get to that, and our DOJ, Pam and Todd and
+- [01:21:40.862] all the people that work over there and all of the
+- [01:21:42.330] people that work in here, I can tell you, Scott
+- [01:21:45.233] Bessent is working on that.
+- [01:21:47.135] It's a priority, right?
+- [01:21:48.336] You have your whole team.
+- [01:22:04.486] We're in there looking for where this money is coming
+- [01:22:08.556] from, how much it is.
+- [01:22:10.091] It could be more than $19 billion.
+- [01:22:11.893] Can you believe that?
+- [01:22:12.894] That's just one state.
+- [01:22:14.863] If we were able to cut out 50 percent of the fraud,
+- [01:22:20.602] 50 percent, and we should be able to do better than
+- [01:22:22.737] that, we would have a balanced budget without
+- [01:22:26.508] having to talk about even growth.
+- [01:22:28.576] So we have a lot of options, but we're working
+- [01:22:30.412] very hard on that.
+- [01:22:31.346] That's a big deal.
+- [01:22:32.013] It's not just the protests, the fake
+- [01:22:34.149] protests done by agitators and professional
+- [01:22:36.384] insurrectionists, that's what they are.
+- [01:22:37.752] They're professional troublemakers, but we are
+- [01:22:39.954] looking very strong at the money, too, in Minnesota
+- [01:22:42.991] and other
+- [01:22:43.892] Børge Brende: Places.
+- [01:22:45.293] I think Mr. President, also the $500 billion US
+- [01:22:49.431] dollars invested in artificial intelligence
+- [01:22:51.733] and the frontier technologies last year
+- [01:22:54.502] also were driving growth exponentially in the US.
+- [01:22:58.206] The President: Well, AI has been a big factor.
+- [01:23:02.377] AI is massive.
+- [01:23:03.978] I mean, Mark Zuckerberg showed me a plant where he
+- [01:23:07.782] put it over a map of Manhattan and it was
+- [01:23:10.485] basically the size of Manhattan.
+- [01:23:13.455] I said, "You got to be kidding." It's a plant
+- [01:23:16.825] that was miles long, miles wide, very high.
+- [01:23:20.995] I don't think it was high like the Empire State
+- [01:23:22.864] Building, but it was high.
+- [01:23:23.798] And it literally covered most of the island of
+- [01:23:28.770] Manhattan.
+- [01:23:29.437] That's called a big plant.
+- [01:23:31.606] And when I heard they're going to spend 50 billion
+- [01:23:34.309] building, and I said, "If you spend 50 million, you
+- [01:23:37.946] can build a nice little shopping center.
+- [01:23:39.614] If you spend 500 million, you can build a good
+- [01:23:42.417] shopping center, but how do you spend 50 billion?"
+- [01:23:46.788] When I looked at this thing, I said, "You think
+- [01:23:49.324] you'll be able to do it for that?"
+- [01:23:50.658] It's amazing, some of the plants that I see, and I
+- [01:23:55.130] see them all.
+- [01:23:56.398] And again, so big, as we're letting them build
+- [01:23:58.500] their own electric generation.
+- [01:24:02.003] This way we have no problem, and otherwise
+- [01:24:04.939] there'd be complaining.
+- [01:24:05.774] There'd be nobody able to, we have an old grid
+- [01:24:08.009] system, and not only that, they're going to sell, at
+- [01:24:11.146] a very cheap price, the excess electricity that
+- [01:24:14.315] they create back into our grid.
+- [01:24:16.484] So that'll solve some problems for certain
+- [01:24:19.287] states that don't have enough electricity.
+- [01:24:21.589] Børge Brende: We also know that on the AI, there is
+- [01:24:25.193] fierce competition between the US, as the largest
+- [01:24:28.229] economy in the world, 27 percent of the global GDP
+- [01:24:32.100] and 5 percent of the global population, not
+- [01:24:34.702] doing that badly, and China.
+- [01:24:36.771] And we know that that competition is very tough
+- [01:24:41.376] on AI.
+- [01:24:42.043] I know you're heading to a state visit to China in
+- [01:24:45.413] April.
+- [01:24:46.080] How do you see the US-China relationship
+- [01:24:50.185] moving forward?
+- [01:24:51.219] Are you able to combine this tough competition
+- [01:24:55.356] with also collaboration?
+- [01:24:56.424] The President: So I've always had a very good
+- [01:24:58.793] relationship with President Xi and with
+- [01:25:00.962] President Putin, talk about the larger powers.
+- [01:25:05.200] But I've always had a very good relationship with
+- [01:25:07.535] President Xi of China.
+- [01:25:09.737] He's an incredible man.
+- [01:25:11.873] What he's done is amazing.
+- [01:25:14.042] He's highly respected by everybody.
+- [01:25:16.678] And I do now.
+- [01:25:17.378] I mean, now I have good, it was very severely
+- [01:25:19.547] interrupted by COVID.
+- [01:25:21.649] I used to call it the China virus, but he said,
+- [01:25:24.552] "Do you think you could use a different name?"
+- [01:25:26.254] And I decided to do that because why should we have
+- [01:25:32.093] a problem over that?
+- [01:25:33.194] But I would do that and they would-
+- [01:25:34.896] Børge Brende: A true diplomat, huh?
+- [01:25:37.098] The President: I became a diplomat for the first
+- [01:25:39.133] time.
+- [01:25:39.801] Well, you know who taught me that?
+- [01:25:41.135] Marco Rubio, he said, "Let me teach you about
+- [01:25:44.272] diplomacy." Hey, any guy that gets approved by 100
+- [01:25:47.976] percent of the votes, think of it, he got
+- [01:25:50.778] liberal Democrats and radical right Republicans
+- [01:25:54.916] to approve him.
+- [01:25:55.583] He's the only one.
+- [01:25:56.584] The next one lost 45 votes, right?
+- [01:25:59.354] But he got all 100 votes voting for him.
+- [01:26:03.658] And at first I wasn't happy about it.
+- [01:26:05.793] I said, "Wait a minute, I don't like that." And now
+- [01:26:08.463] it turns out that the Democrats probably wish
+- [01:26:10.865] they didn't do that.
+- [01:26:12.333] And Marco has been fantastic.
+- [01:26:13.935] Marco, stand up, please.
+- [01:26:15.136] You have done a great job as Secretary of State.
+- [01:26:17.405] He's going to go down as the best Secretary of
+- [01:26:20.174] State, and Scott.
+- [01:26:21.943] And we have Susie, who's the first female chief of
+- [01:26:26.147] staff, and she's the best chief of staff too.
+- [01:26:28.750] And I see Howard Lutnick, who I know spoke, and
+- [01:26:33.888] Howard's fantastic.
+- [01:26:35.123] Some of the deals we're doing are great.
+- [01:26:36.758] And I want to pay particular attention
+- [01:26:40.161] because we have Chris.
+- [01:26:42.297] And Chris, you got up and spoke, I think.
+- [01:26:44.365] He's the number one oil man in the world because I
+- [01:26:47.702] was going to put Doug Bergum, who's fantastic.
+- [01:26:50.838] I don't know if Doug's here.
+- [01:26:51.673] Is Doug here?
+- [01:26:52.340] Doug Bergum is fantastic.
+- [01:26:54.008] He said, "Sir, there's one man better than me." And
+- [01:26:57.378] he introduced me to Chris and he turns out to be.
+- [01:27:00.515] So we're drilling more oil and gas now than we ever
+- [01:27:03.017] have by almost double.
+- [01:27:05.219] Is that right, Chris?
+- [01:27:07.055] And on top of it, we got a lot coming out of
+- [01:27:09.724] Venezuela.
+- [01:27:10.892] So anyway, so we're doing great.
+- [01:27:12.327] The country is just doing great.
+- [01:27:13.795] We have great people.
+- [01:27:14.596] Thank you.
+- [01:27:15.263] And I see other people.
+- [01:27:16.130] We have Steve Witkoff, we have Jared.
+- [01:27:18.433] I got so many people.
+- [01:27:19.500] I'm in trouble because when I go back, there're
+- [01:27:22.003] going to be people with long faces.
+- [01:27:24.005] "Sir, you didn't introduce me." I got so many people
+- [01:27:26.407] and we have a lot of the greatest people anywhere
+- [01:27:29.444] in the world.
+- [01:27:30.111] I know them all, so I won't continue because
+- [01:27:33.615] we'd be here all day.
+- [01:27:34.616] Børge Brende: Thank you, Mr. President.
+- [01:27:36.384] We also know that you're a deal maker, and then maybe
+- [01:27:40.555] coming back to Greenland and Ukraine.
+- [01:27:44.726] What kind of deal in the end do you see between the
+- [01:27:50.431] US and Denmark?
+- [01:27:51.966] Because I guess you see it now as a negotiation going
+- [01:27:57.038] on or --
+- [01:27:58.439] The President: Well, it's costing Denmark hundreds
+- [01:28:01.209] of millions a year to run it.
+- [01:28:02.944] And Denmark's a small country and wonderful
+- [01:28:04.946] people, but it's very expensive.
+- [01:28:08.516] It's a very big piece of ice.
+- [01:28:12.053] And it's very important.
+- [01:28:12.720] I mean, I don't want to repeat the speech, but
+- [01:28:14.055] it's very important that we use that for national
+- [01:28:20.028] and international security.
+- [01:28:22.463] That can create a power that will make it
+- [01:28:27.835] impossible for the bad guys to do anything
+- [01:28:30.872] against the perceived good ones.
+- [01:28:33.841] And it's a great block for Europe, just like, you
+- [01:28:36.144] know Denmark was supposed to spend hundreds of
+- [01:28:38.179] millions of dollars.
+- [01:28:39.047] They didn't spend the money.
+- [01:28:40.081] They didn't spend anything almost.
+- [01:28:42.650] And we'll see what happens.
+- [01:28:44.385] I just say this, NATO has treated the United States
+- [01:28:47.755] of America very unfairly.
+- [01:28:49.223] We never asked for anything.
+- [01:28:50.858] We never got anything.
+- [01:28:52.360] We actually took care of the needs of NATO for
+- [01:28:54.662] years and years, which I felt was always unfair.
+- [01:28:56.864] So I got NATO to pay, because they're rich
+- [01:28:59.067] countries.
+- [01:28:59.734] But I think it's time that NATO step up.
+- [01:29:03.271] We're helping them with Ukraine.
+- [01:29:05.373] Without us, I think Putin would've gone all the way.
+- [01:29:07.608] I think we have it.
+- [01:29:08.743] I think Putin, I think there could have been a
+- [01:29:10.344] World War III, if you want to know the truth.
+- [01:29:12.313] If Kamala was elected or Joe, any one of those
+- [01:29:16.484] thinkers, I think you could have ended up in
+- [01:29:17.819] World War III.
+- [01:29:18.486] And I will say Steve Witkoff has been dealing
+- [01:29:19.854] incredibly with, but we're not going to have World
+- [01:29:21.189] War III.
+- [01:29:21.856] We want to get it stopped.
+- [01:29:22.523] We're not going to have World War III.
+- [01:29:23.858] I think if I wasn't elected, I think that
+- [01:29:25.193] could have evolved into World War III.
+- [01:29:26.527] It was a very, very bad situation, and it still
+- [01:29:37.271] is, but it's not that kind of bad.
+- [01:29:39.340] It's bad because so many young people are being
+- [01:29:41.309] killed.
+- [01:29:41.976] Børge Brende: How close do you think there is on an
+- [01:29:45.279] agreement on Ukraine?
+- [01:29:46.514] I had the pleasure of speaking with Steve
+- [01:29:48.649] Witkoff and Jared Kushner yesterday.
+- [01:29:50.852] I know they're working hard on it.
+- [01:29:52.553] I know that they're also traveling now.
+- [01:29:56.023] Do you see this very close or still-
+- [01:29:58.359] The President: Well, I hate to say it, I thought
+- [01:29:59.994] that was going to be, so I settled eight wars plus,
+- [01:30:03.598] and I thought that was going to be one of my
+- [01:30:05.166] easier ones.
+- [01:30:05.833] Not the easiest.
+- [01:30:06.634] Some, I settled in a matter of hours because
+- [01:30:09.270] I'm good at that stuff.
+- [01:30:10.138] The United Nations should be doing this.
+- [01:30:13.241] I shouldn't be doing it, but it doesn't matter.
+- [01:30:15.076] It's got to get done, saving a lot of lives.
+- [01:30:16.844] We're saving millions of lives.
+- [01:30:18.045] With Ukraine, Russia, there's tremendous hatred
+- [01:30:23.584] between President Zelenskyy and President
+- [01:30:26.254] Putin.
+- [01:30:26.921] That's not good.
+- [01:30:27.688] That's not good for settlements.
+- [01:30:29.023] We know from dealing.
+- [01:30:30.525] There's abnormal hatred.
+- [01:30:33.327] With that being said, I think Russia wants to make
+- [01:30:35.730] a deal.
+- [01:30:36.397] I think Ukraine wants to make a deal and we're
+- [01:30:38.599] going to try getting a deal done.
+- [01:30:40.835] We're getting, I think, Steve, I think I can say
+- [01:30:44.038] that we're reasonably close.
+- [01:30:45.406] But what happens is oftentimes, we'll have a
+- [01:30:47.408] deal with Russia.
+- [01:30:48.276] Russia's set and President Zelenskyy will not do it.
+- [01:30:51.646] You saw that when he was in the Oval Office.
+- [01:30:53.614] I was not happy.
+- [01:30:54.415] And then we'll have President Zelenskyy wants
+- [01:30:57.218] to make a deal and Putin doesn't want to make the
+- [01:30:59.153] deal.
+- [01:30:59.821] It's a very difficult balance and it's big time.
+- [01:31:07.328] And it is, to use a word, it's a bloodbath.
+- [01:31:10.464] It's horrible, what's happening.
+- [01:31:12.300] It's a drone war.
+- [01:31:14.068] The drones are killing thousands of people a
+- [01:31:16.604] week, thousands.
+- [01:31:17.705] We have to get it stopped.
+- [01:31:19.473] So I believe they're at a point now.
+- [01:31:21.475] I'm going to meet with President Zelenskyy later
+- [01:31:23.644] today.
+- [01:31:24.779] I believe they're at a point now where they can
+- [01:31:28.182] come together and get a deal done.
+- [01:31:30.551] And if they don't, they're stupid.
+- [01:31:32.486] That goes for both of them.
+- [01:31:35.489] And I know they're not stupid, but if they don't
+- [01:31:37.992] get this done, they are stupid.
+- [01:31:40.294] So I don't want to insult anyone, but you got to get
+- [01:31:44.432] this deal done.
+- [01:31:45.266] Too many people are dying.
+- [01:31:46.434] It's not worth it.
+- [01:31:47.435] Børge Brende: President Sisi is sitting on the
+- [01:31:50.738] first row here.
+- [01:31:51.873] He spoke earlier today and also complimented you on
+- [01:31:55.710] the Gaza deal.
+- [01:31:56.944] I think there will be a signing tomorrow.
+- [01:31:59.180] Of course, there are different views on this,
+- [01:32:01.249] but how important do you think this signing is on
+- [01:32:05.453] the Board of Peace?
+- [01:32:06.621] And do you think this is going to sustain?
+- [01:32:09.357] Do you think we now will see Gaza reconstructed and
+- [01:32:14.662] the billions of US dollars invested?
+- [01:32:17.365] The President: I do.
+- [01:32:18.032] I mean, I think we have peace in the Middle East.
+- [01:32:20.134] There are some little situations like Hamas, and
+- [01:32:24.939] Hamas has agreed to give up their weapons.
+- [01:32:27.008] Now, they were born with a weapon in their hands, so
+- [01:32:29.210] it's not easy to do.
+- [01:32:30.211] When they were born, they were born with a rifle in
+- [01:32:32.079] their hand.
+- [01:32:33.080] It's not an easy thing for them, but that's what they
+- [01:32:35.950] agreed to.
+- [01:32:36.617] They've got to do it.
+- [01:32:37.618] And we're going to know, Jared, over the next two
+- [01:32:39.687] or three days, certainly over the next three weeks,
+- [01:32:43.224] whether or not they're going to do it.
+- [01:32:44.558] If they don't do it, they'll be blown away very
+- [01:32:46.661] quickly.
+- [01:32:47.328] They'll be blown away.
+- [01:32:48.162] We have 59 countries that are part of that whole
+- [01:32:52.233] peace deal.
+- [01:32:53.000] And some of those countries aren't even in
+- [01:32:55.403] -- They're near the Middle East, but they're not in
+- [01:32:57.004] the Middle East, traditionally.
+- [01:32:58.973] And they want to come in and take out Hamas.
+- [01:33:01.676] They want to come in.
+- [01:33:02.343] They want to do whatever they can.
+- [01:33:03.878] There's a problem with Hezbollah in Lebanon and
+- [01:33:07.848] we'll see what happens there, but that's a
+- [01:33:09.383] problem.
+- [01:33:10.051] But there are these little flames, but there's peace
+- [01:33:12.353] in the Middle East.
+- [01:33:13.020] Now, had we not gone in and knocked out with those
+- [01:33:15.923] big, beautiful, we just ordered 25 brand new ones,
+- [01:33:18.359] the latest and the greatest, the B2 bomber.
+- [01:33:21.162] Think of them.
+- [01:33:22.129] They went in there at 2:00 in the morning with no
+- [01:33:25.499] moon, no light, no nothing.
+- [01:33:26.934] And every single one of those massive bombs hit
+- [01:33:30.137] its target, 100,000 pound bombs, hit its target,
+- [01:33:32.974] every one of them.
+- [01:33:34.342] And then on top of it, from a submarine 300 miles
+- [01:33:36.978] away, we hit the sites with Tomahawks, which is
+- [01:33:40.314] an unbelievable weapon.
+- [01:33:41.782] So we did our job.
+- [01:33:44.051] If we didn't do that, you would have never had peace
+- [01:33:45.853] in the Middle East.
+- [01:33:47.121] And the countries like Saudi Arabia, UAE and
+- [01:33:51.058] Qatar could never have, and others, could never
+- [01:33:54.261] have signed anything because you would have had
+- [01:33:55.896] this dark cloud.
+- [01:33:56.731] And the dark cloud was Iran, with nuclear.
+- [01:33:59.467] Iran would have, if we didn't take them out, they
+- [01:34:01.369] would have had a nuclear weapon within two months.
+- [01:34:03.571] They were very close to having the nuclear weapon
+- [01:34:05.773] and we hit them hard and it was a total
+- [01:34:08.442] obliteration.
+- [01:34:10.978] They may try again, but they're going to have to
+- [01:34:12.580] try from a different area because that area was
+- [01:34:15.016] obliterated.
+- [01:34:16.350] Incredible thing we did, and because we did that,
+- [01:34:20.021] we were able to make peace.
+- [01:34:21.455] If we didn't do that, I would say, Jared and
+- [01:34:23.624] Steve, if we didn't do that, there was no chance
+- [01:34:26.060] of making peace because the countries I just named
+- [01:34:30.197] and other countries could have never signed off.
+- [01:34:31.866] They were afraid.
+- [01:34:33.134] They were afraid.
+- [01:34:35.903] We had a bully.
+- [01:34:36.837] The bully was Iran.
+- [01:34:38.205] The bully of the Middle East, they used to call it
+- [01:34:39.673] for years.
+- [01:34:40.841] They were the bully of the Middle East.
+- [01:34:42.176] They're not the bully of the Middle East anymore.
+- [01:34:43.978] Børge Brende: Mr. President, I know you
+- [01:34:47.982] even had to change a plane last night.
+- [01:34:51.018] So I guess you didn't have much sleep, but your
+- [01:34:54.455] energy is still there.
+- [01:34:56.557] I know you have several bilateral meetings.
+- [01:35:00.194] I know you're also hosting a reception.
+- [01:35:03.831] So thank you so much for coming back to Davos.
+- [01:35:08.969] Thank you so much.
+- [01:35:10.037] It's highly appreciated.
+- [01:35:11.472] The President: Well, thank you very much.
+- [01:35:12.807] Thank you, everybody, very much.
+- [01:35:14.341] (applause)

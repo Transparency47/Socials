@@ -1,0 +1,1157 @@
+<!-- source: https://www.youtube.com/watch?v=UsU3o9fvSmM -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: UsU3o9fvSmM -->
+<!-- date_published: 2025-04-28T13:24:55+00:00 -->
+<!-- date_accessed: 2026-06-02T02:51:22.576939+00:00 -->
+
+# Transcript: Press Secretary Karoline Leavitt and Tom Homan Brief Members of the Media, Apr. 28, 2025
+
+- [00:01.390] Ms. Leavitt: Good to see you bright and early
+- [00:02.610] on this Monday morning.
+- [00:04.330] As you know, this week marks the first 100 days
+- [00:07.650] of the Trump presidency
+- [00:09.550] and President Trump's first 100 days
+- [00:11.540] have undoubtedly been the most monumental and historic
+- [00:14.960] of any administration in American history.
+- [00:18.460] President Trump has already delivered
+- [00:20.310] on hundreds of promises he made to the American people,
+- [00:23.720] and we will continue to talk about all of them
+- [00:25.900] throughout this week.
+- [00:27.370] Tomorrow I will host a press briefing at this same time,
+- [00:30.840] bright and early again to highlight
+- [00:32.770] the Trump administration's economic accomplishments
+- [00:35.670] with our Treasury Secretary, Scott Besant.
+- [00:38.380] And tomorrow night,
+- [00:39.610] President Trump will travel to Michigan to discuss all
+- [00:42.400] that he has achieved on behalf of the American people.
+- [00:46.020] On Wednesday, the president will host an open press cabinet
+- [00:49.120] meeting where each cabinet member
+- [00:50.880] will discuss their success thus far
+- [00:52.620] and their plans for the future.
+- [00:55.040] Today we kick off 100-day week
+- [00:57.060] with a focus on the President's historic effort
+- [00:59.350] to secure our southern border.
+- [01:02.010] Later this afternoon, President Trump will sign
+- [01:04.180] an executive order on Law and Order,
+- [01:05.990] and another executive order on Sanctuary Cities.
+- [01:09.430] The first EO will strengthen
+- [01:10.890] and unleash America's law enforcement to pursue criminals
+- [01:14.160] and protect innocent citizens.
+- [01:16.760] The second EO is centered around protecting American communities
+- [01:19.900] from criminal aliens, and it will direct the Attorney
+- [01:22.510] General and Secretary of Homeland Security
+- [01:25.000] to publish a list of state and local jurisdictions
+- [01:28.330] that obstruct the enforcement of federal immigration laws.
+- [01:31.670] After these are signed, the president will have signed
+- [01:33.920] more than 140 executive orders
+- [01:36.380] already rapidly approaching the total numbers
+- [01:39.470] signed by the Biden administration
+- [01:41.510] over the course of four years in office.
+- [01:44.460] Speaking of Joe Biden, it was his awful open border policies
+- [01:48.330] that recklessly allowed more than 10 million illegal aliens
+- [01:51.450] to invade the United States over the past four years.
+- [01:54.740] Innocent Americans like Laken Reilly,
+- [01:57.120] Jocelyn Nangre, Rachel Morin,
+- [01:58.830] and so many others were viciously murdered
+- [02:01.080] at the hands of these illegal aliens
+- [02:03.300] as a result of Biden's dereliction of duty.
+- [02:06.430] That's why one of President Trump's central campaign
+- [02:08.310] promises
+- [02:09.580] was to secure the border and end this invasion.
+- [02:12.440] In just under 100 days, 99 now to be exact,
+- [02:16.360] the president has overwhelmingly delivered on that promise.
+- [02:19.610] America's borders are now secure because of President Trump.
+- [02:23.660] He has restored the rule of law, enforced our immigration laws,
+- [02:27.270] and defended America's sovereignty.
+- [02:29.560] The President immediately declared a national emergency
+- [02:31.970] on the southern border,
+- [02:33.190] deployed the US military and Border Patrol
+- [02:35.240] to repel the invasion
+- [02:36.930] and ended reckless catch-and-release policies.
+- [02:39.790] The results have been nothing short of extraordinary.
+- [02:43.030] Between President Trump's inauguration
+- [02:44.680] and April 1 of this month,
+- [02:46.560] only nine illegal aliens were released into the United States.
+- [02:50.090] A staggering 99 point 99% decrease
+- [02:54.400] from the more than 184,000 illegal aliens
+- [02:58.080] who were released into the country under Biden
+- [02:59.990] during the same period last year.
+- [03:02.280] The number of unaccompanied illegal alien children
+- [03:04.890] arriving at the border has also hit a record low.
+- [03:08.270] Total attempted illegal crossings
+- [03:09.950] at the southwest border hit a record low in February
+- [03:12.460] only to fall to another new record low again
+- [03:16.150] last month in March.
+- [03:17.720] Just listen to these incredible numbers.
+- [03:19.970] In March 2024, under Joe Biden,
+- [03:22.440] Border Patrol encountered approximately
+- [03:24.280] 140,000 illegal aliens at the southwest border.
+- [03:28.420] One year later in March 2025, under President Trump,
+- [03:31.910] Border Patrol encountered just over 7,000 illegal aliens
+- [03:35.390] at the southwest border.
+- [03:36.780] That's another 95% decrease from the prior year.
+- [03:40.750] The first piece of legislation
+- [03:42.310] President Trump signed into law was the Laken Riley Act,
+- [03:45.330] which requires illegal aliens arrested
+- [03:47.840] or charged with theft or violence to be detained.
+- [03:50.760] President Trump also reestablished the successful
+- [03:53.110] Remain In Mexico policy from his first term
+- [03:55.720] to ensure that aliens who arrive at our southern border
+- [03:58.140] and claim asylum are returned to Mexico
+- [04:00.600] to await their hearings
+- [04:02.020] instead of being allowed into our country while they wait.
+- [04:05.170] The president has also restarted construction
+- [04:07.370] of his signature advanced border wall.
+- [04:09.690] More than 85 miles of new border barrier
+- [04:12.480] are already in various stages of construction and planning.
+- [04:16.460] And Border Patrol in collaboration
+- [04:18.120] with the Department of Defense and the great state of Texas
+- [04:21.140] have deployed 75 additional miles of temporary barriers
+- [04:24.530] across the southern border.
+- [04:26.300] The Trump administration, as you know,
+- [04:27.750] has also ended the disastrous CBP1 app,
+- [04:30.440] which Joe Biden exploited to facilitate the migration
+- [04:33.160] of nearly 1 million illegal aliens into the country.
+- [04:36.880] The Department of Homeland Security has relaunched this
+- [04:39.170] as the CBP home map to provide illegal aliens
+- [04:41.930] in the US a straightforward way
+- [04:43.990] to declare their intent to voluntarily depart.
+- [04:47.020] For years, Joe Biden's weakness in open border policies
+- [04:49.820] allowed vicious cartels to functionally control
+- [04:52.890] through a campaign of terror, rape, and brutal force,
+- [04:55.960] nearly all illegal traffic across the southern border.
+- [04:59.020] President Trump has put a stop to this in record time.
+- [05:03.170] He designated these heinous cartels
+- [05:05.100] as foreign terrorist organizations
+- [05:07.070] and invoked the Alien Enemies Act
+- [05:08.660] to immediately apprehend, detain,
+- [05:10.630] and remove these massive threats
+- [05:12.010] who have flooded our country with deadly drugs,
+- [05:14.450] violent criminals in vicious gangs.
+- [05:16.810] The Trump administration is working 24/7
+- [05:19.850] to successfully arrest
+- [05:21.210] and deport these illegal criminals
+- [05:22.710] and foreign terrorists from our communities.
+- [05:25.330] We are in the beginning stages of carrying out
+- [05:27.300] the largest deportation campaign in American history.
+- [05:30.440] Over this past weekend,
+- [05:31.780] it was announced that through Operation Tidal Wave,
+- [05:34.420] a joint effort between ICE Miami and Florida
+- [05:36.880] law enforcement agencies, nearly 800 illegal aliens
+- [05:40.410] were arrested during the first four days alone.
+- [05:44.240] Among those arrested were a Colombian murderer,
+- [05:46.720] alleged MS13 and 18th Street gang members
+- [05:49.740] and a Russian with a red notice for manslaughter.
+- [05:53.480] And on the other side of the country,
+- [05:55.070] in the early Sunday morning hours, DOJ and DHS
+- [05:58.300] together launched a joint raid of an illegal alien
+- [06:00.990] underground nightclub
+- [06:02.410] used by Tren de Aragua in Colorado Springs, Colorado.
+- [06:06.040] DHS took more than 100 illegal aliens into custody,
+- [06:09.910] and many drugs and weapons were also seized.
+- [06:12.390] Operation Tidal Wave is a preview
+- [06:14.130] of what is to come around this country.
+- [06:16.580] Large-scale operations that employ our state
+- [06:19.130] and local enforcement partners
+- [06:20.590] to get criminal illegal aliens off our streets.
+- [06:24.080] As always, President Trump and our entire administration
+- [06:27.000] are grateful for the courageous law enforcement officers
+- [06:29.750] who are putting their lives on the line
+- [06:31.070] every single day to protect their fellow Americans
+- [06:33.530] and to keep our country safe.
+- [06:35.380] After four years of being vilified and hamstrung
+- [06:37.700] by the Biden administration, heroic ICE and CBP officers
+- [06:41.230] finally have a president who has their backs
+- [06:43.690] and is allowing them to do the jobs they signed up to do.
+- [06:46.590] There's no person who can attest to that more
+- [06:48.540] than our incredible borders are here at the White House,
+- [06:50.790] Tom Homan, who has dedicated his professional career
+- [06:53.680] to protecting our country and enforcing the law.
+- [06:56.770] I will let Tom, deliver some short remarks
+- [06:58.900] and then we'll open it up for questions today.
+- [07:00.610] Thanks for being here, Tom.
+- [07:01.810] Mr. Homan: Thank you. Just a few things.
+- [07:04.130] Look, I started in the border patrol in 1984.
+- [07:06.880] I've been at this for over 40 years.
+- [07:09.100] I worked for six presidents, starting with Ronald Reagan.
+- [07:12.850] Every president I ever worked
+- [07:14.150] for took border security seriously,
+- [07:15.790] because you can't have national security
+- [07:18.420] if you don't have strong border security.
+- [07:20.190] We've got to know who's coming in,
+- [07:21.530] what's coming in, where it's coming in,
+- [07:22.900] why it's coming in, right?
+- [07:25.340] Even President Obama and President Clinton
+- [07:27.410] took some steps to secure the border
+- [07:28.930] because they understood national security was important.
+- [07:31.400] Joe Biden was the first president
+- [07:33.120] in the history of this nation who came in the office
+- [07:35.800] and unsecured a border on purpose.
+- [07:39.400] That's just a fact.
+- [07:41.410] We handed the Biden administration
+- [07:42.890] after President Trump's first administration,
+- [07:45.660] we handed the Biden administration
+- [07:46.930] the most secure border in my lifetime,
+- [07:48.900] and he unsecured it on purpose.
+- [07:53.220] Now, President Trump and this administration here,
+- [07:55.970] the success is unprecedented.
+- [07:58.900] We beat Trump's first administration
+- [08:02.080] on border success.
+- [08:03.900] Border numbers are historic low. Today as I'm standing here,
+- [08:07.810] we are the most secure border in the history of this nation,
+- [08:12.180] and the numbers prove it.
+- [08:14.460] President Trump's policies are saving lives every day.
+- [08:18.700] There's been studies done that says 31% of women
+- [08:20.980] that make that journey through use of cartels
+- [08:22.670] get sexually assaulted.
+- [08:25.710] When President Trump has illegal immigration down 96%,
+- [08:28.610] when 96% less people are coming, how many women aren't being
+- [08:32.510] sexually assaulted by the cartels?
+- [08:34.810] How many children aren't dying making that journey?
+- [08:37.380] How many women and children
+- [08:38.700] aren't being sex trafficked into this nation?
+- [08:41.460] How many known suspected terrorists
+- [08:42.890] aren't making into this country?
+- [08:45.480] How many pounds of fentanyl isn't getting into this country
+- [08:48.180] to kill young Americans?
+- [08:51.670] How many women and children aren't sex trafficked?
+- [08:54.750] Under Joe Biden, sex trafficking was up 600%.
+- [08:57.940] We had 4,000 aliens dying making that journey.
+- [09:00.810] We had a quarter million Americans dead from Fentanyl
+- [09:03.210] that came across an open border.
+- [09:04.660] President Trump's policy saves lives every day.
+- [09:07.980] Even the border wall saves lives.
+- [09:10.430] The people want to hate on the border wall.
+- [09:11.980] Every place the border barrier has been built,
+- [09:14.300] illegal migrations decline, illegal drug flows decline.
+- [09:17.790] But you know what no one talks about?
+- [09:19.820] The border wall saves lives because the most vulnerable,
+- [09:22.620] the women and children can't get over that wall,
+- [09:24.930] which means they're going to a place where there's not a wall
+- [09:27.320] and what's waiting on them,
+- [09:28.610] the men and women the United States border patrol
+- [09:30.420] who will take care of those humanitarian needs.
+- [09:32.940] Their health needs are off the bat.
+- [09:35.640] We just rolled the numbers.
+- [09:36.900] Let me talk about a few numbers that are important to me.
+- [09:41.630] Under Biden administration,
+- [09:43.310] we averaged over 11,000 many days,
+- [09:45.770] over 12,000, some days
+- [09:47.830] 15,000 illegal entrance in the United States, 15,000.
+- [09:53.710] You know what the number was last 24 hours, 178.
+- [09:59.150] 15,000 to 178, unprecedented success.
+- [10:04.390] On average day in Biden administration,
+- [10:06.150] known got aways, people we knew crossed the border
+- [10:08.620] because we're on video, drone traffic or central traffic,
+- [10:12.370] cross the border weren't apprehended,
+- [10:14.930] weren't fingerprinted, weren't vetted.
+- [10:16.940] Average down to Joe Biden more than 1800 got aways.
+- [10:21.500] Yesterday, 38. 38, too many.
+- [10:26.120] We'll get that to zero, but we went from 1800 to 38.
+- [10:30.280] And finally, that was said earlier,
+- [10:33.490] under the first 100 days,
+- [10:34.860] it was actually January 20th to April 1st.
+- [10:39.200] Last year, 184,000 illegal aliens
+- [10:42.230] were released into the United States.
+- [10:45.350] Under this administration, 9.
+- [10:48.060] Four of them were material witnesses
+- [10:49.700] in a criminal investigation,
+- [10:50.930] we need him here to testify in a serious criminal trial.
+- [10:53.840] Four was extreme medical condition,
+- [10:55.700] we couldn't return them because they're in such bad shape,
+- [10:59.220] and one was humanitarian issue.
+- [11:01.630] This is unprecedented success.
+- [11:04.910] The border is secure, President Trump's saving lives.
+- [11:09.050] President Trump has proven no one
+- [11:10.940] does this better than President Trump.
+- [11:13.480] There is no equal, it's not even close.
+- [11:15.720] So God bless the men and women of the border patrol,
+- [11:18.520] God bless the men and women of ICE,
+- [11:20.440] who strap a gun to the hip every day,
+- [11:22.080] but on a Kevlar vest to not only secure our border
+- [11:25.120] and protect our national security,
+- [11:26.390] but the ICE agents in the interior,
+- [11:28.900] they're removing public safety threats
+- [11:30.360] and national security threats every day.
+- [11:33.110] While you're all sleeping at two,
+- [11:34.450] three o'clock in the morning,
+- [11:36.050] there are men and women out there enforcing law
+- [11:38.500] and make this country safe again.
+- [11:41.440] And we're going to keep doing.
+- [11:43.440] Its full speed ahead. So I'll leave it at that.
+- [11:45.810] Ms. Leavitt: Awesome. Thank you, Tom.
+- [11:47.570] And thanks for all your great efforts.
+- [11:49.210] We do want to open it up to questions
+- [11:50.650] if you have border related questions for Mr. Homan,
+- [11:52.570] and I'm also happy to take any non-border related questions.
+- [11:55.360] I'm happy to take border questions too,
+- [11:56.900] but Tom is here offering his time,
+- [11:58.900] so we encourage you to ask him questions.
+- [12:00.400] We'll start with our new media team today.
+- [12:01.930] As always, Rogan O'Hanley,
+- [12:03.980] former Hollywood entertainment lawyer,
+- [12:05.460] I didn't know that, Rogan, who got fed up
+- [12:07.340] with the far-left ideologies of California
+- [12:09.470] and now posts conservative political commentary online
+- [12:12.730] for his more than 7 million followers
+- [12:15.160] across all major platforms.
+- [12:16.900] He joins us today from the great state of Florida.
+- [12:19.360] Why don't you kick us off today, Rogan.
+- [12:20.980] The Press: Thank you, Karoline.
+- [12:22.460] In Trump's first 99 days, we've seen a coordinated assault
+- [12:25.650] on the rule of law by radical judges
+- [12:28.210] who are thwarting his agenda
+- [12:29.530] with an unprecedented number of national injunctions.
+- [12:32.890] These judges are providing more due process to violent MS-13
+- [12:36.090] and Tren de Aragua illegal aliens
+- [12:38.200] than they did for American citizens
+- [12:39.690] who peacefully protested on January 6th.
+- [12:42.320] As Stephen Miller has highlighted,
+- [12:43.560] it would be utterly ridiculous to have full trials
+- [12:45.620] and appeals for the more than 15 million illegal aliens
+- [12:48.880] that came across our border under Joe Biden.
+- [12:51.870] Many are now calling for Trump
+- [12:53.530] to circumvent these radical judges
+- [12:55.830] and consider suspending the writ of habeas corpus
+- [12:58.810] solely for these illegal aliens in accordance with the terms
+- [13:01.780] of Article I Section 9 of the United States Constitution,
+- [13:05.490] which explicitly allows for such a measure
+- [13:07.760] when there is a rebellion or invasion.
+- [13:10.840] There is strong precedent for this action
+- [13:12.610] being that it was exercised
+- [13:14.280] by three of our greatest presidents,
+- [13:16.150] Abraham Lincoln, Ulysses S.
+- [13:17.490] Grant, and Democrat's favorite president of all time, FDR.
+- [13:22.160] All three of which are not only celebrated by historians
+- [13:25.390] but are immortalized on our national currency
+- [13:27.680] with their faces on there.
+- [13:29.590] Furthermore, all three used it against American citizens,
+- [13:31.990] where in this instance we would only be using it
+- [13:33.630] against illegal aliens.
+- [13:35.470] I think almost every reasonable American would agree
+- [13:37.550] that 15 million illegal aliens coming across our border
+- [13:41.040] under Joe Biden counts as an invasion,
+- [13:43.640] especially since many, as you highlighted,
+- [13:45.540] are now robbing, assaulting, raping,
+- [13:48.000] and killing American citizens.
+- [13:50.580] Historic assaults on our republic
+- [13:52.490] require reciprocal action from our government.
+- [13:55.220] Can you please let us know
+- [13:56.570] if and when the Trump administration
+- [13:58.360] is planning to suspend the writ of habeas corpus
+- [14:01.070] to circumvent these radical judges
+- [14:02.610] who are infringing on his Article II powers
+- [14:05.170] and to start shipping out illegals en masse?
+- [14:07.940] Ms. Leavitt: I have not heard such discussions take place,
+- [14:10.450] but I can assure you that the President
+- [14:12.320] and the entire administration
+- [14:13.550] are certainly open to all legal and constitutional remedies
+- [14:17.180] to ensure we can continue with the promise
+- [14:19.680] of deporting illegal criminals from our nation's borders.
+- [14:22.370] And I also agree with the premise of your question,
+- [14:24.810] which doesn't happen in this room often,
+- [14:26.300] but I do agree with yours.
+- [14:27.910] It is absurd that the previous administration
+- [14:30.410] was allowed to allow 15 million,
+- [14:34.020] that we know about, illegal aliens into this country
+- [14:37.320] with very little pushback from our judicial branch.
+- [14:41.410] But this president is trying to simply
+- [14:43.580] enforce our nation's immigration laws
+- [14:45.390] and is facing roadblock after roadblock.
+- [14:47.980] So we're complying with court orders,
+- [14:49.920] but as Tom Homan has said every day,
+- [14:52.270] we're going to continue to forge ahead
+- [14:53.730] with this mass deportation campaign
+- [14:55.300] and the President is open to all remedies to do that.
+- [14:57.780] Thanks for being here today, Rogan.
+- [14:59.320] Mr. Homan: If I can also answer your question,
+- [15:01.220] as far as the judges,
+- [15:03.220] look, we just arrested a judge, Pam Bondi,
+- [15:06.470] for impeding ICE enforcement. I said from day one,
+- [15:12.140] you don't have to support ICE's operations.
+- [15:16.940] You can support sanctuary cities,
+- [15:18.340] if that's what you desire to do. Sanctuary cities can stand aside
+- [15:21.340] and watch ICE keep their community safe.
+- [15:23.990] Because any public official, whether your mayor,
+- [15:25.800] city councilman, or governor, their number one responsibility
+- [15:28.880] is protection of the communities.
+- [15:30.080] And ICE has been clear,
+- [15:31.330] we're targeting public safety threats
+- [15:32.900] and national security threats.
+- [15:34.270] I can't believe there's any elected official,
+- [15:36.000] and especially a judge,
+- [15:37.830] that doesn't believe we should be doing that
+- [15:39.510] and they should be helping us.
+- [15:41.090] But I said from day one, you can sit aside and watch.
+- [15:43.280] You can argue against us
+- [15:44.790] all as you want and protest all you want,
+- [15:46.720] but when you cross that line, I've said this a thousand times,
+- [15:50.060] when you cross that line to impedement or knowingly harbor
+- [15:53.400] and concealing an illegal alien from ICE,
+- [15:55.520] you will be prosecuted, judge or not.
+- [15:59.240] And as far as releasing so many people.
+- [16:00.980] You know why the Biden administration released
+- [16:03.020] millions of people in the United States?
+- [16:04.990] No one ever talks about it. I'll talk about it.
+- [16:06.890] Why did they release people
+- [16:08.580] into the interior of the United States
+- [16:10.660] rather than put them into an ICE bed?
+- [16:12.560] Why not put them in an empty ICE bed,
+- [16:14.080] $127 a night rather than in a hotel room
+- [16:16.650] at 500 bucks a night? They did it on purpose
+- [16:20.280] because when you put them in a ICE detention bed,
+- [16:22.180] they get a hearing in 35 days.
+- [16:24.850] Court records show nine out of 10 people claim asylum,
+- [16:27.330] get order removal, they're gone.
+- [16:28.970] But if you release them and put them a hotel room
+- [16:31.730] at 500 bucks a night,
+- [16:33.560] their hearings could be 5, 7, 9 years
+- [16:35.670] when you pull out all the appeals
+- [16:37.110] and what are they hoping for then?
+- [16:38.820] That another Democrat administration is in power.
+- [16:41.090] They can award amnesty to millions.
+- [16:44.420] This is about selling this country out
+- [16:45.990] for future political power. That's what it was.
+- [16:49.870] The law clearly says if you arrive at our border
+- [16:52.050] without proper documentation, you shall be detained.
+- [16:55.060] Not maybe, not think about it, shall.
+- [16:57.660] And that's what President Trump's doing.
+- [17:00.120] Catch and release is over.
+- [17:01.780] That's what the law says and that's what we've done.
+- [17:04.740] Ms. Leavitt: Mary, go ahead.
+- [17:06.030] The Press: A question on Abrego Garcia, if I can.
+- [17:08.320] The President recently said
+- [17:09.600] when it comes to facilitating his release,
+- [17:11.070] he's leaving that up to his lawyer.
+- [17:12.890] So just to be clear, have there been any negotiations
+- [17:16.320] between the US and El Salvador over his release
+- [17:18.370] or facilitating his release?
+- [17:19.790] Ms. Leavitt: Look, I will tell you what the president
+- [17:21.900] of El Salvador told all of you in the Oval Office.
+- [17:24.270] El Salvador does not intend to smuggle a designated
+- [17:27.310] foreign terrorist back into the United States.
+- [17:29.390] He is an El Salvadorian national,
+- [17:31.930] that is his home country. That is where he belongs.
+- [17:34.410] And the administration intends to comply
+- [17:38.790] with what President Bukele said of El Salvador.
+- [17:41.050] He does not intend to send that individual back.
+- [17:43.030] The Press: So that's a no. There's been no talks.
+- [17:44.820] Ms. Leavitt: What I have told you
+- [17:46.020] is that the president of El Salvador
+- [17:47.740] has made this quite clear.
+- [17:49.080] Kate.
+- [17:50.290] The Press: Karoline, can you tell us more about the meeting
+- [17:51.910] between President Trump and President Zelensky
+- [17:53.790] over the weekend?
+- [17:55.020] Did that meeting change anything?
+- [17:56.290] Did Trump leave that meeting thinking any differently
+- [17:58.560] about negotiations and next steps on this?
+- [18:00.940] Ms. Leavitt: Look, the president talked about this
+- [18:03.020] after the meeting himself yesterday
+- [18:04.730] when he took questions from reporters on Air Force One.
+- [18:07.780] He thinks that he is increasingly frustrated
+- [18:10.680] with leaders of both countries.
+- [18:12.290] He wants to see a permanent ceasefire.
+- [18:14.320] I understand Vladimir Putin, this morning,
+- [18:16.610] offered a temporary ceasefire. The president has made it clear
+- [18:19.210] he wants to see a permanent ceasefire.
+- [18:21.820] First, to stop the killing, stop the bloodshed.
+- [18:24.920] And while he remains optimistic, he can strike a deal.
+- [18:28.310] He's also being realistic, as well.
+- [18:31.050] And both leaders need to come to the table
+- [18:33.600] to negotiate their way out of this.
+- [18:34.950] And I do think that the president meeting
+- [18:36.430] with President Zelensky
+- [18:37.700] shows that he is exuding a lot of effort and time into this
+- [18:40.740] because he wants to be a peacemaker president,
+- [18:42.550] which he was in his first term. He intends to do that again.
+- [18:45.380] And this is an incredibly difficult situation and conflict
+- [18:49.130] that President Trump inherited from President Biden
+- [18:52.160] who allowed this war to start in the first place.
+- [18:54.070] But he's focused on solving this problem.
+- [18:56.090] Does anyone have border questions? Sure.
+- [18:59.560] The Press: Thank you, Karoline.
+- [19:00.990] If border crossings are at a record low,
+- [19:04.160] why should it still be considered an emergency?
+- [19:10.960] Mr. Homan: It is because of what has happened
+- [19:14.340] on the last administration.
+- [19:16.620] We got to ensure that not one ounce of fentanyl
+- [19:18.580] comes across the [inaudible 00:19:19] that kill Americans.
+- [19:20.570] The President has declared the cartels of Mexico
+- [19:23.560] a terrorist organization along with MS-13, TDA.
+- [19:26.340] They killed more Americans than every terrorist organization
+- [19:30.220] in the world combined.
+- [19:31.990] It's an emergency until we shut it down,
+- [19:33.790] it's an emergency til the cartels
+- [19:35.280] are wiped off the face of this earth.
+- [19:37.920] President Trump's committed to saving every life.
+- [19:40.410] Now, I just mentioned got-aways, 38 yesterday.
+- [19:44.280] Who are the got-aways? Where do they come from?
+- [19:49.150] We had over 2 million got-aways
+- [19:50.490] under the Joe Biden's administration.
+- [19:51.820] Why did 2 million people pay more to get away?
+- [19:54.900] Under Biden's administration,
+- [19:56.200] you pay a cartel this amount of money to cross the border.
+- [19:59.660] Cartel's job ends at the border.
+- [20:01.860] Turn yourself in to a green uniform,
+- [20:03.980] get released in 24 hours.
+- [20:05.830] Get a free airline ticket to the city of your choice.
+- [20:08.420] Get a free hotel room, get three meals a day,
+- [20:11.360] get free medical care,
+- [20:12.840] get work authorization in 90, 120 days,
+- [20:15.200] which is the real reason they came here.
+- [20:16.980] Why did 2 million people pay more to get away?
+- [20:22.340] Because they didn't want to be vetted.
+- [20:24.090] They didn't want to be fingerprinted.
+- [20:26.470] We've arrested over 400 people on the terrorist watch list
+- [20:28.660] coming across the southern border in four years.
+- [20:33.080] How many came from countries sponsoring terrorism?
+- [20:34.980] Do you think it's zero? Then you're ignorant.
+- [20:40.220] This is the biggest national security failure
+- [20:42.020] this country's ever seen.
+- [20:43.220] This is the border emergency until we end it, end all of it.
+- [20:46.390] We're making good strides.
+- [20:47.680] Right now, it's still emergency until we shut it down.
+- [20:50.240] Ms. Leavitt: Go ahead.
+- [20:51.470] The Press: This is a question for Mr. Homan.
+- [20:53.700] Late last week, there were three U.S citizen children
+- [20:56.490] who were removed with their mothers
+- [20:58.410] who were in the United States illegally.
+- [21:02.310] A federal judge in Louisiana who was appointed by President Trump
+- [21:05.760] said that he was concerned that there was
+- [21:07.380] "no meaningful process".
+- [21:09.630] Are you concerned that due process,
+- [21:11.250] at least for the U.S. citizen children is being flouted
+- [21:14.320] and that the speed at which the enforcement is being done
+- [21:18.640] could lead to errors,
+- [21:20.550] as was the case in the Kilmar Abrego Garcia case?
+- [21:22.930] And then also, if you could give an update
+- [21:24.520] on the deportation numbers under this administration
+- [21:26.810] and whether you're pleased with them.
+- [21:28.610] Mr. Homan: First of all,
+- [21:29.910] I don't accept the term error in Abrego-Gracia.
+- [21:33.750] There is an oversight.
+- [21:35.120] There was a withholding order, but things have changed.
+- [21:38.330] The facts around the withholding order has changed.
+- [21:40.230] He's now a terrorist,
+- [21:41.500] which means the withholding order's set aside,
+- [21:43.360] and the gang he was fearing from being removed
+- [21:45.060] to El Salvador no longer exists.
+- [21:46.900] So the facts around that case are totally different.
+- [21:48.790] I'll let the lawyers litigate that.
+- [21:50.510] But as far as the [inaudible 00:21:52]
+- [21:51.860] kids, I'd said from day one that
+- [21:54.880] if you enter this country illegally, it's a crime.
+- [21:56.980] If you remain in this country illegally
+- [21:58.700] and you ignore a judge's order about deporting,
+- [22:02.770] if you choose to have a U.S. citizen child
+- [22:04.730] knowing you're in this country illegally,
+- [22:06.220] you put yourself in that position,
+- [22:08.290] you put your family in that position.
+- [22:10.520] What we did is remove children with their mothers
+- [22:13.030] who requested the children to depart with them.
+- [22:15.120] This was a parental decision. Parenting 101.
+- [22:19.590] The mothers made that choice. And I tell you what,
+- [22:21.550] if we didn't do it, the story today would be
+- [22:23.980] Trump administration separating families again.
+- [22:26.100] No, we're keeping families together.
+- [22:28.250] So when a parent says, I want my two-year-old baby
+- [22:31.660] to go with me, we made that happen.
+- [22:33.870] They weren't deported. We don't deport U.S. citizens.
+- [22:36.310] The parents made that decision,
+- [22:37.510] not the United States government.
+- [22:39.090] But I don't hear any questions about Laken Riley had a mother.
+- [22:43.320] She's never going to see her child again.
+- [22:47.210] Rachel Moran, she had five children.
+- [22:49.870] Those children are never going to see the mom again.
+- [22:52.670] This administration is doing the right thing.
+- [22:54.620] Every public safety threat we arrest from this country
+- [22:56.730] and remove them, this country is much safer.
+- [22:58.510] So parents will make a decision what happens to their child.
+- [23:01.080] Having a U.S. citizen child
+- [23:04.450] does not make you immune from our laws.
+- [23:06.190] If that's the message we send the entire world;
+- [23:08.250] enter the country illegally,
+- [23:09.530] it's a crime, don't worry about it.
+- [23:11.430] Get order removed by an immigration judge,
+- [23:13.640] don't worry about it. No one's looking for you.
+- [23:15.550] And have a U.S. citizen child and you're immune from our laws.
+- [23:19.370] You're never going to fix the border.
+- [23:21.120] People will keep putting themselves in harm's way.
+- [23:23.070] More women would die,
+- [23:24.440] more children would die crossing this border.
+- [23:26.500] We got to secure border by enforcement laws.
+- [23:28.140] We're not making this up.
+- [23:29.340] We're enforcing laws under statute enacted by Congress
+- [23:31.240] and it's the right thing to do.
+- [23:32.480] The Press: Can you give an update
+- [23:33.720] on the deportation numbers on this administration?
+- [23:35.030] The Press: Mr. Homan-
+- [23:36.250] Ms. Leavitt: What are you asking for?
+- [23:37.470] We just provided the numbers.
+- [23:38.690] The Press: The number of deportations that have occurred
+- [23:40.270] under this administration,
+- [23:41.550] whether you're pleased with that.
+- [23:45.590] Mr. Homan: Last number I got was 139,000 deportations.
+- [23:49.200] Am I happy with the numbers?
+- [23:50.430] Numbers are good, especially if you look at the ICE numbers.
+- [23:54.280] The ICE arrest removals are far beyond Biden.
+- [23:57.640] But I read in the media,
+- [23:59.080] the deportations behind Biden administration.
+- [24:01.540] Well, why? Because they counted border removals.
+- [24:04.510] We don't have 10.5 million people crossing the border.
+- [24:07.570] We don't have border removals.
+- [24:09.710] So Joe Biden could have deported 5% of his encounters and numbers
+- [24:14.400] will still be higher than us on the border removals,
+- [24:16.900] because we have a secure border,
+- [24:18.390] the most secure border in the history of this nation.
+- [24:20.610] Compare apples to apples, ICE arrests and deportations
+- [24:23.560] are far more than Joe Biden.
+- [24:25.810] Ms. Leavitt: That's right. Sure. Go ahead.
+- [24:29.060] The Press: Mr. Homan, talking about the border wall,
+- [24:30.800] can you give us an update
+- [24:32.040] as far as how many miles are being built to date?
+- [24:35.890] And is Mexico paying for it as the President said
+- [24:39.090] they were going to?
+- [24:41.100] Ms. Leavitt: Well, first of all, I'll answer that question,
+- [24:42.730] because I already answered it in my opening remarks.
+- [24:44.780] To date, since January 1st,
+- [24:46.840] there's been more than 85 miles of new border wall construction
+- [24:49.930] in various stages of that construction and planning.
+- [24:53.250] The President has made it clear to Congress
+- [24:55.430] that we want to see more funding,
+- [24:58.390] for not just border wall construction,
+- [25:00.620] but also to support our ICE agents
+- [25:02.640] and our border patrol agents
+- [25:04.000] who are on the ground facilitating
+- [25:05.870] with this mass deportation effort.
+- [25:07.250] The Press: So he's clear that Mexico
+- [25:08.450] is not going to pay for it? Is that what you're saying?
+- [25:10.790] Mr. Homan: Let's address that.
+- [25:12.290] Trump said Mexico will pay for the wall.
+- [25:14.320] They have been in a round about way have they not?
+- [25:17.060] Putting 10,000 military on the north and southern border,
+- [25:19.690] taking the action they did remain in Mexico.
+- [25:21.530] They didn't have to do that. They're doing it.
+- [25:23.240] Putting military on the southern border.
+- [25:24.560] Have moved illegal immigration to a record low.
+- [25:27.670] We're saving millions of dollars every day on detention,
+- [25:31.780] transportation, removal proceedings.
+- [25:34.470] We've more than made up for the cost of that wall
+- [25:36.780] because the actions of Mexico.
+- [25:38.280] So is Mexico helping build that wall?
+- [25:39.670] Yeah, because we're saving so much money,
+- [25:41.900] millions of dollars a day
+- [25:44.000] that we can afford to build that wall.
+- [25:45.330] So actually, yes, they're helping to build the wall.
+- [25:47.710] Ms. Leavitt: Jon.
+- [25:48.990] The Press: Thanks a lot, Karoline.
+- [25:50.220] Mr. Homan, a question for you.
+- [25:51.610] You're the border czar, can you give an estimate
+- [25:54.440] as to how many individuals are in the United States illegally?
+- [25:58.420] That's number one.
+- [25:59.680] And I'm sure you're very familiar
+- [26:01.160] with that number, an estimate.
+- [26:02.750] And the second question is, I have a list
+- [26:05.280] that the White House put out of individuals,
+- [26:08.050] 100 ICE arrests
+- [26:09.390] since the beginning of the President's term.
+- [26:11.630] And the people are arrested for various very serious crimes.
+- [26:16.300] First degree murder, convicted of rape,
+- [26:18.980] convicted of murder and aggravated burglary,
+- [26:22.660] sexual assault of a child.
+- [26:24.650] How many of the individuals that are in the United States
+- [26:28.280] illegally are people like this, really bad people?
+- [26:33.520] Mr. Homan: Well, first of all, how many illegal aliens
+- [26:35.530] I think in the United States? At least 20 million here.
+- [26:37.930] So where'd you come up with that number?
+- [26:39.420] We've been speaking about 12 million for 20 years.
+- [26:42.340] We know we got 10.5 that we know of came to the border.
+- [26:45.160] How many don't we know of?
+- [26:46.850] I talked about known got aways at 2 million.
+- [26:48.820] How many unknown got aways we have?
+- [26:50.590] Between the Big Bend sector in Texas
+- [26:52.250] where there's no technology, how many?
+- [26:54.460] 1000 people a day could cross through there, we wouldn't know.
+- [26:57.690] We would know now.
+- [26:59.780] So I would get, venture over 20 million.
+- [27:01.840] But your question is, last count we got,
+- [27:05.240] last I looked, there was about 700,000 illegal aliens
+- [27:08.190] with criminal charges walking the streets of this country.
+- [27:11.460] 700,000. And that's what we're looking for now.
+- [27:14.830] That's what we're prioritizing.
+- [27:16.510] Them and national security threats.
+- [27:18.950] Ms. Leavitt: We'll go to the back row.
+- [27:20.280] The Press: Thanks, Karoline. Ms. Leavitt: Yes.
+- [27:21.500] The Press: For Mr. Homan, I'm Taylor with Spectrum News.
+- [27:23.570] We have a station up in Rochester, New York.
+- [27:25.560] It was reported you're visiting there tomorrow.
+- [27:27.680] Can you talk a bit about the purpose of your trip?
+- [27:29.630] I know the Trump administration is suing the city
+- [27:32.310] over its sanctuary city policies.
+- [27:33.900] How the executive order Karoline alluded to ties into it?
+- [27:37.300] And what your message is for communities
+- [27:39.020] and community leaders who say,
+- [27:40.920] "We're able to establish our own rules here.
+- [27:43.170] We're worried about this input from the federal level."
+- [27:46.020] Can you talk a bit about that?
+- [27:47.810] Mr. Homan: Well, same thing I talked about earlier.
+- [27:50.620] I don't think any elected mayor, any elected governor,
+- [27:53.570] should want public safety threats,
+- [27:56.860] those illegally in the United States, public safety threats
+- [27:59.380] walking through the community. And what happened to Rochester,
+- [28:03.690] HSI agent called for emergency assistance.
+- [28:08.500] Officers of Rochester PD responded to a call
+- [28:11.560] from emergency assistance
+- [28:12.810] from a federal law enforcement officer.
+- [28:14.440] From a federal law enforcement officer.
+- [28:16.710] They responded, then they got disciplined.
+- [28:21.280] I don't think anybody can come up with one instance
+- [28:24.080] where an ICE agent or border patrol agent
+- [28:25.700] didn't respond to emergency call from assistance
+- [28:27.950] from any law enforcement agency. Cops need to help cops,
+- [28:32.970] especially in the emergency situation.
+- [28:34.750] But they got disciplined.
+- [28:36.240] And I met those officers down in Nashville soon after that.
+- [28:39.050] I think it was a couple days after it.
+- [28:40.540] And I told them I stand with them.
+- [28:42.040] They did the right thing.
+- [28:44.670] Law enforcement responding to emergency assistance
+- [28:47.090] from law enforcement.
+- [28:49.470] So I'm going up there to support the men
+- [28:51.060] and women of law enforcement.
+- [28:52.300] The men and women who carry that badge and gun every day.
+- [28:54.790] They're working the streets at 2 A.M.
+- [28:56.250] while we're all sleeping.
+- [28:57.450] I'm going to give them my support,
+- [28:58.740] and they just announced a lawsuit?
+- [28:59.980] And that's one of many.
+- [29:01.230] A sanctuary city is going to be suing this administration
+- [29:03.580] for flouting immigration law.
+- [29:05.420] I mean, the law is clear and they're violating it.
+- [29:09.470] And this administration's going to take actions.
+- [29:11.200] I'm going up there to show my support of men
+- [29:12.840] and women in law enforcement. I started as a cop.
+- [29:15.380] And the community, I'm showing support for them.
+- [29:17.360] Because the community wants their police officer
+- [29:19.120] to be officers too.
+- [29:20.590] The communities don't want public safety threats
+- [29:22.630] walking around their communities either.
+- [29:24.450] And that's what it's all about, and that's why I'm going.
+- [29:26.320] Ms. Leavitt: Okay. Sure.
+- [29:27.550] The Press: Thanks, Karoline.
+- [29:29.200] Mr. Homan, how close are you to housing migrants
+- [29:33.810] at US DOD facilities like Fort Bliss in Texas?
+- [29:40.590] Mr. Homan: Well, we're already housing at Guantanamo.
+- [29:44.050] Fort Bliss is being ramped up, so in the very near future.
+- [29:47.960] I don't have a timetable because things need to be done.
+- [29:50.580] Construction needs to be done.
+- [29:52.190] We're making sure the facilities are ready to accept.
+- [29:54.260] Make sure facilities are able to care for the people
+- [29:57.190] that are going to be detained.
+- [29:58.610] So I don't know the timeline right now.
+- [30:01.130] It changes every day because of various issues,
+- [30:03.190] but we're working on it.
+- [30:04.400] The Press: Are you intending to hold families there,
+- [30:06.910] including families with American citizen children?
+- [30:09.590] Mr. Homan: Family residential centers are for families.
+- [30:12.400] They're not jails,
+- [30:13.780] they're an open-air campus built for families.
+- [30:15.860] Which means they have child psychologists,
+- [30:17.420] they have pediatricians.
+- [30:18.950] And why family residential centers?
+- [30:20.820] Because we want to make sure that child is with a parent.
+- [30:25.820] Unlike the last administration who stopped DNA testing.
+- [30:30.030] Who many investigations of children being smuggled
+- [30:33.170] in the country with some that wasn't related to them,
+- [30:35.170] claiming to be a parent.
+- [30:36.500] So we'll make sure children are with parents.
+- [30:39.150] We're going to make sure that's actually a family,
+- [30:40.910] and that child ain't being trafficked.
+- [30:42.480] That's the main reason.
+- [30:43.800] The Press: Question. Ms. Leavitt: Go ahead.
+- [30:45.040] The Press: Regarding the executive order
+- [30:46.680] on sanctuary cities,
+- [30:48.160] is the administration planning to pursue
+- [30:50.460] any more investigations or prosecutions,
+- [30:52.500] like was done against the judge in Wisconsin,
+- [30:55.210] against local officials?
+- [30:57.730] Ms. Leavitt: Well, we'd have to defer you
+- [30:59.100] to the Department of Justice, obviously,
+- [31:00.610] for specific prosecutions or cases against individuals.
+- [31:04.030] But as I said in my remarks,
+- [31:05.960] the Executive Order the President will sign later
+- [31:07.690] this afternoon does direct the Attorney General
+- [31:10.610] and also Kristi Noem,
+- [31:12.290] our great Secretary of Homeland Security,
+- [31:14.290] to provide a list of sanctuary cities in which local officials
+- [31:19.410] are not complying with this federal order,
+- [31:21.990] and are not complying with federal immigration laws.
+- [31:24.980] It's quite simple. Obey the law, respect the law,
+- [31:28.300] and don't obstruct federal immigration officials
+- [31:30.870] and law enforcement officials
+- [31:32.710] when they are simply trying to remove public safety threats
+- [31:36.060] from our nation's communities.
+- [31:37.760] The American public don't want illegal alien criminals
+- [31:39.860] in their communities.
+- [31:41.070] They made that quite clear on November 5th.
+- [31:43.310] And this administration is determined
+- [31:44.910] to enforce our nation's immigration laws
+- [31:47.460] and we're happy to provide the text of that executive order.
+- [31:50.040] And as I said, the President will be signing it
+- [31:51.580] later this afternoon. Sure.
+- [31:54.070] The Press: Excuse me.
+- [31:55.340] I want to talk about farm workers.
+- [31:56.580] The President said earlier this month
+- [31:57.970] that there could be leniency for some undocumented farm workers.
+- [32:01.270] I'm wondering, where do things stand with that?
+- [32:02.900] And I'm also wondering,
+- [32:04.170] does that at all undermine his message on immigration?
+- [32:06.560] That it's okay for some undocumented people
+- [32:08.600] to be in the US but maybe not others?
+- [32:10.150] Ms. Leavitt: So the President was referring to our H-1B
+- [32:12.690] and H-1A visa programs,
+- [32:14.800] and there have been no final decisions on that at all.
+- [32:17.270] But the President, I think what he was intended to speak about,
+- [32:19.860] what he was speaking about,
+- [32:21.480] is ensuring that we have a clean legal immigration system
+- [32:25.300] that is being respected and obeyed.
+- [32:28.170] And the mass amount of illegal immigration
+- [32:30.440] that we've seen over the past four years
+- [32:32.090] in our country completely undermines
+- [32:34.140] our legal immigration system.
+- [32:35.940] Those seeking citizenship, but also those coming here
+- [32:38.660] on a visa to legally and lawfully work.
+- [32:41.170] And the President wants to make sure
+- [32:42.710] that those programs are respected. Reagan.
+- [32:46.310] The Press: Thanks, Karoline. My question is for Tom.
+- [32:48.590] Tom, Reagan Reese with the Daily Caller.
+- [32:51.320] Over the weekend ICE arrested two illegal immigrants
+- [32:53.580] for allegedly stealing Secretary Noem's purse over the weekend.
+- [32:56.910] What can you tell us about these individuals' immigration history
+- [32:59.700] as well as their criminal history?
+- [33:04.160] Mr. Homan: I don't have the criminal history,
+- [33:05.930] but I know the one that stole the purse
+- [33:07.700] is supposedly in the country legally.
+- [33:09.900] But picked the wrong person to steal a purse from.
+- [33:13.290] I mean, Secretary Noem is a strong, strong Secretary.
+- [33:16.510] I know I've been talking about the success of the men
+- [33:18.270] and women of the Border patrol and ICE,
+- [33:20.130] but under her strong leadership, she's a game changer.
+- [33:23.680] So I'm happy to work with it, despite the media I've read
+- [33:26.500] that me and Kristi Noem have differences?
+- [33:28.620] Me and Kristi Noem are attached at the hip.
+- [33:30.050] There's no daylight between us.
+- [33:31.880] We're both going to push the President's agenda.
+- [33:34.890] She's a strong Secretary and I'm glad she's in here.
+- [33:37.700] But again, that illegal alien?
+- [33:41.010] Picked the wrong person to steal a purse from, I'm telling you.
+- [33:42.990] Ms. Leavitt: Wasn't a good decision.
+- [33:44.190] Mary Margaret, go ahead.
+- [33:45.420] The Press: Thank you, Karoline. I have two questions,
+- [33:46.850] one for Mr. Homan, one for you,
+- [33:48.270] on the White House Correspondents dinner.
+- [33:50.170] I'd like to start with you though, Tom Homan.
+- [33:52.300] This list has a very high number of sexual assaults on a child.
+- [33:56.620] Can you comment on that,
+- [33:57.880] and why there's so many crimes against children
+- [34:00.470] committed by illegals in this country?
+- [34:04.290] Mr. Homan: I don't know why, it's sick.
+- [34:07.430] It's the worst crime in the world
+- [34:09.250] when you sexually assault a child.
+- [34:10.540] I mean, the most innocent of us all.
+- [34:11.810] But that's why I made a statement that one time
+- [34:14.770] I was going to go to Boston, bring hell with me,
+- [34:17.050] and the media went crazy at Tom Homan.
+- [34:18.700] Said he was going to go Boston, bring hell with him.
+- [34:20.890] I was going to bring hell to illegal aliens
+- [34:22.550] that rape children.
+- [34:24.420] There's not more of a heinous crime.
+- [34:26.460] And as you can see, the amount of child rapists
+- [34:28.730] we've arrested under this administration,
+- [34:31.740] that could have been arrested under the Biden administration,
+- [34:33.880] they were out there. They had their final orders.
+- [34:35.450] They were out there.
+- [34:36.690] But they didn't go look for them.
+- [34:38.680] They were too busy releasing millions of illegal aliens
+- [34:41.150] in this country.
+- [34:42.350] And the numbers prove it.
+- [34:44.040] The removal numbers of criminals was the lowest.
+- [34:47.520] ICE had the lowest number of removals
+- [34:48.880] in the history of ICE under Joe. At the same time,
+- [34:51.630] he had historic illegal immigration on the border,
+- [34:54.520] ICE had the lowest numbers in the history of the agency.
+- [34:57.960] That shows the difference between two administrations.
+- [35:00.000] We're looking for every one of them.
+- [35:01.420] People want to know, okay,
+- [35:02.650] am I going to retire for the third time?
+- [35:04.910] I'll retire when every public safety threat,
+- [35:07.870] national security threat, child rapists,
+- [35:10.120] eradicate from this country. That's when I'll rest.
+- [35:12.390] The Press: Thank you so much. And then Karoline, really quick.
+- [35:14.900] Alex Thompson said at the White House Correspondents dinner,
+- [35:17.240] and I'm going to read his quote,
+- [35:18.920] "President Biden's decline and its cover-up
+- [35:20.760] by the people around him is a reminder that every White House,
+- [35:23.550] regardless of the party, is capable of deception.
+- [35:26.760] We, myself included, missed a lot of this story,
+- [35:28.820] and some people trust us less because of it."
+- [35:31.490] Can you comment on those remarks,
+- [35:32.870] and whether you agree with that assessment?
+- [35:34.890] Ms. Leavitt: I do agree with that assessment
+- [35:36.510] from Alex Thompson,
+- [35:37.780] who I understand won an award for writing a story months,
+- [35:42.030] and perhaps years, after the American people
+- [35:44.310] already knew that story to be true.
+- [35:46.540] Millions of Americans watched our mentally incompetent
+- [35:49.140] President struggle with his day-to-day duties
+- [35:51.360] of this office.
+- [35:52.620] We watched our country be ran into the ground as a result.
+- [35:55.510] And nobody in the media wanted to write about
+- [35:58.230] that, talk about it.
+- [35:59.460] There were many reporters, I will say,
+- [36:02.990] right-leaning reporters who did talk about that,
+- [36:05.790] who didn't get awards, didn't get coverage,
+- [36:07.630] in fact, they were lambasted for their coverage
+- [36:10.270] and I remember being on President Trump's campaign
+- [36:12.920] talking about Joe Biden's clear mental incompetence
+- [36:16.370] and being accused by people in this room
+- [36:18.600] of manufacturing deep fake videos,
+- [36:21.230] trying to persuade the public into not believing what they saw
+- [36:25.790] with their own eyes for many years,
+- [36:27.620] and I think it's about time the legacy media finally admits
+- [36:30.690] that was one of the greatest cover-ups and scandals
+- [36:33.270] that ever took place in American history
+- [36:34.860] and certainly it did contribute to the decline
+- [36:37.580] in the trust that Americans have for the legacy media.
+- [36:41.690] Peter, which by the way is why we've made many changes
+- [36:43.750] to this briefing room in this White House.
+- [36:45.140] It's long overdue. Peter, go ahead.
+- [36:46.920] The Press: Thank you. A few things.
+- [36:48.570] You guys arrested a Milwaukee County circuit
+- [36:51.360] judge for allegedly helping illegal immigrants get away.
+- [36:56.050] As you guys look at other judges,
+- [36:58.130] would you ever arrest somebody higher up
+- [37:00.460] on the judicial food chain like a federal judge
+- [37:03.450] or even a Supreme Court Justice?
+- [37:05.860] Ms. Leavitt: That's a hypothetical question.
+- [37:07.170] Again, I defer you to the Department of Justice
+- [37:09.060] for individuals that they are looking at or individual cases,
+- [37:12.740] but let's be clear about what this judge did.
+- [37:14.940] She obstructed federal law enforcement
+- [37:17.010] who were looking for an illegal alien in her courthouse.
+- [37:20.160] She showed that illegal alien the door
+- [37:21.860] to evade law enforcement officials.
+- [37:24.050] That is a clear-cut case of obstruction.
+- [37:26.730] You don't have to be a lawyer to understand that.
+- [37:28.800] And anyone who is breaking the law
+- [37:30.560] or obstructing federal law enforcement officials
+- [37:33.110] from doing their jobs is putting ourselves
+- [37:36.130] at risk of being prosecuted, absolutely.
+- [37:37.860] The Press: You guys have at least
+- [37:39.060] 18 written trade proposals.
+- [37:41.410] We still don't know who they are from or what they contain.
+- [37:46.830] What is the holdup with that?
+- [37:48.070] Ms. Leavitt: There isn't a holdup.
+- [37:49.440] We're working around the clock.
+- [37:50.830] The trade team is working all day.
+- [37:52.770] I was on the phone late last night with Secretary Lutnick.
+- [37:55.680] I was on the phone this weekend as well with Secretary Bessent,
+- [37:58.710] the entire team is working 24/7 to get these trade deals done
+- [38:02.680] and I think you'll be hearing more about them this week.
+- [38:05.370] I don't want to get ahead of the trade team
+- [38:06.890] or the President in announcing potential deals,
+- [38:10.030] but certainly I can assure the American public
+- [38:12.470] that this administration is full speed ahead
+- [38:15.290] in cutting good and fair trade deals
+- [38:17.570] on behalf of the American worker.
+- [38:18.870] The Press: And one more.
+- [38:20.090] After the President's Truth Social post,
+- [38:21.810] the Browns finally took Shedeur Sanders.
+- [38:25.990] Does the President think he deserves credit for Sanders
+- [38:28.390] getting picked and does he think going to the Browns
+- [38:31.860] is better than being undrafted?
+- [38:36.210] Ms. Leavitt: All I will say is the President
+- [38:37.540] put out a statement
+- [38:38.820] and a few rounds later he was drafted.
+- [38:41.180] I think the facts speak for themselves on that one, Peter.
+- [38:43.920] We'll go to the back row in the middle to the blonde.
+- [38:46.330] Yes. Hello.
+- [38:47.580] The Press: President Trump has said
+- [38:48.870] that Secretary Hegseth will get it together.
+- [38:51.020] Does he think that Hegseth
+- [38:52.640] doesn't have it together right now?
+- [38:54.190] Ms. Leavitt: Look, the president has made his position
+- [38:55.970] on Secretary Hegseth quite clear.
+- [38:57.670] He absolutely has confidence in the Secretary's ability
+- [39:00.730] to lead the Pentagon.
+- [39:01.940] It's why he nominated him for this position.
+- [39:03.720] It's why the Senate voted to confirm him in this position
+- [39:07.250] and look at the success that DOD has had thus far.
+- [39:10.070] Their successful operation against the Houthi
+- [39:11.870] terrorists in the Middle East.
+- [39:13.150] You look at the recruitment and retention levels
+- [39:15.140] for all branches of our armed forces are on the incline,
+- [39:19.530] which is exactly what this President intended to do.
+- [39:22.170] Secretary Hegseth has completely wiped out DEI
+- [39:25.070] from the Pentagon as well, and he's going to remain focused
+- [39:28.800] on standing up for our war fighters,
+- [39:30.760] on implementing President Trump's peace through strength,
+- [39:33.690] foreign policy agenda abroad
+- [39:35.430] and the President supports him in his role.
+- [39:40.510] The Press: Many are wondering
+- [39:41.720] how these 10 or 20 million people are working.
+- [39:45.420] Is there some efforts to clamp down on employment
+- [39:48.500] because they're working somewhere to keep staying here?
+- [39:53.540] Mr. Homan: The number of worksite enforcement actions
+- [39:55.750] have tripled this year and it's going to triple again
+- [39:59.540] because in sanctuary jurisdictions especially,
+- [40:02.370] if we can't arrest a bad guy in the safety
+- [40:04.380] and security of a county jail
+- [40:05.640] and they're going to release them into community,
+- [40:07.960] that means we go into the community.
+- [40:10.090] If we can't arrest them in the community,
+- [40:11.870] we'll arrest them at their worksite.
+- [40:15.140] We got to do what we got to do to arrest public safety threats.
+- [40:17.490] There's no sanctuary for public safety threats in this country.
+- [40:20.530] Worksite enforcement is going to increase
+- [40:23.110] even more than it already has. And another reason for worksite,
+- [40:26.490] the last administration stopped worksites.
+- [40:30.770] Where's the number one place we find victims of trafficking,
+- [40:34.080] victims of forced labor trafficking?
+- [40:35.830] In worksites.
+- [40:37.120] Not only are we going to enforce law on worksites,
+- [40:39.600] we're going to save victims of trafficking.
+- [40:41.430] That's another reason we've increased worksite enforcement.
+- [40:43.830] Ms. Leavitt: Awesome.
+- [40:46.300] Go ahead Brian. We'll take one more question.
+- [40:48.300] The Press: Thank you. This is for Mr. Homan.
+- [40:50.750] We all walked by these heinous yard signs
+- [40:54.150] that are along Pebble Beach. What is some of the feedback
+- [40:58.350] that your ICE agents are getting in the field from the community
+- [41:02.420] as they remove these individuals from their families,
+- [41:05.180] their neighborhoods, their schools,
+- [41:06.890] all the places in their community?
+- [41:08.970] What's been the reaction that your ICE agents
+- [41:11.430] have gotten from the people who live amongst these individuals?
+- [41:16.400] Mr. Homan: The morale of ICE and Border Patrol
+- [41:18.160] is at all time high
+- [41:19.960] because they're getting to uphold the oath they took
+- [41:22.910] and they're enforcing the law.
+- [41:24.860] Border Patrol under the Biden administration,
+- [41:26.330] I met with hundreds of them,
+- [41:27.560] they felt like Uber drivers and tourist agents.
+- [41:30.820] These men and women join the ranks of ICE and Border Patrol
+- [41:33.610] to enforce the law and make the community safer
+- [41:35.420] and protect national security. I hear it all the time.
+- [41:39.510] There's a lot of people in this country don't like me,
+- [41:41.650] I don't care. But when I walk through airport,
+- [41:44.640] I have many people walking up to me
+- [41:46.860] and thank me for when I'm doing it
+- [41:48.410] and I'm not taking credit for anything.
+- [41:50.240] The success of the border and immigration enforcement
+- [41:52.650] is President Trump and the men and women wearing that uniform.
+- [41:56.970] God bless each and every one of them,
+- [41:58.840] but I take a pleasure in seeing it
+- [42:01.520] because in 40 years of doing this job,
+- [42:03.310] people always want to say,
+- [42:04.600] "Why are you so emotional when you testify?
+- [42:06.730] Why are you so emotional in network?"
+- [42:08.380] Because if they wore my shoes for 40 years,
+- [42:10.210] they don't understand why emotional.
+- [42:12.010] I've talked to the little girls as young as nine years old
+- [42:14.170] are raped multiple times by the cartel members
+- [42:17.330] and when you get to your knees and you talk that little girl
+- [42:19.340] and everything innocent and pure has been ripped from her,
+- [42:22.660] when you listen to the Laken Riley, 17 minutes,
+- [42:25.240] that young lady fighting for her life,
+- [42:27.970] don't just think, "A young woman died."
+- [42:30.110] Think of how she died, the terror that she went through
+- [42:33.200] and these children are sexually assaulted.
+- [42:34.800] I stood back with [inaudible 00:42:37]
+- [42:37.560] 19 dead people at my feet, that baked to death.
+- [42:42.300] Illegal immigration is not a victimless crime.
+- [42:45.130] And every sick person we take off the streets,
+- [42:47.970] especially child rapists, makes this country much safer.
+- [42:52.310] Every illegal alien we arrest public safety threat
+- [42:54.760] one at a time makes this country safer.
+- [42:56.520] But I got one thing I need to say real quick before I leave.
+- [42:58.870] Ms. Leavitt: Take your notes from me, Tom.
+- [43:00.110] Mr. Homan: Take my notes from me.
+- [43:01.550] I'm going to read it.
+- [43:02.750] I don't want a misinterpretation what I'm reading to you.
+- [43:06.550] The registration requirements under 8 USC 1302.
+- [43:09.240] If your illegal alien in the United States
+- [43:10.710] this message is for you.
+- [43:12.600] You cannot hide from ICE. We're actively looking for you.
+- [43:16.580] Federal law requires every alien in the United States
+- [43:20.010] who has been present in the United States
+- [43:21.470] more than 30 days needs to register.
+- [43:24.940] For those 14 years or older, you need to be fingerprinted
+- [43:28.230] with the Department of Homeland Security.
+- [43:29.980] Federal law requires every alien in the United States
+- [43:33.450] to tell DHS in writing, if you have a change in address
+- [43:35.890] within 10 days of change in the address.
+- [43:38.200] Failing to register with DHS and fair to tell DHS
+- [43:41.120] about your new address are criminal offenses
+- [43:44.170] and they're going to be treated as such.
+- [43:47.300] Starting today.
+- [43:49.790] Make no mistake, if you're in the country illegally
+- [43:52.220] and you fail to do what the law requires, we will prosecute you.
+- [43:56.010] You'll go to jail then we'll deport you.
+- [43:59.340] Second of all, penalties for failure to depart, 8 USC 1253.
+- [44:04.340] If you're alien in inside the United States
+- [44:06.030] has a final order, this message for you.
+- [44:08.500] If you have a final order,
+- [44:10.580] the Trump administration is committed
+- [44:12.130] to enforcing our immigration laws,
+- [44:14.240] especially for those aliens
+- [44:15.630] who have received final orders of deportation.
+- [44:18.440] There are currently around 1.4 million illegal aliens
+- [44:22.230] who've been ordered removed,
+- [44:23.820] but remain here in violation of the law.
+- [44:26.470] We will aggressively prosecute consistent
+- [44:29.500] with long-standing law,
+- [44:31.890] those aliens for failing or refusing to depart
+- [44:35.340] or who takes other related actions
+- [44:37.080] aimed at hindering the removal.
+- [44:40.400] You cannot open the door, you cannot answer our questions,
+- [44:42.610] you cannot open your car door,
+- [44:44.390] you consider to evade law enforcement.
+- [44:48.140] If you fail to leave the United States
+- [44:50.070] after receiving removal order,
+- [44:51.790] we can and will issue monetary fines up to $998 a day.
+- [44:59.320] Evading your arrest, knowing you have a final order
+- [45:03.190] or removal is a criminal offense,
+- [45:05.330] we will prosecute then we'll deport you.
+- [45:09.540] Get your affairs in order.
+- [45:10.780] If you're in the country illegally, work with ICE,
+- [45:14.670] go to CBP Home app and leave on your own
+- [45:18.140] because we have to find it, deport you and prosecute you,
+- [45:21.650] you'll have a bar placed under you
+- [45:23.260] and you won't come back to this country.
+- [45:24.920] You won't be able to come back
+- [45:26.180] on a visitor's visa, tourist visa.
+- [45:27.860] If you have US citizen child, can't petition for you.
+- [45:29.780] If you're in this country,
+- [45:32.480] will you get your affairs in order and work with us
+- [45:35.450] and get yourself removed from this country?
+- [45:37.180] That's what law requires and we're going to force that law.
+- [45:39.850] Ms. Leavitt: Awesome. Thank you so much, Tom.
+- [45:41.630] You can get back to work now.
+- [45:42.950] Look, he's already leaving. He's got a lot to do.
+- [45:45.710] A lot of illegal immigrants to deport.
+- [45:47.440] But thanks everyone for joining us bright
+- [45:49.170] and early this morning.
+- [45:50.430] As I said at the top, we will do this again tomorrow
+- [45:52.590] to talk about the economy,
+- [45:54.500] which is another promise made and kept by the President.
+- [45:57.020] And I'll be joined by the Secretary of Treasury,
+- [45:58.890] Scott Bessent at 8: 30 tomorrow morning.
+- [46:01.350] Today the President is welcoming
+- [46:03.020] the Super Bowl Champions, Philadelphia Eagles.
+- [46:05.000] If we have any Philly fans, that will be at four o'clock
+- [46:07.850] and then the President will sign those executive orders
+- [46:10.280] I spoke of and a few others at five P.M.
+- [46:13.000] We'll see you all later. Have a great day.

@@ -1,0 +1,488 @@
+<!-- source: https://www.youtube.com/watch?v=Vw2AZK5gEok -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: Vw2AZK5gEok -->
+<!-- date_published: 2025-02-20T21:33:53+00:00 -->
+<!-- date_accessed: 2026-06-02T02:53:34.604100+00:00 -->
+
+# Transcript: President Trump Hosts a Reception Honoring Black History Month
+
+- [00:00.000] Male Speaker: Ladies and gentlemen,
+- [00:01.200] the President of the United States
+- [00:03.010] and with the President
+- [00:04.210] is World Champion golfer, Mr. Tiger Woods.
+- [00:29.440] The President: Thank you very much. Thank you.
+- [00:34.450] Wow, this is some crowd. How are you?
+- [00:43.700] Thank you. This is some crowd.
+- [00:50.470] These are the best people, Tiger.
+- [00:53.530] And we have Adam Scott here, also winner of the Masters,
+- [00:56.510] one of the greatest golfers in the world.
+- [01:01.220] I've always tried to swing just like Adam.
+- [01:03.650] It never worked out that way. And Tiger, we know.
+- [01:06.920] And I just want to thank Adam and Tiger
+- [01:08.850] and the Commissioner of Golfers.
+- [01:11.070] Jay, thank you very much for being here.
+- [01:12.830] Jay Monahan, head of the PGA,
+- [01:15.780] and we've had some interesting discussions.
+- [01:18.550] But let me ask you, is there anybody like our Tiger?
+- [01:21.720] How are you? He's great.
+- [01:24.750] Would you want to just say a couple of words?
+- [01:27.120] He doesn't. He's much more comfortable.
+- [01:35.020] Tiger!
+- [01:37.910] Mr. Woods: Hey, it's an honor to be here.
+- [01:39.350] It's an honor to be here with you, Mr. President,
+- [01:41.300] and to be on the road here with all of you.
+- [01:44.140] Thank you so much. Thank you.
+- [01:50.020] The President: You too. Go right over here.
+- [01:52.540] Thanks Tiger.
+- [01:54.310] And I want to thank all of you very much for being here.
+- [01:57.950] Welcome to the White House,
+- [01:59.690] and we proudly celebrate Black History Month.
+- [02:04.070] How are you, darling?
+- [02:05.780] Today we pay tribute to the generations
+- [02:08.580] of black legends, champions, warriors and Patriots
+- [02:11.760] who help drive our country forward to greatness.
+- [02:14.810] And you really are great people. What a great, nice group of…
+- [02:20.820] I have some people in front of me
+- [02:22.510] every once in a while with all the problems
+- [02:25.160] that are caused all over the world.
+- [02:28.440] They're not nice, but we're making them nice.
+- [02:32.790] I can tell you that.
+- [02:34.060] And we're making them nice rapidly.
+- [02:36.900] So we're pleased to be joined
+- [02:38.440] in this really beautiful afternoon at the White House
+- [02:41.420] by hundreds of incredible members
+- [02:43.080] of the African-American community,
+- [02:48.310] many of whom are making history themselves,
+- [02:50.850] including one of the greatest athletes of all time.
+- [02:54.140] Who you just said hello, the man who matched Sam Snead's,
+- [02:57.940] number one record for the most PGA Tour wins ever.
+- [03:01.320] And a man who has 15 majors and he's got a long way to go too.
+- [03:06.410] I was with him a week ago. We played, I think Adam,
+- [03:09.830] I think he's got some left, doesn't he? Huh?
+- [03:11.830] He's got a couple of majors left, maybe more than that.
+- [03:14.910] But Tiger Woods, he's an incredible guy,
+- [03:17.030] an incredible athlete, incredible player.
+- [03:19.040] Thank you for being with us, Tiger. Thank you very much.
+- [03:21.630] And he got the Presidential Medal of Freedom,
+- [03:24.520] which he proudly wore today.
+- [03:27.180] And we have Senator Tim Scott here.
+- [03:29.240] What do you think, Tim?
+- [03:30.580] You never got the Presidential Medal?
+- [03:32.700] Maybe someday.
+- [03:33.930] Mr. Scott: Maybe someday.
+- [03:35.160] The President: Maybe someday. You better believe it.
+- [03:37.680] And also Adam, thank you very much.
+- [03:40.380] Adam is, as Tiger will tell you, one of the greatest players
+- [03:44.140] and one of the great modern players.
+- [03:46.240] And he had 32 wins worldwide and winning the Masters also.
+- [03:51.030] And he's something very special
+- [03:53.110] and a great representative of golfers and athletes.
+- [03:56.660] Thank you very much, Adam.
+- [03:57.930] Even though he doesn't quite come from our country,
+- [03:59.970] he sort of does. He's here a lot.
+- [04:02.590] He comes from another nice place like Australia
+- [04:05.960] and they've been very good, very, very good to us.
+- [04:09.540] Jay, thank you very much. Appreciate it very much.
+- [04:12.320] We also have the head of Pfizer here, so I want to thank him.
+- [04:15.190] One of the great, great people, one of the great businessmen.
+- [04:19.710] Thank you, Alfred. Thank you.
+- [04:24.210] Thank you very much. Thank you very much.
+- [04:31.740] I want to congratulate our newly sworn in Secretary of Housing
+- [04:37.280] and Urban Development, Scott Turner.
+- [04:40.030] Come here. I've got to say hello.
+- [04:42.210] Come on up here, Scott.
+- [04:44.510] I had Tim Scott pushing him so hard.
+- [04:46.590] You have no idea. I had no choice.
+- [04:48.160] Is that right, Tim?
+- [04:49.860] No, Scott is, I've known him a long time.
+- [04:51.950] And Scott's a real champion.
+- [04:54.310] Say a couple of words, Scott, please.
+- [04:58.230] Mr. Turner: Well, hello everyone.
+- [05:00.320] Is everybody happy to be here together?
+- [05:03.100] Is everybody happy to be here together?
+- [05:06.490] Well, first of all, I want to thank President Trump
+- [05:10.080] for his confidence in appointing me to this position.
+- [05:14.860] I consider it a great honor and a great blessing,
+- [05:18.380] and I thank God for this and I'm real humbled by it.
+- [05:21.190] And you can guarantee that every day
+- [05:22.810] that I'm going to lay it down for the people of America.
+- [05:28.920] And Senator Tim Scott, thank you for your leadership.
+- [05:31.890] I really appreciate you
+- [05:33.230] and for all of those who have gone before us,
+- [05:35.920] and those of you who have such a great voice today,
+- [05:38.340] keep on speaking,
+- [05:39.560] keep on preaching for not just black America,
+- [05:42.480] but for all America.
+- [05:44.850] So we appreciate you and my sister,
+- [05:46.460] Brooke Rollins and all of those here, Mr. President,
+- [05:49.580] we look forward to working you, sir,
+- [05:51.810] and carrying out this great agenda.
+- [05:53.130] We pray for you every day. God bless you and thank you.
+- [05:56.750] God bless America. Thank you for President Trump.
+- [06:01.460] The President: Congratulations.
+- [06:04.700] And I see we have a newly… I think you just got in right?
+- [06:08.780] They just confirmed you and you did it very nicely.
+- [06:12.210] Brooke Rollins, she's the Secretary of Agriculture.
+- [06:14.990] It's a big deal. That's great, Brooke.
+- [06:19.000] That was a good vote you had too, huh?
+- [06:21.300] She went through very easily,
+- [06:22.550] a little easier than some of our people,
+- [06:25.120] but they were all approved, every one of them.
+- [06:26.990] And today we just had Cash Patel approved, which is great.
+- [06:33.820] So Brooke, congratulations, secretary of Agriculture.
+- [06:36.860] That's big stuff, right? That's big.
+- [06:38.630] So you're going to do fantastically.
+- [06:40.170] And congratulations also to a really good friend of mine.
+- [06:43.960] He endorsed me early
+- [06:45.240] and he was one of the best surrogates you could have.
+- [06:47.970] The surrogate is when you walk around
+- [06:50.340] and go on television shows and they go try and beat you up.
+- [06:53.340] But he beat them up.
+- [06:55.530] There was, they didn't have a chance against Tim Scott,
+- [06:58.490] Senator Tim Scott from South Carolina
+- [07:02.690] and he's now the longest-serving Black United States
+- [07:05.890] senator in the history of our country.
+- [07:07.740] I don't know, that's pretty good.
+- [07:11.980] He's going to be around for a long time, right?
+- [07:14.060] He just got married. Congratulations on that too.
+- [07:17.120] It's beautiful. Beautiful wife.
+- [07:19.230] Thanks as well to Congressman John James.
+- [07:21.600] Where's John James is here. Hi, John. How are you?
+- [07:25.160] It's a star, young star.
+- [07:27.960] I knew that five years ago, right John?
+- [07:30.040] I predicted it and I'm really proud to say
+- [07:33.700] that we now have more Black Republicans
+- [07:36.200] serving in the US House than at any time since 1870.
+- [07:41.720] That's a long time, 1870. So thank you very much.
+- [07:45.700] And Scott, you're going to be fantastic.
+- [07:47.380] I'll tell you, you're going to do a great job.
+- [07:50.040] As you know, the Americans are going to be
+- [07:53.160] celebrating something very important coming up,
+- [07:55.490] our 250th anniversary, our nation's founding.
+- [07:59.660] And when we do, we're going to look forward
+- [08:01.770] to honoring the contributions of countless
+- [08:04.230] Black Americans who fought to win
+- [08:06.270] and protect and expand American freedom
+- [08:08.990] from the very, very beginning.
+- [08:10.690] Some of my good friends are here today
+- [08:13.120] and I appreciate you being.
+- [08:14.420] I'm not going to call out your names
+- [08:15.690] because Tiger will get very bored.
+- [08:17.790] He'll say, "This is a little boring."
+- [08:20.290] "This is a little boring if we do that."
+- [08:22.040] But I want to thank you all for being here.
+- [08:23.630] You are our- Audience: Thank you.
+- [08:24.850] The President: friends and we appreciate this.
+- [08:26.560] You McGee, you are my friend.
+- [08:30.790] The last administration tried to reduce
+- [08:33.270] all of American history to a single year, 1619.
+- [08:36.800] But under our administration-
+- [08:38.010] Audience: Boo.
+- [08:39.220] The President: We honor the indispensable role
+- [08:41.830] Black Americans have always played
+- [08:43.930] in the immortal cause of another date, 1776.
+- [08:47.740] We like 1776. In the very first skirmish
+- [08:52.420] of the Revolutionary War at Lexington Green,
+- [08:55.790] an enslaved Black man named Prince Estabrook…
+- [08:58.890] You know Prince Estabrook? Yeah. Answered history's call
+- [09:03.120] and fought as the minute man alongside the other patriots
+- [09:08.130] of the very small Massachusetts town,
+- [09:10.910] couldn't protect itself, but they did a good job.
+- [09:13.620] Prince was wounded in the early morning battle,
+- [09:15.700] becoming not only the first African American soldier
+- [09:19.190] to fight in the revolution,
+- [09:20.520] but among the very first Americans to spill their blood.
+- [09:23.970] One of the first in the nation to spill blood
+- [09:26.000] in that very, very tough time.
+- [09:29.080] Soon Estabrook joined the Continental Army
+- [09:31.120] and ultimately won his own freedom
+- [09:32.900] along with that of his fellow Americans.
+- [09:35.750] His legacy will endure and we're very proud to honor him today.
+- [09:40.320] It's a very important day in our country and we honor him.
+- [09:44.370] First person to spill blood happened to be Tim Estabrook.
+- [09:49.710] Today I'm pleased to announce that we will be
+- [09:53.060] including the statue of Prince Estabrook
+- [09:56.900] in our new National Garden of American Heroes.
+- [09:59.620] Have a, we're going to be doing a Garden of American heroes.
+- [10:04.370] And now that I think of it, I didn't have,
+- [10:06.430] I must tell you sadly, most of them,
+- [10:09.850] I guess all of them are not with us any longer.
+- [10:12.420] I was going to put Tiger in the garden,
+- [10:14.220] but maybe you don't want to be there.
+- [10:17.040] I maybe should wait a little bit, huh?
+- [10:19.300] About 50, I think I'm going to wait about 50 years, all right?
+- [10:23.340] But Tiger's going to make it okay,
+- [10:25.280] but I'm a little afraid to tell him yes
+- [10:27.180] because he'd be the only one that's living.
+- [10:29.190] I don't know, Tiger.
+- [10:30.680] Tiger's rejecting that offer, right?
+- [10:34.390] Under the executive order I signed last month,
+- [10:37.020] this new beautiful outdoor statue park.
+- [10:40.420] It's going to be a statue park. It's going to be unbelievable.
+- [10:43.610] We're picking the final sites now.
+- [10:45.360] It's between various states that want it very badly.
+- [10:48.490] We'll honor hundreds of our greatest Americans ever lived,
+- [10:51.360] including countless Black Americans, icons.
+- [10:54.890] The garden will predominantly feature incredible women
+- [10:58.850] like Harriet Tubman, Rosa Parks,
+- [11:01.280] Billie Holiday, Aretha Franklin, and Coretta Scott King
+- [11:06.690] and I will showcase extraordinary…
+- [11:09.870] It will be something very extraordinary.
+- [11:12.020] It's going to be producing, we are going to produce
+- [11:15.670] some of the most beautiful works of art
+- [11:17.410] in the form of a statue for men like Frederick Douglass,
+- [11:20.650] Booker T. Washington, Jackie Robinson,
+- [11:24.490] what a great athlete that was.
+- [11:26.800] Martin Luther King Junior, Muhammad Ali,
+- [11:30.310] he was not a bad athlete.
+- [11:31.870] What do you think? Muhammad, not too bad.
+- [11:35.450] And the late Kobe Bryant. People love Kobe Bryant.
+- [11:41.930] And we're going to save Tiger Woods for another time.
+- [11:44.440] That's all that like, I'm sorry.
+- [11:47.350] During Black History Month, we pay tribute to these heroes
+- [11:51.230] and to so many others not simply because they're Black heroes,
+- [11:55.280] but also because they are truly American heroes
+- [11:58.220] who inspire all of us very much so.
+- [12:01.390] The theme of this year's celebration
+- [12:03.130] is African Americans and labor.
+- [12:05.610] And we want to thank all of the Black workers,
+- [12:08.400] construction workers, and every other worker,
+- [12:10.610] they do a job like nobody can do.
+- [12:13.080] And we want to just thank them very much
+- [12:15.290] for their contribution.
+- [12:16.630] Tim, the contribution you've made, Tim, is incredible.
+- [12:20.280] Opportunity zone, so many people, so many.
+- [12:23.660] He's the father of opportunity zone.
+- [12:26.340] I'm just the son.
+- [12:27.570] He's the father because he came into the White House,
+- [12:29.920] the Oval Office with this idea,
+- [12:32.000] and it's probably the number one economic development project
+- [12:35.910] ever in our country.
+- [12:37.960] I want to give Senator Tim Scott the credit for it.
+- [12:41.800] Good job, Tim.
+- [12:43.860] Of course, millions of Blacks
+- [12:45.220] were first brought here in slavery
+- [12:47.580] and they were kept in that evil condition
+- [12:49.660] for really, generations.
+- [12:51.250] But because of the steadfast faith and courage
+- [12:54.290] of so many patriots of all colors,
+- [12:56.160] we abolished that horrific institution,
+- [12:58.950] expanded civil rights and advanced America's destiny
+- [13:02.420] as one nation under God with liberty and justice for all.
+- [13:09.610] Just a few months ago, the people in this room
+- [13:12.740] and millions of other Black Americans
+- [13:14.780] played their own part in the American story
+- [13:17.160] when you went to the voting booths
+- [13:19.390] and restored a nice good, solid government.
+- [13:23.650] And there's a guy that really helped.
+- [13:25.780] There's a man that really helped.
+- [13:27.450] You really are great.
+- [13:29.580] Thank you very much. I appreciate it.
+- [13:31.040] Audience: Don't forget.
+- [13:32.300] The President: I don't forget.
+- [13:33.500] I'm proud to say that we received,
+- [13:35.440] listen to this, more votes from Black Americans
+- [13:38.730] than any Republican president ever, not even close.
+- [13:46.350] Almost 40% of the vote.
+- [13:48.170] Now, I'm not… I won't be happy the next time.
+- [13:50.990] Should I run again? You tell me.
+- [13:54.860] Audience: Yeah. One more time.
+- [13:56.100] The President: There's your controversy right there.
+- [13:58.870] There's your controversy.
+- [14:08.350] Thank you.
+- [14:09.590] Audience: Four years.
+- [14:10.790] The President: You'll be seeing that on,
+- [14:13.020] you're going to see that tonight, Tim, on television.
+- [14:16.240] I want to thank just a few of the people
+- [14:18.310] who are with us today,
+- [14:19.690] and these are great friends of ours.
+- [14:22.070] Alveda King. Alveda, where are you, Alveda?
+- [14:24.650] Hi, Alveda. Thank you.
+- [14:26.590] You've been with me from day one and I appreciate it.
+- [14:29.290] I won't forget it. She's a fantastic woman.
+- [14:32.160] Alice Johnson. Where's Alice? Boy, are you incredible.
+- [14:36.730] I watched you on last night on television.
+- [14:38.640] You were so good.
+- [14:39.970] Alice was in prison for doing something that today
+- [14:44.170] probably wouldn't even be prosecuted.
+- [14:46.640] She spent 22 years in prison, 22 years.
+- [14:50.150] She had another 22 years left. Can you believe it?
+- [14:53.200] And I pardoned her and it was one of the best pardons,
+- [14:57.500] one of the best pardons. You know what she was on?
+- [15:02.130] She happened to be on the wrong telephone line.
+- [15:04.330] Is that true? She was on a telephone call.
+- [15:06.990] And I'm not saying it was perfect,
+- [15:08.440] but it wasn't worth 40 or 50 years, Alice.
+- [15:13.550] You've been an inspiration to people and we're going to be
+- [15:17.530] listening to your recommendation on pardons.
+- [15:19.740] You're going to go over and you're going to be,
+- [15:21.870] she's going to be my pardon czar.
+- [15:24.100] Okay? And you're going to find people
+- [15:27.860] just like you that should not, this should not have happened.
+- [15:32.150] It should not have happened. So you're going to look
+- [15:33.900] and you're going to make recommendations
+- [15:35.480] and I'll follow those recommendations,
+- [15:37.090] okay, for pardons, all right?
+- [15:38.340] Ms. Johnson: All right.
+- [15:39.560] The President: Thank you very much.
+- [15:40.950] A man who's just incredible. This guy, I watched him on,
+- [15:44.780] I watched him when he was a Democrat
+- [15:46.370] and then one day he had a change
+- [15:47.720] because he couldn't take it any longer.
+- [15:50.620] Does anyone ever hear of,
+- [15:52.020] did anyone ever hear of a man named Leo 2.0 Terrell?
+- [15:56.690] Where are you? Get up here. Get up here.
+- [15:59.310] I love this guy. You know what he's doing now?
+- [16:00.940] He's with the Department of Justice.
+- [16:03.470] He's in charge of civil rights and lots of other great things.
+- [16:07.570] He is going to be working with Pam.
+- [16:08.980] It's okay. Could he come up, please?
+- [16:12.860] Come on, Leo. Get up here.
+- [16:18.870] Leo Terrell, this guy is great. Hello, man.
+- [16:24.440] Mr. Terrell: You are the greatest guy, thank you.
+- [16:26.070] The President: Thank you. Thank you.
+- [16:28.080] Mr. Terrell: I just want to say, we are in the presence
+- [16:31.060] of the greatest president of all time.
+- [16:33.970] He is the greatest president in our lifetime.
+- [16:37.160] I'll tell you right now,
+- [16:38.360] the Democratic Party should be a worried
+- [16:40.310] because they took us for granted.
+- [16:43.820] No longer. We vote in our best interest.
+- [16:46.680] We want the same thing that every American wants.
+- [16:49.900] Good job, we want a secure border,
+- [16:52.320] we want to pay lower taxes,
+- [16:53.960] and Mr. President Donald Trump is doing that.
+- [16:56.770] Thank you, Mr. president.
+- [17:04.140] The President: He's a great guy.
+- [17:05.420] No, I watched him. He was a radical Democrat.
+- [17:08.030] He became a radical Republican, right?
+- [17:10.960] He's great. He's in the Department of Justice.
+- [17:12.780] Think of it.
+- [17:13.990] Doing very important work at highest level.
+- [17:16.970] Also, Sage Steele. Sage, where are you?
+- [17:19.840] Hello, Sage. Great job. You do. You're doing great.
+- [17:26.210] Thank you very much, Sage for being here.
+- [17:27.870] Michael, Harry O' Harris.
+- [17:29.800] Michael? Hi Michael. Thank you very much, Michael.
+- [17:34.590] Deontay Johnson. Deontay? Thank you, Deontay.
+- [17:41.400] Lynn Patton, she's worked for me for a long time.
+- [17:45.910] She's worked for us for a long time.
+- [17:48.600] Bob Woodson, where's Bob?
+- [17:55.100] And we're also joined by seven-time Mr. Olympia.
+- [17:58.770] I want to see this guy, Phil Heath.
+- [18:00.820] Where's Phil? Phil Heath.
+- [18:02.880] I don't want to compare my muscles.
+- [18:05.210] Here he is. Thank you, Phil, very much.
+- [18:07.730] I appreciate it.
+- [18:09.060] Will you come up here for a second?
+- [18:10.690] Come on. Get up. I got to say, come on. You.
+- [18:15.820] From day one, right? From day one, he's been here.
+- [18:20.760] Get up. You got to say just a word.
+- [18:22.770] Don't fall. If you fall, it's all over.
+- [18:25.030] Tiger, you're not allowed to fall.
+- [18:27.080] You could make a great speech,
+- [18:28.500] but if you fall going up, that's no good. Come on.
+- [18:32.870] Mr. Heath: Are you kidding me?
+- [18:36.030] Mr. President, it has been an honor
+- [18:37.700] of a lifetime to support you. To try to wake up as many people
+- [18:42.170] to the lies of the Democrat Party,
+- [18:44.620] and the nonstop manipulation of the mainstream media.
+- [18:48.290] That's why I now have my show on Newsmax
+- [18:50.150] so I can champion you.
+- [18:51.720] And I'm thankful that we've been able to champion him
+- [18:54.250] and get him across the finish lines
+- [18:55.610] for another amazing four years.
+- [18:58.100] And let me say, I know God has chose you.
+- [19:01.740] He anointed you for this position.
+- [19:04.380] He kept you alive so you could be here today.
+- [19:07.970] And we prayed for that. We prayed for you.
+- [19:09.770] We continue to pray for you
+- [19:11.040] and we're thankful for your service and your sacrifice.
+- [19:13.450] Mr. president Donald J. Trump, honor. God bless you.
+- [19:18.190] The President: Thank you.
+- [19:21.920] From day one. I like those guys from day one.
+- [19:25.800] Tiger's been there from day one too.
+- [19:27.430] Let me tell you, this guy is amazing.
+- [19:30.320] In four weeks, our new administration has achieved
+- [19:32.870] more than most administrations achieve in four years.
+- [19:36.420] We brought our country back. It's four weeks.
+- [19:38.350] Today is our fourth week.
+- [19:40.640] The end of the week we start our…
+- [19:42.770] We are now starting our fifth,
+- [19:44.260] and I think we've done more in four weeks,
+- [19:46.550] well, certainly than the last administration
+- [19:48.540] did in four years. They actually went negative.
+- [19:51.460] They actually went in the wrong direction.
+- [19:53.700] Together we're going to be fighting long and hard
+- [19:56.680] for black Americans and all Americans.
+- [19:59.470] We're going to be fighting for all Americans.
+- [20:01.540] We've secured our border
+- [20:03.240] and we're stopping the invasion of our country.
+- [20:05.570] Our border right now is more secure than it's ever been.
+- [20:09.000] And we had the record four years ago.
+- [20:11.010] We had the record. We had the lowest number in history.
+- [20:14.650] And now the numbers, Tim, are even lower than they were then.
+- [20:17.880] And we're honored.
+- [20:19.150] They were allowing people to come in from all over the world,
+- [20:22.420] from prisons and jails, mental institutions,
+- [20:25.680] insane asylums, gang members.
+- [20:27.600] They had drug dealers, they had everybody dropping in.
+- [20:30.330] And we had this ridiculous open border policy.
+- [20:33.430] They drop in. And I'll tell you,
+- [20:35.190] the people that were affected the most were black people.
+- [20:38.830] You were affected the most in terms of the crime,
+- [20:41.920] in terms of the drugs, and everything else.
+- [20:43.790] And we have the border shut down.
+- [20:46.060] We allow people to come in, we want people to come in, Tim,
+- [20:48.830] but we want them to come in legally.
+- [20:51.500] They're going to come through legally.
+- [20:53.740] So we're protecting American workers,
+- [20:55.710] including millions of black workers.
+- [20:57.800] And we have a thing called reciprocal tariffs.
+- [21:00.390] If they charge us, we charge them.
+- [21:02.100] This is opening up. We just signed the bill
+- [21:04.970] and we're going to take in billions
+- [21:06.550] and billions of dollars.
+- [21:08.120] And we're making our country very healthy again
+- [21:11.120] and very rich again. We want to be very rich again.
+- [21:13.500] We've been taken advantage by everybody.
+- [21:15.410] And you've been watching DOGE where we found billions,
+- [21:21.820] tens of billions of dollars of fraud,
+- [21:24.460] and waste, and abuse, and that's just the beginning.
+- [21:27.220] And Elon Musk has done an amazing job.
+- [21:30.020] I have to tell you, him and his super geniuses,
+- [21:33.500] these are seriously high IQ people.
+- [21:37.150] And nobody's going to talk them out of anything.
+- [21:40.150] They go in and they're finding billions.
+- [21:42.920] I mean literally, tens of billions of dollars
+- [21:45.320] that we just started.
+- [21:46.690] And I think that's going to have a big, big impact for credit.
+- [21:50.450] So we want to just really say, and I have to say to you,
+- [21:54.560] I look at this turnout, I look at the love in the room.
+- [21:56.500] This is just love in the room.
+- [22:00.660] I remember the first time I did this,
+- [22:03.890] my first administration, one of my first meetings,
+- [22:06.810] there wasn't this large a crowd, Tiger.
+- [22:09.400] We had about five people in the front.
+- [22:13.080] We had maybe five black people right in the front,
+- [22:16.930] right about there.
+- [22:19.360] I said, is anybody else coming? Is this it? Are we open?
+- [22:24.480] I don't even think Tim Scott, I know Turner wasn't there.
+- [22:27.390] I don't think Tim Scott was there either. I'm not sure.
+- [22:30.770] But that's all changed. And we got the highest vote.
+- [22:33.580] And one of the big reasons I'm President today
+- [22:37.070] is because of the black vote. And I always appreciate it.
+- [22:41.540] So this is a very special time. It's Black History Month.
+- [22:47.260] We love you all. We're going to work with you.
+- [22:49.050] We're going to make America greater than ever before.
+- [22:51.790] We're going to do together.
+- [22:53.160] And I want to thank you all for being here.
+- [22:55.160] It's an incredible honor. And to my great golfing friends,
+- [22:59.410] I want to thank them in particular.
+- [23:01.150] They really are. They make a lot of money.
+- [23:02.990] They don't have to be up here with me.
+- [23:05.000] Tiger doesn't have to be here.
+- [23:06.450] Adam doesn't have to. They don't need this.
+- [23:08.570] But they love you and they love our country.
+- [23:10.910] Thank you all very much. Thank you.

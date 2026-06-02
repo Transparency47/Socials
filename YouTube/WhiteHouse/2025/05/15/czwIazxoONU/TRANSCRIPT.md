@@ -1,0 +1,717 @@
+<!-- source: https://www.youtube.com/watch?v=czwIazxoONU -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: czwIazxoONU -->
+<!-- date_published: 2025-05-15T09:45:22+00:00 -->
+<!-- date_accessed: 2026-06-02T01:25:59.723266+00:00 -->
+
+# Transcript: President Trump Participates in a Roundtable with Business Leaders, May 15, 2025
+
+- [00:00.000] Anyway, thank you very much everybody. I
+- [00:01.839] want to just uh thank you for being with
+- [00:05.200] us and I assume the press is ready. We
+- [00:07.680] have a Pulit surprise winning
+- [00:09.880] photographer and fortunately he gets it
+- [00:12.360] for a shot at the ear. Someday you'll
+- [00:15.679] get it for something nice. You'll get it
+- [00:17.920] for something nice, Doug. Well, I want
+- [00:19.920] to just thank everybody. It's been a
+- [00:21.439] very special trip and I can tell you
+- [00:24.000] that our country is hot. It's hot as a
+- [00:26.400] pistol. Never. I don't think it's never
+- [00:28.320] been so hot. And if you go back uh six
+- [00:32.000] months, it was the exact opposite. We
+- [00:35.120] had a man that couldn't even stand up.
+- [00:36.800] He was so terrible. What it's so
+- [00:38.879] terrible what he's done to our country,
+- [00:40.480] but we've turned it around so quickly. I
+- [00:43.120] I did not expect to turn it around this
+- [00:45.120] quickly. I think we're the hottest
+- [00:46.239] country of the world right now. And six
+- [00:48.320] months ago, they were laughing at the
+- [00:49.680] United States, but they don't laugh
+- [00:51.320] anymore. This has been an amazing trip.
+- [00:54.160] And as you know, I'm going to UAE in a
+- [00:56.559] little while. We're going to first watch
+- [00:58.559] an air show that will be spectacular
+- [01:01.039] from our friend the Amir. He's he's done
+- [01:04.239] a great job. Done a great job. And I've
+- [01:07.600] met such great people and as you know
+- [01:09.600] that we're trying to give Yemen a chance
+- [01:12.799] and uh we're going to give uh Syria a
+- [01:16.720] chance. With Yemen, they have a a
+- [01:20.280] tremendous Houthi problem. I believe
+- [01:22.640] that's a problem for them. You know, you
+- [01:24.240] never really know. It's a tricky part of
+- [01:26.080] the world, but we were asked to stop
+- [01:29.840] firing at the Houthis, and that's
+- [01:32.320] something that they've never asked
+- [01:33.520] because they're tough and they're good
+- [01:34.720] fighters and all, but they're not going
+- [01:36.400] to be blowing ships out of the water
+- [01:37.840] anymore. So, that's what we wanted, and
+- [01:40.560] we'll see how that works. But their
+- [01:42.280] emissaries were very, very strong on it.
+- [01:45.280] So, that's giving that's a good thing
+- [01:46.720] for Yemen because they they want to try
+- [01:49.119] they're trying to help themselves also.
+- [01:52.880] and we want them to get along with Saudi
+- [01:54.640] Arabia because that's been a that's been
+- [01:56.399] a big fight. And the other of course is
+- [01:59.280] Syria. We took out the sanctions and
+- [02:00.960] that's been I didn't even realize it's
+- [02:02.560] been many many years that they've had
+- [02:04.799] sanctions and as you know there was a a
+- [02:07.360] very big change at the top and I thought
+- [02:10.640] that we have to give them a chance. They
+- [02:12.480] really have no chance with the
+- [02:13.599] sanctions. They were very biting. They
+- [02:15.120] were top of the line. Nobody could even
+- [02:17.599] deal with them. You couldn't even you
+- [02:19.360] couldn't make a phone call to Syria. So
+- [02:22.239] we we did that and I met the new leader
+- [02:26.319] of the country
+- [02:27.720] and he's got a you know strong past.
+- [02:30.800] I'll be very nice. He got a strong past
+- [02:32.640] but I liked him a
+- [02:34.200] lot. I think he'll be a great
+- [02:36.239] representative and we'll see you going
+- [02:38.720] to have to have a strong past to put
+- [02:41.040] that one around. You can't you cannot be
+- [02:42.720] a weak person. If you're a weak person
+- [02:45.760] we would just be wasting time. So he's a
+- [02:47.920] strong guy and I thought he was good and
+- [02:50.560] let's see what happens. But we're going
+- [02:51.920] to give them a fighting chance by taking
+- [02:53.519] off the sanctions. So we've actually
+- [02:56.080] been praised for that. The uh crown
+- [02:58.640] prince of Saudi Arabia was very strong
+- [03:00.640] that please do that. He wanted it done.
+- [03:04.480] President of Turkey wanted it done.
+- [03:08.000] President Erdogan called me said is
+- [03:10.159] there any way you could do that? Because
+- [03:11.599] if you don't do that, they don't have a
+- [03:13.760] chance. And so I did it and it's
+- [03:16.080] actually been very popular. The Amir
+- [03:18.000] liked it a lot. Uh it's been very very
+- [03:20.480] popular. So, uh, let's see what happens.
+- [03:22.640] But it's my honor to have done it. And
+- [03:25.680] with that, we're surrounded by the, uh,
+- [03:28.080] some of the greatest business people in
+- [03:30.239] the world. Uh, we just, uh, had a
+- [03:33.440] tremendous order of Boeing. This is
+- [03:35.280] Boeing, and this is General Electric.
+- [03:37.120] And General Electric, I hear, makes the
+- [03:40.239] best large airplane engine in the world
+- [03:42.879] by not even a contest. Maybe I'll have
+- [03:45.599] to change my engines one day in my plan
+- [03:48.720] because they're not General Electric.
+- [03:50.159] But, you know, it's one of those things.
+- [03:51.519] But I hear you make the best engines in
+- [03:53.680] the world, Larry. Larry's uh somehow his
+- [03:57.680] people at General Electric. First of
+- [03:59.120] all, it's one of the greatest
+- [04:00.640] turnarounds that you'll ever see in a
+- [04:02.400] company because when you took it over,
+- [04:04.319] it was I want to be respectful. General
+- [04:06.799] Electric was in trouble to put it I
+- [04:09.439] would say right to put it mildly. And uh
+- [04:13.599] now it's a hot company doing great. And
+- [04:15.880] it's I would imagine the hottest thing
+- [04:18.160] is what's happened with the engine
+- [04:19.519] division because this engine is uh
+- [04:22.079] incredible. Would you like to say a
+- [04:23.680] couple of words, Larry, about that
+- [04:25.320] because he watches when he sees Boeing,
+- [04:28.800] he gets he he's very excited because he
+- [04:31.280] supplies, I guess, for the most part the
+- [04:33.120] engines. Uh would you like to say
+- [04:34.800] something? Sure. Well, Mr. President,
+- [04:36.160] thank you and it's an honor to be here.
+- [04:38.639] We're thrilled about the commitment that
+- [04:40.720] Qar Airways has made to both Boeing and
+- [04:42.800] G Aerospace with the largest widebody
+- [04:45.040] order really in our company's history.
+- [04:47.120] Over 400 engines, both our Wow. our GE
+- [04:50.080] NX, which powers the 787, the fastest
+- [04:53.360] selling high thrust engine in history,
+- [04:56.160] and our new 9X will power the trip 7X,
+- [04:59.120] which will be the largest commercial
+- [05:01.440] engine in the world. Will that be the
+- [05:03.360] same engine other than size, or is it
+- [05:05.520] different? It's it's it's a it's a step
+- [05:07.280] forward and a generation forward as
+- [05:09.280] well. So even beyond. Yes. The large
+- [05:11.360] one. Very much so. That's great. And we
+- [05:13.440] think that really helps both Boeing and
+- [05:15.360] G Aerospace continue to support not only
+- [05:17.919] our investment in domestic
+- [05:19.400] manufacturing, but in turn everything
+- [05:21.759] that we're doing to drive the $75
+- [05:23.560] billion annual trade surplus that the
+- [05:26.160] aerospace industry enjoys in the US
+- [05:28.479] today. So we're excited. I know Kelly
+- [05:30.240] and the Boeing team have been great
+- [05:31.440] partners, but B, our thanks to you for
+- [05:34.240] your trust and your commitment to both
+- [05:36.639] GE Aerospace and Boeing. We're uh we're
+- [05:38.880] gratified. Yeah. Thank you very much. Uh
+- [05:41.759] Kelly, go ahead, please. Well, Mr.
+- [05:43.360] President, first of all, thank you for
+- [05:44.880] your support. Uh this a major order for
+- [05:47.600] us. All of these aircraft will be built
+- [05:50.240] uh in the United States, creating
+- [05:52.080] significant number of jobs, and I know
+- [05:53.919] that's a key mission of yours. and and
+- [05:57.199] uh this this order will help us
+- [05:59.120] accomplish that. Partnership with uh
+- [06:01.759] with GE has been great. They do power
+- [06:03.759] exclusively our our engines uh and
+- [06:06.880] they're doing a great job here and we're
+- [06:09.039] very pleased uh uh to be a selected by
+- [06:12.240] Qar for this largest uh aircraft
+- [06:14.639] widebody aircraft order in the history
+- [06:16.560] of Boeing. Major major accomplishment
+- [06:19.280] for us and thanks to the administration
+- [06:21.039] for your support. That's the largest
+- [06:23.360] order you've ever had. Yeah. For white
+- [06:25.039] body. one of the largest orders in
+- [06:26.880] history, but it almost has to be if it's
+- [06:29.039] the largest order you've had, has to be
+- [06:31.120] pretty close to the largest order ever
+- [06:32.880] made, right? Yeah, that's correct. And
+- [06:34.479] you also Boeing also got the jet
+- [06:36.639] fighter. We selected Boeing for the jet
+- [06:39.440] fighter, the state-of-the-art, highest
+- [06:42.400] level. It's an amazing looking plane. If
+- [06:45.759] it functions as well as it looks, I
+- [06:47.759] think we're going to have a big we're
+- [06:49.120] going to have a big winner. But we're
+- [06:51.199] also looking at some additional jet
+- [06:53.039] fighters. We have some really good ones
+- [06:54.800] that we have uh we're taking a look at.
+- [06:57.039] Strong look from one of your
+- [06:58.720] competitors, I must say. And uh we're
+- [07:00.639] we're doing something very special. But
+- [07:02.720] it's a special country. Uh you know, we
+- [07:06.319] were losing the Middle East because uh
+- [07:08.319] the past
+- [07:09.560] administration didn't handle the
+- [07:11.599] relationship properly, didn't show the
+- [07:13.840] kind of respect that they deserve. And
+- [07:16.400] me, I have a lot of respect and I have a
+- [07:18.960] lot of liking. I like the crown prince a
+- [07:21.520] lot. I've known him a long time in Saudi
+- [07:24.080] Arabia and the Amir is fantastic and
+- [07:27.280] we're going to another country in a
+- [07:29.199] little while.
+- [07:30.919] UAE fantastic man, fantastic leader and
+- [07:35.759] they have great leadership talents in
+- [07:38.400] this part of the world and that's why
+- [07:39.840] they're doing so well and you probably
+- [07:42.560] read today the story about Iran has sort
+- [07:45.680] of agreed to the terms. uh they're not
+- [07:49.120] going to make I I call it in a friendly
+- [07:51.120] way nuclear dust. We're not going to be
+- [07:52.960] making any nuclear dust in Iran. And uh
+- [07:57.120] we've been strong. I want them to
+- [07:58.560] succeed. I want them to end up being a
+- [08:00.400] great country, frankly. But they can't
+- [08:02.960] have a nuclear weapon. That's the only
+- [08:04.319] thing. It's very simple. It's not like I
+- [08:06.319] have to give you 30 pages worth of
+- [08:07.919] details. There's only one sentence. They
+- [08:10.160] can't have a nuclear weapon. And uh I
+- [08:13.280] think I think we're getting close to
+- [08:15.039] maybe doing a deal without having to do
+- [08:17.840] the there's two steps. There's a very
+- [08:19.919] very nice step and there's a violent
+- [08:21.680] step. The violence like uh people
+- [08:24.160] haven't seen before. And uh I don't I
+- [08:27.840] hope we're not going to have to do this.
+- [08:29.120] I don't want to do the second step. Some
+- [08:30.960] people do. Many people do. I don't want
+- [08:33.279] to do that step. So we'll see what
+- [08:35.519] happens. But we're in very serious
+- [08:37.599] negotiations with Iran for long-term
+- [08:41.200] peace. And if we do that, it'll be
+- [08:43.680] fantastic. And for this country in
+- [08:46.560] particular, because you're right next
+- [08:47.839] door, you're a stones throw away. Not
+- [08:50.480] even, right? You're a foot away. You can
+- [08:52.160] walk right into Iran. Other countries
+- [08:55.200] are much further away. So probably it's
+- [08:57.279] not quite the same level of danger. But
+- [09:00.080] uh we are going to protect this country.
+- [09:02.480] is a very special place with a special
+- [09:04.959] royal family and uh the head of the
+- [09:07.440] royal family is two heads of the royal
+- [09:09.760] family really if you think uh great
+- [09:12.880] great people and they're going to be
+- [09:14.959] protected by the United States of
+- [09:16.800] America and I think we're not going to
+- [09:18.640] have to do it because I I believe very
+- [09:20.720] strongly in peace through strength. Now
+- [09:23.920] we just gave out in the budget a $1
+- [09:26.680] trillion budget which is the biggest
+- [09:29.040] we've ever done. a trillion dollars.
+- [09:30.959] Never never came close to a number like
+- [09:33.200] that. We'd be at
+- [09:35.160] 800 would be at 800 billion would be
+- [09:38.600] at maybe 900 910. We never got anywhere
+- [09:42.560] close to a trillion, but we're doing it.
+- [09:44.720] Hopefully, we will not have to use these
+- [09:46.640] weapons. We make the greatest weapons in
+- [09:48.399] the world. We make the greatest fighter
+- [09:50.000] jets. We make the greatest I guess Larry
+- [09:52.080] would know better than anybody, but we
+- [09:53.920] we make the greatest uh planes in the
+- [09:56.959] world, the greatest missiles and defense
+- [09:59.440] systems. The Patriot system is the best
+- [10:02.800] acknowledged to be. I mean, this isn't
+- [10:04.320] from me. And we have a lot of it now.
+- [10:07.279] It's underwater. And we're coming up
+- [10:10.320] with new systems. And we're coming up
+- [10:12.160] with a new system of drones because
+- [10:14.640] drones are really, if you look at the
+- [10:16.560] war that's going on, it's horrible. But
+- [10:18.800] we are watching it very closely and
+- [10:20.800] drones really seem to be taking over
+- [10:22.480] that war. And so I hope you're going to
+- [10:24.640] come up with some nice inexpensive
+- [10:26.399] engine for a drone so that we don't have
+- [10:28.880] to spend so much. I asked one of the
+- [10:31.600] companies I said I want a lot of drones
+- [10:34.480] and you know in the case of Iran they
+- [10:37.120] make a good drone and they make them for
+- [10:39.920] 35 $40,000. So I said to this company I
+- [10:42.800] want to see they came in two weeks later
+- [10:44.880] with a drone that cost 41 million. And I
+- [10:47.200] said, "That's not what I'm talking
+- [10:48.320] about, 41 million. I'm talking about
+- [10:50.000] something for 35 $40,000 where you send
+- [10:52.480] thousands of them up." And that's a
+- [10:54.480] great way. And they're very good, too,
+- [10:56.000] and fast and deadly. Horrible, actually.
+- [11:00.320] When you look at what's happening with
+- [11:01.839] Russia and Ukraine, the drone is killing
+- [11:05.279] tremendous numbers of people. You hide
+- [11:07.120] behind a tree and the drone comes down
+- [11:08.720] and it circles you with with fire. You
+- [11:11.279] don't have a chance. The tree comes down
+- [11:13.040] also, by the way. It's so intense. It's
+- [11:14.800] the I mean, you see these trees being
+- [11:16.320] knocked down like like they're being
+- [11:18.320] sared down by a top-of-the-line uh
+- [11:21.519] timberman like like you know who Sean
+- [11:25.279] Duffy. Do you know that Shawn Duffy, the
+- [11:27.040] head of the transportation department
+- [11:28.880] who's working right now on the airports
+- [11:30.560] and getting a system because Biden
+- [11:32.800] didn't do a thing for four years and
+- [11:35.279] Pete Budage was the head and he goes
+- [11:38.640] bicycling to work. He takes a bicycle to
+- [11:41.120] work. Can you believe it? He's he's
+- [11:42.560] running the biggest air system in the
+- [11:44.880] world and he takes a bicycle to work.
+- [11:46.560] What a And and they say he's going to
+- [11:48.880] run for president. I don't see it. Who
+- [11:51.680] knows, right? But I don't see it. But uh
+- [11:54.640] when I look at uh what they've done uh
+- [11:58.240] is so horrible what they have done and
+- [12:00.160] the work they did do. They wasted
+- [12:01.600] billions of dollars. They're trying to
+- [12:03.040] hook up air systems to to copper and
+- [12:05.839] they tried to hook up copper to glass
+- [12:08.399] and the glass doesn't work with the
+- [12:09.839] copper. And they had 30,000 different
+- [12:13.680] contractors doing 30,000 jobs. And when
+- [12:16.079] they put it all together, they spent
+- [12:17.600] billions of dollars. It didn't even come
+- [12:20.160] close to working. And we're going to be
+- [12:21.519] giving out a brand new system. It's very
+- [12:23.240] important. We'll have the best system.
+- [12:25.519] And and we think we know who that system
+- [12:27.279] is. But we have a lot of a lot of
+- [12:29.040] bidding. But we want one check. We want
+- [12:30.800] a a unified system. We don't want to
+- [12:32.639] have uh 5,000 contractors in all
+- [12:36.720] different places. Some digging ditches
+- [12:38.480] and some not doing ditches because they
+- [12:40.959] want to go by satellite. Satellite seems
+- [12:42.959] to be the way to go. But uh so we're
+- [12:45.839] going to be giving that out pretty soon.
+- [12:47.440] But but what people don't know about
+- [12:49.279] Shawn because I mentioned lumberjacks
+- [12:52.240] that Sean, you probably didn't know this
+- [12:55.200] that I'm not talking about this Sean.
+- [12:56.639] This Sean No, not this is not this is a
+- [12:58.880] different Sean. Sean Duffy, the head of
+- [13:01.160] transportation. He's a great Sean
+- [13:03.120] though, I have to tell you. But Shawn
+- [13:05.040] Duffy was the world champion for five
+- [13:07.680] years, climbing trees and down, up and
+- [13:10.160] down. World champion. So that's what you
+- [13:12.480] call a serious lumberjack. And he's
+- [13:15.760] doing a fantastic job, too. Really
+- [13:17.760] respected guy and terrific guy. And I
+- [13:20.399] mentioned the champion because when
+- [13:23.120] somebody's a champion, he's the world
+- [13:24.720] champion for long time. He came down
+- [13:28.160] when you come down those trees coming
+- [13:29.760] down at at a rapid. He said that started
+- [13:32.320] getting you back. You will often break
+- [13:34.399] your back. You you miss a you miss a
+- [13:37.120] shot and you're coming down a lot faster
+- [13:38.800] than the human body was meant to come
+- [13:40.639] down. But he's doing a fantastic job at
+- [13:43.800] transportation. But this has been a very
+- [13:46.240] uh historic trip. I watched uh some of
+- [13:50.240] the people talking about it and even
+- [13:53.279] what I would perceive as enemies of
+- [13:54.880] ours, people that are not fair from the
+- [13:57.120] press are saying it's been amazing.
+- [13:59.040] We've raised trillions of dollars in
+- [14:01.839] investments. It's been there's never
+- [14:04.399] been anything like it. And just to
+- [14:06.480] finish, uh, we have a country that now
+- [14:10.240] has, I think, Howard, we can say that,
+- [14:12.880] uh, at least 10 trillion dollars of
+- [14:15.360] investment and potential
+- [14:17.160] investment. And if, uh, the past
+- [14:21.399] administration did a half a trillion
+- [14:23.519] dollars, it was like a lot. But we did
+- [14:25.440] it in two months. Uh, because it's
+- [14:28.000] actually a little more than three
+- [14:29.680] months. But I always say the first month
+- [14:32.160] I had to get a little bit acclimated. So
+- [14:34.639] I didn't really do this the first but
+- [14:36.160] when we started. So we've really been
+- [14:37.839] doing it Susie right for two months. So
+- [14:40.639] in two months we're going to have over
+- [14:42.079] 10 trillion dollars. Nobody's ever come
+- [14:43.920] no country's ever come close to that. No
+- [14:46.560] country. And I want to thank the Amir
+- [14:49.880] because he put up a lot and in terms of
+- [14:53.279] investment it could amount to two
+- [14:55.279] million three million maybe even four
+- [14:56.880] million jobs in the United States. And
+- [14:58.959] more importantly, it's really important
+- [15:00.800] stuff. It's a tremendous refining
+- [15:03.519] capabilities. It's capabilities for very
+- [15:06.639] high-end AI is a big subject and it's a
+- [15:09.519] big subject over here, too. I always
+- [15:11.040] say, what are you investing in? It seems
+- [15:12.639] one thing everybody seems to have in
+- [15:14.800] common is AI. So, I don't know if that's
+- [15:17.360] a good thing or bad. Maybe you shouldn't
+- [15:18.720] do it because too many people are doing
+- [15:20.160] it. Or maybe you should follow the
+- [15:21.839] crowd, fellas. Okay. So, you'll you're
+- [15:24.000] going to figure it out. We have a man
+- [15:26.240] who's uh here who has been unbelievable,
+- [15:30.959] Scott Bessant, who's our Secretary of
+- [15:34.399] the Treasury and who's so respected when
+- [15:37.600] he speaks on television. It's like
+- [15:39.360] everyone just says, "Oh, okay." I had
+- [15:41.920] somebody the other day said, "Well,
+- [15:43.360] Scott Besson said,"I said, "Well, that's
+- [15:45.199] pretty good, Scott." You know, so I'm a
+- [15:47.360] believer. I'm a believer. But when he
+- [15:49.120] when he speaks, the markets really
+- [15:50.839] listen. And the big thing is that uh we
+- [15:53.839] have uh to me the most important thing
+- [15:56.320] of all is that uh forget about the
+- [15:58.720] recent stock market being so good. Much
+- [16:00.720] more importantly we have uh hundreds of
+- [16:03.839] different big companies pouring into
+- [16:06.560] America now creating jobs like we have
+- [16:09.120] never seen before. Now the bad news it
+- [16:11.199] takes a little while for that to you
+- [16:12.959] know when you build your factory and it
+- [16:14.399] takes a year and a half two years and
+- [16:16.560] they're going to build them very fast
+- [16:17.920] and they don't need financing. That's
+- [16:19.440] the nice part. They don't need any
+- [16:20.800] financing. They have plenty of it, but
+- [16:23.360] uh they're building factories at at
+- [16:26.399] levels we've never seen anything like
+- [16:28.160] it. And these are, you know, 10 billion,
+- [16:30.959] 12 billion, 50 billion. I said, how do
+- [16:33.279] you spend 50 billion on a factory? We
+- [16:36.399] have the chip companies coming in from
+- [16:38.199] Taiwan. Uh we have Jensen, as you know,
+- [16:41.199] coming in with 600 billion. We have um
+- [16:45.279] the actually the biggest uh company of
+- [16:47.839] them all. You know all about it. Eight
+- [16:49.440] coming in. That was a big Mr. Weey. I
+- [16:52.560] said, "Uh, Mr. Weey, you're smart man,
+- [16:55.040] aren't you?" I never met him. I said,
+- [16:57.360] "Because I understand you control 99% of
+- [16:59.759] the chips." Oh, yes. Oh, yes, I do. I
+- [17:03.040] said, "That's that's pretty good." I
+- [17:05.679] said, "Is there any way of breaking that
+- [17:07.120] grip?" They said, "It would take you
+- [17:08.319] many years." So, I said, "You know what?
+- [17:10.480] Can't beat him. You join him. But he's
+- [17:12.480] going to be building the biggest factory
+- [17:14.319] anywhere in the world in Arizona and
+- [17:17.439] spending over $200 billion dollars. And
+- [17:20.799] we have Apple, as you know, is coming
+- [17:23.400] in. And I had a little problem with Tim
+- [17:26.160] Cook yesterday. I said to him, Tim,
+- [17:27.839] you're my friend, I treated you very
+- [17:29.200] good. You're coming in with $500
+- [17:30.640] billion, but now I hear you're building
+- [17:32.240] all over India. I don't want you
+- [17:33.520] building in India. You can build an
+- [17:35.039] India if you want to take care of India
+- [17:38.240] because India is the highest one of the
+- [17:40.320] highest tariff nations in the world.
+- [17:42.960] It's very hard to sell into
+- [17:45.240] India. And they've offered us a deal
+- [17:47.520] where we're where basically they're
+- [17:48.880] willing to uh literally charge us no
+- [17:52.960] tariff. So we go from the highest tariff
+- [17:56.080] you couldn't do business in India. We're
+- [17:58.400] not even a top 30 in India because the
+- [18:00.480] tariff is so high to a point where they
+- [18:03.280] have actually told us I assume you too
+- [18:05.840] Scott you were working on that also that
+- [18:08.000] there will be no tariff right would you
+- [18:10.000] say that's a difference they're the
+- [18:11.679] highest and now they're saying no tariff
+- [18:13.280] but I said to Tim I said Tim look we've
+- [18:15.919] treated you really good we put up with
+- [18:17.840] all the plants that you built in China
+- [18:20.799] for years now you got to build us we're
+- [18:23.600] not interested in you building in India
+- [18:26.160] India can take care of themselves
+- [18:27.520] they're doing very well. We want you to
+- [18:29.360] build here and they're going to be
+- [18:31.039] upping their production in the United
+- [18:33.120] States. Apple. So, Apple's already in
+- [18:34.880] for 500 billion, but they're going to be
+- [18:37.520] upping their production. So, it'll be
+- [18:39.360] great. So, I I really think we have uh
+- [18:42.240] we've gone from a laughingstock six
+- [18:44.080] months ago to the hottest country
+- [18:47.600] anywhere in the world. And that's not
+- [18:49.760] just in business, that's in everything
+- [18:51.280] else. And it's psychologically hot, too.
+- [18:54.000] And uh I just want to thank everybody
+- [18:56.080] for being here. I want to thank the
+- [18:57.440] media. The media, I have to say, has
+- [18:59.120] been very fair. They've been very fair.
+- [19:01.520] They've been terrific. Actually, I was
+- [19:03.360] watching some of our normally they would
+- [19:06.240] not say good things, but they're having
+- [19:08.240] a hard time saying bad because this is a
+- [19:10.160] record tour. There's never been a tour
+- [19:11.919] that will raise. It could be a total of
+- [19:14.960] three and a half, four trillion dollars.
+- [19:17.440] This just in this four or five days. And
+- [19:20.720] it's from great people. And our
+- [19:22.799] relationship now is very strong with
+- [19:25.280] Saudi Arabia. Nobody's coming. Nobody's
+- [19:27.360] going to be bothering that relationship.
+- [19:29.039] Nobody would be able to break that
+- [19:30.559] relationship because of my relationship
+- [19:32.960] with the crown prince and the family. Uh
+- [19:35.760] the uh relationship is really strong and
+- [19:39.120] when you talk about Qar the relationship
+- [19:43.120] is uh equal. I mean it's it's just like
+- [19:46.640] nobody's going to break that
+- [19:47.840] relationship. We've never we have never
+- [19:50.160] had a relationship uh with guitar as
+- [19:53.440] strong as it is now. you know that
+- [19:54.960] better than anybody and they're very
+- [19:56.400] happy and we're going to protect you.
+- [19:58.160] We're going to protect you. That's the
+- [19:59.520] one thing you need maybe. But I don't
+- [20:01.440] think you're going to need too much of
+- [20:02.640] that. And I said last night, it was a
+- [20:04.880] great meeting, great everything. They
+- [20:06.160] brought in Lee Greenwood to sing. It was
+- [20:08.640] a beautiful, it was a beautiful evening
+- [20:10.400] and I appreciate it. But I said last
+- [20:12.880] night that Iran is very lucky to have
+- [20:17.200] the Amir
+- [20:18.960] uh because he's actually fighting for
+- [20:20.559] them. He he doesn't want us to do uh a
+- [20:25.559] vicious blow to Iran. He says, "You can
+- [20:29.120] make a deal. You can make a deal." He's
+- [20:30.640] really fighting and and I really mean
+- [20:32.480] this. I think that Iran uh should say a
+- [20:35.600] big thank you to the Amir because the
+- [20:37.919] Amir is fighting very much that we don't
+- [20:39.840] and there are many people that want me
+- [20:41.120] to go the other route. They they say
+- [20:42.720] just knock it out because nobody can
+- [20:44.880] beat us. No, we have the strongest
+- [20:46.640] military in the world by far. Not China,
+- [20:49.760] not Russia, not anybody. We have the
+- [20:52.480] best military equipment in the world and
+- [20:54.400] we have the strongest military in the
+- [20:55.840] world. If you remember
+- [20:57.400] ISIS, General Raisin Kane, right? We
+- [21:00.400] knocked it out in three weeks. Remember
+- [21:01.919] they said it would take four years to
+- [21:03.280] knock out ISIS. We did it in three
+- [21:04.960] weeks. That's because you had the right
+- [21:06.880] leader with a stupid person. You'll, you
+- [21:09.360] know, do it in you'll do it in four or
+- [21:11.280] five years. You won't even do it. You'll
+- [21:12.559] fight for four years and then you'll
+- [21:13.919] leave, you know, like we always do. You
+- [21:15.360] fight fight fight. Uh we had a president
+- [21:18.679] that blew up half the Middle East and
+- [21:21.120] then he left. That was it. You know, was
+- [21:23.200] like spent 10 trillion dollars on
+- [21:25.120] blowing up the Middle East and then he
+- [21:26.720] left. Just said, "Let's leave
+- [21:29.240] now. We're left with nothing." And uh we
+- [21:33.200] don't do that. We we take care of our
+- [21:34.960] friends. And so you have a great ally in
+- [21:38.400] us and there's nobody even close in
+- [21:40.240] terms of military power. There's nobody
+- [21:43.280] close. And I'm not only talking about
+- [21:45.440] nuclear. I don't I don't like to mention
+- [21:47.200] the word because the nuclear is so
+- [21:49.320] destructive that uh you know it brings
+- [21:53.039] you into a different category but we're
+- [21:54.799] number one in nuclear. I rebuilt our
+- [21:56.480] military by the way in my first term. We
+- [21:58.240] I we had a really successful first term.
+- [22:00.320] Then the election was rigged and I had
+- [22:02.400] to wait and it became more historic and
+- [22:04.240] I was able to watch and see. And the
+- [22:06.720] good news is they although it's bad news
+- [22:08.559] in another way but the good news is that
+- [22:10.799] Biden was so bad worst president we've
+- [22:12.799] ever had by far. There was never a
+- [22:15.679] president like this. This man was
+- [22:17.440] grossly incompetent. And now that's been
+- [22:19.880] proven. But people were able to see how
+- [22:22.559] bad it is. And it gave me a mandate. We
+- [22:24.960] won all seven swing states. We won the
+- [22:27.760] popular vote by a lot. We won the
+- [22:29.919] counties by uh
+- [22:35.159] 2,725 to
+- [22:37.799] 505. That's why the map is completely
+- [22:40.799] red. when you look at the map, it was a
+- [22:42.640] it was an obliteration this election and
+- [22:45.760] we got 312 electoral votes. So, it's it
+- [22:49.440] was just an obliteration and that means
+- [22:52.799] mandate and we have a mandate that
+- [22:55.280] nobody's had. They said the most
+- [22:57.280] consequential election and this was a
+- [22:59.919] enemy paper uh the most consequential
+- [23:02.880] election in 129 years. So, it's been a
+- [23:07.640] tremendous trip. I've really liked it.
+- [23:10.159] you know, like this is going uh we're
+- [23:12.960] going 20 hours a day and people say,
+- [23:15.840] "How do you do it?" And I said, "I do it
+- [23:18.000] because I like it. I like it. I like the
+- [23:19.919] people I'm dealing with." I said last
+- [23:21.440] night that we I stood on the line for
+- [23:24.159] seemed like hours. I said hello to
+- [23:26.000] Larry. I said hello to Kelly. I said
+- [23:28.320] hello to your 250 competitors. I said
+- [23:32.000] hello to everybody. And uh that was a
+- [23:35.360] long that was a long sucker, I want to
+- [23:37.120] tell you. They say, "How do you do But I
+- [23:38.960] said I I do it because I like the man
+- [23:40.880] standing on my left and I said it two
+- [23:43.600] nights before about the crown prince but
+- [23:46.720] last night I had the amir and he's
+- [23:49.440] fantastic and I said it's really not
+- [23:51.280] hard you know when you like the people
+- [23:53.360] and when you are doing something we have
+- [23:55.600] a term MAGA make America great again
+- [23:58.240] very simple term and I remember Biden
+- [24:01.039] saying we will not let MAGA take over
+- [24:03.840] this country I said no no you stupid
+- [24:07.840] university. It says make America great
+- [24:10.799] again. It's okay if it takes over the
+- [24:12.480] country. It's called make America great
+- [24:14.640] again. And that's where we are right
+- [24:16.880] now. It's America. We put America first,
+- [24:19.520] but because we're putting it first,
+- [24:21.120] we're doing so well. There's going to be
+- [24:22.480] plenty left over to help the world. And
+- [24:25.120] we can help the world psychologically.
+- [24:27.039] So, we think we're going to do well with
+- [24:28.559] Russia, Ukraine. 5,000 soldiers are
+- [24:30.720] being killed every single week on
+- [24:33.039] average.
+- [24:34.120] 5,000. And they're not from here. And
+- [24:36.960] they're not from the USA. They're from
+- [24:39.600] Ukraine and Russia. So some people would
+- [24:41.919] say, "Why are you bothering?" Because
+- [24:43.279] these are 5,000 young people. Well,
+- [24:46.240] they're getting older because they've
+- [24:47.520] gone through so many that they are
+- [24:48.960] actually getting older. But these are
+- [24:51.120] 5,000 people that leave their home, wave
+- [24:53.200] goodbye to their parents, their parents
+- [24:54.640] are so proud of them, their sisters,
+- [24:56.640] their brothers, and that's the last they
+- [24:58.960] ever see them. They're wiped out. And if
+- [25:01.679] you would see the satellite pictures, I
+- [25:03.440] get satellite pictures of that
+- [25:04.799] battlefield. And I want to tell you,
+- [25:06.880] I've never seen anything like that. I I
+- [25:09.120] wish I never saw it. You have heads and
+- [25:11.919] arms and legs strewn all over the
+- [25:15.240] field. And you just take a look at that.
+- [25:17.679] And you know, when you think 5,000 a
+- [25:20.640] week on average, and that's actually a
+- [25:22.640] note, a low number. So, we're going to
+- [25:25.360] see if we can end that. I was uh
+- [25:27.039] thinking about going, but it's very
+- [25:29.440] tough because of what we're doing today
+- [25:31.039] and tomorrow. But, uh, you know, if
+- [25:34.400] something happened, I'd go on Friday if
+- [25:36.400] it was
+- [25:37.559] appropriate. But, uh, we have people
+- [25:39.679] right now negotiating. And I think that
+- [25:42.240] I just hope that Russia and Ukraine are
+- [25:44.559] able
+- [25:45.320] to do something because, uh, it has to
+- [25:50.200] stop. Not only the money, we we spent
+- [25:52.880] $350 billion dollars there. Just hand
+- [25:55.840] it. Nobody even knows where the money.
+- [25:57.360] They just send them a check. There's no
+- [25:59.520] accounting. There's no one. Just give
+- [26:01.200] him money. Every time this every time he
+- [26:03.600] came, I have to hand it to him. I think
+- [26:04.960] he's the greatest salesman maybe in
+- [26:06.919] history. Every time he came to the
+- [26:09.039] United States, he'd walk away with a
+- [26:10.320] hundred billion dollars. You know,
+- [26:12.240] that's a good salesman, right? Even even
+- [26:14.240] by your standards, he's a big standard
+- [26:16.640] right here. But that's a that's a pretty
+- [26:18.640] good. No, he'd walk in, leave with a
+- [26:21.039] hundred billion dollars. Last time he
+- [26:22.960] didn't do as well. He only got 60
+- [26:25.000] billion. And uh it was so easy. It was
+- [26:28.159] like taking candy from a baby. That was
+- [26:30.320] the last administration. This
+- [26:31.600] administration's been a little bit
+- [26:33.360] tougher, but we'd like to see it uh end
+- [26:36.159] and I think we're going to have a chance
+- [26:37.360] at doing it and would like to see if we
+- [26:39.679] could solve the Iran problem in an
+- [26:42.559] intelligent way as opposed to a brutal
+- [26:44.320] way. There's only two, intelligent and
+- [26:46.240] brutal. Those are the two
+- [26:48.120] alternatives. So, I want to thank
+- [26:50.000] everybody for being here very much and
+- [26:51.600] we're going to take some questions and
+- [26:53.440] perhaps now we'll ask the press to leave
+- [26:55.360] and we're going to see you at the
+- [26:56.480] airfield. We're going to have a display
+- [26:58.559] of American equipment. Okay. Yeah.
+- [27:00.720] Jennifer, go ahead.

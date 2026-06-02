@@ -1,0 +1,256 @@
+<!-- source: https://www.youtube.com/watch?v=xeTKKE9EgZA -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: xeTKKE9EgZA -->
+<!-- date_published: 2026-04-18T03:22:42+00:00 -->
+<!-- date_accessed: 2026-06-02T01:01:20.627933+00:00 -->
+
+# Transcript: President Trump Gaggles with Press on Air Force One En Route Joint Base Andrews, Apr. 17, 2026
+
+- [00:01.160] Mr. President, Mr. President. Hello
+- [00:02.920] everybody. Nice to be with you. We're
+- [00:04.800] landing pretty soon.
+- [00:07.040] We had some pretty good
+- [00:09.160] news 20 minutes ago, but it seems to be
+- [00:11.560] going very well in the Middle East with
+- [00:13.440] Iran.
+- [00:15.000] We'll know over a little period of time.
+- [00:17.400] We're negotiating over the weekend.
+- [00:20.080] And as you know, we have the
+- [00:22.200] blockade. The blockade's been very
+- [00:23.600] successful.
+- [00:25.240] And of equal success has been the
+- [00:28.360] five weeks before the blockade
+- [00:30.000] combination
+- [00:31.560] was pretty lethal, I would say.
+- [00:33.800] So, we're going to be knowing very
+- [00:34.920] shortly.
+- [00:36.360] But we're talking overnight. I expect
+- [00:38.320] things to go well. Many of these things
+- [00:40.160] have been negotiated and agreed to. Sir,
+- [00:42.280] what was the good news that you had 20
+- [00:43.600] minutes ago?
+- [00:44.240] >> Having to do with Iran. Can you tell us
+- [00:46.280] anything about what
+- [00:47.560] >> but you'll hear about it. What are you
+- [00:48.760] going to be talking
+- [00:49.320] >> think it's something that should happen.
+- [00:51.640] It's something that only makes sense to
+- [00:53.160] happen.
+- [00:54.480] And I think it will. We'll see what
+- [00:56.400] happens, but I think it will. Have you
+- [00:57.800] agreed to You told me on the phone
+- [00:59.120] earlier that everything has been agreed
+- [01:00.800] to.
+- [01:01.960] You told me earlier that everything has
+- [01:03.320] been agreed to. Iran was saying
+- [01:05.640] something different. So, what has been
+- [01:07.960] worked out in that time?
+- [01:09.120] >> They say something different because,
+- [01:10.320] you know, they have
+- [01:11.840] people that they have to cater to, also.
+- [01:14.760] I really don't. I'm just doing the thing
+- [01:16.240] that's right. I'm just saying it like it
+- [01:17.760] is.
+- [01:18.520] We have a situation I think that is
+- [01:20.280] going to be
+- [01:22.080] very beneficial. And the main thing is
+- [01:23.720] that Iran will not have a nuclear
+- [01:25.560] weapon.
+- [01:26.600] You cannot let Iran have a nuclear
+- [01:28.200] weapon, and that supersedes everything
+- [01:30.440] else. Are you personally the one that's
+- [01:32.520] making these negotiations? Are you
+- [01:34.040] personally the one that's making these
+- [01:35.960] negotiations move forward? Is it I have
+- [01:37.960] people.
+- [01:39.760] I have people representing me, but I'm
+- [01:40.840] the one that makes the decision. Sir, in
+- [01:42.520] the straight
+- [01:43.840] there have been reports that the
+- [01:45.000] Pentagon's preparing for military action
+- [01:47.160] in Cuba. Are those reports true? Is Cuba
+- [01:49.600] next?
+- [01:52.800] Well, it depends on what your definition
+- [01:54.640] of military action is.
+- [01:56.800] Would it look like Venezuela or Iran?
+- [02:00.640] Really it does. It depends on what your
+- [02:02.400] definition of
+- [02:04.240] military action is, as Bill Clinton
+- [02:06.240] would say.
+- [02:07.400] You understand that? No. A lot of people
+- [02:09.119] don't understand that. Sir, I have a
+- [02:10.880] question about tomorrow. What are your
+- [02:12.720] 9:00 a.m. event tomorrow? What are you
+- [02:14.400] planning to announce tomorrow?
+- [02:15.520] >> something tomorrow and it's a little bit
+- [02:17.000] of a surprise. I think it's a very
+- [02:18.360] positive thing. Something I feel
+- [02:20.720] strongly about. Somebody's coming to the
+- [02:22.480] White House is
+- [02:24.880] very good, very smart, very caring. A
+- [02:27.040] person that cares a lot about the
+- [02:28.440] country.
+- [02:29.640] And beyond. And so we're going to have a
+- [02:31.480] news conference tomorrow. A little
+- [02:32.680] unusual. Saturday morning.
+- [02:35.400] >> Yeah, exactly. No. Well, it will be
+- [02:37.000] ultimately everything is about Iran, I
+- [02:38.520] guess. It all morphs into Iran. You're
+- [02:40.160] going to be asking questions. But uh the
+- [02:42.760] Iran thing is just going well.
+- [02:44.120] Tomorrow's unrelated, but you'll be
+- [02:46.120] probably and it'll be a form of a news
+- [02:48.560] conference.
+- [02:49.959] And I think it's going to be something
+- [02:51.480] very good for our country. Will you
+- [02:53.000] build something at the White House when
+- [02:54.640] this all does end, when the when you are
+- [02:57.480] able?
+- [02:59.560] Well, I'll have a party. Maybe. It'll be
+- [03:01.400] great. Hey.
+- [03:02.600] We've been pushed around by Iran for 47
+- [03:04.840] years, but not anymore. Do you think
+- [03:07.519] that when you say that Iran has agreed
+- [03:08.920] to turn over their nuclear dust, what
+- [03:10.959] does that mean? Are they destroying
+- [03:12.880] their nuclear material?
+- [03:15.360] They're turning it over. Can you walk us
+- [03:16.880] through what that process looks like,
+- [03:18.440] sir? We're taking it. Very simple. Going
+- [03:20.560] in.
+- [03:20.760] >> it. Yeah. With Iran. We're going in with
+- [03:22.920] Iran. Does that mean you have on the
+- [03:24.560] ground to get that?
+- [03:26.720] I don't go up until we do that. We'll
+- [03:27.880] take it after the agreement is signed.
+- [03:30.160] After that, there's a big difference.
+- [03:31.480] Before and after. BC.
+- [03:33.920] It's before and after.
+- [03:35.640] >> Sir, in the strait, are there going to
+- [03:37.120] be restrictions
+- [03:38.239] >> agreement is signed, it's a lot
+- [03:39.160] different than before. We would have
+- [03:40.400] taken it.
+- [03:41.800] If we didn't have an agreement, we would
+- [03:43.160] take it. But
+- [03:44.560] I don't think we'll have to. Sir, in the
+- [03:46.080] strait, are there going to be
+- [03:47.000] restrictions and tolls managed by Iran
+- [03:49.840] for ships and vessels passing through?
+- [03:51.600] No way.
+- [03:52.640] No way.
+- [03:52.840] >> None at all?
+- [03:53.280] >> Nope. No restrictions? No.
+- [03:55.440] Talk to me
+- [03:56.520] Mr. President. Restrictions, yeah, the
+- [03:58.640] restrictions. You can't do the tolls.
+- [04:01.240] No, they're not going to be tolls.
+- [04:03.920] On FISA, Mr. President, Anna Paulina is
+- [04:06.840] pushing to have the Save America Act
+- [04:09.120] linked to FISA and the FISA renewal. Are
+- [04:11.480] you in favor? And I'd love to see that
+- [04:14.160] uh the
+- [04:15.000] Save America Act is so important. It's
+- [04:17.160] so good. It's voter ID. It's, you know,
+- [04:19.560] basic
+- [04:20.640] uh
+- [04:21.840] It's your basics about a democracy.
+- [04:24.720] Voter ID, birthplace, you have to be
+- [04:26.680] born in the United States to vote.
+- [04:29.880] Uh we have no transgender trans- We
+- [04:32.320] added no transgender mutilation of
+- [04:35.600] our children.
+- [04:37.120] Very important. No men in
+- [04:39.360] women's sports. Now, we added that.
+- [04:41.680] Also, we talk about the other top three.
+- [04:44.120] And we put as the three, you know, three
+- [04:45.560] having to do with the vote. We also have
+- [04:47.680] no mail-in ballots other than for the
+- [04:49.440] military,
+- [04:51.240] if you're sick, the military, if you're
+- [04:53.240] away,
+- [04:54.800] if you're disabled, any of those things.
+- [04:57.880] It's pretty generous, actually, but
+- [05:00.160] mail-in ballot, the tremendous cheating
+- [05:01.760] that goes on with mail-in ballots. So,
+- [05:03.760] we would have
+- [05:04.960] no mail-in ballots except for those
+- [05:06.440] various exceptions. Mr. President, does
+- [05:08.240] the ceasefire in Lebanon need to happen
+- [05:10.800] for you to get to a deal with Iran? It's
+- [05:12.919] not really tied,
+- [05:14.440] but you could say maybe psychologically
+- [05:16.440] tied, but we're going to help Lebanon
+- [05:18.080] become a country again. You know, it's
+- [05:19.800] been a long time for them. They've gone
+- [05:21.400] through a lot.
+- [05:22.760] And we're going to help them be a
+- [05:23.880] country again. Are you frustrated with
+- [05:26.120] Netanyahu? While you were negotiating
+- [05:27.840] the ceasefire in the last round, was his
+- [05:30.000] action bombing Lebanon? Did that impact
+- [05:33.000] peace talks? We disagree on some things,
+- [05:35.240] but he's been a very good partner. We
+- [05:36.960] did a good job. There's probably never
+- [05:39.360] been anything like it. He says we were
+- [05:41.520] the senior, and we are the senior. We're
+- [05:43.000] the senior David. We have the greatest
+- [05:44.440] military in the world. I built it in the
+- [05:46.040] first
+- [05:47.080] term. Didn't think I'd be using it this
+- [05:49.120] much, but
+- [05:50.960] we have the greatest military in the
+- [05:52.360] world, greatest equipment, greatest When
+- [05:55.960] you look at it, we had
+- [05:58.040] 101 to 111, depending on your
+- [06:00.880] definition, because some were two They
+- [06:02.520] came out in twos.
+- [06:04.480] Missiles shot at a certain very valuable
+- [06:07.080] asset of ours
+- [06:08.560] that happened to be sitting on the
+- [06:09.640] water. Every single one of those
+- [06:11.160] missiles, we shot them.
+- [06:12.960] Make of it 111 missiles.
+- [06:15.680] Every single one of them was shot down.
+- [06:18.880] Never even got close.
+- [06:20.640] And nobody has
+- [06:22.440] a military like this. Nobody has
+- [06:24.240] equipment like this. Nobody has the
+- [06:25.800] power that we have. So, you said that
+- [06:27.360] the US was going to take the nuclear
+- [06:29.919] dust from Iran. What's the time What's
+- [06:32.520] the timeline on that? How long will that
+- [06:34.200] You want me to give you the time and
+- [06:35.320] date and everything else?
+- [06:36.840] >> like you've been negotiating how long
+- [06:38.560] that process will take.
+- [06:40.120] >> other than
+- [06:41.400] if we sign the agreement, then I can
+- [06:43.760] give you a time somewhere after the
+- [06:45.320] signing of the agreement. We'll go in
+- [06:47.480] with the Iran.
+- [06:48.840] We'll go in with the Iran, and we will
+- [06:50.480] take it together, and we will bring it
+- [06:52.320] back 100% of it back to the United
+- [06:54.880] States.
+- [06:55.840] If we don't do that, we will get it in a
+- [06:58.760] different form, in a much
+- [07:00.960] more unfriendly form. That unfriendly
+- [07:03.320] form
+- [07:04.240] would involve
+- [07:04.640] >> event, excuse me. Excuse me. But in any
+- [07:06.800] event, we'll get it. Go ahead. If you
+- [07:08.120] don't have a deal by Wednesday, when the
+- [07:10.520] ceasefire ends, will you extend the
+- [07:12.160] ceasefire, or will you start attacks
+- [07:14.440] again?
+- [07:14.760] >> I won't extend it. Okay. But the
+- [07:16.760] blockade is going to remain. Will you
+- [07:18.360] have an alternative But maybe I won't
+- [07:19.600] extend it. So, you'll have a blockade,
+- [07:22.480] and unfortunately, we'll have to start
+- [07:23.760] dropping bombs again. Thank you very
+- [07:25.520] much, everybody. Thank you. I think it's
+- [07:26.919] going to happen. What about the UFOs,
+- [07:28.840] Mr. President?

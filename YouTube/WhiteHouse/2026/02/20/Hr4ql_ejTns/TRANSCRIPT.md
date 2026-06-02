@@ -1,0 +1,1008 @@
+<!-- source: https://www.youtube.com/watch?v=Hr4ql_ejTns -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: Hr4ql_ejTns -->
+<!-- date_published: 2026-02-20T19:10:06+00:00 -->
+<!-- date_accessed: 2026-06-02T02:37:36.958693+00:00 -->
+
+# Transcript: President Trump Delivers Remarks, Feb. 20, 2026
+
+- [00:12.210] The President: Wow. Got a lot of people.
+- [00:15.150] That's a new record. We set a record every time.
+- [00:19.340] Well, thank you very much for being here.
+- [00:22.070] The Supreme Court's ruling on tariffs is deeply disappointing,
+- [00:29.340] and I'm ashamed of certain members of the court,
+- [00:32.690] absolutely ashamed for not having the courage
+- [00:35.710] to do what's right for our country.
+- [00:39.020] I'd like to thank and congratulate
+- [00:41.000] Justices Thomas, Alito, and Kavanaugh
+- [00:44.180] for their strength and wisdom and love of our country,
+- [00:49.420] which is right now very proud of those justices.
+- [00:54.600] When you read the dissenting opinions,
+- [00:56.830] there's no way that anyone can argue against them.
+- [01:01.140] There's no way.
+- [01:03.460] Foreign countries that have been ripping us off
+- [01:05.710] for years are ecstatic. They're so happy.
+- [01:11.150] And they're dancing in the streets,
+- [01:12.600] but they won't be dancing for long.
+- [01:15.170] That I can assure you.
+- [01:16.980] The Democrats on the court are thrilled,
+- [01:21.740] but they will automatically vote no.
+- [01:23.240] They're an automatic no.
+- [01:24.470] Just like in Congress, they're an automatic no.
+- [01:28.340] They're against anything that makes America strong,
+- [01:31.340] healthy, and great again.
+- [01:34.150] They also are a, frankly, disgrace to our nation,
+- [01:38.480] those justices. They're an automatic no,
+- [01:41.490] no matter how good a case you have, it's a no.
+- [01:46.210] But you can't knock their loyalty.
+- [01:49.290] It's one thing you can do with some of our people.
+- [01:55.640] Others think they're being politically correct,
+- [01:58.440] which has happened before far too often
+- [02:01.380] with certain members of this court,
+- [02:03.690] and it's happened so often with this court.
+- [02:06.250] What a shame. Having to do with voting in particular,
+- [02:11.290] when in fact they're just being fools and lapdogs for the RINOs
+- [02:15.480] and the radical left Democrats.
+- [02:17.040] And not that they should have anything at all to do with it,
+- [02:21.700] they're very unpatriotic and disloyal to our constitution.
+- [02:25.740] It's my opinion that the court has been swayed
+- [02:28.300] by foreign interests and a political movement
+- [02:31.310] that is far smaller than people would ever think.
+- [02:34.630] It's a small movement. I won by millions of votes.
+- [02:39.740] We won in a landslide.
+- [02:42.670] With all the cheating that went on,
+- [02:43.970] there was a lot of it, but we still won at a landslide.
+- [02:46.340] Too big to rig.
+- [02:48.300] But these people are obnoxious, ignorant and loud.
+- [02:51.000] They're very loud,
+- [02:52.620] and I think certain justices are afraid of that.
+- [02:56.750] They don't want to do the right thing.
+- [02:58.800] They're afraid of it.
+- [03:00.970] This was an important case to me,
+- [03:03.450] more as a symbol of economic national security,
+- [03:08.010] and also I would say just for our country itself,
+- [03:12.850] so important,
+- [03:14.490] because we're doing so well as a country,
+- [03:16.230] we've never done so well.
+- [03:18.110] The good news is that there are methods, practices, statutes,
+- [03:22.920] and authorities as recognized by the entire court
+- [03:27.000] in this terrible decision,
+- [03:29.830] and also as recognized by Congress,
+- [03:31.820] which they refer to that are even stronger
+- [03:34.940] than the IEPA tariffs available to me
+- [03:37.380] as President of the United States.
+- [03:39.190] And in actuality, I was very modest
+- [03:42.210] in my ask of other countries and businesses
+- [03:44.860] because I wanted to do, and it's very important,
+- [03:50.080] I wanted to be very well-behaved
+- [03:53.550] because I wanted to do anything, I didn't want to do anything
+- [03:56.060] that would affect the decision of the court
+- [03:58.980] because I understand the court.
+- [04:01.270] I understand how they're very easily swayed.
+- [04:05.790] I want to be a good boy.
+- [04:08.370] I have very effectively utilized tariffs over the past year
+- [04:13.250] to make America great again.
+- [04:15.680] Our stock market has just recently broken 50,000
+- [04:19.710] on the Dow and simultaneously
+- [04:23.000] and even more amazingly broken 7,000 on the S&P.
+- [04:29.640] Two numbers that everybody thought upon
+- [04:31.720] our landslide election victory could not be attained.
+- [04:37.070] Think of that, nobody thought it was possible
+- [04:39.330] to do it within four years, and we did it in one year.
+- [04:43.920] They said, "You'll never be able."
+- [04:45.260] You go back and you read the geniuses,
+- [04:48.620] read their statements,
+- [04:50.670] all of the Nobel Prize winners in economics,
+- [04:54.960] they said, "No, you couldn't do it in four years."
+- [04:57.640] Well, we didn't do it in four years, we did it in one year.
+- [05:00.980] We broke every record in the book
+- [05:02.620] and we're continuing to do so.
+- [05:05.520] Tariffs have likewise been used to end
+- [05:08.860] five of the eight wars that I settled.
+- [05:11.090] I settled eight wars, whether you like it or not,
+- [05:13.550] including India, Pakistan,
+- [05:15.240] big ones, nuclear, could have been nuclear.
+- [05:18.970] Prime Minister of Pakistan said
+- [05:20.470] yesterday at the great meeting that we had, the Peace Board,
+- [05:27.050] he said yesterday that President Trump
+- [05:29.230] could have saved 35 million lives
+- [05:30.950] by getting us to stop fighting.
+- [05:33.300] They were getting ready to do some bad things.
+- [05:36.670] But they've given us great national security,
+- [05:39.410] these tariffs have, and together with our strong borders
+- [05:42.680] reduced fentanyl coming into our country by 30 percent,
+- [05:47.450] when I use them as a penalty against countries
+- [05:49.960] illegally sending this poison into our country
+- [05:54.360] to poison our youth.
+- [05:56.120] All of those tariffs remain. They all remain.
+- [05:59.260] I don't know if you know that or not.
+- [06:01.400] They all remain.
+- [06:03.090] We're still getting them and we will after the decision,
+- [06:06.220] I guess there's nobody left to appeal to.
+- [06:08.980] But again, those three people, such respect,
+- [06:11.720] I've had a lot of respect for them anyway,
+- [06:13.250] but such great respect.
+- [06:15.590] But other alternatives will now be used to replace the ones
+- [06:18.370] that the court incorrectly rejected.
+- [06:21.370] We have alternatives.
+- [06:23.760] Great alternatives, could be more money.
+- [06:25.880] We'll take in more money,
+- [06:27.900] and we'll be a lot stronger for it.
+- [06:29.510] We're taking in hundreds of billions of dollars.
+- [06:32.440] We'll continue to do so.
+- [06:34.710] To show you how ridiculous the opinion is, however,
+- [06:38.180] the court said that I'm not allowed to charge even $1.
+- [06:41.470] I can't charge $1, can't charge a dollar.
+- [06:46.340] I would've used one penny,
+- [06:47.640] but we don't make the pennies anymore.
+- [06:49.240] We save money. Can't charge $1 to any country under AIIPA.
+- [06:55.530] Not $1. I assume, to protect other countries.
+- [06:59.450] This must have been done to protect those other countries,
+- [07:01.800] certainly not the United States of America,
+- [07:04.850] which they should be interested in protecting.
+- [07:06.820] And that's what they're supposed to be protecting.
+- [07:09.590] But I am allowed to cut off any and all trade or business
+- [07:13.720] with that same country.
+- [07:14.930] In other words, I can destroy the trade.
+- [07:17.040] I can destroy the country. I'm even allowed to impose
+- [07:20.970] a foreign country-destroying embargo.
+- [07:23.860] I can embargo.
+- [07:25.680] I can do anything I want, but I can't charge one dollar.
+- [07:30.250] Because that's not what it says
+- [07:33.170] and that's not the way it even reads.
+- [07:35.710] I can do anything I want to do to them,
+- [07:39.170] but I can't charge any money.
+- [07:42.980] So I'm allowed to destroy the country,
+- [07:44.500] but I can't charge them a little fee.
+- [07:45.890] I could give them a little two-cent fee,
+- [07:49.510] but I cannot charge under any circumstances,
+- [07:52.170] I cannot charge them anything.
+- [07:54.740] Think of that, how ridiculous is that,
+- [07:56.340] I'm allowed to embargo them. I'm allowed to tell them,
+- [07:58.990] "You can't do business in the United States anymore.
+- [08:01.250] We want you out of here."
+- [08:03.830] But if I want to charge them $10, I can't do that.
+- [08:07.580] It's incorrect. Their decision's incorrect.
+- [08:09.820] But it doesn't matter because we have very powerful alternatives
+- [08:13.860] that have been approved by this decision.
+- [08:16.430] They've been approved by the decision for those
+- [08:19.030] that thought they had us.
+- [08:21.480] And they're saying that I have the absolute right to license,
+- [08:25.970] but not the right to charge a license fee.
+- [08:28.280] So think of that, I have the right to license,
+- [08:30.410] which is a very powerful word.
+- [08:32.150] In many ways, license is more powerful than tariffs.
+- [08:34.540] In fact, I was thinking about using it,
+- [08:36.880] but they came up with the idea that I can license
+- [08:40.520] just like the people that were opposing me told them to do,
+- [08:45.300] but not the right to charge a license fee.
+- [08:47.850] Think of that.
+- [08:49.070] Whoever heard of such a thing,
+- [08:50.410] what license has ever been issued
+- [08:52.740] without the right to charge a fee,
+- [08:54.110] you get a license you charge your fee, it's automatic.
+- [08:56.610] But not with this court.
+- [08:58.940] But now the court has given me the unquestioned
+- [09:01.250] right to ban all sorts of things from coming into our country,
+- [09:04.940] to destroy foreign countries, but a much more powerful
+- [09:09.370] right than many people ever thought we even had,
+- [09:13.400] but not the right to charge a fee.
+- [09:15.790] How crazy is that?
+- [09:18.050] Our country is the hottest country
+- [09:20.220] anywhere in the world right now, and it was a dead country one
+- [09:24.210] and a half years ago under an incompetent president.
+- [09:27.570] But now I'm going to go in a different direction,
+- [09:30.870] probably the direction that I should have gone the first time.
+- [09:36.220] But I read the language.
+- [09:37.920] I'm very good at reading language
+- [09:39.300] and it read our way a hundred percent,
+- [09:41.150] but now I'll go the way I could have gone originally,
+- [09:44.820] which is even stronger than our original choice,
+- [09:48.320] as Justice Kavanaugh who'd stock his gun.
+- [09:51.650] So you'd have to see.
+- [09:53.790] I'm so proud of him, wrote in his dissent,
+- [09:58.350] "Although I firmly disagree with the court's holding today,
+- [10:02.380] the decision might not substantially constrain
+- [10:05.160] a president's ability to order tariffs going forward."
+- [10:09.850] So, think of that.
+- [10:13.310] The decision might not substantially constrain,
+- [10:17.340] and it doesn't. He's right.
+- [10:18.670] In fact, I can charge much more than I was charging,
+- [10:22.470] so I'm going to just start,
+- [10:23.760] although I firmly disagree with the court's holding today,
+- [10:27.240] the decision might not substantially constrain
+- [10:31.070] a president's ability to order tariffs going forward.
+- [10:35.050] That's because numerous other federal statutes,
+- [10:38.490] which is so true, authorize the president to impose tariffs
+- [10:42.880] and might justify most,
+- [10:44.610] if not all of the tariffs issued in this case,
+- [10:48.900] even more tariffs actually.
+- [10:51.220] Those statutes include, think of that, those statutes include,
+- [10:56.730] for example, the Trade Expansion Act of 1962, Section 232.
+- [11:03.790] All of these things I know so well.
+- [11:06.170] The Trade Act of 1974, Sections 122, 201, 301.
+- [11:12.470] And the Tariff Act of 1930,
+- [11:15.060] Section 338, all clear, but it's a little bit longer process.
+- [11:19.830] I thought I'd make things simple,
+- [11:22.390] but they didn't let us do that.
+- [11:23.780] I would like to thank Justice Kavanaugh
+- [11:26.040] for, frankly, his genius and his great ability,
+- [11:30.760] very proud of that appointment. In actuality,
+- [11:36.210] while I am sure that they did not mean to do so, the Supreme
+- [11:39.930] Court's decision today made a president's ability
+- [11:43.510] to both regulate trade and impose tariffs more powerful
+- [11:48.090] and more crystal clear, rather than less.
+- [11:51.560] I don't think they meant that.
+- [11:52.950] I'm sure they didn't. It's terrible.
+- [11:58.420] And to think that the Democrats who oppose this only
+- [12:01.710] because they want to go the opposite way.
+- [12:04.160] They'd like to pack the court. They want to put on 21 people.
+- [12:07.020] They want to pack the court, pack the Supreme Court.
+- [12:09.870] Maybe they should do it.
+- [12:11.820] Maybe they would be better off if they did it.
+- [12:14.190] They want to pack the court.
+- [12:16.440] They want to do anything to hurt our country.
+- [12:19.910] There will no longer be any doubt
+- [12:22.240] and the income coming in
+- [12:24.290] and the protection of our companies and country
+- [12:27.080] will actually increase because of this decision.
+- [12:31.490] I don't think the court meant that,
+- [12:32.900] but it's the way it is, based on longstanding law
+- [12:36.820] and hundreds of victories,
+- [12:39.160] and even as I was pointed out before,
+- [12:41.170] even thousands of victories over the years.
+- [12:44.370] To the contrary, the Supreme Court did not overrule tariffs.
+- [12:48.810] They merely overruled a particular
+- [12:50.780] use of IEEPA tariffs,
+- [12:54.320] and essentially it's to use to get a fee.
+- [12:57.360] I can do anything I want with IEEPA,
+- [12:59.990] anything, I just can't charge anybody for it. I can license.
+- [13:05.150] I just can't charge them. It's ridiculous.
+- [13:07.290] But it's okay because we have other ways, numerous other ways.
+- [13:12.480] The ability to block, embargo, restrict, license, or impose
+- [13:18.130] any other condition on a foreign country's ability
+- [13:22.490] to conduct trade with the United States under IEEPA
+- [13:27.460] has been fully confirmed by this decision.
+- [13:30.750] Now there's no doubt
+- [13:31.990] because there were a lot of questions about tariffs
+- [13:34.190] because no president was smart enough to use them
+- [13:36.900] to protect our country from those countries and businesses
+- [13:40.000] that were ripping us off.
+- [13:42.320] You took a look at the deficits
+- [13:43.640] that we had with some of these countries.
+- [13:45.170] It was disgraceful what they got away with for many,
+- [13:47.430] many decades.
+- [13:50.120] But now we know because this decision affirms
+- [13:52.620] all those things that some people weren't sure about.
+- [13:56.690] In order to protect, and it says so,
+- [13:59.580] in order to protect our country,
+- [14:01.730] a president can actually charge more tariffs
+- [14:05.250] than I was charging in the past period of a year
+- [14:10.420] under the various tariffs' authority.
+- [14:13.010] We can use other of the statutes,
+- [14:16.570] other of the tariff authorities,
+- [14:19.740] which have also been confirmed and are fully allowed.
+- [14:25.960] Therefore, effective immediately,
+- [14:28.720] all national security tariffs under Section 232
+- [14:32.100] and existing Section 301 tariffs, they're existing,
+- [14:36.200] they're there, remain in place, fully in place
+- [14:42.290] and in full force and effect.
+- [14:44.720] Today I will sign an order to impose
+- [14:46.670] a 10 percent global tariff under Section 122,
+- [14:50.680] over and above our normal tariffs already being charged.
+- [14:55.400] And we're also initiating several Section 301
+- [14:59.090] and other investigations to protect our country
+- [15:03.050] from unfair trading practices of other countries and companies.
+- [15:09.640] Thank you for your attention to this matter.
+- [15:11.830] And I say quite simply, which I've said for a long time,
+- [15:17.140] make America great again.
+- [15:18.400] And interestingly, we've already made it great,
+- [15:21.390] so I don't have to use that,
+- [15:22.850] but I don't think we'll ever give up on MAGA.
+- [15:24.690] MAGA is always going to be with us.
+- [15:27.340] If you have a few questions, you can let us know.
+- [15:31.410] But just to end, so we're going forward,
+- [15:34.100] we will be able to take in more money
+- [15:37.840] and there'll no longer be doubt because there was always doubt.
+- [15:41.670] I know the people that brought the lawsuit,
+- [15:43.940] and sleazebags, major sleazebags,
+- [15:46.860] but I know them, and they are foreign country-centric.
+- [15:52.520] They were sending things into our country,
+- [15:55.910] and the people representing them knew full well.
+- [15:58.970] But they were sending things into our country
+- [16:01.880] and they were beneficial to other countries,
+- [16:04.310] but very, very bad for us.
+- [16:06.890] And I stopped it and we'll just keep it going.
+- [16:11.440] We have a totally firm decision now.
+- [16:13.770] And I don't think the court meant it,
+- [16:15.810] because the court doesn't show great spirit toward our country,
+- [16:19.930] in my opinion. A lot of bad decisions.
+- [16:22.330] But there are usually ways around it.
+- [16:25.810] This is something, as Justice Kavanaugh said,
+- [16:28.340] we could have done this originally,
+- [16:29.570] but we're doing it now,
+- [16:31.020] and the numbers could be far greater
+- [16:32.830] than the hundreds of billions we've already taken in.
+- [16:35.730] Yeah, please.
+- [16:38.550] The Press: Mr. President, I'm very curious,
+- [16:39.750] you've spoken about --
+- [16:40.970] The President: I didn't call you. In the red?
+- [16:42.220] The Press: Thank you so much, Mr. President.
+- [16:44.030] Justice Thomas and Alito, as you know,
+- [16:45.830] are the most conservative constitutional justices.
+- [16:48.610] Do you think that you'll get to appoint two more justices
+- [16:51.030] later this term with similar ideologies
+- [16:53.280] and what type of vetting process will they go through
+- [16:55.390] to ensure they uphold the constitution?
+- [16:56.810] The President: I don't know, but they're great justices.
+- [16:58.290] That's all I can say,
+- [16:59.520] and I hope they're going to be around a long time.
+- [17:01.290] I hope they're going to stay healthy.
+- [17:02.700] They're great people. They are great,
+- [17:04.150] and Justice Alito too, to add to the group.
+- [17:07.800] These are great men with a great love of our country
+- [17:12.310] and a great understanding of the law.
+- [17:14.670] The Press: Mr. President, are you going to ask Congress
+- [17:17.080] to take additional action on tariffs now?
+- [17:18.650] (inaudible)?
+- [17:19.850] The President: I don't need to. It's already been approved.
+- [17:21.920] I mean, I would ask Congress, and probably get it.
+- [17:24.760] When people look at the real numbers
+- [17:27.440] and you look at hundreds of billions of dollars
+- [17:29.980] that have come into our country.
+- [17:31.840] Yesterday, I was at a steel plant, as you know,
+- [17:34.440] and went to great place, great plant,
+- [17:38.500] great, wonderful people.
+- [17:40.370] And they were telling me -- I said to them --
+- [17:42.830] You were there, a lot of the press in this room.
+- [17:45.060] Of course, I don't think this plane's big enough
+- [17:47.430] to take the press in this room.
+- [17:49.060] But a lot of the press right here, we were in Georgia.
+- [17:53.030] And I said to the owner of -- I made a speech at a factory.
+- [17:56.620] They made steel products, and I said, "How are you?
+- [17:59.880] Nice to meet you. How's business?"
+- [18:02.440] "President, I'd love to kiss you."
+- [18:05.360] This is a very powerful man.
+- [18:06.950] I don't want to be kissed by that man,
+- [18:09.300] but a very powerful, strong man.
+- [18:10.770] He has been in the steel business for many years.
+- [18:12.940] His father started it, and he said,
+- [18:16.440] "Sir, I want to kiss you."
+- [18:17.760] I said, "Why?" He said,
+- [18:19.230] "Because we were down to working one hour a week,
+- [18:22.670] and then you came in and imposed tariffs
+- [18:25.100] and all of that foreign junk
+- [18:27.250] that they were dropping into our country stopped.
+- [18:30.150] And we're now going to double shifts seven days a week,
+- [18:34.150] and we may be very soon going to 24 hours,
+- [18:36.850] around the clock, almost seven days a week."
+- [18:39.870] He said, "Sir, I want to kiss you so badly."
+- [18:42.490] And I said, "No, thank you."
+- [18:44.700] But you know what, and just to finalize it, he said,
+- [18:48.470] "Oh, this is a great place in Georgia."
+- [18:51.170] He said, "All up and down the highway, same exact answer, sir.
+- [18:57.400] We're all going out of business. We're going to go bankrupt.
+- [18:59.780] We're all going out of business.
+- [19:01.620] And now every one of us are thriving
+- [19:03.780] and we're hiring people, like we haven't."
+- [19:06.770] He said, "Like I've never --
+- [19:08.490] " and he's been in business for, I think, 45 years,
+- [19:10.690] "Like we've never hired before."
+- [19:12.660] That's because of tariffs,
+- [19:14.080] and we're going to keep it going the same way,
+- [19:16.080] and you're going to start to see the results in a year
+- [19:18.170] from now when all those factories start
+- [19:19.990] that are under construction right now.
+- [19:21.540] You see all the construction numbers are so good.
+- [19:24.300] Those construction workers are building factories
+- [19:26.590] that are going to be open,
+- [19:27.790] including not only AI, which is big,
+- [19:31.010] but car plants coming in from Canada
+- [19:33.740] who ripped us off at 30 percent of our market.
+- [19:36.370] Mexico ripped us off for a big portion.
+- [19:38.670] Over the years, they've taken our market,
+- [19:41.490] they've taken our cars.
+- [19:43.050] They manufacture them in Japan, Germany, and all over the place
+- [19:46.810] because nobody's standing in this position.
+- [19:49.610] The position I have as President of the United States
+- [19:53.030] had the insight, the --
+- [19:54.470] Well, I don't know what it is, to charge tariffs.
+- [19:59.020] You can make your product outside.
+- [20:00.880] You can put our people out of business.
+- [20:02.550] You can put everybody on the unemployment rolls.
+- [20:06.390] But if you're going to make a car in some other country,
+- [20:08.640] you're going to pay a 15, 20, 30 percent tariff.
+- [20:11.640] And those things would've never happened.
+- [20:13.010] We wouldn't have lost our business.
+- [20:14.310] Same thing with, as an example, Taiwan.
+- [20:17.530] Taiwan came in, they stole our chip business.
+- [20:20.670] They made chips for 30 years longer.
+- [20:23.790] They made chip, chip, chip, and they put our companies --
+- [20:28.910] Intel would be now the largest company.
+- [20:30.980] I saved Intel. I literally saved it
+- [20:33.780] at the beginning of this administration.
+- [20:36.980] And now all those companies in Taiwan
+- [20:40.300] are building factories in Arizona, Texas,
+- [20:43.420] and various other places because they don't want to pay tariffs.
+- [20:46.360] They're all pouring into the United States.
+- [20:49.080] But just like that great patriot said yesterday,
+- [20:52.200] "Sir, what you've done, nobody thought was possible."
+- [20:57.040] And Steve Moore, a highly respected economist,
+- [20:59.970] came into my office yesterday.
+- [21:01.330] He said, "You've done something nobody's ever done.
+- [21:04.110] 22 Nobel Prize winners in economics said,
+- [21:09.030] 'We would right now be in a recession,'
+- [21:12.840] and you said, 'No, we're going to have a booming country.
+- [21:15.220] We're going to have a booming country'.
+- [21:16.770] You were right.
+- [21:17.970] All 22 were wrong, and you were right.
+- [21:21.090] This country's booming, and it's booming
+- [21:23.330] because of the election on November 5th.
+- [21:26.700] And it's booming for another reason.
+- [21:28.150] It's booming because of tariffs."
+- [21:29.450] Yeah, please. Go ahead. You go. Yeah, please. Go ahead.
+- [21:36.000] The Press: Thank you, Mr. President.
+- [21:37.370] What will you say to foreign nations
+- [21:38.810] who seek to renegotiate their deals?
+- [21:40.700] And what did you mean a moment ago
+- [21:42.410] when you said that the Supreme Court
+- [21:43.840] has been swayed by foreign interests?
+- [21:46.370] The President: Well, I think that foreign interests
+- [21:48.210] are represented by people that I believe have undue influence.
+- [21:52.820] They have a lot of influence over the Supreme Court,
+- [21:54.900] whether it's through fear or respect or friendships.
+- [21:59.540] I don't know. But I know some of the people
+- [22:01.410] that were involved on the other side,
+- [22:03.520] and I don't like them.
+- [22:04.750] I think they're real slime balls.
+- [22:06.630] And got to do what's right for the country.
+- [22:09.710] You got to do what's right for the Constitution.
+- [22:11.610] That's why I respect so much
+- [22:14.220] Justice Thomas and Alito, Kavanaugh,
+- [22:18.030] because they not only dissented; their dissent is so strong.
+- [22:21.290] When you read their dissent,
+- [22:22.890] a lot of times you'll read a dissent and it's like, "Well."
+- [22:25.500] You don't know. It could go either way.
+- [22:27.160] There's no other way.
+- [22:28.360] The good news is, it's like Justice Kavanaugh
+- [22:31.470] very strongly said, "You have other ways you can go.
+- [22:34.160] You don't have to go that way. You can go other way.
+- [22:35.770] There are numerous other ways you can go."
+- [22:38.470] And frankly, this should have been done by presidents
+- [22:41.520] many years ago.
+- [22:42.900] They allowed our country to be eaten alive.
+- [22:45.470] We lost 50 percent of our car business.
+- [22:48.320] We used to make cars. We made all the cars.
+- [22:51.040] And then Mexico came, Canada came, Japan and Germany.
+- [22:55.930] But they're all coming back now.
+- [22:57.550] They're all coming back at record levels.
+- [22:59.890] The Press: (inaudible) constitution.
+- [23:02.790] The President: No, you -- please, please.
+- [23:06.230] I'm not talking to you. I don't talk to CNN.
+- [23:10.580] It's fake news. Go ahead.
+- [23:12.160] The Press: Mr. President, yesterday you made the case
+- [23:13.800] that the economy is the hottest it's been in a long time.
+- [23:16.260] January jobs report beat expectations,
+- [23:18.410] CPI report beat expectation, real wages are up.
+- [23:21.740] What would you tell Americans who are worried
+- [23:23.730] that this decision will kind of throw the economy
+- [23:26.040] that you have projected going in the right direction
+- [23:28.330] at a very rapid pace off track?
+- [23:30.180] The President: Well, thank you for the question,
+- [23:31.630] and I will say this.
+- [23:33.580] We really are at a very important point.
+- [23:37.210] I've been waiting for this decision so long.
+- [23:40.310] They could have made this decision a long time ago.
+- [23:43.000] Not complex. They're wrong on it.
+- [23:44.550] It's a ridiculous decision.
+- [23:45.840] But they should have released this a long time ago.
+- [23:48.200] We waited months, and that gave uncertainty.
+- [23:50.780] Now we have certainty, and I think you're going to see
+- [23:53.600] the country get much stronger because of it.
+- [23:55.770] Look, we were ripped off
+- [23:57.060] by almost every country in the world.
+- [23:59.840] If you look at the surpluses.
+- [24:01.790] Almost every country in the world
+- [24:03.660] that did business with us, our people were stupid.
+- [24:06.850] And I blame Presidents for it
+- [24:08.260] because they're ultimately the leader.
+- [24:11.280] We were being ripped off by almost every single country
+- [24:14.740] in the world had massive, some massive surpluses.
+- [24:18.910] China had hundreds of billions of dollars
+- [24:21.250] in surpluses with the United States.
+- [24:22.830] They rebuilt China, they rebuilt the army.
+- [24:25.570] We built China's army by allowing that to happen.
+- [24:27.890] I have a great relationship with President Xi,
+- [24:29.950] but he respects our country now.
+- [24:32.320] Now what we've done, I charged China 20 percent tariff
+- [24:36.740] as a penalty for sending fentanyl in.
+- [24:40.020] And that was 20 times more than they could make
+- [24:42.930] by selling fentanyl.
+- [24:44.130] And I said at some point you're going to say, like --
+- [24:46.530] And they have reduced it.
+- [24:48.250] Fentanyl is down by more than 30 percent coming into our country.
+- [24:51.690] Part of that is a strong border. We have a strong border now.
+- [24:55.250] But thank you. Thank you for your questions.
+- [24:58.940] The Press: Mr. President, sir.
+- [25:00.550] Sir, you warned once in a social media post
+- [25:03.320] that if the Supreme Court did this,
+- [25:05.940] shot down your tariffs,
+- [25:07.610] the US would be "financially defenseless".
+- [25:10.320] Are we financially defenseless right now?
+- [25:11.770] The President: No, because we're doing something
+- [25:13.080] in a different way.
+- [25:14.500] We're doing something in a very powerful way
+- [25:17.300] and we're using things that some people thought
+- [25:19.430] we should have used in the first place.
+- [25:21.470] But it's more complicated. It's a little more complicated.
+- [25:23.970] The process takes a little more time.
+- [25:26.140] But the end result is going to get us more money
+- [25:28.810] and I think it's going to be great.
+- [25:30.140] Yeah, please. Peter, go ahead.
+- [25:32.570] The Press: Thank you, President Trump.
+- [25:34.550] Since Liberation Day, there's about $175 billion
+- [25:38.060] in tariff revenue that is now in limbo.
+- [25:41.490] Do you have to refund $175 billion?
+- [25:43.580] The President: Think of it, Peter.
+- [25:44.780] Very fair question.
+- [25:46.950] They take months and months to write an opinion
+- [25:50.520] and they don't even discuss that point.
+- [25:52.960] We've taken in hundreds of billions of dollars,
+- [25:55.760] not millions, hundreds of billions of dollars.
+- [25:58.810] And so I said, "
+- [26:00.050] Well, what happens to all the money that we took in?"
+- [26:02.380] It wasn't discussed.
+- [26:04.180] Wouldn't you think they would've put one sentence in there
+- [26:06.510] saying that keep the money or don't keep the money, right?
+- [26:10.090] I guess it has to get litigated for the next two years.
+- [26:13.240] So they write this terrible defective decision,
+- [26:17.810] totally defective.
+- [26:20.370] It's almost like not written by smart people.
+- [26:22.950] And what they do? They don't even talk about that.
+- [26:25.300] Your question is very basic. That was the first question
+- [26:27.460] I asked also to make you feel good.
+- [26:28.930] And you say, " What about all the money that we've taken in?"
+- [26:32.040] Sir, they don't discuss that. How crazy is that?
+- [26:37.140] The Press: What you're saying is,
+- [26:38.340] are you saying that you don't plan to honor refunds
+- [26:40.510] for companies that file for them?
+- [26:42.420] The President: I just told you the answer. Right?
+- [26:44.220] I told you the answer. It's not discussed.
+- [26:45.890] We'll end up being in court for the next five years.
+- [26:52.490] Go ahead, Green. Green.
+- [26:53.750] The Press: Thank you, Mr. President.
+- [26:55.740] When you are talking about the relationship with countries
+- [26:58.480] that you have sought trade deals with,
+- [27:00.770] do you anticipate that they will seek to renegotiate those?
+- [27:04.260] What do you say to them?
+- [27:05.610] And do you view this as a potential
+- [27:07.800] undermining power for your negotiation-
+- [27:09.670] The President: We're going straight ahead with 10 percent
+- [27:11.280] straight across the board,
+- [27:12.490] which was the absolute right to do.
+- [27:15.670] And that's taking place.
+- [27:16.910] It's a lot of money coming into our country.
+- [27:19.220] And then during that period of about five months,
+- [27:22.060] we are doing the various investigations necessary
+- [27:25.360] to put fair tariffs or tariffs period on other countries.
+- [27:31.960] So we're doing that, period,
+- [27:33.330] but we're immediately instituting
+- [27:34.980] the 10 percent provision, which we're allowed to do.
+- [27:37.920] And in the end, I think we'll take in more money
+- [27:39.560] than we've taken in before.
+- [27:43.770] The Press: Mr. President, you've used the tariff revenue
+- [27:46.350] to pay for a host of federal policies.
+- [27:49.570] You claim that they'll pay for them.
+- [27:50.920] What happens --
+- [27:52.120] The President: Well, like the farmers,
+- [27:53.360] we took care of farmers.
+- [27:54.650] The farmers were mistreated by foreign countries
+- [27:57.500] very badly, very, very badly.
+- [27:59.710] And last week I gave them $12 billion out of tariff money.
+- [28:04.270] We intend to out of tariff money
+- [28:06.550] 'cause, just so you understand, we have tariffs.
+- [28:10.600] We just have them in a different way.
+- [28:12.520] And now they've been confirmed
+- [28:14.830] by the Supreme Court of the United States.
+- [28:17.000] So there's no longer that question out there
+- [28:19.110] about tariffs.
+- [28:20.360] And we'll be taking in hundreds of billions of dollars.
+- [28:23.200] And countries that have treated us badly
+- [28:25.720] will have to pay a price for treating us badly.
+- [28:28.530] And countries that have been good to us
+- [28:30.620] will be treated very well.
+- [28:32.500] We just left the top person in a place called Vietnam,
+- [28:37.330] just left my office.
+- [28:38.560] Great gentleman, strong and smart.
+- [28:42.200] He said, "I think this means you're allowed to charge us
+- [28:44.520] more tariffs than before."
+- [28:47.110] And Canada said to Jamieson, I might want to say it,
+- [28:52.400] Jamieson, but Canada said,
+- [28:54.630] "I hope you win this decision because if you don't win,
+- [28:56.960] you'll actually be allowed to charge us
+- [28:58.540] with a little additional work higher tariffs."
+- [29:01.700] Jamieson, you want to comment on that?
+- [29:04.920] Jamieson Greer: Yes, sir. So the President's point,
+- [29:07.180] we have a lot of tools out there.
+- [29:08.820] We have section 122, which will be implemented today,
+- [29:11.420] will be signed today and implemented very shortly.
+- [29:14.210] We have section 301 investigations,
+- [29:16.420] which are incredibly legally durable
+- [29:19.150] where we can address, investigate, and address unfair
+- [29:21.760] trading practices that have led to our huge trade deficit.
+- [29:25.320] So you can look forward in the coming days
+- [29:26.850] and weeks to seeing all of that come out.
+- [29:28.760] And we're going to keep continuity in the program.
+- [29:31.250] We're going to keep addressing this
+- [29:32.690] so that the deficit can keep going down that the trend it has
+- [29:35.670] and we can make America Great Again.
+- [29:39.880] The President: Yeah.
+- [29:41.090] The Press: Several of Republicans in Congress
+- [29:43.590] have supported this decision by the Supreme Court,
+- [29:46.420] and Hakeem Jeffries, the Democratic leader,
+- [29:49.200] has called you a wannabe king. Why wouldn't --
+- [29:51.620] The President: That's why we call him a low IQ.
+- [29:53.520] He doesn't even know.
+- [29:55.030] And I watched him the other day interview.
+- [29:56.660] The guy doesn't even know what a tariff is.
+- [29:58.230] The Press: But there's been bipartisan criticism --
+- [30:00.010] The President: No, not bipartisan -- excuse me.
+- [30:01.380] The Press: There's several Republicans have said that.
+- [30:02.800] The President: Yeah, a few people.
+- [30:04.020] The Press: But why wouldn't you just work with Congress
+- [30:05.900] to come up with a plan to push tariffs through?
+- [30:07.960] The President: I have the right to do tariffs
+- [30:09.350] and I've always had the right to do tariffs.
+- [30:11.090] And it's all been approved by Congress,
+- [30:12.880] so there's no reason to do it.
+- [30:14.550] All we're doing is we're going through a little bit
+- [30:16.390] more complicated process, not complicated very much,
+- [30:20.010] but a little more complicated than what we had.
+- [30:22.300] We'll be able to take in tariffs, more tariffs.
+- [30:24.350] And the Congress people-
+- [30:25.630] The Press: The House just voted
+- [30:26.830] down the Canadian tariffs last week.
+- [30:28.260] There's been votes in Senate against it.
+- [30:29.930] The President: Yeah, because we lost two Republicans
+- [30:31.820] or three Republicans because they're not good Republicans.
+- [30:36.670] What you don't say, is that you don't say that we got 215 votes.
+- [30:41.440] The Press: You need 218 for something to pass --
+- [30:42.990] The President: Yeah, sure we do.
+- [30:44.190] We might've lost three votes and we got --
+- [30:47.520] And what was the score on the Republican side?
+- [30:49.330] 215 to 3, right? But you don't say that.
+- [30:51.830] We have great unity.
+- [30:53.250] There's great unity in the Republican Party
+- [30:55.300] and I hope everyone's going to vote Republican
+- [30:57.120] 'cause otherwise you won't have a country left.
+- [30:59.110] 'Cause these people have been destroying.
+- [31:00.560] They are destroying our country. Please.
+- [31:03.220] The Press: Mr. President, the 122 tariffs,
+- [31:05.720] that 10 percent, is that going to be for 150 days
+- [31:09.580] or do you want to charge that indefinitely?
+- [31:11.350] The President: We have a right to do pretty much
+- [31:12.880] what we want to do, but we're going to charge it
+- [31:14.650] starting effectively I think it's three days from now.
+- [31:16.500] Yeah, please.
+- [31:17.780] The Press: Mr. President,
+- [31:18.990] you speak to a lot of factory workers,
+- [31:20.490] a lot of manufacturing workers.
+- [31:22.180] What does the Supreme Court ruling say?
+- [31:24.480] What's that message to those factory workers?
+- [31:26.640] The President: Well, I think the factory workers are happy
+- [31:28.640] because we're now telling them that they're going to --
+- [31:31.170] Look, the man I met with yesterday
+- [31:34.300] who owned a factory was out of business.
+- [31:37.360] He was out of business and now he's employing five times.
+- [31:42.020] In fact, I walked in, he's got a brand new crane.
+- [31:44.850] I said, "How old is that crane?" "We got it in December."
+- [31:46.900] He is allowed to write it off in one way.
+- [31:49.410] The Great Big Beautiful Act gave no tax on tips,
+- [31:53.020] no tax on social security, no tax on overtime.
+- [31:55.910] He said this Great Big Beautiful Bill,
+- [32:00.210] frankly, has been the best thing that's ever happened
+- [32:03.430] for the workers of the --
+- [32:04.650] much more so than for rich people.
+- [32:06.800] The only thing it does for rich people,
+- [32:08.400] it allows them to hire a lot more people.
+- [32:11.120] But when I saw him and then he said,
+- [32:12.870] "It's all up and down the line."
+- [32:14.550] This is a place in Georgia, all up and down,
+- [32:18.090] other factories doing different,
+- [32:19.310] not only steel products, different.
+- [32:21.050] He said, "Every one of us was out of business.
+- [32:24.090] We could barely make it."
+- [32:26.310] Some of them were down to less than an hour a week.
+- [32:28.590] Think of it, one hour a week
+- [32:30.540] to make just a few little trinkets or whatever they make.
+- [32:34.010] Now they're going round the clock.
+- [32:35.400] I had it. A month ago I went to Michigan,
+- [32:39.190] went to Ford,
+- [32:40.640] and I met with Bill Ford, the head of Ford,
+- [32:43.830] and we were in one of the biggest plants,
+- [32:45.610] an original plant from the early 1900s
+- [32:48.180] where, by the way, just I might add this,
+- [32:51.330] it's not really relevant, but it's all relevant.
+- [32:55.110] Murders are down the lowest
+- [32:58.180] since 1900 around the time that he had his plant.
+- [33:02.090] That's 125 years. We have the lowest murder rate.
+- [33:04.750] Okay. And our crime is way down in the country.
+- [33:08.950] The factories that we're talking about,
+- [33:11.410] the people that we're talking about,
+- [33:13.280] they are so thrilled with Trump.
+- [33:15.200] So whether we charge IEEPA tariffs
+- [33:17.420] or whether we charge tariffs under a different section,
+- [33:20.420] that's what we're going to be doing.
+- [33:21.740] There's no way we can -- This is what happened to our country.
+- [33:24.650] This is why we owe $38 trillion,
+- [33:27.360] which we'll get rid of in pretty good course.
+- [33:30.580] We have a very incompetent
+- [33:33.760] Fed chairman who likes high interest rates.
+- [33:36.460] For political reasons, he likes them.
+- [33:38.640] But we're going to have somebody very good.
+- [33:42.140] Interest rates should come down very substantially I think.
+- [33:46.130] We should pay the lowest interest rates on the planet.
+- [33:49.650] There should be no country. And we don't do that.
+- [33:52.310] We're number 38.
+- [33:53.930] This is just bad policy for a long period of time.
+- [33:57.640] But what's happened is we've made America strong again.
+- [34:00.390] We've made America great again. We should pay.
+- [34:03.090] As an example, the country of Switzerland.
+- [34:07.880] We were getting almost no tariffs from then.
+- [34:10.170] We had a $40 billion deficit,
+- [34:13.420] and the Prime Minister called me up.
+- [34:14.910] She said, "But we are a small country,"
+- [34:16.340] 'cause I said,
+- [34:17.600] "We're going to raise it to 39 percent from nothing."
+- [34:21.060] That would've rendered them not very successful as opposed
+- [34:25.430] to right now they're considered elite.
+- [34:27.700] But if we put a tariff, and I realized then she said,
+- [34:31.850] "But sir, we are a small country."
+- [34:33.300] I said, "You're a small country with a big deficit for us.
+- [34:37.000] You're making a lot of money off the United States."
+- [34:39.830] If we do that, a lot of these elite countries,
+- [34:43.390] they're elite because we let them make so much money.
+- [34:46.950] And I want them to do well, but I don't want them to do well
+- [34:51.380] on the backs of the American taxpayers.
+- [34:53.220] So I appreciate your question. Think it's a reasonable answer.
+- [34:57.620] The Press: President Trump,
+- [34:58.920] you saw that you were disappointed with that,
+- [35:00.880] but were you surprised because decision?
+- [35:03.000] What you felt when you --
+- [35:04.530] The President: I was surprised because I thought
+- [35:07.010] that what we did was number one,
+- [35:08.710] according to, I mean, I read the paragraphs,
+- [35:11.480] I read very well, great comprehension.
+- [35:16.310] I read everything there is to read,
+- [35:18.590] and I said, "We can't lose this case."
+- [35:21.490] But we can when judges are political,
+- [35:23.360] when they want to be politically correct,
+- [35:24.940] when they're catering to a group of people in DC maybe.
+- [35:28.010] I don't know what it is, because when you read it,
+- [35:29.770] there's no other interpretation.
+- [35:32.800] There is no other interpretation.
+- [35:35.390] But it's okay because what has come out,
+- [35:37.600] and I'll say it for the third time
+- [35:38.990] and maybe the last time in a while,
+- [35:41.160] is that we've taken the uncertainty of tariffs out
+- [35:44.110] 'cause we had uncertainty. We got sued by sleazebags.
+- [35:47.940] I know them well that are very outside country,
+- [35:51.710] China-centric but outside country-centric
+- [35:55.750] and they're going to end up not doing
+- [35:58.310] as well as they did before. America
+- [35:59.810] America was becoming really, really, we're strong again.
+- [36:03.480] Hey, we have the strongest military.
+- [36:08.160] I rebuilt the military in the first term.
+- [36:11.330] We have the most powerful military.
+- [36:13.010] We make the best equipment and even them we have to,
+- [36:16.560] we could do much better.
+- [36:17.790] We have people that get paid a lot of money to manufacture
+- [36:21.610] Patriot missiles and Javelins and all the different things.
+- [36:24.410] But when you want them, they're too slow.
+- [36:27.220] And we put them on notice and they're going to make --
+- [36:30.140] Our country is building a lot of things right now
+- [36:33.380] and our country is doing really well
+- [36:35.600] and we're going to keep it that way.
+- [36:37.470] The bottom line is that the word certainty
+- [36:40.890] is now in the equation.
+- [36:42.720] Every single thing I said today is guaranteed certainty.
+- [36:46.790] It's been tested as Jameson said, a thousand times.
+- [36:51.320] Literally, I said hundreds of times.
+- [36:53.240] He said, "Sir, actually, thousands of times."
+- [36:55.810] And one, in all of the courts
+- [36:57.980] and we're just going back to that.
+- [36:59.950] And the problem is that we had other presidents
+- [37:03.350] that weren't into trade.
+- [37:07.440] Maybe they weren't business oriented.
+- [37:09.230] Maybe they weren't smart.
+- [37:10.980] We had some dummies too.
+- [37:12.650] I respectfully say we had some real dummies.
+- [37:15.830] So we are going to keep it going just as before,
+- [37:20.020] probably more so.
+- [37:21.470] But it's you're no longer going to be asked.
+- [37:23.400] Every time I got up you'd ask,
+- [37:25.420] "Well, what happens if you can't charge tariffs?"
+- [37:27.630] Now we can.
+- [37:29.010] And by the way, in their decision they specifically said,
+- [37:32.150] "We can do these. We have alternatives." Yeah.
+- [37:35.170] The Press: David.
+- [37:36.400] On the trade deals that were negotiated using IEEPA tariffs,
+- [37:40.880] do those stand now or they have to be redone?
+- [37:43.430] The President: Well, some of them stand,
+- [37:44.730] many of them stand, some of them won't.
+- [37:46.730] And they'll be replaced with the other tariffs.
+- [37:50.250] The Press: The Supreme Court Justices
+- [37:52.050] who ruled against the policy striking it down,
+- [37:55.620] are they still invited to your State of the Union next week?
+- [37:58.370] And will you speak with them?
+- [37:59.680] The President: They are invited. Barely. Barely.
+- [38:05.600] Three are happily invited.
+- [38:07.040] No, no, they're barely, they're barely invited.
+- [38:10.270] Honestly, I couldn't care less if they come.
+- [38:12.650] Okay.
+- [38:15.380] Go ahead.
+- [38:16.600] The Press: Thank you, Mr. President.
+- [38:17.970] On the trade deal, which is the framework
+- [38:20.530] which is to be signed with India sometime soon.
+- [38:24.220] Will that stand now and on the decision --
+- [38:25.910] The President: Nothing changes.
+- [38:27.110] The Press: Nothing changes?
+- [38:28.340] The President: No, nothing changes.
+- [38:29.550] They'll be paying tariffs and we will not be paying tariffs.
+- [38:32.130] Our deal with India is they pay tariffs.
+- [38:33.920] This is a reversal from what it used to be as you know.
+- [38:36.990] India, And I think Prime Minister Modi
+- [38:39.710] is a great gentleman, a great man actually.
+- [38:43.020] But he was much smarter than the people
+- [38:45.980] that he was against in terms of the United States.
+- [38:49.460] He was ripping us off and India,
+- [38:51.870] so we made a deal with India and it's a fair deal now.
+- [38:54.160] And we are not paying tariffs to them
+- [38:56.810] and they are paying tariffs. We did a little flip.
+- [39:04.940] No, the India deal is on. Yeah.
+- [39:07.440] All the deals are on.
+- [39:08.680] We're just going to do it a different way.
+- [39:10.040] The Press: Mr. President,
+- [39:11.250] thank you so much, Mr. President.
+- [39:12.480] I think there's another war that you stop
+- [39:14.340] and you should take a credit, which is in Syria.
+- [39:17.240] Secretary Rubio, after his meeting in Munich
+- [39:19.500] with the Syrian foreign minister
+- [39:21.000] and the Kurdish General Mazloum Abdi,
+- [39:22.880] he said that President Trump was directly involved
+- [39:25.260] with the efforts to stop the fighting
+- [39:26.780] between the Kurds and the Syrians.
+- [39:28.750] How will your administration
+- [39:30.700] make sure that this peace is sustained
+- [39:32.740] and do you support the idea of --
+- [39:34.020] The President: Well, it's a very different topic,
+- [39:35.600] so I don't want spend a lot of time.
+- [39:36.860] But all I can say is that the president of Syria,
+- [39:39.700] who I essentially put there, is doing a phenomenal job.
+- [39:43.620] He's a rough guy. He's not a choir boy.
+- [39:47.220] A choir boy couldn't do it.
+- [39:48.870] But Syria is coming together, really coming together well,
+- [39:52.560] and thus far he's been very good to the Kurds.
+- [39:55.320] Yeah.
+- [39:57.930] The Press: Mr. President, what's your message
+- [39:59.410] to the Iranian people after two rounds of talks with them?
+- [40:01.710] Do you have any message to the Iranian people?
+- [40:04.260] The President: The Iranian people in Iran or people here?
+- [40:06.870] The Press: People in Iran.
+- [40:10.920] The President: They better negotiate a fair deal.
+- [40:15.070] The people of Iran are a lot different
+- [40:16.900] than the leaders of Iran
+- [40:18.810] and it's very, very, very, a sad situation.
+- [40:22.510] But 32,000 people were killed
+- [40:25.740] over a relatively short period of time.
+- [40:28.170] They were going to hang 800 two weeks ago.
+- [40:30.770] Hang, hang, some by crane.
+- [40:33.870] They lift them up with a tall crane
+- [40:35.940] and they play them around the square.
+- [40:37.970] They were going to hang 837 people.
+- [40:41.000] And I gave them the word, "If you hang one person,
+- [40:44.180] even one person
+- [40:45.800] that you're going to be hit right then and there."
+- [40:47.920] I wasn't waiting two weeks and negotiating
+- [40:50.740] and they gave up the hanging. They didn't hang 837.
+- [40:53.790] Supposedly they didn't hang anybody.
+- [40:56.390] But no, I feel very badly for the people of Iran.
+- [40:59.030] They've lived in hell. Please.
+- [41:00.350] The Press: Thank you, sir.
+- [41:01.590] Mr. President, you mentioned multiple times foreign influence
+- [41:05.230] over the Supreme Court. Do you have evidence of that?
+- [41:08.140] And if not, will you investigate that?
+- [41:09.560] The President: You're going to find out.
+- [41:10.770] You're going to find out.
+- [41:13.150] The Press: What alternatives are you going to
+- [41:14.570] put into place in your relationship with Europe
+- [41:17.190] and also those tariffs that has been called illegal?
+- [41:21.960] How they're going to go impact the relationship with Russia
+- [41:24.810] that you sanction some countries-
+- [41:26.260] The President: Well, I want Europe to strengthen up.
+- [41:28.390] Europe has gone woke. Europe is not recognizable
+- [41:31.570] when you go into so many places, not all countries.
+- [41:34.000] You look at Hungary, you look at Poland, Czech,
+- [41:42.380] Slovakia, there are some countries
+- [41:45.190] that have gone very much the opposite and some others.
+- [41:50.190] But Europe has to be strong
+- [41:51.960] and they've become soft and not recognizable.
+- [41:56.340] You go into some of the countries,
+- [41:57.690] I don't want to be specific,
+- [41:58.960] but I think everyone knows what I'm talking about,
+- [42:01.830] and they're not recognizable.
+- [42:05.970] The environmentalists have taken over.
+- [42:08.630] They've got windmills destroying their fields,
+- [42:11.050] and their beautiful meadows and their oceans
+- [42:14.140] and they're paying a fortune. Now, Europe has to get smart.
+- [42:19.400] Europe's getting killed on two things,
+- [42:21.030] energy and immigration.
+- [42:23.260] And if they don't solve both of them fast,
+- [42:26.650] Europe is not the same place. Yeah, please.
+- [42:28.330] The Press: Mr. President, Justices Gorsuch and Barrett,
+- [42:31.830] are you surprised in particular by their decision today?
+- [42:33.660] The President: I am.
+- [42:34.900] The Press: And do you regret nominating them?
+- [42:36.390] The President: I don't want to say
+- [42:37.660] whether or not I regret it.
+- [42:38.860] I think their decision was terrible. Yeah.
+- [42:44.070] I think it's an embarrassment to their families,
+- [42:46.540] you want to know the truth. The two of them. Yeah.
+- [42:52.910] The Press: Mr. President, specifically
+- [42:54.110] on the $2,000 tariff (inaudible) --
+- [42:55.370] The President: Say it again, please.
+- [42:56.610] I didn't call you. I didn't call you.
+- [42:57.900] The Press: Yeah, Mr. President, to be clear, do you believe
+- [42:59.470] at the end of implementing these new tariff tools,
+- [43:02.580] the tariff rate and tariffs will ultimately be higher
+- [43:04.430] than they currently are?
+- [43:05.630] The President: Potentially higher.
+- [43:06.850] The Press: How much higher?
+- [43:08.140] The President: It depends, whatever we want them to be.
+- [43:09.840] But we want them to be fair for other countries.
+- [43:11.940] And we have some countries that have treated us
+- [43:14.190] really badly for years
+- [43:16.640] and it's going to be high for them.
+- [43:18.140] And we have other countries that have been very good
+- [43:20.330] and it's going to be very reasonable for them.
+- [43:23.680] The Press: Specifically on the tariffs question,
+- [43:25.210] I mean on the $2,000 --
+- [43:26.420] The President: I didn't call you.
+- [43:27.750] I didn't call you.
+- [43:28.980] The Press: Mr. President. Thank you, Mr. President.
+- [43:30.570] Do you have any plans to travel to India for the Quad Summit
+- [43:33.170] and how do you think your relationship with India
+- [43:34.910] is right now?
+- [43:36.120] The President: I think my relationship
+- [43:37.330] with India is fantastic
+- [43:39.570] and we're doing trade with India.
+- [43:41.360] India pulled out of Russia.
+- [43:42.840] India was getting it's oil from Russia, right?
+- [43:48.460] And they pulled way back at my request
+- [43:50.580] because we want to settle that horrible war
+- [43:52.290] where 25,000 people are dying every month.
+- [43:55.210] And my relationship with Prime Minister Modi is,
+- [43:58.810] I would say, great.
+- [44:00.040] I also stopped a war between India and Pakistan, as you know.
+- [44:03.930] There were 10 planes was shot down.
+- [44:06.340] That war was probably going nuclear.
+- [44:10.160] And just yesterday the prime minister of Pakistan said,
+- [44:14.050] "President Trump saved 35 million lives
+- [44:18.520] by getting them to stop."
+- [44:21.430] And I did it largely with tariffs.
+- [44:22.940] I said, "Look, you're going to fight, that's fine,
+- [44:24.550] but you're not going to do business with the United States
+- [44:26.380] and you're going to pay a 200 percent tariff, each country."
+- [44:30.810] And they called up and they said,
+- [44:32.800] "We have made peace." Okay?
+- [44:36.430] I just want to thank you all.
+- [44:37.650] Look, great certainty has been brought back
+- [44:40.360] to the economy of the United States
+- [44:44.020] and actually the economy of the world
+- [44:45.770] because we generate so much in the world.
+- [44:47.660] We're the biggest in the world
+- [44:49.300] and we're now the strongest by far.
+- [44:50.880] We were a country that was dead one and a half years ago.
+- [44:53.750] Now we have the hottest country in the world.
+- [44:55.350] We're going to keep it that way. Thank you very much everybody.

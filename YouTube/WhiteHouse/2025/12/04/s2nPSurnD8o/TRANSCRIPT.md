@@ -1,0 +1,654 @@
+<!-- source: https://www.youtube.com/watch?v=s2nPSurnD8o -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: s2nPSurnD8o -->
+<!-- date_published: 2025-12-04T19:04:24+00:00 -->
+<!-- date_accessed: 2026-06-02T02:40:47.356153+00:00 -->
+
+# Transcript: President Trump Participates in a Signing Ceremony with the Presidents of Rwanda and Congo
+
+- [00:00.000] Announcer: Ladies and gentlemen,
+- [00:01.501] please welcome the President of the United States,
+- [00:04.003] the President of the Republic of Rwanda,
+- [00:06.272] and the President of the Democratic Republic
+- [00:08.508] of the Congo.
+- [00:10.744] (applause)
+- [00:35.168] The President: Well, thank you very much.
+- [00:36.870] Wow. This is a nice building, I have to tell you.
+- [00:41.808] So this is a special occasion for a lot of reasons,
+- [00:44.577] but number one is it's our first occasion in this building
+- [00:48.982] using it for peace.
+- [00:50.917] And it's all about peace, and it's a great honor.
+- [00:54.320] And Marco, you've done a fantastic job
+- [00:56.289] in getting it ready,
+- [00:57.657] but it's a spectacular building and we all appreciate it.
+- [01:02.996] And very importantly, we're settling a war
+- [01:05.832] that's been going on for decades with millions
+- [01:09.969] and millions of people killed.
+- [01:13.173] And these two gentlemen spent a lot of time backstage
+- [01:17.076] talking to each other and over at the Oval Office.
+- [01:19.245] We were at the Oval Office together, it was beautiful.
+- [01:22.315] And I think it's just a very important day.
+- [01:25.718] And we have other leaders from other countries,
+- [01:27.520] and you said such beautiful things.
+- [01:29.456] I'd love to have you come up.
+- [01:30.857] We'll finish up and then I'd love to have you come up
+- [01:33.393] and if you can issue the words that you just issued backstage.
+- [01:37.897] It usually doesn't work, you know.
+- [01:39.766] It usually never happens.
+- [01:41.067] I said they said it much better before,
+- [01:42.869] but you will probably do better up here.
+- [01:45.505] But I'd love to have you say how you felt,
+- [01:48.608] because it is an amazing day.
+- [01:50.777] Great day for Africa, great day for the world
+- [01:53.947] and for these two countries,
+- [01:55.281] and they're they have so much to be proud of.
+- [01:58.017] And I want to thank the leaders. I want to thank you very much.
+- [02:01.621] It means maybe more because we are
+- [02:05.091] Here together for the first time ever in this building.
+- [02:07.660] Brand new, beautiful building.
+- [02:08.895] I can't I don't want to tell you how much it costs
+- [02:10.964] because I hear it's a lot.
+- [02:13.132] Okay. They don't build inexpensively here.
+- [02:16.302] But I just want to thank you very much.
+- [02:18.671] So please sit down, everybody.
+- [02:22.375] I want to thank everybody for being here.
+- [02:25.245] It's a momentous occasion. It's truly incredible setting.
+- [02:30.350] It's very few places I've seen like this.
+- [02:34.220] In this holy season, we prepare to celebrate
+- [02:36.623] the birth of the Prince of Peace.
+- [02:39.726] We have come to the US Institute of Peace
+- [02:43.496] to sign a historic agreement that will end one of the longest
+- [02:46.499] running conflicts anywhere in the world,
+- [02:49.269] with far more than ten million people killed.
+- [02:53.039] Today we commit to stopping decades of violence
+- [02:55.008] and bloodshed
+- [02:56.309] and to begin a new era of harmony and cooperation
+- [02:59.212] between the Democratic Republic of the Congo and Rwanda.
+- [03:04.717] I want to thank the two courageous leaders.
+- [03:07.020] They are courageous leaders.
+- [03:08.922] They really are courageous leaders, great people.
+- [03:12.258] President Tshisekedi of the Democratic Republic
+- [03:17.297] of the Congo and President Kagame of Rwanda.
+- [03:23.136] They are amazing people
+- [03:27.707] and they had stories to tell me that were incredible.
+- [03:31.477] Really fascinating in so many different ways.
+- [03:34.981] Sad and beautiful, both sad and beautiful,
+- [03:38.818] and today makes them beautiful.
+- [03:40.987] I've just held really fantastic meetings with both men
+- [03:45.858] and representatives of other countries
+- [03:48.628] where we discuss the importance of upholding this new agreement.
+- [03:53.199] Very detailed, powerful agreement.
+- [03:56.436] I also want to thank several foreign guests
+- [03:58.471] and dignitaries in attendance
+- [04:00.840] to celebrate this magnificent event,
+- [04:03.343] including the president of Angola.
+- [04:05.979] Please would you stand and so great to see you,
+- [04:09.616] thank you.
+- [04:10.917] (applause)
+- [04:14.387] The president of Burundi, thank you very much.
+- [04:18.791] Great to see you again.
+- [04:20.526] (applause)
+- [04:22.795] The President of Kenya. We have the Olympics here.
+- [04:28.601] You know, they do very well in the Olympics, those runners.
+- [04:31.804] I don't know what the heck you do with those runners,
+- [04:34.140] but they are very good.
+- [04:36.376] I've been watching them for a long time.
+- [04:38.044] So we have the Olympics coming to the United States,
+- [04:40.546] you know that. Thank you very much.
+- [04:41.814] And you'll come as our guest. Thank you.
+- [04:44.550] And the president of the Council of Ministers of Togo.
+- [04:50.089] Thank you. Thank you very much.
+- [04:52.058] (applause)
+- [04:54.027] The Vice President of Uganda. Thank you.
+- [04:59.532] (applause)
+- [05:02.068] It's such a beautiful color.
+- [05:03.403] Like all these guys are wearing these dark suits.
+- [05:06.005] You just stand out for a lot of reasons.
+- [05:09.676] Beautiful. The foreign ministers of Qatar.
+- [05:15.448] Thank you. Thank you very much. Say hello to my friend.
+- [05:20.553] Great man. And the United Arab Emirates.
+- [05:25.658] Thank you. Thank you. My regards, right?
+- [05:31.964] And the chairman of the African Union Commission,
+- [05:35.702] who's done a fantastic job, and thank you for all your help.
+- [05:39.205] We appreciate all your help. Special group of people.
+- [05:43.476] A very special thanks as well to Secretary of State Marco Rubio.
+- [05:47.647] Marco, please stand. Thank you.
+- [05:50.550] (applause)
+- [05:53.252] And thank you for putting a certain name on that building.
+- [05:55.755] I came, I said boy, that is beautiful.
+- [05:57.523] That blew up last night.
+- [05:59.525] They said that's a great honor. It really is.
+- [06:01.928] So this building, it's a great honor.
+- [06:03.362] Thank you very much. I assume you had a lot to do with that.
+- [06:06.899] Just a little bit. Yeah. Thank you. Appreciate it.
+- [06:10.303] And senior advisor for Africa, Masad Bulos,
+- [06:13.773] who's been fantastic. Thank you, Massad.
+- [06:16.242] (applause)
+- [06:17.543] All of these people, every one of them were indispensable
+- [06:20.446] in forging this agreement.
+- [06:21.647] Let me also recognize Senators Mike Rounds and Lindsay Graham.
+- [06:26.819] Lindsay, thank you. Mike, wherever you may be.
+- [06:29.789] Thank you. Thank you, Mike.
+- [06:32.525] Representatives Ronnie Jackson, where's Ronnie?
+- [06:35.795] Ronnie is that great guy.
+- [06:38.664] He won his race in Texas by forty-eight points, right?
+- [06:43.069] So I don't have to ask if he's in any --
+- [06:44.604] I don't even have to endorse him anymore.
+- [06:46.139] It doesn't matter. Save the paper, right?
+- [06:48.775] Great job. Chris Smith. Chris?
+- [06:52.879] Thank you, Chris. Great. Good job. Trent Kelly.
+- [06:57.917] Trent, thank you very much. Thank you.
+- [07:01.621] And the acting president of the Institute for Peace,
+- [07:05.525] Darren Beattie. Thank you, Darren, very much.
+- [07:09.228] Thank you very much, Darren. For more than thirty years,
+- [07:12.965] one of the worst conflicts on earth
+- [07:14.801] has been raging in Eastern Congo.
+- [07:18.704] Millions and millions of people have been tragically killed.
+- [07:22.675] Went on forever.
+- [07:24.110] And countless more have been displaced from their homes.
+- [07:27.013] Families have been destroyed. It's been a disaster.
+- [07:30.416] Many administrations have tried, but probably not too hard,
+- [07:35.221] knowing who preceded me.
+- [07:38.524] But they tried. It says they've tried.
+- [07:41.260] But we tried harder to end this conflict.
+- [07:44.864] But they've accomplished, obviously they accomplished
+- [07:48.167] very little because the killing went on at levels
+- [07:50.469] that just got worse and worse.
+- [07:52.572] And today we're succeeding where so many others have failed,
+- [07:56.175] and this has become the eighth war that we've ended.
+- [07:59.579] In less than one year. Such an exciting thing to do.
+- [08:02.615] This has been a really
+- [08:04.517] because we're talking about 30 years of fighting.
+- [08:06.819] Thirty years, much more than 10 million lives.
+- [08:10.656] Last June, thanks to the efforts of Secretary Rubio
+- [08:14.360] and Mr. Bulos, Rwanda
+- [08:17.230] and the DRC reached a landmark agreement
+- [08:20.366] to move toward peace. They started the process.
+- [08:24.136] I met with some of their great representatives
+- [08:26.272] who are here also.
+- [08:28.274] And we started a great process. The compact we're signing today,
+- [08:32.778] which will be known as the Washington Accords,
+- [08:35.781] everybody sort of liked that name,
+- [08:38.217] formalizes the terms agreed to in June,
+- [08:41.220] including a permanent ceasefire,
+- [08:42.989] the disarmament of non-state forces,
+- [08:46.058] provisions for refugees to return to their homes,
+- [08:49.195] and justice and accountability
+- [08:51.297] for those who have committed illegal atrocities.
+- [08:55.968] Very importantly, this agreement also creates
+- [08:58.004] a new framework for economic prosperity.
+- [09:00.239] There's tremendous wealth in those in that beautiful earth.
+- [09:04.343] It's beautiful earth.
+- [09:05.978] But it was stained badly with blood,
+- [09:08.981] tremendous amounts of blood.
+- [09:11.117] But in the region that will support a lasting peace,
+- [09:13.853] and the Democratic Republic of the Congo and Rwanda
+- [09:17.323] have agreed to more closely integrate their economies
+- [09:21.160] with each other rather than fighting.
+- [09:22.995] And they'll be doing that.
+- [09:24.230] And these two gentlemen are very smart
+- [09:27.099] and I think they liked each other a lot.
+- [09:30.870] I spent time with them.
+- [09:32.738] I think they liked the I some people may be surprised.
+- [09:34.974] I really do.
+- [09:36.242] I think they they've spent a lot of time killing each other.
+- [09:42.982] And now they're going to spend a lot of time hugging,
+- [09:45.584] holding hands,
+- [09:46.886] and taking advantage of the United States of America
+- [09:49.822] economically like every other country does.
+- [09:52.858] So they're going to do very well,
+- [09:54.994] but they do have some valuable, some very valuable things.
+- [09:58.464] They're going to have a lot of money and a lot of success,
+- [10:01.767] and I think they're going to get along really well,
+- [10:03.769] so I hope so. Thank you very much.
+- [10:06.138] Look at them, look at the way they love each other.
+- [10:12.178] Thank you.
+- [10:13.446] (applause)
+- [10:16.182] So I have a lot of confidence in both leaders.
+- [10:19.719] We'll keep these commitments.
+- [10:21.620] I know they're going to keep them
+- [10:22.989] and follow through on the agreement
+- [10:24.423] and create a much brighter future
+- [10:26.659] for the people of their countries,
+- [10:28.661] and they're heroes within their countries because of today.
+- [10:31.163] A lot of this is a big story.
+- [10:33.599] And so much is being written and said,
+- [10:37.069] all of the newscasts have it at the top of the list,
+- [10:40.773] and they are heroes, and we want to keep it that way.
+- [10:44.477] Today the United States is also signing
+- [10:46.512] our own bilateral agreements with the Congo and Rwanda
+- [10:49.615] that will unlock new opportunities
+- [10:51.984] for the United States to access critical minerals
+- [10:55.421] and provide economic benefits for everybody.
+- [10:59.325] And we'll be involved with sending some of our biggest
+- [11:01.927] and greatest companies over to the two countries
+- [11:07.299] and we're going to take out some of the rare earth
+- [11:10.936] and take out some of the assets and pay
+- [11:13.639] and everybody's going to make a lot of money.
+- [11:17.009] These are just two of the many new agreements
+- [11:18.911] related to mineral supplies
+- [11:20.846] that my administration has achieved this year,
+- [11:22.948] including with Australia, Japan, Kazakhstan,
+- [11:27.520] Malaysia, South Korea, and many other countries.
+- [11:32.458] With all of these agreements,
+- [11:33.826] we're forging new economic security partnerships
+- [11:36.896] that protect the interests of America
+- [11:38.831] and our friends and partners, and a core feature
+- [11:41.700] of my administration's national security strategy,
+- [11:44.403] a big part of which is the tariffs.
+- [11:46.305] We're taking in trillions of dollars in tariffs.
+- [11:49.375] Nobody's ever seen anything like it,
+- [11:50.943] and it's given us really great national security.
+- [11:55.548] We'll be paying down debt,
+- [11:57.183] we'll be making distributions to people,
+- [12:00.986] and we're really we're really doing a job.
+- [12:05.057] It's amazing.
+- [12:06.258] I was with a gentleman, the future king of Saudi Arabia,
+- [12:11.730] and you've heard me say this a couple of times.
+- [12:14.834] But two months ago when I was over there,
+- [12:18.104] he said and actually Qatar is represented today,
+- [12:21.640] and you UAE is represented,
+- [12:24.210] and your leader said the exact same thing, different words,
+- [12:26.679] but the exact same thing that one year ago
+- [12:30.382] they thought our country was dead.
+- [12:32.751] And now our country is the hottest country
+- [12:34.386] anywhere in the world.
+- [12:35.621] We're the hottest country anywhere in the world.
+- [12:37.356] Nobody's ever seen anything like it.
+- [12:39.825] We have over $18 trillion. This is just in ten months.
+- [12:44.930] Pledged or being invested
+- [12:46.899] or pledged to be invested in the United States.
+- [12:49.535] Think of that, eighteen trillion.
+- [12:51.637] The highest amount we've ever had is one and a half.
+- [12:54.673] Under the Biden administration,
+- [12:56.208] they did much less than one in four years.
+- [12:58.444] Think of that. So they did less than one trillion in four years.
+- [13:01.981] We have eighteen trillion in ten months.
+- [13:04.950] It's going to be much more than that, too.
+- [13:07.887] No other country in history has ever been close,
+- [13:10.322] no matter what country you pick.
+- [13:12.391] So I want to thank you again, everybody, for your great vision
+- [13:16.929] and I want thank the people,
+- [13:18.697] especially the people that we named.
+- [13:21.500] Some of the others that unfortunately we didn't name,
+- [13:23.869] we just couldn't do that.
+- [13:25.871] But for your vision and for your courage.
+- [13:42.021] These are two very good men,
+- [13:44.056] and they're two very potentially very strong countries.
+- [13:48.260] I'd like to now invite President Kagame
+- [13:52.965] to come up and say a few words. It's Rwanda. And then, if I may,
+- [13:58.470] President of DRC who really is doing a great job.
+- [14:03.142] These are two men that are doing a great job and again
+- [14:06.178] they are so respected because of what they're doing today
+- [14:09.448] and the mission that they've really I think accomplished
+- [14:14.153] and we'll see how it all works out,
+- [14:15.487] but I think it's going to work out really great.
+- [14:18.123] They want to get on to other ways of living
+- [14:21.327] for their people and their great leaders.
+- [14:23.362] Thank you very much. Please, Mr. President.
+- [14:26.599] Thank you. Thank you very much.
+- [14:31.303] (applause)
+- [14:43.249] President Kagame: Excellency Donald Trump,
+- [14:46.752] President of the United States of America,
+- [14:51.090] Excellencies, Heads of State and Government
+- [14:54.093] and Former Heads of State,
+- [14:55.828] distinguished ladies and gentlemen,
+- [14:59.798] I want to begin with some words of thanks.
+- [15:06.639] First, to my fellow heads of state and government
+- [15:10.976] from Africa,
+- [15:13.412] your presence here confirms that these efforts
+- [15:19.618] enjoy the broad support necessary to succeed.
+- [15:27.026] I also thank Minister of State, Kulaifi,
+- [15:29.895] representing the His Highness Sheik Tamim bin Hamad of Qatar,
+- [15:38.170] the role of Qatar has been absolutely central
+- [15:42.174] in getting us to this point.
+- [15:46.178] But of course, the biggest vote of thanks
+- [15:50.916] goes to President Donald Trump.
+- [15:57.323] No one was asking President Trump to take up this task.
+- [16:12.004] But when The President saw the opportunity
+- [16:16.141] to contribute to peace he immediately took it.
+- [16:24.717] This conflict has lasted for thirty years.
+- [16:31.957] We have seen countless mediations and efforts,
+- [16:40.799] but none has succeeded in resolving the underlying issues.
+- [16:51.076] President Trump introduced a new and effective dynamism
+- [16:59.718] that created the space for breakthroughs.
+- [17:06.058] His approach is even handed, never taking sides.
+- [17:22.775] Emphasizing that the dividend of peace
+- [17:27.446] is prosperity and investment,
+- [17:30.449] including from the United States.
+- [17:42.828] The process has not become an end in itself.
+- [17:52.438] All of these elements filter down to his dedicated team,
+- [18:00.646] and here I want to single out Secretary Rubio
+- [18:07.920] and Massad Bulas for special appreciation
+- [18:15.961] would not have would not be here today without their efforts.
+- [18:25.304] And as a result, we have the clearest
+- [18:29.775] and most viable path forward that we have ever had.
+- [18:39.284] These accords provide everything needed to end
+- [18:44.990] this conflict once and for all.
+- [18:50.496] If this agreement falters and things do not work out
+- [18:58.737] as they are supposed to,
+- [19:02.508] the responsibility will not lie with President Trump,
+- [19:08.914] but with ourselves.
+- [19:14.319] In Africa, working with our partners
+- [19:17.823] to consolidate and expand this peace.
+- [19:23.862] There will be ups and downs on the road ahead.
+- [19:30.269] There is no doubt about it.
+- [19:34.973] Rwanda, I know, will not be found wanting.
+- [19:42.147] I can assure you of that.
+- [19:46.685] Our only objective is and has always been for our country
+- [19:54.660] to be safe and secure after having endured so much tragedy.
+- [20:05.037] We now want to look forward in confident expectation
+- [20:13.679] of a prosperous and stable future.
+- [20:19.418] Mr. President, Excellencies,
+- [20:23.422] I thank you for your kind attention.
+- [20:27.192] (applause)
+- [21:01.927] President Tshisekedi: Mr. The President
+- [21:03.528] of the United States Donald Trump.
+- [21:11.269] Ladies and gentlemen, dear members of the delegations,
+- [21:18.744] distinguished guests.
+- [21:22.514] As we have just placed our signatures at the bottom
+- [21:26.685] of the joint declaration enshrining
+- [21:30.522] the Washington Agreements for Peace and Prosperity,
+- [21:34.259] I do feel on behalf of the people of Congo
+- [21:37.729] a deep gratitude and clear hope.
+- [21:42.100] First of all, I would like to express quite solemnly
+- [21:46.405] our deep thanks to the President of the United States of America,
+- [21:50.776] Mr. Donald Trump.
+- [21:52.477] I would like to thank his administration
+- [21:54.546] and also wish to thank the American people
+- [21:56.882] for the critical role that they played
+- [21:59.117] as doing for the rapprochement,
+- [22:01.219] the closeness between the Democratic Republic of Congo
+- [22:04.690] and the Republic of Rwanda.
+- [22:06.892] To these thanks are also bringing
+- [22:11.263] in all of our regional partners and our international partners,
+- [22:15.500] who, thanks to their commitment and engagement,
+- [22:19.604] have consistently made this critical moment
+- [22:23.742] possible in the road to peace.
+- [22:27.546] First and foremost, we have Sheik Yanim Binamad.
+- [22:37.022] We have President Jo Manuel Lawrence Gonçalves,
+- [22:43.595] who is the President of Angola
+- [22:46.231] and the acting president of the African Union.
+- [22:49.468] And we also have the former president
+- [22:52.404] of the Republic of Kenya,
+- [22:54.039] my brother, Ruru Kenyata, who I can see here in the room,
+- [22:59.144] these two great Africans who are at the beginning,
+- [23:04.249] who started the Luanda and the Nairobi processes.
+- [23:08.019] And beyond them, I wish to thank also all of the African leaders
+- [23:13.925] who contributed to help us in this struggle.
+- [23:20.332] And I do hope that we have yes reached the end.
+- [23:27.472] The Washington Agreements are not yet another document.
+- [23:32.144] These represent a turning point.
+- [23:59.671] Of mistrust, defiance in order
+- [24:02.407] to begin a new era of friendship,
+- [24:06.545] cooperation and prosperity all shared together.
+- [24:11.983] For those involved, the Democratic Republic of Congo
+- [24:17.122] takes this solemn commitment to implement
+- [24:20.592] with complete sincerity all of our obligations
+- [24:24.496] that stem from this agreement.
+- [24:26.565] We will do this with seriousness, with rigorousness,
+- [24:30.402] and also with a constant care for peace
+- [24:34.039] and the security of our populations,
+- [24:37.042] for the unity and the integrity of our territory.
+- [24:41.346] We do hope that thanks with the same seriousness
+- [24:45.851] that the Republic of Rwanda
+- [24:48.520] will also respect fully the letter
+- [24:53.191] and the spirit of the commitments made here
+- [24:56.528] in Washington.
+- [24:59.297] We are reaching out for a peaceful cooperation
+- [25:03.768] based on mutual respect, non interference,
+- [25:08.373] and the joint struggle against the armed groups,
+- [25:12.978] the end of all support to negative forces,
+- [25:16.748] and the beginning of fair prosperity
+- [25:20.485] on behalf of our two populations.
+- [25:23.955] I do believe this day is the beginning of a new path.
+- [25:28.593] A demanding path, yes indeed, quite difficult,
+- [25:32.297] but this is a path where peace will not
+- [25:34.733] just be a wish and aspiration, but a turning point.
+- [25:38.937] The Democratic Republic of Congo will fully play its part
+- [25:42.474] with dignity, with consciousness and consistency,
+- [25:47.579] and with the support of our partners.
+- [25:51.016] We will remain watchful, vigilant, but not pessimistic.
+- [25:54.819] We'll be clear eyed but resolutely optimistic.
+- [25:58.857] These Washington agreements for peace and prosperity
+- [26:02.928] must be for our peoples a symbol of an irreversible commitment
+- [26:08.900] to turn the page of confrontations
+- [26:11.636] and to open a new era of cooperation
+- [26:15.373] and sustainable peace throughout the region.
+- [26:18.376] Thank you.
+- [26:20.412] (applause)
+- [26:36.594] The President: So if I might, my four new friends,
+- [26:40.665] a couple of cases not that new.
+- [26:42.968] Could you come up please? Do you mind? Please.
+- [26:51.977] They represent so many and so well,
+- [26:53.945] so I just want to thank you very much.
+- [27:00.652] Good.
+- [27:01.886] Male Speaker: (speaking foreign language)
+- [32:14.399] Translator: Your Excellency, the US President,
+- [32:17.068] President Trump, dear guests,
+- [32:19.103] and dear dignitaries present here and press members.
+- [32:21.939] I would like to highlight the importance of this ceremony
+- [32:24.909] taking place in Washington, DC,
+- [32:27.478] because this has come to put an end to a war
+- [32:30.515] that has been there for more than three decades,
+- [32:33.217] because it's not just exactly three decades,
+- [32:35.853] but it's more than 30 years.
+- [32:37.755] And this is a conflict that has been there
+- [32:42.527] between two neighboring countries
+- [32:44.929] which have been fighting for many years
+- [32:47.332] with consequences on the peoples,
+- [32:49.767] countries, economies, and so forth.
+- [32:52.737] And these consequences also were felt in the Great Lakes region.
+- [32:57.375] Great Lakes region, which is a very rich region in Africa,
+- [33:00.978] rich in terms of water resources,
+- [33:04.582] arable lands and forests,
+- [33:06.351] and as well as mineral resources,
+- [33:08.486] which are important for the development of our region.
+- [33:10.988] So it's important that we've reached it to this point
+- [33:14.559] where the agreement is going to be has been signed,
+- [33:17.695] a priest deal,
+- [33:18.896] which will benefit immensely the whole region
+- [33:22.700] and will unleash the opportunities
+- [33:24.836] for the development of a continent
+- [33:27.338] and as well as to helping the whole world
+- [33:30.608] in terms of fighting against the food crisis and energy crisis
+- [33:36.147] which the whole world is going through now.
+- [33:38.649] We believe that the Great Lakes region
+- [33:41.619] will have to play a great role
+- [33:44.455] in providing resources to the international community.
+- [33:47.692] And of course, solving this conflict
+- [33:50.428] will also help solve other crises,
+- [33:53.197] not only in the continent as we know, but worldwide.
+- [33:56.501] For example, the Great Inga
+- [33:58.669] hydro project in Congo is important.
+- [34:02.039] It can help to electrify the continent
+- [34:04.842] and consequently help in terms of developing agriculture
+- [34:08.546] and providing agriculture,
+- [34:10.982] arable lands and abundant resources
+- [34:14.318] that we have that can be used.
+- [34:16.287] We know that Africa possesses a lot of other resources
+- [34:18.923] such as rainfalls which are important for agriculture.
+- [34:21.959] So nothing has I mean nothing would just justify this war,
+- [34:28.633] but eventually the most important thing
+- [34:30.768] that it has come to war.
+- [34:32.270] We sought as Africans to do our part.
+- [34:35.306] When I say Africans,
+- [34:36.741] I mentioned countries such as Zangaula,
+- [34:38.810] Kenya and other African countries,
+- [34:41.012] but unfortunately who couldn't make it.
+- [34:43.147] But we now want to thank President Donald Trump
+- [34:46.517] for having helped to reach this important milestone.
+- [34:52.190] We believe once again we have to thank him for what he has done.
+- [34:56.494] And what comes next now is to appeal to the two parties
+- [35:00.998] that is the Democratic Republic of the Congo
+- [35:03.134] and the Republic of Rwanda
+- [35:04.869] to implement successfully this agreement
+- [35:07.071] for the benefit of our of their countries,
+- [35:10.007] their people and including our continent of Africa.
+- [35:13.211] Thank you very much.
+- [35:14.812] (applause)
+- [35:20.718] Male Speaker: Your Excellency President Trump,
+- [35:24.889] fellow Heads of State,
+- [35:27.125] today's signing of the Washington Peace Accord
+- [35:31.295] for (inaudible)
+- [35:32.597] DRC is not merely a monumental diplomatic milestone.
+- [35:37.902] It is a decisive act to end a devastating conflict
+- [35:43.274] that has scarred the region for decades.
+- [35:48.379] Mr. President, what you have achieved
+- [35:52.149] is not only transformative,
+- [35:56.554] it is consequential and historic.
+- [36:02.026] This conflict has destroyed livelihoods,
+- [36:04.662] destabilized our region, and threatened the future
+- [36:09.066] of the entire Great Lakes African continent.
+- [36:13.604] Today's achievement culminates a relentless regional effort
+- [36:19.143] anchored by the foundational work
+- [36:21.279] of the East African Community and SADEC
+- [36:25.616] and today this Washington process.
+- [36:30.087] The coordinated Nairobi, Luanda and Washington process
+- [36:32.924] has created the essential pathway
+- [36:36.160] that brings us to this pivotal moment.
+- [36:41.599] We would like to extend our gratitude
+- [36:44.936] to President Tshisekedi and President Kagame
+- [36:47.471] for their leadership during this process.
+- [36:50.841] Reaching this point was made possible by the unparalleled,
+- [36:56.447] consequential convening power of the United States
+- [37:00.818] and President Trump's resolute
+- [37:05.389] and focused commitment to global peace.
+- [37:09.760] Your clarity, Mr. President,
+- [37:11.996] of purpose and ability to rally stakeholders together
+- [37:18.936] has brought us to this point.
+- [37:21.806] We therefore extend our profound gratitude to President Trump,
+- [37:26.544] whose bold leadership has been instrumental
+- [37:30.615] in delivering this breakthrough.
+- [37:34.218] Our presence here, Mr. President,
+- [37:36.587] as regional leaders
+- [37:39.190] is a testament of our collective resolve.
+- [37:43.027] We will spare no effort to ensure
+- [37:45.596] this agreement is fully realized,
+- [37:48.599] mobilizing every resource and partner to secure peace
+- [37:54.171] and unlock the region's immense economic promise.
+- [37:59.377] The protracted conflict on our continent
+- [38:01.379] continue to hold back Africa.
+- [38:04.915] Our current three percent share of global trade
+- [38:08.319] is stark evidence of how far this war has held us back.
+- [38:14.692] A peaceful Eastern DRC can unlock
+- [38:17.795] One of Africa's greatest economic opportunities.
+- [38:21.899] Our vast resources, the young talent that we have,
+- [38:25.836] connected through our regional infrastructure
+- [38:28.305] and the Africa Continental Free Trade Area
+- [38:31.042] can ignite an unprecedented transformation.
+- [38:35.746] A peaceful and integrated
+- [38:37.281] Great Lakes region will accelerate innovation.
+- [38:40.751] Predictable government reduces risk,
+- [38:43.988] harmonized regulation lowers costs,
+- [38:46.757] and open borders increase trade, attracting value
+- [38:50.227] added industries to our continent.
+- [38:53.764] For too long, Africa has exported raw materials
+- [38:57.568] only to import refined products at great cost.
+- [39:02.006] Our regional economic integration framework,
+- [39:04.475] Mr. President, that you have spoken to here,
+- [39:09.847] will build value chains in minerals,
+- [39:12.616] manufacturing and Agri processing,
+- [39:16.287] creating jobs and creating wealth.
+- [39:20.224] The Great Lakes region stands at the threshold of a new era.
+- [39:26.464] Peace will open doors.
+- [39:36.707] In conclusion, as we celebrate progress in the DRC,
+- [39:41.846] we must not look away from other crises.
+- [39:46.617] I want to ask you respectful respectfully, Mr. President,
+- [39:51.455] that in your quest for global peace
+- [39:54.792] to support efforts to resolve the humanitarian catastrophe
+- [40:00.397] in Sudan. I thank you.
+- [40:04.268] (applause)
+- [40:16.947] Translator: Heads of State and Government,
+- [40:20.417] dear delegations,
+- [40:22.953] it is with great joy that I speak today
+- [40:27.858] before you in order to express my joy.
+- [40:34.532] There is a time for everything.
+- [40:37.268] There's a time for destruction and there's a time to build.
+- [40:42.006] There's a time for despair and there's a time for hope.
+- [40:45.609] Today we are experiencing a great day.
+- [40:49.980] We are looking forward to this agreement,
+- [40:53.551] which will give back hope to the peoples of Congo
+- [41:01.458] and of the sub region.
+- [41:04.762] I would like to congratulate everybody involved
+- [41:10.601] who made it this great day possible.
+- [41:18.609] We beg, we urge God to continue to guide us,
+- [41:24.281] to guide the steps of all people of goodwill
+- [41:27.985] who will become involved for its implementation.
+- [41:31.722] Committing oneself is something,
+- [41:35.292] but implementing is something else,
+- [41:37.695] which is why I call upon all of you,
+- [41:41.866] provide your contribution to actually implement this accord.
+- [41:51.542] As far as we are concerned,
+- [41:55.980] this agreement on regional economic integration,
+- [42:02.419] will Burundi and the DRC already represent an economic community
+- [42:09.526] of the countries of the Great Lakes region.
+- [42:12.596] Burundi has a major role to play in order to indeed implement
+- [42:21.405] these existing cooperation agreements
+- [42:24.408] between the three states.
+- [42:26.110] We hope that together we'll be able to achieve
+- [42:30.481] a long lasting peace and stability
+- [42:33.384] throughout the region. Thank you very much.
+- [42:35.753] (applause)
+- [42:41.425] The President: Thank you very much.
+- [42:42.726] And I just want to introduce a friend of mine
+- [42:45.562] who I just noticed in the audience.
+- [42:47.197] He's in charge of a very small sport called here soccer,
+- [42:53.037] over there football.
+- [42:55.072] So nobody knows really what to call it.
+- [42:57.308] Johnny, thank you very much. The head of FIFA is here.
+- [43:01.879] And I can report to you that we have sold more tickets
+- [43:07.418] than any country anywhere in the world
+- [43:10.688] at this stage of the game,
+- [43:11.956] and I think we probably broke all records
+- [43:13.924] before you even get close.
+- [43:15.759] And you have a big event on Friday
+- [43:18.329] at the Trump Kennedy Center.
+- [43:20.531] Oh excuse me, at the Kennedy Center.
+- [43:24.768] Pardon me, such a terrible mistake, Marco.
+- [43:29.606] At the Kennedy Center and I look forward to seeing you there.
+- [43:34.278] But I want to congratulate you.
+- [43:35.546] No, it's really taken the world by storm.
+- [43:38.649] I you've never you've never done anything
+- [43:41.352] like what's happening in terms of ticket sales.
+- [43:44.154] I make a lot of enemies telling people I'm sorry
+- [43:46.323] I can't get you tickets. I just can't do it.
+- [43:48.892] But congratulations, you've done a fantastic job.
+- [43:51.528] A great leader in sports and a great gentleman.
+- [43:54.498] Thank you very much, Johnny. Thank you.
+- [43:57.501] (applause)
+- [44:00.237] And now we're going to sign a very important agreement.
+- [44:02.906] Thank you.
+- [44:06.143] (applause)
+- [46:48.138] (applause)
+- [47:03.787] The President: Thank you very much everyone.
+- [47:05.389] The Press: (inaudible)
+- [47:12.095] The President: Go ahead. I know you and you're very friendly,
+- [47:14.932] so I'll take it, otherwise I wouldn't take it. Go ahead.
+- [47:18.669] Mr. President, we are witnessing a historic moment for Africa.
+- [47:24.174] My question to you is when we will see the withdrawal of
+- [47:27.844] (inaudible)
+- [47:29.046] troops from DRC and when we will see the real peace.
+- [47:33.584] Because if even now
+- [47:34.918] we are witnessing historical peace still,
+- [47:37.688] but people are being still killed in the DRC.
+- [47:40.257] Because the truth continues there.
+- [47:42.626] When -- because this needs to be real,
+- [47:44.895] the troop needs to be withdrawn from DRC.
+- [47:47.297] The President: Yeah.
+- [47:48.532] I think you're going to see very quick
+- [47:50.867] and very quickly I think you're going to see things happen.
+- [47:54.438] This is something that was not doable
+- [47:58.242] according to a lot of people, and not only is it doable,
+- [48:01.945] I think it's going to be a great miracle.
+- [48:04.615] These two gentlemen are leaders, they're great leaders,
+- [48:07.384] and they're going to prove that in the coming months and years.
+- [48:09.886] And I think you're going to see very immediate results.
+- [48:12.489] I have confidence that that's what's going to happen.
+- [48:15.459] Thank you very much, everybody.
+- [48:17.561] (applause)
+- [48:37.781] (indistinct background chatter)
+- [49:00.537] The President: Thank you everybody.
+- [49:01.805] Thank you.
+- [49:06.076] (applause)

@@ -1,0 +1,199 @@
+<!-- source: https://www.youtube.com/watch?v=TW2KRRa7uws -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: TW2KRRa7uws -->
+<!-- date_published: 2026-05-11T11:16:50+00:00 -->
+<!-- date_accessed: 2026-06-02T01:00:02.836784+00:00 -->
+
+# Transcript: President Trump Gaggles with Press Before Departing the White House, May 8, 2026
+
+- [00:03.200] giving a letter tonight.
+- [00:11.280] We'll find out soon enough.
+- [00:15.440] We do
+- [00:20.880] a good meeting
+- [00:22.800] with the president
+- [00:25.199] and we'll see what happens. They want to
+- [00:27.119] do business with the United States.
+- [00:28.640] Everybody does.
+- [00:31.439] Are you going to fire?
+- [00:38.320] >> Are you going to fire him?
+- [00:40.719] >> I've been reading about it. I know
+- [00:42.800] nothing about it.
+- [00:45.120] >> Are you optimistic about Iranian
+- [00:46.559] response to you tonight?
+- [00:48.480] >> What about it?
+- [00:49.120] >> How do you optimistic about Iranian
+- [00:50.640] response to your proposal?
+- [00:52.079] >> We'll see what happens. Look, uh, they
+- [00:54.480] have no military. They have not a lot
+- [00:57.199] left. We'll see what happens. Yeah.
+- [01:00.719] >> When you if you decide to pull you out,
+- [01:04.080] you announce the 3-day ceasefire in the
+- [01:06.000] Ukraine Russia war. Do you anticipate
+- [01:08.159] that that will be any longer than 3
+- [01:10.000] days?
+- [01:10.240] >> It could be. I mean, it could be. It
+- [01:11.520] would be nice. I'd like to see it stop.
+- [01:13.840] Uh Russia Ukraine, it's the worst thing
+- [01:16.960] since World War II in terms of life.
+- [01:19.200] 25,000 young soldiers every month. It's
+- [01:22.400] crazy. So, uh it could very well be.
+- [01:25.119] >> If you if you Mr. President, if you
+- [01:27.040] decide to pull troops from Germany, will
+- [01:29.600] you move them to Poland or maybe some
+- [01:31.439] other countries on the eastern flank?
+- [01:32.960] >> Well, Poland would like that. We have a
+- [01:35.680] great relationship with Poland. I have a
+- [01:37.759] great relationship with the president.
+- [01:39.600] You remember I endorsed him and he won.
+- [01:43.360] And uh he came from way behind and he
+- [01:46.320] won. He's a great fighter. He's a great
+- [01:48.000] guy. I like him a lot. So that's
+- [01:50.079] possible.
+- [01:54.320] Hello, Mr. President.
+- [01:57.280] >> You think are happy about the election
+- [01:59.360] of new prime minister of Iraq? How is
+- [02:02.880] important Kurdistan regional government,
+- [02:05.280] Iraqi federal government and United
+- [02:07.759] States of America working together and
+- [02:11.200] reduce militia influence on the region
+- [02:14.000] and especially in Iraq. So we had a
+- [02:15.920] great election in Iraq. We had somebody
+- [02:18.640] that I very strongly endorsed. We won by
+- [02:22.800] a lot and I wasn't happy with the person
+- [02:25.840] who was there previously. So it was a
+- [02:28.400] great victory. We had a lot of great
+- [02:29.599] victories. We had a big
+- [02:31.599] >> We had a big victory today in Virginia
+- [02:33.599] as you know and we have a lot of
+- [02:34.959] victories but the victory in Iraq was
+- [02:37.519] really great
+- [02:40.239] on a new FDA commissioner.
+- [02:43.120] uh FDA commission.
+- [02:44.560] >> Are you bringing someone new into the
+- [02:46.400] FDA?
+- [02:46.800] >> No.
+- [02:47.200] >> Mr.
+- [02:49.200] Election results all night. Uh I sort of
+- [02:52.879] leave that to them. I'm happy about
+- [02:55.200] everything. Our country is doing well.
+- [02:57.680] We just have new stock market records.
+- [03:00.319] Everybody's 401k is hitting a record. Uh
+- [03:03.599] the numbers are absolutely incredible.
+- [03:05.920] The job numbers, we have more people
+- [03:08.080] working today than we ever had working
+- [03:09.840] in this country. The job numbers today
+- [03:12.400] were incredible. Thank you very much.
+- [03:15.599] >> The French sent an aircraft carrier
+- [03:17.840] toward the trade of Do you have any
+- [03:19.840] reaction?
+- [03:21.040] >> The French sent an aircraft carrier
+- [03:23.280] toward the straight of French. Any
+- [03:26.080] reaction?
+- [03:26.480] >> No, I have no reaction to that.
+- [03:29.440] >> I think we're doing very well. Iran is
+- [03:31.920] seeming to be coming along very well.
+- [03:33.680] Militarily very good. We'll see whether
+- [03:35.360] or not they can get there.
+- [03:37.920] has the uh have you gotten an update on
+- [03:39.920] the haunt virus, the haunt virus?
+- [03:42.319] >> Uh we have it. We have very good people
+- [03:44.080] looking at it. It seems to be okay. Uh
+- [03:47.280] they know the virus very well. They've
+- [03:49.120] worked with it for a long time. They
+- [03:50.959] know it very well. Not easy to pass on.
+- [03:54.560] So we hope that's true.
+- [03:57.040] >> From all the topics that you discussed
+- [03:58.480] with the president of Brazil, it was a
+- [04:00.159] long meeting, right?
+- [04:01.040] >> Yeah, we had a great meeting.
+- [04:02.080] >> Which which topic got?
+- [04:03.680] >> We discussed everything. president of
+- [04:05.280] Brazil. We discussed everything. We had
+- [04:07.599] a very good meeting. We have a very good
+- [04:09.040] relationship with him and with me.
+- [04:10.720] >> But what made him more interest?
+- [04:12.319] >> We discussed everything including
+- [04:14.239] agreed.
+- [04:15.760] Was it that asked for the ceasefire? Was
+- [04:18.079] the teacher that asked for the ceasefire
+- [04:19.840] that he
+- [04:20.400] >> Oh, no. I asked and President Putin
+- [04:23.360] agreed. President Zalinski agreed both
+- [04:26.400] readily. And we have a a little period
+- [04:29.280] of time where they're not going to be
+- [04:30.479] killing people. That's very good.
+- [04:33.680] And they also agreed to give a thousand
+- [04:35.840] on each side a thousand prisoners back.
+- [04:39.280] So they're going to be uh transferring
+- [04:42.000] almost immediately a thousand prisoners
+- [04:44.080] from each side. That's very good.
+- [04:45.520] Russia, Ukraine,
+- [04:46.560] >> you plan to talk to them again to try to
+- [04:48.080] get this to continue.
+- [04:50.080] >> I'd like to see a big extension
+- [04:56.560] that are leading the World Health
+- [04:57.759] Organization because of the outbreak of
+- [04:59.360] honus. Now we uh seem to have things
+- [05:01.759] under very good control. They know that
+- [05:03.600] virus very well. It's been around a long
+- [05:05.440] time. Not easily transferable unlike co.
+- [05:09.520] But we'll see. We're studying it very
+- [05:11.280] close. We have very good people studying
+- [05:13.360] it very closely.
+- [05:15.680] >> We're we're at a point almost 10 weeks
+- [05:18.400] after a missile hitting girl skull in
+- [05:20.560] Iran. Who fired that missile?
+- [05:23.600] >> So uh that's under study right now and
+- [05:26.880] we'll give you a report as soon as we
+- [05:28.479] have it. Will you will you send your
+- [05:31.120] team to Moscow now that you broker the
+- [05:33.199] ceasefire in the Ukraine war to
+- [05:35.759] negotiate further? What? Will you send
+- [05:38.639] your team to Moscow to negotiate further
+- [05:41.120] now that your brokers? Well, I would do
+- [05:42.880] it. If I thought it would help, I'd do
+- [05:44.639] it. I'd love to see that war end. I've
+- [05:47.440] settled eight wars and actually nine and
+- [05:49.759] now it looks like we could have 10, but
+- [05:51.840] I would love to make that the 10th.
+- [05:54.560] I would love to see I would love to see
+- [05:56.880] an end between Russia Ukraine that war
+- [06:00.160] 25,000 young soldiers were killed last
+- [06:03.600] month and it's on average 25 to 30,000
+- [06:07.440] soldiers a months it's a terrible war
+- [06:14.880] you said that South Korean chief was
+- [06:17.840] attacked by Iran but Iran denied this do
+- [06:23.360] and share with you.
+- [06:24.319] >> I love South Korea.
+- [06:25.520] >> Mr.
+- [06:27.840] Project Freedom. Do you think you need
+- [06:29.759] to resume the Project Freedom? I don't
+- [06:31.759] think so. We might do it, but I don't
+- [06:33.600] think so. I think we would go a
+- [06:35.520] different route if everything doesn't
+- [06:36.880] get signed up and buttoned up. Uh we
+- [06:40.160] project freedom is good. We were asked
+- [06:42.319] not to do that by Pakistan who's our
+- [06:44.639] friend as you know, the prime minister
+- [06:46.160] and the field marshal. Uh but I think
+- [06:49.280] project freedom is good. But I think we
+- [06:52.000] have other ways of doing it also. We may
+- [06:54.400] go back to project freedom if things
+- [06:56.160] don't happen. But it'll be project
+- [06:58.560] freedom plus meaning project freedom
+- [07:01.599] plus other things
+- [07:05.840] for a ceasefire that Putin wanted.
+- [07:08.319] >> So we have a ceasefire and I think
+- [07:10.880] everyone's happy. President Zalinski,
+- [07:13.360] President Putin, I think they're happy
+- [07:15.520] to have it and we'll see what happens.
+- [07:17.280] Mr. President
+- [07:19.280] ceasefire. It is important ceasefire
+- [07:21.360] include Iraq and Iraqi Kurdistan because
+- [07:24.319] after ceasefire with Iran several times
+- [07:28.479] Iranian regime and proxies targets Iraqi
+- [07:31.360] Kurdistan as your ally.
+- [07:32.800] >> We want to get the whole thing ended not
+- [07:35.199] just individual movements. We want to
+- [07:37.759] get the whole thing ended and we will.

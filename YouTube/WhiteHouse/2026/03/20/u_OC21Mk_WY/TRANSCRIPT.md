@@ -1,0 +1,802 @@
+<!-- source: https://www.youtube.com/watch?v=u-OC21Mk_WY -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: u-OC21Mk_WY -->
+<!-- date_published: 2026-03-20T15:34:40+00:00 -->
+<!-- date_accessed: 2026-06-02T02:36:19.720442+00:00 -->
+
+# Transcript: President Trump Participates in the Commander in Chief Trophy Presentation
+
+- [00:11.010] Announcer: Ladies and gentlemen,
+- [00:12.220] the President of the United States,
+- [00:14.070] Donald J. Trump.
+- [00:16.810] ♪ (Hail to the Chief) ♪
+- [00:40.650] The President: Thank you very much.
+- [00:42.160] Please. Thank you. I want to begin by just saying,
+- [00:48.320] we're doing extremely well in Iran.
+- [00:53.260] The difference between them and us
+- [00:55.890] is they had a Navy two weeks ago;
+- [00:58.120] they have no Navy anymore.
+- [00:59.970] It's all at the bottom of the sea.
+- [01:01.640] 58 ships knocked down in two days.
+- [01:04.700] And we have the greatest navy anywhere in the world.
+- [01:06.480] It's not even close.
+- [01:07.700] So -- but we are doing really well.
+- [01:09.620] We're not going to let them have nuclear weapons.
+- [01:12.260] Because if they had them, they'd use them
+- [01:13.820] and we're not going to let that happen.
+- [01:15.090] It should have been done a long time ago by other presidents.
+- [01:19.020] So it's an honor to be here.
+- [01:20.220] This is fun and these are great athletes
+- [01:23.100] standing behind me, great coaches, general managers,
+- [01:27.680] great people and a great superintendent.
+- [01:30.130] Hello, superintendent. We only put our finest
+- [01:34.090] as the superintendents for these great schools,
+- [01:36.250] because we don't want to have somebody
+- [01:38.750] that they don't look up to.
+- [01:40.500] We take our best and they're really amazing.
+- [01:44.750] For the second year in a row,
+- [01:46.470] it's my great honor to officially present
+- [01:48.840] the Commander in Chief's Trophy to the one
+- [01:51.910] and only Navy midshipmen football team with 11 wins
+- [01:56.500] and two losses, playing the best teams in football.
+- [01:59.340] It used to --
+- [02:00.550] I used to always think of the military service
+- [02:02.750] as they played like a little step below.
+- [02:04.740] It's not true.
+- [02:06.130] They played the big teams and they beat them.
+- [02:08.460] These players achieved one of the most impressive seasons
+- [02:11.020] in Navy football history and any football history, frankly.
+- [02:14.480] And I just want to congratulate the midshipmen.
+- [02:17.880] I met them backstage and they're great.
+- [02:20.050] Thank you. Congratulations.
+- [02:28.300] You know, when I when I mentioned the Navy
+- [02:31.820] that we just destroyed, I said, are they good ships?
+- [02:34.710] Yeah, they're great ships.
+- [02:36.300] Then I said, why didn't we save them?
+- [02:37.870] We could have used them ourselves.
+- [02:39.900] They said, the difference was they didn't --
+- [02:41.550] they didn't know how to use them.
+- [02:43.070] Right, general? They didn't know how to use them.
+- [02:45.710] They had no idea.
+- [02:47.190] But I want to recognize Navy athletic director,
+- [02:51.660] Michael Kelly, who is just done an incredible job.
+- [02:55.330] Thank you very much.
+- [02:57.070] Looks like -- he looks like a Kelly.
+- [03:00.860] He's definitely a Kelly.
+- [03:02.820] Along with head coach Brian Newberry, fantastic coach.
+- [03:06.340] Brian. Who's off to the second best start
+- [03:13.570] for any football coach in school history.
+- [03:16.360] What, second? Who's first? It's pretty good.
+- [03:19.680] That must have been a Roger Staubach
+- [03:21.090] here maybe or something, huh, because --
+- [03:22.970] because I tell you what, I got to watch Roger Staubach
+- [03:25.450] and he was -- he was something. He was like -- I have to say,
+- [03:30.850] I've said it and some people were insulted by it,
+- [03:32.830] but it was like a man playing with children.
+- [03:35.250] He would he would single-handedly win those games.
+- [03:37.700] It was incredible.
+- [03:39.260] Thanks as well to your superintendent,
+- [03:41.070] Lieutenant General Michael Borg Schulte,
+- [03:44.760] who is an accomplished Navy linebacker,
+- [03:47.370] a very good one back in the day. We're also pleased to be joined
+- [03:51.680] by Secretary of War Pete Hegseth.
+- [03:54.320] Now, I don't know if he's here because I actually told him --
+- [03:57.260] he had an option, be the Sit Room.
+- [04:00.280] You know, the famous Situation -- or be up here.
+- [04:02.930] And if it's OK, I told him -- but I think he has two
+- [04:05.110] very beautiful sons up here, to the best --
+- [04:07.560] Boone and Jackson. Are you two guys --
+- [04:09.060] well, I told your father, just be in the Situation Room.
+- [04:13.980] We're OK with that, right? I think so, right, coach?
+- [04:17.070] Coach, I think you're OK. So Boone and Jackson,
+- [04:19.780] someday you'll be on this team, maybe, right?
+- [04:21.610] Would you be on Navy, Army, Air Force?
+- [04:23.630] Which one? Take Navy. Just say Navy, OK?
+- [04:25.880] I don't I don't want to get them in trouble.
+- [04:29.300] And your father's doing a fantastic job.
+- [04:31.990] And also, the chairman of the Joint Chiefs of Staff,
+- [04:35.300] Dan Caine.
+- [04:36.550] So Dan is unbelievable. And I picked him for a reason,
+- [04:40.690] because I was told it would take five years
+- [04:42.930] to beat ISIS by our television generals.
+- [04:45.120] You know, there's a big difference between generals,
+- [04:46.740] just like there is between coaches and everything else.
+- [04:49.730] They said, sir, five years. And I went to Iraq
+- [04:52.740] because I didn't understand why five years.
+- [04:54.490] And I met this general and his name was Dan Caine.
+- [04:57.430] I said, what's your name?
+- [04:58.670] He said, Razin, sir. I said, really, Razin?
+- [05:02.120] What is that, Razin? Oh, it's just my nickname, sir.
+- [05:05.520] What's your last name? Caine.
+- [05:07.610] I said, your name is Razin Caine? I love you.
+- [05:10.190] You're the guy I'm looking for, and it turned out to be right.
+- [05:13.970] So they told me it was going to take four to five years
+- [05:17.900] to knock out ISIS. And now I'm in Iraq.
+- [05:21.610] I come down, I meet him, some other generals.
+- [05:24.080] He was the boss.
+- [05:25.870] And I said, how long would it take for you to knock out ISIS?
+- [05:29.960] He said, four weeks, sir. I said, four weeks?
+- [05:34.330] They tell me four years, maybe five.
+- [05:38.140] He said, well, whatever they want, sir.
+- [05:41.830] They're the boss, I'm just here,
+- [05:44.740] but you can do it in four weeks, sir,
+- [05:47.470] and you'll have time left over. I said, you got to be kidding.
+- [05:49.890] And he explained, and we went through a whole big thing,
+- [05:51.770] I won't --
+- [05:52.980] well, nobody in this room would be bored by it, actually.
+- [05:54.950] You'd like to hear every word. I tell you every word of it.
+- [05:56.970] But -- but bottom line, I said, let me go back.
+- [06:01.090] But as I'm leaving it actually was very interesting.
+- [06:04.270] I'm walking down the stairs, long flight.
+- [06:06.450] I had to turn off the lights --
+- [06:07.840] after spending trillions of dollars,
+- [06:09.970] you had to turn the lights off in the plane
+- [06:12.060] because you didn't want to be spotted by the enemy.
+- [06:14.160] This was something. So we landed.
+- [06:16.640] And he said, sir, would you like to rest for a while
+- [06:19.690] before we have a meeting? I said, I don't have to rest.
+- [06:22.620] My name is not Biden. I don't want to --
+- [06:25.060] I'm not resting. And we had great meetings.
+- [06:28.160] And then I got back on the plane.
+- [06:29.760] I said to him, so general, you say four weeks.
+- [06:32.070] You mean that, right?
+- [06:33.300] Four weeks, sir, and you'll have time left over.
+- [06:35.130] I said, I'll call you on Monday, when I get back.
+- [06:38.640] And I called him, I said, do you still feel that way, general?
+- [06:40.950] He said, yes, sir. And I let him do it.
+- [06:45.310] He did it in less than four weeks.
+- [06:46.960] He defeated ISIS. It was amazing.
+- [06:49.280] What a difference.
+- [06:50.590] You know, I always say, what a difference a president makes.
+- [06:53.760] The border, they said, it can't be done without Congress,
+- [06:56.990] it will take years. We did it in about three weeks.
+- [06:59.940] We have a border that's now -- nine months in a row,
+- [07:02.540] nobody's come into our country illegally.
+- [07:04.460] I'm not even sure if that can be right,
+- [07:06.450] but the Democrats keep the stats.
+- [07:08.000] So they say.
+- [07:09.210] I mean, they have zero people came in through our border.
+- [07:11.470] You see it, right?
+- [07:12.980] And I said, the president makes a big difference.
+- [07:17.570] Well, the generals make a big difference too.
+- [07:19.460] But I told him, I said, Dan, if you don't mind,
+- [07:22.020] stay in the Situation Room and you watch all those attacks
+- [07:25.830] that we're hitting those guys with
+- [07:27.530] and they don't know what's happening.
+- [07:30.130] Their Navy's gone. Their Air Force is gone.
+- [07:32.680] Their anti-aircraft is all gone. It's all gone.
+- [07:36.270] Their radar is all gone. Their leaders are all gone.
+- [07:40.670] The next set of leaders are all gone,
+- [07:42.900] and the next set of leaders are mostly gone.
+- [07:45.620] And now, nobody wants to be a leader over there anymore.
+- [07:48.500] We're having a hard time.
+- [07:49.750] We want to talk to them and there's nobody to talk to.
+- [07:53.600] We have nobody to talk to.
+- [07:55.140] And you know what, we like it that way.
+- [07:58.130] And we have many other distinguished members
+- [07:59.930] of the United States military
+- [08:01.420] but I want to tell you, Hegseth is doing a great job,
+- [08:04.210] and Razin Caine is doing a great job,
+- [08:06.640] as good as anybody's ever seen.
+- [08:09.360] Don't forget, we had Venezuela. That was the beginning,
+- [08:11.590] where people started to see the talent.
+- [08:13.220] I built -- I rebuilt the military
+- [08:15.180] and built it, frankly, including Space Force.
+- [08:18.440] But I rebuilt the military in my first term.
+- [08:21.240] I didn't think I'd be using it this much,
+- [08:22.890] but I'm glad I rebuilt it
+- [08:24.770] because we can't let these lunatics have nuclear weapons,
+- [08:28.210] because they were going to use them.
+- [08:29.530] They'd use them fast.
+- [08:30.780] One of the ways you know that is when this whole thing started,
+- [08:35.180] they started shooting missiles all over the Middle East,
+- [08:38.410] at countries that were basically not involved,
+- [08:42.350] because they wanted to take over the Middle East.
+- [08:44.980] And if they had a nuclear weapon, they would have used it.
+- [08:47.900] The only question would have been,
+- [08:49.120] the first hour or the first day.
+- [08:51.300] That's the only question. They would have used it
+- [08:53.080] and if they can use a nuclear weapon,
+- [08:54.780] the world would have been in big trouble.
+- [08:56.470] We had to stop it. It should have been done long ago.
+- [08:59.410] I also want to thank FCC Chairman Brendan Carr,
+- [09:02.630] perhaps the most powerful man in this room.
+- [09:05.050] You are doing some job.
+- [09:07.060] He's trying to keep the fake news --
+- [09:09.110] he's trying to make the fake news real and respected again.
+- [09:12.500] Which is not an easy job,
+- [09:14.080] but you're doing a really amazing job.
+- [09:15.650] First time that's happened in 25 years,
+- [09:18.130] so I congratulate you.
+- [09:19.450] And everybody in the room -- everybody in this whole country
+- [09:22.240] is watching what you're doing and we appreciate it.
+- [09:25.160] When a man can get elected in a landslide, winning every --
+- [09:29.930] think of it, seven swing states, win them all.
+- [09:32.960] We win the popular vote.
+- [09:34.680] We win the Electoral College by tremendous amount.
+- [09:38.490] We win the counties by 82 or 84 percent.
+- [09:42.970] And I got no good press. Think of it.
+- [09:46.790] Only one thing, that only means one thing,
+- [09:48.700] these people are not respected. They're just not respected
+- [09:52.230] and we have to have a press that's respected.
+- [09:55.200] When you -- when you can win an election
+- [09:58.490] where they say that I got 94 percent bad press,
+- [10:04.430] think of it, the other side got 94 percent good press.
+- [10:08.380] When they can get 94 percent and you win in a landslide,
+- [10:11.630] that means the press is not respected.
+- [10:13.820] People have no confidence in it. So you're doing a fantastic job.
+- [10:19.470] Senators Todd Young and Dan Sullivan,
+- [10:22.110] great senators, wherever you may be.
+- [10:23.920] You're here someplace. Where are you?
+- [10:25.750] Hello, fellas. Good senators, great guys.
+- [10:29.160] And Representatives Ronny Jackson, White House doctor.
+- [10:32.730] He was -- he served three presidents.
+- [10:34.340] He said -- he had Barack Hussein Obama.
+- [10:37.030] Have you heard of Barack Hussein Obama?
+- [10:39.440] You had Obama.
+- [10:40.970] I don't even want to talk about Biden but he said --
+- [10:43.210] and you had Bush.
+- [10:44.440] You had young Bush, I call him, young.
+- [10:47.170] Young Bush.
+- [10:48.520] I was not a fan, but that's all right.
+- [10:51.000] But they asked -- the press asked him,
+- [10:53.740] who was the healthiest of the three.
+- [10:55.470] Dr. Ronny -- stand up Dr. Ronny,
+- [10:57.070] there's a big deal, took a lot of heat for this.
+- [11:00.520] They said -- most guys would say,
+- [11:02.700] well, we don't want to talk about that.
+- [11:04.470] They said, who's the healthiest of the three?
+- [11:06.820] He said, President Donald J. Trump, by far.
+- [11:10.050] If he didn't eat junk food,
+- [11:11.270] he'd live to 200 years old, he said.
+- [11:14.810] And I love this guy and he then left and he ran.
+- [11:17.960] He was an admiral and he then left and he --
+- [11:21.720] he was the White House doctor, a very respected one.
+- [11:24.250] He saved a lot of lives.
+- [11:25.490] He was a great doctor. People don't realize that.
+- [11:27.450] And he then left and he said, sir,
+- [11:29.520] I'd like to run for Congress.
+- [11:30.740] I said, you've never done it before,
+- [11:32.020] you won't be able to pull it off.
+- [11:33.300] In a very, very all Trump district,
+- [11:35.690] there were 28 people running.
+- [11:37.430] Man was retiring he's been there for years.
+- [11:40.030] And I said, Ron, I don't know, it's going to be tough,
+- [11:42.760] but we'll try it, right?
+- [11:44.370] And we got -- we got him in and he blew him away.
+- [11:46.530] There was one man that was favored.
+- [11:47.880] He was a rhino. He was favored to win easily
+- [11:51.300] and we wiped him out, right, Ron?
+- [11:52.830] And he's been a Congressman.
+- [11:54.090] He's one of the most popular people in Congress.
+- [11:55.960] But I don't care about that.
+- [11:57.320] I just care that he was my doctor
+- [11:58.800] and he said I'm the healthiest human being he's ever --
+- [12:01.530] Ronny, am I healthier than these guys back here?
+- [12:03.320] Ronny Jackson: Yes, sir.
+- [12:04.540] The President: OK. All right. See, this is why I like him.
+- [12:09.530] Also with Ronnie is Derrick Van Orden,
+- [12:11.690] a fantastic guy.
+- [12:12.990] And members of the Naval Academy's Board of Visitors,
+- [12:15.930] Sean Spicer, who's gone on to great things.
+- [12:18.210] And Walt Nauta. Walt.
+- [12:20.500] Where's Walt? Walt's become a very famous guy.
+- [12:22.620] He works with me, and he does a great job.
+- [12:25.820] Great, loyal, incredible person.
+- [12:28.740] And Sean Spicer. Where is Sean? Where is Sean? Great job.
+- [12:32.590] And he's got a very successful television career going.
+- [12:36.010] What the hell do I get out of it?
+- [12:37.580] Well, you know what I get, nice statements.
+- [12:39.030] That's what I get out of it, right?
+- [12:40.490] Sean Spicer: 100 percent.
+- [12:41.720] The President: It's great.
+- [12:42.970] You've done great thank you very much.
+- [12:44.340] Congratulations. Those are really the people that were --
+- [12:47.440] are very much in charge
+- [12:49.100] of making everything work at the academy,
+- [12:52.130] and the other academies, separately, separate group,
+- [12:54.270] so they're very important position.
+- [12:56.680] For the Navy midshipmen,
+- [12:58.610] 2025 was truly a season for the ages.
+- [13:02.050] You didn't just win the Commander in Chief's Trophy,
+- [13:04.800] you made history as one of the greatest teams
+- [13:06.980] to ever wear the proud uniform of Navy football,
+- [13:10.390] some uniform. The teams have gotten so good,
+- [13:15.570] and the schools that I was able to get
+- [13:20.530] and we're pushing it very hard to make it permanent,
+- [13:24.220] a military academy deferment policy, so --
+- [13:28.010] because you have some people here --
+- [13:29.670] you know, when I went on the field and I threw up a coin,
+- [13:32.680] I'm standing next to these guys.
+- [13:33.950] They were monsters. I said, look at the size of these guys.
+- [13:36.530] I thought they were supposed to be smaller.
+- [13:38.010] I thought you had --
+- [13:39.250] I thought you had sort of restrictions on size.
+- [13:41.840] You know? We got rid of that,
+- [13:43.890] because some of these guys were extremely large.
+- [13:47.850] And I -- you know, and I -- we --
+- [13:49.130] we have the NFL teams here also, when --
+- [13:51.640] whoever wins the Super Bowl, they come.
+- [13:53.800] The baseball teams. We had the Dodgers.
+- [13:55.790] We have -- we have them all.
+- [13:57.350] But I saw the size of these guys,
+- [13:58.940] so I got used to it.
+- [14:00.200] And I said, these guys are as big as the NFL.
+- [14:03.060] And at one of the visits a while ago, first term,
+- [14:08.120] they asked me, they said, sir, we have a hard time recruiting.
+- [14:12.540] Because a player, if he's really good,
+- [14:15.270] he can't do the four or five years in the military service.
+- [14:18.020] Could you ask -- we'd like to do
+- [14:20.060] a military academy deferment policy.
+- [14:21.950] I immediately knew what he meant, and we got it done.
+- [14:25.780] And it allows you to defer your service until after your career.
+- [14:30.120] So if you go into the NFL for 10 years --
+- [14:32.430] so now everyone wants to join.
+- [14:34.820] So do I get credit for the successful team then? Huh?
+- [14:38.790] The superintendent is going to say yes.
+- [14:40.220] I don't know about coach. I don't know about Kelly.
+- [14:45.180] But the coach I think has made your life a little bit easier.
+- [14:48.360] It was tough -- it was tough for the teams
+- [14:50.240] when they used to have to play guys
+- [14:51.490] that were twice their size, right?
+- [14:52.850] So they did good. They had better heart.
+- [14:54.940] They have they have the best heart in the business
+- [14:56.880] but size does matter.
+- [14:59.420] And so what we did is we got that so you have a deferment,
+- [15:01.920] so a lot of people are able to join now
+- [15:03.910] and they do their service later.
+- [15:05.190] They're great patriots, but that would be a lot to ask.
+- [15:08.990] And I think it's helped your teams really compete
+- [15:11.060] at the highest, highest level.
+- [15:13.340] The team was led by your incredible senior class,
+- [15:16.340] and that includes the co-captain and star quarterback,
+- [15:19.870] Blake Horvath, who is fantastic.
+- [15:22.190] Where are you, Blake? You were -- you were a player.
+- [15:25.110] Blake Horvath: Thank you.
+- [15:26.380] The President: I was at the game.
+- [15:29.200] I was at that game. He's a player.
+- [15:31.670] You have a good everything.
+- [15:32.960] You can run it, you can throw it.
+- [15:34.420] What do you think, NFL material? You have no choice.
+- [15:37.480] You have to -- thank you. Stay up here if you want.
+- [15:40.780] Look at this guy. He walks up.
+- [15:43.350] Most of them just stay there and just --
+- [15:44.770] you know, they don't want to -- very good.
+- [15:46.630] That's -- look at him. I can't get rid of him.
+- [15:49.040] I can't -- stay -- stay there if you want.
+- [15:51.170] Come on, stay there. He's a quarterback.
+- [15:52.580] What the hell. But he ends his college career
+- [15:55.500] as one of the most accurate Navy quarterbacks of all time,
+- [15:59.810] with an astounding almost 60 percent completion rate,
+- [16:02.830] second only to the man we just spoke about, Roger
+- [16:05.910] Staubach, who was unbelievable.
+- [16:07.250] He was unbelievable.
+- [16:08.490] He served five years, and then he came in and he was --
+- [16:11.070] came in at like 27 or something
+- [16:12.860] and he was phenomenal as an NFL player.
+- [16:15.900] Likewise, senior wide receiver
+- [16:18.340] Eli Heidenreich, scorched opposing defenses all year long.
+- [16:23.710] They've been writing about him, a lot of stories,
+- [16:25.490] setting a school record for receiving touchdowns.
+- [16:28.810] And you do need a quarterback for that.
+- [16:30.330] Where is Eli? Where is Eli? Come here, Eli. Get over here.
+- [16:36.490] (applause)
+- [16:43.980] They're all saying, he's got NFL. Pretty good.
+- [16:46.460] I see by the size of those hands,
+- [16:48.000] you have no trouble catching that ball.
+- [16:50.250] Come here. Great. Beautiful.
+- [16:52.760] And we're going to bring them down to the Oval Office.
+- [16:55.030] Nobody else.
+- [16:56.240] We don't have room for -- none --
+- [16:58.120] none of all these big shots that we have here,
+- [16:59.970] none of the senators, none of all these people.
+- [17:02.000] We're going to bring them down.
+- [17:03.300] We're giving them a special medal, a beautiful medal,
+- [17:07.050] a very expensive medal that if I see it on eBay tonight,
+- [17:09.760] I'll be extremely upset.
+- [17:11.820] All right? So we're going to all march down there later.
+- [17:13.730] Congratulations. Thank you very much.
+- [17:15.070] Eli Heidenreich: Thank you, sir. The President: That's great.
+- [17:16.330] It's very nice that you say that.
+- [17:17.610] The whole team is pointing at you.
+- [17:19.420] Are you looking to go NFL if you can?
+- [17:21.110] Eli Heidenreich: Yes, sir, I'm hoping to.
+- [17:22.360] The President: OK. Good, good.
+- [17:23.720] That's great. I'll bet you make it.
+- [17:26.980] So we have Eli and setting all the school
+- [17:29.850] records for receiving touchdowns,
+- [17:31.600] earning a spot at the NFL combine
+- [17:34.420] and cementing himself as, without a doubt,
+- [17:37.930] the greatest wide receiver in Navy history.
+- [17:40.430] That is not bad. Did you do the combine?
+- [17:43.160] Eli Heidenreich: Yes, sir.
+- [17:44.400] The President: How did -- how did you find it?
+- [17:46.050] Were you impressed by the athletes?
+- [17:47.400] Eli Heidenreich: I was. Yes, sir.
+- [17:48.630] The President: Were you as good as them?
+- [17:49.900] Eli Heidenreich: I like to think so.
+- [17:51.130] The President: Were you better? They're all saying --
+- [17:52.400] they like you. They're all saying he's better.
+- [17:55.340] Good. I can see it. We're going to watch.
+- [17:57.340] OK? We're watching all you guys. And let's not forget
+- [18:00.990] one of the strongest athletes the Navy has ever seen.
+- [18:04.480] Oh, this is the guy I want to meet,
+- [18:07.380] who is named a first team All-American.
+- [18:09.690] You can't do better than that. On five different organizations,
+- [18:13.760] so five groups named him first team
+- [18:15.400] All-American. Senior lineman and co-captain Landon Robertson.
+- [18:19.780] Where is Landon? Where is Lane?
+- [18:28.940] Landon Robinson: Right here, sir.
+- [18:30.250] (applause)
+- [18:31.450] The President: His arms are like steel.
+- [18:32.740] I just hurt my hand. I hit a muscle. It's like steel.
+- [18:39.110] we're not -- do you think I could take him in a fight?
+- [18:43.660] It's like Ronny. Thank you. Congratulations. Fantastic.
+- [18:47.960] So listen to this about Landon.
+- [18:49.770] With a 665-pound squat and a 465-pound bench press,
+- [18:57.610] what about women playing in men's sports?
+- [19:01.220] Think we could have a woman take your position?
+- [19:04.000] Is there a woman out there? I don't think so.
+- [19:06.060] You know, we're trying to end that.
+- [19:07.530] No men -- think of it, no men in women's sports.
+- [19:12.590] Maybe I'll put Landon in women's sports for a little while.
+- [19:16.400] How ridiculous.
+- [19:17.780] I mean, you know, they say that's an 80/20 issue.
+- [19:20.320] No, no, that's a 99 percent issue.
+- [19:23.400] It's amazing.
+- [19:24.760] Thank goodness the Democrats keep pushing these things,
+- [19:27.570] open borders, transgender for everybody
+- [19:31.790] and they want to have men playing women's sports.
+- [19:35.130] So Landon has some really big records
+- [19:37.050] and he's so strong that the team
+- [19:39.270] had to special order a longer barbell.
+- [19:43.180] I see, because the barbell would break.
+- [19:45.570] That's crazy.
+- [19:49.090] Is he the strongest one on the team, though?
+- [19:50.810] Does everyone -- huh?
+- [19:52.580] No doubt, with all you big, strong guys.
+- [19:54.260] Look at this guy at the end. What do you think, Landon?
+- [19:59.010] Look at that. He's a big guy. Huh? So thank you very much.
+- [20:04.680] We have a lot of fun with these things.
+- [20:06.100] I hope you -- I love sports and I love athletics
+- [20:08.440] and I love competition.
+- [20:10.180] I love competition, and these guys are champions.
+- [20:13.660] But perhaps no single player better represents
+- [20:16.280] the heart and soul of this team than your 5'9", 174 --
+- [20:21.060] I love those guys.
+- [20:22.660] Those guys that are a little smaller
+- [20:24.240] than you're supposed to be, but they have a bigger heart
+- [20:26.240] than everybody on the team, right?
+- [20:27.670] And the other team, too.
+- [20:29.670] 174-pound playmaker who delivered key knockouts
+- [20:33.150] and blocks on opponents almost twice his size.
+- [20:37.210] Senior Brandon Chatman.
+- [20:40.100] Brandon plays selfless, relentless football.
+- [20:43.560] I got this from his coach.
+- [20:45.300] As he likes to say, quote -- here's a quote.
+- [20:47.730] The way I look at it, the fight is not over until I win.
+- [20:51.700] That's a great -- that's it, right?
+- [20:53.610] Just keep going.
+- [20:55.130] And that's really the spirit of the Navy and our great sailors.
+- [20:59.330] Where are you, Brandon?
+- [21:10.760] And they love him. Boy, I tell you,
+- [21:12.750] you don't have you don't have players like that,
+- [21:14.870] you don't -- you don't win.
+- [21:16.960] You just can't win. You need people like Brandon.
+- [21:19.670] And they all have that big heart.
+- [21:21.200] It's very tough. When you get into that elite group,
+- [21:23.360] when you beat those schools that are big, big and powerful,
+- [21:27.250] it's a pretty amazing thing.
+- [21:29.170] This group of winners opposed and opened the 2025 season
+- [21:34.260] with seven straight victories,
+- [21:35.620] including a thrilling win over one of your top rivals.
+- [21:38.800] It's always tough, too, Air Force.
+- [21:40.760] Coach, Air Force is always tough.
+- [21:42.920] What is that? I mean, they're always tough.
+- [21:45.140] You beat them, but they always seem
+- [21:48.050] to have a good they have a good record,
+- [21:50.020] and they always seem to do well. Right?
+- [21:51.560] But no problem with this team, right?
+- [21:53.170] Brian Newberry: Yes, sir.
+- [21:54.370] The President: What was the score you won by, Coach?
+- [21:56.110] Was it a close game or not that close?
+- [21:57.730] Brian Newberry: Close. I think we won by three.
+- [21:59.070] The President: Won by three.
+- [22:00.270] You won a couple of close ones, but you won.
+- [22:02.720] Doesn't really matter. As long as you win, right?
+- [22:05.300] So that's great, Coach.
+- [22:06.640] But as every Navy football player knows,
+- [22:09.450] you don't make it to the White House
+- [22:11.090] unless you also triumph over Army
+- [22:14.030] on that second Saturday of December,
+- [22:16.940] which is the whole deal.
+- [22:19.260] I was at that game. It was amazing.
+- [22:20.830] It was an amazing game the spirit --
+- [22:23.040] and I have to say, they introduced Trump,
+- [22:24.670] the place went crazy.
+- [22:26.440] There were no, like, let's give a little boo.
+- [22:28.460] There wasn't a boo in the house.
+- [22:29.820] Even the fake news couldn't say --
+- [22:31.300] I've gone to games where I've gotten --
+- [22:32.990] I would say I got 97 percent,
+- [22:34.950] but there might be one person, boo, boo.
+- [22:37.760] They cover that person, they interview that person.
+- [22:40.630] That person becomes a star.
+- [22:42.890] But they couldn't find any person at that game.
+- [22:44.810] That was some game.
+- [22:46.010] It was some scene in the historic 126
+- [22:49.780] Army Navy football game.
+- [22:52.170] And again, something I really enjoyed.
+- [22:54.730] I love being there. I'll be there.
+- [22:56.100] Coach, I'll be there.
+- [22:57.330] You got to be back. Coach, we can't ever lose you.
+- [22:59.480] You'll be back, right? You better be back.
+- [23:01.620] Do whatever you -- do whatever you do, Kelly.
+- [23:04.450] Get him signed, right?
+- [23:05.880] Speaking of that, and you get him signed, all right?
+- [23:09.200] But you battle back from a two score deficit
+- [23:12.370] to draw within six points in the fourth quarter.
+- [23:15.730] I was there. It was looking not great.
+- [23:18.210] It was not looking -- fellas, you know,
+- [23:20.220] I can't say I was rooting for you,
+- [23:21.710] but I did want to see that commander in chief deal
+- [23:24.200] is a big deal, right?
+- [23:25.430] And it only happens if you win, and it wasn't looking great.
+- [23:28.580] With time slipping away, Navy mounted one final drive,
+- [23:32.710] and you marched downfield, nearing the goal line
+- [23:35.620] after running back Alex Teska broke loose into the secondary,
+- [23:40.370] which was amazing, for a huge 24 yard gain.
+- [23:43.910] OK. Where's Alex?
+- [23:46.390] (applause)
+- [23:56.940] (Inaudible)
+- [24:15.040] So Alex did his job and he did a fantastic job.
+- [24:19.930] But every football player knows, every single one of them,
+- [24:23.440] that you don't have heart, you don't have that --
+- [24:26.230] you can have all the strength --
+- [24:27.540] like Brandon, you can have all the strength you want
+- [24:29.680] but if you don't have heart -- that's exactly what Alex showed
+- [24:33.100] and he's another one that's known for that.
+- [24:35.300] Then three times, the formidable Army defense held the line
+- [24:39.390] and they really held it,
+- [24:40.850] making it fourth and goal, Midshipmen.
+- [24:44.570] So it's time to do or die, right, coach?
+- [24:46.920] And with six minutes and 37 seconds left on the clock,
+- [24:51.660] other teams might have kicked an easy field goal,
+- [24:55.500] but that's not this coach. Coach, did you have a call?
+- [24:58.390] Did you call up the superintendent
+- [24:59.890] and talk to him, like, what do I do?
+- [25:01.750] Or did you just say, let's go for it?
+- [25:03.330] I think you said, go.
+- [25:04.550] I think you just go for it, right, Coach?
+- [25:06.910] But not this team. With this coach,
+- [25:08.460] with the Commander in Chief's Trophy on the line,
+- [25:11.540] which is a big deal,
+- [25:13.330] Blake dropped back in the pocket,
+- [25:15.820] surveyed the field,
+- [25:17.070] delivered a strike across the middle to Eli
+- [25:20.640] for a touchdown and secured victory over Army
+- [25:23.710] in one of the most iconic moments
+- [25:25.750] in Navy football history.
+- [25:29.120] I wouldn't say in Army football history.
+- [25:30.960] I guess it was iconic also,
+- [25:32.720] but not quite in the same manner.
+- [25:34.920] But I watched that.
+- [25:36.170] That was incredible the annual Army-Navy game
+- [25:38.790] is truly one of the most special occasions in all of sports,
+- [25:42.100] but in recent years,
+- [25:43.390] the College Football Playoff expansion has encroached
+- [25:46.730] on this sacred four-hour time
+- [25:49.250] slot traditionally reserved for Army-Navy.
+- [25:53.450] So what did I do? I went out --
+- [25:57.330] I don't know if I could have pulled it off.
+- [25:58.870] I have much more power in my second term, don't you think?
+- [26:01.090] What do you think?
+- [26:02.290] Would you say, Brandon, much more power.
+- [26:03.810] First term, I don't know
+- [26:05.140] if I could have gotten away with this,
+- [26:06.570] but what did I do? I went out and said I will --
+- [26:12.110] I'm going to sign an executive order
+- [26:14.260] to ensure that the second Saturday in December
+- [26:18.220] is preserved exclusively.
+- [26:20.480] Nobody's playing football,
+- [26:21.940] not Ohio State against Notre Dame, not LSU against Alabama.
+- [26:27.640] Nobody's going to play football for four hours
+- [26:31.050] during that very special time of the year in December.
+- [26:35.300] It's preserved forever for the Army-Navy game.
+- [26:40.550] Now, if you don't want to watch football,
+- [26:41.990] you don't have to but if you want to watch football,
+- [26:44.160] you're only watching one game.
+- [26:45.590] You're not watching 19 different games.
+- [26:48.280] All of them, in many ways, big.
+- [26:50.180] So coach, it puts a little pressure
+- [26:51.640] because the whole world's going to be watching.
+- [26:53.880] So nobody else is going to be allowed --
+- [26:56.080] of course, we'll probably get sued at some point,
+- [26:59.370] because we always get sued,
+- [27:01.620] but we win those suits and we'll win this one.
+- [27:04.700] The only game that's going to be played,
+- [27:06.860] so we preserve that time no matter who it is.
+- [27:09.930] You're playing the Army-Navy game.
+- [27:11.370] It keeps it -- keeps it special.
+- [27:12.980] We like it, right? Are you OK with that? Huh?
+- [27:20.810] And just simply, we don't want other college football games
+- [27:24.340] over -- over, you know, playing over us.
+- [27:27.520] And frankly, I'd always watch the Army-Navy game anyway.
+- [27:30.280] But you don't know. You get some of these games,
+- [27:32.680] they're pretty tough and pretty good
+- [27:34.030] and they're pretty tough.
+- [27:35.270] And they'll be able to play, but they'll play after 7:00.
+- [27:38.040] I think we brought it all the way up to 7:00,
+- [27:40.900] so that should give you plenty of time,
+- [27:42.510] even if you have a little overtime stuff.
+- [27:44.610] So it's great.
+- [27:46.090] It's just an honor to do
+- [27:47.360] because it's such an important tradition of our country.
+- [27:50.070] It's beyond football, actually. It's a tradition of our country.
+- [27:53.780] In two short months, the 28 seniors on this team
+- [27:57.380] will be commissioned as officers
+- [27:59.080] in the greatest military in the world has ever seen.
+- [28:01.740] We have the greatest military in the world,
+- [28:03.360] the strongest, the greatest.
+- [28:04.600] And we're proving that, when you can take Venezuela
+- [28:08.530] in a matter of minutes, put somebody on a helicopter
+- [28:11.690] that was well guarded with thousands of people,
+- [28:13.820] with iron doors. Those doors were like plastic.
+- [28:17.690] The United States Navy, the Marines,
+- [28:19.870] the whole military is --
+- [28:21.510] we have the greatest in the world.
+- [28:22.720] I was so proud of what I did,
+- [28:24.550] and I always love Space Force because that was my baby.
+- [28:28.040] That has never happened.
+- [28:29.290] That hasn't happened in 81 years,
+- [28:32.410] a new force, and it hadn't happened.
+- [28:34.560] And I think we all agree that Space Force has become,
+- [28:37.390] you think, right, very important, very important
+- [28:39.640] to the success that we're having even now.
+- [28:42.450] Over the past few weeks,
+- [28:43.880] the world has seen the true strength
+- [28:46.730] and might of our sailors and aviators,
+- [28:49.150] as they fought in one of the most complex
+- [28:51.860] and successful military operations
+- [28:54.380] of all time against the Iranian regime.
+- [28:57.420] And it's amazing. It's not --
+- [29:00.610] I don't want to get too crazy here.
+- [29:02.890] It's not a contest. It's not even a contest.
+- [29:07.340] They do whatever they want. They can't -- they are --
+- [29:10.370] they had a lot of great equipment, Russian equipment,
+- [29:13.060] Chinese equipment, a lot of -- they had plenty of money.
+- [29:16.320] That equipment was useless against us, useless.
+- [29:20.200] No force on earth can beat the American sailors
+- [29:22.620] or the American military.
+- [29:24.070] We're the strongest in the world by far.
+- [29:26.740] To those standing behind me
+- [29:28.060] who will soon be joining these missions,
+- [29:30.480] I say, sail fast, stay strong and go Navy.
+- [29:35.310] And I just want to congratulate, again,
+- [29:37.150] this incredible team on this -- the win of this trophy.
+- [29:40.130] It's not often that this trophy gets presented.
+- [29:43.370] You have to have a very special year to get it.
+- [29:45.910] And I'm going to sign the executive order right now
+- [29:47.860] and then invite Coach
+- [29:49.090] Newberry up to say a few words and talk about what a great team
+- [29:52.590] and what great individuals they are.
+- [29:54.660] So, coach, I'll sign and then you take over.
+- [30:01.100] (applause)
+- [30:09.700] This is not an auto pen. Can you imagine taking it, say,
+- [30:13.830] would you please have this signed by --
+- [30:15.910] somehow, I don't know how they got by that,
+- [30:18.640] but it didn't work. Let's go.
+- [30:33.340] It's a good one. We rate them.
+- [30:36.490] That's close to a 10, maybe a 10.
+- [30:38.760] See, fellas. You can see it first.
+- [30:44.930] (applause)
+- [30:54.565] (inaudible)
+- [31:08.750] Brian Newberry: Thank you very much.
+- [31:17.210] Good morning. Thank you, Mr. President.
+- [31:20.150] Thank you for signing that executive order,
+- [31:22.190] protecting the sanctity of the Army-Navy game.
+- [31:25.230] It's a game with a soul and it deserves to be protected.
+- [31:28.170] Thank you very much.
+- [31:30.180] Thank you to you and your staff, your gracious hospitality,
+- [31:33.780] and for making today's ceremony possible.
+- [31:36.060] And thank you to the distinguished guests
+- [31:38.110] and everyone in attendance for being here
+- [31:40.070] to recognize this team
+- [31:42.010] and this exceptional group of young men.
+- [31:44.720] On behalf of our players, our staff and their families,
+- [31:48.360] our superintendent, General Michael Borgschulte,
+- [31:52.420] and our athletic director, Michael Kelly,
+- [31:53.900] it is truly an honor to be here.
+- [31:56.610] We're grateful and humbled to be back again.
+- [32:00.230] As I shared last year, it's been our goal
+- [32:02.230] to return to this stage many times
+- [32:04.380] during your tenure, Mr. President.
+- [32:06.770] There is no higher honor in our program
+- [32:08.900] than standing here representing the Naval Academy,
+- [32:12.100] the entire Brigade of Midshipmen, the brotherhood,
+- [32:15.160] and all the men and women who serve
+- [32:16.500] and have served in our Navy and Marine Corps.
+- [32:19.770] These young men understand that wearing the Navy uniform
+- [32:22.650] comes with a responsibility greater than football.
+- [32:26.900] Each day they strive to live up to the core values of honor,
+- [32:29.850] courage and commitment,
+- [32:31.760] and the standards of those who came before them,
+- [32:34.360] leaders of character who have gone on
+- [32:36.040] to serve our country with distinction.
+- [32:39.250] What they accomplished this season is a direct result
+- [32:41.550] of that ethos and mindset.
+- [32:44.100] The players here on stage and to my left in the audience,
+- [32:47.650] are some of the very best our country has to offer.
+- [32:51.520] And just a little over two months,
+- [32:54.560] these 28 seniors standing behind me
+- [32:56.290] will graduate and commission as officers in our Navy
+- [32:59.530] and Marine Corps under your command, Mr. President.
+- [33:02.770] They will do so with character,
+- [33:04.150] discipline and the values that define this institution.
+- [33:08.580] I also want to recognize our fellow service academies,
+- [33:11.020] the United States Army and the United States Air Force.
+- [33:14.680] The rivalry we share is among the greatest traditions
+- [33:17.820] in college football,
+- [33:19.530] but it is grounded in deep and enduring respect,
+- [33:23.290] because we know that one day, many of these young men
+- [33:25.940] may stand shoulder to shoulder in defense of our nation.
+- [33:31.500] The Commander in Chief's Trophy represents the commitment,
+- [33:34.680] discipline, teamwork that define the future leaders
+- [33:37.920] and warfighters of our armed forces.
+- [33:40.710] Every day, our players balance the demands of division
+- [33:42.940] one athletics with the responsibility
+- [33:45.090] of preparing to serve as officers.
+- [33:48.020] That challenge forges the character
+- [33:49.800] this trophy represents.
+- [33:51.770] In our view, it is the most meaningful and honorable trophy
+- [33:55.810] in all of college sports.
+- [33:58.020] To our families, alumni, and the countless people
+- [34:02.070] who support the Naval Academy, thank you.
+- [34:05.580] Your belief in these young men and what this institution
+- [34:08.130] stands for makes moments like this possible and special.
+- [34:12.840] Mr. President, thank you for hosting us today
+- [34:15.710] and for your continued support of the men and women
+- [34:17.920] who serve our great country.
+- [34:20.250] At this time, I'd like to bring our two captains,
+- [34:22.280] Landen Robinson and Blake Horvath
+- [34:23.630] up to present you with a couple of gifts.
+- [34:28.230] (applause)
+- [34:40.525] (inaudible)
+- [34:46.320] Blake Horvath: Well, first, Mr. President,
+- [34:47.720] it's just an honor to be here.
+- [34:48.950] The President: This football -- this is very heavy.
+- [34:50.280] Blake Horvath: I know.
+- [34:51.510] The President: You need a strong neck for this.
+- [34:52.780] Blake Horvath: Like you said, you're the healthiest guy here,
+- [34:54.670] so you got the neck to do it.
+- [34:55.870] Yes, sir. So just want to say thank you so much
+- [35:00.170] for having us here, absolute honor.
+- [35:02.010] And last year, I was hesitant to say
+- [35:04.050] it's a once in a lifetime experience, right,
+- [35:05.680] because I knew we'd be back this year.
+- [35:07.210] So I'm glad I can now say it's a twice in a lifetime experience.
+- [35:11.400] And just couldn't have done it without our whole team here,
+- [35:13.670] right, our support staff from the strength
+- [35:15.190] and the trainers to all these guys
+- [35:16.670] and all the guys who are --
+- [35:17.960] are still at school right now in class thanks to all of them
+- [35:20.460] and just for everybody for supporting us
+- [35:22.270] and you know go Navy, beat everybody.
+- [35:30.160] Landon Robinson: Absolutely. You know, first off,
+- [35:31.910] thank you, Mr. President, for the opportunity to be here.
+- [35:34.200] Blake said it, said most of it,
+- [35:35.400] but I'm just so thankful to all my teammates, all my coaches,
+- [35:37.790] for all the hard work they've put in.
+- [35:39.130] It's very hard to go 11 and 2 in a season,
+- [35:41.630] but I couldn't be more proud to play for Navy football,
+- [35:43.660] and I couldn't be more proud to represent
+- [35:45.200] the United States Naval Academy.
+- [35:46.410] So go Navy, beat Army forever.
+- [35:49.510] (applause)
+- [35:55.710] The President: We're going to see you at the Oval Office.
+- [35:57.410] Now, anybody does not want to go to the Oval,
+- [35:59.910] please raise your hand. OK. I'll see you in the oval.
+- [36:03.370] I had a feeling you were going to do that.
+- [36:05.020] Thank you. See you in a couple of minutes.
+- [36:06.290] OK? We have something for you. Thank you, everybody, very much.

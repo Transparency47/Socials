@@ -1,0 +1,566 @@
+<!-- source: https://www.youtube.com/watch?v=w35pK9KGqMw -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: w35pK9KGqMw -->
+<!-- date_published: 2026-05-11T20:47:55+00:00 -->
+<!-- date_accessed: 2026-06-02T02:34:00.918225+00:00 -->
+
+# Transcript: President Trump Hosts the 2026 National Football Champions, Indiana University
+
+- [00:09.460] Announcer: Ladies and gentlemen,
+- [00:10.730] the President of the United States,
+- [00:12.600] Donald J. Trump, accompanied by Curt Cignetti,
+- [00:15.670] head coach of the Indiana University Hoosiers
+- [00:17.800] and Charlie Becker.
+- [00:19.260] ♪ (Hail to the Chief) ♪
+- [01:11.240] The President: Well, thank you very much, everybody.
+- [01:12.570] This is an honor. I watched that game.
+- [01:15.230] I watch these guys. They can play. They can play.
+- [01:20.040] And they were a little underestimated,
+- [01:22.430] but I just said, but not anymore.
+- [01:24.280] They're not underestimated anymore.
+- [01:26.050] They were incredible talents.
+- [01:28.500] So today, it's my great honor to welcome the 2025 college
+- [01:33.750] football national champions, the Indiana University Hoosiers.
+- [01:43.520] And I want to say that JD is right over here.
+- [01:46.880] He likes Indiana. We won Indiana by a lot.
+- [01:50.880] It always helps when you win it by a lot.
+- [01:52.410] I think we won them all by a lot,
+- [01:53.800] you want to know the truth,
+- [01:55.020] but they just forgot to put that down.
+- [01:57.230] But we won by a lot. We just had a big victory
+- [02:00.030] we beat seven out of eight candidates
+- [02:02.820] that were running against Trump.
+- [02:04.150] That was good.
+- [02:06.450] And the only reason we lost the other one
+- [02:08.250] is they had two people running. They split up that vote.
+- [02:11.980] I can't believe I let that happen.
+- [02:14.440] But we're joined today by Vice President JD Vance.
+- [02:17.120] He's fantastic.
+- [02:18.350] JD, stand up for a second, will you?
+- [02:23.880] And his sons, Ewan and Vivek,
+- [02:26.800] as well as Secretary of the Interior Doug Burgum.
+- [02:30.040] Doug? Great secretary.
+- [02:33.720] We're doing now, the reflective pond,
+- [02:35.570] and we saved about $600 million or something.
+- [02:39.560] It's going to be beautiful.
+- [02:40.810] It'll open about two weeks and it's going to be incredible.
+- [02:44.360] They've been trying to get it open for years.
+- [02:46.340] They had no idea what they were doing
+- [02:48.000] but we know how to do it, Doug.
+- [02:50.160] And it took us two weeks versus the projected four years.
+- [02:55.390] People would not understand it, but you've done a fantastic job.
+- [02:59.630] Secretary of Agriculture Brooke Rollins.
+- [03:02.610] Brooke, thank you. Get those prices down.
+- [03:05.940] They're coming down.
+- [03:07.170] I see prices -- we inherited the worst inflation in history.
+- [03:11.460] She's getting the prices down big.
+- [03:13.190] Thanks, Brooke. Secretary of Commerce Howard Lutnick,
+- [03:16.980] doing a wonderful job. Thank you, Howard.
+- [03:19.940] Acting Secretary of Labor Keith Sonderling.
+- [03:23.470] Thank you, Keith. Good job.
+- [03:26.650] Secretary of Energy Chris Wright.
+- [03:28.960] Supposed to be the best in the business.
+- [03:31.210] Well, you know what? It's -- it was --
+- [03:33.170] I figured it would triple when we did --
+- [03:34.790] we had to make an excursion to the beautiful country of Iran.
+- [03:39.250] We didn't want to let them have a nuclear weapon.
+- [03:42.330] And we made the right decision. And we've got it pretty good.
+- [03:44.820] And those prices are going to come crashing down
+- [03:47.290] as soon as that's over.
+- [03:48.520] We'll get -- we're taking care of --
+- [03:49.980] we're going to take care of business.
+- [03:51.340] Great job. You're doing a great job.
+- [03:52.790] Thank you, Chris.
+- [03:54.020] HUD Secretary Scott Turner, former NFL player,
+- [03:57.270] by the way, a great guy.
+- [04:03.000] US Trade Representative Jamieson Greer,
+- [04:06.000] one of the most important men anywhere in the world.
+- [04:09.550] We need more tariffs, Jamieson. We need more tariffs.
+- [04:14.410] And SBA administrator, who's fantastic, Kelly Loeffler.
+- [04:18.120] Thank you, Kelly. And I see Kevin over there.
+- [04:22.260] I don't know if they have your name down.
+- [04:23.840] Can you stand up?
+- [04:25.520] You were so good on television over the weekend.
+- [04:28.260] Thank you. Kevin Hassett. Thank you, Kevin.
+- [04:32.580] Thanks also to Senators Todd Young -- where's Todd?
+- [04:36.920] Thank you. Thank you, Todd.
+- [04:39.160] We have a great group of people.
+- [04:41.430] What a group. This is a big day for Todd.
+- [04:43.440] And Jim Banks. Jim, stand up. Where are you?
+- [04:45.530] Senator Banks, my friend for a long time.
+- [04:51.660] And Representatives Marlin Stutzman,
+- [04:55.210] Jim Baird, Rudy Yakym, Erin Houchin, and Nick Begich.
+- [05:01.330] Thank -- thank you all, warriors.
+- [05:06.080] We also have Mark Messmer,
+- [05:07.900] Jefferson Sharif and Victoria Spartz.
+- [05:11.610] Where -- hi, Victoria. Victoria Spartz.
+- [05:15.540] She's been very good.
+- [05:16.780] On occasion, she gets a little bit bad,
+- [05:18.960] a little nasty,
+- [05:20.700] but she is good and she's smart and she's always with us, right?
+- [05:23.700] Thank you, Victoria, appreciate it.
+- [05:26.540] Also with us is speaker of the Indiana House, Todd Hudson.
+- [05:32.120] Thank you, Todd.
+- [05:34.150] Thank you, Todd. You guys have been great.
+- [05:37.760] Indiana Senate Majority floor leader, Chris Garton.
+- [05:41.630] These are all people that were with me, right, Chris?
+- [05:44.350] We don't have any of those insurgents do we?
+- [05:46.740] Chris Garten: No, sir.
+- [05:48.000] The President: We had our big day.
+- [05:49.230] They don't know what I'm talking about behind me
+- [05:51.100] because they're into football,
+- [05:52.800] but we had a little insurgency in Indiana.
+- [05:57.280] That didn't last very long. We had --
+- [05:59.680] what -- what a great group of people we have.
+- [06:03.050] Uh, we have many of the Republican patriots
+- [06:06.590] from the great state of Indiana,
+- [06:07.910] including Trevor De Vries, Brian Schmutzler,
+- [06:13.130] Blake Fichter, Tracy Powell, Jeff Ellington, Michelle Davis,
+- [06:19.510] who last week had a big primary election.
+- [06:23.060] They've all -- (Inaudible)
+- [06:24.670] by the people. I love you people.
+- [06:27.620] What a -- that was carried all over the world.
+- [06:31.600] They ran against people that were there for 20, 25 years
+- [06:35.500] and they were --
+- [06:37.220] let's say, yeah, I'd say young, certainly young,
+- [06:40.540] but they were not expected to win.
+- [06:42.720] They were down by 25 or 30 points.
+- [06:45.310] We endorsed them and they won in a landslide.
+- [06:47.170] Thank you very much. Congratulations.
+- [06:49.520] You'll be there a long time. Thank you very much.
+- [06:53.220] That was the story heard round the political world, wasn't it?
+- [06:56.510] Huh? Wow. That's so nice that you're here.
+- [06:59.770] Actually, they're my favorite people
+- [07:01.310] right now in the audience.
+- [07:02.530] I don't care about that Jim Banks.
+- [07:03.920] They're my favorite people, right?
+- [07:07.270] We're also joined by the great Sage Steele,
+- [07:10.830] who's a fantastic person and a supporter and a friend of mine.
+- [07:15.920] Thank you. Thank you.
+- [07:19.320] And former NFL quarterback Trent Green, great quarterback.
+- [07:24.510] Where's Trent?
+- [07:25.760] Hi, Trent, great job. That's a good quarterback.
+- [07:29.390] This was the year that will live forever
+- [07:31.170] in the hearts of Indiana football fans.
+- [07:33.230] It was an exciting year for football,
+- [07:35.340] but maybe you're the biggest story --
+- [07:37.350] I think, coach, you're the biggest story.
+- [07:39.150] There's no story like this.
+- [07:40.910] The Hoosiers delivered the program's
+- [07:43.300] first ever undefeated untied season
+- [07:45.720] and capped it off with their first ever national title.
+- [07:57.590] That's amazing.
+- [08:03.880] Good job, fellas, a lot of muscle out there.
+- [08:11.330] The national signing day --
+- [08:15.140] think of this, the press conference in 2023,
+- [08:20.010] shortly after joining Indiana, Curt -- who's Curt?
+- [08:23.890] Curt. Where is Curt Cignetti?
+- [08:27.560] Curt Cignetti: Right here.
+- [08:30.680] The President: Come here. Come here.
+- [08:33.170] Curt Cignetti has turned out to be, I believe --
+- [08:38.820] I think he's the coach of the last decade,
+- [08:40.890] because he took a team.
+- [08:42.830] Nobody knew him, nobody knew the team
+- [08:44.770] and he ended up taking this team all the way.
+- [08:47.190] People were betting against you all the way, Curt.
+- [08:50.330] He took over in 2023 following a really bleak
+- [08:54.230] three and nine season,
+- [08:55.490] and immediately set a tone that few people have seen,
+- [08:58.810] I think, in the history of college football.
+- [09:01.260] At the National Signing Day press conference in 2023,
+- [09:05.460] shortly after joining Indiana, Curt was asked
+- [09:09.200] how he communicates his vision to recruits.
+- [09:12.520] And he said, it's pretty simple, I win. I just know how to win.
+- [09:15.900] That's a very cocky guy. I don't like people like that.
+- [09:19.700] Curt Cignetti: Nah, nah.
+- [09:21.280] The President: I like this guy.
+- [09:23.380] Just two years later, he brought home the national championship.
+- [09:26.990] So, you know, when you do that stuff,
+- [09:29.430] you have to be able to produce when you act that way.
+- [09:31.550] Muhammad Ali used to get up there --
+- [09:33.270] and, you know, over the years,
+- [09:34.640] I've seen people that did it better than Muhammad Ali.
+- [09:37.250] The problem is they couldn't fight properly.
+- [09:39.580] They lost. You can't do that and lose, right?
+- [09:42.200] But very special coach, I'll tell you that.
+- [09:45.520] I just got to know him a little bit backstage and he's a winner.
+- [09:49.480] Every player in this team shared their coach's winning mindset
+- [09:53.360] and they executed with unbelievable skill.
+- [09:57.060] They're skilled people.
+- [09:58.620] This season was also historic
+- [10:00.750] because starting quarterback Fernando Mendoza.
+- [10:04.410] Now, the reason he's not here -- he was so nice, he called,
+- [10:07.050] because he has actually -- JD, is a big fan of ours.
+- [10:11.140] You wouldn't believe it because he didn't show up.
+- [10:13.970] I'm not happy, but that's OK.
+- [10:16.620] The reason he didn't because he's at spring training, right?
+- [10:18.600] Curt Cignetti: Correct.
+- [10:19.860] The President: And I actually said,
+- [10:21.080] you know, you really let him -- he's got to win
+- [10:23.860] and I think he's going to win pretty early coach right?
+- [10:26.100] You think pretty good?
+- [10:27.320] Curt Cignetti: Time will tell.
+- [10:28.530] The President: He's going to be a good one.
+- [10:31.550] A lot of people said they're going to win,
+- [10:33.260] but I think he will.
+- [10:34.550] No, he's been great and he's at spring training
+- [10:36.940] like his first day or something. I said, you better go there.
+- [10:39.870] But he became Indiana's first -- otherwise, if I didn't do that,
+- [10:42.970] I -- believe me, I wouldn't have even talked about him.
+- [10:45.530] I would have not --if --
+- [10:46.800] if he was not here for other reasons,
+- [10:49.610] like he didn't like Trump or he didn't want to come,
+- [10:52.660] I wouldn't even mention him.
+- [10:54.110] I'd go through the whole -- I'd talk about how great.
+- [10:56.380] I wouldn't even mention the quarterback's name.
+- [10:59.100] But he's a great guy, actually, and he is actually a big fan
+- [11:02.170] of what we're doing for our country.
+- [11:04.600] But he became Indiana's first
+- [11:06.430] ever Heisman Trophy winner right, Coach?
+- [11:11.530] And Fernando completed 226 of 316 passes.
+- [11:16.740] That's good. Throwing for 2,980 yards.
+- [11:20.370] Let's round it off for 3,000, OK?
+- [11:23.350] I'm going to round that off a little bit coach.
+- [11:25.130] Three thousand yards and a nation leading 33 touchdowns.
+- [11:29.850] Fernando couldn't be here today because as I said
+- [11:33.070] he's now a member of the Las Vegas Raiders
+- [11:36.530] and let's see how good a team they have
+- [11:39.190] and I think he's going to do great.
+- [11:40.670] He's a winner.
+- [11:42.020] With Fernando's help and a stacked lineup,
+- [11:45.170] Indiana utterly dominated in the regular season,
+- [11:48.280] winning ten out of 12 games by double-digit margins
+- [11:51.740] in the first three games,
+- [11:53.780] Indiana outscored their opponents --
+- [11:57.200] wow, 156 to 23. I think they have a good coach.
+- [12:02.470] And they closed the the regular season
+- [12:04.180] by crushing their in-state rival,
+- [12:06.980] Purdue, always a good team, 56 to 3.
+- [12:11.460] That's pretty good.
+- [12:13.390] Nice memories, huh?
+- [12:15.560] But things weren't as straightforward
+- [12:17.560] in the Big Ten championship against Ohio State,
+- [12:20.280] that was a tough one.
+- [12:21.820] Indiana entered the game known for its rock solid defense
+- [12:25.400] and actually known for college basketball,
+- [12:27.590] to be honest with you.
+- [12:29.490] And now I think they're going to be known for football
+- [12:32.190] but they entered the game against Ohio State and --
+- [12:35.550] and people really, I think they thought of Ohio State
+- [12:38.810] as being almost unbeatable and brought back
+- [12:41.890] one of the most explosive offenses in the nation,
+- [12:44.660] Ohio State did.
+- [12:46.380] But in the end, the Hoosiers prevailed
+- [12:48.250] over the Buckeyes junior linebacker,
+- [12:50.590] Isaiah Jones. Where's Isaiah? How good is it?
+- [12:56.670] Curt Cignetti: He can play.
+- [12:59.640] The President: I said, how good is he, Coach.
+- [13:00.880] He said he can play. Let me see. He's a good looking guy.
+- [13:04.790] I don't like good looking people.
+- [13:07.530] I don't like good looking men at all, believe me.
+- [13:10.840] But he recorded two of Indiana's first five sacks.
+- [13:14.750] Think of that. So he had five sacks, wow.
+- [13:17.570] Helping the team secure a hard fought 13 to 10 victory
+- [13:21.820] really against a great football power.
+- [13:25.010] That's a big honor. Next up was the Rose Bowl,
+- [13:28.230] where Indiana delivered a commanding 38
+- [13:31.360] to 3 victory over Alabama.
+- [13:33.790] Coach -- you got to be -- you got to be kidding me?
+- [13:38.950] That's right over Alabama. That's a big one.
+- [13:41.790] After a scoreless first quarter,
+- [13:43.690] the Hoosiers broke through and never looked back
+- [13:46.220] defeating the Crimson Tide is no small feat,
+- [13:49.780] and it wouldn't have been possible
+- [13:51.040] without starting center Pat Coogan.
+- [13:53.170] Where's Pat? Oh, he's at training camp.
+- [13:57.740] Forget this. Forget training camp.
+- [14:01.200] But he's a good fan, Coach, right?
+- [14:02.570] Curt Cignetti: Absolutely.
+- [14:03.800] The President: OK, good I'm glad I mentioned --
+- [14:05.290] glad I mentioned his name.
+- [14:07.790] That's good. Say hello to him. That's a big deal.
+- [14:09.950] In recognition of his dominant performance,
+- [14:12.320] Pat became the first offensive lineman
+- [14:14.260] since 1944 to be named the Rose Bowl's Most Valuable Player.
+- [14:19.750] Pat is busy today in training camp.
+- [14:21.530] That's -- that's great.
+- [14:22.820] Is he that good? Curt Cignetti: Oh, yeah.
+- [14:24.400] The President: Is Pat Coogan that good?
+- [14:25.650] Curt Cignetti: Oh, yes. Yes, sir.
+- [14:26.880] The President: Seriously good.
+- [14:28.180] Curt Cignetti: We got 15 of them in training camp.
+- [14:29.450] The President: Wow. Is that right?
+- [14:30.660] Curt Cignetti: Yeah.
+- [14:31.900] The President: Wow. Fifteen in training camp.
+- [14:34.080] Wow. How many potentials do you have back there?
+- [14:38.350] A lot, right?
+- [14:39.580] Curt Cignetti: Quite a few.
+- [14:40.860] The President: Quite a few potentials.
+- [14:42.710] In the Peach Bowl, Indiana shattered Oregon's confidence --
+- [14:45.350] that was another one.
+- [14:46.550] Oregon was supposed to be a hot team. I watched it.
+- [14:49.360] I said, what's going on here?
+- [14:51.400] But they shattered Oregon's confidence right out of the gate
+- [14:54.340] when, during the first play of the game,
+- [14:57.440] Cornerback D'Angelo Ponds --
+- [14:59.310] what a good name, intercepted the ball.
+- [15:01.080] Where's D'Angelo?
+- [15:02.280] Curt Cignetti: Training camp.
+- [15:03.480] The President: Oh, I can't believe it.
+- [15:06.190] No wonder you won.
+- [15:08.340] Curt Cignetti: He was a junior.
+- [15:09.540] The President: Wow. How good? Really good?
+- [15:11.390] Curt Cignetti: Really good.
+- [15:12.760] The President: Intercepted the ball and ran it back
+- [15:14.530] for the game's first touchdown.
+- [15:15.870] After securing a commanding 56 to 22 victory,
+- [15:19.640] this team was off to the championship.
+- [15:23.330] In the championship game against Miami,
+- [15:25.930] Indiana held a narrow ten nothing lead at halftime,
+- [15:29.130] controlling the pace but unable to pull away.
+- [15:32.290] The score remained low for most of the game,
+- [15:34.590] but everything changed in the fourth quarter -- that's true.
+- [15:37.890] With under ten minutes remaining,
+- [15:39.350] Indiana faced a critical fourth and five, no coach in America
+- [15:44.320] would have done what this guy did.
+- [15:45.830] Said this guy is making such a mistake and he won.
+- [15:50.410] That was a hell of a play.
+- [15:51.980] You know, that's the kind of play if they don't do that play,
+- [15:54.980] if it doesn't work, that's like career threatening, right?
+- [15:58.440] Curt Cignetti: You got to play to win.
+- [15:59.770] The President: He got to play. It was great.
+- [16:02.050] And Miami's 13-yard line, Fernando took the snap
+- [16:05.460] and powered through the defense past the first down marker
+- [16:09.580] before launching himself into the end zone,
+- [16:11.610] extending Indiana's lead 24-14. But Miami wasn't done yet.
+- [16:17.450] The hurricanes took possession and scored,
+- [16:20.240] cutting Indiana's lead 24 to 21. Indiana got the ball once more
+- [16:25.610] and put three more points on the board,
+- [16:28.270] pushing the score to 27-21.
+- [16:31.910] I mean, you have to see this game.
+- [16:34.250] I was saying that coach I know he's got a good reputation,
+- [16:37.950] this guy is calling the wrong place but he kept winning,
+- [16:41.060] he kept -- they kept scoring, they kept doing all this stuff.
+- [16:44.840] The things that weren't supposed to happen,
+- [16:47.620] you're just lucky you won that game because if you didn't,
+- [16:50.210] they would have said, this coach is crazy.
+- [16:53.270] With just 51 -- that's why he's a great coach.
+- [16:55.560] With just 51 seconds left to tie the game
+- [16:58.700] and deep within Indiana's territory,
+- [17:00.520] Miami's quarterback fired off a 30-yard pass,
+- [17:03.660] only to be intercepted by Junior Jamari Sharpe.
+- [17:07.680] Where's Jamari? Come on up.
+- [17:15.450] Come on. Look at this. You want to say something.
+- [17:20.600] Go ahead. Tell him how good the coach.
+- [17:23.670] Jamari Sharpe: Coach Cigs is a very good coach, you know.
+- [17:25.600] Once he first came to Indiana,
+- [17:27.150] I didn't know if I was going to stay,
+- [17:28.550] but I stayed and I'm glad I stayed
+- [17:30.470] because we won a national championship.
+- [17:35.870] The President: He doesn't want to leave the stage.
+- [17:38.680] Good looking guy, huh? Thank you.
+- [17:40.090] Jamari Sharpe: Thank you.
+- [17:41.850] The President: He didn't want to leave the stage.
+- [17:44.820] He's a natural. So the hurricanes are great.
+- [17:49.810] The team is so great.
+- [17:51.940] Jamari, I want to thank you for getting up
+- [17:54.170] and making such a rousing speech.
+- [17:56.390] By the way, a lot of people don't do that.
+- [17:57.820] You know, a lot of times they'll do that and say,
+- [17:59.530] I don't want to talk but he's got a future
+- [18:02.210] in a lot of things, probably football, first of all.
+- [18:04.280] From there, the outcome was sealed
+- [18:06.690] and the Hoosiers became national champions.
+- [18:08.800] Think of that, right? I was there.
+- [18:15.010] You went through a lot of great teams when you think --
+- [18:16.960] and real football powerhouses over the years,
+- [18:19.110] it's pretty intimidating.
+- [18:20.400] Curt Cignetti: Six top ten teams.
+- [18:21.640] The President: Yeah, yeah, amazing. Top tens.
+- [18:24.380] This team lifted the Indiana football program
+- [18:26.840] from a historic low.
+- [18:28.620] It really didn't have a good reputation over there,
+- [18:31.140] but tells you what coaching means too.
+- [18:33.510] But your grit and discipline and your belief
+- [18:36.030] and your strength of character, the coach is --
+- [18:38.250] I think he's just an incredible --
+- [18:39.970] I think it's an incredible story.
+- [18:41.560] When I heard they were coming today,
+- [18:42.980] I said, I got to meet that coach because he came out of a --
+- [18:48.060] like high school, a great high school program
+- [18:50.140] but you made it good but what you --
+- [18:51.690] what you did is something that I don't think
+- [18:54.530] anybody's ever really done in college football --
+- [18:57.140] college football history.
+- [18:58.410] How is your -- how is your team going to be this year, Coach?
+- [19:00.580] What do you think?
+- [19:01.940] Curt Cignetti: Well, we got a chance if we commit
+- [19:04.090] and if we have discipline and a great work ethic,
+- [19:06.740] and if we can handle success and we can handle failure
+- [19:10.640] and we're consistent day in, day out, we might have a chance.
+- [19:14.630] The President: How about this guy?
+- [19:17.920] Is he central casting or what? He's -- I'm going to watch you.
+- [19:21.900] I'm going to watch you. You're amazing.
+- [19:24.030] You have made the fans really proud and inspired millions,
+- [19:28.070] all of you, the coach and the players
+- [19:30.550] and reminded everyone that with determination
+- [19:33.010] and lots of hard work, anything's possible.
+- [19:35.090] And I said to the coach, you know,
+- [19:36.650] we have a very special area.
+- [19:38.210] Well, that's very special we're building a beautiful ballroom.
+- [19:41.540] You can see it's not too small, Coach. We need it.
+- [19:44.330] For 150 years, they've wanted a ballroom.
+- [19:46.040] We're going to give them the greatest ballroom
+- [19:47.700] anywhere in the country. I'm very good at ballrooms.
+- [19:50.240] I'm very good at building things.
+- [19:51.670] But I said to the coach is a special place here,
+- [19:55.290] and it's called the Oval Office.
+- [19:56.800] Everything sort of begins, ends and re-begins again
+- [20:01.060] and I said, if you like --
+- [20:02.400] like Coach shall take your entire team back
+- [20:06.180] and we're going to go to the Oval Office,
+- [20:07.740] show them the Oval Office,
+- [20:08.960] and we're going to give them a very, very special medal.
+- [20:12.770] And I said, so what do you want to do, Coach?
+- [20:15.630] He said, we want to go -- hold it.
+- [20:17.480] You guys want to go to the Oval Office?
+- [20:19.270] I had a feeling you would say that.
+- [20:22.250] I had a feeling. So, Coach, say a few words.
+- [20:24.860] You know um, I'm really honored to be with this guy
+- [20:28.010] because he took something from it's not
+- [20:30.510] like he inherited a great program.
+- [20:32.300] He inherited something that was less than great,
+- [20:35.290] and he made it into something
+- [20:36.580] that probably has never been done at this level,
+- [20:39.780] never been done before.
+- [20:41.010] Congratulations, Coach.
+- [20:43.040] Curt Cignetti: Thank you, thank you, thank you.
+- [20:47.980] Got a lot of Hoosiers in the stands here and behind me.
+- [20:52.270] We got to give him one 1-2-3, Hoo-hoo-hoo-hoo-Hoosiers, right?
+- [20:56.890] 1-2-3, Hoo-hoo-hoo-hoo-Hoosiers! You got that? OK, thank you.
+- [21:04.980] That's a lot of nice accolades there appreciate all that it.
+- [21:08.830] It all starts with Pam Whitten, our president;
+- [21:10.840] Scott Dolson, our athletic director.
+- [21:14.540] You got to have a commitment at the top.
+- [21:23.910] Without a commitment at the top nothing's possible.
+- [21:27.880] OK. 2025 Indiana Hoosiers, all right.
+- [21:33.250] You know, 24 was a fluke, right?
+- [21:35.500] College football playoffs start out 10 and 0, you know.
+- [21:38.880] They won't be very good. All right, 16 and 0,
+- [21:42.570] that's the best record in college football since 1894.
+- [21:47.080] That's 132 years, that's before the NCAA.
+- [21:51.560] So safe to say that's the greatest record
+- [21:53.760] in college football history.
+- [21:59.210] Beat six top ten teams, all right?
+- [22:04.100] And how did we get that done, all right?
+- [22:07.120] We had great people on the staff that thought --
+- [22:10.640] that thought alike, in the locker room
+- [22:13.100] that thought alike, great leadership,
+- [22:15.460] good talent, great character, coachable,
+- [22:20.210] 11 guys doing their job, play in, play out, all right?
+- [22:23.900] The sum becomes greater than --
+- [22:25.610] the whole, becomes greater than the sum of its parts
+- [22:28.410] and the most consistent day in, day out, meeting in meeting out,
+- [22:32.470] practice in, practice out group I've ever seen in my life.
+- [22:36.840] And when to me, it's a simple message, all right?
+- [22:41.210] Prepare the right way every single day to a high standard
+- [22:44.640] and anything is possible in life.
+- [22:46.720] The only limitations are those between your ears
+- [22:49.370] and you can't have any of those either.
+- [22:51.530] So go IU.
+- [22:53.270] Now, it's my pleasure to introduce junior wide receiver,
+- [22:58.870] Charlie Becker, from Nashville, Tennessee.
+- [23:01.300] Or as Gus Johnson would say, Charlie B.
+- [23:04.600] from Nashville, Tennessee.
+- [23:12.490] Charlie Becker: How's it going, everybody?
+- [23:13.970] Um, first of all, I just would like to thank Mr. President.
+- [23:17.310] Thank you so much for having us.
+- [23:18.680] The President: Thank you.
+- [23:19.920] Charlie Becker: This is an honor.
+- [23:21.120] I know I speak on behalf of my team by saying,
+- [23:23.010] we're going to remember this for the rest of our lives.
+- [23:25.880] And secondly, I would just like to thank
+- [23:27.600] all the Hoosier fans out there.
+- [23:30.020] You know, from the start of the season
+- [23:31.430] to the end of the season,
+- [23:32.650] y'all were there through the highs
+- [23:33.860] and the lows and none of this is possible without y'all.
+- [23:36.110] So thank you guys and go IU.
+- [23:41.800] Curt Cignetti: All right.
+- [23:43.070] In our appreciation for this great visit today
+- [23:46.480] for President Trump, we have some Hoosier gear,
+- [23:49.260] which a couple of years ago they were given away.
+- [23:51.780] Now you got to pay a lot of money for this stuff.
+- [23:54.520] So, really appreciate this great opportunity
+- [23:57.670] and this great day. Thank you very much.
+- [23:59.610] The President: Thank you very much.
+- [24:02.270] Curt Cignetti: There you go. 47 on the back.
+- [24:04.460] I think we got one picture. Yeah, that's right.
+- [24:11.900] The President: I like this guy. That's great, Coach. Thank you.
+- [24:18.400] What else do you have over there? How about a helmet?
+- [24:21.330] Curt Cignetti: All right, here we go.
+- [24:22.800] We got a signed football.
+- [24:24.090] 16 and 0, fast, physical, relentless, go IU.
+- [24:26.580] The President: Wow.
+- [24:27.790] Curt Cignetti: Curt Cignetti and players.
+- [24:29.030] The President: That's great, Curt.
+- [24:30.260] That's beautiful. OK, we're coming down.
+- [24:36.390] Charlie Becker: We just got an IU helmet also, sir.
+- [24:40.020] The President: Thank you.
+- [24:45.850] Curt Cignetti: We'll let you keep the trophy
+- [24:47.170] for an NIL contribution.
+- [24:51.620] The President: I'll do that for NIL.
+- [24:54.780] Boy, oh, boy, did the court screw us up, huh?
+- [24:58.210] That's all right it's whatever happened,
+- [25:00.570] it seems to be working for you --
+- [25:01.980] -- and you're going to --
+- [25:04.090] you're going to make it very successful
+- [25:05.710] you're going to create something very, very successful,
+- [25:08.300] I have no doubt.
+- [25:09.510] So we're going to take the players now to the Oval Office
+- [25:13.160] and they're going to get a little glimpse at some --
+- [25:16.600] I think it's the most important piece of real estate
+- [25:19.510] anywhere in the world in terms of in terms of victory
+- [25:23.850] and in terms of winning
+- [25:25.050] and in terms of things that are happening,
+- [25:27.280] things are happening right now in our country.
+- [25:29.080] You know, a little bit like your team,
+- [25:31.140] our country a year and a half ago was laughed at.
+- [25:34.180] We were mocked, and now we're the hottest country
+- [25:37.220] anywhere in the world. There's nobody close.
+- [25:38.890] We have the greatest military in the world.
+- [25:40.660] We're unparalleled and we're doing a job.
+- [25:44.260] We've made America great again,
+- [25:46.620] and this team has got a tremendous future.
+- [25:50.420] Don't lose the coach. She said we can't lose the coach.
+- [25:54.400] It's a piece of work, right? We're not going to lose him
+- [25:57.580] but I just want to thank everybody.
+- [25:59.330] It's a great turnout, it's a great turnout
+- [26:01.220] but you know, we do this a lot
+- [26:03.110] and there's always spirit for a winning team
+- [26:04.910] we have all the teams come here,
+- [26:06.300] but this was one I really look forward to
+- [26:08.290] because the story of Indiana University
+- [26:10.960] is really a legendary story.
+- [26:12.880] It's a very unusual story.
+- [26:14.230] We have a lot of teams where they win
+- [26:16.280] and they keep winning and they keep winning.
+- [26:17.910] They don't know what it is,
+- [26:19.320] and you have some that lose and get a little bit lucky
+- [26:22.200] this is a team that came out from really a program
+- [26:25.620] that was a basketball program,
+- [26:27.350] largely and now it's a great, great football program
+- [26:30.100] and you're going to have a tremendous year.
+- [26:32.820] It's a fantastic group, and I look forward to watching
+- [26:36.520] it's going to be a very interesting
+- [26:37.750] but you're going to have a great year.
+- [26:39.840] And I know people like this there are very few of them
+- [26:43.000] never bet against a guy like this I'm telling you.
+- [26:45.590] Never bet against a guy like Curt.
+- [26:47.680] So thank you, Curt, and coach, very much, OK?
+- [26:50.280] Thank you very much. Thank you, everybody.
+- [26:52.310] We're going to take them to the Oval Office.
+- [26:54.710] Thank you. Let's go, fellas. Come on, follow us.
+- [26:59.960] (applause)
+- [27:05.955] ♪ (orchestral "We are the Champions) ♪

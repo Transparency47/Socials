@@ -1,0 +1,1316 @@
+<!-- source: https://www.youtube.com/watch?v=D3urjiwp_wQ -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: D3urjiwp_wQ -->
+<!-- date_published: 2025-09-25T21:19:44+00:00 -->
+<!-- date_accessed: 2026-06-02T02:44:18.123536+00:00 -->
+
+# Transcript: President Trump Signs Executive Orders, Sep. 25, 2025
+
+- [00:07.640] The President: Thank you very much.
+- [00:08.980] We've had some very really good talks today on Gaza
+- [00:13.400] with both the Middle East representatives and kings
+- [00:18.110] and all of the top leaders in the Middle East
+- [00:20.830] and we had also a very good conversation with Bibi Netanyahu
+- [00:25.020] trying to get the hostages back
+- [00:26.530] and we're trying to get the end of the Gaza situation.
+- [00:31.220] It's really bad, very bad. And we think it could happen,
+- [00:35.580] maybe it could happen pretty soon.
+- [00:37.690] We want the hostages back, we want the bodies back,
+- [00:41.110] and we want to have peace in that region.
+- [00:44.520] So we had some very good talks.
+- [00:46.940] As you know, I had President Erdogan here -- Turkey --
+- [00:51.760] and we had a great meeting today.
+- [00:53.160] I think we had a great meeting that
+- [00:54.450] It was very conclusive in so many different things.
+- [00:57.960] Things that we wanted, things that he wanted.
+- [00:59.680] And that was good.
+- [01:00.940] We'll be announcing that sometime later.
+- [01:03.840] And he'll be making an announcement, too.
+- [01:05.540] But we had a great meeting with Turkey
+- [01:07.310] and their very respected President.
+- [01:10.170] And spent time.
+- [01:11.530] We had lunch, and we had a lot of good discussions,
+- [01:14.130] so those two things.
+- [01:15.410] And we have some executive orders today to sign
+- [01:18.620] that are very important for the country.
+- [01:23.170] And we'll start off with one that's a proclamation.
+- [01:26.220] Yes, sir. Want to do that, Will?
+- [01:27.690] Will Scharf: Yes, sir.
+- [01:28.910] So today is Gold Star Mothers and Families Day.
+- [01:32.040] This is an annual proclamation.
+- [01:34.880] This is to commemorate the fallen,
+- [01:37.080] those who have died for all of our freedoms
+- [01:38.910] and for our country, and for their families
+- [01:41.550] who have suffered such grievous losses.
+- [01:43.720] But this is a proclamation commemorating Gold Star mothers
+- [01:46.970] and Gold Star families.
+- [01:49.350] The President: And they're great people.
+- [01:51.320] Incredible people, what they've had to go through.
+- [01:54.820] Very few people could have gone through this kind of thing.
+- [01:57.690] Gold Star. Thank you very much. I'll put it on this table.
+- [02:06.170] Will Scharf: Next, sir, we have an executive order on TikTok.
+- [02:08.420] From the first days of your administration,
+- [02:10.150] you've charged a team from your administration
+- [02:12.710] led by Vice President Vance with ensuring
+- [02:15.510] that we can preserve TikTok as a platform
+- [02:18.290] for the 170 million Americans who use it,
+- [02:20.860] while ensuring that their data is properly protected
+- [02:23.300] as required by law. With this executive order,
+- [02:26.390] you will be effectively bringing into effect
+- [02:29.370] the agreement that will save TikTok
+- [02:31.270] and ensure that it can operate safely and securely.
+- [02:34.390] The President: So this is interesting
+- [02:35.730] because I had a very good talk with President Xi,
+- [02:40.140] a lot of respect for him.
+- [02:41.710] Hopefully, he has a lot respect for me too.
+- [02:44.280] And we talked about TikTok and other things,
+- [02:47.370] but we talked TikTok and he gave us the go-ahead.
+- [02:50.510] You know, it's run by American investors
+- [02:52.800] and American companies.
+- [02:54.430] Great ones, great investors, the biggest.
+- [02:57.200] You don't get bigger, I don't imagine.
+- [02:59.900] And maybe I'll have to, JD --
+- [03:02.020] JD was very much involved and in charge of it.
+- [03:05.180] And maybe, I'll let you say a few words about the deal.
+- [03:07.690] He would report back and the points of the deal,
+- [03:11.750] I think, are great for our country.
+- [03:13.960] So JD, do you want to give it a little talk, please?
+- [03:16.120] The Vice President: Yes, sir, yeah, so thank you, sir
+- [03:17.550] for your leadership and for your help.
+- [03:19.130] We really couldn't have done this without the President
+- [03:20.920] actually ushering this deal over the finish line.
+- [03:24.110] There was some resistance on the Chinese side,
+- [03:26.180] but the fundamental thing that we wanted to accomplish
+- [03:28.010] is that we want to keep TikTok operating,
+- [03:29.990] but we also wanted to make sure
+- [03:31.350] that we protected Americans' data privacy
+- [03:33.670] as required by law, both because it's the right thing to do,
+- [03:36.450] but also because it is a legal requirement of the law
+- [03:38.470] that was passed last year by Congress.
+- [03:40.200] So we think that we were able to do that.
+- [03:42.200] Of course, we're going to keep on working at it,
+- [03:43.880] but this deal really does mean. That Americans can use TikTok,
+- [03:47.870] but actually use it with more confidence
+- [03:49.510] than they have in the past
+- [03:50.750] because their data is going to be secure
+- [03:52.320] and it's not going to used as a propaganda weapon
+- [03:54.900] against our fellow citizens. We're very excited about it.
+- [03:57.960] We appreciate the cooperation of everybody involved
+- [04:00.500] and it is a big day.
+- [04:02.290] The President: And I think I can say
+- [04:03.560] that especially the young people,
+- [04:05.020] they really wanted this to happen.
+- [04:07.440] They did not want to have TikTok closed.
+- [04:09.950] And I got, you know, a little used to TikTok.
+- [04:13.350] I used it myself during the campaign
+- [04:14.950] and it was very successful
+- [04:16.210] because you know how I did with the young voter.
+- [04:18.850] And Charlie helped me a lot, too.
+- [04:20.730] And he said to me, you should go on TikTok.
+- [04:24.540] And it actually had because we got record votes
+- [04:27.730] with the young voters, you know, for the election.
+- [04:30.170] So I was a little bit prejudiced in that way toward TikTok.
+- [04:34.000] It was very good and very meaningful.
+- [04:36.500] But we have American investors taking it over,
+- [04:39.210] running it, highly sophisticated,
+- [04:42.750] including Larry Ellison and Oracle,
+- [04:46.410] I guess is going to play a very big role
+- [04:48.470] in terms of security, safety and everything else.
+- [04:51.270] So we have very good controls.
+- [04:55.160] Literally, I would get a call from friends of mine
+- [04:57.340] who were fathers of young people saying,
+- [04:59.060] could you do me a favor?
+- [05:00.320] Could you get it approved, please?
+- [05:01.540] My son is driving me crazy.
+- [05:04.340] So we're getting it done and they have a big audience
+- [05:06.500] and we have great American investors.
+- [05:10.040] And here's your final copy. TikTok.
+- [05:15.600] You know, maybe if you want,
+- [05:16.950] we could take a couple of questions on TikTok
+- [05:18.850] and then we're going to get onto something
+- [05:20.460] completely different, okay?
+- [05:22.350] Yeah. Jeff?
+- [05:23.550] The Press: Mr. Vice President,
+- [05:24.760] you mentioned that China was resistant.
+- [05:26.350] Can you describe where China is now?
+- [05:28.160] Are they fully on board with this?
+- [05:29.650] Is there anything more to say?
+- [05:30.930] The President: I spoke with President Xi.
+- [05:32.510] I had a good talk.
+- [05:33.880] I told him what we were doing and he said, go ahead with it.
+- [05:37.600] The Press: The algorithm (inaudible)
+- [05:38.990] China is still being leased, coming from China.
+- [05:41.740] Are you satisfied that there's no security concerns from --.
+- [05:44.960] The President: I am. I really am.
+- [05:47.080] The biggest reason is that it's owned
+- [05:48.800] by Americans and very sophisticated Americans
+- [05:53.000] and people that love the country and very smart Americans too.
+- [05:57.870] So they don't want anything like that to happen.
+- [05:59.900] Yes, please.
+- [06:01.140] The Press: Is there any operational relationship
+- [06:03.050] with Chinese entities or staff to execute the deal?
+- [06:06.070] The President: With who?
+- [06:07.460] The Press: (inaudible) the Chinese.
+- [06:09.320] The President: I don't think so.
+- [06:10.710] Not that I know of. We're going to be --
+- [06:12.410] this is going to American operated all the way.
+- [06:15.900] And great respect for President Xi
+- [06:19.780] and I very much appreciate that he approved the deal
+- [06:22.220] because to get it done properly,
+- [06:24.380] we really needed the support of China
+- [06:26.690] and the approval of China. Yes, ma'am.
+- [06:28.200] The Press: Mr. President,
+- [06:29.440] now that Americans will have operational control,
+- [06:32.320] do you want to see the algorithm suggest
+- [06:34.470] more MAGA-related content prioritized?
+- [06:37.640] The President: I always like MAGA-related.
+- [06:39.340] If I could, I'd make it 100 percent MAGA related.
+- [06:43.800] It's actually a good question, but I would --
+- [06:45.390] yeah, if I could make it one hundred percent MAGA,
+- [06:48.660] I would, but it's not going to work out
+- [06:50.340] that way, unfortunately.
+- [06:51.570] No, everyone's going to be treated fairly.
+- [06:53.760] Every group, every philosophy,
+- [06:58.330] every policy will be treated very fairly. Thank you.
+- [07:00.920] The Press: Mr. President, do you know the
+- [07:02.450] (inaudible) value, billions?
+- [07:05.580] The President: Well, they valued it very highly.
+- [07:07.770] They're paying a big number. Do you want to talk, Scott?
+- [07:09.840] Do you want to say something about value?
+- [07:11.800] Secretary Bessent: Well, I'll let the Vice President
+- [07:13.900] and then I can follow up.
+- [07:15.350] The Vice President: And you'll say something.
+- [07:16.580] Sure. Well, first of all, I would say all credit
+- [07:18.830] goes to the Secretary of the Treasury.
+- [07:20.330] Couldn't have gotten it done without Scott.
+- [07:22.030] Also couldn't got it done without Sean Cooksey on my team,
+- [07:24.800] so thanks to them.
+- [07:26.100] The company will be valued around $14 billion.
+- [07:29.170] We actually think this is a good deal for investors,
+- [07:30.970] but ultimately the investors are going to make the determination
+- [07:33.210] about what they want to invest in
+- [07:34.930] and what they think is proper value.
+- [07:36.300] The most important thing is that
+- [07:38.170] it does protect Americans' data security.
+- [07:40.170] It ensures TikTok is still accessible.
+- [07:42.460] And on this question of the algorithm,
+- [07:43.880] which we've heard this a lot.
+- [07:45.380] What this deal ensures is that the American entity
+- [07:48.330] and the American investors will actually control the algorithm.
+- [07:51.560] We don't want this used as a propaganda tool
+- [07:53.310] by any foreign government.
+- [07:54.510] We want to make sure that our people
+- [07:56.390] and our investors actually make these decisions
+- [07:59.160] based on what's good for their business
+- [08:00.760] as opposed to what's good
+- [08:01.970] for another government's propaganda arms.
+- [08:03.850] So that's what we've done with this deal.
+- [08:05.820] I think it's very good for the American people.
+- [08:07.530] And as the President said, young people love this.
+- [08:09.740] We actually want everybody to access this,
+- [08:12.110] whether they're MAGA or not.
+- [08:14.210] We just want it to be fair. We want it be fair to everybody.
+- [08:16.490] And we think that's what's going to happen
+- [08:18.010] with this new arrangement.
+- [08:20.630] Secretary Bessent: And just to follow up
+- [08:22.150] on the Vice President,
+- [08:23.370] there were two pieces to the transaction.
+- [08:25.290] The Vice President's office has worked
+- [08:26.910] since the spring for the commercial transaction
+- [08:29.760] between the investor groups. And then Treasury and a group,
+- [08:35.100] including the Vice President's office,
+- [08:36.810] were in Madrid two weeks ago to negotiate with the Chinese.
+- [08:40.560] And it was a result of President Trump's
+- [08:42.680] close relationship with Party Chair Xi
+- [08:44.960] that we were able to get this across the line.
+- [08:47.470] We created a framework for Party Chair Xi to agree.
+- [08:52.810] And then, on the leader's call, Xi and President Trump
+- [08:59.110] discussed the final arrangement.
+- [09:00.770] So it was one, two, and that was the final piece.
+- [09:05.120] The Press: Will the U.S. Government
+- [09:06.450] get any kind of annual payment as a result of this deal?
+- [09:09.830] The President: Taxes. Going to make money,
+- [09:12.890] and we're going to get a lot of money in taxes.
+- [09:15.940] And, you know, China wanted to see this go.
+- [09:17.910] It's a great legacy for China, too.
+- [09:21.120] I thought President Xi was great in terms of his approval.
+- [09:25.850] We probably could have done it a different way,
+- [09:27.870] but it wouldn't have been the same.
+- [09:29.250] It wouldn't be the same security at all.
+- [09:31.890] But I appreciated that he approved it.
+- [09:33.930] The Press: So that's the inside from taxes.
+- [09:35.810] There's no part of the deal
+- [09:37.010] that is like a payment to the U.S. Government.
+- [09:40.340] The President: Well, we're going to be announcing
+- [09:42.430] different things, but the U.S. comes out great.
+- [09:45.600] And I think China comes out great
+- [09:47.080] because they're going to have a very important legacy.
+- [09:49.360] And they have many other deals.
+- [09:50.650] You know, they have deals with us,
+- [09:51.970] and they have deal in here, in this country.
+- [09:54.730] And, you know, they want to be treated fairly also.
+- [09:57.260] The Press: So, Mr. President and Mr. Vice President,
+- [09:59.320] the U.S. company could change the algorithm
+- [10:01.650] to push different content?
+- [10:03.430] The Vice President: The U.S. Company will have control
+- [10:05.920] over how the algorithm pushes content to users.
+- [10:08.040] And that was a very important part of it.
+- [10:09.520] We thought it was necessary
+- [10:10.760] for the national security element of the law.
+- [10:12.650] We also just think it's important
+- [10:13.990] to protect American users.
+- [10:15.200] Again, we want users to use this platform the way they want to.
+- [10:18.150] We want the business to make decisions about content
+- [10:21.180] based on the interest of the business
+- [10:22.460] and based on interest of users.
+- [10:24.080] And that's what we think will happen
+- [10:25.280] with this new arrangement.
+- [10:26.670] The President: And they're paying a lot of money,
+- [10:28.090] and I think, hopefully, it's going to be a great deal.
+- [10:30.430] They're very sophisticated people. You'll see a list.
+- [10:32.730] Have you seen a list yet of the people?
+- [10:34.460] Well, you've been reading about it.
+- [10:35.860] There are several ones, yeah.
+- [10:37.890] It's -- I know Michael Dell is involved,
+- [10:40.100] and Rupert Murdoch is involved.
+- [10:42.070] And a lot -- and let's say we have probably four
+- [10:47.040] or five absolutely world-class investors that love the country,
+- [10:52.410] and they made a lot money with the country.
+- [10:55.640] Many of them are in a somewhat related business,
+- [10:58.480] so it works out pretty well.
+- [10:59.960] And they're going to be very careful
+- [11:01.160] about all of these questions that you've been asking.
+- [11:04.170] The Press: What else beyond Dell and Murdoch?
+- [11:06.590] The Vice President: Well, it's a blue-chip group of investors,
+- [11:08.630] and we'll be announcing more about
+- [11:10.780] who exactly is involved in the deal in the days to come.
+- [11:13.390] The President: Oracle's playing a very big part.
+- [11:15.040] That's right, sir. And Oracle really understands this.
+- [11:18.070] And I think they're actually --
+- [11:19.440] and they've been involved for quite a while,
+- [11:21.120] running it for the people, the previous people.
+- [11:24.400] And so it's really --
+- [11:26.940] I think it's going to be very well protected.
+- [11:28.870] Very prestigious deal, actually.
+- [11:30.490] The Vice President: On that point,
+- [11:31.730] Mr. President, as the President said,
+- [11:33.500] Oracle has actually had a role
+- [11:35.950] in housing the data for a long time,
+- [11:38.280] even when the entity was controlled
+- [11:39.640] by the ByteDance organization in China.
+- [11:42.550] So Oracle had a pretty interesting perspective
+- [11:44.260] on what was necessary to actually create
+- [11:46.560] true data privacy protections for Americans.
+- [11:49.870] They were a very important part of getting this thing done.
+- [11:52.300] The Press: Mr. President, you told us a couple weeks ago
+- [11:53.980] you thought that the security concerns were overrated.
+- [11:56.640] But were there legitimate concerns
+- [11:58.260] when it comes to safety?
+- [11:59.830] The President: From my standpoint,
+- [12:01.050] no, because the people that own it are --
+- [12:03.870] you know, they're not China-centric.
+- [12:06.800] They're USA-centric, and they're very smart people.
+- [12:10.170] I guess you could say it about everything.
+- [12:11.810] Everything is what's secure nowadays.
+- [12:16.070] Things that you think are totally secure turn out to --
+- [12:18.290] not to be. But I think in this case,
+- [12:20.080] it's going to be as secure as you can be
+- [12:21.700] because of the ownership and the people.
+- [12:24.070] And they have a big investment, you know.
+- [12:26.440] To their advantage, to make sure it's good and safe.
+- [12:29.920] Anybody else? Do you have a question? No, behind you.
+- [12:31.840] The Press: Well, I just want to say,
+- [12:33.080] do you think this move
+- [12:34.310] and getting this deal done, Mr. President,
+- [12:35.900] and putting this on (inaudible)
+- [12:37.160] legacy, like Charlie Perry mentioned,
+- [12:39.090] that he's specifically pushing you
+- [12:40.790] to get involved with TikTok in the campaign
+- [12:43.360] and helping more (inaudible)?
+- [12:46.120] The President: Well, I think it's a good thing.
+- [12:47.510] It's a sign. We're doing very well,
+- [12:50.130] as you know, with the trade deals.
+- [12:53.360] We're very well with China and a lot of them.
+- [12:56.590] We were never treated properly.
+- [12:59.260] We were for four years, actually.
+- [13:01.960] But we were never very properly by other countries.
+- [13:06.530] And we're doing well. We've never done this well.
+- [13:08.440] We have -- because of the tariffs that are coming in,
+- [13:11.580] the deals that are being made.
+- [13:13.820] Nine hundred and fifty billion dollars in one case.
+- [13:16.450] Nine hundred fifty billion,
+- [13:18.720] where previously they paid nothing.
+- [13:21.090] We have, as you know, in Japan,
+- [13:23.980] it's five hundred and fifty billion.
+- [13:25.540] South Korea is three hundred and fifty billion now.
+- [13:27.730] That's up front.
+- [13:29.600] And one of the things I can say, I announced it lightly before,
+- [13:33.650] but we're taking in tremendous amounts of money with tariffs.
+- [13:38.050] We've never -- seen anything like it.
+- [13:41.210] Nobody's -- no country has ever seen anything like it,
+- [13:43.360] and I'm going to devote a little bit of that money,
+- [13:46.470] a little of the tariff money, to our farmers.
+- [13:49.360] Our farmers have been incredible.
+- [13:52.130] They're the ones that let us survive and eat
+- [13:54.670] and enjoy our lives, right?
+- [13:56.530] Eat too much, maybe, in some cases, like mine.
+- [14:00.020] But I will tell you, we're going to take some of the tariff,
+- [14:04.310] relatively small amount, but a lot for the farmers.
+- [14:07.220] And we're going to help the farmers out a little bit,
+- [14:08.950] because during this transition period --
+- [14:11.040] a period where we're taking in incredible amounts of money,
+- [14:16.860] we'll have a little of a shortfall with the farmers
+- [14:20.290] until the tariffs kick in,
+- [14:21.610] because they haven't kicked in for the farmers yet.
+- [14:24.210] And I decided before,
+- [14:26.480] and I spoke to all of the people here,
+- [14:29.460] that I want to make a contribution
+- [14:32.210] out of the tariff money.
+- [14:34.480] A small percentage of it, but it's a lot for the farmers.
+- [14:37.560] It'll make the farmers feel very good.
+- [14:39.860] Just help them through the transition.
+- [14:42.250] And ultimately, they're going to be making a fortune.
+- [14:44.790] They maybe will be one of the top.
+- [14:48.290] One of the top in the whole world,
+- [14:50.270] in terms of percentage
+- [14:52.250] gotten from the tariffs we're taking in.
+- [14:54.870] But we have so much coming in, it's a very small thing.
+- [14:57.300] But I want to -- in fact,
+- [14:59.040] just get the word out to the farmer,
+- [15:01.070] because they'll be struggling until the transition
+- [15:03.150] is complete, then after that, they're going to do, I think,
+- [15:05.070] better than they've ever done before.
+- [15:06.710] Last time I told --
+- [15:07.970] I said, get yourself a larger tractor and more land.
+- [15:12.370] And that was when they were doing very poorly.
+- [15:14.730] And they ended up doing that, and they did very well.
+- [15:17.370] That was with the deal we made with China.
+- [15:19.390] Unfortunately, Biden forgot about the deal,
+- [15:21.350] and he never enforced -- I enforced it till the end.
+- [15:24.250] And China was very honorable.
+- [15:26.380] But when Biden came in, he didn't enforce it.
+- [15:28.370] So when you don't enforce a deal, they don't do it.
+- [15:31.330] So it was terrible.
+- [15:32.650] Biden was very bad to the farmers of our country.
+- [15:35.160] So we're going to be doing that.
+- [15:36.460] It's an honor to do it, too. Brian, did you have a question?
+- [15:38.610] The Press: I'm just going to say,
+- [15:39.830] what's your message to the millions
+- [15:41.520] of small businesses here in the U.S.
+- [15:43.460] That really rely on TikTok to reach their end user
+- [15:46.850] and to market their service?
+- [15:48.600] The President: Well, thank you for that question,
+- [15:49.840] because honestly, we were getting hit up.
+- [15:53.300] They use it for virtual advertising,
+- [15:55.250] and they pay very little for it and nothing for it.
+- [15:58.130] And small businesses have become very successful
+- [16:01.360] because of TikTok.
+- [16:03.080] And we didn't think of that, you know,
+- [16:04.830] when everyone's saying, oh, TikTok and this and that.
+- [16:07.860] But over the last six months, I was called by so many people
+- [16:12.440] saying they're going to go out of business if they can't --
+- [16:14.540] because they use it virtually as a advertising tool.
+- [16:18.900] And without it, they wouldn't have anything.
+- [16:20.560] They wouldn't be able to get the word out
+- [16:22.110] about their good product
+- [16:23.340] or whatever it is they're selling.
+- [16:24.860] So it's a very important thing for small businesses.
+- [16:27.070] It's another reason I wanted to do the deal so badly.
+- [16:30.680] So let's go to another subject now, if we might. Okay?
+- [16:33.620] And Will, please. Yes, go ahead.
+- [16:36.500] The Press: What will that look like?
+- [16:37.720] Will that be checks to farmers or is it going to be --
+- [16:40.020] The President: Well, we haven't decided
+- [16:41.250] that we'll be dealing with Brooke later
+- [16:44.230] and the Secretary of Agriculture.
+- [16:46.250] And we'll figure out how to get money to the farmers.
+- [16:50.530] And again, this comes out of the large amount,
+- [16:55.070] hundreds of billions of dollars of tariff money
+- [16:57.390] that's pouring into the country.
+- [16:59.830] The tariffs, remember when I said a long time ago,
+- [17:02.380] I said it's the greatest word?
+- [17:04.040] It's my favorite word in the world.
+- [17:05.460] Then I had to say, I was forced to say other things.
+- [17:09.450] Of course, rightfully so. Love, family, religion.
+- [17:13.960] So I think I put tariff number five.
+- [17:15.860] I was forced because the fake news had a big number on me.
+- [17:19.050] It's one of those little --
+- [17:20.450] but let's say it's my fifth favorite word, tariff.
+- [17:24.250] But it's making our country very rich.
+- [17:26.530] And when our country is rich, I'm able to help the farmers
+- [17:28.910] and I'm even able to other countries that are in trouble.
+- [17:32.630] But we're able to people that are trouble.
+- [17:35.080] Medicaid, Medicare, Social Security.
+- [17:39.120] It's all a benefit of this tremendous amount.
+- [17:42.260] And I heard numbers coming in today, Scott,
+- [17:44.620] where the numbers were very high, right?
+- [17:47.380] Secretary Bessent: The economic numbers
+- [17:48.890] were off the charts, sir.
+- [17:50.180] The President: Unfortunately, right?
+- [17:51.400] Because this is the only country in the world
+- [17:53.490] where you announce great numbers and the stock market goes down.
+- [17:56.700] Because when you announce good numbers,
+- [17:58.410] they immediately want to take that success away
+- [18:00.540] by raising the interest rates.
+- [18:02.420] Why can't they - you announce great number
+- [18:05.160] and let them lower the interest rate
+- [18:06.670] so you can make numbers.
+- [18:08.620] This is the own country in world.
+- [18:11.150] We just -- I don't know if you heard.
+- [18:13.180] Could you just tell them what the number was?
+- [18:14.850] Secretary Bessent: It was 3.8 percent, 8 percent growth.
+- [18:18.920] The biggest in years.
+- [18:20.650] And the important thing, as the President says,
+- [18:23.200] this is going to be non-inflationary growth
+- [18:25.270] just like it was in its first term.
+- [18:27.220] So strong growth, low inflation, real wage gains.
+- [18:32.850] And to the question on small business,
+- [18:36.200] small business optimism under President Trump
+- [18:39.660] last week hit a multi-year high.
+- [18:42.440] Multi-year highs. So small businesses.
+- [18:44.870] Main Street is back under President Trump.
+- [18:47.910] The President: But isn't it crazy?
+- [18:49.130] So I saw the market was down a little bit today.
+- [18:51.950] I mean, in all fairness, I don't feel guilty
+- [18:53.530] because we've set every record you can imagine.
+- [18:56.130] But it was down and I said, oh, the numbers must be good.
+- [18:59.930] Meaning the growth numbers are phenomenal.
+- [19:02.620] And again, this is during but a little bit of pre the heavy,
+- [19:06.930] you know, the really success and the money
+- [19:08.820] pouring into our country through the tariffs.
+- [19:13.950] I just say, why can't we have great numbers
+- [19:16.460] and lower the interest rates so we have even greater numbers?
+- [19:19.400] So people were saying, oh, the numbers are so good.
+- [19:22.530] They're going to have to raise interest rates.
+- [19:25.380] That doesn't have to happen. And there's no inflation.
+- [19:29.330] We have really, I mean, the only thing we have is great success.
+- [19:32.310] We're having unbelievable success.
+- [19:34.360] So the numbers are much higher than anticipated,
+- [19:37.270] except for by me and Scott and some of the other people.
+- [19:40.900] And they'll get a lot higher than that too.
+- [19:42.910] But I don't want to every time we have good numbers say,
+- [19:46.180] let's take all the juice out by raising interest rates.
+- [19:49.850] It's so backwards. It's so backwards.
+- [19:52.440] Secretary Bessent: Mr. President,
+- [19:53.740] they don't appreciate the importance
+- [19:55.590] of the third leg of your stool
+- [19:56.860] because trade taxes and deregulation
+- [20:00.010] allows for significant upside growth without inflation.
+- [20:04.000] So eventually the people at the Fed
+- [20:05.940] will be able to focus on this
+- [20:07.350] like Alan Greenspan did in the 90s.
+- [20:09.420] You can have strong growth and low inflation.
+- [20:12.420] And I think we get the stock market up.
+- [20:14.720] Wall Street, Main Street, both doing well.
+- [20:16.890] The President: And low interest, we want low interest rates.
+- [20:19.610] There's no reason that every time
+- [20:21.010] we announce these record numbers,
+- [20:22.630] these numbers are way above projections by,
+- [20:24.850] you know, all the great geniuses out there.
+- [20:28.600] But I knew this was going to happen.
+- [20:30.700] So they had 71 different people and only two got it right.
+- [20:33.800] Me and another gentleman from, I think,
+- [20:36.570] my wonderful warden school of finance, actually.
+- [20:39.640] So, anyway, but.
+- [20:42.230] I really want you to look at that
+- [20:43.640] every time we have good numbers, they say this is a good time
+- [20:47.710] because they're guarding against inflation
+- [20:49.630] that may happen in two years from now.
+- [20:52.640] We have to change. We have the change.
+- [20:54.250] I think we should be rewarded for good numbers not penalized.
+- [20:58.920] The Press: So, Mr. President, is that 3.8?
+- [21:00.900] Is that the start of a 3 percent growth for the entire year?
+- [21:04.130] The President: Well, you know, the number was projected at two
+- [21:06.760] because we're in a little bit of a transition period,
+- [21:08.830] but that transition period is ending faster
+- [21:11.060] than we thought on tariffs.
+- [21:13.670] The money coming in is much greater than people thought
+- [21:17.620] and there's no inflation, essentially.
+- [21:19.490] There's no Inflation.
+- [21:20.990] We just went through the worst inflation
+- [21:22.790] in the history of our country under sleepy Joe Biden.
+- [21:25.610] He was sleeping and the inflation was really bad.
+- [21:29.810] Worst ever. They say 48 years. I'll take that too,
+- [21:32.670] but I think it was probably the worst inflation we ever had
+- [21:35.710] because of spending and energy going through the roof
+- [21:40.420] and everything else. By the way, energy is way down
+- [21:43.360] and you're going to really be impressed
+- [21:45.210] when you hear what happened today with.
+- [21:47.930] President Erdogan of Turkey.
+- [21:49.360] I think it's great for both countries.
+- [21:51.370] I think that's great.
+- [21:52.620] We have great relationships with a lot of countries
+- [21:54.710] and you may be even more happy when you find out
+- [21:57.930] because we spoke with Bibi Netanyahu today
+- [22:00.410] and we spoke to all the leaders in the Middle East
+- [22:02.860] who are great people and we're getting pretty close
+- [22:05.570] to having a deal on Gaza and maybe even peace.
+- [22:10.690] Which would be the first time in about,
+- [22:12.060] what, 2,000 years, I think.
+- [22:14.770] In the region, I'd say the first in --
+- [22:16.700] Steve, what would you say?
+- [22:18.010] First in 2, 000 years or maybe 1, 000?
+- [22:22.380] It's a long time. Yeah, go ahead. Yeah, go ahead.
+- [22:24.990] The Press: (inaudible).
+- [22:27.410] The President: I don't want to say that,
+- [22:28.760] but if I want him to, he will.
+- [22:32.680] The Press: But he didn't take that as (inaudible)?
+- [22:34.090] The President: Well, I didn't say, okay,
+- [22:35.640] you stop, but I believe he will stop it, yeah.
+- [22:39.180] You know why? Because he can buy from a lot of other people.
+- [22:42.290] He can buy it from a lot of other.
+- [22:43.810] You know who really can't is Hungary.
+- [22:46.350] Hungary's got, you know, they're landlocked
+- [22:49.050] and they don't have a nice ocean
+- [22:50.940] where ships can sail in from all over the world.
+- [22:53.000] You know, and they have one pipeline coming
+- [22:55.140] because I spoke with, he's a great guy,
+- [22:56.630] he's great friend of mine,
+- [22:57.890] but you know that's a harder word for that.
+- [22:59.750] And Slovakia too.
+- [23:02.050] They're sort of married to one pipeline.
+- [23:07.290] So I just don't want to have people go blaming them when,
+- [23:10.060] you know, we spoke to them at length today
+- [23:12.520] and it seems like that, you for them it's a little --
+- [23:15.390] but that said, yeah, Turkey has a lot of options.
+- [23:20.160] He's a great president, a very smart man
+- [23:22.220] and he's going to take, he's going to do what's right.
+- [23:26.380] But we had a very good conversation having to do
+- [23:28.330] with the purchase of military equipment, et cetera.
+- [23:31.410] Any other questions?
+- [23:32.670] The Press: Did you make a deal on F-35s, Mr. President?
+- [23:35.130] The President: I will be able to easily if I want to.
+- [23:37.050] So we may do that, yeah.
+- [23:38.600] The Press: But not yet.
+- [23:39.840] The President: Well, it depends,
+- [23:41.070] he's going to do something for us, yeah. Please.
+- [23:44.170] The Press: Can I ask you, we're a few days away --
+- [23:47.110] The President: By the way, here we go with this guy.
+- [23:48.980] Go ahead, let's go. Let's hear the question.
+- [23:51.120] The Press: (inaudible)
+- [23:52.470] is there going to be a government shutdown?
+- [23:55.240] The President: Could be, you know,
+- [23:56.580] because the Democrats are crazed,
+- [23:59.880] they don't know what they're doing.
+- [24:02.220] They want to have the border opened up
+- [24:05.360] so that criminals can pour in.
+- [24:07.210] You know, we're doing unbelievable borders closed
+- [24:09.250] and people are coming into our country legally.
+- [24:11.990] They want have, they continue
+- [24:13.240] to want to have men and women's sports.
+- [24:14.870] They continue to want to have transgender for everyone.
+- [24:18.530] They want raise everybody's taxes
+- [24:20.280] at a number that's not sustainable.
+- [24:23.660] It's the only time in the world
+- [24:25.090] I've ever seen a party that wants to raise taxes.
+- [24:27.190] You know, I grew up in a family where I'd watch politics
+- [24:30.240] and I always liked it from the time I was very young,
+- [24:32.290] but I'd always see politicians say, we will lower your taxes.
+- [24:35.570] These guys, they campaign on raising your taxes,
+- [24:38.920] but they want to raise taxes very substantially.
+- [24:41.190] The Press: The one thing they're concerned about,
+- [24:42.860] I mean, look, Republicans have total control of Washington.
+- [24:45.010] You guys have control of the House,
+- [24:46.290] the Senate, there's --
+- [24:47.880] The President: Well, when you say control,
+- [24:49.360] so we need 60 votes for this and we have 53 Republicans.
+- [24:54.260] So we need seven Democrats. So we need seven Democrats.
+- [24:56.470] The Press: And those seven Democrats are asking
+- [24:57.800] for an extension of the tax credit
+- [25:00.860] (inaudible).
+- [25:06.640] The President: Well, what they're really asking for
+- [25:08.610] is they want to pay for illegal aliens
+- [25:11.340] that have come into our country by the millions
+- [25:14.220] and get onto the rolls and they want to pay
+- [25:16.630] and our people don't want to do that.
+- [25:18.220] Our people are taxed enough.
+- [25:20.350] You know, we just approved the largest tax decrease
+- [25:24.130] ever in the history of our country,
+- [25:25.420] including the extension of the previous Trump,
+- [25:28.740] you know, Trump tax cuts.
+- [25:30.920] The tax cuts that we just approve,
+- [25:32.660] they want to use those tax cuts
+- [25:34.570] to give the money to illegal aliens,
+- [25:36.420] people that came into our country illegally
+- [25:38.400] and that are leaving the country.
+- [25:40.420] You know, there's been a self-deportation
+- [25:42.840] because of what we've been doing.
+- [25:44.080] That's been incredible. Okay, yeah, please.
+- [25:46.890] The Press: (inaudible)
+- [25:54.030] The President: From all around the country to what?
+- [25:56.100] The Press: (inaudible)
+- [26:01.350] The President: Well, I know, I love it.
+- [26:02.600] I mean, I think it's great. Let him be friendly.
+- [26:05.140] Let him friendly with the generals
+- [26:07.340] and admirals from all over the world.
+- [26:08.760] Why is there some -- no, but is there something wrong with..
+- [26:11.220] No, but is there something wrong with --.
+- [26:13.470] The Press: (inaudible).
+- [26:14.680] The President: Well, I'll be there if they want me,
+- [26:15.890] but why is that such a big deal? I mean, he's --
+- [26:18.590] the fact that we're getting along with the generals
+- [26:20.680] and admirals from all --
+- [26:22.050] remember, I'm the President of peace.
+- [26:25.230] It's good to get along. You act like this is a bad thing.
+- [26:28.670] Isn't it nice that people are coming
+- [26:30.430] from all over the world to be with us?
+- [26:32.500] The Vice President: It's not particularly unusual
+- [26:34.190] that generals who report to the secretary of War
+- [26:36.320] and then to the President of the United States
+- [26:37.940] are coming to speak with the Secretary of War.
+- [26:39.890] It's actually not unusual at all.
+- [26:41.310] And I think it's odd that you guys have made it
+- [26:42.780] into such a big story.
+- [26:44.610] The President: Is it a big story?
+- [26:47.240] The Vice President: I don't think it is, sir.
+- [26:48.550] The President: I would think it's --
+- [26:49.780] no, but isn't it a good story?
+- [26:51.830] I mean, you know, we're respected
+- [26:54.000] from all over the world as a military force.
+- [26:56.630] You know, I rebuilt the military during my first term,
+- [26:59.710] even though we gave a chunk of it away to Afghanistan.
+- [27:02.610] But we're talking to Afghanistan, too,
+- [27:04.170] by the way, about pogrom and about that.
+- [27:07.810] But that's a very small amount
+- [27:09.040] compared to what we rebuilt it by.
+- [27:10.680] But I rebuilt the military and we're very respected.
+- [27:14.740] We have the strongest military anywhere in the world,
+- [27:16.820] without question.
+- [27:18.020] We have the greatest equipment in the world.
+- [27:19.710] We're selling the equipment to other countries.
+- [27:23.410] And a lot of generals want to be here
+- [27:25.410] and they want to look at the --
+- [27:26.740] they're also going to be touring equipment sites.
+- [27:29.350] They're going to be talking about the newest weapons,
+- [27:31.350] et cetera, et cetera.
+- [27:32.580] But I think it's great when generals and top people
+- [27:36.020] want to come to the United States
+- [27:37.450] to be with our now-called Secretary of War.
+- [27:40.310] Does everybody like the name? I do.
+- [27:42.690] The Press: You said something really interesting this week
+- [27:44.730] about Ukraine, that you thought Ukraine
+- [27:46.780] could get back all of the territory that Russia had taken.
+- [27:49.230] The President: Yeah, they have a shot at it, because Russia --.
+- [27:50.730] The Press: What prompted you to change your thoughts on this?
+- [27:52.420] The President: Well, because I've been watching the way
+- [27:54.420] Russia's and what Russia's been doing,
+- [27:57.210] I'm very dissatisfied with what Russia is doing
+- [28:01.290] and what President Putin is doing.
+- [28:03.560] I haven't liked it at all.
+- [28:05.230] It's killing people for no reason whatsoever.
+- [28:08.270] And they are doing very poorly,
+- [28:11.350] considering they have put it all out on the line.
+- [28:15.250] Their economy is going to hell.
+- [28:17.270] They are bombing the hell out of everything,
+- [28:19.380] and they're picking up very little territory, if any.
+- [28:22.320] In fact, they're losing some territory.
+- [28:25.150] So I think it's been very bad for the reputation of Russia.
+- [28:30.180] This war should have been over.
+- [28:32.070] If this were our war, we would have had it over in one week.
+- [28:36.530] And they're getting into the fourth year, Jeff.
+- [28:39.390] They're getting in to the fourth year now.
+- [28:41.310] Four years of fighting, and you see what they've taken.
+- [28:44.400] In the last month, they've taken very little,
+- [28:46.630] and you've been reporting on all the bombing,
+- [28:48.580] all the drones all over the place.
+- [28:50.890] Nine hundred drones coming into certain areas,
+- [28:54.150] like Kiev and 1-9.
+- [28:56.650] And with all of that work, they've take over very little.
+- [29:00.860] You know, I'm very disappointed in President Putin.
+- [29:03.800] I thought -- I solved seven wars.
+- [29:06.460] In fact, we have a great leader coming,
+- [29:09.030] the Prime Minister of Pakistan coming,
+- [29:11.510] and the Field Marshal, Pakistan,
+- [29:14.990] Field Marshl ais a very great guy,
+- [29:17.320] and so is the Prime Minster both.
+- [29:19.600] And they're coming, and they may be in this room right now.
+- [29:21.590] I don't know, because we're late,
+- [29:23.390] and I said maybe they'd like to join them.
+- [29:25.420] They actually may be somewhere in the beautiful,
+- [29:28.520] in the beautiful Oval Office. Yeah, please, behind you.
+- [29:31.380] The Press: (inaudible)
+- [29:36.200] The President: I will not allow Israel
+- [29:37.800] to annex the West Bank.
+- [29:39.020] No, I will not allow it. It's not going to happen.
+- [29:41.750] The Press: Did you speak with Netanyahu about this?
+- [29:43.330] The President: Yeah, but I'm not going to allow it,
+- [29:44.840] whether I spoke to him or not. I did.
+- [29:46.310] But I'm not allowing Israel to annex the West Bank.
+- [29:50.050] There's been enough. It's time to stop now.
+- [29:52.270] Okay. Yes, please.
+- [29:55.150] Jasmine Crockett --
+- [29:56.720] The President: Jasmine Crockett? Remember what I said?
+- [30:01.590] Is she a relation to the late-grade Davy Crocket?
+- [30:04.320] I don't think so.
+- [30:05.550] Jasmine Crocket, let me tell you, before you even ask.
+- [30:08.940] She's a very low IQ person.
+- [30:12.370] I mean, if we ever had to pass an aptitude test,
+- [30:14.490] that's the one she'd take one,
+- [30:15.770] because she shouldn't even be in the crowd.
+- [30:17.360] So I have no idea what you're going to do,
+- [30:18.810] but I don't think we should waste our time.
+- [30:20.490] This is a low IQ person.
+- [30:23.220] Who I can't even believe is a congressperson
+- [30:26.200] between her and Ilman Omar and the group.
+- [30:29.980] You know, I met the head of Somalia.
+- [30:31.540] Did you know that?
+- [30:33.190] And I suggested that maybe he'd like to take her back.
+- [30:35.630] And he said, I don't want her. Okay, what else? Go ahead.
+- [30:40.300] You want to let's hear what let's hear what Crockett said.
+- [30:43.280] The Press: She compared ICE rates to slave patrol.
+- [30:45.760] I want to ask you --
+- [30:46.980] The President: To slave --
+- [30:48.220] The Press: To slave patrol.
+- [30:49.460] I want ask you if you think that there should be consequences
+- [30:52.200] for members of Congress
+- [30:53.550] who make these types of comparisons.
+- [30:55.810] The President: Well, I think she's gone over the line
+- [30:57.660] and I think a lot of the people --
+- [30:59.550] look the Democrats have become radical left lunatics.
+- [31:03.690] They have policies that nobody's going to buy.
+- [31:07.520] And, you know, I see what's going on in New York.
+- [31:09.900] We're going to have a perhaps a communist mayor
+- [31:12.230] because it's split up.
+- [31:13.500] You know, the people would get together
+- [31:14.910] and have one candidate that have a thing of pretty good chance.
+- [31:17.880] But looks like maybe they're not going to do that,
+- [31:20.740] but we're going to end up with a communist mayor.
+- [31:22.680] It's not even believable.
+- [31:23.890] My beautiful New York when I left New York
+- [31:26.060] to become President, it was a great place,
+- [31:30.160] but it was the beginning of bad things because we had de Blasio.
+- [31:34.350] I had just started as mayor
+- [31:35.600] and I said this guy's a bad this guy
+- [31:37.260] is a real nut job went to Harvard to teach management.
+- [31:40.690] Can you believe he went to Harvard to teach City Management
+- [31:44.270] along with the mayor of Chicago who went to Harvard to teach me
+- [31:48.510] the two of them are teaching how to manage a city.
+- [31:51.740] Into manage it into hell is what they do,
+- [31:55.330] but that was the beginning
+- [31:56.570] and now we're going to go a step further.
+- [31:58.030] Now we're going with the communist.
+- [32:00.030] Can I be honest? I think it's the greatest thing
+- [32:02.040] to ever happen to the Republican Party.
+- [32:04.510] I really do.
+- [32:05.720] I think if a communist takes over New York City,
+- [32:08.930] I think that's a gift to the Republican Party
+- [32:11.890] is sad for New York,
+- [32:13.160] but it's a gift and New York will recover because you know,
+- [32:16.210] sometimes you need a shock like that to straighten you out,
+- [32:20.070] but it's a politically is probably a very good thing.
+- [32:24.060] The Press: (inaudible)
+- [32:27.060] The Press: That's a lot of that's a lot of
+- [32:28.280] (inaudible).
+- [32:29.480] The Press: You have a number of cities
+- [32:30.750] that are pushing back against your immigration deportation
+- [32:32.890] as well as your crime initiatives.
+- [32:34.630] The President: I don't think they're very much
+- [32:36.010] pushing back, no.
+- [32:37.220] The Press: Some of those cities have World Cup games.
+- [32:39.010] Seattle, San Francisco.
+- [32:40.290] The President: They're going to be
+- [32:41.560] very they're going to be very secure.
+- [32:43.760] The Press: Secure, but could those things move
+- [32:45.310] if they don't cooperate with your crime --
+- [32:46.950] The President: That's an interesting, I guess,
+- [32:48.560] but we're going to make sure they're safe.
+- [32:51.010] They're run by radical left lunatics
+- [32:53.020] and that don't know what they're doing.
+- [32:54.810] Look at Washington, DC. I just got numbers.
+- [32:56.870] It's like no crime in Washington, D.C.
+- [32:59.230] You Jeff will not be mugged walking down the street.
+- [33:01.650] You can walk down the street with your family.
+- [33:04.300] You can walk down your street with your wife,
+- [33:06.090] your daughter, your son, and you're not going to be.
+- [33:08.640] We took out 1700 career criminals
+- [33:12.020] that were not allowing back.
+- [33:14.220] And we have this city in great shape.
+- [33:16.840] You know, there was a time when every single not long ago
+- [33:21.100] when every single week you'd have at least one murder.
+- [33:24.640] And look what's happening with Washington is safe.
+- [33:27.290] I went to dinner in Washington just to prove a point.
+- [33:29.850] I gave a press conference in the middle of a street.
+- [33:32.630] I wouldn't say Secret Service was thrilled, but I did it.
+- [33:36.200] And here I am. Look, Washington, D.C.
+- [33:40.400] Is such a great example of what can be done.
+- [33:43.360] We did it in 12 days. We made it very safe in 12 days.
+- [33:47.490] And now it's much safer than that.
+- [33:50.210] One other thing I drove around Washington over the weekend
+- [33:52.850] and I said, Look at the difference.
+- [33:55.250] The grass look great. Everything look great,
+- [33:57.900] you know, we had a lot of our National Guard
+- [34:00.410] and we didn't ask them to do it.
+- [34:01.960] They did it themselves. They're proud. They're great.
+- [34:04.570] And they were picking up paper. They were cleaning.
+- [34:07.330] The place look really beautiful.
+- [34:10.040] So we have a great Washington, D.C.
+- [34:12.040] We, as you probably know, We're going into Memphis
+- [34:15.390] and we're going into some other cities
+- [34:16.970] and very soon we're going to go into Chicago.
+- [34:19.400] It will be safe for the World Cup.
+- [34:21.630] If it if I think it isn't safe,
+- [34:23.650] we'll move it into a different city.
+- [34:25.040] Absolutely. We'll take the world.
+- [34:27.140] If I think it's not it's actually a very fair question.
+- [34:29.670] If I think it is not safe,
+- [34:30.970] we're going to move it out of that city.
+- [34:33.130] If like the governor of Illinois who is, you know,
+- [34:39.650] look last week doing last week in the week before 11 murders
+- [34:45.280] and 38 people were shot.
+- [34:47.800] Then he gets up and says this is a very safe
+- [34:50.530] and then he says crime is better.
+- [34:52.010] The reason crime is better
+- [34:53.290] is because cash put about five months ago
+- [34:56.660] a whole team of FBI people there to get ready for when we go in
+- [35:01.270] and they've lowered it a little bit.
+- [35:02.630] You know like 20 25 percent, which isn't good enough,
+- [35:06.520] but it's a good start. But that was only put there
+- [35:10.130] because they're preparing for us to go in
+- [35:12.520] and they've done, by the way, they've done a good job.
+- [35:14.560] So then Pritzker gets up. We've lowered crime 25.
+- [35:17.230] It's because the FBI was here. So no, if any city we think
+- [35:21.670] is going to be even a little bit dangerous
+- [35:23.300] for the World Cup or for the Olympics,
+- [35:25.200] you know where they have Olympic overthrow, right?
+- [35:28.490] But for the World Cup in particular,
+- [35:30.020] because they're playing in so many cities,
+- [35:31.730] we won't allow it to go.
+- [35:32.930] We'll move it around a little bit.
+- [35:34.170] But I hope that's not going to happen. Yeah.
+- [35:36.220] The Press: Mr. President,
+- [35:37.460] the record developed this morning indicated
+- [35:39.680] that the shooter in Dallas
+- [35:41.250] had been using an app to track ICE.
+- [35:44.300] Does your administration have any plans
+- [35:46.120] to take down those apps or give them to the authorities?
+- [35:49.550] The President: Well, I can't tell you about that,
+- [35:51.320] but it tells you when they want to wear masks
+- [35:53.750] or they want to hide a little bit why that's so important.
+- [35:57.820] But these are great patriots.
+- [36:00.620] The ICE and what a tough job they have.
+- [36:03.230] What an unbelievably tough job they have and think of it.
+- [36:05.830] What are they doing?
+- [36:07.070] They're taking hardcore criminals out of our country
+- [36:10.140] and putting them back. These were largely criminals
+- [36:12.700] that were given to us by Joe Biden
+- [36:15.590] and his group of radical maniacs that surrounded this desk
+- [36:19.250] just like these people surround the desk now,
+- [36:21.460] but they're not maniacs, they're very solid people.
+- [36:23.900] The Vice President: Thank you, sir.
+- [36:26.560] The President: I'm glad I prefaced.
+- [36:28.340] But they're great. We have a great cabinet.
+- [36:31.530] We have great people and he didn't have great people.
+- [36:35.290] He had terrible people. Look at Afghanistan.
+- [36:37.590] Look at the people he had running our military.
+- [36:40.460] That that could happen.
+- [36:41.740] The most embarrassing day in the history of our country
+- [36:44.530] was Afghanistan and 13 young people died.
+- [36:48.540] They don't ever talk about the 38
+- [36:50.960] that were horribly wounded with legs and arms
+- [36:53.350] and everything else really horribly wounded.
+- [36:56.010] So the country is respected.
+- [36:59.780] Like it's probably almost never been respected.
+- [37:02.630] I think we're respected at a level and a year ago
+- [37:05.250] it was a dead country.
+- [37:06.510] We had a dead country a year ago.
+- [37:08.150] This country was dying.
+- [37:09.440] It was really it was it was really in bad shape.
+- [37:13.920] Let's talk about the next subject, can we?
+- [37:16.690] Will Scharf: One of the most powerful deterrents
+- [37:18.420] we have to violent crime is the death penalty.
+- [37:21.910] As you said your administration has taken bold decisive steps
+- [37:25.200] to ensure that Washington, D.C.
+- [37:27.030] is once again a safe and secure city for its residents
+- [37:30.250] and all who visit.
+- [37:31.730] This is a presidential memorandum
+- [37:33.320] that directs your attorney general and your U.S. Attorney
+- [37:36.270] for the District of Columbia Judge Jeanine Pirro
+- [37:39.140] to fully implement the death penalty here in Washington, D.C.
+- [37:42.410] where the evidence and facts of a case indicate
+- [37:44.980] that the death penalty should be used.
+- [37:47.790] The President: Everybody understands death penalty
+- [37:49.450] in Washington. You kill somebody or if you kill a police officer
+- [37:53.190] law enforcement officer death penalty
+- [37:56.190] and hopefully there won't be that.
+- [37:58.050] So again, it's way down and we have had week
+- [38:02.270] after week after week where we haven't had a murder.
+- [38:05.700] I said that the other day
+- [38:06.980] in front of the president of Poland.
+- [38:09.840] The press was here and I said ladies and gentlemen
+- [38:12.700] I'd like to announce that Washington, D.C.
+- [38:15.950] has not had a death in four weeks of murder
+- [38:20.570] and he looked at me he goes is that good or bad?
+- [38:22.530] He said what kind of a place is this?
+- [38:25.160] But it's true for years.
+- [38:26.560] I mean every week essentially somebody got killed
+- [38:29.330] or more than one and this is a very safe city right now.
+- [38:35.250] We don't play games and you know it's interesting
+- [38:38.290] we took these careers out career criminals
+- [38:41.550] they call them careers they just they left the word criminal out
+- [38:44.800] but we took the careers out of here
+- [38:48.600] and they're now brought back to their homes
+- [38:51.230] or they're in jail or they are in a jail in another country.
+- [38:54.460] And hopefully they're not coming back
+- [38:56.500] and we have to maintain it you can't just leave
+- [38:58.520] and we have to maintain it we've gotten along fairly well
+- [39:01.320] with the mayor you know she's getting a party
+- [39:03.720] that hates that the city's becoming safe
+- [39:06.730] I mean they're actually criticizing her
+- [39:08.310] because the city is becoming safe
+- [39:10.400] but this is becoming a very this
+- [39:12.450] is right now a very very safe city
+- [39:14.940] this is considered this went from the most unsafe city
+- [39:17.930] in the country to the safest city
+- [39:19.510] in the country there's no city any safer
+- [39:22.030] that's a pretty big achievement and we really did it in 12 days
+- [39:26.340] but if you add an extra week to it that would be nice
+- [39:30.150] and I mean you can go out to dinner restaurants
+- [39:32.740] are booming you know the restaurants were dead.
+- [39:35.920] They were dead even if you got to the restaurant
+- [39:38.340] then somebody would come in and hold you up you know
+- [39:40.620] they'd hold up the whole restaurant
+- [39:42.870] they go to Uber young ladies in the White House
+- [39:46.320] they'd call Uber for protection they'd run to the car
+- [39:49.460] because they were petrified to be
+- [39:50.810] from the entrance of their building to the car
+- [39:53.760] now they feel safe they're in the car
+- [39:55.390] and then the car gets hijacked
+- [39:56.780] while they're at the back of the car
+- [39:58.390] this is what we were living in we were living in hell people
+- [40:01.700] that work in the White House
+- [40:03.030] every time they see me young women in particular
+- [40:05.860] thank you sir and I don't even ask them
+- [40:08.330] about what I know exactly I made their lives
+- [40:11.620] now they're living in a beautiful glamorous place
+- [40:14.340] called Washington, D.C.
+- [40:15.540] with no crime and that's the way it should be okay
+- [40:18.470] this is the death penalty
+- [40:19.670] for somebody that kills people in Washington, D.C.
+- [40:23.000] I think it's capital
+- [40:24.460] it's a very interesting capital punishment capital city
+- [40:27.900] right it's capital, capital, capital
+- [40:30.400] but this is our capital city
+- [40:31.740] we can't allow that to happen people come in from Iowa
+- [40:34.320] to look at the Lincoln Memorial
+- [40:36.350] and they end up getting killed doesn't happen
+- [40:38.880] anymore it's not going to happen
+- [40:40.490] and if it does happen it's the death penalty
+- [40:42.630] for the person that did it
+- [40:44.480] and this goes into effect right, Pam, is that right?
+- [40:47.630] Could you speak a little bit about that
+- [40:49.250] AG Bondi: Yes sir not only
+- [40:50.480] are we seeking it in Washington, D.C.
+- [40:52.070] but all over the country again and as you saw very recently
+- [40:55.390] we are now moving the inmates who were on death row
+- [40:59.360] who Joe Biden or the auto pen
+- [41:00.970] commuted their sentences off of death row
+- [41:03.460] we're moving them to supermax facilities
+- [41:06.110] where they will be treated like they're on death row
+- [41:08.400] for the rest of their lives President Trump.
+- [41:11.300] The President: Okay, that's a big statement.
+- [41:12.980] Thank you very much.
+- [41:14.400] Okay I see some of you shaking your heads very positively.
+- [41:18.120] Thank you, Brian Thank you.
+- [41:19.460] The Press: You said on the campaign trail
+- [41:21.580] (inaudible) or a police officer
+- [41:27.860] so this just reinforces your campaign promise.
+- [41:30.840] The President: And most people really like it
+- [41:33.770] and Washington again it's going to serve as a beacon
+- [41:37.260] because you have to do it these are bad people.
+- [41:40.230] When you look at that guy
+- [41:41.960] the guy that killed the young lady in the train
+- [41:45.060] North Carolina that he'll be in trial for years years years
+- [41:51.560] he'll get a good lawyer somewhere along the line
+- [41:53.720] somebody will come along
+- [41:54.990] and what he did to that young lady
+- [41:58.600] and she went into that train scared
+- [42:00.170] you know when she went in the way she sat down
+- [42:02.670] she was she was scared to just be there
+- [42:05.780] she just wanted to not pay any attention
+- [42:07.940] to anybody just not be noticed and she had her throat slit
+- [42:15.710] we don't want that in this country anymore
+- [42:17.400] we're not going to have it in this country anymore.
+- [42:19.380] Thank you very much. Next.
+- [42:21.020] Will Scharf: Lastly sir this is a presidential memorandum
+- [42:23.610] on countering domestic terrorism and organized political violence
+- [42:28.470] in recent weeks months and years
+- [42:30.160] we've seen a tremendous upsurge in some highly visible
+- [42:33.890] but also other acts of domestic terrorism
+- [42:37.190] and organized political violence being perpetrated
+- [42:40.100] by radical politically motivated groups
+- [42:42.720] all over the country what this presidential memoranda will do
+- [42:46.320] is set off an administration wide response
+- [42:48.760] to that ranging from the joint terrorism task
+- [42:51.400] forces to other components of the Department of Justice
+- [42:54.300] to the Department of Homeland Security
+- [42:55.720] and Department of Treasury
+- [42:57.190] we're looking at interdicting these groups
+- [42:58.870] preventing them from performing acts of violence
+- [43:01.480] and also looking at sources of organization
+- [43:03.690] and funding and support that prop them up
+- [43:05.940] and allow them to do the acts that they have been doing.
+- [43:09.140] The President: We're looking at the funders
+- [43:10.520] of a lot of these groups
+- [43:12.130] and you know when you see the signs
+- [43:14.900] and they're all beautiful signs
+- [43:16.420] made professionally these aren't your protesters
+- [43:19.390] that make the sign in their basement late in the evening
+- [43:21.540] because they really believe it these are anarchists
+- [43:24.300] and agitators professional anarchists and agi-tators
+- [43:27.780] and they get hired by wealthy people
+- [43:30.080] some of whom I know I guess you know probably know
+- [43:33.470] And you wouldn't know it you're at dinner
+- [43:35.210] with them everything's nice and then you find out
+- [43:37.050] that they funded millions of dollars to these lunatics.
+- [43:41.640] Steve, could you say a couple of words?
+- [43:43.880] Stephen Miller: This is a very historic and significant day
+- [43:46.430] this is the first time in American history
+- [43:49.030] that there is an all of government effort to dismantle
+- [43:52.630] left-wing terrorism to dismantled
+- [43:54.840] Antifa to dismantles the organizations
+- [43:56.650] that have been carrying out
+- [43:57.880] these acts of political violence and terrorism
+- [44:00.500] What we have seen if you look at whether it be going back
+- [44:03.210] to the riots that started with Black Lives Matter
+- [44:05.960] and all the way through to the Antifa riots the attacks
+- [44:08.760] on ICE officers the doxing campaigns
+- [44:10.700] and now the political assassinations
+- [44:12.580] these are not lone isolated events
+- [44:14.870] this is part of an organized campaign of radical
+- [44:17.200] left terrorism it is structured it is sophisticated
+- [44:20.450] it is well funded it is planned
+- [44:22.950] there is really no parallel like this
+- [44:25.410] to anything else in the country right now
+- [44:27.620] There is a entire system of feeder organizations
+- [44:31.800] that provide money resources weapons
+- [44:34.270] and when they're attacking
+- [44:35.520] ICE officers they're attacked federal buildings
+- [44:37.990] or they're isolating public officials
+- [44:40.030] for harassment doxing, intimidation
+- [44:42.100] and ultimately attempted assassination
+- [44:44.110] it is all carefully planned executed
+- [44:45.930] and thought through it is terrorism on our soil
+- [44:49.170] because of this executive order
+- [44:50.910] Cash and Pam are going to have the tools
+- [44:52.640] they need working with Scott
+- [44:54.180] to take these organizations apart piece by piece
+- [44:56.830] and the central hub of that effort is going to be
+- [44:58.990] the Joint Terrorism Task Force or JTTF
+- [45:02.180] which sits inside the Federal Bureau of Investigation
+- [45:04.300] but for those at home who are worried about terrorism
+- [45:06.310] in this country they need to understand
+- [45:07.630] because of President Trump's strength
+- [45:09.450] because of his vision because of his leadership
+- [45:12.650] we are now going to use the entire force
+- [45:14.720] of the federal government to uproot these organizations
+- [45:17.200] root and branch and again that's only possible
+- [45:18.790] because of President Trump and his leadership.
+- [45:21.130] The President: Thank you, Steve. Kash, please.
+- [45:22.870] Director Patel: Yes, as Steve was saying Mr. President
+- [45:24.260] thanks to your leadership crime
+- [45:25.710] is going downward in a tremendous fashion
+- [45:28.080] and that's what we want for every city in America
+- [45:30.460] and the FBI's premier flagship enterprise the Joint Terrorism
+- [45:33.570] Task Force are honored to lead this initiative
+- [45:36.170] with our partners at Treasury and Homeland Security
+- [45:38.640] because our citizens are being attacked by
+- [45:40.890] as Steven said organized violence
+- [45:43.130] and it's being paid for not by them by other people
+- [45:46.180] so what we are going to do combining forces as Scott
+- [45:48.640] and I have done in these last few months
+- [45:50.620] is follow the money people and organizations
+- [45:53.810] have collected funds
+- [45:55.320] and put them out into the streets
+- [45:57.000] of America and organized violence across our country
+- [46:00.330] and thanks to your recognition of this
+- [46:01.750] and this executive order and the AG's leadership
+- [46:04.210] to lead out and prosecute these individuals
+- [46:06.050] we are properly going to chase them down
+- [46:08.600] like the domestic terrorists that they are and our streets
+- [46:11.090] and our communities are going to be safer
+- [46:12.720] because the JTTF and the FBI and Treasury and DHS
+- [46:16.290] and DOJ are going combine forces
+- [46:18.640] like never before to root out this new evil
+- [46:21.600] that is perpetuating our criminal activities
+- [46:23.930] across our societies
+- [46:25.220] and we are just so thankful for your leadership
+- [46:27.150] and recognition of it and it's not easy to do.
+- [46:29.330] The President: Good job. Thank you very much. Ma'am?
+- [46:31.320] The Press: (inaudible)
+- [46:37.730] AG Bondi: Any organized group.
+- [46:39.860] Any organized group who is committing these crimes
+- [46:43.160] and we are working with the Secretary of Treasury.
+- [46:45.200] You know what law enforcement has told us
+- [46:46.770] under President Trump's leadership?
+- [46:49.450] He has taken the handcuffs off law enforcement
+- [46:51.900] they can do their jobs now thanks to you,
+- [46:53.830] President Trump and that is what is happening.
+- [46:55.730] And all of these agencies that Kash mentioned
+- [46:57.930] we work hand and hand together
+- [46:59.940] our prosecutors we're following the money
+- [47:01.730] with Treasury we're working with Homeland
+- [47:03.500] Security, Kash's agents, all of our agents DEA, ATF,
+- [47:07.090] US Marshals combined are working and with state
+- [47:09.920] and local government to take these people off the streets
+- [47:12.910] who are jeopardizing lives.
+- [47:14.300] The Vice President: Can I just illustrate this.
+- [47:16.550] I was talking with Kash and Stephen
+- [47:18.040] about this a couple of days ago.
+- [47:19.280] Sir, so I believe it was in Oregon
+- [47:21.110] where you had a federal building
+- [47:22.390] where there were men in black ski masks
+- [47:25.220] who were committing acts of violence
+- [47:26.490] who were shutting down a government building.
+- [47:28.390] To the President's point they don't come from nowhere
+- [47:30.810] these are paid people this is organized they're committing
+- [47:33.530] acts of political terrorism on American soil
+- [47:35.980] it's time we had a government
+- [47:37.360] that looked out for the American people
+- [47:39.160] rather than the people who are committing violence
+- [47:41.160] against the American people.
+- [47:42.930] The President: When you go out to Portland
+- [47:44.260] and you see what's happening in Portland this
+- [47:46.160] is like nobody's ever seen anything like it every night
+- [47:49.220] and this has gone on for years. They just burned the place down
+- [47:52.290] and you know the shop owners most of them have left
+- [47:54.690] but the few shops that are open they just use plywood
+- [47:57.240] and just like three quarter inch plywood.
+- [48:00.530] They don't put storefronts because they know
+- [48:02.200] it's going to be burned down.
+- [48:03.520] These are professional agitators.
+- [48:05.960] These are bad people and they're paid a lot of money
+- [48:08.680] by rich people. Some of whom we know.
+- [48:11.600] I'm sure I know some if I knew I would dissociate
+- [48:15.440] because I'll be in trouble
+- [48:16.960] because Pam will say why are you associating with this person.
+- [48:20.660] But I will tell you that these are bad, bad people
+- [48:23.840] and they are paying a lot money,
+- [48:25.280] millions of dollars but take a look at Portland sometime.
+- [48:29.200] These are wild -- these are crazy people
+- [48:32.330] and they're trying to burn down buildings
+- [48:33.950] including federal buildings
+- [48:35.250] and on my list of things that I want to do
+- [48:38.350] before we finish up with the cities
+- [48:41.380] because I think we're going to whip the cities back into shape
+- [48:43.460] but we have to we cannot let our cities --
+- [48:47.180] and that's a small example but it's the most violent example.
+- [48:50.890] It's every night and they've done it for years.
+- [48:53.820] You think maybe at some point they made their point
+- [48:56.210] and what are they doing? But we're going to get out there
+- [48:58.970] and we're going to do a pretty big number of those people
+- [49:01.330] in Portland that are doing that.
+- [49:02.920] They're professional agitators and anarchists.
+- [49:06.500] They're actually anarchists.
+- [49:07.810] Yeah, go ahead let's see you defend them, Jeff.
+- [49:11.200] The Press: No, I'm not defending anyone.
+- [49:12.520] I just want -- so that we can explain this in our stories.
+- [49:16.220] The President: You don't explain it right though, Jeff.
+- [49:18.740] Go ahead, let's go maybe -- let's give you another chance.
+- [49:21.350] The Press: Antifa, Soros, what names are we talking about?
+- [49:24.700] The Press: Well Soros is a name certainly that I keep hearing.
+- [49:26.950] I don't know but Soros is a name that I hear
+- [49:29.640] I hear a lot of different names
+- [49:30.910] I hear names of some pretty rich people
+- [49:33.670] that are radical left people maybe I hear about a guy named
+- [49:38.900] Reed Hoffman somebody's a pretty rich guy
+- [49:41.730] I guess and I hear about him.
+- [49:43.380] I don't know maybe maybe could be him,
+- [49:46.750] could be a lot of people.
+- [49:48.340] We hear the same names but they're bad
+- [49:50.570] and we're going to find out and if they are funding
+- [49:53.060] these things they're going to have some problems
+- [49:54.570] because they're agitators and they're anarchists.
+- [49:57.340] These are anarchists. Really bad. Okay yeah, please.
+- [50:02.860] The Press: (inaudible).
+- [50:04.120] The President: Who are you with?
+- [50:06.010] I'm with the Center Square, Sarah Roderich is my name.
+- [50:09.870] There's also, as you know,
+- [50:11.080] Antifa is not just a domestic terror organization
+- [50:13.690] or now a domestic terror organization
+- [50:15.210] it's also international.
+- [50:16.730] I know the Netherlands is looking at
+- [50:19.040] also designating them a terror organization.
+- [50:21.460] Have you been working with your intel community
+- [50:24.520] and your DNI to possibly expand that to making them --
+- [50:27.830] designate an international terror organization?
+- [50:30.360] The President: Yep. It's an international --
+- [50:31.900] in many cases it is international, yeah
+- [50:34.660] The Press: (inaudible)
+- [50:41.060] The President: Well, I'd say the maximum under the law,
+- [50:43.180] and we'll see.
+- [50:44.470] Now, if they kill somebody, you just --
+- [50:46.570] we just signed a death penalty, so it depends where it is.
+- [50:48.910] But if they killed somebody -- which they do --
+- [50:51.910] I mean, people are dying.
+- [50:53.170] You go out to Portland, people die out there.
+- [50:56.030] Many people have died over the years in Portland.
+- [50:58.480] Portland is -- I don't know how anybody lives there.
+- [51:00.590] It's amazing. But it's -- it's anarchy out there,
+- [51:03.850] and that's what they want. They want anarchy.
+- [51:05.410] Like when they attacked Seattle
+- [51:07.310] and took over a big percentage of the city,
+- [51:09.720] I was going to go out, and we were going to do a big number.
+- [51:12.170] They heard that, and everybody broke up all of a sudden.
+- [51:15.230] But, you know, you have governors that have to run that,
+- [51:17.280] and a lot of them don't do that.
+- [51:18.850] I don't like to go, and I'd rather have -- like,
+- [51:20.700] I'd rather have Pritzker's support
+- [51:22.240] when we go into Chicago.
+- [51:23.970] But if we don't have it, that's okay, too,
+- [51:25.710] because we're paramount.
+- [51:26.960] And we will do what we have to do.
+- [51:29.770] We're going to make Chicago safe.
+- [51:31.480] We're going to make as many as we can,
+- [51:34.290] and usually that involves a surge.
+- [51:36.760] But what we did with -- in the case of Chicago,
+- [51:39.410] by having the FBI go out there five
+- [51:41.210] or six months ago, we brought it down a little bit.
+- [51:44.050] You know, a little is 25 percent,
+- [51:45.370] so it's not so little.
+- [51:46.640] But it is when you're talking about --
+- [51:49.670] the kind of crime and killings and murders
+- [51:53.150] that you hear in Chicago.
+- [51:54.580] But we're going to get it. Chicago is a great city.
+- [51:57.360] As the Union Pacific said, the head of the Union Pacific,
+- [52:00.220] who's a great guy, started off as a low-rung guy.
+- [52:04.960] He said he started in a caboose.
+- [52:07.190] And now he's the chairman of the Union Pacific.
+- [52:09.490] He's a great guy, but he said, sir, don't lose Chicago.
+- [52:13.270] The way he said it, I said, boy, it really hit me.
+- [52:16.350] You know, here's a man that knows all the cities.
+- [52:18.860] The Union Pacific, I guess, is our largest railroad.
+- [52:22.580] And he knows all of the cities, he's been doing it for 45 years.
+- [52:25.680] And he said sir, don't lose Chicago.
+- [52:27.730] And the way he's said that -- meant a lot to me.
+- [52:30.540] And we're going to go into Chicago very soon.
+- [52:32.490] We're going take care of Memphis.
+- [52:34.330] We're going to take care Memphis.
+- [52:36.180] You can't walk a block without getting shot.
+- [52:38.950] We're taking care of that one,
+- [52:40.380] just like we did Washington, D.C.
+- [52:42.840] And we are going to do Chicago very soon.
+- [52:46.610] The Press: (inaudible)
+- [52:50.670] indictment on James Comey.
+- [52:51.900] Do you know if there is an indictment
+- [52:53.110] (inaudible).
+- [52:54.320] The President: I don't know. I know what's going on
+- [52:56.140] because I read the papers just like you do, right?
+- [52:58.230] So I don't know. Do you have anything to say about that?
+- [53:00.400] AG Bondi: (inaudible).
+- [53:01.665] The Press: (inaudible)
+- [53:02.930] could you comment on the New York Times
+- [53:07.810] report saying that a Justice Department officials
+- [53:09.860] have asked attorneys to target George Soros
+- [53:13.520] (inaudible)?
+- [53:16.680] AG Bondi: I'm not going to comment on whether there is
+- [53:18.230] or is not a pending investigation,
+- [53:20.270] but everything's on the table right now.
+- [53:22.430] The President: I don't think anybody has to ask
+- [53:24.320] because if you look at Soros, he's at the top of every.
+- [53:27.270] -- in fact, sometimes they say,
+- [53:28.690] could he be involved in this many things?
+- [53:30.920] But he's in every story that I read.
+- [53:33.230] Stories that I keep talking about Soros.
+- [53:36.780] So, you know, I guess he'd be a likely candidate.
+- [53:39.180] Thank you very much, everybody. Thank you very much.

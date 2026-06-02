@@ -1,0 +1,215 @@
+<!-- source: https://www.youtube.com/watch?v=H3JdguFpvCc -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: H3JdguFpvCc -->
+<!-- date_published: 2025-07-01T20:39:58+00:00 -->
+<!-- date_accessed: 2026-06-02T01:21:46.985816+00:00 -->
+
+# Transcript: President Trump Gaggles with Press Before Departing the White House, July 1, 2025
+
+- [00:00.000] Morning.
+- [00:14.639] Good morning. We're going out to
+- [00:16.240] Alligator Alcatraz.
+- [00:18.400] It's the East Coast version and it
+- [00:20.640] should be very exciting, very good.
+- [00:22.720] Worked very hard on it with Ron and
+- [00:24.720] everybody and I think it's going to be
+- [00:26.320] great. And then I'll be back here
+- [00:28.160] fighting for the build and I hear going
+- [00:29.840] okay. We're moving along. Uh but we'll
+- [00:33.280] be back here pretty early.
+- [00:36.559] Do you think the president on the bill
+- [00:40.480] not to go too crazy with the cut? Are
+- [00:43.040] there parts of the bill or amendments
+- [00:44.559] that you think cuts to us? We're going
+- [00:46.239] to have to see the final version. I
+- [00:48.000] don't want to go too crazy with cuts. I
+- [00:49.600] don't like I don't like cuts. Uh there
+- [00:52.399] are certain things that have been cut,
+- [00:53.840] which is good. I think we're doing well.
+- [00:56.000] We're going to have to see very
+- [00:57.199] complicated stuff. Uh, great enthusiasm
+- [01:00.800] as you know and I think in the end we're
+- [01:02.960] going to have it. What do you think
+- [01:04.080] Caroline?
+- [01:05.840] What do you think about Zoran Mami
+- [01:08.240] having such a hard time condemning the
+- [01:10.479] phrase globalize the inab? I think he's
+- [01:13.600] terrible. He's a communist. The last
+- [01:16.000] thing we need is a communist. I said
+- [01:18.799] there will never be socialism in the
+- [01:20.880] United States that we have a communist.
+- [01:22.640] So I I think he's bad news and I think
+- [01:25.119] I'm going to have a lot of fun with him
+- [01:26.560] watching him because He has to come
+- [01:28.560] right through this building to get his
+- [01:30.080] money. And don't worry, he's not going
+- [01:32.159] to run away with anything. I think he's
+- [01:33.920] a frankly I've heard he's a total nut
+- [01:36.400] job. I think the people of New York are
+- [01:39.040] crazy. If they go this route, I think
+- [01:40.799] they're crazy. We will have a a
+- [01:42.960] communist in the for the first time
+- [01:45.200] really a pure true communist. He wants
+- [01:48.880] to operate the grocery stores, the
+- [01:51.200] department stores. What about the people
+- [01:53.680] that are there?
+- [01:55.759] I think it's crazy. The president Elon
+- [01:58.240] Musk who what happened to Elon Musk?
+- [02:02.000] Nothing. You know, he's upset he's that
+- [02:04.079] he's lo losing his EV mandate and he's
+- [02:07.200] upset. He's very upset about things, but
+- [02:09.759] you know, he could lose a lot more than
+- [02:11.200] that. I can tell you right now,
+- [02:14.080] Elon Elon can lose a lot more than that.
+- [02:18.930] [Music]
+- [02:21.360] Gaza to be agree.
+- [02:25.040] We hope it's going to happen and we're
+- [02:26.879] looking forward to happening sometime
+- [02:28.400] next week. That has to include the
+- [02:30.879] release of all of the hostages. We want
+- [02:33.280] to get our hostages back.
+- [02:35.840] We want to get the hostages. What if
+- [02:38.480] what if the big beautiful bill does it
+- [02:41.040] pass? You have to go through item by
+- [02:43.360] item by item and pass this stuff one at
+- [02:46.239] a time or are you just going to try
+- [02:47.519] again? Think we're going to get there.
+- [02:50.560] It's got We're trying to bring it down.
+- [02:52.160] break it down so it's really good for
+- [02:54.239] the country. Trying to get a lot for
+- [02:56.480] everybody and it's a big bill and uh
+- [03:00.000] smaller bills would have been easy but
+- [03:01.519] they wouldn't have been as good. I think
+- [03:03.120] it's going to be okay. And with the
+- [03:04.800] alligator Alcatraz, it's the idea that
+- [03:07.519] if some illegal immigrant escapes, they
+- [03:10.080] just get eaten by an alligator or a
+- [03:11.680] snake or something. I guess that's the
+- [03:13.280] concept. This is not a nice business. I
+- [03:16.480] guess that's the concept. If you you
+- [03:18.720] know uh snakes are fast, but alligators
+- [03:21.840] are big. We're going to teach them how
+- [03:23.599] to run away from an alligator. Okay? If
+- [03:26.720] they escape prison, how to run away.
+- [03:29.280] Don't run in a straight line. Look like
+- [03:31.360] this. And you know what? Your chances go
+- [03:33.519] up about 1%. Okay?
+- [03:42.959] So, he's coming here. We're going to
+- [03:44.239] talk about a lot of things. When we talk
+- [03:45.840] about the great success we had, I mean,
+- [03:48.159] we had an incredible
+- [03:50.239] in Iran. We had an incredible success
+- [03:53.120] like really nobody's had in many, many
+- [03:54.959] years. That was a precision war strike.
+- [03:57.280] And the word obliteration can now be
+- [03:59.280] used because the Atomic Energy
+- [04:00.879] Commission said you can't even get into
+- [04:02.959] the place. It was it was demolished. It
+- [04:05.439] was really demolished. It was a great
+- [04:07.439] brilliant strike. And uh how do you get
+- [04:10.560] go forward? We also talk about Gaza. We
+- [04:13.360] want to get the the rest. We got a lot
+- [04:15.120] of hostages back. So, we're gonna have
+- [04:17.040] to talk about that.
+- [04:22.639] I don't know.
+- [04:25.120] We might have to put Doge Elon. You
+- [04:28.080] know, you know, do
+- [04:30.639] is the monster that have that might have
+- [04:32.720] to go back and eat Elon. Would that be
+- [04:34.639] terrible? He gets a lot of subsidies,
+- [04:37.199] Peter. But, uh, Elon's very upset that
+- [04:40.800] the EV mandate is going to be
+- [04:43.199] terminated. And you know what? When you
+- [04:44.880] look at it, be who wants Not everybody
+- [04:47.280] wants an electric car. I don't want an
+- [04:49.759] electric car. I want to have maybe
+- [04:51.360] gasoline, maybe electric, maybe a
+- [04:53.600] hybrid, maybe someday a hydrogen. If you
+- [04:56.639] have a hydrogen car, it has one problem.
+- [04:59.199] It blows up, you know. So, I'm going to
+- [05:01.120] give that one to Peter. Let Peter the
+- [05:03.680] car blows up.
+- [05:06.720] Hydrogen cars. And when they blow up,
+- [05:08.800] it's serious. They find you five blocks
+- [05:11.199] away.
+- [05:13.199] party going. Are there any countries we
+- [05:14.880] can expect with you before the July 9th
+- [05:16.560] deadline? Everybody's doing well.
+- [05:18.400] Honestly, everybody. This is very
+- [05:20.560] complicated because it's very big, a lot
+- [05:23.039] of different areas. Uh look, the
+- [05:25.360] Republicans have their heart in it. The
+- [05:27.520] Democrats want to they just want to
+- [05:29.520] destroy our country. A Democrat wants to
+- [05:32.000] destroy the country. They won't vote on
+- [05:34.000] it. They don't vote on anything. This is
+- [05:36.160] the biggest tax cut in history. Uh the
+- [05:39.840] everything is the biggest in history.
+- [05:42.160] It's the best bill we've ever had. We
+- [05:44.479] can't get one Democrat vote.
+- [05:48.160] When do you think When do you think
+- [05:50.479] you'll get final? Nice guy, Peter. What
+- [05:52.160] do you think? Very nice guy. When do you
+- [05:54.240] think you'll get final passage of the
+- [05:56.160] bill? Hopefully soon. Hopefully today
+- [05:59.840] we can final passage. When I say final,
+- [06:02.639] finally, let's take Senate at a time.
+- [06:04.720] Okay. But I think Senate could be today
+- [06:07.039] and we go to the House. And what about
+- [06:09.600] Marowski? Is there any way to play her?
+- [06:12.240] Who knows? You tell me. You tell me. His
+- [06:16.639] Alaska's done so well with me. There's
+- [06:19.759] never been a president better to Alaska
+- [06:21.759] than me. But it doesn't mean people
+- [06:24.319] appreciate it.
+- [06:28.370] [Music]
+- [06:33.919] Support your bill from the point of view
+- [06:35.680] that it keeps tax dollars from funding
+- [06:37.840] abortion. They really support that. But
+- [06:39.840] Catholic bishops are worried that it
+- [06:41.680] will hurt immigrant families and
+- [06:43.039] children who have strong ties to
+- [06:45.280] American communities. What do you tell
+- [06:46.720] the Catholic bishops, sir? I think we're
+- [06:48.319] going to have a good relationship with
+- [06:50.000] the Catholic patients. As you know, I
+- [06:51.680] won the Catholic vote by a lot. Not by a
+- [06:54.319] little, by a lot. And we have very good
+- [06:56.560] relationships and we'll see what
+- [06:57.919] happens. We deal with them and we deal
+- [06:59.919] with them well. But I won the Catholic
+- [07:01.599] population by a lot. Mr. President, Mr.
+- [07:04.319] President, Mr.
+- [07:06.560] What's your message for Republicans that
+- [07:08.080] are not yet on board? I think it would
+- [07:10.400] be very wise for them to get on board. I
+- [07:13.360] think it's a great bill. Nothing's easy
+- [07:16.400] because we made a great big we added
+- [07:18.240] everything in there for everybody. And
+- [07:20.240] it's also a beautiful economic
+- [07:21.919] development bill. Great for the border.
+- [07:23.599] Great for low taxes. And I would say
+- [07:27.440] that they have to do it. Really? I I
+- [07:29.520] would say so. And if they don't do it,
+- [07:31.840] we'll go up to the consequence.
+- [07:36.000] timeline, Mr. President, do you want to
+- [07:37.360] commit to the July 4th? You're open on
+- [07:38.960] that. I'd love to do July 4th, but I
+- [07:40.880] think it's very hard to do July 4th. It
+- [07:43.039] was two months ago. I would I would
+- [07:45.039] think maybe July 4th, but somewhere
+- [07:46.880] around there.
+- [07:48.800] On top of that, what did you make of
+- [07:50.160] that? That Republicans that vote for
+- [07:51.599] this bill should hang their head in
+- [07:52.960] shape. Is not getting his mandate. You
+- [07:55.759] know, he wanted an election mandate, but
+- [07:58.560] you should have known I wouldn't do
+- [07:59.759] that. I couldn't do that. I campaigned
+- [08:01.520] on those things.
+- [08:03.360] I never understand why he did what he
+- [08:05.199] did, but he's not going to get his
+- [08:06.479] mandate. And he better be careful
+- [08:08.240] because he might not get anything else.
+- [08:14.319] Thank you.

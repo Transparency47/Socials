@@ -1,0 +1,718 @@
+<!-- source: https://www.youtube.com/watch?v=XVfi6_wcx_8 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: XVfi6_wcx_8 -->
+<!-- date_published: 2026-05-15T10:08:15+00:00 -->
+<!-- date_accessed: 2026-06-02T00:59:37.682140+00:00 -->
+
+# Transcript: President Trump Gaggles with Press on Air Force One En Route Anchorage, AK, May 15, 2026
+
+- [00:00.250] The President: Hello, everybody.
+- [00:01.490] The Press: How are you, Mr. President?
+- [00:02.720] The President: So we had a great stay.
+- [00:04.950] It was an amazing period of time.
+- [00:08.410] President Xi is an incredible guy.
+- [00:11.300] Got along, made a lot of great trade deals,
+- [00:13.470] including over 200 planes from Boeing,
+- [00:16.330] with a promise of 750 planes, which will be,
+- [00:20.430] by far, the largest order ever if they do a good job
+- [00:23.870] with the 200, which I'm sure they will.
+- [00:26.250] And that's General Electric also, the engines.
+- [00:29.460] So they're buying General Electric.
+- [00:30.780] So it's approximately 400, 450 engines and 200 planes,
+- [00:37.010] and a promise of up to 750 if they do a good job.
+- [00:42.350] We had an amazing time.
+- [00:43.650] It was a very historic -- oh, look who we have.
+- [00:47.150] Hello, David.
+- [00:48.630] That was a very historic couple of days, I think.
+- [00:52.870] Really amazing.
+- [00:54.640] The Press: Sir, I know there'll be a lot of questions
+- [00:56.040] around the China trip, but just first on Iran,
+- [00:58.540] have you rejected the latest proposal from Iran
+- [01:01.590] or where does that stand?
+- [01:02.850] The President: Well, I looked at it
+- [01:04.620] and if I don't like the first sentence,
+- [01:06.080] I just throw it away.
+- [01:08.640] The Press: What was the first sentence?
+- [01:10.570] The President: An unacceptable sentence,
+- [01:13.090] because they are fully agreed, no nuclear.
+- [01:15.440] And if they have any nuclear of any form,
+- [01:17.660] I don't read the rest of it.
+- [01:18.990] The Press: And 20 years is not enough for you;
+- [01:20.630] it's got to be --
+- [01:21.870] The President: No, 20 years is enough,
+- [01:23.810] but the level of guarantee from them is not enough.
+- [01:28.280] In other words, it's got to be a real 20 years, not a
+- [01:30.460] (Inaudible)
+- [01:31.760] The Press: They need to (Inaudible)
+- [01:33.110] get all the fuel out and no more production?
+- [01:35.360] The President: They have to get everything,
+- [01:36.840] but we're not even talking about --
+- [01:38.710] I call it the nuclear dust.
+- [01:40.050] I came up with the term, which seems to have caught on.
+- [01:42.150] The Press: You're not talking about it,
+- [01:43.430] because they would not remove the --
+- [01:45.180] The President: They said that they can't remove it
+- [01:46.860] because they don't have the technology to remove it.
+- [01:49.320] They don't have the type of tractors.
+- [01:51.660] They say the only one -- they told me directly;
+- [01:54.420] they said, the only one that can remove it is China or the US.
+- [01:57.540] We're the only ones with the equipment.
+- [01:59.700] They said, you were right, it is a complete obliteration.
+- [02:02.860] With that being said, I want to get it.
+- [02:05.850] Uh, and they agreed to it, but then they took it back,
+- [02:08.440] but they'll agree to it eventually.
+- [02:10.370] The Press: Can I ask you about Taiwan?
+- [02:12.060] What did President Xi say to you about Taiwan?
+- [02:14.160] The President: What?
+- [02:15.480] The Press: What did President Xi say to you about Taiwan?
+- [02:17.860] And are you still going to approve the arms' sale?
+- [02:22.750] The President: So President Xi and I talked a lot about Taiwan.
+- [02:27.420] He thinks we cannot have anything to do
+- [02:30.480] with what they're doing.
+- [02:33.270] I mean, he's, you know, against very much what they're doing.
+- [02:36.380] We talked about Taiwan. We talked about Iran a lot.
+- [02:39.840] And I think we have a very good understanding on both.
+- [02:42.860] Uh, on Taiwan, he does not want to see a fight for independence
+- [02:47.770] because that would be a very strong confrontation,
+- [02:52.190] and I heard him out.
+- [02:54.620] No, I didn't make -- I didn't make a comment on it.
+- [02:57.570] I heard him out. I have a lot of respect for him.
+- [03:00.260] On Iran, it's very interesting.
+- [03:01.770] He feels strongly they can't have a nuclear weapon.
+- [03:04.950] He said that very strongly,
+- [03:06.890] they cannot have a nuclear weapon.
+- [03:08.310] And he wants them to open up the strait.
+- [03:11.380] But as he said, they closed it
+- [03:13.230] and then you closed them, with a smile.
+- [03:16.590] And it's true; we -- we control the strait.
+- [03:19.490] And they've done no business -- literally,
+- [03:21.360] they've done no business in the last two and a half weeks,
+- [03:24.690] which is approximately $500 million a day.
+- [03:29.600] So we have -- uh, we're doing very well on all fronts.
+- [03:34.270] The Press: But sir, before we leave Taiwan, Mr. President, um,
+- [03:38.360] President Xi said that there was a risk of conflict
+- [03:40.750] with the US over Taiwan. What's your response to that?
+- [03:43.530] The President: I don't think there's a conflict,
+- [03:44.860] other than we don't need their --
+- [03:47.590] their strait. We don't need --
+- [03:49.630] The Press: On Taiwan, Mr. --
+- [03:51.980] President Xi said there was a risk of conflict
+- [03:54.240] with the US over Taiwan --
+- [03:55.900] The President: No, no, I don't think so.
+- [03:57.250] I don't think so. I think we're going to be --
+- [03:59.100] I think we'll be fine.
+- [04:00.340] He doesn't want to see -- he doesn't want to see a war.
+- [04:05.010] Uh, and you have two things. You have the Iranian situation.
+- [04:08.760] On that, I think we agree almost entirely,
+- [04:11.310] other than he's a buyer and we're not.
+- [04:13.700] We don't need it. And on Taiwan,
+- [04:15.610] he doesn't want to see a movement for independence.
+- [04:18.960] He says, look, you know, we've had it for thousands of years.
+- [04:21.690] And then at a certain period of time,
+- [04:23.870] it left and we were going to get it back.
+- [04:25.470] They had the Korean War. A lot of things happened.
+- [04:27.420] We have the whole history.
+- [04:28.920] But no, on Taiwan, he feels very strongly.
+- [04:34.610] I made no commitment either way. Let's see what happens.
+- [04:36.860] The Press: What about the arms' sales to Taiwan?
+- [04:40.090] The President: I'll make a determination
+- [04:41.380] over the next fairly short period of time.
+- [04:42.880] The Press: So you're not necessarily going to go ahead
+- [04:44.170] at this time? The President: (Inaudible)
+- [04:45.410] make a determination. We're going to see.
+- [04:46.820] I have to speak to the person that right now,
+- [04:49.450] as you know, you know who he is, that's running Taiwan.
+- [04:51.820] The Press: Mr. President,
+- [04:53.100] did President Xi make any firm commitment
+- [04:56.860] to put pressure on the Iranians to reopen the Strait of Hormuz?
+- [05:02.910] The President: I'm not asking for any favors.
+- [05:05.030] Because when you ask for favors,
+- [05:06.340] you have to do favors in return and we don't need favors.
+- [05:09.630] We've wiped out their armed forces, essentially.
+- [05:12.330] Uh, we may have to do a little cleanup work
+- [05:14.960] because we had a little month-long cease fire,
+- [05:20.260] I guess you'd call it,
+- [05:21.470] but we have a blockade that's so effective.
+- [05:23.290] That's why we did the cease fire.
+- [05:25.000] We really did the cease fire at the request of other nations.
+- [05:28.590] I wouldn't have really been in favor of it,
+- [05:30.170] but we did it as a favor to Pakistan,
+- [05:33.190] who are terrific people, the field marshal
+- [05:35.860] and the prime minister.
+- [05:38.460] But no, I mean, President Xi and I agree on many things,
+- [05:43.810] and we agree very much on trade.
+- [05:45.450] We're going to be doing a lot of trading.
+- [05:47.420] Our farmers are going to be taking in --
+- [05:50.270] I mean, our farmers are going to be very happy
+- [05:51.830] with the deal we make.
+- [05:53.070] The Press: Is your instinct that he will put pressure,
+- [05:54.560] that he will try and get them to
+- [05:55.850] (Inaudible)
+- [05:57.050] The President: I didn't ask him to put pressure,
+- [05:58.520] because I don't --
+- [06:00.510] I don't need favors. I think he will.
+- [06:02.450] I think automatically he'd like to see it opened up.
+- [06:05.920] He gets about 40 percent of his energy
+- [06:08.190] or his oil from that, you know, from the strait.
+- [06:10.710] We get none. We get none. We don't need it.
+- [06:14.000] The Press: Mr. President, on Truth Social,
+- [06:15.640] you said that President Xi made a reference
+- [06:19.240] to the decline of the US.
+- [06:20.500] The President: Yeah.
+- [06:21.750] The Press: We didn't hear him say that.
+- [06:24.100] Maybe it was something he said in private to you.
+- [06:26.110] So what was it, first of all,
+- [06:27.610] that he said, that prompted you to do this?
+- [06:29.900] The President: He made a statement.
+- [06:32.860] It might not have been from him.
+- [06:34.360] It was somebody, but they talked about the decline.
+- [06:37.060] But he said it today, and he said it very publicly.
+- [06:39.240] He said, the US was declining for the last four years
+- [06:44.400] and he said, what President Trump has done in the last 15,
+- [06:48.540] 16 months has been virtually a miracle.
+- [06:51.920] He said, we have the hottest --
+- [06:53.350] He said we have the hottest country anywhere in the world.
+- [06:57.130] But he said it was a declining country under Joe Biden.
+- [07:02.330] He said, we had a declining -- a seriously declining country,
+- [07:06.530] which we did,
+- [07:07.730] with people pouring in from all over the world,
+- [07:09.880] from prisons and everything else.
+- [07:12.170] He said, what President Trump has done
+- [07:13.980] has been a virtual miracle.
+- [07:16.700] It's the hottest country anywhere in the world.
+- [07:18.250] And it is. Yeah.
+- [07:19.490] The Press: On a different subject, on Cuba.
+- [07:22.020] There's reporting that Raul Castro
+- [07:25.660] could be indicted by the DOJ, I believe.
+- [07:27.670] What does that mean for --
+- [07:28.870] The President: Well, I don't want to comment on that.
+- [07:30.070] I'll let DOJ comment on it, but they need help, as you know.
+- [07:35.080] And you talk about a declining country,
+- [07:37.880] they are really a nation or a country in decline.
+- [07:40.800] So we're going to see.
+- [07:42.070] We have a lot to talk about on Cuba but not maybe for today.
+- [07:44.860] The Press: On tariffs, Mr. President,
+- [07:46.530] did you agree with President Xi
+- [07:48.210] to extend that year-long truce on tariffs?
+- [07:52.270] The President: We didn't discuss tariffs.
+- [07:53.680] I mean, they're paying tariffs.
+- [07:55.530] They're paying substantial tariffs,
+- [07:56.970] but we didn't discuss it.
+- [07:58.900] You know, before I came along, it was the opposite.
+- [08:01.250] We didn't discuss tariffs.
+- [08:02.630] The Press: How come?
+- [08:03.920] The President: It wasn't brought up.
+- [08:06.030] The Press: Mr. President, you said in January to us
+- [08:08.510] that you were going to bring up the expansion
+- [08:10.900] of their nuclear program.
+- [08:12.840] Uh, obviously, they've got 600 weapons now,
+- [08:16.750] by the Pentagon's estimate, going to 1,500.
+- [08:19.780] Did that come up?
+- [08:20.980] Did you succeed in getting them into any form of arms control
+- [08:25.190] or the number we discussed, New Start --
+- [08:27.200] The President: You're talking about China?
+- [08:28.440] The Press: China. Yeah.
+- [08:29.640] The President: Yeah, we brought it up,
+- [08:30.860] the denuclearization.
+- [08:32.310] I talk about it all the time with Russia and with China,
+- [08:35.520] and it did come up. We did discuss it.
+- [08:36.950] The Press: And what did you conclude?
+- [08:38.310] The President: I don't know.
+- [08:39.580] I got a very positive response since the beginning.
+- [08:41.770] You know, we're going to be together four times,
+- [08:44.040] potentially, this year. We have the G-20,
+- [08:47.500] which he wants to come to, which I'd like him to come to.
+- [08:50.330] It's going to be in Miami, going to be in Doral,
+- [08:53.850] and it's going to be, I think, very good,
+- [08:55.990] much more important if he's there.
+- [08:58.280] And so you have the G-20. We have one that --
+- [09:00.300] he has, as you know, in November, in China.
+- [09:04.260] He's asked me to be there. I'm going to try and be there.
+- [09:07.510] And then we have another one on September,
+- [09:09.320] I guess, 26th or 24th,
+- [09:11.010] where he's coming into the White House.
+- [09:12.580] The Press: I'm trying to understand what it is
+- [09:14.180] he committed to, if he committed to anything.
+- [09:16.250] The President: Well, I don't want to say anybody committed,
+- [09:18.470] but we have a very good understanding.
+- [09:20.450] You know, the concept of denuclearization.
+- [09:23.760] The Press: Denuclearization or just a new --
+- [09:25.260] an extension of New Start?
+- [09:26.460] The President: No, a denuclearization.
+- [09:27.750] The Press: In other words, building down?
+- [09:28.980] The President: And you bring Russia into it also.
+- [09:31.240] But the concept of that is something
+- [09:32.770] that would be very good.
+- [09:35.200] The Press: Sir, can I ask you
+- [09:36.580] about the political prisoners in China?
+- [09:38.850] Did you bring up with President Xi,
+- [09:40.260] any the political prisoners in China,
+- [09:42.060] for anyone to be released, any progress?
+- [09:44.720] The President: I think he's giving
+- [09:46.090] very serious consideration to the pastor.
+- [09:48.900] The pastor is, uh --
+- [09:51.570] he said he's giving very serious consideration to that.
+- [09:54.770] I discussed --
+- [09:56.010] The Press: What about Jimmy Lai, Mr. President?
+- [09:57.350] The President: It's a tougher one.
+- [09:58.570] I did bring it up, but it's a tough one for him.
+- [10:00.090] It's a tough one.
+- [10:01.370] The Press: What did he say about it?
+- [10:02.570] The President: I understand. He said, for him, it's a very --
+- [10:05.070] he told me -- I don't want to mislead anybody.
+- [10:08.110] He said Jimmy Lai is a tough one for him to do.
+- [10:10.720] He went through a lot and right or wrong,
+- [10:13.470] they went through a lot.
+- [10:14.720] So he told me that would be a tough one.
+- [10:17.920] He said he's going to strongly consider the pastor.
+- [10:20.700] The Press: Sir, can I ask you two on technology?
+- [10:22.140] The President: Yeah.
+- [10:23.350] The Press: First, computer chips, advanced computer chips
+- [10:25.980] like the H-200s that Jensen has, did that come up at all with --
+- [10:29.340] The President: It didn't come up,
+- [10:30.610] but as you know, Jensen was there.
+- [10:32.770] He's an amazing guy, NVIDIA. And he would be inclined --
+- [10:38.190] you know, they have much higher level than the H-200,
+- [10:41.730] but the H-200 is good.
+- [10:44.150] Uh, China needs it. And so yeah, it came up.
+- [10:47.570] But we haven't budged -- no, because they chose not to.
+- [10:51.170] They want to try and develop their own.
+- [10:53.770] But it did come up and I think something could happen on that.
+- [10:57.270] The Press: OK. And then on artificial intelligence --
+- [10:58.980] The President: We have quite a bit higher level,
+- [11:01.160] but the H-200 is a good -- it's a great chip.
+- [11:03.710] The Press: And on artificial intelligence,
+- [11:05.700] what is it that you want to get done?
+- [11:07.220] Did you bring up Windows and --
+- [11:08.460] The President: We did. We talked to --
+- [11:10.430] you know, we're leading by a lot,
+- [11:12.680] but they're second and they're very strong.
+- [11:15.880] And we talked about possibly working together for guardrails.
+- [11:18.590] And he's very --
+- [11:19.860] The Press: And what kind of guardrails are you --
+- [11:21.120] what kind of guardrails --
+- [11:22.410] The President: The standard guardrails that we talk
+- [11:23.730] about all the time. AI is fantastic.
+- [11:26.820] So many things can happen in terms of health and medicine
+- [11:29.950] and operations, everything, the military.
+- [11:34.130] So many things can happen, but it's also got some drawbacks.
+- [11:39.020] And we're talking about -- we probably will.
+- [11:41.170] We're going to work together.
+- [11:42.480] We had a very good conversation about a lot of stuff.
+- [11:45.290] The Press: So biological, nuclear, cyber?
+- [11:47.510] The President: Could be, yeah. Could be.
+- [11:49.220] The Press: Did you specifically discuss those risks?
+- [11:51.450] We discussed, I would say,
+- [11:53.200] almost everything you could discuss,
+- [11:55.140] except for a reduction of tariffs.
+- [11:58.020] So then on Iran, Mr. President,
+- [12:00.070] just to be clear, I mean, what -- what's next?
+- [12:02.620] Are you -- is the threat of the bombing starting again?
+- [12:04.960] How realistic is that?
+- [12:06.210] The President: Well, I don't want to say that.
+- [12:07.450] I mean, I'd like to tell you.
+- [12:08.940] I'd like to say on a certain hour,
+- [12:11.510] of a certain day, the bombing is going to --
+- [12:13.870] I don't want to say that. I can only say that Iran --
+- [12:17.520] I can say this with very, very strong conviction,
+- [12:21.550] Iran will never have a nuclear weapon,
+- [12:24.460] not going to happen. No chance.
+- [12:28.670] The Press: What would the use be of repeating the bombing?
+- [12:31.670] You did it for 38 days.
+- [12:34.530] And you did not get the political changes in Iran --
+- [12:37.560] The President: No, I got -- I had a total military victory,
+- [12:40.420] but the fake new, guys like you, write incorrectly.
+- [12:43.930] You're a fake guy and guys like you write about it correctly.
+- [12:47.270] We had a total military victory.
+- [12:50.050] We knocked out their entire Navy.
+- [12:52.510] We knocked out their entire Air Force.
+- [12:55.040] We knocked out all of their anti-aircraft weaponry.
+- [12:59.340] We knocked down all of their radar.
+- [13:01.610] We knocked out all of their leaders, number one,
+- [13:04.030] and then we knocked out all of their leaders
+- [13:06.840] in the second division.
+- [13:08.490] And we knocked out numerous of their leaders
+- [13:10.590] in the third division. And they're very confused.
+- [13:14.280] Uh, we've had a total victory,
+- [13:15.810] except by people like you, that don't write the truth.
+- [13:18.940] You know, you should write the --
+- [13:20.380] I actually think it's sort of treasonous, what you write.
+- [13:23.380] But you, in the New York Times,
+- [13:25.270] and CNN, I would say, are the worst. Go ahead.
+- [13:27.710] Sir, on another -- on another war --
+- [13:29.100] You should know better, David, because you're a --
+- [13:31.200] you know better.
+- [13:32.410] Your editors tell you what to write, and you're write it,
+- [13:34.920] and you should be ashamed of yourself.
+- [13:37.490] I actually think it's treason.
+- [13:39.240] When you write, like, they're doing well militarily
+- [13:41.960] and they have no Navy, no air force, no anti anything.
+- [13:45.140] By the way, we knocked out 85 percent
+- [13:47.430] of their manufacturing for the missiles.
+- [13:49.780] We knocked out everything.
+- [13:51.450] We haven't knocked out, other than one bridge,
+- [13:53.460] and we did because they misbehaved.
+- [13:55.860] But we have bridges we could knock out.
+- [13:57.410] We could knock out their bridges and their electrical capacity.
+- [14:01.000] Within two days, we could knock out the whole thing.
+- [14:03.970] And then I read the New York Times,
+- [14:05.360] and they act like they're doing well.
+- [14:06.940] And everybody knows,
+- [14:08.170] and that that's why your subscribers are way down.
+- [14:10.820] You know, The Times subscribers are way down
+- [14:12.890] because it's fake news.
+- [14:15.290] Way down. Way down.
+- [14:16.760] The Press: Did you discuss Ukraine at all
+- [14:18.690] with President Xi?
+- [14:20.090] And is there any movement on that?
+- [14:21.540] The President: I did. I did. The Press: What did he say?
+- [14:22.870] The President: We had -- we discussed --
+- [14:24.070] well, it's one that we'd like to see settled.
+- [14:26.740] Until last night, it was looking good,
+- [14:29.090] but they took a big hit last night.
+- [14:31.660] So it's going to happen, but it's a shame.
+- [14:34.350] 25,000 people died last month. Yeah.
+- [14:37.000] The Press: Admiral Cooper, CENTCOM,
+- [14:38.880] was asked yesterday about the strike on the girls' school
+- [14:41.860] on the first day of the war.
+- [14:43.160] The President: Oh, it's under investigation.
+- [14:44.600] You're talking about the Iranian? Yeah.
+- [14:46.040] The Press: It was the only case of investigation
+- [14:48.320] (Inaudible) into civilian casualties.
+- [14:49.940] The President: I think we have a couple of things
+- [14:51.420] under investigation,
+- [14:52.750] but that is -- that is under investigation.
+- [14:55.050] The Press: Are you able to confirm
+- [14:56.320] yet that it was a US missile?
+- [14:57.980] The President: Who are you with?
+- [14:59.240] The Press: BBC for the radio --
+- [15:00.510] The President: Fake BBC.
+- [15:01.750] You mean the ones that put AI in my mouth?
+- [15:03.980] The ones that gave me --that had me saying a statement
+- [15:07.460] that they now admit was not true?
+- [15:09.700] The ones that put terrible words in my mouth
+- [15:12.250] and then had to admit that it was fake?
+- [15:15.980] The ones that are being sued now for $5 billion
+- [15:19.100] and don't know what to do? You're with BBC?
+- [15:21.310] They're another fake outfit.
+- [15:22.640] Yeah.
+- [15:23.840] The Press: Can I ask about the deals in China?
+- [15:25.210] Did you get a deal on soybeans?
+- [15:26.480] You know, the farmers -- The President: I did.
+- [15:27.680] You know, the farmers are going to be very happy.
+- [15:29.490] They're going to be buying billions of dollars of soybeans.
+- [15:32.460] Yeah.
+- [15:33.690] The Press: (Inaudible)
+- [15:34.920] we were talking about Britain, but Keir Starmer,
+- [15:36.860] the prime minister there is in a lot of trouble.
+- [15:38.490] The President: He's in a lot of trouble.
+- [15:39.730] The Press: I know you were asked about this --
+- [15:40.980] The President: Well, he's in trouble for two reasons,
+- [15:42.290] energy and immigration. He's very bad on energy.
+- [15:46.240] He should open up the North Sea. He's got a gold mine,
+- [15:49.740] and he should open up oil in the North Sea, and he doesn't.
+- [15:53.820] They have a tremendous value. It's --
+- [15:56.490] you know, they buy their oil, a lot of it, from Norway.
+- [15:59.870] Norway gets it from the North Sea.
+- [16:02.220] Not as good an area as Scotland and the UK has.
+- [16:06.160] So they're paying Norway a fortune for oil
+- [16:07.760] that they take out of the North Sea.
+- [16:08.970] The Press: Do you think
+- [16:10.200] Starmer is going to survive as prime minister?
+- [16:11.640] The President: It's a tough thing.
+- [16:12.880] Unless he can straighten out immigration where he's weak
+- [16:16.600] and if he doesn't start drilling,
+- [16:19.130] stop with the windmills all over the place and are causing havoc.
+- [16:23.180] They're causing havoc. Most expensive form of energy.
+- [16:26.970] They kill the birds, they're unsightly,
+- [16:28.780] they're ruining the landscape.
+- [16:30.230] If he doesn't stop with the windmills,
+- [16:32.110] he's got to do energy --
+- [16:33.420] He's got to open up the North Sea.
+- [16:35.860] You know, he's got one of the greatest oil
+- [16:37.480] finds anywhere in the world, and he's not using.
+- [16:40.170] And I tell him that, he's not using it,
+- [16:41.620] The Press: Should he quit?
+- [16:42.900] The President: The oil companies call me every day,
+- [16:45.100] please, please, we want to go to the North Sea.
+- [16:48.540] He doesn't allow it to happen.
+- [16:49.950] The Press: Should he quit?
+- [16:51.220] The President: I don't say that.
+- [16:52.420] He's -- I think he's a nice man, actually.
+- [16:54.350] But, I mean, I didn't like when he said,
+- [16:58.080] we're going to send ships
+- [16:59.940] as soon as you're finished with the war,
+- [17:01.430] as soon as you're --
+- [17:02.640] well, we're sort of finished militarily, pretty much.
+- [17:05.590] But we -- you know, David, we are we finished
+- [17:08.270] probably 70, 75 percent.
+- [17:10.910] We didn't finish every one of the things.
+- [17:12.780] We'll go back and finish them off.
+- [17:14.790] And by the way, and more than that.
+- [17:16.700] The Press: You saw the reporting on the missile capability,
+- [17:20.010] missile launchers that have remained.
+- [17:21.440] The President: Yes. Yes.
+- [17:22.720] The Press: Does that seem accurate to you?
+- [17:23.930] The President: No, it's New York Times fake news.
+- [17:27.080] The missile launches are probably 80 percent gone.
+- [17:31.830] The New York Times said it's like we haven't --
+- [17:33.630] we were hitting them like pinatas.
+- [17:37.780] The missile launchers are largely gone.
+- [17:39.590] The manufacturing of missiles is about 80 percent,
+- [17:43.590] 80 to 85 percent gone.
+- [17:45.210] And we know where the rest of it --
+- [17:46.740] so if we go in, we'll take that out very early.
+- [17:48.890] The Press: The intelligence reports seem to indicate though,
+- [17:50.440] that --
+- [17:51.730] The President: There are no intelligence reports,
+- [17:53.540] not for the -- they weren't intelligence reports.
+- [17:55.780] They were New York Times fake news.
+- [17:58.240] The Press: Sir, would you consider lifting the sanctions
+- [18:00.440] on Chinese oil companies that buy Iranian oil?
+- [18:03.380] The President: Well, we talked about that
+- [18:04.730] and I'm going to make a decision over the next few days.
+- [18:07.180] We did talk about that.
+- [18:08.420] The Press: Do you think she feels --
+- [18:09.850] felt stronger in his dealings with you
+- [18:12.450] than he did the last time that you met?
+- [18:14.180] The President: We had a great relationship last time,
+- [18:15.880] until COVID came along? You know, I blame them for that.
+- [18:18.340] And I said it was Wuhan and it was. I was right.
+- [18:21.620] And, you know, look, that was a strain on everybody, COVID.
+- [18:24.850] And so I -- you know,
+- [18:27.420] it affected our relationship at the time,
+- [18:29.900] but we always had a great relationship
+- [18:32.270] before that and after that.
+- [18:33.820] And now, it's as strong as ever.
+- [18:35.640] I mean, I went over to where he lives,
+- [18:37.620] which is something that rarely happens.
+- [18:39.050] Were you there? I don't know.
+- [18:40.340] The Press: Yeah, it was beautiful.
+- [18:41.550] The President: It's amazing.
+- [18:42.750] I mean, people have never seen it before.
+- [18:45.030] It's amazing, actually. We had lunch.
+- [18:48.160] We have a great understanding. It's a very positive thing
+- [18:51.530] to have these two nations getting along, David.
+- [18:53.960] The Press: Mr. President, on Taiwan,
+- [18:55.290] you said you were going to check with the president of Taiwan,
+- [18:58.950] but the 1982 assurances that President Reagan gave,
+- [19:03.150] said you would not --
+- [19:04.410] said the United States would not consult with China
+- [19:08.120] on arms' sales to Taiwan.
+- [19:10.330] So it sounds to me like you have consulted with China.
+- [19:12.810] The President: 1980s is a long way.
+- [19:14.430] The Press: It was, it was.
+- [19:15.710] The President: That's a big, far distance away.
+- [19:17.190] The Press: So (Inaudible) with them?
+- [19:18.480] The President: No, I didn't say anything about it.
+- [19:20.330] But certainly, you know, he brought that up.
+- [19:22.970] He talked about that to me, obviously.
+- [19:24.830] So what am I going to do, say,
+- [19:26.150] I don't want to talk to you about it
+- [19:27.610] because I have an agreement that was signed in 1982.
+- [19:31.200] No, we discussed arms sales too.
+- [19:33.370] The Press: And what's his request?
+- [19:34.610] (Inaudible)
+- [19:35.810] The President: We discussed the Taiwan,
+- [19:37.040] you know, the whole thing with the arms' sales.
+- [19:39.020] It was in great detail, actually.
+- [19:42.080] And I'll be making decisions.
+- [19:44.410] But, you know, I think the last thing we need right now
+- [19:47.600] is a war that's 9,500 miles away.
+- [19:51.350] I think that's the last thing we need. We're doing very well.
+- [19:54.090] The Press: Would the US defend Taiwan if it came to it?
+- [19:56.200] The President: I don't want to say.
+- [19:57.460] I'm not going to say that.
+- [19:59.290] Uh, there's only one person that knows that.
+- [20:01.590] You know who it is, me. I'm the only person.
+- [20:04.420] That question was asked to me today by President Xi.
+- [20:07.740] I said, I don't talk about that.
+- [20:09.590] The Press: He asked you today?
+- [20:10.800] He asked you if you would send troops?
+- [20:13.760] The President: He asked me if I'd defend them.
+- [20:15.310] I said, I don't talk about that.
+- [20:16.650] The Press: You told him that?
+- [20:17.900] The President: Yeah, I don't talk about that.
+- [20:19.190] The Press: Did you talk to him about the cyberattacks
+- [20:20.720] that he's done in the United States, or the MSS
+- [20:23.040] (Inaudible) -- The President: I did.
+- [20:24.310] And he talked about attacks that we did in China?
+- [20:28.160] You know, what they do, we do too.
+- [20:29.720] It's like the spying. They're talking about, oh, the spying.
+- [20:32.790] I said, well, we do it too.
+- [20:34.160] The Press: The spying or the infrastructure?
+- [20:35.380] The President: Look -- no, I'm talking about spying.
+- [20:37.930] The question was asked to me yesterday, I guess,
+- [20:41.390] what about the fact that China's spying in the United States?
+- [20:44.180] I said, well, one of those things
+- [20:46.570] because we spy like hell on them, too.
+- [20:48.200] So --
+- [20:49.440] The Press: What about the fact that China is putting
+- [20:51.020] in the US infrastructure code that they could use if we --
+- [20:55.040] if you ever decided to come to the US?
+- [20:56.350] The President: Well, you don't know that.
+- [20:57.570] I mean, I'd like to see it,
+- [20:58.800] but it's very possible that they do,
+- [21:01.760] and we're doing things to them. I told them,
+- [21:03.830] we do a lot of stuff to you that you don't know about,
+- [21:06.730] and you're doing things to us that we probably do know about.
+- [21:09.730] But we do plenty.
+- [21:10.990] It's a double -- it's a double-edged sword.
+- [21:12.680] The Press: So again, on President Xi,
+- [21:14.650] in a couple of years ago,
+- [21:15.850] when President Biden met him in San Francisco,
+- [21:18.020] he was asked if he thought President Xi was a dictator.
+- [21:22.030] Do you think President Xi is a dictator?
+- [21:23.870] The President: No, but I think that President Biden
+- [21:26.020] was an incompetent president.
+- [21:28.020] He gave us the Iran nuclear deal,
+- [21:29.730] which allowed Iran to have a nuclear weapon
+- [21:31.960] within a matter of years from the time they said --
+- [21:35.020] I terminated it. If I didn't terminate that,
+- [21:37.690] Iran would have a nuclear weapon,
+- [21:39.130] and they would have used it within probably two years ago,
+- [21:41.790] three years ago.
+- [21:42.990] If I didn't go in with the B-2 bombers nine months ago,
+- [21:46.590] Iran would have a nuclear weapon
+- [21:48.090] and nobody would be able to talk to them.
+- [21:49.940] By the way, they would have used it already.
+- [21:52.230] The Press: But do you think President Xi
+- [21:53.740] is a dictator or not?
+- [21:55.490] The President: I don't think about it.
+- [21:57.010] He's the ruler -- he's the -- he's the president of China.
+- [22:00.490] I don't think about it. You deal with what you have.
+- [22:04.580] I respect him. He's very smart.
+- [22:06.770] He loves his country. I respect him.
+- [22:08.690] Whether he's a dictator, that's for you to figure out.
+- [22:10.600] The Press: Yeah.
+- [22:11.800] Mr. President, you said you didn't talk about tariffs,
+- [22:14.190] but did you talk about fentanyl at all?
+- [22:16.130] The President: I did. I talked about fentanyl.
+- [22:17.950] As you know, I put a tariff on
+- [22:19.480] because of fentanyl and they discussed that.
+- [22:23.140] But I put a penalty -- it's a penalty, very --
+- [22:25.740] a lot of money we take in because of that.
+- [22:28.000] I'd prefer not taking it in.
+- [22:29.420] I'd prefer that we not have -- but we did talk about that.
+- [22:32.950] We always -- well, you know, the fentanyl is down,
+- [22:35.220] way down from where it was,
+- [22:37.300] and it could be because of the tariff penalty.
+- [22:39.710] The Press: Sir, domestic issue, if I could.
+- [22:41.430] Where are you on the Texas Senate race?
+- [22:43.860] The President: Well, I'll maybe make a decision.
+- [22:45.600] I know them both very well. I like them both a lot.
+- [22:49.510] And, you know, my record of endorsements is extraordinary.
+- [22:53.840] You look at what happened with Indiana.
+- [22:57.080] And out of all those races, the one --
+- [22:58.930] the one was there were three Trump people in the race.
+- [23:02.680] If they had won, he would have won in a landslide.
+- [23:05.350] But I took out all of these candidates
+- [23:08.390] and, you know, long time candidates
+- [23:10.210] with big leads against people that never ran before.
+- [23:15.270] And the people that never ran before,
+- [23:16.850] won virtually all the races.
+- [23:19.260] And as you know, two nights ago, I won every single endorsement.
+- [23:24.090] A week ago before that, I won every single endorsement.
+- [23:28.520] There's never been a record of endorsements like this,
+- [23:30.720] which is a great honor, as far as I'm concerned.
+- [23:33.120] No, MAGA is a movement the likes of which our country
+- [23:36.370] has never seen before. It's never been --
+- [23:38.370] The Press: (Inaudible) endorse, sir, in Texas?
+- [23:40.650] The President: I don't want to say that,
+- [23:41.850] but I'm looking at it very strongly.
+- [23:43.440] I like them both. I mean, I'll tell you what I do think.
+- [23:46.030] I think the Democrats have a weird,
+- [23:49.400] a weird candidate, six genders, a real hit on Jesus.
+- [23:56.590] I mean, this guy is bad news,
+- [23:59.110] with his mask from relatively recently and his vegan --
+- [24:02.860] he's a vegan.
+- [24:04.080] All of a sudden, he's not a vegan.
+- [24:05.510] He's a vegan, well, now all of a sudden, he's not.
+- [24:07.790] Texas doesn't like vegans.
+- [24:09.990] I do believe either one of them will easily win the race.
+- [24:13.750] I think that the candidate the Democrats have in Texas
+- [24:17.250] is a very flawed, very weak, very --
+- [24:20.980] I think he's a pathetic candidate,
+- [24:23.190] especially for Texas.
+- [24:24.550] OK.
+- [24:25.770] The Press: Did you see Secretary Rubio
+- [24:27.730] in the briefing room the other day?
+- [24:29.190] And what did you think?
+- [24:31.210] The President: You're talking about his outfit?
+- [24:32.610] The Press: Yeah, that too.
+- [24:34.180] The President: I noticed --
+- [24:35.410] I thought he looked very good in the outfit, sweat suit.
+- [24:37.700] I don't know if I'd do it,
+- [24:38.990] but I thought he looked very good.
+- [24:41.080] I think he's outstanding. I thought he was great.
+- [24:43.130] I mean, I saw every word of it. I thought he was --
+- [24:44.940] The Press: Mr. President, back to what you were saying
+- [24:46.550] before about the enriched uranium at Isfahan.
+- [24:50.950] So what would your logic be in having just a 20 year deal?
+- [24:55.540] I mean, the deal -- that you pulled back is 15 years.
+- [24:59.440] Whether they would have gotten it faster
+- [25:01.170] or not is up to you,
+- [25:02.380] but what would the difference be here if --
+- [25:04.750] The President: Well, Obama had virtually no deal.
+- [25:07.210] Obama had a road to a nuclear weapon
+- [25:09.660] and I terminated that deal.
+- [25:12.050] And if I didn't terminate, Barack Hussein Obama --
+- [25:14.460] if I didn't terminate that deal,
+- [25:16.350] Iran would have had a nuclear weapon two years ago.
+- [25:18.730] As you know, that deal long expired, long expired.
+- [25:20.460] The Press: It would have also taken the most years
+- [25:21.790] doing it then after you're bombing, then --
+- [25:23.010] The President: You know what?
+- [25:24.230] I'll tell you what, I know you backed Obama,
+- [25:26.580] which shows what a fraud you are,
+- [25:28.040] because that was the worst deal.
+- [25:29.310] They would have had a nuclear weapon within a period of a year
+- [25:34.450] and a half after I terminated it.
+- [25:35.910] If I didn't terminate that,
+- [25:37.520] and if I didn't send the B-2 bombers in nine months ago
+- [25:41.700] to obliterate -- you know, one thing that did happen,
+- [25:45.070] which was very nice, the top person in Iran,
+- [25:49.030] representing them, he's a top person.
+- [25:52.000] He said, I'm the only one --
+- [25:53.320] meaning the United States is the only one,
+- [25:55.530] along with possibly China,
+- [25:57.700] that would be able to get the nuclear dust
+- [26:00.070] out of that disaster that we created with the B-2 bomber.
+- [26:03.360] The Press: Are you willing to do that?
+- [26:04.600] And why do you call it --
+- [26:05.840] The President: Yeah. No, at the right time --
+- [26:07.650] at the right time we'll either go in or we'll get it.
+- [26:11.110] I think we'll probably get it.
+- [26:12.580] But if we don't get it, we'll go in.
+- [26:14.030] The Press: But you're willing to mount the operation?
+- [26:16.190] The President: Well, no, I think they'll be totally defeated,
+- [26:18.800] and we won't have any risk. Yeah.
+- [26:21.380] We have the equipment to take it out,
+- [26:23.870] nobody else does. China might have the equipment.
+- [26:25.940] They said, you're the only one --
+- [26:27.290] they said, you and China.
+- [26:28.570] The Press: But they weren't sure?
+- [26:29.770] The President: We have --
+- [26:30.970] we have the equipment to take it out.
+- [26:32.230] The Press: Sir, did you discuss North Korea with Xi?
+- [26:35.070] The President: I did.
+- [26:36.280] The Press: What came out of that?
+- [26:37.920] The President: You know, I have a very good relationship
+- [26:39.580] with Kim Jong Un. It's been pretty quiet.
+- [26:44.980] The Press: Have you had any communications with him?
+- [26:46.610] The President: Yes. The Press: Of what kind?
+- [26:48.570] The President: Doesn't matter. I don't tell you about that,
+- [26:50.620] but I have a good relationship with him.
+- [26:52.100] He's been respectful of our country.
+- [26:54.740] I want him to be respectful.
+- [26:55.940] He's been respectful of our country.
+- [26:57.610] Hey, thank you very much. Enjoy the flight, everybody.
+- [27:01.120] I heard you didn't have cameras back here.
+- [27:02.800] In fact, I loved it. I heard that
+- [27:04.970] (Inaudible) and now, they got a camera.
+- [27:06.720] I heard that you were shut out for two hours
+- [27:08.730] until we leave the airspace, but he's got a camera.
+- [27:11.850] This guy never misses a trick.
+- [27:13.770] You better make me look good with that camera.
+- [27:16.300] All right? Thank you very much, everybody.

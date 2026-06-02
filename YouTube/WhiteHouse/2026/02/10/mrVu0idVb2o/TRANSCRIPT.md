@@ -1,0 +1,587 @@
+<!-- source: https://www.youtube.com/watch?v=mrVu0idVb2o -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: mrVu0idVb2o -->
+<!-- date_published: 2026-02-10T19:15:02+00:00 -->
+<!-- date_accessed: 2026-06-02T02:38:02.995483+00:00 -->
+
+# Transcript: Press Secretary Karoline Leavitt Briefs Members of the Media, Feb. 10, 2026
+
+- [00:05.330] Karoline Leavitt: Good afternoon, everyone.
+- [00:06.670] Thank you. Thank you for coming today.
+- [00:08.570] I apologize for the delay.
+- [00:10.220] I was once again with the President.
+- [00:11.920] He and I were both reviewing
+- [00:13.430] the newly released surveillance footage from FBI
+- [00:16.880] in the Savannah Guthrie case
+- [00:19.300] and just this heartbreaking situation
+- [00:21.100] with respect to her mother.
+- [00:22.980] The President encourages any American across the country
+- [00:25.950] with any knowledge of this suspect to please call the FBI,
+- [00:29.640] who continue to assist state and local authorities
+- [00:32.870] who are leading this investigation on the ground.
+- [00:34.920] And once again, I will reiterate that the prayers of this entire
+- [00:38.010] White House are with Savannah and her family at this time.
+- [00:41.920] We hope this person is found soon
+- [00:43.840] and that her mother is brought home safely.
+- [00:46.440] President Trump has a very busy week ahead
+- [00:48.510] so I will begin with some scheduling announcements today.
+- [00:51.610] Tomorrow, here at the White House,
+- [00:53.380] the President will host Israeli Prime Minister
+- [00:55.660] Benjamin Netanyahu for a bilateral meeting.
+- [00:59.030] The remainder of the week will be focused on energy
+- [01:01.790] and deregulation.
+- [01:03.470] Tomorrow afternoon, the President will hold an event
+- [01:05.850] in the East Room to tout clean beautiful coal
+- [01:09.180] as America's most reliable and affordable energy source
+- [01:13.010] especially during periods of peak demand,
+- [01:16.190] just as we saw during this most recent winter storm,
+- [01:19.430] which impacted hundreds of millions of Americans.
+- [01:22.670] The President will discuss how clean beautiful coal
+- [01:25.150] is not only keeping the lights on in our country
+- [01:28.220] but also driving down the cost of electricity
+- [01:31.390] across the country as well. Additionally, on Thursday,
+- [01:35.150] President Trump will be joined by Administrator Lee Zeldin
+- [01:38.610] to formalize the rescission of the 2009
+- [01:42.220] Obama era endangerment finding.
+- [01:44.930] This will be the largest deregulatory action
+- [01:47.890] in American history,
+- [01:49.730] and it will save the American people $1.3 trillion
+- [01:54.620] in crushing regulations.
+- [01:56.650] The bulk of the savings will stem from reduced costs
+- [01:59.150] for new vehicles,
+- [02:00.460] with the EPA projecting average per vehicle
+- [02:03.070] savings of more than $2,400 for popular light duty cars,
+- [02:08.360] SUVs and trucks.
+- [02:10.370] This is just one more way this administration is working
+- [02:13.140] to make life more affordable for everyday Americans.
+- [02:17.290] Overall, these groundbreaking actions from President Trump
+- [02:20.120] will drive larger economic growth,
+- [02:22.260] create thousands of good paying jobs,
+- [02:24.400] expand manufacturing, increase consumer choice
+- [02:28.060] and improve affordability
+- [02:29.490] for millions of families and businesses.
+- [02:32.580] Finally, on Friday, President Trump
+- [02:34.740] and First Lady Melania Trump will travel to Fort Bragg
+- [02:37.900] in the great state of North Carolina
+- [02:40.070] to meet with military families
+- [02:41.770] and the heroic members of our special forces
+- [02:44.860] who carried out the successful
+- [02:46.500] Operation Absolute Resolve in Venezuela
+- [02:49.500] and helped bring narcoterrorist Nicolas Maduro to justice.
+- [02:53.550] I know the President and first lady
+- [02:55.220] are both greatly looking forward to this visit.
+- [02:58.630] Also, the first lady will celebrate Valentine's Day
+- [03:01.630] at the Children's Inn at the National Institute of Health
+- [03:05.060] tomorrow with children, families and NIH staff
+- [03:08.740] involved in clinical trials.
+- [03:11.270] In other news this week, thanks to President Trump
+- [03:13.440] signing the largest middle class tax cut in history,
+- [03:16.820] this is shaping up to be the biggest tax
+- [03:19.210] refund season ever and -- we are in now.
+- [03:22.410] President Trump and Republicans fundamentally believe
+- [03:24.980] that Americans deserve to keep more of their hard earned money,
+- [03:28.570] not less, which is why he fought so hard
+- [03:31.220] to deliver this long overdue relief.
+- [03:34.260] From no tax on tips, overtime or Social Security,
+- [03:37.760] to auto loan interest deductions on new American made vehicles,
+- [03:41.560] plus increases to the standard deduction and child tax credit,
+- [03:45.250] more money is flowing back
+- [03:46.890] into the pockets of hardworking Americans.
+- [03:49.580] We're already hearing from everyday Americans
+- [03:51.640] across the country,
+- [03:52.950] who are reporting substantial tax savings
+- [03:55.420] thanks to the working families tax cut,
+- [03:57.550] which every single Democrat in Congress voted against.
+- [04:01.560] AMAC, which represents millions of Americans,
+- [04:03.970] has heard directly from more than their thousand members
+- [04:07.580] already about how the Trump tax cuts
+- [04:09.750] are easing cost of living concerns.
+- [04:12.110] I wanted to share a few of those powerful responses
+- [04:14.790] with you today.
+- [04:16.440] This one comes from Dean and Wendy in Wisconsin,
+- [04:19.520] who said, "Instead of paying out $3,700 last year,
+- [04:24.270] we got back $2,500 in refunds this year.
+- [04:27.900] This is huge for our family." Steve from California said,
+- [04:32.980] "The new senior citizen deduction
+- [04:34.780] is a tremendous relief and has given us peace of mind
+- [04:38.440] and the freedom to truly enjoy the retirement years
+- [04:41.230] we worked so hard for." Eric from Nevada said,
+- [04:44.860] "As a senior, no tax on Social Security helps me tremendously.
+- [04:49.240] The no tax on tips helps my daughter in law as a waitress.
+- [04:52.530] The no tax on overtime helps my son, who works constantly.
+- [04:56.830] Our family savings from the one big beautiful bill
+- [04:59.280] could total even more than $5,000.
+- [05:02.550] We love the Trump tax cuts."
+- [05:04.760] These are just a few positive examples
+- [05:07.120] of the everyday Americans
+- [05:08.410] that President Trump's tax cuts are uplifting.
+- [05:11.260] We'd love to hear more from the American people
+- [05:13.160] across the country
+- [05:14.390] who are benefiting from the working families tax cuts.
+- [05:18.000] The White House is also pleased to share
+- [05:19.670] that parents across the country
+- [05:21.240] can now officially apply to open a Trump account for their child.
+- [05:25.230] In order to apply, parents can visit
+- [05:27.400] Trumpaccounts.gov and fill out the IRS Form 4547.
+- [05:33.170] These Trump accounts are special investment accounts
+- [05:35.680] aimed at providing American children
+- [05:37.840] with a jump start on building wealth for life.
+- [05:40.650] They have all the tax advantages as a traditional IRA account,
+- [05:44.650] but are specifically tailored to build wealth
+- [05:46.820] the moment a child is born. Thanks to President Trump,
+- [05:50.470] every child born between January 1st, 2025
+- [05:54.390] and December 31st, 2028 is eligible to receive
+- [05:58.390] $1,000 from the US Treasury to fund their account.
+- [06:02.830] Parents, guardians and even non-profits
+- [06:05.150] can then contribute up to $5,000 per year.
+- [06:08.730] Employers can also contribute up to $2,500 per year per employee.
+- [06:14.610] President Trump believes there is no better investment
+- [06:17.070] than investing in our nation's children.
+- [06:19.400] If you are a parent
+- [06:20.690] who maximizes contributions to your child's
+- [06:23.030] Trump account, its projected value
+- [06:25.430] could reach nearly $1.1 million by the time your child turns
+- [06:30.570] 28 years old, based on average historical stock market returns.
+- [06:35.230] Safe to say the Trump accounts
+- [06:36.730] will give a substantial head start to position
+- [06:39.490] the next generation for a brighter future.
+- [06:42.050] And with the stock market exploding under President
+- [06:44.450] Trump's pro-growth policies,
+- [06:46.220] there has never been a better sign --
+- [06:48.140] time to sign up for an investment account like this.
+- [06:51.520] The Dow Jones just shattered 50,000
+- [06:53.930] for the first time ever on Friday and the S&P 500
+- [06:57.640] and the Nasdaq continue smashing record after record.
+- [07:01.140] So, with President Trump in charge, Americans' 401(k)s
+- [07:04.280] and retirement savings are booming once again,
+- [07:07.430] and these new Trump Accounts for America's kids will boom too.
+- [07:10.860] So, with that, once again,
+- [07:12.190] every parent should go to TrumpAccounts.gov today.
+- [07:15.200] And I'm going to put it on my own personal to do list
+- [07:17.370] to sign up for one as well.
+- [07:19.130] With that I will take your questions.
+- [07:20.720] Caroline Downey from the National Review is here.
+- [07:22.850] Thank you for being here and why don't you kick us off?
+- [07:25.110] The Press: Thank you for having me.
+- [07:26.520] On the criticism that immigration enforcement
+- [07:29.380] has become arbitrary
+- [07:31.000] or not particularly prioritizing,
+- [07:33.490] democrats have been circulating this statistic
+- [07:35.790] that only 14 percent of illegal aliens arrested
+- [07:39.230] under this administration are violent criminals.
+- [07:41.710] But we know that in deep blue cities
+- [07:43.820] with progressive district attorneys,
+- [07:45.810] it's common to plead down serious violent crimes
+- [07:49.350] into less serious offenses
+- [07:50.770] which could be destroying those numbers.
+- [07:52.340] So, given that backdrop, does the administration still stand
+- [07:55.590] by the messaging
+- [07:56.790] that you're targeting the worst of the worst?
+- [07:59.160] And does this prevailing narrative tell the whole story?
+- [08:01.340] Karoline Leavitt: Well, thank you
+- [08:02.630] for bringing this up, Caroline.
+- [08:03.870] I've seen this CBS report floating around.
+- [08:06.350] There are a lot of liberal talking heads and pundits
+- [08:08.820] and Democrat-elected politicians who think that this single story
+- [08:12.940] and these statistics and the way they are painted
+- [08:15.290] is somehow a shot at this administration.
+- [08:18.180] It is not and let me correct the record.
+- [08:20.380] Number one, the Trump administration has been clear
+- [08:23.090] from day one that any illegal alien present
+- [08:25.960] in this country is subject to deportation.
+- [08:28.540] However, the priority, of course,
+- [08:30.280] is going after the convicted criminals,
+- [08:32.780] the worst of the worst, the murderers, the pedophiles,
+- [08:35.340] the rapists in this country. Interestingly, in the CBS story,
+- [08:39.240] what the Democrat talking heads on television
+- [08:41.290] are not saying is this line --
+- [08:43.540] nearly 60 percent of ICE arrestees over the past year
+- [08:47.230] had criminal charges or convictions.
+- [08:49.640] And among that population,
+- [08:51.110] the majority of the criminal charges or convictions
+- [08:53.930] are for nonviolent crimes.
+- [08:55.910] Oh, well, what are nonviolent crimes you ask?
+- [08:58.380] This has coincided with what DHS has been saying all along,
+- [09:01.970] that approximately 70 percent of illegal aliens
+- [09:04.550] arrested under President Trump
+- [09:05.980] have pending criminal charges and/or prior convictions.
+- [09:09.550] And these so-called nonviolent crimes,
+- [09:12.280] drug trafficking, distribution of child porn, burglary, fraud,
+- [09:17.610] DUI, embezzlement, solicitation of a minor and human smuggling,
+- [09:21.900] just to name a few.
+- [09:23.280] So, just because a crime is not violent in nature,
+- [09:26.080] doesn't mean that crime is victimless.
+- [09:28.490] And I can guarantee every single person
+- [09:30.630] who is out there on television right now
+- [09:32.880] pointing to these statistics
+- [09:34.660] that were taken out of context by CBS news,
+- [09:37.650] would not want an illegal alien
+- [09:39.250] convicted of the distribution of child porn or fraud
+- [09:42.780] or DUI living in your community.
+- [09:44.920] So, the Trump administration will continue our focus
+- [09:47.470] on deporting all illegal aliens present in our country
+- [09:50.420] with a focus on the worst of the worst criminals.
+- [09:52.880] Thank you for being here. Gabe.
+- [09:54.580] The Press: Karoline, thank you and thank you
+- [09:57.200] for the update on our colleague, Savannah Guthrie's mother.
+- [10:00.840] Is there anything more you can share?
+- [10:02.250] You said the President was reviewing
+- [10:03.890] that surveillance footage. What was his initial reaction
+- [10:06.610] when seeing those disturbing images?
+- [10:08.850] And does he believe that that suspect acted alone?
+- [10:12.520] Karoline Leavitt: I haven't talked to him
+- [10:14.300] specifically about the second point
+- [10:15.850] on whether the suspect acted alone or not.
+- [10:18.530] So, I don't want to weigh in
+- [10:20.590] on the President's thinking on that.
+- [10:22.580] His initial reaction, of course, as all Americans,
+- [10:25.550] is just pure disgust.
+- [10:27.470] And again, it's heartbreaking to see now this footage
+- [10:30.200] really brings to life a story we've all been reading about.
+- [10:33.870] And again, we're just praying for the safety of Nancy Guthrie
+- [10:37.320] and that she will return home soon.
+- [10:38.780] And the President directed me
+- [10:41.190] to please encourage all Americans
+- [10:42.850] with any information to call the FBI.
+- [10:45.290] And we hope that this case will come to a positive resolution
+- [10:48.220] as soon as possible.
+- [10:49.440] The Press: We, of course, have a lot to talk about.
+- [10:50.800] In a completely separate topic, I was hoping you can clarify
+- [10:54.280] something that's come up over the last several days,
+- [10:56.310] regarding a separate topic, in the Epstein files.
+- [11:00.840] According to newly released files,
+- [11:02.970] the President had a conversation with the Palm Beach police chief
+- [11:07.310] in the early 2000s, according to the police chief in 2019.
+- [11:12.430] The President has gone on record before
+- [11:14.220] and has told reporters that he said that Jeffrey Epstein --
+- [11:16.510] that he had no idea about Jeffrey Epstein's crimes.
+- [11:19.480] During this conversation with the police chief, however,
+- [11:23.910] he did say, according to this recounting of it,
+- [11:27.280] that thank goodness you're stopping him.
+- [11:28.950] He also called Ghislaine Maxwell evil.
+- [11:31.100] So, my two questions are,
+- [11:32.680] did that conversation with the Palm Beach police chief happen?
+- [11:36.760] And can you explain the discrepancy?
+- [11:38.850] Karoline Leavitt: What I will say
+- [11:40.050] is that the President has always remained consistent
+- [11:42.760] and that he kicked Jeffrey Epstein out of his club
+- [11:44.770] at Mar-a-Lago
+- [11:46.110] because, frankly, Jeffrey Epstein was a creep.
+- [11:48.550] And unlike many other people who are named in these files,
+- [11:52.000] President Trump cut off his relationship
+- [11:53.860] with Jeffrey Epstein and was honest and transparent
+- [11:56.840] about that for years and years.
+- [11:58.680] And so, I think what the President has said all along
+- [12:00.800] has always remained true.
+- [12:02.340] And the release of more than 3 million documents
+- [12:05.270] related to Jeffrey Epstein and his heinous,
+- [12:07.480] disgusting crimes just shows the level of transparency
+- [12:10.550] that this president and administration
+- [12:12.080] has committed to in bringing these files to light.
+- [12:16.360] The Press: But did he call the chief in 2006?
+- [12:18.280] Karoline, did he call the chief?
+- [12:19.670] Karoline Leavitt: Look, it was a phone call
+- [12:21.820] that may or may not have happened in 2006.
+- [12:24.030] I don't know the answer to that question.
+- [12:25.640] What I'm telling you is that what President Trump
+- [12:27.370] has always said is that he kicked Jeffrey Epstein
+- [12:30.060] out of his Mar-a-Lago club
+- [12:31.430] because Jeffrey Epstein was a creep and that remains true.
+- [12:34.890] And this call, if it did happen,
+- [12:36.680] corroborates exactly what President Trump
+- [12:39.210] has said from the beginning.
+- [12:40.600] And I'm sure many of you when you read
+- [12:42.290] that that alleged FBI report probably thought to yourself,
+- [12:45.750] wow, this really cracks our narrative that
+- [12:47.700] we've been trying to push about this president for many Years.
+- [12:50.560] So, we're moving on from that. Reagan?
+- [12:53.630] The Press: Thanks, Karoline.
+- [12:54.890] I want to ask you about the SAVE Act.
+- [12:56.690] NBC reported that there's some hesitation
+- [12:59.030] among House Republicans
+- [13:00.630] on adding absentee ballot restrictions into the SAVE Act.
+- [13:04.660] Can you explain what the hesitation
+- [13:06.560] is among House Republicans
+- [13:08.020] and also just provide a status of negotiations
+- [13:10.710] with Congress on the legislation?
+- [13:12.070] Karoline Leavitt: Sure.
+- [13:13.310] I can't speak for House Republicans, Reagan,
+- [13:15.080] I can obviously speak for the President
+- [13:16.780] who is quite possibly the strongest supporter
+- [13:20.200] of the SAVE America Act, which, as you know,
+- [13:23.120] would require proof of citizenship to register to vote.
+- [13:27.100] It would require proof of identification,
+- [13:29.820] a photo identification before casting a ballot.
+- [13:33.290] And it would also ensure that there are exceptions made.
+- [13:36.790] I think that's what you're alluding to
+- [13:38.110] with these conversations with House Republicans,
+- [13:40.250] for reasonable requests, of course, for our military,
+- [13:43.240] for individuals who are disabled and cannot make it to the polls.
+- [13:46.450] Those are reasonable commonsense things
+- [13:48.070] that I believe House Republicans
+- [13:49.350] are discussing amongst themselves.
+- [13:51.000] But as for the President, he's been very clear,
+- [13:53.470] he wants House Republicans --
+- [13:54.750] and Democrats too, if they were politically wise,
+- [13:57.490] to pass this legislation for the Senate
+- [13:59.290] to pass it to send it to the President's desk
+- [14:00.940] so it can be signed into law.
+- [14:02.140] The Press: A quick follow-up. I'm wondering when the last time
+- [14:04.400] the President spoke to Leader Thune
+- [14:06.120] was and if he discussed using the standing filibuster
+- [14:09.210] to pass the legislation.
+- [14:10.450] Karoline Leavitt: The President has given his position
+- [14:12.190] on the standing filibuster.
+- [14:13.580] As for his most recent conversation with Leader Thune,
+- [14:15.850] frankly I'm not sure.
+- [14:17.090] I do know they speak very frequently.
+- [14:18.720] The President is in constant communication
+- [14:20.820] with both Leader Thune and the House Speaker,
+- [14:22.690] Mike Johnson. Stephen.
+- [14:25.550] I see we switched up our seating chart.
+- [14:27.790] You're a direct line of sight now, congratulations.
+- [14:31.030] The Press: Thank you to the Correspondents Association
+- [14:32.690] for recognizing the New York Post's reach.
+- [14:35.530] I've got two questions for you, one about the Guthrie case
+- [14:38.690] and then another about infrastructure.
+- [14:41.270] On the Guthrie case,
+- [14:42.660] does President Trump have a warning to the culprits
+- [14:46.180] here about what would happen to them,
+- [14:48.120] what federal consequences they would face
+- [14:49.930] if they do not release Nancy Guthrie unharmed?
+- [14:52.840] Karoline Leavitt: I think anyone who was involved
+- [14:54.740] in this depraved crime,
+- [14:56.490] this abduction, of course, we want to be seen held
+- [15:00.150] to the fullest extent of the law possible.
+- [15:03.270] The Press: And on infrastructure,
+- [15:05.170] can you explain why President Trump asked Chuck Schumer
+- [15:08.120] to help him rename Penn Station
+- [15:10.250] and Dulles Airport after himself?
+- [15:13.290] Why is he interested in having his name on those two buildings?
+- [15:16.400] And why are the Gateway Tunnel funds the proper point
+- [15:21.010] of pressure to get that to happen?
+- [15:22.940] Karoline Leavitt: To your first question about the renaming,
+- [15:24.590] why not? It was something the President
+- [15:26.330] floated in his conversation with Chuck Schumer.
+- [15:30.200] As for the funding, the President has addressed
+- [15:31.950] that separately himself. Danny?
+- [15:33.770] The Press: Thanks, Karoline.
+- [15:35.170] Today the vice president's account posted
+- [15:38.030] and then deleted a tweet about the Armenian genocide.
+- [15:40.660] And then last week
+- [15:42.190] President Trump's Truth Social account posted
+- [15:44.880] and then deleted a racist video about the Obama's,
+- [15:48.850] and the White House again blamed that on a staffer.
+- [15:51.290] I wanted to ask you, does the White House
+- [15:53.160] have a social media problem at the moment?
+- [15:56.380] Do you have an auto-posting problem
+- [15:58.620] that's leading to these mistakes?
+- [16:00.490] Karoline Leavitt: No.
+- [16:01.780] As for the Armenian tweet that you're referring to,
+- [16:05.100] I would just refer you back to the White House's message
+- [16:07.910] that was issued on Armenian Remembrance Day.
+- [16:10.080] And there's been no change of policy at this time. Mary.
+- [16:13.240] The Press: Thanks, Karoline.
+- [16:14.490] When the President goes to Beijing in the spring,
+- [16:17.000] does he have plans to try and advocate on behalf of Jimmy Lai
+- [16:19.830] who was sentenced to 20 years yesterday?
+- [16:21.650] Karoline Leavitt: This is something
+- [16:22.890] I've heard the President advocate
+- [16:24.300] for both publicly and privately.
+- [16:26.690] I had the honor of being in that meeting
+- [16:28.810] with President Trump and President Xi in South Korea
+- [16:31.090] that took place,
+- [16:32.350] and this was brought up by the President himself.
+- [16:34.710] It is important to him,
+- [16:36.350] and he looks forward to visiting China in April.
+- [16:38.430] Go ahead.
+- [16:39.650] The Press: Thanks, Karoline.
+- [16:40.890] So, some Republican lawmakers from Nebraska
+- [16:42.920] have said they're worried that the Argentinian beef
+- [16:45.520] executive order will sideline some American ranchers.
+- [16:48.670] How will the Trump administration make sure prices
+- [16:50.600] go down for consumers without harming those ranchers?
+- [16:53.460] Karoline Leavitt: Of course, both things can happen
+- [16:55.580] at the same time. That's the President's belief.
+- [16:57.640] He wants to see prices come down.
+- [16:59.090] In fact, I just overheard him on the phone
+- [17:00.720] with Secretary Rollins.
+- [17:01.940] They were talking about something different,
+- [17:03.300] but he's always saying we got to make sure
+- [17:04.990] that prices continue to come down.
+- [17:06.580] As you know, Secretary Rollins successfully did that
+- [17:09.090] with respect to ice -- egg prices.
+- [17:11.190] Cattle -- beef prices are coming down slightly,
+- [17:14.500] and the President wants to see that continue.
+- [17:16.900] He believes that a -- a minor import to the country
+- [17:21.530] with cattle might be a short term solution with respect
+- [17:25.880] to bringing down prices.
+- [17:27.180] But of course, protecting our American cattle
+- [17:29.060] and rancher industry is a priority for the President,
+- [17:31.570] and he's in touch with those stakeholders.
+- [17:33.100] We've had them here at the White House
+- [17:34.330] a few times in recent months to discuss this issue directly.
+- [17:38.570] John?
+- [17:39.790] The Press: Thanks a lot, Karoline.
+- [17:41.030] Yesterday the President on social media
+- [17:43.370] threatened to block the new Gordie Howe Bridge,
+- [17:46.330] which would connect Detroit to Canada.
+- [17:49.040] This is a bridge that was fully paid for by Canada.
+- [17:52.720] It used American labor to construct it.
+- [17:55.810] It used American steel to construct that bridge.
+- [17:59.340] The President in 2017
+- [18:00.820] was actually in favor of this bridge,
+- [18:03.200] part of a joint statement that he put out
+- [18:05.200] when he met with the Canadian prime minister.
+- [18:07.010] Why has the President changed his mind
+- [18:09.510] as it relates to this bridge?
+- [18:11.190] Karoline Leavitt: I think the President was very clear
+- [18:12.740] and direct in his truth, John.
+- [18:14.060] But just to reiterate, the fact that Canada will control
+- [18:16.890] what crosses the Gordie Howe Bridge
+- [18:19.390] and owns the land on both sides
+- [18:20.920] is unacceptable to the President.
+- [18:22.580] It's also unacceptable that more of this bridge
+- [18:25.130] isn't being built with more American made materials,
+- [18:28.470] even more so than what President Barack Obama
+- [18:31.220] committed to with the Canadians at the time
+- [18:33.050] at the start of the project.
+- [18:34.570] He also believes that the US should own
+- [18:36.620] at least half of the bridge,
+- [18:38.330] have shared authority over what passes across it
+- [18:40.640] and participate in the economic benefits generated by its use.
+- [18:44.420] This is just another example of President Trump
+- [18:46.510] putting America's interests first.
+- [18:48.820] And so, it -- he made that very clear in his call
+- [18:52.590] with Prime Minister Carney earlier today.
+- [18:55.260] Phil?
+- [18:56.620] The Press: Thank you, Karoline.
+- [18:57.980] DHS Secretary Kristi Noem just posted a photo of herself
+- [19:01.440] signing the last contract
+- [19:02.790] between for steel at the border wall
+- [19:06.690] between Laredo, Del Rio and Big Bend, Texas,
+- [19:10.240] among reports that construction had stalled.
+- [19:12.740] Is the President satisfied with the pace of construction?
+- [19:16.360] Karoline Leavitt: The President wants to make sure
+- [19:17.770] that the full border wall
+- [19:18.980] is built as quickly as possible, of course.
+- [19:20.700] I know this is a priority for him dating back to 2016.
+- [19:24.760] And so, absolutely he wants to ensure
+- [19:26.630] that the border wall is built.
+- [19:28.890] Under budget and ahead of schedule
+- [19:32.700] is how President Trump likes to view building projects,
+- [19:35.310] and that includes the build -- border wall.
+- [19:36.930] The Press: But is he satisfied
+- [19:38.160] with the pace of construction thus far?
+- [19:39.780] Karoline Leavitt: I think the President
+- [19:41.000] is never satisfied. He always wants to ensure
+- [19:43.260] that things are moving along as quickly as possible.
+- [19:45.320] But I know Secretary Noem is on it,
+- [19:46.690] and she's doing a great job.
+- [19:47.970] The Press: Thank you, Karoline.
+- [19:49.230] Karoline Leavitt: You're welcome.
+- [19:50.540] Sure, go ahead. Charlie.
+- [19:52.700] The Press: On the -- on the Nancy Guthrie case,
+- [19:55.690] is the President satisfied with the federal
+- [19:57.590] and local investigations so far?
+- [20:00.210] And has there been any more contact from the White House
+- [20:02.990] or the President with the family?
+- [20:04.390] Karoline Leavitt: I don't think anybody will be satisfied
+- [20:06.050] until this case is brought to a close
+- [20:07.710] and until Nancy Guthrie is returned home
+- [20:10.150] safely with her loved ones.
+- [20:11.470] The Press: But have there been contacts?
+- [20:12.810] Has the President contacted the family since --
+- [20:15.590] Karoline Leavitt: Not since that initial phone call.
+- [20:17.680] Sure, Tamra.
+- [20:18.900] The Press: Thank you.
+- [20:20.190] The National Governors Association is removing
+- [20:23.160] a meeting with President Trump from his agenda
+- [20:25.200] because only Republicans were invited.
+- [20:27.770] Is the White House reconsidering inviting Democrats,
+- [20:30.490] or do you think Republicans are still going to show up?
+- [20:32.740] Like, where does that stand now?
+- [20:33.980] Karoline Leavitt: No.
+- [20:35.200] Look, I just spoke with the President about this.
+- [20:37.220] It is a dinner at the White House.
+- [20:39.580] It's the people's house. It's also the President's home,
+- [20:41.920] and so he can invite whomever he wants to dinners
+- [20:44.760] and events here at the White House.
+- [20:46.370] I believe Governor Moore was invited last year,
+- [20:48.920] and he did not show up to the dinner last year.
+- [20:51.710] Nobody reported on it.
+- [20:53.390] But again, the President has the discretion
+- [20:55.220] to invite whomever he wants to the White House,
+- [20:56.940] and he welcomes all those who received an invitation to come.
+- [20:59.810] And if they don't want to, that's their loss.
+- [21:01.510] The Press: And on Ghislaine Maxwell,
+- [21:03.180] is the President going to rule out a pardon for her.
+- [21:07.240] In her testimony -- deposition yesterday, her legal team
+- [21:11.490] seemed to be making a case again for a pardon from the President.
+- [21:15.090] Karoline Leavitt: Again, this is not something
+- [21:16.450] I've discussed with the President recently
+- [21:17.990] because, frankly, it's not a priority.
+- [21:19.630] He's focused on many of the issues
+- [21:22.380] that the American people are dealing with
+- [21:24.260] and providing solutions to those issues.
+- [21:26.670] So, I haven't spoken with him recently.
+- [21:28.660] Last time we did speak about it,
+- [21:29.880] he said it's not something he's considering or thinking about.
+- [21:32.900] Go ahead, Bloomberg.
+- [21:34.100] The Press: Thanks, Karoline.
+- [21:35.840] Secretary Lutnick today was testifying on the Hill,
+- [21:38.510] and he said that he had visited Epstein's island in 2012
+- [21:42.090] with his wife and children.
+- [21:44.110] And that's after he said that he had cut ties with Epstein,
+- [21:46.710] and Justice Department documents show that he was in contact
+- [21:50.740] with Epstein through 2018 over messages.
+- [21:53.780] So, does the White House stand behind Secretary Lutnick
+- [21:56.750] right now? Or given what he has said today,
+- [21:59.960] has there been any shift in how the White House
+- [22:02.500] is viewing Secretary Lutnick's performance?
+- [22:04.760] Karoline Leavitt: No. Secretary Lutnick
+- [22:06.020] remains a very important member of President Trump's team,
+- [22:09.000] and the President fully supports the secretary.
+- [22:11.810] I will just point out that there are a lot of wins
+- [22:13.600] in the news this week
+- [22:14.830] that people in this room have not asked about
+- [22:16.600] because you continue to ask questions
+- [22:18.010] about the same subject,
+- [22:19.230] so let me point them out for you.
+- [22:20.480] Again, on Friday, the Dow shattered 50,000
+- [22:23.050] for the first time ever.
+- [22:24.690] This week, the American Society of Plastic Surgeons
+- [22:27.270] came out in opposition to gender mutilation
+- [22:29.400] surgeries for children.
+- [22:30.840] They are the first major medical group to do so.
+- [22:33.840] A federal appeals court today, nobody asked about that,
+- [22:36.660] just upheld the Trump administration's policy
+- [22:39.110] of detaining illegal aliens, validating the strong measures
+- [22:42.540] that have driven illegal crossings to historic lows
+- [22:45.280] and sent a crystal clear message that, under President Trump,
+- [22:48.580] if you enter the country illegally,
+- [22:50.280] you will be detained and removed.
+- [22:52.300] The murder rate, again, not a single question about this,
+- [22:55.110] has plunged to a 125 year low as crime falls across the board
+- [23:00.160] thanks to President Trump's crime crackdown.
+- [23:02.590] We also saw this week national median rents
+- [23:04.980] have fallen to a four year
+- [23:06.570] low following six consecutive monthly declines,
+- [23:09.840] and mortgage affordability has surged to a four year high.
+- [23:13.680] Home ownership is the core foundation principle
+- [23:16.680] of the American dream,
+- [23:17.910] and I will repeat that mortgage affordability
+- [23:19.860] this week surged to a four year high,
+- [23:22.170] but not a single have mention of that
+- [23:24.100] in this briefing room today.
+- [23:25.340] And again, this came out last Friday,
+- [23:27.230] but for an unprecedented ninth straight month,
+- [23:29.860] there were zero illegal border crossings
+- [23:31.580] at the southern border.
+- [23:32.790] So, we're going to get back to business.
+- [23:34.490] The President is very busy today,
+- [23:35.820] and you will see him all tomorrow
+- [23:37.520] at the event in the East Room
+- [23:38.850] touting his administration's energy policy.
+- [23:41.020] Thank you.

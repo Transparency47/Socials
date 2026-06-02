@@ -1,0 +1,277 @@
+<!-- source: https://www.youtube.com/watch?v=bJdhaHfgoDU -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: bJdhaHfgoDU -->
+<!-- date_published: 2026-02-27T20:08:33+00:00 -->
+<!-- date_accessed: 2026-06-02T01:04:42.549580+00:00 -->
+
+# Transcript: President Trump Gaggles with Press Before Departing the White House, Feb. 27, 2026
+
+- [00:00.560] How are the talks going with Iran? Are
+- [00:02.240] you happy with the progress?
+- [00:03.600] >> No, I'm not. I'm not happy with the fact
+- [00:05.600] that they're not willing to give us what
+- [00:07.919] we have to have. So, I'm not thrilled
+- [00:09.840] with that. We'll see what happens. We're
+- [00:11.440] talking later. Uh we'll we'll have some
+- [00:14.799] additional talks today. But no, I'm not
+- [00:17.279] happy with the way they go.
+- [00:18.640] >> Have you heard at all about President
+- [00:20.320] Bill Clinton being deposed and that that
+- [00:22.320] sets precedent for you and your family?
+- [00:24.640] I don't like seeing him deposed, but uh
+- [00:27.519] you know, they certainly went after me a
+- [00:30.160] lot more than that.
+- [00:32.880] >> I don't like seeing him. Look, I like I
+- [00:34.800] like him and I don't like seeing him
+- [00:37.040] depose.
+- [00:38.000] >> Does the president SAY THEY HAVE THE
+- [00:39.440] votes to subpoena Howard Lutnik? What is
+- [00:41.840] your reaction to that?
+- [00:42.960] >> Howard would go in and do whatever he
+- [00:44.480] has to say. He's a very innocent guy
+- [00:47.200] doing a good job.
+- [00:48.800] >> You special invo Barak now he's in Iraq.
+- [00:51.520] What's your message to the Iraqi
+- [00:53.280] leadership?
+- [00:54.480] >> Well, I get along very well with the
+- [00:56.239] Iraqi leadership. Thank you.
+- [01:00.239] >> Governor Pritsker posted on social media
+- [01:02.640] that you're planning to steal the 2026
+- [01:05.280] midterm elections. In fact, he says the
+- [01:06.960] plan is already underway. How do you
+- [01:08.720] respond to Governor Pritsker? Well, he's
+- [01:10.640] got a focus on crime in his state. The
+- [01:14.000] crime in his state's doing very badly.
+- [01:16.320] Uh if uh we if we went and took care of
+- [01:19.360] it, what we would do just like
+- [01:20.640] Washington DC, we have no crime.
+- [01:22.960] Memphis, we took it's down 82%.
+- [01:26.320] Uh Louisiana, you take a look at
+- [01:28.640] Louisiana. What what he should really do
+- [01:31.040] is focus on crime in his state because
+- [01:34.240] there's too much of it.
+- [01:35.759] >> Have you made Have you made a final
+- [01:37.360] decision of Iran? Have you MADE A FINAL
+- [01:39.759] DECISION ON IRAN? Have you made a final
+- [01:41.920] decision on Iran?
+- [01:43.280] >> No, I haven't. Do you believe that Iran
+- [01:45.200] is nuclear weapons
+- [01:46.799] >> if negotiation breakdown with Iran?
+- [01:50.079] >> Well, we haven't made a final decision.
+- [01:52.079] We're not exactly happy with the way
+- [01:54.240] they negotiated.
+- [01:56.079] They can they cannot have nuclear
+- [01:57.920] weapons and we're not thrilled with the
+- [02:00.079] way they're negotiating. So, we'll see
+- [02:01.920] how it all work.
+- [02:04.960] Sir,
+- [02:05.280] >> what was that boat doing in Cuba? And do
+- [02:07.439] you believe the Cuban government? Uh the
+- [02:10.879] Cuban government is talking with us and
+- [02:13.840] they're in a big deal of trouble as you
+- [02:15.760] know. They have no money. They have no
+- [02:18.080] anything right now. But they're talking
+- [02:20.400] with us and maybe we'll have a friendly
+- [02:23.280] takeover of Cuba.
+- [02:27.040] >> We could very well end up having a
+- [02:28.800] friendly takeover of Cuba.
+- [02:30.800] >> What about the boat, sir? The boat
+- [02:32.720] >> many years. We've had a lot of years of
+- [02:35.040] dealing with Cuba. I've been hearing
+- [02:36.879] about Cuba since I'm a little boy, but
+- [02:39.680] they're in big trouble and uh we could
+- [02:43.120] very well something could I think very
+- [02:45.760] positive for the people that were
+- [02:48.160] expelled or worse from Cuba that live
+- [02:50.800] here. You know, we have people living
+- [02:52.319] here that want to go back to Cuba and
+- [02:55.040] they're very happy with what's going on.
+- [02:57.599] >> What about the last news the last news
+- [02:59.840] of of Epstein fights in particular Bill
+- [03:03.280] Clinton, Hillary Clinton? What about
+- [03:05.040] that?
+- [03:05.360] >> I don't know anything about the FC
+- [03:06.959] files, you know. I've been fully
+- [03:08.480] exonerated yet.
+- [03:10.239] >> With the options that you've been
+- [03:11.519] briefed on for Iran, is there a risk
+- [03:14.560] that strikes could turn into a long
+- [03:17.440] drawn out conflict in the Middle East?
+- [03:19.599] >> I guess you could say there's always a
+- [03:21.120] risk. You know, when there's war,
+- [03:22.400] there's a risk in anything, both good
+- [03:24.000] and bad. Uh we've had tremendous luck
+- [03:27.680] with myself, Solomaini, Al Baghdaddy.
+- [03:31.519] Everything's worked out. and then we do
+- [03:33.120] the midnight hammer and so many others.
+- [03:36.080] Everything's worked out and we want to
+- [03:37.599] keep it that way. But we're going to
+- [03:39.519] see. Look, it'll be wonderful if they
+- [03:41.840] negotiate
+- [03:43.599] uh really in good conscience, good faith
+- [03:46.000] and conscience, but uh they they are not
+- [03:49.040] getting there.
+- [03:51.200] >> So far, Peter, they're not getting
+- [03:52.400] there.
+- [03:52.799] >> Has your team told you that if you use
+- [03:55.040] the military now that there will be
+- [03:58.239] regime change right away?
+- [04:00.319] >> Nobody's
+- [04:03.360] No, I mean nobody knows though. There
+- [04:04.799] might be and there might not be.
+- [04:09.040] >> It would be nice if we could do it
+- [04:10.319] without, but sometimes you have to do it
+- [04:13.040] with we uh when you looked at what look
+- [04:16.239] we have the greatest military anywhere
+- [04:17.919] in the world. There's nothing close. I'd
+- [04:19.840] love not to use it, but sometimes you
+- [04:21.519] have to.
+- [04:24.320] >> To be clear, are we going to have a ch a
+- [04:27.840] change in the regime in Cuba soon? Well,
+- [04:30.639] Cuba is doing very badly, failing. Cuba
+- [04:33.759] right now is uh to put it mildly, a
+- [04:36.800] failing nation. And I've been hearing
+- [04:38.800] about Cuba. I said before, since I'm a
+- [04:41.280] little boy, I've been hearing about
+- [04:42.479] Cuba. And everybody wanted to change.
+- [04:44.880] And I could see that happening. Marco
+- [04:47.120] Rubio is dealing on it and at a very
+- [04:50.080] high level. And you know, they have no
+- [04:52.320] money, they have no oil, they have no
+- [04:54.000] food. And it's really right now a nation
+- [04:56.639] in deep trouble. And they want our help.
+- [04:59.919] in Iran. Mr. President,
+- [05:01.919] >> will you talk about sanctions relief for
+- [05:04.160] Russia and expanding USRussia economic
+- [05:06.960] and trade ties as parts relief? I'd like
+- [05:10.320] to do I'd like to just see that war over
+- [05:12.560] with. I spoke with President Putin. We'd
+- [05:15.120] like to see the war end and I would like
+- [05:17.840] to see it end fast.
+- [05:19.120] >> Sir, are you
+- [05:19.840] >> 45,000 people died last month. It's
+- [05:23.039] crazy to have that war is just
+- [05:25.360] absolutely
+- [05:27.120] it's a shame. Sir, are you sir on
+- [05:30.240] Venezuela?
+- [05:30.960] >> Sir, are you considering a national
+- [05:32.479] emergency? Are you considering a
+- [05:34.479] national emergency around the midterm
+- [05:36.320] election?
+- [05:37.680] >> Who told you that?
+- [05:38.880] >> There's been reporting that there's an
+- [05:40.479] executive order, proposed executive
+- [05:42.320] order about this. Are you looking at
+- [05:44.160] that? Are you considering
+- [05:45.199] >> I don't I've never I've never heard
+- [05:49.919] Mr. I know that you said that the regime
+- [05:52.000] of Rodriguez is cooperating but in that
+- [05:54.160] government there's still a individual
+- [05:56.240] the minister of interior cave he's still
+- [05:59.120] indicted by the US government for narot
+- [06:01.199] traffic and narot terrorism do you want
+- [06:03.039] to see him facing charges here in the
+- [06:05.520] >> what we'll do is I'll take a look at it
+- [06:08.720] >> for
+- [06:11.919] president sir we'll see what happens we
+- [06:15.360] want to make a deal we're going to make
+- [06:16.880] a deal it's a question of when we want
+- [06:19.120] to make how Hello. How are you?
+- [06:21.520] >> Hello.
+- [06:22.000] >> We want to make a deal with Russia. We
+- [06:24.000] want to make a deal with Ukraine. I
+- [06:26.080] think we're very close, but we'll see
+- [06:27.360] what happens.
+- [06:29.120] >> Mr. President,
+- [06:30.240] >> thank you. Mr. President, what are you
+- [06:32.080] going to do about the violation of
+- [06:34.560] Rwanda? He violated the the pizza court.
+- [06:37.520] >> Looking at it this afternoon, that's
+- [06:42.560] >> Mr. President, are you planning to
+- [06:44.160] restore ties with Bellarus? Are you
+- [06:46.240] planning to restore ties with Bellarus?
+- [06:48.479] with Bellarus in Europe.
+- [06:49.919] >> Yeah.
+- [06:50.880] >> Bellarus.
+- [06:51.759] >> Yeah. Yeah. I know it very well. Well,
+- [06:53.199] go ahead.
+- [06:53.600] >> Are you planning to restore a
+- [06:54.720] relationship with them? Restore a good
+- [06:56.560] relationship and the leader is somebody
+- [06:58.880] that I have a lot of respect for with
+- [07:01.199] Barus. We have a very good relationship
+- [07:04.639] for them.
+- [07:05.039] >> I like the leader a lot.
+- [07:06.720] >> Do you have any
+- [07:10.639] of
+- [07:12.400] >> Mr. President?
+- [07:14.960] >> Less not more.
+- [07:16.720] >> Mr. President, congratulations on the
+- [07:18.720] State of the Union. Sir, mortgage rates,
+- [07:20.720] 30-year mortgage rates hit below 6% the
+- [07:23.360] first time in four years.
+- [07:24.400] >> Mortgage rates are going down very
+- [07:25.840] rapidly.
+- [07:26.400] >> What is your message to young people
+- [07:27.919] like me who want to buy a home under
+- [07:29.759] you?
+- [07:30.639] >> Save a little money, wait a little
+- [07:32.319] longer, you're going to get a mortgage
+- [07:33.680] for a very low rate.
+- [07:37.280] >> He's got a great job, too. What?
+- [07:41.280] >> Hold on. Is it Is it Ron trying to
+- [07:43.280] string you along? Well, we're not happy
+- [07:46.080] with what's going on. They should make a
+- [07:48.880] deal. They'd be smart if they made a
+- [07:51.360] deal. No nuclear weapon. We want no
+- [07:54.080] nuclear weapons by Iran. And they're not
+- [07:56.800] saying those golden words.
+- [08:01.199] >> I'm filling in for Brian Glenn. Uh, what
+- [08:03.520] do you hope to achieve on this trip to
+- [08:05.360] Texas? Do you plan on making any
+- [08:06.879] endorsements while you're there?
+- [08:08.160] >> What we're having is tremendous luck
+- [08:10.479] with oil. We've got more oil than
+- [08:12.560] anybody and the prices of gasoline are
+- [08:14.720] coming way down and prices generally are
+- [08:17.440] coming way down. The pricing is it's
+- [08:20.240] been amazing what we've been able to do
+- [08:21.919] in one year. Prices are way down led by
+- [08:24.639] energy led by oil. So we're this is sort
+- [08:27.599] of it's Texas. It's a little bit of an
+- [08:30.000] oil meeting I would say. Thank you Mr.
+- [08:32.719] >> President
+- [08:35.760] executive order on elections.
+- [08:38.000] >> No, I haven't heard about that.
+- [08:40.080] >> Mr.
+- [08:41.360] Thank you. Next weekend in Florida, are
+- [08:43.519] you receiving leaders from Latin
+- [08:45.200] America? What do you intend to discuss
+- [08:47.519] with them? And if you had a date uh to
+- [08:50.160] receive the president of Brazil here at
+- [08:52.080] the White House,
+- [08:52.959] >> I get along with the president of
+- [08:54.399] Brazil. Very well. I'd love to.
+- [08:56.160] >> And for the meeting with with Latin
+- [08:57.760] America here,
+- [09:00.160] Pakistan Pakistan has waged a war
+- [09:02.399] against Afghanistan. Uh have they asked
+- [09:05.200] you to intervene? Has anyone reached out
+- [09:06.959] to you on that? I would but I get along
+- [09:08.880] with Pakistan as you know very well very
+- [09:11.680] very well. You have a great prime
+- [09:13.440] minister. You have a a great general
+- [09:15.760] there. You have a great leader that uh I
+- [09:18.959] think two of the people that I really
+- [09:20.959] respect a lot and I think that uh
+- [09:24.320] Pakistan is doing terrifically well.
+- [09:27.279] Yeah.
+- [09:28.800] >> Mr. President, why you are not happy
+- [09:31.279] about Nurim Maliki nominated to became a
+- [09:34.399] new prime minister of Iraq?
+- [09:37.040] We're going to see what happens with
+- [09:38.320] Iraq. We're going to see what happens.
+- [09:41.519] >> It'll all work out well for And I And I
+- [09:44.000] like Iraq and I like the people of Iraq
+- [09:46.399] a lot. Thank you very much. support.

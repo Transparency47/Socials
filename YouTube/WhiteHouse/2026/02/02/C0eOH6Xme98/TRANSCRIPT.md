@@ -1,0 +1,96 @@
+<!-- source: https://www.youtube.com/watch?v=C0eOH6Xme98 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: C0eOH6Xme98 -->
+<!-- date_published: 2026-02-02T03:30:58+00:00 -->
+<!-- date_accessed: 2026-06-02T01:05:59.484452+00:00 -->
+
+# Transcript: President Trump Gaggles with Press at Mar-a-Lago, Feb. 1, 2026
+
+- [00:01.280] How you doing, Mr. President?
+- [00:02.720] >> A big day. One of our great people, Dan,
+- [00:05.839] Aaron, they're getting married. And so
+- [00:08.320] that's a big day.
+- [00:10.160] >> Very loyal, very fantastic people.
+- [00:13.200] >> Sir, on on Iran, uh the Supreme Leader
+- [00:15.440] today said that uh US attack could spark
+- [00:17.760] a regional war. Do you have any response
+- [00:19.520] to that?
+- [00:20.000] >> Why wouldn't he say that? Of course,
+- [00:21.199] you're going to say that. But uh we have
+- [00:23.439] the biggest, most powerful ships in the
+- [00:25.199] world over there. Very close couple of
+- [00:27.840] days. And uh hopefully we'll make a
+- [00:29.840] deal. If we don't make a deal, then
+- [00:31.760] we'll find out whether or not he was
+- [00:33.200] right.
+- [00:34.399] >> Mr. President, Texas, um a Democrat won
+- [00:37.520] a special election in an area that you
+- [00:39.600] had won by 17 points. What is your
+- [00:42.000] reaction to that?
+- [00:42.559] >> I don't know. I didn't hear about it.
+- [00:43.760] Somebody ran where?
+- [00:45.280] >> In Texas, a special election for
+- [00:47.200] legislative,
+- [00:47.760] >> the ninth state senate seat.
+- [00:49.120] >> I'm not involved in that. That's a local
+- [00:50.800] Texas race.
+- [00:51.520] >> Did you endorse the Republican?
+- [00:52.719] >> You mean I won by 17?
+- [00:54.879] >> You did. and uh this person lost.
+- [00:58.000] >> Things like that happen.
+- [00:59.359] >> Does it worry you about
+- [01:00.399] >> Well, you don't know whether or not it's
+- [01:01.680] transferable. You know, I'm not on the
+- [01:03.280] ballot, so you don't know whether or not
+- [01:04.799] it's transferable. But, uh, you know,
+- [01:08.159] you put the Democrats in, you'll end up
+- [01:10.159] with open borders again. You'll end up
+- [01:11.920] with crime all over the place. We have
+- [01:13.360] no crime anymore. I mean, I mean, think
+- [01:15.280] of it. The country has the lowest crime
+- [01:16.880] it's had in 125 years
+- [01:19.920] in recorded history. The year 1900,
+- [01:22.720] that's a long time ago. So, it's very
+- [01:25.280] good. No, I don't know anything about
+- [01:26.320] it. I didn't know. I mean, I know
+- [01:27.520] there's a race going there and uh it's
+- [01:30.720] too bad. What can I say? I have nothing
+- [01:32.960] to do with it. Yeah. So, what do you
+- [01:34.320] want out of the
+- [01:36.560] >> Well, Cuba is a failing nation. It has
+- [01:38.400] been for a long time, but now it doesn't
+- [01:40.159] have Venezuela to prop it up. Uh so,
+- [01:43.040] we're talking to the people from Cuba,
+- [01:44.720] the highest people in Cuba. We'll see
+- [01:46.799] what happens. Uh, I want the people that
+- [01:49.200] came here that were horribly treated by
+- [01:51.520] Cuba to be taken care of, to be able to
+- [01:54.240] go back and do what they have to do. Uh,
+- [01:57.200] you know, they have their family there.
+- [01:58.479] They haven't been able to see him in
+- [01:59.759] years, many, many years. Uh, so I think
+- [02:03.280] we're going to make a deal with Cuba.
+- [02:06.000] >> Texas.
+- [02:06.320] >> It's in bad shape. Cuba is in bad shape.
+- [02:08.000] Cuba has a humanitarian problem.
+- [02:09.840] >> Do you have any plans to endorse in that
+- [02:11.840] Senate race? Has your mind changed in
+- [02:14.000] Texas, the GOP?
+- [02:15.280] >> I'm giving a very serious bill. You
+- [02:16.879] know, my problem is I'm friendly with
+- [02:18.160] all of them. Those are the hard ones. I
+- [02:20.560] like all of them. All three. But, uh,
+- [02:23.840] you'll be seeing soon. Okay. They say
+- [02:26.560] whoever I endorse wins. That's probably
+- [02:28.560] right.
+- [02:29.120] >> Do you support all federal border patrol
+- [02:31.920] agents and ICE wearing body pans?
+- [02:34.160] >> We'll be talking about that in the near
+- [02:36.239] future. Okay. But you saw my note that I
+- [02:39.360] put out yesterday. That was pretty I
+- [02:41.920] think it was pretty conclusive. Look, we
+- [02:44.560] stopped crime in our country and the
+- [02:46.000] border is the best it's ever been. Thank
+- [02:47.760] you very much. I got to go to a wedding.
+- [02:49.680] Thank you.

@@ -1,0 +1,940 @@
+<!-- source: https://www.youtube.com/watch?v=5geSeC4S5Ww -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 5geSeC4S5Ww -->
+<!-- date_published: 2025-09-11T17:19:24+00:00 -->
+<!-- date_accessed: 2026-06-02T01:16:05.076560+00:00 -->
+
+# Transcript: President Trump and the First Lady Attend a September 11th Observance Event
+
+- [00:00.100] Male Speaker: We ask that everyone please silence
+- [00:02.170] all mobile devices.
+- [00:21.610] Please stand for the arrival of the official party.
+- [00:29.050] Please welcome the Chairman of the Joint Chiefs of Staff,
+- [00:32.650] General Dan Caine, the Secretary of War,
+- [00:37.010] Pete Hegseth, and Mrs. Jennifer Hegseth.
+- [01:08.410] Ladies and gentlemen, the President
+- [01:10.790] of the United States and First Lady Melania Trump.
+- [01:14.850] ♪ (Hail to the Chief) ♪
+- [02:10.370] Please remain standing for the presentation of colors
+- [02:13.590] and the playing of the National Anthem
+- [02:15.990] performed by the United States Air Force Band,
+- [02:18.890] directed by First Lieutenant Julian Sconyers
+- [02:21.870] and the Joint Armed Forces Chorus
+- [02:24.050] directed by Captain Bonnie Alger.
+- [02:26.840] ♪ (Military Band Music) ♪
+- [03:18.840] ♪ (Chorus singing "The Star Spangled Banner") ♪
+- [04:26.925] (Military Drill Commands)
+- [04:41.643] ♪ (Military Band Music) ♪
+- [05:21.760] Male Speaker: Ladies and gentlemen,
+- [05:23.070] please be seated.
+- [05:40.990] Male Speaker: Dr. Paul W. Ambrose.
+- [05:44.240] (bell chime)
+- [05:48.010] Specialist Craig S. Amundson, United States Army.
+- [05:53.390] (bell chime)
+- [05:56.520] Petty Officer, Third Class Melissa Rose Barnes,
+- [06:00.910] United States Navy.
+- [06:02.930] (bell chime)
+- [06:06.830] Master sergeants, Mats J. Belke, United States Army, retired.
+- [06:13.220] (bell chime)
+- [06:16.930] Dr. Yanano, Betru.
+- [06:19.290] (bell chime)
+- [06:23.460] Petty Officer, Second Class,
+- [06:25.610] Chris Romeo Bushundat, United States Navy.
+- [06:29.830] (bell chime)
+- [06:33.290] Carrie R. Blackburn.
+- [06:35.990] (bell chime)
+- [06:39.700] Colonel Canfield D. Boone, United States Army.
+- [06:44.450] (bell chime)
+- [06:48.290] Mary Jane Boone.
+- [06:50.600] (bell chime)
+- [06:55.150] Donna M. Bowen.
+- [06:57.620] (bell chime)
+- [07:00.460] Alan P. Boyle.
+- [07:02.900] (bell chime)
+- [07:06.760] Bernard C. Brown II.
+- [07:09.880] (bell chime)
+- [07:13.790] Petty Officer, Third Class Christopher L. Burford,
+- [07:17.540] United States Navy.
+- [07:19.480] (bell chime)
+- [07:23.370] Captain Charles F. Burlingame III,
+- [07:25.520] United States Navy Reserve.
+- [07:27.440] (bell chime)
+- [07:28.640] Retired Petty Officer,
+- [07:34.040] Third Class, Daniel M. Caballero, United States Navy.
+- [07:39.330] (bell chime)
+- [07:42.780] Sergeant's First Class
+- [07:45.560] Jose O. Calderon-Omedo, United States Army.
+- [07:49.370] (bell chime)
+- [07:53.000] Suzanne M. Calley.
+- [07:55.390] (bell chime)
+- [07:59.640] Angeline C. Carter.
+- [08:02.340] (bell chime)
+- [08:06.120] Sharon A Carver.
+- [08:08.820] (bell chime)
+- [08:12.440] William E. Caswell.
+- [08:15.180] (bell chime)
+- [08:18.560] Sergeant's First Class
+- [08:21.110] John J. Chata, United States Army, retired.
+- [08:24.740] (bell chime)
+- [08:28.410] Rosa Maria Chapa.
+- [08:31.140] (bell chime)
+- [08:35.450] David M. Charlebois.
+- [08:38.020] (bell chime)
+- [08:41.400] Sarah M. Clark.
+- [08:43.820] (bell chime)
+- [08:47.810] Julian T. Cooper.
+- [08:50.450] (bell chime)
+- [08:54.880] Asia S. Cotton.
+- [08:57.880] (bell chime)
+- [09:01.880] Lieutenant Commander Eric A.
+- [09:03.750] Cranford, United States Navy.
+- [09:06.690] (bell chime)
+- [09:11.770] M. Davis.
+- [09:13.440] (bell chime)
+- [09:16.800] James D. Dibeneir.
+- [09:19.190] (bell chime)
+- [09:23.810] Captain Gerald F. DiCanto, United States Navy.
+- [09:28.590] (bell chime)
+- [09:33.160] Rodney Diggins.
+- [09:34.800] (bell chime)
+- [09:38.890] Lieutenant Colonel Jerry D. Dickerson, United States Army.
+- [09:44.210] (bell chime)
+- [09:48.140] Eddie A. Dillard.
+- [09:50.470] (bell chime)
+- [09:53.930] Petty Officer First Class, Johnny Dauther Jr.,
+- [09:58.000] United States Navy.
+- [09:59.860] (bell chime)
+- [10:04.410] Captain Robert E. Dolan, Jr., United States Navy.
+- [10:09.390] (bell chime)
+- [10:13.770] Commander William H. Donovan, United States Navy.
+- [10:18.460] (bell chime)
+- [10:23.140] Lieutenant Commander Charles A. Dross III, United States Navy,
+- [10:28.170] retired.
+- [10:29.430] (bell chime)
+- [10:33.940] Commander Patrick Dunn, United States Navy.
+- [10:37.830] (bell chime)
+- [10:42.100] Petty Officer, First Class, Edward T.
+- [10:44.900] Earhart, United States Navy.
+- [10:47.640] (bell chime)
+- [10:51.380] Barbara G. Edwards Lieutenant Commander
+- [10:59.420] Robert R. Elsath, United States Navy Reserve.
+- [11:03.710] (bell chime)
+- [11:07.730] Charles S. Falkenberg and his wife, Leslie A.
+- [11:14.580] Whittington.
+- [11:15.880] (bell chime)
+- [11:19.140] And their two children, Dana Feltenberg and Zoe Feltenburg.
+- [11:23.250] (bell chime)
+- [11:27.270] Petty Officer, Third Class, Jamie L.
+- [11:30.310] Fallon, United States Navy.
+- [11:33.070] (bell chime)
+- [11:37.910] J. Joseph Ferguson.
+- [11:40.680] (bell chime)
+- [11:43.910] Amelia V Fields.
+- [11:46.710] (bell chime)
+- [11:50.920] Gerald P. Fisher.
+- [11:53.590] (bell chime)
+- [11:58.100] Darlene E. Flagg, and her husband,
+- [12:04.800] Rear Admiral Wilson F. Flag,
+- [12:07.610] United States Navy Reserve retired.
+- [12:10.940] (bell chime)
+- [12:15.940] Petty Officer Second Class,
+- [12:17.900] Matthew M. Flocco, United States Navy.
+- [12:21.900] (bell chime)
+- [12:27.220] Sandra N. Foster.
+- [12:29.790] (bell chime)
+- [12:35.130] First Lieutenant Richard P.
+- [12:37.670] Gabriel, United States Marine Corps, retired.
+- [12:41.710] (bell chime)
+- [12:46.970] Captain Lawrence D. Getsford, United States Navy.
+- [12:52.050] (bell chime)
+- [12:57.950] Cortez Gui.
+- [12:59.540] (bell chime)
+- [13:04.680] Brenda C. Gibson.
+- [13:07.540] (bell chime)
+- [13:12.330] Colonel Ronald F. Galinsky,
+- [13:15.510] United States Navy, United States Army, retired.
+- [13:19.910] (bell chime)
+- [13:26.030] Ian J. Gray.
+- [13:28.450] (bell chime)
+- [13:33.730] Diane Hale McKenzie.
+- [13:36.790] (bell chime)
+- [13:42.240] Stanley R. Hall.
+- [13:44.700] (bell chime)
+- [13:49.970] Carolyn B. Hammond.
+- [13:52.900] (bell chime)
+- [13:58.530] Michelle M. Hindenberger.
+- [14:01.560] (bell chime)
+- [14:06.990] Sheila M.S. Hine.
+- [14:10.260] (bell chime)
+- [14:16.250] Petty Officer First Class Ronald J. Hemingway,
+- [14:20.930] United States Navy.
+- [14:23.200] (bell chime)
+- [14:29.320] Major Wallace Cole Hogan Jr., United States Army.
+- [14:35.090] (bell chime)
+- [14:41.160] Staff Sergeant Jimmy I.
+- [14:43.730] Hawley, United States Army, retired.
+- [14:47.390] (bell chime)
+- [14:53.530] Angela M. Houtz.
+- [14:56.570] (bell chime)
+- [15:02.770] Brady K. Howell.
+- [15:05.480] (bell chime)
+- [15:11.440] Peggy M. Hurt.
+- [15:13.870] (bell chime)
+- [15:19.240] Lieutenant Colonel Stephen M. Highland Jr.,
+- [15:23.280] United States Army.
+- [15:25.420] (bell chime)
+- [15:30.440] Lieutenant Colonel Robert J.
+- [15:33.190] Heimel, United States Air Force, retired.
+- [15:36.840] (bell chime)
+- [15:42.500] Sergeant Major Lacey B. Ivory, United States Army.
+- [15:48.300] (bell chime)
+- [15:54.390] Brian C. Jack.
+- [15:56.920] (bell chime)
+- [16:02.150] Steven D. Jacoby.
+- [16:05.030] (bell chime)
+- [16:10.870] Lieutenant Colonel Dennis M. Johnson, United States Army.
+- [16:16.590] (bell chime)
+- [16:22.660] Judith L. Jones.
+- [16:25.250] (bell chime)
+- [16:30.630] Anne C. Judge.
+- [16:33.310] (bell chime)
+- [16:38.340] Brenda Kegler.
+- [16:40.490] (bell chime)
+- [16:45.820] Chandler R. Keller.
+- [16:48.630] (bell chime)
+- [16:54.710] Yvonne E. Kennedy.
+- [16:57.500] (bell chime)
+- [17:02.460] Norma Cruz Khan.
+- [17:05.170] (bell chime)
+- [17:10.070] Karen Anne Kinkade.
+- [17:12.480] (bell chime)
+- [17:17.340] Lieutenant Michael S. Lamanna, United States Navy.
+- [17:22.720] (bell chime)
+- [17:28.500] David W. Lechek.
+- [17:31.940] (bell chime)
+- [17:38.100] Dong Chu Li.
+- [17:40.220] (bell chime)
+- [17:45.860] Jennifer Lewis and her husband, Kenneth E. Lewis.
+- [17:53.340] (bell chime)
+- [17:58.780] Samantha L. Lightborn-Allen.
+- [18:02.410] (bell chime)
+- [18:07.800] Major Steven V. Long, United States Army.
+- [18:12.580] (bell chime)
+- [18:18.390] James T. Lynch, Jr.
+- [18:21.550] (bell chime)
+- [18:27.450] Terrence M. Lynch.
+- [18:30.180] (bell chime)
+- [18:35.560] Petty Officer, Second Class,
+- [18:37.720] Nehamen Lyons IV, United States Navy.
+- [18:42.010] (bell chime)
+- [18:47.450] Shelly A. Marshall.
+- [18:50.070] (bell chime)
+- [18:54.660] Teresa M. Martin.
+- [18:57.340] (bell chime)
+- [19:01.980] Ada L. Masonacker.
+- [19:04.470] (bell chime)
+- [19:09.360] Lieutenant Colonel Dean E. Matson, United States Army.
+- [19:14.740] (bell chime)
+- [19:18.910] Lieutenant General Timothy J. Maude, United States Army.
+- [19:24.240] (bell chime)
+- [19:29.450] Robert J. Matswell.
+- [19:32.090] (bell chime)
+- [19:36.570] Renee A. May.
+- [19:39.340] (bell chime)
+- [19:43.930] Molly L. McKenzie.
+- [19:46.780] (bell chime)
+- [19:51.380] Dora Marie Menchaca.
+- [19:54.220] (bell chime)
+- [19:59.310] Patricia E. Mitley.
+- [20:01.920] (bell chime)
+- [20:06.920] Major Ronald D.
+- [20:09.280] Milam, United States Army.
+- [20:12.260] (bell chime)
+- [20:16.930] Gerard P. Moran Jr.
+- [20:20.080] (bell chime)
+- [20:25.400] Odessa V. Morris.
+- [20:28.140] (bell chime)
+- [20:32.690] Petty Officer, First Class, Brian A.
+- [20:35.890] Moss, United States Navy.
+- [20:38.800] (bell chime)
+- [20:44.160] Teddington H. Moye.
+- [20:46.800] (bell chime)
+- [20:51.400] Lieutenant Commander Patrick J. Murphy,
+- [20:54.890] United States Navy Reserve.
+- [20:57.400] (bell chime)
+- [21:02.280] Christopher C. Newton.
+- [21:04.770] (bell chime)
+- [21:09.840] Conot Nguyen.
+- [21:11.460] (bell chime)
+- [21:16.240] Petty Officer, second class, Michael A.
+- [21:19.270] Nowith, United States Navy.
+- [21:21.890] (bell chime)
+- [21:26.310] Barbara K. Olson.
+- [21:28.950] (bell chime)
+- [21:34.070] Ruben S. Ornado.
+- [21:36.590] (bell chime)
+- [21:41.410] Diana B. Pedro.
+- [21:44.120] (bell chime)
+- [21:48.950] Lieutenant Jonas M. Panick, United States Navy Reserve.
+- [21:54.150] (bell chime)
+- [21:59.340] Major Clifford L. Patterson, Jr.,
+- [22:02.790] United States Army.
+- [22:04.960] (bell chime)
+- [22:10.020] Roberts Penninger.
+- [22:11.980] (bell chime)
+- [22:16.790] Roberts R. Ploeger III.
+- [22:19.670] (bell chime)
+- [22:22.660] And his wife, Zandra F. Ploeger.
+- [22:27.460] (bell chime)
+- [22:33.650] Darren H. Poncell, United States Navy Reserve.
+- [22:38.560] (bell chime)
+- [22:44.640] Scott Powell.
+- [22:47.320] (bell chime)
+- [22:53.870] Captain Jack D. Punches, United States Navy, retired.
+- [22:59.940] (bell chime)
+- [23:06.100] Petty Officer, First Class, Joseph J.
+- [23:09.450] Peissier, Jr., United States Navy.
+- [23:13.040] (bell chime)
+- [23:18.570] Lisa J. Rains.
+- [23:21.100] (bell chime)
+- [23:26.460] Deborah A. Ramser.
+- [23:29.940] (bell chime)
+- [23:35.970] Rhonda Sue Rasmussen.
+- [23:38.990] (bell chime)
+- [23:43.940] Petty Officer, First Class, Marsha D.
+- [23:47.450] Ratchford, United States Navy.
+- [23:50.100] (bell chime)
+- [23:56.050] Martha M. Reske.
+- [23:58.640] (bell chime)
+- [24:04.320] Todd H. Rubin.
+- [24:06.940] (bell chime)
+- [24:12.660] Cecilia E. Lawson-Richard.
+- [24:15.820] (bell chime)
+- [24:20.340] Edward V. Roanhorse.
+- [24:23.220] (bell chime)
+- [24:28.510] Judy Rowland.
+- [24:30.240] (bell chime)
+- [24:35.270] Sergeant Major Robert E.
+- [24:37.760] Russell, United States Army, retired.
+- [24:41.170] (bell chime)
+- [24:46.640] Chief Warrant Officer William R. Ruth,
+- [24:50.440] United States Army Reserve.
+- [24:52.820] (bell chime)
+- [24:57.770] Charles E. Saban Sr.
+- [25:01.110] (bell chime)
+- [25:07.190] Marjorie C. Salamoni.
+- [25:09.950] (bell chime)
+- [25:15.610] John P. Sammartino.
+- [25:18.860] (bell chime)
+- [25:24.630] Colonel David M. Scales, United States Army.
+- [25:29.730] (bell chime)
+- [25:33.880] Commander Robert A. Schlegel, United States Navy.
+- [25:39.210] (bell chime)
+- [25:43.420] Janice M. Scott.
+- [25:45.930] (bell chime)
+- [25:50.360] Lieutenant Colonel Michael L. Selves,
+- [25:54.080] United States Army retired.
+- [25:56.690] (bell chime)
+- [26:01.100] Marion H. Serva Commander Dan F. Schnauer, United States Navy.
+- [26:14.690] (bell chime)
+- [26:19.810] Antoinette M. Sherman.
+- [26:22.780] (bell chime)
+- [26:28.790] Diane M. Simmons and her husband, George W. Simmons.
+- [26:38.380] (bell chime)
+- [26:43.950] Donald D. Simmons.
+- [26:46.840] (bell chime)
+- [26:52.690] Cheryl D. Syncock Chief Greg H. Smallwood, United States Navy.
+- [27:06.760] (bell chime)
+- [27:12.870] Lieutenant Colonel Gary F. Smith,
+- [27:16.200] United States Army retired.
+- [27:19.380] (bell chime)
+- [27:25.550] Mary Rae Sopper.
+- [27:28.250] (bell chime)
+- [27:34.310] Robert Spiesman Patricia J. Stats.
+- [27:45.210] (bell chime)
+- [27:51.310] Edna L. Stevens.
+- [27:54.050] (bell chime)
+- [27:59.580] Norma Lang Sturley.
+- [28:02.640] (bell chime)
+- [28:08.230] Sergeant Major Larry L. Strickland, United States Army.
+- [28:13.520] (bell chime)
+- [28:19.470] Hilda E. Taylor.
+- [28:22.200] (bell chime)
+- [28:28.150] Lieutenant Colonel Kip P. Taylor, United States Army.
+- [28:33.310] (bell chime)
+- [28:39.140] Leonard E. Taylor.
+- [28:41.750] (bell chime)
+- [28:47.520] Sandra C. Taylor.
+- [28:50.230] (bell chime)
+- [28:54.750] Sandra D. Teague.
+- [28:57.500] (bell chime)
+- [29:02.130] Lieutenant Carl W.
+- [29:03.450] (bell chime)
+- [29:04.650] Tepe, United States Army, retired.
+- [29:08.000] (bell chime)
+- [29:13.410] Sergeant Tamara C. Thurman, United States Army.
+- [29:18.240] (bell chime)
+- [29:23.490] Lieutenant Commander Otis V. Talbert, United States Navy.
+- [29:28.750] (bell chime)
+- [29:33.880] Staff Sergeant Willie Q. Troy, United States Army retired.
+- [29:39.350] (bell chime)
+- [29:44.350] Lieutenant Commander Ronald J.
+- [29:47.030] Valk, United States Navy Reserve.
+- [29:50.060] (bell chime)
+- [29:54.030] Lieutenant Colonel Karen J. Wagner, United States Army.
+- [29:59.210] (bell chime)
+- [30:04.300] Meta L Fuller Waller Specialist Chin Sun Pak
+- [30:14.390] Wells, United States Army.
+- [30:17.150] (bell chime)
+- [30:22.270] Staff Sergeant Maudelyn A. White, United States Army.
+- [30:27.340] (bell chime)
+- [30:31.040] Sandra L. White.
+- [30:33.740] (bell chime)
+- [30:37.780] Ernest M. Wilshire.
+- [30:40.440] (bell chime)
+- [30:44.760] Lieutenant Commander David L. Williams, United States Navy.
+- [30:50.060] (bell chime)
+- [30:54.330] Major Dwayne Williams, United States Army.
+- [30:58.250] (bell chime)
+- [31:03.680] Chief Marvin Roger Woods, United States Navy, retired.
+- [31:09.170] (bell chime)
+- [31:14.120] Captain John D. Yamniki, senior, United States Navy retired.
+- [31:21.990] (bell chime)
+- [31:26.940] Vicki Yancy.
+- [31:28.660] (bell chime)
+- [31:33.070] Petty Officer Second Class, Kevin W. Yomcom,
+- [31:38.120] United States Navy.
+- [31:40.040] (bell chime)
+- [31:43.630] Chief Donald M. Young, United States Navy.
+- [31:47.970] (bell chime)
+- [31:52.480] Edmund W. Young, Jr.
+- [31:56.500] (bell chime)
+- [32:00.170] Lisa L. Young.
+- [32:02.570] (bell chime)
+- [32:06.820] Shu-Wen Young.
+- [32:08.660] (bell chime)
+- [32:11.960] And her husband, Yu Guangzhen.
+- [32:15.310] (bell chime)
+- [32:25.310] ♪ (Chorus singing "Amazing Grace") ♪
+- [35:25.010] Male Speaker: Ladies and gentlemen,
+- [35:26.430] please stand for the invocation
+- [35:28.550] provided by the Chief of Navy Chaplains,
+- [35:31.200] Rear Admiral Gregory Todd.
+- [35:46.660] Rear Admiral Todd: (inaudible)
+- [35:50.020] that we may be comforted as we reflect
+- [35:53.120] on the events of that fateful day
+- [35:56.280] and strengthen for the tasks ahead.
+- [35:59.750] While our memory of the violence of September 11th
+- [36:02.340] is 24 years old, for many of us,
+- [36:05.480] the pain still lingers as we consider the heroic sacrifices
+- [36:09.710] made by many that day
+- [36:11.710] and by many more in the years of war that resulted.
+- [36:15.560] For those who grieve,
+- [36:16.860] we pray in the sentiment of Abraham Lincoln,
+- [36:19.900] that you, O Lord,
+- [36:21.100] "would assuage the anguish of their bereavement
+- [36:24.210] and leave only the cherished memory of the loved
+- [36:28.390] and lost and the solemn pride for those who have laid
+- [36:32.150] so costly a sacrifice upon the altar of freedom."
+- [36:37.820] For those of our day who have taken up the cause
+- [36:40.000] to secure our homeland,
+- [36:41.740] to wield the sword in righteousness
+- [36:43.660] to protect our neighbors, grant prudence,
+- [36:47.050] to execute justice with honor,
+- [36:49.470] always mindful we are under your divine gaze.
+- [36:54.410] The blessing of wisdom and insight for our leaders,
+- [36:57.720] that they may be guided to do your will,
+- [37:00.250] grant humility throughout our land,
+- [37:02.410] acknowledging your goodness to us.
+- [37:06.020] And finally, we offer supplications for those
+- [37:09.960] who currently are deployed under way or on duty for our nation.
+- [37:14.010] Surround them with the protection of the angels
+- [37:17.500] and a joyful reunion with faithful loved ones.
+- [37:21.100] In your most holy name, amen.
+- [37:25.580] Please join me for a moment of silence
+- [37:29.170] for that minute of impact 24 years ago today.
+- [38:23.170] ♪ (Taps) ♪
+- [39:37.060] Male Speaker: Ladies and gentlemen,
+- [39:38.340] please be seated.
+- [39:45.790] Ladies and gentlemen, General Dan Caine,
+- [39:48.670] Chairman of the Joint Chiefs of Staff.
+- [39:54.020] General Caine: Good morning, Mr. President,
+- [39:57.520] Madam First Lady, Secretary Hegseth,
+- [40:01.390] members of the President's Cabinet,
+- [40:04.190] and leaders from across government,
+- [40:07.280] the military, distinguished visitors,
+- [40:10.000] veterans, first responders, fellow Americans,
+- [40:14.710] and most importantly,
+- [40:16.910] the families of our fallen from that day.
+- [40:20.620] Thank you for being here to gather in remembrance,
+- [40:24.090] to grieve our nation's loss,
+- [40:26.770] and draw strength from the heroism Americans
+- [40:30.900] demonstrated that day. September 11th reminds us
+- [40:36.480] that even in the darkest of times,
+- [40:39.680] American strength endures.
+- [40:42.580] And if attacked, we will immediately fight back.
+- [40:47.950] Twenty-four years ago,
+- [40:50.330] on a beautiful morning here in Washington,
+- [40:54.110] American Airlines Flight 77 took off at 8.20
+- [40:59.060] a.m. from Dulles International Airport
+- [41:02.450] with 59 passengers and crew bound for Los Angeles.
+- [41:07.310] Here at the Pentagon, soldiers, sailors,
+- [41:11.470] airmen, Marines, Coast Guard men,
+- [41:14.370] and civilians began what they thought
+- [41:17.730] would be an ordinary day of service.
+- [41:20.500] They kissed their loved ones goodbye,
+- [41:22.480] dropped kids off at daycare,
+- [41:25.020] and commuted in here for another day of duty,
+- [41:28.700] having no idea what they were about to face.
+- [41:33.540] 200 miles north of here,
+- [41:35.520] Al-Qaeda terrorists took control of two aircraft,
+- [41:39.200] American Airlines Flight 11 and United Airlines Flight 175.
+- [41:45.970] At 8.46 a.m. The first plane
+- [41:49.440] was flown deliberately into the North Tower.
+- [41:52.920] And minutes later, the second airplane
+- [41:56.210] was flown into the second tower.
+- [41:59.870] We all knew at that very moment that our world had changed,
+- [42:05.920] that America was at war.
+- [42:08.880] And then at 9 37 a.m., just moments ago,
+- [42:12.590] 24 years ago, American Airlines Flight 77
+- [42:17.890] ripped through the west wall here at the Pentagon,
+- [42:21.270] where our flag outside the building now hangs.
+- [42:24.760] And this ground that we stand upon became hollowed.
+- [42:29.230] 2,977 were lost in the attacks that morning.
+- [42:36.510] The conventional wisdom is that our nation
+- [42:40.410] went to war weeks later in Afghanistan.
+- [42:44.150] The truth is, we went to war immediately.
+- [42:48.130] And America started to fight back
+- [42:51.130] before the attack was even over. In New York City, firefighters,
+- [42:57.280] police officers, paramedics, first responders,
+- [43:01.270] and everyday citizens charged into towers,
+- [43:06.250] climbing hundreds and hundreds of flights of stairs
+- [43:09.570] to rescue their fellow Americans.
+- [43:12.160] And right here in this courtyard at the Pentagon,
+- [43:16.390] as flames filled the corridors and smoke followed,
+- [43:21.230] service members and civilians
+- [43:24.040] went into that flame to save their fellow teammates.
+- [43:28.880] They covered their faces with T-shirts rolled in water
+- [43:32.520] to shield their skin and pushed through the fire and rubble.
+- [43:38.210] They carried the wounded out and they went back in again
+- [43:43.990] and again and again and again
+- [43:48.690] until others had to stop them from going back.
+- [43:52.910] And even as this building burned,
+- [43:55.590] the Pentagon never shut down. Survivors organized,
+- [44:00.690] and thousands went to work to defend our nation.
+- [44:05.520] And there were 40 first responders
+- [44:10.090] on United Airlines Flight 93.
+- [44:14.450] 40 heroes who, unlike us who wear the cloth of our nation
+- [44:19.830] never took an oath to protect and defend our nation.
+- [44:24.190] They just got on an airplane.
+- [44:27.170] And knowing full well what was happening,
+- [44:30.930] they found the courage and commitment
+- [44:33.970] to run forward in that airplane,
+- [44:36.990] sacrificing themselves over the fields of Pennsylvania
+- [44:41.330] to save Americans
+- [44:42.550] that they would never meet and never know.
+- [44:45.850] And I, for one, think of them every day
+- [44:49.000] and the gift of courage
+- [44:50.630] that they gave my squadron mates and I on that day.
+- [44:55.100] So as we come here together, let us reflect
+- [44:59.090] and let us never forget. Let us never forgot the families
+- [45:03.520] who've shown us what true courage looks like
+- [45:06.650] as they continue to persevere through the years after.
+- [45:11.660] And let us all be inspired
+- [45:14.520] by the determination of those brave heroes
+- [45:17.930] who showed us that day what America is all about.
+- [45:23.000] And let anybody who ever considers attacking
+- [45:27.150] the United States remember those examples as well
+- [45:31.490] and the great American warrior spirit that was shown that day.
+- [45:37.750] Thank you very much. And now it's my distinct honor
+- [45:42.380] to introduce our nation's Secretary of War,
+- [45:46.180] may we never forget our fallen.
+- [45:48.690] May we never forgot our deployed.
+- [45:50.980] Ladies and gentlemen, the Secretary of War,
+- [45:52.800] the Honorable Pete Hegseth.
+- [45:55.820] (applause)
+- [46:04.070] Secretary Hegseth: Twenty-four years ago,
+- [46:06.510] Islamist terrorists massacred
+- [46:08.270] nearly 3,000 innocent American lives in New York City,
+- [46:12.940] Shanksville, Pennsylvania, and right here at the Pentagon.
+- [46:17.090] The building you see behind me, the War Department,
+- [46:20.400] was targeted in an act of savage evil.
+- [46:24.020] And today, on these hallowed grounds,
+- [46:25.480] we gather to honor those victims and heroes
+- [46:29.850] with the resolve to never forget.
+- [46:32.520] We gather to pay tribute to the first responders
+- [46:34.970] who charged into the flames and up the stairs,
+- [46:38.260] to those trapped on planes fighting their final fight,
+- [46:42.770] and to the families whose lives were forever altered
+- [46:46.070] by that fateful day.
+- [46:49.170] Like everyone in this audience, I remember exactly where I was
+- [46:53.940] when that first tower was struck.
+- [46:56.910] A college junior with a fresh set of army fatigues
+- [47:00.670] in my dorm room closet having just joined Army ROTC.
+- [47:06.870] Like too many Americans,
+- [47:08.200] I was naive to the threats brewing abroad
+- [47:10.620] and infiltrating our shores. But from that day forward,
+- [47:15.060] I felt an unshakable call to action,
+- [47:18.340] a duty to defend our sacred homeland with everything I had.
+- [47:24.340] Like all of you, 9/11 was the ultimate validator to serve.
+- [47:31.090] But I was not alone.
+- [47:32.950] An entire generation of warriors stepped forward,
+- [47:35.310] willing to pay the ultimate price
+- [47:38.040] to exact retribution and secure our country.
+- [47:42.380] Forged in the crucibles of Afghanistan and Iraq,
+- [47:45.400] we stood watch in distant lands on dangerous missions,
+- [47:49.500] often in retrospect, nebulous missions,
+- [47:54.080] all to secure our people, and so we could live in peace.
+- [47:59.560] War is an enduring aspect of the human condition,
+- [48:02.320] a tool that when wielded wisely, ruthlessly,
+- [48:06.600] punishes enemy's intent on terrorizing
+- [48:09.790] or subjugating our nation.
+- [48:13.390] War must not become a mere tool for global social work,
+- [48:18.020] eager to risk American blood
+- [48:19.570] and treasure for utopian fever dreams.
+- [48:23.640] We should hit hard, wreak vengeance, and return home.
+- [48:29.480] For two decades, our warriors fought with valor every day,
+- [48:34.600] far from home, even though sometimes their leaders
+- [48:39.490] gave them nation-building missions and half-baked exits.
+- [48:43.720] Thankfully, today, we have an American military
+- [48:46.480] that President Trump has now rebuilt twice.
+- [48:51.200] Yet, despite the weight of history,
+- [48:53.980] the Department of War will always honor
+- [48:56.450] the service of our warriors and all they left behind,
+- [49:00.180] never straying from the warrior ethos they,
+- [49:03.730] and those on 9/11, embodied and deserve.
+- [49:08.350] We best honor their memory and the memory of 9/11
+- [49:11.080] by learning the correct lessons of that day
+- [49:14.170] and the decades of courage that followed.
+- [49:17.600] Full hearts, clear eyes.
+- [49:21.680] To every member of our war department past and present,
+- [49:25.160] you are the best, the real elite,
+- [49:28.440] the real 1 percent of this nation.
+- [49:33.000] Standing here today, we honor those 184 rings of the bell,
+- [49:38.920] souls lost at the Pentagon and on Flight 77.
+- [49:42.770] Even as first responders were grossly outnumbered
+- [49:45.600] by the wounded, many ran toward the chaos,
+- [49:49.610] cared for the injured, and comforted the dying.
+- [49:53.050] It was Bedlam.
+- [49:55.070] But in that moment, American heroism was laid bare.
+- [49:59.700] That purpose, that spirit lives on in uniform today.
+- [50:04.360] Despite such tragedies, our republic endured.
+- [50:09.510] It endured that day. It endured on Flight 93,
+- [50:14.180] charging that cockpit, and at the Pentagon.
+- [50:17.140] It endured over those Islamists.
+- [50:20.020] It endured over two decades of war,
+- [50:22.700] and it endured stronger, wiser, and tougher,
+- [50:27.110] forged by the blood and courage of patriots.
+- [50:31.430] Our job now is to ensure that future generations
+- [50:35.500] inherit a strong and vigilant America.
+- [50:39.110] 9/11 is vivid for me and all of you,
+- [50:41.380] but it will soon live only in the history books
+- [50:43.480] for our youngest. We must teach our children
+- [50:47.570] that the price of freedom we love is eternal vigilance.
+- [50:52.420] Instill in them the importance
+- [50:54.160] of upholding America's Constitution,
+- [50:56.750] holding tight to our freedom and our faith,
+- [51:00.850] and relentlessly pursuing our enemies.
+- [51:04.880] Prepare them to defend this nation by the ballot,
+- [51:07.760] the wallet, and when necessary the of our country
+- [51:11.340] because the world remains a viper's nest.
+- [51:15.380] It requires us.
+- [51:18.090] As I speak, hostile elements plot to curb our power
+- [51:20.950] and slaughter our people in our homeland,
+- [51:23.010] in our hemisphere, and halfway around the globe.
+- [51:26.940] Not everyone needs to wear a uniform, but some of us do.
+- [51:31.480] That is our profession and our promise to this nation.
+- [51:36.970] In closing, a reading from Scripture, Romans,
+- [51:40.210] chapter 5, verses 3 through 4. We rejoice. In our sufferings,
+- [51:46.010] knowing that suffering produces endurance,
+- [51:49.840] endurance produces character, and character produces hope.
+- [51:56.620] On this day, 24 years ago, we suffered.
+- [52:00.990] In the years since, we have endured.
+- [52:03.850] Our service and sacrifice have forged our character,
+- [52:06.800] and today we stand in hope for the future of our great nation.
+- [52:11.980] The young soldiers who take the oath give me hope.
+- [52:17.630] The young cops who wear the badge give me hope.
+- [52:22.160] The young firefighters who answer the call give me hope.
+- [52:27.450] The young agents who patrol our border give me hope.
+- [52:33.070] The life example and even death of Christ follower
+- [52:38.030] and American patriot Charlie Kirk give me hope.
+- [52:45.020] Sheer courage, no matter the arena.
+- [52:49.510] Charlie, we love you.
+- [52:51.800] We know that you have heard the Lord's words.
+- [52:55.030] Well done, good and faithful servant.
+- [52:59.580] Full heart, clear eyes.
+- [53:04.540] Like those on 9/11, he will never be forgotten.
+- [53:10.650] So I thank God for all of you and all of our fighters
+- [53:14.880] from that day to today and beyond.
+- [53:18.900] May God bless our warriors as they ruthlessly seek
+- [53:22.710] our enemies on behalf of the fellow citizens they love.
+- [53:26.160] We owe you, and all of those who witnessed 9/11, nothing less.
+- [53:34.170] It is now my great honor to introduce to you
+- [53:38.720] our Commander-in-Chief, President Donald J. Trump.
+- [53:44.810] (applause)
+- [53:58.330] The President: Thank you very much, everybody.
+- [54:00.030] Thank you, very much.
+- [54:02.420] Before we begin,
+- [54:04.180] let me express the horror and grief
+- [54:08.470] so many Americans at the heinous assassination of Charlie Kirk,
+- [54:15.180] I felt.
+- [54:16.720] Charlie was a giant of his generation,
+- [54:19.060] a champion of liberty and an inspiration to millions
+- [54:22.630] and millions of people.
+- [54:24.670] Our prayers are with his wonderful wife,
+- [54:28.030] Erica, and his beautiful children.
+- [54:31.020] Fantastic people they are.
+- [54:34.650] We miss him greatly, yet I have no doubt
+- [54:37.220] that Charlie's voice and the courage
+- [54:39.200] he put into the hearts of countless people,
+- [54:43.020] especially young people, will live on.
+- [54:47.200] I'm pleased to announce that I will soon be awarding
+- [54:49.760] Charlie Kirk posthumously the Presidential Medal of Freedom.
+- [54:55.790] The date of the ceremony will be announced,
+- [54:57.830] and I can only guarantee you one thing,
+- [54:59.670] that we will have a very big crowd.
+- [55:02.240] Very, very big. Thank you, my fellow Americans.
+- [55:07.970] Eighty-four years ago this morning,
+- [55:11.920] the banks of the Potomac were filled
+- [55:13.780] with the clamor of construction workers
+- [55:16.260] who broke ground on the building
+- [55:18.440] now known as the Pentagon on September 11, 1941.
+- [55:26.000] At the time, it was the biggest building ever built.
+- [55:30.910] Moment forward, this structure stood as a monument
+- [55:34.060] to American strength, power, and cherished American freedom.
+- [55:39.920] Exactly six decades later, on September 11th,
+- [55:43.250] 2001, those same walls built with the sweat
+- [55:47.610] and muscle of our parents and grandparents
+- [55:52.590] were scarred by flame and shaken by terror
+- [55:56.000] as our country came face-to-face with pure evil.
+- [56:00.420] On that fateful day, savage monsters attacked
+- [56:04.000] the very symbols of our civilization.
+- [56:08.590] Yet, here in Virginia and in New York
+- [56:11.900] and in the skies over Pennsylvania,
+- [56:15.040] Americans did not hesitate. They stood on their feet.
+- [56:20.620] And they showed the world that we will never yield,
+- [56:23.460] we will ever bend, we will every give up,
+- [56:26.720] and our great American flag will never, ever fail.
+- [56:31.540] That terrible morning 24 years ago, time itself stood still.
+- [56:38.060] The laughter of school children fell silent.
+- [56:41.410] The rush of our traffic came to an absolute halt.
+- [56:47.400] And for 2,977 innocent souls and their families,
+- [56:52.890] the entire world came crashing down so suddenly.
+- [56:58.000] In the quarter of a century since those acts of mass murder,
+- [57:02.800] 9/11 family
+- [57:04.060] members have felt the weight of missed birthdays
+- [57:07.290] and empty bedrooms, journals left unfinished,
+- [57:10.640] and dreams left unfulfilled.
+- [57:13.940] To every member that still feels a void every day of your lives,
+- [57:17.680] the First Lady and I unite with you in sorrow.
+- [57:22.890] And today, as one nation, we renew our sacred vow
+- [57:28.640] that we will never forget, September 11th, 2001.
+- [57:34.040] Amid the horror of that morning,
+- [57:35.830] some used cell phones and office lines
+- [57:38.870] to whisper their final words to those who mattered most.
+- [57:44.150] They whispered, indeed. At 8.59 a.m. aboard
+- [57:48.390] United Flight 175, Brian Sweeney called his wife, Julie.
+- [57:53.410] He told her, do good, go have good times.
+- [57:57.380] I totally love you. I'll see you again.
+- [58:00.960] I'll meet you up there. Four minutes later,
+- [58:04.470] his plane hit the south tower of the World Trade Center.
+- [58:09.160] At 9, 12 a.m. aboard American Airlines
+- [58:11.850] Flight 77, Renee May called her mom.
+- [58:17.670] Just the day before,
+- [58:18.890] Renee had learned that she was seven weeks pregnant,
+- [58:22.840] but she never got the chance to share the news.
+- [58:26.960] She simply said, I love you, Mom.
+- [58:30.660] Twenty-five minutes later,
+- [58:32.000] Renee's plane struck the Pentagon.
+- [58:35.490] So violent, a strike it was. At 9.53 a.m. aboard
+- [58:42.280] United Flight 93, Elizabeth Wayneo called her stepmom.
+- [58:50.500] They're getting ready to break into the cockpit.
+- [58:54.270] What do I do?
+- [58:55.780] I love you so much. They're going to break in.
+- [58:59.140] Ten minutes later, Flight 93 ended
+- [59:01.540] in the hallowed field near Shanksville, Pennsylvania.
+- [59:06.610] At 10.25 a.m., Tom McGinnis
+- [59:08.850] was trapped on the 92nd floor of the North Tower,
+- [59:14.140] when he told his wonderful wife, Elena, on the phone,
+- [59:19.950] there are people jumping from the floors above us.
+- [59:23.340] If we get out of here, it'll be a total miracle.
+- [59:28.130] I love you, darling.
+- [59:29.850] Take care of Caitlin, beautiful daughter.
+- [59:33.600] Three minutes later, the tower fell.
+- [59:37.120] Out of the ash,
+- [59:38.500] we witnessed the awesome power of that incredible love.
+- [59:43.230] We've seen it rise again. Out of wreckage,
+- [59:46.580] we watched unbelievable courage suddenly take form.
+- [59:50.340] And out of the darkness, we saw the timeless truth
+- [59:53.970] of American character shine for the world to see.
+- [59:59.530] In America, we take blows, but we never buckle.
+- [01:00:03.820] We bleed, but do not bow.
+- [01:00:06.690] And we defy the fear, endure the flames,
+- [01:00:09.180] and emerge from the crucible of every hardship,
+- [01:00:12.180] stronger, prouder, and greater than ever before.
+- [01:00:18.720] Last year, we were a dead country.
+- [01:00:23.330] Now we have the hottest country anywhere in the world.
+- [01:00:29.450] In New York, there were heroes like Chuck
+- [01:00:33.030] Costello, a 46-year-old elevator mechanic
+- [01:00:36.850] and a member of the Knights of Columbus.
+- [01:00:39.810] He selflessly ran into the World Trade Center
+- [01:00:42.550] to free people trapped in the elevators.
+- [01:00:46.510] His body was not found until the following January,
+- [01:00:50.800] deep under the debris.
+- [01:00:53.100] While going through his belongings, Chuck's widow,
+- [01:00:55.830] Mary, a phenomenal woman,
+- [01:01:00.180] discovered a personal prayer written in his own words,
+- [01:01:04.060] Help me to light the way for those in the dark.
+- [01:01:07.780] And when I enter the darkness, let me not panic,
+- [01:01:10.940] but patiently wait to remember the light.
+- [01:01:14.850] Beautiful words. When the time came,
+- [01:01:17.950] Chuck ran boldly into the darkness of hell on Earth,
+- [01:01:21.980] and now he shines in the light of heaven above.
+- [01:01:26.800] We remember him this morning. That day,
+- [01:01:28.960] we learned that the American heroic spirit was all around us.
+- [01:01:35.830] We saw it in the police officers,
+- [01:01:38.280] the great firefighters,
+- [01:01:39.730] the service members here at the Pentagon.
+- [01:01:42.910] And in the hearts of every American
+- [01:01:44.630] who answered history's call.
+- [01:01:47.380] One such hero was Army Sergeant First Class Steve Workman,
+- [01:01:52.360] who was on the edge of the impact zone
+- [01:01:55.740] when this incredible Pentagon was hit.
+- [01:02:00.280] He was right there.
+- [01:02:02.030] After leading hundreds of people to escape routes,
+- [01:02:05.700] Steve turned back and plunged into the inferno itself.
+- [01:02:10.230] Pushing through the debris,
+- [01:02:11.530] he came upon a severely burned Navy
+- [01:02:13.820] Lieutenant, the only survivor from the Navy Command Center.
+- [01:02:18.390] Only one. The wounded Lieutenant looked into Steve's soul
+- [01:02:22.540] and said, don't let me die.
+- [01:02:25.600] Steve replied, I won't. I've got you. Just hang on.
+- [01:02:30.180] He wheeled the Lieutenant out of the wreckage
+- [01:02:32.220] on the back of a maintenance car before getting in the ambulance
+- [01:02:36.380] and taking him to Walter Reed Hospital.
+- [01:02:39.690] That man Steve saved, Lieutenant Kevin Schaefer,
+- [01:02:44.160] went on to join the elite team of CIA operatives
+- [01:02:47.380] who located Osama bin Laden.
+- [01:02:50.820] Steve, you're an American hero. We appreciate it.
+- [01:02:54.790] We appreciate what you've gone through.
+- [01:02:58.330] Please stand.
+- [01:03:04.440] Please stand. Where are you?
+- [01:03:10.130] Oh, good-looking man. You're a good-lookin' guy.
+- [01:03:13.110] You remember that day. You remember the day.
+- [01:03:18.040] Thank you very much, Steve. That was something.
+- [01:03:25.370] That was some thing. In the years that followed,
+- [01:03:28.800] America's warriors avenged are fallen
+- [01:03:31.850] and sent an unmistakable message to every enemy around the world.
+- [01:03:37.730] If you attack the United States of America,
+- [01:03:39.810] we will hunt you down, and we will find you.
+- [01:03:43.720] Go all over this sometimes magnificent Earth,
+- [01:03:49.360] we will crush you without mercy, and we triumph without question.
+- [01:03:55.110] That's why we named the former Department of Defense
+- [01:04:00.530] the Department of War. It will be different.
+- [01:04:05.860] We won the First World War. We won The Second World War,
+- [01:04:10.070] we won everything before that and in between,
+- [01:04:13.630] and then we decided to change the name.
+- [01:04:18.090] Well, now we have it back to where we all want it.
+- [01:04:20.310] Everybody wanted it. Everybody is so happy to have it back.
+- [01:04:25.980] You will fail, and America will win, win, win.
+- [01:04:31.330] The enemy will always fail. Twenty-four years have passed
+- [01:04:35.340] since that Tuesday morning in September,
+- [01:04:38.440] and an entire generation of Americans
+- [01:04:40.650] have come of age in a totally different world.
+- [01:04:44.790] While they cannot remember the agony of that day,
+- [01:04:47.150] they are carrying on the legacy of those who lost.
+- [01:04:52.080] Around 8.30 a.m. on the morning of the attacks,
+- [01:04:55.130] Army Lieutenant Colonel Kip Taylor
+- [01:04:57.150] sent an email to his friends and family
+- [01:04:59.270] describing the joys of fatherhood and his excitement
+- [01:05:02.790] for the upcoming birth of his unborn son.
+- [01:05:06.290] He wrote, after you have kids,
+- [01:05:08.650] there are days that you just get going
+- [01:05:11.610] and you say, hi honey, I'm home.
+- [01:05:15.230] What we do until that moment pales in comparison,
+- [01:05:18.830] but just that little statement, hi honey.
+- [01:05:22.590] So American, so beautiful.
+- [01:05:25.770] But that's really the point of it all, isn't it?
+- [01:05:28.970] An hour after he sent that email,
+- [01:05:30.910] Flight 77 flew into Colonel Taylor's Pentagon office
+- [01:05:34.940] and claimed the life of a very proud father and true patriot.
+- [01:05:39.620] Six weeks later, on October 25th, 2001,
+- [01:05:42.640] Colonel Taylor's son, Luke, was born.
+- [01:05:46.620] Luke then tragically lost his mom to cancer
+- [01:05:49.450] when he was just two years old,
+- [01:05:51.950] leaving him to be raised by his father's brother.
+- [01:05:55.730] As a young boy, Luke asked his uncle
+- [01:05:58.240] about the folded flag on the bookshelf,
+- [01:06:02.600] and when he learned about his dad's decades
+- [01:06:04.770] of devotion to the Army
+- [01:06:06.180] and the horrors of September 11th.
+- [01:06:10.150] That's when he learned.
+- [01:06:11.730] Luke carried that memory with him
+- [01:06:13.320] and joined the ROTC as a college freshman.
+- [01:06:16.860] He graduated just last year,
+- [01:06:18.610] and I'm pleased to say he is with us
+- [01:06:20.620] today as a second lieutenant and doing very well.
+- [01:06:23.350] He's rising quickly in the infantry,
+- [01:06:26.330] preparing for Army Ranger School.
+- [01:06:30.260] A spitting image of his dad, they say.
+- [01:06:32.860] Luke says that every time he puts on a uniform,
+- [01:06:35.430] he feels connected to his father and to our country.
+- [01:06:40.630] But it was a father he never knew.
+- [01:06:42.980] Luke, your parents are together in heaven,
+- [01:06:44.900] and they could not be prouder of the man that they have produced.
+- [01:06:51.140] They produced you. Those two great people produced you.
+- [01:06:54.660] Luke, please stand.
+- [01:06:57.310] (applause).
+- [01:07:04.530] Thank you, Luke.
+- [01:07:06.430] You look good, Luke, you look good.
+- [01:07:08.700] They're looking down on you. They're very proud.
+- [01:07:11.680] This morning, we recall the light of America's best
+- [01:07:15.070] and bravest and the love
+- [01:07:16.280] that they showed in their final moments.
+- [01:07:19.120] In their memory, we make a solemn pledge
+- [01:07:21.480] and a noble promise we will honor always our great heroes.
+- [01:07:27.180] And you are our heroes. There's a group of people
+- [01:07:31.700] that don't want to talk about our heroes,
+- [01:07:33.990] but we will always talk about our heroes
+- [01:07:36.760] and that's the way our country is
+- [01:07:38.370] and that is the way the people feel.
+- [01:07:40.850] We will defend the nation they served, the values they upheld,
+- [01:07:44.750] and the freedom for which they died.
+- [01:07:47.600] We will support our troops, we will protect our families,
+- [01:07:50.660] and we will preserve the American way of life
+- [01:07:53.830] for every future generation.
+- [01:07:57.190] We will build taller, grow stronger, fight harder,
+- [01:08:00.660] and soar higher.
+- [01:08:02.480] And together, we will go forward as one people with one heart,
+- [01:08:05.960] one faith, one flag,
+- [01:08:07.910] and one glorious destiny under Almighty God.
+- [01:08:12.660] May God bless the memories of those who died
+- [01:08:15.380] and the heroes who fought
+- [01:08:17.060] and the soldiers who still stand watch.
+- [01:08:20.230] May God Bless the United States of America.
+- [01:08:23.720] Thank you very much. Thank you. Thank you.
+- [01:08:27.440] (applause)
+- [01:08:38.420] Male Speaker: Ladies and gentlemen,
+- [01:08:39.760] please remain standing for the singing of God Bless America
+- [01:08:43.530] and remain standing for the benediction.
+- [01:08:51.910] ♪ (Chorus singing "God Bless America") ♪
+- [01:10:04.370] Rear Admiral Todd: Let us pray. Almighty and merciful God,
+- [01:10:08.860] gratefully we acknowledge your presence with us
+- [01:10:11.860] this morning and implore your presence day by day.
+- [01:10:16.740] Grant peace for those who grieve,
+- [01:10:19.560] wisdom for those to lead,
+- [01:10:22.060] and courage for those standing to watch for our
+- [01:10:26.800] We implore your blessing.
+- [01:10:28.750] Not asking you to conform to our will,
+- [01:10:31.660] but that you would align us with yours.
+- [01:10:38.110] Now may the Lord bless us and keep us.
+- [01:10:40.760] May the Lord make his face shine upon us and be gracious unto us.
+- [01:10:45.200] May the lord lift up his countenance upon us
+- [01:10:48.280] and give us peace.
+- [01:10:58.610] Male Speaker: Ladies and gentlemen,
+- [01:11:00.120] this concludes today's ceremony.
+- [01:11:02.210] Please remain seated until the departure of the official party.
+- [01:11:05.880] Thank you for joining us this morning.
+- [01:11:07.780] The Pentagon Memorial and the Pentagon Memorial Chapel
+- [01:11:11.920] are open until 12:00 p.m.

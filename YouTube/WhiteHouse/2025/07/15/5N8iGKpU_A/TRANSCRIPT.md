@@ -1,0 +1,1336 @@
+<!-- source: https://www.youtube.com/watch?v=5N8iGKpU_-A -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 5N8iGKpU_-A -->
+<!-- date_published: 2025-07-15T20:38:15+00:00 -->
+<!-- date_accessed: 2026-06-02T02:47:04.120675+00:00 -->
+
+# Transcript: President Trump Participates in the Inaugural Pennsylvania Energy and Innovation Event
+
+- [00:13.520] Announcer: Ladies and gentlemen, please welcome the 45th and 47th
+- [00:18.360] President of the United States President Donald J. Trump.
+- [00:23.600] ♪ (Hail to the Chief) ♪
+- [01:12.750] Senator McCormick: Well, good afternoon.
+- [01:14.380] Mr. President, welcome back to Pittsburgh.
+- [01:16.680] We're so glad to have you here.
+- [01:18.520] (applause)
+- [01:21.130] A year ago, almost to the day, I was with you at Butler,
+- [01:26.900] and I witnessed your strength and your courage on that day.
+- [01:30.310] And Dina and I are beyond grateful
+- [01:32.800] that you're here safely with us and we are honored and thrilled
+- [01:35.770] to have you back in town, the town
+- [01:38.170] we're proud to call home at such an historic time
+- [01:41.060] for our great Commonwealth and for our nation.
+- [01:43.730] In your first term, you famously promised you were elected
+- [01:47.520] to represent the citizens of Pittsburgh, not Paris.
+- [01:51.470] And today you're once again making good in that promise.
+- [01:54.380] And what's happening here today is absolutely historic.
+- [01:59.020] Your visit and your leadership has catalyzed
+- [02:03.000] $90 billion of investment in energy
+- [02:07.050] and AI revolution in Pennsylvania, $90 billion.
+- [02:18.640] Your presence and those commitments
+- [02:21.190] showcase Pennsylvania's story to the world.
+- [02:24.800] And today's summit begins to deliver on the promises
+- [02:27.820] that you and I made to the working families of Pennsylvania
+- [02:31.370] by creating many thousands of new jobs.
+- [02:36.040] Mr. President, you and I campaigned on an agenda
+- [02:38.880] to make America energy dominant,
+- [02:41.410] to secure our nation's AI leadership
+- [02:43.480] to create jobs and opportunity
+- [02:45.070] for working families in Pennsylvania
+- [02:47.490] and across America. And your policies are working.
+- [02:51.600] You're making our country energy dominant once again,
+- [02:53.880] you're supporting workers at every level.
+- [02:56.950] You've embraced foreign investment
+- [02:59.260] and created good paying jobs right here
+- [03:02.020] in the United States of America.
+- [03:03.680] And you have been an unwavering in your commitment
+- [03:07.110] to rebuilding America's industrial capacity
+- [03:10.110] and securing long-term AI leadership.
+- [03:13.990] Those policies are not only crucial
+- [03:15.500] to our economic well-being
+- [03:17.500] to the people here in Pennsylvania,
+- [03:19.360] but to our national security.
+- [03:22.110] And this agenda has galvanized private capital.
+- [03:25.510] It's unleashing a new wave of industrial development
+- [03:28.030] and job creation across America and in Pennsylvania.
+- [03:32.480] And I just want to say I'm so thankful to you,
+- [03:34.470] but also to your incredible team,
+- [03:37.200] Secretary Lutnick, Secretary Bessent,
+- [03:39.310] Secretary Burgum, Secretary Wright, David Sacks.
+- [03:42.850] We have had such incredible leadership
+- [03:44.990] and support from your team.
+- [03:48.060] Before we talk about those commitments here
+- [03:51.090] and what it means for Pennsylvania workers,
+- [03:53.020] I know you want to say a few words.
+- [03:55.020] And so I'd like to say, ladies and gentlemen,
+- [03:57.880] it's my honor to introduce the 45th
+- [04:01.810] and the 47th President of the United States of America,
+- [04:05.270] Donald J. Trump. Thank you. Thank you.
+- [04:09.200] The President: Thank you very much.
+- [04:15.450] Well, thank you very much.
+- [04:18.020] And it's a real honor to be here.
+- [04:19.920] And this is a place that warms my heart.
+- [04:24.290] We did very well in this state,
+- [04:25.710] as you know, three times actually.
+- [04:28.480] And it's been a tremendous experience.
+- [04:32.690] I went to school here, I went to college here
+- [04:35.650] and got to know it very well.
+- [04:37.180] And the people are the greatest people on earth.
+- [04:38.990] So it's a real honor to be here.
+- [04:41.400] And I have to say about David and Dina,
+- [04:44.790] they had the toughest race there was.
+- [04:47.210] I said, this is going to be a tough one.
+- [04:49.570] And every campaign stop that I made, we had lots of people,
+- [04:53.420] tens of thousands would be a small crowd.
+- [04:56.210] And I'd invite David and he'd get up
+- [04:57.980] and do a fantastic job and it all worked out.
+- [05:01.680] But he won a race that was really not doable.
+- [05:04.310] I think his opponent was here for a long time
+- [05:07.770] and his father was there for --
+- [05:09.420] It's about 50 years at least total.
+- [05:12.340] And those people (inaudible), but you beat them.
+- [05:15.380] So I just want to congratulate you.
+- [05:17.160] That's amazing.
+- [05:22.710] And he wouldn't have done it without Dina.
+- [05:24.700] That I can tell you. We know Dina, anybody that knows
+- [05:27.160] Dina knows exactly what I'm saying.
+- [05:29.660] And he mentioned Butler,
+- [05:31.240] but what nobody really talks too much about
+- [05:34.630] because they didn't see the order.
+- [05:35.840] But I actually looked down to the right
+- [05:39.410] before that thing happened and I said,
+- [05:43.250] "Oh, there's David McCormick, he's running for the Senate.
+- [05:48.050] David, come on up." And there was so many people,
+- [05:51.900] there was a little problem he had coming up because --
+- [05:54.260] I said, "Look, just do it later."
+- [05:56.580] And then about a minute later -- So if you would've come up,
+- [05:59.580] I don't know what the hell would've happened, right?
+- [06:03.140] It worked out better this way, right?
+- [06:04.620] Senator McCormick: Exactly.
+- [06:05.930] The President: I don't know if he would've been around,
+- [06:07.610] but other than let's take --
+- [06:09.970] I want to take full credit for that.
+- [06:11.650] I said, "No, don't bother. We'll do it later."
+- [06:13.420] So if I didn't say that, who knows?
+- [06:16.600] But really great job. Exactly one year ago this week,
+- [06:19.650] David was at that rally in Pennsylvania
+- [06:22.800] and 12 months later, look at what we have.
+- [06:25.750] We have a president, we have a --
+- [06:28.950] Really, I mean, if you think about it, we had a country
+- [06:32.530] and I just left the NATO leaders.
+- [06:36.090] I left the Middle East, the king of Saudi Arabia, Qatar,
+- [06:39.900] as you know, Emir, so great.
+- [06:42.570] And UAE, these are three great leaders.
+- [06:44.560] And then we just made a deal with NATO
+- [06:47.640] where they pay for everything
+- [06:49.030] and we give them the ammunition and the missiles
+- [06:53.100] and we give them whatever they want.
+- [06:54.450] We got to get that war stopped.
+- [06:55.720] It's so bad. But every leader said --
+- [06:58.850] No matter where, they all said the same thing to me,
+- [07:01.890] some of them separately.
+- [07:03.200] But it's same words just about --
+- [07:05.760] They said it's amazing.
+- [07:06.960] One year ago you had a dead country.
+- [07:09.280] We were dead. We didn't think you could ever come back.
+- [07:12.710] And now today you have the hottest country
+- [07:14.570] anywhere in the world. It's true. It's true.
+- [07:19.530] So we're back in Pittsburgh to announce
+- [07:23.970] the largest package of investments in the history
+- [07:26.910] of the Commonwealth of Pennsylvania.
+- [07:29.170] And it's not even close. I don't imagine it's too close.
+- [07:33.680] I don't think second is too close.
+- [07:36.040] That's a big statement this afternoon,
+- [07:37.730] 20 leading technology and energy companies
+- [07:40.300] are announcing more than $92 billion
+- [07:43.370] of investments in Pennsylvania.
+- [07:45.590] And if you want, we could probably get them up.
+- [07:47.320] Let's (inaudible).
+- [07:52.990] But this is a really triumphant day
+- [07:56.340] for the people of the Commonwealth
+- [07:58.010] and for the United States of America.
+- [08:00.620] We're doing things that nobody ever thought possible.
+- [08:03.980] As of about a month and a half ago.
+- [08:05.730] Well, we came back from the Middle East,
+- [08:07.250] we came back with $5.1 trillion of investments
+- [08:11.070] from the three countries that I mentioned.
+- [08:13.620] And they're great people,
+- [08:15.100] great leaders of those countries.
+- [08:17.340] But we came back with many,
+- [08:19.640] many planes that they are going to build through Boeing.
+- [08:24.510] They came back with a package of goods that nobody's seen.
+- [08:27.730] I don't think anybody's seen, $5.1 trillion.
+- [08:31.880] And we are now at about 16 -- Think of this, $16 trillion.
+- [08:38.570] And we're at a little bit less than six months,
+- [08:41.210] but really we're probably at three months
+- [08:42.840] because it took me a little time to get started, right?
+- [08:46.240] So in three and a half, four months,
+- [08:48.180] let's say we have about $16 trillion.
+- [08:52.160] There's never been anything like that in history.
+- [08:55.120] You can go for years and they didn't have numbers like that.
+- [08:59.010] And if you look at the last administration,
+- [09:02.000] you had negative numbers.
+- [09:03.520] You didn't have positive numbers.
+- [09:05.200] You're going in the wrong direction.
+- [09:07.250] But we have the hottest country
+- [09:08.490] and we're going to keep it that way.
+- [09:10.920] Today's commitments are ensuring
+- [09:12.730] that the future is going to be designed,
+- [09:15.150] built and made right here in Pennsylvania
+- [09:17.670] and right here in Pittsburgh.
+- [09:18.880] And I have to say right here in the United States of America.
+- [09:28.410] I want to thank --
+- [09:29.640] We have some great talent in the administration.
+- [09:32.400] I want to thank and say hello to a few people
+- [09:36.510] that are with us secretaries,
+- [09:39.530] Scott Besant, Howard Lutnick, Doug Burgum, Chris Wright.
+- [09:45.880] Chris Wright's very friendly with the people up here.
+- [09:48.810] Doug, I wanted Doug for energy.
+- [09:50.310] I didn't know about Chris and Doug said,
+- [09:52.490] "No, I have somebody that's much better than me."
+- [09:54.780] Right? Doug never said that in his life. You have to know.
+- [09:58.480] I said, this guy must be very good,
+- [10:00.160] but what a team they are.
+- [10:04.020] One controls the land and one controls the energy,
+- [10:06.680] but it was sort of intertwined. So we put them together, right?
+- [10:11.690] We never even discussed who's supposed to be
+- [10:13.620] the leader of the pack, but boy, you are --
+- [10:16.190] It was one instruction, drill, baby drill, right?
+- [10:19.610] And they are drilling. They are drilling.
+- [10:24.980] We have the EPA Administrator, probably --
+- [10:27.860] I must say this, Doug, I hate to say it.
+- [10:29.730] Chris and Doug and all of you guys,
+- [10:32.500] the most important man on the day today is Lee Zeldin.
+- [10:36.770] It's called Environmental Protection
+- [10:38.710] because he's going to be the one that gets you a permit.
+- [10:43.550] He's going to get you a permit for the largest electric
+- [10:46.670] producing plant in the world in about a week, would you say?
+- [10:50.710] Now if you go nuclear,
+- [10:53.440] I promised him I'd give him two weeks. Okay?
+- [10:56.350] Nuclear, we'll give him a little more time.
+- [10:58.380] But the biggest problem we've had is it takes years
+- [11:00.940] and years to get permits.
+- [11:02.220] And he really is, he's a phenomenal guy.
+- [11:05.650] And his history, he's a great lawyer,
+- [11:09.090] great congressman in a race
+- [11:11.520] that was according to most unwinnable,
+- [11:13.630] almost one for governor, just missed it by a few points.
+- [11:17.660] And he's really fantastic.
+- [11:19.240] But he's essentially the Environmental Protection Agency,
+- [11:24.040] the top man.
+- [11:25.370] And he's got things rocking and already they're building plants
+- [11:28.740] and they have their permits.
+- [11:30.210] These are permits that would've taken you
+- [11:31.780] literally 10 years to get,
+- [11:33.630] or I would really say 10 years before they voted against you,
+- [11:37.270] because that's really what was happening.
+- [11:38.920] And it's crazy all over the country.
+- [11:40.390] But we're freeing it up.
+- [11:42.640] And he really is going to be able to produce,
+- [11:45.480] and I'm looking at the numbers of China
+- [11:47.620] where they're producing a lot of electric.
+- [11:49.320] Well, they only have one man they have to worry about,
+- [11:51.660] our friend, right?
+- [11:52.930] President Xi, he can do that by himself.
+- [11:56.510] I don't know if I can, do I have the right to overrule you?
+- [11:58.440] Maybe, I don't know.
+- [11:59.650] Probably I do, but I won't have to.
+- [12:03.570] So he has one man and we have one man.
+- [12:05.270] The one man is sitting right there
+- [12:06.570] and we appreciate you're doing an amazing job.
+- [12:08.420] They're building plants already.
+- [12:12.370] They're building plants and they have already their permits
+- [12:16.670] and I have to take it. I have to brag just for a second
+- [12:19.300] because when I first heard about AI, it's not my thing.
+- [12:24.190] Although my uncle was at MIT, one of the great professors,
+- [12:27.800] 51 years, whatever, longer serving professor
+- [12:30.790] in the history of MIT,
+- [12:32.540] three degrees in nuclear, chemical and math.
+- [12:37.970] That's a smart man.
+- [12:39.750] Kuczynski was one of his students.
+- [12:41.350] Do you know who Kuczynski was?
+- [12:43.140] There's very little difference between a madman and a genius,
+- [12:46.640] but Kuczynski -- I said, "
+- [12:47.910] What kind of a student was he, Uncle John Dr. John Trump."
+- [12:51.200] He said, "What kind of a student?"
+- [12:53.220] And then he said, "Seriously, good."
+- [12:55.940] He said he'd correct --
+- [12:57.150] He'd go around correcting everybody,
+- [12:58.730] but it didn't work out too well for him.
+- [13:01.750] Didn't work out too well. But it's interesting in life.
+- [13:04.110] But I will say this, that we have the greatest brains.
+- [13:08.220] We have the greatest power,
+- [13:10.000] and we are going to have more electric.
+- [13:12.430] I said to some of the guys coming in,
+- [13:14.390] they wanted to hook up to the grid.
+- [13:16.640] I spoke to Mark and Jeff and a lot of people,
+- [13:20.670] and they said,
+- [13:22.020] "Well, we want to know about the electric
+- [13:23.830] because I was told We'll need.." From David.
+- [13:26.260] The first one, you're the first one that told me.
+- [13:27.940] That's why I hired him, because I said,
+- [13:29.390] he told me something I didn't know.
+- [13:31.220] He said, "You need double the electric
+- [13:33.080] of what we have right now,
+- [13:34.370] and maybe even more than that." Remember that?
+- [13:36.220] And I said, "What are you kidding?"
+- [13:38.150] And that's double the electric that we have.
+- [13:40.540] Take everything we have and double it.
+- [13:42.750] And actually the number, that was even low,
+- [13:44.770] you need more than that.
+- [13:46.500] And to do that, you'd have to hook up to an old grid,
+- [13:50.280] in many cases, broken and certainly a very much open
+- [13:54.770] into destruction from bombs and planes
+- [13:59.280] and from frankly storms. You see what happened,
+- [14:01.900] that horrible situation in Texas,
+- [14:04.900] and you'd be subject to that then it's fragile.
+- [14:08.750] But it is old and it can't have the capacity
+- [14:11.480] unless you totally rebuild it.
+- [14:12.700] That would take decades.
+- [14:15.330] And I said, "Well, why don't we do this?
+- [14:16.850] Why don't we, when you build your plant
+- [14:18.670] wherever you may build it,
+- [14:20.160] you build your own electric plant?"
+- [14:22.580] And nobody took it seriously. They sort of looked like,
+- [14:25.430] I can't really take that seriously
+- [14:27.510] because they didn't believe it was happening.
+- [14:29.550] So the smartest people, some of them on stage right now,
+- [14:32.150] were saying, huh. And then they'd say,
+- [14:34.680] "Well, how do we hook up to the grid,
+- [14:36.070] we want to hook up to?"
+- [14:37.290] They didn't believe what I was saying.
+- [14:39.230] And I said, "No, no, I'm really serious.
+- [14:41.020] I'm going to let you build rightly
+- [14:43.260] and let you build with your plant.
+- [14:44.790] You're going to build --
+- [14:46.030] We will make you like a public utility.
+- [14:48.510] You're going to build your own Con Edison in New York.
+- [14:50.940] You're going to build your own electric factory
+- [14:53.490] and you're going to make your own electricity."
+- [14:55.610] So this way you can have a great plant.
+- [14:57.300] And what you'll do is if you have excess,
+- [14:58.970] you can sell it back into the grid.
+- [15:00.530] You'll even make money from the electric business
+- [15:02.530] because these guys do know how to make money.
+- [15:04.660] They'll end up doing things that will be shocking.
+- [15:07.680] And you're going to make your own plant.
+- [15:09.300] So when I looked at the numbers before,
+- [15:11.470] I saw a board outside
+- [15:12.680] and it showed how much electricity China's making.
+- [15:16.080] Well, we just started,
+- [15:17.870] but we're going to actually end up doing more than them
+- [15:19.880] and it's going to be done privately.
+- [15:21.200] And you're going to own your own electric plants,
+- [15:23.690] and they'll be powered by maybe nuclear,
+- [15:25.740] maybe gas, maybe coal. We brought coal back in.
+- [15:29.570] They won't be powered by wind because it doesn't work.
+- [15:33.040] I hate to say it just doesn't work.
+- [15:34.860] It's rather intermittent.
+- [15:37.180] You don't want it, causes a lot of problems.
+- [15:39.280] But we have every form of fuel
+- [15:42.780] that you want to use for your plant.
+- [15:44.260] And you'll build a plant, you'll build your electric.
+- [15:46.740] And this way you have no excuses
+- [15:48.230] because I didn't want to be the one that said,
+- [15:49.790] "Listen, we're trying to build that grid in 10 years from now
+- [15:52.820] and you wouldn't be able to open."
+- [15:54.310] You're going to build it with your own plants.
+- [15:56.640] And so people heard that they couldn't believe it.
+- [15:59.830] And finally now they believe it
+- [16:01.170] because we have a couple that are already started
+- [16:03.340] and they're building their electric plants
+- [16:05.440] along with their separate plant.
+- [16:08.570] And in fact, some of them are building the electric plant
+- [16:11.250] inside of their main building. So it's really exciting to see.
+- [16:15.520] But I was very proud of that actually.
+- [16:18.590] White House AI czar David Sacks.
+- [16:21.340] David, thank you very much. Great job.
+- [16:26.520] David interviewed me on his podcast about --
+- [16:29.050] What's that now, two years ago or something in San Francisco.
+- [16:32.050] And I said, "This guy's very smart.
+- [16:35.540] If I pull this sucker off,
+- [16:37.290] I'm going to probably hire him in some form.
+- [16:39.260] I got to get him in."
+- [16:40.530] But you've been doing great. Thank you, David, very much.
+- [16:43.060] Director of the Office of Science and Technology Policy
+- [16:46.940] Michael Kratsios. Michael, thank you.
+- [16:50.470] Thank you, Michael. Where's Mike?
+- [16:51.740] Thank you, Michael. Good job. They tell me you're doing great.
+- [16:55.420] Thank you very much. As well as state
+- [16:57.760] Senate President pro temp, Kim Ward.
+- [17:01.780] Kim, thank you. Kim, good job. Kim's very happy right now.
+- [17:07.530] State Senate, majority leader, Joe Pittman.
+- [17:10.320] Joe, thank you.
+- [17:13.420] And state Senator Greg Rothman.
+- [17:15.530] Thank you very much, Greg. Thank you.
+- [17:19.800] I also want to recognize you're great congressmen.
+- [17:22.580] These are friends. These are warriors.
+- [17:24.090] They just passed the Great Big Beautiful --
+- [17:27.730] See, I had the word great, I like to say,
+- [17:29.620] because there really was really supposed to be great,
+- [17:32.210] big, beautiful, they call it the big, beautiful.
+- [17:34.980] But I had great, they took the word great out.
+- [17:37.380] I was on a show called
+- [17:38.670] Deface the Nation or something like that.
+- [17:40.710] Ladies and gentlemen, Deface the Nation.
+- [17:43.080] And I said, I want a Great Big Beautiful Bill.
+- [17:45.920] And they named it that. And it really is.
+- [17:48.040] It was supposed to be seven bills,
+- [17:49.610] could have been two or three,
+- [17:50.810] but it was supposed to be originally seven.
+- [17:53.780] I said, "Let's put them all together
+- [17:55.600] and if you put them all together,
+- [17:56.980] there's going to be something for everybody."
+- [17:58.590] And that's what happened.
+- [17:59.790] And we got it passed, and Republicans did it.
+- [18:02.190] We didn't get one Democrat vote. Think of it.
+- [18:04.760] The biggest tax cut in history
+- [18:06.630] and we didn't get a Democrat vote.
+- [18:08.520] And so many other things. No tax on tips,
+- [18:11.170] no tax on social security, no tax on overtime,
+- [18:14.850] but the biggest tax cut in the history of our country.
+- [18:18.090] You got that.
+- [18:19.290] Also, the biggest deduction. You have a 10-year period.
+- [18:22.080] Last time we had a one-year period,
+- [18:23.420] now you have a 10-year period.
+- [18:24.670] And that's what made the first one.
+- [18:26.480] We had the most successful economy
+- [18:28.750] in the history of our country during my first term,
+- [18:31.370] and we passed a bill.
+- [18:35.220] But that bill, honestly, as good as it was,
+- [18:37.380] was nothing compared to this one.
+- [18:39.260] And the biggest thing, and the biggest reason for the success
+- [18:42.760] was the deduction. And you're allowed to do it.
+- [18:45.490] And this time we're including structure.
+- [18:47.310] So you're able to deduct
+- [18:48.820] those big structures that you're building.
+- [18:51.030] So nobody thought that was even possible.
+- [18:53.560] But I want to introduce the people that did it.
+- [18:56.420] Dan Meuser is here. Where's Dan? Dan-
+- [18:59.900] Senator McCormick: (inaudible) in Washington --
+- [19:01.110] The President: Oh, they're in Washington
+- [19:02.330] working on our next bill. Good. They shouldn't be here.
+- [19:06.520] Now I don't have to mention their names,
+- [19:08.960] although they're watching on television, I guarantee.
+- [19:11.290] Oh, that's right. They're working on our next one,
+- [19:13.900] which is coming for a vote, I think on Friday.
+- [19:15.990] Wow. I'm impressed.
+- [19:17.900] But GT Thompson, Lloyd Smucker, John Joyce, Mike Kelly,
+- [19:22.730] Scott Perry, Rob Bresnahan, they're all terrific people.
+- [19:27.810] And Guy Reschenthaler, these are great people.
+- [19:31.180] The warriors, they fought with us.
+- [19:32.870] They voted with us. We only had two negative votes.
+- [19:35.130] I didn't invite those two guys,
+- [19:36.930] (inaudible). We had a guy named Rand Paul Jr.
+- [19:40.090] He's known as Rand Paul Jr. in the House.
+- [19:42.670] He always votes, no.
+- [19:44.540] And we had somebody else. They did him a big favor.
+- [19:47.080] And I said, " Well, he's not going to serve.
+- [19:49.480] I don't think so-and-so is going to vote.
+- [19:51.250] I won't mention his name."
+- [19:52.510] And I said, "No, he's going to vote
+- [19:54.040] because I did him a very big, big favor.
+- [19:56.140] Very personal favor. As big as you can get,
+- [19:59.890] having to do with death and life,
+- [20:02.320] but having to do, no, he's going to vote.
+- [20:04.470] Don't worry about it."
+- [20:05.910] "Okay, sir, if you tell me,
+- [20:07.180] but I don't think we're going to get his vote."
+- [20:08.840] "Don't worry about it," I said.
+- [20:10.290] "I know what I'm talking about. Don't worry about it."
+- [20:12.530] And sure as hell, he voted against this.
+- [20:16.710] And I said, another one down, another great move by Trump.
+- [20:19.990] Anyway, so much for favors.
+- [20:21.920] It's welcome to the world of politics, right, David?
+- [20:24.870] We know about that.
+- [20:26.520] But we're here today because we believe
+- [20:28.730] that America's destiny is to dominate every industry
+- [20:31.820] and be the first in every technology.
+- [20:34.780] And that includes being the world's number one superpower
+- [20:37.390] and artificial intelligence. And we are way ahead of China.
+- [20:40.790] I have to say, we're way ahead of China.
+- [20:43.040] And the plants are starting up. The construction's starting up.
+- [20:46.460] And did you notice that two days ago,
+- [20:49.320] they just announced that they had a budget surplus
+- [20:51.650] of 25 billion in this country, right, Howard?
+- [20:54.640] They never saw anything like that.
+- [20:56.080] They would say, what did that --
+- [20:57.280] That's been like decades, 25 billion.
+- [20:59.730] And that's peanuts compared to what it's --
+- [21:01.360] And it's good business practices.
+- [21:03.490] The tariffs are coming in by the hundreds of billions of dollars.
+- [21:06.120] And they haven't --
+- [21:07.340] They're really at the infant stage right now.
+- [21:09.290] It's only on cars and steel mostly.
+- [21:13.240] And the rest is starting to kick in.
+- [21:15.300] We just made a deal today, a big one with Indonesia,
+- [21:18.330] A great deal and --
+- [21:21.130] They've opened up Indonesia fully.
+- [21:23.080] Indonesia really has great copper,
+- [21:25.740] very, very powerful copper, but they have a lot of things
+- [21:28.060] and we have full access to Indonesia.
+- [21:31.850] We'll soon be announcing, probably.
+- [21:34.080] If we do, we do. If we don't, that's okay too.
+- [21:36.180] I don't mind because I'm very happy with the letters
+- [21:38.920] that we send out that you'll be paying X percent.
+- [21:41.230] I almost like it better, if you want to know the truth,
+- [21:44.000] but Scott and Howard, they like to go the old-fashioned way,
+- [21:47.670] "Let's work hard to make a deal."
+- [21:49.220] I don't know. There's something about,
+- [21:50.890] "Pay us 35 percent of everything and we're very happy."
+- [21:54.150] But I think India's going to open up
+- [21:56.250] and a lot of countries are going to open up.
+- [21:58.520] And some that don't,
+- [21:59.730] they'll just be paying a very substantial tariff,
+- [22:01.920] but peanuts compared to what they should be paying.
+- [22:04.540] So we have some amazing things.
+- [22:07.360] China and other countries are racing to catch up to America,
+- [22:11.570] having to do with AI, and we're not going to let them do it.
+- [22:15.030] We have the great chips, we have the great everything,
+- [22:18.280] and we're going to be fighting them in a very friendly fashion.
+- [22:21.720] I have a great relationship with President Xi
+- [22:24.660] and we smile at the back and forth, but we are leading.
+- [22:29.800] I heard somebody say before
+- [22:31.150] that we're going to try and catch China.
+- [22:33.020] We're not catching them, we're leading.
+- [22:35.110] And one of the advantages they have
+- [22:37.270] is they show the electric that they have it.
+- [22:39.460] They're opening up coal-fired plants
+- [22:41.470] all over the place and we're entitled
+- [22:44.240] and allowed now to do that too.
+- [22:45.540] We took coal, it was taken out of the chain.
+- [22:49.710] And coal is actually a very, very powerful --
+- [22:52.230] I say you're not allowed to call it coal,
+- [22:54.690] you have to call it clean, beautiful coal.
+- [22:56.880] You're not allowed, John, to call it just coal
+- [22:59.220] because people don't understand.
+- [23:00.590] We call it clean, beautiful coal.
+- [23:02.930] But China is, I think they're going to be very far behind.
+- [23:08.160] Mark my words. I think they're going to be very far
+- [23:10.170] because we have a lot of places going up right now
+- [23:13.080] and they're all going to be great
+- [23:14.480] and they actually feed off each other.
+- [23:17.040] But remaining the world's leader in AI will require
+- [23:19.980] an enormous increase in the energy production,
+- [23:22.910] and that's taking place and you're doing it yourself
+- [23:25.120] in a massive build-out of physical infrastructure
+- [23:28.390] and the tremendous technology skill that Pennsylvania has.
+- [23:32.240] I mean, you have tremendous skill in this state.
+- [23:34.890] Today, the Commonwealth is reclaiming
+- [23:37.420] its industrial heritage
+- [23:38.740] and taking its place at the forefront
+- [23:41.060] of the AI technological revolution.
+- [23:44.420] And as I said before,
+- [23:46.020] it's an expression I used all during the campaign
+- [23:50.210] and screamed it out, "We'll drill, baby drill,"
+- [23:53.020] And people went crazy.
+- [23:55.070] We had big crowds, as you probably heard,
+- [23:57.090] biggest ever, biggest in history.
+- [23:59.660] The investments being announced this afternoon include
+- [24:02.260] more than 56 billion dollars in new energy infrastructure
+- [24:05.830] and more than 36 billion dollars in new data center projects.
+- [24:10.190] And a lot more than that are going to be announced
+- [24:12.360] in the coming weeks, not even months.
+- [24:14.260] I think we could say weeks, right, Howard?
+- [24:17.370] And the campaign, I promised
+- [24:18.740] that I would save the Homer City power plant
+- [24:21.900] 50 miles east of here that Joe Biden's Green New Scam
+- [24:25.750] forced to shut down. It's a green new scam.
+- [24:27.910] Greatest scam in history. The greatest in history.
+- [24:31.370] Well, the AutoPen, I think, is a bigger scam,
+- [24:34.350] if you want to know the truth. Actually, I do believe that.
+- [24:37.800] Today we're pleased to report that a 15 billion dollar
+- [24:40.890] investment
+- [24:42.330] from Knighthead Capital Management.
+- [24:44.580] Who's here from Knighthead?
+- [24:46.480] Well, I'm very impressed with that.
+- [24:48.490] 15 billion. That's pretty good. That's a great location too.
+- [24:53.200] Wow, that's very impressive. Thank you very much.
+- [24:56.860] That's a big number, huh? It's a big number,
+- [24:58.960] and yet it's peanuts relative to what I would --
+- [25:02.150] That's a good job.
+- [25:03.780] But the Homer City site is being resurrected
+- [25:07.330] as the largest natural gas fired power plant
+- [25:09.900] ever to be built in North America.
+- [25:11.610] Is that right, huh? That's fantastic.
+- [25:17.550] As another example,
+- [25:19.090] Google will be investing billions and billions of dollars
+- [25:22.390] to revitalize two major hydropower facilities
+- [25:25.450] in Pennsylvania.
+- [25:26.820] Congratulations. Say hello to Sergey and Sundar.
+- [25:31.160] They've done a pretty good job at Google, I'll tell you.
+- [25:33.860] And they have their star right here, so congratulations.
+- [25:36.340] That's really fantastic.
+- [25:37.960] And under the last year of Biden,
+- [25:40.260] China added 11 times as much power generation capacity,
+- [25:45.550] as did the United States.
+- [25:47.710] That's under Biden, that's not under Trump.
+- [25:50.130] That's under Sleepy Joe. Under the Trump administration,
+- [25:53.540] America's getting back in the game
+- [25:55.090] and we're going to actually be doing more than they do,
+- [25:58.410] as I said.
+- [25:59.720] And on day one, I ended the green new scam.
+- [26:03.040] I also ended Joe Biden's war on clean,
+- [26:06.120] beautiful Pennsylvania coal. Totally ended.
+- [26:09.360] Coal has equal, if not greater, status.
+- [26:13.130] It's a very powerful thing, coal.
+- [26:17.670] China, it's sort of interesting. China makes windmills,
+- [26:20.440] but how many wind farms do you see in China?
+- [26:22.840] I haven't seen any lately. Sort of crazy.
+- [26:25.540] They build the windmills, sell them into our country,
+- [26:28.360] sell them all over the world,
+- [26:29.980] and they ruin their fields and ruin their valleys.
+- [26:32.930] And then you look at China, where's your wind farm?
+- [26:34.990] "Well, we have one. We're thinking about one."
+- [26:37.750] No, the whole thing is crazy.
+- [26:39.480] But they use coal and they're building right now
+- [26:41.670] about 52 power plants, all of coal.
+- [26:44.420] I signed historic executive orders
+- [26:46.340] to expedite construction of brand new nuclear power plants,
+- [26:50.340] which is very hot.
+- [26:52.020] We've issued an order, as you probably know,
+- [26:54.240] one month ago, making it very easy
+- [26:56.580] and very safe to build nuclear power in Westinghouse
+- [26:59.230] I know is represented here and there,
+- [27:01.710] become a whole brand new Westinghouse.
+- [27:03.850] Congratulations. It's a great thing you're doing.
+- [27:11.380] They were hurt by some very incompetent people.
+- [27:13.890] I watched what was going on there in the form of regulators.
+- [27:17.140] They were really doing a number. Our regulators are the opposite.
+- [27:20.250] We'll be very safe, but we're fast and safe
+- [27:23.130] and you're going to get a whole different group of people.
+- [27:25.990] But it's announcing plans to build 10 state-of-the-art
+- [27:28.840] nuclear reactors in the United States.
+- [27:31.590] That's great. Congratulations to Westinghouse.
+- [27:34.350] And to further accelerate investment
+- [27:36.730] in the industries of tomorrow, two weeks ago,
+- [27:39.430] we enacted the largest tax cuts in American history
+- [27:42.990] when I signed that one big beautiful bill into law.
+- [27:47.220] We're adding to it a little bit
+- [27:49.170] and we're refining it a little bit all to the positive
+- [27:52.470] and that's why the Congressmen --
+- [27:54.220] I'll pretend I'm really angry at them,
+- [27:55.810] but I would actually be angry at them
+- [27:57.540] if they showed up late, right? I'd be much more --
+- [28:00.680] If they're here, I would not be happy.
+- [28:02.840] The bill allows 100 percent expensing on all new equipment,
+- [28:06.040] something that's never happened before.
+- [28:08.280] Factories, research, and as I said before, even structure.
+- [28:12.880] To further protect Pennsylvania industry, two months ago
+- [28:16.040] I came here to announce my approval
+- [28:18.120] of a historic investment deal with Nippon
+- [28:20.950] Steel, Nippon Steel of Japan, to keep U.S
+- [28:24.100] Steel right here in Pittsburgh.
+- [28:30.250] And we have a great woman here, Salena Zito.
+- [28:32.040] She's the writer.
+- [28:33.310] She writes on the Rust Belt and the Midwest, really,
+- [28:37.610] but the Rust Belt, anything having to do with rust and belt.
+- [28:41.830] Where is Salena? Is she around there someplace?
+- [28:44.180] Because I'm doing an interview with her
+- [28:45.740] in a little while and I said,
+- [28:47.230] "Do me a favor, let me do the interview after this.
+- [28:50.100] This way we can be right on time." Where is Salena?
+- [28:52.090] Senator McCormick: Yeah, she's up there.
+- [28:53.440] The President: Oh, she's great.
+- [28:54.670] You can't be angry at me now, Salena,
+- [28:56.460] because I'll be with you.
+- [28:58.070] I said, "Salena, can we make it after?
+- [29:00.190] Otherwise we're going to keep a lot of money waiting."
+- [29:02.640] These people have big money. When I saw the people here,
+- [29:05.060] I said, "Salena, I'm sorry I have to delay this."
+- [29:08.470] And also Ms. McAdams. Where is Ms. McAdams?
+- [29:12.040] We're going to do one with her too.
+- [29:14.080] And she's great, with Fox, and she's been fantastic.
+- [29:17.050] Stand up, stand up.
+- [29:18.530] Young and smart and vibrant. You've done a great job.
+- [29:23.840] So I'll see you in a couple of minutes, Sarah.
+- [29:26.350] That's great. We can't keep this kind of money waiting.
+- [29:30.280] These are truly the biggest investors in the world,
+- [29:33.430] including my friend John on my left.
+- [29:35.920] But these are the biggest investors in the world.
+- [29:37.940] I'm sorry, McAdams, and I'm sorry, Salena.
+- [29:40.670] That's the way it works. It's very impressive.
+- [29:43.580] But Nippon Steel, and we got it
+- [29:46.490] and we have all sorts of protections
+- [29:49.920] because of the fact that U.S Steel was --
+- [29:52.750] You people, years ago, 80 years ago
+- [29:55.920] is the biggest company in the world,
+- [29:57.310] most powerful company in the world,
+- [29:59.460] and we were very strong. And Nippon's coming in,
+- [30:01.580] they're going to be investing $17 billion.
+- [30:04.300] They're going to build new plants
+- [30:05.780] all over the country using U.S steel.
+- [30:07.600] And we have the absolute control
+- [30:09.950] because we don't want to lose control of that one name,
+- [30:12.520] that one name is very important to the history of this country,
+- [30:16.450] and I think Nippon is going to do a fantastic job.
+- [30:19.540] And in some cases they could take it back to their country.
+- [30:22.330] I said to people, because a lot of people said,
+- [30:24.170] "Well, what do you think of Japanese companies coming in?"
+- [30:27.510] I said, "Well, when they spend a billion dollars
+- [30:30.040] in a steel plant,
+- [30:31.240] they're not going to put it on a boat and take it away.
+- [30:33.000] It's going to be right here with us no matter what."
+- [30:35.240] But they are going to do a fantastic job
+- [30:38.000] and they look forward to it and they're so excited about it.
+- [30:40.370] They actually fought very, very hard to get that deal.
+- [30:43.630] And I think when you look at the countless jobs
+- [30:46.500] at the Mon Valley Works in western Pennsylvania,
+- [30:50.770] we have something that's going to be really incredible.
+- [30:53.380] And we did keep a golden share.
+- [30:54.850] You know who has the golden share?
+- [30:56.150] I do. I have the golden --
+- [30:58.110] Does everybody know what a golden share?
+- [31:00.000] A lot of these people from the Middle East,
+- [31:01.690] they don't have to worry about golden shares,
+- [31:04.480] but we have a golden share.
+- [31:06.790] But Nippon is going do a fantastic job.
+- [31:09.350] With that historic announcement and the new commitments
+- [31:12.040] being made today, we're building a future
+- [31:14.730] where American workers will forge the steel,
+- [31:16.920] produce the energy, build the factories,
+- [31:19.440] and really run a country like I believe,
+- [31:23.390] like this country has never been run before.
+- [31:25.620] I think we have a true golden age for America.
+- [31:28.980] We've been showing it
+- [31:30.290] and it truly is the hottest country anywhere in the world,
+- [31:33.400] and I'm honored to be in Pennsylvania
+- [31:35.940] and I'm honored to be in Pittsburgh,
+- [31:37.540] and you're going to see some real action here, so get ready.
+- [31:40.990] Lots of jobs, lots of success. Really a beautiful thing is --
+- [31:44.780] It's going to be beautiful to behold.
+- [31:46.470] So enjoy yourselves and I look forward to hearing
+- [31:49.300] some of you geniuses speak, if that's okay.
+- [31:50.980] I'll stay around, all right?
+- [31:52.220] Senator McCormick: Thank you.
+- [31:53.450] The President: Okay, thank you.
+- [31:58.010] Senator David McCormick: Thank you, Mr. President.
+- [31:59.300] Thank you so much. Again, thank you for being here.
+- [32:02.410] And you coming has allowed us to have this incredible summit.
+- [32:06.130] It won't surprise you, this summit was Dina's idea.
+- [32:09.880] But what it's allowed us to do is catalyze the investment,
+- [32:13.600] it's allowed us to get a lot of attention
+- [32:15.160] on Pennsylvania's story,
+- [32:17.000] and it's allowed us to deliver on the promises you
+- [32:18.970] and I talked about, which is jobs for working families,
+- [32:22.260] really create opportunity here in Pennsylvania.
+- [32:24.570] So it's the manifestation of your agenda.
+- [32:27.380] And we're going to talk today
+- [32:28.710] about those $90 billion of investment.
+- [32:31.110] You'll hear from Blackstone and QTS.
+- [32:33.660] CoreWeave and others,
+- [32:35.030] they pledged 36 billion dollars to build data centers.
+- [32:38.500] You'll also hear from companies that invested tens of billions
+- [32:41.730] in generating the power needed to run those data centers.
+- [32:45.250] We have great investments in natural gas production
+- [32:47.640] and pipelines, but also in nuclear,
+- [32:49.750] Brookfield's re-powering of two hydro facilities,
+- [32:52.400] with Google that you mentioned.
+- [32:54.250] The great Pittsburgh company, Westinghouse.
+- [32:56.440] Will tell you how they're going to deliver on your call
+- [32:59.300] to strengthen America's nuclear power industrial base
+- [33:02.100] by placing 10 reactors under construction by 2030.
+- [33:06.480] And Constellation, which is here, Joe Dominguez,
+- [33:09.070] is upgrading Limerick Clean Energy Center
+- [33:11.760] to bring an additional 340 megawatts online.
+- [33:15.910] First energy in Pennsylvania's PPL
+- [33:18.030] have collectively pledged $20 billion
+- [33:21.930] to build and operate the grid infrastructure
+- [33:23.920] required to support a data center Renaissance
+- [33:26.540] right here in Pennsylvania,
+- [33:28.660] and to ensure that ratepayers don't foot the bill.
+- [33:31.800] And finally, you've got technology companies
+- [33:33.350] like Google, they're investing
+- [33:35.220] and bringing the benefits of AI to Main Street
+- [33:37.700] and their AI works for Pennsylvania initiative,
+- [33:40.290] which will offer AI training for 1 million small businesses.
+- [33:45.550] The great thing about today is these are not empty promises.
+- [33:48.660] These are tangible, real commitments,
+- [33:51.150] and they're only the beginning.
+- [33:52.640] The distinguished leaders you have around the table here
+- [33:54.660] from Larry Fink to Darren Woods, from Toby Rice to Bruce Flat,
+- [34:00.220] to great global investors like my good friends
+- [34:02.240] Chow Kit from Singapore, Khaldoon Al Mubarak
+- [34:05.200] from the United Arab Emirates.
+- [34:06.890] They've traveled long distances to witness firsthand
+- [34:10.730] this historic moment
+- [34:12.020] and to see firsthand what's happening in Pennsylvania.
+- [34:15.240] And these investments are a testament
+- [34:17.810] to Pennsylvania's unique resources,
+- [34:20.430] unbelievable natural gas reserves, abundant fresh water,
+- [34:23.840] a massive installed base of nuclear power, incredible tech.
+- [34:27.940] Universities like CMU, our host today, thank you Farnham.
+- [34:32.460] Amazing skilled trade engineers
+- [34:34.490] represented by Pennsylvania's own Rob Bayer and Brandon Bishop
+- [34:37.570] here of the national building trades.
+- [34:40.780] But none of this would've happened,
+- [34:42.900] none of this would've happened
+- [34:44.650] without your unwavering commitment
+- [34:47.120] to unleashing American energy dominance
+- [34:49.400] and standing up for workers in Pennsylvania
+- [34:51.560] and across the nation.
+- [34:53.070] They're going to see those workers,
+- [34:54.370] tangible job opportunities here today.
+- [34:56.960] These projects will create
+- [34:58.200] tens of thousands of construction jobs
+- [35:01.350] and thousands of well-paying direct and indirect jobs
+- [35:04.670] supporting these projects, supporting these industries.
+- [35:06.950] It's going to make a big difference
+- [35:08.270] in Pennsylvania communities.
+- [35:09.980] So Mr. president, this is the beginning
+- [35:11.890] of an economic Renaissance for Pennsylvania
+- [35:14.810] and a huge step forward,
+- [35:16.860] and I want to thank you for making it possible
+- [35:18.920] and for being here in the steel city.
+- [35:20.140] So let me give you one more hand.
+- [35:21.350] Thank you. Thank you. Thank you. Thank you.
+- [35:27.290] So with that, if it's all right with you, Mr. President,
+- [35:29.570] I'm going to call on a handful of the people here
+- [35:32.100] and let him tell you a little bit about what they're thinking
+- [35:34.170] and why they're investing. I'll start with, to your left,
+- [35:36.800] John Gray, president and COO of Blackstone,
+- [35:40.030] 25 billion dollars in data center
+- [35:43.010] and energy infrastructure in Northeast PA.
+- [35:46.580] John Gray: Thank you, Dave.
+- [35:49.150] I want to start by thanking President Trump
+- [35:51.640] for recognizing the importance
+- [35:53.810] of American leadership in AI innovation
+- [35:57.360] and for prioritizing the physical investment
+- [36:00.240] required in digital and energy infrastructure
+- [36:04.000] to make this AI revolution possible.
+- [36:07.090] We believe this new technology can lead
+- [36:09.510] to a manufacturing renaissance in the United States.
+- [36:13.700] Generating electrons will spur economic activity
+- [36:17.780] and employment growth right here in Pennsylvania.
+- [36:22.010] That also leads me to thank Senator McCormick
+- [36:24.870] for hosting this terrific summit,
+- [36:26.780] with Dina's help, of course.
+- [36:28.620] So many important participants from around the globe
+- [36:31.460] have come here,
+- [36:32.770] including political leaders in Pennsylvania
+- [36:35.290] from both sides of the aisle
+- [36:37.010] who all care about making this state
+- [36:38.820] in the U.S successful in this vital area.
+- [36:41.740] By the way, I love this state too.
+- [36:43.730] I went to college like you here as well,
+- [36:45.590] I met my wife here and it is a great place.
+- [36:49.210] I will say that at Blackstone we have enormous investments here
+- [36:52.330] and we're very excited to announce that
+- [36:54.580] we're going to make a further 25 billion dollar investment
+- [36:58.270] in the Pennsylvania's digital and energy infrastructure.
+- [37:05.760] Thank you.
+- [37:09.950] The investment should catalyze over the next ten-plus year
+- [37:13.760] of further $60 billion on top of that into the state.
+- [37:18.450] Pennsylvania, as you've heard,
+- [37:20.060] is uniquely situated as a strategic hub
+- [37:23.380] to power the nation's AI objectives,
+- [37:26.000] abundant low-cost energy,
+- [37:27.830] 20 percent of the country's natural gas production.
+- [37:31.500] And by co-locating data centers next to the natural gas,
+- [37:36.000] we eliminate the enormous cost and time
+- [37:38.380] delays with these projects,
+- [37:40.000] which makes us super bullish on this state.
+- [37:42.740] America's AI future obviously requires
+- [37:45.750] rapid acceleration of data center construction.
+- [37:49.010] Our company, QTS, is the largest independent data
+- [37:52.470] center developer and operator in the world.
+- [37:55.810] QTS has secured multiple land sites
+- [37:59.000] throughout the Northeast of Pennsylvania.
+- [38:01.180] We're very excited about that. The Co-CEO, Tag, is over there.
+- [38:05.110] We're also excited to announce today
+- [38:07.000] a JV with Pennsylvania Utility,
+- [38:09.480] PPL to invest in new natural gas generation facilities.
+- [38:13.700] These will ensure grid reliability
+- [38:15.900] and power Pennsylvania's digital infrastructure,
+- [38:18.920] as well as homes and businesses across the Commonwealth.
+- [38:23.950] This continues our long-term partnership
+- [38:25.940] at Blackstone with Pennsylvania.
+- [38:28.180] We believe 6,000 plus jobs will be created
+- [38:31.460] or supported annually over the ten-year construction timeline.
+- [38:35.670] Over 3000 permanent jobs will be created
+- [38:39.010] or supported by QTS and its customers.
+- [38:41.970] We have long-standing relationships with labor.
+- [38:44.360] We plan to continue those here in Pennsylvania.
+- [38:47.640] And we intend to commence construction
+- [38:49.630] on these projects by year end 2028.
+- [38:53.430] Thank you for having us today, Senator McCormick.
+- [38:55.910] Thank you President Trump for your leadership.
+- [38:58.680] We are honored and excited to be investing
+- [39:00.880] in the future of Pennsylvania and the United States.
+- [39:04.930] Senator David McCormick: All right, thank you John.
+- [39:10.050] That's great.
+- [39:11.280] And I'm going to keep this moving
+- [39:12.560] because there's so many people here I want to call on.
+- [39:14.980] Brian Tierney, CEO of First Energy,
+- [39:17.270] a $9.3 billion investment across PA
+- [39:21.500] to expand power distribution,
+- [39:23.090] strengthen grid infrastructure. Brian.
+- [39:26.120] Brian: Thank you, Senator McCormick,
+- [39:27.480] and thank you President Trump for your leadership,
+- [39:29.940] particularly on energy security
+- [39:32.100] and what it means to our economy.
+- [39:33.360] The President: Thank you.
+- [39:34.560] Brian: At First Energy Pennsylvania,
+- [39:36.140] we have 6,000 contractors and employees
+- [39:39.120] who are thrilled to serve 2 million customers in the state.
+- [39:43.790] We are planning $15 billion of investment between now
+- [39:47.900] and the end of your term in the distribution grid
+- [39:50.630] and the transmission grid to enable things
+- [39:53.220] like artificial intelligence development,
+- [39:55.810] shale gas development,
+- [39:57.500] and any other form of economic and technological development
+- [40:00.600] that there is.
+- [40:02.120] We have partnered with the unions,
+- [40:04.120] the IBEW and the UWUA.
+- [40:07.060] We have a journeyman lineman hiring program
+- [40:10.490] and we have an apprenticeship program
+- [40:12.580] that will create not just jobs,
+- [40:14.390] but long-term good paying careers
+- [40:16.810] for the people of the Commonwealth.
+- [40:19.000] We're thrilled to be making this investment in the grid
+- [40:21.820] and infrastructure in the Commonwealth
+- [40:23.970] and look forward to working with those around the table
+- [40:25.760] to make it happen in the years to come.
+- [40:27.160] Thank you.
+- [40:28.400] The President: Thank you, Brian.
+- [40:29.600] Senator David McCormick: Thank you, Brian. All right.
+- [40:33.730] Dan Sommer, a Pittsburgh, a iconic name, Westinghouse.
+- [40:39.270] 6 billion. This ties directly to the executive order
+- [40:44.380] and your commitment to nuclear power.
+- [40:46.420] $6 billion investment to deliver 10 new large nuclear reactors
+- [40:50.190] by 2030 consistent with your executive order.
+- [40:53.470] And we're so excited about it here.
+- [40:55.860] Dan, take it away.
+- [40:57.070] Dan: Senator McCormick. Thank you, President Trump.
+- [41:00.510] You've led on nuclear energy in this country
+- [41:02.620] and you've reinvigorated our industry
+- [41:04.960] with the vision that you've set forth in your executive orders.
+- [41:08.730] Our industry is reinvigorated. We're ready to mobilize.
+- [41:12.260] Westinghouse today is the world's leader
+- [41:14.880] in nuclear technology.
+- [41:16.540] Over 50 percent of the reactors that operate
+- [41:19.010] in the world use Westinghouse technology.
+- [41:21.480] And today we as a company service
+- [41:24.300] over 60 percent of the world's operating nuclear fleet
+- [41:28.050] right here from our headquarters in the Pittsburgh region,
+- [41:30.760] actually Butler County,
+- [41:32.760] as well as sites around the country and around the world.
+- [41:35.370] What we're happy to share today
+- [41:36.750] is we've taken the call to action under your executive
+- [41:40.010] order to partner with companies across our industry
+- [41:43.190] to mobilize a plan to deliver 10 AP 1000 reactors
+- [41:47.360] in the U.S with construction to begin by 2030.
+- [41:51.000] This is not only critical to achieve your goals
+- [41:53.550] with respect to energy dominance and winning the A.I race,
+- [41:57.360] but it's a driver of massive economic benefit
+- [42:00.120] across our country.
+- [42:01.770] When we deploy a fleet aligned to your vision,
+- [42:04.990] we'll drive 75 billion dollars of economic value
+- [42:08.130] across the United States
+- [42:09.790] with $6 billion of value here in Pennsylvania.
+- [42:13.260] It's also a jobs machine.
+- [42:16.040] Implementing your vision will create or sustain
+- [42:18.150] over 55,000 jobs across the country,
+- [42:21.350] and over 15,000 jobs here in the Commonwealth alone.
+- [42:25.330] And these are great jobs across manufacturing,
+- [42:27.370] engineering, and construction.
+- [42:30.030] And beyond that, we're happy to announce today
+- [42:31.980] a strategic collaboration with Google
+- [42:34.550] to leverage Google's expertise in AI and AI solutions
+- [42:38.290] along with Westinghouse's AI technology
+- [42:41.120] and 75 years of OEM nuclear engineering
+- [42:44.580] and construction data
+- [42:46.260] to build an AI machine that helps us rethink
+- [42:48.940] how to do nuclear construction in this country,
+- [42:51.600] and honor your commitment and your expectations for us.
+- [42:54.610] When we deliver nuclear, we'll do it on budget and on cost.
+- [42:59.970] Mr. President, thank you for your leadership.
+- [43:02.100] Thank you for your vision.
+- [43:03.780] Westinghouse and our industry are ready to deliver.
+- [43:07.590] Senator McCormick: Thanks, Dan.
+- [43:12.780] You almost gave the introduction for my good friend Ruth Porat.
+- [43:15.650] Ruth, thank you for being here
+- [43:17.020] and Google is doing a number of things,
+- [43:19.960] partnering with Brookfield,
+- [43:21.290] which Bruce Flat is here, a great partnership.
+- [43:24.160] We're lucky to have them both engaged in Pennsylvania.
+- [43:28.120] Bruce is also the majority owner of Westinghouse.
+- [43:32.660] Brookfield is the majority owner of Westinghouse.
+- [43:34.470] And also an incredible effort
+- [43:36.520] to train a million small business in AI.
+- [43:38.180] So Ruth, please tell us what you're doing in Pennsylvania,
+- [43:40.080] and thank you.
+- [43:41.320] Ruth: Thank you, Mr. President.
+- [43:42.790] Thank you so much for your leadership,
+- [43:44.930] for your clear and urgent direction
+- [43:47.960] that our nation invest in AI,
+- [43:50.310] in the infrastructure technology,
+- [43:52.460] and energy needed to unlock the extraordinary capabilities
+- [43:55.470] and really enable America to continue to lead.
+- [43:58.650] And Senator McCormick and Dina,
+- [44:00.610] thank you for this extraordinary convening.
+- [44:02.740] It really has delivered the energy, no pun intended,
+- [44:06.030] that we were striving to achieve here.
+- [44:08.950] On behalf of Google, I'm very pleased to be here in Pittsburgh
+- [44:11.980] to announce that Google is investing
+- [44:13.770] more than 25 billion dollars in data centers
+- [44:16.630] and AI infrastructure across the states
+- [44:19.450] in this critical PJM region over the next two years.
+- [44:23.130] And to support the investment, we're investing
+- [44:25.950] in three additional ways and focused on them.
+- [44:28.580] First, Mr. President,
+- [44:29.970] to support your mandate for energy abundance,
+- [44:33.920] we're investing in hydro, as you referenced.
+- [44:37.300] It is a $3 billion,
+- [44:39.030] twenty-year agreement with Brookfield Energy
+- [44:41.780] to modernize two hydropower facilities in Lancaster County.
+- [44:46.270] Second, we've already heard
+- [44:47.560] about the importance of the grid.
+- [44:49.210] The Department of Energy has estimated
+- [44:51.720] that there is up to a hundred gigawatts of additional capacity
+- [44:55.710] in America's grid infrastructure
+- [44:57.610] if we collectively work to unlock it.
+- [45:00.440] So at Google, two things,
+- [45:01.760] we're applying advanced technology to ensure
+- [45:04.600] that we're most efficiently using power from the grid,
+- [45:07.890] and we're also working on ways that AI can help to identify
+- [45:11.740] and deploy capacity more efficiently.
+- [45:15.010] I think what's really exciting also is we're focused on jobs.
+- [45:18.500] There are two parts of the focus on jobs.
+- [45:21.020] One is really training to support the jobs
+- [45:24.350] to modernize the grid. There is an acute need
+- [45:26.700] for electrical workers in this country.
+- [45:28.760] It's estimated in the hundred thousand plus.
+- [45:31.620] Last month, Google made a grant
+- [45:33.890] to the Electrical Training Alliance
+- [45:36.360] to equip more than a hundred thousand electrical workers
+- [45:39.550] with the skills that they need
+- [45:41.350] and train 30,000 new apprentices by 2030.
+- [45:44.800] Today we are expanding that grant to increase
+- [45:47.890] the projected pipeline of new electricians in Pennsylvania
+- [45:52.470] by 64 percent.
+- [45:54.940] Third, we think it is critical, as Senator McCormick said,
+- [45:58.880] to build a Fair America, an America,
+- [46:02.170] where everyone has the opportunity
+- [46:03.990] for jobs of the future.
+- [46:05.610] And to ensure that we can do that today,
+- [46:07.900] starting in Pennsylvania,
+- [46:09.990] we're really proud to announce AI Works for America.
+- [46:14.400] And through partnerships with leading employers, universities,
+- [46:18.320] Ruth: Trades, skilled trades and manufacturers.
+- [46:21.080] We're going to help train American workers and students
+- [46:24.260] by teaching them essential AI skills.
+- [46:26.920] And as part of this, I'm very proud
+- [46:29.250] that Google will be offering free AI training
+- [46:31.830] to every small business
+- [46:33.860] in the Commonwealth of Pennsylvania.
+- [46:41.450] One final comment.
+- [46:42.790] We are proud that Pittsburgh is our home.
+- [46:44.790] It's been our home since 2006.
+- [46:46.840] Our first office was actually right here at Carnegie Mellon,
+- [46:50.120] and continuing the trend of this line right here,
+- [46:52.430] I also went to school in Pennsylvania
+- [46:53.960] and we're very proud of it.
+- [46:55.170] So thank you again. Thank you for being here
+- [46:56.840] and thank you for all your catalyzing.
+- [46:59.120] Senator McCormick: Thanks Ruth. That's what we like to hear.
+- [47:03.470] I want to call on, just briefly, Mike.
+- [47:05.360] Mike Intrator.
+- [47:06.620] I want take note of this, for all you CEOs.
+- [47:09.050] Mike is the CEO of CoreWeave,
+- [47:11.220] which made a big announcement today.
+- [47:12.700] $6 billion investment in Pennsylvania,
+- [47:14.810] and his stock went way up.
+- [47:16.040] So all you CEOs just take notice.
+- [47:18.980] Investing in Pennsylvania is good for your stock price.
+- [47:21.230] Mike, please tell us about this project.
+- [47:22.820] It's very exciting.
+- [47:24.240] Mike Intrator: Thank you very much, Mr. President,
+- [47:26.940] Senator McCormick. And yes, you're correct.
+- [47:29.030] The market responded well to our announcement
+- [47:32.220] of investing $6 billion into a Lancaster,
+- [47:36.410] Pennsylvania data center.
+- [47:39.520] It's a data center that we will be able to host
+- [47:41.650] some of the most advanced,
+- [47:43.190] state-of-the-art computing infrastructure
+- [47:46.260] that the country needs in order to maintain its position
+- [47:51.470] as the leader in artificial intelligence.
+- [47:54.460] The data center will drive 600 jobs
+- [47:58.670] across the trades as we construct the site,
+- [48:01.140] and then another 175 jobs of permanent employment.
+- [48:05.800] We are extremely excited about the role
+- [48:08.040] that this data center's going to play in our plans
+- [48:11.390] to be able to support not
+- [48:12.840] just the Commonwealth of Pennsylvania,
+- [48:15.280] but the broader mid-Atlantic region for us.
+- [48:19.010] And your support has been incredible
+- [48:24.530] across the energy space that's required
+- [48:27.260] to deliver clean, reliable power,
+- [48:31.650] as well as your support
+- [48:33.870] for artificial intelligence at large.
+- [48:35.720] Thank you very much. We appreciate your support.
+- [48:39.270] Senator David McCormick: Thank you, Mike.
+- [48:41.750] Mr. President, what you hear over and over again
+- [48:43.470] are these incredible job creation,
+- [48:45.030] but we need workers to be able to fulfill these jobs.
+- [48:48.690] And I see my friend Barry in the audience
+- [48:50.570] and we've talked a lot about the need for construction workers.
+- [48:55.630] There he is. There's Barry.
+- [48:58.870] We have Brandon Bishop with us today
+- [49:00.530] from the National Building Trades
+- [49:01.930] and I was with a bunch of guys from the building trades
+- [49:04.150] a couple of weeks ago and they were saying,
+- [49:06.410] we don't want to do the apprenticeship program
+- [49:08.140] until we sure about the work.
+- [49:09.640] And I said, "Double, triple, quadruple the programs," right?
+- [49:13.540] We got to have skilled workers who can meet the needs.
+- [49:16.840] We got a tsunami of opportunity coming for Pennsylvania.
+- [49:19.950] And so maybe you could take a minute, Brandon on that.
+- [49:21.820] Thank you for being here.
+- [49:23.360] Brandon Bishop: Thank you. Senator McCormick.
+- [49:24.710] Mr. President, it's an honor to be here today
+- [49:27.400] representing North America's building trade unions
+- [49:30.530] and our three million members.
+- [49:32.410] Especially the thousands of highly skilled workers
+- [49:35.170] across Pennsylvania
+- [49:36.450] who are ready to deliver on all of the historic investments
+- [49:39.870] being announced here today.
+- [49:43.690] All the projects discussed here today
+- [49:46.060] aren't just about energy and innovation,
+- [49:49.310] they're about job creation,
+- [49:51.370] and all of us in the building trades stand ready to deliver.
+- [49:55.600] If you want the highest quality,
+- [49:57.530] most productive, long-term labor certainty,
+- [50:00.860] partner with us from day one. Don't just build with us.
+- [50:04.530] Stay with us and maintain it for decades.
+- [50:09.070] And when you partner with the building trades,
+- [50:11.160] you get results.
+- [50:12.700] Productivity is 14 percent higher,
+- [50:15.580] projects cost 4 percent less on average,
+- [50:18.280] they're 40 percent less likely to face labor shortages,
+- [50:22.030] and labor turnover is cut by two-thirds.
+- [50:24.910] We are the solution to the workforce challenge.
+- [50:27.680] Our members are sourced and trained through the largest
+- [50:31.120] private workforce development system in the country.
+- [50:34.340] Over 16,000 world-class training centers,
+- [50:38.010] including many right here
+- [50:39.590] in the Commonwealth of Pennsylvania.
+- [50:42.110] These centers train hundreds of thousands of men
+- [50:44.530] and women through our gold standard
+- [50:46.280] registered apprenticeship programs.
+- [50:48.080] No taxpayer dollars required.
+- [50:50.490] And they don't just lead to jobs.
+- [50:52.440] They launch lifelong, middle-class careers
+- [50:55.680] with family sustaining wages, healthcare, and retirement.
+- [51:00.580] So if you're investing in Pennsylvania,
+- [51:02.810] let's talk, let's plan.
+- [51:04.790] Let's partner because there is no workforce
+- [51:08.300] more prepared to build the future
+- [51:09.880] and no investment more certain than when you build with us.
+- [51:13.840] That's what we do. We build, we maintain,
+- [51:17.020] and deliver all while doing it the best way.
+- [51:19.680] Safely, on time, on budget, and with the highest quality.
+- [51:26.220] Senator McCormick: Thank you. Thanks Brandon. Appreciate it.
+- [51:27.890] Thank you.
+- [51:30.370] All right, so I asked the president,
+- [51:33.180] he said I could take the opportunity.
+- [51:37.180] We got the A team here,
+- [51:38.450] in terms of the cabinet the president put together.
+- [51:41.210] So I'd like to do a lightning round
+- [51:43.080] and just call on a couple of cabinet members to comment
+- [51:46.360] on what's going on in terms of the incredible action
+- [51:50.600] and activity at the intersection of the AI revolution
+- [51:53.530] and the energy revolution.
+- [51:54.760] We got a great team here that's working together.
+- [51:56.800] So let me just work my way around the table.
+- [52:00.270] Mr. Treasury Secretary Scott Bessent,
+- [52:02.450] and then I'll turn to you Howard,
+- [52:03.690] and then you Chris, and then you Doug,
+- [52:05.660] and Director Zeldin, I'm sorry I didn't mention you before,
+- [52:08.160] but I'm so glad you're here.
+- [52:09.370] You're doing great things for our country. Thank you.
+- [52:12.980] Scott Bessent: Thank you Senator.
+- [52:14.350] I want to thank President Trump for his leadership.
+- [52:17.090] President's laid the foundation for a golden age economy
+- [52:20.150] and it comes just in time
+- [52:21.540] to begin America's 250th anniversary celebration.
+- [52:25.950] Three industries will define the future.
+- [52:28.970] Manufacturing, energy, and technology.
+- [52:31.580] Not coincidentally,
+- [52:32.920] Pennsylvania's at the forefront of all three.
+- [52:35.980] For more than two centuries,
+- [52:38.490] the Commonwealth has been the keystone
+- [52:40.920] at the top of the American arch,
+- [52:42.930] and politically economically, and technology
+- [52:45.500] has played an indispensable role
+- [52:48.210] and will continue to do so under President Trump
+- [52:51.110] and Senator McCormick's leadership.
+- [52:54.170] The Rust Belt is no more. It's a thing of the past.
+- [52:58.730] The factories that industrialized America,
+- [53:01.250] won World War II,
+- [53:02.460] and built our modern infrastructure
+- [53:04.180] are firing up again and new factories are coming online.
+- [53:09.550] Taking place along the blue color boom
+- [53:12.700] is the CapEx boom that we heard about today.
+- [53:16.460] And this is just the beginning.
+- [53:18.570] This is the third time I've had the privilege
+- [53:20.530] of being in the Iron City in less than a year.
+- [53:23.980] I was here, President Trump's final day on the campaign trail
+- [53:29.370] at the auditorium at the Duquesne Arena.
+- [53:33.080] And I saw the steelworkers there to support him.
+- [53:37.380] I was back three weeks ago
+- [53:39.730] when he announced the Nippon Steel deal
+- [53:42.110] at the US Steel plant,
+- [53:43.770] and it's an honor to be here with all of you today
+- [53:46.150] and see this CapEx boom, along with a worker's boom.
+- [53:52.210] Senator McCormick: Thank you. Thank you Mr.
+- [53:53.810] (inaudible).
+- [53:55.790] All right, my good buddy, Secretary Lutnick.
+- [54:00.600] Secretary Lutnick: Advanced manufacturing.
+- [54:04.710] Technology lead.
+- [54:06.910] Our technology is the best in the world
+- [54:09.760] and President Trump is out to unleash that technology
+- [54:13.780] to make sure we win the AI race.
+- [54:17.490] But he knows that we need energy to drive it
+- [54:21.740] and that's why he campaigned on drill, baby drill,
+- [54:26.280] because we need energy.
+- [54:28.880] We need it across the nation and we need it in Pennsylvania,
+- [54:32.920] which has got amazing natural gas resources.
+- [54:36.250] Incredible.
+- [54:37.500] And then we've got to turn that into advanced manufacturing.
+- [54:40.210] So those three buckets are where we're going
+- [54:43.810] and President Trump is leading the charge on that,
+- [54:46.540] and we are very excited.
+- [54:48.430] 16 trillion in investment dollars coming into America.
+- [54:54.020] So your workers, man, are they going to be busy.
+- [54:58.040] Senator McCormick: Thank you.
+- [55:03.900] Secretary Wright, let me turn to you
+- [55:05.370] and then Secretary Burgum.
+- [55:08.140] Secretary Wright: Yes, thank you Senator McCormick
+- [55:10.700] and thank you President Trump.
+- [55:11.980] We are all here and we're talking about $90 billion
+- [55:15.310] investment in this state because of a dramatic pivot
+- [55:18.510] in the leadership of our country.
+- [55:20.400] President Trump, an east coast real estate developer,
+- [55:24.460] understands in his gut, energy, more than anyone I've met,
+- [55:28.210] he knows energy is the infrastructure
+- [55:30.580] for everything we do.
+- [55:32.270] If you get energy wrong, nothing else matters.
+- [55:35.110] If you get energy right,
+- [55:37.010] the possibilities are just immense.
+- [55:39.970] And Pennsylvania, the oil and gas industry,
+- [55:43.110] global oil and gas industry started a few dozen miles
+- [55:46.400] from here in Titusville, Pennsylvania.
+- [55:48.850] The shale gas revolution may have started in Texas,
+- [55:52.410] but it really flourished
+- [55:53.750] and hit its peak right here in Pennsylvania.
+- [55:57.270] Pennsylvania today exports more energy to other states
+- [56:01.980] than any other state except for Texas.
+- [56:04.400] And it would export more,
+- [56:06.150] but it had blocks on building pipelines.
+- [56:09.180] Two great opportunities for Pennsylvania Energy. One --
+- [56:12.540] And President Trump is hard at work at both of these.
+- [56:14.980] One is to get those pipelines
+- [56:16.380] built from Pennsylvania to New England
+- [56:18.290] so we can change the quality of life and opportunities.
+- [56:27.960] People in New England have a lower quality of life
+- [56:30.390] than they deserve for bad political decisions.
+- [56:32.850] That can be changed. And number two,
+- [56:35.580] the opposition to building pipelines out of Pennsylvania
+- [56:38.830] doesn't stop the production of gas in Pennsylvania.
+- [56:42.170] Pennsylvania natural gas production
+- [56:43.880] could ramp up tremendously fast and Pennsylvania
+- [56:47.350] could lead the world in AI, in reshoring manufacturing.
+- [56:55.170] Senator McCormick: Secretary Bergum.
+- [56:56.470] Brian: Thank you. Thank you David, Dina.
+- [57:01.050] President Trump, it's such an honor to work for you.
+- [57:03.090] Your vision of energy dominance
+- [57:04.670] is the foundation of this golden age for America
+- [57:07.870] is coming true. It's just common sense.
+- [57:11.640] You've called this the party of common sense,
+- [57:13.380] but when we talk about cutting taxes like never before,
+- [57:16.340] cutting regulations, speeding permitting,
+- [57:19.140] we're the hottest country in the world
+- [57:20.950] because of the policy changes
+- [57:23.050] that are drawing all that capital to come here.
+- [57:24.970] And now we combine this with the incredible
+- [57:26.860] natural resources that we have.
+- [57:29.010] You understand better than anyone
+- [57:30.760] that the balance sheet of America
+- [57:32.880] is the biggest balance sheet in the world,
+- [57:34.850] the natural resources that we have.
+- [57:36.850] And by unleashing energy,
+- [57:38.700] you know that that's what's lowered inflation.
+- [57:40.550] It's bringing prosperity at home,
+- [57:42.320] but it's also bringing peace abroad.
+- [57:45.200] You identified that there was a couple of threats
+- [57:46.970] to our country.
+- [57:48.170] One was Iran having a nuclear weapon,
+- [57:50.630] the other was losing the AI arms race to China.
+- [57:54.000] You took care of one of those a few weeks ago.
+- [57:56.400] You're helping to take care of the other one here.
+- [57:58.900] And I just want to say again,
+- [58:01.080] that your understanding of what needs to be done,
+- [58:03.320] your understanding that we need more power,
+- [58:05.580] because a kilowatt of electricity today
+- [58:08.390] is worth more than it ever has been in human history
+- [58:10.840] because we can take Pennsylvania natural resources like gas,
+- [58:14.310] turn it to electricity, turn it to intelligence,
+- [58:17.180] and that intelligence lifts every single industry,
+- [58:20.170] not just one industry,
+- [58:21.410] not the company that owns the data center.
+- [58:22.930] It lifts everybody that uses it.
+- [58:25.040] This is going to be the biggest change
+- [58:26.480] in human productivity in history
+- [58:29.200] and the US is going to lead thanks to your vision.
+- [58:33.580] Senator McCormick: Thank you.
+- [58:34.810] Listen, I want to just close by saying
+- [58:39.450] what an extraordinary group of people here today.
+- [58:42.960] Thank you all for coming as we have,
+- [58:45.430] there's just people you could talk for days
+- [58:47.880] just listening to the people around this table.
+- [58:49.410] So thank you for being here,
+- [58:51.100] thank you for your commitment and investment in Pennsylvania.
+- [58:54.210] Thank you all you in the audience,
+- [58:56.050] the Pittsburgh Post-Gazette ran an article last week
+- [58:58.960] and it said in the first line or two,
+- [59:01.350] not since the days of Andrew Carnegie
+- [59:03.770] has so much economic power
+- [59:06.160] been gathered in one room in Pittsburgh.
+- [59:07.880] And I really believe Mr. President,
+- [59:09.420] based on you being here,
+- [59:10.640] we're going to look back on this day
+- [59:13.250] and say that this was a real seminal moment
+- [59:15.680] in the history of our Commonwealth
+- [59:17.060] and maybe even in the history of our country,
+- [59:19.550] because not only of you being here,
+- [59:21.340] but all the policies that are leading us in this direction
+- [59:24.560] and the leadership you're showing.
+- [59:25.920] So I want to thank you on behalf of Dean and me.
+- [59:28.970] Thank you on behalf of Pittsburgh and Pennsylvania.
+- [59:31.610] We're grateful for your leadership
+- [59:32.810] and thank you for being here today.
+- [59:40.330] The President: Well thank you very much.
+- [59:41.870] And I have to say that David said,
+- [59:43.620] "Could you just come in and make a quick statement
+- [59:45.620] and then you can leave right away."
+- [59:46.990] And I said, "Okay good, I'll do it."
+- [59:48.790] But when I saw the people gathered,
+- [59:50.300] I said, "I'm not leaving. I want to learn something."
+- [59:52.410] And I have learned something.
+- [59:53.680] This is the smartest group of talent
+- [59:56.710] probably that you've ever had in terms of energy
+- [59:59.620] and even finance, ever had in one room.
+- [01:00:02.530] So it's an honor to be with you.
+- [01:00:04.920] I used to do what a lot of you guys did.
+- [01:00:07.500] I like this better though. I don't care.
+- [01:00:10.770] And you're doing a fantastic job,
+- [01:00:12.250] but really it's an honor to be with you and congratulations.
+- [01:00:15.030] You're going to have tremendous success all over the country,
+- [01:00:17.830] but you're going to have tremendous success
+- [01:00:20.400] in the Commonwealth. So good luck to everybody,
+- [01:00:23.200] and if I can help you let me know.
+- [01:00:24.980] Thank you very much.
+- [01:00:27.410] (applause)
+- [01:00:31.805] ♪ (patriotic band music) ♪

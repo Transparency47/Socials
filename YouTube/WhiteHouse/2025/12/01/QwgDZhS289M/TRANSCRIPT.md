@@ -1,0 +1,920 @@
+<!-- source: https://www.youtube.com/watch?v=QwgDZhS289M -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: QwgDZhS289M -->
+<!-- date_published: 2025-12-01T19:14:55+00:00 -->
+<!-- date_accessed: 2026-06-02T02:40:59.428489+00:00 -->
+
+# Transcript: Press Secretary Karoline Leavitt Briefs Members of the Media, Dec. 1, 2025
+
+- [00:05.450] Karoline Leavitt: Good afternoon, everybody.
+- [00:06.690] The Press: Good afternoon.
+- [00:07.910] Karoline Leavitt: I apologize for my tardiness.
+- [00:09.290] We had some technical difficulties, as you could see,
+- [00:11.470] but I think we are ready to rock, so let's get to it.
+- [00:14.220] I'll begin this week with some scheduling announcements
+- [00:16.540] for President Trump's very busy week ahead.
+- [00:19.490] Tomorrow, President Trump will host his ninth cabinet
+- [00:22.270] meeting of the year alongside his incredible cabinet
+- [00:25.780] who continue to deliver for the American people
+- [00:28.530] at a record pace. Later in the afternoon tomorrow,
+- [00:31.840] the President will make an announcement
+- [00:33.260] in the Oval Office on his initiative
+- [00:35.080] to create Trump accounts to give the next generation of Americans
+- [00:39.450] a jumpstart on savings.
+- [00:41.430] It will be a very exciting announcement indeed,
+- [00:44.050] especially for all of the parents across the country
+- [00:46.210] with young children and babies.
+- [00:48.020] On Thursday, President Trump will host
+- [00:49.850] the presidents of the Republic of Rwanda
+- [00:51.990] and the Democratic Republic of Congo
+- [00:54.090] to sign the historic peace
+- [00:55.940] and economic agreement that he brokered.
+- [00:58.930] On Thursday night, the President and the first lady
+- [01:01.280] will celebrate one of America's greatest traditions,
+- [01:04.360] the lighting of the National Christmas Tree on the Ellipse.
+- [01:08.010] And on Friday, President Trump will attend
+- [01:09.990] the FIFA World Cup final draw at the Kennedy Center.
+- [01:13.380] You all will be seeing and hearing from the President
+- [01:15.430] every day this week, so you have me today
+- [01:17.520] and then he will take on the rest of the week himself.
+- [01:20.710] Next, I would like to address the horrific tragedy
+- [01:23.090] that took place in our nation's capital that last week.
+- [01:26.930] A foreign terrorist that the Biden administration
+- [01:29.740] failed to properly vet,
+- [01:31.870] ambushed two members of the West Virginia National Guard
+- [01:35.220] who were honorably serving here to keep the residents
+- [01:38.290] and visitors of Washington, DC safe.
+- [01:41.840] US Air Force Staff Sergeant Andrew Wolfe
+- [01:44.360] was severely wounded in the attack
+- [01:46.660] and remains hospitalized
+- [01:48.020] while he continues to fight for his life.
+- [01:50.980] Tragically, US Army Specialist Sarah Beckstrom
+- [01:54.430] died of her wounds. She was just 20 years old.
+- [01:58.210] President Trump and the entire White House
+- [02:00.340] are praying for Andrew's full recovery
+- [02:02.710] at the request of his parents and their personal phone call
+- [02:05.940] with the President over the weekend.
+- [02:07.950] And we are keeping Sarah's family and friends
+- [02:10.100] in our prayers during this unimaginably difficult time.
+- [02:14.540] Sarah and Andrew represent the very best of America,
+- [02:18.180] two young patriots who were willing to put on the uniform
+- [02:21.420] and risk their lives in defense of their fellow Americans.
+- [02:25.580] Both of them truly embody the profound words
+- [02:27.990] spoken by Jesus Christ in the gospel,
+- [02:30.860] "Greater love has no one than this,
+- [02:33.350] to lay down one's life for one's friends."
+- [02:36.320] Sarah and Andrew are heroes,
+- [02:38.110] and we will never forget their sacrifice.
+- [02:40.700] That means ensuring the monster responsible for this atrocity
+- [02:44.650] is prosecuted to the fullest extent of the law
+- [02:47.670] and faces the most severe punishment possible.
+- [02:50.870] It also means reckoning with why this atrocity
+- [02:53.450] was allowed to happen in the first place
+- [02:55.810] so that it may never occur again.
+- [02:58.490] Here are the facts.
+- [02:59.950] The terrorist who gunned down American soldiers
+- [03:03.200] blocks away from the White House
+- [03:04.770] and in ambush was an Afghan national
+- [03:07.820] who was flown into our country
+- [03:09.480] by Joe Biden's administration in September 2021
+- [03:13.470] in the chaotic wake of their botched withdrawal
+- [03:15.800] from Afghanistan.
+- [03:17.330] One of the most embarrassing moments
+- [03:19.270] in the history of our great country.
+- [03:21.900] Joe Biden's historic failure in Afghanistan
+- [03:24.420] continues to haunt this country
+- [03:26.510] and our men and women in uniform.
+- [03:28.900] Not only did this surrender lead to a suicide bombing
+- [03:31.720] that killed 13 American heroes in Kabul,
+- [03:35.070] but now National Guard troops were shot on US soil
+- [03:38.550] by the same kind of enemy.
+- [03:40.670] We continue to live with the deadly consequences
+- [03:43.390] of Joe Biden's horrific leadership.
+- [03:45.940] Nearly 100,000 Afghans were recklessly released into
+- [03:49.160] the United States with little to no vetting.
+- [03:51.780] There was no regard for the disorder and violence
+- [03:54.170] that this would unleash on American communities
+- [03:56.670] and American culture.
+- [03:58.340] Reportedly, thousands of these strangers
+- [04:00.860] and unknown individuals
+- [04:02.090] were flagged to the Biden administration
+- [04:04.560] for national security,
+- [04:05.930] public safety, and fraud concerns.
+- [04:08.610] But the terrifying truth is that the Afghanistan debacle is just
+- [04:11.830] a small part of Democrats' complete and total betrayal
+- [04:15.230] of the American people during the Biden years.
+- [04:18.340] The tragedy that we just witnessed the day
+- [04:20.420] before Thanksgiving
+- [04:21.870] is a reminder that untold thousands of terrorists,
+- [04:25.170] gang members, and criminals were invited into our country
+- [04:28.560] and remain here to this very day.
+- [04:31.050] The border is now secure thanks to President Trump,
+- [04:34.310] but the threat in our interior remains real and urgent.
+- [04:38.310] These public safety threats are already inside our land,
+- [04:42.100] and President Trump was elected on a promise to find
+- [04:44.830] and remove them,
+- [04:46.050] and he has already taken significant steps
+- [04:48.450] and made significant progress towards fulfilling this promise.
+- [04:52.680] But there is more work to be done
+- [04:54.260] because President Trump believes that he has a sacred obligation
+- [04:57.900] to reverse the calamity of mass
+- [05:00.330] unchecked migration into our country.
+- [05:03.500] As a result, the Trump administration is now
+- [05:05.810] actively reexamining
+- [05:07.180] all of the Afghans imported into the country by Joe Biden.
+- [05:11.350] Any individual who threatens our national security
+- [05:14.550] or our citizenry will be subject to removal.
+- [05:18.480] President Trump has already permanently paused migration
+- [05:21.330] of foreign nationals from third-world countries
+- [05:23.420] that pose a very high risk to the United States.
+- [05:27.140] For too long, past American presidents
+- [05:29.260] supported self-destructive immigration policies
+- [05:33.840] that allowed foreigners who outright hate our country
+- [05:37.240] and have no interest in assimilating into our culture,
+- [05:41.030] they've allowed these individuals
+- [05:42.390] to flood peaceful American communities.
+- [05:45.560] This disastrous approach has drained our welfare program,
+- [05:49.050] driven up the cost of housing, suppressed wages,
+- [05:51.910] and jeopardized the safety of law-abiding American citizens.
+- [05:55.980] In fact, according to a new bombshell
+- [05:58.170] report from The New York Times,
+- [05:59.890] Somalian migrants in Minnesota have defrauded nearly $1 billion
+- [06:04.960] in taxpayer-funded benefits
+- [06:06.950] under Democrat Governor Walz's leadership.
+- [06:09.900] President Trump is putting an end
+- [06:11.630] to this dangerous America-last approach.
+- [06:14.410] His position is rooted in common sense.
+- [06:17.250] In the wake of last week's atrocity,
+- [06:19.100] it is more important than ever to finish carrying out
+- [06:21.600] the President's mass deportation operation.
+- [06:24.700] America cannot allow millions upon millions
+- [06:27.410] of unvetted illegal aliens to be rewarded with amnesty
+- [06:31.140] after they broke our nation's laws to come here.
+- [06:33.790] They must go back to their home countries.
+- [06:36.670] It is also essential to immediately address
+- [06:39.860] the massive fraud and corruption that has been going on
+- [06:42.930] for decades in other aspects of our immigration system,
+- [06:46.420] most notably when it comes to asylum claims.
+- [06:49.380] Millions of people who have come here under false pretenses
+- [06:53.500] and told blatant lies,
+- [06:54.990] now enjoy temporary legal status.
+- [06:58.300] President Trump is ending this scam as well.
+- [07:00.990] And I would point out that the Democrats have tried to block
+- [07:03.390] this administration from doing
+- [07:04.780] so at every turn with lawsuit after lawsuit.
+- [07:09.540] The hard truth is that even when it comes
+- [07:11.360] to our legal immigration system,
+- [07:13.770] past presidents have failed to ensure
+- [07:15.840] that all prospective citizens love America,
+- [07:19.610] will add value and contribute to our communities,
+- [07:22.590] and will assimilate into our culture.
+- [07:25.310] Leaders have a duty to defend
+- [07:27.160] and advance the interests of their own people,
+- [07:29.720] not foreign nationals.
+- [07:31.350] Leaders also have a duty to preserve the integrity
+- [07:34.220] and character of our nation's national identity.
+- [07:38.010] That is why President Trump is more committed
+- [07:40.220] than ever to fully restoring American sovereignty
+- [07:43.550] by keeping our borders secure,
+- [07:45.690] removing all illegal alien invaders,
+- [07:48.380] and rebuilding a legal immigration system
+- [07:51.400] that makes sense and benefits our country.
+- [07:54.770] President Trump has no higher responsibility
+- [07:57.120] than to defend our homeland and our people,
+- [08:00.150] and he will never waiver in doing so.
+- [08:02.500] With that, I will open it up to questions
+- [08:04.100] and we'll lead today with Isabelle Brown,
+- [08:05.680] who is in our new media seats.
+- [08:07.320] She's a very popular face on television these days.
+- [08:09.480] She's built a great independent media podcast
+- [08:12.430] and platform with The Daily Wire,
+- [08:13.740] and I appreciate your being here, Isabel.
+- [08:14.970] Thank you for being here.
+- [08:16.230] The Press: Thank you, Karoline.
+- [08:17.460] Appreciate it and appreciate the briefing.
+- [08:18.900] Many Americans, in light of these recent events,
+- [08:21.100] that you just mentioned are starting to say
+- [08:23.100] that we are being invaded as a country,
+- [08:25.040] culturally and logistically, when it comes to immigration.
+- [08:28.060] And we know that immigration without assimilation
+- [08:30.560] is indeed invasion.
+- [08:32.460] So given the recent remarks from Vice President Vance
+- [08:35.290] on a college campus about dramatically reducing
+- [08:37.790] legal immigration to address some of this crisis,
+- [08:40.660] and President Trump's Truth Social post last week
+- [08:42.840] about individuals
+- [08:44.060] who may be non-compatible with Western civilization,
+- [08:47.110] are there any conversations happening or plans
+- [08:49.140] being made behind the scenes for the administration to implement
+- [08:51.910] at least a temporary immigration moratorium,
+- [08:54.700] for example, in light of what the American people
+- [08:56.820] might be calling for?
+- [08:58.100] Karoline Leavitt: So Isabelle, it's a great question.
+- [08:59.670] I think I spoke a little bit
+- [09:00.990] to the heart of your question in my opener there.
+- [09:03.610] I would add that the Trump administration
+- [09:05.640] has done more to limit migration,
+- [09:08.020] both illegal and legal,
+- [09:09.710] than any administration in history.
+- [09:11.720] And I'll just walk you through some of the actions
+- [09:13.720] that we have taken thus far.
+- [09:14.970] Number one, the Trump administration
+- [09:17.300] issued a travel ban for 19 countries,
+- [09:19.510] including Afghanistan, special immigrant visas,
+- [09:22.720] which is a legal pathway to get here,
+- [09:24.830] which we know many Afghans have utilized
+- [09:26.500] to come into the country,
+- [09:27.730] have now been paused since the tragic shooting last week.
+- [09:31.200] Refugee admissions were suspended for Afghans
+- [09:34.410] from this administration on day one,
+- [09:36.670] and refugee admissions into the country right now
+- [09:38.830] are essentially at zero, with the exception of Afrikaners
+- [09:42.530] fleeing persecution in South Africa.
+- [09:44.880] The State Department has also heightened their scrutiny
+- [09:47.420] and vetting of all visas and have revoked visas,
+- [09:50.660] as you know, for those who do not align
+- [09:53.340] with our country's national interests.
+- [09:55.980] The Secretary of State has the right to do that,
+- [09:58.340] and we've taken unprecedented action to do just that.
+- [10:01.080] We are also now pausing all asylum adjudications
+- [10:04.080] for additional vetting as well. And so additional actions
+- [10:08.000] I don't have to read out for you today,
+- [10:09.380] but I would just remark that the president
+- [10:11.610] has made tremendous progress on this front.
+- [10:13.920] And it's so crucial that we not only secure the borders,
+- [10:18.340] which the president did in record time,
+- [10:20.020] we have zero illegal aliens
+- [10:22.560] entering into the country month after month,
+- [10:24.870] but we also are taking a look at those
+- [10:27.590] who are already in the interior of our country,
+- [10:30.330] and removing them if they are here illegally,
+- [10:32.680] and also taking a look at these visas.
+- [10:34.380] Again, having a visa in the United States
+- [10:36.890] is not a right, it is a privilege.
+- [10:38.710] And the Secretary of State, if you are deemed contrary
+- [10:41.710] to our country's foreign national interests,
+- [10:43.810] has the right to revoke that privilege.
+- [10:45.360] The Press: Thank you.
+- [10:46.560] Karoline Leavitt: Thank you. Gabe.
+- [10:48.140] The Press: Karoline, excuse me, regarding Venezuela,
+- [10:51.460] the president said yesterday that Secretary Hegseth
+- [10:55.960] had denied that reported second strike
+- [10:59.370] on an alleged drug vote on September 2nd.
+- [11:02.840] The secretary said to the president
+- [11:04.610] that that didn't happen.
+- [11:06.020] But to clarify, I just wanted you to clear this up.
+- [11:09.130] In his social media posts,
+- [11:10.450] Secretary Hegseth didn't go into details about that strike,
+- [11:13.560] he just said, "US operations in the area were lawful,"
+- [11:16.630] and he said that the story and media reports were fabricated.
+- [11:19.260] So to be clear, does the administration deny
+- [11:21.880] that that second strike happened,
+- [11:23.500] or did it happen and the administration denies
+- [11:26.330] that Secretary Hegseth gave the order?
+- [11:28.630] Karoline Leavitt: The latter is true, Gabe,
+- [11:30.010] and I have a statement to read for you here:
+- [11:32.550] "President Trump and Secretary Hegseth
+- [11:34.370] have made it clear that presidentially-designated
+- [11:37.610] narco terrorist groups are subject to lethal targeting
+- [11:41.370] in accordance with the laws of war.
+- [11:43.580] With respect to the strikes in question on September 2nd,
+- [11:46.940] Secretary Hegseth authorized Admiral Bradley
+- [11:49.690] to conduct these kinetic strikes.
+- [11:51.880] Admiral Bradley worked well within his authority
+- [11:54.340] and the law, directing the engagement
+- [11:56.560] to ensure the vote was destroyed,
+- [11:58.610] and the threat to the United States of America
+- [12:00.850] was eliminated."
+- [12:02.120] And I would just add one more point
+- [12:04.100] to remind the American public
+- [12:05.570] why these lethal strikes are taking place,
+- [12:07.980] because this administration has designated
+- [12:10.510] these narco terrorists as foreign terrorist organizations.
+- [12:13.850] The president has a right to take them out
+- [12:15.880] if they are threatening the United States of America,
+- [12:18.160] and if they are bringing illegal narcotics
+- [12:20.660] that are killing our citizens at a record rate,
+- [12:22.620] which is what they are doing.
+- [12:24.000] And under the previous administration,
+- [12:25.950] there was enough fentanyl trafficked into our country
+- [12:28.370] to kill every American man, woman,
+- [12:31.230] and child many times over.
+- [12:33.420] And so that's why you've seen a drastic difference
+- [12:36.090] in this administration's policy with respect to the last,
+- [12:39.010] and it's one of the many reasons the American public
+- [12:41.050] reelected this president
+- [12:42.450] and support this secretary of war
+- [12:44.200] in conducting these strikes.
+- [12:45.490] The Press: So to be clear, to clarify,
+- [12:46.900] Admiral Bradley was the one
+- [12:48.170] who gave that order for a second strike?
+- [12:49.570] Karoline Leavitt: And he was well
+- [12:50.810] within his authority to do so.
+- [12:52.040] The Press: And a separate question,
+- [12:53.360] the president several days ago said it was his intention
+- [12:56.500] to pardon the former president of Honduras,
+- [13:00.450] who was a convicted drug trafficker.
+- [13:02.330] And yesterday on Air Force One, the president said that,
+- [13:04.950] "If someone sells drugs in that country,
+- [13:06.930] that doesn't mean you arrest the president
+- [13:09.200] and put him in jail for the rest of his life."
+- [13:11.940] How is that different than what the administration
+- [13:14.100] is accusing Venezuela's Nicholas Maduro?
+- [13:16.550] Karoline Leavitt: You're cherry- picking
+- [13:17.760] the president's statement a little bit yesterday.
+- [13:19.830] As he also said yesterday,
+- [13:21.160] the people of Honduras have highlighted to him
+- [13:23.900] how the former President Hernandez was set up.
+- [13:27.160] This was a clear Biden over-prosecution.
+- [13:30.440] He was the president of this country,
+- [13:32.060] he was in the opposition party,
+- [13:34.110] he was opposed to the values of the previous administration,
+- [13:36.770] and they charged him because he was president of Honduras.
+- [13:41.130] There were some other egregious facts
+- [13:43.310] that came out during this trial,
+- [13:44.940] and I would encourage you to report on them.
+- [13:46.970] His court-appointed lawyer
+- [13:48.350] was only given three weeks to prepare for trial.
+- [13:51.250] He shared that his conviction was lawfair by the leftist party
+- [13:54.440] who "struck a deal" with the Biden-Harris administration.
+- [13:58.330] Hernandez has highlighted there was virtually
+- [14:00.370] no independent evidence presented,
+- [14:03.250] and his conviction was based on testimony
+- [14:06.030] from many admitted criminals who hoped that cooperating
+- [14:09.380] would reduce their own penalties.
+- [14:10.760] So the president heard the concerns from many people,
+- [14:12.710] as he does,
+- [14:13.930] and he's of course within his constitutional authority
+- [14:16.710] to sign clemency for whomever he deems worthy of that.
+- [14:19.460] Jackie.
+- [14:20.790] The Press: Thank you, Karoline. Following up on Gabe's question,
+- [14:23.920] you said that the follow-up strike was lawful.
+- [14:28.190] What law is it that allows no survivors?
+- [14:32.370] Karoline Leavitt: The strike conducted on September 2nd
+- [14:34.200] was conducted in self-defense to protect Americans
+- [14:36.810] in vital United States interests.
+- [14:38.800] The strike was conducted in international waters
+- [14:41.120] and in accordance with the law of armed conflict.
+- [14:43.760] The Press: And then on this pardon
+- [14:45.360] for the Honduran president,
+- [14:47.770] does it at all undercut the administration's messaging
+- [14:51.880] while you have these congressional Republicans
+- [14:53.500] defending the strikes on the narco terrorists,
+- [14:56.080] and then a pardon for a convicted drug trafficker,
+- [14:59.390] does that make it more difficult for your members
+- [15:02.470] to defend your administration's policy?
+- [15:05.700] Karoline Leavitt: I don't think so, Jackie.
+- [15:07.020] I think that President Trump has been quite clear
+- [15:10.000] in his defense of the United States home land
+- [15:12.180] to stop these illegal narcotics from coming to our borders,
+- [15:15.460] whether that's by land or by sea.
+- [15:17.510] And he's also made it quite clear
+- [15:18.930] that he wants to correct the wrongs
+- [15:20.720] of the weaponized Justice Department
+- [15:22.800] under the previous administration.
+- [15:24.220] And Wija, I'll call on you
+- [15:25.420] because I think we're wearing matching blazers today.
+- [15:27.470] The Press: I was going to compliment yours.
+- [15:28.810] Karoline Leavitt: Great minds.
+- [15:30.080] The Press: Thank you, Karoline.
+- [15:31.370] So just to be clear, to clarify on Jackie and Gabe,
+- [15:35.210] did Admiral Bradley order that second strike
+- [15:38.740] because there were still survivors
+- [15:40.810] after the initial strike?
+- [15:42.140] Karoline Leavitt: Again, as I read for you,
+- [15:43.420] Admiral Bradley worked well
+- [15:44.760] within his authority and the law.
+- [15:46.250] He directed the engagement to ensure the boat was destroyed
+- [15:49.820] and the threat of narco terrorists to the United States
+- [15:52.630] was completely eliminated.
+- [15:53.910] The Press: So was the initial order from Secretary Hegseth
+- [15:57.570] everyone be killed,
+- [15:58.810] and did that come from President Trump?
+- [16:00.390] Karoline Leavitt: I saw that quoted
+- [16:01.630] in a Washington Post story.
+- [16:03.010] I would reject that the Secretary of War ever said that.
+- [16:07.520] However, the President has made it quite clear
+- [16:09.610] that if narco terrorists, again,
+- [16:11.140] are trafficking illegal drugs towards the United States,
+- [16:14.890] he has the authority to kill them.
+- [16:16.290] And that's what this administration is doing.
+- [16:17.790] Danny?
+- [16:19.000] The Press: Can I follow up on the MRI,
+- [16:20.210] because President Trump yesterday said
+- [16:21.850] that he would release the results of his MRI.
+- [16:25.370] Is that happening right now?
+- [16:26.590] Karoline Leavitt: It is happening right now.
+- [16:28.230] As part of, and this is a summary
+- [16:30.100] from the president's physician,
+- [16:31.530] and we will release it right now.
+- [16:34.010] I think my team has it teed up for all of you.
+- [16:35.600] I'll read it for you,
+- [16:36.810] and then you'll get it physically as well:
+- [16:39.070] "As part of President Trump's comprehensive executive
+- [16:41.810] physical, advanced imaging was performed
+- [16:44.430] because men in his age group benefit
+- [16:46.510] from a thorough evaluation of cardiovascular
+- [16:49.600] and abdominal health.
+- [16:51.000] The purpose of this imaging is preventative to identify
+- [16:54.370] any issues early, confirm overall health,
+- [16:57.240] and ensure the president maintains
+- [16:58.890] long-term vitality and function.
+- [17:01.520] "President Trump's cardiovascular imaging
+- [17:03.770] was perfectly normal.
+- [17:05.280] No evidence of arterial narrowing,
+- [17:07.300] impairing blood flow or abnormalities in the heart
+- [17:10.090] or major vessels.
+- [17:11.500] The heart chambers are normal in size,
+- [17:13.630] the vessel walls appear smooth and healthy,
+- [17:15.920] and there are no signs of inflammation or clotting.
+- [17:18.730] Overall, his cardiovascular system shows excellent health.
+- [17:22.990] His abdominal imaging is also perfectly normal.
+- [17:26.300] All major organs appear very healthy and well- perfused.
+- [17:29.730] Everything evaluated is functioning within normal limits
+- [17:32.940] with no acute or chronic concerns.
+- [17:35.470] "In summary, this level of detailed assessment
+- [17:38.100] is standard for an executive
+- [17:39.480] physical at President Trump's age
+- [17:41.450] and confirms that he remains in excellent overall health."
+- [17:44.740] Again, we will provide that to you.
+- [17:46.160] I think that's quite a bit of detail
+- [17:47.920] in the effort of transparency.
+- [17:49.190] The president promised it last night,
+- [17:50.790] and we have delivered today. So there you go.
+- [17:52.420] Danny.
+- [17:53.640] The Press: Thanks, Karoline. Just going back to Venezuela,
+- [17:55.940] can you confirm that President Trump
+- [17:57.650] is going to be hosting a meeting of his national security team
+- [18:00.910] in the Oval Office today on Venezuela.
+- [18:03.240] And what are they going to discuss?
+- [18:04.710] Are they hoping to reach a kind of final decision on that?
+- [18:08.450] Karoline Leavitt: Out of the effort of transparency,
+- [18:10.060] I will confirm that the president will be meeting
+- [18:12.080] with his national securities team
+- [18:13.920] on this subject and on many matters.
+- [18:15.840] He meets with his national security team quite often.
+- [18:18.570] He's the commander-in-chief. It's part of his responsibility
+- [18:21.610] to ensure that peace is ongoing throughout the world.
+- [18:24.440] I'm definitely not going to detail these specifics
+- [18:26.480] of a meeting between the president
+- [18:27.950] and his national security team
+- [18:29.470] that's taking place in the Oval Office,
+- [18:31.010] but I'm happy to confirm that meeting is taking place for you.
+- [18:34.020] The Press: Can you tell us, what's the position
+- [18:37.920] on whether US troops on the ground
+- [18:40.530] is a possibility there?
+- [18:42.650] I know you've answered that before,
+- [18:43.900] but what's the current operative (inaudible)?
+- [18:45.500] Karoline Leavitt: In Venezuela?
+- [18:47.150] I think my previous answer stands.
+- [18:48.720] There's many options at the president's disposal
+- [18:51.240] that are on the table and I'll let him speak on those.
+- [18:53.570] Ed?
+- [18:54.810] The Press: Thanks, Karoline.
+- [18:56.060] The US announced a trade framework deal
+- [18:58.030] with the United Kingdom on pharmaceuticals
+- [19:00.290] where they will pay 25% more
+- [19:02.310] and the savings theoretically will go back
+- [19:03.980] to American consumers. What guarantees are in that,
+- [19:06.670] that that savings will in fact go back to the American consumer
+- [19:09.970] and not be sucked up by the company?
+- [19:12.030] Karoline Leavitt: I'm going to be honest with you, Ed.
+- [19:13.580] I'll get you the answer to that question after the briefing.
+- [19:16.640] The Press: So the American Rescue Plan
+- [19:20.240] funded a number of universal income --
+- [19:22.040] Karoline Leavitt: Kush will get you that answer, right, Kush?
+- [19:23.990] My trade guy over here.
+- [19:25.250] The Press: Thanks, Kush. The American Rescue Plan
+- [19:27.000] funded a number of universal basic income programs.
+- [19:31.200] Now Cook County, Illinois is extending that program into 2026
+- [19:35.170] with seven and a half million dollars of taxpayer money.
+- [19:37.550] What does the White House think about that?
+- [19:38.950] Karoline Leavitt: I'll also get you an answer on that
+- [19:40.380] after the briefing, Ed.
+- [19:41.620] The Press: Two for two.
+- [19:42.950] Karoline Leavitt: Go ahead. Sure.
+- [19:44.580] The Press: And then in the interest of transparency,
+- [19:46.710] does the White House support releasing
+- [19:49.280] the Department of Defense's video of those September
+- [19:52.580] 2nd strikes on those military boats?
+- [19:54.280] And also, separate topic on presidential pardon power.
+- [19:56.780] Why did the president
+- [19:58.000] commute the sentence of David Gentile recently?
+- [20:00.220] He was a private equity executive.
+- [20:02.750] He served 12 days out of a seven-year sentence.
+- [20:05.100] The prosecutor said he defrauded $1.6 billion,
+- [20:09.950] with thousands of victims, including veterans,
+- [20:13.060] farmers, teachers. Why was he pardoned?
+- [20:15.470] Karoline Leavitt: To your first question,
+- [20:16.740] that's definitely not a decision for me to make.
+- [20:18.450] I would defer you to the Department of War.
+- [20:20.730] It's also probably a decision
+- [20:22.180] for the president himself to make.
+- [20:23.790] As for your second question with respect to that pardon,
+- [20:26.430] he issued a commutation for Mr. Gentile,
+- [20:29.380] who's the former CEO and co-founder
+- [20:31.240] of GBP Capital Holdings. Unlike similar companies,
+- [20:35.090] GBP paid regular annualized distributions to its investors.
+- [20:39.380] In 2015, GBP disclosed to investors the possibility
+- [20:43.490] of using investor capital to pay some of these distributions
+- [20:46.600] rather than funding them from current operations.
+- [20:49.390] Even though this was disclosed to investors,
+- [20:51.470] the Biden Department of Justice claimed it was a Ponzi scheme.
+- [20:54.680] This claim was profoundly undercut by the fact
+- [20:57.060] that GBP had explicitly told investors what would happen.
+- [21:00.910] At trial, the government was unable to tie
+- [21:03.130] any supposedly fraudulent representations to Mr. Gentile.
+- [21:06.850] In short, again, this is another example
+- [21:08.680] that has been brought to the president's attention
+- [21:10.740] of a weaponization of justice
+- [21:12.180] from the previous administration,
+- [21:13.480] and therefore he signed this commutation.
+- [21:14.680] The Press: (inaudible)
+- [21:15.880] statements though say that these people were defrauded.
+- [21:18.700] Karoline Leavitt: I just read you a very detailed summary
+- [21:21.510] of why the commutation was made. Sure.
+- [21:25.300] In the middle with the red tie.
+- [21:26.690] The Press: Thank you, Karoline.
+- [21:27.910] Karoline Leavitt: Okay. Andrew, go ahead and then you.
+- [21:29.220] The Press: In the wake of Congresswoman Marjorie Taylor
+- [21:31.920] Green's early resignation, reports last week indicated
+- [21:35.700] that other House Republicans might consider doing the same.
+- [21:38.940] Does the president have any concerns
+- [21:41.390] in light of those reports about other House Republicans
+- [21:44.360] potentially leaving early as well as the other announced
+- [21:46.490] retirements that we saw in the last couple of days?
+- [21:49.120] Karoline Leavitt: Look, I think the president
+- [21:50.460] maintains very good relationships
+- [21:52.510] with the vast majority,
+- [21:54.600] maybe with the exception of one or two,
+- [21:56.390] and I think many in this room know who I'm referring to.
+- [21:59.290] Very good relationships with members of Capitol Hill
+- [22:02.090] within the Republican Party.
+- [22:03.610] And the president clearly is the unequivocal leader
+- [22:05.720] of the Republican Party.
+- [22:06.970] I think it was a recent CNN poll
+- [22:09.000] that actually showed that more than 90 percent of Republicans
+- [22:12.570] continue to support President Trump as the leader.
+- [22:14.610] So he maintains very good relations,
+- [22:16.680] as does his entire team here at the White House.
+- [22:19.360] And of course, we have a very slim margin in the house
+- [22:21.480] and the president wants that to continue.
+- [22:23.460] Andrew, go ahead.
+- [22:24.800] The Press: I've got two for you.
+- [22:26.000] Karoline Leavitt: Sure.
+- [22:27.250] The Press: The first one, the Venezuela strike.
+- [22:29.220] You said that that second strike was in full accordance
+- [22:33.790] with the law of armed conflict,
+- [22:35.440] but the Navy's own manual of law of war
+- [22:40.590] says that specifically firing on survivors from a wrecked vessel
+- [22:48.080] is an example of a war crime that's forbidden under US law
+- [22:52.840] and the law of armed conflict.
+- [22:54.850] So how was that second strike in following law of armed conflict?
+- [23:00.830] And then second on immigration.
+- [23:02.260] Karoline Leavitt: Again, Andrew, I would reiterate to you,
+- [23:04.070] the strike was conducted in international waters
+- [23:06.510] and in accordance with the law of armed conflict.
+- [23:09.100] And since somebody asked about Congress
+- [23:11.260] and it's sort of related to Venezuela,
+- [23:13.090] I also want to add that Secretary Hegseth
+- [23:15.780] spoke with members of Congress
+- [23:17.550] who may have expressed some concerns over the weekend.
+- [23:20.120] And there have also been 13 bipartisan briefings
+- [23:23.570] to Congress on the Venezuelan strikes.
+- [23:26.080] There have been a number of document reviews
+- [23:28.460] for members of Congress to review, the classified DOJ,
+- [23:31.390] Office of Legal Counsel opinion and other related documents.
+- [23:35.040] 29 senators and 92 representatives
+- [23:37.780] have reviewed those documents,
+- [23:39.060] which is about two thirds of those are Democrat members
+- [23:42.250] and they have been made available to all 100 senators,
+- [23:46.530] all 435 members of the House
+- [23:49.010] and to general councils of the relevant committees
+- [23:51.280] on a bipartisan basis for their review.
+- [23:54.580] The Press: On immigration, during your topper, you said,
+- [23:57.510] and I quote, "Leaders also have a duty to preserve the integrity
+- [24:01.100] and character of our nation's national identity."
+- [24:05.300] Can you explain what you mean by our nation's
+- [24:09.790] national identity and integrity and character
+- [24:13.440] and how would refugees,
+- [24:16.080] people coming from war torn places
+- [24:18.680] who are seeking a safe haven in America,
+- [24:21.440] like many of our forebears in this room,
+- [24:24.430] not add to our nation's integrity and character
+- [24:27.900] of our national identity.
+- [24:29.440] Karoline Leavitt: I'll tell you what does not add
+- [24:30.980] to our nation's character and integrity
+- [24:33.330] is refugees who come here under the alleged plight of asylum
+- [24:38.250] and fleeing persecution,
+- [24:39.790] and then come to the United States
+- [24:41.330] to abuse our system and rip off American taxpayers.
+- [24:44.660] And as I pointed out, the New York Times,
+- [24:46.800] to their credit, it was about six months too late,
+- [24:48.890] but they did write about how Somali immigrants in Minnesota
+- [24:53.080] have been ripping off American taxpayers.
+- [24:55.230] In fact, 86 people have been charged in a rampant
+- [24:58.740] and widespread fraud scheme
+- [25:00.260] spanning multiple programs in Minnesota.
+- [25:03.220] Of those 86, 78 of those people are Somali, 91% of them charged.
+- [25:08.910] So far, 59 of those people have been convicted
+- [25:12.410] for their roles in fraud plots
+- [25:14.230] that have stolen $1 billion from taxpayers.
+- [25:18.400] In one scheme, and this is egregious,
+- [25:20.320] a nonprofit and its affiliates with these Somali
+- [25:23.440] migrants claim to have fed tens of thousands
+- [25:26.360] of American children during the pandemic.
+- [25:28.630] They were reimbursed for those meals by taxpayers.
+- [25:32.480] However, federal prosecutors
+- [25:34.090] found that almost all of those meals
+- [25:36.480] were never even delivered to hungry children.
+- [25:39.100] In fact, those organizations' leaders
+- [25:41.180] spent the money on houses, luxury cars,
+- [25:44.100] and real estate in Turkey and Kenya.
+- [25:46.610] Another scheme involved hundreds of organizations
+- [25:49.170] who were reimbursed for services
+- [25:51.020] that were supposed to help people at risk of homelessness.
+- [25:53.640] Once again, those services were never provided.
+- [25:56.430] All of this has happened under Democrat leadership
+- [25:59.170] in a Democrat-run state where these refugees,
+- [26:01.810] these migrants are coming to the United States,
+- [26:03.710] they are abusing our system, they are draining our resources
+- [26:06.430] that should be going to law-abiding,
+- [26:09.940] taxpaying Americans.
+- [26:11.280] And this president is not going to put up with it anymore.
+- [26:13.250] Rachel.
+- [26:14.480] The Press: Thank you, Karoline.
+- [26:15.790] Just to follow back up on the Washington Post reporting.
+- [26:18.620] So much of the concern from Democrats and Republicans
+- [26:21.290] is focused on the survivors.
+- [26:24.080] Why won't the administration either confirm or deny
+- [26:27.040] or reveal whether or not there were survivors
+- [26:29.680] after that initial first strike?
+- [26:31.820] And what imminent threat would two survivors pose
+- [26:35.000] who were clinging presumably to the wreckage of that boat?
+- [26:37.650] Karoline Leavitt: Again, as I said,
+- [26:38.890] I think you guys are sort of not listening fully
+- [26:41.250] to the statement I've provided.
+- [26:42.650] Admiral Bradley worked well within his authority
+- [26:44.950] and the law, directing the engagement
+- [26:46.980] to ensure the boat was totally destroyed
+- [26:49.230] and the threat to the narco terrorists,
+- [26:51.700] to the United States, was eliminated.
+- [26:54.240] And for any further questions about his thinking,
+- [26:56.800] I would defer you to the Department of War.
+- [26:58.330] I obviously wasn't in the room for the (inaudible)-
+- [27:00.160] The Press: Just to follow up, Karoline.
+- [27:01.380] Just on the administration's policy
+- [27:02.980] when it comes to survivors, was there a change in policy
+- [27:07.340] after this strike on September 2nd?
+- [27:10.680] The Washington Post is reporting that these two survivors
+- [27:13.260] were killed after a second strike,
+- [27:15.120] but then in October, two people were rescued
+- [27:18.480] and returned to Columbia and Ecuador.
+- [27:20.430] So was there a decision that was made to handle survivors
+- [27:23.280] differently after these strikes?
+- [27:25.250] Karoline Leavitt: Not to my knowledge, no.
+- [27:26.750] Steve.
+- [27:27.980] The Press: The president confirmed
+- [27:29.180] that he spoke to the Venezuelan leader.
+- [27:31.250] Are you trying to negotiate his departure?
+- [27:33.960] Is there an asylum deal under (inaudible)?
+- [27:35.810] Karoline Leavitt: The president,
+- [27:37.100] as you know last night on Air Force One,
+- [27:38.630] he said, "I don't want to comment on that,
+- [27:40.580] but I did speak to him, in the effort of transparency."
+- [27:43.810] So there you go. You got your confirmation.
+- [27:45.590] I'll let him speak further if he wishes to on the details
+- [27:48.990] of that conversation that took place.
+- [27:50.540] The Press: And then Steve Witkoff is headed to Moscow.
+- [27:51.960] Karoline Leavitt: Yes.
+- [27:53.190] The Press: How close are you to some sort of Ukraine agreement?
+- [27:56.100] Karoline Leavitt: I think the administration
+- [27:57.300] feels very optimistic.
+- [27:58.700] Obviously you've seen Steve, the president's entire team,
+- [28:01.600] including Special Envoy Witkoff and Secretary Rubio
+- [28:04.930] and the vice president and the president himself,
+- [28:07.570] Secretary Hegseth as well,
+- [28:09.320] have been working so hard on this effort.
+- [28:11.530] And they all really want to see this war come to an end.
+- [28:14.680] And so just yesterday, Sunday, I believe that was yesterday,
+- [28:19.050] they had very good talks with the Ukrainians in Florida.
+- [28:21.370] And now of course Special Envoy Witkoff is on his way to Russia.
+- [28:24.270] This is sort of the shuttle diplomacy
+- [28:26.330] that you've seen from this administration play out
+- [28:28.350] where we speak equally with both sides.
+- [28:30.260] We've put points on paper.
+- [28:31.600] Those points have been very much refined,
+- [28:34.070] but as for the details, I will let the negotiators negotiate,
+- [28:37.300] but we do feel quite good
+- [28:38.890] and we're hopeful that this war can finally come to an end.
+- [28:41.470] Steven?
+- [28:42.690] The Press: Thank you, Karoline.
+- [28:43.910] I've got a question about Ukraine and then a clarification
+- [28:46.900] about immigration changes that are happening.
+- [28:49.820] On Ukraine, President Trump very briefly yesterday
+- [28:52.860] said that corruption issues there were not helpful
+- [28:56.010] to the peace process following the resignation
+- [28:57.850] on Friday of President Zelenskyy's top aid,
+- [28:59.810] Andriy Yermak.
+- [29:01.430] We were told from your podium in the prior administration that
+- [29:05.440] "There is no indication
+- [29:06.820] that there's been any kind of widespread corruption
+- [29:09.150] involving US resources in Ukraine."
+- [29:12.060] What is the Trump administration's view
+- [29:13.460] of corruption issues
+- [29:14.660] in the wake of Yermak's resignation
+- [29:16.190] and how is that impacting peace works?
+- [29:17.460] Karoline Leavitt: Well, look,
+- [29:18.690] I think the president has made it quite clear
+- [29:20.390] as he said last night, corruption is never helpful.
+- [29:23.290] And he does not want to see American tax dollars
+- [29:25.530] taken advantage of,
+- [29:26.820] which is why he has stopped the endless checks
+- [29:29.150] that were being written
+- [29:30.500] by the previous administration to fund this war.
+- [29:33.070] The United States is selling weapons to NATO
+- [29:35.820] that are being sent to Ukraine. That's a very different thing
+- [29:38.420] than the American people writing blank checks
+- [29:40.250] to a war effort very far away.
+- [29:42.200] It does not degrade the administration's determination
+- [29:46.060] to see this war come to an end,
+- [29:47.310] but I think it exemplifies the president's desire
+- [29:50.040] to always put the American people
+- [29:51.460] and the American taxpayer first.
+- [29:53.530] The Press: On immigration, you mentioned or you emphasized
+- [29:56.650] that there would be a review of the Afghans
+- [29:58.530] who were resettled here under the previous administration.
+- [30:00.350] Karoline Leavitt: Yes.
+- [30:01.550] The Press: There's a lot of changes
+- [30:02.750] happening right now to asylum and to green card holders.
+- [30:06.980] What should the 2 million people with pending asylum claims
+- [30:10.900] or the roughly million people
+- [30:12.200] from the 18 other countries of concern know
+- [30:15.060] about what's going on in the review?
+- [30:18.160] What's the status of all these other people?
+- [30:20.220] Karoline Leavitt: They're essentially paused for review.
+- [30:22.540] And the Department of Homeland Security
+- [30:24.140] is taking this very seriously because we are not going
+- [30:27.120] to allow soldiers like we saw in American streets last week
+- [30:31.420] to be gunned down at the hands of these foreign nationals
+- [30:34.360] who had the privilege of coming to the United States of America.
+- [30:37.240] And unfortunately, this is not the only example
+- [30:40.050] of a dangerous Afghan who was let in by Joe Biden
+- [30:42.680] who went on to harm the American people.
+- [30:44.790] There was an Afghan national who was led into the country
+- [30:47.250] under the Biden administration through Operation Allies
+- [30:49.290] Welcome,
+- [30:50.530] who shot and wounded two Fairfax Virginia police officers
+- [30:54.010] during a routine traffic stop.
+- [30:55.860] He was killed by return fire after declaring,
+- [30:58.780] " I should have served with the explicative Taliban."
+- [31:02.760] Two Afghan nationals were given legal status
+- [31:05.130] by the Biden administration as well who were arrested
+- [31:07.690] and prosecuted for plotting a terrorist attack in Oklahoma
+- [31:11.260] just before election day in 2024.
+- [31:13.500] We all remember that.
+- [31:14.830] They possessed hundreds of rounds of ammunition
+- [31:16.950] and had pledged their allegiance to ISIS.
+- [31:19.140] There was also an Afghan national
+- [31:20.640] who was on the terror watch list
+- [31:21.970] who was apprehended by Border Patrol in 2024,
+- [31:25.140] but then he was released into our country
+- [31:27.810] by the Biden administration.
+- [31:29.310] Again, let's just highlight the absurdity of that.
+- [31:32.420] Border Patrol apprehended a terrorist
+- [31:34.720] and then the Biden administration,
+- [31:36.050] because of their lacks policies,
+- [31:37.720] still allowed him to come into the United States of America.
+- [31:40.830] I think everyone in this room,
+- [31:42.120] whether you want to admit it or not,
+- [31:43.410] does not want that individual living alongside you
+- [31:46.470] in your American neighborhood.
+- [31:48.030] And that individual was later arrested again
+- [31:50.760] after being allowed to live in the US at large for over a year.
+- [31:54.270] Another one, a criminal illegal alien from Afghanistan
+- [31:56.920] was arrested by ICE in 2025,
+- [31:59.390] convicted of second degree assault,
+- [32:01.060] was previously allowed to stay in the country
+- [32:02.840] by the Biden administration.
+- [32:04.540] I have several more examples here.
+- [32:05.830] I'm happy to provide them to anyone in this room.
+- [32:07.710] John?
+- [32:08.960] The Press: Thank you, Karoline.
+- [32:10.230] First of all, happy Thanksgiving to you and your young family.
+- [32:12.520] Karoline Leavitt: Thank you. Thank you.
+- [32:13.730] The Press: Hope you enjoyed it. Karoline Leavitt: You, too.
+- [32:14.930] The Press: I have two questions unrelated.
+- [32:16.180] The first fact to Afghanistan,
+- [32:18.550] my son and I walked by the horrific shooting
+- [32:22.470] less than one hour before it happened.
+- [32:25.230] So for anybody that's here, this thing's real.
+- [32:28.510] You outlined all of these unvetted Afghans
+- [32:31.890] that were let in by Biden. We just had one the other day
+- [32:36.600] that was going to blow up a DHS building.
+- [32:39.080] Can you be specific on what the Trump administration
+- [32:42.370] is doing now to revet those that are here
+- [32:46.200] so that we don't get a repeat of what we had Wednesday night?
+- [32:49.400] Karoline Leavitt: Sure.
+- [32:50.640] I can tell you two top level things
+- [32:52.240] and I would defer you to DHS for more of the specifics
+- [32:54.630] as of course they are leading this effort.
+- [32:56.780] And I can assure you Secretary Noem is on the ball.
+- [32:59.380] I've spoken with her and her team
+- [33:00.830] and they have a all hands on deck effort
+- [33:03.180] to having resources go towards this.
+- [33:07.080] But we have paused all asylum adjudications.
+- [33:09.500] And then of course the special immigrant visas,
+- [33:11.750] which we know many Afghans utilize to come into the country
+- [33:14.410] under the Biden administration, have also now been paused.
+- [33:17.470] And I would just point out one more time
+- [33:19.720] that the Biden administration was responsible
+- [33:22.340] for the original sin
+- [33:23.590] that led to this tragic killing last week,
+- [33:25.950] the botched withdrawal from Afghanistan.
+- [33:28.050] He was responsible for Operation Allies
+- [33:30.000] Welcome, which is something that this White House
+- [33:32.410] and the people behind this podium
+- [33:35.290] in the last administration fully and wholeheartedly embraced.
+- [33:38.820] And they assured the American people
+- [33:40.290] there would be no risk or no harm to them.
+- [33:42.410] And as I just laid out for you in those many examples,
+- [33:44.660] that unfortunately and tragically
+- [33:46.620] has not turned out to be the truth.
+- [33:47.980] Just ask the families of these two brave National Guardsmen,
+- [33:51.760] one who is no longer with us
+- [33:53.120] and one who continues to fight for his life.
+- [33:54.900] So I know the president
+- [33:56.290] is wholeheartedly focused on this effort.
+- [33:58.200] And I think unfortunately these events do remind us
+- [34:01.070] why it's so important that the president's mass
+- [34:03.320] deportation operation continues. With that-
+- [34:05.970] The Press: Just follow up.
+- [34:07.240] Karoline Leavitt: Sure.
+- [34:08.570] The Press: The White House today launched a new fake news portal,
+- [34:14.490] which I found interesting.
+- [34:16.920] What is your objective with that ultimately
+- [34:19.790] and are you going to name the news networks
+- [34:22.010] and are you also going to name some of the correspondence,
+- [34:24.720] some which may be here today?
+- [34:27.180] Karoline Leavitt: Yes, we are.
+- [34:29.230] I'm glad you noticed, much to the dismay
+- [34:32.090] of some of your colleagues in the room, John.
+- [34:33.870] And I think it goes to our original promise on day
+- [34:36.210] one to hold the media accountable
+- [34:39.310] because unfortunately,
+- [34:40.680] and we deal with this all day, every day around here,
+- [34:43.550] there are so many fake stories that are unfortunately
+- [34:45.940] written that have inaccurate characterizations of meetings
+- [34:49.650] that took place and it's all based on anonymous sourcing.
+- [34:52.960] And the standard for journalism unfortunately
+- [34:55.400] has dropped to such a historic low in this country.
+- [34:58.200] And again, we deal with it every day
+- [35:00.270] where you can have an anonymous source
+- [35:01.830] who has no idea what they're talking about,
+- [35:03.950] zero credibility, call up a reporter in Washington
+- [35:06.950] and say, "Hey, I heard this."
+- [35:08.270] And then the next thing you know,
+- [35:09.580] it's on the front page of the New York Times.
+- [35:11.530] It's really incomprehensible.
+- [35:12.800] We appreciate the journalists,
+- [35:14.380] some of those who are in this room
+- [35:15.710] who do reach out for comment,
+- [35:17.360] who try to get things right, and there are some that remain.
+- [35:20.290] But overwhelmingly, the fake news that we see
+- [35:22.880] pumped out of this building on a day-to-day basis,
+- [35:25.890] it's honestly overwhelming to keep up with it all
+- [35:29.000] and to constantly have to defend
+- [35:30.440] against these fake news and these attacks.
+- [35:32.490] And I will point out one fake news story over the weekend
+- [35:35.160] before I let you all go from the New York Times
+- [35:37.950] that took about one-third of the president's daily calendar
+- [35:42.210] in his daily schedule
+- [35:43.740] and said that he's doing less than he did in his first term
+- [35:47.470] or he might not be fit for the job.
+- [35:49.400] That is unequivocally false.
+- [35:51.430] And it's deeply unfortunate that this story
+- [35:53.160] was written by the same outlet
+- [35:55.060] and the same reporter who wrote this.
+- [35:57.910] "Biden is doing 100% fine after tripping
+- [36:01.310] while boarding Air Force One."
+- [36:03.300] Oh, same outlet, same reporter who wrote
+- [36:06.260] that President Trump is not fit for the job.
+- [36:07.940] Are you kidding me?
+- [36:09.150] You all see him almost every single day.
+- [36:11.720] He is the most accessible president in history.
+- [36:13.860] He is taking meetings around the clock.
+- [36:15.920] Another one, Biden declared
+- [36:18.210] "healthy and vigorous after his first presidential physical."
+- [36:22.920] I don't see headlines like that too often about this president.
+- [36:25.560] Again, same reporter, same outlet
+- [36:28.110] who wrote falsely over the weekend
+- [36:30.040] that President Trump is not fit for the job.
+- [36:32.100] I can assure you he absolutely is.
+- [36:34.360] You all see that with your own eyes on a daily basis
+- [36:36.660] and the president's position has now
+- [36:38.630] given you all three detailed reports
+- [36:41.400] on the state of the president's health.
+- [36:42.830] So with that, I will leave you all and we'll see you tomorrow.
+- [36:44.790] Thank you.
+- [36:46.070] The Press: Thank you, Karoline.

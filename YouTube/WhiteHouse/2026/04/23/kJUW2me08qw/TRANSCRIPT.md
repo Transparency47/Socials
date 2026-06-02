@@ -1,0 +1,105 @@
+<!-- source: https://www.youtube.com/watch?v=kJUW2me08qw -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: kJUW2me08qw -->
+<!-- date_published: 2026-04-23T20:12:08+00:00 -->
+<!-- date_accessed: 2026-06-02T01:01:09.812380+00:00 -->
+
+# Transcript: President Trump is Making the Reflecting Pool Beautiful Again
+
+- [00:00.960] I thought I'd bring up a subject of
+- [00:03.440] interest. I do a lot of this [music] as
+- [00:05.560] president and try and save money.
+- [00:08.640] And one was the Lincoln Memorial
+- [00:11.160] Reflecting Pool, which everybody knows.
+- [00:13.240] That's where [music]
+- [00:14.480] Martin Luther King made his great speech
+- [00:16.760] and where others have likewise made
+- [00:18.720] great speeches and great events held
+- [00:20.760] there. [music] It's very famous. It was
+- [00:22.400] built in 1922
+- [00:24.480] and it's more than 2,000 ft long.
+- [00:27.720] It's 167 [music]
+- [00:29.160] ft wide. It's very big. That's like
+- [00:31.360] taller than any skyscraper, [music]
+- [00:32.840] 2,000 ft. And here's a picture of it.
+- [00:35.480] You probably recognize it. Right now
+- [00:37.400] it's got no water in it because
+- [00:39.300] >> [music]
+- [00:39.400] >> it was in terrible shape. It was filthy
+- [00:41.160] dirty
+- [00:42.360] and it leaked like a sieve
+- [00:44.540] >> [music]
+- [00:44.560] >> for many years.
+- [00:46.200] Yes, so I actually went over, went with
+- [00:48.080] Secret Service and a group of people and
+- [00:50.160] I take took a look at it. One of the
+- [00:52.520] people with me was Doug Burgum, our
+- [00:54.480] great Secretary of the Interior. This
+- [00:57.320] comes under his purview and he said,
+- [00:59.000] "Yes, we've had a lot of problems with
+- [01:00.720] it.
+- [01:01.560] It's not working. It hasn't [music]
+- [01:03.240] worked for many years.
+- [01:05.040] And it's always filthy dirty."
+- [01:07.280] And I said, "Well, we're going to solve
+- [01:08.520] the problem."
+- [01:10.080] And they had bids to fix it. They're
+- [01:12.760] going to take the stone out, which was
+- [01:15.120] granite, very expensive, very thick,
+- [01:17.800] and replace it with stone.
+- [01:20.080] And it was going to cost $300 million.
+- [01:23.320] And it was going to take maybe more than
+- [01:25.120] 3 years.
+- [01:26.800] And I said, "No, there's a better way of
+- [01:28.280] doing it." I said, "What we're going to
+- [01:29.840] do is I'm going to call
+- [01:32.160] all three of these [music] people that
+- [01:34.440] have worked for me in the past doing
+- [01:36.480] swimming pools. That's all they can do
+- [01:37.920] is a swimming pool." And [music]
+- [01:40.240] I said, "Give me a good price.
+- [01:42.280] We can do it for
+- [01:43.960] maybe a million and a half to $2 million
+- [01:46.280] as opposed [music] to
+- [01:48.320] $300 million.
+- [01:50.360] We scrubbed the surface of the existing
+- [01:53.120] granite [music] that's been there since
+- [01:54.520] 1922.
+- [01:56.720] We then grouted
+- [01:58.720] all of the granite,
+- [01:59.866] >> [music]
+- [01:59.880] >> fixed it up, took about 2 weeks.
+- [02:02.560] And now we have a nice clean surface
+- [02:05.106] >> [music]
+- [02:05.400] >> on which we're putting
+- [02:07.800] a industrial grade swimming pool
+- [02:11.640] topping.
+- [02:13.000] And they said, [music] "What color would
+- [02:14.440] you like, sir?" It's called American
+- [02:16.440] flag blue. I said, "That's the color I
+- [02:18.840] want. I want American [music] flag blue.
+- [02:21.600] It'll last for 40 or 50 years.
+- [02:24.756] >> [music]
+- [02:25.000] >> There'll be no leaks. There'll be no
+- [02:26.880] anything. It'll look gorgeous,
+- [02:28.680] beautiful."
+- [02:29.959] So, it's a story in business. And here's
+- [02:31.959] the difference, cuz somebody said,
+- [02:33.840] "Well, sir, but one, wouldn't it be a
+- [02:37.000] better job?" I said, "No, no. This is a
+- [02:38.640] much better job for much less money. It
+- [02:41.560] will look far more beautiful, more
+- [02:43.000] beautiful than it did in 1922 when they
+- [02:45.200] built it, much more beautiful." So, we
+- [02:47.200] build it in much less time for much less
+- [02:49.440] money. But, I don't mean much less. I
+- [02:51.520] mean numbers that nobody can even
+- [02:52.959] believe. So, it's
+- [02:54.231] >> [music]
+- [02:54.400] >> a million and a half dollars versus 300.
+- [02:58.320] It's 2 weeks
+- [03:00.320] versus [music] more than 3 years.
+- [03:03.400] And that's just the way it is. Thank
+- [03:05.367] [music] you for your attention to this
+- [03:06.800] matter.

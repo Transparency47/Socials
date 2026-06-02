@@ -1,0 +1,119 @@
+<!-- source: https://www.youtube.com/watch?v=oyNxhDTe2tk -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: oyNxhDTe2tk -->
+<!-- date_published: 2025-10-10T15:12:49+00:00 -->
+<!-- date_accessed: 2026-06-02T02:43:43.018316+00:00 -->
+
+# Transcript: Announcement by First Lady Melania Trump
+
+- [00:15.960] Good morning.
+- [00:18.880] A child's soul knows no borders,
+- [00:22.520] no fla- flags.
+- [00:25.000] We must foster a future for our children
+- [00:28.640] which is rich with potential, security,
+- [00:32.119] and complete with free will.
+- [00:35.520] A world where dreams will be realized
+- [00:39.080] rather than faded by war.
+- [00:43.160] Much has unfolded since President Putin
+- [00:46.240] received my letter last August.
+- [00:49.800] He responded in writing
+- [00:52.160] signaling a willingness to engage with
+- [00:55.200] me directly
+- [00:56.960] and outlining details regarding the
+- [01:00.120] Ukrainian children residing in Russia.
+- [01:05.239] And since then, President Putin and I
+- [01:08.560] have had an open channel of
+- [01:10.480] communication
+- [01:12.040] regarding the welfare of these children.
+- [01:17.440] For the past 3 months,
+- [01:19.760] both sides have participated in several
+- [01:23.920] back channel meetings and calls,
+- [01:26.880] all in good faith.
+- [01:29.600] We have agreed to cooperate with each
+- [01:31.920] other for the benefit of all people
+- [01:35.720] involved in this war.
+- [01:39.320] My representative has been working
+- [01:41.920] directly with President Putin's team
+- [01:45.240] to ensure the safe reunification of
+- [01:47.680] children with their families
+- [01:50.480] between Russia and Ukraine.
+- [01:54.080] In fact, eight children have been
+- [01:56.520] rejoined with their families during the
+- [01:59.360] past 24 hours.
+- [02:04.160] Each child has lived in turmoil because
+- [02:07.320] of the war in Ukraine.
+- [02:10.080] Three were separated from their parents
+- [02:13.280] and displaced to the Russian Federation
+- [02:16.960] because of frontline fighting.
+- [02:20.320] The other five were separated from
+- [02:22.880] family members across borders because of
+- [02:26.200] the conflict,
+- [02:27.960] including one young girl who has now
+- [02:30.800] been reunited from Ukraine to Russia.
+- [02:36.960] I have learned a lot about this matter
+- [02:38.960] during the past 3 months.
+- [02:41.840] Russia has demonstrated a willingness to
+- [02:44.760] disclose objective and detailed
+- [02:47.360] information reflective for the current
+- [02:51.120] situation.
+- [02:54.080] The Russian Federation provided
+- [02:56.280] biographies
+- [02:57.840] and photographs of each child involved
+- [03:00.760] in this week's reunification
+- [03:03.280] along with an overview of the social,
+- [03:06.720] medical, and psychological services
+- [03:10.120] afforded to the Ukrainian children.
+- [03:14.480] Further,
+- [03:16.040] I was provided a detailed report which
+- [03:18.800] verified the identities and
+- [03:22.120] circumstances of these eight
+- [03:24.040] individuals.
+- [03:26.440] The US government confirmed the facts
+- [03:29.800] contained within this document are
+- [03:32.320] accurate.
+- [03:34.840] It is important to note
+- [03:37.200] the original verification report was
+- [03:39.720] jointly prepared by the Commissioner of
+- [03:43.320] the Verkhovna Rada of Ukraine
+- [03:46.880] for human rights and office of the
+- [03:49.920] Russian Presidential Commissioner for
+- [03:52.520] children's rights.
+- [03:55.760] As first lady,
+- [03:57.560] this is an important initiative for me.
+- [04:01.080] It is built on shared purpose and
+- [04:03.640] lasting impact.
+- [04:06.360] My ongoing mission is twofold.
+- [04:11.800] To prioritize to op- optimize and and a
+- [04:15.920] transparent free flow exchange
+- [04:18.959] of health-related information
+- [04:20.920] surrounding all children who have fell
+- [04:23.600] victim to this war.
+- [04:26.600] And to facilitate the regular
+- [04:29.280] reunification of children with their
+- [04:31.840] families until each individual returns
+- [04:35.480] home.
+- [04:37.880] Additionally,
+- [04:39.760] I have raised concerns regarding those
+- [04:42.840] who were minors at the time they were
+- [04:45.280] displaced by the war
+- [04:47.560] but have since reached adulthood
+- [04:50.280] and currently reside in Russia.
+- [04:54.560] Given the dangers of traversing this
+- [04:57.400] war-torn region,
+- [04:59.360] their safe return requires coordinated
+- [05:02.040] assistance.
+- [05:04.120] Accordingly, Russia has agreed to rejoin
+- [05:07.240] the individuals who have turned 18
+- [05:10.200] within a short period of time.
+- [05:14.600] Again,
+- [05:16.520] this remains an ongoing effort.
+- [05:20.200] Plans are already underway to reunify
+- [05:23.240] more children in the immediate future.
+- [05:28.320] I hope peace will come soon.
+- [05:31.680] It can begin with our children.
+- [05:34.960] Thank you.
+- [05:36.560] Madam First Lady, are you speaking for
+- [05:38.440] President Putin?
+- [05:39.840] Madam First Lady, are you joining the
+- [05:41.280] president in the talks?

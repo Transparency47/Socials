@@ -1,0 +1,2714 @@
+<!-- source: https://www.youtube.com/watch?v=vaPfxaSIc0w -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: vaPfxaSIc0w -->
+<!-- date_published: 2026-02-19T17:03:14+00:00 -->
+<!-- date_accessed: 2026-06-02T02:37:45.656101+00:00 -->
+
+# Transcript: President Trump Participates in the Board of Peace Event
+
+- [00:01.450] Announcer: Ladies and gentlemen, please welcome
+- [00:03.190] the Vice President of the United States,
+- [00:05.810] JD Vance, Secretary of State Marco Rubio,
+- [00:08.950] Special Envoy Steve Witkoff,
+- [00:11.090] and the Executive Board Member Jared Kushner.
+- [00:16.090] (applause)
+- [00:32.690] Ladies and gentlemen, please welcome the President
+- [00:35.280] of the United States, Donald J. Trump.
+- [00:39.370] (applause)
+- [00:53.960] The President: Well, thank you very much.
+- [00:55.410] This is a big day and lots of people watching,
+- [01:00.380] and especially from other countries,
+- [01:03.060] the leaders of, as you know, the other countries
+- [01:04.940] because we have a large group of leaders.
+- [01:09.850] And the ones that aren't here are watching on Zoom.
+- [01:13.850] I hope they enjoy it.
+- [01:15.790] And the press, we appreciate it very much,
+- [01:18.060] so respectful, you've been so respectful of what we're doing.
+- [01:21.120] What we're doing is very simple piece.
+- [01:24.060] It's called the Board of Peace
+- [01:25.370] and it's all about an easy word to say,
+- [01:28.160] but a hard word to produce -- peace,
+- [01:31.310] but we're going to produce it.
+- [01:32.650] And we've been doing a really good job
+- [01:34.580] and some of these leaders that are with us
+- [01:37.490] have helped me very much during just this first year.
+- [01:40.510] We have a first year like probably no other
+- [01:42.810] ever in our country
+- [01:44.980] because we settled eight wars and I think a ninth to come.
+- [01:51.770] It's turned out to be a tougher one.
+- [01:53.450] I thought that was going to be the easiest one,
+- [01:56.330] but with war, you never know what's easy
+- [01:58.410] and what's not so easy.
+- [02:00.790] But we've had a great relationship,
+- [02:02.400] and I've become friendly with so many of the people
+- [02:05.560] and I appreciate you being here.
+- [02:07.580] These are great people; these are great leaders.
+- [02:10.240] And the people that are watching by closed circuit
+- [02:13.870] and open circuit in many cases --
+- [02:15.660] they're so proud of it, they want it to be open.
+- [02:18.410] But they've become incredible friends of mine.
+- [02:22.590] And you know, we rebuilt our country in my first term
+- [02:27.230] and now we're at a point
+- [02:29.180] that the United States has never seen before.
+- [02:31.680] We broke 50,000 on the Dow.
+- [02:34.940] They said they would take four years.
+- [02:37.230] We broke 7,000 on the S&P.
+- [02:40.310] They said you couldn't do that within four years;
+- [02:42.350] it would be impossible.
+- [02:44.290] And when I came in, they were all saying
+- [02:46.130] if he could get to anywhere close to 40,000, 45,000,
+- [02:49.660] it would be an amazing achievement over four years.
+- [02:51.890] Well, we hit 50,000 in the first year
+- [02:55.390] and we hit 7,000, which was actually tougher
+- [02:57.900] to do according to the Wall Street geniuses.
+- [03:00.970] We hit 7,000 in the first year.
+- [03:03.640] They said it could take four or five years.
+- [03:06.010] They'd be very happy. It would have been a great job.
+- [03:07.790] We did it in one. But we're doing a great job.
+- [03:12.390] The Board of Peace is one of the most important and consequential
+- [03:15.350] things I think that I'll be involved in,
+- [03:17.490] we've been involved in a lot.
+- [03:20.260] And really, I've been involved in a lot
+- [03:24.030] with the people up here.
+- [03:26.410] We worked together on ending wars with their country.
+- [03:31.150] Some of the wars were 32 years long -- 32, 34 to 37.
+- [03:35.910] That's a long time and we ended it in about two days,
+- [03:39.750] each one of those.
+- [03:41.750] But we have some other work to do and we're getting it done.
+- [03:45.600] Gaza is very complex, it's been amazing.
+- [03:49.350] I want to thank Steve and Jared for an amazing job.
+- [03:53.870] Marco is over there watching, everybody's fantastic, and JD --
+- [03:58.440] what a job they're all doing as a team.
+- [04:00.340] I think it's the best team ever assembled,
+- [04:03.030] and you see that by the results. So, today is a tremendous honor
+- [04:07.110] to welcome you all to the United States Institute of Peace
+- [04:12.420] for the inaugural meeting of the Board of Peace.
+- [04:15.170] Very important -- I believe it's the most consequential board
+- [04:18.990] certainly in terms of power. And in terms of prestige,
+- [04:23.050] there's never been anything close
+- [04:25.430] because these are the greatest world leaders,
+- [04:28.940] almost everybody is accepted,
+- [04:30.480] and the ones that haven't will be.
+- [04:33.180] Some are playing a little cute, doesn't work.
+- [04:35.410] You can't play cute with me.
+- [04:37.400] But they're playing a little bit, but they're all --
+- [04:40.460] they're all joining, everybody with --
+- [04:42.590] most of them very immediately; a few that we really don't want
+- [04:49.260] because they're trouble, take care of them.
+- [04:52.520] But this is the most prestigious board ever put together.
+- [04:56.980] You know, I've seen some great corporate boards.
+- [04:59.470] I've seen some great boards, period.
+- [05:01.750] It's peanuts compared to this board because we have --
+- [05:05.600] virtually every one is the head of a country other than Gianni,
+- [05:09.270] but he's the head of soccer.
+- [05:10.550] So, that's not so bad, right, Gianni?
+- [05:12.900] I like your job the best I think.
+- [05:15.070] And by the way,
+- [05:16.270] your World Cup has set every single ticket record
+- [05:20.720] in the history of soccer -- in the history --
+- [05:22.720] nobody's ever seen anything like it.
+- [05:24.760] The sales are virtually complete.
+- [05:28.130] Nobody's ever seen anything.
+- [05:29.550] So, congratulations. You made a good decision.
+- [05:33.000] We did it together. Thank you, Gianni. Great guy.
+- [05:36.480] So, I want to thank the many leaders and dignitaries
+- [05:39.380] who have traveled great distances and lengths
+- [05:41.860] for the important gathering that we're at right now.
+- [05:48.000] This building was built for peace,
+- [05:49.810] and nobody knew what to name it.
+- [05:51.170] And then Marco named it after me.
+- [05:52.750] I had nothing to do with it. I swear I didn't.
+- [05:55.850] I swear; I had no idea.
+- [05:57.690] They said there's a surprise coming.
+- [05:59.270] I didn't know the surprise.
+- [06:00.520] I thought they were going to give me a lot of money
+- [06:02.170] or something, maybe cash -- can always use some extra cash.
+- [06:05.850] But I came and they stopped the beautiful beast.
+- [06:09.670] I got out very safely, I'm sure, and looked up
+- [06:13.430] and there it said Donald J. Trump on the building.
+- [06:16.310] And when I say that that was -- had nothing to do --
+- [06:19.950] nobody believes it
+- [06:21.150] and that's OK, but I appreciated it.
+- [06:23.680] That was Marco and JD and a group got together
+- [06:26.100] and they did that and I just thought it was very nice
+- [06:29.040] and it makes me work harder.
+- [06:30.270] We're going to have to work harder.
+- [06:31.590] We're going to have to make this building much more important.
+- [06:33.630] They built -- it's brand new, they built it for peace,
+- [06:36.260] but nobody occupied it.
+- [06:37.940] Nobody knew what the purpose of it --
+- [06:40.150] but the architecture is so beautiful,
+- [06:42.710] and it was with the meeting rooms,
+- [06:45.330] the reception rooms, it's really amazing.
+- [06:48.560] Who would think that it was built
+- [06:51.840] without anybody in mind or anything in mind?
+- [06:54.550] And then the State Department took it over.
+- [06:56.770] They liked it. Marco came over one day.
+- [06:58.630] He saw this, but he said this building is great
+- [07:01.540] and he actually claimed it, right?
+- [07:03.700] He claimed it. And that's what he does.
+- [07:06.550] Where is Marco? Marco?
+- [07:08.540] Is that true? You claimed this building.
+- [07:10.160] You took it away from about five groups that wanted it,
+- [07:12.590] it was -- that was done very quickly, very methodically.
+- [07:16.180] But it was really built so beautifully
+- [07:18.880] and such a beautiful building.
+- [07:20.850] But we worked together to ensure the brighter future
+- [07:23.170] for the people of Gaza,
+- [07:24.930] the Middle East and the entire world.
+- [07:26.720] I think that the Board of Peace, because it's mostly leaders --
+- [07:30.940] and unbelievably respected people,
+- [07:33.980] but mostly leaders of Middle Eastern countries,
+- [07:39.110] countries from all over the world.
+- [07:41.080] And they've been very generous with money also.
+- [07:44.780] And the United States, which I'll say in a moment,
+- [07:47.280] is also very generous with money,
+- [07:50.500] because there's nothing more important than peace.
+- [07:53.170] And there's nothing less expensive than peace.
+- [07:55.960] You know, when you go to wars,
+- [07:57.810] it costs you 100 times what it costs to make peace.
+- [08:02.560] We have a man at the end right there that's smiling
+- [08:05.910] because you learned that after 30 years of fighting,
+- [08:08.830] right, 30 years of fighting.
+- [08:10.610] We got it done, and I want to thank you very much.
+- [08:12.950] That was a great thing you did, you and your new friend.
+- [08:17.830] They came to my office
+- [08:19.080] and they said I've been fighting for 22 years.
+- [08:22.100] Now you're there for 23 years, right?
+- [08:23.920] But I've been fighting for 22 years.
+- [08:26.080] That's all I've done is fight this gentleman.
+- [08:28.640] And his counterpart was there for seven years.
+- [08:31.730] He said I've been there for seven years.
+- [08:33.270] All I've done is fight this gentleman.
+- [08:35.620] And we had it worked out in about 24 hours, right?
+- [08:37.600] And it's been a good peace.
+- [08:38.890] And I think they've become friends.
+- [08:40.370] I'm not sure I'm allowed to say that.
+- [08:41.690] But I think so. I think they've become friends, right?
+- [08:45.350] Right? Great. Stand up. Stand up.
+- [08:53.360] These are two tough cookies too.
+- [08:55.810] These are -- you think that was easy?
+- [08:57.490] It wasn't easy.
+- [08:58.850] These are two tough people, good people but tough people.
+- [09:01.810] But, you know, we're in the Oval Office.
+- [09:04.470] And we were getting near,
+- [09:06.990] but the one was at one side of the room.
+- [09:09.270] I have two chairs right in front of the desk,
+- [09:11.100] the beautiful Resolute Desk. One's over here.
+- [09:14.460] One's on the other side of the room.
+- [09:16.610] I said, folks, could you get a little closer?
+- [09:18.220] Well, I don't think -- they felt very uncomfortable.
+- [09:20.010] You know, they've been killing each other for 32 years.
+- [09:23.470] So, I say, can you get a little closer?
+- [09:25.830] After one hour, they were right next to each other.
+- [09:28.470] We made a deal. They hugged, they signed,
+- [09:32.740] and we had peace with two very important countries.
+- [09:35.860] And I'll never forget it.
+- [09:37.100] So, they started off a little weak
+- [09:39.080] and they ended up really strong.
+- [09:41.580] And you can be very proud of yourselves.
+- [09:43.390] It was a beautiful thing to see. Thank you. Look -- look at that.
+- [09:48.210] Can you believe it, 32 years? Thank you. Thank you very much.
+- [09:59.070] But we're honored to be joined today by Prime
+- [10:02.640] Minister Rama of Albania,
+- [10:06.810] President -- where is President Milei?
+- [10:09.550] You're another one, I'll tell you.
+- [10:11.400] Where is President Milei? I had -- I endorsed him.
+- [10:15.600] I'm not supposed to be endorsing people,
+- [10:17.130] but I endorse when I like people.
+- [10:19.140] You know, I've had a very good record
+- [10:21.360] of endorsing candidates within the United States,
+- [10:25.570] but now I endorse foreign leaders,
+- [10:27.910] including Viktor Orban, who's here, and others.
+- [10:32.230] And I endorsed this gentleman, Milei.
+- [10:35.120] He was a little behind in the polls.
+- [10:36.570] He ended up winning in a landslide.
+- [10:38.080] I just endorsed the prime minister of Japan.
+- [10:41.110] She was in a tight race but was probably going to win,
+- [10:43.520] and she won in the largest number in the history of Japan.
+- [10:47.840] So, she likes me a lot.
+- [10:49.730] But it was an honor. And you're doing great.
+- [10:51.810] Oh, look, they're sitting right next --
+- [10:53.390] Victor.
+- [10:54.890] I think -- ultimately, I think I'm going to end up endorse --
+- [10:57.260] hey, look, as long as it works, it's ok with me.
+- [11:00.080] But the endorsement seems to be working in
+- [11:01.740] foreign countries too, so that's good.
+- [11:03.540] But nice to have you both.
+- [11:04.910] Victor, nice to have you both, very proud of you.
+- [11:07.830] The prime minister of another --
+- [11:12.030] really just a great guy, Pashinyan of Armenia,
+- [11:17.790] President Aliyev of Azerbaijan.
+- [11:23.090] I love saying that name now.
+- [11:24.330] You know, at the beginning it was giving me a hard time.
+- [11:26.990] Now I love saying it. It's a beautiful name.
+- [11:29.570] I love it. His Majesty King Hamad bin Isa
+- [11:35.140] Al Khalifa of Bahrain. Bahrain, thank you. Thank you.
+- [11:41.000] Where are you? Where are you? He's so rich, he can sit there.
+- [11:46.140] He can sit wherever the hell he wants.
+- [11:49.670] You know, he could sit up in the corner.
+- [11:51.550] He could sit up top.
+- [11:54.610] He might take a piece of this building, Marco.
+- [11:57.840] He'll take 25 percent of the building for about $6 billion.
+- [12:02.350] Thank you very -- and you've been very generous also.
+- [12:04.400] We appreciate it.
+- [12:06.220] Prime Minister Hun Manet of Cambodia,
+- [12:11.460] raise your hand wherever you may be because -- yeah.
+- [12:14.340] Hi. How are you?
+- [12:16.560] Congratulations. That was another one, right?
+- [12:18.950] We did a good job with that one.
+- [12:21.550] Prime Minister Madbouly of Egypt, thank you very much.
+- [12:28.020] And say hello to the general/president, okay?
+- [12:34.520] Prime Minister Orban of Hungary,
+- [12:37.480] who has my complete and total endorsement for election.
+- [12:41.050] Not everybody in Europe loves that endorsement, but that's ok.
+- [12:45.040] He does an unbelievable job.
+- [12:46.750] He's done an incredible job on immigration,
+- [12:49.780] unlike some countries that have hurt themselves,
+- [12:53.620] but they're working on it.
+- [12:55.100] But I just want to let you know, you have my total
+- [12:57.260] and complete endorsement, and I'm putting it out.
+- [12:59.510] I already did, but I'm putting it out again.
+- [13:02.150] And you're coming up with an election
+- [13:03.870] and I think you should be good.
+- [13:06.440] I'll tell you, Melie did pretty well.
+- [13:07.820] He was a little down, right?
+- [13:09.500] And then he was -- he ended up winning in a landslide,
+- [13:11.630] so that's pretty good.
+- [13:12.870] You're going to do great, Viktor.
+- [13:14.120] Thank you very much for being here.
+- [13:15.340] Appreciate it. You run a great country.
+- [13:18.980] A man that I really like a lot is -- he's definitely tough.
+- [13:24.540] I don't want to fight him, President Prabowo of Indonesia.
+- [13:30.560] Thank you very much. Please. This is a big guy, I tell you.
+- [13:34.540] I said how many people in Indonesia?
+- [13:37.640] He said like 240 million. I said, no, no, say it again.
+- [13:40.740] How many? It's a big country you have.
+- [13:43.390] And you do a great job and respected by everybody.
+- [13:46.920] And thank you very much for being here.
+- [13:48.590] Thank you very much, Mr. President.
+- [13:51.470] President Tokayev of Kazakhstan, thank you very much.
+- [13:57.910] What a country that is.
+- [14:00.100] It's a wonderful country and a rich country,
+- [14:03.410] in case anybody has any question.
+- [14:05.050] We have some very rich people here today.
+- [14:08.530] President Osmani of Kosovo.
+- [14:12.150] President, thank you very much. Great. Great job.
+- [14:16.000] You're doing too. Thank you very much.
+- [14:18.560] Prime Minister Sharif, I like this man of Pakistan,
+- [14:24.510] because there was some fighting going on
+- [14:28.030] when I got to know him and your field marshal,
+- [14:31.590] general -- great -- great general,
+- [14:33.790] great field marshal, a great guy.
+- [14:37.260] And I got to meet the prime minister.
+- [14:41.650] And he said in front of our chief of staff,
+- [14:43.480] Susie Wiles, who's right here,
+- [14:46.060] he said, you know, nobody knows this,
+- [14:48.470] but I believe that President Trump
+- [14:52.850] saved 25 million lives when he saved --
+- [14:57.110] when he stopped the war between us and India, right?
+- [14:59.610] You -- you made that statement? I saved 25 million lives.
+- [15:02.860] Could have been much more, actually, but it's --
+- [15:05.230] it was really a beautiful thing.
+- [15:07.050] You said that in front of a group of people that was --
+- [15:09.690] they walked out. They don't think about it,
+- [15:11.610] but you're talking about that kind of lives.
+- [15:13.970] That war was raging.
+- [15:15.190] Planes were being shot down, right?
+- [15:18.400] And it was Pakistan and India.
+- [15:21.450] And I got on the phone with both of them.
+- [15:23.120] And I knew them a little bit.
+- [15:24.400] I knew Prime Minister Modi very well, actually.
+- [15:28.650] I got to know Pakistan through a little trade.
+- [15:32.890] They were trying to make too good a deal
+- [15:34.370] and I got a little upset with them.
+- [15:35.780] And in the end they got what they wanted, right,
+- [15:39.510] and they made a good deal.
+- [15:41.430] And I got to like them, the prime minister,
+- [15:43.870] the field marshal,
+- [15:45.470] who's a tough man, a tough -- good fighter, right?
+- [15:48.310] Good -- serious fighter. I like good fighters, actually.
+- [15:52.270] And when I heard that they were fighting,
+- [15:54.150] I pick up a certain newspaper. I won't tell you which one
+- [15:56.830] because it's fake news generally.
+- [15:59.370] But I picked up this newspaper,
+- [16:01.020] and I saw that Pakistan and India
+- [16:02.840] were really going at it, and then it got worse and worse.
+- [16:06.740] And planes were -- many planes were shot down.
+- [16:10.170] It was -- it was all out. And I called them.
+- [16:12.840] I said, listen, I'm not doing trade deals
+- [16:15.500] with you two guys if you don't settle this up.
+- [16:18.710] They said no, no, no, that has --
+- [16:19.930] both of them, they didn't want to do that.
+- [16:21.450] I said, no, it has to -- if you don't do it,
+- [16:23.940] I'm not doing a trade deal.
+- [16:25.400] We're not doing a trade deal.
+- [16:27.750] And they do a lot of business with the United States,
+- [16:30.250] and they sort of softened up all of a sudden.
+- [16:33.630] And all of a sudden I read where there was a little bit
+- [16:35.360] of a pullback by one, then the other.
+- [16:37.330] And all of a sudden, we worked out a deal, right?
+- [16:40.220] But I said if you fight,
+- [16:44.230] I'm going to put 200 percent tariffs
+- [16:45.760] on each of your countries,
+- [16:47.040] which essentially makes you not allowed --
+- [16:49.370] you know, you can't do any business.
+- [16:52.510] One of them, I won't say which one,
+- [16:53.900] said, no, you can't do that. They both wanted to fight.
+- [16:59.570] But when it came to money -- there's nothing like money.
+- [17:03.150] When it came to losing a lot of money,
+- [17:04.800] they said I guess we don't want to fight,
+- [17:07.330] and we solved that deal in two, three days, right?
+- [17:10.370] And we did, we saved --
+- [17:11.600] these are two very powerful nation --
+- [17:12.970] these are two nuclear nations.
+- [17:15.690] And I don't want to say what was going to happen,
+- [17:17.440] but, you know, bad things happen.
+- [17:21.260] So Prime Minister, I want to thank you
+- [17:22.720] because that was a big -- that was a very big deal.
+- [17:24.490] People have no idea.
+- [17:25.690] A lot of them say, oh, well, they weren't fighting.
+- [17:28.130] They were fighting;
+- [17:29.450] 11 jets were shot down, very expensive jets
+- [17:33.280] and they were all in.
+- [17:34.570] Both of them were all in. And now they're not.
+- [17:36.610] And I think we'll always be able to settle up with them.
+- [17:40.190] I really do, I think you're going to have, you know,
+- [17:42.520] it's a lot of progress was made even in the relationship.
+- [17:45.510] And Prime Minister Modi also is a great man.
+- [17:48.700] He's a great guy, they're all great,
+- [17:51.200] but I was very proud of it.
+- [17:53.490] President Pena of Paraguay is here.
+- [17:56.960] President. President, thank you very much.
+- [17:59.720] Young, handsome guy. It's always nice to be young and handsome.
+- [18:04.530] Doesn't mean we have to like you.
+- [18:06.670] I don't like young handsome men. Women, I like.
+- [18:12.640] Men, no, I don't have any interest. Good.
+- [18:16.630] That's right. That's right. Thank you very much.
+- [18:18.550] You're doing a great job too.
+- [18:20.640] His Excellency, Prime Minister
+- [18:23.200] Al-Thani of Qatar, just a great man.
+- [18:27.400] Please, a great man and highly respected.
+- [18:31.620] And he's working with a man who is amazing.
+- [18:35.680] I always say he needs a public relations agency
+- [18:39.420] because you do so much good
+- [18:42.100] and they have you down as evil and you're not evil.
+- [18:44.910] You help us so much and you're such a good ally
+- [18:48.910] and I just want people to know that.
+- [18:50.600] And the Emir is incredible, smart as you can be,
+- [18:55.900] a great leader and he cares so much for the people;
+- [18:58.740] and he cares so much for the Middle East.
+- [19:00.870] So, I want to thank you very much and send my regards,
+- [19:03.160] your country has been a great help.
+- [19:06.300] You know, surprising to some of the people writing out there,
+- [19:08.690] but now they'll start changing their tune because it's true.
+- [19:10.890] I only tell the truth.
+- [19:13.170] Prime Minister Don of Romania, wonderful people,
+- [19:17.420] the Romanian people are fantastic,
+- [19:20.060] fantastic people like you're fantastic.
+- [19:23.490] And a lot of them come and work in this country
+- [19:25.570] and help us in this country as you know.
+- [19:27.210] And it's -- they are just really, really solid people.
+- [19:32.270] President Mirziyoyev of Uzbekistan, who is where?
+- [19:41.580] There he is -- and a friend of mine.
+- [19:44.740] He's got one of the most difficult names in history.
+- [19:47.550] But that's OK, it doesn't matter.
+- [19:50.050] Your country is doing great.
+- [19:51.340] You're doing great and just no problems.
+- [19:54.280] Every time I see him, nope, we're doing good, no problems.
+- [19:57.880] And general secretary To Lam of Vietnam.
+- [20:02.250] Vietnam is incredible as a country and as a force.
+- [20:07.330] It's an honor to have you -- really great honor to have you.
+- [20:10.050] A lot of respect, a lot of respect for your country.
+- [20:12.860] I also want to express my gratitude to Vice President,
+- [20:16.800] JD Vance, who is a fantastic man.
+- [20:19.860] He's a fantastic Talent.
+- [20:23.280] He was a great student. He went to one school,
+- [20:27.460] he graduated -- you know, most people --
+- [20:29.390] if you watched some of the people
+- [20:30.850] that were at the event in Munich,
+- [20:33.560] they didn't graduate quickly from college.
+- [20:36.030] They had everything they could do.
+- [20:38.470] There was one young, attractive woman,
+- [20:40.910] she was unable to answer questions,
+- [20:43.760] and she didn't do so well like JD did in college.
+- [20:47.340] JD graduated, in a four-and-a-half-year college,
+- [20:50.430] in two years. And then he went to Yale
+- [20:52.860] and he graduated at the top of his class,
+- [20:56.830] went to the military grade.
+- [20:58.040] But when he went to Yale,
+- [20:59.280] there was one person that was marginally ahead of him.
+- [21:02.690] So, he married her, can you believe it?
+- [21:04.860] He married the person that was ahead.
+- [21:06.420] I don't know, I always like to say JD was first
+- [21:09.680] and Usha was second
+- [21:11.680] because I get a little uncomfortable when I say that.
+- [21:14.900] But he's been incredible.
+- [21:17.050] He's a brilliant guy and a great guy
+- [21:18.550] and he's been my friend.
+- [21:20.140] All of our people, we have a fantastic group of people,
+- [21:23.730] our cabinet members, everybody, many of them here.
+- [21:27.180] But JD has been great. Thank you very much.
+- [21:29.770] He gets a little bit tough on occasion.
+- [21:31.210] We've got to slow him down just a little bit on occasion.
+- [21:34.020] He says his mind now.
+- [21:35.290] Then we have the opposite extreme.
+- [21:37.370] We have your friend sitting in the back.
+- [21:39.000] Your good -- your best friend sitting in the back is Marco.
+- [21:43.270] Marco does it with a velvet glove.
+- [21:45.210] But it's a kill, right?
+- [21:49.560] The result is the same; they do it very differently.
+- [21:52.950] And Marco, you really did yourself proud
+- [21:55.420] two days ago in Munich.
+- [21:57.850] In fact, so proud that I almost terminated his employee
+- [22:02.270] because they were saying why can't Trump do this?
+- [22:06.090] I do but I say it differently.
+- [22:09.000] But Marco, don't do any better than you did, please.
+- [22:13.550] Because if you do, you're out of here.
+- [22:16.460] But no, he got -- I want my guys to do great.
+- [22:19.530] And the acclaim he's gotten and the acclaim JD gets is great.
+- [22:24.190] We have smart people.
+- [22:26.150] And when you see the representatives
+- [22:27.670] there like Gavin Newscum,
+- [22:31.060] he didn't know what he was doing.
+- [22:32.530] They didn't even know why -- he didn't know why he was there.
+- [22:34.840] Or AOC, she was unable to answer a simple question.
+- [22:40.730] And she could have said, well, I'm studying it
+- [22:43.230] and I'll report back to you next week.
+- [22:44.750] You know, you can get away with that, but she just went uh.
+- [22:50.270] Actually, I think it could be a career ending answer
+- [22:52.770] because for 25 years, anybody running against her,
+- [22:57.260] I think, Susie, is going to use that little piece of stuff,
+- [23:01.080] it was not good. It was not good.
+- [23:03.300] That was not a natural. So, I want to thank JD.
+- [23:06.820] I want to thank Secretary of State Marco Rubio.
+- [23:08.870] They're extraordinary.
+- [23:10.110] I want to thank Special Envoy for Peace, Steve Witkoff,
+- [23:16.070] who has been unbelievable. You know, I took Steve
+- [23:19.170] because I was a developer in New York, really successful.
+- [23:22.450] Actually much more successful than Steve,
+- [23:24.320] but I don't want to say that.
+- [23:26.030] I'm not going to say that, Gianni, I refuse to say it.
+- [23:29.470] But I saw something in Steve.
+- [23:31.100] Steve's a great negotiator.
+- [23:32.700] Everybody loved him, all these developers, and they're tough.
+- [23:35.940] You know, New York developers tend to be on the tough side
+- [23:39.070] and, you know, most of them hate each other,
+- [23:42.850] like a lot of the people in this room hate each other.
+- [23:44.920] You know, it's sort of natural I guess,
+- [23:46.790] but we're bringing love back into the room like the old days.
+- [23:50.000] But everybody loves Steve, every developer,
+- [23:52.520] the worst, most evil people,
+- [23:54.090] horrible human beings actually, and they love Steve.
+- [23:59.000] So, I remember this and we had some conflicts,
+- [24:02.190] to put it mildly, in the world.
+- [24:03.550] And I said, Steve, how would you like to be
+- [24:05.840] Henry Kissinger Junior that doesn't leak?
+- [24:09.640] I said, are you a leaker, Steve?
+- [24:11.320] No, he didn't even know what the word meant.
+- [24:13.180] And it's true. I always say Henry Kissinger,
+- [24:15.930] who was one of the great leakers of all time, by the way.
+- [24:18.090] Richard Nixon said to him, Henry,
+- [24:21.020] who's leaking all this stuff?
+- [24:22.880] I don't know, Mr. President. It was Henry who was leaking it.
+- [24:26.730] These are little stories I like telling.
+- [24:29.030] But Steve has been unbelievable. Everybody likes him.
+- [24:34.950] Ukraine loves him.
+- [24:36.800] Europe loves him. Russia loves him.
+- [24:39.910] I mean, there's nothing wrong with this.
+- [24:41.260] He goes to see President Putin -- didn't know Putin.
+- [24:43.960] I set him up a meeting to see. I said how's Steve doing?
+- [24:47.820] Sir, he's still inside -- oh, that was an hour.
+- [24:51.720] I called back -- tell Steve to call me when he's finished.
+- [24:54.180] I want to find out what the hell is going on.
+- [24:55.780] We want to end that war.
+- [24:57.710] Sir, he's still inside, three hours, four hours.
+- [25:01.760] They were together for four hours the first meeting.
+- [25:04.540] That's talent. And they get along.
+- [25:07.570] I mean people like or don't like Putin or Zelenskyy.
+- [25:12.910] They get along. Same thing with Zelenskyy.
+- [25:14.680] I mean they all love Steve and Steve's doing a great job.
+- [25:18.380] That's a tough one. That's a much tougher one.
+- [25:20.950] I would have thought that some of the ones that we settled
+- [25:23.800] that are up here would have been --
+- [25:28.270] I thought this would be easy because I have
+- [25:29.820] a very good relationship with President Putin.
+- [25:32.520] I have a very good relationship with President Xi.
+- [25:34.970] I'm going to be going to China in April.
+- [25:36.490] It's going to be -- that's going to be a wild one.
+- [25:39.210] I said, but we have to put on the biggest display
+- [25:41.720] you've ever had in the history of China.
+- [25:43.670] You know, last time I went to China President Xi,
+- [25:46.720] he treated me so well, he gave me a display.
+- [25:49.840] I never saw so many soldiers all the same height,
+- [25:52.550] exactly the same height within a quarter of an inch.
+- [25:55.900] You can do that when you have 1.4 billion people,
+- [25:58.810] you know, lots of shoulders, everybody was within
+- [26:01.620] about one-eighth of an inch, the same height.
+- [26:04.740] I said if they put their helmets down,
+- [26:07.040] you could have played pool on the top of their heads.
+- [26:10.310] And it was pretty amazing, but I said you've got to top it.
+- [26:14.660] He said I'll top it; we're going to top it.
+- [26:16.710] We're going to have a lot of the people,
+- [26:18.630] most of the fake news back there is going to be going.
+- [26:21.550] So, we have -- Steve has done a great job.
+- [26:25.060] And then a little bit later on, we brought Jared in.
+- [26:28.910] Jared was responsible for the Abraham Accords,
+- [26:31.330] which is incredible.
+- [26:32.540] Nobody else could have done that, very smart guy.
+- [26:35.740] And we're making Jared an envoy also, envoy of peace.
+- [26:40.450] They're both envoys of peace and you couldn't get two --
+- [26:43.850] I tell you what, I watch these two guys.
+- [26:45.710] I say at least we're covered from an IQ standpoint.
+- [26:48.530] These two guys walk into a room and --
+- [26:51.330] but people like them both, you know.
+- [26:52.800] They're good people and they like them both.
+- [26:55.320] And they've had some very good meetings.
+- [26:57.300] They've had some very interesting meetings
+- [26:59.890] having to do with -- as you know,
+- [27:02.370] Iran is a hot spot right now and they're meeting
+- [27:04.590] and they have a good relationship
+- [27:05.800] with the representatives of Iran.
+- [27:07.320] And you know, good talks are being had.
+- [27:10.090] It's proven to be over the years
+- [27:11.830] not easy to make a meaningful deal with them.
+- [27:15.000] We have to make a meaningful deal
+- [27:16.910] otherwise bad things happen,
+- [27:18.660] but we have to make a meaningful deal.
+- [27:19.990] But they have a great relationship
+- [27:21.360] with the representatives of Iran.
+- [27:23.690] They have a great relationship with the other one that
+- [27:26.660] they're really working on now, because so many of these --
+- [27:28.570] I mean, as an example, Kosovo, Serbia, I did that one.
+- [27:34.510] Could you stand up if any of you guys are --
+- [27:36.540] when you're here, just stand up for a second,
+- [27:38.220] Kosovo, Serbia, stand up.
+- [27:41.440] What a job. Thank you very much. We appreciate it. So good.
+- [27:46.510] And you're getting along and when you don't get along,
+- [27:49.130] you'll call me and we'll get it solved, right?
+- [27:51.510] We'll get it solved.
+- [27:53.430] Thank you very much, really good.
+- [27:55.120] And then again, Pakistan and India.
+- [27:56.650] That was a big one
+- [27:57.850] and just I think you should actually stand.
+- [28:00.250] Come, please, stand just for a second.
+- [28:03.040] Pakistan and India, thank you very much.
+- [28:05.220] And I spoke to Prime Minister Modi, he's excited.
+- [28:09.490] He's watching us right now.
+- [28:12.140] Egypt and Ethiopia, we're going to get that --
+- [28:15.350] you know, there's a little dam that got built,
+- [28:17.660] a little dam, like maybe the largest dam in the world,
+- [28:21.330] built and financed, of course,
+- [28:22.600] by the United States, brilliantly.
+- [28:25.120] And having a little trouble getting water to the Nile.
+- [28:29.490] But it's not -- that's a tough situation,
+- [28:32.170] but we're going to get that solved.
+- [28:34.530] Armenia and Azerbaijan, we talked about.
+- [28:37.600] And again, thank you, fellas, very much.
+- [28:39.470] Great job. Great job. Thank you.
+- [28:43.410] Cambodia and Thailand so incredible what you did,
+- [28:47.840] that you -- you got together and it all worked out.
+- [28:50.800] They're watching.
+- [28:52.100] They're watching right now on closed circuit.
+- [28:53.750] Thank you very much, and thank you.
+- [28:56.600] That was a big one, Cambodia and Thailand.
+- [28:58.370] These are nasty fighters, I have to tell you.
+- [29:01.740] These fighters are nasty.
+- [29:03.970] Uh, now we talk about -- you talk nasty fighter,
+- [29:09.410] you're nice guys compared to this,
+- [29:11.360] Congo and Rwanda.
+- [29:14.560] That was -- and we've got them pretty peaceful.
+- [29:18.940] There's little flare ups every once in a while.
+- [29:20.810] I'll get a call once a week, sir,
+- [29:22.890] there's a flare up in the Congo again.
+- [29:25.230] We'll get it straightened out.
+- [29:26.610] Right, Susie, we'll get it straightened out.
+- [29:29.480] And Israel, as you know with --
+- [29:32.720] you could say Israel and numerous countries,
+- [29:34.370] if you want to really know the truth, but Israel and Iran.
+- [29:38.240] And we'll see where that goes.
+- [29:40.200] But when you think of Israel, we have --
+- [29:41.770] we've done the biggest thing of all.
+- [29:43.230] We have peace in the Middle East right now.
+- [29:44.570] That's bigger than -- people said it couldn't be done.
+- [29:47.650] For 3,000 years they've been talking about Middle East.
+- [29:50.730] They said it couldn't be done.
+- [29:52.650] And you look at what's happened in Gaza.
+- [29:56.630] And one of the keys to it
+- [29:58.280] was when we took those beautiful, magnificent,
+- [30:01.520] we just ordered 22 more of them updated model,
+- [30:05.810] the B-2 bombers are incredible.
+- [30:07.800] I never understood the B-2 bomber.
+- [30:09.310] I'd watch -- it's a wing
+- [30:11.270] and I've never quite understood that, Johnny.
+- [30:13.520] I'd look at it, I'd say it was beautiful, but what does it do?
+- [30:16.590] It carries very big bombs.
+- [30:18.440] And it went into Iran
+- [30:20.950] and it totally decimated the nuclear potential.
+- [30:25.800] And when it did,
+- [30:27.020] when it decimated that all of a sudden,
+- [30:30.010] we had peace in the Middle East, because nobody --
+- [30:32.070] there was a black cloud hanging over the Middle East.
+- [30:34.680] And if that wasn't done that cloud would have been there.
+- [30:37.940] And countries like Saudi Arabia, countries like Qatar,
+- [30:42.050] countries like -- nobody could have signed.
+- [30:43.530] You would have had that threat. Nobody could have had --
+- [30:46.820] you couldn't have had peace in the Middle East.
+- [30:48.910] So now we may have to take it a step further or we may not.
+- [30:50.900] Maybe we're going to make a deal,
+- [30:52.130] where you're going to be --
+- [30:53.380] you're going to be finding out over the next probably 10 days.
+- [30:57.560] But this meeting today is proof with determined leadership,
+- [31:00.470] nothing is impossible.
+- [31:02.430] When I took office, the war in Gaza was raging,
+- [31:04.760] with thousands of people being killed and no end in sight.
+- [31:08.220] Today, thanks to unrelenting diplomacy
+- [31:10.420] and the commitment of many of the great people in this room --
+- [31:13.860] we have 59 countries signed up on Gaza.
+- [31:18.350] Think of that. We have -- uh, it's amazing.
+- [31:22.300] But all the people, many -- really, so many in this room.
+- [31:25.640] The war in Gaza is over. It's over.
+- [31:28.620] There are little flames, little flames. Hamas has been --
+- [31:33.500] I think they're going to give up their weapons,
+- [31:35.220] which is what they promised. If they don't, it will be --
+- [31:37.790] you know, they'll be harshly met, very harshly met.
+- [31:40.220] They don't want that.
+- [31:41.950] You know, all this stuff, like they don't mind dying.
+- [31:44.970] They told me that's not true.
+- [31:47.730] Everyone said, oh, they don't mind dying.
+- [31:49.480] No, they don't want to die. They said, we don't want to die.
+- [31:52.660] People don't want to die.
+- [31:54.350] The ceasefire was held and every last remaining hostage,
+- [31:58.170] both living and dead, has been returned back home.
+- [32:00.730] Think of that. That was an impossibility.
+- [32:03.720] And we did hundreds of hostages, but the last 20 --
+- [32:06.330] and I always said to Steve and Jared,
+- [32:08.620] I said the last 20 are going to be very tough,
+- [32:11.220] very, very tough, and we got them back.
+- [32:14.260] We got the living back and then we only got about 16 of the dead
+- [32:17.690] and we said, well, you got to get them all.
+- [32:19.330] You promised them all. And they dug and dug and dug.
+- [32:23.330] You can imagine, it's a job that's brutal.
+- [32:26.990] And Hamas really did a lot of that work.
+- [32:30.780] And you got to give them credit for that.
+- [32:32.750] They -- uh, they brought the last --
+- [32:35.900] last one home a week ago.
+- [32:39.180] And we got all 28 of them, living and dead.
+- [32:41.830] The amazing thing,
+- [32:43.120] because I've never seen anything quite like it,
+- [32:45.250] the parents of the dead, they knew their boy was dead.
+- [32:48.410] This case, boy, is all boys, men, but to the parents, boys.
+- [32:53.790] They knew their boy was dead.
+- [32:56.090] They wanted that dead body as much as if he were alive.
+- [33:01.840] And when they got them back, there was great sadness,
+- [33:06.120] but there was great joy too.
+- [33:07.420] They wanted it as much as the people
+- [33:09.660] that got their sons back alive.
+- [33:13.890] But we got a lot of people before those 20, Steve,
+- [33:15.980] but nobody talks about.
+- [33:17.280] But, you know, hundreds of people.
+- [33:20.170] We did a good job and you guys did a fantastic job.
+- [33:23.130] I want to thank every nation that helped us
+- [33:25.310] achieve this monumental breakthrough,
+- [33:27.930] saving countless lives and really, bringing peace
+- [33:32.330] and bringing the concept of peace
+- [33:33.630] because nobody thought peace in the Middle East --
+- [33:35.390] I've always heard peace in the Middle East is impossible,
+- [33:38.840] and it's turned out not to be.
+- [33:41.120] And we do have some work to do with Iran.
+- [33:45.040] They can't have nuclear weapons. It's very simple.
+- [33:46.920] They can't have -- you can't have peace
+- [33:48.550] in the Middle East if they have a nuclear weapon.
+- [33:51.490] And they can't have a nuclear weapon
+- [33:53.340] and they've been told that very strongly.
+- [33:55.960] Since the hard-won ceasefire of last October,
+- [33:58.450] the United States and our partners
+- [34:00.090] have facilitated the delivery
+- [34:02.320] of vast amounts of humanitarian aid,
+- [34:04.790] numbers that nobody's ever seen before.
+- [34:07.820] In November, the United Nations Security Council
+- [34:10.160] unanimously approved the Board of Peace,
+- [34:13.130] and last month in Davos,
+- [34:14.830] we welcomed over two dozen members
+- [34:17.960] to this very important new organization.
+- [34:21.610] And we are very closely working with the United Nations.
+- [34:24.710] In fact, I'm going to speak to the secretary general
+- [34:27.330] in a little while,
+- [34:28.540] who is a good man and I've had a good relationship,
+- [34:31.810] other than in my last speech,
+- [34:33.500] they did turn off my teleprompter.
+- [34:36.480] I got up there, my teleprompter didn't work.
+- [34:40.160] I'm sitting in front of all of you people and more.
+- [34:43.450] I had no teleprompter.
+- [34:44.710] I knew I was in trouble because I'm walking up, you know,
+- [34:46.940] the teleprompters are over here.
+- [34:48.220] I had the most beautiful speech ready
+- [34:50.870] and I was all set to knock them dead.
+- [34:53.730] First, I had an escalator that stopped, you know that.
+- [34:56.310] It's going up, boom.
+- [34:58.230] It's lucky my movie star first lady was in front of me
+- [35:03.260] because I put my hand on a certain part of her body
+- [35:07.060] and I was able to stop my fall, otherwise --
+- [35:09.990] because she had no trouble.
+- [35:11.230] I said, boy, that was a very sharp stop, Johnny.
+- [35:15.330] So I said, that was strange.
+- [35:17.740] I've been on a lot of escalators,
+- [35:19.070] that's never happened before.
+- [35:20.630] Usually, it stops very slowly. This was just, boom.
+- [35:24.300] But our first lady was right in the proper location for me.
+- [35:28.880] I'm waving to people and she was holding on a little tighter.
+- [35:33.470] She knew what was happening. She did.
+- [35:35.050] She said -- she had a very successful movie out right now,
+- [35:38.030] like number one. Can you believe this?
+- [35:41.500] And she's a big movie -- a big movie star.
+- [35:43.830] And I always say it's trouble because I always say
+- [35:45.960] there's not room in one family for two stars.
+- [35:49.750] I told her that, we can't have two stars in one family.
+- [35:54.370] So I don't know what that means, but it's not -- it's not good.
+- [35:57.650] But it is good because we're proud of her.
+- [35:59.340] She did -- people in the United States love
+- [36:01.470] the first lady.
+- [36:02.700] And she did the movie and it's become the biggest
+- [36:07.090] selling documentary in 20 years. Can you believe?
+- [36:09.480] The theaters are all packed, women especially.
+- [36:11.710] They go back and they see it two or three times, four times.
+- [36:16.110] But together, we're committed to achieving a Gaza
+- [36:18.520] that is properly governed throughout.
+- [36:21.680] The whole area is going to be -- you know, so many countries
+- [36:24.840] that have really nothing to do with the Middle East,
+- [36:26.760] but they may be somewhat close by -- they're all involved.
+- [36:31.010] They want to go in and fight. They tell me all the time,
+- [36:33.110] we'd like to send soldiers to fight if it's necessary.
+- [36:36.490] And I don't think it's going to be necessary.
+- [36:38.380] We have two countries that want to go in
+- [36:40.530] and do a number on Hamas.
+- [36:43.400] I said, I really don't think it's --
+- [36:44.660] I hope it's not going to be necessary,
+- [36:47.160] because they made a promise
+- [36:48.400] and they promised me, get rid of their weapons.
+- [36:51.210] It looks like they're going to be doing that,
+- [36:52.910] but we'll have to find out.
+- [36:55.430] But it's no longer a hotbed of radicalism and terror.
+- [37:01.040] And to end that, we have today, and I'm pleased to announce that
+- [37:07.010] Kazakhstan, Azerbaijan, UAE, Morocco,
+- [37:12.170] Bahrain, Qatar, Saudi Arabia, Uzbekistan and Kuwait
+- [37:17.180] have all contributed more than $7 billion
+- [37:24.330] toward the relief package, that's great.
+- [37:26.130] Thank you, fellas. Thank you.
+- [37:33.420] And many more are contributing, too.
+- [37:35.200] So, the numbers are -- you know, this just started.
+- [37:37.840] This is our first meeting,
+- [37:40.390] but every dollar spent is an investment in stability
+- [37:43.350] and the hope of new and harmonious --
+- [37:47.620] it's a region that's so important.
+- [37:49.300] It's so vibrant, it's so incredible.
+- [37:51.300] The people are so incredible,
+- [37:52.610] but we want to have a harmonious Middle East.
+- [37:55.140] The Middle East is amazing.
+- [37:57.320] So many friends in the Middle East, they're so smart.
+- [38:01.440] Sometimes they're too energetic. That's the problem.
+- [38:03.710] You know, a lot of people aren't energetic.
+- [38:05.920] sometimes they're a little bit too energetic.
+- [38:08.450] These are great people.
+- [38:10.220] The world is now waiting on Hamas
+- [38:12.600] and that's taking place.
+- [38:13.920] And it's the only thing that's right now standing in the way.
+- [38:19.630] We have Lebanon with certain things
+- [38:23.020] that we're working on that are very important.
+- [38:25.660] We have to solve the problem of Lebanon,
+- [38:28.180] but it's relatively small in terms of what we're --
+- [38:31.920] what's been done.
+- [38:33.500] And again, the key was getting rid of the nuclear potential
+- [38:36.640] because Iran would have had a nuclear weapon,
+- [38:39.230] based on everything we found out since, within one month.
+- [38:41.960] We can't let that happen.
+- [38:43.960] So, many of our friends in Europe are attending today
+- [38:46.910] and we're eager to have them become full members.
+- [38:50.640] They all want to become full members.
+- [38:52.280] And we've had a great response from Europe.
+- [38:55.040] And Europe is, you know, it's where I come from,
+- [38:57.160] where so many people come from that are in the United States.
+- [39:01.100] But we have a great relationship with Europe.
+- [39:03.350] We have a great head of NATO, he's a fantastic man
+- [39:08.010] and he's doing a great job, really great job.
+- [39:11.540] I'm excited to announce that Norway has agreed
+- [39:14.170] to host an event,
+- [39:15.960] bringing together the Board of Peace.
+- [39:18.950] Oh, I thought when I saw this note,
+- [39:21.370] I'm excited to announce that Norway --
+- [39:22.860] I thought they were going to say
+- [39:24.290] that they're giving me the Nobel Prize.
+- [39:27.520] Oh, this is less exciting.
+- [39:31.640] Oh, it says I'm excited to announce that Norway --
+- [39:34.140] and I'm saying,
+- [39:35.420] oh, great, I'm getting the Nobel Prize finally.
+- [39:37.890] Finally, they got it right.
+- [39:40.010] But I don't care. I don't care about Nobel Prizes,
+- [39:42.040] I care about saving lives just so you understand.
+- [39:44.680] We play and we all, you know, do what we have to do.
+- [39:47.630] I only have one thing, I don't want to see people killed
+- [39:50.260] from parts of the world
+- [39:52.000] that are very far away from the United States.
+- [39:53.890] And if I have an ability to turn off --
+- [39:55.950] to turn off wars, I want to use that ability
+- [39:57.950] because it's people, millions of people.
+- [40:01.200] It's like the prime minister said,
+- [40:03.050] 25 million people maybe, and that's a small number
+- [40:05.880] compared to what it could have been
+- [40:07.370] if you really think about it, right?
+- [40:09.380] No, I want to save lives and I don't care about prizes.
+- [40:13.490] And the UN office
+- [40:14.760] for Coordination of Humanitarian Assistance
+- [40:18.860] is raising $2 billion for the support of Gaza.
+- [40:24.940] Additionally, Japan has just committed
+- [40:26.880] to host an aid fundraiser,
+- [40:29.560] which will be a very big one, very -- it's already successful.
+- [40:32.840] We know some of the numbers that are being talked about,
+- [40:34.820] which will be attended by other nations in the region
+- [40:38.540] including South Korea, the Philippines,
+- [40:40.510] Singapore and others.
+- [40:43.110] And I know that China is going to be involved,
+- [40:45.030] and I think Russia is going to be involved.
+- [40:46.730] I think they will be -- I want to have everybody,
+- [40:50.980] get all sides because it doesn't help
+- [40:54.560] when you have all sides with one ideology.
+- [40:57.170] You have to have everybody together for this.
+- [41:00.040] I'm also pleased to announce that FIFA will be helping
+- [41:04.010] to raise a total of $75 million for projects in Gaza
+- [41:08.640] and I think they're soccer related
+- [41:10.160] where you're doing fields,
+- [41:11.380] and you're getting the greatest stars in the world to go there,
+- [41:14.690] people that are bigger stars than you and I, Gianni.
+- [41:17.700] I hate to say it.
+- [41:19.180] You know, I met one of your great stars
+- [41:21.990] who came to the White House, as you know.
+- [41:24.500] And he's -- my son was very excited.
+- [41:28.020] These are great people. These are great people.
+- [41:32.120] And Gianni's going to bring the stars to the area.
+- [41:36.360] And they're really known;
+- [41:37.670] people in Gaza know every one of them, right, you know.
+- [41:41.500] So, it's really something,
+- [41:43.010] and we'll soon be detailing the announcement.
+- [41:46.330] And if I can do, I'll get over there with you.
+- [41:48.510] I want to thank Gianni and FIFA
+- [41:51.870] for all the wonderful things they did and are doing.
+- [41:55.740] They gave me their first peace prize.
+- [41:58.510] They gave me a peace prize.
+- [41:59.780] I think they saw that I got screwed by Norway
+- [42:02.530] and they said, let's give them a peace prize.
+- [42:04.110] I mean very good.
+- [42:05.360] Thank you, Gianni, I appreciate it.
+- [42:07.440] Gianni is very smart, I said very, very smart.
+- [42:11.810] The nations represented here today,
+- [42:14.730] just in closing, are not just contributing money,
+- [42:17.880] some are also pledging personnel to help preserve the ceasefire
+- [42:22.530] and secure a very enduring peace.
+- [42:24.610] We have to have enduring peace.
+- [42:25.860] Having peace, knowing it's going to blow up in two weeks
+- [42:29.420] doesn't mean anything. In particular.
+- [42:31.610] Indonesia, thank you very much.
+- [42:33.790] Indonesia, that's a great country.
+- [42:38.300] Thank you very much.
+- [42:40.370] Look at that man, look how tough he is.
+- [42:42.040] You think it's easy dealing with him.
+- [42:44.060] Look at that face. You are a tough cookie.
+- [42:46.690] And we say it lovingly too.
+- [42:48.290] We need strength. You see, he doesn't mind,
+- [42:52.020] he's tough and he's smart and smart is more important.
+- [42:57.770] Morocco, thank you very much. Great.
+- [43:00.300] What you're doing is great. Albania, Kosovo,
+- [43:05.000] Kazakhstan have all committed troops and police
+- [43:07.900] to stabilize Gaza.
+- [43:09.290] Egypt and Jordan are likewise providing very,
+- [43:12.830] very substantial help, troops, training and support,
+- [43:16.540] for a very trustworthy Palestinian police force.
+- [43:20.590] We think we're getting some very good people
+- [43:22.670] on that police force.
+- [43:24.340] And you know it's peace in the Middle East.
+- [43:26.210] We have peace in the Middle East.
+- [43:27.580] Think of it, for years you've been hearing about peace
+- [43:29.700] in the Middle East
+- [43:30.910] and everybody's saying it's impossible.
+- [43:33.960] All of these countries are working together
+- [43:35.900] around the vision of a Middle East
+- [43:37.830] that is free from the curse of extremism and terror
+- [43:41.580] and now is time.
+- [43:42.830] And by the way, even people with extremism
+- [43:44.930] and preaching extremism, they're exhausted.
+- [43:48.240] They're tired, it's been going on for too many years.
+- [43:50.810] I don't care who you are. They're tired. They want peace.
+- [43:54.680] And now is the time for Iran to join us
+- [43:57.360] on a path that will complete what we're doing.
+- [44:01.590] And if they join us, that will be great.
+- [44:03.010] If they don't join us, that will be great too,
+- [44:05.940] but it will be a very different path.
+- [44:08.360] They cannot continue to threaten the stability
+- [44:10.560] of the entire region
+- [44:11.830] and they must make a deal or, if that doesn't happen,
+- [44:16.300] I maybe can understand if it doesn't happen,
+- [44:18.380] it doesn't happen.
+- [44:19.660] But Bad things will happen if it doesn't.
+- [44:25.400] With the commitments announced today,
+- [44:26.910] the Board of Peace is proving
+- [44:28.770] that it does not just convene countries,
+- [44:32.650] it devises and implements and real solutions happen.
+- [44:37.960] We've come up with solutions. This is so little talk,
+- [44:41.100] this is very little talk all action first time.
+- [44:44.250] It was always talk in the Middle East.
+- [44:45.800] People would talk about peace in the Middle East
+- [44:47.500] and then they'd go home and they'd never even think
+- [44:49.790] about it again, nothing would happen.
+- [44:52.310] We're providing a model for how responsible sovereign nations
+- [44:55.720] can cooperate to take responsibility
+- [44:57.850] for confronting problems in their own regions.
+- [45:01.500] The Board of Peace is showing how a better future
+- [45:04.330] can be built starting right here in this room.
+- [45:06.780] And I want to let you know that the United States
+- [45:09.590] is going to make a contribution of $10 billion
+- [45:12.520] to the Board of Peace. Thank you.
+- [45:20.510] And we've had great support for that number.
+- [45:23.590] And that number is a very small number
+- [45:25.240] when you look at that compared to the cost of war.
+- [45:30.750] That's two weeks of fighting. It's a very small number.
+- [45:34.110] It sounds like a lot, but it's a very small number.
+- [45:36.290] So, we're committed to $10 billion.
+- [45:39.210] Together we can achieve the dream
+- [45:40.840] of bringing lasting harmony
+- [45:42.200] to a region tortured by centuries of war,
+- [45:45.410] suffering and carnage. They say 3,000 years.
+- [45:48.730] And hopefully we can lift up the eyes of the world
+- [45:50.640] to envision
+- [45:51.900] how other intractable conflicts can be settled.
+- [45:55.990] So many conflicts they say are impossible to settle
+- [45:58.390] and we get them settled.
+- [45:59.640] We got -- of those eight that we settled,
+- [46:02.670] most of them were said to be not settleable.
+- [46:06.690] And they not only got settled, they got settled within days.
+- [46:11.100] More impossible problems can be solved
+- [46:13.120] as we go along this very beautiful path.
+- [46:15.250] I think it's a beautiful path.
+- [46:16.640] I think it's such an important day.
+- [46:19.010] Even the weather's beautiful. We walk in and it's beautiful.
+- [46:22.050] Everything is beautiful.
+- [46:23.920] But the ancient wounds can be healed
+- [46:25.670] and they are indeed ancient.
+- [46:27.620] This has been going on for so many centuries
+- [46:31.250] that our entire planet will be a better, safer,
+- [46:33.390] more beautiful and more peaceful place for us all.
+- [46:37.170] We're going to be working with the United Nations very closely.
+- [46:39.670] We're going to bring them back.
+- [46:40.920] I think the United Nations has great potential,
+- [46:44.190] really great potential.
+- [46:45.810] It has not lived up to potential.
+- [46:48.420] The eight wars, I never even spoke to them about one of them,
+- [46:51.650] and I should be speaking to them about all of them.
+- [46:54.590] Someday, I won't be here, the United Nations will be --
+- [46:58.350] I think is going to be much stronger.
+- [47:00.400] The Board of Peace is going to almost be
+- [47:02.090] looking over the United Nations
+- [47:04.540] and making sure it runs properly.
+- [47:07.870] But we're going to strengthen up the United Nations.
+- [47:09.940] We're going to make sure its facilities are good,
+- [47:12.370] they need help and they need help money wise.
+- [47:15.160] We're going to help them money wise
+- [47:17.160] and we're going to make sure the United Nations is viable
+- [47:20.840] and you have some very good people at the United Nations,
+- [47:23.330] can do a good job.
+- [47:24.890] But as I said, it's -- I've said it for years,
+- [47:26.690] United Nations has tremendous potential.
+- [47:28.660] A lot of people didn't like what I said.
+- [47:30.220] They said, oh, you shouldn't say that because,
+- [47:32.520] you know, we don't care about the United Nations.
+- [47:34.970] No, it's really very important.
+- [47:36.780] And I think it's going to eventually live up to potential.
+- [47:40.360] That will be a big day.
+- [47:41.920] So I want to thank everybody for being here.
+- [47:43.560] You're my friends. You're great -- great leaders.
+- [47:46.340] You're great people.
+- [47:47.920] And I can honestly say, you know, you're strong leaders.
+- [47:51.890] You're tough leaders, in many cases.
+- [47:53.530] And every single one that I'm looking at, that's right here,
+- [47:57.070] I've gotten to know and I've gotten to respect
+- [47:59.480] and really, your friends. You're friends of mine.
+- [48:02.160] And if I can help you at all, you let me know,
+- [48:04.040] but this is going to be something --
+- [48:05.280] the Board of Peace will be something
+- [48:06.920] that the likes of which I don't think anybody's seen before.
+- [48:10.470] And thank you all very much. It's a great honor.
+- [48:12.330] I'm going to ask JD Vance to come up and say a few words.
+- [48:14.780] Thank you very much.
+- [48:29.410] The Vice President: Well, thank you,
+- [48:30.690] Mr. President, very much for your leadership,
+- [48:32.590] but also for the kind words about me personally.
+- [48:35.570] I knew exactly what I wanted to say.
+- [48:37.690] But then after the president said that I was so smart,
+- [48:40.420] and that I didn't want to repeat our Congresswoman
+- [48:42.530] who froze for 20 seconds over in Munich now.
+- [48:45.020] I'm tempted, sir, just to freeze for 20 seconds
+- [48:47.920] and just stare at the cameras.
+- [48:49.520] And maybe they'll say nice things about me
+- [48:51.690] like they do about Congresswoman Cortez.
+- [48:53.830] But I have three very brief messages.
+- [48:55.950] First of all, to the president of United States,
+- [48:58.790] but to the entire team, to Marco,
+- [49:00.390] to Steve, to Jared in particular,
+- [49:02.760] who have done such an incredible job.
+- [49:04.700] I think with this Board of Peace represents is a recognition
+- [49:07.890] that if you actually have a president of the United States
+- [49:10.780] and a team that's committed to diplomacy,
+- [49:13.460] it can actually work.
+- [49:15.000] When I look at what happened to Israel on October the 7th,
+- [49:17.900] all those innocent people who were murdered,
+- [49:19.690] the fact that you had all of these hostages
+- [49:21.640] and, of course, a terrible war that came from it.
+- [49:24.350] I remember thinking to myself
+- [49:25.720] how is it ever going to be possible
+- [49:27.530] to get these hostages home safely,
+- [49:30.010] to make it possible for the people of Gaza
+- [49:32.100] to actually have a reasonable future,
+- [49:34.480] but also to ensure that Israel is never attacked again?
+- [49:36.880] It turns out the answer was you just need a president
+- [49:39.380] who is committed to the effort and committed to the work.
+- [49:41.720] And that's what we had, thankfully,
+- [49:43.790] under the leadership of this president.
+- [49:45.750] And you've got to make peace,
+- [49:47.250] but then you have to make the peace stick.
+- [49:49.160] And that brings me to my second point,
+- [49:50.490] that's what the Board of Peace,
+- [49:51.760] I think, is fundamentally about is making the peace stick.
+- [49:55.250] And it's an incredible thing that you guys have all done.
+- [49:57.730] So, to all of the leaders gathered here today
+- [50:00.460] who are investing in the future, who are investing in peace.
+- [50:03.350] We're grateful to you, we're grateful for your partnership.
+- [50:06.210] And in particular, I think, to the president of Azerbaijan
+- [50:09.670] and the prime minister of Armenia
+- [50:11.290] who I just saw last week --
+- [50:12.870] thank you all for making it possible
+- [50:14.400] and for showing what real leadership can accomplish.
+- [50:17.120] When you set aside weapons and killing and destruction
+- [50:20.640] and invest in your people and invest in prosperity,
+- [50:23.600] it can create great things.
+- [50:24.990] So, thank you both for what you did.
+- [50:26.380] I think it showed great leadership.
+- [50:28.230] And finally, to the American people,
+- [50:29.780] I think it's important that the American people
+- [50:31.490] recognize why we're here today.
+- [50:33.960] And the reason that we're here today
+- [50:35.400] is, yes, to save lives and, yes, to promote peace,
+- [50:39.770] but this creates incredible prosperity
+- [50:41.990] for the American people.
+- [50:43.340] The countries represented here represent
+- [50:46.370] trillions of dollars of investment
+- [50:48.370] in the United States of America
+- [50:49.760] that would not have been possible
+- [50:51.130] without this president's leadership and advocacy
+- [50:53.030] for peace.
+- [50:54.300] The economies here represent
+- [50:56.470] millions of American jobs of people
+- [50:58.870] who are receiving products built in American factories
+- [51:02.250] and made by American workers would not be possible
+- [51:05.250] without a focus on peace.
+- [51:06.700] So, Mr. President, while I think this is great for the world,
+- [51:09.050] I also think it's really,
+- [51:10.250] really great for the United States of America.
+- [51:12.320] So, we're looking forward to the partnership.
+- [51:14.160] With that, I want to turn it over to the emcee
+- [51:16.570] for the rest of the program
+- [51:18.730] and that is our great press secretary,
+- [51:20.330] Karoline Leavitt. Thank you.
+- [51:21.950] (applause)
+- [51:27.380] Karoline Leavitt: Well, congratulations,
+- [51:28.800] Mr. President and Mr. Vice President,
+- [51:30.680] for convening the first ever Board of Peace meeting.
+- [51:33.910] And we will now hear from our Secretary of State, Marco Rubio.
+- [51:45.750] Secretary Rubio: I'll be brief and to the point.
+- [51:47.140] We want to talk a little bit
+- [51:48.370] about the strategic vision of this organization
+- [51:50.390] and begin doing so by first acknowledging
+- [51:52.640] that we are here today
+- [51:54.210] because the president has -- the president,
+- [51:55.850] United States, Donald J. Trump,
+- [51:57.980] has both an ability and a willingness
+- [51:59.620] to use the power of his office to think outside the box.
+- [52:02.840] And that's why we're here today.
+- [52:04.090] This was a very unique crisis in Gaza,
+- [52:06.570] one that the existing international institutions
+- [52:08.810] could not solve or figure out.
+- [52:10.560] It needed a very specific type solution
+- [52:13.430] that required the partnership
+- [52:14.720] of all the nations that are here,
+- [52:16.350] including those that are here on an observer status.
+- [52:18.340] And we appreciate you coming today
+- [52:19.660] and being a part of this as well.
+- [52:21.500] And that's the point I want to drive home today.
+- [52:23.220] And soon you'll hear from Steve and Jared, who, by the way,
+- [52:26.230] deserve an incredible amount of credit
+- [52:28.050] for pulling this together and working countless hours
+- [52:30.320] and traveling all over the world.
+- [52:32.010] They truly deserve our appreciation
+- [52:33.220] and thanks for the work
+- [52:34.430] they've put in under the leadership of President
+- [52:36.640] Trump to make this possible.
+- [52:38.210] This Gaza situation was impossible to solve
+- [52:40.850] under Orthodoxy under existing structures.
+- [52:43.940] And so, what we did is they went to the UN,
+- [52:45.600] and they got the UN's approval to put this group together
+- [52:47.970] and bring these nations together to come up
+- [52:50.100] with a very specific solution --
+- [52:51.720] solutions to a very unique and specific problem.
+- [52:55.010] We have a long ways to go.
+- [52:56.210] There's a lot of work that remains.
+- [52:57.610] It will require the contribution of every nation state
+- [53:00.220] represented here today.
+- [53:01.460] And we thank you for being a part of it.
+- [53:03.460] And I hope that this -- we hope that this can serve
+- [53:05.410] as a model for other complex and difficult situations
+- [53:09.460] so they can be solved in the same way.
+- [53:10.830] But right now, the focus is on this one.
+- [53:13.030] We have to get this right. There is no plan B for Gaza.
+- [53:16.070] Plan B is going back to war. No one here wants that.
+- [53:19.370] Plan A, the only path forward, is one that rebuilds Gaza
+- [53:23.000] in a way of enduring and sustainable peace
+- [53:25.450] where everyone can live there side by side with one another
+- [53:28.110] and never worry again about returning to conflict,
+- [53:31.100] to war, to human suffering and to destruction.
+- [53:33.950] And again, Mr. President, thank you for having the vision
+- [53:36.110] and the courage to pursue something
+- [53:37.590] that has never been done before, and we're not done yet.
+- [53:40.180] And thank you to Steve Witkoff and Jared Kushner for the time
+- [53:43.770] and the work they've put into this.
+- [53:45.090] And thank you on behalf of the State Department
+- [53:46.880] and the US government,
+- [53:48.110] to all of the nations that are here.
+- [53:49.540] Every one of you is indispensable,
+- [53:51.180] including our observer partners, who we hope can find your way
+- [53:54.400] to join us at some point, officially part of this,
+- [53:57.000] but we are grateful for the fact you're here today
+- [53:59.140] and the contributions you've made already.
+- [54:00.870] Thank you. *******************
+- [54:05.730] Karoline Leavitt: Thank you, Marco.
+- [54:07.090] We will now hear from our special envoy, Steve Witkoff.
+- [54:15.450] Secretary Witkoff: Thank you, everybody, for being here.
+- [54:18.780] I don't know if we ever believed that this was possible
+- [54:21.040] when we first started envisioning a Board of Peace,
+- [54:24.780] but, of course,
+- [54:26.050] under the President's indispensable leadership,
+- [54:29.320] and it begins with that.
+- [54:30.550] It begins with President Trump's leadership and his direction.
+- [54:34.630] We are here today, and, it's pretty amazing.
+- [54:37.270] I think we have some people to thank.
+- [54:39.660] We had an amazing partnership between
+- [54:41.940] the mediating countries, Qatar, Egypt.
+- [54:46.060] Turkey, Prime Minister Mohammed,
+- [54:49.230] you are an exceptional human being.
+- [54:51.100] You really are. Thank you for everything you did.
+- [54:55.220] That's you right over there, Ali.
+- [54:57.960] Wherever Haqqan is, Haqqan, you were amazing.
+- [55:02.090] And so was Ibrahim and President Erdogan.
+- [55:07.090] And, of course, to the Egyptians,
+- [55:10.020] Badr, I know you're smiling because we went through so much.
+- [55:14.190] And General Hassan was amazing. We all became friends here.
+- [55:19.060] And Prime Minister Sisi, President Sisi.
+- [55:22.630] Pardon me. And so many others.
+- [55:27.060] But our team, JD, your insight, your counsel,
+- [55:31.110] and Marco, you're an amazing secretary,
+- [55:33.450] and it's a privilege to work for you.
+- [55:36.260] And Jared, you are my dear friend
+- [55:38.690] and the best partner I ever had. You are an amazing person.
+- [55:43.390] But, Mr. President, it is my greatest honor to work with you.
+- [55:47.180] It is the blessing in my life. I've had many blessings.
+- [55:50.170] I don't have to be a practicing lawyer anymore,
+- [55:52.970] But this is my greatest blessing
+- [55:55.700] But I also have to mention one other person
+- [55:57.840] who is important to this discussion.
+- [56:00.220] Oh, the Israelis, I forgot. Prime Minister Netanyahu.
+- [56:04.140] Without him, much wouldn't have been accomplished as well.
+- [56:08.000] And that's really important that we acknowledge him here today
+- [56:10.850] and Ron Dermer.
+- [56:12.770] But a person who doesn't care much
+- [56:18.050] about the acclaim we have to acknowledge to,
+- [56:21.830] and that's you, Susie. Because I would come back
+- [56:25.270] and you would say to me on every trip,
+- [56:27.570] what can I do for you? This matters.
+- [56:30.740] And you are an inspiration for all of us.
+- [56:33.700] So, I thank everybody.
+- [56:35.810] And let me get on to my going on to the next slide.
+- [56:44.940] With regard to the hostages, we're here today.
+- [56:49.150] Again, I say it, I know it sounds redundant,
+- [56:51.450] but we're hear today because of President Trump.
+- [56:53.780] Without him, none of this was possible.
+- [56:56.970] There were 251 hostages. 168 came out alive.
+- [57:02.240] 83 bodies were returned to their families
+- [57:04.870] so that they could grieve and remember their loved ones
+- [57:11.430] like in a normal way.
+- [57:16.070] In a way that brought their families together.
+- [57:18.030] So that was just as important. This was a monumental effort,
+- [57:23.850] and I want to tell a story about the President.
+- [57:27.970] Every time a hostage family came to visit with us,
+- [57:31.860] they were not on the President's schedule.
+- [57:34.140] I would walk down to the Oval Office.
+- [57:35.980] I would tell the President that there was a hostage here,
+- [57:39.900] and he would say, Steve, bring them up.
+- [57:42.050] Every single time When we got the last 20 out,
+- [57:47.810] we had a celebration at the White House,
+- [57:49.680] and I could see the emotion on the President's face.
+- [57:53.130] And he came up to me and he said to me,
+- [57:54.760] I have to tell you,
+- [57:56.700] this is my fifth year in the Oval Office,
+- [58:00.550] and I don't know that I've ever had a more special time
+- [58:04.570] than this moment with these people seeing them come home.
+- [58:15.600] And I said to the President, you have to look around,
+- [58:18.940] because none of them would be home without you, sir.
+- [58:21.350] None of them.
+- [58:22.650] So I only want to tell you, Mr. President,
+- [58:26.780] you gave me my greatest honor to work on this effort.
+- [58:30.170] And I thank you.
+- [58:40.180] Karoline Leavitt: Thank you, Steve.
+- [58:41.420] Now you're going to hear directly from the team
+- [58:43.440] that has been tasked with implementing
+- [58:45.340] President Trump's 20-point plan for Gaza,
+- [58:48.240] beginning with our ambassador to the United Nations, Mike Waltz.
+- [58:52.450] Ambassador Waltz: Thank you,
+- [58:53.690] and thank you, Mr. President, Excellencies.
+- [58:56.010] First, let me wish everyone a happy and prayerful Ramadan.
+- [59:00.360] Thank you so much for joining all of us today.
+- [59:03.910] Mr. President, excellencies, bottom line,
+- [59:07.290] humanitarian aid has absolutely surged
+- [59:11.040] since the Gaza war ended.
+- [59:12.580] Our central command, our great military,
+- [59:14.790] is working together with Israel, with the U.N.,
+- [59:17.670] so many countries here to coordinate the aid,
+- [59:20.250] to make sure there's deconfliction.
+- [59:22.300] Over 70 countries now are participating
+- [59:26.010] in our Civil Military Command Center,
+- [59:28.450] and here are the results. Aid is up.
+- [59:32.060] 4,200 aid trucks have entered
+- [59:35.440] Gaza each week for 13 consecutive weeks,
+- [59:39.230] the longest stretch of high-volume assistance
+- [59:42.710] to Gaza in years.
+- [59:44.310] Diversion is down significantly from prior to the ceasefire,
+- [59:48.590] with less than 1 percent diverted this month.
+- [59:51.390] Food supplies are way up.
+- [59:53.060] We are reaching the full 2.1 million Gazans
+- [59:56.160] with aid, up to
+- [59:57.920] Up five times from the delivery levels before the ceasefire,
+- [01:00:01.990] the percentage of households experiencing severe hunger
+- [01:00:05.930] has dropped from about 30 percent to down to 1 percent.
+- [01:00:10.690] As of this past February, drinking water has doubled,
+- [01:00:14.420] and child malnutrition has been cut in half.
+- [01:00:18.420] If we could go to the next slide.
+- [01:00:20.830] Mr. President, only under your leadership
+- [01:00:23.290] and this great team could we bring together
+- [01:00:26.870] the United States, Israel,
+- [01:00:28.600] Egypt, Jordan, the UAE, the United Nations agencies.
+- [01:00:33.130] Mr. President, bottom line, like you,
+- [01:00:36.330] this is a board of action,
+- [01:00:38.730] not a board in endless talk or speeches.
+- [01:00:41.760] And these results are a true testament to your leadership
+- [01:00:45.260] and the leadership of this great team.
+- [01:00:47.650] We are saving lives, and it's an honor to be a part of it.
+- [01:00:50.460] Thank you, Mr. Chair.
+- [01:00:56.040] Karoline Leavitt: Dr. Ali Shay.
+- [01:01:00.450] Dr. Ali Shay: It is my honor to be here
+- [01:01:02.220] representing the National Committee
+- [01:01:04.320] for the Administration of Gaza.
+- [01:01:08.790] Thank you, President Trump, for your leadership,
+- [01:01:12.590] for your continued efforts.
+- [01:01:15.200] A new governing authority is now in place for Gaza,
+- [01:01:19.460] with a clear mandate and a clear commitment
+- [01:01:23.250] to establishing development and stability.
+- [01:01:29.750] However, we are operating in extremely difficult conditions.
+- [01:01:34.690] Large parts of Gaza Strip.
+- [01:01:37.480] Are severely damaged, destroyed, actually.
+- [01:01:41.260] Humanitarian needs are acute. Law and order remain fragile.
+- [01:01:49.950] This is not normal operating environment,
+- [01:01:52.800] President, which is precisely why discipline
+- [01:01:58.570] and prioritization matter.
+- [01:02:05.170] Our priorities, therefore, are defined into four categories.
+- [01:02:10.810] First, restore security via professional civilian police
+- [01:02:17.540] under one authority, one law,
+- [01:02:20.860] and one weapon, including training
+- [01:02:24.080] and developing 5,000 Gazan police
+- [01:02:28.440] to be deployed in 60 days.
+- [01:02:31.630] Secondly, revive economic activities.
+- [01:02:35.700] Livelihoods, creating decent jobs,
+- [01:02:39.790] especially for our young population.
+- [01:02:44.110] Thirdly, ensure sustainable emergency relief
+- [01:02:48.450] as described earlier.
+- [01:02:51.820] Fourthly, restore basic services including electricity,
+- [01:02:56.040] water, health and education,
+- [01:02:59.030] and last but not least, access and movement.
+- [01:03:03.940] Our mandate is simple, President,
+- [01:03:06.900] step-by-step to build the foundation
+- [01:03:09.720] for lasting peace, dignity, and prosperity
+- [01:03:14.190] for the people of Gaza. And this is where we count
+- [01:03:19.110] on your continued leadership and support.
+- [01:03:23.200] Blessed the peacemaker. Thank you.
+- [01:03:33.490] Karoline Leavitt: Thank you. Now, Nick Mladenov.
+- [01:03:36.910] Nickolay Mladenov: Thank you, Karoline,
+- [01:03:38.160] and thank you, Mr. President.
+- [01:03:40.370] Today, we're very happy to announce
+- [01:03:42.750] that we're creating the Office of the High Representative
+- [01:03:45.110] for Gaza of the Board of Peace,
+- [01:03:47.000] which will be there to support, to guide,
+- [01:03:49.470] and assist the National Committee
+- [01:03:51.370] for the administration of Gaza,
+- [01:03:53.630] hopefully removing the roadblocks
+- [01:03:55.200] that they will be facing in taking over civilian
+- [01:03:58.320] and administrative control of the Gaza Strip.
+- [01:04:01.340] We plan to work in full transparency
+- [01:04:03.260] under the guidelines and supervision
+- [01:04:05.760] of the Board of Peace and the Executive Board.
+- [01:04:08.190] And, of course, we will do that in great coordination
+- [01:04:10.320] with the Israel
+- [01:04:11.920] and with the Palestinian institutions
+- [01:04:13.510] who we both require to make this work on the ground,
+- [01:04:16.460] and certainly with my very good colleague here,
+- [01:04:19.670] General Jefferson,
+- [01:04:20.910] the International Stabilization Force
+- [01:04:22.760] that is coming together.
+- [01:04:24.220] Mr. President, if I can actually use the opportunity
+- [01:04:26.580] to announce some breaking news that as of this morning.
+- [01:04:30.260] We started the process
+- [01:04:31.540] of recruiting Palestinian police force
+- [01:04:34.030] that Ali was just referring to. And just in the first few hours,
+- [01:04:39.220] we have 2,000 people who have applied to join
+- [01:04:42.620] a new transitional Palestinian police force
+- [01:04:45.820] to be formed in Gaza
+- [01:04:47.270] under the authority of the National Committee
+- [01:04:49.370] with the support of the Board of Peace,
+- [01:04:51.140] trained in Egypt, where we have received
+- [01:04:52.920] an excellent proposal of how to do that forward.
+- [01:04:55.420] And this is critical to what we need to do.
+- [01:04:57.900] As we begin this process.
+- [01:04:59.240] And if we may move to the second slide.
+- [01:05:03.880] It is this Palestinian security force,
+- [01:05:06.650] under the authority of the National Committee
+- [01:05:08.620] for the Transition period,
+- [01:05:09.820] that will allow us to ensure that all factions in Gaza
+- [01:05:13.580] are dismantled and all weapons are put under the control
+- [01:05:17.120] of one civilian authority.
+- [01:05:19.480] The only way to do that is the full implementation
+- [01:05:21.890] of the 20-point plan
+- [01:05:23.420] and the UN Security Council resolution,
+- [01:05:25.270] which binds us all to make sure that that is a way forward.
+- [01:05:28.360] We have now a fully agreed framework with the mediators
+- [01:05:31.540] on how to do this and I thank very much the State of Qatar,
+- [01:05:35.100] Egypt, and Turkey for their excellent support in this.
+- [01:05:38.400] We now need to move forward on communicating it
+- [01:05:41.630] and negotiating the details of the implementation plan
+- [01:05:44.750] with the factions on the ground.
+- [01:05:46.050] But rest assured to all of you that we're on the right track
+- [01:05:49.400] and if I can ask one thing of all of us
+- [01:05:51.520] is to make sure that we have one message.
+- [01:05:53.710] There is no other option except the full demilitarization
+- [01:05:57.020] and decommissioning of all Weapons in Gaza
+- [01:05:59.560] for reconstruction to begin
+- [01:06:01.190] and for people to have a new way of life going forward.
+- [01:06:04.600] Thank you.
+- [01:06:09.630] Karoline Leavitt: Thank you, Nick,
+- [01:06:10.950] and congratulations now, Major General Jasper Jeffers.
+- [01:06:15.200] Major Jeffers: Thank you, Karoline, Mr. President.
+- [01:06:16.690] It's an honor to be here today as the ISF commander.
+- [01:06:19.230] The ISF will do two things,
+- [01:06:21.160] stabilize the security environment in Gaza
+- [01:06:23.650] and enable civilian governance as established
+- [01:06:26.060] by the National Committee. For the last few months,
+- [01:06:28.510] we've had a team on the ground of U.S. Military experts
+- [01:06:31.150] preparing the infrastructure for the ISP.
+- [01:06:33.860] This team's already operating
+- [01:06:35.170] from a combined joint operation center
+- [01:06:37.450] that's going to be the headquarters for the entire ISF.
+- [01:06:40.680] As you can see on our map, Our plan is for the ISF
+- [01:06:43.340] to be assigned in five different sectors,
+- [01:06:45.880] each sector receiving one ISF brigade.
+- [01:06:48.880] In the short term, we plan to deploy to the RAFA sector first,
+- [01:06:53.230] in addition to the training of police.
+- [01:06:55.250] Midterm objective is to continue to expand sector by sector,
+- [01:06:59.820] all moving to our long term,
+- [01:07:01.770] 12,000 police and 20,000 ISF soldiers.
+- [01:07:07.170] I'm incredibly pleased to announce today,
+- [01:07:09.920] The first five countries have committed troops
+- [01:07:12.130] to serve in the ISF.
+- [01:07:13.840] Indonesia, Morocco, Kazakhstan, Kosovo, and Albania.
+- [01:07:20.660] The two countries have committed to train police,
+- [01:07:23.770] Egypt and Jordan.
+- [01:07:25.550] I would also like to announce that I have offered,
+- [01:07:27.960] and Indonesia has accepted,
+- [01:07:29.870] the position of Deputy Commander for the ISSF.
+- [01:07:33.430] With these first steps, we will help bring the security.
+- [01:07:37.860] The Gaza needs for a future prosperity and enduring peace.
+- [01:07:41.190] Thank you.
+- [01:07:47.350] Karoline Leavitt: Thank you, Major General, Mr. Tony Blair.
+- [01:07:50.900] Major Blair: For decades, Gaza's governance
+- [01:07:52.520] has been characterized
+- [01:07:54.010] by extremism, corruption, ineffective institutions,
+- [01:07:58.400] and the complete absence of a route to prosperity
+- [01:08:00.720] for the Gazan people.
+- [01:08:02.930] Yet, as President Trump recognized,
+- [01:08:04.800] its potential has always been vast.
+- [01:08:07.950] 25 miles of Mediterranean coastline,
+- [01:08:10.820] proximity to great regional and global markets,
+- [01:08:14.240] and a young, dynamic population with the median age of 19.
+- [01:08:18.910] So today we set out profound changes necessary
+- [01:08:22.360] to rebuild Gaza for Gazans.
+- [01:08:25.010] Gaza not as it was, but as it should be,
+- [01:08:28.460] including its governance.
+- [01:08:30.980] Effective public institutions serving the people,
+- [01:08:34.070] a business environment where enterprise flourishes,
+- [01:08:37.590] an education system educating the young
+- [01:08:40.370] for tolerance and achievement, and a tech-enabled society
+- [01:08:44.650] making the most of the digital revolution.
+- [01:08:47.800] This is a vision of Gaza as part of the Middle East at peace.
+- [01:08:53.510] Not a phony piece of declarations
+- [01:08:55.290] no one means and agreements no one intends to keep,
+- [01:08:58.490] but a genuine commitment to a region where,
+- [01:09:01.510] whether you're a Muslim, Jew,
+- [01:09:02.910] Christian, of any faith or none, you can rise by your own efforts
+- [01:09:07.550] and feel your government by your side, not on your back.
+- [01:09:11.430] That is the vision behind President
+- [01:09:13.470] Trump's 20-point plan for Gaza, and it remains the best.
+- [01:09:18.300] Indeed the only hope for Gaza, the region, and the wider world.
+- [01:09:28.410] Karoline Leavitt: Thank you. Mr. Yakir Gabay.
+- [01:09:32.200] Yakir Gabay: Hello, everybody.
+- [01:09:33.410] Thank you, Mr. President. Gaza is destroyed.
+- [01:09:36.820] We're assembled here on this historic day with common vision
+- [01:09:40.030] to rebuild Gaza for the next generations.
+- [01:09:42.830] Our mission is to recycle
+- [01:09:44.760] and remove 70 million tons of rubble and UXO
+- [01:09:48.020] and hundreds of miles of tunnels,
+- [01:09:50.650] arrange for the population fast, temporary housing,
+- [01:09:54.270] in parallel to start construction of infrastructure
+- [01:09:57.500] and permanent housing.
+- [01:09:59.340] We have a detailed master plan for housing and infrastructure
+- [01:10:02.300] of modern schools and hospitals, manufacturing and agriculture,
+- [01:10:06.290] roads and trains, water and energy plants,
+- [01:10:09.050] logistic hubs, telecom tech and data centers,
+- [01:10:12.470] sports and leisure facilities, seaport and airport,
+- [01:10:16.290] and much more.
+- [01:10:17.550] We lined up many regional contractors
+- [01:10:19.590] who build housing for millions of people in the Middle East.
+- [01:10:22.660] They will join the massive redevelopment
+- [01:10:25.320] with competitive pricing. The funding is ready.
+- [01:10:28.640] And will be invested in a free economy.
+- [01:10:31.140] The local population will build their own cities,
+- [01:10:33.820] which will create hundreds of thousands of jobs
+- [01:10:35.780] and will revive the economy.
+- [01:10:37.510] The Gaza coastline is 26 miles long.
+- [01:10:40.140] It can be developed as a new Mediterranean Riviera
+- [01:10:42.580] with 200 hotels and potential islands.
+- [01:10:45.730] The value goes to the Gazans through the Gaza Sovereign Fund.
+- [01:10:49.200] This plan is all subject to a full disarmament of Hamas.
+- [01:10:52.980] Thank you very much.
+- [01:10:54.240] Together we will make this vision into a reality.
+- [01:11:01.930] Karoline Leavitt: Thank you, Mr. Liran Tancman.
+- [01:11:06.940] Liran Tancman: When we asked the NCAD what Gaza
+- [01:11:10.000] needs to unlock its potential, the answer was clear.
+- [01:11:13.560] Reconnect Gaza to the world, digitally and economically,
+- [01:11:17.660] and replace corruption with an open tax-free system.
+- [01:11:22.250] Gaza was once a vital trade hub between Asia and Europe.
+- [01:11:26.750] Reconnection is a return to its roots.
+- [01:11:29.890] Even the word gauze comes from Gaza,
+- [01:11:32.830] where silk was woven and exported to Europe.
+- [01:11:37.170] We brought together Palestinian, Arab,
+- [01:11:39.640] and American partners to deliver practical solutions.
+- [01:11:43.160] By July, Gaza's 2G network will be upgraded
+- [01:11:47.340] with free high-speed access to essential services.
+- [01:11:51.050] The NCAD is building a secure digital backbone,
+- [01:11:54.380] an open platform,
+- [01:11:55.760] enabling e-payments, financial services,
+- [01:11:58.180] e-learning, and health care with user control over data.
+- [01:12:02.360] This effort is supported by our regional partners.
+- [01:12:06.490] And I believe you will hear some exciting news from them
+- [01:12:09.020] on that later today.
+- [01:12:10.700] In parallel, we're advancing an Amazon-like logistic system
+- [01:12:14.470] to help Palestinian lunch businesses import
+- [01:12:16.930] globally and trade securely.
+- [01:12:19.090] This will lower prices, drive growth,
+- [01:12:21.860] and help transform Gaza into an open, transparent,
+- [01:12:26.170] corruption-free economic zone. Thank you.
+- [01:12:29.120] Karoline Leavitt: Thank you. Mr. Marc Rowen.
+- [01:12:35.930] Marc Rowen: Mr. President, distinguished leaders,
+- [01:12:38.950] the goal is simple.
+- [01:12:40.360] Take the momentum all of you have provided
+- [01:12:44.400] and build it into something that is not just temporary relief
+- [01:12:47.830] but something that provides a long-term foundation
+- [01:12:51.020] that will enable many of the goals
+- [01:12:52.390] we've spoken about today to be achieved.
+- [01:12:55.140] We plan to do this by gathering Gaza's productive assets
+- [01:12:59.220] in one unified structure.
+- [01:13:01.510] This will allow independent, professional,
+- [01:13:04.690] conflict-free management of the resources to benefit the Gazans.
+- [01:13:10.090] This will also enable expeditious planning and zoning
+- [01:13:15.090] and not fragmented projects
+- [01:13:16.840] that do not contribute to an economic whole.
+- [01:13:22.590] The potential here is tremendous.
+- [01:13:26.410] But it has to start somewhere.
+- [01:13:28.260] The start is in Rafah, where, as you heard,
+- [01:13:31.220] that will be the first place security is deployed.
+- [01:13:34.130] The plan is 100,000 homes for 500,000 residents
+- [01:13:38.860] plus 5 billion of infrastructure.
+- [01:13:41.750] Over time, 400,000 for the entirety of the population
+- [01:13:46.780] with more than 30 billion of infrastructure.
+- [01:13:49.470] Let me put it in financial terms.
+- [01:13:51.920] This is not a problem of money or collateral.
+- [01:13:56.170] This is a problem with peace. The coastline alone,
+- [01:14:00.260] $50 billion of value on a conservative basis.
+- [01:14:03.930] The housing stock, more than $30 billion as rebuilt.
+- [01:14:07.790] The infrastructure, more that $30 billion,
+- [01:14:10.250] $115 billion of value,
+- [01:14:12.470] it just needs to be unlocked and financed.
+- [01:14:20.320] Karoline Leavitt: Mr. Ajay Banga.
+- [01:14:22.160] Ajay Banga: Thank you, Karoline, and thank you, Mr. President.
+- [01:14:25.100] All this requires money.
+- [01:14:26.970] And so when the UN Security Council resolution got passed,
+- [01:14:31.270] we set about creating the Gaza Reconstruction
+- [01:14:33.890] and Development Fund
+- [01:14:35.170] at the World Bank. It's housed there.
+- [01:14:36.970] The World Bank's role is that of a limited trustee.
+- [01:14:39.960] We managed the donor contributions
+- [01:14:41.780] coming in of the type that the president said
+- [01:14:44.290] a little earlier in his opening remarks.
+- [01:14:46.640] And then we helped to manage that money
+- [01:14:48.070] while it stays with us.
+- [01:14:49.420] And under the direction of the Board of Peace.
+- [01:14:52.390] We disperse the money for reconstruction
+- [01:14:54.770] and development projects in Gaza.
+- [01:14:57.150] This fund is ready to receive the donations
+- [01:15:00.280] that he spoke about just a little while ago.
+- [01:15:03.300] The second part of the story is that U.S. Donors
+- [01:15:06.470] deserve the right to know
+- [01:15:07.990] that the money is being used in a transparent way.
+- [01:15:11.390] We are helping, along with the Board of Peace,
+- [01:15:13.480] which takes the ownership of ensuring
+- [01:15:16.040] that the right kind of financial,
+- [01:15:18.310] legal, and oversight mechanisms are being put in
+- [01:15:20.750] Thank you again. Have a lovely week.
+- [01:15:22.010] Have a beautiful week. Have a happy week.
+- [01:15:23.320] We've even assigned a financial controller from the World Bank
+- [01:15:25.810] on a second basis to the Board of Peace
+- [01:15:28.520] to ensure that we can try
+- [01:15:29.990] and help build the best standards in this process.
+- [01:15:33.350] Now, this is just the beginning.
+- [01:15:35.230] This work is going to need two or three things
+- [01:15:37.540] that the World bank group can bring to the table.
+- [01:15:40.080] The first is leveraging of public finance.
+- [01:15:43.230] Because of our AAA rating, we have the ability
+- [01:15:45.780] to leverage private bond money to help to create the resources
+- [01:15:49.670] we need to do what Mark just talked about.
+- [01:15:52.560] The second is we can de-risk private investing.
+- [01:15:55.720] And the third is we have people on the ground and expertise
+- [01:15:58.950] and knowledge of doing this kind of work in other markets.
+- [01:16:02.560] We want to be not an armchair critical process,
+- [01:16:06.210] but an active participant in giving Gazans
+- [01:16:09.250] and people in the region the opportunity of the lives
+- [01:16:12.600] they deserve the one time we get these odds.
+- [01:16:15.560] So thank you again.
+- [01:16:21.430] Karoline Leavitt: Thank you all for your tremendous work.
+- [01:16:23.240] Before we turn it over to many of the distinguished leaders
+- [01:16:25.860] who are here today,
+- [01:16:27.100] we are going to hear from Mr. Kushner
+- [01:16:29.300] to talk about the future of the Board of Peace.
+- [01:16:35.720] Jared Kushner: Thank you, Karoline,
+- [01:16:36.960] and thank you, Mr. President,
+- [01:16:38.160] Mr. Vice President, Secretary Rubio.
+- [01:16:41.100] We cannot change the past,
+- [01:16:42.650] but I think that what you're seeing today
+- [01:16:44.240] is that we can potentially change the future if we focus
+- [01:16:48.660] and do this in the right way. We tried to structure
+- [01:16:51.130] this meeting like a proper board meeting,
+- [01:16:52.660] like we do in the private sector,
+- [01:16:53.930] where we have all the preparation,
+- [01:16:55.810] we get the right people together,
+- [01:16:57.120] and we really report on what our challenges are,
+- [01:16:59.760] what the opportunities are, and what are the approaches.
+- [01:17:02.930] What you've seen today is just a small sample.
+- [01:17:05.410] Of the work that's been done.
+- [01:17:06.650] And I really want to thank the entire team
+- [01:17:08.300] that's worked so hard at this.
+- [01:17:09.900] A lot of these people are volunteers.
+- [01:17:11.530] They're doing this not for any personal gain.
+- [01:17:13.780] People are not personally profiting from this.
+- [01:17:16.160] They are really doing this for their children
+- [01:17:18.140] and for their grandchildren and because they want to see peace.
+- [01:17:21.520] One small anecdote is Lee Ron said to me,
+- [01:17:23.980] are you sure I should be presenting?
+- [01:17:25.720] I'm a Jewish Israeli and I'm working on Gaza
+- [01:17:27.420] and all these things.
+- [01:17:28.630] And I said, that's exactly why you should be present today.
+- [01:17:31.770] If Jews and Muslims work together,
+- [01:17:33.450] Israelis and Palestinians with Americans and English
+- [01:17:36.670] and Bulgarian and people from all around the world,
+- [01:17:39.660] then we can kind of join on a common goal
+- [01:17:41.580] which is peace and togetherness,
+- [01:17:43.280] and that's really what we've done.
+- [01:17:45.010] I want to thank President Trump. I remember working with you
+- [01:17:48.720] on your first foreign policy speech in 2016
+- [01:17:51.490] that you gave at the Mayflower Hotel,
+- [01:17:53.690] and at the time, those ideas were considered
+- [01:17:55.440] to be very, very radical.
+- [01:17:57.070] What I saw as somebody who didn't have
+- [01:17:58.710] any foreign policy experience were just common sense ideas,
+- [01:18:01.930] why can't the world be better? Why can't there be peace?
+- [01:18:04.260] Why can there be more prosperity for all people in all ways?
+- [01:18:07.900] And I think over the last decade,
+- [01:18:09.110] you really have changed the way
+- [01:18:10.370] that the world thinks about a lot of these things.
+- [01:18:12.490] And I that this organization is bringing a new approach
+- [01:18:15.140] and new ideas and new people together
+- [01:18:17.460] in order to effectuate it.
+- [01:18:19.100] I'd really like to thank all the countries
+- [01:18:20.740] that joined on very early.
+- [01:18:22.430] I see this as a very self- selecting group of countries
+- [01:18:25.530] that really believe that the future can be different
+- [01:18:28.230] and wanted to join in partnership
+- [01:18:29.750] and put their reputations and their resources
+- [01:18:31.730] and their time and their ideas on the way to say
+- [01:18:34.490] these are the challenges we're putting into our that
+- [01:18:36.310] we're solving in our own countries.
+- [01:18:37.580] We want to come with new ideas because we've achieved success
+- [01:18:40.710] and we believe that the world can be better in that regard.
+- [01:18:43.940] So I don't have to go through these slides in great detail,
+- [01:18:47.110] but we've secured today even without the President's,
+- [01:18:50.040] you know, amazing commitment over $7 billion.
+- [01:18:52.950] As Mark said, we don't really have a resource issue here,
+- [01:18:55.270] although we are going need. Everyone's support.
+- [01:18:57.250] We just need to be executing and doing this in a good way.
+- [01:18:59.980] We've dealt with the humanitarian issue.
+- [01:19:01.590] We've returned the hostages.
+- [01:19:03.240] But the one final thing I just want to talk about
+- [01:19:05.080] as well from our perspective
+- [01:19:06.340] is that the President Trump in his heart
+- [01:19:10.110] wanted to get the hostage home,
+- [01:19:11.550] but he also really wanted to help the people of Gaza.
+- [01:19:14.170] He saw the suffering that they were enduring
+- [01:19:15.730] not through fault of their own
+- [01:19:16.960] because of the bad leadership that they had,
+- [01:19:18.650] the situation they were born into.
+- [01:19:20.620] The war was a horrific, horrific situation.
+- [01:19:23.010] And I think through this process.
+- [01:19:25.010] Thanks to Ali and the committee.
+- [01:19:26.860] We are now here to fully support the committee
+- [01:19:28.820] We are held here to help the people of Gaza
+- [01:19:30.660] to lift them up and give them ever opportunity to succeed
+- [01:19:33.550] and we really see This as a partnership with them
+- [01:19:36.160] and with the Israelis to see if we can create an environment
+- [01:19:39.170] That could be peaceful that could be functional
+- [01:19:40.830] that can offer people the opportunity
+- [01:19:42.660] to really live a better life
+- [01:19:43.990] And I think you've seen some of the work today
+- [01:19:46.020] and hopefully we'll be successful
+- [01:19:48.090] Like I said the last one,
+- [01:19:49.370] you know failure is not an option
+- [01:19:50.890] and we have to really push forward
+- [01:19:52.470] and keep finding ways to succeed with this.
+- [01:19:54.460] Really thank you, President Trump,
+- [01:19:55.940] Vice President Vance, and Secretary Rubio,
+- [01:19:59.200] and obviously Steve, who's been, like he said about me,
+- [01:20:01.630] I feel just about him.
+- [01:20:03.070] Working through all these challenges
+- [01:20:04.570] has been an absolute honor and a pleasure with you,
+- [01:20:07.010] and I've really been very lucky to have your partnership.
+- [01:20:10.240] So really thank you all, and I'll give back to Karoline.
+- [01:20:12.780] Thank you.
+- [01:20:13.980] Karoline Leavitt: Thank you, Jared.
+- [01:20:16.210] Male Speaker: The war Hamas began has left.
+- [01:20:22.750] The war Hamas began has left Gaza in ruins.
+- [01:20:26.690] Yet from these ruins, new future will rise.
+- [01:20:31.690] President Donald Trump unparalleled achievements
+- [01:20:34.360] in just few months. The United States,
+- [01:20:37.530] together with key regional and global partners,
+- [01:20:40.590] has signed the 20-point Gaza peace plan,
+- [01:20:43.640] a blueprint for security, peace and prosperity.
+- [01:20:48.140] All the hostages returned, the living ones to their homes
+- [01:20:52.060] and the deceased to burial.
+- [01:20:54.180] Ceasefire is stable and the killings from both sides
+- [01:20:57.700] reduced by 99%.
+- [01:20:59.790] The United Nations Security Council
+- [01:21:01.570] approved the establishment of the Board of Peace
+- [01:21:03.520] chaired by President Donald Trump,
+- [01:21:05.510] a governing body dedicated to providing security,
+- [01:21:08.820] infrastructure, and homes for Gaza's people.
+- [01:21:12.020] Ushering in the new dawn for Gaza.
+- [01:21:15.360] The new Palestinian technocratic government of Gaza, the NCAG,
+- [01:21:19.420] was elected with consent of all parties,
+- [01:21:22.020] including the Palestinian factions, Israel,
+- [01:21:24.550] and the Arab countries.
+- [01:21:26.310] Ra'afah border crossing with Egypt was open.
+- [01:21:29.070] The NCAG will secure the disarmament of Gaza
+- [01:21:32.460] to ensure one authority, one law, and one weapon.
+- [01:21:36.120] The United States and its partners,
+- [01:21:38.060] in coordination with the World Bank,
+- [01:21:40.230] are pledging billions of dollars to rebuild Gaza.
+- [01:21:43.390] Safe areas are being established in Rafa
+- [01:21:46.300] and later across the Gaza Strip,
+- [01:21:48.590] where families can receive shelter,
+- [01:21:50.500] food, health care, and education.
+- [01:21:53.160] In Arafah, Gazans will build their first new city.
+- [01:21:57.140] The NCAG with the Board of Peace will expand development
+- [01:22:01.450] across the entire strip, employing hundreds of thousands
+- [01:22:05.440] in reconstruction and business activity.
+- [01:22:07.860] Transportation, water, and energy systems will be restored,
+- [01:22:12.150] and a modern economy will begin to emerge.
+- [01:22:15.270] Children will return to classrooms with a curriculum
+- [01:22:17.930] that promotes tolerance, dignity, and peace.
+- [01:22:21.820] Our goal by year three, RAFA Fully Rebuilt.
+- [01:22:25.640] Unemployment Curb.
+- [01:22:27.160] And Gaza connected to the world through an Abrahamic gateway,
+- [01:22:30.650] linking it with Egypt, Israel, Jordan, Saudi Arabia, the UAE,
+- [01:22:36.780] and extending to India and Europe.
+- [01:22:39.300] By year 10, Gaza will be self-governed,
+- [01:22:42.430] integrated into the region with thriving industries
+- [01:22:45.490] and housing for all.
+- [01:22:47.370] This is the framework for Gaza's rebirth,
+- [01:22:49.960] secure, prosperous, and peaceful.
+- [01:23:02.560] Karoline Leavitt: Amazing.
+- [01:23:03.830] Now we will hear from our distinguished leaders
+- [01:23:06.520] who are here today beginning with the King
+- [01:23:08.640] of the Kingdom of Bahrain. You're welcome.
+- [01:23:13.820] King Hamad: President Trump, members.
+- [01:23:19.990] Of the Board of Peace, it is an honor to participate
+- [01:23:24.880] in this inaugural meeting of board
+- [01:23:28.530] convened by President Donald Trump.
+- [01:23:32.220] I take this opportunity to extend
+- [01:23:34.390] my heartfelt congratulations on this worthy
+- [01:23:39.700] and timely initiative.
+- [01:23:42.330] The meeting comes during the holy month of Ramadan,
+- [01:23:47.570] where we will pray to Almighty God.
+- [01:23:50.870] That our endeavors will bring peace,
+- [01:23:52.880] security, prosperity to the world.
+- [01:23:57.310] As a founding member of the Board of Peace,
+- [01:24:00.730] the Kingdom of Bahrain recognizes and endorses
+- [01:24:04.260] the tremendous potential of this body,
+- [01:24:07.200] the extraordinary drive of its chairman,
+- [01:24:10.870] and his sincere efforts to unify nations in our common objective
+- [01:24:17.230] of fostering and enduring peace for the Middle East.
+- [01:24:21.790] We greatly appreciate President Trump's initiative
+- [01:24:25.550] in presenting the Gaza peace plan
+- [01:24:29.180] and establishing this board as a vital platform
+- [01:24:33.860] for dialog, action, and delivery.
+- [01:24:37.970] As we embark on this historic journey together,
+- [01:24:41.940] we urge all peace-loving nations, organizations,
+- [01:24:46.010] and groups to actively engage
+- [01:24:49.340] and the successful implementation.
+- [01:24:52.310] Of the second phase of the Gaza peace plan.
+- [01:24:56.600] This includes ensuring a lasting ceasefire in Gaza,
+- [01:25:00.500] facilitating reconstruction and providing hope
+- [01:25:07.470] and new opportunities for the people of Palestine and Israel.
+- [01:25:13.180] This inaugural meeting of the Board of Peace
+- [01:25:17.270] marks an extraordinary and pivotal chance
+- [01:25:20.900] to envision a new future to Gaza,
+- [01:25:23.990] one that emerges from the ruins of conflict
+- [01:25:27.300] to building a landscape of security, aspiration, hope.
+- [01:25:32.260] And opportunity for its people.
+- [01:25:34.790] And reaffirming our commitment to this vision,
+- [01:25:37.950] the Kingdom of Bahrain has contributed the funds
+- [01:25:41.230] towards the operations
+- [01:25:42.670] and administration of the Board of Peace.
+- [01:25:45.900] And today, we announce our readiness
+- [01:25:49.620] to provide the necessary infrastructure and skills
+- [01:25:53.590] to establish an effective government
+- [01:25:56.150] digital services platform for Gaza.
+- [01:26:02.670] Our decision to join the Abraham Accord
+- [01:26:07.660] and enter into the C-CEBA agreement
+- [01:26:11.510] with the United States reflects our commitment
+- [01:26:14.960] to advancing peace and stability in the Middle East.
+- [01:26:18.630] The United States' historic and ongoing presence in our region
+- [01:26:24.200] has served as a positive force for stability,
+- [01:26:29.020] and we remain dedicated.
+- [01:26:31.020] To strengthening our partnership.
+- [01:26:33.770] We look forward with optimism
+- [01:26:36.500] to working with the Board of Peace
+- [01:26:38.990] and all of our international partners
+- [01:26:41.830] who share our ambitions for a brighter future for all.
+- [01:26:46.910] Thank you, Mr. President.
+- [01:26:52.890] Karoline Leavitt: Next,
+- [01:26:54.260] the Presidents of the Republic of Kazakhstan.
+- [01:26:58.290] President Tokayev: Dear Mr. President,
+- [01:26:59.810] ladies and gentlemen,
+- [01:27:02.480] our meeting here at the Donald Trump U.S.
+- [01:27:07.080] Institute of Peace comes at a moment
+- [01:27:11.060] when decisive and pragmatic actions matter most.
+- [01:27:16.380] In fact, it's about making durable practical,
+- [01:27:23.000] target-oriented measures,
+- [01:27:25.180] but not through endless conferences
+- [01:27:28.990] with wishful resolutions.
+- [01:27:31.870] Mr. President, your clear vision and far-sighted approach
+- [01:27:37.000] to promoting global peace and stability
+- [01:27:40.650] has inspired my country to join the Board of Peace.
+- [01:27:45.700] The Board of peace is widely expected
+- [01:27:48.470] to respond directly to new realities
+- [01:27:52.430] by reinforcing existing multilateral efforts.
+- [01:27:57.320] The world has never seen a move like this.
+- [01:28:01.440] It is absolutely unprecedented because, in essence,
+- [01:28:06.310] peace through construction
+- [01:28:08.690] is a very innovative concept or project,
+- [01:28:13.300] and it has every chance to become a reality by our efforts.
+- [01:28:20.560] Therefore, Mr. President, I acknowledge
+- [01:28:23.710] and accept your conviction that lasting peace
+- [01:28:28.280] must be built on concrete actions.
+- [01:28:32.060] As our first step, we are ready to contribute
+- [01:28:37.100] a significant amount of cash finance
+- [01:28:41.350] directly to the Board of Peace without any delay.
+- [01:28:45.790] Karastan is also keen to be part of the restoration of Karastani.
+- [01:28:50.580] And construction process through international companies
+- [01:28:55.760] with strong credentials.
+- [01:28:58.160] The program, mostly funded by our government,
+- [01:29:03.070] may include the construction of infrastructure,
+- [01:29:06.950] housing, residential complexes, schools, hospitals,
+- [01:29:11.800] and other important civilian facilities,
+- [01:29:15.180] as well as the rubble clearance. We pledge to fully accomplish
+- [01:29:21.460] our financial commitment to the board.
+- [01:29:25.540] As one of the world's major producers of wheat,
+- [01:29:29.940] Kazakhstan is ready to provide humanitarian assistance
+- [01:29:34.100] to enhance food security in Gaza.
+- [01:29:39.440] Karastan plans to provide 500 scholarships
+- [01:29:43.740] to Palestinian students to pursue academic programs
+- [01:29:48.610] in our universities over a five-year period.
+- [01:29:53.880] We can share our internationally recognized
+- [01:29:57.360] e-government expertise and other digital solutions.
+- [01:30:02.800] Karastani is willing to support the ISF by deploying.
+- [01:30:09.110] Military units, including medical units,
+- [01:30:14.960] and sending our observers
+- [01:30:17.920] to the Civil Military Coordination Center.
+- [01:30:21.410] Sustainable development in the Middle East
+- [01:30:24.120] requires new ways to promote peace, cooperation
+- [01:30:28.460] and trust across the region.
+- [01:30:30.550] That's why Kazakhstan has joined the Abraham Air Force.
+- [01:30:35.580] This crucial move is fully aligned.
+- [01:30:39.020] With the noble mission of the Board of Peace.
+- [01:30:42.470] Both of them may constitute a solid basis for joint efforts
+- [01:30:48.490] to promote peace and security in the Middle East
+- [01:30:52.100] and to foster economic, humanitarian cooperation
+- [01:30:56.510] in the region and even beyond.
+- [01:31:00.540] Given the global nature of the board's agenda,
+- [01:31:03.850] Kazakhstan is committed to providing practical support,
+- [01:31:07.830] including through hosting meetings
+- [01:31:11.170] at different levels and scales.
+- [01:31:15.560] I also would like to propose to establish a special
+- [01:31:19.720] President Trump's Award of the Board of Peace
+- [01:31:23.760] to recognize his outstanding peace-building efforts
+- [01:31:29.100] and achievements. I am confident, Mr. President,
+- [01:31:33.150] that under your strong leadership,
+- [01:31:36.070] the Board of peace It was successful.
+- [01:31:39.120] Deliver its great noble mission. Thank you. Thank you.
+- [01:31:47.170] Karoline Leavitt: Next, the President
+- [01:31:48.580] of the Republic of Uzbekistan.
+- [01:31:53.060] Shavkat Mirziyoyev: Your Excellency, President Trump,
+- [01:31:56.360] let me express my sincere gratitude
+- [01:31:59.020] to the President of the United States of America,
+- [01:32:02.440] Donald Trump, for the invitation
+- [01:32:05.270] and awarding of the meeting of the Council.
+- [01:32:08.280] Undoubtedly, today's summit is the result
+- [01:32:09.890] of the President's political will and pragmatism.
+- [01:32:12.260] President Trump.
+- [01:32:14.130] Uzbekistan supported the peacekeeping initiative
+- [01:32:18.690] of the World Council of accepting
+- [01:32:21.030] the of its successful implementation.
+- [01:32:23.930] I am convinced that the work of the Council
+- [01:32:26.900] will allow us to form a favorable environment
+- [01:32:29.420] for the economic and social recovery of the gas sector.
+- [01:32:33.440] At the same time, any mechanism of external control
+- [01:32:37.450] must certainly rely on the internal support
+- [01:32:40.490] of the sector's population.
+- [01:32:42.510] The coordinated efforts of all parties will allow
+- [01:32:45.710] to ensure and stability in the post-conflict process
+- [01:32:49.510] and in the creation of conditions.
+- [01:32:51.450] For the fastest recovery of gas.
+- [01:32:53.020] I emphasize that Uzbekistan is ready
+- [01:32:54.620] to make a strong contribution
+- [01:32:56.110] to the construction of residential buildings,
+- [01:32:59.550] kindergartens, schools and hospitals.
+- [01:33:02.260] Dear friends, it is symbolic that the current summit
+- [01:33:05.630] is taking place at the Donald Trump World Summit.
+- [01:33:10.320] Our meeting is a bright manifestation
+- [01:33:12.820] of international solidarity. Peacekeeping and a common goal
+- [01:33:15.800] to improve the situation in the Middle East.
+- [01:33:21.340] We must use this historic opportunity
+- [01:33:24.780] to build a new gas with a flourishing economy
+- [01:33:27.740] and decent living conditions for the entire population.
+- [01:33:31.910] Thank you for your attention.
+- [01:33:39.840] Karoline Leavitt: The President of the Republic of Indonesia.
+- [01:33:48.170] President Subianto: President Trump,
+- [01:33:49.480] distinguished delegates, Indonesia,
+- [01:33:54.230] from the first day that we studied
+- [01:33:59.210] President Trump's 20-point plan, we...
+- [01:34:05.270] Completely agree and we are fully committed to this plan.
+- [01:34:11.880] That is why we joined the Board of Peace.
+- [01:34:16.640] We are committed to its success.
+- [01:34:19.880] We know there will be a lot of obstacles.
+- [01:34:22.580] There will be lot of difficulties.
+- [01:34:25.320] But we are very optimistic.
+- [01:34:28.010] With the leadership of President Trump,
+- [01:34:31.100] this vision of real peace will be achieved.
+- [01:34:36.340] There will be problems, but we will. Prevail.
+- [01:34:41.540] We will achieve our dream of peace in Palestine,
+- [01:34:48.650] peace, a lasting and peaceful solution
+- [01:34:51.800] for the Palestinian problem and in Gaza.
+- [01:34:56.430] The achievements of the ceasefire is real.
+- [01:34:59.730] We commend this, and therefore we reaffirm our commitment
+- [01:35:04.480] to contribute significant number of troops
+- [01:35:08.010] up to 8,000 or more, if necessary.
+- [01:35:12.720] We are prepared to contribute the troops
+- [01:35:16.110] to take part actively
+- [01:35:18.180] in the International Stabilization Force
+- [01:35:22.350] to make this peace work. Thank you very much.
+- [01:35:31.680] Karoline Leavitt: The President of Romania.
+- [01:35:35.190] Nicușor Dan: First of all, President Trump,
+- [01:35:37.320] thank you for convening this very important meeting.
+- [01:35:41.240] And thank you for your involvement and leadership
+- [01:35:45.480] for the peace plan in Gaza,
+- [01:35:49.280] peace plan that have been comprehensive and stable,
+- [01:35:54.190] and also for your efforts and results
+- [01:35:57.780] in other parts of the world.
+- [01:36:00.710] I think everyone desires peace, stability, prosperity in Gaza,
+- [01:36:08.280] but the question is how to act for it,
+- [01:36:11.530] and that's why this meeting and this format is important.
+- [01:36:17.780] What the Romanian can do, first, on the humanitarian situation,
+- [01:36:22.880] we can increase the number of in order
+- [01:36:25.050] to extract children with disease.
+- [01:36:28.080] And to treat in the Romanian hospitals we've done already
+- [01:36:31.100] and we can do for 1,000 children and 4,000 family members.
+- [01:36:36.770] Secondly we had a good expertise
+- [01:36:39.860] in emergency response system like ambulance fire systems
+- [01:36:45.300] and we cannot help in order to rebuild that system
+- [01:36:49.650] and we can donate some equipment.
+- [01:36:53.360] Third. We are already offering some scholarships
+- [01:36:56.680] for Palestinian students and we can extend the program
+- [01:37:00.440] and we help also to rebuild, refurbish the schools in Gaza.
+- [01:37:06.930] And first, I think the most important,
+- [01:37:09.510] we had also some expertise,
+- [01:37:12.080] we can help to rebuild the institutions.
+- [01:37:16.350] Like police, like justice, like public administration,
+- [01:37:21.090] have done that in other parts of the world.
+- [01:37:23.450] So we have some expertise.
+- [01:37:25.140] We can contribute experts with trainers.
+- [01:37:29.920] And also, it's important to say
+- [01:37:32.550] that we have traditionally good relation with the Jewish people
+- [01:37:35.900] and with the Palestinian people, so it will help.
+- [01:37:39.500] So we can count on us. Thank you.
+- [01:37:45.780] Karoline Leavitt: The Prime Minister
+- [01:37:46.980] of the Republic of Albania
+- [01:37:51.630] Edi Rama: Thank you for inviting me
+- [01:37:53.530] to be part of this journey, Mr. President.
+- [01:37:57.130] The fully aligned, bipartisan vote of support
+- [01:38:01.240] this initiative received in our parliament
+- [01:38:04.000] speaks for itself about how honored Albania
+- [01:38:07.890] is to be a founding member of this new organization.
+- [01:38:12.140] Many in Europe say the Board of Peace
+- [01:38:15.060] is meant to substitute the United Nations.
+- [01:38:19.120] It does not look to me like an attempt to replace the U.N.,
+- [01:38:23.090] but if it helps shake that agonizing giant
+- [01:38:28.100] and, inshallah, wake it up,
+- [01:38:30.420] then God bless the Board of Peace.
+- [01:38:33.850] Mr. President, we commend
+- [01:38:40.710] We commend your decisive role in bringing a halt
+- [01:38:44.010] to the heartbreaking conflict in Gaza,
+- [01:38:46.910] and Albania has confirmed its participation
+- [01:38:49.220] in the Stabilization Force with our troops.
+- [01:38:53.350] At the same time, I propose that this board
+- [01:38:57.360] invite all countries to contribute directly
+- [01:39:01.540] by building a dedicated public facility
+- [01:39:05.130] for Palestinian children.
+- [01:39:08.740] And in doing so, the world would help the children of Gaza,
+- [01:39:13.570] who are the most innocent hostages of the lunacy of Hamas.
+- [01:39:24.440] Sorry, to grow within the tangible presence
+- [01:39:27.010] of the largest chain of hands humanity
+- [01:39:30.010] has ever joined together. By not only putting the money,
+- [01:39:35.760] but bringing their own architects in this,
+- [01:39:39.880] so the world can transform a world of history
+- [01:39:42.770] into an oasis of hope,
+- [01:39:44.830] where compassion takes concrete form,
+- [01:39:47.960] and the future is shaped around those who deserve it most,
+- [01:39:51.350] the next generations of Palestinians.
+- [01:39:54.400] Albania will be privileged to stand in that chain.
+- [01:39:58.270] Allow me very briefly to draw your attention
+- [01:40:00.800] to another open conflict closer to home
+- [01:40:04.170] where President Trump's leadership during his first term
+- [01:40:08.310] brought Kosovo and Serbia
+- [01:40:10.410] closer than ever to a final peace agreement.
+- [01:40:16.140] The President of Kosova was then brutally prevented
+- [01:40:19.720] from traveling to the White House to sign.
+- [01:40:22.950] That agreement in the presence of President Trump.
+- [01:40:26.660] And this was the doing of the very same Sicario prosecutor
+- [01:40:32.120] that went after President Trump himself,
+- [01:40:35.840] and for that became worldwide famous.
+- [01:40:39.950] Today, the cost of a president have now spent six years
+- [01:40:46.060] in pretrial detention before a special court in The Hague,
+- [01:40:49.910] sponsored by several democratic states.
+- [01:40:53.060] Some of them present here that should be shamed
+- [01:40:57.190] of that type of international justice.
+- [01:41:01.160] Just last week, Mr. President, another prosecutor,
+- [01:41:05.340] founded by this great country and its taxpayers,
+- [01:41:09.520] requested 45 years of imprisonment for him,
+- [01:41:13.660] a request that sent shockwave of humiliation
+- [01:41:16.940] through an entire peace-seeking nation.
+- [01:41:20.130] At this moment, only a few months stand.
+- [01:41:23.330] Between a man who rose from resistance
+- [01:41:26.100] to ethnic cleansing to become a peacemaker
+- [01:41:29.640] and a potentially devastated outcome in a court
+- [01:41:33.570] that has so far failed at every step
+- [01:41:37.060] to uphold the standards of democratic justice.
+- [01:41:41.450] For the sake of God, Mr. President,
+- [01:41:44.590] let's do something before,
+- [01:41:47.500] as you say, very bad things might happen again.
+- [01:41:52.110] And again,
+- [01:41:53.540] Thank you so much for including Albania in this noble initiative
+- [01:41:58.770] by bringing close friends of Israel
+- [01:42:01.960] and of the Arab countries.
+- [01:42:04.350] We very much hope to be an added value in your amazing vision.
+- [01:42:16.370] Karoline Leavitt: Next, the Prime Minister of Egypt.
+- [01:42:21.390] Mostafa Kamal Madbouly: Your Excellency President
+- [01:42:22.600] Donald Trump, distinguished participants,
+- [01:42:25.070] I thank President Trump for convening this meeting.
+- [01:42:28.570] His excellency's direct involvement and commitment
+- [01:42:31.230] to promoting peace in the region has been instrumental
+- [01:42:34.280] in achieving an end to the conflict in Gaza,
+- [01:42:37.060] which was previously considered unattainable.
+- [01:42:40.200] Egypt supports President Trump's vision to usher
+- [01:42:43.740] in a new era of peace and coexistence
+- [01:42:46.350] among the people of the region
+- [01:42:48.310] in which the Palestinian people enjoy the rights
+- [01:42:51.670] to self-determination and statehood
+- [01:42:54.250] in accordance to relevant international resolutions.
+- [01:42:57.890] Egypt also appreciates President Trump's firm position
+- [01:43:02.120] on rejecting the annexation of the West Bank.
+- [01:43:05.240] Egypt supports the mandate of the Board of Peace
+- [01:43:08.490] as a principal framework
+- [01:43:10.280] for governing the transitional period in Gaza.
+- [01:43:13.690] It is necessary to fully empower the National Committee.
+- [01:43:17.720] For the administration of Gaza
+- [01:43:19.550] to function effectively from within and throughout the Strip.
+- [01:43:24.050] Also, preserving the institutional
+- [01:43:26.740] and geographical link between the West Bank and Gaza
+- [01:43:30.340] is vital for the Palestinian Authority
+- [01:43:32.510] to eventually resume its role in Gaza.
+- [01:43:35.500] Within the framework of Egypt's support
+- [01:43:37.580] to President Trump's plan, Egypt will continue its effort
+- [01:43:41.370] to train Palestinian police personnel
+- [01:43:44.390] to maintain security within the Strip.
+- [01:43:46.770] Egypt value President Trump's position
+- [01:43:49.470] rejecting the deportation of the Palestinian people from Gaza
+- [01:43:52.880] as reflected in the 20 points plan
+- [01:43:55.770] and stresses the importance
+- [01:43:58.170] of initiating early recovery project
+- [01:44:00.890] in the whole of the Strait
+- [01:44:02.920] in a manner that preserve its geographic unity.
+- [01:44:06.710] Let us consider today meeting as initial step
+- [01:44:09.940] in advancing these objectives.
+- [01:44:11.640] Again, thank you, your Excellency President Trump.
+- [01:44:16.020] Karoline Leavitt: Thank you.
+- [01:44:19.440] The Prime Minister of the State of Qatar.
+- [01:44:25.020] His Excellency Al Thani: Thank you.
+- [01:44:26.430] Mr. President, distinguished members of the Board of Peace,
+- [01:44:30.060] thank you for convening this meeting
+- [01:44:31.830] under the banner of peace.
+- [01:44:34.530] Qatar reaffirms its commitment to the Board of Peace
+- [01:44:37.910] as it was committed to the very first day
+- [01:44:41.180] of the mediation efforts. From that day until the end,
+- [01:44:45.790] when we have witnessed in that historical moment
+- [01:44:48.440] in Sharm el-Sheik the signing of this agreement
+- [01:44:51.460] together with our partners.
+- [01:44:54.440] For decades, this conflict has burdened our region
+- [01:44:57.740] and the world, and our responsibility remains
+- [01:45:01.080] to achieve a just and lasting resolution.
+- [01:45:04.240] The board, under the President Trump leadership,
+- [01:45:07.250] will advance the full implementation
+- [01:45:09.240] of the 20 Points Plan
+- [01:45:10.600] without delay, ensuring fairness and justice
+- [01:45:13.620] for both Palestinians and Israelis.
+- [01:45:16.340] In this spirit, Qatar pledges $1 billion
+- [01:45:19.510] in support to the Board of –
+- [01:45:21.840] to the board mission aimed at reaching a final resolution
+- [01:45:25.020] that fulfills Palestinian aspiration
+- [01:45:27.890] for the statehood and recognition
+- [01:45:29.920] and the Israeli aspiration for security and integration.
+- [01:45:33.330] We will also continue our humanitarian coordination
+- [01:45:37.980] together with our UN partners and the Board Of Peace.
+- [01:45:41.580] Thank you very much.
+- [01:45:45.600] Karoline Leavitt: The Deputy Prime Minister
+- [01:45:47.570] and Foreign Minister of the UAE.
+- [01:45:52.110] Sheikh Abdullah: Mr. President,
+- [01:45:53.600] thank you for gathering us today.
+- [01:45:55.400] And I really hope that the beginning of Ramadan
+- [01:45:58.980] will give us all guidance towards peace and coexistence
+- [01:46:05.630] and living in prosperity with each other.
+- [01:46:10.080] Mr. President, just over five years ago,
+- [01:46:14.960] you with your friend, my president,
+- [01:46:18.050] Sheik Mohammed, and the Prime Minister of Israel.
+- [01:46:21.260] Launched the Abrahamic Accords.
+- [01:46:24.490] And since then, we've managed not only to work with you,
+- [01:46:30.230] with Israel, towards a better future for the region,
+- [01:46:33.830] but even when October 7th took place,
+- [01:46:37.020] the UAE managed to work with Israel in providing,
+- [01:46:41.760] since the war started, almost $3 billion of assistance
+- [01:46:46.310] to the Palestinian people in Gaza.
+- [01:46:49.380] Today, Mr. President,
+- [01:46:51.250] The UAE announces a further $1.2 billion
+- [01:46:55.220] for supporting Gaza through the Board of Peace,
+- [01:46:59.170] which I'm delighted that I've been working with
+- [01:47:03.280] so many friends like Steve and Jared, Secretary Rubio,
+- [01:47:09.960] who's been so inspiring in so many other ways
+- [01:47:14.340] on so many other fronts
+- [01:47:15.850] and looking forward working with them for in the future.
+- [01:47:21.040] And, Mr. President, if it wasn't for your support,
+- [01:47:23.910] I think this board would not have been gathered.
+- [01:47:27.910] We would not had had the meeting in New York to end this war
+- [01:47:33.860] when you gathered eight leaders of the region to end the war.
+- [01:47:37.820] So, Mr. President, during Ramadan,
+- [01:47:40.530] we pray for your success. Thank you.
+- [01:47:45.100] Karoline Leavitt: Thank you.
+- [01:47:47.220] The Minister of Foreign Affairs of the Kingdom of Morocco.
+- [01:47:53.060] Mr. Nasser Bourita: Mr. President,
+- [01:47:55.120] His Majesty, King Mohammed VI,
+- [01:47:58.090] welcomes and supports your vision and leadership
+- [01:48:02.500] to foster peace and prosperity around the world,
+- [01:48:06.420] and in particular in the Middle East.
+- [01:48:09.500] Thanks to your peace plan for Gaza,
+- [01:48:12.320] a ceasefire was achieved,
+- [01:48:14.610] a tragic war was ended, lives were saved,
+- [01:48:18.950] and a pragmatic and forward-looking approach.
+- [01:48:22.400] To rebuild Gaza was crafted.
+- [01:48:25.540] Today, as a committed founding member of the Board of Peace
+- [01:48:30.150] and open instructions of His Majesty King Muhammad VI,
+- [01:48:34.280] Morocco is pledging the following in honor
+- [01:48:37.990] of President Trump's visionary peacemaking.
+- [01:48:42.070] One, Morocco has already made
+- [01:48:44.600] the first ever financial contribution
+- [01:48:46.710] to the Board of peace.
+- [01:48:49.490] Morocco is ready to deploy police officers
+- [01:48:52.780] and train policemen from Gaza.
+- [01:48:55.360] Three, Morocco will deploy high-ranking military officers
+- [01:49:00.270] to ISF Joint Military Command.
+- [01:49:03.830] Four, Morocco with deploy a military field hospital.
+- [01:49:08.590] Five, Morocco is really to lead a deradicalization program
+- [01:49:13.600] to fight hate speech and promote tolerance and coexistence.
+- [01:49:18.960] To conclude, allow me, Mr. President,
+- [01:49:20.800] to briefly highlight four elements.
+- [01:49:23.630] The conditions set in phase two of your 20-point plan
+- [01:49:28.770] should be met for the success of our action.
+- [01:49:33.130] Preserving stability in the West Bank is crucial.
+- [01:49:36.930] The Palestinian ownership
+- [01:49:38.830] is important through legitimate institutions.
+- [01:49:42.580] Lastly, you are, Mr. President,
+- [01:49:44.860] the only leader able to bring peace to the Middle East.
+- [01:49:48.530] We hope that the stabilization of Gaza
+- [01:49:51.370] will help launch in a global and genuine peace process
+- [01:49:55.470] based on the two-street solution.
+- [01:49:57.260] Thank you.
+- [01:49:59.530] Karoline Leavitt: Thank you.
+- [01:50:01.700] The Minister of Foreign Affairs of the Republic of Turkey.
+- [01:50:07.430] Hakan Fidan: Mr. President, distinguished participants,
+- [01:50:10.960] after two years of immense suffering, ceasefire in Gaza
+- [01:50:14.160] has been achieved thanks to President Trump's
+- [01:50:16.610] personal engagement and our collective efforts.
+- [01:50:21.070] Yet the humanitarian situation remains fragile,
+- [01:50:24.400] and ceasefire violations continue to occur.
+- [01:50:28.170] A prompt, coordinated,
+- [01:50:29.850] and effective response is therefore essential.
+- [01:50:34.060] President Erdogan remains fully committed to Gaza's security,
+- [01:50:37.900] stabilization, and recovery.
+- [01:50:41.240] Turkey has already been providing
+- [01:50:43.950] immense amount of humanitarian assistance to Gaza.
+- [01:50:48.740] We can also contribute meaningfully
+- [01:50:50.470] to the rehabilitation of health and education sectors,
+- [01:50:53.930] as well as the training of the police force.
+- [01:50:57.260] In addition, we are prepared to provide troops
+- [01:51:00.160] to the International Stabilization Force.
+- [01:51:03.080] Mr. President.
+- [01:51:04.480] Turkey will continue to support your efforts
+- [01:51:07.110] towards a just and lasting peace.
+- [01:51:10.180] We remain convinced that the foundation of such peace
+- [01:51:13.620] is a two-state solution.
+- [01:51:15.900] Let us work towards that objective
+- [01:51:17.970] for the benefit of all peoples of the region.
+- [01:51:20.500] Thank you.
+- [01:51:25.240] Karoline Leavitt: The Minister of Foreign Affairs
+- [01:51:26.910] of the State of Kuwait.
+- [01:51:29.270] Sheikh Al-Sabah: I'll be delivering my statement
+- [01:51:30.680] in Arabic.
+- [01:51:32.230] President Donald Trump for his hard work,
+- [01:51:40.930] and Ramiya for his contribution to the end of the conflict,
+- [01:51:52.100] which means the establishment
+- [01:52:00.060] of the independent Palestinian state
+- [01:52:09.090] on the 4th of May, 1967, and its capital, East Jerusalem,
+- [01:52:17.830] in accordance with the international legislation,
+- [01:52:23.940] which includes the 28-03 resolution
+- [01:52:28.230] and the Arab Peace Initiative.
+- [01:52:31.110] That we renew the support of Kuwait's original, permanent,
+- [01:52:37.320] and historic state to the Palestinian people
+- [01:52:44.390] and its just cause.
+- [01:52:45.730] And as long as the Palestinian cause
+- [01:52:49.150] and its support form the most radical of Kuwaiti
+- [01:52:54.840] foreign policy,
+- [01:52:59.790] it is our duty to support all efforts
+- [01:53:04.440] and initiatives aimed at making peace,
+- [01:53:08.380] including President Donald Trump's 20-point plan.
+- [01:53:11.140] Which is subject to the cooperation and solidarity
+- [01:53:14.500] of the international community. At the end. Thank you very much.
+- [01:53:19.400] Karoline Leavitt: Thank you.
+- [01:53:21.110] The Minister of State for Foreign Affairs
+- [01:53:23.300] of the Kingdom of Saudi Arabia.
+- [01:53:25.930] Adel bin Ahmad al-Jubeir: Thank you, Mr. President,
+- [01:53:27.680] distinguished members of the board,
+- [01:53:29.530] distinguished guests.
+- [01:53:31.700] It is a pleasure to be here with you
+- [01:53:33.220] as we embark on a journey towards establishing a lasting
+- [01:53:37.940] and just peace in the Middle East,
+- [01:53:40.240] a peace that results in two states, Israel and Palestine,
+- [01:53:43.150] living side by side in peace and security,
+- [01:53:46.370] a peace that results in transforming our region
+- [01:53:50.120] from death and destruction to hope.
+- [01:53:52.980] And prosperity by integrating the region,
+- [01:53:55.920] bringing together its resources, and unleashing its potential.
+- [01:54:00.300] The Kingdom of Saudi Arabia, Mr. President,
+- [01:54:02.290] has been seeking peace and justice in the Middle East
+- [01:54:06.430] for a very long time.
+- [01:54:07.920] In 1981, King Fahd offered the eight point plan,
+- [01:54:11.410] which was adopted by the Arab world
+- [01:54:13.380] at the summit in Fez that essentially established
+- [01:54:16.880] or reconfirmed the notion of land for peace.
+- [01:54:19.580] In 2002, Saudi Arabia.
+- [01:54:21.570] The late King Abdullah launched the Arab Peace Initiative,
+- [01:54:24.230] which was adopted by the Arab world unanimously,
+- [01:54:26.970] as well as by the Islamic world.
+- [01:54:29.780] Today, the custodian of the two holy mosques,
+- [01:54:32.560] King Salman bin Ablaziz and His Royal Highness Crown
+- [01:54:35.670] Prince Prime Minister Mohammed bin Salman
+- [01:54:38.030] are working towards realizing a vision
+- [01:54:40.830] for peace and prosperity
+- [01:54:42.370] and security and integration in our region.
+- [01:54:45.350] So, Mr. President,
+- [01:54:46.640] we look forward to working with the Board of Peace
+- [01:54:49.120] to establish this noble objective.
+- [01:54:51.450] And I'm pleased to announce that the King Mr. Al-Babu
+- [01:54:53.620] will pledge $1 billion over the next few years
+- [01:54:56.330] in order to achieve this objective,
+- [01:54:59.350] to work towards alleviating the suffering
+- [01:55:01.650] of our Palestinian brothers and bring them the peace
+- [01:55:05.120] that they and the whole region so desperately desire.
+- [01:55:10.050] So thank you very much and good luck to all of us.
+- [01:55:13.570] Wasalamu alaikum wa rahmatullah.
+- [01:55:19.870] Karoline Leavitt: I know there were a few more leaders
+- [01:55:21.340] who wanted to quickly share a few words,
+- [01:55:23.220] so we will go to the Presidents of the Argentine Republic, Nile.
+- [01:55:31.200] President Milei: Mr. President,
+- [01:55:33.220] Distinguished Members of the World of Peace,
+- [01:55:36.380] The new Argentina has adopted a clear position
+- [01:55:38.250] in foreign policy. We defends in an unwavering way
+- [01:55:42.650] the right to life, freedom, and property,
+- [01:55:44.530] and illegal substitutions, equality before the law,
+- [01:55:49.080] freedom of expression, and free trade.
+- [01:55:52.120] The defense of these rights is not negotiable.
+- [01:55:54.350] It is a prerequisite for peace.
+- [01:55:57.650] But not all international actors play with the same rules.
+- [01:56:02.130] There are those who reject those rights,
+- [01:56:03.900] trample them and benefit from what others respect.
+- [01:56:06.730] In front of them, good will does not reach.
+- [01:56:10.200] We need institutions with the will and capacity
+- [01:56:12.330] to make the rules valid.
+- [01:56:13.670] The lasting peace is not built on consensus
+- [01:56:17.950] that is based on the fundamental.
+- [01:56:20.470] It is built on the determination to defend it,
+- [01:56:22.690] if they pass to velum.
+- [01:56:25.840] Argentina participates in this council with the conviction
+- [01:56:28.660] that peace demands political decision.
+- [01:56:30.320] And an institutional architecture
+- [01:56:32.860] capable of sustaining real solutions in time.
+- [01:56:36.490] President Trump has preached with the example,
+- [01:56:39.420] mediating the Peace Agreement in Gaza,
+- [01:56:41.330] an agreement that later ratified Resolution 2803
+- [01:56:44.600] of the United Nations Security Council.
+- [01:56:46.680] The Peace Council is born as an expression of that leadership,
+- [01:56:51.460] with the mandate to execute a plan of pacification
+- [01:56:54.020] and reconstruction, and the mechanisms to do so,
+- [01:56:56.470] and among them an international force of stabilization.
+- [01:57:01.010] In this initial stage, Argentina is ready to contribute.
+- [01:57:04.310] We are willing to collaborate with our White Helmets.
+- [01:57:09.600] Our trajectory in peace operations is a proven capital
+- [01:57:12.380] that we put to the service of the stabilization force.
+- [01:57:16.600] We believe in a diplomacy that takes risks to achieve peace.
+- [01:57:20.030] We believe that leadership faces complex challenges
+- [01:57:23.600] with determination, like President Trump's.
+- [01:57:26.030] And we believe that the only peace worth building
+- [01:57:28.400] in which he rests on the unnegotiable rights of man.
+- [01:57:32.930] The Council of Peace offers a framework
+- [01:57:34.800] to move forward in that direction.
+- [01:57:37.310] Argentina supports him. Thank you very much.
+- [01:57:44.390] Karoline Leavitt: Thank you.
+- [01:57:46.090] The Prime Minister of Hungary, Mr. Orbán.
+- [01:57:50.050] President Orban: Dear Mr. President,
+- [01:57:51.330] Excellencies, dear colleagues, first of all,
+- [01:57:55.270] let me express the appreciation of the Hungarian people
+- [01:57:57.820] to President Trump for his tireless peace efforts
+- [01:58:01.280] all around the world.
+- [01:58:03.210] Hungary is the only country to be represented here
+- [01:58:07.060] on the highest level among the founding members
+- [01:58:10.070] from the European Union.
+- [01:58:12.670] I represent a country which has been living
+- [01:58:15.640] in the neighborhood of a broader war
+- [01:58:18.530] for the last four years.
+- [01:58:20.790] We all know this war would not have broken out
+- [01:58:24.930] if President Trump had been in office at that time.
+- [01:58:28.600] However, President Trump's return to office
+- [01:58:31.790] offers a great chance
+- [01:58:33.120] to multiply the peace efforts not only in Gaza,
+- [01:58:36.460] but in Ukraine as well. We in Europe understand
+- [01:58:40.510] clearly that the security situation in the Middle East,
+- [01:58:44.880] and especially in Gaza has a significant impact
+- [01:58:48.440] on the security of Europe.
+- [01:58:51.070] Therefore, our participation in the Board of Peace
+- [01:58:54.630] is not only based on principle,
+- [01:58:56.930] but also on our own security interests.
+- [01:59:00.550] Let me also share with you
+- [01:59:03.090] that there is serious talks going on in Europe
+- [01:59:07.560] about the Board of Peace and its future role.
+- [01:59:11.820] We understand that during the recent decades,
+- [01:59:15.140] international organizations
+- [01:59:17.130] have failed to fulfill their role.
+- [01:59:20.420] To preserve peace and stability worldwide.
+- [01:59:23.480] Therefore, new initiatives are needed
+- [01:59:26.700] to bring forward the issue of peace globally.
+- [01:59:29.690] We are sure that President Trump's initiative
+- [01:59:32.590] to establish the Board of Peace
+- [01:59:35.050] is such a step to the right direction.
+- [01:59:37.420] President, we are proud to be among the founding members,
+- [01:59:40.680] and we are happy to be in such a great company.
+- [01:59:43.400] Thank you very much.
+- [01:59:44.650] Karoline Leavitt: Thank you.
+- [01:59:48.710] President Peña of Paraguay, who's at my shoulder,
+- [01:59:51.420] wants to say a few words.
+- [01:59:52.730] President Peña: Yes, thank you, Karoline.
+- [01:59:53.950] Thank you, President Trump.
+- [01:59:55.510] Thank you for bringing hope again, President Trump.
+- [01:59:58.200] I think that of the many things
+- [01:59:59.820] that you have achieved in the last 12 months
+- [02:00:02.330] as president of the US I think they the greatest thing
+- [02:00:05.740] and I thought I'm probably the youngest head of state here
+- [02:00:09.280] is hope present
+- [02:00:11.290] We have lost hope about solving problems for many many decades
+- [02:00:16.460] Assistant that was broken assistant.
+- [02:00:18.320] I was not able to bring solutions now.
+- [02:00:21.170] We're seeing the things from your leadership
+- [02:00:23.700] We are solving the issues.
+- [02:00:25.480] I come from a country that 160 years ago faced extinction.
+- [02:00:30.380] We went to a war against our neighbor
+- [02:00:32.490] and we lost 60% of our territory and 90% of the male population.
+- [02:00:38.270] So we know on our own flesh the hardship
+- [02:00:43.300] and all the difficulties of war. That's why Paraguay is so proud
+- [02:00:47.650] to be a founding member of the Board of Peace
+- [02:00:49.710] and we're to collaborate maybe
+- [02:00:52.340] We are not going to be the country
+- [02:00:53.850] that is going to bring the more money
+- [02:00:55.560] or the more security forces.
+- [02:00:58.490] But I think that there is a lot that all of the countries
+- [02:01:01.720] can bring to the table to solve these issues.
+- [02:01:04.660] Paraguay, together with a handful of countries,
+- [02:01:07.250] have been supporting Israel, and we will continue to do so.
+- [02:01:11.230] But we come here with an open heart to work for peace.
+- [02:01:16.030] And today is Gaza,
+- [02:01:17.880] tomorrow will be another conflict area in the world.
+- [02:01:20.960] But we need to solve. Each of all these conflicts,
+- [02:01:24.600] and I really appreciate the leadership
+- [02:01:26.570] that you have taken, President.
+- [02:01:28.200] Paraguay stands ready to collaborate next to you.
+- [02:01:31.030] We're going to continue to support the U.S. Initiative.
+- [02:01:35.100] Probably the only day that we're not going to be able
+- [02:01:37.810] to support USA is going to be on June 12th
+- [02:01:41.220] because Paraguay is going to be facing the U S in the World Cup.
+- [02:01:44.520] Thank you very much.
+- [02:01:45.790] Karoline Leavitt: Much. Thank you.
+- [02:01:50.320] The Minister of Foreign Affairs of the State of Israel, please.
+- [02:01:55.820] Gideon Sa'ar: President Trump, this is an important day.
+- [02:01:59.630] Your historic actions have proven time and again.
+- [02:02:04.240] You are a leader who takes initiative, forges new paths,
+- [02:02:08.390] and walks toward a better future for the entire world.
+- [02:02:12.700] Your visionary leadership,
+- [02:02:14.340] alongside Prime Minister Netanyahu's resolve,
+- [02:02:18.240] brought all our hostages home from Gaza.
+- [02:02:21.540] Thank you for that.
+- [02:02:23.810] I'm proud to represent here the State of Israel
+- [02:02:27.110] that stood through such a difficult war
+- [02:02:30.110] for two years on seven different fronts,
+- [02:02:32.990] demonstrating resilience and strength.
+- [02:02:37.450] As I stand here, I recall the 925 brave soldiers
+- [02:02:41.810] that gave their lives in a war against pure evil,
+- [02:02:45.660] Hamas, Islamic Jihad, and Hezbollah.
+- [02:02:49.430] These are the best people. To them.
+- [02:02:53.270] We owe our existence and all our achievements.
+- [02:02:57.050] They will not be forgotten.
+- [02:02:59.590] I think of them and their families
+- [02:03:01.840] who paid the heaviest price.
+- [02:03:04.810] Since Hamas violently took over Gaza in 2007,
+- [02:03:09.900] it built the largest terror state in the world
+- [02:03:13.680] with huge terror infrastructure above and below ground.
+- [02:03:18.980] October 7 was the peak.
+- [02:03:21.610] Of Hamas ongoing terror campaign through decades.
+- [02:03:27.770] Hamas raped and murdered women,
+- [02:03:30.270] killed children in front of their parents
+- [02:03:32.350] and parents in front of their children,
+- [02:03:34.750] burned whole families alive.
+- [02:03:37.830] That terrible day will not be forgotten
+- [02:03:40.820] and we must act to ensure it never repeats itself.
+- [02:03:45.830] Distinguished leaders, all previous plans for Gaza failed.
+- [02:03:50.870] Because they never addressed the core issues, terror,
+- [02:03:55.270] hate, incitement, and indoctrination.
+- [02:03:59.240] At the heart of President Trump's comprehensive plan
+- [02:04:02.560] are the disarmament of Hamas and Islamic Jihad,
+- [02:04:05.650] demilitarization of Gaza Strip,
+- [02:04:07.960] and deradicalization of Palestinian society there.
+- [02:04:12.070] It's the first plan to address the root of the problem.
+- [02:04:17.520] We support it.
+- [02:04:19.100] And are working and will work toward its success.
+- [02:04:24.310] As Mr. Mladenov emphasized, Hamas must be disarmed.
+- [02:04:28.620] That includes all its weapons, its terror infrastructure,
+- [02:04:32.240] underground tunnel network,
+- [02:04:34.100] and weapons production facilities
+- [02:04:36.380] must all be dismantled. As the plan emphasized,
+- [02:04:43.300] there must be a fundamental de-radicalization process.
+- [02:04:47.760] The infrastructure that indoctrinates
+- [02:04:49.920] Palestinian children to hate
+- [02:04:51.410] and kill Jews in educational and religious institutes
+- [02:04:56.240] should no longer exist.
+- [02:04:59.860] All those are important not only for the Israelis.
+- [02:05:05.150] Gazans have lived under a terror regime for decades.
+- [02:05:11.020] The people of Gaza must be liberated from these terrorists.
+- [02:05:16.380] I want to make this opportunity to wish Muslims
+- [02:05:20.070] around the world Ramadan Kareem. Distinguished leaders,
+- [02:05:24.850] President Trump's visionary leadership creates,
+- [02:05:27.570] for the first time,
+- [02:05:28.950] an opportunity for a better future.
+- [02:05:31.940] On behalf of Israel, I say thank you, Mr. Trump.
+- [02:05:36.620] Thank you for your leadership.
+- [02:05:42.040] Karoline Leavitt: Thank you.
+- [02:05:43.340] Lastly, the Prime Minister of Pakistan.
+- [02:05:53.590] Prime Minister Shehbaz Sharif: Your Excellency, President
+- [02:05:55.570] Donald J. Trump, members of the Board of Peace,
+- [02:06:00.480] distinguished guests, ladies and gentlemen, Assalamu Alaikum
+- [02:06:05.120] and a very good morning.
+- [02:06:07.990] It's a great honor, Mr. President,
+- [02:06:09.410] to attend this inaugural Board of peace
+- [02:06:12.650] meeting in this holy month of Ramadan
+- [02:06:17.750] and may God reward you.
+- [02:06:21.790] And make you successful in your efforts
+- [02:06:25.380] to bring lasting peace in Gaza.
+- [02:06:31.030] Mr. President,
+- [02:06:32.340] we deeply appreciate your unique initiative
+- [02:06:37.310] and your dynamic leadership in advancing peaceful solutions
+- [02:06:43.250] to conflicts across the globe.
+- [02:06:46.630] Your bold diplomacy has surely brought calm
+- [02:06:51.540] to many international serious hotspots,
+- [02:06:56.380] your timely and very effective intervention
+- [02:07:00.630] to achieve ceasefire between India and Pakistan,
+- [02:07:07.160] potentially averted loss of tens of millions of people.
+- [02:07:14.960] You have truly proved to be a man of peace.
+- [02:07:18.120] And let me say, Mr. President,
+- [02:07:20.340] you are truly savior of South Asia.
+- [02:07:25.100] The people of Palestine have long endured
+- [02:07:28.690] illegal occupation and immense suffering.
+- [02:07:32.710] And to achieve long-lasting peace,
+- [02:07:37.480] it is very important that ceasefire coalition
+- [02:07:40.790] must and to preserve lives in advance.
+- [02:07:44.800] Reconstruction efforts. The people of Palestine
+- [02:07:50.020] must exercise full control of their land
+- [02:07:53.990] and their future in line with UN Security Council resolutions.
+- [02:08:00.090] Mr. President, we must work together
+- [02:08:03.190] towards a credible pathway
+- [02:08:05.490] to Palestinian self-determination
+- [02:08:08.300] through the establishment of an independent, sovereign,
+- [02:08:12.930] and contiguous state of Palestine in line
+- [02:08:16.090] with the relevant resolutions.
+- [02:08:19.280] Mr. President, we hope that under your visionary
+- [02:08:23.800] and dynamic leadership,
+- [02:08:25.670] we will ensure a just and lasting resolution
+- [02:08:29.420] to the issue of Palestine.
+- [02:08:32.010] And today is a day which will mark a place
+- [02:08:36.580] in the annals of history that, through your efforts,
+- [02:08:40.690] through your untiring support and great efforts.
+- [02:08:47.670] Long lasting peace in Gaza will be achieved,
+- [02:08:52.580] will be your legacy for all time to come.
+- [02:08:55.920] Thank you.
+- [02:09:01.220] Karoline Leavitt: Thank you.
+- [02:09:02.490] We will now hear from the president of FIFA, Giovanni,
+- [02:09:06.180] to share more about FIFA's new partnership
+- [02:09:08.450] with the Board of Peace.
+- [02:09:09.700] Giovanni Infantino: Thank you.
+- [02:09:10.900] Thank you, Karoline, dear president,
+- [02:09:14.120] distinguished leaders, dear friends.
+- [02:09:17.030] I just have three quick points I want to mention now.
+- [02:09:20.480] Football, that's the first point,
+- [02:09:22.640] football or soccer as it is called.
+- [02:09:25.100] Here is the world's universal language.
+- [02:09:28.710] It is spoken by six billion people,
+- [02:09:30.740] six billion fans who have the same feelings.
+- [02:09:34.240] It's about hope, it's about joy, it is about happiness.
+- [02:09:37.410] It's about coming together and it's about uniting the world.
+- [02:09:40.730] Mr. President, we will unite the world here
+- [02:09:43.150] this summer during the World Cup,
+- [02:09:45.880] but if we truly want to unite the World,
+- [02:09:48.340] we need peace, of course.
+- [02:09:51.320] And this brings me to the second point,
+- [02:09:53.880] because today we announce a true partnership
+- [02:09:57.460] between the Board of Peace and FIFA,
+- [02:09:59.650] and I'm very proud and very happy to announce
+- [02:10:02.650] this after having heard your presentations in.
+- [02:10:06.960] Davos. I was feeling that we need to help.
+- [02:10:11.770] We need to do something. Everyone has to support peace.
+- [02:10:14.610] Everyone in this room, Mr. President,
+- [02:10:16.510] everyone outside of this room who would like to be in this
+- [02:10:19.550] has to be support peace as well.
+- [02:10:22.450] We all have to contribute for this
+- [02:10:25.020] and that's why FIFA wants to contribute
+- [02:10:27.360] because we don't have to just rebuild houses
+- [02:10:30.550] our schools, our hospitals, our roads.
+- [02:10:32.870] We also have to rebuild and build people, emotions.
+- [02:10:37.450] And trust.
+- [02:10:38.700] And this is what football, my sport, is about.
+- [02:10:42.730] And the third point is that, of course, as you all know,
+- [02:10:46.680] images speak louder and better than words.
+- [02:10:50.740] So we prepared a short video and you can watch this video.
+- [02:10:55.600] I invite you to look at it carefully.
+- [02:10:58.270] Thank you very much.
+- [02:10:59.600] God bless peace and God bless the Board of Peace.
+- [02:11:02.880] Ramadan Kareem. Thank You.
+- [02:11:11.280] Female Speaker: In a world where conflict
+- [02:11:12.720] has silenced playgrounds and broken routines,
+- [02:11:16.250] there is one language that still unites hearts, football.
+- [02:11:26.350] A simple ball, a shared field, a reason to believe again.
+- [02:11:33.160] Today, FIFA and the Board of Peace
+- [02:11:35.450] come together to turn football into a bridge toward peace,
+- [02:11:39.710] dignity, and hope. Through this partnership,
+- [02:11:45.810] a complete football ecosystem will be created.
+- [02:11:48.750] FIFA and the Board of Peace will build football pitches,
+- [02:11:51.990] FIFA arenas, academies, and stadiums.
+- [02:11:55.070] This initiative will support the creation of leagues
+- [02:11:57.690] at youth, amateur, and regional level,
+- [02:12:00.180] strengthening community engagement
+- [02:12:02.020] both on and off the pitch.
+- [02:12:04.100] It will also generate diverse professional opportunities,
+- [02:12:07.540] supporting the development of local talent
+- [02:12:09.840] not only on the field,
+- [02:12:11.270] but across all areas that bring football to life.
+- [02:12:15.860] Football does more than create players and coaches.
+- [02:12:18.940] It rebuilds confidence, restores routine,
+- [02:12:22.370] reopens doors to education, teamwork, and belonging.
+- [02:12:26.800] Local communities take the lead.
+- [02:12:28.910] Parents, teachers, volunteers, youth leaders,
+- [02:12:32.440] all becoming part of a shared mission,
+- [02:12:34.750] to heal, to rebuild, to move forward together.
+- [02:12:39.430] Around every pitch, new emotions
+- [02:12:41.980] and long-lasting memories emerge.
+- [02:12:44.190] Community matches, fan gatherings,
+- [02:12:46.440] youth education and sport programs.
+- [02:12:48.960] New job opportunities appear to become coaches, players,
+- [02:12:52.630] sport doctors, administrators, events organizers.
+- [02:12:56.960] We will create football ecosystem
+- [02:12:58.930] with thousands of people to be involved
+- [02:13:01.100] and engaged constantly.
+- [02:13:03.610] Together, FIFA and the Board of Peace will build, in Gaza,
+- [02:13:07.500] 50 FIFA Arena Mini Pitches
+- [02:13:09.900] with a cost of around $50,000 per unit.
+- [02:13:13.300] This represents a $2.5 million investment.
+- [02:13:16.850] Five full-size pitches in five different districts
+- [02:13:20.530] at around $1 million per pitch.
+- [02:13:23.210] A FIFA Academy with an estimated investment of $15 million.
+- [02:13:28.260] And a national stadium for 20,000 to 25,000 spectators.
+- [02:13:32.860] Valued at around 50 million U.S. Dollars.
+- [02:13:36.870] These investments will create a complete football ecosystem
+- [02:13:41.220] designed to support communities and future generations.
+- [02:13:44.630] FIFA and the Board of Peace,
+- [02:13:46.840] united for football, committed to peace.
+- [02:13:56.740] Karoline Leavitt: Thank you, Gianni.
+- [02:13:57.980] That's wonderful.
+- [02:13:59.630] In advance of today's meeting, members of the Board of Peace
+- [02:14:02.460] were asked to vote on a resolution establishing
+- [02:14:05.190] the principles of financial integrity and transparency
+- [02:14:08.730] that will guide the board's work.
+- [02:14:10.430] And that resolution has passed unanimously.
+- [02:14:13.470] So now President Trump, as chairman of the board,
+- [02:14:15.840] will sign the resolution in the presence
+- [02:14:17.920] of a quorum of the boards.
+- [02:14:20.170] (applause)
+- [02:15:02.550] Now, while this is not a fundraiser,
+- [02:15:04.690] the Board of Peace has already inspired remarkable support
+- [02:15:07.720] from so many on this stage.
+- [02:15:09.870] As President Trump announced earlier,
+- [02:15:11.560] total pledges exceed six and a half billion dollars in relief
+- [02:15:15.750] and rebuilding in Gaza.
+- [02:15:17.570] And thousands of personnel have been committed
+- [02:15:19.650] to help preserve the ceasefire and secure enduring peace.
+- [02:15:23.550] I would like to ask the heads of the following delegations
+- [02:15:26.720] to join President Trump on stage
+- [02:15:28.530] as he signs the fundraising pledges.
+- [02:15:31.090] Albania. Azerbaijan, Bahrain, Egypt, Indonesia,
+- [02:15:36.150] Jordan, Kazakhstan, Kosovo, Kuwait, Morocco, Qatar,
+- [02:15:41.500] Saudi Arabia, the UAE, and Uzbekistan,
+- [02:15:44.890] please join the President as he signs the fundraising pledges.
+- [02:15:48.570] (applause)
+- [02:17:05.570] (applause)
+- [02:17:14.830] Karoline Leavitt: Congratulations.
+- [02:17:16.450] Now President Trump,
+- [02:17:17.690] if you would like to say a few words to conclude
+- [02:17:19.630] and then you have the honor of gaveling out the first
+- [02:17:21.960] ever Board of Peace meeting.
+- [02:17:24.080] The President: Well, thank you very much, Karoline,
+- [02:17:25.620] and I will say that this has been --
+- [02:17:28.410] I think will maybe be one of,
+- [02:17:31.610] if not the most important day of our careers.
+- [02:17:35.260] And we've had some pretty good careers up here.
+- [02:17:37.200] But this is something very special
+- [02:17:38.890] and we're going to straighten out Gaza;
+- [02:17:40.840] we're going to make Gaza very successful and safe.
+- [02:17:43.650] And we're also going to maybe take it a step further
+- [02:17:46.090] where we see hotspots around the world,
+- [02:17:48.370] we can probably do that very easily.
+- [02:17:51.160] This is a tremendous group of powerful people
+- [02:17:54.090] and brilliant people.
+- [02:17:55.680] And I think that we can do things a lot of other people
+- [02:17:58.620] would not be able to even conceive of or think of.
+- [02:18:02.310] We will help Gaza, we will straighten it out,
+- [02:18:05.940] we'll make it successful, we will make it peaceful,
+- [02:18:08.930] and we will do things like that in other spots.
+- [02:18:11.930] Spots will come up; things will happen
+- [02:18:14.330] that nobody's even thinking about now
+- [02:18:16.200] and not even conceivable.
+- [02:18:18.120] But we will take care of a lot of things,
+- [02:18:21.070] and we'll work again with the United Nations
+- [02:18:23.090] and bring it back to health.
+- [02:18:25.540] It needs help, it's got tremendous potential,
+- [02:18:28.610] but it needs a lot of help.
+- [02:18:30.330] And I think we can start with doing that pretty soon.
+- [02:18:33.160] Michael, I think we're going to work on that very strongly.
+- [02:18:36.240] We can fix up even the building physically.
+- [02:18:38.600] I love to see beautiful buildings.
+- [02:18:40.510] I like to see buildings fixed up physically,
+- [02:18:42.980] not look like they are in disrepair, we don't like that.
+- [02:18:48.700] So, we're going to do a job with the United Nations.
+- [02:18:51.100] We're going to have some very good people,
+- [02:18:52.980] and you have some very good people there right now.
+- [02:18:54.740] But we're going to put some extra people in
+- [02:18:57.310] and we're going to have it help us,
+- [02:18:59.820] but most importantly for today,
+- [02:19:01.810] the Board of Peace is going to lead the way in Gaza.
+- [02:19:04.250] We're going to make Gaza
+- [02:19:06.420] an example of success and safety and unity,
+- [02:19:10.650] and it's an honor that you're here.
+- [02:19:12.310] And I want to thank the media for being so respectful.
+- [02:19:14.660] You're really amazing.
+- [02:19:16.930] It's given the Board of Peace the respect it deserves.
+- [02:19:19.850] These are the most powerful people in the world;
+- [02:19:22.780] they're the richest people in the world
+- [02:19:24.420] through their countries.
+- [02:19:26.010] And they have made a tremendous commitment
+- [02:19:28.740] and the United States, likewise,
+- [02:19:30.270] has made a tremendous commitment.
+- [02:19:33.110] Thank you to everybody for your involvement
+- [02:19:35.790] and we look forward to working with you
+- [02:19:38.850] over the years for many, many reasons,
+- [02:19:40.720] many very, very good humanitarian reasons.
+- [02:19:44.170] Thank you all. Thank you very much.
+- [02:19:46.310] (applause)
+- [02:19:49.360] Thank you, everybody.
+- [02:19:59.490] Thank you, everybody.
+- [02:20:03.030] ♪ ("Y.M.C.A" by the Village People) ♪

@@ -1,0 +1,1266 @@
+<!-- source: https://www.youtube.com/watch?v=xJOgsQQYDY4 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: xJOgsQQYDY4 -->
+<!-- date_published: 2025-01-28T18:56:21+00:00 -->
+<!-- date_accessed: 2026-06-02T02:54:31.174052+00:00 -->
+
+# Transcript: Press Secretary Karoline Leavitt Briefs Members of the Media, Jan. 28, 2025
+
+- [00:03.290] Ms. Leavitt: Good afternoon, everybody.
+- [00:04.590] The Press: Good afternoon.
+- [00:05.830] Ms. Leavitt: How are we? Good to see all of you.
+- [00:08.920] It’s an honor to be here with all of you.
+- [00:10.990] A lot of familiar faces in the room, a lot of new faces.
+- [00:13.970] And President Trump is back,
+- [00:16.070] and the golden age of America has most definitely begun.
+- [00:20.280] The Senate has already confirmed
+- [00:21.750] five of President Trump’s exceptional Cabinet nominees:
+- [00:25.590] Secretary of State Marco Rubio, Defense Secretary Pete Hegseth,
+- [00:29.730] CIA Director John Ratcliffe, Homeland Security Secretary
+- [00:33.150] Kristi Noem, and Treasury Secretary Scott Bessent.
+- [00:36.870] It is imperative that the Senate continues to confirm
+- [00:39.730] the remainder of the president’s
+- [00:41.210] well-qualified nominees as quickly as possible.
+- [00:45.540] As you have seen during the past week,
+- [00:47.110] President Trump is hard at work fulfilling the promises
+- [00:49.950] that he made to the American people on the campaign trail.
+- [00:53.630] Since taking the oath of office,
+- [00:55.960] President Trump has taken more than 300 executive actions;
+- [01:00.580] secured nearly $1 trillion in U.S. investments;
+- [01:04.440] deported illegal alien rapists,
+- [01:06.630] gang members, and suspected terrorists from our homeland;
+- [01:10.320] and restored common sense to the federal government.
+- [01:13.560] I want to take a moment to go through
+- [01:15.080] some of these extraordinary actions.
+- [01:17.820] On day one, President Trump declared a national emergency
+- [01:21.430] at our southern border
+- [01:23.020] to end the four-year-long invasion of illegal aliens
+- [01:26.630] under the previous administration.
+- [01:29.200] Additionally, President Trump signed an executive order
+- [01:31.900] to end catch and release
+- [01:33.690] and finish construction of his effective border wall.
+- [01:37.530] By using every lever of his federal power,
+- [01:40.870] President Trump has sent a loud and clear message
+- [01:44.250] to the entire world:
+- [01:46.150] America will no longer tolerate illegal immigration.
+- [01:50.050] And this president expects that every nation on this planet
+- [01:54.310] will cooperate with the repatriation of their citizens,
+- [01:58.670] as proven by this weekend,
+- [02:00.520] when President Trump swiftly directed his team
+- [02:02.970] to issue harsh and effective sanctions and tariffs
+- [02:06.040] on the Colombian government upon hearing
+- [02:08.430] they were denied a U.S. military aircraft
+- [02:10.540] full of their own citizens
+- [02:12.210] who were deported by this administration.
+- [02:15.310] Within hours, the Colombian government agreed
+- [02:17.780] to all of President Trump’s demands,
+- [02:20.200] proving America is once again respected on the world stage.
+- [02:25.440] So, to foreign nationals who are thinking about trying
+- [02:28.360] to illegally enter the United States, think again.
+- [02:32.090] Under this president, you will be detained,
+- [02:34.760] and you will be deported.
+- [02:36.700] Every day, Americans are safer because of the violent criminals
+- [02:41.300] that President Trump’s administration
+- [02:43.020] is removing from our communities.
+- [02:46.410] On January 23rd, ICE New York arrested a Turkish national
+- [02:50.400] for entry without inspection
+- [02:51.890] who is a known or suspected terrorist.
+- [02:55.530] On January 23rd,
+- [02:57.450] ICE San Francisco arrested a citizen of Mexico
+- [03:00.530] unlawfully present in the United States
+- [03:03.540] who has been convicted of continuous sexual abuse
+- [03:06.690] of a child aged 14 years or younger.
+- [03:10.680] ICE Saint Paul has arrested a citizen of Honduras
+- [03:13.840] who was convicted of fourth-degree
+- [03:15.690] criminal sexual conduct with a minor.
+- [03:18.820] ICE Buffalo arrested a citizen of Ecuador
+- [03:21.820] who has been convicted of rape.
+- [03:24.500] ICE Boston arrested a citizen of the Dominican Republic
+- [03:28.030] who has a criminal conviction for second-degree murder.
+- [03:31.590] This criminal was convicted of murder
+- [03:33.420] for beating his pregnant wife to death
+- [03:36.680] in front of her five-year-old son.
+- [03:39.410] And ICE Saint Paul also arrested a citizen of Mexico
+- [03:42.250] who was convicted of possessing pornographic material
+- [03:44.930] of a minor on a work computer.
+- [03:48.250] These are the heinous individuals
+- [03:49.910] that this administration is removing
+- [03:51.440] from American communities every single day.
+- [03:53.660] And to the brave state and local law enforcement officers,
+- [03:56.900] CBP, and ICE agents who are helping
+- [03:59.620] in the facilitation of this deportation operation,
+- [04:02.740] President Trump has your back
+- [04:05.050] and he is grateful for your hard work.
+- [04:08.680] On the economic front,
+- [04:09.940] President Trump took immediate action to lower costs
+- [04:12.820] for families who are suffering from four long years
+- [04:16.190] of the Biden administration’s destructive
+- [04:18.650] and inflationary policies.
+- [04:20.980] President Trump ordered the heads
+- [04:22.390] of all executive departments and agencies
+- [04:25.010] to help deliver emergency price relief to the American people,
+- [04:29.010] untangle our economy from Biden’s regulatory constraints,
+- [04:32.730] and end the reckless war on American energy.
+- [04:36.970] President Trump also signed sweeping executive orders
+- [04:39.700] to end the weaponization of government and restore
+- [04:42.740] common sense to the federal bureaucracy.
+- [04:45.940] He directed all federal agencies to terminate illegal diversity,
+- [04:50.860] equity, and inclusion programs
+- [04:53.060] to help return America to a merit-based society.
+- [04:56.520] President Trump also signed an executive order
+- [04:58.930] declaring it is now the policy of the federal government
+- [05:02.170] that there are only two sexes: male and female.
+- [05:05.910] Sanity has been restored.
+- [05:08.670] Before I take your questions, I would like to point out to
+- [05:11.180] --all of you once again have access
+- [05:13.700] to the most transparent and accessible president
+- [05:17.180] in American history. There has never been a president
+- [05:20.270] who communicates with the American people
+- [05:22.560] and the American press corps as openly
+- [05:25.620] and authentically as the 45th
+- [05:28.310] and now 47th president of the United States.
+- [05:32.000] This past week,
+- [05:33.230] President Trump has held multiple news conferences,
+- [05:36.270] gaggled on Air Force One multiple times,
+- [05:38.780] and sat down for a two-part interview on Fox News,
+- [05:42.030] which aired last week.
+- [05:44.020] As Politico summed it up best, “Trump is everywhere again,”
+- [05:48.590] and that’s because President Trump has a great story
+- [05:50.900] to tell about the legendary American revival
+- [05:54.860] that is well underway.
+- [05:57.350] And in keeping with this revolutionary media approach
+- [06:00.360] that President Trump deployed during the campaign,
+- [06:03.240] the Trump White House will speak to all media outlets
+- [06:06.710] and personalities,
+- [06:08.340] not just the legacy media who are seated in this room,
+- [06:11.570] because apporting --according to recent polling from Gallup,
+- [06:14.380] Americans’ trust in mass media has fallen to a record low.
+- [06:19.490] Millions of Americans, especially young people,
+- [06:22.620] have turned from traditional television outlets
+- [06:24.710] and newspapers to consume their news from podcasts,
+- [06:28.150] blogs, social media, and other independent outlets.
+- [06:32.240] It’s essential to our team
+- [06:34.250] that we share President Trump’s message everywhere and adapt
+- [06:37.870] this White House to the new media landscape in 2025.
+- [06:41.670] To do this, I am excited to announce the following changes
+- [06:44.610] will be made to this historic James S.
+- [06:46.640] Brady Briefing Room, where Mr. Brady’s legacy will endure.
+- [06:51.120] This White House believes strongly in the First Amendment,
+- [06:54.170] so it’s why our team will work diligently
+- [06:56.480] to restore the press passes of the 440 journalists
+- [07:00.480] whose passes were wrongly revoked
+- [07:02.190] by the previous administration.
+- [07:04.610] We’re also opening up this briefing room
+- [07:06.290] to new media voices who produce news-related content
+- [07:10.270] and whose outlet is not already represented
+- [07:12.590] by one of the seats in this room.
+- [07:15.010] We welcome independent journalists,
+- [07:17.040] podcasters, social media influencers,
+- [07:19.910] and content creators to apply for credentials
+- [07:22.740] to cover this White House.
+- [07:25.040] And you can apply now on our new website,
+- [07:27.820] WhiteHouse.gov/NewMedia.
+- [07:32.280] Starting today, this seat in the front of the room,
+- [07:35.660] which is usually occupied by the press secretary staff,
+- [07:38.960] will be called the “new media” seat.
+- [07:41.690] My team will review the applications
+- [07:43.700] and give credentials to new media applicants
+- [07:45.750] who meet our criteria
+- [07:47.040] and pass United States Secret Service requirements
+- [07:49.740] to enter the White House complex.
+- [07:52.830] So, in light of these announcements,
+- [07:54.300] our first questions for today’s briefing
+- [07:56.090] will go to these new media members whose outlets,
+- [07:59.210] despite being some of the most viewed news websites
+- [08:01.740] in the country, have not been given seats in this room.
+- [08:06.000] And before I turn to questions,
+- [08:07.550] I do have news directly from the president of the United States
+- [08:10.900] that was just shared with me in the Oval Office
+- [08:14.200] from President Trump directly
+- [08:16.120] --an update on the New Jersey drones:
+- [08:18.530] After research and study,
+- [08:20.500] the drones that were flying over New Jersey
+- [08:22.420] in large numbers were authorized to be flown by the FAA
+- [08:26.890] for research and various other reasons.
+- [08:30.220] Many of these drones were also hobbyists
+- [08:32.980] --recreational and private individuals
+- [08:35.200] that enjoy flying drones.
+- [08:37.260] In meanti- --in the --in time, it got worse, due to curiosity.
+- [08:41.390] This was not the enemy.
+- [08:43.740] A --a statement from the president of the United States
+- [08:46.650] to start this briefing with some news.
+- [08:48.550] And with that, I will turn it over to questions,
+- [08:50.690] and we will begin with our new media members:
+- [08:52.720] Mike Allen from Axios, Matt Boyle from Breitbart.
+- [08:55.710] Mike, why don’t you go ahead.
+- [08:56.990] The Press: Thank you very much.
+- [08:58.190] Karoline, does the president see anything fishy about DeepSeek,
+- [09:01.970] either its origins or its cost?
+- [09:05.160] And could China’s ability to make these models quicker,
+- [09:08.910] cheaper affect our thinking
+- [09:10.700] about expanding generation data centers, chip manufacturing?
+- [09:13.740] Ms. Leavitt: Sure.
+- [09:15.040] The president was asked about DeepSeek last night
+- [09:17.100] on Air Force One when he gaggled for,
+- [09:19.170] I think, the third or fourth time throughout the weekend
+- [09:21.970] with members of the traveling press corps.
+- [09:24.020] The president said that he believes that
+- [09:26.610] this is a wake-up call to the American AI industry.
+- [09:30.510] The last administration sat on their hands
+- [09:33.110] and allowed China to rapidly develop this AI program.
+- [09:37.240] And so, President Trump believes
+- [09:38.980] in restoring American AI dominance,
+- [09:40.900] and that’s why he took very strong executive action
+- [09:43.400] this past week to sign executive orders
+- [09:46.130] to roll back some of the onerous regulations on the AI industry.
+- [09:50.080] And President Trump has also proudly appointed
+- [09:52.150] the first AI and crypto czar at this White House,
+- [09:55.520] David Sacks, whom I spoke with yesterday
+- [09:57.880] --very knowledgeable on this subject.
+- [09:59.270] And his team is here working every single day
+- [10:01.840] to ensure American AI dominance.
+- [10:04.290] As for the national security implications,
+- [10:06.220] I spoke with NSC this morning.
+- [10:07.980] They are looking into what those may be,
+- [10:09.780] and when I have an update, I will share it with you, Mike.
+- [10:11.830] The Press: And, Karoline, you say “restore” U.S. dominance.
+- [10:14.700] Is there fear that the U.S. either is falling
+- [10:17.070] or has fallen behind?
+- [10:18.570] And how would the president make sure the U.S. stays ahead?
+- [10:22.180] Ms. Leavitt: No. The president is confident
+- [10:23.530] that we will restore American dominance in AI.
+- [10:25.090] Matt.
+- [10:26.320] The Press: Yeah. So, Karoline, first off,
+- [10:27.650] thank you to you and President Trump
+- [10:29.020] for actually giving voices to new media outlets
+- [10:32.810] that represent millions and millions of Americans.
+- [10:35.780] The thing I would add --the --I’ve got a two-part question
+- [10:38.310] for you. The first is just:
+- [10:39.510] Can you expand upon what steps the White House
+- [10:42.360] is going to take to bring more voices, not less
+- [10:45.910] --which is what our founder, Andrew Breitbart,
+- [10:47.510] believed in --into this room, where they rightly belong?
+- [10:51.440] Ms. Leavitt: Yeah, absolutely.
+- [10:52.790] And as I said in my opening statement, Matt,
+- [10:55.230] it is a priority of this White House
+- [10:57.050] to honor the First Amendment.
+- [10:58.630] And it is a fact that Americans are consuming their news media
+- [11:01.950] from various different platforms,
+- [11:04.040] especially young people.
+- [11:05.270] And as the youngest press secretary in history,
+- [11:07.250] thanks to President Trump, I take great pride in opening up
+- [11:10.480] this room to new media voices to share the president’s message
+- [11:14.770] with as many Americans as possible.
+- [11:16.920] In doing so, number one, we will ensure that outlets
+- [11:20.010] like yours --Axios and Breitbart,
+- [11:21.720] which are widely respected and viewed outlets
+- [11:24.440] --have an actual seat in this room every day.
+- [11:27.310] We also, again, encourage anybody in this country
+- [11:30.820] --whether you are a TikTok content creator,
+- [11:33.480] a blogger, a podcaster
+- [11:35.130] --if you are producing legitimate news content,
+- [11:38.890] no matter the medium, you will be allowed to apply
+- [11:41.970] for press credentials to this White House.
+- [11:44.260] And as I said earlier, our new media website
+- [11:48.250] is WhiteHouse.gov/NewMedia,
+- [11:51.880] and so we encourage people to apply.
+- [11:53.200] Again,
+- [11:54.430] as long as you are creating news-related content of the day
+- [11:58.350] and you’re a legitimate independent journalist,
+- [12:00.440] you’re welcome to cover this White House.
+- [12:02.000] The Press: And secondly, Karoline, you sa-
+- [12:03.420] --you laid out several of the actions
+- [12:05.000] that President Trump has taken.
+- [12:06.670] Obviously, it’s a stark contrast to the previous administration
+- [12:09.850] and a breakneck speed from President Trump.
+- [12:12.210] Can we expect that pace to continue as the hun-
+- [12:14.440] --the --you know,
+- [12:15.660] the first 100 days moves along here and beyond that?
+- [12:18.340] Ms. Leavitt: Absolutely.
+- [12:19.600] There is no doubt President Trump
+- [12:20.970] has always been the hardest working man in politics.
+- [12:22.870] I think that’s been proven over the past week.
+- [12:25.360] This president has, again,
+- [12:26.670] signed more than 300 executive orders.
+- [12:29.130] He’s taken historic action.
+- [12:31.390] I gaggled aboard Air Force One
+- [12:33.180] to mark the first 100 days of this administration
+- [12:36.180] --4:00 p.m. last Friday --first 100 hours, rather.
+- [12:39.580] And this president did more in the first 100 hours
+- [12:41.550] than the previous president did in the first 100 days.
+- [12:44.310] So, President Trump, I think you can all expect to
+- [12:48.220] --for him to continue to work at this breakneck speed.
+- [12:50.090] So, I hope you’re all ready to work very hard.
+- [12:51.680] I know that we are.
+- [12:52.930] Zeke Miller.
+- [12:54.140] The Press: Thanks, Karoline. A question that we’ve asked
+- [12:55.770] your predecessors of both parties in this job.
+- [12:58.580] When you’re up here in this briefing room
+- [13:00.440] speaking to the American public,
+- [13:01.690] do you view yourself and your role as speaking on
+- [13:05.330] --advocating on behalf of the president,
+- [13:06.950] or providing the unvarnished truth
+- [13:08.640] that is, you know, not to lie,
+- [13:10.030] not to obfuscate to the American people?
+- [13:12.650] Ms. Leavitt: I commit to telling the truth
+- [13:14.010] from this podium every single day.
+- [13:15.960] I commit to speaking on behalf of the president
+- [13:18.210] of the United States. That is my job.
+- [13:20.400] And I will say it’s very easy to speak truth from this podium
+- [13:23.050] when you have a president who is implementing policies
+- [13:26.130] that are wildly popular with the American people,
+- [13:29.230] and that’s exactly what this administration is doing.
+- [13:31.950] It’s correcting the lies and the wrongs of the past four years,
+- [13:35.670] many of the lies that have been told to your faces
+- [13:37.980] in this very briefing room. I will not do that.
+- [13:40.740] But since you brought up truth, Zeke, I would like to point out,
+- [13:43.850] while I vow to provide the truth from this podium,
+- [13:46.920] we ask that all of you in this room hold yourselves
+- [13:49.290] to that same standard.
+- [13:50.510] We know for a fact there have been lies
+- [13:52.680] that have been pushed by many legacy media outlets
+- [13:55.370] in this country about this president,
+- [13:57.390] about his family, and we will not accept that.
+- [14:01.030] We will call you out
+- [14:02.400] when we feel that your reporting is wrong
+- [14:05.090] or there is misinformation about this White House.
+- [14:07.620] So, yes, I will hold myself to the truth,
+- [14:09.970] and I expect everyone in this room to do the same.
+- [14:11.880] The Press: And, Karoline, just on a substantive question.
+- [14:13.740] Yesterday, the White House Office of Management
+- [14:15.780] and Budget directed an across-the-board freeze with
+- [14:20.470] --with some exceptions for individual assistance.
+- [14:22.090] We understand just federal grants.
+- [14:23.530] Ms. Leavitt: Right.
+- [14:24.730] The Press: It’s caused a lot of confusion around the country
+- [14:26.740] among Head Start providers, among providers
+- [14:29.850] --from services to homeless veterans, provid-
+- [14:32.230] --you know, Medicaid providers,
+- [14:33.560] states saying they’re having trouble accessing the portal.
+- [14:35.710] Could you put --help us clear up some confusion --
+- [14:37.210] Ms. Leavitt: Yes.
+- [14:38.410] The Press: --give some certainty to folks?
+- [14:39.660] And then also, is that uncertainty
+- [14:41.670] --how does that uncertainty service the president’s voters?
+- [14:44.920] Ms. Leavitt: Well, I think there’s only uncertainty
+- [14:46.350] in this room amongst the media.
+- [14:47.550] There’s no uncertainty in this building.
+- [14:49.170] So, let me provide the certainty and the clarity
+- [14:51.280] that all of you need.
+- [14:52.490] This is not a blanket pause on federal assistance
+- [14:56.430] in grant programs from the Trump administration.
+- [14:59.360] Individual assistance, that includes
+- [15:02.170] --I’m not naming everything that’s included,
+- [15:03.990] but just to give you a few examples --Social
+- [15:06.140] Security benefits, Medicare benefits,
+- [15:09.340] food stamps, welfare benefits
+- [15:11.420] --assistance that is going directly to individuals
+- [15:14.380] will not be impacted by this pause.
+- [15:17.390] And I want to make that very clear to any Americans
+- [15:19.580] who are watching at home who may be a little bit confused
+- [15:22.290] about some of the media reporting:
+- [15:23.960] This administration --if you are receiving individual assistance
+- [15:26.570] from the federal government,
+- [15:27.860] you will still continue to receive that.
+- [15:29.820] However, it is the responsibility of this president
+- [15:32.940] and this administration to be good stewards
+- [15:35.540] of taxpayer dollars.
+- [15:37.100] That is something that President Trump campaigned on.
+- [15:39.460] That’s why he has launched DOGE,
+- [15:41.220] the Department of Government Efficiency,
+- [15:43.280] who is working alongside OMB.
+- [15:45.610] And that’s why OMB sent out this memo last night,
+- [15:47.980] because the president signed an executive order
+- [15:50.750] directing OMB to do just this.
+- [15:53.030] And the reason for this is to ensure that every penny
+- [15:56.130] that is going out the door
+- [15:57.680] is not conflicting with the executive orders
+- [16:00.090] and actions that this president has taken.
+- [16:02.200] So, what does this pause mean?
+- [16:03.740] It means no more funding for illegal DEI programs.
+- [16:06.770] It means no more funding for the Green New Scam that has ta-
+- [16:10.380] --cost American taxpayers tens of billions of dollars.
+- [16:13.980] It means no more funding for transgenderism
+- [16:17.000] and wokeness across our federal bureaucracy and agencies.
+- [16:20.650] No more funding for Green New Deal
+- [16:22.240] social engineering policies.
+- [16:23.960] Again, people who are receiving individual asintan-
+- [16:27.430] --assistance, you will continue to receive that.
+- [16:29.560] And President Trump is looking out for you
+- [16:31.090] by issuing this pause
+- [16:32.860] because he is being good steward of your taxpayer dollars.
+- [16:35.630] The Press: Thanks, Karoline.
+- [16:36.860] Ms. Leavitt: Sure.
+- [16:38.060] The Press: How long is this pause going to last?
+- [16:40.220] And how is the Trump administration
+- [16:42.320] recommending that organizations that rely on federal funding
+- [16:46.320] make payroll, pay their rent in the meantime?
+- [16:49.040] Ms. Leavitt: It is a temporary pause,
+- [16:50.570] and the Office of Management and Budget
+- [16:52.190] is reviewing the federal funding
+- [16:54.400] that has been going out the door,
+- [16:55.870] again, not for individual assistance,
+- [16:57.530] but for all of these other programs that I mentioned.
+- [17:00.500] I also spoke with the incoming director of OMB this morning,
+- [17:04.350] and he told me to tell all of you
+- [17:06.010] that the line to his office is open
+- [17:08.310] for other federal government agencies across the board,
+- [17:11.360] and if they feel that programs are necessary
+- [17:14.150] and in line with the president’s agenda,
+- [17:17.160] then the Office of Management and Budget
+- [17:18.560] will review those policies.
+- [17:19.960] I think this is a very responsible measure.
+- [17:21.870] Again, the past four years,
+- [17:23.350] we’ve seen the Biden administration
+- [17:24.900] spend money like drunken sailors.
+- [17:26.590] It’s a big reason we’ve had an inflation crisis
+- [17:28.450] in this country,
+- [17:29.660] and it’s incumbent upon this administration
+- [17:31.410] to make sure, again, that every penny
+- [17:33.400] is being accounted for honestly.
+- [17:35.000] The Press: Why impose this pause with so little notice?
+- [17:38.030] Why not give organizations more time to plan for the fact
+- [17:42.720] that they are about to lose, in some cases,
+- [17:45.480] really crucial federal funding --
+- [17:46.930] Ms. Leavitt: There was --
+- [17:48.230] The Press: --at least for a --for a period of time?
+- [17:49.550] Ms. Leavitt: There was notice.
+- [17:50.750] It was the executive order that the president signed.
+- [17:52.490] There’s also a freeze on hiring, as you know;
+- [17:54.680] a regulatory freeze;
+- [17:55.880] and there’s also a freeze on foreign aid.
+- [17:58.160] And this is a --again, incredibly important
+- [18:00.580] to ensure that this administration
+- [18:02.770] is taking into consideration
+- [18:04.770] how hard the American people are working.
+- [18:07.610] And their tax dollars actually matter to this administration.
+- [18:10.850] You know, just during this pause,
+- [18:13.010] DOGE and OMB have actually found that there was $37 million
+- [18:17.390] that was about to go out the door
+- [18:19.230] to the World Health Organization,
+- [18:21.210] which is an organization, as you all know,
+- [18:23.080] that President Trump,
+- [18:24.300] with the swipe of his pen in that executive order, is
+- [18:27.270] --no longer wants the United States to be a part of.
+- [18:29.100] So, that wouldn’t be in line with the president’s agenda.
+- [18:31.930] DOGE and OMB also found
+- [18:33.480] that there was about to be 50 million taxpayer dollars
+- [18:36.430] that went out the door to fund condoms in Gaza.
+- [18:39.630] That is a preposterous waste of taxpayer money.
+- [18:42.460] So, that’s what this pause is focused on:
+- [18:44.240] being good stewards of tax dollars.
+- [18:45.610] The Press: And so, this doesn’t affect --
+- [18:46.850] Ms. Leavitt: Jennifer.
+- [18:48.120] The Press: --Meals on Wheels or Head Start or disaster aid?
+- [18:50.920] Ms. Leavitt: Again, it does not affect individual assistance
+- [18:53.610] that’s going to Americans.
+- [18:55.100] The Press: To follow up on Nancy,
+- [18:56.390] do you think there will be a list of who is affected
+- [18:58.510] and how much money is affected?
+- [18:59.910] How --how will these contractors and organizations know
+- [19:03.040] if they are actually being --having their funding frozen?
+- [19:06.240] And then, secondly, if you’re willing, can you just clarify,
+- [19:09.860] is the end goal of this
+- [19:11.760] to essentially challenge Congress or to
+- [19:14.850] --to prove that the president can withhold federal funding?
+- [19:17.470] Is --in other words, is this an attempt
+- [19:19.890] to pick a fight to prove that he can do this?
+- [19:22.080] Ms. Leavitt: No, absolutely not.
+- [19:23.340] As it says right here in the memo,
+- [19:24.940] which I have --and I’d encourage all of you to read it --it says,
+- [19:27.660] “The American people elected President Trump
+- [19:29.740] to be the president of the United States
+- [19:31.890] and gave him a mandate to increase the impact
+- [19:33.850] of every federal dollar.”
+- [19:35.200] “This memo requires federal agencies to identify and review
+- [19:38.750] all Federal financial assistance programs
+- [19:41.060] and supporting activities consistent
+- [19:42.980] with the president’s policies and requirements.”
+- [19:45.300] The American people gave President Trump
+- [19:46.860] an overwhelming mandate on November 5th,
+- [19:49.360] and he’s just trying to ensure
+- [19:50.680] that the tax money going out the door
+- [19:52.190] in this very bankrupt city actually aligns with the will
+- [19:56.310] and the priorities of the American people.
+- [19:57.840] (Cross-talk.) Brian Glenn.
+- [19:59.160] The Press: Yes. Welcome. Ms. Leavitt: Thank you.
+- [20:00.530] The Press: You look great. You’re doing a great job.
+- [20:02.030] Ms. Leavitt: Thank you.
+- [20:03.230] The Press: You talked about transparency.
+- [20:04.710] And some of us in this room know how just transparent
+- [20:07.850] President Trump has been the last five or six years;
+- [20:10.850] I think you’ll do the same.
+- [20:12.420] My question is, do you think this latest incident
+- [20:14.730] with the president of Colombia
+- [20:16.410] is indicative of the global, powerful respect they have for
+- [20:22.690] President Trump moving forward not only to engage in
+- [20:26.280] --in economic diplomacy with these countries
+- [20:28.600] but also world peace?
+- [20:31.190] Ms. Leavitt: Absolutely.
+- [20:32.520] I’ll echo the answer that the president gave on Air Force
+- [20:35.320] One last night when he was asked a very similar question
+- [20:38.200] by one of your colleagues in the media:
+- [20:40.200] This signifies peace through strength is back,
+- [20:43.760] and this president will not tolerate illegal immigration
+- [20:47.730] into America’s interior.
+- [20:49.620] And he expects every nation on this planet,
+- [20:52.760] again, to cooperate with the repatriation of their citizens
+- [20:56.310] who illegally entered into our country
+- [20:58.790] and broke America’s laws. Won’t be tolerated.
+- [21:01.320] And as you saw, the Colombian government quickly folded
+- [21:04.070] and agreed to all of President Trump’s demands.
+- [21:05.820] Flights are underway once again.
+- [21:07.080] (Cross-talk.)
+- [21:08.360] Diana.
+- [21:09.570] The Press: Two questions on deportations, if I may.
+- [21:12.310] President Trump had said on the campaign trail
+- [21:14.280] that he would deport pro-Hamas students
+- [21:16.860] who are here on visas, and on his first day in office,
+- [21:19.980] he signed an executive order that said, quote,
+- [21:22.280] “The U.S. must ensure that admitted aliens and aliens
+- [21:25.510] otherwise already present in the U.S.
+- [21:27.830] do not bear hostile attitudes toward its citizens, culture,
+- [21:30.770] government, institutions, or founding principles.”
+- [21:33.950] So, should we take this executive order
+- [21:35.680] as Trump saying he would be open to de-
+- [21:38.180] --deporting those students who are here on visas,
+- [21:41.130] but, you know, hold pro-Hamas sympathies?
+- [21:43.500] Ms. Leavitt: The president is open to deporting individuals
+- [21:46.010] who have broken our nation’s immigrations laws.
+- [21:48.360] So, if they are here illegally,
+- [21:50.970] then certainly he is open to deporting them,
+- [21:53.230] and that’s what this administration is hard
+- [21:54.760] at work at doing.
+- [21:56.040] We receive data from DHS and from ICE every single day.
+- [22:00.450] From what we hear on the ground,
+- [22:01.860] ICE agents are feeling incredibly empowered right now
+- [22:04.400] because they actually have a leader in this building
+- [22:07.270] who is supporting them in doing their jobs
+- [22:09.840] that they were hired to do,
+- [22:11.180] which is to detain, arrest, and deport illegal criminals
+- [22:14.530] who have invaded our nation’s borders
+- [22:15.810] over the past four years.
+- [22:17.110] That’s what the president is committed to seeing.
+- [22:18.360] The Press: One more. Ms. Leavitt: Peter.
+- [22:19.580] The Press: Just following up on that, Karoline --
+- [22:20.790] The Press: Karoline, if I could ask you very quickly,
+- [22:22.010] just following up on the question on immigration.
+- [22:23.270] First, President Trump,
+- [22:24.480] during the course of the campaign in 2024,
+- [22:26.250] said the following about illegal im- --immigration.
+- [22:28.870] He said, “They’re going back home where they belong,
+- [22:30.730] and we start with the criminals. There are many, many criminals.”
+- [22:33.630] NBC News has learned that ICE arrested 1,179
+- [22:36.750] undocumented immigrants on Sunday,
+- [22:38.150] but nearly half of them --566 of the migrants
+- [22:41.210] --appear to have no prior criminal record
+- [22:44.130] besides entering the country illegally.
+- [22:45.500] Ms. Leavitt: (Laughs.)
+- [22:46.700] The Press: Is the president still focused exclusiv-
+- [22:48.590] --which is a civil crime,
+- [22:49.800] not a --not a --it’s not criminal --
+- [22:52.470] Ms. Leavitt: It’s a federal crime.
+- [22:53.750] The Press: It’s a fed- --so, I’m asking though,
+- [22:55.070] he said he was going to focus on those violent offenders first.
+- [22:57.520] So, is violent offenders no longer the predicate
+- [23:00.070] for these people to be deported?
+- [23:01.320] Ms. Leavitt: The president has said countless times
+- [23:02.690] on the campaign
+- [23:04.000] trail --I’ve been with him at the rallies;
+- [23:05.510] I know you’ve been there covering them too,
+- [23:06.990] Peter --that he is focused on launching
+- [23:09.260] the largest mass deportation operation
+- [23:11.280] in American history of illegal criminals.
+- [23:14.050] And if you are an individual, a foreign national,
+- [23:16.150] who illegally enters the United States of America,
+- [23:17.950] you are, by definition,
+- [23:19.180] a criminal. And so, therefore --
+- [23:20.400] The Press: So, to be clear, it’s not exclusively --
+- [23:21.650] Ms. Leavitt: --you are subject deportation.
+- [23:22.870] The Press: I apologize for interrupting.
+- [23:24.140] So, to be clear, it’s not --violent criminals
+- [23:25.710] do not receive precedence
+- [23:27.050] in terms of the deportations taking place?
+- [23:28.580] Ms. Leavitt: The president has also said
+- [23:29.810] --two things can be true at the same time.
+- [23:31.270] We want to deport illegal criminals,
+- [23:33.040] illegal immigrants from this country.
+- [23:34.550] But the president has said that, of course, the illegal dr-
+- [23:38.830] --criminal drug dealers, the rapists, the murderers,
+- [23:42.090] the individuals who have committed heinous acts
+- [23:44.590] on the interior of our country
+- [23:46.780] and who have terrorized law-abiding American citizens,
+- [23:49.760] absolutely, those should be the priority of ICE.
+- [23:52.360] But that doesn’t mean that the other illegal criminals
+- [23:54.220] who entered our nation’s borders are off the table.
+- [23:55.910] The Press: Understood.
+- [23:57.130] Then let me ask you a separate question
+- [23:58.430] about the confusion that still exists across the country
+- [24:00.530] right now as it relates to the --the freeze --or the pause,
+- [24:03.490] as it’s described.
+- [24:04.990] President Trump, of course, ran --one of the key policy items
+- [24:07.330] was that he was going to lower prices,
+- [24:08.630] lower the cost of everything from groceries,
+- [24:10.590] as he often said. But in many of the cases,
+- [24:13.320] it would seem that some of these moves
+- [24:14.810] could raise prices for real Americans
+- [24:17.220] on everything from low-income heating
+- [24:19.200] --that program; childcare programs.
+- [24:21.330] Will nothing that the president is doing here,
+- [24:23.350] in terms of the freeze in these programs,
+- [24:25.270] raise prices on ordinary Americans?
+- [24:27.260] Ms. Leavitt: What particular actions
+- [24:28.510] are you referring to that would --
+- [24:29.840] The Press: I’m referring to LHEAP right now.
+- [24:31.180] That’s the low-income heating program, for example.
+- [24:33.340] We can talk about --there’s no clarity,
+- [24:34.810] so I could refer to a lot of them.
+- [24:36.110] We don’t know what they are specifically.
+- [24:37.650] Can you tell us that LHEAP
+- [24:38.900] --that LIHEAP is not one of those affected?
+- [24:41.130] Ms. Leavitt: So, you’re asking a hypoc-
+- [24:42.410] ---thetical based on programs that you can’t even identify?
+- [24:44.020] The Press: No, I just identified --I --
+- [24:45.300] Ms. Leavitt: What I can tell you is that the --
+- [24:46.560] The Press: Well, just to be --just to be clear,
+- [24:47.800] since you guys haven’t identified,
+- [24:49.050] let’s do it together, just for Americans at home.
+- [24:50.750] Medicaid, is that affected?
+- [24:53.080] Ms. Leavitt: I gave you a list of examples
+- [24:54.810] --Social Security, Medicare, welfare benefits --
+- [24:57.490] The Press: Medicaid too, correct?
+- [24:58.790] Ms. Leavitt: --food stamps --that will not be impacted
+- [25:01.170] by this federal pause.
+- [25:02.380] I can get you the full list after this briefing
+- [25:04.160] from the Office of Management and Budget.
+- [25:05.860] But I do want to address the cost cutting,
+- [25:08.180] because that’s certainly very important,
+- [25:10.290] and --and cutting the cost of living in this country.
+- [25:13.770] President Trump has taken historic action
+- [25:15.780] over the past week to do that. He actually signed a memorandum
+- [25:19.350] to deliver emergency price relief for American families,
+- [25:22.650] which took a number of actions. I can walk you through those.
+- [25:25.580] He also repealed
+- [25:27.230] many onerous Biden administration regulations.
+- [25:30.520] We know, over the past four years,
+- [25:31.960] American households has been essentially taxed $55,000
+- [25:36.500] in regulations from the previous administration.
+- [25:39.040] President Trump, with the swipe of his pen, rescinded those,
+- [25:41.780] which will ultimately put more money back
+- [25:43.470] in the pockets of the American people.
+- [25:45.540] So, deregulation is a big deal.
+- [25:47.510] And then, when it comes to energy,
+- [25:48.800] I mean, the president signed an executive order
+- [25:50.710] to declare a national energy emergency here at home,
+- [25:53.950] which is going to make America energy dominant.
+- [25:55.810] We know that energy is one of the number-one
+- [25:58.610] drivers of inflation, and so that’s why the president
+- [26:01.830] wants to increase our energy supply:
+- [26:03.390] to bring down costs for Americans.
+- [26:04.770] The Trump energy boom is incoming,
+- [26:06.370] and Americans can expect that.
+- [26:07.690] The Press: Please share that memo. Thank you.
+- [26:08.970] Ms. Leavitt: I will. (Cross-talk.)
+- [26:10.170] The Press: Karoline, I think --some of the confusion,
+- [26:11.550] I think, may be here with this pause on federal funding.
+- [26:13.910] You’ve made it clear you’re not stopping funds
+- [26:15.900] that go directly to individuals,
+- [26:17.340] but there certainly are lots of organizations
+- [26:19.480] that receive funding and then may pass along
+- [26:21.350] a benefit --Meals on Wheels, for one.
+- [26:23.450] They provide meals for over 2.2 million seniors.
+- [26:26.270] What is the president’s message to Americans out there,
+- [26:28.540] many of whom supported him and voted for him,
+- [26:30.620] who are concerned that this is going to impact them directly,
+- [26:34.390] even if, as you said,
+- [26:35.630] the funding isn’t coming directly to their wallet?
+- [26:37.160] Ms. Leavitt: I have now been asked
+- [26:38.370] and answered this question four times.
+- [26:40.100] To individuals at home who receive direct assistance
+- [26:43.920] from the federal government,
+- [26:45.460] you will not be impacted by this federal freeze.
+- [26:48.450] In fact, OMB just sent out a memo to Capitol Hill with Q
+- [26:52.820] and A to --to clarify some of the questions
+- [26:55.580] and the answers that all of you are a-
+- [26:57.650] --are asking me right now.
+- [26:59.340] Again, direct assistance will not be impacted.
+- [27:01.400] I’ve been asked and answered about this OMB memo.
+- [27:03.110] There’s many other topics of the day.
+- [27:04.490] Jacqui Heinrich.
+- [27:05.710] The Press: But on indirect assistance, Karoline --
+- [27:06.930] The Press: Thank you, Karoline.
+- [27:07.560] The Press: --if it’s going to another organization
+- [27:08.790] and then trickling down?
+- [27:09.990] Ms. Leavitt: Direct assistance that is in the hands
+- [27:11.620] of the American people will not be impacted.
+- [27:13.290] Again, as I said to Peter,
+- [27:14.590] we will continue to provide that list as it comes to fruition.
+- [27:17.970] But OMB right now is focused on analyzing
+- [27:20.380] the federal government’s spending,
+- [27:21.660] which is exactly what the American people
+- [27:22.930] elected President Trump to do.
+- [27:24.200] (Cross-talk.) The Press: Thank you, Karoline.
+- [27:25.410] The Press: And one question on immigration, Karoline.
+- [27:26.700] On immigration. The Press: Thank you, Karo- --
+- [27:27.950] The Press: Of the 3,500 arrests ICE has made so far
+- [27:30.130] since President Trump came back into office,
+- [27:31.830] can you just tell us the numbers?
+- [27:33.140] How many have a criminal record versus those
+- [27:35.220] who are just in the country illegally.
+- [27:36.670] Ms. Leavitt: All of them,
+- [27:37.890] because they illegally broke our nation’s laws,
+- [27:39.600] and, therefore, they are criminals,
+- [27:40.800] as far as this administration goes.
+- [27:42.240] I know the last administration didn’t see it that way,
+- [27:44.400] so it’s a big culture shift in our nation
+- [27:46.040] to view someone who breaks our immigration laws as a criminal.
+- [27:48.000] But that’s exactly what they are.
+- [27:49.230] Jacqui. (Cross-talk.)
+- [27:49.980] The Press: Karoline, on tariffs.
+- [27:50.460] The Press: But you made a point of going with the worst first.
+- [27:51.670] The Press: On tariffs.
+- [27:51.960] The Press: They all have a criminal record?
+- [27:53.180] The Press: And welcome to the briefing room.
+- [27:54.390] Ms. Leavitt: If they broke our nation’s laws, yes,
+- [27:55.750] they are a criminal. Yes.
+- [27:56.950] The Press: Thank you. On stripping security details
+- [27:59.570] for figures like John Bolton, Pompeo, Brian Hook.
+- [28:03.960] Senator Tom Cotton said that he’s seen the intelligence
+- [28:07.280] and the threat from Iran
+- [28:08.950] is real for anyone who played a role in the Soleimani strike.
+- [28:13.520] He voiced concern it wouldn’t just impact those individuals
+- [28:16.170] but potentially their family, innocent bystanders, friends
+- [28:20.430] --anyone who is near them when they’re out in public.
+- [28:23.060] Is the president open to reconsidering his decision?
+- [28:27.700] Ms. Leavitt: The president was asked and answered
+- [28:29.230] this yesterday, and he was firm in his decision,
+- [28:32.060] despite some of the comments that you had referenced.
+- [28:34.320] And he’s made it very clear that he does not believe
+- [28:36.450] American taxpayers should fund security details for individuals
+- [28:39.720] who have served in the government
+- [28:41.030] for the rest of their lives.
+- [28:42.260] And there’s nothing stopping these individuals
+- [28:43.950] that you mentioned from obtaining private security.
+- [28:46.210] That’s where the president stands on it.
+- [28:47.750] I have no updates on that.
+- [28:49.020] The Press: Is there any concern that this decision
+- [28:50.830] might jeopardize the administration’s ability
+- [28:54.840] to hire the best advisers
+- [28:57.340] for these kinds of positions in the future?
+- [28:58.880] Ms. Leavitt: No.
+- [29:00.110] In fact, I’ve talked to the Presidential Personnel Office
+- [29:02.290] who has told me directly that there is such an influx
+- [29:04.980] of resumes for this administration
+- [29:06.670] that it’s incredibly overwhelming.
+- [29:08.150] There is no lack of talent for the Trump administration.
+- [29:09.910] Reagan Ree- --
+- [29:11.140] The Press: And would he --would he take any responsibility --
+- [29:12.360] The Press: Thanks, Karoline.
+- [29:13.560] The Press: --if anything happened to these people?
+- [29:14.780] Would he feel at all that his decision was a factor in that?
+- [29:17.280] Ms. Leavitt: The president was asked and answered
+- [29:18.630] this yesterday. I’d defer you to his comments.
+- [29:19.990] The Press: Thanks, Karoline. The Press: Karoline --
+- [29:21.220] Ms. Leavitt: Reagan, since you’re in the back row,
+- [29:22.460] I hear y- --the back row
+- [29:23.670] hasn’t gotten much attention in the last four years --
+- [29:25.090] The Press: Yes, thank you.
+- [29:26.330] Ms. Leavitt: --so I’m happy to answer your question.
+- [29:27.560] The Press: And I can project. (Laughter.)
+- [29:28.980] Does the president intend to permanently cut off
+- [29:31.260] funding to NGOs
+- [29:32.520] that are bringing illegal foreign nationals
+- [29:34.440] to the country, such as Catholic Charities?
+- [29:37.320] Ms. Leavitt: I am actually quite certain that the president
+- [29:39.880] signed an executive order that did just that,
+- [29:41.720] and I can point you to that.
+- [29:43.010] The Press: One more, Karoline. Ms. Leavitt: Yeah.
+- [29:44.240] The Press: President Trump issued an executive order
+- [29:46.200] on increased vetting for refugees in visa applications.
+- [29:49.180] Ms. Leavitt: That’s right.
+- [29:50.380] The Press: Part of that order was considering an outright ban
+- [29:52.660] for countries that have deficient screening processes.
+- [29:55.460] Has the president considered yet which countries
+- [29:57.380] might fall into this category?
+- [29:59.060] Are countries like Afghanistan or Syria
+- [30:00.610] under consideration for a full ban?
+- [30:01.830] Ms. Leavitt: Yeah.
+- [30:03.100] So, the president signed an executive order
+- [30:04.540] to streamline the vetting for visa applicants
+- [30:08.170] and for illegal immigrants in this country
+- [30:10.420] who are coming, of course, from other nations.
+- [30:12.400] It also directed the secretary of State to review the process
+- [30:16.030] and make sure that other countries around the world
+- [30:18.520] are being completely transparent with our nation
+- [30:21.770] and the individuals that they are sending here.
+- [30:24.250] And so, the secretary of State has been directed
+- [30:26.320] to report back to the president. I haven’t seen that report yet.
+- [30:29.230] We’ve only been here for a few days.
+- [30:30.540] (Cross-talk.)
+- [30:31.740] The Press: Karoline, two questions for you.
+- [30:33.090] One on the freeze in federal funding.
+- [30:35.150] Who advised the president on the legality
+- [30:37.890] of telling government agencies
+- [30:39.200] that they don’t have to spend money
+- [30:40.690] that was already appropriated by Congress?
+- [30:42.870] Ms. Leavitt: Well, as the OMB memo states,
+- [30:45.190] this is certainly within the confines of the law.
+- [30:47.850] So, White House Counsel’s Office
+- [30:49.680] believes that this is within the pe-
+- [30:51.090] --president’s power to do it, and therefore, he’s doing it.
+- [30:52.950] The Press: Okay.
+- [30:54.230] So, they disagree with lawmakers who say
+- [30:55.550] that they don’t have the power to --to freeze this funding?
+- [30:58.040] Ms. Leavitt: Again, I would point you to the language
+- [30:59.570] in the memo that clearly states this is within the law.
+- [31:02.240] The Press: And on what happened on Friday night.
+- [31:03.630] The --the administration fired several inspectors general
+- [31:06.610] without giving Congress the 30-day
+- [31:08.440] legally required notification that they were being fired.
+- [31:11.150] I think only two were left at DO-
+- [31:13.130] --DHS and the DOJ.
+- [31:14.630] And then, yesterday, we saw several prosecutors
+- [31:17.120] --I believe 12 --fired from the Justice Department
+- [31:19.470] who worked on the investigations into the president.
+- [31:22.580] As you know, they are career prosecutors;
+- [31:24.640] therefore, they are afforded civil service protections.
+- [31:27.930] How is the administration deciding which laws to follow
+- [31:31.210] and which ones to ignore?
+- [31:32.950] Ms. Leavitt: So, it is the belief of this White House
+- [31:34.940] and the White House Counsel’s Office
+- [31:36.240] that the president was within his exe-
+- [31:38.090] --executive authority to do that.
+- [31:40.280] He is the executive of the executive branch,
+- [31:42.610] and, therefore, he has the power to fire anyone
+- [31:44.720] within the executive branch that he wishes to.
+- [31:47.920] There’s also a case that went before the Supreme Court
+- [31:50.460] in 2020: Scaila [Seila] Law LLC, v. the Customs --the
+- [31:54.510] [Consumer Financial Protection] Bureau Protection.
+- [31:56.800] I would advise you to look at that case,
+- [31:58.400] and that’s the legality that this White House has rested on.
+- [32:00.230] The Press: So, you’re confident
+- [32:01.470] that if they bring lawsuits against you
+- [32:03.060] --those prosecutors who were fired --that
+- [32:04.490] --that they will succeed?
+- [32:05.740] Ms. Leavitt: We will win in court, yes.
+- [32:06.980] The Press: And did he personally direct this,
+- [32:08.230] given they worked on the classified documents
+- [32:10.230] investigation and the election interference investigation?
+- [32:12.820] Ms. Leavitt: This was a memo that went out
+- [32:14.190] by the Presidential Personnel Office,
+- [32:15.630] and the president is the leader of this White House.
+- [32:17.280] So, yes.
+- [32:18.530] The Press: So, it did come from him?
+- [32:19.760] Ms. Leavitt: Yes, it came from this White House.
+- [32:21.040] (Cross-talk.) The Press: Karoline.
+- [32:22.240] Ms. Leavitt: Sir. The Press: Thank you.
+- [32:23.470] Congrats on your first day behind the podium.
+- [32:25.080] Ms. Leavitt: Thank you.
+- [32:27.240] The Press: President Trump ended funding for UNRWA
+- [32:29.810] and also designated the Houthis
+- [32:31.930] a foreign terrorist organization.
+- [32:33.250] Ms. Leavitt: That’s right.
+- [32:34.480] The Press: Both were decisions
+- [32:35.680] that the previous administration had reversed.
+- [32:37.430] So, here’s my question: Will there be an investigation
+- [32:40.990] into who gave the previous administration
+- [32:43.460] this terrible advice?
+- [32:45.100] Ms. Leavitt: Well, that’s a very good point.
+- [32:46.540] I haven’t heard discussions about such an ins-
+- [32:48.400] --investigation, but it wouldn’t be a bad idea,
+- [32:50.220] considering that the Houthis cer-
+- [32:52.080] --certainly are terrorists. They have launched attacks
+- [32:55.100] on U.S. naval ships across this world,
+- [32:57.990] and so I think it was a very wise move by this administration
+- [33:01.250] to redesignate them as a terrorist group,
+- [33:02.990] because they are.
+- [33:04.210] And I think it was a foolish decision
+- [33:05.920] by the previous administration to do so.
+- [33:07.700] As for an investigation, I’m not sure about that,
+- [33:09.340] but it’s not a bad idea.
+- [33:10.550] (Cross-talk.) Josh.
+- [33:11.780] The Press: Thank you for the question.
+- [33:13.010] I appreciate it. Can you give us an update
+- [33:14.290] on the president’s plan for his tariff agenda?
+- [33:16.430] He spoke a lot about this yesterday,
+- [33:17.940] and there’s a couple of dates coming up that --
+- [33:19.430] Ms. Leavitt: Sure.
+- [33:20.630] The Press: --he’s spoken to. Number one, February 1st.
+- [33:22.310] He’s alluded to both the potential
+- [33:23.650] for tariffs for Canada and Mexico
+- [33:25.030] but also China to take effect on those days.
+- [33:28.000] Where is --what’s he thinking about that?
+- [33:29.550] Ms. Leavitt: Yeah. The Press: Should those
+- [33:30.790] countries expect that on the 1st?
+- [33:31.990] Ms. Leavitt: Again, he was asked and answered
+- [33:33.220] this question this past weekend
+- [33:34.440] when he took a lot of questions from the press,
+- [33:36.290] and he said that the February 1st date for Canada
+- [33:39.240] and Mexico still holds.
+- [33:40.500] The Press: And what about the China 10 percent tariff
+- [33:42.490] that he also had mused about last Tuesday
+- [33:44.600] going into effect on the same date?
+- [33:46.070] Ms. Leavitt: Yeah, the president has said that he is very much
+- [33:48.090] still considering that for February 1st.
+- [33:49.500] The Press: And then, separately, yesterday,
+- [33:50.720] he talked also about sectoral tariffs on,
+- [33:52.880] for instance, pharmaceuticals,
+- [33:54.290] as well as semiconductor computer chips.
+- [33:56.070] He talked about steel, aluminum, and copper.
+- [33:58.540] What’s the timeline on those?
+- [34:00.140] Is that a similar sort of “coming days” thing or --
+- [34:02.240] Ms. Leavitt: Yeah, so when the president
+- [34:03.470] talked about that in his speech yesterday,
+- [34:04.850] that actually wasn’t a new announcement.
+- [34:06.430] That was within a presidential memorandum
+- [34:08.740] that he signed in one of the first days
+- [34:10.450] here in the White House on his America First trade agenda.
+- [34:14.230] So, there’s more details on those tariffs in there.
+- [34:16.060] As far as a date, I don’t have a specific date
+- [34:18.460] to read out to you, but the president is committed
+- [34:20.160] to implementing tariffs effectively,
+- [34:21.740] just like he did in his first term.
+- [34:23.140] The Press: And then --and then, finally,
+- [34:24.390] he also was asked on the plane when he gaggled
+- [34:26.170] about the potential for a universal tariff.
+- [34:27.630] He was asked maybe about two and a half percent.
+- [34:28.830] Ms. Leavitt: Yeah.
+- [34:30.070] The Press: There was a report about that.
+- [34:31.360] He said he wanted “much bigger than that.”
+- [34:32.790] Should we understand that these tariffs would add up?
+- [34:35.590] You know, in other words, you might have country-specific
+- [34:37.770] tariffs like Canada, Mexico, China.
+- [34:39.290] You might have sectoral tariffs, like on pharmaceuticals,
+- [34:42.560] as well as a potential universal tariff on top of that.
+- [34:45.690] Do these stack on one or the other,
+- [34:47.260] or would one sort of take precedence over another?
+- [34:49.720] Ms. Leavitt: All I can point you to
+- [34:50.960] is what the president has said on this front:
+- [34:52.570] the February 1st date for Canada and Mexico
+- [34:54.640] and also the China tariff that he has discussed.
+- [34:57.290] He rejected the 2.5 percent tariff.
+- [34:59.280] He said that was a little bit too low.
+- [35:00.860] He wants it to be higher.
+- [35:02.060] I’ll leave it to him to make any decisions on that front.
+- [35:03.680] The Press: Do you have any comment on what the --
+- [35:05.030] (Cross-talk.)
+- [35:05.880] The Press: --what the Mexicans and Canadians --
+- [35:07.090] Ms. Leavitt: Phil. The Press: --have done so far?
+- [35:08.300] Do you have any comment on whether that has met the bar
+- [35:09.740] of what he wants to see on fentanyl? Thank you.
+- [35:11.150] Ms. Leavitt: I --I won’t get ahead of the president, again,
+- [35:13.270] on advocating to foreign nations on what they should
+- [35:17.770] or shouldn’t do to get away from these tariffs.
+- [35:20.370] The president has made it very clear, again,
+- [35:22.050] that he expects every nation around this world to cooperate
+- [35:25.820] with the repatriation of their citizens.
+- [35:27.490] And the president has also put out specific statements
+- [35:29.650] in terms of Canada and Mexico
+- [35:32.040] when it comes to what he expects in terms of border security.
+- [35:34.800] We have seen a historic level of cooperation from Mexico.
+- [35:37.450] But, again, as far as I’m still tracking
+- [35:38.830] --and that was last night
+- [35:40.060] talking to the president directly
+- [35:41.330] --February 1st is still on the books.
+- [35:42.600] The Press: Thank you. Ms. Leavitt: Phil.
+- [35:43.840] The Press: Thank you, Karoline.
+- [35:45.070] Quick programming note, and then a question on taxes.
+- [35:46.790] Ms. Leavitt: A programming note.
+- [35:48.050] The Press: Well, in terms of programming, should --
+- [35:49.280] Ms. Leavitt: That sounds fun.
+- [35:50.210] The Press: --we expect to see you here every day?
+- [35:51.480] How frequently will these --
+- [35:52.720] The Press: That’s a good question.
+- [35:53.500] The Press: --press briefings be?
+- [35:54.710] Ms. Leavitt: It is a good question, April.
+- [35:55.950] So, look, the president, as you know, is incredibly accessible.
+- [35:59.290] First day here, he wanted all of you in the Oval Office.
+- [36:02.230] You got a 60-minute press conference
+- [36:03.850] with the leader of the free world
+- [36:05.120] --while he was simultaneously signing executive orders,
+- [36:07.670] I may add. That’s pretty impressive.
+- [36:09.320] I don’t think the previous office holder
+- [36:11.560] would be able to pull such a thing off.
+- [36:13.810] So, look, the president is the best spokesperson
+- [36:16.320] that this White House has,
+- [36:17.590] and I can assure you that you will be hearing from both him
+- [36:20.390] and me as much as possible.
+- [36:22.770] The Press: And then a question about tax cuts.
+- [36:24.790] You know, the president has promised to extend
+- [36:26.640] the tax cuts from the previous term.
+- [36:29.270] I’m curious, you know, does the president support
+- [36:31.680] corresponding spending cuts,
+- [36:33.420] as some Republicans have called for in Congress?
+- [36:35.810] And will the new Treasury secretary
+- [36:38.420] be leading those negotiations with the Hill,
+- [36:40.960] as Mnuchin did during the first administration?
+- [36:43.060] Ms. Leavitt: The president is committed to both tax cuts
+- [36:45.160] and spending cuts.
+- [36:46.520] And he has a great team negotiating on his behalf,
+- [36:49.080] but there’s no better negotiator than Donald Trump,
+- [36:51.300] and I’m sure he’ll be involved in this reconciliation process
+- [36:54.010] as it moves forward.
+- [36:55.990] (Cross-talk.)
+- [36:57.260] The Press: Karoline, in the announcement
+- [36:59.750] that you made last night on the Iron Dome,
+- [37:02.960] it said the president had directed
+- [37:05.010] that the United States will build this Iron Dome.
+- [37:06.840] Ms. Leavitt: Yeah.
+- [37:08.040] The Press: When you read into the executive order,
+- [37:10.110] it seemed short of that.
+- [37:12.340] It asked for a series of studies --
+- [37:13.710] Ms. Leavitt: Yeah.
+- [37:14.950] The Press: --and reports back on --can you tell us
+- [37:16.780] whether the president has directed this and,
+- [37:19.630] if he is this concerned on this issue,
+- [37:22.040] why the suspensions that we saw listed by OMB
+- [37:25.580] included so many different nuclear programs,
+- [37:29.910] nonproliferation programs,
+- [37:32.190] programs to blend down nuclear weapons,
+- [37:34.750] and s- --and so forth?
+- [37:36.600] Ms. Leavitt: First of all, when it comes to the Iron Dome,
+- [37:38.310] the executive order directed the implementation
+- [37:41.700] of the --of an Iron Dome.
+- [37:43.090] It also, as you said, kind of directed research
+- [37:45.490] and studies to see if --or
+- [37:48.300] --or how the United States can go about doing this,
+- [37:50.710] particularly the Department of Defense.
+- [37:53.260] When it comes to the other question that you asked
+- [37:56.040] about those specific programs,
+- [37:57.640] again, I would say, this is not a --a ban;
+- [38:00.710] this is a temporary pause and a freeze
+- [38:03.650] to ensure that all of the money going out from Washington, D.C.,
+- [38:07.370] is in align with the president’s agenda.
+- [38:09.300] And as the Office of Management and Budget has updates
+- [38:12.930] on what will be kick-started, once again,
+- [38:15.170] I will provide those to you.
+- [38:16.570] The Press: Can you clarify for a sec
+- [38:17.940] what you were saying before on Medicaid?
+- [38:20.380] It wasn’t clear to me whether you were saying
+- [38:22.830] that no Medicaid would be cut off.
+- [38:24.560] Obviously, a lot of this goes to states
+- [38:26.760] before it goes to individuals and so forth.
+- [38:29.060] So, are you guaranteeing here
+- [38:30.700] that no individual now on Medicaid
+- [38:32.750] would see a cutoff because of the pause?
+- [38:35.120] Ms. Leavitt: I’ll check back on that and get back to you.
+- [38:36.800] Jon.
+- [38:38.030] The Press: Thanks a lot, Karoline.
+- [38:39.290] As you know, in the first week
+- [38:41.650] that the president was in office,
+- [38:43.030] signed an executive order
+- [38:44.420] as it relates to birthright citizenship
+- [38:46.830] --trying to eliminate that. Now, 22 state attorney generals
+- [38:51.530] have said that this is unconstitutional.
+- [38:55.570] A federal judge has just agreed with their argument.
+- [38:58.800] What’s the administration’s argument for doing away
+- [39:01.980] with birthright citizenship?
+- [39:03.770] Ms. Leavitt: The folks that you mentioned have a right
+- [39:06.020] to have that legal opinion, but it is in disagreement
+- [39:09.540] with the legal opinion of this administration.
+- [39:11.980] This administration believes that birthright citizenship
+- [39:14.560] is unconstitutional,
+- [39:16.000] and that is why President Trump signed that executive order.
+- [39:19.670] Illegal immigrants who come to this country
+- [39:22.290] and have a child are not subject
+- [39:24.480] to the laws of this jurisdiction.
+- [39:26.360] That’s the opinion of this administration.
+- [39:28.930] We have already appealed the rul-
+- [39:31.080] --the lawsuit that was filed against this administration,
+- [39:33.820] and we are prepared to fight this
+- [39:35.320] all the way to the Supreme Court if we have to,
+- [39:37.170] because President Trump believes that this is a necessary step
+- [39:40.470] to secure our nation’s borders and protect our homeland.
+- [39:42.640] Monica.
+- [39:43.880] The Press: And then on foreign policy --on foreign
+- [39:45.120] policy, Karoline -- The Press: Thank you, Karoline.
+- [39:46.360] It’s great to see you, and you’re doing a great --
+- [39:47.580] The Press: --on foreign policy, if I may.
+- [39:48.820] The president’s commitment to the NATO defense Alliance,
+- [39:52.550] is it as strong as the prior administration?
+- [39:55.730] Is it the same as when he served as president
+- [39:58.750] in his first term in office?
+- [40:00.110] Ms. Leavitt: As long as NATO pays their fair share.
+- [40:01.880] And President Trump has called on NATO
+- [40:04.000] Allies to increase their defense spending to 5 percent.
+- [40:07.250] You actually saw the head of NATO at Davos
+- [40:10.200] last week on Bloomberg Television
+- [40:12.020] saying that President Trump is right
+- [40:13.940] and if Europe wants to keep itself safe,
+- [40:15.840] they should increase their defense spending.
+- [40:17.750] I would just add that there was no greater ally to our European
+- [40:21.970] allies than President Trump in his first term.
+- [40:24.520] The world, for all nations in Europe,
+- [40:27.820] and, of course, here at home was much safer
+- [40:29.710] because of Presidents Tru-
+- [40:31.000] --Trump’s peace through strength diplomatic approach.
+- [40:33.720] Monica. The Press: Karoline --
+- [40:35.010] The Press: Thank you. Thank you, Karoline.
+- [40:36.250] And it’s great to finally be called on
+- [40:37.580] as well in the briefing room. I appreciate that.
+- [40:39.070] Ms. Leavitt: You’re welcome.
+- [40:40.290] The Press: Of course, we know President Trump just got back
+- [40:41.830] from North Carolina and California
+- [40:43.580] meeting with victims of natural disasters.
+- [40:46.280] There’s the two-year anniversary of the East Palestine, Ohio,
+- [40:49.120] toxic train derailment.
+- [40:50.330] Does the president have any plans to go visit
+- [40:52.810] the victims of that toxic spill or just visit in general?
+- [40:56.180] Ms. Leavitt: Not --no plans that I can read out for you here.
+- [40:58.530] If that changes, I will certainly keep you posted.
+- [41:00.610] What I can tell you is that President Trump
+- [41:02.960] still talks about his visit to East Palestine, Ohio.
+- [41:05.900] That was one of the turning points, I would say,
+- [41:08.520] in the previous election campaign,
+- [41:10.610] where Americans were reminded that President Trump
+- [41:13.180] is a man of the people.
+- [41:14.590] And he, as a candidate, visited that town
+- [41:17.730] that was just derailed by the train derailment
+- [41:20.140] --no pun intended --and he offered support and hope,
+- [41:23.030] just like I saw the president do this past week.
+- [41:25.490] It was a purposeful decision by this president,
+- [41:27.780] on his first domestic trip, to go to North Carolina
+- [41:31.100] and to California to visit with Americans
+- [41:33.410] who were impacted by Hurricane Helene
+- [41:35.660] and also by the deadly fires --a red state and a blue state,
+- [41:39.250] both of which feel forgotten by the previous administration
+- [41:42.370] and the federal government.
+- [41:43.590] That has now --that has now ended under President Trump.
+- [41:46.600] He will continue to put Americans first,
+- [41:48.520] whether they’re in East Palestine,
+- [41:50.250] in Pacific Palisades, or in North Carolina.
+- [41:52.090] (Cross-talk.)
+- [41:53.330] Sure.
+- [41:54.530] The Press: Thank you, Karoline. On California, could you please
+- [41:56.560] clarify what the military did with the water last night,
+- [41:59.760] as referenced in the president’s Truth Social post?
+- [42:02.090] Ms. Leavitt: The water has been turned back on in California,
+- [42:04.890] and this comes just days after President Trump
+- [42:07.600] visited Pacific Palisades and, as you all saw,
+- [42:11.340] applied tremendous pressure on state
+- [42:14.090] and local officials in Pacific Palisades,
+- [42:16.580] including Los Angeles Mayor Karen Bass,
+- [42:19.270] to turn on the water
+- [42:20.520] and to direct that water to places in the south
+- [42:23.950] and in the middle of the state that have been incredibly dry,
+- [42:27.070] which has led to the expansion
+- [42:29.460] --the rapid expansion of these fires.
+- [42:31.290] The Press: So, could you clarify what the military’s role was,
+- [42:34.070] where the water came from, and how it got there?
+- [42:36.570] Ms. Leavitt: Again, the Army Corps of Engineers
+- [42:38.110] has been on the ground in California
+- [42:40.620] to respond to the devastation from these wildfires.
+- [42:44.220] And I would point out that just days after President Trump
+- [42:47.650] visited the devastation from these fires,
+- [42:50.010] the water was turned on.
+- [42:51.270] That is because of the pressure campaign
+- [42:52.820] he put on state and local officials there,
+- [42:55.100] who clearly lack all common sense.
+- [42:57.070] And I will never forget being at that round table
+- [42:59.510] with the president last week
+- [43:00.920] and hearing the frustration in the voices of Pacific
+- [43:03.910] Palisades residents who feel as though
+- [43:05.930] their government has just gone insane.
+- [43:08.160] Before President Trump showed up on the scene,
+- [43:09.860] Karen Bass was telling private property owners
+- [43:12.680] that they would have to wait 18 months
+- [43:15.020] to access their private property.
+- [43:16.990] So, this administration, the president and his team
+- [43:19.380] that’s on the ground in California --Ric Grenell,
+- [43:21.350] who he has designated to oversee this great crisis --ha-
+- [43:25.390] --will continue to put pressure on Karen Bass and state
+- [43:28.400] and local officials to allow residents
+- [43:30.080] to access their properties.
+- [43:31.350] This is a huge part of it.
+- [43:32.970] These residents want to take part in their own
+- [43:36.050] clearing out of their properties.
+- [43:37.410] They should be able to do that.
+- [43:38.630] It’s the United States of America.
+- [43:40.110] What happened to our freedom?
+- [43:41.340] Clearly, it’s gone in California,
+- [43:42.600] but not anymore under President Trump.
+- [43:43.950] The Press: Karoline -- Ms. Leavitt: April.
+- [43:45.160] The Press: Karoline, welcome to the briefing room.
+- [43:46.560] Ms. Leavitt: Thank you.
+- [43:47.790] The Press: Several questions. One on the pause.
+- [43:50.350] Will minority-serving institutions,
+- [43:53.510] preferably colleges and universities,
+- [43:56.360] have those monies held back temporarily at this moment?
+- [43:59.080] Ms. Leavitt: Again, I have not seen the entire list,
+- [44:01.330] because this memo was just sent out.
+- [44:03.150] So, I will provide you all with updates as we receive them.
+- [44:05.390] Okay? The Press: Karoline --
+- [44:06.770] The Press: And secondly --als- --
+- [44:07.970] The Press: Karoline.
+- [44:09.230] The Press: Also, secondly, when it comes to immigration,
+- [44:12.080] there is this southern border focus.
+- [44:14.870] What happens to those who have overstayed their visas?
+- [44:18.190] That is part of the broken immigration system.
+- [44:20.590] In 2023, there was a report by the Biden administration,
+- [44:23.630] the Homeland Security Department,
+- [44:25.210] that said overstays of visas
+- [44:26.760] were three times more than usual.
+- [44:28.890] Will there be a focus on the overstays for visas as well?
+- [44:31.930] Ms. Leavitt: If an individual is overstaying their visa,
+- [44:34.060] they are therefore an illegal immigrant
+- [44:36.130] residing in this country,
+- [44:37.400] and they are subject to deportation.
+- [44:38.640] The Press: And also, lastly -- Ms. Leavitt: Yes.
+- [44:39.850] The Press: Lastly, as we’re dealing with anti-DEI,
+- [44:42.740] anti-woke efforts,
+- [44:43.960] we understand this administration could
+- [44:45.860] --is thinking about celebrating Black History Month.
+- [44:48.370] Have you got any word on that?
+- [44:50.380] Anything that you can offer to us?
+- [44:52.090] Ms. Leavitt: As far as I know, this White House
+- [44:53.320] certainly still intends to celebrate,
+- [44:55.210] and we will continue to celebrate American history
+- [44:57.410] and the contributions that all Americans,
+- [44:59.480] regardless of race, religion, or creed,
+- [45:01.390] have made to our great country. And America is back.
+- [45:03.770] Christian Datoc.
+- [45:05.050] The Press: Thanks, Karoline. Just real quick.
+- [45:07.570] You mentioned the inflation executive
+- [45:09.360] order the president signed, but egg prices have skyrocketed
+- [45:12.830] since President Trump took office.
+- [45:14.530] So, what specifically is he doing
+- [45:16.740] to lower those costs for Americans?
+- [45:18.460] Ms. Leavitt: Really glad you brought this up,
+- [45:19.980] because there is a lot of reporting out there
+- [45:22.010] that is putting the onus on this White House
+- [45:24.620] for the increased cost of eggs.
+- [45:26.640] I would like to point out to each
+- [45:27.960] and every one of you that, in 2024,
+- [45:30.550] when Joe Biden was in the Oval Office
+- [45:32.380] --or upstairs in the residence sleeping;
+- [45:34.010] I’m not so sure
+- [45:35.320] --egg prices increased 65 percent in this country.
+- [45:40.340] We also have seen the cost of everything,
+- [45:43.190] not just eggs --bacon,
+- [45:44.770] groceries, gasoline --have increased
+- [45:46.940] because of the inflationary policies
+- [45:49.140] of the last administration.
+- [45:50.850] As far as the egg shortage, what’s also contributing to that
+- [45:53.630] is that the Biden administration
+- [45:55.140] and the Department of Agriculture
+- [45:56.710] directed the mass killing of more than 100 million chickens,
+- [46:00.490] which has led to a lack of chicken supply in this country,
+- [46:03.590] therefore a lack of egg supply,
+- [46:04.970] which is leading to the shortage.
+- [46:06.350] So, I will leave you with this point.
+- [46:08.520] This is an example of why it’s so incredibly important
+- [46:11.440] that the Senate moves swiftly to confirm all of
+- [46:14.070] President Trump’s nominees, including his nominee
+- [46:16.560] for the United States Department of Agriculture,
+- [46:18.320] Brooke Rollins, who is already speaking with Kevin Hassett,
+- [46:21.570] who is leading the economic team here at the White House,
+- [46:23.930] on how we can address the egg shortage in this country.
+- [46:26.710] As for cots, I laid out --costs --I laid out the plethora
+- [46:29.960] of ways that President Trump has addressed
+- [46:32.630] saving costs for the American people over the past week.
+- [46:34.790] He looks forward to continuing to doing that --
+- [46:36.170] The Press: Karoline, what --
+- [46:37.420] Ms. Leavitt: -- in the days ahead.
+- [46:38.630] (Cross-talk.) Thank you, guys, so much.
+- [46:39.850] I’ll see you soon.

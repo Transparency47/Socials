@@ -1,0 +1,1266 @@
+<!-- source: https://www.youtube.com/watch?v=qQxek3C2Gds -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: qQxek3C2Gds -->
+<!-- date_published: 2026-05-19T17:07:06+00:00 -->
+<!-- date_accessed: 2026-06-02T00:59:21.055295+00:00 -->
+
+# Transcript: President Trump Visits White House Ballroom Construction
+
+- [00:04.400] A lot of people have been asking to see
+- [00:06.040] we've done a lot of work.
+- [00:08.000] We sent it.
+- [00:09.120] Hundreds of billions of dollars already
+- [00:10.920] on the ballroom and it's
+- [00:12.560] it's coming out I think incredibly. I We
+- [00:14.920] have some renderings down here
+- [00:16.840] of the finished product. It's all knit
+- [00:18.360] together.
+- [00:19.760] At the top of the ballroom is
+- [00:21.760] a what they call the drone gallery.
+- [00:25.440] We have
+- [00:26.720] tremendous amounts of military
+- [00:29.440] able to be on the top. It'll be the
+- [00:30.960] highest
+- [00:32.360] point. It'll be actually higher than
+- [00:34.400] this building above.
+- [00:37.240] site over Washington. That's important.
+- [00:40.560] But it will be it will be something very
+- [00:42.720] special.
+- [00:43.960] So if you look up at the top you'll see
+- [00:47.600] you'll see some interesting things and
+- [00:49.040] I'll show that to you in a second. You
+- [00:50.320] want to grab that, please?
+- [00:52.760] I'll show that to you in a second.
+- [00:54.880] The uh
+- [00:56.840] the facade of the building there will
+- [00:58.680] never be another building like this like
+- [01:00.200] this built. I got to tell you I built a
+- [01:01.600] lot of great things.
+- [01:03.320] But there will never be anything like
+- [01:04.640] this built. And what we have is the roof
+- [01:07.000] is dead flat with absolutely nothing but
+- [01:10.040] strength on it. It's very strong steel.
+- [01:12.680] It's drone proof and it's meant for our
+- [01:15.280] military to be able to stay on it. You
+- [01:17.200] get a view of Washington. Also for the
+- [01:20.680] drone building capacity uh some of that
+- [01:23.960] takes place right down here. You can see
+- [01:25.760] the
+- [01:26.640] uh very large
+- [01:28.560] piping and the other things that It's a
+- [01:30.520] very complex building. It's all knit
+- [01:32.840] together. The roof goes with the ground
+- [01:34.840] floor. The ground floor goes with the
+- [01:36.720] roof. The
+- [01:38.720] roof also goes down into the basement.
+- [01:40.840] Everything is connected, intertwined. Uh
+- [01:43.600] elevators, heating, air conditioning.
+- [01:46.240] It's one building. That's why we're
+- [01:47.560] trying to explain that. This is one
+- [01:49.880] well-knit building. Uh one doesn't one
+- [01:52.720] thing doesn't work without the other. Uh
+- [01:55.520] very importantly though in terms of the
+- [01:57.600] beauty, uh, probably the closest thing
+- [02:00.600] to this would be the US Supreme Court,
+- [02:02.480] the facade of the US Supreme Court. So,
+- [02:05.720] here's a couple of, uh,
+- [02:07.920] things you can look at.
+- [02:11.959] How are you?
+- [02:15.160] There will never be another thing like
+- [02:16.680] this, I don't believe, built
+- [02:18.600] from a cost standpoint. Uh, this is all
+- [02:22.040] my money and donors' money. This is
+- [02:24.000] tax-free.
+- [02:25.400] So, everyone's talking about they're
+- [02:26.680] going to give money, they're going to
+- [02:27.640] give money. But, the money they're going
+- [02:29.120] to give is really for the, uh,
+- [02:31.400] security of that and the whole White
+- [02:33.240] House
+- [02:34.200] premise. And, I guess you probably need
+- [02:36.000] that nowadays.
+- [02:37.480] Uh, we've done the fencing on the
+- [02:38.959] outside of the White House. It's all
+- [02:40.560] titanium.
+- [02:42.040] You see the black fencing? That's been
+- [02:44.040] just done recently.
+- [02:45.880] And, it was approved originally by me,
+- [02:48.080] and it's been completed, and it's very
+- [02:49.800] powerful, very powerful. A tractor, a
+- [02:52.840] bulldozer cannot knock it over. It goes
+- [02:55.000] down deep, and it's titanium, which is
+- [02:57.240] the strongest of all of the metals.
+- [02:59.440] Uh, much stronger than steel, as an
+- [03:01.120] example. Uh, the ballroom is all, uh,
+- [03:04.680] it's going to be a tremendous, uh,
+- [03:06.480] tremendous thing. As an example, what
+- [03:08.640] happened a couple of weeks ago at the
+- [03:10.280] White House Correspondents Dinner could
+- [03:11.880] not happen here.
+- [03:13.480] Uh, one thing that we have is we don't
+- [03:15.040] have people living above it. We don't
+- [03:16.959] want that. That's no good. Where they
+- [03:18.600] have a thousand units above it, with the
+- [03:20.840] elevator coming right down next to where
+- [03:22.840] the convention or whatever it may be
+- [03:25.239] itself.
+- [03:26.480] This is a, uh, room that's been wanted
+- [03:29.400] for 150 years by presidents. We have no
+- [03:32.760] room to have an event. The only way you
+- [03:34.680] can have an event is if you build a tent
+- [03:36.400] on the lawn, and the tent does not do
+- [03:38.519] the job. And, by the way, if it rains
+- [03:40.760] here, because this is built on a
+- [03:42.040] wetland, the lawn is
+- [03:44.080] is impossible to deal with.
+- [03:46.040] Uh, the water goes over everybody's
+- [03:47.800] shoes. It literally goes over the shoes.
+- [03:50.280] So, uh,
+- [03:51.880] and they've had a lot of catastrophes
+- [03:53.520] with it that
+- [03:54.840] So, we have this and if you take a look
+- [03:56.720] at this section, this is the
+- [03:59.520] different facade.
+- [04:01.960] So, this is a Greek
+- [04:05.880] more or less it comes out of Greece.
+- [04:08.440] This is the ultimate facade for Greece.
+- [04:11.640] This faces the Treasury building. This
+- [04:14.080] faces this is a different facade, that's
+- [04:16.079] Rome and that faces the
+- [04:19.840] Washington Monument, the Lincoln
+- [04:21.880] Memorial, etc. So, you have two facades.
+- [04:24.840] Primarily, you have two entrances. You
+- [04:26.760] have here, you have here,
+- [04:28.520] but the primary entrance is through the
+- [04:30.240] White House, directly through the White
+- [04:32.120] House.
+- [04:33.240] And it's really something. I think you
+- [04:34.840] can see the complexity. All of these
+- [04:37.240] columns go directly up to the roof
+- [04:39.840] and the roof is a barrier, it's a shield
+- [04:42.760] because it's made out of
+- [04:44.760] the side walls are steel, impenetrable
+- [04:47.360] steel and also impenetrable
+- [04:50.760] glass.
+- [04:52.080] The glass is approximately 4 in thick
+- [04:55.800] and yet it's amazing you can see through
+- [04:57.600] it as though it didn't exist. It's
+- [04:59.080] amazing.
+- [05:00.320] And it can stop just about anything.
+- [05:03.680] Just about anything. On the other side
+- [05:06.160] of the glass, we have steel and concrete
+- [05:09.160] so that the glass is
+- [05:11.600] very powerful, what's holding the glass
+- [05:13.840] is equally as powerful
+- [05:15.919] and that's here.
+- [05:17.280] You can see they're just about ready to
+- [05:18.840] go up to the top. All of these columns,
+- [05:21.120] they go directly right to the roof of
+- [05:22.760] the building. And again, we call it a
+- [05:24.720] drone port. It's set up for
+- [05:27.840] unlimited numbers of drones.
+- [05:30.280] Purposely, we don't have any air
+- [05:32.480] conditioning equipment up there because
+- [05:35.120] we don't want anything coming down
+- [05:36.560] through the pipes. If anybody gets
+- [05:38.560] Normally, you'd have a lot of air
+- [05:39.680] conditioning equipment on the roof. We
+- [05:41.760] built it all inside
+- [05:44.160] the building, inside the case of the
+- [05:45.800] building because we don't want to have
+- [05:47.920] anything having to do with air or air
+- [05:49.880] quality or any problems playing with the
+- [05:52.160] air. So, you'll notice it's a dead flat
+- [05:55.000] roof with no equipment on it. All of the
+- [05:58.480] equipment is inside of the building and
+- [06:01.800] that's for safety reasons. Normally,
+- [06:03.800] you'd do it a lot less expensive. You'd
+- [06:05.920] do it a different way. So, all of this
+- [06:08.000] was paid for by myself and because I
+- [06:11.000] keep hearing like I'm not We are making
+- [06:13.760] a gift of this building. It's a gift.
+- [06:15.520] This is not going to be paid for by the
+- [06:17.320] taxpayer.
+- [06:18.640] We have a judge that thinks it's a
+- [06:20.040] terrible thing that we're making a gift.
+- [06:22.360] He said it's terrible that we're making
+- [06:23.880] a gift. It should be paid for by the
+- [06:25.440] taxpayer. That's one I've never heard
+- [06:27.440] before.
+- [06:28.520] I'm sure maybe I don't know, maybe he
+- [06:29.960] doesn't understand. This is a gift to
+- [06:32.760] the United States of America [music]
+- [06:35.040] and more than a gift, it's going to be
+- [06:37.440] one of the most beautiful buildings
+- [06:38.919] that's ever been built in the country or
+- [06:41.320] in Washington, D.C. So, here's the other
+- [06:44.000] facade. See it over here.
+- [06:46.520] And again, this is taking these these
+- [06:49.800] great classical buildings that are taken
+- [06:51.840] out of different parts of the world from
+- [06:53.919] very glamorous times.
+- [06:55.800] This is Rome. They like the flat roof.
+- [06:59.000] Greece likes the They call it the
+- [07:01.240] triangles and you see that.
+- [07:04.040] Uh this is a porch that looks out over
+- [07:06.960] the
+- [07:08.160] city. Also, it's developed in such a way
+- [07:10.800] that we can have military there, but the
+- [07:13.040] entire roof is developed for military.
+- [07:16.880] They're very high. They're higher than
+- [07:18.400] just about anything else. They have a
+- [07:20.600] 360°
+- [07:22.120] vision of Washington, D.C.
+- [07:24.640] Uh they have a massive drone capacity.
+- [07:26.800] Not only is it drone proof. If a drone
+- [07:29.440] hits it, it bounces off. It won't have
+- [07:31.840] any impact, but uh it's also meant as a
+- [07:35.240] drone port. So, it protects all of
+- [07:37.919] Washington, the roof of the building.
+- [07:40.470] >> [music]
+- [07:41.000] >> Okay?
+- [07:42.160] Now, uh does anybody have any questions?
+- [07:45.040] If you want, you can take
+- [07:47.160] If you I think you can bring your
+- [07:48.520] cameras down.
+- [07:49.760] If you might want to take a look at the
+- [07:52.120] complexity. These are all different
+- [07:53.880] rooms down here. They're building a
+- [07:55.200] hospital.
+- [07:56.560] They're building It's a military
+- [07:58.120] hospital. They're building a uh
+- [08:01.080] all sorts of research facilities. Also,
+- [08:03.720] meeting rooms and rooms that go hand in
+- [08:06.680] hand for the military using the
+- [08:08.880] ballroom. And the ballroom is really a
+- [08:11.240] shield and protecting all of the things
+- [08:13.960] that are built here.
+- [08:15.440] Uh this goes as you see it's already up
+- [08:18.040] to the ground.
+- [08:19.640] Uh this goes down very deep. You get a
+- [08:21.960] better view right over here. This is
+- [08:23.640] down
+- [08:25.280] because we've already done these floors.
+- [08:27.600] But these are already down two floors.
+- [08:29.480] That That is down about six stories
+- [08:31.400] deep.
+- [08:32.520] That's big stuff.
+- [08:34.080] Normally, when you build a ballroom, you
+- [08:35.599] build it flat. You just build a
+- [08:37.039] ballroom. It would have been built.
+- [08:38.880] And the complexity of this And again,
+- [08:40.840] it's all knit. It's all knit together
+- [08:43.440] between the drone proofing,
+- [08:45.480] the uh missile proofing, [music] we have
+- [08:47.720] uh and the drone capacity upstairs. We
+- [08:50.240] can have all sorts of military up where
+- [08:52.440] they I I hate to use the word snipers,
+- [08:55.240] but we have great sniper capacity. It's
+- [08:57.160] built for our snipers, not the enemy
+- [08:59.640] snipers, our snipers.
+- [09:01.480] And because of the height, we get a a
+- [09:03.960] very clear view of everything all over
+- [09:06.200] Washington. Yeah. You mentioned that
+- [09:08.320] this is being paid for uh out of pocket,
+- [09:11.200] but why is Congress involved? It's paid
+- [09:13.600] for out of pocket. Well, they're not.
+- [09:14.760] Congress is approving Yeah. Congress is
+- [09:17.360] approving money for security.
+- [09:19.520] Uh it may go Some of it may go here for
+- [09:21.480] additional security. I don't know. But
+- [09:23.760] uh Congress is approving money, but this
+- [09:26.040] building I mean, I put I put up the
+- [09:28.000] money to build this building along with
+- [09:30.080] a lot of great patriots. People have put
+- [09:32.160] up a lot of money to build the building,
+- [09:34.839] and we have a building that is going to
+- [09:37.640] be I think it's going to be potentially
+- [09:39.760] the most beautiful building in all of
+- [09:41.560] Washington. And with that is great
+- [09:44.680] military capacity. We're building it in
+- [09:46.840] conjunction with the United States
+- [09:49.160] military and the Secret Service. Mr.
+- [09:50.960] President, going back to the funding for
+- [09:52.360] the project, if you lose that money, can
+- [09:53.560] this project still be completed? They
+- [09:55.000] have a budget in Secret Service and the
+- [09:57.320] military to do some of the work that you
+- [10:00.000] see right here. So, the answer is I
+- [10:02.280] think they want to enhance what you see.
+- [10:05.960] Uh it's it's very powerful to see what's
+- [10:08.120] happening. It's very powerful concrete.
+- [10:10.440] It's 9,000 lb concrete. That If you know
+- [10:13.080] anything about concrete, it's very very
+- [10:15.520] strong. It's very strong concrete. But
+- [10:18.440] uh they probably want to enhance the
+- [10:20.520] area. They're they're going to spend
+- [10:22.040] money. Uh this is a very sacred piece of
+- [10:24.680] land. This is the White House. And they
+- [10:26.600] want to do things, but uh all of
+- [10:29.080] everything that you see and the money
+- [10:31.320] that's being put up to build the
+- [10:32.840] ballroom. And again, the ballroom
+- [10:36.320] it's necessary to the ballroom to be
+- [10:38.440] built with what you see over here. It's
+- [10:41.080] all knit in. The air conditioning, the
+- [10:44.240] heating, the drone capacity, the shield.
+- [10:47.920] You know, the ballroom becomes a shield
+- [10:50.040] for everything that you see right here.
+- [10:51.800] Without that, they couldn't have this.
+- [10:53.560] They couldn't build the lower floors
+- [10:55.280] without that shield over the top of it.
+- [10:57.760] It's a shield that will totally protect
+- [11:00.160] what's downstairs. They have a lot of
+- [11:01.760] things going on downstairs. And some of
+- [11:04.240] it you see. This goes down six stories.
+- [11:07.400] You see three stories because it's
+- [11:08.880] already been built.
+- [11:10.400] Uh this will be
+- [11:12.080] very shortly this will be uh in the form
+- [11:14.680] of a This the roof goes along this
+- [11:17.520] lines. Basically,
+- [11:20.240] it goes outside. You see where the the
+- [11:22.520] wood ends?
+- [11:23.600] You're going outside of that line and
+- [11:25.680] then it goes straight up.
+- [11:27.400] And it's all protection. And
+- [11:29.440] everything's together. You can't build
+- [11:31.600] one without the other. And what we have
+- [11:34.400] is we have
+- [11:36.080] the safest building ever built in my
+- [11:38.200] opinion.
+- [11:39.640] You can have
+- [11:41.160] And And you know, the other thing is
+- [11:43.680] when we're right on budget, we're right
+- [11:45.760] on plan.
+- [11:47.080] The only budget change would be that we
+- [11:48.840] doubled the size at the request of the
+- [11:50.800] military, we doubled the size.
+- [11:53.160] But we're right on budget, right on
+- [11:54.800] plan, and uh
+- [11:56.720] originally we're going to build a much
+- [11:58.120] smaller room and it wouldn't have done
+- [11:59.400] the job. It just wouldn't have done the
+- [12:00.960] job. You have too many events. Like if
+- [12:02.920] we have President Xi coming here, we
+- [12:04.640] have no place to put him. We had the
+- [12:06.920] King and the Queen the other day.
+- [12:09.560] And we had a thousand people wanting and
+- [12:11.920] we had a We ended up having a hundred
+- [12:13.800] people sitting in a much smaller room.
+- [12:16.000] So, they've been after this for a long
+- [12:17.520] time. But maybe more important [snorts]
+- [12:19.760] is the safety element. This is a shield.
+- [12:21.880] It protects everything that's inside,
+- [12:24.720] everything that's on top. And you know,
+- [12:26.800] obviously the White House was built in
+- [12:28.520] 17 92.
+- [12:31.200] Uh you know, it's awfully hard to
+- [12:34.880] it's awfully hard to do that kind of a
+- [12:36.560] capacity that we did here. So, this will
+- [12:38.720] give future presidents But you have to
+- [12:40.680] understand, when this is finished,
+- [12:43.240] my term ends
+- [12:44.839] shortly after that.
+- [12:47.000] This is really for other presidents.
+- [12:48.600] This is not for me. This is my gift to
+- [12:51.360] the United States of America. I'm going
+- [12:53.080] to be able to use it very little because
+- [12:55.280] when it's finished, we're talking about
+- [12:56.720] six or seven months. But we will be used
+- [12:59.280] for hopefully hundreds of years for
+- [13:01.720] other pre- presidents. And there will
+- [13:03.960] never be anything like this built again.
+- [13:05.720] There'll never be a room built like with
+- [13:07.880] the safety. As an example, uh if we had
+- [13:10.920] the White House Correspondents Dinner
+- [13:12.839] here, would have been no problem.
+- [13:15.280] Mr. President
+- [13:16.000] Sir. Sir.
+- [13:16.960] You said that this will be a when When
+- [13:18.520] When it opens, you have about six, seven
+- [13:20.000] months. Have you thought
+- [13:21.600] to that around that time? Have you
+- [13:23.080] thought about the first event you would
+- [13:25.200] have
+- [13:25.200] >> I have.
+- [13:26.120] I have. I better not tell you about that
+- [13:27.920] Daniel, but yeah, we have Everybody
+- [13:30.120] wants to be here for the first event.
+- [13:32.680] We're talking about heads of nation. So,
+- [13:34.880] we have
+- [13:36.160] some very special places that it could
+- [13:38.440] happen for them.
+- [13:40.240] You know, we have If we had literally
+- [13:43.400] the king and queen
+- [13:45.240] were, you know, we had this finished, we
+- [13:47.920] would have had a a
+- [13:49.880] you know, event that would have been 10
+- [13:51.040] times the size. I mean, we literally
+- [13:52.800] were in a little room in the White
+- [13:54.040] House. Presidents Now, now we're not
+- [13:56.480] even talking about safety. Presidents
+- [13:58.200] have been asking for this for
+- [14:00.000] literally from the time the White House
+- [14:01.800] has been built, but
+- [14:03.320] on record for 150 years, they said,
+- [14:06.040] "What about a big room?" And you all
+- [14:07.680] know, you probably attended, they have
+- [14:09.240] some where they use tents. If it rains,
+- [14:12.120] it's a disaster.
+- [14:16.160] You mentioned that this is going to be a
+- [14:17.200] gift for America, for future presidents
+- [14:19.360] and the country.
+- [14:21.000] What's your hope for America?
+- [14:23.360] We will have to have a safe country. We
+- [14:24.920] have to have a great country. We have to
+- [14:26.560] make sure that Iran doesn't get a
+- [14:27.960] nuclear weapon. All of the things that
+- [14:29.839] you see me fighting for so hard.
+- [14:32.120] And it's always tough, you know, when
+- [14:33.280] you're negotiating with Iran, and then
+- [14:35.280] you have the Democrats, I call them the
+- [14:36.720] Democrats, uh putting in a bill that
+- [14:39.000] Trump should immediately stop. You know
+- [14:41.160] how it is to negotiate with a country
+- [14:43.760] where you're beating them badly, they
+- [14:46.120] come to the table, they're begging to
+- [14:47.720] make a deal. Cuz they're begging to make
+- [14:49.280] a deal. I hope we don't have to do the
+- [14:51.240] war, but we may have to give them
+- [14:52.480] another big hit. We may have to give
+- [14:54.600] them another big hit. I'm not sure yet.
+- [14:57.280] Uh you'll know very soon.
+- [14:58.960] But how do you feel when you're
+- [15:00.600] negotiating, you're winning every point,
+- [15:03.640] and they say, "But in Washington, they
+- [15:05.520] want to stop you
+- [15:07.280] from negotiating. They want to stop
+- [15:09.200] you." And it's only political. It's the
+- [15:11.839] Democrats. They're dumb. It's a new
+- [15:14.080] name. It's a very accurate name. So, I'm
+- [15:16.880] in the middle of a negotiation, I'm
+- [15:18.520] saying you cannot have a nuclear weapon,
+- [15:21.040] and it comes over the wire that the
+- [15:22.680] Democrats want to stop Trump from
+- [15:26.360] further negotiations. They want to stop
+- [15:28.840] Trump from, if he has to, giving them
+- [15:31.440] another slap. They want to have a
+- [15:33.400] nuclear weapon to blow up the Middle
+- [15:35.320] East and to blow up, frankly, the world.
+- [15:37.320] It's not going to happen.
+- [15:39.560] Nice to see you, by the way.
+- [15:44.520] Uh I was I was
+- [15:46.920] I was an hour away.
+- [15:49.120] We're all set to go. You're talking
+- [15:50.680] about yesterday. We were going to be
+- [15:52.320] striking very It would have been
+- [15:53.880] happening right now.
+- [15:55.440] Yeah, it was all done. The boats, the
+- [15:57.400] ships are all loaded. They're loaded to
+- [15:59.080] the brim.
+- [16:00.400] And we're all set to start.
+- [16:06.400] They said that they feel they've had for
+- [16:09.000] the first time in almost 47 years, you
+- [16:12.040] know, Iran's been the bully of the
+- [16:13.880] Middle East for 47 years. I mean,
+- [16:15.720] literally the bully of the Middle East,
+- [16:17.240] and
+- [16:18.240] uh
+- [16:19.080] they're nasty. Very nasty, very
+- [16:20.960] dangerous. They wanted a nuclear weapon.
+- [16:23.320] Had I not terminated Barack Hussein
+- [16:25.480] Obama's
+- [16:26.680] Iran nuclear deal, had I not terminated
+- [16:29.000] it, see, that's the wind. That can't
+- [16:30.800] happen with the real structure.
+- [16:39.920] You're talking about Cuba?
+- [16:41.600] Well, we're going to see. Look, Cuba is
+- [16:42.880] calling us. They need help.
+- [16:44.960] Look, Cuba is a failed nation.
+- [16:47.360] Cuba needs help, and we'll do that. Just
+- [16:50.400] hold it, Donald.
+- [16:52.400] Yeah, it's like an exercise game for
+- [16:54.280] you.
+- [16:55.280] Give that to me. I'll hold it.
+- [16:57.080] I'll hold
+- [16:59.760] It's so beautiful. See, I look so thin.
+- [17:02.640] They'll say, "Oh, he's gotten so thin."
+- [17:04.760] Cuz I'm holding this. You don't have to
+- [17:06.760] look at my waist. You can look at this.
+- [17:08.720] You saw enough of my waist along with
+- [17:10.439] President Xi in China.
+- [17:15.480] With Cuba? I think so. Yeah, I think so.
+- [17:18.240] Uh we are I am very prone toward the
+- [17:20.600] Cuban-Americans. They've been incredible
+- [17:22.880] people. Many of them have lost family
+- [17:25.000] members. They've been very badly hurt
+- [17:26.800] themselves. They've been in prison.
+- [17:28.640] They've come to this country and they've
+- [17:30.000] been very successful. The Cuban-American
+- [17:31.920] people in Miami, I mean, they are
+- [17:33.960] amazing people. Most of them are in
+- [17:35.480] Miami in Florida, but mostly in Miami.
+- [17:38.600] Uh
+- [17:39.200] I'm very very prone to helping them. I
+- [17:41.200] mean, that's They've been I think I got
+- [17:43.200] 97% of that vote.
+- [17:45.640] Uh I want to
+- [17:47.560] help them. Now, they have family members
+- [17:49.240] in Cuba. They've been treated very very
+- [17:51.320] badly. They've been treated extremely
+- [17:53.080] badly. And
+- [17:54.400] uh we're going to get that solved.
+- [17:55.320] That's not going to be hard for us to
+- [17:56.840] solve. But you can do that without
+- [17:59.480] changing the regime there, you Well, I
+- [18:01.080] don't know about changing the regime. I
+- [18:02.720] I could do that whether you change the
+- [18:04.760] regime or not. You know, it's been a
+- [18:06.000] rough regime. They've They've killed a
+- [18:07.800] lot of people. But uh it's it's a
+- [18:10.400] country that really needs help. It has
+- [18:13.280] nothing. They can't turn on the lights.
+- [18:15.560] They can't eat. We don't want to see
+- [18:17.480] that.
+- [18:26.640] Uh
+- [18:27.280] they called me over the last 2 days to
+- [18:29.680] say they made a lot of progress and they
+- [18:31.720] cuz we have them negotiating with us.
+- [18:34.720] And primarily Saudi Arabia, Qatar, UAE,
+- [18:39.240] uh Kuwait a little bit, and Bahrain and
+- [18:41.880] some of the others.
+- [18:43.200] And we have them negotiating with We're
+- [18:45.320] all working together. It's like a team.
+- [18:47.160] And Israel, of course, and Israel's been
+- [18:49.000] a great partner.
+- [18:50.360] And uh so we are negotiating together. I
+- [18:53.240] got a call from numerous of these
+- [18:55.560] people. They know the people in Iran.
+- [18:57.440] Don't forget, uh when you talk about
+- [18:59.600] regime change, I think it's the ultimate
+- [19:01.840] regime change because the first level
+- [19:04.160] and the second level are no longer with
+- [19:05.880] us. They're someplace, but they're no
+- [19:07.720] longer with us. So,
+- [19:09.440] uh we have real regime change. But I got
+- [19:12.360] a call yesterday, "Sir, could you wait?
+- [19:15.120] We think we're close to a deal." And
+- [19:16.800] that's okay. Now,
+- [19:18.400] I've heard it before with these people.
+- [19:19.680] They change their mind. I made deals
+- [19:21.360] with them. No nuclear.
+- [19:23.280] We immediately get the nuclear dust, and
+- [19:25.480] they said, "You're the only one could
+- [19:26.840] get it because the bombers did such an
+- [19:29.000] unbelievable job that the mountain
+- [19:31.440] literally collapsed on top of it." They
+- [19:33.880] said us, and they thought China would be
+- [19:35.840] the only two countries that could even
+- [19:37.320] get it. But, I think it's important to
+- [19:39.240] get it, maybe psychologically more than
+- [19:41.280] anything else.
+- [19:47.400] Uh
+- [19:48.920] They knew I was getting ready to attack.
+- [19:50.520] I didn't tell them. I never tell anybody
+- [19:52.320] when.
+- [19:53.760] I never tell anybody when, but but they
+- [19:55.640] knew that we were very close. I would
+- [19:57.520] say we were I was an hour away from
+- [20:00.040] making the decision to go today.
+- [20:03.600] And we would probably not be talking
+- [20:05.640] about a beautiful ballroom today. We'd
+- [20:08.040] be talking about that.
+- [20:09.920] And uh now, I we were I had made the
+- [20:12.560] decision. So, they called up. They had
+- [20:14.760] heard I made the decision. They said,
+- [20:16.320] "Sir, could you give us a couple of more
+- [20:17.640] days because we think
+- [20:20.240] they're being reasonable."
+- [20:24.560] Well, I I mean, I'm saying two or three
+- [20:26.320] days, maybe Friday, Saturday, Sunday,
+- [20:28.280] something, maybe early next week. A
+- [20:30.320] limited period of time.
+- [20:32.880] Cuz we can't let them have a new nuclear
+- [20:34.800] weapon. If if they had a nuclear weapon,
+- [20:37.920] they would start with Israel. They would
+- [20:39.520] blow it up, and they would blow it up
+- [20:41.760] fast, but they'd blow it up, and I'll
+- [20:43.800] tell you what, they'd go after Saudi
+- [20:46.040] Arabia.
+- [20:47.400] They'd go after
+- [20:49.080] Kuwait. They'd go after UAE.
+- [20:52.000] They'd go after Qatar. They'd go after
+- [20:55.280] I think they'd go after the entire
+- [20:56.680] Middle East, and it would be a whole
+- [20:58.280] different negotiation. It would not be
+- [21:00.240] It would be It would be nuclear
+- [21:02.120] holocaust.
+- [21:03.560] And there's no question in my mind that
+- [21:06.320] they'd use it.
+- [21:07.600] There is no question. And I deal with
+- [21:09.520] these people. They're extremely
+- [21:11.480] radicalized.
+- [21:13.240] These are not people like what I deal
+- [21:14.960] with you.
+- [21:16.600] You're a very nice guy. These are people
+- [21:18.640] that are seriously radicalized. They
+- [21:21.520] would use it. The only question would it
+- [21:23.600] be the first minute, the first hour, or
+- [21:26.320] the first day?
+- [21:33.960] I'm not doing this politically. I'm
+- [21:35.920] doing this Everyone tells me it's
+- [21:37.640] unpopular, but I think it's very
+- [21:39.160] popular. When you when they hear that
+- [21:41.440] it's having to do with nuclear
+- [21:44.000] weapons, weapons that could take out Los
+- [21:46.520] Angeles, could take out major cities
+- [21:49.440] very quick. When they hear that,
+- [21:52.200] you know, when they're explained I'll
+- [21:53.200] tell you what, when we explain it to
+- [21:54.720] people,
+- [21:55.880] I don't really have enough time to
+- [21:56.920] explain to people. I'm too busy getting
+- [21:59.200] it done.
+- [22:00.280] When they understand, I think it's a
+- [22:02.360] very I think it's frankly very popular,
+- [22:04.160] but
+- [22:05.160] whether it's popular or not popular, I
+- [22:06.920] have to do it. Because I'm not going to
+- [22:09.000] let the world be blown up on my watch.
+- [22:11.000] It's not going to happen.
+- [22:16.720] Yeah.
+- [22:19.280] Well,
+- [22:20.080] yeah, uh Thomas Massie is a terrible
+- [22:22.200] congressman. He's been a terrible
+- [22:23.680] congressman from day one.
+- [22:25.880] Uh
+- [22:26.480] Dealing with him is just a horrible. I
+- [22:28.320] don't think he's a Republican. I think
+- [22:29.840] he's actually I think he's actually a
+- [22:31.800] Democrat. He's not a libertarian. You
+- [22:34.240] know, sometimes they say he's a He's
+- [22:35.720] really a Democrat. He votes against us
+- [22:38.240] all the time. He voted against the
+- [22:40.280] border wall. He voted against uh men
+- [22:43.080] playing in women's sports.
+- [22:45.120] He voted against transgender for
+- [22:47.400] everybody, the mutilation of your
+- [22:49.160] children. He voted against uh again,
+- [22:52.160] open borders. We have the best border
+- [22:54.040] we've ever had right now. Nobody's
+- [22:55.400] coming in.
+- [22:56.560] I mean, a a report just came out in the
+- [22:58.200] last 11 months, literally nobody
+- [23:01.080] has been allowed into our country
+- [23:02.480] illegally. We're taking people legally,
+- [23:04.440] they go through a process, but nobody's
+- [23:06.680] coming to our country, but we've taken
+- [23:08.920] out hundreds of thousands of people. We
+- [23:11.920] had 10,000 it was a 10,800 11,000
+- [23:17.240] 888 murders. Many of these murders
+- [23:20.800] allowed into our country from prisons.
+- [23:22.800] They were in prisons.
+- [23:24.400] Many of these people killed more than
+- [23:26.080] one more than 50% killed more than one
+- [23:29.040] person. This was gross
+- [23:31.960] malfeasance. This was on behalf of the
+- [23:34.160] Biden admin I don't know Biden cuz I
+- [23:35.680] don't think he knew he was alive.
+- [23:37.680] But she Kamala was the borders are. She
+- [23:40.800] never called about one time she never
+- [23:43.400] called the border patrol. She never
+- [23:45.680] called ICE. She never called law
+- [23:47.480] enforcement. She never went to the
+- [23:49.160] border. Think of it.
+- [23:50.880] She I used to call every single day.
+- [23:54.240] And that's recently. Now I call less. We
+- [23:56.080] have nobody coming through. We have We
+- [23:58.120] had caravans coming through with tens of
+- [24:00.160] thousands of people pouring into our
+- [24:02.560] country. We had no idea who they were.
+- [24:05.160] We would have been I'll tell you what
+- [24:07.280] that would our country would have been
+- [24:09.000] destroyed. If they won this election our
+- [24:10.920] country would have been We have now the
+- [24:12.800] hottest country anywhere in the world.
+- [24:15.240] If they had won the election our country
+- [24:17.400] would have been destroyed. Our country
+- [24:18.600] was a dead country two years ago and now
+- [24:21.840] we have really the hottest country in
+- [24:23.320] the world and
+- [24:24.560] this is the ballroom and it's going to
+- [24:26.520] be something incredible. You see the
+- [24:28.000] quality of it and they go right those
+- [24:30.200] columns go right into the roof and on
+- [24:32.480] top of the roof we're going to have the
+- [24:33.720] greatest drone empire that you've ever
+- [24:36.160] seen and it's going to protect
+- [24:37.880] Washington. Thank you all very much.
+- [24:40.720] We have a little breakfast for you.
+- [24:43.120] Yeah. Where is the breakfast?
+- [24:45.720] I'd have it. Where is it? Oh, it's right
+- [24:48.240] over there.
+- [24:49.360] We have a little bit of a breakfast for
+- [24:50.920] you. I figured I'd be nice to you for a
+- [24:52.240] change.
+- [24:59.480] I did.
+- [25:01.800] Scripture.
+- [25:05.560] I wanted to see that happen. And are you
+- [25:07.200] pleased with the turnout? Well, I think
+- [25:08.760] that it was great. Thousands of people
+- [25:10.720] showed up and it was a beautiful
+- [25:12.400] everything, beautiful day.
+- [25:14.440] I did I did scripture. You think it's
+- [25:16.560] easy to read scripture? It's not easy to
+- [25:18.640] read scripture. That's a whole different
+- [25:20.760] ballgame. That's not like reading a
+- [25:22.680] speech. We will build the wall. This is
+- [25:25.480] a whole different deal, but I did it
+- [25:27.600] proudly and
+- [25:29.520] I guess it was broadcast. We had
+- [25:31.960] tremendous class. I think religion is
+- [25:33.880] very important for a country. I think
+- [25:35.480] having really This country was was built
+- [25:38.640] largely on religion. If you look, it was
+- [25:41.000] built
+- [25:42.160] and when you have strong religion, you
+- [25:44.360] have less crime. It's just a fact. You
+- [25:46.840] know, whatever it may be, it's like,
+- [25:48.960] "Gee, I want to go to heaven, so I'm not
+- [25:50.760] going to do this or that." Who knows?
+- [25:53.000] But we have a country that was based on
+- [25:54.960] religion and I'm very proud of that. And
+- [25:58.240] if you look and you see all of the
+- [26:00.360] polling, I mean polling is so fake.
+- [26:02.680] But on this is not fake. Religion is
+- [26:04.960] really going up in the last year.
+- [26:08.440] And during the time, I mean really
+- [26:09.920] during the time I first got elected in
+- [26:11.560] 2016, it's a much different thing. I'm
+- [26:14.120] very proud of that.
+- [26:15.600] Religion is a good thing. Christianity,
+- [26:18.080] it's a great thing for our country.
+- [26:20.520] I mean so many of our the things that we
+- [26:23.080] we've done, the successes that we've had
+- [26:25.720] have been based on Christianity and
+- [26:28.000] religion. So I'm very proud of that.
+- [26:30.880] Religion is taking off like our country
+- [26:33.440] has taken off. Our country's hotter now
+- [26:35.560] than it's ever been and I'll tell you
+- [26:37.000] religion is making a tremendous
+- [26:39.520] comeback. You look at churches today,
+- [26:41.720] they're full. You go back 2 3 years,
+- [26:44.040] nobody was going. Well, we're very happy
+- [26:46.000] with it.
+- [26:46.960] Mr. President, what about the hate
+- [26:48.240] crimes that we see happening in Yeah.
+- [26:51.680] Yeah, no, I'm always concerned. I see
+- [26:53.600] things happening.
+- [26:55.240] Look, from the beginning of mankind
+- [26:56.960] you've had that. You've had the good and
+- [26:58.640] you have the bad. I'd like to get rid of
+- [27:00.160] the bad, but somehow
+- [27:02.040] that's going to be there, but the good
+- [27:03.400] has been many times what it was, really
+- [27:06.400] many times what it was. Mr. President,
+- [27:07.960] on the ballroom, if the Oval Office is
+- [27:09.520] not going to be $1 billion for your
+- [27:11.200] security funding, would you be willing
+- [27:13.200] or would you want to go to your donors
+- [27:14.520] to ask for that money? Well, this is
+- [27:16.800] money for the whole premises including
+- [27:19.280] the the East Wing. This is the East Wing
+- [27:21.120] section.
+- [27:22.200] But the ballroom is, as you see, it's
+- [27:24.320] going up. It's ahead of schedule. It's
+- [27:27.720] uh it's larger because we they wanted
+- [27:30.320] more military capacity. Uh they wanted
+- [27:32.760] more drone capacity. They needed a
+- [27:34.840] larger room, and frankly we needed a
+- [27:37.000] larger facility, and so we're doing
+- [27:38.840] that. And we've done this in strict
+- [27:41.320] coordination with the military and with
+- [27:43.280] the Secret Service, and they've been
+- [27:45.000] great to work with. Uh the money that
+- [27:46.840] they're talking about is the surrounding
+- [27:48.560] areas, and maybe enhancing some security
+- [27:51.240] aspects of the park. What sort of the
+- [27:52.560] But the building the building, as you
+- [27:54.880] see, it's a very active site, and a lot
+- [27:57.880] of people are amazed. And by the way,
+- [27:59.360] that floor goes down three floors, just
+- [28:01.160] so you understand. You're seeing the
+- [28:03.040] almost the top floor. That floor goes
+- [28:05.400] down three floors, and there are many
+- [28:07.520] things in there having to do with
+- [28:09.320] security. And many of those things are
+- [28:11.440] going to be taken from there and put
+- [28:13.880] onto the roof of the building, and that
+- [28:15.480] has to do with drone and missile
+- [28:17.640] capacity.
+- [28:18.400] >> So a lot of questions have been done
+- [28:19.960] renovations to the White House, to all
+- [28:21.840] these things. Why do you think people
+- [28:23.560] are so mad about your renovations that
+- [28:25.760] Because I'm doing it. The Meridian Hill
+- [28:27.400] Park, you got the water flowing in, all
+- [28:29.440] of it. And and the DC people Yeah. Well,
+- [28:32.680] it's a sad thing, actually. You know,
+- [28:34.800] you just It's very nice. I appreciate
+- [28:37.200] the question. First I said, "Oh, this is
+- [28:38.600] going to be a negative question." Then I
+- [28:39.840] heard
+- [28:40.680] uh she's really saying, "Why do they
+- [28:42.160] hate you for fixing the water
+- [28:43.640] fountains?" So, you You we have
+- [28:46.360] we have 40 I know, I want because I want
+- [28:48.360] to see Washington be beautiful. To me,
+- [28:50.000] it's very important. But, as an example,
+- [28:51.880] you mentioned the water fountain. We
+- [28:53.200] didn't have one water fountain in I
+- [28:55.280] think we have 40. We didn't have one in
+- [28:57.640] Washington that worked. And soon they'll
+- [29:00.000] all be working. Many of them work right
+- [29:01.680] now. And the uh the I think one of the
+- [29:04.400] best things
+- [29:05.680] uh Obama, President Obama, President
+- [29:08.120] Biden spent much more than a hundred
+- [29:10.120] million dollars on the Reflecting Lake
+- [29:13.400] between the Lincoln Memorial and the
+- [29:15.840] Washington Monument. They spent much
+- [29:18.280] more. They spent Some people say 200
+- [29:20.005] [music] million. You know what they got
+- [29:21.560] out of it? A closed lake. It never
+- [29:23.880] opened. And when it did, it shut right
+- [29:26.080] away. It leaked. It was a disaster.
+- [29:28.880] I'm doing a job on the Reflecting Lake
+- [29:30.840] for a fraction of what they paid. Now,
+- [29:33.960] I've upgraded it very I I got so into
+- [29:36.480] it, I've upgraded it like you wouldn't
+- [29:38.440] believe. I'm doing all the walkways
+- [29:39.960] outside. I'm you know, I'm doing the I'm
+- [29:41.640] doing it properly.
+- [29:43.160] But, it's a much bigger job.
+- [29:45.440] But, you see it's happening now. It's
+- [29:47.240] going to be beautiful. It's going to be
+- [29:48.560] waterproof. It's going to be reflecting
+- [29:50.240] again.
+- [29:51.240] Uh I took over a dirty, filthy thing
+- [29:54.240] that wasn't open and it was disgusting.
+- [29:56.840] And friends of mine would come to the
+- [29:58.280] Lincoln or the Washington and they'd
+- [30:00.280] say,
+- [30:01.240] "Sir, it's disgusting." I said, "What's
+- [30:03.400] disgusting?" The Reflecting Lake. So, I
+- [30:05.440] drove down. I looked with with Secretary
+- [30:08.040] Bernhardt, who's fantastic of Interior.
+- [30:09.880] He's fantastic. And we got together.
+- [30:12.560] And we have uh it's under construction
+- [30:14.800] right now.
+- [30:16.000] I want to get it open before July 4th,
+- [30:17.920] which we'll easily be able to do. It'll
+- [30:19.720] be open before that. But, easily be able
+- [30:21.920] to do.
+- [30:23.040] The July 4th being a very special day.
+- [30:25.480] And it is going to be beautiful.
+- [30:27.040] Beautiful blue color, dark blue color.
+- [30:29.560] Uh it it's very reflective. I put a
+- [30:31.600] thing out yesterday showing the
+- [30:32.880] reflection.
+- [30:34.160] We did a little test. We wanted to see
+- [30:35.760] it. It's unbelievable. It's like a
+- [30:36.720] mirror.
+- [30:37.160] >> Okay, look like Well, it's like it's
+- [30:38.400] like a mirror. It's beautiful. And I saw
+- [30:40.280] those guys out there. It was like
+- [30:42.000] they're painting it.
+- [30:43.360] Yeah, they're doing Yeah, well, they're
+- [30:44.840] fixing the stone outside
+- [30:47.160] and they're sandblasting the stone.
+- [30:49.040] We're doing a much bigger job than we
+- [30:50.640] wanted to do. Think of it. Obama and
+- [30:53.440] Biden spent over a hundred million
+- [30:54.960] dollars and you know what they got?
+- [30:56.320] Nothing. They opened it up and it leaked
+- [30:58.720] like a sieve and they closed it and it
+- [31:00.760] stayed closed. They've been working on
+- [31:02.520] it for years. I've been working on this
+- [31:04.440] for a couple of months. When it's
+- [31:05.720] finished, it's going to be incredible,
+- [31:07.160] but uh
+- [31:08.880] we have other fountains, beautiful
+- [31:10.520] fountains. They haven't worked in 30
+- [31:12.720] years. They're just sitting there
+- [31:14.480] rotting and most of them are now open
+- [31:17.200] and right across the street I made a
+- [31:18.960] donation and I'm building Lafayette
+- [31:21.440] Park.
+- [31:25.720] I don't I like her.
+- [31:29.280] About 10 million dollars.
+- [31:32.600] Well, I put up the American flag.
+- [31:35.680] I think so. I mean, I'll let you know.
+- [31:38.000] Uh I wanted a lighter color blue. The
+- [31:39.800] person that really knows his stuff said,
+- [31:41.640] "No, dark is much better."
+- [31:44.080] Uh it You don't see the leaves and you
+- [31:45.920] don't you know, things will get in
+- [31:47.120] there, but most importantly, the dark
+- [31:49.400] reflects much better.
+- [31:56.640] Well, I think it's uh the strongest it's
+- [31:58.400] ever been. You know, you take a look at
+- [32:00.400] what happened in Louisiana two nights
+- [32:02.320] ago with a certain senator that was very
+- [32:04.760] disloyal to me and to the Republican
+- [32:06.840] Party. He got He's not even allowed to
+- [32:08.880] run for office. Uh we have another big
+- [32:11.280] race. This guy Massie is terrible. Let's
+- [32:13.080] see what happens. It's not easy beating
+- [32:14.800] incumbents, but we have a great guy
+- [32:16.640] running against Massie. Massie is a
+- [32:18.240] terrible I think the worst congressman
+- [32:20.440] the Republican Party's ever had. That'll
+- [32:22.640] be tonight. That'll be good television.
+- [32:25.040] Then we'll see what happens there, but I
+- [32:26.880] think MAGA's never been more together,
+- [32:28.600] actually. And I'm going to be making an
+- [32:30.120] endorsement today
+- [32:31.720] uh in Texas. I'm going to be putting out
+- [32:33.720] an endorsement in a little while in
+- [32:35.040] Texas, the great state. You know, I won
+- [32:37.600] Texas all six times, meaning primaries
+- [32:40.440] and the race, and I got the highest vote
+- [32:42.840] in the history of Texas, and I love
+- [32:44.480] Texas, but I'm going to be making a
+- [32:46.960] endorsement at about 12:30, 1:00 today
+- [32:51.120] for
+- [32:52.080] the big race, the Senate race in Texas.
+- [32:55.000] And
+- [32:56.000] I hope you find it good.
+- [32:57.920] So, I I do think I I mean, I appreciate
+- [33:00.120] the question because
+- [33:02.000] even CNN, they did a poll 2 3 weeks ago.
+- [33:05.240] They said Trump is at 100%.
+- [33:08.200] That's Harry Enten. I like Harry Enten.
+- [33:09.920] He's got a lot of energy. I like him.
+- [33:11.680] But, he did a poll, and he's a good
+- [33:13.760] pollster, and he gives the good and the
+- [33:15.600] bad, but I think he's a he's an
+- [33:17.960] honorable guy because we got a lot of
+- [33:19.360] good. You know, he predicted I was going
+- [33:21.360] to do great with the Muslims in Michigan
+- [33:24.360] and win Michigan, and I did. I did good,
+- [33:26.320] and I won Michigan by a lot. He made a
+- [33:28.640] lot of good predictions, but he did a
+- [33:30.840] poll 2 weeks ago that said Trump is
+- [33:33.920] I mean, this is up. You can check. 100%
+- [33:38.440] popularity with MAGA. MAGA is most of
+- [33:42.200] the Republican Party. The RINOs are gone
+- [33:44.800] to a large extent. A few of them are
+- [33:46.920] still left, so hopefully we get rid of
+- [33:49.000] one tonight in the form of Thomas
+- [33:51.480] Massie, who's horrible. But, uh no, it's
+- [33:54.120] it's been amazing. But, I'll be making a
+- [33:56.680] statement in a little while as to uh
+- [33:59.240] who I'm endorsing in Texas for the
+- [34:01.120] Senate. And there are those that say
+- [34:02.600] whoever I endorse is going to win. I
+- [34:04.080] don't know if that's true, but
+- [34:05.480] historically that's absolutely true. I
+- [34:07.160] just don't like to say it because I
+- [34:08.600] don't like to brag.
+- [34:10.280] Mr. President, when did you make up your
+- [34:11.840] mind?
+- [34:13.080] Well, I've I've had my mind made up for
+- [34:14.600] a long time, but I just think it's I
+- [34:17.080] just think it's going to be, you know, I
+- [34:19.520] I just think it's appropriate. Mr.
+- [34:20.960] President, I have a question. There's
+- [34:22.240] reports that President Xi
+- [34:24.280] told you during your meeting that
+- [34:26.639] perhaps Russian President Vladimir Putin
+- [34:28.720] would come to regret
+- [34:30.480] uh invading Ukraine. Did he say that to
+- [34:32.720] you? No, no, he never said that. Mr.
+- [34:34.560] President, you mentioned this ballroom
+- [34:36.560] as your gift to the country. It's a
+- [34:38.600] gift. It's a gift from me and from
+- [34:41.480] incredible successful companies and
+- [34:44.000] patriots
+- [34:45.480] and they put up close to $400 million.
+- [34:48.760] And you see the
+- [34:50.760] you see what's happening and it's
+- [34:52.000] beautiful. And again, it's ahead of
+- [34:54.040] schedule unlike the Fed building. Think
+- [34:56.080] of it, this building at $400 million,
+- [34:58.720] the Fed building at $4 billion and it's
+- [35:01.160] a tiny little project by comparison.
+- [35:04.080] And you you spent a lot of time
+- [35:06.360] renovating the White House, the Rose
+- [35:07.760] Garden, the colonnade. I do. Putting up
+- [35:10.040] the American flag, this flag
+- [35:12.240] on each side. Why was this so important
+- [35:15.600] to you to be part of your legacy when
+- [35:17.360] you left Well, this is the most
+- [35:18.640] important because number one security
+- [35:20.480] and number two it was so needed just on
+- [35:22.320] a social basis for presidents. And
+- [35:25.000] again, I'll be here for a very short
+- [35:26.640] period of time when this opens. I'll be
+- [35:28.760] here for a very short period of time.
+- [35:30.560] This is really being built for other
+- [35:32.080] presidents. It's not being built for me
+- [35:33.640] and I'm a really good builder. The thing
+- [35:35.760] I do best in life is build. I'm a great
+- [35:37.680] builder and I build beautiful product.
+- [35:39.840] This This there will never be anything
+- [35:42.040] like this. I always admired the facade
+- [35:44.720] of the Supreme Court.
+- [35:46.520] I said, "I wonder if that can be
+- [35:48.000] duplicated or bettered." Even not to say
+- [35:50.320] bettered but even better and we've
+- [35:52.360] actually bettered it. What we're doing
+- [35:54.040] is something that will you'll never see
+- [35:56.480] it again. Mr. President, one more on
+- [35:58.360] Iran if I may. When you were having your
+- [36:00.120] discussions with the
+- [36:01.880] regional partners, regional leaders, did
+- [36:04.080] they
+- [36:05.200] express to you any concern about Iran's
+- [36:07.480] ability to still retaliate in the event
+- [36:09.520] of US They have a little ability. Their
+- [36:11.720] missiles Their missiles are 82% gone, we
+- [36:14.440] estimate.
+- [36:15.640] Their capacity to build is very little
+- [36:18.040] right now because we hit you know, we
+- [36:19.760] hit all of their manufacturing areas.
+- [36:22.400] Same thing with drones, largely gone but
+- [36:24.600] they still have a little capacity, yeah.
+- [36:26.280] Not much but they have a little. Their
+- [36:28.040] navy is completely gone. Their air force
+- [36:29.920] is completely gone. Uh President Xi has
+- [36:32.720] promised me that he's not sending any
+- [36:34.800] weapons to Iran. That's a beautiful
+- [36:37.040] promise. I I take him at his word.
+- [36:40.120] I appreciated it. We had a an amazing
+- [36:42.200] time in China.
+- [36:43.880] Uh
+- [36:44.760] you know, look, we got along very well
+- [36:46.200] before this, but President Xi and I had
+- [36:48.400] a a really an amazing time. I think he'd
+- [36:50.280] say the same thing, but he promised that
+- [36:52.280] he's not sending any weapons.
+- [36:54.360] And you know, if you think about it, he
+- [36:55.520] gets 40% of his oil. He's not sending
+- [36:58.600] uh oil boats in, you know, tankers in
+- [37:00.800] with 20
+- [37:02.960] destroyers alongside of it.
+- [37:05.040] No, he wants it all. He does want it
+- [37:06.600] open, like me. I want it open. And we'll
+- [37:08.800] get it open, but Iran has used the
+- [37:11.080] straits as a as a military weapon for 47
+- [37:14.720] years, really much more than that. And
+- [37:16.920] that's not their strait. That's
+- [37:18.400] international waterways. That's not for
+- [37:20.240] them to do.
+- [37:22.200] And look, they've learned their lesson.
+- [37:24.840] If I left today, it would take them 25
+- [37:27.320] years to rebuild. But we're not leaving.
+- [37:29.480] We're going to do it right so that in 5
+- [37:32.520] years, 10 years, if you have a bad
+- [37:34.360] president who doesn't want to do what's
+- [37:36.480] right to do. This should have been done
+- [37:38.280] by Obama. This should have been done by
+- [37:40.600] Biden. It should have been done by other
+- [37:42.240] presidents long before me.
+- [37:44.800] And everybody agrees to this. They agree
+- [37:47.000] to it.
+- [37:50.520] Yeah. Are there other initiatives that
+- [37:52.800] you're Well, there may be. It's very
+- [37:54.200] temporary. Yeah. Yeah, there may be.
+- [37:56.240] Anything to keep it down. Look, as soon
+- [37:58.280] as this war is over, gas is going to You
+- [38:00.680] know, I had gasoline down to $1.85
+- [38:03.600] in Iowa. I was in Iowa.
+- [38:06.280] And the stations had it at $1.85,
+- [38:10.360] but I was down to in many cases less
+- [38:12.400] than $2
+- [38:13.840] a barrel a a gallon. And then I said to
+- [38:16.000] myself,
+- [38:17.440] "This is great. We just hit a new high
+- [38:19.560] in the stock market. Everything's going
+- [38:21.360] good. I'm sorry, but we have to go down
+- [38:23.800] and take a little journey down to
+- [38:26.480] We have to do something with Iran. We
+- [38:28.760] cannot let them have a nuclear weapon.
+- [38:31.720] You want to see the world exploded? You
+- [38:33.880] want to see a problem?
+- [38:35.480] And this is peanuts. And I appreciate
+- [38:37.440] everybody putting up with it for a
+- [38:38.800] little while. It won't be much longer.
+- [38:41.280] But you're going to have And frankly,
+- [38:43.960] there is so much oil out there. One of
+- [38:46.520] the things that is happening is these
+- [38:48.040] big ships are coming up to Texas,
+- [38:49.760] Louisiana, and Alaska, and they're
+- [38:52.040] loading up. But I don't even think about
+- [38:54.640] that. What I think about is you can't
+- [38:56.360] let Iran have a nuclear weapon, and they
+- [38:58.200] won't have a nuclear weapon, and they
+- [38:59.480] fully understand it.
+- [39:00.560] >> Mr. President, I I once asked you
+- [39:03.280] how do you heal the divide in America?
+- [39:06.520] And it's been some time ago. It was
+- [39:07.760] during your first term, and you told me
+- [39:09.440] success would bring us back.
+- [39:11.040] >> Success.
+- [39:12.600] Based on that,
+- [39:13.680] why do you continue to do what you do,
+- [39:15.160] knowing that so many people are
+- [39:16.560] criticizing it, and at the same time you
+- [39:18.680] get up every day and try to bring us
+- [39:19.840] success? Well, you know, you have some
+- [39:22.080] people disagree with like the Iran
+- [39:24.120] thing. To me, it's no question. To me,
+- [39:26.280] you have to have borders. You have to
+- [39:27.680] have
+- [39:28.680] walls, and you have to let people in
+- [39:30.320] legally, but you have to have borders.
+- [39:33.160] Some people think you don't have
+- [39:34.320] borders. You should let anybody,
+- [39:35.800] murderers, drug dealers, you should let
+- [39:37.480] them in.
+- [39:38.520] So, there is some But But I said to you
+- [39:40.400] once, I remember it, the greatest healer
+- [39:43.880] of our country, when we had just before
+- [39:46.160] COVID, we were so successful. You know,
+- [39:48.360] we had the best economy we've ever had
+- [39:50.720] in my first term. This term is going to
+- [39:52.600] blow it away, I think. And you see all
+- [39:54.080] the numbers. Even during the war, we
+- [39:56.200] have the highest stock market we've ever
+- [39:58.360] had. I thought the market would go down
+- [40:00.000] 25%.
+- [40:01.760] And I was okay with that to get rid of a
+- [40:04.320] nuclear potential holocaust. Would have
+- [40:07.520] been a nuclear holocaust. So,
+- [40:09.840] going down 25% is okay if you're going
+- [40:11.720] to get rid of a nuclear holocaust. So,
+- [40:13.960] uh
+- [40:15.200] most people agree with me. When When I'm
+- [40:17.200] with people and they let's say, "Oh gee,
+- [40:18.840] why do" and I say, "Here's the problem.
+- [40:21.320] Is it okay for Iran?" And they are
+- [40:24.120] very volatile people. I'm being nice.
+- [40:26.560] Is it okay for Iran to have a nuclear
+- [40:29.200] weapon? Everybody says no.
+- [40:31.760] I said, "Then we have nothing further to
+- [40:33.400] discuss." You know, it's like one of
+- [40:35.360] those things. And they will never have a
+- [40:37.000] nuclear weapon. Not going to happen. And
+- [40:38.920] probably that's going to be very soon.
+- [40:40.840] So, one way or the other, whether it's
+- [40:42.440] military or an agreement, uh they
+- [40:45.120] That'll start opening up very soon. Mr.
+- [40:47.280] President, why did you wait so long
+- [40:48.960] between your endorsement and the
+- [40:50.280] primary? Is it just because now both of
+- [40:51.800] their names are going to be on the No.
+- [40:53.480] No, I waited
+- [40:55.720] I've I've pretty much always known who I
+- [40:58.000] was going to endorse, but
+- [40:59.520] uh I just thought this was a good time.
+- [41:01.280] You know, the voting's starting.
+- [41:02.960] And I thought this was a good time. I'm
+- [41:04.480] going to be doing that very shortly.
+- [41:07.920] Have you put any thought into
+- [41:09.120] potentially endorsing someone to run
+- [41:10.640] against J.B. Pritzker, like Darren
+- [41:12.120] Bailey or
+- [41:13.040] >> Well, I like Darren Bailey. J.B.
+- [41:14.600] Pritzker is a slob of a governor. You
+- [41:16.560] know, he could call me and I'd send the
+- [41:18.480] National Guard in Chicago would have no
+- [41:20.280] crime.
+- [41:21.360] Look at Washington, D.C. Did you see the
+- [41:23.400] crime stats? It's down to like nothing.
+- [41:25.040] People go to restaurants now. Uh new
+- [41:27.160] restaurants. Restaurants were all being
+- [41:28.880] closed in Washington. Now they're
+- [41:30.200] building new restaurants. It's
+- [41:32.040] It's a hot city. We have a beautiful
+- [41:33.920] city. We have very little crime, almost
+- [41:36.080] no crime.
+- [41:37.320] And we could have the same thing in
+- [41:38.960] Chicago. All he'd have to do is say,
+- [41:41.200] "President, I don't want to have any
+- [41:43.280] crime in Chicago. Can you help me?"
+- [41:46.200] Three months, Chicago would be a
+- [41:48.200] different place.
+- [41:52.200] What can I say?
+- [41:53.520] He's so bad. He's so bad.
+- [41:55.960] Mr. President, you're going to Wallace
+- [41:58.840] I talked about making health care more
+- [42:00.640] affordable. Right. You've done that. And
+- [42:02.640] you made a major announcement yesterday
+- [42:04.360] with
+- [42:04.520] >> That was a big announcement. Got no
+- [42:06.120] coverage. I reduced drug prices by 50,
+- [42:09.200] 60, 70, 80% and it gets no coverage.
+- [42:13.480] I think it's maybe the other than
+- [42:15.080] medical itself, like a cure, I think
+- [42:17.920] it's the biggest thing to happen in
+- [42:19.160] health care ever, maybe. I brought the
+- [42:21.240] prices We paid the highest price in the
+- [42:23.200] world. Now we're paying, as of now,
+- [42:26.200] we're paying the lowest price in the
+- [42:28.200] world. Prices of drugs have gone down
+- [42:30.640] 70, 80, 90% for 28 years they never went
+- [42:34.320] down.
+- [42:35.400] With in my administration, I got it down
+- [42:37.560] 1/8 of 1% that I thought it was great.
+- [42:40.120] The first time, the only time in 28
+- [42:42.160] years that it went down.
+- [42:43.600] Now I got them down 50, 60, 70 and even
+- [42:46.040] 80%
+- [42:47.560] and that has a huge impact on health
+- [42:49.280] care. Listen, go have breakfast, have a
+- [42:51.720] good time. Thank you, sir. Have
+- [42:52.920] breakfast, enjoy your site. You can
+- [42:55.080] shoot down there, but it is
+- [42:58.400] Those Those The next time you come here,
+- [42:59.960] those columns will be
+- [43:01.800] standing even taller.
+- [43:07.440] Yeah, I actually the underneath part,
+- [43:09.280] it's a good question, is far more
+- [43:10.680] complex than the upper because what you
+- [43:13.160] don't see are the floors that are
+- [43:14.800] beneath here and they have very, very
+- [43:18.080] important rooms down there, very the
+- [43:20.080] most important. And this was the one
+- [43:22.280] opportunity for the military to do
+- [43:24.160] something
+- [43:25.880] You know, they came Normally I'd build a
+- [43:27.400] ballroom on flat land. I wouldn't have
+- [43:29.080] any of this. I'd have a It would have
+- [43:31.000] been built. I would I'm very fast. I'm a
+- [43:33.360] very fast builder.
+- [43:35.040] We're way ahead of schedule here, but we
+- [43:36.960] went down six stories.
+- [43:39.600] So, it's actually far more complex than
+- [43:42.160] what The easy part is up, but again, we
+- [43:44.560] have a drone proof roof. We have all
+- [43:46.600] It's all sealed and all of this that you
+- [43:49.200] see is totally sealed and we use it as a
+- [43:51.920] drone port. We can have unlimited drones
+- [43:54.400] up there and and drones are what's
+- [43:56.000] happening right now.
+- [43:57.360] Thank you all very much.
+- [43:58.800] Thank you. Thank you. Thank you very
+- [44:00.160] much.
+- [44:01.240] Don't eat too much.
+- [44:03.200] What did you What did you tell us? What
+- [44:04.600] are we serving? Oh, you're going to see.
+- [44:05.720] Where is it?
+- [44:06.720] You're right over here.

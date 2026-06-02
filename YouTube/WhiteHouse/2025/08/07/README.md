@@ -1,0 +1,31 @@
+# YouTube / WhiteHouse / 2025-08-07
+
+- Posts: 9
+
+- [22:50 UTC - 200 days of turning the tide - from doubt to hope, from weakness to strength](BQ4c1rLWR70/)
+  - Source: https://www.youtube.com/watch?v=BQ4c1rLWR70
+  - [00:00.000] To celebrate America's birthday, - [00:01.280] President Trump signed his big, - [00:03.280] beautiful bill into law. - [00:05.040] >> It's really promises made, prom...
+- [22:18 UTC - President Trump Makes an Economic Announcement, Aug. 7, 2025](OsieDdXpnlc/)
+  - Source: https://www.youtube.com/watch?v=OsieDdXpnlc
+  - [00:00.480] Well, thank you very much everybody. - [00:02.240] We're going to have just a quick session - [00:04.480] with Steve Moore. Everybody knows Steve - [00:06.879] Moore...
+- [21:17 UTC - President Trump Delivers Remarks, Aug. 7, 2025](t_WcQB8Wqcw/)
+  - Source: https://www.youtube.com/watch?v=t-WcQB8Wqcw
+  - [00:11.310] Announcer: Ladies and gentlemen, - [00:12.620] the President of the United States. - [00:16.050] ♪ (Hail to the Chief) ♪ - [00:44.800] The President: Please. - [00:48...
+- [17:35 UTC - Benjamin Harrison](PjEm7lqqaPc/)
+  - Source: https://www.youtube.com/watch?v=PjEm7lqqaPc
+  - [00:00.420] [Music] - [00:08.160] I am Benjamin Harrison V of Berkeley - [00:10.400] Plantation, known for my large size, my - [00:12.800] legacy, and my levity. I studied at - [...
+- [17:34 UTC - Dolley Madison](gbpmVU8xplc/)
+  - Source: https://www.youtube.com/watch?v=gbpmVU8xplc
+  - [00:08.000] Good day. I am Dolly Madison, first - [00:11.440] lady, hostess of a fledgling republic. - [00:14.400] And on one fateful day, the woman who - [00:17.279] refused to...
+- [17:31 UTC - Arthur Middleton](1vCb6XQlBXE/)
+  - Source: https://www.youtube.com/watch?v=1vCb6XQlBXE
+  - [00:01.590] [Music] - [00:06.240] I am Arthur Middleton, son of South - [00:09.360] Carolina, sign of the Declaration, - [00:12.240] prisoner of war, and as Dr. Benjamin - [00:15...
+- [17:29 UTC - Abigail Adams](x9kWxvtso9E/)
+  - Source: https://www.youtube.com/watch?v=x9kWxvtso9E
+  - [00:00.000] [Music] - [00:06.080] I am Abigail Adams, wife of one - [00:08.400] president, mother of another, and - [00:10.880] advisor to both. I was born in - [00:13.360] Massa...
+- [16:31 UTC - Apple to Invest $600 Billion in America](Tt45WZgFYIQ/)
+  - Source: https://www.youtube.com/watch?v=Tt45WZgFYIQ
+  - [00:00.240] Today, Apple is announcing that it will - [00:02.399] invest $600 billion. That's with a B. - [00:06.879] >> Earlier this year, we broke ground on a - [00:08.720] new...
+- [12:45 UTC - 200 Days. ALL WE DO IS WIN](eyUJhSGoMAA/)
+  - Source: https://www.youtube.com/watch?v=eyUJhSGoMAA
+  - [00:00.160] You say please, please. It's too much to - [00:04.240] >> I'm a winner. I'm going to win. - [00:06.160] >> That's my job. That's what I do. - [00:08.400] >> It's just...

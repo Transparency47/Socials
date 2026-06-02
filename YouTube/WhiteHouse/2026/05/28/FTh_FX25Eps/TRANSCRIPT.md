@@ -1,0 +1,2086 @@
+<!-- source: https://www.youtube.com/watch?v=FTh-FX25Eps -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: FTh-FX25Eps -->
+<!-- date_published: 2026-05-28T18:00:32+00:00 -->
+<!-- date_accessed: 2026-06-02T02:33:14.421978+00:00 -->
+
+# Transcript: Vice President JD Vance Delivers a Commencement Address to the United States Air Force Academy
+
+- [00:15.500] Female Speaker: I extend a welcome
+- [00:17.120] to our representatives of the Dean of Faculty,
+- [00:19.990] Cadet Wing, and Directorate of Athletics,
+- [00:22.600] Major Units of the United States Air Force Academy.
+- [00:43.020] Leading the processional and caring use office
+- [00:45.420] academic mace
+- [00:46.630] is Brigadier General James Valpiani,
+- [00:49.320] the Dean of Faculty,
+- [00:50.820] followed by a representative group of faculty,
+- [00:53.310] commanders and coaches.
+- [00:57.260] A cadet's academic career begins with a convocation
+- [01:00.400] in which faculty carrying the academic mace process
+- [01:03.840] into signifying the start of academics.
+- [01:06.780] The mace symbolizes the university's governing authority
+- [01:09.950] and the power to grant degrees.
+- [01:11.940] The tradition derives from medieval times in Europe,
+- [01:15.180] and today's implements is a combination of a royal scepter
+- [01:18.860] and the battle mace.
+- [01:24.210] As an ancient symbol of authority,
+- [01:26.220] it reminds us that the universities
+- [01:28.370] are custodians of the enduring traditions of learning
+- [01:31.650] and the power they bestow upon those who come to learn.
+- [01:34.770] The mace is again carried in today's processional
+- [01:37.640] to signify the culmination of the KEDS academic program.
+- [01:44.740] Just as the traditions of military pageantry honor
+- [01:47.660] the service of members of the armed forces,
+- [01:50.590] the academic procession honors academic achievement
+- [01:53.610] and reflects centuries of university history.
+- [02:05.300] Within this processional are permanent professors
+- [02:08.160] appointed by Congress, military faculty,
+- [02:10.850] and civilian faculty. Military faculty bring Air Force
+- [02:15.700] and Space Force experience to the classroom
+- [02:18.180] and have earned a master's degree or doctorate.
+- [02:23.000] Civilian faculty wear their traditional academic regalia,
+- [02:26.700] prescribed by the degrees they hold.
+- [02:28.950] Each element identifies the highest degree
+- [02:31.140] earned, master's or doctorate,
+- [02:33.470] as well as the degree granting institution and field of study.
+- [02:37.700] Additionally, squadron commanders,
+- [02:39.620] academy military trainers,
+- [02:41.290] and representatives of the cadet wing are in the processional.
+- [02:44.640] Squadron commanders lead the 40 squadrons
+- [02:46.820] that make up the cadets wing. These commanders are selected
+- [02:51.620] through a highly competitive process.
+- [02:53.890] They are comprised of pilots, navigators,
+- [02:56.770] combat system operators, weapon systems operators,
+- [03:01.060] space operators, engineers, intelligence officers,
+- [03:05.470] logistics officers,
+- [03:07.200] cyber officers, maintainers, special agents,
+- [03:10.960] and many other career fields across the Department
+- [03:13.600] of the Air Force and Space Force.
+- [03:15.910] Our processional also includes representatives
+- [03:18.470] of the Directorate of Athletics
+- [03:20.300] which is comprised of coaches and staff
+- [03:22.550] who train intercollegiate, intramural, and club teams
+- [03:26.450] as well as teach a robust variety
+- [03:28.520] of physical education courses.
+- [03:47.790] We are proud of our outstanding faculty,
+- [03:50.640] coaches, and squadron commanders,
+- [03:52.730] representatives of whom appear on the stadium floor today
+- [03:55.990] to honor the class of 2026.
+- [03:58.930] Please join us in recognizing them.
+- [04:01.580] (applause)
+- [05:42.390] Ladies and gentlemen,
+- [05:44.470] please stand for the arrival of the official party.
+- [06:10.510] Ladies and gentlemen,
+- [06:12.420] please welcome the Secretary of the Air Force,
+- [06:15.670] the Honorable Troy E. Meink,
+- [06:17.900] the Chief of Space Operations, General B.
+- [06:22.510] Chance Saltzman,
+- [06:24.440] the Chief Of Staff of the Air Force General Kenneth S. Wilsbach
+- [06:29.390] and the Superintendent
+- [06:31.570] of the United States Air Force Academy,
+- [06:34.390] Lieutenant General Tony D. Bauerfeind.
+- [06:38.300] (applause)
+- [07:27.500] Ladies and gentlemen,
+- [07:29.080] please remain standing for the playing of honors.
+- [07:32.110] Wing, present arms.
+- [07:56.920] Ladies and gentlemen,
+- [07:59.020] please welcome the Vice President of the United States,
+- [08:02.750] the Honorable J.D. Vance.
+- [08:06.620] ♪ (patriotic music) ♪
+- [09:04.595] (cheers and applause)
+- [09:18.870] Wing, order, arms!
+- [10:11.810] Ladies and gentlemen,
+- [10:13.920] please welcome the graduating class of 2026.
+- [10:22.920] ♪ (military band music) ♪
+- [15:14.460] Graduates. Halt.
+- [15:19.310] Left face. Wing present arms.
+- [15:28.290] Please remain standing and turn your attention
+- [15:31.040] to the north end of the stadium
+- [15:33.120] for the playing of the national anthem
+- [15:35.300] followed by the invocation.
+- [15:46.660] ♪ (national anthem) ♪
+- [16:55.320] (applause)
+- [17:01.530] Order. Arms. At ease.
+- [17:06.120] Ladies and gentlemen, chaplain, Lieutenant Colonel Mark D. Hunsinger
+- [17:11.630] United States Air Force Academy,
+- [17:14.420] command chaplain.
+- [17:21.590] Chaplain Hunsinger: Let's pray.
+- [17:23.190] Almighty God, we are gathered here on this momentous occasion
+- [17:26.720] to witness the graduation and the launch of Class of 2026.
+- [17:34.430] In the words of Teddy Roosevelt, they have taken the harder road
+- [17:38.430] and striven valiantly in the arena
+- [17:40.560] where timid souls dare not venture.
+- [17:43.080] Their faces are marred with dust, sweat,
+- [17:45.820] and blood on this road less traveled,
+- [17:48.730] devoting themselves to a life of honorable service.
+- [17:52.190] Each one stands on the shoulders of those giants
+- [17:54.500] who have gone before them,
+- [17:56.150] cheered on by a cloud of witnesses,
+- [17:58.620] those who encourage them to persevere in their hardest days
+- [18:01.890] and push them to dig deeper.
+- [18:03.540] When they thought all their strength was gone.
+- [18:05.980] Theirs is a class of warrior leaders,
+- [18:08.360] ready to adapt, lead, and win on day one.
+- [18:12.350] As this class joins the profession of arms,
+- [18:15.000] give them a laser focus for the mission.
+- [18:17.490] Fill them with kindness and compassion
+- [18:19.320] for the war fighters they will lead,
+- [18:21.430] as those entrusted with our nation's most precious resource.
+- [18:25.010] Engrave upon their hearts a spirit of humility
+- [18:27.710] as they remain teachable servant leaders.
+- [18:30.460] Give them wisdom for every decision.
+- [18:32.640] And boldness to execute when uncertainty arises.
+- [18:36.090] Fill them with moral and physical courage to fight on
+- [18:39.700] when the stakes are high,
+- [18:41.150] knowing that you are their shield and rear guard.
+- [18:43.890] Finally, give them strength, fortitude,
+- [18:46.680] and a calmness of spirit when battles raise around them
+- [18:49.940] and within them. In your holy name, amen.
+- [18:57.460] Graduates, take seats.
+- [19:00.120] Ladies and gentlemen, please be seated.
+- [19:11.740] Ladies and gentlemen, Lieutenant General
+- [19:15.160] Tony D. Bauerfeind, the superintendent
+- [19:17.760] of the United States Air Force Academy.
+- [19:21.440] (applause)
+- [19:29.140] Good morning and welcome as we celebrate
+- [19:32.970] the United States Air Force Academy Class of 2026.
+- [19:44.350] Today, we are honored to welcome the 50th Vice President
+- [19:47.950] of our United States, Vice President Vance.
+- [19:51.460] Sir, you do us an honor by being with us today.
+- [19:55.440] (applause)
+- [20:02.960] We are also honored to welcome
+- [20:04.720] the 27th Secretary of our Air Force,
+- [20:07.800] the Honorable Troy Mink and his spouse, Jean.
+- [20:18.310] The 24th Chief of Staff of the Air Force,
+- [20:21.160] General Kenneth Wilsbach and his wife Cindy.
+- [20:24.870] (applause)
+- [20:28.460] And the second chief of space operations
+- [20:30.990] for the U.S. Space Force,
+- [20:32.780] General Chance Saltzman and his spouse, Jennifer.
+- [20:36.220] Welcome.
+- [20:37.510] (applause)
+- [20:40.150] And to many other distinguished visitors,
+- [20:43.250] thank you for being here today, as well as the many members
+- [20:47.650] of the Long Blue Line of Academy graduates,
+- [20:51.100] local leaders, and community partners
+- [20:53.870] that make our mission happen. Thank you for all that you do,
+- [20:58.370] from Colorado Springs to Washington, DC,
+- [21:01.520] throughout our military community.
+- [21:03.840] We could not succeed without your support.
+- [21:07.670] Now to the class of 2026. Congratulations.
+- [21:16.120] After four years of challenging military training,
+- [21:20.140] academics, and athletics, your day one has arrived.
+- [21:25.580] But let's take you back to day one,
+- [21:29.840] 23 June 2022 on i-Day.
+- [21:34.830] You stepped onto those footprints in the cadet area
+- [21:38.990] with a vision of what the next four years would look like.
+- [21:43.150] Chances are the last 47 months
+- [21:46.380] have looked a little different than you expected,
+- [21:50.270] but I can tell you that I am extremely proud
+- [21:53.060] of how you tackled the challenges and the changes
+- [21:56.470] that we have made at the Academy during your journey.
+- [22:00.550] This last year in particular,
+- [22:02.790] we witnessed you step into your leadership role as firsties
+- [22:07.490] and you simply delivered excellence.
+- [22:11.410] You embraced warrior ethos, upheld our standards,
+- [22:16.220] tackled warfighter training, hit the books hard
+- [22:19.830] and you left it all on the athletic fields.
+- [22:23.050] Today you are the warrior leaders that we need to lead
+- [22:27.650] in our Air Force and Space Force.
+- [22:30.400] But before you think about that next chapter,
+- [22:33.290] reflect upon all the support that you have received
+- [22:37.240] and take a moment to thank your friends,
+- [22:40.150] your families, your sponsor families,
+- [22:43.130] and your support networks because they've been with you
+- [22:46.520] throughout your time here at USAFA.
+- [22:50.270] Also take time to recognize and thank the leaders
+- [22:53.490] you've become with the help of your squadron commanders,
+- [22:57.880] your academy military trainers,
+- [23:00.260] your incredible faculty and instructors.
+- [23:03.080] Your hard-working coaches and trainers,
+- [23:05.790] and your mentors across the academy.
+- [23:09.300] So please join me in a round of applause
+- [23:12.080] for everybody that's gotten you to this point.
+- [23:16.330] (applause)
+- [23:22.910] Class of 2026, your graduation
+- [23:28.700] coincides with a national historical moment,
+- [23:33.160] the 250th anniversary of the founding of this great nation.
+- [23:37.970] For two and a half centuries,
+- [23:39.940] the flame of American liberty has not burned on its own.
+- [23:44.030] It has been kept alive by generations of men and women
+- [23:47.760] willing to hold the front line.
+- [23:50.230] It has but it has been defended by those who chose
+- [23:53.680] to serve something greater than themselves.
+- [23:56.440] As we reflect on 250 years of freedom,
+- [24:00.050] that is the legacy that you inherit today.
+- [24:03.840] But inheriting a legacy is not enough.
+- [24:06.580] You must be equipped and ready to carry it forward
+- [24:10.270] into a very unpredictable future.
+- [24:13.590] And that's exactly why we focus on fighting,
+- [24:16.810] or excuse me, focus on forging warfighters to win.
+- [24:20.990] Inspiring leaders of character equality
+- [24:24.100] and motivating critical thinkers to adapt.
+- [24:27.380] Our nation requires it and it demands it,
+- [24:31.400] especially in the rapidly changing geopolitical landscape
+- [24:35.390] that you are stepping into.
+- [24:37.660] And you have met the challenge across each of our priorities,
+- [24:42.160] so we have a parting gift for you.
+- [24:46.300] If you would look behind you on the middle tier of the stadium,
+- [24:50.260] we are unveiling our priorities in the ring of honor.
+- [24:55.900] Your legacy as future warfighters, leaders,
+- [25:00.210] and critically thinkers will live on
+- [25:02.980] as a reminder of the skills
+- [25:04.990] that our graduates bring to future fights.
+- [25:08.820] It's the same skills that those who came before you employed
+- [25:12.940] to defend our country from the Berlin airlift,
+- [25:16.260] to Desert Storm, to Enduring Freedoms,
+- [25:19.240] and so many other missions in between.
+- [25:22.180] And the same skills you will carry with you
+- [25:24.820] throughout your Air Force and Space Force careers.
+- [25:30.210] And while we are looking around the stadium,
+- [25:32.910] I'd like to direct your attention to the big screens,
+- [25:36.400] where we'd like recognize your classmates
+- [25:39.260] who aren't with us today,
+- [25:41.660] because they are competing in the NCAA Championships.
+- [25:47.400] Zach Ayers.
+- [25:48.980] (applause)
+- [25:54.240] Zach Ayers, India Jones, Jett Rose, Ben Scheller,
+- [25:59.710] and Texas Tanner
+- [26:01.190] are demonstrating their warrior ethos
+- [26:03.700] with the best of the best from across the nation
+- [26:06.570] and they are representing Falcon Nation strong.
+- [26:10.350] If you're listening we wish you luck and please know
+- [26:13.700] that your coaches have your degrees for you.
+- [26:25.930] Class of 2026, in this year of cadet empowerment,
+- [26:32.510] you elevated our 47-month journey
+- [26:35.180] to be even more rigorous, more realistic,
+- [26:38.320] and more relevant across all three mission areas,
+- [26:41.580] military, academics, and athletics.
+- [26:44.900] You took care of your mission
+- [26:46.450] and you took care of your people.
+- [26:48.460] You lived up to your no-quit, all-grit motto
+- [26:52.180] every step of the way.
+- [26:54.470] As warfighters to win, you embraced the warrior ethos.
+- [26:58.860] With a focus on readiness in all forms,
+- [27:01.800] physical, mental, spiritual.
+- [27:04.980] You are offensively minded, mission focused,
+- [27:08.440] and team builders who overcame adversity
+- [27:11.600] to make the mission happen.
+- [27:14.110] You took our culminating exercise
+- [27:16.800] to the next level against a thinking adversary,
+- [27:20.540] setting a high bar for those classes
+- [27:22.730] that will follow you to not only meet,
+- [27:25.480] but to exceed.
+- [27:27.270] You are leaving the academy in a better place
+- [27:30.210] than when you entered it,
+- [27:31.720] as you will do with every assignment
+- [27:33.890] you take in your future.
+- [27:36.560] As warrior scholars, you integrated rigorous academics,
+- [27:40.560] immersive training, and cutting edge research
+- [27:43.720] to prepare you for combat leadership.
+- [27:46.440] Your education was deliberately designed
+- [27:48.690] to ensure you are the war fighters
+- [27:50.930] who can out think, out maneuver, and out fight our adversaries.
+- [27:56.130] From putting satellites into space
+- [27:58.350] to winning numerous national competitions
+- [28:00.990] to providing research to support our operational forces,
+- [28:04.470] you advanced our strategic advantage
+- [28:06.990] as Airmen and Guardians.
+- [28:09.540] And as athletes over the past four years,
+- [28:12.600] you were warriors through every competition
+- [28:15.280] which led to your classmates earning 181
+- [28:19.800] All-American honors, 12 conference championships,
+- [28:24.000] 14 conference players of the year.
+- [28:26.290] And 18 top 25 national team finishes. Absolutely well done.
+- [28:32.700] (applause)
+- [28:38.820] Unidentified: And while I know you all look forward
+- [28:40.770] to linking arms with your joint partners in the next fight,
+- [28:44.260] it's important to highlight what you did with them
+- [28:46.600] over the last four years and this year.
+- [28:49.250] Against our military services academies
+- [28:51.640] and intercollegiate sports,
+- [28:53.430] you dominated with an overall record of 54 wins,
+- [28:57.830] 45 losses, and three ties.
+- [29:00.870] When you add in our competitive club teams,
+- [29:03.300] this year alone, Yusoffa was 20 and 9 against West Point.
+- [29:08.240] And 14 and 9 against Navy,
+- [29:11.160] reminding West Point and Annapolis
+- [29:13.570] that the Air Force Academy remains far, far above.
+- [29:26.490] As leaders of character and quality,
+- [29:28.930] you chose Master Sergeant John Chapman as your class exemplar.
+- [29:33.330] For those of you unfamiliar,
+- [29:35.200] each class as our academy selects an exemplar
+- [29:38.370] whose qualities they hope to emulate.
+- [29:41.290] Every time someone says the class year, 2026.
+- [29:47.690] They shout the nickname of their exemplar.
+- [29:50.820] Master Sergeant Chapman, notably,
+- [29:52.870] is the first enlisted service member
+- [29:54.870] to be selected as an exemplar,
+- [29:57.550] he was a special tactics combat controller and in 2002,
+- [30:02.280] then technical Sergeant Chapman
+- [30:04.100] charged into an al-Qaeda bunker in the snowy Afghan mountains,
+- [30:08.230] saving the lives of an entire rescue team,
+- [30:11.040] losing his own life in the process.
+- [30:13.980] He was awarded the Congressional Medal of Honor.
+- [30:16.730] For his heroism, the only Air Force Medal of Honor recipient
+- [30:20.740] since the Vietnam War.
+- [30:23.110] Master Sergeant Chapman embodies our core values and commitment
+- [30:26.670] to serve our leadership your class aspires
+- [30:29.370] to as leaders of character and quality.
+- [30:32.520] And we would like to take a moment
+- [30:34.000] and recognize Master Sergeant Chapman's family
+- [30:37.030] who are with us today.
+- [30:39.080] It is an honor to have you here with us
+- [30:41.480] on this special occasion.
+- [30:43.380] To the Chapman family, thank you.
+- [30:57.410] Like your exemplar, you made hard calls and faced adversity
+- [31:02.020] knowing that leaders do the right thing,
+- [31:04.680] the right way, even if it's unpopular.
+- [31:08.240] As servant leaders, our Airmen and our Guardians deserve this,
+- [31:12.260] our missions require this,
+- [31:13.970] and our nation demands nothing else.
+- [31:17.620] Finally, as critical thinkers to adapt,
+- [31:20.710] you learned to develop innovative solutions
+- [31:23.280] to complex problems
+- [31:24.960] while operating with limited information.
+- [31:27.900] You prepared for modern and future warfare in the air,
+- [31:31.720] space, and cyber domains,
+- [31:33.840] ensuring we maintain our advantage for the Joint Force.
+- [31:37.810] You challenged the status quo,
+- [31:40.090] building teams to tackle problems
+- [31:41.870] from multiple perspectives.
+- [31:43.800] Our future success demands on your continued critical thought.
+- [31:49.350] And if your success leading the Cadet Wing
+- [31:51.610] this year is any indication,
+- [31:53.900] I know that nation's future is in great hands.
+- [31:57.820] When given the challenge to lead reinvigorated military training,
+- [32:01.710] you ran with that charge and ensured your squad
+- [32:04.790] is ready for the most extensive and challenging war
+- [32:08.840] fighting culminating exercise in Air Force Academy history.
+- [32:13.380] When some said we focused too much on joint war
+- [32:16.000] fighter training at the expense of other training,
+- [32:19.840] you were the instructor pilots
+- [32:21.420] that delivered 100% soaring syllabus completion.
+- [32:28.500] And 35% more of you secured pilot slots
+- [32:32.590] than last year's class,
+- [32:34.380] proving that you were ready to fly, fight, and win.
+- [32:45.170] When some questioned our academic rigor,
+- [32:48.080] our progressive use of artificial intelligence,
+- [32:50.820] you led the cadet wing to the highest GPA in 20 years
+- [32:55.450] and the lowest academic probation level in five years.
+- [32:59.520] And you secured our academy,
+- [33:02.250] the only service academy I might note,
+- [33:04.740] on Forbes top 10 public schools for innovation
+- [33:08.440] and integration of artificial intelligence.
+- [33:11.950] (applause)
+- [33:18.120] When fitness standards were set higher
+- [33:20.640] and some thought more would fail,
+- [33:22.920] you led the Cadet Wing
+- [33:24.320] to the highest physical fitness scores
+- [33:26.800] that this academy has seen in over 10 years.
+- [33:29.920] And finally, all of your successes
+- [33:34.380] are inspiring the next generation of classes
+- [33:37.640] and we're proud to report that we've seen over
+- [33:39.550] an 11% increase in applications for the incoming class of 2030
+- [33:45.500] due to your hard work.
+- [33:47.650] (applause)
+- [33:53.660] Class of 2026, your day one has arrived.
+- [34:00.320] You are ready.
+- [34:02.170] And I will leave you with these last thoughts.
+- [34:05.290] The weapons school mantra comes to my mind.
+- [34:09.040] Be humble, be approachable, be credible.
+- [34:14.090] Be humble. Your class has incredible talents.
+- [34:17.740] And as leaders, remember that you are entering force
+- [34:20.970] that has decades of experience. Take the time to listen.
+- [34:25.430] Listen and learn from your team's years
+- [34:27.560] of being in the fight. Be approachable.
+- [34:31.230] Build teams and lift them up where every single member
+- [34:34.530] is seen, heard, and valued.
+- [34:37.310] When you execute this successfully
+- [34:39.710] and you hold the standards high,
+- [34:41.860] your team will outperform your mission and your expectations.
+- [34:46.800] And be credible. Always be a master of your craft.
+- [34:51.150] Be the go-to expert wherever you go.
+- [34:54.090] And always be ready when the nation calls.
+- [34:57.410] Be credible for yourself, be credible for your team,
+- [35:01.110] and be credible to your adversaries
+- [35:04.140] because they are watching and I know they do not want to year.
+- [35:09.350] Class of 2026. You brought it strong.
+- [35:16.090] You sprinted to the finish line,
+- [35:18.150] and I am exceptionally proud of each and every one of you.
+- [35:21.480] I can personally attest that you are the warrior leaders
+- [35:25.150] that our nation deserves.
+- [35:27.160] Congratulations, and fights on. And now, ladies and gentlemen,
+- [35:32.930] I'd like to welcome the 27th Secretary of our Air Force,
+- [35:36.660] the Honorable Troy Meink, to the podium.
+- [35:38.990] Thank you very much.
+- [35:41.260] (applause)
+- [35:47.490] Secretary Meink: The sun's trying,
+- [35:48.910] it's trying to burn through.
+- [35:50.510] I see blue, looking good. Good morning, class of 2026.
+- [35:58.030] Love that enthusiasm.
+- [36:00.050] Let me just start by saying how excited I am
+- [36:02.900] to be back at the United States Air Force Academy.
+- [36:06.100] Last year, one of my first official acts as secretary
+- [36:10.190] was given the graduation speech to the class of 2025.
+- [36:17.920] Class of 2025. Very good.
+- [36:22.340] I'm excited to find out who has the most enthusiasm,
+- [36:25.940] but I think we already figured that one out.
+- [36:29.310] Mr. Vice President, thank you very much for being here today,
+- [36:32.990] and thank you for the support to the department,
+- [36:34.820] which has just been fantastic.
+- [36:37.120] Mr. Saltzman or General Saltzmen, Salty,
+- [36:39.440] Jennifer, thank you, very much, for being there.
+- [36:42.120] My wife, Jean, I almost forgot about that.
+- [36:44.600] That went home -- that wouldn't went well at all.
+- [36:48.900] Cruiser, Jennifer. Thank you very much.
+- [36:52.330] Cindy, thank you for being here today.
+- [36:53.720] And then of course, Tony and Trisha,
+- [36:57.400] thank you, very much, not only for being today,
+- [36:59.590] but really thanks for your 20 plus or 30 plus years of service
+- [37:03.330] to the Air Force and to the Academy.
+- [37:06.170] And congratulations on your retirement going forward.
+- [37:17.900] And thanks to all the other distinguished visitors,
+- [37:20.480] the mentors, the friends, and the guests attending today.
+- [37:24.170] As well as the planners who made today possible.
+- [37:27.020] To the families of our graduates,
+- [37:28.980] thank you for raising the generation
+- [37:31.750] of incredible men and women and then entrusting them to us.
+- [37:35.950] You have probably heard some stories
+- [37:37.890] from the sons and daughters over the last four years
+- [37:41.160] that made you wonder about this place.
+- [37:43.830] But trust me, it was worth it.
+- [37:46.820] Throughout their time here in Colorado,
+- [37:48.980] you have continued to support through GRs, COLEXs, and more.
+- [37:53.760] So thank you.
+- [37:54.960] Thank you as well to the sponsor families,
+- [37:57.870] the Home Away from Homes, for the graduating class.
+- [38:01.450] Thank you for opening your doors
+- [38:03.440] and giving our cadets a safe place to relax
+- [38:06.770] without any upperclassmen around.
+- [38:10.500] The Class of 2026 is here today in no part
+- [38:15.350] because of you, so thank you.
+- [38:17.970] (applause)
+- [38:23.510] And to our world-class faculty and staff,
+- [38:26.500] you have spent the last four years forging citizens, cadets,
+- [38:31.390] and then into leaders of character.
+- [38:35.280] Professors in Fairchild Hall, AOCs, AMGs,
+- [38:39.440] coaches down on the fields of friendly strife.
+- [38:43.200] Thank you for the skills and character
+- [38:45.520] you have given our rising generation of leaders.
+- [38:55.480] And finally, to the class of 2026, congratulations,
+- [39:02.360] and it is an honor to speak to you today.
+- [39:05.310] In the past year as a SECAF,
+- [39:07.410] I feel like I've had the full USAFA experience
+- [39:11.310] with my multiple business out here,
+- [39:13.150] give or take a few tours.
+- [39:15.340] I've seen the A course in action, eaten at Mitch's,
+- [39:19.130] flown your Airbody gliders, which was really fun,
+- [39:22.030] and even shot at the Catam Range.
+- [39:24.970] I actually think I would have won
+- [39:27.200] the little competition we had there.
+- [39:29.270] But I think I was beat on a bit of a technicality.
+- [39:34.970] Technically the entire team was just a lot better than I was.
+- [39:40.570] I've heard all the stories about the class of 2026.
+- [39:45.450] The good and the bad. CS 34 lived up to their name.
+- [39:51.170] So who brought live hogs onto the T-Zone?
+- [39:56.320] Come on, see the hands.
+- [39:58.370] And then accidentally, accidentally let one loose,
+- [40:04.260] accidentally let one lose.
+- [40:06.660] So who painted the strips red right before a snowstorm?
+- [40:13.600] So he didn't raise his hand,
+- [40:14.980] but there's a lot of people pointing at him.
+- [40:18.820] So you know where this is going, right?
+- [40:20.300] Tony, please issue demerits for everyone here
+- [40:22.980] who raised their hands.
+- [40:26.360] And by the way, a few of your classmates
+- [40:29.230] shared these stories with my staff last week.
+- [40:32.250] A word of advice to soon-to-be lieutenants,
+- [40:36.370] don't overshare with your boss's staff.
+- [40:39.820] They do not keep secrets very well.
+- [40:41.800] I find it humorous though.
+- [40:44.150] But seriously, it is such an honor
+- [40:46.280] to be here today to congratulate you.
+- [40:50.050] In addition to graduations,
+- [40:51.900] let me be the first to say welcome.
+- [40:55.170] Welcome to the world's greatest air force and space force.
+- [40:59.370] You are joining in one of the most dynamic
+- [41:03.290] and challenging threat environments since World War II.
+- [41:06.970] Disruptive technology like small unmanned aircraft,
+- [41:11.190] proliferated satellites, constellations,
+- [41:13.930] adaptive manufacturing, and artificial intelligence
+- [41:17.150] are rapidly changing the character of war.
+- [41:20.140] And our adversaries are leaning aggressively
+- [41:23.260] into that opportunity across the board.
+- [41:27.080] They are innovating quickly
+- [41:28.660] and they are seeking to challenge American dominance
+- [41:32.000] across every warfighting domain. That includes air and space.
+- [41:37.730] Like it or not, whether you feel ready
+- [41:40.230] or not your career will be marked by rapid change.
+- [41:45.240] We are modernizing nearly every mission area in our department.
+- [41:49.420] Our space force is growing rapidly
+- [41:51.490] and is slated to double in the years ahead.
+- [41:54.740] The Air Force is fielding brand-new platforms
+- [41:57.640] from trainers like the T-7 to the Sentinel ICBM program.
+- [42:03.000] The B-21 is going to redefine stealthy long-range strike
+- [42:08.020] and CCAs
+- [42:09.260] and the F-47 will revolutionize air-to-air combat.
+- [42:13.840] We are boasting production of spacecraft, aircraft,
+- [42:18.050] and munitions to levels we haven't seen in decades.
+- [42:21.760] It will be up to you.
+- [42:23.310] Young men and women with fresh ideas
+- [42:26.130] and unmatched technical education.
+- [42:28.880] You will be expected to navigate through this changing world.
+- [42:33.670] If I had only one message to all 931 of you here today,
+- [42:39.810] it would be this, you are ready.
+- [42:43.030] There is a reason you have all earned Bachelors of Science.
+- [42:46.930] It prepared you to operate some of the most complex systems
+- [42:50.590] the world has ever known.
+- [42:52.590] There is a reason you have all practiced sports,
+- [42:55.190] tackled the assault courses,
+- [42:56.900] and carefully studied leadership.
+- [42:59.160] It trained you to lead teams through setbacks,
+- [43:02.490] challenges, defeats, and ultimately to win.
+- [43:06.590] There is any reason you've studied
+- [43:08.500] and emulated your exemplar, Master Sergeant John Chapman.
+- [43:13.220] It equipped you with a character
+- [43:15.710] that our force expects and deserves from its leaders.
+- [43:20.390] You are here because you have overcome
+- [43:22.650] every obstacle we could throw at you,
+- [43:24.940] whether at Jack's Valley or in the classroom.
+- [43:28.720] You've earned your place
+- [43:30.130] as the next generation of leaders and innovators,
+- [43:34.560] maintaining dominance in a rapidly changing world.
+- [43:38.590] You are ready.
+- [43:40.650] This is your moment to execute your moment to deliver,
+- [43:44.960] your time to lead the United States Air Force
+- [43:48.130] and Space Force.
+- [43:49.700] Now, it is my honor and distinct pleasure
+- [43:53.920] to introduce today's commencement speaker.
+- [43:56.720] A true warrior scholar, he's a best-selling author
+- [44:00.210] and graduate of Yale University,
+- [44:03.060] and more importantly, the Ohio State University.
+- [44:07.290] (cheers and applause)
+- [44:10.940] He also spent four years in the United States Marine Corps,
+- [44:15.280] or United State Marine Corps, which, this audience knows,
+- [44:19.630] is one of the top three branches of our military.
+- [44:24.380] He is the first Marine to serve as our Vice President.
+- [44:28.250] Ladies and gentlemen, Class of 2026,
+- [44:33.240] please welcome the 50th Vice President of the United States
+- [44:37.330] JD Vance.
+- [44:39.290] (applause)
+- [44:55.010] The Vice President: Thank you guys, please.
+- [44:58.340] Well, first, thank you to Secretary Meink
+- [45:00.650] for the kind introduction.
+- [45:03.170] And let me just say it's real brave of the secretary
+- [45:07.200] to take pot shots at the Marines
+- [45:09.370] while surrounded by this level of air support.
+- [45:15.350] I put in my remarks this morning how wonderful it is to be here
+- [45:20.000] on this beautiful morning in Colorado Springs.
+- [45:27.870] And that's a note to the vice president
+- [45:30.620] and the vice president's speechwriters
+- [45:32.960] to check the weather before you make a big speech.
+- [45:36.310] That's my first piece of advice. In all seriousness,
+- [45:41.440] I am particularly gratified to be honored today
+- [45:47.240] by this welcome and this kindness.
+- [45:50.670] Some of the people who make it possible for me to do my job,
+- [45:56.490] to make it possible for me
+- [45:57.690] to be vice president of the United States,
+- [46:00.280] are proud airmen and guardians.
+- [46:04.090] The people who run Dover Air Force
+- [46:05.970] Base, the people who pilot and crew Air Force II,
+- [46:11.630] the staff at my house, the person who delivered me
+- [46:14.480] my daily intelligence briefing.
+- [46:16.500] They are proud to be airmen or proud to be guardians
+- [46:20.930] and I am proud to be here with you today.
+- [46:31.110] Without fail, they are skilled and brilliant and professional
+- [46:37.370] and kind, the very best of us, just like you.
+- [46:41.560] And today, we celebrate not just you,
+- [46:46.070] not just the completed journey,
+- [46:48.700] but importantly, we celebrate something far more important --
+- [46:54.220] that today you become commissioned officers
+- [46:58.290] and leaders of the great patriots
+- [47:00.700] that I interact with every single day.
+- [47:03.580] If they are the best of our nation,
+- [47:06.930] they are now under the charge of every single person
+- [47:10.310] who graduates from this great academy.
+- [47:13.550] You all should be proud, and I hope you are,
+- [47:16.750] proud of what you've accomplished,
+- [47:18.100] proud of what you've endured, but you should also be sobered
+- [47:22.770] by the extraordinary responsibility our nation
+- [47:26.470] now entrusts to you.
+- [47:29.080] Indeed, so impressed am I with this group
+- [47:33.290] and the service that you lead,
+- [47:35.500] that I'm hiring a member of this very class
+- [47:38.350] for a summer internship after graduation.
+- [47:49.670] So, Cadet Tang, where are you? Raise your hands.
+- [48:04.570] Consider this your very first meeting with the new boss.
+- [48:07.330] Congratulations. Don't screw it up.
+- [48:12.870] Now, all of you celebrate a journey
+- [48:14.670] that started not just four years ago,
+- [48:17.760] but decades before that.
+- [48:20.020] And so, I particularly want to welcome the people
+- [48:22.960] who made you who you are,
+- [48:25.530] the friends, the family, the faculty, the loved ones,
+- [48:30.710] and of course, the other distinguished guests
+- [48:32.600] who are honored to be joined here today.
+- [48:37.150] So, I'd like to thank Secretary Meink
+- [48:39.530] in thanking several particular folks for being here.
+- [48:43.430] General Kreuser and Mrs. Cindy Wilsbach, thank you all.
+- [48:54.250] General Chance and Mrs. Jennifer Stoltzman,
+- [48:57.280] thank you guys for being here.
+- [49:03.350] And last but certainly not least,
+- [49:05.470] Lieutenant General Tony and Mrs. Tricia Bauernfeind,
+- [49:09.260] thank you all.
+- [49:15.080] And I should also note that we're joined
+- [49:16.530] by another special guest, so honored and so proud of you
+- [49:20.490] that we have our great Secretary of Energy, Chris Wright.
+- [49:24.080] Chris, thank you for being here
+- [49:25.530] and thank you for your lovely wife
+- [49:26.840] for being here to honor our airmen.
+- [49:33.110] But most of all, I want to thank the families
+- [49:36.730] who are with us this morning.
+- [49:39.060] The young men and women we honor today
+- [49:41.620] deserve a tremendous amount of praise.
+- [49:45.370] But they know as well as I do
+- [49:47.670] that the seeds of many of their finest qualities
+- [49:51.860] were ultimately planted by all of you in the bleachers.
+- [49:55.660] And to our new officers, my second piece of advice
+- [50:00.220] is to show a spirit of gratitude
+- [50:02.530] above all to the people who made you who you are.
+- [50:06.420] That will make you better airmen,
+- [50:08.650] it will make you better guardians
+- [50:10.580] and it will make you better leaders.
+- [50:13.480] When you're tired, remember the father or the mother
+- [50:17.030] who worked an extra shift to give you a little bit extra.
+- [50:21.830] When you're frustrated with someone under your command,
+- [50:24.360] and that will happen,
+- [50:26.380] remember the time a grandparent or a schoolteacher
+- [50:29.450] showed you patience and grace that you didn't deserve.
+- [50:33.800] To the loved ones gathered here today,
+- [50:36.760] we will never forget that our nation's airmen
+- [50:39.680] and guardians were your sons and daughters
+- [50:42.960] long before they were ours. So, I hope you take pride
+- [50:47.290] in what they've become and know this --
+- [50:50.260] the administration will always have your back
+- [50:54.030] just as these new officers have ours.
+- [51:05.530] Now, without further ado, Class of 2026.
+- [51:13.800] You've survived the Academy.
+- [51:15.300] Congratulations.
+- [51:24.230] You've conquered the six-mile run out
+- [51:26.600] to Jacks Valley and back. You flung yourself off the 10M
+- [51:32.980] or from even higher up in the rafters.
+- [51:37.840] You overcame Astro 310. Endless racetracks.
+- [51:48.090] And this is a little surprising to me --
+- [51:52.180] even a herd of wild hogs set loose near Fairchild Hall.
+- [51:58.560] Now, who is responsible for setting loose
+- [52:00.600] the wild hogs in Fairchild Hall?
+- [52:06.270] A few timid hands went up.
+- [52:09.940] Those are the future politicians.
+- [52:15.130] And lest any of the masterminds of that transgression
+- [52:19.260] sweat it out or fear,
+- [52:21.820] now is a good time to fall back on a great tradition
+- [52:25.850] and announce that I hereby grant amnesty
+- [52:29.570] to all cadets serving restrictions and confinements
+- [52:32.760] for category one and two offenses.
+- [52:44.470] Class of 2026.
+- [52:47.930] You have never passed up an opportunity
+- [52:50.320] to prove your gumption to the world.
+- [52:54.230] All of you learned how to drop everything
+- [52:56.960] and get to inspection ready condition
+- [52:58.890] in exactly five minutes and 23 seconds.
+- [53:03.800] But beneath all the crazy stories and experiences,
+- [53:07.560] something serious and profound happened on this campus
+- [53:11.660] over the last four years.
+- [53:14.010] Over that time, this institution
+- [53:16.680] has been preparing you to inherit
+- [53:18.990] one of the greatest military traditions in the world.
+- [53:23.160] And that's not an exaggeration.
+- [53:25.660] This academy has a long and storied history.
+- [53:29.860] It inculcates some of the finest
+- [53:32.620] and most timeless values of our armed services:
+- [53:37.000] integrity, service, excellence.
+- [53:41.730] And you are the latest generation to join the proud,
+- [53:45.900] unbroken lineage,
+- [53:48.450] that strong blue line, you are its newest members.
+- [53:53.450] But one of the defining characteristics
+- [53:55.330] of American air power,
+- [53:56.620] and now space power, has always been its willingness
+- [54:01.000] to evolve alongside the nation it protects
+- [54:05.190] and the threats that we confront.
+- [54:07.600] You pay homage to the great tradition,
+- [54:09.890] but you also innovate for the future.
+- [54:13.530] There's a phrase in the military,
+- [54:16.250] and I've heard it a lot,
+- [54:18.430] which is no plan survives first contact with the enemy.
+- [54:23.930] You've probably heard it so many times by now
+- [54:26.620] that it barely registers.
+- [54:28.510] I heard it a lot when I was in the Marine Corps.
+- [54:31.460] But I've heard it more in the last 18 months,
+- [54:35.240] and it's taken on new meaning,
+- [54:37.960] because I've come to think that particular phrase
+- [54:43.290] explains something much larger than battlefield tactics.
+- [54:47.890] People like predictability; we like systems and routines
+- [54:52.090] and plans because they create the feeling that the future
+- [54:56.540] has already been negotiated on our behalf, it's easy.
+- [55:00.410] And so, we build strategic frameworks and technical models,
+- [55:04.800] we build slide decks and PowerPoint presentations
+- [55:07.530] with arrows moving confidently across maps all over the world.
+- [55:12.600] And for a little while at least, it works.
+- [55:16.640] The world feels orderly.
+- [55:18.960] But then something crazy happens, it's called reality.
+- [55:24.160] Adversaries surprise you; your plan falls through overnight,
+- [55:29.650] some asshole cuts you off in the middle of an operation
+- [55:35.880] and makes your blood pressure skyrocket,
+- [55:38.290] but you can't panic and you can't overreact,
+- [55:41.430] not even if it's three in the morning.
+- [55:44.130] And members of the Class of 2026.
+- [55:48.880] You are graduating into one of those eras where that reality,
+- [55:53.530] that unpredictability of warfare,
+- [55:55.490] is becoming impossible to ignore.
+- [55:58.660] Now, your nation, your vice president
+- [56:02.620] and the president of the United States
+- [56:04.210] who sends his very best,
+- [56:06.670] we ask you to apply that same adaptability,
+- [56:10.580] that same innovation that you learned at this academy
+- [56:14.020] to an entirely new era of warfare,
+- [56:17.820] one shaped by autonomous systems,
+- [56:20.670] AI and cyber operations.
+- [56:24.090] Technologies evolving far faster than military institutions
+- [56:28.600] have historically been accustomed to.
+- [56:32.100] Now, some of you will operate in the air,
+- [56:34.690] some in cyber and some in space. Many of you will hold jobs
+- [56:40.280] that would have sounded like science fiction
+- [56:42.360] to graduates of this academy even 20 years ago go,
+- [56:46.120] but the roles you're about to take are dead serious.
+- [56:49.970] And they are not science fiction, they are now reality,
+- [56:53.800] because our adversaries are studying this country every day.
+- [56:57.750] They're studying our military doctrine,
+- [57:00.570] they're studying our industrial capacity,
+- [57:03.620] they're setting our political divisions,
+- [57:05.840] our attention span, and new graduates,
+- [57:09.610] they are studying you.
+- [57:12.560] One of the defining facts for this particular class
+- [57:15.600] is that nobody can tell you the skills
+- [57:18.300] that you learned over the last four years
+- [57:20.760] will remain theoretical;
+- [57:22.460] they will become very practical and very real very soon.
+- [57:27.800] Airmen and guardians are serving their nation overseas right now.
+- [57:33.740] Across Operation Epic Fury, Absolute Resolve, Southern Spear
+- [57:38.320] and Midnight Hammer they've excelled in executing
+- [57:42.430] unimaginably challenging missions
+- [57:45.040] under real world combat conditions.
+- [57:48.360] And time after time, they've made us proud.
+- [57:50.350] They've accomplished things that the rest of the world
+- [57:54.030] quite literally thought were impossible.
+- [57:57.180] And trust me, I've seen the intelligence reports,
+- [57:59.930] your predecessors have done things that other people
+- [58:03.550] thought were impossible, and they did them anyway.
+- [58:08.000] And those adversaries woke up to realize
+- [58:22.230] that what they thought was impossible
+- [58:24.330] had been accomplished by our airmen and guardians.
+- [58:28.300] You had done them anyway.
+- [58:31.510] Now, when the president needs options,
+- [58:33.850] it's our Air Force and our Space Force
+- [58:35.900] who provide them, redefining what is possible mission
+- [58:40.730] after mission through sheer human daring.
+- [58:45.310] It is American air power
+- [58:46.570] that allows us to penetrate denied airspace
+- [58:49.630] and strike critical targets across enormous distances
+- [58:54.740] with speed, efficiency and precision.
+- [58:58.840] And when the president says he will not allow Iran
+- [59:01.600] to have a nuclear weapon,
+- [59:03.750] it is the men and women you will join in just 60 days
+- [59:08.270] who give force to that promise and to that guarantee.
+- [59:21.510] Now, because you will keep your end of the bargain
+- [59:25.660] with bravery and skill and dedication,
+- [59:29.610] you should expect some things out of your civilian leadership,
+- [59:32.780] out of the president, the vice president,
+- [59:35.480] the secretary of war.
+- [59:37.710] This is why we've pushed forward with the F-47
+- [59:41.570] and the Golden Dome
+- [59:42.850] and any number of new and advanced technologies.
+- [59:46.570] It's why the president has made improving
+- [59:48.970] military quality of life such a central focus;
+- [59:52.860] why he's insistent on increasing the defense budget
+- [59:56.000] to $1.5 trillion;
+- [59:58.560] and why he's proud to support pay raises,
+- [01:00:01.540] new barracks and new hospitals and new schools on base.
+- [01:00:05.650] We want you to be supported
+- [01:00:07.880] so that you can focus on the fight and focus on winning.
+- [01:00:20.340] And you're entering an Air Force,
+- [01:00:22.580] and this is maybe the thing the president
+- [01:00:24.220] and I are most proud of,
+- [01:00:25.980] is that we've seen extraordinary recruitment numbers.
+- [01:00:29.650] The men and women you will lead in the Air Force
+- [01:00:32.210] and the Space Force are passionate,
+- [01:00:35.090] they are ready to go, they are excited to serve,
+- [01:00:38.050] and they will look to you for the leadership of the future.
+- [01:00:42.960] The mission that we will ask them to do under your leadership
+- [01:00:49.500] will showcase the strength, the ingenuity,
+- [01:00:52.860] and especially the sound moral judgment of our warfighters.
+- [01:00:59.040] And I want to tell you that I saw this ingenuity very real
+- [01:01:04.140] when we had this incredible mission
+- [01:01:07.300] where the 494th Fighter Squadron
+- [01:01:10.330] lost a couple of pilots downed in Iran.
+- [01:01:13.620] Now we knew they were alive;
+- [01:01:15.430] we didn't know exactly where they were.
+- [01:01:19.070] The first confirmation that both crew members' beacons
+- [01:01:22.670] were active actually happened about a day
+- [01:01:26.150] after these pilots --
+- [01:01:28.530] or the second pilot, I should say, went down.
+- [01:01:32.020] And there was this period where we were worried
+- [01:01:34.230] that maybe he wasn't alive,
+- [01:01:36.570] and then this moment of joy when we realized that he was.
+- [01:01:39.640] But that moment of joy,
+- [01:01:41.430] that moment of celebration lasted very shortly
+- [01:01:44.960] because we knew we had somebody behind enemy lines
+- [01:01:47.570] that we had to go rescue.
+- [01:01:50.720] Now your Air Force, your future force went in there
+- [01:01:57.290] and did the impossible,
+- [01:01:59.190] sent airplanes into places where no one thought they could land,
+- [01:02:04.330] assembled helicopters on site, and went and retrieved
+- [01:02:09.300] an American pilot behind enemy lines.
+- [01:02:11.410] One of the most daring and amazing things
+- [01:02:14.020] that I've ever seen.
+- [01:02:24.640] But I've never told anybody this before.
+- [01:02:26.700] I was sitting in a secured conference room on the phone
+- [01:02:29.680] with our military leadership and our civilian leadership,
+- [01:02:33.590] and that operation hit a bit of a snag.
+- [01:02:36.580] And I think a lot of us were looking around and saying,
+- [01:02:39.470] are we worried here that this is not going to be
+- [01:02:41.760] as successful as we thought it might?
+- [01:02:45.220] But it was an Air Force general who said, Mr. President,
+- [01:02:50.480] Mr. Vice President, we've hit some snags,
+- [01:02:54.110] but I promise you, we're still going to get everyone out alive.
+- [01:02:57.290] And that was our great Chairman of the Joint Chiefs of Staff,
+- [01:03:00.890] Dan Caine.
+- [01:03:02.370] So smooth, so confident, and that's exactly what we did.
+- [01:03:10.890] And what we learned is that sometimes Plan A
+- [01:03:14.820] doesn't always work out,
+- [01:03:16.540] sometimes Plan B doesn't always work out.
+- [01:03:19.520] But the reason why the Air Force and the Space Force
+- [01:03:23.280] are so powerful
+- [01:03:24.810] is because they go from Plan A to Plan B to Plan C,
+- [01:03:28.520] and they execute time and time again.
+- [01:03:31.810] And that's what makes you the best Air Force
+- [01:03:34.170] and the best Space Force anywhere in the world.
+- [01:03:43.960] But that's the legacy of this academy.
+- [01:03:46.760] Since this institution's first commissioning in 1959,
+- [01:03:52.090] generations of airmen and guardians have carried
+- [01:03:56.450] that tradition through times of war.
+- [01:04:01.330] Some returned home as legends, pilots and crews
+- [01:04:05.120] whose daring would inspire books and films
+- [01:04:08.770] and direct the eyes of countless young Americans to the skies.
+- [01:04:14.070] Others, like the exemplar of your class,
+- [01:04:16.830] gave everything, sacrificing their lives for a nation
+- [01:04:20.840] that would forever grieve their loss.
+- [01:04:23.900] All these patriots helped write the story of American air
+- [01:04:27.450] power across the most consequential conflicts
+- [01:04:30.920] of the last 60-70 years.
+- [01:04:35.290] From the skies over occupied Europe to MiG Alley in Korea,
+- [01:04:40.620] to the long years of combat over Vietnam, Iraq, Afghanistan,
+- [01:04:45.670] generations of airmen have served their country
+- [01:04:48.580] with extraordinary skill and professionalism.
+- [01:04:51.740] And now, of course, it is our guardians leading
+- [01:04:54.280] that same mission into space and into cyber.
+- [01:04:59.120] Class of 2026.
+- [01:05:03.200] This tradition will very soon become your very own,
+- [01:05:07.220] something that gives you credibility,
+- [01:05:10.000] something that people look to you and say,
+- [01:05:12.040] you've got to be impressive
+- [01:05:13.330] because you've got on that beautiful uniform,
+- [01:05:15.730] but also something that you are entrusted to protect
+- [01:05:19.800] and to build on for the next generation.
+- [01:05:22.800] In 60 days, you will arrive at your first assignments
+- [01:05:26.980] and realize the distance between training
+- [01:05:30.440] and real-world operations
+- [01:05:32.380] is much shorter than you might have expected.
+- [01:05:36.010] You'll be given tasks that sound impossible,
+- [01:05:39.010] and you'll be leading senior enlisted folks,
+- [01:05:41.510] some of whom joined the Air Force
+- [01:05:44.370] or joined the Space Force before you were even born,
+- [01:05:47.940] but they will look to you for leadership.
+- [01:05:51.510] But you will also arrive prepared through world
+- [01:05:55.390] class academics and athletics of this institution,
+- [01:05:57.940] yes, but most importantly, through repeated exposure
+- [01:06:02.560] to intense fatigue, uncertainty, and responsibility.
+- [01:06:07.390] I love this phrase, No Quit, All Grit.
+- [01:06:10.450] And one thing I noticed while learning about your stories
+- [01:06:13.940] is how often, despite all your successes,
+- [01:06:17.460] things didn't always go exactly as you planned.
+- [01:06:21.320] Broken elevators during move in,
+- [01:06:24.900] painting the strips red only to spend the next week
+- [01:06:28.210] mopping them clean after a snowstorm.
+- [01:06:31.170] Speaking of which, snow, lots of snow in Colorado Springs.
+- [01:06:36.650] Snow during recognition.
+- [01:06:38.530] Snow during culminating exercises.
+- [01:06:41.560] Snow during seemingly every single major event
+- [01:06:45.320] but you didn't let it stop you.
+- [01:06:48.150] None of these stories are described
+- [01:06:51.830] by all of you bitterly; you just laugh about it,
+- [01:06:56.680] you carry on, you have the right attitude.
+- [01:06:59.890] And that's as good a sign as any that the amazing education
+- [01:07:04.070] you received has taken root.
+- [01:07:07.570] Most people spend their entire lives
+- [01:07:09.580] trying to eliminate uncertainty.
+- [01:07:12.300] America's greatest military institutions,
+- [01:07:15.240] such as this one, teach you to thrive in it.
+- [01:07:18.680] You thrive in uncertainty
+- [01:07:20.610] and that's what makes you so lethal.
+- [01:07:23.770] One of the reasons this country invests in institutions
+- [01:07:26.510] like this is because trust, versatility,
+- [01:07:31.050] and fortitude are always important,
+- [01:07:33.450] whatever the weapons and whatever the technology.
+- [01:07:36.850] And I think they become especially important
+- [01:07:39.660] the moment reality collides with our best hopes
+- [01:07:43.040] and our best plans for the battlefield.
+- [01:07:45.990] Cadets, as all of you know, this year our great nation
+- [01:07:49.660] will celebrate 250 years since the founding.
+- [01:07:54.180] Every new generation born in the United States
+- [01:07:57.510] inherits a civilization that was built by somebody else
+- [01:08:03.820] but must be built upon by the next generation.
+- [01:08:08.980] And with your commissioning that duty passes to you.
+- [01:08:13.140] The general, the superintendent,
+- [01:08:14.580] said something to me while you were marching out,
+- [01:08:16.970] and let me just say for your friends and family,
+- [01:08:19.750] did they look good marching out or what?
+- [01:08:29.880] I knew we had the toughest air Force and Space Force,
+- [01:08:32.620] now I know that we also have the best-looking Air Force
+- [01:08:34.990] and Space Force anywhere in the world.
+- [01:08:42.020] But the general said something to me he said, you know,
+- [01:08:43.910] sometimes I read headlines and it's easy to get sad
+- [01:08:47.520] or depressed about the state of this country.
+- [01:08:50.340] But when I look at you,
+- [01:08:51.930] when I look at the future of America,
+- [01:08:54.550] I feel great hope that we are
+- [01:08:56.440] and will remain the greatest country anywhere in the world.
+- [01:09:08.360] But with your commissioning the duty
+- [01:09:10.930] to make America the very best it can be,
+- [01:09:14.690] that duty passes to you. And now, Class of 2026.
+- [01:09:22.720] You join that long blue line at a moment
+- [01:09:25.820] when your nation needs your skill,
+- [01:09:28.390] your nation needs your adaptability,
+- [01:09:31.060] your nation needs your discipline,
+- [01:09:33.760] your sense of honor and your love of your fellow Americans.
+- [01:09:38.580] Now, as a lot of you, of course, know,
+- [01:09:41.120] we are in graduation season here in the United States.
+- [01:09:44.950] Hundreds of thousands of your fellow Americans,
+- [01:09:47.100] most of them civilian, have celebrated
+- [01:09:49.750] or will celebrate graduations during this season.
+- [01:09:54.770] But almost none of them will have your responsibility,
+- [01:09:58.750] quite literally decisions over life and death.
+- [01:10:03.080] And if you think about it,
+- [01:10:05.240] that responsibility comes from trust.
+- [01:10:08.300] Your nation gives you incredible responsibility
+- [01:10:10.980] because we believe in you. And this brings me to my final
+- [01:10:16.040] and maybe my most important point.
+- [01:10:19.440] You know, this is the only commencement speech
+- [01:10:21.490] that I'm giving this year, and so I've watched
+- [01:10:23.510] a few highlights of graduation speeches
+- [01:10:26.590] where this or that corporate leader
+- [01:10:29.550] will discuss artificial intelligence, AI,
+- [01:10:33.430] and be met with literal boos.
+- [01:10:35.930] Now you can't boo me,
+- [01:10:37.300] I'm the vice president of the United States,
+- [01:10:42.710] but your fellow Americans are understandably --
+- [01:10:45.400] they're worried about AI,
+- [01:10:47.560] about how it will affect the labor market,
+- [01:10:50.120] how it will distribute resources,
+- [01:10:52.550] and how it has fundamentally changed how we interact
+- [01:10:56.110] with one another, our social lives.
+- [01:10:59.320] But the thing I worry about most with AI
+- [01:11:01.990] is how it will change warfare.
+- [01:11:05.200] Now, Pope Leo the 14th in a recent document,
+- [01:11:08.440] encouraged us as human beings not to outsource
+- [01:11:13.140] the most important moral decisions to digital technology.
+- [01:11:18.410] And I want to endorse that sentiment
+- [01:11:21.560] and make it more specific to each and every one of you.
+- [01:11:26.290] AI will inevitably change warfare and,
+- [01:11:29.830] of course, as you've learned over the last four years,
+- [01:11:32.580] it already has.
+- [01:11:34.830] But one of the things that makes Americans unique,
+- [01:11:38.370] that makes you as warfighters unique,
+- [01:11:41.790] is that we wage war justly.
+- [01:11:45.830] But when I say that we, all of us, wage war justly,
+- [01:11:50.820] I mean fundamentally that you must do so
+- [01:11:55.720] because you are the ones who execute,
+- [01:11:58.050] you are the ones who lead on the battlefield.
+- [01:12:01.070] You are the ones who ensure that our lethality in war,
+- [01:12:04.990] which is amazing and necessary,
+- [01:12:07.540] it also coexists with our heart and with our conscience.
+- [01:12:12.330] It is an incredible burden to put on your shoulders,
+- [01:12:16.210] but it is one that we entrust to you with full confidence.
+- [01:12:20.230] And if the warfare of the future is to live up
+- [01:12:23.730] to the moral values of our ancestors,
+- [01:12:28.210] decisions over life and death
+- [01:12:30.800] must be made by humans and not machines.
+- [01:12:43.390] So, as AI transforms the battlefield in some ways
+- [01:12:47.600] positively, in some ways not,
+- [01:12:49.920] I ask that you be jealous and selfish about your role
+- [01:12:55.090] as a decision maker in warfare.
+- [01:12:57.840] Use technology to make you better but never submit to it.
+- [01:13:03.490] You are the masters of warfare and both your minds,
+- [01:13:08.300] but also your hearts are the opposite of artificial.
+- [01:13:12.740] Cadets, four years later,
+- [01:13:16.140] you are fundamentally different from the young men
+- [01:13:19.220] and women who first stepped in to the footprints on I-day.
+- [01:13:24.320] You have changed, absolutely,
+- [01:13:27.260] but the world has changed around you.
+- [01:13:30.050] And the mission to defend our United States,
+- [01:13:33.910] no matter what the world may throw at us,
+- [01:13:36.310] remains the same, and so does the deep gratitude
+- [01:13:40.760] that the rest of America feels for you.
+- [01:13:44.960] So, the Class of 2026. Congratulations.
+- [01:13:52.290] Your country is asking a great deal from you,
+- [01:13:56.300] but it would not be asking it if we didn't believe
+- [01:13:59.040] that you were capable
+- [01:14:01.060] of carrying that duty every single day.
+- [01:14:04.120] So, let me say, from the president of the United States
+- [01:14:07.230] and from the bottom of my heart to this class of cadets
+- [01:14:10.430] who will soon become officers, I am proud of you.
+- [01:14:14.220] I'm proud of you, I love you,
+- [01:14:16.540] and I'll be rooting for you every single step of the way.
+- [01:14:19.350] Congratulations, Class of 2026.
+- [01:14:23.530] (applause)
+- [01:14:57.850] Ladies and gentlemen, the cadet class president for 2026,
+- [01:15:02.810] cadet first class, Coby Machu. The summer cadet wing commander,
+- [01:15:07.980] cadet first class Parker Fitzgerald.
+- [01:15:11.640] The fall cadet commander, cadet first-class Robert Miller.
+- [01:15:16.100] And the spring cadet-wing commander,
+- [01:15:18.080] cadet first class John Costello will present the class gifts
+- [01:15:23.020] to the Vice President of the United States.
+- [01:15:26.550] (applause)
+- [01:15:38.200] Unidentified: Vice President Vance,
+- [01:15:39.970] for your dedicated service to our nation,
+- [01:15:43.410] to United States Air Force, to United State Space Force,
+- [01:15:46.770] and to United states Air Force Academy.
+- [01:15:49.290] It is with great pride that today's graduating class
+- [01:15:53.660] designates you by acclamation, an honorary member
+- [01:15:57.990] of the United States Air Force academy class of 2026.
+- [01:16:06.700] As tangible evidence of that honor,
+- [01:16:09.170] we ask that you accept this painting commissioned
+- [01:16:12.620] by Justin Hayward.
+- [01:16:14.250] Our legacy lives in our class painting,
+- [01:16:17.680] a tribute to the past, present, and future.
+- [01:16:21.780] The MH-47 honors past sacrifices
+- [01:16:25.500] and our exemplar, Master Sergeant John Chapman.
+- [01:16:28.390] The F-16 represents today's strength
+- [01:16:32.230] while the B-21 embodies tomorrow's boundless potential.
+- [01:16:39.050] (applause)
+- [01:17:04.760] (applause)
+- [01:17:30.020] Ladies and gentlemen, Brigadier General James M. Valpiani,
+- [01:17:34.310] the Dean of the Faculty.
+- [01:17:37.250] (applause)
+- [01:17:43.610] General Valpiani: Before presenting
+- [01:17:45.020] the entire graduating class to you,
+- [01:17:47.170] Vice President Vance, I would like to highlight
+- [01:17:49.630] a few individuals for special recognition.
+- [01:17:53.410] First, I call to your attention the 93 distinguished graduates
+- [01:17:58.580] who are listed at the top of your program.
+- [01:18:02.020] These cadets, by their overall performance,
+- [01:18:05.400] have placed in the top 10% of their class
+- [01:18:08.330] and have demonstrated excellence in accomplishing the academic,
+- [01:18:12.050] military, and athletic requirements for graduation.
+- [01:18:16.490] If we observe the custom of academic honors,
+- [01:18:19.340] each would be graduating either summa cum laude,
+- [01:18:22.830] magna cum laude or cum laude.
+- [01:18:25.850] Instead, we use the term distinguished graduate,
+- [01:18:30.150] more fitting in its promise of distinguished service
+- [01:18:34.140] to our nation.
+- [01:18:36.070] At this time, will the distinguished graduates
+- [01:18:39.060] of the Master Sergeant John Allen Chapman class of 2026.
+- [01:18:43.310] Please rise to be recognized.
+- [01:18:47.590] (applause)
+- [01:19:05.950] Thank you. Please be seated.
+- [01:19:09.470] Those identified in your program
+- [01:19:11.750] with an S beside their name are cadets graduating
+- [01:19:15.480] with the Academy Scholar Distinction,
+- [01:19:18.210] having completed a challenging academic enrichment path
+- [01:19:21.470] through the four-year core curriculum
+- [01:19:23.650] as part of the Martinson Honors Program.
+- [01:19:26.850] We would also like to recognize those cadets
+- [01:19:28.860] who have placed in the top 10% of our academic, military,
+- [01:19:33.680] and athletic programs.
+- [01:19:35.900] Identified in your program with a star by their names
+- [01:19:39.760] are cadets graduating with academic distinction.
+- [01:19:44.070] Those identified with a wreath besides their names are cadet's
+- [01:19:47.440] graduating with military distinction.
+- [01:19:50.720] And those identified in the program
+- [01:19:52.810] with a lightning bolt beside their names
+- [01:19:55.310] are cadents graduating with athletic distinction.
+- [01:19:59.920] Those exceptional 14 cadets
+- [01:20:01.860] graduating with all three distinctions are identified
+- [01:20:05.360] with the star within a wreathe resting on two lightning bolts.
+- [01:20:10.330] Please stand as I call your name.
+- [01:20:13.010] Robert Jacob Miller.
+- [01:20:19.840] Angelina Faith Harris. Lauren Taylor Burundi.
+- [01:20:32.190] Brianna K. Newberg. Graceland Anne Olinger.
+- [01:20:43.030] Hannah Grace Grover. Cole Thomas Fisco.
+- [01:20:53.730] Samantha Rose Loida. Raymond Vincent Rosenmerkel.
+- [01:21:05.550] Clayton James Kovman. Paul Michael Kronzer.
+- [01:21:16.800] Christopher Jackson Wilson. Maeve Irene Lidscott.
+- [01:21:28.650] And Max Joseph Ijeano Haas.
+- [01:21:36.110] Congratulations, you may be seated.
+- [01:21:41.040] In conclusion, a total of 931
+- [01:21:44.040] Air Force Academy cadets in this year's class
+- [01:21:47.160] have completed all graduation requirements.
+- [01:21:50.470] 136 of these warfighter scholars,
+- [01:21:53.540] 15% of the graduating class,
+- [01:21:56.210] will proceed directly to graduate school
+- [01:21:58.300] as their first assignment.
+- [01:22:00.650] We are also pleased to have in this class of 2026,
+- [01:22:06.170] 13 international students from Ghana, Jordan,
+- [01:22:11.150] South Korea, Malaysia,
+- [01:22:14.490] Marshall Islands, Nigeria, Philippines, Senegal, Singapore,
+- [01:22:22.340] Sri Lanka, Taiwan, Thailand, and Tunisia.
+- [01:22:28.900] (cheers and applause)
+- [01:22:41.550] Warfighter Scholars, it has been an honor and a privilege
+- [01:22:44.740] to serve as your dean.
+- [01:22:46.850] And now, it gives me great pleasure to present to you,
+- [01:22:51.590] Vice President Vance, the United States Air Force Academy,
+- [01:22:55.930] Master Sergeant John Allen Chapman, Sarge, Class of 2026.
+- [01:23:02.730] And recommend each as worthy
+- [01:23:05.270] of the Bachelor of Science degree.
+- [01:23:17.870] Ladies and gentlemen, Colonel Candice L.
+- [01:23:21.080] Hypes, Director of Admissions, and Dr. Hao A.
+- [01:23:25.210] Taylor Jr., Associate Dean for the Student Academic Affairs
+- [01:23:29.710] and Academy Registrar,
+- [01:23:31.040] will now present the diplomas to the graduating class of 2026.
+- [01:24:01.420] Unidentified: Graduates, please rise and come forward
+- [01:24:04.450] to receive your diplomas. Ladies and gentlemen,
+- [01:24:12.060] the Vice President of the United States,
+- [01:24:14.830] the Honorable J.D. Vance, joins us on stage
+- [01:24:18.500] to congratulate each of the graduates
+- [01:24:21.520] of the Class of 2026.
+- [01:24:58.180] Female Speaker: The class of 2026's number one cadet
+- [01:25:00.900] in overall performance and the class of 2026
+- [01:25:04.420] is number one Cadet in academic performance,
+- [01:25:07.850] Robert Jacob Miller.
+- [01:25:14.440] Angelina Faith Harris Lauren Taylor Morandi.
+- [01:25:25.050] Brianna K. Newberg.
+- [01:25:31.060] Graceland and Ollinger.
+- [01:25:35.650] Andrew Jung Young Kim.
+- [01:25:42.940] Annalise Christine Hesse-Molachio.
+- [01:25:48.350] Parker Ryan Fitzgerald.
+- [01:25:55.820] Hannah Grace Grover.
+- [01:26:00.510] Avery J. Earnten.
+- [01:26:06.110] Cole Thomas Biscoe.
+- [01:26:10.550] Joseph James Kalaszewicz.
+- [01:26:15.470] Samantha Rose Loida.
+- [01:26:19.940] Raymond Vincent Rosenmerkel.
+- [01:26:26.130] Zachary James Stevenson.
+- [01:26:30.860] Natalia Lenora Wright.
+- [01:26:36.950] Griffin Nicole Greenwood.
+- [01:26:41.520] A Nervin, a-Tor.
+- [01:26:47.220] Reagan Michelle Hitzler.
+- [01:26:51.820] Clayton James Kaufman.
+- [01:26:57.570] Paul Michael Kronzer.
+- [01:27:02.080] Haley Beth Tucker.
+- [01:27:07.690] Augustina Marie Decker Christopher Jackson Wilson.
+- [01:27:17.890] Maeve Irene Linscott.
+- [01:27:22.600] Mandy T. Wynn Fleetwood.
+- [01:27:28.280] Casey James Geerigan.
+- [01:27:32.810] Katerina Sophia Zickus.
+- [01:27:38.930] August Michael Ontaki Max Joseph Vigiano Haas.
+- [01:27:49.240] Cole Weston Cunningham.
+- [01:27:53.970] Griffin Charles Phillips.
+- [01:27:58.470] Kaden Doseph Cole.
+- [01:28:02.730] John Russell Costello.
+- [01:28:07.390] Annika Azure Spiker.
+- [01:28:11.580] Alexander Bransford 6.
+- [01:28:17.400] Zoe Elizabeth Brezhnev.
+- [01:28:21.970] Jacob Connor Lee Emma Grace Williams.
+- [01:28:31.680] Aidan Ashley Ward.
+- [01:28:36.080] John LeBeau Rust III.
+- [01:28:41.190] Alexander Kevin Pasquilino.
+- [01:28:47.030] Olivia Mills, full wear.
+- [01:28:51.640] Cody Michael Summer.
+- [01:28:56.190] Ellison Leanne Aarondine Rihanna Lee Applegate.
+- [01:29:06.020] Michael David Pelletier.
+- [01:29:11.160] Daniel Curtis Russell.
+- [01:29:16.110] Ian Scott Coleman.
+- [01:29:20.550] Kieran Estrella Burns.
+- [01:29:26.250] Alexandra Carolyn Skeen
+- [01:29:31.180] Peter Charles Marriott.
+- [01:29:36.180] Connor Brandon Diamond.
+- [01:29:40.900] Jack Eugene Tregellas II.
+- [01:29:47.420] Alexander Robert Rome.
+- [01:29:51.900] Isaac Max Barnum.
+- [01:29:56.740] Allison Lauren Peckham.
+- [01:30:01.230] Skyler Elizabeth Amina Tabib.
+- [01:30:07.410] Mira Bella Groydo Vestal
+- [01:30:12.980] Walker Bells.
+- [01:30:17.010] Samuel Tully Nissen.
+- [01:30:21.420] Joshua Graham wins.
+- [01:30:26.140] Reagan Christopher LeFevre.
+- [01:30:30.690] Raj Raghuland.
+- [01:30:35.460] John Samuel Loecker.
+- [01:30:40.970] Luke English Phillips.
+- [01:30:45.530] Lee Daniel McDonald.
+- [01:30:49.460] Sean Michael Smith.
+- [01:30:54.540] Ryan Naukip wins.
+- [01:30:59.970] Jason Hung-Ran Wang.
+- [01:31:05.400] Audrey Liddy Newcombe Ryan Matthew Fulhan.
+- [01:31:15.190] Andrew Joseph Kowaleski.
+- [01:31:20.060] Emily K. Adair.
+- [01:31:25.690] Brayden Dern Watt Cup.
+- [01:31:30.100] Luke Christopher Schlem.
+- [01:31:35.570] Jacob Bruce Marbaugh.
+- [01:31:40.430] NAM KOOK NIN
+- [01:31:45.170] Christopher Luciano Antonio Pombo.
+- [01:31:50.830] Joseph Song Eun Lee.
+- [01:31:56.170] Ryan Edward Rojas.
+- [01:32:00.830] Anna Renee Kowalczyk.
+- [01:32:06.130] Luke Alan Mocky
+- [01:32:10.160] Ty Anthony Huber.
+- [01:32:15.190] Jevanti Lord Eves.
+- [01:32:19.540] Leah Catherine Cook.
+- [01:32:25.420] John Michael Stevenson James August Bomer.
+- [01:32:35.690] Bowen Patrick Smith.
+- [01:32:41.200] Michael George Horry.
+- [01:32:46.280] Brayden Ronald Seekert.
+- [01:32:50.540] James Jackson Green.
+- [01:32:55.990] Luke Martin Childs.
+- [01:33:32.180] Will the remainder of the graduates of 2026,
+- [01:33:39.650] please come forward by squadron to receive your diplomas.
+- [01:33:50.210] Ladies and gentlemen, joining Vice President Vance on stage,
+- [01:33:54.930] to your left, the Secretary of the Air Force,
+- [01:33:58.640] the Honorable Troy Mink. To your right,
+- [01:34:02.300] the Superintendent of the air force academy,
+- [01:34:05.550] Lieutenant General Tony
+- [01:34:09.000] (inaudible)
+- [01:34:18.800] And the Dean of the Faculty,
+- [01:34:20.590] Brigadier General James Valpiani.
+- [01:34:38.270] Cadet Squadron One, Zachary Sebastian Brown.
+- [01:34:47.160] Madison Marie Karla
+- [01:34:52.350] Evelyn Victoria Carver
+- [01:34:57.490] Cameron Patrick Collins.
+- [01:35:02.250] Ryan Alexander Daunt.
+- [01:35:07.310] Connor David Dajewski.
+- [01:35:11.920] Joshua Eric Dimm.
+- [01:35:16.400] Christopher David Gardner.
+- [01:35:20.470] Joseph Edward Horley.
+- [01:35:25.410] Victor Huff.
+- [01:35:29.330] Amanda June Lee
+- [01:35:33.740] Mary Rachel Murphy.
+- [01:35:37.980] Paul Roy Norris
+- [01:35:42.590] Isabella Marie Roberts.
+- [01:35:46.660] Maximo Angus Roldan.
+- [01:35:51.800] Jacob Oliver Cemento.
+- [01:35:56.230] Spencer.
+- [01:35:57.480] John Seeker. Natawa sword process.
+- [01:36:05.040] Don Nielsen-Strawbridge.
+- [01:36:09.860] Camden Drew Swigert.
+- [01:36:14.060] Stephen Davis Barnier.
+- [01:36:18.440] Cadet Squadron Two, Jenna Husai Agareba.
+- [01:36:26.050] Ian Valerio Asuncion-Yohm.
+- [01:36:31.340] Marcus Alexander Verret
+- [01:36:35.950] Nicolina Elizabeth Brown.
+- [01:36:41.040] Philip Nathaniel Deaton.
+- [01:36:45.710] Dominic John Feliz.
+- [01:36:49.630] Creed Alan Finifron.
+- [01:36:54.680] Anna Catherine Greer.
+- [01:36:59.400] Connor William Head.
+- [01:37:04.750] Victoria Ann Leppard.
+- [01:37:08.770] William Elijah Matkin.
+- [01:37:14.290] Zarif bin Muhammad Zamrin.
+- [01:37:21.130] Thomas Everett Newell.
+- [01:37:25.540] Ethan Akhilesh Peterson.
+- [01:37:30.880] Aidan Joseph Quinn.
+- [01:37:36.280] Kalea Rose Salcedo.
+- [01:37:41.410] Christopher Quinn Smith.
+- [01:37:46.340] Joshua Tyler Stein.
+- [01:37:51.290] Carl Andrew Westermeyer.
+- [01:37:56.770] Cadet Squadron Three, Jonathan Andrew Brown.
+- [01:38:03.810] Levi Sterling Brown.
+- [01:38:08.420] Alayna Lynn Caron.
+- [01:38:12.900] Dylan James Carson.
+- [01:38:17.300] John Walsh Conroy.
+- [01:38:21.540] Tobias Tete-Jagmar.
+- [01:38:26.440] Cameron Edith Jones.
+- [01:38:31.160] Megan Kool-Aid Leon.
+- [01:38:35.840] Macklin Charles Luby.
+- [01:38:40.650] Lucas Christopher Morales.
+- [01:38:45.800] Michael Prescott Moritz Dean Park.
+- [01:38:54.530] Zachary Stephen Porter.
+- [01:38:58.730] Skyler Austin Quiroz.
+- [01:39:03.630] Kabir Rajpal Steve Carl Razizi.
+- [01:39:12.260] Jared Michael Rose.
+- [01:39:16.880] Joshua Cole Spence.
+- [01:39:21.130] Jaina Robb Swan.
+- [01:39:24.950] Abriana Renee Tillman.
+- [01:39:29.570] Austin James Wallace.
+- [01:39:33.840] Cadet Squadron Four, Ethan Josiah Ashley.
+- [01:39:40.840] Jack Anthony Bobo.
+- [01:39:45.100] Brian Everett Bradley, the second.
+- [01:39:50.050] Jillian Mae Carlson.
+- [01:39:54.970] Brace Carolyn Daly
+- [01:39:59.200] Gabriel Dollenta.
+- [01:40:02.790] Abdallah Mohammed Abdallah Jackson El Rahal.
+- [01:40:09.230] Aiden Connolly, X-TRAIN.
+- [01:40:13.780] Dance Rial Picasso Ferrer.
+- [01:40:18.700] Highly and green.
+- [01:40:23.910] Bridger Dolan Roethy.
+- [01:40:28.500] Gina Kang Lee.
+- [01:40:32.700] Kyle Edward Marder.
+- [01:40:36.980] Matthew Edmund McDonald.
+- [01:40:41.730] Brenna Ashlyn Mills.
+- [01:40:45.950] Valeria Sofia Pacheco-Lugo.
+- [01:40:51.400] Andrew David Richardson.
+- [01:40:55.940] Sebastian Carlo Rodriguez.
+- [01:41:00.690] Tyler Jordan Schoolcraft.
+- [01:41:05.460] Martin O'Neill Smith Richard Anthony Walker II.
+- [01:41:15.810] Brent Jackson Wimpley.
+- [01:41:20.330] Cadet Squadron 5, Hudson Thomas Basie.
+- [01:41:27.690] Isabel Eponine Boyer.
+- [01:41:33.490] Haley Marie Biscoe.
+- [01:41:37.790] John Anthony Boucher Jr.
+- [01:41:43.880] Hunter Roy Collins.
+- [01:41:47.800] Tatiana Jacqueline Ellison.
+- [01:41:54.030] Samuel Terry Floysen.
+- [01:41:58.520] Jack Griffith.
+- [01:42:09.370] Logan Joshua Johns.
+- [01:42:15.650] Patrick Charles Knessney Anthony John Lee.
+- [01:42:24.800] Osborne Ethan Melton.
+- [01:42:29.770] Malaika H.U.D. Fane.
+- [01:42:34.930] Brett James Oberly.
+- [01:42:39.890] Giorgio Augustus Simincione.
+- [01:42:44.920] Jacqueline Marie Spencer.
+- [01:42:49.570] Laura Marie Thompson.
+- [01:42:54.130] Cadet Squadron Six, Justin Alexander Boudreaux.
+- [01:43:01.660] SAGE Virginia Burger.
+- [01:43:06.650] Callie Anne Camerano.
+- [01:43:10.880] Jackson David Carter.
+- [01:43:15.550] Kurt Takumi Chesney Theodore Joseph Davenport.
+- [01:43:25.720] Maria Therese Davison.
+- [01:43:30.460] Zephyr, but really...
+- [01:43:35.720] Kurt Leon Evandelister
+- [01:43:39.510] Manning, John, fight.
+- [01:43:45.460] Allison Grace Gottschall.
+- [01:43:49.730] Nicholas John Gonzalez.
+- [01:43:54.460] Emerson Robert Kettler.
+- [01:43:58.670] Choe Lee Merritt-Clingison.
+- [01:44:03.660] Logan Simon Latchman.
+- [01:44:08.390] Jacob Ryan Lucero.
+- [01:44:12.940] Allen Joseph Monzo.
+- [01:44:17.310] Jacob Samuel Marshall.
+- [01:44:23.110] Lauren Carrington Mitchell.
+- [01:44:27.470] Michael Joseph Moravec.
+- [01:44:32.330] Dominic Ronald Seft.
+- [01:44:36.620] Lucas Angeles Simcoe.
+- [01:44:41.650] Aaron Kyle Steiger.
+- [01:44:46.220] Sebastian Ray Weidig.
+- [01:44:50.710] Cadet Squadron 7. Andrew Bezwick.
+- [01:44:58.190] Kayden Orion Bach.
+- [01:45:03.530] Jack Kresley Curtis Rikki Elizabeth Federal.
+- [01:45:12.680] Shawna Erin Ganley.
+- [01:45:17.320] Seth Michael Annenberg.
+- [01:45:22.230] Zane Michael Kenney.
+- [01:45:26.790] Brain. Poison. Combata.
+- [01:45:31.380] Jiangsu Lee.
+- [01:45:35.960] Landon Gaines Little.
+- [01:45:40.140] Lorna Elizabeth Lockery.
+- [01:45:44.630] Brock Kana Malani
+- [01:45:50.750] Makayla Faith McBride.
+- [01:45:55.300] Mesa Reed McCormick.
+- [01:46:00.290] Norman Nolan wins Lucas Ryan Owens.
+- [01:46:09.730] Anthony Marcello-Sebastian Ashley Lauren Spears.
+- [01:46:19.110] Mark Raymond Tang.
+- [01:46:23.750] Antonio Ray Thomas
+- [01:46:28.680] Cadet Squadron 8, Coby Cheek Achoo.
+- [01:46:36.210] Benjamin Ryan Char.
+- [01:46:40.810] Jack Edmund Cole.
+- [01:46:45.090] Zachary Dean Duesler.
+- [01:46:50.480] Micah Gulek, Free Guard.
+- [01:46:54.670] Mitchell Douglas Gillum.
+- [01:46:58.980] Brayden Charles Holler.
+- [01:47:03.120] Julian David King.
+- [01:47:07.850] Chloe Lynn Kinloch.
+- [01:47:14.340] James Lasoda.
+- [01:47:18.010] Jack Alan Marsh.
+- [01:47:22.440] Gianna Luisa Martina.
+- [01:47:28.160] Dustin Iuluni Kensley Ma.
+- [01:47:33.070] Scarlett Ashley Nation.
+- [01:47:38.120] Bobby, win.
+- [01:47:42.200] Ellison Tan New.
+- [01:47:46.770] Lillian Anderson, Ke'ida.
+- [01:47:51.450] Gunner, Stephen, Shaft.
+- [01:47:56.080] Tatiana Natasha Sparks.
+- [01:48:00.330] Reagan Rudolph Tubbs.
+- [01:48:04.740] James Rowland Winterfield.
+- [01:48:09.220] Cadet Squadron 9, Kenan James Barong.
+- [01:48:18.070] Gabrielle Reese Brown
+- [01:48:22.540] Samuel Paul Brown
+- [01:48:26.920] Bryan Wynn Powell.
+- [01:48:31.800] Shem Japheth Castillo.
+- [01:48:36.070] Campbell Nicole Dorsey.
+- [01:48:40.630] Joshua Thomas Kelly.
+- [01:48:44.950] Elizabeth Ye-Won Kim.
+- [01:48:50.320] Collin James Lowery Cassidy Solange Marsh.
+- [01:48:59.340] Jordan Elizabeth Martinez.
+- [01:49:03.700] Parker Lee Menafee.
+- [01:49:08.370] Tom Plango wins.
+- [01:49:14.420] Joseph Alan Norris.
+- [01:49:19.210] Joseph Christian Planis.
+- [01:49:23.960] Antony Rodriguez.
+- [01:49:28.320] Dustin James Shetler.
+- [01:49:33.600] Samuel Thomas Schmitt.
+- [01:49:38.010] Cassidy Lorraine Speaks.
+- [01:49:43.040] Joseph John Stelmach.
+- [01:49:48.190] Cadet Squadron 10, Emmanuel Mandok Achesa.
+- [01:49:56.170] Danny Meribeth Bryan.
+- [01:50:00.040] Thomas Dante Cantalupo.
+- [01:50:05.760] Ryle June Metrin from Rye.
+- [01:50:10.760] Collin Benjamin Dennis.
+- [01:50:15.660] Isabelle Lennox Flash Jacob Mitchell Freeman.
+- [01:50:25.560] Ava Marin Hutcherson Nathaniel Aaron Klein.
+- [01:50:34.900] Ethan Christian Lehman.
+- [01:50:39.870] Charles Joseph Long.
+- [01:50:44.490] Vincy Ria Mendoza.
+- [01:50:48.930] Seth Eugene Ramsey.
+- [01:50:54.440] Joseph Randall Shearer.
+- [01:51:01.260] Nicholas Jackson Flaveras.
+- [01:51:06.650] Gryle James Weldon Carroll.
+- [01:51:13.280] Jacob Wirth, wheelhower.
+- [01:51:42.140] Ladies and gentlemen,
+- [01:51:43.900] joining Vice President Vance on stage,
+- [01:51:47.190] to your left, the Chief of Staff of the Air Force,
+- [01:51:50.980] General Kenneth Wilsbach.
+- [01:51:53.480] To your right, the chief of space operations, General B.
+- [01:51:57.840] Chance Saltzman. Cadet Squadron 11.
+- [01:52:04.370] Dylan Thomas Blanchard.
+- [01:52:09.070] Jessica Marie Bosch
+- [01:52:12.820] Justin Tanner Byrd.
+- [01:52:16.970] Kostin Jason Cooley
+- [01:52:21.300] Bethany Grace Fruz.
+- [01:52:25.300] Madison Lee Gallagher.
+- [01:52:29.590] Nicholas John Gaudioso
+- [01:52:33.790] Peyton will haunt.
+- [01:52:37.670] Skyler Kieran Hartley.
+- [01:52:42.310] Brooks Christopher Jeffords.
+- [01:52:46.970] Ian Alexander Miles.
+- [01:52:51.550] Zane Gabriel Nathan.
+- [01:52:56.160] Benjamin Everett Nignogo.
+- [01:53:00.650] Aiden James Quigley.
+- [01:53:05.010] Ethan Scott Smith
+- [01:53:09.300] Sienna Kaleila-Summers.
+- [01:53:13.200] Stephen Charles Timberlake.
+- [01:53:17.890] John Oogwang Whacker.
+- [01:53:22.210] Nicholas Palmer Wright.
+- [01:53:25.970] Cadet Squadron 12, Roger Isaiah Beyesa.
+- [01:53:33.230] Samuel Corey Byer.
+- [01:53:38.120] Louis Frederick Bodie the 6th.
+- [01:53:43.310] Jack Henry Breece.
+- [01:53:47.830] Chances, Hasani Carter-Hill.
+- [01:53:52.870] Finn McKinley Dallas.
+- [01:53:58.120] Peyton Bell Farrell.
+- [01:54:02.470] Presley Chase Gabriel.
+- [01:54:07.020] Ashley Ye Hong Griffin.
+- [01:54:11.740] Liam Patrick Hanson.
+- [01:54:15.990] Jose Andres Hernandez-Bueso.
+- [01:54:21.240] Jacob Allen Huber.
+- [01:54:26.070] William Baylor Hunt Lucas David Kinegar.
+- [01:54:34.600] Jack David Ploice.
+- [01:54:38.900] Annabelle Laura Lee Roberts.
+- [01:54:43.840] Mariana Elise Rojas.
+- [01:54:48.800] Kriyanna Abalos-Shaw.
+- [01:54:53.410] Darius Yamar Stowe Aaron Bryce Wilford.
+- [01:55:02.390] Chloe Elise Weinreiner.
+- [01:55:06.780] Cadet Squadron 13, Emma Lee Bingen.
+- [01:55:15.570] Isaac Andrew Daniels Jacob DeLorean Dorsey.
+- [01:55:24.220] Jacob Robert Ellis.
+- [01:55:28.790] Bruin Mold Fleischmann.
+- [01:55:33.750] Joseph Michael Guevara.
+- [01:55:38.480] Elijah Pritchard Jennings
+- [01:55:43.900] Weihong Liao!
+- [01:55:47.410] Sophia Grace Lopiccolo.
+- [01:55:52.920] Arjuna Lawrence Matthews.
+- [01:55:57.770] Albert Emanuel Mercado.
+- [01:56:02.470] Ella Marie Ruddick.
+- [01:56:06.420] Matthew Folger Seale.
+- [01:56:11.280] Jaylee Ann Sherman.
+- [01:56:16.130] Destiny J. Spell.
+- [01:56:20.980] Tyler James Zeiss.
+- [01:56:25.540] Lucas Bennett-Wilson.
+- [01:56:31.200] Benjamin Lian Xian Yan.
+- [01:56:35.610] Eric Yu.
+- [01:56:38.970] Cadet Squadron 14, Ashley Marie Bible.
+- [01:56:45.810] William Holbrooke Bishop.
+- [01:56:50.280] Gabriel Thomas Cappacoto.
+- [01:56:54.490] Angel Ami Nerve.
+- [01:56:59.240] Amanda Marie Flores Luke Carpenter Freer.
+- [01:57:07.560] Sophia Rose Gentilly.
+- [01:57:12.650] Kai Scott John
+- [01:57:17.680] Anderson Isaco Mackenzie on my leg.
+- [01:57:26.790] Luke Henuel Matthews Jamar Anthony Price.
+- [01:57:36.340] Beatrice Elizabeth Howell Shea.
+- [01:57:40.820] Joshua Bryan Smith.
+- [01:57:45.440] Jace Latham-Sutulovich.
+- [01:57:49.890] Alexander Michael Thune.
+- [01:57:54.860] Jack Stephen West.
+- [01:57:59.460] Nathan Allen Wendell.
+- [01:58:03.110] Brendan Gunton-Woo Cadet Squadron 15.
+- [01:58:12.870] Douglas Edson.
+- [01:58:15.750] Daniel Henry Anton.
+- [01:58:20.110] Cody Storm, both champs.
+- [01:58:24.100] Maggie Diana Fenton.
+- [01:58:28.490] Blake Raymond Boyd
+- [01:58:32.730] Ariane Littrell-Furr.
+- [01:58:37.260] Hailey Elizabeth Chagueras.
+- [01:58:42.220] Brayson Hayes Childress.
+- [01:58:46.790] Catherine Elise Clay.
+- [01:58:51.290] Tianne Safin-Dailey.
+- [01:58:55.820] Catherine Marie Dingwall.
+- [01:59:00.780] Hanani Celeste Doña.
+- [01:59:05.540] Nicholas Anthony Geroch Ryan John Jardine.
+- [01:59:14.960] Eric Bruce, Levering House.
+- [01:59:19.510] Katelyn Louise Murren.
+- [01:59:23.720] Hunter Austin Signs.
+- [01:59:28.690] Joseph Adam Surpass Samantha Grace Sharp.
+- [01:59:38.110] Julie Ann Sims.
+- [01:59:42.410] Matthew Chisick Sparley.
+- [01:59:46.840] Victor McKenzie Wong.
+- [01:59:59.720] Joseph Burnett.
+- [02:00:03.300] Elyse Catherine Bell.
+- [02:00:07.590] Parker Leann Brown.
+- [02:00:12.060] Irene W. Troy.
+- [02:00:17.370] Fallon Maria Eggett.
+- [02:00:21.360] Parker J. McLeod.
+- [02:00:24.240] Evans, Alvaro Miguel Fonseca.
+- [02:00:31.320] Nathan Polis Malachi Littrell-Greenman
+- [02:00:45.250] Tyler Dean Nguyen.
+- [02:00:50.040] Kamari Travell Jackson.
+- [02:00:54.440] John Wesson Johnson.
+- [02:00:59.000] Ryan Peter Kovacs.
+- [02:01:03.890] Natasha Isabel LaBeer's Schusterman.
+- [02:01:09.580] Aaron James Luard Jaden Thomas Liu.
+- [02:01:18.870] Tyler Lee Miller.
+- [02:01:22.570] Rich James Owen.
+- [02:01:27.060] Evan John Kaleikamaka Ling Rao.
+- [02:01:33.240] Brennan Clay Setty.
+- [02:01:37.600] Noelle Victoria Shanks.
+- [02:01:42.650] Lauren Victoria St. Clair
+- [02:01:47.430] Ryan Martin Staddlemire.
+- [02:01:52.050] Cadet Squadron 17, Lillian Catherine Campbell.
+- [02:01:59.660] Nathan Patrick Krause.
+- [02:02:04.070] Lauren Joanne Dahl
+- [02:02:09.060] Evan Andrew Dickeymore.
+- [02:02:13.150] Mom, us, joke.
+- [02:02:17.580] Gershon Marouk Ellis.
+- [02:02:22.230] Brennan John Hughes.
+- [02:02:26.810] William Edward Jameson.
+- [02:02:31.140] Ansley Elizabeth Johns Thomas Gennady Kinzinger.
+- [02:02:40.600] Melissa Carr-Kline.
+- [02:02:45.230] Anthony Lumia, the fourth.
+- [02:02:49.880] Robert James McDougall III.
+- [02:02:55.680] Alex John Perugannon Moore.
+- [02:03:00.960] Raymond Holt-Olephant.
+- [02:03:06.020] Emile David Olivier.
+- [02:03:10.170] Joseph Vince Favis Paz.
+- [02:03:15.570] Raymond Mitchell Picard.
+- [02:03:20.580] Harris Clark Powers.
+- [02:03:25.190] Ella Marie Seidl.
+- [02:03:29.620] William Harrison DeVille Smith.
+- [02:03:34.790] Shaquille Lamon Watson, Jr.
+- [02:03:40.110] Julian Kendall Wayne Cadet Squadron 18.
+- [02:03:48.930] Anna Mary Catherine Hardorff.
+- [02:03:53.880] Ava Marie Biker
+- [02:03:58.090] Christopher Michael Bischoff.
+- [02:04:03.170] Lydia Grace Chen
+- [02:04:07.230] Kevin Griffin Cook.
+- [02:04:11.570] Kyle Harris Corbin.
+- [02:04:15.940] Jack Charles Deshuden.
+- [02:04:21.190] Daniel Raymond Dinsmore.
+- [02:04:25.600] Emma Jo Foster.
+- [02:04:30.070] Cody James Jones.
+- [02:04:34.670] Kaitlyn Nicole Canis.
+- [02:04:39.240] Ava Rose Kelly.
+- [02:04:43.710] Rayvion McHale Light Book.
+- [02:04:48.650] Macy Paige Marks.
+- [02:04:52.960] Mason James Mahor.
+- [02:04:58.670] Brandon Malik Miller Spencer Paul Norris
+- [02:05:08.490] Peyton Bryce Nunn.
+- [02:05:12.840] Hunter Hill Pansy.
+- [02:05:17.480] Madeline Marie Rucker
+- [02:05:21.900] Leonard Dirk Siegfried.
+- [02:05:26.390] Avery Christian Taylor.
+- [02:05:30.750] Jody Troy Van Dome.
+- [02:05:34.810] Cadet Squadron 19. Lydia Grace Barnett.
+- [02:05:42.020] Samuel Douglas Bodely.
+- [02:05:48.780] I am a Michelle Castell.
+- [02:05:53.070] Austin Gerald Curtis Nicholas Dale Davis.
+- [02:06:01.730] Eris Jade Dugan Christian Raoul Duran
+- [02:06:11.550] Hannah Mary Dikens.
+- [02:06:17.720] Omar Al-Sayed Imara.
+- [02:06:22.580] Matthew Robert Goley.
+- [02:06:27.630] James David Holcomb.
+- [02:06:31.960] Alexander Heike Joseph Lasila.
+- [02:06:38.300] Tyler Willis Laburn Latham.
+- [02:06:43.490] Alexander Anatoly on Metcalfe.
+- [02:06:49.220] Iquanisha Haldonia Mitchell.
+- [02:06:53.820] Jayden Timothy Nance.
+- [02:06:59.230] Todd Olson.
+- [02:07:02.630] Nicholas William Post.
+- [02:07:07.060] Cassie Jasmine Sams.
+- [02:07:11.500] Sarah Jordan Scofield.
+- [02:07:16.060] Hunter Daniel Scholes.
+- [02:07:20.650] Jocelyn Anaya Stevenson.
+- [02:07:26.430] Bouldery Tools.
+- [02:07:29.860] Inchamac Bow Drew Evan Weddle.
+- [02:07:38.980] Cadet Squadron 20, Wyatt Anderson Bailey.
+- [02:07:46.560] Ava Nanami Bryden.
+- [02:07:50.860] Audrey Sarah Grace Carr
+- [02:07:55.780] Harrison Paul Cate
+- [02:07:59.920] Noah Francisco Chavez.
+- [02:08:04.850] Colton Clark Cornell.
+- [02:08:09.000] Logan Anna Davis
+- [02:08:13.090] Logan Macado Diaz McNeil
+- [02:08:18.530] Paige Elizabeth Doloff.
+- [02:08:23.230] David Andrew Elliott, vocal song.
+- [02:08:28.920] Daniel Trace Groby
+- [02:08:34.410] Jonas Timothy Roe
+- [02:08:39.050] Isaiah Darius Henry Simpson.
+- [02:08:44.800] John Alan Jacobs.
+- [02:08:50.020] Tanner Noah Lindahl.
+- [02:08:54.210] Addison Mae Moore.
+- [02:08:59.350] Eric Joseph Randall.
+- [02:09:03.620] Matthew Preston Rosado.
+- [02:09:08.870] Luke Nikita Shippers
+- [02:09:13.720] Therese Gabrielle Smitt.
+- [02:09:18.510] Jamie Devante Snyder.
+- [02:09:23.500] Jordan Jasmine Schwann.
+- [02:09:28.310] Addison Everett Unsworth.
+- [02:10:15.340] Ladies and gentlemen,
+- [02:10:17.160] joining Vice President Vance on stage, to your left,
+- [02:10:21.860] the Superintendent of the Air Force Academy,
+- [02:10:25.010] Lieutenant General Tony
+- [02:10:26.870] (inaudible), and the Commandant of Cadets, Colonel Brandon
+- [02:10:30.650] Teyes.
+- [02:10:32.840] To your right, the Vice Superintendent
+- [02:10:36.140] of the air force academy,
+- [02:10:38.110] Brigadier General Nicholas Evans and the commander of the 306
+- [02:10:42.770] Flying Training Group. Colonel Nancy Taylor.
+- [02:10:48.520] Cadet Squadron 21.
+- [02:10:51.510] Frans-Ian Bienvenido, Suico, Abugado.
+- [02:10:58.700] Jackson Joseph Adams.
+- [02:11:03.110] Lily Anne Backel.
+- [02:11:07.640] Dana Jasmine Bulmas.
+- [02:11:12.200] Sabrina Deli Basso.
+- [02:11:16.740] Daniel Pearson Detson.
+- [02:11:21.770] Beau Malloy Edwards.
+- [02:11:26.230] Thomas Nicholas Hamilton.
+- [02:11:31.290] Christopher John Pettit Joshua Simon Jansen.
+- [02:11:43.470] Solomon George Jones.
+- [02:11:47.760] Matthew One. Michael Lezable Lodzkar.
+- [02:11:58.270] Cowley Irene McCormick.
+- [02:12:02.720] Arianna Nicole Pontoni.
+- [02:12:07.690] Paul McGuire Rassus Charles Patrick John Reilly.
+- [02:12:18.530] Elijah Lee Rodriguez.
+- [02:12:23.760] John Thomas Rodriguez.
+- [02:12:28.130] The class of 2026's number one cadet
+- [02:12:32.790] in military performance, Jane Mariel Santamor.
+- [02:12:41.420] Leighton Chantry Tippie.
+- [02:12:45.890] Joseph Paul Urbanovitz.
+- [02:12:50.610] David Garrett Wright
+- [02:12:54.940] Cadet Squadron 22, Kirthana Avaru.
+- [02:13:04.370] Morgan Elizabeth
+- [02:13:06.740] or Rosa. Yaysin Bupacar-Ide.
+- [02:13:15.300] Joseph Frank Collier.
+- [02:13:25.610] Cooper Wisdom Feinberg.
+- [02:13:30.330] Ty Isaiah Gopal. Andrew Thomas Kenney.
+- [02:13:40.230] Luke Hans Kirchmeyer.
+- [02:13:45.130] Tucker McLean-Lorentz.
+- [02:13:49.760] Aiden O'Brien McNally.
+- [02:13:53.750] Ian Gray Crawford Meredith.
+- [02:13:58.810] Michael Daniel Murphy.
+- [02:14:03.270] Tyler Orr.
+- [02:14:06.610] Madeline Marion Schumann.
+- [02:14:11.390] Wyatt Christopher Shamblin.
+- [02:14:15.720] Tyler Dadi-Tien.
+- [02:14:20.410] Cadet Squadron 23. Katelyn Diane Andrist.
+- [02:14:29.060] Riley Sofia Owl.
+- [02:14:33.750] Aston Kenneth Blair.
+- [02:14:37.890] Mackenzie Elizabeth Boney.
+- [02:14:42.960] Pielo Paras Cabrera.
+- [02:14:47.500] Aliyahna Patricia Coleman.
+- [02:14:52.560] Thomas Jack De La Fuente.
+- [02:14:57.080] Michelle Junah Delaney.
+- [02:15:02.470] Brianna Louise Dempsey.
+- [02:15:07.430] Letcher, Addison, Hood.
+- [02:15:12.140] Richard Levi Jensen.
+- [02:15:17.030] Nathaniel Kendall Joseph.
+- [02:15:22.640] Zachary Daniel Juckel.
+- [02:15:27.500] Logan Tyler Kelly
+- [02:15:32.150] Ian Hyun Joon Kim.
+- [02:15:36.910] Evan William Large.
+- [02:15:41.470] Kaden Michael Labberti.
+- [02:15:45.940] Kylee Madison McElroy.
+- [02:15:50.650] Todd Paul Oster, Jr.
+- [02:15:56.470] Andrew James Palmer.
+- [02:16:01.600] Abigail Marie Roederer.
+- [02:16:06.770] Brian Richard Schaefer, Jr.
+- [02:16:12.540] Sean Michael Schofield.
+- [02:16:17.300] Luke Joseph Versanski.
+- [02:16:21.940] Madeline Michelle Zotter.
+- [02:16:26.750] Cadet Squadron 24, Emily Catherine Adams.
+- [02:16:34.510] Mary Elizabeth Allen.
+- [02:16:38.970] Hadar Yusuf Aran Florence Andy Arevalo.
+- [02:16:48.570] Artur Kishtov-Bojahovsky.
+- [02:16:54.830] Jacob Ethan Bolseco Jade Catherine Crowe.
+- [02:17:03.830] Travis Aaron Dugan.
+- [02:17:08.690] Massimo Orion Grisotto
+- [02:17:14.230] Jacob Lee Kearns
+- [02:17:18.760] Allison Louise Inge.
+- [02:17:24.390] Andrew Benjamin Katz.
+- [02:17:28.760] Jonas George K.
+- [02:17:33.530] Erin Kim.
+- [02:17:37.320] Jalen Davis Lipscomb.
+- [02:17:44.130] Ryan Christopher Molliman.
+- [02:17:48.920] Dylan Matthew Nicholson Emily Georgia Person.
+- [02:17:59.240] Fisher Anderson Pruitt.
+- [02:18:03.980] Liam Jeffrey Pryor.
+- [02:18:08.450] Juliana Lee Romano.
+- [02:18:13.780] Suresh Singh Thakur!
+- [02:18:18.560] Luciano De Sinte, Taurus Marion.
+- [02:18:24.060] John Brody Whitman.
+- [02:18:29.080] Walker, Webb, Zapp.
+- [02:18:33.510] Cadet Squadron 25, Sydney Joseph Evering III.
+- [02:18:42.010] Alan Carlos Davis.
+- [02:18:47.290] Nolan Philip Harris.
+- [02:18:51.810] Caleb Andrew Goon.
+- [02:18:56.280] Caleb Gerard Killian.
+- [02:19:01.030] Karen Grace Holter.
+- [02:19:06.600] Maya Caprice LeFaire.
+- [02:19:11.200] Nova Marie Kroll.
+- [02:19:16.100] Michael Jacob Martin.
+- [02:19:20.780] Bryce Edward Lynch.
+- [02:19:25.240] Emily Michelle Rhodes.
+- [02:19:30.260] Jamie Kim Ottenbrite.
+- [02:19:35.400] Nathaniel Philip Schrode.
+- [02:19:41.200] Dylan Huching Taninko.
+- [02:19:48.720] Neo Shingen Takazawa.
+- [02:19:55.350] Catherine McCafferty, WAUDA.
+- [02:20:00.260] Antonio Ronald Tornis.
+- [02:20:11.570] Leila Angelina Bull.
+- [02:20:17.100] Carson Corey Yingley.
+- [02:20:22.150] Cadet Squadron 26. Jacob Dillon Chavis.
+- [02:20:33.070] David Michael Klein
+- [02:20:37.510] Isaiah Michael Anthony Clingscales.
+- [02:20:42.820] Evelyn Marie Crowe.
+- [02:20:47.000] John Brandon Cunningham.
+- [02:20:51.370] Patrick John Duggan.
+- [02:20:55.680] Samantha Lynn Emma.
+- [02:21:00.770] Gaffin Richard Rose.
+- [02:21:04.660] Larabee, Lovejoy, Fulcher.
+- [02:21:09.510] Joshua Young Kim.
+- [02:21:13.570] Daewon Hwan.
+- [02:21:17.330] Sampson David McClung.
+- [02:21:22.040] Zion DiMario Porter Judd Harley Pringle.
+- [02:21:31.210] Collin Russell Stewart.
+- [02:21:35.510] Nell Marie White.
+- [02:21:39.480] Grayson Brooke Whirley Kylie Storm Rae.
+- [02:21:47.860] Axeladio Alberto Zingotira.
+- [02:21:53.150] Cadet Squadron 27, Lawson William Balder.
+- [02:22:01.320] Luke Anthony Bradley
+- [02:22:06.250] Colin Jason Chase.
+- [02:22:11.130] Leilani Sierra Leila Costello.
+- [02:22:16.840] Parker James Douglas.
+- [02:22:21.440] Kaylin Harrison Driggs.
+- [02:22:26.030] William Reagan Gray Skyler Tyson Henry.
+- [02:22:36.030] Imani Christine Upprance.
+- [02:22:41.540] Dennis Christian Eremia.
+- [02:22:46.530] Bruce Jeong-dae Kim.
+- [02:22:51.170] Brady Kenneth Pennington.
+- [02:22:56.770] Nalani Cheyenne Perry.
+- [02:23:01.460] Marissa Rose Pecone.
+- [02:23:05.740] Jennifer Ann Ryman.
+- [02:23:10.560] Jaden Semesino-Smith.
+- [02:23:16.630] Wait, do we start?
+- [02:23:20.890] Aiden Elijah Warren.
+- [02:23:25.450] Elijah Kenneth Wilcox.
+- [02:23:29.850] Abigail Iris Wilson.
+- [02:23:34.970] Cadet Squadron 28, Vance Payton Carew.
+- [02:23:41.510] Tomas Angel Francis.
+- [02:23:45.930] Riley Paige Hill.
+- [02:23:50.380] David Isaac Ignacio.
+- [02:23:54.740] Paul Robert McGee.
+- [02:23:59.260] Tusajigwe Sekilaga Owens.
+- [02:24:05.710] Jillian Renee Restolo.
+- [02:24:11.010] Kevin Andres Rivera-Garcia
+- [02:24:16.210] Jordan Reeve Scarborough.
+- [02:24:20.330] Bryce Shelton.
+- [02:24:24.340] Brandon G. Min Son.
+- [02:24:29.140] Kaimen Sway!
+- [02:24:33.240] Blaine Arthur Williams.
+- [02:24:37.570] Sarah Grace Willis.
+- [02:24:42.410] Scott Carl Winger.
+- [02:24:47.130] Cadet Squadron 29, Stephon Erickson Anthony.
+- [02:24:55.290] Dylan Adam Barrios.
+- [02:24:59.150] William Alexander Beeman.
+- [02:25:03.970] Logan Joseph Clarida Gabriella Maureen Tepowsky.
+- [02:25:13.720] Damian Alexander Gregory.
+- [02:25:18.120] Alexander Arthur Gunby Natalie Pola Hayes.
+- [02:25:27.680] Flowy Marie Hill.
+- [02:25:32.120] Austin Robert Hutchings.
+- [02:25:36.190] Gunner, John, quit stand.
+- [02:25:41.000] Bryce Matthew Leopold.
+- [02:25:50.230] Marcus Jerome McCarty Brooks Whitson Morrell.
+- [02:26:00.930] Amelia Julia Patterson John Lyndon Seeger.
+- [02:26:08.270] Um Joon Seon
+- [02:26:15.700] Tyler Michael Spaulding.
+- [02:26:21.090] Garrett Samuel Sterp.
+- [02:26:25.660] Jackson Troy Bortle.
+- [02:26:31.380] Kersen Jett Watkins.
+- [02:26:36.180] Tyra Nicole Watkins.
+- [02:26:41.120] Jonathan Scott Watson.
+- [02:26:45.710] Tyne Ophelia Watts.
+- [02:26:51.120] Cadet Squadron 30, William Stephen Barber.
+- [02:26:59.180] Brendan Michael Barnes.
+- [02:27:04.380] Roy Ivan Castellanos.
+- [02:27:08.850] Piper Lynn Davenport.
+- [02:27:14.660] Rocco Francis Deppi.
+- [02:27:19.270] Terrence Jamal Guest.
+- [02:27:24.020] Kaylee Jade Hilbert.
+- [02:27:28.740] Carter Scott Hudson.
+- [02:27:33.390] Ethan Yu-Sung Hwang Connor Ryan Lindar.
+- [02:27:43.190] Sole Kaila Montava.
+- [02:27:48.110] Tyler Michael Chin.
+- [02:27:54.670] Trevian Andre Searles, Jr.
+- [02:28:00.980] Ella Grinja Stepanouskas
+- [02:28:06.060] Solomon Alexander Stoddard.
+- [02:28:11.450] Luke Anthony, gone.
+- [02:28:16.600] Cadet Squadron 31. Zydliqi Allen Jr.
+- [02:28:25.940] Nice going,
+- [02:28:55.290] nice going, sorry, sorry.
+- [02:29:10.910] Ladies and gentlemen, joining us on stage,
+- [02:29:14.810] to your left, the director of athletics, Mr. Nathan Pine,
+- [02:29:20.310] and to your right, Colonel Stephanie Silva,
+- [02:29:24.680] space detachment.
+- [02:29:30.890] Martiana Danae Chamness.
+- [02:29:38.310] Michael Patrick Faze Anna Josephine Lin.
+- [02:29:48.940] Mihael Vladimirovitch Galaktianov
+- [02:29:54.510] Jafon Nathaniel Gray.
+- [02:29:59.640] Derrick Wilson, she, you.
+- [02:30:04.070] Ebony Kenya Josie.
+- [02:30:09.270] Dylan Matthew Miners Jayden Riley Wang Alamaris.
+- [02:30:19.040] Hannah K. Peterson. Amelia I. Ruther.
+- [02:30:28.940] James Darius Sagar.
+- [02:30:35.260] Maxwell Michael Sands.
+- [02:30:39.730] Harshee Sharma.
+- [02:30:44.040] M-E-C!
+- [02:30:47.490] Hayden Fuller Schwartz.
+- [02:30:51.920] Jaren Steven Switzer Thomas Michael Weingart.
+- [02:31:00.980] Robert Reese Wharton
+- [02:31:05.610] Kayden Paul Zipwold.
+- [02:31:10.070] Cadet Squadron 32, Christopher Todd Altier Jr.
+- [02:31:18.890] Evan Elias Arnall.
+- [02:31:24.040] Thomas Belville.
+- [02:31:27.790] Douglas Kendall Campbell
+- [02:31:31.980] Jacob Benjamin Cook.
+- [02:31:37.130] Abigail Grace Cotuna.
+- [02:31:42.210] Stewart dialed
+- [02:31:46.020] LUKE FECTO
+- [02:31:50.010] Aston Lawrence Higgerson.
+- [02:31:55.470] Ethan Aang Wang.
+- [02:31:59.490] Talmadge Lee Halliwell.
+- [02:32:04.130] Luke Hampton Hurley!
+- [02:32:09.050] Odalis Aleli Martinez Elizondo.
+- [02:32:14.810] Cassandra K. Nixon.
+- [02:32:20.180] Jayden Myles Pierre.
+- [02:32:24.220] The noble Christian Rasmussen.
+- [02:32:29.980] Nathan Owen Sanders.
+- [02:32:34.290] Mona Kiran Qadar Shatay.
+- [02:32:39.550] Gavin Joseph Untereiner.
+- [02:32:44.920] Grant Stephen Ward.
+- [02:32:49.210] Jamie Lee Dorothy Widener.
+- [02:32:53.440] Rachel DeNora-Wikely.
+- [02:32:58.400] Cadet Squadron 33, Drake Drummond Buchanan.
+- [02:33:05.840] Georgina Rose Buchanan.
+- [02:33:10.520] Adrienne Merton Caban
+- [02:33:14.770] Trudy Yawan Chinsmith.
+- [02:33:19.770] Courtney Davis.
+- [02:33:24.080] James Bryce Eichel Crown.
+- [02:33:28.670] Daniel Francis Hanna.
+- [02:33:33.510] Greta Genevieve Hunt.
+- [02:33:38.720] Riley William Hopkins.
+- [02:33:43.170] Adam Parker Lucas.
+- [02:33:47.620] Chinonye Ivette Mbanugo.
+- [02:33:52.370] Darian Paul Milner.
+- [02:33:57.860] Andrew Michael Patterson.
+- [02:34:02.490] Brett Steven Pearson.
+- [02:34:07.490] William Raymond Price III.
+- [02:34:12.310] Robert Matthew Reddick III.
+- [02:34:17.540] Adam Howard Rouse Jr.
+- [02:34:22.910] John Trace Blackwell-Ruhlman.
+- [02:34:28.650] Nathaniel Gregory Sobocik.
+- [02:34:33.400] Ariel Fernando Santana.
+- [02:34:38.390] Marlee Faye Smith.
+- [02:34:43.450] Dylan Thomas Sutton.
+- [02:34:47.270] Natalie Elizabeth Beale
+- [02:34:51.650] Peyton Williams Wade
+- [02:34:55.660] Cadet Squadron 34, Wyatt Travis Bell.
+- [02:35:03.010] Gabriel Zegri Bush.
+- [02:35:07.740] Gabriella Alexis Cicconi.
+- [02:35:12.220] Zachary James Segelci.
+- [02:35:17.410] Megan Leida Cooper.
+- [02:35:22.290] Victor Andrew Dubuclay V.
+- [02:35:28.080] Caroline Clark Friedrich.
+- [02:35:32.500] Ash fat, go Teddy.
+- [02:35:36.630] Alexandra McKee Hatchett
+- [02:35:41.510] Jalen Emanuel McLeod
+- [02:35:46.440] Devon Wayne Miles.
+- [02:35:51.180] Stephen Grant Paul Newcomer
+- [02:35:56.840] Jackson Reese Patrick
+- [02:36:01.850] Joseph Lee Padmesai.
+- [02:36:07.180] Theta Raja.
+- [02:36:11.690] Ashton Lane Russnade.
+- [02:36:16.320] Grant Tyson Brayne.
+- [02:36:20.870] Mia Vidalia Rodriguez.
+- [02:36:24.910] Abram Dean Schwab.
+- [02:36:30.280] Joel Daniel Stahl.
+- [02:36:34.490] McKenna Leigh Vess.
+- [02:36:38.950] Jonathan Bryce Walker.
+- [02:36:43.740] Alaina Brooke Walsh.
+- [02:36:48.490] Brantham Everett Zimmerman.
+- [02:36:53.210] Cadet Squadron 35. Dominic Oscar Burkhardt.
+- [02:37:01.680] Jacob Ezra Cipriano.
+- [02:37:06.660] Steven Roy Clayton Terrence Jacob Pullivan.
+- [02:37:15.470] Jacob Alexander Dixon.
+- [02:37:20.750] James Cody Ewing.
+- [02:37:25.300] Oliver Ferdinand.
+- [02:37:29.460] Jace Stephen Golkin.
+- [02:37:34.720] Michael Araya Gray
+- [02:37:38.970] Kale John Goodluck.
+- [02:37:44.200] Gabriela Megan Hartley.
+- [02:37:49.210] Zydelees Lorenzo Mendoza
+- [02:37:54.350] Aiden Thomas Vinesboro.
+- [02:37:59.110] Abraham Jacob Pizzuti.
+- [02:38:04.250] Gae Yoon Hong Chi Hoon Redding.
+- [02:38:10.220] James Ernest Roberson III.
+- [02:38:16.480] The class of 2026's number one cadet in athletic performance,
+- [02:38:22.060] Bryden Alfred Rosales.
+- [02:38:29.000] Benjamin Alan Roy.
+- [02:38:33.450] Luca Xavier Smith.
+- [02:38:37.520] Nicholas Robert St. George.
+- [02:38:41.820] Yung Douglas Min Tran
+- [02:38:47.060] Elise Nicole Biles.
+- [02:38:51.870] Cadet Squadron 36, Dakota Ross Biggerstaff.
+- [02:39:00.400] Ryan Lee Boaz.
+- [02:39:04.910] Landon Robert Boyd.
+- [02:39:09.080] Grant Joseph.
+- [02:39:11.170] Learn!
+- [02:39:19.320] Jackson Lowell Garrett.
+- [02:39:24.600] Judith Jr. Go!
+- [02:39:29.370] Jack Alexander Matlock.
+- [02:39:33.960] Jacob Michael Nelson.
+- [02:39:38.460] Eric Liam Popescu.
+- [02:39:44.130] Dominique Caimane-Ramirez-Sefo Alessandro Rafael Rivera.
+- [02:39:54.930] Weston Carver Sellers.
+- [02:39:59.790] Trepper Nicholas Tate.
+- [02:40:03.850] Cadet Squadron 37, Gabriel Sean Averitt.
+- [02:40:11.750] Jack Ruskin Burnett.
+- [02:40:15.880] Ethan Michael Chapman.
+- [02:40:20.390] Jake Nicholas Edwards.
+- [02:40:24.310] Abigail Hurdy.
+- [02:40:28.150] Christian Tyler Jetter.
+- [02:40:32.370] Gavin William McCormick Ayanna Ajay Emani McGarrow.
+- [02:40:42.730] Kyle William Malady.
+- [02:40:48.240] Kayla Tali Morales.
+- [02:40:54.750] James John Richard Moran.
+- [02:41:00.410] Nimrod Nacar.
+- [02:41:06.250] Marguerite Cartier-Lescunin Jonathan Jin-Yong So.
+- [02:41:16.870] Alejandra Tirado Elias.
+- [02:41:22.630] Robert Walker Alexandra Marie Waller
+- [02:41:32.300] Peter Woh-Yay
+- [02:41:37.350] Cadet Squadron 38, Caleb Bryan Audio.
+- [02:41:46.350] Andrew Robert Bedford.
+- [02:41:50.580] Dante Sol Benedetti.
+- [02:41:54.970] Kate Sky Clown.
+- [02:42:00.620] Ashley Heather Conan
+- [02:42:04.900] Xavier O'Egan.
+- [02:42:10.040] Aiden Jacob Villaflor Flood.
+- [02:42:15.470] Ian Michael Poon.
+- [02:42:19.540] Makayla Lenora Hall.
+- [02:42:24.530] Axel Van Keller.
+- [02:42:29.040] Daniel Tyler Hewitt
+- [02:42:33.910] Conor Emmett LaChapelle.
+- [02:42:38.980] Ethan David Lyon.
+- [02:42:43.930] Melanie Grace Ordonez-McKinnis.
+- [02:42:49.660] Charlotte McGinnis McPhee Gillum.
+- [02:42:54.970] Samuel Nelson.
+- [02:42:58.980] Katherine Tung Tau Nguyen.
+- [02:43:03.630] Tucker Reed Owens.
+- [02:43:08.930] Jonah Ray James Rable.
+- [02:43:13.520] Cooper Douglas Reinhardt.
+- [02:43:18.200] Garen Edward Siebert.
+- [02:43:22.930] Cadet Squadron 39.
+- [02:43:29.030] Kanoa Lani Fei Taikoku, Omanchiai.
+- [02:43:35.920] Madison Renee Covey.
+- [02:43:40.290] Aidan Joseph Corcoran.
+- [02:43:46.060] Thomas Feddersfield.
+- [02:43:50.560] Christopher Cade Froome.
+- [02:43:55.670] Dylan Joseph Gilbert.
+- [02:44:00.660] Andrew Bryan Gunn.
+- [02:44:06.580] Aubrey Nicole Jackson.
+- [02:44:10.880] Savannah Drew Johnson.
+- [02:44:15.650] John Philip King, Jr.
+- [02:44:21.610] Tianyu Mei Meltzer.
+- [02:44:27.430] Shane Daniel Mendez.
+- [02:44:32.080] Brayden Michael Ball.
+- [02:44:36.450] Nolan Jeffery-Parlett Lucas Wee Popple.
+- [02:44:45.930] Adrian James Post
+- [02:44:50.830] Nicholas Andrew Van Ham, Reyalouyo.
+- [02:44:57.000] Liliana Grace Turup.
+- [02:45:01.530] Arianna Ann Howley.
+- [02:45:06.620] Cadet Squadron 40.
+- [02:45:17.030] Riley Albertson.
+- [02:45:21.220] Logan Michael Adesaino.
+- [02:45:26.630] Nicholas Lopez, Blessing.
+- [02:45:31.260] Jack Warner Brown.
+- [02:45:35.800] Joel Weldon Bryan
+- [02:45:40.300] Elizabeth Ann Hanfield.
+- [02:45:45.800] Valerie Ana Pesalilla.
+- [02:45:50.660] Matteo Satoshi Evangelista.
+- [02:45:56.440] James Wade Filippini.
+- [02:46:01.520] Theodore John Garrish.
+- [02:46:05.720] Leanne Michelle Geiske.
+- [02:46:10.450] Mindy Laura Harlow.
+- [02:46:16.460] Robert Dylan Helzerman Weston Seth Jenkins.
+- [02:46:26.960] Jesus Lamar.
+- [02:46:31.280] Shannon Katie Loon.
+- [02:46:36.420] Corporal Michael Mobley.
+- [02:46:41.200] Eleanor McFarland Musgrove
+- [02:46:45.990] Ashton Michael Fitzer.
+- [02:46:50.810] Undress Lewis Sampson.
+- [02:46:56.380] Emma Virginia Sanchez.
+- [02:47:00.920] David Austin Sorrell Vanessa Lane Turner.
+- [02:47:08.880] (cheers and applause)
+- [02:48:02.030] Vice President Vance, thank you for joining us today.
+- [02:48:06.150] Ladies and gentlemen, please rise as Colonel Brandon J. Taez,
+- [02:48:11.290] Commandant of Cadets, administers the oath of office
+- [02:48:14.610] for the United States Air Force and Space Force.
+- [02:48:27.500] Colonel Taez: In honor of John Chapman,
+- [02:48:29.640] graduates of the class of 2026.
+- [02:48:36.100] Raise your right hand and once I complete the oath,
+- [02:48:39.330] acknowledge your acceptance with an I do.
+- [02:48:43.200] Go ahead, raise your hand.
+- [02:48:46.690] Do you, having been appointed second lieutenants
+- [02:48:49.850] to the United States Air and Space Force,
+- [02:48:53.690] solemnly swear that you will support
+- [02:48:55.360] and defend the Constitution of the United States
+- [02:48:57.850] against all enemies, foreign and domestic,
+- [02:49:00.770] that you will bear true faith and allegiance to the same,
+- [02:49:03.820] that you take this obligation freely,
+- [02:49:06.170] without any mental reservation or purpose of evasion,
+- [02:49:10.080] and that you well and faithfully discharge
+- [02:49:12.690] the duties of the office upon which you are about to enter.
+- [02:49:15.730] So help you God.
+- [02:49:17.590] Cadets: I do.
+- [02:49:19.820] Ladies and gentlemen, the Air and Space Force song.
+- [02:49:28.510] ♪ (band plays Air and Space Force Song) ♪
+- [02:50:46.515] (cheers and applause)
+- [02:50:58.020] Class of 2026. Dismissed.
+- [02:51:03.650] (cheers and applause)

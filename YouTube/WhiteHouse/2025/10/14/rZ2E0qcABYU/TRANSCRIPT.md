@@ -1,0 +1,220 @@
+<!-- source: https://www.youtube.com/watch?v=rZ2E0qcABYU -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: rZ2E0qcABYU -->
+<!-- date_published: 2025-10-14T00:45:43+00:00 -->
+<!-- date_accessed: 2026-06-02T01:13:13.528000+00:00 -->
+
+# Transcript: President Trump Participates in a Middle East Peace Ceremony
+
+- [00:00.780] The President: Thank you very much, everybody.
+- [00:02.170] This is a tremendous day for the world.
+- [00:05.530] It's a tremendous for the Middle East.
+- [00:08.130] And you can see that this is probably
+- [00:10.790] the greatest assemblage of countries
+- [00:12.910] in terms of wealth and power maybe ever assembled.
+- [00:16.480] And it's just an honor to be a part of it.
+- [00:19.860] We're going to be signing a document
+- [00:21.510] that's going to spell out a lot of rules and regulations
+- [00:26.010] and lots of other things. And it's very comprehensive,
+- [00:30.510] but we've already signed documents in the Middle East
+- [00:33.470] and having to do with Israel and Hamas
+- [00:36.330] and just about everything else.
+- [00:37.960] And it's really working out incredibly well.
+- [00:41.900] The hostages, as you know, were let go on time, on schedule.
+- [00:47.030] The very sad situation of bodies,
+- [00:50.410] which was always a sad situation,
+- [00:52.330] and they're being sought out
+- [00:53.930] and they work in with many different people,
+- [00:56.890] finding some were brought in and some.
+- [01:00.490] And they're working out to find out where those bodies are.
+- [01:04.590] It's hard to believe that you even have to say
+- [01:06.110] something like that. It's so sad. It's sad.
+- [01:09.720] But what's not sad is that we have finally,
+- [01:11.880] after, I guess they say, 3,000 years.
+- [01:14.420] I've heard from 3,00 years to 500 years.
+- [01:17.000] But whatever it is, it's a lot. But this was the one.
+- [01:20.980] This was the granddaddy of them all.
+- [01:22.680] And, frankly,
+- [01:24.570] I thought this was probably going to be the toughest,
+- [01:26.710] and maybe in many ways it was. But we had a lot of good talent.
+- [01:30.450] Steve Witkoff, Jared, and Marco, and Pete,
+- [01:34.170] and General Caine was so great. John Ratcliffe was incredible.
+- [01:40.600] We had an amazing array of talent,
+- [01:43.620] and we were helped by, in particular,
+- [01:45.820] the countries represented at this table.
+- [01:50.160] I will say, Tamim, you were fantastic,
+- [01:52.630] and your country is unbelievable.
+- [01:54.700] And I don't think they give you a fair shake.
+- [01:57.320] They talk about you as no -- you're not a nice person,
+- [02:01.280] and you happen to be a nice person.
+- [02:03.320] You happen to live in a little tough neighborhood.
+- [02:04.920] You're surrounded by everybody.
+- [02:06.960] And without you, this wouldn't have happened.
+- [02:09.350] And I just want to thank you very much.
+- [02:10.840] That's Qatar. And thank you.
+- [02:15.500] He's a great gentleman, and he's an amazing --
+- [02:17.800] he's a amazing leader.
+- [02:19.900] And another man who's been a friend of mine
+- [02:22.500] for a long time -- I don't know what it is.
+- [02:24.670] I like the tough people better than I like soft, easy ones.
+- [02:27.990] I don't know what the hell that is.
+- [02:29.460] It's a personality problem, I suspect.
+- [02:32.900] But this gentleman from a place called Turkey
+- [02:38.150] has one of the most powerful armies actually in the world.
+- [02:41.370] It's much more powerful than he even lets known.
+- [02:44.840] If you look at some of the recent conflicts,
+- [02:47.350] he was at the top of them and he was winning them,
+- [02:49.590] and he did win.
+- [02:50.810] And he doesn't want any credits, he doesn't want anything.
+- [02:52.970] He just wants to be left alone.
+- [02:54.310] He's a tough cookie, but he's been my friend.
+- [02:56.770] And every time I've ever needed him, he's been there for me,
+- [02:59.540] so I just want to thank President Erdogan, Türkiye.
+- [03:02.910] (applause)
+- [03:04.240] When NATO has a problem with him, because he is difficult,
+- [03:10.060] they call me, they said, "Would you do me a favor,
+- [03:12.010] could you just speak to Erdogan?"
+- [03:14.160] And I do, and he never fails us.
+- [03:15.930] Right, General? He never fails. He's amazing.
+- [03:18.840] So, I just want to thank you for the friendship, it's good.
+- [03:21.430] Thank you very much.
+- [03:23.510] And then, of course, we have the host tonight,
+- [03:26.950] and I just want to thank you very much.
+- [03:28.900] It was a reason we chose Egypt because you were very helpful,
+- [03:32.130] and very, very helpful. Everybody wanted to have this,
+- [03:35.340] but we really thought it was appropriate.
+- [03:37.940] And you are a great leader, you are very good on crime.
+- [03:41.290] You have problems that other countries don't have,
+- [03:44.760] and of course, nothing's perfect,
+- [03:46.730] but the job you do is amazing and I want to thank you.
+- [03:48.930] Another one, you've been my friend right from the beginning,
+- [03:52.250] during the campaign against Crooked Hillary Clinton.
+- [03:55.710] Have you heard of her?
+- [03:57.520] We were both downstairs waiting to go up
+- [04:00.240] to meet this gentleman who has a place called Egypt,
+- [04:05.370] the oldest civilization, they say 6,000 years.
+- [04:08.560] China's 5,000 years, but you're actually number one.
+- [04:12.040] 6,000 years, can you believe it?
+- [04:14.260] But the oldest, they say, civilization.
+- [04:18.260] So, I went up to meet them first,
+- [04:19.810] and we liked each other so much
+- [04:21.290] that you waited for about an hour and a half,
+- [04:23.900] and I think your meeting lasted about two minutes with them,
+- [04:26.890] so I always remembered that.
+- [04:28.160] But that was our first meeting, we had great chemistry together,
+- [04:31.610] and he's a fantastic man and a fantastic general, by the way.
+- [04:35.730] But he's a great president, and I want to thank Egypt
+- [04:39.070] and all of your representatives for treating us all so well.
+- [04:42.600] Thank you very much.
+- [04:44.090] (applause)
+- [04:47.030] So we're going to be signing
+- [04:48.380] and we're really representative of a whole group of nations,
+- [04:51.390] and they're sitting behind us, and you know most of them,
+- [04:54.390] I can tell you this guy's got so much money.
+- [04:57.150] They all have so much.
+- [04:59.240] There's more money and power sitting behind us.
+- [05:01.580] I love that they're behind us.
+- [05:04.530] They've never been sitting behind anybody before.
+- [05:06.910] This is a very unique position for them,
+- [05:09.190] but seriously they're among
+- [05:12.450] the most powerful countries in the world,
+- [05:16.460] the richest countries in the world,
+- [05:18.160] and there's never been really an assemblage
+- [05:20.050] like what we have today, I don't think so.
+- [05:22.810] I've never seen it, anyway.
+- [05:24.630] And I want to thank everybody for being with us.
+- [05:28.110] (inaudible) I just solved the war for him.
+- [05:31.060] Azerbaijan.
+- [05:32.680] (inaudible). There he is.
+- [05:39.160] You two guys are still getting along, right?
+- [05:41.400] They fought for 32 years.
+- [05:43.070] In about one hour we settled it, right?
+- [05:45.840] And they like each other now too.
+- [05:47.880] That's great.
+- [05:49.710] Well, I want to thank everybody for being here.
+- [05:52.300] Italy, she's a very strong ruler.
+- [05:55.290] She's doing a great job. You're doing a great job.
+- [05:58.650] Thank you (inaudible).
+- [06:00.720] We're actually going to be making a speech after this,
+- [06:02.750] so this is just a very important signing,
+- [06:05.620] but we're doing a signing, then we're doing a speech,
+- [06:08.430] and then I may stay behind with the leaders
+- [06:10.490] just to talk about that.
+- [06:12.540] Some things -- want to thank the media for very --
+- [06:18.080] You've been so respectful on this deal,
+- [06:19.870] the importance of the deal.
+- [06:21.180] And it was so pleasant to watch.
+- [06:25.270] I was on the plane for quite a while
+- [06:26.890] listening to the various newscasts,
+- [06:29.040] and they were all fair.
+- [06:30.270] They were talking about how incredible this is.
+- [06:32.280] This is an incredible day for the world,
+- [06:34.410] let alone the Middle East.
+- [06:35.670] So, I just wanted to thank the media,
+- [06:37.240] they really treated it with respect.
+- [06:39.770] I wish you could be like that on other things,
+- [06:41.720] but that's perhaps too much to ask for.
+- [06:44.280] But on this tremendous -- everybody feels the same,
+- [06:47.770] just tremendous respect, and we appreciate it very much.
+- [06:51.080] Can we get the documents, please? Okay.
+- [06:57.420] Female Speaker: Okay.
+- [06:58.990] You'll sign right here, Mr. President.
+- [07:17.370] The President: Okay.
+- [07:29.560] This took 3,000 years to get to this point.
+- [07:33.420] Can you believe it? And it's going to hold up too.
+- [07:36.230] It's going to hold up.
+- [07:41.750] Okay, thank you. You can use my pen if you want.
+- [07:46.560] Have a pen? Want to use mine? Okay.
+- [09:46.050] I think we're going to hold it up. Hold up the signature page.
+- [09:52.570] (applause)
+- [10:09.060] So we're going to go and I'm going to say a few words.
+- [10:13.560] We'll give you a little speech,
+- [10:15.540] and then we're going to meet with the leaders after that,
+- [10:18.130] and spend a little time together without the media.
+- [10:21.370] The media's invited to the speech.
+- [10:24.260] I just want to tell you the people behind me
+- [10:26.120] and some of the people in the room that are so helpful.
+- [10:29.410] But the people behind me are the greatest leaders,
+- [10:32.600] most powerful leaders, the richest leaders, frankly.
+- [10:35.220] Sometimes it's not politically correct to say that,
+- [10:37.080] but I'll say it.
+- [10:38.290] The richest in the world, that the world has ever seen.
+- [10:41.870] And yet, when you get to know them,
+- [10:43.290] I know every one of them, in their own way,
+- [10:46.900] and I can say in particular some,
+- [10:49.020] because that's the way life works,
+- [10:50.280] but some of the greatest people you'll ever meet,
+- [10:52.950] and people that really care for their countries.
+- [10:54.890] And why this happened is they all came together
+- [10:58.220] and they wanted to get Gaza straightened out,
+- [11:00.800] they wanted to get the whole thing straightened out.
+- [11:03.130] It got to a point where it was just crazy.
+- [11:06.880] And once they got together and once we started talking,
+- [11:11.060] it went, to me, it went smoothly, it went so smoothly.
+- [11:14.250] You were such a big help, but it went so smoothly
+- [11:16.840] that nobody could even believe it that we're sitting here
+- [11:19.670] and getting this all certified out and all done.
+- [11:25.000] And everybody's happy about it. Everybody's happy about it
+- [11:27.880] like I've never seen before, actually.
+- [11:30.640] I've done other deals and people don't care as much.
+- [11:34.650] Big deals. I think they're big deals,
+- [11:36.120] but this is something that's taken off like a rocket ship.
+- [11:38.960] And it did from the beginning, and I've heard for years,
+- [11:41.120] "This is the biggest deal, it'll never happen."
+- [11:43.310] For years, long before I ran for office,
+- [11:45.980] that this is the Middle East.
+- [11:48.340] It's the biggest, most complicated deal,
+- [11:51.520] and also it's the place that could lead
+- [11:53.940] to tremendous problems like World War III.
+- [11:57.190] They always talk about World War III
+- [11:58.850] would start in the Middle East. And that's not going to happen.
+- [12:03.970] We don't want it to start anywhere, actually,
+- [12:05.650] but it's not going to happen.
+- [12:07.170] So, I just want to thank everybody,
+- [12:09.190] and I'll see you in a little while.
+- [12:10.950] And in particular, thank you all.
+- [12:12.880] Thank you Tamim, Mr. General, thank you very much.
+- [12:16.910] Thank you very much. Great job. Great job.
+- [12:20.160] Thank you very much everybody. Thank you.
+- [12:23.400] (applause)

@@ -1,0 +1,615 @@
+<!-- source: https://www.youtube.com/watch?v=QVU9AJNANoU -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: QVU9AJNANoU -->
+<!-- date_published: 2026-05-22T16:20:52+00:00 -->
+<!-- date_accessed: 2026-06-02T02:33:28.184967+00:00 -->
+
+# Transcript: President Trump Participates in a Swearing-In Ceremony for the Chairman of the Federal Reserve
+
+- [00:14.040] Announcer: Ladies and gentlemen,
+- [00:15.290] the President of the United States,
+- [00:17.250] Donald J. Trump, accompanied by Kevin Warsh.
+- [00:21.270] ♪ (Hail to the Chief) ♪
+- [00:53.765] (applause and cheers)
+- [01:37.510] The President: Oh, I thought that was for me.
+- [01:38.820] I was very unhappy.
+- [01:41.160] I looked around and I saw they're all looking at you.
+- [01:43.430] I was not happy about that. It's amazing.
+- [01:47.260] That's an amazing audition. And I'll tell you what,
+- [01:53.010] you have the most important business people and people,
+- [01:55.710] political people that you can possibly have in one room,
+- [02:00.300] that soon will be a much larger room than this.
+- [02:02.450] We'll have a room substantially larger than this,
+- [02:07.320] which we really do need
+- [02:08.620] because we would've had five times this crowd.
+- [02:11.920] Everybody wanted to be here, to be with you.
+- [02:14.380] And it's an honor.
+- [02:16.230] And today I'm thrilled to welcome you to the White House,
+- [02:19.070] the most beautiful building.
+- [02:20.430] I love this building. We fix it up all the time.
+- [02:23.310] That's the real estate business in me.
+- [02:25.860] And it's in tippy-top shape finally.
+- [02:29.120] But for the swearing in of our new chairman
+- [02:31.420] of the Federal Reserve Board of Governors,
+- [02:34.020] Kevin Warsh. Governor.
+- [02:57.530] And I expect he will go down
+- [02:59.040] as one of the truly great chairman
+- [03:00.690] of the Federal Reserves that we've ever had.
+- [03:03.970] I really believe that.
+- [03:05.170] I think he's got abilities that very few people have,
+- [03:09.740] that covers a lot of territory. And he's respected by everybody
+- [03:13.730] and that's so important in that position.
+- [03:15.310] Congratulations to Kevin and to his wonderful wife, Jane.
+- [03:19.640] Jane, thank you very much. Fantastic.
+- [03:28.260] And you're a very beautiful family.
+- [03:30.100] You have a beautiful family.
+- [03:31.510] Congratulations. It's a big deal.
+- [03:34.850] We're honored to be joined by some incredible people,
+- [03:38.530] our speaker of the House, Mike Johnson,
+- [03:41.000] who is doing an unbelievable job.
+- [03:42.860] Mike, thank you very much.
+- [03:48.720] He's working very hard on the SAVE America Act,
+- [03:50.880] but I will not say that. He'll get it done too.
+- [03:53.800] He gets everything done. Thanks, Mike.
+- [03:56.780] Supreme Court Justices, and they are great.
+- [04:00.070] Clarence Thomas and Brett Kavanaugh.
+- [04:04.660] Up top.
+- [04:11.750] Secretary of the Treasury, he's like central casting.
+- [04:16.210] Scott Bessent. If we do a movie on --
+- [04:24.610] someday we're going to need a Secretary of the Treasury,
+- [04:26.830] we're starring him, I think.
+- [04:28.100] We'll put him in there, right? He's done a good job.
+- [04:31.550] Secretary of Agriculture, Brooke Rollins.
+- [04:34.850] Brooke, thank you.
+- [04:38.250] Secretary of Commerce, Howard Lutnick.
+- [04:40.990] Thank you, Howard.
+- [04:43.900] Secretary of Transportation, Sean Duffy.
+- [04:47.930] Thank you, sir.
+- [04:50.590] Acting Secretary of Labor, Keith Sonderling.
+- [04:58.590] CIA Director, John Ratcliffe. Thank you, John.
+- [05:05.120] OMB Director, Russell Vought. Russell, thank you, Russell.
+- [05:11.840] White House Chief of Staff, Susie Wiles.
+- [05:19.200] Director of the National Economic Council,
+- [05:22.530] the other Kevin.
+- [05:24.440] They kept talking about Kevin, Kevin, Kevin.
+- [05:26.630] And he's a good man you're going to be working with.
+- [05:28.860] Kevin Hassett.
+- [05:34.280] Director of the Federal Housing Finance Agency, Bill Pulte.
+- [05:41.540] And thanks as well.
+- [05:42.810] We have so many political leaders
+- [05:44.490] and I just see a few. And you have Tommy Tuberville,
+- [05:48.680] soon to be a governor right now, very successful.
+- [05:52.860] Senator Dave McCormick, who's a phenomenal guy,
+- [05:55.910] wherever you may be, Dave. Wherever you may be.
+- [06:00.120] Andy Barr just had a big win. He won by 40 points.
+- [06:04.350] Where's Andy? Congratulations.
+- [06:06.980] That was a big win, Andy. I'm proud of you.
+- [06:10.530] Did the endorsement help?
+- [06:14.110] Dan Meuser, my friend, who's a fantastic congressman.
+- [06:17.830] Dan, thank you very much. Elise Stefanik.
+- [06:23.070] Elise, hi. And a highly respected guy,
+- [06:28.390] another friend of mine, French Hill.
+- [06:30.660] Thank you. Thank you, French.
+- [06:34.140] Also with us, former Vice President, Dan Quayle.
+- [06:37.710] Haven't seen Dan Quayle in a long time.
+- [06:40.240] Where's Dan Quayle? Wow.
+- [06:42.660] You look good. You look good.
+- [06:47.470] It's nice to see you, Dan. Very nice.
+- [06:49.930] Former Speaker of the House, Kevin McCarthy.
+- [06:53.590] Kevin. Good guy.
+- [06:59.340] Former Secretary of State, Condoleezza Rice.
+- [07:02.840] Highly respected. Highly respected. By everybody.
+- [07:08.530] Me too. Former Governor, Glenn Youngkin.
+- [07:13.210] Done a great job. Great governor of Virginia
+- [07:18.780] and they try and take it apart as fast as they can,
+- [07:21.080] but you did a really fantastic job.
+- [07:23.810] Thank you very much, Glen.
+- [07:25.660] And many others, tremendously distinguished.
+- [07:29.530] The biggest leaders of business
+- [07:31.230] and the biggest leaders of politics
+- [07:33.590] other than the ones we mentioned.
+- [07:34.910] This is quite an assemblage of talent.
+- [07:37.350] I see the Southern District over here.
+- [07:39.430] Will you stand up please, Southern District?
+- [07:41.310] Jay, stand up.
+- [07:47.650] And I don't know if our acting attorney general is here.
+- [07:50.210] He's pretty busy. He's kept very busy,
+- [07:52.190] so if he is -- or if he isn't, I'll just tell you,
+- [07:54.770] he's doing a very good job working together, right?
+- [07:57.320] He's doing a great job actually.
+- [07:59.750] So no one in America is better prepared
+- [08:01.850] to lead the Federal Reserve than Kevin Warsh.
+- [08:05.430] Kevin received a degree in Public Policy
+- [08:07.650] from Stanford University
+- [08:09.110] and then earned a J.D. from Harvard Law School.
+- [08:12.170] He studied under the renowned economist,
+- [08:14.620] Milton Friedman, and was mentored
+- [08:16.790] by the legendary Secretary of the Treasury and Secretary
+- [08:20.030] of State, George Shultz, all legendary names, really.
+- [08:25.250] Kevin has worked at the highest levels of the financial world
+- [08:28.460] as an executive in the private sector.
+- [08:30.390] He did very well and he served
+- [08:32.580] at the highest reaches of government
+- [08:35.020] as a senior economic advisor in the White House.
+- [08:38.510] He knows the White House very well.
+- [08:40.930] He's walking through the White House.
+- [08:42.410] He's pointing things to me that I didn't even know.
+- [08:45.940] At the age of 35,
+- [08:47.180] he became the youngest ever Federal Reserve governor.
+- [08:49.780] For the past 15 years,
+- [08:51.350] Kevin has been a fellow at Stanford's Hoover Institution
+- [08:55.910] and his credentials really are second to none
+- [08:58.140] when you hear them, and there's plenty more.
+- [09:00.520] I know that Kevin has the deepest respect
+- [09:02.780] and reverence for the institution
+- [09:05.460] he will lead starting today. We're so lucky to have him.
+- [09:10.840] The Federal Reserve is a pillar of the world financial system
+- [09:14.110] and the most important central bank
+- [09:16.200] anywhere in the world with a history
+- [09:18.940] stretching back more than 100 years.
+- [09:21.600] It is truly the institution
+- [09:23.960] that's most looked to and most respected
+- [09:26.150] and it's now taken on a new
+- [09:28.610] and even higher respect in my opinion.
+- [09:31.240] And honestly, I really mean this.
+- [09:34.100] This is not said in any other way.
+- [09:35.770] I want Kevin to be totally independent.
+- [09:38.840] I want him to be independent and just do a great job.
+- [09:41.590] Don't look at me, don't look at anybody.
+- [09:43.440] Just do your own thing and do a great job.
+- [09:46.530] Okay?
+- [09:55.930] Unfortunately, in the eyes of many,
+- [09:57.750] the Fed lost its way in recent years.
+- [10:00.120] It became distracted by concerns far removed
+- [10:03.790] from its core mission and mandate,
+- [10:06.110] drifting into matters such as climate policy
+- [10:08.670] and DEI initiatives.
+- [10:10.130] With the Fed string from its mandate
+- [10:13.150] while the last administration blew out the deficit,
+- [10:16.640] Americans suffered the worst inflation
+- [10:18.660] that we had in history.
+- [10:19.930] It was the worst inflation we've ever had.
+- [10:22.600] As you know, some people say you're wrong about that.
+- [10:24.770] It was only in 48 years,
+- [10:26.610] but I think 48 years almost sounds worse,
+- [10:28.960] the worst inflation we've ever had.
+- [10:30.510] So it made it very difficult.
+- [10:32.520] Kevin has spoken often about the need
+- [10:34.320] to restore the Fed's integrity
+- [10:35.940] by returning to a proper focus on its two functional
+- [10:39.730] and really fundamental responsibilities,
+- [10:43.050] maintaining price stability and low inflation
+- [10:46.340] and achieving full employment.
+- [10:48.560] And we talk about it, we've talked about it often.
+- [10:51.290] And right now we have the most people
+- [10:53.420] working in the United States than we've ever had.
+- [10:55.830] We have never had as many people
+- [10:57.420] working right now in the United States.
+- [11:00.310] And it's something that I like to say
+- [11:02.790] and it's been pretty much that way ever
+- [11:04.290] since I've been president.
+- [11:05.520] When I go back to the first term,
+- [11:07.440] I had those numbers too
+- [11:08.650] and I kept them and we've done things that are really amazing,
+- [11:13.070] but we can bring it to a new and higher level with Kevin.
+- [11:15.500] I think we can bring it to a level
+- [11:17.420] that nobody ever thought possible.
+- [11:19.730] By following through on this vision,
+- [11:21.530] Kevin will restore confidence in the Fed,
+- [11:23.950] which is so important among Americans
+- [11:27.140] all across the political spectrum
+- [11:29.060] and people from all over the world.
+- [11:30.900] And they're going to be looking to Kevin probably
+- [11:33.840] and possibly more than any other person
+- [11:36.510] that's had your esteemed position before.
+- [11:39.010] I think that's true, Kevin.
+- [11:40.290] You got a lot of people watching.
+- [11:42.080] I fully expect that with the greatest Fed chairs before him,
+- [11:46.440] Kevin will safeguard the Fed's integrity.
+- [11:48.710] They'll make their own decisions and hopefully make them well,
+- [11:53.270] but they'll be listening to Kevin all the way.
+- [11:55.110] I really believe that.
+- [11:56.320] Even if they're from a somewhat different persuasion,
+- [11:58.710] they're going to be listening to him out of respect
+- [12:01.150] because everybody respects him.
+- [12:03.260] Thankfully, unlike some of his predecessors,
+- [12:05.480] Kevin understands that when the economy is booming,
+- [12:09.860] that's a good thing.
+- [12:11.150] We don't have to go crazy.
+- [12:12.750] Just let it boom. We want it to boom.
+- [12:14.840] We want it to be like nobody has ever had before
+- [12:18.010] because we do have some debt we'd like to take care of.
+- [12:20.560] And the way you do that is through growth.
+- [12:22.800] We're going to grow our way out of it so fast.
+- [12:25.530] And Kevin's somebody,
+- [12:27.150] and I feel strongly also we don't want to see it stifled.
+- [12:30.210] We want to stop inflation, but we don't want to stop greatness.
+- [12:34.110] And so that's really a very good thing, a very positive thing
+- [12:37.860] and that's what he's looking to do.
+- [12:39.490] He's looking to do positive economic growth.
+- [12:41.620] It's so important.
+- [12:42.830] And as we discuss, economic growth doesn't mean inflation.
+- [12:46.620] It can be just the opposite actually,
+- [12:48.570] but economic growth does not mean inflation.
+- [12:52.160] You don't have to stop the world because you're doing well.
+- [12:56.010] Kevin's also said that he'll bring much needed
+- [12:58.640] reform and modernization
+- [13:00.310] transforming obsolete data collection methods,
+- [13:03.070] rolling back reliance on inaccurate models
+- [13:06.650] and curtailing the Fed's practice of issuing
+- [13:09.240] so called, forward guidance.
+- [13:11.390] They want to do things on that.
+- [13:12.980] I guess it's a little complex subject,
+- [13:15.560] but it's something that Kevin knows about better
+- [13:17.690] than probably anybody here.
+- [13:20.530] He has the temperament and leadership abilities
+- [13:22.750] to foster collaboration among the entire board.
+- [13:25.170] And I know he will welcome robust debate in his mission
+- [13:29.720] to keep prices stable and employment high.
+- [13:32.220] Kevin will have the full support of my administration.
+- [13:35.620] Every one of these people felt, including Kevin, by the way,
+- [13:38.960] felt so strongly about this choice.
+- [13:41.660] And we have no doubt, we have absolutely no doubt.
+- [13:45.660] So important too. So big, so important.
+- [13:48.160] I just turned on the television.
+- [13:50.160] I wanted to see how the stock market's doing today.
+- [13:52.100] Stock market's up 600 points. That means they like you.
+- [13:57.330] If they didn't like you, it's actually up to 50,702.
+- [14:08.530] So that's as of about 12 minutes ago.
+- [14:10.510] Now who knows, but I think it can only go up.
+- [14:12.830] I think with you, it's only going to go up.
+- [14:14.380] That was a number that nobody thought was reachable
+- [14:17.180] during my entire four years.
+- [14:19.230] If you look at some of the great pundits, they said,
+- [14:22.780] "Well, 50,000 would be impossible
+- [14:24.590] during the four years, but sometime after --"
+- [14:26.380] We hit it in the first year, but now we're really hitting it.
+- [14:29.470] And think of it it's up to 50,702
+- [14:34.140] and S&P likewise set a new record today.
+- [14:36.520] They both set new records today and boy, that's something good,
+- [14:39.090] but you're going to bring it to a much different level,
+- [14:41.120] believe me.
+- [14:42.330] It's good, but it can go much better.
+- [14:45.370] And that's what I think you're going to do.
+- [14:46.790] In my first year we passed the largest tax
+- [14:48.780] cuts in American history,
+- [14:50.850] the largest regulation cuts in American history
+- [14:53.490] and the largest spending cuts in American history,
+- [14:56.250] all things that are so important to greatness.
+- [14:59.300] And last year we slashed the budget
+- [15:01.490] by almost $500 billion at the same time.
+- [15:04.950] Our military was at 1.2 trillion and we'll be doing,
+- [15:08.600] the one thing we are going to be doing is --
+- [15:10.420] And we build everything in America. We build it here.
+- [15:12.680] It's jobs, jobs, jobs,
+- [15:13.940] but it's also strength, strength, strength.
+- [15:17.250] We're going to be submitting a military budget
+- [15:20.140] for $1.5 trillion.
+- [15:22.680] We have the greatest military in the world.
+- [15:25.060] I built it during my first term.
+- [15:27.180] I didn't know we'd be using it so much in my second term,
+- [15:30.380] but they gave away a little bit of it
+- [15:32.950] during somebody else's term foolishly,
+- [15:35.450] but it's a very small part relative to the whole.
+- [15:37.840] But we have the greatest military in the world.
+- [15:39.660] I was with President Xi and I said to him,
+- [15:42.480] "We have the greatest military in the world."
+- [15:44.610] And he actually didn't agree. We had a great meeting.
+- [15:47.120] He actually didn't disagree with me on that very much,
+- [15:50.150] I will tell you. But we really do.
+- [15:52.610] What we've done in Venezuela, you see what we've done to Iran.
+- [15:56.460] Iran is dying to make a deal. We'll see what happens,
+- [15:59.540] but we hit them hard and we had no choice
+- [16:02.070] because Iran cannot have a nuclear weapon.
+- [16:05.130] They cannot have it.
+- [16:12.700] So I promised to cut 10 old regulations
+- [16:15.780] as you know in my first term for every new regulation.
+- [16:19.280] If you put a new regulation, then that's fine,
+- [16:21.140] but you had to cut at least 10. And so far this --
+- [16:26.610] And I did that, it was actually one to 12,
+- [16:29.630] so I did a little bit better.
+- [16:31.310] So far we're blowing it away this year.
+- [16:34.510] So far it's one for 129.
+- [16:37.970] In other words, we're cutting 129 regulations that we put in.
+- [16:43.670] So that's music to yours.
+- [16:45.580] We don't even have to go through Congress for that.
+- [16:48.450] It's a lot easier. If I do it's a lot easier.
+- [16:51.630] But all of these actions are aimed at lowering costs,
+- [16:53.900] creating jobs and driving economic growth.
+- [16:56.870] Jobless claims recently hit the lowest level
+- [16:59.520] since 1969 under our leadership.
+- [17:02.880] Five million people have been lifted off of the food stamps.
+- [17:06.180] Think of that. Just in a short period of time,
+- [17:08.890] more Americans are working today,
+- [17:10.750] as I said, than ever before.
+- [17:13.420] And very importantly, 100% of the net new jobs
+- [17:17.140] under this administration
+- [17:19.070] have been created in the private sector,
+- [17:22.410] which is a number that nobody's ever achieved.
+- [17:28.490] Think of that. They're all in the private sector
+- [17:30.550] and we did get rid of a lot of government jobs.
+- [17:33.890] You had jobs where there were 10 people for every single job
+- [17:37.720] and every single event,
+- [17:39.100] and they were doing all the same thing,
+- [17:40.470] or they weren't doing very much.
+- [17:42.510] And they didn't like me for a while
+- [17:44.820] and now they're all working at private sector jobs
+- [17:47.120] and they're making double, triple, quadruple the pay
+- [17:49.370] and they're loving life
+- [17:50.600] and they're loving going to work.
+- [17:51.930] And it was a painful experience
+- [17:53.940] cutting that many people from the federal government,
+- [17:56.180] but it's been amazing and you just can't have that.
+- [17:59.110] You can never make a country, as I say, great again
+- [18:00.950] if you're going to have all government jobs,
+- [18:02.420] were all private jobs and the jobs are coming.
+- [18:03.770] We're building more jobs, we're all private jobs
+- [18:05.510] and the jobs are coming. We're building more plants,
+- [18:08.300] more equipment than anybody has ever --
+- [18:11.390] any president's ever done, any administration's ever done.
+- [18:14.770] And the number I like the best is we have $18 trillion
+- [18:18.790] being invested in the United States
+- [18:20.430] for 11 months, not 12.
+- [18:21.780] We haven't gotten the results from 12 yet. We're pretty new.
+- [18:26.030] But in 11 months we have $18 trillion being invested,
+- [18:30.250] with a T, being invested in the United States.
+- [18:33.220] And the record was $3 trillion many years ago
+- [18:35.860] by a different country that I actually just left.
+- [18:38.620] It starts with a C, but we have --
+- [18:41.330] And that was three.
+- [18:42.650] And we're at 18 trillion.
+- [18:44.010] We're building factories, car plants, everything,
+- [18:46.460] AI, everything, all over the country.
+- [18:49.010] Nobody's ever seen anything like it.
+- [18:50.870] And I have to say,
+- [18:52.250] I have to give the credit to what used to --
+- [18:55.670] I used to say it was my favorite word,
+- [18:57.450] my favorite word of all. But I got in such trouble
+- [19:00.440] because when I said tariff is my favorite word,
+- [19:03.090] the media went crazy.
+- [19:05.020] They said, "What about your wife, your family?
+- [19:07.800] What about God? What about religion?"
+- [19:09.750] So I said, "Okay, good.
+- [19:10.990] I'll make it my fifth favorite word." Right?
+- [19:14.670] But because of tariffs, we have tremendous amounts of --
+- [19:18.560] I mean, the car companies are all coming back.
+- [19:20.750] They left us for 35, 40 years. They left us. Chip.
+- [19:24.500] We will have 50% of the chip making capability
+- [19:28.470] of who that man right there is that --
+- [19:30.110] Stand up, will you please? But is that right?
+- [19:32.340] We're going to have 50% by the time I leave office
+- [19:35.420] and maybe more than that. They're moving in from Taiwan,
+- [19:38.090] they're moving in from other places
+- [19:39.650] and they're building an Arizona
+- [19:41.500] in particular in that particular case.
+- [19:43.810] But between the auto plants,
+- [19:45.560] we have more auto plants under construction
+- [19:47.370] now than we've ever had before.
+- [19:49.280] We went many years and there was no plant built.
+- [19:52.190] And it's all due to what we did with tariffs.
+- [19:55.110] I guess November 5th, but all because of the tariffs
+- [19:58.740] and what they've done used properly, used judiciously.
+- [20:02.270] So it's really something special.
+- [20:04.330] So we have all these plants under construction.
+- [20:07.640] They'll be completed over the next year and a half
+- [20:09.580] and you're going to see numbers like
+- [20:11.030] we've never seen in this country before.
+- [20:13.560] No country has ever seen the kind of numbers
+- [20:15.500] you're going to see.
+- [20:17.070] Now we have some of the people in this room.
+- [20:18.620] I look at them, some of the geniuses
+- [20:20.480] that are building those plants.
+- [20:22.580] A plant used to cost, if you built a shopping center,
+- [20:25.100] it would cost 50 millions a nice center.
+- [20:27.280] But 500 million's a giant, beautiful center.
+- [20:29.990] These people are investing, you're going to have to look in,
+- [20:32.250] $50 billion on a building for AI.
+- [20:36.510] 50 billion. I say, "How big is it?"
+- [20:39.720] "Well, it goes three miles by five miles.
+- [20:42.710] You drive three miles, five miles."
+- [20:44.830] But it means jobs and it's got tremendous potential
+- [20:48.330] for a lot of things.
+- [20:49.770] But when you talk about growth, no country will see
+- [20:53.200] and you'll start to see that very soon.
+- [20:54.660] No country will see the growth that we're going to experience,
+- [20:58.470] and that we're already experiencing.
+- [20:59.980] But that we're going to experience.
+- [21:01.980] And one of the things that you see early on
+- [21:03.720] is we have the highest number of construction jobs
+- [21:06.010] we've ever had.
+- [21:07.280] And that's because they're building all of these plants
+- [21:09.270] to auto plants.
+- [21:10.470] All of these plants are being built.
+- [21:12.510] Including medical. Medical is pouring back in.
+- [21:15.230] Eli Lilly and so many of the --
+- [21:18.060] they're building six major plants.
+- [21:19.870] They're going to make almost all of their medicines here.
+- [21:23.430] We learned during COVID
+- [21:25.060] it's not good to be held hostage by foreign countries.
+- [21:29.420] We're building all of these plants here.
+- [21:32.090] Lilly, Pfizer, all of them, they're all building tens
+- [21:35.370] of billions of dollars worth of medical plants.
+- [21:37.960] We're going to have almost all of our medicines
+- [21:39.790] made in our country,
+- [21:41.430] which is a really good thing to have.
+- [21:43.450] During four years of Biden,
+- [21:44.820] our country secured less than $1 trillion.
+- [21:47.870] Think of that though. And we are doing $18 trillion
+- [21:50.880] and everyone's talking about that
+- [21:53.070] because nobody's ever seen anything like it
+- [21:54.930] in a short time ago.
+- [21:56.930] I say this often, the king of Saudi Arabia
+- [21:59.180] said to me two years ago, he said, I was over there.
+- [22:02.600] And by the way, they invested $ 2 trillion.
+- [22:05.390] But I was over talking to them,
+- [22:07.000] getting them to invest a lot of money in our country.
+- [22:09.050] And he said, "You know, President,
+- [22:11.260] two years ago you were a dead country
+- [22:13.900] and today you're the hottest country anywhere in the world.
+- [22:16.250] With the hottest country anywhere in the world.
+- [22:18.150] And we're going to need guidance,
+- [22:19.820] and you're going to give us that guidance."
+- [22:21.400] But all of the things that we've done,
+- [22:24.570] numbers that are tripled and quadrupled and do need,
+- [22:28.140] we need a really steady hand
+- [22:30.010] at probably maybe in many ways the most --
+- [22:33.780] I don't know, I have two great justices
+- [22:35.860] of the Supreme Court here. So I have to say, I don't know.
+- [22:39.020] Which is more important being a justice
+- [22:40.820] of the Supreme Court of your job.
+- [22:42.230] I'm not sure about that. I'm not sure.
+- [22:44.780] I think I'd rather be a justice between you and I.
+- [22:50.160] It might be easier. You're going to find out.
+- [22:52.830] You'll be saying that one. That's a very easy job.
+- [22:57.900] With the support and strong
+- [22:59.570] and wise chairmanship at the Federal Reserve,
+- [23:02.680] so important, America's future will truly be unlimited.
+- [23:06.410] With Kevin, with Kevin at the helm.
+- [23:08.670] And he's off to an incredible start with his family,
+- [23:12.320] with his education, with his background,
+- [23:14.980] with all of the things he's done.
+- [23:16.320] He's respected by everybody.
+- [23:17.850] So important is to have that level of respect
+- [23:20.060] where you can walk into a room and people will listen to you
+- [23:23.240] as opposed to walking into a room
+- [23:24.950] and not having that kind of persona.
+- [23:28.800] He has a persona like nobody else.
+- [23:30.620] So I just want to say congratulations, Chairman Warsh.
+- [23:33.930] You are really a special person in getting this job.
+- [23:38.510] The people that wanted this job,
+- [23:40.280] the most highly trained, highly educated,
+- [23:42.960] some of the greatest credentials I've ever seen.
+- [23:45.740] And as far as I'm concerned, nobody was even close,
+- [23:48.090] and I just want to congratulate you.
+- [23:49.710] And I'd like to ask if I might, Jane, to step forward
+- [23:52.890] and our very highly respected
+- [23:55.590] Justice Clarence Thomas to come up and swear in.
+- [24:00.350] Give him a good oath if you would Clarence, because we --
+- [24:03.540] Clarence, we need a really good oath delivered here.
+- [24:07.080] Okay. Thank you very much. Thank you.
+- [24:14.190] Judge Thomas: I do solemnly swear.
+- [24:16.140] Kevin Warsh: I, Kevin Warsh, do you solemnly swear.
+- [24:18.860] Judge Thomas: That I will support and defend
+- [24:20.750] the Constitution of the United States.
+- [24:23.180] Kevin Warsh: That I will support and defend
+- [24:24.540] the Constitution of the United States.
+- [24:26.640] Judge Thomas: Against all enemies foreign and domestic.
+- [24:29.970] Kevin Warsh: Against all enemies, foreign and domestic.
+- [24:32.910] Judge Thomas: That I will bear true faith and allegiance
+- [24:35.070] to the same.
+- [24:36.450] Kevin Warsh: That I will bear truth faith and allegiance
+- [24:38.790] to the same.
+- [24:40.040] Judge Thomas: That I take this obligation freely.
+- [24:42.680] Kevin Warsh: That I take this obligation freely.
+- [24:44.850] Judge Thomas: Without any mental reservation
+- [24:47.550] or purpose of evasion.
+- [24:49.300] Kevin Warsh: Without any mental reservation
+- [24:51.450] or purpose of evasion.
+- [24:53.440] Judge Thomas: And that I will well and faithfully discharge.
+- [24:57.610] Kevin Warsh: And that I will well and faithfully discharge.
+- [25:00.690] Judge Thomas: The duties of the office
+- [25:02.600] on which I'm about to enter.
+- [25:04.520] Kevin Warsh: The duties on the office
+- [25:05.850] upon which I'm about to enter.
+- [25:07.570] Judge Thomas: So help me God.
+- [25:09.000] Kevin Warsh: So help me God.
+- [25:10.720] (applause)
+- [26:02.960] Kevin Warsh: Thank you, Mr. President.
+- [26:04.520] This is above and beyond.
+- [26:08.070] It is such an honor for Jane and me to have this ceremony
+- [26:10.960] here in the East Room with you, sir.
+- [26:14.080] I couldn't ask for a more beautiful setting
+- [26:16.590] or more gracious welcome, and I am grateful.
+- [26:20.160] I recognize, as the president said,
+- [26:21.970] that ours is a time of great consequence.
+- [26:25.030] It's also a great honor for me to have the oath of office
+- [26:28.620] administered by one of the great and longest
+- [26:30.860] serving public servants.
+- [26:33.190] A brilliant and independent thinker,
+- [26:36.420] a man dedicated to our constitution
+- [26:39.780] and no less important, a joyful and collegial presence
+- [26:43.700] on our highest court.
+- [26:45.150] My esteemed friend, Justice Clarence Thomas.
+- [27:00.280] Now, Justice Kavanaugh is here as well.
+- [27:03.530] We served as young staffers a full generation ago
+- [27:07.010] in this building
+- [27:08.680] and I shouldn't be speaking for another justice,
+- [27:10.860] but I will tell you something that I always felt,
+- [27:13.910] that Justice Kavanaugh
+- [27:15.200] and I felt the majesty of this place where we're now sitting,
+- [27:19.800] and we counted ourselves blessed and grateful
+- [27:22.790] to serve the nation we love
+- [27:24.290] and to do it in your building, sir.
+- [27:27.240] Of course, I must thank Leader Thune, Chairman Tim Scott,
+- [27:31.750] and as fellow members of the banking committee
+- [27:34.600] who saw me through the Senate confirmation.
+- [27:37.930] My whole family and I are joined by many others here today
+- [27:42.060] who I'm honored to call friends and colleagues,
+- [27:45.270] mentors, confidants. Their presence means a lot to me
+- [27:49.420] and I think it means a lot to the president too.
+- [27:52.650] It's the honor of a lifetime
+- [27:54.340] to be called back into public service,
+- [27:57.130] and with this oath I've accepted
+- [27:59.910] a high and solemn responsibility.
+- [28:03.210] At the swearing in of Alan Greenspan
+- [28:05.370] at this very place in 1987, President Ronald Reagan
+- [28:10.310] called the chairmanship of the Federal Reserve
+- [28:12.580] a quote great role in American life.
+- [28:16.810] I've known five of my predecessors in this job,
+- [28:19.700] some of them quite well,
+- [28:21.740] but Chairman Greenspan was the first to tell me
+- [28:25.950] and show me what this role demands.
+- [28:29.310] He recently marked his 100th birthday,
+- [28:32.280] and although he can't be here,
+- [28:34.430] I'm thinking about him today too.
+- [28:37.770] Like Alan, I intend to fill the role of chairman with energy
+- [28:43.480] and purpose just the way Chairman Greenspan did,
+- [28:47.530] faithful to the mission and the very best traditions of the Fed.
+- [28:52.600] As you demonstrate, Mr. President,
+- [28:54.430] every day, energy and purpose
+- [28:57.590] are how big obstacles are overcome.
+- [29:00.880] Your greatest ambitions are for America,
+- [29:05.140] for what free people can achieve when they have the chance.
+- [29:09.410] While I'm not naive about the challenges
+- [29:11.650] we face I believe, Mr. President,
+- [29:15.010] these years can bring unmatched prosperity
+- [29:18.070] that will raise living standards for Americans
+- [29:20.460] from all walks of life,
+- [29:22.730] and the Fed has something to do with it.
+- [29:26.370] Our mandate at the Fed is to promote price stability
+- [29:29.860] and maximum employment.
+- [29:32.220] When we pursue those aims with wisdom and clarity,
+- [29:36.190] independence and resolve,
+- [29:38.480] inflation can be lower, growth stronger,
+- [29:42.850] real take home pay higher,
+- [29:45.380] and America can be more prosperous,
+- [29:48.390] and no less important,
+- [29:50.110] America's place in the world more secure.
+- [29:53.580] To fulfill this mission,
+- [29:54.800] I will lead a reform oriented Federal Reserve,
+- [29:58.180] learning from past successes and mistakes both,
+- [30:02.090] escaping static frameworks and models
+- [30:05.460] and upholding clear standards of integrity and performance.
+- [30:10.480] Today marks a return to an institution
+- [30:12.980] that I do in fact cherish. It was nearly a generation ago
+- [30:17.960] at another time of great consequence
+- [30:20.560] that I worked with some outstanding public servants
+- [30:22.910] at the Fed,
+- [30:24.160] both here in Washington and at the reserve banks.
+- [30:27.710] My goal now is to create an environment
+- [30:30.420] in which the best people can do their life's best work,
+- [30:34.550] and to face every challenge in the spirit of common purpose
+- [30:38.360] and devotion to the national interest,
+- [30:41.840] in a word, to excellence.
+- [30:44.420] These duties are now mine, Mr. President,
+- [30:47.020] because of the trust you have placed in me.
+- [30:50.020] I accept them with gratitude and will strive every day
+- [30:54.560] to serve our fellow citizens well.
+- [30:57.760] In final, I'll just say, I'm going to look around
+- [30:59.950] and try to hold on to this special moment,
+- [31:03.450] but after we leave this stage, the real work begins.
+- [31:07.110] So let's begin that work. It's an honor.
+- [31:09.370] Thank you again, Mr. President.
+- [31:12.160] (applause)
+- [31:47.735] ♪ (orchestral "God Bless ♪ America") ♪

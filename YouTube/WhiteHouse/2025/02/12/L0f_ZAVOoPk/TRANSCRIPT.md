@@ -1,0 +1,749 @@
+<!-- source: https://www.youtube.com/watch?v=L0f-ZAVOoPk -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: L0f-ZAVOoPk -->
+<!-- date_published: 2025-02-12T14:30:00+00:00 -->
+<!-- date_accessed: 2026-06-02T01:30:00.294835+00:00 -->
+
+# Transcript: President Trump Signs Executive Orders in the Oval Office,  Feb. 11, 2025
+
+- [00:00.670] Mr. Musk: Hello, everyone.
+- [00:02.170] President Trump: Hello, everybody.
+- [00:03.830] Mr. Musk: Fancy meeting you here.
+- [00:05.120] Do you come here often?
+- [00:10.410] President Trump: X, are you okay?
+- [00:12.290] This is X and he's a great guy.
+- [00:15.880] High IQ. He's a high IQ individual.
+- [00:19.770] Mr. Musk: And he's got [inaudible].
+- [00:22.140] President Trump: Thank you very much.
+- [00:23.410] We had a busy day today.
+- [00:24.630] The king just left and we've had a great discussion,
+- [00:28.590] terrific discussion concerning Gaza and everything else.
+- [00:34.310] We had discussions also about Saturday at 12 o'clock.
+- [00:39.680] It's going to be a big moment. We'll see what happens.
+- [00:41.600] I don't expect much happening with these people,
+- [00:44.370] but we'll see what happens.
+- [00:46.280] And we're going to be signing a very important deal today.
+- [00:50.850] It's DOGE and I'm going to ask Elon
+- [00:53.690] to tell you a little bit about it
+- [00:55.880] and some of the things that we've found which are shocking,
+- [00:59.530] billions and billions of dollars in waste, fraud, and abuse.
+- [01:04.050] And I think it's very important.
+- [01:06.330] That's one of the reasons I got elected.
+- [01:08.100] I say, we're going to do that.
+- [01:09.900] Nobody had any idea it was that bad and that corrupt.
+- [01:13.910] And it seems hard to believe that judges want to try
+- [01:16.430] and stop us from looking for corruption,
+- [01:18.720] especially when we found
+- [01:20.780] hundreds of millions of dollars worth,
+- [01:22.720] much more than that, in just a short period of time.
+- [01:25.900] We want to weed out the corruption.
+- [01:28.100] And it seems hard to believe that a judge could say, "
+- [01:30.660] We don't want you to do that."
+- [01:33.230] So maybe we have to look at the judges
+- [01:35.470] because I think it's a very serious violation.
+- [01:40.280] I'll ask Elon Musk to say a few words
+- [01:43.740] and we'll take some questions. Elon, go ahead.
+- [01:47.580] Mr. Musk: Sure.
+- [01:48.900] So at a high level, if you say, what is the goal of DOGE
+- [01:55.260] and I think a significant part of presidency,
+- [01:58.890] is to restore democracy.
+- [02:01.780] This may seem like, well, aren't we in a democracy?
+- [02:03.580] X Musk: You’re not the president so you need to go.
+- [02:05.070] Mr. Musk: Well, if you don't have a feedback loop…
+- [02:06.450] Okay, X. We'd have to… If you could. Sorry.
+- [02:10.870] I tell you gravitas can be difficult sometimes.
+- [02:15.340] So if there's not a good feedback loop
+- [02:19.290] from the people to the government
+- [02:22.980] if you have rule of the bureaucrat
+- [02:25.480] or if the bureaucracy is in charge,
+- [02:28.140] then what meaning does democracy actually have?
+- [02:31.200] If the people cannot vote and have their will be decided
+- [02:34.850] by their elected representatives in the form of the president
+- [02:38.820] and the Senate and the House,
+- [02:40.960] then we don't live in a democracy,
+- [02:42.500] we live in a bureaucracy.
+- [02:44.890] So it's incredibly important that we close
+- [02:46.610] that feedback loop, we fix that feedback loop
+- [02:48.990] and that the public's elected representatives,
+- [02:52.890] the president, the House and the Senate,
+- [02:54.840] decide what happens as opposed
+- [02:56.730] to a large unelected bureaucracy.
+- [03:00.080] This is not to say that there aren't…
+- [03:01.670] There are good people who are in the federal bureaucracy,
+- [03:05.730] but you can't have an autonomous federal bureaucracy,
+- [03:09.470] you have to have one that is responsive to the people.
+- [03:12.700] That's the whole point of a democracy.
+- [03:17.570] And if you looked at the founders today
+- [03:20.340] and said, what do you think of the way things have turned out?
+- [03:23.500] Well, we have this unelected,
+- [03:26.470] fourth unconstitutional branch of government,
+- [03:29.420] which is the bureaucracy, which has in a lot of ways
+- [03:32.190] currently more power than any elected representative.
+- [03:35.880] And this is not something that people want
+- [03:40.070] and it does not match the will of the people.
+- [03:43.530] So it's just something we've got to fix.
+- [03:46.120] And then we've also got to address the deficit.
+- [03:48.020] So we've got a $2 trillion deficit.
+- [03:51.080] And if we don't do something about this deficit,
+- [03:53.660] the country's going to be bankrupt.
+- [03:55.640] I mean, it's really astounding that the interest payments
+- [04:00.660] alone on the national debt
+- [04:02.900] exceed the Defense Department budget.
+- [04:05.500] Which is shocking because we spend a lot of money on defense
+- [04:10.480] and if that just keeps going,
+- [04:11.840] we're essentially going to bankrupt the country.
+- [04:13.790] So what I really want to say is it's not optional for us
+- [04:17.070] to reduce the federal expenses, it's essential.
+- [04:21.020] It's essential for America to remain solvent as a country
+- [04:24.950] and it's essential for America
+- [04:26.510] to have the resources necessary to provide things to citizens
+- [04:30.010] and not simply be servicing vast amounts of debt.
+- [04:33.380] President Trump: And also, could you mention
+- [04:34.700] some of the things that your team has found,
+- [04:37.730] some of the crazy numbers, including the woman
+- [04:40.290] that walked away with about $30 million, et cetera?
+- [04:43.860] Mr. Musk: Right. Well, we do find it rather odd
+- [04:47.050] that there are quite a few people in the bureaucracy
+- [04:54.550] who have extensively a salary of a few hundred thousand dollars,
+- [04:58.090] but somehow have managed to accrue tens of millions
+- [05:00.280] of dollars in net worth while they are in that position.
+- [05:04.470] Which is what happened with USAID.
+- [05:06.770] We're just curious as to where it came from.
+- [05:09.030] Maybe they're very good at investing,
+- [05:10.370] in which case we should take their investment advice perhaps.
+- [05:14.800] But there seems to be mysteriously they get wealthy
+- [05:18.420] and we don't know why. Where does it come from?
+- [05:22.060] And I think the reality is that they're getting wealthy
+- [05:24.350] at the taxpayer expense.
+- [05:25.770] That's the honest truth of it. So we are looking at…
+- [05:35.000] If you look at, say, Treasury for example,
+- [05:38.140] basic controls that should be in place,
+- [05:41.090] that are in place in any company,
+- [05:43.360] such as making sure that any payment
+- [05:45.250] has a payment categorization code,
+- [05:47.370] that there is a comment field that describes the payment,
+- [05:50.710] and that if a payment is on the do-not-pay list,
+- [05:53.800] that you don't actually pay it.
+- [05:55.770] None of those things are true currently.
+- [05:57.570] So the [inaudible]
+- [05:58.890] that departments can't pass audits
+- [06:01.220] is because the payments don't have a categorization code.
+- [06:03.950] It's like just a massive number of blank checks
+- [06:06.210] just flying out the building.
+- [06:07.550] So you can't reconcile blank checks.
+- [06:10.440] You've got comment fields that are also blank,
+- [06:12.130] so you don't know why the payment was made.
+- [06:14.510] And then we've got this truly absurd, a do-not-pay list,
+- [06:17.830] which can take up to a year for an organization
+- [06:20.740] to get on the do-not-pay list.
+- [06:23.550] And we're talking about terrorist organizations,
+- [06:25.890] we're talking about known fraudsters,
+- [06:28.670] known aspects of waste,
+- [06:30.300] known things that do not match any congressional appropriation
+- [06:33.180] can take up to a year to get on the list.
+- [06:35.220] And even once on the list, the list is not used,
+- [06:39.320] it's mind blowing.
+- [06:41.390] So what we're talking about here,
+- [06:43.680] we're really just talking about adding common sense controls
+- [06:47.030] that should be present that haven't been present.
+- [06:51.530] So you say, well, how could such a thing arise?
+- [06:53.980] That seems crazy.
+- [06:56.480] When you understand that really everything is geared
+- [06:58.540] towards complaint minimization,
+- [07:02.230] then you understand the motivations.
+- [07:04.640] So if people receive money, they don't complain. Obviously.
+- [07:08.620] But if people don't receive money, they do complain.
+- [07:12.020] And the fraudsters complain the loudest and of the fastest.
+- [07:15.660] So then when you understand that, then it makes sense.
+- [07:19.980] Oh, that's why everything's just approve
+- [07:23.160] all the payments at Treasury.
+- [07:24.980] Because if you approve all the payments,
+- [07:27.300] you don't get complaints. But now we're saying that no,
+- [07:31.070] actually we are going to complain.
+- [07:32.780] If money is spent badly,
+- [07:34.510] if your taxpayer dollars are not spent
+- [07:36.610] in a sensible and frugal manner, then that's not okay.
+- [07:40.870] Your tax dollars need to be spent wisely
+- [07:43.800] on things that matter to the people.
+- [07:46.690] I mean these things, it's just common sense.
+- [07:51.420] It's not draconian or radical, I think.
+- [07:54.080] It's really just saying,
+- [07:55.430] let's look at each of these expenditures and say,
+- [07:58.430] is this actually in the best interest of the people?
+- [08:00.460] And if it is, it's approved,
+- [08:01.740] it's not, we should think about it.
+- [08:04.420] So there's crazy things,
+- [08:08.430] just a cursory examination of Social Security
+- [08:11.050] and we've got people in there that are 150 years old.
+- [08:14.660] Now, do you know anyone who's 150?
+- [08:16.890] I don't. Okay.
+- [08:19.150] They should be on the Guinness Book of World Records.
+- [08:20.960] They're missing out.
+- [08:23.470] So that's the case where I think they're probably dead,
+- [08:26.630] it's my guess.
+- [08:28.320] Or they should be very famous, one of the two.
+- [08:32.280] And then there's a whole bunch of Social Security payments
+- [08:34.180] where there's no identifying information.
+- [08:36.530] Well, why is there no identifying information?
+- [08:40.040] Obviously we want to make sure that people
+- [08:41.940] who deserve to receive Social Security do receive it
+- [08:46.610] and that they receive it quickly and accurately.
+- [08:49.940] I'll tell you another crazy thing.
+- [08:51.240] So one of the things is we're trying to of right-size
+- [08:55.450] the federal bureaucracy, just make sure that this…
+- [08:57.920] Obviously there needs to be a lot of people
+- [08:59.410] working for the federal government,
+- [09:00.640] but not as many as currently.
+- [09:02.030] So we're saying, "Well, okay, well,
+- [09:04.160] if people can retire with full benefits and everything,
+- [09:08.240] that would be good." They can retire,
+- [09:09.900] get their retirement payments and everything.
+- [09:11.300] And then we were told,
+- [09:12.520] this is actually I think a great anecdote,
+- [09:14.070] because we were told the most number of people
+- [09:16.480] that could retire possibly in a month is 10,000.
+- [09:19.350] We're like, "Well, why is that?"
+- [09:22.240] "Well, because all the retirement paperwork
+- [09:25.510] is manual, on paper. It's manually calculated,
+- [09:28.560] then written down on a piece of paper.
+- [09:30.290] Then it goes down a mine."
+- [09:32.420] I'm like, "What do you mean a mine?"
+- [09:33.850] Like, "Yeah, there's a limestone mine
+- [09:36.350] where we store all the retirement paperwork."
+- [09:39.550] And you look at a picture of this mine,
+- [09:41.050] [inaudible 00:09:42] some pictures afterwards,
+- [09:44.060] and this mine looks like something out of the '50s
+- [09:46.100] because it was started in 1955. It's like a time warp.
+- [09:52.410] And then the limiting factor is,
+- [09:54.640] the speed at which the mine shaft elevator
+- [09:56.950] can move determines how many people can retire
+- [09:59.650] from federal government.
+- [10:03.310] And the elevator breaks down sometimes
+- [10:05.320] and then nobody can retire. Doesn't that sound crazy?
+- [10:10.540] There's like 1,000 people that work on this.
+- [10:12.510] So I think if we take those people and say like,
+- [10:14.990] "You know what, instead of working in a mine shaft
+- [10:18.520] carrying manila envelopes to boxes in a mine shaft,
+- [10:23.340] you could do practically anything else
+- [10:25.550] and you would add to the goods and services
+- [10:28.530] of the United States in a more useful way."
+- [10:34.620] Anyway, so I think that's an example.
+- [10:37.270] At a high level, if you say, how do we increase prosperity,
+- [10:39.530] is we get people to shift from roles
+- [10:42.220] that are low to negative productivity
+- [10:45.090] to higher productivity roles.
+- [10:47.160] And so you increase the total output of goods and services,
+- [10:49.680] which means that there's a higher standard
+- [10:51.330] of living available for everyone.
+- [10:53.820] That's the actual goal.
+- [10:57.040] Everyone's very quiet, by the way.
+- [10:59.470] Are people always this quiet?
+- [11:01.620] The Press: Your detractors, Mr. Musk-
+- [11:02.920] Mr. Musk: What?
+- [11:04.180] The Press: … including a lot of Democrats.
+- [11:05.750] Mr. Musk: I have detractors?
+- [11:06.950] The Press: You do, sir. Mr. Musk: I don't believe it.
+- [11:08.500] The Press: Say that you're orchestrating a hostile
+- [11:11.350] takeover of government
+- [11:12.790] and doing it in a non-transparent way.
+- [11:15.290] What's your response to that criticism?
+- [11:17.780] Mr. Musk: Well, first of all,
+- [11:20.360] you couldn't ask for a stronger mandate from the public.
+- [11:27.090] We have a majority of the public voting for President Trump.
+- [11:31.710] We won the House, we won the Senate.
+- [11:35.930] The people voted for major government reform.
+- [11:40.380] There should be no doubt about that.
+- [11:41.630] That was on the campaign.
+- [11:43.690] The president spoke about that at every rally.
+- [11:46.190] The people voted for major government reform,
+- [11:48.480] and that's what people are going to get.
+- [11:50.040] They're going to get what they voted for.
+- [11:52.300] And a lot of times people, they don't get what they voted for,
+- [11:56.020] but in this presidency,
+- [11:57.280] they are going to get what they voted for.
+- [11:58.990] And that's what democracy is all about.
+- [12:03.250] The Press: Mr. Musk, the White House says
+- [12:04.620] that you identify and excuse yourself
+- [12:06.540] from any conflicts of interest that you may have.
+- [12:09.580] Does that mean that you are in effect policing yourself?
+- [12:12.510] What are the checks and balances that are in place to ensure
+- [12:14.840] that there is accountability and transparency?
+- [12:18.170] Mr. Musk: Well, we actually are trying to be
+- [12:19.530] as transparent as possible.
+- [12:20.820] In fact, we post our actions to the DOGE handle on X
+- [12:26.830] and to the DOGE website.
+- [12:28.790] So all of our actions are maximally transparent.
+- [12:31.470] In fact, I don't think there's been …
+- [12:33.400] I don't know of a case where an organization
+- [12:36.260] has been more transparent than the DOGE organization.
+- [12:39.770] And the kind of things we're doing
+- [12:43.360] are I think very, very simple and basic.
+- [12:47.550] What I mentioned, for example, about Treasury,
+- [12:49.650] just making sure that payments that go out,
+- [12:52.350] taxpayer money that goes out, is categorized correctly.
+- [12:55.640] That the payment is explained. That organizations on the Do
+- [12:59.470] Not Pay list, which takes a lot to get there,
+- [13:02.350] they actually are not paid, which currently they are paid.
+- [13:06.050] These are not individual judgment decisions,
+- [13:08.980] these are about simply having sensible checks
+- [13:10.990] and balances in the system itself
+- [13:12.890] to ensure that taxpayer money is spent well.
+- [13:15.040] So it's got nothing to do with, say,
+- [13:16.440] a contract with some company of mine at all.
+- [13:18.950] The Press: But there is a conflict of interest
+- [13:20.930] when it comes to you, yourself.
+- [13:22.240] For instance, you've received billions of dollars
+- [13:24.820] in federal contracts when it comes to the Pentagon,
+- [13:27.270] for instance, which the president
+- [13:28.920] I know has directed you to look into.
+- [13:30.820] Are you policing yourself in that?
+- [13:32.490] Is there any sort of accountability check and balance
+- [13:35.450] in place that would provide any transparency
+- [13:37.920] for the American people?
+- [13:39.200] Mr. Musk: Well, all of our actions are fully public.
+- [13:42.840] So if you see anything, you say like, "Wait a second.
+- [13:45.060] Hey, Elon, that seems like maybe there's a conflict there."
+- [13:50.270] It's not like people are going to be shy about saying that.
+- [13:52.380] They'll say it immediately.
+- [13:53.580] The Press: Including you, yourself?
+- [13:54.790] Mr. Musk: Yes. Transparency is what builds trust,
+- [13:59.390] not simply somebody asserting trust.
+- [14:01.890] Not somebody saying they're trustworthy,
+- [14:03.820] but transparency so you can see everything that's going on.
+- [14:05.790] And then you can see, am I doing something
+- [14:08.110] that benefits one of my companies or not?
+- [14:10.200] It's totally obvious.
+- [14:11.880] The President: And if we thought that we would not let him
+- [14:13.730] do that segment or look in that area,
+- [14:16.660] if we thought there was a lack of transparency
+- [14:20.170] or a conflict of interest, we watched that also.
+- [14:23.880] He is a big businessman. He is a successful guy.
+- [14:26.490] That's why we want him doing this.
+- [14:27.870] We don't want an unsuccessful guy doing this.
+- [14:31.960] Now, one thing also that Elon hasn't really mentioned
+- [14:35.540] are the groups of people
+- [14:37.350] that are getting some of these payments.
+- [14:39.320] They're ridiculous.
+- [14:40.780] And we're talking about billions of dollars
+- [14:42.510] that we've already found. We found fraud and abuse.
+- [14:47.400] I would say those two words
+- [14:48.680] as opposed to the third word that I usually use,
+- [14:50.810] but in this case, fraud and abuse.
+- [14:54.350] It's abusive because most of these things
+- [14:57.320] are virtually made up
+- [14:58.660] or certainly money shouldn't be sent to them.
+- [15:01.250] And you know what I'm talking about. It's crazy.
+- [15:05.320] But we're talking about tens of billions of dollars
+- [15:09.020] that we've already found.
+- [15:10.810] And now a judge is an activist, judge, wants to try
+- [15:15.770] and stop us from doing this. Why?
+- [15:17.820] Why would they want to do that? I campaigned on this.
+- [15:19.790] I campaigned on the fact that I said government is corrupt,
+- [15:23.350] and it is very corrupt. It's also foolish.
+- [15:28.770] As an example, a man has a contract for three months
+- [15:32.250] and the contract ends,
+- [15:33.760] but they keep paying him for the next 20 years
+- [15:35.810] because nobody ends a contract. You get a lot of that.
+- [15:38.020] You have a contract that's a three-month contract.
+- [15:42.520] Now, normally if you're in a small …
+- [15:44.380] In all fairness, it's the size of this thing is so big,
+- [15:48.170] but if you have a contract
+- [15:50.200] and you're in a regular business,
+- [15:51.640] you end the contract in three months.
+- [15:53.130] You know it's a consultant.
+- [15:55.240] Here's a contract for three months,
+- [15:57.120] but it goes on for 20 years.
+- [15:59.720] And the guy doesn't say that he got money for 20 years.
+- [16:01.830] They don't say it,
+- [16:03.040] they just keep getting checks month after month.
+- [16:05.430] And you have various things like that.
+- [16:07.550] And even much worse than that, actually, much worse.
+- [16:10.690] And I guess you call that incompetence, maybe.
+- [16:13.000] It could be corruption.
+- [16:14.200] It could be a deal's made on both sides
+- [16:16.150] where the guy gets some money.
+- [16:18.790] I think there's a lot of kickback here.
+- [16:20.370] I see a lot of kickback here.
+- [16:21.640] Mr. Musk: There's a lot of kickbacks.
+- [16:22.910] The President: Tremendous kickback.
+- [16:24.110] Because nobody could be so stupid
+- [16:25.350] to give out some of these contracts,
+- [16:26.870] so he has to get a kickback.
+- [16:28.910] So that's what I got elected for,
+- [16:32.610] that and borders and military and a lot of things,
+- [16:35.740] but this is a big part of it. And I hope that the court system
+- [16:40.730] is going to allow us to do what we have to do.
+- [16:42.810] We got elected to, among other things,
+- [16:45.210] find all of this fraud, abuse,
+- [16:47.970] all of this horrible stuff going on.
+- [16:50.770] And we've already found billions of dollars.
+- [16:53.010] Not like a little bit, billions, many billions of dollars.
+- [16:58.350] And when you get down to it it's going to be
+- [17:01.180] probably close to a trillion dollars.
+- [17:03.090] It could be close to a trillion dollars
+- [17:04.920] that we're going to find.
+- [17:06.780] That will have quite an impact on the budget.
+- [17:10.280] And you'll go to a judge, where they hand pick judge,
+- [17:13.540] and he has certain leanings.
+- [17:15.880] I'm not knocking anybody for that,
+- [17:17.490] but he has certain leanings, and he wants us to stop looking.
+- [17:22.020] How do you stop looking? I mean, we've already found it.
+- [17:24.790] We have a case in New York where a hotel
+- [17:27.660] is paid $59 million, 59 million, because it's housing migrants,
+- [17:34.120] illegal migrants, all illegal, I believe.
+- [17:36.900] Mr. Musk: And they were being paid
+- [17:38.100] twice the normal room rate at 100% occupancy.
+- [17:39.590] The President: Yeah, unbelievable [inaudible]
+- [17:40.820] Mr. Musk: So it's a racket.
+- [17:42.030] The Press: Mr. Musk, can I ask you a question?
+- [17:43.550] You said on … Sorry.
+- [17:44.770] Mr. Musk: If I may just go into the president's comments.
+- [17:49.150] At a high level, what are the two ingredients
+- [17:55.430] that are really necessary
+- [17:56.720] in order to cut the budget deficit in half
+- [17:59.380] from two trillion to one a trillion.
+- [18:01.210] And it's really two things, competence and caring.
+- [18:06.180] And if you add competence and caring,
+- [18:08.500] you'll cut the budget deficit in half.
+- [18:10.970] And I fully expect to be scrutinized
+- [18:14.090] and get a daily proctology exam basically.
+- [18:17.320] My soldiers camp out there.
+- [18:19.650] So it's not like I think I can get away with something,
+- [18:22.210] I'll be scrutinized non-stop but with support of the president,
+- [18:27.000] we can cut the budget deficit in half from $2 trillion to one.
+- [18:31.100] And then with deregulation,
+- [18:33.320] because there's a lot of regulations
+- [18:35.790] that don't ultimately serve the public good…
+- [18:38.670] We need to free the builders of America to build.
+- [18:42.140] And if we do that,
+- [18:43.890] that means I think we can get the economic growth
+- [18:46.400] to be maybe three, 4%, maybe 5%. And that means if you can get
+- [18:50.500] a trillion dollars of economic growth
+- [18:51.850] and you can cut the budget deficit by a trillion,
+- [18:55.870] between now and next year, there is no inflation.
+- [18:59.560] There's no inflation in '26.
+- [19:01.760] And if the government is not borrowing as much,
+- [19:03.860] it means that interest costs decline.
+- [19:05.370] So everyone's…
+- [19:06.600] The mortgage, their car payment, their credit card bills,
+- [19:10.190] their student debt, the monthly payments drop.
+- [19:15.040] That's a fantastic scenario for the average American.
+- [19:20.110] I mean, imagine they're going down the grocery aisle
+- [19:22.680] and the prices from one year to the next
+- [19:25.670] are the same and their mortgage, all their debt payments dropped.
+- [19:33.650] How great is that for the average American?
+- [19:36.800] That's what-
+- [19:38.060] The President: We had no idea we were going to find this much.
+- [19:40.060] And it's open.
+- [19:41.430] It's not like complicated. It's simple stuff.
+- [19:43.420] Mr. Musk: It's not complicated.
+- [19:44.740] The President: It's a- Mr. Musk: Lot of work.
+- [19:45.990] The President: We can't believe it.
+- [19:47.220] A lot of work, a lot of smart people involved.
+- [19:49.230] Very, very smart people.
+- [19:50.470] But you're talking about anywhere…
+- [19:54.450] Maybe $500 billion…
+- [19:56.450] It's crazy the kind of numbers you're talking about.
+- [19:58.500] Mr. Musk: It's really crazy.
+- [19:59.710] The President: Normally when you're looking at something,
+- [20:01.420] you'll find you're looking for one out of a hundred.
+- [20:04.120] Here you're almost reversing it. You look for one that's good.
+- [20:08.210] And you can look at the title and you say,
+- [20:10.420] "Why are we doing this? Why are we doing that?"
+- [20:12.560] And the public gets it. The public gets it.
+- [20:14.760] You've seen the polls. The public is saying,
+- [20:16.810] "Why are we paying all this money?"
+- [20:18.460] For years, this has gone on.
+- [20:20.850] The Press: Mr. Musk? President Trump?
+- [20:22.860] The President: Yeah, go ahead. Wait, go ahead.
+- [20:24.250] The Press: Senator Rand Paul today
+- [20:25.490] said that DOGE cuts will ultimately need a vote
+- [20:27.580] in Congress.
+- [20:28.800] Do you agree with that? Is that the plan?
+- [20:30.100] The President: I really don't know.
+- [20:31.340] I know this. We're finding tremendous fraud
+- [20:34.300] and tremendous abuse.
+- [20:36.050] If I need a vote of Congress to find fraud and abuse,
+- [20:38.940] it is fine with me. I think we'll get the vote.
+- [20:42.170] Although there'll be some people that wouldn't vote.
+- [20:44.460] And how could a judge want to hold us back
+- [20:46.500] from finding all of this fraud
+- [20:48.590] and finding all of this incompetence?
+- [20:51.510] Why would that happen?
+- [20:52.770] Why would even Congress want to do that?
+- [20:54.710] Now, Congress… If we do need a vote,
+- [20:56.670] I think we'd get a very easy vote
+- [20:58.390] because we have a track record now.
+- [21:00.130] We've already found billions of dollars of abuse,
+- [21:04.310] incompetence, and corruption. A lot of corruption.
+- [21:07.830] The Press: If a judge does block one of your policies,
+- [21:10.460] part of your agenda, will you abide by that ruling?
+- [21:12.430] Will you comply-?
+- [21:13.670] The President: Well, I always abide by the courts
+- [21:15.110] and then I'll have to appeal it.
+- [21:16.350] But then what he's done is he slowed down the momentum
+- [21:19.830] and it gives crooked people more time to cover up the books.
+- [21:24.440] If a person's crooked and they get caught,
+- [21:27.230] other people see that and all of a sudden
+- [21:28.920] it becomes harder later on.
+- [21:30.870] So yeah, the answer is I always abide by the courts,
+- [21:34.880] always abide by them and we'll appeal.
+- [21:37.910] But appeals take a long time and I would hope that a judge…
+- [21:41.340] If you go into a judge and you show them,
+- [21:43.280] "Here's a corrupt situation.
+- [21:45.540] We have a check to be sent, but we found it to be corrupt.
+- [21:49.660] Do you want us to send this corrupt check to a person
+- [21:52.740] or do you want us not to give it
+- [21:54.110] and give it back to the taxpayer?"
+- [21:56.210] I would hope a judge would say, "Don't send it.
+- [21:58.380] Give it back to the taxpayer."
+- [21:59.610] Mr. Musk: Yeah. If I can add to that,
+- [22:01.710] what we're finding is that a bunch of the fraud
+- [22:03.470] is not even going to Americans.
+- [22:05.410] So I think we can all agree that if there's going to be fraud,
+- [22:07.760] it should at least go to Americans.
+- [22:09.680] But a bunch of the fraud rings
+- [22:11.070] that are operating in the United States
+- [22:12.660] and taking advantage of the federal government,
+- [22:14.360] especially in the entitlements programs,
+- [22:16.090] are actually foreign fraud rings.
+- [22:17.380] They're operating in other countries
+- [22:18.960] and actually exporting money to other countries.
+- [22:22.380] We should stop that. And this is big numbers.
+- [22:26.080] We're talking about a hundred, $200 billion a year.
+- [22:28.490] Serious money.
+- [22:29.780] The Press: Mr. Musk, you said on X
+- [22:31.550] that an example of the fraud that you have cited
+- [22:35.700] was $50 million of condoms was sent to Gaza,
+- [22:39.810] but after fact check this, apparently Gaza and Mozambique
+- [22:44.510] and the program was to protect them against HIV.
+- [22:48.150] So can you correct the statements?
+- [22:49.850] It wasn't sent to Hamas, actually.
+- [22:51.600] It was sent to Mozambique,
+- [22:52.950] which makes sense why condoms was sent there.
+- [22:55.500] And how can we make sure that all the statements
+- [22:57.860] that you said were correct so we can trust what you say?
+- [23:01.290] Mr. Musk: Well, first of all, some of the things
+- [23:03.090] that I say will be incorrect and should be corrected.
+- [23:06.220] So nobody's going to bat a thousand.
+- [23:08.580] I mean, we will make mistakes,
+- [23:10.400] but we'll act quickly to correct any mistakes.
+- [23:16.700] I'm not sure we should be sending $50 million
+- [23:18.740] worth of condoms to anywhere, frankly.
+- [23:20.950] I'm not sure that's something Americans
+- [23:22.390] would be really excited about.
+- [23:24.200] And that is really an enormous number of condoms,
+- [23:26.050] if you think about it.
+- [23:28.360] But if it went to Mozambique instead of Gaza, I'm like,
+- [23:31.280] "Okay, that's not as bad.
+- [23:32.680] But still, why are we doing that?"
+- [23:35.510] The Press: Mr. Musk, can you talk a little bit
+- [23:37.600] about how closely you're working with agency heads
+- [23:40.290] as you're directing these cuts? Do they have the…?
+- [23:44.620] How much input do agency heads
+- [23:46.150] have when you're making these decisions?
+- [23:48.180] Mr. Musk: Yeah, we work closely with the agency heads.
+- [23:52.560] Yeah, so there are sort of checks in place.
+- [23:55.820] So it's not just us just going in and doing things willy-nilly.
+- [23:58.960] It's in partnership with the agency head.
+- [24:02.320] And I checked previously with the president
+- [24:04.770] to make sure that this is
+- [24:06.390] what the president wants to have happen.
+- [24:08.120] So we talk almost every day and I double-check things
+- [24:13.660] to make sure, is this something…?
+- [24:15.640] "Mr. President, do you want us to do this?"
+- [24:17.720] Then we'll do it.
+- [24:19.420] The Press: USAID has been one of your main targets.
+- [24:22.510] Are you concerned at all that some of the cuts
+- [24:24.570] or that shutting that agency
+- [24:25.820] altogether may lead to diseases or other bigger problems
+- [24:30.260] starting in other countries that then come to the United States?
+- [24:33.430] Mr. Musk: Yeah, so that's an interesting example.
+- [24:35.340] So that's something where we work closely
+- [24:36.890] with the State Department and Secretary Rubio,
+- [24:40.380] and we have, for example, turned on funding for Ebola prevention
+- [24:44.780] and for HIV prevention.
+- [24:46.400] The Press: Left that you said?
+- [24:47.660] Mr. Musk: Yes, correct.
+- [24:49.480] And we are moving fast, so we all make mistakes,
+- [24:52.910] but we'll also fix the mistakes very quickly.
+- [24:54.770] The Press: Do you see it as a worthy cause, USAID?
+- [24:58.990] Mr. Musk: I think that there are some worthy things,
+- [25:01.070] but overall, if you say,
+- [25:02.520] "What was the bang for the buck?"
+- [25:04.030] I would say it was not very good.
+- [25:07.070] There was far too much of what USAID was doing
+- [25:10.470] was influencing elections in ways
+- [25:14.040] that I think were dubious
+- [25:15.490] and do not stand the light of day.
+- [25:17.960] The Press: I just have to follow up to the Pentagon contracts.
+- [25:20.770] If you have received billions of dollars
+- [25:22.800] in contracts from the Pentagon and the President's
+- [25:25.590] directing you to look into the Department of Defense, is that-
+- [25:27.630] Mr. Musk: Yes.
+- [25:28.870] We are going to do it at the President's request.
+- [25:31.380] The Press: Does that present a conflict of interest for you?
+- [25:33.410] Mr. Musk: No, because you'd have to look
+- [25:34.690] at the individual contract and say…
+- [25:36.260] First of all, I'm not the one filing the contract.
+- [25:39.950] It's people at SpaceX or someone
+- [25:41.590] who will be filing for the contract.
+- [25:43.130] And I'd like to say if you see any contract
+- [25:45.280] where it was awarded to SpaceX
+- [25:48.000] and it wasn't by far the best value
+- [25:49.500] for money for the taxpayer,
+- [25:50.870] let me know because every one of them was.
+- [25:53.680] The Press: The president said the other day
+- [25:54.970] that you might look at treasuries.
+- [25:57.710] Could you explain that a little bit?
+- [25:59.170] What kind of fraud…?
+- [26:00.870] And that question goes to both of you.
+- [26:02.670] What kind of fraud are you expecting to see
+- [26:05.010] or do you see right now in US Treasuries?
+- [26:08.620] Mr. Musk: I think you mean the Treasury department
+- [26:10.290] as opposed to Treasury bills, or-
+- [26:11.790] The Press: You also referenced treasuries on Air Force One
+- [26:13.330] the other night.
+- [26:14.560] The President: Go ahead.
+- [26:15.820] Mr. Musk: Well, as I mentioned earlier,
+- [26:17.950] really the first order of business
+- [26:19.890] is to make sure we're actually collecting…
+- [26:21.510] Sorry for this. I thought my son might enjoy this,
+- [26:24.510] but he's sticking his fingers in my ears and stuff.
+- [26:29.030] It's been hard to hear sometimes.
+- [26:30.410] Hey, stop that.
+- [26:35.120] The stuff we're doing with the Treasury department
+- [26:37.430] is so basic that you can't believe
+- [26:40.060] it doesn't exist already.
+- [26:43.730] So for example, like I mentioned,
+- [26:45.560] just making sure that when a payment goes out,
+- [26:47.850] it has to have a payment categorization code.
+- [26:50.830] What type of payment is this?
+- [26:54.270] You can't just leave the field blank.
+- [26:55.810] Currently, many payments, the field is left blank
+- [26:58.850] and you have to describe what's the payment
+- [27:00.370] before some basic rationalization.
+- [27:02.370] That also is left blank.
+- [27:05.720] When's the last time the Pentagon passed an audit?
+- [27:07.320] I mean, a decade ago maybe? Ever? Really?
+- [27:11.320] And we want to just, in order to actually pass audits,
+- [27:15.100] you have to have financial information
+- [27:16.670] that allows you to trace the payments.
+- [27:22.010] And once in a while the Treasury has to pause payments
+- [27:26.590] if it thinks the payment is going
+- [27:28.500] to a fraudulent organization.
+- [27:34.270] If a company or organization is on a do-not-pay list,
+- [27:37.780] we should not pay it. I'm sure you would agree.
+- [27:39.960] If it's quite hard to get on that payment,
+- [27:41.660] the do-not-pay list,
+- [27:42.940] it means that this is someone that is like dead people,
+- [27:47.660] terrorists, known fraudsters, that kind of thing.
+- [27:53.270] We should not pay them.
+- [27:54.970] But currently we do, which is crazy.
+- [27:57.800] We should stop that.
+- [27:59.070] The President: A man who leads by his actions.
+- [28:00.970] And by the way, hundreds,
+- [28:02.720] thousands of transactions like that, we have a big team.
+- [28:06.980] And for the sake of the country,
+- [28:10.420] I hope that the person that's in charge
+- [28:12.760] and the other people that report to me
+- [28:14.940] that are in charge are allowed to do the right thing,
+- [28:18.150] namely make sure everything's honest,
+- [28:20.550] legitimate, and competent.
+- [28:24.720] When you look at USAID, that's one.
+- [28:27.800] We're going to look at the military,
+- [28:29.120] we're going to look at education.
+- [28:31.120] They're much bigger areas, but the USAID is really corrupt.
+- [28:35.650] I'll tell you. It's corrupt.
+- [28:36.950] It's incompetent and it's really corrupt.
+- [28:40.280] I can't imagine a judge saying, "Well, it may be corrupt,
+- [28:42.840] but you got elected to look over the country
+- [28:46.370] and to, as we say, make America great again,
+- [28:49.100] but you don't have the right to go and look
+- [28:50.730] and see whether or not things are right, that they're paying
+- [28:54.060] or that things are honest that they're paying."
+- [28:56.980] And nobody can even believe this.
+- [28:58.600] Other people, law professors, they've been saying,
+- [29:02.520] "How can you take that person's right away?
+- [29:04.450] You're supposed to be running the country,
+- [29:05.810] but we're not allowed to look at who they're paying it to
+- [29:08.770] and what they're paying."
+- [29:10.020] We have massive amounts of fraud that we caught.
+- [29:13.330] I think we probably caught way
+- [29:14.910] over a lot of billions of dollars already in…
+- [29:18.290] What? Two weeks?
+- [29:19.540] The Press: Yes.
+- [29:20.750] The President: And it's going to go to numbers
+- [29:22.720] that you're not going to believe.
+- [29:23.930] And as I said, much is incompetence
+- [29:26.950] and much is dishonesty. We have to catch it.
+- [29:29.400] And the only way we're going to catch it is to look for it.
+- [29:31.710] And if a judge is going to say,
+- [29:32.940] "You're not allowed to look for it,"
+- [29:35.410] that's pretty sad for our country.
+- [29:37.380] I don't understand how it could even work.
+- [29:39.160] The Press: The buyout program,
+- [29:40.500] can you personally guarantee that?
+- [29:41.790] The President: Which one?
+- [29:42.990] The Press: The buyout program. The offer to federal workers.
+- [29:45.580] Can you personally guarantee that the workers
+- [29:47.250] who opt in to resign now will be paid through September?
+- [29:49.620] The President: Well, they'd make their money,
+- [29:50.860] but they're getting a good deal. They're getting a big buyout.
+- [29:53.960] And what we're trying to do is reduce government.
+- [29:56.050] We have too many people.
+- [29:57.280] We have office space. It's occupied by 4%.
+- [30:00.860] Nobody's showing up to work because they were told not to.
+- [30:04.140] And then Biden gave them a five-year pass, some of them.
+- [30:07.060] 48,000 of them. He gave him a five-year pass,
+- [30:09.770] that for five years you don't have to show up to work.
+- [30:13.530] And let me tell you, much of this stuff is because of Biden.
+- [30:16.960] It's his fault.
+- [30:22.030] What he did on our border is almost not as bad
+- [30:24.310] as what he did with all of these contracts that have come out.
+- [30:29.390] It's a very sad day when we look at it.
+- [30:31.670] I can't even believe it, but many contracts just extend
+- [30:34.980] and they just keep extending
+- [30:36.180] and there was nobody there to correct it.
+- [30:40.550] I can't imagine that could be held up by the court.
+- [30:43.420] Any court that would say
+- [30:44.730] that the president or his representatives,
+- [30:47.750] like Secretary of the Treasury, Secretary of State, whatever,
+- [30:51.560] doesn't have the right to go over their books
+- [30:53.540] and make sure everything's honest, I mean,
+- [30:55.660] how can you have a country?
+- [30:56.910] You can't have anything that way.
+- [30:58.200] You can't have a business that way.
+- [30:59.500] You can't have a country that way.
+- [31:01.190] Thank you very much everybody. Thank you. Thank you, press.
+- [31:02.950] Thank you, press. He's coming back tonight.
+- [31:10.050] Marc Fogel will be at the White House
+- [31:12.190] tonight at about 10 o'clock.
+- [31:13.640] If you want to come over, you can say hello to him.
+- [31:15.480] The Press: Did the US give anything in return?
+- [31:18.720] The President: Not much, no. They were very nice.
+- [31:21.470] We were treated very nicely by Russia actually.
+- [31:24.730] I hope that's the beginning of a relationship
+- [31:27.510] where we can end that war
+- [31:29.320] and millions of people can stop being killed.
+- [31:31.780] They've lost millions of people. They lost, in terms of soldiers,
+- [31:35.830] probably 1.5 million soldiers, in a short period of time.
+- [31:41.290] We got to stop that war.
+- [31:43.100] And I'm interested primarily from the standpoint of death.
+- [31:46.500] We're losing all those soldiers
+- [31:47.880] and they're not American soldiers,
+- [31:49.160] they're Ukrainian and Russian soldiers.
+- [31:50.370] But you're probably talking about a million and a half.
+- [31:51.620] I think we got to bring that one to an end.
+- [31:52.860] Okay? Thank you. Thank you much.
+- [31:53.620] The Press: Thank you. We're leaving.
+- [31:54.130] The Press: Let's go. Let's move. The Press: Thank you, sir.
+- [31:54.990] The Press: Thank you for moving. The President: 10 o'clock.
+- [31:55.830] 10 o'clock tonight at the White House.
+- [31:56.690] The Press: All right guys.
+- [31:57.030] The Press: Thanks everybody. Let's cut out.
+- [31:57.830] The President: Thank you. See you later.
+- [31:58.320] Mr. Musk: It's a lot. The President: Thank you guys.
+- [31:58.870] The Press: Thanks guys. Right behind the stills.
+- [31:59.820] The Press: I think they're less than a…

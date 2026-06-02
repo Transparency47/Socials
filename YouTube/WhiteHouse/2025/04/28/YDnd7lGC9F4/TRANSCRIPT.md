@@ -1,0 +1,703 @@
+<!-- source: https://www.youtube.com/watch?v=YDnd7lGC9F4 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: YDnd7lGC9F4 -->
+<!-- date_published: 2025-04-28T17:56:51+00:00 -->
+<!-- date_accessed: 2026-06-02T02:51:19.541658+00:00 -->
+
+# Transcript: Press Secretary Karoline Leavitt Briefs Members of the New Media, Apr. 28, 2025
+
+- [00:04.410] Ms. Leavitt: Thank you for coming today.
+- [00:06.170] It's great to be with you.
+- [00:07.470] This is our first official influencer
+- [00:10.500] briefing here at The White House.
+- [00:12.100] I want to thank you all so much for joining us
+- [00:14.340] on what is day 99 of the Trump administration.
+- [00:18.260] And as I promised, as my first briefing
+- [00:20.490] as Press Secretary back in January,
+- [00:22.970] the Trump White House will speak to all media outlets
+- [00:26.170] and personalities, not just the legacy media
+- [00:28.960] who traditionally has covered this institution.
+- [00:32.740] Tens of millions of Americans are now turning to social media
+- [00:36.230] and independent media outlets to consume their news,
+- [00:39.010] and we are embracing that change, not ignoring it.
+- [00:42.160] It's well pastime that The White House
+- [00:43.880] Press operation reflected the media habits
+- [00:46.200] of the American people in 2020, not 1925,
+- [00:52.080] and thanks to President Trump,
+- [00:53.550] a select group of DC-based journalists
+- [00:56.010] no longer have a monopoly
+- [00:57.670] over press access here at The White House.
+- [01:00.480] All journalists, outlets,
+- [01:01.940] and voices have a seat at the table now,
+- [01:04.090] and you being here today for this briefing proves that.
+- [01:08.190] Today officially marks the 99th day of Promises made
+- [01:11.160] and kept by President Trump.
+- [01:13.060] Our primary focus today is how President Trump
+- [01:15.450] has fulfilled one of his central campaign
+- [01:17.990] promises to the American people in record time
+- [01:21.150] ending the massive illegal invasion
+- [01:23.610] and securing our nation's southern and northern borders.
+- [01:27.500] As we know, Joe Biden allowed millions of criminal,
+- [01:30.070] illegal aliens to pour into our country
+- [01:32.310] over the past four years. And as we all know,
+- [01:35.450] a significant number of those aliens
+- [01:37.280] have been vicious gang members,
+- [01:39.090] murderers, rapists, and pedophiles.
+- [01:41.760] Innocent Americans like Laken Riley,
+- [01:43.750] Jocelyn Nungaray, Rachel Morin,
+- [01:45.820] and many others have been murdered
+- [01:48.120] because of Joe Biden's Open Border.
+- [01:50.500] President Trump made a promise to the American people,
+- [01:52.720] to all of you and your audiences to end the carnage
+- [01:56.330] and keep our country safe,
+- [01:57.640] and he has overwhelmingly delivered on that promise.
+- [02:01.160] He immediately declared a national emergency
+- [02:03.020] on the southern border,
+- [02:04.270] deployed the US Military and Border Patrol
+- [02:06.400] to repel the invasion and ended reckless catch
+- [02:09.470] or the release policies.
+- [02:10.950] And as a result, between the inauguration
+- [02:13.420] and April 1st of this month, only nine illegal aliens
+- [02:17.490] were released into the United States of America.
+- [02:20.150] This is a staggering 99.9% decrease
+- [02:25.260] from more than the 184,000 illegal aliens
+- [02:28.590] who were released into the country under Joe Biden
+- [02:31.010] during that same period last year.
+- [02:33.100] You can't get much better than 99.99% decrease
+- [02:37.420] total attempted illegal crossings
+- [02:38.840] at the southwest border. Hit a record low in February
+- [02:41.620] only to fall to another record low again last month in March.
+- [02:46.720] President Trump signed the Laken Riley
+- [02:48.420] Act into law, requiring illegal aliens arrested
+- [02:51.310] or charged with theft or violence to be detained.
+- [02:54.200] And he reestablished the successful remain
+- [02:56.060] in Mexico policy from his first term.
+- [02:58.580] The President also restarted construction
+- [03:00.800] of his signature border wall.
+- [03:02.520] More than 85 miles have been built
+- [03:04.720] and are in various stages of construction and planning.
+- [03:07.990] He designated cartels as foreign terrorist organizations,
+- [03:11.300] invoked the Alien Enemies Act to apprehend, detain,
+- [03:14.040] and remove these massive threats who have flooded our country.
+- [03:17.070] And the Trump administration,
+- [03:18.590] as you heard from our border czar Tom Homan earlier today,
+- [03:21.950] is working literally 24/7 around the clock
+- [03:26.150] to successfully arrest and deport illegal criminals
+- [03:29.260] and foreign terrorists from our communities.
+- [03:31.550] Your communities.
+- [03:32.960] We're in the beginning stages of carrying out
+- [03:35.580] the largest deportation campaign in American history.
+- [03:38.760] And despite the legacy and lies about this,
+- [03:41.940] we will continue with these successful operations
+- [03:44.330] because we know that's what the American people
+- [03:46.510] are expecting from this President
+- [03:47.980] and that's why they overwhelmingly re-elected him
+- [03:49.870] to this office.
+- [03:51.110] Over the past weekend,
+- [03:52.320] it was announced Operation Tidal Wave
+- [03:53.980] was a joint effort in ICE Miami and Florida
+- [03:56.250] law enforcement agencies.
+- [03:57.930] Nearly 800 illegal aliens were arrested
+- [04:00.630] during the first four days alone.
+- [04:02.760] I don't know if we have any Floridians in here,
+- [04:04.590] but you're welcome.
+- [04:06.210] Operation Tidal Wave is a preview of what is to come
+- [04:09.030] around the country, large-scale operations,
+- [04:11.740] employing our state and local law enforcement partners
+- [04:14.010] to get criminal aliens off our streets.
+- [04:17.100] And we will not apologize for this.
+- [04:19.090] This is the first of its kind multi-agency
+- [04:21.220] immigration enforcement operation
+- [04:23.210] coordinated by ICE with federal partners.
+- [04:25.550] And this multi-day operation has so far resulted
+- [04:29.140] in nearly 800 illegal aliens apprehended in four days,
+- [04:32.990] including MS-13 murderers, rapists, drug traffickers,
+- [04:36.080] and human rights abuses.
+- [04:37.620] So safe to say President Trump made a promise to all of you,
+- [04:40.620] your audiences and the American public
+- [04:42.290] to secure our nation's borders.
+- [04:44.000] He has overwhelmingly delivered on that promise.
+- [04:46.430] And you will see the legacy media has nitpicked stories
+- [04:49.390] to try to drum up sympathy for people
+- [04:51.480] who broke our nation's laws.
+- [04:53.420] This White House has sympathy for American citizens,
+- [04:56.620] for law-abiding families who are doing what's right,
+- [04:59.790] who came here the right way.
+- [05:01.370] That includes legal immigrants who have come to this country,
+- [05:04.170] paid their dues, waited their turn,
+- [05:06.170] and are now being cheated and ripped off
+- [05:09.050] or were being cheated and ripped off
+- [05:10.450] by the previous administration.
+- [05:11.730] We are putting Americans first every day
+- [05:13.970] and we applaud the ice agents and border patrol agents
+- [05:16.270] who are on the ground doing this important work.
+- [05:18.470] That's just the border.
+- [05:19.750] Of course, the President has been working incredibly hard
+- [05:22.000] to unleash the might of our economy here at home.
+- [05:24.890] He's in the process of negotiating fair trade
+- [05:28.620] deals abroad with many countries around the world
+- [05:31.160] who have come to the table
+- [05:32.450] because the President is using the leverage of this office,
+- [05:35.660] of the United States of America,
+- [05:37.550] to leverage our economic might and to cut good trade deals.
+- [05:41.780] You also look at what's happening on the world stage
+- [05:45.000] when it comes to foreign policy.
+- [05:46.810] The President has put the world on notice.
+- [05:48.600] They all understand that we have a commander-in-chief
+- [05:50.600] in the Oval Office
+- [05:51.880] who is going to put America and our troops first,
+- [05:54.640] who's going to do what's right for our country,
+- [05:57.290] our people, even if that means making tough decisions.
+- [06:00.380] And we are closer today
+- [06:01.980] to a peace deal in Russia and Ukraine,
+- [06:03.430] certainly than we were when we took office on January 20th.
+- [06:06.970] If you look at the situation in the Middle East,
+- [06:09.190] Israel has never had a stronger friend than they do right now
+- [06:11.800] in the Oval Office with President Trump.
+- [06:13.720] We've had more than 75 hostages
+- [06:15.850] who have returned home from around the world
+- [06:18.130] or wrongfully detained individuals.
+- [06:20.010] You can only do that if you have a President
+- [06:21.680] who's unafraid to use the leverage of the United States.
+- [06:24.460] So there are many accomplishments
+- [06:26.010] to talk about this week.
+- [06:27.210] I haven't even mentioned the restoring common
+- [06:29.330] sense effort of this administration,
+- [06:31.050] to get men out of women's sports.
+- [06:33.110] To root out DEI and waste fraud and abuse
+- [06:35.650] from our federal bureaucracy.
+- [06:37.370] The President has done so much in such little time
+- [06:40.270] and we're working very hard here every day.
+- [06:42.530] We appreciate all that you do on social media to push
+- [06:45.930] what the President is saying, but also sometimes question it.
+- [06:48.570] And we relish independent journalism
+- [06:51.450] and I hope you all have seen the President, myself,
+- [06:53.880] anybody in this administration,
+- [06:55.100] we are unafraid to take questions.
+- [06:56.950] This has truly been the most transparent
+- [06:59.420] and accessible presidency in American history.
+- [07:02.290] So with that, let's kick it off
+- [07:03.740] and I'm happy to take your question first. Erin.
+- [07:05.880] The Press: Thanks so much, Karoline, both for having us
+- [07:07.590] and for granting me the first question here.
+- [07:09.400] Sure, and I can attest to the deportations in Florida.
+- [07:12.050] My Uber drivers finally speak English again,
+- [07:14.060] so thank you for that. But my question for you is,
+- [07:17.610] what are the administration's plans
+- [07:18.910] for those who continue to defy the executive orders,
+- [07:21.210] most notably on my mind are the ones related
+- [07:23.110] to what some would call trans women,
+- [07:27.510] which are men masquerading as girls in girls sports.
+- [07:30.670] Ms. Leavitt: Sure, obey federal law,
+- [07:33.390] or you will be prosecuted.
+- [07:34.750] Obey federal law and you could see your federal funding cut.
+- [07:38.390] Whether you are a college or university.
+- [07:40.460] We have seen the President, again,
+- [07:42.560] using the leverage of this administration
+- [07:44.790] and to negotiate deals with some of the biggest colleges
+- [07:48.780] and universities in this country,
+- [07:50.260] and if they don't want to come to the negotiating table
+- [07:52.620] to apologize for the federal laws
+- [07:54.470] they have broken to apologize for allowing
+- [07:56.910] Jewish American students on our nation's campuses
+- [07:59.160] to be unlawfully bullied and harassed,
+- [08:01.870] then there's going to be consequences
+- [08:03.500] for that illegal behavior.
+- [08:05.080] Same thing with men in women's sports.
+- [08:07.010] The President signed a very strong executive order
+- [08:09.850] making it the policy of the United States federal government
+- [08:12.470] that there are only two sexes male and female,
+- [08:15.380] and we are not going to tolerate biological men
+- [08:18.000] competing in sports or impeding in private spaces
+- [08:21.190] for women like myself or you.
+- [08:23.260] And we've seen states defy this federal order.
+- [08:25.670] You've seen the state of Maine, unfortunately,
+- [08:28.180] because of their liberal governor
+- [08:30.110] who nobody in that state disagrees with.
+- [08:32.120] I will add being from New England, I can attest to that.
+- [08:34.850] People are incredibly fed up with her
+- [08:37.350] trying to oppose this common sense message.
+- [08:39.660] You've seen young women who have had to go on television
+- [08:42.350] to plead with their governor,
+- [08:44.050] "Please stop letting men play against me in sports."
+- [08:46.720] We shouldn't live in a country where that even has to happen.
+- [08:49.380] The President deeply understands
+- [08:50.830] that that's why he signed that EO.
+- [08:52.720] And when Maine decided not to follow it,
+- [08:54.840] the Department of Justice sued them.
+- [08:56.540] So anyone who disobeys federal law will be either prosecuted,
+- [09:01.050] sued, or say goodbye to your federal funding.
+- [09:03.670] Sure.
+- [09:05.060] How about to the back in the red tie?
+- [09:08.250] The Press: Hi. One of my main questions is,
+- [09:12.040] when will the border wall be completed?
+- [09:13.850] Because it's been talked about for a very long time
+- [09:15.870] and a lot of people want to know
+- [09:17.660] when can we expect that to be done?
+- [09:19.070] Ms. Leavitt: Sure. I don't have an official timeline for you,
+- [09:22.100] but certainly it's a priority of the administration.
+- [09:25.160] The President has talked about this for years, right?
+- [09:27.230] It was his signature campaign promise dating back to 2016.
+- [09:30.940] People laughed at him when he originally brought this idea up,
+- [09:34.210] but now the whole world recognizes a border wall
+- [09:36.600] is effective, it's a necessary means
+- [09:39.490] to secure your nation's territorial borders.
+- [09:42.450] Democrats like to have borders outside of their homes
+- [09:44.970] or walls outside of their homes for a reason
+- [09:46.780] because they know it repels
+- [09:48.320] and that's why the President wants to do
+- [09:50.130] that at the southern border.
+- [09:51.460] There has been more than 85 miles built
+- [09:53.350] just since January 20th.
+- [09:55.000] It's obviously the goal of this administration
+- [09:56.780] to build as much border wall as we possibly can.
+- [09:59.560] And we need Congress's help to do that.
+- [10:01.390] We need more federal funding. Presidents working closely
+- [10:04.230] with Speaker Johnson and Senate Majority
+- [10:05.990] Leader soon to pass a solid reconciliation package
+- [10:09.780] that not only provides more funding for our ICE agents
+- [10:14.360] and border patrol agents on the ground,
+- [10:16.640] but to continue construction of that border wall as well.
+- [10:20.260] Sure. Go ahead
+- [10:21.700] The Press: Madam.
+- [10:23.010] Congratulations on this endeavor to bring in new media.
+- [10:25.850] And can I start by thanking you
+- [10:27.180] for including the British and deeply proud
+- [10:30.730] to be the only British representative here?
+- [10:34.010] I hope future events you might include more.
+- [10:35.920] Thank you.
+- [10:37.120] I've got two questions about be maybe so bold
+- [10:40.350] regarding my little old country across the pond.
+- [10:43.610] First and foremost, it's regarding trade deal.
+- [10:47.110] So your Vice President, Vice President Vance said,
+- [10:50.910] "No free speech, no deal."
+- [10:53.300] The British Business Secretary whose name is Jonathan Reynolds
+- [10:58.920] has said that in the trade talks with the Commerce Department,
+- [11:02.470] the US Commerce Department,
+- [11:03.870] that free speech has been not a material factor in negotiations.
+- [11:10.540] So my first question is, is it the case that free speech
+- [11:13.760] is no longer part of negotiations?
+- [11:15.730] And my second question, if I may is,
+- [11:19.380] in Britain we have had a quarter of a million people
+- [11:24.420] issued non-crime hate incidents.
+- [11:27.090] As we speak, there are people in prison
+- [11:28.950] for quite literally reposting memes.
+- [11:32.100] We have extensive prison sentences and for tweets,
+- [11:37.700] social media posts and general free speech issues.
+- [11:43.130] With the Trump administration consider political asylum
+- [11:47.320] for British citizens in such a situation?
+- [11:50.090] Ms. Leavitt: Well, to your latter question,
+- [11:51.440] it's a very good one.
+- [11:52.640] I have not heard that proposed to the President,
+- [11:54.830] nor have I spoken to him about that idea,
+- [11:57.160] but I certainly can and talk to our national security team
+- [11:59.790] and see if it's something
+- [12:01.150] the administration would entertain.
+- [12:02.540] The Press: Yes, please
+- [12:03.820] Ms. Leavitt: To your first question about free speech
+- [12:05.560] in the United Kingdom,
+- [12:06.760] the Vice President has been incredibly outspoken about this
+- [12:09.300] for good reason and the President has spoken
+- [12:11.890] about this as well directly with your Prime Minister
+- [12:14.280] when he was here for a visit to The White House.
+- [12:17.150] It remains a critical endeavor of ours
+- [12:19.190] to show the Brits and your country,
+- [12:22.320] which we love and admire about the First Amendment
+- [12:26.020] and the importance of free speech in a sovereign nation.
+- [12:29.910] As for the trade talks,
+- [12:31.240] I understand they're moving in a very positive way
+- [12:33.780] with the United Kingdom.
+- [12:35.070] I don't want to get ahead of the President or our trade team
+- [12:38.170] and how those negotiations are going,
+- [12:39.890] but I have heard they've been very positive
+- [12:41.600] and productive with the United Kingdom.
+- [12:44.290] And I will say the President always,
+- [12:46.730] both publicly and privately,
+- [12:48.160] speaks incredibly highly of your country.
+- [12:50.500] He has a good relationship with your Prime Minister,
+- [12:52.730] though they disagree on domestic policy issues.
+- [12:56.420] I've witnessed the camaraderie
+- [12:58.100] between them firsthand in the Oval Office.
+- [13:00.130] And there is a deep mutual respect
+- [13:02.090] between our two countries that certainly the President upholds.
+- [13:04.900] The Press: Thank you.
+- [13:06.100] Ms. Leavitt: You're welcome. Mr. Spicer.
+- [13:07.330] The Press: Hi,. [inaudible].
+- [13:08.620] Ms. Leavitt: It's good to see you here.
+- [13:09.820] My predecessor.
+- [13:11.090] The Press: Yeah, well. Had to swing by.
+- [13:14.600] Thank you for doing this. I think it's marvelous
+- [13:16.360] what you guys have done to bring in new voices
+- [13:18.240] and it shows, it reflects the President's commitment
+- [13:21.690] to transparency into bringing this in.
+- [13:23.250] So I've got two quick ones for you.
+- [13:25.170] The first is you mentioned reconciliation.
+- [13:26.840] Beyond that and what he hopes to get out of that,
+- [13:29.590] considering how slim the House majority is,
+- [13:32.480] what other legislative priorities does he want
+- [13:34.750] to see codified in law before this Congress adjourns?
+- [13:37.830] Ms. Leavitt: It's a really good question, Sean.
+- [13:39.090] Thank you.
+- [13:40.290] I think reconciliation is the first and foremost question
+- [13:44.280] on the President's mind right now.
+- [13:45.760] It's a huge deal. We have to get it done.
+- [13:47.620] He's working closely with Congress.
+- [13:48.990] In fact, he's meeting with Speaker Johnson
+- [13:50.580] I think in a few minutes today in the Oval Office
+- [13:53.080] to discuss this very bill and measure.
+- [13:56.070] Aside from reconciliation, which we hope
+- [13:58.550] and are very confident will include more funding
+- [14:01.290] for border wall construction
+- [14:02.840] and mass deportations as I mentioned earlier.
+- [14:05.640] But it's also very important that we get tax cuts passed.
+- [14:08.680] That is the second step in the Trump economic agenda.
+- [14:12.090] The President has used every executive
+- [14:14.010] lever he can to slash burdensome regulation,
+- [14:16.890] and we continue to do that every day across every agency.
+- [14:20.330] Administrator Zeldin is doing a fantastic job at the EPA,
+- [14:23.070] I may add, but every cabinet secretary
+- [14:25.270] is taking getting rid of regulation very seriously.
+- [14:28.570] The President is certainly working on
+- [14:31.320] unleashing American energy to drive down costs,
+- [14:33.350] but tax cuts are a critical component
+- [14:35.430] of really seeing the Trump economic of formula
+- [14:38.460] be put together.
+- [14:39.730] So he wants to see tax cuts passed
+- [14:41.820] in this reconciliation package that includes no tax on tips,
+- [14:45.080] no tax on Social Security, no tax on overtime,
+- [14:48.700] no tax on Social Security for our seniors of course too.
+- [14:51.630] As for other measures that would be codified into law,
+- [14:54.510] certainly we've seen the President put forth
+- [14:56.720] common sense executive orders
+- [14:58.490] and take really common sense executive action
+- [15:01.100] that we would love Congress to take further action on
+- [15:04.020] to ensure that the President's executive actions
+- [15:06.310] can remain long after his tenure
+- [15:07.830] so you don't have another President
+- [15:09.470] come in here in eight years
+- [15:11.520] and undo some of the executive work
+- [15:14.000] that the President has worked so hard on.
+- [15:15.450] So we want Congress to continue getting to work,
+- [15:17.760] but we got to get
+- [15:19.060] this reconciliation Bill passed first.
+- [15:21.030] The Press: Thank you.
+- [15:22.250] The second thing I have is just a question I get a lot
+- [15:24.020] and I figured best addressed to you.
+- [15:26.970] You've done a phenomenal job
+- [15:28.200] opening up the briefing room, bringing in new voices.
+- [15:30.380] The President's commitment during the campaign
+- [15:32.180] to do long-form podcasts was I think extremely helpful
+- [15:36.110] to this new media environment that we live in.
+- [15:39.280] But a lot of conservatives will ask me,
+- [15:40.680] why does he sit down with people like Terry Moran of ABC
+- [15:43.840] or Jeffrey Goldberg of the Atlantic?
+- [15:46.360] What is the rationale behind that?
+- [15:48.380] Rewarding people who have very vehemently
+- [15:51.410] expressed disdain for him personally?
+- [15:54.040] Ms. Leavitt: Because the President is unafraid
+- [15:56.370] and he is inspired by competition
+- [15:59.590] and he likes to talk to people face to face.
+- [16:02.330] And I think that's one of his best attributes and qualities.
+- [16:05.530] We live in an incredibly divisive country.
+- [16:08.160] Unfortunately that has been really the result
+- [16:11.050] and consequence frankly of the fake news and the hoaxes
+- [16:14.080] and lies they have driven at this President
+- [16:17.090] for the better part of the last decade now.
+- [16:19.850] But the fact that we still have a President
+- [16:21.620] who has been a victim of these hoaxes, these lies,
+- [16:25.440] these smears by so many legacy media outlets and reporters,
+- [16:28.250] yet he's still willing to sit down with them,
+- [16:30.420] look them in the eye, look them face to face
+- [16:33.020] and take them to task
+- [16:34.270] and share the truth with them and his perspective,
+- [16:36.960] I think is what the American people deserve in a President.
+- [16:39.710] And it's certainly a stark contrast to what we had
+- [16:42.800] in the previous administration, a President who was hiding,
+- [16:46.320] who actually used this beautiful South court auditorium,
+- [16:49.050] which we're happy to be in today,
+- [16:50.510] but he used this like it was a fake Oval Office,
+- [16:53.590] weirdly oddly, he was missing an action.
+- [16:56.890] He called lids at two o'clock in the afternoon.
+- [16:59.350] For those who don't know, a lid is when we tell the press
+- [17:01.520] to go home for the night and he was doing that midday.
+- [17:05.340] That is not acceptable around here.
+- [17:07.030] I will tell you we're working very early
+- [17:09.140] through the very late hours of the night.
+- [17:11.220] And the President's willing to talk to anyone.
+- [17:13.560] Not just journalists
+- [17:15.580] who have really been posing as journalists
+- [17:18.470] but are actually left-wing activists,
+- [17:20.360] but also if you look at our adversaries
+- [17:22.060] and our competition abroad on a foreign policy scale,
+- [17:25.460] you know well in the first term he went to North Korea,
+- [17:28.590] he talked to Putin directly,
+- [17:30.120] he talked to President Xi directly.
+- [17:31.990] The President believes in direct diplomacy,
+- [17:34.590] whether it is our adversaries and competitors around the world
+- [17:37.810] or left-wing activists like Jeffrey Goldberg.
+- [17:41.410] Sure, Emily.
+- [17:42.820] The Press: First of all, thank you for having us today.
+- [17:44.400] It's a pleasure to be here.
+- [17:46.090] You mentioned obviously it's no secret America
+- [17:48.200] has been Israel's strongest friend, greatest ally.
+- [17:51.560] Unfortunately, as you know, . is still being held in Gaza.
+- [17:54.830] He's both an American and an Israeli citizen.
+- [17:57.360] Last we heard allegedly
+- [17:58.660] Hamas has lost all communication with him,
+- [18:01.020] and I was wondering if there's been any update
+- [18:02.980] in terms of getting Edan home.
+- [18:04.710] Ms. Leavitt: Sure. First of all,
+- [18:06.710] the reports last week were from Hamas Media,
+- [18:09.950] and so we always take that of course with a grain of salt.
+- [18:13.840] We do our own verification on those reports.
+- [18:16.740] I talked to the National Security Council
+- [18:18.420] about Edan Alexander last week
+- [18:20.340] as this is obviously a priority for the administration
+- [18:22.990] and all I can tell you is that I can assure you
+- [18:25.790] that the Special Envoy Witkoff, Adam Boehler,
+- [18:28.550] who's been leading some of our hostage negotiations,
+- [18:31.220] Mike Waltz, the entire national security team,
+- [18:34.190] finding him and bringing him home
+- [18:35.980] is a priority for this administration
+- [18:37.790] and they continue to work very hard on that every day.
+- [18:39.560] The Press: Thank you.
+- [18:40.810] Ms. Leavitt: You're welcome. Chad.
+- [18:42.840] The Press: First of all, thank you for the hospitality.
+- [18:44.810] Always open and welcome and thank you for the access.
+- [18:46.830] And I'll say to you again for everyone what I said
+- [18:49.290] to a few weeks ago when we were here, I said,
+- [18:51.650] "It's so refreshing to have a press secretary
+- [18:53.920] after the last few years
+- [18:55.130] who's both intelligent and articulate."
+- [18:57.170] So thank you for that.
+- [18:59.130] I think that a lot of people would be curious to know
+- [19:00.920] if we have any details of what the private conversation
+- [19:03.330] between Volodymyr Zelenskyy and the President
+- [19:05.080] was there at the Vatican.
+- [19:06.670] I imagine that we don't know at this stage in the game,
+- [19:08.890] but more specifically back to the border issue,
+- [19:11.840] the DOJ stated on Friday that they were floating the idea
+- [19:15.640] of potentially subpoenaing journalists
+- [19:19.170] to get access to whistleblowers. We know the last administration
+- [19:21.520] did not treat whistleblowers very well.
+- [19:24.350] There's numerous ones who,
+- [19:27.150] although still employed by the FBI or the DHS,
+- [19:31.250] have not received back pay and haven't truly…
+- [19:33.080] They've been employed, but they're not reinstated.
+- [19:34.570] So I'm wondering, does this administration have,
+- [19:39.090] do they believe that we should reinstate the whistleblower
+- [19:41.760] like Agents Garrett or O'Boyle or Friend or Stevenson with DHS
+- [19:45.730] who blew the whistle on the child
+- [19:47.090] trafficking involving the cartels under Joe Biden.
+- [19:50.320] He too has yet to be brought back.
+- [19:51.780] Do we have a position on that?
+- [19:53.070] Ms. Leavitt: Sure. Well, for each individual agency,
+- [19:56.050] secretaries of those agencies obviously have deference
+- [19:59.210] over who they hire, who they fire, who they promote.
+- [20:01.730] I can tell you certainly the President
+- [20:04.180] commends anyone who steps out and speaks the truth,
+- [20:07.260] especially against the malpractice
+- [20:11.230] that we saw over the last four years
+- [20:12.590] under the previous administration.
+- [20:14.140] I could speak to the two cases at the Treasury Department.
+- [20:16.580] The two whistleblowers there who blew the whistle
+- [20:18.290] on the Hunter Biden
+- [20:19.500] tax fraud case have been promoted by Secretary Bessent.
+- [20:22.870] So certainly we commend anyone who has the courage to step up
+- [20:25.720] and speak the truth.
+- [20:27.010] And as for those who unfortunately try to leak,
+- [20:30.500] especially classified information to the legacy media
+- [20:33.090] to put our troops in harm's way,
+- [20:35.200] our law enforcement officials at harm's way,
+- [20:37.910] leaks like that will not be tolerated.
+- [20:40.560] But those who are seeking to protect the truth
+- [20:44.500] will certainly be commended and applauded for that.
+- [20:46.800] Sure. Rogan, go ahead.
+- [20:48.070] The Press: Hi Karoline.
+- [20:49.270] Ms. Leavitt: Good to see you again.
+- [20:50.510] The Press: Great to see you as well.
+- [20:51.730] Great job this morning and as always,
+- [20:53.210] you're really crushing it.
+- [20:54.960] My question is about the Epstein files.
+- [20:57.230] And a couple of months ago the DOJ released
+- [21:01.340] what they called phase one of the Epstein files
+- [21:04.760] and they announced that a lot of those files,
+- [21:07.600] the remaining files, probably the bulk of the files
+- [21:10.080] were actually in the New York field office.
+- [21:13.060] They requested that they be returned the day after.
+- [21:15.640] And some legacy media reports show
+- [21:19.000] that not only were those files returned to the DOJ,
+- [21:22.930] but that hundreds of FBI agents
+- [21:25.220] are going through them day after day
+- [21:27.680] and getting them ready for public release.
+- [21:29.460] Do you have any updates from the DOJ or the FBI
+- [21:33.040] on when those files are expected to be released
+- [21:35.510] and also when we might start
+- [21:37.860] seeing some arrests of the client list?
+- [21:39.370] Ms. Leavitt: Sure.
+- [21:40.630] I can assure you that the Attorney General
+- [21:43.240] and her team at the Department of Justice
+- [21:44.820] are working on this diligently.
+- [21:46.530] For a specific timeline, I'd have to check in with them
+- [21:49.540] and we can certainly do that for you, Rogan,
+- [21:51.660] in the effort of transparency.
+- [21:53.210] But I will tell you, the attorney general is a bulldog.
+- [21:57.380] She is someone you want on your team
+- [21:59.130] and when she wants to get something done,
+- [22:00.620] she gets it done.
+- [22:01.860] I've seen her do it in various instances
+- [22:04.230] already in her time as Attorney General
+- [22:06.420] and when she makes a promise, she keeps it.
+- [22:08.990] So I think I don't have
+- [22:11.040] a specific timeline on you for that,
+- [22:12.540] but I do know that they're working on it over there.
+- [22:14.400] The Press: Thank you. Ms. Leavitt: Sure. Go ahead.
+- [22:15.830] The Press: Thank you for having us here.
+- [22:17.340] I've noticed this is kind of like a repeat of 2016.
+- [22:20.840] The legacy media has gone back
+- [22:22.440] to not reporting anything on President Trump.
+- [22:25.200] In the beginning we had them
+- [22:26.900] reporting everything that he was doing.
+- [22:28.790] Now they're kind of going back again
+- [22:30.320] to not reporting everything that he is actually doing.
+- [22:33.730] I'm kind of the nerd when it comes to reporting.
+- [22:36.910] I'm not the headline news girl. I'm the nuts and bolts.
+- [22:39.730] I'm the policy type nerd.
+- [22:41.450] So what direction do you advise me to go into like
+- [22:46.120] The White House files that y'all send out every single day,
+- [22:48.890] because what people are used to
+- [22:50.220] when they want to ask me questions,
+- [22:51.480] they want to know the nuts and bolts of everything.
+- [22:54.120] Secondly, I know going into the first 100 days,
+- [22:57.430] Johnson's meeting with President Trump today,
+- [23:00.130] President Trump has issued a lot of executive orders.
+- [23:04.270] What about codifying?
+- [23:05.530] Is that going to be a conversation
+- [23:07.130] President Trump is going to have with him
+- [23:09.020] about possibly a timeline of just taking them from
+- [23:11.740] EOs into codifying them, into making them permanent
+- [23:15.640] so we don't have another President that comes in,
+- [23:18.130] possibly a Democrat that completely overturns everything
+- [23:21.760] that President Trump has done?
+- [23:23.130] Ms. Leavitt: Yes, as I spoke to Sean's question earlier,
+- [23:26.750] absolutely, we want Congress to get to work.
+- [23:29.650] First thing is the reconciliation package,
+- [23:31.540] like I said, border and tax cuts.
+- [23:33.330] That's on the President's mind, but of course he wants to see
+- [23:36.020] Congress move to codify all of the incredible things
+- [23:38.950] and work that he's done via executive order.
+- [23:41.270] To your first question about the nuts and bolts,
+- [23:42.970] I wish more people in the legacy media were like you
+- [23:46.450] and didn't focus on the sensationalist headlines,
+- [23:48.590] but actually cared about the facts.
+- [23:50.280] The President is doing so many phenomenal things every day
+- [23:53.100] that will never be mentioned on cable news at night,
+- [23:55.660] signing executive orders.
+- [23:57.000] We do our absolute best to message that, which is again,
+- [24:00.460] why we're welcoming independent voices like yours
+- [24:02.680] with following on social media
+- [24:04.480] because that's the best way to get those truths
+- [24:07.060] and those facts out there.
+- [24:08.370] We put out fact sheets on the daily
+- [24:10.500] about what the President is signing,
+- [24:11.950] and they do get into the nuts
+- [24:13.270] and bolts of each and every policy
+- [24:15.310] and each and every executive action that he's taking.
+- [24:18.160] He's signing three phenomenal executive orders today.
+- [24:21.930] I'll share a preview with you on those.
+- [24:25.460] One of them is an executive order
+- [24:26.660] focused on sanctuary cities.
+- [24:28.910] It will direct the Attorney General Pam Bondi
+- [24:31.040] to provide a list of sanctuary cities
+- [24:33.210] back to the administration. We will review those.
+- [24:36.030] If those sanctuary cities are breaking federal law,
+- [24:38.450] well then the Office of Management and Budget
+- [24:40.180] is going to look at their federal spending.
+- [24:41.960] Again, if you're defying federal law,
+- [24:43.720] you are threatening your own federal spending.
+- [24:45.850] By doing that, there is another executive
+- [24:48.290] order the President will sign tonight.
+- [24:49.600] We can provide the fact sheet for you on ensuring law
+- [24:52.130] and order and ensuring that federal law enforcement
+- [24:54.240] and local law enforcement can work together
+- [24:56.030] and communicate more easily.
+- [24:57.730] And then the third executive order,
+- [24:59.190] which actually speaks to the heart of your question
+- [25:00.970] earlier about the Uber drivers,
+- [25:02.880] will be a order directing the Department of Transportation
+- [25:07.210] to include English literacy tests for our truckers.
+- [25:10.430] This is a big problem in the trucking community
+- [25:12.230] that unless you're in that community, you might not know,
+- [25:14.760] but there's a lot of communication problems
+- [25:16.750] between truckers on the road with federal officials
+- [25:19.490] and local officials as well,
+- [25:20.820] which obviously is a public safety risk.
+- [25:22.600] So we're going to ensure that our truckers
+- [25:24.880] who are the backbone of our economy
+- [25:27.200] are all able to speak English.
+- [25:28.620] That's a very common sense policy
+- [25:30.160] in the United States of America.
+- [25:31.370] So the President will be signing that later this afternoon.
+- [25:33.000] The Press: Thank you.
+- [25:34.270] Ms. Leavitt: Yeah, you're welcome to the back
+- [25:35.470] and the yellow tie.
+- [25:36.670] The Press: Thank you, Karoline.
+- [25:38.290] President Trump has recently made statements
+- [25:40.190] about eliminating the federal income tax
+- [25:42.600] and creating the external revenue service.
+- [25:45.230] When could we see that start to play out?
+- [25:47.490] Ms. Leavitt: Well, I will tell you this is
+- [25:48.800] something the Secretary of Commerce
+- [25:51.460] and the Secretary of Treasury
+- [25:52.820] are both equally as excited about as is the President.
+- [25:56.360] And there's many reasons for the tariffs
+- [26:00.590] the President has implemented and the trade deals
+- [26:02.790] that he's currently negotiating.
+- [26:04.440] Number one, we need to shore up
+- [26:05.820] our critical supply chains here at home.
+- [26:07.970] Number two, we need to increase our revenue
+- [26:10.330] here in the United States.
+- [26:11.550] We are running trillions of dollars of deficits
+- [26:14.280] our country will cripple if we continue down this path.
+- [26:17.020] And so how great it would be for the External Revenue
+- [26:20.220] to completely replace the Internal Revenue Service.
+- [26:23.910] So I know the administration is focused
+- [26:25.790] on the External Revenue Service, getting that up and running.
+- [26:29.230] And as you know, Customs and Border Protection
+- [26:31.170] is charged with bringing in the money from tariffs every day,
+- [26:33.760] and they're bringing in billions and billions of dollars per day
+- [26:37.590] with the current tariff rates and where they are at.
+- [26:39.770] So we'll continue with that effort.
+- [26:41.550] I think I went around the room. Oh, nope. One more in the back.
+- [26:43.520] The Press: All good.
+- [26:44.730] So we know President Trump has been a champion
+- [26:46.700] for the 2A ever since he got into office both times.
+- [26:50.460] My question is, do we see anything,
+- [26:53.270] is there any ongoing efforts for national reciprocity
+- [26:55.550] so we can carry in all 50 beautiful states?
+- [26:58.670] Ms. Leavitt: This is something that President talked about
+- [27:00.350] on the campaign trail for sure. We need Congress to do it,
+- [27:03.620] but the President will always support
+- [27:05.580] our law-abiding gun owners and as you mentioned,
+- [27:07.780] is a ardent supporter of the Second Amendment.
+- [27:10.590] It's more important now than ever as we see
+- [27:13.560] violent crime rates in our inner cities.
+- [27:15.870] I've said this repeatedly over the past four years,
+- [27:18.060] the Second Amendment was never more important than
+- [27:19.900] when we had an illegal immigrant crime epidemic
+- [27:22.820] spiking in this country.
+- [27:25.760] Law-abiding Americans have a constitutional
+- [27:27.630] right to defend themselves,
+- [27:28.890] and the President absolutely supports that.
+- [27:30.630] But to national reciprocity,
+- [27:32.300] we do need Congress's help on that one.
+- [27:34.060] So thank you guys. It's so good to see you.
+- [27:36.830] I could go around the room all day,
+- [27:38.210] but unfortunately there's work to be done.
+- [27:40.790] Thank you for coming to our very first influencer
+- [27:43.290] briefing to kick off the first 100 days
+- [27:45.240] of the Trump White House.
+- [27:46.530] It's great to see you all here and thanks for what you do.
+- [27:49.310] The Press: Thank you.
+- [27:51.250] Ms. Leavitt: Thank you. I'm going to walk off now.

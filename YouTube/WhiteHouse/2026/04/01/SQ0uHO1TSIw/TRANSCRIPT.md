@@ -1,0 +1,270 @@
+<!-- source: https://www.youtube.com/watch?v=SQ0uHO1TSIw -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: SQ0uHO1TSIw -->
+<!-- date_published: 2026-04-01T15:19:19+00:00 -->
+<!-- date_accessed: 2026-06-02T02:35:42.564940+00:00 -->
+
+# Transcript: Vice President JD Vance Swears-In Colin McDonald
+
+- [00:05.410] Andrew: Good morning, welcome.
+- [00:07.600] We are here today because America has a fraud crisis.
+- [00:11.860] This is the most generous country on the planet.
+- [00:14.370] Every year, everyone in this room,
+- [00:16.270] your friends and your family part
+- [00:18.090] with trillions of their tax dollars
+- [00:20.180] to help out their friends, families,
+- [00:21.990] and neighbors in tough times. And all the programs we pay into
+- [00:26.200] are premised on a high level of social trust.
+- [00:29.940] Our neighbors and friends
+- [00:31.200] will honestly participate in these programs
+- [00:33.520] and the government will make sure
+- [00:35.120] that everyone is being honest.
+- [00:36.880] And what President Trump has discovered
+- [00:39.520] is that this has largely not been going on.
+- [00:41.990] A coalition of poor government within the federal government
+- [00:45.040] under the previous administration and blue states
+- [00:47.730] have made it so that billions and billions of dollars
+- [00:50.620] of American tax dollars go to fraudsters,
+- [00:53.500] both citizens and foreigners
+- [00:55.410] who come here to take advantage of America's and largesse.
+- [00:59.520] That is ending today, and that is ending today
+- [01:02.120] because the president has convened
+- [01:03.810] the Anti-Fraud Task Force,
+- [01:05.380] led by the vice president, to make sure that these funds
+- [01:08.530] don't go out the door to fraudsters anymore.
+- [01:11.040] And equally as importantly, today we are here to swear
+- [01:14.020] in a brilliant prosecutor to restore deterrence,
+- [01:17.740] to make sure people are afraid to commit fraud,
+- [01:20.330] because they are afraid of the consequences,
+- [01:22.430] and to make that people who do commit fraud
+- [01:25.170] go to jail where they belong.
+- [01:27.060] And that prosecutor is Colin McDonald,
+- [01:29.290] a brilliant career prosecutor from California,
+- [01:32.150] who's worked for our brilliant Deputy Attorney General
+- [01:34.230] for the last year,
+- [01:35.500] helping get the Justice Department
+- [01:37.050] into shape after the Biden administration.
+- [01:39.980] He's prosecuted fraud cases, guns and drugs,
+- [01:43.310] political corruption. Colin McDonald has done it all.
+- [01:46.790] He is exactly the man for this job to restore deterrence
+- [01:49.960] and to put the bad fraudsters in jail where they belong.
+- [01:53.240] And that is why we're here with his beautiful family
+- [01:55.350] to swear in Colin to his new position
+- [01:57.650] as Assistant Attorney General.
+- [01:59.470] And so with that, it's my honor
+- [02:01.070] to introduce the Vice President of the United States,
+- [02:03.620] JD Vance, and Colin McDonald.
+- [02:07.100] (applause)
+- [02:25.490] The Vice President: Well, thank you all for being here.
+- [02:27.270] Thanks, Andrew, for the introduction
+- [02:28.910] and for leading this important task force.
+- [02:30.610] I want to thank a few people before I get to Colin
+- [02:33.240] and his beautiful family.
+- [02:34.810] So, we're going to go on for about 35 minutes
+- [02:36.460] just to see how well behaved your kids are,
+- [02:37.900] Colin and Janessa.
+- [02:39.130] So, first let me say thanks to Pam Bondi and Todd Blanche,
+- [02:42.200] our Attorney General and Deputy Attorney General,
+- [02:44.040] for supporting this mission.
+- [02:45.520] One of the things that we realized when we started
+- [02:47.320] to get into this job of combating fraud is that,
+- [02:50.190] because the government had never really focused
+- [02:52.200] in such a holistic way on eliminating the fraud
+- [02:54.910] that's being committed against American taxpayers,
+- [02:57.190] we actually needed a new division
+- [02:58.530] within the Department of Justice.
+- [03:01.560] Colin is obviously leading that division,
+- [03:03.170] but it wouldn't have been possible without Todd and Pam
+- [03:06.080] helping us in setting up this office.
+- [03:08.460] I want to thank Colin, your beautiful family.
+- [03:10.160] You have five kids here,
+- [03:11.880] and I guess in age from 2 to 11, is that right?
+- [03:17.460] 13 -- 2 to 13. So, you're 13. Great.
+- [03:20.380] A beautiful crew, a great American family.
+- [03:22.940] And this is really a great American mission.
+- [03:24.430] As Andrew said, our entire social safety net,
+- [03:27.060] our entire idea of neighbors helping out neighbors,
+- [03:29.820] of Americans helping out neighbor Americans,
+- [03:32.300] is premised on the idea that only the people
+- [03:34.910] who really need these programs get them.
+- [03:36.890] And that when the American taxpayer
+- [03:38.340] sends money to a program,
+- [03:40.140] it goes to somebody in their community
+- [03:41.970] who has the legal right to be here,
+- [03:43.800] who has the legal right to actually benefit
+- [03:45.680] from these programs.
+- [03:46.910] If you don't do that, the whole thing falls apart.
+- [03:49.290] Our sense of social trust, our sense of belonging,
+- [03:51.580] our sense that we help each other out,
+- [03:53.590] but we help out the people in our community,
+- [03:55.810] not the fraudsters who are getting rich
+- [03:57.360] off of our generosity.
+- [03:58.570] That whole thing falls apart unless we take fraud seriously,
+- [04:01.520] and that's what Colin is going to do.
+- [04:03.320] One of the things that Colin has talked to me about,
+- [04:05.570] and that I've been kind of shocked by,
+- [04:07.190] even though we've been sort of living this anti-fraud mission
+- [04:10.060] for the past couple of months,
+- [04:11.630] is that when you have fraud being committed in this country,
+- [04:16.080] the Department of Justice has largely turned a blind eye
+- [04:18.610] towards it if it's under a certain dollar amount.
+- [04:21.000] One of the things Colin is going to do
+- [04:22.500] is make sure that no fraud,
+- [04:23.900] no matter how big or how small it is,
+- [04:25.830] no fraud is small enough or big enough to look away from.
+- [04:29.470] And I think that's going to reimpose deterrence,
+- [04:31.120] it's going to make fraudsters know
+- [04:32.520] that they're going to suffer some consequences,
+- [04:34.460] and it's going to make the American people know
+- [04:36.180] that these programs are being protected
+- [04:38.040] for the people who need them.
+- [04:39.360] Because there are a lot of them out there, we want to help them,
+- [04:41.770] but we've got to get rid of the fraud in order to do it.
+- [04:43.890] So, without further ado, what we're going to do
+- [04:45.840] is I'm going to swear Colin in.
+- [04:48.310] We're going to take some photos and then I think Colin --
+- [04:50.860] actually, we'll swear Colin in, Colin will say a few words
+- [04:53.680] and then we'll take some photos afterwards.
+- [04:55.310] So, thank you all for being here.
+- [04:56.770] This is a great mission; this is a great family
+- [04:58.870] and we're grateful to you guys for taking this mission on.
+- [05:00.860] God bless you.
+- [05:02.090] OK, without further ado, come on kids, come on up.
+- [05:10.670] They are looking sharp today.
+- [05:12.640] OK, so, please raise your right hand and repeat after me.
+- [05:18.230] I, Colin McDonald, do solemnly swear.
+- [05:20.800] Colin McDonald: I, Colin McDonald,
+- [05:22.100] do solemnly swear.
+- [05:23.320] The Vice President: That I will support and defend
+- [05:24.590] the Constitution of the United States.
+- [05:26.590] Colin McDonald: That I will support and defend
+- [05:28.000] the Constitution of the United States.
+- [05:29.970] The Vice President: Against all enemies, foreign and domestic.
+- [05:32.700] Colin McDonald: Against all enemies,
+- [05:34.030] foreign and domestic.
+- [05:35.400] The Vice President: That I will bear true faith.
+- [05:37.310] Colin McDonald: That I will bear true faith.
+- [05:38.840] The Vice President: And allegiance to the same.
+- [05:40.180] Colin McDonald: And allegiance to the same.
+- [05:41.640] The Vice President: That I take this obligation freely.
+- [05:43.750] Colin McDonald: That I take this obligation freely.
+- [05:45.830] The Vice President: Without any mental reservation.
+- [05:47.890] Colin McDonald: Without any mental reservation.
+- [05:49.590] The Vice President: Or purpose of evasion.
+- [05:51.100] Colin McDonald: Or purpose of evasion.
+- [05:52.450] The Vice President: And that I will well and faithfully.
+- [05:54.830] Colin McDonald: And that I will well and faithfully.
+- [05:57.190] The Vice President: Discharge the duties.
+- [05:58.430] Colin McDonald: Discharge the duties.
+- [05:59.670] The Vice President: Of the office
+- [06:00.890] on which I'm about to enter.
+- [06:02.540] Colin McDonald: Of the office on which I'm about to enter.
+- [06:04.390] The Vice President: So help you God.
+- [06:05.680] Colin McDonald: So help me God.
+- [06:06.890] The Vice President: Congratulations.
+- [06:09.180] (applause)
+- [06:27.300] Colin McDonald: Thank you all for being here today.
+- [06:30.000] This is an important day for the United States of America
+- [06:33.550] and for the Department of Justice.
+- [06:35.950] And to begin, I want to say some words
+- [06:39.230] to some select groups of people that have made today possible.
+- [06:44.660] First, I want to start with a word of thanks to the president,
+- [06:48.940] to the vice president, to Mr. Ferguson,
+- [06:51.920] to the Attorney General,
+- [06:53.770] to the Deputy Attorney General, Mr. Blanche,
+- [06:57.270] for having the vision to create this new division
+- [07:01.140] to ensure that the American taxpayer is protected,
+- [07:05.590] and to ensure that there is confidence
+- [07:08.270] in our financial security within the United States.
+- [07:12.290] A hearty thank you goes out to those visionaries
+- [07:15.440] for creating the division that we are launching today.
+- [07:19.300] Next to my teammates, led by Deputy Attorney General Blanche
+- [07:23.740] and Attorney General Bondi,
+- [07:26.140] I thank you for the work that we have achieved together
+- [07:29.360] to ensure the safety and prosperity of America
+- [07:32.850] over the last year.
+- [07:34.340] Your hard work does not go unnoticed.
+- [07:37.630] Even while the people of America may not get to see it,
+- [07:40.860] they are sleeping well at night
+- [07:43.770] because you are not sleeping at all at night,
+- [07:46.350] tending to the public safety mission
+- [07:48.960] of the United States of America.
+- [07:52.260] To the American people, my promise to you is this --
+- [07:56.350] that I will work tirelessly, day after day,
+- [08:00.800] to ensure that if someone out there dares
+- [08:04.120] to steal your taxpayer dollars,
+- [08:07.540] that there might just be a federal prosecutor
+- [08:09.650] on the end of that bad decision,
+- [08:12.150] that no longer will we be uninterested
+- [08:16.640] in low levels of fraud.
+- [08:18.720] We will be interested in all of it.
+- [08:20.610] And if someone out there right now is deciding and determining
+- [08:24.030] whether they will file a false application
+- [08:26.760] to try to steal your taxpayer dollars,
+- [08:29.140] we're going to care about it and we're going to find it,
+- [08:31.830] and we are going to prosecute you as hard as we can.
+- [08:35.020] What is the goal of this division?
+- [08:37.520] The goal of this division is to ensure deterrence,
+- [08:41.790] so that people who are right now being dishonest
+- [08:44.130] and stealing the hard-earned taxpayer money,
+- [08:47.280] that they make right decisions, that they are deterred.
+- [08:50.200] That is what justice is for,
+- [08:52.180] to ensure right and honest and good conduct.
+- [08:56.390] That is what the mission of this division is.
+- [08:59.140] And finally, to my family in front of me,
+- [09:02.170] this task that daddy is embarking on is a big, big task.
+- [09:07.090] But it is not bigger than my task with you.
+- [09:10.190] You are my biggest task,
+- [09:12.530] and the devotion that I have for you
+- [09:15.930] will be the same devotion
+- [09:17.490] that I give to the people of the United States,
+- [09:20.910] to fight for them, to ensure that they have the confidence
+- [09:24.110] that their government is doing the right thing
+- [09:26.510] to identify fraud,
+- [09:28.610] and to prosecute those and bring justice
+- [09:31.150] to those who are perpetrating against it.
+- [09:32.980] That is my message to my children here today.
+- [09:35.610] And to all the rest of us, it is time to get to work.
+- [09:39.360] I am grateful for this opportunity
+- [09:41.030] to work on behalf of the United States.
+- [09:43.040] And I'm thankful for the confidence
+- [09:44.330] that the vice president
+- [09:45.550] and the president have given and placed in me,
+- [09:49.000] and I look forward to honoring that confidence
+- [09:51.230] by doing the best job possible thank you.
+- [09:55.760] (applause)
+- [10:08.330] The Vice President: OK.
+- [10:09.610] So, I know the plan is to have the family
+- [10:10.950] back there for photos,
+- [10:12.150] but this is a much prettier building,
+- [10:13.730] a much prettier room to do the photos.
+- [10:15.170] So, why don't we just have the family join us up here?
+- [10:16.990] But before that, two more quick things.
+- [10:19.280] This nomination, this department wouldn't exist --
+- [10:21.920] more importantly, this effort to focus on fraud
+- [10:24.000] wouldn't exist without the president's leadership.
+- [10:25.800] So, I want to thank the president of the United States
+- [10:27.510] for making this possible.
+- [10:28.890] And second, very, very importantly,
+- [10:30.980] the United States Senate actually did
+- [10:32.660] a quick, efficient job of confirming Colin McDonald.
+- [10:36.580] He got, I believe, every single Republican vote;
+- [10:39.220] he didn't get many Democrats, which reveals in some ways
+- [10:42.310] the Democrats don't care that much about the fraud mission.
+- [10:45.730] That's unfortunate. But as Colin told me before we went out,
+- [10:49.090] while the Democrats are so obsessed
+- [10:51.990] with not going after fraud,
+- [10:53.950] they didn't -- many of them didn't vote for him,
+- [10:55.760] I think by the end of this,
+- [10:57.020] the Democrats are going to realize what a mistake
+- [10:58.770] it was not to support this guy at this important mission
+- [11:01.620] of protecting the American people's money
+- [11:03.800] and protecting the social programs that we all,
+- [11:06.420] many of us, have relied on for at many points in our lives.
+- [11:08.820] So, God bless you all for being here.
+- [11:10.440] Thanks for supporting Colin.
+- [11:11.920] And kids, why don't we come up and take a photo? Thank you.
+- [11:15.650] (applause)
+- [11:40.350] (inaudible)
+- [12:21.350] (inaudible)

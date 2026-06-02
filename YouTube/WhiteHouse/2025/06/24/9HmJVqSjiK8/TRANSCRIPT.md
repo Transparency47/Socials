@@ -1,0 +1,104 @@
+<!-- source: https://www.youtube.com/watch?v=9HmJVqSjiK8 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 9HmJVqSjiK8 -->
+<!-- date_published: 2025-06-24T12:26:51+00:00 -->
+<!-- date_accessed: 2026-06-02T02:48:11.479350+00:00 -->
+
+# Transcript: President Trump Gaggles with the Press on Air Force One, June 24, 2025
+
+- [03:21.120] rest of them. So we won't the US won't
+- [03:23.280] be increasing our GDP to 5%. We should
+- [03:25.760] pay what everyone else, you know,
+- [03:27.120] they're in Europe. We're not, you know,
+- [03:28.959] a lot of that money goes to rebuilding
+- [03:30.720] their bridges, their roads. So it can
+- [03:32.879] take heavy equipment and, you know, we
+- [03:35.760] don't have any roads in Europe. We don't
+- [03:37.280] have any bridges in Europe. So, no, it
+- [03:39.680] wouldn't be quite the same thing for us,
+- [03:41.680] but we're with them. Are you still
+- [03:43.040] committed to article five of NATO? Uh,
+- [03:45.840] it depends on your definition. There's
+- [03:47.599] numerous definitions of article 5. You
+- [03:50.000] know that, right? But I'm committed to
+- [03:53.280] uh being their friends. You know, I
+- [03:54.959] become friends with many of those
+- [03:56.239] leaders and I'm committed to helping
+- [03:58.400] them. What do you want the role of NATO
+- [04:00.239] to be going forward once these other
+- [04:02.480] countries are spending more? by having a
+- [04:04.720] unified system. I think we're going to
+- [04:07.120] have stronger peace, better peace, and I
+- [04:10.239] think we have that. You know, when I
+- [04:12.080] went to NATO, they were broke. When I
+- [04:14.480] first started this whole thing, it seems
+- [04:17.120] like a long time ago, 9 years, right?
+- [04:19.600] But, uh, they were broke. I knew it
+- [04:21.519] immediately. I said, "You guys are
+- [04:22.800] broke. They weren't paying their dues.
+- [04:25.680] Seven of the 28 countries, at the time,
+- [04:27.680] it was 28 were paying their dues, but
+- [04:30.160] they weren't paying very much. NATO was
+- [04:31.840] broke." Then I said, "You're going to
+- [04:33.600] have to pay." And we did a whole thing
+- [04:35.120] and now they're they're paying a lot.
+- [04:37.120] Then I said, "You're going to have to
+- [04:38.080] list lift it to 4% or 5%." And 5% is
+- [04:42.080] better. They just I guess they're voting
+- [04:43.919] on that today, but they're going to be
+- [04:45.919] lifting it to 5%. That's good. It gives
+- [04:48.080] them much more power. Mr. President, if
+- [04:50.479] there's language in the final summit
+- [04:52.240] declaration about aggression by Russia,
+- [04:54.960] would you be okay with that kind of
+- [04:56.320] language? Well, I'll have to take a look
+- [04:57.919] at it, but uh you know, I'd like to see
+- [05:00.960] a deal with Russia. As you know,
+- [05:03.360] Vladimir called me up. He said, "Can I
+- [05:05.199] help you with Iran?" I said, "No, I
+- [05:06.720] don't need help with Iran. I need help
+- [05:08.080] with you." And uh I hope we're going to
+- [05:10.800] be getting a deal done with Russia. It's
+- [05:13.600] a shame. 6,000 soldiers died last week.
+- [05:17.120] More 6,500 soldiers died last week.
+- [05:20.720] Russia, Ukraine, a war that never would
+- [05:22.720] have happened if I was president. So,
+- [05:24.720] enjoy your flight. Let me ask you one
+- [05:26.560] more followup. In your comments just now
+- [05:28.720] about Article 5, that will probably make
+- [05:30.960] some people in Europe concerned. Can you
+- [05:33.600] clarify what you mean? Are you still
+- [05:35.680] committed to mutual defense? I'm
+- [05:38.000] committed to saving lives. I'm committed
+- [05:40.800] to life and safety, and I'm going to
+- [05:43.600] give you an exact definition when I get
+- [05:45.360] there. I just don't want to do it on the
+- [05:46.800] back of an airplane. Okay. And one other
+- [05:49.280] question on energy. What's your take on
+- [05:51.759] the oil price situation right now? And
+- [05:53.520] are you concerned? I love it. It dropped
+- [05:55.360] almost $10 yesterday. I put out a
+- [05:58.000] statement, get it down because a lot of
+- [06:00.960] people aren't able to do things when the
+- [06:03.039] energy goes down. Going to have a lot
+- [06:05.120] less conflict. So, it came down and our
+- [06:07.680] energy department's doing a great job.
+- [06:10.240] We're uh we're drilling like we've never
+- [06:14.000] drilled before. We're keeping it down.
+- [06:15.520] We're going to keep it down until all
+- [06:16.880] these wars are settled. Thank you very
+- [06:18.880] much, everybody. I'll see you in sleeper
+- [06:21.120] cells in the United States. Yeah, Biden
+- [06:23.600] let a lot of super. Biden was an
+- [06:25.840] incompetent president. Had no idea what
+- [06:27.840] he was doing. He hardly ever signed a
+- [06:30.880] document. Other people signed documents
+- [06:32.720] for him with the auto pen. It was gross
+- [06:35.759] incompetence. And among everything else,
+- [06:38.080] he let a lot of supercells in, many from
+- [06:40.800] Iran,
+- [06:42.400] but hopefully we'll take care of them.
+- [06:44.639] What Biden did to this country should
+- [06:46.639] never be forgotten. Do you think you'll
+- [06:48.639] get the Nobel Peace Prize now, sir?

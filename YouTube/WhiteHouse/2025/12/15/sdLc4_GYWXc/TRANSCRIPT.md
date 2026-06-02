@@ -1,0 +1,196 @@
+<!-- source: https://www.youtube.com/watch?v=sdLc4_GYWXc -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: sdLc4_GYWXc -->
+<!-- date_published: 2025-12-15T14:33:14+00:00 -->
+<!-- date_accessed: 2026-06-02T01:08:39.987684+00:00 -->
+
+# Transcript: The Story of America: Crossing the Delaware
+
+- [00:03.460] (mix of famous American history quotes)
+- [00:37.460] By September of 1776, the cause
+- [00:40.725] of independence looked bleak.
+- [00:45.840] Though Washington had miraculously escaped
+- [00:47.972] the British after the Battle of Long Island,
+- [00:50.940] the defeat of the American army
+- [00:53.255] had been a humiliating route.
+- [00:56.040] Washington had made a number of mistakes.
+- [00:58.461] And some began to speak about replacing
+- [01:01.094] him, whether with General Charles Lee,
+- [01:04.500] or with Horatio Gates.
+- [01:07.720] And what followed in the next three
+- [01:09.906] months only confirmed this assessment.
+- [01:13.780] The worst of it came on November 16th,
+- [01:16.127] when American forces were defeated in the
+- [01:18.661] northern end of Manhattan at Fort Washington.
+- [01:23.000] Washington ought to have abandoned
+- [01:25.138] Manhattan entirely, but for some reason he
+- [01:27.781] took the advice of Nathaniel Green
+- [01:29.973] and left 5,000 men there.
+- [01:32.680] From across the Hudson River, through his
+- [01:36.183] spyglass, Washington watched their awful defeat.
+- [01:41.040] The Hessian mercenaries even bayoneted
+- [01:43.140] men to death who were trying to surrender,
+- [01:46.620] knowing that the responsibility for
+- [01:49.075] it all fell on him was crushing.
+- [01:52.040] And a number of his officers saw Washington
+- [01:55.190] so overwhelmed that he turned away and wept
+- [01:59.120] like a child.
+- [02:01.980] Four days later, Washington's troops
+- [02:04.101] were chased from Fort Lee, New Jersey.
+- [02:07.500] But at this point, Washington knew
+- [02:09.488] that he must fight differently.
+- [02:12.100] And he would.
+- [02:13.560] The plan going forward was to retreat
+- [02:15.884] with his remaining army south through
+- [02:18.461] New Jersey, never allowing the British to
+- [02:21.206] engage them in a full and open fight in
+- [02:24.101] which the British would have the advantage.
+- [02:27.080] It would be what Washington called a
+- [02:29.922] war of posts, in which he retreated and
+- [02:33.050] retreated, trying to wear out the British as he did so.
+- [02:37.260] If Washington and his men continue
+- [02:39.458] to retreat successfully, they would
+- [02:41.721] eventually make it to the Delaware River,
+- [02:44.408] which formed the westernmost border of New Jersey.
+- [02:47.501] They could then escape across the Delaware
+- [02:50.074] where they would effectively be safe,
+- [02:52.740] having the wide river between them and the
+- [02:55.291] British, and also being able to keep the
+- [02:57.721] British from advancing on Philadelphia.
+- [03:01.420] So if Washington had any hope of reversing
+- [03:04.376] the fortunes of his Continental Army,
+- [03:07.620] he had to do it in the next few weeks.
+- [03:12.280] It really didn't seem like things could get worse.
+- [03:16.840] Until Washington heard that
+- [03:18.809] General Charles Lee, whom he had again and again
+- [03:21.061] begged to come to his aid with his 2000
+- [03:23.420] troops, had been captured by the British.
+- [03:26.940] In fact, the British were so thrilled by
+- [03:29.678] this tremendous coup that General Howe
+- [03:32.281] decided it was time to call it a
+- [03:34.611] year and retire to winter quarters.
+- [03:38.060] The situation was that Washington
+- [03:40.606] and his ragged troops were huddled in
+- [03:43.461] Pennsylvania, and General Charles Lee,
+- [03:45.984] whom the British feared far more as a
+- [03:48.441] general than they feared the beleaguered
+- [03:50.726] Washington, was their captive.
+- [03:54.780] So, Cornwallis made plans to sail back to
+- [03:58.769] London to see his wife, and Howe went to
+- [04:02.661] New York, where he expected to
+- [04:04.387] spend the winter with his mistress.
+- [04:07.520] A number of Hessian troops would, of
+- [04:09.416] course, be stationed in encampments
+- [04:11.261] along the Delaware, on the New Jersey side
+- [04:13.831] just to keep an eye on Washington and his
+- [04:16.341] forces, but the British thought
+- [04:18.950] that the campaign for 1776 was over.
+- [04:23.520] Washington was simply so defeated at this
+- [04:25.612] point that there was little reason to worry about him.
+- [04:28.461] In the spring, the British could rouse
+- [04:30.846] themselves to end things finally once and for all.
+- [04:34.660] It was around this time of deepest
+- [04:36.709] desperation that Washington knew he must do something.
+- [04:40.660] If he did nothing now, it really was
+- [04:43.016] essentially over for the cause of liberty
+- [04:45.850] and independence.
+- [04:47.900] On December 31st, most of his men having
+- [04:49.806] come to the end of their enlistment would go home.
+- [04:52.920] But what could Washington do?
+- [04:57.340] He would first of all take advantage
+- [04:59.530] of the overconfidence of the British,
+- [05:02.000] who didn't dream he and his exhausted
+- [05:04.220] forces would do anything dramatic at this point.
+- [05:07.720] He'd also take advantage of the fact that
+- [05:09.479] in their overconfidence they had scattered
+- [05:11.281] their forces in a line along the river
+- [05:13.333] that was perhaps a little bit too thin.
+- [05:15.960] For example, there were only 1,500 men at Trenton.
+- [05:20.200] Over the past weeks, Thomas Paine,
+- [05:22.177] who was with Washington's army,
+- [05:24.080] began to write another essay.
+- [05:27.520] This new one, titled the
+- [05:29.596] "American Crisis," began with the famous lines.
+- [05:32.080] "These are the times that try men's souls."
+- [05:36.480] The essay was so inspiring that Washington
+- [05:39.940] had it read aloud to all of his troops two
+- [05:43.401] days before the planned crossing of the Delaware.
+- [05:51.690] The exact plan was in fact for
+- [05:54.164] three forces to cross the Delaware.
+- [05:58.890] One force would cross many miles
+- [06:00.464] downstream to attack the Hessians who were
+- [06:02.531] stationed at Mount Holly in order to
+- [06:04.418] prevent them from coming to the aid of
+- [06:06.411] those he would be attacking in Trenton.
+- [06:08.870] A second force would cross the river right
+- [06:11.180] at Trenton to hold the Asumpink Bridge and
+- [06:13.491] prevent the Hessians from retreating.
+- [06:15.320] And the third and largest force, with
+- [06:17.935] Washington and his generals Green and
+- [06:20.551] Sullivan, would cross the river
+- [06:22.584] north at Mcconkey's Ferry.
+- [06:25.670] The plan was to be across by midnight and
+- [06:29.227] then to march the nine miles to Trenton
+- [06:32.710] where they would attack the Hessians at daybreak.
+- [06:36.770] When they arrived at the river, wet
+- [06:38.899] and cold, they saw that it was higher
+- [06:41.151] than usual and choked all the way
+- [06:43.800] across by huge and jagged flows of ice.
+- [06:48.170] Washington's full force was not
+- [06:50.257] assembled on the other side until 4:00 a.m.
+- [06:53.270] four hours past schedule, meaning that
+- [06:55.579] with nine miles to march, they would not
+- [06:58.011] get to Trenton until well after daylight,
+- [07:00.911] destroying the vital element of surprise.
+- [07:03.811] The snowstorm continued as they marched
+- [07:07.286] and it was so cold that two men froze to
+- [07:11.500] death on route.
+- [07:13.210] It was nearly 8:00 a.m.
+- [07:14.410] by the time they finally arrived at Trenton.
+- [07:17.970] The snowstorm was still raging so the
+- [07:20.790] Hessians were not expecting anyone to attack.
+- [07:25.030] When Washington gave Nathaniel Green the
+- [07:27.690] order to do so, the Hessians
+- [07:29.587] standing guard were overwhelmed and
+- [07:31.773] quickly retreated into the town.
+- [07:34.810] A few moments later from another direction
+- [07:36.806] General Sullivan's troops attacked.
+- [07:39.230] The Hessians could not have been more surprised.
+- [07:41.491] The idea that Washington would with all
+- [07:44.631] these men have crossed the Delaware on
+- [07:47.691] Christmas night in a snowstorm
+- [07:50.450] and marched through the snowstorm nine
+- [07:53.224] miles to Trenton was simply inconceivable.
+- [07:57.710] So the Hessians tumbled out of their
+- [07:59.608] barracks and desperately tried to martial the defense.
+- [08:03.370] But Henry Knox's artillery were stationed
+- [08:06.199] at the head of the two main streets and
+- [08:08.891] blasted cannon fire clearing them immediately.
+- [08:13.230] The fighting moved onto the side streets.
+- [08:16.530] Eventually the Hessians desperately
+- [08:19.205] retreated to an apple orchard
+- [08:21.476] but were finally surrounded.
+- [08:24.650] Only an hour had passed and it was all over.
+- [08:30.320] In the end the Hessians counted 112
+- [08:33.203] casualties, 22 killed and 90 wounded.
+- [08:37.270] On the American side, only four were
+- [08:39.767] wounded and not a single life was lost in battle.
+- [08:43.670] And the Americans had captured
+- [08:45.834] nearly 1,000 Hessian prisoners.
+- [08:49.050] It was an astonishing victory.
+- [08:51.251] The news spread quickly.
+- [08:54.450] Those who had counted Washington out and
+- [08:57.370] who had counted the cause of liberty out
+- [09:00.291] realized that his bold stroke successfully
+- [09:04.258] executed despite monumental obstacles had
+- [09:08.131] changed the momentum of the war
+- [09:10.642] as dramatically as possible.
+- [09:13.910] Once more the British knew that what they
+- [09:17.148] so assuredly believed was essentially
+- [09:20.071] finished was far from over.
+- [09:24.250] And of course when it finally would be
+- [09:27.167] over seven years in the unimaginable
+- [09:29.931] future they would have lost
+- [09:33.610] the war and the colonies both.
+- [09:48.610] ♪ (somber orchestral music playing) ♪

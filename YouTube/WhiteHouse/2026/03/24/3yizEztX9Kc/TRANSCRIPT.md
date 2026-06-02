@@ -1,0 +1,1069 @@
+<!-- source: https://www.youtube.com/watch?v=3yizEztX9Kc -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 3yizEztX9Kc -->
+<!-- date_published: 2026-03-24T18:56:23+00:00 -->
+<!-- date_accessed: 2026-06-02T02:36:10.976350+00:00 -->
+
+# Transcript: President Trump Participates in a Swearing-In Ceremony for the Secretary of Homeland Security
+
+- [00:03.660] The President: It's been a long time.
+- [00:05.220] Must be something big happening, huh?
+- [00:10.440] You all set? Well, thank you very much.
+- [00:13.470] It's a great day for me
+- [00:14.840] because I have a lot of confidence in this gentleman.
+- [00:18.710] And we're thrilled to swear
+- [00:20.580] in our new Secretary of Homeland Security,
+- [00:22.850] great American patriot, to put it mildly,
+- [00:25.780] Markwayne Mullin.
+- [00:27.770] And I want to just say, Markwayne, congratulations.
+- [00:30.180] Great.
+- [00:31.480] Markwayne Mullin: Thank you, sir.
+- [00:32.700] The President: You deserve it. Great man.
+- [00:34.070] Let me also thank Secretary Mullin's beautiful family,
+- [00:37.690] including his wife, Christie. Thank you.
+- [00:41.450] His sons, Jim and Jayce and Andrew,
+- [00:45.770] and daughters Lara, Ivy, Lynette,
+- [00:50.420] and other members of the Mullin family.
+- [00:52.160] It's a beautiful family.
+- [00:53.780] And we know this guy; he's a big wrestling --
+- [00:56.180] top wrestling guy.
+- [00:57.390] I won't -- I won't wrestle him for anything.
+- [01:00.950] All-American wrestler, huh?
+- [01:02.620] Good -- you good genetics in that family.
+- [01:05.240] Proud of you.
+- [01:06.490] Thanks as well to Attorney General Pam Bondi,
+- [01:09.080] Chairman Jason Smith, Congressman Josh Gottheimer,
+- [01:13.980] former speaker of the House Kevin McCarthy
+- [01:16.700] and many other friends that are gathered with us.
+- [01:19.090] It's great, great group of people.
+- [01:21.060] For 13 years, Markwayne has represented
+- [01:24.040] the incredible state of Oklahoma,
+- [01:26.430] a state that I won 77 out of 77 counties
+- [01:30.550] three times in a row, so they like me there.
+- [01:33.030] Second was Ronald Reagan at 56.
+- [01:35.860] Did you know that, 56? That's not bad, but 77 --
+- [01:39.540] it's 77 out of 77, I think, right?
+- [01:41.140] Markwayne Mullin: Pretty good.
+- [01:42.360] The President: That's not bad.
+- [01:44.060] But he was there in Congress as a member of the House
+- [01:49.150] and then as an outstanding United States Senator.
+- [01:52.480] And he really has been outstanding.
+- [01:53.960] He's been a close and vital partner
+- [01:56.160] in helping us secure the border, stop migrant crime,
+- [01:59.430] end the scourge of illegal drugs,
+- [02:01.350] and make America safe again and make America great again.
+- [02:05.430] And he's a tremendous player he worked with Tom Homan,
+- [02:08.560] worked with all of our people on the right, and many more.
+- [02:12.930] And everything he's done has been good.
+- [02:14.680] I say, everything he touched has turned to gold.
+- [02:16.620] Now, but even in business, he was successful,
+- [02:19.450] in all fairness. And he was successful,
+- [02:21.500] and he said, I want to go into politics.
+- [02:24.190] I hope you're happy.
+- [02:26.440] But as the only Native American --
+- [02:28.210] I didn't know that, huh?
+- [02:30.160] Let me look at you. I think that's all right.
+- [02:33.840] He's-- he's got -- he's got great quality, I can tell you.
+- [02:37.830] He's the only Native American in the Senate.
+- [02:40.550] How many have been there before you?
+- [02:41.890] Do you know, Native Americans?
+- [02:43.720] Markwayne Mullin: I think three.
+- [02:44.960] The President: Three.
+- [02:46.470] Well, you're a fantastic representative.
+- [02:48.880] Markwayne has also been a fantastic advocate
+- [02:52.200] for cherished tribal communities.
+- [02:54.160] He's now the first member of the Cherokee Nation
+- [02:58.160] ever to serve as a member of the cabinet.
+- [03:00.190] I didn't know all these things.
+- [03:02.110] I would have picked him faster if I had known.
+- [03:05.030] I would have made a quicker decision.
+- [03:07.860] Prior to his career in public service,
+- [03:09.520] Markwayne had a very successful career in business,
+- [03:11.880] leaving school at age 20 after his father got sick,
+- [03:15.380] taking over his family business and turning it
+- [03:17.590] into a multi-million dollar success story.
+- [03:20.380] He's a very successful guy.
+- [03:22.280] Markwayne has also a career as an MMA fighter.
+- [03:26.050] That's why I looked at his ears
+- [03:27.340] and I said, I'm not going to fight with him.
+- [03:29.110] You can tell a lot about a person by their ears, right?
+- [03:32.540] During which he went totally undefeated.
+- [03:34.990] He was undefeated during his career,
+- [03:38.200] and he's been inducted into the Oklahoma Wrestling Hall of Fame.
+- [03:42.220] And the family is made of fantastic wrestlers,
+- [03:45.320] especially that guy right there.
+- [03:46.870] That's my favorite guy, huh? And suffered a bad injury
+- [03:51.540] and come back stronger than ever, I think.
+- [03:54.190] So good to have you, man, right?
+- [03:56.290] I have no doubt that as he takes the helm of DHS,
+- [04:00.750] Markwayne will fight for Homeland Security,
+- [04:03.320] the United States, and securing the country
+- [04:05.750] and making it really strong, and the way it should be.
+- [04:10.160] Our country's come a long way in the last year.
+- [04:13.440] We - we set it up so beautifully
+- [04:15.510] and then we had four years of horror.
+- [04:17.580] We had four years of disgusting horror,
+- [04:19.650] open borders and things that nobody would even think of,
+- [04:23.200] you wouldn't even think of.
+- [04:24.480] 25 million people poured into our country.
+- [04:27.450] And we've gotten a lot of them out
+- [04:28.830] but we have a lot more to go.
+- [04:31.080] 11,888 murderers came into our country.
+- [04:35.240] People came in from all over the world,
+- [04:36.840] from prisons and gangs, gang members, drug dealers,
+- [04:40.580] people from mental institutions, insane asylums.
+- [04:43.450] That's the mental institution times two.
+- [04:47.430] And what they allowed to happen to our country
+- [04:50.620] can never be allowed to happen again.
+- [04:52.250] And it won't with Markwayne.
+- [04:54.610] We have somebody that's strong, professional and fair.
+- [04:58.950] As you know, the department that Mark Twain takes over today
+- [05:02.470] is currently shut down by radical left Democrat
+- [05:05.490] thugs in Congress who have blocked all funding for DHS
+- [05:10.670] because they're trying to shield illegal alien criminals,
+- [05:13.060] gang members.
+- [05:14.400] They want to protect them from being taken out of the country.
+- [05:18.190] Drug dealers, murderers, they're protecting them all.
+- [05:22.580] I don't know how people can vote for these people.
+- [05:24.810] You know, I see -- I see the midterms are close.
+- [05:28.070] I don't know what close means,
+- [05:29.410] but I don't know how people can vote for them.
+- [05:33.390] You take a look, men --
+- [05:35.520] they want men to be able to play in women's sports,
+- [05:37.730] they want transgender for everybody, terrible
+- [05:41.540] but that's the way it is.
+- [05:42.800] They don't want to give voter ID.
+- [05:44.230] They don't want voter ID for elections.
+- [05:46.080] They don't want proof of citizenship for elections,
+- [05:49.160] and then they get to vote. They do cheat but I don't know,
+- [05:53.200] it's hard to believe they can cheat that much.
+- [05:55.490] Just in the past few days,
+- [05:56.840] we've seen the horrifying consequences
+- [05:59.500] of Democrats' deadly open border extremism.
+- [06:03.700] They want open borders and they want to open the borders again,
+- [06:06.890] if they have their chance,
+- [06:08.140] because they think they're going to get votes by doing that.
+- [06:11.030] On Thursday, a precious 18 year old college student named --
+- [06:15.190] named Sheridan Gorman was shot and killed
+- [06:18.160] while she was walking in a park.
+- [06:19.980] She was just walking in the park, didn't do anything.
+- [06:23.050] The illegal alien monster charged
+- [06:24.820] with Sheridan's brutal murder
+- [06:27.060] had come illegally from Venezuela
+- [06:29.590] and been released into our country by Sleepy Joe Biden,
+- [06:33.680] the worst president in the history of our country.
+- [06:36.920] And I don't say that because I just --
+- [06:38.490] because I think he's fine. He's OK.
+- [06:40.360] I don't like him, dislike him. I talk about job performance.
+- [06:44.090] That's all I care about, job performance.
+- [06:45.950] He's the worst president in history.
+- [06:48.710] And Obama wasn't far behind, by the way.
+- [06:51.970] But he was then arrested and released again
+- [06:53.850] by Democratic governor, a real slob of a governor,
+- [06:57.400] JB Pritzker, in the sanctuary city of Chicago,
+- [07:02.220] which we could make safe in two months.
+- [07:05.820] I would say, two months, if we sent in the group Tom, right?
+- [07:08.600] We could -- two months would be good, three months very good,
+- [07:12.170] four or five months, it would be great.
+- [07:14.150] But they would never call
+- [07:15.470] because they don't want to do that.
+- [07:17.120] All they have to do is call and ask for a little help.
+- [07:20.050] The Democrats in Congress do not care how much American blood
+- [07:23.790] they shed in their demented pursuit of open borders.
+- [07:27.700] From Sheridan Gorman to Jocelyn Nungaray and Laken Riley,
+- [07:31.980] their quest to flood our country with illegal aliens
+- [07:35.060] has left countless American victims in its wake.
+- [07:38.260] They never change, too. They see what's happening.
+- [07:41.170] They never change. That's what they want.
+- [07:42.840] They want to get the votes with sanctuary --
+- [07:46.190] and sanctuary cities going at levels that they are.
+- [07:49.320] And we've ended a lot.
+- [07:50.550] We've done a lot, but for some reason, they love it.
+- [07:54.150] It's a sanctuary -- you know,
+- [07:55.450] sanctuary cities are sanctuary for --
+- [07:57.420] it's really a sanctuary for criminals.
+- [08:00.170] With Secretary Mullin at DHS,
+- [08:01.940] we will continue our record-setting efforts
+- [08:04.230] to deport these illegal alien criminals from our country,
+- [08:07.140] and we are doing at record levels,
+- [08:09.390] despite a very unfair court system,
+- [08:12.530] a radicalized left court system
+- [08:16.320] and others that I'm not too fond of also,
+- [08:19.010] and will protect innocent American lives.
+- [08:21.030] Every single illegal migrant who has a criminal record
+- [08:26.060] must be deported immediately.
+- [08:27.480] If they have a criminal record, you've got to deport them.
+- [08:30.550] And there's a lot that came in under Biden and Kamala,
+- [08:33.950] the great border czar Kamala, who never went to the border,
+- [08:36.270] never called Border Patrol -- never once called Border Patrol.
+- [08:39.490] Can you imagine that, Jim?
+- [08:41.500] She's the border czar; she never called border patrol.
+- [08:45.120] Explain that to me.
+- [08:47.230] He's the worst; she was as bad as he was --
+- [08:50.400] going to give them IQ tests next week.
+- [08:52.690] Under the Trump administration,
+- [08:54.900] we've achieved unprecedented gains on public safety.
+- [08:57.910] Yesterday, we were in Memphis, Tennessee,
+- [09:01.500] to celebrate the steepest reduction in crime
+- [09:04.620] ever recorded.
+- [09:06.280] We've been there for about five months and the numbers,
+- [09:09.100] nobody's ever seen anything like it.
+- [09:11.630] And thanks to our Memphis Safe Task --
+- [09:14.750] it's called Safe Task Force,
+- [09:17.230] alongside our efforts in Washington, DC --
+- [09:20.070] what we've done in Washington is amazing.
+- [09:23.830] We have Washington as a safe city now,
+- [09:26.350] it's been amazing. It's been --
+- [09:29.190] if you go back a year and a half, two years ago,
+- [09:31.140] Washington was one of the most unsafe cities
+- [09:33.510] anywhere in the world, let alone this country,
+- [09:36.790] and now we have a very safe city.
+- [09:38.870] And what they've done with all of the people working,
+- [09:42.090] many of the people standing right there,
+- [09:44.020] it's been incredible.
+- [09:45.970] And now we're going to see all of our cities
+- [09:47.750] take a big step because of Markwayne.
+- [09:50.950] In one year, my administration,
+- [09:52.550] we've created the most secure border
+- [09:54.590] in the United States history
+- [09:56.830] and the largest drop in illegal immigration ever recorded --
+- [10:00.380] slashed illegal fentanyl crossings
+- [10:02.500] and our border by 64 percent
+- [10:05.500] and accomplished the largest decline in the murder rate
+- [10:08.310] in the history of our country, bringing it down to 1900.
+- [10:11.500] That's before my father was born.
+- [10:13.930] My father was born a little bit after that.
+- [10:15.780] He wouldn't be happy mentioning this
+- [10:17.290] because he never liked talking about age,
+- [10:20.000] but he lived to be a ripe old age.
+- [10:21.680] But that's before my father was born.
+- [10:24.530] Think of it, 1900, we have a record, 1900.
+- [10:29.740] Murders last year were at the lowest level in 125 years
+- [10:34.890] and we're making America safe again.
+- [10:37.560] We're doing it at levels that nobody --
+- [10:39.360] everything we're doing, we're making great.
+- [10:41.570] The border is great, the military is great.
+- [10:44.300] We're having, by the way, a tremendous success,
+- [10:48.200] as you know, in Iran.
+- [10:50.310] We had one in Venezuela and now we're having one in Iran.
+- [10:53.870] They have no Navy left, they have no Air Force left,
+- [10:58.920] they have no anti-aircraft equipment left,
+- [11:02.390] no radar left, no leaders left.
+- [11:04.980] The leaders are all gone, nobody knows who to talk to.
+- [11:08.510] But we're actually talking to the right people,
+- [11:10.310] and they want to make a deal so badly,
+- [11:11.960] you have no idea how badly they want to make a deal
+- [11:15.250] and we'll see what happens. I want to thank Pete Hegseth.
+- [11:17.630] The job you're doing over there is really incredible,
+- [11:20.340] you and the general and all of the other generals and colonels
+- [11:24.070] and captains and majors and everybody else, right?
+- [11:28.230] It's a perfect, amazing thing.
+- [11:31.250] We make the best military equipment in the world,
+- [11:33.320] now we're going to make it faster.
+- [11:35.290] We want to get it faster,
+- [11:37.150] but we make the best in the world, we're doing a job.
+- [11:39.980] So, I'd like to ask Attorney General Bondi
+- [11:42.470] to come and do the honors of swearing
+- [11:44.560] in a man who's going to do a phenomenal job for our country.
+- [11:48.450] And I'll tell you, your family has to be very proud,
+- [11:50.940] you have to be very proud. Everybody wanted this job.
+- [11:54.290] I said, there's one man for this job
+- [11:57.130] and I have no doubt he's going to be fantastic.
+- [11:59.370] Thank you, Pam, come on over. Thank you.
+- [12:10.330] Pam Bondi: Please raise your right hand and repeat after me.
+- [12:13.910] I do solemnly swear;
+- [12:15.970] Markwayne Mullin: I do solemnly swear;
+- [12:17.190] Pam Bondi: Markwayne Mullin;
+- [12:18.480] Markwayne Mullin: Markwayne Mullin;
+- [12:19.850] Pam Bondi: That I will support and defend
+- [12:21.600] the Constitution of the United States;
+- [12:23.670] Markwayne Mullin: That I will support and defend
+- [12:25.080] the Constitution of the United States;
+- [12:26.920] Pam Bondi: Against all enemies, foreign and domestic;
+- [12:29.420] Markwayne Mullin: Against all enemies, foreign and domestic;
+- [12:31.540] Pam Bondi: And that I will bear true faith
+- [12:33.170] and allegiance to the same;
+- [12:34.470] Markwayne Mullin: And that I will bear true faith
+- [12:36.220] to allegiance and do the same;
+- [12:38.220] Pam Bondi: And that I take this obligation freely;
+- [12:40.650] Markwayne Mullin: And take this obligation freely;
+- [12:42.450] Pam Bondi: Without any mental reservation;
+- [12:44.120] Markwayne Mullin: Without any mental reservation;
+- [12:46.600] Pam Bondi: Or purpose of evasion;
+- [12:48.190] Markwayne Mullin: Or purpose of evasion;
+- [12:49.570] Pam Bondi: And that I will well and faithfully;
+- [12:51.320] Markwayne Mullin: And that I will well and faithfully;
+- [12:53.210] Pam Bondi: Discharge the duties of the office;
+- [12:55.290] Markwayne Mullin: Discharge the duties of the office;
+- [12:57.390] Pam Bondi: On which I am about to enter;
+- [12:59.260] Markwayne Mullin: Which I'm about to enter;
+- [13:00.550] Pam Bondi: So help me God.
+- [13:01.930] Markwayne Mullin: So help me God.
+- [13:03.140] Pam Bondi: Congratulations, Secretary.
+- [13:04.420] The President: Hey!
+- [13:05.670] Markwayne, do you want to say a few words?
+- [13:16.050] Markwayne Mullin: Thank you I think that was
+- [13:17.260] the most nervous I've ever been.
+- [13:20.440] I don't -- it just seems surreal being in the Oval Office
+- [13:24.680] and having the President of the United States
+- [13:27.320] speak so highly of me and then recognize my family
+- [13:30.820] and know my family by name.
+- [13:32.910] It's humbling and I never take it for granted.
+- [13:36.690] But I've made this very clear
+- [13:38.150] that I don't care what color your state is,
+- [13:40.100] I don't care if you're red or blue.
+- [13:42.200] At the end of the day, my job is to be Secretary of Homeland
+- [13:45.320] and to protect everybody the same.
+- [13:46.950] And we will do that. I'll fight every single day.
+- [13:50.220] Today, I got the privilege of meeting
+- [13:52.480] so many of the employees at DHS.
+- [13:55.180] These employees have been there for 30 days without pay.
+- [13:59.530] And if you need anything to know their dedication to show up
+- [14:03.270] and still protect the homeland that you and I enjoy
+- [14:06.830] and the freedoms that we're that we're experiencing.
+- [14:10.150] They're working for free because of political politics.
+- [14:13.860] That's all I need to know.
+- [14:15.210] I told them, as you're fighting 365 days,
+- [14:17.200] understand I'll be fighting 365 days beside you.
+- [14:21.520] No one's going to outwork me,
+- [14:23.380] and I'm not going to let any of them outwork me.
+- [14:25.070] The president has entrusted me with this,
+- [14:27.240] and failure is not an option.
+- [14:29.600] So, thank you so much, Mr. President,
+- [14:32.410] for this opportunity, I won't let you down.
+- [14:35.740] The President: Thank you very much. Thank you.
+- [14:41.070] I love that expression, no one's going to outwork me.
+- [14:43.150] That's a wrestler's expression, isn't it, huh?
+- [14:45.780] That's a good wrestler's expression. Yes, please.
+- [14:48.330] The Press: Mr. President, will the Secretary's replacement
+- [14:50.780] in the Senate support the SAVE Act
+- [14:52.570] and the use of the talking filibuster to get it through?
+- [14:54.910] The President: Well, it's not the SAVE Act,
+- [14:56.160] it's not called the -- it's called the SAVE
+- [14:57.620] America Act, there's a big difference.
+- [14:59.140] Because the SAVE Act, nobody knows what that means,
+- [15:01.020] SAVE America means save America. And I can't speak for him,
+- [15:05.880] but I would imagine that Markwayne --
+- [15:07.700] I didn't even ask him the question
+- [15:09.010] because who wouldn't support it? Voter ID with a picture.
+- [15:14.520] You want citizenship, proof of citizenship,
+- [15:18.430] ideally you want to end mail-in ballots
+- [15:21.620] because there's tremendous corruption.
+- [15:23.730] Then we added a couple of things,
+- [15:25.020] Markwayne, like, I don't think being a great athlete
+- [15:27.840] and having a family of great athletes,
+- [15:29.990] they have produced great athletes in this family,
+- [15:33.300] all American wrestlers,
+- [15:34.930] they especially like wrestling, by the way.
+- [15:36.550] What about baseball?
+- [15:37.810] Do you play baseball or anything?
+- [15:39.780] They like wrestling.
+- [15:41.100] But I don't think that you would say that this family --
+- [15:45.070] and I don't know this for a fact,
+- [15:47.090] and I shouldn't say it because I could get myself --
+- [15:50.010] does anybody in your family want men to play in women's sports?
+- [15:54.060] I don't think so, Jim, right?
+- [15:55.730] I don't think so.
+- [15:57.120] I don't think -- how would they do?
+- [15:58.580] Would they do good wrestling you?
+- [16:00.100] They would be in trouble?
+- [16:01.990] He said yes, they'd be in big trouble. It's so crazy.
+- [16:05.580] So, that would be one and then we have a few others that we --
+- [16:09.040] we call them the best of, best of Trump.
+- [16:11.900] But if you look at transgender mutilation of children.
+- [16:14.690] We don't want that.
+- [16:15.930] It's the mutilation of children; we don't want that.
+- [16:19.470] So, generally speaking, I think I can answer that
+- [16:21.830] Markwayne would be very much in favor of what I'm in favor of.
+- [16:25.460] Would you say that's right, Mark?
+- [16:26.910] I can't think of too many things.
+- [16:28.560] He might be worse -- he might be worse than me.
+- [16:31.270] That's my -- look, his wife is saying that's right.
+- [16:35.260] So, yeah, he's going to be great. Yeah.
+- [16:37.450] The Press: Do you believe the Secretary will run
+- [16:39.220] DHS any differently than Kristi Noem did?
+- [16:41.880] What do you hope to see as his priorities?
+- [16:44.110] The President: Well, we had a good run.
+- [16:45.830] Look, we created the strongest border
+- [16:47.620] with the help of that man right there.
+- [16:49.940] Tom is so incredible
+- [16:52.080] and he's going to be a big influence here, too.
+- [16:54.530] There's nobody more professional, nobody better.
+- [16:56.360] There's nobody better as a human being.
+- [16:58.120] You know, he looks tough, but he's got a good heart.
+- [17:00.940] But not too good don't make it too good.
+- [17:03.340] But we had Tom, we have the safest border we've ever had.
+- [17:08.240] We have a lot of assets,
+- [17:09.510] but a lot of things we can do and we're going to do.
+- [17:14.520] We have to get criminals out of our country
+- [17:17.940] that were allowed in by Biden. Yeah, please.
+- [17:20.810] The Press: Mr. President, do you support the,
+- [17:22.330] what appears to be,
+- [17:23.570] emerging agreement coming out of the Senate to reopen the --
+- [17:26.470] The President: Well, I'm going to look at it
+- [17:27.820] and we're going to take a good hard look at it.
+- [17:30.010] I want to support Republicans and, you know,
+- [17:32.600] sometimes it's awfully hard to get votes
+- [17:34.430] when you have Democrats that don't want to have voter ID,
+- [17:37.560] they don't want to have proof of citizenship,
+- [17:39.470] they don't want to do anything about men
+- [17:41.600] playing in women's sports.
+- [17:42.920] That's one of the items we put on, you know?
+- [17:45.410] And I did that just because it's so popular,
+- [17:47.740] they say that's at least an 80-20 issue.
+- [17:50.000] No, it's about a 99-1.
+- [17:51.550] I don't think it's -- what do you think?
+- [17:53.140] Do you think it's 80-20. Who's closer, 80-20 or 99-1.
+- [17:57.610] Unidentified: Almost 100.
+- [17:58.950] The President: Yeah, I think 100 is really the --
+- [18:01.530] so, I support that and I support common sense. Please.
+- [18:06.070] The Press: Would you be comfortable with a deal
+- [18:07.990] that involves separating ICE funding from the DHS
+- [18:11.090] funding package in order to reopen?
+- [18:12.520] The President: Well, they're working on all of that,
+- [18:13.760] you know, that's a detail that they'll explain later. Please.
+- [18:16.200] The Press: On election integrity and DHS measures.
+- [18:19.100] Mr. President, since CISA falls under DHS,
+- [18:22.220] and given that many credible voices have raised concerns
+- [18:24.630] over its premature and possibly faulty,
+- [18:26.770] likely faulty 2020 election assessment,
+- [18:29.600] will you and Secretary Mullin implement
+- [18:31.370] reforms at CISA and DHS
+- [18:32.930] to ensure full confidence in future elections,
+- [18:34.610] like in the upcoming --
+- [18:35.900] The President: We haven't spoken about it.
+- [18:37.110] We'll talk about it. You know, pros and cons.
+- [18:38.840] Look, they used it to try and put me in prison, right?
+- [18:42.480] So I can't be thrilled with it.
+- [18:45.480] They used that very strongly, very illegally.
+- [18:47.360] The Democrats are thugs and I don't want to say that.
+- [18:50.690] It'd be nice to -- everyone get along,
+- [18:52.650] but it's a different country than it was years ago.
+- [18:56.530] It was very dangerous, the way they used it.
+- [18:59.600] And they weaponized government.
+- [19:01.280] They used that to weaponize government.
+- [19:03.120] So I'm not thrilled,
+- [19:04.510] but I'll also go along with two groups of people,
+- [19:07.760] the military and I think the military likes it, right?
+- [19:10.820] And I'll go along with the Senators.
+- [19:12.840] It's -- I'm fine, but I was a big victim of it.
+- [19:15.020] Yeah, please.
+- [19:16.300] The Press: Are you going to send Jared Kushner and Steve Witkoff
+- [19:18.450] to do direct negotiations with the Iranians?
+- [19:20.610] The President: Yeah.
+- [19:21.820] Well, we're in negotiations, as it turned out,
+- [19:24.210] and now you've seen what I said yesterday was exactly correct.
+- [19:27.580] We're in negotiations right now.
+- [19:29.870] They're doing it, along with Marco, JD.
+- [19:32.560] We have a number of people doing it.
+- [19:34.660] And the other side, I can tell you,
+- [19:36.400] they'd like to make a deal.
+- [19:38.140] And who wouldn't, if you were there?
+- [19:39.530] Look, their Navy's gone. Their Air Force is gone.
+- [19:44.310] Their communications are gone. That's the biggest problem,
+- [19:46.940] it's very hard to communicate, them, between themselves.
+- [19:50.960] All of the anti-aircraft is gone.
+- [19:53.460] Most of their missiles are gone.
+- [19:54.950] We shot -- either shot them or they shot them,
+- [19:57.150] and don't have them anymore.
+- [19:58.980] They're down to a trickle.
+- [20:01.070] They're-- pretty much everything they have is gone.
+- [20:04.470] I don't know, can you name one thing that's not gone?
+- [20:06.900] Or can you name one thing that's doing well?
+- [20:10.220] You know, if you read the papers, you think we're tied?
+- [20:12.150] You think we're in a tough battle?
+- [20:14.030] We are roaming free over Tehran,
+- [20:18.040] the city, Tehran, as opposed to Iran.
+- [20:21.500] We're roaming free. We can do whatever we want.
+- [20:24.760] And as you know,
+- [20:25.990] today we were going to have the privilege of shooting
+- [20:28.330] down a very big electric generation plant,
+- [20:32.180] one of the biggest in the world.
+- [20:34.230] And one shot to the right location ends the plant,
+- [20:37.460] it collapses,
+- [20:39.090] and we held off based on the fact that we're negotiating.
+- [20:41.770] Yeah.
+- [20:43.060] The Press: What do you think was the turning point
+- [20:44.790] to make you want to pursue a cease fire?
+- [20:46.730] A few days ago, you know,
+- [20:48.230] you said you wanted to continue bombing Iran.
+- [20:50.730] Now you want to pursue peace talks.
+- [20:51.980] Was there something that happened --
+- [20:53.230] The President: The fact that they're talking to us
+- [20:54.610] and they're talking sense. And remember, it all starts
+- [20:58.100] with they cannot have a nuclear weapon.
+- [20:59.900] Just -- you know, I said yesterday, what --
+- [21:02.250] they said, what are the top 10?
+- [21:03.530] I said, well, number one, two and three
+- [21:05.490] is they can't have a nuclear weapon
+- [21:08.420] and they're not going to have a nuclear weapon.
+- [21:10.790] And we're talking about that
+- [21:12.150] and I don't want to say in advance,
+- [21:14.400] but they've agreed they will never have a nuclear weapon.
+- [21:16.270] They've agreed to that.
+- [21:17.400] The Press: How do you ensure
+- [21:18.630] they won't have a nuclear weapon?
+- [21:19.900] Greg Bovino -- your former Border Patrol chief,
+- [21:21.710] Greg Bovino, said his only regret
+- [21:23.850] is that he didn't catch more illegal aliens.
+- [21:26.820] What's your reaction to that?
+- [21:28.350] The President: Who said that?
+- [21:29.550] The Press: That's your former Border Patrol chief.
+- [21:32.030] He just retired.
+- [21:34.240] The President: Well, I mean, we captured a lot.
+- [21:37.210] You know, they were allowed into the country by Sleepy Joe
+- [21:41.760] and that group of incompetent people that were --
+- [21:44.470] worst president ever, the group of incompetent people.
+- [21:47.450] To me, that's the biggest scar. You know, inflation,
+- [21:49.400] they caused the highest inflation we've ever had.
+- [21:51.850] We've already gotten rid of it. The biggest scar is --
+- [21:54.990] is what they did, the people that they allowed,
+- [21:56.800] from prisons all over the world.
+- [21:58.390] They came from the Congo, from all over South America,
+- [22:02.040] rough, rough, rough people, really tough people.
+- [22:05.840] So no, I understand what he means.
+- [22:07.720] He said, you know, he would have liked to have captured more.
+- [22:11.280] I'm not capturing so much as removing.
+- [22:13.510] You know, we're removing thousands of people,
+- [22:16.110] and many are self-deporting because we're going after them
+- [22:18.680] so powerfully that they're self-deporting, Tom, going back.
+- [22:21.920] I think that's one of the big unkept secrets.
+- [22:25.480] It’s -- we have thousands and thousands of people
+- [22:29.470] and they're self-deporting.
+- [22:30.740] They're going back to where they came from.
+- [22:32.820] But what we want, really, is the criminals.
+- [22:34.830] We're really focused on those criminals getting them out.
+- [22:37.210] Yeah.
+- [22:38.450] The Press: What's your message right now to Democrats
+- [22:40.540] and also to Americans that are stuck at airports,
+- [22:42.710] it's really devastating watching it online,
+- [22:44.790] because Democrats won't fund DHS?
+- [22:46.810] What -- what's devastating?
+- [22:48.110] The Press: What's your message to Americans stuck at airports
+- [22:49.630] as we speak because Democrats won't fund DHS?
+- [22:51.090] The President: Well, they just don't --
+- [22:52.330] they won't -- look, this is a deal
+- [22:54.110] that was done in the Great, Big, Beautiful Deal,
+- [22:55.870] which gave you the biggest tax cuts ever,
+- [22:58.930] including no tax on tips
+- [23:00.640] and no tax on Social Security for the seniors.
+- [23:03.010] Think of it, no tax on overtime,
+- [23:05.840] tax deductions when you buy a car.
+- [23:07.530] You take money, pay interest on the money, you deduct it.
+- [23:12.050] We've never had that for people buying cars.
+- [23:15.820] If it's an American car, only if it's an American car.
+- [23:18.840] But, um, they are just-- what -- they're --
+- [23:25.450] they stick together, the Democrats.
+- [23:27.200] I tell you, I give them great credit for that.
+- [23:28.930] We have some that will -- they're not good stickers.
+- [23:31.570] We have guys like Tom Massie in Congress, who's terrible.
+- [23:35.210] He's just terrible, terrible person.
+- [23:36.960] I call him Rand Paul Jr., but they don't vote.
+- [23:40.080] Rand Paul, I mean, rarely votes for stuff.
+- [23:44.410] Likes me, says I'm a great president.
+- [23:47.160] He said the other day, I'm a great president,
+- [23:48.980] one of the greatest presidents.
+- [23:51.280] But I said, do me a favor vote for us
+- [23:53.380] and don't call me a great --
+- [23:54.660] I'd rather have the vote than the statement.
+- [23:58.030] But we have people that don't stick together
+- [24:01.150] and those people hopefully will someday be gone.
+- [24:05.120] The thing I most respect about the Democrats,
+- [24:07.510] even on horrible policy, they stick together.
+- [24:10.500] What they do have, though, is horrible policy transgender
+- [24:14.310] for everyone, open borders, men in women sports.
+- [24:18.980] They have the worst policy that you can imagine.
+- [24:22.020] And so whether they stick together or not,
+- [24:25.190] I mean, they have just this terrible policy.
+- [24:27.600] We have great policy. Republicans have great policy.
+- [24:31.100] We have common sense policy, but it's great policy.
+- [24:33.850] That's our biggest advantage, is our policy is correct.
+- [24:35.860] Yeah, please.
+- [24:37.130] The Press: Mr. President,
+- [24:38.370] are you encouraging our allies in the Gulf
+- [24:40.190] to be more involved in the Iran operation?
+- [24:42.010] The President: Say it.
+- [24:43.310] The Press: Are you encouraging our allies in the Gulf
+- [24:45.090] to be more involved in the Iran operation?
+- [24:46.580] The President: Yeah.
+- [24:47.840] I mean a little bit, but more -- more NATO.
+- [24:51.620] I think our Gulf allies have been pretty good,
+- [24:54.850] to be honest with you. UAE has been hit so hard.
+- [24:58.510] He got hit by 1,400 rockets,
+- [25:00.290] shot them all out of the air with our great --
+- [25:02.700] with our great Patriot missiles.
+- [25:05.260] Think of it, they shot 100 missiles
+- [25:07.970] at one of our aircraft carriers, the Abraham Lincoln,
+- [25:10.870] one of the biggest ships in the world, actually.
+- [25:13.740] And out of 101 missiles shot, every single one of them
+- [25:18.040] was knocked down in the sea. Think of that.
+- [25:20.210] Think of what that means, 101 missiles,
+- [25:23.400] highly sophisticated, very fast missile shot.
+- [25:27.910] Out of 101, all 101 were shot down and now,
+- [25:32.580] for the most part, lie at the bottom of the sea.
+- [25:36.280] Pretty amazing, right? Pretty amazing.
+- [25:38.420] Our military is amazing, Pete.
+- [25:40.360] You know the attack I'm talking about recently, 101 shot.
+- [25:44.930] I said, wow. I saw that. You can see --
+- [25:47.520] we have sort of pretty good equipment that we see.
+- [25:50.310] It's called the red line.
+- [25:51.570] Those red lines were thick, right?
+- [25:53.660] I said, that's a lot.
+- [25:54.910] And then we saw them one by one just get shot.
+- [25:57.760] And these guys that do the shooting
+- [25:59.120] are the coolest cucumbers ever.
+- [26:00.620] You know, most people -- you don't have a lot of time.
+- [26:03.680] When a missile is going at 2,500 miles an hour,
+- [26:07.500] I don't care how far away it is, you don't have a lot of time.
+- [26:10.410] But I watch them -- I watch them him sit down
+- [26:14.570] and think, great students,
+- [26:17.380] MITs, a lot of MITs, a lot of guys like this
+- [26:20.390] and not as much into the muscle as they are,
+- [26:23.880] this one right here.
+- [26:25.530] And amazing to watch them perform under great pressure,
+- [26:30.820] because they have a matter of seconds to do it.
+- [26:32.950] If they don't do it properly, it's a big problem, you know,
+- [26:38.000] because these were powerful --
+- [26:39.310] these were very powerful missiles coming.
+- [26:41.570] And so a lot of people choke.
+- [26:44.010] They don't choke. These guys don't choke.
+- [26:45.620] They're the best in the world.
+- [26:46.840] We have the best in the world. Yeah.
+- [26:48.200] The Press: Mr. President, what would be your message today
+- [26:51.480] to the TSA agents who have been staying home in recent days
+- [26:57.260] amid this impasse?
+- [26:58.510] The President: Well, some of them are needing money,
+- [27:01.620] you know, because the Democrats cut off their money.
+- [27:03.970] I blame the Democrats more than anything else.
+- [27:06.750] But some of them, you know, they didn't get paid
+- [27:09.440] because they're not funded by the Democrats.
+- [27:11.270] This is a Democrat problem.
+- [27:13.040] In fact, I actually said to the Senate, why would you --
+- [27:15.660] this is a Democrat problem.
+- [27:17.710] I think the polls are showing it's a Democrat problem.
+- [27:21.840] And they'll do anything, actually, to hurt our country
+- [27:24.580] so they can try and win the midterms.
+- [27:27.780] And if we ever went back to our old policies,
+- [27:29.870] we wouldn't have a country left.
+- [27:31.240] The Press: If they get a deal,
+- [27:32.450] Republicans and Democrats in the Senate,
+- [27:34.030] to fund all but enforcement operations of ICE,
+- [27:38.190] to get those TSA agents repaid
+- [27:39.870] and to open up the rest of the department, would you sign that?
+- [27:41.810] The President: Well, I don't want to comment
+- [27:43.070] until I see the deal,
+- [27:44.270] but as you know, they're negotiating a deal.
+- [27:46.720] I guess they're getting fairly close,
+- [27:48.330] but I think any deal they make,
+- [27:52.410] I'm pretty much not happy with it.
+- [27:54.380] These guys came in, they wouldn't pay people.
+- [27:56.830] You know, they had a deal to pay.
+- [27:58.500] They had to break their deal.
+- [27:59.800] The Democrats broke the deal that we had.
+- [28:03.380] It was all done.
+- [28:04.740] Everything was fine, and then they just said,
+- [28:06.340] well, we're not going to pay anymore.
+- [28:08.580] And they hurt our country. And at a very difficult time
+- [28:12.840] because, you know, we are at, as they would say a war.
+- [28:15.170] They call it a war; I call it a military operation,
+- [28:19.090] a very successful one --
+- [28:21.120] successful like nobody's ever seen before.
+- [28:23.710] Hey, Venezuela was equally as successful.
+- [28:26.250] That was a great thing.
+- [28:28.080] No, the Democrats had a deal, it was a done deal
+- [28:31.320] and then they said, well, we're not going to pay.
+- [28:34.020] And so, a lot of people suffered over that
+- [28:37.820] and put our country in danger. Do you have another question?
+- [28:41.080] You haven't been here in a while.
+- [28:42.400] The Press: Well, on Iran, can you give us any more sense
+- [28:47.000] of who exactly in Iran,
+- [28:49.490] it is either Witkoff, Kushner and others are speaking with?
+- [28:52.050] The President: Yeah, we had --
+- [28:53.300] I hate to say this in front of these young people.
+- [28:56.650] They're not children; I spoke to most of them.
+- [28:58.990] They sound like adults to me,
+- [29:00.460] even though they are sort of children, right?
+- [29:02.080] They'll always be your children. But I hate to say it,
+- [29:05.690] but we killed all their leadership,
+- [29:09.800] and then they met to choose new leaders,
+- [29:11.520] and we killed all of them.
+- [29:14.320] And now we have a new group, and we can easily do that,
+- [29:17.520] but let's see how they turn out.
+- [29:19.530] It's -- we have really regime change.
+- [29:23.130] You know, this is a change in the regime
+- [29:26.250] because the leaders are all very different
+- [29:28.030] than the ones that we started off
+- [29:30.000] with that created all those problems.
+- [29:32.060] So, this was -- I think we can say,
+- [29:33.440] Jason, this is regime change, right?
+- [29:36.070] The Press: What makes you trust them?
+- [29:37.870] The President: I don't trust anybody; I don't trust you.
+- [29:39.860] I mean, that's only because I know you.
+- [29:42.760] But if I didn't know you, I'd probably have more trust.
+- [29:46.840] But I don't trust anyone. Why do you say that --
+- [29:51.380] why do you say, what makes you trust --
+- [29:52.830] do you think I trust them? I don't trust them.
+- [29:54.630] The Press: Then why bother talking to them?
+- [29:56.740] The President: Because they're going to make a deal.
+- [29:58.280] They're going to make a deal.
+- [29:59.570] They did something yesterday that was amazing actually.
+- [30:02.120] They gave us a present and the present arrived today.
+- [30:07.330] And it was a very big present,
+- [30:09.300] worth a tremendous amount of money,
+- [30:12.020] and I'm not going to tell you what that present is,
+- [30:14.330] but it was a very significant prize.
+- [30:20.940] And they gave it to us and they said they were going to give it,
+- [30:23.020] so that meant one thing to me,
+- [30:24.660] we're dealing with the right people.
+- [30:25.870] The Press: Was it nuclear related?
+- [30:27.070] The President: No, it wasn't nuclear-related;
+- [30:29.020] it was oil and gas related
+- [30:31.140] and it was a very nice thing they did.
+- [30:32.760] But what it showed me
+- [30:33.970] is that we're dealing with the right people.
+- [30:35.400] Because, you know, you don't know
+- [30:36.660] because the leadership was killed,
+- [30:39.150] all gone, Khamenei all gone,
+- [30:42.450] as the expression goes, the past supreme leader.
+- [30:46.020] And then the new supreme leader was racked up --
+- [30:49.670] at a minimum, racked up pretty good,
+- [30:52.080] and everyone else was gone.
+- [30:54.440] And then many of the people in the third tier are gone,
+- [30:58.340] but we're dealing with a group of people
+- [30:59.840] that I think turn out and the present,
+- [31:03.520] the gift they made to us was very significant.
+- [31:05.950] And they said they were going to do it and it happened
+- [31:08.560] and they're the only ones that could have done it.
+- [31:10.250] Jennifer.
+- [31:11.460] The Press: Was it related to the Strait of Hormuz
+- [31:13.120] and the flow of --
+- [31:14.330] The President: Yeah, it was related to the flow
+- [31:16.120] and to the Strait, yeah, it was.
+- [31:17.470] The Press: Are you negotiating
+- [31:18.670] on who's going to control the Strait from now on?
+- [31:21.070] The President: No, we're going to --
+- [31:22.330] we'll have control of anything we want.
+- [31:25.280] Look, if we can end this without more lives being down,
+- [31:29.720] without knocking out $10 billion electric plants
+- [31:34.140] that are brand new and the apple of their eye,
+- [31:37.900] I'd like to be able to do that, you know?
+- [31:39.860] But they can't have certain things.
+- [31:43.390] I mean, you know the things,
+- [31:44.670] I don't have to go over the list,
+- [31:45.990] but again, it starts with no nuclear weapons.
+- [31:48.650] And they've agreed to that.
+- [31:50.030] There won't be any nuclear weapons.
+- [31:51.280] They're not going to have
+- [31:52.520] and they're not going to have enrichment, any of those things.
+- [31:55.730] But look, I hate to say
+- [31:58.360] that we're in a very good bargaining position, but --
+- [32:03.050] and I hate to say that they're defenseless
+- [32:04.720] because, you know, until that last missile is fired,
+- [32:08.610] they have little power.
+- [32:10.100] But we are in about the best bargaining position --
+- [32:14.060] we're way ahead of schedule and again,
+- [32:16.540] they have no Navy and they have no Air Force,
+- [32:18.450] and they have no missile protection.
+- [32:20.220] And most of their missiles are gone.
+- [32:22.760] Most of their launches we've killed.
+- [32:24.500] You know, we've killed about 82 percent of their launchers,
+- [32:27.710] so even if they had a missile, they can't launch it.
+- [32:31.850] We've been very effective.
+- [32:33.130] We have the greatest military in the world;
+- [32:34.810] nobody even comes close.
+- [32:36.450] We have the best military equipment in the world.
+- [32:38.170] Go ahead.
+- [32:39.370] The Press: On Saudi Arabia, there's been some reporting
+- [32:41.090] that you've been talking to the crown prince.
+- [32:43.360] Have you been focused on normalization
+- [32:45.910] between Saudi Arabia and Israel?
+- [32:48.470] The President: Well, no, we have a great relationship
+- [32:50.010] with Saudi Arabia.
+- [32:51.290] What do you hear with Saudi Arabia?
+- [32:53.120] The Press: Just hearing that you've been talking
+- [32:54.450] and that he has been encouraging you
+- [32:56.320] to do certain things related to Iran. Can you share?
+- [32:58.360] The President: Well, he's a warrior.
+- [32:59.570] He does, yeah, he's a warrior. He's fighting with us.
+- [33:01.770] By the way, Saudi Arabia's been excellent.
+- [33:04.280] And UAE, excellent.
+- [33:07.900] And I will tell you Qatar, incredible.
+- [33:11.450] Qatar took a hit pretty bad hit.
+- [33:14.030] Qatar is very close, you know, they're essentially --
+- [33:16.840] you can walk right over the border.
+- [33:19.220] Qatar took a hit, they've been great, they've been very strong.
+- [33:22.460] Kuwait, they had a little mishap,
+- [33:25.550] they shot down three planes with our missiles,
+- [33:28.640] they happened to be our planes. But the pilots made it.
+- [33:31.210] Can you imagine the pilots making it?
+- [33:32.900] The pilots saw what was coming,
+- [33:35.550] and they said, those are Patriots,
+- [33:37.300] we're not going to escape Patriots.
+- [33:38.590] And they got out of there pretty quick, Pete, right?
+- [33:40.790] Pretty amazing that they got out;
+- [33:43.500] the three pilots lived, they're fine,
+- [33:45.360] in fact they're flying today.
+- [33:46.560] The Press: Was it the Kuwaitis
+- [33:47.920] that actually fired the missiles?
+- [33:49.190] The President: Yeah, the Kuwaitis made a mistake,
+- [33:51.620] they fired, they thought they were firing at the enemy.
+- [33:55.840] It was, as the expression goes, friendly fire.
+- [33:58.940] But the pilots are great, they're flying today.
+- [34:02.530] Pretty amazing when you think of it.
+- [34:03.850] Yeah.
+- [34:05.110] The Press: President Trump, on a human level,
+- [34:07.750] how hopeful are you that this peace deal
+- [34:09.730] will work out like as a human?
+- [34:11.100] The President: On what?
+- [34:12.390] The Press: On a human level,
+- [34:13.610] not as the president of the United States,
+- [34:15.830] how hopeful are you that this peace deal
+- [34:17.390] will work out with Iran?
+- [34:19.430] The President: You're talking about to end it?
+- [34:22.070] Well, I think we're going to end it.
+- [34:23.730] I can't tell you for sure.
+- [34:27.790] You know, I don't like to say this, we've won this --
+- [34:30.450] this war has been won.
+- [34:32.530] The only one that likes to keep it going is the fake news.
+- [34:35.090] I mean, the New York Times -- you read the New York Times,
+- [34:37.100] it's like we're not winning a war where they have no Navy
+- [34:40.530] and they have no Air Force, and they have no nothing.
+- [34:43.270] And we literally have planes flying over Tehran
+- [34:47.280] and other parts of their country,
+- [34:49.980] they can't do a thing about it.
+- [34:51.770] For instance, if I want to take down that power plant,
+- [34:54.860] that very big, powerful power plant,
+- [34:56.690] they can't do a thing about it.
+- [34:59.130] It's like, take me, that's all they can do.
+- [35:02.820] And yet, if you read the New York Times
+- [35:04.590] or if you watch ABC fake news or NBC fake news,
+- [35:08.520] you'd say it's a close battle.
+- [35:11.160] It's not a close battle; they're totally defeated.
+- [35:13.550] You know, we killed their Navy
+- [35:14.940] in would you say three days, Pete?
+- [35:17.520] Gone. In fact, I was a little upset with Pete.
+- [35:19.950] I said, why didn't you save the ships?
+- [35:21.380] We could have used them, right?
+- [35:22.830] He said, it's more fun shooting them down.
+- [35:25.320] But the Navy was wiped out in a very rapid order.
+- [35:30.990] Pretty impressive for you guys, you champion wrestlers, right,
+- [35:34.300] when you hear this stuff.
+- [35:35.850] But if you read the news, you don't hear this.
+- [35:37.860] You read like, oh, they're doing wonderfully.
+- [35:40.690] They're doing terribly; they're wiped out.
+- [35:42.770] Militarily they are dead. Yeah.
+- [35:46.190] The Press: On Ukraine, is there a new sense of a timeline?
+- [35:48.520] Do you want to get something done before the midterms?
+- [35:50.700] The President: Well, I'd like to see President Putin
+- [35:54.310] and President Zelenskyy sit down and make a deal.
+- [35:56.550] I think they're getting close,
+- [35:57.900] but I've been saying that for a while.
+- [35:59.830] I've settled eight wars,
+- [36:01.140] all of them should have been more difficult than this one.
+- [36:03.650] This should have been the easiest one,
+- [36:05.800] but these are two people that truly hate each other.
+- [36:09.470] You'll find out that hatred is not good for making deals.
+- [36:13.230] These are people that -- they don't like each other very much.
+- [36:15.670] Yeah.
+- [36:16.910] The Press: I know you said there's a bunch of people
+- [36:18.360] from the administration who are negotiating with Iran.
+- [36:21.220] There's been reports that the vice president
+- [36:23.150] is leading those negotiations. Is that true?
+- [36:25.950] The President: Well, he's involved in them.
+- [36:27.450] JD is involved and Marco's involved
+- [36:31.700] and Jared Kushner is involved, very smart guy,
+- [36:34.990] and Steve Witkoff, smart guy, is involved.
+- [36:38.940] And I'm involved, I'm involved. Why?
+- [36:41.410] I'm going to be so big, oh, I don't want to talk about it.
+- [36:43.660] I'm the president of the United States, Tom,
+- [36:46.550] and I'm not going to talk about it.
+- [36:48.030] It's beneath me to talk about saving millions of lives
+- [36:52.470] because that's what you're talking about.
+- [36:54.050] You're talking about saving millions of lives.
+- [36:57.090] If Iran had a nuclear weapon, they would have used it.
+- [37:01.100] And if I didn't end the horrible Barack Hussein Obama Iran
+- [37:06.600] nuclear deal in my first administration,
+- [37:09.430] they would have had a nuclear weapon
+- [37:12.010] three or four years ago, they would have used it.
+- [37:14.460] I would have never gotten the chance, probably,
+- [37:16.210] to be president.
+- [37:17.430] Who knows if what --
+- [37:19.000] it would have been so devastating.
+- [37:21.030] And if we didn't send those beautiful B-2 bombers,
+- [37:24.300] they took them off my desk,
+- [37:26.170] they were right there, I don't know why.
+- [37:28.640] But if we didn't have those beautiful --
+- [37:30.500] the B-2 hit, which was so -- we obliterated despite CNN.
+- [37:35.790] CNN said, well, maybe the word obliteration, sir.
+- [37:39.200] No, no, we obliterated it,
+- [37:41.180] just obliterated their nuclear potential.
+- [37:44.510] You would have had them having --
+- [37:46.320] two weeks after that attack, had we not made the attack,
+- [37:49.750] they would have had a nuclear weapon,
+- [37:51.100] they would have absolutely used it,
+- [37:52.770] and they would have used it on the entire Middle East,
+- [37:54.750] including Israel.
+- [37:56.780] And you know why you see that?
+- [37:58.010] Because unexpectedly, when this war broke out,
+- [38:02.630] unexpectedly, they started sending missiles to UAE,
+- [38:06.710] Qatar, Saudi Arabia, Kuwait, Bahrain and elsewhere.
+- [38:13.150] And nobody thought they were going to --
+- [38:14.520] were you equally surprised by that, Pete.
+- [38:16.770] Secretary Hegseth: Way more than we thought, Mr. President.
+- [38:18.320] The President: Pete, do you want to give
+- [38:19.550] about a three-minute statement on how we're doing in this,
+- [38:25.530] as I call it, military operation?
+- [38:27.150] People don't like me using the word war, but -- so I won't.
+- [38:30.470] But the Democrats call it a war. How about a little statement?
+- [38:33.680] I think he's done a very good job.
+- [38:35.130] Do we agree he's done a good job, Markwayne?
+- [38:36.760] Markwayne Mullin: (Inaudible)
+- [38:37.990] The President: Can we take some of your time?
+- [38:39.570] Take some of Markwayne's time. Thanks.
+- [38:43.200] Secretary Hegseth: Well, thank you, Mr. President.
+- [38:44.860] You're spot-on. Never in history has a modern military --
+- [38:49.560] Iran had a modern military, a modern navy,
+- [38:52.250] a modern air force,
+- [38:53.450] modern air defenses, leadership, massive bunker.
+- [38:56.680] Never has a modern military been so rapidly
+- [38:59.430] and historically obliterated, defeated,
+- [39:02.570] from day one with overwhelming firepower.
+- [39:05.040] The air campaign that we've conducted
+- [39:06.810] that Israel has conducted alongside us
+- [39:08.760] was one for the history books, truly,
+- [39:10.470] and it's because we have a president of the United States
+- [39:12.500] that when he sends his war fighters out to fight,
+- [39:15.390] he unties their hands to actually go out
+- [39:17.980] and close with and destroy the enemy
+- [39:19.750] as viciously as possible from moment one.
+- [39:22.280] And that's why we see ourselves
+- [39:23.520] as part of this negotiation as well.
+- [39:26.210] We negotiate with bombs.
+- [39:28.560] You have a choice, as we loiter over the top of Tehran,
+- [39:31.490] as the president talked about, about your future.
+- [39:33.720] The president has made it clear
+- [39:35.460] that you will not have a nuclear weapon,
+- [39:37.090] the War Department agrees.
+- [39:38.310] Our job is to ensure that and so we're keeping our --
+- [39:40.880] our hand on that throttle as long as,
+- [39:43.540] as hard as is necessary to ensure the interest
+- [39:46.480] of the United States of America
+- [39:47.740] are achieved on that battlefield.
+- [39:49.130] This is not Iraq and Afghanistan.
+- [39:51.100] This is not a president who's interested in --
+- [39:53.210] in vague end states.
+- [39:54.470] He's been very clear with us
+- [39:55.710] about what we need to accomplish,
+- [39:57.310] creating the conditions for them
+- [39:58.730] never to have a nuclear capability.
+- [40:00.400] And that's exactly what we're doing in historic fashion.
+- [40:02.050] Thank you, Mr. President. The President: Thank you, Pete.
+- [40:03.260] Secretary Hegseth: I appreciate it.
+- [40:04.530] The President: Thank you. Great job.
+- [40:05.750] You know, the only two people that were quite disappointed --
+- [40:08.810] I don't want to say this, but I have to.
+- [40:11.710] I said, Pete and General Razin Caine,
+- [40:14.270] I think this thing's going to be settled very soon.
+- [40:18.060] They go, oh, that's too bad, right?
+- [40:22.410] Pete didn't want it to be settled.
+- [40:26.610] It's -- these guys are doing a great job.
+- [40:28.620] That's a good attitude though, Tom, right?
+- [40:31.100] They were not interested in settlement;
+- [40:32.730] they were interested in just winning this thing.
+- [40:34.190] Yeah, please.
+- [40:35.400] The Press: Mr. President, can you --
+- [40:36.630] just taking things locally, hopefully --
+- [40:38.580] not doing the international affairs for a second.
+- [40:40.440] Do you support the construction of the Second Avenue
+- [40:42.900] subway in New York City? And will your administration --
+- [40:44.830] The President: Wow. That's really a far out
+- [40:46.180] (Inaudible)
+- [40:47.380] The Press: I'm with (Inaudible) News New York.
+- [40:48.590] The President: You know, the Second Avenue subway
+- [40:50.120] has been under construction for --
+- [40:52.900] you're a young guy, as -- longer than you are old, OK?
+- [40:57.630] Huh? That's been under construction.
+- [41:00.210] I haven't heard about the Second Avenue subway in 20 years.
+- [41:03.900] What the hell kind of a question is that?
+- [41:07.360] I guess they got to get it finished.
+- [41:09.160] They spent trillions of dollars, practically.
+- [41:11.690] No, they spent more money on that than on anything,
+- [41:15.090] I think, in the history of our city, in New York City.
+- [41:18.430] And it's been under construction for a long time.
+- [41:21.520] It's very sad, actually.
+- [41:22.960] The only thing maybe worse was Gavin Newscum,
+- [41:26.070] the governor of California, his train --
+- [41:28.350] I call it his train wreck because it's a wreck.
+- [41:31.190] That's been years.
+- [41:32.480] It's -- it's literally 30 times over budget.
+- [41:36.930] Nobody's ever seen anything like it
+- [41:38.760] and it doesn't go to San Francisco and Los Angeles
+- [41:41.230] like it was supposed to. They decided to cut it way short
+- [41:44.960] because there was no way they could finish it.
+- [41:46.820] But it's one of the --
+- [41:48.050] I've never seen anything like it, other than --
+- [41:50.570] the worst, the Federal Reserve Building
+- [41:52.520] for almost $4 billion,
+- [41:55.540] little building that's going to cost --
+- [41:57.380] a renovation for $4 billion,
+- [41:59.830] headed by our highly incompetent head of the Federal Reserve.
+- [42:04.510] Yeah, please.
+- [42:05.810] The Press: Mr. President, would you be open with --
+- [42:07.540] are you hoping to see the Senate pursue reconciliation
+- [42:10.500] 2.0 to fund ICE and pass the SAVE America Act?
+- [42:13.010] The President: Well, we'll see about reconciliation.
+- [42:14.570] We're certainly talking about reconciliation,
+- [42:16.040] I think, Markwayne, right?
+- [42:17.320] Markwayne Mullin: Yes, sir.
+- [42:18.560] The President: Do you want to talk about that for a second?
+- [42:20.820] Now that he's working, we can get him to do this.
+- [42:24.290] Markwayne Mullin: Thank you.
+- [42:25.500] Lindsey Graham, the chairman where the --
+- [42:27.450] where the reconciliation will --
+- [42:29.050] will funnel through he is committed
+- [42:31.790] to making sure we get reconciliation through.
+- [42:34.870] If that is in some form, um, with funding
+- [42:38.280] ICE possibly backfilling from the One Big, Beautiful Bill,
+- [42:42.120] but also more importantly, the SAVE American Act.
+- [42:44.890] There's a framework that we can do
+- [42:46.830] through reconciliation paying for it,
+- [42:49.160] put some of the policies that cost money in,
+- [42:51.860] because there's nothing more important
+- [42:53.430] than SAVE American Act. I mean, that's what --
+- [42:55.190] that's what the American people want.
+- [42:56.480] There's -- 80 percent of the population say
+- [42:58.500] they want only Americans voting,
+- [43:01.970] citizens that are registered to vote,
+- [43:04.460] citizens that are -- have done it the right way.
+- [43:07.080] And -- and I believe
+- [43:08.360] that everybody wants election integrity,
+- [43:10.600] so fortunately, Lindsey Graham has said,
+- [43:13.200] through reconciliation,
+- [43:14.690] he's willing to put the framework out for that.
+- [43:18.880] The President: And I think that was said so beautifully,
+- [43:21.960] so concisely, so well, your father,
+- [43:25.450] that we should let him have the last word,
+- [43:27.930] and that was it. That was the last word.
+- [43:29.560] Did he do a good job?
+- [43:30.840] Are you impressed with your father?
+- [43:32.160] Unidentified: I've never been more impressed
+- [43:33.700] with anybody in my life.
+- [43:34.930] The President: How about me?
+- [43:37.130] Don't answer. Don't answer. Don't answer.
+- [43:42.280] No, you’re like your father better.
+- [43:43.710] OK. Come here, come here. Look at this guy. Come here.
+- [43:48.330] This guy, don't wrestle him.
+- [43:51.170] (Inaudible) steel over here.
+- [43:54.190] All right. I want to thank the family,
+- [43:56.590] because without the family, he's not here,
+- [43:59.250] you know, he's a different person.
+- [44:01.380] And that goes especially for mom,
+- [44:03.530] who looks like she's about 22 years old.
+- [44:05.430] I don't know. I see these kids, but she looks very young.
+- [44:08.910] But it's a great couple, congratulations to you both.
+- [44:11.130] Thank you.
+- [44:12.450] Thank you, Markwayne.
+- [44:13.680] Markwayne Mullin: Thank you, sir.
+- [44:17.740] The President: Thank you very much, everybody.
+- [44:19.080] Thank you.

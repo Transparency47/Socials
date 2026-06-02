@@ -1,0 +1,752 @@
+<!-- source: https://www.youtube.com/watch?v=LL0P8jb1RRM -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: LL0P8jb1RRM -->
+<!-- date_published: 2025-10-06T17:46:32+00:00 -->
+<!-- date_accessed: 2026-06-02T02:43:57.711210+00:00 -->
+
+# Transcript: Press Secretary Karoline Leavitt Briefs Members of the Media, Oct. 6, 2025
+
+- [00:04.000] Karoline Leavitt: Hi, Steve, how are you?
+- [00:05.972] Glad you're so excited to see me today.
+- [00:09.340] Alrighty.
+- [00:10.341] Good afternoon everybody, and happy Monday.
+- [00:13.845] Let's get to it, and we'll begin with a few
+- [00:15.849] scheduling announcements today.
+- [00:17.550] President Trump will be hosting the Canadian Prime
+- [00:19.986] Minister Mark Carney tomorrow for a working
+- [00:23.323] meeting here at the White House.
+- [00:25.358] On Thursday, the President will host his eighth
+- [00:27.927] cabinet meeting alongside his incredible team.
+- [00:31.364] Also, on Thursday afternoon, President Trump
+- [00:33.867] will host the President of Finland, Alexander Stubb
+- [00:37.303] for a working meeting here at the White House.
+- [00:40.006] The President also wanted me to relay his
+- [00:42.175] congratulations to Japan for electing their next
+- [00:45.145] prime minister, a highly respected person who also
+- [00:48.615] happens to be the first female to hold the
+- [00:50.750] position for our great ally.
+- [00:53.520] While President Trump continues to negotiate
+- [00:55.555] peace deals, meets with world leaders, and
+- [00:58.525] celebrates the 250th birthday of our United
+- [01:02.028] States Navy, as you saw he and the First Lady do just
+- [01:04.898] yesterday, Democrats unfortunately are
+- [01:07.767] continuing to play political games and we are
+- [01:10.537] now in day six of the Democrat federal
+- [01:13.440] government shutdown.
+- [01:14.874] Millions of American federal workers are under
+- [01:17.444] enormous financial stress as a result, wondering how
+- [01:20.747] they will pay their bills and take care of their
+- [01:23.082] families.
+- [01:24.150] If the Democrats do not vote to open the
+- [01:26.119] government tonight, federal workers will not
+- [01:28.788] receive their next full paycheck.
+- [01:31.224] Additionally, the special supplemental nutrition
+- [01:33.693] program for Women, infants, and children will
+- [01:36.429] run out of federal money very soon.
+- [01:39.065] This program provides vouchers to buy infant
+- [01:41.534] formula, fresh fruits and vegetables, and other
+- [01:44.537] healthy foods for low-income families.
+- [01:47.140] It can be easily fully funded if Democrats simply
+- [01:50.376] vote tonight to reopen the government.
+- [01:53.613] Also, our incredible military service members
+- [01:56.382] who risk their lives to preserve and defend our
+- [01:59.085] country are now working without pay and will miss
+- [02:02.655] their next paychecks if this Democrat shutdown
+- [02:05.091] does not end tonight.
+- [02:06.526] The Republican-backed clean and non-partisan
+- [02:09.696] funding bill fully funds this important food aid
+- [02:12.999] program, gets our troops paid, and reopens the
+- [02:16.336] government.
+- [02:17.237] So all of this begs the question, what is the
+- [02:19.806] Democrat ongoing shutdown truly about?
+- [02:22.876] The sad truth we believe is that the Democrats
+- [02:25.245] intentionally shut down the government and are
+- [02:27.714] inflicting this pain on American citizens to try
+- [02:30.350] and demand free healthcare for illegal aliens.
+- [02:33.653] Of course, this is an indefensible and truly
+- [02:35.989] radical policy to be in favor of, let alone to use
+- [02:39.259] as the primary reason to shut down the United
+- [02:42.195] States government.
+- [02:43.396] So the Democrats and their allies are desperately
+- [02:45.932] lying about their true motivations.
+- [02:48.601] We have to set the record straight with the facts so
+- [02:50.703] the American people understand what's really
+- [02:52.705] at play here.
+- [02:53.907] House Republicans passed a clean and non-partisan
+- [02:57.243] funding bill to keep the government open and ensure
+- [02:59.746] our troops and other hard-working Americans are
+- [03:02.282] paid.
+- [03:03.082] Every single house Democrat except one voted
+- [03:06.386] against this clean and nonpartisan funding bill.
+- [03:09.322] Senate Republicans have subsequently tried to pass
+- [03:12.125] this same clean funding bill four separate times
+- [03:14.661] and they will do so again tonight, to fully pass it
+- [03:17.597] to be sent to the President's desk for
+- [03:19.132] signature.
+- [03:19.999] And the President is ready to sign this bill to
+- [03:23.136] reopen the government as soon as it is sent to his
+- [03:25.471] desk.
+- [03:26.205] Yet every single Senate Democrat except three have
+- [03:29.542] voted against this clean and nonpartisan funding
+- [03:32.078] Bill.
+- [03:32.912] The Democrat's current position is that the only
+- [03:35.248] way the American government can reopen is
+- [03:37.917] if illegal aliens can get free healthcare.
+- [03:40.453] Don't take my word for it.
+- [03:41.688] Just look at what's inside of the Democrat's proposal
+- [03:44.457] to reopen the government.
+- [03:45.925] Their funding proposal would result in nearly
+- [03:48.294] $200 billion spent on healthcare for illegal
+- [03:51.598] aliens and other non-citizens over the next
+- [03:53.866] decade.
+- [03:54.534] To put this in perspective, $200 billion
+- [03:57.804] is enough money to fund the entire children's
+- [04:00.473] health insurance program, which provides health
+- [04:02.942] insurance to low-income children and women.
+- [04:05.812] Under the Democrat's proposal, the millions of
+- [04:08.114] illegal aliens who improperly were granted
+- [04:10.283] asylum and paroled under the Biden administration
+- [04:13.453] would once again be allowed to receive
+- [04:15.722] Medicaid benefits.
+- [04:17.390] It does not end there.
+- [04:18.658] The Democrat proposal would also require
+- [04:20.760] Medicaid to pay more for emergency care provided to
+- [04:24.097] illegal aliens than it does for American patients
+- [04:27.100] who are disabled, elderly, or children.
+- [04:29.969] When someone shows you who they are, believe them.
+- [04:32.639] The Democrat party has unfortunately closed our
+- [04:35.274] government, costing Americans their jobs,
+- [04:37.677] threatening our military readiness, harming our
+- [04:40.747] economy, and causing chaos, all to help the
+- [04:43.483] illegals who broke into our country.
+- [04:45.885] Instead of holding illegal aliens accountable and
+- [04:48.087] removing them from our country, which is what
+- [04:50.089] this administration is trying to do every day,
+- [04:52.659] the Democrats want to give them the free benefits
+- [04:55.028] paid for by the American taxpayer.
+- [04:57.797] Democrats in 2025 are for illegal aliens first and
+- [05:01.734] Americans last.
+- [05:03.202] This is the reality we are unfortunately facing right
+- [05:06.105] now in Washington DC.
+- [05:08.274] President Trump and Republicans will not give
+- [05:10.410] in to these radical demands.
+- [05:12.111] The President and Republicans have a sacred
+- [05:14.313] responsibility to serve and protect the interests
+- [05:17.417] of their constituents, the American people.
+- [05:21.020] That's why we are backing a clean and nonpartisan
+- [05:24.023] funding bill with no strings attached to reopen
+- [05:27.427] the government.
+- [05:28.461] Democrats should do what they did 13 separate times
+- [05:31.698] under Joe Biden and vote for this exact same type
+- [05:34.934] of funding bill.
+- [05:36.536] Now the Senate will vote tonight for the fifth time
+- [05:39.205] to reopen the government on the sixth day of this
+- [05:41.974] shutdown.
+- [05:42.809] All we need are an additional five Democrat
+- [05:45.178] senators to end this madness and vote for the
+- [05:47.847] clean funding bill to reopen the government.
+- [05:50.650] If you are an American watching at home right
+- [05:52.685] now, call your Democrat senators and tell them to
+- [05:55.555] do the right thing and end this shutdown.
+- [05:58.858] With that, I will take your questions.
+- [06:00.326] Here in our new media seat today we have Elizabeth
+- [06:02.628] Mitchell from the Daily Signal.
+- [06:04.430] Elizabeth, thanks for being here and please kick
+- [06:06.432] us off.
+- [06:07.100] The Press: Thank you for having me.
+- [06:08.434] I have two questions.
+- [06:09.102] First, President Trump told reporters yesterday
+- [06:11.137] that firings of federal employees are taking place
+- [06:13.806] right now.
+- [06:14.474] In which departments have people already been fired
+- [06:17.176] from their federal jobs due to the shutdown.
+- [06:19.879] Karoline Leavitt: The President was referring to
+- [06:21.914] the hundreds of thousands of federal workers who
+- [06:23.983] have been furloughed as a result of this federal
+- [06:26.552] government shutdown both here at the White House
+- [06:28.554] and across the entire federal government.
+- [06:30.757] At agencies across the board there are federal
+- [06:33.159] workers who are staying home.
+- [06:34.393] Many of them work in the White House.
+- [06:35.728] You know them.
+- [06:36.729] Some of them sit just behind me at those desks.
+- [06:38.898] They're not unable to show up to work right now
+- [06:41.000] because the Democrats chose to shut the
+- [06:43.035] government down.
+- [06:43.703] And so we're already unfortunately seeing the
+- [06:45.905] consequence of this.
+- [06:47.273] And then of course the Office of Management and
+- [06:49.509] Budget is continuing to work with agencies on who
+- [06:53.045] unfortunately is going to have to be laid off if
+- [06:55.214] this shutdown continues.
+- [06:56.215] The Press: And Secretary Robert F.
+- [06:58.017] Kennedy Jr. said the FDA was required by federal
+- [07:00.720] law to approve the new abortion pill last week.
+- [07:03.456] Is the administration considering steps to undo
+- [07:05.558] this in light of requests from Pro-Life Congress
+- [07:07.960] members and organizations?
+- [07:08.895] Karoline Leavitt: I think Secretary Kennedy and the
+- [07:11.130] Department of Health and Human Services, as I
+- [07:12.899] addressed in the briefing last week, were following
+- [07:15.201] the law and we will continue to do so.
+- [07:16.769] As I said last week as well, it's not an
+- [07:18.638] endorsement of this drug by any means.
+- [07:20.773] It's just a law that they were following.
+- [07:22.108] Jennifer.
+- [07:22.775] The Press: We heard you say that you want people
+- [07:25.578] to call their democratic senators.
+- [07:27.213] Is the President calling democratic senators
+- [07:29.148] himself?
+- [07:29.816] Can you say what he's doing today to resolve the
+- [07:32.685] shutdown?
+- [07:33.352] Karoline Leavitt: Yep.
+- [07:34.020] I was just in the Oval Office.
+- [07:35.221] He was on the phone with Speaker Johnson.
+- [07:36.789] He's also spoken with the Senate Majority leader who
+- [07:39.392] are in touch with of course moderate Democrats
+- [07:41.761] and Democrats across the board who we understand
+- [07:45.164] hopefully want to do the right thing by their
+- [07:46.866] constituents to reopen the government.
+- [07:48.534] So the President is being kept very well apprised of
+- [07:51.604] the ongoing shutdown on Capitol Hill.
+- [07:53.439] And of course his position is very clear.
+- [07:55.508] There's nothing to negotiate, just reopen the
+- [07:57.376] government and then we can talk about all the
+- [07:59.212] important issues facing our country.
+- [08:00.546] The Press: So he hasn't called specific members of
+- [08:02.782] Congress?
+- [08:03.449] Karoline Leavitt: Not to my knowledge, no.
+- [08:04.784] The Press: And then on the Affordable Care Act, is he
+- [08:06.919] willing to give more, to share more on what he'd
+- [08:12.024] like to negotiate on the Affordable Care Act later?
+- [08:14.694] Is he willing to say specifically what he would
+- [08:17.530] like and when?
+- [08:18.464] Karoline Leavitt: Look, the President is
+- [08:20.366] definitely committed to fixing and improving our
+- [08:22.568] healthcare system.
+- [08:23.703] You saw it again last week when he had one of the
+- [08:26.572] largest pharmaceutical companies in the world
+- [08:29.542] coming into the Oval Office and promising to
+- [08:31.711] lower drug prices by 200, 300, 100 percent in many
+- [08:36.849] cases for various types of drugs for American
+- [08:39.252] patients.
+- [08:40.019] That is a huge fix to a broken system that has
+- [08:42.889] been ripping off the American people for far
+- [08:45.057] too long.
+- [08:45.725] So the President's very committed to this, but
+- [08:47.460] right now we need to reopen the federal
+- [08:49.462] government, and the President is remaining
+- [08:51.764] very firm in that position.
+- [08:52.765] Catherine.
+- [08:53.432] The Press: If the vote fails in the Senate today
+- [08:56.469] to reopen the government, would that trigger
+- [08:58.804] layoffs?
+- [08:59.505] Karoline Leavitt: Look, again, we hope that the
+- [09:01.741] vote will not fail because this administration wants
+- [09:04.977] to reopen the government.
+- [09:05.978] We don't want to see people laid off.
+- [09:08.114] But unfortunately, if this shutdown continues,
+- [09:10.950] layoffs are going to be an unfortunate consequence of
+- [09:13.486] that.
+- [09:14.153] The Press: Is there a timing for when that would
+- [09:15.488] happen?
+- [09:16.155] Karoline Leavitt: Well look, we'll see how the
+- [09:17.490] vote goes tonight.
+- [09:18.157] The Press: And can you confirm, is the White
+- [09:19.492] House floating a proposal to cap Obamacare subsidies
+- [09:21.127] by denying them to new enrollees?
+- [09:23.162] Karoline Leavitt: I have not seen a proposal like
+- [09:26.232] that.
+- [09:26.899] Emily.
+- [09:27.566] The Press: Thanks, Karoline.
+- [09:28.267] The President said yesterday he was
+- [09:30.336] considering a phase two approach to Venezuela.
+- [09:32.705] Is the President considering US boots on
+- [09:35.107] the ground or any kind of support of overthrowing
+- [09:38.177] Maduro?
+- [09:38.844] Karoline Leavitt: I won't get into any specific
+- [09:40.947] proposals that are being considered by the
+- [09:42.815] President and his national security team, but I think
+- [09:45.284] we've been pretty transparent and clear in
+- [09:47.520] the administration's view of the illegitimate Maduro
+- [09:50.256] regime and the President has taken very
+- [09:52.625] unprecedented, tough action to end the illegal
+- [09:56.362] trafficking of illicit drugs into our country
+- [09:59.298] from Maduro's illegitimate regime.
+- [10:03.069] Danny, go ahead.
+- [10:03.736] The Press: Thanks, Karoline.
+- [10:04.403] The French government has collapsed again for the
+- [10:05.738] fourth time of the year, and I was just wondering
+- [10:07.106] if there's any concern in the White House about the
+- [10:13.012] ongoing political crisis there?
+- [10:14.814] Any thought about whether the President Trump's good
+- [10:17.416] friend, President Macron should either call
+- [10:19.385] elections or even resign over that?
+- [10:21.320] Karoline Leavitt: Well, I can tell you the White
+- [10:23.255] House and the National Security Council are very
+- [10:24.957] much aware of this situation, but I think it
+- [10:28.327] would be imprudent of me to weigh in on French
+- [10:30.963] internal politics from the podium.
+- [10:32.665] So I will reserve comment on that.
+- [10:34.400] Behind you.
+- [10:35.067] Yes.
+- [10:35.735] The Press: What is President Trump's
+- [10:37.236] expectations for talks today and I guess this
+- [10:39.405] week in Egypt?
+- [10:40.639] And is there a new timeline that the
+- [10:43.109] President is giving all sides to reach an
+- [10:45.244] agreement?
+- [10:45.911] Karoline Leavitt: Yes, there are technical talks
+- [10:47.613] happening right now in Egypt amongst special
+- [10:50.116] Envoy Witkoff and Mr. Kushner, as well as
+- [10:54.053] their respective parties from all sides.
+- [10:56.956] What we saw take place on Friday, and I have not
+- [10:59.025] commented on that from the podium yet, is truly
+- [11:01.427] remarkable.
+- [11:02.395] You've seen all sides of this conflict agree that
+- [11:05.731] this war needs to end and agree to the 20-point
+- [11:08.834] framework that President Trump proposed.
+- [11:11.070] It's an incredible achievement and the
+- [11:13.572] administration is working very hard to move the ball
+- [11:16.475] forward as quickly as we can.
+- [11:18.077] The President wants to see a ceasefire, he wants to
+- [11:21.147] see the hostages released.
+- [11:22.448] And the technical teams are discussing that as we
+- [11:24.984] speak, to ensure that the environment is perfect to
+- [11:27.920] release those hostages.
+- [11:28.988] They're going over the lists of both the Israeli
+- [11:31.957] hostages and also the political prisoners who
+- [11:34.460] will be released.
+- [11:35.561] And those talks are underway and the President
+- [11:37.596] is very much on the ball and is being apprised of
+- [11:40.199] this situation.
+- [11:40.900] The Press: The President had given a Sunday evening
+- [11:43.269] deadline.
+- [11:43.936] Obviously the negotiations have extended that I
+- [11:46.038] imagine.
+- [11:46.705] What is that new deadline?
+- [11:48.074] Does the President have a timeframe in mind to see
+- [11:51.444] this phase implemented?
+- [11:52.445] Karoline Leavitt: Well, the Sunday evening
+- [11:54.447] deadline was to hear back from Hamas on the proposal
+- [11:57.383] one way or another.
+- [11:58.084] And of course on Friday, Hamas put out a very clear
+- [12:01.187] statement in the President's view that they
+- [12:03.189] accept the President's framework and that's why
+- [12:05.091] those technical talks are now underway.
+- [12:06.725] But again, we want to move very quickly on this and
+- [12:08.961] the President wants to see the hostages released as
+- [12:10.963] soon as possible.
+- [12:11.697] Steve.
+- [12:12.364] The Press: How long do you expect those technical
+- [12:14.467] talks to these last, Karoline?
+- [12:15.868] Karoline Leavitt: I don't want to draw a red line up
+- [12:17.837] here, Steve.
+- [12:18.504] Of course it's very important, as I just
+- [12:20.973] mentioned, that we get this done quickly.
+- [12:22.875] That's how the President's team feels so we can get
+- [12:25.077] some momentum, get the hostages out, and then
+- [12:27.313] move to the next part of this, which is really
+- [12:29.115] ensuring that we can create a lasting and
+- [12:31.584] durable piece in Gaza and ensure that Gaza is a
+- [12:34.186] place that no longer threatens the security of
+- [12:36.255] Israel or the United States.
+- [12:37.556] The Press: What do you expect to be on the agenda
+- [12:40.392] for the President's meeting with the Prime
+- [12:42.194] Minister of Canada tomorrow?
+- [12:43.229] Karoline Leavitt: I'm sure trade will be a topic of
+- [12:45.631] discussion tomorrow and all of the other issues
+- [12:48.267] that are facing both Canada and the United
+- [12:50.236] States.
+- [12:50.903] I know the President looks forward to having that
+- [12:52.338] discussion with Carney in the Oval Office.
+- [12:53.939] Kaitlan.
+- [12:54.607] Kaitlan: Thanks, Karoline, I have two questions.
+- [12:56.242] On the layoff of federal workers potentially.
+- [12:58.577] The President said yesterday that Democrats
+- [13:00.446] will be to blame if federal workers lose their
+- [13:02.882] jobs.
+- [13:03.549] Historically though, in past shutdowns workers
+- [13:05.151] have been furloughed, they have not been laid off in
+- [13:07.853] mass.
+- [13:08.521] So wouldn't that be the President's call to lay
+- [13:10.523] people off?
+- [13:11.190] Karoline Leavitt: As I've said repeatedly Kaitlan,
+- [13:12.925] this conversation about layoffs would not be
+- [13:14.894] happening right now if the Democrats did not vote to
+- [13:17.263] shut the government down.
+- [13:18.597] And as I also said last briefing as well, we are
+- [13:21.400] $37 trillion in debt and the government is not
+- [13:24.803] receiving any cash.
+- [13:25.905] So someone has to look at the balance sheet and be
+- [13:28.641] good stewards of the American taxpayer dollar,
+- [13:31.243] and layoffs are an unfortunate consequence of
+- [13:33.479] that.
+- [13:34.146] The Press: (inaudible) his first term, for example.
+- [13:35.481] Karoline Leavitt: Well, as I'm telling you now, this
+- [13:37.116] administration is focusing on checking the balance
+- [13:40.019] sheet and ensuring we're doing the right thing by
+- [13:42.121] the American taxpayer.
+- [13:43.589] And again, these conversations about
+- [13:45.424] layoffs would not be happening in the White
+- [13:46.992] House today if not for the Democrat shutdown, and
+- [13:49.461] they have a choice to change that.
+- [13:50.796] They have another opportunity tonight to do
+- [13:53.098] the right thing to reopen the government.
+- [13:54.867] Joey.
+- [13:55.534] The Press: Sorry, my second question.
+- [13:57.603] A federal judge over the weekend that the President
+- [13:59.672] had appointed to the bench in his first term in
+- [14:02.708] office basically argued that he could not deploy
+- [14:05.144] other states national Guards to Portland,
+- [14:06.979] basically said that it was untethered, his argument,
+- [14:09.415] to what was actually happening on the ground.
+- [14:11.850] Which local officials in Portland have said that
+- [14:14.253] the National Guard is needed there, if any?
+- [14:16.689] Karoline Leavitt: With all due respect to that judge,
+- [14:19.024] I think her opinion is untethered in reality and
+- [14:21.961] in the law.
+- [14:22.628] The President is using his authority as Commander and
+- [14:24.964] Chief, US 12-406, which clearly states that the
+- [14:29.134] President has the right to call up the National Guard
+- [14:32.504] in cases where he deems it's appropriate.
+- [14:34.873] And if you look at what has happened in Portland,
+- [14:36.842] Oregon for more than 100 nights, I was talking to
+- [14:39.945] our law enforcement team about it this morning, for
+- [14:41.947] more than 100 days, night after night after night,
+- [14:45.184] the ICE facility has been really under siege by
+- [14:49.255] these anarchists outside.
+- [14:49.922] They have been disrespecting law
+- [14:54.026] enforcement, they've been inciting violence.
+- [14:55.961] We saw, again, a guillotine rolled out in
+- [14:58.364] front of this federal building.
+- [14:59.565] And so the President wants to ensure that our federal
+- [15:01.800] buildings and our assets are protected, and that's
+- [15:04.536] exactly what he's trying to do.
+- [15:06.805] And ultimately in the case, in Los Angeles, that
+- [15:09.475] judge ruled in the ninth circuit, that panel of
+- [15:12.778] judges ruled that those troops could remain and
+- [15:14.980] that the President was well within his authority
+- [15:16.649] to do so.
+- [15:17.316] So we are appealing that decision, as you know.
+- [15:19.385] We expect a hearing on it pretty quickly.
+- [15:21.220] And we're very confident in the President's legal
+- [15:23.055] authority to do this and we're very confident we
+- [15:24.823] will win on the merits of the law.
+- [15:26.191] The Press: But no local officials that you can
+- [15:27.526] point to that have said we need the National Guard?
+- [15:29.828] Because I spoke to the police chief of Portland
+- [15:31.630] last week.
+- [15:32.298] He said that the President's claims just
+- [15:33.632] don't match up with what's happening on the ground.
+- [15:35.234] Karoline Leavitt: I would encourage you as a
+- [15:36.735] reporter to go on the ground and to take a look
+- [15:38.671] at it for yourself because there's been many members
+- [15:40.706] of the press, not press in this room, but independent
+- [15:43.809] journalists, some of whom we'll be inviting to the
+- [15:45.511] White House very soon to share their stories,
+- [15:47.613] because they have been in the middle of these riots
+- [15:49.615] and they have witnessed the anarchy that is taking
+- [15:52.184] place night after night.
+- [15:53.185] It's on video.
+- [15:54.253] You should play it on your show.
+- [15:55.587] You have a great opportunity in prime time
+- [15:57.489] on CNN to show your audience.
+- [15:59.658] The Press: (inaudible).
+- [16:00.326] Karoline Leavitt: Yeah, but you're probably
+- [16:01.694] talking to partisan Democrat officials who are
+- [16:03.896] opposed to everything this President does.
+- [16:06.298] You should also ask the people who live in
+- [16:08.133] Portland.
+- [16:08.801] We've actually heard from many members of the
+- [16:11.003] community who have said that this is complete
+- [16:14.006] civil disobedience.
+- [16:15.374] It's a mess.
+- [16:16.041] It's been loud, it's been troubling for neighbors in
+- [16:19.244] the community who are just trying to live peacefully.
+- [16:22.214] And these people are not there to peacefully
+- [16:25.351] protest.
+- [16:26.018] They are there to cause mayhem and havoc.
+- [16:28.454] Stephen.
+- [16:29.121] Go ahead.
+- [16:29.822] The Press: Thank you, Karoline.
+- [16:31.457] Two questions.
+- [16:32.191] First, do you have a reaction to reports that
+- [16:35.561] thousands of Cuban troops are deployed alongside
+- [16:38.197] Russia fighting and Ukraine?
+- [16:39.698] And on a very different matter, the President last
+- [16:42.434] week floated in an interview with our
+- [16:45.003] colleague Daniel from One America, a rebate for
+- [16:47.973] tariffs of up to $2,000 per person.
+- [16:50.642] Is that plan contingent on the Supreme Court's
+- [16:52.711] upcoming ruling on the legality of the tariffs?
+- [16:55.013] And is the White House preparing for legislation
+- [16:57.316] to make that happen?
+- [16:58.450] Karoline Leavitt: Sure.
+- [16:59.551] On the first point, I have not seen that report,
+- [17:01.754] Stephen, but I'll check in with our national security
+- [17:03.722] team after this and we'll get you an update.
+- [17:06.492] To your second point about the tariff rebates, I
+- [17:09.061] think it's an idea that the President has
+- [17:10.696] discussed and floated with his team of advisors, but
+- [17:13.432] no decision has been firmly made at this point
+- [17:15.401] in time.
+- [17:16.902] Why don't we go to the back, Owen?
+- [17:18.303] The Press: Good afternoon.
+- [17:19.671] Karoline Leavitt: Good afternoon.
+- [17:21.006] The Press: A few days ago, President Trump demanded
+- [17:24.443] Jay Jones in Virginia get out of the race for
+- [17:26.845] condoning political violence in a text message
+- [17:29.348] against a Republican politician a few years
+- [17:31.417] ago.
+- [17:32.084] He hasn't left the race, he hasn't dropped out.
+- [17:33.786] What's the President's reaction?
+- [17:35.220] Karoline Leavitt: Well, as you know, I'm not at
+- [17:37.723] liberty to discuss political races from the
+- [17:40.092] podium.
+- [17:40.759] I think the President himself made his position
+- [17:43.228] very clear.
+- [17:43.896] And I think anyone could agree, the messages that
+- [17:46.965] were sent by this Democrat nominee for Attorney
+- [17:49.301] General in Virginia are really shocking, alarming,
+- [17:52.704] and completely unacceptable.
+- [17:54.306] He was threatening to kill his opponent and his
+- [17:59.077] opponent's children, and that type of rhetoric has
+- [18:02.614] zero place in our country.
+- [18:04.683] And the President was absolutely right to
+- [18:06.018] condemn that.
+- [18:06.685] The Press: One more please.
+- [18:07.386] Karoline Leavitt: Sure, go ahead.
+- [18:08.720] The Press: Thank you.
+- [18:09.388] The Democrats have questioned and scrutinized
+- [18:10.722] President's comments about using potentially the
+- [18:12.057] military, American cities as its training grounds
+- [18:17.129] for the military.
+- [18:19.965] And when you look at Portland, Chicago, local
+- [18:22.634] and state officials say that their local law
+- [18:25.037] enforcement is able to handle the situations,
+- [18:27.105] these protests on the ground.
+- [18:28.607] The President says that Portland is burning, using
+- [18:30.976] that as justification for the National Guard in
+- [18:33.378] Portland.
+- [18:34.046] But when you look here in Washington, D.C., the
+- [18:36.615] President just last week said it is now a
+- [18:39.318] completely safe city and there are still National
+- [18:41.320] Guard members on the streets that are not
+- [18:43.288] involved in ICE activities.
+- [18:44.556] Can you provide the justification for the
+- [18:46.792] White House here in Washington DC why the
+- [18:49.328] National Guard members continue to be out on the
+- [18:52.164] streets?
+- [18:52.831] Karoline Leavitt: Because Washington, D.C. has
+- [18:54.399] invited the National Guard here.
+- [18:55.968] Why?
+- [18:56.635] Because the mayor is doing the right thing, unlike
+- [18:58.770] mayors in other cities like Portland, as Kaitlan
+- [19:01.740] and others have pointed out, who refuse to see
+- [19:04.843] that there are positive results from when local
+- [19:07.646] law enforcement works with federal law enforcement to
+- [19:10.148] do the right thing on behalf of their citizens.
+- [19:13.252] And Washington DC is no doubt a safer city right
+- [19:17.489] now today than it was a few months ago when
+- [19:20.392] President Trump started this initiative to make DC
+- [19:22.494] safe again.
+- [19:23.262] And the National Guard is still here because the
+- [19:25.764] President and the mayor agree that it's a good
+- [19:27.799] thing for the city, just like you're seeing in
+- [19:29.668] Memphis, for instance, we'll have National Guard
+- [19:32.271] deployed to Memphis.
+- [19:33.438] We have federal agents who are on the ground working
+- [19:35.507] with state and local law enforcement.
+- [19:37.042] The state police in Tennessee are part of this
+- [19:39.177] effort.
+- [19:39.845] The local metropolitan police in Memphis are part
+- [19:42.281] of this effort.
+- [19:43.215] State and local law enforcement and federal
+- [19:45.284] law enforcement should be working together.
+- [19:47.319] And it's a shame that we see in some cities across
+- [19:49.955] the country that their mayors are just simply
+- [19:52.224] refusing to cooperate because they don't like
+- [19:55.360] Donald Trump.
+- [19:56.028] And that's what this boils down to.
+- [19:57.396] And I don't think any American would disagree
+- [19:59.932] that Chicago needs more law enforcement
+- [20:02.034] reinforcements, that they need more resources.
+- [20:04.369] Look at this headline from over the weekend.
+- [20:05.871] At least 30 people shot during the weekend in
+- [20:08.774] Democrat-run Chicago.
+- [20:10.709] Five of them were killed in one weekend.
+- [20:13.211] This is completely unacceptable and the
+- [20:14.947] President wants to make American cities safer and
+- [20:17.082] he is willing to work with anyone to do it.
+- [20:18.784] The
+- [20:19.451] The Press: If the courts allow you to ultimately
+- [20:21.553] send in the National Guard into Chicago and Portland,
+- [20:24.122] do Democrats not have reason to be concerned
+- [20:27.526] that there are long-term plans by this
+- [20:30.629] administration to keep US military or the National
+- [20:33.932] Guard in American cities like what we are seeing
+- [20:36.435] here in Washington?
+- [20:37.836] Karoline Leavitt: Why should they be concerned
+- [20:39.838] about the federal government offering help
+- [20:41.840] to make their cities a safer place?
+- [20:43.175] They should be concerned about this.
+- [20:44.509] They should be concerned about the fact that people
+- [20:45.911] in their cities right now are being gunned down
+- [20:49.147] every single night.
+- [20:50.315] And the President, all he's trying to do is fix
+- [20:52.918] it.
+- [20:53.585] And there has been a complete smear campaign by
+- [20:56.221] the Democrats and the media, quite frankly.
+- [20:58.857] I was reading Political Playbook this morning, one
+- [21:01.093] of the most inside the Beltway newsletters you
+- [21:03.462] can find, and you guys are framing this like the
+- [21:06.465] President wants to take over the American cities
+- [21:08.900] with the military.
+- [21:09.735] The President wants to help these local leaders
+- [21:13.705] who have been completely ineffective in securing
+- [21:16.308] their own cities.
+- [21:17.242] And we have already seen there's a positive formula
+- [21:20.045] for that.
+- [21:20.712] Look at Washington DC.
+- [21:22.381] The murder rate has declined significantly.
+- [21:24.916] Our streets are safer.
+- [21:26.618] People who live here feel safer.
+- [21:28.320] All of you in this room, I know you do, you just
+- [21:30.055] won't admit it.
+- [21:30.722] And it's a proven system that works and the
+- [21:32.958] President wants to make America's cities safe
+- [21:34.960] again.
+- [21:35.627] And I don't think there's anything wrong with that.
+- [21:37.295] Michael.
+- [21:37.963] The Press: Thank you, Karoline.
+- [21:39.164] I have two questions if I may.
+- [21:40.532] Karoline Leavitt: Because the mayor wants them.
+- [21:42.167] Michael.
+- [21:42.834] The Press: Peace talks in Egypt.
+- [21:45.103] If Hamas does agree to relinquish power and give
+- [21:48.407] it up seed power to this transitional technocratic
+- [21:51.309] government, if that does happen, would the Trump
+- [21:54.212] administration then recognize a Palestinian
+- [21:56.048] statehood?
+- [21:56.715] Karoline Leavitt: Look, I don't want to get ahead of
+- [21:58.450] the technical talks right now, Michael.
+- [21:59.885] They're extremely sensitive.
+- [22:01.119] They're taking place again as we speak.
+- [22:06.124] There's many things to discuss, of course.
+- [22:08.093] Hopefully, we expect and we hope going to be one of
+- [22:12.464] the greatest peace deals this world has ever seen.
+- [22:14.866] And the Trump administration is working
+- [22:16.334] diligently and working very hard to get there.
+- [22:19.037] And as I said Friday, all terms agreed.
+- [22:22.307] We have the Arab countries who are working with us.
+- [22:24.309] Of course, Israel has been incredible in cooperating
+- [22:26.712] with the President's plan and agreeing to it, and
+- [22:29.081] we're very hopeful and we expect that to continue.
+- [22:31.683] Sure.
+- [22:32.350] Go ahead.
+- [22:33.018] I was going to you in the blue shirt and tie.
+- [22:35.921] The Press: Thank you, Karoline.
+- [22:37.522] Karoline Leavitt: You're welcome.
+- [22:38.857] The Press: (inaudible) with the Daily Mail.
+- [22:41.126] Today the Supreme Court declined to hear Ghislaine
+- [22:43.829] Maxwell's appeal.
+- [22:44.730] Will Trump rule out granting her clemency?
+- [22:46.998] Is that something the White House is
+- [22:48.333] considering?
+- [22:49.034] Karoline Leavitt: It's not something I've heard
+- [22:50.368] discussed.
+- [22:51.436] And we don't comment on clemency requests that may
+- [22:54.840] or may not have been made, but I'm certainly not
+- [22:57.042] tracking that one at this point in time.
+- [22:58.376] Jordan, go ahead.
+- [23:00.645] The Press: Thank you, Karoline.
+- [23:01.747] So we're talking about these radical groups in
+- [23:04.583] Portland and Chicago.
+- [23:05.617] I know the President has spoken about potentially
+- [23:09.054] going after George Soros with RICO charges and for
+- [23:12.023] funding all of this violence.
+- [23:14.059] Has there been any update on that?
+- [23:15.660] And also is the administration looking
+- [23:17.629] into the other nonprofits, maybe taking away their
+- [23:21.099] 501(c)(3) status for funding this violence?
+- [23:23.735] And I have one more question.
+- [23:26.338] Karoline Leavitt: Sure.
+- [23:27.773] The financial backing of these groups, particularly
+- [23:31.476] Antifa, is certainly something the
+- [23:33.178] administration is looking into aggressively.
+- [23:35.814] And the federal government has never really been
+- [23:37.682] mobilized or tasked with doing that, so we're kind
+- [23:40.519] of kick-starting that into gear.
+- [23:42.154] The FBI is working on it alongside the White
+- [23:44.256] House's Homeland Security task force.
+- [23:46.124] We have our intelligence community looking into
+- [23:48.326] this as well.
+- [23:48.994] And even the Secretary of Treasury is involved with
+- [23:51.429] these matters since they are financial in nature.
+- [23:53.965] And we will continue to get to the bottom of who
+- [23:56.701] is funding these organizations and this
+- [23:59.471] organized anarchy against our country and our
+- [24:02.207] government.
+- [24:02.874] It's a question the American people have been
+- [24:05.210] begging the answer for for many years and we're
+- [24:08.113] committed to uncovering it.
+- [24:09.347] And when we do, I'm sure you'll be one of the first
+- [24:11.316] people to know.
+- [24:12.517] Jonathon.
+- [24:13.185] The Press: Thank you.
+- [24:13.885] Thank you.
+- [24:14.553] So Gaza under the President's plan is going
+- [24:16.788] to be governed by a transitional governance of
+- [24:19.724] a technocratic apolitical Palestinian committee, a
+- [24:22.494] committee made up of qualified Palestinians and
+- [24:24.963] international experts.
+- [24:25.730] Now, given how radicalized the Palestinian population
+- [24:28.400] is in Gaza and in the West Bank, can you offer some
+- [24:32.304] insider guidance into who are some of these
+- [24:34.306] Palestinians that are going to be considered for
+- [24:36.274] leadership roles in Gaza and where you're going to
+- [24:38.210] be finding them?
+- [24:38.877] And do you have any names?
+- [24:40.111] Karoline Leavitt: We're not quite there yet,
+- [24:41.813] Jonathan.
+- [24:42.714] The President believes peace is possible in Gaza,
+- [24:45.784] and that's why he presented this detailed
+- [24:48.086] and comprehensive plan.
+- [24:49.487] The first step of that is securing a ceasefire and
+- [24:52.624] releasing the hostages.
+- [24:53.758] And then those conversations about
+- [24:55.293] ensuring a durable and lasting peace can
+- [24:57.696] continue.
+- [24:58.363] But what do you need to have peace in a region
+- [25:00.532] like Gaza that's been war torn for far too long?
+- [25:03.935] You need security guarantees and you need
+- [25:06.638] good governance.
+- [25:07.973] And so those will be two of the priorities that
+- [25:09.808] this administration is focused on.
+- [25:11.243] The Press: If I may, the President has said he
+- [25:13.078] wants the government to reopen this week in a
+- [25:14.512] deal.
+- [25:16.848] What's going to happen by the end of the week if
+- [25:18.216] there's no deal?
+- [25:18.884] What's the White House prepared to do?
+- [25:20.218] Karoline Leavitt: No deal with what?
+- [25:21.553] The Press: To reopen the government?
+- [25:22.921] Karoline Leavitt: Look, as I said, unfortunately
+- [25:24.656] there's going to be a lot of pain inflicted.
+- [25:26.057] There already is on the American public, on our
+- [25:28.360] troops who are not being paid, again on women and
+- [25:30.795] young children who depend on critical food
+- [25:33.131] assistance.
+- [25:34.065] We hate to see this.
+- [25:35.200] And in fact, the Office of Management and Budget is
+- [25:37.602] trying to do everything they can to find funds to
+- [25:39.871] get out the door for these vulnerable populations in
+- [25:42.073] our country.
+- [25:42.874] Again, we shouldn't be having to do that.
+- [25:44.743] The Democrats have a chance to change course tonight.
+- [25:47.178] I believe the vote's taking place at 6:30, and
+- [25:49.214] we urge Democrat senators to vote to reopen the
+- [25:52.584] government and to do the right thing.
+- [25:53.919] Thanks guys.

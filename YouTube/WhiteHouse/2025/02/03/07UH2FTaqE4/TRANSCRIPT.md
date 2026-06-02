@@ -1,0 +1,855 @@
+<!-- source: https://www.youtube.com/watch?v=07UH2FTaqE4 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 07UH2FTaqE4 -->
+<!-- date_published: 2025-02-03T22:01:20+00:00 -->
+<!-- date_accessed: 2026-06-02T01:30:43.649879+00:00 -->
+
+# Transcript: President Trump Signs Executive Orders in the Oval Office, Feb. 3, 2025
+
+- [00:00.359] thank you very much we have some very
+- [00:02.399] exciting news today we have uh numerous
+- [00:05.680] fronts are being covered before we do
+- [00:07.480] that will will give me certain
+- [00:09.360] proclamations we'll sign them and you'll
+- [00:12.280] hear a little bit about them will please
+- [00:14.320] sir uh first we have for your signature
+- [00:17.039] uh five official designations of special
+- [00:19.119] envoys the first is uh Mr Steve witkoff
+- [00:22.080] who's actually in the room to be your U
+- [00:24.519] Middle East Envoy
+- [00:37.480] where is
+- [00:39.280] Steve Steve wov everybody done a great
+- [00:42.719] job in the Middle East really
+- [00:46.199] great but we'll see how it all turns out
+- [00:48.760] it's complex but I think he's going to
+- [00:50.760] do very
+- [00:51.960] well next we have H morrio Claver coron
+- [00:55.239] to be your special Envoy to Latin
+- [00:56.840] America sir okay good man
+- [01:07.799] okay thank you sir uh next we have
+- [01:09.759] retired General Keith Kellogg to be your
+- [01:11.920] special Envoy on Russian Ukraine
+- [01:16.280] issues we've made a lot of progress on
+- [01:18.960] Russia Ukraine we'll see what happens
+- [01:22.360] but a lot of progress has been made
+- [01:24.720] we're going to stop that ridiculous War
+- [01:36.240] okay thank you sir uh next we have uh
+- [01:39.119] designation of Richard grenell Rick
+- [01:41.040] grenell uh to be your Envoy for special
+- [01:44.200] missions I sent him to California to
+- [01:47.320] turn on the water we turned it on it was
+- [01:49.119] not easy because we had to go through a
+- [01:51.119] lot of environmentalists that are
+- [01:52.439] causing a lot of problems and we have
+- [01:54.880] billions of gallons of water uh it was
+- [01:57.960] on 3 days ago you probably saw should
+- [02:00.200] have gotten a lot of press but it didn't
+- [02:01.640] get much all we're doing is giving Los
+- [02:04.320] Angeles and the entire State of
+- [02:06.640] California virtually unlimited water
+- [02:08.959] which they could have done five years
+- [02:10.280] ago which I told them they should do but
+- [02:13.280] the environmentalist stopped them and we
+- [02:15.920] opened it and we did it uh regardless of
+- [02:19.000] uh the state and now the state seems to
+- [02:22.040] be very happy I spoke with Gavin new
+- [02:24.480] Nome and he uh he's uh very happy I
+- [02:28.400] almost called him by the other name
+- [02:31.280] my little nickname for him but uh I
+- [02:34.040] think they're all happy they have a lot
+- [02:35.360] of water in California too bad we didn't
+- [02:37.120] have it about two months ago
+- [02:40.239] right that was by the way that was a big
+- [02:43.360] that was a big move we have I I don't
+- [02:45.560] know if you saw the pictures that were
+- [02:47.000] released of the water pouring down from
+- [02:50.120] the Pacific Northwest and Canada and
+- [02:52.239] lots of other places and it's a pretty
+- [02:55.200] amazing
+- [02:57.480] site Mr President Rell big Friday trip
+- [03:01.519] as well he had a very big Friday trip
+- [03:04.560] you're right we'll talk about that he
+- [03:06.640] he's doing he's a good man Rick lastly
+- [03:08.959] sir we have a designation of Mark
+- [03:10.480] Bernett as your special Envoy to the
+- [03:12.280] United Kingdom you know who Mark Bernett
+- [03:14.799] is I figure he should be good he's
+- [03:18.480] certainly done a great job friend of
+- [03:20.799] mine and very talented guy we have very
+- [03:23.519] talented people working for
+- [03:27.560] us I'll hold that one up because get so
+- [03:30.280] much television will hold it up right
+- [03:32.760] he'll be thrilled to see it he's going
+- [03:34.959] to do a good job thank you sir uh next
+- [03:38.439] your Administration has smashed records
+- [03:41.000] uh for appointing large numbers of
+- [03:43.280] Highly qualified capable people at all
+- [03:45.760] levels the federal government uh these
+- [03:47.959] are 28 sub cabinet level officials being
+- [03:51.000] appointed to a number of different
+- [03:52.319] departments and agencies some of them
+- [03:54.239] are quite important positions like
+- [03:55.799] departmental departmental General
+- [03:57.879] counsels uh but these are people have
+- [03:59.959] been prev vetted and have received your
+- [04:01.560] approval previously very
+- [04:10.159] good okay thank you sir uh next this is
+- [04:14.000] an executive order this charges your
+- [04:16.519] Secretary of the Treasury uh Scott
+- [04:18.759] bessent and your secretary of Commerce
+- [04:20.280] Howard lutnick uh to begin a process
+- [04:22.639] that will hopefully result in the
+- [04:24.120] creation of an American Sovereign wealth
+- [04:26.759] fund it's a very exciting
+- [04:30.360] event we're going to have a sovereign
+- [04:32.479] wealth fund which we've never had we
+- [04:34.919] have a lot of things that create wealth
+- [04:36.840] and you've seen that over the last two
+- [04:39.320] weeks I think we've created more wealth
+- [04:42.000] other people have created de wealth the
+- [04:44.320] people my predecessors we're creating a
+- [04:46.400] lot of wealth uh Scott maybe you'd like
+- [04:48.840] to say something about it and I'd ask
+- [04:50.840] also Howard to say something about
+- [04:54.280] it yes sir this is very exciting we're
+- [04:58.320] going to stand this up within the next
+- [05:01.120] 12 months we are going to uh monetize
+- [05:05.759] the asset side of the US balance sheet
+- [05:08.160] for the American people we are going to
+- [05:11.560] uh put the assets to work and I think uh
+- [05:15.840] it's going to be very exciting we're
+- [05:17.039] going to study best practices that's
+- [05:18.680] done around the world it'll be a
+- [05:20.360] combination of liquid assets assets that
+- [05:24.080] we have in this country as we work work
+- [05:27.440] to bring them uh out for the American
+- [05:30.960] people the extraordinary size and scale
+- [05:34.720] of the US government and the business it
+- [05:37.080] does with companies uh should create
+- [05:41.000] value for American citizens if we are
+- [05:44.120] going to buy two billion covid vaccines
+- [05:47.080] maybe we should have some warrants and
+- [05:49.240] some equity in these companies and have
+- [05:51.800] that grow for the help of the American
+- [05:54.639] people so I bringing all these things
+- [05:56.600] together I think we'll create Scott and
+- [05:58.600] I will create an amazing amazing
+- [06:00.199] Sovereign wealth fund for you
+- [06:01.880] sir so other countries have Sovereign
+- [06:05.319] wealth funds and they're much smaller
+- [06:06.919] countries and they're not the United
+- [06:08.880] States we have tremendous potential in
+- [06:10.720] this country tremendous you're seeing
+- [06:12.639] that what's happened just in a short
+- [06:14.319] period of time and as an example Tik
+- [06:17.440] Tock we're going to be doing something
+- [06:19.319] perhaps with Tik Tock and perhaps not if
+- [06:21.639] we make the right deal we'll do it
+- [06:23.160] otherwise we won't but I have the right
+- [06:25.400] to do that and we might put that in the
+- [06:27.680] Sovereign wealth fund whatever we make
+- [06:29.599] or if we do a partnership with uh very
+- [06:32.039] wealthy people a lot of options but we
+- [06:35.080] could put that as an example in the fund
+- [06:37.639] and we have a lot of other things that
+- [06:39.000] we could put in the fund and I think in
+- [06:41.160] a short period of time we'd have one of
+- [06:42.599] the biggest funds and you know some of
+- [06:45.000] some of them are pretty large I must
+- [06:46.680] tell you some of the like the Saudi
+- [06:49.120] Arabia fund is is on the large side but
+- [06:52.880] eventually we'll catch it but we're
+- [06:54.960] going to uh create a lot of wealth for
+- [06:56.680] the fund and I think it's about time
+- [06:58.879] that this country had a sovereign wealth
+- [07:00.599] fund and these two gentlemen and some
+- [07:03.039] others are going to work with them very
+- [07:04.440] closely and they'll be heading it up and
+- [07:06.240] they're going to do great job two highly
+- [07:08.639] respected people that have done
+- [07:10.199] unbelievably well in the world in the
+- [07:12.800] real world so that's a big deal huh yes
+- [07:16.160] sir I think I think it's going to create
+- [07:17.840] value and be of great strategic
+- [07:22.919] importance Mr President why is it
+- [07:25.000] important for Elon to have access to the
+- [07:27.759] payment systems at treasury well he's
+- [07:29.840] got access only to letting people go
+- [07:32.840] that he thinks are no good if we agree
+- [07:34.720] with him and it's only if we agree with
+- [07:36.840] him he's a very talented guy from the
+- [07:39.240] standpoint of management and costs and
+- [07:42.160] we put him in charge of seeing what he
+- [07:44.720] can do with certain uh groups and
+- [07:47.800] certain numbers the numbers some of the
+- [07:49.960] numbers are horrible what he's found uh
+- [07:53.479] 100 think of it a hundred million dollar
+- [07:57.319] on
+- [07:58.440] condoms to Hamas condoms to Hamas and
+- [08:03.240] many other things that are frankly even
+- [08:05.039] more ridiculous and they're finding
+- [08:07.400] tremendous uh
+- [08:09.400] waste uh really waste more than anything
+- [08:12.800] else I think you could say probably
+- [08:14.680] Fraud and Abuse can be added to it the
+- [08:17.240] more standard waste Fraud and Abuse but
+- [08:20.400] they're finding tremendous amounts of uh
+- [08:23.080] really bad things bad
+- [08:25.720] spending uh you've been reading about
+- [08:28.639] you've been writing about some of it
+- [08:30.039] frankly and some of the things that
+- [08:31.440] they've been doing is is just terrible
+- [08:33.800] Leon Elon can't do and won't do anything
+- [08:37.240] without our approval and we'll give him
+- [08:41.080] the approval we're appropriate we're not
+- [08:43.000] appropriate we won't but uh he reports
+- [08:46.320] in and he uh it's it's something that he
+- [08:49.839] feels very strongly about and I'm
+- [08:51.600] impressed because he's running obviously
+- [08:53.240] a big company has nothing to do if
+- [08:54.959] there's a conflict that we won't let him
+- [08:57.040] get near it but he does have a good
+- [08:58.959] natural Instinct he's got a team of very
+- [09:01.000] talented people we're trying to shrink
+- [09:02.839] government and he can probably shrink it
+- [09:05.160] as well as anybody el else if not better
+- [09:08.120] where we think there's a conflict or
+- [09:10.079] there's a problem we won't let him go
+- [09:12.760] near it but he has some very good ideas
+- [09:15.640] and we have a lot of very other talented
+- [09:17.560] people also we're bringing in the most
+- [09:19.040] talented people in the world by the way
+- [09:21.279] we just unrelated but we have two of the
+- [09:23.519] most talented people in the world the
+- [09:25.880] legendary rert Murdoch and Larry Ellison
+- [09:28.640] so they are two legends in in business
+- [09:32.480] publishing and probably every other rert
+- [09:35.279] is uh Larry pretty much in a Class by
+- [09:38.279] Himself right I mean although you may
+- [09:40.480] have a couple of bucks more I don't know
+- [09:42.399] but but rert is in a Class by Himself
+- [09:45.079] he's an amazing guy and Larry is uh
+- [09:48.320] Larry is Larry Larry is one of the most
+- [09:50.079] serious players anywhere in the world so
+- [09:52.800] it's an honor to have you this has
+- [09:54.920] nothing to do with you people but
+- [09:56.200] they're here and I thought it would be
+- [09:57.480] appropriate I'm sure you didn't
+- [09:59.440] recognize them they all going crazy
+- [10:02.279] they're saying what are they doing here
+- [10:03.959] thank you
+- [10:05.480] Mr is there any chance that Canada or
+- [10:08.560] China could also get out of the tariffs
+- [10:10.399] after you struck a deal with Mexico well
+- [10:11.800] nobody's out with Mexico we had a great
+- [10:15.360] talk with
+- [10:16.440] Mexico and uh we had president Shin Bal
+- [10:22.320] is a woman I like her very much we've
+- [10:24.200] had good relationships but we have to
+- [10:26.000] stop fentol from coming in whether I
+- [10:28.000] like somebody or not and we we have to
+- [10:29.640] stop the illegal aliens from coming in I
+- [10:32.839] think we've lost 200,000 people on
+- [10:35.000] average a year for many years much
+- [10:36.880] higher than the 100,000 could be even
+- [10:38.839] closer to
+- [10:40.560] 300,000 and they've agreed to uh put in
+- [10:43.839] 10,000 soldiers permanently like forever
+- [10:47.560] 10,000 soldiers at their side of the
+- [10:49.839] border and stop fentol and illegal
+- [10:52.480] aliens from coming into our country they
+- [10:54.360] have a big incentive to do other than
+- [10:56.880] that we've agreed to talk and consider
+- [10:59.399] consider uh various other things we
+- [11:01.800] haven't agreed on tariffs yet and maybe
+- [11:03.720] we will maybe we won't but we have a
+- [11:06.480] very good relationship I also spoke with
+- [11:09.560] prime minister Trudeau
+- [11:11.920] Canada and we had a good talk in the
+- [11:14.440] morning but I did ask him a couple of
+- [11:16.160] questions like you know Banks aren't
+- [11:17.639] allowed to do business in Canada Canada
+- [11:19.639] is very tough Canada is very you know
+- [11:22.320] we're not treated well by Canada and we
+- [11:25.200] have to be treated well um banks are not
+- [11:28.920] as a example allowed did you know that
+- [11:30.920] that Banks American banks are not
+- [11:32.560] allowed to do business in Canada can you
+- [11:34.440] believe that and that's one of many
+- [11:36.480] things and we talked about and I think
+- [11:38.839] we'll win most of the subjects but for
+- [11:41.600] some reason uh a lot of things have been
+- [11:44.480] very unfair with Canada I noticed that
+- [11:47.120] in the first term you deal with people
+- [11:48.800] and after a while you begin to realize
+- [11:50.680] like you learned that Larry Ellison's
+- [11:52.360] very tough to do business with okay he's
+- [11:55.200] a very tough guy I mean I'm sure you're
+- [11:56.760] shocked to hear that uh but but uh
+- [12:00.240] Canada is very tough they're very very
+- [12:02.079] tough to do uh business with and we
+- [12:05.240] can't let them take advantage of the US
+- [12:07.560] they don't take our Agricultural Product
+- [12:10.000] for the most part uh they don't take our
+- [12:12.440] cars they make cars but they basically
+- [12:14.399] don't take our cars and you know we
+- [12:16.440] don't need and and look I I think we're
+- [12:18.560] going to have another good conversation
+- [12:20.160] today we're actually speaking at 3:00
+- [12:22.320] again but we don't need them to make our
+- [12:25.160] cars we don't need them to give us
+- [12:26.760] Lumber we don't need them for
+- [12:28.720] agriculture ultural products because we
+- [12:30.360] have all the agriculture we need they
+- [12:33.000] don't take our Agricultural Product for
+- [12:35.000] the most part our milk and dairy Etc a
+- [12:38.040] little bit they do but not much we take
+- [12:40.639] theirs uh and as far as cars are
+- [12:43.560] concerned they took in a big percentage
+- [12:46.040] almost 19% of the market and you know I
+- [12:49.320] wouldn't mind making our cars in the
+- [12:50.959] United States so we have a problem there
+- [12:53.240] I'd like to make our cars in the us we
+- [12:56.440] don't need Canada to make our cars with
+- [12:58.480] that being said we're going to have
+- [12:59.519] another call at 3:00 we had a call this
+- [13:02.040] morning it was a pretty good call I'd
+- [13:04.160] say uh so the call with Mexico went very
+- [13:07.320] well in the sense that uh they're very
+- [13:09.800] strong now on the border they're going
+- [13:11.040] to put soldiers there so actually
+- [13:14.279] they're their best military
+- [13:16.920] soldiers and they're going to be at the
+- [13:18.880] border 10,000 that's a lot of soldiers
+- [13:21.839] and they want to protect it also you
+- [13:23.399] know they want they don't want people
+- [13:25.199] running through Mexico coming through
+- [13:26.920] Mexico to come into our country so
+- [13:28.839] they're going going to do that and then
+- [13:30.519] we're going to talk about other things
+- [13:31.920] over the next and we're going to have
+- [13:33.480] over the next 30 days we're going to
+- [13:35.079] have Scott Howard and Marco Marco Rubio
+- [13:39.720] Secretary of State lead the delegation
+- [13:42.160] and we're GNA have a big negotiation
+- [13:44.079] with
+- [13:45.440] Mexico uh I'll be involved to and
+- [13:48.240] president Shin bam will be involved to
+- [13:50.079] see whether or not we can work something
+- [13:51.600] out on the
+- [13:53.920] tariffs China will be speaking to China
+- [13:57.079] probably over the next 24 hours fent
+- [13:59.600] China president Trump we don't want
+- [14:01.639] fentol coming into our country now we
+- [14:04.320] had another big thing speaking of China
+- [14:07.399] uh China's involved with the Panama
+- [14:09.639] Canal they won't be for long and that's
+- [14:12.480] the way it has to be uh marker just got
+- [14:14.839] back as you know he's in the process of
+- [14:17.800] coming back I guess he's almost back by
+- [14:20.000] now and he had a uh very long
+- [14:23.240] conversation with the leader of Panama
+- [14:25.600] the respected man and uh some other
+- [14:30.160] the entire leadership
+- [14:31.720] group and we're trying to work a deal on
+- [14:35.600] the Panama Canal the Panama Mar Canal
+- [14:38.639] was given foolishly years ago to it
+- [14:42.720] shouldn't have been happened years ago
+- [14:44.600] to Panama by Jimmy Carter and the
+- [14:48.959] group uh we lost 38,000 people building
+- [14:53.240] the Panama Canal like the one of the
+- [14:55.519] great wonders of the world it's the
+- [14:57.120] biggest job we've ever built the biggest
+- [14:59.120] project we've ever built in this country
+- [15:01.440] dollar-wise and every other way 38,000
+- [15:05.279] people died Americans all men just about
+- [15:09.440] uh laborers and construction people they
+- [15:12.320] went to C Panama the mosquito got them
+- [15:15.600] between mosquito and
+- [15:17.240] snakes we lost 38,000 people it was the
+- [15:20.920] most expensive project ever built by the
+- [15:23.160] United States most the biggest most
+- [15:25.800] expensive project we ever built 110
+- [15:28.440] years ago if you bring it up to now it
+- [15:30.160] would have been the equivalent of $2
+- [15:32.480] trillion the most expensive we ever
+- [15:34.880] built and we gave it away for $1 okay we
+- [15:38.959] gave it away essentially for
+- [15:41.480] nothing and we either want it back or
+- [15:46.720] we're going to get something very strong
+- [15:49.240] or we're going to take it back and China
+- [15:53.440] uh
+- [15:54.959] will be dealt
+- [15:57.560] with and we didn't give that to China we
+- [16:00.480] gave it to Panama we shouldn't have
+- [16:02.480] given it to Panama but Panama as you
+- [16:04.360] know has violated the agreement totally
+- [16:06.839] violated the agreement so that's in the
+- [16:09.360] process right now but they did have a
+- [16:10.839] very good meeting with the head of
+- [16:15.440] Panama on China you say your current
+- [16:18.360] thinking about whether China should be
+- [16:19.920] forced to keep reparations both for FAL
+- [16:22.319] deaths and no I haven't talked about
+- [16:25.160] that but they do have tariffs honestly
+- [16:27.959] nobody the the the amount of money that
+- [16:31.120] was lost and and most importantly the
+- [16:34.440] lives lost because of covid will is not
+- [16:37.800] something that anybody could ever even
+- [16:40.880] imagine it's probably $60 trillion and
+- [16:44.120] all the countries in the world don't
+- [16:45.720] have $60
+- [16:47.000] trillion the amount of death and the
+- [16:49.360] amount of Destruction and the amount of
+- [16:51.279] money lost is probably $60 trillion I
+- [16:55.040] had it figured by people about uh 3
+- [16:58.199] months ago was just it just said figure
+- [17:00.519] it out nobody knows what the real number
+- [17:02.160] is but it's a an almost an infinite
+- [17:05.240] number the damag done no but I have not
+- [17:08.120] discussed that what I have discussed is
+- [17:10.720] uh we'll have some good meetings with
+- [17:12.919] China we have meetings
+- [17:14.600] planned and we'll see what happens but
+- [17:17.799] that was just a an opening Salvo if we
+- [17:21.199] can't make a deal with China then the
+- [17:22.880] tariffs will be very very substantial
+- [17:25.280] okay I'm going to sign this one sir this
+- [17:27.360] is uh you've obviously made making
+- [17:29.200] America healthy again a key priority of
+- [17:31.120] this Administration a key component of
+- [17:33.360] that is obviously heart health this is a
+- [17:35.320] ceremonial Proclamation declaring the
+- [17:37.559] month of February to be National heart
+- [17:40.000] month okay I here we're doing very well
+- [17:43.280] with nominations we'll see but it it
+- [17:45.520] looks like we're doing very well with
+- [17:47.240] nominations Mr pres have you been
+- [17:49.480] involved with calling Senators who had
+- [17:51.320] some concerns
+- [17:52.799] about yes yeah I've gotten great
+- [17:56.440] response and they want to do what's
+- [17:58.480] right and we've had a good response I
+- [18:00.320] think we'll do well we have great people
+- [18:03.520] like people like this we have great
+- [18:06.080] great people uh coming in I think I'd
+- [18:08.720] like to say the best ever recruited for
+- [18:12.280] government I think we have the finest
+- [18:14.080] people ever recruited for government
+- [18:16.440] will we take an active Congress and you
+- [18:18.280] know what you're starting to see that
+- [18:19.760] because we've done more in two weeks
+- [18:21.799] than Biden's done in four five years six
+- [18:24.120] years they could be here between him and
+- [18:27.080] Obama uh you added up okay we've done
+- [18:30.360] more in two weeks than they've done in
+- [18:31.760] 12 years will it take an act of Congress
+- [18:34.240] to do away with usaid or you believe I
+- [18:37.480] don't know I don't think so not when it
+- [18:39.600] comes to fraud if there's fraud these
+- [18:41.960] people are lunatics and if it if it
+- [18:44.960] comes to fraud you wouldn't have an
+- [18:46.400] active Congress and I'm not sure that
+- [18:48.240] you would anyway but we just want to do
+- [18:51.000] the right thing that's uh it's something
+- [18:53.559] that should have been done a long time
+- [18:54.919] ago went crazy during the Biden
+- [18:57.360] administr they went totally crazy what
+- [18:59.320] they were doing and the money they were
+- [19:01.400] giving to people that shouldn't be
+- [19:03.640] getting it and to agencies and others
+- [19:06.520] that shouldn't be getting it was a shame
+- [19:08.280] so uh tremendous fraud but we'll be
+- [19:12.039] doing a report we'll be giving you that
+- [19:13.960] report at the appropriate time you know
+- [19:15.600] the first term though us was something
+- [19:17.280] that you liked in some respects I love
+- [19:19.320] the concept of
+- [19:20.640] it sure I love the concept but they turn
+- [19:23.600] out to be radical left lunatics and the
+- [19:26.679] concept of it is good but uh it's all
+- [19:29.240] about the people Mr President you said
+- [19:31.200] you also want to impose tariffs on the
+- [19:33.559] EU what kind of tariffs are you thinking
+- [19:35.679] about well we have massive deficits with
+- [19:37.760] the European Union massive like $350
+- [19:41.360] billion dollars if you can believe it
+- [19:43.080] they don't take our farm product they
+- [19:45.159] don't take our cars they don't take
+- [19:47.159] almost anything but we take their cars
+- [19:49.000] we have millions of cars coming in BMW
+- [19:51.440] and uh Mercedes bins and Volkswagen and
+- [19:55.000] just so many different uh cars that we
+- [19:58.200] don't do anything about that and uh we
+- [20:01.799] don't charge them tariffs they make it
+- [20:03.720] impossible to sell cars in the European
+- [20:06.280] Union uh they make it very difficult
+- [20:08.799] Agricultural Product they actually don't
+- [20:10.720] take it and they have a lot of excuses
+- [20:13.320] some of them are the pesticides and the
+- [20:15.320] different chemicals used and uh Bobby
+- [20:17.760] Kennedy actually is uh looking into that
+- [20:20.600] very very seriously because maybe it's
+- [20:23.440] not necessary to use all of that you
+- [20:25.280] know we want to be the healthiest
+- [20:26.600] country and we're not we spend more
+- [20:29.240] money on food than anybody else in terms
+- [20:31.039] of its creation but we're not the
+- [20:33.240] healthiest country so maybe there is
+- [20:35.120] something to the fact that we shouldn't
+- [20:37.799] be using so much chemical and maybe
+- [20:40.400] that'll stop but Bobby Kennedy is the
+- [20:42.280] one because he's he is not a believer in
+- [20:44.400] all of the things we have done and
+- [20:46.280] neither are the Europeans so we'll see
+- [20:48.960] what happens but they use it as an
+- [20:50.600] excuse not to buy our product uh and
+- [20:53.799] they you tried I asked uh a couple of
+- [20:56.559] the leaders I don't want to use names
+- [20:58.200] but how many Chevrolets or Fords do you
+- [21:00.960] see in the middle of Munich and the
+- [21:03.120] answer is none because they don't take
+- [21:05.120] any cars they don't take anything so the
+- [21:07.400] European has abused the United States
+- [21:10.440] for
+- [21:11.440] years and uh they can't do that and they
+- [21:14.799] want to make a deal let me tell you in
+- [21:16.159] all cases they all want to make deals
+- [21:18.880] there's nobody that doesn't want to make
+- [21:20.520] deals they've been abusers and they want
+- [21:23.039] to make deals so uh we'll see about that
+- [21:25.440] but uh we'll have I think some very fair
+- [21:29.520] all we want is a fair deal and you know
+- [21:31.880] there's a word reciprocal I'd go right
+- [21:34.320] now reciprocal tariffs on everybody
+- [21:37.120] because many of the countries that you
+- [21:39.039] feel so horrible about the way they're
+- [21:40.919] being treated by Trump you're saying oh
+- [21:43.320] president Trump is so terrible to them
+- [21:45.159] well they charge us tariffs European
+- [21:47.600] Union has a vat tax which is through the
+- [21:49.679] roof okay it's a similar thing similar
+- [21:52.679] to a tariff it's a vat and they have it
+- [21:56.120] and its numbers like you wouldn't
+- [21:57.600] believe and uh Canada I told you about
+- [22:00.440] the banks and I told you they they
+- [22:02.080] charge us and people don't say that they
+- [22:05.000] don't like to say it just like they
+- [22:06.919] don't like to say that I opened up the
+- [22:08.760] water for California it's a great thing
+- [22:10.720] it's too bad they didn't do it
+- [22:12.159] themselves I had to do it and it was not
+- [22:14.080] easy we did it a very rough way and I
+- [22:16.840] didn't like to do it a rough way we
+- [22:18.559] shouldn't have to do it a rough way but
+- [22:21.400] uh a lot of these countries that we're
+- [22:22.880] talking about you know they're are
+- [22:24.120] so-called allies but they don't treat us
+- [22:26.120] well and just like I got
+- [22:29.240] $420 billion do and now it's actually
+- [22:31.840] over $600 billion the Secretary General
+- [22:35.480] of NATO came in two weeks ago and he
+- [22:37.600] said it was a miracle when Trump came in
+- [22:40.600] when President Trump came into NATO I
+- [22:42.559] got he said it was $636 billion by
+- [22:46.679] saying to them no you have to pay and if
+- [22:49.600] you don't pay we're not going to be
+- [22:51.960] there for you you know somebody has to
+- [22:53.760] say it and they paid and it was a large
+- [22:56.600] amount of money and one of the problems
+- [22:58.559] we have with the Russia Ukraine
+- [22:59.960] situation is that uh we want to see some
+- [23:04.400] Equalization because we're in for close
+- [23:07.919] to $300 billion and they're in for $200
+- [23:11.600] billion less why are they in for Less
+- [23:14.000] because Biden never asked them for money
+- [23:16.120] he never said you got to pay he never
+- [23:18.880] did all he did is hand out money so
+- [23:22.000] we're talking with them right now and
+- [23:23.600] we're actually working some deals right
+- [23:25.279] now so we have some uh some guarantees
+- [23:28.559] and some uh other things to keep that
+- [23:32.080] whole
+- [23:33.760] situation to go really going I mean
+- [23:36.760] going we're telling uh Ukraine they have
+- [23:40.200] very valuable Rare Earth we want what we
+- [23:43.640] put up to uh go in terms of a guarantee
+- [23:47.080] we want a guarantee we want we're
+- [23:49.520] handing them money hand over fist we're
+- [23:51.600] giving them equipment European is not
+- [23:53.919] keeping up with us they should equalize
+- [23:56.159] and look we have an ocean in between
+- [23:58.799] they don't it's more important for them
+- [24:00.559] than it is for us but they're way below
+- [24:02.919] us in terms of money and they should be
+- [24:06.400] paying at least equal they should really
+- [24:09.000] be paying much more than us but let's
+- [24:10.559] say equal to us and they have billions
+- [24:13.080] and billions of dollars below so we're
+- [24:16.640] looking to do a deal with Ukraine where
+- [24:18.559] they're going to secure what we're
+- [24:20.559] giving them with their Rare Earth and
+- [24:23.159] other
+- [24:24.960] things deal with Mexico this morning was
+- [24:27.799] that uh
+- [24:29.080] partially related to the market reaction
+- [24:31.279] and a criticism from Mr Murdoch's own
+- [24:33.080] newspaper he called it the dumbest trade
+- [24:34.760] war on the editoral page satday I'm
+- [24:38.520] gonna have to talk to
+- [24:41.600] him I've been right over the Wall Street
+- [24:43.960] Journal many times I will tell you I
+- [24:46.080] don't agree with him on some things no
+- [24:48.039] it's uh not only is it uh not them
+- [24:51.440] you're going to see you're going to say
+- [24:53.399] every single one of those countries is
+- [24:55.320] dying to make a deal you know why
+- [24:56.960] because they're ripping us off
+- [24:59.000] really badly and the United States is
+- [25:01.640] tired of been ripping just being ripped
+- [25:04.279] off and uh that's why we have $36
+- [25:07.120] trillion in debt we have it for a reason
+- [25:09.679] because we make bad deals with
+- [25:11.960] everybody and we don't allow that
+- [25:14.480] anymore so the Wall Street Journal is
+- [25:16.480] wrong because very simply every single
+- [25:19.600] country that you're writing about right
+- [25:21.279] now is dying to make a deal because the
+- [25:24.080] deals they have right now are so good
+- [25:26.399] and so good for them and so profitable
+- [25:28.520] for them you didn't know that Canada
+- [25:30.360] didn't allow our banks you didn't know
+- [25:32.120] all of these different things uh and I
+- [25:35.360] think in the end you're going to see
+- [25:36.799] that uh either very very substantial
+- [25:39.880] tariffs are going to be paid by them or
+- [25:42.200] they're going to make some kind of a
+- [25:44.200] deal or did Mexican president shine did
+- [25:47.600] what did you blink this morning there
+- [25:49.320] was no blinking she's a wonderful woman
+- [25:51.399] but she did agree to 10,000 soldiers on
+- [25:53.600] the border I would say that's a lot
+- [25:55.679] would you say that's pretty good 10,000
+- [25:57.799] soldiers on the border and the and the
+- [26:00.320] 10,000 soldiers are going to keep
+- [26:02.279] illegal aliens out and they're going to
+- [26:04.960] keep them out seriously out and
+- [26:07.559] otherwise they're going to have a big
+- [26:08.720] penalty Mexico is going to be penalized
+- [26:10.960] they're not going to come through Mexico
+- [26:12.440] anymore and they're not going to let the
+- [26:14.440] fentol come in from China and China
+- [26:17.279] hopefully is going to stop sending us
+- [26:19.240] fentol and if they're not the tariffs
+- [26:21.799] are going to go substantially higher sir
+- [26:23.760] on just to clarify what you said about
+- [26:25.320] Ukraine earlier the rare Earths is that
+- [26:28.360] you want them to give the rare earth to
+- [26:29.919] the United States yeah yeah I want to
+- [26:32.320] have security of rare earth we're
+- [26:35.120] putting in hundreds of billions of
+- [26:36.720] dollars they have great Rare Earth and I
+- [26:39.559] want security of the rare earth and
+- [26:42.279] they're willing to do it sir you on
+- [26:45.240] Canada when you talk toau again is there
+- [26:47.760] anything he can give you at 3M when you
+- [26:50.240] talk again to
+- [26:51.600] also I don't know said I don't know we
+- [26:54.480] have big deficits with Canada like we do
+- [26:57.000] with all countries I mean I look at some
+- [26:58.919] of the deals made I say who the hell
+- [27:01.279] made these deals are so bad but with
+- [27:04.559] Canada um I have a talk with him and you
+- [27:07.360] maybe know or maybe not uh we're going
+- [27:09.159] to meet again or talk again at 3:00
+- [27:12.399] right after my next meeting and we'll
+- [27:15.320] see what happens I I can't tell you
+- [27:17.200] what's going to happen mention that he
+- [27:18.679] could agree to to change your mind on
+- [27:21.279] the well we can always but look what I'd
+- [27:23.919] like to see Canada become our 51st state
+- [27:26.760] we give them protection military
+- [27:28.919] protection uh we we don't need that them
+- [27:31.600] to build our cars I'd rather see Detroit
+- [27:33.880] or South Carolina or any one of our
+- [27:37.279] Tennessee any one of our states build
+- [27:39.240] the cars they could do it very easily we
+- [27:40.840] don't need them for the cars we don't
+- [27:42.279] need them for lumber we don't need them
+- [27:44.760] for anything we don't need them for
+- [27:46.399] energy we have more energy than they do
+- [27:48.360] we don't need them for
+- [27:49.880] energy uh so I say why are we doing this
+- [27:52.720] why do we why are we willing to lose
+- [27:55.440] between a hundred billion and $200
+- [27:57.320] billion do a year we don't need them as
+- [27:59.880] a state it's different as a state it's
+- [28:02.840] much different and there there are no
+- [28:04.559] tariffs so I'd love to see that but uh
+- [28:07.919] some people say that would be a long
+- [28:10.840] shot uh if people wanted to play the
+- [28:13.679] game right it would be 100% certain that
+- [28:17.440] they'd become a state but a lot of
+- [28:20.360] people don't like to play the game
+- [28:21.919] because they don't have a threshold of
+- [28:24.000] pain and there would be some pain but uh
+- [28:27.399] not a lot the pain would be really there
+- [28:29.840] so we're going to meet again by phone at
+- [28:33.159] 3:00 and we'll let you know is
+- [28:37.720] Isel coming in tomorrow yes you
+- [28:40.200] mentioned in the past you're concerned
+- [28:41.480] about Israel being too small
+- [28:43.159] geographically would you support
+- [28:44.919] annexation of parts of the West Bank by
+- [28:46.679] Israel well I'm not going to talk about
+- [28:48.679] that it certainly is a
+- [28:51.039] small uh it's a small country in terms
+- [28:53.919] of land I take see this pen this
+- [28:55.799] wonderful pen my desk is the Middle East
+- [28:59.279] and this pen the top of the pen that's
+- [29:01.279] Israel that's not good right you know
+- [29:04.200] that's a pretty big difference I use
+- [29:06.200] that as analogy it's pretty accurate
+- [29:07.919] actually it's a it's a pretty small
+- [29:11.399] piece of land and it's amazing that
+- [29:14.120] they've been able to do what they've
+- [29:15.320] been able to do when you think about it
+- [29:16.799] there's a lot of good smart brain power
+- [29:19.880] but it is a very small piece of land no
+- [29:21.919] question about it Mr President you said
+- [29:23.360] ear that Elon Musk is doing everything
+- [29:25.720] with is everything that done far going
+- [29:28.640] to all the agencies shutting off access
+- [29:31.880] getting access to Federal payments that
+- [29:33.559] all has your you're okay with all that
+- [29:35.720] for the most part yeah if we uh I mean
+- [29:38.760] if there was something uh that didn't
+- [29:40.600] have my okay I'd let you know about it
+- [29:42.360] really fast you think there are some
+- [29:43.799] areas where you wouldn't let him work
+- [29:45.159] because he has conflicts of interest if
+- [29:46.720] there was a no no I haven't seen that uh
+- [29:49.640] and he would know not to do it so we
+- [29:51.519] haven't had that yet but if there was a
+- [29:53.320] conflict we would let him work in that
+- [29:55.320] said to Pama that going to make deal or
+- [29:59.080] us is going to take it how long do they
+- [30:01.000] have to make that sort of deal and are
+- [30:02.320] you still leaving on the table we're
+- [30:04.000] going to meet with panic we're going to
+- [30:06.000] meet with Panama on Friday at about 3:30
+- [30:10.320] in the afternoon by phone and maybe
+- [30:13.120] there'll be some Representatives at you
+- [30:15.480] know here or there but we're going to be
+- [30:18.399] talking to Panama on Friday
+- [30:21.000] essentially and they've agreed to
+- [30:23.000] certain things but I'm not happy with it
+- [30:26.039] on the middle list Mr President if I may
+- [30:28.240] uh do you still have doubts that the
+- [30:29.960] ceas fire will fall on what on the
+- [30:32.200] Middle East do you think the ceasefire
+- [30:33.799] will I have no assurances that it'll
+- [30:36.120] hold I mean I've seen people brutalized
+- [30:38.120] I've never nobody's ever seen anything
+- [30:40.600] like it no I have no guarantees that the
+- [30:43.080] peace is going to hold Steve you might
+- [30:45.320] want to say something about that Steve
+- [30:47.279] woodco it's holding so far so um and
+- [30:51.360] we're we're certainly hopeful and that's
+- [30:53.120] the president's Direction get the
+- [30:55.480] hostages out save lives and come to uh
+- [30:59.519] hopefully a a peaceful settlement of it
+- [31:01.799] all so so far it's
+- [31:03.600] holding Mr President on a different
+- [31:05.720] topic uh questionnaires have been going
+- [31:07.639] out to FBI agents across the country uh
+- [31:10.120] who were involved potentially in the
+- [31:11.840] investigation do you believe anyone
+- [31:13.159] involved at any level should be fired
+- [31:15.159] sir well I think the FBI was a very
+- [31:17.720] corrupt institution and I'm a I'm a
+- [31:20.760] victim of it in a true sense I was able
+- [31:22.880] to beat it but other people have been uh
+- [31:26.559] treated horribly I think I think the FBI
+- [31:29.799] uh has a great reput had a great
+- [31:31.799] reputation I think its reputation was
+- [31:33.919] really uh damaged badly as as is
+- [31:37.919] doj look at what they've done in terms
+- [31:40.159] of weaponization look at what they've
+- [31:41.760] done to a political opponent probably
+- [31:44.159] got me elected by what they did or I
+- [31:46.480] think I was doing well anyway but they
+- [31:48.120] might have got me elected but you know
+- [31:50.200] what we have to have pristine beautiful
+- [31:53.919] perfect law enforcement and what we want
+- [31:56.919] to do and I cash is the one to do it
+- [31:59.480] he's the one guy that is going to do it
+- [32:02.480] uh we have to bring the reputation of
+- [32:04.559] the FBI we have to bring the fact of the
+- [32:06.720] FBI back to what it could be not even to
+- [32:10.080] what it was even better than it ever was
+- [32:12.919] because who would have thought that the
+- [32:14.320] FBI could have been corrupted like they
+- [32:17.360] were corrupted who would have thought
+- [32:19.080] that would have happened who would have
+- [32:20.720] thought they would have been used to go
+- [32:22.039] after you know political opponents
+- [32:24.159] essentially but me being the number one
+- [32:27.039] and so many other things beyond that and
+- [32:29.919] they've been hurt very badly and we'll
+- [32:31.440] see what happens but cash is the one to
+- [32:34.080] do it and I hear he's doing very well
+- [32:35.559] cash will straighten it out we have
+- [32:37.960] great confidence that we can make the
+- [32:40.000] FBI great
+- [32:41.760] again okay one or two more and we nomin
+- [32:46.000] say it TS G yeah I think tuls is going
+- [32:49.200] to be doing okay I'm not sure I can't
+- [32:51.279] guarantee anything but she's uh liked by
+- [32:54.279] so many people especially people in the
+- [32:56.320] military and law enforcement she has a
+- [32:58.399] little bit of trouble with some Senators
+- [32:59.799] over her thoughts on Edward Snowden I
+- [33:01.880] know Snowden you've mentioned in the
+- [33:03.279] past you're thinking about pardoning him
+- [33:05.240] are you still and what do you think
+- [33:06.679] about that no I don't talk to about it
+- [33:08.639] right now I just uh people feel very
+- [33:11.039] differently some people think you should
+- [33:13.480] be Parton and some people think it would
+- [33:15.200] be a terrible thing to do but I don't
+- [33:17.440] get involved in that Mr what are you
+- [33:19.279] discussing with Mr Mur Mr uh just
+- [33:23.000] respect I have great respect for rert
+- [33:24.880] marock I disagree with him a lot of
+- [33:26.799] times with the w Journal but it's all
+- [33:28.799] right we've disagreed before but and I'm
+- [33:31.480] sure they didn't have any idea what they
+- [33:34.120] were talking about because already you
+- [33:36.320] see what's happening look at look at
+- [33:38.399] Colombia look at what happened with that
+- [33:40.720] everybody said that with Colombia it was
+- [33:42.840] going to be a disaster in one in in one
+- [33:46.639] hour everything was settled you know why
+- [33:50.919] tariffs tariffs without tariffs they
+- [33:54.080] wouldn't have been the same way they
+- [33:56.399] would would not have treated me the way
+- [33:58.600] they treated me which was extremely
+- [34:01.399] nicely uh and I don't want to use
+- [34:04.399] countries I don't want to use names but
+- [34:06.960] uh tariffs are very powerful both
+- [34:09.000] economically and in getting everything
+- [34:10.760] else you want tariffs for us nobody can
+- [34:13.200] compete with us because we're the part
+- [34:14.800] of gold but if we don't keep winning and
+- [34:17.599] keep doing well we won't be the part of
+- [34:19.399] gold and then tariffs won't be so good
+- [34:21.599] for us but when you're the pot of gold
+- [34:23.879] the tariffs are uh the tariffs are very
+- [34:26.639] good they're very powerful
+- [34:28.480] and they're going to make our country
+- [34:29.720] very rich again thank you very much
+- [34:34.320] everybody I don't
+- [34:36.200] know you guys how is the market
+- [34:43.800] doing I don't think of that thank you

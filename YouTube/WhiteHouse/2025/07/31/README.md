@@ -1,0 +1,31 @@
+# YouTube / WhiteHouse / 2025-07-31
+
+- Posts: 9
+
+- [20:58 UTC - President Trump Signs an Executive Order, July 31, 2025](NC09z2oqpDg/)
+  - Source: https://www.youtube.com/watch?v=NC09z2oqpDg
+  - [00:07.430] The President: Nice to see you, how are you? - [00:16.590] We have a lot of athletic talent and great people behind me, - [00:22.160] and we're going to do some very...
+- [18:16 UTC - Breaking: White House Ballroom Construction to Begin](AERingqaAQs/)
+  - Source: https://www.youtube.com/watch?v=AERingqaAQs
+  - [00:00.160] We are proud to announce that the - [00:01.680] construction of the new White House - [00:03.600] ballroom will begin. For 150 years, - [00:07.200] presidents, admini...
+- [18:02 UTC - Press Secretary Karoline Leavitt Briefs Members of the Media, July 31, 2025](qAfsDtV8iLg/)
+  - Source: https://www.youtube.com/watch?v=qAfsDtV8iLg
+  - [00:01.150] Karoline Leavitt: Good afternoon, everyone. - [00:02.540] The Press: Good afternoon. - [00:03.870] Karoline Leavitt: We have a lot of news today, - [00:05.170] and I...
+- [17:48 UTC - Make Health Tech Great Again](iAFOX4ATazU/)
+  - Source: https://www.youtube.com/watch?v=iAFOX4ATazU
+  - [00:00.000] Uh, Mr. President, today we are making - [00:01.520] American health technology remarkably - [00:04.240] great again. - [00:06.319] We're officially launching the CMS...
+- [13:50 UTC - Matthew Thornton](ov4X7FFl4WI/)
+  - Source: https://www.youtube.com/watch?v=ov4X7FFl4WI
+  - [00:00.000] [Music] - [00:04.880] Well met, friend. I am Matthew Thornton, - [00:07.359] physician, soldier, legislator, son of - [00:09.760] Ireland, but pledged to the cause of...
+- [13:47 UTC - Carter Braxton](mgwk7iQoM9A/)
+  - Source: https://www.youtube.com/watch?v=mgwk7iQoM9A
+  - [00:00.840] [Music] - [00:06.879] Good day. I am Codra Braxton of - [00:09.280] Virginia. Mine was a life of fortune - [00:11.840] raised amidst tobacco fields and royal - [00:14...
+- [13:45 UTC - George Clymer](k5Zgqqt4wG8/)
+  - Source: https://www.youtube.com/watch?v=k5Zgqqt4wG8
+  - [00:01.180] [Music] - [00:07.759] Greetings. I am George Climber, one of - [00:10.639] just six men to sign both the - [00:12.240] Declaration of Independence and the - [00:14.24...
+- [13:44 UTC - Thomas Nelson Jr.](guNBdWHvpaE/)
+  - Source: https://www.youtube.com/watch?v=guNBdWHvpaE
+  - [00:01.620] [Music] - [00:06.240] I am Thomas Nelson Jr., soldier, signer, - [00:10.000] governor, and dter to liberty. Born in - [00:13.120] Yorktown to privilege and pedigree,...
+- [13:42 UTC - John Morton](h6mLN6xbHY0/)
+  - Source: https://www.youtube.com/watch?v=h6mLN6xbHY0
+  - [00:06.560] I'm John Morton, farmer, surveyor, - [00:09.040] self-taught son of Pennsylvania, and - [00:11.519] dare I say it, keystone of American - [00:13.679] independence. I...

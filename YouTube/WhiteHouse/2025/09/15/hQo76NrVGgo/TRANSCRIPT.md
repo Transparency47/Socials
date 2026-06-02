@@ -1,0 +1,1138 @@
+<!-- source: https://www.youtube.com/watch?v=hQo76NrVGgo -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: hQo76NrVGgo -->
+<!-- date_published: 2025-09-15T21:40:19+00:00 -->
+<!-- date_accessed: 2026-06-02T02:44:47.924187+00:00 -->
+
+# Transcript: President Trump Signs a Presidential Memorandum, Sep. 15, 2025
+
+- [00:04.750] The President: Hello, everybody.
+- [00:06.490] It's nice to have you here.
+- [00:07.490] We have some big things to announce.
+- [00:09.750] Today, at the request of Governor Bill Lee of Tennessee
+- [00:14.430] who's standing with us, as you know.
+- [00:16.850] I'm signing a presidential memorandum
+- [00:19.060] to establish the Memphis Safe Task Force.
+- [00:23.110] And it's very important because of the crime that's going on,
+- [00:26.490] not only in Memphis, in many cities,
+- [00:28.200] and we're going to take care of all of them step by step
+- [00:31.310] just like we did in D.C.
+- [00:32.520] We have virtually no crime in D.C. right now,
+- [00:35.960] and we're going to keep it that way to our nation's capital.
+- [00:38.280] We're going to keep it that way or we're going to federalize
+- [00:40.330] it if we had to, but we don't have to anymore,
+- [00:42.030] because it's in such great shape.
+- [00:44.830] This task force will be a replica
+- [00:46.570] of our extraordinarily successful efforts here,
+- [00:50.160] and you'll see it's a lot of the same thing.
+- [00:52.740] Although the numbers here are really something,
+- [00:54.870] they're really bad.
+- [00:56.070] Now, we did send FBI in about four months ago to work
+- [00:58.880] and it brought some of the numbers down,
+- [01:01.180] and they did a great job.
+- [01:02.450] But, we're sending in the big force now.
+- [01:05.670] We also sent them into Chicago on a sort of a moderate basis,
+- [01:10.340] and we brought down crime a little bit in Chicago.
+- [01:12.920] But, we're now going to bring it down very big.
+- [01:15.000] We're going to be doing Chicago probably next.
+- [01:18.140] I was with a great businessman, a man who was involved
+- [01:21.590] in all cities through his business.
+- [01:24.040] And I said, "Who do you think should be next after Memphis?"
+- [01:26.500] And he said, "Sir, you've got to save Chicago."
+- [01:31.120] We're going to wait a little while.
+- [01:33.250] But he said, "You got to save Chicago. You can't let it go."
+- [01:36.300] And this is a very prominent man
+- [01:37.780] that everybody knows in this room.
+- [01:39.920] Another man in Memphis was saying --
+- [01:42.690] Bill, he was saying very interesting,
+- [01:44.800] he's on the board of FedEx.
+- [01:46.740] And his hotel is about a block away.
+- [01:49.820] And he said, "When I walked there, I said,
+- [01:53.610] 'I don't want to do this again. I never want to do it again.'
+- [01:55.790] And they won't let me walk there."
+- [01:57.360] They take them in armored vehicles.
+- [01:59.130] They take the board members of FedEx in armored vehicles,
+- [02:02.670] like a block away to the hotel.
+- [02:04.720] This shouldn't be the U.S.
+- [02:06.670] This shouldn't be the United States of America.
+- [02:09.720] The task force will be a replica, as I said,
+- [02:12.190] and it's going to be, I think, equally successful.
+- [02:15.460] This is a tremendous success we've had in Washington,
+- [02:18.790] I can tell you, and everyone knows it.
+- [02:20.330] And people in the White House that work here and other people
+- [02:22.530] that I know are calling me and thanking me,
+- [02:24.760] they're going out to dinners,
+- [02:25.990] they're doing things that they haven't done in years.
+- [02:29.260] The effort will include the National Guard
+- [02:31.350] as well as the FBI,
+- [02:32.860] ATF, DEA, ICE, Homeland Security Investigations
+- [02:37.120] and the U.S. Marshals, and more along the prosecutors.
+- [02:41.720] We're going to have DOJ led by U.S. Attorney
+- [02:44.940] for the Western District of Tennessee,
+- [02:47.530] who is here or not here? That person here?
+- [02:50.870] That person is going to be very busy.
+- [02:53.420] So, we're (inaudible)
+- [02:54.630] U.S. Attorney for the Western District of Tennessee.
+- [02:57.070] And most importantly, Pam Bondi's here.
+- [02:59.640] She's heading it up, and she's doing an unbelievable job
+- [03:02.470] in every respect beyond this.
+- [03:04.860] So, also worked with some of the members of the team
+- [03:10.150] right here on D.C,
+- [03:11.970] and we're very proud of that effort.
+- [03:13.530] We essentially had the crime down
+- [03:15.040] to a very low rate in 12 days.
+- [03:17.620] And within another 10 days after that, it was so incredible.
+- [03:23.010] And it continues at that level, and we're going to continue.
+- [03:25.500] We have to, because it's our capital.
+- [03:28.020] This team will deploy the full powers
+- [03:30.130] of federal law enforcement agencies
+- [03:33.140] and enforcement generally to restore public safety
+- [03:36.060] and get dangerous career criminals off of our streets.
+- [03:38.770] We're going to get them off.
+- [03:40.850] In 2024, Memphis at the highest violent crime rate,
+- [03:44.020] the highest property crime rate,
+- [03:46.150] and the third-highest murder rate of any city in the nation.
+- [03:49.900] Other than that, they're doing quite well, thank you.
+- [03:53.210] A person is four times
+- [03:54.820] more likely to be murdered in Memphis,
+- [03:56.770] Tennessee today than in Mexico City.
+- [04:00.070] And you know Mexico City is not a cakewalk.
+- [04:03.410] It's been overrun with carjackings, robberies,
+- [04:05.850] shootings and killings.
+- [04:07.130] There were 249 murders, 429 rapes, 5,616 burglaries,
+- [04:15.550] and 12,522 violent assaults
+- [04:20.950] in just the last little while in 2024,
+- [04:25.290] and in pieces of 2025,
+- [04:28.640] where it's actually gotten worse until recently
+- [04:30.790] when we sent the FBI down to see what the hell is going on.
+- [04:34.400] Last month, a vicious thug carjacked an elderly woman
+- [04:38.260] parked at the movie theater,
+- [04:40.340] dragged her out of the car and body slammed her
+- [04:43.420] into the pavement where she is still trying to recover.
+- [04:47.060] It probably won't be successful.
+- [04:49.580] So, we're not going to allow this kind of savagery
+- [04:52.270] to destroy our society anymore.
+- [04:54.080] We're stopping at doing one by one time,
+- [04:58.140] but we want to go quickly.
+- [04:59.980] We don't want to lose Chicago. We're going to lose Chicago.
+- [05:03.550] We're going to lose places like --
+- [05:06.280] you go to St. Louis. We're going to lose St. Louis.
+- [05:10.560] We're not going to lose. We want to save these places.
+- [05:13.530] You're going to lose them.
+- [05:16.220] The way the man said it, he was a very high-quality man.
+- [05:18.970] I said, "Who would you do next?"
+- [05:21.000] He said, "Sir, I'd do Chicago. You don't want to lose Chicago."
+- [05:23.880] We're not going to lose Chicago.
+- [05:25.970] So, we're going to have to go very big and we're going to go
+- [05:28.480] probably, we're thinking about it for next, Pam.
+- [05:30.500] We're going to hold it off.
+- [05:31.730] We're going to do some of the smaller ones.
+- [05:33.780] And the truth is, our people are so good.
+- [05:37.140] Gady, you're doing a great job wherever you may be.
+- [05:40.280] We're doing so good
+- [05:41.570] that I don't think we need too much practice, right?
+- [05:43.490] We're going to --
+- [05:44.790] But, we got to go and save our big cities,
+- [05:46.630] our great cities. Chicago's a great city,
+- [05:49.830] and we're going to make it great again very soon.
+- [05:52.920] And, I think, we can do that.
+- [05:55.270] Despite the tremendous size, I think we can do a real job
+- [05:57.710] and we're going to give you the resources that you need.
+- [06:00.800] So with that, I'd like to just end by saying
+- [06:03.150] we're going to make Memphis safe again,
+- [06:04.850] and I'd like to ask Governor Bill Lee to say a few words.
+- [06:08.220] And then Pam can talk and anybody else
+- [06:11.010] you'd like to talk to, we'll go through the whole list
+- [06:13.030] we have all day long if we have to,
+- [06:14.680] because it is a very important thing.
+- [06:17.090] We have to save our country from violent crime.
+- [06:19.770] So, Bill, please.
+- [06:20.990] Governor Lee: Yes, sir. Mr. President.
+- [06:23.540] First of all, thank you. Thank you for your commitment
+- [06:28.080] for federal resources to the great city of Memphis.
+- [06:31.310] And it is a great city and has a great history
+- [06:34.590] and a great legacy.
+- [06:36.350] And we are very hopeful and excited
+- [06:41.200] about the prospect of moving that city forward.
+- [06:43.740] I've been in office seven years.
+- [06:45.620] I'm tired of crime holding the great city of Memphis back.
+- [06:49.250] And I have spoken today
+- [06:50.980] with the director of the U.S. Marshals,
+- [06:54.620] with director of the FBI, with General Bondi.
+- [06:59.670] We realized that this effort of multi-agencies
+- [07:05.540] that will combine the work of the Tennessee Highway Patrol
+- [07:09.730] and the local police departments,
+- [07:11.550] when we come together,
+- [07:13.770] we can make significant change in our city,
+- [07:16.650] in the city of Memphis.
+- [07:17.950] And that is a powerfully important thing
+- [07:20.540] for the state of Tennessee. And I want to say thank you.
+- [07:23.170] The President: This will be your proudest moment
+- [07:25.290] when we see you in four or five weeks, maybe sooner.
+- [07:30.740] You're going to see numbers that will drop
+- [07:32.250] and plummet like you haven't --
+- [07:33.630] just like we did in D.C, they plummeted.
+- [07:35.710] Nobody could even believe it. And they're going to plummet.
+- [07:39.040] It'll be one of your really proud moments
+- [07:40.820] and you've done a good job too.
+- [07:42.110] But, this will be maybe your proudest moment.
+- [07:43.710] Governor Lee: Thank you, sir.
+- [07:44.910] And as the director said the goal is sustained.
+- [07:48.960] Sustained crime lowering. And with this effort,
+- [07:53.280] I believe we can finally get there for that city.
+- [07:56.310] The President: Yep.
+- [07:57.520] We're going to have it sustained long time.
+- [07:59.460] And your people are going to get better and better.
+- [08:01.190] And your police force has been terrific.
+- [08:02.830] They're working with us very much, as you know.
+- [08:05.280] Started it as I said on a little basis
+- [08:07.750] that we got it down quite a bit,
+- [08:09.060] but now we go in for the big march. Okay?
+- [08:11.450] Governor Lee: And Director Patel and his team
+- [08:13.480] have done remarkable work so far.
+- [08:15.460] As you know, the numbers are great.
+- [08:16.940] And this will be one more step
+- [08:18.650] in the right direction for Memphis.
+- [08:19.870] The President: That's true.
+- [08:21.110] Thank you. He did a very good job.
+- [08:22.590] Thank you very much. Pam, please.
+- [08:24.740] AG Bondi: President Trump, at your directive.
+- [08:26.230] We went in, as you all know, to D.C.
+- [08:28.490] and took over the city of D.C.
+- [08:31.130] working hand-in-hand with Metro Transit Authority.
+- [08:33.640] All of the agencies represented here today,
+- [08:35.920] got over 2,000 violent offenders,
+- [08:38.110] got over 200 guns off the streets of D.C.
+- [08:41.960] And D.C. is safe again.
+- [08:43.440] And now, governor, working with you
+- [08:45.090] and working with our two U.S. senators
+- [08:46.780] and all of our agencies working hand-in-hand,
+- [08:49.300] we're going to do everything we can to make Memphis safe again.
+- [08:51.970] That was President Trump's directive to us,
+- [08:53.570] and it's easy to do when you're working with such great leaders.
+- [08:57.000] And Secretary Noem, you have been instrumental in this.
+- [09:00.200] And Director Patel has already been into Memphis
+- [09:03.310] and gotten so many violent offenders
+- [09:04.920] and guns off the street, and that's what started it.
+- [09:07.390] And working, Stephen and Deputy Attorney General Todd
+- [09:11.370] Blanche, thank you.
+- [09:12.590] We've all been going nonstop, working hand-in-hand together.
+- [09:15.480] And Gady Serralta, Terry Cole,
+- [09:17.680] and Director Driscoll of ATF wearing two hats,
+- [09:21.380] and Pete Hegseth with the National Guard,
+- [09:23.610] all working hand in hand and being out there for a month.
+- [09:26.960] You can't tell who's with what agency,
+- [09:29.220] but for the T-shirt they're wearing,
+- [09:30.650] because everyone's working hand in hand,
+- [09:32.200] and that's why we've been so successful.
+- [09:33.810] We're going to do that in Memphis
+- [09:35.090] and we're going to get crime off the streets.
+- [09:36.670] The President: That's great. Thank you, Pam. Great job.
+- [09:37.890] Pam Bondi: Thanks, Mr. President.
+- [09:39.110] The President: Kristi, go ahead.
+- [09:40.330] Sectretary Noem: Mr. President, Memphis has a high number
+- [09:42.500] of trafficking, significant human traffickers,
+- [09:45.860] child exploitation, drug trafficking,
+- [09:48.600] the local gangs they're extremely dangerous.
+- [09:50.980] And I'm so excited that you're going in there to work
+- [09:54.290] with not just the governor and willing local leaders,
+- [09:57.560] but also our Attorney General and all the leaders
+- [10:00.000] that are standing here today to help protect our children.
+- [10:02.190] So, what's going to change dramatically
+- [10:04.270] is the family's lives that live there.
+- [10:06.220] And it's only going to happen because of you,
+- [10:08.320] because you're coming in.
+- [10:09.670] What has started there you're going to put on steroids.
+- [10:12.330] The networks that you're going to uncover across this country,
+- [10:15.480] because of the work that's going to happen in Memphis,
+- [10:17.750] we're going to see every city get safer
+- [10:19.550] because we're going to see those ties to other criminals
+- [10:21.660] that we're going to get out of the country.
+- [10:23.220] So, we're a nation of laws.
+- [10:25.690] And sir, thank you for caring about every single city.
+- [10:27.830] The President: Thank you, Kristi. Really nice.
+- [10:29.480] And what makes it to me so exciting
+- [10:31.600] is the success we had here so quickly,
+- [10:34.190] and we've taken close to 1,500 people out of D.C.
+- [10:39.920] But, when I saw the result happen so quickly,
+- [10:42.080] and so many people are so thankful,
+- [10:44.070] and people that pass them every day and they're fine,
+- [10:48.610] all of a sudden they're thanking me so profusely.
+- [10:51.170] It was so exciting what's happened,
+- [10:52.950] it continues to be, what happened in D.C.
+- [10:55.660] And so, that's what makes this, I think, even more exciting.
+- [10:58.140] Because, we know what's going to happen.
+- [10:59.740] We have the people -- Look, we're sending in a lot of help.
+- [11:03.520] These cities have been taken over for years.
+- [11:05.560] And the last four years under Biden,
+- [11:07.840] what's happened is just a disgrace.
+- [11:09.670] So, it really has what -- The success we've had here
+- [11:14.160] has made it to me much more exciting,
+- [11:16.020] because, I think, we're going to have proportionally --
+- [11:19.010] You have cases where it's even worse.
+- [11:20.650] I have some people --
+- [11:22.400] We have some people quoted today that we took out of papers.
+- [11:25.700] "We're so grateful for the National Guard coming,"
+- [11:28.770] said an owner of a Memphis tax service.
+- [11:31.030] "It's so dangerous here, it's so darn dangerous
+- [11:34.610] that you can't get out of your car.
+- [11:36.190] If you get out of your car,"
+- [11:37.430] it says, "You get robbed, you get mugged, you get hit.
+- [11:40.470] You can't go to the market or a service station."
+- [11:43.760] So yeah, I want to see crime stop.
+- [11:45.470] And I want to see the National Guard come in right away
+- [11:47.690] if that's what's necessary. "There's a need --"
+- [11:50.090] Here's another one from a director
+- [11:52.430] of a Memphis-based crime prevention organization,
+- [11:54.920] "There's a need for more boots on the ground.
+- [11:56.700] You have to get them done fast before we totally lose it."
+- [11:59.490] They're going to lose it all.
+- [12:01.230] "I got two guns put in my face," said another,
+- [12:03.610] "within five minutes at two different locations."
+- [12:07.270] He said, "I got a gun put in my face,
+- [12:08.770] then I went someplace else, had another gun put in my face.
+- [12:12.220] I was scared. It never happened to me.
+- [12:13.950] I've never seen anything like it."
+- [12:15.280] Here's another one,
+- [12:16.510] "I honestly thought he was going to kill me,"
+- [12:19.520] said a 60-year-old Memphis carjacking victim.
+- [12:22.930] "A man walked up, 'Give me your car,
+- [12:24.870] you got five seconds to get out, or you're dead.'"
+- [12:27.990] This is what we have,
+- [12:29.350] and there's page after page of the same kind of thing.
+- [12:31.820] Kash, would you say a few words please?
+- [12:34.240] Director Patel: Thank you, Mr. President.
+- [12:35.810] Thanks to your brilliant foresight,
+- [12:37.980] you had asked us to go in quietly into these cities
+- [12:40.720] to help set the landscape to work with the inter-agency
+- [12:43.660] and to make America safe again.
+- [12:45.310] And we've done that under the FBI's banner program
+- [12:48.410] of Operation Summer Heat.
+- [12:49.910] And the results are only as good as the prosecutions.
+- [12:54.180] And because the Attorney General and the Deputy Attorney General
+- [12:57.190] have mobilized DoJ to successfully prosecute
+- [13:00.100] so many violent criminals, we have set the landscape
+- [13:02.860] for the inter-agency to come into Memphis
+- [13:04.960] and really make it safe permanently.
+- [13:07.430] As the governor and the senators
+- [13:08.700] and the other directors were saying,
+- [13:10.200] it's not a short-term mission,
+- [13:11.430] but thanks to you launching us early,
+- [13:13.380] launching us quietly, not looking for the credit,
+- [13:15.540] Mr. President, we greatly appreciate your support
+- [13:17.900] and the advanced foresight you had doing that.
+- [13:19.610] The President: It's so exciting and somebody had to do this.
+- [13:22.110] A president should have stepped up long ago
+- [13:24.040] and saved these cities.
+- [13:25.290] So it's not that I wanted to do it, believe me.
+- [13:27.790] Somebody had to do it and we're doing it in a big way.
+- [13:31.270] Pete, could you say a few words, please?
+- [13:33.330] Secretary Hegseth: Yes, Mr. President.
+- [13:35.150] From day one, the DoD, excuse me,
+- [13:37.450] the DoW, the Department of War --
+- [13:40.700] The President: I'm glad you made that correction.
+- [13:41.990] Secretary Hegseth: Corrected it for you, sir.
+- [13:44.200] Has been proud to stand with our partners
+- [13:45.890] across the inter-agency,
+- [13:47.540] whether it's the Southwest border,
+- [13:49.130] whether it's Los Angeles, getting ahead of that,
+- [13:51.150] whether it's right here in Washington, D.C.
+- [13:52.860] where Secretary Driscoll and the Army
+- [13:56.050] and the National Guard have taken the lead
+- [13:57.480] in helping across all of these great folks to secure the city.
+- [14:00.390] We are very proud to be here,
+- [14:01.730] to stand strong alongside law enforcement.
+- [14:04.580] We're glad that Memphis is the place to go,
+- [14:06.910] The Volunteer State.
+- [14:08.150] We're not going to have any problems
+- [14:09.490] with the Tennessee National Guard being willing to go in
+- [14:12.140] and stand strong within the circle.
+- [14:13.640] The President: Not at all, not at all.
+- [14:14.840] They're getting ready because you'll be doing
+- [14:16.470] a lot of other places that are almost as troubled.
+- [14:20.310] Some of them are equal.
+- [14:21.640] You look at what's going on in Baltimore
+- [14:23.260] where the governor is telling me how wonderful it is,
+- [14:25.200] and you can't walk across the street without being shot.
+- [14:28.790] Could I ask our two great senators
+- [14:30.110] to say a few are, please? Please, Marsha.
+- [14:31.530] Senator Blackburn: Of course.
+- [14:32.730] Mr. President, thank you so much.
+- [14:35.580] I want to say a thank you to Director Patel,
+- [14:40.090] because he had promised that he would come into Memphis.
+- [14:44.230] We've had Operation Viper there this summer.
+- [14:48.800] There have been over 500 arrests,
+- [14:51.200] there are over a hundred indictments,
+- [14:53.880] and Memphis had the best stats
+- [14:57.380] they have had in years this past August, last month.
+- [15:02.820] It was the best August they have had
+- [15:04.810] and it's because of the work that's been done.
+- [15:07.960] And now to have a new phase of this enforcement for Memphis,
+- [15:13.900] where we are going to have all of these agencies
+- [15:16.790] working as a team, as the governor said,
+- [15:19.420] making certain that this is a long-term effort
+- [15:23.770] to make Memphis safe again.
+- [15:25.430] Mr. President, we are so grateful and we thank you.
+- [15:28.360] The President: Thank you.
+- [15:29.620] Senator Hagerty: Yeah, thanks Mr. President.
+- [15:30.820] And this is an issue that's plagued Memphis
+- [15:32.850] since I was a boy, Mr. President,
+- [15:34.570] and it's time that we addressed it.
+- [15:36.030] And I appreciate your leadership allowing us to do that.
+- [15:38.630] And the team that you've assembled here
+- [15:40.590] is going to help us deliver the most fundamental responsibility
+- [15:43.570] of our government, and that's public safety.
+- [15:46.000] This shouldn't be a partisan issue.
+- [15:48.070] This should be something that is our primary goal,
+- [15:50.590] and certainly I hope to see Memphis
+- [15:52.030] become the safest city in America
+- [15:54.050] thanks for the effort of all of your team here
+- [15:56.610] to make us make certain that happens.
+- [15:58.160] Thank you, Governor Lee, and I want to say thanks
+- [16:00.160] to the Memphis Police Department and the Sheriff's Department
+- [16:02.150] there too who have all worked closely to bring this together.
+- [16:05.310] I look forward to tremendous results.
+- [16:07.420] The President: And I want to thank the FBI
+- [16:08.670] for the last four or five months,
+- [16:10.200] because they have brought down the numbers quite a bit,
+- [16:12.020] Chicago here and a couple of other places
+- [16:14.050] that we can talk about later if anybody wants to.
+- [16:17.720] Could I ask you two, Terry, Danny,
+- [16:19.720] to say a couple of words?
+- [16:21.040] Also, you really did lead the charge here
+- [16:24.460] and you've done such a great job. Please.
+- [16:26.090] Terry Cole: Mr. President,
+- [16:27.360] thank you for always supporting law enforcement.
+- [16:29.580] I think the major difference here in Washington D.C.
+- [16:31.920] has been your support for law enforcement,
+- [16:33.960] has been empowering the men and women
+- [16:35.570] that are on the street working every single day.
+- [16:38.100] And I look forward to not only going to Memphis
+- [16:40.100] but other places in Tennessee as well.
+- [16:42.120] And I think you'll hear from us real soon, Mr. President.
+- [16:43.950] Thank you for your support, sir.
+- [16:45.190] The President: We have plenty of places.
+- [16:46.470] Terry Cole: Yes sir, we do.
+- [16:47.690] The President: You know the country very well.
+- [16:49.420] That's great. Thank you, Jerry. Please.
+- [16:50.820] Daniel Salter: Thanks, Mr. President.
+- [16:52.020] I just want to say that we're honored once again
+- [16:54.300] to lead the charge with the United States Marshals Service,
+- [16:58.620] leading and joining 22 other federal agencies.
+- [17:03.820] I can say that today we spoke
+- [17:06.780] with over 30 of the local agencies
+- [17:12.330] letting them know what to expect,
+- [17:14.880] giving them the template that we've done here in D.C.,
+- [17:19.160] so they know what to expect. They're extremely excited.
+- [17:21.930] I think everyone is going to be
+- [17:25.040] well-receiving the law enforcement surge
+- [17:27.690] that we're about to take to Memphis.
+- [17:29.580] The President: Thank you. Great job.
+- [17:31.000] And I'm going to ask one of the best lawyers in the country,
+- [17:33.350] he is one of the best, Todd, say a few words please.
+- [17:37.110] He is a great lawyer.
+- [17:38.510] AG Blanche: Thank you, Mr. President. Yeah.
+- [17:39.900] Look, I think it's been said for the past 15 minutes,
+- [17:44.000] the President ran on making this country safe again.
+- [17:47.460] And we do not make this country safe again
+- [17:49.690] unless we go into our cities
+- [17:50.910] where there's the most violent among us
+- [17:53.100] and go street by street and block by block
+- [17:55.850] and arrest the men and women in this country
+- [18:00.000] that are destroying cities and communities for the rest of us.
+- [18:02.570] And so, what we plan on doing,
+- [18:04.230] as the Governor said and the Senator just said,
+- [18:06.210] this has been a problem in Memphis for a long time.
+- [18:08.580] We plan on delivering Memphis back to the citizens
+- [18:11.650] that are there to raise their families,
+- [18:14.690] to go to church, to be in their communities.
+- [18:17.250] That's our goal and that's what we plan on doing.
+- [18:19.340] Whether it takes two weeks or two years,
+- [18:22.220] that's what we're going to do.
+- [18:23.500] The President: Thanks, Todd.
+- [18:25.000] The great Stephen Miller, please say a few words.
+- [18:27.670] Deputy Miller: Thank you, Mr. President.
+- [18:28.920] The President: Show the same emotion you do on calls.
+- [18:31.920] That's hard to do.
+- [18:33.170] Deputy Miller: Yes, it is. Let's see if I can do it.
+- [18:37.020] President Trump's initiative here in Washington, D.C.,
+- [18:40.240] it's important to understand,
+- [18:41.470] is the most successful anti-crime initiative
+- [18:44.640] in American history.
+- [18:46.190] Just think about it for a second.
+- [18:48.600] In 30 days, President Trump put together a team
+- [18:52.460] that saw the largest ever violent crime reduction
+- [18:55.210] in any city in American history,
+- [18:57.450] something that people had not been able to do in 40 years.
+- [19:00.830] That is a momentous achievement.
+- [19:03.110] And now the President is going to take
+- [19:04.630] that same model to Memphis,
+- [19:06.310] and as he said, more cities after that.
+- [19:08.960] The team the President has put together has no equal today
+- [19:12.640] or anywhere in American history.
+- [19:14.190] I think what's happening here is that what the President has done
+- [19:17.490] is made clear the power of federal law enforcement
+- [19:20.550] that was used for the last four years to harass
+- [19:23.420] and attack conservatives, to harass and attack Christians,
+- [19:27.080] to go after law-abiding families,
+- [19:29.170] the power of law enforcement under President Trump
+- [19:31.320] is going to be used to get all the criminals,
+- [19:33.920] all the violent offenders,
+- [19:35.260] all the murderers, all the cartels,
+- [19:37.220] and all the domestic terrorists off our streets.
+- [19:39.440] So whether you're Antifa,
+- [19:41.250] whether you're a domestic terrorist,
+- [19:43.030] whether you are a violent gang member,
+- [19:44.870] a drug trafficker, a Tren de Aragua killer,
+- [19:48.300] or anyone else assaulting our people,
+- [19:49.690] President Trump is saying he's going to use his FBI,
+- [19:52.690] his DoD, his ATF, his DEA to wipe you out,
+- [19:56.740] to put you behind bars, to take you off the street,
+- [19:59.940] or to apply whatever legal consequence is necessary.
+- [20:02.630] Mr. President, I'm honored beyond words
+- [20:04.700] to be a part of this team under your leadership
+- [20:06.710] as you've saved thousands of lives.
+- [20:09.010] The President: Thank you very much.
+- [20:10.230] Come on over. Let's sign that bill.
+- [20:11.750] Do you want to say anything
+- [20:12.990] about our great military real fast?
+- [20:14.630] He's won a job. He's doing this.
+- [20:16.550] General Nordhaus: Mr. President, so our Army National Guard
+- [20:19.180] is honored to be part of this mission.
+- [20:20.900] This is their community.
+- [20:22.140] A lot of them are from D.C., they're from Tennessee.
+- [20:24.220] When you talk to them,
+- [20:25.430] when you talk to the actual population out there
+- [20:27.970] who interact with them every day,
+- [20:29.600] they say it's a blessing to have them as a part of their life.
+- [20:32.230] And then, for the National Guard getting to have this
+- [20:34.740] where they get to improve their communities,
+- [20:36.690] where their kids are growing up and they're going to church
+- [20:39.120] and this is where their families are, many of them, sir,
+- [20:42.270] have said this is the honor of their lifetime, so thank you.
+- [20:44.720] The President: Look at that nice face,
+- [20:46.090] and yet he's a killer. He has nice, beautiful face,
+- [20:49.420] and he's a total killer. I don't know how you do it.
+- [20:53.410] Everybody loves you. All right, here we go.
+- [21:00.870] (applause)
+- [21:13.110] (indistinct conversation)
+- [21:24.450] The President: Well, thank you very much.
+- [21:25.690] Great job. Any questions, please?
+- [21:27.810] Yeah.
+- [21:29.130] The Press: Yeah. First of all, you've got a --
+- [21:31.130] The President: Did they take down the blue tents?
+- [21:32.840] The Press: Yes, sir, they did. Thank you very much.
+- [21:34.400] And I appreciate that.
+- [21:35.630] The President: Last time he hit me with a blue tent
+- [21:36.970] and nobody knew what he was talking about.
+- [21:38.550] We found out, right? The Press: We found out right.
+- [21:40.260] The President: It was gone the next day
+- [21:41.500] and they had a lot of -- that was not so easy.
+- [21:43.800] That's a violent, radical left group.
+- [21:46.830] Okay, go ahead.
+- [21:48.050] The Press: I've heard a lot of comments from doing that.
+- [21:49.770] They still have their first amendment right though.
+- [21:51.230] They still --
+- [21:52.430] The President: Yeah, I know. Well, I'm not --
+- [21:53.810] The Press: You've got an amazing team behind you.
+- [21:55.140] You've done an awesome job for D.C.
+- [21:56.350] The President: Thank you.
+- [21:57.580] The Press: I want to get ahead of a story
+- [21:58.810] that I think might come out.
+- [22:00.080] You pushed out an email earlier today
+- [22:02.820] really showing dozens and dozens of local media
+- [22:06.230] in Memphis highlighting all of the violent crime in that city.
+- [22:11.110] So they have no problem reporting the crime,
+- [22:13.460] but when you show up to solve it,
+- [22:15.560] they're going to run around town
+- [22:16.790] looking for that one person that says,
+- [22:18.730] "We don't want Donald Trump in our city."
+- [22:20.980] What can you say to the media there in Memphis,
+- [22:23.250] Tennessee to help let them know
+- [22:26.400] the people want you there in their city?
+- [22:28.480] The President: Well, I'm not sure they found that person,
+- [22:30.350] because I saw them doing some interviews
+- [22:32.250] and it looked like they were looking, but they were very --
+- [22:35.040] In fact, that producer, that person,
+- [22:37.290] I think they lost their jobs
+- [22:38.580] because everybody was saying we want Trump to be there.
+- [22:41.620] They want the people right here to be there.
+- [22:43.270] Look, it's very simple.
+- [22:45.110] In Chicago, they're getting beat to hell.
+- [22:46.820] They're being shot.
+- [22:48.480] If you lose six or seven people die over a weekend,
+- [22:51.340] they consider that a successful weekend.
+- [22:53.650] And when you consider that a successful weekend,
+- [22:55.270] that's pretty bad.
+- [22:56.510] I had the President of Poland here a few days ago
+- [23:00.430] and we had a news conference. Many of you were here,
+- [23:03.690] and I made the statement, I said,
+- [23:07.000] "We're very happy to announce that it's been over two weeks
+- [23:11.290] since anybody's been killed in D.C."
+- [23:14.230] And he looked at me like, "Is that supposed to be good?"
+- [23:16.160] He is looking like, "What kind of a place is this?"
+- [23:19.890] And now it's been a long time, and as I was saying it, I said,
+- [23:25.390] "I'm not sure if that sounds good to somebody.
+- [23:27.170] It sounded great to you,
+- [23:28.490] but it doesn't sound good to somebody from a country
+- [23:31.200] where they don't have violent crime like we have."
+- [23:34.680] But now it's a long time since that's happened.
+- [23:37.380] We went for years where at least one person was killed.
+- [23:42.960] Now you're not seeing it all. It's like the border.
+- [23:45.980] Millions of people a year ago,
+- [23:47.330] millions of people poured into our country.
+- [23:49.470] In the last three months,
+- [23:50.700] there have been zero as reported by largely Democrats actually.
+- [23:56.780] The border is secure, the country is secure.
+- [23:58.780] We've We've
+- [24:00.050] got the hottest country anywhere in the world.
+- [24:02.390] And I'll tell you, a year ago,
+- [24:04.490] we were a country in tremendous trouble.
+- [24:06.210] Probably a dead country if it continued.
+- [24:09.410] So we're very happy about it.
+- [24:10.840] And so just in terms of your question,
+- [24:13.570] people have never seen anything like what we're doing.
+- [24:15.490] And I think they're very happy and they want us to be there.
+- [24:17.510] They don't want to be mugged. Who would say,
+- [24:19.960] "Gee, I don't want the National Guard."
+- [24:23.240] And you need that in terms of numbers.
+- [24:24.960] And also you look at those guys,
+- [24:26.390] I looked at them, they're rough guys.
+- [24:29.340] The Supreme Court voted recently on merit.
+- [24:32.740] We're a merit-based country again.
+- [24:34.710] I said they had tremendous courage to do that.
+- [24:38.080] We're a merit-based country again.
+- [24:40.960] When I looked at the people that were patrolling the streets
+- [24:44.380] for the National Garden and for others,
+- [24:47.470] I could see we're merit-based.
+- [24:49.480] They were rough-looking, they were tough-looking,
+- [24:51.170] and they love our country.
+- [24:52.380] So that's where we are. Brian, thank you.
+- [24:54.720] Thank you very much. Yeah, please.
+- [24:57.770] The Press: Yes. Given with all that's going on
+- [25:00.510] with Charlie Kirk's assassination and the left-wing,
+- [25:03.670] a lot of left-wing violence going on, do you have plans,
+- [25:07.480] and actually this is a great opportunity
+- [25:09.350] with all these people here, do you plan on designating
+- [25:13.170] Antifa finally a domestic terror organization?
+- [25:17.410] The President: Well, it's something I would do, yeah.
+- [25:19.900] If I have support from the people back here,
+- [25:21.840] I think would start with Pam, I think.
+- [25:25.880] I would do that 100 percent.
+- [25:27.350] And others also, by the way, but Antifa is terrible.
+- [25:31.100] The Press: Are there other groups that you can think of?
+- [25:32.620] The President: There are other groups,
+- [25:33.950] yeah, there are other groups.
+- [25:35.160] We have some pretty radical groups
+- [25:36.420] and they got away with murder.
+- [25:38.120] And also, I've been speaking to the attorney general
+- [25:41.110] about bringing RICO against some of the people
+- [25:43.980] that you've been reading about that have been putting up
+- [25:45.970] millions and millions of dollars for agitation.
+- [25:49.070] These aren't protests, these are crimes what they're doing,
+- [25:51.770] where they're throwing bricks at cars of ICE and border patrol.
+- [25:56.760] And they come in with a beautiful new car,
+- [25:59.050] they're so proud.
+- [26:00.300] It's border patrol, ICE, it's got whatever it is,
+- [26:03.370] and they're throwing rocks at it.
+- [26:06.230] And after 50 yards, it looks like an old beat-up vehicle.
+- [26:09.390] It was just brand new. It was just bought for the purposes.
+- [26:12.580] And they don't have to take that anymore.
+- [26:13.990] I let it be known. We'll take responsibility.
+- [26:16.660] They don't have to take it anymore
+- [26:18.010] and they don't want to take it.
+- [26:19.760] They were told by a past administration,
+- [26:23.770] it became almost a culture,
+- [26:25.830] if somebody throws a rock at you, do nothing.
+- [26:29.110] If somebody spits in your face, do nothing.
+- [26:32.510] And I say when they spit, you hit.
+- [26:34.650] You do whatever you want.
+- [26:36.340] You do whatever the hell you want.
+- [26:37.640] I watched it, so sick it made me,
+- [26:40.880] for four years I had to sit home
+- [26:42.330] and watch people screaming at policemen
+- [26:46.720] and spitting in their face
+- [26:48.150] and they weren't able to do anything.
+- [26:49.520] They just had a grin and bear there,
+- [26:51.460] standing up like a piece of steel.
+- [26:54.640] And a woman, in many cases, women,
+- [26:57.230] you could see they're professional agitators.
+- [26:59.070] I had one the other night, I had four the other night,
+- [27:01.640] all in one group. Total phonies.
+- [27:04.330] Started to scream when I got into a restaurant,
+- [27:06.680] oh, something with Palestine. And I said,
+- [27:09.820] "Well, I'm doing a great job for peace in the Middle East.
+- [27:12.770] I should get lots of awards for that
+- [27:14.950] with the Abraham Accords and everything else."
+- [27:17.380] But a woman just stood up and started screaming
+- [27:20.670] and she got booed out of the place too.
+- [27:22.450] There were a lot of people in the restaurant.
+- [27:24.520] I went there to show how safe -- And it was safe.
+- [27:26.540] I mean, the woman is just a mouthpiece, all she was.
+- [27:30.120] She was a paid agitator. And you have a lot of them.
+- [27:33.770] And I've asked Pam to look into that in terms of RICO,
+- [27:36.820] bringing RICO cases against -- a criminal RICO
+- [27:39.880] because they should be put in jail.
+- [27:41.190] What they're doing to this country is really subversive.
+- [27:46.920] The Press: Mr. President,
+- [27:48.130] can I ask you one more time and one on Charlie Kirk.
+- [27:51.490] You floated potentially going into St. Louis,
+- [27:53.950] you mentioned you want to go into Chicago next.
+- [27:55.960] Could St. Louis be after Chicago?
+- [27:57.550] The President: It's going to be around there someplace, yeah.
+- [27:59.080] We got to save St. Louis. Got to save these cities.
+- [28:01.650] This isn't like we're going to do something --
+- [28:04.520] We have to save St. Louis.
+- [28:06.370] We have to save Chicago. I know all about Chicago.
+- [28:10.140] I have a great, beautiful building, I'm so proud of it.
+- [28:14.480] But you get less proud when you see all the crime.
+- [28:17.180] When they announced two weeks,
+- [28:18.780] 11 people killed just over a weekend.
+- [28:23.430] I think they said 38 people shot and 11 people dead.
+- [28:27.890] And then you watch Pritzker get up and say, "
+- [28:30.590] We've got crime under control."
+- [28:32.290] And I will say that Kash and the FBI did a good job.
+- [28:35.660] With a very light force they went in and for the --
+- [28:37.730] about four months, Kash, or so?
+- [28:38.980] Kash Patel: Yes, sir.
+- [28:40.270] The President: They've been working on keeping crime down.
+- [28:41.720] They have brought the numbers down a little bit,
+- [28:43.480] but those are the easy numbers.
+- [28:45.160] The first 20, 25 percent of the easy numbers.
+- [28:49.350] Then you have to bring in the big forces
+- [28:51.570] which is what we always intended to do.
+- [28:53.770] But I think the FBI has done a very good job,
+- [28:56.120] in particular in Memphis and Chicago.
+- [28:58.560] They've brought it down a little bit,
+- [29:00.760] like 20 percent and 25 percent.
+- [29:03.100] I guess it's not so little, but we have a long way to go.
+- [29:07.040] We think Chicago is going to be next
+- [29:08.970] and we'll get to St. Louis also.
+- [29:11.060] The Press: And on Charlie Kirk's assassination?
+- [29:12.430] The President: And New Orleans we want to get to too.
+- [29:14.610] The Press: Your FBI's investigating the potential role
+- [29:17.250] of left-wing organizations in the assassination.
+- [29:19.570] I'm wondering if you think if Charlie Kirk's assassin
+- [29:23.230] worked alone or if he worked with --
+- [29:24.750] The President: I don't know.
+- [29:25.980] I mean, I can tell you he didn't work alone on the internet
+- [29:28.670] because it seems that he became radicalized on the internet.
+- [29:32.240] That's just by watching the same things
+- [29:34.650] that you're watching and hearing.
+- [29:37.220] It looks like he became radicalized over the internet.
+- [29:40.850] And it seems like his wonderful parents,
+- [29:43.710] brought in a wonderful neighborhood,
+- [29:45.210] smart guy, great boards, great marks, great student.
+- [29:51.260] And then something happened to him
+- [29:53.070] over a fairly short period of time.
+- [29:54.770] Looks like he was radicalized over the internet
+- [29:57.240] and it's radicalized on the left. He's a left.
+- [30:00.650] Have a lot of problems with the left
+- [30:02.270] and they get protected and they shouldn't be protected,
+- [30:05.580] but as you understand I think very well
+- [30:07.490] from the tone of your question. Thank you very much.
+- [30:09.810] The Press: On Venezuela (inaudible)
+- [30:11.020] and on Israel. First on Venezuela,
+- [30:13.530] what can you tell us about this Venezuelan boat
+- [30:16.670] that was taken out, and do you plan to provide proof
+- [30:20.490] that these were narcoterrorists who were on their way to the US?
+- [30:23.030] The President: Well, we have proof.
+- [30:24.260] All you have to do is look at the cargo that was --
+- [30:27.090] It spattered all over the ocean.
+- [30:29.170] Big bags of cocaine and fentanyl all over the place.
+- [30:34.360] Plus we have recorded evidence that they were leaving.
+- [30:37.820] We've recorded them. It was very careful
+- [30:39.560] because we know you people would be after us.
+- [30:41.140] We're very careful. The military has been amazing.
+- [30:44.630] And General Caine showed me a little while ago the clip,
+- [30:48.920] but you could actually see it, but you don't have to see it
+- [30:52.100] because we have recorded proof and evidence.
+- [30:54.870] We know what time they were leaving,
+- [30:56.820] when they were leaving, what they had
+- [30:58.260] and all of the other things that you'd like to have.
+- [31:01.530] But we have noticed
+- [31:02.790] that there are no ships in the ocean anymore.
+- [31:05.010] We're seeing that there's no ships.
+- [31:08.250] The first one we went, there were hundreds of boats.
+- [31:12.930] Now there are no boats. I wonder why?
+- [31:15.980] Meaning no drugs are coming across.
+- [31:17.940] Probably stopping some fishermen too.
+- [31:19.880] I mean, to be honest, if I were a fisherman,
+- [31:21.490] I wouldn't want to go fishing here.
+- [31:24.080] Let's take a little trip, because I'd say,
+- [31:26.960] "Man, maybe they think I have drugs downstairs.
+- [31:30.010] I don't want that."
+- [31:31.270] I think the fishing business probably have been hurt.
+- [31:33.260] But there are literally no boats.
+- [31:36.860] This was a boat and we were surprised to see it.
+- [31:39.590] Now what does that mean?
+- [31:40.990] That means there's no drugs coming by sea.
+- [31:43.530] But they do come by land, and you know what?
+- [31:46.800] We're telling the cartels right now,
+- [31:48.510] we're going to be stopping them too.
+- [31:50.500] When they come by land, we're going to be stopping them
+- [31:52.350] the same way we stop the boats. And you'll see that.
+- [31:56.090] But maybe by talking about it a little bit, it won't happen.
+- [31:58.810] If it doesn't happen, that's good.
+- [32:00.490] But they killed 300,000 people in our country last year
+- [32:04.840] and we're not letting it happen anymore.
+- [32:06.470] The Press: And then on Israel,
+- [32:07.700] did Bibi Netanyahu speak to you directly to alert you
+- [32:12.200] that Israel was going to be striking Hamas sites in Qatar?
+- [32:16.570] The President: No. No. No, he didn't. No, he didn't.
+- [32:18.660] The Press: How did you come to learn of it?
+- [32:20.930] The President: Same way you did. Go ahead, please.
+- [32:22.370] The Press: Mr. President,
+- [32:23.580] you mentioned that the shooter was radicalized online.
+- [32:26.330] Do you believe that social media --
+- [32:27.910] The President: By the way, when I say that,
+- [32:29.310] that's my opinion.
+- [32:31.320] I think he was radicalized online
+- [32:32.960] based on what they're saying.
+- [32:34.170] The Press: Do social media companies
+- [32:35.390] bear any responsibility for that
+- [32:36.810] and how (inaudible)?
+- [32:38.060] The President: I'm going to have to ask --
+- [32:39.270] I don't know. I'd ask Pam that question.
+- [32:40.630] I don't know if you or Todd could give an answer to that.
+- [32:42.990] Somebody has to bear some responsibility.
+- [32:45.320] AG Bondi: And, President Trump, I've always told parents,
+- [32:47.120] you got to watch what your kids are doing on the internet.
+- [32:49.550] What they're doing online, what they're listening to,
+- [32:52.540] what they're reading. They're all online.
+- [32:54.120] They're all on their phones all the time.
+- [32:56.410] Parents have got to monitor that
+- [32:57.870] because this starts when you're young.
+- [32:59.750] This starts when you're young, when you listen to these groups,
+- [33:02.080] when you watch these shows.
+- [33:03.840] And parents have got to just be vigilant.
+- [33:05.820] So sure, that's part of it.
+- [33:07.200] And they're meeting kids online who they think are kids
+- [33:09.630] and they can be anywhere in the world and talking to them.
+- [33:12.110] And yeah, they are being radicalized.
+- [33:15.210] The President: He went bad
+- [33:16.450] and he just went bad very quickly in a sense,
+- [33:19.400] because he sort of led a very normal life.
+- [33:23.140] A life of great education, schools, everything else.
+- [33:26.900] But somewhere along the line, something happened.
+- [33:29.060] Yeah, please?
+- [33:30.330] The Press: Mr. President,
+- [33:32.560] how will you send the National Guard into Chicago
+- [33:35.180] without the cooperation of the governor and the mayor?
+- [33:37.580] The President: Well, if they do cooperate, that's good.
+- [33:39.190] If they don't, it's not going to matter to us at all.
+- [33:41.480] Who wants to help us? Police department.
+- [33:43.930] They have no respect for the governor.
+- [33:46.340] They have no respect for the mayor.
+- [33:49.610] They respect us. And we found that in Washington.
+- [33:52.970] We haven't had total support in Washington from government,
+- [33:56.310] as you know, from everybody.
+- [33:58.520] I don't want to say the mayor because she's better than most,
+- [34:00.830] but we haven't had great, great --
+- [34:03.540] But we have had great support from the Metropolitan Police.
+- [34:08.900] They're like brothers of these people.
+- [34:11.100] They're really like brothers.
+- [34:12.360] You see that, they work together.
+- [34:14.500] And so if the governor wants the support --
+- [34:17.360] As I said to Bill, it's going to be his proudest moment
+- [34:21.120] what he's going to do, the governor of Tennessee,
+- [34:23.230] what's going to happen with Memphis.
+- [34:24.490] And three, four weeks, we'll stand together and we'll say,
+- [34:26.940] "Look at this. The crime has almost disappeared,
+- [34:29.240] maybe completely disappeared."
+- [34:31.170] In Washington they don't even know how to record it
+- [34:33.890] because it's down so much. I heard 87 percent is down.
+- [34:39.460] I said, "Really, who are the 13 percent?"
+- [34:42.280] Because it's more than that.
+- [34:43.880] It's actually hard to believe, right?
+- [34:45.470] You're going to have the same results in Chicago,
+- [34:48.920] and we hope we have the governor's help,
+- [34:50.790] but if we don't, we're doing it without them.
+- [34:52.810] The Press: Mr. President, you had the framework
+- [34:56.070] that's been agreed to with TikTok, for example.
+- [34:58.660] Will China continue to have a stake in the company
+- [35:00.340] or will it (inaudible)?
+- [35:01.570] The President: Well, we haven't decided that,
+- [35:02.790] but it looks to me --
+- [35:04.000] And I'm speaking to President Xi on Friday
+- [35:06.930] for confirmation of that,
+- [35:08.470] and frankly more importantly, a big deal.
+- [35:12.310] And we've had very good meetings.
+- [35:14.790] As you know, we were in Europe, our people,
+- [35:16.880] Scott Bessent and Jameson, or Jameson Greer and others,
+- [35:21.800] and it was a very big meeting with China
+- [35:26.040] and they're treating us with respect.
+- [35:28.740] We treat them with respect too. But it was very successful.
+- [35:32.750] And on top of it we have what could be a very good deal.
+- [35:37.550] Don't forget, I've had more people say,
+- [35:39.900] "Could you try to keep TikTok alive?"
+- [35:41.740] I use TikTok. I mean, I have to admit it, in the election.
+- [35:44.890] And look how I did with youth.
+- [35:46.220] No Republicans come close. I blew everyone away.
+- [35:50.410] If you look back not so long ago, Romney,
+- [35:53.070] he got like 7 percent of the youth.
+- [35:56.160] I got eight times that amount, I guess.
+- [36:00.660] The President: I got tremendous numbers of youth.
+- [36:02.200] By the way, I want to say,
+- [36:04.250] Charlie helped me and Charlie was the one, "Get on TikTok."
+- [36:08.290] He used to say to me, "Get on TikTok."
+- [36:10.850] Charlie was unbelievable.
+- [36:12.330] So, probably, and I did, I had somebody named TikTok Jack,
+- [36:18.110] and he'd put that camera, he said,
+- [36:19.820] "Just a real quick statement, sir, like 10 seconds or less."
+- [36:24.060] They didn't like anything over 10 seconds, but it worked.
+- [36:27.460] But Charlie is the one that really --
+- [36:30.130] And my son Barron also, and I have to say
+- [36:33.240] Don, Eric, the whole group, it's important,
+- [36:37.520] and it can maybe even bring us closer to China.
+- [36:40.770] We had a very good meeting with China.
+- [36:42.280] I was surprised. I didn't expect it to that extent.
+- [36:45.490] And I'm going to speak again with President Xi on Friday.
+- [36:50.240] I think that'll confirm things up.
+- [36:51.830] The Press: Mr. President, just a quick question
+- [36:53.800] on Charlie Kirk and crime.
+- [36:55.570] On Charlie Kirk, do you plan to speak at the funeral,
+- [36:58.760] and what would your message be?
+- [37:00.140] The President: Well, I'm going on Sunday.
+- [37:01.380] We're taking a whole planeload and having --
+- [37:05.260] I was invited on Saturday,
+- [37:06.910] but I said I'd rather save it for Sunday.
+- [37:08.960] We're going to have a stadium,
+- [37:11.550] and I'll bet that stadium is going to be pretty packed,
+- [37:15.100] maybe completely packed. It's going to be big.
+- [37:17.470] But I'm going to be at the stadium
+- [37:18.680] and I guess I'll say a few words,
+- [37:20.230] I don't know, but I guess I will.
+- [37:22.600] But I knew him very well. He was an amazing guy.
+- [37:25.840] He was an amazing guy.
+- [37:28.360] He was all about young people, getting them started right,
+- [37:32.560] and he was like a magnet for young people.
+- [37:37.270] They just attracted to him.
+- [37:38.850] He loved them and they attracted to him.
+- [37:41.310] His wife is a tremendous person, by the way.
+- [37:43.830] He always had great respect for his wife.
+- [37:45.400] He got married. I didn't know he was getting married.
+- [37:48.230] He already got married. And he loved her.
+- [37:51.990] He really loved her. She loved him.
+- [37:54.390] And I think she'll have something to do
+- [37:56.000] with keeping that whole thing going.
+- [37:59.280] Turning Point is -- It became a very big deal,
+- [38:02.770] and I heard they had like 38,000 --
+- [38:05.170] So, he wanted to get it up to 20,000 chapters.
+- [38:07.450] That's a lot. That would've been a lifetime's work.
+- [38:09.820] I heard that over the last four days,
+- [38:12.890] they had 38,000 chapters at colleges,
+- [38:17.760] schools, other places,
+- [38:20.770] numbers that nobody's ever heard of, numbers like that.
+- [38:23.490] So, I think Turning Point could be --
+- [38:26.180] Through what happened, this horrible act,
+- [38:28.200] it could be maybe bigger
+- [38:29.800] than it could have ever been had he been there.
+- [38:32.270] And I will say this,
+- [38:33.530] he'd be very happy if he saw what was going on.
+- [38:36.860] And there's some very good people,
+- [38:38.230] because I speak at Turning Point
+- [38:40.330] quite a bit, and Charlie would call me up.
+- [38:43.240] So, the last time I spoke to him, he said, "Sir,"
+- [38:45.120] I think it was Phoenix. "Sir, could you get to Phoenix?"
+- [38:49.880] This was like in a day. I said,
+- [38:51.400] "Charlie, I'm the president of the United States.
+- [38:54.630] You called me asking me if I could speak tomorrow in Phoenix?
+- [38:58.250] You can't do that to me, Charlie."
+- [39:01.100] But usually I ended up going. He was great.
+- [39:04.590] He was a great guy and he didn't deserve this.
+- [39:06.400] He didn't deserve this, believe me.
+- [39:07.780] The Press: (inaudible)
+- [39:08.980] Ilhan Omar, after his assassination,
+- [39:14.210] called Charlie Kirk a "reprehensible" human being.
+- [39:17.500] So, should we strip her committee assignments?
+- [39:19.050] The President: I would.
+- [39:20.310] I would say I think she's a disgraceful person.
+- [39:23.090] I think she's a disgraceful person, a loser.
+- [39:28.450] It's amazing, the way people vote.
+- [39:29.890] I know it's people from her area,
+- [39:32.510] maybe, of the world, I don't know.
+- [39:33.880] They got here and they vote her in, it's hard to believe.
+- [39:36.300] But I think she's a disgusting person.
+- [39:38.500] The Press: And one more question, if I could?
+- [39:39.910] A lot of these, in recent, of these trans shooters
+- [39:42.980] that we've seen over the last couple incidents,
+- [39:46.610] this flag right here is up and down 14th Street.
+- [39:49.340] This is what would be a trans flag.
+- [39:53.030] A lot of people are very threatened by this flag.
+- [39:54.970] It means a lot of different
+- [39:57.160] negative things to people, violence.
+- [39:59.150] Would you be opposed to taking this flag down,
+- [40:01.100] up and down the streets of D.C.?
+- [40:02.320] The President: Well, I wouldn't be.
+- [40:03.540] Then they'll sue and they'll get freedom of speech stuff.
+- [40:05.430] So, that'll happen.
+- [40:06.650] But I would have no problem with it.
+- [40:08.720] I will say, and Steve might just mention this,
+- [40:11.420] Todd, you might mention it too,
+- [40:12.740] because we're putting out an order.
+- [40:14.920] You know freedom of speech means you can burn the American flag?
+- [40:17.910] Which I think is horrible.
+- [40:19.440] But I noticed something over the last little while.
+- [40:22.400] As you do this, you start noticing things
+- [40:24.200] that you wouldn't normally think.
+- [40:26.020] It really causes unrest and violence
+- [40:29.180] when they burn American flag. So, the American flag,
+- [40:33.460] I wanted anybody burns the American flag,
+- [40:35.480] go to jail, based on freedom of speech,
+- [40:37.910] goes to jail immediately,
+- [40:39.810] but the freedom of speech protected them, right?
+- [40:42.130] And that's been argued a couple of times
+- [40:45.200] and it's one of those things.
+- [40:47.410] But you know what hasn't been argued?
+- [40:49.250] And we're going to be arguing and I think very soon,
+- [40:51.080] and that's the violence. They incite violence.
+- [40:53.970] So, I saw it just yesterday. They burned the American flag
+- [40:57.270] and people that were there were fine.
+- [40:59.630] And all of a sudden they're going crazy,
+- [41:01.360] and there's fist fights. It wasn't in Memphis, either.
+- [41:05.260] But I will say it incites violence.
+- [41:09.350] And I think you go, you just do the exact same thing.
+- [41:12.200] Don't use freedom of speech, use the incitement of violence.
+- [41:17.280] It's really -- You got to see, these people were going at it.
+- [41:21.840] And you could burn other things and people just sit there,
+- [41:24.370] they fall asleep.
+- [41:25.590] You burn the American flag and on both sides --
+- [41:28.270] But the level of violence I saw this flag
+- [41:30.340] burning cause was incredible. It was an incitement.
+- [41:32.200] So, I hope you guys are going
+- [41:33.430] to be able to do that, going ahead, right?
+- [41:34.760] The Press: (inaudible)
+- [41:35.960] well, there's also groups called Trans-Tifa,
+- [41:37.690] so perhaps if you can label them a domestic terrorist group,
+- [41:42.060] in all reality, you could take that flag down,
+- [41:44.620] because it would represent the Trans-Tifa.
+- [41:46.210] The President: Well, I think you probably could.
+- [41:48.300] Again, you'll be sued and it's okay.
+- [41:51.720] I've been sued before a couple of times,
+- [41:53.250] you may have seen. Anyway.
+- [41:54.780] The Press: Benjamin Netanyahu said that he doesn't rule out
+- [41:59.070] targeting Hamas anywhere they are.
+- [42:01.520] You said that you don't want to see Qatar hit again.
+- [42:05.440] Are there any guarantees that Qatar (inaudible)?
+- [42:07.320] The President: Well, he won't be hitting in Qatar,
+- [42:09.880] as I call it, Qatar.
+- [42:11.330] You call it Qatar. You're actually more right,
+- [42:13.380] but actually you're allowed to go --
+- [42:15.620] The emir said you can say it any way you want,
+- [42:17.980] but I've always thought of it as Qatar.
+- [42:20.280] I think it's a beautiful sound.
+- [42:22.070] And actually, they've been a very good ally,
+- [42:24.580] and a lot of people don't know that.
+- [42:27.030] But he won't be hitting Qatar,
+- [42:28.540] but he will be maybe going after --
+- [42:31.190] Now, there was an article that I read in a newspaper
+- [42:35.180] just about an hour ago
+- [42:38.530] where Hamas said they're going to use
+- [42:39.950] the 20 hostages as human shields.
+- [42:42.780] They're going to bring them up from the dark tunnels
+- [42:47.070] and they're going to put them in the line of fire,
+- [42:49.620] so that if Israel goes forward, they're going to die.
+- [42:52.990] And I thought that was very terrible.
+- [42:54.440] Then I put out a statement on that, you saw that.
+- [42:56.770] The Press: Mr. President, about Charlie Kirk?
+- [42:58.250] Mr. President, about Charlie Kirk.
+- [43:00.210] In retrospect, given all of the moving ways
+- [43:02.940] that this White House has paid tribute to Charlie Kirk,
+- [43:07.130] do you think it would've been fitting to lower the flags
+- [43:10.620] to half-staff when Melissa Hortman,
+- [43:13.020] the Minnesota House speaker,
+- [43:15.400] was gunned down by an assassin as well?
+- [43:18.010] The President: I'm not familiar. The who?
+- [43:19.370] Journalists: The Minnesota House speaker, a Democrat,
+- [43:22.270] who was assassinated this summer?
+- [43:24.650] The President: Well, if the governor had asked me
+- [43:25.910] to do that, I would've done that.
+- [43:27.370] But the governor of Minnesota didn't ask me.
+- [43:31.340] I wouldn't have thought of that,
+- [43:32.980] but I would've if somebody had asked me.
+- [43:34.960] People make requests for the lowering the flag,
+- [43:37.560] and oftentimes you have to say no,
+- [43:39.420] because it would be a lot of lowering.
+- [43:41.090] The flag would never be up.
+- [43:42.830] Had the governor of Minnesota asked me to do that,
+- [43:45.080] I would've done that, gladly.
+- [43:46.420] The Press: And given the killing of Melissa Hortman,
+- [43:49.370] the attack on Paul Pelosi, the attack on Gabby Giffords,
+- [43:52.810] the attack on the Pennsylvania Governor's mansion,
+- [43:56.180] why make the case that violence is only on one side?
+- [44:00.380] It seems to be taking (inaudible).
+- [44:01.820] The President: I didn't say it's on one side,
+- [44:03.100] but I say the radical left causes tremendous violence,
+- [44:05.840] and they seem to do it in a bigger way.
+- [44:08.010] But the radical left really has caused a lot of problems
+- [44:11.110] for this country.
+- [44:12.460] I really think they hate our country.
+- [44:14.350] Okay, yeah, please.
+- [44:16.520] The Press: This may be related to the RICO
+- [44:18.660] work that you're doing, and I'd like to-
+- [44:20.050] The President: And we are really looking at that seriously.
+- [44:22.030] The Press: Vice President Vance was speaking
+- [44:23.660] with Stephen Miller earlier today about targeting
+- [44:26.990] NGOs that they were saying ferment violence.
+- [44:29.690] Is that that? Can you speak more to that?
+- [44:31.920] And what NGOs specifically are you looking to target, sir?
+- [44:35.410] The President: A number of them. Steve, please.
+- [44:36.820] Stephen Miller: Yeah.
+- [44:38.050] So, I believe what you're referring to
+- [44:39.340] is there are these nonprofit entities that organized,
+- [44:42.780] as the president mentioned, attacks on ICE officers,
+- [44:45.040] attacks on Border Patrol agents, organized doxing campaigns,
+- [44:49.100] which are a violation of federal law.
+- [44:51.500] They break off cement and they bring it into riots.
+- [44:54.560] They have organized drop points for weapons,
+- [44:56.400] organized drop points for gas masks,
+- [44:58.420] organized drop points for all the materials necessary
+- [45:00.970] to launch a riot. Of course, you saw that during
+- [45:02.740] the Black Lives Matter riots as well too.
+- [45:04.590] So, there's this whole network of organizations,
+- [45:06.410] and I think the key point the president's been making
+- [45:08.220] is somebody is paying for all of this.
+- [45:11.090] This is not happening for free.
+- [45:12.790] And so under the president's direction,
+- [45:14.240] the Attorney General is going to find out who is paying for it,
+- [45:17.570] and they will now be criminally liable for paying for violence.
+- [45:22.930] The President: A new thing that I've been seeing
+- [45:24.840] a lot of lately, but never saw it before,
+- [45:27.180] is they're walking in with bricks and rocks and everything,
+- [45:31.200] and the FBI or the Border Patrol or ICE
+- [45:36.230] or the police are grabbing them and taking them away,
+- [45:38.900] and that's great.
+- [45:41.010] And then they whip out a hammer, and it's a beautiful hammer.
+- [45:45.230] Really, it is nice.
+- [45:47.480] This is not a hammer somebody happens to have,
+- [45:49.280] these are serious hammers, beautiful, brand new hammers,
+- [45:53.220] and they start breaking up the concrete sidewalks
+- [45:55.450] and the granite curbs, in many cases.
+- [45:58.260] Granite is hard to cut, you know? It's very hard stone.
+- [46:00.930] And they're banging away and handing out pieces of stone.
+- [46:03.530] So, instead of having it in bags,
+- [46:06.460] they're banging the sidewalk, knocking down --
+- [46:08.770] You have to see what some of these sidewalks look like
+- [46:10.810] when they finish, and especially the curbs,
+- [46:12.810] because the granite curbs are very, very expensive,
+- [46:15.250] and they're great, and very hard.
+- [46:18.020] They are almost indestructible,
+- [46:19.680] but not when it gets pounded on for 20 minutes
+- [46:22.550] by some pretty strong guy.
+- [46:24.740] And then they hand out big chunks of stone
+- [46:27.540] so that people can throw them at the police,
+- [46:29.370] and people can drop them off bridges into car windows.
+- [46:33.540] No, we have a long way to go,
+- [46:35.110] and we're going to make it all good.
+- [46:36.730] We're going to make it really safe.
+- [46:38.590] This country's going to be safe.
+- [46:40.390] We've got almost three and a half years.
+- [46:42.660] Think of that, three and a half years.
+- [46:44.220] It's a long time. It goes quickly.
+- [46:47.220] But at the end of that time,
+- [46:48.640] I hope one of the many things we can say
+- [46:50.570] is that we made our cities safe again.
+- [46:52.950] Thank you very much, everybody.
+- [46:58.050] Thank you very much.

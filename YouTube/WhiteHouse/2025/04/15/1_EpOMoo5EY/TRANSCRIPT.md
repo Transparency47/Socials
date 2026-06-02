@@ -1,0 +1,814 @@
+<!-- source: https://www.youtube.com/watch?v=1-EpOMoo5EY -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 1-EpOMoo5EY -->
+<!-- date_published: 2025-04-15T18:04:26+00:00 -->
+<!-- date_accessed: 2026-06-02T02:51:53.453059+00:00 -->
+
+# Transcript: Press Secretary Karoline Leavitt Briefs Members of the Media, Apr. 15, 2025
+
+- [00:01.500] Ms. Leavitt: Good afternoon everybody.
+- [00:03.760] I apologize for my tardiness,
+- [00:05.460] but I came directly from the Oval.
+- [00:07.310] I have some newsy updates to share from the President,
+- [00:09.410] which I know you all very much value and appreciate,
+- [00:12.050] so let's get to it.
+- [00:13.380] The President promised millions of Christians
+- [00:16.040] across the country on the campaign trail
+- [00:17.890] that he would create a White House Faith Office
+- [00:20.900] when he returned to the White House
+- [00:22.450] and he has delivered on that promise.
+- [00:24.780] The White House Faith Office has put together
+- [00:27.100] an extraordinary week-long celebration,
+- [00:29.340] currently underway for Holy Week ahead of Easter Sunday.
+- [00:33.550] The President signed a Holy Week proclamation,
+- [00:36.400] filmed a special Presidential video message,
+- [00:39.170] and we'll be hosting a pre-Easter dinner tomorrow night
+- [00:42.180] and a White House staff Easter worship service on Thursday.
+- [00:46.050] The President and the First Lady are honored
+- [00:48.040] to continue the tradition of the White House Easter egg roll,
+- [00:50.840] which will take place on the South Lawn next Monday.
+- [00:54.000] Another news, President Trump is turning America
+- [00:56.380] into a manufacturing superpower again.
+- [00:59.570] Yesterday there was a monumental announcement by NVIDIA,
+- [01:03.280] one of the largest companies in the world.
+- [01:06.250] This is just the latest example.
+- [01:08.330] For the first time ever, chip-making giant NVIDIA
+- [01:10.780] will produce AI supercomputers entirely in the United States
+- [01:16.200] as part of its pledge to produce $50 billion
+- [01:18.960] worth of AI infrastructure in our country
+- [01:21.590] over the next four years.
+- [01:23.510] With their manufacturing partners,
+- [01:25.130] they have commissioned more than a million square feet
+- [01:27.400] of manufacturing space to build and test NVIDIA Blackwell chips
+- [01:31.530] in the great state of Arizona and AI
+- [01:34.130] super computers in the great state of Texas.
+- [01:37.710] NVIDIA's founder and CEO Jensen Huang
+- [01:40.170] touted how the engines of the world's AI infrastructure
+- [01:43.990] are being built in the United States for the first time.
+- [01:47.520] This is the Trump effect.
+- [01:50.170] This follows trillions in other US investments
+- [01:52.690] announced already including $500 billion from Apple
+- [01:55.840] in US-based manufacturing and training,
+- [01:58.080] $100 billion from TSMC in US-based chips manufacturing,
+- [02:02.660] and the $500 billion private investment
+- [02:05.110] led by OpenAI, Oracle,
+- [02:06.920] and SoftBank in artificial intelligence infrastructure.
+- [02:10.440] Under President Trump, we're going to produce the cars,
+- [02:13.280] the ships, the chips, the airplanes, minerals,
+- [02:15.580] and medicines that we need right here in America
+- [02:18.640] at the hands of American workers.
+- [02:21.180] On the border, President Trump continues to break records
+- [02:24.020] and protect our homeland.
+- [02:25.950] According to CBP, border patrol apprehensions
+- [02:28.820] along the southwest border for the entire month of March,
+- [02:32.100] 2025 were lower than the first two days of March,
+- [02:35.660] 2024 under Joe Biden.
+- [02:38.010] Incredible law enforcement officers are arresting violent,
+- [02:40.910] illegal aliens from American communities every day.
+- [02:43.910] Here are a few examples from the latest ICE report,
+- [02:46.340] which I received this morning.
+- [02:48.400] ICE Los Angeles arrested a 54-year-old citizen of Mexico,
+- [02:51.870] convicted of rape by threat,
+- [02:53.440] sodomy with a person under 14 years,
+- [02:55.950] and kidnapping in San Jose, California.
+- [02:58.940] ICE Houston has arrested a 23-year-old citizen of Mexico
+- [03:02.610] convicted of predatory criminal sexual assault
+- [03:04.950] of a child in Cook County, Illinois.
+- [03:08.050] ICE Houston arrested a 64-year-old citizen of Honduras
+- [03:12.480] convicted of murder in Los Angeles County, California.
+- [03:16.240] ICE Chicago arrested a 49- year-old citizen of Guatemala,
+- [03:20.150] convicted of assault and arson in Prince Williams, Virginia,
+- [03:23.720] not far from here.
+- [03:25.430] ICE Denver arrested a 36-year-old citizen of Mexico
+- [03:28.940] who is registered as a sex offender
+- [03:30.890] and has been convicted of sexual assault of a child
+- [03:33.830] in Lake County, Colorado.
+- [03:36.390] ICE Baltimore arrested a 50-year-old citizen of China
+- [03:39.220] convicted of sex trafficking in Bel Air, Maryland.
+- [03:42.320] And ICE Boston arrested a 46-year-old citizen of Jamaica
+- [03:46.490] convicted of three counts of rape of a child
+- [03:48.710] and two counts of indecent assault and battery of a child
+- [03:51.950] under 14 in Boston, Massachusetts.
+- [03:55.250] President Trump and our administration will not rest
+- [03:58.020] until every single violent illegal alien
+- [04:00.570] is removed from our country.
+- [04:02.630] The safety of the American people
+- [04:04.320] is too important to settle for anything less.
+- [04:07.750] On that note, the Democrat and media outrage
+- [04:10.090] over the deportation of Abrego Garcia,
+- [04:12.850] an MS-13 El Salvadorian illegal alien criminal
+- [04:16.960] who is hiding in Maryland
+- [04:18.310] has been nothing short of despicable.
+- [04:20.830] Based on the sensationalism of many of the people in this room,
+- [04:23.930] you would think we deported a candidate
+- [04:25.790] for Father of the Year.
+- [04:27.750] That's because unfortunately many in this country care
+- [04:30.500] more about this "Maryland father,"
+- [04:33.720] a illegal alien MS-13 gang member than a Maryland mother
+- [04:37.650] and an American citizen who was brutally murdered
+- [04:40.520] at the hands of a different illegal alien.
+- [04:42.970] Of course, I am referring to Rachel Morin.
+- [04:46.690] And if you didn't see yesterday,
+- [04:48.260] a Maryland jury found illegal alien
+- [04:50.300] Victor Antonio Martinez-Hernandez guilty
+- [04:53.350] of murdering Rachel Morin in August of 2023.
+- [04:56.850] She was a thirty-seven-year-old mother of five who was jogging
+- [04:59.910] in an otherwise safe community northeast of Baltimore
+- [05:02.940] when this monster ambushed, strangled, and beat her to death
+- [05:06.010] before stuffing her brutalized body in a tunnel drain.
+- [05:09.940] The Morin family finally got justice yesterday,
+- [05:13.290] but they will never get Rachel back.
+- [05:15.250] Our hearts go out to Rachel's family,
+- [05:17.440] her five children, and her mother Patty,
+- [05:19.750] who has suffered the unimaginable loss
+- [05:21.730] of her daughter. In case you missed it.
+- [05:24.020] Last week, president Trump signed a National Security
+- [05:26.640] Presidential Memorandum
+- [05:28.050] directing federal agencies administering federal land
+- [05:31.570] on the border to make land available
+- [05:33.350] to the Defense Department in a new national defense area.
+- [05:37.690] This followed the President's Day one executive order,
+- [05:40.290] committing his administration to marshal
+- [05:42.250] all available resources and authorities
+- [05:44.720] to stop the unprecedented flood of illegal aliens
+- [05:47.310] into our country and to obtain complete operational control
+- [05:51.300] of the borders of the United States of America.
+- [05:54.240] Once again, the president is fulfilling another key promise.
+- [05:57.670] This new national defense area spans
+- [05:59.950] more than 170 miles across our border in New Mexico,
+- [06:03.610] but in the coming weeks, this administration will add
+- [06:05.960] more than 90 miles in the state of Texas.
+- [06:09.170] This national defense area will enhance our ability
+- [06:11.840] to detect interdict and prosecute
+- [06:14.210] the illegal aliens, criminal gangs,
+- [06:16.260] and terrorists who were able to invade our country
+- [06:18.350] without consequence for the past four years
+- [06:20.870] under the Biden administration.
+- [06:22.820] It will also bolster our defenses against Fentanyl
+- [06:25.990] and other dangerous narcotics
+- [06:27.370] that have been poisoning our communities.
+- [06:29.540] With all of this work being done to make America great again,
+- [06:32.290] we continue to see a positive response
+- [06:34.320] from the American public.
+- [06:35.810] A brand new poll published from the Daily Mail and JL
+- [06:38.380] Partners this morning found
+- [06:39.610] that President Trump's approval rating is at an all-time high.
+- [06:43.030] That's because the president is working tirelessly
+- [06:45.250] to keep his promises to the American people
+- [06:47.580] as I just saw him doing today in the Oval Office.
+- [06:50.100] We have a reporter in our new media seat today, Matthew Foldi.
+- [06:53.100] I like your boots, Matt.
+- [06:54.620] Who is the editor-in-chief of the Washington Reporter.
+- [06:57.370] Washington Reporter is a new fast-growing outlet
+- [06:59.840] that breaks stories about legislation
+- [07:01.610] and interviews leaders in Congress
+- [07:03.330] and across the administration, the publication's readership
+- [07:07.230] includes the highest levels of business in government.
+- [07:10.050] And with that, please kick us off, Matt.
+- [07:11.820] The Press: And we've interviewed you as well.
+- [07:13.300] So Karoline, thanks so much for having me here
+- [07:15.410] on behalf of our readership
+- [07:16.750] and the billions of Americans who I think appreciate
+- [07:19.110] what you're doing with the new media seat here
+- [07:21.750] and making this a more accessible briefing room.
+- [07:24.070] I'm curious with Harvard, we saw the Trump administration today
+- [07:27.500] announce it's cutting around $2 billion
+- [07:29.730] or freezing $2 billion in funds to Harvard
+- [07:32.510] because the campus has serious problems with violence
+- [07:35.980] and with anti-Semitism. We saw President Obama,
+- [07:38.710] former President Obama side with Harvard,
+- [07:40.840] which rejected the Trump administration's demands.
+- [07:43.580] I'm curious, where does the administration
+- [07:45.000] see this going with Harvard
+- [07:46.380] and with other colleges and universities in America
+- [07:48.960] that are refusing to reform in wake of the sort of craziness
+- [07:52.800] that we've seen take over some of them?
+- [07:54.770] Ms. Leavitt: Thank you, Matt, for being here,
+- [07:56.140] and thanks for the question.
+- [07:57.360] When it comes to Harvard, the President's position on this
+- [08:00.240] is grounded in common sense in the basic principle
+- [08:04.060] that Jewish American students or students of any faith
+- [08:07.680] should not be illegally harassed
+- [08:09.620] and targeted on our nation's college campuses.
+- [08:12.310] And we unfortunately saw that illegal discrimination
+- [08:15.500] take place on the campus of Harvard.
+- [08:17.630] There are countless examples to prove it,
+- [08:20.250] particularly with the stunning confession
+- [08:23.530] by then Harvard President Claudine Gay,
+- [08:26.410] who said that bullying and harassment
+- [08:28.520] depended on the context.
+- [08:30.740] The president at that time made it clear to the American public
+- [08:33.460] he was not going to tolerate illegal harassment
+- [08:36.240] and anti-Semitism taking place in violations of federal law.
+- [08:39.630] So the president made it clear to Harvard follow federal law
+- [08:43.330] no longer break Title Six,
+- [08:45.090] which was passed by Congress to ensure no student can be
+- [08:47.940] discriminated against on the basis of race
+- [08:50.600] and you'll receive federal funding.
+- [08:52.110] Unfortunately, Harvard has not taken the president
+- [08:56.700] or the administration's demands seriously.
+- [08:58.910] All the president is asking, don't break federal law,
+- [09:01.320] and then you can have your federal funding.
+- [09:02.990] I think the President is also begging a good question,
+- [09:05.970] more than $2 billion out the door to Harvard
+- [09:08.540] when they have a more than $50 billion endowment.
+- [09:11.060] Why are the American taxpayers subsidizing a university
+- [09:14.650] that has billions of dollars in the bank already?
+- [09:16.800] And we certainly should not be funding a place
+- [09:18.880] where such grave anti-Semitism exists.
+- [09:22.610] The Press: I'm curious, you had just mentioned Rachel Moran.
+- [09:24.730] I'm Maryland man, and I think most Marylanders appreciate
+- [09:27.250] what you were saying today.
+- [09:29.260] We've seen that Chris Van Hollen,
+- [09:31.280] who was Rachel Moran's senator,
+- [09:35.200] basically threatening to fly to El Salvador
+- [09:37.090] to press for the release of someone
+- [09:38.480] who was in America illegally and not as much sort of from him
+- [09:44.030] about Rachel Moran's horrific murder and the verdict that was,
+- [09:47.190] I think rightly reached yesterday.
+- [09:49.140] What does the administration think about the priorities
+- [09:51.770] we're seeing from Senate Democrats
+- [09:53.350] in terms of illegal immigrants
+- [09:55.180] instead of the work that agencies like ICE and DHS
+- [09:58.820] are doing with the Trump administration?
+- [10:01.020] Ms. Leavitt: It's mind-boggling the priorities
+- [10:03.970] of the modern day Democrat party.
+- [10:05.990] I think it's atrocious
+- [10:07.370] that you have Democrats in Congress on Capitol Hill
+- [10:10.770] who swear an oath to protect their constituents
+- [10:13.710] and to serve them in Washington DC,
+- [10:16.890] spending more time defending illegal immigrant gang members
+- [10:20.540] than their own constituents
+- [10:22.480] and law-abiding American citizens like Rachel Moran.
+- [10:25.870] And I saw the president
+- [10:27.190] personally on the campaign trail,
+- [10:28.660] and I continue to see him in his role
+- [10:30.820] as President of the United States,
+- [10:32.510] put American families first, reach out to the victims,
+- [10:36.550] of the families of victims
+- [10:38.220] at the hands of a illegal immigrant crime.
+- [10:39.790] And frankly, the actions and the words of the Democrat Party
+- [10:42.840] prove they could not care less about the American public.
+- [10:45.160] Maybe if they did,
+- [10:46.560] they'd see a bit higher approval ratings right now.
+- [10:48.900] Thanks for being here with us today. Peter.
+- [10:50.850] The Press: Thank you, Karoline.
+- [10:53.020] To follow up on something that you just said,
+- [10:54.740] why do Ivy League schools get so much federal funding?
+- [10:58.640] Ms. Leavitt: It's a very good question,
+- [10:59.860] and it's a question the President has obviously raised
+- [11:02.210] in his discussions in negotiations
+- [11:04.200] with not just Harvard but also Columbia
+- [11:06.240] and many other Ivy League institutions.
+- [11:09.050] We have the Anti-Semitism Task Force,
+- [11:11.510] which the President promised and delivered on,
+- [11:14.820] the Anti-Semitism Task Forces across the government
+- [11:18.500] representatives from various federal agencies
+- [11:20.710] who meet on a weekly basis
+- [11:22.070] to discuss the question that you just raised.
+- [11:24.510] And I think a lot of Americans
+- [11:25.990] are wondering why their tax dollars
+- [11:27.630] are going to these universities when they are not
+- [11:29.940] only indoctrinating our nation's students,
+- [11:31.620] but also allowing such egregious illegal behavior to occur.
+- [11:35.550] The Press: To follow up on immigration,
+- [11:38.090] deporting American citizens to Central American prisons.
+- [11:43.260] Is it legal or do you need to change the law to do it?
+- [11:47.070] Ms. Leavitt: Well, it's another question
+- [11:48.450] that the President has raised.
+- [11:49.880] It's a legal question that the president is looking into,
+- [11:52.750] and he talked about this yesterday with his meeting
+- [11:55.260] with President Bukele in the Oval Office.
+- [11:57.660] He would only consider this if legal for Americans
+- [12:01.390] who are the most violent, egregious,
+- [12:03.910] repeat offenders of crime,
+- [12:05.610] who nobody in this room wants living in their communities.
+- [12:09.150] The Press: And then there's this CHNV thing,
+- [12:12.230] President Biden let more than 530,000 people from Cuba,
+- [12:15.250] Haiti, Nicaragua,
+- [12:16.460] Venezuela into the US with this CHNV program.
+- [12:21.810] He did it with the stroke of a pen,
+- [12:24.110] and now a judge will not let President Trump
+- [12:27.610] undo it with the stroke of a pen.
+- [12:29.410] So are you guys going to give all 530,000
+- [12:33.190] plus people individual deportation hearings
+- [12:36.810] or are you just going to try to deport them?
+- [12:40.290] Ms. Leavitt: I spoke to White House Counsel's office
+- [12:41.780] about this this morning
+- [12:43.010] because obviously another rogue district court judge
+- [12:45.310] is trying to block the administration's mass
+- [12:47.820] deportation efforts with this latest injunction.
+- [12:50.680] We will fight this in the court of law
+- [12:52.290] and we will ensure that every individual
+- [12:55.220] who illegally entered our country
+- [12:58.120] and was really taken advantage of
+- [13:00.910] by the previous administration
+- [13:02.240] because they abused the parole system in this country
+- [13:05.400] to fast track legal status, as they said,
+- [13:09.500] for these illegal immigrants.
+- [13:12.020] And they completely abused our legal system.
+- [13:15.470] Many of these paroled individuals
+- [13:17.890] were then given temporary protective status,
+- [13:20.640] which the intention of that TPS was only supposed to be used
+- [13:24.270] in times of war or storm or destruction
+- [13:27.600] in the home countries of these migrants.
+- [13:29.770] It was completely abused.
+- [13:31.540] These migrants came here for economic reasons
+- [13:34.050] and they illegally entered our country,
+- [13:36.070] and the president is not going to tolerate that.
+- [13:38.860] And so we will continue to focus on deporting
+- [13:41.100] as many individuals as we can.
+- [13:43.400] Jennifer.
+- [13:44.640] The Press: One on tariffs and one on Russia.
+- [13:46.300] Can you give us any sort of an update
+- [13:47.840] on which deals are in hand or are close,
+- [13:50.650] which countries are reaching a deal on tariffs?
+- [13:53.400] And then on Russia, can you give us an update
+- [13:55.010] on what the agreement was with Russia?
+- [13:56.830] The president yesterday said that he thinks we'll be seeing
+- [13:59.020] some very good deals very soon.
+- [14:00.850] Can you talk a little bit about what Russia agreed to?
+- [14:02.800] Ms. Leavitt: Sure. I don't want to get ahead
+- [14:04.310] of our United States Trade Ambassador
+- [14:06.360] and Secretary of Commerce, the Secretary of Treasury,
+- [14:08.910] all the great individuals who are working incredibly hard
+- [14:11.200] to cut these good trade deals.
+- [14:13.380] And the president's deeply involved in this as well.
+- [14:15.610] He has made it clear to his trade team.
+- [14:17.260] He wants to personally sign off on all of these deals too.
+- [14:20.320] And so I don't want to get ahead of them on announcements,
+- [14:22.190] but obviously as you've heard
+- [14:23.450] from numerous administration officials,
+- [14:25.290] there have been many talks with countries.
+- [14:28.370] We've had more than 15 deals,
+- [14:29.980] pieces of paper put on the table,
+- [14:31.880] proposals that are actively being considered.
+- [14:34.150] And as we've said, consistently,
+- [14:35.900] more than 75 countries have reached out.
+- [14:37.740] So there's a lot of work to do. We very much understand that,
+- [14:41.000] but we do believe that we can announce some deals very soon.
+- [14:44.240] The Press: And then on Russia, can you say,
+- [14:45.530] did Russia agree to anything with special envoy,
+- [14:47.720] Steve Witkoff?
+- [14:49.580] Ms. Leavitt: I don't want to get
+- [14:51.220] ahead of those negotiations as well.
+- [14:53.330] What I can tell you is that they were,
+- [14:55.440] a productive conversation was had.
+- [14:57.740] As the presidential envoy, Steve Witkoff said last night,
+- [15:01.530] he believes that Russia wants to end this war
+- [15:04.120] and the president believes that as well.
+- [15:05.650] There is incentive for Russia to end this war,
+- [15:08.980] and perhaps that could be economic partnerships
+- [15:11.240] with the United States,
+- [15:12.510] but we need to see a ceasefire first.
+- [15:14.740] And the president and the presidential envoy,
+- [15:16.830] Witkoff made that very clear to the Russians.
+- [15:19.540] Gabe.
+- [15:20.750] The Press: Thank you, Karoline. Ms. Leavitt: Yeah.
+- [15:22.010] The Press: And I also want to thank your press office
+- [15:23.990] for releasing that information that you cited up there
+- [15:27.160] regarding the ICE arrests over the last couple of days.
+- [15:30.350] And I have them right here, but what I might ask
+- [15:34.000] is why not release the same information
+- [15:36.250] for those who were deported to El Salvador?
+- [15:38.540] Ms. Leavitt: Well, first of all, the information was released
+- [15:41.100] by the Department of Homeland Security.
+- [15:42.940] The individuals on the flights to El Salvador
+- [15:45.740] are foreign terrorists
+- [15:47.010] and those are counter-terrorism operations.
+- [15:49.240] They are much different than the arrests
+- [15:51.460] and final order of removals that you see on a day-to-day
+- [15:53.690] basis that law enforcement agents
+- [15:55.190] are conducting around the country.
+- [15:56.840] The Press: That information, to that detail,
+- [15:58.820] was not released by DHS though.
+- [16:00.400] Ms. Leavitt: I just told you the reason.
+- [16:02.130] It was a counter-terrorism operation,
+- [16:04.260] a deportation of foreign terrorists,
+- [16:06.550] not illegal criminals who have been convicted of heinous crimes
+- [16:10.170] living in our American communities.
+- [16:11.490] It's two different things, foreign terrorists,
+- [16:13.380] illegal immigrant criminal, two different things,
+- [16:15.200] two different definitions. You should look them up.
+- [16:16.890] Christian, go ahead.
+- [16:18.100] The Press: Yeah, thanks, Karoline.
+- [16:19.790] Does the President support raising the corporate tax rate
+- [16:23.290] to pay for all these other tax cuts
+- [16:25.070] he wants to see move through Congress?
+- [16:27.100] Ms. Leavitt: Look, I've seen this idea proposed.
+- [16:29.330] I've heard this idea discussed.
+- [16:31.000] But I don't believe the President has made
+- [16:32.580] a determination on whether he supports it or not.
+- [16:35.000] The Press: And then secondly, do you have any information
+- [16:36.900] on the status of Edan Alexander?
+- [16:39.570] Hamas says they lost contact with the unit guarding him
+- [16:43.220] following an Israeli airstrike earlier today.
+- [16:46.320] Ms. Leavitt: I don't have updates.
+- [16:47.560] I have not seen that report, but I can certainly check in
+- [16:49.800] with our National Security Counsel.
+- [16:51.220] I have spoken to the President about Edan Alexander,
+- [16:53.750] and he's made it very clear to our National Security Team
+- [16:56.350] that finding him is a priority.
+- [16:57.810] But unfortunately, I don't have any updates to share,
+- [17:00.100] but it's a very important matter and certainly we can check in.
+- [17:02.910] Sure.
+- [17:04.150] The Press: Hi. Ms. Leavitt: Hi.
+- [17:05.370] The Press: How concerned is the President
+- [17:07.070] that a federal judge
+- [17:08.950] could hold a Trump administration official
+- [17:11.760] in contempt of court for defying deportation orders?
+- [17:15.970] Ms. Leavitt: We are complying with all court orders,
+- [17:18.840] so I see what you're trying to do there with that question.
+- [17:20.790] But we're very confident that every action
+- [17:22.490] taken by this administration is within the confines of the law,
+- [17:25.950] and we continue to comply with the court's orders.
+- [17:28.700] And you have seen that,
+- [17:30.220] and the President made that clear yesterday
+- [17:32.950] in the Oval Office with President Bukele. Sure.
+- [17:36.650] The Press: Thanks, Karoline.
+- [17:38.080] Just going back to El Salvador, could you just explain to us
+- [17:40.510] a little bit more about the legal basis
+- [17:43.020] on which you may be able to send US citizens to prison there?
+- [17:48.320] I know you said that President Trump is looking at it,
+- [17:50.220] but can you explain to us a little bit more
+- [17:52.010] about how that might be possible?
+- [17:53.550] Ms. Leavitt: We're looking at it,
+- [17:54.760] and when I have more for you to share,
+- [17:56.160] I certainly will. Sure.
+- [17:58.500] The Press: Thanks.
+- [17:59.710] Still going off the El Salvador questions,
+- [18:01.850] yesterday in the Oval Office administration officials
+- [18:04.870] made it very clear that El Salvador is responsible
+- [18:07.300] for Mr. Abrego Garcia,
+- [18:08.910] yet El Salvador's president said,
+- [18:10.630] "We are not going to do anything with him."
+- [18:12.670] So my question is, who is responsible for this man
+- [18:15.470] and where he's going to end up?
+- [18:16.840] Ms. Leavitt: Well, no.
+- [18:18.110] First of all, President Bukele said
+- [18:19.790] that he is not going to smuggle a foreign terrorist
+- [18:22.940] back into the United States of America,
+- [18:25.100] as many in this room in the Democrat Party
+- [18:27.570] seemingly want him to do.
+- [18:30.030] Abrego Garcia was a foreign terrorist.
+- [18:33.090] He is an MS-13 gang member.
+- [18:35.420] He was engaged in human trafficking.
+- [18:37.990] He illegally came into our country,
+- [18:40.670] and so deporting him back to El Salvador
+- [18:43.590] was always going to be the end result.
+- [18:45.850] There is never going to be a world
+- [18:47.730] in which this is an individual
+- [18:49.100] who's going to live a peaceful life in Maryland
+- [18:51.150] because he is a foreign terrorist and MS-13 gang member.
+- [18:55.110] Not only have we confirmed that,
+- [18:57.360] President Bukele yesterday in the Oval Office
+- [18:59.720] confirmed that as well.
+- [19:01.400] So he went back to his home country,
+- [19:03.570] where he will face consequences for his gang affiliation
+- [19:06.700] and his engagement in human trafficking.
+- [19:08.820] I'm not sure what is so difficult about this
+- [19:11.210] for everyone in the media to understand,
+- [19:13.330] and it's appalling, truly appalling
+- [19:16.070] that there has been so much time
+- [19:17.870] covering this alleged human trafficker
+- [19:22.000] and this gang member, MS-13 gang member.
+- [19:26.770] It's truly striking to me. Karen.
+- [19:28.930] The Press: Thank you, Karoline.
+- [19:30.160] The President was posting on Truth Social today
+- [19:31.690] about helping American farmers.
+- [19:33.190] And last week in his Cabinet meeting
+- [19:34.850] he was talking about a plan to work with farmers
+- [19:38.160] to retain workers who are in the US illegally,
+- [19:41.030] provided that they leave and then come back through
+- [19:43.250] what he said would be a legal process.
+- [19:45.190] Can you give details on what that would look like:
+- [19:47.820] how many workers he's talking about,
+- [19:49.920] how long a plan like that would take to implement,
+- [19:52.280] and the timeline for more details
+- [19:53.900] on getting this actually to implementation?
+- [19:56.140] Ms. Leavitt: I can check in
+- [19:57.360] with our Immigration and our Policy Team
+- [19:58.960] and get you some more details on that, Karen.
+- [20:00.660] The Press: And is this something he wants to roll out soon?
+- [20:03.500] He was talking back and forth with Secretary Rollins.
+- [20:05.410] Ms. Leavitt: Right.
+- [20:06.630] The Press: This is kind of imminent
+- [20:07.930] that he wants to do this. Ms. Leavitt: Yeah.
+- [20:09.170] Look, the President is in constant communication
+- [20:11.220] with all of his Cabinet secretaries,
+- [20:12.670] particularly Secretary Rollins
+- [20:14.520] who has the backs of American farmers and ranchers.
+- [20:17.900] It's something that he spoke about with her
+- [20:20.020] in front of all the cameras in the Cabinet room.
+- [20:22.480] But I'll check in with not only our Immigration Team,
+- [20:24.670] but also with USDA and we'll get you an answer.
+- [20:26.700] Jonathan.
+- [20:27.950] The Press: Hi, Karoline.
+- [20:29.170] Ms. Leavitt: Hi. It's good to see you in here.
+- [20:30.400] The Press: You, too. The President has long said
+- [20:32.620] that it would be an abuse of power
+- [20:34.850] for a president to direct prosecutors to investigate him.
+- [20:38.780] Last week, President Trump explicitly directed
+- [20:42.420] the Justice Department to scrutinize Chris Krebs
+- [20:45.850] to see if it can find any evidence of criminal wrongdoing.
+- [20:49.950] How is that not an abuse of power
+- [20:53.320] to direct the Justice Department
+- [20:54.830] to look into an individual, a named individual?
+- [20:57.620] Ms. Leavitt: Look, the President signed that executive order.
+- [20:59.710] It's a position of the President in this White House
+- [21:02.190] that it's well within his authority to do it;
+- [21:04.300] otherwise, he wouldn't have signed it.
+- [21:06.310] And he signed it and that's his policy.
+- [21:08.690] Jeff, how are you doing?
+- [21:09.910] The Press: Fine, thanks. Thanks, Karoline.
+- [21:11.390] A follow-up on Harvard,
+- [21:12.790] the President floated on Truth Social,
+- [21:14.590] I believe, the possibility of removing tax-exempt status.
+- [21:18.140] How serious is that threat,
+- [21:19.340] and are there other universities he's considering?
+- [21:21.850] And then, a follow-up question on foreign policy,
+- [21:25.210] can you give us an update on what the President hopes
+- [21:27.600] to come from the next round of talks with Iran?
+- [21:29.520] Ms. Leavitt: Mm-hmm. Sure.
+- [21:30.830] First, when it comes to Harvard,
+- [21:32.170] as I said, the President has been quite clear.
+- [21:34.160] They must follow federal law.
+- [21:35.600] He also wants to see Harvard apologize.
+- [21:37.700] And Harvard should apologize for the egregious anti-Semitism
+- [21:42.190] that took place on their college campus
+- [21:44.270] against Jewish American students.
+- [21:45.840] There were professors who said that he had engaged
+- [21:50.860] in discriminatory behavior against Jewish students.
+- [21:53.470] Of course, you had the former president
+- [21:55.320] of the university saying,
+- [21:56.550] "Bullying and harassment depends on the context."
+- [21:59.140] You also had an encampment on Harvard yard
+- [22:02.130] that we all saw play out before the cameras.
+- [22:04.790] The university failed to impose formal discipline
+- [22:07.170] on any students for this anti-Semitic conduct violations,
+- [22:10.350] including the occupation of a campus building
+- [22:12.220] and the disruption of classes with bullhorns.
+- [22:14.520] The President believes Harvard should apologize
+- [22:16.820] to its Jewish American students
+- [22:18.040] for allowing such egregious behavior.
+- [22:20.050] As for the tax-exempt status,
+- [22:21.380] I would defer you to the IRS for any updates.
+- [22:23.590] I do want to answer your question on Iran, of course.
+- [22:25.850] The maximum pressure campaign on Iran continues.
+- [22:28.390] But as you know, the President has made it clear
+- [22:30.590] he wants to see dialogue and discussion with Iran,
+- [22:33.040] while making his directive about Iran never being able
+- [22:36.480] to obtain a nuclear weapon quite clear.
+- [22:39.260] And the President spoke to the Sultan of Oman today
+- [22:42.180] who helped facilitate these talks.
+- [22:43.610] I have a readout for all of you.
+- [22:45.540] He held a call with the Sultan of Oman today,
+- [22:48.230] and he thanked him for hosting the first direct meeting
+- [22:50.760] between the United States and Iran,
+- [22:52.730] and emphasized the need for Iran to end its nuclear program
+- [22:55.640] through negotiations.
+- [22:57.040] The two leaders also discussed the United States'
+- [22:59.540] ongoing operations against the Houthis,
+- [23:01.930] and emphasized that the Houthis will pay a severe price
+- [23:04.900] until they end their attacks on maritime traffic in the Red Sea.
+- [23:08.200] As you know, an additional negotiation
+- [23:09.870] between Steve Witkoff and Iran's representative
+- [23:13.610] has been scheduled for Saturday.
+- [23:15.320] And since these are ongoing negotiations,
+- [23:16.950] I have nothing more to add on that.
+- [23:18.230] The Press: A question on Iran.
+- [23:19.460] Ms. Leavitt: Sure.
+- [23:20.670] The Press: Oh, thank you, Karoline.
+- [23:21.910] When you said that the President said
+- [23:23.200] that Iran will never have nuclear weapons,
+- [23:26.110] is the focus on dismantling the entire nuclear program
+- [23:31.150] or just restricting enriched uranium or the missile program?
+- [23:36.050] Ms. Leavitt: The President does not want to see
+- [23:37.540] Iran have a nuclear program.
+- [23:39.350] He does not want Iran to obtain a nuclear weapon.
+- [23:42.500] He's been very clear about this. Shelby.
+- [23:44.090] The Press: Thank you, Karoline.
+- [23:45.360] Ms. Leavitt: Shelby, you have a seat today.
+- [23:46.610] The Press: I know, stole it. Ms. Leavitt: Glad to see it.
+- [23:48.910] The Press: Two quick ones on TikTok.
+- [23:50.370] First, is the President expecting to extend
+- [23:52.450] the TikTok ban that's now June 19th
+- [23:54.320] if China doesn't come to the table on time?
+- [23:56.870] Ms. Leavitt: Well, June 19th is a long ways away obviously.
+- [23:59.290] I think it's two months away. Two months is a long time
+- [24:02.160] in the Trump administration, as you have all seen.
+- [24:03.890] We work at Trump's speed around here.
+- [24:05.260] We get a lot done, so definitely don't want to get ahead.
+- [24:08.030] The Vice President continues to lead
+- [24:09.560] these negotiations and talks.
+- [24:10.810] The President is involved, and they're ongoing.
+- [24:12.680] The Press: And then, the President previously said
+- [24:14.690] he'd consider reducing tariffs on China
+- [24:17.600] in order to get a TikTok deal done.
+- [24:19.050] Is that option still on the table?
+- [24:21.180] Ms. Leavitt: Look, the President has made his position
+- [24:23.680] on China quite clear,
+- [24:25.330] although I do have an additional statement
+- [24:26.940] that he just shared with me in the Oval Office.
+- [24:29.890] "The ball is in China's court.
+- [24:32.000] China needs to make a deal with us.
+- [24:34.130] We don't have to make a deal with them.
+- [24:36.360] There's no difference between China and any other country
+- [24:39.150] except they are much larger.
+- [24:40.960] And China wants what we have, what every country wants,
+- [24:45.060] what we have, the American consumer;
+- [24:47.740] or to put it another way, they need our money."
+- [24:50.550] So the President, again has made it quite clear
+- [24:52.560] that he's open to a deal with China,
+- [24:54.280] but China needs to make a deal with the United States
+- [24:56.150] of America. Sure.
+- [24:58.000] The Press: On tariffs, yesterday in the Oval Office.
+- [25:00.240] Ms. Leavitt: Which outlet are you with?
+- [25:01.510] The Press: The Canadian Public Broadcaster.
+- [25:02.880] Ms. Leavitt: Oh, nice to see you.
+- [25:04.100] The Press: Thank you. Yesterday in the Oval Office,
+- [25:06.140] President Trump suggested
+- [25:07.360] that there could be some help for automakers.
+- [25:09.660] I'm wondering what that looks like.
+- [25:11.280] Is it tariff relief on the 25% tariffs
+- [25:13.790] that are in place right now,
+- [25:15.250] or the new tariffs that are coming up in May on auto
+- [25:18.480] and a second on Canada, if I may.
+- [25:21.170] President Trump's tone when it comes to Canada-US relations,
+- [25:23.840] Canadians have noticed it's shifted a bit
+- [25:26.770] in the past few weeks.
+- [25:28.230] Ever since the election campaign started,
+- [25:30.380] he stopped talking about Canada becoming the 51st state,
+- [25:32.730] at least publicly.
+- [25:34.100] I'm wondering if that's on purpose, and why?
+- [25:35.890] Ms. Leavitt: I would reject
+- [25:37.160] the President's position on Canada has shifted.
+- [25:40.000] Perhaps he just hasn't been asked about Canada
+- [25:42.220] by questions from this group in the Oval Office
+- [25:44.650] when they see him almost every day.
+- [25:46.070] But the President still maintains
+- [25:47.680] his position on Canada.
+- [25:48.950] The United States has been subsidizing
+- [25:50.560] Canada's national defense,
+- [25:52.110] and he believes that Canadians would benefit greatly
+- [25:54.740] from becoming the 51st state of the United States of America.
+- [25:58.360] As for autos and auto parts,
+- [25:59.790] I don't have anything to read out for you there,
+- [26:01.500] but I think the point the President was making
+- [26:03.320] is flexibility,
+- [26:04.700] and he has flexibility when it comes to negotiations and talks.
+- [26:08.000] But ultimately, his goal in his fair trade deals
+- [26:12.210] that he is pursuing with many countries around the world
+- [26:14.950] is to put the American worker first.
+- [26:17.360] And we had automakers and autoworkers here
+- [26:21.290] at the White House on Liberation Day
+- [26:23.870] who believe in this President
+- [26:25.760] and his negotiating ability to put them first
+- [26:28.110] and to bring those jobs back to the United States of America,
+- [26:31.000] and the President's been very clear
+- [26:32.270] about that in his conversations with the automakers as well.
+- [26:35.870] Deanna, go ahead.
+- [26:37.190] The Press: Thanks, Karoline. One on Ukraine and one on China.
+- [26:39.890] On Ukraine, this past weekend,
+- [26:42.220] Zelenskyy offered an invitation to President Trump,
+- [26:45.400] extending an offer for him to visit Ukraine.
+- [26:48.060] Just wondering if there's any update on that,
+- [26:49.900] has Trump seen that offer and what he's thinking about?
+- [26:52.680] Ms. Leavitt: I don't know, actually.
+- [26:53.910] I haven't talked to the President about that
+- [26:56.170] or if he saw Zelenskyy's offer. I'm sure he did.
+- [26:58.640] I haven't spoken to him about it.
+- [27:00.020] I can ask him what he thinks. I certainly don't have any plans
+- [27:03.590] to share on a potential trip to Ukraine though.
+- [27:05.570] The Press: And then, on China, this last week,
+- [27:08.510] Chinese officials were posting videos
+- [27:10.640] on social media sites depicting Trump,
+- [27:14.710] J.D. Vance, Elon Musk, in AI-generated videos,
+- [27:18.590] working in factories, putting together
+- [27:21.390] Nike shoes and iPhones and products like that.
+- [27:25.310] Does the White House, have they seen these videos,
+- [27:27.330] do you guys have a response to that?
+- [27:28.930] Ms. Leavitt: I have seen the videos.
+- [27:30.240] I'm not sure who made the videos
+- [27:32.390] or if we can verify the authenticity.
+- [27:34.100] But whoever made it clearly does not see the potential
+- [27:37.590] of the American worker, the American workforce.
+- [27:40.220] The President believes in the American people,
+- [27:42.340] and he knows that we have the best
+- [27:44.310] not only consumer base in the world,
+- [27:45.870] but also the best workforce in the world,
+- [27:47.800] and that's why he's so focused on bringing investments home
+- [27:50.580] and shoring up our critical supply chains
+- [27:53.180] and bolstering our manufacturing here as well.
+- [27:55.340] Brett.
+- [27:56.570] The Press: Thanks, Caroline.
+- [27:57.790] Would the President support a ban on members
+- [27:59.950] of Congress trading stocks?
+- [28:02.340] Ms. Leavitt: I'm certain that's something the President
+- [28:04.300] would be interested in looking at,
+- [28:05.650] and I can ask him if he would support such a bill.
+- [28:08.280] Sure, yes.
+- [28:09.990] The Press: I have a question about the President's post
+- [28:11.710] this morning on farmers.
+- [28:13.350] He asked farmers to be patient and just hold on,
+- [28:16.760] but a lot of the farmers that I've talked to in the last week
+- [28:18.840] or so have said they're in the middle
+- [28:20.290] of the spring planting season
+- [28:21.920] and that a trade war makes everything up in the air.
+- [28:26.040] What would his message to them be?
+- [28:28.500] And also, is there anything specifically planned to provide
+- [28:31.550] relief like in President Trump's last term?
+- [28:33.160] Ms. Leavitt: Yes.
+- [28:34.370] Well, relief is being considered.
+- [28:35.680] The Secretary of Agriculture I know
+- [28:37.230] has spoken to the President about that,
+- [28:38.950] and again, it's being considered.
+- [28:40.890] And as for the President's message to the farmers,
+- [28:42.860] he put it out himself,
+- [28:44.060] he could speak for himself much better than I can speak for him.
+- [28:46.840] And so, I would just direct you to the statement he had,
+- [28:49.820] telling the farmers again, reiterating his support for them
+- [28:52.740] in that he has their backs, which he certainly does.
+- [28:56.030] Kelly in the back.
+- [28:57.290] The Press: Thanks, Caroline. Two questions.
+- [29:00.090] The first one, a Georgia man
+- [29:01.320] was just arrested over alleged threats
+- [29:03.090] to kill Director of National Intelligence, Tulsi Gabbard.
+- [29:06.260] Reportedly, there is now increased security
+- [29:08.000] around the FBI Deputy Director.
+- [29:10.130] Can you talk about the level of threats
+- [29:11.530] against various administration officials?
+- [29:13.520] And then, a second one on Biden.
+- [29:14.880] Ms. Leavitt: I'm sorry to hear that,
+- [29:16.090] I had not seen that report.
+- [29:17.920] It's very unfortunately, and obviously the White House,
+- [29:20.380] the President and the entire administration condemn
+- [29:22.890] any threats of violence
+- [29:24.220] against any administration officials or public officials
+- [29:27.680] on both sides of the aisle here in Washington D.C.
+- [29:30.350] It shouldn't be tolerated,
+- [29:31.590] and we commend the local law enforcement agencies
+- [29:34.260] for arresting this individual.
+- [29:35.870] The Press: One on former President Biden,
+- [29:37.880] he's said to deliver his first major speech
+- [29:40.860] since leaving office tonight.
+- [29:43.120] He plans to talk about what I'm told
+- [29:46.380] will be Social Security under the current administration,
+- [29:50.110] closing of offices, longer wait times,
+- [29:52.500] harder for seniors and people with disabilities
+- [29:54.420] to access earned benefits
+- [29:56.200] is what Democrats have been saying today.
+- [29:58.210] I wanted to get the President's response,
+- [30:00.020] or if he plans to respond to this,
+- [30:01.770] and comments on what Democrats
+- [30:03.780] are calling cuts to Social Security.
+- [30:05.590] Ms. Leavitt: My first reaction when seeing former
+- [30:07.760] President Biden was speaking tonight
+- [30:09.720] was I'm shocked that he is speaking at nighttime.
+- [30:12.720] I'd have thought his bedtime was much earlier
+- [30:15.020] than his speech tonight.
+- [30:16.260] I understand the topic of his speech will be
+- [30:18.460] Social Security.
+- [30:19.780] Let me make it very clear ahead of former President
+- [30:22.370] Biden's remarks, the President, this President, President Trump,
+- [30:27.220] is absolutely certain about protecting
+- [30:30.920] Social Security benefits for law-abiding,
+- [30:33.840] taxpaying American citizens
+- [30:35.800] and seniors who have paid into this program.
+- [30:38.120] He will always protect that program, he campaigned on it,
+- [30:40.670] he protected it in his first term,
+- [30:42.170] and he's back again to continue protecting it.
+- [30:45.070] On the topic of Social Security,
+- [30:46.410] I have some news before I let you all go.
+- [30:48.630] Later this afternoon, the President
+- [30:50.020] will be signing a presidential memorandum
+- [30:53.190] aimed at stopping illegal aliens and other ineligible people
+- [30:56.780] from obtaining Social Security Act benefits.
+- [30:59.920] The memorandum will direct the administration
+- [31:02.030] to ensure ineligible aliens are not receiving funds
+- [31:05.480] from the Social Security Act programs.
+- [31:07.920] It will expand the Social Security Administration's
+- [31:10.130] Fraud Prosecutor program to at least 50 US offices,
+- [31:14.820] and a Medicare and Medicaid Fraud Prosecution Program
+- [31:18.360] in 15 US attorney offices. The memorandum will also require
+- [31:22.760] the Social Security Administration inspector
+- [31:25.140] general to investigate earning reports for individuals
+- [31:28.520] aged 100 or older
+- [31:30.330] with mismatched Social Security records
+- [31:32.250] to combat identity theft, and the memorandum
+- [31:34.800] will direct the Social Security Administration
+- [31:36.750] to consider whether to reinstate the use
+- [31:39.460] of civil monetary penalties against individuals
+- [31:41.850] who engage in Social Security fraud,
+- [31:44.030] an effort that has been paused for several years.
+- [31:46.630] These taxpayer-funded benefits
+- [31:48.180] should be only for eligible taxpayers,
+- [31:51.240] and President Biden should think about
+- [31:52.710] what he did in his last term,
+- [31:54.150] which is allow tens of millions of illegal people
+- [31:56.910] into our country,
+- [31:58.140] many of whom were fraudulently receiving these benefits.
+- [32:00.710] So you'll hear from the President on that later,
+- [32:02.880] and we will see you later in the East Room. Bye guys.
+- [32:05.370] The Press: Thanks.

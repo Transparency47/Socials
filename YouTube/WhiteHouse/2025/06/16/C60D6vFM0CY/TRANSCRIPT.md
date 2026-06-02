@@ -1,0 +1,190 @@
+<!-- source: https://www.youtube.com/watch?v=C60D6vFM0CY -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: C60D6vFM0CY -->
+<!-- date_published: 2025-06-16T15:45:08+00:00 -->
+<!-- date_accessed: 2026-06-02T02:48:28.515714+00:00 -->
+
+# Transcript: President Trump Participates in a Bilateral Meeting with the Prime Minister of Canada
+
+- [00:00.640] All right. Thank you, uh, Mr. President.
+- [00:02.639] Uh, welcome to Canada. It's a great
+- [00:05.279] honor. Uh, happy birthday. A few days
+- [00:08.000] short, a little bit, a few days short,
+- [00:09.840] but, uh, didn't have a chance to see you
+- [00:11.519] on on the day. Uh, happy birthday to the
+- [00:13.840] US military as well, 250th. And, uh, and
+- [00:16.800] this is, uh, the 50th birthday, if you
+- [00:18.800] will, of the G7. Uh, this marks the 50th
+- [00:21.920] birthday of the G7. And, uh, the G7 is
+- [00:25.600] nothing without US leadership. And so
+- [00:27.920] your personal leadership, leadership of
+- [00:29.679] the United States, many issues, uh,
+- [00:32.719] geopolitics, economic, technology, um,
+- [00:35.920] and working hand in hand with the United
+- [00:37.680] States, uh, Canada and the United
+- [00:39.360] States, um, and, uh, the other G7
+- [00:42.079] partners, uh, with your leadership. Very
+- [00:44.320] much looking forward to the meeting and
+- [00:45.520] grateful to have you. Very much, Mark. I
+- [00:47.200] appreciate it. And we've developed a
+- [00:49.200] very good relationship. And we're going
+- [00:50.640] to be talking about trade and many other
+- [00:52.480] things. And we have a whole group of
+- [00:54.879] people, some traders and some other
+- [00:57.120] people. I see my top economy people. Uh,
+- [01:00.800] but we have a very talented group of
+- [01:03.359] people and you do too. And I know they
+- [01:05.119] work together very well. I look forward
+- [01:07.520] to that. The G7 used to be the G8.
+- [01:10.799] Barack Obama and a person named Trudeau
+- [01:14.479] didn't want to have Russia in. And I
+- [01:17.119] would say that that was a mistake
+- [01:18.400] because I think you wouldn't have a war
+- [01:19.759] right now if you had Russia in. And you
+- [01:22.000] wouldn't have a war right now if Trump
+- [01:23.360] were president four years ago. But it
+- [01:26.240] didn't work out that way. But it used to
+- [01:28.320] be the G8 and now it's I guess what's
+- [01:31.280] that? Nine years ago, eight years ago it
+- [01:33.280] switched over. They they uh threw Russia
+- [01:35.920] out which I claimed was a very big
+- [01:38.240] mistake even though I wasn't in politics
+- [01:39.920] then. I was very loud about it. It was a
+- [01:41.680] mistake in that you spend so much time
+- [01:44.079] talking about Russia and he's no longer
+- [01:46.159] at the table. So it makes life more
+- [01:48.320] complicated. But you wouldn't have had
+- [01:49.759] the war. Uh and uh other than that, I
+- [01:53.520] think we're going to accomplish a lot
+- [01:55.920] and I expect to and I think our primary
+- [01:58.240] focus will be trade and trade with
+- [02:00.000] Canada and I'm sure we can work
+- [02:02.479] something out. Yeah. Thank you very much
+- [02:04.719] so much. Thank you very much.
+- [02:08.800] Mr. President, Mr. President,
+- [02:12.959] how close are you? What what is holding
+- [02:15.360] up a deal with Canada from your
+- [02:17.200] perspective? Uh it's not so much holding
+- [02:19.280] up. I think we have different concepts.
+- [02:20.879] I have a tariff concept and Mark has a
+- [02:23.520] different concept which is something
+- [02:25.760] that some people like, but uh we're
+- [02:28.480] going to see if we can get to the bottom
+- [02:29.840] of it today. I'm a I'm a tariff person.
+- [02:32.480] I've always been a tariff. It's simple.
+- [02:34.640] It's easy. It's precise and it just goes
+- [02:38.560] very quickly. And I think Mark has a a
+- [02:43.280] more complex idea, but also very good.
+- [02:45.920] So, we're going to look at both and
+- [02:47.280] we're going to see what we're going to
+- [02:48.640] come out with something hopefully.
+- [02:52.400] Do you think a deal is achievable within
+- [02:54.560] days, within weeks? Is there that kind
+- [02:56.560] of runway? Yeah, it's achievable. Both
+- [02:59.920] parties have to agree. Yeah. Sure. Mr.
+- [03:02.159] President,
+- [03:04.000] have you seen have you heard any signals
+- [03:05.840] or seen any messages from intermediaries
+- [03:08.400] that Iran wishes to deescalate the
+- [03:10.879] conflict? Yeah. What have what have you
+- [03:13.360] heard? What have you heard from the
+- [03:14.720] Iranians? They'd like to talk, but they
+- [03:17.440] should have done that before. I had 60
+- [03:20.400] days and they had 60 days. And on the
+- [03:22.959] 61st day, I said, "We don't have a deal.
+- [03:25.519] They have to make a deal." And uh it's
+- [03:28.480] painful for both parties. But I'd say
+- [03:30.239] Iran is not winning this war and they
+- [03:34.319] should talk and they should talk
+- [03:35.519] immediately before it's too late. And
+- [03:37.840] what would you say in your opinion? What
+- [03:39.519] would it take for the US to get involved
+- [03:41.360] in this conflict militarily?
+- [03:44.080] I don't want to talk about that. And you
+- [03:45.840] mentioned Putin. Do you think that he
+- [03:47.760] should have a seat at the G7 today? That
+- [03:49.440] it should be the G8. I'm not saying he
+- [03:52.000] should at this point because too much
+- [03:54.239] water's gone over the dam maybe, but uh
+- [03:56.959] it was a big mistake. Obama didn't want
+- [03:59.680] him and the uh head of your country, the
+- [04:03.920] proud head of your country didn't want
+- [04:05.360] him. This was a big mistake. You
+- [04:07.280] wouldn't have that war. You know, you
+- [04:09.120] have your enemy at the table. Even I
+- [04:10.799] don't even consider him he wasn't an
+- [04:12.560] really an enemy at that time. There was
+- [04:14.640] no concept. If I were president, this
+- [04:16.479] war would have never happened. But
+- [04:18.320] likewise, if he were a member of the
+- [04:20.239] what was called the G8 at that time. It
+- [04:22.479] was always the G8. Uh you wouldn't have
+- [04:24.800] a war right now.
+- [04:28.080] What intelligence support are you
+- [04:29.919] providing Israel?
+- [04:31.919] Uh we've always supported Israel. We
+- [04:34.400] have for a long period of time strongly
+- [04:37.040] and Israel is doing very well right now.
+- [04:39.520] Why not have China at the G8? Why not
+- [04:41.680] have China here, the biggest economy in
+- [04:43.280] the world after the United States? Well,
+- [04:44.960] it's not a bad idea. I don't mind that.
+- [04:46.880] If somebody wants to suggest China
+- [04:48.720] coming in, I think we suggest, but you
+- [04:50.720] want to have people that you can talk
+- [04:52.479] to. You know, they they don't talk.
+- [04:55.040] Putin speaks to me. He doesn't speak to
+- [04:56.720] anybody else. He doesn't want to talk
+- [04:58.080] because he was very insulted when he got
+- [04:59.840] thrown out of the GA. as I would be, as
+- [05:02.720] you would be, as anybody would be. He
+- [05:04.240] was very insulted. And I mean, he was
+- [05:06.720] thrown out by Trudeau who convinced one
+- [05:10.080] or two people along with Obama. He was
+- [05:12.800] thrown out. And he's not a happy person
+- [05:16.639] about it. I can tell you that he
+- [05:19.759] basically he basically doesn't even
+- [05:21.600] speak to the people that throw him out.
+- [05:23.360] And I agree with him.
+- [05:28.479] Go ahead. on immigration. Why do you
+- [05:30.160] want ICE to target democratic inner
+- [05:31.680] cities? What's what's behind that? I
+- [05:33.360] don't know what you're saying. You you
+- [05:34.639] did a post last night where you said you
+- [05:36.160] want ICE to really target Democrat.
+- [05:37.919] Yeah. I want them to focus on the cities
+- [05:39.840] because the cities are where you really
+- [05:41.360] have what's called sanctuary cities and
+- [05:43.440] that's where the people are. I look at
+- [05:45.360] New York. I look at Chicago. I mean, you
+- [05:47.600] got a really bad governor in Chicago and
+- [05:49.759] a bad mayor, but the governor is
+- [05:51.919] probably the worst in the country,
+- [05:53.280] Pritsker. But I look at how that city
+- [05:56.000] has been overrun by criminals and uh you
+- [05:59.440] know New York and LA. Look at LA. LA
+- [06:01.759] those people weren't from LA. They
+- [06:04.000] weren't from California. Most of those
+- [06:05.600] people many of those people. And yeah I
+- [06:08.080] that's that's a focus. Uh Biden allowed
+- [06:11.759] 21 million people to come into our
+- [06:13.759] country. Of that vast numbers of those
+- [06:17.680] people were murderers, killers, people
+- [06:20.160] from gangs, people from jails. They
+- [06:22.639] emptied their jails out into the US.
+- [06:24.880] Most of those people are in the cities,
+- [06:27.120] all blue cities, all blue cities, all
+- [06:30.800] Democrat run cities, and they think
+- [06:32.880] they're going to use them to vote. It's
+- [06:34.479] not going to happen.
+- [06:38.540] [Music]
+- [06:41.199] Thank you. if you don't mind uh just I'm
+- [06:43.440] going to exercise my role if you will as
+- [06:46.160] G7 chair since we have a few more
+- [06:48.319] minutes with the president and his team
+- [06:50.479] uh and then we actually have to start
+- [06:51.840] the meeting to address some of these big
+- [06:53.440] issues. So
+- [07:00.479] that's it. That's it. Thank you very
+- [07:02.319] much.

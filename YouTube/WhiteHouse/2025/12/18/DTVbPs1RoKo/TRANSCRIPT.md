@@ -1,0 +1,820 @@
+<!-- source: https://www.youtube.com/watch?v=DTVbPs1RoKo -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: DTVbPs1RoKo -->
+<!-- date_published: 2025-12-18T19:22:27+00:00 -->
+<!-- date_accessed: 2026-06-02T02:40:03.073075+00:00 -->
+
+# Transcript: President Trump Signs an Executive Order, Dec. 18, 2025
+
+- [00:03.830] The President: They're pretty amazing.
+- [00:06.150] Hello, everybody.
+- [00:16.460] Thank you very much.
+- [00:26.130] Well, this is a big day in many reasons,
+- [00:28.090] really for many reasons.
+- [00:29.400] And I have a very distinguished group of people behind me,
+- [00:34.120] mostly medical people and brilliant people,
+- [00:37.690] and they really know what they're doing.
+- [00:39.910] And I just want to thank them.
+- [00:41.280] They gave -- truly gave their lives in terms of the time
+- [00:45.510] and all of the incredible work they've done over the years
+- [00:49.460] in arriving at the position they have now,
+- [00:52.580] most respected people in the country.
+- [00:55.030] Today, I'm pleased to announce that I will be signing
+- [00:57.270] an executive order to reschedule marijuana from a Schedule 1
+- [01:00.950] to a Schedule 3 controlled substance
+- [01:03.030] with legitimate medical uses.
+- [01:05.880] We have people begging for me to do this,
+- [01:11.200] people that are in great pain.
+- [01:14.410] For decades, this action has been requested
+- [01:16.570] by American patients suffering from extreme pain,
+- [01:20.330] incurable diseases, aggressive cancers,
+- [01:22.720] seizure disorders, neurological problems
+- [01:25.850] and more, including numerous veterans
+- [01:27.850] with service-related injuries and older Americans
+- [01:31.530] who live with chronic medical problems
+- [01:33.470] that severely degrade their quality of life.
+- [01:37.180] And it's -- so really, I mean, just --
+- [01:41.430] I can't tell you; I think I probably have received
+- [01:43.870] more phone calls on this -- on doing what we're doing.
+- [01:49.860] I don't think I received any calls on the other side of it.
+- [01:53.440] But hopefully this reclassification,
+- [01:56.160] which by the way polls at 82 percent,
+- [01:59.170] will help many of those patients live a far better life.
+- [02:04.050] We're joined today by Secretary Robert F. Kennedy, Jr,
+- [02:06.950] who's doing a fantastic job;
+- [02:08.620] administrator of centers for Medicare
+- [02:12.300] and Medicaid Services, Dr. Mehmet Oz;
+- [02:15.780] the FDA commissioner, Dr. Marty Makary;
+- [02:18.420] director of the National Institutes of Health,
+- [02:21.920] Dr. Jay Bhattacharya;
+- [02:24.640] and the director of the National Institute
+- [02:26.490] on Drug Abuse, Dr. Nora Volkow,
+- [02:31.320] as well as Dr. Ilana Braun
+- [02:33.510] from the Dana-Farber Cancer Institute,
+- [02:36.780] Duke University's Dr. David Casarett;
+- [02:40.350] the national commander of the American Legion,
+- [02:42.620] Dan Wylie; and my friend Howard Kessler.
+- [02:44.440] Howard, how are you feeling?
+- [02:45.750] Howard Kessler: I'm doing great.
+- [02:46.960] The President: You look -- I'm telling you, he looks better
+- [02:48.460] than he did 20 years ago, but I don't want to go through
+- [02:52.880] what you went through to get there, right?
+- [02:55.350] It looks like you're doing great.
+- [02:56.880] I'm proud of you.
+- [02:58.110] I want to emphasize that the order I am about to sign
+- [03:02.530] is not the legalization
+- [03:05.730] or it doesn't legalize marijuana in any way, shape or form.
+- [03:11.270] And in no way sanctions its use as a recreational drug --
+- [03:14.640] has nothing to do with that. Just as the prescription
+- [03:18.210] painkillers may have legitimate uses
+- [03:20.720] but can also do irreversible damage and never --
+- [03:26.470] if you look at some of the damage that can be caused,
+- [03:29.670] wreck lives if it's abused.
+- [03:32.530] It's never safe to use powerful controlled substances
+- [03:35.490] in recreational matters and especially in this case.
+- [03:39.640] If you take a look, illegal and unregulated drugs,
+- [03:43.760] very, very bad thing.
+- [03:45.630] So, I've always told my children don't take drugs,
+- [03:48.260] no drinking, no smoking and just stay away from drugs.
+- [03:52.250] I have been -- they would look at me,
+- [03:55.110] they said, Dad, would you stop saying that?
+- [03:57.150] I would say every time I looked at them practically.
+- [04:00.290] Young Americans are especially at risk.
+- [04:02.280] So, unless a drug is recommended by a doctor
+- [04:05.510] for medical reasons, just don't do it.
+- [04:09.160] At the same time, the facts compel the federal government
+- [04:12.320] to recognize that marijuana can be legitimate
+- [04:16.290] in terms of medical applications when carefully administered.
+- [04:19.950] In some cases, this may include the use
+- [04:22.780] as a substitute for addictive
+- [04:24.530] and potentially lethal opioid painkillers;
+- [04:28.230] they cause tremendous problems.
+- [04:30.180] This can do it in a much lesser way,
+- [04:32.750] can make people feel much better
+- [04:36.800] that are living through tremendous pain and problems.
+- [04:40.090] 40 states and multiple US territories
+- [04:42.420] have already recognized the use of medical marijuana.
+- [04:47.060] This reclassification order will make it far easier
+- [04:50.230] to conduct marijuana-related medical research
+- [04:52.890] allowing us to study benefits,
+- [04:55.290] potential dangers and future treatments.
+- [04:58.420] It's going to have a tremendously positive impact,
+- [05:01.770] I believe.
+- [05:03.390] We're also asking Congress to reconsider
+- [05:05.470] its classification of hemp derived CBD
+- [05:09.140] to ensure seniors can access CBD products
+- [05:12.590] they have found beneficial for pain and other reasons.
+- [05:16.610] Some people are literally dying
+- [05:18.930] and they're dying with tremendous pain.
+- [05:21.140] And this can in many cases literally stop it,
+- [05:25.980] and they have their senses about them as opposed to painkillers,
+- [05:29.350] which don't allow that --
+- [05:32.250] don't allow them to die with dignity, frankly.
+- [05:35.460] I promised to be the President of common sense
+- [05:38.670] and that is exactly what we're doing.
+- [05:40.270] This is really something having to do with common sense,
+- [05:43.400] and it's something having to do with the fact
+- [05:44.940] that so many people that I respect ask me to do it,
+- [05:48.460] people that are having problems, big problems,
+- [05:50.730] they are having big problems with illness
+- [05:53.200] with cancer in particular.
+- [05:55.840] I now want to ask Dr. Oz to say a few words followed
+- [05:58.700] by Dr. Braun, Dr. Casarett, Dan Wiley and Dr. Volkow.
+- [06:05.290] And we'll sign the order as soon as they're complete.
+- [06:11.150] And we'll take some questions. Please, go ahead.
+- [06:13.020] Administrator Oz: Mr. President,
+- [06:14.220] thank you for always bravely pushing for common sense change,
+- [06:17.620] as you call it.
+- [06:18.890] So, President Trump, Secretary Kennedy
+- [06:21.130] have been pushing for change.
+- [06:23.690] They're passionate and desire to help the American people
+- [06:26.830] and they have relentlessly pursued this agenda
+- [06:29.130] throughout this administration.
+- [06:30.920] This also includes a deep passion for research,
+- [06:32.960] gold standard research as Secretary Kennedy also says.
+- [06:35.610] But there's another side to the President
+- [06:37.230] that often isn't reflected in media reports
+- [06:40.420] and that's the deep passion he has for the people in his life.
+- [06:43.690] And he has called me frequently about the people
+- [06:46.320] who are calling him, as he alluded to,
+- [06:48.670] who are saying that they've got problems
+- [06:51.320] and they got relief from some of the solutions
+- [06:53.380] we're talking about today.
+- [06:54.760] Howard Kessler, who's standing behind me here,
+- [06:57.110] who's a mutual friend of ours,
+- [06:58.460] was an early caller of the President,
+- [07:00.020] many others have reached out as well.
+- [07:02.960] And Howard's been a passionate advocate
+- [07:04.470] for avoiding narcotics, especially in seniors
+- [07:07.630] and particularly seniors suffering from cancer.
+- [07:10.110] And that's a population that is a very important one.
+- [07:12.950] And it's a sympathetic population
+- [07:15.120] that's desirous of trying new ways
+- [07:17.220] besides some of the conventional approaches
+- [07:19.010] that have been tested by pharmaceutical companies
+- [07:21.230] but have untoward side effects. At the beginning of the year,
+- [07:24.390] one of the first things the President told me --
+- [07:26.600] he doesn't actually tell you, he demanded from me --
+- [07:29.700] that my agency, CMS --
+- [07:31.480] The President: Nobody demands from him; nobody.
+- [07:33.520] You have to know him. Go ahead.
+- [07:34.980] Administrator Oz: That's right, he used all tools at his
+- [07:37.550] wherewithal to find a better way to help seniors,
+- [07:40.990] a passion for a population
+- [07:43.780] that has gotten left behind with these discussions.
+- [07:45.970] I promised that we would find an answer,
+- [07:48.610] even though it had not been done before,
+- [07:50.660] and today, we are delivering on that promise.
+- [07:53.290] Today, our Innovation Center at CMS
+- [07:55.460] is announcing a new model and additional actions
+- [07:57.920] to give seniors access to cannabinoids --
+- [08:00.800] these are CBD's, they're not addictive --
+- [08:04.030] which many are already using to manage pain.
+- [08:06.240] There's some clinical evidence that's showing
+- [08:07.850] that CBD's provide relief from common conditions
+- [08:10.460] that affect Americans,
+- [08:11.760] including cancer symptoms and chronic pain,
+- [08:14.150] and a slew of other problems
+- [08:15.510] that affect disproportionately seniors and our veterans.
+- [08:18.840] And 6 in 10 people who use these CBD's report
+- [08:23.340] that they improve their pain.
+- [08:25.460] I think all of those people are calling the President
+- [08:28.600] judged on the number of calls
+- [08:30.200] in support of what we're doing today.
+- [08:32.260] And sometimes these decisions are difficult
+- [08:34.630] and there's a reason this hasn't happened before
+- [08:36.470] and there's a reason, Mr. President,
+- [08:38.060] that every president before you has whiffed on this issue.
+- [08:40.960] It's tough and I know there's going to be
+- [08:42.660] a lot of discussion about it.
+- [08:43.900] That's why we're so passionate about making it clear
+- [08:46.370] that this patchwork that we're working within now,
+- [08:49.890] the laws and regulations --
+- [08:51.650] they are leaving patients and doctors
+- [08:53.860] without adequate guidance on the safeguards
+- [08:55.620] of how to use these products
+- [08:56.840] even though they're still being used.
+- [08:58.660] At Medicare we cover 68 million Americans,
+- [09:01.720] including people under the age of 65
+- [09:04.240] and they did not have a way of providing
+- [09:06.450] these treatments until today.
+- [09:08.590] With the President's insistence, that's all changes.
+- [09:11.350] The Innovation Center models are going to allow
+- [09:13.070] millions of Americans on Medicare
+- [09:14.740] to become eligible to receive CBD
+- [09:17.210] as early as April of next year.
+- [09:19.560] And at no charge if their doctors recommend them.
+- [09:22.890] Thanks to the hard work of the entire CMS team,
+- [09:24.650] especially Abe Sutton and (Inaudible)
+- [09:26.490] at this -- at the Innovation Center.
+- [09:29.600] The accountable care organizations in this country
+- [09:31.870] working in Medicare will be able to provide these products,
+- [09:34.300] again, at no cost to patients.
+- [09:35.920] Medicare Advantage insurers as we've been calling them
+- [09:38.240] are also agreeing to consider CBD
+- [09:40.830] to be used for the 34 million Americans that they cover.
+- [09:43.590] If you can hear my voice and you're over 65,
+- [09:45.960] you should pay attention to this executive order
+- [09:47.640] because it's going to touch your life.
+- [09:49.250] Again, this all becomes active
+- [09:50.480] after the first quarter of next year.
+- [09:52.180] These CBD products must first meet local
+- [09:53.920] and state quality and safety standards.
+- [09:55.970] They must come from legitimate sources
+- [09:58.030] and they must abide by other regulations of those states.
+- [10:00.950] With these boxes checked patients can be eligible
+- [10:03.150] for up to $500 of hemp-derived products each year.
+- [10:07.630] This is the first government-led testing of quality
+- [10:10.760] and outcomes for patients across different conditions
+- [10:13.430] and it delivers on the need for more data collection
+- [10:15.600] and research into hemp usage. CMS is going to collect data.
+- [10:18.550] That's our job on the patients
+- [10:19.960] that are being given these products by their physicians
+- [10:22.420] and in accordance with all the privacy
+- [10:24.070] and security regulations,
+- [10:25.290] we're going to analyze that data.
+- [10:26.650] We're going to make it publicly available
+- [10:28.030] to everybody to be able to analyze with us.
+- [10:30.360] If it shows promise, we will expand access to these products
+- [10:33.980] to even more conditions amongst Medicare
+- [10:35.780] and Medicaid beneficiaries.
+- [10:37.380] I want to thank not just the secretary,
+- [10:39.100] but, um, Marty Makary.
+- [10:40.480] We want a lot of companies who are doing this research
+- [10:42.540] that approach the FDA for formal approval.
+- [10:44.990] That is the right way to move forward.
+- [10:46.720] And Jay Bhattacharya, who's hiding in the back,
+- [10:48.750] he rarely hides.
+- [10:50.030] But Jay runs NIH and he's agreed to support initiatives
+- [10:53.930] to study the data that we're collecting.
+- [10:56.260] Howard Kessler, God bless you for being a pain in our sides.
+- [11:00.030] Mr. President, he's promised to stop calling you.
+- [11:03.120] But on this issue, he'll call you on other issues.
+- [11:05.930] And I thank you again from the bottom of my heart
+- [11:07.580] for taking a difficult stance.
+- [11:08.850] The President: Thank you, Oz, very much. Okay.
+- [11:12.230] Ilana Braun: Mr. President, members of the cabinet,
+- [11:14.590] thank you so much for the opportunity to be here
+- [11:17.370] and for your leadership in rescheduling cannabis
+- [11:20.020] from schedule one to schedule three.
+- [11:22.880] This decision will accelerate scientific research and expand
+- [11:26.450] what can responsibly be studied.
+- [11:29.890] I'm a cancer psychiatrist and medical cannabis
+- [11:32.340] researcher at the Dana-Farber Cancer Institute.
+- [11:35.290] Over the past decade, federal investment and research
+- [11:38.090] has helped transform cancer care.
+- [11:39.850] People are living longer than ever before.
+- [11:43.220] But cancer care is not only about treating the tumor.
+- [11:46.060] It's also about addressing the anxiety,
+- [11:48.040] the fear the stress that can come with a diagnosis,
+- [11:51.370] symptoms that can interfere with treatment
+- [11:53.520] and make recovery much more difficult.
+- [11:55.720] Many medications we use for acute anxiety
+- [11:58.400] carry significant risks,
+- [11:59.860] particularly in the older adults.
+- [12:02.550] That's why we're studying specific natural compounds
+- [12:05.880] found in cannabis,
+- [12:07.080] including the non-addictive cannabidiol
+- [12:10.390] to understand whether they can safely
+- [12:12.180] and effectively help manage anxiety during cancer treatment.
+- [12:15.690] Rescheduling allows us to ask these questions rigorously about
+- [12:19.650] dosing about safety and who may benefit most.
+- [12:23.410] This research reflects the best of federal investment
+- [12:26.550] helping people not only live longer but live better.
+- [12:29.960] Thank you, Mr. President,
+- [12:31.340] for supporting careful science based research
+- [12:33.950] that puts patients first.
+- [12:35.160] The President: Thank you.
+- [12:36.420] Thank you, doctor. That's beautiful. Thank you.
+- [12:39.480] David J. Casarett: I'll add my vote of thanks, Mr. President.
+- [12:41.540] Um, I never really thought this day would come.
+- [12:44.360] I met a patient about 20 years ago,
+- [12:47.040] a retired professor named Elizabeth who came to my clinic.
+- [12:51.010] She was dying of pancreatic cancer and she asked me
+- [12:53.540] then whether cannabis might help her.
+- [12:56.220] And I said no,
+- [12:57.460] because that's what I learned in medical school.
+- [12:59.480] She reached into her briefcase,
+- [13:00.790] took out a three inch tall stack of articles,
+- [13:03.970] put them down on my desk and said really,
+- [13:07.130] Doctor, you should read these,
+- [13:09.020] you might learn something and I did read those articles,
+- [13:11.650] every single one and found a bunch more.
+- [13:13.260] And I did learn something,
+- [13:14.610] I learned that there actually is some medical benefit to cannabis
+- [13:17.920] that I had not anticipated never heard about in medical school.
+- [13:21.460] Second, I learned that there was a lot we don't know.
+- [13:23.820] And third, I learned it's really, really, really difficult
+- [13:26.410] to do high quality randomized controlled trials
+- [13:29.130] of a substance that's federally illegal.
+- [13:32.110] This rescheduling has the potential to change all of that
+- [13:35.130] and to rewrite the way that we do research
+- [13:37.100] related to cannabis in the United States in three ways.
+- [13:39.040] First of all, it will democratize the research process
+- [13:42.240] so that all academic institutions
+- [13:44.110] can participate in research,
+- [13:45.420] not just elite academic medical centers.
+- [13:48.270] Number two, it will give patients and researchers access
+- [13:51.530] to highly refined reliable sources of cannabis
+- [13:54.970] rather than relying on one or two sources around the country.
+- [13:57.800] And last but not least, it will let us
+- [13:59.340] do the sorts of large scale randomized controlled trials
+- [14:01.700] that we do in oncology and cardiology,
+- [14:03.780] not dozens of patients,
+- [14:05.000] but hundreds or thousands of patients.
+- [14:06.780] That's how we learn, that's how we produce valuable knowledge
+- [14:09.410] that's useful in guiding treatment decisions.
+- [14:12.050] Mr. President, without you this never would have been possible
+- [14:14.460] and my patients and I and all of our families are grateful.
+- [14:16.600] Thank you.
+- [14:17.800] The President: Thank you, Doctor, very much.
+- [14:19.270] Thank you very much.
+- [14:23.380] Dan K. Wiley: Mr. President, I am Dan Wiley,
+- [14:25.350] national commander of the American Legion.
+- [14:27.450] Representing 1.5 million veterans,
+- [14:29.550] we are the biggest largest veterans organization.
+- [14:32.310] We have 2.5 million members of our American Legion family
+- [14:36.700] and I want to start by thanking you
+- [14:38.460] for your leadership on this issue.
+- [14:41.620] This issue is extremely important
+- [14:43.640] to the American Legion.
+- [14:44.920] And thank -- I want to thank you on behalf of the veterans
+- [14:47.760] who are going to benefit from potentially the research
+- [14:52.350] regarding this issue. I also want to thank you
+- [14:55.860] for your VA secretary, Secretary Collins,
+- [14:59.170] and his work on veterans issues with us this past year.
+- [15:04.440] The VA has worked with us on our Be the One mission,
+- [15:07.970] which is a mission to fight the epidemic of veteran suicide.
+- [15:14.530] Veterans are disproportionately affected by conditions
+- [15:18.760] such as PTSD, TBI, depression and chronic pain.
+- [15:25.040] And with this reclassification, it will allow research
+- [15:29.790] to be conducted with regard to cannabis.
+- [15:33.760] There is anecdotal evidence
+- [15:35.290] that cannabis benefits these conditions
+- [15:38.490] and now we'll have an opportunity to see
+- [15:41.070] if research does prove that it is effective.
+- [15:44.300] And if it is so, then it'll open up
+- [15:46.980] a whole new method of treatment
+- [15:49.210] for our veterans with regard to this particular issue.
+- [15:53.640] And so again, I just want to thank you for your leadership
+- [15:57.070] and thank you on behalf of the American Legion
+- [15:59.290] for this executive order.
+- [16:00.530] The President: Thank you. Such great people.
+- [16:01.800] Dan K. Wiley: Thank you very much.
+- [16:03.010] The President: That have suffered
+- [16:04.250] and will suffer a lot less now.
+- [16:05.510] Dan K. Wiley: You're right.
+- [16:06.720] The President: Based on what I hear.
+- [16:09.840] Anybody else? Please.
+- [16:11.650] Nora Volkow: I'm Nora Volkow,
+- [16:12.900] I'm director National Institute on Drug Abuse.
+- [16:15.490] And for us that rescheduling opens the door
+- [16:18.390] to actually be able to accelerate the rate
+- [16:20.640] at which we can do research and discovery
+- [16:23.270] and research is crucial in order for us to,
+- [16:25.900] for example, understand what may be
+- [16:27.950] and for whom the dangers of cannabis use.
+- [16:31.150] Cannabis can be addictive
+- [16:33.200] and certainly people, adolescents,
+- [16:35.510] and children may be the most vulnerable,
+- [16:37.910] but we cannot close our eyes to research
+- [16:40.270] and the opportunity that we are hearing from patients
+- [16:43.060] that for some of them cannabis can solve their problem.
+- [16:46.980] And so what we need to do is do research, number one,
+- [16:49.480] to understand what are those conditions.
+- [16:51.650] Number two, in order to be able to optimally learn
+- [16:54.380] how to use it and to understand number three,
+- [16:57.370] who is a danger and it is knowledge
+- [17:00.130] that will allow us to optimally benefit,
+- [17:03.600] take the benefits that may be behind cannabis
+- [17:06.660] as research shows. But on the other hand,
+- [17:08.960] also enable us better to do prevention interventions
+- [17:12.670] to protect those that are most vulnerable.
+- [17:14.630] So thanks very much.
+- [17:15.840] The President: Great job. Thank you very much.
+- [17:17.520] Thank you, Doctor.
+- [17:18.850] Bobby, do you have something to say?
+- [17:23.310] Robert F. Kennedy Jr.: I'll just echo thank you, Mr. President.
+- [17:25.270] Thank you for your leadership and vision
+- [17:27.860] and finally getting to closure on this issue.
+- [17:31.060] Um, this is a question, a scientific question
+- [17:35.250] that has divided our country for many, many years
+- [17:39.530] and there are valid claims on both sides.
+- [17:41.500] On one side, patients and physicians attest
+- [17:44.630] that this had cannabinoids and --
+- [17:47.830] and THC can be have miraculous effects on chronic pain
+- [17:53.650] on epilepsy, on PTSD, on chemotherapy-induced nausea.
+- [18:00.110] My friend, Howard Kessler,
+- [18:01.490] without whom we wouldn't be here today has drove this --
+- [18:07.060] this -- this -- this change in the schedule
+- [18:12.120] and he did it because of his own experience
+- [18:14.860] and in mitigating the impacts of chemotherapy.
+- [18:18.410] He has nothing to gain from this.
+- [18:20.930] He just saw something that worked for him
+- [18:23.740] that worked for thousands of other Americans
+- [18:26.050] and he wants to make it available to them.
+- [18:28.490] On the other side,
+- [18:30.170] there are valid claims about the negative impacts,
+- [18:33.850] about addiction, about psychosis,
+- [18:37.540] about adverse public health impacts
+- [18:40.670] and impacts particularly on young people.
+- [18:43.260] So we haven't seen the evidence on all of these is anecdotal
+- [18:47.910] and it's hypothetical
+- [18:49.560] because we have not been able to do scientific studies.
+- [18:52.880] There is no -- there is no standardized dosing
+- [18:57.880] and if you don't have standardized dosing,
+- [18:59.800] any study that you do is comparing apples to pears.
+- [19:03.700] And we don't know the difference between botanicals
+- [19:07.420] and synthetics and all of these questions
+- [19:09.970] we're now going to be able to answer.
+- [19:12.050] Five administrations have promised to act on this issue.
+- [19:15.980] The Biden administration promised to do this,
+- [19:18.290] and the proposal began during the Biden administration.
+- [19:21.650] It got mired down in the chaos and inertia and disorganization.
+- [19:26.550] And I want to thank President Trump
+- [19:29.810] who made the promise during the 2024 election
+- [19:33.050] that he was going to come in and solve this issue,
+- [19:35.400] that he was going to take decisive action
+- [19:38.080] and he has kept that promise today.
+- [19:40.260] And so, thank you, President Trump, for your vision.
+- [19:43.470] And because of that we will have answers very soon.
+- [19:47.350] This will finally allow us to study this issue
+- [19:50.980] and to answer these questions for the American people.
+- [19:53.580] The President: Thank you very much, Robert.
+- [19:57.520] Mr. Howard Kessler, a friend of mine,
+- [20:00.010] one of the most successful people in the country,
+- [20:05.370] came to see me on more than one occasion actually.
+- [20:09.550] And he had some real difficulty about three and a half,
+- [20:13.540] four years ago and he went through hell.
+- [20:17.160] And during his going through hell,
+- [20:18.710] he probably sampled everything you can sample
+- [20:21.830] when you're going through that, Howard.
+- [20:23.820] And he came to me and said there's been nothing like this
+- [20:26.420] and we're going to have to take a good strong look at it.
+- [20:29.980] And that's what he asked me to do.
+- [20:32.360] And others have likewise said that -- many others, many --
+- [20:35.220] I mean, again, I've never been inundated by so many people
+- [20:42.570] as I have about this particular reclassification.
+- [20:47.030] And I don't know that you have anything to say,
+- [20:48.820] Howard, if you'd like, you could say whatever you like.
+- [20:51.230] Howard Kessler: I just want to help the people 65 and over
+- [20:54.230] and make a difference in their lives.
+- [20:56.270] And we have machines and talent that could do it not
+- [20:59.920] in eight-year clinical trials but in a year.
+- [21:02.930] And we're going to prove that to be --
+- [21:05.110] may change the world really in health care.
+- [21:07.500] So, thank you, Mr. President.
+- [21:09.000] The President: And I'm far younger than 65,
+- [21:10.810] so this does not pertain to me.
+- [21:13.300] Thank you. I don't want it, Okay.
+- [21:16.520] I'm not going to be taking it, but a lot of people do want it.
+- [21:19.610] A lot of people need it and thank you, Howard,
+- [21:23.400] for really opening a lot of eyes.
+- [21:26.180] OK, we'll sign it. We'll take some questions from the press.
+- [21:29.800] You can ask the doctors some questions
+- [21:32.710] and it's an honor to do this.
+- [21:45.520] That's a good one.
+- [22:05.110] Thank you. Thank you very much, everybody.
+- [22:07.980] Any questions, please?
+- [22:09.310] The Press: Mr. President,
+- [22:10.550] a health-related question on your health care plan.
+- [22:12.920] You've said you want to make direct payments to Americans.
+- [22:15.680] But these Obamacare subsidies are expiring now,
+- [22:18.250] in a matter of just a few days. More than 20 million Americans
+- [22:21.590] are now bracing for their premiums to skyrocket.
+- [22:24.320] Are you going to let this happen or will you intervene?
+- [22:27.170] The President: They will skyrocket
+- [22:28.390] because it was never any good. I'd like to see the money
+- [22:31.330] that is going to the insurance companies
+- [22:33.630] by the hundreds of billions of dollars.
+- [22:36.370] You know, their stocks are up 1,400 percent,
+- [22:39.500] 1,800 percent and 1,624 percent.
+- [22:43.520] Their stocks are up through the roof
+- [22:45.100] over a fairly short period of time
+- [22:47.450] because they're getting vast amounts of money.
+- [22:49.720] I want that money to go to the people directly
+- [22:52.030] and let the people buy their own health care
+- [22:55.280] and they'll get much better health care
+- [22:58.340] than they get with the Unaffordable Care Act
+- [23:02.090] as it's known by a lot of people,
+- [23:03.550] it is virtually unaffordable for people.
+- [23:06.100] It's a bad thing. We can have a great thing.
+- [23:08.420] Let the money go directly to the people
+- [23:10.330] and let them buy their own health care.
+- [23:12.150] The Press: But this is an urgent problem, Mr. President.
+- [23:13.980] Is there anything you can do now, Mr. President?
+- [23:15.660] The President: Can I answer this question?
+- [23:16.900] This is going to be -- this is going to be right now
+- [23:19.260] as far as I'm concerned. Go ahead.
+- [23:20.540] Administrator Oz: We just got data today;
+- [23:22.150] you have federal exchanges
+- [23:23.470] where people come shopping for the ACA.
+- [23:25.510] And the President hasn't heard this yet,
+- [23:27.390] but we've talked to the team,
+- [23:28.810] the percentage change from last year
+- [23:32.070] was down 2.7 to 2.8 percent,
+- [23:35.340] not the massive numbers that have been predicted.
+- [23:37.690] And there's many possible reasons for this.
+- [23:39.800] But right now, Americans are signing up for these programs
+- [23:42.920] despite all the things that have been going on.
+- [23:44.930] 2.8 percent is a tiny fraction
+- [23:47.680] of what many had claimed would happen.
+- [23:49.410] And I think it speaks to the fact
+- [23:50.720] that the American people appreciate
+- [23:51.970] these ACA plans are already subsidized over 80 percent.
+- [23:56.340] So, it's a good deal even if you don't get
+- [23:57.980] the extra 15 to 20 percent.
+- [24:02.670] The President: It's a great solution
+- [24:04.250] to much better health care
+- [24:06.840] at a much lower cost. Yeah, please.
+- [24:08.490] The Press: Sir, do you want Congress
+- [24:09.690] to extend these ACA subsidies?
+- [24:11.470] The President: Well, I'd like to be able to do it.
+- [24:12.850] I'd like to get right into this,
+- [24:14.310] and I'd ask us this question in particular,
+- [24:17.290] but I'd like to see us get right into this.
+- [24:19.260] I don't know why we have to extend.
+- [24:21.150] This could be done rapidly if the Democrats would come along.
+- [24:23.710] We have a problem --
+- [24:25.110] the insurance companies own the Democrat Party, they own it.
+- [24:31.250] And the Democrats are having a hard time.
+- [24:33.150] They give a lot of money to the Democrats.
+- [24:34.970] Very little money to Republicans,
+- [24:36.510] by the way, a lot of money to Democrats.
+- [24:38.780] And they're going to have to decide,
+- [24:40.740] do they want to do the right thing
+- [24:42.060] or do they want to be beholden to the insurance companies.
+- [24:47.520] They're making a fortune.
+- [24:48.910] I want the money to go to the people.
+- [24:50.560] Go ahead, Oz. How would you say that?
+- [24:52.840] Administrator Oz: I agree with the President.
+- [24:54.490] We have some ideas out there.
+- [24:55.880] Congress is working through some concepts.
+- [24:57.640] But I just want to emphasize
+- [24:58.950] that the ACAs are not imploding based on the data
+- [25:02.050] we just received from the federal marketplace.
+- [25:04.090] The President: This can go very quickly actually.
+- [25:05.550] Yes, please.
+- [25:06.750] The Press: Mr. President, can I ask you --
+- [25:08.090] clarify something for me on the Federal Reserve.
+- [25:10.220] How many people are you interviewing
+- [25:11.950] for the fed chairman?
+- [25:13.180] And what did you think of Chris Waller?
+- [25:15.210] The President: I think he's great.
+- [25:16.430] I mean, he's a -- been a man who's been there a long time,
+- [25:20.720] somebody that I was very involved with
+- [25:23.000] in the sense of his career.
+- [25:25.700] And he's a fantastic man. I met him yesterday again.
+- [25:29.360] The Press: So, how many people are you looking at?
+- [25:31.610] The President: We're talking to three or four.
+- [25:34.920] I think every one of them would be a good choice, honestly.
+- [25:38.070] We'll be making a decision pretty quick.
+- [25:39.570] The Press: Is Michelle Bowman on that list too,
+- [25:40.810] are you going to interview her?
+- [25:42.100] The President: She's fantastic. She's a fantastic person.
+- [25:45.600] The Press: Thank you, Mr. President.
+- [25:46.880] Some GOP lawmakers have written to you in recent days
+- [25:49.730] saying they're concerned this executive order
+- [25:51.350] could normalize drug use for youth.
+- [25:52.900] How would you respond to them?
+- [25:54.200] The President: You're talking about this particularly today?
+- [25:56.610] Well, I think I'd let one of the doctors respond to it
+- [25:59.030] because they can do it a lot better than me.
+- [26:00.820] But I can only tell you that when you see polls
+- [26:04.010] of 82 percent of the people want this,
+- [26:07.000] when I have friends that are really, really sick
+- [26:09.210] and they've gone through, I guess you could say,
+- [26:11.770] unfortunately, I don't want to become too involved in it
+- [26:15.180] because I don't want it happening.
+- [26:16.450] But these are people that really know what's going to --
+- [26:18.450] very smart people.
+- [26:19.660] This is one of the most successful people in the country
+- [26:22.490] and a very brilliant guy.
+- [26:24.020] And when they go through this horrible ordeal of cancer
+- [26:29.470] or other things and they realize that this is something
+- [26:34.180] that makes them feel better
+- [26:35.530] without all of the side effects of some of the drugs
+- [26:38.470] where you're just totally knocked out and out of it.
+- [26:41.620] But I'd like to have one of the doctors maybe respond
+- [26:44.140] because you people do it better than anybody.
+- [26:46.120] Nora Volkow: I'm happy to respond.
+- [26:47.720] And my answer is we have had cannabis scheduled for how long,
+- [26:51.690] and it hasn't protected neither the adolescents nor the adults.
+- [26:55.320] We have 20 million people in the United States
+- [26:57.400] with cannabis use disorder. This is not legalizing it.
+- [27:00.950] It's making it easier to do research
+- [27:03.210] so that we can use it when it is indicated and optimally.
+- [27:09.400] The President: So, it's also -- a big part of this is research.
+- [27:12.100] In other words, you'll now have a much larger sample,
+- [27:14.610] and you'll be able to see
+- [27:16.240] if it's as good as many people say it is.
+- [27:18.330] I mean, people say it is beyond good,
+- [27:21.690] and you'll be able to find that out now.
+- [27:23.920] The Press: On housing --
+- [27:25.190] you talked in your address last night about housing.
+- [27:27.600] Are you still considering a national emergency over housing?
+- [27:29.790] The President: I'm looking at it, yes.
+- [27:31.130] The Press: What would that look like? What would that mobilize?
+- [27:32.550] The President: You know, I have two --
+- [27:33.750] there's two thoughts on housing.
+- [27:35.300] You have a lot of people who have housing that,
+- [27:37.820] because we have such a strong time
+- [27:40.510] and such a strong market, their houses are very valuable.
+- [27:43.990] It's a big part of their net worth, their house.
+- [27:48.410] I don't want to knock those numbers down
+- [27:50.180] because I want them to continue to have a big value
+- [27:53.770] for their house.
+- [27:55.110] At the same time, I want to make it possible
+- [27:57.980] for young people out there and other people to buy housing.
+- [28:03.130] In a way they're at conflict.
+- [28:05.140] In other words, you create a lot of housing all of a sudden
+- [28:07.760] and it drives the housing prices down.
+- [28:10.300] So, I want to take care of the people that have houses
+- [28:12.630] that have a value to their house that they never thought possible
+- [28:16.180] that have sort of made them wealthy and happy.
+- [28:20.280] And especially in their later years,
+- [28:22.350] got to be careful with that.
+- [28:23.670] I want to keep them up; at the same time,
+- [28:25.800] I want to make it possible for people to go buy houses.
+- [28:28.840] Daniel, please.
+- [28:30.100] The Press: Mr. President,
+- [28:31.330] you announced the warrior's dividend last night
+- [28:33.660] in your prime-time speech, very patriotic, very generous.
+- [28:36.740] What was the rationale and the thought process?
+- [28:38.560] How did you come up with the idea?
+- [28:39.870] What made you want to give back to our troops?
+- [28:41.330] The President: Well, the 1776 was easy to come up with
+- [28:43.610] because we were actually at 1775.
+- [28:47.050] The number was 1775, and I said wow,
+- [28:51.340] I think we could afford one more dollar.
+- [28:54.090] But we actually -- they came up to me, it was $1,775.
+- [28:59.670] So, I said, well, let's add a dollar to it,
+- [29:01.430] I think we could find that.
+- [29:03.220] And very simple, we've had a military that, in my opinion,
+- [29:09.420] by other presidents, was not treated well.
+- [29:12.000] They're incredible, their finest people.
+- [29:14.470] They're protecting us.
+- [29:16.840] And because of tariffs, we're taking in billions
+- [29:20.860] and billions of dollars more than we ever have before
+- [29:23.980] with no inflation, by the way, with no inflation.
+- [29:26.550] You saw the inflation numbers, they just came out today
+- [29:28.680] what great timing, practically no inflation.
+- [29:31.960] And yet we're taking in hundreds of billions of dollars.
+- [29:35.320] And this is small potatoes by comparison,
+- [29:38.300] but it's a way of taking care of our warriors,
+- [29:40.550] our soldiers and I appreciate that question, Daniel.
+- [29:45.040] It was an easy one.
+- [29:46.750] The Press: Karoline Leavitt, she just posted on X,
+- [29:48.320] your press secretary,
+- [29:49.520] that the board members of the Kennedy Center
+- [29:52.420] voted unanimously to rename it the Trump Kennedy Center.
+- [29:55.280] What is your reaction to that?
+- [29:56.500] The President: Well, I was honored by --
+- [29:57.780] the board is a very distinguished board,
+- [29:59.650] most distinguished people in the country
+- [30:02.220] and I was surprised by it. I was honored by it.
+- [30:04.970] You know, we've -- we're saving the building,
+- [30:06.870] we saved the building.
+- [30:08.090] The building was in such bad shape,
+- [30:09.590] both physically and financially in every other way.
+- [30:11.910] And now it's very solid, very strong.
+- [30:14.450] We have something going on television,
+- [30:17.730] I guess on the 23rd December,
+- [30:20.400] I think it's going to get very big ratings.
+- [30:22.420] And the Kennedy Center is really,
+- [30:25.590] really backed strongly.
+- [30:27.200] It's a very bad shape -- very, very bad shape physically.
+- [30:31.270] And we were also to get Congress to put up a lot of money
+- [30:35.360] and other people to put up a lot of money.
+- [30:36.910] We had a lot of donors come in for record setting numbers.
+- [30:39.520] So we -- we saved the Kennedy Center and I was really --
+- [30:42.360] this was brought up
+- [30:43.710] by one of the very distinguished board members
+- [30:47.140] and they voted on it.
+- [30:48.430] And there's a lot of board members
+- [30:50.410] and they voted unanimously.
+- [30:51.790] So I was very honored by it. Thank you.
+- [30:53.550] The Press: Mr. President,
+- [30:54.800] will you be seeking any authorization from Congress
+- [30:57.410] for any land attacks on cartels in Venezuela?
+- [31:00.560] The President: For any what?
+- [31:01.880] The Press: For any land attacks on drug cartels in Venezuela?
+- [31:04.610] The President: I wouldn't mind telling them,
+- [31:05.980] but, you know, it's not a big deal.
+- [31:07.260] I don't have to tell them. It's been proven,
+- [31:09.770] but it wouldn't -- I wouldn't mind at all.
+- [31:12.310] I just hope they wouldn't leak it.
+- [31:14.710] You know, you have people leak it,
+- [31:16.520] they are politicians and they leak like a sieve,
+- [31:19.780] but I have no problem doing that.
+- [31:24.360] Yes, please?
+- [31:25.680] The Press: Mr. President,
+- [31:26.910] there's a meeting this weekend on Ukraine in Florida.
+- [31:29.730] What are you hoping will come out of that meeting?
+- [31:31.480] The President: Well, they're getting close to something,
+- [31:33.110] but I hope Ukraine moves quickly.
+- [31:35.310] I hope Ukraine moves quickly because Russia's there and,
+- [31:39.540] you know, every time they take too much time,
+- [31:42.240] then Russia changes their mind.
+- [31:44.590] 27,000 soldiers were killed last month. Think of that.
+- [31:49.520] What do you think of that, doctors?
+- [31:51.020] 27,000, It's like a half a football stadium
+- [31:55.250] were killed in one month.
+- [31:57.200] And it's that way, it's anywhere between 20 and 30,000,
+- [32:01.370] mostly soldiers,
+- [32:02.580] also some people from Kyiv and other places,
+- [32:05.560] but largely it's the soldiers, they're losing their lives.
+- [32:09.580] Nobody's ever seen anything like it.
+- [32:10.890] It's the worst since World War II.
+- [32:14.070] And you know, you've heard me say
+- [32:15.980] I settled eight wars some going on for 35 years,
+- [32:20.470] one going on for 37,
+- [32:21.890] one going on for 32 and eight wars.
+- [32:25.930] And I thought this would be an easier one.
+- [32:28.210] This is, because of the animosity, the hatred,
+- [32:31.470] it's a little bit more difficult than we thought,
+- [32:33.520] but there's a chance we can get this done maybe soon.
+- [32:37.630] Sir? Remember that 25 to 30,000 people being killed a month,
+- [32:43.270] young people being killed a month.
+- [32:45.250] Steve, please?
+- [32:46.530] The Press: What do you expect to make your announcement
+- [32:48.360] about the new Fed chair, sir?
+- [32:50.080] Before the end of the year? What do you think?
+- [32:52.710] The President: Over the next couple of weeks.
+- [32:53.920] I mean, I don't know before the end of the year,
+- [32:55.390] but pretty soon.
+- [32:56.660] The Press: And then the Rocky Mount,
+- [32:58.180] North Carolina tomorrow night.
+- [32:59.840] Tell us what your message is going to be there.
+- [33:01.800] The President: Say what?
+- [33:03.010] The Press: When you go to Rocky Mount,
+- [33:04.300] North Carolina tomorrow night, what's your message going to be?
+- [33:06.800] The President: Well, it's not going to be that much different
+- [33:08.230] from what I did last night.
+- [33:09.450] I mean, we've had tremendous success.
+- [33:11.130] We're bringing prices down,
+- [33:12.430] we inherited a mess and part of what we inherited
+- [33:16.850] was the worst inflation in 48 years, I say history.
+- [33:20.060] But we had the worst inflation, it drove prices up
+- [33:24.160] and now we're bringing those prices down.
+- [33:25.950] But I'll be talking about that.
+- [33:27.400] I'll be talking about the fact that we secured the border
+- [33:30.200] where literally nobody can come into our country
+- [33:32.360] illegally anymore. They came in from prisons
+- [33:35.830] and mental institutions and drug dealers
+- [33:38.260] and, you know, a lot of bad people from all over the world.
+- [33:41.870] Venezuela emptied their prisons into our country.
+- [33:44.410] We had Tren de Aragua, which supposedly --
+- [33:49.450] the doctors don't know this.
+- [33:50.700] It's -- it's the meanest gang of them all.
+- [33:53.600] OK, Doctor? You don't have to know about it.
+- [33:55.900] You got other problems.
+- [33:57.470] But they let a lot of bad people in here.
+- [34:01.440] And so I think I'll be talking about that.
+- [34:03.000] I think I'll be talking about the tremendous success
+- [34:05.370] we have by sending the National Guard into various cities.
+- [34:09.390] DC is the ultimate example. People walk to work and they --
+- [34:14.590] they thank me all the time. People in the White House,
+- [34:16.510] they just walk to the White House from ten blocks away.
+- [34:19.260] Before I came into office they couldn't do that.
+- [34:21.990] They were -- they were getting badly hurt in many cases
+- [34:26.580] and beyond hurt killed. So we were losing people.
+- [34:30.360] We were losing on average a person a week,
+- [34:33.120] can you believe it more
+- [34:35.110] and now we haven't lost anybody in a long time.
+- [34:37.350] I consider the two people that got so badly
+- [34:40.190] hurt the National Guard.
+- [34:41.450] That's a difference. That was terrorism --
+- [34:43.290] that was terrorism and probably terrorism,
+- [34:46.330] maybe terrorism because they were unhappy
+- [34:48.700] with the tremendous success we've had
+- [34:50.930] because they don't want to see this country be successful.
+- [34:53.260] But Washington, DC now is a safe, beautiful city
+- [34:57.680] where the restaurants are booming.
+- [34:59.430] The town is booming. People walk to the restaurants
+- [35:02.770] with their wife or their children
+- [35:04.220] and they have a good time.
+- [35:07.760] We were losing all the restaurants
+- [35:09.220] we were losing our life in this. We were just a whole --
+- [35:12.640] the whole heritage of Washington,
+- [35:14.570] DC was down the drain.
+- [35:17.250] And we brought it back and now everybody's thrilled to be here.
+- [35:20.600] It's the hottest -- it's --
+- [35:21.930] it's a part of the hottest country anywhere in the world.
+- [35:24.990] We become in ten months the --
+- [35:27.330] the hottest country anywhere in the world.
+- [35:29.350] And we were -- and I say it all the time,
+- [35:30.840] we were a dead country one and a half years ago.
+- [35:33.660] The Press: Do you expect to meet Prime Minister Netanyahu
+- [35:35.890] while you're down in Palm Beach?
+- [35:37.280] The President: Yeah, he would like to see me.
+- [35:38.710] We haven't set it up formally, but he'd like to see me.
+- [35:41.400] We've had great success.
+- [35:42.660] Peace in the Middle East aside from everything else,
+- [35:45.570] we now have peace in the Middle East.
+- [35:46.910] Yeah, he'll probably come to see me in Florida.
+- [35:49.060] The Press: Egyptians as well or are they --
+- [35:51.050] The President: I'd love to have him,
+- [35:52.330] el-Sisi, he's a friend of mine. Yeah, I'd love to have him.
+- [35:55.440] Thank you very much everybody. Thank you.

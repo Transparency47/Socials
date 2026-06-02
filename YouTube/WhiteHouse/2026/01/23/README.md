@@ -1,0 +1,31 @@
+# YouTube / WhiteHouse / 2026-01-23
+
+- Posts: 9
+
+- [19:33 UTC - JD Vance Delivers Remarks at March For Life ❤️](TCzHuLm_m9E/)
+  - Source: https://www.youtube.com/watch?v=TCzHuLm-m9E
+  - [00:00.160] The March for Life, my friends, it's not - [00:02.080] just about a political issue. As - [00:03.679] important as all this politics stuff is. - [00:06.560] It is abo...
+- [19:31 UTC - THE PEACE PRESIDENT 🕊️🇺🇸](cSRJ1h8aWsA/)
+  - Source: https://www.youtube.com/watch?v=cSRJ1h8aWsA
+  - [00:09.440] Congratulations, President Trump. The - [00:11.759] charter is now in full force and the - [00:13.679] board of peace is now an official - [00:15.839] international o...
+- [19:28 UTC - President Trump Highlights American Economic Strength at the World Economic Forum](Dp_SWEqi65s/)
+  - Source: https://www.youtube.com/watch?v=Dp_SWEqi65s
+  - [00:00.480] I've come to this year's World Economic - [00:02.960] Forum with truly phenomenal news from - [00:05.680] America. - [00:07.279] Yesterday marked the one-year - [00:0...
+- [19:27 UTC - President Trump Highlights First Year in Office 🇺🇸🔥](0BvdnypN9YQ/)
+  - Source: https://www.youtube.com/watch?v=0BvdnypN9YQ
+  - [00:00.320] This is the anniversary, first - [00:01.839] anniversary, - [00:03.360] January 20th, and it's been an amazing - [00:07.359] period of time. We have a book that I'm -...
+- [19:25 UTC - PRESIDENT DONALD J. TRUMP BOULEVARD 🇺🇸](F5tK4I7NOrY/)
+  - Source: https://www.youtube.com/watch?v=F5tK4I7NOrY
+  - [00:00.240] So I'm tremendously honored that the - [00:02.399] main boulevard from Palm Beach - [00:04.080] International Airport to the beautiful - [00:05.920] Mara Lago is bein...
+- [19:24 UTC - POTUS: "We Are Getting the Rural Communities the Support They Need"](hIwTXgtyaXU/)
+  - Source: https://www.youtube.com/watch?v=hIwTXgtyaXU
+  - [00:00.480] Despite colossal increases in government - [00:02.720] spending since Obamacare was passed, - [00:05.359] only 7% of the annual Medicaid spending - [00:08.559] on rur...
+- [17:47 UTC - Vice President JD Vance Addresses the National March for Life Rally](akCFsWnu3KQ/)
+  - Source: https://www.youtube.com/watch?v=akCFsWnu3KQ
+  - [00:06.130] Female Speaker: -- pro-life victories he's delivered - [00:07.730] in his first five years in office so far. - [00:11.080] We are looking forward to many more in the...
+- [17:34 UTC - President Donald J. Trump March for Life 2026](YR6d3DbwJ9E/)
+  - Source: https://www.youtube.com/watch?v=YR6d3DbwJ9E
+  - [00:00.440] Hello to everyone at the March for Life. - [00:03.400] For 53 years, students, families, - [00:05.960] patriots, and believers have come to - [00:08.200] Washington f...
+- [14:50 UTC - President Donald J. Trump Attends the World Economic Forum in Davos](Uh2uUR6p3TI/)
+  - Source: https://www.youtube.com/watch?v=Uh2uUR6p3TI
+  - [00:00.000] Heat - [00:12.000] up - [00:25.119] here. - [00:27.439] Heat. - [00:39.280] Heat.

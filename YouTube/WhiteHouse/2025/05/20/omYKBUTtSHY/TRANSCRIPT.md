@@ -1,0 +1,328 @@
+<!-- source: https://www.youtube.com/watch?v=omYKBUTtSHY -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: omYKBUTtSHY -->
+<!-- date_published: 2025-05-20T17:16:20+00:00 -->
+<!-- date_accessed: 2026-06-02T02:49:43.583383+00:00 -->
+
+# Transcript: Press Secretary Karoline Leavitt Holds a Press Briefing for Take Our Sons and Daughters to Work Day
+
+- [00:05.490] Karoline Leavitt: Hello, everybody.
+- [00:08.390] Hi, everybody.
+- [00:13.720] Hi, guys.
+- [00:17.080] Good afternoon, everyone.
+- [00:19.940] It is such a pleasure to see so
+- [00:22.554] many beautiful faces in this room.
+- [00:25.820] And so many future leaders.
+- [00:27.740] Hi, Eloise [phonetic].
+- [00:28.400] You look so cute back there.
+- [00:31.100] I'm so excited to host this briefing today
+- [00:34.120] in honor of National Bring Your Kids
+- [00:37.180] to Work Day, and it's great to
+- [00:39.139] see so many future leaders here.
+- [00:41.760] Welcome to the James S. Brady
+- [00:43.880] Briefing Room.
+- [00:44.780] My name is Karoline Leavitt and I am the
+- [00:47.091] White House Press Secretary
+- [00:48.667] for President Donald J. Trump.
+- [00:52.310] He is the 45th and now the 47th
+- [00:54.357] President of United States.
+- [00:56.820] My job at the White House is to
+- [00:58.722] communicate the President's message to the
+- [01:01.301] American people and to answer questions
+- [01:03.352] from journalists who work in this building every day.
+- [01:06.460] Many of whom are your moms and your dads.
+- [01:10.500] Now, they ask me some pretty good
+- [01:12.061] questions, but I'm sure you will all have
+- [01:14.400] excellent questions to ask me yourselves.
+- [01:17.110] So before we open it up to questions
+- [01:18.896] today, I will give you a very short update
+- [01:21.230] on what the President is working on today.
+- [01:24.420] Earlier this morning, President Trump
+- [01:26.340] traveled to Capitol Hill to meet with
+- [01:28.910] members of the House of Representatives
+- [01:31.304] to talk about the One Big Beautiful Bill
+- [01:33.970] that we are trying to pass through Congress.
+- [01:36.790] The President is now back at the White
+- [01:38.695] House where he is taking meetings.
+- [01:40.800] And later this afternoon, he will be
+- [01:42.790] making an announcement from the Oval Office
+- [01:45.580] with our Secretary of Defense.
+- [01:49.480] He's in charge of our military, Pete Hegseth.
+- [01:50.530] So I want to thank all of you for coming today.
+- [01:55.625] It's great to have you here at the
+- [01:56.092] People's House and you have some very
+- [01:56.601] special parents who perform a very special job.
+- [02:00.260] And we are here to make America great again.
+- [02:04.270] And we live in the best country
+- [02:05.809] in the history of the world.
+- [02:07.201] And we are all very blessed to be here.
+- [02:09.620] So with that, thank you.
+- [02:11.800] I am happy to take some of your questions.
+- [02:15.630] And why don't you start us off,
+- [02:17.240] beautiful little girl.
+- [02:18.000] Go ahead.
+- [02:23.200] She's thinking very hard about it.
+- [02:28.020] Press Mom: You ask it.
+- [02:28.521] You can ask it.
+- [02:30.220] She wants to know if Donald Trump likes to give hugs.
+- [02:33.140] Karoline Leavitt: Oh, does he like to give hugs?
+- [02:34.740] You know, I think he does.
+- [02:38.210] I have seen him give many hugs to children
+- [02:40.011] and his family and our beautiful First Lady.
+- [02:42.140] So yes, I do think he likes to give hugs.
+- [02:46.440] You're welcome.
+- [02:48.260] Emily, would you like to ask a question?
+- [02:52.620] Emily: What is the funnest part about your job
+- [02:55.147] and the hardest part about your job?
+- [02:58.230] Karoline Leavitt: Well, that is definitely a very good question.
+- [03:01.720] I think the most fun part about my job is
+- [03:03.850] doing things like this with all of you in
+- [03:05.981] the briefing room and answering
+- [03:07.649] so many great questions.
+- [03:11.940] I think the hardest part of my job is also
+- [03:12.717] doing things like this in the briefing room
+- [03:14.120] and answering all of these questions and
+- [03:16.530] reading the news is a big part of my job every day.
+- [03:20.270] I wake up and read the newspaper and watch
+- [03:22.252] the news and listen to all of the things
+- [03:24.141] that your parents are reporting on in the news.
+- [03:26.840] And that's a big part of my job every day.
+- [03:30.180] Frankie, go ahead.
+- [03:32.180] Frankie: What is President Trumps favorite food?
+- [03:34.950] Karoline Leavitt: What is President Trump's favorite food?
+- [03:38.260] Well, President Trump loves a lot of
+- [03:40.168] different foods, but I think his favorite
+- [03:42.490] is probably steak.
+- [03:44.100] I've had steak on with him on many
+- [03:46.227] occasions and he likes to eat a big,
+- [03:48.940] beautiful steak.
+- [03:52.480] Do you like steak, Frankie?
+- [03:54.920] Yes?
+- [03:55.680] Okay.
+- [03:56.600] Jack, nice to see you.
+- [03:58.490] I like your hat.
+- [03:59.780] You're welcome.
+- [04:00.740] Would you like to ask a question?
+- [04:02.160] Jack: What's the state of the border?
+- [04:03.640] Karoline Leavitt: What's the state of the border?
+- [04:05.920] I can assure you the border is the most
+- [04:08.096] secure and has ever been in the history of our country.
+- [04:11.520] And I think your dad works for
+- [04:12.910] the Homeland Security Council.
+- [04:15.200] That's a very apropos question and your
+- [04:17.114] dad's doing a great job securing the border.
+- [04:20.265] Hazel Jane, what a beautiful name.
+- [04:23.210] Would you like to ask a question?
+- [04:26.040] Okay.
+- [04:28.770] Hazel Jane: Actually, can you come back to me?
+- [04:32.080] Karoline Leavitt: Sure, I'd be happy to.
+- [04:33.460] Bobby Lynn?
+- [04:36.550] Bobby Lynn: How many people has he fired?
+- [04:42.050] Karoline Leavitt: How many people has he fired?
+- [04:45.830] Thus far actually we have not had
+- [04:51.310] anyone fired with the exception of one
+- [04:53.777] individual who did leave their job.
+- [04:56.400] But we have a great team here so far, so good.
+- [05:01.120] Thank you for the question.
+- [05:03.270] Yes, little man.
+- [05:05.290] Is that your mommy?
+- [05:07.830] Your mommy is a great journalist.
+- [05:10.210] What's your question?
+- [05:12.730] What's your question?
+- [05:17.120] Press Mom: What's Donald Trump's favorite ice cream
+- [05:18.630] he wants to know.
+- [05:21.550] Karoline Leavitt: I have seen the president eat ice cream
+- [05:24.610] sundays before with chocolate sauce and
+- [05:27.820] some toppings too.
+- [05:29.570] Raise your hand if you like ice cream sundays.
+- [05:32.010] It's a very popular policy position to have.
+- [05:36.190] Yes, very good.
+- [05:38.490] Dario, would you like to go?
+- [05:41.550] Dario What is the president (inaudible)?
+- [05:48.230] Karoline Leavitt: If the president could have a superpower,
+- [05:50.230] what would it be?
+- [05:51.950] That is a very good question.
+- [05:53.190] I think if he had a superpower, it
+- [05:55.307] would be to just snap his fingers and
+- [05:57.611] solve all of our country's problems.
+- [05:59.770] Just like that because he likes
+- [06:01.118] to get things done very quickly.
+- [06:02.770] But sometimes it takes a little bit longer.
+- [06:05.560] Like today he had to go to Capitol Hill
+- [06:07.770] to convince people to vote for
+- [06:09.522] his One Big Beautiful Bill.
+- [06:10.811] I bet if he had a superpower, he would
+- [06:12.732] snap his fingers and get it passed immediately.
+- [06:15.755] But life doesn't work that way, unfortunately.
+- [06:18.930] Go ahead, buddy.
+- [06:20.930] Child Press: What is Donald Trump's favorite soccer player?
+- [06:23.710] Karoline Leavitt: Favorite soccer player?
+- [06:26.370] I don't know the answer to that.
+- [06:29.030] It's a very good question.
+- [06:30.350] I will check in with the president and get back to you.
+- [06:32.630] How's that sound?
+- [06:34.230] But I know he likes soccer and he likes all sports.
+- [06:37.950] Go ahead.
+- [06:39.530] Child Press: (inaudible) each week?
+- [06:41.710] Karoline Leavitt: Does he leave the country each week?
+- [06:43.890] No, he doesn't.
+- [06:44.930] We left the country last week and we went
+- [06:47.864] on a long trip to the Middle East very far away.
+- [06:51.910] But we have some plans to leave
+- [06:53.507] the country later this year.
+- [06:55.130] But most weeks he's right here at
+- [06:56.608] the White House working very hard.
+- [06:58.810] Nora, go ahead.
+- [07:01.020] Nora: Which is Donald Trump's favorite
+- [07:03.301] president besides himself?
+- [07:06.870] Karoline Leavitt: It's a good question because
+- [07:09.493] it would be probably himself.
+- [07:13.820] I think that perhaps he would say George Washington.
+- [07:19.010] I know he speaks very highly of George Washington.
+- [07:22.480] He was of course the first
+- [07:23.634] president of our great country.
+- [07:25.225] And he has his big beautiful portrait
+- [07:27.356] hanging in the Oval Office above the fireplace.
+- [07:30.510] Good question.
+- [07:31.650] Go ahead.
+- [07:32.600] You look very professional and beautiful.
+- [07:36.080] Child Press: What's it like --
+- [07:39.710] what is it like balancing a baby and your
+- [07:42.536] job as the President's press secretary?
+- [07:46.710] Karoline Leavitt: It's a very good question and
+- [07:48.324] my baby is here with my mother.
+- [07:51.470] As you can see he does not know what's going on.
+- [07:54.170] But it is a challenge every day.
+- [07:56.820] But it's also a blessing to have
+- [07:58.509] this opportunity and to be a mom.
+- [08:00.300] So you have to learn to prioritize your
+- [08:02.984] time and lean on your support system,
+- [08:06.500] which is my mother and my husband
+- [08:08.172] and my family and friends.
+- [08:10.150] And you can do it.
+- [08:11.170] You just have to work very hard.
+- [08:14.430] Yes.
+- [08:14.630] Child Press: Hi, my name is (inaudible)
+- [08:17.590] my mom is (inaudible).
+- [08:18.960] Karoline Leavitt: Niice to meet you.
+- [08:20.620] My question is as part of secretary --
+- [08:23.482] the youngest press secretary, what advice
+- [08:26.571] would you give to young girls like
+- [08:28.332] me who want to (inaudible)?
+- [08:30.640] Karoline Leavitt: It's a great question and you're so beautiful.
+- [08:33.830] My best advice would be to work as hard
+- [08:36.033] as you possibly can and just pursue every
+- [08:38.750] opportunity that opens up and is given to
+- [08:41.427] you and just work, work, work as hard as you can.
+- [08:44.550] Child Press: Thank you so much.
+- [08:45.311] Karoline Leavitt: You're welcome.
+- [08:46.440] Behind you.
+- [08:47.770] Yeah.
+- [08:48.330] Child Press: What is Donald Trump
+- [08:49.612] going to do about climate change?
+- [08:51.070] Karoline Leavitt: What is Donald Trump going
+- [08:52.392] to do about climate change?
+- [08:54.440] Well, that is a very good question.
+- [08:56.590] The President cares very much about our environment.
+- [08:59.490] He says all the time he wants to have
+- [09:01.470] the cleanest air, the cleanest water,
+- [09:03.740] the cleanest environment for the world.
+- [09:06.270] He also cares very much about our energy
+- [09:08.680] independence and ensuring that we can keep
+- [09:11.211] the lights on in our homes at a very cheap rate.
+- [09:13.570] So we want to make energy here in the
+- [09:15.518] United States because we do it
+- [09:17.138] cleaner and better than everyone.
+- [09:18.830] So I think that's how the President
+- [09:20.230] would answer that question.
+- [09:21.630] You're welcome.
+- [09:22.631] Child Press: What is your favorite country
+- [09:24.488] that you've been to before?
+- [09:26.690] Karoline Leavitt: What is my favorite country I've been to before?
+- [09:29.790] Oh, wow.
+- [09:30.810] That's a very good question.
+- [09:33.110] Well, I've been to many countries.
+- [09:35.610] I lived in Italy for a few months to study.
+- [09:37.631] But I very much enjoyed our trip last week
+- [09:39.856] to the Middle East where the President
+- [09:41.871] went to Qatar, Saudi Arabia,
+- [09:43.973] and the United Arab Emirates.
+- [09:46.720] And they were three beautiful countries.
+- [09:49.100] We'll take a couple more questions.
+- [09:50.845] To the back -- that beautiful high hand.
+- [09:52.770] Go ahead.
+- [09:55.540] Child Press: What pets (inaudible) grow up (inaudible)?
+- [10:00.390] Karoline Leavitt: What was that, buddy?
+- [10:02.890] Child Press: What pets did
+- [10:05.460] Donald Trump had when he grew up and also right now.
+- [10:09.430] Karoline Leavitt: Well, he doesn't have any pets right now.
+- [10:11.470] I don't know if he had any pets when he was growing up.
+- [10:13.750] I'll have to check with him and ask.
+- [10:16.050] But there's no pets at the White House
+- [10:18.030] right now, except for our great canine
+- [10:20.260] Secret Service dog friends that are here to protect us.
+- [10:23.370] Hazel Jane, did you remember question?
+- [10:25.590] Okay, let's hear it.
+- [10:26.431] Child Press: What's the President's religion?
+- [10:28.350] Karoline Leavitt: What's the President's religion?
+- [10:29.830] The President is a Christian and he believes in Jesus.
+- [10:35.350] In the back?
+- [10:40.510] Child Press: What did the President do today?
+- [10:45.750] The President was very busy, he went to Capitol Hill
+- [10:47.890] And then he's here back at the White
+- [10:49.975] House, and he's doing meetings,
+- [10:51.960] and then he's going to do a big
+- [10:53.537] announcement at 3:00 where all of
+- [10:55.520] your moms and dads will be able
+- [10:56.938] to ask him questions directly.
+- [10:58.890] Go ahead, buddy.
+- [11:01.930] Child Press: (inaudible)
+- [11:08.630] Karoline Leavitt: What was that, buddy?
+- [11:10.050] Child Press: How much candy (inaudible) a day?
+- [11:15.050] Karoline Leavitt: How much candy does he eat a day?
+- [11:18.850] A good amount.
+- [11:19.930] A good amount of candy, yes.
+- [11:21.730] He likes pink starburst and tootsy rolls.
+- [11:25.310] Yes, buddy, go ahead.
+- [11:26.030] We'll take two more.
+- [11:27.930] Child Press: What's the President's
+- [11:29.390] favorite order at McDonalds?
+- [11:31.510] Karoline Leavitt: The President's favorite order at Donalds.
+- [11:34.430] He loves McDonald's hamburgers and French fries.
+- [11:37.430] Who doesn't?
+- [11:38.750] They're good.
+- [11:40.090] In the back.
+- [11:41.070] Go ahead, bud.
+- [11:41.950] Child Press: (inaudible) least favorite (inaudible)
+- [11:44.010] Karoline Leavitt: My least favorite, what?
+- [11:49.130] Karoline Leavitt: I could tell you're a staff kid, not a journalist.
+- [11:55.130] (inaudible) say ABC.
+- [11:58.340] It's honestly, it depends on the day.
+- [12:02.170] Go ahead, honey.
+- [12:03.870] Child Press: (inaudible) room in the White House?
+- [12:08.960] Karoline Leavitt: Favorite room in the White House?
+- [12:10.621] I think his favorite room in the White
+- [12:12.870] House is definitely the Oval Office.
+- [12:15.480] Because it's so beautiful and
+- [12:16.760] he has decked it out in gold.
+- [12:18.760] It's now MAGA gold in there.
+- [12:22.320] Yes, go ahead.
+- [12:22.980] One more.
+- [12:24.620] Child Press: What's his favorite child?
+- [12:31.650] Karoline Leavitt: That is a very controversial question
+- [12:33.558] and I am not going to answer it.
+- [12:35.990] I know he loves all of his children very much.
+- [12:38.240] And they're all great kids.
+- [12:39.510] Some of them were here yesterday.
+- [12:41.490] We'll do one more to the little
+- [12:42.893] girl in the back behind you.
+- [12:44.800] Yes.
+- [12:46.730] Karoline Leavitt: Who's my favorite president?
+- [12:48.940] Well, that's a good question to answer.
+- [12:51.560] Donald Trump.
+- [12:52.720] Thank you guys so very much.
+- [12:54.420] It's good to see you all of you.
+- [12:56.060] Thank you for coming.
+- [12:57.540] We'll see you later.
+- [12:59.340] You're welcome.

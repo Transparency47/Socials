@@ -1,0 +1,1057 @@
+<!-- source: https://www.youtube.com/watch?v=X5gMiDnYEds -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: X5gMiDnYEds -->
+<!-- date_published: 2025-01-21T23:11:13+00:00 -->
+<!-- date_accessed: 2026-06-02T02:54:50.201682+00:00 -->
+
+# Transcript: President Trump Gives Remarks Regarding U.S. Infrastructure Investment
+
+- [00:00.000] The President: Hello, everybody.
+- [00:01.250] Mr. Ellison: Mr. President, [inaudible 00:00:03].
+- [00:03.310] The President: Thank you.
+- [00:04.630] Nice to see you. Some very familiar faces.
+- [00:12.650] Well, thank you very much and it's an honor to be here today.
+- [00:16.010] We have first full day as President, we're back.
+- [00:22.020] And we had a great first term
+- [00:23.940] but we're going to have an even better second term.
+- [00:27.200] And I think we're going to do things
+- [00:28.780] that people would be shocked at.
+- [00:30.800] We're starting off with tremendous investment
+- [00:35.000] coming into our country at levels
+- [00:37.710] that nobody's really ever seen before.
+- [00:39.650] And they're very happy with the fact that I won the race
+- [00:45.200] and that they feel confident in their investments.
+- [00:48.350] And it's big money and high-quality people.
+- [00:51.640] So my first day back from having a nice life,
+- [00:57.600] it's my honor to welcome
+- [00:58.840] three of the world's leading technology CEOs,
+- [01:01.580] and in the case of Larry, Larry Ellison,
+- [01:04.890] it's well beyond technology, sort of CEO of everything.
+- [01:10.220] He's an amazing man and an amazing business person.
+- [01:15.000] But to announce the largest AI infrastructure project
+- [01:18.250] by far in history
+- [01:19.990] and it's all taking place right here in America.
+- [01:24.940] As you know, there's great competition for AI
+- [01:27.300] and other things and they're coming in at the highest level.
+- [01:32.350] We're joined by Oracle Executive Chairman,
+- [01:35.070] Larry Ellison, SoftBank CEO,
+- [01:39.940] my friend Masa, Masayoshi Son, and CEO of OpenAI,
+- [01:46.830] and I would say by far the leading expert
+- [01:51.130] based on technology, Sam Altman.
+- [01:54.520] So that's great that you're coming in together.
+- [01:57.690] That's a massive group of talent and money.
+- [02:01.260] Together, these world leading technology giants
+- [02:03.770] are announcing the formation of Stargate.
+- [02:07.850] So put that name down in your books
+- [02:10.330] because I think you're going to hear a lot
+- [02:11.740] about it in the future.
+- [02:13.730] A new American company that will invest $500 billion
+- [02:17.630] at least in AI infrastructure in the United States,
+- [02:21.610] and very quickly moving, very rapidly,
+- [02:24.630] creating over 100,000 American jobs almost immediately.
+- [02:29.360] This monumental undertaking
+- [02:30.890] is a resounding declaration of confidence
+- [02:33.550] in America's potential under a new president.
+- [02:38.320] Let me be a new president. I didn't say it, they did.
+- [02:42.500] So I appreciate that, fellas.
+- [02:44.140] But it'll ensure the future of technology.
+- [02:47.770] What we want to do is we want to keep it in this country.
+- [02:50.140] China is a competitor and others are competitors.
+- [02:54.110] We want it to be in this country and we're making it available.
+- [02:59.110] I'm going to help a lot through emergency declarations
+- [03:03.190] because we have an emergency. We have to get this stuff built.
+- [03:06.520] So they have to produce a lot of electricity
+- [03:09.700] and we'll make it possible for them to get that production
+- [03:12.760] done very easily at their own plants if they want,
+- [03:16.120] where they'll build at the plant, the AI plant,
+- [03:19.080] they'll build energy generation and that will be incredible.
+- [03:27.030] But it's technology and artificial intelligence
+- [03:29.650] all made in the USA.
+- [03:31.580] Beginning immediately, Stargate will be building
+- [03:34.920] the physical and virtual infrastructure
+- [03:36.980] to power the next generation of advancements in AI.
+- [03:40.670] And this will include the construction
+- [03:42.780] of colossal data centers. Very, very massive structures.
+- [03:47.880] I was in the real estate business,
+- [03:49.150] these buildings, these are big, beautiful buildings,
+- [03:51.660] they're going to employ a lot of people and physical campuses
+- [03:55.060] and locations currently being scouted nationwide.
+- [03:57.790] They're making their choices of locations.
+- [03:59.920] I think they have their choice.
+- [04:02.360] I'd like to ask Larry, Sam, and Masa to say a few words
+- [04:07.840] and just talk about a little bit about what they're doing.
+- [04:10.450] And if you have any questions,
+- [04:12.830] and then we'll go into a couple of other subjects also.
+- [04:15.430] But this is, to me a very big thing,
+- [04:17.990] $500 billion Stargate project.
+- [04:22.020] I think it's going to be something that's very special.
+- [04:24.250] It will lead to something that could be the biggest of all.
+- [04:28.010] So Larry, maybe we'll start with you
+- [04:30.470] and we'll go down the line. Thank you.
+- [04:33.010] Mr. Ellison: Okay. Thank you. Mr. President.
+- [04:35.110] Thank you, sir. Thank you, Mr. President.
+- [04:39.090] We certainly couldn't do this without you.
+- [04:41.990] It would simply be impossible.
+- [04:44.550] AI holds incredible promise for all of us, for every American.
+- [04:50.290] We've actually been working with OpenAI for a while
+- [04:53.070] and with Masa for a while.
+- [04:55.170] The data centers are actually under construction.
+- [04:57.550] The first of them are under construction in Texas.
+- [05:00.150] Each building's a half-a-million-square feet.
+- [05:02.490] There are 10 buildings currently,
+- [05:04.400] currently being built, but that will expand to 20
+- [05:06.990] and other locations beyond the Abilene location,
+- [05:11.150] which is our first location.
+- [05:12.910] The kind of applications that we're building,
+- [05:15.450] to give you an idea, maybe the most charismatic
+- [05:18.070] and the one that I think touches us all
+- [05:20.330] is electronic health records.
+- [05:24.850] Not just maintaining electronic health records,
+- [05:27.000] but by looking at electronic health records
+- [05:29.140] understanding the condition, doctors better,
+- [05:32.100] understanding the condition of their patients,
+- [05:34.660] and being able to provide healthcare plans
+- [05:37.260] that are much better than they otherwise would be.
+- [05:39.620] A doctor in Indian River Reservation
+- [05:43.420] would be able to see how a doctor at Memorial
+- [05:46.690] Sloan Kettering would treat the patient,
+- [05:49.580] or a doctor at Stanford would treat the patient.
+- [05:54.250] We actually provide all of that information,
+- [05:56.370] all of that guidance to the doctors
+- [05:59.460] who are treating cancer patients
+- [06:01.560] or patients of any other kind of disease made possible by AI.
+- [06:05.330] I'm not going to take a lot of time,
+- [06:06.790] I'm going to pass it to Masa,
+- [06:08.190] but this is a very exciting program for Oracle
+- [06:10.650] to be a part of. Thank you.
+- [06:11.940] Mr. Son: Thank you.
+- [06:18.180] The President: Thought it would be helpful.
+- [06:20.450] Mr. Son: That's good. That's great. I feel tall now.
+- [06:27.380] Thank you.
+- [06:28.610] Well, Mr. President, last month I came to celebrate your winning
+- [06:35.790] and promised that we will invest $100 billion.
+- [06:40.410] And you told me, "Oh, Masa go for 200."
+- [06:43.830] The President: It's true.
+- [06:46.080] Mr. Son: Now I came back with 500.
+- [06:49.250] The President: [inaudible 00:06:51].
+- [06:50.980] Mr. Son: Because this is the, as you say yesterday,
+- [06:54.420] this is the beginning of Golden Age.
+- [06:57.130] The President: Golden Age.
+- [06:58.400] Mr. Son: Of America.
+- [06:59.630] This is one great example, I think, right?
+- [07:03.830] We wouldn't have decided to do this.
+- [07:05.440] The President: I hope so and I think so.
+- [07:06.650] Mr. Son: This is the beginning of a golden age.
+- [07:08.740] We wouldn't have decided unless you won.
+- [07:12.120] And yesterday we agreed, we signed to make this happen.
+- [07:16.710] The President: It's great.
+- [07:18.170] Mr. Son: Because of this day.
+- [07:20.080] The President: Very nice.
+- [07:21.350] Mr. Son: So we would make this happen.
+- [07:25.380] We would immediately start deploying $100 billion
+- [07:29.990] with the goal of making $500 billion within next four years,
+- [07:34.910] within your term, right? Because of your success.
+- [07:41.220] So we are very, very excited to do this.
+- [07:45.000] And our partner is of course Softbank,
+- [07:49.110] OpenAI, Oracle, and additionally investment partner with MGX.
+- [07:57.210] On top of that, we have the technology partner,
+- [08:00.260] NVIDIA, and of course
+- [08:02.650] Microsoft has been very, very supportive to Sam
+- [08:06.300] and continue to support all our success.
+- [08:11.340] This is not just for business.
+- [08:14.240] As Larry said, this will help people's life.
+- [08:18.340] This will help solving many, many issues, difficult things
+- [08:23.990] that otherwise we could not have solved with the power of AI.
+- [08:29.990] I think Asia is coming very, very soon,
+- [08:34.190] and after that, that's not the goal.
+- [08:36.580] After that, artificial super intelligence
+- [08:39.990] will come to solve the issues that mankind would never,
+- [08:44.660] ever have thought that we could solve.
+- [08:48.110] Well, this is the beginning of our Golden Age.
+- [08:52.950] Thank you very much.
+- [08:54.290] The President: Thank you very much. Fantastic.
+- [08:56.080] Mr. Son: Sam.
+- [08:58.670] Mr. Altman: I don't have too much to add,
+- [09:00.200] but I did want to say I'm thrilled we get to do this
+- [09:02.040] in the United States of America.
+- [09:03.490] I think this will be the most important project of this era.
+- [09:06.320] And as Masa said for AGI to get built here,
+- [09:09.080] to create hundreds of thousands of jobs
+- [09:10.860] to create a new industry centered here,
+- [09:13.210] we wouldn't be able to do this without you, Mr. President,
+- [09:15.480] and I'm thrilled that we get to.
+- [09:17.090] I think it'll be an exciting project.
+- [09:19.330] I think we'll be able to do all of the wonderful things
+- [09:21.660] that these guys talked about.
+- [09:23.080] But the fact that we get to do this in the United States
+- [09:25.660] is I think wonderful. So thank you very much.
+- [09:29.080] The President: Could you just say one word?
+- [09:30.820] I hear so many positive things
+- [09:32.950] about what it's going to do for medical research
+- [09:35.910] and for solving things, cancer and all the different problems.
+- [09:39.910] How will AI help us with the fight
+- [09:42.380] against the various problems, diseases, et cetera?
+- [09:47.630] Mr. Altman: These guys can maybe share more
+- [09:48.860] about some of the work they're doing there.
+- [09:50.470] I think they'll jointly be some of the leaders
+- [09:53.090] about driving progress here.
+- [09:54.520] But I believe that as this technology progresses
+- [09:57.440] we will see diseases get cured at an unprecedented rate.
+- [10:01.320] We will be amazed at how quickly we're curing this cancer
+- [10:04.010] and that one and heart disease.
+- [10:06.190] And what this will do for the ability
+- [10:09.290] to deliver very high quality healthcare,
+- [10:11.020] the costs, but really to cure the diseases at a rapid,
+- [10:14.630] rapid rate, I think will be among the most important
+- [10:18.270] things this technology does.
+- [10:20.240] Mr. Ellison: Great, very good. Thank you.
+- [10:22.220] Can I speak and answer that question, Mr. President?
+- [10:25.740] So we're currently working on … Should I step on this?
+- [10:28.900] Okay. All right. No, no. I'm not that tall.
+- [10:33.720] I'm not that tall. I'm not that tall.
+- [10:35.130] The President: You look very good.
+- [10:37.220] You look even better now.
+- [10:39.460] Mr. Ellison: Thank you. Mr. President.
+- [10:41.130] One of the most exciting things we're working on, again,
+- [10:43.910] using the tools that Sam and Masa
+- [10:46.290] are providing is a cancer vaccine.
+- [10:50.550] It's very interesting. It turns out, I'll be quick,
+- [10:54.890] all of our cancers, cancer tumors, little fragments
+- [10:59.670] of those tumors float around in your blood.
+- [11:03.560] So you can do early cancer detection.
+- [11:07.000] You can do early cancer detection with a blood test.
+- [11:12.070] And using AI to look at the blood test
+- [11:16.570] you can find the cancers
+- [11:18.940] that are actually seriously threatening the person.
+- [11:20.950] So we can, again, cancer diagnosis
+- [11:24.780] using AI as the promise of just being a simple blood test.
+- [11:28.270] Then beyond that, once we gene sequence,
+- [11:32.570] once we gene sequence that cancer tumor,
+- [11:36.130] you can then vaccinate the person,
+- [11:39.460] design a vaccine for every individual person
+- [11:43.050] to vaccinate them against that cancer.
+- [11:46.010] And you can make that vaccine, that mRNA vaccine,
+- [11:51.370] you can make that robotically again
+- [11:53.640] using AI in about 48 hours.
+- [11:55.900] So imagine early cancer detection,
+- [11:58.580] the development of acancer vaccine
+- [12:00.950] for your particular cancer aimed at you
+- [12:03.700] and have that vaccine available in 48 hours.
+- [12:06.740] This is the promise of AI and the promise of the future.
+- [12:11.270] The Press: Thank you, sir.
+- [12:12.910] The President: All right. Thanks.
+- [12:16.070] Mr. Ellison: Thank you, sir.
+- [12:17.270] The Press: We had more questions.
+- [12:18.480] The President: Yeah, just one second and we'll finish up.
+- [12:20.450] But these are highly respected guys.
+- [12:24.140] I was shocked with Larry
+- [12:25.340] because I don't even think Larry does this stuff.
+- [12:27.470] You did a very good job
+- [12:28.710] for a guy that doesn't do it much, right?
+- [12:30.960] But he's so respected and the group and it's really an honor.
+- [12:35.460] But for Larry to be here and do this is very unusual
+- [12:40.450] because he doesn't do this stuff.
+- [12:41.760] He doesn't need it. And you don't need it, do you?
+- [12:46.130] You don't need it, but I think it's an honor to the country.
+- [12:51.330] It's a great honor that this group,
+- [12:53.650] these are the top people,
+- [12:56.400] that they're going to do it and they're going to do it here
+- [12:59.870] and we're going to make it as easy as it can be.
+- [13:03.610] A $500 million Stargate project comes in addition
+- [13:06.560] to a separate pledge between $100 and $200 billion
+- [13:11.800] as we know from Masa.
+- [13:14.190] We talked about before, also $20 billion from
+- [13:17.670] [inaudible 00:13:19], which was great.
+- [13:20.230] And we have many others that are coming.
+- [13:22.570] Some I just say just announce it. It's easier.
+- [13:24.630] But with some, I know them and they're so highly respected,
+- [13:28.210] I'd rather do it this way.
+- [13:30.250] Many would like to do it this way,
+- [13:31.830] but we're letting the world know what's happening.
+- [13:35.290] This is money that normally would've gone to China
+- [13:38.110] or other countries, but in particular, China.
+- [13:40.130] In total, before the end of my first full business day
+- [13:43.690] in Washington and the White House,
+- [13:46.800] we've already secured nearly $3 trillion
+- [13:50.440] of new investments in the United States,
+- [13:52.530] and probably that's going to be six or seven
+- [13:55.250] by the end of the week.
+- [13:56.850] Tremendous amounts of money are coming in for many things
+- [14:01.580] other than even AI.
+- [14:02.900] AI seems to be very hot.
+- [14:05.250] It seems to be the thing that a lot of smart people
+- [14:07.730] are looking at very strongly,
+- [14:09.050] and our country will be prospering like never before.
+- [14:11.590] I think that's true,
+- [14:12.980] and it's going to be the golden age of America as I say.
+- [14:16.080] Yesterday, we had the most ambitious, action-oriented day
+- [14:21.710] of any administration in history.
+- [14:25.440] There's never been a first day like yesterday, as you know.
+- [14:28.540] I signed a sweeping slate of executive orders
+- [14:31.220] to stop the invasion of our borders.
+- [14:33.890] I launched a government-wide effort to defeat inflation
+- [14:36.930] and bring down the cost of daily life
+- [14:39.090] and bring down the cost of energy.
+- [14:40.730] Magnificently, bring it down.
+- [14:43.480] And when energy comes down, Larry,
+- [14:45.480] I'd say generally speaking, when energy comes down,
+- [14:47.900] everything else comes down. The prices of food
+- [14:51.160] and the prices of everything else come down.
+- [14:53.600] Energy, that's the big baby.
+- [14:56.550] And we declared a national energy emergency
+- [14:59.130] to drill baby drill, our term that we use.
+- [15:02.140] We're going to drill baby drill like never before.
+- [15:04.410] We ended destructive DEI mandates
+- [15:08.120] across the federal government
+- [15:09.420] and returned our country to a merit-based system
+- [15:13.010] and a common sense system.
+- [15:15.180] As you know, the Supreme Court gave us a decision on merit,
+- [15:18.610] where things in this country can be based on merit now
+- [15:21.480] instead of a lot of different rules, regulations
+- [15:24.540] and things that really put our country at a big disadvantage.
+- [15:27.540] We permanently stopped government censorship
+- [15:30.300] and restored free speech that was signed yesterday.
+- [15:33.190] We renamed the Gulf of Mexico the Gulf of America.
+- [15:40.270] Sounds so beautiful, the Gulf of America.
+- [15:42.960] And returned the name of a great president,
+- [15:45.670] William McKinley to Mount McKinley.
+- [15:47.460] They took off the name and he was actually a great president.
+- [15:51.280] He was a very, very successful businessman.
+- [15:55.320] He ran for governor of Ohio.
+- [15:56.870] He won and did a great job as governor.
+- [15:59.790] Ran for president and he won.
+- [16:01.280] He was assassinated ultimately in his second term,
+- [16:05.440] unfortunately, but he was the tariff king.
+- [16:08.630] And I don't think he was as bad as I am.
+- [16:11.950] I think I believe in them even more than him.
+- [16:13.990] But he believed in them very strongly
+- [16:16.640] and he raised massive amounts of money.
+- [16:18.720] Our country was at its richest.
+- [16:21.030] From 1870 to 1913, we had the most…
+- [16:26.760] That was when we were the richest, relatively speaking.
+- [16:29.180] We were the richest during that period of time.
+- [16:31.400] That was tariffs from other countries
+- [16:34.330] and our administration's moving with unprecedented urgency
+- [16:37.550] and speed to confront every single crisis facing us,
+- [16:41.270] and we'll get the job done.
+- [16:43.420] And again, I want to thank Sam and Masa and Larry
+- [16:46.590] for being here. It's an honor to have them,
+- [16:48.930] and we'll take a few questions if you want.
+- [16:50.520] The Press: [inaudible 00:16:52]
+- [16:51.760] the executive orders, you would agree that it's never acceptable
+- [16:54.350] to assault a police officer. Right?
+- [16:55.690] The President: Sure.
+- [16:56.980] The Press: So then if I can,
+- [16:58.210] among those your pardoned, DJ Rodriguez,
+- [16:59.980] he drove a stun gun into the neck of a DC police officer
+- [17:03.280] who was abducted by the mob that day.
+- [17:05.030] He later confessed on video to the FBI
+- [17:07.240] and pleaded guilty for his crimes.
+- [17:09.200] Why does he deserve a pardon?
+- [17:10.450] The President: Well, I don't don't know.
+- [17:11.670] Was it a pardon? Because we're looking at commutes
+- [17:13.170] and we're looking at pardons.
+- [17:14.410] The Press: This was a pardon.
+- [17:15.650] The President: Okay, well, we'll take a look at everything,
+- [17:17.100] but I can say this.
+- [17:18.670] Murderers today are not even charged.
+- [17:22.480] You have murderers that aren't charged all over.
+- [17:25.960] You take a look at what's gone on in Philadelphia,
+- [17:28.050] you take a look at what's gone off in LA
+- [17:30.890] where people murder people and they don't get charged.
+- [17:33.860] These people have already served years in prison
+- [17:37.140] and they've served them viciously.
+- [17:39.780] It's a disgusting prison. It's been horrible.
+- [17:42.970] It's inhumane. It's been a terrible, terrible thing.
+- [17:46.880] I also say this, you go to Portland
+- [17:51.180] where they wrapped police officers,
+- [17:53.070] shot police officers, nothing happened to anybody.
+- [17:56.560] You go to Seattle
+- [17:58.140] where they took over a big chunk of the city and people died.
+- [18:01.840] Portland, a lot of people died. Wait a minute.
+- [18:04.350] And you go also take a look at Minneapolis
+- [18:07.280] because I was there and I watched it,
+- [18:08.770] and if I didn't bring in the National Guard,
+- [18:10.390] that city wouldn't even exist today.
+- [18:12.980] People were killed and nobody went to jail.
+- [18:16.380] So these people have already served a long period of time
+- [18:18.920] and I made a decision to give a pardon.
+- [18:21.230] Joe Biden gave a pardon yesterday to a lot of criminals.
+- [18:24.370] These are criminals that he gave a pardon to,
+- [18:26.890] and you should be asking that question.
+- [18:29.250] Why did he give a pardon to all of these people
+- [18:31.550] that committed crimes?
+- [18:32.920] Why did he give a pardon to the J6 Select Committee
+- [18:38.780] when they burned and destroyed all documents,
+- [18:41.710] which showed that they did what was wrong?
+- [18:45.160] Not me. Wait a minute, wait a minute.
+- [18:47.090] Why did they give a pardon to all of his relatives?
+- [18:49.960] His brother, who made millions of dollars
+- [18:52.310] to all these different people he gave pardons.
+- [18:55.680] That's the question you should be answering.
+- [18:57.260] All right, go ahead. Yeah, please.
+- [18:59.140] The Press: [inaudible 00:18:58] follow up on that really fast.
+- [19:01.510] The President: No, no, no.
+- [19:02.770] The Press: I just want to ask-
+- [19:04.000] The President: Go ahead.
+- [19:05.510] The Press: Tell us about your meeting with Speaker Johnson,
+- [19:07.480] Senator Thune.
+- [19:08.700] Did you reach any conclusion on this one, big-
+- [19:10.330] The President: Pretty much.
+- [19:11.560] I think we have a good situation now.
+- [19:14.100] It's been in some ways made simpler by Los Angeles
+- [19:17.180] because they're going to need a lot of money
+- [19:18.770] and generally speaking,
+- [19:20.190] I think you'll find that a lot of Democrats
+- [19:22.470] are going to be asking for help.
+- [19:24.510] So I think maybe that makes it more one-sided.
+- [19:27.460] I think we're going to do very well.
+- [19:28.970] Look, we are going to take care of Los Angeles.
+- [19:32.020] I'm going to North Carolina,
+- [19:33.340] which has been abandoned by the Democrats
+- [19:36.160] and I'm going to North Carolina, very importantly first.
+- [19:38.850] I'll be there on Friday
+- [19:40.120] and then I'm going from there to Los Angeles.
+- [19:44.010] And then I'm going to Nevada
+- [19:46.690] and I'm really going to Nevada to thank them for the vote
+- [19:49.400] because we won Nevada overwhelmingly,
+- [19:51.620] and that's usually a Democrat vote.
+- [19:55.070] And I just want to go there
+- [19:56.310] to thank the people of Nevada for the big vote.
+- [20:00.280] So we'll be making that. Yeah, please.
+- [20:01.730] The Press: Mr. president,
+- [20:02.960] the leaders of the Proud Boys and the Oath Keepers
+- [20:05.470] were freed following their pardons yesterday.
+- [20:08.850] At the time, back in 2021 you urged them
+- [20:11.480] to stand back and stand by.
+- [20:13.380] Is there now a place for them in the political conversation?
+- [20:15.590] The President: Well, we have to see.
+- [20:16.900] They've been given a pardon.
+- [20:18.120] I thought their sentences were ridiculous and excessive.
+- [20:21.860] One of the guys took down a flag that was an anti-American flag
+- [20:27.450] and he was given years in jail. I don't know the exact number,
+- [20:30.690] but he was given many years in jail.
+- [20:32.450] I thought it was very excessive
+- [20:34.760] and at least the cases that we looked at,
+- [20:38.770] these were people that actually love our country.
+- [20:40.860] So we thought a pardon would be appropriate.
+- [20:42.680] Yeah.
+- [20:44.030] The Press: Mr. President, is it also true
+- [20:45.640] in your conversations with Republicans today
+- [20:47.430] that you asked them to consider
+- [20:48.710] recess appointments for cabinet officials?
+- [20:50.880] The President: I think, yeah, if it's needed.
+- [20:52.560] I don't think it's going to be needed.
+- [20:54.800] Marco, as you know, got passed overwhelmingly
+- [20:58.700] with 99 to nothing, which is pretty amazing.
+- [21:01.940] Marco is going to do a great job, Secretary of State.
+- [21:05.530] But I guess he was the first one and just got approved.
+- [21:09.570] That's some vote, 99 to nothing and the nothing was a vote
+- [21:15.100] that he would've gotten if we wanted to do it.
+- [21:17.930] But you know whose vote that was?
+- [21:20.030] Who's doing a great job right now as vice president.
+- [21:22.700] The Press: Did you also talk about some sort of a trade
+- [21:24.690] or a deal involving wildfire relief in extension
+- [21:29.540] for a debt ceiling?
+- [21:31.150] The President: What I really want to have done,
+- [21:32.970] I was talking about this
+- [21:34.280] with the guys back in the Oval Office.
+- [21:39.300] Los Angeles has massive amounts of water available to it.
+- [21:42.620] All they have to do is turn the valve
+- [21:44.870] and that's the valve coming back from
+- [21:46.770] and down from the Pacific Northwest
+- [21:48.940] where millions of gallons of water a week
+- [21:53.910] and a day even in many cases, pours into California.
+- [21:59.940] Goes all through California, down to Los Angeles,
+- [22:03.690] and they turned it off. It's off now.
+- [22:05.400] The valve, it turns toward the Pacific Ocean
+- [22:08.650] and all that water goes pouring into the Pacific Ocean.
+- [22:12.380] If they did what I told them to do, they wouldn't do it
+- [22:15.000] because politically they didn't think it was good.
+- [22:17.210] I think it's great politically.
+- [22:19.040] I think they're dead politically.
+- [22:20.360] What they've done, they've destroyed the city.
+- [22:22.670] What they've done to that city is unbelievable.
+- [22:25.900] Their sprinklers in there like these right here that you see,
+- [22:29.640] none of them had any water in them.
+- [22:31.410] They didn't have any water.
+- [22:32.740] The fire hydrants, 40% of them had no water.
+- [22:36.960] The brush was just dry. Everything was dry.
+- [22:39.830] The sprinklers on the lawn weren't allowed to even be used.
+- [22:43.120] So everything was dry and it was an inferno.
+- [22:46.700] They created an inferno.
+- [22:48.590] So we're demanding that they turn the valve back toward
+- [22:51.230] Los Angeles right now.
+- [22:52.470] It's not even believable that they haven't done it.
+- [22:54.860] Just so you know, they have a valve and it turns.
+- [22:58.920] Like think of a sink,
+- [23:00.250] but multiply it times many thousands of times.
+- [23:02.870] The size of it, it's massive.
+- [23:05.490] And you turn it back toward Los Angeles.
+- [23:07.360] Why aren't they doing it?
+- [23:08.950] They either have a death wish, they're stupid,
+- [23:12.020] or there's something else going on that we don't understand.
+- [23:15.200] But we want the water that they're throwing away
+- [23:18.810] to be used for California,
+- [23:22.180] and that includes the farmers of California.
+- [23:24.340] When you drive up north, you see all of the land.
+- [23:28.250] I couldn't believe it.
+- [23:29.480] I was with Devin Nunes when he was a congressman
+- [23:31.760] and some other congressmen from the area,
+- [23:33.650] and we're driving up and we're on the highway.
+- [23:36.630] And I keep looking at these farms and the land is bone dry
+- [23:40.780] and then you'd see an about an acre or two acres
+- [23:43.580] with the most beautiful green plants growing in it.
+- [23:49.220] The most beautiful. It's rich stuff.
+- [23:53.680] And you look at the soil and it's so rich.
+- [23:56.340] That soil is almost the equivalent to like Iowa soil,
+- [24:00.830] it's phenomenal, but it's got no water.
+- [24:03.640] But the reason it has no water, I said, "Do you have a drought?"
+- [24:06.090] "No."
+- [24:07.330] I said, "What do you mean you don't have a drought?
+- [24:08.920] Look at the thing, it's dry as a bone."
+- [24:10.700] The reason you have like an acre is because they say,
+- [24:13.180] "You can farm one acre but no more,"
+- [24:16.320] because they didn't want to waste water.
+- [24:17.910] But they throw the water into the Pacific Ocean.
+- [24:20.200] These people are crazy.
+- [24:22.460] We're going to be issuing an executive order
+- [24:24.240] demanding that they immediately let that water
+- [24:28.460] come down to through California, farmers,
+- [24:32.540] even people living in Beverly Hills.
+- [24:34.220] Now, those people have been … a lot of them are wiped out.
+- [24:36.750] Believe it or not, they were having restrictions.
+- [24:40.670] Larry, you know about this.
+- [24:42.260] They wanted to restrict you to 38 gallons of water a day.
+- [24:45.270] That sounds like a lot, but it's not.
+- [24:47.710] When you're a rich person and you like to take a shower,
+- [24:52.020] 38 gallons doesn't last very long.
+- [24:54.580] And they have all this water and it's really good water,
+- [24:58.050] up high, Pacific Northwest, some comes in from Canada,
+- [25:03.010] a nice country by the way, comes in from Canada.
+- [25:06.670] It comes all the way through California.
+- [25:09.230] And they're restricting it. You even have the half pipes,
+- [25:11.380] you know the half pipes, the cut pipes.
+- [25:14.090] Big ones, bigger than this room.
+- [25:16.130] And they go all the way down. They're bone dry.
+- [25:19.820] And they could be loaded up with water.
+- [25:21.340] The Press: [inaudible 00:25:23].
+- [25:22.580] The President: No, but isn't it incredible
+- [25:24.010] that they don't do it.
+- [25:25.340] And it's to protect the delta smelt.
+- [25:27.090] It's a fish that's doing poorly anyway.
+- [25:30.210] But I said, "How are you protecting the delta smelt
+- [25:32.380] by not giving it water?
+- [25:33.600] It's a fish. It needs water." Nobody can answer that question.
+- [25:37.050] The Press: Can I ask about your vice-president-
+- [25:38.310] The Press: The President.
+- [25:39.260] The Press: On TikTok, Mr. President?
+- [25:40.470] The President: Let me do this first.
+- [25:41.720] The Press: Are you open to Elon buying TikTok?
+- [25:43.190] The President: Say it?
+- [25:44.430] The Press: Are you open to Elon buying TikTok?
+- [25:46.200] The President: I would be if he wanted to buy it, yes.
+- [25:47.860] The Press: [inaudible 00:25:48]
+- [25:49.080] The Press: And on your inauguration-
+- [25:50.280] The President: I'd like Larry to buy it too.
+- [25:51.970] I have the right to make a deal.
+- [25:54.320] The deal I'm thinking about, Larry, let's negotiate
+- [25:56.420] in front of the media, the deal I think is this,
+- [26:01.130] and I've met with owners of TikTok, the big owners.
+- [26:05.280] It's worthless if it doesn't get a permit.
+- [26:08.350] It's not like, oh, you can take the US.
+- [26:10.300] The whole thing is worthless.
+- [26:12.630] With a permit it's worth like a trillion dollars.
+- [26:16.280] What I'm thinking about saying to somebody is buy it
+- [26:20.240] and give half to the United States of America, half,
+- [26:23.270] and we'll give you the permit.
+- [26:24.630] And they'll have a great partner, the United States.
+- [26:27.720] And they'll have something that's actually more valuable
+- [26:29.930] because they have the ultimate partner,
+- [26:32.230] and the United States will make it very worthwhile for them
+- [26:35.190] in terms of the permits and everything else.
+- [26:37.440] So think of it, you have an asset that has no value
+- [26:41.070] or has a trillion dollar value. It all depends on whether or not
+- [26:45.150] the United States gives the permit.
+- [26:46.930] What I'm saying is let the United States give the permit
+- [26:49.870] and the United States should get half.
+- [26:52.620] Sounds reasonable. What do you think?
+- [26:55.280] Mr. Ellison: Sounds like a good deal to me, Mr. President.
+- [26:57.510] The President: He can afford it too.
+- [26:58.720] The Press: [inaudible 00:27:02].
+- [27:00.000] The Press: The President.
+- [27:01.250] The Press: Mr. President, you're a president
+- [27:02.520] who has long said that you backed the blue,
+- [27:04.510] but aren't you sending the message
+- [27:06.390] that assaulting officers is okay with these parties?
+- [27:10.080] The President: No, the opposite.
+- [27:11.640] In fact, I'm going to be letting two officers
+- [27:16.220] from Washington Police, D.C.,
+- [27:20.230] I believe they're from D.C., but I just approved it,
+- [27:24.320] they were arrested, put in jail for five years
+- [27:27.970] because they went after an illegal.
+- [27:30.380] And I guess something happened where something went wrong
+- [27:34.080] and they arrested the two officers
+- [27:36.270] and put them in jail for going after a criminal.
+- [27:39.180] A rough criminal by the way.
+- [27:40.720] And I'm actually releasing, no, I am the friend of police
+- [27:45.070] more than any president that's ever been in this office.
+- [27:46.950] The Press: [inaudible 00:27:50]
+- [27:48.210] The Press: [inaudible 00:27:50] The President.
+- [27:49.450] The Press: 400 of the people that you pardoned
+- [27:51.000] though assaulted officers.
+- [27:52.280] So I want to ask you, the Vice President, JD Vance,
+- [27:54.160] he said, this is a week ago, he said,
+- [27:56.450] "If you committed violence on January 6th,
+- [27:58.990] obviously you should not be pardoned."
+- [28:01.180] Why is your vice president wrong?
+- [28:02.890] The President: Well, only for one reason,
+- [28:05.380] they've served years in jail, they should not have served-
+- [28:08.120] The Press: [inaudible 00:28:10].
+- [28:09.380] The President: Excuse me.
+- [28:10.630] And they've served years in jail.
+- [28:13.100] And murderers don't even go to jail in this country.
+- [28:16.460] And we had 1500, we have 16 under review,
+- [28:19.790] as you know we commuted about 16 of them
+- [28:22.170] because it looks like they could have done things
+- [28:24.650] that were not acceptable for a full pardon.
+- [28:29.190] But these people have served years of jail.
+- [28:31.180] Their lives have been ruined. And in many cases …
+- [28:33.910] Listen to me for a second, stop interrupting.
+- [28:36.040] The Press: I apologize.
+- [28:37.270] The President: They served years in jail.
+- [28:39.520] And if you look at the American public,
+- [28:42.330] the American public is tired of it.
+- [28:44.200] Take a look at the election.
+- [28:46.680] Just look at the numbers on the election.
+- [28:48.730] We won this election in a landslide
+- [28:50.700] because the American public is tired of people like you
+- [28:54.340] that are just one-sided,
+- [28:56.560] horrible people in terms of crime.
+- [28:58.450] You don't talk about all the people that have been killed
+- [29:00.980] and what happens to those murderers.
+- [29:04.740] Murderers get no time.
+- [29:06.440] You take a look at some of these DAs,
+- [29:08.660] they go after political opponents,
+- [29:10.490] but they don't go after people that shoot people in the street.
+- [29:13.920] They're caught, they know where they're living,
+- [29:15.630] they know everything.
+- [29:16.870] They don't even go up to pick them up anymore.
+- [29:18.540] They just let them live there. They know all about it.
+- [29:20.960] They have their pictures, they have the tape of the shooting,
+- [29:24.130] and they don't even go up and … And you're talking about this.
+- [29:27.350] No, we pardoned the people
+- [29:30.110] that were treated unbelievably poorly.
+- [29:33.320] In the history of our country,
+- [29:34.740] there's never been anything take place like this.
+- [29:37.440] They're still looking for them,
+- [29:38.850] but they're not looking for the murderers,
+- [29:40.400] the people that are killing everybody.
+- [29:42.570] We are though, and we're getting them out of the country.
+- [29:45.000] We just started that.
+- [29:46.220] We're getting them out of the country.
+- [29:47.500] And they're going to be gotten out of the country fast.
+- [29:49.260] They came in illegally from jails and from prisons,
+- [29:52.730] they killed many people. Some of them killed many people.
+- [29:56.230] About 50% of them killed more than one person.
+- [29:59.820] They were released into our country.
+- [30:01.970] That's what we're focused on,
+- [30:03.230] not the kind of nonsense you're talking about.
+- [30:05.190] The Press: [inaudible 00:30:07]
+- [30:06.440] The Press: You've called for a ceasefire in Ukraine.
+- [30:08.690] If Vladimir Putin doesn't come to the table
+- [30:10.980] to negotiate with you,
+- [30:12.270] will you put additional sanctions on Russia?
+- [30:14.640] The President: It sounds likely.
+- [30:16.140] The Press: And do you think that the war should be
+- [30:17.760] frozen currently along the [inaudible 00:30:20]
+- [30:19.240] The President: The war should've never started.
+- [30:20.640] If you had a competent president,
+- [30:22.180] which you didn't, the war wouldn't have happened.
+- [30:24.590] The war in Ukraine would've never happened
+- [30:26.360] if I were president.
+- [30:28.050] But that couldn't happen because the election was rigged.
+- [30:29.780] Yeah, go ahead.
+- [30:31.010] The Press: Mr. President,
+- [30:32.240] there's been some debate within your orbit
+- [30:33.690] over whether or not to keep or eliminate H1B visas.
+- [30:36.930] What's your position on that,
+- [30:38.290] do you want to keep H1Bs or do you want to get rid?
+- [30:40.680] The President: I like both sides of the argument,
+- [30:42.360] but I also like very competent people coming into our country,
+- [30:46.070] even if that involves them training
+- [30:48.000] and helping other people
+- [30:49.740] that may not have the qualifications they do.
+- [30:52.690] But I don't want to stop.
+- [30:54.100] And I'm not just talking about engineers,
+- [30:56.280] I'm talking about people at all levels.
+- [30:58.000] We want competent people coming into our country.
+- [31:01.170] And HB1, I know the program very well, I use the program.
+- [31:05.020] Maître ds, wine experts, even waiters,
+- [31:12.020] high-quality waiters, you got to get the best people.
+- [31:16.160] Now, then you go into people like Larry,
+- [31:18.000] and he needs engineers and Masa needs
+- [31:20.830] and this gentleman needs engineers
+- [31:22.760] like nobody's ever needed engineers.
+- [31:25.440] So we have to have the quality people coming in.
+- [31:27.950] Now, by doing that, we're expanding businesses
+- [31:31.830] and that takes care of everybody.
+- [31:34.060] So I'm sort of on both sides of the argument.
+- [31:35.890] But what I really do feel
+- [31:37.130] is that we have to let really competent people,
+- [31:39.920] great people come into our country.
+- [31:42.010] And we do that through the H1 program.
+- [31:43.880] The Press: Mr. President,
+- [31:45.220] are you looking to impose tariffs on Canada and Mexico
+- [31:48.240] in an effort to force negotiations sooner on USMCA?
+- [31:52.000] The President: No, it's really not on USMCA,
+- [31:56.130] it has nothing to do with that.
+- [31:58.010] They've allowed, both of them, Canada very much so,
+- [32:02.500] they've allowed millions and millions of people
+- [32:04.340] to come into our country that shouldn't be here.
+- [32:06.400] They could have stopped them and they didn't.
+- [32:09.250] And they've killed 300,000 people last year,
+- [32:12.880] my opinion, have been destroyed by drugs, by fentanyl.
+- [32:18.610] The fentanyl coming through Canada is massive.
+- [32:21.870] The fentanyl coming through Mexico is massive.
+- [32:25.660] And people are getting killed and families
+- [32:27.500] are being destroyed. I mean, the son gets killed
+- [32:29.690] and the family is a basket case for the rest of their lives.
+- [32:33.670] I mean, I've seen mothers that thought they'd heal.
+- [32:37.070] They never heal. They say it gets worse with time,
+- [32:39.660] it gets worse with time.
+- [32:40.950] They lose their boy, they lose their baby,
+- [32:42.870] they lose their young daughter to fentanyl poisoning.
+- [32:48.570] And I had that talk with President Xi
+- [32:50.650] the other day too of China.
+- [32:51.920] I said, "We don't want that crap in our country.
+- [32:54.200] We got to stop it." I would've stopped it.
+- [32:56.250] I had a deal with him
+- [32:57.820] where he was going to give the maximum penalty,
+- [33:02.420] which in China is the death penalty, for drug dealing.
+- [33:05.660] And he was all set,
+- [33:06.980] he was going to give the maximum penalty to fentanyl dealers.
+- [33:10.270] If they send to the United States,
+- [33:12.030] they were going to get the death penalty.
+- [33:14.320] And of course, Biden didn't pick that up.
+- [33:15.890] I had that deal all done, it was all wrapped up.
+- [33:18.350] We were going to have it done. And then the election went,
+- [33:22.910] let's put it nicely, didn't go the proper way.
+- [33:25.640] I'm trying to be nice about it. It was rigged.
+- [33:28.720] And we had an incompetent president elected.
+- [33:31.690] And he never followed up on that deal.
+- [33:33.650] But he should have followed up
+- [33:35.230] because if they got the death penalty,
+- [33:37.030] they wouldn't be sending fentanyl to Mexico, Canada,
+- [33:39.030] and other places.
+- [33:40.340] The Press: [inaudible 00:33:43]. The Press: [inaudible 00:33:44]
+- [33:41.670] how much will the tariffs on China-
+- [33:42.950] The President (33:44): We're thinking about that too.
+- [33:44.530] We're talking about a tariff of 10% on China
+- [33:47.970] based on the fact that they're sending fentanyl
+- [33:49.950] to Mexico and Canada.
+- [33:52.420] The Press: [inaudible 00:33:54].
+- [33:53.710] The Press: How soon on those tariffs?
+- [33:55.970] The President: Probably February 1st is the date
+- [33:57.340] we're looking at.
+- [33:58.590] The Press: [inaudible 00:34:00].
+- [33:59.910] The President: For Mexico and China
+- [34:01.650] we're talking about approximately 25%.
+- [34:06.190] The Press: Do you have an update on the Gaza ceasefire?
+- [34:08.520] And are you planning to travel to the Middle East soon?
+- [34:11.110] The President: We're thinking about going to the Middle East,
+- [34:12.760] not yet.
+- [34:14.380] We have a thing called the hostages
+- [34:16.880] are coming back going on right now.
+- [34:18.420] And they are coming back.
+- [34:21.070] Some of them have been very damaged.
+- [34:23.860] You look at the young lady with her hand practically blown off.
+- [34:28.980] You know how that happened, right?
+- [34:30.270] Did you know how that happened?
+- [34:31.510] When you find out you're not going to be too happy
+- [34:33.610] because it was terrible.
+- [34:35.900] But the hostages are starting to come back.
+- [34:40.840] Oh, if I weren't here, they wouldn't be back ever.
+- [34:44.110] They would've never come back. They would've all died.
+- [34:46.820] If this were done a year earlier,
+- [34:48.790] if Biden would've done this deal a year
+- [34:51.380] and a half, two years ago …
+- [34:52.810] Or frankly, it should have never happened,
+- [34:55.440] October 7th should have never happened.
+- [34:57.250] Nobody should be dead.
+- [34:59.810] But through weakness, they allowed it to happen.
+- [35:01.920] And then it was a disaster from them.
+- [35:03.740] But you go back just six months ago,
+- [35:06.320] many of these young people were living.
+- [35:07.920] Young people don't die like that.
+- [35:09.990] They're just dying.
+- [35:11.620] And young people aren't dying at 22 and 23 years old,
+- [35:15.620] they don't die. But now they're dying.
+- [35:17.920] And you wonder why they're dying.
+- [35:19.360] They're being killed. And they have been killed.
+- [35:22.900] But they say six months ago,
+- [35:24.250] you would've had 11 more living hostages.
+- [35:27.930] Think of that, six months ago. But Biden couldn't get it done.
+- [35:31.590] And it was only the imposition that I put on it
+- [35:34.980] as a deadline that got it done. But it's a very sad situation.
+- [35:39.980] The Press: [inaudible 00:35:42].
+- [35:41.240] The President: It should have never happened.
+- [35:42.440] I'll tell you, two things should have never happened,
+- [35:43.850] three things.
+- [35:45.080] Inflation should have never happened.
+- [35:46.340] It would've never happened,
+- [35:47.750] except for what they did to energy and their crazy spending.
+- [35:51.350] And Ukraine would've never happened. Never.
+- [35:55.530] By the way, Russia never would've gone into Ukraine.
+- [35:58.400] I had a very strong understanding with Putin.
+- [36:01.540] It would've never ever happened.
+- [36:03.330] He disrespected Biden, very simple.
+- [36:06.220] He disrespects people. He's smart.
+- [36:09.000] He understands. He disrespected Biden.
+- [36:11.780] And also the Middle East would've never happened
+- [36:14.770] because Iran was broke.
+- [36:16.170] They had no money. They had no money for Hamas.
+- [36:19.060] They had no money for Hezbollah. It would've never happened.
+- [36:22.350] October 7th would've never happened, but it did happen.
+- [36:25.230] So this is the cards I've been given
+- [36:27.730] and we're getting the hostages back.
+- [36:29.730] That would've never happened under Biden.
+- [36:31.370] They would've never come back.
+- [36:32.630] They were just dying verse not that slowly,
+- [36:35.530] they were dying or being killed, but that was what was happening.
+- [36:40.530] The Press: Are you going to keep sending weapons to Ukraine,
+- [36:42.760] or are you going to turn off the tap soon?
+- [36:46.180] The President: Well, we'll look into that.
+- [36:47.500] We're talking to Zelensky.
+- [36:48.880] We're going to be talking with President Putin very soon
+- [36:52.490] and we'll see how it all happens.
+- [36:54.400] We're going to look at it very… One thing I do feel,
+- [36:57.210] the European Union should be paying a lot more
+- [36:59.300] than they're paying because under Biden,
+- [37:02.450] we're in there for $200 billion more.
+- [37:04.820] Now, it affects them more than it affects us.
+- [37:06.640] We have an ocean in between, right?
+- [37:08.480] Little thing called an ocean.
+- [37:10.650] The European Union should equalize.
+- [37:13.470] We're in there for $200 billion more than the European Union.
+- [37:18.380] What are we stupid?
+- [37:19.610] I guess the answer is yes, because they must think so.
+- [37:23.540] But the European Union takes advantage of us
+- [37:25.990] tremendously on trade,
+- [37:28.100] and they now take advantage of and always have.
+- [37:30.780] If I didn't get involved years ago,
+- [37:33.990] my first term, one of the first things I noticed
+- [37:36.280] was that they're not paying enough.
+- [37:38.270] They're not paying. And a lot of those countries
+- [37:39.940] weren't even paying the NATO countries.
+- [37:41.330] They weren't paying.
+- [37:42.540] Only seven out of 28 were paying.
+- [37:45.330] We were one of them, and Poland was one,
+- [37:48.170] and they had a few of them that were paying
+- [37:49.710] and some were paying very proudly.
+- [37:51.960] Usually the closer to the borderline of Russia,
+- [37:56.520] they were the faster they paid. Okay.
+- [37:59.930] The ones that were further away tended not to pay so fast.
+- [38:02.600] And one thing on that, I think they should lift their number,
+- [38:05.290] not to 2%, but to 5%.
+- [38:07.630] NATO should be at 5%, not at 2%. 2% is ridiculous. Yeah.
+- [38:12.970] The Press: The US President Xi,
+- [38:14.170] in your conversation about Ukraine,
+- [38:15.940] you asked him to get involved in helping settle that.
+- [38:17.730] Can you tell us about that?
+- [38:18.970] The President: I did. Yeah.
+- [38:20.170] I said, "You ought to get it settled,"
+- [38:22.520] because he's not done very much on that.
+- [38:24.820] He's got a lot of power, like we have a lot of power.
+- [38:28.200] I said, "You ought to get it settled."
+- [38:29.770] We did discuss it. Yeah.
+- [38:30.970] The Press: Mr. President [inaudible 00:38:37]
+- [38:32.180] crypto coin the other day.
+- [38:33.420] Do you intend to continue selling products
+- [38:35.210] that benefit yourself personally while you're president?
+- [38:38.030] The President: Well, I don't know if it benefited.
+- [38:39.290] I don't know where it is.
+- [38:40.600] I don't know much about it other than I launched it.
+- [38:42.700] I heard it was very successful. I haven't checked it.
+- [38:45.340] Where is it today?
+- [38:47.490] The Press: You made a lot of money serving it up.
+- [38:49.580] The President: How much?
+- [38:51.800] The Press: Several billion dollars it seems like
+- [38:53.410] in the last several days.
+- [38:55.110] The President: Several billion? That's peanuts for these guys.
+- [38:57.060] The Press: So you talking about the letter President Biden,
+- [39:01.320] can you give us some sense broadly speaking-
+- [39:02.890] The President: Yeah. He wrote me a nice letter.
+- [39:04.110] I did open it last night and I didn't know.
+- [39:08.250] Peter said, "Did you get the letter?"
+- [39:09.920] I said, "Wait a minute. Let's see."
+- [39:11.250] The letter's sort of a tradition.
+- [39:12.620] You put it in the drawer,
+- [39:14.410] especially of the beautiful resolute desk, right?
+- [39:17.510] And I opened it, and there it was.
+- [39:19.270] It said to number 47, and it was a very nice letter.
+- [39:23.210] I could show it because I think it was a nice letter.
+- [39:25.150] Maybe I will. I think-
+- [39:26.460] The Press: [inaudible 00:39:29]. What did he say in terms of-
+- [39:28.060] The President: Just basically it was a little bit
+- [39:32.110] of an inspirational type letter.
+- [39:36.450] Enjoy it, do a good job, important, very important,
+- [39:40.460] how important the job is.
+- [39:41.770] But I think it was a nice letter.
+- [39:44.570] I think I should let people see it
+- [39:47.050] because it was a positive for him in writing it.
+- [39:49.820] I appreciated the letter.
+- [39:51.340] The Press: Mr. President,
+- [39:52.560] were security concerns at all a factor
+- [39:54.800] when deciding to move your inauguration indoors?
+- [39:57.210] The President: No. Not at all.
+- [39:58.450] No, not at all. It was just cold.
+- [40:01.840] Hey, look, I just went out to the helicopter,
+- [40:07.690] we said goodbye, that's a tradition.
+- [40:09.470] As long as helicopter…
+- [40:10.700] Before, it used to be a stagecoach,
+- [40:12.720] and then helicopters came along.
+- [40:14.920] But that's been a tradition. You go out and you do that.
+- [40:17.270] And we stood there for 10 minutes,
+- [40:19.760] and I'll tell you what,
+- [40:21.040] people would not have been able to get through that day.
+- [40:23.370] That was cold. It was sort of interesting.
+- [40:25.600] Don't let the sun fool you. You tell me something,
+- [40:28.520] sunny days can get very cold, can't they?
+- [40:30.550] Because that was so freezing yesterday.
+- [40:33.130] You couldn't have gotten through it.
+- [40:35.050] And the answer is no, it wasn't security.
+- [40:37.780] With that being said,
+- [40:39.460] I thought the capitol, the rotunda, was beautiful.
+- [40:44.620] 72 degrees, unbelievable sound.
+- [40:49.810] It's like being in an opera house.
+- [40:53.560] I could see people wanting to do it there rather than outside.
+- [40:56.420] The Press: Why did you remove
+- [40:57.740] John Bolton's security clearance, sir?
+- [40:59.780] The President: Because I think there was enough time.
+- [41:03.970] We take a job, you take a job, you want to do a job.
+- [41:07.710] We're not going to have security on people
+- [41:09.120] for the rest of their lives. Why should we?
+- [41:11.710] I thought he was a very dumb person,
+- [41:14.850] but I used him well, because every time people saw me
+- [41:18.560] come into a meeting with John Bolton standing behind me,
+- [41:21.720] they thought that he'd attacked them because he was a warmonger.
+- [41:26.120] He's the one that got us involved along with Cheney
+- [41:28.390] and a couple of others, convinced Bush,
+- [41:30.180] which was a terrible decision, to blow up the Middle East.
+- [41:33.900] We blew up the Middle East and we left.
+- [41:37.080] We got nothing out of it except a lot of death.
+- [41:39.350] We killed a lot of people.
+- [41:41.870] And John Bolton was one of those guys.
+- [41:44.470] A stupid guy.
+- [41:45.720] But no, you can't have that for life.
+- [41:47.670] You shouldn't expect it for life.
+- [41:49.470] The Press: That meeting that you mentioned
+- [41:51.270] with President Zelensky, will that take place here?
+- [41:53.270] And when and where will you meet with-
+- [41:54.680] The President: I don't know.
+- [41:55.920] Look, President Zelensky would like to have peace.
+- [41:59.430] He's told me that very strongly.
+- [42:00.830] He'd like to have peace, but it takes two to tango.
+- [42:02.760] We'll see what happens.
+- [42:03.990] The Press: When will you meet with President Putin?
+- [42:05.670] The President: Anytime they want, I'll meet.
+- [42:07.080] I'd like to see that end.
+- [42:08.510] Millions of people are being killed.
+- [42:10.050] And they're being killed, it's a vicious situation,
+- [42:13.390] and they're now largely soldiers,
+- [42:15.630] a lot of people have been killed in the cities.
+- [42:18.160] They look like demolition sites,
+- [42:20.330] buildings, massive buildings bombed and coming down.
+- [42:24.190] The thing with Ukraine is that many more people died
+- [42:26.120] than you're reporting.
+- [42:27.340] You're not reporting the real numbers,
+- [42:28.860] and I'm not blaming you for that,
+- [42:31.280] I'm blaming maybe our government
+- [42:33.140] for not wanting to release those numbers.
+- [42:34.840] Many more people died than what you know about.
+- [42:38.050] When those big buildings come down
+- [42:39.660] and they say, two people were injured, no, no.
+- [42:42.220] Many people, thousands of people are being killed.
+- [42:45.200] But the people, the real killing now is on the war front.
+- [42:48.380] It's a very flat land,
+- [42:50.340] and the only thing that stops a bullet is somebody's body.
+- [42:54.060] And you have young soldiers.
+- [42:55.260] So Russia's lost about 800,000 soldiers now.
+- [42:58.990] Ukraine's lost about 600 or 700,000.
+- [43:02.080] I think the numbers are low that they're giving out,
+- [43:05.350] but they've lost massive numbers of young soldiers,
+- [43:11.010] and that war should stop.
+- [43:13.380] It's very flat. It's beautiful farmland,
+- [43:16.480] and it's flat and really beautiful
+- [43:18.750] in a different kind of way,
+- [43:20.120] but they don't have any protection.
+- [43:21.980] The only thing that stops a bullet is a body,
+- [43:25.250] and those bodies are stopping a lot of bullets,
+- [43:27.220] and they're being decimated, both sides.
+- [43:31.160] The Press: Your conversation with President Xi,
+- [43:33.090] what did you tell him in terms of
+- [43:34.560] when to expect tariffs and what can he do to avoid?
+- [43:37.850] The President: About which one? About tariffs.
+- [43:40.490] We didn't talk too much about tariffs
+- [43:42.180] other than he knows where I stand.
+- [43:43.720] Look, I put large tariffs on China.
+- [43:46.420] I've taken in hundreds of billions of dollars.
+- [43:50.130] Until I was president,
+- [43:51.430] China never paid not 10 cents to the United States.
+- [43:57.070] With me, they paid hundreds of $600 billion or so,
+- [44:00.700] or more, more than that even of tariffs.
+- [44:04.840] And if I didn't do that, you wouldn't have a steel
+- [44:07.930] mill open in the United States right now.
+- [44:09.940] You wouldn't have one steel mill open in the United States.
+- [44:13.430] So what I did is I saved the steel industry.
+- [44:16.000] I saved other industries too, with other tariffs.
+- [44:22.500] Other countries are big abusers also.
+- [44:25.110] It's not just China. China's an abuser,
+- [44:28.500] but the European Union is very, very bad to us.
+- [44:32.870] They treat us very, very badly.
+- [44:34.660] They don't take our cars. They don't take our cars at all.
+- [44:38.260] They don't take our farm products essentially.
+- [44:40.840] They don't take very much.
+- [44:42.400] We have a $350 billion deficit with the European Union.
+- [44:46.440] They treat us very, very badly.
+- [44:47.990] So they're going to be in for tariffs.
+- [44:53.960] It's the only way you're going to get fairness.
+- [44:56.580] You can't get fairness unless you do that.
+- [44:58.410] But the European Union's treated us very badly.
+- [45:00.740] But essentially, everybody treats us badly.
+- [45:04.870] Everybody treats us badly. Yes, go ahead.
+- [45:07.510] Because we allow them to,
+- [45:09.320] because we've had stupid people doing this and we can't have…
+- [45:13.760] I'd like to have these three people negotiate for us
+- [45:16.580] just for one week
+- [45:17.840] and we'd be a rich country again, but we'll be rich.
+- [45:20.920] The Press: Mr. President, on AI data centers,
+- [45:23.500] will you rescind President Biden's executive order
+- [45:25.870] that opens up federal land-
+- [45:27.160] The President: On which centers?
+- [45:28.400] The Press: On data centers.
+- [45:29.640] Will you rescind President Biden's
+- [45:31.210] executive order that opens up federal lands
+- [45:33.670] for data centers and energy production?
+- [45:35.290] The President: No, I wouldn't do that.
+- [45:36.530] That sounds to me like it's something that I would like.
+- [45:38.660] I'd like to see federal lands opened up for data centers.
+- [45:41.120] I think they're going to be very important.
+- [45:42.680] Again, we have a lot of competition for that.
+- [45:45.150] So it's an honor to have these three great people, great,
+- [45:47.940] great CEOs and great geniuses, all three, it's an honor
+- [45:53.810] that they want to come to our country,
+- [45:55.430] but we're going to make it as easy as we can for them
+- [45:57.590] because other countries want them to.
+- [45:59.870] I'm going to have to go now.
+- [46:01.180] Thank you all very much. Thank you.
+- [46:03.220] The Press: Do you have TikTok on your phone?
+- [46:06.160] The President: No, but I think I might put it
+- [46:07.550] [inaudible 00:46:07]. I think I'll get it right now.
+- [46:09.770] By the way, again, we won the young vote.
+- [46:11.980] I think I won it through TikTok.
+- [46:13.790] So I have a warm spot in my heart for TikTok.
+- [46:17.280] Okay. Thank you. Thank you.
+- [46:19.290] The Press: Thank you, Mr. President.

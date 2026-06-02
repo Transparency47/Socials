@@ -1,0 +1,256 @@
+<!-- source: https://www.youtube.com/watch?v=DvoIKXEPPVo -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: DvoIKXEPPVo -->
+<!-- date_published: 2025-08-15T23:10:25+00:00 -->
+<!-- date_accessed: 2026-06-02T02:45:43.189018+00:00 -->
+
+# Transcript: President Trump Participates in a Press Conference with the President of the Russian Federation
+
+- [42:17.800] Announcer: -- President of the United States of America
+- [42:20.020] and the President of the Russian Federation.
+- [42:36.300] President Putin: Mr. President, ladies and gentlemen,
+- [42:40.860] our negotiations have been held in a constructive atmosphere
+- [42:45.790] of mutual respect.
+- [42:47.870] We had very thorough negotiations.
+- [42:50.070] We were quite useful. I would like to thank once again
+- [42:53.320] my American counterpart for the proposal
+- [42:56.130] to travel out here to Alaska.
+- [42:59.070] It only makes sense that we've met here,
+- [43:01.740] because our countries, though separated by the oceans,
+- [43:05.620] are close neighbors.
+- [43:08.980] So when we've met, when I came out of the plane and I've said,
+- [43:15.600] "Good afternoon, dear neighbor, very good
+- [43:18.230] to see you in good health and to see you alive."
+- [43:24.130] I think that is very neighborly,
+- [43:28.860] and I think that's some kind words
+- [43:31.880] that we can say to each other.
+- [43:33.650] We're separated by the Strait of Bering,
+- [43:35.350] though there are two islands only between the Russian island
+- [43:38.660] and the U.S. island.
+- [43:40.020] They're only four kilometers apart.
+- [43:42.160] We're close neighbors, and it's a fact.
+- [43:45.180] It's also important that Alaska has to do
+- [43:47.700] with our common history between Russia and the U.S.,
+- [43:51.180] and many positive events have to do with that territory.
+- [43:54.530] Still, there is tremendous cultural heritage
+- [43:57.580] back from the Russian America, for example,
+- [43:59.750] Orthodox churches and a lot of more
+- [44:02.730] than 700 geographical names of Russian origin.
+- [44:06.530] During the Second World War, it was here in Alaska
+- [44:09.510] that was the origin of the legendary air bridge
+- [44:12.250] for the supply of military aircraft
+- [44:14.000] and other equipment under the land lease program.
+- [44:17.360] It was a dangerous and treacherous route
+- [44:20.650] over the vast emptiness of ice.
+- [44:24.330] However, the pilots of both countries
+- [44:26.300] did everything to bring hope to the victory.
+- [44:28.610] They risked their lives,
+- [44:29.910] and they gave it all for the common victory.
+- [44:33.380] I was just in the city of Magadan in Russia,
+- [44:35.650] and there was a memorial there dedicated to the Russian
+- [44:38.220] and the U.S. pilots, and there are two flags,
+- [44:41.400] the U.S. flag and the Russian flag.
+- [44:43.230] And I know that here as well, there was such a memorial.
+- [44:47.830] There was a military burial place
+- [44:49.800] several kilometers away from here.
+- [44:52.170] The Soviet pilots that buried there died
+- [44:54.910] during that dangerous mission.
+- [44:56.380] We're thankful to the citizens and the government of the U.S.
+- [44:58.960] for carefully taking care of their memory.
+- [45:01.690] I think that's very worthy and noble.
+- [45:03.890] We'll always remember other historical examples
+- [45:06.410] when our countries defeated common enemies
+- [45:09.360] together in the spirit of battle camaraderie and alliance
+- [45:13.840] that supported each other and facilitated each other.
+- [45:16.940] I'm sure that this heritage will help us rebuild and foster
+- [45:20.610] mutually beneficial and equal ties at this new stage,
+- [45:24.380] even during the hardest conditions.
+- [45:26.600] We should know that there have been no summits between Russia
+- [45:31.470] and the U.S. for four years, and that's a long time.
+- [45:35.650] This time was very hard for bilateral relations,
+- [45:38.110] and let's be frank,
+- [45:39.410] they've fallen to the lowest point since the Cold War.
+- [45:44.660] I think that's not benefiting our countries
+- [45:47.330] and the world as a whole.
+- [45:51.040] Sooner or later, we had to amend the situation to move on
+- [45:54.900] from the confrontations to dialogue,
+- [45:57.370] and in this case, a personal meeting
+- [45:59.580] between the heads of state has been long overdue,
+- [46:02.220] naturally under the condition of serious and painstaking work,
+- [46:06.170] and this work has been done in general.
+- [46:09.030] Me and President Trump have very good direct contact.
+- [46:12.570] We've spoken multiple times, we spoke frankly on the phone,
+- [46:19.280] and special envoy of the President, Mr. Whitkoff,
+- [46:23.340] traveled out to Russia several times.
+- [46:25.510] Our advisors and heads of foreign ministries
+- [46:29.240] kept in touch all the time,
+- [46:31.130] and you know fully well that one of the central issues
+- [46:35.140] was the situation around Ukraine.
+- [46:36.990] We see the strive of the administration
+- [46:39.370] and President Trump personally to help facilitate
+- [46:42.690] the resolution of the Ukrainian conflict,
+- [46:44.800] and his strive to get to the crux of the matter,
+- [46:47.850] to understand this history, is precious.
+- [46:51.110] As I've said, the situation in Ukraine
+- [46:53.970] has to do with fundamental threats to our security.
+- [46:56.450] Moreover, we've always considered the Ukrainian nation,
+- [46:59.950] and I've said it multiple times, a brotherly nation,
+- [47:02.510] however strange it may sound in these conditions.
+- [47:05.340] We have the same roots,
+- [47:06.710] and everything that's happening is a tragedy for us,
+- [47:09.470] a terrible wound.
+- [47:11.740] Therefore, the country is sincerely interested
+- [47:13.730] in putting an end to it.
+- [47:16.450] At the same time, we're convinced that in order
+- [47:21.510] to make this settlement lasting and long-term,
+- [47:25.370] we need to eliminate all the primary roots,
+- [47:28.280] the primary causes of that conflict.
+- [47:30.230] And we've said it multiple times,
+- [47:31.670] to consider all legitimate concerns of Russia
+- [47:34.010] and to reinstate a just balance of security in Europe
+- [47:37.530] and in the world on the whole.
+- [47:38.880] And I agree with President Trump,
+- [47:40.560] as he has said today,
+- [47:41.860] that naturally, the security of Ukraine
+- [47:45.960] should be ensured as well.
+- [47:47.450] Naturally, we are prepared to work on that.
+- [47:51.460] I would like to hope that the agreement
+- [47:52.900] that we've reached together
+- [47:54.210] will help us bring closer that goal
+- [47:56.450] and will pave the path towards peace in Ukraine.
+- [47:59.590] We expect that Kiev and European capitals
+- [48:02.140] will pursue that constructively
+- [48:04.200] and that they won't throw a wrench in the works.
+- [48:06.800] They will not make any attempts to use some backroom dealings
+- [48:10.450] or to conduct provocations to torpedo the nascent progress.
+- [48:18.950] Incidentally, when the new administration came to power,
+- [48:21.910] bilateral trade started to grow.
+- [48:25.700] It's still very symbolic. Still, we have a growth of 20%.
+- [48:30.190] As I've said, we have a lot of dimensions for joint work.
+- [48:34.060] It is clear that the US and Russian investment
+- [48:38.190] and business cooperation has tremendous potential.
+- [48:41.980] Russia and the US can offer each other so much in trade,
+- [48:45.680] digital, high-tech, and in space exploration.
+- [48:50.180] We see that Arctic cooperation is also very possible
+- [48:54.730] in our international context, for example,
+- [48:57.460] between the far east of Russia and the west coast of the US.
+- [49:00.810] Overall, it's very important for our countries to turn the page,
+- [49:04.460] to go back to cooperation.
+- [49:06.260] It is symbolic that not far away from here,
+- [49:09.340] at the border between Russia and the US,
+- [49:11.910] there is a so-called international dateline.
+- [49:16.500] I think you can step over, literally,
+- [49:18.890] from yesterday into tomorrow.
+- [49:21.690] And I hope that we'll succeed in that, in political sphere.
+- [49:26.140] I would like to thank President Trump for our joint work,
+- [49:30.570] for the well-wishing and trustworthy tone
+- [49:32.840] of our conversation.
+- [49:34.320] It's important that both sides are result-oriented.
+- [49:37.670] And we see that the President of the US
+- [49:39.360] has a very clear idea of what he would like to achieve.
+- [49:43.110] He sincerely cares about prosperity of his nation.
+- [49:46.820] Still, he understands
+- [49:48.030] that Russia has its own national interest.
+- [49:50.940] I expect that today's agreements will be the starting point,
+- [49:55.590] not only for the solution of the Ukrainian issue,
+- [49:58.110] but also will help us bring back business-like
+- [50:00.690] and pragmatic relations between Russia and the US.
+- [50:03.300] And in the end, I would like to add one more thing.
+- [50:05.820] I'd like to remind you that in 2022,
+- [50:08.890] during the last contact with the previous administration,
+- [50:12.680] I tried to convince my previous American colleague
+- [50:17.030] that the situation should not be brought
+- [50:23.050] to the point of no return when it would come to hostilities.
+- [50:27.350] And I said it quite directly back
+- [50:29.240] then that it's a big mistake.
+- [50:32.740] Today, when President Trump is saying
+- [50:34.150] that if he was the President back then,
+- [50:36.550] there would be no war,
+- [50:38.040] and I'm quite sure that it would indeed be so.
+- [50:41.290] I can confirm that.
+- [50:43.650] I think that overall, me and President Trump
+- [50:47.310] have built a very good business-like
+- [50:50.120] and trustworthy contact
+- [50:53.990] and have every reason to believe that moving down this path,
+- [50:57.940] we can come, and the sooner the better,
+- [51:01.400] to the end of the conflict in Ukraine.
+- [51:03.010] Thank you. Thank you.
+- [51:05.800] President Trum: Well, thank you very much, Mr. President.
+- [51:08.210] That was very profound.
+- [51:10.550] And I will say that I believe we had a very productive meeting.
+- [51:14.300] There were many, many points that we agreed on,
+- [51:17.180] most of them, I would say,
+- [51:18.550] a couple of big ones that we haven't quite gotten there,
+- [51:22.710] but we've made some headway.
+- [51:25.200] So there's no deal until there's a deal.
+- [51:28.140] I will call up NATO in a little while.
+- [51:31.290] I will call up the various people
+- [51:34.650] that I think are appropriate,
+- [51:35.860] and I'll, of course, call up President Zelensky
+- [51:38.070] and tell him about today's meeting.
+- [51:39.570] It's ultimately up to them.
+- [51:42.130] They're going to have to agree with what Marco and Steve
+- [51:46.140] and some of the great people from the Trump administration
+- [51:49.930] who've come here, Scott and John Radcliffe.
+- [51:53.860] Thank you very much.
+- [51:55.240] But we have some of our really great leaders.
+- [51:58.220] They've been doing a phenomenal job.
+- [52:00.180] We also have some tremendous
+- [52:02.100] Russian business representatives here,
+- [52:05.200] and I think, you know, everybody wants to deal with us.
+- [52:08.060] We've become the hottest country anywhere in the world
+- [52:10.280] in a very short period of time,
+- [52:11.680] and we look forward to that. We look forward to dealing.
+- [52:15.400] We're going to try and get this over with.
+- [52:17.880] We really made some great progress today.
+- [52:22.200] I've always had a fantastic relationship
+- [52:24.810] with President Putin, with Vladimir.
+- [52:28.130] We had many, many tough meetings, good meetings.
+- [52:34.360] We were interfered with by the Russia, Russia, Russia hoax.
+- [52:38.410] It made it a little bit tougher to deal with,
+- [52:40.210] but he understood it.
+- [52:42.280] I think he's probably seen things like that
+- [52:44.710] during the course of his career. He's seen it all.
+- [52:49.430] But we had to put up with the Russia, Russia, Russia hoax.
+- [52:51.990] He knew it was a hoax, and I knew it was a hoax,
+- [52:54.000] but what was done was very criminal.
+- [52:56.360] But it made it harder for us to deal as a country
+- [52:58.490] in terms of the business
+- [52:59.690] and all of the things that we'd like to have dealt with.
+- [53:02.280] But we'll have a good chance when this is over.
+- [53:05.850] So just to put it very quickly,
+- [53:08.440] I'm going to start making a few phone calls
+- [53:10.580] and tell them what happened.
+- [53:12.170] But we had an extremely productive meeting,
+- [53:15.350] and many points were agreed to.
+- [53:17.990] There are just a very few that are left.
+- [53:21.640] Some are not that significant.
+- [53:23.660] One is probably the most significant.
+- [53:26.420] But we have a very good chance of getting there.
+- [53:28.130] We didn't get there,
+- [53:29.330] but we have a very good chance of getting there.
+- [53:31.250] I'd like to thank President Putin and his entire team,
+- [53:35.470] whose faces, who I know in many cases,
+- [53:37.710] otherwise, other than that,
+- [53:39.950] whose faces I get to see all the time in the newspapers.
+- [53:43.790] You're almost as famous as the boss,
+- [53:46.340] but especially this one right over here.
+- [53:50.280] But we had some good meetings over the years, right?
+- [53:52.440] Good, productive meetings over the years,
+- [53:54.150] and we hope to have that in the future.
+- [53:56.400] But let's do the most productive one right now.
+- [53:58.450] We're going to stop really five, six, seven thousand.
+- [54:02.320] Thousands of people a week from being killed,
+- [54:04.430] and President Putin wants to see that as much as I do.
+- [54:07.290] So again, Mr. President, I'd like to thank you very much,
+- [54:11.120] and we'll speak to you very soon
+- [54:12.680] and probably see you again very soon.
+- [54:15.480] Thank you very much, Vladimir.
+- [54:17.510] President Putin: Next time in Moscow [laughs].
+- [54:19.890] President Trump: Oh, that's an interesting one.
+- [54:22.030] I'll get a little heat on that one,
+- [54:23.330] but I could see it possibly happening.
+- [54:26.510] Thank you very much, Vladimir. And thank you all.
+- [54:28.720] Thank you. Thank you.
+- [54:30.140] President Putin; Thank you so much.

@@ -1,0 +1,1045 @@
+<!-- source: https://www.youtube.com/watch?v=A6iphPzEGtw -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: A6iphPzEGtw -->
+<!-- date_published: 2025-04-14T18:05:19+00:00 -->
+<!-- date_accessed: 2026-06-02T01:28:01.104328+00:00 -->
+
+# Transcript: President Trump Participates in a Bilateral Meeting with the President of El Salvador
+
+- [00:00.300] President Trump: Well, thank you very much.
+- [00:01.540] It's an honor to have a friend of mine
+- [00:03.040] because we went through this together
+- [00:06.610] and got along very well for my entire period of time.
+- [00:13.630] So I knew him as a very young man.
+- [00:15.260] Now, he's just a young man and he's done a fantastic job.
+- [00:19.200] Mr. President, it's an honor to have you.
+- [00:20.580] President Bukele: Thank you.
+- [00:21.850] President Trump: You're doing incredibly for your country,
+- [00:24.920] and we appreciate working with you
+- [00:27.980] because you want to stop crime and so do we,
+- [00:31.100] and it's very, very effective.
+- [00:33.600] And I want to just say hello to the people of El Salvador
+- [00:36.740] and say they have one hell of a president.
+- [00:39.810] And I mean that, and I know him well.
+- [00:42.000] I know him as a very young man, Marco, even younger than you.
+- [00:47.140] You know, he started pretty young.
+- [00:49.560] Secretary Rubio: I'll always be younger.
+- [00:52.010] President Trump: Young at heart.
+- [00:53.530] But I want to thank you for the great job you're doing.
+- [00:56.290] I appreciate it.
+- [00:57.510] President Bukele: Thank you.
+- [00:59.750] Well, it's an honor to be here in the Oval Office
+- [01:02.050] with the president and leader of the free world.
+- [01:06.520] We're very happy and we're very eager to help.
+- [01:09.900] We know that you have a crime problem,
+- [01:15.420] a terrorism problem that you need help with,
+- [01:17.870] and we're a small country,
+- [01:19.180] but if we can help, we will do it.
+- [01:21.040] And we actually turned the murder capital of the world…
+- [01:25.200] That was the journalists call it, right?
+- [01:27.090] Murder capital of the world to the safest country
+- [01:28.900] in the the Western Hemisphere.
+- [01:30.870] And sometimes they say that we increase in thousands.
+- [01:36.260] I like to say that we actually liberated millions, so-
+- [01:41.670] President Trump: It's very good.
+- [01:44.380] Who gave him that line? Do you think I can use that?
+- [01:46.710] President Bukele: Yes, you can use it.
+- [01:48.040] And in fact, Mr. President,
+- [01:49.960] you have 350 million people to liberate.
+- [01:54.600] But to liberate 350 million people,
+- [01:56.600] you have to imprison some. That's the way it works, right?
+- [01:59.610] You cannot just free the criminals
+- [02:01.970] and think crimes are going to go down magically.
+- [02:03.750] You have to imprison them,
+- [02:05.030] so you can liberate 350 million Americans
+- [02:07.950] that are asking for the end of crime
+- [02:10.610] and the end of terrorists. I mean, it can be done.
+- [02:12.360] I mean, you're doing it already.
+- [02:15.030] And I am sure that people have seen the change in the streets.
+- [02:18.450] A long way to go
+- [02:19.670] because you're just initiating your second term,
+- [02:23.100] but it's clear that with the numbers at the border,
+- [02:28.600] even in Democrat run cities,
+- [02:30.770] they get help from the work you're doing.
+- [02:34.500] So I'm really happy to be here, honored and eager to help.
+- [02:40.270] President Trump: Well, we had a terrible thing happen.
+- [02:41.940] We had an administration that allowed people
+- [02:46.120] to come in freely into our country
+- [02:49.010] from not only South America, but from all over the world.
+- [02:52.460] Many from the Congo and Africa, Asia, all over the world.
+- [02:56.960] Europe, rough parts of Europe. And they came from prisons
+- [03:01.120] and they came from mental institutions
+- [03:03.160] and they came from gangs
+- [03:05.340] and the gangs of Venezuela and other places,
+- [03:08.860] and hundreds of thousands, and even millions of them came.
+- [03:13.550] 21 million people altogether.
+- [03:15.270] But many of the people that came,
+- [03:16.900] just a tremendous percentage of them, were criminals.
+- [03:20.310] In some cases, violent criminals.
+- [03:22.190] We had 11,088 known murderers.
+- [03:26.310] Half of them murdered more than one person.
+- [03:30.220] This was allowed by a man who…
+- [03:33.460] What he did to our country is just unbelievable.
+- [03:36.060] So we're straightening it out. We're getting them out.
+- [03:38.760] But what they did and what that party did to our country,
+- [03:41.200] open borders, anybody could come in.
+- [03:42.720] As soon as I heard that, I said,
+- [03:44.030] "Every prison's going to be emptied out into our country."
+- [03:46.690] That's what happened. And we're straightening it out.
+- [03:49.860] And we just had numbers.
+- [03:52.010] We had the highest recruiting numbers
+- [03:54.410] in the history of our country going into police departments.
+- [03:57.690] And a year ago, we had the lowest numbers.
+- [03:59.680] You couldn't hire a policeman.
+- [04:01.020] President Bukele: Biggest change.
+- [04:02.240] From the lowest to the highest.
+- [04:03.580] President Trump: And the military now,
+- [04:04.980] Marines, the Army, air Force, Coast Guard, every slot is…
+- [04:10.960] I mean, we have the best numbers we've ever had.
+- [04:14.750] We call it recruitment numbers,
+- [04:17.680] and we've never had anything like it.
+- [04:19.190] We had records at every single level.
+- [04:24.750] But very important, the policemen.
+- [04:26.230] The policemen are joining forces now
+- [04:28.610] that we really were having a hard time with policemen
+- [04:31.560] because we weren't protecting our police.
+- [04:34.190] And we cherish our police.
+- [04:35.920] The police are great and the firemen and everybody else,
+- [04:38.490] but we have the highest numbers that we've ever had.
+- [04:42.380] The most enthusiasm, great enthusiasm,
+- [04:44.770] and on trade and other things we're doing great.
+- [04:47.700] We're taking in billions and billions of dollars.
+- [04:53.720] I gave them a little bit of a pause
+- [04:55.630] because you have to show a little flexibility.
+- [04:58.320] But we go back to what we have to do.
+- [05:00.100] The markets have been very strong once they got used to it,
+- [05:03.010] but we were losing $2 billion a day.
+- [05:07.750] There's no company big like this.
+- [05:10.070] This is the biggest deal ever made.
+- [05:12.220] Now we're making $3 billion a day.
+- [05:16.530] We're a great country,
+- [05:17.770] but we had stupid people running this country,
+- [05:20.240] and I can say it,
+- [05:21.550] but what they've done to us at the border should never
+- [05:25.570] and can never be forgotten.
+- [05:27.740] It's a sin what they did, and you are helping us out,
+- [05:31.280] and we appreciate it.
+- [05:33.340] President Bukele: Thanks. Thank you.
+- [05:36.150] Actually, what you're doing with the border is remarkable.
+- [05:39.300] It has dropped what? 95%? It's incredible.
+- [05:43.600] President Trump: As this morning, 99.1% to be exact.
+- [05:49.090] Secretary Rubio: Why are those numbers not in the media?
+- [05:51.240] President Trump: Well, they get out with the fake news like CNN.
+- [05:54.370] CNN over here doesn't want to put them out
+- [05:56.470] because they don't like putting out good numbers.
+- [05:58.890] They only like putting out…
+- [06:00.170] because I think they hate our country, actually,
+- [06:03.390] but it's a shame.
+- [06:04.600] You're right. Isn't that a great question?
+- [06:06.150] Why doesn't the media… Why don't they put out numbers?
+- [06:08.550] President Bukele: Yeah, I mean 99%.
+- [06:09.790] I mean, it's crazy, right?
+- [06:10.990] President Trump: We're doing a great-
+- [06:12.210] President Bukele: It's a crazy turnaround.
+- [06:13.410] President Trump: Kristi, could you maybe say
+- [06:14.900] a couple of words about the border, how we do it?
+- [06:17.140] Ms. Noem: Yeah. It's just been absolutely phenomenal
+- [06:18.760] what a great leader can do.
+- [06:21.100] Clear direction. Our laws matter.
+- [06:23.400] We should only have people in our country
+- [06:24.800] that love us and the border patrol
+- [06:27.480] and our ICE officers and law enforcement officers
+- [06:29.750] have done fantastic work, so we're proud of them.
+- [06:32.380] Now we just need to get the criminals
+- [06:34.780] and murderers and rapists
+- [06:36.820] and dangerous gang members and terrorist organizations
+- [06:39.400] out of our country. So, Mr. President Bukele,
+- [06:42.170] we thank you very much for your partnership.
+- [06:44.590] It has been wonderful for us to be able to have somewhere
+- [06:47.630] to send the worst of the worst and someone to partner with.
+- [06:51.320] And we'd like to continue that partnership
+- [06:53.320] because it's been a powerful message of consequences.
+- [06:56.420] Mr. President, you wanted people to know
+- [06:58.750] that there was consequences if you break our laws
+- [07:00.900] and harm our people and endanger families,
+- [07:03.720] and this is a clear consequence for the worst of the worst
+- [07:07.350] that we have somewhere to put them.
+- [07:09.660] President Bukele: Thank you very much.
+- [07:10.930] Yeah. We even had this gang member from Venezuela,
+- [07:14.370] from one of the ones you sent,
+- [07:16.790] and we interviewed him just to get some information,
+- [07:19.720] et cetera from them.
+- [07:20.920] And he said, "Oh, well, I got arrested six times,
+- [07:24.640] but they released me the six times,
+- [07:25.970] so I should be released again."
+- [07:27.800] And then I said, "Well, what's the last thing you do?"
+- [07:30.180] And he said, "Well, I shot a cop in the leg,
+- [07:32.530] but I didn't kill him. I just shot him in the leg."
+- [07:35.580] And we're like, "This guy was arrested
+- [07:37.340] six times here in the United States.
+- [07:41.440] Six times. He was released five times.
+- [07:44.830] And the last time he was sent to El Salvador,
+- [07:47.210] so he's not getting a release."
+- [07:48.410] But the last time he shot a cop, actually,
+- [07:51.050] and he shot him in the leg.
+- [07:52.620] So these are- Yeah, there's something broken.
+- [07:59.640] President Trump: The Liberal establishment,
+- [08:02.520] but they're not running things anymore in this country.
+- [08:04.950] And we're run by, and I don't say conservative,
+- [08:07.150] I don't say anything.
+- [08:08.470] We're run by people with great common sense.
+- [08:10.340] President Bukele: Yeah, common sense.
+- [08:11.630] President Trump: 'Cause it's all common sense.
+- [08:12.830] It's not liberal conservative. It's common sense.
+- [08:14.790] President Bukele: Exactly, yeah.
+- [08:16.530] President Trump: Do you allow men to play in women's sports?
+- [08:19.720] Do you allow men to box your women and boxing?
+- [08:22.300] 'Cause I know you have a lot of boxers.
+- [08:23.990] President Bukele: That's violence.
+- [08:26.350] President Trump: That's abuse of a woman.
+- [08:27.610] President Bukele: Violence against women.
+- [08:28.850] President Trump: It's abuse of a woman.
+- [08:30.430] But we have people that fight to the death
+- [08:32.390] because they think men should be able to play in women's sports.
+- [08:35.060] And some of those sports, it wouldn't matter much,
+- [08:38.600] but it still matters.
+- [08:39.880] But some of them are very dangerous for women.
+- [08:42.130] President Bukele: Some years ago,
+- [08:45.030] like we said, a decade ago or so,
+- [08:47.750] women rights movements were pressuring
+- [08:49.700] so that we enact a specific laws to avoid men abusing women.
+- [08:56.090] And I think those laws were brave
+- [08:57.390] because there were a lot of men abusing women.
+- [08:59.900] But now some of the same people are trying to backtrack on that
+- [09:03.490] and actually trying to make new laws,
+- [09:05.300] allowing men to abuse women, women in sport.
+- [09:07.370] So actually that doesn't make sense.
+- [09:08.670] President Trump: We do it in sports.
+- [09:09.950] President Bukele: It doesn't make sense.
+- [09:11.160] President Trump: It's crazy.
+- [09:12.370] They have weightlifting records, right?
+- [09:13.680] President Bukele: Yeah.
+- [09:14.900] President Trump: A woman gets up this weight. She's incredible.
+- [09:17.680] A guy gets up and beats her by a hundred pounds.
+- [09:20.650] What are you going to do?
+- [09:21.850] A record that hadn't been broken in 18 years.
+- [09:25.550] They put on an ounce and an ounce,
+- [09:27.270] quarter of an ounce, eighth of an ounce for 18 years.
+- [09:30.510] Now they have a guy come up, ping.
+- [09:32.990] The whole thing is crazy. But they continue to fight.
+- [09:37.470] And I don't like talking about it
+- [09:38.760] because I want to save it for just before the next election.
+- [09:41.140] I said to my people,
+- [09:42.340] "Don't even talk about it because they'll change."
+- [09:47.670] But I watched this morning,
+- [09:49.650] there was a congressman fighting to the death
+- [09:52.110] for men to play against women in sports.
+- [09:56.590] And you say to yourself, "Why?
+- [09:59.300] What are they doing? What are they doing?"
+- [10:01.630] But your country's not too big on that.
+- [10:03.550] President Bukele: No. No, of course not.
+- [10:05.100] We're big on protecting women.
+- [10:07.130] President Trump: That's a very important form of protection.
+- [10:10.240] President Bukele: And as you can see,
+- [10:11.510] most of my cabinet are women.
+- [10:12.850] President Trump: That's impressive.
+- [10:14.060] President Bukele: Yeah. Yeah.
+- [10:15.290] President Trump: That's why you bring them.
+- [10:16.570] President Bukele: And they're not DEI hires or anything,
+- [10:18.010] they're just great at what they do, right?
+- [10:20.390] President Trump: That's right. This is very impressive.
+- [10:22.260] This is a first.
+- [10:23.710] We've had women, but we've never had three of them right here.
+- [10:27.690] President Bukele: Four and three men.
+- [10:29.160] President Trump: Look at what you have.
+- [10:31.590] Do you guys feel a little bit mistreated?
+- [10:36.460] That's great. I like it. We've been advanced.
+- [10:39.890] I've been very advanced in that regard too.
+- [10:41.800] We have, Pam and Sue's been so fantastic.
+- [10:44.190] President Bukele: Yes, I know. It's her birthday.
+- [10:45.400] President Trump: Kristi, and the most powerful woman
+- [10:47.980] they see in my office.
+- [10:50.320] They're all afraid of Susie Wiles.
+- [10:51.770] They say, "Oh, she's tough."
+- [10:53.840] Most powerful woman in the world according to magazines.
+- [10:56.470] What do I know? But Yeah. She probably is.
+- [10:58.140] I think she probably is.
+- [10:59.340] President Bukele: Yeah, she probably is.
+- [11:00.540] President Trump: Yeah, she probably is.
+- [11:01.760] President Bukele: Congratulations.
+- [11:03.000] President Trump: And Stephen has done such a great job.
+- [11:05.910] We have great people-
+- [11:07.180] President Bukele: Very famous staff.
+- [11:08.390] President Trump: … but we love working with [inaudible].
+- [11:09.690] He really lets him have it, right.
+- [11:10.990] President Bukele: Yeah, exactly.
+- [11:12.210] President Trump: There's no games.
+- [11:13.440] President Bukele: No, no. Very good.
+- [11:15.050] President Trump: He knows.
+- [11:16.390] Do you have any questions, please?
+- [11:17.710] The Press: President Trump?
+- [11:19.000] President Trump: Go ahead. Let's not start with CNN
+- [11:20.350] because they're so, they're just so-
+- [11:21.710] The Press: Mr. President?
+- [11:23.040] President Trump: … wrong. Yeah, please.
+- [11:24.250] The Press: Yeah. Thank you, Mr. President.
+- [11:25.450] You repeatedly mentioned last night
+- [11:27.330] that Russia's attack on Ukraine was a mistake.
+- [11:31.010] What is the exact mistake?
+- [11:32.980] And had you given Putin a deadline
+- [11:35.290] to actually move toward a ceasefire?
+- [11:36.920] President Trump: The mistake was letting the war happen.
+- [11:39.660] If Biden were competent, and if Zelenskyy were competent,
+- [11:43.640] and I don't know that he is.
+- [11:45.120] We had a rough session with this guy over here.
+- [11:47.350] He just kept asking for more and more.
+- [11:49.640] That war should have never been allowed to happen.
+- [11:51.430] That war…
+- [11:52.710] I went four years and Putin wouldn't even bring it up.
+- [11:56.130] And as soon as the election was rigged
+- [11:57.800] and I wasn't here, that war started.
+- [12:01.020] There was no way that war should have been allowed to happen.
+- [12:04.240] And Biden should have stopped it.
+- [12:06.790] And you take a look at Putin,
+- [12:09.420] I'm not saying anybody's an angel,
+- [12:12.480] but I will tell you I went four years
+- [12:14.130] and it wasn't even a question. He would never.
+- [12:16.450] And I told him, "Don't do it. You're not going to do it."
+- [12:19.670] And it was the apple of his eye,
+- [12:20.990] but there was no way that he would've done it.
+- [12:23.170] All you had to do is lower oil prices.
+- [12:24.960] If you lowered oil prices… Biden kept the prices so high
+- [12:28.570] because he made it impossible to get it.
+- [12:31.800] If you lowered oil prices, you would've never had the war,
+- [12:34.120] but you wouldn't have had it with me anyway.
+- [12:35.710] That war would've never happened.
+- [12:37.570] And I think it's a great abuse.
+- [12:39.450] So now what do you do?
+- [12:41.080] You get a country where 25% of its land
+- [12:44.020] is gone and the best locations.
+- [12:47.020] Where millions of people are killed,
+- [12:48.710] you haven't reported accurately the death.
+- [12:52.710] And this was Biden's war and I'm trying to stop it.
+- [12:56.310] And I think we're going to do a good job,
+- [12:58.010] I hope we're going to do it.
+- [12:59.400] They lose 2,500 young people a week, on average.
+- [13:05.000] Now they're Russians and they're Ukrainians, but it's 2000.
+- [13:09.000] We don't care. It's like whatever it is.
+- [13:11.760] They're not from your country, they're not from mine,
+- [13:13.580] but I want to stop it.
+- [13:15.070] 2,500, it's a killing field. It's like the Civil War.
+- [13:19.120] You take a look. I look at the satellite pictures.
+- [13:22.380] This should not be happening in our time.
+- [13:25.890] Of course, our time can be pretty violent as we know.
+- [13:28.930] But that's a war that should have
+- [13:30.410] never been allowed to start. And Biden could have stopped it
+- [13:35.360] and Zelenskyy could have stopped it
+- [13:37.790] and Putin should have never started it.
+- [13:40.970] Everybody's to blame.
+- [13:43.240] The Press: Have you spoken to President Zelenskyy, sir,
+- [13:45.020] out his offer to purchase more Patriot missile batteries?
+- [13:47.690] President Trump: Oh, I don't know.
+- [13:48.930] He's always looking to purchase missiles.
+- [13:51.010] He's against… Listen, when you start a war,
+- [13:54.370] you got to know that you can win the war, right?
+- [13:56.170] You don't start a war against somebody
+- [13:57.610] that's 20 times your size
+- [14:00.150] and then hope that people give you some missiles.
+- [14:03.730] If we didn't give them what we gave,
+- [14:06.150] remember I gave them Javelins.
+- [14:08.470] That's how they won their first big battle.
+- [14:10.940] With the tanks that got stuck in the mud
+- [14:13.430] and they took them out with Javelins.
+- [14:14.880] They have an expression that Obama, at the time,
+- [14:18.660] Obama gave them sheets and Trump gave them Javelins.
+- [14:22.750] But just something that should have never happened.
+- [14:26.180] It's a really shame. The towns are destroyed.
+- [14:29.520] Towns and cities are largely destroyed.
+- [14:33.500] They have the spires, the beautiful spires that go up.
+- [14:37.970] They say that we're the most beautiful in the world,
+- [14:39.940] in Ukraine for whatever reason,
+- [14:41.470] but the most beautiful in the world.
+- [14:43.570] They're mostly laying on their side, shattered and broken.
+- [14:47.030] And most importantly, you have millions of people dead.
+- [14:49.590] Millions of people dead because of three people,
+- [14:54.340] I would say three people. Let's say Putin, number one.
+- [14:58.580] But let's say Biden who had no idea
+- [15:00.160] what the hell he was doing, number two and Zelenskyy.
+- [15:05.200] And all I can do is try and stop it.
+- [15:08.230] That's all I want to do. I want to stop the killing.
+- [15:11.170] And I think we're doing well in that regard.
+- [15:13.940] I think you'll have some very good proposals very soon.
+- [15:17.560] The Press: Last question, sir, have you attributed a motive
+- [15:22.200] through the FBI investigation behind the attack
+- [15:26.380] President Trump: No, I haven't,
+- [15:27.750] but the attacker was not a fan of Trump, I understand.
+- [15:31.990] Just from what I read and from what I've been told.
+- [15:36.180] The attacker basically wasn't a fan of anybody.
+- [15:38.310] It's probably just a whack job
+- [15:40.510] and certainly a thing like that can not be allowed to happen.
+- [15:43.830] The Press: Is your good relations with President Bukele
+- [15:46.590] the best guarantee that this time you won't terminate
+- [15:48.620] the temporary protected status-
+- [15:49.830] President Trump: I have a great relationship with this man.
+- [15:51.370] The Press: … [inaudible] nationals of El Salvador?
+- [15:52.720] President Trump: I have the best relationship with him.
+- [15:54.510] We've known each other.
+- [15:56.360] I've known him since he was a very young man.
+- [15:58.900] As I said, very, very young. And I was impressed.
+- [16:01.580] I said, "Look out, this guy is…"
+- [16:03.830] In fact, you sort of look like a teenager.
+- [16:06.580] President Bukele: That's good.
+- [16:07.820] President Trump: You look like a teenager.
+- [16:09.050] I said what kind of a country is this?
+- [16:10.290] President Bukele: I don't know if that's good or bad,
+- [16:11.570] Mr. President.
+- [16:14.000] President Trump: He grew up well in the last five years.
+- [16:16.470] The Press: Do you support extension for nationals
+- [16:18.550] of El Salvador under temporary protected status?
+- [16:20.380] President Trump: I support him.
+- [16:21.660] [cross talk from reporters]
+- [16:25.830] President Trump: Let's hear the question
+- [16:27.060] from this very low-rated anchor at CBS.
+- [16:29.230] The Press: President Trump,
+- [16:30.620] do you plan to ask President Bukele
+- [16:32.100] to help return the man who your administration says
+- [16:33.870] was mistakenly deported?
+- [16:35.260] President Trump: Which one is it?
+- [16:36.480] The Press: The man who was mistakenly
+- [16:37.720] deported to El Salvador?
+- [16:38.960] President Trump: Well, let me ask.
+- [16:40.190] Pam, would you answer that question?
+- [16:42.050] Ms. Bondi: Sure President.
+- [16:43.380] First and foremost, he was illegally in our country.
+- [16:46.950] He had been illegally in our country.
+- [16:49.270] And in 2019, 2 courts, an immigration court
+- [16:53.450] and an appellate immigration court ruled
+- [16:55.860] that he was a member of MS-13
+- [16:58.670] and he was illegally in our country.
+- [17:01.610] Right now, it was a paperwork,
+- [17:03.570] it was additional paperwork had needed to be done.
+- [17:07.020] That's up to El Salvador if they want to return him,
+- [17:10.500] that's not up to us.
+- [17:11.720] The Supreme Court ruled President
+- [17:13.960] that if, as El Salvador wants to return him,
+- [17:16.760] this is international matters, foreign affairs.
+- [17:19.500] If they wanted to return him, we would facilitate it,
+- [17:23.270] meaning provide a plane.
+- [17:25.920] The Press: So will you return him President Bukele?
+- [17:27.580] President Trump: And you are doing a great job.
+- [17:28.900] Thank you. Ms. Bondi: Thank you.
+- [17:30.230] President Trump: Wait a minute.
+- [17:31.430] Can you just also respond to that question?
+- [17:33.670] Because it's asked by CNN and they always ask it with a slant.
+- [17:38.330] Because they're totally slanting
+- [17:39.530] because they don't know what's happening.
+- [17:40.900] That's why nobody's watching them.
+- [17:42.130] But would you answer that question also, please?
+- [17:44.550] Mr. Miller: Yes, gladly. So as Pam mentioned,
+- [17:47.960] there's an illegal alien from El Salvador.
+- [17:50.700] So with respect to you, he's a citizen of El Salvador.
+- [17:55.270] So it's very arrogant, even for American media
+- [17:58.840] to suggest that we would even tell El Salvador
+- [18:00.890] how to handle their own citizens as a starting point,
+- [18:04.120] as two immigration courts found that he was a member of MS-13.
+- [18:07.760] When President Trump declared MS-13
+- [18:09.840] to be a foreign terrorist organization,
+- [18:12.460] that meant that he was no longer eligible under federal law,
+- [18:15.860] which I'm sure you know, you're very familiar with the INA,
+- [18:18.180] that he was no longer eligible
+- [18:19.610] for any form of immigration relief in the United States.
+- [18:22.640] So he had a deportation order that was valid.
+- [18:25.930] Which meant that under our law,
+- [18:27.140] he's not even allowed to be present in the United States
+- [18:30.500] and had to be returned
+- [18:32.130] because of the foreign terrorist designation.
+- [18:34.900] This issue was then, by a district court judge,
+- [18:38.600] completely inverted, and a district court judge
+- [18:40.640] tried to tell the administration
+- [18:42.450] that they had to kidnap a citizen of El Salvador
+- [18:45.210] and flying back here.
+- [18:46.590] That issue was raised with the Supreme Court.
+- [18:48.820] And the Supreme Court said the District court order
+- [18:51.430] was unlawful and its main components
+- [18:53.890] were reversed 9-0 unanimously stating clearly
+- [18:58.140] that neither Secretary of State nor the President
+- [19:01.000] could be compelled by anybody to forcibly retrieve
+- [19:03.690] a citizen of El Salvador from El Salvador,
+- [19:06.550] who again is a member of MS-13.
+- [19:09.720] Which is, I'm sure you understand,
+- [19:11.310] rapes little girls, murders women, murders children,
+- [19:14.540] is engaged in the most barbaric activities in the world.
+- [19:16.860] And I can promise you, if he was your neighbor,
+- [19:18.420] you would move right away.
+- [19:19.650] The Press: So you don't plan to ask for-
+- [19:20.870] But the Supreme Court is asking to-
+- [19:22.500] President Trump: And what was the ruling
+- [19:24.150] in the Supreme Court, Steve? Was it nine to nothing?
+- [19:26.500] Mr. Miller: Yes. It was a 9- 0-
+- [19:27.930] President Trump: In our favor?
+- [19:29.190] Mr. Miller: In our favor against the District Court.
+- [19:30.930] Ruling saying that no district court has the power
+- [19:33.930] to compel the foreign policy function of the United States.
+- [19:36.590] As Pam said, the ruling solely stated that if this individual,
+- [19:40.840] at El Salvador's sole discretion,
+- [19:43.510] was sent back to our country,
+- [19:45.140] that we could deport him a second time.
+- [19:47.110] No version of this legally ends up with him ever living here
+- [19:50.130] because he's a citizen of El Salvador.
+- [19:52.800] That is the president of El Salvador.
+- [19:54.650] Your questions about it per the court
+- [19:56.170] can only be directed to him.
+- [19:57.550] The Press: I ask, President Bukele, what is your…
+- [20:00.500] Can President Bukele weigh in on this?
+- [20:02.230] Do you plan to return him?
+- [20:03.520] President Bukele: Well, I'm supposed you're not suggested
+- [20:05.990] that I smuggle a terrorist in the United States, right?
+- [20:08.860] President Trump: It's only CNN.
+- [20:10.130] President Bukele: How can I smuggle…
+- [20:11.360] How can I return him to the United States?
+- [20:12.990] Like I smuggle him into the United States,
+- [20:14.590] or whether do I do?
+- [20:15.830] Of course I'm not going to do it.
+- [20:17.520] It's like the question is preposterous.
+- [20:20.930] How can I smuggle the terrorist into the United States?
+- [20:24.160] I don't have the power to return him to the United States.
+- [20:26.790] The Press: But you can release him inside of El Salvador.
+- [20:28.710] President Bukele: Yeah, but I'm not releasing…
+- [20:30.240] We're not very fond of releasing terrorists into our country.
+- [20:32.790] We just turned the murder capital of the world
+- [20:34.510] into the safest country of the Western Hemisphere.
+- [20:36.290] And you want us to go back into releasing criminals
+- [20:39.550] so we can go back to being the murder capital of the world?
+- [20:41.970] That's not going to happen.
+- [20:43.990] President Trump: Well, they'd love to have a criminal
+- [20:45.700] released into our country.
+- [20:47.110] President Bukele: I mean, there's a fascination-
+- [20:48.430] President Trump: They would love it.
+- [20:49.650] President Bukele: Yeah.
+- [20:51.170] President Trump: These are sick people.
+- [20:52.390] Marco, do you have something to say about that?
+- [20:53.960] Secretary Rubio: Yeah, I mean, Stephen,
+- [20:55.190] I don't understand what the confusion is.
+- [20:57.950] This individual is a citizen of El Salvador.
+- [21:00.490] He was illegally in the United States
+- [21:02.000] and was returned to his country.
+- [21:03.830] That's where you deport people, back to their country of origin.
+- [21:06.410] Except for Venezuela that was refusing
+- [21:08.180] to take people back of places like that.
+- [21:10.310] I can tell you this, Mr. President.
+- [21:12.350] The foreign policy of the United States
+- [21:13.960] is conducted by the President of the United States,
+- [21:16.080] not by a court.
+- [21:17.470] And no court in the United States
+- [21:19.280] has a right to conduct a foreign policy of the United States.
+- [21:21.660] It's that simple. End of story.
+- [21:22.950] The Press: More specifically-
+- [21:24.180] Mr. Miller: And that's what the Supreme Court held,
+- [21:25.440] by the way. To Marco's Point,
+- [21:26.870] the Supreme Court said exactly what Marco said.
+- [21:29.410] That no court has the authority
+- [21:30.920] to compel the foreign policy function in the United States.
+- [21:33.190] We won a case 9-0.
+- [21:35.000] And people like CNN are portraying it as a loss,
+- [21:36.780] as usual,
+- [21:38.030] because they want foreign terrorists in the country
+- [21:40.340] who kidnap women and children.
+- [21:41.930] But President Trump, his policy is foreign terrorists
+- [21:44.800] that are here illegally get expelled from the country,
+- [21:46.830] which by the way is a 90/10 issue.
+- [21:48.970] The Press: Well, Mr. President,
+- [21:50.170] you said that if the Supreme Court said
+- [21:51.660] someone needed to be returned, that you would abide by that.
+- [21:53.250] You said that on Air Force One just a few days ago.
+- [21:54.620] And they said-
+- [21:55.890] President Trump: How long do we have to answer
+- [21:57.140] this question today?
+- [21:58.340] The Press: It must be facilitated.
+- [21:59.540] President Trump: Why don't you just say,
+- [22:00.770] "Isn't it wonderful that we're keeping criminals
+- [22:02.520] out of our country?" Why can't you just say that?
+- [22:04.100] The Press: Well, it's illegal to,
+- [22:05.310] so I just wanted some clarity on it.
+- [22:06.620] President Trump: Why do you go over and over?
+- [22:07.910] And that's why nobody watches you anymore.
+- [22:09.520] You have no credibility. Please, go ahead.
+- [22:11.860] The Press: President Trump, thank you so much.
+- [22:13.750] How many illegal criminals are you planning
+- [22:15.740] on exporting to El Salvador? And, President Bukele,
+- [22:20.050] how many are you willing to take from the U.S.?
+- [22:22.510] President Trump: As many as possible.
+- [22:24.590] And I just asked the president …
+- [22:26.280] it's this massive complex that he built, jail complex.
+- [22:30.540] I said, "Can you build some more of them, please?"
+- [22:33.180] As many as we can get out of our country
+- [22:35.310] that were allowed in here by incompetent Joe Biden
+- [22:39.190] through open borders. Open borders.
+- [22:41.930] You probably hear open borders
+- [22:43.480] and you can't even understand it,
+- [22:44.740] because nobody can understand.
+- [22:46.080] Nobody smart or with common sense can understand it.
+- [22:49.980] So we have millions of people that should not be
+- [22:54.030] in this country that are dangerous.
+- [22:56.740] Not just people, because we have people,
+- [22:59.470] but we have millions of people that are murderers,
+- [23:02.040] drug dealers.
+- [23:03.560] They've been allowed to come into our country
+- [23:05.710] by other countries that were very smart.
+- [23:08.010] When they heard that this very low IQ president …
+- [23:12.480] and by the way, I took my cognitive exam
+- [23:14.770] as part of my physical exam and I got the highest mark.
+- [23:18.110] And one of the doctors said, "Sir, I've never seen anybody
+- [23:21.090] get that kind of a … that was the highest mark."
+- [23:24.200] I hope you're happy with that.
+- [23:25.830] Although they haven't been bugging me
+- [23:27.110] too much to take a cognitive,
+- [23:28.540] but I did do my physical and it was released.
+- [23:31.390] I hope you're all happy with it.
+- [23:32.660] I noticed there's no question, so probably you are.
+- [23:35.460] But the cognitive, they said to me,
+- [23:37.650] "Sir, would you like to take a cognitive test?"
+- [23:39.720] I said, "Did Biden take one?" "No." "Did anybody take one?"
+- [23:45.290] "No, not too many people took them."
+- [23:47.140] I said, "What about Obama? Did he take one?"
+- [23:51.650] "No, he didn't take one either."
+- [23:53.110] I said, "Let me be the only one to take one."
+- [23:56.240] But I've actually taken them three times already.
+- [23:58.430] I like taking them, because they're sort of …
+- [24:00.690] they're not too tough for me to take.
+- [24:02.730] But we had a great physical exam,
+- [24:05.130] so I know you're going to ask that.
+- [24:06.640] And the doctors who are total professionals,
+- [24:09.280] Walter Reed Medical Center, they're great people.
+- [24:12.920] And I visited a soldier that was badly wounded.
+- [24:16.980] Incredible soldier. Lost his leg.
+- [24:19.760] And … who I spent a lot of time with him, I mean,
+- [24:21.940] [inaudible 00:24:26] with his mother,
+- [24:24.430] and it was really a very great thing.
+- [24:25.930] They do a phenomenal job. I just want to say Walter
+- [24:27.990] Reed, I was there for, what? Five, six hours.
+- [24:29.940] You were there with me. But I took a full physical
+- [24:33.120] and it came out perfecto, so that's good.
+- [24:35.800] That means you've got me for a little longer.
+- [24:37.840] The Press: Would the U.S. be willing pay for those facilities
+- [24:39.950] to be opened if new ones were going to be built
+- [24:41.450] [inaudible]?
+- [24:42.400] President Trump: I'd do something.
+- [24:43.620] We'd help them out. Yeah, we'd help them out.
+- [24:45.070] They're great facilities, very strong facilities,
+- [24:47.850] and they don't play games. I'd like to go a step further.
+- [24:54.090] I said it to Pam. I don't know what the laws are.
+- [24:55.930] We always have to obey the laws,
+- [24:57.470] but we also have homegrown criminals
+- [25:00.140] that push people into subways, that hit elderly ladies
+- [25:04.970] on the back of the head with a baseball bat
+- [25:07.340] when they're not looking, that are absolute monsters.
+- [25:12.570] I'd like to include them in the group of people
+- [25:14.520] to get them out of the country,
+- [25:15.830] but you'll have to be looking at the laws on that, Steve.
+- [25:18.430] Okay?
+- [25:19.670] The Press: How special is it for you guys
+- [25:21.940] to be locking up these prisoners,
+- [25:23.400] and do you think more presidents should follow suit,
+- [25:25.620] like you guys, in as far as taking a stand
+- [25:27.270] on crime here in the United States?
+- [25:28.700] President Trump: Well, I do. I think everybody has to.
+- [25:31.650] The president said it better than anybody.
+- [25:33.800] He said, "You have liberty and you have to have liberty.
+- [25:36.590] But to have liberty, you're going to …
+- [25:38.140] not everybody is going to be good."
+- [25:41.480] And some are bad, because they're sick.
+- [25:43.890] They're mentally deranged, they're bad.
+- [25:46.540] Then you have to take them …
+- [25:47.860] if you're going to have a country,
+- [25:49.480] you're going to have to take those people out.
+- [25:51.550] And we've been doing that.
+- [25:54.110] But this was like an unforced error, they would call it,
+- [25:57.900] where we had people that may hate our country
+- [26:01.240] or maybe they're just stupid people.
+- [26:02.750] I think they're probably stupid people more so.
+- [26:07.020] A lot of people said they did it for the vote,
+- [26:09.520] but I did better with Hispanic people than they did,
+- [26:11.870] because they always use Hispanic.
+- [26:13.190] I did better. Your people love me.
+- [26:15.900] I saw my poll numbers in your country,
+- [26:17.680] up through the roof, right? 91%.
+- [26:21.570] No, no. Some people think they do it for the vote.
+- [26:26.000] But they don't have to do it for the vote.
+- [26:27.540] They cheat. They're professional cheaters.
+- [26:29.610] That's about the only thing they do well.
+- [26:31.750] So we just have had a great relationship
+- [26:34.820] and it's become bigger,
+- [26:36.280] because of a strange thing that's happened.
+- [26:39.340] I came back. We had no war in Ukraine.
+- [26:43.640] We had no war with …
+- [26:45.880] we had no October 7th, Middle East problem.
+- [26:48.240] We had nothing. We had no inflation.
+- [26:51.590] We didn't have the Afghanistan most embarrassing moment
+- [26:54.360] in the history of our country, the Afghanistan …
+- [26:56.400] not withdrawing, because I would have been out …
+- [26:59.220] I had it all set to bring people out with dignity and pride.
+- [27:03.100] That was the worst,
+- [27:05.050] most embarrassing moment in the history of our country.
+- [27:07.630] Afghanistan. We didn't have any of that.
+- [27:10.170] You wouldn't have had the war with Russia-Ukraine.
+- [27:12.260] You wouldn't have had the Middle East problem,
+- [27:13.880] because Iran was broke.
+- [27:15.150] They had no money, because we had secondary sanctions
+- [27:17.900] on and lots of other sanctions.
+- [27:20.510] And now every single thing.
+- [27:22.660] Got a problem with Iran, but I'll solve that problem.
+- [27:26.360] That's almost an easy one.
+- [27:28.120] We got to solve a war that should have never started,
+- [27:30.390] Ukraine and Russia, and we'll get that solved.
+- [27:34.730] And we have to solve problems. And we already solved inflation.
+- [27:38.240] If you look at the numbers,
+- [27:39.540] the numbers are incredible, actually.
+- [27:42.340] Stock markets up, and we're not letting other countries
+- [27:46.630] take advantage of this country
+- [27:47.980] like they have for the last 40 years,
+- [27:50.210] so thank you very much. Do you have a question, please?
+- [27:52.080] The Press: [inaudible], Mr. President.
+- [27:53.470] Thank you so much.
+- [27:54.670] You scored another major investment win this morning
+- [27:57.250] when NVIDIA pledged to build its AI supercomputer,
+- [28:00.160] for the first time, ever right here in the United States.
+- [28:02.660] President Trump: Thank you. Now that's a question I like.
+- [28:05.410] That's true.
+- [28:06.640] The Press: What is your reaction to this announcement, Sir,
+- [28:08.550] and how will this positively [inaudible]
+- [28:10.710] Americans across the entire country?
+- [28:12.640] President Trump: Well, it's one of the biggest announcements
+- [28:15.840] you'll ever hear, because NVIDIA, as you know,
+- [28:18.480] controls almost the entire sector,
+- [28:22.690] which is one of the most important sectors in the world,
+- [28:25.520] between chips and semiconductors and everything else,
+- [28:28.640] and they're the biggest.
+- [28:31.560] And the other biggest, we already have coming in
+- [28:34.200] and spending 300 million, as you know.
+- [28:35.940] They announced two weeks ago.
+- [28:38.570] But NVIDIA is so highly respected,
+- [28:42.300] and this was an announcement that a lot of people,
+- [28:45.470] I knew it was going to happen,
+- [28:47.370] but not to the extent that it happened.
+- [28:49.190] It's big. And the reason they did it
+- [28:51.680] is because of the election on November 5th,
+- [28:54.480] and because of a thing called tariffs.
+- [28:56.180] As I say, the most beautiful word in the dictionary,
+- [28:58.460] after love, God, relationship. The press actually hit me.
+- [29:03.520] I said, "Tariff is the most beautiful word
+- [29:06.890] in the dictionary." "What about family, love, God?"
+- [29:11.440] So I got hit even on that.
+- [29:12.720] Do you understand? I said, "Okay."
+- [29:14.290] So now I say it's my fifth most favorite word,
+- [29:17.950] because they get you on anything.
+- [29:19.750] But no, it's one of the great companies of the world.
+- [29:25.600] Modern, super modern companies.
+- [29:28.010] It controls segments that nobody …
+- [29:30.900] it sort of control the world, in a sense.
+- [29:33.520] And they're coming in here, in the biggest way,
+- [29:35.320] with hundreds of billions of dollars.
+- [29:38.130] Not like millions of dollars.
+- [29:39.810] Hundreds of billions of dollars, and I'm honored by it.
+- [29:43.940] And want to thank Jensen and all the people that we deal with.
+- [29:48.680] They're great people. They're brilliant people.
+- [29:51.270] And without tariffs, they wouldn't be doing it.
+- [29:54.610] Thank you very much. That was a very good
+- [29:56.580] [inaudible]. Yeah, please. Go ahead.
+- [29:58.130] The Press: Are you considering additional sanctions
+- [30:00.010] against Russia after their latest attack?
+- [30:02.450] And do you have an update on the rate
+- [30:04.200] and when you might announce semiconductor tariffs?
+- [30:05.780] President Trump: Well, I already have sanctions on Russia.
+- [30:08.160] I put them there. If you remember Nord Stream 2,
+- [30:12.890] that's the big pipeline that goes through Europe,
+- [30:15.820] I stopped it. That's Russia's pipeline.
+- [30:18.170] The largest pipeline, I think, in the world.
+- [30:20.550] Goes to Germany. And I stopped it.
+- [30:23.610] And when Biden came in, he approved it,
+- [30:27.140] and then they say, "Oh, I'm friendly with Russia."
+- [30:29.200] No, no. Putin said, "If you're my friend,
+- [30:33.020] I'd hate to see you when you're my enemy."
+- [30:34.610] I stopped the biggest economic job they ever had.
+- [30:37.780] I stopped it cold. Right?
+- [30:39.080] It was dead. You know that, right?
+- [30:41.000] And Biden came in and he immediately approved it.
+- [30:43.800] What was that all about?
+- [30:45.160] The Press: What about additional sanctions, Sir?
+- [30:46.560] President Trump: And it's a pipeline that takes care
+- [30:49.580] of a lot of the needs.
+- [30:51.260] Now, it was a very controversial thing,
+- [30:54.970] but I stopped it and Biden approved it.
+- [30:57.500] Question?
+- [30:58.710] The Press: On tariffs, do you have an update-
+- [30:59.970] President Trump: No, not you?
+- [31:01.200] The Press: [inaudible] update today on [inaudible]
+- [31:04.230] semiconductor tariffs, and potentially pharmaceuticals?
+- [31:06.170] President Trump: What?
+- [31:07.370] The Press: Semiconductor tariffs,
+- [31:08.640] and potentially pharmaceuticals, any update on that?
+- [31:10.000] President Trump: Pharmaceuticals,
+- [31:11.290] we're going to do. We don't make our own drugs,
+- [31:14.500] our own pharmaceuticals.
+- [31:15.730] We don't make our own drugs anymore.
+- [31:17.060] The drug companies are in Ireland
+- [31:19.820] and they're in lots of other places.
+- [31:21.840] China. And all they have to do is impose a tariff.
+- [31:26.990] The more, the faster they move in.
+- [31:29.390] The higher the tariff, it's very … it's inversely proportional.
+- [31:33.190] The higher the tariff, the faster they come.
+- [31:36.160] And, yeah, we're going to be doing that.
+- [31:38.180] That's going to be like we have on cars.
+- [31:39.850] We have, as you know, a 25% tariff on cars.
+- [31:42.860] We have a 25% tariff on steel and aluminum.
+- [31:47.120] And that's what that category fits right now.
+- [31:49.440] The Press: Do you have a percentage in mind
+- [31:50.750] and the timeline?
+- [31:51.990] President Trump: I have a timeline.
+- [31:53.410] Not too distant future.
+- [31:55.000] We're doing it, because we want to make our own drugs.
+- [31:57.690] We're doing it, because we want to make our own steel
+- [31:59.540] and aluminum, lumber, other things.
+- [32:03.760] And they're all coming in. We have record numbers,
+- [32:07.110] $7 trillion since I announced, a month and a half ago.
+- [32:14.020] Since I came. Basically, since I came in,
+- [32:16.750] we have over $7 trillion being invested in the country.
+- [32:20.190] We didn't have 1 trillion,
+- [32:22.480] we didn't have a half a trillion dollars with some of these guys.
+- [32:25.150] I didn't know what the hell they were doing.
+- [32:26.960] So we have the largest investment
+- [32:28.630] that we've ever heard of, and we're only two months in.
+- [32:32.750] And that'll continue at levels that you've never seen before.
+- [32:35.720] It's going to happen.
+- [32:37.020] And even the stock market's up today.
+- [32:40.790] We also … a lot of people didn't say it the way it was.
+- [32:44.970] We had the largest gain in the stock market in history,
+- [32:49.210] on every single category, last week.
+- [32:51.980] That was a nice game, because we were getting a little hit,
+- [32:54.330] because people didn't understand
+- [32:57.240] the power of our country economically,
+- [33:02.990] if you use it right. Do you have something to say on that, JD?
+- [33:06.960] The Vice President: Yes, sir. I mean, look, for 40 years
+- [33:09.280] we have lost manufacturing capacity.
+- [33:11.530] Workers have seen their wages stagnate,
+- [33:13.580] and some of the most critical things
+- [33:14.880] that we need from the pharmaceuticals,
+- [33:16.810] the drugs that we give to our children,
+- [33:19.490] the antibiotics that we give to our kids,
+- [33:21.290] to the weapons that we actually need to fight a war if,
+- [33:24.360] God forbid, we had to fight a war,
+- [33:26.120] we don't make enough of that stuff.
+- [33:27.930] And so President Trump ran explicitly on changing that.
+- [33:31.160] Yes, as the president mentioned,
+- [33:32.520] it caused a little bit of disruption in the market.
+- [33:34.130] But I actually think over the long term,
+- [33:36.080] workers are going to benefit, stocks are going to go up.
+- [33:38.180] American businesses are going to benefit as we reinvest
+- [33:41.380] and re-industrialize our country.
+- [33:43.450] President Trump: And the autoworkers
+- [33:44.670] and the teamsters and all of the unions,
+- [33:47.740] not traditionally Republican, but I'm winning those unions by…
+- [33:51.820] We're up 40, 50 points on the Democrats.
+- [33:54.870] They're losing everything. And they're losing everything
+- [33:57.800] because they just have policies that are not believable.
+- [34:03.820] They fight for policies that are 5% popular,
+- [34:07.050] and nobody knows who the 5% are. I mean, nobody can find the 5%.
+- [34:11.590] But if you go back to Ohio… And by the way,
+- [34:13.720] we have the great championship team from Ohio coming in today.
+- [34:17.330] Right? And that's going to be a little bit later.
+- [34:22.420] And if you want to stick around,
+- [34:24.620] I'll introduce you to some nice people.
+- [34:27.030] You'll see some very large people.
+- [34:29.520] You'll see some people that…
+- [34:31.180] Even you have not seen people like this.
+- [34:34.630] These are 6'7, 380 pounds, with no fat. That's pretty good.
+- [34:41.110] But the national championship team is being honored today
+- [34:43.980] at the White House. So that'll be exciting.
+- [34:45.620] If you want to stay around, I'll have you up there.
+- [34:48.890] You can tell them all about your prison,
+- [34:50.920] how you have to behave.
+- [34:52.130] Speaker 10 (35:00):
+- [34:53.890] Mr. President, for businesses that want clarity-
+- [34:55.470] President Trump: Who else? Speaker 10 (35:01):
+- [34:56.730] … how temporary are those exemptions on electronics?
+- [34:58.370] President Trump: Go ahead, please.
+- [34:59.620] Speaker 11 (35:03):
+- [35:00.860] You said yesterday that you're making a decision
+- [35:03.180] on Iran very quickly. What do you mean by that?
+- [35:05.320] Is that a decision to strike Iran?
+- [35:06.680] President Trump: Well, they have to solve
+- [35:07.920] to their problem very quickly.
+- [35:09.130] Iran wants to deal with us, but they don't know how.
+- [35:11.790] They really don't know how.
+- [35:13.050] We had a meeting with them on Saturday.
+- [35:16.440] We have another meeting scheduled next Saturday.
+- [35:18.300] I said, "That's a long time." That's a long time.
+- [35:21.750] So I think they might be tapping us along.
+- [35:25.270] But Iran has to get rid of the concept of a nuclear weapon.
+- [35:29.070] They cannot have a nuclear weapon.
+- [35:30.550] He can't have a nuclear weapon.
+- [35:33.360] We can't have anybody having nuclear weapons.
+- [35:35.510] We can't have nuclear weapons.
+- [35:37.980] And I think they're tapping us along because they were so used
+- [35:41.650] to dealing with stupid people in this country.
+- [35:44.560] And I had Iran perfect. You had no attacks.
+- [35:48.440] You would've never had October 7th in Israel,
+- [35:51.290] the attack by Hamas, because Iran was broke.
+- [35:55.110] It was stone-cold broke when I was president.
+- [35:57.640] And I want them to be a rich, great nation.
+- [36:00.290] The only thing is…
+- [36:01.580] One thing, simple. It's really simple.
+- [36:03.530] They can't have a nuclear weapon.
+- [36:05.800] And they've got to go fast
+- [36:08.540] because they're fairly close to having one,
+- [36:11.300] and they're not going to have one.
+- [36:13.800] And if we have to do something very harsh, we'll do it.
+- [36:16.870] And I'm not doing it for us. I'm doing it for the world.
+- [36:20.710] These are radicalized people,
+- [36:22.590] and they cannot have a nuclear weapon.
+- [36:24.540] The Press: Does that include an eventual strike
+- [36:26.340] on Iranian nuclear facilities?
+- [36:28.010] President Trump: Of course it does.
+- [36:29.230] The Press: And just a follow-up question, a clarification.
+- [36:31.930] You mentioned that you're open to deporting individuals
+- [36:35.330] that aren't foreign aliens, criminals to El Salvador.
+- [36:39.270] Does that include potentially US citizens,
+- [36:41.230] fully [inaudible]?
+- [36:42.920] President Trump: If they're criminals
+- [36:44.140] and if they hit people with baseball bats
+- [36:46.240] over their head that happen to be 90 years old,
+- [36:50.840] if they rape eighty-seven-year-old women
+- [36:54.020] in Coney Island, Brooklyn, yeah. Yeah, that includes them.
+- [36:58.070] Do you think they're a special category of person?
+- [37:00.820] They're as bad as anybody that comes in.
+- [37:02.630] We have bad ones too. And I'm all for it,
+- [37:06.880] because we can do things with the president
+- [37:10.790] for less money and have great security.
+- [37:14.770] And we have a huge prison population.
+- [37:16.830] We have a huge number of prisons.
+- [37:18.750] And then we have the private prisons.
+- [37:20.310] And some are operated well, I guess, and some aren't.
+- [37:23.670] But he does a great job with that.
+- [37:27.020] We have others that we're negotiating with too.
+- [37:29.650] But no, if it's a homegrown criminal, I have no problem.
+- [37:36.040] Now, we're studying the laws right now.
+- [37:39.020] Pam is studying. If we can do that, that's good.
+- [37:41.640] And I'm talking about violent people.
+- [37:43.050] I'm talking about really bad people, really bad people.
+- [37:46.190] Every bit as bad as the ones coming in.
+- [37:48.940] And I made the statement when I heard about this
+- [37:52.220] a long time ago now, four years ago,
+- [37:55.130] when I heard that this guy was having open borders,
+- [37:58.520] I said, "Every single criminal from all over the world
+- [38:01.810] is going to be dumped into our country."
+- [38:03.620] And that's what happened.
+- [38:05.820] The jails of the Congo were emptied out.
+- [38:08.890] The jails of Venezuela were emptied out.
+- [38:11.510] And you know what happened? Their crime went way down.
+- [38:14.370] But now Venezuela has other problems.
+- [38:16.720] You know what the problem is?
+- [38:18.020] They have no money because I shut off their oil
+- [38:22.190] and we put secondary tariffs
+- [38:24.010] because they're not doing what's right over there.
+- [38:27.770] They know what to do. We spoke to them.
+- [38:29.680] I spoke to them. They know what to do.
+- [38:32.340] But they have no money. Venezuela has no money.
+- [38:35.090] But Iran had no money, and Iran behaved so beautifully.
+- [38:40.810] And then Biden took all those secondary tariffs on.
+- [38:44.810] I told China, "You can't buy oil.
+- [38:46.660] If you buy oil from Iran…" China.
+- [38:50.600] I told it to President Xi…
+- [38:52.810] "then we no longer want you to do business
+- [38:54.760] with the United States of America."
+- [38:56.600] And those ships disappeared from that harbor so quickly.
+- [39:00.110] China. Get along great with China.
+- [39:02.870] The Press: Are the talks with Iran productive?
+- [39:04.230] Do you want to continue that?
+- [39:05.470] President Trump: What?
+- [39:06.680] The Press: The talks with Iran,
+- [39:07.900] do you believe those are productive?
+- [39:09.560] Do you want to continue that?
+- [39:11.140] President Trump: I think Iran could be a great country
+- [39:13.650] as long as it doesn't have nuclear weapons.
+- [39:15.570] If they have nuclear weapons,
+- [39:16.790] they'll never get a chance to be a great country.
+- [39:18.980] They will never get a chance. It won't even come close.
+- [39:20.900] The Press: Sir, on tariffs.
+- [39:22.120] President Trump: Yeah. Please.
+- [39:23.340] The Press: Yeah. Thank you.
+- [39:24.580] Yesterday, you mentioned short-lived product exemptions.
+- [39:27.980] Which specific products are you considering
+- [39:30.460] and how long is short-lived? Weeks, months?
+- [39:32.230] President Trump: I'm looking at something to help
+- [39:33.510] some of the car companies where they're switching to parts
+- [39:37.820] that were made in Canada, Mexico, and other places.
+- [39:40.830] And they need a little bit of time
+- [39:43.410] because they're going to make them here,
+- [39:45.410] but they need a little bit of time.
+- [39:46.680] So I'm talking about things like that.
+- [39:48.520] The Press: What about any Apple products, other cell phones?
+- [39:52.540] President Trump: Look, I'm a very flexible person.
+- [39:54.600] I don't change my mind, but I'm flexible.
+- [39:57.110] And you have to be. You just can't have a wall.
+- [40:00.890] No, sometimes you have to go around it, under it or above it.
+- [40:05.480] There'll be maybe things coming up. I speak to Tim Cook.
+- [40:08.530] I helped Tim Cook recently, that whole business.
+- [40:13.220] I don't want to hurt anybody, but the end result is,
+- [40:15.730] we're going to get to the position of greatness
+- [40:18.430] for our country.
+- [40:19.650] We're the greatest economic power
+- [40:22.030] in the world if we're smart.
+- [40:24.180] If we're not smart, we're going to hurt our country very badly.
+- [40:28.460] We lost, with China, over the Biden years,
+- [40:32.500] trillions of dollars on trade, trillions of dollars.
+- [40:37.550] He let them fleece us. And we can't do that anymore.
+- [40:41.380] And you know what? I don't blame China at all.
+- [40:43.430] I don't blame President Xi. I like him. He likes me.
+- [40:46.090] I mean, who knows? Who the hell cares?
+- [40:48.950] The Press: Do you have any updates on talks with China?
+- [40:50.480] President Trump: What?
+- [40:51.770] The Press: Do you have any updates with talks with China?
+- [40:54.090] President Trump: No. Let me just tell you this.
+- [40:55.690] I don't blame China. I don't blame Vietnam.
+- [40:58.720] I see their meeting today.
+- [41:00.250] Isn't that wonderful? That's a lovely meeting.
+- [41:03.010] The meeting trying to figure out,
+- [41:05.040] "How do we screw the United States of America?"
+- [41:07.660] Don't forget, the European Union was formed to do just that.
+- [41:10.880] The European Union was formed to hurt the United States on trade,
+- [41:16.830] and they get us on NATO because they don't pay their bills.
+- [41:18.980] But now, since I got involved,
+- [41:20.370] they have been paying their bills.
+- [41:21.880] I took in over $600 billion for NATO.
+- [41:28.850] Nobody took in anything.
+- [41:30.070] I mean, they were all delinquent.
+- [41:33.020] Eight nations out of 28 paid their bills.
+- [41:35.890] The rest of them were way delinquent.
+- [41:37.750] And I said, "If you don't pay your bills,
+- [41:39.350] we're not going to protect you anymore."
+- [41:40.830] And the money poured in.
+- [41:42.670] The Secretary General last week made that statement.
+- [41:44.590] He said, "I've never seen anything like it.
+- [41:46.160] We couldn't get anybody to pay,"
+- [41:48.500] because the United States was footing the bill for NATO.
+- [41:51.030] Well, we got hurt there
+- [41:53.560] and we got hurt on trade likewise, European Union.
+- [41:57.580] And they've got to come to the table,
+- [41:59.680] and they're trying to, they're trying to.
+- [42:02.760] But the European Union is taking terrible advantage.
+- [42:05.330] They don't take our food products.
+- [42:07.280] They don't take our cars. We have millions of their cars.
+- [42:11.960] BMW, Volkswagen, Mercedes-Benz, many others.
+- [42:16.880] They come in by the millions.
+- [42:18.930] There were no Chevrolets in Munich, I can tell you that.
+- [42:22.630] I said to Angela Merkel when she was there
+- [42:25.900] as she was letting millions of people infiltrate Germany,
+- [42:28.900] which was not so good from…
+- [42:30.850] We would call them illegal immigrants,
+- [42:33.600] but she made them legal. But I said to her…
+- [42:36.290] And I get along with her very well.
+- [42:37.650] I said, "How many Chevrolets do we have in Munich or Frankfurt?"
+- [42:43.880] "None, Donald. None." I said, "You're right."
+- [42:47.890] And yet we take in millions and millions of cars.
+- [42:50.490] No, those days are over.
+- [42:53.970] Okay. Thank you very much everybody.

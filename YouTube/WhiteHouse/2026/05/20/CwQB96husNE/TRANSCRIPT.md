@@ -1,0 +1,264 @@
+<!-- source: https://www.youtube.com/watch?v=CwQB96husNE -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: CwQB96husNE -->
+<!-- date_published: 2026-05-20T19:27:20+00:00 -->
+<!-- date_accessed: 2026-06-02T00:59:14.283720+00:00 -->
+
+# Transcript: President Trump Gaggles with Press Upon Arrival at Joint Base Andrews, May 20, 2026
+
+- [00:03.040] So I was just watching we have big news
+- [00:04.960] on Cuba as you know with the indictment
+- [00:07.839] of Castro. So there's they've a lot of
+- [00:11.599] people have suffered very big very very
+- [00:14.880] uh at levels that few people would
+- [00:16.800] understand and I think the Cuban
+- [00:19.279] population of Miami and certainly beyond
+- [00:21.760] Miami people that came there that were
+- [00:24.080] decimated whose families were ruined
+- [00:26.720] appreciate what the attorney general
+- [00:29.840] just did today and was just doing now
+- [00:32.800] he's just watching it. So, uh, we have
+- [00:36.079] Cuba on our mind. Very important. It's
+- [00:39.280] been a lot of problem for a lot of years
+- [00:41.520] and, uh, this was a big, I think it was
+- [00:43.920] a very big moment for people that not
+- [00:46.239] only Cuban Americans, but, uh, people
+- [00:48.960] that came from Cuba, that want to go
+- [00:50.559] back to Cuba, keep people that want to
+- [00:52.640] see their family in Cuba. I think this
+- [00:55.039] is a very big day, very important day.
+- [00:57.680] They supported me to the nth degree.
+- [00:59.840] They supported me at levels that
+- [01:01.760] nobody's ever seen before. And so I
+- [01:04.320] think it's a very important moment.
+- [01:06.080] >> Mr. Mr. President,
+- [01:08.159] >> say it.
+- [01:08.960] >> Next for Cuba,
+- [01:10.720] >> but we're going to see. It's a failing
+- [01:12.080] nation. You see that it's falling apart.
+- [01:14.000] They have no oil. They have no It's a
+- [01:16.880] failing nation. So I just can't tell you
+- [01:18.560] that. But uh we're there to help. We're
+- [01:21.360] there to help the families, the people.
+- [01:23.520] And again, a lot of those people are
+- [01:25.040] related to me in the sense that I've had
+- [01:27.520] such a great relationship with
+- [01:29.040] Cubanameans.
+- [01:30.640] They supported me at a 94% level. That's
+- [01:33.360] a pretty good level. And uh
+- [01:37.040] they're you know their their relatives
+- [01:38.720] are there. So we we got a on a
+- [01:41.520] humanitarian basis. We're there to help
+- [01:44.720] was there last week. Can you talk about
+- [01:46.799] that at all?
+- [01:47.520] >> Well, we have a lot of people there. We
+- [01:48.880] had the CIA there. We have Marco is
+- [01:51.920] there. Marco's parents as you know were
+- [01:53.680] from Cuba. So we have a lot of expertise
+- [01:56.720] in Cuba. And it's not going to be like
+- [01:59.840] the biggest thing we've ever done, but I
+- [02:01.600] will tell you to a lot of people it's
+- [02:03.040] going to be one of the most important.
+- [02:05.040] They've been looking for this moment for
+- [02:06.719] 65 years. So, we'll see what happens.
+- [02:09.759] But, uh, we're going to in the meantime,
+- [02:12.080] we're going to have to help them out.
+- [02:13.440] They have no no way of living. They have
+- [02:16.480] no food. They have no electricity. They
+- [02:19.280] have no energy at all. But they do have
+- [02:22.560] great people. There are a lot of great
+- [02:24.000] people. I mean, I I have so many Cuban
+- [02:26.319] friends in Miami, mostly in Miami and
+- [02:28.400] Florida, and they're unbelievable
+- [02:30.800] people. They're unbelievable
+- [02:32.160] entrepreneurs, and they'd like to go
+- [02:34.640] back. I think they hopefully they're
+- [02:36.400] going to want to live here, but they
+- [02:38.000] want to go back. Maybe they'll invest.
+- [02:39.680] We'll see what happens. But, uh, we're
+- [02:41.760] freeing up Cuba.
+- [02:42.800] >> Is the president,
+- [02:44.319] >> how much longer you anticipate the
+- [02:46.640] embargo
+- [02:48.239] having to be in place on Cuba?
+- [02:50.480] >> We'll see. We'll be announcing it pretty
+- [02:52.239] soon. questions on the table here, Mr.
+- [02:54.640] President. Should we expect any
+- [02:56.239] escalation here or should they expect
+- [02:58.640] >> Cuba?
+- [02:59.200] >> Yes.
+- [02:59.680] >> Uh, no. No, you won't. There won't be
+- [03:02.640] escalation. I don't think there needs to
+- [03:04.879] be. Look, the place is falling apart.
+- [03:07.920] It's a mess. And uh they've sort of lost
+- [03:11.840] control. They've really lost control of
+- [03:14.239] Cuba.
+- [03:20.000] >> I don't want to say that.
+- [03:22.319] Gavin Newsome is on Capitol Hill today.
+- [03:24.319] He said that he doesn't think Jan has
+- [03:26.720] what it takes to come after you. What's
+- [03:28.879] your response to that?
+- [03:29.680] >> Who said that?
+- [03:30.319] >> Gavin Newsome.
+- [03:33.280] >> He said doesn't have what?
+- [03:34.879] >> He says that Trump, the era of Trump
+- [03:37.200] ends with you and that JD Vance doesn't
+- [03:39.280] have what it takes to come after you.
+- [03:42.319] >> Well, look, uh, we've done a lot and JD
+- [03:44.640] is very talented. He's a smart guy. He's
+- [03:46.720] He'll do very well if it's if it's JD.
+- [03:49.280] We have a lot of very talented people.
+- [03:51.599] Uh, so I think hopefully we're going to
+- [03:54.799] leave something that's going to be real
+- [03:56.239] easy to run. We're doing we're doing a
+- [03:58.799] lot. We're doing a lot and JD is a very
+- [04:01.599] talented guy.
+- [04:04.080] >> To respond after you said yesterday
+- [04:06.159] you're about an hour away from making a
+- [04:07.599] decision. Where does that stand today?
+- [04:09.439] Have you heard anything from them?
+- [04:11.280] >> Very
+- [04:12.879] uh it's right on the borderline. Believe
+- [04:14.799] me, if we don't get the right answers,
+- [04:16.880] it goes very quickly. We're all ready to
+- [04:18.560] go. uh we have to get the right answers.
+- [04:20.880] It would have to be a complete 100% good
+- [04:23.919] answers. And if we do, we save a lot of
+- [04:27.600] time, energy, and lives. Most
+- [04:29.520] importantly,
+- [04:30.080] >> how long will you wait?
+- [04:32.560] >> Could go very quickly or a few days. It
+- [04:35.840] could be a few days, but it could go
+- [04:37.600] very quickly. Iran is a defeated nation.
+- [04:41.840] We're dealing with some people and we're
+- [04:43.280] dealing actually, I must tell you, we're
+- [04:44.880] dealing with some very good people.
+- [04:46.960] We're dealing with people that are, I
+- [04:48.479] think, far more reasonable than the
+- [04:50.479] people that are really no longer with
+- [04:52.400] us. We're dealing with some people with
+- [04:54.560] talent, with uh good brain power
+- [04:58.800] and we're pretty impressed by it. So
+- [05:00.720] hopefully those people will make a deal
+- [05:02.400] that's going to be great for everybody.
+- [05:04.080] >> Are you getting tired?
+- [05:05.280] >> But I I don't know. I don't know. I
+- [05:07.360] don't do I get what I never
+- [05:09.919] >> I never get tired.
+- [05:11.600] >> But what I like to do if I if I can save
+- [05:13.759] war by waiting a couple of days or if I
+- [05:16.800] can save people being killed by waiting
+- [05:19.199] a couple of days, I think it's a great
+- [05:21.759] thing to do.
+- [05:33.360] >> Uh I'll have a message at a later date.
+- [05:36.800] Okay.
+- [05:38.320] >> On Iran, did the US offer Iran oil
+- [05:43.120] relief during the peace talks as Iranian
+- [05:46.000] TV has reported?
+- [05:47.680] >> No, I heard I haven't heard that. No,
+- [05:49.840] I'm not doing any relief until they sign
+- [05:52.240] an agreement. When they sign an
+- [05:53.600] agreement, uh, we can get that place
+- [05:56.639] built up again and have something that's
+- [05:59.199] really a good country for the people.
+- [06:00.880] But no, we haven't offered anything.
+- [06:03.280] people
+- [06:05.360] who are scared by the the rise of AI.
+- [06:07.680] They're worried that their kids are not
+- [06:09.039] going to be able to have jobs someday
+- [06:10.400] because AI will
+- [06:11.360] >> I tell you AI has been amazing because
+- [06:13.120] right now we have more jobs, more people
+- [06:15.120] working right now in the United States
+- [06:17.600] by far than we ever had before. And
+- [06:20.160] outside of the war and I assumed the
+- [06:22.800] economy was going to go down, the stock
+- [06:24.639] market would go down 20 25%. It's
+- [06:27.600] actually up. The stock market is higher
+- [06:29.919] now than it was before I started the
+- [06:31.680] Iran situation. And on the Iran, I had
+- [06:34.479] no choice because they were going to
+- [06:35.600] have a nuclear weapon. We're not going
+- [06:36.800] to give them a nuclear weapon. But
+- [06:38.639] that's going to end soon one way or the
+- [06:40.400] other. Uh oil is going to come tumbling
+- [06:43.120] down. There's so much oil. We have 1,600
+- [06:45.440] ships in the straight that are loaded up
+- [06:48.400] with oil that are going to be coming out
+- [06:50.400] very soon. So, uh we'll have to see. But
+- [06:54.720] the military has been unbelievable. The
+- [06:56.639] blockade has been infallible. Not one
+- [06:59.840] ship has gotten through the blockade. 37
+- [07:03.360] have tried. Uh they all wish they
+- [07:05.759] didn't.
+- [07:06.319] >> Can you tell us about your call with
+- [07:07.440] Erdogan?
+- [07:08.720] >> Yeah, I had a very good call with
+- [07:10.720] President Erdogan and uh
+- [07:14.400] pretty standard. We have a very good
+- [07:16.639] relationship. Isn't it nice that I have
+- [07:18.800] relationships with some very tough
+- [07:20.880] people? He's a tough guy and uh but I
+- [07:24.160] have a relationship with him that nobody
+- [07:25.840] else does. He's he's actually done a
+- [07:28.080] good job. He's been, you know, I think
+- [07:30.639] very much of an ally. Some people would
+- [07:32.319] doubt that, but I think he's been a
+- [07:34.160] great ally and his people respect him.
+- [07:37.039] His people respect him a lot.
+- [07:39.759] >> Responsibility people that are critical
+- [07:41.680] of your your um settlement over your IRS
+- [07:45.039] case about the tax now that you can't be
+- [07:46.880] prosecuted for tax.
+- [07:47.680] >> Yeah. Well, what happened is uh I was
+- [07:49.360] suing IRS for a lot of different
+- [07:51.680] reasons. One of the reasons is they
+- [07:53.440] released my tax returns, which they're
+- [07:55.039] not allowed to do. Now, they showed I
+- [07:57.120] pay a lot of tax. I may even release my
+- [07:59.680] current returns because they show I pay
+- [08:01.280] a lot of money, but they're not supposed
+- [08:03.360] to do that. They were in lock boxes as
+- [08:05.280] president. They were and they released
+- [08:07.280] them and a certain firm released them,
+- [08:10.720] which was, I guess, a private firm, but
+- [08:12.479] it released them to a lot of the fake
+- [08:15.360] news. and the fake news went and you're
+- [08:17.680] just not allowed to do that. And many
+- [08:19.680] other things happened. So, I released
+- [08:22.560] them from the lawsuit and I guess they
+- [08:24.319] made a settlement of some kind. I wasn't
+- [08:26.639] involved in the settlement. Uh I could
+- [08:29.039] have been involved, but I didn't choose
+- [08:30.400] to be. Uh so, they made a settlement.
+- [08:32.719] Also, the anti-weaponization
+- [08:35.680] uh of people. I mean, people were
+- [08:37.120] destroyed. They went to jail. They their
+- [08:39.519] families were ruined. They committed
+- [08:41.120] suicide. You know, all the Biden
+- [08:43.279] administration and the Obama
+- [08:44.880] administration, both of them, I mean,
+- [08:47.440] the Obama administration started it. The
+- [08:49.839] Biden administration was uh horrible in
+- [08:52.640] terms of what they've done to people is
+- [08:54.640] incredible. And we're getting we're
+- [08:56.959] reimbursing those pe people for their
+- [08:59.120] legal fees and for their costs and for
+- [09:01.920] anybody involved. But they destroyed
+- [09:04.000] people. People committing I read the
+- [09:05.920] other day a person committed suicide
+- [09:08.240] over it. They went, you know, it was the
+- [09:11.440] most violent thing I've ever seen in
+- [09:13.920] politics what they did. And yet, if I
+- [09:16.240] say, "Oh, let's look at this one or that
+- [09:17.920] one." They say, "Weaponization,
+- [09:19.440] weaponization." What they did in terms
+- [09:22.160] of weaponization will never be allowed
+- [09:24.560] to happen in this country again. So, we
+- [09:27.120] think that those people, we think that
+- [09:28.720] anybody involved in that process should
+- [09:31.360] partake. And you're talking about
+- [09:33.200] peanuts compared to the value. It
+- [09:35.440] destroyed the lives of many many people.
+- [09:38.880] Thank you very much everybody.

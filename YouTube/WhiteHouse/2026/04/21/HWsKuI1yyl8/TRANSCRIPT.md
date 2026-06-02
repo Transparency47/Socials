@@ -1,0 +1,379 @@
+<!-- source: https://www.youtube.com/watch?v=HWsKuI1yyl8 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: HWsKuI1yyl8 -->
+<!-- date_published: 2026-04-21T21:18:38+00:00 -->
+<!-- date_accessed: 2026-06-02T02:34:59.279032+00:00 -->
+
+# Transcript: President Trump Delivers Remarks to NCAA Collegiate National Champions
+
+- [00:09.520] Announcer: Ladies and gentlemen,
+- [00:10.800] the President of the United States,
+- [00:12.510] Donald J. Trump.
+- [00:15.200] ♪ (Hail to the Chief) ♪
+- [00:37.970] The President: Thank you very much,
+- [00:39.800] some great looking athletes.
+- [00:42.280] I can tell you, it was great to meet you before.
+- [00:45.140] I hope you all got your medal.
+- [00:46.480] Did anybody not get the medal? No? Because I want to make sure.
+- [00:51.020] I don't want to have anybody leave unhappy.
+- [00:53.520] Please sit down.
+- [00:56.560] And no place like this, right, the White House?
+- [00:58.340] Coach, what do you think?
+- [00:59.550] Pretty good, right?
+- [01:00.810] I meet all these golfers over here.
+- [01:02.240] I said, what are your handicaps, plus four.
+- [01:04.200] I say, plus four, plus five, even.
+- [01:07.180] It's -- that's good stuff.
+- [01:09.370] He actually said higher than that.
+- [01:10.600] I said, you got to be kidding me, right?
+- [01:12.520] That's great. Congratulations. Great team.
+- [01:14.830] I heard about the team. And I heard about all the teams.
+- [01:17.570] This afternoon, we're joined by not one, not two,
+- [01:22.030] but seven collegiate championship winning teams
+- [01:24.440] from all across the country, champions every one of them.
+- [01:28.850] And these are student athletes
+- [01:31.010] that have demonstrated remarkable talent and discipline
+- [01:34.600] and were born a little bit lucky with talent
+- [01:36.900] because I'm not sure, coach, I'm not sure.
+- [01:38.710] I look at all these great coaches that have these records,
+- [01:40.880] 40 and one, 37 and two, pretty good records,
+- [01:45.160] but we're talking --
+- [01:47.190] I guess you probably have to have
+- [01:48.490] a little something something very special
+- [01:51.630] because what you are and what you do is very special.
+- [01:54.090] To the winners here today, welcome to the White House,
+- [01:57.090] a very, very incredible place.
+- [02:00.070] I pinch myself every time I walk through the White House.
+- [02:02.340] I say, this place is really something.
+- [02:05.430] And it's a great honor to have you
+- [02:06.690] because you're very Amazing people.
+- [02:08.790] Among those joining us this afternoon
+- [02:11.280] are the 2025 Division one Men's Golf champions.
+- [02:16.250] Why don't you stand up when I introduce you for a second?
+- [02:18.560] You get all the fake news back there.
+- [02:19.970] So, you know, you never --
+- [02:22.140] they'll treat you better than they treat me.
+- [02:26.500] They're going to treat you better than they treat me
+- [02:29.590] and that's Oklahoma State Cowboys.
+- [02:31.910] And I just said that I won Oklahoma, 77 out of 77 counties.
+- [02:36.410] Second was Ronald Reagan, so I'm very proud of that.
+- [02:39.140] It's -- somehow, they like me in Oklahoma.
+- [02:41.190] I don't know what that is. Sit down. Coach, great job.
+- [02:44.650] The incredible team showcased consistency,
+- [02:47.770] grit and precision all season long,
+- [02:49.980] led by head coach Alan Bratton. Alan, unbelievable.
+- [02:54.770] The Cowboys dominated throughout the spring,
+- [02:56.860] capturing multiple victories
+- [02:58.430] before securing their 12th national title.
+- [03:01.460] Amazing. They have made Oklahoma State very proud
+- [03:04.320] and it's a great school and it's a great --
+- [03:06.420] great sports school too,
+- [03:07.830] with some unbelievable champions and teams.
+- [03:10.020] And you're right at the top. Congratulations. It's great.
+- [03:13.320] I'll have to play golf with you guys some --
+- [03:15.520] I'm going to try giving you a match.
+- [03:16.850] I think it's going to be tough.
+- [03:18.050] This one, I don't -- this is a match
+- [03:19.790] I'm not looking forward to.
+- [03:21.630] And anytime you're around you let us know, OK?
+- [03:23.630] We'll let you go over to the place I told you about,
+- [03:26.050] a special place on the Potomac River.
+- [03:27.960] OK? Joining us as well are the 2025 NCAA women's volleyball
+- [03:33.080] Champions, the Texas A&M Aggies. Thank you.
+- [03:38.550] Good. Stand up.
+- [03:43.250] I watch -- when I watch television,
+- [03:45.320] I watch the level of talent.
+- [03:46.930] It's actually incredible and you're the best of the best,
+- [03:49.200] so that's an amazing thing. And from the opening serve
+- [03:53.170] to the final point of the national championship,
+- [03:55.760] the Aggies played with heart and determination.
+- [03:59.000] Everybody here played with heart and determination, really.
+- [04:02.390] They dominated the tournament,
+- [04:03.740] sweeping top seated Kentucky to claim --
+- [04:06.060] why were they top seated? What's going on?
+- [04:08.400] What's going on? I don't like that.
+- [04:11.460] To claim the program's first ever national title,
+- [04:15.310] Kyndal Stowers was an offensive powerhouse.
+- [04:18.420] Where's Kyndal? Where -- are you a powerhouse?
+- [04:22.330] Yes, I can tell you, you are indeed,
+- [04:26.370] a real powerhouse and champion.
+- [04:28.010] And senior opposite hitter
+- [04:30.920] Logan Lednicky delivered 11 kills against Kentucky.
+- [04:35.770] Where's Logan? Congratulations. So how tall are you, Logan?
+- [04:40.070] Logan Lednicky: Six three.
+- [04:41.370] The President: Wow. That's pretty good.
+- [04:43.370] Let me tell you.
+- [04:44.810] But I want to congratulate, what great athletes.
+- [04:46.980] Thank you very much. Great athletes. Please.
+- [04:50.350] Also in the winner's circle,
+- [04:52.030] we have the 2025 NCAA men's tennis champions,
+- [04:56.680] the Wake Forest Demon Deacons,
+- [04:59.560] and Arnold Palmer was a great friend of mine
+- [05:01.640] in a slightly different sport.
+- [05:06.180] How's your golf team doing?
+- [05:08.670] I don't know. They've done -- pretty good, right?
+- [05:11.060] They're pretty good too.
+- [05:12.860] But they battled through the fierce postseason
+- [05:15.790] to claim their second national title.
+- [05:17.700] DK Suresh delivered the clinching point
+- [05:21.740] to seal a four-two victory over TCU in the final
+- [05:24.860] and I want to congratulate you.
+- [05:26.370] And I see you right there.
+- [05:28.420] I said, who's the best player in the team,
+- [05:29.920] and they all pointed to him, right?
+- [05:32.150] So congratulations and that's really incredible, DK,
+- [05:35.410] what you've done. You had a great year.
+- [05:37.070] You all had a great year. Thank you very much.
+- [05:39.490] Good. You know, Arnold Palmer was a great friend of mine.
+- [05:43.220] I got to know him toward the end of his life.
+- [05:45.020] He was an unbelievable champion. Went to that school, right?
+- [05:49.100] He went to that special school and he used to love it.
+- [05:52.670] And it's known for that. It's it really was something.
+- [05:56.590] I've been there. Up next are the 2025 NCAA
+- [06:00.730] Women's Tennis champions, the Georgia Bulldogs,
+- [06:04.170] who just captured their third national titles.
+- [06:06.960] Stand up, please. Great.
+- [06:12.140] Sofia Rojas sealed this team's incredible victory,
+- [06:16.050] losing a first set before roaring back
+- [06:18.400] to dominate the next two and clinch
+- [06:20.960] Georgia's sweep over the team from Texas A&M.
+- [06:24.160] And all I can say is, Go Bulldogs. It's a great state.
+- [06:27.160] I love that state, did very well there too in the election.
+- [06:30.770] You know, I only like the states that I win.
+- [06:32.410] So it's one of those. But thank you very much.
+- [06:35.560] Congratulations. That's really fantastic.
+- [06:38.370] What a great job. That's not easy.
+- [06:39.910] Winning in tennis, that's a -- that's a tough thing to do.
+- [06:42.680] I played tennis a little bit, not quite at that level,
+- [06:45.550] not quite, but that's a great thing.
+- [06:47.490] Congratulations. Thank you very much for being here.
+- [06:49.760] Unidentified: Thank you.
+- [06:51.000] The President: Thank you.
+- [06:52.780] Also with us are the 2025 National Collegiate
+- [06:56.100] Women's Bowling Champions.
+- [06:57.470] They gave me a beautiful jacket. The Youngstown State Penguins.
+- [07:01.690] You know, the jackets been gone over -- where are you?
+- [07:06.560] The jackets been X-rayed gone over by Secret Service
+- [07:09.680] at a level that doesn't look the same.
+- [07:11.360] It just doesn't.
+- [07:12.600] They've gone over it to levels that you wouldn't believe.
+- [07:16.460] But I want to thank you very much because it's beautiful.
+- [07:18.430] The team rolled their way into history
+- [07:20.860] with the program's first ever national title.
+- [07:23.170] Wow. Senior Madyson Marx. Where's Madison?
+- [07:27.210] Congratulations. That's incredible.
+- [07:29.740] Was unstoppable in the finals and was named the first team
+- [07:33.230] All-American.
+- [07:34.430] And that's a big thing to be named first team
+- [07:36.070] All-American.
+- [07:37.290] So what would you average in Bowling, Madyson?
+- [07:40.360] Madyson Marx: I ended my college career at like a 208 average.
+- [07:43.900] The President: 208, that's fantastic.
+- [07:45.360] Man, that's great. So congratulations.
+- [07:48.140] It's not easy, bowling. I've tried it.
+- [07:49.730] It doesn't work too well for me.
+- [07:51.780] It's very difficult. Actually, it's very difficult.
+- [07:54.640] And it's supposed to be one of the best teams in many years
+- [07:57.120] beyond everything else. So thank you very much.
+- [07:58.920] Congratulations for being here at the White House.
+- [08:02.030] Thank you.
+- [08:05.190] And we're also proud to recognize the 2025 NCAA
+- [08:08.550] Women's soccer champions, the Florida State Seminoles.
+- [08:12.430] They just clinched their fifth national title
+- [08:14.810] and back to back championships for the second time
+- [08:17.230] in the program history.
+- [08:18.770] That's amazing. Sophomore midfielder
+- [08:21.660] Peyton McGovern had an impressive season.
+- [08:24.480] Where's Peyton? Peyton? Where are you, Peyton?
+- [08:27.300] That's great, huh? Are you that good?
+- [08:29.870] Are you going to turn pro?
+- [08:32.070] I think so. I think you will. I have a feeling.
+- [08:35.050] Finding yourself in the starting lineup for 18 games,
+- [08:37.980] was ultimately named the 2025 all-tournament team.
+- [08:42.340] And senior defender Claire Rain earned her second national title
+- [08:46.670] playing with FSU.
+- [08:48.390] And congratulations to all of you.
+- [08:50.190] Congratulations. It's a fantastic job.
+- [08:52.650] Thank you very much, really amazing.
+- [08:57.190] It's a great, great school.
+- [08:59.210] Finally, we have the 2025 National Collegiate Mixed Rifle
+- [09:02.590] Champions, the West Virginia Mountaineers, 51 points.
+- [09:10.400] Susie, we dominated West Virginia,
+- [09:12.880] maybe even more than you dominated
+- [09:14.620] the rifle world, coach.
+- [09:15.950] I don't know. But we -- uh, I love that state.
+- [09:19.080] That state is the greatest.
+- [09:20.440] It's such an incredible group of people.
+- [09:23.290] And think of it, for their 20th national shooting title
+- [09:25.910] and the coach was there for all of them or most of them,
+- [09:28.420] all of them? Just about all of them.
+- [09:31.170] Uh, that's amazing and I just want to congratulate you.
+- [09:34.520] West Virginia's a great -- it's a great place.
+- [09:37.150] It's a great state. So many friends there.
+- [09:38.880] We we've been there a lot. You know, when you win it
+- [09:41.690] by 45 points or something like that,
+- [09:44.460] maybe more, you like to sort of say, I love that state.
+- [09:49.010] And they like me, I guess. I can't imagine why.
+- [09:51.900] But for you to win, that's -- I know how difficult it is
+- [09:54.310] so congratulations to all, very much.
+- [09:59.230] This was the school's record as the number
+- [10:01.810] one most winning program in collegiate rifle history.
+- [10:05.040] So you have the number one school in rifle history,
+- [10:07.560] congratulations.
+- [10:08.760] It's an amazing -- amazing accomplishment.
+- [10:11.870] So college sports are among
+- [10:13.200] America's most cherished institutions,
+- [10:15.710] a tradition where lessons learned
+- [10:17.640] on the playing field shape the character of winners.
+- [10:20.150] And you are winners.
+- [10:21.430] You wouldn't be here if you weren't.
+- [10:23.400] The athletes here today represent
+- [10:25.150] the very best of that grit and determination and teamwork.
+- [10:28.950] That's why, under my administration,
+- [10:31.040] we're fighting hard to save college sports.
+- [10:35.210] What's happening is crazy. It's crazy.
+- [10:40.730] And what we want to do
+- [10:41.970] is help athletes like all of you in this room.
+- [10:44.880] And as soon as I took office, I ended a terrible injustice
+- [10:48.610] and banned men from competing in women's sports.
+- [10:52.000] I don't know if anybody agrees. Does anybody agree with that,
+- [10:55.000] that men should be able to play in women's sports?
+- [10:57.910] Would you like to raise your hand?
+- [11:00.380] Don't feel -- don't -- well, so far,
+- [11:02.070] I have never found anybody.
+- [11:03.300] But they say it's an 80/20 issue,
+- [11:06.020] but I've never been able to find anybody,
+- [11:07.770] so I think it's a 99 to one.
+- [11:10.350] Maybe it's a little bit more than that, coach, right?
+- [11:12.390] Maybe it's 100 to nothing.
+- [11:15.260] I campaigned on that one all the time.
+- [11:17.000] I'd say, there will be no men and women sports
+- [11:19.690] and people would go crazy
+- [11:21.550] but but I mean, but you're politically correct, so.
+- [11:25.220] Earlier this month, I signed an executive order to implement
+- [11:28.910] a number of key reforms protecting programs like yours,
+- [11:32.150] which don't always get the top headlines,
+- [11:34.290] but are crucial to strengthening years
+- [11:37.470] and years of education and sports
+- [11:40.200] and the ability to compete
+- [11:42.240] and to win, which we need very much.
+- [11:44.400] We now have,
+- [11:45.640] thanks to a wonderful decision in the Supreme Court,
+- [11:48.160] we're a country that's, again, based on merit.
+- [11:50.650] In other words, if you're the best shooter,
+- [11:52.330] you're the best shooter.
+- [11:53.540] If you're the best golfer, you're the best golfer.
+- [11:55.750] And all of these things are very important.
+- [11:58.470] To stop the pay for play schemes
+- [12:00.890] that only benefit the largest programs,
+- [12:03.470] we will only allow one no penalty
+- [12:06.030] transfer through the transfer portal.
+- [12:09.700] I think most of the people here know what that means.
+- [12:13.080] Uh, where you had some people going to three,
+- [12:14.590] four different --
+- [12:15.820] it's like they became like monopoly players.
+- [12:19.250] And to ensure room for the new talent,
+- [12:22.900] we're also instituting
+- [12:24.390] a five-year eligibility cap for college players
+- [12:27.880] because students right out of high school
+- [12:29.500] should not have to compete against players
+- [12:31.360] that are 28 or 29 years old
+- [12:33.320] who decide they can make more money staying in college
+- [12:36.360] than they can by going into the professional leagues,
+- [12:39.650] which is pretty ridiculous.
+- [12:41.830] It's a very, very precarious position
+- [12:44.980] that the courts have left us in
+- [12:47.110] because we had great college sports.
+- [12:49.250] And the person, a judge decided,
+- [12:53.390] who was not a person that knew much about sports actually,
+- [12:56.680] I think knew nothing about sports,
+- [12:58.130] decided that the whole thing was unconstitutional.
+- [13:00.560] For over 100 years, they developed these programs,
+- [13:03.430] a lot of scholarships, a lot of great things happening,
+- [13:06.390] and now it's a total and complete mess,
+- [13:09.160] but we're going to get it fixed up
+- [13:10.560] and we've got some fantastic people doing it.
+- [13:14.200] So we need now Congress to act to clear up the confusion
+- [13:18.420] created by the courts and institute permanent reforms
+- [13:21.430] to protect college sports at every level,
+- [13:24.130] and especially some sports.
+- [13:26.170] And, frankly, you know, a lot of the emphasis is put on football,
+- [13:29.370] but football is now destroying the colleges
+- [13:32.880] economically because they're being paid so much
+- [13:35.750] that the colleges are losing so much money.
+- [13:37.800] It's not sustainable.
+- [13:39.580] So in recent weeks, the White House has convened
+- [13:42.040] many of the most respected sports figures
+- [13:44.770] and commissioners in the nation.
+- [13:46.250] We had all of them here,
+- [13:47.450] just about all of the top people,
+- [13:49.120] 64 of them, including Nick Saban,
+- [13:52.370] one of the greatest coaches ever;
+- [13:54.880] Randy Levine, the head of the New York Yankees;
+- [13:57.460] Bryson DeChambeau, a rather good golfer.
+- [13:59.240] (Inaudible)
+- [14:00.480] pretty good, coach. He'd make your team even, right?
+- [14:03.280] I don't know. That's a pretty good team.
+- [14:05.650] He will make your team.
+- [14:07.020] Tim Tebow, a wonderful guy; Charlie Ward, Adam Silver.
+- [14:11.340] This incredible group developed a strong set of recommendations,
+- [14:15.110] and my administration is committed
+- [14:16.640] to working with Congress to get them through.
+- [14:18.500] I signed an executive order
+- [14:19.900] instituting those recommendations,
+- [14:22.330] and it's going to clean it up a long way.
+- [14:24.010] It's going to take a long way.
+- [14:25.940] 75 percent of Olympians competing for team
+- [14:29.150] USA played as college athletes.
+- [14:31.010] If you don't -- if we don't straighten out this,
+- [14:33.310] we're not going to have much of an Olympic team
+- [14:34.930] because you have so many of these sports,
+- [14:36.730] especially certain sports,
+- [14:38.610] where it's like the minor leagues.
+- [14:41.510] You could call it the major leagues,
+- [14:42.790] you can call it whatever you want,
+- [14:44.090] but we train unbelievable athletes to go in
+- [14:46.610] and win the gold medal. And without college sports,
+- [14:48.970] without your ability to go into college sports and compete
+- [14:52.340] and learn really how to play and get better,
+- [14:54.720] we're not going to have much of an Olympic team anymore.
+- [14:57.410] Many of America's greatest
+- [14:58.700] CEOs and entrepreneurs learn discipline,
+- [15:01.070] courage and drive through playing sports in college.
+- [15:04.480] And I -- I loved sports.
+- [15:06.350] I mean, I was so helped in my life by sports.
+- [15:09.700] Saving this tradition is not only a matter
+- [15:11.840] of fairness and sportsmanship,
+- [15:13.370] it's a matter of national pride and national greatness, indeed.
+- [15:17.980] All of you have battled your way to the absolute top in sports,
+- [15:21.380] and now you have an administration
+- [15:23.450] that's fighting just as hard for you
+- [15:25.980] as you fight for our country,
+- [15:27.840] and you have fought for our country.
+- [15:29.810] So I want to congratulate you.
+- [15:31.210] You know, you're a group of real champions.
+- [15:32.990] I know what it is to win in sports and win in life.
+- [15:35.750] But to win in sports is I always say it's a microcosm of life.
+- [15:40.690] The beautiful thing, you know in two hours
+- [15:42.490] or you know in a season how you are.
+- [15:44.930] In life, sometimes you have to go a lot of years
+- [15:46.830] before you can figure it out.
+- [15:48.600] But I have to say, you are unbelievable champions.
+- [15:51.070] I admire and respect all of you
+- [15:52.820] and it's an honor to have you in the White House
+- [15:54.610] and you'll come back and who knows, someday you might --
+- [15:58.030] one of you or two of you or three of you,
+- [16:00.740] Susie, what do you think, might come back as me?
+- [16:04.000] You don't want that.
+- [16:05.330] I don't think you want that.
+- [16:07.000] I don't think -- it's not worth it.
+- [16:09.340] But it's an honor to have you here and congratulations.
+- [16:12.890] And here, we have some beautiful trophies, as you see.
+- [16:16.050] And we're going to be giving things out
+- [16:18.020] and we're going to be seeing maybe some of you later.
+- [16:19.990] You're going to hang around and enjoy the White House
+- [16:21.850] for a little bit and thank you very much for being here.
+- [16:24.190] Appreciate it. Thank you very much, everybody.
+- [16:27.740] (applause)
+- [16:33.020] ♪ (Orchestral "We are the Champions) ♪

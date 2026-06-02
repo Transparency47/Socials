@@ -1,0 +1,1059 @@
+<!-- source: https://www.youtube.com/watch?v=KBQJjxKbEMA -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: KBQJjxKbEMA -->
+<!-- date_published: 2025-08-12T17:51:27+00:00 -->
+<!-- date_accessed: 2026-06-02T02:45:58.213003+00:00 -->
+
+# Transcript: Press Secretary Karoline Leavitt Briefs Members of the Media, Aug. 12, 2025
+
+- [00:05.540] Karoline Leavitt: Good afternoon, everybody.
+- [00:06.750] The Press: Good afternoon.
+- [00:07.950] Karoline Leavitt: Good to see all of you here again today.
+- [00:10.620] On Friday morning, President Trump will travel
+- [00:13.230] across the country to Anchorage, Alaska for a bilateral meeting
+- [00:17.390] with Russian president Vladimir Putin.
+- [00:20.140] The brutal war between Russia and Ukraine
+- [00:22.840] broke out under Joe Biden’s incompetent leadership,
+- [00:26.030] but President Trump is determined to try
+- [00:28.480] and end this war and stop the killing.
+- [00:31.440] As the President has said over and over again,
+- [00:34.130] his strong preference
+- [00:35.340] will always be for peace and partnership
+- [00:38.230] whenever those outcomes can possibly be achieved.
+- [00:41.270] There is no leader in the world right now
+- [00:43.710] who has been more committed to preventing wars
+- [00:46.130] or ending them than President Donald Trump.
+- [00:49.180] Just look at what took place here
+- [00:50.550] at the White House last Friday
+- [00:52.340] when President Trump hosted the Azerbaijani President
+- [00:55.150] and Armenian Prime Minister
+- [00:56.820] and got the two leaders to sign a historic joint
+- [01:00.050] declaration for peace,
+- [01:01.670] ending a decades-long conflict that disrupted the region
+- [01:05.010] and claimed countless lives.
+- [01:07.280] In other news, we continue to see positive economic reports
+- [01:10.730] across the board.
+- [01:11.980] Today’s CPI report revealed that inflation beat market
+- [01:15.210] expectations once again and inflation remains stable.
+- [01:19.650] Overall, inflation has run at a 1.9 average annual pace
+- [01:24.880] in President Trump’s first six months in office.
+- [01:28.070] Prices for everyday goods continue to decline.
+- [01:31.390] Energy prices fell in July, including gasoline,
+- [01:34.680] which is down nearly 10 percent over last year, and propane,
+- [01:38.630] which is down 2.5 percent Percent over last year as well.
+- [01:42.520] Egg prices fell once again in July
+- [01:45.010] and are down 20 percent since President Trump took office.
+- [01:48.340] Shelter inflation, the largest contributor to overall inflation
+- [01:52.980] is at its lowest level since October of 2021.
+- [01:57.050] Wage growth for American workers is beating inflation once again.
+- [02:01.050] As inflation declines,
+- [02:02.530] this administration continues to be wholeheartedly committed
+- [02:05.690] to putting more money back into the American people’s pockets.
+- [02:08.860] American real wages are up 1.3 percent over last year
+- [02:13.060] and have increased each month
+- [02:14.370] since President Trump took office.
+- [02:16.570] And small business optimism,
+- [02:18.120] according to this morning’s report,
+- [02:19.840] has also reached a five-month high.
+- [02:22.440] Ignore the panicans and trust in President Trump.
+- [02:25.420] That is our motto here at the White House.
+- [02:27.420] The America First’s economic agenda is working.
+- [02:30.580] On another matter, yesterday,
+- [02:32.150] President Trump took bold action to finally restore law
+- [02:35.860] and order right here in our nation’s capital.
+- [02:38.670] The president declared a crime emergency
+- [02:41.010] in the District of Columbia,
+- [02:42.790] federalized the D.C. Police Department,
+- [02:45.260] and mobilized the D.C.
+- [02:46.630] National Guard to end violent crime in our nation’s capitol.
+- [02:51.030] As part of the president’s massive law enforcement surge,
+- [02:54.080] last night, approximately 850 officers
+- [02:57.750] and agents were surged across the city.
+- [03:00.390] They made a total of 23 arrests,
+- [03:02.460] including multiple other contacts.
+- [03:04.800] Last night, these arrests consisted of homicide,
+- [03:08.160] firearms offenses,
+- [03:09.710] possession with intent to distribute narcotics,
+- [03:12.570] fare evasion,
+- [03:13.910] lewd acts, stalking, possession of a high-capacity magazine,
+- [03:18.590] fleeing to allude in a vehicle,
+- [03:20.840] no permits, driving under the influence,
+- [03:23.550] reckless driving, and a bench warrant.
+- [03:26.120] A total of six illegal handguns
+- [03:28.280] were seized off of District of Columbia streets
+- [03:31.180] as part of last night’s effort.
+- [03:33.060] This is only the beginning.
+- [03:34.700] Over the course of the next month,
+- [03:36.230] the Trump administration will relentlessly pursue an arrest.
+- [03:39.570] Every violent criminal in the district
+- [03:41.560] who breaks the law undermines public safety
+- [03:44.340] and endangers law-abiding Americans.
+- [03:47.140] President Trump will not be deterred
+- [03:48.990] by soft-on-crime Democrats and media activists
+- [03:52.050] who refuse to acknowledge this rampant violence on our streets.
+- [03:55.950] He is going to make our nation’s capital
+- [03:58.410] the most beautiful and safe city on earth,
+- [04:01.360] just as he promised on the campaign trail.
+- [04:04.130] Staying on the topic of public safety,
+- [04:06.290] the Trump administration continues to shatter records
+- [04:09.140] on border security.
+- [04:10.740] According to brand- new numbers released this morning
+- [04:13.230] from Customs and Border Patrol,
+- [04:15.460] illegal crossings have fallen to all-time lows once again.
+- [04:19.620] Here were the records set in July.
+- [04:21.420] Again, these numbers were released this morning.
+- [04:24.390] The lowest monthly nationwide encounters ever,
+- [04:27.150] down nearly 90 percent from the monthly average
+- [04:29.770] under the Biden administration.
+- [04:31.720] The lowest monthly border patrol apprehensions nationwide ever,
+- [04:35.650] smashing the previous record set the prior month in June.
+- [04:39.440] The lowest monthly Southwest border apprehensions ever.
+- [04:43.560] The lowest daily apprehension average ever.
+- [04:46.700] The lowest single-day apprehensions ever.
+- [04:49.460] And for the third straight month,
+- [04:50.800] there were zero illegal aliens released into the country.
+- [04:54.710] Let me repeat that. Remarkable statistic.
+- [04:56.610] For the third month in a row, not a single illegal alien
+- [05:00.170] was released by the Trump Administration
+- [05:02.600] into the United States of America.
+- [05:05.480] This is historic, under President Trump,
+- [05:07.620] this border is the most secure it has ever been.
+- [05:10.560] When you fortify the border, when you restore deterrence,
+- [05:13.710] and when you empower border patrol agents
+- [05:16.300] and our brave men and women in uniform
+- [05:18.570] to actually do their jobs,
+- [05:20.130] to enforce our laws like this president has,
+- [05:23.690] this is the incredible results.
+- [05:26.090] And in the interior of our country,
+- [05:27.920] criminal illegal aliens continue to be arrested and removed.
+- [05:32.290] Here are some of the criminals arrested by ICE
+- [05:34.610] in just the last few days.
+- [05:36.670] ICE Buffalo arrested an illegal alien from Jamaica,
+- [05:39.810] convicted of attempted murder.
+- [05:42.210] ICE Buffalo also arrested an illegal alien from Ecuador,
+- [05:45.760] convicted of leaving the scene of an accident
+- [05:47.910] resulting in death.
+- [05:49.520] ICE Houston arrested an illegal alien
+- [05:51.680] from Mexico convicted of manslaughter.
+- [05:55.120] ICE Newark arrested an illegal alien from Mexico,
+- [05:57.910] convicted of the sexual assault of a minor.
+- [06:01.470] ICE Dallas arrested an illegal alien from Mexico,
+- [06:04.210] convicted of assault causing bodily injury.
+- [06:07.150] And already the Trump administration has arrested
+- [06:09.730] more than 300, 000 illegal aliens in 2025.
+- [06:14.820] Again, more than 300,000 illegal alien criminals
+- [06:18.360] have been arrested in the interior of our country
+- [06:21.270] in the first six months of this administration.
+- [06:24.030] And despite many false reports in the media,
+- [06:28.200] nearly 70 percent of these arrests
+- [06:31.010] have been criminal aliens with criminal charges
+- [06:34.580] or prior convictions. This is success all around.
+- [06:37.850] This is removing the most dangerous public safety threats
+- [06:40.700] from America’s communities
+- [06:42.320] and returning these individuals to their home countries.
+- [06:44.500] So there’s been success all around.
+- [06:46.490] I’m sure you have a lot of questions today.
+- [06:48.360] I’m happy to get to them, so let’s get started.
+- [06:50.350] And as always, we’ll start with our new media seat,
+- [06:52.730] who is our podcast host today Benny Johnson.
+- [06:55.130] Benny, why don’t you kick us off and thanks for being here.
+- [06:57.270] The Press: Thank you, Karoline.
+- [06:58.770] As a D.C. resident of 15 years, I lived on Capitol Hill,
+- [07:02.610] I witnessed so many muggings and so much theft
+- [07:05.850] I lost track. I was carjacked.
+- [07:08.230] I have murders on my Ring camera and mass shootings.
+- [07:11.800] I witnessed a woman on my block get held up at gunpoint for $20,
+- [07:16.240] and my house was set ablaze in an arson
+- [07:19.510] with my infant child inside.
+- [07:21.820] And so to any reporter that says and lies that D.C.
+- [07:24.930] Is a safe place to live and work,
+- [07:26.920] let me just say this, thank you.
+- [07:30.080] Thank you for making the city safe
+- [07:31.510] because no parent should have to go through
+- [07:33.400] what my family went through, having the fire department
+- [07:36.190] rip open their door to save their infant child.
+- [07:38.530] And so thank you for your work on securing the city.
+- [07:41.370] My question to you is this,
+- [07:43.470] Nancy Pelosi has attacked the president
+- [07:46.450] for deploying the National Guard to the city,
+- [07:50.970] saying that it is to cover for his incompetence.
+- [07:53.180] Hillary Clinton has also attacked the president
+- [07:55.830] for securing the city of Washington D.C.
+- [07:57.820] I’d like to get your response
+- [07:59.110] to Nancy Pelosi and Hillary Clinton.
+- [08:00.690] Karoline Leavitt: Sure. Well, first of all, Benny,
+- [08:02.010] I’m so sorry that happened to you and your family.
+- [08:04.590] There have been unfortunately,
+- [08:05.880] far too many victims of crime in this city,
+- [08:08.450] and I know the majority of residents
+- [08:10.760] in the District of Columbia agree with you.
+- [08:12.610] In fact, a new poll from the Washington Post
+- [08:14.720] I was reading this morning,
+- [08:15.960] this was released in May of 2024.
+- [08:19.130] So it’s quite funny how many of you in the media agreed
+- [08:22.090] with what the president was saying yesterday.
+- [08:24.250] But now once the president says it,
+- [08:25.740] many of you are disagreeing with him.
+- [08:27.820] But this poll released by the Washington
+- [08:29.910] Post found that 65 percent of district
+- [08:33.810] residents think crime is an extremely serious
+- [08:37.060] or a very serious problem.
+- [08:38.680] And this was up from 56 percent last year.
+- [08:41.770] So the concern that you share with so many
+- [08:43.900] other residents in the District of Columbia is real,
+- [08:46.880] and that’s why this president is taking action to address it.
+- [08:49.110] To get to the heart of your question,
+- [08:50.310] I think it’s despicable
+- [08:51.720] that Democrats cannot agree that we need more law
+- [08:54.630] and order in a city that has been ravaged
+- [08:56.710] by violence, crime, murders, property theft.
+- [08:59.850] This should be a winning issue for all Americans.
+- [09:03.980] I don’t understand. It’s just anything President Trump
+- [09:06.770] does that Democrats want to disagree with.
+- [09:09.110] I think the President would love to work with Democrats
+- [09:11.650] Karoline Leavitt: That’s on this issue to bring law
+- [09:12.920] and order to America’s cities,
+- [09:14.160] but unfortunately they have failed.
+- [09:15.810] And that’s why he’s taken this historic action
+- [09:18.030] to federalize the National Guard.
+- [09:19.780] And as you’re seeing from last night’s numbers,
+- [09:21.720] we already have seen success.
+- [09:23.010] We are removing violent offenders,
+- [09:25.160] we are arresting criminals, and we are removing drugs
+- [09:28.120] and firearms off of the streets of the city
+- [09:30.430] to make it safer for all of its residents.
+- [09:32.130] The Press: Just a very quick follow-up to that,
+- [09:33.880] given the heroic actions of a member of this administration
+- [09:36.900] just a few blocks from this building,
+- [09:38.890] will the President consider
+- [09:40.570] giving the Presidential Medal of freedom to Big Balls?
+- [09:44.620] Karoline Leavitt: I haven’t spoken to him about that,
+- [09:46.940] but perhaps it’s something he would consider.
+- [09:48.820] I’ll ask him and get back to you, Benny.
+- [09:50.260] Thanks for being here. Gabe.
+- [09:51.590] The Press: Thank you, Karoline.
+- [09:52.920] Regarding the President Trump Summit on Friday,
+- [09:58.320] why not invite Ukrainian President Zelensky
+- [10:00.300] to that summit?
+- [10:01.520] I know the President said yesterday
+- [10:02.720] that he planned to speak with him
+- [10:03.990] right after the summit and even before,
+- [10:06.060] but why not invite Zelensky?
+- [10:07.370] And whose decision was it to not invite him?
+- [10:09.310] Was it the President or was it President Putin?
+- [10:11.200] Karoline Leavitt: Well, this meeting came about
+- [10:12.600] because the President of Russia
+- [10:14.040] asked the President of the United States
+- [10:15.930] to meet through his special envoy, Steve Witkoff,
+- [10:18.900] who, as you all know, traveled to Russia
+- [10:21.510] to have a conversation with Putin at his request.
+- [10:24.530] So, the President is agreeing to this meeting
+- [10:27.630] at the request of President Putin,
+- [10:30.460] and the goal of this meeting for the President
+- [10:32.600] is to walk away with a better understanding
+- [10:34.950] of how we can end this war.
+- [10:36.700] And the President said at this podium yesterday,
+- [10:39.180] when he joined all of you in the room,
+- [10:40.920] that he hopes, in the future,
+- [10:42.150] there can be a trilateral meeting with these three leaders
+- [10:45.660] to finally bring this conflict to an end.
+- [10:47.980] But this administration has really used every lever,
+- [10:51.430] has taken every measure to achieve peace
+- [10:55.300] through a diplomatic solution.
+- [10:56.890] And I think the President of the United States
+- [10:58.860] getting in the room with the President of Russia,
+- [11:01.230] sitting face to face rather than speaking over the telephone,
+- [11:04.520] will give this president the best indication
+- [11:07.090] of how to end this war and where this is headed.
+- [11:08.690] The Press: And another question on something
+- [11:09.930] that happened yesterday,
+- [11:11.140] but I wanted to get the White House response.
+- [11:12.630] A judge ruled that the grand jury transcripts
+- [11:16.350] in Ghislaine Maxwell’s case should not be released.
+- [11:19.740] What’s the White House response to that?
+- [11:22.160] And do you plan to appeal?
+- [11:24.030] And what do you tell President Trump supporters
+- [11:26.620] who want that information released?
+- [11:28.090] Karoline Leavitt: We think that decision is unfortunate.
+- [11:29.960] Of course, we move to unseal that information
+- [11:32.120] because the president has said
+- [11:33.350] he wants to see credible evidence released.
+- [11:35.820] As for the appeal process,
+- [11:37.220] I would defer you to the Department of Justice for that.
+- [11:38.970] Rachel.
+- [11:40.200] The Press: Thank you so much, Karoline.
+- [11:41.440] We are learning that President Trump
+- [11:42.740] spoke with Ukrainian President Zelensky.
+- [11:44.570] I was curious if you can share
+- [11:46.100] any more details about their call.
+- [11:47.650] And did Zelensky give President Trump any red lines,
+- [11:51.270] any non-starters ahead of this summit on Friday?
+- [11:53.560] Karoline Leavitt: Look, I don’t want to reveal
+- [11:54.950] the private conversations
+- [11:56.220] between the President and President Zelensky,
+- [11:58.120] but what I can tell you is that the President has deep respect
+- [12:02.280] for all parties that are involved in this conflict
+- [12:05.000] and are trying to bring this conflict to an end.
+- [12:07.200] After Special Envoy Witkoff returned from his meeting
+- [12:10.030] with President Putin in Russia,
+- [12:11.720] his first phone call was to President Trump.
+- [12:13.950] And President Trump’s first phone call
+- [12:15.930] was to President Zelensky and to our friends in Europe
+- [12:18.890] to keep everybody in the loop about where the United States
+- [12:21.780] can see moving the ball forward to end this conflict.
+- [12:25.100] So, we continue to be very much engaged
+- [12:28.040] with President Zelensky and the Ukrainians,
+- [12:30.420] but also our allies in Europe, as well.
+- [12:32.360] The Press: And then just one more for you.
+- [12:34.230] How does the President measure success
+- [12:36.230] coming out of this meeting? The President, at times,
+- [12:38.860] has suggested that it might be tapping him along.
+- [12:42.210] Is he prepared to walk out of this meeting
+- [12:44.640] if he senses that Putin is not serious about ending this war?
+- [12:47.940] Karoline Leavitt: I think I just answered that question for you
+- [12:49.890] in what the goal and the expectation of the meeting is,
+- [12:52.580] and I won’t jump ahead of any hypotheticals.
+- [12:54.710] And I’ll leave it to the President
+- [12:55.970] to speak to all of you after the meeting,
+- [12:57.640] which I’m very confident he will. Steve.
+- [12:59.570] The Press: Is he optimistic that a deal
+- [13:00.930] will emerge from this meeting, or is he simply going to listen?
+- [13:04.290] Karoline Leavitt: I think this is a listening exercise
+- [13:05.720] for the President.
+- [13:06.960] Look, only one party that’s involved in this war
+- [13:09.920] is going to be present,
+- [13:11.580] and so this is for the President to go
+- [13:13.560] and to get, again, a more firm and better understanding
+- [13:16.750] of how we can, hopefully, bring this war to an end.
+- [13:19.390] The Press: Karoline, how did you settle on Alaska
+- [13:21.420] as the site for this?
+- [13:23.020] There were some other sites being discussed.
+- [13:24.680] Is this like it’s a midpoint between the two leaders?
+- [13:27.780] Karoline Leavitt: There were many sites discussed,
+- [13:29.280] but, of course, Alaska is a state
+- [13:31.930] within the United States of America,
+- [13:33.280] so the President is very honored and looks forward to hosting
+- [13:36.950] President Putin on American soil.
+- [13:39.410] The Press: Lastly, is there a joint news conference planned,
+- [13:41.930] or will the President have a solo one?
+- [13:44.090] What sort of scheduling is happening?
+- [13:45.550] Karoline Leavitt: Yeah, the mechanics
+- [13:46.810] and the scheduling,
+- [13:48.040] Steve, are still being ironed out for Friday.
+- [13:50.150] We’re working with our Russian counterparts
+- [13:52.310] to put those plans into action,
+- [13:53.810] and, of course, we’ll keep you all apprised
+- [13:55.700] on the logistical details of Friday
+- [13:57.560] as soon as we get them. Charlie.
+- [13:59.510] The Press: The President said at the podium yesterday,
+- [14:01.260] twice, that he was planning to go to Russia.
+- [14:04.250] Was that a verbal slip-up,
+- [14:05.580] or does he actually plan to go to Russia?
+- [14:07.950] Karoline Leavitt: Perhaps there are plans in the future
+- [14:09.790] to travel to Russia,
+- [14:11.480] and on Friday the President will be meeting
+- [14:13.250] with the Russian president Vladimir Putin in Alaska,
+- [14:15.780] as you know. Phil.
+- [14:18.670] The Press: Last week, the President said
+- [14:20.300] the CEO of Intel was highly conflicted,
+- [14:22.450] seeming to cite his past investment
+- [14:24.960] with Chinese companies
+- [14:26.200] that were doing business with Chinese military.
+- [14:28.460] Yesterday he called his meeting with that CEO a success.
+- [14:31.870] So, what can you tell us about what the Intel CEO
+- [14:35.110] said to President Trump that changed his mind?
+- [14:37.980] Karoline Leavitt: The President put out a statement
+- [14:39.340] that you cited, Phil. I will leave it at that.
+- [14:41.670] He shared his thoughts on that meeting and how it went,
+- [14:45.190] and for any further comment on that,
+- [14:46.680] I’ll leave it to him to make.
+- [14:47.880] The Press: I got a second one quickly.
+- [14:49.080] Will the Bureau of Labor Statistics
+- [14:50.760] continue to put out monthly job reports?
+- [14:53.420] Karoline Leavitt: Well, look, what I’ll tell you
+- [14:54.630] about the Bureau of Labor Statistics,
+- [14:56.420] I believe that is the plan and that’s the hope
+- [14:59.110] and that these monthly reports will be data
+- [15:01.290] that the American people can trust.
+- [15:03.410] As you know, the Bureau of Labor Statistics
+- [15:05.890] has made massive revisions
+- [15:07.870] after the last several reports that they have put out.
+- [15:12.710] And there has certainly been a decline
+- [15:14.160] in the quality and the reliability of data
+- [15:16.940] coming from the Bureau of Labor Statistics,
+- [15:18.780] and there’s been an increase in revisions.
+- [15:21.020] And this president and the administration
+- [15:23.290] is finally tackling this problem that so many have talked about,
+- [15:26.550] and the President is actually doing something about it.
+- [15:28.520] We need to restore new leadership that we can trust.
+- [15:30.910] As you know, the President has appointed someone new
+- [15:33.480] to take over the BLS.
+- [15:34.900] So, we need to look at the means
+- [15:36.420] and the methods of how the United States
+- [15:38.140] is acquiring this very important data,
+- [15:40.270] and all of that is going to be done.
+- [15:41.930] And the goal, of course, is to provide honest
+- [15:45.390] and good data for the American people
+- [15:47.270] to make very important economic decisions on.
+- [15:48.800] The Press: Thank you, Karoline.
+- [15:50.010] Karoline Leavitt: Michael.
+- [15:51.210] The Press: Thank you, Karoline. Two questions, if I may.
+- [15:52.560] The President has talked about land swaps
+- [15:54.480] between Russia and Ukraine.
+- [15:56.090] Vladimir Putin says he wants Russia to hold on
+- [15:59.050] to Russian-occupied territory in Eastern Ukraine.
+- [16:02.060] Is the White House at all concerned about the messaging
+- [16:04.350] that potentially giving over or allowing for Russia
+- [16:09.160] to maintain its occupied territory in Eastern Ukraine,
+- [16:12.530] what that might say to other US adversaries, like China?
+- [16:15.790] Karoline Leavitt: Look, right now,
+- [16:16.990] the President of the United States
+- [16:19.220] has done more to end this war than his predecessor, Joe Biden,
+- [16:23.000] who allowed this war to take place.
+- [16:25.440] This war, don’t forget, happened at the result of the weakness
+- [16:29.550] and the incompetence of the previous administration.
+- [16:31.990] So, the President inherited this conflict,
+- [16:34.600] and he is determined to end it,
+- [16:37.450] and it’s a very complex and complicated situation.
+- [16:40.750] As for the details of the plans that have been tossed back
+- [16:44.340] and forth, I won’t get into those,
+- [16:46.040] and I will let the President of the United States
+- [16:47.780] discuss those plans with the President of Russia,
+- [16:50.380] with our European allies,
+- [16:51.620] and the President of Ukraine, Zelensky himself, as well.
+- [16:56.290] Sure, go ahead, in the green.
+- [16:58.400] The Press: Thank you. Karoline.
+- [16:59.930] As far as the policing and security operations in D.C.-
+- [17:02.400] Karoline Leavitt: Can you speak up?
+- [17:03.620] The Press: Is there a timeline?
+- [17:04.820] Do we know what success looks like,
+- [17:06.410] and is it going to last longer than 30 days?
+- [17:09.010] And also, is there going to be
+- [17:10.340] an immigration enforcement aspect to this?
+- [17:15.700] Karoline Leavitt: Can you speak up a little bit?
+- [17:16.910] The air conditioning is bumping in here for all of you today
+- [17:19.730] after yesterday’s heater so we’ve got to talk up.
+- [17:22.470] You’re welcome. Go ahead.
+- [17:23.730] The Press: Is there a timeline for the security operations
+- [17:27.040] here in D.C.? And also, is there going to be
+- [17:28.630] an immigration component to this?
+- [17:30.410] And what would that look like?
+- [17:32.370] Karoline Leavitt: Look, if law enforcement officers
+- [17:34.340] encounter a criminal in this city,
+- [17:37.590] and they are an illegal alien, of course,
+- [17:39.480] the appropriate measures to detain and deport
+- [17:41.940] that individual will be taken, as they should.
+- [17:45.340] No city should be a sanctuary for anyone
+- [17:47.800] other than law-abiding American citizens.
+- [17:52.210] That has been the position of this administration
+- [17:54.220] since day one.
+- [17:55.460] As for the timing, we will reevaluate and reassess
+- [17:58.850] and make further decisions after this 30-day period is up.
+- [18:02.210] But within these 30 days, our entire focus is making sure
+- [18:06.130] that this is the most efficient operation possible
+- [18:09.140] and that we are removing as many criminals from the streets
+- [18:12.270] and we are cleaning up D.C. as best as we can,
+- [18:15.600] and working with the Metropolitan Police Department
+- [18:17.920] to do that.
+- [18:19.160] I know the mayor just spoke several minutes ago.
+- [18:22.170] I was watching her on television,
+- [18:23.550] and she said that an increase in law enforcement officers
+- [18:26.930] on the streets will be helpful to deter crime in this city.
+- [18:30.890] And we look forward to working with these brave men
+- [18:33.180] and women of the Metropolitan Police Department
+- [18:35.640] to remove criminals off of our streets
+- [18:37.360] and to keep law-abiding citizens
+- [18:39.030] in the district Safe. Josh.
+- [18:40.370] The Press: Thank you.
+- [18:41.630] The President weighed in on Jay Powell again today.
+- [18:44.730] You might have seen. He said that he’s considering
+- [18:46.970] allowing a major lawsuit against Powell to proceed
+- [18:49.610] because of the, quote, horrible and grossly incompetent job
+- [18:52.380] he has done. Can you tell us about that?
+- [18:53.990] What lawsuit is he talking about?
+- [18:55.760] Karoline Leavitt: He’s considering a lawsuit,
+- [18:57.490] and I won’t speak or on it any further.
+- [18:59.770] I will allow the President to do that himself.
+- [19:01.610] The Press: Well, is it fair to say the administration
+- [19:03.030] is considering suing the Fed chair
+- [19:04.660] over this renovation? Okay.
+- [19:05.950] Karoline Leavitt: That’s what the President is saying.
+- [19:07.850] The Press: Has he had discussions with anyone
+- [19:11.040] about this? How advanced is this right now?
+- [19:15.070] Karoline Leavitt: At this moment in time,
+- [19:16.290] the President is considering a lawsuit against the Fed,
+- [19:18.720] and I will leave it to him to comment further on it.
+- [19:20.560] The Press: And then yesterday we talked about --
+- [19:22.040] oh, sorry, very quickly.
+- [19:23.310] Yesterday we talked about the Nvidia chips
+- [19:26.220] deal the President has struck, and as well the AMD,
+- [19:28.430] the 15 percent stake we’ll go to the government.
+- [19:30.260] Do you have any detail on how that came about?
+- [19:32.470] The President said he asked for 20 percent from Nvidia.
+- [19:35.350] Did he make the same 20 percent ask to AMD and/or
+- [19:38.860] is this something the administration is looking to do
+- [19:41.010] with other either chips or products going forward?
+- [19:44.880] Is this a model that he wants to build on?
+- [19:46.530] Karoline Leavitt: Well, look, right now it stands
+- [19:48.350] with these two companies.
+- [19:49.640] Perhaps it could expand in the future to other companies.
+- [19:52.810] I think it’s a creative idea and solution.
+- [19:55.260] The legality of it, the mechanics of it
+- [19:57.120] is still being ironed out by the Department of Commerce,
+- [19:59.280] and I would defer you to them for any further details
+- [20:01.290] on how it will actually be implemented.
+- [20:03.280] But again, this was another idea of the president
+- [20:06.080] and his brain trust on his trade team
+- [20:08.630] to try to get good deals for the American people
+- [20:11.020] and the American taxpayer.
+- [20:12.270] The Press: Did you see the report
+- [20:13.510] that China is discouraging use of the H20 to some companies?
+- [20:17.570] Since this, we’re reporting that overnight there was private
+- [20:19.820] guidance said to companies not banning the chip,
+- [20:22.010] but urging them to steer away from it.
+- [20:23.530] I wonder if you have any response to that.
+- [20:24.970] Karoline Leavitt: I haven’t read the report.
+- [20:26.190] I will, and we’ll get you a comment on it.
+- [20:27.530] The Press: Thank you. Karoline Leavitt: Tamara.
+- [20:28.730] The Press: Thank you.
+- [20:30.140] Last week the meeting with Putin was sort of described
+- [20:33.100] potentially as an opportunity for a deal.
+- [20:35.840] Now, it’s a feeling out. Has there been a shift
+- [20:39.810] in expectations within the White House
+- [20:41.540] or an effort to temper expectations
+- [20:43.130] about what success looks like for this meeting?
+- [20:44.680] Karoline Leavitt: No.
+- [20:45.880] I mean, look, I think both can be true.
+- [20:47.380] The President has always said he wants a peace deal.
+- [20:50.300] He wants to see this war come to an end,
+- [20:52.750] but this bilateral meeting is a bilateral meeting
+- [20:55.620] between one party in this two-party war.
+- [20:58.750] You need both countries to agree to a deal.
+- [21:00.410] The President is accepting this bilateral meeting
+- [21:03.320] with Putin on Friday,
+- [21:04.570] and I will let him speak further to it
+- [21:06.210] after it concludes about how he felt it went.
+- [21:09.770] The Press: Could you also --
+- [21:11.530] completely related topic,
+- [21:13.500] regarding the President’s efforts in Washington D.C,
+- [21:15.900] do you have any specifics about
+- [21:17.990] how homeless people will be dealt with,
+- [21:20.500] where they would be moved to? What does this look like?
+- [21:23.150] Karoline Leavitt: I do, yes.
+- [21:24.470] And it’s an important question, so thank you for raising it.
+- [21:27.430] The Metropolitan Police Department,
+- [21:29.270] with the support of the new federal agencies,
+- [21:32.160] who have been surging on the streets
+- [21:33.660] of the District of Columbia, are going to enforce the laws
+- [21:36.910] that are already on the books here in Washington DC.
+- [21:39.700] For far too long, these laws have been completely ignored,
+- [21:43.170] and the homelessness problem has ravaged the city.
+- [21:45.650] So DC code 22-1307 and DC Municipal Regulation
+- [21:50.720] 24-100 give the Metropolitan Police Department
+- [21:54.010] the authority to take action
+- [21:56.280] when it comes to homeless encampments.
+- [21:58.880] So homeless individuals will be given the option
+- [22:02.010] to leave their encampment,
+- [22:03.350] to be taken to a homeless shelter,
+- [22:05.470] to be offered addiction or mental health services.
+- [22:08.300] And if they refuse,
+- [22:09.580] they will be susceptible to fines or to jail time.
+- [22:12.500] Again, these are pre-existing laws
+- [22:14.050] that are already on the books.
+- [22:15.250] They have not been enforced, which is part of the reason
+- [22:18.830] for the federalizing of the National Guard,
+- [22:22.960] to bring in this assistance for law enforcement.
+- [22:26.170] While we are targeting criminals
+- [22:28.570] and trying to remove criminals off of the streets,
+- [22:30.350] we also want to make DC safe and beautiful,
+- [22:33.610] and that involves removing mentally disturbed individuals
+- [22:37.160] and homeless encampments as well.
+- [22:39.040] So we will be using these regulations and code
+- [22:41.340] that already exists to clean up our streets.
+- [22:43.460] And we’ve already had great success.
+- [22:45.540] Not many of you picked up on this,
+- [22:47.070] but the United States Park Police
+- [22:48.490] has actually done remarkable work,
+- [22:50.420] in terms of removing homeless encampments from the city.
+- [22:53.180] Since the president signed this executive order in March,
+- [22:55.880] 70 homeless encampments have been removed
+- [22:58.260] by the US Park Police.
+- [22:59.810] There are only two homeless encampments
+- [23:01.850] remaining in DC federal parks,
+- [23:04.240] under the National Park Services jurisdiction,
+- [23:06.610] and the removal of those two remaining camps
+- [23:08.480] is scheduled for this week.
+- [23:10.140] So the US Park Police
+- [23:11.390] will be leading this effort alongside NPD.
+- [23:13.180] The Press: Just very quickly.
+- [23:14.450] He had talked to one of his social media posts
+- [23:16.490] about moving them very far outside of the city.
+- [23:19.540] Is that off?
+- [23:20.800] Karoline Leavitt: Nope, it’s not off.
+- [23:22.050] We’re exploring how we could do that.
+- [23:24.020] But again, homeless shelters, offered addiction
+- [23:28.210] and mental health services, or jail, if they refuse,
+- [23:31.480] are the options on the table right now.
+- [23:33.240] And we’ll continue to explore that option. Sure.
+- [23:35.560] The Press: Thank you so much, Karoline.
+- [23:37.110] President Zelenskyy said moments ago
+- [23:38.930] that he thinks Russia is preparing for a new offensive
+- [23:42.690] on at least three different areas of the front line.
+- [23:45.680] Is this something that you could confirm,
+- [23:47.800] based on US intelligence?
+- [23:49.730] And if the president sees that Putin is indeed
+- [23:52.850] planning major new offensive, or moving troops,
+- [23:55.690] would he call off the meeting on Friday?
+- [23:57.520] Karoline Leavitt: I’m not in a position
+- [23:58.790] to confirm or deny or comment on that intel at this time.
+- [24:01.380] Monica?
+- [24:02.770] The Press: Thanks, Karoline. My question involves Russiagate.
+- [24:05.340] A whistleblower alleges that then-Congressman Adam Schiff
+- [24:08.250] approved leaking classified information
+- [24:10.680] to smear President Trump’s image during the Russiagate scandal.
+- [24:14.250] Does the president plan to investigate Adam Schiff?
+- [24:16.910] And what would accountability look like
+- [24:19.640] if more information confirms this report?
+- [24:22.030] Karoline Leavitt: The president has already said he wants to see
+- [24:24.050] Adam Schiff held accountable for the countless
+- [24:26.150] lies he told the American people,
+- [24:27.820] in relation to the Russiagate scandal.
+- [24:30.060] I brought Tulsi Gabbard out to this podium
+- [24:31.910] to talk to you about all of that.
+- [24:33.640] And this administration
+- [24:34.900] is taking accountability very seriously.
+- [24:37.170] As for this new FBI whistleblower report,
+- [24:39.390] I understand Cash Patel, last night, declassified a 302
+- [24:43.430] FBI document, showing that a whistleblower,
+- [24:46.540] who is a Democrat, a career intelligence officer
+- [24:49.470] who worked for Democrats on the House
+- [24:51.450] Intel Committee for more than a decade,
+- [24:53.840] repeatedly warned the FBI in 2017,
+- [24:57.080] that then rep, Adam Schiff,
+- [24:58.570] had approved leaking classified information to smear then
+- [25:03.290] President Donald Trump over the Russiagate scandal.
+- [25:06.670] This is obviously a bombshell whistleblower report.
+- [25:10.160] Hopefully more people in this room will cover it as such.
+- [25:13.110] And I have a quote from the FBI director for all of you.
+- [25:16.200] He has said this, "For years,
+- [25:17.650] certain officials used their positions
+- [25:19.290] to selectively leak classified information
+- [25:22.040] to shape political narratives.
+- [25:23.680] It was all done with one purpose,
+- [25:25.120] to weaponize intelligence in law enforcement for political gain.
+- [25:28.410] Those abuses eroded public trust in our institutions.
+- [25:31.900] The FBI will now lead the charge,
+- [25:33.590] with our partners at DOJ,
+- [25:35.300] and Congress will have the chance to uncover
+- [25:37.850] how political power may have been weaponized,
+- [25:40.160] and to restore accountability."
+- [25:42.090] That’s what the administration is focused on,
+- [25:43.710] and hopefully we’ll see some more media reports
+- [25:46.360] on this whistleblower allegation.
+- [25:49.270] If this were reversed,
+- [25:50.680] if this were allegations against the President,
+- [25:54.710] or any of these cabinet officials,
+- [25:56.000] I’m sure everyone in this room would cover it as such.
+- [25:58.230] Elizabeth, go.
+- [25:59.450] The Press: Thanks, Karoline.
+- [26:00.720] After yesterday’s action to federalize the DC Police,
+- [26:03.440] is the president still interested
+- [26:05.190] in working with Congress too, in the Home Rule Act?
+- [26:07.730] Something you’ve talked about in the past.
+- [26:09.390] Senator Mike Lee has a bill on it.
+- [26:10.800] Is that something he’s still interested in?
+- [26:12.410] Karoline Leavitt: The president is very much still interested
+- [26:14.590] in working with Congress to address many of the issues
+- [26:17.380] that have plagued Washington DC,
+- [26:19.310] such as the cashless bail policy,
+- [26:21.010] which has been a complete disaster for the city.
+- [26:23.650] Juvenile delinquency is another major problem in the city
+- [26:26.480] that Congress can address.
+- [26:28.060] So I know Congress is on recess right now.
+- [26:30.340] When they get back to work, to Washington,
+- [26:32.260] this president looks forward to having these conversations
+- [26:34.340] with our friends on Capitol Hill,
+- [26:35.610] so we can work with them to make DC safe and beautiful again.
+- [26:39.320] And again, we encourage Democrats
+- [26:40.980] to join us in this effort.
+- [26:42.300] Perhaps their approval ratings would move up a little bit,
+- [26:44.970] if they did. I saw a new poll today.
+- [26:47.240] Democrat approval rating is at an all time low, 32 percent.
+- [26:50.680] If they could just stand by the basic notion of law and order,
+- [26:53.190] perhaps they would see that tick up a bit,
+- [26:54.710] and we welcome them to do that. Dasha?
+- [26:57.370] The Press: Thanks, Karoline.
+- [26:58.620] President Trump, yesterday, at this podium,
+- [27:00.340] indicated this, so has NATO Secretary-General, Mark Rutte,
+- [27:03.860] that in order for peace to happen,
+- [27:06.270] it is very likely that Ukraine
+- [27:08.790] will have to see some land to Russia.
+- [27:11.550] Zelenskyy has repeatedly said, "No land for peace.
+- [27:14.120] That’s not going to happen."
+- [27:15.520] Has this administration communicated to Zelenskyy
+- [27:18.080] that he’s going to have to change that position?
+- [27:20.160] Karoline Leavitt: Look, I appreciate your asking
+- [27:21.700] that question in a different way
+- [27:22.980] than your colleague, Michael, in the back.
+- [27:24.540] I don’t want to get into the details of these negotiations
+- [27:27.670] and these discussions that have taken place,
+- [27:29.660] out of respect for where we are right now.
+- [27:31.620] And I’ll let the president speak on it further if he wishes to.
+- [27:33.680] The Press: Can I ask one more about Israel?
+- [27:34.880] Karoline Leavitt: Sure.
+- [27:36.120] The Press: I know the President has had a call
+- [27:37.900] with Prime Minister Netanyahu recently, and Netanyahu
+- [27:40.640] is planning to seize the remainder of Gaza City.
+- [27:43.930] What is the administration’s position on this
+- [27:46.030] move by Israel’s government?
+- [27:47.770] Karoline Leavitt: Look, this is an incredibly complex
+- [27:51.030] and complicated war,
+- [27:52.950] that again, was inherited by this president,
+- [27:55.580] by his predecessor, Joe Biden.
+- [27:57.580] October 7th was one of the worst days in history.
+- [28:01.240] We saw innocent people slaughtered,
+- [28:03.340] murdered, kidnapped by Hamas terrorists.
+- [28:06.290] This administration has taken extensive time
+- [28:09.270] and effort and resources,
+- [28:11.250] since Inauguration Day in January,
+- [28:13.580] to end this conflict.
+- [28:14.880] We have given many flexible arrangements,
+- [28:18.250] backed by Israel, to Hamas,
+- [28:19.950] and unfortunately, Hamas has never agreed.
+- [28:23.460] Looking ahead, I will let the president speak on
+- [28:26.660] where he sees this going, but this is of course,
+- [28:29.370] an incredibly complex and complicated situation.
+- [28:32.280] The administration has made our goal clear.
+- [28:35.100] We want to see this conflict end,
+- [28:36.380] we want to see the hostages released.
+- [28:38.120] And the President and his national security team
+- [28:40.960] have given extensive effort and time to doing that.
+- [28:42.620] The Press: Is the president comfortable
+- [28:43.850] with how Israel has used those resources
+- [28:45.720] and the assistance that you’ve provided?
+- [28:47.210] Karoline Leavitt: Look, I’ll let the president speak
+- [28:48.590] on the further actions
+- [28:50.190] that Israel may or may not be taking.
+- [28:52.050] Good to see you.
+- [28:53.440] The Press: Good to see you as well, Karoline. Thank you.
+- [28:55.010] The [inaudible 00:31:44] is expressing interest
+- [28:57.090] that Friday’s meeting will move beyond
+- [28:59.140] just terms to end the war,
+- [29:00.980] into improving bilateral relations.
+- [29:02.670] There’s talk over how they’re interested
+- [29:04.530] in potentially restoring direct flights between Russia
+- [29:06.670] and the United States. Is President Trump open
+- [29:08.930] to those kind of peripheral conversations,
+- [29:10.920] or is this directly focused on ending the war in Ukraine?
+- [29:13.920] Karoline Leavitt: I think this conversation, on Friday,
+- [29:16.340] is focused on ending the war in Ukraine,
+- [29:18.600] as far as the president’s perspective goes.
+- [29:21.090] Those conversations,
+- [29:22.490] I think the president is interested in having,
+- [29:24.550] but his main priority right now is ending this war,
+- [29:27.270] and to stop the killing that has gone on
+- [29:28.990] for far too long. You’re welcome.
+- [29:30.560] The Press: Karoline?
+- [29:31.770] Karoline Leavitt: In the back, go ahead. Yeah.
+- [29:34.140] The Press: Two questions on the economy.
+- [29:35.470] So first, we’ve had small businesses tell us
+- [29:37.390] that it’s not foreign exporters
+- [29:39.510] who are eating the tariffs, it’s them.
+- [29:42.770] And they’ve held off on raising prices,
+- [29:44.540] but soon they’re going to have to raise prices.
+- [29:46.880] What is the White House’s message to them?
+- [29:48.670] Karoline Leavitt: The White House’s message
+- [29:49.870] to our small business owners across the country is,
+- [29:52.370] you have never had a better ally or friend,
+- [29:55.570] or a supporter in this White House,
+- [29:57.090] than President Donald Trump, who is a businessman himself,
+- [30:00.120] who understands your concerns
+- [30:01.810] and who wants to restore wealth back to our country,
+- [30:05.400] through the powerful use of tariffs.
+- [30:07.430] And that’s what he’s focused on doing,
+- [30:09.090] while simultaneously driving down costs.
+- [30:12.460] You have to remember that we are six months
+- [30:14.380] into this administration,
+- [30:15.670] and we had a president who had no business experience,
+- [30:18.350] had no idea what he was doing,
+- [30:20.030] and who funneled billions of wasteful
+- [30:22.120] spending dollars into our economy,
+- [30:24.520] which created the worst inflation crisis
+- [30:26.500] in a generation.
+- [30:27.790] Now, this president is focused on tackling inflation,
+- [30:31.160] deregulating, cutting costs, cutting red tape,
+- [30:33.760] to make it easier for small business owners to thrive.
+- [30:36.930] And again, the economic indicators
+- [30:38.820] show that we are moving in the right direction.
+- [30:40.960] In January, when this president showed up to the White House,
+- [30:44.070] the six-month annualized core inflation rate
+- [30:46.470] was 3.7 percent. Today, six months later,
+- [30:50.100] the six-month annualized core inflation rate is 2.4 percent.
+- [30:53.910] So we are trending in the right direction,
+- [30:56.010] moving forward, since President Trump took office.
+- [30:59.330] For another six months, inflation will be tracking
+- [31:01.500] at 1.9 percent, at this trajectory.
+- [31:04.110] You look at grocery prices, they fell, energy prices fell,
+- [31:06.760] fuel, oil fell, ship fares fell, propane fell, butter,
+- [31:11.130] margarine, eggs, non-prescription drugs.
+- [31:13.470] You go through the list of items that are falling.
+- [31:15.730] And then I would also point to that report this morning,
+- [31:17.790] showing that small business optimism
+- [31:20.150] has reached a five-month-high.
+- [31:21.590] So look, we inherited an economic mess
+- [31:25.050] from the previous administration,
+- [31:26.560] but this administration is focused on fixing it,
+- [31:28.570] every day.
+- [31:29.850] And part of that is signing the largest tax cuts into law,
+- [31:32.390] to put more money back into the pockets
+- [31:34.180] of these small business owners.
+- [31:35.380] The Press: Just one more. Just on the BLS.
+- [31:36.670] They collect the inflation data, obviously.
+- [31:38.840] If the jobs data is not reliable,
+- [31:41.040] should Americans trust the inflation data?
+- [31:42.590] Karoline Leavitt: Well, look,
+- [31:43.800] the jobs data has had massive revisions.
+- [31:46.000] We want to ensure that all of the data, the inflation data,
+- [31:48.570] the jobs data, any data point that is coming out of the BLS,
+- [31:52.080] is trustworthy and is accurate, which is why the president
+- [31:54.990] has restored new leadership at the BLS.
+- [31:58.100] Sure. Go ahead. Yeah.
+- [31:59.900] The Press: Okay. Hi. Thank you.
+- [32:01.380] Karoline Leavitt: Hi.
+- [32:02.640] The Press: So Gavin Newsom has said
+- [32:03.980] that California is going to sue,
+- [32:05.900] in response to the government’s demand
+- [32:08.170] for a billion dollars from UCLA over the DOJ’s anti-
+- [32:11.640] Semitism findings.
+- [32:13.740] Newsom has called this extortion and ransom,
+- [32:16.760] so I’m wondering what the White House’s response
+- [32:19.080] is to Newsom, on UCLA.
+- [32:20.840] Karoline Leavitt: Bring it on, Gavin.
+- [32:22.060] This administration is well within its legal
+- [32:24.190] right to do this.
+- [32:25.480] And we want to ensure that our colleges and our universities
+- [32:29.000] are respecting the First Amendment rights
+- [32:31.870] and the religious liberties of students on their campuses,
+- [32:34.620] and UCLA has failed to do that.
+- [32:37.050] And I have a whole list of examples
+- [32:38.790] that I will forward to Gavin Newsom’s press office,
+- [32:41.860] if he hasn’t seen them himself. Brett?
+- [32:44.450] The Press: Thanks, Karoline.
+- [32:45.830] What was the reason that President Trump chose to move on
+- [32:48.190] from Billy Long, as IRS commissioner?
+- [32:50.810] Karoline Leavitt: Look, I think the president
+- [32:52.420] wants to see Billy Long as the ambassador to Iceland.
+- [32:55.680] As you know, that is where he will be headed.
+- [32:57.880] And the president loves Billy Long,
+- [32:59.810] and he thinks that he can serve the administration well
+- [33:02.150] in this position. For now, secretary Scott Bessent
+- [33:05.380] will be the Acting IRS Commissioner.
+- [33:07.240] The Press: Is there a timeline for announcing a new pick?
+- [33:09.230] Karoline Leavitt: Go ahead.
+- [33:10.920] Ed. Eddie, go ahead. In the back. Yes.
+- [33:13.370] The Press: Well, go in the back first.
+- [33:14.660] Go ahead. Karoline Leavitt: Okay, sure.
+- [33:15.900] The Press: Thanks Karoline. One on foreign-
+- [33:17.360] Karoline Leavitt: [inaudible 00:36:08].
+- [33:18.580] The Press: One on foreign policy
+- [33:19.780] and then one domestic question, if I may.
+- [33:22.210] There are roughly 30,000 children from Ukraine
+- [33:25.500] who have reportedly been abducted
+- [33:26.960] and are kind of dispersed around Russia.
+- [33:28.830] They’ve been showing up on these websites for adoption.
+- [33:32.110] Is their return a red line for the president
+- [33:34.850] in any deal ending the war?
+- [33:37.170] Karoline Leavitt: The administration
+- [33:38.400] is aware of these reports. I don’t want to set red lines
+- [33:41.730] for the president on his behalf from this podium.
+- [33:44.790] However, the president did encourage Ukraine and Russia
+- [33:48.280] to speak directly to one another
+- [33:50.820] in terms of these humanitarian issues.
+- [33:52.650] And we have seen progress. You have seen prisoners of war
+- [33:55.850] swapped between these two countries
+- [33:57.430] as a result of these direct talks, as well as children.
+- [34:01.580] And that remains a concern,
+- [34:03.450] but it’s one that Russia and Ukraine
+- [34:04.960] need to iron out together, which is why this president
+- [34:07.090] has encouraged them to speak. Ed.
+- [34:08.330] The Press: Okay, thanks. And then if I can --
+- [34:09.540] Karoline Leavitt: Sure.
+- [34:10.810] The Press: The DC action real quick.
+- [34:12.450] The president said yesterday that this is a model
+- [34:15.180] federalizing the National Guard
+- [34:16.460] that could be used to combat really high rates of crime
+- [34:19.180] in other cities like Chicago, L.A, Baltimore.
+- [34:23.870] What sort of authority would he have to deploy forces
+- [34:26.460] like that absent the Home Rule Act?
+- [34:29.150] Karoline Leavitt: Look, the president is speaking
+- [34:30.880] about what he’d like to see take place
+- [34:32.810] in other cities around the country.
+- [34:34.390] Right now, this administration is focused
+- [34:36.200] on making D.C safe and beautiful again.
+- [34:38.880] When the time comes, we’ll talk about that.
+- [34:41.130] But I will note that the president
+- [34:42.810] wants to see all of our nation’s cities be safe,
+- [34:45.660] but I think starting with our nation’s capital
+- [34:48.460] is a great place to begin
+- [34:49.930] and it should serve as a model for the rest of the country.
+- [34:51.950] Ed.
+- [34:53.180] The Press: Just to wind up a few of the D.C things,
+- [34:54.720] because a lot of them have been asked,
+- [34:55.940] but in talking with Congress about potential changes
+- [34:59.560] of the Home Rule and whatever else,
+- [35:01.060] would he also push the House to finally pass D.C.’s budget
+- [35:04.030] so that it has access to all that money
+- [35:06.020] that it does need for policing,
+- [35:07.690] for schools and for other services here in the city?
+- [35:09.370] Karoline Leavitt: Yes, and as you know,
+- [35:10.590] he has done that.
+- [35:11.800] He put out a statement calling on the House
+- [35:13.330] to take up the Senate’s legislation,
+- [35:14.950] and he stands by that position.
+- [35:16.230] The Press: Well, let me take you back
+- [35:17.470] to something from last month.
+- [35:18.830] You guys announced the president was diagnosed
+- [35:21.450] with chronic venous insufficiency after his legs
+- [35:23.780] were seen swelling. How’s he being treated for that?
+- [35:27.660] And while you were up front about those health issues,
+- [35:33.420] curious if the White House would be willing
+- [35:35.040] to let us speak with his physician
+- [35:36.610] directly about those health issues.
+- [35:39.210] I know there were a lot of concerns
+- [35:40.700] about the last White House not making the physician available.
+- [35:43.810] Would the physician be available in this case?
+- [35:45.540] Karoline Leavitt: I don’t want to make that commitment
+- [35:46.860] on behalf of the physician,
+- [35:48.080] but it’s certainly something we can look into
+- [35:49.750] and explore out of the effort of transparency.
+- [35:52.330] Because unlike the previous White House,
+- [35:54.260] there is nothing to hide.
+- [35:55.490] You guys see this president working around the clock,
+- [35:59.030] literally 24/7, all of the time,
+- [36:02.070] and I will be happy to look into that request.
+- [36:04.870] The Press: Could we at least get an update
+- [36:06.070] on how he’s being treated for the swelling legs
+- [36:08.110] and for the hands and the other issues?
+- [36:09.550] Karoline Leavitt: Look, you see the president every day.
+- [36:11.170] He’s moving, he’s working, he’s continuing.
+- [36:13.380] There have been no adjustments made to his lifestyle. Yes.
+- [36:16.430] The Press: Yes, Karoline, I have two questions,
+- [36:17.840] one on D.C, but on the Putin meeting on Friday,
+- [36:20.170] does the president plan to meet with Putin one-on-one?
+- [36:22.730] Karoline Leavitt: Yes, that’s part of the plan.
+- [36:24.080] And as for the other mechanics and logistics,
+- [36:26.210] I will let our team speak to that when they’re ironed out.
+- [36:29.020] The Press: And on what’s happening in D.C
+- [36:30.330] with the federal takeover, what we’ve heard from the mayor
+- [36:32.470] and the police chief is that their understanding
+- [36:34.770] is there has been no change in the leadership structure.
+- [36:37.350] In the White House’s view,
+- [36:38.680] who is in charge of the MPD right now?
+- [36:41.070] Karoline Leavitt: If you read the executive order,
+- [36:42.510] it will tell you.
+- [36:43.780] The leadership structure is as follows.
+- [36:45.640] We plan to work with the Metropolitan Police Department,
+- [36:48.290] but ultimately, the chain of command is as such:
+- [36:50.870] the President of the United States;
+- [36:52.550] the Attorney General of the United States;
+- [36:54.610] our DEA administrator, Terry Cole,
+- [36:56.570] who is now serving ahead of the Chief
+- [36:58.360] of the Metropolitan Police Department.
+- [36:59.840] And they will be working together.
+- [37:01.080] The Press: So his department’s in charge of (inaudible).
+- [37:02.450] Karoline Leavitt: Nope. Terry Cole,
+- [37:03.680] as you heard from this briefing room yesterday,
+- [37:05.730] is in charge of the Metropolitan Police Department,
+- [37:09.230] and he’s working with the chief
+- [37:11.140] to ensure that law enforcement officers
+- [37:13.010] are allowed to do their jobs in this city.
+- [37:15.700] The Press: Yeah, thanks, Karoline.
+- [37:16.950] I know you said earlier the hope
+- [37:18.350] is to maintain monthly job reports,
+- [37:20.710] but the president’s new nominee for BLS
+- [37:22.880] Commissioner, E.J Antoni,
+- [37:25.280] recently told Fox Business that the BLS
+- [37:28.100] should suspend issuing monthly job reports
+- [37:30.780] and only issue quarterly reports
+- [37:32.730] until the job’s data methodology is corrected.
+- [37:35.870] So does the president disagree
+- [37:37.410] with that assessment that his nominee has said there,
+- [37:40.380] or is suspending these monthly job reports a real option?
+- [37:44.030] Karoline Leavitt: I think he floated the idea
+- [37:46.040] of possibly suspending
+- [37:47.420] until they can get the data and the methodology in order.
+- [37:50.890] And this president wants to ensure that the BLS,
+- [37:53.430] again, is putting out accurate and honest data
+- [37:57.070] that the American people can trust.
+- [37:58.300] Since you brought up the new commissioner,
+- [38:00.500] he holds a master’s and doctor’s degree in economics
+- [38:02.840] from Northern Illinois University.
+- [38:04.380] He’s the chief economist in the Heritage Foundation’s Center
+- [38:08.850] for the Federal Budget.
+- [38:10.300] And in addition to his work at Heritage,
+- [38:12.600] he has multiple other roles.
+- [38:14.240] He’s been widely renowned for his work on economic issues.
+- [38:17.660] He’s been called before Congress to testify
+- [38:20.290] as an economic expert. So he’s a qualified individual
+- [38:23.240] and the president trusts him to lead this important department.
+- [38:26.010] I’ll take a couple more questions.
+- [38:27.500] Sure, go ahead.
+- [38:28.820] The Press: Given that the administration now
+- [38:32.060] has jurisdiction over MPD,
+- [38:34.960] does that mean like personnel changes, hiring, firing?
+- [38:37.240] Can we expect leadership changes internally
+- [38:39.550] in the Metropolitan Police Department?
+- [38:41.040] Karoline Leavitt: Well, I just walked through
+- [38:42.300] what the leadership structure looks like right now.
+- [38:44.040] The Press: I know, but within the uniformed
+- [38:47.260] police department, right?
+- [38:48.510] I mean, does that mean that the Attorney General,
+- [38:51.130] others kind of have the ability
+- [38:52.840] to make those personnel decisions?
+- [38:54.130] Karoline Leavitt: I would imagine it means
+- [38:55.330] they have the ability.
+- [38:56.550] As for any changes, I’m not tracking any.
+- [38:58.630] Again, we look forward to working alongside
+- [39:00.770] the Metropolitan Police Department.
+- [39:02.900] We did that last night successfully,
+- [39:04.180] and we hope we can do that
+- [39:05.440] for the next 29 nights. Go ahead.
+- [39:07.130] Press: (inaudible) Karoline Leavitt: Yes.
+- [39:08.470] The Press: (inaudible)
+- [39:09.670] a lot of reports that ICE agents detained a fifteen-
+- [39:11.850] year-old student with disabilities
+- [39:13.980] outside an LA high school,
+- [39:15.520] even leaving bullets on the sidewalk,
+- [39:16.980] how does the Trump administration plan
+- [39:19.060] to ensure parents if their children can return to school
+- [39:21.950] without fear of being wrongfully detained
+- [39:23.870] or endangered by federal agents?
+- [39:25.530] Karoline Leavitt: Where’d you see that report?
+- [39:26.810] The Press: LA Times. Karoline Leavitt: Okay.
+- [39:28.010] Well, I’ll have to look into the veracity of that report.
+- [39:30.210] I read the LA Times almost every single day
+- [39:33.020] and they are notorious for misleading the public.
+- [39:35.600] I’m sure there’s more to that story
+- [39:37.170] than the way that you just characterized it.
+- [39:39.120] This administration wants to ensure that all school children
+- [39:41.690] across the country in every city,
+- [39:43.600] from Los Angeles to D.C can go to school safely.
+- [39:46.770] And that’s part of this administration’s effort
+- [39:49.330] to federalize the National Guard in Washington
+- [39:52.040] to ensure that ICE is removing child predators.
+- [39:55.250] I just read you a list of a handful,
+- [39:58.240] just a handful of the hundreds of thousands of child predators
+- [40:01.870] that this administration
+- [40:03.150] is removing off of the streets of Los Angeles
+- [40:05.490] and every other community across this country,
+- [40:08.050] because we want to ensure this is a country
+- [40:09.870] where American school children can be safe,
+- [40:12.240] where they can prosper,
+- [40:13.570] and where they are not threatened by violent criminals,
+- [40:16.120] whether they are illegal or whether they are
+- [40:18.310] American citizen homegrown criminals,
+- [40:20.560] as this president calls them.
+- [40:21.900] So I will gladly go check on that report
+- [40:24.040] and I’ll get you the facts. Thank you.
+- [40:25.570] The Press: Thank you, Karoline.

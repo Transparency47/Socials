@@ -1,0 +1,891 @@
+<!-- source: https://www.youtube.com/watch?v=5mQDlMIjDRo -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 5mQDlMIjDRo -->
+<!-- date_published: 2025-02-11T19:11:07+00:00 -->
+<!-- date_accessed: 2026-06-02T01:30:05.949037+00:00 -->
+
+# Transcript: President Trump Signs Executive Orders in the Oval Office,  Feb. 10, 2025
+
+- [00:00.180] The President: Thank you very much everybody.
+- [00:01.580] We have a lot of big signings, good signings.
+- [00:03.820] One in particular, which we'll save for the end
+- [00:06.690] and I'll ask Will
+- [00:08.290] to go over these individually and we can see how we do.
+- [00:11.720] Male Speaker: Yes, sir. First for your review,
+- [00:14.600] we have 56 subcabinet level appointments.
+- [00:18.730] This includes probably most notably
+- [00:20.590] seven ambassador appointments.
+- [00:22.740] Those will be the first ambassadors
+- [00:24.270] I believe that you've transmitted to the Senate.
+- [00:26.960] The President: Okay. And they're very good. Okay.
+- [00:36.420] Male Speaker: Thank you, sir.
+- [00:37.760] The President: Okay.
+- [00:39.040] Male Speaker: Second, we have acting designations.
+- [00:42.260] We're actually designating Doug Collins
+- [00:44.250] to be the acting leader of both the Office of Special Counsel
+- [00:47.370] and the Office of Government Ethics.
+- [00:51.000] The President: Do you know Doug? Everybody, I think.
+- [00:55.920] He was in charge of the fake impeachment hearings, remember?
+- [00:59.590] That I won very conclusively.
+- [01:02.030] Fake charges by the radical left Democrats.
+- [01:08.080] Okay.
+- [01:10.440] Male Speaker: Next, sir,
+- [01:11.660] the Federal Executive Institute is a program
+- [01:14.170] that was set up during the Johnson administration
+- [01:17.120] to train senior level government bureaucrats.
+- [01:20.180] As you've identified repeatedly in the last few years,
+- [01:24.260] the senior levels of our federal government
+- [01:26.380] are not adequately serving as stewards of taxpayer dollars,
+- [01:29.640] so we're recommending zeroing out that program effectively.
+- [01:34.060] The President: We're actually getting rid of a few programs
+- [01:36.410] that are just a waste. Just really a waste.
+- [01:41.600] Male Speaker: Thank you, sir. Next we have an executive order
+- [01:46.280] relating to the Foreign Corrupt Practices Act.
+- [01:49.310] As you've repeatedly identified,
+- [01:50.860] the way that this act has been enforced over the years
+- [01:54.080] has been devastating to American business opportunities
+- [01:57.140] and business competitiveness abroad.
+- [01:59.770] We're essentially ordering the Department of Justice
+- [02:02.080] to use its prosecutorial discretion
+- [02:04.110] in a way to ameliorate the negative effects
+- [02:06.780] of the Foreign Corrupt Practices Act,
+- [02:08.810] to allow Americans to do business abroad
+- [02:10.950] and to allow our foreign partners
+- [02:12.420] to do business with Americans
+- [02:14.530] without fearing unjust prosecution.
+- [02:17.000] The President: And for those of you that know this,
+- [02:20.440] it sounds good on paper,
+- [02:21.710] but in practicality, it's a disaster.
+- [02:25.040] It means that if an American goes over to a foreign country
+- [02:28.210] and starts doing business over there
+- [02:30.510] legally, legitimately, or otherwise,
+- [02:34.260] it's almost a guaranteed investigation indictment
+- [02:38.710] and nobody wants to do business with the Americans
+- [02:41.020] because of it. Nobody wants to do business.
+- [02:43.020] They say, "Look, we can deal with China.
+- [02:45.080] They can do whatever they want.
+- [02:46.290] We can deal with Russia, we can deal with anybody
+- [02:48.880] and we have a normal life.
+- [02:50.180] You deal with America, the FBI gets over there."
+- [02:52.420] They don't investigate death and murders
+- [02:54.910] on the street in New York and Los Angeles.
+- [02:58.950] They go over and investigate a business guy
+- [03:00.720] trying to do business. So it made it very, very hard
+- [03:04.990] from a practical standpoint to make deals.
+- [03:06.920] They want to deal with the Americans,
+- [03:08.450] but they don't want to be under investigation
+- [03:10.750] every time they speak to American,
+- [03:12.260] every time an American makes a phone call
+- [03:14.790] to somebody in a different country.
+- [03:17.480] It's a disaster for this country.
+- [03:20.100] And I guess it was a Jimmy Carter concept
+- [03:24.650] and it sounds so good, but it's so bad.
+- [03:28.240] It hurts the country and many,
+- [03:30.270] many deals are unable to be made because of it.
+- [03:32.580] Nobody wants to do business,
+- [03:33.780] because they don't want to feel like every time
+- [03:36.140] they pick up a phone, they're going to jail.
+- [03:38.750] So we'll sign this and it takes courage to sign it,
+- [03:43.340] because you only get bad publicity when you sign it.
+- [03:45.710] It sounds so nice. The title is so lovely,
+- [03:48.930] but it's an absolutely horror show for America.
+- [03:52.290] So we're signing it,
+- [03:53.520] because that's what we have to do to make it good.
+- [04:05.450] Okay. Thank you. It's an important one.
+- [04:08.940] It's going to mean a lot more business for America. Okay.
+- [04:13.960] Male Speaker: Thank you, sir.
+- [04:15.160] Next, this is an executive order
+- [04:16.610] relating to the use of paper straws.
+- [04:19.270] As you've consistently identified,
+- [04:21.300] nobody really likes paper straws.
+- [04:22.980] The President: Number one trending.
+- [04:24.320] Can you believe it? A paper straw is number one
+- [04:27.020] trending for three days or something.
+- [04:29.050] Male Speaker: The environmental impact of plastic straws
+- [04:31.460] versus paper straws is entirely unclear.
+- [04:33.780] This has cost both the government
+- [04:35.350] and private industry an absolute ton of money
+- [04:38.430] and left consumers all over the country
+- [04:40.290] wildly dissatisfied with their straws.
+- [04:42.320] So we're asking aspects of the federal government,
+- [04:45.750] federal departments and agencies
+- [04:47.260] to look at their existing procurement processes
+- [04:49.800] and we're asking your domestic policy council
+- [04:51.840] to look holistically at this issue to address it
+- [04:55.140] and it really is something that affects
+- [04:57.050] ordinary Americans in their everyday lives.
+- [04:59.110] The President: We're going back to plastic straws.
+- [05:00.560] These things don't work.
+- [05:02.420] I've had it many times and on occasion,
+- [05:04.940] they break, they explode.
+- [05:07.760] If something's hot, they don't last very long.
+- [05:10.170] A matter of minutes. Sometimes a matter of seconds.
+- [05:13.250] It's a ridiculous situation,
+- [05:15.590] so we're going back to plastic straws.
+- [05:18.460] I think it's okay.
+- [05:30.000] And I don't think that plastic's going to affect a shark
+- [05:33.440] very much as they're munching their way through the ocean.
+- [05:36.930] Okay.
+- [05:38.180] Male Speaker: Thank you, sir.
+- [05:39.380] Next we have a full and unconditional pardon
+- [05:42.230] for former governor Rod Blagojevich
+- [05:44.230] of the State of Illinois.
+- [05:46.210] The President: Good. It's my honor to do it.
+- [05:48.640] I've watched him. He was set up by a lot of bad people.
+- [05:53.000] Some of the same people that I had to deal with.
+- [05:55.820] He wasn't quite as successful,
+- [05:57.320] but he had somebody that saw what was going on.
+- [06:00.110] I didn't know him, other than I believe
+- [06:01.710] he was on The Apprentice for a little while.
+- [06:04.140] He was just a very nice person. He had a fantastic wife.
+- [06:09.180] She fought like hell to get him out.
+- [06:11.790] He was given a sentence of 18 years
+- [06:16.470] and it was a terrible injustice.
+- [06:21.800] They just were after him. They go after a lot of people.
+- [06:25.000] These are bad people though, the other side,
+- [06:26.960] so I think he's just a very fine person
+- [06:31.790] and this shouldn't have happened
+- [06:33.120] and it shouldn't have happened to him
+- [06:34.490] and let him have a normal life
+- [06:37.420] and let him go out and do what he has to do.
+- [06:40.070] So I'm signing this as a full pardon.
+- [06:42.760] Rod Blagojevich.
+- [06:45.040] Male Speaker: Mr. President,
+- [06:46.340] are you considering him for ambassador of Serbia?
+- [06:50.630] The President: No, but I would.
+- [06:53.680] He's now cleaner than anybody in this room.
+- [06:55.650] He got a pardon. He's cleaner than anybody in the room. Okay.
+- [07:01.000] Male Speaker: Thank you, sir.
+- [07:02.820] Next, in 2018, you imposed ad valorem duties,
+- [07:07.730] tariffs on imports of steel at a 25% rate.
+- [07:11.970] Since that time, a large number of exclusions
+- [07:15.060] and exceptions to that tariff rule have been implemented.
+- [07:20.190] Because of the damage to the United States steel industry
+- [07:23.880] that those exceptions and exclusions have imposed,
+- [07:28.350] this order would reimpose that 25%
+- [07:31.030] ad valorem tariff rate on imports of steel
+- [07:34.920] and it's presented for your signature now.
+- [07:37.260] The President: Okay.
+- [07:38.530] Do you understand what that means?
+- [07:42.430] It's a big deal. It's a big deal.
+- [07:44.640] This is the beginning of making America rich again.
+- [07:55.450] Mr. Secretary, do you have anything to say?
+- [07:58.980] As you know, Howard is Secretary of Commerce.
+- [08:01.450] Doing a fantastic job.
+- [08:03.700] And what do you have to say about it?
+- [08:06.870] Mr. Lutnick: So when you imposed the tariffs the first time,
+- [08:11.800] you added 120,000 jobs.
+- [08:15.110] And since that time, it's been picked away
+- [08:18.230] and nicked away and excluded away
+- [08:20.400] and we've lost 107,000 jobs.
+- [08:22.710] And remember, these aren't just general jobs.
+- [08:24.740] These are steel workers in America
+- [08:27.510] and now you're going to bring them back.
+- [08:29.340] You're going to bring those 120,000 jobs back to America.
+- [08:32.860] You are the president who's standing up
+- [08:34.990] for the American steel worker
+- [08:36.590] and I am just tremendously impressed
+- [08:38.740] and delighted to stand next to you.
+- [08:42.210] The President: So let me just make a statement.
+- [08:46.430] And essentially, this is another way of saying
+- [08:50.500] we're doing a 25% tariff on steel and aluminum.
+- [08:55.650] So the failed American trade policies
+- [08:58.850] have led our once incredible
+- [09:00.170] United States steel and aluminum industries…
+- [09:02.370] Once incredible.
+- [09:03.630] That's once incredible and not now,
+- [09:05.310] but they're not bad.
+- [09:06.880] I saved them, because of my first term.
+- [09:08.830] Totally saved them.
+- [09:10.050] If I didn't do what I did… I put massive tariffs.
+- [09:13.810] Not the highest level, but pretty massive tariffs.
+- [09:18.360] We took in a lot of money and we took in a lot of jobs,
+- [09:21.450] but we were being pummeled by both friend and foe alike.
+- [09:27.320] Our nation requires steel and aluminum
+- [09:29.650] to be made in America, not in foreign lands.
+- [09:32.070] We need to create in order to protect our country's future
+- [09:35.570] resurgence of US manufacturing and production,
+- [09:39.490] the likes of which has not been seen for many decades.
+- [09:43.200] It's time for our great industries
+- [09:45.010] to come back to America.
+- [09:46.310] I want them back to America. This is the first of many.
+- [09:50.470] And you know what I mean by that.
+- [09:51.840] We're going to be doing others on other subjects,
+- [09:55.080] topics protecting our steel and industries is a must.
+- [09:58.970] And today I'm simplifying our tariffs in steel and aluminum
+- [10:02.690] so that everyone can understand exactly what it means.
+- [10:05.950] It's 25% without exceptions or exemptions.
+- [10:09.740] And that's all countries,
+- [10:11.000] no matter where it comes from, all countries.
+- [10:13.420] If made in the United States, however,
+- [10:16.200] United States of America, there is no tariff.
+- [10:19.120] Tariff is zero.
+- [10:20.760] So if it's made in the United States, there is no tariff.
+- [10:24.860] All you have to do is make it in the United States.
+- [10:27.050] We don't need it from another country.
+- [10:29.290] As an example, Canada, if we make it in the United States,
+- [10:32.950] we don't need it to be made in Canada.
+- [10:34.390] We'll have the jobs.
+- [10:35.630] That's why Canada should be our 51st state.
+- [10:38.830] We'll bring back industries and we'll bring back our jobs
+- [10:41.630] and we'll make America's industry great again.
+- [10:44.340] So essentially we're putting on a 25% tariff
+- [10:47.570] without exception on all aluminum and all steel.
+- [10:54.200] And it's going to mean a lot of businesses
+- [10:56.340] are going to be opening in the United States.
+- [10:58.070] Now we're going to be meeting,
+- [10:59.580] over the next four-week period, maybe on a weekly basis,
+- [11:03.560] and maybe we'll do a couple of them
+- [11:05.970] at different times and maybe together.
+- [11:08.740] But we'll be talking about other subjects like cars.
+- [11:13.140] We'll be talking about drugs and pharmaceuticals.
+- [11:17.490] We'll be discussing chips, and we're going to be doing
+- [11:22.520] some other things in addition to that,
+- [11:25.100] all which will bring in a lot of jobs into our country.
+- [11:29.930] Cars is going to be a very big one and a very important one.
+- [11:34.280] And America is going to be stronger
+- [11:35.680] than it ever was before, okay?
+- [11:37.940] So are you finished with everything, I think?
+- [11:39.930] Male Speaker: We have aluminum still to sign here, sir.
+- [11:41.490] The President: Okay, let's go.
+- [11:42.740] Male Speaker: So with respect to aluminum,
+- [11:44.220] similarly to steel, since 2018, a large number of exceptions
+- [11:47.910] and exemptions have been added into the law.
+- [11:50.080] This eliminates all of those
+- [11:51.400] and also increases the ad valorem tariff rate
+- [11:54.510] from 10% to 25%.
+- [11:58.260] The President: Mostly the last part
+- [11:59.470] is the most important, right? Would you say?
+- [12:02.260] Male Speaker: Totally.
+- [12:03.590] The President: So basically this is aluminum, the same thing.
+- [12:06.440] No exceptions, no nothing.
+- [12:08.670] And it's going to bring our aluminum business back
+- [12:11.580] and may go higher.
+- [12:12.790] I mean, frankly, it may go higher.
+- [12:14.940] And we're going to also be talking about receptive …
+- [12:18.130] We're going to be talking about things over the next three weeks
+- [12:21.310] that I think will be amazing for our country,
+- [12:25.670] amazing for our jobs,
+- [12:28.080] and will bring us to a new level of prosperity.
+- [12:31.690] And I think frankly, our allies
+- [12:34.990] and our enemies all over the world expected this.
+- [12:38.650] They really expected it for years.
+- [12:41.570] They really expected it sometime during the Biden administration,
+- [12:44.940] but they didn't do anything.
+- [12:46.350] As you know, I put tariffs on China.
+- [12:49.160] We took in hundreds of billions of dollars with those tariffs
+- [12:52.080] and Biden wasn't able to get them them out.
+- [12:54.530] He tried to, but it was too much money, he couldn't do it.
+- [12:57.900] And we're going to be doing a very concise …
+- [13:01.000] And it's going to be good.
+- [13:03.900] And I don't think, if done properly,
+- [13:07.200] and we're going to try and do that,
+- [13:08.930] we don't want it to hurt other countries.
+- [13:10.740] But they've been taking advantage of us
+- [13:13.040] for years and years and years, and they've charged us tariffs.
+- [13:18.090] Most of them have charged us, almost every one,
+- [13:20.200] I would say almost without exception.
+- [13:21.530] Male Speaker: Definitely.
+- [13:22.790] The President: They've charged us
+- [13:23.990] and we haven't charged them. And it's time to be reciprocal.
+- [13:27.700] So you'll be hearing that word a lot; reciprocal.
+- [13:31.920] If they charge us, we charge them.
+- [13:33.940] If they're at 25%, we're at 25%. If they're at 10%, we're at 10%.
+- [13:37.360] And if they're much higher than 25%, that's what we are too.
+- [13:40.970] So that's having to do with everything,
+- [13:44.330] that's not just steel and aluminum.
+- [13:46.460] But we'll be discussing that over the next couple of weeks.
+- [13:49.320] But we will be looking at chips and we will be looking at cars
+- [13:55.250] and we're going to be looking at pharmaceuticals.
+- [13:57.200] And there'll be a couple of other things also, in addition.
+- [14:00.070] The Press: Mr. President. The Press: Mr. President.
+- [14:01.300] The Press: Mr. President. The Press: Mr. President.
+- [14:02.520] The President: Yes. The Press: [inaudible]
+- [14:03.730] The Press: US steelworkers have said
+- [14:05.350] that they support this move.
+- [14:06.600] What would you say to American consumers
+- [14:07.950] who are worried that prices might go up?
+- [14:09.260] The President: That they do support this move?
+- [14:10.470] The Press: US steelmakers-
+- [14:11.700] The President: I love the steelmakers.
+- [14:12.920] The Press: But what do you say to [inaudible]
+- [14:14.120] The President: Of course they do,
+- [14:15.440] because they want to save their businesses.
+- [14:17.000] US steel will now be a very valuable company.
+- [14:19.690] Anybody that makes steel is going to be great.
+- [14:21.960] Anybody that works in big steel is going to be very happy.
+- [14:25.450] The Press: What do you say to consumers
+- [14:26.770] who are worried about prices, sir?
+- [14:28.000] The President: Oh, I don't think you're going to …
+- [14:29.230] No, you're going to ultimately have a price reduction
+- [14:31.260] because they're going to make their steel here.
+- [14:32.920] There's not going to be any tariff.
+- [14:34.500] These foreign companies will move to the United States,
+- [14:37.070] will make their steel and aluminum in the United States.
+- [14:38.930] The Press: Mr. President.
+- [14:40.220] The Press: [inaudible]
+- [14:41.420] The President: Ultimately, it'll be cheaper,
+- [14:42.620] but we'll also have jobs, many, many more jobs.
+- [14:45.580] The Press: Sir, what are you looking at in terms of tariffs
+- [14:47.250] on cars and chips?
+- [14:48.630] The President: Well, we're looking at numbers
+- [14:49.990] and we'll be coming up with a number.
+- [14:51.510] But we make some of the finest cars in the world
+- [14:57.440] and some companies prohibit us
+- [14:59.070] from selling those cars in their countries.
+- [15:01.040] But they sell us cars, they send cars to us
+- [15:04.400] and we don't do that. We charge nothing or 2.5%.
+- [15:08.310] And they'll be charging 100%.
+- [15:10.880] They'll be charging much more than that
+- [15:12.390] if you look at some of them. So I think those days are over,
+- [15:17.620] but we'll be announcing on other things such as cars.
+- [15:22.320] We got some other things we'll be doing.
+- [15:25.080] But the biggest thing is reciprocal.
+- [15:26.740] We want tariffs to be fair.
+- [15:28.680] If they charge us, we charge them.
+- [15:31.060] The Press: [inaudible 00:15:37] the reciprocal tariffs?
+- [15:34.210] The President: We'll be doing reciprocal over the next,
+- [15:36.860] I would say two days, don't you think?
+- [15:38.350] Two days, yeah. Maybe.
+- [15:39.550] The Press: Mr. President.
+- [15:40.820] The Press: Mr. President, the Australian Prime Minister
+- [15:42.450] has said that you are considering an exemption
+- [15:44.850] from Australia on steel. Is that correct, and why?
+- [15:47.490] The President: I just spoke to him, very fine man.
+- [15:49.830] And he has a surplus.
+- [15:52.220] I mean, we have a surplus with Australia, one of the few.
+- [15:56.390] And the reason is they buy a lot of airplanes.
+- [15:58.740] They are rather far away and they need lots of airplanes.
+- [16:02.090] And we actually have a surplus.
+- [16:03.930] It's one of the only countries which we do.
+- [16:05.890] And I told him that that's something
+- [16:08.870] that we will give great consideration to.
+- [16:10.630] The Press: And would you consider one for the UK as well?
+- [16:13.040] The President: Well, we have a huge deficit with the UK.
+- [16:15.380] Big difference.
+- [16:16.700] The Press: You don't have a deficit with Argentina.
+- [16:18.310] Is that country also going to be [inaudible]?
+- [16:19.810] The President: We have a little deficit with Argentina,
+- [16:24.220] almost with every country.
+- [16:25.720] But Australia because of the airplanes,
+- [16:27.460] they buy a lot of airplanes.
+- [16:30.000] There's a little bit of a surplus.
+- [16:31.620] The Press: Mr. President,
+- [16:32.830] if other countries retaliate, what-
+- [16:35.110] The President: I don't mind.
+- [16:36.490] The Press: What is your plan for, for example, farmers?
+- [16:38.960] Last term, you gave [inaudible] again?
+- [16:40.570] The President: Well, the farmers are going to be helped greatly.
+- [16:42.950] Yeah, the farmers are going to be helped greatly
+- [16:45.210] because they're not going to be
+- [16:48.390] dumping everything into our country.
+- [16:50.350] This will be a great bill for farmers.
+- [16:52.870] And in terms of retaliation, if they retaliate,
+- [16:56.500] it's, as I said, it's reciprocal.
+- [16:59.620] So if they raise it a little bit,
+- [17:01.890] then we raise it automatically.
+- [17:03.270] So I don't think it helps for them to retaliate.
+- [17:06.090] But also remember this, they can't really retaliate
+- [17:08.570] because we're the piggy bank. We're the piggy bank.
+- [17:10.800] But if we don't do this,
+- [17:12.180] we won't be the piggy bank for long.
+- [17:13.710] We won't be much of a country.
+- [17:15.770] The Press: Mr. President, did you see that report, sir,
+- [17:17.570] that Hamas was going to stop releasing Israeli hostages,
+- [17:20.510] and what was your reaction?
+- [17:21.750] The President: I think it's terrible.
+- [17:23.010] Look, I looked at the hostages that came in
+- [17:25.850] and they're emaciated.
+- [17:27.920] It looked like something out of the 1930s.
+- [17:32.710] It's an absolute disgrace.
+- [17:35.670] And I think they saw the way the world viewed it
+- [17:38.690] and they're looking for a reason not to send more
+- [17:40.740] because they were all …
+- [17:42.030] You take a look at that, it looked like
+- [17:44.600] it was a concentration camp, which essentially it was.
+- [17:48.940] Looks like they came out of the Holocaust and what a sad thing.
+- [17:54.390] One of them was a young man, good-looking guy,
+- [17:59.060] a little bit heavier than perhaps he could have been,
+- [18:02.850] and now he looks like he's not even recognizable.
+- [18:06.580] Not even recognizable.
+- [18:07.860] The Press: Is the ceasefire deal at risk of falling apart?
+- [18:11.380] The President: Look, I can tell you that those people
+- [18:15.690] have been badly hurt, both mentally and physically.
+- [18:20.220] I'm talking about the young women
+- [18:21.580] that came out also previously.
+- [18:24.310] And I think one of the reasons they're doing this
+- [18:26.140] is because they're probably sending the best.
+- [18:28.420] What you see is probably the best,
+- [18:31.260] because they want to send people that look at least healthy.
+- [18:36.970] And that's not healthy.
+- [18:38.370] These people have been badly hurt.
+- [18:41.260] They've been interviewed by our representatives,
+- [18:43.950] they've been interviewed by Israeli representatives,
+- [18:46.370] and they're really hurting.
+- [18:48.640] They are really hurting mentally and physically.
+- [18:52.180] And I think Hamas is looking at that
+- [18:53.960] and saying, well, it's not going to get much better than that
+- [18:56.980] because they probably send out their best as a representative
+- [19:01.120] and they've got more to send out.
+- [19:02.810] And they probably feel that they can't do that
+- [19:06.350] because it's not going to make them look very good.
+- [19:09.740] The Press: [inaudible]
+- [19:12.160] Should the ceasefire then be off?
+- [19:14.170] The President: Well, I would say this
+- [19:15.380] and I'm going to let that be
+- [19:16.670] because that's Israel's decision.
+- [19:18.200] But as far as I'm concerned, if all of the hostages
+- [19:21.720] aren't returned by Saturday at 12 o'clock,
+- [19:25.420] I think it's an appropriate time,
+- [19:27.740] I would say cancel it and all bets are off
+- [19:31.320] and let hell break out.
+- [19:34.040] I'd say they ought to be returned
+- [19:35.670] by 12 o'clock on Saturday.
+- [19:37.220] And if they're not returned, all of them,
+- [19:39.060] not in drips and drabs, not two,
+- [19:41.470] and one, and three, and four, and two.
+- [19:47.450] Saturday at 12 o'clock, and after that,
+- [19:50.850] I would say all hell is going to break
+- [19:55.640] and I don't think they're going to do it.
+- [19:57.170] I think a lot of them are dead.
+- [19:59.260] I think a lot of the hostages are dead.
+- [20:01.360] I think it's a great human tragedy what's happened,
+- [20:08.060] how people can be that mean to do.
+- [20:12.430] The one guy was laughing when a hostage,
+- [20:17.560] he thought his family was alive, found out the family was dead.
+- [20:23.030] And his captor, so to speak, his captor started laughing
+- [20:27.530] because he thought it was so funny.
+- [20:29.180] This is a different group of people.
+- [20:31.900] No. I would say Saturday at 12:00, we want them all back.
+- [20:35.110] I'm speaking for myself, Israel can override it.
+- [20:38.350] But from myself, Saturday at 12:00
+- [20:41.780] and if they're not here, all hell is going to break out.
+- [20:48.500] The Press: Mr. President, in the interview this weekend,
+- [20:49.980] you said that Palestinians would not be guaranteed
+- [20:52.110] the right to return to Gaza if the US were to develop it.
+- [20:55.150] What did you mean by that and under what [inaudible]?
+- [20:57.030] The President: We've spoken to a lot of Palestinians.
+- [20:58.800] They would love to leave Gaza if they could find a place to be.
+- [21:02.160] And I've spoken to various leaders of various countries
+- [21:05.830] in the not so distant area
+- [21:08.970] from where we're talking about, the Gaza Strip,
+- [21:12.580] and I think they were very positive about providing land.
+- [21:17.140] What we need is land,
+- [21:18.520] and if we could build a nice place for people
+- [21:21.580] to live safely, everybody in Gaza would do it.
+- [21:25.340] They've been persecuted. They've been spit on.
+- [21:28.980] They've been treated like trash
+- [21:31.260] and they would love to get out of Gaza,
+- [21:33.100] but until now they never had an alternative.
+- [21:35.970] Now they have an alternative.
+- [21:37.310] And as far as Hamas is concerned,
+- [21:39.510] you're seeing the real Hamas now with the hostages.
+- [21:41.270] The Press: [inaudible]. The President: Yeah?
+- [21:42.480] The Press: Mr. President, on Gaza.
+- [21:45.220] The President: Who are you? From where?
+- [21:46.460] The Press: The Wall Street Journal, sir.
+- [21:47.670] The President: Yeah. That's what I thought.
+- [21:48.970] The Press: The Jordanian leader is coming in to see you.
+- [21:50.730] The President: Yeah.
+- [21:52.020] The Press: Folks in Jordan have expressed-
+- [21:53.300] The President: Tomorrow. The Press: --
+- [21:54.540] opposition to taking in more Gazans, more Palestinians.
+- [21:57.770] How are you going to convince them to do otherwise?
+- [21:59.780] The President: I think he'll take,
+- [22:01.010] I mean, I do think he'll take.
+- [22:02.220] I think other countries will take also.
+- [22:04.110] They have good hearts. I think they'll take.
+- [22:06.170] The Press: But what about the Palestinians
+- [22:07.560] who just won't leave?
+- [22:08.820] Our team has spoken to many in Gaza
+- [22:10.100] [inaudible].
+- [22:11.300] The President: They're all going to leave when they have a place
+- [22:13.360] that's a better alternative.
+- [22:14.660] When they have a nice place that's safe,
+- [22:16.400] they're all going to leave. It's a hellhole right now.
+- [22:18.850] The Press: But how are you so sure?
+- [22:20.110] Will the US force them to leave?
+- [22:22.210] The President: You're going to see
+- [22:23.430] that they're all going to want to leave.
+- [22:24.740] The Press: [inaudible].
+- [22:25.940] The Press: Mr. President, when it comes to Saturday
+- [22:27.310] at noon, there's an American hostage
+- [22:30.020] who's still being held by Hamas right now.
+- [22:32.090] Are you worried about [inaudible]?
+- [22:33.490] The President: Look, who knows, are they alive?
+- [22:35.970] Are they not alive? But I saw the condition.
+- [22:38.430] When I saw the condition of the last ones that came out
+- [22:41.020] and the women too, everybody.
+- [22:43.410] The one woman had her hand blown off
+- [22:46.080] because she was trying to stop a bullet being fired at her.
+- [22:48.950] What kind of a situation is that? You saw her.
+- [22:54.810] I just think it's time to either you release everybody.
+- [22:58.650] They're not going to be alive right now.
+- [23:00.250] Based on what I saw over the last two days,
+- [23:04.650] they're not going to be alive for long.
+- [23:07.030] Saturday at 12:00 and after
+- [23:10.370] that it's going to be a different ballgame.
+- [23:13.830] The Press: Mr. President, when you say all hell
+- [23:15.320] is going to break loose,
+- [23:16.540] are you speaking about retaliation
+- [23:18.020] from [inaudible]?
+- [23:19.350] The President: You'll find out. The Press: Okay.
+- [23:20.560] The President: And they'll find out too.
+- [23:21.760] Hamas will find out what I mean.
+- [23:23.630] The Press: Mr. President, [inaudible].
+- [23:24.860] The President: They're going to find out what I mean.
+- [23:26.410] These are sick people and they'll find out what I mean
+- [23:29.000] Saturday at 12:00 [inaudible].
+- [23:30.270] The Press: You have no involvement with the US?
+- [23:31.560] The Press: How about Palestinians from the West Bank.
+- [23:33.810] Are they going to be relocated to?
+- [23:35.220] What's your position on [inaudible]?
+- [23:36.550] The President: Right now, no. Right now they're there
+- [23:38.310] and I assume they want to remain there.
+- [23:40.660] It's different. They're there.
+- [23:42.810] It's never been like what we're talking about
+- [23:44.540] with the Gaza Strip.
+- [23:45.930] The Press: So they're going to continue to [inaudible]-
+- [23:47.530] The President: No, no, I have no plans there.
+- [23:49.290] The Press: Mr. President, regarding the consumer
+- [23:50.890] Financial Protection Bureau, Democrats,
+- [23:52.710] including Elizabeth Warren, have said that by freezing it,
+- [23:55.830] it's giving big banks and giant corporations
+- [23:57.870] to green light to scam families. Your response?
+- [24:01.050] The President: Yeah. Pocahontas, the faker.
+- [24:05.110] That was set up to destroy people.
+- [24:07.140] She used that as her little personal agency
+- [24:11.060] to go around and destroy people
+- [24:13.830] and she's a fake, just like she said,
+- [24:16.430] she was an Indian and she wasn't an Indian.
+- [24:19.360] You have more Indian blood than she has.
+- [24:23.500] She went to college based on the fact that she was an Indian.
+- [24:26.240] She got jobs based on the fact that she was an Indian.
+- [24:28.750] She's a fake.
+- [24:32.210] That was set up to destroy some very good people, and it worked.
+- [24:37.720] It worked. A lot of great people.
+- [24:40.320] I'll tell you before I ever heard the term,
+- [24:42.910] people would come up to me in the Midwest and areas say,
+- [24:46.320] "Sir, I'm being destroyed by them."
+- [24:48.350] They use that to destroy people.
+- [24:50.420] She's a nasty woman. She's a really nasty woman.
+- [24:54.470] Despite her phony beer commercial.
+- [24:58.260] No, we did the right thing.
+- [25:00.470] That was a very important thing to get rid of.
+- [25:02.180] The Press: [inaudible].
+- [25:03.380] The President: And it was also a waste.
+- [25:04.580] Number one, it was a bad group of people running it,
+- [25:06.990] but it was also a waste.
+- [25:09.310] If you looked at when she really ran it,
+- [25:11.710] wow, that was a vicious group of people.
+- [25:14.130] They really destroyed a lot of people.
+- [25:15.600] The Press: And you could confirm it's your goal
+- [25:17.230] is to have it totally eliminated, the agency?
+- [25:18.580] The President: I would say yeah,
+- [25:19.820] because we're trying to get rid of waste, fraud and abuse.
+- [25:23.460] The Press: What's next?
+- [25:24.670] The President: And didn't I hear that somebody made like
+- [25:26.350] $38 million or something running a little agency?
+- [25:30.880] What was her name? What was her name
+- [25:33.030] and what did she do and what was that all about?
+- [25:36.200] All the money that she made. Does anybody know?
+- [25:38.350] The Press: Are you going to-
+- [25:39.550] The President: Yeah, Brian, go ahead.
+- [25:40.780] The Press: Good to see you.
+- [25:41.990] The latest CBS poll has your approval ratings
+- [25:44.460] at an all time high despite all these controversial subjects
+- [25:49.020] and executive orders that you're doing.
+- [25:50.680] Want to get your thoughts on that,
+- [25:51.950] how you've really connected to mainstream America?
+- [25:54.480] The President: Yeah.
+- [25:55.790] I have high approval ratings because I'm using common sense,
+- [26:00.610] whether it's getting men out of women's sports.
+- [26:05.470] Have you seen what goes on with the boxers
+- [26:07.780] and with the weightlifters
+- [26:09.000] and with the swimmers and everything?
+- [26:10.400] That's so ridiculous, but I think it's a 90% issue.
+- [26:15.350] And the amazing thing,
+- [26:16.780] the Democrats are still fighting for it.
+- [26:18.430] It's crazy. It's crazy.
+- [26:19.860] I think we should go to Congress, also.
+- [26:21.880] Have that cemented and make it indelible.
+- [26:26.120] But to me, it's all common sense.
+- [26:29.290] Who wants an open border
+- [26:30.560] where prisons are dumped into our country,
+- [26:33.550] where prisoners are led into our country,
+- [26:35.360] many of whom are murderers,
+- [26:37.750] many of whom murdered far more than one person,
+- [26:40.780] and they're now roaming our country.
+- [26:43.110] Who wants that? It's terrible.
+- [26:45.750] Steve, I'd like you to say a couple of words about it.
+- [26:47.820] The Press: Yes.
+- [26:49.060] Well, as you know, Mr. President,
+- [26:50.310] since you issued your day one executive orders,
+- [26:53.280] border crossings are down approximately 95%.
+- [26:56.710] You talk to agents on the line,
+- [26:58.460] in their entire careers they've never seen crossing days
+- [27:01.290] as low as what they're experiencing right now.
+- [27:03.970] The cartels, in fact, are enormously frustrated
+- [27:06.440] because they've never seen a clampdown like this
+- [27:08.300] before in American history.
+- [27:09.990] There are people who were working at Border Patrol back
+- [27:11.680] when it was at INS in the 80s and 90s.
+- [27:14.040] They've never seen a date like this.
+- [27:15.420] That's because you've mobilized the 10th mounted division
+- [27:18.210] and the Marines, the entire US military.
+- [27:20.210] They're erecting physical miles of barrier,
+- [27:23.010] temporary and ultimately permanent every single day.
+- [27:25.740] You have all of your border agents push to the front line.
+- [27:28.100] They're not doing the humanitarian processing
+- [27:31.040] that Biden was doing.
+- [27:32.390] They're doing law enforcement and national security.
+- [27:34.820] They're interdicting weapons and drugs.
+- [27:36.760] They're interdicting violent, high threat criminals,
+- [27:40.220] and the US military is repatriating illegal immigrants
+- [27:42.840] at a pace in a skill
+- [27:44.090] that has never occurred before in American history,
+- [27:46.400] and those who are committing human trafficking
+- [27:48.070] and child trafficking are being prosecuted for felony offenses
+- [27:51.340] and they'll be doing hard time in jail.
+- [27:53.290] There's never been a lockdown like what you have
+- [27:55.420] implemented through your orders and visions
+- [27:57.100] since you took the oath of office.
+- [27:58.540] The Press: What's your thoughts on DOGE?
+- [27:59.800] Wednesday at 10:00 AM, they're having a first subcommittee
+- [28:02.400] going to focus on the fraud and Medicaid.
+- [28:04.200] The President: Yeah, before I discuss that,
+- [28:05.440] I just want to add to what Steve said,
+- [28:07.710] and we want people to come into our country,
+- [28:09.670] but we want them to come in legally.
+- [28:11.320] They have to go through a process
+- [28:13.570] and we have to know that they haven't killed nine people
+- [28:16.870] or they haven't killed in one case, five people,
+- [28:21.220] and they're out on the loose
+- [28:22.460] and we're all looking for that particular individual.
+- [28:24.860] This was all let in by Biden and the group of stupid people,
+- [28:30.220] bad people and stupid people.
+- [28:33.170] Some are bad, some are stupid, some are both,
+- [28:35.910] but I'll tell you what, what they've done to this country,
+- [28:38.380] but we're cleaning it up. And hard to believe,
+- [28:41.770] I can say it'll be better than ever before,
+- [28:43.900] but we have a lot of bad people we have to get at.
+- [28:46.460] We're searching out for a lot of them.
+- [28:48.460] I think Tom Holman and Kristi are doing an unbelievable job.
+- [28:52.600] Kristi Noem, they're doing an unbelievable job
+- [28:55.730] and taking out massive numbers of people,
+- [28:58.790] and you notice every country is accepting those people back.
+- [29:01.510] Remember everyone said, "Oh, they'll never accept them."
+- [29:03.510] They're all taking them back. They have to.
+- [29:05.590] They're all taking them back.
+- [29:06.940] Every single country is taking them back.
+- [29:08.840] I don't know if they want them or not.
+- [29:10.280] I don't imagine they do, but they're taking them back.
+- [29:11.730] The Press: [inaudible].
+- [29:12.930] The Press: Mr. President, back on Gaza.
+- [29:16.630] You talked with Fox News about the billions of dollars
+- [29:19.760] we pay for Jordan and Egypt every year.
+- [29:23.150] Would you withhold aid to these countries
+- [29:25.210] if they don't agree to take in the Palestinians?
+- [29:27.710] The President: Yeah, maybe.
+- [29:29.010] Sure, why not? You mean, if they don't agree?
+- [29:31.060] The Press: Is that part of the deal that you mentioned?
+- [29:32.520] The President: If they don't agree,
+- [29:33.810] I would conceivably withhold aid, yeah.
+- [29:35.620] The Press: Are you going to talk to Prime Minister Netanyahu
+- [29:39.620] about the Saturday deadline?
+- [29:40.990] The President: Sure.
+- [29:42.250] I mean, it's just my deadline, but they may change it,
+- [29:45.330] but I've seen too many people come out, they look like
+- [29:52.110] Holocaust victims from many years ago.
+- [29:57.280] I've never seen anything like it.
+- [29:58.670] I didn't think this could happen in this world today.
+- [30:01.350] We think we have a civilized world.
+- [30:02.930] It's not civil.
+- [30:04.280] These are bad people we're dealing with.
+- [30:07.120] So that would be my suggestion.
+- [30:10.150] And he can open it up or not open it up,
+- [30:11.570] but that would be my…
+- [30:12.830] Do you have anything to say about that?
+- [30:14.220] You're commerce, but you have a lot to say
+- [30:15.870] from the standpoint of your faith
+- [30:18.010] and your religion. Go ahead.
+- [30:19.730] Mr. Lutnick: So it's amazing that four years of nothing
+- [30:24.740] and then you come in and you immediately start
+- [30:28.420] to move the needle. You have hostages coming out.
+- [30:31.750] You send Steve Witkoff who's done an amazing job for you.
+- [30:35.080] You're changing the Middle East.
+- [30:37.140] You're supporting your ally, Israel.
+- [30:39.200] And I, for one, can't be more impressed with the outcomes
+- [30:42.820] that you have driven and choosing this Saturday
+- [30:45.110] to save people's lives or just be done with it.
+- [30:47.320] It seems like just the right choice.
+- [30:49.140] The President: But I think it's time
+- [30:50.470] to come up with a date.
+- [30:51.700] Mr. Lutnick: Totally.
+- [30:52.920] The President: What are we going to do?
+- [30:54.130] Keep every week, two people, three people?
+- [30:57.500] No. I don't think you can do that anymore.
+- [31:00.670] These are very seriously endangered people.
+- [31:04.650] These are endangered people.
+- [31:06.490] I don't think they're going to last very long.
+- [31:10.200] The people that came out yesterday,
+- [31:12.640] they wouldn't last very long.
+- [31:14.380] The Press: Were you ruling out any US involvement
+- [31:16.480] in whatever happens after this deadline?
+- [31:18.270] The President: We'll see what happens.
+- [31:19.540] We'll just see what happens.
+- [31:20.750] The Press: Will you talk with Zelenskyy this week, sir?
+- [31:22.430] The President: Yeah, probably.
+- [31:23.890] The Press: By telephone, which [inaudible]-
+- [31:25.130] The President: He wants to make a deal.
+- [31:26.410] Let's see. We'll see.
+- [31:27.880] The Press: [inaudible].
+- [31:29.220] The President: We're dealing with them,
+- [31:30.480] and I think they both want to make a deal,
+- [31:33.060] but we'll have to see. It's got to be done.
+- [31:34.510] The Press: What is Zelenskyy [inaudible]-
+- [31:35.880] The President: It would've never happened
+- [31:37.090] if I were president. This would never have happened.
+- [31:38.900] Millions of people are dead.
+- [31:40.790] The Press: What will Zelenskyy have to give up if anything?
+- [31:43.360] The President: We'll talk about that later because-
+- [31:45.360] The Press: Your reaction to a judge say continuing a pause
+- [31:47.890] on the Buyout Program for federal workers.
+- [31:49.620] The President: Well, I don't know
+- [31:50.880] how you can lose a case like that.
+- [31:53.720] We're talking about people, everybody.
+- [31:56.060] I got elected on making government better,
+- [31:59.960] more efficient and smaller, and that's what we're doing.
+- [32:03.820] And I think it was a very generous buyout actually.
+- [32:07.480] Also, if people don't show up to work,
+- [32:09.210] we have a right to fire them, and they have an option.
+- [32:12.660] They can show up to work or not.
+- [32:13.960] If they don't want to show up to work, then let them work…
+- [32:15.880] Because then the next step is have you worked before?
+- [32:18.910] Have you worked during this time
+- [32:20.510] that you're supposed to be working?
+- [32:21.810] You'll find many of those people,
+- [32:23.060] in my opinion, have had other jobs.
+- [32:25.420] Even though they're collecting money
+- [32:26.850] from the federal government.
+- [32:28.080] Many have had, in my opinion, other jobs.
+- [32:31.610] If they did, that's a big problem.
+- [32:34.390] The Press: If the buyouts are blocked in court,
+- [32:35.960] will you instead pursue layoffs in federal departments?
+- [32:40.070] The President: I don't know how they can…
+- [32:41.720] This is free will.
+- [32:42.930] This is a buyout where people, they were offered a good deal.
+- [32:48.030] Many people have taken that as you know,
+- [32:50.530] but many of those people,
+- [32:51.910] and we talk about reporting to work.
+- [32:55.350] I happen to be a believer that you have to go to work.
+- [32:57.470] I don't think you can work from a home.
+- [32:59.970] I don't know.
+- [33:01.250] There's a whole big, "Oh, you can work from home."
+- [33:03.040] Nobody's going to work from home.
+- [33:04.360] They're going to be going out.
+- [33:06.320] They're going to play tennis. They're going to play golf.
+- [33:08.090] They're going to do a lot of things.
+- [33:09.320] They're not working.
+- [33:10.790] It's a rare person that's going to work.
+- [33:12.390] You might work 10% of the time, maybe 20%.
+- [33:15.370] I don't think you're going to work a lot more than that.
+- [33:17.950] And I think they have an obligation to work
+- [33:20.020] and they have an obligation not to have a second job
+- [33:22.950] when they're supposed to be working
+- [33:24.170] for the federal government.
+- [33:25.530] You're going to find that a lot of these people
+- [33:27.040] have second jobs. Instead of working for,
+- [33:29.780] they'll be collecting a federal government check
+- [33:32.230] and they'll be working two jobs, and that's big trouble for them.
+- [33:36.910] The Press: [inaudible] Congress?
+- [33:38.110] The Press: You've said a lot about South Africa
+- [33:39.780] in the last two weeks. The President: Yeah.
+- [33:41.050] The Press: It's hosting the G20 Summit this year.
+- [33:42.890] Are you planning to attend this or are you skipping it
+- [33:45.350] and telling your cabinet to not-
+- [33:46.930] The President: Well, we'll see what happens.
+- [33:48.200] But the South African situation is very, very dangerous
+- [33:51.930] and very bad for a lot of people.
+- [33:54.680] There's tremendously bad things going on,
+- [33:57.980] including the confiscation of property
+- [34:00.820] and worse, much worse than that.
+- [34:02.460] You know what I'm talking about And we're not making any payment
+- [34:05.610] until we find out what's going on in
+- [34:06.950] South Africa. Yes, please.
+- [34:08.230] The Press: What's next-
+- [34:09.450] The Press: [inaudible] for General Kellogg
+- [34:10.660] going to Ukraine this week, sir, soon?
+- [34:13.170] The President: Yeah, it's Keith Kellogg.
+- [34:14.750] General Kellogg is an excellent guy
+- [34:18.390] and he's spending time doing various things.
+- [34:21.350] We have numerous people working on numerous different problems.
+- [34:25.420] When I left office, was it long ago?
+- [34:29.960] A little more than four years ago.
+- [34:31.340] We had no wars. We didn't have problems.
+- [34:34.150] Now, we've got the whole world is blowing up,
+- [34:36.380] but we'll put out the fires.
+- [34:37.690] The Press: Have you've been talking to Vladimir Putin?
+- [34:40.220] Are you trying to set up a meeting with him?
+- [34:43.050] The President: Well, I can't tell you what I'm talking about,
+- [34:45.500] but we are talking as a group also.
+- [34:50.210] I think I'd like to make a deal, but it takes two to tango.
+- [34:54.410] The Press: And so you can't give us any more clarity
+- [34:56.560] on whether you personally have spoken to-
+- [34:58.480] The President: I don't want to talk about it.
+- [34:59.800] No, I don't want to talk about it.
+- [35:01.040] It's not going to help you to know,
+- [35:03.210] but we would like to get a deal done if possible.
+- [35:05.510] Only because in my case, to save lives.
+- [35:09.140] We're much further away.
+- [35:10.410] Remember, we have an ocean separating.
+- [35:14.640] They don't. Europe should be paying what we're paying,
+- [35:18.100] and Europe has done it more in the form of a loan than with us.
+- [35:21.440] We just give it.
+- [35:22.680] Biden gives it because he's not a smart individual,
+- [35:25.340] not a very smart individual.
+- [35:27.910] We have people over there today who are making a deal
+- [35:31.390] that as we give money, we get minerals and we get oil,
+- [35:33.910] and we get all sorts of things because why are we doing this
+- [35:36.600] and all this money we're in for maybe 350 billion,
+- [35:41.600] and Europe's in for a hundred billion.
+- [35:43.830] And Europe's in really as a form of a loan.
+- [35:46.990] In theory, they get that money back.
+- [35:48.630] In theory, they get interest on their money.
+- [35:50.440] It's a whole different ballgame.
+- [35:53.220] And Biden is the one that started doing this.
+- [35:55.230] Every time Zelenskyy came here,
+- [35:56.740] he walked away with 60 to a hundred billion dollars.
+- [35:59.910] I think he's one of the greatest salesmen
+- [36:02.200] who've ever lived, by the way.
+- [36:03.560] The Press: Can you discuss your intentions
+- [36:05.320] with the Kennedy Center, which you're now chair of?
+- [36:08.580] The President: So we took over the Kennedy Center.
+- [36:10.250] We didn't like what they were showing
+- [36:11.630] and various other things.
+- [36:13.270] And I had a lot of the board members already, as you know,
+- [36:16.970] and we have some that will be replaced,
+- [36:20.870] but we have, I guess, a whole new group of people going in.
+- [36:26.290] I have Rick Grinnell who's got some experience in that world.
+- [36:29.460] He's very good.
+- [36:30.660] He's going to be handling it on a temporary basis.
+- [36:33.110] I think he'll do a great job,
+- [36:34.450] but we're going to get some great professionals.
+- [36:37.790] I'm going to be chairman of it,
+- [36:38.990] and we're going to make sure that it's good
+- [36:40.750] and it's not going to be woke.
+- [36:43.090] There's no more woke in this country.
+- [36:45.050] This woke has cost us a fortune and cost us our reputation,
+- [36:49.490] but the reputation's coming back very, very rapidly.
+- [36:53.010] Thank you very much everybody.
+- [36:56.460] The penny is gone.
+- [36:57.710] The Press: The penny is gone. Is it nickel next?
+- [37:02.360] The Press: What about the dime?
+- [37:03.560] The President: What about anything?
+- [37:04.810] Good luck. The penny is gone.
+- [37:06.560] The Press: Your message-
+- [37:07.800] The President: The penny cost is government allowed.
+- [37:09.100] Thank you. The Press: [inaudible].
+- [37:10.320] The President: Thank you very much. Thank you.
+- [37:11.670] The Press: Thank you.

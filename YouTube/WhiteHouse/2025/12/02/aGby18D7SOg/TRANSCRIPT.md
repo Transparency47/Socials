@@ -1,0 +1,906 @@
+<!-- source: https://www.youtube.com/watch?v=aGby18D7SOg -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: aGby18D7SOg -->
+<!-- date_published: 2025-12-02T20:38:50+00:00 -->
+<!-- date_accessed: 2026-06-02T02:40:53.384615+00:00 -->
+
+# Transcript: President Trump Makes an Announcement, Dec. 2, 2025
+
+- [00:08.250] The President: Nice to see you again.
+- [00:09.530] It's been a -- that was a long news conference
+- [00:11.510] we had before, wasn't it? But it was a good one.
+- [00:22.220] Okay, well, thank you very much and we're thrilled to be joined
+- [00:27.630] by one of the most successful business leaders
+- [00:31.790] and people anywhere in the country,
+- [00:34.630] whether it's technology --
+- [00:36.690] no matter what business you're talking about,
+- [00:38.380] there's really nobody quite like him.
+- [00:40.410] He's chairman and CEO of Dell Technologies,
+- [00:45.330] make great everything, great computers,
+- [00:47.340] great everything, Michael Dell, and very much of a legend
+- [00:50.950] who is here with his really exciting announcement.
+- [00:54.480] It's so amazing. And much -- much more importantly,
+- [00:58.790] he's here with his wonderful wife, Susan,
+- [01:01.670] and they have a special relationship.
+- [01:04.210] I think I can say that, really.
+- [01:05.480] It's very nice. I don't see too much of it.
+- [01:08.500] I see the opposite, but I don't see too much.
+- [01:10.780] They have a special -- two special people
+- [01:13.440] and I've seen that. I've known that for a long time
+- [01:16.040] and I think it's a tremendous thing.
+- [01:18.780] Also, the CEO of Altimeter Capital, Brad Gerstner.
+- [01:24.890] Where are you, Brad?
+- [01:26.350] Brad, Brad? Brad Gerstner is a terrific fellow
+- [01:30.090] who's very much involved in this incredible thing
+- [01:33.540] that we're doing today,
+- [01:34.930] along with the speaker of the House, Mike Johnson;
+- [01:37.220] Treasury Secretary, Scott Bessent;
+- [01:39.700] Chairman of the Senate Committee on Commerce
+- [01:42.100] and Science and Transportation, Ted Cruz;
+- [01:45.420] House Ways and Means Committee Chairman, Jason Smith;
+- [01:48.760] Vice Chairman of the House Republican Conference,
+- [01:51.670] Blake Moore; as well as the Chief Design Officer
+- [01:54.640] of the United States, Airbnb co-founder, Joe Gebbia.
+- [02:00.860] I want to thank you all for being here.
+- [02:02.750] It's a great group.
+- [02:04.780] And I guess a potential fed chair is here too.
+- [02:08.610] I don't know, are we allowed to say that, potential.
+- [02:12.880] He's a respected person that I can tell you.
+- [02:15.820] Thank you, Kevin. Today is giving Tuesday.
+- [02:20.540] I don't know if anybody has heard that one before,
+- [02:23.420] but it is indeed giving Tuesday,
+- [02:26.140] one of the biggest days of the year
+- [02:27.950] for philanthropy and charitable giving.
+- [02:30.730] And this afternoon, Michael and Susan Dell
+- [02:33.710] are committing to one of the largest private donations
+- [02:36.350] in American history, which will directly benefit
+- [02:39.570] the next generation of American children
+- [02:41.740] through the new Trump Accounts program
+- [02:44.470] that we created in our One Big, Beautiful Bill.
+- [02:48.410] And Michael and Susan came to see me along with Brad
+- [02:51.250] and they said, you know, this is an idea and I said, I --
+- [02:55.350] I think -- you know, it sounded so good and so unique,
+- [03:00.440] but that's why he's been so successful
+- [03:02.590] and they've been so successful in life
+- [03:04.980] and in business, because they're unique.
+- [03:07.810] Trump accounts will be the first,
+- [03:10.890] I guess you could say real trust funds for every American child,
+- [03:14.440] allowing family members,
+- [03:15.770] employers, corporations, generous donors
+- [03:19.110] to contribute money that will be invested and grow
+- [03:22.330] over the course of a child's life
+- [03:24.720] to be used for their benefit after they turn 18.
+- [03:28.750] So in other words, these are children that are going to --
+- [03:31.080] an investment is going to be made.
+- [03:32.780] That investment is going to continue to grow.
+- [03:35.540] We hope, right? We hope.
+- [03:37.900] And -- but it will, and they'll be -- they'll feel like --
+- [03:42.990] they'll feel like Michael Dell someday.
+- [03:45.440] But at 18, they'll have a lot of money,
+- [03:47.800] a lot more money than they would have had.
+- [03:49.470] And potentially, a lot of money,
+- [03:51.750] but these accounts will track the overall stock market
+- [03:54.220] and will be 100 percent private property
+- [03:56.310] controlled by the child's guardians.
+- [03:59.360] In honor of America's 250th anniversary,
+- [04:02.320] the Dells are announcing today
+- [04:04.080] that they are giving $25 million American children,
+- [04:09.120] $250 each to save and to invest in their personal Trump account.
+- [04:15.020] Now, that's the equivalent of $6.25 billion.
+- [04:19.610] In other words, to put it succinctly,
+- [04:23.320] Michael and Susan are giving $6,250,000,000 in total
+- [04:32.480] and as a total contribution.
+- [04:34.520] That's big stuff. I don't care who you are.
+- [04:37.480] That's become -- give me a hand
+- [04:39.320] and let me have a little of that luck rub off on me.
+- [04:45.060] That's fantastic, Susan.
+- [04:46.870] These gifts will be available to the first 25 million children
+- [04:50.410] aged 10 and under the sign the zip codes
+- [04:54.220] where their median income is $150,000 or less.
+- [04:59.280] So they're giving them to children that won't be born,
+- [05:04.240] particularly rich
+- [05:05.560] and they're going to be hopefully very rich someday.
+- [05:08.630] This will give millions of dollars,
+- [05:10.440] millions of children, middle class families,
+- [05:13.550] a stake in American prosperity,
+- [05:16.160] a benefit from the rising stock market
+- [05:18.450] and a better shot at the American dream.
+- [05:20.300] It really gives them a shot at the American dream.
+- [05:23.840] Michael and Susan, I want to thank you
+- [05:25.360] for this extraordinary act of kindness
+- [05:27.270] and patriotism and charity.
+- [05:29.580] This is truly one of the most generous acts
+- [05:32.500] in the history of our country. I mean, you just don't --
+- [05:35.320] you don't hear about things like that
+- [05:36.940] and we got to let people know.
+- [05:38.290] He doesn't want and she doesn't care about that, but I do.
+- [05:42.490] I think when somebody does that,
+- [05:45.280] you got to let them know about it.
+- [05:47.240] As I mentioned, this gift is being made possible
+- [05:49.700] by the largest tax cuts in American history,
+- [05:52.520] which our Republican majorities passed earlier this year.
+- [05:55.540] And the speaker worked so hard and John Thune and Jason
+- [05:59.100] and all of them, every one of them, Ted.
+- [06:01.380] Ted Cruz is with us. He worked so hard getting that done.
+- [06:04.380] That was the biggest,
+- [06:05.600] most consequential bill they say ever passed.
+- [06:09.000] And you know, if they remember, Michael, we were --
+- [06:12.100] they thought we had to put that in 12 to 14 bills.
+- [06:15.510] I said, I don't know if we can hold it
+- [06:17.040] that long with the Democrats
+- [06:19.030] and we said let's try doing it once
+- [06:20.750] and we did and people were surprised,
+- [06:23.970] but we got it done.
+- [06:25.490] So I congratulate you guys, amazing job.
+- [06:27.850] Under that bill, the federal government
+- [06:29.350] will also automatically be making
+- [06:31.780] a one-time seed contribution of $1,000
+- [06:35.370] into the tax deferred Trump accounts
+- [06:37.310] for every newborn US citizen,
+- [06:40.840] fulfilling a promise I made in the 2024 campaign.
+- [06:44.780] Trump accounts should grow to be worth many thousands of dollars
+- [06:48.200] by the time the child is 18 and even more by the time
+- [06:51.800] they are 20 or even 30 years old.
+- [06:54.020] We think it's going to be something really unique
+- [06:56.630] and really special.
+- [06:57.890] We hope many others will follow Michael and Susan's example
+- [07:01.770] and make their own contributions.
+- [07:03.480] I'll be doing it too, to the next generation
+- [07:06.650] including businesses, churches, philanthropists,
+- [07:10.010] family members and parents themselves.
+- [07:12.060] I think we're going to have a lot of people.
+- [07:13.820] Susan, I think a lot of people are going to be a contribute --
+- [07:17.250] a lot of people are watching us right now.
+- [07:19.490] They might not be $6 billion plus, but they'll be a lot.
+- [07:24.270] There aren't too many people
+- [07:25.590] that are in the $6 billion range,
+- [07:27.260] but there'll be a lot.
+- [07:28.480] A lot of friends of mine have already told me
+- [07:30.190] they're going to contribute a lot of money.
+- [07:31.600] A lot of them are going to leave a lot of money in their wills,
+- [07:34.620] so that's very important.
+- [07:36.850] And as you watch us today, I hope you'll be doing that.
+- [07:39.200] Contributions to Trump accounts will also be a great benefit
+- [07:42.850] for employers to offer their workers,
+- [07:45.310] which they'll be able to do tax free.
+- [07:47.840] It's tax free.
+- [07:49.290] We expect hundreds of major companies to announce plans
+- [07:52.060] to contribute to these accounts in the coming months
+- [07:55.170] and we've had tremendous interest in that regard.
+- [07:57.660] So the Trump accounts will be available
+- [08:00.240] starting on July 4th next year.
+- [08:03.360] And Michael and Susan to you again,
+- [08:05.890] it's an amazing act of just incredible everything.
+- [08:10.130] I mean, the life you've led to be able to do this,
+- [08:13.210] even to be able to even --
+- [08:15.200] a lot of people have a good heart,
+- [08:16.930] but they can't give $6,250,000,000.
+- [08:21.670] And Michael, probably knowing you,
+- [08:23.300] it's not the last of it either, it's not the last.
+- [08:25.680] But on behalf of the United States of America,
+- [08:28.720] I want to thank you both.
+- [08:29.930] And I want to thank all three, but I want to thank you both
+- [08:33.150] because you've been friends of mine
+- [08:34.430] and it's a spectacular couple.
+- [08:36.630] This is really an amazing -- an amazing people.
+- [08:41.170] These are unique.
+- [08:43.610] And I'd like to have you come up and say a couple of words
+- [08:46.220] and tell us what you have in mind,
+- [08:48.220] because what you have in mind is good.
+- [08:50.540] Thank you very much, Michael. Thank you very much.
+- [08:52.900] Michael Dell: Thank you, sir. Thank you, Mr. President.
+- [09:00.150] It's a great honor to be with you here in the White House.
+- [09:02.860] And you know, when you passed the Invest America Act on July
+- [09:09.310] 4th of this year, we were really inspired to see that happen.
+- [09:14.960] And this is something that, you know,
+- [09:16.940] Brad had first mentioned to us in 2021.
+- [09:19.900] We thought it was a great idea then
+- [09:21.810] and it's amazing that it happened.
+- [09:24.830] And we also saw that this act would become a platform.
+- [09:32.340] And you know, we believe the smartest investment
+- [09:34.820] that we can make is an investment in children.
+- [09:37.560] And this act has created a platform
+- [09:42.690] for families and friends and communities and companies
+- [09:49.160] and philanthropists to contribute to these accounts
+- [09:52.150] to create a savings and opportunity
+- [09:57.230] and hope and prosperity
+- [09:59.570] for tens of millions of children in this country.
+- [10:04.040] And Susan and I are super excited
+- [10:06.970] to announce our $ 6.25 billion gift
+- [10:11.300] to 25 million American children, 10 and under.
+- [10:16.480] And our gift will cover most of the children
+- [10:19.460] that are 10 and under that are not part of the federal program,
+- [10:24.030] the 0 to 2 year olds, and who also live in zip codes
+- [10:27.930] where the median income is $150,000 or less.
+- [10:32.920] And I have spoken with a number of other wealthy Americans,
+- [10:38.290] philanthropists,
+- [10:39.540] and we are confident that others will join us
+- [10:43.500] because we all understand the incredible impact
+- [10:47.650] that a gift like this can have on the lives of young Americans.
+- [10:52.630] So again, it's a great honor for us to be here
+- [10:54.730] to be able to announce this.
+- [10:56.700] You know, when I was eight years old,
+- [10:59.180] I got a passbook savings account
+- [11:00.770] and I had, I think about $8 in it.
+- [11:04.390] And you go to the savings and loan
+- [11:06.090] and you'd give them a quarter and they'd stamp your account.
+- [11:09.020] And I got to see the power of compound interest
+- [11:13.270] early in my life and that has brought me here to this moment.
+- [11:18.060] And hopefully, will inspire that kind of opportunity
+- [11:22.610] for many more young people in this country.
+- [11:27.480] So again, thank you for the privilege of being here.
+- [11:29.950] The President: Thank you, Michael.
+- [11:31.220] Thank you, Susan.
+- [11:32.430] So beautiful, thank you very much.
+- [11:34.170] Susan, would you like to say something?
+- [11:37.120] Susan Dell: I'd just like to say how excited we are
+- [11:39.240] to be a part of this.
+- [11:40.850] We believe that when children have a future
+- [11:45.540] that they can see is worth saving for,
+- [11:49.280] then that will help build hope and opportunity and prosperity
+- [11:55.100] for generations to come.
+- [11:56.860] So we're so excited to be doing this
+- [12:00.300] and hope to have many people join in our efforts.
+- [12:03.330] Thank you so much.
+- [12:04.550] The President: Thank you, Susan. So beautiful.
+- [12:06.490] Brad, would you like to say something?
+- [12:10.880] Thank you, Susan.
+- [12:12.510] Brad Gerstner: Well, first, it's an incredible honor to be here
+- [12:15.030] and we wouldn't be here without the passage
+- [12:17.370] of the Invest America Act and everybody on --
+- [12:20.590] up here today played a role in getting that done.
+- [12:23.790] The speaker, Ted Cruz, in drafting the legislation
+- [12:28.560] so that when the president placed the call to the speaker
+- [12:31.040] and said, let's make this happen in the Big,
+- [12:32.700] Beautiful Bill, Congress was ready to act.
+- [12:35.910] They had the legislation drafted.
+- [12:38.260] But I couldn't be more grateful for the friendship
+- [12:40.530] and the partnership of the Dells,
+- [12:42.480] that really show the best of America.
+- [12:44.460] Today is Giving Tuesday, right?
+- [12:46.420] And the fact of the matter is for decades,
+- [12:49.350] we've talked about the wealth gap.
+- [12:51.030] We've talked about too many people left out and left behind.
+- [12:54.630] This president was elected on a Main Street agenda
+- [12:57.520] to get the rest of America into the game
+- [12:59.970] and that's exactly what this does.
+- [13:02.130] It gets every American child, 3.7 million children
+- [13:06.010] born every year will now start life off
+- [13:08.820] with an investment account seeded with $1,000.
+- [13:12.430] And then you're going to have great philanthropists,
+- [13:14.330] great Americans like Michael and Susan,
+- [13:16.560] who are going to add money to those accounts.
+- [13:18.350] We're going to be --
+- [13:19.610] we're overwhelmed with the number of companies
+- [13:21.820] that want to contribute to these accounts,
+- [13:23.420] already companies from Uber to Nvidia,
+- [13:26.010] T-Mobile to Charter Communications,
+- [13:28.310] Dell, etc., the list goes on.
+- [13:29.930] And every day more companies are calling us,
+- [13:32.430] raising their hands and saying we want to be part of this.
+- [13:34.720] It's like a 401-K from birth. It's a benefit for the kids
+- [13:38.020] of our employees, right, major philanthropists.
+- [13:41.150] But I think what this is going to unlock
+- [13:42.690] is the power of families,
+- [13:44.610] moms and dads, Venmo and Apple paying and $5, $10, right,
+- [13:50.060] and getting these kids into the game.
+- [13:52.780] When we had the roundtable at the White House
+- [13:54.310] earlier this year,
+- [13:55.530] Dara Khosrowshahi, the CEO of Uber said,
+- [13:58.210] you know, after fleeing Iran at the age of nine with nothing,
+- [14:01.520] he came to America because it was the land of hope.
+- [14:04.450] And he said what the Invest America Act does
+- [14:06.380] is it bottles up hope for every child in America,
+- [14:10.300] whether you're in rural Mississippi or rural Indiana,
+- [14:12.600] where I came from, inner city Trenton or Compton,
+- [14:15.960] you're now in the game, right? That act alone, I think,
+- [14:20.590] reinvigorates the American dream.
+- [14:23.770] It reinvigorates the idea of free market capitalism.
+- [14:29.160] Too many people are losing faith in you, sir.
+- [14:32.310] By passing the Invest America Act
+- [14:33.910] and getting all these kids into the game,
+- [14:35.980] this is a transformational act in this country
+- [14:39.390] for evermore every child starts off life in the game
+- [14:43.750] with a piece of the American dream
+- [14:45.170] compounding in the upside of America.
+- [14:46.810] So, thank you for having us here.
+- [14:48.850] The President: Mr. Speaker.
+- [14:52.230] Speaker Johnson: I think the Secretary first,
+- [14:56.290] I defer to the brains.
+- [14:59.450] Secretary Bessent: Good afternoon, everyone.
+- [15:01.040] And I think this is a major change in philanthropy
+- [15:05.950] and for American working families.
+- [15:09.340] It is the merging of President Trump's agenda
+- [15:13.510] of parallel prosperity; Main Street meets Wall Street.
+- [15:18.540] For the next five years,
+- [15:20.880] every child born in the US will get a $1,000
+- [15:24.390] Trump account that will be with them and compound
+- [15:28.590] for the next 18 years.
+- [15:30.670] Treasury Department with other branches of government
+- [15:33.320] is going to do financial literacy,
+- [15:35.650] and we are going to make sure that all American families
+- [15:39.830] have a stake in the success of the United States of America.
+- [15:44.030] So, every day when the stock market goes up or down,
+- [15:47.900] and we believe over the 18 years it will go up
+- [15:51.040] and families will learn the power of compounding,
+- [15:54.130] that it will be a game changer.
+- [15:56.830] People who have a stake in the system
+- [15:59.270] and become more and more vested in the system,
+- [16:02.420] they do not want to bring down the system.
+- [16:04.870] They want to make it better.
+- [16:07.560] So, I think we will look back on today
+- [16:10.430] and know that these Trump accounts,
+- [16:13.450] they have started a new age of capitalism
+- [16:19.080] and market interest for the whole country.
+- [16:23.070] I also think that it is a game changer
+- [16:25.590] as we're seeing with Michael and Susan Dell today,
+- [16:29.550] that Americans are the most generous people
+- [16:33.610] in the history of the world.
+- [16:35.190] And the Trump accounts will provide a vehicle
+- [16:38.600] for philanthropists such as Michael and Susan
+- [16:41.470] and many more to contribute. And at Treasury we are working,
+- [16:46.300] so Michael and Susan want to do it for children
+- [16:50.070] born in the past 10 years, a certain income level.
+- [16:54.800] As Brad said, it can be tailored,
+- [16:57.660] it can be to employees,
+- [16:59.500] it could be a philanthropist could adopt a state,
+- [17:02.930] they can adopt a school, they can adopt a zip code,
+- [17:06.240] they can adopt a street.
+- [17:08.220] And so, we will constantly see these accounts be topped up.
+- [17:15.180] For those of you on the Treasury,
+- [17:16.950] we'll be running this on the operational side.
+- [17:19.690] For those of you who would like to,
+- [17:21.270] you can go to TrumpAccounts.gov today
+- [17:25.940] and see the home page that has a basic outline.
+- [17:31.400] These will become operational on July 5th of this year,
+- [17:36.100] and we will have families start signing up for them.
+- [17:40.130] So -- and that home page
+- [17:46.230] will answer all the questions on eligibility and investments.
+- [17:50.620] And then finally, today we're here on Giving Tuesday,
+- [17:54.830] Michael and Susan have led the way.
+- [17:56.990] But I think that there's a chance
+- [17:58.930] that every Tuesday can become giving Tuesday
+- [18:01.650] as more and more philanthropists see the power of this,
+- [18:05.920] of giving to American families, giving to American children
+- [18:09.170] and giving everyone a stake in our great economy.
+- [18:12.130] So, thank you very much.
+- [18:18.830] Speaker Johnson: I'll be brief. There's a lot of symbolism here
+- [18:20.570] today right here on the eve of the 250th anniversary
+- [18:24.430] of the greatest nation in the history of the world.
+- [18:26.690] We are the greatest nation by any objective measure.
+- [18:28.760] We're the most free, most powerful, most successful
+- [18:31.420] and most benevolent nation that's ever been.
+- [18:33.530] And I think what you're seeing here is another exhibit of that.
+- [18:37.770] This idea, this vision came about
+- [18:39.330] because Brad and a couple of smart guys
+- [18:40.880] came up with this idea
+- [18:42.090] and then took a few years to sell the idea to everybody.
+- [18:45.030] And then these visionary legislators over here,
+- [18:47.050] Senator Ted Cruz and Blake Moore in the House and Jason Smith,
+- [18:50.190] the Ways and Means chair, really caught the vision.
+- [18:52.520] And we put it into the Big, Beautiful Bill,
+- [18:54.670] the Working Families Tax Cut.
+- [18:56.170] We've been saying all along that was drafted
+- [18:58.200] to really help lower-
+- [19:00.520] and middle-class earners in America.
+- [19:02.720] And this is one of the great features --
+- [19:04.070] one of the perils of having the Big, Beautiful Bill
+- [19:06.370] and having it all in there together the president
+- [19:07.950] and I have talked about many times
+- [19:09.170] is that there's so many great things in that legislation,
+- [19:11.970] we don't have enough time to talk about all of it.
+- [19:13.530] So, we need a moment to really focus on this.
+- [19:16.700] Giving Tuesday is an appropriate -- a perfect time to do it.
+- [19:20.260] And it's absolutely perfect, I think,
+- [19:23.140] that July 5th becomes the operational date
+- [19:25.550] right after the nation's birthday.
+- [19:27.310] So, what we're going to see here is a model
+- [19:29.570] that I don't think anyone has done anywhere in the world.
+- [19:32.480] They wouldn't have the capability to do it.
+- [19:34.090] They wouldn't have philanthropists
+- [19:35.370] and great Americans
+- [19:36.590] with big hearts like this who've earned their way
+- [19:39.260] and really fulfilled the American dream,
+- [19:41.930] and they have a vision and a desire for more
+- [19:43.980] and more people to do that.
+- [19:45.310] And so now, more and more Americans will.
+- [19:47.740] It kind of evens the playing field in a way, right?
+- [19:50.530] And everybody has an opportunity.
+- [19:51.740] So, we're just excited to be a part of it.
+- [19:54.620] Grateful to the vision, grateful to a president
+- [19:57.430] who leads from the front who understands
+- [19:59.450] the potential of something like this,
+- [20:02.040] and this will be one of the many marquee achievements
+- [20:04.120] of the Trump administration.
+- [20:05.440] This will be one that people will remember for a long,
+- [20:07.130] long time and I think it can change the country.
+- [20:09.130] So, thanks, Mr. President.
+- [20:10.410] Thanks, Brad, all of you for being a part.
+- [20:11.730] Thank you to the Dells, really amazing. Thank you. Sure.
+- [20:13.790] The President: Thank you. Ted, please.
+- [20:19.260] Senator Cruz: Well, I want to congratulate
+- [20:20.550] all the men and women up here.
+- [20:21.810] And Mr. President, I think objectively on the merits,
+- [20:25.690] the case can be made that there has never been a president
+- [20:28.280] who has had a greater positive impact
+- [20:30.360] on the children of America than you have.
+- [20:32.970] And in particular, in this One Big, Beautiful Bill,
+- [20:36.120] I think the two most long-lasting
+- [20:39.670] and far-reaching provisions are, number one,
+- [20:41.720] the school choice provision that you signed into law
+- [20:44.540] that is going to unleash tens of billions of dollars
+- [20:47.090] to scholarships
+- [20:48.290] to low income kids all over the country,
+- [20:50.510] and is going to change the lives of millions of kids.
+- [20:53.230] And the second provision is this provision right here,
+- [20:55.430] the Trump Accounts. These Trump Accounts,
+- [20:59.080] starting on July 4th, every child in America
+- [21:01.980] will have a personal investment account opened for them.
+- [21:04.690] Newborn children will have it seeded with $1,000.
+- [21:08.420] Parents and family and employers can contribute up
+- [21:11.130] to $5,000 a year in a tax-advantaged account.
+- [21:14.750] That money will be invested in the S&P 500,
+- [21:17.370] in the stock market, broad-based equity index account.
+- [21:21.480] Two massive benefits that change this country.
+- [21:23.880] Number one, every child in America
+- [21:26.010] will experience the benefits of compound growth.
+- [21:30.400] Take a little girl born next year.
+- [21:33.040] She's born next year, she has the account opened for her,
+- [21:36.030] $1,000 is automatically seeded,
+- [21:38.160] her parents or family or an employer
+- [21:40.290] puts $5,000 a year each year into that account.
+- [21:43.770] If you assume the historic rate of growth of the S&P 500,
+- [21:47.120] which is 7 percent a year,
+- [21:49.270] by the time that little girl is 18,
+- [21:51.820] she will have $170,000 in that account.
+- [21:56.680] And if she keeps saving,
+- [21:58.620] by the time that little girl is 35,
+- [22:01.150] she will have $700,000 in that account.
+- [22:05.830] That is game changing and we're not talking the children
+- [22:09.390] of Michael and Susan Dell, the children of Donald Trump,
+- [22:11.580] the children of people of great success.
+- [22:13.590] We're talking the kids of a single mom
+- [22:15.960] waiting tables who could have $700,000 saved
+- [22:19.480] by the time she's 35 to get an education,
+- [22:22.410] to start a business, to buy a house.
+- [22:24.570] That changes their whole lives.
+- [22:26.660] But the second benefit and what I'm really excited about
+- [22:29.860] is we are creating a new generation of capitalists.
+- [22:34.350] Every child in America is going to be an owner
+- [22:37.550] of the biggest employers in this country.
+- [22:40.460] We've all seen the sad statistics
+- [22:42.250] of how many kids are losing faith in capitalism.
+- [22:45.780] Well, 10 years from now,
+- [22:47.040] a little boy is going to pull out his phone
+- [22:48.600] and he's going to look at his app
+- [22:50.590] and he's going to see his Trump account.
+- [22:53.180] And instead of thinking of big, bad, scary corporations,
+- [22:56.400] that little boy is going to say I own 50 bucks of Apple;
+- [23:00.420] I own 100 bucks of Dell; I own 75 bucks of McDonald's.
+- [23:04.800] And every child is an owner
+- [23:06.660] of the biggest employers in this country.
+- [23:08.570] That will transform this country.
+- [23:11.290] Mr. President, thank you for signing it.
+- [23:13.950] Let me say, Brad -- this would not be a law
+- [23:17.080] if Brad Gerstner did not pursue it
+- [23:19.320] with absolute dogged determination, relentless --
+- [23:23.480] I've gotten calls and texts from Brad at 6
+- [23:26.150] a.m. and at 2 a.m.
+- [23:28.030] You may sleep less than the president, Brad,
+- [23:29.980] and that is a remarkable thing
+- [23:31.500] because I don't think he sleeps at all.
+- [23:33.840] And finally, I'll just say to Michael and Susan,
+- [23:37.650] incredible Texans, $6.25 billion is extraordinarily generous.
+- [23:43.290] Let me say on behalf of 25 million kids
+- [23:46.690] who just got a gift from Michael and Susan,
+- [23:49.120] and it's not a gift of a video game,
+- [23:51.870] it's not a gift of a bicycle,
+- [23:53.260] it's an investment in their future.
+- [23:55.730] That changes their lives.
+- [23:57.280] And I hope and believe Michael and Susan
+- [23:59.080] are going to inspire millions across the country
+- [24:01.740] to do the same thing.
+- [24:04.180] When Congress passed Section 401(k) of ERISA,
+- [24:08.160] I don't know that anyone realized
+- [24:09.630] how much it would change retirement plans.
+- [24:11.940] There's now trillions of dollars in 401(k) plans.
+- [24:15.880] There are going to be trillions of dollars in these.
+- [24:18.000] These are 401-Ks for kids. And Mr. President,
+- [24:20.910] these Trump accounts exist because you signed them.
+- [24:23.510] Thank you for your leadership. It's an honor to work with you.
+- [24:27.230] The President: Thank you very much, Ted.
+- [24:29.360] Jason, if you would, just say a couple of words,
+- [24:31.690] and Blake come on up for a second.
+- [24:34.170] Jason Smith: Perfect. Thank you.
+- [24:35.440] First, I would just want to thank
+- [24:36.840] Michael and Susan for the kind gift.
+- [24:39.800] What you all have done will be transformational
+- [24:42.790] for 25 million kids.
+- [24:46.140] And a lot of people we can thank
+- [24:48.650] for the provisions in this Big, Beautiful Bill,
+- [24:51.700] but there is no one to think greater
+- [24:54.510] than President Donald Trump.
+- [24:56.180] And I'll tell you this,
+- [24:57.740] out of every executive I've ever worked with,
+- [25:00.860] there's no one that's been more engaging,
+- [25:03.150] no one that has been more involved.
+- [25:05.110] And the only reason why these investment accounts
+- [25:09.530] are in the Big,
+- [25:10.790] Beautiful Bill is because he helped convince
+- [25:14.270] other members of Congress that this is a good idea.
+- [25:17.610] This has been something that has been discussed for a long time,
+- [25:21.560] but no one could ever get it passed.
+- [25:23.700] But who helped get it passed was Donald Trump.
+- [25:26.190] I can tell you that from day one throughout the process
+- [25:29.410] and so that's going to affect millions,
+- [25:32.560] millions of kids in their futures.
+- [25:37.070] The President: Thank you. Blake, please.
+- [25:38.350] Blake Moore: Thank you.
+- [25:39.550] I was not planning or prepared to speak today,
+- [25:41.710] but the gravity of the situation is not lost on me.
+- [25:44.850] I have four boys of my own, 13 and under
+- [25:47.600] and on the heels of a $6 billion announcement,
+- [25:52.430] I hope that that doesn't go without some major headlines,
+- [25:55.690] that I will be making an announcement of my own,
+- [25:57.430] that I will be contributing $60
+- [25:58.830] to each one of my children's accounts today.
+- [26:03.090] Actually, to try to bring some levity to that,
+- [26:08.830] every parent, every grandpa and grandma can now look
+- [26:13.460] and say, I can get my grandkid this little toy or something,
+- [26:17.740] maybe that's going to continue to happen,
+- [26:19.550] but there is a new option and another way for them
+- [26:21.700] to be able to invest and have a lasting legacy.
+- [26:24.090] And as a dad of four kids, seeing kids in our neighborhood,
+- [26:29.030] them to have that opportunity is something
+- [26:31.180] that not every day in Congress,
+- [26:33.160] as I've joked with my colleagues,
+- [26:34.650] is the most productive day in my career.
+- [26:37.620] But to be able to be a part of something like this is --
+- [26:40.710] it makes everything worthwhile.
+- [26:42.560] I'm away from my kids a ton in this job
+- [26:44.930] and being able to be a part of something like this,
+- [26:47.460] a small part that I played,
+- [26:49.310] is something that is transformational
+- [26:51.560] and I'll be able to look back on this
+- [26:53.580] and be so grateful for this opportunity
+- [26:56.620] that I've had to be able to serve in Congress.
+- [26:58.310] The President: Thank you. Blake Moore: Thank you so much.
+- [26:59.520] I appreciate the chance to be here.
+- [27:00.740] The President: Thank you very much.
+- [27:02.510] Would anybody have a question for Michael, Susan?
+- [27:04.650] The Press: Yes.
+- [27:05.960] The President: Brad. Please.
+- [27:07.410] The Press: Yeah, for two -- one for you two, if you could.
+- [27:10.780] Did either of you say you're donating how much?
+- [27:14.250] First off. And for you, Mr. President,
+- [27:16.250] is there an educational value to this
+- [27:18.340] in terms of not just the money in the account,
+- [27:21.240] what can kids learn in this account?
+- [27:23.390] The President: Well, I think they can learn a little bit
+- [27:24.990] about the free enterprise system, about --
+- [27:27.420] they can really learn a lot about how life works,
+- [27:30.780] how business works.
+- [27:32.080] They want to go out and make a living for themselves
+- [27:34.850] because maybe it's going to be a lot more than we think
+- [27:36.750] or maybe it's not going to be quite as much as we think,
+- [27:38.960] depending on what happens with the world and the market.
+- [27:42.170] We'll try and do very well in that regard too,
+- [27:44.430] but there's a lot of learning to be done
+- [27:47.270] and I think this is a big step forward.
+- [27:50.350] The Press: And your reaction?
+- [27:51.650] Did either of you say you're donating how much?
+- [27:56.260] Michael Dell: We already said, it's $6.25 billion.
+- [27:59.150] The Press: No, I mean, what's the reaction
+- [28:00.790] between the two of you, someone came up with the idea?
+- [28:03.030] Michael Dell: Oh, sure.
+- [28:04.250] Oh, well, so we kind of started with a smaller amount,
+- [28:07.830] to be honest,
+- [28:09.170] and we started talking about Texas only at the beginning --
+- [28:13.840] Susan Dell: And adopting the state of Texas.
+- [28:15.370] Michael Dell: Right, right and then --
+- [28:16.600] and we thought about it some more and we thought about --
+- [28:18.800] Susan Dell: Got pretty excited about the idea.
+- [28:20.310] Michael Dell: Yeah, and we went back and forth,
+- [28:22.680] as we do on these things, and we -- we ended up --
+- [28:24.290] Susan Dell: Got more and more excited
+- [28:25.570] and next thing you know --
+- [28:26.770] Michael Dell: This is where we ended up.
+- [28:28.020] Susan Dell: The number kept climbing.
+- [28:29.620] Michael Dell: But a lot of discussion and consideration
+- [28:32.980] over a long period of time to come to this,
+- [28:36.390] and we feel great about it. Susan Dell: Yeah.
+- [28:37.750] I mean, we believe this is the greatest investment
+- [28:39.620] that we could possibly make is in children
+- [28:41.490] and we've been investing in children
+- [28:42.770] for over 26 years with our foundation. And --
+- [28:45.740] Michael Dell: Yeah, and you know,
+- [28:46.970] there are 30 states already that require
+- [28:50.470] at least one semester of financial literacy
+- [28:52.830] and hopefully, all 50 states will do that.
+- [28:55.540] And you know, as children begin to understand
+- [28:59.110] that they have these accounts,
+- [29:01.300] that creates a real need for our schools,
+- [29:05.080] our parents, our community organizations
+- [29:07.510] to really begin to grow financial literacy
+- [29:10.110] in the country, which can only be a good thing.
+- [29:13.420] The President: It's really an amazing moment
+- [29:15.140] that two people would do that kind of a contribution.
+- [29:18.670] I mean, it's just an amazing moment
+- [29:20.860] and it shows you there's a tremendous heart
+- [29:22.950] in great entrepreneurs. These are great entrepreneurs.
+- [29:25.800] They're both great entrepreneurs because he probably
+- [29:28.010] wouldn't have done it without you, to be honest.
+- [29:30.350] That's the way it often works.
+- [29:31.980] And I know this relationship so well.
+- [29:34.140] There could be a lot of truth to that.
+- [29:35.740] But it shows you that there's a big heart
+- [29:38.730] in some pretty tough people. He's a tough cookie,
+- [29:41.450] but he's got a very, very warm spot.
+- [29:46.050] And what you've done, I don't think --
+- [29:47.880] it's going to be talked about for a long time.
+- [29:49.700] It won't be forgotten.
+- [29:52.070] Please, Jeff.
+- [29:53.290] The Press: Thank you, sir.
+- [29:54.490] My question is about the logistics
+- [29:56.190] or the administration of the program.
+- [29:58.070] You obviously want to help poorer children.
+- [30:01.230] How will you help families, perhaps, who don't have access
+- [30:04.070] to computers or internet at home to make this program a reality?
+- [30:07.230] The President: Well, Brad,
+- [30:08.470] you maybe want to answer that question?
+- [30:10.720] The Press: And please, speak into the microphone
+- [30:12.490] if you don't mind.
+- [30:15.490] Brad Gerstner: Well, first, Treasury,
+- [30:17.680] as the Secretary talked about
+- [30:19.380] is going to be administering the program.
+- [30:21.460] And we should just say that Luke Pettit,
+- [30:23.810] the assistant Treasury secretary,
+- [30:26.060] has just done an extraordinary job with the Secretary
+- [30:29.560] in what I think will be the biggest consumer
+- [30:32.540] launch in the history of government.
+- [30:35.760] Sixty million accounts are going to get created next year
+- [30:39.490] and these accounts --
+- [30:42.050] these accounts are going to be, you know, promulgated.
+- [30:46.500] All parents are going to have to do
+- [30:48.010] is to claim the account.
+- [30:49.640] So if they have access to an Android phone
+- [30:51.630] or a public library to go to a computer and gain
+- [30:56.650] And whether they claim it or not,
+- [30:58.630] the account is going to continue to compound.
+- [31:01.070] So they don't have a deadline
+- [31:02.670] by which they have to claim the account.
+- [31:04.560] There's time, right?
+- [31:05.900] And there's going to be a lot of resources.
+- [31:07.770] Think about this, kids in school.
+- [31:10.280] We're going to have schools engaged helping to tell them
+- [31:13.160] that they need to claim their accounts, to educate them, etc.
+- [31:15.880] We're going to run a big public campaign around this.
+- [31:18.810] So we're just getting started. Today is day one.
+- [31:21.760] This is an extraordinary contribution,
+- [31:24.480] but it's the beginning of a drumbeat
+- [31:26.400] you're going to hear for the next six months
+- [31:28.110] leading up to the 250th anniversary of the country.
+- [31:31.120] I don't think there's anybody in the country
+- [31:32.690] who won't have heard about this
+- [31:34.310] by the time we get to July 4th of next year.
+- [31:36.650] And we're going to make sure, listen,
+- [31:38.480] we know that wealthy families
+- [31:40.770] have access to 529 accounts, right?
+- [31:43.870] This is an opportunity and the instruction
+- [31:46.020] was how do we get the 50 million other families into the game?
+- [31:51.200] This is the first time we've done that
+- [31:53.640] because we're auto creating these accounts
+- [31:55.490] for every child at birth.
+- [31:57.020] And so we're going to be very focused
+- [31:59.110] on making sure that every family entitled
+- [32:01.630] to get one of these accounts is able to claim it and get it.
+- [32:05.720] The President: Daniel, do you have a question?
+- [32:07.000] The Press: Yes, sir.
+- [32:08.210] These programs seem to create an opportunity
+- [32:10.940] for parents to create unprecedented financial security
+- [32:14.490] for their children, sir.
+- [32:15.900] Do you believe that these accounts would be
+- [32:17.280] a big part of your legacy when everything goes down?
+- [32:20.050] We've heard talks about you being a legacy as a peacemaker,
+- [32:23.290] but this is a really, really big deal.
+- [32:25.480] The President: I do. Yeah, I appreciate that.
+- [32:26.990] I do think so and I think
+- [32:28.250] it's a big part of everybody up here today.
+- [32:31.070] This was a group that was very instrumental.
+- [32:34.020] And in particular, obviously, Michael and Susan,
+- [32:38.260] it's a big part of their legacy.
+- [32:39.900] You know, they've got a big legacy anyway,
+- [32:42.230] but this is maybe going to be as important or more important
+- [32:46.190] than anything they've done thus far.
+- [32:48.510] It's -- you know, looking back, in 100 years from now,
+- [32:51.470] I think you're going to see some things that are going to --
+- [32:53.460] they'll be talking about this very day.
+- [32:55.860] So thank you for that question. Yes, please.
+- [32:59.260] The Press: Thank you, Mr. President.
+- [33:00.510] These accounts were originally discussed
+- [33:02.160] as a way to incentivize people to have more children.
+- [33:04.570] Are there any other policy proposals
+- [33:06.170] you're looking at like this
+- [33:07.410] to encourage the birth rate to increase?
+- [33:09.600] The President: Well, we are looking at programs.
+- [33:11.610] We're looking at --
+- [33:12.820] there's a certain Australian plan that people are liking
+- [33:15.810] and they're talking about. You know what I mean.
+- [33:18.120] There's a plan where -- not for children necessarily,
+- [33:22.320] but for people, working people.
+- [33:25.530] And we are looking at other things different from this.
+- [33:28.940] I think this is very unique, but different from this,
+- [33:31.570] but very important. Yeah.
+- [33:33.700] The Press: (inaudible) retirement savings --
+- [33:35.140] The President: Say it.
+- [33:36.370] The Press: You mean the Australian retirement --
+- [33:38.040] The President: That's what we're talking about.
+- [33:39.400] Yeah, we're looking at it very seriously.
+- [33:40.890] It's a good plan. It's worked out very well.
+- [33:42.220] Yeah, please.
+- [33:43.430] The Press: Mr. President, can you talk about
+- [33:44.700] what tax benefits these accounts come with?
+- [33:47.830] The information that we just received said
+- [33:49.730] that when a child turns 18,
+- [33:51.540] they'll be treated like traditional IRAs and subject
+- [33:54.310] to a 10 percent withdrawal tax.
+- [33:56.310] The President: Please, Scott.
+- [33:59.130] Secretary Bessent: Sure.
+- [34:02.180] They can access them when they're 18
+- [34:03.780] or they can convert them to an IRA at that time.
+- [34:08.160] During the 18 years, parents or employers can donate
+- [34:14.100] with the tax deduction up to $5,000 into each account.
+- [34:18.880] And then philanthropists, like Michael and Susan,
+- [34:22.540] can add an unlimited amount to the accounts.
+- [34:25.520] So, $5,000 from an employer or families
+- [34:30.110] and then gifts from foundations and philanthropists
+- [34:33.580] can be an unlimited amount.
+- [34:34.870] The Press: Mr. President,
+- [34:36.070] you said that you've been talking to your wealthy friends
+- [34:38.680] as well as you, Mr. Dell, about contributing.
+- [34:40.810] Can you walk us through maybe who you've been talking to
+- [34:43.000] and how much more we can expect on top of what --
+- [34:44.800] The President: I think we probably would think
+- [34:46.940] I would be talking to, I have --
+- [34:48.980] there's a group of people out there
+- [34:50.260] that have been very successful,
+- [34:52.040] and we've already started talking to them.
+- [34:53.570] You know, we're doing ballrooms, we're doing arcs, we're doing --
+- [34:57.810] we have a thing that's being planned
+- [34:59.620] that's going to be a great tribute to the country,
+- [35:01.560] as you know, you've probably heard about it,
+- [35:04.430] the arc that we're looking at by the bridge by --
+- [35:08.050] near Arlington is going to be something.
+- [35:10.390] We're doing some other things for Washington itself
+- [35:13.860] and for the country itself.
+- [35:15.140] But a lot of the people that have gone in
+- [35:18.770] and done a real job with that.
+- [35:21.240] The ballroom, I think, Michael and Susan,
+- [35:24.000] the next time we meet --
+- [35:25.250] well, hopefully, we'll meet before then,
+- [35:27.070] but we're going to have a big event
+- [35:29.020] over in the ballroom to celebrate this.
+- [35:30.800] We're building a ballroom that they've wanted at this beautiful
+- [35:35.900] White House for 150 years. They've wanted it so badly.
+- [35:38.930] Right now, we can hold 109 people,
+- [35:40.810] if you're lucky, in a room.
+- [35:42.430] It's a beautiful room, but it's 109 people.
+- [35:44.610] And we're building something -- you see the trucks in the back,
+- [35:48.130] and you see the clanging the banging.
+- [35:50.420] And when it's completed,
+- [35:52.020] it'll be one of the greatest ballrooms anywhere in the world.
+- [35:53.820] It's going to be amazing.
+- [35:55.030] So, people that were involved in that process,
+- [35:57.400] I have a lot of friends with a lot of success
+- [35:59.950] and every one of them --
+- [36:01.340] I would be shocked if anyone turns us down.
+- [36:04.000] We're going to have a lot of big contributors, Jeff.
+- [36:06.630] The Press: On a separate topic, if I may, sir, you had a call
+- [36:08.850] with Brazil's President Lula today.
+- [36:10.780] Can you tell us what you discussed?
+- [36:12.680] The President: I did. Yeah, we had a great talk.
+- [36:14.240] We talked about trade, we talked about sanctions
+- [36:17.800] because, as you know, I sanctioned them having to do
+- [36:20.280] with certain things that took place.
+- [36:24.420] But we had a very good talk. I like him -- very good.
+- [36:28.880] We had some good meetings, as you know,
+- [36:31.090] but we had a very good talk today.
+- [36:32.300] Yes, I did.
+- [36:33.640] The Press: You also pardoned
+- [36:34.840] the former president of Honduras,
+- [36:36.220] and he was released from prison yesterday.
+- [36:38.490] The President: I did. Well, he was the president,
+- [36:39.930] and they had some drugs being sold in their country.
+- [36:43.280] And because he was the president, they went after him.
+- [36:45.350] That was a Biden horrible witch hunt,
+- [36:47.820] which was a lot of people in Honduras asked me to do that
+- [36:51.740] and I did it. I feel very good about it.
+- [36:54.580] If you have some drug dealers in your country
+- [36:57.030] and you're the president,
+- [36:58.930] you don't necessarily put the president in jail for 45 years.
+- [37:02.950] That was a Biden inspired witch hunt.
+- [37:05.650] The Press: Did his letter impact your decision on that, sir,
+- [37:07.670] from Mr. Stone?
+- [37:08.920] The Press: Thank you so much, Mr. President.
+- [37:11.890] Your decisions -- decisions to Syria
+- [37:14.140] renew many hopes for the Syrian people.
+- [37:16.630] And now the minorities in Syria like Kurds, Christians and Jews,
+- [37:20.510] they want help them to have some sort of autonomy
+- [37:23.890] and their rights being protected in Syria.
+- [37:25.470] How do you feel --
+- [37:26.710] The President: Yeah, we're going to give them help.
+- [37:27.930] And I think Syria has come a long way.
+- [37:30.910] The new leader of Syria was here,
+- [37:32.920] as you know, three weeks ago
+- [37:34.230] and he was really into making that country --
+- [37:37.620] bringing the country around.
+- [37:38.890] Not an easy job, not an easy job.
+- [37:42.750] It's centuries of problems.
+- [37:46.730] But I think he's going to do a great job.
+- [37:48.640] I mean, I have a lot of confidence in him.
+- [37:50.300] Yeah, please.
+- [37:51.660] The Press: Mr. President,
+- [37:53.010] in the broader context of the economy
+- [37:54.630] with these childhood investments,
+- [37:57.410] we just saw the biggest Black Friday in history,
+- [37:59.800] up 4.1 percent from last year,
+- [38:01.940] $26 billion covered, told me about that.
+- [38:05.620] We also saw that they just spent $1 trillion
+- [38:09.140] on Christmas this year $1 trillion,
+- [38:11.360] increasing 4.1 percent, 25 states gas is below $3,
+- [38:14.480] a handful below $2.50 and getting better.
+- [38:17.410] Energy policy matters --
+- [38:18.680] The President: I like this guy. Who are you with?
+- [38:23.260] The Press: Real America's Voice.
+- [38:24.980] The President: That's what I heard.
+- [38:26.320] I like you very much. Keep talking.
+- [38:28.790] The Press: So, if you invest in these children now,
+- [38:30.620] the economy -- the better the economy is,
+- [38:32.010] the better for the children, right?
+- [38:33.440] That's a pretty good spot right there.
+- [38:35.180] The President: Well, I do and I appreciate it.
+- [38:36.420] No, we have an amazing thing going. We have over --
+- [38:40.400] almost $20 trillion of investment coming in.
+- [38:43.360] I don't even know if you know that --
+- [38:44.970] $20 trillion, that's a lot by any standard, right?
+- [38:47.160] But Biden as an example, I say this, his administration
+- [38:50.930] over a four-year period had much less than $1 trillion.
+- [38:54.200] And we have -- we're up to 18, I guess right now, Scott,
+- [38:57.240] about $18 trillion in 10 months.
+- [39:01.290] And there's never been a country.
+- [39:02.530] China -- no country has ever done anything
+- [39:04.690] even close to that.
+- [39:05.890] Even if you figure 20 percent of that,
+- [39:08.780] no country has done 20 percent.
+- [39:10.300] And it's because of tariffs and because every --
+- [39:12.800] and I think because of November 5th,
+- [39:14.690] the election, the election day.
+- [39:17.070] But we have now under construction,
+- [39:19.270] I guarantee you're expanding a lot of your different places,
+- [39:22.100] right, Fidel?
+- [39:23.490] But we have places like that; we have car companies;
+- [39:28.230] we have AI coming in at levels --
+- [39:30.210] nobody's ever seen anything like it.
+- [39:31.600] It's amazing. And this -- all of these places,
+- [39:35.730] hundreds and hundreds of plants, thousands.
+- [39:38.280] They're going to be opening
+- [39:39.620] and they're going to be producing a lot of success,
+- [39:42.210] a lot of jobs. And I say it all the time.
+- [39:44.960] The king of Saudi Arabia said to me a year ago,
+- [39:47.880] he said one year ago your country was dead
+- [39:51.830] and now you've got the hottest country
+- [39:53.720] anywhere in the world and that's what we have.
+- [39:55.320] And it's one of the reasons Michael is able to do this.
+- [39:58.210] It's one of the reasons I'm able to be here
+- [40:00.880] and having really run a very successful campaign.
+- [40:03.750] We won all seven swing states.
+- [40:05.990] We won the popular vote by millions.
+- [40:08.160] We won the districts -- I'll tell you; the district vote
+- [40:12.200] is the most impressive 2,750 compared to 550.
+- [40:18.950] That's some difference. And we just had a --
+- [40:22.110] you know, we just had a tremendous election
+- [40:23.870] and a tremendous vote of confidence.
+- [40:26.100] And thank you very much for that question. Thank you.
+- [40:36.500] The Press: Will you make a deal with Democrats on ACA subsidies?
+- [40:42.410] The President: I liked ending with that question.

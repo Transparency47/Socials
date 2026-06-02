@@ -1,0 +1,297 @@
+<!-- source: https://www.youtube.com/watch?v=xs7tRxbNa0Q -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: xs7tRxbNa0Q -->
+<!-- date_published: 2025-11-13T17:47:23+00:00 -->
+<!-- date_accessed: 2026-06-02T01:10:33.932183+00:00 -->
+
+# Transcript: The Story of America: The Culper Spy Ring
+
+- [00:02.603] (mix of famous American history quotes)
+- [00:41.508] Brian Kilmeade: When we think of the American Revolution,
+- [00:43.409] we often think of the famous battlefields
+- [00:45.645] of Valley Forge and Saratoga, of muskets and
+- [00:49.582] Minutemen, of the Boston Tea Party, and
+- [00:54.087] Paul Revere's Midnight Ride.
+- [00:57.123] But there was another war, albeit one kept under
+- [00:59.993] wraps and waged in the shadows, but a war that
+- [01:03.329] was no less dangerous than the kind fought on
+- [01:05.932] horseback as cannonballs whistled overhead.
+- [01:09.836] By November 1776, mere months after the signing
+- [01:13.139] of the Declaration of Independence, the
+- [01:15.508] Continental Army had endured heavy losses and a
+- [01:18.578] punishing string of setbacks in New York and
+- [01:21.080] New Jersey.
+- [01:22.649] In Long Island, roughly 1,300 Americans were
+- [01:25.385] killed, wounded, or captured.
+- [01:27.253] At Fort Washington, General Washington was
+- [01:31.157] forced to surrender roughly 3,000 men in five
+- [01:34.694] major battles between August and November of
+- [01:37.397] 1776.
+- [01:39.032] The Continental Army was reduced to fewer than
+- [01:41.067] 5,000 men.
+- [01:43.703] Inside a candle-lit tent along the New York Harbor,
+- [01:46.706] following the catastrophic defeat at the Battle of
+- [01:48.942] Long Island, General Washington confronted a
+- [01:52.078] grim reality.
+- [01:53.546] Surrounded, outnumbered, and outmaneuvered, he
+- [01:56.416] asked his officers for the unthinkable.
+- [01:59.452] Do we have any other options?
+- [02:01.721] Silence followed.
+- [02:03.590] They all knew the truth.
+- [02:04.924] Only a miracle could save them.
+- [02:06.426] In a month, step forward.
+- [02:09.162] The mightiest military power in the world, drove
+- [02:12.532] the beleaguered American forces from the New York
+- [02:15.301] region, pushing them through New Jersey and
+- [02:18.738] nearly to the brink of collapse.
+- [02:21.941] Supplies were scarce, spirits were low, and time
+- [02:24.744] was running out.
+- [02:26.613] In the winter of 1776, Washington's crossing at
+- [02:29.682] Trenton and Princeton were astonishing victories, but
+- [02:32.852] these achievements alone could not reverse the tide
+- [02:35.755] of the war.
+- [02:36.923] The British Army had captured New York.
+- [02:38.625] A critical stronghold for trade and transportation,
+- [02:42.228] and turned Manhattan into a fortress.
+- [02:45.098] New York, without exaggeration, is the pivot
+- [02:48.234] on which the entire revolution war turned,
+- [02:50.770] said John Adams himself.
+- [02:53.072] And without the city, and without intelligence from
+- [02:55.375] inside its gates, Washington knew the
+- [02:57.377] American cause would not survive.
+- [02:59.979] He needed eyes, he needed ears, he need spies.
+- [03:04.384] From this necessity was born one of the most
+- [03:06.286] audacious.
+- [03:07.220] And consequential acts of espionage in our nation's
+- [03:10.523] history.
+- [03:11.457] The Culper Spy Ring, headquartered in British
+- [03:14.260] occupied New York City, this six person
+- [03:16.529] intelligence network changed the course of the
+- [03:18.765] Revolutionary War and the fate of our new nation.
+- [03:22.702] Washington turned to a young officer named
+- [03:25.471] Benjamin Tallmadge, code named John Bolton.
+- [03:29.075] Tallmadge replaced General Charles Scott, whose
+- [03:31.044] approach to espionages had been blunt and rather
+- [03:34.380] unimaginative.
+- [03:35.748] Scott would dispatch lone scouts on one-way missions
+- [03:39.018] across enemy lines, hoping they'd return with scraps
+- [03:42.155] of intelligence.
+- [03:42.855] It was a gamble, and one that too often failed.
+- [03:46.459] The execution of Lieutenant Nathan Hale,
+- [03:48.628] who was caught, tried, and sentenced to death within
+- [03:51.564] the span of 12 hours was a grim case in point.
+- [03:56.536] Tallmadge suggested a new approach to Washington.
+- [03:59.706] Instead of risking the lives of uniformed
+- [04:02.041] officers by sending them behind enemy lines, why
+- [04:04.944] not gather intelligence through unsuspecting
+- [04:07.113] allies who already lived in British occupied
+- [04:09.882] territory, creating a network of spies living
+- [04:12.585] among the British?
+- [04:13.987] Washington agreed with the Tallmadge strategy and
+- [04:16.522] appointed him chief of intelligence.
+- [04:19.359] Tallmadge was only 24.
+- [04:21.694] But he knew both the people and the landscape
+- [04:24.030] on Long Island well, which would prove to be
+- [04:26.666] invaluable.
+- [04:28.101] Major Tallmadge immediately began creating
+- [04:30.036] a tight-knit ring of embedded operatives
+- [04:32.705] working silently beneath the surface in the
+- [04:35.174] British-occupied Long Island.
+- [04:36.442] What became known as the Culper Spy Ring was the
+- [04:39.846] most successful spy network on either side of
+- [04:42.548] the war.
+- [04:43.750] Tallmadge's' recruits were not particularly
+- [04:45.785] well-trained.
+- [04:46.753] Indeed, these informants consisted...
+- [04:48.588] Primarily of old friends he had made while growing
+- [04:51.090] up in Setauket, Long Island.
+- [04:52.859] They were farmers, merchants, and laborers.
+- [04:56.496] Their intelligence network operated successfully in
+- [04:58.898] and around New York City for five years.
+- [05:02.235] No spy's true identity was revealed, not to General
+- [05:05.571] Washington, not even amongst one another.
+- [05:09.108] There was Abraham Woodhoe, a young New York farmer,
+- [05:12.045] who ferried messages under the name Samuel Culper
+- [05:14.747] Sr. His counterpart, Samuel Culper Jr., was
+- [05:18.518] Robert Townsend, who wrote for a loyalist newspaper
+- [05:21.354] while secretly reporting to Washington.
+- [05:24.157] Austin Rowe, a tavern keeper, carried messages
+- [05:26.893] hidden in saddlebags.
+- [05:28.628] Caleb Brewster, a defiant seaman, rode across the
+- [05:31.931] Long Island Sound to deliver intelligence to
+- [05:34.067] the commander-in-chief himself.
+- [05:35.935] Among the company of double agents, there was
+- [05:38.504] also a woman, her identity still unknown, codenamed
+- [05:42.108] Agent 355.
+- [05:44.210] A lady shrouded in mystery.
+- [05:46.446] She seduced secrets from the lips of British
+- [05:48.581] soldiers.
+- [05:49.615] According to speculations, it was Agent 355 who
+- [05:52.552] relayed the critical information that
+- [05:54.420] ultimately exposed the treasonous actions of
+- [05:58.424] Benedict Arnold.
+- [06:00.927] Lastly, there was James Rivington.
+- [06:03.162] When the early sparks of the revolution ignited
+- [06:05.298] into open war in 1775, Rivington found himself
+- [06:09.102] squarely in the crosshairs.
+- [06:10.369] His The New York print shop wants a hub of
+- [06:12.939] loyalist literature.
+- [06:14.273] Was ransacked, torched by the Sons of Liberty.
+- [06:17.276] Fearing for his safety, Rivington fled to England.
+- [06:20.113] But exile didn't last.
+- [06:22.014] By 1777, he was back in New York, quietly
+- [06:25.518] reopening his business.
+- [06:27.053] This time just steps from the dry goods store of a
+- [06:30.056] discreet patriot named Robert Townsend.
+- [06:37.163] Something had changed after Rivington's return,
+- [06:39.832] whether it was a genuine conversion, a practical
+- [06:42.702] play for profit, or frustration with the Crown
+- [06:45.371] censorship, especially its muzzling of Rivington's'
+- [06:48.274] attempt to criticize General Howe remains
+- [06:50.810] uncertain.
+- [06:52.145] What is clear, however, is that sometime in late
+- [06:55.314] 1778, the once loyal English-born printer began
+- [06:58.618] to operate under the noses of British officers,
+- [07:02.221] feeding sensitive communications to the
+- [07:04.891] Culper Spy Ring.
+- [07:06.726] Now to the world, Rivington was a first-rate
+- [07:08.895] loyalist, owner of one of New York's most prominent
+- [07:11.430] coffee houses, editor of the Royal Gazette, and
+- [07:14.567] personal printer to the king's most excellent
+- [07:16.869] majesty.
+- [07:18.504] The gazette famously published fighting satire
+- [07:21.040] against the American cause.
+- [07:23.776] His coffee house, nestled in the heart of
+- [07:25.778] British-occupied New York, became a veritable nest of
+- [07:28.781] loose-lipped British officers.
+- [07:30.950] Rivington's outward loyalty to the British
+- [07:33.719] made him the perfect spy.
+- [07:36.622] No one suspected the outspoken Tory to slip
+- [07:39.826] coded messages inside book bindings and pass them
+- [07:42.695] along to Robert Townsend.
+- [07:44.263] To protect the ring of spies he commanded, Major
+- [07:48.601] Tallmadge crafted a system.
+- [07:50.603] A system of extraordinary precision and given that
+- [07:53.272] names were too traceable, assigned each of his spies
+- [07:56.375] a code number in their encrypted communications.
+- [07:59.478] In total, 763 numerical identities were created,
+- [08:04.016] each site for protecting a patriot.
+- [08:06.285] Rivington was 726 in the Culper Code Book.
+- [08:09.655] Only once secrecy was no longer needed did it
+- [08:12.592] become public knowledge that this apparent traitor
+- [08:15.161] to America had in fact been one of its fiercest
+- [08:18.130] defenders.
+- [08:19.866] Information flowed from New York City northward to
+- [08:22.335] General Washington's camp in New Windsor, threading
+- [08:24.770] its way through miles of British-controlled
+- [08:26.806] territory.
+- [08:27.874] The operation began with Austin Rowe, who would
+- [08:30.409] make the long ride from Long Island into Manhattan
+- [08:33.112] under the guise of routine business.
+- [08:35.948] There, in the quiet of Townsend shop, Rowe would
+- [08:39.285] place an innocuous order, one encoded with
+- [08:41.954] Washington's pre-arranged phrases, which Townsend
+- [08:45.124] received via courier from headquarters.
+- [08:46.893] The request, signed by Tallmadge under his alias
+- [08:50.496] John Bolton, triggered the next phase.
+- [08:54.400] Roe concealed the dispatches by folding them
+- [08:57.036] among the merchandise.
+- [08:58.437] Anna Strong, a local, would hang a black
+- [09:00.873] petticoat on her clothesline, visible for
+- [09:02.942] the Long Island Sound to alert Caleb Brewster, the
+- [09:05.878] Continental Army's boatman.
+- [09:07.580] The series of handkerchiefs indicated
+- [09:09.148] the precise cove where Brewster could land under
+- [09:12.485] cover of night.
+- [09:14.020] Brewster would then ferry the intelligence across
+- [09:16.155] the Sound and into the hands of Tallmadge.
+- [09:19.058] The process spanned two weeks from beginning to
+- [09:21.460] end.
+- [09:22.895] Through painstaking observation, the Culper
+- [09:25.164] spies uncovered a devastating British scheme
+- [09:27.967] of economic sabotage.
+- [09:30.069] Thousands of Ford's continental dollars were
+- [09:32.538] being printed in New York and smuggled across enemy
+- [09:35.274] lines.
+- [09:36.042] The British were deliberately devaluing
+- [09:37.977] American currency, aiming to wreck the fragile
+- [09:40.980] economy of the nascent republic.
+- [09:44.450] Washington responded swiftly, shutting down the
+- [09:47.119] counterfeit circulation routes and launching
+- [09:49.221] efforts to stabilize the currency.
+- [09:51.390] It was an invisible victory.
+- [09:53.793] But without it, the revolution may well have
+- [09:56.128] buckled under the weight of economic ruin.
+- [09:58.965] But that was only the start of the Culper Spy's
+- [10:01.467] successful espionage.
+- [10:04.503] In 1778, the Culper Spy Ring obtained the British
+- [10:07.206] Naval Codebook and delivered it to French
+- [10:09.508] Admiral D'Easton.
+- [10:11.243] With the vital intelligence, the French
+- [10:13.045] were able to anticipate British naval movements in
+- [10:16.415] American waters, enabling D'Easton's fleet to evade
+- [10:20.286] traps, strike more effectively, and secure
+- [10:22.922] critical victories at sea, culminating in naval
+- [10:26.726] dominance that help corner British forces at
+- [10:29.528] Yorktown.
+- [10:31.464] General Clinton and Admiral Graves were
+- [10:33.299] assembling a force of nine warships and nearly 10,000
+- [10:37.436] troops with plans to strike Rochambeau's
+- [10:39.705] soldiers in a surprise assault.
+- [10:43.242] Acting swiftly Major Tallmadge relayed the
+- [10:45.544] intelligence through trusted channels to
+- [10:48.014] deliver the intelligence directly to the French
+- [10:50.716] officers in Newport.
+- [10:52.184] Simultaneously Hamilton rushed word to Lafayette
+- [10:55.688] and Washington and they devised a successful
+- [10:58.024] scheme.
+- [10:58.691] To divert the British forces back towards New
+- [11:01.327] York.
+- [11:01.994] What could have been a crushing British blow was
+- [11:05.865] thwarted through daring espionage.
+- [11:07.733] Most famously, the spies uncovered the treachery of
+- [11:10.269] Benedict Arnold, exposing his plan to surrender West
+- [11:13.005] Point to the British.
+- [11:14.573] Had Arnold's mission succeeded, West Point
+- [11:17.109] would have fallen into British hands.
+- [11:19.412] The Hudson River would have been severed, the
+- [11:23.449] colonies divided, and the revolution itself
+- [11:26.185] smothered in its cradle.
+- [11:28.354] It's no exaggeration to say that the course of the
+- [11:31.123] American Revolution, indeed the very existence
+- [11:33.793] of the United States, turned on messages no one
+- [11:36.529] could see, sent by men whose names history almost
+- [11:40.032] forgot.
+- [11:41.600] The British intelligence officer, Major George
+- [11:44.036] Beckwith, put it this way, "Washington did not really
+- [11:46.906] out-fight the British, he simply out-spied us." It
+- [11:50.109] may be more accurate to say Washington out-fought
+- [11:52.611] the British because he out-spied them.
+- [11:56.382] The heroes of the Culper Spy Ring operated
+- [11:58.684] undercover without recognition, without
+- [12:01.420] reward, and at immense personal risk.
+- [12:05.991] When the war ended, they sought no fanfare for
+- [12:08.394] their covert acts of courage.
+- [12:09.662] Indeed, several of their identities were not
+- [12:11.997] confirmed for nearly two centuries.
+- [12:13.899] It is tempting to read history as the dramatic
+- [12:17.036] tale of generals and statesmen presiding over
+- [12:20.172] events of grand significance as the forces
+- [12:22.641] of destiny itself seemed to bend according to their
+- [12:25.444] will.
+- [12:26.879] Victory in the American Revolution was achieved
+- [12:29.615] not only on the battlefield, but in back
+- [12:31.817] rooms and back alleys, from code letters and
+- [12:34.553] clever disguises.
+- [12:36.555] The heroes of the Culper Ring did not seek glory,
+- [12:39.792] they sought freedom.
+- [12:41.227] Their courage reminds us that the fate of a nation
+- [12:43.629] can hinge on the quiet work of brave men and
+- [12:46.866] brave women who may forever remain unseen,
+- [12:49.835] unheralded, and unnamed.
+- [12:52.071] Today we remember and honor their quiet courage
+- [12:55.608] and their willingness to risk their lives for this
+- [12:58.577] new nation.
+- [12:59.712] Their stories and names will not be forgotten.
+- [13:14.593] ♪ (soft orchestral music) ♪

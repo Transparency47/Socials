@@ -1,0 +1,838 @@
+<!-- source: https://www.youtube.com/watch?v=m9PVdkmCcrk -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: m9PVdkmCcrk -->
+<!-- date_published: 2026-03-07T15:19:55+00:00 -->
+<!-- date_accessed: 2026-06-02T02:36:58.958643+00:00 -->
+
+# Transcript: President Trump Delivers Remarks to the Shield of Americas Summit
+
+- [00:08.580] Announcer: Ladies and gentlemen, the 45th and 47th
+- [00:11.680] President of the United States, Donald J. Trump.
+- [00:16.120] ♪ (Hail to the Chief) ♪
+- [00:35.760] The President: Well, thank you very much.
+- [00:37.440] It's been a pretty wild time, but it's going very well.
+- [00:42.370] Sit down, please.
+- [00:44.250] And tremendous progress has been made,
+- [00:47.330] as you're probably seeing just by watching.
+- [00:50.290] We're, we're doing something.
+- [00:52.920] I built the military and rebuilt it
+- [00:56.110] and made it really strong in my first administration,
+- [00:59.470] along with a lot of other things we did.
+- [01:01.090] We had a great first term. And now we're using it.
+- [01:04.100] Unfortunately, we have to, but you're seeing how great it is.
+- [01:07.850] There's no military like it on Earth, not even close.
+- [01:11.680] And we're doing very well in Iran.
+- [01:14.090] You see the result. And it's it's been amazing.
+- [01:19.390] We've knocked out 42 Navy ships,
+- [01:24.190] some of them very large, in three days.
+- [01:27.530] That was the end of the Navy. We knocked out their Air Force,
+- [01:30.050] we knocked out their communications,
+- [01:32.960] and all telecommunications is gone.
+- [01:35.770] I don't know how they communicate, but I guess they --
+- [01:38.620] they will figure something out. It's not working out too well.
+- [01:42.900] And they're bad people. They're just bad people.
+- [01:45.770] When you look at October 7th and beyond October 7th,
+- [01:48.940] look at all the killing that they've done over the years,
+- [01:51.970] for 47 years.
+- [01:54.530] And this had to be done.
+- [01:56.660] They were very close to a nuclear weapon.
+- [01:59.110] They would have had one if we didn't do our B-2 hit,
+- [02:03.680] Midnight Hammer.
+- [02:05.230] They would have had it eight months ago.
+- [02:09.140] They would have had a nuclear weapon
+- [02:10.560] and, you know, and they're crazy,
+- [02:12.580] and they would have used it. So, we did the world a favor.
+- [02:16.820] And they said, "Well, how are you doing
+- [02:18.440] on a scale of zero to 10?
+- [02:19.980] Uh, how are you doing with the attack?"
+- [02:22.900] And I said, "About a 15, I would say."
+- [02:26.090] With 10 being the best.
+- [02:28.290] But it's something that had to be done,
+- [02:30.880] and we're doing it well.
+- [02:33.060] And I want to thank everybody involved.
+- [02:35.010] I'll be going right after this.
+- [02:36.480] I'll be leaving for Dover, very sad situation,
+- [02:41.340] to greet the families of the heroes,
+- [02:44.300] you know, coming home from Iran,
+- [02:48.670] coming home in a different manner
+- [02:50.020] than they thought they'd be coming home.
+- [02:52.340] But they're great heroes in our country,
+- [02:55.250] and we're going to keep it that way.
+- [02:58.180] Uh, there's always, when it comes to war,
+- [03:01.080] there's always that,
+- [03:03.490] but we're going to keep it to a minimum, I think, Pete.
+- [03:06.090] And going to be something,
+- [03:09.800] a service that we're really providing,
+- [03:11.640] not for the Middle East, but for the world.
+- [03:14.660] These were sick people, very sick people.
+- [03:18.000] This morning, I'm honored
+- [03:19.240] to welcome distinguished heads of state
+- [03:21.320] from across the Western Hemisphere
+- [03:25.130] for the first Shield of the Americas Summit.
+- [03:29.530] And it's something very, very special.
+- [03:31.390] Marco's been working on it very hard.
+- [03:33.230] So have of a lot of other people,
+- [03:35.710] because it's a very important place for us.
+- [03:39.060] It's nice to be home. It's very, very important.
+- [03:42.040] You know, we go all over the world,
+- [03:44.660] 9,000 miles away, 12,000 miles away.
+- [03:48.550] And I said, "How long is this flight?"
+- [03:49.990] "Sir, this flight is 19 hours." I said, "Oh, that's great."
+- [03:53.620] I said "Now I have flights that last for two hours.
+- [03:57.950] I like that better." Much better.
+- [04:02.000] But on this historic day,
+- [04:03.380] we come together to announce a brand new military coalition
+- [04:07.610] to eradicate the criminal cartels plaguing our region.
+- [04:11.530] And you have a lot of it.
+- [04:12.860] One of the things when we were talking backstage,
+- [04:15.110] you were telling me the, the crime, the, the cartels,
+- [04:18.490] and we're knocking the hell out of them where we can.
+- [04:22.180] We're going to go heavier.
+- [04:24.530] So, what we were doing with the, the boats coming in, the boats,
+- [04:28.260] there's not a lot of people coming in by boats anymore.
+- [04:30.320] We knocked down drugs coming in by sea,
+- [04:34.210] drugs coming in through water is down 96%.
+- [04:38.890] We're trying to find out who the other 4% are,
+- [04:41.160] because I think they're the bravest people in the world.
+- [04:43.150] Either that or they don't watch television, right?
+- [04:47.270] They're either very brave or they're not watching.
+- [04:50.330] But we're calling this military partnership
+- [04:53.170] the America's Counter Cartel Coalition,
+- [04:57.660] and that's what you need. You have cartels to --
+- [05:00.400] they seem to grow in this region unbelievably rapidly.
+- [05:03.530] Has to do with drugs, largely.
+- [05:06.270] Earlier this week here in Miami,
+- [05:08.380] Secretary of War, Pete Hegseth, who's right here.
+- [05:10.960] Pete, you are fantastic.
+- [05:12.390] Doing a great job. We're proud of you.
+- [05:14.570] And representatives of 17 different nations
+- [05:17.320] formerly entered this new alliance.
+- [05:20.510] The heart of our agreement is a commitment
+- [05:23.670] to using lethal military force to destroy the sinister cartels
+- [05:28.860] and terrorist networks once and for all.
+- [05:31.250] We'll get rid of them. We need your help.
+- [05:34.150] You have to just tell us where they are.
+- [05:35.820] We have amazing, we have amazing weaponry,
+- [05:39.590] as you probably noticed over the last short period of time.
+- [05:45.190] But I want to thank members of the coalition,
+- [05:47.170] most of whom are friends of mine.
+- [05:49.620] Few of them I just met, but most of whom are friends,
+- [05:51.980] many of whom I endorsed.
+- [05:54.390] And they took that endorsement, and they went on to win big.
+- [05:57.250] I haven't, I haven't had a bad endorsement yet, right?
+- [06:00.860] He says, "Yes." He was happy. He was a couple of points down
+- [06:04.030] and went up like a rocket ship, right?
+- [06:06.800] In Argentina.
+- [06:08.790] But the president of Argentina is here,
+- [06:10.980] Javier Milei, thank you very much.
+- [06:14.100] Thank you very much for being here.
+- [06:16.300] President of El Salvador, another friend, Nayib Bukele.
+- [06:23.620] You know he is a, a man who we've gotten very close to.
+- [06:28.850] I saw him as a young man my first time.
+- [06:31.210] You were young and handsome. Now you're older and handsome.
+- [06:36.840] You're older and handsome. But he runs a good operation.
+- [06:40.360] That's all I care about, right?
+- [06:42.530] When I first saw him, I said, "He's too young."
+- [06:45.190] And then I saw the job he did.
+- [06:46.940] I said, "Well, I guess he's not too young."
+- [06:48.740] 'Cause I was young and did well.
+- [06:51.180] But you've been a great president,
+- [06:52.760] and we appreciate the relationship very much.
+- [06:54.890] President of Paraguay, Santiago Peña.
+- [06:59.240] Thank you very much.
+- [07:00.490] Thank you very much.
+- [07:02.170] President of Ecuador, Daniel Noboa.
+- [07:06.400] Daniel. Thank you.
+- [07:08.120] Thank you, Daniel. President of Panama.
+- [07:12.260] I love that canal. José.
+- [07:17.840] I think he made the greatest deal in history.
+- [07:21.330] He bought it for $1. One of our brilliant presidents.
+- [07:25.850] I can't sleep over that deal. They gave it to him for $1.
+- [07:30.780] José Raúl Mulino was, do you know you made
+- [07:36.230] one of the greatest real estate deals in history?
+- [07:40.890] Jimmy Carter.
+- [07:42.870] One of our, one of our great presidents.
+- [07:45.650] President of Honduras, Tito Asfura.
+- [07:50.480] Thank you, Tito. Thank you very much.
+- [07:52.770] Great to see you the other day.
+- [07:55.130] President of Guyana, Irfaan Ali. Thank you.
+- [08:01.360] President of Bolivia, Rodrigo Paz.
+- [08:04.490] Thank you very much. Great people.
+- [08:08.770] Prime Minister of Trinidad and Tobago.
+- [08:12.320] And I have to be very careful with this
+- [08:13.800] because, you know, your word, your first name is very similar
+- [08:17.890] to a first name that we have,
+- [08:20.440] but fortunately it's pronounced different.
+- [08:23.010] It's Kamla as opposed to Kamala.
+- [08:27.160] I like Kamla better in many ways.
+- [08:31.950] And I just want to say thank you very much,
+- [08:34.670] but I had to be careful with that first name.
+- [08:36.410] I didn't want to get it, I didn't want to get it mixed up
+- [08:39.470] because it would ruin your reputation completely.
+- [08:43.660] Christ.
+- [08:45.240] I said, "Is this the same pronunciation?"
+- [08:47.290] "No, sir. It's a little different."
+- [08:48.850] It's Kam, right? Kam, as opposed to Kam.
+- [08:52.980] We don't like Kam.
+- [08:55.160] President of Costa Rica, Rodrigo Chaves,
+- [08:58.930] as well as the President-elect of Costa Rica,
+- [09:01.650] Laura Fernández Delgado.
+- [09:04.470] So, thank you very much. Thank you very much.
+- [09:07.890] And the President of the Dominican Republic,
+- [09:11.950] Luis Abinader, and so many of my friends
+- [09:16.760] are in the Dominican, including the Sugar King, right?
+- [09:20.270] He is a, he is indeed the Sugar King.
+- [09:22.370] He got a lot of sugar.
+- [09:23.670] I don't know if that's good or bad,
+- [09:24.940] but he's got a lot of it, right? But we're grateful to be joined
+- [09:28.590] as well by the President-elect of Chile.
+- [09:32.190] José Kast. Congratulations. It's an endorsement.
+- [09:37.550] Gave you a little endorsement.
+- [09:39.880] I love when I give endorsements and people win.
+- [09:42.760] But you know what?
+- [09:43.960] They don't lose.
+- [09:46.050] You know, I don't know, I guess it would be illegal.
+- [09:49.060] Could you imagine if I could say they spend millions
+- [09:51.120] and millions and millions of dollars on a campaign?
+- [09:54.270] They are losing and they beg me for an endorsement.
+- [09:57.740] I give them an endorsement. They win by 30 points.
+- [10:01.540] And I get nothing.
+- [10:02.980] If I could sell that, is there a way?
+- [10:04.550] Do we have any of our legal people here?
+- [10:06.160] A little -- Marco's close enough.
+- [10:07.810] Is there a way I could get paid for that, Marco?
+- [10:10.850] I'd make a lot. They spend millions of dollars.
+- [10:14.350] And I give it for nothing. I could, even if I put it
+- [10:17.290] into the Treasury of the United States,
+- [10:19.210] it would be pretty good, right, Marco?
+- [10:21.420] But Marco's saying, "It's not a good idea."
+- [10:24.260] No, but it's an honor to do it.
+- [10:25.680] It's an honor to have that power where I can endorse somebody.
+- [10:28.880] And even in foreign countries, here it was this,
+- [10:32.170] we had one in this week, 124 and 0 with endorsements.
+- [10:37.010] And so that's good, but now I'm doing foreign countries
+- [10:39.910] all of a sudden to say, "Sir, would you endorse me?"
+- [10:43.290] And it's an honor.
+- [10:44.540] If I like you. I only do it if I think you're good.
+- [10:46.680] You know, if I think you're not good,
+- [10:48.170] I've turned down many more than I've accepted, believe me.
+- [10:52.710] I want to thank Secretary of State Marco Rubio
+- [10:55.500] for his leadership in organizing this really important summit.
+- [10:58.490] He's fantastic.
+- [10:59.760] He's, he's a fantastic Secretary of State.
+- [11:07.290] And thus far, look, we've had the most incredible year
+- [11:10.210] of any presidents,
+- [11:11.430] I think by, you know, I ended eight wars.
+- [11:13.520] We're not going to go into it too much today,
+- [11:14.970] but what we've done is incredible.
+- [11:16.780] And we're going to be we're going to be doing
+- [11:20.960] some incredible things together because I look at our region,
+- [11:24.350] if I can call it that, as being very important.
+- [11:26.970] It's been abandoned by the United States
+- [11:28.750] for so many years, you know? They went so far away.
+- [11:31.680] They went to these far away places
+- [11:33.340] where they weren't even wanted.
+- [11:35.770] And a lot of stupid people, really stupid people.
+- [11:40.700] But Marco's going to go down,
+- [11:42.350] I think, as the best Secretary of State in history.
+- [11:46.070] That's my opinion.
+- [11:47.660] Now, I'm a little prejudiced because I like him too,
+- [11:50.620] but I think he's, he's on his way.
+- [11:53.290] So, you've done 25%, you got 75%,
+- [11:57.470] he's got three years left, so he's got 25% under your belt.
+- [12:01.420] So far, you're leading, you're very leading
+- [12:03.620] by just about a smidge over a couple of pretty great ones.
+- [12:06.280] Uh, we've had a couple of pretty great ones, right?
+- [12:08.580] But I think he's going to do that.
+- [12:09.990] And I think Pete's right there too.
+- [12:11.450] If Pete keeps going,
+- [12:13.970] he's going to be something too at what he does.
+- [12:17.090] All of the nations in this room share the same priorities;
+- [12:20.150] security, prosperity, free commerce
+- [12:22.950] and the rule of law. And you want the rule of law.
+- [12:25.840] Sometimes your communities don't let you have it,
+- [12:29.450] because you got some rough, you got some rough communities, eh?
+- [12:33.820] That's why together we're also forming the Shield of Americas,
+- [12:36.830] a new organization to advance
+- [12:38.640] these shared priorities in our hemisphere.
+- [12:42.340] And we're pleased to be joined as well
+- [12:44.110] by Secretaries Pete Hegseth, Scott Bessent.
+- [12:49.610] Scott, thank you very much, Scott.
+- [12:51.170] Oh, it has to be a big deal if you're here.
+- [12:53.180] Wow. He controls the purse strings of the country.
+- [12:57.680] You know, he goes on television and he just soothes everybody.
+- [13:01.520] He did it yesterday.
+- [13:02.800] The prices were going, he, he got on.
+- [13:05.050] He's a soothing person.
+- [13:07.650] He's actually a killer, but I don't want to say that.
+- [13:10.210] No, he's a soothing person. He goes on television.
+- [13:13.510] Right, Pete? I think nobody better.
+- [13:15.000] So we could use him for war every once in a while,
+- [13:17.150] you know, soothe. Although we don't really want
+- [13:19.540] that kind of a personality for war.
+- [13:21.930] We want your personality for war.
+- [13:24.210] You're just perfect. Howard Lutnick.
+- [13:28.300] Thank you, Howard. Chris Wright.
+- [13:33.510] Kristi Noem, along with US Trade Representative Jamieson Greer,
+- [13:39.740] who you all know and you deal with.
+- [13:42.210] You deal with very successfully. I ask Jamieson all the time,
+- [13:45.350] "Can you get more? Can you get more?"
+- [13:48.140] He's the king of tariffs, right?
+- [13:49.860] But he's very gentle.
+- [13:51.080] We want to be very gentle with our friends, right, Jamieson?
+- [13:54.870] Deputy Secretary of State, Chris Landau.
+- [13:57.820] Chris, where is Chris? I haven't seen Chris.
+- [14:00.670] He's fantastic. He's an incredible student.
+- [14:03.930] He went to the best schools,
+- [14:05.280] and he was number one in his class at all times.
+- [14:08.960] And Marco saw that and saw the talent he's got,
+- [14:11.950] and he said, "That's the guy I want as a deputy,"
+- [14:14.090] and I heard you're doing a great job.
+- [14:15.440] Thank you very much.
+- [14:17.310] Deputy Chief of Staff, Stephen Miller.
+- [14:20.960] Stephen is, I don't have to tell you anything about Stephen.
+- [14:24.650] Everyone knows.
+- [14:25.900] There's nothing, Stephen, there's nothing I can say.
+- [14:29.050] He's fantastic. That's all I can say.
+- [14:31.610] And Senator Bernie Marino,
+- [14:33.340] who's an incredible friend of mine,
+- [14:34.980] and he ran a great race.
+- [14:36.780] He was not given much of a chance.
+- [14:38.280] He was running against a person who was there for a long time
+- [14:41.160] and was sort of considered a shoo-in, right, Bernie?
+- [14:44.070] And we knocked him out. We knocked him out.
+- [14:47.840] He's trying to make a comeback, but we took him out.
+- [14:52.310] And Bernie's done a great job.
+- [14:53.630] For decades, leaders in this region
+- [14:56.250] have allowed large swaths of territory,
+- [14:58.820] the Western hemisphere to come under the direct control,
+- [15:01.600] and transnational gangs have taken over,
+- [15:05.390] and they've run areas of your country.
+- [15:07.870] We're not going to let that happen. We'll help you.
+- [15:10.310] And bloodthirsty cartels that impose their will through
+- [15:13.520] murder, torture, extortion, drug trafficking, bribery,
+- [15:17.840] and terror. And some of you are in danger.
+- [15:21.590] I mean, you're actually in danger.
+- [15:23.240] Hard to believe.
+- [15:24.840] But we're working with you to do whatever we have to do.
+- [15:27.790] We'll use missiles.
+- [15:29.100] If you want us to use a missile, they're extremely accurate.
+- [15:33.310] Pew, right into the living room.
+- [15:36.980] That's the end of that cartel person.
+- [15:39.380] But we we'll do whatever you need if you want.
+- [15:42.340] A lot of countries don't want to do that.
+- [15:43.880] They say, "Oh, sure, I'd rather not have that.
+- [15:46.240] I'd rather not have, I believe they could be spoken to."
+- [15:49.860] I don't think so.
+- [15:51.570] Many of them don't want, and that's okay too.
+- [15:53.570] You're going to do you. But if you need help,
+- [15:55.510] you're going to let us know, okay?
+- [15:57.610] Many of the cartels have developed sophisticated
+- [16:00.400] military operations,
+- [16:01.790] highly sophisticated in some cases.
+- [16:04.490] They say they're more powerful than the military
+- [16:07.020] in the country. We can't have that.
+- [16:09.560] These brutal criminal organizations
+- [16:11.330] pose an unacceptable threat to national security,
+- [16:15.050] and they provide a dangerous gateway
+- [16:16.950] for foreign adversaries in our region.
+- [16:19.970] And we don't want them near our country either.
+- [16:21.640] We don't want them to come in. They're cancer, you know?
+- [16:24.890] They're cancer, and we don't want it spreading.
+- [16:28.080] We have a very strong border.
+- [16:29.360] You know, we have a border now where for nine months,
+- [16:31.600] zero people have been able to come through.
+- [16:33.830] It's hard to believe, actually, because we had,
+- [16:35.710] we went from 25 million people coming in over the Biden,
+- [16:39.500] sleepy Joe Biden,
+- [16:40.710] one of the worst presidents in history of the world.
+- [16:43.920] He was the worst president in the history of our country.
+- [16:46.240] We've had some pretty bad ones.
+- [16:48.030] Recently, we've had some pretty bad ones, but he's the worst.
+- [16:51.460] But he's, he would go down as one of the worst in the world.
+- [16:55.220] I'm going to up his category now.
+- [16:57.090] Horrible what he, what he did.
+- [16:59.430] And what he didn't do was probably worse than what he did.
+- [17:02.640] Every leader here today is united in the conviction
+- [17:07.160] that we cannot and will not tolerate the lawlessness
+- [17:10.530] in our hemisphere any longer.
+- [17:13.080] The only way to defeat these enemies
+- [17:14.900] is by unleashing the power,
+- [17:17.740] our militaries, we have to use our military.
+- [17:21.430] You have to use your military.
+- [17:22.650] You, you can't fight these people with,
+- [17:24.970] and you have great police.
+- [17:26.170] You have some great police, but they threaten your police,
+- [17:30.120] they scare your police. Going to use your military.
+- [17:33.460] In many cases, our forces have already been
+- [17:36.410] working closely with yours,
+- [17:37.970] and the United States looks forward to deepening
+- [17:41.310] and expanding that cooperation in the months ahead.
+- [17:43.840] And it's so good that we got to know so many of you.
+- [17:45.800] I mean, we're, so many, and I,
+- [17:48.300] I'd love to get to your countries at some point.
+- [17:50.200] Marco loves going to your countries.
+- [17:51.630] He's always at one of these countries.
+- [17:54.320] He likes your country's the best, okay?
+- [17:56.920] You know, where are you? I'm in, I'm in Chile.
+- [18:00.410] Oh, good. How's Chile doing? Good. He likes it.
+- [18:02.920] He feels very -- we all like him, right?
+- [18:06.140] Mm-hmm. It helps. He's, he's got a language
+- [18:09.870] he's got a language advantage over me,
+- [18:12.540] 'cause I'm not learning your damn language.
+- [18:14.520] I don't have time. I was okay with languages,
+- [18:17.880] but I'm not going to spend time learning your language.
+- [18:20.180] That much, I won't do. Just give me a good interpreter.
+- [18:22.720] Interpreter, very important.
+- [18:25.790] And I know if somebody's good. I may not speak the language,
+- [18:28.990] but I know, I had an interpreter recently that wasn't good,
+- [18:32.750] talking to a very strong person
+- [18:34.310] from a different part of the world,
+- [18:36.340] and I could tell, even though I,
+- [18:38.760] even though I don't speak the language,
+- [18:41.610] I could tell the interpreter was not good.
+- [18:44.710] When you go, "Uh, uh --"
+- [18:51.170] when I give a long, flowing, beautiful sentence.
+- [18:55.880] And in this case, it was a woman,
+- [18:57.350] and she gave it in about 1/4 the time.
+- [19:00.810] I said, "Well, their language may be efficient, but,
+- [19:05.170] but it's not that efficient."
+- [19:07.990] And I could also tell when I have great interpreters.
+- [19:10.490] Interpreters are very important, you know?
+- [19:12.670] You have a bad interpreter, you think you're doing well.
+- [19:15.970] "Boy, did I do a good job talking to this one or that one.
+- [19:19.660] Was I great when I spoke to Putin today?
+- [19:23.550] Was I great when I spoke to President, was I great?"
+- [19:27.760] But if the interpreter isn't speaking right,
+- [19:31.700] or is weak, or is ineffective, or is just not good,
+- [19:35.230] or not interpreting your words correctly,
+- [19:38.810] um, in one case, we had an interpreter who,
+- [19:41.330] when she disagreed with what we were saying,
+- [19:44.640] she actually changed it.
+- [19:47.120] We considered her a foreign minister, right?
+- [19:50.490] But no, we, the interpreter is, I talk about it all the time.
+- [19:54.860] Interpreters are really important.
+- [19:58.700] When you don't speak the language
+- [20:00.110] and they don't speak the language,
+- [20:01.610] it's, you're, people have no idea.
+- [20:03.380] People have no idea how valuable,
+- [20:05.660] and I'm on them all the time.
+- [20:06.970] People have no idea how valuable a good interpreter is.
+- [20:11.430] But over the last year, the world has witnessed
+- [20:14.580] the supreme power of the United States.
+- [20:17.700] We're the most powerful military country in the world.
+- [20:20.960] Again, I rebuilt it in my first, I spent so much time
+- [20:23.520] rebuilding it, over a trillion dollars.
+- [20:26.370] And now we just had another budget.
+- [20:28.180] We may be going to a trillion-and-a-half dollars.
+- [20:31.710] We're building a thing called a battleship,
+- [20:33.860] like in the old days, remember?
+- [20:36.280] We have a secretary of the Navy,
+- [20:39.920] and he suggested, I suggested, I've, I've always said,
+- [20:42.860] "Why don't we have battleships anymore,
+- [20:44.400] shooting big bullets instead of, you know, $3 million rockets?"
+- [20:49.440] And they said "Well, sir, we just don't have them."
+- [20:52.230] Uh, nobody could give me the answer,
+- [20:53.490] but we're actually building 10 of them.
+- [20:56.390] And I said, you know, you remember the old ones from,
+- [20:58.850] you see, "Victory at sea." Remember victory at sea.
+- [21:02.140] And you see these ships going through those waves
+- [21:04.510] like the waves were nothing,
+- [21:05.760] although the waves were pretty powerful.
+- [21:08.060] They knock out a lot of, lot of territory.
+- [21:10.270] But you'd see these incredible,
+- [21:13.070] they're pieces of art, beautiful, most beautiful,
+- [21:16.860] the big battleships of the 1940s, right?
+- [21:19.960] Power. And I said,
+- [21:21.670] "Well, would, would we ever want to bring them back?"
+- [21:23.960] 'Cause we have some of them, in the museums and other things.
+- [21:27.880] And they said, "Sir, the new ship is 100 times more powerful
+- [21:33.400] than what we were looking at with those guns." (Inaudible)
+- [21:35.750] Amazing, right? 100 times.
+- [21:37.760] I said, "Are you sure it's not maybe 90 times?"
+- [21:40.140] 100 times more powerful.
+- [21:43.220] And we're building 10 of them, not to use them.
+- [21:46.320] We don't want to use them, but by having them,
+- [21:48.000] nobody's going to play games, so yeah.
+- [21:50.520] Just good to have them. We don't want to use them.
+- [21:52.330] They'll say, "Oh, he's very militaristic."
+- [21:54.090] I'm, I'm the one that ended eight wars.
+- [21:57.070] I'm the one that, and we have another one coming, I think.
+- [22:00.420] The easiest was that, and that was just,
+- [22:03.970] and, and you know, as you would understand this.
+- [22:06.660] The hatred between Putin and his counterpart
+- [22:12.490] is so great, okay?
+- [22:15.210] It's so great that, you know, Ukraine, Russia,
+- [22:22.100] you'd think there'd be a little bit of comradery.
+- [22:24.000] There's not. And the hatred is so great,
+- [22:27.360] it's very hard for them to get there.
+- [22:30.100] It's very, very hard to get there.
+- [22:32.590] So we'll see what happens,
+- [22:34.640] but we've been close a lot of times,
+- [22:37.510] and one or the other would back out.
+- [22:41.230] But we're losing, you know, they're losing, you know,
+- [22:43.520] it doesn't really affect us very much,
+- [22:45.500] because we've got an ocean separating.
+- [22:48.730] I'm doing it as a favor to Europe,
+- [22:51.410] and I'm doing it as a favor to life,
+- [22:55.020] because they're losing 25,000 souls,
+- [22:58.000] think of that, every month. 25,000. Last month, 31,000,
+- [23:04.380] both sides, 31,000 people died, mostly soldiers.
+- [23:09.620] So I have an ability to get those things done,
+- [23:13.070] to get, bring people together,
+- [23:14.870] and I did great with s- -- so many.
+- [23:17.860] India, Pakistan. That was going to be a disaster.
+- [23:20.660] That was really, that was raging for f- --
+- [23:22.820] a number of days. I did that through trade.
+- [23:24.970] I used tariffs and trade, and uh, it was amazing.
+- [23:28.960] But we did, um, amazing.
+- [23:30.570] One was 32 years, one was 34, and one was 37 years,
+- [23:34.460] and we got it done very quickly.
+- [23:36.730] And we'll get this one done too, but the, the hatred is, um,
+- [23:41.110] it's hatred's a, an amazing, an amazing thing.
+- [23:45.200] People do bad things and people don't get things done
+- [23:48.380] when the hatred is too great
+- [23:49.700] and that's a, that's a lot of it.
+- [23:52.010] Just as we formed a coalition to eradicate
+- [23:55.340] ISIS in the Middle East, we must now do the same thing
+- [23:58.550] to eradicate the cartels at home.
+- [24:01.290] So we did eradicate ISIS.
+- [24:04.700] Now, during the four years, we had a rigged election,
+- [24:07.510] you probably read about it, probably heard something.
+- [24:10.130] So it gave me four years to contemplate
+- [24:12.980] and to stage my comeback. I staged big comeback.
+- [24:16.380] They say it was a comeback. I didn't think it was a comeback
+- [24:18.340] because I had this, I had the people on my side.
+- [24:21.150] So I didn't view it as a comeback,
+- [24:22.730] but they did everything possible during that four years.
+- [24:26.060] Crooked peel- -- they're crooked politicians, dirty cops.
+- [24:29.530] They're dirty cops. They did everything possible
+- [24:32.050] to make it impossible for me to win.
+- [24:34.980] And I won in a landslide.
+- [24:37.180] But during that period of time, I learned a lot.
+- [24:40.080] And I, I learned how you people,
+- [24:43.440] and I saw it so badly, how you're suffering
+- [24:45.400] with what's happening with the crime in the region.
+- [24:49.170] And I said, "If we ever come back,
+- [24:50.490] we're going to eradicate that crime,
+- [24:52.310] and I'm going to work with you,
+- [24:53.610] and if you want, we're going to do it.
+- [24:56.320] We can do it pretty easily." As part of our commitment
+- [24:59.890] to countering the cartel presence in our region,
+- [25:02.800] we must recognize the epicenter of cartel violence is Mexico.
+- [25:12.040] The Mexican cartels are fueling
+- [25:14.130] and orchestrating much of the bloodshed
+- [25:17.580] and chaos in this hemisphere and the United States government
+- [25:20.610] will do whatever is necessary to defend our national security
+- [25:23.920] and to protect the safety of the American people.
+- [25:26.770] No, make, look, it all comes, it's coming through Mexico.
+- [25:30.640] And I like the president very much.
+- [25:33.630] She's a, a very good person.
+- [25:36.170] She's got a beautiful voice, a beautiful woman,
+- [25:39.420] but beautiful voice. President, president, president.
+- [25:44.660] I said, "Let me eradicate the cartels."
+- [25:46.630] "No, no, no, please, president." We have to eradicate them.
+- [25:53.570] We have to knock the hell out of them
+- [25:55.790] because they're getting worse.
+- [25:57.230] They're taking over their country.
+- [25:59.150] The cartels are running Mexico. We can't have that.
+- [26:04.550] Too close to us. Too close to you.
+- [26:08.980] But everything comes in through Mexico, mostly.
+- [26:12.890] At the same time, all of us must recommit
+- [26:16.250] to ensuring that law and order within our own nations,
+- [26:19.720] and that includes showing zero tolerance
+- [26:22.110] for the gang activity, tremendous gang activity.
+- [26:26.140] In Venezuela, we've got,
+- [26:27.930] that's in much better shape than it ever has been.
+- [26:30.990] We've developed a great relationship in Venezuela.
+- [26:34.660] The savages who murder and rape with impurity
+- [26:37.160] must be permanently removed from society.
+- [26:39.710] We must not allow our criminal justice systems to be corrupted
+- [26:44.020] so that they protect these criminals and animals
+- [26:48.400] at the expense of your people.
+- [26:50.690] And for some reason, all over the world,
+- [26:52.280] this is a region that has problems
+- [26:54.610] that other regions don't have. They have different problems,
+- [26:58.030] but they don't have this problem.
+- [27:00.160] The United States last year,
+- [27:01.950] we achieved the largest drop in murder rate in recorded history.
+- [27:06.510] We we have the lowest murder rate in 125 years.
+- [27:10.630] Hard to believe because, I don't know,
+- [27:13.700] it's, you know, we allowed, we've got a lot of them out,
+- [27:16.470] but we, we allowed through the Biden policies and Obama,
+- [27:21.100] who was another terrible president,
+- [27:22.710] by the way, he was Barack Hussein Obama,
+- [27:24.580] a terrible president. He was a divider, great divider.
+- [27:28.360] I call him the great divider.
+- [27:30.730] But they allowed a lot of people into our country
+- [27:36.000] that shouldn't be here. But in particular, Biden,
+- [27:38.320] because Biden had no idea what he was doing,
+- [27:40.180] he had, he had no clue. It was being run by,
+- [27:44.430] whoever got near the autopen was running the country.
+- [27:47.970] He was the autopen president.
+- [27:49.550] And, frankly, they let at least 25 million people
+- [27:53.470] come into our country, some from prisons,
+- [27:56.270] some from mental institutions, gang members,
+- [28:01.170] the heads of gangs the mentally insane.
+- [28:06.420] I'll tell you, people came in from mental institutions
+- [28:10.110] and insane asylums, and we took them.
+- [28:12.870] We had an open border policy.
+- [28:14.350] It's a policy divided and, and devised by idiots,
+- [28:21.070] but they poured into our country.
+- [28:22.890] So we went from the worst border in history to,
+- [28:24.840] by far, the best border.
+- [28:26.070] We have the best strongest border we've ever had.
+- [28:29.350] We have great people that did their job by securing our border
+- [28:33.460] and cracking down on traffickers and smugglers.
+- [28:35.920] We've reduced the fentanyl pouring across our border
+- [28:39.570] by 67%.
+- [28:43.340] This is in our first year, you know,
+- [28:45.100] give me a little more time, we'll do better.
+- [28:47.470] 67%, which is a number that's unthinkable.
+- [28:50.280] You know, they say if you could do 2%, 1%,
+- [28:53.590] but we got it down 67%.
+- [28:55.480] And we got a lot of the murderers out.
+- [28:57.670] We had 11,888 murders allowed in our country
+- [29:02.760] with this ridiculous open border policy
+- [29:04.880] that these eggheads put in.
+- [29:07.710] But we're also working closely with you
+- [29:09.490] on ending human smuggling and the implementing of the safe
+- [29:13.850] third country agreements, which are very important.
+- [29:17.140] In January, America's armed forces also ended the reign
+- [29:20.630] of one of the biggest cartel kingpins of all,
+- [29:24.650] with the Operation Absolute Resolve
+- [29:27.180] to bring outlaw dictator, Nicolas Maduro,
+- [29:31.680] to justice in a precision raid
+- [29:36.600] that nobody's ever seen anything like it.
+- [29:38.450] This was in a very powerful military base fort.
+- [29:43.960] And they went in, and they took him out,
+- [29:45.760] and they got him out, and people couldn't believe it.
+- [29:49.420] They couldn't believe it.
+- [29:50.670] We went right into the heart to come out.
+- [29:54.620] And it was nasty.
+- [29:55.920] It was, it was about 18 minutes of pure violence,
+- [30:02.230] and we took him out.
+- [30:04.170] We lost nobody. Not one person was lost.
+- [30:06.970] Not one aircraft or no military equipment, zero.
+- [30:11.920] People have never seen anything like it.
+- [30:13.780] And you're talking about in a, into a military base
+- [30:16.480] with a lot of soldiers, good soldiers.
+- [30:19.800] Since that operation, we've been working closely
+- [30:22.270] with the new president of Venezuela, Delcy Rodriguez,
+- [30:26.210] who's doing a great job working with us.
+- [30:29.790] I mean, she's doing a great job
+- [30:31.180] because she's working with us. If she wasn't working with us,
+- [30:33.770] I would not say she's doing a great job.
+- [30:35.480] In fact, if she wasn't working with us,
+- [30:37.820] I'd say she's doing a very poor job.
+- [30:40.270] Unacceptable.
+- [30:42.550] No, but she's doing a great job, Marco, right?
+- [30:45.120] And she gets along great with Marco,
+- [30:46.840] and we're taking out tremendous amounts of oil.
+- [30:50.230] They're getting, they're making more money
+- [30:51.900] now than they've ever made, ever made.
+- [30:54.760] We have the big oil companies in.
+- [30:57.400] They, they are getting, making more money.
+- [30:59.690] We're getting some. They're getting a lot.
+- [31:03.080] They're making more money now than
+- [31:04.550] they've ever made in the history of their country.
+- [31:06.810] Can you imagine? And it's being spent properly
+- [31:10.910] and they're, they're watching it closely.
+- [31:13.350] And I'm pleased to say that this week
+- [31:15.130] we have formally recognized the Venezuelan government.
+- [31:18.960] We've actually legally recognized them.
+- [31:21.310] We have also just reached a historic gold deal.
+- [31:25.170] It's called the gold deal with Venezuela
+- [31:27.110] to allow our two countries to work together
+- [31:29.840] to facilitate the sale of Venezuelan gold
+- [31:32.900] and other minerals. They have great amounts of gold.
+- [31:36.590] They have good land, tell you, very good land.
+- [31:41.510] But they weren't able to take advantage --
+- [31:43.360] the system didn't allow them to take advantage
+- [31:45.950] of the value of their land.
+- [31:48.420] As we achieve a historic transformation in Venezuela,
+- [31:52.540] we're also looking forward to the great change
+- [31:55.150] that will soon be coming to Cuba.
+- [31:57.430] Cuba's, at the end of the line.
+- [32:00.380] They're very much at the end of the line.
+- [32:03.080] They have no money, they have no oil.
+- [32:06.250] They have a bad philosophy.
+- [32:08.070] They have a bad regime that's been bad for a long time.
+- [32:14.600] And they used to get the money from Venezuela.
+- [32:16.980] They get the oil from Venezuela,
+- [32:19.700] but they don't have any money from Venezuela.
+- [32:22.420] They don't have any oil. They don't have anything from,
+- [32:25.210] people can't even, they land in Cuba,
+- [32:28.180] they can't get gasoline to fly out.
+- [32:30.480] They have to leave their planes behind.
+- [32:33.460] And they want to negotiate, and they are negotiating
+- [32:35.840] with Marco and myself and some others.
+- [32:39.310] And I would think a deal would be made very easily with Cuba.
+- [32:44.100] But for 50 years, I've been hearing as a little boy,
+- [32:46.400] I'd be hearing about Cuba. Uh, you know, Cuba's a disaster,
+- [32:51.390] but I've been hearing so much about Cuba.
+- [32:53.080] But Cuba's is in its last moments of life, as it was.
+- [32:56.700] It'll have a great new life,
+- [32:58.980] but it's in its last moments of life the way it is.
+- [33:03.490] And, um, but our focus right now is on Iran, and we'll do that.
+- [33:09.090] I would say, what will you do? Take about two days off, Marco?
+- [33:11.930] No, he will may- -- maybe an hour.
+- [33:13.560] He'll take one hour off,
+- [33:14.760] and then he'll finish up a deal on Cuba.
+- [33:18.800] That'll be an easy one.
+- [33:20.890] But it'll be the entire region that we're doing that.
+- [33:24.420] Many of you have come today and they say,
+- [33:25.910] "I hope you can take care of Cuba
+- [33:27.180] because you've had problems with Cuba, right, you mentioned."
+- [33:30.140] I was surprised, but four of you said actually,
+- [33:35.180] "Could you do us a favor? Take care of Cuba."
+- [33:38.330] I'll take care of it, okay?
+- [33:45.550] So and as these situations in Venezuela and Cuba
+- [33:49.550] should make clear under our new doctrine, and it is a doctrine.
+- [33:53.280] We will not allow hostile, foreign influence
+- [33:56.340] to gain a foothold in this hemisphere.
+- [33:58.760] That includes the Panama Canal, which we talked about.
+- [34:01.630] We're not going to allow it.
+- [34:03.360] And together, we'll protect our sovereignty, our security,
+- [34:06.420] and our cherished freedom and independence.
+- [34:10.570] And just in finishing up, the nations gathered here today
+- [34:13.800] are filled with unlimited potential,
+- [34:16.960] and you have tremendous potential.
+- [34:19.750] It's a great, a great part of the world.
+- [34:23.240] But to fill, to fulfill that tremendous potential,
+- [34:26.260] we must smash the grip of the cartels and criminal gangs
+- [34:29.930] and, and horrible organizations run by,
+- [34:34.880] in some cases, absolute animals and truly liberate our people.
+- [34:40.320] And some people are afraid to do it
+- [34:42.270] because it's so, they've gotten such a foothold,
+- [34:44.660] but I think you can get out of that
+- [34:46.800] and we'll work with you if you need.
+- [34:49.050] With the courage and resolve of the leaders in this room,
+- [34:51.900] great leaders we'll make our nation safer, stronger, richer,
+- [34:55.780] and more successful than ever before.
+- [34:59.460] So I want to thank you all very much for coming.
+- [35:01.790] I look forward to the incredible progress that's soon to come.
+- [35:05.260] You're going to see some incredible things.
+- [35:07.080] And now I'd like to ask Secretary Rubio
+- [35:09.980] and Secretary Hegseth to say a few words,
+- [35:12.200] and then I'll sign a proclamation formally
+- [35:14.810] launching the America's Counter Cartel Coalition,
+- [35:19.550] which is what it is. It's a counter-cartel coalition.
+- [35:23.020] And thank you all for being here very much.
+- [35:24.860] Appreciate it. Thank you.
+- [35:27.630] (applause)
+- [35:35.680] Secretary Rubio: Well, thank you.
+- [35:37.010] Thank you, Mr. President.
+- [35:38.240] I want to thank all the leaders that are here today.
+- [35:39.990] I'll be very brief.
+- [35:41.440] First of all, Mr. President thank you
+- [35:43.140] for making this region a priority.
+- [35:44.750] We've had successive American presidents
+- [35:46.570] say that the Western Hemisphere
+- [35:47.910] is going to be a priority and they never do it.
+- [35:50.130] And the president has made it a personal priority.
+- [35:52.530] He's also a president of action.
+- [35:53.860] It's why I believe he will go down
+- [35:55.420] as the most historic figure in,
+- [35:57.940] in one of the most historic figures in American history,
+- [36:00.190] and certainly of the last hundred years
+- [36:02.510] because of what he has been able to do
+- [36:04.100] and is doing right now with the Western Hemisphere.
+- [36:05.900] Thank you for your bold leadership.
+- [36:08.150] It's an honor to be able to serve in your administration.
+- [36:10.740] And Mr. President, two points I want to make.
+- [36:12.670] The first is, we have a lot of allies around the world,
+- [36:16.180] and we are grateful for our allies.
+- [36:17.850] And the countries represented here today,
+- [36:19.350] all 12 of the leaders here are allies,
+- [36:21.150] but they're more than allies, they're friends.
+- [36:23.490] At a time when we have learned that oftentimes an ally,
+- [36:25.890] when you need them, maybe may not be there for you.
+- [36:28.600] These are countries that have been there for us,
+- [36:30.170] and these are leaders that are not just allies,
+- [36:31.800] they are friends, and they are always willing
+- [36:33.540] to work and cooperate with the United States,
+- [36:35.290] and we're grateful for you.
+- [36:38.940] (applause)
+- [36:40.140] And as you said, Mr. President,
+- [36:41.430] these are also countries with extraordinary potential.
+- [36:44.090] Some are fulfilling it,
+- [36:45.350] some are well on their way to fulfilling it,
+- [36:47.320] and this is important.
+- [36:48.560] We want to be a partner with you in that.
+- [36:50.020] We want the world to see that when you are a friend
+- [36:52.170] and an ally of the United States,
+- [36:53.790] it is a good thing.
+- [36:55.030] It's reciprocated. It comes back the other way as well.
+- [36:57.710] And so the fact the president is here today
+- [36:59.310] and making this a priority is so critical.
+- [37:02.300] If I may, because some of these cameras cover in Spanish.
+- [37:04.990] You all right if I --
+- [37:06.220] The President: Sure. Please
+- [37:07.460] Secretary Rubio: We don't need an interpreter for this one.
+- [37:09.270] (speaking Spanish)
+- [37:10.550] I think I'm a good interpreter.
+- [37:11.930] You'll find out on a second, but --
+- [37:13.910] (speaking Spanish)
+- [38:04.540] Thank you.
+- [38:05.820] (applause)
+- [38:10.440] The President: Is he better in Spanish or in English?
+- [38:13.620] I think he's better in Spanish, I think.
+- [38:16.070] He's great. Pete, please.
+- [38:18.220] Secretary Hegseth: Thank you, sir.
+- [38:21.740] Mr. President, I only -- I only speak American.
+- [38:26.880] Marco Rubio: That's all right, we speak Cuban.
+- [38:28.750] Secretary Hegseth: That's --
+- [38:30.700] Well, Mr. President, it's an honor to be here
+- [38:32.760] and to establish in this hemisphere
+- [38:35.350] peace through strength.
+- [38:37.450] For far too long, our country's gaze was only on borders
+- [38:40.800] in far-flung places not our own border,
+- [38:43.720] not our own hemisphere, not the Western hemisphere.
+- [38:46.380] President Trump has established
+- [38:48.210] the Trump Corollary of the Monroe Doctrine,
+- [38:51.060] the Donroe Doctrine, and the War Department
+- [38:54.730] is implementing it as fast as we can.
+- [38:57.580] In fact, two days ago, Mr. President,
+- [38:58.960] we launched 18 countries. We're signatories to the,
+- [39:02.780] the America's Counter Cartel Coalition, ACCC,
+- [39:06.840] which is not just an organization
+- [39:08.600] that's going to hold conferences and release white papers.
+- [39:11.610] That's not what we exist to do.
+- [39:12.990] It's an action coalition of like-minded countries
+- [39:16.360] who are going to bring their capabilities to bear,
+- [39:18.780] with American leadership at the forefront,
+- [39:21.590] to ensure we, we attack and get after this cartel challenge,
+- [39:25.830] which for far too long we have accepted
+- [39:27.550] as some new normal in our own countries.
+- [39:29.270] President Trump and the American people
+- [39:31.180] rejected that in our own.
+- [39:32.950] We don't have to live with communities
+- [39:35.110] flooded with drugs or violence or cartels and gangs.
+- [39:38.140] We conceal our border and we have to for our citizens.
+- [39:41.890] We share a hemisphere and geography.
+- [39:44.410] We share cultures, Western Christian civilization.
+- [39:47.330] We share these things together,
+- [39:49.200] we have to have the courage to defend it,
+- [39:50.890] and we have a commander-in-chief in our country
+- [39:53.150] who's set that compass heading.
+- [39:55.460] And at the War Department, we look forward to working
+- [39:57.380] with all of your countries and more that are, are not here,
+- [40:00.500] to say, with our shared assets and our intelligence
+- [40:03.420] and our capabilities with American leadership,
+- [40:06.070] we will go on offense against the cartels.
+- [40:08.800] They will know that we're just around the corner.
+- [40:11.190] Whether it's drug boats or on land, we look f- --
+- [40:14.100] the America's Counter Carter,
+- [40:16.170] cartel Coalition, the ACCC, will be a force for good,
+- [40:20.310] for peace through strength in this hemisphere,
+- [40:23.480] and we look forward to working with your great countries.
+- [40:25.650] Thank you very much.
+- [40:28.040] (applause)
+- [40:39.036] ♪ (patriotic music playing) ♪
+- [41:43.032] (applause)
+- [41:56.028] ♪ (patriotic music playing) ♪
+- [42:09.024] (applause)
+- [42:17.570] The President: Thank you very much, everybody.
+- [42:21.500] ♪ (patriotic music playing) ♪

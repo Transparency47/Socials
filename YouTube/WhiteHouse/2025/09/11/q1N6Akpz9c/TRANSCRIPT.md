@@ -1,0 +1,96 @@
+<!-- source: https://www.youtube.com/watch?v=-q1N6Akpz9c -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: -q1N6Akpz9c -->
+<!-- date_published: 2025-09-11T01:18:15+00:00 -->
+<!-- date_accessed: 2026-06-02T01:16:07.537607+00:00 -->
+
+# Transcript: President Trump Delivers Remarks on Charlie Kirk
+
+- [00:00.160] To my great fellow Americans, I am
+- [00:02.240] filled with grief and anger at the
+- [00:04.720] heinous assassination of Charlie Kirk on
+- [00:07.520] a college campus in Utah. Charlie
+- [00:11.040] inspired millions, and tonight all who
+- [00:13.440] knew him and loved him are united in
+- [00:16.480] shock and horror. Charlie was a patriot
+- [00:20.640] who devoted his life to the cause of
+- [00:23.199] open debate and the country that he
+- [00:25.680] loved so much, the United States of
+- [00:27.680] America. He fought for liberty,
+- [00:30.000] democracy, justice, and the American
+- [00:32.160] people. He's a martyr for truth and
+- [00:34.960] freedom. And there's never been anyone
+- [00:37.520] who was so respected by youth.
+- [00:40.879] Charlie was also a man of deep, deep
+- [00:44.320] faith. And we take comfort in the
+- [00:47.039] knowledge that he is now at peace with
+- [00:49.360] God in heaven. Our prayers are with his
+- [00:52.719] wife Erica, the two young beloved
+- [00:56.559] children, and his entire family who he
+- [00:58.719] loved more than anything in the world.
+- [01:01.520] We ask God to watch over them in this
+- [01:04.400] terrible hour of heartache and pain.
+- [01:07.280] This is a dark moment for America.
+- [01:10.960] Charlie Kirk traveled the nation
+- [01:13.360] joyfully engaging with everyone
+- [01:15.680] interested in good faith debate. His
+- [01:19.280] mission was to bring young people into
+- [01:21.520] the political process, which he did
+- [01:23.439] better than anybody ever, to share his
+- [01:28.080] love of country and to spread the simple
+- [01:30.320] words of common sense. On campuses
+- [01:34.000] nationwide, he championed his ideas with
+- [01:36.640] courage, logic, humor, and grace. It's
+- [01:40.320] long past time for all Americans and the
+- [01:43.040] media to confront the fact that violence
+- [01:46.000] and murder are the tragic consequence of
+- [01:49.680] demonizing those with whom you disagree
+- [01:52.560] day after day, year after year in the
+- [01:55.439] most hateful and despicable way
+- [01:57.280] possible. For years, those on the
+- [02:00.079] radical left have compared wonderful
+- [02:02.799] Americans like Charlie to Nazis and the
+- [02:05.920] world's worst mass murderers and
+- [02:08.640] criminals. This kind of rhetoric is
+- [02:11.840] directly responsible for the terrorism
+- [02:14.800] that we're seeing in our country today,
+- [02:17.680] and it must stop right now.
+- [02:21.200] My administration will find each and
+- [02:23.520] every one of those who contributed to
+- [02:25.599] this atrocity and to other political
+- [02:28.400] violence, including the organizations
+- [02:30.560] that fund it and support it, as well as
+- [02:33.440] those who go after our judges, law
+- [02:36.400] enforcement officials, and everyone else
+- [02:39.040] who brings order to our country. From
+- [02:42.080] the attack on my life in Butler,
+- [02:44.080] Pennsylvania last year, which killed a
+- [02:46.640] husband and father, to the attacks on
+- [02:48.959] ICE agents, to the vicious murder of a
+- [02:51.840] healthc care executive in the streets of
+- [02:53.920] New York, to the shooting of House
+- [02:56.640] Majority Leader Steve Scaliz and three
+- [02:58.959] others. Radical left political violence
+- [03:01.840] has hurt too many innocent people and
+- [03:04.959] taken too many lives. Tonight, I ask all
+- [03:08.000] Americans to commit themselves to the
+- [03:10.239] American values for which Charlie Kirk
+- [03:12.800] lived and died. The values of free
+- [03:16.000] speech, citizenship, the rule of law,
+- [03:19.599] and the patriotic devotion and love of
+- [03:22.080] God. Charlie was the best of America,
+- [03:25.200] and the monster who attacked him was
+- [03:27.680] attacking our whole country. An assassin
+- [03:30.720] tried to silence him with a bullet, but
+- [03:33.440] he failed. Because together we will
+- [03:35.680] ensure that his voice, his message, and
+- [03:38.000] his legacy will live on for countless
+- [03:40.799] generations to come. Today, because of
+- [03:43.920] this heinous act, Charlie's voice has
+- [03:46.720] become bigger and grander than ever
+- [03:49.200] before,
+- [03:50.720] and it's not even close. May God bless
+- [03:53.599] his memory. May God watch over his
+- [03:56.239] family, and may God bless the United
+- [03:59.280] States of America. Thank you.

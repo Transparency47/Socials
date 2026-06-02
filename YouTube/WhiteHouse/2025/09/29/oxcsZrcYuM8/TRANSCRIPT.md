@@ -1,0 +1,908 @@
+<!-- source: https://www.youtube.com/watch?v=oxcsZrcYuM8 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: oxcsZrcYuM8 -->
+<!-- date_published: 2025-09-29T19:13:37+00:00 -->
+<!-- date_accessed: 2026-06-02T02:44:15.203776+00:00 -->
+
+# Transcript: President Trump Participates in a Press Conference with the Prime Minister of the State of Israel
+
+- [00:09.075] Announcer: The President
+- [00:10.043] of the United States and the Prime Minister of the
+- [00:11.978] State of Israel.
+- [00:27.927] The President: Thank you very much, everybody.
+- [00:30.964] So, this is a big, big day, a beautiful day.
+- [00:33.733] Potentially, one of the great days ever
+- [00:38.171] in civilization.
+- [00:39.139] Things that have been going on for hundreds of
+- [00:44.210] years and thousands of years, we're going to, at
+- [00:48.014] least we're at a minimum very, very close, and I
+- [00:50.316] think we're beyond very close.
+- [00:51.651] And I want to thank Bibi for really getting in
+- [00:55.789] there and doing the job.
+- [00:57.724] We've worked well together, as we have with
+- [01:00.760] many other countries, both of us with many other
+- [01:03.096] countries, which is the only way this whole
+- [01:05.765] situation gets solved.
+- [01:08.168] And I'm not just talking about Gaza.
+- [01:09.869] Gaza's one thing, but we're talking about much
+- [01:11.738] beyond Gaza.
+- [01:13.907] The whole deal, everything getting solved.
+- [01:17.977] It's called peace in the Middle East.
+- [01:22.515] So, today is a historic day for peace and Prime
+- [01:25.819] Minister Netanyahu and I have just concluded an
+- [01:29.088] important meeting on many vital issues.
+- [01:31.124] Including Iran, trade, the expansion of the Abraham
+- [01:37.030] Accords, and most importantly, we discussed
+- [01:40.467] how to end the war in Gaza, but it's just a part
+- [01:45.638] of the bigger picture, which is peace in the
+- [01:48.475] Middle East and let's call it eternal peace in the
+- [01:52.278] Middle East.
+- [01:52.946] So, this is far more than anybody expected, but the
+- [01:58.551] level of support that I've had from the nations in
+- [02:02.722] the Middle East and surrounding Israel and
+- [02:05.358] neighbors of Israel has been incredible,
+- [02:07.727] incredible.
+- [02:08.561] Every single one of them.
+- [02:10.063] This afternoon, after extensive consultation
+- [02:13.199] with our friends and partners throughout the
+- [02:14.868] region, I'm formally releasing our principles
+- [02:17.570] for peace, which people have really liked, I must
+- [02:20.673] say.
+- [02:21.841] And these are done, not just routinely done, these
+- [02:24.811] are done with total consideration and working
+- [02:29.549] with the nations that we're talking about.
+- [02:32.886] All of these nations have made contributions to
+- [02:36.689] those suggestions.
+- [02:38.591] I want to thank the leaders of many Arab and
+- [02:40.660] Muslim nations for their tremendous support in
+- [02:43.463] developing the proposal, along with many of our
+- [02:47.200] allies in Europe.
+- [02:48.568] Europe has been very much involved.
+- [02:50.970] And as I was called by many of the European
+- [02:52.972] leaders, most of them saying, "Is this true?
+- [02:56.109] Are you really doing peace in the Middle East?
+- [02:59.178] This is the most incredible thing we've
+- [03:01.814] heard." Some think it's the biggest thing they've
+- [03:03.550] ever heard.
+- [03:04.784] They called just to find out, "Was it just a rumor
+- [03:07.186] or is it actually done?"
+- [03:09.789] And then they said, "Have you spoken to the Arab
+- [03:11.925] leaders?
+- [03:12.592] Have you spoken to all of the other leaders?
+- [03:15.094] We have to get a lot of people involved in this
+- [03:17.263] one."
+- [03:18.531] I also want to thank Prime Minister Netanyahu for
+- [03:20.833] agreeing to the plan and for trusting that if we
+- [03:24.637] work together, we can bring an end to the death
+- [03:27.874] and destruction that we've seen for so many years,
+- [03:30.543] decades, even centuries.
+- [03:32.679] And begin a new chapter of security, peace, and
+- [03:34.914] prosperity for the entire region.
+- [03:37.617] And I want to just say that my meetings and
+- [03:42.589] dialogue that we had with so many countries, Saudi
+- [03:46.926] Arabia as an example, the king is a phenomenal
+- [03:50.063] person.
+- [03:52.732] The emir of Qatar, these are incredible people.
+- [03:57.403] UAE, and that's MBZ and ABZ were totally involved.
+- [04:02.709] These are the people that we've been dealing with
+- [04:06.846] and who've been actually very much involved in this
+- [04:09.882] negotiation, giving us ideas, things they can
+- [04:12.785] live with, things they can't live with.
+- [04:14.988] Pretty complex.
+- [04:16.756] I mean, after 2,000, 3,000 years, whatever it is, I
+- [04:19.859] guess it's got to be a little complex, or it
+- [04:21.694] would've been done a long time ago.
+- [04:23.963] The king of Jordan was with us.
+- [04:26.332] As you know, in the United Nations, the president of
+- [04:31.671] Turkey, President Erdogan, he's a friend of mine,
+- [04:35.241] strong man, but a good man.
+- [04:38.211] President of Indonesia, somebody who's an amazing
+- [04:42.415] leader, Prabowo.
+- [04:46.653] He is an amazing leader and respected by
+- [04:50.089] everybody.
+- [04:51.224] He was in the room with us.
+- [04:52.358] We were together with most of these people that I'm
+- [04:55.728] mentioning.
+- [04:56.396] Others were by phone or the next day.
+- [05:01.334] The prime minister and the field marshal of Pakistan,
+- [05:05.938] they were with us right from the beginning.
+- [05:09.275] Incredible.
+- [05:09.976] In fact, they just put out a statement that they
+- [05:12.779] fully believe in this pact.
+- [05:15.715] It just came out just as I was walking around.
+- [05:17.517] They said, "Sir, you have a big notice from the
+- [05:21.788] prime minister of Pakistan and from the field
+- [05:24.257] marshal, that they back this 100 percent."
+- [05:28.327] President el-Sisi of Egypt who's terrific.
+- [05:31.531] And these are people I've gotten to know over the
+- [05:34.233] years.
+- [05:34.901] I mean, I would say it started around 2015 and
+- [05:39.272] then went into 2016 when the presidency officially
+- [05:43.042] began, but I've known them actually for a long time.
+- [05:46.012] And there are many cases, really great.
+- [05:49.082] I can't say in all cases, but I will tell you, in
+- [05:51.150] many cases they're great men and some great women
+- [05:54.721] too.
+- [05:55.388] They tend to be mostly men, however, I will say
+- [05:57.824] that.
+- [05:59.525] But if accepted by Hamas, this proposal calls for
+- [06:03.196] the release of all remaining hostages
+- [06:06.899] immediately, but in no case, more than 72 hours.
+- [06:12.271] So, the hostages are coming back.
+- [06:14.107] And I hate even saying this, from the standpoint,
+- [06:18.678] doesn't sound right, but it is so important to the
+- [06:21.948] parents, the bodies of the young men.
+- [06:26.085] I believe in almost all cases, the young men are
+- [06:30.890] coming back immediately.
+- [06:33.526] I met with parents.
+- [06:34.393] Their parents felt as strongly about getting the
+- [06:39.565] body of their dead boy back, as they did as
+- [06:42.668] though the boy were alive and well.
+- [06:46.739] It's so important to them, and it means the immediate
+- [06:50.343] end to the war itself, not just Gaza, it's the war
+- [06:55.882] itself.
+- [06:56.983] Under the plan, Arab and Muslim countries have
+- [06:59.919] committed, and in writing in many cases, but I
+- [07:04.490] actually would take their word for it, the people I
+- [07:06.359] mentioned, I take their word for it, to
+- [07:08.995] demilitarize Gaza and that's quickly
+- [07:13.866] decommission the military capabilities of Hamas and
+- [07:18.204] all other terror organizations, do that
+- [07:21.340] immediately.
+- [07:23.242] And we're relying on the countries that I named and
+- [07:26.312] others to deal with Hamas.
+- [07:29.515] And I'm hearing that Hamas wants to get this done
+- [07:33.319] too, and that's a good thing.
+- [07:35.655] And destroy all terror infrastructure, including
+- [07:38.024] the tunnels, weapons production in facilities.
+- [07:42.495] They have a lot of production facilities that
+- [07:44.630] we're destroying.
+- [07:46.065] They'll also help train local police forces in the
+- [07:51.204] areas that we're discussing right now, in
+- [07:55.641] particular in and around Gaza, working with the new
+- [08:00.112] transitional authority in Gaza, all parties will
+- [08:02.949] agree on a timeline for Israeli forces to withdraw
+- [08:06.652] in phases.
+- [08:07.353] They'll be withdrawing in phases, no more shooting
+- [08:10.623] hopefully.
+- [08:11.858] As progress is made toward achieving these goals,
+- [08:14.961] Arab and Muslim nations need to be allowed the
+- [08:17.864] chance to fulfill these commitments of dealing
+- [08:20.333] with Hamas.
+- [08:21.634] They have to deal with them because they were the
+- [08:24.937] one group that we have not dealt with.
+- [08:27.473] I haven't dealt with them, but the Arab and Muslim
+- [08:34.447] countries are going to be dealing with Hamas, and I
+- [08:37.717] believe they've already been there.
+- [08:40.119] I think they probably have an understanding and they
+- [08:43.122] haven't maybe mentioned that, but I would imagine
+- [08:45.925] they do.
+- [08:46.626] Otherwise, they wouldn't have gone as far as
+- [08:48.027] they've gone.
+- [08:49.295] If they're unable to do so, then Israel would have
+- [08:51.797] the absolute right and actually our full backing,
+- [08:55.401] the US full backing.
+- [08:57.336] Marco is here and a lot of our leaders are here.
+- [09:00.273] Our great vice president, Suzy Wiles, Steve Witkoff,
+- [09:04.377] Jared Kushner, they've been so involved in this
+- [09:09.348] process.
+- [09:10.016] I don't think anybody else could have done it or even
+- [09:11.884] come close, but we're right there.
+- [09:16.188] We're right there first time in thousands of
+- [09:20.326] years, I think, you can probably say if you really
+- [09:22.695] look into it.
+- [09:23.562] If you study back, if you're a scholar, you
+- [09:26.599] would say thousands of years Israel would have my
+- [09:30.903] full backing to finish the job of destroying the
+- [09:35.675] threat of Hamas.
+- [09:37.643] But I hope that we're going to have a deal for
+- [09:41.213] peace.
+- [09:42.014] And if Hamas rejects the deal, which is always
+- [09:46.619] possible, they're the only one left.
+- [09:48.421] Everyone else has accepted it.
+- [09:49.922] But I have a feeling that we're going to have a
+- [09:53.759] positive answer.
+- [09:55.461] But if not, as you know, Bibi, you'd have more full
+- [09:57.697] backing to do what you would have to do.
+- [10:01.901] Everyone understands that the ultimate result must
+- [10:04.403] be the elimination of any danger posed in the
+- [10:07.707] region, and that danger is caused by Hamas.
+- [10:14.013] The tyranny of terror has to end.
+- [10:15.815] And this is again, something that we're
+- [10:19.118] looking for.
+- [10:19.785] This is eternity.
+- [10:20.653] This is forever.
+- [10:24.557] To ensure the success of this effort, my plan calls
+- [10:28.027] for the creation of a new international oversight
+- [10:31.397] body, the Board of Peace.
+- [10:33.265] We call it the Board of Peace, sort of a beautiful
+- [10:35.334] name, the Board of Peace, which will be headed not
+- [10:41.540] at my request, believe me, I'm very busy, but we have
+- [10:45.611] to make sure this works.
+- [10:48.381] The leaders of the Arab world and Israel and
+- [10:52.551] everybody involved asked me to do this.
+- [10:54.553] So it would be headed by a gentleman known as
+- [10:57.456] President Donald J.
+- [10:58.591] Trump of the United States.
+- [11:00.159] That's what I want, is some extra work to do, but
+- [11:04.930] it's so important that I'm willing to do it and we'll
+- [11:08.868] do it right.
+- [11:09.535] And we're going to put leaders from other
+- [11:11.003] countries on and leaders that are very
+- [11:12.805] distinguished leaders, and we'll have a board.
+- [11:15.608] And one of the people that wants to be on the board
+- [11:18.644] is the UK former Prime Minister, Tony Blair.
+- [11:21.781] Good man, very good man.
+- [11:24.316] And some others.
+- [11:25.684] And they'll be named over the next few days and
+- [11:29.422] it'll be quite the board working.
+- [11:31.991] Everybody wants to be on it now.
+- [11:35.027] I don't know if that had anything to do.
+- [11:37.530] They named me and everybody else wanted to
+- [11:39.265] be on it.
+- [11:39.932] I guess they figured, "Well, he's a soft touch.
+- [11:42.001] It'll be easy to deal with."
+- [11:44.370] Working with the World Bank and others, it will
+- [11:46.305] be responsible for recruiting and training a
+- [11:49.809] new government that will be made up of Palestinians
+- [11:53.212] along with highly qualified experts from all
+- [11:55.648] around the world.
+- [11:57.316] Hamas and other terrorist factions will play no role
+- [12:00.619] in the board, but they'll play no role in the
+- [12:05.391] governance of Gaza at all, directly or indirectly.
+- [12:10.062] As you know, thousands of Hamas leaders have been
+- [12:16.302] killed and soldiers have been killed.
+- [12:20.005] And we can never forget October 7th, but thousands
+- [12:23.742] have paid the price for that.
+- [12:27.079] And now it's time to get our hostages back and get
+- [12:29.548] back to trying to bill something that's really
+- [12:32.885] great and very important.
+- [12:34.120] In our meeting today, prime Minister Netanyahu
+- [12:36.255] is very clear about his opposition to a
+- [12:39.625] Palestinian state.
+- [12:40.893] And he continuously mentions October 7th.
+- [12:45.264] And I understand that most people do, and I
+- [12:48.901] understand and respect his position on many things.
+- [12:52.771] But what he's doing today is so good for Israel.
+- [12:56.175] I noticed that they have large crowds gathering in
+- [12:59.211] Israel all the time, and they have my name up, they
+- [13:01.113] like me for whatever reason, Bibi, I don't
+- [13:02.882] know, but they do like me.
+- [13:04.183] But they say two things, please get the hostages
+- [13:09.989] back and please end the war.
+- [13:11.790] They've had it.
+- [13:12.925] It's had it.
+- [13:13.592] So I think it's a very popular thing you do
+- [13:16.061] because he's a warrior.
+- [13:17.963] He doesn't know about getting back to a normal
+- [13:21.634] way of life.
+- [13:22.801] But he is a warrior and Israel's lucky to have
+- [13:25.404] him.
+- [13:26.071] But now the people want to get back to peace.
+- [13:28.607] They want to get back to normalization.
+- [13:31.477] In a true sense, several countries have foolishly
+- [13:34.947] recognized the Palestinian state.
+- [13:37.483] As you know, some of our European friends, allies,
+- [13:40.786] good people, but they're really, I think, doing
+- [13:44.256] that because they're very tired of what's going on
+- [13:46.559] for so many decades.
+- [13:47.660] They've been presidents and prime ministers for
+- [13:50.763] years and during this time having to do with the
+- [13:54.166] Middle East.
+- [13:54.833] All they're doing is talking about the same
+- [13:56.302] thing over and over.
+- [13:57.136] They want to see it get back.
+- [13:58.971] And nobody wants that more than me, or I believe Bibi
+- [14:02.775] too.
+- [14:03.709] But the people of Israel want it.
+- [14:05.578] They really want it.
+- [14:06.378] They want the hostages back.
+- [14:08.714] That includes the probably 32 bodies that we're
+- [14:12.051] talking about, 20 people that are living, 32 or so
+- [14:16.488] people that are dead and they want to have peace.
+- [14:20.893] So let us not forget how we got here.
+- [14:22.761] Hamas was elected by the Palestinian people.
+- [14:26.765] Israel withdrew from Gaza thinking they would live
+- [14:30.169] in peace.
+- [14:30.836] Remember that long time ago, they withdrew.
+- [14:33.205] They said, "You take it.
+- [14:35.341] This is our contribution to peace." But that didn't
+- [14:38.010] work out.
+- [14:39.578] That didn't work out.
+- [14:40.579] It was the opposite of peace.
+- [14:43.215] They pulled away.
+- [14:44.550] They let them have it.
+- [14:46.952] And I never forgot that because I said, "It
+- [14:49.021] doesn't sound like a good deal to me," as a real
+- [14:52.424] estate person.
+- [14:53.225] I mean, they gave up the ocean, right?
+- [14:56.195] Ron, they gave up the ocean.
+- [14:57.630] They said, "Who would do this deal?"
+- [15:00.899] And it still didn't work out.
+- [15:02.234] They were very generous actually.
+- [15:04.603] And they gave up the most magnificent piece of land
+- [15:07.840] in many ways in the Middle East.
+- [15:09.275] And they said, "All we want to do now is have
+- [15:11.143] peace." And that request was not honored.
+- [15:15.514] Instead of building a better life for the
+- [15:17.082] Palestinians, Hamas diverted resources to
+- [15:20.185] build over 400 miles of tunnels and terror
+- [15:22.888] infrastructure, rocket production facilities, and
+- [15:26.292] hid their military command posts and launch sites in
+- [15:29.728] hospital, schools and mosques.
+- [15:31.597] So if you went after them, you'd be after them.
+- [15:35.668] And you wouldn't even realize you ended up
+- [15:37.202] knocking out a hospital or school or a mosque.
+- [15:40.739] That terrible thing.
+- [15:42.074] Terrible, terrible way to have to fight.
+- [15:45.511] No fight is good, but that's a real bad one.
+- [15:48.047] So there are many Palestinians who wish to
+- [15:51.116] live in peace.
+- [15:51.784] Many, many, many, I've seen so many of them.
+- [15:56.322] And they have support.
+- [15:57.323] And I challenge the Palestinians to take
+- [16:01.360] responsibility for their destiny because that's
+- [16:03.529] what we're giving them.
+- [16:04.363] We're giving them responsibility for their
+- [16:07.266] destiny, fully condemn and prohibit terrorism and
+- [16:11.236] earn their way to a brighter future.
+- [16:13.205] They don't want the life that they've had.
+- [16:15.708] They've had a rough life with Hamas.
+- [16:19.011] If the Palestinian authority does not
+- [16:21.080] complete the reforms that I laid out in my vision
+- [16:23.882] for peace in 2020, they'll have only themselves to
+- [16:27.419] blame.
+- [16:28.087] We're giving them an amazing footprint, and
+- [16:29.722] they have amazing support from the leaders of the
+- [16:32.024] Arab world and the Muslim world, the great leaders.
+- [16:34.259] These are great leaders, these unbelievable leaders
+- [16:36.528] that have built great countries and very wealthy
+- [16:38.731] countries.
+- [16:42.000] What the future holds for the Palestinians, no one
+- [16:44.603] really knows.
+- [16:45.270] But the plan that we put forward today is focused
+- [16:48.107] on ending the war immediately, getting all
+- [16:51.243] of our hostages back, getting everything back.
+- [16:56.682] Hard to believe when you even say it, and creating
+- [16:59.952] conditions for durable Israeli security and
+- [17:03.889] Palestinian success.
+- [17:05.324] Israeli security is going to be involved.
+- [17:07.292] We're going to help you.
+- [17:09.395] We'll be there with you in terms of helping with
+- [17:12.931] security.
+- [17:13.599] We want to make sure it works.
+- [17:14.666] We just want to make sure it works.
+- [17:16.001] There shouldn't be a shot fired.
+- [17:17.603] Now, there will be, I guess, because that's the
+- [17:19.405] way it seems to be.
+- [17:20.406] But they shouldn't have to be within a few days.
+- [17:22.975] They shouldn't have to be a shot fired and maybe for
+- [17:27.212] eternity.
+- [17:28.447] Wouldn't that be nice?
+- [17:29.481] I hope it's true.
+- [17:31.283] I can tell you the leadership of that region
+- [17:33.318] feels that there's a good chance of it being true.
+- [17:37.589] So this will lead to a disagreement that we're
+- [17:40.325] talking about will lead to a sustainable long-term
+- [17:43.595] piece.
+- [17:44.763] No president in history has been a greater friend
+- [17:47.065] of the state of Israel than I have.
+- [17:49.468] In addition to negotiating the Abraham Accords.
+- [17:54.406] I like to say it that way because the real people,
+- [17:57.409] that's what they call Abraham.
+- [17:59.845] I would say Abraham, but it's so much nicer when
+- [18:03.215] you say Abraham.
+- [18:05.918] So much more elegant.
+- [18:08.587] But the Abraham Accords, they were amazing.
+- [18:11.190] Jared, you did that along with your group of
+- [18:13.759] geniuses and nobody thought that could be
+- [18:16.662] done.
+- [18:17.329] We have four countries and Sleepy Joe Biden didn't do
+- [18:19.865] a thing.
+- [18:20.532] He didn't even know what the hell they were.
+- [18:22.401] He should have had them filled up.
+- [18:23.735] But I think this will also lead to packing them.
+- [18:26.905] And who knows, maybe even Iran can get in there.
+- [18:29.041] We hope we're going to be able to get along with
+- [18:34.680] Iran.
+- [18:35.347] I think they're going to be open to it.
+- [18:38.717] I really believe that.
+- [18:40.419] But they could be a member.
+- [18:41.487] I long ago said, "I'll bet you at some point Iran
+- [18:45.023] will be a member of the Accords." And little did I
+- [18:47.860] realize it was going to take this turn.
+- [18:50.496] That was some turn we did with the B2s.
+- [18:52.564] But I think they might very well be there because
+- [18:58.103] it's a great thing for them economically.
+- [19:01.540] I recognized the eternal capital of Israel.
+- [19:04.710] I opened the American Embassy in Jerusalem.
+- [19:07.679] That was something that everyone said would never
+- [19:09.515] be done, could never be done.
+- [19:10.749] Virtually every president for many, many years, for
+- [19:14.820] decades would campaign on making Jerusalem the
+- [19:19.791] capital of Israel.
+- [19:20.826] They campaigned on it over and over.
+- [19:23.662] "Is that right, Steve?
+- [19:24.596] Is that right?"
+- [19:25.531] Everyone, and when they got to it, and I
+- [19:27.366] understand why now, because it was so when I
+- [19:32.304] got to office, I campaigned on it too, I
+- [19:34.206] said, "We're going to make it." And then I'd get
+- [19:35.674] calls from the leaders of various countries saying,
+- [19:38.510] "Please don't do it.
+- [19:39.478] Please don't do it.
+- [19:40.612] It'll end the whole world.
+- [19:41.713] Please don't do it.
+- [19:43.749] And finally, I just didn't say anything, and I did
+- [19:45.851] it.
+- [19:47.753] People were calling me before I did it, because
+- [19:49.521] they heard I was going to do it.
+- [19:50.856] And leaders of countries were calling me.
+- [19:53.158] And I think it was on a Thursday that I did it.
+- [19:55.894] And they'd call me Monday, Tuesday, Wednesday, three,
+- [19:59.097] four times a day.
+- [20:00.032] And I said, "Tell them I'll call them back on
+- [20:01.633] Friday." And I announced it on Thursday.
+- [20:05.304] And I called them back, the biggest people in the
+- [20:07.773] world, and they said, "You've done it." I said,
+- [20:10.742] "Done what?"
+- [20:12.511] " You've made the capital of Israel, Jerusalem, and
+- [20:17.616] we wanted to talk." "Oh, I wish you called me a
+- [20:20.085] little sooner.
+- [20:20.786] Maybe I could have done something about it." So
+- [20:23.789] that was a lot easier than getting into an argument.
+- [20:28.093] Because I knew what they were calling about.
+- [20:29.828] And you know what?
+- [20:30.495] It turned out to be amazing.
+- [20:32.698] Everybody thought it was going to lead to the end
+- [20:34.733] of the world.
+- [20:35.400] The end of the world, Ron.
+- [20:36.234] That's what they said.
+- [20:38.103] You didn't lead to anything.
+- [20:40.772] It just led to something that I promised, and
+- [20:42.874] something that was very, very popular for Jewish
+- [20:47.045] people, and a lot of other people too.
+- [20:50.282] I recognized Israeli sovereignty over the Golan
+- [20:53.118] Heights, and I cut taxpayer funding to the
+- [20:55.887] corrupt United Nations Relief and Works Agency.
+- [20:59.925] And United Nations was interesting, because as
+- [21:03.428] you know, a few days ago, they introduced me,
+- [21:05.163] "Ladies and gentlemen, the President of the United
+- [21:08.367] States." I'm looking at my teleprompter and the thing
+- [21:10.435] was dead, stone cold dead.
+- [21:13.138] The thing's up here, I have a long, beautiful
+- [21:16.041] speech to make.
+- [21:17.476] I'm back 30 feet back, and I'm saying, they're
+- [21:23.348] introducing me, there's nothing on my
+- [21:24.850] teleprompter.
+- [21:25.717] But I made a speech.
+- [21:27.786] I actually got good marks.
+- [21:29.988] You think Biden could have done that?
+- [21:31.356] I don't think so.
+- [21:32.024] I don't think he could have done that.
+- [21:34.426] I don't think too many people could have done it.
+- [21:35.894] But actually, it was actually more of a speech
+- [21:37.896] from my heart.
+- [21:38.830] If you want to know the truth.
+- [21:39.798] I think it was maybe better in certain ways,
+- [21:43.702] because it was from the heart.
+- [21:45.504] It has to be from the heart, otherwise you're in
+- [21:47.139] big trouble.
+- [21:49.174] But I cut taxpayer payer funding for that very
+- [21:54.279] corrupt United Nations Relief and Works Agency,
+- [21:57.449] and nobody thought that would be done.
+- [21:59.184] And withdrew from the horrible Iran nuclear deal
+- [22:02.988] that was imposed upon Israel by Barack Hussein
+- [22:06.725] Obama and Biden.
+- [22:10.162] And I don't think Biden knew anything about it,
+- [22:12.664] though.
+- [22:13.331] I don't think he knows anything about it now,
+- [22:14.666] actually, if you ask him, he'd say, "What is that?"
+- [22:18.003] And we obliterated Iran's nuclear enrichment
+- [22:20.505] capacity, making it impossible for them to
+- [22:22.908] have a nuclear weapon, which they would've had
+- [22:24.609] probably in about two months from that.
+- [22:28.080] But I've never asked Israel to compromise its
+- [22:31.717] security.
+- [22:32.384] But we had big strong talk.
+- [22:34.720] Nobody's been better to Israel.
+- [22:36.021] No president has been better to Israel than
+- [22:38.390] Donald Trump.
+- [22:39.057] But we had a long, strong talk, Bibi and I.
+- [22:42.227] And he understands it's time.
+- [22:44.329] It's time, history has shown, and the people of
+- [22:46.732] Israel want it.
+- [22:48.400] And the people of the Middle East want it.
+- [22:50.035] Enemies of Israel want it, but they don't have really
+- [22:51.636] too many enemies right now.
+- [22:52.504] And you know what?
+- [22:54.272] Many countries have gained great respect for Israel,
+- [23:00.312] for the way they fight, for the job they do,
+- [23:04.249] including me.
+- [23:04.916] I had respect anyway, but they gained respect.
+- [23:08.086] History has shown us that those who have relations
+- [23:11.156] with Israel have thrived.
+- [23:13.658] While those who have devoted resources and
+- [23:16.361] attention toward the destruction and even
+- [23:18.864] annihilation of Israel have languished.
+- [23:22.200] They haven't done well.
+- [23:23.802] Israel is not going anywhere.
+- [23:26.071] They're going to coexist with other people in
+- [23:29.875] countries in the region, from Syria to Lebanon to
+- [23:33.612] Saudi Arabia.
+- [23:35.113] The promise of a new Middle East is so clearly
+- [23:37.883] within our reach.
+- [23:38.583] This is the closest we've ever come to real peace,
+- [23:40.786] not fake peace, not political fools peace.
+- [23:45.757] If we can get this difficult problem solved,
+- [23:48.160] the opportunities for all within that vast region of
+- [23:52.931] this world, it's a vast region.
+- [23:55.333] It's unlimited.
+- [23:56.234] The Abraham Accords show that all countries are
+- [24:01.673] better off when they communicate and work
+- [24:04.242] together and embrace new opportunities.
+- [24:06.545] I hope Jared and Steve and Suzy and Marco and J.D, we
+- [24:12.150] have great people, I hope you guys are going to work
+- [24:14.786] very hard to get these other countries in,
+- [24:17.389] because now they have no excuse.
+- [24:19.191] There's no longer an excuse.
+- [24:21.560] They were somewhat hesitant.
+- [24:23.228] And I'll tell you the four countries that went in, I
+- [24:24.963] give them tremendous credit.
+- [24:26.898] And it's worked out incredibly well for them.
+- [24:30.035] In the same spirit, I'm pleased to report that
+- [24:32.370] earlier today we took another important step
+- [24:34.573] toward greater understanding of the
+- [24:36.007] region.
+- [24:36.675] A short time ago, we had a historic phone call in the
+- [24:40.178] Oval Office with Prime Minister Thani, who's
+- [24:45.717] really a great, great person.
+- [24:51.223] So we had a great talk.
+- [24:53.325] And I was on the phone, and Bibi was talking.
+- [24:56.795] Prime Minister Al Thani of Qatar.
+- [25:01.566] They really had a heart-to-heart
+- [25:02.934] conversation.
+- [25:03.635] It was a great conversation, I thought.
+- [25:06.304] It was productive.
+- [25:07.205] It was everything that you need to have something
+- [25:10.575] turn out to be successful.
+- [25:12.544] And I want to thank Bibi, and I want to thank the
+- [25:14.880] Prime Minister.
+- [25:15.547] That was fantastic.
+- [25:17.215] We agreed to launch a formal trilateral
+- [25:20.318] mechanism between Israel, Qatar, and the United
+- [25:22.754] States to begin a dialogue to enhance mutual
+- [25:25.523] security, correct misperceptions and avoid
+- [25:28.927] future misgivings.
+- [25:29.995] And I want to thank Qatar, its leadership and the
+- [25:33.531] Emir is a fantastic person.
+- [25:38.003] I think I'm going to be his public relations man
+- [25:41.439] because I know him differently than a lot of
+- [25:43.074] people know him.
+- [25:44.542] But he wants peace.
+- [25:45.343] He wants to see peace.
+- [25:47.445] And his people, and they really acknowledge the
+- [25:49.814] critical role that they played as mediator.
+- [25:53.718] And again, we're not quite finished.
+- [25:55.520] We have to get Hamas, but I think they're going to
+- [25:57.455] be able to do that.
+- [25:58.323] So now it's time for Hamas to accept the terms of the
+- [26:01.760] plan that we've put forward today.
+- [26:03.995] And again, this is a different Hamas than we
+- [26:06.798] were dealing with, because I guess over 20,000 have
+- [26:10.302] been killed.
+- [26:11.469] Their leadership has been killed three times over.
+- [26:14.272] So you're really dealing with different people than
+- [26:16.308] we've been dealing with over the last four years,
+- [26:19.377] five years.
+- [26:20.045] Everyone has done their part and come to the table
+- [26:23.248] in good faith.
+- [26:24.015] Our Arab and Muslim partners are fully
+- [26:26.284] prepared to step up and fulfill their commitments
+- [26:29.754] for the benefit of the people of Gaza and the
+- [26:32.390] entire region.
+- [26:33.191] They're willing to step up and do a lot.
+- [26:34.859] They really are.
+- [26:35.527] There are a lot of good people involved.
+- [26:37.762] Everybody who wants to see an end to the violence and
+- [26:40.632] destruction should be united in calling for
+- [26:44.336] Hamas to accept the extremely fair proposal,
+- [26:49.841] so that we can end the war, and get us back our
+- [26:52.877] hostages right now, and have everlasting peace.
+- [26:57.115] And I look forward to having relationships with
+- [27:00.885] everyone as the chairman of the board.
+- [27:05.623] I'll be involved, and we'll have meetings with
+- [27:08.126] some very smart people that'll be working over
+- [27:10.829] there to make sure that we haven't just been wasting
+- [27:12.897] time with an agreement that doesn't get done.
+- [27:14.866] The task of building peace will not be easy.
+- [27:17.635] There are some of the hardest problems in the
+- [27:20.171] world to solve, and that's why it's been going on for
+- [27:22.440] so many centuries.
+- [27:26.011] But too many lives are at stake not to try.
+- [27:28.413] And this was more than a try.
+- [27:29.781] I mean, I think this is something that gets done
+- [27:32.450] when you have virtually every country.
+- [27:34.819] And these are powerful, powerful countries that
+- [27:37.922] have a lot of money and the money can make things
+- [27:40.658] happen.
+- [27:41.326] A lot of countries try and they don't have any money.
+- [27:43.395] These are very rich countries that can make
+- [27:45.263] things happen.
+- [27:46.464] So together we'll forge a much safer and more
+- [27:48.800] hopeful future for everybody, including
+- [27:53.004] Israel.
+- [27:54.039] And I want to thank Prime Minister Netanyahu for his
+- [27:57.308] partnership.
+- [27:58.109] And I want to thank all of the leaders, the kings and
+- [28:01.913] the emirs and the presidents and Prime
+- [28:06.117] ministers, people I mentioned, and they've
+- [28:08.987] been absolutely fantastic to work with.
+- [28:11.823] And it's just happened very quickly.
+- [28:13.258] It's happened from a couple of weeks before the
+- [28:17.896] -- I had a meeting, a couple of meetings, but a
+- [28:19.831] couple of weeks before we went to the United
+- [28:22.734] Nations, and we had some incredible meetings.
+- [28:26.438] It all came to place.
+- [28:27.839] It all took place, and everybody wanted to be a
+- [28:29.974] part of it.
+- [28:30.675] I don't have anybody that's saying we don't
+- [28:32.410] want anything to do with it.
+- [28:33.645] It's just the opposite.
+- [28:34.546] And I'll tell you a couple of years, a year ago, I
+- [28:37.048] don't think we would've had this kind of
+- [28:38.383] participation Mr. VP, right?
+- [28:39.084] I don't think we would've had.
+- [28:39.818] It's been amazing.
+- [28:40.485] The participation was 100 percent.
+- [28:43.288] Everybody wants to be a part of it.
+- [28:48.259] And everybody, those very strong countries,
+- [28:51.463] everybody wants to work.
+- [28:52.730] So Bibi, congratulations on this.
+- [28:55.366] I think this will be your crowning achievement,
+- [29:00.004] frankly, if this all works out, we think it will.
+- [29:02.340] It's going to be your crowning achievement.
+- [29:04.843] And I want to thank you very much for being here.
+- [29:06.511] Thank you.
+- [29:07.178] Please.
+- [29:07.846] Prime Minister Netanyahu: Thank you.
+- [29:10.748] Thank you.
+- [29:12.083] Mr. President, first I want thank you for
+- [29:15.687] graciously hosting me once again in the White House.
+- [29:20.158] And second, I want to thank you for your
+- [29:22.660] friendship and for your leadership.
+- [29:26.731] From Jerusalem to Tehran, from the Golan Heights to
+- [29:30.935] Gaza, you've proven time and again what I've said
+- [29:35.406] many times, you are the greatest friend that
+- [29:39.277] Israel has ever had in the White House.
+- [29:42.447] And Mr. President, you and I both know it's not even
+- [29:46.484] close.
+- [29:48.953] While you focus at home on making America great
+- [29:52.824] again, your leadership abroad is changing the
+- [29:57.162] world for the better, ending wars and advancing
+- [30:01.366] peace.
+- [30:03.902] I believe that today we're taking a critical step
+- [30:07.539] towards both ending the war in Gaza and setting
+- [30:11.476] the stage for dramatically advancing peace in the
+- [30:15.346] Middle East, and I think beyond the Middle East, in
+- [30:20.118] very important Muslim countries.
+- [30:22.987] I support your plan to end the war in Gaza, which
+- [30:27.025] achieves our war aims.
+- [30:29.928] It will bring back to Israel all our hostages,
+- [30:34.933] dismantle Hamas's military capabilities, and its
+- [30:38.536] political rule, and ensure that Gaza never again
+- [30:42.907] poses a threat to Israel.
+- [30:48.246] We would not have achieved this turning point without
+- [30:52.717] the courage and sacrifice of our incredibly brave
+- [30:57.956] soldiers.
+- [31:00.124] They fight like lions to defend the people of
+- [31:03.528] Israel.
+- [31:05.063] And they serve on the front line in the war
+- [31:08.366] between civilization and barbarism.
+- [31:11.402] Mr. President, when our two countries stand
+- [31:17.942] shoulder to shoulder, we achieve the impossible.
+- [31:23.681] Just a few months ago in Operation Rising Lion and
+- [31:28.052] Operation Midnight Hammer, we struck a decisive blow
+- [31:33.391] against Iran's nuclear and ballistic missile program.
+- [31:38.196] Your bold decision to send those B-2s made the region
+- [31:42.834] safer and the world safer.
+- [31:47.105] Now, under your leadership, we're taking
+- [31:49.941] the next step to win the war and expand the peace.
+- [31:56.247] Your plan is consistent with the five principles
+- [31:58.950] my government set for the end of the war and the day
+- [32:02.620] after Hamas.
+- [32:04.155] Everybody asks, what is your plan for the day
+- [32:06.190] after Hamas?
+- [32:07.191] Here's our plan.
+- [32:09.193] Pass that in the cabinet.
+- [32:11.296] All our hostages, both those who are alive and
+- [32:14.866] those who died, all of them will return home
+- [32:19.504] immediately.
+- [32:21.439] Hamas will be disarmed, Gaza will be
+- [32:25.143] demilitarized.
+- [32:27.045] Israel will retain security responsibility,
+- [32:30.214] including a security perimeter, for the
+- [32:32.717] foreseeable future.
+- [32:35.320] And lastly, Gaza will have a peaceful civilian
+- [32:38.323] administration that is run neither by Hamas nor by
+- [32:42.994] the Palestinian authority.
+- [32:46.030] If Hamas agrees to your plan, Mr. President, the
+- [32:49.167] first step will be a modest withdrawal followed
+- [32:52.136] by the release of all our hostages within 72 hours.
+- [32:56.641] The next step will be the establishment of an
+- [32:58.710] international body charged with fully disarming Hamas
+- [33:03.014] and demilitarizing Gaza.
+- [33:07.218] I appreciate your willingness to lead the
+- [33:08.720] body, Mr. President.
+- [33:12.256] I really appreciate it because you have a lot of
+- [33:13.725] things to do, and this is important.
+- [33:15.993] And it reflects the confidence that this will
+- [33:19.464] give everyone that things will be followed up on all
+- [33:23.568] the commitments made.
+- [33:24.402] The fact that you are taking this on, I think
+- [33:26.671] helps a lot to make sure that everything flows in
+- [33:29.374] the direction that we want.
+- [33:31.209] Now, if this international body succeeds, we will
+- [33:34.512] have permanently ended the war.
+- [33:37.048] Israel will conduct further withdrawals linked
+- [33:39.917] to the extent of disarmament and
+- [33:42.787] demilitarization, but will remain in the security
+- [33:46.290] perimeter for the foreseeable future.
+- [33:48.626] I think we should understand that we're
+- [33:52.864] giving everybody a chance to have this done
+- [33:58.403] peacefully, something that will achieve all our war
+- [34:01.906] objectives without any further bloodshed.
+- [34:06.778] But if Hamas rejects your plan, Mr. President, or if
+- [34:10.181] they supposedly accept it, and then basically do
+- [34:16.587] everything to counter it, then Israel will finish
+- [34:20.491] the job by itself.
+- [34:24.495] This can be done the easy way or it can be done the
+- [34:28.800] hard way, but it will be done.
+- [34:33.070] We prefer the easy way, but it has to be done.
+- [34:37.341] All these goals must be achieved because we didn't
+- [34:40.645] fight this horrible fight, sacrifice the finest of
+- [34:45.349] our young men to have Hamas stay in Gaza and
+- [34:49.420] threaten us again and again and again with these
+- [34:52.857] horrific massacres.
+- [34:55.993] Mr. President, I was encouraged by your clear
+- [34:59.497] statement at the UN against the recognition of
+- [35:02.033] a Palestinian state.
+- [35:04.001] That would be an outcome that, after October 7th,
+- [35:07.238] would reward terrorists, undermine security and
+- [35:11.442] endanger Israel's very existence.
+- [35:15.413] As for the Palestinian Authority, I appreciate
+- [35:18.549] your firm position that the PA could have no role
+- [35:22.220] whatsoever in Gaza without undergoing a radical and
+- [35:26.257] genuine transformation.
+- [35:28.559] In your 2020 peace plan, which you mentioned just
+- [35:31.496] now, you made clear what that transformation
+- [35:35.233] requires.
+- [35:36.367] It's not lip service, it's not checking a box.
+- [35:41.439] It's a fundamental, genuine, and enduring
+- [35:44.308] transformation.
+- [35:44.976] And that means ending paid to slay, changing the
+- [35:49.447] poisonous textbooks that teach hatred to Jews, to
+- [35:52.383] Palestinian children, stopping incitement in the
+- [35:55.820] media, ending lawfare against Israel at the ICC,
+- [35:59.457] the ICJ, recognizing the Jewish state and many,
+- [36:04.629] many other reforms.
+- [36:08.499] It won't come as a surprise to you that the
+- [36:10.101] vast majority of Israelis have no faith that the PA
+- [36:13.938] leopard will change its spots.
+- [36:17.141] But rather than wait for this miraculous
+- [36:19.410] transformation, your plan provides a practical and
+- [36:23.114] realistic path forward for Gaza in the coming years
+- [36:27.018] in which Gaza will be administered neither by
+- [36:29.887] Hamas nor the Palestinian Authority, but by those
+- [36:33.624] committed to a genuine peace with Israel.
+- [36:38.429] I think this can be not only a new beginning for
+- [36:40.698] Gaza, I think it can be a new beginning for the
+- [36:44.302] entire region.
+- [36:46.571] Under your leadership, we can re-energize -- I've
+- [36:50.508] got to contribute my own.
+- [36:51.776] We can re-energize the Abraham Accords.
+- [36:53.678] That's what it's called in the original Hebrew,
+- [36:56.581] Abraham.
+- [36:58.049] Abraham is fine, Abraham, however you want to call
+- [37:00.785] it.
+- [37:01.485] Under your leadership, Mr. President, we can
+- [37:03.454] re-energize the Abraham Accords that we forged
+- [37:06.924] five years ago.
+- [37:09.060] We can expand them to many more Arab and Muslim
+- [37:12.463] nations that choose moderation over extremism.
+- [37:15.766] I think there's an opportunity here.
+- [37:19.136] It's not going to be easy.
+- [37:20.104] It's tough going, but I think if we succeed,
+- [37:22.039] you're absolutely right.
+- [37:23.674] We're going to open possibilities that nobody
+- [37:26.777] even dreamed of, but I think we dream of them.
+- [37:31.916] As you've told me, Mr. President, and you've
+- [37:35.086] told the world many, many times, you said, "Remember
+- [37:39.156] October 7th, remember October 7th," and we do.
+- [37:44.128] We will never forget the horrors of October 7th,
+- [37:48.866] and we will do whatever is necessary to make sure
+- [37:51.936] they don't happen again.
+- [37:54.105] Since October 7th, Israel's enemies have
+- [37:57.408] learned a hard truth.
+- [38:00.244] Those who attack us pay a heavy price, but those who
+- [38:05.082] partner with us advance progress and security for
+- [38:09.487] their peoples.
+- [38:11.789] President Trump just said it; it's also in the
+- [38:13.658] Bible.
+- [38:14.325] It says, "Those who will bless you will be blessed,
+- [38:17.228] and those who will curse you will be cursed." And
+- [38:19.764] that's actually what is happening.
+- [38:22.667] We want the blessings.
+- [38:24.935] I think we've done a lot in the past two years to
+- [38:27.505] end the curse.
+- [38:28.205] We're not finished, but we've done a lot, and
+- [38:31.475] we've done a lot together to end the curse.
+- [38:34.645] I want to thank your entire team for their
+- [38:37.114] efforts to get to this point.
+- [38:38.482] I especially want to thank Steve Witkoff and Jared
+- [38:42.053] Kushner for their indefatigable work to
+- [38:45.256] bring Israel and Arab states and the region
+- [38:47.358] closer together.
+- [38:49.193] I am deeply grateful to both of them for their
+- [38:51.162] work.
+- [38:51.929] We had a phone call today just to make it clear.
+- [38:54.665] I said to the prime minister of Qatar, "Israel
+- [39:01.706] was targeting terrorists.
+- [39:02.940] It wasn't targeting Qatar." And of course, we
+- [39:05.376] regretted the loss of the Qatari citizens.
+- [39:08.412] It wasn't our target.
+- [39:11.615] And I very much appreciate President Trump's proposal
+- [39:15.419] to have a trilateral body, the United States, Israel,
+- [39:20.291] and Qatar, to work out respective grievances.
+- [39:23.127] There are quite a few, but if we could try to
+- [39:26.430] mitigate them or put it on a different footing, I
+- [39:28.766] think that'll be good for everyone.
+- [39:31.535] Above all, all the people, the fine team and many
+- [39:35.840] helpers who've done this, I want to thank you,
+- [39:38.375] Mr. President.
+- [39:40.678] History has already shown that under your
+- [39:43.514] leadership, Israel and America can change the
+- [39:46.884] face of the Middle East.
+- [39:49.053] And today, I'm hopeful that your plan to end the
+- [39:51.155] war in Gaza will do so again and do so soon.
+- [39:56.494] It will free our hostages, end Hamas' tyranny in
+- [39:59.597] Gaza, and enable a more secure and prosperous
+- [40:02.933] future for the peoples of our region.
+- [40:07.238] Thank you, Mr. President.
+- [40:10.074] May God bless America.
+- [40:12.276] May God bless Israel.
+- [40:14.245] May God bless the indispensable alliance
+- [40:17.081] between our countries.
+- [40:18.616] And may I add in Hebrew, (foreign language).
+- [40:24.855] May we all be inscribed in the Book of life.
+- [40:28.859] Thank you.
+- [40:30.995] The President: Thank you very much, Bibi.
+- [40:32.329] (applause)
+- [40:36.567] So I think while we wait for these documents to be
+- [40:40.271] signed and get everybody in line, I think it maybe
+- [40:42.706] is not really appropriate to take questions.
+- [40:45.743] I'm meeting with, as you know, a couple of
+- [40:48.445] Democrats in a little while about the country
+- [40:51.782] about keeping our country open.
+- [40:53.851] They're going to have to do some things because
+- [40:59.323] their ideas are not very good ones.
+- [41:01.091] They're very bad for our country.
+- [41:02.426] So we'll see how that works out.
+- [41:04.495] But this is something that was really historic today.
+- [41:06.831] This was something that was amazing.
+- [41:09.266] I think, Bibi, I mean, depending on you, I think
+- [41:13.270] while we're waiting for signatures and waiting for
+- [41:17.441] approvals from a lot of different countries that
+- [41:19.476] are involved in this, we probably shouldn't take
+- [41:21.545] questions.
+- [41:22.346] Or would you like to take a question or two from
+- [41:24.448] perhaps a friendly Israeli reporter, if there's such
+- [41:27.184] a thing?
+- [41:30.921] Prime Minister Netanyahu: That's a very, very tough
+- [41:32.656] proposition.
+- [41:34.491] But I would think, Mr. President, that I
+- [41:36.560] would go by your instinct that this is -- we'll have
+- [41:40.030] enough time for questions.
+- [41:41.265] Let's settle the issue first, I think.
+- [41:48.372] (press talking simultaneously)

@@ -1,0 +1,1399 @@
+<!-- source: https://www.youtube.com/watch?v=u2Ftw_VuedA -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: u2Ftw_VuedA -->
+<!-- date_published: 2025-05-12T14:59:44+00:00 -->
+<!-- date_accessed: 2026-06-02T02:50:28.137421+00:00 -->
+
+# Transcript: President Trump Holds a Press Conference with the Secretary of Health and Human Services
+
+- [00:01.040] The President: Thank you, very much.
+- [00:02.390] Thank you, everybody. It's a big day. Should be fun.
+- [00:07.630] I don't know. You'll maybe find reasons why it's not,
+- [00:10.600] but I can't imagine
+- [00:11.850] because we have a lot of great things happening.
+- [00:14.790] It's been a very strong week and a very strong weekend.
+- [00:20.190] Before we begin, let me say a few words
+- [00:22.150] about the historic events
+- [00:23.600] that took place over the last few days.
+- [00:27.180] On Saturday, my administration helped broker
+- [00:29.450] a full and immediate ceasefire,
+- [00:32.410] I think a permanent one, between India and Pakistan,
+- [00:35.960] ending a dangerous conflict of two nations
+- [00:39.460] with lots of nuclear weapons.
+- [00:42.350] And they were going at it hot and heavy,
+- [00:44.450] and it was seemingly not going to stop.
+- [00:47.840] And I'm very proud to let you know
+- [00:52.070] that the leadership of India and Pakistan
+- [00:56.210] was unwavering, powerful.
+- [00:59.010] But unwavering in both cases, and having these --
+- [01:02.760] they really were, from the standpoint of having
+- [01:05.270] the strength and the wisdom and fortitude to fully know
+- [01:08.070] and to understand the gravity of the situation.
+- [01:11.360] And we helped a lot, and we helped also with trade.
+- [01:16.950] I said, come on.
+- [01:18.200] We're going to do a lot of trade with you guys.
+- [01:20.530] Let's stop it. Let's Stop it.
+- [01:23.430] If you stop it, we're doing trade.
+- [01:24.780] If you don't stop it we're not going to any trade.
+- [01:27.940] People have never really used trade the way
+- [01:29.550] I used it, that I can tell you.
+- [01:31.860] And all of a sudden, they said, I think we're going to stop.
+- [01:35.220] And they have. And they did it for a lot of reasons.
+- [01:39.180] But trade is a big one.
+- [01:40.820] We're going do a lot trade with Pakistan.
+- [01:43.600] We're going to do a trade with India.
+- [01:45.130] We're negotiating with India right now.
+- [01:46.820] We're soon going to be negotiating with Pakistan,
+- [01:49.980] and we stopped the nuclear conflict.
+- [01:51.630] I think it would have, it could have been a bad nuclear war.
+- [01:55.480] Millions of people could have been killed.
+- [01:57.060] So I'm very proud of that.
+- [01:58.270] I also want to thank Vice President Vance
+- [02:00.550] and Secretary of State Rubio for their work and efforts.
+- [02:05.200] They worked very hard on that.
+- [02:07.920] We also, as you know,
+- [02:10.260] created a situation where the Houthis,
+- [02:12.310] for the first time ever, have ceased firing,
+- [02:18.330] and they've let it be known that they're not going to be
+- [02:21.310] firing at American ships anymore.
+- [02:24.200] Not going to be firing at Americans anymore.
+- [02:26.780] This was a heavy barrage
+- [02:29.720] that lasted for approximately 50 days.
+- [02:34.990] And, as you know, they've been in war, essentially, forever.
+- [02:38.910] But over the last 10 years, they've --
+- [02:41.900] difficult for other countries.
+- [02:44.740] Nobody was able to do what we did.
+- [02:46.940] But they stopped, and we take their word for it.
+- [02:50.310] Their surrogates, and them directly said
+- [02:53.420] we don't want to do this anymore.
+- [02:56.590] And so we were satisfied with that.
+- [03:00.060] In addition, yesterday, we achieved a total reset
+- [03:03.110] with China after productive talks in Geneva.
+- [03:07.890] Both sides now agreed to reduce the tariffs
+- [03:10.600] imposed after April 2nd to 10 percent for 90 days
+- [03:15.790] as negotiators continue on the larger structural issues.
+- [03:19.890] And I want to tell you a couple of things.
+- [03:23.560] First of all, that doesn't include the tariffs
+- [03:25.230] that are already on, that are our tariffs,
+- [03:28.360] and it doesn't include tariffs on cars,
+- [03:30.880] steel, aluminum, things such as that,
+- [03:34.480] or tariffs that may be imposed on pharmaceuticals
+- [03:37.490] because we want to bring the pharmaceutical businesses
+- [03:40.030] back to the United States,
+- [03:41.800] and they're already starting to come back now
+- [03:43.540] based on tariffs.
+- [03:45.470] Because they don't want to pay 25, 50, or 100 percent tariff.
+- [03:48.670] So they're moving them back to the United States.
+- [03:51.820] I spoke to Tim Cook this morning, and he's going to,
+- [03:54.560] I think, even up his numbers, $500 billion.
+- [04:00.740] He's going be building a lot of plants
+- [04:03.190] in the United State for Apple. And we look forward to that.
+- [04:07.410] I really do look forward to that.
+- [04:12.810] The talks in Geneva were very friendly.
+- [04:14.800] The relationship is very good. We're not looking to hurt China.
+- [04:18.480] China was being hurt very badly. They were closing up factories.
+- [04:22.230] They were having a lot of unrest.
+- [04:25.060] And they were very happy to be able to do something with us.
+- [04:28.730] And the relationship is really, really good.
+- [04:31.610] I'll speak to President Xi, maybe at the end of the week.
+- [04:35.480] We have some other things we're doing.
+- [04:37.880] But one of the biggest things that we're doing,
+- [04:40.370] and I don't know if people realize this,
+- [04:42.850] but we made a great deal with China, a great trade deal.
+- [04:48.110] But it was a much bigger deal originally,
+- [04:50.290] and then they canceled it right in the last day.
+- [04:53.750] Some of your faces I remember were there when that happened.
+- [04:56.790] I remember you.
+- [04:58.600] And we had a deal where they opened up their country
+- [05:00.900] to trade with the United States,
+- [05:03.410] and they took that away at the last moment,
+- [05:04.990] and then I canceled the whole thing.
+- [05:06.270] And then six months later,
+- [05:07.490] we ended up doing a smaller deal.
+- [05:08.720] But it was a big deal.
+- [05:09.920] It was $50 billion worth of product
+- [05:12.050] that they were going to purchase from our farmers, et cetera.
+- [05:15.660] And we agreed to that.
+- [05:17.530] People thought it was 15, because they were doing 15.
+- [05:19.820] We made it 50, because I misunderstood the 15.
+- [05:23.190] I thought they said, I said, you got to get 50.
+- [05:26.250] Because when I asked, if you remember the story,
+- [05:28.210] when I asked what are we doing with them,
+- [05:30.300] my Secretary of Agriculture at the time, Sonny Perdue,
+- [05:35.160] said, sir, it's about 15 billion,
+- [05:38.080] and we're asking for 15. And I thought he said 50.
+- [05:41.750] So I said, so they came back with the deal at 15,
+- [05:44.420] and I said no way, I want 50, because you said 50.
+- [05:47.550] They said, sir, we didn't say that.
+- [05:48.860] Anyway, bottom line I said go back and ask for 50,
+- [05:51.160] and they gave us 50. And they were honoring the deal,
+- [05:53.800] and we would call them up a lot for the corn
+- [05:57.040] and for the wheat and for everything.
+- [06:00.290] They were honoring deal and then when Biden got in,
+- [06:05.070] they no longer honored the There was nobody to call.
+- [06:08.100] I would call on an average of once every two weeks to say,
+- [06:11.110] come on, you have to speed it up a little bit.
+- [06:13.500] And our farmers were doing great.
+- [06:15.600] I said to them, buy more land and bigger tractors,
+- [06:18.230] if you remember. That's what happened.
+- [06:20.930] But the deal was a very good deal.
+- [06:23.190] But the best part of the deal was that we opened up China.
+- [06:29.460] China agreed to open itself up to American business to go in.
+- [06:33.950] And it would have been a great thing, I think, for China.
+- [06:36.570] They would be able to see things that they haven't seen.
+- [06:40.150] They would be able to buy products
+- [06:41.540] that they have never been able to buy.
+- [06:43.960] It would have been great for American business.
+- [06:45.920] I think it would have brought unity between China,
+- [06:47.880] better unity between China and the United States.
+- [06:52.340] And the bottom line is that they canceled it the last day.
+- [06:56.090] We were all set to sign it,
+- [06:57.350] and then I went a little bit angry.
+- [07:00.080] I got a little angry. They said they canceled it.
+- [07:02.430] The deal was done. It was all ready to be signed.
+- [07:06.580] People went over, they came back to me, sir.
+- [07:08.490] They don't want to sign the opening up China.
+- [07:11.030] Well, the biggest thing that we're discussing
+- [07:13.450] is the opening up of China, and they've agreed to do that.
+- [07:16.450] But it's going to take a while to paper it.
+- [07:19.280] You know, that's not the easiest thing to paper.
+- [07:22.190] But that's the single, I think, to me.
+- [07:24.630] Some people would disagree. Some people will say
+- [07:26.320] we're getting a lot of money with tariffs or whatever.
+- [07:28.340] But, you know, especially when you add what we already have,
+- [07:31.150] because remember, we're already getting the 50 percent on steel.
+- [07:35.190] Different things.
+- [07:36.550] That's not included in these numbers, so you can add that.
+- [07:41.320] But the biggest thing to me is the opening up.
+- [07:43.770] I think it would be fantastic for our businesses
+- [07:45.810] if we could go in and compete, and compete with China.
+- [07:49.650] It would be a lot of jobs for China, I think,
+- [07:53.050] at a time when they can frankly use the jobs.
+- [07:55.910] And that's what we're talking about.
+- [07:58.000] So that's a very, very important element to add.
+- [08:01.120] So when Scott, I watched him. Speak the other day,
+- [08:07.670] and I think he didn't want to say it,
+- [08:09.110] but I said, it's okay to say it.
+- [08:10.390] Look, if we don't get it, we don' get it.
+- [08:11.800] But if we don't it, it won't be a positive thing.
+- [08:14.380] But, if we do get it
+- [08:15.750] I think it's maybe the most important thing to happen.
+- [08:18.680] Because if you think about it, if you think about,
+- [08:20.870] we opened up our country to China.
+- [08:23.420] They come, we have very few restrictions,
+- [08:26.580] and they didn't open their country to us.
+- [08:28.630] Never made sense to me. It's not fair.
+- [08:31.190] And they've agreed to open China, fully open China.
+- [08:34.960] And I think it's going to be fantastic for China.
+- [08:37.760] I think its going to fantastic for us.
+- [08:39.950] And I -- it's going to be great for unification and peace.
+- [08:44.570] China will also suspend and remove
+- [08:46.900] all of its non-monetary barriers.
+- [08:49.150] They've agreed to do that. Well, they're very numerous.
+- [08:55.310] But again, to me, the biggest thing
+- [08:56.840] that came out of that meeting is they've agreed.
+- [08:58.550] Now, we have to get it papered,
+- [08:59.800] but they've agreed to open up China.
+- [09:01.320] It's going to great for everybody.
+- [09:04.030] And third, I'm very happy to announce that Eden Alexander,
+- [09:10.680] an American citizen who,
+- [09:12.580] until recently, most thought was no longer living,
+- [09:16.010] thought was dead,
+- [09:18.230] is going to be released in about two hours, actually.
+- [09:22.820] And he's going to released
+- [09:27.920] before the eyes of Steve Witkoff,
+- [09:29.430] who has done a fantastic job. But that just, you know.
+- [09:32.770] I know a lot of people that have a lot talent.
+- [09:34.640] I know Steve had a lot a talent.
+- [09:37.190] But I know lot of a people with a lot of talent,
+- [09:38.860] but I had, there's one that I thought had a special way
+- [09:42.310] about him, special personality,
+- [09:45.460] aside from being a good deal maker.
+- [09:48.580] Had a special about him and it was Steve.
+- [09:51.420] Knew very little about the subject matter, who does.
+- [09:54.480] But he learned it in about two hours.
+- [09:57.120] And he's been fantastic. So I want to just thank Steve.
+- [10:00.030] But they're going to be.
+- [10:02.360] Releasing Edan in about two hours from now,
+- [10:08.700] or sometime today, let's say.
+- [10:11.710] And again, they thought he was dead just a short while ago.
+- [10:14.340] His parents are so happy.
+- [10:16.320] They're so happy, so it's, as you know,
+- [10:20.530] Edan is the only American citizen.
+- [10:23.350] He's captured and held hostage by Hamas
+- [10:29.070] since October 7th, 2023.
+- [10:32.530] And he's coming home to his parents,
+- [10:35.580] which is really great news. I mean, to me, it's big news.
+- [10:39.080] They thought he was dead. That's it.
+- [10:42.840] So we'll be heading there and we'll Three primary countries,
+- [10:50.040] you know all about that. Saudi Arabia, UAE, Qatar.
+- [10:56.640] Thursday's meeting with Russia and Ukraine is very important.
+- [11:01.920] I was very insisted that that meeting take place.
+- [11:04.260] I think good things can come out of that meeting.
+- [11:07.360] Stop the bloodshed of the horrible.
+- [11:10.910] It's a bloodbath. But 5,000 more.
+- [11:15.570] It's really much more trying to be conservative.
+- [11:18.110] More than 5, 000 soldiers.
+- [11:19.640] Russian. They're not American soldiers.
+- [11:21.710] They're from Russia. They're form Ukraine.
+- [11:23.170] But they're people. The human souls.
+- [11:25.910] And they're being killed at levels
+- [11:27.250] that we haven't seen since the Second World War.
+- [11:30.720] And it's every week, a lot of drone fighting.
+- [11:34.270] It's a whole new form of warfare,
+- [11:36.100] and it's violent and vicious. And so that's it.
+- [11:41.540] I'd like to go back to China just for a second.
+- [11:44.760] They're very heavy on the fentanyl.
+- [11:47.250] We're charging them, as you know, 20 percent
+- [11:49.230] for the fact that they send fentanyl into our country.
+- [11:53.490] And they've agreed that they're going to stop that.
+- [11:55.440] And, you know, they'll be rewarded by not having to pay,
+- [12:00.030] you know hundreds of billions of dollars in tariffs.
+- [12:03.570] So the fentanyl should stop.
+- [12:05.900] It comes from China. It's amazing.
+- [12:08.920] And it comes through our southern border.
+- [12:11.000] It comes through northern border, too.
+- [12:12.460] It comes to Canada and comes through our southern boarder.
+- [12:14.820] More through, much more through the southern border,
+- [12:18.200] but so that's a very important subject to me.
+- [12:22.660] Because everybody in this room has lost friends or people
+- [12:26.890] that have family members that have died of fentanyl.
+- [12:30.450] So there's a big incentive for China to stop.
+- [12:33.050] And I take them at their word.
+- [12:34.770] They're going to work on that, I think, very hard.
+- [12:36.890] And one thing, when they work on something, they get it done.
+- [12:40.220] So now I'm about to depart on a historic visit.
+- [12:42.980] Some of you are going with us to, as I said,
+- [12:46.710] Saudi Arabia, Qatar, and United Arab Emirates.
+- [12:50.840] Before I do, I'll sign one of the most consequential
+- [12:53.310] executive orders in our country's history.
+- [12:55.840] I don't think there's ever been anything signed like this.
+- [12:57.870] Certainly not with respect to health care.
+- [13:00.200] Nothing even close.
+- [13:01.400] I'm delighted to be joined on this occasion
+- [13:04.390] by Secretary of Health
+- [13:05.710] and Human Services Robert F. Kennedy, Jr.,
+- [13:08.690] who is doing a really good job. I have to tell you that.
+- [13:12.300] CMS Administrator and friend of mine, Dr. Mehmet Oz,
+- [13:16.890] who was an amazing guy.
+- [13:19.570] You know, I was telling Bobby before,
+- [13:22.690] Oz had a very successful show, but it hurt his reputation.
+- [13:27.820] Because when you're in show business,
+- [13:29.100] it hurts your reputation a little bit.
+- [13:31.010] It's good for you. It's for you,
+- [13:32.390] but in terms of professionalism and being a doctor,
+- [13:35.380] it sort of hurts your reputations.
+- [13:37.110] This guy went to the best schools, was the best.
+- [13:39.840] I mean, top, top top of the line.
+- [13:42.560] Then he did a television show, became a success.
+- [13:45.490] Made a lot of money, all that stuff,
+- [13:46.930] but it sort of hurt him.
+- [13:49.720] And you know who I compare that to?
+- [13:51.220] I hate to say this, but a special woman, Janine Pirro.
+- [13:55.040] She was the toughest, smartest DA maybe in our countries,
+- [13:59.910] in our cities and states, history, New York.
+- [14:03.750] She was really tough, really sharp.
+- [14:06.110] Then she did a show,
+- [14:08.580] and people didn't think of her quite the same way.
+- [14:10.590] She became more of an entertainment person, like us.
+- [14:13.400] Ours is not an entertainment,
+- [14:14.610] but he's not really an entertainer.
+- [14:16.540] You know the real story, and she isn't either.
+- [14:18.480] She is unbelievable.
+- [14:19.690] She was one of the strongest district attorneys
+- [14:24.220] in the history of New York. Highly respected, very tough.
+- [14:29.040] Went after the drug dealers at a level
+- [14:32.330] that you don't see today anymore,
+- [14:34.340] and hopefully she's going to be, she's given up a tremendous,
+- [14:37.780] she's leaving the number one show on cable television,
+- [14:40.630] one of number one shows on television, period.
+- [14:43.430] The five, but they've got great people left behind.
+- [14:45.830] But she was a big part of it. And so I equated to that.
+- [14:50.110] Janine Pirro is unbelievable.
+- [14:53.130] FDA Commissioner Dr. Marty McCary,
+- [14:55.430] with a reputation that's second to none,
+- [14:57.400] and the job he's doing already has been fantastic.
+- [15:00.000] Thank you, Marty.
+- [15:01.290] And Director of National Institute of Health,
+- [15:04.710] Jay Bhattacharya, who has been, as you know, from Stanford.
+- [15:10.940] So highly regarded and have all been working
+- [15:13.080] with us very hard on this. And the question they would ask,
+- [15:16.820] being a little bit new to the government aspect of it,
+- [15:19.050] is why hasn't why doesn't somebody
+- [15:21.560] fight the drug price situation, meaning equalization?
+- [15:25.010] There's a term. It's called equalization.
+- [15:27.640] Nobody wants to mention that term.
+- [15:30.430] And I'm not knocking the drug companies.
+- [15:31.970] I'm really more knocking the countries
+- [15:33.620] than the drug companies because they're forced to do things,
+- [15:38.670] but the drug lobby is the strongest lobby in this country.
+- [15:43.730] They say the drug lobby.
+- [15:45.430] It's between that and lawyers. And they have a lot of power.
+- [15:50.870] But starting today, the United States will no longer subsidize
+- [15:53.910] the health care of foreign countries,
+- [15:56.190] which is what we were doing.
+- [15:57.500] We're subsidizing others' health care.
+- [15:59.490] Countries where they paid a small fraction for the same drug
+- [16:05.100] that what we pay many, many times more for.
+- [16:08.070] And we'll no longer tolerate profiteering
+- [16:10.220] and price gouging from Big Pharma,
+- [16:12.770] but again, it was really the countries
+- [16:15.630] that forced Big Pharma to do things that, frankly,
+- [16:19.810] I'm not sure they really felt comfortable doing.
+- [16:22.500] But they've gotten away with it, these countries.
+- [16:24.220] European Union has been brutal, brutal.
+- [16:28.160] And the drug companies actually told me stories.
+- [16:30.250] It was just brutal how they forced them.
+- [16:32.400] And European Union suing all our companies,
+- [16:35.480] Apple, Google. They're suing all of our companies.
+- [16:41.630] They end up -- they have judges
+- [16:43.670] that are European, union-centric,
+- [16:49.670] and they get rewarded $15 billion, $17 billion,
+- [16:53.620] $20 billion, and the use that to run their operation.
+- [16:58.250] It's not going to happen any longer, that I can tell you.
+- [17:02.130] So, what's been happening
+- [17:03.920] is we've been subsidizing other countries.
+- [17:06.500] Throughout the world, not just in Europe,
+- [17:08.160] throughout the European Union was the most difficult,
+- [17:11.150] from what I understand. I mean, I'll tell you a story.
+- [17:13.690] A friend of mine who's a businessman, very, very top guy,
+- [17:19.260] most of you would have heard of him,
+- [17:21.220] a highly neurotic, brilliant businessman,
+- [17:25.130] seriously overweight, and he takes the fat shot.
+- [17:31.490] And he called me up, and he said,
+- [17:35.570] President, he used to call me Donald,
+- [17:37.720] now he calls me President, so that's nice respect.
+- [17:40.010] But he's a rough guy, smart guy. Very successful, very rich.
+- [17:45.040] I wouldn't even know how we would know this,
+- [17:46.550] but because he's got comments.
+- [17:47.820] He said, President, could I ask you a question or what?
+- [17:50.150] I'm in London, and I just paid for this damn fat drug I take.
+- [17:55.150] I said, it's not working. He said, he said --
+- [18:00.550] I just paid $88. And in New York, I pay $1,300.
+- [18:06.020] What the hell is going on? He said, so I checked.
+- [18:10.880] And it's the same box made in the same plant
+- [18:15.150] by the same company.
+- [18:16.460] It's the identical pill that I buy in New York.
+- [18:20.350] And here I'm paying $88 in London.
+- [18:23.900] In New York I'm paying $1 300.
+- [18:26.570] Now, this is a great businessman, so, but
+- [18:28.600] He's not familiar with.
+- [18:30.290] This crazy situation that we have.
+- [18:32.950] But he was stunned.
+- [18:35.490] But it was just one of those stories.
+- [18:37.750] And I brought it up with the drug companies,
+- [18:40.060] represented by somebody who's very, very smart.
+- [18:42.130] Good person, too.
+- [18:43.440] And we argued about it for about a half hour.
+- [18:46.490] And then finally, he just said, because they can't justify it.
+- [18:50.650] He just said look, you got me.
+- [18:53.740] You got me, I can no longer just.
+- [18:56.710] They've been justifying this. Crap for years.
+- [18:58.990] They said, oh, it's research and development.
+- [19:00.700] Well, I said, well, research and development,
+- [19:02.700] other countries should pay research and development, too.
+- [19:04.900] It's for their benefit. It was just one of those things.
+- [19:07.800] And the other countries would set a price,
+- [19:11.080] and they'd meet the price, and they would say,
+- [19:13.200] if you don't meet the price,
+- [19:14.450] you can't sell it in our country.
+- [19:16.690] I said well, then you walk away,
+- [19:18.090] and, you know, they'll call you back,
+- [19:19.640] and they'll sell it to the country.
+- [19:20.910] But now they'll have to do that.
+- [19:22.890] So for the first time in many years,
+- [19:24.430] we'll slash the cost of prescription drugs and
+- [19:27.190] We will bring fairness to America.
+- [19:28.850] Drug prices will come down by much more, really, if you think.
+- [19:34.090] Fifty-nine. If you think of a drug
+- [19:36.490] that is sometimes 10 times more expensive,
+- [19:40.070] it's much more than the 59 percent.
+- [19:42.650] You know, it depends on the way you want to analyze it.
+- [19:44.660] But in one way, you could analyze it that way.
+- [19:47.180] But between 59 and 80, and I guess even 90 percent.
+- [19:51.730] So, when I worked so hard in the first --
+- [19:55.240] Term, and if I got prices down, remember I was the only one
+- [19:58.180] to ever get prices down for a full year,
+- [20:00.760] but I would get them down like 2 percent,
+- [20:02.270] and I thought it was like a big deal.
+- [20:03.680] Well, we are getting them down 60, 70, 80, 90 percent,
+- [20:09.550] but actually more than that
+- [20:10.750] if you think about it in the way mathematically.
+- [20:14.380] And Farmer has to say, we are sorry,
+- [20:17.370] but we will not be able to do this
+- [20:20.580] any longer to these countries that have been so tough.
+- [20:24.590] They've been very tough.
+- [20:29.800] And pharma is also very powerful.
+- [20:32.700] And the Democrats have protected pharma.
+- [20:34.670] The Democrats, this is the Democrats have protected Pharma.
+- [20:37.160] These are the Democrats.
+- [20:38.360] And by the way, I just called the Speaker of the House
+- [20:44.300] and I just call the leader, our leader in the Senate,
+- [20:48.770] John Thune, Mike Johnson, spoke to both of them.
+- [20:53.040] I said, when you score,
+- [20:54.360] you're going to have to score two things.
+- [20:55.760] You're going to have to number one score that.
+- [20:58.190] Hundreds of billions of dollars of tariff money is coming in.
+- [21:02.490] But even bigger than that, you're going to have to score
+- [21:04.370] that your cost for Medicaid and Medicare
+- [21:08.320] and just basically pharmaceuticals and drugs
+- [21:10.790] is going down at a level
+- [21:12.890] that nobody has ever seen before.
+- [21:16.630] It'll pay for the Golden Dome.
+- [21:18.060] I see the Golden dome is there, see?
+- [21:20.390] That'll easily pay for The Golden Dorm
+- [21:23.200] and we'll have a lot of money left over.
+- [21:25.680] We need the golden dome, by the way. In this world.
+- [21:29.350] Although, this world is a lot safer today
+- [21:31.060] than it was a week ago,
+- [21:32.740] and a lot safe than it six months ago.
+- [21:35.700] We had people that had no clue what they were doing.
+- [21:39.260] So today, Americans spend 70 percent
+- [21:42.740] more for prescription drugs
+- [21:44.250] than we spent in the year 2000. Think of that.
+- [21:47.720] Our country has the highest drug prices anywhere in the world
+- [21:50.570] by sometimes a factor of five, six, seven, eight times.
+- [21:55.200] It's not like they're slightly higher.
+- [21:57.490] Six, seven, eight times.
+- [21:58.800] There are even cases of 10 times higher.
+- [22:02.320] So that you go 10 times more expensive for the same drug,
+- [22:05.740] that's big numbers.
+- [22:07.370] Even though the United States is home to only 4 percent
+- [22:10.300] of the world's population, pharmaceutical companies
+- [22:13.760] make more than two-thirds of their profits in America.
+- [22:16.280] So think of that. With 4 percent the population,
+- [22:19.950] the pharmaceutical companies make most of their money,
+- [22:23.150] most of the profits from America.
+- [22:25.670] That's not a good thing.
+- [22:28.350] Now, I think, by the way, pharmaceutical,
+- [22:30.090] I have great respect for these companies
+- [22:32.000] and for the people that run them. I really do.
+- [22:34.760] And I think they did one of the greatest jobs in history
+- [22:37.040] for their company,
+- [22:38.770] convincing people for many years that this was a fair system.
+- [22:43.680] Nobody really understood why, but I figured it out.
+- [22:48.490] For years, pharmaceutical and drug companies
+- [22:50.730] have said that research and development
+- [22:52.640] because we're what they are, and for no reason whatsoever.
+- [22:57.940] They had to be born by America alone.
+- [23:02.830] Not anymore, they don't.
+- [23:04.200] This means American patients were effectively
+- [23:06.600] subsidizing socialist healthcare systems in Germany,
+- [23:11.840] in all parts of the European Union.
+- [23:15.810] They were the toughest of all. They were nasty.
+- [23:18.300] And I see that. I see it with trade, too.
+- [23:19.950] European Union is, in many ways, nastier than China.
+- [23:25.040] Okay? And We've just started with them.
+- [23:30.020] Oh, they'll come down a lot. You watch.
+- [23:32.730] We have all the cards. They treated us very unfairly.
+- [23:36.850] They sell us 13 million cards. We sell them none.
+- [23:41.830] They sell their agricultural products.
+- [23:45.840] We sell virtually none. They don't take our products.
+- [23:51.130] That gives us all the cards. And very unfair.
+- [23:54.540] So they're going to have to pay more for healthcare,
+- [23:56.460] and we're going to pay less.
+- [23:57.730] That's all it is. Believe it or not,
+- [24:00.130] because it's really the world we're talking about,
+- [24:01.890] not just the European Union, but because it is the world,
+- [24:07.420] the numbers are for the healthcare company
+- [24:09.810] not as bad as you would think. They'll make the same.
+- [24:11.980] I think the healthcare companies should make
+- [24:14.920] pretty much the same money. I really don't believe
+- [24:17.300] they should be affected very much because --
+- [24:20.360] It's just a redistribution of wealth.
+- [24:22.150] It's a redistribution where it could be the same top line,
+- [24:25.640] but it's going to be distributed differently.
+- [24:27.790] Europe is going to have to pay a little bit more.
+- [24:30.090] The rest of the world is going to have pay a bit more,
+- [24:32.300] and America is going pay a lot less.
+- [24:34.200] Again, because it's a much smaller population
+- [24:36.510] than when you think of the whole world.
+- [24:40.040] So basically, what we're doing is equalizing.
+- [24:44.790] There's a new word that I came up with,
+- [24:46.330] which I think is probably the best word.
+- [24:47.800] We're going to equalize.
+- [24:49.540] Where we're all going to pay the same.
+- [24:51.120] We're going to pay what Europe's going to pay,
+- [24:52.630] we're going to all pay.
+- [24:53.840] Now, there may be some countries in dire need,
+- [24:56.130] and I would be willing to sacrifice that and help them.
+- [25:02.220] But it's called most favored nation.
+- [25:04.000] We are going to pay the lowest price there is in the world.
+- [25:08.080] We will get, whoever is paying the lowest prize,
+- [25:11.300] that's the price that we're going to get.
+- [25:12.900] So remember that.
+- [25:14.150] So we're no longer paying 10 times more than another country.
+- [25:18.210] Whoever is paying. Lowest price. We will look at that price
+- [25:22.020] and we will say that's the price we're going to pay.
+- [25:25.330] Most favorite nations, that's what it is.
+- [25:29.230] One breast cancer drug costs Americans
+- [25:33.120] over $16,000 per bottle,
+- [25:36.500] but the same drug from the same factory
+- [25:39.820] manufactured by the same company
+- [25:44.020] is one-sixth that price in Australia
+- [25:47.030] and one-tenth that price.
+- [25:49.700] In Sweden, one-tenth for the identical.
+- [25:54.690] A common asthma drug costs almost $500 here in America,
+- [25:59.580] but costs less than $40 in the United Kingdom.
+- [26:02.760] So $40, in the UK, which is where this gentleman told me
+- [26:07.660] he paid a small amount for his shot.
+- [26:13.530] Think of that. So $40 versus $500 here.
+- [26:18.290] That's not even bad. There are much worse examples.
+- [26:20.360] And the weight loss drug,
+- [26:22.220] Ozempic, costs 10 times more in the United States
+- [26:25.520] than in the rest of the developed world.
+- [26:28.410] Ten times more. Why? Why? What did we do? Suckers.
+- [26:33.980] But we never had a president that had the courage to do this.
+- [26:37.770] And nobody knew the system like I do.
+- [26:40.190] I mean, I've gotten to know this system so well.
+- [26:44.380] And I don't think it's fair that it benefits
+- [26:46.370] Obamacare. Obamacare is a failure.
+- [26:48.160] It's not a good health care. It works. I made it work.
+- [26:52.830] I had an obligation to make it work
+- [26:55.780] or an obligation to let it die.
+- [26:57.730] I chose that we had to make work.
+- [26:59.400] I had to it as good as possible. And I had a choice.
+- [27:04.390] I could have let it fail or make it as good as possibly.
+- [27:08.060] As good as it possible means it was still not very good,
+- [27:10.670] but it survived. And we did the right thing.
+- [27:14.160] But this makes it -- this makes everything work.
+- [27:17.260] And I don't want to have a bad form of health care work
+- [27:22.330] because of the fact I was able to cut drug prices
+- [27:24.870] by 80 or 90 percent.
+- [27:27.140] So we're going to maybe come up with something.
+- [27:28.800] I think this gives the Republicans a chance
+- [27:30.600] to actually do a health care that's much better than
+- [27:32.860] Obamacare and for less money,
+- [27:35.160] which if you guys would work on that, along with Congress.
+- [27:38.600] But I do want to say that.
+- [27:40.850] Democrats could have done this a long time ago.
+- [27:42.850] They have fought like hell for the drug companies.
+- [27:45.890] And they knew they were doing the wrong thing.
+- [27:47.590] And it's going to be very hard. I was just telling the leader
+- [27:52.460] and the speaker that it's going to very hard for the Democrats
+- [27:56.720] to vote against the one big, beautiful deal.
+- [28:01.000] The greatest tax cuts in history, greatest everything.
+- [28:03.520] But now you have the big drug prices
+- [28:05.650] because that's going to be included.
+- [28:07.910] It makes that whole situation.
+- [28:10.540] Different from a scoring standpoint.
+- [28:13.090] I just told them, I called them up about this.
+- [28:15.040] I said, I'm going to do something
+- [28:16.380] that's going to be very monumental,
+- [28:18.140] and you're going to be scoring. You better tell your people
+- [28:22.530] that this is going to score really well.
+- [28:24.160] And then add hundreds of billions of dollars
+- [28:27.550] in tariffs to your list also. But as big as the tariffs are,
+- [28:32.280] this is something that really hits quickly.
+- [28:34.850] Five years ago,
+- [28:36.080] I signed an executive order to confront this disaster.
+- [28:40.290] But only confronted in a minor way.
+- [28:42.960] It was a good confrontation, but never to this extent.
+- [28:47.630] Took people a little while to understand
+- [28:49.810] a very complicated system. But Joe Biden,
+- [28:52.960] without any knowledge of what he was doing,
+- [28:54.940] terminated the policy
+- [28:56.820] and then pretended to negotiate under a new system.
+- [29:00.500] And then you take a look.
+- [29:02.650] Five out of the 10 drugs that he negotiated
+- [29:05.890] are now over 200 percent more expensive in America.
+- [29:10.060] Than the rest of the world and far more expensive
+- [29:12.770] than when he even got involved.
+- [29:15.590] Much more expensive then when he got involved.
+- [29:17.500] Joe Biden's plan was, as you know,
+- [29:20.270] because you wrote about it, you don't say it very loudly,
+- [29:22.570] but it was a very big failure, was his whole presidency.
+- [29:25.460] First, I'm directing the U.S. Trade
+- [29:27.640] representatives and Department of Commerce
+- [29:29.790] to begin investigations into foreign nations
+- [29:33.280] that extort drug companies by blocking their
+- [29:36.930] unless they accept bottom line.
+- [29:39.350] And very low dollar amounts for their product,
+- [29:42.120] unfairly shifting the cost burden onto American patients.
+- [29:46.270] And we'll be taking a look at that very strongly.
+- [29:48.270] The biggest thing we're going to do
+- [29:49.640] is we're going to tell those countries,
+- [29:52.360] like those represented by the European Union,
+- [29:55.700] that, you know, that game is up, sorry.
+- [29:58.460] And if they want to get cute, then they don't have to sell
+- [30:00.740] cars into the United States anymore.
+- [30:03.610] It's a very big subject. And they won't get cute.
+- [30:07.690] Because I'll defend the drug companies from that standpoint.
+- [30:10.660] They were given a price by the European unions
+- [30:14.100] and other countries. This is what you do.
+- [30:16.840] This is we're going to pay. We're not going to any more.
+- [30:19.710] Let America pay the difference, because it was a big shortfall.
+- [30:22.790] Let America it. And that's what we did.
+- [30:26.040] But we're not doing it anymore.
+- [30:27.490] Next, my administration will secure
+- [30:29.350] what we're calling most favored nation's drug pricing.
+- [30:32.890] The principle is simple.
+- [30:34.590] Whatever the lowest price paid for a drug
+- [30:36.450] in other developed countries,
+- [30:37.880] that is the price that Americans will pay.
+- [30:40.400] We're using the term other developed countries
+- [30:42.950] because there are some countries that need some additional help.
+- [30:46.760] And that's fine. I think that's very good.
+- [30:49.790] Some prescription drug and pharmaceutical prices
+- [30:51.930] will be reduced
+- [30:53.150] almost immediately by 50 to 80 to 90 percent.
+- [30:57.810] Big Pharma will either abide by this principle voluntarily
+- [31:01.520] or will use the power of the Federal government to ensure
+- [31:04.000] that that we are paying the same price as other countries.
+- [31:08.420] To accelerate these price restrictions and reductions,
+- [31:12.230] my administration will also cut out the middlemen.
+- [31:15.810] We're going to totally cut out the famous middlemen,
+- [31:18.390] nobody knows who they are, middlemen they've,
+- [31:20.100] I've been hearing the term for 25 years,
+- [31:21.900] middlemen I don't know who they are
+- [31:23.990] but they're rich, that I can tell you.
+- [31:26.180] We're going to cut out the middleman
+- [31:28.110] and facilitate the direct sale of drugs
+- [31:30.670] at the most favored nation price
+- [31:32.340] directly to the American citizen.
+- [31:34.700] So we're cutting out Bobby the middleman.
+- [31:36.680] It's so important. They've got to do that.
+- [31:39.860] They get, they get, no, they're worse than the drug companies.
+- [31:42.820] They don't even make a product, and they make a fortune.
+- [31:46.230] It's very smart business, people, that I can tell
+- [31:48.560] If companies make no significant progress
+- [31:50.840] toward most favorite nation pricing,
+- [31:52.790] which we will insist that they do,
+- [31:54.360] so I think I'm wasting time talking about
+- [31:56.340] We're going to insist upon it. And we'll insist,
+- [31:59.230] and we're going help the drug companies
+- [32:00.910] with the other nations, because we're
+- [32:02.300] Those other nations do a lot of trading with us.
+- [32:04.310] They need our trade, just like China
+- [32:06.360] needed us very badly. They need us just as badly.
+- [32:10.790] We will do whatever we have to with trade,
+- [32:13.460] just like we did some
+- [32:15.090] great things with trade with India and Pakistan.
+- [32:18.410] Really helped the situation. Very heated situation.
+- [32:21.880] Could have lost millions of people, more than millions.
+- [32:24.080] I mean, many millions of People.
+- [32:27.280] And they want to do business with America.
+- [32:31.480] But we never used our powers that way. We never knew how.
+- [32:35.250] We never had people that knew how to do that.
+- [32:37.510] We'll also open up America's market to safe
+- [32:40.100] and legal imports of affordable drugs from other countries,
+- [32:43.460] putting dramatic downward pressure on prices.
+- [32:47.730] And if necessary, we'll investigate the drug companies
+- [32:50.480] and we'll, in particular,
+- [32:52.060] investigate the countries that are doing this,
+- [32:54.930] and we will add it onto the price that
+- [32:59.780] We charge them for doing business in America.
+- [33:02.940] In other words, we'll add it on to tariffs
+- [33:05.460] if they don't do what is right,
+- [33:07.030] which is everybody should equalize.
+- [33:09.210] Everybody should, say, pay the same price.
+- [33:11.620] And special interests may not like this very much,
+- [33:15.560] but the American people will.
+- [33:17.150] I mean, I am doing this for the American people.
+- [33:20.750] I'm doing this against the most powerful lobby in the world,
+- [33:24.270] probably the drug lobby, drug and pharmaceutical lobby.
+- [33:28.320] But it's one of the most important orders,
+- [33:30.030] I think, that's ever been signed,
+- [33:31.410] certainly with regard to healthcare or health
+- [33:34.100] in the history of our country.
+- [33:35.440] And it's an honor to be a part of it.
+- [33:37.000] And I'd like to ask Robert F. Kennedy
+- [33:39.860] to say a few words, please. Thank you.
+- [33:44.020] Robert F. Kennedy: Thank you, Mr. President.
+- [33:49.220] This is an extraordinary day. This is a issue that, you know,
+- [33:52.700] I grew up in the Democratic Party
+- [33:54.340] and every major Democratic leader for 20 years
+- [33:58.110] been making this promise to the American people.
+- [34:00.140] This was the fulcrum of Bernie Sanders runs for presidency
+- [34:04.950] that he was going to eliminate this discrepancy
+- [34:08.110] between Europe and the United States.
+- [34:10.760] But as it turns out,
+- [34:12.790] None of them were doing, and it's one of these promises
+- [34:15.430] that politicians make to their constituents,
+- [34:18.690] knowing that they'll never have to do it.
+- [34:20.450] And the reason they'll have to never have do it
+- [34:23.010] is because they know that Congress is controlled in
+- [34:26.520] so many ways by the pharmaceutical industry.
+- [34:29.600] There's at least one pharmaceutical lobbyist
+- [34:32.120] for every congressman, every senator in Capitol Hill,
+- [34:34.660] and every member of the Supreme Court.
+- [34:37.060] I some estimates three.
+- [34:39.700] Pharmaceutical companies, the industry itself,
+- [34:42.330] spends three times what the next largest lobbyist
+- [34:47.590] spends on lobbying.
+- [34:48.880] So this was an issue that people talked about
+- [34:52.940] but nobody wanted to do anything because it was radioactive.
+- [34:57.710] They knew you couldn't get it by Congress.
+- [34:59.470] We now have a president who is a man of his word,
+- [35:04.840] who has the courage. President Trump.
+- [35:07.630] Was taking money from the pharmaceutical industry, too.
+- [35:09.840] I think they gave you $100 million.
+- [35:12.700] But he can't be bought,
+- [35:14.630] unlike most of the politicians in this country.
+- [35:17.630] And he is standing here for the American people.
+- [35:21.260] I don't know what, you know,
+- [35:22.620] there's writers like Lord Elizabeth Warren or Robert Reich
+- [35:27.730] who are saying that President Trump
+- [35:29.280] is on this side of the Olic arcs.
+- [35:31.640] There has never been a president more willing
+- [35:35.160] to stand up to the oligarchs than President Donald Trump.
+- [35:39.910] And I'm very, very proud of you, Mr. President, for your courage.
+- [35:44.670] I'll say, because I don't want to be crude,
+- [35:47.420] your intestinal fortitude, your stiff spine,
+- [35:52.390] and your willingness to stand up for the American people.
+- [35:56.530] We have 4.2 percent of the world's population.
+- [36:01.500] Our country represents 75 percent of the revenues
+- [36:05.950] for pharmaceutical companies.
+- [36:08.050] We spend in our country $1,126 per capita on drugs.
+- [36:15.650] In Britain, they spend about 240.
+- [36:18.500] They spend one-fifth of what we do.
+- [36:21.100] And this is true across Europe.
+- [36:23.770] And the drug companies, Europeans, if you ask them,
+- [36:27.430] it made no sense what they're saying.
+- [36:29.750] America has to pay for this innovation,
+- [36:32.170] it's not going to happen.
+- [36:34.250] President Trump is saying to our European partners,
+- [36:37.690] is you've got to raise the amount
+- [36:39.480] that you're paying for those drugs
+- [36:40.910] and pay for your share of the innovation,
+- [36:43.810] that the United States is no longer subsidizing that.
+- [36:47.190] If the Europeans raise the price of their drugs
+- [36:50.300] by just 20 percent,
+- [36:52.780] that is $10 trillion that can be spent on innovation.
+- [36:58.010] And the health of all people all across the globe
+- [37:01.630] is going to increase,
+- [37:02.980] because we're going to have better products.
+- [37:05.470] So -- I'm just so grateful to be here today.
+- [37:09.610] I never thought that this would happen in my lifetime.
+- [37:12.850] I have a couple of kids who are Democrats,
+- [37:16.160] are big Bernie Sanders fans,
+- [37:18.730] and when I told them that this was going to happen,
+- [37:21.200] they had tears in their eyes because they thought this is
+- [37:24.370] never going to happen in our lifetime,
+- [37:26.320] and we finally have a president
+- [37:28.100] who's willing to stand up for the American people.
+- [37:31.160] Thank you, and Dr. Oz.
+- [37:36.630] Dr. Oz: Thank you, Secretary Kennedy.
+- [37:39.090] This is the most powerful executive order
+- [37:43.130] on pharmacy pricing and health care
+- [37:44.950] ever in the history of our nation.
+- [37:47.090] And it's only happening because we have a president
+- [37:49.800] with the fortitude.
+- [37:51.420] The guts to stand up to the withering criticism
+- [37:54.180] and lobbying that's going to occur
+- [37:56.130] as soon as folks hear about the executive order.
+- [37:58.430] So on behalf of the child in Philadelphia
+- [38:01.370] who's got an autoimmune disease with a thousand dollar
+- [38:03.760] a month drug or the older woman in Los Angeles
+- [38:07.900] who's on a blood thinner who can't afford her co-pay,
+- [38:10.200] I want to thank President Trump.
+- [38:11.410] God bless you for having the guts take on this industry.
+- [38:14.310] Thank you, sir.
+- [38:16.510] So let's talk about the details a little bit.
+- [38:18.680] And this is primarily about equalization,
+- [38:21.790] as President Trump said. It's about fairness.
+- [38:23.930] Think of NATO as a metaphor.
+- [38:25.810] When President Trump said you've got to pay a little more,
+- [38:28.580] so it makes sense for all of us, they came up.
+- [38:31.600] And the European countries contributed.
+- [38:33.700] The same thing we believe will happen in this situation.
+- [38:36.870] Most people who have thought about this process agree
+- [38:40.050] that it is patently unfair to tolerate the numbers
+- [38:42.900] that Secretary Kennedy and President Trump
+- [38:44.510] have reflected to you.
+- [38:46.120] On this chart to my left is a list of the 10 drugs
+- [38:50.020] that were negotiated in the IRA.
+- [38:52.110] Again, this is the bill, the law,
+- [38:54.940] that regulates a negotiation process.
+- [38:57.390] This is the best price that was able to be obtained
+- [39:00.630] by the Biden administration.
+- [39:02.390] And if you look at these numbers,
+- [39:04.190] they actually reflect how much on top
+- [39:06.370] of the most favored nation price
+- [39:09.090] was being paid by the United States.
+- [39:11.060] So the closest to me, Bob,
+- [39:12.270] you can point to the Jardine's closest one, 289 percent,
+- [39:15.510] the one that's closest to you.
+- [39:17.290] That means that we are paying in America
+- [39:20.230] four times more than that drug costs in other countries.
+- [39:24.460] Again, 100 percent is the baseline,
+- [39:25.870] it's 289 percent above that baseline.
+- [39:28.680] It goes all the way down to where we're paying 50 percent
+- [39:30.920] more than any other country. That's the range.
+- [39:33.600] As was pointed out by President Trump,
+- [39:35.580] half the time we're paying three times more than
+- [39:37.800] is paid in other countries.
+- [39:39.020] It doesn't make any sense for the system.
+- [39:41.000] That stated, President Trump is over and over getting indicated,
+- [39:43.880] and Secretary Kennedy has reflected as well,
+- [39:46.050] we want innovation.
+- [39:47.490] We want our technology partners doing the best
+- [39:50.230] they can to make the best solutions for drugs
+- [39:52.480] to cure as many people in America
+- [39:54.160] and around the world as possible.
+- [39:55.860] By getting our allies to pay a bit more, as they should be,
+- [39:59.930] and they should have for many years been doing,
+- [40:02.000] we'll course correct a problem that's gotten out of hand.
+- [40:04.590] And by doing that in a thoughtful, effective way,
+- [40:06.590] we're going to be able
+- [40:07.790] to get the pharmaceutical industry whole.
+- [40:09.890] Those jobs will still be here, will still productive,
+- [40:11.900] will still curing cancer
+- [40:13.300] and a slew of other ailments that plague humanity.
+- [40:16.040] America will still the leader in this space,
+- [40:18.510] but we'll be paying the appropriate amount,
+- [40:20.270] the right-sized amount for those tasks.
+- [40:22.650] So over the next 30 days -- The four of us up here,
+- [40:26.780] together with people standing in the back of this room
+- [40:28.970] who are doing a lot of the heavy lifting,
+- [40:30.260] are going to be approaching pharmaceutical companies to talk
+- [40:32.280] specifically about what we want the most favored nation price
+- [40:35.240] to be based on the best data we have.
+- [40:36.860] We are looking forward to a thoughtful interaction
+- [40:41.530] with these corporate leaders,
+- [40:42.770] many of whom we have spoken to and in quiet
+- [40:45.430] will agree the system is not right the way it is.
+- [40:48.170] They are patriotic Americans. They want what is right.
+- [40:50.430] But the fact that in my lifetime,
+- [40:52.200] as Secretary Kennedy He said, for the first time,
+- [40:54.430] we have a thoughtful and aggressive approach,
+- [40:57.260] thanks to President Trump,
+- [40:58.470] on taking on these special interests.
+- [41:00.600] I should give all Americans confidence
+- [41:03.380] that this is an administration that stands for fairness
+- [41:05.540] and should chill the waters for those
+- [41:07.440] who believe they can push us away from our North Star,
+- [41:10.150] which is to take care of the American people.
+- [41:12.970] Mr. President, God bless you. Jay, you want to go next?
+- [41:19.220] Jay Bhattacharya: So I teach economics at Stanford,
+- [41:21.980] as well as health policy.
+- [41:23.820] And one thing that's really, really simple in economics
+- [41:25.960] is that when you have a persistent price difference
+- [41:29.240] for the same product between two countries,
+- [41:31.300] there is something deeply wrong.
+- [41:33.380] And what President Trump has done is a historic measure
+- [41:36.530] that should have been done a long time ago.
+- [41:38.900] What we're going to do is make sure
+- [41:40.930] that those prices become much closer to equal,
+- [41:45.210] like a competitive market you'd expect.
+- [41:47.550] Right now, what's happening is the American people
+- [41:49.780] are subsidizing
+- [41:51.130] in large fraction the research and development efforts
+- [41:55.420] for drug companies around the world
+- [41:56.900] by the higher prices that we pay.
+- [41:59.780] With this new order, Europe will share the burden of that.
+- [42:04.280] And in fact, if you may think of it
+- [42:07.320] as somehow it's going after drug companies,
+- [42:09.820] actually it's helping drug companies.
+- [42:11.880] Because what we're also going to do with this order,
+- [42:13.630] what President Trump has done with this
+- [42:15.560] Is he's said to European governments, look,
+- [42:19.410] if you are taking advantage of the drug companies
+- [42:21.260] by forcing them to charge very, very low prices,
+- [42:24.370] we're going to defend American drug companies in Europe.
+- [42:28.060] At the same time, we're standing up for the American consumer
+- [42:31.710] who's been paying far too high prices for far too long.
+- [42:34.680] I can go back.
+- [42:35.930] Decades to point to congressional reports,
+- [42:39.330] after a government report, after government report
+- [42:41.270] of tremendously high drug prices,
+- [42:43.900] much higher than the rest of the world.
+- [42:45.780] And nothing has been done about it until this moment.
+- [42:48.410] And I'm really, really proud,
+- [42:50.150] President Trump, that you have done this.
+- [42:52.220] I'm real proud to be included in this.
+- [42:53.640] I'm looking forward to the work ahead.
+- [42:56.800] Martin Makary: Thank you, Mr. President.
+- [42:58.030] On behalf of the many doctors
+- [42:59.960] I've talked to about this very issue,
+- [43:01.900] thank you for taking the bull by the horns.
+- [43:04.440] Presidents on both sides of the aisle have talked about this
+- [43:07.440] and floated it and said they've wanted to do it,
+- [43:09.410] so you've had the courage to do. Thank you.
+- [43:12.540] I've been a surgical oncologist at Johns Hopkins for 22 years,
+- [43:16.300] and I have seen patients suffer.
+- [43:19.140] We didn't take an oath to heal patients
+- [43:21.830] and then watch their life get ruined financially.
+- [43:25.350] With their home, mortgage, retirement,
+- [43:28.650] going down the drain with GoFundMe campaigns,
+- [43:31.670] raising money from church communities and synagogues
+- [43:34.630] and friends they haven't seen in 20 years
+- [43:36.890] to try to raise money for what?
+- [43:39.430] For a system where Americans have been getting ripped off
+- [43:43.610] by 10, 12,
+- [43:44.830] 15 times higher prices than we see in other countries.
+- [43:47.860] The fundamental problem in healthcare
+- [43:49.370] is that we've had non-competitive markets.
+- [43:51.850] We can do little things around the edges,
+- [43:53.460] or we can transform those markets to competitive markets.
+- [43:57.270] And that's what this executive order does today.
+- [43:59.740] Imagine buying a Ford for $175,000, a regular car,
+- [44:06.900] and then hearing that people in London
+- [44:08.820] are buying it for $10,000 every day, all day long.
+- [44:12.670] That is the craziness of this system.
+- [44:14.750] We're going to do everything we can at the FDA
+- [44:16.800] to support this executive orders.
+- [44:19.440] It's transformative. Thank you, Mr. President.
+- [44:24.320] The President: So, thank you very much, everybody.
+- [44:25.960] It's -- I think it's a very important day.
+- [44:27.680] In many ways, you have -- We'll start with the Houthis.
+- [44:32.690] We go to Pakistan and India.
+- [44:35.000] We go through what we did with China,
+- [44:36.870] the trade deal, and with the UK.
+- [44:38.880] And by the way, many other deals are coming in very much.
+- [44:42.790] At a certain point, we'll just set the price,
+- [44:44.480] because we know where we are. But we'll set the prices.
+- [44:47.410] But world trade is going to be terrific,
+- [44:50.230] and our country is going be making a lot of money.
+- [44:54.050] Taxes are going to go down.
+- [44:55.580] Taxes will go down very, very substantially.
+- [44:58.870] But you look at all of the things that we've done.
+- [45:00.880] And now today, I'm heading over.
+- [45:03.090] We'll see what we're going to do with respect to Iran.
+- [45:07.890] I think you have very good things
+- [45:09.360] happening there, too, by the way.
+- [45:10.690] I think I can't have a nuclear weapon,
+- [45:13.600] but I think that they are talking intelligently.
+- [45:16.960] We're in the midst of talking to them,
+- [45:18.590] and they're right now acting very intelligent.
+- [45:22.540] We want Iran to be wealthy and wonderful and happy
+- [45:27.040] but they can't have a nuclear weapon, it's very simple.
+- [45:29.550] So I think they understand that I mean business
+- [45:32.960] and I think their being very reasonable thus far.
+- [45:38.220] And don't underestimate Thursday and.
+- [45:44.240] President Erdogan is going to be a great host.
+- [45:48.080] And we are doing some work with him,
+- [45:52.380] having to do with Syria, too, by the way.
+- [45:54.500] We're going to have to make a decision on the sanctions,
+- [45:57.180] which we may very well relieve. We may take them off of Syria
+- [46:00.890] because we want to give them a fresh start.
+- [46:04.130] But President Erdogan has asked me about that.
+- [46:06.810] Many people have asked me about that
+- [46:08.430] because the way we have them sanctioned,
+- [46:09.820] it doesn't really give them much of a start.
+- [46:11.940] So we want to see we can help them out
+- [46:14.700] So we'll make that determination.
+- [46:16.520] But I think you're going to have maybe a good meeting.
+- [46:18.290] You have the potential for a good meeting
+- [46:20.210] that a meeting wasn't going to take place.
+- [46:21.680] I insisted that that meeting take place,
+- [46:24.890] and it is taking place.
+- [46:26.310] And I think that you may have a good result
+- [46:27.980] out of the Thursday meeting in Turkey
+- [46:29.970] between Russia and Ukraine.
+- [46:32.680] And I believe the two leaders are going to be there.
+- [46:35.010] I was thinking about flying over.
+- [46:36.330] I don't know where I'm going to be on Thursday.
+- [46:37.880] I've got so many meetings.
+- [46:39.770] But I was thinking about actually flying over there.
+- [46:42.560] There's a possibility of it, I guess,
+- [46:44.130] if I think things can happen. But we got to get it done.
+- [46:46.840] We got to save 5,000 lives a week.
+- [46:48.670] Five thousand lives is really more than that.
+- [46:50.380] It's worse than that, and when you see the --
+- [46:52.400] and you don't want to see it,
+- [46:53.630] but when you the satellite photographs of the battlefield
+- [46:56.930] with arms and legs and heads all over the place,
+- [47:00.760] separated by 30 yards from bodies.
+- [47:07.580] Does it make sense? Does it makes sense?
+- [47:10.040] So we're working very hard to see
+- [47:12.370] if we can end that bloodbath.
+- [47:15.490] Okay, there shouldn't be too many questions.
+- [47:17.420] It's been covered pretty well.
+- [47:18.660] The Press: [inaudible]
+- [47:19.860] thank you for taking questions. Two quick ones for you.
+- [47:22.650] Starting on trade.
+- [47:24.170] If I longer term deal is not reached with China
+- [47:26.710] at the end of these 90 days,
+- [47:28.210] can the American people expect those tariffs
+- [47:30.640] to go back up to 145 percent.
+- [47:32.830] The President: No, but they would go up
+- [47:34.300] substantially higher.
+- [47:36.370] You know, at 145, you're really decoupling
+- [47:38.460] because nobody's going to buy.
+- [47:40.260] But they can go -- they got very high
+- [47:42.640] because of additional tariffs I applied during the course
+- [47:45.750] because of fentanyl and other things.
+- [47:47.400] But, no, they'd go substantially higher, yeah.
+- [47:49.570] The Press: And then on Qatar, Mr. President --
+- [47:51.170] The President: I think you will have a deal, however.
+- [47:52.970] The Press: You're confident that there will be a deal.
+- [47:54.640] On Qatar. Has Qatar asked for anything in exchange
+- [47:57.880] for that $400 million luxury jumbo jet?
+- [48:01.660] And how can the American people be so sure that they will not?
+- [48:04.980] The President: Well, I think what happens with the plane
+- [48:06.860] is that, you know, we're very disappointed
+- [48:08.600] that it's taking Boeing so long to build a new Air Force One.
+- [48:11.370] You know, we have an Air Force one that's 40 years old.
+- [48:14.090] And if you take a look at that
+- [48:15.710] compared to the new plane of the equivalent,
+- [48:18.590] you now, stature at the time, it's not even the same ballgame.
+- [48:21.690] You look at some of the Arab countries
+- [48:25.380] and the planes they have parked alongside
+- [48:27.370] of the United States of America plane,
+- [48:30.170] it's like from a different planet.
+- [48:32.300] And it's close to 40 years old, might be more than 40 years now.
+- [48:36.100] And we, when I first came in,
+- [48:38.810] I signed an order to get it built.
+- [48:42.200] I took it over from the Obama administration.
+- [48:45.770] They had originally agreed, I got the price down much lower.
+- [48:49.980] And then when the election didn't exactly work out
+- [48:53.970] the way that it should have,
+- [48:55.740] a lot of work was not done on the plane
+- [48:58.260] because a lot of people didn't know.
+- [48:59.930] They made change orders that were so stupid, so ridiculous.
+- [49:03.270] And it ended up being a total mess, a real mess.
+- [49:07.260] And when I came back, I said, by the way,
+- [49:08.980] what's going on with the Boeings that are coming in?
+- [49:12.200] Well, sir, they're way behind.
+- [49:13.450] And they are, they are way behind,
+- [49:14.720] they were way behind another mess
+- [49:16.600] that I inherited from Biden.
+- [49:18.770] And it's going to be a while before we get them.
+- [49:21.880] And I think Qatar who has really,
+- [49:26.340] we've helped them a lot over the years
+- [49:28.380] in terms of security and safety.
+- [49:30.790] I think that, and very, very nicely,
+- [49:32.940] and I have a lot of respect for the leadership
+- [49:35.200] and for the leader, Qatar. And I think they're very nice,
+- [49:38.440] they knew about it because they buy Boeings.
+- [49:40.170] They buy a lot of Boeings. And they knew about it.
+- [49:43.550] And they said we would like to do something.
+- [49:46.580] And if we can get a 747 as a contribution
+- [49:51.520] to our Defense Department to use a couple of years
+- [49:56.420] while they're building the other ones.
+- [49:59.450] I think that was a very nice gesture.
+- [50:01.010] Now, I could be a stupid person and say,
+- [50:03.510] oh, no, we don't want a free plane.
+- [50:05.140] We give free things out. We'll take one, too.
+- [50:07.860] And it helps us out because, again, we're talking about
+- [50:11.220] we have 40-year-old aircraft. The money we spend,
+- [50:14.180] the maintenance we spend on those planes,
+- [50:16.070] to keep them tippy-top is astronomical.
+- [50:18.900] You wouldn't even believe it.
+- [50:20.430] So I think it's a great gesture from Qatar.
+- [50:23.330] I appreciate it very much.
+- [50:25.990] I would never be one to turn down that kind of an offer.
+- [50:29.830] I mean, I could be a stupid person
+- [50:31.730] and say, no, we don't want a free, very expensive airplane.
+- [50:36.640] But I thought it was a great gesture.
+- [50:38.770] And I think it was gesture because of the fact
+- [50:40.610] that we have helped and continue to --
+- [50:43.150] we will continue to, all of those countries,
+- [50:46.500] Saudi Arabia, UAE, Qatar, and others, we keep them safe.
+- [50:51.950] If it wasn't for us,
+- [50:53.170] they probably wouldn't exist right now.
+- [50:55.450] And I think this was just a gesture of good faith.
+- [50:58.520] And I don't get it.
+- [51:00.500] Someday it will be like Ronald Reagan. They decommission them.
+- [51:03.570] You know, they get to a certain age, they decommission them.
+- [51:06.000] It will go to my library.
+- [51:07.690] They're talking about going to my library in years out.
+- [51:11.710] But I thought it was a great gesture.
+- [51:14.720] And it's something that was done by Ronald Regan.
+- [51:16.640] They actually decommissioned the plane
+- [51:18.070] and he put it in his library.
+- [51:19.310] And it actually has made the library, I think,
+- [51:22.390] of Boeing 707.
+- [51:24.400] It's actually made the library more successful, so it was good.
+- [51:28.830] The Press: Do you plan to use the plane
+- [51:30.170] after you leave office?
+- [51:31.410] The President: No, I don't.
+- [51:32.660] No, it would go directly to the library after I leave office.
+- [51:36.650] I wouldn't be using it, no.
+- [51:38.210] The Press: Mr. President, on the hostage,
+- [51:40.970] you said that the release of the American hostage,
+- [51:43.740] Adam Alexander, is a step in good faith to end this war.
+- [51:48.180] Do you expect any progress
+- [51:50.270] or perhaps announcement on ceasefire
+- [51:52.480] during your trip to the Middle East?.
+- [51:54.020] Speaker: We hope that we're going to have
+- [51:55.440] other hostages released, too, as you know.
+- [51:58.010] So when I met with the hostages three weeks ago
+- [52:00.640] that were there for quite a while --
+- [52:02.170] you remember the 10 people that came in, mostly young people,
+- [52:05.500] one or two were a little bit older -- they went --
+- [52:08.350] they were explaining the trials and tribulations.
+- [52:11.260] I mean, they went through hell. And I said, how many are there?
+- [52:14.540] They said, 59. I said that's a lot.
+- [52:17.530] I didn't realize -- because we got a lot out.
+- [52:19.220] You know, we got lot of hostages out,
+- [52:20.690] I think you will acknowledge.
+- [52:23.040] They said 59, but then they said,
+- [52:25.660] they followed that up by saying 59,
+- [52:27.410] of which 24 are living, the rest are dead.
+- [52:30.490] But the people whose son, mostly son,
+- [52:34.830] I think one daughter in this case,
+- [52:36.540] but mostly sons are -- there are husbands are there,
+- [52:40.340] those people want the dead bodies
+- [52:41.990] as much as they want the live body.
+- [52:44.220] I was, I have a mother that calls me
+- [52:48.040] but came up to me when I first met her and
+- [52:49.780] She said, sir, please. Please get my son out.
+- [52:53.600] He's dead, but they have his body.
+- [52:56.210] And I asked her about that, and it's as though he were alive.
+- [53:00.430] The level of wanting that body back is the same.
+- [53:05.020] It couldn't be anymore, as though he were alive.
+- [53:08.170] So, you know, getting the bodies back is very important.
+- [53:11.540] It could be a thing having to do with the religion.
+- [53:14.400] It could they be same --
+- [53:16.230] I was amazed at the level of importance.
+- [53:18.770] It's the same as if the son or husband
+- [53:21.610] or whatever was alive. So they said 59.
+- [53:25.150] In fact, they came out, they came in with a number,
+- [53:27.330] 59 written out on like a sign on their chest,
+- [53:29.820] but they came to thank me for getting them out.
+- [53:33.040] And I said, what does the 59 mean?
+- [53:37.070] They said, well, that means there are 59 people.
+- [53:39.430] But then they said, but 24 are living.
+- [53:42.430] Now it's 21. The number is 21.
+- [53:44.320] So now it's actually, well -- we'll get Eton today.
+- [53:48.300] We think we're getting him today.
+- [53:49.640] So it's 20. So they have 20 live hostages there.
+- [53:52.740] The rest are dead bodies.
+- [53:55.510] The Press: Mr. President,
+- [53:56.710] are you open to negotiating your tariffs on cars,
+- [53:59.460] seal and aluminum with China or any other country?
+- [54:02.130] The President: Well, we're not even talking about that.
+- [54:04.850] We're bringing the car business back into this country.
+- [54:07.460] We have commitments, and not only commitments,
+- [54:09.880] they've already started construction on many plants.
+- [54:13.110] They've left Mexico in a few cases,
+- [54:15.870] and in a few cases they've left Canada.
+- [54:17.260] They're not going to build in Canada,
+- [54:18.560] they're going to build here.
+- [54:19.980] Because we have the market and the tariffs have been amazing.
+- [54:23.760] The election and the tariffs.
+- [54:25.090] November 5th was a big day, and on top of that, of course,
+- [54:28.710] you wouldn't have the tariffs without the election,
+- [54:30.470] I guess, if you look at it.
+- [54:32.320] We have at least 11 committed massive car factories
+- [54:38.710] that are going to be built, that are going to --
+- [54:41.680] that are in the process of being built.
+- [54:43.840] And some are going through, some have actually started.
+- [54:47.120] We also have renovations of existing factories
+- [54:50.300] where they weren't utilizing the full factory from years gone by.
+- [54:54.340] And now they're under full renovation.
+- [54:55.950] They'll be opening up full factories
+- [54:57.460] in a very short period of time. Our car industry,
+- [55:00.190] I think we're going to have the number one industry.
+- [55:01.910] You know, if you look at Japan and these others,
+- [55:04.840] they do tremendously with cars.
+- [55:07.650] And they can do that, too. But, you know, when they --
+- [55:10.280] if they want to sell cars in the United States,
+- [55:12.060] they're going have to build factories in the United States
+- [55:14.750] because I'm interested in cars for the United States.
+- [55:16.990] Now, one other thing is, in our tax bill,
+- [55:19.860] we're giving not only no tax on tips,
+- [55:22.490] no tax social security, no tax on overtime.
+- [55:25.880] But also we're going to get a deduction for people
+- [55:28.220] that borrow money to buy a car if it's made in America.
+- [55:34.400] If it's not, we have no interest.
+- [55:36.590] The Press: [inaudible]
+- [55:37.790] meeting with President Putin as well as President Zelensky.
+- [55:42.090] If President Putin doesn't show up to these talks in Turkey,
+- [55:44.840] will you join Europe in putting higher sanctions --
+- [55:47.420] The President: If I felt it would be important
+- [55:49.410] toward getting the deal done,
+- [55:50.650] I'm the one that insisted on the meeting.
+- [55:52.280] They couldn't get a meeting because one said ceasefire,
+- [55:55.300] one said no ceasefire. It was going back and forth.
+- [55:57.680] I said, look, at this point, we've got to stop it.
+- [56:01.420] Just go to the meeting, the meeting has been set.
+- [56:03.890] Go to the meetings on Thursday.
+- [56:05.280] And if I thought it would helpful,
+- [56:07.590] I don't know where I'm going to be at that particular point.
+- [56:09.830] I'll be someplace in the Middle East,
+- [56:11.140] but I would fly there if I thought it would be helpful.
+- [56:16.050] The Press: I want to ask you about South African refugees.
+- [56:17.990] Dozens of Afrikaners who claim discrimination
+- [56:21.170] in their home country
+- [56:22.470] are heading to the United States where your administration
+- [56:24.870] is going to welcome them as refugees.
+- [56:27.400] Now, this comes as you halted virtually all refugee emissions
+- [56:30.900] for people through famine and war.
+- [56:33.170] For countries like Sudan, the Democratic Republic,
+- [56:35.120] and Congo, why are you creating an expedited path
+- [56:38.720] into the country for Afrikiners but not others?
+- [56:41.420] The President: Because they're being killed.
+- [56:42.910] And we don't want to see people be killed.
+- [56:46.350] Now, South Africa leadership is coming to see me,
+- [56:48.720] I understand, sometime next week.
+- [56:51.920] And, you know, we're supposed to have a,
+- [56:54.460] I guess, a G20 meeting there or something.
+- [56:57.010] But we're having a G-20 meeting. I don't know how we can go
+- [56:59.660] unless that situation is taken care of.
+- [57:02.280] But it's a genocide that's taking place
+- [57:04.070] that you people don't want to write about.
+- [57:06.160] But it is a terrible thing that's taken place.
+- [57:08.100] And farmers are being killed. They happen to be white,
+- [57:14.460] but whether they're white or black makes no difference to me.
+- [57:17.520] But white farmers are being brutally killed
+- [57:21.230] and their land is being confiscated in South Africa
+- [57:24.150] and the newspapers and the media and television media
+- [57:27.540] doesn't even talk about it.
+- [57:28.920] If it were the other way around they'd talk about
+- [57:31.120] that would be the only story they'd talked about
+- [57:33.510] and I don't care who they are.
+- [57:36.120] I don' care about their race, their color,
+- [57:38.060] I don't care about their height, their weight,
+- [57:39.950] I don't care about anything I just know
+- [57:41.490] that what's happening is terrible.
+- [57:43.540] I have people that live in South African
+- [57:45.960] they say it's a terrible situation taking place, so.
+- [57:48.830] We've essentially extended citizenship to those people
+- [57:52.900] to escape from that violence and come here.
+- [57:59.570] The Press: Mr. President, thank you.
+- [58:01.330] Are you letting China off the hook for these 90 days,
+- [58:03.840] and do you really believe that they will follow through
+- [58:06.120] with non-tariff barriers [inaudible]?
+- [58:08.830] Speaker: Monetary tariffs.
+- [58:10.090] Yeah, I think they're going to follow through.
+- [58:11.750] I think they want it very badly.
+- [58:13.070] I think they want the deal very badly again.
+- [58:15.390] This doesn't include the steel tariffs
+- [58:17.480] that I put on a long time ago that Biden tried to get off,
+- [58:19.820] but he couldn't get them off because it was too much money.
+- [58:22.580] You know, I took in hundreds of billions of dollars from China,
+- [58:25.120] what a lot of people don't know,
+- [58:26.460] but we put on the tariffs originally.
+- [58:27.950] And if I didn't do that,
+- [58:29.190] we wouldn't have a steel industry today.
+- [58:30.740] Now we have a thriving steel industry.
+- [58:33.340] It'll be thriving much more with what we're doing because
+- [58:35.270] This is the next level.
+- [58:37.910] It doesn't include that. It doesn't' include cars.
+- [58:39.720] It doesn't include pharmaceuticals when we do that.
+- [58:42.660] And the reason we're doing that will be to get them
+- [58:45.140] to come back into the country. You know, there are, again,
+- [58:47.320] I always say it because a lot of people forget,
+- [58:49.150] but if a company like Eli Lilly,
+- [58:53.340] which is making a massive investment in the United States
+- [58:56.190] right now, they're building many, many plants.
+- [58:58.320] They've already started like seven of them, many plants,
+- [59:02.610] but they are not going to be tariffed.
+- [59:05.940] There's no tariff cost. So they're. All doing that.
+- [59:08.810] They're all coming back to the United States.
+- [59:10.710] I mean, I'll tell you what,
+- [59:12.230] I hope I get the benefit of watching this
+- [59:14.410] because, as President, because, you know,
+- [59:17.640] it takes a little while to do this stuff.
+- [59:20.080] And we're doing it early in the administration.
+- [59:23.020] If you think of it, we have, I believe,
+- [59:25.390] if you look at the real total,
+- [59:26.750] it's over $10 trillion committed for plants and factories.
+- [59:33.340] Other administrations haven't had $1 trillion
+- [59:36.690] over a four-year period.
+- [59:38.570] Even over an eight-year period, we have over 10 trillion
+- [59:43.630] committed in one form or the other over two months.
+- [59:46.350] Give me a break. I'm here to hear three,
+- [59:47.950] but let's give me a break on the first month.
+- [59:50.790] We want to get acclimated.
+- [59:52.470] But you know, if you think about it,
+- [59:54.010] it's really two months, and so in two months,
+- [59:57.550] we have an investment already of over $10 trillion.
+- [01:00:02.050] And other presidents haven't had that done over a year,
+- [01:00:06.440] over four years, in some cases. It's unprecedented.
+- [01:00:09.880] There's never been anything like it.
+- [01:00:11.410] It's a very exciting time in America.
+- [01:00:14.240] Thank you very much, everybody.
+- [01:00:19.540] The Press: Mr. President,
+- [01:00:20.890] are you right to impose sanctions on Russia
+- [01:00:23.670] if Putin doesn't agree with a 30-day cease fire?
+- [01:00:28.370] The President: I do.
+- [01:00:29.640] I have a feeling. Let's see what happens.
+- [01:00:32.940] The Press: The budget bill negotiations are taking place.
+- [01:00:38.940] Who in your administration is in charge of that
+- [01:00:40.620] while you're gone?
+- [01:00:41.930] The President: Everybody.
+- [01:00:43.160] From the standpoint of medical, this group behind me.
+- [01:00:46.040] I mean, I think it's the best group ever assembled.
+- [01:00:49.060] In terms of medical,
+- [01:00:50.830] I think you're going to see a tremendous cut.
+- [01:00:52.410] I don't think. I mean,
+- [01:00:53.620] I know you're going to see it in Medicaid and Medicare.
+- [01:00:57.710] That cut will be massive because drugs are 50,
+- [01:01:00.860] 60 percent of the cost.
+- [01:01:02.200] So Medicaid costs are going down and Medicare costs
+- [01:01:05.460] are going down because of what we're doing today.
+- [01:01:08.430] And there's no, it's not like,
+- [01:01:10.430] oh gee, well maybe it won't happen.
+- [01:01:11.880] It's going to happen because the other countries have no choice.
+- [01:01:14.460] Now, the drug companies are going to have to say,
+- [01:01:16.100] listen, if you don't pay more,
+- [01:01:17.370] we're not going to give you the drug.
+- [01:01:18.680] And they're willing to do that. So that's it.
+- [01:01:20.840] They have to -- we have to equalize.
+- [01:01:23.840] The Press: Mr. President, [inaudible]?
+- [01:01:25.600] The President: Say again?
+- [01:01:26.800] The Press: How do you respond to the fact that this –
+- [01:01:28.560] The President: It's not price control.
+- [01:01:29.770] No, no. What was price control is before.
+- [01:01:33.460] And if you want to talk about price control
+- [01:01:35.680] is what they were doing.
+- [01:01:37.150] They were making us pay -- they set a price and
+- [01:01:40.330] They said here's what we're going to pay
+- [01:01:43.030] and anything else charge
+- [01:01:45.540] America because at that time that a very stupid president
+- [01:01:49.520] and it really went crazy during the last four years.
+- [01:01:52.680] And remember this the Democrats
+- [01:01:54.850] are the ones that allowed this to happen.
+- [01:01:57.110] They were the ones it were the protector
+- [01:01:59.770] of the this pricing system
+- [01:02:02.710] And I think it's going to be very hard.
+- [01:02:04.420] You'll have to ask Democrats,
+- [01:02:06.060] are they going to vote against the one great,
+- [01:02:09.160] big, beautiful deal that's being negotiated now?
+- [01:02:12.060] Tax cuts, et cetera. We're now on top of the tax
+- [01:02:15.460] cuts and regulation cuts, all the things.
+- [01:02:18.420] Now you're going to say that the price of your medicine
+- [01:02:21.160] is going down by 60, 70, 80 percent.
+- [01:02:24.360] You're going vote against it? I think a lot of Democrats
+- [01:02:27.630] are going to be forced to do something that their leaders
+- [01:02:30.520] are going to beg them not to do and that's vote for the bill.
+- [01:02:32.800] I don't see how they can vote against it.
+- [01:02:34.610] How can they vote against when drug prices, drugs,
+- [01:02:37.130] and pharmaceuticals are going be down 70-80 percent?
+- [01:02:40.940] It's going to be very interesting.
+- [01:02:42.390] The Press: Mr. President, what do you say to people
+- [01:02:44.050] who view that luxury jet as a personal gift to you?
+- [01:02:46.850] Why not leave it behind?
+- [01:02:48.130] The President: You're ABC fake news, right?
+- [01:02:49.940] It's only ABC, well, a few of you would.
+- [01:02:53.380] Let me tell you.
+- [01:02:55.220] You should be embarrassed asking that question.
+- [01:02:57.910] They're giving us a free jet.
+- [01:02:59.770] I could say, no, no no, don't give us,
+- [01:03:01.500] I want to pay you a billion or 400 million
+- [01:03:04.390] or whatever it is.
+- [01:03:06.300] Or I could thank you very much. You know?
+- [01:03:09.890] There was an old golfer named Sam Snead.
+- [01:03:11.780] Did you ever hear of him? He won 82 tournaments.
+- [01:03:13.830] He was a great golfer. And he had a motto,
+- [01:03:16.300] when they give you a putt, you say, thank you very much.
+- [01:03:19.810] You pick up your ball and you walk to the next hole.
+- [01:03:21.950] A lot of people are stupid.
+- [01:03:23.590] They say, no, no. I insist on putting it.
+- [01:03:25.560] And then they putt it and they miss it.
+- [01:03:28.340] And their partner gets angry at them.
+- [01:03:30.130] You know what? Remember that. Sam Snead.
+- [01:03:33.110] When they give you a putt, you pick it up
+- [01:03:34.800] and you walk to next hole and you say,
+- [01:03:36.700] thank you, very much.
+- [01:03:38.220] The Press: [inaudible]
+- [01:03:40.500] may look at this and say, have you ever been given a gift
+- [01:03:43.430] worth millions of dollars and have not received that gift?
+- [01:03:45.630] The President: It's not a gift to me.
+- [01:03:46.920] It's a gift for the Department of Defense.
+- [01:03:49.690] And you should know better
+- [01:03:50.980] because you've been embarrassed enough
+- [01:03:52.340] and so has your network. Your network is a disaster.
+- [01:03:54.680] ABC is a disaster. Here is the bill.
+- [01:03:57.300] Bobby, come on out here.
+- [01:03:58.720] Now you're talking about trillions
+- [01:04:00.000] and trillions of dollars.
+- [01:04:01.240] [applause]
+- [01:04:02.470] Thank you. Thank you very much, everybody.
+- [01:04:08.900] The Press: Mr. President, a quick question about you –
+- [01:04:11.850] The President: Thank you very much.

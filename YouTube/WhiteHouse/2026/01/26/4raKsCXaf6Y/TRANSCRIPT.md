@@ -1,0 +1,786 @@
+<!-- source: https://www.youtube.com/watch?v=4raKsCXaf6Y -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 4raKsCXaf6Y -->
+<!-- date_published: 2026-01-26T18:52:14+00:00 -->
+<!-- date_accessed: 2026-06-02T02:38:41.306058+00:00 -->
+
+# Transcript: Press Secretary Karoline Leavitt Briefs Members of the Media, Jan. 26, 2026
+
+- [00:06.750] The Press: Good afternoon.
+- [00:08.000] Karoline Leavitt: Good afternoon, Jackie.
+- [00:09.210] Thank you for that.
+- [00:10.450] Thanks for coming in on a snow day
+- [00:12.230] for the rest of the government in the country.
+- [00:14.340] And as much of the country
+- [00:15.580] feels the impacts of that winter storm,
+- [00:18.180] President Trump continues to monitor the situation closely,
+- [00:21.270] and he has remained in constant contact
+- [00:23.830] with FEMA and emergency responders.
+- [00:26.590] President Trump also quickly approved
+- [00:28.530] 12 federal emergency disaster
+- [00:30.810] declarations within 24 hours for the states of Arkansas,
+- [00:35.140] Georgia, Indiana, Kentucky, Louisiana, Maryland,
+- [00:38.910] Mississippi, North Carolina, South Carolina,
+- [00:42.070] Tennessee, Virginia and West Virginia,
+- [00:44.790] enabling these states to access critical federal resources
+- [00:48.220] to supplement their response efforts if needed.
+- [00:51.150] These declarations will help state
+- [00:52.740] led efforts of turning power back on,
+- [00:55.060] clearing roads for emergency services
+- [00:57.280] and keeping communities safe.
+- [00:59.810] The White House will continue to correspond
+- [01:01.730] directly with governors and local officials
+- [01:04.040] in the coming days, especially in those states
+- [01:06.670] that were harshly impacted by this storm.
+- [01:10.180] I would also like to address the chaotic scenes
+- [01:12.450] in Minnesota over the weekend.
+- [01:14.480] Nobody in the White House, including President Trump,
+- [01:17.870] wants to see people getting hurt or killed in America's streets.
+- [01:22.090] This includes Renee Good, Alex Pretti,
+- [01:25.190] the brave men and women of federal law enforcement
+- [01:27.910] and the many Americans who have been victimized
+- [01:31.040] at the hands of illegal alien criminals.
+- [01:34.500] Saturday's shooting remains under active investigation
+- [01:37.600] by Homeland Security Investigations and the FBI.
+- [01:41.350] The Customs and Border Protection
+- [01:42.940] is also conducting their own internal review.
+- [01:46.360] As President Trump said yesterday,
+- [01:48.410] the administration is reviewing
+- [01:49.810] everything with respect to the shooting,
+- [01:51.680] and we will let that investigation play out.
+- [01:54.510] But let's be clear about the circumstances
+- [01:56.700] which led to that moment on Saturday.
+- [01:59.570] This tragedy occurred as a result
+- [02:01.430] of a deliberate and hostile resistance
+- [02:04.100] by Democrat leaders in Minnesota.
+- [02:06.760] For weeks, Governor Walz and the mayor, Jacob Frey,
+- [02:09.710] and other elected Democrats were spreading lies
+- [02:12.670] about federal law enforcement officers,
+- [02:14.810] who are risking their lives daily
+- [02:17.150] to remove the worst criminal illegal aliens
+- [02:20.030] from our streets, murderers, rapists, pedophiles,
+- [02:24.360] human traffickers and gang members.
+- [02:27.480] Governor Walz and Mayor Frey
+- [02:28.830] have shamefully blocked local and state police
+- [02:31.210] from cooperating with ICE,
+- [02:33.100] actively inhibiting efforts to arrest violent criminals.
+- [02:37.090] They have also used their platforms
+- [02:38.650] to encourage left wing agitators
+- [02:40.460] to stalk, record, confront and obstruct federal officers
+- [02:44.850] who are just trying to lawfully perform their duties,
+- [02:48.490] which has created dangerous situations
+- [02:50.770] threatening both these officers and the general public
+- [02:54.690] and Minnesotans alike.
+- [02:56.590] This is precisely what unfolded in Minneapolis
+- [02:59.300] on Saturday morning.
+- [03:00.900] Obstructing federal law enforcement
+- [03:02.650] and inciting violence against officers is wrong and illegal.
+- [03:06.850] This used to be a universally accepted position
+- [03:09.820] in the United States.
+- [03:11.450] Amid the hysteria, we must remember how we got here,
+- [03:15.080] to this moment today,
+- [03:16.780] and what this Democrat opposition is about.
+- [03:19.540] Former President Joe Biden and the Democrats
+- [03:21.760] opened America's borders for four years,
+- [03:24.530] inviting tens of millions of illegal aliens
+- [03:27.290] from all over the world to flood into our country,
+- [03:31.030] among them violent criminals who terrorized American communities
+- [03:35.170] and have inflicted devastating permanent pain and harm
+- [03:39.390] on law abiding Americans and their families,
+- [03:42.450] yet we never saw outrage from Democrats
+- [03:44.820] or their allies in the liberal media
+- [03:47.140] over these horrifying crimes against US citizens.
+- [03:50.730] The pain of American angel families was ignored
+- [03:53.590] and dismissed
+- [03:54.910] because it undermined the Democrat narrative.
+- [03:57.960] Innocent Americans like Jocelyn Nungaray,
+- [04:00.320] Laken Riley and Rachel Morin
+- [04:02.130] are just a few of the many victims savagely murdered
+- [04:05.890] by illegal alien criminals.
+- [04:07.910] Earlier this month, an illegal alien from Mexico
+- [04:10.510] with a long criminal history who came into our country
+- [04:13.830] under Joe Biden's administration threw a baseball
+- [04:16.720] sized stone at a school bus carrying children in New Jersey
+- [04:21.080] and fractured the skull
+- [04:22.610] of an eight year old innocent child.
+- [04:25.080] President Trump promised accountability
+- [04:27.010] to these American families by securing the border,
+- [04:30.680] deporting every illegal alien who has committed crimes,
+- [04:33.970] especially and most importantly violent crimes.
+- [04:37.910] Nearly 80 million Americans voted for him
+- [04:40.020] to deliver on that very promise, and he is.
+- [04:43.190] As the duly elected president,
+- [04:44.890] the President is fulfilling the will of the people
+- [04:47.330] by arresting and removing these threats from our country
+- [04:50.970] in cities from Los Angeles to New York
+- [04:53.480] and, yes, Minneapolis,
+- [04:55.550] yet Democrat leaders in Minnesota
+- [04:57.250] with sanctuary city policies
+- [04:58.870] have actively defied federal immigration law
+- [05:01.790] and the will of the people.
+- [05:04.330] And as a result of that defiance two Minnesotans
+- [05:07.840] have now tragically lost their lives
+- [05:10.060] on the streets of Tim Walz's state.
+- [05:12.910] It is President Trump's hope and wish and demand
+- [05:15.990] for the resistance and chaos to end today.
+- [05:19.350] That's why President Trump spoke with Governor Walz
+- [05:21.570] directly this morning, and he has outlined a clear
+- [05:24.770] and simple path to restoring law and order in Minnesota.
+- [05:29.240] Number one, Governor Walz,
+- [05:30.980] Mayor Frey and all Democrat leaders
+- [05:32.920] should turn over all criminal illegal aliens
+- [05:35.550] currently incarcerated in their prisons and jails
+- [05:38.580] to federal authorities,
+- [05:40.170] along with any illegal aliens with active warrants
+- [05:42.990] or known criminal histories for immediate deportation.
+- [05:47.330] Number two, state and local law enforcement
+- [05:49.640] must agree to turn over all illegal aliens
+- [05:53.130] who are arrested by local police.
+- [05:56.010] And then thirdly,
+- [05:57.240] local police must assist federal law enforcement in apprehending
+- [06:01.230] and detaining illegal aliens who are wanted for crimes,
+- [06:05.030] especially violent crimes.
+- [06:07.330] If Governor Walz and Mayor Frey implement
+- [06:09.460] these common sense cooperative measures that,
+- [06:12.210] I will add, have already been implemented
+- [06:14.480] in nearly every single other state across the country,
+- [06:18.270] Customs and Border Patrol
+- [06:19.600] will not be needed to support ICE on the ground in Minnesota.
+- [06:23.220] ICE and local law enforcement can peacefully work together,
+- [06:26.710] as they are effectively doing in
+- [06:28.250] so many other states and jurisdictions.
+- [06:30.970] Additionally, President Trump is calling
+- [06:33.210] on the United States Congress to immediately pass legislation
+- [06:36.730] ending sanctuary cities once and for all.
+- [06:40.030] American cities should be safe sanctuaries
+- [06:42.410] for law abiding citizens only,
+- [06:44.830] not for dangerous illegal alien criminals
+- [06:47.260] who broke our nation's laws and do not belong here.
+- [06:50.410] We hope Governor Walz will continue --
+- [06:52.180] will do the right thing and continue to work
+- [06:54.570] with President Trump to keep the American people safe
+- [06:57.700] following their call this morning.
+- [06:59.750] Americans overwhelmingly want exactly what President Trump
+- [07:02.900] is delivering,
+- [07:04.190] strong borders and strict immigration enforcement
+- [07:07.320] against the worst illegal aliens,
+- [07:09.460] of which there are still hundreds of thousands
+- [07:11.890] to deport from the interior of our country.
+- [07:14.820] The most peaceful way to carry out
+- [07:16.630] this vital public safety mission is for Republicans and Democrats
+- [07:20.300] to do it together
+- [07:21.640] and for state and local law enforcement to work together
+- [07:25.360] with federal law enforcement. We want to let cops be cops.
+- [07:29.730] You wouldn't know this continues to be
+- [07:31.260] a very popular policy position from the biased media coverage
+- [07:34.490] over the course of the last few days,
+- [07:36.480] but polling shows huge support for this
+- [07:39.090] exact thing President Trump is calling for.
+- [07:41.900] More than 80 percent of Americans favor
+- [07:44.220] deporting illegal aliens convicted of violent crimes.
+- [07:47.690] A country unable to deport criminals
+- [07:49.710] who enter it illegally is no country at all.
+- [07:53.110] The open borders agenda of Kamala Harris,
+- [07:55.530] Tim Walz and the Democrats
+- [07:57.310] was already on the ballot on November 5th, 2024,
+- [08:00.740] and it was resoundingly rejected.
+- [08:03.400] President Trump will never back down from his promise
+- [08:05.760] to deport violent criminal illegal aliens
+- [08:08.320] and make America safe again,
+- [08:09.950] and he welcomes all cooperation in that effort.
+- [08:12.950] With that, I will answer your questions.
+- [08:14.430] And Jordan Conradson, why don't you kick us off today?
+- [08:16.130] Thank you for being here.
+- [08:17.380] The Press: Thank you, Karoline.
+- [08:18.600] Jordan Conradson with Gateway Pundit.
+- [08:19.950] I have a few questions. First, with respect --
+- [08:22.850] with respect to the shooting in Minneapolis,
+- [08:25.360] we're seeing massive outrage from mainstream media
+- [08:27.770] and the left. But I'm just wondering,
+- [08:29.540] where was that outrage when Ashli Babbitt,
+- [08:31.890] an Air Force veteran was executed
+- [08:34.650] by Capitol Police Officer Michael Bird,
+- [08:37.190] who she posed no threat to in the US Capitol?
+- [08:39.620] Karoline Leavitt: Well, you raised a very important point,
+- [08:41.360] which I also believe I just raised
+- [08:43.280] as well in those opening remarks,
+- [08:44.890] in that there has no doubt been selective outrage
+- [08:48.030] by the liberal biased media in picking and choosing victims
+- [08:51.830] and highlighting their stories.
+- [08:53.300] And as I've said,
+- [08:54.700] President Trump does not want any Americans
+- [08:57.210] to lose their lives in the streets of America
+- [09:00.190] and in American communities across the country.
+- [09:02.180] He believes what happened on Saturday is a tragedy.
+- [09:05.080] But every life is equal to President Trump,
+- [09:07.910] and that's why the lives of Laken Riley
+- [09:09.820] and Jocelyn Nungaray continue to matter to him
+- [09:12.630] and be an utmost priority to him to this very day.
+- [09:16.040] And it's unfortunate that we did not see
+- [09:17.790] the same type of sensationalist media coverage
+- [09:20.440] over the tragic deaths of those innocent
+- [09:22.560] American women and girls across the country
+- [09:25.540] as we are in the wake of this tragedy
+- [09:26.900] that took place on Saturday. Gabe?
+- [09:28.150] The Press: Karoline, I have a follow up.
+- [09:29.430] Karoline Leavitt: Sure, go ahead, Jordan,
+- [09:30.670] and then we'll go to Gabe.
+- [09:31.940] The Press: I want to get your response to this.
+- [09:33.230] The Arizona attorney general,
+- [09:34.470] just days before this shooting in Minneapolis,
+- [09:36.640] she seemingly encouraged rioters to go out,
+- [09:41.000] shoot and kill ICE agents. And I'll quote her here.
+- [09:43.610] She said, "If you reasonably believe your life's in danger
+- [09:46.680] and you're in the house or in your car or on your property,
+- [09:49.920] you can defend yourself with lethal force."
+- [09:51.650] And she said that you can't tell
+- [09:55.570] if ICE agents are law enforcement or imposters,
+- [09:58.090] and it becomes an issue of whether you reasonably believed
+- [10:00.590] they were law enforcement.
+- [10:01.870] Do you have a response to that? And does the White House believe
+- [10:04.560] that she should be held accountable for these remarks?
+- [10:06.280] Karoline Leavitt: Well, such dangerous rhetoric,
+- [10:07.700] as I pointed out,
+- [10:08.940] is exactly what has brought us to this position today,
+- [10:11.900] where you have elected Democrat officials across the country
+- [10:15.540] who are encouraging left wing agitators
+- [10:18.260] and crazy people to go out and unlawfully obstruct
+- [10:21.980] lawful immigration enforcement.
+- [10:24.620] Again, these brave men and women of ICE and Border Patrol
+- [10:27.380] and the federal enforcement are just trying to do their jobs
+- [10:30.290] to enforce our nation's immigration laws
+- [10:32.620] and to go after the worst of the worst in this country.
+- [10:35.200] I would encourage everyone in this room,
+- [10:36.790] and I would encourage the Arizona attorney general,
+- [10:39.440] to look at the video of an ICE agent in Minneapolis.
+- [10:43.680] He was approached by left wing agitators
+- [10:47.040] who were honking their horns and were screaming slurs at him.
+- [10:52.450] And he rolled down his window and he said,
+- [10:54.440] "What are you doing?"
+- [10:55.830] I am out here trying to catch a child predator,
+- [10:58.730] somebody who has convicted crimes
+- [11:01.470] against an innocent child,
+- [11:03.030] and you are trying to obstruct me from doing my job.
+- [11:06.000] This rhetoric against ICE, comparing them to Nazi Gestapo,
+- [11:10.030] Donald Trump's police force, is despicable.
+- [11:12.690] It is shameful and it is precisely what has led
+- [11:15.120] to the escalation of tensions in Minneapolis
+- [11:17.790] and in other places across the country.
+- [11:19.360] Gabe, go ahead.
+- [11:20.590] The Press: Should the DOJ be looking into her
+- [11:21.880] for justifying violence?
+- [11:23.130] Karoline Leavitt: I would defer you
+- [11:24.400] to the Department of Justice on that. Gabe?
+- [11:26.410] The Press: Regarding Minnesota,
+- [11:27.640] on Saturday the Department of Homeland Security
+- [11:30.470] posted that Pretti looks like he wanted to do maximum damage
+- [11:33.820] to massacre law enforcement.
+- [11:35.740] Stephen Miller on Saturday posted that a --
+- [11:38.850] called a would-be assassin.
+- [11:41.120] Why did administration officials jump to conclusions
+- [11:44.670] before an investigation had even been conducted?
+- [11:47.090] Karoline Leavitt: Well, look,
+- [11:48.390] this has obviously been a very fluid
+- [11:50.340] and fast moving situation throughout the weekend.
+- [11:53.150] As for President Trump, whom I speak for,
+- [11:55.750] he has said that he wants to let the investigation continue
+- [11:58.530] and let the facts lead in this case.
+- [12:00.350] The Press: Well, with regards to the deployment of Tom Homan
+- [12:03.630] to Minneapolis,
+- [12:04.860] should the deployment of Mr. Homan to Minneapolis
+- [12:07.670] be seen as a sign that the President is dissatisfied
+- [12:11.450] with how the officials on the ground
+- [12:14.230] had handled the incident?
+- [12:15.570] Karoline Leavitt: No.
+- [12:16.860] Mr. Homan is doing an exceptional job,
+- [12:18.640] and he has been working with Secretary Noem
+- [12:20.460] and President Trump over the course of the last year.
+- [12:23.030] Secretary Noem still has the utmost confidence
+- [12:25.410] and trust of the President of the United States,
+- [12:27.700] and she's continuing to oversee
+- [12:29.350] the entire Department of Homeland Security
+- [12:31.510] and all of the immigration enforcement
+- [12:33.160] that's taking place across the whole entire country.
+- [12:35.800] Of course, Secretary Noem is also in charge of FEMA,
+- [12:38.160] and we are in the wake of a brutal winter storm
+- [12:40.620] where hundreds of thousands of Americans
+- [12:42.230] have been impacted by that.
+- [12:43.460] So, Secretary --
+- [12:45.210] border czar Homan is in a unique position
+- [12:47.240] to drop everything and go to Minnesota
+- [12:49.720] to continue having these productive conversations
+- [12:52.880] with state and local officials.
+- [12:54.190] And I know that he's catching a plane
+- [12:56.330] in just a few hours to do just that at the --
+- [12:58.320] at the request of the President. Jennifer?
+- [13:00.590] The Press: On Saturday's shooting, have --
+- [13:02.160] has the President been briefed and have you been briefed
+- [13:04.080] on specific details of the shooting?
+- [13:06.370] How many shots were fired? How many guns discharged?
+- [13:09.710] And, I mean, did the protester's gun go off
+- [13:12.580] or only the officer's guns?
+- [13:14.340] Do you have any of those details?
+- [13:16.560] Karoline Leavitt: Again, the investigation is continuing,
+- [13:18.240] Jennifer, and we will let the facts lead
+- [13:20.170] and we will let the facts play out in this investigation.
+- [13:22.280] I do know that HSI and FBI are conducting interviews
+- [13:26.570] with those that were involved, and the agents who were involved
+- [13:28.880] in this unfortunate tragedy on Saturday.
+- [13:30.870] The Press: Are they keeping the President up to date
+- [13:32.430] on all those details?
+- [13:33.630] Karoline Leavitt: The President is obviously very much
+- [13:35.560] on the ball with respect to this investigation.
+- [13:37.450] I think he's made that quite clear
+- [13:39.450] with the various statements that you've seen him put out,
+- [13:41.510] and also the four points that the President has outlined
+- [13:45.060] as well to Governor Walz and --
+- [13:46.960] to encourage him to cooperate with ICE
+- [13:48.520] and with the administration.
+- [13:49.750] Mary?
+- [13:50.980] The Press: Thanks, Karoline.
+- [13:52.190] To follow on Gabe's question, Secretary Noem said Alex Pretti
+- [13:54.540] committed an act of domestic terrorism.
+- [13:56.500] Stephen Miller labeled Pretti a domestic terrorist.
+- [13:59.330] Does the President agree with them?
+- [14:00.560] Karoline Leavitt: Look, as I've said,
+- [14:01.790] I have not heard the President characterize
+- [14:03.560] Mr. Pretti in that way.
+- [14:05.180] However, I have heard the President
+- [14:06.860] say he wants to let the facts
+- [14:08.060] in the investigation lead itself. Danny?
+- [14:09.350] The Press: Was he alarmed to hear his top officials --
+- [14:10.550] Thanks, Karoline.
+- [14:11.790] Referring to him in that way, rushing to that judgment?
+- [14:13.330] Karoline Leavitt: Danny, go ahead.
+- [14:14.560] The Press: Thanks, Karoline. On Stephen Miller's comments,
+- [14:17.320] will Stephen Miller be apologizing
+- [14:18.990] to the family of Alex Pretti for calling him, quote,
+- [14:21.780] an assassin who tried to murder federal agents,
+- [14:24.380] despite the fact that, as you say,
+- [14:25.800] this is still under investigation?
+- [14:27.210] Karoline Leavitt: Look, again,
+- [14:28.450] this incident remains under investigation.
+- [14:30.450] And nobody here at the White House,
+- [14:31.950] including the President of the United States,
+- [14:34.150] wants to see Americans hurt or killed
+- [14:36.370] and losing their lives in American seat -- streets.
+- [14:40.030] And we -- we mourn for the parents.
+- [14:42.000] As a mother myself, of course,
+- [14:43.540] I cannot imagine the loss of life,
+- [14:45.760] especially losing one's child.
+- [14:48.820] And that same empathy from the President
+- [14:51.730] goes for the parents of angel families
+- [14:55.570] and parents of victims of illegal alien
+- [14:57.570] crime across our country as well.
+- [14:59.620] And that's exactly why the President continues to be
+- [15:02.020] wholeheartedly committed
+- [15:03.710] to deporting the worst of the worst criminals
+- [15:05.860] from our country. Why don't we go to the back?
+- [15:09.170] Kelly?
+- [15:10.570] The Press: Does the President believe
+- [15:11.840] that the killing though was a mistake?
+- [15:14.230] Has he expressed that at all?
+- [15:16.320] Karoline Leavitt: Again, the President has said
+- [15:18.200] we have to review it
+- [15:19.420] and this investigation needs to continue,
+- [15:21.920] and he's letting the facts on the investigation lead itself.
+- [15:25.270] The Press: Does he want the body camera footage
+- [15:26.830] to be released to the public?
+- [15:29.420] Karoline Leavitt: Now, that's not something
+- [15:30.810] I've heard the President commit to,
+- [15:32.160] so I won't do that from the podium.
+- [15:34.050] Sure.
+- [15:35.330] The Press: Karoline, how serious is the administration
+- [15:37.840] taking allegations that local and state officials in Minnesota
+- [15:41.470] are actively coordinating with demonstrators
+- [15:43.880] through encrypted or non-encrypted communications
+- [15:46.660] as well as providing government resources
+- [15:48.880] to impede immigration and enforcement operations?
+- [15:51.880] Karoline Leavitt: I'm sorry, Carrie,
+- [15:53.090] could you repeat your question?
+- [15:54.590] The Press: How serious is the administration
+- [15:56.700] taking allegations that local and state Minnesota officials
+- [16:00.520] are communicating with demonstrators
+- [16:02.650] to basically impede immigration officials?
+- [16:06.620] Karoline Leavitt: Well, we've definitely seen
+- [16:07.920] active organization
+- [16:09.180] amongst these left-wing groups, Kari,
+- [16:10.700] and it is something that I know the FBI
+- [16:12.540] and the Department of Justice are looking into.
+- [16:14.580] Again, it is illegal to unlawfully obstruct
+- [16:17.910] lawful immigration enforcement in this country.
+- [16:20.780] And these agitators are making it nearly impossible
+- [16:24.130] for ICE to do their jobs and for federal law enforcement
+- [16:27.000] to carry out the will of the American people
+- [16:29.330] to deport the worst of the worst.
+- [16:31.060] I would just encourage everyone to please imagine in this room,
+- [16:34.750] all of you come to the White House every day
+- [16:36.690] to report on the President of the United States
+- [16:38.690] and the administration.
+- [16:39.960] You come into this briefing room;
+- [16:41.320] you walk through the gates of the White House.
+- [16:43.210] Just imagine if there were left-wing agitators,
+- [16:45.550] or agitators of any kind, who were in your face,
+- [16:48.650] who were doxing you, who were harassing you,
+- [16:50.710] who were physically threatening you,
+- [16:52.510] who were biting off your fingers
+- [16:53.990] in the case of a two Border Patrol agents
+- [16:56.410] we saw this past weekend in Minneapolis.
+- [16:59.060] That would make it very difficult for you to show up
+- [17:01.220] and do your job here at the White House every single day.
+- [17:04.070] That's what these officers in Minneapolis are facing.
+- [17:06.900] That's why the President is calling on Governor Walz
+- [17:09.080] and Mayor Frey for these three very simple
+- [17:11.540] and commonsense points of cooperation
+- [17:14.190] so that ICE and local law enforcement can work together.
+- [17:17.700] Again, we are just asking for police to be police.
+- [17:21.270] And if you ask any law enforcement agent or official,
+- [17:24.880] they want to be able to work with their federal counterparts
+- [17:27.650] at the state and local level and vice versa.
+- [17:31.600] The Press: Thanks a lot, Karoline. Two questions.
+- [17:33.880] One is looking forward, the role of Mr. Homan,
+- [17:37.250] is he being sent by the President
+- [17:39.720] to defuse the situation that exists right now on the ground?
+- [17:43.850] Is he the point person essentially for the White House
+- [17:47.620] in terms of trying to tamp down
+- [17:49.490] the tensions that exist right now in Minnesota?
+- [17:51.720] Karoline Leavitt: Well, Mr. Homan is the point person
+- [17:54.130] for cooperating with state and local authorities
+- [17:56.510] and corresponding with them, again,
+- [17:59.060] to achieve this level of cooperation,
+- [18:01.090] to subdue the chaos on the streets of Minneapolis.
+- [18:04.520] And I would just point out that Mr. Homan
+- [18:06.280] is someone who has been lauded for many,
+- [18:08.630] many decades for his experience working in law enforcement.
+- [18:11.640] In fact, this is a Washington Post headline
+- [18:14.230] from nine years ago, 2016, Meet the Man the White House
+- [18:18.040] has Honored for Deporting Illegal Immigrants.
+- [18:20.320] And I would remind everyone in this room
+- [18:21.840] that it was former president, Barack Hussein Obama,
+- [18:24.340] who awarded a medal to Mr. Homan.
+- [18:26.270] So, he's obviously very qualified,
+- [18:28.320] he has the full trust and faith of the President.
+- [18:30.920] He will continue to have these meetings
+- [18:32.680] in the hopes that ICE and local law enforcement can cooperate
+- [18:36.730] and work together
+- [18:37.980] to have successful immigration enforcement
+- [18:39.930] as we've seen in almost every other state across the country.
+- [18:44.520] The Press: Secondly, Karoline, can you talk a little bit
+- [18:46.100] about tomorrow's trip by the President to Iowa,
+- [18:49.000] what the purpose of that trip is
+- [18:50.380] and what the goals of that trip are?
+- [18:52.190] Karoline Leavitt: Sure, yes. Tomorrow, President Trump
+- [18:53.930] will be traveling to Des Moines, Iowa.
+- [18:56.090] He will be making a visit at a local business
+- [18:58.760] and then he will be giving a speech on affordability
+- [19:01.150] and on the economy.
+- [19:02.430] And I know he very much looks forward to being there,
+- [19:05.270] to meeting with the great people of Iowa,
+- [19:06.850] but also lawmakers as well.
+- [19:08.630] Jake?
+- [19:09.910] The Press: Karoline, a couple quick questions.
+- [19:11.120] First, does the President remain fully confident
+- [19:12.870] in Kristi Noem's ability to lead the DHS?
+- [19:14.370] Karoline Leavitt: Yes.
+- [19:15.620] The Press: And then just secondly,
+- [19:17.010] just on that Wall Street Journal reporting that we saw yesterday,
+- [19:20.070] the President said at some point
+- [19:21.900] that the immigration enforcement officers
+- [19:23.500] would leave Minneapolis. Did the Saturday killing of Alex
+- [19:26.100] Pretti expedite that withdrawal at all?
+- [19:29.590] Karoline Leavitt: To your first question, the answer is yes.
+- [19:31.270] He still has confidence and trust in Secretary Noem.
+- [19:33.680] To the second question,
+- [19:34.920] I would point you back to what I said earlier.
+- [19:37.150] If Governor Walz and Mayor Frey implement
+- [19:39.350] these commonsense cooperative measures,
+- [19:41.610] CBP will no longer be needed to support ICE
+- [19:44.350] on the ground in Minnesota.
+- [19:45.890] ICE and local law enforcement will peacefully work together,
+- [19:48.720] as they are effectively doing in so many other states
+- [19:51.390] and jurisdictions, to remove violent criminals
+- [19:53.530] from American neighborhoods across the country.
+- [19:55.420] The Press: Did Walz ask the President
+- [19:56.970] to remove the immigration enforcement officers?
+- [20:00.460] Karoline Leavitt: He asked the President to scale down,
+- [20:02.750] and the President reiterated what the President
+- [20:05.200] put out in his statement yesterday
+- [20:06.470] and what I'm sharing with all of you as well.
+- [20:08.930] I would just add on this level of cooperation
+- [20:11.620] a few statistics that I think are very important.
+- [20:14.180] Seven of the top 10 safest cities
+- [20:16.700] in the United States cooperate with ICE,
+- [20:19.540] and we've seen a historic turnaround in safety in cities
+- [20:22.890] that have chosen to cooperate with ICE,
+- [20:24.770] that are not just led by Republicans.
+- [20:26.670] But also look right here in Washington DC.
+- [20:29.470] We had a great level of cooperation with Mayor Bowser
+- [20:32.520] and the local government,
+- [20:33.780] and we have been able to remove thousands of illegal aliens
+- [20:37.530] from the District of Columbia where you all live.
+- [20:40.260] So, you can thank President Trump for that.
+- [20:42.350] The murder rate in Washington DC has plummeted as a result.
+- [20:45.720] There were no riots, there were no protests.
+- [20:47.660] Nobody was tragically killed
+- [20:50.590] as a result of that level of cooperation
+- [20:52.740] between federal and local authorities.
+- [20:54.530] And again, that's all the President
+- [20:55.820] is asking for in Minnesota, it's totally common sense.
+- [20:58.970] Jared, go ahead.
+- [21:00.300] The Press: Thank you, Karoline. In this process you continue
+- [21:03.550] to describe the situation in Minneapolis as chaos.
+- [21:06.950] Was there any mistake made by Secretary Noem
+- [21:09.430] that led the President to send Mr. Homan there?
+- [21:12.620] Karoline Leavitt: I'm sorry,
+- [21:13.940] I don't understand your question.
+- [21:15.170] Did Secretary Noem make a mistake which led to --
+- [21:17.730] The Press: If she made any mistake
+- [21:18.980] that could lead the President to send Mr. Homan to Minneapolis?
+- [21:21.710] Karoline Leavitt: No, look, as I already mentioned,
+- [21:24.240] Mr. Homan has been working alongside Secretary Noem
+- [21:26.910] and for the President over the course of the last year.
+- [21:29.080] And again, he's uniquely positioned to hop
+- [21:31.620] on a flight to Minnesota today to continue this correspondence
+- [21:35.150] with state and local authorities.
+- [21:36.570] And that's what he's going to be doing.
+- [21:38.570] Fran.
+- [21:39.780] The Press: Karoline, is it the White House's position
+- [21:42.380] that Americans have the right to show up
+- [21:44.530] to these ICE operations and film,
+- [21:46.670] document or protest the law enforcement actions?
+- [21:49.300] Karoline Leavitt: All Americans have a First Amendment
+- [21:51.670] constitutional right, of course,
+- [21:54.180] but Americans do not have a constitutional right to impede
+- [21:57.620] and obstruct lawful immigration enforcement operations.
+- [22:02.500] That is actually a crime
+- [22:04.210] and it's something that we've seen taking place
+- [22:05.800] in the streets of Minneapolis,
+- [22:07.320] which again is leading to these dangerous circumstances
+- [22:10.340] that these federal law enforcement officers
+- [22:12.620] have been forced to work within.
+- [22:14.060] The Press: With respect to the call
+- [22:15.490] with Governor Walz this morning,
+- [22:17.860] the President described it as respectful,
+- [22:20.650] he said we seem to be on a similar wavelength,
+- [22:23.350] but you had strong criticism for the governor
+- [22:25.590] and the Minneapolis mayor, Jacob Frey, just now.
+- [22:28.590] So, could you explain the difference in tone
+- [22:30.840] between what the President had said in his Truth Social post
+- [22:34.410] and I think some of the criticisms
+- [22:35.700] that you just levied from the podium?
+- [22:37.530] Karoline Leavitt: Fran, I think the criticisms that I laid out,
+- [22:39.820] I'm painting the picture for all of you in this room,
+- [22:42.100] are what led to the moment that we are in today
+- [22:44.420] where Governor Walz and President Trump
+- [22:45.990] are having a conversation,
+- [22:47.700] a constructive and productive conversation
+- [22:50.380] to end the chaos and the lawlessness
+- [22:52.230] that has taken place in Governor Walz's state.
+- [22:55.770] Elena.
+- [22:56.970] The Press: Thank you. I had a question --
+- [23:00.280] with Homan now going to Minnesota,
+- [23:02.720] is Gregory Bovino also going to remain in Minnesota
+- [23:06.180] overseeing these ICE operations?
+- [23:07.850] Karoline Leavitt: Mr. Bovino is a wonderful man
+- [23:09.910] and he's a great professional.
+- [23:11.640] He is going to very much continue to lead Customs
+- [23:14.110] and Border Patrol throughout and across the country.
+- [23:16.940] Mr. Homan will be the main point of contact
+- [23:18.600] on the ground in Minneapolis.
+- [23:19.830] The Press: And to follow up, given what we've heard
+- [23:22.080] from several Trump administration officials,
+- [23:23.870] people like Stephen Miller,
+- [23:25.090] as people are now calling him a domestic terrorist,
+- [23:27.830] Bovino saying that Freddie was out to massacre law enforcement.
+- [23:31.690] Why not require ICE agents to wear body cameras
+- [23:35.500] to clear up some of the disputes that you're hearing
+- [23:39.250] from witnesses and video footage
+- [23:40.830] versus what the administration has been saying?
+- [23:42.980] Karoline Leavitt: Well, that's a policy question
+- [23:44.690] that I know the policy folks in the building
+- [23:46.890] are having with members on Capitol Hill,
+- [23:49.030] and I'll leave it to them
+- [23:50.320] and the President to make that decision.
+- [23:51.770] The Press: And just one final question is on,
+- [23:53.630] you were talking about the level of cooperation
+- [23:55.580] that the President talked about with Governor Walz.
+- [23:58.090] Will the administration commit
+- [23:59.770] to cooperating with local officials
+- [24:02.100] on this investigation into Alex Pretti?
+- [24:05.430] Karoline Leavitt: The President spoke about this
+- [24:06.790] with Governor Walz
+- [24:08.030] and said he would have a discussion about it.
+- [24:09.910] He did not make a commitment.
+- [24:11.200] And so, therefore I won't make that commitment here.
+- [24:13.710] I would just remind all of you in the media,
+- [24:15.620] because I've seen a lack of reporting on this fact,
+- [24:18.700] there are investigations into what took place on Saturday.
+- [24:21.510] The Homeland Security Investigations and the FBI
+- [24:24.090] have teamed up for an investigation
+- [24:26.250] and there's also an internal CBP investigation,
+- [24:29.560] an internal review of what is happening
+- [24:31.350] on the ground in Minnesota.
+- [24:32.660] The President supports those investigations
+- [24:34.480] and, as I've said repeatedly,
+- [24:35.950] he wants to see them move forward.
+- [24:37.210] Phil.
+- [24:38.410] The Press: Thank you, Karoline. FBI Director Kash Patel
+- [24:40.690] said in a Sunday interview, quote,
+- [24:42.940] you cannot bring a firearm loaded with multiple magazines
+- [24:45.830] to any sort of protest.
+- [24:47.390] Does the President believe that Second Amendment rights
+- [24:50.390] remain in effect even when protesting?
+- [24:52.070] Karoline Leavitt: The President supports
+- [24:53.340] the Second Amendment rights
+- [24:54.600] of law-abiding American citizens, absolutely.
+- [24:57.430] There has been no greater supporter
+- [24:59.200] or defender of the right to bear arms
+- [25:01.860] than President Donald J. Trump.
+- [25:04.360] So, while Americans have a constitutional
+- [25:06.610] right to bear arms,
+- [25:07.820] Americans do not have a constitutional right
+- [25:10.320] to impede lawful immigration enforcement operations.
+- [25:14.820] And any gun owner knows that when you are carrying a weapon,
+- [25:18.820] when you are bearing arms
+- [25:20.240] and you are confronted by law enforcement,
+- [25:23.250] you are raising the assumption of risk
+- [25:26.360] and the risk of force being used against you.
+- [25:29.850] And again, that's unfortunately what took place on Saturday.
+- [25:32.440] The Press: (Inaudible)
+- [25:33.660] is in Minneapolis, will his mission continue to be
+- [25:36.320] focusing on illegal immigrants with a criminal history,
+- [25:39.010] or will it be on illegal immigration generally?
+- [25:41.500] Karoline Leavitt: Mr. Homan will continue
+- [25:42.850] to enforce our nation's immigration laws,
+- [25:45.150] especially deporting the worst of the worst criminals
+- [25:48.360] in Minnesota
+- [25:49.610] who have committed violent offenses.
+- [25:51.390] And I would just remind all of you
+- [25:52.830] that this important work is continuing to be carried out.
+- [25:55.650] In just the last few days, I'm happy to provide this packet
+- [25:58.240] to anyone in the room, ICE has arrested many --
+- [26:02.560] multiple violent criminals illegal aliens within Minnesota.
+- [26:06.730] Many of them have convictions for assault,
+- [26:09.380] driving under the influence, fraud.
+- [26:11.850] This individual here I'm looking at
+- [26:13.370] was an aggravated felon with multiple convictions
+- [26:15.870] for larceny, fraud and forgery of checks,
+- [26:18.520] vehicle theft, drug possession, domestic assault,
+- [26:21.260] inflicting bodily harm on another criminal convictions
+- [26:24.780] of larceny identity theft, again,
+- [26:27.170] charged with driving under the influence.
+- [26:28.830] These are extremely dangerous people
+- [26:31.120] who Governor Walz and Mayor Frey
+- [26:32.520] have allowed to roam on their streets.
+- [26:33.950] And all the President is asking for
+- [26:35.520] is cooperation to arrest individuals like this
+- [26:38.890] and deport them from the United States of America.
+- [26:41.950] I'll take a couple more. Go ahead.
+- [26:44.200] The Press: So, this weekend the President posted
+- [26:46.250] that this is a cover up of the fraud
+- [26:48.240] in the state of Minnesota.
+- [26:49.470] He also posted Minnesota is a cover up.
+- [26:52.030] These both happened after the shooting.
+- [26:54.180] So, given these came after the shooting,
+- [26:55.940] what is the "this" here?
+- [26:57.160] What is the cover up he's alleging?
+- [26:58.610] Karoline Leavitt: Yes, it's a good question.
+- [26:59.850] I spoke with the President about this at length.
+- [27:01.890] What the President is referring to
+- [27:03.480] is the fact that you have Governor Walz,
+- [27:05.620] and again the mayor, who have been encouraging
+- [27:08.770] these left-wing agitators to come out and to harass
+- [27:11.930] and to dox and to threaten ICE,
+- [27:14.040] and to make this conversation about --
+- [27:16.800] and smear lies about federal law enforcement
+- [27:19.210] who, again, are just trying to do their jobs,
+- [27:21.300] in an attempt to distract from the widespread massive fraud
+- [27:25.150] that has taken place in their state.
+- [27:27.320] Billions and billions of dollars have been stolen from law
+- [27:30.610] abiding taxpayers in Minnesota,
+- [27:33.330] and the administration continues to be very focused
+- [27:35.740] on getting to the bottom of it, especially --
+- [27:38.300] and the President raised a good question over the weekend
+- [27:40.720] with respect to Congresswoman Ilhan Omar,
+- [27:42.620] who now has a net worth within the millions.
+- [27:45.300] And one must ask themselves why and how is that possible?
+- [27:48.920] Is she connected to the fraud rings
+- [27:50.790] that we have seen taking place within her state
+- [27:53.210] and her own district?
+- [27:54.490] It's a question the American people are raising,
+- [27:56.840] and the President believes it's one worth answering. Haley.
+- [27:59.380] The Press: Thanks, Karoline.
+- [28:00.620] I wanted to go back to some of the comments
+- [28:02.640] from Stephen Miller and Secretary Noem.
+- [28:04.780] You've made clear the President
+- [28:06.010] wants to see the investigation play out
+- [28:08.550] when answering some of the questions
+- [28:09.990] on the specific details.
+- [28:11.520] Is he concerned that some of those definitive statements
+- [28:14.820] made by other officials risks public perception
+- [28:18.310] of the credibility of those investigations now playing out?
+- [28:21.340] Karoline Leavitt: Again, the President believes
+- [28:22.920] that these investigations are credible,
+- [28:24.650] they are continuing, they are active
+- [28:26.340] and he wants to let them play out. Alex.
+- [28:27.990] The Press: Karoline, thank you.
+- [28:29.350] Is the administration willing to separate DHS
+- [28:32.100] funding from other funding bills
+- [28:33.420] in order to avoid a broader shutdown?
+- [28:35.920] Karoline Leavitt: Look, at this point,
+- [28:37.190] the White House supports the bipartisan work
+- [28:39.120] that was done to advance
+- [28:40.400] the bipartisan appropriations package,
+- [28:42.700] and we want to see that passed.
+- [28:44.630] Policy discussions on immigration
+- [28:46.250] in Minnesota are happening.
+- [28:47.550] Look, the President is leading those discussions as evidenced
+- [28:50.120] by his correspondence with Governor Walz this morning.
+- [28:53.350] But that should not be at the expense of government
+- [28:55.380] funding for the American people,
+- [28:57.130] which would include, as you know, Alex, FEMA funding.
+- [28:59.780] And we are in the midst of the storm
+- [29:02.550] that took place over the weekend,
+- [29:03.900] and many Americans are still being impacted by that.
+- [29:05.920] So, we absolutely do not want to see that funding lapse.
+- [29:08.620] And we want the Senate to move forward
+- [29:10.570] with passing the bipartisan appropriations package
+- [29:13.780] that was negotiated on a bipartisan basis.
+- [29:15.940] The Press: Secondly, there's another round of Russia-Ukraine
+- [29:19.550] talks this weekend, Sunday.
+- [29:22.560] What if you walk us through what the President --
+- [29:24.250] how he'll be involved in that, if at all?
+- [29:26.340] Will he be talking with President Putin,
+- [29:27.900] President Zelenskyy ahead of those meetings?
+- [29:29.650] Karoline Leavitt: I'm not tracking any scheduled calls
+- [29:31.580] at this point in time.
+- [29:33.090] However, the President remains deeply involved
+- [29:35.310] and, of course, he's being apprized by his advisors,
+- [29:37.670] namely Jared Kushner and Special Envoy Witkoff on these talks.
+- [29:41.580] They had a multilateral meeting this past weekend
+- [29:44.460] which didn't get a ton of coverage,
+- [29:45.830] but that was historic in nature where the President's team
+- [29:48.920] has really brought two sides of this war
+- [29:51.160] to the table together to move the ball closer towards peace.
+- [29:54.070] So, the President is not giving up on the peace process.
+- [29:56.750] He obviously just met with President Zelenskyy
+- [29:59.170] when we were in Davos, Switzerland,
+- [30:01.080] but I'm not tracking any calls scheduled for this week.
+- [30:04.220] On one more foreign policy point.
+- [30:05.770] I will point out, as you all saw,
+- [30:07.820] the last remaining body of the hostages in --
+- [30:11.260] Israeli hostages in Gaza has been returned.
+- [30:14.280] This is a huge foreign policy feat
+- [30:17.050] for the President of the United States,
+- [30:18.700] for the State of Israel and frankly for the whole world.
+- [30:21.790] The President made the impossible possible.
+- [30:24.720] And so, it's great news for the President,
+- [30:26.710] for the United States, for our allies
+- [30:28.390] and also for peace in the Middle East.
+- [30:30.920] And I understand that more than 20 new additional countries
+- [30:34.330] have also signed up to join the newly established Board of Peace
+- [30:37.990] with respect to the rebuilding of Gaza,
+- [30:39.760] which is another historic accomplishment
+- [30:41.380] for this president.
+- [30:42.590] So, thank you all very much and we'll see you in Iowa tomorrow.

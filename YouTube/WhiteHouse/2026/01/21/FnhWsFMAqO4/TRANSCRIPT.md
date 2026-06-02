@@ -1,0 +1,496 @@
+<!-- source: https://www.youtube.com/watch?v=FnhWsFMAqO4 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: FnhWsFMAqO4 -->
+<!-- date_published: 2026-01-21T18:02:11+00:00 -->
+<!-- date_accessed: 2026-06-02T02:38:53.415274+00:00 -->
+
+# Transcript: President Trump Participates in a Reception with Business Leaders
+
+- [00:10.310] (applause)
+- [00:29.696] Male Speaker: Well, I think everybody was waiting.
+- [00:32.132] It's great that everybody's still here.
+- [00:37.437] Welcome, everybody.
+- [00:38.371] And Mr. President, thank you again for joining us
+- [00:42.075] this week.
+- [00:43.076] I know your schedule's crazy, and it was very
+- [00:46.646] meaningful for the World Economic Forum and
+- [00:49.482] everyone else that you took the time to be here
+- [00:52.185] and your busy schedule.
+- [00:53.186] I want to just talk about these gatherings.
+- [00:56.055] Or sometimes.
+- [00:57.490] Known for papering over differences with a lot of
+- [01:01.694] air kisses, platitudes, jargon.
+- [01:05.865] But I don't think anyone could say
+- [01:07.200] about that this year.
+- [01:10.904] More than any other World Economic Forum annual
+- [01:14.274] meeting I've attended.
+- [01:15.708] There's been less effort to pretend.
+- [01:19.212] And I think we can all agree that there's more of
+- [01:21.147] a willingness for people to listen.
+- [01:25.351] Even when your values and your views clash, we're
+- [01:30.423] having conversations.
+- [01:32.592] Even when conversations are uncomfortable, and
+- [01:36.229] hopefully through those conversations, we have
+- [01:37.797] better, deeper, more sincere understandings.
+- [01:44.270] It's about a dialog, and dialog doesn't necessarily
+- [01:47.841] lead to agreement, but it's the first step
+- [01:51.578] towards understanding and sometimes, importantly,
+- [01:55.582] towards movement and resolution.
+- [01:58.318] It may be unfashionable to be an optimist about
+- [02:01.821] disagreements discussed this week, but the most
+- [02:04.524] enduring disagreements appear unresolvable right
+- [02:08.962] up until the last moment and they're resolved.
+- [02:12.432] Mr. President.
+- [02:14.400] Thank you for recognizing that the World Economic
+- [02:16.402] Forum is a place where we can have hard questions
+- [02:20.406] that can be debated and where difficult problems
+- [02:23.943] can at least be confronted together.
+- [02:27.313] And we're grateful that you added your voice and a
+- [02:31.484] needed voice to the conversation today and
+- [02:34.888] again this evening.
+- [02:36.289] Mr. President, thank you again for being here.
+- [02:40.994] I think you can see by the audience they're thrilled.
+- [02:45.765] And we look forward to hearing from you.
+- [02:48.568] (applause)
+- [02:57.844] The President: Well, thank you very much.
+- [02:59.979] And he's a hell of a guy, but we have an audience.
+- [03:02.749] I recognize so many.
+- [03:04.450] I know so many.
+- [03:05.685] We have the king of soccer, the king of sports
+- [03:07.720] over here.
+- [03:08.388] Johnny.
+- [03:09.322] When you have Johnny -- and I heard you -- I just
+- [03:11.257] got a report on the sales of tickets.
+- [03:13.192] It's -- there's never been anything like it.
+- [03:15.695] So that's good, you know, break every record.
+- [03:17.764] So thank you for choosing us.
+- [03:20.900] We appreciate that.
+- [03:22.502] He's another spectacular person.
+- [03:24.671] And so many people in the audience.
+- [03:26.472] And you know, I have this beautiful speech.
+- [03:29.509] Page after page and I just said I just made a speech
+- [03:32.412] and they were all here.
+- [03:33.212] They heard it one way or the other and I said the
+- [03:35.982] last thing we want to do is waste our time and hear
+- [03:37.984] it again.
+- [03:38.651] But I do want to say the people in this room are
+- [03:41.754] amazing.
+- [03:43.156] Most of you were in the other room also.
+- [03:45.358] And the United States is doing really well.
+- [03:48.995] Doing like nobody thought was actually possible,
+- [03:53.066] certainly not this soon.
+- [03:54.133] It's one year.
+- [03:55.768] It's exactly a year, if you think about it.
+- [03:57.837] Time flies.
+- [03:58.605] It's 25 percent.
+- [03:59.772] It's a long time, but it went very, very fast.
+- [04:03.242] We've had tremendous luck.
+- [04:04.344] I think it's been reported by even people that aren't
+- [04:09.048] lovers of Donald Trump that it's been maybe the
+- [04:11.484] best first year for any president, I think, in
+- [04:14.153] terms of what we've accomplished.
+- [04:15.588] It might very well be, but we've accomplished a lot
+- [04:18.658] including ending eight wars.
+- [04:20.893] I have one to go.
+- [04:22.262] I thought that was going to be one of the easiest
+- [04:24.364] ones and it's turning out to be one of the tougher
+- [04:27.166] ones.
+- [04:27.834] But you heard me say before, 25, 30,000 people
+- [04:30.737] are dying a month.
+- [04:31.504] It's ridiculous.
+- [04:33.206] And I think we're getting close.
+- [04:34.641] Jared's here and Steve Witkoff is here.
+- [04:37.076] A lot of people that are working on that are here,
+- [04:39.779] and they've done a good job.
+- [04:40.980] I think it could have gone into a world war if we
+- [04:42.782] weren't here.
+- [04:43.449] That was -- it was out of control.
+- [04:45.385] But I think we're going to get it resolved and I'm
+- [04:48.788] doing it to save 30,000 people a month.
+- [04:51.691] If you can imagine your kid -- I mean, take your
+- [04:54.327] -- your son leaves home.
+- [04:55.395] Waves.
+- [04:56.095] You're proud of him, you're so beautiful and
+- [04:58.131] then two weeks later you hear he had his head blown
+- [05:00.833] off fighting Ukraine or fighting Russia.
+- [05:04.303] It's both of them.
+- [05:05.038] The total are averaging 30,000.
+- [05:08.241] Actually 30,000 young people.
+- [05:10.843] Generally soldiers.
+- [05:11.944] A little bit in towns, but for the most part, it's
+- [05:14.080] soldiers.
+- [05:15.448] Every single month, they're dying.
+- [05:17.216] So I think we're going to do well there.
+- [05:19.252] But we have Scott Bessent, who everyone knows, and
+- [05:21.721] Howard Lutnick and these guys are doing a fantastic
+- [05:24.023] job with what we're doing.
+- [05:30.763] They were both -- they were both recommended by
+- [05:33.032] many of the people in this room.
+- [05:34.801] I said, what do you think of, Scott?
+- [05:36.135] Oh, he's fantastic.
+- [05:37.036] What do you think of, Howard?
+- [05:37.937] Very different times.
+- [05:38.938] I would say these are two exact opposites.
+- [05:41.240] And I like that.
+- [05:42.675] I like that.
+- [05:43.342] They are the exact opposite.
+- [05:44.010] You know, I never thought of it that way.
+- [05:45.344] I'm just saying that.
+- [05:46.012] I'm looking at you two.
+- [05:46.679] You are in every way -- but they're tremendously
+- [05:48.014] talented people and very successful people.
+- [05:49.382] And I like bringing successful people in
+- [05:50.717] because there's a reason for success.
+- [05:52.051] It's one of the reasons that we've had such
+- [05:53.386] success.
+- [05:54.087] You know, we -- we took over a country with a
+- [06:01.994] border that was a disaster where millions of people
+- [06:07.567] were coming in, millions of people were coming in
+- [06:09.669] every single week.
+- [06:11.504] I mean, literally a week we'd have millions of
+- [06:13.372] people and a lot of -- and they weren't vetted.
+- [06:15.942] Totally open border.
+- [06:17.009] You'd have people come in, you could look at them.
+- [06:18.778] I don't want to say what -- how do I define that
+- [06:22.348] because they always discriminate.
+- [06:23.816] So I don't discriminate, but you can look at some
+- [06:26.953] people and say they're criminals.
+- [06:28.955] And we took in tremendous numbers of murderers, drug
+- [06:32.792] dealers, mental institution, insane asylum
+- [06:36.229] people, people that were in insane asylum,
+- [06:40.066] institutions for the mentally ill and
+- [06:43.136] dangerous, very dangerous.
+- [06:44.637] They dumped them into our country like we were --
+- [06:47.607] like we were dirt and we're doing a great job of
+- [06:51.944] getting them out.
+- [06:52.712] But it's a -- you know, it takes a lot of time, a lot
+- [06:54.781] of effort and it's a nasty business, too.
+- [06:58.818] But if they were bad someplace else, they're
+- [07:00.486] going to be bad here.
+- [07:01.320] They killed people in their country, whether it
+- [07:04.223] was Venezuela or the Congo or any of the countries
+- [07:07.960] where they came.
+- [07:08.628] In the Congo, they emptied out their jails into our
+- [07:10.663] country.
+- [07:12.265] In Venezuela, they did the same thing and in many
+- [07:14.634] other countries, they did the same thing.
+- [07:16.302] So when you read all these stories about ICE, you'll
+- [07:18.204] understand they're doing a hell of a job because we
+- [07:21.774] can't have those people in our country and we're
+- [07:24.577] getting them out.
+- [07:25.845] But we're doing numbers in terms of people investing
+- [07:27.180] in the United States like we've never had before.
+- [07:28.548] I guess it's because of November 5th, the
+- [07:29.882] election, but the election gave us a view and it's a
+- [07:31.217] view on tariffs to protect our country because our
+- [07:32.552] country is being plucked like you pluck a chicken.
+- [07:33.886] Our country was being plucked and it wasn't
+- [07:35.221] good.
+- [07:37.390] And you know, you can only take so much of it and
+- [07:53.973] we've changed it around very quickly.
+- [07:55.474] And we've had -- we'll have, Scott, I'd say, $600
+- [07:58.477] billion worth of tariff money coming in.
+- [08:01.981] And I think we're going to have maybe more than that
+- [08:05.151] by -- yeah, by next year, it'll be much more than
+- [08:07.153] that.
+- [08:07.820] That's not including the countries that -- the
+- [08:09.722] countries and companies -- we have countries coming
+- [08:12.124] over and building.
+- [08:13.059] But we have companies, great companies coming in.
+- [08:16.696] Apple is spending $650 billion.
+- [08:18.965] I mean, so many are -- one just announced $10
+- [08:21.934] billion.
+- [08:22.969] Toyota.
+- [08:24.036] Met Mr. Toyota in Japan said "What's your name?"
+- [08:27.306] "Toyota." I said, "Oh, do you own the car company?"
+- [08:31.110] "Yes, 92 percent." I said, "You didn't have to be
+- [08:34.413] that specific." But I said, "You're rich," "yes,
+- [08:38.517] yes.
+- [08:39.185] I rich." But he's -- he just announced he's going
+- [08:42.321] to do $10 billion worth of plants.
+- [08:44.323] I mean, it's amazing what's going on.
+- [08:45.691] Look, it's amazing.
+- [08:47.260] We've never had anything like it or close.
+- [08:49.061] Nobody else has either.
+- [08:50.529] So I think in terms of your investments, you're
+- [08:53.766] in great shape.
+- [08:54.433] I don't even ask anybody how you're doing now.
+- [08:56.168] It's like everybody is making so much money.
+- [08:58.504] Oh, look, who I see, Tim.
+- [09:00.373] Hi, Tim Cook.
+- [09:02.275] He's been good for 650.
+- [09:05.044] Think of it.
+- [09:05.745] $650 Billion dollars, OK.
+- [09:09.615] Can you imagine?
+- [09:10.383] That's what he's going to be investing.
+- [09:11.717] More than that.
+- [09:12.385] I think it's going to end up being more.
+- [09:14.186] He's great.
+- [09:15.554] You know, he's great.
+- [09:16.222] He's done some job.
+- [09:17.056] You have done really some job and we have so many
+- [09:19.792] people in this room that have done a job.
+- [09:24.297] I don't know how many have done better than Tim, but
+- [09:26.499] some are right up there with you.
+- [09:27.934] We better -- you better get your ass moving, I'll
+- [09:29.802] tell you.
+- [09:30.469] But fantastic people.
+- [09:35.641] Fantastic people.
+- [09:36.676] But I go around and I say -- meet the biggest
+- [09:40.446] people, biggest business people.
+- [09:42.114] I say, "Congratulations." They say, "On what?"
+- [09:44.116] I said, "You've doubled your net worth since I've
+- [09:46.953] been president, right?"
+- [09:47.820] He said, "Yeah, even more than that." They would say
+- [09:50.856] even more.
+- [09:51.524] We're doing even better than that.
+- [09:53.693] And you know, we've given you a platform where you
+- [09:55.695] can really put your genius to work.
+- [09:58.030] We have a lot of brilliant genius people in this room
+- [10:01.233] and you can put that genius to work.
+- [10:03.636] And it's an honor to do it.
+- [10:04.770] In a way, I'm jealous.
+- [10:05.771] In a way, I'm upset.
+- [10:07.540] A couple of people in the room, I can't stand them
+- [10:09.475] and they become very rich.
+- [10:11.143] There's nothing I can do about it.
+- [10:13.379] I would screw them if I could, but I can't do it.
+- [10:16.015] Right, Dina?
+- [10:16.682] I can't do it.
+- [10:17.984] I would -- if I had a chance, if I could just
+- [10:20.019] take them and say you can't do what Apple's
+- [10:23.222] doing, but you're not allowed to do that.
+- [10:25.458] Newt Gingrich, right?
+- [10:26.592] We can't do it.
+- [10:27.960] But I would love to do it, really.
+- [10:29.495] You know, it's one of those things, but
+- [10:31.831] everybody's making a lot of money and everybody's
+- [10:36.335] investing money in the United States and our jobs
+- [10:38.971] are through the roof.
+- [10:39.772] And I made a statement the other day, thank goodness
+- [10:42.708] for robots because we're never going to have enough
+- [10:44.777] people to run all these places that are being
+- [10:46.612] built.
+- [10:47.680] And I think robots are actually going to be a
+- [10:49.515] very big business.
+- [10:50.349] I think it's going to be surprisingly big, but I
+- [10:52.985] think we're going to need it.
+- [10:54.553] We're going to need it.
+- [10:55.588] So, we have a country that's becoming very safe.
+- [10:59.091] We had the best crime numbers that we've had in
+- [11:02.094] -- ever in recorded history.
+- [11:04.063] Perhaps they were better 100 years ago.
+- [11:06.999] I'm not sure, but the recorded history is 67
+- [11:10.369] years and in 67 years, they're the best numbers.
+- [11:12.705] And that's despite having a lot of people in the
+- [11:15.174] country that shouldn't be here.
+- [11:16.675] We're getting out.
+- [11:18.210] But we're -- you know, we've got tough law
+- [11:19.979] enforcement, smart law enforcement, and patriotic
+- [11:22.681] law enforcement.
+- [11:23.482] You know, they've been amazing.
+- [11:24.483] One example is Washington, DC.
+- [11:26.218] You couldn't -- you couldn't walk down the
+- [11:28.320] street in Washington, DC.
+- [11:29.221] You'd get mugged.
+- [11:29.889] You'd get killed.
+- [11:31.357] They were losing 100 people -- think of it, 100
+- [11:34.093] people a year and -- dead.
+- [11:36.829] You call up the parents.
+- [11:37.797] They come in from Iowa.
+- [11:38.831] They come in from Indiana to see the Washington
+- [11:41.233] Monument and they end up being killed.
+- [11:43.736] It's not happening anymore.
+- [11:45.805] And I said in the other room, people are going to
+- [11:49.875] dinner, they're walking -- they're meeting their
+- [11:51.710] wives in the middle of the street and they're walking
+- [11:54.547] across the street to have dinner.
+- [11:56.048] New restaurants are being built at records that
+- [11:59.452] nobody's ever seen.
+- [12:00.319] They were closing -- we lost half of the
+- [12:01.854] restaurants in the last four years during the
+- [12:03.689] Biden administration.
+- [12:04.857] Now they're all opening again, I even went to have
+- [12:09.028] dinner just to show, I guess, to make a point, I
+- [12:11.063] went to a restaurant in Washington, I walk right
+- [12:13.299] down the middle of the street.
+- [12:14.700] I wouldn't say that Secret Service was thrilled.
+- [12:18.170] But if I did it a year before, believe me, it
+- [12:20.239] wouldn't work.
+- [12:21.073] Here's my other friend Hussein.
+- [12:23.442] How are you?
+- [12:24.110] Okay.
+- [12:24.777] Are you good?
+- [12:25.444] Boy, you got a lot of good people here.
+- [12:26.779] This is a very good place.
+- [12:28.247] But so it's amazing what's happened there.
+- [12:31.550] Memphis is amazing.
+- [12:33.986] When you go to Louisiana, what we've done there has
+- [12:36.856] been incredible.
+- [12:38.190] Always much more helpful if we could have a little
+- [12:40.493] participation.
+- [12:42.328] In the case of Louisiana, we have Jeff Landry, the
+- [12:44.497] governor, Republican governor.
+- [12:46.565] We have a couple of Democrat governors.
+- [12:48.434] We have a couple of -- actually we have a couple
+- [12:50.236] of Democrat mayors who very quietly are begging
+- [12:53.939] us for help and we're making them all look very
+- [12:56.909] good.
+- [12:57.576] But I would -- I would do it.
+- [12:58.577] If I were a Democrat, if I were a mayor or a
+- [13:00.646] governor, I'd be saying, "Mr.
+- [13:02.348] Trump, could you quietly come over here?
+- [13:04.350] And would you do this, President, for me?
+- [13:06.685] Send about a thousand troops in here." And we do
+- [13:10.923] it fast and we get rid of the criminals and it's
+- [13:13.292] amazing how effective.
+- [13:14.326] You know, I didn't campaign on this.
+- [13:15.694] I campaigned on law and order, but I didn't know
+- [13:17.463] it would be this type of law and order.
+- [13:19.865] But the cities -- some of these cities, we've lost
+- [13:22.935] these cities and we're bringing them back and
+- [13:25.204] we're bringing them back quickly.
+- [13:26.539] Washington took us literally six weeks to
+- [13:28.707] make it safe and eight weeks to make it really
+- [13:31.544] safe and now it's really safe.
+- [13:34.280] And I don't know, you know, some people
+- [13:35.848] disagree, but I like seeing those big strong
+- [13:37.983] soldiers.
+- [13:38.684] You know we won -- we won in the Supreme Court a
+- [13:41.353] very important case; merit.
+- [13:43.923] Our country was built on merit and then all of a
+- [13:46.525] sudden we got away from that and people with A
+- [13:49.795] averages and high college boards and everything were
+- [13:52.598] not able to get into colleges and people that
+- [13:55.634] had C averages and low college boards were
+- [13:59.205] getting in.
+- [13:59.872] And you know, it's not fair, but our country is
+- [14:04.577] based on merit.
+- [14:05.477] The whole concept and the whole system only works on
+- [14:08.781] merit.
+- [14:09.448] It doesn't work on anything else.
+- [14:11.350] And our military works now on merit.
+- [14:14.620] And when you see the soldiers and the street in
+- [14:19.425] Washington or in Memphis or in New Orleans or in
+- [14:23.462] some of these places, including Chicago, you
+- [14:25.631] know, we have crime down in Chicago despite the
+- [14:28.367] fact that we have an idiot governor and a mayor that,
+- [14:30.636] I mean, very low IQ person.
+- [14:33.105] He's a low IQ person and it's amazing.
+- [14:36.575] You have these wonderful beautiful black women with
+- [14:39.612] Make America Great Again, MAGA caps on.
+- [14:42.615] They're all over Chicago.
+- [14:43.749] They want MAGA to come in.
+- [14:45.351] And we went in in a pretty quiet way as opposed to
+- [14:49.088] the way we did it in Minnesota.
+- [14:50.322] You know, in Minnesota we took it -- we took out
+- [14:52.524] over 10,000 hard line criminals.
+- [14:55.961] People with big convictions that came in
+- [14:57.930] here that shouldn't be here, brought them back to
+- [15:00.065] countries.
+- [15:00.766] In some cases, we bring them to jails because if
+- [15:02.735] you bring them back to the country, they'll find a
+- [15:04.637] way, despite the strong borders, they'll find a
+- [15:06.405] way in because a lot of them are really evil, but
+- [15:08.807] they're not stupid.
+- [15:10.509] So we're doing a real job.
+- [15:11.910] The country's the hottest country anywhere in the
+- [15:14.313] world.
+- [15:14.980] The best place to invest.
+- [15:17.616] The great Big, Beautiful Bill is incredible.
+- [15:19.585] You get that one year deduction.
+- [15:21.153] You build something and you take the whole thing
+- [15:22.988] down and I always say that's what made my first
+- [15:26.225] term so successful because, I mean, people
+- [15:29.128] were buying things that -- I have a friend bought an
+- [15:31.196] airplane.
+- [15:31.864] He never used it, he just bought it.
+- [15:33.198] He said I get a -- I deducted it.
+- [15:35.868] He's on the plane.
+- [15:36.568] I think he's got -- Steve, you could buy it.
+- [15:38.037] He's got about four hours on the plane.
+- [15:40.639] It's been three years.
+- [15:41.774] I think he's got -- it would be a great plane to
+- [15:43.275] buy, actually, because he'll never use it.
+- [15:45.544] But they -- it really spurred people to do
+- [15:47.913] things and do projects that they really would
+- [15:50.416] have delayed or hold -- you know, held.
+- [15:53.252] And the beautiful thing about the great Big
+- [15:54.953] Beautiful Bill, the one that we just did, is over
+- [15:57.790] there, you had a two year window to do it.
+- [16:00.192] Now, we have a 10 year window, which I hate to
+- [16:01.827] tell you because people will take their time.
+- [16:04.096] So in one way I didn't want that.
+- [16:05.497] I call that not good, but it is good, ultimately.
+- [16:09.902] Think of it.
+- [16:10.569] It gives me a chance to use it if and when I ever
+- [16:13.706] get out of this position.
+- [16:14.907] There's a big question.
+- [16:15.874] It gives me a chance to use it.
+- [16:17.843] Otherwise, I'd be precluded.
+- [16:19.345] That would be terrible, right?
+- [16:21.013] But it's 10 years.
+- [16:22.214] But it's -- you're able to -- you build something,
+- [16:24.583] you build a factory, you write the whole thing off.
+- [16:27.119] One year.
+- [16:27.786] Nobody's ever thought that was possible.
+- [16:29.188] It was always 38.
+- [16:30.856] Sometimes 40.
+- [16:31.690] Sometimes 41 years.
+- [16:33.225] You know, you get a little here a little there,
+- [16:35.160] nothing.
+- [16:35.994] You write it all up.
+- [16:36.895] So it's been -- it's been really amazing and you are
+- [16:40.833] the people that made it happen.
+- [16:43.302] Really, largely, it's you.
+- [16:45.270] It's you and a group of others.
+- [16:46.739] Not a lot more, I mean, the people here I guess
+- [16:49.375] because of Larry, the people that came to this
+- [16:53.979] event, it's really incredible.
+- [16:56.048] I wasn't sure how it was going to turn out.
+- [16:57.916] We had somebody as you know, that ran it for
+- [16:59.885] many, many years and I'm not sure what happened
+- [17:02.321] there, but I figured well that's all right.
+- [17:04.323] They had a hell of a run in Davos.
+- [17:06.658] Then I heard Larry was taking it over more or
+- [17:08.761] less.
+- [17:09.428] And he called me.
+- [17:11.230] He said, "Would you do me a favor?
+- [17:12.631] Would you be there?"
+- [17:14.433] And we've had some great business dealings
+- [17:16.535] together, and he's a great -- he's one of -- he's one
+- [17:19.972] of you.
+- [17:20.639] He's one of the greats and it was an honor.
+- [17:22.441] We had a -- we had a good speech.
+- [17:24.743] We got great reviews.
+- [17:25.811] I can't believe it.
+- [17:26.545] We got good reviews on that speech.
+- [17:28.013] Usually they say he's a horrible dictator type
+- [17:30.816] person.
+- [17:31.483] I'm a dictator.
+- [17:33.152] But sometimes you need a dictator.
+- [17:35.587] But they didn't say that in this case.
+- [17:37.322] And no, it's common sense, it's all based on common
+- [17:40.125] sense.
+- [17:40.793] You know, it's not conservative or liberal or
+- [17:42.361] anything else.
+- [17:43.028] It's mostly I'd say 95 percent common sense, and
+- [17:46.198] that's what we have.
+- [17:47.466] So, I just want to thank everybody for being here.
+- [17:49.401] It's such an honor and if we can ever help, you're
+- [17:52.404] going to let me know and I have a pretty direct line.
+- [17:55.174] Marco Rubio is here, too.
+- [17:56.475] He's done a fantastic job as Secretary of state.
+- [17:59.745] He'll go down as maybe the best Secretary of state if
+- [18:02.214] he keeps going like he's going.
+- [18:03.515] That's a big question.
+- [18:04.850] I don't know that he will.
+- [18:05.884] But for the first year, he's right -- he's headed
+- [18:09.054] to the top.
+- [18:10.456] And I just want to thank everybody very much for
+- [18:12.491] being here.
+- [18:13.158] Thank you very much.
+- [18:13.826] Take care of yourselves.
+- [18:15.234] Thank you.
+- [18:16.078] (applause)

@@ -1,0 +1,188 @@
+<!-- source: https://www.youtube.com/watch?v=L-AEICateYM -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: L-AEICateYM -->
+<!-- date_published: 2025-10-25T23:23:59+00:00 -->
+<!-- date_accessed: 2026-06-02T01:12:25.237573+00:00 -->
+
+# Transcript: President Trump Gaggles with Press on Air Force One in Qatar, Oct. 25, 2025
+
+- [00:00.000] I always come back to tell you that you
+- [00:02.240] were so well behaved.
+- [00:05.040] You were so respectful and well behaved.
+- [00:07.840] I appreciate it. Okay.
+- [00:09.760] He's a great guy actually. He's a great
+- [00:11.240] leader. They helped us a lot.
+- [00:14.000] That was really nice that he came. We
+- [00:15.800] were just refueling and he came and said
+- [00:17.760] hello. It was very very nice. Great
+- [00:20.040] great man actually. Great gentleman,
+- [00:21.920] too. How did it go? Great. I mean, we
+- [00:24.160] talked about uh peace. We have peace in
+- [00:26.000] the Middle East. That's all we have.
+- [00:28.160] Great peace in the Middle East. He
+- [00:29.560] thinks it's enduring. He's never seen
+- [00:31.560] anything like it.
+- [00:33.040] And uh
+- [00:34.520] he's very happy that I got involved.
+- [00:37.440] And he helped and we had a lot of help.
+- [00:39.080] We have 59 countries. We have a lot of
+- [00:40.960] countries that uh
+- [00:42.920] are signed on. It's just This should be
+- [00:45.080] an enduring peace.
+- [00:46.720] What makes it different?
+- [00:48.480] That everybody agrees.
+- [00:50.360] A year ago, it would have been very
+- [00:51.680] tough. I think the big thing was when we
+- [00:53.320] took out the nuclear power of Iran. When
+- [00:55.840] we took out that nuclear capability,
+- [00:57.640] which would have happened over the next
+- [00:59.240] months to 2 months, uh that made a whole
+- [01:02.160] big difference in the Middle East. It
+- [01:03.440] made it possible to do the deal. Did you
+- [01:05.760] talk with them about how the new
+- [01:07.320] security arrangement between the US and
+- [01:09.360] Qatar will work?
+- [01:10.120] >> to him about it. We actually covered a
+- [01:11.480] lot of territory.
+- [01:12.920] Uh it's working very well. It's all
+- [01:14.440] smooth. US doesn't have to get much
+- [01:16.720] involved. They're able to take care of
+- [01:18.720] very substantial nations and you know,
+- [01:20.720] we have Saudi Arabia, UAE, Qatar. You
+- [01:24.040] have uh the three and then you have many
+- [01:26.000] behind them and and even with them. When
+- [01:28.560] will the uh stabilization force be in
+- [01:29.840] place? When will the stabilization force
+- [01:30.760] be in place?
+- [01:32.840] >> involved.
+- [01:34.160] Jordan, Egypt. I mean, it's uh it's an
+- [01:37.120] amazing
+- [01:38.600] group of and many more, many others
+- [01:40.840] aside that are a little further away or
+- [01:44.080] uh not as close to the situation.
+- [01:46.000] Everybody's Everybody's on board. It's
+- [01:47.920] pretty amazing.
+- [01:48.560] >> you confidence that the ceasefire in
+- [01:50.480] Gaza would hold?
+- [01:52.240] I think it will hold, yeah. Oh, it's
+- [01:53.720] going to hold. Well, if it doesn't hold,
+- [01:55.520] I mean, if it does hold, that would be
+- [01:56.720] Hamas and
+- [01:58.000] uh Hamas will be not hard to take care
+- [02:00.920] of. It will be very quickly. Is it going
+- [02:03.200] >> But I I hope it holds for Hamas, too,
+- [02:05.400] cuz you know, they they gave us their
+- [02:07.360] word on something and they said they
+- [02:08.800] took out gang members. Well, I hope
+- [02:10.200] that's right. But uh they gave us their
+- [02:13.040] word on something. So, I I think it's
+- [02:14.840] going to and if it doesn't, uh then
+- [02:16.840] they'll have a
+- [02:17.920] a very very big problem.
+- [02:19.680] >> When will the stabilization force be in
+- [02:21.400] place or when do you need to put it in
+- [02:22.520] place?
+- [02:22.840] >> quickly. So far, it's just uh
+- [02:25.560] yeah, it's period of time, you know. I I
+- [02:27.520] don't want to give you
+- [02:29.080] doing it right now. They're actually
+- [02:30.360] picking leaders right now.
+- [02:32.560] You're going to have peace in the Middle
+- [02:33.640] East. This is real peace. It's never
+- [02:35.440] happened before. 3,000 years, it's never
+- [02:37.480] happened. And great respect when uh he
+- [02:39.920] came to the airport, came onto the
+- [02:41.280] plane.
+- [02:42.400] Uh
+- [02:43.200] that's never happened either. And he's a
+- [02:45.320] highly respected man. Okay, any other
+- [02:47.640] questions?
+- [02:48.240] >> discussed sending peacekeeping troops
+- [02:50.000] into Gaza?
+- [02:51.800] Yeah, they'll do it at the time they
+- [02:53.320] need them and by the way, Israel will go
+- [02:55.480] in there very easily. You know that,
+- [02:56.760] right? So, right there you have a
+- [02:58.000] country, but uh you have the Arab
+- [03:00.320] countries are everybody. Muslim, Arab,
+- [03:04.080] Israeli, everybody's
+- [03:06.600] on board. It's been really an amazing
+- [03:09.360] thing. It's a It's a great success. And
+- [03:11.920] it it's a it's going to be a
+- [03:13.120] long-lasting, hopefully everlasting,
+- [03:15.920] but long-lasting. What will Russia have
+- [03:18.000] to do for you to reschedule your meeting
+- [03:20.640] with Putin? We're going to have to know
+- [03:22.000] that we're going to make a deal. I'm not
+- [03:23.200] going to be wasting my time.
+- [03:25.040] Um I've always had a great relationship
+- [03:27.240] with Vladimir Putin, but this has been
+- [03:29.160] very disappointing. I thought this would
+- [03:30.600] have gotten done long before peace in
+- [03:31.880] the Middle East.
+- [03:33.320] I mean, we have uh
+- [03:34.960] Azerbaijan and Armenia. That was very
+- [03:37.880] tough. In fact, Putin told me on the
+- [03:40.280] phone, he said, "Boy, that was amazing
+- [03:41.960] cuz everybody tried to get that done and
+- [03:43.800] they couldn't. I got it done."
+- [03:45.640] You know, that was it. If you look at
+- [03:47.480] India and Pakistan, I could say almost
+- [03:50.080] any one of the deals that I've already
+- [03:51.440] done,
+- [03:52.400] I thought would have been more difficult
+- [03:54.320] than Russia
+- [03:55.760] and Ukraine, but it uh didn't work out
+- [03:58.320] that way. There's a lot of hatred
+- [03:59.520] between the two
+- [04:01.040] between Zelenskyy and Putin. It's
+- [04:02.400] tremendous hatred. Will you discuss
+- [04:04.280] purchases of Russian oil with Xi
+- [04:06.000] Jinping? Are you worried about the
+- [04:07.320] Chinese buying Russian oil?
+- [04:08.480] >> discussing it, but you know what?
+- [04:09.880] China's I don't know, you probably saw
+- [04:11.840] it today. China's cutting back very
+- [04:13.320] substantially on the purchase of Russia
+- [04:16.200] oil.
+- [04:17.120] And India's cutting back completely. And
+- [04:20.160] we've done sanctions. Thank you very
+- [04:21.760] much, everybody. By the way, very very
+- [04:24.320] respectful. I appreciate it. That was
+- [04:26.040] That was good.
+- [04:26.600] >> Can you talk about what you hope to walk
+- [04:27.840] away from with the the the meeting with
+- [04:30.440] President Xi? Yes. What are you hoping
+- [04:32.600] to walk away with? A complete deal. I
+- [04:34.560] want our farmers to be taken care of and
+- [04:36.440] he wants things also. Uh we're going to
+- [04:38.480] be talking about fentanyl, of course,
+- [04:40.160] you know, fentanyl's killing
+- [04:42.320] a lot of people. A lot of people. It
+- [04:44.400] comes from China.
+- [04:46.280] And uh we'll be talking about that.
+- [04:47.960] We'll be talking about a lot of things.
+- [04:49.520] I I think we have I think we have a
+- [04:50.920] really good chance of making a very
+- [04:52.480] comprehensive deal. What do you think of
+- [04:54.000] this NBA gambling investigation?
+- [04:56.640] >> do you think about it? What do I think?
+- [04:58.680] I think it's very bad. I think it's
+- [05:00.360] terrible. Thank you.
+- [05:01.560] >> Japanese Prime Minister? Very good. She
+- [05:03.560] was She's great. Beautiful. We're going
+- [05:06.120] to be uh seeing
+- [05:08.120] her very soon. She's very friendly. She
+- [05:11.200] was very friendly with
+- [05:12.800] Abe, as you know, Prime Minister Abe.
+- [05:14.800] >> What did you guys talk about on the
+- [05:15.640] call? Just uh look forward to seeing
+- [05:18.160] you. I'm going to see her couple of
+- [05:20.000] days.
+- [05:21.040] Uh but she was a very very close ally
+- [05:23.920] and friend of
+- [05:25.320] Prime Minister Abe. And you know, he was
+- [05:26.840] one of my favorites. He was a great man.
+- [05:28.520] Thank you very much, everybody.
+- [05:29.840] >> Thank you, Mr. President. Thank you.

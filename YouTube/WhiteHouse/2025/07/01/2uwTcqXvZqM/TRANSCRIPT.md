@@ -1,0 +1,223 @@
+<!-- source: https://www.youtube.com/watch?v=2uwTcqXvZqM -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 2uwTcqXvZqM -->
+<!-- date_published: 2025-07-01T20:42:48+00:00 -->
+<!-- date_accessed: 2026-06-02T01:21:39.540542+00:00 -->
+
+# Transcript: President Trump Participates in a Guided Walking Tour of Alligator Alcatraz - Part 2
+
+- [00:00.500] (inaudible discussion)
+- [01:44.500] Governer DeSantis: (inaudible) six times to make sure
+- [01:47.130] there's nothing that can be used
+- [01:48.630] for contraband or weapons before the detainees come in.
+- [01:52.860] The President: You see what I mean? It's an amazing job.
+- [01:57.050] You've all done a great job. Proud of you.
+- [01:58.900] The Press: Mr. President, Mr. Governor,
+- [02:00.170] what's the message to Governor Gavin Newsom
+- [02:02.560] inside of this facility?
+- [02:03.800] The President: Well, the first thing you should do
+- [02:05.140] is come here and learn something,
+- [02:07.690] because they don't do this. They don't know where to begin.
+- [02:10.530] And if they did, it would cost them 100 times more.
+- [02:13.330] So I would say he should call the governor and Kristi,
+- [02:17.060] and I'm sure you'd give him a —
+- [02:19.380] because his state is a disaster, and he doesn't do this.
+- [02:22.870] Governor DeSantis: They have the original Alcatraz,
+- [02:24.580] so you guys can approve him being able
+- [02:26.770] to set one of these up over there.
+- [02:28.510] I'm sure the Secretary would be happy to do that.
+- [02:32.480] My sense is he's probably not going to bite on that,
+- [02:35.680] but I don't know that they'd be able to come in at cost
+- [02:37.750] because they tried to do this high-speed rail.
+- [02:40.060] They spent like $150 billion, no tracks.
+- [02:42.570] We've got a privately funded rail in Florida
+- [02:44.940] from Miami to Orlando cost the taxpayer zero
+- [02:47.870] and it's very successful.
+- [02:49.170] So just a much different approach between states.
+- [02:52.540] The President: We're not going to let him get anywhere
+- [02:54.680] near Alcatraz.
+- [02:56.360] It'll cost 100 times more than I thought.
+- [02:59.410] No, he ought to really, he had to come here and study this
+- [03:02.450] because he could learn a lot.
+- [03:04.290] The Press: (inaudible).
+- [03:06.550] Secretary Noem: Hopefully, yeah, hopefully tomorrow,
+- [03:07.860] within the next 24 hours.
+- [03:09.080] The President: They have the doctors,
+- [03:10.310] they have all the professional people.
+- [03:11.740] Governor DeSantis: There's going to be a security sweep
+- [03:13.270] because there have been civilians here,
+- [03:15.310] so they will sweep this multiple times
+- [03:17.180] to make sure there's nothing going to be used
+- [03:18.970] as weapons or any contraband.
+- [03:20.580] And then once that's cleared, then they'll do.
+- [03:23.060] So it's really up to the secretary,
+- [03:24.880] I know has got people in the queue,
+- [03:26.260] and so they'll be ready to receive.
+- [03:27.730] The Press: I think our viewers should know
+- [03:29.380] that this is air-conditioned facility.
+- [03:30.680] So, (inaudible).
+- [03:34.920] The President: It's air conditioned.
+- [03:36.080] Feels good in here, to be honest.
+- [03:38.340] Hey, Biden wanted me in here. Okay, that did --
+- [03:41.890] he wanted me -- it didn't work out that way.
+- [03:43.630] But he wanted me in here that son of a bitch.
+- [03:48.100] The Press: (inaudible)
+- [03:49.700] The President: Well, a lot of things,
+- [03:50.940] and they're both telling me,
+- [03:52.180] that these people come in here and they want to go home.
+- [03:55.510] And they want go home, so we immediately send them home,
+- [03:58.070] you know, where it's appropriate.
+- [03:59.390] Now, if somebody is a real killer,
+- [04:00.700] we don't send them anywhere.
+- [04:02.370] We put them in a maximum security.
+- [04:05.360] Look, what we inherited from this guy, this incompetent man,
+- [04:09.080] and his administration, which wasn't incompetent,
+- [04:11.340] it was radical left, lunatic, communist,
+- [04:14.110] whatever you want to say. I know most of them.
+- [04:16.570] What we inherited should never, ever be forgotten.
+- [04:19.670] That they've made us do.
+- [04:21.270] This is all because of an open border policy
+- [04:24.070] where 25 million people float in from all over the world,
+- [04:28.050] from prisons, from all over they float in.
+- [04:30.390] But for no reason whatsoever.
+- [04:32.960] You know, when I left, we had a very powerful border.
+- [04:35.230] We had no problem. He opened it up.
+- [04:37.190] Day one, he just opened the border.
+- [04:38.990] People couldn't believe it. They were standing there.
+- [04:41.330] They said, what are they doing? They said go in.
+- [04:44.280] That's the thing. You look at the first day tapes.
+- [04:46.930] They opened it up and they said, go in.
+- [04:48.530] And that's where all of this began.
+- [04:49.970] But this is an amazing thing that they've done here.
+- [04:53.900] Secretary Noem: But listen, people don't have to come here.
+- [04:57.490] If they self-deport and go home, they can come back legally.
+- [05:00.520] We will let them come back legally.
+- [05:01.980] The President: And there is a lot of self-deportation.
+- [05:03.770] Secretary Noem: Yes, but if you wait
+- [05:05.320] and we bring you to this facility,
+- [05:08.580] you don't ever get to come back to America.
+- [05:10.290] You don't get the chance to come and be an American again
+- [05:12.300] and work here, so.
+- [05:13.560] Governor DeSantis: They weren't with us when President
+- [05:15.320] and the Secretary, Kevin and I, we went through the intake.
+- [05:18.410] So right when you do the intake,
+- [05:19.730] they have the information about voluntary departure.
+- [05:22.920] They have the ability, obviously you guys are funding that
+- [05:25.280] because it's a lot cheaper to do it that way.
+- [05:27.420] So even if they get brought to the front doorstep here,
+- [05:30.350] they still have an opportunity to just go back voluntarily
+- [05:33.620] and then this way they're not cut --
+- [05:36.870] The Press: (inaudible).
+- [05:38.070] Secretary Noem: We can put them on a plane that day
+- [05:39.390] and take them home.
+- [05:40.620] We'll buy their plane ticket, go home,
+- [05:41.960] and then they get the chance to come back legally.
+- [05:44.180] If they wait --
+- [05:45.400] The President: If they do that, they can come back
+- [05:47.280] legally after a period of time.
+- [05:49.130] The Press: (inaudible)
+- [06:06.640] The President: We want to take care of our farmers
+- [06:08.150] and hotel workers and various other people.
+- [06:10.690] We're working on it right now.
+- [06:12.080] And Ron is going to be involved, and you're involved already.
+- [06:15.040] So we have a case with a lot of cases
+- [06:18.220] where ICE will go onto a farm.
+- [06:20.030] I'm using guys working there for 10, 15 years.
+- [06:23.380] No problem. The farmers know them.
+- [06:25.140] We're going to put what is called farmer responsibility
+- [06:27.950] or owner responsibility,
+- [06:29.910] where they're going be largely responsible for these people.
+- [06:32.410] And they know these people,
+- [06:33.750] They've worked on the farms for 15 years,
+- [06:36.230] and all of a sudden, they've — so I have a great —
+- [06:39.410] Ron does, Kristi does —
+- [06:40.800] we have a very great feeling for the farmer
+- [06:42.470] and for others in the same position.
+- [06:44.560] And we're going to give them responsibility for people.
+- [06:47.390] And we are going to have a system of signing them up
+- [06:49.550] so they don't have to go. They can be here legally.
+- [06:52.270] They can pay taxes and everything else.
+- [06:53.810] They're not getting citizenship, but they get other things.
+- [06:57.400] And the farmers need them to do the work.
+- [06:59.040] Without those people,
+- [07:00.260] you're not going to be able to run your farm.
+- [07:02.690] The Press: (inaudible)
+- [07:06.280] The President: I didn't notice that.
+- [07:07.630] I didn't notice it.
+- [07:09.810] The Press: (inaudible)
+- [07:14.330] The President: I would say it's a 10.
+- [07:16.320] I think it's 10. Maybe 9.9,
+- [07:18.730] because there might be a couple of little wounds.
+- [07:20.790] So maybe it's -- I think we have a 10.
+- [07:24.080] We get along great.
+- [07:25.600] Governor DeSantis: Well, the you know,
+- [07:26.870] the thing about it is,
+- [07:28.080] you know I endorsed him immediately in January 2024.
+- [07:30.730] I raised his --
+- [07:32.430] one of his packs millions and millions of dollars.
+- [07:35.020] And obviously we saved him a lot of money in Florida
+- [07:37.550] because Florida was a deep red state.
+- [07:39.780] He didn't even have to do a rally in Florida,
+- [07:41.440] whereas 2016 and '20, this was like ground zero.
+- [07:45.460] And so we've been really happy to do that.
+- [07:48.100] And then we've worked very well on this
+- [07:50.300] and other issues with Florida. You can call him at any time
+- [07:55.520] and he wants to be helpful for governors.
+- [07:58.110] I mean, I can tell you that.
+- [08:00.150] We did Hurricane Helene last year.
+- [08:02.350] You didn't hear from the president at the time then.
+- [08:05.340] And then, but with President Trump,
+- [08:07.510] we know immediately you just make the phone call.
+- [08:10.390] The Press: (inaudible)
+- [08:17.380] The Press: Very far, they're very firm,
+- [08:18.800] but he wants it to, I will tell you.
+- [08:20.350] He's coming here next week. He wants to end it, too.
+- [08:24.070] We had a tremendous success with Iran.
+- [08:26.540] They won't have me — somebody said,
+- [08:28.460] when are you going to sign?
+- [08:29.700] I said, sign? They are so bombed out.
+- [08:33.770] Did you see the report issued this morning?
+- [08:35.480] The place was decimated.
+- [08:37.540] It will be years before anybody even gets down there.
+- [08:40.700] So that's not a priority, but we'll have a report
+- [08:43.540] and we'll have whatever we want.
+- [08:45.280] We'll get whatever we want from Iran.
+- [08:47.970] And I think and I hope they want to have a good country.
+- [08:50.680] You know, they have massive sanctions right now,
+- [08:53.090] biting sanctions. It's going to be very hard
+- [08:55.320] for them to do anything with those sanctions.
+- [08:57.140] And I look forward to maybe there'll be a time
+- [08:59.760] when we get along with them and they can rebuild their country.
+- [09:02.590] The Press: (inaudible)
+- [09:06.540] The Press: Well, he wants to, I can tell you,
+- [09:07.930] he wants to and I think we'll have it.
+- [09:09.540] I think will have a deal next week.
+- [09:11.470] That's what I think.
+- [09:12.700] The Press: (inaudible)
+- [09:13.900] intend to announce your fixer successor to Jay Powell
+- [09:19.100] earlier than say, summer or fall?
+- [09:21.810] The President: Will I do something
+- [09:23.180] about who it's going to be?
+- [09:24.480] The Press: Yes. I don't know. Hey, he'd be a good candidate.
+- [09:26.260] Secretary Noem: There you go.
+- [09:27.530] The President: He might do that. She'd be good candidate, too.
+- [09:30.300] Anybody would be better than Jay Powell.
+- [09:32.680] No, it's causing us a fortune,
+- [09:34.050] because he keeps the rate way up.
+- [09:37.000] I think it's Trump derangement syndrome, personally.
+- [09:39.430] But, you know, we have a very strong country.
+- [09:41.430] We're the strongest country. Look, our country right now
+- [09:44.800] is at a level that we haven't seen for 40, 50 years.
+- [09:48.880] What we're doing now is nobody's seen anything like it.
+- [09:52.340] I told you, I was with -- in the Middle East,
+- [09:55.060] the King of Saudi Arabia said to me very strongly,
+- [09:57.050] he said, you know what?
+- [09:58.270] A year ago, you had a dead country.
+- [10:00.370] Now you have the hottest country in the world.
+- [10:01.950] We do, we have the hottest country in the world.
+- [10:04.270] Thank you very much, everybody.
+- [10:06.130] The Press: (inaudible).
+- [10:07.390] The President: We'll be seeing it
+- [10:08.660] over the next couple of weeks also.
+- [10:11.640] Those type of industries.

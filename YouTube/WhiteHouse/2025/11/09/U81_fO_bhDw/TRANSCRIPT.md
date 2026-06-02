@@ -1,0 +1,426 @@
+<!-- source: https://www.youtube.com/watch?v=U81_fO-bhDw -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: U81_fO-bhDw -->
+<!-- date_published: 2025-11-09T01:43:18+00:00 -->
+<!-- date_accessed: 2026-06-02T02:41:54.618036+00:00 -->
+
+# Transcript: Vice President JD Vance and Second Lady Usha Vance Attend the United States Marine Corps Ball
+
+- [00:00.690] General Smith: Now we got to do that again.
+- [00:02.100] Good evening, Marines.
+- [00:03.620] (cheers)
+- [00:06.920] General Smith: That's more like it, that's more like it.
+- [00:10.370] I have one job tonight, that's to introduce our guest of honor.
+- [00:14.930] But first, I get to say a couple of words to us Marines,
+- [00:20.750] U.S. Marines, us Marines. I've got a prepared script,
+- [00:26.930] and I'm going to deviate from it,
+- [00:31.790] which is going to make my staff very uncomfortable.
+- [00:36.170] But I'm going to wing it here in front of the Vice President.
+- [00:42.130] What I'm going to do is I'm just going to tell one story.
+- [00:46.430] And it's a story that I've told before,
+- [00:48.230] but not too many times because frankly,
+- [00:49.900] it's kind of hard to get through.
+- [00:52.460] But it boils down the essence of being a Marine.
+- [00:59.280] I was the battalion commander for 1st Battalion 5th Marines
+- [01:02.330] in 2005 in the city called Ramadi.
+- [01:06.490] And, you know, 1-5 was in the heart of the Sunni insurgency.
+- [01:12.750] And we were taking daily casualties,
+- [01:15.390] and it was a day-on-stay-on gunfight.
+- [01:18.790] And I had two twin brothers in my battalion,
+- [01:22.810] the Hyme brothers, Jesse and Joel.
+- [01:26.730] And they were both assigned to Alpha Company.
+- [01:30.890] And one night I was at the government center
+- [01:32.410] in the center of Ramadi,
+- [01:33.640] and I heard a very large explosion.
+- [01:38.480] One of our Humvees had been hit by an IED,
+- [01:41.460] and a couple Marines had been killed.
+- [01:43.380] Actually, all five Marines in the vehicle were killed.
+- [01:46.150] One of them was Corporal Hymey, Joel Hyme, or Jesse Hyme.
+- [01:53.430] And so I told his brother,
+- [01:59.560] after we got the bodies off the battlefield,
+- [02:01.460] I went down to the government center
+- [02:02.950] and picked up his brother Joel,
+- [02:05.730] and I brought him back to Camp Ramadi.
+- [02:08.370] And I was kind of choking up.
+- [02:11.210] I was a young battalion commander.
+- [02:12.670] Again, we were taking daily casualties.
+- [02:15.310] And as the body was taken on to the helicopter
+- [02:23.460] that was going to fly him back to Camp Fallujah,
+- [02:26.830] to the mortuary,
+- [02:28.030] and then fly them on back to Las Vegas,
+- [02:31.890] I took his brother out there in my Humvee.
+- [02:35.090] And I said Corporal Heime,
+- [02:40.030] I don't know what to say to you right now.
+- [02:43.370] And he looked me dead in the eye,
+- [02:46.120] and he said, sir, it's been my privilege
+- [02:51.150] to serve in this battalion. And he boarded a helicopter,
+- [02:56.460] and he flew his dead brother's body home to Las Vegas.
+- [03:01.100] I don't know where we get the likes of Corporal Heime.
+- [03:05.190] I don't think we deserve them.
+- [03:07.830] But the truth is, for our adversaries,
+- [03:12.330] we got lots of them. We got lots them.
+- [03:17.230] And they're all willing to kill you.
+- [03:21.700] They're all willing' to bring the fight to you.
+- [03:25.470] So if you mess with America,
+- [03:27.990] you're going to get a bunch of corporal
+- [03:30.140] He's coming after you.
+- [03:31.860] And again, I've committed the ultimate foul
+- [03:44.940] because I haven't said all of our
+- [03:46.990] VIPs tonight, but everyone here is a VIP.
+- [03:51.860] And so we have U.S. Senators here tonight.
+- [03:56.450] We have distinguished visitors, distinguished guests.
+- [04:01.070] We've got too many to name. We've the former ACMAC,
+- [04:04.760] now the Vice Chairman of the Joint Chiefs,
+- [04:06.250] Christopher Moe Mahoney.
+- [04:07.840] (applause)
+- [04:13.550] General Smith: We have senators from the states of Montana.
+- [04:16.650] We got Senator Ernst from the great state of Indiana.
+- [04:22.270] We've got the Honorable Stephen Daines.
+- [04:26.010] We've the Honorable Dan Sullivan,
+- [04:27.580] U.S. Senator from the great state of Alaska
+- [04:29.570] and a veteran Marine himself. Again, the list goes on.
+- [04:35.710] We've got Ambassador Sean O'Neill,
+- [04:37.350] Ambassador Designate to Thailand,
+- [04:40.330] the Honorable Hung Kao, Undersecretary
+- [04:42.960] of the Navy, General Dave Berger,
+- [04:46.050] former commandant of the Marine Corps.
+- [04:55.030] And I'll end with this one.
+- [04:56.850] We got Sergeant Dakota Meyer, Medal of Honor recipient.
+- [05:01.150] (applause)
+- [05:08.200] General Smith: We're all honored by your presence here today.
+- [05:12.010] So again, I'm going to skip my prepared remarks,
+- [05:15.140] because I think when I tell the Corporal Hyme story,
+- [05:18.180] that epitomizes everything you need to know
+- [05:20.860] about our Marine Corps.
+- [05:22.810] And it epitomizes everything
+- [05:24.910] that is good about our marine corps.
+- [05:27.870] And it epitomizes is everything that our adversaries
+- [05:31.260] need to understand about our marine corps.
+- [05:35.140] Because if you mess with the bull you get the horns.
+- [05:40.380] (applause)
+- [05:46.520] And there's a saying, again, that nobody likes to fight.
+- [05:51.820] Somebody has to know how. But Marines do know how,
+- [05:56.270] and they do like to fight .They do like to fight.
+- [06:03.100] So Marines, on this, your 250th birthday,
+- [06:08.550] I wish you a happy birthday. I wish 250 more.
+- [06:15.100] And I hope that we don't have to deal with any more
+- [06:19.130] Kopelheimies, but I'm afraid that we're going to.
+- [06:23.510] And I'm going to depend upon all of you,
+- [06:25.510] the leaders of this Corps, to have the mental, moral,
+- [06:29.960] and physical courage to do what is required.
+- [06:33.040] When the time comes.
+- [06:35.190] When the time come to stick a bayonet
+- [06:36.790] in our adversaries chest,
+- [06:38.650] I'm going to depend upon you to do it.
+- [06:41.420] And I know you will. And I you can.
+- [06:45.110] Because we've been doing it for 250 years,
+- [06:48.390] and we're going to keep doing it for another X thousand years.
+- [06:52.430] Because there's no end in sight to this Marine Corps.
+- [06:55.590] It is the biggest, baddest,
+- [06:58.500] most war fighting organization on the face of the planet.
+- [07:02.480] It is all about lethality. It's all about warfighting.
+- [07:06.270] That's all we do. That's who we are.
+- [07:09.130] That's what we do, we warfight. We're Marines.
+- [07:13.590] That's al we do and so ladies and gentlemen,
+- [07:17.330] I am going to get off the stage and I am going to
+- [07:19.440] simply introduce our guest of honor tonight,
+- [07:23.060] the Vice President of the United States,
+- [07:25.920] the Honorable J.D. Vance, a veteran Marine. Hurrah.
+- [07:31.540] (applause)
+- [07:55.970] JD Vance: Thank you, Marines.
+- [07:57.530] It's great to be with you tonight.
+- [07:59.170] I want to thank our great commandant, General Smith.
+- [08:01.830] Thank you so much for everything that you do
+- [08:03.830] for our Marine Corps.
+- [08:05.380] Let me ask you all, how we doing, Marines?
+- [08:07.770] (cheers)
+- [08:10.500] JD Vance: That was pretty good. How we doing Marines?
+- [08:14.170] (cheers)
+- [08:15.460] JD Vance: That was better, that was better.
+- [08:17.010] Well, I figured I'd just stand up here
+- [08:19.930] and tell a lot of stories about the Marine Corps
+- [08:21.750] because what else should we do when we're among friends
+- [08:25.050] on the 250th birthday of the United States Marine Corps
+- [08:28.330] than talk about the incredible stories
+- [08:30.420] that make our Corps great? And I'm so proud to be here.
+- [08:33.820] I'm proud to the be the first Vice President
+- [08:36.960] of the Unites States
+- [08:38.180] to have been a United States marine.
+- [08:41.420] (cheers)
+- [08:47.820] JD Vance: I am proud to have so many of my dear friends
+- [08:50.550] from my own time in the United States Marine Corps
+- [08:53.250] and I was joking with some of them earlier this evening.
+- [08:55.780] We were at a reception with generals and colonels
+- [08:58.650] and magistrates and noblemen and I thought to myself
+- [09:01.890] that when we were at our last Marine Corps Ball,
+- [09:05.750] we were drinking Jim Beam mate stars
+- [09:07.950] with a bunch of corporals and Lance corporals and sergeants.
+- [09:12.060] And now we're drinking fine wine
+- [09:13.590] with the Commandant of the Marine Corps.
+- [09:14.940] We've come pretty far, my friends.
+- [09:16.610] It's good to see you all.
+- [09:21.940] But the thing I love about the Marine Corps
+- [09:23.790] is that for 41 years,
+- [09:25.600] for the entire time that I have had the Marine Corp
+- [09:28.740] in the back of my mind since I stepped foot
+- [09:31.030] on those yellow footprints in Parris Island,
+- [09:32.970] I was a 19 year old kid,
+- [09:35.560] that entire time the The Marine Corps has kept me honest,
+- [09:38.580] and even tonight the Marine Corps has kept me honest,
+- [09:41.760] because you saw our guest of honor,
+- [09:43.280] that incredible Iwo Jima veteran corporal.
+- [09:45.770] It's such an honor to be with you.
+- [09:47.630] And I was shaking his hand earlier
+- [09:51.090] and spending some time with him,
+- [09:52.510] and I said, sir, if you need to lean on me,
+- [09:55.290] if you to grab onto me, please feel free to do so.
+- [09:58.150] And he said, if need to grab on to me, feel free do so.
+- [10:02.910] (applause)
+- [10:10.050] And then I shook the hand of his fellow Iwo Jima veteran
+- [10:13.710] because we have a corpsman here who served in Iwo Jima
+- [10:16.480] and how much marines do we love our corpsmen who keep us safe.
+- [10:20.420] (applause)
+- [10:25.560] We know that to our corpsmen there is no illness so severe,
+- [10:28.940] no malady, so significant that it cannot be cleared
+- [10:33.200] by two Motrin and a fresh pair of socks.
+- [10:40.120] But I shook the hand of this corpsman
+- [10:41.950] who's probably close to a hundred years old.
+- [10:45.110] And he said, you know, we talked for a little bit.
+- [10:47.310] We chatted for a bit. He said,
+- [10:48.640] You know, you have a very nice personality.
+- [10:52.450] And I'm a vain politician, just like all the rest of them,
+- [10:56.280] and I really appreciated that.
+- [10:57.670] And he said, what the hell is up with that beard?
+- [11:03.640] And I thought to myself,
+- [11:04.930] I'm the Vice President of the United States
+- [11:07.220] and this guy is busting my balls for having a beard.
+- [11:13.040] But that, my friends, is what the Marine Corps does.
+- [11:17.310] Whether we're a young Marine or an old Marine,
+- [11:19.450] whether we're Lance Corporal born in 2006,
+- [11:22.820] or a veteran of Iwo Jima, the Marine Corp keeps us honest
+- [11:26.870] because it is the proudest organization
+- [11:28.980] of war fighters in the world,
+- [11:30.880] and we are proud to celebrate its 250th birthday.
+- [11:35.910] (applause)
+- [11:43.760] Now I got this great big speech here.
+- [11:45.400] I could talk about Dan Daley,
+- [11:47.480] I could talk about Chesty Pooler,
+- [11:50.480] I can talk about John Bassiloni,
+- [11:52.360] I could talk about all of the incredible Marines,
+- [11:54.930] I could talk about my friends,
+- [11:56.860] some of whom came home from Iraq or Afghanistan
+- [11:59.760] and a couple of whom didn't.
+- [12:01.760] We know that the reason why this organization is so special
+- [12:06.190] is fundamentally because we take the very best Young Americans.
+- [12:10.890] We turn them into something even better,
+- [12:13.260] which is United States Marines,
+- [12:14.960] and we go and ask them, even when they're teenagers,
+- [12:18.020] even when their not even old enough,
+- [12:19.450] some of them to drink,
+- [12:20.660] we go an ask them to do the hardest thing in the world,
+- [12:24.510] which is to fight our nation's battles
+- [12:26.950] and to represent the United States
+- [12:28.900] all over the world in the proudest
+- [12:31.050] and most profound way possible.
+- [12:33.180] And I'm proud to tell you this evening that tonight
+- [12:36.390] as we celebrate at the Commandant's Birthday Ball
+- [12:39.000] from the young Marines to the old Marines
+- [12:41.600] I as your vice president am proud of you
+- [12:44.740] and we're going to keep on winning America's Wars
+- [12:47.080] for the next 250 years after this.
+- [12:50.820] (applause)
+- [12:58.070] Now I remember when my cousin Rachel,
+- [12:59.750] she's my older cousin,
+- [13:01.220] my grandmother's eldest grandchild,
+- [13:03.150] when she encouraged me to enlist
+- [13:05.300] in the United States Marine Corps
+- [13:07.290] and at the time it sounded like the craziest idea
+- [13:10.040] I had ever heard.
+- [13:11.520] I couldn't run a mile, much less three miles,
+- [13:15.040] and I never thought to myself that I could join the military,
+- [13:19.220] but I'm telling you
+- [13:20.550] that the confidence the Marine Corps gave me,
+- [13:23.610] the trajectory that it set me on.
+- [13:25.720] Has started again from those yellow footprints
+- [13:28.910] in Parris Island
+- [13:30.150] led me directly from where I was then to where I stand today.
+- [13:33.530] And it wasn't always an easy journey,
+- [13:35.930] of course these things never are,
+- [13:37.420] but I remember for example my very first Marine Corps birthday
+- [13:41.470] as a young recruit in Parriss Island.
+- [13:43.430] I went to boot camp in September of 2003
+- [13:46.710] and so of course my first Marine Corp birthday
+- [13:48.820] was in Parris Island.
+- [13:50.080] Now I'll tell you a little story.
+- [13:51.370] At the time, I thought
+- [13:53.430] that I was deathly allergic to shellfish.
+- [13:57.480] And the reason I thought I was deathly allergy to shellfish
+- [13:59.960] is because when I was 16 or 17,
+- [14:01.770] I had some terrible allergic reaction.
+- [14:04.260] I assumed it was because of shellfish and for two years,
+- [14:07.730] I had not touched shellfish,
+- [14:09.210] I thought it was the thing that was going to kill me.
+- [14:11.530] And so on November the 10th, in Parris Island,
+- [14:14.600] South Carolina,
+- [14:16.090] I was sitting there and they served steak and lobster.
+- [14:20.410] And you all know, you all recruits,
+- [14:22.300] you know how hungry young recruits get?
+- [14:24.700] And I thought to myself, well, on the one hand,
+- [14:27.190] I could be hungry. And maybe save my life.
+- [14:31.860] On the other hand, I could roll the die with this lobster,
+- [14:35.710] and the very worst thing that's probably going to happen to me
+- [14:37.970] is a corpsman's gonna take care of me,
+- [14:39.300] I'll get to sleep in tomorrow. And so what did my dumb ass do?
+- [14:43.810] I ate the lobster, and I was fine,
+- [14:47.320] and I haven't been allergic to shellfish ever since.
+- [14:49.570] So one of the great things the Marine Corps can do
+- [14:52.440] is it can apparently cure a shellfish allergy.
+- [14:58.550] There are so many things I'm proud of about this Corps.
+- [15:01.070] One of the things I am proud of is that the life,
+- [15:03.780] that the attitude and the life of service
+- [15:06.070] continues from the people
+- [15:07.950] who become generals in our Marine Corps
+- [15:10.020] to sergeant majors in our marine Corps
+- [15:12.170] to the people that get out and lead in the civilian world.
+- [15:15.580] My dear friend Dave Warrington is here,
+- [15:17.400] the White House Counsel.
+- [15:18.650] I'm going to embarrass Dave a little bit.
+- [15:20.390] Because though he's one of the most important people
+- [15:22.660] in our White House team,
+- [15:23.890] a brilliant lawyer, a very proud Marine,
+- [15:26.420] I didn't know until tonight that young David,
+- [15:29.070] his son, is a captain of Marines and he's here with us tonight.
+- [15:32.510] So let's give it up for a family of service.
+- [15:35.720] (applause)
+- [15:37.030] There he is.
+- [15:44.770] Going to embarrass my friend a little bit,
+- [15:46.430] and of course you all know that, you know,
+- [15:48.320] when you get around soldiers and sailors and airmen,
+- [15:50.950] we like to poke fun at each other.
+- [15:53.410] And I was talking to an Army Colonel
+- [15:57.840] in the White House not too long ago,
+- [16:01.550] and I said, Colonel, you what they call a soldier
+- [16:05.990] with an IQ of 80? And he said, what sir?
+- [16:09.180] And I said they call him a colonel.
+- [16:13.730] And he chuckled.
+- [16:15.170] And then he said, you know what they call a Marine
+- [16:17.140] with an IQ of 60? I said, what's that, Colonel?
+- [16:19.530] He said, the Vice President of the United States.
+- [16:28.060] And guess what, Colonel, I've got the last laugh
+- [16:30.500] because your ass is going to Siberia on diplomatic duty.
+- [16:33.480] So I hope you had your fun in the West Wing,
+- [16:36.530] but unfortunately I get the final say.
+- [16:39.550] That's one of the good things about this job.
+- [16:41.930] But let me just say, first of all,
+- [16:43.450] from our Department of War Secretary,
+- [16:46.040] Pete Hegseth, a great soldier,
+- [16:49.020] but a person I know who loves the Marines deeply,
+- [16:51.460] and of course from the President of the United States,
+- [16:55.520] they are proud of you.
+- [16:57.120] They know that the United States Marine Corps
+- [16:59.540] is the greatest weapon
+- [17:01.580] the political leadership of this country has.
+- [17:03.840] And when you hear this phrase, peace through strength,
+- [17:07.390] we are fighting for peace every single day in the White House,
+- [17:11.020] every single in the Oval Office.
+- [17:13.370] We achieve peace because you, the Marine Corps,
+- [17:17.080] are our strength and we won't forget it and we never have.
+- [17:20.110] Thank you, Marines.
+- [17:22.570] (applause)
+- [17:29.930] And I know we're going to do a little toast
+- [17:31.430] with a comment on here,
+- [17:32.640] but I just want to say something else
+- [17:34.040] because there are two things
+- [17:35.640] that your political leadership cares a great deal about.
+- [17:37.910] I have to put on my vice president hat
+- [17:40.260] and tell you about it because one of the mistakes
+- [17:43.230] that I think we made over the past 40 years,
+- [17:45.670] over my entire life, and let's be honest,
+- [17:48.120] it was Democrats and Republicans,
+- [17:49.630] this is not even a partisan point.
+- [17:51.570] Is that we were too willing to send our Marines
+- [17:54.620] and our soldiers and everybody else off to war
+- [17:57.200] without giving you clear guidance
+- [17:59.050] about what you needed to do and clear guidelines
+- [18:02.580] for when you would come home.
+- [18:04.130] And that is one thing that President of the United States
+- [18:06.240] and everybody in the White House,
+- [18:08.150] we promise we will never do.
+- [18:10.200] When we send you off to fight our nation's battles,
+- [18:13.900] we will do it with full confidence.
+- [18:16.590] We will give you the knowledge and the tools you need to win,
+- [18:19.720] and we will make it clear that your job
+- [18:22.310] is to kick the enemy's ass and come back home safely.
+- [18:25.600] That is our sacred promise
+- [18:26.950] from the President of the United States on down.
+- [18:29.280] That's what we owe every single one of you is a clear mission
+- [18:33.290] and a clear promise that when you do that mission,
+- [18:35.870] you're going to come home safely,
+- [18:37.340] that's the first point that I want to make.
+- [18:38.860] I want to make a second point.
+- [18:40.600] Because we live in an era of technology.
+- [18:42.460] You saw it in that incredible video.
+- [18:44.480] I forget who even said it,
+- [18:46.150] but he said, you know, in World War II, we had planes,
+- [18:48.890] we had boats, we have tanks, and we had Marines.
+- [18:51.040] And here we are in 2025, 80 years later,
+- [18:54.780] and we still got tanks, we got boats, we got airplanes,
+- [18:59.380] and we got United States Marines.
+- [19:01.410] But let's be honest, we all know the battlefield has changed
+- [19:05.220] in an incredible and profound way.
+- [19:07.450] We've got technology that would have been inconceivable,
+- [19:11.840] even when I was a little kid,
+- [19:13.650] is now driving the face of the modern battlefield.
+- [19:16.410] We got cyber security. We got satellites in space.
+- [19:19.190] We got artificial intelligence.
+- [19:20.640] We've all this incredible technology.
+- [19:23.270] And of course, the United States
+- [19:24.700] is the most significant leader of technology in the world.
+- [19:28.530] But I happen to believe that the most important
+- [19:31.150] warfighting technology is not a new airplane.
+- [19:33.950] The most important warfighter technology
+- [19:36.120] is not artificial intelligence or anything on a computer.
+- [19:40.190] The most important war fighting technology
+- [19:43.500] is a well trained and well armed United States Marine
+- [19:46.710] and we won't forget it.
+- [19:49.430] (applause)
+- [19:57.200] So let me say Marines, at the age of 250,
+- [20:01.620] not a single one of you looks older than 249.
+- [20:04.480] Look pretty good out there. This is a good looking crowd.
+- [20:07.250] But I just want to say
+- [20:08.520] that everything the Marine Corps has done for me,
+- [20:11.200] the Marine Corp gave me great training,
+- [20:14.210] it gave me a sense of purpose, it gave be lifelong friends
+- [20:17.310] that across the political spectrum,
+- [20:19.200] just in the table of people that were dear friends of mine
+- [20:22.670] during the United States Marine, my own Marine Corps service.
+- [20:25.470] We've got radical leftists and radical right-wingers,
+- [20:28.060] and we're all dear friends
+- [20:29.820] because we all bleed the same Marine Corps green.
+- [20:33.470] The Marine Corps has done a lot for me.
+- [20:35.840] The Marine Corp has done more for me
+- [20:37.280] than I can possibly repay. But the thing that I promise.
+- [20:41.050] So long as I have the honor of being your Vice President
+- [20:45.200] is that I will continue to honor the United States Marine Corps.
+- [20:49.590] I will continued to remember
+- [20:51.510] that you are the most profound war
+- [20:53.500] fighting technology that exists on the planet Earth
+- [20:56.620] and I will fight every single day
+- [20:58.860] on this 250th birthday of the United States Marines
+- [21:02.430] to make sure that the next 250 years
+- [21:05.390] is just as damn proud as the first 250.
+- [21:08.650] Happy birthday Marines. It's an honor to be with you.
+- [21:12.600] (applause)
+- [21:30.600] Announcer: Ladies and gentlemen, please join Vice President
+- [21:33.080] JD Vance as he offers a toast in honor of the 250th birthday
+- [21:36.500] of the United States Marine Corps.
+- [21:39.470] JD Vance: All right, Marines,
+- [21:40.690] I'm going to keep this simple and keep this sweet
+- [21:42.550] because I'm the last thing standing between you
+- [21:45.240] and a very delicious glass of champagne.
+- [21:47.680] But let's raise our glass from Chesty Pooler
+- [21:51.420] to everybody else,
+- [21:53.050] for every Marine who came home and every Marine, who didn't.
+- [21:57.900] Here's to 250 more years of our glorious Marine Corps.
+- [22:01.720] God bless you.

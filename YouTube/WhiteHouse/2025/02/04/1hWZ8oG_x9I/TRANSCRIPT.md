@@ -1,0 +1,829 @@
+<!-- source: https://www.youtube.com/watch?v=1hWZ8oG_x9I -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 1hWZ8oG_x9I -->
+<!-- date_published: 2025-02-04T21:39:26+00:00 -->
+<!-- date_accessed: 2026-06-02T01:30:38.318750+00:00 -->
+
+# Transcript: President Trump Signs Executive Orders in the Oval Office, Feb. 4, 2025
+
+- [00:00.160] Thank you very much. We had a busy day.
+- [00:03.280] We're dealing with lots of different
+- [00:05.120] people and lots of different things. We
+- [00:08.080] had some terrific people in today and
+- [00:11.920] trying to solve some of the problems
+- [00:14.160] that are going on in the country and
+- [00:15.759] outside of the country. We're doing very
+- [00:18.000] well with respect to uh other countries
+- [00:22.160] really behaving on taking the criminals
+- [00:24.400] that they sent into our country and
+- [00:26.800] we're getting them out. These are some
+- [00:28.960] some of the worst people on earth and
+- [00:30.960] they're getting out and they're being
+- [00:32.160] accepted back in their countries as
+- [00:34.719] you've heard without exception.
+- [00:37.120] So, a lot of people thought that was not
+- [00:38.719] going to happen, but it's happening very
+- [00:40.960] full force. Now, we're getting some
+- [00:43.200] very, very dangerous people out of our
+- [00:44.960] country, which is very important. Now,
+- [00:48.079] will perhaps we'll go through the first
+- [00:49.760] one, please. Yes, sir. Uh so earlier
+- [00:51.920] today before the press came in you
+- [00:53.840] signed a commission uh appointing uh
+- [00:56.640] Chris Wright to be your next secretary
+- [00:58.559] of energy. We have another commission
+- [01:00.320] prepared for your signature sir. Uh this
+- [01:02.800] is Doug Collins to be secretary of the
+- [01:05.439] uh the VA. Doug Collins of Georgia. Two
+- [01:08.320] very good men.
+- [01:20.960] Okay, thank you sir. Uh
+- [01:27.280] next up, in light of uh numerous actions
+- [01:30.240] taken by a number of bodies of the
+- [01:32.159] United Nations uh which exhibit a deep
+- [01:34.400] anti-American bias, we have an executive
+- [01:37.119] order uh prepared for your attention uh
+- [01:39.680] that would withdraw the United States
+- [01:41.439] from the UN Human Rights Council. uh
+- [01:43.759] would withdraw the United States from
+- [01:45.439] the UNRWA, which is a a refugee
+- [01:48.720] organization, uh and would also review
+- [01:51.439] American involvement in uh in UNESCO,
+- [01:54.640] which has also exhibited anti-American
+- [01:56.479] bias. Uh more generally, the executive
+- [01:59.119] order calls for a review of American uh
+- [02:02.159] involvement and funding in the UN in
+- [02:04.719] light of the wild disparities in levels
+- [02:06.880] of funding uh among different countries.
+- [02:09.599] uh that as you've expressed previously
+- [02:11.920] is deeply unfair to the United States.
+- [02:15.200] So I've always felt that the UN has
+- [02:17.200] tremendous potential.
+- [02:19.200] It's not living up to that potential
+- [02:21.040] right now. It really isn't. Hasn't for a
+- [02:23.120] long time. It has there are great hopes
+- [02:26.400] for it, but uh it's not being wellrun to
+- [02:31.760] be honest and not doing the job. A lot
+- [02:34.879] of these conflicts that we're working on
+- [02:36.480] should be settled or at least we should
+- [02:39.120] have some help in settling them. We
+- [02:40.640] never seem to get help. That should be
+- [02:42.400] the primary purpose of the UN, the
+- [02:44.239] United Nations. And uh again, it's got
+- [02:47.200] great potential and based on the
+- [02:48.720] potential, we'll continue to go along
+- [02:50.319] with it. But they got to get their act
+- [02:52.640] together.
+- [02:58.800] What would they need to do to get their
+- [03:00.239] act together? Well, they got to be fair
+- [03:02.080] to countries that deserve fairness. Uh
+- [03:05.040] they have some countries, as you know,
+- [03:07.200] that are outliers that are very bad and
+- [03:10.640] they're being almost preferred as
+- [03:12.640] countries to those that uh do their job
+- [03:16.080] and are doing a good job and they have
+- [03:18.800] to really they're going to end up losing
+- [03:20.800] a lot of countries. They're going to end
+- [03:22.000] up losing their credibility like other
+- [03:23.760] organizations and then they're going to
+- [03:25.200] be nothing. The potential of the United
+- [03:27.599] Nations, and not everybody agrees with
+- [03:29.440] me on this, the potential of the United
+- [03:32.080] Nations is fantastic if properly run.
+- [03:35.840] So, we'll see what happens. How much
+- [03:38.000] money are you willing to take away from
+- [03:39.680] that? Well, we're taking away a little
+- [03:42.480] bit, but we're not looking to take away
+- [03:44.080] money as this is so important that we're
+- [03:46.799] really, as you know, the United Nations
+- [03:48.640] is largely funded by us, but uh and it
+- [03:52.480] shouldn't be. It should be funded by
+- [03:53.840] everybody, but we're disproportionate as
+- [03:56.319] we always seem to be. But it's something
+- [03:58.560] that if it ever lived up to the
+- [04:00.239] potential in 10 minutes, it would make
+- [04:02.879] up the difference. That's the kind of
+- [04:04.640] power it could have. Right now, it
+- [04:06.799] doesn't have that power. Next, sir, this
+- [04:09.360] is a national security presidential
+- [04:11.280] memorandum that uh seeks to impose
+- [04:14.799] maximum pressure on the government of
+- [04:16.880] the Islamic Republic of Iran. Uh many of
+- [04:19.280] these provisions are similar uh to uh
+- [04:21.919] actions that your administration took
+- [04:23.600] during your first administration. The
+- [04:25.680] basic idea here is to have every
+- [04:28.240] department and agency or many
+- [04:29.520] departments and agencies uh in your
+- [04:31.440] government uh attempt to uh sanction and
+- [04:34.160] control Iranian activities particularly
+- [04:36.160] relating to the Iranian nuclear program
+- [04:38.720] and the Iranian export of terrorism
+- [04:40.880] through support of various proxy groups
+- [04:42.800] abroad. And the intent here is to give
+- [04:45.040] you all of the possible tools uh to uh
+- [04:48.800] I'd say engage with the Iranian
+- [04:50.720] government uh to ensure that going
+- [04:52.560] forward they are less of a malign actor
+- [04:54.400] on the world stage. So this is one that
+- [04:57.199] I'm torn about. Everybody wants me to
+- [04:59.360] sign it. I'll do that. Uh it's very
+- [05:02.000] tough on Iran. It's what we had before.
+- [05:04.960] We would have never had the problem. You
+- [05:06.639] would have never had October 7th. We
+- [05:08.880] would have never had the problem had the
+- [05:11.039] election gone the different way which it
+- [05:13.280] should have. Uh but this one I think
+- [05:17.199] more than made up for it. I think we're
+- [05:18.960] doing things and it shows that more than
+- [05:20.880] made up for it. Much more historic. The
+- [05:23.759] uh Iran situation hopefully I'm going to
+- [05:26.800] sign it. But hopefully uh we're not
+- [05:28.880] going to have to use it very much. We
+- [05:31.199] will see whether or not we can arrange
+- [05:33.680] or work out a deal with Iran
+- [05:36.479] and everybody can live together. And
+- [05:38.639] maybe that's possible and maybe it's not
+- [05:40.400] possible. So, I'm signing this and I'm
+- [05:44.240] unhappy to do it. But I really have not
+- [05:47.759] so much choice because we have to be
+- [05:50.479] strong and firm and I hope that it's not
+- [05:54.080] going to have to be used in any great
+- [05:55.759] measure at all. It'd be great if we
+- [05:58.320] could have a Middle East and maybe a
+- [06:00.400] world at total peace. Right now you
+- [06:03.360] don't have that. When I left you had
+- [06:04.880] peace all over the world and now you
+- [06:06.800] have the world is blowing up. Uh as you
+- [06:09.759] know BB is coming in to see me later.
+- [06:12.319] Others are coming in to see me. We'll
+- [06:14.080] see what we can do. But I'm signing this
+- [06:16.240] and hopefully it will be a document
+- [06:18.479] which won't be very important. Will
+- [06:20.479] hardly have to be used. So what kind of
+- [06:23.120] deal would you be prepared to Well,
+- [06:25.440] we're going to see. I mean, we're going
+- [06:26.720] to see uh they cannot have a nuclear
+- [06:29.280] weapon. With me, it's very simple. Iran
+- [06:32.560] cannot have a nuclear weapon. Do you
+- [06:34.639] support We don't want to be tough on
+- [06:36.080] Iran. We don't want to be tough on
+- [06:37.440] anybody, but they just can't have a
+- [06:38.880] nuclear weapon. Mr. President, you
+- [06:40.800] engage in conversations with your
+- [06:42.240] counterpart in Iran. I would do you want
+- [06:44.400] to block the sale of Iranian oil to
+- [06:46.400] other nations? Well, we have the right
+- [06:48.639] to do that, and that's what I did
+- [06:50.479] before. And they had no money. they
+- [06:52.319] wouldn't have had the money for Hamas or
+- [06:54.000] Hezbollah or anybody else. Uh I just uh
+- [06:59.199] it could have been solved this thing. It
+- [07:00.800] just
+- [07:02.400] if things went the way they should have,
+- [07:05.120] this would have been over long ago, but
+- [07:07.840] it's not over. How close do you think
+- [07:09.919] Iran is to developing nuclear weapons? I
+- [07:12.400] think they're close. I think they're
+- [07:14.240] close. They're too close. But again, you
+- [07:16.960] could go back four years. I would have
+- [07:18.400] said they would have had it during this
+- [07:19.759] intervening period. Uh but they're
+- [07:22.400] pretty close. Peter, and why say that
+- [07:24.319] you're unhappy to sign it if it's Iran
+- [07:27.280] and their proxies who have threatened to
+- [07:29.599] retaliate against you and your team by
+- [07:32.240] killing you guys for taking out Solomon?
+- [07:35.360] Well, they haven't done that and uh
+- [07:39.520] that would be a terrible thing for them
+- [07:41.120] to do. Not because of me. If they did
+- [07:43.120] that, they would be obliterated. That
+- [07:45.840] would be the end. I've left
+- [07:46.800] instructions. If they do it, they get
+- [07:49.680] obliterated. There won't be anything
+- [07:51.680] left and they shouldn't be able to do
+- [07:54.479] it. And Biden should have said that, but
+- [07:56.160] he never did. I don't know why. Lack of
+- [07:58.000] intelligence perhaps, but he never said
+- [08:00.479] it. Uh if that happens to a leader or
+- [08:05.599] close to a leader, frankly, if you had
+- [08:07.919] other people involved also, uh you would
+- [08:11.280] call for total obliteration of a state
+- [08:13.360] that did it. That would include Iran.
+- [08:15.599] So, I'm signing this and it's a very
+- [08:17.599] powerful document, but hopefully we're
+- [08:19.199] not going to have to use it. Mr.
+- [08:20.960] President, if the if the prime minister
+- [08:22.639] today were to ask your your help in
+- [08:25.919] striking at Iran's nuclear facilities to
+- [08:28.560] prevent the kind of progress towards a
+- [08:31.280] nuclear weapon, would you give him the
+- [08:33.680] green light? Would it either to do it
+- [08:35.599] himself or for the US to participate
+- [08:37.680] with them? I don't know that that's what
+- [08:39.680] he's going to be asking for. I have no
+- [08:41.440] idea that it is. you're telling me uh
+- [08:43.680] we're going to have a pretty long
+- [08:44.959] meeting. We're going to be discussing a
+- [08:46.560] lot of things. Not only that, but a lot
+- [08:48.560] of things and uh I'll let you know if
+- [08:52.240] the time comes to let you know, but
+- [08:53.920] right now that's not something that I
+- [08:56.320] can discuss. Mr. President, when you
+- [08:58.080] just said when you said if they do it,
+- [08:59.600] they get obliterated. Just to be clear,
+- [09:01.120] you're talking about if Iran made
+- [09:03.040] another made an attempt on on your life.
+- [09:05.680] Yeah. Yeah. That would be called total
+- [09:08.720] obliteration.
+- [09:10.720] Uh, and I can't imagine they do that. It
+- [09:15.279] should have been stated by Biden,
+- [09:18.240] but he didn't state it because he had no
+- [09:20.480] clue as you know, as everybody. What is
+- [09:22.800] your vision actually for uh
+- [09:25.440] relationship? Do you have anything else?
+- [09:27.120] No, that's all we have. My vision for
+- [09:28.800] what? Our relationship with Iran. And
+- [09:30.480] what do you I'd love to have a good
+- [09:32.240] relationship with everybody. They can't
+- [09:34.000] have a nuclear weapon. That was my only
+- [09:37.440] That was the only thing that was very
+- [09:38.959] important. they can't have a nuclear
+- [09:40.240] weapon.
+- [09:42.000] Beyond that, you know, would be very
+- [09:43.680] tough if they insist on doing that. They
+- [09:47.200] have some of their leadership, I can
+- [09:48.800] tell you right now, and maybe you know
+- [09:51.360] it, maybe you don't, but there are many
+- [09:54.160] people at the top ranks of Iran that do
+- [09:56.640] not want to have a nuclear weapon just
+- [09:58.640] for that very reason. Mr. President,
+- [10:01.440] what's your reaction to China's
+- [10:02.560] retaliatory tariffs? It's fine. It's
+- [10:05.839] fine. We're going to do very well
+- [10:07.440] against China and against everybody
+- [10:09.200] else. Right now, they've taken advantage
+- [10:12.160] of the Biden administration like I've
+- [10:14.959] never seen. I've never seen. The deficit
+- [10:17.360] with China is about a trillion dollars.
+- [10:21.279] Think of it. A trillion dollars. They're
+- [10:23.600] using our money to build their military.
+- [10:27.200] And Biden let that happen. You know,
+- [10:29.760] we're taking a lot of fires here. We We
+- [10:31.760] came back. This is like a different
+- [10:33.279] place. The good news is we're doing very
+- [10:35.839] well. We're doing well with countries
+- [10:37.200] that nobody expected we'd do well with.
+- [10:39.519] We are respected again as a nation.
+- [10:42.800] Maybe at a level that people haven't
+- [10:44.480] seen for many, many decades. But uh when
+- [10:48.399] I left, we didn't have any wars. I
+- [10:50.720] defeated ISIS 100% of the ISIS
+- [10:53.200] caliphate. And now the world seems to be
+- [10:56.079] ready to blow up. But we'll see if we
+- [10:58.240] can stop it. Mr.
+- [11:00.720] President, say it. Have you reached out
+- [11:02.800] to the Iranians by any kind of deal to
+- [11:04.399] start those? I would reach out. I mean,
+- [11:05.839] I have nothing. I I see I'm one that
+- [11:08.800] doesn't care whether I reach out or they
+- [11:10.399] reach out. A lot of people say, "Let
+- [11:11.920] them reach out, sir." To me, it doesn't
+- [11:14.480] matter. It's just it's just talk. Uh but
+- [11:18.399] uh I want to see everybody do well. I
+- [11:21.279] want to see great countries and I want
+- [11:22.720] to see peace in the Middle East and
+- [11:24.160] elsewhere. We're also working very hard
+- [11:26.800] with respect to Russia, Ukraine. That's
+- [11:29.200] a bloodbath. It's a total bloodbath.
+- [11:31.440] What's going on there is incredible.
+- [11:32.880] What's going on with the soldiers, young
+- [11:35.040] young soldiers being killed by the
+- [11:37.120] thousands.
+- [11:38.720] I mean, literally by the thousands and
+- [11:41.839] we want to see if we can get that
+- [11:43.120] stopped and I think we've had some very
+- [11:44.560] good talks. Any update on when you would
+- [11:46.399] speak to President G, sir? Any update on
+- [11:48.320] when you would speak to President? No,
+- [11:49.839] we'll speak to him at the appropriate
+- [11:51.200] time. I'm in no rush. I'm in no rush.
+- [11:53.680] bet that broke. Do you think that
+- [11:54.959] conversation can lend itself to the type
+- [11:57.600] of of freeze that it meant for the
+- [12:00.160] tariffs for for Canada and Well, we'll
+- [12:02.079] see what happens. I mean, well, there's
+- [12:03.760] a short-term freeze with Mexico, as you
+- [12:07.040] know, and with Canada, but they've
+- [12:10.480] agreed to be very, very strong on the
+- [12:12.240] border, stronger than they ever were by
+- [12:13.920] far, by a factor of about 30.
+- [12:17.040] And in addition to that, as you can see,
+- [12:18.880] we've been strong because we've had
+- [12:20.160] numbers like you've never seen before. I
+- [12:21.920] mean, the border is now closed, really
+- [12:23.760] closed. And with that being said, we're
+- [12:26.480] letting good people come through and we
+- [12:28.800] want good people to come into our
+- [12:30.639] country, but the border is closed. In
+- [12:33.200] your in your talk with President with
+- [12:35.200] Prime Minister Netanyahu today, do you
+- [12:37.120] intend to press him about how many
+- [12:38.800] deaths have been amongst Palestinians?
+- [12:40.560] Are you concerned about that? I talk
+- [12:42.240] about that, too. Both sides mean a lot.
+- [12:45.200] Uh, I talk about that. I talk about the
+- [12:47.440] other side. I talk about everything.
+- [12:49.600] What's your main message to him today
+- [12:51.279] during your meeting? Well, I'm here to
+- [12:53.040] listen. He's here to see me and I'm here
+- [12:55.519] to listen. So, will you not message at
+- [12:58.480] the right time? I'll give him my
+- [12:59.440] message. Will you continue to press
+- [13:01.360] forward for this idea that Jordan and
+- [13:02.639] Egypt take Palestinians from Gaza? Yeah,
+- [13:04.720] I I would like to see Jordan I'd like to
+- [13:06.480] see Egypt uh take some Look, the Gaza
+- [13:10.240] thing has not worked. It's never worked.
+- [13:13.920] And I feel very differently about Gaza
+- [13:16.480] than a lot of people. I think they
+- [13:17.920] should get a good, fresh, beautiful
+- [13:20.480] piece of land and we get some people to
+- [13:22.480] put up the money to build it and make it
+- [13:25.600] nice and make it uh habitable and
+- [13:28.800] enjoyable and make it a home. They don't
+- [13:31.440] want to leave though. How can you say
+- [13:32.800] they don't want to leave? I don't know
+- [13:34.079] how they could want to stay. It's it's
+- [13:36.320] uh it's a demolition site. It's a pure
+- [13:39.360] demolition site. If we could find the
+- [13:41.680] right piece of land or numerous pieces
+- [13:43.600] of land and build them some really nice
+- [13:47.279] places with plenty of money in the area,
+- [13:49.360] that's for sure. I think that would be a
+- [13:52.000] lot better than going back to Gaza,
+- [13:54.880] which has had just decades and decades
+- [13:57.120] of death. Where would those pieces of
+- [13:59.440] land be? Well, they could be in Jordan,
+- [14:01.440] and they could be in uh Egypt, and they
+- [14:04.079] could be in other places. is you could
+- [14:05.600] have more than two, more than one, but
+- [14:07.839] you could have more than two, and you'd
+- [14:10.320] have people living in a a place that
+- [14:12.800] could be very beautiful and safe and
+- [14:15.519] nice. Gaza has been a disaster for
+- [14:18.800] decades. Would the US pay for that? I
+- [14:22.959] don't think the I don't think the UN
+- [14:24.560] would pay, but I think there's plenty of
+- [14:26.000] people that would in the area. They have
+- [14:27.600] a lot of money. They certainly have a
+- [14:29.600] lot of money. Some of the countries over
+- [14:31.199] there that'd like to see it. I know that
+- [14:33.279] Saudi Arabia wants to see peace. I can
+- [14:35.440] see that. And uh many of the countries
+- [14:38.800] there, as far as I'm concerned, they all
+- [14:40.720] want peace. I think, you know, maybe I'm
+- [14:43.199] wrong on this, but I think Iran would
+- [14:44.800] like to see peace, too. They've had
+- [14:46.160] enough. Don't you think they've had
+- [14:47.279] enough? But the leaders But the leaders
+- [14:48.880] of Egypt and Jordan have said bluntly
+- [14:51.519] they they have no interest in doing
+- [14:53.360] this. Well, they may have said that, but
+- [14:54.959] a lot of people said things to me. They
+- [14:57.279] said they wouldn't take the anybody back
+- [14:58.959] in Venezuela and right now they're
+- [15:00.639] flying them right back into Venezuela
+- [15:02.480] and a lot of pe and they're doing the
+- [15:04.000] right thing in Venezuela. Uh the Panama
+- [15:06.880] Canal is an active discussion right now.
+- [15:09.199] They said things about that and uh
+- [15:13.600] virtually everything that's been said
+- [15:15.199] has been incorrectly stated based on the
+- [15:18.079] result amount to forcibly dis that
+- [15:21.040] amount to forcibly displacing those
+- [15:22.800] people from Gaza if they I don't think
+- [15:24.320] so. I think if they had the opportunity
+- [15:26.079] they'd love if they had an alternative
+- [15:27.839] to they have no alternative right now. I
+- [15:30.399] mean they're there because they have no
+- [15:32.160] alternative. What do they have? It is a
+- [15:34.720] big pile of of rubble right now. I mean,
+- [15:39.279] have you seen the pictures of it? Have
+- [15:40.880] you been there? It's terrible to live.
+- [15:43.600] Who can live like that? And very
+- [15:45.920] dangerous. There's shooting all over the
+- [15:47.519] place. There's bombing all over the
+- [15:49.120] place on both sides. No, I would think
+- [15:51.680] if they had an option of of moving to an
+- [15:55.040] either in a large group or various
+- [15:57.440] smaller groups and take care of the
+- [15:59.600] close to two million people, I would
+- [16:01.199] think that they would be thrilled to do
+- [16:03.680] it. They have no, you know, when you say
+- [16:05.199] about the Gaza Strip, they don't have an
+- [16:07.360] option. To be clear, you say they'd be
+- [16:09.759] thrilled. Very dangerous. They'd be
+- [16:10.959] thrilled to leave Gaza. Oh, I think
+- [16:12.880] they'd love to leave Gaza if they had an
+- [16:14.720] option. Right now, they don't have an
+- [16:15.920] option. What are they going to do? They
+- [16:17.120] have to go back to Gaza. But what is
+- [16:18.639] Gaza? There's practically not a building
+- [16:21.519] standing and they're very dangerous. You
+- [16:24.000] know, those buildings are shifting and
+- [16:26.240] they're falling down all over the place
+- [16:28.480] and and there's gunfire all over. It's
+- [16:32.480] going to be that way for a while. Mr.
+- [16:34.160] President, wouldn't it make more sense
+- [16:35.759] to evacuate people while the war was
+- [16:38.480] ongoing rather than now when there's a
+- [16:40.160] ceasefire, which is what you're talking
+- [16:42.480] about? But it was more dangerous when
+- [16:44.160] there were strikes overhead than now.
+- [16:45.920] Well, the strikes could start tomorrow.
+- [16:49.040] There's not a lot to There's not a lot
+- [16:50.880] left to strike. Exactly. It's a
+- [16:52.720] demolition site. The whole place is
+- [16:55.279] demolished. It's unsafe. It's
+- [16:57.759] unsanitary.
+- [16:59.519] It's a not a place where people want to
+- [17:02.160] live. Mr. President, nobody nobody's g
+- [17:04.959] it's they they have no alternative but
+- [17:07.039] to go back. If we gave them an
+- [17:08.559] alternative of living in a beautiful
+- [17:11.919] open place with some, you know, nice
+- [17:14.559] quarters there, nice housing of sorts.
+- [17:18.079] and we have the money in the Middle East
+- [17:20.160] to build that. Do you support Israelis
+- [17:21.919] actually moving back and creating those?
+- [17:23.919] Not necessarily. No, I just support uh
+- [17:27.520] cleaning it up and doing something with
+- [17:29.760] it, but it's failed for many decades.
+- [17:34.480] And somebody will be sitting here in 10
+- [17:36.240] years or 20 years from now and they'll
+- [17:38.000] be going through the same stuff, the
+- [17:39.520] wars. And you know they've had
+- [17:41.679] civilizations on Gaza, many
+- [17:44.559] civilizations on Gaza and they're buried
+- [17:47.200] in the sand. Secretary, it doesn't seem
+- [17:49.520] to work
+- [17:51.679] on Thank you, sir. On Elon Musk, um how
+- [17:54.960] often are you talking to him? And have
+- [17:56.960] there been ideas that he's brought to
+- [17:58.559] you that you said, "Oh, no, wait a
+- [17:59.919] minute. This is going a little too far."
+- [18:01.600] Oh, many ideas. But look, he's done a
+- [18:03.679] great job. Uh look at all the fraud that
+- [18:05.919] he's found in this uh US aid.
+- [18:09.600] It's a disaster what the people radical
+- [18:12.640] left lunatics. Uh they have things that
+- [18:15.440] nobody would have even believed. The the
+- [18:17.919] whole thing with hundred million spent
+- [18:20.240] on you know what with money going to all
+- [18:23.039] sorts of groups that shouldn't deserve
+- [18:24.559] to get any money with the money. I'd
+- [18:26.720] like to see what the kickbacks are. How
+- [18:28.559] much money has been kicked back? Who
+- [18:30.240] would spend that kind of money to some
+- [18:32.480] of the things that you read about and I
+- [18:34.240] read about and I see every night on the
+- [18:35.840] news and every morning when I read the
+- [18:37.360] papers, who would spend money for that?
+- [18:40.160] I would say this, the people that got
+- [18:42.400] all that money, are they kicking it back
+- [18:44.160] to the people that gave it from
+- [18:46.880] government? No, that's to me very very
+- [18:49.840] corrupt. The real question is how much
+- [18:52.000] of a kickback has there been? And one of
+- [18:54.240] the things I want to investigate
+- [18:56.720] rapidly because I've never seen anything
+- [18:58.559] to this extent, the train that's being
+- [19:01.760] built between Los Angeles and San
+- [19:04.000] Francisco
+- [19:05.520] is the worst managed project I think
+- [19:08.240] I've ever seen. And I've seen some of
+- [19:09.760] the worst. Billions and billions,
+- [19:12.320] hundreds of billions of dollars over
+- [19:14.640] budget. In fact, I read where you could
+- [19:16.960] take every single person that was going
+- [19:18.720] to go on the train and get the finest
+- [19:20.880] limousine service in the world and take
+- [19:22.880] them back and forth with limousines and
+- [19:25.440] you'd have hundreds of billions of
+- [19:26.960] dollars left over. It is the worst
+- [19:29.200] thing. And we're going to start an
+- [19:30.480] investigation in that because it's not
+- [19:32.320] possible. I built for a living and I'd
+- [19:35.120] build on time, on budget. Uh it's
+- [19:37.679] impossible that something could cost
+- [19:40.080] that much. And now it's not even going
+- [19:42.000] to San Francisco and it's not going to
+- [19:44.000] Los Angeles. is they made it much
+- [19:46.160] shorter. So now it's at little places
+- [19:49.280] way from San Francisco and way away from
+- [19:53.200] Los Angeles. No, we're going to start a
+- [19:55.280] big investigation on that because it's
+- [19:58.000] I've never seen anything like it. Nobody
+- [20:00.400] has ever seen anything like it. The
+- [20:02.400] worst overruns that there have ever been
+- [20:05.120] in the history of our country. And it
+- [20:07.600] wasn't even necessary. I would have
+- [20:09.120] said, "You don't buy it. You take an
+- [20:10.320] airplane. It cost you $2. It cost you
+- [20:12.640] nothing. you take an airplane, but this
+- [20:16.320] got started and if you have to, you
+- [20:18.080] drive. You can drive. Are there other
+- [20:20.799] They have hundreds of billions of
+- [20:22.480] dollars of cost overruns
+- [20:24.880] and it's not even the same project. It's
+- [20:26.720] much shorter. It's way outside of San
+- [20:29.280] Francisco and way outside of Los
+- [20:30.960] Angeles. So, we're going to be looking
+- [20:32.720] into that. Is that Doge is going to
+- [20:35.440] investigate the train? No, I'm doing
+- [20:37.120] that myself. Some of these Doge
+- [20:39.200] engineers that Elon Musk has helping him
+- [20:41.280] are as young as 19 years That's good.
+- [20:43.039] They're very smart though, Peter.
+- [20:44.320] They're like you. They're very smart
+- [20:45.679] people. Thank you. Uh, has he Have you
+- [20:48.880] he met any of these guys? No, I haven't
+- [20:50.799] seen them. They work actually out of the
+- [20:52.400] White House. They're smart people. Uh,
+- [20:54.880] unlike what they do in the control
+- [20:57.120] towers where we need smart people. We
+- [20:59.440] should use some of them in the control
+- [21:00.799] towers where we were putting people that
+- [21:02.640] were uh actually intellectually
+- [21:05.440] deficient. That was one of the
+- [21:07.600] qualifications is you could be
+- [21:09.280] intellectually deficient. Uh, no. We
+- [21:12.799] need smart people. Some are young and
+- [21:14.400] some are not young. Some are not young
+- [21:16.320] at all, but they found great things.
+- [21:18.640] Look at the list of things. I I'll maybe
+- [21:20.480] I'll do it tomorrow. I'll read off a
+- [21:22.159] list of 15 or 20 things that they found
+- [21:24.720] inside of the US aid. It's it's has to
+- [21:28.960] be corrupt. Nobody could approve that.
+- [21:30.960] They could only approve that if they
+- [21:32.320] were getting kickbacks.
+- [21:34.320] And you're talking about you're talking
+- [21:35.760] about hundreds of millions of dollars.
+- [21:38.080] And it sounds like you're gonna wind
+- [21:39.840] down USAD.
+- [21:42.000] It sounds like it. I mean, I think so.
+- [21:44.159] So, so when that when that happens,
+- [21:46.159] which part of the government? Well, I
+- [21:47.679] could see Marco Rubio being in charge,
+- [21:49.919] State Department, because they're giving
+- [21:51.440] money to I mean, some of the money is
+- [21:53.840] well spent, I guess, but uh much of it
+- [21:56.880] is really fraudulent. And on the
+- [21:59.120] education department, why nominate Linda
+- [22:01.919] McMahon to be the education department
+- [22:04.240] secretary if you're going to get rid of
+- [22:05.679] the education? Because I told Linda,
+- [22:08.159] Linda, I hope you do a great job and put
+- [22:10.799] yourself out of a job. I want her to put
+- [22:13.440] herself out of a job. Education
+- [22:15.360] department. So, we're ranked number 40
+- [22:17.600] out of 40 schools, right? We're ranked
+- [22:20.159] number one in cost per pupil. So, we
+- [22:22.159] spend more per pupil than any other
+- [22:23.760] country in the world. And we're ranked
+- [22:25.600] at the bottom of the list. We're ranked
+- [22:27.280] very badly. And what I want to do is let
+- [22:30.000] the states run schools. I believe
+- [22:32.080] strongly in school choice, but in
+- [22:34.159] addition to that, I want the states to
+- [22:35.840] run schools, and I want Linda to put
+- [22:38.240] herself out of a jail.
+- [22:41.840] With an executive order, you I'd like to
+- [22:43.520] be able to do it. Yeah, I would like to
+- [22:45.039] be able to. Look, if I could give the
+- [22:46.640] schools back to Iowa and Idaho and
+- [22:48.799] Indiana and all these places that run
+- [22:51.360] properly. There's many of them. I I
+- [22:53.200] think so. If you look at the list, uh,
+- [22:57.600] Denmark, uh, Sweden, Norway, believe it
+- [23:01.520] or not, China's doing very well on that
+- [23:03.760] list, a list of well-educated, you know,
+- [23:05.840] where they run their school system well.
+- [23:08.559] Uh, you have a lot of countries, not
+- [23:11.520] surprising names. I think that if you
+- [23:14.240] moved our schools into some of these
+- [23:16.080] states that are really well-run states,
+- [23:17.760] they would be as good as Denmark and
+- [23:19.360] Norway and Sweden and some of the other
+- [23:21.360] states. And then you'd have the the
+- [23:23.919] lagards and you know who they are. I
+- [23:25.440] don't have to go to it but uh you'd have
+- [23:27.679] the lagards the same lagards that are
+- [23:29.360] lagards with everything else including
+- [23:31.120] crime but even them you'll break it into
+- [23:33.760] systems. As an example if you went to
+- [23:35.520] New York you go to Westchester County
+- [23:37.280] you go to Duchess County you go to
+- [23:39.919] Suffach and Long Island and Nassau and
+- [23:42.640] Long Island. have maybe six or seven
+- [23:45.039] locations and you have New York City
+- [23:47.200] which would include the five burrows and
+- [23:50.799] I think even that would run much better
+- [23:52.640] than it does right now. Uh, same thing
+- [23:55.200] with Los Angeles or California. You'd
+- [23:57.520] have Riverside. You'd have you'd break
+- [23:59.600] it up into six or seven, but most of
+- [24:01.760] them would be states and you'd have one
+- [24:05.360] like in Iowa. You give it to the state
+- [24:07.360] of Iowa. You give it to the state of
+- [24:09.039] Indiana. You give it these are really
+- [24:11.200] wellrun states. They don't have debt.
+- [24:13.679] They don't have problems. They don't
+- [24:15.279] have any crimes, you know, relatively
+- [24:18.080] speaking to speak of. uh and you would
+- [24:21.520] have education that would be the
+- [24:24.320] equivalent of Norway and Denmark and
+- [24:27.760] various other places that are at the top
+- [24:29.600] of the list. So, we're at the bottom of
+- [24:31.360] the list and we're the most expensive.
+- [24:32.880] We're at the top of the list when it
+- [24:34.240] comes to cost per pupil. We spend more
+- [24:36.720] money per pupil than any other nation in
+- [24:39.600] the world. And yet, we're rated number
+- [24:41.840] 40. The last ratings came out, you saw
+- [24:44.640] them. So, they they talk about 40
+- [24:46.799] countries. We're rated number 40. And I
+- [24:49.760] say that if we did this, we would we
+- [24:52.080] would go 20, 30 notches up. We could do
+- [24:54.559] great and we would have some of the best
+- [24:56.400] districts in the world. But are you
+- [24:57.919] looking to do that with an executive
+- [24:59.200] order, sir, or do you need to work with
+- [25:00.880] Congress? Well, there are some people
+- [25:02.159] that say I could. I think I'd work with
+- [25:04.080] Congress. I think we'd get Look, we'd
+- [25:05.679] have to work with the teachers union
+- [25:07.120] because the teachers union is the only
+- [25:08.640] one that's opposed to it. Nobody else
+- [25:10.880] would want to hold them back. Look, we
+- [25:13.360] have to tell the teachers union, we're
+- [25:15.039] rated last in the world in education of
+- [25:17.760] the top 40. We're rated. We were 38, now
+- [25:22.400] we're 40. We went to 39. We went to 40.
+- [25:25.039] We're 37. But we're at 40 now. The thing
+- [25:28.240] just came out. That's under Biden.
+- [25:30.240] Remember that. Secretary Rubio announced
+- [25:32.400] a deal this week that would allow
+- [25:34.559] potentially American citizens for
+- [25:36.320] criminals to be put in a different
+- [25:38.559] country. Is that something you're
+- [25:39.919] looking to do? No. I I didn't know that
+- [25:42.000] he announced that yet, but if he did,
+- [25:43.679] it's fine. Yeah, we have uh hard
+- [25:46.799] hardened criminals, horrible people. You
+- [25:49.520] see him pushing people into subways. The
+- [25:51.679] train is coming. Last week, guy walking
+- [25:54.159] around just sees somebody waiting for
+- [25:56.960] the train. Train's coming 40 miles an
+- [25:58.880] hour and he gets pushed into the subway.
+- [26:02.880] And that happens all the time. These are
+- [26:04.559] sick people. Uh if we could get them out
+- [26:07.440] of our country, we have other countries
+- [26:10.000] that would take them. They could it's no
+- [26:11.760] different than a prison system except it
+- [26:13.440] would be a lot less expensive and it
+- [26:15.520] would be a great deterrent. Send them to
+- [26:17.679] other countries. We we want if we could
+- [26:19.919] go a step further. In other words, we're
+- [26:22.240] talking about getting the criminals out
+- [26:23.919] of our country that come in through
+- [26:25.919] other countries illegally, right? The
+- [26:27.919] illegal migrants as I call them. Well,
+- [26:30.080] we have people that are just as bad as
+- [26:32.000] them in our country. If we could get
+- [26:34.159] them out, I'd be very happy to get
+- [26:37.919] said that he would wanted you to pay a
+- [26:39.600] fee for that. Would you pay that? Well,
+- [26:41.120] it's a lot very small fee compared to
+- [26:43.440] what we pay to private prisons, but
+- [26:45.520] under what? And a very, very small fee.
+- [26:47.679] I don't know. We'll have to find that
+- [26:48.799] out legally. I'm just saying if we had
+- [26:50.880] the legal right to do it, I would do it
+- [26:53.600] in a heartbeat. I don't know if we do or
+- [26:55.520] not. We're looking at that right now.
+- [26:57.360] But we could make deals where we'd get
+- [26:59.200] these animals out of our country. And
+- [27:01.520] you know, if you take the shooters, the
+- [27:03.600] people that hit old ladies in the back
+- [27:06.240] of the head with a baseball bat when
+- [27:08.080] they're not looking, they walk down the
+- [27:09.760] street, uh, the people that you and you
+- [27:12.240] see it, the people that take out a gun
+- [27:13.919] and shoot you for no reason at all. If
+- [27:16.559] we could get these animals out of our
+- [27:18.159] country and put them in a different
+- [27:19.679] country under the supervision of
+- [27:22.240] somebody that made a relatively small
+- [27:24.960] fee to maintain these people because you
+- [27:28.320] know what? Uh, these are criminals. You
+- [27:30.799] call them hardened criminals. Uh they've
+- [27:33.360] been in jail 40 times. There's one 42
+- [27:37.520] times and every time the person gets
+- [27:40.080] out, it's a he. Every time he gets out,
+- [27:42.400] he commits another crime within 24
+- [27:44.400] hours. And it's a heinous crime. It's a
+- [27:46.240] rough crime. We don't want these people
+- [27:48.240] in our country either. We don't want
+- [27:50.320] them in our country. If we had the
+- [27:52.159] option, if we had the option to get them
+- [27:54.399] out and let him be based in some other
+- [27:56.320] country at a fraction of the cost and
+- [27:59.039] frankly they could keep them because
+- [28:00.399] these people are never going to be any
+- [28:01.840] good. That person that has been arrested
+- [28:04.640] 42 times or 22 times or 17 times and is
+- [28:08.960] all in for manslaughter and everything
+- [28:11.200] else and only gets out because of a very
+- [28:13.200] weak judicial system that only goes
+- [28:15.840] after people like Trump. They don't go
+- [28:17.520] after the criminals. They don't go after
+- [28:19.120] people like this. and they laugh at our
+- [28:21.840] law. If that took place, you would have
+- [28:24.320] a lot less crime automatically. So
+- [28:29.760] on Guantanamo Bay, is there enough space
+- [28:32.559] there to accommodate? There's a lot of
+- [28:34.559] space to accommodate a lot of people.
+- [28:36.159] Yeah. So we're going to use it. Can you
+- [28:37.679] talk a little bit? We have it. It's
+- [28:39.039] already up. It's uh we have it for
+- [28:41.360] nothing, but we can do less expensive
+- [28:44.080] and even more secure. We've had other
+- [28:47.039] countries come to us saying, "We would
+- [28:48.720] love to do that. we would love to take
+- [28:51.200] your criminals and we'll maintain that
+- [28:54.640] we'll, you know, will be their jail. Uh,
+- [28:58.080] and I'm only talking for the most severe
+- [29:00.080] cases. Like I watched that guy on tape
+- [29:02.720] pushing the man into the subway last
+- [29:06.320] week. That man that did that is a real
+- [29:11.520] bad guy. Many, many arrests.
+- [29:14.799] And you think you're going to convince
+- [29:16.159] him someday to be good and a wonderful
+- [29:19.279] uh wonderful citizen for our country?
+- [29:21.200] It's never going to happen. I want to
+- [29:23.360] get those people out. I'd love to get
+- [29:24.720] them out along with the illegal
+- [29:26.080] migrants. The migrants are rough, but we
+- [29:28.320] have some bad ones, too. I'd like to get
+- [29:29.919] them out. It would be all subject to the
+- [29:31.840] laws of our land. And we're looking at
+- [29:33.360] that to see if we can do it. Mr.
+- [29:34.880] President have offered to take American
+- [29:36.799] citizens. What other countries have
+- [29:38.799] offered to take these Americans? Uh
+- [29:40.240] numerous many. And Marco brought it up
+- [29:42.880] today. I'm glad he did. Uh because a lot
+- [29:46.240] of people are thinking it. When I watch
+- [29:48.720] some of the crimes being committed in
+- [29:50.480] New York City and Chicago, look at
+- [29:52.320] Chicago. The the volume of crime they
+- [29:55.360] have and the the viciousness of the
+- [29:57.200] crime. It's these people are horrible
+- [29:59.440] people. And if somebody thinks they're
+- [30:02.720] going to be wonderful citizens someday,
+- [30:04.559] they're wrong. It's not going to happen.
+- [30:06.880] It's not going to happen. They're bad.
+- [30:08.399] These are hard, tough criminals. In many
+- [30:11.360] cases, they're crazy. They're absolutely
+- [30:13.360] crazy, but they're very dangerous. If I
+- [30:15.679] could get them out of the country and be
+- [30:17.840] in some other country where they're glad
+- [30:19.440] to have them because they make a small
+- [30:20.960] fee compared to what we'd pay to a
+- [30:22.720] private prison or to, you know, put them
+- [30:24.960] in one of our prisons that cost even
+- [30:26.640] more money. I think it would be great.
+- [30:28.720] I'd love to get him the hell out of our
+- [30:30.320] country. Thank you very much, everybody.
+- [30:32.640] Thank you guys.
+- [30:35.679] Super Bowl. Thank you. I don't want to
+- [30:37.919] say, but there's a certain quarterback
+- [30:39.440] that seems to be a pretty good winner.
+- [30:41.039] And just last one because you mentioned
+- [30:42.480] him many times. What do you think about
+- [30:44.240] Joe Biden signing on with a talent
+- [30:46.159] agency?
+- [30:47.840] You got to be kidding. He signed on with
+- [30:50.640] a talent agency. Yes, he's got some
+- [30:52.799] entertainment agents now. I think he's
+- [30:54.799] got bigger problems than that. I really
+- [30:56.720] do. I think he's got much bigger
+- [30:58.240] problems than that. But I wish him well.
+- [31:01.039] We inherited a mess. This place is a
+- [31:03.679] mess, but it's quickly being solved. The
+- [31:06.399] problem we're going to make America
+- [31:07.600] great again. Thank you very much.
+- [31:10.080] Next time at Thank you.

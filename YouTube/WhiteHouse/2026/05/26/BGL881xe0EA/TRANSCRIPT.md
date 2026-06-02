@@ -1,0 +1,520 @@
+<!-- source: https://www.youtube.com/watch?v=BGL881xe0EA -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: BGL881xe0EA -->
+<!-- date_published: 2026-05-26T18:40:26+00:00 -->
+<!-- date_accessed: 2026-06-02T02:33:19.906156+00:00 -->
+
+# Transcript: Vice President JD Vance Holds a State Attorneys General Roundtable on Anti-Fraud Initiatives
+
+- [00:14.347] The Vice President: Good afternoon, everybody.
+- [00:15.181] How we doing? Good.
+- [00:16.082] Thank you all for being here.
+- [00:17.217] Please take a seat.
+- [00:28.495] Okay, so what we're going to do is make some
+- [00:31.831] introductory remarks from me, from Andrew Ferguson
+- [00:34.667] and from Stephen Miller, and then we'll kick out
+- [00:37.103] the press and have the real conversation.
+- [00:39.406] But first, let me say thanks to all of you for
+- [00:41.641] being here -- very gratified and proud of the
+- [00:44.277] fact that we have 15 different state ag offices
+- [00:47.781] represented here today who are focused on helping us
+- [00:50.417] in combating fraud all over our government.
+- [00:53.553] And let me be very brief here about what we're
+- [00:56.689] trying to do here.
+- [00:57.424] So, one of the things we've realized in
+- [00:59.759] combating fraud is that the resources of the
+- [01:02.228] federal government, while vast, can be supplemented
+- [01:04.564] and aided by a lot of the people who know best
+- [01:06.666] what's happening in their states, which is the
+- [01:08.601] attorneys general represented here today.
+- [01:11.104] And they have a lot of legal resources, they have
+- [01:13.206] a lot of prosecutorial resources and, of course,
+- [01:15.875] they have the desire to prevent fraud as much as
+- [01:17.444] we do.
+- [01:18.144] And so, I appreciate these leaders for being here,
+- [01:19.512] because we're going to work together, state and
+- [01:21.614] federal government, to try to combat fraud.
+- [01:23.783] I'm particularly gratified here that this is not a
+- [01:25.919] partisan effort.
+- [01:26.686] I believe we have a couple of Representatives from
+- [01:29.289] the Attorney General's in Connecticut and Oregon.
+- [01:32.859] And as I've said repeatedly, this does not
+- [01:35.161] need to be -- this should not be a partisan effort.
+- [01:37.430] Everybody should care about fraud, everybody
+- [01:39.666] should care about rooting out fraud, everybody
+- [01:41.267] should care about saving the American taxpayers
+- [01:43.036] money.
+- [01:43.703] And importantly, everybody should care about actually
+- [01:45.805] protecting the programs that only work and are
+- [01:49.175] only properly funded if it's not -- if the money
+- [01:52.011] funding those programs isn't being stolen by
+- [01:54.214] fraudsters.
+- [01:54.881] So, let me just recap for the benefit of our friends
+- [01:58.852] in the media.
+- [01:59.519] In just two months, we've exposed billions of
+- [02:02.222] dollars in benefits that have been stolen from the
+- [02:05.358] American people.
+- [02:06.125] We've referred over $22 billion in fraudulent
+- [02:08.695] small business loans back to the Treasury for
+- [02:10.697] collection.
+- [02:11.631] We've deferred more than $1.3 billion in fraudulent
+- [02:15.068] Medicaid reimbursements that were coming from
+- [02:17.871] various states, particularly California.
+- [02:20.206] We put a six-month hold on enrollments for new
+- [02:22.175] hospice and home health care providers, because so
+- [02:24.210] many of the newer hospice providers were not
+- [02:26.646] actually providing hospice services, but were just
+- [02:29.749] focused on fraud.
+- [02:30.683] So, we're going to cut that out for a little bit
+- [02:32.819] and try to get to a place where we can actually
+- [02:34.821] certify that the people providing hospice services
+- [02:37.123] are actually providing those very necessary and
+- [02:39.559] important services.
+- [02:40.960] We've recovered taxpayer funds from the $135
+- [02:44.230] billion stolen after the flood gates were opened in
+- [02:47.267] the immediate aftermath of COVID.
+- [02:49.168] We have found $6.3 billion in suspected fraudulent
+- [02:52.505] government contracts, which were mostly awarded
+- [02:55.141] during the last administration, and that
+- [02:56.743] has stopped.
+- [02:57.944] And finally, we've blocked $60 million in student aid
+- [03:00.146] fraud that should have gone to young people
+- [03:01.481] trying to get an education but instead were going to
+- [03:02.815] fraudsters.
+- [03:03.483] And I think the theme here of the anti-fraud task
+- [03:06.786] force up to this point has really been that we're
+- [03:11.991] protecting two classes of victims here.
+- [03:13.760] We're protecting the American taxpayers who
+- [03:15.528] shouldn't have their money stolen by fraudsters; and
+- [03:18.131] of course, we're protecting the people who
+- [03:19.599] need these services.
+- [03:20.900] Fraud is not a victimless crime.
+- [03:22.835] This is not somebody who gets to make some money
+- [03:24.671] for violating the law and, otherwise, it's not a big
+- [03:27.473] deal.
+- [03:28.541] This is people who rely on critical services,
+- [03:31.277] students who rely on student loan services,
+- [03:34.213] sick people who rely on hospice care, a number of
+- [03:35.782] small businesses who rely on the availability of
+- [03:37.517] these loans so that they can grow their business
+- [03:41.955] and hire people.
+- [03:43.423] All of these people, all of our fellow Americans,
+- [03:47.293] have been taken advantage by fraudsters, and the
+- [03:49.429] task force is here to stop it.
+- [03:51.230] So, without further ado, let me kick it over to
+- [03:53.600] Andrew Ferguson, who's going to talk a little bit
+- [03:55.201] about how we're going to work with these state
+- [03:57.036] attorneys general and its attorneys general, right,
+- [03:59.739] not attorney generals?
+- [04:02.742] It's very counterintuitive.
+- [04:03.910] We've got to change this.
+- [04:05.011] Maybe the group here together, we've got enough
+- [04:06.846] of a critical mass of attorneys generals to
+- [04:09.449] change it.
+- [04:10.116] But Andrew, attorneys general, I'm never going
+- [04:13.686] to be able to get that right and the media, of
+- [04:16.356] course, is going to make fun of me for it.
+- [04:17.690] Andrew, over to you.
+- [04:18.358] Thank you.
+- [04:19.025] Andrew Ferguson: Thank you, Mr. Vice President,
+- [04:20.360] and welcome to all the state attorneys general.
+- [04:21.694] I'm very grateful -- you've traveled all this
+- [04:23.296] way to discuss one of the most pressing problems
+- [04:26.332] this nation confronts.
+- [04:28.501] When I was Solicitor General of Virginia, I
+- [04:30.703] served alongside many of you and fought against the
+- [04:34.040] Biden administration to protect our border, our
+- [04:36.309] religious liberty, and our right to keep and bear
+- [04:38.378] arms.
+- [04:39.145] And today, we're here to talk about another problem
+- [04:41.180] that we need to partner with you to fight, that
+- [04:42.915] the Obama administration and Biden administration
+- [04:45.118] made much worse, which is widespread fraud against
+- [04:47.520] our benefits programs.
+- [04:48.955] Our benefits programs, and our whole society, were
+- [04:52.792] designed for high trust people.
+- [04:55.194] The American people rightly expect that their
+- [04:58.564] fellow citizens will deal with them and with the
+- [05:00.533] government honestly and fairly.
+- [05:02.902] That's why, for up until the last decade or so,
+- [05:05.104] shelves in our grocery stores and our pharmacies
+- [05:07.674] were open and readily accessible.
+- [05:09.776] We weren't accustomed to seeing security guards
+- [05:12.478] outside of banks or jewelry stores.
+- [05:14.313] We didn't have to worry about organized retail
+- [05:16.549] theft or industrial scale scammers or the type you
+- [05:18.951] all protect your citizens from every day.
+- [05:21.721] Nor did we have to worry about radical fraudsters
+- [05:24.023] raiding our benefits program.
+- [05:25.425] But sadly, that is no longer true.
+- [05:28.594] It's become clear that huge groups of people in
+- [05:30.363] this country are taking advantage of our
+- [05:32.565] long-standing culture of trust to enrich themselves
+- [05:35.568] at the expense of the American people.
+- [05:37.770] I think a brief example would be illustrative.
+- [05:40.973] Just this weekend, I was shopping at a big home
+- [05:43.476] improvement store to buy a drill to do some home
+- [05:45.945] improvement, and I had to hit a call button and wait
+- [05:48.748] 15 minutes for a sales associate to come unlock a
+- [05:51.484] steel cage and a steel padlock to get access to a
+- [05:55.455] drill.
+- [05:56.355] It's why deodorant is now locked behind plastic
+- [05:58.458] windows at pharmacies.
+- [06:00.059] It's why security guards are seen at every store in
+- [06:03.029] America.
+- [06:03.696] Social trust has evaporated and people are
+- [06:06.299] taking advantage of it, and the same is true with
+- [06:09.135] our federal benefits programs.
+- [06:11.204] Huge segments of the population have decided to
+- [06:13.473] take advantage of this generosity and trust of
+- [06:16.209] American citizens through deception and fraud and
+- [06:19.312] billions and billions of dollars each year leave
+- [06:22.415] our programs into the hands of pirates,
+- [06:24.417] fraudsters, scammers, and gangs who treat American
+- [06:27.653] generosity as little more than a get quick rich
+- [06:30.590] scheme.
+- [06:31.758] We shouldn't have to live this way.
+- [06:34.994] American people are right to long for a period where
+- [06:37.597] we could trust each other.
+- [06:38.631] But while we are living this way, the government
+- [06:40.867] must act now to protect American citizens and
+- [06:44.070] their social programs.
+- [06:45.004] That is why President Trump has focused on this
+- [06:47.673] issue, and that is why the president selected the
+- [06:50.076] vice president of the United States, a man who
+- [06:52.445] sits atop the rest of the government, to coordinate
+- [06:54.647] the entire federal government's efforts to
+- [06:56.983] stop fraud in all of our benefits programs.
+- [06:59.619] And that requires us to do two things.
+- [07:02.455] First, we have to build protections within the
+- [07:04.524] programs to make sure taxpayer dollars don't
+- [07:06.926] enter the hands of fraudsters.
+- [07:08.461] That's what the task force, under the vice
+- [07:10.797] president's leadership, has been doing for months.
+- [07:12.999] With our agency partners, we've uncovered tens of
+- [07:15.568] billions of dollars in fraud and prevented
+- [07:17.470] billions from going out the door into the pockets
+- [07:20.006] of fraudsters.
+- [07:20.706] For agencies that had robust anti-fraud systems
+- [07:23.676] that the Biden administration turned off,
+- [07:25.778] the task force, and the agencies have turned them
+- [07:27.713] back on and prevented billions of dollars from
+- [07:29.882] leaving the agencies.
+- [07:30.550] And for the agencies that didn't have those systems,
+- [07:33.452] the task force has come alongside them and
+- [07:35.588] harnessed the power of American AI innovation to
+- [07:38.591] build automated systems to keep that money in the
+- [07:41.127] agency.
+- [07:41.794] It saves thousands of man hours every year, and
+- [07:44.363] billions of dollars that otherwise would exit the
+- [07:46.499] agencies and enter the hands of fraudsters.
+- [07:49.535] But the second thing we must do, and the reason we
+- [07:51.804] brought you all here, is that we must restore
+- [07:54.640] deterrence by finding, prosecuting, and punishing
+- [07:58.678] fraudsters.
+- [08:00.046] Unless fraudsters believe that there will be
+- [08:02.315] consequences attached with attacking America's
+- [08:04.784] benefits programs, they will keep doing it.
+- [08:07.386] Our fraud detection systems will stop much of
+- [08:09.555] it but cannot stop it all.
+- [08:11.524] The only way to defeat the fraudsters is by making
+- [08:13.826] sure that they know, every single one of them, that
+- [08:16.362] if they try to commit fraud, they will be
+- [08:18.231] pursued, arrested, prosecuted and jailed.
+- [08:22.368] And that is why the Department of Justice has
+- [08:24.003] created the brand-new National Fraud Enforcement
+- [08:26.239] Division to coordinate the federal government's
+- [08:28.574] anti-fraud law enforcement efforts, along with the
+- [08:30.943] task force and the Homeland Security Council.
+- [08:33.546] And this is where you come in.
+- [08:35.481] The federal government wants to partner with all
+- [08:37.550] of you to combat this fraud.
+- [08:39.819] All of you controlled your state Medicaid fraud
+- [08:42.154] control units, all of your Medicaid fraud control
+- [08:45.124] unit lawyers on the front line of the war against
+- [08:47.727] fraud, it is extremely important that they be
+- [08:50.162] effective, ready to fight as much fraud as they can.
+- [08:53.132] And that's why HHS will be conducting a thorough
+- [08:55.768] review of all of your Medicaid fraud control
+- [08:58.471] units to ensure that the nearly $0.5 billion that
+- [09:01.774] the American taxpayers give you every year to
+- [09:04.243] fight fraud will be used to fight as much fraud as
+- [09:07.179] possible.
+- [09:08.481] Now, in a moment, the head of the fraud division,
+- [09:10.850] Assistant Attorney General Colin McDonald, will
+- [09:12.985] explain all of the ways that state AGs and DOJ can
+- [09:16.455] partner to coordinate and cooperate and put as many
+- [09:19.725] fraudsters in jail as possible.
+- [09:21.227] But before I close, I just want to remind all of us
+- [09:23.863] why this really matters.
+- [09:25.765] This isn't just about restoring social trust in
+- [09:28.601] America; this is about saving these programs so
+- [09:31.737] that your constituents who have paid for them can
+- [09:34.874] actually use them when they need them.
+- [09:37.443] Fraud is bleeding these programs dry; we've seen
+- [09:40.713] countless of examples in this task force of
+- [09:43.215] Americans trying to use their benefits, benefits
+- [09:45.851] they've been paying for for decades, only to find
+- [09:48.621] out that some fraudster has stolen those benefits
+- [09:51.157] and they don't have -- they're not available to
+- [09:53.326] them anymore.
+- [09:54.393] Just last week, the Department of Justice,
+- [09:56.762] under Assistant Attorney General McDonald's
+- [09:59.198] leadership, indicted 15 fraudsters in Minnesota.
+- [10:02.568] There the fraud had gotten so bad that a major
+- [10:05.037] program designed to protect Americans from
+- [10:07.106] homelessness, including veterans, had to be shut
+- [10:10.176] down.
+- [10:10.876] It was so riddled with fraud it could not be
+- [10:13.379] maintained.
+- [10:14.914] Your constituents are American citizens paying
+- [10:17.883] for these programs.
+- [10:19.452] They expect these programs to be there when they need
+- [10:21.587] them.
+- [10:22.254] And unless we stop the fraud, these programs will
+- [10:25.491] not be around in their current form for your
+- [10:27.526] constituents to use when they hit hard times, just
+- [10:30.930] as they wanted to make them available for their
+- [10:32.565] neighbors in the same circumstances.
+- [10:34.967] So, I encourage all of you, partner with us,
+- [10:37.737] partner with the department, partner with
+- [10:39.672] the task force, make your Medicaid fraud control
+- [10:42.274] units the elite fraud fighting forces that they
+- [10:45.211] are intended to be.
+- [10:46.112] And with that, I'll turn it over to the deputy
+- [10:48.014] chief of staff and Homeland Security Adviser,
+- [10:49.949] Stephen Miller.
+- [10:50.616] Stephen Miller: Thank you.
+- [10:52.818] And thank you again to the vice president for leading
+- [10:57.757] this effort, for helming this task force, for
+- [11:00.326] bringing us all together here.
+- [11:01.527] I think you can all agree that this is the fastest
+- [11:05.064] in history, that a government task force has
+- [11:08.501] traveled from creation to action.
+- [11:12.104] Your typical lead time is going to be a year of
+- [11:14.206] meetings before anything happens, and that's if
+- [11:16.509] you're lucky.
+- [11:17.476] And within weeks of this task force being
+- [11:19.178] established, we've seen the largest ever slate of
+- [11:22.214] indictments, recovered funds, search warrants,
+- [11:25.651] raids, seizures, investigations, and new
+- [11:29.355] legal actions to stop, disrupt and prevent fraud.
+- [11:32.858] What we've learned, which is not surprising to those
+- [11:34.960] of us who have spent some time in this area, is that
+- [11:37.163] fraud is every bit as bad as President Trump said it
+- [11:40.633] was, and even worse.
+- [11:42.635] So, in other words, everything we found either
+- [11:44.737] confirms our worst fears or exceeds them.
+- [11:47.840] That's the bad news.
+- [11:48.641] The good news is that the best team in government,
+- [11:51.844] under the leadership of Vice President Vance, has
+- [11:54.647] been assembled to deal with it.
+- [11:56.649] And of course, one of those men who you'll hear
+- [11:58.584] from a second is sitting to my right here, the
+- [12:01.087] associate attorney general for fraud enforcement,
+- [12:03.789] Colin McDonald.
+- [12:04.490] But before I yield the floor, I do want to just
+- [12:07.093] touch on one of the points that Andrew hit on in his
+- [12:10.696] remarks.
+- [12:11.997] All of the systems in our country, whether you're
+- [12:14.100] talking about voting, whether you're talking
+- [12:16.035] about entitlements, whether you're talking
+- [12:17.670] about welfare benefits, were set up based on the
+- [12:21.207] honor system.
+- [12:22.274] They were set up based on the idea that you could
+- [12:24.076] trust the average person, through their own
+- [12:27.246] morality, to abide by the rules and comply with the
+- [12:30.249] law.
+- [12:31.083] And so, the way most welfare works in most
+- [12:33.119] states and most places is we take your word for it.
+- [12:36.255] If you fill out a piece of paper and you say your
+- [12:38.457] kids are hungry, you are going to get food stamps.
+- [12:42.394] We don't check as a country if you even have
+- [12:44.897] kids.
+- [12:45.998] In fact, as basic as that, we don't even check if you
+- [12:48.300] even have children, you will just start getting
+- [12:50.369] the checks.
+- [12:51.737] And so, what's happened to our country is we became a
+- [12:55.708] society, as we've seen with the Somali refugee
+- [12:58.410] problem in Minnesota, where you have a large
+- [13:00.613] number of people that are not following the honor
+- [13:03.649] system, they're not playing by the rules,
+- [13:05.384] they're not abiding by our laws.
+- [13:07.052] And the amount that has been fleeced from us is in
+- [13:09.555] the hundreds of billions of dollars.
+- [13:11.857] I believe, based on what I've seen and what I've
+- [13:13.792] heard, is that we could balance the federal budget
+- [13:17.029] if the only dollars that went out of the Treasury
+- [13:20.032] went to individuals who were properly, lawfully
+- [13:23.736] and correctly eligible to receive them.
+- [13:26.472] And that ultimately is going to be what we have
+- [13:28.507] to do as a country.
+- [13:29.241] In the meantime, because of the vice president's
+- [13:30.576] leadership, you are seeing the most muscular, robust,
+- [13:33.479] aggressive, dedicated, determined and speedy
+- [13:36.448] effort to shut down criminal fraud that has
+- [13:39.051] not only ever occurred in the history of this
+- [13:40.452] country, but in any developed nation.
+- [13:42.421] So, thank you.
+- [13:43.489] The Vice President: Thank you, Stephen.
+- [13:45.591] Colin?
+- [13:46.258] Colin McDonald: Thank you, Mr. Vice President.
+- [13:48.594] 50 days ago today -- 50 days ago today, Acting
+- [13:52.798] Attorney General Todd Blanche announced the
+- [13:55.034] creation of the National Fraud Enforcement Division
+- [13:57.770] at the Department of Justice.
+- [13:59.605] And today, 50 days later, the Fraud Division has
+- [14:02.208] announced 450 -- 450 major fraud events occurring
+- [14:07.880] across the country, from charges to convictions to
+- [14:11.917] sentences.
+- [14:12.785] We are off to a rapid start to protect you, the
+- [14:16.655] American taxpayer, and ensure that your dollars
+- [14:19.525] stay where they belong and that is in your pocket.
+- [14:23.229] When an individual's money is stolen, that individual
+- [14:27.366] takes it personally and does everything they can
+- [14:30.135] to recover their money.
+- [14:31.103] This task force, under the vice president's
+- [14:33.806] leadership, we are here to take it personally every
+- [14:37.476] time someone decides to rob the United States of
+- [14:40.613] their money.
+- [14:41.280] We are here to take it personally when someone
+- [14:44.316] decides to take money from a program designed to give
+- [14:48.320] money, food, health care to the needy, the sick,
+- [14:51.924] and the elderly.
+- [14:52.625] That is what the fraud division is here to do,
+- [14:55.394] it's to take it personally for you, the United States
+- [14:58.297] of America, when your money is stolen.
+- [15:01.467] In the last 50 days our work includes the
+- [15:03.669] unprecedented charges against 15 defendants for
+- [15:06.538] Medicaid fraud schemes in Minnesota.
+- [15:08.474] It includes charges in a $650 million Sober Homes
+- [15:09.842] Medicaid fraud scheme in Arizona.
+- [15:11.176] It includes a guilty plea in a $270 million Medicaid
+- [15:13.646] fraud scheme in California.
+- [15:24.023] Those are just a few of the successes of the fraud
+- [15:27.426] Division and the Department of Justice in
+- [15:29.094] the last 50 days and we're only getting started.
+- [15:33.132] This is just the beginning of our fight against fraud
+- [15:36.402] and that's where these partners come into play,
+- [15:40.005] because we need your help.
+- [15:41.740] Our division is called the National Fraud Enforcement
+- [15:44.310] Division for a reason.
+- [15:46.045] It's not the Washington, DC Fraud Task Force, it's
+- [15:49.315] the National Fraud Enforcement Division,
+- [15:51.016] because the fraud problem is national.
+- [15:53.986] And our state partnerships are critical to solving
+- [15:57.389] the fraud crisis in our country.
+- [15:59.091] So, I'm going to give three things that our
+- [16:02.294] state partners here can do right now today.
+- [16:05.898] Number one, we heard about the Medicaid fraud control
+- [16:09.501] units, re-energize and fully mobilize, fully
+- [16:13.906] maximize your state's Medicaid fraud control
+- [16:16.942] units.
+- [16:17.676] When we're done, we want to rename those into the
+- [16:20.512] Making Fraud Completely Unprofitable Unit, MFCUU.
+- [16:25.384] These units are your state's and really the
+- [16:27.753] country's first line of defense against Medicaid
+- [16:30.889] fraud.
+- [16:31.690] How many active investigations do they
+- [16:33.425] have?
+- [16:34.093] How many are ready to be charged?
+- [16:35.794] If partnered up with DOJ, how many could be charged
+- [16:39.164] in the next 90 days?
+- [16:41.400] Under your leadership, the MFCUU units can flourish.
+- [16:45.704] Second, join the DOJ's newly launched Special
+- [16:49.575] Attorneys Program.
+- [16:51.076] This program has unlocked $300 million to combat
+- [16:54.980] fraud, drug trafficking, human trafficking, and
+- [16:57.950] crimes committed by aliens in your state.
+- [17:01.220] This grant program will pay for you to send
+- [17:04.022] attorneys to join the Fraud Division or your
+- [17:06.692] local US Attorney's office.
+- [17:08.527] In addition to paying the full cost of prosecutors
+- [17:11.063] you send the DOJ; you can receive a 20 percent
+- [17:13.999] premium to boost your justice system staffing
+- [17:17.469] and capacity.
+- [17:19.138] Third, and this is critical, bring your
+- [17:21.907] state's investigators and data to the table.
+- [17:25.711] For us to bring a case we need documents, we need
+- [17:28.881] witnesses.
+- [17:29.882] Bring your documents and bring your witnesses to
+- [17:32.418] the table.
+- [17:33.085] Don't run with your ball and go home, come to the
+- [17:36.522] table and solve this problem with us.
+- [17:39.925] Your state's data, including Medicaid payment
+- [17:42.594] and claims records, and the expertise of your
+- [17:45.097] investigators, are essential to uncovering
+- [17:47.332] fraud.
+- [17:48.300] We've developed a successful playbook for
+- [17:50.736] exploiting this kind of data to prosecute
+- [17:53.705] fraudsters.
+- [17:54.973] Next week, we'll be on the road to announce a
+- [17:57.876] partnership with a state that is leading the way in
+- [18:01.046] advancing coordination efforts with the fraud
+- [18:03.615] division.
+- [18:04.550] The state AG and the MFCUU unit are taking aggressive
+- [18:07.853] action against fraud.
+- [18:09.288] The state auditor, the state AG and county
+- [18:11.723] prosecutors will be participating in our
+- [18:13.592] special attorney program, and the state treasurer
+- [18:16.728] and secretary of state are joining a statewide
+- [18:19.231] benefits fraud task force comprised of federal and
+- [18:22.134] state partners, which will be chaired by the US
+- [18:24.736] Attorney's Office.
+- [18:25.804] And we invite you all to join us in similar
+- [18:28.173] efforts.
+- [18:29.041] It is our mission to combat fraud no matter how
+- [18:32.177] big, and no matter how small, no matter how hard,
+- [18:35.747] hold criminals accountable, protect
+- [18:37.783] victims of crime, and restore trust in our
+- [18:40.052] government.
+- [18:40.953] Come join us in the nationwide fight against
+- [18:43.555] fraud, we are ready to partner with you.
+- [18:46.225] The Vice President: Thank you, Collin.
+- [18:49.328] And let me just leave one final thought here before
+- [18:51.997] we dismiss the press and get down to the business
+- [18:53.899] of the meeting.
+- [18:54.700] So, as Andrew very ably pointed out, these are not
+- [18:58.904] victimless crimes.
+- [18:59.972] Sometimes the most vulnerable people in our
+- [19:01.473] community are the ones who suffer when we don't take
+- [19:03.976] fraud seriously.
+- [19:05.611] One of the cases that was part of Colin's series of
+- [19:09.114] indictments last week in Minnesota stood out to me,
+- [19:13.218] and I think highlights how particularly egregious
+- [19:15.888] some of these fraudsters can be.
+- [19:18.190] And it's a man who was supposed to be providing
+- [19:21.460] services to allow elderly people to live full and
+- [19:24.596] independent lives.
+- [19:26.365] And what happened instead is that the man who was
+- [19:28.800] supposed to provide these services reimbursed by the
+- [19:31.270] Medicaid program was providing nothing, no
+- [19:34.740] services, no help, no check ins.
+- [19:38.410] And the very man, the vulnerable elderly man
+- [19:41.213] that he was supposed to be protecting and looking
+- [19:43.849] after, was reimbursed by the taxpayer in order to
+- [19:46.451] do exactly that.
+- [19:48.320] That man died.
+- [19:50.289] And one day before he died, after months of
+- [19:53.058] being neglected by the caretaker who was getting
+- [19:55.494] reimbursed by the American people, one day before he
+- [19:58.263] died, he submitted his final reimbursement for
+- [20:01.266] services he never provided for a man he never cared
+- [20:03.802] for.
+- [20:05.137] And that man lived his final moments on this
+- [20:08.340] earth neglected while a fraudster got rich by
+- [20:13.478] providing services that he never actually provided.
+- [20:17.115] That's what we're trying to stop, ladies and
+- [20:18.784] gentlemen, that's what we have to fight back
+- [20:20.385] against.
+- [20:21.486] It's a shame that anything like that happens, but if
+- [20:24.022] it does happen, the only way to protect those
+- [20:26.825] people and the only way to protect the American
+- [20:28.827] taxpayer is to ensure that the fraudsters go to
+- [20:32.331] prison, and that they stop this ridiculous scam on
+- [20:35.334] the American people.
+- [20:36.501] So, with that, I'm looking forward to the meeting.
+- [20:38.537] Thank you, press.
+- [20:39.972] We're going to talk in private now.
+- [20:41.373] Take care, guys.

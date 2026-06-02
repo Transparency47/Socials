@@ -1,0 +1,952 @@
+<!-- source: https://www.youtube.com/watch?v=F53sdPTvPBE -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: F53sdPTvPBE -->
+<!-- date_published: 2026-04-07T16:17:19+00:00 -->
+<!-- date_accessed: 2026-06-02T02:35:25.972809+00:00 -->
+
+# Transcript: Vice President JD Vance Delivers Remarks in Budapest, Hungary
+
+- [00:06.980] Unidentified: And a heartfelt thanks go to
+- [00:09.390] (inaudible), it's always an uplifting experience
+- [00:10.910] to listen to her singing both the anthems.
+- [00:12.920] Dear patriots, the host of today's event is arriving,
+- [00:17.450] who has been a politician for nearly 40 years.
+- [00:20.140] As a courageous member of the opposition,
+- [00:22.390] as early as the second half of the 1980s,
+- [00:24.630] before the fall of the Iron Curtain,
+- [00:27.190] he dreamed of a sovereign Soviet influence free world.
+- [00:33.950] And did a great deal to ensure that after 40 years
+- [00:36.780] of communist, socialist destruction
+- [00:38.610] of the country of Hungary in 1990,
+- [00:42.290] the regime change would finally take place.
+- [00:44.270] Since then, he has spent a total of five terms,
+- [00:46.960] that is 20 years, in the Prime Minister's office.
+- [00:49.430] A true patriot whose political mission
+- [00:52.760] standing up to the globalist establishment,
+- [00:56.330] his illiberal thinking and remarkably bold political ideas
+- [00:59.080] are increasingly viewed.
+- [01:00.710] As an example to follow by politicians around the world.
+- [01:06.030] The influence and power of the Alliance of Patriots for Europe,
+- [01:09.540] which he founded, are growing steadily.
+- [01:12.240] It has been 10 years since, in the summer of 2016,
+- [01:15.690] he was the only Prime Minister in the European Union
+- [01:18.040] to express his support
+- [01:19.470] of President Donald Trump's policies.
+- [01:22.330] Today, he is one of the U.S.
+- [01:24.340] President's closest allies and friends,
+- [01:26.700] thanks to which we are experiencing a golden age
+- [01:28.900] of American-Hungarian relations.
+- [01:31.970] Ladies and gentlemen, Hungary's Prime Minister Viktor Orbán.
+- [01:36.220] ♪ (music playing) ♪
+- [02:32.380] Prime Minister Orbán: Thank you, thank you.
+- [02:35.320] Esteemed vice president, esteemed American friends,
+- [02:39.280] esteemed celebrating crowd,
+- [02:41.070] I would like to warmly and respectfully greet
+- [02:47.850] the vice president of the United States of America.
+- [02:50.600] Welcome to Budapest, Mr. Vice President.
+- [02:56.560] I thank you all for accepting our invitation
+- [03:01.740] and for celebrating together with us
+- [03:04.840] the day of Hungarian American friendship.
+- [03:07.570] There is a saying in Hungary which goes like this --
+- [03:13.310] a man is best characterized by his friends.
+- [03:21.430] We are very happy,
+- [03:23.110] and we are very grateful to the divine powers
+- [03:27.580] that be that we have such an important man as our friend.
+- [03:38.350] And the eagle has landed in Hungary, as they say,
+- [03:42.590] and the ancient, ancient Hungarian bird,
+- [03:46.870] the Turul bird, welcomes the eagle here in Hungary.
+- [03:55.880] I think we have not ever had, in our history,
+- [04:00.970] such a joint day.
+- [04:02.800] This is not a simple diplomatic event;
+- [04:06.070] this is a meeting point, if you wish,
+- [04:09.300] of the struggles and the hopes of the two peoples,
+- [04:13.120] the golden era of Hungarian American relations.
+- [04:17.510] And the political and business outcome of this relationship
+- [04:23.020] is not a cause, but it's a consequence.
+- [04:25.260] The basis of Hungarian American friendship is civilizational
+- [04:30.250] and is spiritual in nature.
+- [04:33.990] Two freedom loving people meet here today.
+- [04:37.310] Who would love their freedom better more than the Americans?
+- [04:41.690] The United States of America is a country born
+- [04:44.780] in a freedom fight.
+- [04:46.980] They are fighting a globalist empire to be free.
+- [04:51.230] They built themselves a huge country.
+- [04:54.640] They needed only, what, 250 years to build this country.
+- [05:00.130] So, may the United States of America
+- [05:04.680] be happy and celebrate on their 250th anniversary.
+- [05:11.550] And who would love freedom more than Hungarians?
+- [05:16.030] There is no other nation in Europe
+- [05:20.000] which has had more empires that wanted to occupy them
+- [05:24.490] than the Hungarians.
+- [05:26.930] Every time someone wanted to oppress us
+- [05:30.840] we stood up with the sword, with bloodshed,
+- [05:34.670] sometimes with enduring work,
+- [05:36.640] but we fought against every oppressing empire.
+- [05:40.390] We didn't win every freedom fight of ours.
+- [05:44.040] Our 1,100 years of history is testament to the fact
+- [05:49.000] that our struggle was never in vain.
+- [05:52.230] The conquerors are no longer there and we prevail.
+- [05:57.520] We are still here, we're still alive.
+- [06:04.960] We are alive, we are prospering and everything
+- [06:08.860] is given to make us the winners of the next century.
+- [06:13.220] And I believe --
+- [06:14.430] we believe that this is going to be the century of Hungarians.
+- [06:18.330] Distinguished ladies and gentlemen,
+- [06:26.640] the distance between America and Hungary is huge.
+- [06:31.440] It's an ocean that separates us. And despite this,
+- [06:36.480] the freedom struggles of the two nations bind us together.
+- [06:40.990] In the American War of Independence,
+- [06:43.370] Michael Kovats was a Hussar officer
+- [06:46.960] who organized the cavalry of the Continental Army.
+- [06:50.600] Lajos Kossuth was celebrated in America.
+- [06:53.660] After World War I,
+- [06:56.000] our country was occupied by looting countries.
+- [07:03.530] Harry Hill then told American general --
+- [07:09.320] defended the Hungarian National Museum
+- [07:18.830] and thereby made it possible for us to keep our treasures
+- [07:26.190] and for the treasures to be not stolen.
+- [07:28.890] The general's statue is still there
+- [07:31.050] at Freedom Square in Hungary.
+- [07:33.430] And we also respect Ronald Reagan as a hero,
+- [07:36.740] because he decided that he's going to win the Cold War
+- [07:40.180] and that he's going to liberate the peoples of Europe
+- [07:44.260] from the Soviet occupation.
+- [07:47.630] And not only did he decide, but he launched this effort,
+- [07:51.300] and he allowed us to return to the freedom-loving peoples.
+- [07:56.290] Praise be to Ronald Reagan.
+- [08:03.050] Esteemed Mr. Vice President,
+- [08:06.950] Bartok, Teller, Neumann, Curtis Zucker, Pulitzer
+- [08:10.790] and all the others are people who desired freedom,
+- [08:15.920] so they found a home in the New World.
+- [08:18.900] They became successful in your country
+- [08:22.370] and brought fame to their new and their old country alike.
+- [08:27.480] And I personally also remember quite well
+- [08:31.190] the decisive role of President Bush
+- [08:35.500] in allowing us to end communism
+- [08:38.150] and to send home the Soviet soldiers.
+- [08:40.760] In 1989, he not only visited Budapest,
+- [08:44.220] but he also made it a condition
+- [08:48.740] that the reburial of the victims of 1956 had to be organized,
+- [08:54.690] and that led us to the reinstatement of democracy
+- [08:57.860] and freedom in Hungary.
+- [09:00.420] We thank him for that.
+- [09:08.160] Distinguished ladies and gentlemen,
+- [09:10.930] Americans and Hungarians,
+- [09:12.940] their friendship has endured even in those difficult years
+- [09:18.840] when American Democrats wanted to turn
+- [09:25.080] the 1,000-year-old Christian Hungary
+- [09:27.240] into a leftist, progressive country.
+- [09:29.600] However, one cannot fight the laws of physics.
+- [09:35.210] Freedom-loving people cannot be converted.
+- [09:39.520] And to liberalist ideologies,
+- [09:42.130] the same thing will happen always.
+- [09:44.280] We will still be here and they are nowhere.
+- [09:47.130] And the Hungarian American friendship
+- [09:49.360] is shining again in its old glory.
+- [10:00.760] Distinguished Hungarian and American patriots,
+- [10:06.840] we are grateful to President Donald Trump for this pivot.
+- [10:11.590] He was the one who ended the power of globalist
+- [10:17.860] forces driven by ideologies
+- [10:20.560] and announced the era of strong nations.
+- [10:23.740] He was the one who turned on the power of the progressive elite,
+- [10:27.890] who called all the patriots of the world to arms
+- [10:33.870] by saying it is not a sin to be patriotic, it's a virtue.
+- [10:47.700] The president has shown that patriotic policy
+- [10:53.780] is also successful,
+- [10:55.880] can be successful government practice.
+- [10:58.390] During his presidency,
+- [10:59.910] America has again placed its own interest in the first place
+- [11:04.040] and has given back the honor of national politics.
+- [11:08.240] His economic patriotism has protected jobs,
+- [11:11.490] brought industry back home,
+- [11:13.490] and has proven that globalization
+- [11:16.510] is not an end in itself.
+- [11:18.810] He ended illegal migration, he dusted off the old act.
+- [11:23.920] Without borders there is no country.
+- [11:26.750] Without sovereignty there is no freedom.
+- [11:29.460] We have every right and every reason to send
+- [11:34.780] our best heartfelt wishes to the American president
+- [11:40.250] and wish him a lot of success.
+- [11:53.750] The success of President Trump
+- [11:56.130] also is sending a message to Europe,
+- [11:58.500] that national interest will not isolate, but will reinforce.
+- [12:03.720] A nation has shared objectives, to be strong,
+- [12:07.500] to be independent, to remain free.
+- [12:11.290] We will not allow others to decide on our fate.
+- [12:15.720] We will implement our own plans.
+- [12:18.270] Our government has been waiting for this moment since 2010,
+- [12:23.550] and it was excruciatingly difficult
+- [12:27.180] to fight the Brussels and Washingtonian progressives.
+- [12:32.340] Your victory, Mr. Vice President,
+- [12:35.400] was almost like a resuscitation,
+- [12:39.190] and we actually seized the opportunity.
+- [12:41.520] While Europe was still reeling from the result,
+- [12:45.200] we already placed down the basics,
+- [12:47.130] the foundations of our cooperation.
+- [12:48.910] In politics you not only need to be courageous,
+- [12:52.020] but you also need to be good in timing.
+- [13:03.470] And one needs to also know how to be heard.
+- [13:09.180] You don't have to be heard when you have a reason,
+- [13:11.570] but you have to be heard when it's worth it.
+- [13:17.530] We are visa free to travel to America.
+- [13:19.830] We are cooperating in economy, in defense, in high tech,
+- [13:24.100] in innovation, we have launched joint programs in energy.
+- [13:29.350] And so simple, two sovereign nations are thinking
+- [13:33.040] and working together to make this world
+- [13:35.610] a better place for our people and the basis for this
+- [13:39.580] is provided by our love for freedom.
+- [13:41.660] My dear friends, beside the president,
+- [13:46.340] there is also somebody
+- [13:48.050] without whom we could not be standing here today.
+- [13:51.310] This man is actually
+- [13:53.960] and soon going to be standing here next to me,
+- [13:57.250] it is indeed Vice President Vance.
+- [14:00.440] In his person we have secured a very special friend.
+- [14:18.590] It is difficult to understand us Hungarians.
+- [14:22.990] It is not only about knowledge,
+- [14:25.500] you also need patience with us Hungarians
+- [14:28.280] because we are an ancient nation and, similarly to Americans,
+- [14:33.640] we also consider ourselves to be exceptional.
+- [14:37.470] There's a lot of things we know,
+- [14:39.500] and we have huge loads of experience.
+- [14:43.320] We consider it only natural that everybody should understand
+- [14:48.280] what is evident to us.
+- [14:50.220] Therefore, we don't pay too much attention
+- [14:52.360] to actually making others understand us.
+- [14:54.760] If they don't understand us, all the worse for them.
+- [15:06.230] Furthermore, we also insist on our mistakes.
+- [15:10.640] We are insistent that it is easy
+- [15:15.060] to make friendship with perfect people.
+- [15:18.550] If we are not good for somebody the way we are,
+- [15:21.380] well, it's their loss.
+- [15:23.470] So, it is not easy to be friends with us Hungarians.
+- [15:33.410] But Vice President Vance is actually doing quite well,
+- [15:39.400] because he understands the old Christian prayer,
+- [15:43.070] don't look at our sins, look at the fate of the church.
+- [15:46.990] And this is especially true for us Hungarians.
+- [15:56.700] Distinguished ladies and gentlemen,
+- [15:58.330] Vice President Vance already wrote how progressive liberalism
+- [16:06.060] is turning its back on the problems of simple people
+- [16:10.610] when it was not easy to talk about it.
+- [16:13.450] He wrote in his book that even if there is
+- [16:17.010] this make false social sensitivity,
+- [16:20.740] in the end the left will always attack its own nation.
+- [16:24.010] And we know that -- we've been there, we've done that.
+- [16:27.290] But there is also a liberating political thesis
+- [16:31.700] that we know from him. He once came to Europe
+- [16:35.750] and, as one of the Westerners among the Europeans,
+- [16:41.100] he said the following:
+- [16:44.030] Europe is facing dangers from within.
+- [16:48.380] Europe is not going to be defeated by an external enemy,
+- [16:54.170] but by an internal one.
+- [16:56.340] And with this he wrote history.
+- [17:05.060] He liberated in Europe the intellectual
+- [17:09.790] and political forces that were wearing and suffering
+- [17:15.640] from the muzzle of political correctness.
+- [17:18.100] So, viva, viva, viva!
+- [17:21.980] (applause)
+- [17:31.770] And he is in possession of fearful knowledge,
+- [17:36.910] or rather a life instinct.
+- [17:39.910] From a great distance he notices if foreigners/aliens
+- [17:45.440] want to intervene into elections.
+- [17:48.130] And that is why he leads the commission
+- [17:51.900] investigating into these interventions,
+- [17:54.110] because interventions are made here and elsewhere.
+- [17:58.490] We have seen that in the United States.
+- [18:01.390] We pay attention too and, if we add up what we have seen,
+- [18:06.610] then that might not be a nice image on the Ukrainians.
+- [18:11.540] Mr. Vice President couldn't have come to the better place?
+- [18:14.260] And I recommend everyone keep their hands off Hungary.
+- [18:27.250] Dear friends, the other idea of Mr. Vice President
+- [18:36.320] is that progressive notions hog tie people,
+- [18:40.000] they hold back performance, they attack the values
+- [18:45.970] that once made our nations great.
+- [18:49.690] He started organizing
+- [18:51.640] the intellectual homeland background,
+- [18:54.300] which is capable to place the renewal of the United States
+- [18:59.540] on a stable foundation.
+- [19:00.960] That is how we Hungarians entered the picture.
+- [19:03.840] We ourselves also fought with our progressive liberals
+- [19:08.320] who held back the performance of Hungarians.
+- [19:11.950] Our solutions are also similar: god's family, homeland
+- [19:16.530] and, of course, work/labor.
+- [19:28.520] This is the foundation of our friendship, Mr. Vice President,
+- [19:34.040] therefore, it is dignified and justified
+- [19:37.340] that we can celebrate the day of Hungarian American friendship
+- [19:41.730] in your presence.
+- [19:48.880] My friends, for the Americans and Hungarians
+- [19:54.730] who are worried about the future of Western civilization,
+- [19:58.300] they share a problem in common
+- [20:00.800] and that problem is called Brussels.
+- [20:05.060] The progressive forces of the Western world
+- [20:08.020] have lost two important battles.
+- [20:10.790] First, they lost in Hungary, which opened the way
+- [20:15.530] for the other Central European countries.
+- [20:18.900] Then they received a massive blow.
+- [20:21.360] They lost overseas.
+- [20:22.990] Thanks to President Trump, Vice President Vance,
+- [20:27.320] the Republican Party and the American people,
+- [20:30.390] they have drawn back from there.
+- [20:38.390] They have drawn back from there,
+- [20:40.780] and they have established themselves in Brussels.
+- [20:44.380] They have received countless blows,
+- [20:47.270] yet their power remains fearful.
+- [20:50.630] They are capable of preventing Europa from returning
+- [20:56.380] to the path of common sense and traditional values.
+- [20:59.560] Progressive ideologies keep the originally
+- [21:05.270] Christian foundation European Union tied up.
+- [21:09.890] Brussels calls for gender ideology, woke and migration,
+- [21:15.410] and they wish to make that the organizing force of Europe.
+- [21:18.630] They are persecuting their political opponents.
+- [21:22.300] They use the institutions of the European Union
+- [21:25.160] to silence everyone who endangers their power.
+- [21:33.880] They are ridiculous and openly unlawful procedures
+- [21:38.490] against the patriots.
+- [21:39.760] There are persecutions by intelligence services
+- [21:43.460] and there's impotent governance.
+- [21:45.470] The continent slowly but surely will get crippled.
+- [21:50.160] Still, they want to continue the war in Ukraine.
+- [21:53.520] They say that they will support the Ukrainians
+- [21:57.500] till the very end.
+- [21:58.770] They don't even make a secret of it.
+- [22:01.530] Their dream is to send their own young to the eastern front
+- [22:05.390] under the flags of the European Union.
+- [22:08.260] Now, when the energy supply of the world is about to collapse,
+- [22:12.740] instead of peace, they introduce new and new sanctions.
+- [22:16.670] This is more than just being irresponsible;
+- [22:21.300] it is equal to suicide.
+- [22:23.140] If this continues, first the energy prices will skyrocket
+- [22:27.500] and after that the European reserves will be depleted.
+- [22:31.480] When the Ukrainians blew up the Nordic Stream
+- [22:36.060] they shut a blind eye.
+- [22:37.430] And now that the Ukrainians have imposed
+- [22:39.770] an oil blockade on Hungary, Brussels does not represent us
+- [22:44.880] but is in favor of the Ukrainians.
+- [22:47.150] And we should have no doubts the wish to make the attempt --
+- [22:53.430] attempted attack against the TurkStream as ridiculous.
+- [22:56.740] We are being sanctioned because alone in Europe
+- [22:59.960] we pointed out
+- [23:01.290] the self-destructive policies of Europe
+- [23:04.190] and the games played by the Ukrainians.
+- [23:05.990] We suffer EUR1 million a day in sanctions and penalties
+- [23:09.510] because we protect our borders.
+- [23:11.600] There are procedures against us
+- [23:13.160] for protecting our children from gender ideology.
+- [23:15.720] We are under daily attack because we follow the rules
+- [23:19.180] of common sense and economy and commerce.
+- [23:21.920] Distinguished ladies and gentlemen,
+- [23:25.950] the years ahead of us will not be easy,
+- [23:29.170] Europe is threatened in parallel
+- [23:31.760] by a financial and energy crisis.
+- [23:34.960] If Europe does not change,
+- [23:37.470] they will be losers of both crises.
+- [23:40.600] And no matter what a wonderful heritage we have,
+- [23:47.600] the Western world will tumble down in history.
+- [23:52.910] And therefore, we freedom loving Americans and Hungarians
+- [23:57.100] have to join forces.
+- [23:58.590] We must save Western civilization,
+- [24:02.010] and for that, we must fight the progressives in Brussels.
+- [24:06.330] We must close the Russian Ukrainian world,
+- [24:09.070] and we must resolve the energy crisis.
+- [24:24.650] Fellow Hungarian countrymen, we Hungarians,
+- [24:27.320] for that must perform a task
+- [24:29.520] that no one else can do instead of us.
+- [24:34.190] On Sunday there will be elections in Hungary,
+- [24:36.670] and these elections are not only about us.
+- [24:40.380] At these elections it is a future and a fate,
+- [24:44.190] a destiny that we choose for ourselves.
+- [24:46.160] This election is about what path we wish to continue on.
+- [24:51.230] One path leads to a world where we lose our independence,
+- [24:57.950] where we are torn from our friends
+- [25:01.200] and where eventually we shall become insignificant,
+- [25:05.230] where they would order us to take up arms,
+- [25:08.820] send soldiers to the war, and send money to Ukraine.
+- [25:12.560] But there is another path.
+- [25:13.960] The other path is the path of freedom,
+- [25:16.820] the path of a world where we can stand up
+- [25:20.150] as a pride nation in our place,
+- [25:23.490] set out a destiny where we can build the 21st century Hungary
+- [25:29.540] successfully and freely,
+- [25:30.880] where we can do whatever we want,
+- [25:33.400] provide support for families,
+- [25:35.900] freedom for Hungarians, and peace for Hungary.
+- [25:49.120] And for that -- for that reason, from here, I ask you,
+- [25:54.040] I implore you that we stand up for freedom,
+- [25:56.870] we stand up for our nation, we stand up for our future,
+- [26:00.660] we stand up for the peace and security of Hungary.
+- [26:05.310] Because if we do not do so,
+- [26:06.990] no one will do that instead of us.
+- [26:09.100] But if we do it, and if we prevail,
+- [26:12.470] then, my friends, we shall be capable of wonderful things.
+- [26:18.170] It shall be from here, Hungary,
+- [26:21.150] that the reconquest of Europe will start,
+- [26:25.450] which will put in power new patriotic governments,
+- [26:29.020] and the power will be established,
+- [26:31.330] which after Washington DC will change Brussels
+- [26:35.050] and from the headquarters of the progressives
+- [26:37.300] will turn it into a bastion of patriots.
+- [26:40.170] God bless Hungary.
+- [26:41.510] God bless the United States.
+- [28:21.220] Unidentified: Distinguished patriots, dear guests,
+- [28:26.390] one of the youngest vice presidents
+- [28:29.110] in the history of the United States
+- [28:30.810] and the 50th, JD Vance is up next.
+- [28:35.250] ♪ (music playing) ♪
+- [29:08.800] The Vice President: Thank you, thank you.
+- [29:10.580] Wow.
+- [29:29.980] Thank you. Please, please.
+- [29:34.100] So, before I started my remarks, I actually had a special guest
+- [29:40.710] that asked that I give him a phone call.
+- [29:43.360] And we'll see, let's hope he actually answers
+- [29:46.770] or this is going to be very embarrassing.
+- [29:50.390] All right.
+- [29:51.660] Voice recording: I'm sorry,
+- [29:52.890] the person you were trying to reach
+- [29:54.170] has a voicemail box that has not been set up yet.
+- [29:56.500] The Vice President: OK, try one more time.
+- [30:03.430] I've got a good signal here. It's ringing, it's progress.
+- [30:25.670] Hello, Mr. President, how are you?
+- [30:27.320] The President: Hey, JD, could you give me a second?
+- [30:29.360] I'm just --
+- [30:34.350] Wow, that's something good you have there, JD.
+- [30:41.850] The Vice President: Mr. President,
+- [30:43.240] you are on with about 5,000 Hungarian patriots
+- [30:45.940] and I think they love you even more than they love
+- [30:48.080] Viktor Orban.
+- [30:49.970] The President: Well, I can't believe that.
+- [30:51.860] I can't believe that,
+- [30:53.130] because I love Hungary and I love that Viktor.
+- [30:56.370] I'll tell you, he's a fantastic man,
+- [30:58.300] we've had a tremendous relationship, and he does a job.
+- [31:02.470] Remember this, he didn't allow people to storm your country
+- [31:06.500] and invade your country like other people have
+- [31:09.360] and ruin their countries, frankly.
+- [31:11.510] He's kept your country good,
+- [31:13.410] he's kept Hungarian people in your country,
+- [31:16.610] and he's done a fantastic job.
+- [31:19.100] And let me tell you, I like him a lot.
+- [31:20.840] But if I didn't think he did a good job,
+- [31:22.440] I wouldn't be making a call like this.
+- [31:24.700] But boy, that sounds like a big crowd
+- [31:27.350] and that sounds like my kind of people.
+- [31:40.820] What a crowd.
+- [31:42.070] JD must have made a very good speech
+- [31:44.160] to get this kind of response, I guess.
+- [31:46.950] How did JD do? Did he give a good speech, everybody?
+- [31:50.530] The Vice President: It's very early, sir.
+- [31:53.780] The President: It's early, OK.
+- [31:55.230] Well, I just want to tell you I'm a big fan of Viktor,
+- [31:57.630] I'm with him all the way,
+- [31:58.890] the United States is with him all the way.
+- [32:01.610] And it's a real honor to talk to you,
+- [32:03.690] you're really incredible people
+- [32:05.260] with great enthusiasm and brilliance
+- [32:08.040] because you're brilliant people, and I really love it.
+- [32:11.140] You have a man that kept your country strong,
+- [32:13.750] and he kept your country good,
+- [32:15.700] and you don't have problems with all of the problems
+- [32:18.250] that so many other countries
+- [32:19.580] have because they let their countries be invaded.
+- [32:23.290] And you don't have that problem because of Viktor Orban.
+- [32:26.240] That's the only reason you don't have that problem.
+- [32:28.820] There was a lot of pressure on him to do it,
+- [32:31.310] and those other countries made big mistakes.
+- [32:33.380] So, I wish you a lot of luck, and I love you all.
+- [32:37.410] The Vice President: Thank you, Mr. President.
+- [32:59.680] Well, that's obviously a tough act to follow,
+- [33:09.010] but I'm going to do my best
+- [33:10.390] because we have got to get Viktor Orban
+- [33:14.150] reelected as prime minister of Hungary, don't we?
+- [33:23.820] Now, this is actually my second trip to Budapest,
+- [33:27.230] but the first as a public official.
+- [33:30.990] Then I was younger and less gray,
+- [33:34.540] and my wife, our beautiful second lady,
+- [33:36.670] was pregnant with our second child.
+- [33:47.990] Now we're back in Budapest, I'm the vice president
+- [33:50.800] and she's pregnant with our fourth.
+- [34:04.650] And during our official meeting with the prime minister,
+- [34:08.050] I asked him today whether we could benefit
+- [34:10.940] from some of those generous family subsidies.
+- [34:13.000] But he said, unfortunately, Mr. Vice President,
+- [34:17.090] they're only for Hungarians.
+- [34:28.670] Now, we have had a whirlwind of a trip already,
+- [34:30.840] but I find myself thinking the same things on this visit
+- [34:34.920] that I did during our brief vacation here
+- [34:37.470] as a private citizen a few years ago --
+- [34:40.340] Budapest is a beautiful place.
+- [34:43.990] It was built by people, your ancestors,
+- [34:47.430] who used its beautiful architecture and landscape
+- [34:50.330] to lift up the human spirit.
+- [34:53.630] And it's an honor to visit as relations
+- [34:55.930] between America and Hungary have reached new heights.
+- [35:01.380] An exciting era of new ties
+- [35:03.370] on everything ranging from energy security
+- [35:06.470] to business and trade cooperation
+- [35:08.240] to closer cultural bonds.
+- [35:10.740] So, I want to say, my friends, thank you.
+- [35:13.710] Thank you for hosting me and thank you
+- [35:15.410] for being a great friend of the United States of America.
+- [35:37.790] This evening, I wish to address every man and woman in Hungary,
+- [35:42.810] young and old, citizens of every region,
+- [35:46.500] of every age and of every background.
+- [35:49.280] I want to speak to the mothers and fathers of Hungary,
+- [35:53.500] to the grandparents who recall the dark days of communism
+- [35:57.920] and those first lights of freedom,
+- [36:01.510] to the hardworking families who strive
+- [36:03.550] to give their children happy and healthy lives.
+- [36:08.430] To the young men and young women
+- [36:10.240] who seek to start families and careers themselves,
+- [36:14.520] and to everyone in this audience specifically,
+- [36:17.610] the young, bright, patriotic Hungarians
+- [36:21.220] who care passionately about this strong nation
+- [36:23.800] and its future, I am here for a simple reason,
+- [36:28.880] because I admire what you are fighting for.
+- [36:32.880] You're fighting for your freedom,
+- [36:35.210] you're fighting for your sovereignty,
+- [36:37.510] and I am here because President Trump
+- [36:39.290] and I wish for your success
+- [36:41.320] and we are fighting right here with you.
+- [37:04.630] We want no more, and we ask no more,
+- [37:07.540] than to be allies against those who seek to push Hungary down.
+- [37:13.670] And you have drawn the attention of the American people --
+- [37:16.340] really people all across the world,
+- [37:18.580] because Hungary has been on the front lines of such foes.
+- [37:23.580] In 2016, when the rest of Europe threw open its gates,
+- [37:28.440] you said no.
+- [37:30.890] When strange activists came to tell you to erase your heritage,
+- [37:35.470] you said no.
+- [37:37.990] And when a war erupted in your neighborhood,
+- [37:41.350] you were kind and generous,
+- [37:43.180] you opened your neighborhoods, your homes, and your hospitals,
+- [37:47.780] but you never forgot the needs of your own people.
+- [37:50.430] And why?
+- [37:51.670] To Hungary, Hungarians must always come first.
+- [38:09.320] And for all these reasons,
+- [38:10.630] the president of the United States,
+- [38:12.210] the vice president of the United States,
+- [38:14.120] and the American people, we admire you
+- [38:17.570] and we want you to make a decision about your future
+- [38:22.100] with no outside forces pressuring you
+- [38:24.560] or telling you what to do.
+- [38:25.900] I'm not telling you exactly who to vote for,
+- [38:29.510] but what I am telling you
+- [38:30.970] is that the bureaucrats in Brussels,
+- [38:34.210] those people should not be listened to.
+- [38:36.790] Listen to your hearts, listen to your souls
+- [38:39.790] and listen to the sovereignty of the Hungarian people.
+- [39:00.760] Unlike some of the leadership of Brussels,
+- [39:04.560] I'm not threatening you or telling you
+- [39:06.820] that we're going to withhold funds
+- [39:08.720] to which you're legally entitled.
+- [39:11.170] You will make the decision about Hungary's future,
+- [39:14.490] just as my fellow Americans
+- [39:15.920] will make the decision about America's future.
+- [39:19.080] So, I come here not in the spirit
+- [39:20.550] of telling you what to do,
+- [39:21.780] I come here in the spirit of friendship,
+- [39:24.900] to offer a few observations about our shared civilization
+- [39:29.270] and how we can advance it together.
+- [39:32.880] You have advanced that civilization
+- [39:35.690] boldly in recent years,
+- [39:37.960] and you have done so with Viktor Orban
+- [39:40.960] at the helm of a proud Hungarian nation.
+- [40:02.520] But boldness -- we know this, boldness attracts naysayers,
+- [40:06.730] and that is something I want to talk about for a bit,
+- [40:09.580] a shared threat from within that both of our nations face.
+- [40:13.990] I speak, of course, of a far-left ideology
+- [40:17.560] given quarter in university circles,
+- [40:20.500] in the media and in our entertainment industry,
+- [40:23.480] and increasingly among bureaucrats
+- [40:26.340] on both sides of the Atlantic.
+- [40:29.470] Now its followers don't see Western society as flawed,
+- [40:34.130] yet worthy of reform.
+- [40:35.470] Instead, they view the very foundations
+- [40:38.320] of our shared civilization as illegitimate.
+- [40:42.420] In Western history they don't see a proud tradition,
+- [40:45.280] they see only injustice.
+- [40:47.110] In our borders they see exclusion and racism.
+- [40:50.500] In Christianity, they see not liberation but oppression.
+- [40:54.510] And in the family, they see constraint.
+- [40:58.120] Their most radical members, of course,
+- [40:59.820] tear down monuments to our national heroes
+- [41:03.020] or throw buckets of fake blood on precious artworks in museums.
+- [41:08.580] They stage assassinations of law enforcement officers;
+- [41:11.220] they set fire to churches.
+- [41:13.240] They declare they're never going to have kids,
+- [41:16.260] lest they increase their carbon footprint.
+- [41:20.770] We, of course -- we see something different, my friends.
+- [41:23.070] We defend our borders because we know
+- [41:26.130] that it's the most vulnerable among us who suffer
+- [41:28.870] when our streets are given over to chaos and violence.
+- [41:33.710] Some of them call themselves feminists
+- [41:37.510] pretending they care about women,
+- [41:40.270] yet it is their policies that have seen an explosion
+- [41:43.770] of migrant crime and sexual assault
+- [41:46.310] against the very women they claim to protect.
+- [41:50.920] We believe in energy security
+- [41:53.800] because we don't want the least of us to be unable
+- [41:56.380] to afford to heat their homes or to drive themselves to work.
+- [42:01.950] They say they care a lot about corruption;
+- [42:05.240] they take it very seriously.
+- [42:07.610] But they turn a blind eye to the corruption of Brussels,
+- [42:10.970] which has seen bureaucrats
+- [42:12.280] become millionaires by threatening
+- [42:14.620] and cajoling the sovereignty of the people
+- [42:17.570] across this beautiful continent.
+- [42:31.560] Now you all know this,
+- [42:32.810] much has been made about our administration.
+- [42:35.530] The European press asked constantly, Do Trump and Vance,
+- [42:38.900] do they have something against Europe?
+- [42:41.730] Let me be clear, we love Europe, we love it.
+- [42:54.490] How can we not?
+- [42:55.820] We were birthed from this continent,
+- [42:57.390] the United States of America.
+- [42:58.660] We love its people, we love its culture,
+- [43:00.970] we love its beautiful architecture,
+- [43:03.340] and we love the amazing history of this continent.
+- [43:07.260] But because we love this culture and these peoples,
+- [43:12.760] we reject the faceless bureaucrats
+- [43:15.050] who would drive your energy costs through the roof
+- [43:17.820] and open your country
+- [43:19.170] to millions of unvetted foreigners
+- [43:21.750] in the name of progress.
+- [43:35.400] And in Hungary, I actually see real progress
+- [43:38.750] under a man named Viktor Orban.
+- [43:50.460] I see a trading partner who will bring in record investment
+- [43:53.710] from the United States of America.
+- [43:55.040] We've invested more in Hungary
+- [43:56.440] than we ever have in our history.
+- [44:08.340] I see clean streets where people of different faiths and tourists
+- [44:11.580] of all nationalities can enjoy a drink
+- [44:14.130] or a nice walk in safety and security.
+- [44:17.390] I see a government that invests in its own people
+- [44:20.670] in promoting families, creating good jobs,
+- [44:23.490] and building an education system that teaches love of country
+- [44:27.750] rather than hatred of civilization.
+- [44:31.000] And most of all, my friends,
+- [44:32.330] because I'm the vice president of the United States,
+- [44:35.330] I see what the bureaucrats hide from many of you.
+- [44:39.960] Energy costs are higher in almost every country in Europe
+- [44:43.890] than they are in Hungary.
+- [44:54.910] That's because Viktor Orban has fought for energy security,
+- [44:58.870] while most European political leaders have not.
+- [45:02.330] I see the way those same leaders sneer at the normal,
+- [45:06.150] God-fearing people of Hungary.
+- [45:08.590] I see how they call the people of Hungary and America
+- [45:12.680] backwards for wanting cheap electricity bills.
+- [45:17.180] I see the way they look down on peacemakers like Viktor,
+- [45:20.550] a man who has done more than any leader in Europe
+- [45:23.730] to bring about a successful resolution
+- [45:25.780] to the war between Russia and Ukraine.
+- [45:42.090] I see the way they look down at,
+- [45:43.860] they scoff at European and American peoples
+- [45:47.100] who want job security and control of migration.
+- [45:51.070] And most of all, I see that those who hate Europe the most,
+- [45:54.960] who hate its borders, its energy independence,
+- [45:57.880] the people who hate its Christian heritage,
+- [46:00.050] they hate one man above all others,
+- [46:02.280] and his name is Viktor Orban.
+- [46:04.260] And if they hate him, it means he's on your side.
+- [46:19.710] And to them, I'm going to say the reason you hate Viktor
+- [46:22.610] is because he is for the people of Hungary.
+- [46:25.120] And I stand here today
+- [46:26.440] because President Trump and I stand with Europe.
+- [46:30.600] We stand for sovereignty, we stand for Hungary,
+- [46:33.920] and we stand shoulder to shoulder
+- [46:35.610] with the man who has done more to defend those values
+- [46:38.730] than anyone else, Viktor Orban.
+- [46:56.940] You know, the leaders of this country,
+- [46:58.870] perhaps more so than any other across Europe,
+- [47:02.170] understand that Western civilization
+- [47:04.510] so despised by the left,
+- [47:07.320] it's not something that's self-sustaining.
+- [47:10.890] We can't sit on our hands and expect
+- [47:12.850] that everything is going to be fine.
+- [47:14.210] Our civilization, we've got to work at it,
+- [47:17.070] we've got to renew it, we've got to defend it.
+- [47:20.700] The people in this room understand
+- [47:22.330] that sovereignty and national identity are not problems,
+- [47:25.920] they are a necessary part of the solution.
+- [47:28.730] And when one country protects its sovereignty,
+- [47:31.150] even a country of 10 million people in the heart of Europe,
+- [47:34.830] it raises uncomfortable questions
+- [47:37.230] for those who insist there is no alternative.
+- [47:40.060] There is an alternative and it's right here in Hungary.
+- [48:00.340] Think about this, if Hungary can secure its own borders,
+- [48:04.100] others can do the same thing.
+- [48:06.140] And if they do not, if they fail to control migration,
+- [48:09.180] that is by choice.
+- [48:11.090] If Hungary can place its own workers first,
+- [48:14.350] there's no reason that its neighbors can't do the same.
+- [48:18.230] And when they do not, that too is a choice.
+- [48:21.860] Viktor, and this entire political leadership,
+- [48:24.210] they become a target of the bureaucrats
+- [48:27.320] because he shows that real sovereignty is possible.
+- [48:31.330] He shows you can be pro-Europe, you can be pro-America,
+- [48:35.450] and you can be pro your own people
+- [48:38.510] and he's showing it in spades.
+- [48:55.790] And you all know this,
+- [48:57.030] but we're not just protecting our own people,
+- [48:58.850] the citizens of our respective countries,
+- [49:01.250] we're protecting the ideas
+- [49:03.060] that allowed those people to flourish for hundreds
+- [49:05.270] and sometimes thousands of years.
+- [49:09.080] We just celebrated Easter, of course, all of us.
+- [49:11.450] And for 2,000 years,
+- [49:13.080] our civilization has been shaped above all and beyond all
+- [49:19.240] by the sacrificial love of Jesus Christ.
+- [49:36.910] Built upon the laws of Moses and the laws of Rome,
+- [49:40.550] and that society has produced not oppression,
+- [49:43.790] but the most free, tolerant and prosperous societies
+- [49:47.950] in the history of humanity.
+- [49:50.330] Concepts like God given natural rights,
+- [49:53.130] a sense of duty to one's neighbors,
+- [49:56.030] an obligation to protect the weak and the vulnerable,
+- [49:58.830] a belief in free will and individual conscience.
+- [50:02.820] No set of ideas has brought mankind
+- [50:05.280] closer to universal human dignity and flourishing.
+- [50:09.010] From them, from those principles that founded our civilization
+- [50:13.090] everything else flows.
+- [50:15.530] The way we pray, the way we form and raise our families,
+- [50:18.940] our sense of law and order and the way we dispense justice,
+- [50:23.750] these are truths rooted in Scripture.
+- [50:26.440] But let's be honest, not every society shares them
+- [50:30.930] because our civilization,
+- [50:32.870] while I believe it's universally true,
+- [50:35.110] it has not been universally adopted.
+- [50:37.910] It is not the default state of human existence.
+- [50:42.140] The greatness of London or Munich,
+- [50:45.960] or a picturesque village on Lake Balaton,
+- [50:49.960] it's easier to take for granted
+- [50:52.210] when it's the world you already live in.
+- [50:55.610] But that world didn't spring from nowhere,
+- [50:58.720] it had to be built.
+- [51:00.710] Every brick of that beautiful parliament building here,
+- [51:03.760] every span of bridge across the Danube,
+- [51:06.340] every law, every custom,
+- [51:08.200] all belong to work of generations built over time.
+- [51:25.860] But what's been built over generations
+- [51:28.120] can be undone in a single lifespan.
+- [51:31.260] That means that what our ancestors built,
+- [51:33.700] we're proud of it and we love them, we must protect.
+- [51:37.820] I think this audience, this group of people,
+- [51:40.210] uniquely understands the stakes because the story of Hungary --
+- [51:45.640] I saw this when I was here a few years ago,
+- [51:47.520] I saw it again today --
+- [51:49.250] is of a people who have repeatedly prevailed over those
+- [51:53.860] who had erased their sovereignty.
+- [51:55.870] And in that process, those people tried to erase
+- [51:58.880] what makes Hungary so special to begin with.
+- [52:02.370] Now, most recently, of course,
+- [52:03.690] that came in the form of communism,
+- [52:06.310] a lie that took the noble pursuit of equality
+- [52:10.150] and claimed it could be enforced by gunpoint.
+- [52:14.120] That's no coincidence and you all know
+- [52:15.890] this better than I do that,
+- [52:17.550] once in power, the Communists in Hungary
+- [52:19.690] set about dismantling every institution
+- [52:22.830] that gave this great nation its character.
+- [52:25.870] They shuttered churches, they rewrote history,
+- [52:29.080] they framed 1848 not as a national revolution,
+- [52:33.220] but as a mere prelude to a Marxist struggle.
+- [52:36.710] And they didn't do it all at once,
+- [52:38.930] they did it piece by piece.
+- [52:41.700] What they themselves called slicing the salami,
+- [52:44.970] removing one by one the institutions
+- [52:47.550] that anchored Hungarian life.
+- [52:50.350] But ultimately, thanks be to God,
+- [52:53.400] the Spirit of King Saint Stephen prevailed in this nation.
+- [53:17.800] And today, what I'm asking is very simple.
+- [53:19.640] I want us all to renew that spirit together.
+- [53:22.980] For again, we see sovereignty challenged in Hungary.
+- [53:27.250] Again, we see faceless bureaucrats in faraway countries
+- [53:31.090] telling you how to live, how to pray, how to speak,
+- [53:34.740] and how to govern yourselves.
+- [53:37.180] But you have a choice -- do you bend the knee to tyranny,
+- [53:41.360] or do you proudly stand with Saint Stephen
+- [53:43.660] and choose a real leader this weekend?
+- [53:47.950] (applause)
+- [54:12.990] Unidentified: And the crowd is chanting encore!
+- [54:16.460] The Vice President: We're talking about a leader
+- [54:18.840] who feels real pride in this place,
+- [54:21.170] in its history, in its culture, and in its way of life.
+- [54:24.180] A leader who will fight to preserve those things
+- [54:27.720] while also building a better future.
+- [54:30.780] Because the real divide in our time,
+- [54:32.690] it's much more fundamental than partisan labels
+- [54:35.800] or specific policies.
+- [54:37.970] It's fundamentally between those who believe in the future
+- [54:41.250] and those who do not.
+- [54:43.800] Across the West, we've got a small band of radicals,
+- [54:47.750] people who do not believe in the future
+- [54:50.570] and are often the very people who so wish to govern us.
+- [54:54.480] It's kind of weird.
+- [54:55.860] If they don't believe in the future
+- [54:57.130] why do they want a life in politics?
+- [54:59.860] If they speak not of renewal for our nations,
+- [55:02.920] but management, they're not trying to build a great future,
+- [55:06.360] they're trying to manage the decline
+- [55:07.980] of the greatest civilization in the world.
+- [55:11.080] Some of them say things like,
+- [55:12.720] human beings are no more than pollution upon the earth.
+- [55:16.980] They look at our cultures and our borders,
+- [55:18.700] they look at the very idea of a nation
+- [55:21.030] and ask how we can get rid of them.
+- [55:23.890] Every position, I believe, flows from this fundamental error.
+- [55:29.310] They reject mothers and motherhood,
+- [55:31.610] fathers and fatherhood in the name of liberation.
+- [55:35.630] They condemn children to mutilation and sterilization
+- [55:39.200] in the name of gender care.
+- [55:43.220] And they practice institutional murder
+- [55:46.280] in the name of, quote, end-of-life planning.
+- [55:50.450] And if you dare speak up about it,
+- [55:52.420] they will fight using the modern tools of social media
+- [55:55.830] to silence you through censorship.
+- [55:59.090] We understand that we have a sacred duty to protect life,
+- [56:04.210] to defend the value of our people's hard work,
+- [56:07.770] to invest in our workers, our families, and our industry.
+- [56:24.580] And to make it easier to build a life
+- [56:27.390] that is affordable for all of our citizens.
+- [56:29.630] We are committed to our future
+- [56:32.240] because we are committed to the very idea of our people,
+- [56:35.710] we're committed to the idea of life itself
+- [56:38.400] because it is a gift from God and we never forget it.
+- [56:41.700] Now that's why I'm here.
+- [56:52.800] That's why I'm here, ladies and gentlemen.
+- [56:54.500] That's why President Trump sent me to stand here
+- [56:56.960] with Viktor today, something I'm very proud to do,
+- [56:59.980] because I believe our nations are incredibly capable
+- [57:03.430] of greatness when we come together.
+- [57:06.010] Our work is not zero sum; indeed, it cannot be,
+- [57:10.210] because our goal is always to build a better life
+- [57:13.250] for our people.
+- [57:14.900] These bureaucrats, they've given us a false choice.
+- [57:18.330] Think about this, they tell us that the options
+- [57:21.950] are between isolation and globalist integration.
+- [57:27.190] They have framed their project as the inevitable future,
+- [57:30.530] even as their very institutions stagnate and crumble.
+- [57:34.310] But we know there's a better way,
+- [57:36.760] cooperation between countries with shared values
+- [57:39.870] and parallel destinies,
+- [57:41.580] that is the story of Hungary and America
+- [57:43.820] and we're going to keep fighting for it.
+- [58:06.270] A lot of you may not know this, but this is the story
+- [58:09.720] of a much longer Hungarian American friendship.
+- [58:13.140] When my own country sought its independence 250 years ago,
+- [58:16.450] almost to the month, it was a Hungarian soldier
+- [58:20.480] by the name of Michael Kovats,
+- [58:23.190] who helped found the first American cavalry units,
+- [58:26.540] ultimately giving his life in our struggle
+- [58:29.800] for independence against the British Empire.
+- [58:32.680] A generation later,
+- [58:34.270] Americans welcomed Louis Kossuth,
+- [58:37.850] the hero of 1848 and the father of Hungarian democracy.
+- [58:50.770] Now Kossuth was greeted in the United States
+- [58:53.290] like a rock star, much better than a politician.
+- [58:57.140] His arrival and the more general cause of Hungarian independence,
+- [59:01.250] it captured the imagination of our young nation.
+- [59:04.940] He received the distinction,
+- [59:07.240] the second foreigner ever in our nation's history,
+- [59:10.530] after Lafayette, to address a joint meeting of Congress.
+- [59:14.700] And his bust stands in the United States State's capital
+- [59:18.530] to this very day.
+- [59:32.070] Now, during that trip --
+- [59:33.330] I didn't realize this until a few days ago,
+- [59:35.530] that during that trip to the United States,
+- [59:38.540] Kossuth visited my home state of Ohio
+- [59:41.610] to make his case for Hungarian independence.
+- [59:44.010] We have some Ohio fans over here, that's good.
+- [59:54.600] Before the state legislature in Columbus, Ohio,
+- [59:57.100] he declared, quote, the spirit of our age is democracy,
+- [01:00:01.950] all for the people and all by the people,
+- [01:00:06.070] nothing about the people without the people.
+- [01:00:10.020] My nation --
+- [01:00:19.670] He went on, my nation will rise,
+- [01:00:21.970] called the resurrection by the eternal principles
+- [01:00:25.260] of the law of nature and of nature's God.
+- [01:00:29.190] Even then this great Hungarian patriot
+- [01:00:32.160] was aware of the intimate link between sovereignty,
+- [01:00:36.560] between self-government, and between our Divine Creator.
+- [01:00:40.420] And I'm proud to say that, according to the history books,
+- [01:00:43.840] the part of the country that gave him the proudest reception
+- [01:00:48.510] and the biggest reception during his entire time in America
+- [01:00:52.370] was my hometown of Cincinnati, Ohio.
+- [01:01:09.820] You have to imagine this, and you tell these stories
+- [01:01:12.070] and you think, how can the bureaucrats think
+- [01:01:13.810] that we're not capable of self-government
+- [01:01:16.060] and choosing our own destiny.
+- [01:01:17.700] Because when Kossuth came to Cincinnati
+- [01:01:20.230] during his tour of Ohio,
+- [01:01:21.860] there were railroad tracks lined with citizens
+- [01:01:25.100] delighted to behold Hungary's great freedom fighter.
+- [01:01:29.260] Reportedly, 100,000 of them showed up
+- [01:01:32.840] just at his one stop in my hometown.
+- [01:01:35.920] And the affection -- I've got to say,
+- [01:01:37.410] I'm a little biased here -- the affection was mutual.
+- [01:01:41.190] The people of Cincinnati, Kossuth said, quote,
+- [01:01:44.630] changed a wilderness of primitive forest
+- [01:01:46.930] into an immense city of which there exists a prediction
+- [01:01:50.710] that by the year of our Lord 2000,
+- [01:01:52.950] it will be the greatest city in the world.
+- [01:01:55.630] And no offense to Budapest, but I think he's right about that.
+- [01:02:10.320] But it tells you something very real,
+- [01:02:12.380] that when Kossuth looked at the United States of America,
+- [01:02:15.340] he didn't see something radically different,
+- [01:02:17.100] he saw something familiar.
+- [01:02:19.490] In our nation, he recognized the same forces at work
+- [01:02:23.060] that were shaping Hungry --
+- [01:02:24.990] people building something of their own out of wilderness
+- [01:02:29.470] with purpose, conviction, and a deep belief
+- [01:02:32.870] in where they came from and what they were called to do.
+- [01:02:37.440] And standing in Cincinnati, he saw something in America
+- [01:02:41.230] that he believed was just the beginning.
+- [01:02:44.260] The West, the West, he exclaimed,
+- [01:02:46.710] there you can see the cradle of a newborn humanity.
+- [01:02:50.150] It was true then, and it's still true today.
+- [01:03:04.120] But America, like Hungary, was not a place just of rest,
+- [01:03:09.160] it was built around the idea of creating and renewing.
+- [01:03:15.160] And those early Americans, like the heroes of your own nation,
+- [01:03:18.730] took that inheritance and they shaped it into their own.
+- [01:03:22.260] They added to it, they fortified it,
+- [01:03:25.180] they passed it down to their children
+- [01:03:27.330] and to their grandchildren, who then did the same,
+- [01:03:31.450] with the expectation that generations later,
+- [01:03:34.750] those grandchildren would carry it forward.
+- [01:03:38.350] On his fateful trip to America,
+- [01:03:41.540] Kossuth announced that Hungary was to become,
+- [01:03:44.250] and this is perhaps my favorite quote,
+- [01:03:46.430] the cornerstone of national independence
+- [01:03:48.830] on the European continent.
+- [01:03:50.670] This guy was a prophet.
+- [01:04:06.490] Kossuth called this the cornerstone of independence,
+- [01:04:10.150] the cornerstone of sovereignty on the European continent.
+- [01:04:14.170] And though he didn't live to see it become so,
+- [01:04:17.020] I declare that prophecy is true today, in 2026.
+- [01:04:33.600] Now, under Viktor Orban's leadership,
+- [01:04:36.090] you have held on to the civilizational goods
+- [01:04:38.980] that make a country worth living in in the first place:
+- [01:04:42.470] sovereignty, prosperity, history,
+- [01:04:46.760] a sense of national community,
+- [01:04:49.210] the redemptive nature of bringing new life
+- [01:04:52.220] and new families into the world.
+- [01:04:55.200] This is an awesome and difficult responsibility,
+- [01:04:59.730] because across much of the West, there's a growing uncertainty
+- [01:05:03.470] about whether these things matter
+- [01:05:05.400] or whether they're worth fighting for.
+- [01:05:07.960] But not here.
+- [01:05:09.580] You have stood up to the bureaucrats,
+- [01:05:12.650] you have stood up to the nihilists.
+- [01:05:15.180] And now I wonder, will you do it again?
+- [01:05:28.060] Will you stand against the bureaucrats in Brussels?
+- [01:05:34.980] Will you stand for sovereignty and democracy?
+- [01:05:41.580] Will you stand for Western civilization?
+- [01:05:47.940] Will you stand for freedom,
+- [01:05:49.850] for truth and for the God of our fathers?
+- [01:05:56.500] Then my friends, go to the polls on the weekend,
+- [01:05:59.540] stand with Viktor Orban because he stands for you
+- [01:06:02.150] and he stands for all these things.
+- [01:06:03.900] God bless Hungary and God bless the United States of America.
+- [01:06:07.120] Thank you.
+- [01:06:09.200] (applause)
+- [01:06:13.790] ♪ (music playing) ♪

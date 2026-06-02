@@ -1,0 +1,958 @@
+<!-- source: https://www.youtube.com/watch?v=16OUgQjUQQs -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 16OUgQjUQQs -->
+<!-- date_published: 2025-12-19T20:08:34+00:00 -->
+<!-- date_accessed: 2026-06-02T02:39:59.977117+00:00 -->
+
+# Transcript: President Trump Makes an Announcement, Dec. 19, 2025
+
+- [00:07.320] The President: The people, they make a lot of money.
+- [00:10.510] It's a hell of a group.
+- [00:26.940] It's a great honor.
+- [00:29.130] These are among the greatest executives
+- [00:31.030] anywhere in the world,
+- [00:32.260] so it's an honor to have them with us.
+- [00:34.750] And I think they'll be very happy about what we have to say.
+- [00:38.540] I thought I'd start by announcing two things.
+- [00:41.870] This is the Gold Card, as you know.
+- [00:44.640] The Secretary of Commerce and myself
+- [00:47.410] and some others have been working on it for quite a while.
+- [00:51.460] And, Howard, how much have we sold in a few days?
+- [00:55.710] Secretary Lutnick: $300 million worth in a matter of (inaudible).
+- [01:00.120] The President: That's a --
+- [01:01.540] essentially, it's the green card on steroids,
+- [01:05.100] and it's a pathway. And it's been an amazing thing.
+- [01:09.090] And as you know, millions of people
+- [01:11.400] pour into our country from the border,
+- [01:13.700] and not anymore.
+- [01:14.910] They don't -- nobody comes in, actually, anymore.
+- [01:17.190] But under the Biden administration,
+- [01:19.440] 25 million people came in,
+- [01:22.320] and they came from prisons and mental institutions,
+- [01:25.790] and they were drug dealers,
+- [01:27.070] and all sorts of people came in that shouldn't be here.
+- [01:29.220] They came from the jails.
+- [01:31.160] The jails all over Venezuela, all over the world, the Congo.
+- [01:35.560] And now, when they come in,
+- [01:37.100] they have to pay a million dollars,
+- [01:39.280] and we've had a tremendous surge.
+- [01:41.400] And you're going to be happier than anybody,
+- [01:43.070] because when you go to Harvard
+- [01:45.570] and the Wharton School of Finance
+- [01:47.040] and all of the great schools, and you want to hire somebody,
+- [01:49.320] and then you find out that, I'm sorry,
+- [01:50.740] they can't stay in our country for more than 24 hours.
+- [01:53.920] They graduate from the top schools.
+- [01:56.070] These people want to hire them. Now you're able to buy a card,
+- [02:00.470] and you're able to keep people into the country.
+- [02:02.730] They can't keep people in the country,
+- [02:04.850] and they go to Canada, they go to other countries.
+- [02:08.600] A lot of times they go Canada,
+- [02:09.970] even though they work for the companies behind me.
+- [02:12.390] So now you're about to buy -- the companies are able to --
+- [02:16.950] buy the card and use it for people coming in.
+- [02:22.250] To our country so they can stay in our country
+- [02:24.220] instead of being immediately shipped out after graduating.
+- [02:27.780] They graduate number one in their class at the best school,
+- [02:31.220] and they want to go to work for Johnson& Johnson,
+- [02:34.380] as an example, who's not here today,
+- [02:36.020] who will be here next week. They're well represented here.
+- [02:39.510] But they want go to go work
+- [02:40.840] for one of the great companies behind me.
+- [02:42.620] And you learn they can't do that
+- [02:44.680] because they're shipped out of the country.
+- [02:47.040] They're not shipped out anymore.
+- [02:49.130] So, your company will pay a little bit, but that's okay.
+- [02:53.600] You'll be able to get them.
+- [02:54.830] So I just wanted to let you know,
+- [02:56.100] it's called the Gold Card, the Trump Gold Card.
+- [03:00.280] Quite a beautiful thing.
+- [03:02.140] And you've taken in, in just a few days,
+- [03:04.030] you've taken in over a billion and a half dollars.
+- [03:06.500] That goes all toward reducing debt.
+- [03:09.180] Goes into the Treasury of the United States.
+- [03:11.470] And I thought I'd do this
+- [03:13.010] before we start on most favored nations.
+- [03:16.910] I want to read this
+- [03:18.210] because I would have said it the other night,
+- [03:19.710] but I was not allowed in too much time, actually.
+- [03:22.770] You had a couple of brand new shows opening,
+- [03:24.430] and I understand that.
+- [03:26.160] But I do want to say, and some people say,
+- [03:28.290] oh, you shouldn't say it sounds negative to me.
+- [03:30.220] I think it sounds positive.
+- [03:32.470] The only reason our unemployment tucked up
+- [03:35.510] and went up to 4.5 percent,
+- [03:39.100] which it went number, but still,
+- [03:43.690] is because we are reducing the government workforce by numbers
+- [03:47.490] that have never been seen before.
+- [03:49.310] In other words, government jobs are way down.
+- [03:53.510] And as you know, we don't need 10 people to fill one job,
+- [03:57.200] which is what we had in government in many cases.
+- [04:00.210] So the government work force by numbers,
+- [04:03.300] that have ever been seen,
+- [04:05.280] before has been reduced very substantially
+- [04:08.080] and will continue to be reduced.
+- [04:10.620] 100 percent of our new jobs are in the private sector.
+- [04:15.300] So this is for the last number of months.
+- [04:17.760] Think of that. One hundred percent.
+- [04:20.610] Are you shocked to hear that?
+- [04:22.590] That's the way to make America great again,
+- [04:24.660] when you think, right? It's the only way.
+- [04:26.980] One hundred of new jobs are in the private sector.
+- [04:31.940] And I could reduce unemployment to two percent,
+- [04:35.050] one percent, or practically zero,
+- [04:38.650] by just hiring people into the federal government.
+- [04:42.080] Even though those jobs are not necessary,
+- [04:44.390] which is what we had before.
+- [04:45.630] We had millions and millions of people having jobs
+- [04:49.100] that they never even showed up.
+- [04:52.380] So I wish that the media would report
+- [04:55.730] that the 4.5 percent is an amazing number.
+- [05:00.010] And again, if they don't report it,
+- [05:02.900] I guess maybe I'll just let some people
+- [05:05.840] go into the federal workforce. It'll look really wonderful.
+- [05:09.020] And What we're doing is the only way you can do it
+- [05:12.150] to make a country great.
+- [05:14.320] You have to -- you can't have the government jobs.
+- [05:17.460] You have the private sector jobs.
+- [05:19.050] And these are among the biggest hires of private sector.
+- [05:21.870] So, we have reduced the federal workforce by tremendous --
+- [05:28.820] hundreds of thousands of people.
+- [05:30.950] And that reflects in unemployment,
+- [05:34.090] but that will be used up very quickly.
+- [05:37.780] And we've. A hundred percent of the new jobs,
+- [05:40.350] which, by the way, it's a record-setting number
+- [05:42.310] of jobs, too, is in the private sector.
+- [05:45.720] And I think that'll get even stronger
+- [05:47.250] when these buildings being built all over the country,
+- [05:50.020] of which they're building some, too.
+- [05:52.080] But AI and auto plants and everything else,
+- [05:54.790] they're being built over the country.
+- [05:56.330] When that happens, your numbers will be even better.
+- [05:59.710] But I would like you to report it the way it is.
+- [06:01.480] We don't do the federal workforce jobs.
+- [06:05.320] We're reducing that very substantially.
+- [06:08.250] I'm thrilled to be joined by the leaders of nine
+- [06:10.930] of the world's largest pharmaceutical manufacturers.
+- [06:15.090] All very big names, celebrities in their own right,
+- [06:20.000] very, very powerful people.
+- [06:22.600] And they head some of the most admired companies
+- [06:25.850] anywhere in the world. It's a great group.
+- [06:28.410] To announce that they've agreed to offer
+- [06:31.680] many of their flagship drugs,
+- [06:33.740] really all of their by chip drugs.
+- [06:36.300] At heavily discounted, most favored nations, prices.
+- [06:39.130] In other words, whatever the drug sales
+- [06:41.510] were over the world, in the world.
+- [06:44.490] Whatever the lowest number is, if it's Germany, if it in UK,
+- [06:50.300] anywhere, we will match that price.
+- [06:55.030] Right now, sometimes it's 10 times higher.
+- [06:58.290] We've been laughed at and scoffed at for years.
+- [07:00.530] For years.
+- [07:01.730] In fact, I was going to do it in my first term,
+- [07:03.770] but unfortunately with the advent of COVID,
+- [07:08.660] as you would say.
+- [07:10.310] It was not -- I don't think it was a very good time
+- [07:12.370] to be hitting up Spain, Italy, France.
+- [07:16.300] But now we're doing it. So, the hardest thing to do
+- [07:20.170] was going to be to get a country to do it,
+- [07:22.740] because we would have a pill in New York
+- [07:25.510] that was for sale for $130
+- [07:29.080] and you could buy it in Germany, and France, and Spain,
+- [07:33.050] and someplace anyways, they set their own prices for $10.
+- [07:37.100] So we'd pay 10 or 13 times more, pay five times more,
+- [07:41.250] we'll pay all different prices.
+- [07:43.380] Now, whatever the lowest price is.
+- [07:45.240] Now, the pharmaceutical companies were difficult,
+- [07:49.040] but they also love our country. They knew it was unfair.
+- [07:52.730] But the -- and they were great. I appreciate it.
+- [07:56.330] But the bigger problem is going to be the countries.
+- [07:58.130] How are you going to get the countries to do it?
+- [07:59.880] And we told them.
+- [08:01.250] If you don't do it, we're going to have to use tariffs,
+- [08:05.220] and we're going to charge you a 10 percent tariff,
+- [08:07.050] which is far more money than the money we're talking about.
+- [08:11.090] And they immediately agreed to do it.
+- [08:12.640] So we have all the foreign countries agreeing to do.
+- [08:16.480] If we didn't have the use of tariffs,
+- [08:18.120] we would never be able to do this.
+- [08:20.610] But we used tariff. And they said, is it a threat?
+- [08:22.920] I said, yes, it is a threat.
+- [08:25.580] Then they said we will do it and they dropped the price.
+- [08:28.050] So, what's happening, because the world is bigger than --
+- [08:30.900] the United States in terms of people.
+- [08:33.460] That same pill would go from $10 to $20 for them,
+- [08:37.540] which is an increase,
+- [08:38.820] but it wouldn't go to, you know, midway.
+- [08:41.950] But it would go $10-$20. Ours would go form $130-$ 20.
+- [08:47.440] So we dropped way down. They went up a little bit.
+- [08:50.930] And everyone knows the way it is.
+- [08:55.280] They, for years, would just say, no, no no, medicine
+- [08:58.770] got more expensive for us, they would say.
+- [09:00.490] They said, nope, you can't sell it in this country,
+- [09:03.410] let the United States pay. And we had other presidents,
+- [09:05.860] all of them, said, okay, we'll pay.
+- [09:07.890] So we were subsidizing the entire world,
+- [09:09.600] we're not doing it anymore.
+- [09:10.870] This is the biggest thing having to do with drugs
+- [09:14.100] in the history of the purchase of drugs.
+- [09:17.870] And I don't think the maybe press will treat it. As a story.
+- [09:22.950] This is the biggest front- page story that you'll ever see.
+- [09:28.320] This is a huge bearing, too, on the healthcare,
+- [09:31.120] because a big part of healthcare is drugs --
+- [09:33.930] pharmaceuticals, right, Oz?
+- [09:35.850] And this -- so this will have a tremendous impact
+- [09:38.490] on the reduction of healthcare.
+- [09:41.120] The biggest impact is going to be
+- [09:42.680] that the money should be paid
+- [09:44.480] not to the insurance companies directly to the people
+- [09:46.820] and the people who buy their own health care.
+- [09:49.130] So we're going to be working that.
+- [09:50.500] The problem is that the Democrats
+- [09:52.120] are very much controlled
+- [09:53.660] by the insurance companies that make all that money,
+- [09:55.810] but we're not going to let that happen.
+- [09:57.530] Starting next year,
+- [09:58.740] American drug prices will come down fast and furious,
+- [10:02.870] and will soon be among the lowest in the developed world.
+- [10:05.300] So, in other words, the lower --
+- [10:07.510] whatever the lowest price for a certain drug,
+- [10:10.020] of which these companies make much of it --
+- [10:14.350] whatever the lowest price is,
+- [10:16.580] that price will come down to their price.
+- [10:19.090] So we will get the lowest price anywhere in the world.
+- [10:21.480] If they're lower in England than they are in Germany,
+- [10:23.350] we take the England price.
+- [10:26.300] As of today, 14 out of 17 largest pharmaceutical companies
+- [10:33.460] have now agreed 14 out 17.
+- [10:35.650] Oh, those three companies, they're in deep trouble.
+- [10:40.610] But actually, they've agreed because I think
+- [10:42.540] those three are coming in at a different time next week.
+- [10:46.690] So they've agreed, Johnson& Johnson is one of them, right?
+- [10:50.560] Why they couldn't do it faster?
+- [10:51.820] Secretary Lutnick: (Inaudible)
+- [10:53.110] we're going to be talking about Trump Rx.
+- [10:54.900] The President: Oh, okay, TrumpRx.
+- [10:56.250] TrumpRX is doing well. As of today,
+- [10:58.570] 14 out of the 17 largest pharmaceutical companies,
+- [11:01.680] but they've all agreed, have now agreed
+- [11:04.320] to drastically lower drug prices for their American patients,
+- [11:08.700] for the American people and patients.
+- [11:11.250] This represents the greatest victory
+- [11:12.950] for patient affordability
+- [11:14.370] in the history of American healthcare by far.
+- [11:17.560] And every single American will benefit.
+- [11:19.540] So this is the biggest thing ever to happen on drug pricing,
+- [11:23.720] and on healthcare.
+- [11:25.470] This will have a tremendous impact on health care itself.
+- [11:29.100] I want to thank Sanofi CEO Paul Hudson.
+- [11:34.160] Paul. Hi Paul. I hope they have you in some
+- [11:39.040] (inaudible). I'll be checking.
+- [11:41.430] Okay. Well, we'll do the best we can.
+- [11:43.590] Thank you, Paul. Great company, by the way.
+- [11:46.480] Novartis CEO, Vass Narasemin. Thank you very much, Vas.
+- [11:52.080] Great job. Genentech CEO, Ashley Maragre.
+- [11:58.650] Where are you, Ashley? How are you?
+- [12:01.470] Hi. Thank you. Very much. Great companies. Behringer.
+- [12:08.250] Incumbine President John Michael Bors.
+- [12:14.030] John Michael, thank you very much.
+- [12:18.250] Julliard CEO Dan O'Day.
+- [12:22.780] Thank you, Dan. Great job. That's good company.
+- [12:26.650] Bristol Myers Squibb Executive Vice President Carrie Goleman.
+- [12:31.920] Carrie? Thank you. Thank you so much.
+- [12:36.620] GSK CEO, Emma Warmsley. Emma?
+- [12:41.410] Thank you very much, Emma. Great job.
+- [12:44.410] Merck CEO, Rob Davis. Great company. Thank you.
+- [12:49.300] Great company, how long have you been CEO?
+- [12:51.540] Almost five years. Very good. You're doing a good job.
+- [12:56.190] And Amgen Executive
+- [12:58.130] Vice President and CFO, Peter Griffith.
+- [13:02.600] Peter. Thank you, Peter. Thank you very much.
+- [13:08.000] You okay? Fake news.
+- [13:13.840] We want you to be healthy. Are you all right?
+- [13:18.370] The camera is not okay, but she's okay.
+- [13:20.130] That's more important. We have good medicine for you.
+- [13:23.730] If you need some medicine,
+- [13:24.990] one of them can take good care of it.
+- [13:27.580] We're also joined by Secretaries Robert F. Kennedy, Jr.,
+- [13:31.520] Howard Lutnick, Ambassador,
+- [13:33.260] and really some incredible ambassadors,
+- [13:37.580] Administrator of the Centers for Medicare
+- [13:41.420] and Medicaid Services, Dr. Mehmet Oz,
+- [13:44.640] and the FDA Commissioner Marty McCarey.
+- [13:48.350] They're doing a phenomenal job. Thank you.
+- [13:49.980] Thank you, fellas. Good job.
+- [13:52.420] For decades, Americans have been forced to pay the highest prices
+- [13:55.660] in the world for prescription drugs.
+- [13:57.410] By far. By far, not just a little bit.
+- [14:01.500] We were like a whipping post to the United States.
+- [14:03.750] And it's just been 4 percent of the world's population.
+- [14:08.290] We have 4 percent the world population,
+- [14:10.940] and consumers pay only 13 percent of all.
+- [14:17.230] Prescription drugs, yet pharmaceutical companies
+- [14:19.680] make 75 percent of their profits.
+- [14:21.110] Think of that.
+- [14:22.310] So we have 4 percent of the population,
+- [14:24.880] 13 percent of prescription drugs.
+- [14:27.550] And yet, the people behind me, who are wonderful people,
+- [14:31.830] make 75 of their profit from the American customer.
+- [14:36.240] So that was -- they understood that better than anybody
+- [14:39.110] that we have to do something.
+- [14:41.300] That's why I signed an executive order
+- [14:43.070] instructing my administration to do everything in its power
+- [14:45.890] to slash prescription. Drug prices for Americans
+- [14:49.210] while getting other countries to pay more.
+- [14:52.470] And we don't want more. We want this fair.
+- [14:54.750] We want to pay the same thing.
+- [14:56.720] They used to blame it, remember, on research and development.
+- [15:00.290] And I said, well, research and development for everybody.
+- [15:03.790] And everybody understood.
+- [15:05.080] And as a result, the United Kingdom's National Health
+- [15:08.150] Service agreed to pay a fair share for prescription drugs
+- [15:12.090] for the first time in 26 years,
+- [15:14.710] and we expect other countries in Europe
+- [15:17.220] We'll do the same.
+- [15:18.450] And if they don't, we're going to put tariffs on them,
+- [15:20.130] and we'll get the same amount of money.
+- [15:21.620] Plus, we'll take a nice return on the money.
+- [15:24.720] We signed historic agreements with Pfizer, Eli Lilly,
+- [15:27.750] AstraZeneca, and Novo Nordisk, and EMD, Serrano,
+- [15:34.620] to reduce prices by 300, 400, 500, 600, and even 700 percent,
+- [15:39.940] and sometimes even more than that.
+- [15:42.890] I remember when I had a news conference in my first term,
+- [15:45.900] I was the first president that reduced prices
+- [15:48.940] from the beginning of my term to a year,
+- [15:53.540] from January to December. One-quarter of 1 percent.
+- [15:58.500] And I thought it was the greatest thing,
+- [15:59.920] because it's the first one in 28 years.
+- [16:02.570] Now we're talking about numbers that are so incredible.
+- [16:06.860] One- quarter of one. Think of that.
+- [16:08.190] I was proud of it, because that hadn't happened in 28
+- [16:11.250] where drug prices went down.
+- [16:12.700] Well, now, you're going to see numbers that nobody --
+- [16:15.070] would believe possible. Think of that.
+- [16:17.570] 500, 600, 700, 800 percent.
+- [16:20.930] Today we're building on these accomplishments.
+- [16:23.190] The companies assembled in this room
+- [16:24.930] have agreed to offer all of their drugs to Medicaid
+- [16:28.800] and most favorite nations pricing.
+- [16:30.640] You're going to get most favored nations pricing,
+- [16:33.050] meaning they're going pay our country
+- [16:35.350] the lowest price paid anywhere in the world.
+- [16:39.920] And they will list their most popular drugs on TrumpRx.gov.
+- [16:45.850] Rx.gov.
+- [16:48.140] And I didn't name it that. Somebody named it that,
+- [16:51.470] and I guess they assumed that was --
+- [16:53.100] did you name it ours, or Bobby named it?
+- [16:56.940] Okay, well, I'm honored to have the name.
+- [17:00.930] And so far, that's turned out
+- [17:02.220] because the numbers are so incredible.
+- [17:04.520] It's an honor.
+- [17:06.670] And you're going to get massive discounts to all consumers.
+- [17:11.320] So, massive discounts will be.
+- [17:14.590] Not even offered, it's just going to be a fact.
+- [17:17.280] All consumers will get massive discounts.
+- [17:20.720] That's TrumpRx.gov.
+- [17:23.400] Every new drug produced by these companies in the future
+- [17:26.310] will permanently be offered to American patients
+- [17:28.830] at most favored nation prices.
+- [17:33.120] You know, people used to talk about that for years,
+- [17:35.200] but nobody ever did anything about it, nor the President did.
+- [17:39.570] And it wasn't easy. But it worked out great.
+- [17:42.840] And I'm so proud of the people behind me.
+- [17:45.180] As an example of the price reductions
+- [17:47.260] we have secured through these new agreements,
+- [17:50.070] Sanofi will cut the cost of its blood-thinner Plavix
+- [17:55.570] from $750 to less than $16.
+- [18:02.820] Where's (inaudible)? Where are you?
+- [18:04.620] What? That's incredible, huh?
+- [18:07.960] Could have gone to $17, maybe. That's amazing.
+- [18:11.480] And you're going to do tremendous business.
+- [18:13.160] You're going do much more business.
+- [18:15.820] So that's coming from 715. Think of that.
+- [18:18.780] $750, and that's the number one blood thinner.
+- [18:24.200] I don't want to know about that. I take an aspirin.
+- [18:28.220] To less than $16. Think of that.
+- [18:31.460] Bruce Elmira's Squibb, a great company, both great companies,
+- [18:34.450] will cut the price of HIV medication, Reutaz,
+- [18:40.230] from nearly $1,500, $1 500 to $217.
+- [18:50.470] And it will cut the cost of hepatitis B medication,
+- [18:54.900] barraclude, from $1,400 to $413.
+- [19:01.910] Gilead will cut the hepatitis C medication
+- [19:06.550] Eplusa from nearly $25,000 to less than $2,500.
+- [19:17.120] All prices are like that,
+- [19:19.720] because we're bringing them down to the world's lowest price.
+- [19:22.850] Everything. And these people really are pioneers.
+- [19:26.020] What they're doing is so great.
+- [19:27.800] And in the end, they're going to do much more business.
+- [19:30.650] And it's --
+- [19:32.030] I think it's going to even out for them as a company.
+- [19:35.350] The other countries --
+- [19:36.570] the countries will have to pay more.
+- [19:37.870] But even for them, because of the fact
+- [19:40.150] that the world is quite a bit bigger,
+- [19:42.370] it won't be very severe, I hope.
+- [19:44.890] I also want to thank these companies
+- [19:46.810] and their incredible executives for their generous contribution
+- [19:51.170] to American national security because it's really what it is.
+- [19:53.930] It's, to a large extent, national security in addition.
+- [19:56.790] You can't continue to pay 13,
+- [19:59.500] 14 times more than other countries
+- [20:01.480] and think you're going to have security.
+- [20:03.210] Collectively, they will invest over $150 billion
+- [20:07.460] to build up domestic
+- [20:09.700] pharmaceutical manufacturing in America.
+- [20:12.110] That they're going to be because of tariffs.
+- [20:14.800] They're coming in,
+- [20:16.090] and I think because of the love of our country,
+- [20:18.060] and maybe because of the November 5th election,
+- [20:21.440] but because of tariffs, they're going to be coming in.
+- [20:23.490] They're building already.
+- [20:24.690] They've all -- just about all of them have started.
+- [20:26.840] They're build their plants in all states,
+- [20:30.790] all over the country.
+- [20:33.130] And they're building incredible pharmaceutical plants.
+- [20:35.650] We're going have close to 100 percent of our pharmaceuticals
+- [20:38.740] in a very short period of time made in the USA.
+- [20:42.130] As part of these agreements,
+- [20:43.370] Merck will also donate 3.5 tons of antibacterials
+- [20:50.010] to be placed in America's strategic reserve.
+- [20:52.750] Thank you very much.
+- [20:54.320] GSX will donate over 200 pounds of ingredients
+- [20:57.520] to make rescue inhalers, which is a big deal.
+- [21:00.380] And Bristol-Myers Squibb
+- [21:01.700] will donate 6.5 tons of blood thinners.
+- [21:07.410] We appreciate it. Such amazing companies.
+- [21:11.370] Every president for a generation
+- [21:13.130] has promised to reduce drug prices,
+- [21:15.900] but they were talking about it a little bit.
+- [21:19.300] I am the only one of them
+- [21:21.710] to ever even think in terms of favored nations.
+- [21:24.170] And that's what this is. Favored nations.
+- [21:26.270] It's called most favored nation.
+- [21:28.510] We are now a most favored nationwide.
+- [21:31.430] I want to thank the leaders in the room.
+- [21:33.300] And I also want to think the leaders of all of the countries
+- [21:36.830] that had to pay a little more so that we were treated fairly.
+- [21:42.570] I really do. I want to thank the leaders of countries.
+- [21:47.030] And they knew the alternative was not much of an alternative,
+- [21:50.090] because if they didn't do it,
+- [21:51.810] we're going to charge them tariffs.
+- [21:53.090] And the tariffs would have been much more severe
+- [21:54.920] than what they did. But they did do it.
+- [21:58.440] As soon as they realized about the tariffs,
+- [22:00.640] then they did it very easily. Now, they're very good people.
+- [22:04.450] Let's start with Amjen's executive vice president,
+- [22:07.340] who I already introduced, and I introduced the people here.
+- [22:10.940] So I'd like to ask Bobby and Oz to say a few words,
+- [22:13.260] and also I'd to ask if anybody would like to,
+- [22:17.570] speak on behalf of your company.
+- [22:19.810] I was just saying how great this country is doing.
+- [22:23.090] And you're all building tremendous facilities
+- [22:26.800] now in the United States
+- [22:28.160] instead of other countries that we all know about.
+- [22:30.580] But if you'd like to say something.
+- [22:32.430] So Oz, do you want to start? And Bobby?
+- [22:36.030] Administrator Oz: Thank you, thank you, Mr. President.
+- [22:38.800] Mr. President, he gets taller with time here.
+- [22:43.740] Mr. President, each of these nine CEOs
+- [22:45.340] will speak very briefly about what they have done
+- [22:47.600] because it is a patriotic effort.
+- [22:50.180] This is affordability in action. We talk about it in abstract,
+- [22:53.790] but this is not an abstract concept.
+- [22:55.200] This is a very concrete, tangible, personal.
+- [22:58.470] Reality because we've got moms with sick children
+- [23:01.290] who cannot afford their medications,
+- [23:03.120] working families cannot make ends meet,
+- [23:05.120] seniors on fixed income.
+- [23:06.920] We have 80 million people who have to pay more
+- [23:08.780] than $100 a month for their prescriptions.
+- [23:10.860] They just can't keep up.
+- [23:12.320] So this is a hardcore approach to this driven
+- [23:14.970] by a bold leader who's taken bold action.
+- [23:17.710] With that bold action,
+- [23:19.010] we've now created a standard for the industry.
+- [23:21.610] The nine leaders behind us
+- [23:23.590] run the biggest pharmaceutical companies in the world.
+- [23:26.650] They're joining four other, rather five other companies
+- [23:29.030] that have been through this White House process
+- [23:32.490] over the last two months.
+- [23:33.700] I want to make sure you appreciate
+- [23:35.040] that it doesn't happen with just the people in the room.
+- [23:36.940] They're wonderful individuals, Chris Klump, Inma Hernandez,
+- [23:39.410] John Brooks, Theo Merkel, Corey, Heidi,
+- [23:42.470] a lot of folks work their tails off to make this happen.
+- [23:45.140] And that's why we've gotten to the finish line.
+- [23:47.480] The prices that President Trump left
+- [23:50.470] to the next administration on pharmaceuticals
+- [23:52.730] have gone up 25 percent. Until the president took office.
+- [23:56.940] We are reversing that trend
+- [23:58.900] and making sure that Americans can afford
+- [24:01.010] to get the life-saving solutions.
+- [24:02.340] Because if these brilliant innovators
+- [24:04.260] create solutions to cancer, hypertension, hepatitis,
+- [24:07.860] and a bunch of other viruses,
+- [24:09.230] illnesses that have been lethal throughout human history,
+- [24:12.250] but you can't afford them, then we're not treating you fairly.
+- [24:16.600] And that's why what the president has done
+- [24:18.430] is so critically important.
+- [24:20.120] He mentioned quickly the amount of money.
+- [24:22.210] That they've contributed towards our strategic stockpile
+- [24:24.530] and building in this country.
+- [24:25.890] But fundamentally, the health of the American people will benefit
+- [24:29.320] because this president took bold action.
+- [24:31.850] And from my personal position,
+- [24:33.180] I couldn't do anything I do without Secretary Kennedy,
+- [24:35.820] who just does not take no for an answer
+- [24:38.050] and will call me even more than the president
+- [24:39.820] does to make sure things happen right.
+- [24:41.340] Mr. Secretary.
+- [24:45.020] Secretary Kennedy: That's true.
+- [24:46.250] I think we got a lot of calls from the president.
+- [24:48.360] And at one point in this negotiation,
+- [24:50.970] we both stopped answering our phones late at night
+- [24:53.430] because we couldn't take it anymore.
+- [24:56.730] But I want to thank you, Mr. President, for doing this.
+- [25:00.510] President Trump, when he was up here a moment ago,
+- [25:03.270] talked about how historic this is
+- [25:05.650] and how every one of the news outlets in here
+- [25:08.580] ought to have World War III-sized headlines about this,
+- [25:13.650] and I was reminded about how astonishing this achievement is.
+- [25:19.430] A couple of days ago, when one of my sons,
+- [25:22.330] 29 years old, very, very left-wing Democrat,
+- [25:27.180] and disagrees with a lot of the policies of this administration,
+- [25:30.320] he called me and he said, Dad,
+- [25:31.650] I want to tell you how proud I am about this.
+- [25:34.570] This is the best achievement
+- [25:35.980] that could happen to our country.
+- [25:38.870] This is something Bernie Sanders
+- [25:40.720] has been clamoring for for 25 years,
+- [25:43.060] Elizabeth Warren has been clamoring,
+- [25:46.040] Joe Biden promised the American people,
+- [25:48.490] President Obama,
+- [25:49.770] President Clinton all promised to do this
+- [25:51.780] for the American People.
+- [25:53.470] All of them expressed their outrage,
+- [25:55.380] their indignation that we are paying one-tenth
+- [25:58.980] in some cases the price of drugs that they're selling in Europe.
+- [26:03.520] We developed them here.
+- [26:04.950] We manufactured some of New Jersey.
+- [26:07.820] We were paying $1,300 for a drug manufactured in New Jersey,
+- [26:12.370] the same drug, manufactured in the same plant,
+- [26:15.190] was being sold for $88 in London.
+- [26:18.480] And everybody recognized how unfair this was.
+- [26:21.610] We were paid for all the innovation in this country.
+- [26:25.250] And yet, the rest of the world was free riding on it.
+- [26:30.170] And President Trump told me,
+- [26:32.120] and Dr. Oz at the beginning of this term,
+- [26:36.340] This is what I want you to do. And he leaned on us.
+- [26:41.110] I think both of us were very skeptical
+- [26:43.240] at that point that it could be done.
+- [26:45.950] But I would say this is a miracle.
+- [26:49.990] And I'm very grateful to all the CEOs
+- [26:53.470] who saw the sense in this, who understood the injustice
+- [26:56.880] and the unsustainability of the system,
+- [26:59.660] and who put public health,
+- [27:01.640] and particularly the public health of Americans.
+- [27:04.800] Ahead of some of their other priorities.
+- [27:07.380] And all of them came to the table
+- [27:09.350] and President Trump asked us to do three things.
+- [27:12.660] One, to deliver the lowest prices in the world
+- [27:15.400] and make this affordable for Americans.
+- [27:19.110] Number two, to do it in a way
+- [27:21.330] that we would not hurt innovation
+- [27:23.350] and that we keep America as the incubator
+- [27:27.210] and the dominating force in innovation around the world.
+- [27:32.020] And three to bring drug manufacturing home
+- [27:35.470] to this country.
+- [27:36.930] I can tell you by the end of this term,
+- [27:38.940] 95 percent of the drugs we will have in MFN.
+- [27:42.750] In other words, Americans will be paying the lowest price
+- [27:46.600] in the world, 95 percent that drugs.
+- [27:50.130] You talk about affordability,
+- [27:52.230] people are talking about afford ability.
+- [27:54.510] Nobody has done anything for affordability greater than this.
+- [27:59.880] I want to thank you, President Trump,
+- [28:01.660] for your leadership, for your vision,
+- [28:03.490] and for your relentless harassment of us
+- [28:06.720] to make sure this all got done. And I really want to talk to,
+- [28:10.760] just to thank all of the CEOs of all these companies
+- [28:14.750] for coming to the table in good faith,
+- [28:17.680] working out a very, very pragmatic agreement
+- [28:20.530] that allows them to continue to do the innovation
+- [28:24.250] that is going to save lives and.
+- [28:26.760] Alleviate suffering around the world
+- [28:28.840] and do it in a way that is more fair to the American people.
+- [28:32.090] Thank you.
+- [28:38.550] Secretary Lutnick: This is an example
+- [28:40.300] of what President Trump does. It's the entire administration,
+- [28:44.140] the whole government working together.
+- [28:46.210] Bobby and I met at the beginning of the administration
+- [28:49.060] of how we could work together to bring drug prices
+- [28:52.220] down as the president instructed and bring manufacturing home.
+- [28:57.290] So they've said they're going to have 95 percent of the drugs
+- [29:00.720] at the lowest price in the world.
+- [29:03.170] And when we walked in and the president walked in,
+- [29:06.410] we were making about 16 percent of our drugs
+- [29:10.090] were being made in America, right?
+- [29:12.020] And we are having hundreds, the people behind us
+- [29:14.850] are committed hundreds of billions of dollars
+- [29:17.690] to bring their manufacturing here
+- [29:19.690] and bring their research here, and that employs Americans
+- [29:23.350] and keeps our drugs produced safely.
+- [29:27.250] You want to know when you take that drug,
+- [29:29.300] that drug is made in American, overseen by the FDA,
+- [29:32.530] and it is safe.
+- [29:34.770] So the president, not only is driving prices down,
+- [29:38.110] he's doing a one-two punch of bringing production here,
+- [29:41.070] and the third thing he's doing' is when you take that drug,
+- [29:43.740] you know it was made in America,
+- [29:45.730] protected by Americans, and it's safe.
+- [29:48.970] And I can't be more proud,
+- [29:50.220] I think this is the most impressive thing I've ever seen,
+- [29:52.920] because none of you, and even maybe,
+- [29:55.440] even none of us, thought this was possible.
+- [29:57.520] Only President Trump, he knew it, he drove it.
+- [30:00.690] And he has delivered it here today,
+- [30:02.520] and I can't be more proud to be standing next to him
+- [30:04.800] because this is delivering for America.
+- [30:08.550] (Inaudible commentary)
+- [30:22.820] Male Speaker: Here we go.
+- [30:24.130] We're going to move it back up, get taller again.
+- [30:26.460] Mr. President, thank you for the opportunity to work
+- [30:29.520] with you to improve the affordability of medicines
+- [30:31.640] for American patients.
+- [30:33.380] Amgen recently launched Amgen Now,
+- [30:36.180] a direct-to-patient option for Rapatha
+- [30:38.460] that cuts out PBM middlemen
+- [30:40.760] and significantly improves affordability for people
+- [30:44.350] who are uninsured,
+- [30:45.680] facing high out-of-pocket costs, or paying on their own.
+- [30:49.710] Repatha will also soon be added to trumpRx.com.
+- [30:55.030] A U.S.-based pioneer for more than four decades,
+- [30:58.070] we've invested more than $40 billion in U.
+- [31:01.040] Research and manufacturing since 2018,
+- [31:05.210] supported by pro-innovation policies that you've championed.
+- [31:10.320] Thank you again, Mr. President.
+- [31:12.150] We look forward to continuing to work together
+- [31:14.880] to deliver meaningful benefits
+- [31:17.280] and innovation for U.S. patients.
+- [31:25.500] Male Speaker: Thank you, Mr. President.
+- [31:26.700] (inaudible)
+- [31:27.990] from Bergen-Ingelheim. It's a true honor to be here
+- [31:31.470] for an agreement that we believe will make a true difference
+- [31:35.130] for American patients.
+- [31:36.830] For 140 years, Bergen Ingelheim, a family-owned company,
+- [31:41.550] has been committed to improving health
+- [31:43.990] and outcomes to save lives of patients.
+- [31:47.300] With today's agreement,
+- [31:48.620] we believe that we have actually struck the delicate balance
+- [31:52.160] that there is to protect America's leadership
+- [31:54.730] in research and innovation. And at the same time,
+- [31:57.270] ensure that patients pay a fair price for their medicines.
+- [32:01.050] So, from rare diseases in oncology or pulmonary fibrosis,
+- [32:03.900] where we do research into chronic diseases,
+- [32:06.990] diabetes, chronic kidney disease,
+- [32:10.310] obesity maybe in the future, I will go quick.
+- [32:13.350] We will continue to work for the American patients.
+- [32:16.840] We are on-shoring manufacturing to the U.S. to very rapidly,
+- [32:20.030] within the time of this administration,
+- [32:21.650] have the majority of our products
+- [32:22.980] produced in the U. S. Thank you, Mr. President.
+- [32:28.540] Female Speaker: Thank you, Mr. President.
+- [32:30.600] Bristol-Meyer Squibb is an American company that,
+- [32:33.740] for more than 6,500 years,
+- [32:35.260] has been protecting and extending American lives.
+- [32:38.500] And today, I'll make two very brief announcements.
+- [32:40.460] One, we are very proud to announce that we will provide
+- [32:43.700] Eliquis, our number one prescribed medicine,
+- [32:46.810] to Medicaid for free.
+- [32:54.850] We're also answering the administration's call,
+- [32:57.090] as the President said, to shore up the national medicine
+- [33:00.010] reserves by donating more than six
+- [33:01.760] and a half tons of eloquence.
+- [33:03.720] These actions build on BMS's commitment
+- [33:05.810] to invest $40 billion in the U.S.
+- [33:08.840] in research and development and manufacturing.
+- [33:11.320] And these investments reflect our enduring commitment
+- [33:14.030] to work with the administration to improve patient lives.
+- [33:16.560] So, thank you.
+- [33:22.410] Female Speaker: Thank you, Mr. President,
+- [33:23.710] for shining a light on the importance of our innovation
+- [33:26.620] and getting all countries to be for this innovation.
+- [33:31.520] I'm proud to represent Genentech,
+- [33:33.320] America's first biotech company.
+- [33:36.390] We are offering our flu medicine,
+- [33:39.580] which is very important this year,
+- [33:41.050] given the severity of the flu, Zofluza,
+- [33:45.170] for $50 direct to patients,
+- [33:48.610] and that's a 70 percent price reduction.
+- [33:51.430] And that also will be available on TrumpRx.
+- [33:54.410] We're also very proud of our $50 billion investment in U.S.
+- [33:58.900] Manufacturing and new research labs.
+- [34:01.970] Our new facility in North Carolina
+- [34:04.540] will bring 11,000 jobs to America.
+- [34:10.210] These are important steps forward for Americans
+- [34:13.260] and also for patients. Thank you very much.
+- [34:16.340] The President: (inaudible)
+- [34:22.230] Male Speaker: Thank you, Mr. President,
+- [34:23.540] to you and the administration.
+- [34:24.750] I think this objective of achieving the commitment
+- [34:27.480] to affordability and future innovation is extraordinary.
+- [34:30.850] And let me just say that the company I represent,
+- [34:33.470] Gilead Sciences, the scientists reach for cures every day.
+- [34:36.380] In fact, they've come up with medicines
+- [34:38.480] that have cured both certain forms of hepatitis
+- [34:40.690] and also certain forms a blood cancer.
+- [34:43.450] And we just recently launched a new medicine
+- [34:45.900] that's only given twice a year to prevent HIV.
+- [34:49.690] And we're working with Secretary Kennedy
+- [34:51.770] and his entire team, as well as the State Department,
+- [34:54.980] as a part of your XUS strategy to support ending the epidemic,
+- [35:00.480] really, during your term.
+- [35:01.910] And so we look forward to working with you on that.
+- [35:04.200] I've never been more optimistic about the innovation
+- [35:07.400] that exists across these companies
+- [35:10.140] and the impact this can have on America's health and economy.
+- [35:13.450] Thank you very much.
+- [35:14.710] The President: (inaudible) well with HIV?
+- [35:17.740] Male Speaker: It literally prevents HIV almost 100 percent
+- [35:20.360] given twice a year.
+- [35:21.620] And so we've, the America First State Department strategy,
+- [35:25.540] we've partnered with them and we're also partnering
+- [35:27.470] with Secretary Kennedy and his team.
+- [35:29.000] Thank you very much.
+- [35:34.180] Female Speaker: GSK cares deeply
+- [35:36.350] about improving the affordability of medicines,
+- [35:38.960] which is why today we're announcing
+- [35:40.490] for the 40 million Americans who live with asthma or COPD,
+- [35:45.710] we're going to be significantly lowering
+- [35:47.750] the cost of the medicines they rely on
+- [35:49.200] to breathe more easily every day.
+- [35:51.720] We're going be going direct on eight of our core medicines
+- [35:54.940] with deep discounts,
+- [35:56.230] and we're investing in American health security
+- [35:59.140] by donating the ingredients
+- [36:00.980] that go into rescue inhalers like this one.
+- [36:03.950] So that people can access them when they need them.
+- [36:07.470] This triple win is on top of our commitment
+- [36:09.860] to invest $30 billion in American manufacturing,
+- [36:13.190] American research, American technology,
+- [36:16.040] and American talent,
+- [36:17.620] and all of this to do the right thing for American patients,
+- [36:21.130] whether that's John in North Carolina
+- [36:23.340] who says he can now visit with his granddaughters
+- [36:26.160] without worrying whether he will have to struggle
+- [36:28.920] for breath for Marsha in Kentucky
+- [36:30.580] who says if her asthma inhaler is cheaper,
+- [36:33.720] She can properly celebrate with her family this holidays.
+- [36:36.630] Mr. President, thank you so much for your ambition
+- [36:40.890] for American patients
+- [36:42.280] and for the partnership of all of your teams
+- [36:44.110] so we get ahead of disease together.
+- [36:46.600] Male Speaker: Thank you very much.
+- [36:50.800] Mr. President, as the others have said,
+- [36:53.130] I just want to say thank you for your leadership.
+- [36:55.450] I reflect on your goal of driving affordability
+- [36:58.940] and access to Americans,
+- [37:00.610] but equally getting prices up outside the United States
+- [37:03.420] and we're 100 percent supportive of your actions.
+- [37:06.400] As many of the colleagues have talked about,
+- [37:08.190] I represent Merck
+- [37:09.610] and we also are looking to what we can do on TrumpRx.gov.
+- [37:13.880] In addition to bringing in our diabetes drugs,
+- [37:16.010] one of the things I just wanted to highlight,
+- [37:17.500] we have a novel oral.
+- [37:19.880] Cardiovascular drug which has an opportunity
+- [37:22.690] to meaningfully lower LDL and really still go
+- [37:25.660] after what is the leading cause of death in the United States
+- [37:27.950] which is cardiovascular disease kills a million people
+- [37:30.240] in the united states annually and thanks to trumprx.com
+- [37:33.860] you will not only be able to get this pill
+- [37:36.450] and have an easy to take pill but it'll be easy to get
+- [37:39.650] and it'll be affordable so I appreciate your leadership
+- [37:41.820] and look forward to continuing to partner with you
+- [37:43.620] Thank you.
+- [37:44.880] The President: Thank you very much.
+- [37:47.940] Vos Narasimhan: Mr. President, my name
+- [37:49.200] is Vos Narasimhan, CEO of Novartis.
+- [37:51.620] Novartise is a 250-year-old company,
+- [37:53.860] and today we're the global leader
+- [37:55.670] in bringing advanced technologies to patients
+- [37:58.400] in the United States around the world,
+- [37:59.810] technologies like radioligand therapies and cell
+- [38:02.350] and gene therapies. What I want to highlight to you
+- [38:04.560] is we're bringing the manufacturing
+- [38:06.170] of these technologies to the United states now.
+- [38:08.650] We've committed to building nine new facilities,
+- [38:11.310] seven of them we already have a groundbreaking for.
+- [38:14.150] Dr. McCarrey was with me in North Carolina.
+- [38:16.390] We were opening up four new plants
+- [38:18.330] Our plan is to scale manufacturing here
+- [38:20.470] and ensure all our critical medicines,
+- [38:22.330] including these most advanced technologies,
+- [38:24.700] are made here in the United States for U.S. patients.
+- [38:32.980] Male Speaker: So first of all, thank you, Mr. President.
+- [38:36.430] I think you've convened on an extremely important subject
+- [38:39.790] and made more progress than perhaps anybody ever thought
+- [38:42.060] was, frankly, possible. For Sanofi, this is another day
+- [38:46.970] to reaffirm our commitment to patients,
+- [38:49.820] our unwavering support to trying to do
+- [38:51.880] the right thing to help patients get better outcomes.
+- [38:55.210] But simply, affordability has been at the heart of that
+- [38:58.260] for a very long time. Having concluded this contract.
+- [39:02.680] With the president and the administration,
+- [39:05.050] we find ourselves able as a joint effort to go further
+- [39:08.500] than we ever thought was possible.
+- [39:10.640] And that's kudos to you and for what you have done.
+- [39:13.930] Improving affordability and preserving innovation
+- [39:18.000] and rewarding innovation is a very difficult balance to take.
+- [39:22.550] I think we feel the negotiations
+- [39:25.270] and the conversations have had the patient
+- [39:28.040] at the center throughout the entire time,
+- [39:30.200] as difficult as it may have been on occasions.
+- [39:33.960] I think what many can learn from the way this was handled,
+- [39:37.090] put simply, is that when you bring industry
+- [39:39.980] and you bring government together
+- [39:42.040] with the spirit of doing the right thing for patients,
+- [39:45.630] it is almost limitless what can be achieved.
+- [39:48.370] So on behalf of Sanofi, I'd like to thank you,
+- [39:50.690] Mr. President, and the team for what has been
+- [39:53.420] simply an incredible amount of progress.
+- [39:59.210] Thank you.
+- [40:02.080] The President: As I watched,
+- [40:03.320] these are the greatest business leaders,
+- [40:05.320] and they're beyond that. Many are doctors, you know,
+- [40:07.480] and they ended up running the biggest businesses
+- [40:09.930] in the country. But you've done so much,
+- [40:13.400] and you made it a lot easier than we thought it would be.
+- [40:15.630] You were just, you understood to do the right thing.
+- [40:19.800] And as I was watching, and I know all of them,
+- [40:22.700] not personally, a couple of them personally,
+- [40:24.380] but I know them all through reading
+- [40:26.250] lots of business magazines
+- [40:27.690] and other magazines and newspapers.
+- [40:30.530] These are highly respected people.
+- [40:32.020] And I said to myself, you know, look at what they've done.
+- [40:35.350] They've done something that, and as you said,
+- [40:37.850] something that you never thought was possible to get done.
+- [40:40.360] Most people thought for the United States
+- [40:43.020] to have favored nations,
+- [40:44.270] where we have the lowest drug price in the world,
+- [40:46.160] is unthinkable. And I say to myself you know
+- [40:49.310] we have a thing called the Unaffordable Care Act.
+- [40:51.910] It's unaffordable because the insurance companies
+- [40:54.490] make so much money
+- [40:55.780] and the insurance companies totally control the Democrats.
+- [40:59.580] And I said to myself, standing watching these great leaders --
+- [41:02.260] and we have four other leaders coming in, Johnson&
+- [41:04.400] Johnson and four other very big companies, actually.
+- [41:07.680] Very great companies. They've all agreed.
+- [41:10.360] And they'll be coming in next week,
+- [41:11.790] and we appreciate them, too.
+- [41:13.850] But they've agreed to the same thing --
+- [41:15.440] lowest price anywhere in the world.
+- [41:18.450] I said, you know, I think that the insurance companies --
+- [41:22.710] we should have a meeting and we should talk to them.
+- [41:25.030] Because I would say that maybe with one talk,
+- [41:27.800] they would be willing to cut their prices by 50,
+- [41:31.370] 60, or 70 percent. They've made a fortune.
+- [41:34.980] They've had stock prices that have gone up 13,
+- [41:38.360] 14, 15, 16, 17, and even 18.
+- [41:43.900] Think of this. They went up 1,800 percent.
+- [41:46.320] One of them went up numbers that nobody's ever seen before.
+- [41:49.170] They had a nice return, not a 2 percent,
+- [41:50.740] an 1, 800 percent return. One, one and a fourth of that.
+- [41:55.500] Therefore, there's a lot of fat that can be cut.
+- [41:59.210] And I'd like to announce here,
+- [42:01.430] this is just an idea that I had standing here
+- [42:03.660] watching these great leaders saying that we're going to have
+- [42:06.460] the lowest prices anywhere in the world,
+- [42:08.530] something that nobody would have thought possible.
+- [42:11.020] And they're going come out great.
+- [42:12.450] But also donating incredible different medications,
+- [42:17.910] medications that are world-famous medications
+- [42:20.350] that one or another of them make.
+- [42:23.130] And donating them, in some cases for free
+- [42:25.170] or very, very low prices.
+- [42:27.210] And I said, you know, I'll bet you
+- [42:28.610] if I called a meeting of the insurance companies,
+- [42:30.920] the companies that are involved with health care costs,
+- [42:36.730] I would be willing to bet, I think, that they would reduce
+- [42:40.150] their prices very, very substantially
+- [42:41.910] and we could have fair health care in the country.
+- [42:44.420] Now, my initial thought,
+- [42:46.360] and this is what I want to do as of right now,
+- [42:48.220] this is the alternative, is that all of the the billions
+- [42:52.370] and billions, ultimately trillions
+- [42:54.090] and trillions of dollars that's paid to these companies,
+- [42:56.960] we're going to pay directly to the people.
+- [42:59.390] But there's another way of doing it,
+- [43:00.900] and that's getting the insurance companies to ease up
+- [43:05.700] and to cut their pricing way, way down
+- [43:08.120] and stay part of the system. So I'm going to call a meeting.
+- [43:11.410] It could be in Florida this coming week,
+- [43:13.320] or it could be back in the White House the first week,
+- [43:16.960] not the second or third week.
+- [43:19.020] I'm going to call a meeting of the big insurance companies
+- [43:22.730] that have gotten so rich by receiving money
+- [43:25.860] and really much far, far more money than they're entitled to.
+- [43:31.180] And I have a feeling maybe if they would act
+- [43:33.420] like these incredible,
+- [43:34.930] brilliant, responsible citizens behind me,
+- [43:38.620] people that love our country and they love the world.
+- [43:41.250] I mean, frankly, they love these are international companies
+- [43:44.850] for the most part.
+- [43:47.060] I'm going to call a meeting of the insurance companies.
+- [43:49.130] I'm going to see if they get their price down,
+- [43:50.610] to put it very bluntly.
+- [43:53.150] And I think that is a very big statement.
+- [43:55.170] And what happened here is the biggest statement of all,
+- [43:57.440] because nobody thought a thing like this was possible.
+- [44:00.230] And I think based on that,
+- [44:01.490] I won't even take questions today
+- [44:02.890] because there's no way I can take questions
+- [44:04.700] that are anywhere comparable to what you just witnessed.
+- [44:07.240] You just witnessed drug prices that will go down at levels
+- [44:13.080] never thought even possible, Marty, right?
+- [44:16.700] Never thought even possible.
+- [44:18.900] And I think that the second biggest part of this meeting
+- [44:23.710] is going to be the fact that I'm going to call
+- [44:25.910] in the insurance companies that are making so much money,
+- [44:29.940] and they have to make less, a lot less.
+- [44:32.430] And maybe we can have reasonable healthcare
+- [44:35.320] without having to cut them out and let it all go awry.
+- [44:40.570] So we're going to calling a meeting.
+- [44:42.800] It'll be either in Florida or it'll be here the first week.
+- [44:45.890] And I'd prefer not talking and asking questions
+- [44:48.360] only for the reason that this is such a big announcement,
+- [44:52.020] meaning what these people have said
+- [44:54.060] and what the other four companies are going to say,
+- [44:56.200] which is exactly the same thing,
+- [44:58.650] that I really don't want to soil it up by asking questions,
+- [45:04.100] even questions that are very fair questions,
+- [45:06.130] that I'd love to answer.
+- [45:07.400] So I think we have to just stop right here.
+- [45:12.630] I really appreciate the fact that these companies came here.
+- [45:15.860] These, again, you know, a lot of the media is not aware,
+- [45:20.160] not really cognizant of the people standing behind me.
+- [45:24.360] These are the biggest executives in the world,
+- [45:28.850] and what they're doing today is monumental.
+- [45:32.530] And I want to stand it on that,
+- [45:33.930] and I'll see you later if you'd like,
+- [45:35.820] but I don't want to be asking questions
+- [45:37.470] having to do with anything else.
+- [45:39.290] I do want you to remember what I said about the 4.5 percent.
+- [45:43.790] We took 100 percent of the new workers
+- [45:48.460] was in the private sector,
+- [45:50.750] and we've cut tremendous numbers of government jobs.
+- [45:53.900] And that's why, if you look at our numbers, they're so good.
+- [45:56.970] Also, more than -- I don't know if you've read this --
+- [45:59.580] came out a week ago.
+- [46:02.000] More than 50 percent of our trade deficit was cut.
+- [46:05.580] We cut it more than 50 in a period of a few months.
+- [46:09.100] Nobody thought --
+- [46:10.310] nobody thought any of these things were possible.
+- [46:13.120] Thank you very much everybody.

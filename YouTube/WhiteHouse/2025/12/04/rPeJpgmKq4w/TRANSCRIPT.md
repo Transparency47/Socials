@@ -1,0 +1,188 @@
+<!-- source: https://www.youtube.com/watch?v=rPeJpgmKq4w -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: rPeJpgmKq4w -->
+<!-- date_published: 2025-12-04T23:40:32+00:00 -->
+<!-- date_accessed: 2026-06-02T02:40:44.247712+00:00 -->
+
+# Transcript: President Trump and The First Lady Participate in the National Christmas Tree Lighting
+
+- [00:02.810] Matthew West: Wow.
+- [00:04.860] Happy holidays, Merry Christmas, America.
+- [00:09.240] Happy holidays and Merry Christmas America.
+- [00:12.370] Welcome to the 103rd National Christmas Tree Lighting.
+- [00:17.080] This is so exciting, isn't it?
+- [00:18.930] Gabby Barrett: Oh my gosh, absolutely.
+- [00:20.680] Hello everybody. We are just a few steps away
+- [00:26.130] from the world's most famous house.
+- [00:31.230] Getting ready to light up the world's most famous tree
+- [00:35.010] and you can't top that.
+- [00:36.340] Matthew West: You cannot top that.
+- [00:37.700] I am so thrilled to be here with you, Gabby,
+- [00:40.770] at the White House and President's Park,
+- [00:43.250] where for over one hundred years this uniquely American tradition
+- [00:47.840] has brought our country together.
+- [00:51.160] Gabby Barrett: And as we come together tonight,
+- [00:53.420] it's important to remember those who can't be here with us.
+- [00:57.310] So let's give a special moment of deep appreciation
+- [01:01.050] to all of our men and women in uniform
+- [01:03.760] serving this great nation around the world.
+- [01:11.320] And may they feel our gratitude for all that they give.
+- [01:15.750] Matthew West: Absolutely.
+- [01:19.220] That's right. We are so thankful.
+- [01:21.230] And now, ladies and gentlemen,
+- [01:23.610] the President of the United States,
+- [01:25.930] Donald J. Trump, and First Lady, Melania Trump.
+- [01:31.210] ♪ (Christmas music playing) ♪
+- [02:02.860] The President: Well, thank you very much, everybody.
+- [02:04.520] It is beautiful, not too cold. There's no wind.
+- [02:08.540] We don't have to wear hats or anything.
+- [02:10.280] This is a special time.
+- [02:12.120] And Melania and I are thrilled to wish everyone here tonight
+- [02:15.860] and Americans all across this land
+- [02:17.920] a very, very Merry Christmas.
+- [02:22.180] So is everybody ready to light the beautiful Christmas tree?
+- [02:26.150] Are you ready?
+- [02:28.810] So the First lLady is going to do the honors,
+- [02:32.090] and we're going to do a countdown.
+- [02:34.080] We'll go from five to zero, okay?
+- [02:37.710] Five, four, three, two, one.
+- [02:43.020] ♪ (Christmas music playing) ♪
+- [03:19.490] The President: Well, thank you very much,
+- [03:20.790] and thank you, Melania.
+- [03:22.560] And it's a beautiful job they did on creating that tree.
+- [03:26.840] It's a beauty. And let me also recognize
+- [03:30.640] Vice President JD Vance and second Lady Usha.
+- [03:38.100] As well as Secretaries Scott Bessent, Pete Hegseth, Attorney
+- [03:44.430] General Pam Bondi,
+- [03:46.780] Secretaries Doug Bergum and Robert F. Kennedy Jr.
+- [03:52.010] Administrator Kelly Loffler and their wonderful families
+- [03:56.200] are doing a fantastic job.
+- [03:57.680] And I see out in the audience the great one,
+- [04:00.370] Wayne Gretzky and Janet.
+- [04:02.020] Thank you very much, Wayne, for being here.
+- [04:04.710] He's used to this kind of weather.
+- [04:07.280] Let's also express our gratitude
+- [04:09.510] to the great people of the National Park Service.
+- [04:12.420] They're incredible, the job they've done.
+- [04:15.830] As well as the unbelievable performers here tonight.
+- [04:19.560] You're going to see some incredible performers,
+- [04:22.050] and we have in the audience the Beach Boys.
+- [04:24.590] They're great. During this holy season,
+- [04:28.530] Christians everywhere rejoice at the miracle.
+- [04:31.830] Bethlehem, more than two thousand years ago,
+- [04:35.440] when the Son of God, our Lord and Savior Jesus
+- [04:38.210] Christ came down from heaven to be with us.
+- [04:42.090] You're right. Full of grace and truth,
+- [04:45.140] he brought the gift of God's love into the world
+- [04:48.910] and the promise of salvation for every person and every nation.
+- [04:54.000] And we just settled another war today.
+- [04:56.240] You saw that with Rwanda and the Congo.
+- [04:59.540] It's been going on for 34 years, millions of people killed.
+- [05:03.890] Could be 20 million.
+- [05:05.090] They don't know what the number is,
+- [05:06.420] and we just settled it today. That was a big one.
+- [05:08.430] We're very happy to announce it on this important day.
+- [05:12.900] Tonight, this beautiful evergreen tree glows bright
+- [05:15.660] on the dark and cold winter night
+- [05:17.940] and reminds us of the words of Gospel of John.
+- [05:21.740] "In him was life, and that life was the light of all mankind."
+- [05:26.950] Beautiful words. With the birth of Jesus,
+- [05:30.160] human history turned from night to day.
+- [05:33.600] His word and his example call us to love one another,
+- [05:37.350] to serve one another, and to honor the sacred truth
+- [05:40.800] that every child is specially made in the image of God.
+- [05:53.780] I'm so happy that our presidency was delayed.
+- [05:57.750] Otherwise, I'd be sitting home watching television,
+- [06:00.120] not being invited. I would be extremely upset.
+- [06:03.930] And remember, we have not only the 250 years,
+- [06:07.070] but we have this is a big one.
+- [06:08.750] We have the World Cup and we have the Olympics
+- [06:11.250] coming up all within this four year period.
+- [06:16.290] See, if they didn't rig the election,
+- [06:17.990] I would have been sitting --
+- [06:19.340] can you imagine I wouldn't have any of them.
+- [06:21.630] And I probably wouldn't have been invited.
+- [06:23.390] I would have been very upset by that.
+- [06:26.020] But America has stood tall in part
+- [06:27.960] because millions of our citizens have heeded that call
+- [06:31.430] and the faith and service of Christians
+- [06:34.070] have been essential parts of America's strength
+- [06:37.760] from the very, very beginning. Incredible.
+- [06:40.450] We love the Christians. We love all religions.
+- [06:43.390] And by the way, religion is coming back to the USA.
+- [06:46.620] You see that very strongly. So this Christmas season,
+- [06:51.450] let me say thank you to everyone who serves the needy
+- [06:54.710] and lifts up the communities inspired by faith.
+- [06:58.620] Thank you to the police, law enforcement officers,
+- [07:01.650] first responders, ICE and Border Patrol agents
+- [07:05.450] who risk their lives every day to defend the innocent,
+- [07:08.840] protect the good, and keep the evil in danger at bay.
+- [07:12.860] And thank you to the men
+- [07:14.120] and women of the United States military,
+- [07:16.230] including the brave heroes of our National Guard
+- [07:19.540] here in Washington, DC, where we've set a record
+- [07:23.720] for lack of crime in twenty eight years.
+- [07:27.110] So I just wanna say we have a great a great place
+- [07:32.960] and I want to pay my highest respects
+- [07:35.360] to those two great guardsmen. You know who I'm talking about.
+- [07:41.380] They paid in one case the ultimate and the other.
+- [07:44.630] Andrew is getting better.
+- [07:45.910] Sarah unfortunately is watching from a high,
+- [07:49.170] watching from heaven. Her parents are so incredible.
+- [07:51.760] And Andrew is hopefully getting better.
+- [07:56.060] He hit he got hit hard defending us,
+- [07:58.970] and I just want to pay my respects to them,
+- [08:00.920] two incredible people, unbelievable people.
+- [08:04.220] I spoke with the parents and met the parents today,
+- [08:06.450] but the parents of Andrew.
+- [08:07.690] And they have spirit and they love our country
+- [08:10.740] so much you wouldn't believe.
+- [08:12.950] But as a nation, we have much to be grateful for.
+- [08:15.910] On this holiday season, our border is secure,
+- [08:18.900] our spirit is restored.
+- [08:21.170] Most secure border we've ever had
+- [08:23.970] in the history of our country. Seven months,
+- [08:26.110] and nobody has come in illegally into our country.
+- [08:29.500] Nobody, not one. Our economy is thriving,
+- [08:33.280] inflation has stopped, our nation is strong,
+- [08:36.530] and America is back, bigger and better, stronger,
+- [08:39.620] better than ever before. Think of it.
+- [08:42.180] And we're making peace all over the world.
+- [08:44.130] We're settling wars at levels that nobody's ever seen before.
+- [08:48.280] Eight of them. We're looking for one more.
+- [08:50.450] That's Russia Ukraine, if that's possible.
+- [08:52.970] And I think we'll get there eventually.
+- [08:55.740] Last week, 8,000 soldiers killed last month.
+- [09:00.690] They had 27,000 soldiers needlessly killed.
+- [09:03.810] We got to get that stopped. We're working very hard on it.
+- [09:07.180] Just over one year ago,
+- [09:08.470] our country was in very, very serious trouble.
+- [09:14.450] The King of Saudi Arabia said to me very strongly, sir.
+- [09:18.140] One year ago your country was dead.
+- [09:20.030] Now you have the strongest and hottest country
+- [09:22.320] anywhere in the world.
+- [09:23.580] Can you imagine? We did this in ten months.
+- [09:26.970] What a difference. And it's true.
+- [09:28.700] Everybody feels that, and all leaders feel that.
+- [09:31.850] So as we prepare to celebrate the miracle of Christmas,
+- [09:34.950] we thank God for his many blessings,
+- [09:37.440] and together we rejoice at the true source of greatness,
+- [09:40.920] happiness, and strength.
+- [09:42.500] The good news is the glorious nights.
+- [09:45.460] Two thousand years ago, think of it,
+- [09:47.480] two thousand years ago, it was indeed a glorious night.
+- [09:51.790] So I want to thank everybody here.
+- [09:54.140] I want to pay my deepest respect and love
+- [09:57.060] to all of our great citizens, like 350 million people.
+- [10:03.670] We love them all.
+- [10:05.530] Whether you like them or not, we love them all.
+- [10:07.830] We want to take care of everybody.
+- [10:09.400] We have to take care of everybody in our country.
+- [10:11.580] I want to wish everybody a very Merry Christmas
+- [10:14.680] and a happy new year, and have a good time.
+- [10:18.000] And you're going to see some great entertainment.
+- [10:20.250] Thank you very much, everybody.
+- [10:22.030] Merry Christmas, happy Hanukkah, happy New Year.
+- [10:25.400] Thank you, everybody. Thank you.
+- [10:28.560] ♪ (Christmas music playing) ♪

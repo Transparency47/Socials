@@ -1,0 +1,404 @@
+<!-- source: https://www.youtube.com/watch?v=IByVie2qY30 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: IByVie2qY30 -->
+<!-- date_published: 2026-05-08T17:00:03+00:00 -->
+<!-- date_accessed: 2026-06-02T02:34:06.871935+00:00 -->
+
+# Transcript: President Trump Delivers Remarks, May 8, 2026
+
+- [00:00.000] Announcer: Ladies and gentlemen,
+- [00:01.230] the President of the United States,
+- [00:03.380] Donald J. Trump.
+- [00:06.000] ♪ ("God Bless the USA" by Lee Greenwood) ♪
+- [00:37.050] The President: Thank you very much.
+- [00:38.260] We love that song.
+- [00:39.470] We could have listened to the whole song.
+- [00:41.580] We had that right from the beginning.
+- [00:43.640] It's Lee Greenwood,
+- [00:45.130] and it's been a great tribute to all of us.
+- [00:48.860] Why don't we sit down? We've got plenty of time, right?
+- [00:52.760] Special people, very special people.
+- [00:55.510] And I hope you like what we're doing.
+- [00:58.640] Did everybody get to see the Presidential Walk of Fame?
+- [01:04.650] And you have some of your favorite presidents there,
+- [01:06.810] some of your least favorite presidents.
+- [01:09.330] Some were good, some were great, some were terrible.
+- [01:13.020] But that's the way life goes, right?
+- [01:14.580] And you notice the roses? This is a rose garden.
+- [01:17.370] And we had a lot of roses, I will tell you.
+- [01:20.130] This was a rose garden that didn't have too many roses.
+- [01:24.160] And if you look now, we cornered the market on roses.
+- [01:28.740] And you deserve them.
+- [01:30.340] So thank you for being with us in this beautiful spring,
+- [01:35.260] this gorgeous spring day.
+- [01:37.020] The very famous rose garden has been famous for a long time.
+- [01:41.170] They let it get a little bit out of control,
+- [01:43.680] but now it's brought back to the highest level.
+- [01:46.420] And where you're standing or sitting right now
+- [01:50.370] is white stone, and that was grass.
+- [01:53.380] And the problem with it is you couldn't walk on it
+- [01:55.420] because this was built on a wetland
+- [01:56.910] and the grass was always soaking wet.
+- [01:58.550] It didn't matter. It was always soaking wet, absolutely.
+- [02:02.650] And so when Brooke Rollins would get up
+- [02:06.020] and start making a magnificent speech
+- [02:08.610] and she'd be standing in mud,
+- [02:10.850] and she'd say, "I ruined my shoes."
+- [02:12.670] Her speeches would never be as good as they could have been
+- [02:14.750] because she was always concerned about ruining her shoes.
+- [02:17.600] But people would come here,
+- [02:18.900] women would come with a high heels,
+- [02:20.530] and it wasn't a pretty picture.
+- [02:22.330] So after about 150 years, we gave up in the grass,
+- [02:27.400] and we said, "Let's build it so we can use it."
+- [02:29.280] And now, we have lunches here. We have dinners here.
+- [02:32.080] It's nice and it's cool.
+- [02:34.070] The white reflects the sun, so you don't --
+- [02:37.040] Although it does go on my eye right now, I noticed.
+- [02:39.670] I didn't anticipate that, but it's a great place.
+- [02:44.400] It's a great place.
+- [02:45.720] We do news conferences, we do everything.
+- [02:47.740] And right up here, you probably noticed a new black granite,
+- [02:52.340] and it's been so well-received. People can't even believe it
+- [02:56.390] because the stones were all broken
+- [02:58.450] and really in bad disrepair, and it's really become great.
+- [03:02.900] And we added the pictures of the presidents,
+- [03:06.270] from George Washington to a guy named Trump.
+- [03:09.580] And people, really, they've loved it.
+- [03:12.230] We call it the Presidential Wall of Fame or Walk of Fame.
+- [03:15.980] We say you could call it either. Do you like Walk or Wall?
+- [03:19.210] Ready? Presidential Walk of Fame.
+- [03:24.840] Presidential Wall of Fame.
+- [03:29.040] Same. It's the same. I would call that a tie.
+- [03:34.320] But I want to thank you all for being here.
+- [03:35.990] It's amazing. The weekend, we celebrate Mother's Day,
+- [03:40.320] honoring the women who raised us.
+- [03:43.070] And all of the wonderful mothers in our lives,
+- [03:45.240] for millions of American families,
+- [03:47.510] Sunday will be filled with love and gratitude and joy.
+- [03:51.620] I had a great mother, by the way.
+- [03:53.980] And today, we're honored to be joined
+- [03:55.470] by many strong and truly heroic moms
+- [03:58.780] who have stood up for their children,
+- [04:00.700] both in life and in a very profound loss.
+- [04:04.170] Very, very terrible.
+- [04:05.450] And many, just terrible loss, many cases.
+- [04:09.470] And we have a lot of the greatest people on earth,
+- [04:11.840] angel moms.
+- [04:13.100] They're with us today. They're great people.
+- [04:15.420] They've been through so much.
+- [04:18.950] I got to know so many of you during my first days of running.
+- [04:25.570] I got to know you and I got to love you.
+- [04:28.610] But we want to thank you for being here.
+- [04:30.640] Mother's Day, it's one of the great days.
+- [04:33.480] I always think so fondly of my mother.
+- [04:35.420] I had a wonderful mother.
+- [04:37.270] Among those with us this afternoon
+- [04:39.070] are a number of the angel moms
+- [04:41.620] who saw their precious children stolen from them
+- [04:44.310] by the open border policies of the radical left.
+- [04:48.260] Open borders, I call them stupid borders, not open.
+- [04:51.280] I call them stupid borders
+- [04:53.410] by stupid people that put them there,
+- [04:56.170] and the migrant criminals that they let them pour
+- [04:59.540] into our country and bad things happened.
+- [05:02.810] Bad things happened.
+- [05:04.770] 25 million people came into our country.
+- [05:07.790] Many of them were criminals. Many of them were murderers.
+- [05:10.320] They allowed them in with their open border policy of stupidity.
+- [05:13.980] These incredibly brave and resilient women
+- [05:16.220] have turned terrible tragedy into unyielding resolve,
+- [05:20.430] becoming advocates so that their mothers do not
+- [05:23.950] have to endure the same heartache
+- [05:26.030] that they've felt all of their lives they've felt for so long.
+- [05:31.700] They've raised the most beautiful child that has taken,
+- [05:34.740] and they've spent so many years.
+- [05:36.980] In many cases, I see some of you for --
+- [05:39.520] I've known you for years,
+- [05:40.730] and others are unfortunately new members of that club.
+- [05:45.610] And I say unfortunately, it's a sad thing.
+- [05:48.450] Should have never happened. Should have never happened.
+- [05:51.610] In their honor, we've rapidly turned the worst
+- [05:53.960] and most dangerous border in the history of our country
+- [05:57.200] into the strongest border in American history.
+- [05:59.480] We have no people come in during the last 11 months.
+- [06:02.520] We have zero. Zero. Nobody even tries to come up.
+- [06:08.960] You used to read about the thousands of people
+- [06:11.660] that would pour in,
+- [06:12.870] and they'd just come up in caravans.
+- [06:15.350] I think it was my name. I came up with it.
+- [06:17.170] It looked like a caravan.
+- [06:18.970] 25, 30,000 people pouring up. They walked through Mexico.
+- [06:23.270] They come from all different locations,
+- [06:25.070] come from all over the world actually,
+- [06:27.590] but they came in through our southern border.
+- [06:29.240] And they'd come up and just let them walk in.
+- [06:33.290] Nobody had any idea who they were.
+- [06:34.700] They were murderers. 11,888 murderers.
+- [06:39.490] They were allowed to come into our country.
+- [06:41.190] We've gotten a lot of them out.
+- [06:43.630] Many of them murdered more than one person.
+- [06:45.900] What a shame. What a disgusting shame.
+- [06:48.710] That people can even think that this is okay
+- [06:50.850] is pretty incredible.
+- [06:52.650] But for the past 12 months, we've had --
+- [06:55.540] That's been our number.
+- [06:57.050] And these numbers are done by people that --
+- [07:00.990] The numbers, when I say zero, I actually mean zero.
+- [07:04.540] It's hard to believe, actually.
+- [07:06.460] But they're done by people that are --
+- [07:08.410] They tend to be somewhat on the left.
+- [07:10.600] So, they're not going to give us a fair shake.
+- [07:13.780] And they say that -- People don't come anymore
+- [07:16.960] because they know they're not going to get through.
+- [07:18.770] So when they know they're not going to get through,
+- [07:20.230] they just don't come.
+- [07:21.500] And just on that, we save a lot of lives.
+- [07:23.260] Because that journey up from Honduras and El Salvador
+- [07:28.370] and lots of other countries,
+- [07:30.180] or from the Congo, where they drop them there,
+- [07:33.150] and they walk up and they come through our country.
+- [07:35.570] They emptied the prisons of the Congo
+- [07:38.790] into the area of the southern border
+- [07:41.960] and then told them to just walk in,
+- [07:43.660] "Because stupid Americans
+- [07:44.980] are going to accept you beautifully."
+- [07:47.130] And these were hard, mean, vicious criminals
+- [07:51.370] they allowed into our country.
+- [07:53.310] How anybody can vote for these people is hard to believe, okay?
+- [07:56.780] It's hard for believe.
+- [07:58.290] But to a friend of mine, Mary Ann Mendoza -- Mary Ann?
+- [08:02.130] Where's Mary Ann? Where are you, Mary Ann?
+- [08:04.700] I got to know you right from the beginning, right?
+- [08:08.860] And I won't ask her that, but I would often ask,
+- [08:12.680] "Is it easier with time because time has gone by?"
+- [08:15.650] Mary Ann, no? It's not. Sadly, it's not.
+- [08:19.480] You always hear, "With time and time,"
+- [08:22.040] but a lot of people say it's not easier.
+- [08:25.630] But you're a special woman.
+- [08:28.280] I've gotten to be a friend of yours.
+- [08:29.860] You're a special woman.
+- [08:31.150] What you have to go through is disgraceful.
+- [08:34.570] Tammy Nobles. Tammy, are you here?
+- [08:36.520] Tammy Nobles, right. Does time help, Tammy? No?
+- [08:42.470] It used to be. Time heals all wounds, right?
+- [08:45.250] But it doesn't. It doesn't.
+- [08:47.050] When you love somebody that much,
+- [08:48.540] it doesn't help like it should.
+- [08:52.550] Jacqueline Medina, a great person.
+- [08:55.710] Where's Jacqueline?
+- [08:57.170] Jacqueline, where are you? Thank you, darling. Thank you.
+- [09:02.650] And so many others that I want to thank you for coming,
+- [09:05.040] and I don't think you've been treated properly.
+- [09:09.730] It's hard to believe,
+- [09:10.990] but the angel moms have not been treated properly,
+- [09:13.190] but this president treats you properly.
+- [09:15.660] I can't speak for others,
+- [09:17.700] but this one treats you properly. We love you all.
+- [09:20.990] And all I can say is our hearts are out to you on Mother's Day,
+- [09:25.160] and you have a good Mother's Day.
+- [09:26.690] Go and have a good Mother's Day.
+- [09:28.800] In securing our border,
+- [09:30.060] we've also made tremendous strides
+- [09:32.350] in stopping the flow of illegal drugs into our country.
+- [09:35.910] The flood of deadly fentanyl across our border is down by 59%
+- [09:42.330] and the drugs coming in by sea are down by 97%. 97%.
+- [09:49.980] And we're trying to figure out who the 3%
+- [09:52.130] are because they are the bravest people on earth.
+- [09:55.520] You see how we stop them by sea.
+- [09:57.330] For years, they'd go and catch the boat, bring them to court.
+- [10:01.080] They'd go in, they'd go out.
+- [10:02.880] By the time of the evening, they'd be back in another boat,
+- [10:05.310] bringing drugs in.
+- [10:06.870] So, we gave them warning, and we don't do that anymore.
+- [10:09.620] We do it much more efficiently.
+- [10:13.660] But think of that down by sea, a lot of them came in,
+- [10:17.700] about 50%. It's down 97.
+- [10:20.460] Now, we've started a very strong --
+- [10:22.680] The sea was more difficult. And now, we've started land,
+- [10:26.060] and you'll see it coming down to --
+- [10:27.630] It's come down a lot, but you'll see it coming down.
+- [10:31.120] They come through Mexico for the most part.
+- [10:33.110] We have a problem, because the cartels rule Mexico
+- [10:37.570] and nobody else. The cartels, they just rule it.
+- [10:41.290] And we lose 200,000 people a year through this poison
+- [10:47.040] that pours into our country. So we have the sea done,
+- [10:50.890] meaning the ocean, the waterways,
+- [10:54.040] pretty much done 97%.
+- [10:55.960] And we're going to have the land done very soon.
+- [10:58.460] I want to thank the brave moms
+- [11:00.400] fighting the epidemic of drug addiction here.
+- [11:03.520] Addiction. And this afternoon, including Anne Funder --
+- [11:09.030] Anne, you're here someplace? Anne Funder does a great job.
+- [11:12.960] Wow. Good. That's a great job you do, Anne.
+- [11:16.650] Stephanie Rowe?
+- [11:17.880] Stephanie, thank you. Thank you, Stephanie.
+- [11:22.330] Thank you behind the cameras there, Stephanie.
+- [11:26.010] Thank you very much.
+- [11:28.490] And a friend of mine, Jackie Siegel,
+- [11:30.350] who's a great, great mom, great mother.
+- [11:33.800] Thank you, Jackie. I've known her for a long time.
+- [11:36.180] She looks better now
+- [11:37.400] than she did 20 years ago, right?
+- [11:40.270] Thank you very much, Jackie.
+- [11:42.230] Last summer, it was my great honor
+- [11:43.960] to sign the HALT Fentanyl Act into law,
+- [11:48.320] and we'll never give up on that mission
+- [11:51.790] for ending the drug epidemic in America.
+- [11:54.760] We've come a long way, though.
+- [11:56.190] We've stopped massive amounts of drugs from coming in.
+- [12:00.790] This afternoon, we're also joined by some of
+- [12:02.830] the most extraordinary mothers our nation has ever produced,
+- [12:05.970] our cherished Gold Star moms. These are Gold Star moms.
+- [12:10.230] These mothers raised up children so selfless and so devoted
+- [12:13.570] that they volunteered to wear the uniform of our nation
+- [12:17.330] and lay down their lives for all of us.
+- [12:20.450] One of those mothers is Janice Chance.
+- [12:23.060] Janice? Where's Janice? Thank you. Thank you, Janice.
+- [12:28.150] Hi, you look great. That's a beautiful hat.
+- [12:32.230] Thank you, Janice.
+- [12:33.750] Who lost her son, Marine Captain Jesse Melton.
+- [12:38.500] And I heard he was outstanding.
+- [12:41.890] They give me lists, and they tell me about people.
+- [12:44.410] They said that Jesse was outstanding, Janice.
+- [12:48.220] They have the word outstanding. Thank you for being here.
+- [12:51.790] Just before he went to Afghanistan in 2008,
+- [12:56.040] Jesse told his mother,
+- [12:57.240] "Mom, I want to go change the world
+- [12:59.850] and make it an even better place.
+- [13:02.320] I want to make it a better place, mom."
+- [13:05.350] Just before his 30th birthday, even though he had the day off,
+- [13:08.920] Jesse volunteered to take the place of a fellow Marine,
+- [13:13.700] and that of his brother-in-arms
+- [13:15.380] could be present for the birth of a daughter.
+- [13:18.380] That day, Jesse gave his life for our country.
+- [13:22.540] Jesse was struck down that day by helping somebody else.
+- [13:26.930] And Janice, I want to say
+- [13:28.130] America is a strong and free nation today
+- [13:31.690] because of people like your great son,
+- [13:33.530] and we want to thank you for being here.
+- [13:34.970] Thank you very much.
+- [13:39.080] I also want to express my love for the moms with us
+- [13:42.620] whose extraordinary heroes gave their lives
+- [13:44.880] in the terrorist attack at Abbey Gate in Afghanistan.
+- [13:48.750] I got to know you very well.
+- [13:51.110] Very well. These are phenomenal people.
+- [13:55.420] We went to a club I own in Bedminster, New Jersey,
+- [13:59.900] which is beautiful. They played music.
+- [14:01.920] They said, "You actually think he's coming out?"
+- [14:03.870] They said, "Yes."
+- [14:05.200] And I was going to do just a stop by and say hello.
+- [14:08.390] And we ended up listening to music
+- [14:09.990] for four hours on that beautiful night,
+- [14:14.550] looking at the sky, thinking about those wonderful people.
+- [14:18.390] Abbey Gate, very well known, should have never happened.
+- [14:21.690] That should have never happened.
+- [14:22.890] That was incompetence by the Biden administration.
+- [14:26.560] So to Alice Lopez, you know that, right?
+- [14:29.330] Yeah, we know that.
+- [14:31.180] To Alicia Lopez and Paula Knausself, Coral Brisenio,
+- [14:38.810] and to all of the Abbey Gate moms,
+- [14:40.440] we're thinking of you in this Mother's Day.
+- [14:43.200] And again, we had you to the White House.
+- [14:46.710] We had you to --
+- [14:48.210] I was over at a very beautiful cemetery,
+- [14:51.830] as beautiful as they can be, but a sad occasion.
+- [14:55.800] We went over and we paid our respects,
+- [14:58.230] but we lost great people that day.
+- [15:02.840] We shouldn't have lost any people that day.
+- [15:05.280] Gross incompetence. This Mother's Day,
+- [15:08.360] we're thinking of all of those incredible moms
+- [15:11.120] and we're doing everything in our power to support them,
+- [15:14.480] and millions of other mothers all across America.
+- [15:18.060] We're blessed to have many wonderful mothers
+- [15:20.140] serving in this administration,
+- [15:22.110] including Secretary of Agriculture Brooke Rollins,
+- [15:25.900] who's doing a phenomenal job. Thank you very much.
+- [15:30.920] And the first woman ever to serve
+- [15:32.650] as a White House Chief of Staff.
+- [15:35.210] She's become a legend, Susie Wiles.
+- [15:42.330] She's amazing.
+- [15:43.690] To help American families and mothers,
+- [15:45.600] we passed the great Big Beautiful Bill,
+- [15:47.430] the largest tax cuts in American history.
+- [15:50.520] We expanded the child tax credit
+- [15:52.790] to $2,200 from a much lower number per child,
+- [15:58.650] and delivered the largest expansion of school choice
+- [16:01.220] in American history.
+- [16:02.450] We have school choice all over now.
+- [16:04.170] We didn't have -- We had virtually none.
+- [16:06.750] Everybody loved school choice with accounts.
+- [16:09.550] We have a very special thing, the Trump Accounts,
+- [16:12.630] where we're helping families to set aside tax advantage
+- [16:16.290] savings for their children's future.
+- [16:18.340] And we are giving every American newborn child
+- [16:21.910] $1,000 automatically to invest
+- [16:24.570] and to grow over the course of their lives.
+- [16:28.980] And I want to thank the Dell family.
+- [16:30.930] It's a great family. He is amazing. She is amazing.
+- [16:36.660] They've done such a job. Such a job on that.
+- [16:40.220] They put up a lot of money to put up --
+- [16:42.730] 6,250,000,000. That's somebody.
+- [16:46.040] And he started making computers on his bed in college
+- [16:48.240] and selling them,
+- [16:49.460] because they were better than other computers.
+- [16:51.260] And he just -- I said, "How did you do that?"
+- [16:53.380] He said, "Well, I did it and I just never stopped.
+- [16:55.480] It just kept going."
+- [16:57.470] So, go out and buy a Dell. They're great.
+- [17:00.520] We're also working to make it easier
+- [17:02.560] than ever before to start a family
+- [17:04.400] by lowering the price of IVF,
+- [17:07.860] cutting regulatory battles and barriers,
+- [17:10.500] and fighting to bring down the cost of living
+- [17:13.520] so that more Americans can pursue the dream of --
+- [17:17.800] And it's a dream of living just a good life, maybe a great life.
+- [17:22.840] We cut drug prices now with the most favored nations.
+- [17:27.930] We cut them by 70, 80, 90%. You could say 500%, 600,
+- [17:33.620] depending on the way you phrase the statement, but we now play.
+- [17:39.560] When I was here, this was a big ambition right at the beginning.
+- [17:43.220] I was able to cut them a little bit,
+- [17:44.800] but I didn't cut them.
+- [17:46.300] I cut them more than anybody else,
+- [17:47.760] which was a little bit, because for 28 years,
+- [17:50.520] drug prices and prescription drugs
+- [17:52.470] only went in one direction. When I came back,
+- [17:56.280] we now did something that everybody said was impossible.
+- [18:00.270] Favored nations,
+- [18:01.760] we had the highest drug prices in the world by far.
+- [18:06.210] Now, we have the lowest drug prices in the world.
+- [18:10.540] Can you imagine? So we cut them by 50, 60, 70%.
+- [18:17.720] Go out and you'll see exactly.
+- [18:20.470] I think it's one of the biggest things that we've done.
+- [18:23.960] Drugs that were costing in London $10
+- [18:28.340] for a pill would cost $130 for a pill in the United States.
+- [18:33.290] And now, if it's $10
+- [18:35.200] or if it's $20, that's what we pay.
+- [18:37.480] We pay the lowest price anywhere in the world, so it's great.
+- [18:40.880] And the fake news doesn't want to write about it,
+- [18:43.430] but that's why I talk about it because we have no choice.
+- [18:46.720] We have to.
+- [18:48.000] So again, I want to thank everybody for being here.
+- [18:51.870] It's so important.
+- [18:53.960] We do things like we keep men out of women's sports,
+- [18:57.980] a very popular issue.
+- [19:01.320] We stopped transgender mutilation
+- [19:04.980] of your children for everyone. We don't have that.
+- [19:09.120] But I want to thank every single mother here this afternoon
+- [19:12.040] and all across our nation for your work every single day.
+- [19:16.020] America's moms are really raising the future
+- [19:19.910] of our country, the most important.
+- [19:21.580] You have the most -- We don't call it a job,
+- [19:23.460] because when you love it, it's not a job.
+- [19:25.540] But let's, for this purpose. You have the most important job
+- [19:29.710] there is in America or anyplace else,
+- [19:32.160] and you're doing an incredible job.
+- [19:34.210] I just want to wish you all a very Happy Mother's Day.
+- [19:36.410] We're going to have a great Mother's Day.
+- [19:37.860] And for those mothers that lost their child,
+- [19:40.870] many of whom are with us today, the angel moms and others,
+- [19:43.870] Gold Star moms, we love you especially.
+- [19:46.910] We love you maybe even the most. Thank you very much.
+- [19:49.840] Thank you, everybody. Appreciate it.
+- [19:53.480] (applause)

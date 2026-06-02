@@ -1,0 +1,875 @@
+<!-- source: https://www.youtube.com/watch?v=mQMKP2cSdIk -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: mQMKP2cSdIk -->
+<!-- date_published: 2025-03-05T18:58:10+00:00 -->
+<!-- date_accessed: 2026-06-02T02:53:06.709054+00:00 -->
+
+# Transcript: Press Secretary Karoline Leavitt Briefs Members of the Media, Mar. 5, 2025
+
+- [00:01.040] hello everybody hello how are we I
+- [00:05.000] apologize for my tardiness it's quite
+- [00:07.200] the newsy day and I was with the
+- [00:08.679] president talking about that news so I
+- [00:10.599] look forward to taking your questions on
+- [00:12.080] it but first I want to talk about
+- [00:14.240] President Trump's historic and
+- [00:15.759] incredible speech last night the
+- [00:17.880] American people and the entire world
+- [00:20.279] watched president Trump powerfully lay
+- [00:22.560] out how he's renewing the American dream
+- [00:25.039] in a record-breaking joint address to
+- [00:27.400] Congress and Americans loved what they
+- [00:29.800] heard heard according to a CBS yugov
+- [00:32.599] survey an overwhelming 76% of those
+- [00:35.960] watching approved of President Trump
+- [00:38.239] speech last night the president spoke
+- [00:40.480] about how he's taken more than 400
+- [00:42.920] executive actions on his key promises
+- [00:45.840] the expectations were high and president
+- [00:48.320] Trump is exceeding them according to
+- [00:50.680] brand new polling from The Daily Mail
+- [00:52.680] president Trump has never been more
+- [00:54.559] popular as his approval ratings are
+- [00:56.440] reaching historic highs more Americans
+- [00:59.680] believe believe America is headed in the
+- [01:01.359] right direction than the wrong direction
+- [01:04.159] everyday Americans love this President
+- [01:06.240] because he tells it like it is no matter
+- [01:09.040] what and he did that last night
+- [01:11.400] president Trump level set with the
+- [01:13.439] American people on the economy and
+- [01:15.360] exposed how badly Joe Biden screwed it
+- [01:17.960] up by causing the worst inflation crisis
+- [01:20.720] in four decades president Trump was
+- [01:23.439] honest about where we are while making
+- [01:26.000] clear that help is on the way as the
+- [01:28.759] president declared last night he will
+- [01:30.880] make America affordable again last night
+- [01:34.479] you also saw who motivates the president
+- [01:37.200] to work so hard everyday Americans who
+- [01:40.960] president Trump shined a spotlight on
+- [01:42.759] last night in his speech from Mark Fogle
+- [01:45.759] who president Trump was finally able to
+- [01:47.759] reunite with his family and his
+- [01:49.680] beautiful 95-year-old mother after being
+- [01:52.240] detained in Russia to pton McNab whose
+- [01:55.560] heart-wrenching story motivated
+- [01:57.200] president Trump to end men in women's
+- [01:59.479] sports
+- [02:00.719] and to Allison and Lauren Phillips the
+- [02:03.159] mother and daugh and sister of lakan
+- [02:05.200] Riley who president Trump honored by
+- [02:07.560] signing the lake and Riley act to ensure
+- [02:09.840] her name will live on
+- [02:12.000] forever in other amazing and surprised
+- [02:14.720] moments president Trump H honored the
+- [02:17.040] life of Joselyn nungay who was brutally
+- [02:19.080] murdered by illegal alien gang members
+- [02:21.840] she he ensured Joselyn will never be
+- [02:23.680] forgotten by renaming a National
+- [02:25.440] Wildlife Refuge in her home state of
+- [02:27.480] Texas to honor her life and in one of
+- [02:30.599] the greatest surprise moments of the
+- [02:32.160] night DJ Daniel an incredible
+- [02:34.720] 13-year-old boy who is beating brain
+- [02:37.080] cancer saw his dreams fulfilled by
+- [02:39.560] President Trump when he was made an
+- [02:41.159] honorary secret service agent and
+- [02:43.959] finally after nearly four years
+- [02:46.560] president Trump delivered Justice for
+- [02:48.480] the families of the 13 American Heroes
+- [02:50.920] who were killed at abig gate in the
+- [02:52.920] Biden botched Afghanistan withdrawal
+- [02:55.440] which was one of the worst humiliations
+- [02:57.319] in the history of our country president
+- [03:00.599] Trump announced that we have detained
+- [03:02.159] Muhammad Sharif fola the monster who was
+- [03:05.239] responsible for that horrific attack and
+- [03:07.560] he was delivered to dullas Airfield
+- [03:09.440] earlier this morning on his first day in
+- [03:12.680] office president Trump's National
+- [03:14.519] Security team across the federal
+- [03:16.799] government prioritized intelligence
+- [03:19.120] gathering to locate this evil
+- [03:21.720] individual president Trump's team shared
+- [03:24.799] intelligence with regional Partners such
+- [03:26.599] as Pakistan who helped identify this
+- [03:29.120] monster in the Borderland area late last
+- [03:31.439] month Muhammad confessed to his crimes
+- [03:34.799] related to abig gate and other attacks
+- [03:36.680] in Russia and Iran as well to the
+- [03:39.280] pakistanis and US law enforcement
+- [03:41.480] officers traveled to Pakistan over the
+- [03:43.400] weekend where he again confessed his
+- [03:45.519] crimes to the
+- [03:46.959] FBI as president Trump said last night
+- [03:49.959] this killer will now face the Swift
+- [03:51.840] sword of American Justice for these
+- [03:53.760] atrocities right here on United States
+- [03:56.040] soil Joe Biden was responsible for this
+- [03:58.760] botched withdrawal and he had three
+- [04:00.840] years to find this evil terrorist and he
+- [04:03.280] didn't even try to get the job done but
+- [04:06.000] president TR Trump campaigned on behalf
+- [04:08.239] of and grew very close to the gold star
+- [04:10.720] families he promised them accountability
+- [04:13.400] and last night he kept his promise he
+- [04:16.280] spoke to those gold star families
+- [04:17.880] yesterday ahead of his speech in an
+- [04:19.919] incredibly heartwarming call to share
+- [04:22.199] this incredible news and as president
+- [04:24.840] Trump asked in his speech last night how
+- [04:27.320] could anyone possibly be opposed to any
+- [04:30.360] of this action that he is taking well
+- [04:33.759] apparently the modern-day Democrat Party
+- [04:36.280] could the behavior of Democrats last
+- [04:38.880] night was completely disgraceful and
+- [04:41.919] demonstrated how severely out of touch
+- [04:44.199] they are with the American public it was
+- [04:47.160] the most shameful moment in the history
+- [04:49.280] of presidential addresses in that
+- [04:51.360] beautiful chamber and what was supposed
+- [04:53.800] to be a unifying moment for our country
+- [04:56.479] Democrat members of Congress instead
+- [04:58.280] screamed at the president of the United
+- [05:00.320] States who was just overwhelmingly
+- [05:02.280] reelected by their constituents walked
+- [05:05.000] out of the chamber and worst of all they
+- [05:07.160] disrespected the American people
+- [05:09.759] Democrats didn't stand to keep men out
+- [05:12.160] of women's sports they couldn't even
+- [05:14.120] clap for a girl who got her head smashed
+- [05:16.160] in by a man on a volleyball court
+- [05:18.600] Democrats didn't stand for an innocent
+- [05:20.560] and beautiful child who is surviving
+- [05:22.880] brain cancer they opposed eliminating
+- [05:25.720] taxes on tips in Social Security they
+- [05:28.319] didn't stand in favor of cutting taxes
+- [05:30.520] for hardworking Americans they couldn't
+- [05:32.759] even clap for two mothers whose
+- [05:34.479] daughters were killed by illegal aliens
+- [05:37.360] one of the only things that could get
+- [05:39.120] Democrats off their feet last night was
+- [05:40.800] cheering for Ukraine not for America
+- [05:44.880] last night was a very clarifying moment
+- [05:46.720] for our country the Democrats exposed
+- [05:49.240] themselves as the party of insanity and
+- [05:51.680] hate the party that wants to put America
+- [05:54.840] last they've allowed their Trump
+- [05:56.840] derangement syndrome to stop them from
+- [05:58.720] celebrating America Amica and our people
+- [06:01.680] and we will not allow them to forget
+- [06:03.319] that and it's not just the Democrat
+- [06:05.520] Party the mainstream media still doesn't
+- [06:08.000] get it last night msnbc's Nicole Wallace
+- [06:11.680] disgustingly looped in a 13-year-old boy
+- [06:14.160] with brain cancer into an attack on the
+- [06:16.639] president over January 6th in CNN's
+- [06:20.120] first Chiron out of the speech called it
+- [06:22.280] divisive president Trump wasn't divisive
+- [06:25.280] the Democrats were and CNN was proven
+- [06:27.919] Wrong by their own viewers 69% of whom
+- [06:31.160] in a posts speech poll said they had a
+- [06:33.560] positive reaction to the president's
+- [06:36.240] speech it's sad and frankly pathetic
+- [06:39.400] that Democrats and liberals in the
+- [06:40.840] Legacy Media continue to allow their
+- [06:42.800] hatred for the president to override
+- [06:44.919] their love for our country but
+- [06:47.039] nevertheless the president will continue
+- [06:49.120] to unify this nation through policies
+- [06:51.160] that are grounded in common sense and
+- [06:53.280] that uplift all
+- [06:55.120] Americans we have a individual in our
+- [06:57.479] new media seat today Margaret Mary maret
+- [06:59.840] olahan who is the daily wire's first
+- [07:01.879] ever White House correspondent
+- [07:03.240] congratulation Mary Margaret uh the
+- [07:05.280] daily wire was founded 10 years ago by
+- [07:07.160] Ben shipiro the daily wire now has over
+- [07:09.840] 1 million paid subscribers a monthly
+- [07:12.080] Network reach of 138 million and has
+- [07:15.000] evolved into a leading conservative
+- [07:16.759] multimedia giant they are now the fifth
+- [07:19.080] largest podcast Network in the world and
+- [07:21.639] home to some of the top ranked shows
+- [07:23.919] with that I will take your questions and
+- [07:25.479] Mary Margaret why don't you kick us off
+- [07:27.280] thank you so much Caroline it's good to
+- [07:28.599] be here thanks I had two questions if
+- [07:30.440] that's okay the first on last night and
+- [07:32.280] the second on Maine uh you talked about
+- [07:35.080] behavior from Democrat lawmakers a lot
+- [07:37.400] of disruptions and I just wanted to kind
+- [07:39.919] of go back to that um we saw Democrat
+- [07:42.440] lawmakers not stand for L and Riley for
+- [07:44.599] pton McNab for the son of a slain police
+- [07:47.560] officer and 13-year-old cancer survivor
+- [07:50.240] what are the Optics of that nationally
+- [07:52.159] just in terms of not just the people who
+- [07:53.840] were in the room last night but Across
+- [07:55.240] the Nation and also was President Trump
+- [07:58.360] expecting this type of behavor when he
+- [08:00.080] was crafting his speech so I gave a
+- [08:02.440] quote to one of the media outlets in
+- [08:03.919] this room yesterday that Democrats
+- [08:05.560] behaving like children would be the
+- [08:06.919] least surprising thing of the night um
+- [08:09.120] and unfortunately that quote did turn
+- [08:10.960] out to be true I think the president and
+- [08:13.159] everyone frankly was surprised by the
+- [08:15.599] Democrats refusing to stand for um not
+- [08:18.599] the president's policies because frankly
+- [08:20.440] we expected that but for the everyday
+- [08:22.360] Americans who president Trump was
+- [08:23.840] shining light on their stories Mark
+- [08:25.840] Fogle for instance an American uh school
+- [08:28.560] teacher who was detained by the Russians
+- [08:31.240] president Trump uh freed him if Joe
+- [08:33.760] Biden had done that they all would have
+- [08:35.080] been on their feet but because of it
+- [08:37.159] what came from president Trump they
+- [08:38.479] weren't so we think it's very sad um but
+- [08:40.919] we're very proud of the president today
+- [08:42.560] and the American people are the the
+- [08:44.200] people that this President cares about
+- [08:45.640] most and the reviews are in and
+- [08:46.920] everybody loved his speech thank you and
+- [08:48.920] then on Maine uh we know that the
+- [08:50.800] governor of Maine has really pushed back
+- [08:52.480] against the president's executive order
+- [08:53.959] saying the boys should not be in girl
+- [08:55.399] Sports uh I spoke with a lawmaker from
+- [08:57.880] Maine this morning who told me she' been
+- [08:59.440] censured by state lawmakers for calling
+- [09:01.399] a man a man and speaking up on this what
+- [09:03.600] is the next move for the White House in
+- [09:05.240] this battle to protect the Integrity of
+- [09:07.120] women's sports yeah well the Department
+- [09:08.880] of Education has sued the state of Maine
+- [09:10.600] as you know there's ongoing litigation
+- [09:12.680] uh the president has made a commitment
+- [09:14.519] to ensure that states are being held
+- [09:16.160] accountable if they continue to allow
+- [09:18.160] men in women sports which he believes is
+- [09:20.600] um an egregious violation of taxpayer
+- [09:22.720] dollars um and so that Fight Continues
+- [09:25.360] and the president won't back down again
+- [09:27.000] this is a common sense policy 80% of the
+- [09:29.760] American people including more than 60%
+- [09:31.880] of Democrats do not want men in women's
+- [09:34.399] sports um so the president will will
+- [09:36.440] stand by this commitment thank you Gabe
+- [09:39.320] good to see you in here good to see you
+- [09:41.040] Caroline um a couple questions one can
+- [09:43.160] you confirm that the president hell
+- [09:44.760] talks with the big three automakers
+- [09:46.399] today speaking about potentially
+- [09:48.079] delaying tariffs I can confirm and I'm
+- [09:50.279] glad that you asked because the
+- [09:51.440] president sent me out here with a
+- [09:52.600] statement directly from him on this I
+- [09:55.040] saw it was reported earlier today by
+- [09:56.680] Bloomberg News um and he wanted me to
+- [09:58.760] share this with all of you we spoke with
+- [10:01.040] the big three auto dealers we are going
+- [10:03.240] to give a one-month exemption on any
+- [10:05.920] Autos coming through
+- [10:07.720] usmca reciprocal tariffs will still go
+- [10:10.519] into effect on April 2nd but at the
+- [10:13.120] request of the companies associated with
+- [10:15.640] usmca the president is giving them an
+- [10:17.920] exemption for one month so they are not
+- [10:19.880] at an economic disadvantage um so the
+- [10:22.320] three companies that he spoke to our
+- [10:23.640] stellantis Ford and General Motors they
+- [10:26.040] requested the call they made the ask and
+- [10:28.040] the president uh is happy to do it it's
+- [10:29.839] a one- Monon exemption and the president
+- [10:31.560] just posted on social media that he had
+- [10:33.160] spoken with prime minister Trudeau he
+- [10:35.320] says he's not satisfied with what the
+- [10:37.200] Prime Minister has said when it comes to
+- [10:39.320] fenel but less than 1% as you know less
+- [10:42.240] than 1% of the fenel Seas last year was
+- [10:44.360] in the northern border what else does
+- [10:46.360] candidate need to do uh well the
+- [10:48.720] president did just put out a statement
+- [10:50.079] on his call with uh the governor Justin
+- [10:52.360] Trudeau as he calls him of Canada um and
+- [10:55.200] he said uh that he was not pleased as
+- [10:58.040] you said he said it's not good enough he
+- [10:59.880] told uh prime minister Justin Trudeau
+- [11:02.360] that directly um the call ended in a a
+- [11:04.839] somewhat friend friendly manner as the
+- [11:06.639] president said but um he's not going to
+- [11:08.720] stop standing up for the American people
+- [11:10.320] and to answer your question directly
+- [11:11.760] when it comes to fentanyl U for the last
+- [11:13.880] four years unfortunately our neighbors
+- [11:16.000] to the North and the South Canada and
+- [11:18.079] Mexico respectively have allowed America
+- [11:20.440] to be a Dumping Ground not just for
+- [11:22.440] illegal aliens but for illegal poisonous
+- [11:25.440] deadly fentanyl which is now the number
+- [11:27.880] one killer of young people in this
+- [11:30.200] country aged 18 to 34 um through the
+- [11:33.079] northern border in Canada uh in FIS last
+- [11:36.120] fiscal year alone there was enough
+- [11:38.160] fentanyl Seas to kill 4.8 billion people
+- [11:42.480] and that number is up uh 2, and uh 50%
+- [11:47.079] from 2023 the year before so there's
+- [11:48.959] been more than a 2,000% increase in a
+- [11:51.600] legal fentanyl seizure at the northern
+- [11:53.680] border why because Canada is allowing
+- [11:55.680] that fentanyl to come to the United
+- [11:57.120] States the president sees these numbers
+- [11:59.240] he thinks about the lives that are lost
+- [12:01.200] and everybody in this room I'm sure
+- [12:03.040] everybody watching at home everybody
+- [12:04.639] across the country knows someone in our
+- [12:06.880] Lives who has been killed at the hands
+- [12:08.560] of this deadly poison there needs to be
+- [12:10.480] repercussions for that the president
+- [12:11.880] feels very strongly about it
+- [12:13.360] respectfully it's just 43 pounds that
+- [12:15.399] were found last year that's less than a
+- [12:16.920] car that's less than a carry-on suitcase
+- [12:19.000] is that a lot of fenel compared to say
+- [12:21.360] Mexico the vast majority of the fenel is
+- [12:24.160] brought in through Mexico not Canada so
+- [12:26.560] what else does Canada need to do well I
+- [12:28.680] just told you uh last year alone there
+- [12:31.279] was uh a 2,000% increase in illegal
+- [12:34.720] fentanyl you're asking me you're asking
+- [12:37.240] me for what the president's
+- [12:38.320] justification is for these tariffs it's
+- [12:40.199] not up to you you're not the president
+- [12:42.079] Gabe uh and frankly I think it's a
+- [12:43.720] little bit disrespectful to the families
+- [12:45.560] in this country who have lost loved ones
+- [12:47.320] at the hands of this deadly poison if
+- [12:49.240] you talk to them and this president has
+- [12:51.519] they are grateful that they finally have
+- [12:53.360] a president who is standing up to both
+- [12:55.199] Canada and Mexico and most importantly
+- [12:57.399] to China as well um the president added
+- [12:59.880] an additional 10% uh tariff on China
+- [13:02.560] because this deadly poison is being
+- [13:04.440] produced in that country it's being
+- [13:06.560] distributed through our neighbors and
+- [13:08.279] there needs to be consequences for that
+- [13:10.120] period Peter thank you Caroline if the
+- [13:13.199] US has a long-standing policy that uh we
+- [13:16.639] do not negotiate with terrorists then
+- [13:19.320] why is the US now negotiating directly
+- [13:21.519] and for the first time ever with homas
+- [13:24.480] uh well when it comes to the
+- [13:25.800] negotiations that you're referring to
+- [13:27.360] first of all the special Envoy who's
+- [13:29.160] engaged in those negotiations um does
+- [13:31.399] have the authority to talk to anyone um
+- [13:34.040] Israel was consulted on this matter um
+- [13:36.880] and look dialogue and talking uh to
+- [13:39.680] people around the world to do what's in
+- [13:41.120] the best interest of the American people
+- [13:43.639] um is something that the president has
+- [13:45.279] proven is what he believes is is uh good
+- [13:48.399] faith effort to do what's right for the
+- [13:49.880] American people is it just about the
+- [13:52.320] hostages or are they also talking about
+- [13:54.880] the president's plan to take over go
+- [13:56.759] these are ongoing talks and discussions
+- [13:58.720] I not going to detail them here there
+- [14:00.240] are American lives at stake I would
+- [14:02.160] defer you to the Department of State uh
+- [14:03.880] for further details but I'm not going to
+- [14:05.399] get into those talks here at this Podium
+- [14:07.240] we know that some officials here were
+- [14:08.920] mythed that zilinsky showed up last week
+- [14:11.920] without a suit for his meeting in the
+- [14:13.600] Oval Office but Elon Musk never wears a
+- [14:16.320] suit he did last night so what is the
+- [14:18.759] dress code well Elon Musk wore a suit
+- [14:22.000] last night I'm sure you saw it was he
+- [14:23.839] spooked
+- [14:25.399] by uh zsky getting kicked out no I don't
+- [14:28.839] think so I'm just pointing out that he
+- [14:30.519] did wear a suit last night um and I
+- [14:33.199] think U the president liked that very
+- [14:35.160] much uh and he looked great speaking of
+- [14:37.000] the president he just passed me a note
+- [14:38.959] uh while I'm standing here he wanted me
+- [14:40.680] to hold this up this is the poll that I
+- [14:42.360] cited the CBS yugov poll that shows that
+- [14:46.399] 76% of those who watched the president's
+- [14:49.040] speech last night approved of his speech
+- [14:52.040] and so it goes to my earlier point that
+- [14:53.720] I made in my monologue about um how
+- [14:56.880] incredibly sad it is that we have a
+- [14:58.600] modern day Democrat Party who is so
+- [15:00.839] severely out of touch with the American
+- [15:03.040] public uh this is a great poll the
+- [15:05.000] ultimate poll though came on November
+- [15:06.480] 5th when the president won by an
+- [15:08.079] overwhelming margin that he spoke about
+- [15:09.839] last night Democrats weren't happy to
+- [15:11.240] hear that either WEA Thank You Caroline
+- [15:14.440] back on teror last night president Trump
+- [15:16.240] said there will be a little disturbance
+- [15:18.720] but we're okay with that can you put a
+- [15:21.120] dollar figure amount on how much the
+- [15:23.480] average American family should expect to
+- [15:26.199] pay as this disturbance and why should
+- [15:29.079] Americans be okay with that when so many
+- [15:31.199] are already struggling to pay the bills
+- [15:33.560] well first of all last night the
+- [15:35.199] president uh told the truth and he was
+- [15:37.720] realistic and he level set with the
+- [15:39.759] American people and I think frankly it's
+- [15:42.480] very refreshing and everybody in this
+- [15:44.279] room should be very grateful that we
+- [15:45.720] have a president who tells the truth
+- [15:47.600] about the reality of the economic
+- [15:49.399] situation that we are in unlike the
+- [15:51.519] previous president who lied to
+- [15:53.000] everybody's faces saying inflation was
+- [15:54.920] transitory saying it was under control
+- [15:57.040] saying that the Border was Secure when
+- [15:58.519] none of that was true so the president
+- [16:00.519] is being frank and honest and the
+- [16:02.720] American people elected this President
+- [16:04.920] um to have Monumental reform and change
+- [16:07.600] including rebuilding our manufacturing
+- [16:10.199] base in this country standing up to
+- [16:12.240] foreign Nations who have been ripping
+- [16:13.800] off our country for decades U and that
+- [16:16.240] requires a little bit of disruption that
+- [16:18.399] requires a lot of effort and work that
+- [16:20.680] this President is focused on doing with
+- [16:23.000] that said as the president said last
+- [16:24.680] night his administration is
+- [16:26.040] wholeheartedly committed of course to
+- [16:28.079] ending the inflation nightmare caused by
+- [16:29.959] the Biden Administration look at the
+- [16:31.800] deregulation efforts uh look at the
+- [16:33.839] president's push last night in his
+- [16:35.639] speech for Congress to pass tax cuts to
+- [16:38.279] end taxes on Social Security and
+- [16:40.440] overtime pay for hardworking Americans
+- [16:42.440] end taxes on tips we need Congress to
+- [16:44.720] get that done because that's going to
+- [16:46.040] put more money back into the pockets of
+- [16:47.839] the American people and I didn't even
+- [16:49.560] mention energy look at the president's
+- [16:51.880] uh approach and focus on unleashing the
+- [16:54.240] might of our energy industry we know
+- [16:56.040] that's the number one driver of
+- [16:57.240] inflation he's been slashing back a lot
+- [16:59.399] of the burdensome regulation from the
+- [17:01.000] previous administration to unleash our
+- [17:03.519] energy industry here at home which will
+- [17:05.079] drive down costs he said he is committed
+- [17:07.120] to making America affordable again he
+- [17:09.000] did it in his first term and Americans
+- [17:10.520] can trust him to do it again president
+- [17:12.199] Trump has made clear Caroline that he
+- [17:14.199] loves terrorists but the stock market
+- [17:16.559] does not how does he factor that into
+- [17:18.720] his decision making well the president
+- [17:20.880] does love tariffs he said it's one of
+- [17:22.600] his favorite words of the English
+- [17:24.000] dictionary uh and he believes in tariffs
+- [17:26.520] because they'll ultimately make America
+- [17:28.079] Rich again they're going to raise
+- [17:29.320] revenue they're going to help us pay
+- [17:30.520] down our debt most importantly they're
+- [17:32.240] going to bring American jobs here back
+- [17:34.000] home so uh I think for folks on Wall
+- [17:36.160] Street who may be concerned look at what
+- [17:37.760] this President did for you in his first
+- [17:39.360] term Wall Street boomed Stock Market
+- [17:41.480] boomed uh the president expects that to
+- [17:43.440] happen again but most importantly Main
+- [17:45.120] Street is going to boom and that's why
+- [17:46.600] the president has this whole of
+- [17:48.559] government economic approach which
+- [17:50.039] includes tax cuts tariffs regulation
+- [17:52.919] Cuts in an energy industry that will
+- [17:55.120] bring down costs for American consumers
+- [17:57.640] sure Monica thank you than Caroline um
+- [18:00.039] you mentioned not one Democrat Senator
+- [18:02.120] voted to protect women's sports from
+- [18:04.000] males not one Democrat Congressman or
+- [18:06.679] congresswoman stood to applaud or
+- [18:09.120] support protecting women's spaces and
+- [18:11.120] sports at the president's joint session
+- [18:12.960] to Congress last night as you
+- [18:14.320] articulately mentioned at the beginning
+- [18:16.120] so I'm wondering what message is that
+- [18:18.200] sending to not only young women who are
+- [18:20.919] competing in these Sports across the
+- [18:22.280] country but also to the parents of these
+- [18:24.559] young girls yeah I think the message
+- [18:26.840] that Americans should take away from
+- [18:28.360] last night is that they have a president
+- [18:30.039] in the Oval Office who is committed to
+- [18:32.080] doing what's right for them especially
+- [18:33.679] women and girls across the country and I
+- [18:35.880] think it's very ironic thank you for
+- [18:37.559] bringing up the point about women that
+- [18:39.320] Democrat women were wearing pink to
+- [18:41.600] support our Fe fellow females uh yet
+- [18:44.320] they couldn't stand again for a young
+- [18:46.000] woman who was uh almost killed uh and
+- [18:49.320] severely injured by a man on the
+- [18:51.320] volleyball court um they couldn't stand
+- [18:53.280] for the mothers of two beautiful young
+- [18:55.760] women whose lives were taken tragically
+- [18:58.520] at the hands of illegal people so um you
+- [19:01.200] can't say you're the party of women and
+- [19:03.200] then support men and women sports and
+- [19:04.799] not stand up for basic Law and Order and
+- [19:07.679] immigration uh reform that will protect
+- [19:10.880] women in this country that's what
+- [19:12.120] president Trump is doing he's the
+- [19:13.480] president for women Lindsay good to see
+- [19:15.520] you thank you Caroline good to see you
+- [19:17.640] so speaking of tariffs China said
+- [19:19.799] yesterday that they're ready for any
+- [19:21.440] kind of war with the US uh because of
+- [19:24.320] these tariffs that have been placed on
+- [19:25.720] them and a Chinese spokesperson also
+- [19:27.559] said that the ter would not lead to a
+- [19:30.120] resolution of us concerns about fitel
+- [19:32.559] originating in China can you speak to
+- [19:34.919] how the administration is planning on
+- [19:36.960] responding to that well I think
+- [19:38.960] secretary heg Seth has responded to that
+- [19:41.120] this morning uh he said that America
+- [19:43.559] will always be prepared to defend itself
+- [19:45.960] especially under the leadership of this
+- [19:47.799] president in the Oval Office and that
+- [19:49.679] certainly remains true again when it
+- [19:51.760] comes to tariffs the president has been
+- [19:53.480] very tough on China not just now with
+- [19:55.400] 20% uh and and more with the reciprocal
+- [19:58.039] tariffs that will hit on April 2nd um
+- [20:00.120] but look at what he did in his first
+- [20:01.480] term there were billions of dollars
+- [20:03.120] worth of tariffs that he implemented on
+- [20:05.000] China and uh it's quite telling that the
+- [20:07.280] previous administration did not resend
+- [20:09.120] those tariffs because they realized the
+- [20:10.840] value that they had in not only
+- [20:12.640] deterring China uh but also raising
+- [20:14.840] revenue here in the United States Rachel
+- [20:16.880] thanks Caroline just a quick followup
+- [20:18.559] two quick followups on tariffs um the
+- [20:20.480] president mentioned a little disturbance
+- [20:21.760] during his remarks yesterday the CEO of
+- [20:23.440] Target says that consumers will likely
+- [20:25.120] see prices go up on everything from
+- [20:27.159] strawberries to bananas to avocados how
+- [20:30.200] long should Americans expect to pay
+- [20:32.320] higher prices are we talking a week a
+- [20:34.120] couple of days a few months again I
+- [20:36.400] don't have a crystal ball but what I can
+- [20:38.360] assure the American people is that this
+- [20:40.400] president in this Administration is
+- [20:42.280] doing everything they can and I would
+- [20:44.400] remind you and everybody else uh in this
+- [20:46.919] room that it's because of the previous
+- [20:49.360] administration's economic policies that
+- [20:51.520] Americans were left with record high
+- [20:54.039] inflation inflation throughout Joe
+- [20:55.919] Biden's entire 48 months in office was
+- [20:58.760] at or above 3% uh it hit record highs as
+- [21:02.039] you know uh and there's a whole list of
+- [21:04.799] what the Biden economic disaster this
+- [21:06.840] president was left to clean up it's been
+- [21:08.360] a month uh but he's working hard every
+- [21:10.480] single day to do just that follow up on
+- [21:12.080] the card out sorry to cut you off there
+- [21:13.799] um the US imported $43 Million worth of
+- [21:16.720] eggs from Canada I know you mentioned
+- [21:18.840] some of the exemptions um when it comes
+- [21:20.440] to auto makers um will there be any
+- [21:22.799] other car bouts including for eggs we
+- [21:24.640] know prices are storing for Americans
+- [21:26.400] the president is open to hear hear in
+- [21:28.880] about additional exemptions uh he always
+- [21:31.240] has open dialogue and he'll always do
+- [21:33.360] you know what's right what he believes
+- [21:34.720] is right for the American people uh but
+- [21:36.720] a again as for the egg uh crisis in this
+- [21:39.520] country uh the president is
+- [21:41.360] wholeheartedly committed to ensuring
+- [21:42.919] we're increasing our egg supply and
+- [21:45.120] we're also bringing down cost and
+- [21:46.919] secretary Rollins has been all over this
+- [21:49.240] issue she comes from an agricultural
+- [21:51.159] background in family that's why she's
+- [21:52.600] leading that very important department
+- [21:54.360] um she wrote an amazing oped in the Wall
+- [21:56.159] Street Journal she's been all over the
+- [21:57.760] media talking about her plan she has a
+- [21:59.520] real plan the president endorses it and
+- [22:01.600] he even you know gave her an off the
+- [22:03.279] prompter shout out last night to say
+- [22:04.960] Brooke I'm counting on you it's an
+- [22:06.279] important issue and this White House is
+- [22:08.159] working with secretary of agriculture
+- [22:10.240] every single day um to address this
+- [22:11.960] issue sure Jordan thanks Caroline so um
+- [22:15.279] what does it say that the Democrats
+- [22:17.039] while they couldn't stand for Americans
+- [22:18.960] or stand for victims they stood for war
+- [22:21.440] and clapped for war and clapped for five
+- [22:23.760] more years
+- [22:24.880] war yeah you know the president uh
+- [22:27.279] addressed that last night I think think
+- [22:28.679] when he called out Senator Elizabeth
+- [22:30.120] Warren and said that it again as I said
+- [22:32.400] in my opening speech very telling um
+- [22:34.880] that the Democrats refused to to clap
+- [22:36.799] for American people um and American
+- [22:39.679] interests and American priorities uh but
+- [22:42.080] they did clap for the country of Ukraine
+- [22:44.000] which by the way the president's working
+- [22:45.480] very hard to end that war so democrats
+- [22:47.400] should be applauding him for actually
+- [22:49.080] doing something about it follow up on
+- [22:50.919] that if I can you've spoken recently
+- [22:53.000] about how um what happened in the Oval
+- [22:55.039] Office last week gave Americans an
+- [22:56.840] inside look into behind the scenes
+- [22:59.120] discussions with zinsky is this how he
+- [23:01.480] treated Joe Biden and just treated him
+- [23:04.080] disrespectfully and received billions of
+- [23:06.039] dollars well it's a very interesting
+- [23:07.840] question um I don't know if anybody in
+- [23:09.840] here asked the previous my predecessor
+- [23:11.760] who stood at this Podium about that but
+- [23:13.320] there was a report from NBC news that uh
+- [23:15.840] President Biden also got increasingly
+- [23:18.200] frustrated with president zalinski when
+- [23:20.440] he was handing out blank checks uh and
+- [23:22.760] president zalinski kept asking for more
+- [23:25.039] uh Joe Biden was quite frustrated with
+- [23:27.039] that so um again as as I've said
+- [23:29.559] repeatedly Friday revealed the
+- [23:31.039] frustrations that this Administration
+- [23:32.720] has had in closed door negotiations with
+- [23:35.279] the ukrainians uh however president
+- [23:37.240] zalinski did put out a statement
+- [23:38.880] yesterday which we believe is a positive
+- [23:40.679] step forward uh and secret uh National
+- [23:43.279] Security adviser Mike Waltz has been
+- [23:45.120] talking to his Ukrainian counterparts uh
+- [23:47.520] and so we're in the midst of this and
+- [23:49.320] we'll see what happens next Caitlyn
+- [23:50.840] thanks Carol I have two questions one on
+- [23:52.559] the reprieve that is being granted to
+- [23:54.200] these three automakers for for one month
+- [23:56.240] on the tariffs on Canada and Mexico how
+- [23:58.520] did the president settle on one month MH
+- [24:01.600] the reciprocal tariffs will go into
+- [24:03.240] effect on April 2nd and he feels
+- [24:05.080] strongly about that no matter what no
+- [24:07.039] exe exemption so um that's where the one
+- [24:09.320] month come from comes from so does he
+- [24:10.880] expect them to be able to shift
+- [24:12.039] production within a month he told them
+- [24:14.120] that he they should get on it start
+- [24:16.120] investing start moving shift production
+- [24:18.200] here to the United States of America
+- [24:19.600] where they will pay no tariff that's the
+- [24:21.240] ultimate goal and on the conversations
+- [24:23.960] between the White House and the
+- [24:25.279] ukrainians and the letter that President
+- [24:27.080] Trump revealed last night that he got
+- [24:28.520] from president zalinsky director rff
+- [24:30.600] said today that the president has paused
+- [24:32.279] also intelligence sharing with Ukraine
+- [24:34.399] is that temporary or is that permanent
+- [24:37.279] um I believe what the National Security
+- [24:39.360] Council told me in regards to that um
+- [24:41.760] was that they paused um or they are
+- [24:44.960] reconsidering um the the funding uh for
+- [24:48.720] Ukraine as you saw the pause on the
+- [24:50.240] funding as for intelligence matters I
+- [24:52.000] would refer you to either the National
+- [24:53.520] Security Council uh or the CIA as well
+- [24:55.640] but they're considering lifting the or
+- [24:57.840] reinst ating the military aid going to
+- [24:59.840] Ukraine which they paed again it's a
+- [25:01.559] pause for a review follow up on that
+- [25:04.279] sure um the president read parts of the
+- [25:07.039] letter that he received last night from
+- [25:09.000] uh president zalinsky can you give us a
+- [25:10.919] sense of when President Trump now plans
+- [25:13.279] to sign that minerals DE after receiving
+- [25:15.360] that letter those talks are happening as
+- [25:17.360] we speak I just saw the National
+- [25:18.840] Security adviser uh he's working very
+- [25:20.880] hard on it I believe he was going into
+- [25:22.399] the Oval Office to give the president an
+- [25:24.080] update on where this stands uh but again
+- [25:26.279] the president is committed to a peace
+- [25:27.799] deal he wants to see this war end um and
+- [25:30.320] I think that President zelinsky's
+- [25:31.840] message which he also shared on X as
+- [25:33.919] well is a positive sign in the right
+- [25:35.840] direction President also said that the
+- [25:37.559] United States was um reclaiming the
+- [25:40.120] Panama Canal the president of Panama
+- [25:42.399] this morning or at some point today said
+- [25:44.480] that President Trump was lying wanted to
+- [25:46.600] get your response to that and also
+- [25:49.080] curious if the president had a reason
+- [25:51.159] for not specifically mentioning Black
+- [25:53.000] Rock last night when he was praising the
+- [25:55.080] company that is buying canals or or
+- [25:57.080] ports around the Panet I'm not sure if
+- [25:59.000] Panama has seen what's going on with
+- [26:00.480] their own Canal but as you just
+- [26:01.919] mentioned Black Rock is now interested
+- [26:04.279] in investing and taking over the two
+- [26:06.240] ends of the the port which is very
+- [26:07.840] important because the president was very
+- [26:09.799] vocal several weeks ago about the need
+- [26:12.279] to ensure that China is not controlling
+- [26:14.440] the Panama Canal um this is a a very uh
+- [26:18.080] important um uh place for the United
+- [26:20.760] States of America uh we also saw that
+- [26:22.840] the Panama Canal lifted uh fees on our
+- [26:25.600] us naval ships that are going in and out
+- [26:27.480] of the canal that's to win for the
+- [26:28.840] United States of America U and the
+- [26:30.640] president will continue to ensure that
+- [26:32.399] the uh Chinese government the CCP cannot
+- [26:35.080] be uh infiltrated in the the Western
+- [26:37.720] Hemisphere and certainly not in the
+- [26:39.039] Panama Canal which is a very important
+- [26:40.640] place for our country Dasha president
+- [26:43.039] continues to call the prime minister of
+- [26:45.399] Canada Justin trau governor of Canada
+- [26:48.120] I'm curious uh what he means by that and
+- [26:50.480] if there are any uh plans that are
+- [26:52.799] moving forward with trying to make
+- [26:54.559] Canada the 51st state and I have a
+- [26:56.840] followup on the economy as well sure
+- [26:58.279] well the president uh put that in his
+- [26:59.840] true Social account uh or his true
+- [27:01.919] social post earlier today uh he feels
+- [27:04.399] strongly that it would be very
+- [27:05.480] beneficial for the Canadian people to be
+- [27:07.640] the 51st state of the United States they
+- [27:09.520] wouldn't pay be paying for these tariffs
+- [27:11.240] they'd have much lower taxes if they
+- [27:12.679] were part of our great Country economy
+- [27:14.840] you and I traveled the country during
+- [27:16.720] the campaign this is an issue that so
+- [27:19.360] many voters decided uh to cast their
+- [27:22.320] ballots on and they voted for uh
+- [27:24.399] president Trump he has started to have
+- [27:27.880] that realistic conversation with the
+- [27:29.279] American people that disturbance comment
+- [27:30.960] last night but I'm curious if you can be
+- [27:32.559] real with Americans right now as all of
+- [27:35.360] these factors are playing out are things
+- [27:37.919] potentially going to get worse before
+- [27:40.039] they get better look I've now been asked
+- [27:42.159] and answered this same question just
+- [27:43.880] given to me in different verbiage of
+- [27:45.919] three different times and I will answer
+- [27:47.640] it again in an effort of transparency to
+- [27:50.120] the American people because this is an
+- [27:51.880] important issue and the American people
+- [27:53.840] this President understands that it is
+- [27:55.640] and again that's why in his joint
+- [27:57.159] address to Congress last last night he
+- [27:58.880] addressed this issue uh with a realistic
+- [28:01.200] and honest approach he talked about what
+- [28:03.320] this Administration is doing to unleash
+- [28:05.200] American Energy uh and to make America
+- [28:07.880] affordable again and this Administration
+- [28:09.679] is wholeheartedly committed to doing it
+- [28:11.679] and I would remind um the American
+- [28:13.720] public that uh the first term record of
+- [28:16.240] this of this President speaks volumes
+- [28:18.240] that's why they reelected him uh because
+- [28:20.240] they know that he can fix our broken
+- [28:21.919] economy and it's very very broken from
+- [28:24.200] the previous administration stepen Thank
+- [28:26.840] You Caroline I've got two questions one
+- [28:28.799] on press access the other on fenadol and
+- [28:31.279] tariffs sure on press access your
+- [28:33.440] predecessor Ken Jean Pierre presided
+- [28:35.799] over many novel press access
+- [28:37.880] restrictions uh criticized the recent
+- [28:39.919] changes to the uh press pool uh made by
+- [28:42.760] your office she said in an interview
+- [28:45.000] quote uh what we're looking at is what
+- [28:47.320] North Korea is doing um what's your
+- [28:49.799] response to that and can you say
+- [28:51.000] anything to laay concerns that um
+- [28:53.279] unfavorable coverage will be punished in
+- [28:55.159] this new press system I think that's the
+- [28:57.399] same individ ual who said from this
+- [28:59.240] Podium numerous times that the
+- [29:00.919] commanderin-chief uh was mentally and
+- [29:03.360] physically up for the job which we knew
+- [29:05.360] was a lie many people in this room knew
+- [29:07.320] it was a lie many of you were admonished
+- [29:09.320] for asking questions about that truth um
+- [29:12.600] and um so when it comes to truth and
+- [29:14.600] transparency this Administration this
+- [29:16.880] White House is setting the example this
+- [29:18.960] President is taking far more questions
+- [29:21.320] than his predecessor Joe Biden did on a
+- [29:23.600] daily basis and that will continue and
+- [29:26.279] on fens tariffs um banol produced
+- [29:29.799] largely in China has killed uh
+- [29:32.519] 334,000 Americans over 5 years according
+- [29:35.799] to CBC data that's uh about one in every
+- [29:38.519] thousand Americans um president Trump
+- [29:41.159] has cited this for replying new tariffs
+- [29:43.080] to Canada Mexico and China but in
+- [29:45.480] addition to China's talk about being
+- [29:47.039] ready for any kind of War they said
+- [29:48.519] yesterday the foreign Ministry said that
+- [29:50.919] uh Quote The fensel issue is a flimsy
+- [29:53.039] excuse to raise us tariffs and Quote us
+- [29:55.760] not anyone else is responsible for the
+- [29:57.279] fentone crisis
+- [29:58.720] so what's the response to China that um
+- [30:01.480] the talk offens was just an excuse for
+- [30:03.440] tariffs and what does that say about the
+- [30:05.120] resolution well of course the country
+- [30:06.679] that is get getting very rich off of
+- [30:08.679] Distributing this uh deadly poison to
+- [30:11.600] American citizens is going to say that
+- [30:14.120] again the president knows where the
+- [30:15.640] American people uh stand on this issue
+- [30:18.080] fanol overdoses Dasha brought up all of
+- [30:20.559] us campaigning all across the country
+- [30:22.559] they talked about inflation they also
+- [30:24.120] talked about the border the illegal
+- [30:25.840] immigrants that were pouring through but
+- [30:27.320] also these dead drugs and again the
+- [30:29.159] president keeps in mind those families
+- [30:31.240] every single day when he is making these
+- [30:33.360] tough decisions but it's a necessary
+- [30:35.399] decision and he's no longer going to
+- [30:37.080] allow the United States of America to be
+- [30:38.679] a Dumping Ground for illegal immigrants
+- [30:40.799] and for illegal drugs that are killing
+- [30:42.559] our nation's people this is the number
+- [30:44.679] one leading cause of death in our
+- [30:46.919] country and there needs to be action
+- [30:48.640] taken to ensure that that cannot
+- [30:50.799] continue thank you very much guys we'll
+- [30:52.519] see you later thanks car

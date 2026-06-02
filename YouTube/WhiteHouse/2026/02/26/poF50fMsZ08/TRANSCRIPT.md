@@ -1,0 +1,1188 @@
+<!-- source: https://www.youtube.com/watch?v=poF50fMsZ08 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: poF50fMsZ08 -->
+<!-- date_published: 2026-02-26T18:25:05+00:00 -->
+<!-- date_accessed: 2026-06-02T02:37:19.099152+00:00 -->
+
+# Transcript: Vice President JD Vance Delivers Remarks at a Precision Manufacturing Facility in Plover, Wisconsin
+
+- [00:01.820] Male Speaker: Ladies and gentlemen,
+- [00:03.030] please welcome to the stage, the 28th Administrator
+- [00:05.680] of the U.S. Small Business Administration, Kelly Leffler.
+- [00:12.560] ♪ (country music playing) ♪
+- [00:23.560] Kelly Leffler: Wow, thank you. Hello, Wisconsin.
+- [00:27.170] I am so thrilled to be back
+- [00:28.690] in this incredible state and here in the third district
+- [00:32.560] and I'm always so grateful to join our great vice president
+- [00:36.170] and our amazing congressman out on the road
+- [00:38.540] especially at a hardworking small business
+- [00:42.060] like Point Precision.
+- [00:43.850] I mean this is just absolutely incredible
+- [00:46.280] but let's be clear the Trump administration knows.
+- [00:49.380] That there's nothing small about small business.
+- [00:52.640] In fact, President Trump tells me all the time, Kelly,
+- [00:56.130] small business is big business.
+- [00:58.710] And it's true. Friends, this administration gets it.
+- [01:03.110] Both President Trump and Vice President Vance
+- [01:05.960] lived and worked in the real world,
+- [01:08.720] and that's why Main Street is coming back.
+- [01:11.940] Over the last year, the Trump administration
+- [01:14.190] and our partners in Congress, we are focused on one thing.
+- [01:18.380] That thing is putting America's families, workers,
+- [01:21.920] and small businesses first again.
+- [01:27.990] It's about you. This is about you
+- [01:32.790] You are the hard-working Americans
+- [01:35.530] who get the job done every single day.
+- [01:38.370] You're rebuilding our nation brick by brick.
+- [01:41.540] You endured four years of record-high prices.
+- [01:45.210] And you overwhelmingly voted to send Donald J.
+- [01:48.680] Trump back to the White House.
+- [01:55.270] Thank you for that. Thank you. And since that day,
+- [01:58.970] President Trump, Vice President Vance,
+- [02:01.250] and their Cabinet has worked tirelessly
+- [02:04.330] for you with urgency, with resolve,
+- [02:07.650] and without apology to make America great again.
+- [02:17.060] So, we're reversing four long years of Bidenomics.
+- [02:23.460] It hurt you, your family, and Main Street.
+- [02:26.780] Now, did anyone watch the State of the Union on Tuesday?
+- [02:30.400] Oh, good! Yes, of course! That was so good!
+- [02:34.250] President Trump made it very clear.
+- [02:36.270] We're bringing back the nation that we all knew,
+- [02:39.930] where freedom and grit, not the government,
+- [02:43.310] created generational opportunity.
+- [02:46.590] And the President said it best, the great betrayal is over,
+- [02:51.540] and hardworking Americans will never be forgotten again.
+- [03:00.680] You know, it's really a turnaround for the ages.
+- [03:04.900] For the next 250 years,
+- [03:08.500] together we're cleaning up massive wasteful spending,
+- [03:12.510] the fraud that sent your hard-earned dollars to Somalia,
+- [03:18.100] and the Democrats' open borders
+- [03:20.780] that imported violent criminals into our communities.
+- [03:24.830] After four disastrous years,
+- [03:27.010] it took Republicans just 12 months to turn it around.
+- [03:31.480] We're reducing Biden's massive inflation
+- [03:33.900] and high interest rate to five-year lows.
+- [03:36.040] We're cutting regulatory red tape.
+- [03:38.430] We restored drill, baby drill, and clean, beautiful coal.
+- [03:49.340] And importantly, especially for great places like this,
+- [03:52.950] we're ending the globalist trade imbalance
+- [03:55.430] that sent your jobs overseas.
+- [03:58.200] We recently have become aware that Made in America is back
+- [04:05.520] because we are a nation of builders.
+- [04:07.360] And that's happening right here in Plover at Point Precision.
+- [04:11.440] Now, the mainstream media and the liberal elites
+- [04:14.130] said what Republicans did couldn't be done,
+- [04:16.610] that we simply had to accept. Managed decline and dependency.
+- [04:22.770] Well, they were dead wrong
+- [04:24.170] because all we needed was a new president.
+- [04:33.040] Now, you've heard this, you know that the working family tax
+- [04:36.620] cuts means thousands of dollars back into the bank accounts
+- [04:39.940] and pockets of hard-working families.
+- [04:42.210] But we also know that every single Democrat
+- [04:44.920] voted no against your tax refund, against your tax cut.
+- [04:49.920] Despite that, Republicans got the job done for you.
+- [04:52.840] And here's what it means. You know what it mean.
+- [04:55.010] No tax on tip, overtime, social security.
+- [04:57.870] It's expanded child tax credits.
+- [04:59.930] It's the thousand dollar Trump accounts.
+- [05:01.890] It's a health savings accounts. The list goes on and on.
+- [05:05.170] And for small businesses like this one,
+- [05:07.450] it's making sure that tax rate is certain,
+- [05:09.610] the lower tax rate and accelerated depreciation
+- [05:12.010] so that they can invest more higher and grow
+- [05:14.670] right here in this local community.
+- [05:16.390] It's most main street tax bill in American history.
+- [05:21.440] Now every rational American understands
+- [05:24.580] that lower taxes are a good thing.
+- [05:27.460] But you saw it at the State of the Union.
+- [05:29.370] Congressional Democrats refused to stand
+- [05:32.780] or even applaud things like $4 trillion in tax cuts,
+- [05:38.480] voter ID, keeping boys out of girl sports,
+- [05:42.570] and the basic principle that the security of American citizens
+- [05:46.550] should always come before criminal illegal aliens.
+- [05:58.770] So this is really a battle of common sense versus crazy.
+- [06:02.620] But let's be honest, Democrats owe hardworking Americans
+- [06:06.330] like all of you more than applause.
+- [06:09.010] They owe you an apology.
+- [06:10.910] They drove up inflation, opened the borders,
+- [06:13.320] wrapped America in red tape,
+- [06:15.510] and scammed our farmers and manufacturers
+- [06:18.110] with the Green New Deal garbage
+- [06:19.600] that cost us trillions of dollars.
+- [06:21.830] Now, President Trump, Vice President Vance,
+- [06:24.150] and congressional report majority did not break it.
+- [06:28.420] But they are gonna fix it.
+- [06:30.120] They're fighting for you, not for big government,
+- [06:32.780] not for the Green New Deal radicals,
+- [06:35.130] or for fraudsters sending you tax dollars overseas,
+- [06:38.440] but for workers, for Main Street job creators,
+- [06:41.490] our veterans, and our families who make our nation great.
+- [06:46.140] Just like Team USA, who brought home the gold,
+- [06:49.740] President Trump and, yeah, let's hear it for Team USA!
+- [06:59.790] They brought home the gold.
+- [07:01.250] President Trump and Vice President Vance
+- [07:03.480] are bringing home the golden era.
+- [07:06.230] Now, none of this would have been possible
+- [07:08.170] without their decisive actions.
+- [07:10.420] And there is no one who believes in the American worker
+- [07:13.520] and in American industry
+- [07:15.280] more than our amazing Vice President, J.D. Vance.
+- [07:18.990] You all, yeah, let's hear it for J. D.
+- [07:21.150] We're excited, he's coming up.
+- [07:26.820] You all know the story of his humble beginnings,
+- [07:29.190] and now he's in the Oval Office
+- [07:30.790] as the second most powerful man in the world
+- [07:33.070] and probably the coolest vice president we've ever had.
+- [07:37.060] Now, most importantly, he's a man of deep faith,
+- [07:39.300] the father of four,
+- [07:40.530] with his beautiful wife and second lady, Usha Vance.
+- [07:43.860] He and President Trump
+- [07:45.140] do it all for hardworking Americans like you,
+- [07:48.950] who make our nation exceptional.
+- [07:51.410] And that's why he's here today, back in Wisconsin,
+- [07:53.900] and standing proudly with you.
+- [07:56.600] To restore the American dream for generations to come.
+- [08:00.400] So please join me in welcoming the 50th
+- [08:03.650] and the greatest vice president in American history, JD Vance.
+- [08:09.690] (applause)
+- [08:21.640] ♪ (rock music playing) ♪
+- [08:33.140] JD Vance: Thank you all. Thank you. Please, please.
+- [08:36.230] It's so great to be back in Wisconsin.
+- [08:38.550] Am I saying it right, Wisconsin? All right.
+- [08:40.730] I got a thumbs up from a couple of these Congressmen,
+- [08:42.580] so I must be doing OK.
+- [08:44.270] You know, I think Kelly Loeffler,
+- [08:45.990] our small business administrator,
+- [08:47.440] is one of the unsung heroes of the Trump administration.
+- [08:50.500] She has single handedly routed out
+- [08:52.960] hundreds of billions of dollars --
+- [08:54.970] hundreds of millions of dollars, I should say,
+- [08:56.860] and on to billions of dollars
+- [08:58.100] over the next couple of years of fraud
+- [09:00.630] against the American people.
+- [09:01.990] So, we ought to give it up for Kelly.
+- [09:03.290] She's doing a great job for all of us,
+- [09:05.550] saving us some money.
+- [09:09.970] I will say I took special note
+- [09:11.710] of one thing that she said though.
+- [09:13.060] Kelly said that I'm the coolest vice president
+- [09:15.570] in American history.
+- [09:16.790] And I said, Kelly, that is a low standard.
+- [09:21.060] That is a very low bar.
+- [09:22.600] But I do think that I clear that bar.
+- [09:24.520] But I think that was a low standard she set me to.
+- [09:27.920] But let me say a few words of gratitude
+- [09:30.460] before we get started today,
+- [09:31.730] because I'm so grateful to be back in this great state
+- [09:35.780] with all of its amazing people.
+- [09:37.750] You all know this, Wisconsin is a state
+- [09:40.550] with a proud tradition of building great
+- [09:43.470] American products with Wisconsin hands,
+- [09:46.090] and that's what we're here to celebrate today
+- [09:48.390] in this great facility.
+- [09:56.220] Now that would not be possible, of course,
+- [09:57.790] without the workers and the leadership of Pointe Precision.
+- [10:00.930] And I've been learning a little bit about this facility
+- [10:03.260] just because I knew I was going to come here today.
+- [10:05.480] 165 great, Wisconsin employees
+- [10:08.930] making great American products at a good wage.
+- [10:11.990] This is a place that rewards dignified work
+- [10:15.540] and this is a place that makes America
+- [10:17.670] and the whole community richer.
+- [10:19.300] So, you guys should be proud of yourselves.
+- [10:29.470] I want to thank the family, Joe and Cindy
+- [10:31.570] and their beautiful kids and all --
+- [10:33.110] it looks like we've got some grandkids here, Joe and Cindy.
+- [10:35.220] That's amazing, life's greatest blessing of course.
+- [10:37.410] So, great to have you guys, great to see you guys.
+- [10:40.060] Wait, what is today, Thursday?
+- [10:44.050] Are you all -- should you all be in school right now?
+- [10:47.440] I caught you. I caught you.
+- [10:48.960] But this is a good excuse, right,
+- [10:50.190] the vice president of the United States comes to town.
+- [10:52.290] So, you ought to get a get out of school for the day card.
+- [10:55.650] But I want to thank a couple of other people here
+- [10:57.570] because all the things I'm going to talk about,
+- [10:59.870] all the things we've been doing in the Trump administration
+- [11:02.450] would have been impossible
+- [11:04.000] without a couple of great Congressional allies.
+- [11:06.750] And so, in particular, I want to call out
+- [11:09.620] Representative Derrick Van Orden,
+- [11:11.960] my dear friend Derrick.
+- [11:13.870] It's hard to miss him, thank you.
+- [11:22.020] I've got to tell you, sometimes in Washington --
+- [11:24.470] you get to Washington, there are people you can trust,
+- [11:26.550] there are people you can't trust.
+- [11:28.040] Derrick is one of those guys you can trust
+- [11:30.590] to always fight for the people who are in this room.
+- [11:33.090] He knows exactly where he came from, a proud veteran.
+- [11:36.710] And Derrick was talking with me backstage;
+- [11:38.490] he's like we've got to do a little video together
+- [11:40.300] just so we can get it out there for the Congressional campaign.
+- [11:43.680] And I said, OK, absolutely. What do you need me to say?
+- [11:45.830] And he said, well, just say that,
+- [11:47.440] you know, we fought alongside each other in Vietnam.
+- [11:50.650] I said, Derrik, if we were Democrats,
+- [11:53.510] we could get away with that,
+- [11:54.870] but I don't think that's going to fly.
+- [11:57.050] We're Republicans, these media reporters
+- [11:59.260] are not going to let us get away with that.
+- [12:01.150] But there are so many great things about Derrick.
+- [12:03.640] But all of the amazing things, no taxes on tips,
+- [12:07.670] that happened because of Derrick.
+- [12:09.360] No taxes on overtime, that happened because of Derrick.
+- [12:12.310] No taxes on Social Security,
+- [12:13.770] that happened because of Derrick.
+- [12:15.290] So, if you are a citizen in this district
+- [12:18.130] and you see a big tax refund check come next month
+- [12:22.180] or the month after that, whenever you file your taxes,
+- [12:24.300] remember it was Derrick Van Orden who made it happen
+- [12:27.280] and it was Congressional Democrats who tried to stop it.
+- [12:30.080] So, we're going to send Derrick Van Orden back to Washington
+- [12:33.210] -- yes.
+- [12:41.640] We've also got President Trump's endorsed candidate
+- [12:44.290] for governor of Wisconsin, Tom Tiffany.
+- [12:46.200] Tom, please stand up and be recognized, another great guy.
+- [12:54.920] Another guy without whom we could not have accomplished
+- [12:57.680] all the great things that we did in Washington DC.
+- [13:00.670] Now he wants to come back home and serve as governor.
+- [13:03.430] Are we going to make Tom Tiffany the next governor of Wisconsin?
+- [13:06.550] There we go.
+- [13:11.810] And then finally, if I had a few people stand up,
+- [13:14.230] I want to recognize Representative Grothman.
+- [13:17.050] Where's Representative Grothman?
+- [13:18.290] Thank you, sir. It's good to see you.
+- [13:24.570] Where is Representative Brian Steil?
+- [13:27.080] Brian?
+- [13:29.500] A great guy.
+- [13:30.840] We're not in Brian's district, but a great guy.
+- [13:34.140] We've got Wisconsin GOP Chairman, Brian Schimming.
+- [13:38.530] Where's Brian Schimming? Thank you.
+- [13:44.770] State treasurer, John Lieber. Where's John Lieber?
+- [13:48.730] Thank you, man. Thank you for your service.
+- [13:52.560] And finally state Senate president, Patrick Testin.
+- [13:55.140] Patrick, where are you? Thank you.
+- [14:03.230] Now here's what I want to talk about.
+- [14:04.710] I want to talk about the stakes coming up in November
+- [14:07.550] because it feels like this election in November
+- [14:09.740] is very far away.
+- [14:11.450] But if anything, the State of the Union should have showed us
+- [14:14.190] that we cannot give power back to Congressional Democrats.
+- [14:17.620] Now I am fundamentally an optimist about this country.
+- [14:21.400] I believe most people, most human beings,
+- [14:24.320] most American citizens,
+- [14:25.640] whether they got a D next to their name
+- [14:27.310] or an R next to their name
+- [14:28.960] or they have no political affiliation,
+- [14:30.600] they're good people. They love our country;
+- [14:32.540] they want our country to thrive and prosper.
+- [14:34.410] But I've got to tell you, after the State of the Union,
+- [14:36.970] I'm not so sure that is true of the Congressional Democrats
+- [14:41.020] that we saw at the State of the Union address.
+- [14:43.030] As the president of the United States said very well,
+- [14:45.990] you watch their reaction to some of what he was saying
+- [14:48.730] and all I could think was these people are kind of crazy.
+- [14:52.720] These Congressional Democrats,
+- [14:54.190] if you think about all of the things that they were doing --
+- [14:57.270] and I've got to tell you, of course,
+- [14:58.680] I've got the best seat in the house in many ways, right?
+- [15:00.990] I'm sitting right next to the speaker of the House.
+- [15:03.500] I'm sitting right behind the president of United States,
+- [15:05.750] and I've got one internal monologue going on.
+- [15:08.220] One thought in my head the whole time,
+- [15:09.680] which is don't make a stupid face for two hours,
+- [15:13.550] which is hard for me when you're on TV for two hours
+- [15:17.910] and the Democrats are doing crazy things.
+- [15:20.300] So, I'll give you a little lay of the land.
+- [15:22.530] So, to the left, my left, is all of the Republicans, OK,
+- [15:26.530] because I'm sitting right behind the president.
+- [15:28.520] And to my right is some Republicans,
+- [15:30.370] but mostly the Democrats.
+- [15:31.750] And so, I see the reaction of all the Congressional Democrats
+- [15:35.860] and it's one of the most amazing things I've ever seen.
+- [15:38.590] So, you say, like for example,
+- [15:40.420] you have this beautiful little girl
+- [15:42.880] had such a sweet moment with her dad,
+- [15:44.700] you may have remembered. She's probably six years old.
+- [15:47.240] She had been assaulted by an illegal immigrant.
+- [15:50.100] She had had a very bad, I think, medical prognosis,
+- [15:52.600] but it turned out that she was OK.
+- [15:53.890] The six-year-old girl hurt by a human being
+- [15:56.650] who never should have been in this country in the first place,
+- [15:59.040] who was let into this country by Joe Biden and the Democrats.
+- [16:02.260] And she's hugging her dad
+- [16:04.030] and she's so excited and you can tell,
+- [16:06.050] and I think everybody's heart feels very --
+- [16:08.590] you know, you get that warm and fuzzy feeling.
+- [16:10.990] And then I look over the Congressional Democrats
+- [16:14.690] and they're just scowling.
+- [16:16.090] They cannot clap their hands for a six-year-old
+- [16:19.470] who survived an attack from an illegal alien.
+- [16:22.530] What is that?
+- [16:23.970] What kind of a person can't stand up and cheer
+- [16:26.390] for an innocent young girl who's doing well,
+- [16:28.390] who's showing the entire country strength and resilience?
+- [16:32.720] And then the president had this line,
+- [16:34.930] I'm not going to get it exactly right,
+- [16:37.170] but he said if you believe -- stand up and cheer,
+- [16:40.390] if you believe that the American government's first priority
+- [16:44.280] should be to look after American citizens
+- [16:46.600] instead of illegal aliens.
+- [16:48.610] And all the Republicans,
+- [16:49.840] including Derrick and everybody else
+- [16:51.610] stands up and starts cheering.
+- [16:52.990] And then you look over to the Democrats,
+- [16:56.500] complete silence, no reaction at all.
+- [17:00.040] The one thing that got at least some of the Democrats
+- [17:02.690] to stand up and cheer was the Olympic hockey team,
+- [17:05.910] which we're of course very proud of.
+- [17:08.050] But you've got to ask yourself, ladies and gentlemen,
+- [17:10.000] what is it about a political party
+- [17:12.880] that cannot stand up and cheer
+- [17:14.410] for a six-year-old girl who survived an attack?
+- [17:17.740] What is it about a political party
+- [17:19.960] that can't stand up and cheer for the fact that we have
+- [17:22.900] rising wages and low inflation for the first time
+- [17:26.950] in a very long time in the United States of America?
+- [17:29.760] What is it about a political movement
+- [17:32.150] that sees the mother of woman who was murdered on a bus?
+- [17:38.010] Because the president highlighted this.
+- [17:40.270] This woman, you know, her 22-year-old daughter
+- [17:42.910] was riding on a bus to work, was killed by a violent criminal
+- [17:46.700] who was let out of jail 13 times by Democrat leadership.
+- [17:50.100] Should have never been on our streets
+- [17:51.790] and then murdered an innocent girl.
+- [17:53.580] We recognized her mother,
+- [17:55.310] her strength and her character and her grief.
+- [17:57.970] And I think we all kind of grieved with her a little bit.
+- [18:00.700] And the Democrats cannot even stand up and cheer for that.
+- [18:04.510] And so, the question of the next election
+- [18:06.690] is not do we want low taxes, and of course we do.
+- [18:10.360] It's not do we want a secure border and of course we do.
+- [18:13.590] It's a more fundamental question than that.
+- [18:15.980] Do we want to give power back to the people
+- [18:19.660] who opened our border, who raised your taxes,
+- [18:22.900] who won't even cheer for a six-year-old girl
+- [18:25.550] who was wounded because of their bad policies?
+- [18:28.130] And I think our answer to that is hell no.
+- [18:30.590] We want to give power back to the people
+- [18:32.160] like Derrick Van Orden, who fight for us.
+- [18:44.170] And here's the thing.
+- [18:45.420] We -- you know, it's funny,
+- [18:46.680] I talk to the president multiple times a day.
+- [18:49.250] It's kind of the job of vice president;
+- [18:50.760] you talk to the president a lot.
+- [18:52.280] And every single day the president
+- [18:53.730] will say to me what have we done today.
+- [18:55.220] Got to do more, got to do more, got to do more, OK.
+- [18:57.800] The president has such an intense work pace.
+- [19:01.600] And I sometimes think, Mr. President,
+- [19:03.710] we've got to take stock of all the incredible things
+- [19:07.040] that we have accomplished over the last year.
+- [19:10.090] When Joe Biden and the Democrats
+- [19:11.610] left us the government of this country,
+- [19:13.180] we had the highest inflation
+- [19:14.510] that we had ever had in 40 years.
+- [19:16.680] Thanks to Donald Trump and Congressional Republicans,
+- [19:19.220] we now have inflation at 2.4 percent,
+- [19:22.760] the lowest in five years
+- [19:24.270] and it's coming even lower, ladies and gentlemen.
+- [19:34.620] Under Joe Biden and the Democrats,
+- [19:36.130] the average American lost $3,000 in take-home pay,
+- [19:41.700] and under Donald Trump and Republicans
+- [19:43.510] in just one year the average American has seen
+- [19:46.480] $1,700 increase in take-home pay.
+- [19:50.510] That is more money in your pocket
+- [19:52.470] and that's what we're here to do
+- [19:54.260] is make you guys more prosperous.
+- [20:01.870] Under Joe Biden, in the Green New scam,
+- [20:04.670] we had the highest energy prices
+- [20:06.460] that we had had maybe in my entire lifetime.
+- [20:09.310] And then we had Republicans take over with a simple principle,
+- [20:12.620] which is drill baby drill.
+- [20:15.460] Get the oil and the gas out of our territory,
+- [20:18.660] use American workers to provide
+- [20:20.620] American companies the energy that they need.
+- [20:23.420] And now we've got gas prices lower,
+- [20:26.350] we've got electricity and utility bills lower,
+- [20:29.130] and we've got companies just like Pointe Precision
+- [20:32.190] that can actually afford the cost of doing business
+- [20:35.660] which they couldn't do when Joe Biden was in charge.
+- [20:38.670] So, it's funny to me --
+- [20:40.090] when the Democrats talk about affordability,
+- [20:42.500] you heard the president talk about this
+- [20:43.980] in the State of the Union address.
+- [20:45.980] Hearing the Democrats talk about affordability
+- [20:49.100] is like hearing an arsonist complain about fire.
+- [20:53.020] It's your fault.
+- [20:55.020] You guys left us a country with sky high inflation.
+- [20:58.490] You all left us a country where we were going everywhere
+- [21:01.760] but America for energy.
+- [21:03.450] You left us a United States of America
+- [21:06.050] where the average family was $3,000 poorer.
+- [21:09.590] So, our attitude is, you know what,
+- [21:11.730] when you talk about affordability,
+- [21:13.520] you're exactly right.
+- [21:14.860] You caused an affordability problem,
+- [21:16.870] Congressional Democrats, and we are here to fix it.
+- [21:29.150] Now I want to say a few more things
+- [21:30.590] and then I'll take some questions from the reporters.
+- [21:33.540] So, one of the things that I love
+- [21:35.440] about what the president has done
+- [21:37.010] is he is trying to cut out the fraud and corruption
+- [21:40.460] in the federal government.
+- [21:41.750] I've got to tell you, ladies and gentlemen,
+- [21:43.190] it is very, very rampant.
+- [21:45.460] We have way too many people who got way too comfortable
+- [21:48.980] getting rich off of your tax dollars
+- [21:51.750] instead of providing the services that they need
+- [21:55.250] or maybe giving you a tax cut.
+- [21:57.160] We had fraudsters getting rich off of your generosity.
+- [22:00.720] I did a little press conference yesterday with Dr. Oz
+- [22:03.160] who runs our Medicare and Medicaid services.
+- [22:06.320] And beforehand we were talking about some of the fraud
+- [22:08.660] that he had uncovered in just a couple of months.
+- [22:10.690] Let me give you an example.
+- [22:12.140] In next door, Minnesota in Minneapolis,
+- [22:14.990] not a very well governed state.
+- [22:16.840] You had a situation where we have a service
+- [22:19.510] that the federal government provides.
+- [22:21.390] The states actually provide it
+- [22:23.440] and then they get reimbursement from the federal government.
+- [22:25.910] And you know what they do?
+- [22:27.230] They help autistic kids with after school services.
+- [22:30.680] Because if you know anybody who has autism
+- [22:33.300] or is on the spectrum,
+- [22:34.620] sometimes you need a little bit of extra help.
+- [22:36.780] And so, we've got a program there
+- [22:38.220] to help those special needs kids
+- [22:39.920] to make it easier for their families.
+- [22:42.040] What was happening is that Somali fraudsters,
+- [22:44.900] many of whom were illegal immigrants,
+- [22:46.610] shouldn't have been in this country to begin with.
+- [22:48.640] You had Somali fraudsters who were saying
+- [22:51.650] that their kids were autistic, even though they weren't.
+- [22:54.710] They were collecting a fat check from all of you,
+- [22:58.200] and they were getting rich from it.
+- [23:00.120] So, what happens?
+- [23:01.480] You get poorer, your tax dollars go to Somali fraudsters.
+- [23:05.020] And worst of all, you've got special needs kids
+- [23:08.650] in American communities that we ought to be helping.
+- [23:11.290] And instead of helping them, we're helping fraudsters
+- [23:14.430] who don't have the problem to begin with.
+- [23:16.870] That is a scandal. And it's something
+- [23:19.030] that Joe Biden and Congressional Democrats
+- [23:21.250] promoted with their open border, encouraged it and funded it.
+- [23:25.970] Now I'm here to tell you that the job of your government
+- [23:29.170] is not to open your borders
+- [23:31.060] and allow fraudsters to come in and take advantage of you.
+- [23:34.030] The job of your government is to shut the border
+- [23:37.170] and shut off the fraud
+- [23:38.440] and that's exactly what we're doing
+- [23:39.820] in the Trump administration.
+- [23:49.540] But you know, it's actually not just the people on the ground
+- [23:53.840] who are committing some of this fraud,
+- [23:55.400] some of the worst corruption is the corruption
+- [23:57.330] that you see in the federal government.
+- [23:59.300] And I know Derrick and a lot of these other guys
+- [24:01.190] were standing up cheering for this.
+- [24:03.020] Why don't we stop allowing Congressmen
+- [24:06.000] and Congresswomen to get rich off of insider trading?
+- [24:09.450] Is that common sense?
+- [24:16.980] So, again, I've got a seat unlike any other
+- [24:19.860] and the president of the United States --
+- [24:21.260] first of all, the whole time the president was giving his speech,
+- [24:24.690] I was amazed at his self-control because I would not have had it
+- [24:27.530] if I was up there with the microphone.
+- [24:28.880] Because these two women, far left Democrats,
+- [24:32.020] Rashida Tlaib and Ilhan Omar,
+- [24:35.970] they're sitting next to each other
+- [24:37.210] and they're talking loudly the entire time, OK?
+- [24:41.020] So, there's a point at which I almost look over at them
+- [24:44.680] and go like this.
+- [24:46.060] But see this is the thing you can't do
+- [24:47.640] when you're sitting behind the president.
+- [24:49.120] I would have gotten in trouble for that.
+- [24:51.050] Even Derrick wouldn't defend me if I did that.
+- [24:53.320] But it's just nails on a chalkboard,
+- [24:55.510] they're talking, they're interrupting.
+- [24:57.360] The president was completely unfazed by it.
+- [25:00.730] But again, you're sitting there and then the president
+- [25:03.760] gets to the point where he says you know what?
+- [25:05.710] We're going to stop Congressmen and Congresswomen
+- [25:08.870] from getting rich off of insider trading
+- [25:11.280] from violating the public trust that you have put in them
+- [25:14.580] and get rich off of insider trading.
+- [25:16.760] Of course, a lot of people stand up and cheer,
+- [25:18.400] most of the Democrats don't.
+- [25:20.010] You know who was not standing up and cheering?
+- [25:22.300] Nancy Pelosi.
+- [25:25.340] I have never seen a person more angry in my life
+- [25:29.160] than Nancy Pelosi when the president of the United States
+- [25:31.390] is calling out insider trading.
+- [25:33.420] Ladies and gentlemen, my hope for all of you,
+- [25:36.430] of course, is that we can make you richer
+- [25:38.330] and more prosperous and safer in your communities.
+- [25:41.180] But my hope for all of you is that you find somebody
+- [25:44.080] who loves you as much as Nancy Pelosi loves insider trading
+- [25:47.370] because then you will have a very good life indeed.
+- [25:50.070] (Laughter)
+- [25:51.360] But on all these things, we just have to stop the fraud.
+- [25:56.920] The government exists to serve you.
+- [25:59.770] We want the government of course to be smaller.
+- [26:02.030] We want it to have -- to be limited in its scope.
+- [26:04.720] We don't want it in your pocketbooks.
+- [26:06.300] We don't want it telling you what to do.
+- [26:08.060] But there are a few things
+- [26:09.290] you need the federal government to do.
+- [26:10.710] You need it to provide for the common defense.
+- [26:13.070] We need a good military.
+- [26:14.780] You know, we need it to ensure that people like special
+- [26:17.430] needs kids are able to get the essential services
+- [26:20.090] that they need and can't afford.
+- [26:21.980] I happen to believe -- I grew up in a poor family.
+- [26:24.890] When we have people who are down on their luck,
+- [26:27.030] we don't want those people to starve
+- [26:28.480] or not be able to get medical care.
+- [26:29.910] We want to make sure that Americans
+- [26:31.610] are taking care of Americans. But that is not possible
+- [26:35.280] if we allow fraudsters to come into our country
+- [26:38.140] and get rich off of your generosity of spirit.
+- [26:41.340] And so, I want you, when you go to the polls in November,
+- [26:44.060] I don't want you to just think about
+- [26:46.260] all the great things that we've accomplished,
+- [26:48.000] all the great things that we've talked about.
+- [26:49.980] I don't want you just to think about no taxes on tips
+- [26:52.460] and lower gas prices. I want you to think who is going
+- [26:55.610] to protect my money from fraudsters.
+- [26:58.090] And the simple answer is it's Derrick Van Orden
+- [27:00.730] and Congressional Republicans. It is not the Democrats
+- [27:03.600] who created this problem to begin with.
+- [27:14.320] I've got so many notes here.
+- [27:15.540] I could sit here and go on for another 45 minutes.
+- [27:18.060] Housing prices are down,
+- [27:19.960] apartment rents are down four months in a row.
+- [27:22.600] We came in saying we wanted to make housing more affordable
+- [27:25.910] and we're starting to make good progress on that.
+- [27:28.430] The annual cost of a new mortgage
+- [27:30.330] in just a year is down by $5,000.
+- [27:32.920] And my friends, if we could get Jerome Powell
+- [27:36.070] at the Federal Reserve to lower interest rates
+- [27:38.950] because the inflation is now low,
+- [27:41.080] then those mortgage costs would come down even further.
+- [27:43.730] I happen to believe,
+- [27:45.100] and I know the president of United States does,
+- [27:47.200] that when young people look at their country,
+- [27:50.600] one of the best things that we can do for our young families
+- [27:53.030] is make it possible for them to afford a home again
+- [27:56.540] and raise a family on a piece of land
+- [27:59.670] that they themselves own.
+- [28:01.520] I happen to believe that we do not want our young people
+- [28:04.270] to be permanent renters.
+- [28:06.080] In the society that was built by their parents and grandparents
+- [28:09.470] we are going to fight for our young families to own a home
+- [28:12.960] and that's exactly what we've been doing for the past year.
+- [28:15.280] Let's keep on doing it.
+- [28:24.520] But let me just close with this one final thought
+- [28:27.710] and then I'll take some questions from the media.
+- [28:31.360] There are a lot of specific issues that matter.
+- [28:33.680] We could talk about all of them.
+- [28:34.900] We could talk about the fact that we've got a closed border
+- [28:37.170] and they opened it. We could talk about the fact
+- [28:39.170] that we've got the lowest murder rates
+- [28:41.320] in the United States of America in 100 years.
+- [28:44.060] And you wonder how did that happen so quickly?
+- [28:46.670] Two reasons. Number one,
+- [28:48.420] we empowered our great law enforcement officers
+- [28:50.550] to do their job.
+- [28:51.850] And the last administration was holding back.
+- [28:53.800] And two, we got a lot of violent criminals
+- [28:56.150] the hell out of this country
+- [28:57.600] and sent them back to where they belong.
+- [28:59.000] That's how you get a low murder rate.
+- [29:00.910] We've got so many things we could brag on,
+- [29:03.140] so many things that we've still got to do.
+- [29:05.420] We've still got to work to make home ownership affordable
+- [29:08.080] for young families.
+- [29:09.760] You know, you've probably seen the headlines about --
+- [29:12.460] you know, the stock market has been doing incredibly well
+- [29:15.140] because the economy's been doing incredibly well.
+- [29:17.690] But the president asked me probably four months ago,
+- [29:21.460] he said what about the Americans who don't own stocks.
+- [29:24.450] And so, he's created a new program
+- [29:27.200] where we can allow the 35 percent of Americans
+- [29:30.040] that don't own stocks to open up the kind of accounts
+- [29:32.600] like a 401(k)
+- [29:33.810] that some workers have access to, other workers don't.
+- [29:36.840] We're going to allow every worker
+- [29:38.270] to open up that kind of account.
+- [29:39.770] So, when the stock market goes up,
+- [29:41.380] it's good for every single American citizen,
+- [29:44.490] not just the 60 to 65 percent of people who own stocks.
+- [29:47.820] We want to make it good for everybody.
+- [29:49.550] So, there's still so much more that we can do.
+- [29:52.240] But the fundamental question
+- [29:53.550] I don't think is this issue or that issue.
+- [29:58.030] The fundamental question is who fights for you?
+- [30:01.740] And what I saw at the State of the Union,
+- [30:03.380] when I saw all those Democrats sitting on their hands,
+- [30:06.530] even when we're celebrating little girls
+- [30:09.150] who survived a terrible attack, it hit me that these Democrats,
+- [30:13.830] most of them, they don't serve you.
+- [30:16.680] Now ask yourself, why are they sitting on their hands?
+- [30:19.050] I would like to think -- I don't know them personally.
+- [30:21.340] Maybe Derek would disagree with me,
+- [30:23.140] but I'm going to be a little charitable
+- [30:24.690] to those Congressional Democrats.
+- [30:25.990] And I think when that little girl was standing up hugging
+- [30:27.950] and kissing her dad that those Democrats,
+- [30:31.390] there was at least a part of them,
+- [30:33.190] the human part and their soul
+- [30:34.640] that wanted to stand up and cheer for that little girl
+- [30:36.760] and all of them sat on their hands.
+- [30:39.210] And you have to ask yourself why is that?
+- [30:41.640] And the answer is because they know
+- [30:43.850] they don't answer to you; they answer to somebody else.
+- [30:48.780] They answer to people who have corrupted this country,
+- [30:52.050] they answer to people who opened the border,
+- [30:54.380] they answer to people who got rich off
+- [30:56.900] of illegal immigrant labor.
+- [30:58.710] We want you guys to get rich off of the labor
+- [31:01.370] of American citizens.
+- [31:02.710] We want American workers to get rich for working hard,
+- [31:05.490] not illegal aliens.
+- [31:06.990] And that to me is the fundamental difference
+- [31:09.110] between Congressional leadership and Congressional Democrats
+- [31:12.570] and the Congressional Republicans
+- [31:14.490] under the leadership of this president.
+- [31:16.710] These guys, they don't serve you.
+- [31:20.150] Watch a speech of any of the Congressional Democrats,
+- [31:23.100] go watch a -- if you can handle it.
+- [31:25.460] Maybe have a few good Wisconsin beers
+- [31:27.500] beforehand and prepare yourself.
+- [31:31.030] But watch a speech when these guys talk
+- [31:33.730] about illegal immigration
+- [31:35.590] and then watch a speech when they talk about
+- [31:37.330] manufacturing jobs for American workers.
+- [31:40.250] That doesn't give them passion; that gives Donald Trump passion,
+- [31:43.910] that gives Derrick Van Orden passion.
+- [31:45.340] The idea that every single one of you should have a good job,
+- [31:48.520] a good life if you work hard and play by the rules.
+- [31:51.240] The idea that our young families should be able to own a stake
+- [31:53.870] in their country, that's what fires us up.
+- [31:56.540] That's what we're fighting for in government.
+- [31:58.210] But you watch these Congressional Democrats,
+- [32:00.560] what really fires them up, they get really mad at the idea
+- [32:04.260] that we are deporting illegal immigrants.
+- [32:06.700] They talk about the dreams of illegal immigrants
+- [32:09.260] who have come into our country.
+- [32:10.750] But what about the dreams of you and your children?
+- [32:14.510] Because that's who I'm fighting for.
+- [32:16.270] That's who Donald Trump is fighting for
+- [32:18.360] and that's who Derrick Van Orden is fighting for.
+- [32:20.120] I'm not going to tell you --
+- [32:21.370] and I know there are a lot of people
+- [32:22.590] who are going to watch clips of this
+- [32:23.800] or even watching it live right now.
+- [32:25.390] I'm not going to tell you you're going to agree with us.
+- [32:27.480] Agree with me on every single issue?
+- [32:28.950] That'd be impossible. Even in the Republican Congress,
+- [32:32.560] which is just 220 or so very good guys.
+- [32:36.500] You've got disagreements of opinion;
+- [32:38.160] you've got some people who will say this thing about this issue
+- [32:41.060] and something else about another issue.
+- [32:43.550] Disagreement is fine,
+- [32:45.740] but I'm not asking you to agree with us on everything.
+- [32:49.080] I'm asking you to remember who serves you.
+- [32:53.200] And what I know about Donald Trump
+- [32:55.870] and the Congressional Republicans
+- [32:58.930] is that we wake up every single day,
+- [33:01.330] and we think about how do we fight for you.
+- [33:04.570] The question in November is do we give power
+- [33:07.850] to the people who fight for corruption,
+- [33:10.800] who fight for fraud, who fight for illegal aliens,
+- [33:14.030] or do we give the government to the American citizens
+- [33:18.260] for whom it was designed and for whom it was created?
+- [33:21.690] I think I know the answer. Let's vote for our people.
+- [33:24.800] Let's vote for Derrick Van Orden next November.
+- [33:27.300] Thank you all.
+- [33:33.590] Thank you, guys. Thank you all.
+- [33:43.440] OK, thank you. Thank you.
+- [33:48.830] Please, have a seat and what we'll do
+- [33:51.340] is we'll answer a few questions from the media.
+- [33:53.660] And I would ask that the local reporters get first dibs here
+- [33:57.580] and then we'll answer as many questions as we've got time for.
+- [33:59.870] So go ahead.
+- [34:01.650] The Press: Alex Loroff with Spectrum News 1.
+- [34:03.610] Mr. Vice President, there was a poll released yesterday
+- [34:05.960] of Wisconsin voters where 70 percent of respondents
+- [34:08.820] said their biggest concerns right now are affordability
+- [34:11.240] and the cost of living.
+- [34:12.580] What can still be done at the federal level
+- [34:14.580] to ease some of those affordability concerns
+- [34:16.480] that Wisconsinites still have?
+- [34:18.270] Well, look, it's our top concern too.
+- [34:20.340] We want people to be able to afford a good life.
+- [34:22.610] Nothing breaks my heart more than the idea
+- [34:25.110] that you've got somebody who goes out,
+- [34:26.660] they bust their rear end, they come home,
+- [34:28.930] they want to give their kids a nice meal,
+- [34:30.860] maybe once or twice a year
+- [34:32.130] they want to take their kids on a nice vacation.
+- [34:34.010] We want people to be able to afford
+- [34:35.800] that so long as they work hard and play by the rules.
+- [34:38.940] And I think the thing that we've tried to remind ourselves
+- [34:41.170] of in the Trump administration
+- [34:42.610] is we were put in a very big hole.
+- [34:45.530] When you talk about the average American family
+- [34:47.750] under Biden's leadership
+- [34:49.040] that lost $3,000 of take-home pay,
+- [34:51.950] we think every single day,
+- [34:54.330] how do we get that $3,000 back and then some?
+- [34:57.180] You heard me say earlier -- and this is a true statistic --
+- [35:00.940] that the average American family has gained about $1,400
+- [35:05.080] under the Trump administration
+- [35:06.490] just in about a year and a month.
+- [35:07.720] Now that's something we're very proud of,
+- [35:09.850] but we think every single day that still means that,
+- [35:12.380] compared to when Biden took over,
+- [35:15.230] those Americans are still running behind.
+- [35:18.640] They're still catching up.
+- [35:20.490] So, I think what we have to do every single day
+- [35:23.680] is come up with ideas
+- [35:25.130] for how to make the American people's lives better
+- [35:27.070] and that's what we're doing.
+- [35:28.280] Some of this is the policies that we've already put in place
+- [35:31.500] take a little bit of time
+- [35:32.780] to work their way through the system.
+- [35:34.540] Some of it is we've got to keep on working at it.
+- [35:36.630] You know, a few months ago the president of United States
+- [35:38.430] had the big pharmaceutical companies into the Oval Office.
+- [35:41.900] And normally what happens
+- [35:43.240] is these big pharmaceutical companies,
+- [35:44.630] they come to Washington, thanks to the fraud and corruption,
+- [35:47.650] and they get a big fat paycheck from Congressional Democrats.
+- [35:50.940] You know what they got Instead?
+- [35:52.610] They got a lecture from the president of United States --
+- [35:54.410] why is it that the people in this room for my entire life
+- [35:58.330] and then some paid the highest prescription
+- [36:00.510] drug prices in the world,
+- [36:02.120] while people in England or France
+- [36:04.110] or other rich countries paid much lower prices?
+- [36:06.700] And the reason is because the pharmaceutical companies
+- [36:09.970] took advantage of us.
+- [36:11.510] That was corrupt. It was unacceptable.
+- [36:13.870] Now you're already starting to see this
+- [36:15.250] with certain medications
+- [36:16.450] and you're going to see it with more.
+- [36:17.720] But the president of United States said
+- [36:19.400] we are done paying more than Europe for prescription drugs.
+- [36:23.960] We want to pay what they pay.
+- [36:25.770] And if you're not going to take that deal,
+- [36:27.550] then get the hell out of my office.
+- [36:29.030] Well, they took that deal.
+- [36:32.420] So, my -- so we've got to keep working at it.
+- [36:38.180] But I'd say to Wisconsin voters, whether they're conservative
+- [36:40.950] or liberal or in the middle, I'd say to them ask yourselves
+- [36:45.400] what kind of a hole the Joe Biden era put us in.
+- [36:49.590] And do you want to give power back to the people
+- [36:51.830] who created those problems?
+- [36:53.420] Or do you want to double down on the administration
+- [36:55.920] that has busted our tails for the last year
+- [36:58.700] to fix those problems?
+- [37:00.160] Let's double down on the leadership
+- [37:01.700] that's fixing the problems,
+- [37:02.930] not the leadership that created them.
+- [37:11.490] The Press: Thank you, Mr. Vice President,
+- [37:12.880] Matt Smith from WISN-TV in Milwaukee.
+- [37:15.710] On the fraud efforts and what we saw in Minnesota yesterday,
+- [37:19.080] here in Wisconsin, the governor has refused
+- [37:21.290] to give over the SNAP data
+- [37:23.120] here in the state along with the voter data.
+- [37:25.830] I'm curious, is there a point or at what point would
+- [37:28.510] the administration withhold federal funds from Wisconsin?
+- [37:31.770] Well, look, we're going to look at every option that we have
+- [37:33.970] because we've got to stop this terrible fraud,
+- [37:35.890] but that is absurd. Ask yourself a question.
+- [37:40.750] Why would the government of Wisconsin not want to help us
+- [37:45.490] kick fraud off of the welfare rolls
+- [37:47.990] and kick fraud off of the voter rolls?
+- [37:50.530] And the only answer I can possibly come up with
+- [37:52.590] is because they like to cheat.
+- [37:54.660] There's no other real explanation.
+- [37:56.870] Now the governor might say -- in fact,
+- [37:58.210] I'm sure the governor would say this.
+- [37:59.730] Let me just be charitable to those who disagree with us.
+- [38:02.520] The governor would say, well, there isn't as much fraud
+- [38:06.080] as the Trump administration believes there is.
+- [38:08.490] Well, even if that's true and it's not.
+- [38:11.030] But even if that's true, let's get what fraud
+- [38:13.420] there is off the voter rolls and off the welfare rolls.
+- [38:16.720] You know the right number of people
+- [38:18.120] who should be illegally voting in American elections?
+- [38:20.970] Zero. You know the number of people
+- [38:23.650] who should be fraudulently collecting food stamps? Zero.
+- [38:27.350] I want those benefits to exist for the people who need them.
+- [38:30.640] The only way to promise that
+- [38:32.900] is to get the fraud out of the system
+- [38:35.220] and that's what we're trying to do in the Trump administration.
+- [38:37.630] No more fraud, no more corruption.
+- [38:39.660] It shouldn't be hard.
+- [38:46.900] The Press: Thank you, Mr. Vice President.
+- [38:48.240] Ellie Davis, Local 5 News.
+- [38:50.570] What should data centers do to be good community partners?
+- [38:54.650] JD Vance: Well, that's a very, very good question
+- [38:56.180] and you saw the president talk about this
+- [38:57.740] in the State of the Union address.
+- [38:59.460] Look, there's good news and bad news with data centers.
+- [39:01.810] Now the good news is, first of all, they're big facilities.
+- [39:05.900] You create a lot of construction jobs.
+- [39:08.070] In this next generation of the technological revolution,
+- [39:11.000] you need those data centers to make that run.
+- [39:12.900] Those data centers are like the gasoline of the technology
+- [39:16.830] revolution that we're going to see over the next 75 years.
+- [39:19.170] And I don't know about you all,
+- [39:20.520] but I want America to win that technology revolution.
+- [39:22.880] I don't want China or some other country to win it
+- [39:25.130] and so that's why we've got to have these things.
+- [39:26.820] Now here's the downside.
+- [39:28.490] If those centers are built
+- [39:30.690] and the local governments aren't ensuring
+- [39:33.200] that there's enough power for those data centers,
+- [39:35.330] then it's going to increase electricity costs
+- [39:37.800] for everybody else.
+- [39:39.160] And so, what we think the data centers have got to do
+- [39:42.090] is they've got to work with the local governments,
+- [39:44.040] with the state governments and in the federal government
+- [39:47.000] we are trying to do everything that we can so that
+- [39:49.210] if you build a data center, for example,
+- [39:51.370] you can just build a power plant right next door.
+- [39:54.160] What I think we ought to be working towards
+- [39:56.030] is you build those data centers and electricity
+- [39:59.200] costs come down for American citizens
+- [40:01.530] instead of going up for American citizens.
+- [40:03.740] The data centers can afford it.
+- [40:05.580] We've got to make sure that they're good neighbors
+- [40:07.880] so that when they come in and build these great buildings,
+- [40:10.790] the people in their neighborhood,
+- [40:12.160] the people in their community benefit too
+- [40:14.260] and that's through lower power,
+- [40:15.650] that's the best way they can be good neighbors.
+- [40:18.190] Thank you.
+- [40:24.950] The Press: Hello, my name is Laura Schulte;
+- [40:26.300] I'm a reporter with the Milwaukee Journal Sentinel.
+- [40:29.040] And in Wisconsin rural hospitals are struggling.
+- [40:31.290] Closures are creating healthcare deserts for parts of the state.
+- [40:34.740] What can be done federally to keep those hospitals open
+- [40:37.610] and providing necessary care to community members?
+- [40:39.980] JD Vance: Yeah, that's a -- I appreciate that question.
+- [40:42.680] It's a very, very serious problem
+- [40:44.460] and unfortunately this, like so much of else
+- [40:47.880] of what's going on in our country right now,
+- [40:49.970] is a problem that we inherited from the last administration.
+- [40:52.360] If you look at the number of rural hospital closures
+- [40:54.660] that were happening in 2022 and 2023 and 2024,
+- [40:59.100] it was really accelerating.
+- [41:01.030] And it's one of the reasons why --
+- [41:02.250] it's not a provision that's talked about as much.
+- [41:04.130] But if you look in the Big,
+- [41:05.350] Beautiful Bill, the Working Families Tax
+- [41:07.710] Cut, however you're calling it, in that legislation,
+- [41:11.860] there was a multibillion-dollar rural hospital
+- [41:14.480] fund to try to help these rural hospitals persevere
+- [41:18.090] in tough times, stay open, provide essential services
+- [41:21.370] and get them to a place
+- [41:22.640] where they're on firmer financial footing.
+- [41:24.440] Nothing like that, I don't believe, Derrick,
+- [41:26.370] had ever existed in the federal government before,
+- [41:29.130] but we said, look,
+- [41:30.360] we cannot let these rural hospitals just disappear.
+- [41:33.710] So, we've created this fund to try to support the ones
+- [41:37.800] that can stay open and try to slow the closures
+- [41:40.930] for the ones that are going to have to close.
+- [41:43.170] We think that we're starting to see some good evidence
+- [41:45.180] from those. It takes a little bit of time
+- [41:47.150] for that tens of billions of dollars
+- [41:48.660] to work its way through the system.
+- [41:49.920] But that's the number one thing.
+- [41:51.500] And then the number two thing is the Trump administration
+- [41:54.840] did a number of things in the first term,
+- [41:56.860] and we're trying to do this in the second term,
+- [41:58.910] to give patients more choice.
+- [42:00.960] Because what we often do in our health care system,
+- [42:03.160] like for example,
+- [42:04.380] if you're a veteran, under the Biden administration,
+- [42:06.690] we would force veterans to drive an hour
+- [42:08.910] and a half away to a big city hospital
+- [42:11.830] when they could maybe go to a telehealth appointment
+- [42:15.590] in their own home
+- [42:16.800] or maybe drive 15 minutes down the road to the local doctor.
+- [42:19.740] So we've tried to empower people to have more choice
+- [42:23.090] because if they have more choice,
+- [42:24.360] they're going to be able to stay in their communities,
+- [42:26.360] which means more money going to those rural
+- [42:28.570] healthcare organizations.
+- [42:30.480] And that's the way that we save rural health care too.
+- [42:32.500] It's a tough problem. I'm not going to pretend it's easy,
+- [42:35.460] but we are working as hard as we can to make sure
+- [42:37.780] that the people in our rural communities
+- [42:39.130] still have access to great health care.
+- [42:40.830] Thank you.
+- [42:47.550] The Press: I'm Stephanie Hoff
+- [42:48.760] with the Midwest Farm Report Radio Network
+- [42:50.870] talking to farmers across the state of Wisconsin.
+- [42:53.600] My question for you today is commodity markets
+- [42:56.350] have not been friendly to Wisconsin farmers,
+- [42:58.310] I'm talking corn, soybeans and dairy.
+- [43:00.900] What is the administration doing to bolster trade,
+- [43:03.650] increase export markets and those relationships
+- [43:06.170] to bring market prices back up?
+- [43:08.290] JD Vance: Yes. So, the good news on that
+- [43:10.090] is that our great Secretary of Agriculture, Brooke,
+- [43:12.490] has been on this from the very beginning.
+- [43:13.820] I think it was maybe the first cabinet meeting
+- [43:16.280] where Brooke comes up to me and says, JD,
+- [43:18.700] the farmers have inherited a mess,
+- [43:20.510] and we've got to do everything that we can to ensure
+- [43:23.240] that they can stay afloat during this very tough time.
+- [43:25.470] So, one of the things that we're doing is making sure that,
+- [43:28.700] wherever commodity prices are,
+- [43:30.630] that our farmers can do their job,
+- [43:32.160] they can provide their food. And if they fall on tough times,
+- [43:35.360] there's a little bit of a support mechanism there.
+- [43:37.590] Now you might say why do we do that,
+- [43:39.780] but the answer is actually very simple.
+- [43:41.300] If we don't have American sovereignty in our food supply,
+- [43:45.120] we don't have sovereignty at all.
+- [43:47.070] If you cannot depend on your neighbors to provide your food,
+- [43:52.070] if the food that you're relying on comes from another country,
+- [43:55.420] say goodbye to sovereignty
+- [43:57.260] because that country is the one that controls you.
+- [43:59.480] The country that controls the food is the country
+- [44:02.240] that will ultimately control the entire world.
+- [44:05.010] So, we've made very strong efforts,
+- [44:07.530] and we're going to keep on working at this with our farmers
+- [44:09.670] to ensure that whatever commodity prices are,
+- [44:12.220] they're able to stay afloat,
+- [44:13.500] they're able to grow their products.
+- [44:15.050] We know that they're struggling
+- [44:16.260] and we're trying hard to fix that.
+- [44:18.080] The other thing the president has done
+- [44:19.990] is for a very long time China,
+- [44:21.950] one of the biggest buyers of soybeans,
+- [44:24.940] they would take advantage of American markets,
+- [44:27.260] but they would not take the product of Wisconsin farmers,
+- [44:30.560] whether it's corn or soybean or whatever it is, they would
+- [44:32.980] Not offload that product into their country.
+- [44:35.390] Now that was a fundamental unfairness
+- [44:37.360] and that's why the president is fighting back
+- [44:40.040] and making sure that we have fair trade practices.
+- [44:43.410] If you don't have countries
+- [44:45.730] honoring the United States of America,
+- [44:47.960] our great farmers and our great manufacturers.
+- [44:50.410] If you have countries that are able to come in
+- [44:52.870] and undercut the wages of our workers
+- [44:55.310] but we're not able to export their products.
+- [44:57.340] Ladies and gentlemen, that is not trade,
+- [44:59.530] that is international fraud
+- [45:01.180] and that's what's been happening far too long all over the world.
+- [45:04.640] The president of United States is stopping it.
+- [45:06.650] We're going to keep on stopping it to the benefit,
+- [45:08.760] not just of Wisconsin farmers, but Wisconsin manufacturers too.
+- [45:19.050] So, I'll take -- let's say we'll take two more questions here.
+- [45:21.440] Sir.
+- [45:22.700] The Press: Thank you, Mr. Vice President. Dylan Eckhart.
+- [45:24.410] Nine news out of Wausau, WAOW. Nationally there has been
+- [45:28.610] bipartisan legislation introduced.
+- [45:30.250] Sticking with agriculture, for example,
+- [45:32.520] the Domestic Organic Investment Act,
+- [45:34.440] which would make a USDA's development grant permanent
+- [45:37.290] allowing for grants for farmers and businesses.
+- [45:39.730] How will the administration continue to work
+- [45:41.850] with local farmers and businesses in Wisconsin,
+- [45:44.070] especially central Wisconsin,
+- [45:45.790] to expand on some of those ideas and introduce legislation?
+- [45:49.040] JD Vance: Well, you heard a little bit of my answer
+- [45:50.550] in the last question,
+- [45:51.800] but you're right that there's a lot of legislation
+- [45:53.910] that's working through the Congress.
+- [45:55.210] And as broken as Congress is as an institution sometimes,
+- [45:59.060] there are still some good pieces
+- [46:00.530] of bipartisan legislation that happen.
+- [46:03.040] Luckily, I think agriculture is one of those areas
+- [46:05.230] where you still have some good bipartisan pieces
+- [46:07.190] of legislation.
+- [46:08.430] You asked how we're going to work with local farmers,
+- [46:10.440] especially in central Wisconsin.
+- [46:12.180] And the answer is just to listen.
+- [46:14.000] You know, we've got a great legislative team
+- [46:15.650] at the White House,
+- [46:16.890] but we've also got a lot of great allies
+- [46:18.460] like Derrick Van Orden in Congress.
+- [46:21.400] And what these guys are doing is they're coming to us with ideas.
+- [46:24.400] And they're saying, look, we heard from our constituents,
+- [46:26.180] this is something we've got to do.
+- [46:27.910] You know, whatever the product is,
+- [46:29.880] sometimes they're most concerned about commodity prices.
+- [46:32.690] They're worried that the soybeans and the corn,
+- [46:34.570] it's way too low.
+- [46:35.790] Sometimes they're worried, of course, about inputs.
+- [46:37.670] They're worried about fertilizer.
+- [46:38.980] They're worried about the cost of fuel.
+- [46:40.970] So, what we just try to do
+- [46:42.230] is work with our allies in Congress.
+- [46:43.990] And frankly, we'll work with anybody in Congress
+- [46:46.480] who has good ideas about how to help our farmers.
+- [46:48.850] We're going to have some good legislation
+- [46:50.310] on this front over the next year.
+- [46:51.960] It's just a question of getting it over the hill,
+- [46:53.810] getting it to the president's signature --
+- [46:55.540] or the president's desk, I should say, for his signature.
+- [46:58.520] Thank you. One more question.
+- [47:05.950] The Press: Thank you, Vice President.
+- [47:07.220] Derek Tritz, News Watch 12 in Rhinelander.
+- [47:09.700] I wanted to ask about the health care
+- [47:14.100] worker shortages in several hospitals.
+- [47:16.930] Hospitals in Wisconsin are experiencing
+- [47:19.210] or are worried about the aging shift,
+- [47:21.990] aging demographic shift,
+- [47:23.470] and I'm wondering what the administration will do
+- [47:25.550] to bolster the healthcare workforce in the coming years.
+- [47:29.810] JD Vance: Yeah, a couple things that we see is,
+- [47:32.300] one, we're encouraging hospitals and all health care providers,
+- [47:36.160] and we're seeing some evidence of this,
+- [47:38.180] to use technology to your advantage, right?
+- [47:40.820] So, if you've got, let's say, a guy who needs to see a doctor,
+- [47:46.100] but he can see that doctor from the comfort of his own home
+- [47:49.930] doing a telehealth appointment.
+- [47:51.290] Sometimes you've got to go into the doctor,
+- [47:52.810] sometimes you can actually do that
+- [47:54.080] by just talking to the doctor at home.
+- [47:56.290] That we're trying to encourage
+- [47:57.720] because that puts less stress on some of the health care workers.
+- [48:01.480] If you can just see somebody quickly,
+- [48:03.230] it's in and out, you don't have to deal
+- [48:04.680] with all the paperwork of coming in for a doctor's visit.
+- [48:07.290] That's one of the ways that you relieve that stress and shortage
+- [48:10.050] that we see in our health care workforce.
+- [48:11.790] The other thing is that we're investing a lot
+- [48:14.460] to try to make sure that we meet the doctor,
+- [48:17.240] the nurse, the physician assistant shortage.
+- [48:19.650] The basic problem that we had in our country
+- [48:22.050] is that for a long time we would encourage people to get
+- [48:25.380] like women's studies degrees in the United States of America,
+- [48:28.310] which maybe you need a few of those.
+- [48:30.690] I'm not sure how much.
+- [48:31.990] But what you really need is doctors,
+- [48:33.530] you need nurses, you need people who can work with their hands.
+- [48:36.030] You need people who can work on a farm,
+- [48:38.310] you need people who build and make things
+- [48:40.190] and take care of people.
+- [48:41.580] And our education system just really underinvested
+- [48:44.660] in training the next generation of health care workers.
+- [48:47.310] That's not a problem that's going to be solved overnight,
+- [48:49.730] but it is something we're working to solve
+- [48:51.240] because we want --
+- [48:52.450] I mean, you know, I see kids in the audience.
+- [48:55.020] I'm sure everybody has a young person
+- [48:57.870] who wants to be a health care worker,
+- [48:59.980] knows somebody in your family or your friendship circle
+- [49:03.080] that wants to work in health care.
+- [49:04.730] We've got to make it easier for our young people
+- [49:07.050] to choose those careers.
+- [49:08.760] Unfortunately, for a very long time,
+- [49:10.380] we've actually made it harder
+- [49:11.600] for people to go into the health care field.
+- [49:13.970] We layer up those who do with debt,
+- [49:16.180] and we make it harder for them to join the workforce.
+- [49:18.960] We're trying to make it easier for people
+- [49:20.460] to enter the health care field and, in doing that,
+- [49:23.080] that's how you release the long-term shortage.
+- [49:25.350] So, that's all I have.
+- [49:27.960] I appreciate everybody who asked a question.
+- [49:29.600] I'm sorry if you didn't get time to ask a question
+- [49:32.170] but let me just leave you with this one final thought.
+- [49:34.330] So, I've got three little kids at home,
+- [49:36.730] and I've got one on the way.
+- [49:37.950] I've got an eight-year-old, I've got a six-year-old,
+- [49:39.640] I've got a four-year-old
+- [49:40.880] and Usha is pregnant with baby number four,
+- [49:43.160] which we're very happy about, very proud of. Thank you.
+- [49:51.770] But my eight-year-old,
+- [49:54.200] he's gotten really into football in the last --
+- [49:57.210] in the last probably three or four months.
+- [49:59.780] Don't hold it against him. He's an Ohio State fan;
+- [50:02.940] that's his dad rubbing off on him.
+- [50:04.560] Are we Wisconsin fans here in central Wisconsin?
+- [50:07.280] OK. But here's the thing, we were watching --
+- [50:10.300] we watched over the past few days -- we watched Rudy.
+- [50:14.160] Does everybody remember the movie Rudy about this guy?
+- [50:17.120] He was too little.
+- [50:19.370] He wasn't fast enough, he was five foot six,
+- [50:22.150] but he worked his tail end off
+- [50:23.730] and he made the Notre Dame football team
+- [50:26.620] at really the height of Notre Dame's power.
+- [50:28.810] I mean they were one of the best, they still are,
+- [50:30.410] but they really were one of the best football programs
+- [50:32.420] back in the country.
+- [50:33.950] And it really is just this incredible tale of a guy
+- [50:37.590] who believed in his dreams, who fought for those dreams
+- [50:41.050] and would never give up -- a classic American tale.
+- [50:44.270] But I was watching that movie, and I realized
+- [50:46.390] the three most important people in that movie --
+- [50:49.100] obviously one is Rudy, the guy who became the football player.
+- [50:52.240] But number two is Rudy's dad. And number three is the priest.
+- [50:57.450] There's a priest in the movie who sort of serves
+- [50:59.590] as a spiritual counselor to Rudy.
+- [51:02.260] And it kind of hit me watching this movie
+- [51:05.410] that the American dream takes many shapes and sizes.
+- [51:09.740] I think all of us know that.
+- [51:10.980] Even among our own kids, our grandkids,
+- [51:13.160] our friends and family, you've got the striver,
+- [51:15.950] you've got the guy like Rudy, who's got really big dreams,
+- [51:19.090] wants to play football for Notre Dame
+- [51:21.200] and is going to make those big dreams happen.
+- [51:23.460] But you've also got a guy like Rudy's dad,
+- [51:25.710] a guy who just wanted to work a good job,
+- [51:28.530] who wanted dignified work, who wanted to raise his family
+- [51:31.100] and take a nice vacation every now and then.
+- [51:33.320] And then you had this priest who was kind of the glue
+- [51:35.830] that held everything together,
+- [51:37.210] that helped people when they were struggling,
+- [51:39.280] that provided counsel to people
+- [51:40.680] when they were down on their luck
+- [51:42.170] and was empowered to be a leader in the community.
+- [51:45.730] And I realized watching this
+- [51:47.970] that when we talk about the American dream,
+- [51:50.440] I'm not talking about my American dream.
+- [51:52.750] I'm talking about your American dream.
+- [51:54.830] Whether you want to have a good job
+- [51:56.740] and raise a healthy happy family,
+- [51:59.220] whether your kid wants to go off and play college football,
+- [52:02.530] whether you want to start a business like the one
+- [52:04.310] that we're standing in, whatever it is,
+- [52:07.360] the great thing about this country
+- [52:09.470] is that the American dream comes in many shapes and sizes.
+- [52:13.300] But here's the thing about the American dream --
+- [52:15.480] the government cannot give it to you for you.
+- [52:18.250] But the government with bad policy and bad leadership,
+- [52:21.620] it can destroy that American dream,
+- [52:23.970] whatever shape it takes in the lives of you and your children.
+- [52:28.160] And so, I just want you to know
+- [52:30.020] that I'll never forget where I came from.
+- [52:31.660] Raised in a poor family, raised by a grandmother
+- [52:34.500] who would sometimes struggle to pay her prescription drugs
+- [52:37.680] or put food on the table and had to pick one or the other.
+- [52:40.740] And here I am before you, the greatest crowd in the world,
+- [52:43.220] as the vice president of the greatest country in the world.
+- [52:46.350] This country is still a place of very big dreams.
+- [52:50.370] But I'm not going to pretend that my dream is your dream.
+- [52:53.070] And I just want you to know that every single day I go to work,
+- [52:57.540] and every single day Donald J. Trump goes to work
+- [53:00.080] and we fight for the American dream for you
+- [53:02.660] and your family however you define it,
+- [53:05.170] we would really appreciate you not sending us a bunch
+- [53:08.470] of crazy Democrats in November, so please don't do that.
+- [53:11.190] God bless you all and thank you.
+- [53:13.920] (applause)

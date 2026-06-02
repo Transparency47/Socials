@@ -1,0 +1,900 @@
+<!-- source: https://www.youtube.com/watch?v=Y_vKqEbZw9s -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: Y_vKqEbZw9s -->
+<!-- date_published: 2026-02-02T22:02:06+00:00 -->
+<!-- date_accessed: 2026-06-02T02:38:23.360186+00:00 -->
+
+# Transcript: President Trump Participates in Signing Time, Feb. 2, 2026
+
+- [00:04.300] The President: Thank you very much.
+- [00:05.640] It's nice to see you.
+- [00:07.650] And today we're announcing the creation
+- [00:09.530] of the US Strategic Critical Minerals Reserve,
+- [00:11.910] the first ever stockpile of critical minerals
+- [00:15.040] that you've been hearing so much about.
+- [00:16.780] We have the greatest experts on earth behind me.
+- [00:20.790] For civilian use in times of emergency,
+- [00:23.180] we're pleased to be joined on this occasion by General Motors
+- [00:26.620] CEO, Mary Barra, who is setting records, huh?
+- [00:30.000] I hear you're doing unbelievably 24 hours round the clock,
+- [00:33.590] your factories and you're building brand new factories.
+- [00:36.780] Amazing, great job, Mary.
+- [00:38.350] Of course, it helped that you have a president
+- [00:41.320] that knows what he's doing.
+- [00:43.550] But it's a great -- it's a great job, proud of you.
+- [00:46.660] As well as founder and executive
+- [00:48.280] co-chairman of Ivanhoe Mines, Robert Friedland.
+- [00:51.440] Thank you, Robert.
+- [00:53.060] Thanks as well to Secretaries Marco Rubio,
+- [00:55.800] Scott Bessent, Doug Burgum, Howard Lutnick
+- [00:58.770] and Export-Import Bank Chairman
+- [01:00.490] John Yovanovich, along with Senator Bernie Moreno;
+- [01:05.620] and Congressman French Hill and Bruce Westerman.
+- [01:08.780] Thank you all. Thank you. Thank you, French.
+- [01:11.970] For years, American businesses have risked
+- [01:13.960] running out of critical minerals during market disruptions.
+- [01:17.640] Today, we're launching what will be known as Project Vault
+- [01:21.780] to ensure that American businesses and workers
+- [01:24.250] are never harmed by any shortage.
+- [01:26.030] We don't want to ever go through what we went through a year ago.
+- [01:29.990] Just as we -- although it did work out.
+- [01:32.630] Thank you.
+- [01:33.960] Just as we have long had a strategic petroleum reserve
+- [01:38.020] and a stockpile of critical minerals for national defense,
+- [01:40.810] we're now creating this reserve for American industry,
+- [01:44.530] so we don't have any problems.
+- [01:45.770] This historic initiative will combine $10 billion dollars
+- [01:50.600] in Export-Import Bank financing with $2 billion
+- [01:54.790] in private sector financing.
+- [01:56.670] And we even expect the American taxpayer
+- [01:59.440] to make a profit from the interest
+- [02:01.920] on the loan used to start the Project Vault.
+- [02:05.220] It's an amazing thing.
+- [02:06.510] They've been talking about it for years.
+- [02:08.830] Other presidents did a lot of talking,
+- [02:10.390] but they didn't do anything. Over the past year,
+- [02:13.040] my administration has taken extraordinary steps
+- [02:15.520] to make sure the United States has all of the critical minerals
+- [02:19.170] and rare earths that we need.
+- [02:21.610] We're investing in mining projects --
+- [02:24.560] really we're expediting federal permitting.
+- [02:28.750] You know, the federal permitting,
+- [02:30.820] and a lot of it is Lee Zeldin, who's been fantastic,
+- [02:33.660] but federal permitting is such a big deal and we're doing that.
+- [02:39.860] The permitting of mines
+- [02:41.870] and signing major critical mineral deals
+- [02:44.260] with countries from all over the world,
+- [02:46.220] and we're getting along with all of them,
+- [02:47.610] every one of them.
+- [02:49.020] They want to be in the proper position.
+- [02:50.590] We're working very well with countries
+- [02:52.200] from all over the world.
+- [02:53.410] Today, we're building on these achievements
+- [02:55.630] with this vital new reserve.
+- [02:57.710] And now I would like to ask Axiom Chairman John Yovanovitch
+- [03:01.840] to say a few words,
+- [03:03.120] followed by our friends from business in Congress.
+- [03:05.910] We'll go over that, but we have some great business leaders,
+- [03:08.870] the best, here today.
+- [03:10.590] And John, if you would start it off, that'd be great.
+- [03:12.350] Thank you.
+- [03:13.670] John Jovanovic: Thank you, Mr. President.
+- [03:14.940] The president gave us a very clear directive.
+- [03:18.120] By clear directive, was much more of an order for us
+- [03:20.780] to figure out how to for the first time in American history
+- [03:23.660] create a strategic critical minerals reserve
+- [03:27.230] in a way that would benefit
+- [03:29.100] the nonmilitary manufacturing complex.
+- [03:32.090] The challenge was enormous,
+- [03:33.660] not simply because it had never been done before, Mr. President,
+- [03:36.060] but we knew that you expected us to deliver in a big way,
+- [03:40.140] in a way that was scalable,
+- [03:41.590] in a way that was designed for long-term success
+- [03:44.040] and in a way that would help revitalize
+- [03:46.090] our domestic mining industry.
+- [03:47.800] But most importantly, most crucially,
+- [03:49.810] that it not be subsidized by American taxpayers.
+- [03:52.580] And so that's exactly what we've done.
+- [03:54.300] Mr. President, what you've announced today
+- [03:56.500] is a truly uniquely American solution.
+- [03:59.220] It brings together our capital markets,
+- [04:01.350] which are the best and biggest in the world,
+- [04:03.500] with our manufacturers, our innovators, our miners,
+- [04:06.800] all pitching in to make this possible.
+- [04:09.680] Now, these things don't happen without the best
+- [04:13.940] and the brightest within industry being at the table.
+- [04:17.090] And Mr. President, everyone wants to engage
+- [04:19.710] with this administration, with your administration.
+- [04:22.160] The key ingredient here was your call to action.
+- [04:25.210] Your call to action allowed us to bring together
+- [04:27.920] the best players in the market,
+- [04:29.590] sometimes the fiercest competitors,
+- [04:31.640] getting them to work together
+- [04:33.170] to come up with a creative solution.
+- [04:35.090] Now, in addition to our great team at the Export-Import Bank
+- [04:38.900] who worked around the clock led by Brian Greely,
+- [04:41.370] Jeff Wilson, Sarah Whitten and many others.
+- [04:43.580] We benefited from having the biggest manufacturing CEOs,
+- [04:47.010] the smartest market players at the table,
+- [04:50.030] all looking to solve this problem.
+- [04:52.470] So what we have with Project Vault
+- [04:55.180] is marrying the capital solution
+- [04:58.430] with what we need when we need it most.
+- [05:01.550] And the best part about it is that the American taxpayer
+- [05:05.540] will earn a return on financing the first
+- [05:08.520] ever strategic critical minerals reserve in history.
+- [05:12.770] And we thank you, Mr. President, for allowing this to happen.
+- [05:17.250] All of the people around --
+- [05:19.020] around us today help make it possible.
+- [05:21.560] Our cabinet secretaries, our top CEOs,
+- [05:24.680] their teams, top market players, whether it be GM,
+- [05:29.210] (inaudible), Boeing, Clarios, Google,
+- [05:32.510] (inaudible) especially Brian (inaudible)
+- [05:34.760] Traxxas, our friend Robert Friedland,
+- [05:37.810] all of us work together, Mr. President,
+- [05:39.210] to deliver this for you so -- and for the American people,
+- [05:41.950] so that manufacturers and workers
+- [05:44.680] all across the country can rest assured
+- [05:46.700] they'll have what they need when they need it most.
+- [05:49.130] The President: And you're covering everything with this.
+- [05:50.850] We're not just doing certain minerals and rare earths.
+- [05:53.640] We're doing everything.
+- [05:54.840] John Jovanovic: Everything on critical minerals.
+- [05:56.050] The President: What about magnets?
+- [05:57.270] John Jovanovic: We're focused on the critical raw materials
+- [05:59.660] and we anticipate that that led by our great manufacturers,
+- [06:03.470] will help breed even more solutions.
+- [06:06.330] The President: Great job. Thank you very much.
+- [06:07.680] John Jovanovic: Thank you, Mr. President.
+- [06:08.900] The President: Doug Burgum, please.
+- [06:10.710] Doug Burgum: Mr. President again,
+- [06:12.240] I want to echo what John said,
+- [06:13.600] which is a great thank you to you.
+- [06:15.430] Uh, you've set the direction. And when you took office,
+- [06:18.480] you've done more in the last year
+- [06:20.530] for mining and minerals in our country
+- [06:22.720] perhaps than any president in history.
+- [06:25.030] Uh, just like drill, baby,
+- [06:26.720] drill, you said mine, baby, mine.
+- [06:28.600] And what's happened in our country
+- [06:29.950] is you've led us through deals with equity deals
+- [06:33.050] for the first time. The United States of America
+- [06:35.500] is driving equity deals to help sustain
+- [06:39.060] and balance this market.
+- [06:40.790] You unlocked Alaska with the Amber Road project.
+- [06:44.010] Uh, that opened up over 1,700 mining claims in Alaska.
+- [06:48.220] And of course, on beautiful clean coal,
+- [06:50.370] we've got critical minerals that are co-located
+- [06:53.050] with that coal and we've unlocked that.
+- [06:55.390] Uh, we've -- we've -- we've --
+- [06:56.800] the Biden administration did zero coal leases
+- [06:59.150] during the last four years.
+- [07:00.690] You've done hundreds of millions of tons of coal leases.
+- [07:04.190] That's going to help drive electric prices down in America.
+- [07:07.650] Permitting, you mentioned this in your remarks,
+- [07:09.760] there was some permits that had lingered for 29 years.
+- [07:12.760] They got done in four months last year
+- [07:14.420] under your administration.
+- [07:15.850] And under your emergency authorities,
+- [07:17.710] some of these permits got done in as short as 12 days.
+- [07:21.040] Uh, you helped create a club of nations
+- [07:23.770] to help balance out the fact that we didn't have markets
+- [07:28.090] that were functioning around critical minerals.
+- [07:30.520] You led off with Australia, Japan, Korea,
+- [07:32.560] Saudi Arabia and Thailand.
+- [07:34.010] This week, we'll announce 11 more countries
+- [07:36.850] that are joining that club of nations
+- [07:38.400] as part of this global coalition.
+- [07:40.210] And behind that, in the pipeline,
+- [07:41.510] there's 20 more nations
+- [07:42.890] that want to join under your leadership
+- [07:45.770] to allow for trade of critical minerals.
+- [07:48.700] And then here, we stand today with the teamwork
+- [07:51.110] that was described.
+- [07:52.370] This was not -- have been possible
+- [07:53.610] without incredible cabinet that you put together.
+- [07:56.440] Marco Rubio, Scott Bessent, Howard Lutnick,
+- [07:59.880] Chris Wright and many others were involved
+- [08:02.450] in bringing this together through the vision.
+- [08:05.180] Standing with us today are some of our chairman
+- [08:07.130] of our great Congressional leadership
+- [08:08.520] who also have supported this and helped us
+- [08:10.870] find a way to do this without any appropriations.
+- [08:13.440] This is happening without tax dollars.
+- [08:15.760] And of course, our --
+- [08:17.150] our team on the ground here at the White House,
+- [08:18.990] including David Copley and everybody else at the --
+- [08:21.500] at the NSC David leading the global supply chain work.
+- [08:25.230] Uh, the folks working with EXIM Bank team
+- [08:27.720] working around the clock to make all this happen.
+- [08:30.320] So again, when you -- when you lead,
+- [08:31.980] when you put out a challenge, the teamwork happens
+- [08:34.280] and then here we stand today.
+- [08:35.910] This is the largest EXIM Bank deal
+- [08:38.880] in the history of the EXIM Bank by more than double.
+- [08:41.530] And this is going to help drive national security.
+- [08:44.800] It's great for American manufacturers.
+- [08:46.810] It's great for American workers.
+- [08:48.010] Congratulations, President Trump.
+- [08:49.320] The President: Well, thank you.
+- [08:50.560] You're doing a fantastic job, Doug.
+- [08:51.940] Thank you. Uh, could I ask Mary Barra,
+- [08:54.200] the chairman, CEO of General Motors,
+- [08:58.390] which is setting records every single day,
+- [09:00.410] and she's doing a fantastic job, to say a few words
+- [09:03.060] and also discuss how good the car business
+- [09:04.990] is now in the US, please.
+- [09:07.190] Mary Barra: Well, Mr. President,
+- [09:08.410] I want to thank you for your commitment
+- [09:10.140] to strengthening US manufacturing
+- [09:11.890] and supporting the auto industry.
+- [09:13.250] Also, I want to thank your cabinet
+- [09:15.770] and members of Congress and the whole team here
+- [09:18.070] that made this possible today.
+- [09:19.380] Having a resilient supply chain is critical for our nation
+- [09:23.340] and it's critical for all industry,
+- [09:25.150] especially the auto industry.
+- [09:26.990] We have been strengthened with many of the different policies
+- [09:29.520] that have been put in place over the last year.
+- [09:31.710] So I want to thank everybody for that.
+- [09:33.240] It not only supports US manufacturing,
+- [09:36.050] it supports job creation. It also supports the consumer.
+- [09:38.570] So thank you.
+- [09:39.780] And business is -- is held very strong.
+- [09:41.930] We still see a strong consumer, so I'm excited about 2026.
+- [09:45.240] The President: I think it's going to be a record
+- [09:47.200] with all of your new plants opening up
+- [09:49.170] and everything else in our country.
+- [09:51.290] So -- in our country. Please.
+- [09:53.460] Robert Friedland: Mr. President, thank you so much
+- [09:55.600] for what you've achieved.
+- [09:57.290] Everything we touch, we either grew it agriculturally
+- [10:01.130] and you've helped the farmers or we mined it.
+- [10:03.900] All these cameras you see in front of you, they were mined.
+- [10:06.980] Every time you pick up a handphone, it was mined.
+- [10:09.580] And so stimulating the ability for the miners in this country
+- [10:12.490] to help you industrialize the country,
+- [10:14.520] they're the salt of the earth.
+- [10:16.130] And we're super excited that America is doing something
+- [10:19.250] for not only our national security,
+- [10:20.920] but for the re-industrialization of the country,
+- [10:23.450] because you can't re-industrialize Detroit
+- [10:26.470] with a lot of metal.
+- [10:27.880] And I'm telling you on behalf of every miner,
+- [10:29.700] I know they're elated at the breakthroughs
+- [10:32.250] that have been achieved here
+- [10:33.580] and make a lot more cameras in the future.
+- [10:35.940] And maybe you could help us teach everybody
+- [10:37.520] that everything you touched like that somebody minded.
+- [10:40.820] And we need your support and we're really happy to get it.
+- [10:44.040] The President: And congratulations,
+- [10:45.270] you're in the Hall of Fame.
+- [10:46.580] Is that the Rare Earth Hall of Fame or Minerals Hall of Fame?
+- [10:50.010] Robert Friedland: It's a bunch of pictures of dead guys
+- [10:51.830] that go back to Herbert Hoover who was a miner.
+- [10:54.120] You know, you know, we're --
+- [10:56.100] mining is down to one percent of the S&P 500.
+- [10:58.510] But really, everything you touch needs mining
+- [11:02.030] and this is the first administration,
+- [11:04.310] with your support, where we've got hope.
+- [11:06.300] We can go out and really do it. So as you -- you know,
+- [11:09.140] I last met you in Saudi Arabia with Mohammed bin Salman.
+- [11:12.180] We're working in Chile.
+- [11:13.500] We want to bring these metals back to the United States
+- [11:15.850] and refine them and use them right here.
+- [11:18.390] And the vision of this administration,
+- [11:21.020] Howard Lutnick has been helping a lot.
+- [11:23.190] A lot of people at EXIM Bank have been helping a lot.
+- [11:25.380] I'm just telling you, the morale of the miners is sky high.
+- [11:28.230] The President: You're doing a great job.
+- [11:29.470] Thank you very much. Congratulations.
+- [11:31.020] That's a big deal. Robert Friedland: Thank you.
+- [11:32.280] The President: Thank you. How about French Hill?
+- [11:33.560] Say a few words, please.
+- [11:34.780] French Hill: Thank you, Mr. President.
+- [11:36.010] Well, on behalf of Congress, Chairman Westerman
+- [11:38.030] can talk about how he's helped unleash the ability to mine
+- [11:40.990] through permitting reform and Senator Marino
+- [11:43.250] and I serve on the House Financial Services Committee
+- [11:45.130] and Senate Banking Committee.
+- [11:46.750] And we're blessed in this country
+- [11:48.030] when we take the private sector
+- [11:49.670] and we leverage it to unleash the directions that you've made.
+- [11:52.760] And so together
+- [11:54.010] with our reauthorization of the EXIM Bank,
+- [11:57.040] we leverage that recess --
+- [11:58.490] resource with private sector dollars to make this a success
+- [12:02.390] and it's going to be a huge strategic change
+- [12:04.710] in America's industrial capacity.
+- [12:05.970] The President: Big difference, right?
+- [12:07.200] French Hill: Big difference.
+- [12:08.400] Donald Trump : It's never been really anything
+- [12:09.630] like what we're doing. Bernie, please.
+- [12:12.300] Bernie Moreno: You know, not to be hyperbolic,
+- [12:13.740] but if you hadn't been elected,
+- [12:14.950] the auto industry in America would be over.
+- [12:16.460] The President: The country would be over.
+- [12:17.730] Bernie Moreno: Completely, completely over.
+- [12:19.200] The President: The country would be over.
+- [12:20.440] Bernie Moreno: Well, but the auto industry
+- [12:21.710] would have been gone first.
+- [12:23.180] The -- what the Democrats had done with electric vehicles,
+- [12:26.150] the mandates, what you were able to accomplish last year,
+- [12:28.840] Secretary Lutnick what Secretary Bessent
+- [12:31.100] was able to do with your leadership,
+- [12:33.030] has transformed the auto industry.
+- [12:34.740] And I tell you, it's never been better
+- [12:36.330] for people in the auto industry.
+- [12:37.700] I hear from all my friends, they are elated.
+- [12:40.130] And the worst part is that the people that you really saved
+- [12:43.050] were the car dealers in California
+- [12:44.850] and New York and New Jersey, right?
+- [12:46.320] The President: Yeah, can you believe it?
+- [12:48.020] And they fought me all the way, Mary, right?
+- [12:50.060] They fought me all the way
+- [12:51.300] and now they're saying thank you very much.
+- [12:53.580] But you're doing a great job. Thank you, Bernie.
+- [12:56.180] Scott?
+- [12:57.840] Scott Bessent: Sir, as you always say,
+- [12:59.170] economic security is national security
+- [13:01.600] and a country does not have sovereignty
+- [13:04.170] if we don't have control of our critical minerals,
+- [13:06.250] don't have control of our steel production
+- [13:08.350] and our industrial base. And thanks to the work
+- [13:11.200] of everyone here through your leadership
+- [13:13.800] this was a public private partnership
+- [13:16.650] that only you could have assembled.
+- [13:18.770] And we are taking back our sovereignty
+- [13:21.780] and we are going to have this volt project,
+- [13:25.330] a strategic mineral reserve.
+- [13:27.790] And I can't tell you how innovative and exciting this is
+- [13:32.850] and the level of security
+- [13:34.130] it is going to give us going forward is phenomenal.
+- [13:37.630] The President: And how is your new --
+- [13:39.710] and I think new and improved fed chairman doing?
+- [13:42.000] How is that all going?
+- [13:43.280] Scott Bessent: I'll tell you, he's off to a great start.
+- [13:45.280] So he had so much built in credibility
+- [13:48.580] and as the American people --
+- [13:51.250] smart people, like Representative Hill,
+- [13:55.570] the Senator Marino, they already knew him
+- [13:58.080] and as the American people get to know him,
+- [14:00.300] the important thing is that they will be able
+- [14:02.890] to trust the Federal Reserve to steer the economy for them.
+- [14:07.180] The President: He's going to do great.
+- [14:08.420] Howard, please.
+- [14:09.970] Howard Lutnick: So prior presidents took America
+- [14:14.700] for granted.
+- [14:15.990] They let our critical minerals only be controlled by China.
+- [14:21.100] They let our mining business go to hell
+- [14:24.310] by closing all the mines,
+- [14:25.700] closing our coal plants, while China opened them.
+- [14:29.280] Uh, they let our auto industry --
+- [14:31.570] right, we used to produce 75 percent of our cars in America.
+- [14:34.700] And when Biden left, it was below 50 percent.
+- [14:37.710] We were just letting all of these industries
+- [14:39.980] just be shredded from America.
+- [14:42.410] And thank goodness you are in this chair,
+- [14:45.400] changing it and taking it back.
+- [14:47.400] We are taking back critical minerals.
+- [14:49.040] We are taking back mining.
+- [14:50.730] We're taking back the auto industry.
+- [14:52.320] You're going to watch us take back pharmaceuticals.
+- [14:54.580] We're going to take back semiconductors,
+- [14:56.540] none of this could possibly happen without your leadership.
+- [14:59.650] And it is the most fun to stand back here with your leadership,
+- [15:03.410] because we are changing America back and making it great again.
+- [15:06.860] The President: That's very true.
+- [15:08.200] Anybody would like to say anything else?
+- [15:10.160] You guys okay? Everything all right?
+- [15:14.180] Bruce Westerman: Well, thank you, Mr. President.
+- [15:15.500] The President: That's a good man. Go ahead.
+- [15:17.720] Bruce Westerman: A great day and it couldn't have happened
+- [15:19.490] without your leadership.
+- [15:20.700] And I think people will be talking about this
+- [15:22.490] for a long time,
+- [15:23.990] because we're bringing back American mining
+- [15:26.200] and American manufacturing.
+- [15:27.480] You know, God blessed our country with abundant resources.
+- [15:30.990] Uh, Secretary Burgum talked about the Ambler Road,
+- [15:34.040] 49 critical minerals that can be mined in sufficient quantities
+- [15:37.350] just in that one area.
+- [15:38.550] But from northern Minnesota, Arizona,
+- [15:40.840] my home state of Arkansas,
+- [15:42.800] we are blessed with all these minerals
+- [15:44.620] that are just in the ground.
+- [15:46.210] But when we get them out of the ground
+- [15:48.090] and not only mine them but refine them
+- [15:50.310] and process and manufacture with them,
+- [15:53.370] it'll unleash great wealth for our country
+- [15:55.990] and that'll just build on all the other successes.
+- [15:58.280] So thank you for what you've done. It's a great day.
+- [16:00.600] The President: And how does it feel to be in the Oval Office?
+- [16:02.290] Is that crazy? Were you ever here?
+- [16:03.580] Robert Friedland: No, I've never been here, sir,
+- [16:04.900] but it's fantastic.
+- [16:06.170] The President: Most people haven't,
+- [16:07.390] but Mary's been here a little bit.
+- [16:08.610] Right, but it's a special place. It's never been --
+- [16:12.430] never been so beautiful. Yeah, questions, please.
+- [16:14.640] The Press: Mr. President, speaking of the fed,
+- [16:16.720] would you like to see Jeanine Pirro
+- [16:19.210] drop the investigation into Chairman Powell to help --
+- [16:22.080] Senator Tillis has basically said that,
+- [16:24.360] you know, he's not going to really be working
+- [16:25.960] with your administration to help bring Warsh.
+- [16:27.890] So would you like to see the investigation --
+- [16:29.520] The President: No, she's going to take it
+- [16:31.080] to the end and see.
+- [16:32.430] Look, you're doing a small renovation.
+- [16:34.850] And they've spent almost $4 billion
+- [16:36.790] doing a renovation. I'm doing buildings --
+- [16:40.070] I built a hotel, the Waldorf, it's called.
+- [16:43.100] And I did it for around $200 million.
+- [16:47.710] It's a much bigger job. They're spending almost --
+- [16:49.980] it could be $4 billion.
+- [16:51.690] I'll tell you what, I don't even see an end in sight.
+- [16:54.230] I feel badly for the new fed chairman
+- [16:56.110] because he may not have an office for four years.
+- [16:58.900] Uh, I don't know what these people are doing.
+- [17:01.260] And so it's either gross incompetence
+- [17:03.370] or it's theft of some kind or kickbacks.
+- [17:06.480] I don't know what it is,
+- [17:07.830] but Jeanine Pirro is incredible and she'll figure it out.
+- [17:11.100] But no, you want to take it and just find out what happened,
+- [17:13.500] because we can't go around doing a renovation
+- [17:16.160] of a small, little complex, very small,
+- [17:18.120] a couple of little buildings and spend billions
+- [17:22.080] and billions of dollars on it. Something went wrong.
+- [17:25.040] We have to find out what it was. Yeah, please.
+- [17:26.850] The Press: Mr. President, thank you.
+- [17:28.080] Speaking of renovations, you announced you wanted
+- [17:30.190] to build a new and spectacular entertainment
+- [17:32.970] complex at the Kennedy Center.
+- [17:35.220] Do you plan on tearing it down
+- [17:36.990] and how much will all of the renovations cost?
+- [17:40.680] The President: Probably around $200 million.
+- [17:43.150] And you know, it's funny in real estate and building,
+- [17:46.590] I've done so much of it, I've done so well with it.
+- [17:49.270] You want to sit with something for a little
+- [17:50.920] while before you decide on what you want to do.
+- [17:52.870] And you know, we sat with it, we ran it.
+- [17:56.020] It's in very bad shape. It's rundown.
+- [17:57.760] It's dilapidated. It's sort of dangerous.
+- [18:00.180] Things fall out fall out of ceilings.
+- [18:02.890] You've seen it.
+- [18:04.190] And we had some big events there.
+- [18:06.690] We had a lot of great events there over the last year.
+- [18:09.490] But uh, you can't do any work
+- [18:11.670] because people are coming in and out and you have the workmen.
+- [18:14.320] We have a marble man over there the other day he said,
+- [18:16.950] you know, every time I put down a piece of marble people
+- [18:18.950] are stepping on the marble.
+- [18:20.470] They don't even have time to dry.
+- [18:22.460] And you can't do the same quality job if you close it.
+- [18:25.680] And you know, we're fully financed
+- [18:27.700] and so we're going to close it
+- [18:29.510] and we're going to make it unbelievable,
+- [18:31.240] far better than it ever was and we'll be able to do it properly.
+- [18:34.670] I was thinking maybe there's a way of doing it simultaneously,
+- [18:37.800] but there really isn't.
+- [18:39.360] And we're going to have something that when it opens,
+- [18:41.150] it's going to be brand new, beautiful.
+- [18:43.050] I'm not ripping it down. I'll be using the steel.
+- [18:45.990] So we're using the structure. We're using some of the marble
+- [18:49.170] and some of the marble comes down,
+- [18:51.050] but when it's open, it'll be brand new and really beautiful.
+- [18:53.370] It'll be at the highest level. We can do a much better job
+- [18:57.120] probably in a way, a faster job, in terms -- you know,
+- [18:59.080] because when you do it piecemeal for instance,
+- [19:01.870] they have a play tonight and you can't do anything.
+- [19:04.440] You have to pull out everything
+- [19:06.120] and you can't have stanchions all over the place
+- [19:08.490] and people are walking in to see a play.
+- [19:10.910] So we'll be closing it sometime around July 4th.
+- [19:14.600] It's like we'll close it on July 4th,
+- [19:16.750] in order to do something great for America.
+- [19:18.590] And then we're going to build it --
+- [19:20.110] we have great contractors.
+- [19:21.330] We're going to build it and we'll do it right.
+- [19:23.240] We're using the highest grade marbles,
+- [19:25.920] the highest grade everything and it'll be brand new,
+- [19:29.040] tremendous carriers putting in the air conditioning
+- [19:32.030] or I guess they're a bidder,
+- [19:33.760] but they're probably going to get it, carrier.
+- [19:36.380] We're going to have all brand new air conditioning, heating.
+- [19:39.120] The steel will all be checked out
+- [19:40.600] because it will be fully exposed.
+- [19:42.100] You know, it's been up for a long time.
+- [19:44.330] But as anybody knows, it was in very bad shape,
+- [19:47.260] wasn't kept well before I got there.
+- [19:49.470] So we're going to make it --
+- [19:51.050] I think there won't be anything like it in the country.
+- [19:54.570] Yeah, please.
+- [19:55.860] The Press: About your meeting with President Petro
+- [19:57.450] later this week, um, he's been quite critical of you
+- [20:00.380] since you spoke back in January after the Maduro raid.
+- [20:03.350] What would you like to hear from him tomorrow
+- [20:04.960] in terms of drug trafficking, Venezuela? What are your --
+- [20:06.910] Well, we're going to see.
+- [20:08.120] I mean, he's been very nice over the last month or two.
+- [20:11.200] He was certainly critical before that.
+- [20:12.880] But somehow after the Venezuelan raid, he became very nice.
+- [20:18.770] He changed his attitude very much.
+- [20:20.650] So no, I look forward to seeing him.
+- [20:23.330] He's coming in, we're going to be talking about drugs,
+- [20:25.860] because tremendous amounts of drugs come out of his country.
+- [20:28.490] And I look forward to seeing --
+- [20:29.740] we're going to have a good meeting.
+- [20:31.030] Yeah. Steve.
+- [20:32.490] The Press: Steve Witkoff is going to meet
+- [20:33.710] with the Iranian foreign minister on Friday.
+- [20:35.630] What are you hoping he'll get out of that meeting?
+- [20:37.190] The President: Well, you're going to have --
+- [20:38.930] a lot of things are happening.
+- [20:40.360] You have Iran and you have Russia, Ukraine
+- [20:43.980] and you have the Middle East. We have a lot of things going.
+- [20:46.490] A lot of problems were here for a long time before I got here.
+- [20:51.150] We settled eight wars and I think we're going to --
+- [20:54.340] I think we're doing very well with Ukraine and Russia.
+- [20:56.520] For the first time, I'm saying that.
+- [20:57.920] You know, we're doing --
+- [20:59.120] I think we're going to maybe have some good news.
+- [21:01.200] We're losing -- 25,000 people a month
+- [21:04.250] are being killed in that war, ridiculous war, 25,000.
+- [21:07.840] It was 31,000 last month.
+- [21:10.490] Think of it, young, beautiful kids.
+- [21:13.810] You know, kids of parents, their parents.
+- [21:16.010] It doesn't affect us in one way,
+- [21:18.090] but in another way, it's 25,000 souls
+- [21:20.370] and if I can solve it --
+- [21:22.030] you know, we're not spending money like Biden did.
+- [21:23.710] He gave $350 billion away. I make everyone pay.
+- [21:27.700] And the United Nations, you know,
+- [21:29.420] they're a little bit involved.
+- [21:30.700] But uh, if you look take a look at what's happening,
+- [21:34.950] the countries of Europe are paying us for the weapons.
+- [21:39.410] So we have NATO paying -- we send missiles over there,
+- [21:41.950] they pay us in full. It doesn't cost us $0.10.
+- [21:45.510] And we make money I guess,
+- [21:46.730] but I don't even want to talk about that
+- [21:48.710] because what I really want to do is save those people from --
+- [21:51.480] they lose --
+- [21:52.700] Mary, can you imagine, 25,000 to 30,000 people a month.
+- [21:56.530] That's like a stadium full of people every single month.
+- [22:00.550] And you know, I mean, I was blessed with something
+- [22:03.150] where I can get these things done,
+- [22:04.600] got eight of them done. I thought all eight
+- [22:07.000] were going to be more difficult than this one.
+- [22:08.570] I thought my relationship with President Putin
+- [22:11.580] would give us a, you know, much easier road,
+- [22:13.870] but there's tremendous hatred
+- [22:16.280] between Zelenskyy and Putin, tremendous hatred.
+- [22:19.140] I mean, it's a shame, but it's taken longer than we thought.
+- [22:22.540] I did call up President Putin and he's agreed.
+- [22:25.080] He's put it out to --
+- [22:27.300] they have the same cold wave that we do maybe different
+- [22:29.670] because it's pretty far away, but it's the equivalent.
+- [22:32.600] And Ukraine's a very cold country,
+- [22:34.210] it's much colder than us. It's colder than --
+- [22:36.940] they say, on average, it's Canada or colder.
+- [22:40.600] And on top of that, they have a tremendous cold wave.
+- [22:44.200] And I asked him if he wouldn't shoot for a period of one week,
+- [22:46.780] no missiles going into Kyiv or any other towns
+- [22:49.800] and he's agreed to do it. So it's something.
+- [22:51.550] The Press: What about Iran's nuclear program?
+- [22:53.750] Do you think Mr. Witkoff --
+- [22:55.620] The President: Well, we're talking about that.
+- [22:57.090] We have ships heading to Iran right now,
+- [22:58.750] big ones, biggest and the best.
+- [23:01.310] And we have talks going on with Iran.
+- [23:04.660] We'll see how it all works out.
+- [23:05.910] The Press: Mr. President,
+- [23:08.500] the Pentagon released the National Defense Strategy
+- [23:10.260] last week and it says --
+- [23:11.520] The President: Where are you from with that accent?
+- [23:12.940] The Press: I'm from Europe. The President: Good.
+- [23:14.220] The Press: Lithuania (inaudible) The President: Good.
+- [23:15.880] The Press: National Defense Strategy says
+- [23:17.280] that the US will provide critical
+- [23:18.790] but only limited support for European defense.
+- [23:21.460] What does that mean, limited support?
+- [23:23.310] Can -- will us still provide --
+- [23:24.870] The President: Well, we get along very well with Europe.
+- [23:26.510] I do, because you know, don't forget I got the GDP
+- [23:29.250] lifted from 2 percent to 5 percent.
+- [23:31.060] Nobody thought that could be possible.
+- [23:32.530] And they're giving us a lot of that money.
+- [23:35.340] We have the best military equipment.
+- [23:36.970] We're selling it to NATO.
+- [23:39.190] But I get along very well, but Europe has to be careful
+- [23:41.490] because, you know, there are those that say
+- [23:43.520] it's no longer recognizable between immigration and energy.
+- [23:48.570] You know, it's -- there's so much potential.
+- [23:52.230] In UK, you know, you have the North Sea oil
+- [23:55.920] and they basically closed it down
+- [23:58.290] and then they buy energy from Norway,
+- [23:59.900] which is the North Sea oil. So you figure that one.
+- [24:02.200] And Norway's got trillions of dollars.
+- [24:04.470] They have to be careful.
+- [24:05.810] You need energy and you can't do the windmills
+- [24:08.060] because the windmills --
+- [24:09.330] you're supposed to make money with energy, not lose money.
+- [24:13.000] So, I'm very disappointed.
+- [24:14.450] Look, I love Europe. I love the people of Europe.
+- [24:18.410] And they have to be very careful.
+- [24:20.000] They're at a tipping point.
+- [24:21.470] You have tremendous immigration problems
+- [24:24.180] and you have tremendous energy problems.
+- [24:26.370] It's a bad combination.
+- [24:29.300] The Press: Thank you, Mr. President.
+- [24:30.530] Kristi Noem just announced
+- [24:31.760] that you're deploying body cameras to Minneapolis.
+- [24:34.330] What's your thinking behind this decision?
+- [24:35.850] And do you want to see this --
+- [24:37.060] The President: Well, it wasn't my decision.
+- [24:38.360] I would have -- you know, I leave it to her.
+- [24:41.030] They generally tend to be good for law enforcement
+- [24:43.260] because people can't lie about what's happening.
+- [24:45.740] So it's, generally speaking,
+- [24:47.230] I think 80 percent good for law enforcement.
+- [24:50.020] But if she wants to do that, I'm okay with it.
+- [24:53.500] Remember one thing, we closed the border.
+- [24:55.010] We had a -- I got elected on a disastrous border
+- [24:58.620] and we have nobody coming in through our border anymore.
+- [25:01.650] We had 25 million people coming in for years through our border.
+- [25:06.010] Many of them were murderers and drug dealers and mentally --
+- [25:10.300] those are mentally insane from mental institutions
+- [25:13.490] and insane asylums.
+- [25:15.470] And now we don't have anybody coming in.
+- [25:19.220] For nine months now -- I mean they actually report zero.
+- [25:21.730] We have zero people coming in, which I find hard to believe,
+- [25:24.170] but the Democrats do that report.
+- [25:26.460] They tend to be left-leaning, they do that report.
+- [25:29.570] So I assume it's true and if it's not,
+- [25:31.500] it's a very tiny amount of people.
+- [25:33.920] But we basically have a tremendously perfect,
+- [25:36.390] strong border.
+- [25:38.180] And also, crime levels are at the lowest point
+- [25:41.490] they've been in 125 years.
+- [25:44.000] Since 1900, we have the best numbers,
+- [25:46.850] and that's despite the fact
+- [25:48.860] that we had a lot of criminals and murderers.
+- [25:51.160] 11,888 murderers came in.
+- [25:54.950] And we have the lowest numbers that we've had in 125 years.
+- [25:58.750] So you know, so we -- uh we're doing a good job.
+- [26:01.820] If she wants to do the camera thing, that's OK with me.
+- [26:04.830] The Press: Mr. President, (inaudible)
+- [26:08.110] January, do you think this is due to your efforts?
+- [26:10.280] And do you think blue states should see this as a sign
+- [26:12.180] that they should cooperate with you?
+- [26:14.010] The President: Well, if there was one,
+- [26:15.260] I mean, we haven't had one in a long time.
+- [26:17.180] And DC has become a very safe -- there was an in-house homicide.
+- [26:21.120] It was in-house. It was a --
+- [26:22.870] it was a dispute within a family.
+- [26:25.640] Uh, we have had virtually no crime in DC.
+- [26:29.170] DC is now considered a very safe place
+- [26:31.810] and it should be, it's our nation's capital.
+- [26:34.210] And we sent in the soldiers.
+- [26:35.540] I read the Washington Post this weekend, it was incredible.
+- [26:38.460] They were trying to determine, how come --
+- [26:40.800] How did we get so low numbers, the low numbers in DC
+- [26:43.630] because we have very little crime, if any.
+- [26:46.850] And they talked about everything except for the fact
+- [26:50.150] that we put our National Guard
+- [26:52.380] and great soldiers inside our city.
+- [26:54.800] They didn't want to mention that.
+- [26:56.130] It's -- how dishonest. Because if we didn't do that,
+- [26:58.550] you'd have tremendous crime in DC.
+- [27:01.390] And I get thanked every single day by people
+- [27:03.590] that work in the White House, people, young ladies,
+- [27:06.720] men, they come up, thank you, sir, for making DC so safe.
+- [27:10.340] They walk to work now. A year and a half ago,
+- [27:11.950] they wouldn't have walked to work.
+- [27:13.190] They would have been killed or mugged
+- [27:15.100] or something would have happened to them.
+- [27:17.040] So it's -- you know, it's a great honor,
+- [27:18.750] but you got to read the story in the Washington Post.
+- [27:21.770] They do it, crime is way down in DC.
+- [27:25.870] Now what's the reason for it?
+- [27:27.090] The reason for it is we have very big, strong,
+- [27:31.290] good-looking soldiers standing around.
+- [27:34.170] And I think they make the place look better.
+- [27:36.530] But this is our capital and we have a very safe capital.
+- [27:39.020] We had a very dangerous capital before. Yeah, please.
+- [27:42.080] The Press: Sir, yesterday you said you were speaking
+- [27:44.080] to people about Cuba, to reach an agreement.
+- [27:46.410] What kind of agreement are you hoping to reach?
+- [27:48.140] Is that what the Cuban government --
+- [27:49.540] The President: Well, it's a failed nation now
+- [27:51.090] and they're not getting any money from Venezuela
+- [27:53.860] and they're not getting any money from anywhere.
+- [27:55.840] It's a failed nation.
+- [27:57.060] Mexico is going to cease sending them oil.
+- [28:00.420] So I'd like to take care of the people that are here from --
+- [28:05.160] you know, we have many people that came from Cuba,
+- [28:07.190] that were thrown out of Cuba or that fled Cuba.
+- [28:10.260] They came over in rafts.
+- [28:11.570] They went through shark-infested waters.
+- [28:14.850] I don't know how they did it.
+- [28:16.910] And it was many years ago. Many would like to go back.
+- [28:19.470] Many would like to at least visit their relatives
+- [28:22.380] and I think we're at a pretty close --
+- [28:23.760] but we are dealing with the Cuban leaders right now.
+- [28:27.310] The Press: Mr. President, the Wall Street Journal
+- [28:29.490] reported that the royal family of Abu Dhabi
+- [28:32.360] invested hundreds of millions of dollars
+- [28:34.110] in your World Liberty Financial.
+- [28:36.300] Can you explain why you decided to take that investment?
+- [28:38.540] And was that a transaction --
+- [28:39.830] The President: Well, I don't know about it.
+- [28:41.050] I know that crypto is a big thing and they like it.
+- [28:43.550] A lot of people like it. The people behind me like it.
+- [28:47.370] My sons are handling that. My family is handling it.
+- [28:51.590] And I guess they got investments from different people,
+- [28:54.440] but I'm not -- I have --
+- [28:55.720] all I can handle right now with Iran and with Russia and Ukraine
+- [28:58.900] and with all the things we're doing.
+- [29:00.760] So I don't know -- I don't know exactly,
+- [29:02.470] other than, you know, I'm a big crypto person.
+- [29:05.670] I'm the one that probably helped crypto more than anybody
+- [29:09.140] because I believe in it. And the reason I believe in it
+- [29:12.040] is because if we don't do it, Scott,
+- [29:13.390] I think we can say then China is going to do it. Right?
+- [29:15.040] Scott Bessent: Yes, sir.
+- [29:16.240] The President: If we don't do crypto,
+- [29:17.480] then China's going to do it.
+- [29:18.720] And it's just like AI. We're leading AI by a lot.
+- [29:22.360] And if we weren't leading, China would have led.
+- [29:24.390] You know, they're very capable. They're very good.
+- [29:27.080] Uh, what do you have to say about that?
+- [29:29.080] Scott Bessent: You've made America
+- [29:30.310] the digital asset capital of the world.
+- [29:32.850] We did the Genius Act for stablecoin.
+- [29:35.610] Many of the people standing up here
+- [29:36.830] are working on the clarity bill to
+- [29:38.930] (inaudible) market structure.
+- [29:41.870] And we're bringing us best practices
+- [29:44.550] to an exciting new industry, digital assets, innovation
+- [29:49.300] and it spreads everywhere.
+- [29:51.020] So the US (inaudible)
+- [29:52.260] The President: Do you agree that if we didn't do it,
+- [29:53.610] China and others would, but China would?
+- [29:55.700] Scott Bessent: Oh, China would have had the lead
+- [29:58.240] and then others around the world in terrible jurisdictions
+- [30:02.060] would have been doing it.
+- [30:03.320] The Press: And on Iran, sir,
+- [30:04.540] can you say what your threshold for military action is, what --
+- [30:07.820] The President: Well, I can't tell you what I'm going to do
+- [30:09.430] because right now, you know,
+- [30:11.210] we have a tremendous force going there,
+- [30:14.060] just like we did in Venezuela, even bigger.
+- [30:17.830] And they'll be there soon
+- [30:19.410] and I'd like to see a deal negotiated.
+- [30:22.000] I don't know that that's going to happen,
+- [30:23.620] but I mean if I knew, I wouldn't be able to --
+- [30:26.270] I wouldn't tell you.
+- [30:27.570] I'd be very foolish if I would tell you,
+- [30:29.100] but right now, we're talking to them.
+- [30:31.700] We're talking to Iran.
+- [30:32.940] And if we could work something out, that'd be great.
+- [30:35.110] And if we can't, probably bad things would happen.
+- [30:41.570] Yeah, please.
+- [30:42.940] The Press: On the government shutdown,
+- [30:44.180] do you think there could be a resolution of this issue?
+- [30:45.790] The President: I do.
+- [30:47.000] The Press: And have you gotten assurances
+- [30:48.230] from House Republicans --
+- [30:49.480] The President: Well, I spoke with Speaker Johnson.
+- [30:51.110] I spoke with Leader Thune.
+- [30:53.300] And I think they're pretty close to a resolution.
+- [30:56.350] You know, we were at 5.6 percent GDP
+- [30:59.140] and we lost a point and a half because of the 42-day shutdown.
+- [31:02.820] Think of that, we would have been at seven.
+- [31:04.400] Nobody ever saw a number like seven.
+- [31:06.520] And I think, Howard,
+- [31:07.830] probably a point and a half was the number, right?
+- [31:10.200] Howard Lutnick: Point and a half for the shutdown.
+- [31:11.660] Exactly right.
+- [31:12.890] The President: And it's very bad for our country,
+- [31:15.200] but despite that we have the highest numbers we've ever had.
+- [31:17.790] You know, we're doing well. We're going right through it.
+- [31:20.380] But I will say that I spoke with Senator Schumer numerous times
+- [31:26.030] and I don't think they want to see a shutdown either.
+- [31:28.220] The Press: Mr. President, are you going to sue
+- [31:29.430] Trevor Noah? Last night in a post,
+- [31:30.820] you alluded that something could be coming --
+- [31:32.400] The President: Yeah, well, he said that --
+- [31:33.640] he said that I spent time on Jeffrey's --
+- [31:37.470] Jeffrey Epstein's island.
+- [31:39.260] I didn't -- I mean, he's a lightweight, this guy.
+- [31:40.980] He's a terrible -- I think he's terrible.
+- [31:43.170] I thought he did a terrible job at the Grammys.
+- [31:45.660] I thought the whole Grammys was terrible.
+- [31:47.100] I watched part of it. It's not watchable.
+- [31:49.690] But he was a lousy host.
+- [31:50.970] I'd say not as bad as Jimmy Kimmel, but pretty close.
+- [31:55.000] And no, he made a statement about me and Jeffrey Epstein's.
+- [31:57.840] I have nothing to do with that.
+- [31:59.190] I have nothing to do with Jeffrey Epstein.
+- [32:00.920] And in fact, if you look at the DOJ,
+- [32:03.350] they announced, you know,
+- [32:04.630] they released three million pages.
+- [32:06.960] It's like this is all they're supposed to be doing.
+- [32:09.640] And frankly, the DOJ, I think,
+- [32:11.190] should just say we have other things to do
+- [32:13.460] because that whole thing has turned out --
+- [32:14.960] I mean, other than Bill Clinton and you know,
+- [32:17.060] Bill Gates and lots of people that have --
+- [32:20.050] there are a lot of questions about it, but nothing on me.
+- [32:22.870] But it was even sort of better than that
+- [32:25.020] because they found that Jeffrey Epstein
+- [32:27.380] and the sleazebag writer named Michael Wolff
+- [32:29.280] were conspiring against Donald Trump to lose the election.
+- [32:33.860] So Epstein was conspiring with a writer for me
+- [32:39.700] to lose the election.
+- [32:41.030] So right there, you know that I had nothing to do with this guy.
+- [32:44.600] But um, yeah, it's a terrible thing.
+- [32:48.030] The amount of time that's being wasted --
+- [32:49.590] you know, when Epstein was alive, like 10 years ago,
+- [32:52.500] nobody cared about him, but they're only doing it --
+- [32:55.440] but now it's really hitting back on them
+- [32:57.290] because Bill Clinton is such a big part of it.
+- [32:59.710] The Democrats are pushing it and the problem
+- [33:02.800] is that it's turning out to be the Democrats
+- [33:04.760] that were with and conspired with Epstein.
+- [33:08.820] So I think you're probably going to see
+- [33:10.190] a little pullback from them.
+- [33:11.480] But -- but think of it, they were working together
+- [33:15.280] to try and help me lose the election.
+- [33:18.650] But this is the Oval Office,
+- [33:20.680] so I guess that didn't work out too well.
+- [33:23.030] Okay, one more question.
+- [33:25.350] The Press: Mr. President, do you have an update
+- [33:26.790] on US troop level in Europe?
+- [33:28.390] Are you planning any force reductions?
+- [33:29.920] The President: No, we have a great relationship with Europe.
+- [33:32.150] We have a great relationship with our troops.
+- [33:34.540] You know, the greatest --
+- [33:35.770] one of the best things that I can say is that when I --
+- [33:39.070] if you go back a year and a half ago,
+- [33:40.710] so I'm running for election
+- [33:43.340] they had the worst recruitment numbers
+- [33:45.860] in the history of our country.
+- [33:47.720] Nobody wanted to join the military,
+- [33:49.340] or nobody wanted to join the police.
+- [33:52.550] Nobody wanted to join the fire departments.
+- [33:55.410] We couldn't get anybody to be a proud member of our country.
+- [33:59.760] And now, Doug, as I told you before,
+- [34:02.920] now we have the best recruiting numbers
+- [34:06.140] that we've ever had in our military,
+- [34:07.710] Army, Navy, Air Force, Marines,
+- [34:10.270] Space Force, we love, and Coast Guard.
+- [34:13.230] I love the Space Force. It's doing great.
+- [34:15.280] But now we have waiting lists on -- every --
+- [34:18.090] everybody wants to join.
+- [34:19.420] You know why? Because people are proud of our country
+- [34:21.790] because our country is doing great.
+- [34:23.870] I think Mary can say the same thing.
+- [34:25.490] You had lots of people not working so well and now you --
+- [34:29.700] I mean, you just wish you could get them in faster.
+- [34:32.940] I know that it's hard to get them.
+- [34:34.870] Mary Barra: Yeah, we continue to bring people in
+- [34:36.230] and have training programs.
+- [34:37.470] We're investing in the US workforce.
+- [34:38.670] The President: You're training people.
+- [34:39.900] Mary Barra: Yes.
+- [34:40.140] The President: But two years ago
+- [34:41.400] you didn't see anything like this.
+- [34:43.220] It's amazing what's happened. So we have the number one --
+- [34:46.260] in the history of our country, we've never had more people
+- [34:50.140] that want to join our armed forces than we do right now.
+- [34:53.110] And a year and a half ago, nobody wanted to join.
+- [34:56.350] They were embarrassed by our country.
+- [34:58.440] They were embarrassed by our leadership.
+- [35:01.110] And now they're proud of our country
+- [35:02.440] and they're very proud of our leadership.
+- [35:03.820] And a lot of the leadership is right behind me.
+- [35:05.730] Thank you very much, everybody. Thank you. Thank you.

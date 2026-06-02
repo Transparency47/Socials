@@ -1,0 +1,333 @@
+<!-- source: https://www.youtube.com/watch?v=zfSxzDhqlqI -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: zfSxzDhqlqI -->
+<!-- date_published: 2025-07-28T11:58:01+00:00 -->
+<!-- date_accessed: 2026-06-02T02:46:33.872774+00:00 -->
+
+# Transcript: President Trump Greets the Prime Minister of the United Kingdom
+
+- [00:04.404] [music playing]
+- [00:19.613] The President: How are you?
+- [00:20.973] The Press: [inaudible]
+- [00:25.420] The President: Biggest one ever made.
+- [00:27.220] The Press: What do you hope to accomplish today?
+- [00:30.933] The President: Nice to see you both.
+- [00:35.751] Hi.
+- [00:36.739] [inaudible]
+- [04:16.860] The President: Thank you all very much.
+- [04:18.150] Do you have any questions?
+- [04:19.380] The Press: You're going to come down on steel aluminum?
+- [04:20.690] The President: Excuse me?
+- [04:21.910] The Press: You're going to come down on steel or aluminum
+- [04:23.510] or auto parts or anything?
+- [04:24.820] The President: Well, we're in great shape.
+- [04:26.310] The trade deal was made with UK.
+- [04:29.030] The Prime Minister, they did a great job.
+- [04:30.810] You know, they've been trying to make that deal for 12 years,
+- [04:33.820] and he got it done. So everybody respects it.
+- [04:37.830] There's going to be a lot of jobs for here
+- [04:40.370] and great for America.
+- [04:42.540] And, you know, in terms of even the relationship,
+- [04:45.610] our relationship is unparalleled,
+- [04:47.480] but it keeps it even closer.
+- [04:49.380] You know, when you're able to have a good trade deal,
+- [04:51.780] it keeps it even closer.
+- [04:53.080] The Press: It would have been better
+- [04:54.310] if you could be done on whiskey and tariffs.
+- [04:57.020] The President: Whiskey? Well, we'll talk about that.
+- [04:58.690] I didn't know whiskey was a problem.
+- [05:00.920] I'm not a big whiskey drinker. Maybe I should be when I’m home.
+- [05:04.630] Maybe I'll have some whiskey today.
+- [05:06.170] The Press: We’ve been preparing for certain tariffs before.
+- [05:08.950] The President: Well, we're going to take a look at it.
+- [05:11.070] The Press: What about [inaudible], Mr. President?
+- [05:13.000] The President: We want to make the Prime Minister happy.
+- [05:15.060] We want make, by the way, your first lady,
+- [05:18.200] I would say First Lady.
+- [05:21.530] She's a respected person all over the United States.
+- [05:25.620] I don't know what he's doing, but she's very respected.
+- [05:28.650] As respected as him.
+- [05:29.850] I don't want to say more, I'll get myself in trouble.
+- [05:32.510] But she's a great woman and very highly respected.
+- [05:35.520] The Press: What do you have to say on Gaza today?
+- [05:37.120] What do you hope to accomplish?
+- [05:38.320] The President: Well, we've, as you know,
+- [05:39.570] given a lot of money to Gaza for food and everything else.
+- [05:43.260] A lot of that money is stolen by Hamas,
+- [05:46.450] and a lot of the food is stolen. But we're very much involved
+- [05:49.220] and I think it's one of the main reasons for our meeting today.
+- [05:51.230] The Prime Minister: Yeah, yeah,
+- [05:52.440] we're going to be discussing it today.
+- [05:53.920] The President: We'll be talking about Gaza.
+- [05:55.360] The Press: Can you get cease fire
+- [05:56.580] [inaudible] going then?
+- [05:58.030] The President: Well we want to get it going,
+- [05:59.560] but as you know, with Cambodia, we just did a,
+- [06:02.640] they just announced a very big, a very big, yeah, this peace.
+- [06:09.980] That was going to be a very bad war.
+- [06:12.560] And so we're honored we got involved
+- [06:15.520] and it's essentially settled.
+- [06:17.020] I think they're going to be settling it today.
+- [06:18.480] So it went for a few days.
+- [06:20.060] That was going to go on for years.
+- [06:21.490] That could have gone on for years.
+- [06:22.750] Millions of people could have been killed.
+- [06:24.500] We ended the war and we're very happy about it.
+- [06:27.310] The Press: The Prime Minister
+- [06:28.700] says that recognizing the Palestinian state
+- [06:30.850] will be a concrete step towards a lasting peace.
+- [06:33.540] Do you agree with his position?
+- [06:35.000] The President: Well, I'm not going to take a position.
+- [06:36.500] I don't mind him taking a position,
+- [06:38.520] but I'm looking for getting people fed right now.
+- [06:42.020] I think that's the number one position,
+- [06:44.790] because you have a lot of starving people.
+- [06:46.220] You have people that, you know, the United States recently
+- [06:48.890] just a couple of weeks ago, we gave $60 million.
+- [06:52.010] It's a lot of money. No other nation gave money.
+- [06:55.290] I know the Prime Minister would if he knew about it,
+- [06:57.680] and he really knows about it now
+- [06:59.630] because we're going to be discussing it.
+- [07:01.080] But we gave $60 million. Nobody said even, thank you.
+- [07:04.400] You know, thanks. Somebody should say thank you,
+- [07:08.130] but other nations are going to have to step up.
+- [07:10.880] When I spoke to Ursula yesterday,
+- [07:13.590] she said that the European nations
+- [07:16.050] are going to step up very substantially, too.
+- [07:18.210] The Press: Can you discuss the importance of free speech today?
+- [07:21.440] The President: Well, free speech is very important.
+- [07:23.040] I don't know if you're referring to any place in particular.
+- [07:25.280] Perhaps they are. But --
+- [07:26.560] The Prime Minister: We've had free speech
+- [07:27.790] for a very, very long time here.
+- [07:29.460] So we're very proud about that, we want to protect it.
+- [07:33.780] The Press: What's your advice
+- [07:35.050] on dealing with the small boats crisis in this country?
+- [07:36.650] The President: What’d he say?
+- [07:37.900] The Press: The small boats crisis.
+- [07:38.820] The Prime Minister: It's about the boats
+- [07:40.040] coming over the channel, so we're taking a lot of action
+- [07:41.710] to stop people coming over the channel who shouldn't be here,
+- [07:46.210] stopping them coming in the first place.
+- [07:47.910] The President: Immigration is a big factor.
+- [07:50.270] And I think, frankly, if they're coming from other countries
+- [07:53.460] and you don't know who they are
+- [07:54.700] and are they coming from prisons,
+- [07:57.320] we have them where they came in from prisons.
+- [07:59.690] We're moving them all out. We had a border last June,
+- [08:03.280] just recent, you know, last month.
+- [08:05.990] We had zero people come into the country.
+- [08:08.600] Zero. Other than coming through legal means.
+- [08:11.810] If you're stopping immigration and stopping the wrong people,
+- [08:15.880] I give -- my hats are off to you.
+- [08:17.310] You're doing a -- not a good thing.
+- [08:19.000] You're doing a fantastic thing.
+- [08:20.850] So I know nothing about the boats.
+- [08:22.970] But if the boats are loaded up with bad people,
+- [08:25.460] and they usually are, because, you know,
+- [08:26.940] other countries don't send their best.
+- [08:29.250] They send people that they don't want.
+- [08:31.610] And they're not stupid people.
+- [08:33.230] And they send the people that don't they want.
+- [08:35.520] And I've heard that you've taken
+- [08:36.810] a much stronger stance on immigration?
+- [08:38.070] The Prime Minister: Yeah, we've done a lot of work
+- [08:39.270] stopping them coming,
+- [08:40.470] we just signed an agreement to return them
+- [08:43.550] and we've returned 35,000 in fact
+- [08:45.950] as the first year of this Labor government of people
+- [08:47.780] who shouldn't be in this country,
+- [08:49.060] so we're very pleased that we're getting on with returning people
+- [08:52.080] who've got no right to be here.
+- [08:53.620] The President: That's great. As somebody that loves this --
+- [08:55.320] I love this country. My mother was born in,
+- [08:57.660] as you know, my mother was born in Scotland,
+- [09:00.250] and it's an incredible place, a beautiful place.
+- [09:02.820] And if that be the case, I congratulate you.
+- [09:05.770] That's exactly because, you know,
+- [09:07.750] Europe is going to is a much different place
+- [09:09.680] than it was just five years ago, 10 years ago.
+- [09:13.570] They've got to get their act together.
+- [09:14.920] If they don't, you're not going to have Europe anymore,
+- [09:17.010] as you, know it. And you can't do that.
+- [09:19.400] This is a magnificent part of the world
+- [09:21.950] and you cannot ruin it.
+- [09:23.260] You cannot let people come in here illegally.
+- [09:25.900] And what happens is there will be murderers,
+- [09:28.090] there will drug dealers,
+- [09:29.290] there'll be all sorts of things that other countries don't want.
+- [09:32.820] And they send them to you and they send them to us
+- [09:35.360] and you've got to stop them.
+- [09:36.690] And I hear that you've taken a very strong stand on immigration
+- [09:40.240] and taking a strong stand on immigration is imperative.
+- [09:43.860] The Press: Mr. President, Prime Minister Netanyahu
+- [09:45.710] said there's no starvation in Gaza.
+- [09:47.650] Do you agree with that assessment?
+- [09:48.930] The President: I don't know. I mean, based on television,
+- [09:50.770] I would say not particularly,
+- [09:52.500] because those children look very hungry.
+- [09:54.500] But we're giving a lot of money and a lot of food,
+- [09:57.640] and other nations are now stepping up.
+- [09:59.620] I know that this nation is right here.
+- [10:01.100] The Prime Minister: It's a humanitarian crisis.
+- [10:02.420] The President: Right.
+- [10:03.680] The Prime Minister: It's an absolute catastrophe,
+- [10:04.970] but nobody wants to see that and I think people in Britain
+- [10:08.970] are revolted at seeing what they're seeing on their screens.
+- [10:11.640] So we've got to get to that ceasefire
+- [10:13.720] and thank you Mr. President for leading on that,
+- [10:16.190] and also to just get more and more aid in.
+- [10:18.220] And again, America's done a lot on this,
+- [10:20.590] a lot of countries have done a lot.
+- [10:21.940] We're now working with Jordan on getting direct aid drops in,
+- [10:26.480] but this is a desperate situation.
+- [10:28.840] The Press: Do you think Israel has done all it can do
+- [10:30.990] to avoid civilian casualties in Gaza?
+- [10:33.100] The President: Well, I think nobody's done
+- [10:36.050] anything great over there,
+- [10:37.530] the whole place is a mess. It'll get straightened out,
+- [10:41.070] but it's a mess, they have to get food and safety right now.
+- [10:46.130] And ultimately, look, Hamas did a horrible thing,
+- [10:50.500] and they paid a big price, but Hamas did a horrible thing,
+- [10:53.280] but I always said when you get down to the last 20 or 10 --
+- [10:56.670] they're down to 20. We got a lot of hostages out.
+- [10:59.680] And you helped us, by the way. But we got a lot of hostages
+- [11:03.380] out over the last six months that I've been in.
+- [11:05.640] I've in an office for six months now.
+- [11:08.320] And these hostages have been,
+- [11:10.900] I mean, many of them have come to the Oval Office
+- [11:13.180] and they've thanked me so profusely.
+- [11:14.770] I said, you don't have to thank me.
+- [11:16.430] I did what I have to do.
+- [11:17.910] But I always said, when you get down to the final 20,
+- [11:20.620] they won't release them because that's like their shield.
+- [11:24.330] Very unfair, and so something's going to have to be done.
+- [11:27.690] They were really unwilling to talk.
+- [11:29.750] But I've said that.
+- [11:31.110] You'll get down to the final 10 or 20.
+- [11:33.260] It turns out to be 20.
+- [11:34.480] I thought that would be the number.
+- [11:35.780] I said, they're not going to be dealing with us.
+- [11:38.320] And you know, many of the hostages are now dead.
+- [11:40.700] You know that.
+- [11:42.110] And parents come up to me.
+- [11:43.870] A woman came up to two weeks ago.
+- [11:46.460] She just wants her son back. And I said how is he doing?
+- [11:49.660] My son's dead, sir, but he's with them.
+- [11:52.530] We want the body. She wanted the body of this young boy,
+- [11:55.670] of her young, beautiful son,
+- [11:57.290] just as much as if he were alive.
+- [11:59.270] It was just as important. There was no difference.
+- [12:02.010] And it's a very -- it's a tragic situation, frankly.
+- [12:07.260] But we got a lot out, and now possibly the fight
+- [12:12.170] will have to be a little bit different.
+- [12:13.500] But they have totally changed now.
+- [12:15.280] They don't want to give hostages.
+- [12:18.550] Very unfair. You have 20 living people.
+- [12:21.800] In this case, living.
+- [12:23.010] You have many dead people, too, that they --
+- [12:25.250] The Prime Minister: Going on a long time as well.
+- [12:26.720] The President: Yeah. They have 20 living people.
+- [12:29.430] And I told Israel, I told Bibi that you have to now
+- [12:35.280] maybe do it a different way.
+- [12:36.990] The Press: Do you think that ceasefire is even possible,
+- [12:38.880] Mr. President?
+- [12:40.100] The President: Yeah, ceasefire's possible,
+- [12:41.580] but you have get it, you have end it.
+- [12:44.120] You're talking about with Israel,
+- [12:45.760] and you're talking about there.
+- [12:47.190] Because we have many ceasefires going on.
+- [12:49.100] The whole world is -- if I weren't around,
+- [12:52.610] you'd have right now six major wars going on.
+- [12:55.050] India would be fighting with Pakistan.
+- [12:58.430] You see what we just did yesterday with two nations
+- [13:01.010] that we're trading with. And during the trade, I said,
+- [13:03.800] I'm not going to do any trade deal
+- [13:05.100] unless you guys settle your differences.
+- [13:07.390] We got it settled in 24 hours.
+- [13:09.170] I mean, they just announced it was settled,
+- [13:11.590] which is a tremendous thing.
+- [13:13.170] But Serbia, Kosovo is another one.
+- [13:16.340] We have many hotspots that were at war.
+- [13:20.590] I think a very big one was India and Pakistan,
+- [13:23.060] because that's, you're talking about two nuclear nations.
+- [13:25.790] That was a very big one.
+- [13:27.020] But now we get help from the UK, the Prime Minister's help.
+- [13:30.980] We have cases where we specifically need the help?
+- [13:33.910] Because somebody comes from here that you're aware of,
+- [13:37.700] and you know, when you come from a country, you can do things,
+- [13:40.110] and well I call up the Prime Minister.
+- [13:41.620] And all of a sudden, he's able to do things.
+- [13:43.990] Other, true also with other presidents and prime ministers.
+- [13:47.890] But we've it -- nobody's ever done what we've done.
+- [13:51.490] We have six different major --
+- [13:54.950] if you take a look at Rwanda and the Congo,
+- [13:58.850] Republic of the Congo.
+- [14:00.540] They've been fighting for 31 years, 8 million people dead.
+- [14:05.780] It was going on.
+- [14:07.070] Nobody could go to that part of Africa.
+- [14:08.940] They were being killed.
+- [14:10.160] To even walk there, you're being killed with machetes.
+- [14:14.340] And it was a violent situation.
+- [14:16.550] And I was able to, they liked Trump.
+- [14:19.810] They wanted to make a trade deal with Trump.
+- [14:21.520] They wanted us to take their rare earth.
+- [14:24.140] They want to give us their rare Earth.
+- [14:25.700] And I got to know the leader of the Congo.
+- [14:28.770] I got know both of them indirectly.
+- [14:31.610] And I called him. I said, let's end the war.
+- [14:33.950] I don't want anything until you end the war.
+- [14:35.540] And we ended the war, as you know,
+- [14:37.350] the foreign ministers came up two weeks ago,
+- [14:39.670] and the leaders are going to be coming
+- [14:41.760] very shortly to Washington, Rwanda, and Congo.
+- [14:46.110] I mean, that's another one that we did.
+- [14:47.540] So, we've done a lot. It's an honor to do it.
+- [14:51.530] It's not hard for me to do. And I use, not in all cases,
+- [14:55.480] but I use a combination of knowing them a little bit
+- [14:58.940] or, in some cases, knowing them a lot.
+- [15:00.650] I knew the leaders of Pakistan and India.
+- [15:04.590] I know them very well.
+- [15:06.270] And they're in the midst of a trade deal,
+- [15:07.940] and yet they're talking about nuclear weapons.
+- [15:09.790] And I say, this is crazy.
+- [15:11.300] So I said, I'm not doing a trade deal with you guys.
+- [15:13.340] And they want the trade deal. They need it.
+- [15:15.250] I'm doing a trade deal with you if you're going to have war.
+- [15:18.310] And that's a war that spreads to other countries.
+- [15:20.260] You'll get nuclear dust. We'll all get nuclear dust.
+- [15:23.010] When they start using nuclear weapons,
+- [15:25.750] that stuff blows all over the place,
+- [15:27.370] and really bad things happen.
+- [15:29.140] So maybe we're being a little selfish
+- [15:31.420] when we want to save wars, too. But we stopped a lot of wars,
+- [15:35.390] and it's a great honor to have done it.
+- [15:37.900] Thank you all very much.
+- [15:39.670] We're going to be talking inside about, very much about Gaza
+- [15:43.370] and the humanitarian aspects of Gaza.
+- [15:45.960] The Press: Mr. President, what about Russia and Ukraine?
+- [15:47.800] You're talking about ceasefire. What’s the latest there?
+- [15:49.570] The President: I would have said five times
+- [15:51.040] we would have had a deal.
+- [15:52.440] I've spoken to President Putin a lot.
+- [15:55.200] I got along with him very well.
+- [15:58.020] But five times, and every time --
+- [16:00.090] four times maybe, but we've had discussions.
+- [16:04.510] You and I have had discussions,
+- [16:06.200] we thought we had that settled numerous times.
+- [16:09.190] And then President Putin goes out
+- [16:10.980] and starts launching rockets into some city like Kiev.
+- [16:15.640] And kills a lot of people in a nursing home or whatever.
+- [16:18.230] You have bodies lying all over the street.
+- [16:21.070] And I say, that's not the way to do it.
+- [16:23.590] So we'll see what happens with that.
+- [16:24.980] I'm very disappointed.
+- [16:26.980] I'm disappointed in President Putin.
+- [16:29.680] Very disappointed in him. So we're going to have to look.
+- [16:32.960] And I'm going to reduce that 50 days
+- [16:34.580] that I gave him to a lesser number,
+- [16:36.200] because I think I already know the answer
+- [16:38.320] to what's going to happen, okay?
+- [16:40.020] Thank you very much, everybody. We'll see you later.
+- [16:43.610] The Prime Minister: Thank you.

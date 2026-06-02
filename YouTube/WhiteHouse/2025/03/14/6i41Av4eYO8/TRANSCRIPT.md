@@ -1,0 +1,1434 @@
+<!-- source: https://www.youtube.com/watch?v=6i41Av4eYO8 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 6i41Av4eYO8 -->
+<!-- date_published: 2025-03-14T20:48:34+00:00 -->
+<!-- date_accessed: 2026-06-02T02:52:51.303607+00:00 -->
+
+# Transcript: President Trump Delivers Remarks at the Department of Justice
+
+- [00:00.620] Male Speaker: Please welcome Attorney General Pamela Bondi.
+- [00:14.020] Ms. Bondi: Hi, please be seated.
+- [00:18.090] Welcome to the Department of Justice and I love our team.
+- [00:24.430] Todd Blanche, Emil Bove, Kash Patel, soon to be
+- [00:29.440] Terry Cole, Gaddy Serralta, thank you all.
+- [00:34.130] We are going to fight to keep America safe again.
+- [00:43.380] President Trump has prioritized
+- [00:45.970] tackling our nation's fentanyl crisis
+- [00:48.600] and he has taken decisive action to fight it.
+- [00:55.890] I want to thank our U.S. attorneys who are here today,
+- [01:00.180] our state attorneys general from all around the country.
+- [01:04.520] I see all my friends out there, my colleagues,
+- [01:07.710] who will work to prosecute violent criminals,
+- [01:11.680] get the drugs off our streets, get the gangs off our streets,
+- [01:16.380] and get the illegal aliens out of our country.
+- [01:23.960] And thank you to all of our federal, state
+- [01:27.080] and local law enforcement officers
+- [01:29.420] who are here today who keep us safe every day and night.
+- [01:33.370] Thank you to all of you.
+- [01:39.400] Today we have with us one of the most effective drug
+- [01:43.740] seizing teams in the entire country.
+- [01:46.760] I said, I wish I told them earlier,
+- [01:48.240] take them and put them in every major city in the country.
+- [01:51.280] Since January, they have saved millions of lives
+- [01:54.590] taking drugs and illegal weapons
+- [01:56.910] off the streets of Boston and Todd,
+- [01:59.290] they ask us for more U.S. attorneys.
+- [02:01.220] I told them we're on it. Could you all please stand?
+- [02:05.290] This is Boston's DEA strike team.
+- [02:12.940] Thank you all.
+- [02:23.000] Thank you.
+- [02:31.030] We also have two angel moms here today.
+- [02:34.440] Anne lost her son. He was 15.
+- [02:37.540] He thought he was taking a Percocet at school
+- [02:41.870] and it was laced with fentanyl and he was beautiful.
+- [02:47.200] And I'm so sorry, but all of these people in this room,
+- [02:50.490] thanks to the directive of Donald Trump
+- [02:53.250] are going to keep our streets safe and protect our kids.
+- [02:58.330] Thank you for being here.
+- [03:06.760] And Tammy's beautiful daughter Kayla
+- [03:09.180] was murdered violently by an illegal alien
+- [03:12.860] from El Salvador who should not have been in our country.
+- [03:16.400] And thanks to Donald Trump,
+- [03:18.450] they will all be deported very soon.
+- [03:21.450] Thanks to his work, Homeland Security and I
+- [03:24.100] say the unsung hero, Stephen Miller.
+- [03:32.490] On stage, we have this is 180 kilograms.
+- [03:38.040] It represents not real of fentanyl.
+- [03:40.300] Okay? So this is one…
+- [03:41.820] This represents one kilo of fentanyl.
+- [03:44.860] In its pure form, this one kilo can kill half a million people.
+- [03:51.370] The 180 there in pure form could kill 90 million people.
+- [04:00.200] That is the population of California, Texas, and Florida.
+- [04:04.530] That's what we're dealing with in our country.
+- [04:07.610] That's why angel moms go around the country.
+- [04:10.110] That's why Donald Trump has taken such a hard stance
+- [04:14.160] against cartels, securing our borders,
+- [04:16.890] getting these gangs and drugs out of our country.
+- [04:20.710] But look at that. That can kill three states in its pure form.
+- [04:25.320] That should terrify everyone.
+- [04:29.840] I see our senators made it. Our senators, thank you.
+- [04:35.260] However, taking the drugs off the streets
+- [04:37.780] is only half the battle.
+- [04:41.030] President Trump will, has secured our borders
+- [04:46.430] and will continue to fight the cartels
+- [04:50.210] throughout this country,
+- [04:51.970] deport them all or lock them up for the rest of their lives.
+- [04:57.220] Thanks to our prosecutors around this country where they belong.
+- [05:01.400] Under the last administration, cartels, criminals,
+- [05:05.350] they freely walked in and out of our country with impunity,
+- [05:10.990] no longer.
+- [05:12.540] Under Donald Trump, they live in fear
+- [05:15.000] and they better live in fear
+- [05:16.430] because we're coming after all of them.
+- [05:21.270] I am so proud to have a team with Emil and Todd
+- [05:28.930] and all of our great team
+- [05:32.440] and we all work for the greatest president
+- [05:34.770] in the history of our country.
+- [05:36.700] We are so proud to work at the directive of Donald Trump.
+- [05:43.720] He will never stop fighting for us
+- [05:47.240] and we will never stop fighting for him and for our country.
+- [05:51.920] It is an honor to welcome to the Department of Justice,
+- [05:57.310] the 45th and the 47th president…
+- [06:35.310] The President: Well, thank you very much.
+- [06:37.700] Thank you. Thank you, Pam very much.
+- [06:39.850] What a job you're doing.
+- [06:41.490] And it's a true honor to be with you today.
+- [06:45.940] This is a storied hall, if there ever was one.
+- [06:50.060] And based on the crowd, I think we broke the all-time record.
+- [06:53.660] But as we begin a proud new chapter
+- [06:55.720] in the Chronicles of American Justice,
+- [06:59.090] this really is something we're turning the page
+- [07:01.480] on four long years of corruption, weaponization
+- [07:05.120] and surrender to violent criminals.
+- [07:07.080] And we are restoring fair, equal, and impartial justice
+- [07:11.580] under the constitutional rule of law.
+- [07:15.840] And you're the people that are doing it,
+- [07:17.720] very, very proud of all of you. Under the Trump administration,
+- [07:22.070] the DOJ and the FBI will once again
+- [07:24.370] become the premier crime-fighting agencies
+- [07:27.570] on the face of the earth.
+- [07:29.880] People ask me, what am I going to do
+- [07:32.230] about law enforcement all the time?
+- [07:34.030] The fake news back there.
+- [07:35.330] They're asking me that all the time.
+- [07:36.900] What am I going to do and when are you going to do it?
+- [07:40.070] And I answer them by saying, "I've already done most of it
+- [07:43.240] by appointing the people that I've appointed."
+- [07:47.240] They're sitting right here. They've done most of it.
+- [07:50.400] I don't do it. They do it, right, Pam?
+- [07:52.730] I think, oh, you are so tough. They just don't know yet.
+- [07:57.550] Let me begin by congratulating the incredible people
+- [08:00.820] who will lead these historic reforms.
+- [08:03.970] And we start with somebody that you just saw, Pam Bondi.
+- [08:07.370] She's extraordinary and I've known her very well
+- [08:10.750] for a long time.
+- [08:17.600] I watched her for a long time in Florida,
+- [08:19.790] for years in Florida and highly experienced.
+- [08:22.660] She seems so young, but she's highly experienced,
+- [08:24.710] that I can tell you.
+- [08:25.920] She was a phenomenal attorney general in Florida
+- [08:29.030] and she's going to do a really amazing job.
+- [08:31.700] Also, our new director of the FBI, Kash Patel.
+- [08:35.830] Kash, right.
+- [08:41.840] A man that I'm very proud of, I've known him and Emil
+- [08:45.140] for a long time under tremendous pressure.
+- [08:48.140] I saw these guys under some of the most corrupt judges.
+- [08:52.290] It's not even imaginable how corrupt they were.
+- [08:55.610] And these guys never wilted, they never…
+- [08:58.590] They were not shy, they fought,
+- [09:01.110] they weren't afraid and they were brilliant.
+- [09:04.090] Deputy Attorney General Todd Blanche
+- [09:06.630] and Principal Associate Deputy Attorney Emil Bove
+- [09:10.950] and thank you both very much. Great people.
+- [09:19.520] They're great people.
+- [09:21.780] The chief of staff who's so highly respected, Chad Maisel.
+- [09:27.430] Thank you, Chad. Chad. Thank you, Chad.
+- [09:34.090] Our next Administrator of the DEA, Terry Cole.
+- [09:39.200] Terry. Thank you Terry. Good luck. Going to do great.
+- [09:44.330] Senior Counsel to the Assistant Attorney General
+- [09:47.130] for a Civil Rights.
+- [09:48.380] Boy, I've been watching him on television last couple of weeks.
+- [09:51.970] He is really a tough one and he's a great one, Leo Terrell.
+- [09:55.470] You watch how good he's going to be.
+- [09:57.860] He's going to be so good. Thank you, Leo. Great guy.
+- [10:04.070] Assistant Attorney General of the Antitrust Division,
+- [10:07.100] who's got an incredible reputation.
+- [10:09.110] She'll do very, very well, Gail Slater.
+- [10:12.520] Thank you, Gail. Good luck. Great job.
+- [10:18.220] Now we're joined by many,
+- [10:19.430] many great friends and terrific friends
+- [10:21.610] and I won't be able to…
+- [10:23.320] Too many to name, but some that I just see very quickly,
+- [10:27.090] General Flynn, thank you for being here.
+- [10:33.180] There's a man who went through hell by the way,
+- [10:35.080] and he shouldn't have. He's a patriot.
+- [10:37.300] He went through hell. We're also pleased to be joined
+- [10:40.410] by Senator Chuck Grassley and House Majority Whip.
+- [10:44.620] [inaudible], Chuck.
+- [10:48.210] House Majority Whip Tom Emmer. Tom, great job you're doing.
+- [10:54.920] Representative Guy Reschenthaler.
+- [10:58.100] One of the toughest names to say,
+- [10:59.970] but I got it perfectly I think.
+- [11:03.920] And State Attorney General Ken Paxton,
+- [11:06.060] thank you very much. Thank you very much.
+- [11:11.490] Somebody who was with us early on
+- [11:14.950] and she's really become a big star
+- [11:16.690] and very popular, Brenna Bird.
+- [11:18.640] Thank you, Brenna. Thank you very much.
+- [11:23.600] Steve Marshall, Alan Wilson, James Uthmeier, Chris Carr,
+- [11:31.150] Dave Sunday, Marty Jackley, as well as White House
+- [11:34.950] Deputy Chief of Staff Stephen Miller.
+- [11:37.570] What a man Stephen is, become a big star, right,
+- [11:41.270] Emmer? Steve Miller.
+- [11:45.030] Steve has been something very special.
+- [11:47.950] For generations, the Federal Department of Justice
+- [11:50.590] was one of America's most revered institutions.
+- [11:53.560] The men and women of the DOJ brought down the mafia,
+- [11:57.230] hunted down the killers, kingpins and spies,
+- [12:00.080] tracked down terrorists and traitors
+- [12:02.820] and tore down corrupt political machines
+- [12:05.440] all across America.
+- [12:07.440] This department commanded the respect
+- [12:10.000] and admiration of the entire world.
+- [12:12.680] And with Pam and Kash and all of the people
+- [12:14.950] I introduced and far more, big numbers
+- [12:17.640] and all of you sitting back there,
+- [12:19.480] I recognize so many of you.
+- [12:21.840] But with you leading the way,
+- [12:23.200] it'll soon be the most admired and most respected of all.
+- [12:26.880] You're going to be more respected
+- [12:28.180] and I really believe that there's also
+- [12:30.620] a lot of things to solve, a lot of problems to solve.
+- [12:34.320] But that's going to put you in the upper tier
+- [12:36.880] and maybe the top tier.
+- [12:38.210] And I believe that's going to happen.
+- [12:39.920] I'm so proud of the people in this room.
+- [12:42.530] But first, we must be honest about the lies and abuses
+- [12:46.240] that have occurred within these walls.
+- [12:48.940] Unfortunately, in recent years,
+- [12:50.510] a corrupt group of hacks and radicals
+- [12:52.680] within the ranks of the American government obliterated the trust
+- [12:57.510] and goodwill built up over generations.
+- [13:01.260] They weaponized the vast powers of our intelligence
+- [13:04.350] and law enforcement agencies to try and thwart
+- [13:07.150] the will of the American people.
+- [13:09.910] You remember the 51 Intelligence agents that said as an example
+- [13:13.800] that Hunter Biden's laptop from hell came from Russia
+- [13:18.290] when they knew it came right from his bedroom.
+- [13:21.090] They knew that, it was a big lie and they knew it so well.
+- [13:24.850] They spied on my campaign,
+- [13:27.080] launched one hoax and disinformation operation
+- [13:30.710] after another,
+- [13:32.180] broke the law on a colossal scale,
+- [13:34.570] persecuted my family, staff, and supporters.
+- [13:38.150] Raided my home, Mar-a-Lago,
+- [13:40.960] and did everything within their power
+- [13:42.930] to prevent me from becoming the President of the United States.
+- [13:47.580] With the help of radicals like Marc Elias, Mark Pomerantz.
+- [13:53.460] And these are people
+- [13:54.700] that nobody's ever seen anything like it.
+- [13:58.390] So many others, but these are people that are bad people,
+- [14:03.080] really bad people. They tried to turn America
+- [14:06.700] into a corrupt, communist and Third World country.
+- [14:10.550] But in the end, the thugs failed and the truth won.
+- [14:14.090] Freedom won. Justice won. Democracy won.
+- [14:16.740] And above all, the American people won.
+- [14:20.420] There could be no more heinous betrayal of American values
+- [14:24.070] than to use the law to terrorize the innocent
+- [14:27.560] and reward the wicked.
+- [14:29.270] And that's what they were doing at a level
+- [14:30.920] that's never been seen before.
+- [14:33.520] And it's exactly what you saw with Joe Biden,
+- [14:37.890] Merrick Garland and their cronies
+- [14:40.450] to do the building of the last four years, they ripped…
+- [14:44.720] What they've ripped down is incalculable,
+- [14:49.130] but what you're going to build up is likewise something
+- [14:51.660] that will be breaking all sorts of records.
+- [14:54.850] They set loose violent criminals while targeting
+- [14:57.350] patriotic parents at school board meetings.
+- [14:59.920] They drop charges against Antifa and Hamas supporters
+- [15:04.850] while labeling traditional Catholics
+- [15:07.450] as domestic terrorists.
+- [15:08.840] The Catholics, we did very well with the Catholic votes.
+- [15:12.010] So I want to thank them for that.
+- [15:14.310] They imported, they really did record numbers.
+- [15:20.530] I would say, what's with the Catholics?
+- [15:22.760] They're really after the Catholics.
+- [15:24.190] So I don't know, [inaudible]
+- [15:25.600] a lot of people, maybe they didn't even know why.
+- [15:29.820] They imported illegal alien murderers,
+- [15:31.800] drug dealers and child predators from all over the world
+- [15:34.910] to come into our country while putting elderly Christians
+- [15:37.780] and pro-life activists on trial for singing hymns
+- [15:41.370] and for saying prayers. They went to jail for that.
+- [15:44.960] Our predecessors turned this Department of Justice
+- [15:47.720] into the Department of Injustice.
+- [15:50.470] But I stand before you today to declare that those days are over
+- [15:54.500] and they are never going to come back.
+- [15:56.820] They're never coming back.
+- [16:06.430] So now, as the chief law enforcement officer
+- [16:09.430] in our country,
+- [16:11.330] I will insist upon and demand full
+- [16:13.670] and complete accountability for the wrongs
+- [16:16.020] and abuses that have occurred.
+- [16:18.290] The American people have given us a mandate,
+- [16:20.660] a mandate like few people thought possible.
+- [16:23.620] We won every single swing state.
+- [16:26.010] We won the popular vote by millions and millions of people.
+- [16:31.310] We won districts, 2,750.
+- [16:36.030] Think of that 2,750 districts compared to 505.
+- [16:43.540] So we want it at levels that have…
+- [16:46.060] I don't believe ever seen before.
+- [16:47.880] That's the one where you see the map of the United States
+- [16:50.860] and it's all red, red for Republican,
+- [16:53.510] not for Communist. Red for Republican.
+- [16:57.080] They would like it to turn red for Communists,
+- [16:59.220] but it didn't work out that way.
+- [17:01.530] The American people have given us a mandate
+- [17:04.040] and really just a far-reaching investigation
+- [17:09.220] is what they are demanding into the corruption of our system.
+- [17:12.520] And that's exactly, I'm sure what Pam and Kash
+- [17:15.900] and everyone else mentioned here
+- [17:18.320] and not mentioned is going to be doing.
+- [17:20.990] We will expel the rogue actors
+- [17:22.830] and corrupt forces from our government.
+- [17:24.920] We will expose and very much expose their egregious crimes
+- [17:30.190] and severe misconduct of which was levels.
+- [17:33.480] You've never seen anything like it.
+- [17:35.460] It's going to be legendary.
+- [17:37.370] It's going to also be legendary for the people
+- [17:39.650] that are able to seek it out and bring justice.
+- [17:44.040] We will restore the scales of justice in America
+- [17:46.900] and we will ensure that such abuses
+- [17:48.980] never happen again in our country.
+- [17:52.190] And that's why on day one I signed an executive order
+- [17:54.860] banning all government censorship
+- [17:56.790] and directing the removal of every bureaucrat
+- [18:00.220] who conspired to attack free speech
+- [18:02.600] and many other things and values in America.
+- [18:06.630] My administration stripped the security clearances
+- [18:09.590] of the disgraced intelligence agents
+- [18:11.730] who lied about Hunter Biden's laptop from hell.
+- [18:14.960] We revoked the clearances of deranged Jack Smith,
+- [18:19.330] Alvin Bragg, Letitia James, and the crooked law firms
+- [18:23.110] that aided their partisan persecutions,
+- [18:26.120] and I went through it. These are state and city courts
+- [18:32.620] and the corruption is unbelievable.
+- [18:36.460] We also terminated the clearances of the Biden
+- [18:39.310] crime family and Joe Biden himself,
+- [18:41.640] he didn't deserve it.
+- [18:42.890] In fact, he was essentially found guilty,
+- [18:45.400] but they said he was incompetent
+- [18:47.300] and therefore let's not find him guilty, I guess.
+- [18:50.910] Nobody knows what that ruling was,
+- [18:52.930] but I didn't want any part of it.
+- [18:54.720] I think I would've rather been found guilty
+- [18:56.690] than what they found with him.
+- [18:59.330] They said he didn't know what the hell he was doing
+- [19:02.520] and therefore he's let him go.
+- [19:05.050] I said, "You know, I'd rather be convicted, Pam."
+- [19:07.280] I think that that was not…
+- [19:09.320] I said, "Please convict me. Don't say that."
+- [19:12.190] I pardoned hundreds of political prisoners
+- [19:14.450] who had been grossly mistreated.
+- [19:16.920] We removed the senior FBI officials
+- [19:19.700] who misdirected resources
+- [19:21.580] to send SWAT teams after grandmothers and J6 hostages,
+- [19:26.810] and it was a great honor for me to fire,
+- [19:29.270] I will tell you this, a great honor to fire James Comey,
+- [19:33.560] a great, great honor.
+- [19:34.800] That was nothing. There was no better day.
+- [19:36.930] A lot of people said, "Oh, that's too bad you did that."
+- [19:40.140] And they said, "That's going to be…"
+- [19:41.980] And you know what? A year later they said,
+- [19:44.820] "That actually saved the administration
+- [19:46.890] because the level of corrupt things that we learned
+- [19:49.340] after that turned out to be
+- [19:50.790] that they were doing in fact really bad things.
+- [19:53.990] He was a terrible person,
+- [19:55.800] did terrible things and persecuted people
+- [19:58.600] and all in the guise of being an angel,
+- [20:02.190] but he wasn't an angel."
+- [20:03.490] We created a brand new DOJ task force
+- [20:06.680] and anti-Christian bias and under Director Patel,
+- [20:10.610] we're getting the FBI agents out of the headquarters
+- [20:14.020] in Washington DC and back on the streets
+- [20:16.560] in pursuit of dangerous criminals
+- [20:18.310] where they belong and where they want to be.
+- [20:21.030] And you have that big FBI building
+- [20:23.530] and it's a very big building,
+- [20:25.460] and they were going to build an FBI headquarters
+- [20:28.360] three hours away in Maryland, a liberal state,
+- [20:32.280] but that has no bearing on what I'm about to say,
+- [20:34.810] but we're going to stop it, not going to let that happen.
+- [20:37.300] We're going to build another big FBI building right where it is,
+- [20:40.230] which would've been the right place
+- [20:41.800] because the FBI and the DOJ have to be near each other.
+- [20:44.130] You can't every…
+- [20:45.390] That's one thing I did learn from this persecution.
+- [20:47.620] The FBI and the DOJ work together.
+- [20:50.470] Now, in my case, they work together for bad purposes,
+- [20:53.160] but they do. They were always together.
+- [20:55.130] So how can you have one that's three hours away?
+- [20:57.290] But one thing I said to,
+- [20:59.000] "Kash, well, we're going to get a great building built.
+- [21:02.180] It's going to be a magnificent building."
+- [21:03.970] He said, "Sir, we don't need that kind of room."
+- [21:05.710] I said, "What do you mean?"
+- [21:06.910] He said, "I'm just going to take a old Department of Commerce
+- [21:09.390] building
+- [21:10.600] that's about 25% the size, and that's what I need.
+- [21:14.260] We're going to have the best staff that you've ever seen,
+- [21:16.170] and that's what I need. It's in a nice location,
+- [21:18.380] but I don't need that big building.
+- [21:20.320] Why don't you just sell the site to somebody
+- [21:23.100] and we're going to be very happy."
+- [21:24.700] And they want to have far fewer people,
+- [21:27.620] but we also want to have them in DC.
+- [21:30.440] And if for no other reason, we like having law enforcement
+- [21:34.120] walking the streets of our capitol
+- [21:36.790] because when the bad guys are out there
+- [21:38.980] and they see there's an FBI agent,
+- [21:40.740] that's the ultimate in law enforcement
+- [21:43.990] and they're not going to be acting so bad.
+- [21:45.820] We're cleaning up our city,
+- [21:47.060] we're cleaning up this great capitol,
+- [21:48.990] and we're not going to have crime,
+- [21:50.500] and we're not going to stand for crime
+- [21:52.430] and we're going to take the graffiti down
+- [21:54.720] and we're already taking the tents down
+- [21:56.780] and we're working with the administration,
+- [21:59.300] and if the administration can't do the job,
+- [22:01.610] we're going to have to take it back
+- [22:04.170] and run it through the federal government,
+- [22:05.830] but we hope the administration's going to be able.
+- [22:07.940] So far, they've been doing very well.
+- [22:09.410] The mayor's been doing a good job.
+- [22:11.340] We said there are tents galore
+- [22:14.640] right opposite the State Department.
+- [22:16.290] They have to come down and they took them down right away,
+- [22:19.460] and so far so good. But we want to have a capital
+- [22:23.420] that can be the talk of the world.
+- [22:25.460] When Prime Minister Modi of India,
+- [22:27.880] when the president of France and all of these people,
+- [22:31.960] the head of, prime minister of United Kingdom,
+- [22:35.560] they all came to see me over the last week and a half
+- [22:39.940] and when they come in, I had the route run.
+- [22:44.530] I didn't want have them see tents.
+- [22:46.170] I didn't want to have them see graffiti.
+- [22:47.900] I didn't want to have them see broken barriers
+- [22:50.140] and potholes in the roads and we had it looking beautiful.
+- [22:53.910] Then, we're going to do that for the city
+- [22:55.720] and we're going to have a crime free capital.
+- [22:57.960] When people come here,
+- [22:59.240] they're not going to be mugged or shot or raped.
+- [23:02.360] They're going to have a crime free capital again,
+- [23:05.030] it's going to be cleaner and better
+- [23:06.590] and safer than it ever was,
+- [23:07.890] and it's not going to take us too long.
+- [23:10.310] There's a new phenomena that is taking place with these violent,
+- [23:14.660] vicious lawyers that we have all over.
+- [23:16.910] They play the ref. You know what playing the ref is?
+- [23:19.160] Like the great Bobby Knight basketball coach.
+- [23:21.580] He'd scream and scream at the ref. He'd scream.
+- [23:25.060] I watched, by the way, I love Bobby
+- [23:26.750] Knight because he endorsed me and having
+- [23:30.020] Bobby Knight's endorsement in Indiana
+- [23:31.970] was an extremely good thing.
+- [23:33.390] A friend of mine said, I was running in Indiana at the time.
+- [23:36.640] This was early on, 2016, and I was doing great,
+- [23:41.620] but a friend came up and said, "You know Bobby Knight?"
+- [23:44.240] I said, "No, I don't, but I hear he was a tough cookie."
+- [23:48.200] He said, "Not only tough, he was beyond tough,
+- [23:50.660] but he's the most popular guy you can imagine."
+- [23:53.510] It turned out he wanted to endorse me.
+- [23:55.610] He called me about two years before he said,
+- [23:58.440] "Sir, I'd like to endorse you."
+- [23:59.830] I said, " Is this really Bobby Knight?"
+- [24:01.180] He said, "It's me." I could tell it was Bobby Knight.
+- [24:04.040] He had been known for throwing the chair across the court
+- [24:06.620] and slapping a player. Can't do things like that,
+- [24:10.880] and the man that came in fired him.
+- [24:12.460] He was a new administrator for the college.
+- [24:14.460] That guy didn't last very long.
+- [24:16.930] They were like 14 and 0, and they fired Coach Knight.
+- [24:21.130] That was not good, but he had a little chip on his shoulder,
+- [24:23.910] but he loved Trump and he came in and he said,
+- [24:26.230] "I'd love to endorse you."
+- [24:27.440] He said, "If you ever run, please call me."
+- [24:29.140] So he said, "You know Bobby Knight?"
+- [24:30.400] I said, "Well, I don't know,
+- [24:31.690] but he called me couple of years ago."
+- [24:34.320] It was an amazing phenomenon. I took his number
+- [24:37.100] and on each side of my desk in New York,
+- [24:39.510] I had stacks of paper, nice and neat,
+- [24:43.930] but about two feet high each.
+- [24:46.080] And I said, "I wrote his number down
+- [24:47.700] and I put it here two years ago,"
+- [24:49.880] and I said, "Let me see if I can find it."
+- [24:51.360] It was almost like a miracle.
+- [24:53.150] Had other miracles that happened too.
+- [24:54.720] My ear is still throbbing. That was a miracle.
+- [25:00.120] That was a miracle also, wasn't it?
+- [25:03.100] That was a miracle also. Thank you.
+- [25:09.040] Thank you, Leo. Thank you. Thank you
+- [25:14.530] [inaudible]. That was a miracle.
+- [25:19.120] Anyway, okay, that's very nice. Thank you.
+- [25:23.790] But so he said, "Bobby Knight."
+- [25:25.790] So I said, "I put his name down and I wrote it down.
+- [25:29.020] It's in one of these stacks." I lift it up.
+- [25:31.850] There would have to be 2,000, 3,000 pages in each stack.
+- [25:35.750] I lifted it up. The first one, had no idea,
+- [25:38.990] and there was his name on the little card,
+- [25:40.580] Bobby Knight with his number. It was like incredible.
+- [25:43.460] I tell that story all the time,
+- [25:45.370] and I called him and dialed a number.
+- [25:48.370] He said, "I've been waiting for you to call."
+- [25:52.210] And he went out and he made a speech for me
+- [25:55.120] in a packed arena in Indiana, and it was over, it was over.
+- [25:59.130] He was a tough guy. He actually went a little far,
+- [26:05.820] if you remember, he made a great speech
+- [26:07.700] because he was actually a motivational type guy
+- [26:09.790] to put it mildly.
+- [26:11.700] But he left the stage and then I'm talking
+- [26:14.220] and he walks back onto the stage.
+- [26:15.910] I said, "Uh-oh, this is trouble. Why is he coming back?"
+- [26:18.940] He was a big guy too. Why is he coming back?
+- [26:21.130] He said, "May I say a few more words?"
+- [26:22.720] I said, "Yeah, go ahead, Bobby. Say a few more words."
+- [26:24.680] A little different.
+- [26:26.370] And he said, "Let me tell you something about this guy, Trump.
+- [26:29.660] This guy, if he has to,
+- [26:31.360] will use the nuclear weapons that we have.
+- [26:34.970] He has no fear.
+- [26:36.260] He's going to use, and that's the kind of guy…"
+- [26:38.090] And he walked off the stage.
+- [26:39.320] I said, "I think I'm in big trouble, Pam."
+- [26:43.070] That was not good, but it worked out okay.
+- [26:45.230] In the meantime, we won the state in a landslide
+- [26:49.680] and it was great,
+- [26:51.040] and it was just an amazing period of time.
+- [26:53.890] But this is the most amazing period of time.
+- [26:55.890] I think this is more amazing.
+- [26:57.680] What's taken place is more amazing.
+- [27:00.480] I think it's more consequential.
+- [27:02.680] And if we do the job, one of the big media outlets
+- [27:07.550] said what we did was the most consequential election
+- [27:10.740] in the last 129 years.
+- [27:12.460] Well, if we do the job that we're all capable of doing,
+- [27:15.450] I think it's going to prove to be that and then some,
+- [27:19.880] and that's what we want to do. We have a real big shot
+- [27:23.490] at making this country so great, so great.
+- [27:26.750] What happened to our country was so sad.
+- [27:29.850] What they've done in four years to our country with the borders,
+- [27:32.620] with Afghanistan, the embarrassing,
+- [27:35.180] most embarrassing period of time,
+- [27:38.230] allowing the Russian situation.
+- [27:40.420] It was never going to happen with Ukraine,
+- [27:43.320] allowing October 7th to happen would've never happened
+- [27:46.150] because under me, Iran was totally broke.
+- [27:47.770] They had no money.
+- [27:48.970] They weren't given any money to Hamas or Hezbollah,
+- [27:51.580] was totally broke, but allowing inflation.
+- [27:55.300] Look at what inflation's done to people, been so devastating.
+- [27:58.060] And now, you see that by the way,
+- [27:59.450] price of eggs is down 35% of the last week
+- [28:02.380] and a half, we're doing a good job.
+- [28:04.600] Brooke is doing a good job. Brooke Rollins and everybody.
+- [28:09.460] And inflation's down, interest rates are down.
+- [28:12.760] Gasoline has come down,
+- [28:14.210] down to a level that we haven't seen in a long time.
+- [28:17.800] All things that we wanted to do
+- [28:19.310] because then everything else is going to be coming down.
+- [28:21.530] We want it to come down.
+- [28:22.800] We want bacon to come down and groceries.
+- [28:26.490] A term I used to use, it's an old-fashioned term,
+- [28:28.920] but I used to use it on the campaign trail.
+- [28:32.380] Those last 90 perfect beautiful days, we just hit it.
+- [28:35.730] And I want to thank Susie,
+- [28:37.080] you have done a great job, Susie Wiles.
+- [28:40.860] Great job, Susie.
+- [28:45.450] A big magazine just named her the most powerful woman
+- [28:48.430] in the world, and that's okay with me.
+- [28:50.280] She is the most powerful woman. You think about it, John, right?
+- [28:54.400] The most powerful woman in the world, but she's great.
+- [28:57.370] And we had a great 90 days.
+- [28:59.090] It was a perfect 90 days and it was a great result.
+- [29:02.890] But we want to put that result to good use
+- [29:05.320] by doing a phenomenal job.
+- [29:07.020] And I want to tell you that Todd and Emil know this very well.
+- [29:12.590] We had an amazing judge in Florida,
+- [29:17.080] and her name is Aileen Cannon, and I didn't know her.
+- [29:22.370] I still don't know her.
+- [29:23.700] I don't believe I ever spoke to her even during the trial,
+- [29:27.540] but I did appoint her, federal judge.
+- [29:32.060] And these fake lawyers, these horrible human beings
+- [29:34.710] were hitting her so hard public relations-wise,
+- [29:37.930] they were playing the ref. I don't think it's legal.
+- [29:41.760] I don't think it's legal. They might as well go out
+- [29:44.190] and just shout it in a courthouse.
+- [29:47.610] They were saying, "She was slow. She wasn't smart.
+- [29:52.070] She was totally biased. She loved Trump."
+- [29:57.090] I didn't know her other than I saw her
+- [30:00.910] the couple of days that I was in court,
+- [30:02.670] and I thought her decorum was amazing.
+- [30:05.600] Anything bad they could say though,
+- [30:07.190] they were saying about her,
+- [30:08.420] it was whatever they could say bad
+- [30:11.050] about a human being all made up,
+- [30:13.410] because actually she was brilliant.
+- [30:14.940] She moved quickly.
+- [30:16.920] She was the absolute model of what a judge should be,
+- [30:22.150] and she was strong and tough.
+- [30:25.360] And how do you get them to stop if you're a judge?
+- [30:27.870] How do you get them to stop with the playing the ref?
+- [30:31.030] Bobby Knight would play the ref.
+- [30:32.580] That's why I brought up the Bobby Knight story.
+- [30:34.700] He would play the ref. He'd scream at the ref.
+- [30:36.800] He'd scream so hard. Oh, boy. It was terrible actually.
+- [30:41.260] And the people would come up,
+- [30:43.260] his assistant coaches would come up to play.
+- [30:45.450] "Coach, coach, don't do that. Don't do it."
+- [30:48.450] He said, "He's not going to change his tune, coach.
+- [30:51.520] He called it, he's not changing."
+- [30:52.990] "I don't care." And he screamed.
+- [30:55.160] That's when he threw the chair. He starts going crazy.
+- [30:57.710] And he said, "No, he's not going to change this time,
+- [30:59.920] but he's going to change for the next play."
+- [31:02.150] And sure as hell, he did.
+- [31:03.530] Bobby, by the way, had the last undefeated team in basketball
+- [31:07.170] and relatively speaking, he had a team.
+- [31:09.590] He always had a team. He never had that.
+- [31:11.840] He had a couple of great players, obviously,
+- [31:13.870] some top NBA players, but very few relatively.
+- [31:16.540] He had a team,
+- [31:17.750] but he won the national championship three times,
+- [31:21.030] but he had the last undefeated team in basketball.
+- [31:24.480] And he would play the ref and he would scream at him.
+- [31:27.500] He knew exactly what he was doing.
+- [31:28.880] They're doing the same thing.
+- [31:30.330] They said, "No, he's not going to change now,
+- [31:31.920] but he's going to change for the next one."
+- [31:33.290] That's what he wanted to do. He wanted to scare the hell,
+- [31:35.720] they wanted to scare the hell out of the judges,
+- [31:38.000] and they do it.
+- [31:40.400] And how do you stop it if you're a judge?
+- [31:42.730] Because you want to go home, you have a family of children,
+- [31:45.090] and the New York Times
+- [31:46.300] will write whatever these people say
+- [31:48.810] and the Washington Post and the Wall Street
+- [31:51.150] Journal and MSDNC and the fake news, CNN, and ABC,
+- [31:57.100] CBS, and NBC, and they'll write whatever they say.
+- [32:00.730] And what do you do to get rid of it?
+- [32:03.090] You convict Trump.
+- [32:04.640] All you have to do is be really tough on him
+- [32:07.450] and ultimately convict him, and they leave you alone.
+- [32:10.800] It's totally illegal what they do.
+- [32:12.710] I just hope you can all watch for it.
+- [32:14.480] But it's totally illegal.
+- [32:16.230] And it was so unfair what they were doing to her,
+- [32:19.150] but they do it all the time with judges.
+- [32:20.990] But in her case, she was very courageous
+- [32:24.670] and it only made her angry.
+- [32:27.390] When you say, it just made her angry.
+- [32:29.860] She didn't like it.
+- [32:31.750] A lot of them say, "Oh, please don't say that about me.
+- [32:34.990] My family. What's my husband going to say?
+- [32:36.920] What's my wife going to say or my kids?
+- [32:39.710] Please don't say that."
+- [32:41.670] And it had absolutely no impact on her in the case against me,
+- [32:46.010] which was a case, I will not use a bad word,
+- [32:50.560] I promised my wife,
+- [32:53.190] I would never use a bad word, so just a little bad.
+- [32:56.190] The case against me was bullshit.
+- [32:59.970] And she correctly dismissed it.
+- [33:08.550] Look at Emil, he's looking, he's, that's interesting.
+- [33:12.180] But these two guys were warriors.
+- [33:14.010] You got a warrior here.
+- [33:15.230] You got two warriors, I can tell you that.
+- [33:17.080] You got a whole bunch of them.
+- [33:20.440] And they wouldn't quit.
+- [33:22.320] They wouldn't take no for an answer, they just wouldn't quit.
+- [33:24.970] These two people right up here, some others that are involved
+- [33:28.610] with it indirectly, and what the lawyers do
+- [33:32.610] is they're doing it to the Supreme Court justices
+- [33:35.210] hoping that they'll be overcome
+- [33:38.660] by the horrible things they say about them.
+- [33:41.070] They say things about Supreme Court justices
+- [33:43.320] and judges that are just horrible.
+- [33:44.850] They're playing the referee.
+- [33:46.100] Remember the way they treated Justice Thomas and Justice Alito
+- [33:50.520] and Justice Kavanaugh, Justice Gorsuch, Chief
+- [33:53.810] Justice Roberts get treated unbelievably badly,
+- [33:58.370] and they're hoping that they can sway them to go along
+- [34:02.260] because again, what do they do?
+- [34:04.620] They're humans.
+- [34:06.010] It would be wonderful if everybody was just a perfect
+- [34:08.500] computer machine, but they're not.
+- [34:11.370] They're humans and they don't want to be accused of many,
+- [34:15.360] many things, including gross incompetence.
+- [34:17.560] They don't like it and they don't want it.
+- [34:19.860] There's not much they can do about it.
+- [34:21.320] They're in a position
+- [34:22.540] they can't really fight back really very well.
+- [34:26.060] And so, what they do is sometimes they get weak,
+- [34:29.480] I would say, a majority maybe of the times.
+- [34:31.850] That's why I'm so impressed with Judge Cannon in Florida,
+- [34:35.800] how strong she was, how she held up.
+- [34:37.700] It actually made her more resolute
+- [34:40.230] than anything I've seen.
+- [34:41.950] I mean, it was amazing because they were hitting her so hard.
+- [34:44.640] It was so sad to watch this,
+- [34:46.910] but it's sad what they do to other judges.
+- [34:48.690] It's very sad what they do to the Supreme Court.
+- [34:51.640] And a lot of the judges that I had, if you look at them,
+- [34:57.500] they take tremendous abuse in the New York Times
+- [35:00.140] and the Washington Post, all of the different networks,
+- [35:03.300] they take such abuse.
+- [35:05.160] And honestly, very simply, they're afraid of bad publicity.
+- [35:09.730] They don't want bad publicity,
+- [35:12.200] and it's truly interference, in my opinion.
+- [35:15.620] And it should be illegal,
+- [35:16.860] and it probably is illegal in some form.
+- [35:20.010] There's no difference than speaking to a judge
+- [35:23.230] or shouting to a judge
+- [35:25.530] or doing whatever you have to do in a courthouse.
+- [35:27.600] They're doing it behind the back.
+- [35:29.040] They're usually doing it anonymously.
+- [35:31.000] They're saying anonymously off the record,
+- [35:32.750] the judge is no good,
+- [35:33.970] but everybody knows where it's coming from
+- [35:36.690] and it's totally coordinated.
+- [35:38.170] It's a campaign, and it's by the same scum
+- [35:41.350] that you have been dealing with for years like guys
+- [35:44.030] like Andrew Weissmann, deranged Jack Smith.
+- [35:47.290] There's a guy named Norm Eisen. I don't know what he looks like.
+- [35:49.940] His name is Norm Eisen of CREW.
+- [35:52.060] He's been after me for nine years.
+- [35:54.700] Now CREW is a charitable organization.
+- [35:58.360] And the reason I'm saying this, Todd, is,
+- [36:00.250] I'm only going to get one chance to say this,
+- [36:02.860] but these are bad people.
+- [36:04.680] I don't know who he is, I don't know what he looks like,
+- [36:07.320] but everything I read is Norm Eisen of CREW,
+- [36:11.240] and CREW's a charitable organization,
+- [36:13.930] and that's a political thing.
+- [36:16.850] His sole life is to get Donald Trump
+- [36:20.100] and he's been vicious and violent and he's trying,
+- [36:24.430] and he probably had pretty good success over the years,
+- [36:27.880] but with me, how did he do?
+- [36:29.590] I think I'm president. Am I here because I'm president?
+- [36:32.990] We had to take all of that abuse even during the trials.
+- [36:35.760] We had to take tremendous abuse, like these wonderful guys.
+- [36:39.070] They're not legitimate people there.
+- [36:40.950] They're horrible people, they're scum,
+- [36:43.640] and you have to know that. You're going to have these cases
+- [36:48.930] where you can't allow yourselves to be deflected.
+- [36:53.600] You just can't let it happen.
+- [36:55.130] You have so many, you have such a higher calling.
+- [36:58.330] I believe that CNN and MSDNC, who literally write 97.6% bad
+- [37:05.830] about me are political arms of the Democrat party.
+- [37:09.270] In my opinion, they're really corrupt and they're illegal.
+- [37:13.450] What they do is illegal.
+- [37:15.430] It makes no difference how big a victory I had,
+- [37:17.690] I can have the biggest victory in history.
+- [37:20.360] It makes no difference what kind of a failure the other side has.
+- [37:26.400] These people are going to go after me.
+- [37:28.190] I said it during the other night,
+- [37:29.670] during the big speech on Tuesday night.
+- [37:32.950] I said about Democrats and I don't like that.
+- [37:35.900] I have great respect, by the way,
+- [37:37.140] for what Schumer did today. He went out and he said
+- [37:39.310] that I'm going to have to vote with the Republicans
+- [37:41.690] because it's the right thing to do.
+- [37:42.960] I couldn't believe what I heard,
+- [37:45.020] but I think he's going to get some credit for it.
+- [37:47.250] I think, let's see what happens tonight
+- [37:49.060] with the big vote as it comes.
+- [37:52.600] These networks and these newspapers
+- [37:55.940] are really no different
+- [37:57.270] than a highly paid political operative and it has to stop.
+- [38:01.610] It has to be illegal.
+- [38:03.080] It's influencing judges and it's really changing law
+- [38:10.010] and it just cannot be legal. I don't believe it's legal
+- [38:14.000] and they do it in total coordination
+- [38:16.550] with each other and everything we do.
+- [38:18.790] We're restoring law, we're order,
+- [38:20.820] and restoring public safety in America.
+- [38:23.220] That's what we want to do.
+- [38:25.320] We're bringing honor and integrity and accountability
+- [38:28.090] back to the highest levels of the FBI, DOJ,
+- [38:31.140] and throughout our government.
+- [38:33.600] We're bringing our country back faster
+- [38:35.610] than anyone ever thought possible.
+- [38:37.530] We're working so hard at doing it
+- [38:39.240] and we want fairness in the courts.
+- [38:41.450] The courts are a big factor.
+- [38:42.900] The elections which were totally rigged are a big factor.
+- [38:46.910] We have to have honest elections,
+- [38:48.370] we have to have borders,
+- [38:50.140] and we have to have courts and law that's fair
+- [38:54.280] or we're not going to have a country.
+- [38:55.600] Crooked Joe Biden got us into a real mess with Russia
+- [38:59.670] and everything else he did frankly,
+- [39:01.610] but he didn't know about it and he, generally speaking,
+- [39:04.370] signed it with auto pen so how would he know?
+- [39:07.030] That auto pen is a big deal. I don't know. Who's doing this?
+- [39:12.140] When my people come up, Will and all of the people,
+- [39:15.110] Steve, they come up, sir, this is an executive order.
+- [39:18.430] They explain it to me and 90% of the time I sign it.
+- [39:21.880] 99% of the time I say do it, but they come up and I sign it.
+- [39:27.530] You don't use auto pen.
+- [39:30.370] Number one, it's disrespectful to the office.
+- [39:32.430] Number two, maybe it's not even valid
+- [39:34.260] because who's getting him to sign?
+- [39:36.570] He had no idea what the hell he was doing.
+- [39:38.200] If he did,
+- [39:39.430] all of these bad things wouldn't be happening right now.
+- [39:44.170] We're going to get you back into a great position
+- [39:46.370] and we've already started. They say that we had
+- [39:48.940] the most successful first month of presidency,
+- [39:52.800] not in a long time, but it's still a lot.
+- [39:54.900] It's like if you're a golfer,
+- [39:56.280] sinking a three-foot putt on the first hole
+- [39:58.820] gives you confidence to sink something on the second hole.
+- [40:01.400] But if you miss that first putt, you don't like to have to putt
+- [40:05.300] on the second hole and the third hole.
+- [40:07.010] It could be a very bad experience.
+- [40:08.540] It's nice to get that first month
+- [40:10.830] and now we have more than a month,
+- [40:12.240] now we have a month and a half,
+- [40:14.390] and it's going really, really well.
+- [40:16.090] I can tell you, a little secret,
+- [40:18.100] although the cameras are blazing back there
+- [40:19.900] so it's not that much. I think we're doing well.
+- [40:22.580] As you have been hearing about Ukraine.
+- [40:24.610] I think we're doing now well with Russia.
+- [40:28.800] We're speaking with President Putin.
+- [40:30.450] We want to get the war over.
+- [40:33.830] Not only have we spent maybe $350 billion to Europe…
+- [40:38.160] Think of that. $350 billion to $100 billion,
+- [40:41.180] and yet we're across the ocean far away,
+- [40:43.160] so it shouldn't have been that way,
+- [40:44.590] but Biden let that happen too.
+- [40:47.900] We're getting a deal where we're going to get that back,
+- [40:50.220] but much more importantly are the lives
+- [40:52.140] that we're talking about.
+- [40:54.910] On average, 2000 young people are being killed
+- [40:57.540] every single day. Now, they're not from here,
+- [41:00.060] they're from nowhere close to here,
+- [41:01.910] but they're young people.
+- [41:04.080] They're human beings and they have parents.
+- [41:07.520] They have sisters and brothers, the mothers and fathers,
+- [41:10.490] the friends and the families
+- [41:12.200] and the towns where they grew up.
+- [41:16.100] They're losing on average 2000,
+- [41:19.240] even 2,500 a week and I want to get it stopped.
+- [41:25.390] We've had some very good calls today with Russia
+- [41:30.460] and with Ukraine. They've agreed for a ceasefire.
+- [41:32.980] If we can get it with Russia and it's not easy.
+- [41:36.860] It's a tough one, but I think we're doing it.
+- [41:40.690] As the Secretary General said yesterday of NATO,
+- [41:44.640] a terrific guy,
+- [41:45.880] he said, without Trump, we wouldn't be talking about it.
+- [41:48.240] It would just go on for years and millions more people,
+- [41:51.290] millions of people have been killed,
+- [41:52.710] but millions more people would be killed.
+- [41:55.260] He said it was a great honor.
+- [41:56.550] Without me, it would just keep going on.
+- [41:59.780] We're looking for the ceasefire now with Russia,
+- [42:04.030] and we've had some very good talks about it.
+- [42:06.100] We've had some very good responses.
+- [42:09.910] I can tell you that there was a case
+- [42:12.240] where there would've been no war if I were president,
+- [42:16.070] and it's just 100% would not have happened,
+- [42:18.470] would never have happened.
+- [42:19.700] I used to speak to President Putin a lot about it.
+- [42:22.590] I said, don't do it. Don't do it.
+- [42:24.740] I won't tell you what the consequence was.
+- [42:26.520] I won't tell you what, but if he believed
+- [42:28.560] even 5% of what I said, then he would say,
+- [42:30.870] I'm not going to do it and I think he did.
+- [42:33.560] We had a good relationship
+- [42:35.100] and we had a professional relationship
+- [42:37.130] and his respect for this country
+- [42:41.360] and I think we've had some very good results.
+- [42:45.910] I haven't been able to say that to anybody else.
+- [42:47.750] I haven't wanted to say it until just before I came here.
+- [42:50.390] I got some pretty good news, but we have to see what happens.
+- [42:53.460] It's still a long way to go. The fighting is unbelievable.
+- [42:58.000] Russia has a large group of Ukrainian soldiers,
+- [43:02.150] as we speak, surrounded and in grave danger.
+- [43:06.250] They've been able to surround them.
+- [43:07.840] They're in grave danger.
+- [43:09.060] Biden should have never let this war happen.
+- [43:11.850] First of all, you don't want to pick on somebody
+- [43:15.060] that's a lot larger than you, even with the money.
+- [43:18.570] There's a lot of money that we gave them
+- [43:20.160] and a lot of equipment.
+- [43:21.430] We make the best military equipment in the world
+- [43:23.480] but even with all of that, it's unbelievable.
+- [43:27.470] Right now you have a lot of Ukrainian soldiers
+- [43:29.610] that are encircled and in grave danger
+- [43:32.050] and I've asked them not to kill those soldiers please.
+- [43:34.650] Not to kill those soldiers. We don't want them killed.
+- [43:38.680] It's such a shame to see what's happened.
+- [43:41.510] A thing like that would've never happened.
+- [43:44.190] Inflation would've never happened.
+- [43:46.240] October 7th would've never happened.
+- [43:50.470] Iran had no money. They were totally broke.
+- [43:52.800] Think of it. They had no money to give to anybody.
+- [43:55.670] They were totally broke and within a short period of time,
+- [43:58.960] as soon as Biden came in,
+- [44:00.260] he took out all the sanctions in China
+- [44:03.000] and everybody else that wasn't buying oil from Iran
+- [44:05.380] was buying it at levels that they never spent before
+- [44:08.880] and it was a sad thing.
+- [44:13.370] If you look at Afghanistan,
+- [44:15.280] that was probably what got Putin started
+- [44:17.420] because when he looked at how horribly we looked,
+- [44:21.400] I think the most embarrassing day,
+- [44:23.040] not that we got out because we were getting out,
+- [44:24.820] I would've been out faster than them.
+- [44:26.260] I was the one that got it down to the right level.
+- [44:28.870] But we would've kept Bagram, the big air force base.
+- [44:31.130] We would've kept it. Right now, China occupies Bagram.
+- [44:33.860] The reason we would've kept it
+- [44:35.270] is because they were one hour away from where China has
+- [44:39.400] and builds its nuclear missiles and weapons.
+- [44:43.610] They gave that up at the dark of night.
+- [44:46.250] They left the lights on and they left the dogs behind by the way.
+- [44:49.770] A lot of people say, what about all the dogs?
+- [44:51.610] They had a lot of dogs and they left the dogs behind
+- [44:54.620] and what a shame. What a shame.
+- [44:58.030] The way we got out, I think it was the most humiliating time
+- [45:00.560] in the history of our country.
+- [45:01.870] The way it happened, not that we were getting out
+- [45:05.170] because we wanted to get out,
+- [45:06.530] but we would've gotten out with dignity and strength
+- [45:09.990] and what a difference a rigged and crooked election
+- [45:12.170] had on our country when you think about it.
+- [45:14.120] The people who did this to us should go to jail,
+- [45:18.950] they should go to jail.
+- [45:21.030] I just want to say, God bless America
+- [45:24.280] because we have to say, God bless.
+- [45:26.440] We're lucky we're still here, frankly.
+- [45:29.310] This whole thing could lead, I think we have it.
+- [45:32.640] I think we have it,
+- [45:34.700] but this could lead to World War Three very easily.
+- [45:40.400] Could very easily lead to World War Three.
+- [45:42.320] But I think we're in pretty good shape,
+- [45:44.520] a lot better than we were before we got involved.
+- [45:48.050] That I can tell you.
+- [45:49.340] It was going, that was heading into World War Three territory.
+- [45:52.910] That would've been a war like no other
+- [45:54.410] because of nuclear weapons and other types of weapons
+- [45:57.060] that you don't even want to know about.
+- [46:00.570] But as many of you do know,
+- [46:02.100] well, we're focused on persecuting.
+- [46:06.320] These people we're really focused on persecuting
+- [46:09.160] Republicans.
+- [46:10.410] The last administration presided over the worst increase
+- [46:14.440] in violent crime in our country in many, many decades.
+- [46:17.890] We had levels of violence and crime,
+- [46:20.690] and a lot of it had to do
+- [46:21.910] with the illegal immigrants that came in.
+- [46:24.000] Remember when I used to complain about it?
+- [46:26.080] Because I knew how tough they were, how mean they were.
+- [46:29.150] They said, no, no. People that come into our country
+- [46:31.530] are all wonderful people.
+- [46:32.950] No, they're not wonderful. These are stone-cold killers.
+- [46:38.070] They make our killers look nice by comparison.
+- [46:41.840] They make our killers look nice. These are rough,
+- [46:44.060] tough people with the tattoos all over their face.
+- [46:46.610] Historically speaking,
+- [46:47.910] I don't want to discriminate against anybody,
+- [46:49.880] but historically speaking, they're not going to be the head
+- [46:52.480] of any major bank that we know of.
+- [46:54.990] These are rough people.
+- [46:56.210] These are rough, rough killer people
+- [46:58.370] and they allowed them in by the millions in major cities
+- [47:02.020] like New York, Chicago, and Washington.
+- [47:04.230] Mothers can't walk their children to the park
+- [47:06.700] without fear of being shot or killed or raped or anything.
+- [47:12.970] Women can't ride the subway without worrying that a hoodlum
+- [47:16.050] will shove them onto the train tracks.
+- [47:19.950] In New York, it's happened twice in the last couple of weeks.
+- [47:22.690] They're standing there, perfect Wall Street gentleman
+- [47:26.130] in one case and another person who was a worker,
+- [47:28.990] good worker, electrician. Gets pushed into a train
+- [47:34.200] going 45 miles an hour just prior to the train,
+- [47:37.310] not stopping, going to go through that.
+- [47:38.820] I know the stations very well. I used to take the subway.
+- [47:41.930] I used to feel safe. When I was young, I'd go to,
+- [47:44.110] my parents would drop me off at the subway.
+- [47:45.950] I'd take the subway to my school.
+- [47:47.500] Can you believe it? Today, they wouldn't be doing that.
+- [47:51.100] We want to get a country back
+- [47:53.080] maybe where you can do that again, Pam.
+- [47:55.730] It's so sad to see what's taking place.
+- [47:58.570] Under the Biden regime,
+- [48:00.490] average monthly homicides increased by 14%.
+- [48:04.440] Property crime rose tremendously.
+- [48:06.480] Violent crime went up at least 37% that they know of.
+- [48:10.140] Rape soared by 42%. Car theft rose by 48%,
+- [48:15.010] and robbery surged to 63 to 100 percent.
+- [48:19.010] They don't even know what the number is.
+- [48:21.910] I have no higher mission as President of the United States
+- [48:25.890] than to end this killing and stop this law-breaking
+- [48:28.460] and to making America safe again.
+- [48:31.060] That's what you're all about in this room.
+- [48:33.500] We want to protect Americans and we protect everybody
+- [48:36.820] that's in our country, American or not American.
+- [48:39.220] We want to have a safe and proud country.
+- [48:41.680] We're joined today by dozens of police officers,
+- [48:44.200] sheriffs and sheriff's deputies from all across the country.
+- [48:48.630] My message to these law enforcement heroes is simple.
+- [48:51.550] With me in the White House, you once again have a president
+- [48:54.310] who will always have your back, will always have your back.
+- [49:02.480] Thank you. Thank you.
+- [49:12.110] That's a lot of good-looking people.
+- [49:13.820] I will tell you I feel safe. I'm glad you're in the room.
+- [49:16.330] I feel even safer. It's a lot of great people.
+- [49:19.770] On day one, I signed an executive order
+- [49:21.850] directing Attorney General
+- [49:23.270] to ensure that anyone who murders a police officer,
+- [49:27.440] immediately with as fast a trial as we could have,
+- [49:30.720] gets the death penalty.
+- [49:41.930] Last month, I fired all the radical left pro-crime
+- [49:45.170] US attorneys appointed by Joe Biden.
+- [49:47.730] There were so many that were bad,
+- [49:49.120] and I know there were some that were probably very good,
+- [49:52.440] but there were so many that were so bad and so evil, so corrupt.
+- [49:56.850] Instead of having Marxist prosecutors
+- [49:59.370] who want to put police officers in handcuffs
+- [50:02.030] and go after a police officer rather than a criminal,
+- [50:05.370] I appointed patriotic tough-on-crime warriors
+- [50:08.310] who will partner with police
+- [50:09.740] to put dangerous offenders behind bars,
+- [50:11.990] put them in jail.
+- [50:13.530] We're fully reviving 1033 program to provide state
+- [50:18.080] and local law enforcement with surplus military equipment
+- [50:21.510] that we have so much of it.
+- [50:22.710] I did it in my last administration,
+- [50:25.190] and I remember Obama wouldn't do it.
+- [50:26.860] He wouldn't do it before me.
+- [50:28.870] Would not do it because he thought it made them
+- [50:31.660] look too strong, too military.
+- [50:33.240] I said, no, that's what I want them to look like.
+- [50:34.940] I want them to look strong.
+- [50:36.920] It was protective defensive equipment.
+- [50:39.410] We had billions of dollars, I gave it out
+- [50:41.410] and now I'm going to have a chance to give it out again.
+- [50:43.460] They didn't want to do it with Biden and Biden didn't know why.
+- [50:47.580] If they would've asked him,
+- [50:48.860] he wouldn't have been able to answer the question.
+- [50:50.540] He could never a question.
+- [50:51.870] They said my press conference yesterday
+- [50:53.470] was longer than all of Biden's press conferences
+- [50:56.320] put together for the last four years
+- [50:58.720] and I don't know if that's true, but it was close.
+- [51:04.040] Perhaps most importantly, we're securing our border
+- [51:06.770] and repelling the invasion of America.
+- [51:08.960] We have, you see the numbers have come down.
+- [51:13.240] Tom Homan and Kristi have been incredible.
+- [51:16.690] Kristi Noem, secretary, she's done great.
+- [51:19.870] Tom Homan is, I don't know if Tom Holman's here,
+- [51:22.970] but wherever he may be,
+- [51:24.250] I think he's chasing people out of our country.
+- [51:27.390] If he was here, I'd almost be disappointed.
+- [51:29.110] What are you doing, Tom?
+- [51:30.740] He's a fantastic guy and he's a brave guy.
+- [51:33.330] Over the past four years,
+- [51:34.720] other countries emptied out their prisons and jails,
+- [51:37.780] mental institutions,
+- [51:39.120] and insane asylums and sent the killers,
+- [51:42.170] drug smugglers, and bloodthirsty inmates
+- [51:44.650] from the filthiest dungeons of the world
+- [51:47.870] straight into the USA and open border,
+- [51:50.300] we had an open border policy. Anybody could come in.
+- [51:52.780] No matter what you were, no matter where you came from,
+- [51:54.950] no matter what you looked like,
+- [51:57.010] no matter what you were doing, no matter what you did,
+- [51:59.540] no matter how many people you murdered,
+- [52:01.510] you could come right into our country.
+- [52:03.110] We have murderers right now walking the streets.
+- [52:06.630] We're joined today by Tammy Nobles,
+- [52:08.510] whose 20-year-old daughter, Kayla,
+- [52:10.790] was attacked in her home three years ago,
+- [52:13.390] horrifically assaulted and strangled to death
+- [52:16.410] by an illegal alien MS-13 monster
+- [52:18.980] set loose into our country under the open border Biden regime.
+- [52:24.650] Kayla was one of countless American victims
+- [52:27.100] ripped away from their families
+- [52:29.050] by the open border policies of that administration.
+- [52:33.180] We're also joined by Kayla's stepfather, Jeremiah,
+- [52:36.490] and several other courageous angel families here today.
+- [52:39.780] I'd love you to all just stand up and take a bow
+- [52:42.820] because you are incredible people.
+- [52:44.540] Please. Thank you.
+- [52:54.750] Thank you. Thank you very much. Thank you.
+- [53:08.030] I want you to know that we are working every day
+- [53:10.320] to expel these savages from our country
+- [53:12.580] and ensure that what happened to your loved ones
+- [53:15.350] will never happen again
+- [53:16.690] so their legacy is going to be a great one.
+- [53:18.580] Thank you all very much. Appreciate it.
+- [53:21.610] On day one of my administration,
+- [53:23.340] I declared a national emergency on our southern border.
+- [53:26.710] In our first full month in office,
+- [53:28.510] we achieved the lowest level of illegal border crossings
+- [53:31.560] ever recorded. Even lower than four years ago.
+- [53:40.370] For years, Democrats and the media
+- [53:42.440] kept saying that we needed new legislation,
+- [53:44.940] we had to have new legislation, we needed it immediately.
+- [53:48.040] I'd never had legislation and I had the best border
+- [53:51.120] in the history of our country for almost four years.
+- [53:54.790] By the time I got out, we had the lowest numbers ever.
+- [53:57.480] My favorite chart of all time was brought down that day
+- [54:00.830] … and on that chart, said we had the lowest numbers ever,
+- [54:04.160] but it turned out that we really didn't need new legislation.
+- [54:08.500] All you needed was a new president.
+- [54:18.540] I said that the other night.
+- [54:20.650] That's all you needed was a new president saying,
+- [54:23.440] close the borders because the border patrol is unbelievable.
+- [54:26.410] ICE is unbelievable and all of our law enforcement
+- [54:29.320] is just incredible. All of you guys are amazing
+- [54:32.580] and the people of our country respect you and they love you,
+- [54:35.910] and a lot of times you don't hear that
+- [54:37.260] because you have to listen to the fake news back there,
+- [54:39.540] but they have great respect for you.
+- [54:42.690] I just want you to know that. And you know who that includes?
+- [54:44.900] Our fire departments, too.
+- [54:46.940] They don't get spoken about enough.
+- [54:49.100] They go into some of the areas, I read,
+- [54:51.400] where they're shooting them off ladders.
+- [54:52.990] Can you believe it? They go up to put out a fire, Leo,
+- [54:56.000] and they go and they shoot them off a ladder.
+- [54:59.470] It's just unbelievable.
+- [55:00.730] These firemen and women are incredible,
+- [55:02.930] so I want to put them in the same category
+- [55:04.740] because they're just incredible.
+- [55:06.270] I also like that the fact they voted for me at 94%,
+- [55:09.920] so I have to mention them. I have no choice, right?
+- [55:12.690] But the truth is they're phenomenal people.
+- [55:15.000] The law enforcement, fire, everybody.
+- [55:17.150] They're phenomenal.
+- [55:18.400] Basically, first responders because that's what they are.
+- [55:20.750] They're first responders.
+- [55:22.820] And we're ending the migrant occupation of America.
+- [55:25.630] And what we're doing now is we're liberating our cities
+- [55:28.310] and our suburbs and our towns. And you see a big difference.
+- [55:31.480] I'm getting calls all the time
+- [55:32.760] from even leaders of other countries saying,
+- [55:35.590] "Sir, the whole world feels liberated now.
+- [55:38.590] It feels like there's a light over America,
+- [55:40.740] but there's a light over the whole world."
+- [55:42.460] I hear that so much. It's so nice to hear, too.
+- [55:44.960] And I feel it. I feel it. I look at it, I see the polls.
+- [55:47.780] I don't know if the polls are right,
+- [55:49.230] but they're certainly very good.
+- [55:50.550] I'll take them right now. It's amazing.
+- [55:54.100] Amazing what's taken place in such a short period of time.
+- [55:57.530] Really six weeks, but it's longer than that.
+- [55:59.650] It's really November 5th.
+- [56:01.170] I think that hopefully will go down,
+- [56:02.850] if you do your job great,
+- [56:04.470] it'll go down as the most important day,
+- [56:06.870] one of them, at least in the history of our country.
+- [56:09.500] July 4th was pretty, 1776, it was pretty important, too,
+- [56:14.230] but let's see if we can top it. Can we top it? I don't know.
+- [56:16.730] That's a tough one, but we're going to try,
+- [56:18.280] but it will be one of the most important days
+- [56:21.130] in the history of our country.
+- [56:23.060] I think everybody in this room wants that to happen.
+- [56:25.860] Last month,
+- [56:27.250] we officially designated MS13 in Tren de Aragua.
+- [56:32.120] That's the Venezuelan gang, the toughest gang they say,
+- [56:35.300] in the world and the Mexican drug cartels
+- [56:37.720] as foreign terrorist organizations.
+- [56:39.630] That's a big deal. Nobody wanted to do that in the past.
+- [56:49.420] And by the way, we've caught hundreds of them,
+- [56:52.410] the Venezuelan gang, which is as bad as it gets.
+- [56:56.150] And you'll be reading a lot of stories tomorrow
+- [56:57.940] about what we've done with them.
+- [56:59.770] And you'll be very impressed and you'll feel a lot safer, too,
+- [57:02.300] because they are a vicious group.
+- [57:03.740] They went into Colorado.
+- [57:05.580] They took over areas of Colorado.
+- [57:08.680] They sort of were like me,
+- [57:09.920] they were in the real estate business,
+- [57:11.330] but they didn't go out and get financing.
+- [57:13.340] They just took over a building and kept it.
+- [57:16.500] And they said to the tenants, "Get the hell out of here."
+- [57:18.830] One man called the police and they cut off his fingers
+- [57:22.560] and they say, "You call again, your other fingers,
+- [57:24.540] and you call a third time and you're dead."
+- [57:26.920] These are tough people and bad people
+- [57:29.080] and we're getting them out of our country.
+- [57:30.640] And some are so bad we don't want to get them out.
+- [57:32.430] We have to put them in jail because we don't want to
+- [57:34.680] even take a chance that they can come back.
+- [57:37.210] Thanks to our efforts, Mexico recently handed
+- [57:39.580] over 29 of the biggest cartel leaders,
+- [57:42.070] including the depraved kingpin charge
+- [57:44.490] with the 1985 murder of DE agent Kiki Camarena,
+- [57:50.740] and that was a big deal.
+- [57:51.940] If you know they've been looking for this person for years,
+- [57:54.440] many years, and we got him. This evil killer will be now
+- [57:58.400] prosecuted to the fullest extent of the law,
+- [58:02.150] and we know that, well, let's put it this way.
+- [58:06.610] I have to be nice. It's a very strong case.
+- [58:09.310] We're stopping the criminals
+- [58:11.110] pouring across our borders at record levels
+- [58:13.490] and we're also stopping the massive quantities
+- [58:16.150] of deadly drugs. In 2023 alone,
+- [58:18.950] drug overdoses killed more Americans in 12 months
+- [58:21.920] than they did during the entire decade between 1980 and 1990.
+- [58:26.550] So 10 times more, but it's much higher than that.
+- [58:29.890] More Americans died from fentanyl last year
+- [58:32.190] than died in the Korean War or the Iraq war,
+- [58:35.200] the Afghanistan war, all of them combined.
+- [58:38.730] That's why I've placed large tariffs on Mexico, Canada,
+- [58:41.840] and China, and they will remain in place
+- [58:44.360] until these deadly poisons stop pouring into our country.
+- [58:47.230] And I will tell you, as soon as I put on the tariffs on Mexico,
+- [58:50.480] Canada, and China,
+- [58:53.200] unbelievable results have been seen in the last few weeks.
+- [58:57.320] Unbelievable results. They weren't happy about it.
+- [58:59.870] You probably read they weren't happy,
+- [59:01.330] but they are working like hell to end it.
+- [59:03.710] And they weren't working very hard before I did that.
+- [59:07.250] With us today is a brave mother and advocate, Anne Fundner,
+- [59:11.360] who lost her beautiful 15-year-old son,
+- [59:13.820] Weston, to fentanyl. And Anne, if you would,
+- [59:17.720] I'd like to ask you to come up and say a few words, please.
+- [59:23.260] Thank you.
+- [59:37.510] Thank you very much. Than you, darling.
+- [59:39.960] Ms. Fundner: Thank you so much. Thank you.
+- [59:41.820] The President: You're going to be great.
+- [59:43.170] Ms. Fundner: Thank you.
+- [59:44.410] Let me put that down a little bit.
+- [59:46.050] Thank you.
+- [59:47.850] Well, first I want to say thank you.
+- [59:49.780] I think this is the biggest honor of my entire life
+- [59:52.420] being on stage with President Trump.
+- [59:54.960] But I want to tell you a little bit about my son, Weston,
+- [59:58.400] who absolutely loved President Trump.
+- [01:00:01.150] He had a beautiful Trump 2020 flag hanging in his bedroom,
+- [01:00:07.930] and he had it on the beach one day,
+- [01:00:10.240] and we took a picture and it became our 2020 Christmas card
+- [01:00:14.090] with the most perfect slogan for President Trump, Peace on Earth.
+- [01:00:18.480] What would happen in the next four years
+- [01:00:20.700] would be devastational to our country
+- [01:00:24.000] and our safety of our children.
+- [01:00:26.310] And in 2022, Weston lost his life,
+- [01:00:30.240] a freshman in high school at the age of 15,
+- [01:00:33.290] from a single pill that took his life.
+- [01:00:38.100] The cartels were allowed to operate on American soil
+- [01:00:41.960] and took hundreds of thousands of American lives.
+- [01:00:47.570] We knew there was only one person that could save us
+- [01:00:51.010] from the devastation on our American soil,
+- [01:00:54.580] and that was President Trump.
+- [01:00:57.830] In 2024, we did the best thing
+- [01:01:00.660] that we could do to keep America safe again.
+- [01:01:03.360] And we elected President Donald J. Trump.
+- [01:01:10.520] The President: Thank you.
+- [01:01:11.830] Ms. Fundner: Thank you. Thank you.
+- [01:01:19.600] Thank you, and he's done everything that he has promised.
+- [01:01:22.530] We have a 98% decrease in border crossings,
+- [01:01:27.820] and he has labeled the terrorist cartels,
+- [01:01:32.650] terrorist organizations, and he has instilled tariffs
+- [01:01:38.240] because there is no price on human life.
+- [01:01:41.380] I feel like I can speak
+- [01:01:42.810] for the entire fentanyl fighting community
+- [01:01:45.990] when I say thank you to President Trump,
+- [01:01:49.360] and thank you to Pam Bondi,
+- [01:01:51.430] and everyone out here who is fighting this fight.
+- [01:01:53.890] God bless you. God bless you, President Trump.
+- [01:01:56.380] God bless America.
+- [01:01:58.100] The President: [inaudible]
+- [01:02:18.890] Thank you, Anne, very much. Weston is, I just said to Anne,
+- [01:02:23.350] Weston is up in heaven watching his mom
+- [01:02:25.790] and he's so proud of you. He's so proud of you.
+- [01:02:29.210] Thank you. We're also joined today
+- [01:02:32.100] by a number of other American families
+- [01:02:34.070] who have lost loved ones to fentanyl.
+- [01:02:36.070] And I'd love you to just stand up for a second,
+- [01:02:38.530] and we want to acknowledge you
+- [01:02:39.990] and also your daughters, your sons.
+- [01:02:43.890] They're looking down on you and they're loving you like crazy.
+- [01:02:48.990] Thank you very much. Thank you.
+- [01:02:54.150] Thank you. Thank you.
+- [01:03:01.140] This department will not rest until we have ended
+- [01:03:04.240] the fentanyl epidemic in America once and for all.
+- [01:03:07.330] In less than two months since I took office,
+- [01:03:09.470] the DEA and FBI have seized nearly one million deadly doses
+- [01:03:14.120] of fentanyl, and that's just the beginning.
+- [01:03:20.260] At my direction and working with Pam and everybody else,
+- [01:03:24.200] we've launched an all-out war on fentanyl traffickers,
+- [01:03:27.530] and it's a war that we're going to win.
+- [01:03:29.890] We're going to win this war.
+- [01:03:31.150] I spoke with the president of Mexico,
+- [01:03:34.150] very nice woman, very fine woman.
+- [01:03:35.900] And I said, "Let me ask you.
+- [01:03:38.120] You're sending a lot of drugs into our country.
+- [01:03:40.040] We're not liking it at all. Can't do that."
+- [01:03:43.170] But I said, "Is Mexico, does it have much of a drug?"
+- [01:03:45.950] She said, "No, we're not a consuming nation."
+- [01:03:47.810] I thought it was an interesting term.
+- [01:03:50.560] And I said, "Why?" And which I've heard also,
+- [01:03:54.430] by the way, they're not a consuming nation.
+- [01:03:57.060] They distribute, but they don't consume.
+- [01:03:59.620] But I said, " Why are you not a consuming?"
+- [01:04:01.190] "Well, we're very close with family."
+- [01:04:02.870] I said, "We're very close with family, too.
+- [01:04:04.940] I mean, our families are being devastated
+- [01:04:06.860] and we are just as close. Why else?"
+- [01:04:09.590] She said, "Well, we spend a lot of money on advertising
+- [01:04:11.940] saying how bad drugs are. They're very rough ads.
+- [01:04:14.470] They show the skin falling off and the teeth falling out
+- [01:04:17.880] and going blind and losing hair
+- [01:04:21.840] and everything that these things do.
+- [01:04:24.820] You look like you just came out
+- [01:04:26.210] of a horrible concentration camp."
+- [01:04:28.200] And she said it was, they're rough ads.
+- [01:04:33.050] And it's not often that I feel
+- [01:04:35.420] I've learned something from a phone call
+- [01:04:37.830] because I've had a lot of phone calls over my life,
+- [01:04:41.080] but I realized right then and there,
+- [01:04:42.870] what a great idea that is. And we have hired Susie,
+- [01:04:46.610] a great person who did a lot of our campaign work,
+- [01:04:51.770] and we've come up with an advertising campaign
+- [01:04:54.220] that's, I think really incredible.
+- [01:04:56.780] More than anything else, it's terrible to watch.
+- [01:05:00.680] It's terrible to watch.
+- [01:05:01.930] It's the only way it's going to work.
+- [01:05:03.750] And I would be, because we got the numbers down.
+- [01:05:06.490] 18% would have a blue ribbon committee
+- [01:05:08.900] headed by the first lady of the United States
+- [01:05:11.280] who everyone loves, and some of her friends.
+- [01:05:16.050] They work so hard, but it's a tough, it's a tough deal.
+- [01:05:19.960] They're dealing with very smart and very vicious people.
+- [01:05:23.930] Some of those businesses, those cartels are run better
+- [01:05:26.440] than any business in America. They say they're run incredibly.
+- [01:05:29.340] Not just here, they're all over the world.
+- [01:05:31.350] They're run like a major business,
+- [01:05:33.510] but in many cases better.
+- [01:05:35.780] And I said, "We got it 18% down."
+- [01:05:38.650] Well, 18 percent is incredible.
+- [01:05:40.080] It's like a record, but when you think of it's not very much.
+- [01:05:44.330] And the way you get it down, if you want to get it down
+- [01:05:46.550] to close to a hundred percent, is with the death penalty,
+- [01:05:48.830] but I think maybe America's not ready for that.
+- [01:05:51.770] China has a death penalty. Singapore has the death penalty.
+- [01:05:54.550] Various places have the death penalty.
+- [01:05:56.330] Wherever you have the death penalty, you don't have drugs,
+- [01:05:58.350] but I just don't know if this country's ready for it.
+- [01:06:01.590] So I tell people, and it's always an option,
+- [01:06:04.060] but I don't know.
+- [01:06:05.470] I just don't know if you're ready for it.
+- [01:06:07.080] And that's okay. It's nothing you can do,
+- [01:06:09.520] but what we're going to do is we're doing this campaign,
+- [01:06:13.430] and I think we can get it down 50, 5-0 percent,
+- [01:06:16.260] with this campaign because when people see
+- [01:06:18.080] all the horrible things that these drugs do to you,
+- [01:06:20.800] we are especially focused on fentanyl.
+- [01:06:24.110] When they see all of the horrible things that happen
+- [01:06:26.320] when you take drugs,
+- [01:06:27.540] how you look, you lose your look.
+- [01:06:29.570] Everyone's vain. They don't want to lose their look.
+- [01:06:32.390] The look is so important.
+- [01:06:33.810] And I think when they see these things,
+- [01:06:36.710] they may say, "You know what? I'm going to take a pass."
+- [01:06:39.420] But there is big danger.
+- [01:06:40.730] Pam and I were talking about it before.
+- [01:06:42.300] A lot of people are taking fentanyl and not even knowing.
+- [01:06:45.000] They think they're doing something else
+- [01:06:46.490] or maybe taking another drug,
+- [01:06:48.050] but at a much lower level, and they die.
+- [01:06:53.010] You can put on the pin, think of this,
+- [01:06:55.270] the head of a pin, fentanyl, and it's too much
+- [01:06:58.500] and it will kill the strongest person in the room.
+- [01:07:01.430] And it's amazing, but we're going to do this campaign.
+- [01:07:05.820] It's going to be launched fairly soon,
+- [01:07:07.480] Susie, and I think it's going to have a big impact.
+- [01:07:11.290] I think if we got it down by another 30, 35 points.
+- [01:07:15.900] And I really believe we can.
+- [01:07:17.260] I think that's an incredible idea.
+- [01:07:19.160] I thank the president of Mexico actually.
+- [01:07:21.660] It was a call on tariffs and we talked about drugs.
+- [01:07:25.100] And she gave me an idea that I think we'll be very successful.
+- [01:07:28.880] And based on what I saw, it's going to be amazing.
+- [01:07:31.720] Under our leadership, this department is once again laser
+- [01:07:35.220] focused on protecting the American people.
+- [01:07:38.160] We're defending our borders, our streets, our children,
+- [01:07:40.660] and our God-given,
+- [01:07:42.750] this is God-given rights and liberties once and for all.
+- [01:07:47.110] We're going to defend our country
+- [01:07:48.470] and we're going to defend our rights.
+- [01:07:51.290] Etched onto the walls of this building are the words,
+- [01:07:54.060] English philosopher John Locke said,
+- [01:07:57.030] "Where law ends, tyranny begins."
+- [01:08:00.200] And I see that, and I saw it over the last four years
+- [01:08:03.410] when somebody was allowed to attack viciously
+- [01:08:05.870] with this department and the FBI,
+- [01:08:08.380] his political opponent. How did that work out?
+- [01:08:10.890] Didn't work out too well, but it wasn't pleasant.
+- [01:08:13.540] It wasn't pleasant.
+- [01:08:14.780] I was attacked by a political opponent,
+- [01:08:17.640] and probably it helped that I was attacked more than anybody
+- [01:08:21.630] in the history of our country. Alphonse Capone,
+- [01:08:24.250] the great Alphonse Capone, legendary Scarface,
+- [01:08:28.160] was attacked only a tiny fraction
+- [01:08:30.480] of what Trump was attacked.
+- [01:08:32.300] And maybe it worked out well. I don't know.
+- [01:08:34.290] If I had to give it up, I probably wouldn't.
+- [01:08:36.220] But only because I've gone through it,
+- [01:08:39.070] but I wonder what the difference would be.
+- [01:08:40.700] Maybe they helped get me elected by those margins,
+- [01:08:43.160] the big margins, the big mandate that we received.
+- [01:08:45.860] But you can't go after your political opponent.
+- [01:08:48.710] Nobody's ever seen anything like it actually.
+- [01:08:51.530] And hopefully, they won't see anything like it.
+- [01:08:53.710] But now, with the return of law and order,
+- [01:08:56.050] the entire world is witnessing the triumph of American justice
+- [01:09:00.250] and American freedom. That's why we're here today,
+- [01:09:02.310] gathered with people that have love for our country.
+- [01:09:05.940] In the coming years,
+- [01:09:07.200] we will revive the storied legacy of this department.
+- [01:09:10.820] And it's happening right now.
+- [01:09:12.230] You can feel it and rekindle the spirit of the great lawmen
+- [01:09:16.220] and legal lions of the past. Americans like Wyatt Earp,
+- [01:09:20.620] Elliot Ness, Frank Hammer, Rudy Giuliani.
+- [01:09:23.990] Rudy Giuliani had to suffer greatly.
+- [01:09:27.230] Greatly. The greatest mayor in the history of our country
+- [01:09:29.770] had to suffer greatly.
+- [01:09:31.790] Ed Meese, Antonin Scalia, Robert Jackson,
+- [01:09:35.010] and Robert F. Kennedy.
+- [01:09:37.700] We will rebuild pride in our institutions.
+- [01:09:40.760] We will restore the prestige of this great department,
+- [01:09:43.950] and we will bring back faith in our justice system
+- [01:09:47.210] for the citizens of every race, religion, color, and creed.
+- [01:09:51.600] And I want to just tell you that this has been a great honor.
+- [01:09:54.730] I was asked to do it, and I said,
+- [01:09:58.810] "Is it appropriate that I do it?"
+- [01:10:00.600] And then I realized, it's not only appropriate,
+- [01:10:03.850] I think it's really important, and I may never do it again.
+- [01:10:07.890] I may never have another chance to do it again
+- [01:10:10.580] because this is something that I'm leaving
+- [01:10:12.320] to the greatest people I know,
+- [01:10:13.820] the best people, the smartest people,
+- [01:10:16.400] the toughest people I know,
+- [01:10:18.580] and they're going to do an incredible job.
+- [01:10:20.160] And it's an honor for me to have won this election
+- [01:10:22.590] so that I can appoint these people to do their job.
+- [01:10:25.100] And they're going to do it like you have never seen.
+- [01:10:28.210] I just want to wish all of you good luck.
+- [01:10:31.820] It's going to be an interesting journey.
+- [01:10:33.510] Not going to be easy, but you're going to win.
+- [01:10:35.040] You're going to win, win, win, and fight, fight, fight,
+- [01:10:36.980] and it's going to end up being a tremendous result
+- [01:10:39.850] for this country. Thank you all very much.
+- [01:10:42.260] God bless America. God bless you all. Thank you.

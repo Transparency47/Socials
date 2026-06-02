@@ -1,0 +1,46 @@
+# YouTube / WhiteHouse / 2025-06-10
+
+- Posts: 14
+
+- [22:09 UTC - POTUS on the One, Big, Beautiful Bill.](PZxjT8t8KB4/)
+  - Source: https://www.youtube.com/watch?v=PZxjT8t8KB4
+  - [00:00.480] The one big beautiful bill. You've heard - [00:02.480] about it. We call it the one big. You - [00:04.080] know, I was on one of the television - [00:05.680] shows, I...
+- [22:08 UTC - GOD BLESS OUR TROOPS!](3xDuQHAFmQM/)
+  - Source: https://www.youtube.com/watch?v=3xDuQHAFmQM
+  - [00:00.560] Wherever danger is there, the US Army - [00:05.120] will be another beautiful phrase. - [00:08.080] Whatever peril comes our way, whatever - [00:11.120] menace threat...
+- [21:50 UTC - President Trump Attends a Briefing on the 2025 Hurricane and Wildfire Season Outlook & Preparedness](fuR3yzHzGs/)
+  - Source: https://www.youtube.com/watch?v=_fuR3yzHzGs
+  - [00:00.030] The President: And we're doing it much more so now. - [00:02.070] And we can save a lot of lives, but a lot cost, a lot damage, - [00:06.250] a lot everything. And wi...
+- [21:22 UTC - President Trump Delivers Remarks at Fort Bragg](447wkXyiIjc/)
+  - Source: https://www.youtube.com/watch?v=447wkXyiIjc
+  - [00:15.270] Announcer: Ladies and gentlemen, - [00:16.640] please welcome your Commander-in-Chief, - [00:19.690] the 45th and 47th President of the United States, - [00:24.070] P...
+- [21:19 UTC - President Trump addresses troops at Fort Bragg. 🇺🇸](Q77aw7lz0Pw/)
+  - Source: https://www.youtube.com/watch?v=Q77aw7lz0Pw
+  - [00:00.000] [Applause] - [00:00.480] As President of the United States, let - [00:02.720] me express my undying gratitude to our - [00:06.640] nation, for every soldier here toda...
+- [18:54 UTC - POTUS speaks on deploying the National Guard to California: 'I went right by every rule.'](0uxwsHDA_zg/)
+  - Source: https://www.youtube.com/watch?v=0uxwsHDA-zg
+  - [00:00.160] You have to remember, I've been here - [00:02.280] before and I went right by every rule - [00:06.319] and I waited for governors to say, "Send - [00:08.880] in the N...
+- [17:57 UTC - POTUS on his conversation with Gov. Newsom: 'You got to do a better job.' He's doing a bad job...'](J7iyrT1sb4o/)
+  - Source: https://www.youtube.com/watch?v=J7iyrT1sb4o
+  - [00:00.160] Mr. President, when is the last time you - [00:01.520] spoke with Governor Nelson? - [00:05.680] A day ago. - [00:07.680] Called him up to tell him got to do a - [00:...
+- [16:54 UTC - Invest America Roundtable, June 9, 2025](pexPg1XjsXY/)
+  - Source: https://www.youtube.com/watch?v=pexPg1XjsXY
+  - [00:00.000] I want to thank you for being here as we - [00:01.760] discuss one of the most exciting parts - [00:03.760] of the one big beautiful bill, the Trump - [00:06.160] Acc...
+- [16:54 UTC - Invest America Roundtable, June 9, 2025](W6QO2eoU_7o/)
+  - Source: https://www.youtube.com/watch?v=W6QO2eoU-7o
+  - [00:00.000] I want to thank you for being here as we discuss - [00:02.160] one of the most exciting parts  of the One Big Beautiful Bill, - [00:05.600] the Trump Accounts, as the...
+- [15:24 UTC - Invest America, Robinhood, & Uber CEOs Support President Trump's One Big Beautiful Bill](IN14J2SJmL4/)
+  - Source: https://www.youtube.com/watch?v=IN14J2SJmL4
+  - [00:00.000] I'm Brad Gersonner. I'm with Invest - [00:01.839] America. Hey, Vlad Tennov here, CEO and - [00:04.319] co-founder of Robin Hood. Hi, this is - [00:06.160] Darra Kaze...
+- [15:24 UTC - Invest America, Robinhood, & Uber CEOs Support President Trump's One Big Beautiful Bill](Zn9OXZFEHJg/)
+  - Source: https://www.youtube.com/watch?v=Zn9OXZFEHJg
+  - [00:00.000] I'm Brad Gerstner – I'm with Invest America. - [00:02.400] Hey, Vlad Tenev here, CEO  and Co-Founder of Robin Hood. - [00:05.600] Hi. This is Dara Khosrowshahi,  and...
+- [14:18 UTC - President Donald J. Trump × UFC 316](ByR_p1bDyxA/)
+  - Source: https://www.youtube.com/watch?v=ByR_p1bDyxA
+  - [00:02.060] [Music] - [00:04.160] The body couldn't get any more festive - [00:06.000] inside provincial - [00:07.800] center, the president of the United - [00:10.559] States of...
+- [01:25 UTC - President Donald J. Trump × UFC 316](zGHg_e3rAqk/)
+  - Source: https://www.youtube.com/watch?v=zGHg_e3rAqk
+  - [00:02.060] [Music] - [00:04.160] The body couldn't get any more festive - [00:06.000] inside provincial - [00:07.800] center, the president of the United - [00:10.559] States of...
+- [00:12 UTC - WHILE LOS ANGELES BURNS, LEFTISTS CALL IT PEACEFUL—TRUMP WILL BRING LAW & ORDER](Ef1l8BQzl1E/)
+  - Source: https://www.youtube.com/watch?v=Ef1l8BQzl1E
+  - [00:00.080] The reality is we see peaceful  protests launching in Los Angeles. - [00:05.200] Lay your hands off these poor people who are  just trying to get — live their lives,...

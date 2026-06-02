@@ -1,0 +1,828 @@
+<!-- source: https://www.youtube.com/watch?v=xqlARu9srSY -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: xqlARu9srSY -->
+<!-- date_published: 2025-07-30T21:17:49+00:00 -->
+<!-- date_accessed: 2026-06-02T02:46:22.236348+00:00 -->
+
+# Transcript: President Trump Delivers Remarks on Making Health Technology Great Again
+
+- [00:00.000] Male Speaker: -- the President of the United States.
+- [00:03.570] [Hail to the Chief]
+- [00:35.740] The President: And we have a lot of great people here
+- [00:39.060] and we've been looking forward to this day,
+- [00:42.600] but we look forward to every day
+- [00:44.580] because we have a lot of surprises,
+- [00:46.850] most of which are good.
+- [00:48.940] Today you saw GDP was much higher than anticipated,
+- [00:53.640] and Scott, good job. Scott Bessent's been working,
+- [00:58.400] just got back from a little excursion
+- [01:01.690] and a meeting with China and Europe,
+- [01:05.910] and that went well. We've done very well with the EU deal.
+- [01:11.310] It's a very big deal, I guess.
+- [01:12.720] They say the biggest trade deal ever made by far.
+- [01:15.210] Probably is.
+- [01:16.680] Just completed Japan and many other countries
+- [01:19.940] and hundreds of billions of dollars
+- [01:23.140] is flowing into our country.
+- [01:24.450] We've never seen anything even close.
+- [01:27.310] And that's not me saying it, that's everybody saying it.
+- [01:30.850] And it's going to be something really, really very special.
+- [01:34.620] Maybe even more importantly, factories for AI and for cars
+- [01:40.720] and for lots of other things are being built in this country
+- [01:44.970] or planned to be built very shortly.
+- [01:46.600] They'll be starting and we need great amounts of energy for AI.
+- [01:52.350] They are going to be –
+- [01:53.550] I've given them approval and Lee Zeldin
+- [01:56.770] has given them very fast approval
+- [02:00.360] to build their own electric powering plants
+- [02:04.100] and they'll build them with a factory
+- [02:05.490] so we don't have to worry about an ancient grid
+- [02:07.310] and all of the other problems, the obstacles people thought
+- [02:10.440] we were going to have that would make it impossible.
+- [02:13.470] And we're leading AI by a lot
+- [02:16.490] and I think people are very impressed with our country.
+- [02:20.920] As they said, the king of Saudi Arabia and various leaders
+- [02:24.480] and just about every leader I can even imagine.
+- [02:28.090] We were in the Middle East and Qatar, UAE, Saudi Arabia,
+- [02:31.640] they said, "One year ago, your country was dead,
+- [02:36.170] and today you have the hottest country anywhere in the world."
+- [02:39.640] And that's true.
+- [02:40.860] So I congratulate everybody in the room that's helped,
+- [02:44.280] but we're doing a good job together.
+- [02:46.460] I'd like to begin by saying a few words about
+- [02:50.730] the unbelievable kind of numbers that we've been putting up,
+- [02:55.590] and as I said, the number of 3% the pace,
+- [03:01.750] in the second quarter, we smashed all expectations.
+- [03:04.710] They thought it would be maybe a little bit less than two
+- [03:07.850] and it was a little bit more than three.
+- [03:11.240] Consumer spending is up, business investment is way up.
+- [03:15.050] Domestic manufacturing is way up.
+- [03:17.970] Real disposable family income is up, and personal savings are up.
+- [03:23.240] Other than that, we're not doing so great.
+- [03:25.500] [laughter]
+- [03:27.010] We have the hottest country, and I'll tell you it’s great,
+- [03:30.860] we're having a lot of fun with it.
+- [03:33.090] At the same time, we dramatically slashed government
+- [03:35.860] spending for the second quarter in a row down nearly 4%,
+- [03:40.330] which people were surprised at. We do a lot of cutting also.
+- [03:43.990] The private sector has boomed with nearly 600,000 jobs
+- [03:48.060] added way above expectations while we have reduced
+- [03:52.550] the federal workforce by 70,000 jobs,
+- [03:55.470] so these are private jobs that are coming back to our country.
+- [03:59.360] Federal jobs are being cut.
+- [04:01.490] Critics said that our tariffs would hurt the economy,
+- [04:05.490] but the data shows the exact opposite,
+- [04:08.570] and the exact opposite is happening.
+- [04:11.840] The US Treasury has taken in $150 billion from tariffs
+- [04:16.550] and will be adding about $200 billion next month for totals
+- [04:21.930] that nobody's ever seen before, frankly.
+- [04:25.570] And foreign imports were down 30% in the second quarter
+- [04:28.820] while the domestic auto production
+- [04:30.530] surged by a stunning 36%.
+- [04:35.820] How about that number, Dr. Oz, right?
+- [04:37.760] That's good. That's good.
+- [04:39.620] We want to do that with your patients too.
+- [04:43.660] We're going to have a very healthy country.
+- [04:45.860] At the same time,
+- [04:47.150] inflation continues to fall faster than expectations,
+- [04:50.630] and for the fifth consecutive month,
+- [04:53.210] core inflation was lower than predicted substantially.
+- [04:57.530] This is truly the dawn of the golden age of America.
+- [05:01.820] That's what we're in. We want to keep it that way.
+- [05:05.810] This afternoon, we're gathered to announce
+- [05:07.990] another historic victory for the American people,
+- [05:11.110] very important one.
+- [05:12.770] Today, the dream of easily transportable electronic medical
+- [05:17.510] records finally becomes a reality.
+- [05:21.530] I want to thank Secretary Scott Bessent,
+- [05:24.760] Robert F. Kennedy, Jr for joining us,
+- [05:27.260] as well as Administrator of the Centers for Medicine
+- [05:30.590] and Medicaid Services, Dr. Mehmet Oz,
+- [05:33.700] all friends of mine.
+- [05:35.530] White House AI and Crypto Czar, David Sacks,
+- [05:39.130] and acting Administrator of DOGE, Amy Gleason all here,
+- [05:43.590] and we have various great senators here.
+- [05:48.510] Senator Rounds, Senator Cassidy,
+- [05:50.480] thank you very much for being here and helping out.
+- [05:54.090] I also want to thank representatives from Apple,
+- [05:57.990] Google, Samsung, Amazon, OpenAI, Anthropic,
+- [06:03.510] Epic, Oracle, Athena Health, Noom,
+- [06:08.790] and that's not a bad group of people,
+- [06:11.860] wow, and they're the top people. We don't play games.
+- [06:15.060] When you invite people to the White House,
+- [06:17.970] the top ones, that's a big net worth
+- [06:20.600] sitting in this room right now.
+- [06:23.110] Boy, oh boy, we better make sure the room is nice and safe.
+- [06:27.050] It's half the net worth of our country.
+- [06:30.600] I'm also grateful to be joined by many numerous congressmen.
+- [06:35.660] I'm not going to name you, if you don't mind.
+- [06:37.470] I'll probably never get their vote again, but it's too many.
+- [06:40.320] Thank you very much for being here.
+- [06:41.620] The Congress has been great. Senators have been great,
+- [06:44.530] and the congressmen and women have been great.
+- [06:46.330] We just passed the most important, I think –
+- [06:48.880] Look, I can't say most important,
+- [06:50.780] but certainly one of the most, but the most consequential
+- [06:54.380] and the largest bill in the history of Congress,
+- [06:57.740] and I call it the great Big Beautiful Bill.
+- [07:00.600] We call it different names, but it all means the same thing.
+- [07:04.340] For decades, America's healthcare networks
+- [07:06.660] have been overdue for a high-tech upgrade,
+- [07:09.420] and that's what we're doing.
+- [07:10.690] The existing systems are often slow, costly,
+- [07:14.040] and incompatible with one another.
+- [07:16.060] But with today's announcement, we take a major step
+- [07:19.210] to bring healthcare into the digital age,
+- [07:22.670] something that is absolutely vital.
+- [07:26.260] You got to do it, moving from clipboards and fax machines
+- [07:29.880] into a new era of convenience, profitability, and speed,
+- [07:33.780] and frankly, better health for people.
+- [07:37.000] Under the leadership of Administrator Oz,
+- [07:39.770] we're officially launching
+- [07:41.510] the CMS digital health tech ecosystem
+- [07:44.960] to give healthcare providers, insurers and software companies
+- [07:49.510] the tools they need to empower Americans
+- [07:51.690] with a 21st century experience on health.
+- [07:56.390] The key breakthrough we've made is getting
+- [07:58.410] many of the biggest names in the healthcare and technology
+- [08:01.450] to agree to industry-wide standards
+- [08:04.860] for electronic medical records.
+- [08:07.300] All of those great companies that you just heard
+- [08:09.430] have gotten together with this group of very brilliant people.
+- [08:14.020] I don't know who's more brilliant; them or them.
+- [08:17.320] I don't know. Could be them. I hate to tell you.
+- [08:20.320] It could very well be them, but I don't know.
+- [08:22.960] I'm going to take my team.
+- [08:25.040] But the key breakthrough we've made is getting
+- [08:27.280] many of the biggest names in healthcare and technology
+- [08:30.170] to agree to those standards of electronic medical records
+- [08:35.740] that we talk about and you've heard about for so many years,
+- [08:39.710] and now it's happening.
+- [08:40.930] This will allow patients to easily transmit information
+- [08:44.730] from one doctor to another,
+- [08:46.950] even if they're different networks
+- [08:49.270] and using different record-keeping systems.
+- [08:51.490] No matter what system they use, they're all transferable.
+- [08:55.670] The new standards will also make it simple for patients
+- [08:58.430] to access their own personal health records.
+- [09:00.670] I don't want to see mine, please. I don't want to see.
+- [09:02.460] [laughter]
+- [09:03.760] I don't know about you. They have all sorts of things.
+- [09:06.130] Sure, they can tell you exactly what your problem
+- [09:09.590] is going to be in six years.
+- [09:11.650] We can do it. They have all these different things.
+- [09:13.600] I don't know if they work or not,
+- [09:14.810] but I didn't want to hear it.
+- [09:16.070] [laughter]
+- [09:17.280] I didn't want to hear it. If they got a problem,
+- [09:19.130] I don't want to know about it right now,
+- [09:21.580] but it is amazing what they're doing.
+- [09:24.290] I don't know, does it actually work?
+- [09:25.670] Can they do that? All right.
+- [09:27.310] Well, then I'm glad I said I don't want to know.
+- [09:29.920] But thanks to this announcement,
+- [09:31.340] healthcare providers across the country
+- [09:33.370] will also finally be able to kill the clipboard.
+- [09:36.970] It's an expression that's used with a capital C,
+- [09:40.760] kill the clipboard.
+- [09:43.250] Instead of filling out the same tedious paperwork
+- [09:46.000] at every medical appointment,
+- [09:47.260] patients will simply be able to grant their doctors access
+- [09:50.980] to their records at the push of a button.
+- [09:53.230] Just a button and you're all set
+- [09:55.010] and all the information the doctor needs
+- [09:57.430] will be immediately transmitted.
+- [10:00.800] The system will be entirely opt-in
+- [10:03.730] and there will be no centralized government-run database,
+- [10:07.270] which everyone is always concerned about.
+- [10:09.310] I'm less concerned than anybody.
+- [10:11.380] I say whatever it is, it is, but people are very,
+- [10:14.550] very concerned about the personal records.
+- [10:16.540] They want to keep them very quiet and that's their choice.
+- [10:20.040] I think it's a great thing
+- [10:21.720] because it'll be absolutely quiet.
+- [10:24.600] Instead, doctors and patients will always remain in control.
+- [10:29.610] The benefits to millions of Americans will be enormous.
+- [10:32.550] We will save time, we'll save money,
+- [10:34.620] and most importantly, we'll save lives.
+- [10:36.760] It's just going to make people live longer
+- [10:38.940] and be a lot healthier.
+- [10:40.280] I think that's really what you're looking to do.
+- [10:42.830] Now, I'd like to ask Secretary Kennedy
+- [10:44.890] to say a few words followed by David Sacks, Dr. Oz,
+- [10:48.170] and Amy Gleason. Thank you very much, everybody.
+- [10:52.710] [applause]
+- [11:00.020] Robert Kennedy: Thank you very much, Mr. President.
+- [11:02.970] I just want to begin by making a comment that is irrelevant
+- [11:07.180] to what we're gathered here today to talk about.
+- [11:10.500] I've been coming to this building for 65 years
+- [11:14.800] and I have to say that it's never looked better.
+- [11:18.860] [applause]
+- [11:25.680] I've spent some time in the Oval Office,
+- [11:27.850] which really has – It's been transformed.
+- [11:32.580] I was looking at a picture of the Oval Office
+- [11:35.960] the other day when I was there, when I was a kid with my uncle,
+- [11:39.680] and it was extraordinary.
+- [11:41.570] It's always extraordinary to go into that sacred space,
+- [11:47.470] but I have to say they look drab in the pictures.
+- [11:50.460] They're black and white pictures but look drab
+- [11:52.800] and it looks the opposite of drab today.
+- [11:56.180] I know all these portraits.
+- [11:58.160] I hope you get a chance to look at them when you go out there.
+- [12:00.680] They were hand-picked by the president
+- [12:03.500] and many of them hijacked from other agencies
+- [12:08.190] that were trying to keep them.
+- [12:13.690] My uncle, my Aunt Jackie who were deeply committed
+- [12:18.200] to design to beauty
+- [12:21.480] and who understood that it's important
+- [12:23.150] to have our public buildings be beautiful
+- [12:26.400] because it inspires us, it elevates the human spirit.
+- [12:32.130] It is a template and it's an exemplar for democracy,
+- [12:39.450] the releasing through freedoms
+- [12:41.030] of the creativity of the human spirit.
+- [12:44.070] And this building of all buildings should look beautiful.
+- [12:47.730] And under your stewardship, it looks extraordinary today,
+- [12:51.760] so thank you, Mr. President, for that.
+- [12:56.730] About three weeks ago,
+- [12:59.720] I met with the Indonesian health minister.
+- [13:04.020] Indonesia today is regarded
+- [13:05.990] as the highest flourishing nation on earth since 1990.
+- [13:11.240] It has increased the lifespan of its women by eight years,
+- [13:17.070] of its men by nine years.
+- [13:18.790] There is no country that has a record like that.
+- [13:21.940] There are two major innovations that allowed them to achieve
+- [13:26.390] that extraordinary outcome.
+- [13:29.410] One of those was to disincentivize people
+- [13:32.410] from eating processed foods.
+- [13:34.700] Oh, you are paid not to eat processed foods
+- [13:37.520] and you are penalized for eating processed foods.
+- [13:41.600] The other innovation that really transformed Indonesia
+- [13:45.810] was allowing people control of their individual health records.
+- [13:51.160] He showed me the app that they use
+- [13:53.280] that everybody in Indonesia has.
+- [13:55.870] It shows your height, your weight, your blood type,
+- [13:59.360] your BMI, your cardiac markers,
+- [14:02.700] your diabetes markers, your cholesterol,
+- [14:06.770] and any kind of individualized treatments that you've had.
+- [14:11.570] If you go to a doctor in another town,
+- [14:14.680] he doesn't do what we have to do here,
+- [14:16.720] which is to sit there with a clipboard
+- [14:18.590] and a fax machine in order to get your health records.
+- [14:22.350] It's available and it allows them to give better treatment.
+- [14:26.740] It also allows you to make better choices over your life.
+- [14:31.050] There's other apps like Yuka in Indonesia
+- [14:34.840] that allow you to choose good foods
+- [14:37.710] when you go to the grocery store.
+- [14:40.080] You can turn your app on your phone
+- [14:42.700] and you can get full information of those foods.
+- [14:44.980] Well, now, if you have your medical records,
+- [14:47.630] you can get personalized advice
+- [14:49.790] and that app will also give you advice
+- [14:53.070] about a better alternative.
+- [14:55.100] So were going – we met Dr. Oz and I met
+- [14:58.760] with the former Prime Minister Rudd of Australia
+- [15:04.500] just after the election during the transition phase.
+- [15:08.400] And he, after his retirement as prime minister,
+- [15:12.280] he ran a commission to reorganize
+- [15:16.450] the Australian health system. They revolutionized
+- [15:19.060] and they vastly improved health in Australia.
+- [15:23.790] He said the single thing that he did
+- [15:25.870] that was most important to that transformation
+- [15:29.520] was the transparency that occurs
+- [15:31.570] when people control their own health records,
+- [15:34.210] because it gives people the choice over their own
+- [15:36.500] health decisions and over their own lives.
+- [15:38.780] It gives them a sense of responsibility
+- [15:41.720] and allows them to measure the interventions
+- [15:44.760] if they change their diet, if they change their exercise.
+- [15:48.800] It can show you how many steps you took today.
+- [15:51.900] It can tell you if your glucose is spiking.
+- [15:55.690] All of that information will now be available
+- [15:57.980] to American citizens.
+- [16:00.370] 60 years ago today,
+- [16:02.590] we passed Medicaid and Medicare in this country
+- [16:06.400] and we have 60 CEOs
+- [16:09.330] in this room of these extraordinary companies,
+- [16:12.200] some of which the president just mentioned,
+- [16:15.190] and all agreed voluntarily to start sharing information.
+- [16:19.640] President Trump during his first term
+- [16:23.020] passed the interoperability rule
+- [16:27.100] and it was intended to do this for 20 years.
+- [16:29.590] The federal government has been trying to do this.
+- [16:32.320] Everybody recognizes it's absolutely
+- [16:34.590] critical innovation for us,
+- [16:36.510] advancing the health of American citizens
+- [16:38.620] to give them responsibility
+- [16:41.520] and to give them control over their own healthcare choices.
+- [16:46.250] Unfortunately, you ran out of time the last time around.
+- [16:50.910] President Trump gave us instructions
+- [16:52.990] that he wanted this to happen within six months.
+- [16:56.150] We barely made it under the wire thanks
+- [16:58.200] to Dr. Oz's leadership, and within six months,
+- [17:01.850] every American's going to be doing it
+- [17:03.370] thanks to the cooperation of the corporate leaders in this room.
+- [17:07.140] You know, about three months ago,
+- [17:09.900] I met with the food executives
+- [17:11.850] and I asked them to voluntarily come forward
+- [17:15.600] and get rid of food dyes of the nine synthetic petroleum dyes.
+- [17:20.850] This is something, again,
+- [17:22.120] the government, Democrats and Republicans,
+- [17:23.990] have been trying to do for 20 years.
+- [17:26.230] The industry came forward
+- [17:28.100] and now 40% of the food industry in this country
+- [17:31.930] has taken the pledge to remove food dyes
+- [17:34.320] from all of their foods.
+- [17:36.260] That happened because of your leadership, Mr. President.
+- [17:40.620] A month ago, after a lot of work by Chris Clump and Dr. Oz
+- [17:46.060] and a lot of other people in our agency,
+- [17:49.080] we got all the insurance executives
+- [17:51.620] to come together in our country and in our offices and agree
+- [17:58.170] to get rid of pre-authorization for 80% of the DSM codes.
+- [18:03.720] This is a voluntary agreement.
+- [18:05.860] 80% of the industry has now agreed to do that.
+- [18:09.880] This is happening because of good leadership.
+- [18:13.010] President Trump, you've asked us to think big,
+- [18:16.250] you've inspired us to dream big,
+- [18:19.010] and you've enabled us to accomplish things
+- [18:24.010] that no other president has been able to do.
+- [18:26.760] I want to thank you for your leadership
+- [18:28.750] for allowing this to happen. And with your leadership,
+- [18:32.550] we're going to make America healthy again.
+- [18:34.970] Now, I want to introduce my friend,
+- [18:37.230] my colleague, the crypto czar,
+- [18:39.930] the acting administrator of DOGE, David Sacks.
+- [18:43.570] [applause]
+- [18:49.690] David Sacks: Thank you, Secretary Kennedy.
+- [18:51.840] I recently got a text message from a friend
+- [18:54.130] whose wife has been suffering from a chronic illness
+- [18:57.260] for something like a decade,
+- [18:58.610] and they've been trying to figure out what it is.
+- [19:00.060] They've never been able to figure it out.
+- [19:01.500] I just want to read this to you right off my phone.
+- [19:04.240] He said, "I uploaded my wife's blood work
+- [19:06.060] into one of our leading AI engines on Friday.
+- [19:09.280] It essentially diagnosed her as having a rare genetic defect
+- [19:12.360] that causes bone marrow failure.
+- [19:14.470] It's caused every single thing that's happened to her.
+- [19:16.500] She has every single symptom.
+- [19:18.450] It started at exactly the same age of presentation.
+- [19:21.890] It's 10 people out of one million.
+- [19:23.950] There's absolutely no way this is not it."
+- [19:26.150] So, wow, it's really an incredible example
+- [19:29.580] of what AI is already able to do just today,
+- [19:32.780] and we're just getting started.
+- [19:34.410] This was one person putting his wife's data
+- [19:38.750] in one of our consumer AI apps.
+- [19:42.770] He's already been able to get that diagnosis,
+- [19:44.870] and that's going to help them tremendously.
+- [19:47.100] The key here is the unlocking of the data.
+- [19:49.560] Because the more data that AI has, the better it performs.
+- [19:53.230] So kudos to Dr. Oz and Secretary Kennedy for this pledge today.
+- [19:58.080] They were able to get 60 major companies
+- [20:00.450] across different sectors of the economy
+- [20:02.820] to agree to unlock their data
+- [20:04.840] so that AI could use it to drive better patient outcomes.
+- [20:08.100] And this is all due to your leadership
+- [20:11.630] and President Trump's leadership
+- [20:13.010] to put the American people's healthcare needs first.
+- [20:16.810] I remember Dr. Oz,
+- [20:18.210] he was one of the first people to call me during the transition
+- [20:21.660] when the president announced that the AIs are
+- [20:23.850] because he wanted to ask me about
+- [20:25.110] how AI could better be used in healthcare.
+- [20:28.390] So kudos to you, Dr. Oz.
+- [20:30.990] Your passion's really incredible,
+- [20:33.550] and kudos to you, Secretary Kennedy,
+- [20:35.200] for your passion as well.
+- [20:36.960] I remember a couple of years ago,
+- [20:38.740] I was a big fan of Bobby Kennedy
+- [20:40.130] when he was running as a Democrat.
+- [20:42.440] And I remember –
+- [20:43.650] Robert F. Kennedy Jr.: A lot more
+- [20:44.930] [inaudible] than President Trump.
+- [20:46.160] [laughter]
+- [20:47.480] David Sacks: Well, I remember thinking
+- [20:48.730] there's just one problem with Bobby Kennedy.
+- [20:51.550] He's not a Republican, but thanks to President Trump,
+- [20:54.090] I think we fixed that.
+- [20:55.540] [laughter]
+- [20:57.130] I think that getting people like Dr. Oz and Bobby Kennedy
+- [21:00.970] into the administration's a testament to President Trump
+- [21:03.390] and the talent that he's able to attract and pull together
+- [21:06.100] and the partnerships that he's able to forge
+- [21:09.030] because these are people who could be doing other things.
+- [21:11.240] So it's really a testament to the great talent
+- [21:13.440] that President Trump always attracts around him.
+- [21:16.430] Today's pledge by these companies
+- [21:18.400] is going to tear down barriers that allows both startups
+- [21:21.240] and established firms to compete freely.
+- [21:23.980] We're opening up the playing field
+- [21:25.430] so that the best tools can scale, compete on value,
+- [21:28.360] and discover new methods for making Americans healthy again.
+- [21:31.630] Technologies like AI, they do things,
+- [21:33.910] like they will expand access to care,
+- [21:36.470] cut administrative costs, reduce fraud,
+- [21:38.840] and deliver better results for patients and doctors.
+- [21:41.720] And I want to thank you, President Trump,
+- [21:43.900] for your promise to only make Americans healthy again,
+- [21:46.960] but also to ensure that America
+- [21:48.410] is the predominant AI superpower.
+- [21:50.870] Just last week, you announced a major AI action plan
+- [21:54.660] with hundreds of billions of dollars of new investment
+- [21:57.480] in AI infrastructure
+- [21:58.910] and also getting red tape out of the way
+- [22:01.290] so that we can be the leading country in AI.
+- [22:03.570] It's these lifesaving applications
+- [22:06.060] that are going to be built on top of all that infrastructure.
+- [22:09.150] So thank you for your leadership
+- [22:11.070] in making the United States number one country in AI.
+- [22:14.520] The President: Thank you.
+- [22:17.270] David Sacks: Thank you. Now Dr. Oz.
+- [22:22.770] Dr. Mehmet Oz: Mr. President,
+- [22:24.020] today we are making American health technology
+- [22:26.940] remarkably great again.
+- [22:28.990] We've always been at the leadership.
+- [22:30.590] David's right. I called him early on
+- [22:32.810] after the president offered me the position, him as well.
+- [22:36.240] We began brainstorming under Secretary Kennedy
+- [22:38.100] from day one, appreciated the crisis that we're in,
+- [22:41.580] and how we needed to address it.
+- [22:42.980] So today is a remarkably important day,
+- [22:44.710] one that you will remember,
+- [22:45.960] I believe, for years to come for three reasons.
+- [22:48.300] Yes, it is the 60th birthday of Medicare/Medicaid.
+- [22:51.610] The first patient, by the way, was Harry S.
+- [22:53.520] Truman, although Lyndon Johnson
+- [22:55.430] signed the legislation 60 years ago today,
+- [22:57.460] not far from here. It is not just the ability
+- [23:00.120] to bring 60 of the top incumbents
+- [23:01.960] and insurgents in health technology,
+- [23:04.450] hospital systems, insurance companies,
+- [23:07.240] electronic medical record companies,
+- [23:08.900] AI companies, the big players.
+- [23:10.990] You're all here and we appreciate that very much.
+- [23:13.510] But Mr. President, you used the power to convene.
+- [23:15.770] That's fundamentally what I think
+- [23:18.390] The President has been able to offer us.
+- [23:20.350] Secretary Kennedy offered us as a group some examples,
+- [23:23.260] but there are more to come and I want to touch on some of these.
+- [23:25.950] First, I've got to do what doctors often have to do,
+- [23:28.780] which is to tell you the truth
+- [23:30.120] even if you don't want to hear it.
+- [23:32.000] So here it goes. These beautiful programs,
+- [23:34.260] which are the backbone of the social network,
+- [23:37.330] the social support system of this country,
+- [23:40.330] the safety net, they're flailing.
+- [23:43.760] They're flailing for a bunch of reasons.
+- [23:45.380] Medicaid is a unique entity.
+- [23:47.250] It has deviated from its original purpose
+- [23:49.260] by drift and by design.
+- [23:51.160] The One Big Beautiful Bill, the OB-III law,
+- [23:54.490] was elegant for that very reason.
+- [23:56.280] President, I don't know if you remember this,
+- [23:57.910] I can share this, but he called me once
+- [23:59.320] and he was upset at me
+- [24:00.530] because I was going too strident at something.
+- [24:02.750] He said, "This is about fraud, waste, and abuse."
+- [24:05.520] That's what we're interested in doing,
+- [24:07.090] and that's exactly what the One Big Beautiful Bill accomplished.
+- [24:10.590] It especially did it to save Medicaid
+- [24:12.700] by putting $200 billion more dollars into it
+- [24:14.800] and allocating funds very specifically to use
+- [24:18.200] to support rural America.
+- [24:19.760] And primarily, some of that money
+- [24:21.390] will be used to support digital infrastructure,
+- [24:24.480] which is terribly lacking in many parts of the country.
+- [24:27.800] The money that's sent from Washington
+- [24:29.360] doesn't get to rural America.
+- [24:30.810] About 7% of Medicaid dollars get to rural hospitals.
+- [24:34.070] We now have an ability to infuse funds
+- [24:36.810] through this $50 billion
+- [24:38.360] Rural Health Transformation fund into that system.
+- [24:40.920] The gathering today is another example
+- [24:43.460] of how we can actually jumpstart that and accelerate it.
+- [24:46.220] The other reality is COVID broke the system.
+- [24:48.600] It did it for many reasons.
+- [24:49.950] Medicaid expenses went up 50% in five years.
+- [24:52.530] Medicare, the trust fund,
+- [24:54.660] that we met at actually with Treasury with Bessent
+- [24:57.070] and Secretary Kennedy as trustees,
+- [24:59.110] it goes bankrupt in 2033,
+- [25:01.070] and that is actually a conservative estimate.
+- [25:03.060] It could go bankrupt as early as 2029.
+- [25:06.030] Thankfully through the economy, that's not going to happen.
+- [25:08.910] But we don't want to have to take that risk,
+- [25:10.810] and there are some fundamental changes
+- [25:12.040] we need to make accordingly.
+- [25:13.560] Now, there's one other big reality
+- [25:15.150] about making the system more efficient,
+- [25:16.660] which is why what everyone here is talking about is so critical.
+- [25:19.780] Let's just pick an average American born in 1964.
+- [25:22.900] That average American born in '64
+- [25:24.910] will retire this year at age 61.
+- [25:27.680] If just that one group of people born in '64
+- [25:30.960] could work three years longer because they're healthy,
+- [25:32.760] because they feel like they want to do it,
+- [25:34.240] because they feel vital and vigorous
+- [25:35.740] and they're flourishing, just that one year
+- [25:39.700] working longer is a trillion dollars to the US GDP,
+- [25:44.100] and it's $300 billion of tax revenue to pay
+- [25:46.370] for a lot of the problems that people are concerned about.
+- [25:49.490] It's not just keeping people out of the hospital.
+- [25:51.400] Getting them to thrive and flourish
+- [25:53.490] that makes what we're doing so critical today.
+- [25:56.380] I think there are a lot of realities
+- [25:58.210] to how healthcare has gone.
+- [25:59.470] Unfortunately, this system is frozen,
+- [26:01.130] and it has been for many reasons.
+- [26:02.360] Despite efforts in the first administration,
+- [26:04.230] it's frozen in time,
+- [26:05.460] so it cannot address the quality lags that exist.
+- [26:08.670] While Netflix and Airbnb and Uber drivers
+- [26:12.560] are racing ahead, making arrangements,
+- [26:15.540] identifying the problems that are challenging us in healthcare
+- [26:17.670] have become incredibly difficult.
+- [26:19.200] You can't make appointments. The average Americans are tired.
+- [26:22.190] They're tired of waiting for a doctor's appointment.
+- [26:24.450] They're tired of waiting for the surprise
+- [26:26.210] of what your hospital bill is going to offer.
+- [26:27.960] That's being addressed
+- [26:29.290] by one of the president's executive orders.
+- [26:31.000] They're tired of waiting for access to their medical records.
+- [26:33.150] You own your medical records. They're yours.
+- [26:36.090] Why you can't have access to them
+- [26:37.540] is a stunning reality in modern-day America.
+- [26:39.800] They're also tired of waiting for Washington to take action.
+- [26:42.320] This president early on emphatically stated
+- [26:45.110] that wasn't going to happen anymore,
+- [26:46.490] and today we made that vision into a reality.
+- [26:49.000] There's a fine line between vision and hallucination.
+- [26:51.380] What you did today was show us a vision
+- [26:53.090] because you share it with us and we're moving ahead on it.
+- [26:55.700] That's what today's commitments essentially are reflecting.
+- [26:58.610] They are pledges. They're not laws.
+- [27:00.690] They're nimble, and they're fast,
+- [27:01.920] and they're quick because the president understands that you,
+- [27:05.310] each of you in your own way, understand these needs.
+- [27:07.710] Secretary Kennedy spoke beautifully
+- [27:09.270] about the reality of what happens
+- [27:10.600] when you actually have electronic records,
+- [27:12.790] because what he said is happening in Indonesia
+- [27:14.560] we'll have here. Within a year on your device,
+- [27:17.620] and 91% of Medicaid patients have smartphones,
+- [27:21.880] on this device you'll get insights based on your records
+- [27:24.520] if you want. You don't have to take this.
+- [27:26.540] But if you desire, Amy Gleason is one of the smartest people
+- [27:28.790] I've ever worked with,
+- [27:30.010] has built a mechanism to be able to get you that information
+- [27:33.260] in a way with all these partners helping
+- [27:35.210] so that you can get nudged to pay attention
+- [27:36.750] to what you're eating and avoid processed foods
+- [27:38.370] that Secretary Kennedy smartly
+- [27:39.890] and wisely highlighted is so dangerous to our wellbeing.
+- [27:42.030] All this, by the way, is that it will be at the fingertips.
+- [27:44.670] In addition advice about which doctor to see,
+- [27:46.610] when to go see them,
+- [27:47.810] nudges reminding you why I didn't do certain things.
+- [27:50.420] If you're a doctor, like me, it's a very different story.
+- [27:53.430] It's to help you navigate the system better.
+- [27:55.770] It's giving you advice, decision support,
+- [27:58.320] which is becoming increasingly important
+- [28:00.250] as medicine gets more difficult.
+- [28:01.630] But I'll tell you the best thing of all,
+- [28:03.140] how many of you have been with your doctor
+- [28:05.050] telling them something heartfelt, very emotional,
+- [28:07.700] and they're looking to the side, typing into their computer?
+- [28:10.710] It's common. Put your hands up. I just want to see it.
+- [28:13.110] Most everybody.
+- [28:14.320] That's unfortunate because the whole sacrament,
+- [28:16.870] the whole covenant of being with the doctors,
+- [28:18.940] having them look you in the eyes
+- [28:20.830] and realize you're there for each other,
+- [28:22.700] that process is going to go away.
+- [28:24.850] We will, within the workflow of doctors,
+- [28:27.130] be able with your help allow physicians
+- [28:28.920] to take care of patients,
+- [28:30.140] gather the information while they're doing it,
+- [28:31.990] and will destroy the upcoding that has hurt Medicare Advantage
+- [28:35.520] and other programs in a similar fashion.
+- [28:38.390] The IT infrastructure that's going to change promises
+- [28:41.260] to improve a lot of things.
+- [28:42.830] We're going to cut fraud, waste, and abuse.
+- [28:44.320] Mr. President, we announced, with the DOJ two weeks ago,
+- [28:46.660] a $15 billion bust. $15 billion.
+- [28:49.990] It's a multinational criminal syndicate based primarily,
+- [28:52.780] we believe, in the Soviet Union, in Russia,
+- [28:55.080] and what they did was hack using beneficiary numbers
+- [28:58.220] into the system. We'll be able to stop that,
+- [29:00.330] because of a system that Amy has put together,
+- [29:02.400] and the wonderful work of Amy Brandt has a fraud war room
+- [29:06.040] using this kind of technology because we'll know who you are
+- [29:08.700] and who your doctor is, we can block this.
+- [29:10.870] We're going to have remarkable advances
+- [29:13.130] in how consumers can use their own records.
+- [29:15.040] We'll have beneficiaries be able to get MAHA advice
+- [29:18.300] and prevention tips and even be able to nudge them
+- [29:20.340] and reward them perhaps for that.
+- [29:22.370] And all this comes back to one fundamental issue,
+- [29:25.330] Mr. President, which is leadership.
+- [29:27.400] I think 60 people, the biggest, the best, the willing,
+- [29:31.330] came forward because of your leadership,
+- [29:32.970] because you weren't going to take no for an answer
+- [29:34.890] and they know it.
+- [29:36.100] We are building a robust and safe,
+- [29:37.870] I emphasize that, safe system. It's going to protect the data
+- [29:40.880] better than we could have imagined.
+- [29:42.630] We're going to be able to accomplish goals
+- [29:44.740] that all of us wished from day one that they would be in place.
+- [29:48.110] These pledges are now confirmed, they're signed in public,
+- [29:51.300] and you have therefore empowered Americans to own their property,
+- [29:55.980] which is their medical records. Let me introduce Amy Gleason.
+- [29:58.920] She is acting director of DOGE, US Digital Service as well,
+- [30:02.580] and was actually the brilliant woman
+- [30:04.220] who pulled together the pieces of this puzzle
+- [30:06.160] with so many members of the audience. Amy Gleason.
+- [30:09.900] [applause]
+- [30:16.240] Amy Gleason: Good afternoon.
+- [30:17.730] First, I would like to thank President Trump
+- [30:19.490] for his leadership in this area,
+- [30:21.270] and Secretary Kennedy and Administrator Oz
+- [30:24.150] for driving this work with clarity and urgency.
+- [30:28.070] I would also like to thank my colleagues
+- [30:29.500] who have been instrumental to this
+- [30:30.830] and we've worked a lot of late nights
+- [30:32.270] and the hard times on this
+- [30:33.650] and it would not have been possible without them.
+- [30:36.790] I want to start today with my daughter Morgan,
+- [30:38.590] who's here in the audience. If you'd please stand up.
+- [30:42.100] I'm so inspired and energized by your strength every day,
+- [30:46.370] and we also have two other patients here,
+- [30:48.090] Randy and Tom, who have been very inspiring.
+- [30:50.960] Thank you for being here today. You're why this all matters.
+- [30:55.080] Let me start talking about my daughter's history.
+- [30:58.110] So 15 years ago, she was diagnosed with a rare disease.
+- [31:01.950] She was 11 years old
+- [31:03.220] and she started showing mysterious symptoms.
+- [31:05.720] Over the last year and a half after that,
+- [31:08.250] she saw the country's best doctors,
+- [31:10.380] but she still continued to get worse.
+- [31:13.530] At some point, she couldn't stand up off the floor
+- [31:15.940] or walk up the stairs and we still had no answers.
+- [31:19.640] I carried a binder of paper records
+- [31:21.730] to every doctor's appointment
+- [31:23.320] so that I could keep them aligned,
+- [31:25.560] and I truly believe that if one of those doctors
+- [31:28.010] had been able to see her whole history,
+- [31:30.030] they would've diagnosed her faster,
+- [31:32.040] and if we had just had today's AI,
+- [31:34.350] then they could have connected the dots that the humans missed.
+- [31:37.670] Today, Morgan takes 21 pills a day,
+- [31:40.090] gets two infusions a month, and has over 40 patient portals.
+- [31:44.600] Her disease is very rare,
+- [31:46.640] but her experience is very common,
+- [31:50.440] and that is what we're here to fix today.
+- [31:52.900] Too many patients are forced to remember all the doctors
+- [31:55.330] that they've been to and log into portal after portal,
+- [31:58.000] repeating their story at every visit,
+- [32:00.250] and they don't have the digital tools to help them stay well.
+- [32:03.960] Meanwhile, every other part of our life is digital.
+- [32:06.620] I can order groceries and have them delivered in minutes.
+- [32:09.510] I get personalized recommendations
+- [32:11.300] on my other apps, but in healthcare,
+- [32:13.490] we still see it on paper and manual situations.
+- [32:16.870] But today, thanks to President Trump, we're changing that.
+- [32:20.100] Over 15 years, we've tried to regulate
+- [32:22.460] our way to a better outcome
+- [32:24.310] and we have gotten a path forward,
+- [32:26.870] but they have not delivered the modern healthcare experience
+- [32:29.560] that Americans expect and deserve.
+- [32:32.380] I'm so proud today that these 60 companies
+- [32:35.050] have voluntarily stepped forward to make a pledge to take action
+- [32:38.570] and to join us to say, we're ready.
+- [32:40.700] Let's fix this. We're in.
+- [32:43.270] We're trying something different.
+- [32:44.880] It's not regulation or rule making,
+- [32:46.830] this is a voluntary alignment around a shared vision,
+- [32:50.040] a commitment to work across boundaries,
+- [32:51.990] across competitors, and across silos.
+- [32:54.490] We're bringing together data sharing networks,
+- [32:57.590] electronic medical records, doctors, health systems,
+- [33:00.780] payers and app developers,
+- [33:03.070] and we're asking one simple question,
+- [33:05.230] what can we do right now to make this work for patients?
+- [33:09.600] The companies pledging today are agreeing to collaborate,
+- [33:12.390] even with their direct competitors,
+- [33:14.100] because they know we can't keep kicking the can down the road.
+- [33:17.470] We have to stop talking about data interoperability
+- [33:20.240] and make the data flow. Here's something important.
+- [33:24.170] Not all patients will want these tools.
+- [33:26.230] Some will rely on their caregivers
+- [33:27.960] and others will rely on their doctors
+- [33:31.160] so they don't have to carry it themselves.
+- [33:33.070] But no matter how people engage,
+- [33:34.830] we must make sure it works for everyone.
+- [33:37.460] CMS is doing its part.
+- [33:39.220] We're clearing the path for innovation
+- [33:41.020] by building the long overdue national provider directory,
+- [33:44.270] a kind of digital map for health care
+- [33:46.340] that connects systems in real time
+- [33:48.390] and helps patients get more coordinated care.
+- [33:51.110] We're also modernizing medicare.gov
+- [33:54.140] to feel more seamless and smart like other apps we use.
+- [33:57.390] But the government can't do this and shouldn't do it alone.
+- [34:00.640] These tools we need to make daily decisions
+- [34:02.760] must come from the private sector,
+- [34:04.190] and that's why this is so important.
+- [34:06.480] So let me tell you what this might look like
+- [34:08.090] after our collaborative effort.
+- [34:10.100] So Morgan, in six months from now,
+- [34:11.820] might show up to her doctor's appointment,
+- [34:13.510] instead of filling out a clipboard
+- [34:15.190] with her 21 medications,
+- [34:17.330] 12 doctors and her entire medical history,
+- [34:20.140] she can just pull out her phone and tap or scan a QR code
+- [34:23.440] and seamlessly transfer her digital insurance card,
+- [34:26.840] her verified medical record and a digital summary
+- [34:30.050] that could help her provider get up to speed faster.
+- [34:32.680] We call this Kill the Clipboard, as President Trump said.
+- [34:36.270] After the visit, Morgan opens her AI assistant,
+- [34:38.770] a tool that she has authorized to access her records
+- [34:41.790] and ask, what did the doctor say today?
+- [34:44.090] What did these results mean? What should I watch for now?
+- [34:48.550] And the assistant responds using her actual health history,
+- [34:51.200] explains her care plan in plain language,
+- [34:53.860] helps her track her symptoms
+- [34:55.100] and even schedules follow-up visits if she needs them.
+- [34:58.430] And lastly, she has a new favorite app
+- [35:00.380] that helps her manage her chronic conditions,
+- [35:02.790] because for years, Morgan has said what other patients say,
+- [35:06.210] I only see a doctor a few days a year,
+- [35:08.320] but I live with this disease every day.
+- [35:11.590] Today we're starting with apps that can support patients
+- [35:14.260] 24 hours a day from anywhere in the world.
+- [35:17.150] They don't replace doctors, they just fill in the gap
+- [35:20.170] between visits so that care is continuous and not episodic.
+- [35:24.330] So what makes this effort different?
+- [35:26.540] Today we have all these apps
+- [35:28.060] that want to provide these services,
+- [35:29.780] but they can't get the data because it is so hard
+- [35:32.200] for patients to access their records.
+- [35:34.390] But today, we have 18 network companies who are here pledging
+- [35:38.050] to fix the infrastructure that makes this possible.
+- [35:41.180] They're doing this through modern data sharing networks
+- [35:43.760] that removes the burden on patients and providers
+- [35:46.510] and makes it available in real time using modern identity,
+- [35:49.780] just like when you check in at the airport.
+- [35:52.170] These honor patient privacy and transparency,
+- [35:55.010] and most importantly, it's a movement to work
+- [35:57.120] together to remove the friction that's holding us back,
+- [36:01.450] because access to information shouldn't be a luxury,
+- [36:04.140] it should be a standard.
+- [36:05.980] So for all the Morgans out there,
+- [36:07.640] come join this movement with us at cms.gov.
+- [36:10.860] Let's kill the clipboard and ax the fax.
+- [36:13.650] Let's help make health tech great again.
+- [36:16.020] Or in this case, maybe it's for the first time.
+- [36:19.200] Thank you President Trump.
+- [36:21.350] [laughter]
+- [36:26.325] [applause]
+- [36:31.600] The President: Thank you very much.
+- [36:32.880] That was great. Hello.
+- [36:34.520] You look very, very healthy to me.
+- [36:35.980] [laughter]
+- [36:37.210] You look really great.
+- [36:38.660] So just, I want to thank all of the companies that are here.
+- [36:41.690] These are big names, great people,
+- [36:46.170] and now you're doing something that's so important
+- [36:48.890] for our country, really for the world.
+- [36:51.130] It's beyond our country, I suspect.
+- [36:52.820] It's really for the world.
+- [36:54.290] So just keep it up, and you've hit new highs
+- [36:58.230] almost virtually every day for the last few months,
+- [37:02.020] and that makes your job probably a little bit easier.
+- [37:05.720] You're under very little stress,
+- [37:07.870] but someday you might have a little bit,
+- [37:10.020] but you're not going to have much.
+- [37:11.310] I think we're really going to great heights,
+- [37:13.320] but I just want to thank everybody,
+- [37:15.430] political people, and the teachers,
+- [37:17.860] and the companies and all of our cabinet.
+- [37:21.680] I even see Newt. Do I see Newt? I've seen Newt. Look at him.
+- [37:24.440] He's such a handsome man. He's a healthy man.
+- [37:27.160] We don't have to do any tests on him.
+- [37:28.680] [laughter]
+- [37:29.970] But good to see you, Newt.
+- [37:32.110] But I just want to thank everybody.
+- [37:33.620] This is a very big undertaking
+- [37:35.810] and it's a very serious undertaking.
+- [37:37.350] It's going to make a lot of people lead a much better life.
+- [37:40.490] Thank you all very much for coming.
+- [37:41.910] Appreciate it. Thank you.
+- [37:43.380] [applause]
+- [37:44.620] Thank you.
+- [37:45.830] [applause]
+- [37:47.030] Dr. Mehmet Oz: Can I call you about MSN?
+- [37:48.260] The President: Yeah. Dr. Mehmet Oz: Can we start –
+- [37:50.800] [music playing – God Bless
+- [38:16.000] America]

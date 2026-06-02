@@ -1,0 +1,181 @@
+<!-- source: https://www.youtube.com/watch?v=o2w-3TqcEgc -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: o2w-3TqcEgc -->
+<!-- date_published: 2025-10-05T16:39:41+00:00 -->
+<!-- date_accessed: 2026-06-02T01:13:47.233850+00:00 -->
+
+# Transcript: President Trump Gaggles with Press Before Departing the White House, Oct. 5, 2025
+
+- [00:00.640] President,
+- [00:02.900] [Music]
+- [00:06.799] >> this is a big day. We're gonna have a
+- [00:08.480] big day. Uh, one of the biggest. We're
+- [00:11.200] celebrating our navy and our military.
+- [00:14.080] We have the greatest military anywhere
+- [00:15.839] in the world, not even close, as you
+- [00:17.600] probably noticed. And we rebuilt it
+- [00:20.480] largely during my first term. And now I
+- [00:23.519] get to see it in action. So, we're going
+- [00:25.519] to have a very big day today. It's going
+- [00:27.039] to be very exciting.
+- [00:30.000] President
+- [00:32.480] for one more year. Would you like to do
+- [00:34.320] that? Said what? President Putin off to
+- [00:37.120] keep on for one more year and then
+- [00:40.239] hopefully negotiate the news. Sounds
+- [00:42.559] like sounds like a good good idea.
+- [00:45.200] >> Mr. President, will you follow the
+- [00:47.360] Palestinian Authority after the date
+- [00:49.840] after Hamas? Now, can you please explain
+- [00:52.079] me what is the purpose by doing this?
+- [00:54.399] It's affording Israel. We are paying to
+- [00:56.559] terrorists. They're paying salaries to
+- [00:58.239] terrorists. You can't afford Israel. My
+- [01:00.800] name is
+- [01:02.000] >> Well, it's a great deal for Israel and
+- [01:03.760] it's a great deal for everybody. And you
+- [01:05.920] want to get your hostages back, right?
+- [01:07.680] You want them back or do you not want
+- [01:08.880] them back?
+- [01:09.840] >> And it's a great deal for Israel. It's a
+- [01:12.159] great deal for the entire Arab world,
+- [01:14.240] Muslim world, and world. So, we're very
+- [01:16.799] happy about when do you think the
+- [01:18.960] hospital?
+- [01:20.720] >> I think very soon. They're in
+- [01:22.560] negotiation right now as we speak. Uh
+- [01:25.360] they've started the negotiation. We're
+- [01:27.600] going to ask a couple of days. We'll see
+- [01:29.119] how it turns out. But I'm hearing it's
+- [01:31.200] going very well.
+- [01:34.960] [Applause]
+- [01:41.920] Okay. So, we want to have it fixed. So,
+- [01:43.840] it was
+- [01:45.439] >> follow the judge's order in the
+- [01:46.960] military.
+- [01:49.040] >> We're going to look at that. It was
+- [01:50.479] amazing. Portland is burning to the
+- [01:52.720] ground. It's uh insurrectionists all
+- [01:55.600] over the place. It's Antifa. And yet the
+- [01:58.479] politicians who are petrified. Look, the
+- [02:00.880] politicians are afraid for their lives.
+- [02:02.799] That's the only reason that they say
+- [02:04.719] like there's nothing happening. And
+- [02:06.560] you've seen it. The place is burning
+- [02:09.039] down and they pretend like there's
+- [02:10.640] nothing happening. So, we'll take a look
+- [02:12.480] at the order. We haven't seen the order
+- [02:13.920] yet.
+- [02:14.720] >> You're gonna celebrate the Navy today.
+- [02:16.560] The Navy is deployed in the Caribbean
+- [02:18.239] against the cartels. What is the next
+- [02:20.160] step of this war against drug
+- [02:21.760] trafficking in South America?
+- [02:23.280] >> Well, we're going to stop drug
+- [02:24.879] trafficking and we've done a lot.
+- [02:26.720] There's nobody there's nobody coming in
+- [02:28.720] on the water. That I can tell you. The
+- [02:30.319] water is like there's nobody there's no
+- [02:32.959] drugs coming in on the water. And we'll
+- [02:35.360] take a look at what phase two is.
+- [02:37.760] made a big difference.
+- [02:42.750] [Music]
+- [02:45.519] >> We have very little, we don't need
+- [02:47.440] flexibility because everybody's pretty
+- [02:49.200] much agreed to it, but there'll always
+- [02:50.640] be some changes. But the Hamas plan, I
+- [02:53.440] tell you, it's amazing. You're going to
+- [02:54.800] have peace, if you think about it, peace
+- [02:57.440] in the Middle East for the first time
+- [02:59.519] in, they say really 3,000 years. So, I'm
+- [03:03.760] very honored to be a big part of that.
+- [03:06.239] Uh they've been fighting for a plan for
+- [03:08.959] years. We get the hostages back almost
+- [03:11.760] immediately. Negotiations are going on
+- [03:14.480] right now. Will probably take a couple
+- [03:16.319] of days and people are very happy about
+- [03:18.720] it.
+- [03:33.760] What's your reaction?
+- [03:34.799] >> Well, I disagree with that judge. I
+- [03:37.280] wasn't served well. If they put judges
+- [03:39.760] like that on, I wasn't served well by
+- [03:41.840] the people that pick judges. I can tell
+- [03:44.560] you uh things like that are just too
+- [03:48.159] bad. I appointed the judge and he goes
+- [03:51.040] like that. So, I wasn't served well.
+- [03:53.120] Obviously, I don't know the judge, but
+- [03:55.920] if he made that kind of a decision,
+- [03:58.480] Portland is burning to the ground. You
+- [04:00.799] have agitators, insurrectionisters. All
+- [04:03.680] you have to do is look at the look at
+- [04:05.439] the television, turn on your television,
+- [04:07.840] read your newspapers. It's burning to
+- [04:10.239] the ground. The governor, the mayor, the
+- [04:12.480] politicians are petrified for their
+- [04:14.480] lives. And you have a judge like that.
+- [04:16.560] He ought to be that judge ought to be
+- [04:18.720] ashamed of the governor. You say you're
+- [04:20.799] targeting the worst of the worst, but
+- [04:22.479] Governor Prrisker says that most of the
+- [04:24.160] people ICE has taken in his state have
+- [04:26.560] no criminal history, no criminal
+- [04:28.720] conviction. So which is it?
+- [04:30.080] >> He's wrong. Number one, he's wrong.
+- [04:31.919] Number two, I really believe he's afraid
+- [04:33.680] for his life. Somehow when you can have
+- [04:37.199] 40 or 50 people killed over the last
+- [04:40.479] couple of months, hundreds of people
+- [04:43.120] wounded, there's no place like that in
+- [04:45.680] the world. Hundreds of people wounded.
+- [04:48.880] 50 55 people shot and killed and
+- [04:53.600] Pritsker gets up and says what a
+- [04:55.280] wonderful place it is. They need help.
+- [04:58.560] Washington DC is now a safe place.
+- [05:01.840] You're not going to get mugged or hit.
+- [05:04.000] You're not going to get raped. You're
+- [05:05.520] not going to get anything. Washington DC
+- [05:08.240] went from a hell hole to a safe place. I
+- [05:11.440] love the way you nod. Is it true though?
+- [05:14.240] And people, a lot of the people right
+- [05:16.000] here were wait a lot of the people right
+- [05:18.560] here were mugged reporters. And you know
+- [05:21.520] what? You're safe now. Nothing. We got
+- [05:24.080] no crime. It took 12 days to solve the
+- [05:27.600] problem. 12 days.
+- [05:29.440] >> And we're going to do that in Chicago.
+- [05:31.600] We're going to do that in Portland. Now,
+- [05:33.360] Portland is different. That's a bunch of
+- [05:35.600] paid insurrectionists. But you have a
+- [05:37.759] lot of paid people in Chicago, too. I
+- [05:40.080] believe the politicians are under threat
+- [05:42.720] because there's no way somebody can say
+- [05:45.039] that things are wonderful in Chicago.
+- [05:48.000] Almost 55, I think it was 55 people over
+- [05:51.840] a short period of time have been
+- [05:53.919] murdered in Chicago
+- [05:56.400] have been shot.
+- [05:58.479] 222 people over a short period of time
+- [06:01.360] have been hit, have been wounded, not
+- [06:03.759] died. But 55 people died over a short
+- [06:06.800] period of time. You're telling me
+- [06:08.960] there's no city in the world like that.
+- [06:11.280] We're going to straighten it out. And I
+- [06:13.280] think that Pritskar, he's not a stupid
+- [06:15.199] person. I think that Pritskar is afraid
+- [06:17.360] for his life.
+- [06:19.199] >> President of their subsidies.
+- [06:21.600] >> We want to make it better.
+- [06:23.120] >> What about the layoff?
+- [06:25.199] >> You
+- [06:26.880] dem I call him Democrat layoffs. They're
+- [06:29.199] Democrat layoffs. They're causing it.
+- [06:31.840] We're ready to go back. You know, we
+- [06:33.840] have a record setting economy. We have a
+- [06:36.000] record setting country. Prices are way
+- [06:38.560] down. We're doing better than the
+- [06:40.319] country's ever done. And the Democrats
+- [06:42.639] hate seeing that. It's up to them.
+- [06:45.039] Anybody laid off, that's because of the
+- [06:46.960] Democrats. Thank you.
+- [06:49.039] >> Okay, let's go. Thank you. Thank you.

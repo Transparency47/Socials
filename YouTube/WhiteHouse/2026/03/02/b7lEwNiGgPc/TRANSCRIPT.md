@@ -1,0 +1,172 @@
+<!-- source: https://www.youtube.com/watch?v=b7lEwNiGgPc -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: b7lEwNiGgPc -->
+<!-- date_published: 2026-03-02T17:14:53+00:00 -->
+<!-- date_accessed: 2026-06-02T01:04:30.179082+00:00 -->
+
+# Transcript: President Trump provides an update on Operation Epic Fury at the White House
+
+- [00:00.000] So, before we begin this important
+- [00:02.120] ceremony, and there's no ceremony that
+- [00:04.720] can be much more important than this,
+- [00:07.000] let me provide a brief update on
+- [00:09.720] Operation Epic Fury.
+- [00:13.120] Today, the United States military
+- [00:14.920] continues to carry out large-scale
+- [00:17.040] combat operations in Iran
+- [00:19.600] to eliminate the grave threats posed to
+- [00:21.720] America by this terrible terrorist
+- [00:25.080] regime.
+- [00:27.240] Following our
+- [00:28.800] obliteration of Iran's nuclear program
+- [00:31.240] in Operation Midnight Hammer
+- [00:34.040] a short while ago,
+- [00:36.480] we warned Iran not to make any attempt
+- [00:38.680] to rebuild at a different location
+- [00:40.600] because they weren't able to use the
+- [00:42.520] ones we so powerfully blew up.
+- [00:47.000] But, they ignored those warnings and
+- [00:48.720] refused to cease their pursuit of
+- [00:50.520] nuclear weapons.
+- [00:52.200] In addition, the regime's conventional
+- [00:54.400] ballistic missile program was growing
+- [00:56.480] rapidly and dramatically,
+- [00:58.720] and this posed a very clear, colossal
+- [01:01.200] threat to America and our forces
+- [01:03.080] stationed overseas.
+- [01:05.440] The regime already had missiles capable
+- [01:07.480] of hitting Europe and our bases both
+- [01:10.120] local and overseas, and would soon have
+- [01:12.920] had missiles capable of reaching
+- [01:15.720] our beautiful America.
+- [01:18.120] The purpose of this fast-growing missile
+- [01:20.200] program was to shield their nuclear
+- [01:22.120] weapon development and make it
+- [01:24.200] extraordinarily difficult for anyone to
+- [01:26.440] stop them from making these highly
+- [01:28.200] forbidden
+- [01:29.520] by us nuclear weapons. We were the ones
+- [01:32.560] that were complaining. We were the ones
+- [01:34.360] that
+- [01:35.520] wanted it stopped, but everybody was
+- [01:37.200] behind us. They just didn't have the
+- [01:39.800] courage to say so.
+- [01:42.280] An Iranian regime armed with long-range
+- [01:44.640] missiles and nuclear weapons would be an
+- [01:46.720] intolerable threat
+- [01:49.080] to the Middle East, but also to
+- [01:51.840] the American people.
+- [01:54.000] Our country itself
+- [01:56.080] would be under threat, and it was very
+- [01:58.200] nearly under threat.
+- [02:00.360] I was very proud to have knocked out the
+- [02:02.280] Iran nuclear deal by
+- [02:04.760] President Barack Hussein Obama. That was
+- [02:07.040] a horrible, horrible, dangerous
+- [02:09.520] document. They would have had nuclear
+- [02:11.160] weapons
+- [02:12.480] 3 years ago and they would have used
+- [02:14.760] them.
+- [02:16.280] But I'll not let that happen.
+- [02:18.880] For almost 47 years this regime
+- [02:22.880] has been attacking the United States and
+- [02:24.800] killing Americans. Every time you see
+- [02:26.640] someone with missing arms and legs
+- [02:29.440] or a face that's been absolutely
+- [02:31.240] shattered violently,
+- [02:33.400] it was almost certainly caused by an
+- [02:35.160] Iran
+- [02:37.080] roadside bomb.
+- [02:38.840] They were put there by
+- [02:41.560] General Soleimani,
+- [02:43.880] who was the father of the roadside bomb,
+- [02:46.720] very proudly he thought.
+- [02:49.800] But I terminated him in
+- [02:52.880] my first term.
+- [02:54.840] This was our last best chance to strike
+- [02:57.880] what we're doing right now and eliminate
+- [03:00.200] the intolerable threat posed by this
+- [03:03.200] sick and sinister regime
+- [03:06.120] and they are indeed sick and sinister.
+- [03:09.320] Our objectives are clear. First, we're
+- [03:12.959] destroying Iran's missile capabilities
+- [03:15.720] and you see that happening on an hourly
+- [03:17.560] basis and their capacity to produce
+- [03:20.480] brand new ones and pretty good ones they
+- [03:22.400] make.
+- [03:23.400] Second, we're annihilating their navy.
+- [03:26.360] We've knocked out already 10 ships.
+- [03:29.600] They're at the bottom of the sea. Third,
+- [03:31.400] we're ensuring that the world's number
+- [03:33.640] one sponsor
+- [03:35.400] of terror
+- [03:36.760] can never obtain a nuclear weapon. Never
+- [03:39.160] going to have a nuclear weapon. I said
+- [03:40.600] that from the beginning. They're never
+- [03:41.920] going to have
+- [03:43.160] a nuclear weapon. They were on the road
+- [03:44.720] to getting one
+- [03:46.200] legitimately
+- [03:47.959] through a deal that was signed foolishly
+- [03:50.640] by
+- [03:51.640] our country.
+- [03:53.120] And finally, we're ensuring that the
+- [03:55.000] Iranian regime cannot continue to arm,
+- [03:57.920] fund, and direct terrorist armies
+- [04:00.880] outside of their borders.
+- [04:03.720] And we thought we had a deal, but then
+- [04:05.760] they backed out and
+- [04:07.360] and they came back and we thought we had
+- [04:08.880] a deal and they backed out. I said, "You
+- [04:10.440] can't deal with these people."
+- [04:12.280] You got to do it the right way.
+- [04:14.720] Today, we grieve for the four heroic
+- [04:17.120] American service members who have been
+- [04:18.959] killed in action and send our love and
+- [04:22.320] support to their families.
+- [04:24.800] In their memory, we continue this
+- [04:26.400] mission with ferocious, unyielding
+- [04:29.200] resolve to crush the threat this
+- [04:31.600] terrorist regime poses to the American
+- [04:33.680] people and
+- [04:35.160] a threat indeed it is. We have the
+- [04:37.760] strongest and most powerful, by far,
+- [04:41.440] military in the world
+- [04:43.480] and we will easily prevail.
+- [04:46.360] We're already
+- [04:49.000] substantially ahead of our time
+- [04:51.320] projections, but whatever the time is,
+- [04:53.680] it's okay. Whatever it takes, we will
+- [04:55.440] always
+- [04:57.480] and we have from right from the
+- [04:59.120] beginning beginning, we projected four
+- [05:01.000] to five weeks.
+- [05:02.760] But we have capability to go far longer
+- [05:06.440] than that. We'll do it. Whatever
+- [05:08.520] Somebody said today, they said, "Oh,
+- [05:10.680] well, President wants to do it really
+- [05:12.440] quickly. After that, he'll get bored." I
+- [05:14.040] don't get bored.
+- [05:15.800] There's nothing boring about this. Do
+- [05:17.480] you agree with that, Peter? I don't
+- [05:18.960] think there's anything Mr. General I
+- [05:20.800] think there's nothing boring about it.
+- [05:23.400] Somebody actually said
+- [05:25.160] from the media, "I think he'll get bored
+- [05:27.240] after about a week or two." No, we don't
+- [05:28.960] get bored. I never get bored.
+- [05:31.200] If I got bored, I wouldn't be standing
+- [05:32.560] here right now. I guarantee you that. To
+- [05:34.720] go through what I had to go through.
+- [05:37.400] We also
+- [05:39.080] projected four weeks to terminate
+- [05:42.000] the military leadership and as you know,
+- [05:43.960] that was done in about an hour. So,
+- [05:45.560] we're ahead of schedule there by a lot.
+- [05:49.520] But please join me in thanking every
+- [05:51.360] American service member who bravely is
+- [05:54.120] standing in harm's way. They really are
+- [05:56.360] incredible and I just want to thank you.
+- [05:57.880] We have a lot of them right here. Thank
+- [05:59.480] you very much. Thank [applause] you.

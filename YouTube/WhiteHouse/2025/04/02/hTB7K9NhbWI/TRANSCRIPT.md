@@ -1,0 +1,593 @@
+<!-- source: https://www.youtube.com/watch?v=hTB7K9NhbWI -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: hTB7K9NhbWI -->
+<!-- date_published: 2025-04-02T23:24:05+00:00 -->
+<!-- date_accessed: 2026-06-02T01:28:31.675819+00:00 -->
+
+# Transcript: Senior WH Officials Budowich, Miller, & Leavitt have a discussion on Tariffs with US Trade Rep Greer
+
+- [00:00.040] I think people are tired of seeing the
+- [00:01.360] United States ripped off our allies have
+- [00:04.080] taken advantage of us more so than our
+- [00:06.879] enemies Golden Eye For An ey I will
+- [00:09.160] never apologize for defending America we
+- [00:12.000] had the worst trade deals now we have
+- [00:13.280] the best trade deals my end game is I
+- [00:15.280] don't want to have a big deficit we will
+- [00:17.119] pass the Trump reciprocal trade act
+- [00:20.359] groups like this get together quite
+- [00:22.160] frequently before announcements like
+- [00:24.480] Liberation day today and we talk through
+- [00:27.840] what the president's decision is um
+- [00:30.279] what's the purpose of that decision and
+- [00:32.439] how it's going to be implemented and
+- [00:33.600] then we strategize on how to communicate
+- [00:35.760] it to the American people um that
+- [00:38.600] communication usually goes through the
+- [00:39.879] media they pick and choose the facts
+- [00:42.239] they want to focus on and the narratives
+- [00:43.840] they want to drive and so we thought we
+- [00:46.680] do it a little bit differently this time
+- [00:48.559] take out the media and show the American
+- [00:50.719] people what the conversation like that
+- [00:52.320] we normally have um get into the details
+- [00:55.800] the thinking and the purpose of this and
+- [00:58.519] how it's in through the shortterm long
+- [01:00.359] term is going to affect the American
+- [01:02.559] people Stephen you've been with the
+- [01:04.680] president for a long time um you were a
+- [01:07.159] part of the first Administration and
+- [01:08.640] some of the battles um economically
+- [01:11.840] taxes um that had historic impacts on
+- [01:16.159] improving the
+- [01:17.680] economy today's a big
+- [01:20.040] day can you talk about the president's
+- [01:23.079] historical view on global trade and the
+- [01:27.119] tool of tariffs or the use of tariffs
+- [01:29.759] that that he envisions not just through
+- [01:32.640] Liberation day today but how he's used
+- [01:35.759] it over the years yes well the
+- [01:39.439] announcement today is the most
+- [01:42.200] significant action on global trade
+- [01:45.000] policy that has taken place in our
+- [01:47.439] lifetimes it's not even a close call uh
+- [01:50.079] I mean this is this is probably the
+- [01:51.320] biggest event that's happened on global
+- [01:53.360] trade uh since um the very ill- fated
+- [01:57.640] decision uh this that we are now
+- [01:59.399] reversing
+- [02:00.840] of knocking down all of America's trade
+- [02:05.880] uh tariffs and revenue policies that led
+- [02:08.160] to the offshoring and Outsourcing of all
+- [02:09.720] for industry so this is the great
+- [02:10.800] reversal of that great portrayal is how
+- [02:12.760] we look at it so in the 20th century
+- [02:15.879] successive American Presidents knocked
+- [02:18.480] down all of the policies that we had to
+- [02:20.879] protect American industry and they did
+- [02:22.640] insane things like letting China into
+- [02:24.200] the World Trade Organization as an
+- [02:25.959] example and we watched all of our
+- [02:28.200] factories go overseas this is the
+- [02:30.680] complete reversal of that this is the
+- [02:32.800] great onshoring the great reshoring of
+- [02:35.480] American jobs and wealth so if you look
+- [02:37.840] at America today we're totally dependent
+- [02:40.120] on foreign countries for the supplies
+- [02:43.120] that make this country run for all of
+- [02:44.840] the essential Goods materials
+- [02:47.400] manufactured products that make it
+- [02:48.959] possible for us to to live our lives our
+- [02:51.360] our cars our
+- [02:53.319] Electronics all the materials that go
+- [02:55.440] into our homes our buildings our our
+- [02:59.000] medical supplies
+- [03:00.360] our our entire Supply chains are
+- [03:02.879] completely embedded in foreign countries
+- [03:04.879] so if there's a National Emergency of
+- [03:06.720] any kind and a and a country shuts off
+- [03:09.840] an import or a foreign power embargos a
+- [03:13.000] sea Lane we are then left defenseless
+- [03:15.920] helpless because of the decisions that
+- [03:18.120] prior leaders made that we that
+- [03:21.080] President Trump is now reversing to let
+- [03:23.239] all of these industries leave our
+- [03:24.599] country and so what he's doing today is
+- [03:27.360] for the first time ever he's saying that
+- [03:30.720] if you have stolen our jobs and
+- [03:32.360] therefore threatens our national
+- [03:33.439] security we will apply a reciprocal
+- [03:35.200] tariff based on the degree of your
+- [03:37.760] misconduct so for countries like China
+- [03:40.599] for example they will see a very high
+- [03:42.519] tariff rate because they've engaged in
+- [03:44.000] the most egregious conduct that threaten
+- [03:45.799] as our national security uh for
+- [03:47.799] countries that have severe but not as
+- [03:50.439] severe misconduct uh they'll see a a
+- [03:54.040] moderate but not as high tariff rate the
+- [03:56.680] effect though of those global tariffs
+- [03:59.319] will be that companies will have to move
+- [04:01.480] their production back into the United
+- [04:03.560] States so factories will leave whether
+- [04:05.760] it be Mexico or Canada or Vietnam or
+- [04:08.720] Cambodia or China or the European Union
+- [04:11.680] they will come back to the United States
+- [04:13.280] to produce their products to make their
+- [04:15.799] goods and in so doing yes it will create
+- [04:18.759] jobs yes it will increase revenues but
+- [04:21.199] most importantly it will restore our
+- [04:23.320] national security so that we will not be
+- [04:25.280] dependent on anyone else to survive and
+- [04:27.840] thrive as a nation that's the
+- [04:29.160] significance we're talking about today
+- [04:30.960] the most important economic event of our
+- [04:32.680] lifetime and Stephen he didn't just wake
+- [04:34.840] up this morning and say I want to
+- [04:36.639] implement tariffs you talk about the
+- [04:38.479] National Security crisis but this is
+- [04:40.479] something the president has thought
+- [04:42.160] about discussed contemplated for years
+- [04:45.440] decades yes his his entire professional
+- [04:47.680] life if you go back to interviews with
+- [04:50.160] President Trump u in the
+- [04:52.560] 1970s um he's been speaking passionately
+- [04:54.919] about this issue and he warned for
+- [04:56.919] example in the 1980s about all of our
+- [05:00.440] critical Industries moving to at that
+- [05:02.199] time Japan and he warned for years as
+- [05:04.880] well about the loss of our automotive
+- [05:06.400] industry which is an essential element
+- [05:07.759] for National Security those Supply
+- [05:09.039] chains are essential for our ability to
+- [05:12.120] protect and defend our country to make
+- [05:14.160] Automobiles and he's been focused on
+- [05:16.240] this issue for decades he took out an
+- [05:19.000] entire onepage ad in the New York Times
+- [05:21.479] in the 80s talking about the threat of
+- [05:23.800] Japanese mercantilism and all the unfair
+- [05:25.800] Trade Practices they had that were
+- [05:27.000] killing our manufacturing so so Jameson
+- [05:29.160] the devil's the details as they say what
+- [05:31.800] are the details of this plan sure well
+- [05:34.039] Ste Stephen just highlighted some of
+- [05:35.680] these first of all we're doing a
+- [05:37.360] reciprocal tariff right this is a golden
+- [05:39.840] rule for the Golden Age we treat them
+- [05:42.120] how they treat us as Stephen mentioned
+- [05:44.280] we expect that those countries that
+- [05:45.720] treat us very poorly where they have
+- [05:47.680] documented Behavior over many years of
+- [05:49.560] whether it's high tariff levels or
+- [05:51.600] extreme trade barriers or taxes or other
+- [05:54.319] kind of charges that discriminate
+- [05:55.639] against our companies or or burden our
+- [05:57.680] companies they are naturally going to
+- [05:59.880] have higher rates because to achieve the
+- [06:01.520] kind of reciprocity we need you have to
+- [06:02.960] have a higher rate and then there are
+- [06:04.400] going to be other countries that have a
+- [06:05.960] lower rate because maybe they have a
+- [06:07.160] different level of unfairness or
+- [06:09.120] non-reciprocity and we expect there will
+- [06:11.039] be a global minimum on all countries
+- [06:12.960] because we we have to deal with this
+- [06:14.440] deficit we also want to make sure that
+- [06:16.000] there's no cheating that we don't have
+- [06:17.240] people going from one jurisdiction to
+- [06:19.280] another to try to get around the Tariff
+- [06:20.840] we need to make sure that we have no
+- [06:22.319] loopholes in this policy because as
+- [06:24.240] Steven points out it's an emergency the
+- [06:26.599] urgency of what's happening right now
+- [06:28.720] cannot be overstated that that's why the
+- [06:30.360] president on day one announced he wanted
+- [06:32.440] us to look into us into it we looked
+- [06:34.479] into it over the past couple of months
+- [06:36.599] and we're taking action the day after we
+- [06:38.400] reported back to him I have I have right
+- [06:40.319] here a book full of all of the unfair
+- [06:42.759] Trade Practices by our top 100 Partners
+- [06:44.840] we published it just a couple days ago
+- [06:46.319] and you said something interesting they
+- [06:48.080] some countries will try to get around
+- [06:49.599] the tariffs by shipping their product
+- [06:51.800] through another country they store it
+- [06:53.400] there for a couple months and then it
+- [06:55.599] all becomes a the sale of another
+- [06:57.400] country can you talk through how that
+- [06:58.360] works sure well well we we're stopping
+- [07:00.080] that uh we don't want a situation where
+- [07:02.680] uh China for example might just send a
+- [07:04.240] bunch of parts down to Vietnam Vietnam
+- [07:06.400] you know puts them together in a light
+- [07:08.120] assembly and sends it over and says this
+- [07:09.479] is a product of Vietnam at at this point
+- [07:12.039] you know we will have the kinds of
+- [07:13.280] tariffs we need and a broad-based tariff
+- [07:15.639] to stop that kind of behavior and of
+- [07:17.199] course we're going to be very very
+- [07:18.360] focused on enforcement to make sure
+- [07:19.680] nobody does that kind of thing and we
+- [07:21.199] use and the media uses the word tariff
+- [07:23.960] very broadly what kind of tariffs are
+- [07:26.800] there and how do they work oh certainly
+- [07:29.240] I I I mean we have for example rice
+- [07:33.879] Japan in some instances will put a 700%
+- [07:36.319] tariff on Rice so if United States wants
+- [07:38.039] to export rice to Japan where they eat a
+- [07:40.400] lot of rice Japan will charge a 700%
+- [07:43.759] rate on that Rice it's incredible right
+- [07:46.680] ours is much lower apples in the United
+- [07:48.440] States if you want to import some if you
+- [07:50.240] want to import apples into the United
+- [07:51.560] States it's duty-free it's a 0% tariff
+- [07:54.159] but if we're going to go to you know
+- [07:55.720] India it's it's about 50% if you want to
+- [07:57.520] go to Turkey inste American apples to
+- [07:59.159] Turkey it's a 60% tariff and so it it
+- [08:02.000] prevents it but that's not even the
+- [08:03.159] worst part the worst part are the
+- [08:04.400] non-tariff barriers where they use fake
+- [08:06.599] science or fake standards or other
+- [08:08.479] barriers to keep out our things and
+- [08:10.919] Caroline obviously Jameson thinks a lot
+- [08:13.159] about this um it's why he's the
+- [08:15.960] US how should the normal American person
+- [08:19.960] the consumer think about tariffs well
+- [08:22.599] first of all to the average American
+- [08:24.440] who's watching at home and trying to
+- [08:26.599] understand what this means for them
+- [08:28.199] don't buy into the media is lies uh in
+- [08:30.840] the fear that they're going to try to
+- [08:32.599] instill in you uh after this
+- [08:35.039] announcement because we know that's
+- [08:36.560] exactly what the media will try to do
+- [08:38.919] the president is looking out for the
+- [08:40.479] average American worker who has been
+- [08:42.120] ripped off by the elite political class
+- [08:44.519] for decades and so what does this tariff
+- [08:47.279] policy look like as Jameson so brilliant
+- [08:49.760] brilliantly said it's the golden rule
+- [08:51.480] for the Golden Age of America we're
+- [08:53.560] finally going to be treated the way
+- [08:55.440] we're going to treat other countries the
+- [08:56.720] way that we've been treated for too long
+- [08:58.240] the president's going to put American
+- [08:59.880] workers for first but what does it look
+- [09:01.800] like think about your hometown where you
+- [09:03.920] grew up in the Heartland in Middle
+- [09:05.920] America factories that have been
+- [09:07.880] abandoned workers who have been put out
+- [09:09.800] of jobs drug addicted generations of of
+- [09:12.640] children and of families because there
+- [09:14.800] aren't good industry here at home there
+- [09:16.560] is not good Industries here at home in
+- [09:18.040] their hometowns the president wants to
+- [09:19.839] restore that prosperity and that wealth
+- [09:22.079] more money in people's pockets the media
+- [09:24.240] will also continue to talk a lot about
+- [09:26.040] prices and what this will do to prices
+- [09:28.040] and the American people need to
+- [09:29.640] understand that the president will
+- [09:31.920] effectively Implement these tar tariffs
+- [09:34.320] while also having a whole of government
+- [09:36.399] approach to bring down the cost of
+- [09:38.320] living in this country there was an
+- [09:40.000] inflation nightmare created by the
+- [09:41.880] previous administration and while
+- [09:43.720] simultaneously implementing these Fair
+- [09:45.920] Trade Practices to put America First the
+- [09:48.320] president is going is already ma
+- [09:50.360] launching a massive deregulatory
+- [09:52.279] campaign a massive energy boom where gas
+- [09:55.399] prices are already coming down inflation
+- [09:57.240] is Cooling and so it's an all hands on
+- [09:59.839] com you're see across theard now and and
+- [10:03.519] it's important to understand and I think
+- [10:05.200] Caroline you've talked about this a lot
+- [10:07.600] this is Decades of failed political
+- [10:10.480] leadership we're not going to get in get
+- [10:12.880] get over it or change it without some
+- [10:14.720] fundamental reform um it's Biden
+- [10:18.000] Administration definitely accelerated it
+- [10:20.320] but this was decades of economic
+- [10:28.320] misstruck is Monumental change the
+- [10:30.880] president is focused on restructuring
+- [10:32.880] the global economy on restructuring our
+- [10:35.360] domestic economy as well and um the
+- [10:38.279] politicians in this city have not seen a
+- [10:40.079] president who is actually willing to
+- [10:41.600] take the steps to implement such change
+- [10:44.120] really in modern history um so believe
+- [10:47.040] in this President he was elected for a
+- [10:48.920] reason because he's looking out for the
+- [10:50.440] American people across our country and
+- [10:52.399] today is the first day of that in terms
+- [10:54.399] of trade and tariffs that's why we call
+- [10:56.000] it Liberation day that's right on the
+- [10:59.000] can you what is the goal here what
+- [11:01.120] should the American people look forward
+- [11:02.800] to what is the hope and dream that we're
+- [11:05.399] trying to pursue so if you went to a
+- [11:08.880] store in America in say the
+- [11:12.560] 1950s and you looked at where the
+- [11:14.839] products were made it would have said
+- [11:16.200] made in the USA that would have been the
+- [11:17.680] stamp you would have seen on everything
+- [11:19.279] from the toys that your children buy to
+- [11:21.120] the clothes that you wear uh to the cars
+- [11:23.440] that you buy and everything in between
+- [11:25.839] it you know if you grew up in the 1980s
+- [11:27.839] you would have seen a lot of things
+- [11:29.800] still St made in the USA but a lot less
+- [11:32.440] uh by the time you get to the early
+- [11:33.920] 2000s after NAFTA after China's entering
+- [11:36.880] into the World Trade Organization after
+- [11:38.920] other disastrous trade deals it started
+- [11:41.160] to look more like we see it now where
+- [11:42.639] you go to the store and everything is
+- [11:44.839] stamped made in the foreign country made
+- [11:46.760] in Romania made in Thailand made in
+- [11:48.920] Cambodia made in Malaysia made in China
+- [11:52.160] but not made in the USA so that means
+- [11:54.639] those good high-paying jobs that should
+- [11:56.760] be here in America are not here in
+- [11:58.320] America at the same time it also means
+- [12:00.760] that for a lot of the more advanced
+- [12:02.440] manufacturing jobs these are essential
+- [12:04.920] industries that could be converted at a
+- [12:07.360] moment's notice to core National
+- [12:09.000] Security needs and so when you don't
+- [12:11.160] have those factories you don't have the
+- [12:13.839] training and you don't have the the
+- [12:16.639] workforce to be able to meet our
+- [12:18.639] nation's needs in a time of an emergency
+- [12:20.760] so we are we are Outsourcing to other
+- [12:22.839] countries the things that we need to
+- [12:24.279] keep America safe the end result of this
+- [12:27.440] is going to be far more high-paying
+- [12:29.680] manufacturing jobs these are jobs where
+- [12:31.600] you can support a family you get a
+- [12:33.360] retirement plan you get a pension you
+- [12:35.680] have good health care you're paid well
+- [12:38.839] well above um what you would consider to
+- [12:41.160] be uh the living wage for these new
+- [12:44.079] Advanced manufacturing jobs these are
+- [12:46.279] these are jobs you can build a family
+- [12:47.720] and a community around at the same time
+- [12:50.079] it's going to relieve inflation because
+- [12:52.519] it's actually the most cost effective to
+- [12:54.320] make things in the United States of
+- [12:55.360] America people don't think about this
+- [12:56.680] but all those products you see on the
+- [12:58.560] store shelves that are shipped from
+- [12:59.959] thousands of miles away we have to we're
+- [13:02.320] paying the cost of all that shipping
+- [13:04.079] built into the price of the good so it's
+- [13:06.079] actually more economically efficient
+- [13:07.680] particularly with Advanced manufacturing
+- [13:09.320] techniques to have these factories in
+- [13:11.519] the United States near where you live
+- [13:13.480] putting products on your store shelves
+- [13:15.160] not having to ship things all over the
+- [13:16.959] globe so you're actually going to see
+- [13:18.519] prices go down because our our products
+- [13:20.720] are being built and manufactured here in
+- [13:22.440] the United States the most important
+- [13:23.639] point to understand is that tariffs do
+- [13:26.760] not apply to any product that is made in
+- [13:29.600] the United States so the the original
+- [13:32.120] sin of how the modern economy in America
+- [13:34.199] is structured the president talks about
+- [13:35.639] more than anything else and I guess to
+- [13:38.000] Caroline's point about um the overall
+- [13:40.560] economic Vision the original sin was
+- [13:43.079] that we created a tax system that
+- [13:44.880] punished you for making something in
+- [13:46.440] America and rewarded you for making
+- [13:48.600] something in China or a foreign country
+- [13:50.440] so words if you had your factory in
+- [13:51.720] America you paid a Sky High corporate
+- [13:53.680] tax rate you were beaten to death with
+- [13:55.399] regulation you had radically
+- [13:57.040] unaffordable Energy prices and
+- [13:59.079] Washington just in every way made your
+- [14:00.560] life miserable and the political class
+- [14:02.639] didn't do anything about it they allowed
+- [14:04.120] it to happen they sat by and watched it
+- [14:06.759] happen for decades they actually wanted
+- [14:08.399] the opposite to happen especially if you
+- [14:10.079] look at at the 90s when we had NAFTA we
+- [14:12.440] had the WTO we had the entry of China
+- [14:14.360] into the WTO the goal the goal very
+- [14:17.600] clearly was to remove us tariff and
+- [14:20.000] trade barriers to make it easier for
+- [14:21.959] people to Outsource to China because
+- [14:24.079] once we gave China what we call
+- [14:25.839] permanent normal trade relations all of
+- [14:28.079] your manufacturers United States who are
+- [14:29.920] thinking in you know short terms in
+- [14:31.440] terms of quarterly earnings and that
+- [14:32.800] kind of thing they said listen now I can
+- [14:34.440] go move my Factory from Indiana or
+- [14:36.959] wherever I can put it in China I can put
+- [14:38.600] it in Mexico and I know I will have sure
+- [14:41.000] access to the US market today president
+- [14:43.759] Trump is saying the best place to make
+- [14:45.959] American products and sell American
+- [14:47.279] Products is here in America if you make
+- [14:48.639] an America you're not going to have a
+- [14:49.399] ter think about how pricious that deal
+- [14:52.360] is that he's describing that was made
+- [14:54.240] this was done by the bushes this was
+- [14:56.959] done by the clintons this was done by
+- [14:58.639] many American Administration Republicans
+- [15:01.519] and Democrats Republicans and Democrats
+- [15:04.000] was they said to the factory owner if
+- [15:06.320] you really want to be competitive you
+- [15:08.160] need to move your factory to China
+- [15:10.120] that's the best way to sell into America
+- [15:12.560] and so all of a sudden you're living in
+- [15:13.759] a community uh where one day there's
+- [15:15.680] these thriving Factory towns and the
+- [15:17.040] next day all the factories are in
+- [15:18.199] Shanghai and so I point about the
+- [15:19.920] original sin it was the sin of saying
+- [15:21.920] that we were going to get the most
+- [15:23.000] favorable treatment to foreign
+- [15:24.160] production the least favorable treatment
+- [15:25.440] to American production it's completely
+- [15:27.199] inverted right so the president is
+- [15:28.720] saying today is the opposite of that if
+- [15:31.360] you have your factory in America you pay
+- [15:33.079] no tariff we are going to reduce your
+- [15:35.240] taxes and we're going to reduce your
+- [15:36.519] regulations and reduce your energy cost
+- [15:38.079] so you're going to get the best possible
+- [15:39.440] deal but you have to do it here and to
+- [15:41.480] anyone questioning the effectiveness of
+- [15:43.800] the president's trade and tariff agenda
+- [15:45.800] look at what has happened before
+- [15:47.440] Liberation day we have had billions and
+- [15:49.839] billions of dollars 2.7 now great
+- [15:52.800] Investments yes into our country you
+- [15:55.839] have some of the biggest companies in
+- [15:57.279] the world like apple and Hyundai today
+- [15:59.399] announcing investments in American
+- [16:01.680] communities that are jobs in these
+- [16:03.440] communities that's Manufacturing in
+- [16:05.279] these communities those are American
+- [16:07.279] families who are going to now be able to
+- [16:08.800] live the American dream because of these
+- [16:10.319] Investments and the tariffs haven't even
+- [16:12.120] been implemented so president Trump is
+- [16:14.199] serving as America's businessman and
+- [16:16.079] chief America's negotiator and chief by
+- [16:18.319] encouraging and incentivizing for once
+- [16:20.600] finally for these companies to do
+- [16:22.519] business here we have the labor we have
+- [16:24.360] the resources we have the best Market in
+- [16:26.120] the world there's no reason we shouldn't
+- [16:27.920] have a president who's trying Champion
+- [16:30.079] America in America First policies in
+- [16:31.959] Carolina or he he identified the problem
+- [16:35.319] and he's got a solution but you spoke to
+- [16:36.839] this before tariffs are a big part of
+- [16:39.319] the solution here but it's not the only
+- [16:41.360] part right company's coming in he's
+- [16:44.079] we've we've all been sitting in meetings
+- [16:45.639] with him where he says what is your
+- [16:47.839] problem for coming back what's getting
+- [16:49.399] in your way is it regulations let's
+- [16:51.360] solve that problem the president just
+- [16:52.639] had he talked about it in a press
+- [16:54.079] conference this week he had stantis Big
+- [16:55.720] C manufacturer some of the best brands
+- [16:57.759] that there is and he says what is your
+- [16:59.399] problem he say all the regulations you
+- [17:01.440] have California that's just crippling
+- [17:03.360] car manufacturing with their erroneous
+- [17:05.839] green green new scam uh regulations we
+- [17:09.079] need to pull him back the president gets
+- [17:10.400] on the phone he wants to bring companies
+- [17:12.720] back he wants to bring jobs back he
+- [17:14.120] wants to bring wealth back he wants to
+- [17:15.839] make things more affordable Jameson how
+- [17:18.799] is he doing that well well well let's
+- [17:21.280] remember that he has a great track
+- [17:22.480] record if you look at the first term the
+- [17:24.319] president used tariffs to great effect
+- [17:26.679] and he and he coupled it with great tax
+- [17:29.120] bill great energy policy all things
+- [17:30.600] we're talking about now and what
+- [17:31.720] happened in the first term inflation
+- [17:33.640] went down unemployment down went down
+- [17:35.600] real median household income went up for
+- [17:38.400] every demographic I mean this is
+- [17:39.960] incredible we had manufacturing jobs
+- [17:42.039] went up so we know it can be done he's
+- [17:43.880] already he's already done it before
+- [17:45.679] we're a couple months in we're already
+- [17:47.000] doing it now he knows exactly how to use
+- [17:48.799] the tools of the economy whether they're
+- [17:50.160] trade tools and tariffs or other tools
+- [17:52.400] to really make sure that America can be
+- [17:53.919] competitive that American workers can
+- [17:55.400] have good jobs and American families can
+- [17:56.880] have prosperity in their communities
+- [17:58.280] where they live and we want to wrap this
+- [17:59.679] up so Stephen Caroline some last
+- [18:03.000] messages what do you think the biggest
+- [18:04.600] takeaway of today is and what should the
+- [18:07.080] American public look forward to well I
+- [18:09.000] think at a at a fundamental
+- [18:10.840] philosophical level when you talk about
+- [18:12.360] America First it gets down to this who
+- [18:15.799] should have Priority Access to the US
+- [18:17.799] market should it be the factory that's
+- [18:19.880] located in Cleveland or should it be the
+- [18:23.320] factory that's located in Beijing that's
+- [18:25.440] the fundamental question the the radical
+- [18:29.159] left corporate media the globalist
+- [18:31.520] corporate media that is attempting to
+- [18:33.679] criticize this plan take the view that
+- [18:36.000] the best place to put your factory
+- [18:38.240] should be in Beijing or Shanghai or
+- [18:42.159] Bangkok or anywhere by the United States
+- [18:43.919] of America the president's view is we
+- [18:47.120] should do everything in our power to
+- [18:48.640] make it so that the best place to put
+- [18:50.200] your factory is in an American town so
+- [18:52.880] we get all the benefit we get the
+- [18:54.720] economic benefit we get the social
+- [18:56.400] benefit we get the community benefit and
+- [18:57.919] most importantly we get the the national
+- [18:59.240] security benefit of having our critical
+- [19:01.559] IND Industries here in America and
+- [19:03.720] that's why we're calling it Liberation
+- [19:04.960] day because he is freeing us from a
+- [19:08.080] global economic system that has made us
+- [19:10.159] subservient to foreign Nations and
+- [19:11.880] foreign powers and Stephen on that book
+- [19:14.039] this is means it's not a short-term
+- [19:16.000] solution this is a philosophical belief
+- [19:19.799] in a future for America and so for those
+- [19:22.240] looking for predictability we hear that
+- [19:24.799] word a lot you can predict this policy
+- [19:27.960] will remain in in effect correct the
+- [19:29.880] predictability is the absolute
+- [19:33.080] certainty that this program will remain
+- [19:36.039] in effect that we will continue to have
+- [19:38.520] policies and continue to have tariffs
+- [19:41.679] that will ensure that we have the
+- [19:44.120] National Security needs of our country
+- [19:45.960] met and that means American industry
+- [19:48.200] inside of the United States of America
+- [19:50.080] it's actually the most stable and
+- [19:51.280] predictable policy because everyone in
+- [19:53.520] the world knows if I want to sell to
+- [19:55.880] America just move your factory to
+- [19:57.480] America nothing is clear more stable
+- [20:00.039] more predictable than that you want to
+- [20:01.600] sell to Americans then get your company
+- [20:04.159] get your business get your plant and
+- [20:05.720] move it to America that is the most
+- [20:07.840] predictable and on top of that we're
+- [20:09.760] going to have regulatory certainty tax
+- [20:12.000] certainty and energy certainty so this
+- [20:13.840] is the definition of certainty and
+- [20:15.679] predictability and to your point it's
+- [20:16.799] not a short-term fix it's the total
+- [20:18.640] realignment of the global trade system
+- [20:20.760] to put America First Caroline what's our
+- [20:22.880] closing message here closing message is
+- [20:25.039] every taxpaying citizen in this country
+- [20:27.760] should be incredibly excited about
+- [20:29.720] Liberation day president Trump is
+- [20:31.400] delivering on exactly what he said he
+- [20:33.120] was going to do for you the golden a age
+- [20:35.440] of America more jobs more wealth more
+- [20:37.480] Prosperity more security right here at
+- [20:39.640] home

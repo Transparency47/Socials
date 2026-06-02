@@ -1,0 +1,1094 @@
+<!-- source: https://www.youtube.com/watch?v=1ZYvjXDZ-2E -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 1ZYvjXDZ-2E -->
+<!-- date_published: 2025-05-02T01:33:37+00:00 -->
+<!-- date_accessed: 2026-06-02T02:50:48.772614+00:00 -->
+
+# Transcript: President Trump Delivers Remarks at the University of Alabama Commencement
+
+- [01:13.040] The President: Thank you, coach.
+- [01:14.840] Wow. What a nice looking group this is.
+- [01:20.130] What a beautiful group of people.
+- [01:25.500] And especially a very big hello to the University of Alabama.
+- [01:29.750] Congratulations to the class of 2025.
+- [01:34.180] Roll tide. Roll tide.
+- [01:43.460] There are things that happen in life that are very important
+- [01:47.430] and you always remember where you were when they happened.
+- [01:51.500] As a student at Alabama you'll always remember
+- [01:56.010] where you were when your head coach Nick Saban retired.
+- [02:00.580] Remember that?
+- [02:02.220] Because he's done such a fantastic job.
+- [02:04.500] The last time I was here… And that's true with Nick.
+- [02:08.120] What a great coach. Let's bring him back.
+- [02:10.500] No, you have a good coach right now though.
+- [02:12.000] You have a good coach right now. He was great.
+- [02:18.160] But the last time I was here, the Crimson
+- [02:19.960] Tide beat the Georgia Bulldogs, 41 to 33.
+- [02:27.940] I was here. I got to watch it. That was some game.
+- [02:31.500] Today, it's my pleasure to return to this campus
+- [02:34.090] as the first president ever to deliver
+- [02:36.500] to the keynote commencement address
+- [02:38.350] to this truly great American university.
+- [02:41.300] It's a great school.
+- [02:46.490] And there's nowhere I'd rather be than right here
+- [02:49.380] in Tuscaloosa, Alabama.
+- [02:51.190] Titletown USA, that's what it's become.
+- [02:56.580] And I love this place.
+- [02:57.860] Maybe it's because I won Alabama by 45 points.
+- [03:01.240] Could that be the reason?
+- [03:04.620] The way they say like the polls have closed in Alabama,
+- [03:08.140] Trump has won Alabama immediately.
+- [03:09.940] It was very quick.
+- [03:12.060] It was very, very quick and nasty.
+- [03:13.850] That's what we like.
+- [03:15.850] They put all seven of your commencement ceremonies,
+- [03:18.700] I don't know if you know this,
+- [03:20.060] but they put them all together first time ever,
+- [03:22.010] so I better do well or I'm in big trouble.
+- [03:25.890] But I want to thank President Bell
+- [03:27.740] for his 10 years of distinguished service,
+- [03:29.900] highly respected gentleman,
+- [03:32.110] but 10 years of service to this great university
+- [03:35.080] overseeing the education of 100,000 proud
+- [03:38.490] Alabama graduates.
+- [03:39.750] That's something to have on your record.
+- [03:42.090] I also want to thank Alabama Governor Kay
+- [03:44.390] Ivey, who's here with us, and she's a fantastic…
+- [03:47.280] Where is? She's around here someplace.
+- [03:53.440] She's here. I just took a picture.
+- [03:56.200] I said, you're doing a great job.
+- [03:58.260] Along with the very wonderful man,
+- [04:00.340] a friend of mine, Senator Tommy Tuberville.
+- [04:02.760] Where's Tommy? Tommy's good.
+- [04:08.970] When he wanted to run for the Senate,
+- [04:10.960] I said, well, you beat Alabama six times in a row.
+- [04:15.730] How can you run for the Senate?
+- [04:17.870] He said, well, I just look at him and I say,
+- [04:19.820] well, I was responsible for them getting Nick Saban.
+- [04:22.750] I said, that's a good reason. And he won.
+- [04:25.680] Very easily he won, but I'll never forget that.
+- [04:28.940] Thanks also to a wonderful person,
+- [04:32.400] Representative Lisa McClain, a great person,
+- [04:35.750] great, highly respected, Gary Palmer, Robert Aderholt,
+- [04:40.780] Dale Strong, Ronnie Jackson, Ralph Norman,
+- [04:45.120] along with Lieutenant Governor Will Ainsworth, Alabama Attorney
+- [04:49.580] General Steve Marshall, Alabama Secretary of State Wes
+- [04:53.970] Allen, great people.
+- [04:55.760] Alabama Senate President Pro Tem
+- [04:59.000] Garlan Gudger, Chancellor Sid
+- [05:02.470] Trant and members of the University of Alabama
+- [05:06.550] Board of Trustees.
+- [05:08.270] But most importantly, and they would agree with this,
+- [05:11.310] let's give a big round of applause
+- [05:13.100] to your incredible parents,
+- [05:15.160] grandparents, and family members.
+- [05:23.240] As they made this wonderful day possible.
+- [05:26.370] [inaudible]
+- [05:28.060] great. Without them, it doesn't happen.
+- [05:30.160] Without them, you probably aren't here
+- [05:32.020] and you wouldn't have that big beautiful smile on your faces.
+- [05:35.900] This year, the graduating Alabama class of 2025
+- [05:39.730] has over 6,600 graduates.
+- [05:43.250] You're the largest class in school history.
+- [05:46.170] Among your ranks are among the 800
+- [05:49.300] first-generation college students
+- [05:51.350] and nearly 3000 students from right here
+- [05:54.380] in the great state of Alabama. Amazing.
+- [06:03.120] And this class also includes many Rhodes Scholars,
+- [06:06.600] Goldwater Scholars, 213 Merit Scholars,
+- [06:11.720] and over 1,500 students graduating with red caps.
+- [06:15.580] You know what that signifies? 4.0 GPA.
+- [06:19.490] That's a lot of students. That's a lot of students.
+- [06:25.780] [inaudible] That's pretty good.
+- [06:32.130] I know who I'd pick. I'd look for a red cap.
+- [06:34.200] I'd say I want you to work for the beautiful
+- [06:36.480] Trump administration, this lovely administration.
+- [06:40.990] In addition, the class of 2025
+- [06:43.310] has nearly 130 active duty service members,
+- [06:46.520] veterans and members of the University of Alabama
+- [06:49.940] ROTC. Thank you very much. Thank you.
+- [06:57.390] Everywhere you look,
+- [06:58.670] you can see the fierce spirit of this school,
+- [07:02.000] but nowhere more clearly than in your world-class athletics
+- [07:06.480] is nothing like it, probably., There's no school like it.
+- [07:10.300] That's why I would like to recognize
+- [07:11.970] the 11 graduating seniors
+- [07:13.990] on the University of Alabama Football Team.
+- [07:16.430] Where may they be? Where are they?
+- [07:18.910] You just have to look and they're about a foot taller
+- [07:21.100] than everybody else.
+- [07:23.880] Oh, great. Thank you very much. Congratulations. Great season.
+- [07:27.560] Thank you. Thank you. Great season.
+- [07:35.360] There was something truly special about the players,
+- [07:38.460] coaches and the fans who packed the stands
+- [07:40.720] at Bryant-Denny Stadium
+- [07:43.180] and proudly sing Dixieland Delight.
+- [07:45.920] We like that.
+- [07:48.300] Alabama has changed college football
+- [07:50.690] forever and inscribed into the history books,
+- [07:54.090] the names of Bear Bryant,
+- [07:55.960] Joe Namath, four Heisman Trophy winners,
+- [07:58.960] and of course the great Nick Saban.
+- [08:09.380] This place is truly where legends are made.
+- [08:12.100] It really is. It's a special place.
+- [08:14.860] When your president called, we talked about it.
+- [08:16.970] It took me about two seconds to say, I'll go.
+- [08:20.030] I wasn't looking to do it. And we are busy.
+- [08:23.050] We're winning a lot of battles right now.
+- [08:25.380] We love winning. Don't we love winning?
+- [08:26.920] We're winning a lot of battles.
+- [08:29.910] But I wanted to do this.
+- [08:32.830] For the University of Alabama good isn't good enough,
+- [08:35.620] tough isn't tough enough and great isn't great enough.
+- [08:38.350] The Crimson Tide does not rest,
+- [08:40.980] does not quit and does not stop winning until it's all time.
+- [08:47.080] It's all time. You're always winning
+- [08:48.960] and you're going to keep winning.
+- [08:50.350] That's why the University of Alabama Football Team
+- [08:53.670] has won more games in the last decade
+- [08:56.250] than any college football team in America.
+- [08:58.720] That's not bad.
+- [09:06.580] And it's why last fall you beat Auburn
+- [09:08.760] for the fifth year in a row.
+- [09:10.360] That's not bad. That's not bad.
+- [09:16.750] The University of Alabama has a brand
+- [09:19.630] and that brand is winning.
+- [09:21.470] That brand is winning. Great school.
+- [09:24.330] Last year, the Crimson Chaos watched the Tide hoops
+- [09:28.320] make it to the Final Four for the first time ever,
+- [09:31.650] and this year you built on your incredible record
+- [09:34.300] and returned to the Elite Eight.
+- [09:36.700] So not only is Alabama a great football school,
+- [09:39.420] it's now one of the nation's best basketball schools
+- [09:42.320] and congratulations.
+- [09:50.740] And I love sports and I think I should have come here.
+- [09:54.730] I think I should have come here.
+- [09:56.190] Congratulations as well to the women's track and field team
+- [09:59.600] for winning two SEC titles this year, that's something.
+- [10:07.030] And as long as I'm president,
+- [10:08.740] we will always protect women's sports.
+- [10:10.840] Men will not play in women's sports.
+- [10:20.820] No way. No way.
+- [10:27.830] They say that's an 80/20 issue. No, it's a 97/3 issue I think.
+- [10:33.010] No men will not be playing in women's sports.
+- [10:37.620] I said that and I classified it
+- [10:40.180] with a very powerful executive order, as you know it's done.
+- [10:43.870] The class of 2025 was the first to enter
+- [10:46.680] the halls of this university in the aftermath of COVID-19.
+- [10:51.260] Following a difficult senior year of high school
+- [10:53.820] many of you came here to Tuscaloosa
+- [10:56.630] from around the country and for the very first time
+- [10:58.960] you experienced something called freedom.
+- [11:01.700] You had freedom.
+- [11:05.410] So let's give a big round of applause
+- [11:07.510] to the leaders of the state who chose liberty over lockdowns.
+- [11:11.220] They did. They did. Good job.
+- [11:22.720] As you know, there are a few campuses
+- [11:24.710] in the world more beautiful than this one,
+- [11:27.020] and there are a few memories sweeter
+- [11:28.570] than the ones you have formed really at this capstone,
+- [11:32.270] and at the capstone you'll miss
+- [11:34.490] the beautiful sounds of Denny Chimes,
+- [11:37.310] the excitement of lining the Walk of Champions,
+- [11:39.970] the Saturday tailgates at the Quad.
+- [11:42.670] As you graduate, it's natural to reflect
+- [11:45.410] on four years of happy memories
+- [11:47.670] and you've really had happy memories here.
+- [11:49.510] You've done a lot of winning. Winning is a good thing to do.
+- [11:53.710] But today I am also asking you to look forward
+- [11:55.950] to really something very, very bright and more promising,
+- [12:01.010] and it's going to be an even more promising tomorrow.
+- [12:03.540] I promise you that.
+- [12:05.170] You are the first graduating class
+- [12:07.310] of the golden age of America. We're in the golden age.
+- [12:10.480] You watch, this is the golden age.
+- [12:17.780] This is the golden age.
+- [12:19.230] We've done things that nobody thought possible.
+- [12:21.600] 100 days yesterday.
+- [12:23.670] 100 days, and we've done things
+- [12:26.170] that nobody thought even possible.
+- [12:32.210] Like many generations before you you're graduating
+- [12:35.180] at an exciting time for our nation,
+- [12:37.090] a period of both extraordinary change and incredible potential
+- [12:41.300] and what will be unbelievable growth.
+- [12:43.930] You're going to see that very soon.
+- [12:45.350] You're going to see it starting very, very soon.
+- [12:48.690] Whole world is talking about it.
+- [12:50.820] Our country has always been defined by its ability
+- [12:53.560] to reform and reinvent itself,
+- [12:56.020] to meet the challenges of the next era.
+- [12:59.470] The last four years were not good for our country.
+- [13:02.840] But don't let that scare you, it was an aberration.
+- [13:06.540] We're run by people who truly, at that time, four years,
+- [13:11.540] we were run by people that didn't have a clue.
+- [13:15.160] They didn't have a clue,
+- [13:16.830] and I'm trying to be nice when I say it that way.
+- [13:20.650] They allowed our beautiful USA to be laughed at,
+- [13:23.380] scorned and taken advantage of by everybody.
+- [13:27.010] We were ripped off on trade by nations all over the world,
+- [13:30.110] both friend and foe,
+- [13:31.410] and oftentimes a friend was far worse on trade than the.
+- [13:35.190] But those days are over.
+- [13:37.090] You're at the start of something very, very big.
+- [13:39.260] You're going to see that very soon.
+- [13:40.680] Now, exactly 250 years after the first patriots
+- [13:45.040] stood and fought at Lexington and Concord
+- [13:48.100] we're in the midst of another kind of revolution,
+- [13:50.420] a revolution of winning and a revolution of common sense.
+- [13:54.340] Common sense.
+- [14:04.360] Everywhere you look,
+- [14:06.100] broken systems, corrupt institutions and tired dogmas
+- [14:10.400] are being swept away by the tide of history.
+- [14:13.380] Ancient wisdom is being rediscovered,
+- [14:15.700] and the best and strongest traits of America
+- [14:17.990] are coming back for all to see, bigger, better,
+- [14:21.530] and greater than ever.
+- [14:23.120] Coming back, and they're coming back fast.
+- [14:25.230] The spirit of our age is one of boldness,
+- [14:28.460] vigor, ambition, and adventure.
+- [14:30.880] And it's exciting to be you and young.
+- [14:33.550] Oh, I'd pay you a lot of money to have your age.
+- [14:38.050] You have a great future.
+- [14:39.460] The people have rejected the voices
+- [14:41.430] of a failed establishment. You saw that in the election.
+- [14:44.960] We've turned the page on endless wars,
+- [14:47.200] crippling debt, open borders, ruinous inflation,
+- [14:50.530] and the lack of respect for our country and for its leaders.
+- [14:54.540] But we're turning that all around
+- [14:56.470] and we're turning it around very fast.
+- [14:58.870] We will very quickly make America great again.
+- [15:20.420] This week we're celebrating the most successful first 100 days
+- [15:24.700] of any presidential administration
+- [15:27.160] in the history of our country.
+- [15:28.400] And we've been given a lot of credit for that.
+- [15:30.180] But 100 days does not have full term make.
+- [15:33.280] But we're going to do even better as we move along.
+- [15:35.700] In a matter of weeks, we've achieved the lowest number
+- [15:38.300] of illegal border crossings ever recorded.
+- [15:48.580] And you've seen it hundreds of thousands of people
+- [15:50.990] pouring into our country,
+- [15:52.390] from prisons, from mental institutions,
+- [15:56.470] from gangs and all over the world,
+- [15:58.560] not just in South America.
+- [16:01.360] You'd see hundreds of thousands of people
+- [16:03.350] pour course in one day.
+- [16:05.170] You know what, we had just recently?
+- [16:07.310] Three. Three. Three.
+- [16:13.940] And we slashed the number of illegal aliens
+- [16:16.770] released into the United States by 99.999%.
+- [16:23.570] And if that number's wrong, the fake news,
+- [16:28.700] which is all over the place today,
+- [16:31.370] is going to be correcting me
+- [16:33.190] before I get to the next sentence.
+- [16:36.270] Now, 99.999%. How about that?
+- [16:40.180] Nobody thought that was possible.
+- [16:41.760] They said you needed legislation.
+- [16:43.430] No, you just needed a new president.
+- [16:45.120] That's what you needed.
+- [16:53.280] But despite the tremendous success,
+- [16:55.670] as you've been reading, the courts are trying to stop me
+- [16:58.110] from doing the job that I was elected to do.
+- [17:00.980] We won by millions of votes. We won all seven swing states.
+- [17:04.450] Seven out of seven.
+- [17:06.260] We won 312 electoral college votes.
+- [17:09.200] They said, oh, 270 would be great.
+- [17:12.030] We won 312 and 2,750 counties
+- [17:16.690] versus 525 counties throughout the nation.
+- [17:20.710] That's why when you look at a map, it's all red.
+- [17:23.290] It's all red. Every inch of it is red.
+- [17:25.970] A little couple of blue dots.
+- [17:30.410] But they have to let us do the job
+- [17:32.540] that the voters want us to do.
+- [17:34.110] Judges are interfering supposedly based on due process.
+- [17:38.480] But how can you give due process
+- [17:40.390] to people who came into our country illegally?
+- [17:42.950] They want to give them due process.
+- [17:45.050] I don't
+- [18:43.530] know.
+- [18:56.530] But the price of food
+- [18:57.850] has gone down and mortgage rates are down,
+- [18:59.990] and gasoline prices just hit $1.88 a gallon in three states.
+- [19:06.990] Can you believe it? It was at 3.50.
+- [19:10.040] It was at four… We're drilling. Oh, we're drilling.
+- [19:13.230] You know drill baby drill, right?
+- [19:14.740] We drill baby drill. We do that.
+- [19:17.310] We got it down. We have it going good.
+- [19:19.150] And when energy drops that much, you don't have much inflation.
+- [19:22.790] It's hard to have inflation.
+- [19:24.540] It was just announced that in the first quarter,
+- [19:26.640] investments in the United States are up 22%,
+- [19:30.890] that we're leading the whole world in investment.
+- [19:33.410] Everybody's pouring into our country big dollars.
+- [19:36.930] And it's all about November 5th, the November 5th election,
+- [19:40.220] and tariffs and incentives that we've given
+- [19:43.080] that are going to make this country so much richer.
+- [19:45.690] We have $36 trillion in debt
+- [19:49.350] that's going to start to come off,
+- [19:50.660] it's going to come off rapidly.
+- [19:52.140] But we'll be over $8 trillion in investment with Apple
+- [19:57.490] and others investing $500 billion each.
+- [20:01.420] We've never had a period of time in two months,
+- [20:04.360] because we're here for three months, a little bit more,
+- [20:07.160] but give me a break for the first month,
+- [20:08.830] had to get a little acclimated. Had to see where the enemy lies.
+- [20:12.150] They're already looking to impeach Trump,
+- [20:14.290] these crazy people. Let's impeach him. For what?
+- [20:16.690] We don't know exactly, but we'll try.
+- [20:19.580] These people are crazy.
+- [20:21.480] So we had to get our bearings for the first couple of weeks.
+- [20:25.030] So in two months we had over $8 trillion,
+- [20:29.380] think of it, committed.
+- [20:31.490] Nobody's ever seen anything like it.
+- [20:33.220] There's never been anything like it in any country at any time
+- [20:36.070] and it's all because they want to avoid the tariffs.
+- [20:38.500] We want to get here fast.
+- [20:41.510] I said a number of times, tariff,
+- [20:44.040] it's the most beautiful word in the world.
+- [20:45.630] And I got absolutely decimated by the fake news.
+- [20:48.830] They said, what about love? What about your wife?
+- [20:52.550] What about your parents? What about religion and God?
+- [20:56.900] So I said, all right, it's the fifth-nicest word
+- [20:59.400] I've ever seen,
+- [21:00.810] and since I've done that, I've been in good shape.
+- [21:02.890] Nobody's bothered me. They've been very nice.
+- [21:05.520] So it's the fifth most beautiful word I've ever heard,
+- [21:08.610] but it's making us very rich
+- [21:10.140] and you'll be seeing the results pretty soon,
+- [21:12.900] sooner than most people think.
+- [21:14.790] Because that's what other countries have been doing to us.
+- [21:16.890] Just so you understand,
+- [21:18.100] they were tariffing the hell out of us.
+- [21:19.700] We couldn't sell cars in Europe. We couldn't sell cars in China.
+- [21:23.480] We couldn't sell cars in Japan or anywhere else.
+- [21:25.940] We couldn't do anything.
+- [21:27.620] And all we're doing is we're doing it to them,
+- [21:29.730] but we're doing it much better.
+- [21:31.750] And the US military is suddenly seeing
+- [21:33.650] its best recruiting numbers ever.
+- [21:35.690] We've never had numbers like that.
+- [21:43.930] We now have waiting lists
+- [21:45.380] because there is such incredible spirit in our country.
+- [21:48.360] There's a great spirit. And just think six months ago,
+- [21:51.950] and you remember, it was embarrassing,
+- [21:54.490] before the election six months ago we were hearing
+- [21:57.130] and reading that numbers of those joining our military
+- [22:00.120] were at the worst levels ever.
+- [22:02.700] We've never had anything like it, right?
+- [22:04.590] You remember that?
+- [22:05.840] And now they're at the best levels ever.
+- [22:08.090] We have waiting lists to get into the military.
+- [22:14.860] We couldn't fill the positions.
+- [22:17.160] And that included in our police forces, our fire departments.
+- [22:20.670] We love our fire departments also.
+- [22:22.390] We can never forget our fire departments.
+- [22:25.170] But our police forces were begging for help,
+- [22:29.860] and now they're brimming over with people and applicants
+- [22:32.610] and they're getting great ones.
+- [22:34.040] It's amazing what's taken place, and that's really the spirit.
+- [22:36.980] Each of the graduates in this arena
+- [22:39.340] will soon have the chance to help
+- [22:40.920] lead this project of national renewal.
+- [22:44.760] And that's what it is. It's a national renewal.
+- [22:47.760] We suffered so badly for four years.
+- [22:49.870] We had one of the greatest economies.
+- [22:52.130] We actually had the greatest economy
+- [22:53.690] in the history of our country during the first term of Trump,
+- [22:57.930] and then we got hit hard with inflation
+- [23:02.200] during the Biden economy. It was horrible.
+- [23:04.630] We were hit so hard. The worst probably ever.
+- [23:07.590] They say 48 years, we'll accept that.
+- [23:10.210] But I would say ever.
+- [23:11.810] You'll embrace this moment and you'll step forward
+- [23:14.080] with strength and grit, faith and patriotism
+- [23:16.920] to put America on a new trajectory for your children.
+- [23:20.740] And then you'll take your place
+- [23:22.650] among the greatest generations in the history of our country.
+- [23:25.610] I think you have a chance to be the greatest generation
+- [23:29.000] in the history of our country
+- [23:30.210] because we're turning it around and you happen to be available.
+- [23:35.090] You're available.
+- [23:41.540] That's a good time to be available.
+- [23:44.040] There are some times when it's not so good to be available,
+- [23:47.550] but this is a great time.
+- [23:48.830] I'm absolutely confident that the Alabama class of 2025
+- [23:53.180] is up to the task. Are you up to the task?
+- [23:59.590] You learned a lot about winning here at Alabama,
+- [24:02.160] and now we need you to help win for America.
+- [24:07.040] For the business majors here today
+- [24:09.920] I challenge you not merely to use your talents
+- [24:13.190] for financial speculation,
+- [24:15.500] but to apply your great skills that you've learned
+- [24:18.060] and had to forging the steel
+- [24:20.730] and pouring the concrete of new American factories,
+- [24:23.790] plants, shipyards, and even cities
+- [24:25.840] which are going up all over our country.
+- [24:28.680] Don't just build a strong portfolio.
+- [24:31.300] Build a very, very strong America,
+- [24:33.680] and you're going to do that.
+- [24:42.030] To the engineers, brilliant you are, technician,
+- [24:45.720] scientists and math majors, we need your Alabama spirit
+- [24:50.610] and competition to keep our country
+- [24:53.050] at the forefront of every single domain.
+- [24:57.180] America should have the world's tallest buildings,
+- [24:59.740] designed the fastest airplanes, build the greatest cars,
+- [25:03.030] do everything the absolute best,
+- [25:05.320] better than any other nation in the world,
+- [25:07.530] and you can do it.
+- [25:08.830] And we will soon land American astronauts on Mars.
+- [25:11.920] That will happen. That will happen.
+- [25:20.720] In every field you have studied
+- [25:23.230] there are problems to be solved and breakthroughs to be made.
+- [25:27.070] To the journalism majors of which I've had a lot problems
+- [25:31.830] with, I must be honest.
+- [25:34.110] I'm not sure I like them. No, I do. I do.
+- [25:37.690] But you're really leading [inaudible 02:02:51]
+- [25:39.550] because we need a great and free press.
+- [25:41.620] We need a brilliant press. They're like a watch-keeper.
+- [25:44.140] They're very important, and you can go out
+- [25:46.300] and take it down a new track.
+- [25:49.440] Help save the country. So important.
+- [25:54.150] Your task is so important,
+- [25:55.890] and it's to build a media that Americans can trust.
+- [25:59.120] And remember, the people of this country
+- [26:01.950] they know the truth when they hear it.
+- [26:03.980] That's why the ratings,
+- [26:07.100] the approval numbers of the media are so low.
+- [26:09.080] We need those ratings to be 100%.
+- [26:12.180] We have to be able to trust our media.
+- [26:14.260] They say you have to have that, you need strong, strong borders,
+- [26:18.960] and you need really free, fair, clean elections.
+- [26:21.880] You need those things.
+- [26:23.130] But the media is a big part of it.
+- [26:25.190] In the world of health and medicine,
+- [26:26.780] there is an exciting new movement
+- [26:29.120] to get poisons out of our food supply,
+- [26:31.690] keep toxins out of our government,
+- [26:38.730] clean out our environment, and make America healthy again.
+- [26:43.700] And I think Bobby's going to do a great job, don't you?
+- [26:46.440] I think so. I think he's the guy we needed.
+- [26:53.230] And in government, it is the task of your generation
+- [26:56.430] to replace bureaucracy, graft,
+- [26:58.360] and waste with a new system that defends American freedom.
+- [27:02.870] These are big tasks before you,
+- [27:04.890] but the reward for your hard work
+- [27:07.160] will be the United States of America is stronger,
+- [27:10.310] prouder, better, and more unified than ever,
+- [27:14.500] ever, ever before, it's going to be.
+- [27:25.150] As you embark on this great adventure,
+- [27:27.180] let me share some of the biggest lessons
+- [27:29.260] I've learned from a lifetime spent building dreams
+- [27:31.870] and beating the odds.
+- [27:33.310] I've beat a lot of odds. A lot of odds.
+- [27:36.100] A lot of people said, I don't know.
+- [27:39.170] But it worked out okay. Where are we?
+- [27:40.790] Oh gee, I'm president. How did that happen?
+- [27:45.280] Now you're going to be in the same position.
+- [27:47.220] But, would you like to hear some of the ideas
+- [27:49.800] or should I just skip over that part? Huh?
+- [27:52.360] That's going to be more interesting
+- [27:53.780] than all the other stuff, which was slightly political, right?
+- [27:58.300] I'm going to give it to you though, just as I see it
+- [28:00.410] and as I've learned it the hard way and the easy way.
+- [28:02.590] First, if you are here today
+- [28:05.830] and think that you're too young to do something great,
+- [28:09.460] let me tell you that you are wrong.
+- [28:11.060] You're not too young.
+- [28:12.340] You can have great success at a very young age.
+- [28:15.090] You're all very young.
+- [28:16.710] In America with drive and ambition young people
+- [28:19.260] can do anything.
+- [28:21.300] I was 28 when I took my first big gamble
+- [28:23.780] to develop a hotel in midtown Manhattan, the Grand Hyatt,
+- [28:27.950] and it worked out incredibly well.
+- [28:30.580] But I was very young at the time.
+- [28:32.130] I was a very young person in sort of an old person business.
+- [28:36.400] Steve Jobs was 21 when he founded Apple.
+- [28:39.010] Walt Disney was 21 when he founded Disney.
+- [28:42.170] James Madison, James Monroe,
+- [28:44.400] Alexander Hamilton, Thomas Jefferson,
+- [28:47.890] They were no older than 25
+- [28:49.940] when they began the journeys that etched their names
+- [28:52.880] into the history books for all time.
+- [28:55.570] So to everyone here today, don't waste your youth.
+- [28:58.520] Go out and fight right from the beginning,
+- [29:00.500] from the day you leave this incredible university,
+- [29:03.290] go out and fight.
+- [29:04.880] Fight tough, fight fair, but go out and fight.
+- [29:08.220] You're going to be very successful
+- [29:09.560] because now is the time to work harder
+- [29:11.520] than you've ever worked before.
+- [29:13.350] Push yourself further
+- [29:14.690] than you have ever pushed yourself before.
+- [29:18.070] Find your limits and then smash through everything.
+- [29:21.440] Go and smash through.
+- [29:23.360] You've watched that football team smash through,
+- [29:25.850] you're going to do the same thing.
+- [29:30.930] You're at the age when you have the time and vitality
+- [29:33.980] to do really incredible things if you just give it your all.
+- [29:39.620] You'll look back and a decade from now,
+- [29:42.940] you'll be astounded by what you've achieved.
+- [29:45.230] You'll remember this day.
+- [29:46.560] You'll remember when the guy named Trump
+- [29:49.290] was giving the commencement address
+- [29:51.100] and he said, I could do it. And guess what? I did.
+- [29:53.440] I think you're going to remember that very fondly.
+- [29:55.440] I hope so.
+- [30:02.910] Second of all, and very importantly,
+- [30:05.000] you have to love what you do. You have to.
+- [30:09.090] I rarely see somebody that's successful,
+- [30:11.280] that doesn't love what he or she does.
+- [30:13.760] That's way you really, like work isn't work.
+- [30:18.280] It's fun. I find it fun.
+- [30:20.690] I work all the time and I find it fun.
+- [30:22.470] If I didn't find it fun, I wouldn't be successful.
+- [30:24.580] Whether it was real estate or in show biz,
+- [30:28.160] had a lot of different careers, but I loved real estate so much
+- [30:31.520] and I was very successful at real estate
+- [30:34.010] because I loved it.
+- [30:35.250] I learned a lot from my father because I watched him work.
+- [30:38.130] He worked 70… He was a workaholic.
+- [30:39.920] He worked. He loved to work. He was a good man.
+- [30:42.410] He was a tough guy. Tough as hell, actually.
+- [30:45.000] Now that I think back,
+- [30:46.480] I don't know if you could even get away with that nowadays.
+- [30:48.640] He was tough, but he was a good man, I'll tell you.
+- [30:51.700] And he worked seven days a week.
+- [30:53.240] He worked Saturdays, Sundays. It didn't matter.
+- [30:56.590] And I learned by watching him. He loved his life.
+- [30:58.910] He loved what he was doing. Had a great long-term marriage,
+- [31:02.660] a long, long, many, many, many years.
+- [31:05.200] He beat me on that one.
+- [31:08.650] Mine are very successful,
+- [31:09.980] but haven't lasted quite as long.
+- [31:11.980] It was close to 70 years. It was a long time.
+- [31:16.130] Said, "Pop, you beat me on that one."
+- [31:18.440] But you know what I learned from him?
+- [31:20.400] That he loved life, and all he did was work.
+- [31:23.280] I see people that don't work hard,
+- [31:24.780] and they're miserable, so go out and find.
+- [31:27.490] But he loved what he was doing.
+- [31:29.470] And you have to find something that you love,
+- [31:31.480] and you have to follow your own instincts.
+- [31:33.980] Listen to your parents. They're very wise,
+- [31:35.660] but you have to follow your instincts
+- [31:38.550] and your heart, your soul,
+- [31:40.830] and you want to be the very, very best you can be.
+- [31:43.170] Treat every day like a home game against Auburn.
+- [31:46.740] Fight like hell and enjoy doing it.
+- [31:49.820] And your coach can tell you all about that.
+- [31:52.940] Third thing is to think big.
+- [31:54.670] You're going to do something, you might as well think big,
+- [31:58.060] because it's just as tough. You can think small.
+- [32:00.460] I know a lot of people, they thought small.
+- [32:02.690] They're very smart.
+- [32:04.200] I know others that weren't nearly as smart,
+- [32:06.080] but they had a better picture of the big picture
+- [32:09.310] because it's just as hard to solve a small problem
+- [32:11.670] as a big problem.
+- [32:12.950] And it's just as much energy and everything else
+- [32:15.820] except the result is going to be a smaller one.
+- [32:18.090] So, love what you do, but think big if it's possible.
+- [32:21.930] Now, if it's not possible, that's okay too.
+- [32:24.570] You do something, you have to do something that you love.
+- [32:26.960] You will have all the same headaches and challenges,
+- [32:30.550] all the same delays and setbacks.
+- [32:32.450] So, you might as well do something that's just amazing.
+- [32:35.630] America doesn't aim small.
+- [32:37.280] Alabama doesn't aim small, and neither do you.
+- [32:40.350] So, think big when possible. Think big.
+- [32:43.150] Fourth is work hard. Work hard. Never, ever stop.
+- [32:50.770] An example is a great athlete, actually.
+- [32:53.640] Gary Player, golfer.
+- [32:55.290] Great, great golfer. He wasn't as big as other men.
+- [32:59.960] He was actually on the small side.
+- [33:02.340] Don't tell him that. Friend of mine.
+- [33:05.110] Don't tell him that because he doesn't understand that.
+- [33:08.450] But he worked very, very hard. He made up for it.
+- [33:10.800] He never stopped. He won 168 golf tournaments.
+- [33:14.350] Think of that, 100.
+- [33:16.060] I said, "Gary, you're winning like every weekend.
+- [33:18.250] Do you ever choke or anything??
+- [33:19.610] "I don't know what choke means."
+- [33:21.880] And he made a statement years ago that I read,
+- [33:25.540] and I thought it was sort of an incredible statement.
+- [33:27.930] He said, "It's funny, the harder I work, the luckier I get."
+- [33:31.890] Right? Think of that,
+- [33:33.160] "The harder I work, the luckier I get."
+- [33:35.530] So, you really have to work hard.
+- [33:37.500] And you're going to be successful
+- [33:39.040] because you have the talent.
+- [33:40.880] To get into this school is not easy.
+- [33:42.730] To get through it is even more difficult.
+- [33:45.500] You have a lot of talent.
+- [33:47.470] Fifth is don't lose your momentum.
+- [33:52.710] You just want to keep it going.
+- [33:54.210] And you have to know if you are losing it,
+- [33:55.810] you have to know when you're losing it.
+- [33:57.190] So, maybe you stop, and maybe it's time to stop.
+- [34:00.050] Listen to the feedback,
+- [34:02.140] think through your plan very carefully,
+- [34:04.450] and keep moving fast.
+- [34:06.960] The word momentum is very important.
+- [34:08.650] I mean, I'll just tell you a little story
+- [34:10.210] about a great real estate developer named William Levitt.
+- [34:13.450] He built Levittown.
+- [34:14.650] Some of you might live in a Levittown.
+- [34:16.230] He was the biggest developer of the whole country in the 1940s.
+- [34:21.130] And he built these jobs.
+- [34:22.370] He started with one house, then two houses, then 20 houses,
+- [34:25.920] then thousands and thousands of houses.
+- [34:29.490] And a company, Gulf & Western, came along and they said,
+- [34:33.990] "We're going to make you an offer to buy your company."
+- [34:37.210] And they offered him a lot of money.
+- [34:39.430] A lot of money, more money than he ever thought he could make.
+- [34:41.920] And he retired. Lost his momentum.
+- [34:45.240] He retired, and he led a beautiful life.
+- [34:48.520] He had a wife.
+- [34:49.870] I must tell you, it was his second wife.
+- [34:51.990] It was a trophy wife. What can I say?
+- [34:54.570] I don't like telling you everything,
+- [34:56.030] but we're all friends, right? Can we talk? We're all friends.
+- [35:00.060] He had a trophy wife, and he lived a different life.
+- [35:03.330] He moved to the south of France,
+- [35:04.850] but he lived, it was a life of tremendous luxury.
+- [35:08.950] He had so many millions of dollars.
+- [35:10.620] He was given a fortune for the company.
+- [35:12.570] And 10 years went by, and then 15 years went by,
+- [35:16.200] and he got a call from this big conglomerate Gulf & Western,
+- [35:19.680] and they said,
+- [35:21.850] "We're not doing well with the purchase."
+- [35:23.420] Because he used to pick up every nail,
+- [35:26.210] every piece of sawdust, every piece of wood,
+- [35:28.660] every chip, everything.
+- [35:30.390] And he'd sell it. He'd make a couple of bucks.
+- [35:32.810] Everything was perfect. They can't do that.
+- [35:35.260] These big companies, they don't do that.
+- [35:37.270] You see it a lot when an entrepreneur sells
+- [35:38.850] to a big company,
+- [35:40.050] and then he ends up buying the company back
+- [35:41.670] for peanuts later on. Happens a lot.
+- [35:44.420] But he was the best at what he did.
+- [35:47.040] But 15 years went by, and he was so excited.
+- [35:49.650] And they sold him back his company.
+- [35:52.670] And he started, and he was going to tear apart the world
+- [35:55.870] because he got bored with a life of luxury.
+- [35:58.890] And he started building and building and building,
+- [36:04.660] and the markets turned on him, and he went bad.
+- [36:07.210] He lost everything.
+- [36:08.470] And he went bankrupt, absolutely bankrupt.
+- [36:12.100] And it was a sad story to read.
+- [36:13.690] It was such an amazing story because he was so rich,
+- [36:15.770] but he paid them.
+- [36:17.010] And he bought it for the right price,
+- [36:18.350] bought it low, but he went wild.
+- [36:20.840] But he lost his momentum. He wasn't good at it anymore.
+- [36:24.690] And he was at a party on Fifth Avenue, I'll never forget.
+- [36:29.250] And it was a party of a very, very powerful man
+- [36:31.800] who was having the party in a magnificent apartment
+- [36:35.030] overlooking the park.
+- [36:36.950] And I walked in, and there were 50 or so people.
+- [36:39.450] I recognized most of them,
+- [36:40.770] all the biggest business people in the world, actually.
+- [36:43.460] Very glamorous.
+- [36:44.670] I was doing well. I was young, and I was doing well.
+- [36:47.740] And I was invited to parties like that.
+- [36:49.600] And I looked in the corner, and there was Mr. William Levitt
+- [36:53.390] sitting all by himself on a chair, looking very glum.
+- [36:57.820] Nobody was talking to him because you'll find that
+- [36:59.840] when you're not successful, you lose a lot of friends.
+- [37:02.110] It's not a good situation.
+- [37:04.870] But there was nobody talking to him,
+- [37:06.240] but I wanted to talk to him
+- [37:07.470] because I was in the real estate business,
+- [37:09.020] and he was, and most of these people
+- [37:10.870] were in different businesses.
+- [37:12.920] And I went over and talked to him.
+- [37:14.210] And I said, "How are you, Mr. Levitt?"
+- [37:16.750] He goes, " Donald."
+- [37:19.480] He knew who I was, "Not well. I'm not well."
+- [37:23.630] I said, "So, can you come back?"
+- [37:27.130] He said, "No, son. I lost my momentum.
+- [37:30.740] I shouldn't have done it. I lost my momentum."
+- [37:34.240] And I never forgot that expression.
+- [37:35.770] He lost his momentum.
+- [37:37.080] If he would have kept going instead of selling and relaxing
+- [37:40.990] and going into a different life,
+- [37:43.850] he probably would have been three times bigger than he was.
+- [37:47.150] But he lost his momentum.
+- [37:49.240] And you have to know when it's your time.
+- [37:51.050] I mean, there'll be a time when you do lose.
+- [37:52.720] You see it with fighters. You see it with a lot of people.
+- [37:55.160] They have a great record, and they retire.
+- [37:57.670] And then four years later they say,
+- [38:00.110] "I'm going back. I can beat that guy."
+- [38:01.670] And they get knocked to hell.
+- [38:04.040] And it's not good. It's not good.
+- [38:06.360] So, he lost his momentum.
+- [38:08.750] You have to know when your momentum time is up.
+- [38:11.340] I call it momentum time, but follow your momentum.
+- [38:16.800] It's a very important word.
+- [38:18.010] You don't hear it from too many, but I've seen it.
+- [38:19.840] I've seen it a lot.
+- [38:21.620] Number six, if you want to change the world,
+- [38:23.800] you have to have the courage to be an outsider.
+- [38:26.160] In other words, you have to take certain risks
+- [38:28.990] and do things a little bit differently.
+- [38:30.560] Otherwise, if that weren't the case,
+- [38:32.300] everybody would be successful.
+- [38:34.390] Doesn't work that way.
+- [38:35.900] Progress never comes from those satisfied
+- [38:38.160] with the failures of a broken system.
+- [38:40.680] It comes from those who want to fix the broken system.
+- [38:43.520] And you'll make the bigger money.
+- [38:45.510] You'll make them more success by acting that way.
+- [38:50.070] The other way may be more secure.
+- [38:52.960] But if you want to go to the top,
+- [38:54.420] you're just never going to do it unless you break the system.
+- [38:57.280] Change is never easy.
+- [38:58.740] And the closer you get to success,
+- [39:01.000] the more ferociously those with a vested interest
+- [39:03.830] in the past will resist you. They want to resist.
+- [39:08.080] So, I just say trust me on that because I know.
+- [39:11.590] You really do. You have to break the system
+- [39:13.450] a little bit and follow your own instincts.
+- [39:17.830] But if your vision is right, nothing will hold you down.
+- [39:20.880] Nothing. You have to have the right vision.
+- [39:23.720] If you look at some of these Internet people,
+- [39:25.840] I know so many of them.
+- [39:27.090] Elon is so terrific. But I know now all of them.
+- [39:31.170] They all hated me in my first term,
+- [39:33.760] and now they're kissing my ass.
+- [39:35.490] [inaudible] It's true.
+- [39:37.650] All of them. It's true.
+- [39:45.620] It's amazing. It's nicer this way.
+- [39:49.890] Now, in the first, they didn't know what happened
+- [39:52.640] because I won an election that, there was never a businessman
+- [39:56.460] that won a presidential election.
+- [40:00.430] Out of 100%, 8% were generals, and 92% were politicians.
+- [40:07.410] Not even admirals, not even, just generals.
+- [40:10.030] Eight generals, General Washington,
+- [40:12.300] General Grant, generals. General Eisenhower.
+- [40:16.090] But 8% were generals, and 92% were politicians.
+- [40:21.840] And when I ran, everyone said, "Well, he can't win.
+- [40:24.490] He's a businessman. That's not going to work."
+- [40:27.580] But you have a natural instinct for things.
+- [40:29.280] I guess I had a natural instinct.
+- [40:30.560] I said to somebody,
+- [40:31.790] "Was I a better businessman or politician?"
+- [40:34.760] And they said, "Well, there are a lot of guys
+- [40:37.310] that made a lot of money, but there's only one guy
+- [40:40.230] that became president that was a businessman.
+- [40:42.270] So, I guess you're a better politician."
+- [40:43.780] But I don't think of myself as a politician.
+- [40:45.900] I think of myself as a businessman,
+- [40:48.120] and I'm proud of that.
+- [40:49.460] And I've applied business instinct,
+- [40:51.640] and that's why I think you're seeing us doing so well.
+- [40:58.960] So, number seven is to trust your instincts.
+- [41:01.390] Common sense.
+- [41:02.690] You can go very far in life with common sense.
+- [41:05.890] And I applied that to politics because some of these things,
+- [41:08.350] like they had open borders.
+- [41:11.050] Let everybody in the whole world flow into our country.
+- [41:13.520] That's not common sense.
+- [41:14.740] They had transgender for everybody.
+- [41:18.450] We ended that, if you noticed, okay?
+- [41:20.220] But they had transgender for everybody.
+- [41:27.220] I said, "This is not working. This is not going to work."
+- [41:30.980] As I said before, so simple, men playing in women's sports.
+- [41:36.250] Did you ever see some of the records?
+- [41:37.610] Did you ever see some of these boxing matches?
+- [41:40.050] We have to protect.
+- [41:41.340] These women are great athletes, but we have to protect.
+- [41:44.390] If you looked at the Olympics where they had transitions
+- [41:47.750] people going into the boxing where the women had boxing,
+- [41:52.010] and they had a great champion, a female boxer.
+- [41:55.400] I mean, after one punch, she walked back to the corner said,
+- [41:58.090] "I can't get hit like that.
+- [41:59.380] I've never been hit like that before."
+- [42:01.410] You look at all the volleyball players
+- [42:02.960] that have been hurt so badly with balls
+- [42:04.640] that are hit at levels that they've never seen before,
+- [42:07.410] but the greatest is weightlifting.
+- [42:10.140] You ever see the weightlifting,
+- [42:11.840] where they have a record that wasn't broken in 18 years?
+- [42:16.140] And they have, should I imitate it?
+- [42:17.790] My wife gets very upset when I do this.
+- [42:20.850] She said, "Darling, it's not presidential."
+- [42:24.480] I said, "Yeah, but people like it."
+- [42:27.910] Should I do it or not?
+- [42:29.190] Group: Do it, yes.
+- [42:30.800] The President: All right, I'm in trouble when I get home,
+- [42:32.540] but that's okay. What the hell?
+- [42:34.240] I've been in lots of trouble before.
+- [42:37.390] But you look at the weightlifting,
+- [42:39.110] where 18 years it stands, and they have this young woman,
+- [42:42.790] and her parents are right where you are in the front row.
+- [42:45.500] And they're so proud of her, and it's like 209 pounds,
+- [42:49.070] and she's going to lift that.
+- [42:50.960] The record stood for 18, think of it, 18 years.
+- [42:55.480] And they put an eighth of an ounce here
+- [42:57.730] and an eighth of an ounce here, little tiny, little bit.
+- [43:01.830] And she's going to do it, "Mom, I love you.
+- [43:04.110] I'm going to do it for you, Mom."
+- [43:05.900] And she goes. And she lifts.
+- [43:08.920] And she gets it, "Mom, I'm going to do it.
+- [43:13.320] Mom. Can't do it."
+- [43:18.730] And then a guy comes along or a gal or whatever,
+- [43:25.030] a transitioned person comes along.
+- [43:29.340] And he was a failed weightlifter as a man,
+- [43:32.220] but he comes along, 206 pounds.
+- [43:36.620] They put the little thing on, and he goes, boom, boom.
+- [43:42.910] And breaks a record by 119 pounds.
+- [43:47.230] That's not right. The other one is the swimming.
+- [43:49.390] You've heard me talk about it.
+- [43:50.780] Great swimmers, and they rose to the top.
+- [43:54.600] Women swimmers, and they grew up together.
+- [43:57.760] And they're Olympic-class swimmers,
+- [43:59.660] and they're qualifying for some big tournament.
+- [44:03.760] And now the race is getting ready to start, the big race.
+- [44:06.330] And one young lady, she was going to set the record.
+- [44:10.720] She fought all her life to set the record,
+- [44:12.960] just to win it by one-ninth of a second.
+- [44:17.010] Think of that, one-ninth.
+- [44:19.010] I don't like those odds, one-ninth of a second, right?
+- [44:22.020] But she looks to the left and she sees all the friends
+- [44:24.240] that she grew up with down in California,
+- [44:26.330] from all over the country. They're all the best swimmers.
+- [44:29.670] Then she looks to the right, and she sees the same thing,
+- [44:32.020] but there's a person next to her who's a giant.
+- [44:36.810] And she looks and she, "Oh my God, who is that?
+- [44:39.800] I don't recognize that person."
+- [44:41.890] That was a person that transitioned,
+- [44:44.790] and he had the wingspan of Wilt the Stilt Chamberlain,
+- [44:48.170] if anybody knows him. And as you know what happened,
+- [44:54.630] she was very, very badly injured in that meet
+- [44:58.380] because he went by her so fast that she was windburned,
+- [45:02.340] had to take her out. She got serious windburn.
+- [45:04.860] He flew back and forth and back and forth,
+- [45:07.550] and she didn't know what,
+- [45:08.840] but she got the hell knocked out of her.
+- [45:10.630] Knowing that, I'm only kidding. She wasn't windburned.
+- [45:13.970] She was just beaten by a lot.
+- [45:16.980] Or the race, did you see the race
+- [45:18.670] where they had the best female runners,
+- [45:21.260] and they had a guy who was a decent runner,
+- [45:23.060] a long-distance race?
+- [45:25.410] And he won by five hours and 19 seconds.
+- [45:29.140] Normally, you win by 12 seconds,
+- [45:30.930] two seconds, a quarter of a second.
+- [45:32.380] He won by five hours and 19 seconds. It's crazy.
+- [45:37.510] And honestly, it's demeaning for women, very demeaning.
+- [45:40.370] These are great athletes. It's very demeaning.
+- [45:42.620] And we are going to protect women.
+- [45:44.160] We're going to protect women.
+- [45:45.440] We're going to protect everybody.
+- [45:54.720] So, now that I'm in trouble with my wife,
+- [45:56.880] I'm going to blame the University of Alabama
+- [45:59.030] for asking me to go through with that stuff.
+- [46:02.230] But it's pretty descriptive, isn't it, really?
+- [46:04.900] It helps when you know that borders are not racist.
+- [46:08.960] Speech is not violence. America is good.
+- [46:12.290] Terrorists are bad. Men can never become women.
+- [46:16.100] Police are not criminals. And criminals are not victims.
+- [46:21.040] Eighth, everybody should believe.
+- [46:26.930] Thank you. Thank you very much.
+- [46:32.080] Everybody should believe in the American dream.
+- [46:34.460] It's real. It's there, and it's right before you.
+- [46:36.930] We're coming back to the American brand.
+- [46:46.940] Ninth, think of yourself as a winner.
+- [46:50.710] The power of positive thinking.
+- [46:53.050] Dr. Norman Vincent Peale from many years ago wrote a book,
+- [46:56.230] The Power of Positive Thinking.
+- [46:58.320] And there is a lot to it. The Power of Positive Thinking.
+- [47:02.030] Don't consider yourself a victim.
+- [47:04.170] Consider yourself a winner.
+- [47:06.490] In recent years, too many of our young people
+- [47:08.760] have really been taught to think of themselves as victims,
+- [47:13.150] and blame people and be angry. Don't be angry.
+- [47:16.360] But in America,
+- [47:17.610] we reject that idea that anyone is born a victim.
+- [47:21.040] Our heroes are the ones who take charge of their own destiny,
+- [47:24.940] make their own luck, and determine their own fate.
+- [47:29.470] Despite the odds, despite all odds, that's what happens.
+- [47:32.260] They take really, they're given a little chance,
+- [47:35.240] in many cases, very little chance of success,
+- [47:37.620] and they become the most successful people in the world.
+- [47:40.000] Whether you were born rich or poor,
+- [47:42.340] black or white, male or female in America,
+- [47:45.570] anyone can be a winner and our whole country
+- [47:48.410] will be cheering you on.
+- [47:49.960] And I'll be at the front of the line cheering you on,
+- [47:52.170] especially because you come from this incredible university.
+- [48:02.300] And next is to be an original.
+- [48:05.060] The all-time greats were people who had the confidence
+- [48:08.200] to be a little different.
+- [48:09.750] Teddy Roosevelt, Douglas MacArthur,
+- [48:12.230] George Patton, Amelia Earhart,
+- [48:14.850] Annie Oakley, Muhammad Ali, and so many others.
+- [48:17.940] So many others, far too many to name,
+- [48:20.290] lived their lives with pride, personality, and flair.
+- [48:24.420] God only created one of you. Remember that.
+- [48:27.400] God created one of you. You're all different.
+- [48:29.780] Some are close, but nobody is the same.
+- [48:32.870] You're one of a kind, so don't try to be someone else.
+- [48:36.990] Just be yourself.
+- [48:38.730] And finally, and most importantly, never,
+- [48:41.490] ever give up. Never give up.
+- [48:51.740] Never give up.
+- [48:53.900] And I've learned anything in life, and it's so true.
+- [48:58.500] One of the most important things you can learn,
+- [49:00.420] if you just went a little bit longer,
+- [49:02.260] if you just held out a little bit longer,
+- [49:04.360] you would have been successful. The stories of that are legend,
+- [49:09.820] but I've learned that perseverance is everything.
+- [49:12.430] So, whatever happens, no matter where you are in life,
+- [49:15.500] stay optimistic and just keep pushing forward.
+- [49:18.050] Just don't stop. Never, ever give up.
+- [49:22.090] Victory is right around the corner.
+- [49:23.900] I've watched Coach Saban win games
+- [49:26.610] that really were virtually over.
+- [49:28.270] You've seen it. You've been in the stands.
+- [49:30.020] He won a couple of games, I said,
+- [49:31.630] "Coach, you got lucky as hell."
+- [49:34.140] He said, "I didn't get lucky. I'm a talented guy."
+- [49:38.490] You know those little touchdowns that come out of nothing,
+- [49:42.120] he's amazing. But he's a guy that doesn't quit
+- [49:45.560] and doesn't know what the word quit even means.
+- [49:47.660] He couldn't define it.
+- [49:49.390] He took victory out of the jaws of defeat.
+- [49:51.640] And you can do that too.
+- [49:52.860] At every stage in my career,
+- [49:55.180] my enemies of which there were many and probably are right now,
+- [49:58.820] I can think of a couple of people
+- [50:00.240] that don't like me too much right now,
+- [50:02.970] but they said that they have to do everything they can
+- [50:07.770] to keep me from winning, to keep me from making it.
+- [50:10.350] And I'm representing you, so I have to make it.
+- [50:12.570] I have big shoulders, but these are big shoulders.
+- [50:15.860] I have to win for you.
+- [50:17.470] I'm not winning for myself. I'm winning for you.
+- [50:19.380] Do you remember when they said that,
+- [50:21.250] "Donald Trump will never become President of the United States?"
+- [50:24.080] Remember Barack Hussein Obama said that.
+- [50:26.780] Barack Hussein Obama,
+- [50:28.100] "Donald Trump will never be president."
+- [50:31.250] 50 other politicians said that.
+- [50:33.000] Where are they now? Oh, let me see.
+- [50:34.710] Oh, there they are. Where are they now?
+- [50:37.780] But here I am,
+- [50:39.020] standing before you as the 45th and 47th president.
+- [50:51.200] You heard that a lot.
+- [50:53.240] But against all odds, I did great in 2016.
+- [50:56.100] 2016, how great was that?
+- [50:58.420] And then I did much better in 2020.
+- [51:02.430] Sorry. The election was rigged, probably,
+- [51:04.850] but it was a rigged election.
+- [51:07.060] And then in 2024, I made it too big to rig.
+- [51:10.950] I said, "We've got to do this again.
+- [51:14.040] We've got to do this again."
+- [51:15.580] We made it too big to rig.
+- [51:20.320] We made it. That was a great expression.
+- [51:22.400] I said, "You've got to go and vote."
+- [51:23.780] Even though I was leading big in the polls, I said,
+- [51:26.030] "It doesn't matter. You've got to make it too big to rig."
+- [51:28.420] And they did. They went out,
+- [51:29.660] and they voted and voted and voted,
+- [51:31.500] and we won the whole thing. And it was so good,
+- [51:34.420] and it's such a great mandate for our country.
+- [51:36.520] That's the important thing.
+- [51:38.030] So, never let anyone tell you that something is impossible,
+- [51:41.250] ever, ever, ever.
+- [51:44.180] In America the impossible is what we all do best.
+- [51:50.930] There is nothing you cannot do
+- [51:53.570] if you are willing to fight for it.
+- [51:55.360] You've got to fight, fight, fight.
+- [51:57.120] Oh, I've heard that expression. Funny.
+- [52:05.840] That's not here. That's not here on the, actually,
+- [52:09.550] most of what I've said tonight is not on the teleprompter.
+- [52:12.130] That's all right. Isn't it nice to have a president
+- [52:14.220] that doesn't need a teleprompter
+- [52:16.410] and can sort of have a little fun?
+- [52:20.980] Because I feel that this is home.
+- [52:22.760] It's been such a great state for me.
+- [52:24.160] I feel it's home.
+- [52:25.400] When they said Alabama, I said, "That has a good ring to me."
+- [52:29.290] But it's something nice about somebody
+- [52:31.680] that doesn't need a teleprompter, isn't that?
+- [52:34.040] But for the past four years,
+- [52:36.540] you've lived in a state known for its fighters,
+- [52:38.650] its champions and its warriors.
+- [52:40.540] And you've lived in the great state of Alabama,
+- [52:43.800] one of the greatest of them all.
+- [52:45.390] From Huntsville to Birmingham, from Montgomery to Mobile,
+- [52:50.930] and from right here in Tuscaloosa
+- [53:00.020] to the gleaming shores of the Gulf of America.
+- [53:03.630] Gulf of America.
+- [53:11.050] That has a nice ring. Everybody loves it.
+- [53:16.090] I wouldn't say Mexico's thrilled,
+- [53:17.810] but you can't have them all. They're not thrilled.
+- [53:21.160] You continue the legacy of Alabama
+- [53:23.490] legends who blazed the trails, won the games,
+- [53:26.670] tilled the fields, forged the steels,
+- [53:29.710] built the ships and gave us the victories
+- [53:32.640] that built America and changed the world.
+- [53:35.410] The entire world was changed by our victories.
+- [53:38.530] This is the state that gave us the might of the Iron City,
+- [53:42.890] the power of the Saturn V rocket
+- [53:45.710] and the roaring engines of Talladega.
+- [53:48.820] Talladega. We love Talladega. We love Talladega.
+- [53:54.810] This is the state that gave us nothing but victory.
+- [53:57.520] The state of some of the greatest heroes in history
+- [54:01.250] like Willie Mays, Jesse Owens, Joe Lewis,
+- [54:05.460] your coach, Nick Saban, Hank Williams, and many others.
+- [54:11.610] Some of you will leave here today and travel the world,
+- [54:14.370] but you will always know that this state as this
+- [54:18.190] is really Sweet Home Alabama, right?
+- [54:20.390] It's always going to be your place.
+- [54:24.050] I sort of feel that way myself,
+- [54:25.830] because from a political standpoint,
+- [54:27.500] it's just been, we connected from day one.
+- [54:29.920] From the first day I set my foot on this beautiful soil,
+- [54:33.870] I connected with Alabama.
+- [54:36.210] And here in Alabama, we believe that the men and women
+- [54:39.060] who built this country are heroes,
+- [54:41.190] and that America's destiny
+- [54:42.540] is to be the single greatest nation on the face of the Earth.
+- [54:46.060] And we're bringing it back at speed
+- [54:48.420] that nobody thought was possible.
+- [54:50.450] We believe in freedom and family, God and country.
+- [54:54.200] We cherish our Constitution. We revere our Bible,
+- [54:58.940] and we salute our great American flag.
+- [55:09.480] We honor our police, we respect our veterans,
+- [55:13.210] and we always stand for our one and only National Anthem.
+- [55:18.830] We love our National Anthem.
+- [55:24.320] We believe in strong parents, strong values,
+- [55:27.810] strong communities, and very strong borders.
+- [55:33.450] And we believe that the United States military
+- [55:36.170] is the greatest force for peace
+- [55:37.900] and justice the world has ever known.
+- [55:40.710] We have a great military.
+- [55:41.950] We just had people that didn't know how to lead it.
+- [55:45.060] We believe the South is beautiful.
+- [55:47.060] Alabama is great, and America is our home.
+- [55:50.890] We believe in the SEC and the USA.
+- [56:01.170] Graduates of the Alabama class of 2025
+- [56:05.680] standing here before you in this magnificent arena,
+- [56:09.440] it is clear to see the next chapter of the American story
+- [56:13.950] will not be written by the Harvard Crimson.
+- [56:17.270] It will be written by you, the Crimson Tide.
+- [56:21.990] True, that's true. That's true.
+- [56:34.140] That's true.
+- [56:37.150] I thought that was rather clever.
+- [56:39.680] If you look at what's going on now,
+- [56:41.430] they get their 5 billion a year.
+- [56:45.280] That is not going to be so forthcoming.
+- [56:48.640] Now, wasn't that a clever one though?
+- [56:51.200] Who would think of that? Because this is Alabama,
+- [56:56.990] and at Alabama you fight, fight, fight,
+- [56:59.340] and you win, win, win. That's what you know how to do.
+- [57:02.350] Congratulations to you all.
+- [57:04.930] Congratulations to this great class of champions.
+- [57:08.420] God bless you, and God bless America.
+- [57:12.100] Thank you all very much. Thank you.

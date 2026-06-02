@@ -1,0 +1,482 @@
+<!-- source: https://www.youtube.com/watch?v=0yeIXVwFPiY -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 0yeIXVwFPiY -->
+<!-- date_published: 2025-07-30T18:02:06+00:00 -->
+<!-- date_accessed: 2026-06-02T02:46:25.070461+00:00 -->
+
+# Transcript: President Trump Signs Congressional Bill, July 30, 2025
+
+- [00:03.370] The President: Nice to see you.
+- [00:05.040] We've had a great weekend, and we, as you know,
+- [00:09.920] we made our deal with the European Union.
+- [00:14.680] The Japan deal is done.
+- [00:16.610] Many of the other deals are done.
+- [00:19.150] Indonesia was a very big deal.
+- [00:20.780] Big country, actually. And they're wonderful,
+- [00:24.480] and hopefully wonderful, for both sides.
+- [00:28.360] But it's literally trillions of dollars
+- [00:31.550] ultimately being brought into our country.
+- [00:34.760] And it was something that had to be done,
+- [00:36.760] and it is being done, and it's being done properly.
+- [00:39.950] We're now negotiating with various other countries.
+- [00:43.370] And the rest, we're just sending out the bill, too.
+- [00:46.370] We send a bill.
+- [00:47.570] We send a letter saying that you'll pay a certain tariff.
+- [00:52.090] Obviously, that's most of them because you have, as you know,
+- [00:55.760] hundreds of countries, a lot of countries out there.
+- [00:58.990] So we look at the deficit or we look at the surplus,
+- [01:03.670] and we look at the country
+- [01:05.040] and how the country has treated us.
+- [01:06.640] And lots of other things go into the equation.
+- [01:09.870] And we make a decision as to what that tariff will be.
+- [01:14.020] And it's a pretty standard letter from that point on.
+- [01:17.480] And I want to tell you, this is something to me.
+- [01:19.890] It's a VA bill signing, and it's very important to me
+- [01:23.580] and to many of the people in this room.
+- [01:26.750] So I'm thrilled to sign the VA Home Loan Program
+- [01:30.540] Reform Act into law.
+- [01:33.270] And that is something that they've wanted to do
+- [01:37.060] for a long time.
+- [01:38.670] This legislation provides desperately needed
+- [01:41.140] relief to veterans and their families
+- [01:43.670] who have fallen behind on their mortgages,
+- [01:46.380] of which there are a lot, because we have somebody
+- [01:48.830] that doesn't want to lower interest rates
+- [01:51.280] and probably won't lower them today.
+- [01:53.080] It's a really sort of an amazing situation.
+- [01:58.610] It helps keep our promise to end veterans' homelessness.
+- [02:01.640] And we're going to do that for America.
+- [02:05.150] We're going do that our great veterans.
+- [02:06.870] I'm thrilled to be joined by the bill's sponsor,
+- [02:09.710] Congressman Derek Van Orden. Where is Derek?
+- [02:11.770] Derek Van Orden: Right here.
+- [02:13.050] The President: Derek? Hello, Derek.
+- [02:14.290] I didn't see you back there, did I?
+- [02:15.510] Derek Van Orden: Well I’m a navy seal.
+- [02:16.800] I snuck up on you.
+- [02:18.030] The President: [inaudible]. Mike. How are you, Mike?
+- [02:19.300] Mike Bost: Mr. President.
+- [02:21.000] The President: These two gentlemen are terrific.
+- [02:25.440] They are working together
+- [02:27.730] and they've been working together, Mike,
+- [02:29.140] a long time on this.
+- [02:30.680] So, I just want to thank you both,
+- [02:32.260] and I'll ask you to say a couple of words.
+- [02:34.990] An estimated 61,000 American veterans
+- [02:37.830] are in danger of losing their homes, as you know.
+- [02:40.900] But thanks to this bill,
+- [02:42.110] the Department of Veterans Affairs
+- [02:43.690] will be empowered to pay loan holders
+- [02:46.910] the necessary amount to prevent foreclosures on our veterans
+- [02:50.950] so our veterans won't be foreclosed
+- [02:52.650] and put out onto the streets. It's very important.
+- [02:55.700] This bill also creates a five-year partial claim program
+- [02:59.150] that could benefit up to 3.7 million veterans.
+- [03:02.620] That's the kind of numbers you're talking about.
+- [03:04.290] It's big stuff.
+- [03:05.740] The costs of the program are fully offset
+- [03:07.760] and will add nothing at all to debt.
+- [03:11.290] It's common-sense legislation at overwhelming support
+- [03:14.430] and passed unanimously in the House and the Senate.
+- [03:18.930] Wow. When was the last time that happened?
+- [03:24.180] That's pretty impressive.
+- [03:26.130] My administration is committed to doing everything possible
+- [03:28.960] to ensure that our veterans are treated with respect
+- [03:32.160] and treated as well as anybody in this country.
+- [03:34.430] They're so important. They're great.
+- [03:36.210] They've suffered so much in many cases.
+- [03:39.820] In May, I signed an executive order
+- [03:41.550] to open the National Center for Warrior Independence
+- [03:45.360] in Los Angeles, California,
+- [03:46.860] which will house up to 6,000 homeless veterans.
+- [03:51.260] You know, until we came along, they treated the veterans
+- [03:53.990] far worse than the illegal immigrants,
+- [03:57.300] they came in and were staying in hotels, luxury hotels,
+- [03:59.960] and the veterans are staying outside of the sidewalk
+- [04:01.780] on the same hotel.
+- [04:03.050] Some pictures are just incredible.
+- [04:05.390] In addition, we'll also be opening a full-service VA center
+- [04:08.880] in New Hampshire,
+- [04:10.220] which is the only state in the union to not have a VA center.
+- [04:13.930] And I made that promise to the people of New Hampshire
+- [04:17.610] a long while ago, and we got it done.
+- [04:20.530] It's the only state that doesn't have,
+- [04:21.970] and yet you have a lot of veterans in New Hampshire.
+- [04:24.770] We're slashing the wait times at VA medical centers,
+- [04:28.230] and we're bringing back VA choice and VA accountability,
+- [04:31.770] which I had and the Democrats abandoned.
+- [04:35.050] Made it so much better.
+- [04:37.150] Accountability, meaning if you treat our veterans badly,
+- [04:40.350] we treat you badly. You get fired and beyond that.
+- [04:44.120] And VA choice is you can get out and you can
+- [04:49.740] – if you don't have a doctor ready, willing,
+- [04:52.340] and able to take care of you within the VA, you go outside,
+- [04:55.730] you go see a doctor, you get better,
+- [04:59.380] and we pay the bill. And the veterans loved it.
+- [05:03.670] We had a 92 percent approval rating.
+- [05:06.840] And what did the Democrats do?
+- [05:08.100] They came along and they ended both of them.
+- [05:10.040] And they hired back many of the people that we fired.
+- [05:12.230] We fired people and replaced them with great, loving people.
+- [05:16.660] But we fired people who were sadists.
+- [05:19.220] In many cases, they were sick. They were thieves.
+- [05:22.970] They were stealing. And they hired them back.
+- [05:26.140] The accountability, meaning the VA accountability,
+- [05:28.520] it was a big deal getting it passed because you have unions,
+- [05:30.910] you have all sorts of problems to go through.
+- [05:33.670] We got it through everything.
+- [05:35.580] And the Democrats, as soon as they got back,
+- [05:37.440] they hired many of the worst people right back,
+- [05:39.460] and we're getting rid of them.
+- [05:41.830] But I want to thank the two gentlemen standing behind me.
+- [05:45.250] And I'd like to ask you just to say a couple of words,
+- [05:47.520] and then we'll take a few questions, if you'd like.
+- [05:50.380] And we'll sign the bill.
+- [05:52.420] And our veterans will be very happy about it.
+- [05:54.350] Thank you.
+- [05:55.550] Mike Bost: Well, first off, thank you, Mr. President,
+- [05:58.960] for signing this bill today.
+- [06:00.680] Let me tell you that not only this bill,
+- [06:02.550] which will help make sure that those veterans
+- [06:05.270] that have got themselves in a situation
+- [06:06.700] where maybe they would be foreclosed on,
+- [06:08.330] it gives them just a little bit extra help
+- [06:10.230] without the government going into a banking business
+- [06:12.880] like what we had with the previous administration.
+- [06:16.480] I also want to say thank you too, though,
+- [06:17.890] for appointing Doug Collins as our secretary for the VA.
+- [06:23.100] As chairman of the VA,
+- [06:24.900] having the opportunity to work with Doug,
+- [06:26.800] one, because we worked together before,
+- [06:29.290] but he has the right attitude.
+- [06:30.610] And the attitude is, the VA is not about bureaucracy.
+- [06:34.940] It's about the veterans. And we want to keep it that way.
+- [06:37.660] That doesn't mean we don't have a good workforce.
+- [06:41.950] What it means is that workforce is focused on the veterans,
+- [06:44.900] not on making sure that the VA grows,
+- [06:47.350] but making sure the VA does the job it's supposed to do.
+- [06:49.350] And thank you, Mr. President,
+- [06:50.660] your leadership that allows that to happen.
+- [06:55.460] Derek Van Orden: Thank you everybody for coming here today.
+- [06:56.860] Thank you, Mr. President, for hosting us here.
+- [06:59.320] I'm the longest serving enlisted member
+- [07:01.060] of the United States military
+- [07:02.350] to ever get elected to Congress in the history of our nation.
+- [07:05.410] And I am unequivocally stating right now
+- [07:07.020] that President Donald J. Trump
+- [07:08.280] is the most positive pro-veteran president
+- [07:10.610] in the history of this country.
+- [07:12.540] And so, he backs up his words with deeds,
+- [07:15.510] and this is another example of how President Trump
+- [07:18.330] is taking care of our veterans.
+- [07:19.570] So, sir, I'm very thankful for you, for your leadership.
+- [07:23.230] And let's get this thing done and get our veterans into home.
+- [07:25.830] So God bless you and God bless the United States.
+- [07:29.030] The President: Thank you. Let's sign first,
+- [07:30.890] and we'll take a couple of questions.
+- [07:32.660] We'll get it done. We've been waiting a long time.
+- [07:38.680] And I do want to commend Doug Collins,
+- [07:40.200] because I hear what he's doing.
+- [07:41.710] He's doing a fantastic job. He's done an incredible job.
+- [08:01.630] Okay. Is that a good one?
+- [08:03.690] Derek Van Orden: That’s a Good one.
+- [08:04.890] The President: No auto-pen?
+- [08:06.230] [laughter]
+- [08:11.170] That's a very important bill.
+- [08:13.950] And we want to thank everybody for the great help,
+- [08:17.240] but in particular, you two guys have done a fantastic job.
+- [08:20.250] Thank you very much. Okay, take a pen.
+- [08:23.460] Derek Van Orden: Oh, I’ll keep that one.
+- [08:24.840] The President: Take a pen – Derek Van Orden: Yes sir.
+- [08:26.370] The President: Take another pen and we’ll [inaudible]
+- [08:28.740] and give them to the other people to help with that.
+- [08:30.530] Derek Van Orden: Very well.
+- [08:33.310] The President: Okay, questions.
+- [08:34.560] The Press: Mr. President,
+- [08:35.800] you said that higher interest rates
+- [08:37.400] are making it harder for veterans to refinance.
+- [08:40.160] In a stronger than expected GDP report this morning,
+- [08:44.020] what do you say to analysts
+- [08:45.540] who worry that lowering interest rates
+- [08:47.720] would actually lead to inflation?
+- [08:48.930] The President: Well, if that happens
+- [08:50.170] and we just raise them, what you do is you lower them.
+- [08:52.710] And let's see if there's inflation.
+- [08:54.200] Right now, there's no inflation.
+- [08:55.510] Everybody thought there would be.
+- [08:56.780] All we have is billions of dollars of cash
+- [08:59.900] pouring into our country from other countries
+- [09:02.920] that took advantage of us for many, many years.
+- [09:04.990] You know, they were taken advantage of.
+- [09:06.410] We were like the stupid people
+- [09:08.710] that didn't know what they were doing.
+- [09:10.440] They took advantage us. Other countries, friend and foe.
+- [09:14.330] And, by the way, the friend was oftentimes much worse
+- [09:17.300] than the foe when it comes to trade.
+- [09:19.680] So, if that happens, what you do is you raise your rates
+- [09:22.630] and you do what you have to do to stop inflation.
+- [09:25.410] But we're keeping the rates high,
+- [09:28.420] and it's hurting people from buying houses.
+- [09:30.350] And we don't want that.
+- [09:31.880] If, for any reason, that happened in a year or two,
+- [09:34.400] if there's some signs of inflation coming back,
+- [09:36.540] right now, there's not. We have a great thing going.
+- [09:39.500] I think we're going to have the richest economy
+- [09:41.370] you've ever seen.
+- [09:42.660] We have money coming in that we've never even thought about,
+- [09:46.060] at numbers that nobody has ever seen before.
+- [09:48.720] We have a deal with Japan,
+- [09:50.750] where they're going to pay us $550 billion.
+- [09:53.460] We have a deal with Europe, where they're doing $750 billion
+- [09:57.320] plus $400 billion plus $300 billion.
+- [10:00.700] And many other countries, it's likewise, relatively –
+- [10:03.920] those are two big ones, but likewise.
+- [10:06.570] So we have a lot of money coming in, and we have no inflation.
+- [10:11.050] And we're very strong, and we should be lowering the rates.
+- [10:14.440] You know, each point that this gentleman keeps up costs us
+- [10:19.700] $365 billion a year. Think of that.
+- [10:24.640] One point. $364 billion.
+- [10:28.190] If you bring it down a point, we save $365.
+- [10:31.450] We should be the lowest interest rate, and we're not.
+- [10:34.680] We're 38, number 38, because of the Fed.
+- [10:37.580] It's all because of The Fed. He's done a bad job.
+- [10:42.540] Now, he's got a meeting today, but I call him too late.
+- [10:46.040] You know, he is always too late,
+- [10:47.240] even if he does it today, probably won't.
+- [10:49.740] I hear they're going to do it in September, not today.
+- [10:52.440] For what reason? Nobody knows.
+- [10:55.790] But Europe, as you know, cut their rates 11 times
+- [11:00.930] in the last short period of time.
+- [11:03.980] But the good news is we're doing better
+- [11:05.390] than anybody anywhere in the world.
+- [11:07.210] Nobody is doing anything even close to us,
+- [11:09.470] even with the higher rates.
+- [11:10.830] The higher rates do affect housing, though,
+- [11:12.330] because people can't go out
+- [11:13.560] and get a loan or refinance their house,
+- [11:15.230] and it would be nice to have them be able to do that.
+- [11:17.870] That would be just another check of a box
+- [11:21.270] that would be very important. Yeah, please.
+- [11:22.800] The Press: Mr. President. You mentioned today that India,
+- [11:25.790] in addition to its 25% tariff rate,
+- [11:27.910] would pay an additional penalty
+- [11:29.780] because of its support of Russia.
+- [11:31.070] What is that additional penalty?
+- [11:33.320] And are other countries facing the same threat?
+- [11:36.250] The President: Well, we are negotiating right now.
+- [11:37.920] And it is also BRICS. You know, they have BRICS
+- [11:39.970] which is basically a group of countries
+- [11:42.520] that are anti-the United States.
+- [11:44.230] And India is a member of that, if you can believe it.
+- [11:47.160] It's an attack on the dollar,
+- [11:49.000] and we're not going to let anybody attack the dollar.
+- [11:51.000] So it's partially BRICs and it's partly the trade,
+- [11:54.960] the trade situation.
+- [11:56.230] It's a deficit. We had a tremendous deficit.
+- [11:59.650] So as you know, Prime Minister Modi is a friend of mine,
+- [12:02.970] but they don't do very much business
+- [12:05.440] in terms of business with us.
+- [12:07.700] They sell a lot to us, but we don't buy from them.
+- [12:10.400] You know why? Because the tariff is so high.
+- [12:12.090] They have one of the highest tariffs in the world.
+- [12:14.610] Now, they're willing to cut it very substantially.
+- [12:16.170] But we'll see what happens.
+- [12:17.420] We're talking to India now. We'll see happens.
+- [12:19.450] And it doesn't matter too much whether we have a deal
+- [12:22.200] or whether we charge them a certain tariff.
+- [12:24.480] But you'll know at the end of this week.
+- [12:27.090] The Press: [inaudible]
+- [12:28.930] The President: August 1st is a very big day for this country
+- [12:31.120] because money is going to pour into the United States
+- [12:34.110] like we've never seen before. Yes, ma'am.
+- [12:36.160] The Press: Thank you, Mr. President.
+- [12:37.360] Senator Hawley introduced legislation
+- [12:39.240] that would ban members of Congress
+- [12:40.900] from owning or trading individual stocks
+- [12:43.010] at expense to the president and vice president.
+- [12:45.250] Are you in favor of that legislation?
+- [12:46.800] The President: Well, I like it conceptually.
+- [12:48.050] I don't know about it, but I like it conceptually.
+- [12:50.480] And, you know, Nancy Pelosi became rich
+- [12:54.140] by having inside information.
+- [12:56.710] She made a fortune with her husband,
+- [12:58.520] and I think that's disgraceful. So in that sense, I'd like it,
+- [13:02.220] but I'd have to really see the –You know,
+- [13:04.270] I studied these things very carefully,
+- [13:05.870] and this just happened.
+- [13:07.290] So I'll take a look at it. But conceptually, I like it.
+- [13:10.660] And what I do think is Nancy Pelosi should be investigated
+- [13:15.170] because what she has the highest return of anybody
+- [13:18.780] practically in the history of Wall Street, save a few.
+- [13:24.040] And how did that happen?
+- [13:26.210] It happened by she knows exactly what's going to happen,
+- [13:28.280] what's gonna be announced.
+- [13:29.530] She buys stock and then the stock goes up
+- [13:31.640] after the announcements are made.
+- [13:33.620] And she had to be investigated.
+- [13:35.840] The Press: Mr. President,
+- [13:37.810] Harvard is reportedly willing to settle with you
+- [13:39.940] for $500 million. Is that enough?
+- [13:45.100] The President: Well, it's a lot of money.
+- [13:46.320] It's a lotta money. We're negotiating with Harvard now.
+- [13:49.720] They would like to settle, so we'll see what happens.
+- [13:54.970] The Press: What is America's debt to our Afghan war allies
+- [13:58.520] that kept our veterans safe over there?
+- [14:00.050] There's been some talk about sending a lot of them back
+- [14:01.670] [inaudible].
+- [14:02.870] The President: No, we know the good ones
+- [14:05.270] and we know the ones that maybe aren't so good.
+- [14:07.510] You know, some came over that aren't so good,
+- [14:10.000] and we're going to take care of those people.
+- [14:11.660] The ones that did a job.
+- [14:14.020] The ones who were told certain things.
+- [14:16.200] A shame what happened.
+- [14:17.480] One of the most disgraceful episodes
+- [14:19.880] in the history of our country.
+- [14:21.270] The way we left Afghanistan was just a disgrace.
+- [14:26.240] But I understand your question fully,
+- [14:28.060] and we'll take care 90 percent of your question, okay?
+- [14:32.150] I know what you mean. Thank you very much.
+- [14:35.310] The Press: On the tariffs on India,
+- [14:36.870] are you still open to negotiate with India on the tariff front?
+- [14:40.180] The President: Well we are talking to them now.
+- [14:41.510] We will see what happens. Again, India was the highest
+- [14:44.830] or just about the highest tariff nation in the world,
+- [14:48.540] and one of the highest 100 points,
+- [14:52.580] 150 points or percentages.
+- [14:56.720] So India was one of highest in the world.
+- [14:59.480] They had one 175 percent. And higher than that.
+- [15:05.810] You know, is another higher one, is Canada.
+- [15:07.570] Canada has – they've been charging our farmers
+- [15:10.050] 200 percent, 300 percent, 400 percent for years,
+- [15:13.970] and nobody did anything about it.
+- [15:16.020] But India is one of the highest, so we're going to see.
+- [15:17.820] We're negotiating with India right now.
+- [15:19.970] The Press: [inaudible]
+- [15:21.270] Cache Patel reportedly found burned bags
+- [15:23.680] of Russian gate materials.
+- [15:24.960] I would love to get your thoughts on that?
+- [15:26.240] The President: He said what?
+- [15:27.480] The Press: Burned bags of Russia Gate materials
+- [15:28.760] [inaudible]
+- [15:29.960] The President: [inaudible] I don’t know that.
+- [15:31.500] I don’t know, I don’t know what you mean by that statement.
+- [15:34.050] Say it –
+- [15:35.280] The Press: Burned bags of Russia Gate documents.
+- [15:36.710] The President: Oh, burned bags.
+- [15:37.980] I thought you said appointed a man by the name of Burn Bag.
+- [15:40.130] [laughter]
+- [15:41.360] Go ahead. The Press: No, so he –
+- [15:42.960] The President: You got to speak up.
+- [15:44.190] The Press: Thousands of documents in these bags.
+- [15:46.100] Supposedly burned bags at the FBI in a secret room.
+- [15:49.050] The President: Well, I want everything to be shown,
+- [15:50.720] you know.
+- [15:51.930] As long as it's fair and reasonable,
+- [15:53.430] I think it will be shown and it should be shown.
+- [15:56.780] And I think he feels that way, and I think Pam feels that,
+- [16:00.750] but it's got to be, you know, it's gotta be stuff
+- [16:02.940] that really doesn't hurt people unfairly,
+- [16:05.390] because you have so many people involved.
+- [16:07.500] And if they can do that in a fair way, I think that's great.
+- [16:10.000] I think its really great. It's the whole thing is a scam.
+- [16:12.690] It's a scam set up by the Democrats,
+- [16:14.470] and they love talking about it.
+- [16:15.730] But I would like to see people exposed that might be bad.
+- [16:21.930] And we'll see how that all works out.
+- [16:23.780] But it's getting to be very old news.
+- [16:26.180] You know, if they had anything,
+- [16:27.570] they would have done it the week before the election,
+- [16:30.000] because they were losing by a lot.
+- [16:31.570] If they had anything, they wouldn't have done.
+- [16:33.710] They control the file. The Democrats control it.
+- [16:37.810] Comey and all the sleazebags, every one of them,
+- [16:41.990] that you read about all the time.
+- [16:43.720] And I guess they've got some problems now having to do
+- [16:45.820] with yet a different scandal. Very big one.
+- [16:50.280] But they control that file so I would think
+- [16:53.160] that if they would have had something in the file
+- [16:55.130] They would have released it about a week
+- [16:56.470] before the election. Maybe two weeks, right Brian.
+- [16:58.770] Brian: Yes sir. The President: Go ahead.
+- [17:00.000] The Press: Mr. President. Welcome home by the way.
+- [17:01.680] The President: Thank you very much.
+- [17:02.910] It was a great trip. It was an amazing trip.
+- [17:04.460] The Press: Okay.
+- [17:05.790] The President: [inaudible]
+- [17:07.010] countries. For me it was ok but for the country
+- [17:09.610] it was an amazing trip. Go ahead.
+- [17:11.060] The Press: It was.
+- [17:12.300] Many parents are preparing to send their kids
+- [17:14.170] back to school in a few weeks.
+- [17:16.570] Now this will be the first time they've gone back to school
+- [17:18.800] under the second administration for you.
+- [17:21.220] Now the previous administration labeled
+- [17:23.840] a lot of parents domestic terrorist –
+- [17:26.130] are showing up at school board meetings.
+- [17:27.760] What's your message to parents now
+- [17:30.160] as they return their kids to school
+- [17:31.780] knowing that they have the support of you?
+- [17:33.690] The President: Well the beautiful thing is,
+- [17:34.990] as you know, we’ve gotten rid of the woke.
+- [17:37.420] Woke is gone. And I think pretty well buried.
+- [17:40.230] We're going to keep — we're going to make sure it's buried.
+- [17:42.420] But the parents are now taking over the school boards.
+- [17:44.450] They're getting rid of these people
+- [17:45.870] that probably didn't like the children very much,
+- [17:49.710] based on what they were doing. And it's a big difference.
+- [17:52.780] And, you know, one of the other things —
+- [17:54.340] and I keep watching these talking points
+- [17:56.470] that the Democrats have — they say, oh, prices are up —
+- [17:59.320] no, prices are way down. Fuel is down.
+- [18:02.360] Groceries are down. Things like eggs are way down.
+- [18:05.460] You know, when I came in my first week,
+- [18:07.010] the eggs had gone up, like, four or five times.
+- [18:08.980] Nobody had ever seen anything like it.
+- [18:11.320] And they were hitting me about eggs.
+- [18:12.650] I said, I just got here.
+- [18:13.870] It literally was one of my first news,
+- [18:15.470] maybe my first news conference.
+- [18:17.660] And we have eggs down now to a point
+- [18:19.640] where they were actually lower than even before.
+- [18:22.470] So I just want everyone to know, prices are way down,
+- [18:25.280] and that's a big thing. Groceries, everything.
+- [18:29.630] If you look at fuel, $2.35 a gallon.
+- [18:34.970] A lot of that, but we actually had three states, four states,
+- [18:38.410] where it's down $1.99. One dollar and 99 cents,
+- [18:42.350] as opposed to three and a half, four dollars,
+- [18:44.680] and it went up a lot higher than that.
+- [18:46.770] They got rid of my policy,
+- [18:48.850] and then it went through the roof,
+- [18:50.950] and they then brought my policy back,
+- [18:52.620] but it was too late. They blew it.
+- [18:54.810] We had the highest inflation in the history of our country,
+- [18:58.120] and now we have no inflation.
+- [19:00.900] We have nothing but cash coming in.
+- [19:02.760] The world respects us again.
+- [19:05.120] We're a really great, proud country.
+- [19:07.780] And I say it, I'll say it again.
+- [19:09.880] Many, many leaders of other countries,
+- [19:12.390] I'm dealing with a lot of them today on their tariff situation.
+- [19:15.320] They owe us a lot money.
+- [19:17.100] But many countries said to me, and almost in the same words,
+- [19:21.380] you were a dead country one year ago,
+- [19:23.160] and today you're the hottest country anywhere in the world.
+- [19:25.570] We are the hottest county right now,
+- [19:27.690] anywhere in the world,
+- [19:28.970] and that's why we're taking care of our veterans, okay?
+- [19:31.690] Thank you very much, everybody.
+- [19:33.200] The Press: On China. Mr. President.
+- [19:34.850] On China, the secretary of the press is
+- [19:37.190] [inaudible] today.
+- [19:39.170] The President: We're moving along with China.
+- [19:40.410] We're doing fine with China,
+- [19:41.630] and I think it's going to work out very well.
+- [19:43.240] We're right in step.
+- [19:45.420] I think we're going to have a very fair deal with China
+- [19:47.360] Thank you. Thank you.
+- [19:48.600] The Press: Mr. President.
+- [19:49.810] What do you think Epstein was standing here
+- [19:51.420] [inaudible] for?
+- [19:52.650] Female Speaker: Thank you Press.

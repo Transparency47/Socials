@@ -1,0 +1,460 @@
+<!-- source: https://www.youtube.com/watch?v=lP--3SqzCnQ -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: lP--3SqzCnQ -->
+<!-- date_published: 2025-10-26T05:15:14+00:00 -->
+<!-- date_accessed: 2026-06-02T02:42:50.046523+00:00 -->
+
+# Transcript: President Trump Participates in a Signing with the Prime Ministers of Cambodia and Thailand
+
+- [00:01.600] Announcer: Please welcome the Prime Minister of Malaysia,
+- [00:05.520] the Prime Minister of the Kingdom of Thailand,
+- [00:09.380] the Prime Minister of the Kingdom of Cambodia,
+- [00:13.020] and the President of the United States of America.
+- [00:17.490] (applause)
+- [00:26.000] The President: Well, this is so exciting
+- [00:28.250] because we did something that a lot of people
+- [00:30.130] said couldn’t be done,
+- [00:32.420] and we saved maybe millions of lives
+- [00:35.190] on this one peace deal itself.
+- [00:38.870] And I’ll tell you what makes me so happy
+- [00:41.080] is the two countries we’re dealing with
+- [00:44.010] and the third that helped so much.
+- [00:46.190] I appreciate so much.
+- [00:48.030] Maybe it couldn’t have been done without you,
+- [00:49.730] but they really like each other.
+- [00:53.340] I’m not used to that when I do these deals.
+- [00:55.290] Usually, there’s a lot of hatred.
+- [00:56.620] They liked each other, so it made it a little bit easier.
+- [00:59.390] But millions of people are alive today
+- [01:01.290] because of this peace treaty.
+- [01:04.940] So, before I begin, I want to extend our deepest condolences
+- [01:08.380] to the Prime Minister, Anutin ,
+- [01:11.950] as well as His Majesty, the King of Thailand,
+- [01:16.450] and the entire nation on the passing of Her Majesty,
+- [01:21.010] Queen Sirikit, the Queen Mother,
+- [01:24.630] and a beautiful, incredible woman
+- [01:26.760] who is so respected all over.
+- [01:29.560] All over. All over the world, actually, respected.
+- [01:33.020] I know the people of Thailand will remember her
+- [01:35.070] forever as the embodiment of dignity, kindness, and grace.
+- [01:39.230] This just happened.
+- [01:40.940] But this is a woman who is so loved and respected.
+- [01:46.240] Today, we honor the memory
+- [01:48.780] by bringing the blessing of peace
+- [01:51.460] to the nation she dearly loved.
+- [01:53.300] She loved this nation like few people love their nations.
+- [01:56.860] This is a momentous day for all of the people of Southeast Asia,
+- [02:02.330] as we signed a historic agreement
+- [02:03.960] to end the military conflict between Cambodia and Thailand.
+- [02:09.490] And we’re so honored to be involved in that.
+- [02:11.950] It was so important to me.
+- [02:13.750] Two great countries, but they were going at it.
+- [02:18.290] I want to congratulate the two courageous leaders,
+- [02:21.300] and that’s what they are. They were courageous.
+- [02:24.070] We’re taking this monumental step.
+- [02:26.610] Prime Minister Hun Manet and Prime Minister Anutin.
+- [02:33.740] I also want to thank Prime Minister Anwar of Malaysia.
+- [02:38.050] I called him right at the beginning,
+- [02:39.420] and I said, “You know, you have two countries
+- [02:40.980] that are fighting right next to you.
+- [02:43.050] We need a third place.
+- [02:44.590] We need a sort of a neutral place, right?”
+- [02:47.170] And he was there, and I said to him,
+- [02:48.810] “You know, if we get this solved,
+- [02:51.090] I’m coming to your country.” And I told the truth, didn’t I?
+- [02:55.960] A lot of times they say that,
+- [02:57.710] and that’s the last you ever see.
+- [02:58.920] But I felt I had an obligation to come because he was so great.
+- [03:02.230] And the two men alongside of you are so great.
+- [03:04.610] Historic figures now. They’re really historic figures.
+- [03:07.110] So I felt it was an obligation I had.
+- [03:09.760] I told it to you. That was about a year ago.
+- [03:13.990] And all of this has taken place.
+- [03:15.530] It’s been so beautiful to see it has started.
+- [03:18.350] And there was a lot of killing.
+- [03:21.390] And then when we got it stopped very quickly,
+- [03:23.650] in this case, some we did in 32 years,
+- [03:27.140] took 32 years to get them stopped.
+- [03:28.900] They were fighting for a long time.
+- [03:30.140] This was very nasty,
+- [03:32.410] but it was stopped very quickly before it started.
+- [03:35.890] And the two leaders have great respect for each other.
+- [03:40.130] But the Prime Minister played a very important role
+- [03:43.250] in helping convene the two sides for discussions
+- [03:46.610] here in Kuala Lumpur.
+- [03:49.440] Earlier this year, an armed clash broke out
+- [03:51.740] along the border of these two countries.
+- [03:55.350] Really ancient countries, by most standards.
+- [03:59.480] They’ve been a long time.
+- [04:01.080] Tremendous cultures resulting in numerous deaths
+- [04:04.270] and thousands, thousands and thousands of people
+- [04:07.780] displaced from their homes.
+- [04:09.610] It was starting because of America’s strong commitment
+- [04:13.150] to stability and peace in this region
+- [04:15.200] and every region where we can do it.
+- [04:17.520] My administration immediately began
+- [04:19.330] working to prevent the conflict from escalating.
+- [04:23.520] I held phone calls with both leaders.
+- [04:26.530] I was actually at Turnberry in Scotland when I did this.
+- [04:30.490] And we had a lot of phone calls to the three of us
+- [04:34.610] and then the four of us.
+- [04:35.840] We had a lot of phone calls. It was a beautiful day.
+- [04:39.910] I remember how beautiful it was. Turnberry is a great place.
+- [04:43.970] But I said, this is much more important
+- [04:45.480] than playing a round of golf.
+- [04:47.720] So we sat there all day long making phone calls.
+- [04:50.100] And it was amazing the way it came together very quickly.
+- [04:53.340] I mean, really, very quickly.
+- [04:55.430] You caused me very good entertainment.
+- [04:57.240] I could have had a lot of fun. But this is much more fun for me
+- [05:00.320] than anything having to do with almost anything,
+- [05:03.390] because you’re saving people and you’re saving countries.
+- [05:06.980] But ask them to choose the path of prosperity and peace
+- [05:10.500] over needless bloodshed and war. At the end of July,
+- [05:14.520] after extremely productive discussions,
+- [05:16.720] we reached a ceasefire agreement.
+- [05:19.680] And now these gentlemen -- and they really are gentlemen,
+- [05:21.800] high-quality people --
+- [05:25.070] both went to college in the United States.
+- [05:28.580] And now these gentlemen are about to sign
+- [05:30.430] what we’re calling the Kuala Lumpur Peace Accords.
+- [05:35.190] Good name.
+- [05:36.870] Both countries are agreeing to cease all hostilities
+- [05:40.210] and work to build good neighborly relationships,
+- [05:43.330] which have already started.
+- [05:45.510] Eighteen Cambodian prisoners of war will be released.
+- [05:50.040] And under this agreement, observers from ASEAN countries,
+- [05:55.520] including Malaysia, will be deployed to make sure
+- [05:58.000] that the peace prevails and endures.
+- [06:00.230] And I have no doubt that it will.
+- [06:02.500] We have another situation like that right now
+- [06:04.580] in the Middle East and Gaza.
+- [06:07.230] You might have read a little bit about Gaza.
+- [06:09.980] And that’s another one we’re very proud of.
+- [06:12.600] But we have a lot of people watching that.
+- [06:15.680] A lot of people.
+- [06:16.960] I think this is a much different kind of a thing.
+- [06:20.510] Two countries are getting along really well.
+- [06:23.300] Today, alongside this peace treaty,
+- [06:24.940] we also are signing a major trade deal with Cambodia
+- [06:29.210] and a very important critical minerals agreement
+- [06:31.790] with Thailand.
+- [06:33.150] The United States will have a robust commerce
+- [06:35.450] and cooperation, transactions -- lots of them --
+- [06:39.620] with both nations as long as they live in peace.
+- [06:43.730] And I really feel that when we make deals,
+- [06:45.850] we see two countries that we do a lot of business with.
+- [06:49.640] We do a lot of business with both of them.
+- [06:52.080] We have to use that business
+- [06:53.280] to make sure they don’t get into wars.
+- [06:58.030] But this is going to be a very long peace.
+- [07:00.940] So, as you know, this is one of eight wars
+- [07:03.400] that my administration has ended in just eight months.
+- [07:06.220] We’re averaging one a month. There is only one left.
+- [07:10.260] Although I heard that Pakistan and Afghanistan have started up.
+- [07:13.460] But I’ll get that solved very quickly. I know them both.
+- [07:16.920] And the field marshal and the Prime Minister are great people.
+- [07:22.690] And I have no doubt we’re going to get that done quickly.
+- [07:25.780] That one started up a few days ago.
+- [07:29.830] And I just feel it’s something I can do.
+- [07:31.660] I do it nicely. I don’t need to do it, I guess.
+- [07:34.280] But if I can take time and save millions of lives,
+- [07:37.220] that’s really a great thing.
+- [07:38.530] I can’t think of anything better to do.
+- [07:41.420] But the eight wars that my administration
+- [07:43.400] has ended in just eight months,
+- [07:45.160] there’s never been anything like that.
+- [07:47.000] Never. There never will be, either.
+- [07:49.780] I can’t think of any President that ever solved one war.
+- [07:52.310] I don’t think anybody -- they start wars they don’t solve.
+- [07:55.700] So nothing like this has been done in history,
+- [07:57.950] and it’s an honor to be involved.
+- [08:00.180] On behalf of the United States,
+- [08:01.610] I’m proud to help settle this conflict
+- [08:05.130] and really develop good friendships,
+- [08:06.770] including people that work with each team.
+- [08:09.770] Look at these very distinguished people,
+- [08:12.410] except for my people that are --
+- [08:13.720] my people are much less distinguished.
+- [08:15.840] But they’re very good.
+- [08:17.610] But look -- my people understand a joke.
+- [08:21.500] But look at these very distinguished people,
+- [08:23.120] and I’ve gotten to know them.
+- [08:24.620] I want to thank Marco Rubio for being here, who’s great.
+- [08:28.270] You help -- you always help. He was born for this job.
+- [08:31.190] He really was. He was born for this job.
+- [08:33.210] Secretary of State Jamieson,
+- [08:35.320] thank you very much for all you did on helping, too.
+- [08:39.210] He’s the foremost expert on trade,
+- [08:41.700] and we’re going to be doing another couple of stops
+- [08:43.460] where we’re talking about no war, just pure trade.
+- [08:47.250] We’ll be talking to President Xi in a day.
+- [08:51.020] We’ll be stopping at Japan.
+- [08:52.420] We’ll be stopping at South Korea.
+- [08:55.350] And then we’ll be doing some other things,
+- [08:56.920] but they’re more related to trade.
+- [08:59.840] But on behalf of the United States,
+- [09:01.300] I’m proud to help settle this conflict
+- [09:03.770] and forge a future for the region where proud,
+- [09:06.530] independent nations can prosper and thrive --
+- [09:09.410] safety, security, and peace.
+- [09:12.630] It’s an amazing thing that’s happened to the United States
+- [09:15.780] because, a year ago -- a year and a half ago,
+- [09:18.600] we were a dead country. We were actually a dead country,
+- [09:20.760] and now we’re the hottest country anywhere in the world.
+- [09:23.120] And when I called you, we were in the process of becoming hot.
+- [09:27.980] It’s actually quite a while right now,
+- [09:29.380] but we were sort of on our way.
+- [09:32.020] And we had won the election big, in a massive amount.
+- [09:35.930] And so I was respected when I called you,
+- [09:37.950] and it was a little bit easier.
+- [09:39.290] I think it’s easier when you respect somebody than
+- [09:41.680] if you don’t respect somebody.
+- [09:43.030] If you don’t respect somebody, it never happens.
+- [09:46.000] But I won’t forget that day
+- [09:48.790] because it was one of the first wars
+- [09:51.980] that I got involved in. And I love doing it.
+- [09:55.230] I love -- it’s one -- it’s like --
+- [09:57.060] I shouldn’t say it’s a hobby
+- [09:58.400] because it’s so much more serious than a hobby,
+- [10:00.340] but it’s something that I’m good at
+- [10:02.480] and it’s something I love to do.
+- [10:04.190] The United Nations should be doing this,
+- [10:06.050] but they don’t do it. You know, they don’t do it.
+- [10:08.640] They turned off my teleprompter when I made a speech.
+- [10:10.880] I had to make a speech without a teleprompter.
+- [10:13.570] They’re good at that.
+- [10:14.770] The escalator wasn’t working too well.
+- [10:16.590] It came to a complete halt.
+- [10:18.880] But, I mean, the United Nations has such great potential.
+- [10:23.230] I wish they could do it.
+- [10:24.940] They didn’t get involved with us at all.
+- [10:26.510] We just did the deal and reported the deal,
+- [10:29.260] and everybody was sort of amazed
+- [10:30.790] that we got it done so quickly and so nicely.
+- [10:33.940] But now I’d like to ask Prime Minister Anwar
+- [10:36.430] to say a few words, and then we’ll hear
+- [10:39.000] from Prime Minister Hun Manet and Prime Minister Anutin.
+- [10:44.510] And these are -- I just have to say,
+- [10:46.930] for the last time, these are incredible men.
+- [10:48.950] The way they came together, the way they worked so hard.
+- [10:52.600] And we worked long hours. It was not --
+- [10:55.410] not long days because the days were few in number,
+- [10:59.270] but the hours were very long and very intense.
+- [11:02.460] There was a lot of intensity going on
+- [11:04.200] because there was a lot of shooting happening
+- [11:06.280] while we were talking.
+- [11:07.520] That -- that brings it to a new level.
+- [11:09.810] And the three men sitting there should really be accredited
+- [11:14.810] with having done just an incredible job for humanity.
+- [11:17.360] Thank you all very much.
+- [11:18.620] It’s an honor to have worked with you.
+- [11:20.230] Appreciate it. Please.
+- [11:21.610] Prime Minister Anwar: Hun Manet,
+- [11:22.870] President of the United States of America, thank you very much.
+- [11:28.900] Thank you, President Donald Trump,
+- [11:32.040] for giving us this honor. And on behalf,
+- [11:35.340] of course, of Malaysia and our colleagues in ASEAN,
+- [11:38.130] I must thank you for your concern,
+- [11:40.510] for your empathy,
+- [11:41.940] and for your commitment to support this peace deal.
+- [11:43.990] When I first received your call, I was very surprised.
+- [11:45.580] I didn’t know you were going to be here.
+- [11:46.820] But I’m very happy to be here. When I first received your call,
+- [11:48.590] and then urging me to do more in supporting our initiative,
+- [11:51.520] and you personally did call both prime ministers to urge
+- [11:56.920] for a speedy peace settlement, I would say, again, thank you.
+- [12:03.890] And we, of course, admire your tenacity, your courage,
+- [12:08.970] because the world needs leaders who promote peace strongly.
+- [12:16.520] And to achieve that, you have to break some rules,
+- [12:21.220] as you did today. When the President arrived,
+- [12:25.910] he asked me to join him in the car.
+- [12:27.820] I said, that’s against the security and protocol rules.
+- [12:31.140] And he was delighted to break the rules, and I --
+- [12:33.540] It was a nice ride. It was a nice ride.
+- [12:38.370] And we share a lot of things in common.
+- [12:41.390] I was in prison, but he almost got there.
+- [12:46.000] But we’re very good exchangers on a number of issues.
+- [12:50.510] Of course, priority is, of course, the peace deal.
+- [12:52.970] Thank you, both prime ministers. You did a great job.
+- [12:56.370] We are delighted to have you as colleagues, as true friends,
+- [12:59.540] and you understand the need to secure peace to save our people.
+- [13:04.770] And also the ASEAN position
+- [13:07.860] as the region of peace and prosperity.
+- [13:11.390] And I must also share with you here
+- [13:13.990] that I took the opportunity, full opportunity,
+- [13:17.470] without Secretary Rubio knowing this,
+- [13:20.020] exploring other issues too,
+- [13:22.190] and thank the President for his effort to secure peace
+- [13:27.670] in many parts of the world, including Gaza,
+- [13:29.960] and urging him to remain focused
+- [13:34.550] and ensure that there’s comprehensive peace
+- [13:37.070] that the world requires.
+- [13:38.440] And I am delighted, truly, President,
+- [13:42.160] to hear from you personally how determined you are
+- [13:47.220] to ensure that peace is achieved in the most intractable areas,
+- [13:52.820] almost impossible. But you did it,
+- [13:55.530] and we have shown our support and call on the United States,
+- [14:02.850] in particular, to continue this with the support of many,
+- [14:06.370] not only neighbors, but the part of the world.
+- [14:07.970] So I must also take this opportunity
+- [14:10.370] to thank Secretary Rubio, Jamieson, and Ambassador Kagan,
+- [14:14.390] because they were very helpful.
+- [14:16.380] I mean, you didn’t say that, but I must say that,
+- [14:18.860] because they were extremely helpful in ensuring
+- [14:23.100] that you come here.
+- [14:24.690] I mean, I wasn’t sure when you said to me,
+- [14:27.510] yes, Prime Minister, I know I’m coming.
+- [14:29.650] Well, I’m not sure, because, you know,
+- [14:31.520] I deal with a lot of politicians.
+- [14:33.710] But you are an exception. Thank you, Mr. Donald Trump.
+- [14:37.970] (applause)
+- [14:52.760] Prime Minister Hun Manet: President Donald Trump,
+- [14:55.390] Prime Minister Anwar Ibrahim, Prime Minister Anutin
+- [14:59.960] Charnvirakul, excellencies, ladies and gentlemen,
+- [15:04.190] today marks a historic moment,
+- [15:06.430] profound, significant for Cambodia and Thailand.
+- [15:09.200] A day that reaffirmed our shared conviction
+- [15:11.930] that peace is always possible when nations have the courage
+- [15:16.560] and wisdom to pursue it together.
+- [15:19.870] On behalf of the Cambodian people,
+- [15:21.480] I wish to express my deepest gratitude
+- [15:24.260] to President Donald J. Trump
+- [15:25.700] for his decisive leadership and steadfast commitment
+- [15:29.470] to supporting the lasting peace between Cambodia and Thailand
+- [15:33.580] and for his tireless efforts to make it a reality.
+- [15:38.740] I also wish to convey my sincere appreciation
+- [15:41.310] to Prime Minister Anwar
+- [15:43.430] for his unwavering support and facilitation
+- [15:46.810] throughout this peace process until successful conclusion.
+- [15:52.920] I further extend my appreciation
+- [15:54.480] to my ASEAN colleagues, China and other partners
+- [15:57.380] who have been supporting the ceasefire from the beginning.
+- [16:01.260] The principles that underpin this joint declaration
+- [16:04.740] are those that Cambodia holds dear,
+- [16:09.040] that no matter how difficult or complex our disputes may be,
+- [16:13.830] they must always be resolved through peaceful
+- [16:16.440] means in full conformity with existing treaties
+- [16:19.590] and international law.
+- [16:22.070] Cambodia reaffirms a strong commitment
+- [16:25.200] to fully and faithfully implementing
+- [16:27.380] this joint declaration
+- [16:29.180] and to continuing to work closely with Thailand
+- [16:32.820] and all our partners to ensure that this peace endures
+- [16:36.730] and brings tangible benefit to our people.
+- [16:41.710] We look forward to continued support
+- [16:43.810] and contribution of international communities
+- [16:46.150] and partners to fruitful realization
+- [16:49.090] of the joint declaration.
+- [16:52.220] As we speak, I think our two commanders
+- [16:56.020] are discussing the possibility of the start of withdrawal,
+- [17:00.470] partial withdrawal of the first phase of our heavy weapons
+- [17:03.660] as an indication of our willingness to show
+- [17:08.110] that the execution of the joint declaration.
+- [17:13.090] At the same time, I hope,
+- [17:15.240] I strongly hope for the prompt release
+- [17:17.500] of our 18 soldiers on humanitarian grounds
+- [17:22.240] and as agreed in the joint declaration.
+- [17:25.250] Finally, recognizing your unwavering dedication
+- [17:29.100] and resolute effort to promote peace,
+- [17:31.140] not only between Cambodia and Thailand
+- [17:33.690] but also among other nations,
+- [17:35.980] and reflecting the gratitude of the Cambodian people,
+- [17:39.020] I have nominated President Donald J. Trump
+- [17:41.990] for the Nobel Peace Prize.
+- [17:44.170] And as I say, peace saves lives
+- [17:49.550] and this is the wish of our Cambodian people
+- [17:51.820] as appreciation for the President.
+- [17:53.540] So thank you very much, Mr. President. Thank you.
+- [17:57.840] (applause)
+- [18:13.630] Prime Minister Charnvirakul: President Trump,
+- [18:16.650] Prime Minister Anwar, Prime Minister Hun
+- [18:19.740] Manet, Excellencies, distinguished colleagues,
+- [18:26.460] today marks a new chapter for Thailand and Cambodia.
+- [18:32.150] Today we take a concrete step towards peace.
+- [18:38.030] I would like to thank Prime Minister Anwar Ibrahim
+- [18:41.940] for the leadership as ASEAN Chair
+- [18:45.200] and your strong efforts in upholding ASEAN unity.
+- [18:50.440] And I also wish to express my sincere appreciation
+- [18:56.190] to President Donald J. Trump for your personal dedication
+- [19:01.770] to peace between our two countries.
+- [19:06.610] And in addition, I thank so much
+- [19:11.080] for the kind words of condolences
+- [19:17.070] that the President has given to our country
+- [19:21.510] on the great loss of our beloved
+- [19:24.200] Queen Mother. It means a lot to Thai people.
+- [19:29.600] We have come a long way since agreeing to the ceasefire
+- [19:33.430] here in Malaysia on 28th of July.
+- [19:37.470] The discussions since then have led to this important outcome,
+- [19:42.730] which is the signing of our joint declaration today.
+- [19:47.380] And I have to thank Prime Minister Hun Manet
+- [19:49.720] for his cooperation and support that led us to this moment.
+- [19:55.300] Thailand stands for peace.
+- [19:57.730] This declaration reflects our will to resolve differences
+- [20:02.450] peacefully in full respect of sovereignty
+- [20:06.370] and territorial integrity.
+- [20:09.380] This declaration, if fully implemented,
+- [20:13.510] will provide the building blocks for lasting peace.
+- [20:18.560] But more importantly,
+- [20:19.950] it will begin the process of mending our ties.
+- [20:24.260] Our border communities have been divided by conflict,
+- [20:27.940] and innocent civilians have suffered immense losses.
+- [20:33.160] This declaration places a firm responsibility
+- [20:37.790] on our two parties to act.
+- [20:41.320] I believe we can achieve
+- [20:42.960] what seemed beyond reach a few months ago.
+- [20:47.830] To this end, I welcome the agreement
+- [20:50.280] that following the signing of this joint declaration today,
+- [20:53.760] both sides will begin implementing
+- [20:56.330] all the agreed points,
+- [20:58.040] in particular promptly removing heavy weapons
+- [21:01.910] from the border areas to ensure the safety of our people,
+- [21:06.530] to build confidence and trust.
+- [21:09.440] And Thailand will also begin the process of releasing
+- [21:13.600] the 18 detained Cambodian soldiers.
+- [21:17.380] We have a responsibility to act in earnest and in good faith,
+- [21:21.960] and to restore livelihoods and protect
+- [21:25.270] the well-being of our communities
+- [21:27.750] along our shared border.
+- [21:30.660] To achieve real change on the ground,
+- [21:33.230] what we agree on here must be implemented.
+- [21:36.690] Only then can we truly turn to a new page.
+- [21:42.220] Only then can we assure our people’s security and safety.
+- [21:49.170] Only then can we achieve real peace.
+- [21:52.610] This is what our people expect of us,
+- [21:55.330] and this is what they deserve.
+- [21:57.420] Peace with dignity.
+- [22:00.290] Going forward, I call on our friends
+- [22:05.200] to continue supporting this process
+- [22:07.790] so that the joint declaration is implemented fully
+- [22:11.420] and in good faith, rebuilding stability,
+- [22:14.780] trust and renewed cooperation
+- [22:17.290] between Thailand and Cambodia and across our region.
+- [22:21.940] I am also pleased that today
+- [22:23.700] we announced a joint statement on the framework
+- [22:26.340] for a US-Thailand agreement on reciprocal trade,
+- [22:30.700] which I hope will facilitate our negotiations on tariffs
+- [22:35.000] for conclusion by end of this year.
+- [22:38.000] We will also sign the MOU between our governments
+- [22:42.290] on cooperation on critical minerals,
+- [22:46.010] which will further promote resilient
+- [22:48.570] and sustainable supply chains for years to come.
+- [22:52.180] Thank you once again.
+- [22:53.510] Thank you from the bottom of my heart. Thank you.
+- [22:56.260] (applause)
+- [24:49.260] (applause)
+- [25:13.590] (applause)
+- [25:34.260] (inaudible)
+- [26:01.420] Female Speaker: We have additional agreements,
+- [26:03.270] Mr. President. We have the Cambodian trade deal
+- [26:05.930] and we have the critical minerals agreement to sign.
+- [26:10.800] The President: (inaudible)
+- [26:40.800] The President: (inaudible)
+- [27:37.202] (laughter)
+- [28:09.604] (applause)
+- [28:22.006] (applause)
+- [28:40.408] (applause)
+- [28:58.360] The President: Thank you very much and congratulations.
+- [29:01.360] (inaudible)
+- [29:06.370] (applause)

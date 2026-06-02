@@ -1,0 +1,912 @@
+<!-- source: https://www.youtube.com/watch?v=D8MmRlz1ZTc -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: D8MmRlz1ZTc -->
+<!-- date_published: 2025-04-01T16:45:12+00:00 -->
+<!-- date_accessed: 2026-06-02T02:52:15.120362+00:00 -->
+
+# Transcript: Press Secretary Karoline Leavitt Briefs Members of the Media, Apr. 1, 2025
+
+- [00:00.480] Hello everybody.
+- [00:02.560] Good afternoon. How are we? Great. Good.
+- [00:05.279] Good to see you all. I want to start
+- [00:07.680] today by addressing the US Army soldiers
+- [00:10.559] who went missing while conducting a
+- [00:12.480] mission to repair and tow an immobilized
+- [00:15.040] tactical vehicle in Lithuania in the
+- [00:17.359] early hours of March 25th. Tragically,
+- [00:20.480] three soldiers were found deceased in
+- [00:22.560] Lithu Lithuania yesterday. And it pains
+- [00:25.279] me to confirm that today the fourth
+- [00:27.439] soldier was also found deceased. The
+- [00:30.240] president, the secretary of defense, and
+- [00:32.160] the entire White House are praying for
+- [00:34.239] the victim's friends and family during
+- [00:36.239] this unimaginable time. This is another
+- [00:38.879] stark reminder of the selfless sacrifice
+- [00:41.200] of our brave military men and women who
+- [00:43.760] risk their lives around the world every
+- [00:45.600] day to keep us safe. God bless them. On
+- [00:48.719] another note, at our southern border,
+- [00:50.800] there is more massive news. Southwest
+- [00:53.199] border crossings in March fell to the
+- [00:55.039] lowest level in American history, down
+- [00:58.039] 94% from March of last year under
+- [01:01.039] President Biden when 137,000 illegal
+- [01:04.960] aliens poured across our wideopen
+- [01:07.520] southern border. Thanks to President
+- [01:09.760] Trump's leadership, border patrol agents
+- [01:11.920] are now back to doing the jobs they
+- [01:13.920] signed up for, securing the border
+- [01:16.560] rather than serving as travel agents for
+- [01:18.960] illegal aliens. The Los Angeles Times
+- [01:21.680] captured the Trump effect on the border
+- [01:23.759] with a recent article. Their headline
+- [01:26.000] read, "Cal California Mexico border,
+- [01:28.640] once overwhelmed, is now nearly empty.
+- [01:32.240] With so few migrants coming into the
+- [01:34.159] US," they wrote, "Shelters that once
+- [01:36.400] served migrants have completely closed.
+- [01:39.200] Deportations of illegal aliens who
+- [01:41.200] threaten the safety of the American
+- [01:42.799] people are also continuing at a rapid
+- [01:45.119] pace. Over the weekend, the United
+- [01:47.680] States military transferred a group of
+- [01:49.759] 17 violent criminals from the Trenve Ara
+- [01:52.799] and MS-13 terrorist organizations to El
+- [01:55.640] Salvador. And an illegal alien who was
+- [01:58.240] released by the Biden administration
+- [02:00.000] into our country was just arrested in
+- [02:02.640] Georgia and charged with the horrific
+- [02:04.799] killing of Chameleia Will Williams, a
+- [02:07.360] mother of five and grandmother. The
+- [02:09.920] suspect has now been indicted on charges
+- [02:12.000] of malice murder, felony murder,
+- [02:14.400] aggravated assault, rape, aggravated
+- [02:17.120] sexual battery, and necrilia, which for
+- [02:20.400] those who don't know, necrilia is a
+- [02:22.560] sexual obsession with a corpse corpse.
+- [02:25.760] This sub sub suspect was ordered to be
+- [02:28.480] removed in July 2023, but the Biden
+- [02:31.360] administration allowed him to stay. This
+- [02:34.000] case represents the ruthless murderers,
+- [02:36.560] rapists, and pedophiles who Joe Biden
+- [02:38.800] and Democrats let into our country over
+- [02:41.360] the past four years through our southern
+- [02:43.360] border. They should have never been here
+- [02:45.680] in the first place. Keep this in mind
+- [02:48.319] the next time you see Democrats
+- [02:49.920] protesting future illegal alien removals
+- [02:52.400] from our country. President Trump is
+- [02:55.040] focused on fulfilling his greatest
+- [02:56.879] obligation to keep the American people
+- [02:59.200] safe and to defend our country from
+- [03:01.519] violent invaders.
+- [03:03.519] Looking ahead to tomorrow, April 2nd,
+- [03:06.239] 2025 will go down as one of the most
+- [03:08.959] important days in modern American
+- [03:11.400] history. Our country has been one of the
+- [03:14.560] most open economies in the world, and we
+- [03:16.879] have the consumer base, hands down, the
+- [03:19.440] best consumer base. But too many foreign
+- [03:22.000] countries have their markets closed to
+- [03:24.080] our exports. This is fundamentally
+- [03:27.040] unfair. The lack of reciprocity
+- [03:29.680] contributes to our large and persistent
+- [03:32.000] annual trade deficit that's gutted our
+- [03:34.159] industries and hollowed out key
+- [03:36.040] workforces. But those days of America,
+- [03:38.879] beginning tomorrow, being ripped off are
+- [03:41.440] over. American workers and businesses
+- [03:44.000] will be put first under President Trump,
+- [03:47.040] just as he promised on the campaign
+- [03:48.799] trail. The president's historic action
+- [03:51.280] tomorrow will improve American
+- [03:52.959] competitiveness in every area of
+- [03:55.000] industry, reduce our massive trade
+- [03:57.599] deficits, and ultimately protect our
+- [03:59.920] economic and national security.
+- [04:02.560] President Trump's economic vision is
+- [04:04.560] rooted in common sense. America will
+- [04:07.680] offer companies the lowest taxes, energy
+- [04:10.400] costs, regulations if they make their
+- [04:12.799] products right here in the United States
+- [04:15.120] and hire American workers for the job.
+- [04:17.680] It's simple. If you make your product in
+- [04:19.919] America, you will pay no tariffs. We
+- [04:23.520] have already seen a number of the
+- [04:24.880] largest companies in the world respond
+- [04:26.720] to this economic approach. For example,
+- [04:29.919] project Stargate, led by Japan-based
+- [04:32.000] Soft Bank and US-based OpenAI and
+- [04:34.560] Oracle, announced a $500 billion private
+- [04:38.000] investment in the United States-based
+- [04:39.919] artificial intelligence infrastructure.
+- [04:42.560] Apple announced a $500 billion
+- [04:45.040] investment in US manufacturing and
+- [04:47.040] training. Nvidia announced it will
+- [04:49.520] invest hundreds of billions of dollars
+- [04:51.280] over the next four years in US-based
+- [04:53.960] manufacturing. And the Taiwan semicondu
+- [04:56.560] semiconductor manufacturing company TSMC
+- [04:59.919] announced a 100 billion dollar
+- [05:01.600] investment in US-based chips and
+- [05:04.199] manufacturing. These are just a few of
+- [05:06.560] the investment announcements that have
+- [05:08.160] already been made and it is clear that
+- [05:10.080] President Trump's America first approach
+- [05:12.320] has is already working. In our new media
+- [05:15.520] seat today is Mark Halprin, the
+- [05:17.440] co-founder and editor-inchief of
+- [05:19.120] Two-Way, a new live video platform that
+- [05:21.680] builds communities around interactive
+- [05:23.520] conversations with leaders and content
+- [05:25.680] creators from every subject area. They
+- [05:28.080] have over 37.5 million video views, over
+- [05:31.680] 3.6 million watchtime hours since the
+- [05:34.240] platform began just last year. This is
+- [05:37.039] new media in its truest sense, allowing
+- [05:39.520] the people to ask questions, make
+- [05:41.280] comments, and be an active part of
+- [05:42.880] engagement on the most important issues
+- [05:45.039] facing the country and our world. With
+- [05:47.600] that, Mark, please kick us off and
+- [05:49.360] welcome to the briefing room. Thank you,
+- [05:50.560] Caroline. Appreciate it. Um, I'll ask
+- [05:52.160] you a question about terrorists and then
+- [05:53.199] one from our one members of our
+- [05:54.560] community. Sure. About education. Um,
+- [05:56.720] it's perceived by some that companies or
+- [05:59.440] countries if they change their policies
+- [06:01.759] either before tomorrow or after tomorrow
+- [06:03.919] can have the president alter what he's
+- [06:05.440] planning for that country or that
+- [06:07.039] sector. Is that a possibility? And if
+- [06:08.639] so, what factors the president consider
+- [06:10.560] in making those changes? Well, the
+- [06:12.800] ultimate change for these companies in
+- [06:14.479] these countries, Mark, will happen when
+- [06:16.240] they decide to do business in the United
+- [06:18.000] States of America. And as I just laid
+- [06:19.840] out, they will face no tariffs at all if
+- [06:21.840] these companies choose to invest here in
+- [06:24.319] the United States and to move their
+- [06:26.160] production and their manufacturing here
+- [06:27.919] to the United States as well. As for
+- [06:30.080] tomorrow, the president will be
+- [06:31.280] addressing the decades of unfair trade
+- [06:33.520] practices that have ripped our country
+- [06:35.039] off and American workers off. It has
+- [06:36.960] hollowed out our middle class. It has
+- [06:38.880] destroyed our heartland. And the
+- [06:40.400] president is focused on reshifting our
+- [06:42.639] global economy to ensure that America is
+- [06:44.720] once again the manufacturing superpower
+- [06:46.400] of the world. So if they do something
+- [06:47.919] today or later in the week that's a
+- [06:49.520] pledge for future activity, would that
+- [06:51.280] be good enough potentially to alter the
+- [06:53.360] policy? Again, the president has been
+- [06:55.199] looking at the very unfair trade
+- [06:56.800] practices of the past. Um certainly the
+- [06:59.360] president is always up to take a phone
+- [07:01.199] call, always up for a good negotiation,
+- [07:03.520] but he is very much focused on fixing
+- [07:05.440] the wrongs of the past and showing that
+- [07:07.360] American workers have a fair shake. So
+- [07:09.120] if someone calls after tomorrow and
+- [07:10.560] says, "Hey, I'm ready to make a change,"
+- [07:12.319] he'd be open to that. The president is
+- [07:14.000] always open to taking calls. Okay. A
+- [07:15.919] question from one of our community
+- [07:17.039] members. Katie Reeves is a school
+- [07:19.120] teacher in Wisconsin. She's taught K
+- [07:21.120] through eight in public, independent,
+- [07:22.960] private, and private schools. And here's
+- [07:24.720] what she wants me wanted me to ask you.
+- [07:26.880] She says, "I see the elimination of the
+- [07:28.319] Department of Education as an excellent
+- [07:30.000] first step in the improvement of our
+- [07:31.759] school system. Do you see any further
+- [07:33.680] role the federal government can take
+- [07:35.199] beyond this, possibly in promoting the
+- [07:37.360] expansion of voucher programs or
+- [07:39.280] reducing the influence that teachers
+- [07:40.800] unions hold over our schools?"
+- [07:43.280] Well, first of all, I want to thank
+- [07:44.639] Katie for her service to our country and
+- [07:46.639] our nation's children. Um, being a
+- [07:49.120] teacher is the most noble profession
+- [07:50.720] that we believe one can have. And the
+- [07:52.800] president said in his remarks when he
+- [07:55.280] signed the executive order to dismantle
+- [07:57.039] the Department of Education that he
+- [07:58.560] loves our teachers. And in part, this
+- [08:01.199] order is to empower our teachers to have
+- [08:03.440] greater decision making in the
+- [08:05.599] classroom. Um, nobody knows our nation's
+- [08:08.160] children and our students better than
+- [08:09.680] our teachers who are with them every
+- [08:11.199] single day. As for the federal
+- [08:12.800] government's role to get to the heart of
+- [08:14.160] Katie's question, um the president has
+- [08:16.319] made it clear to Linda McMahon, uh that
+- [08:18.560] we need to find other places within our
+- [08:20.479] federal government for critical programs
+- [08:22.400] regarding education, um PEL grants, um
+- [08:25.039] Title 9 lawsuits, etc., civil rights
+- [08:28.000] lawsuits, um all of that are critical
+- [08:30.240] functions, special needs programs,
+- [08:32.080] nutrition programs. But there are other
+- [08:33.919] places throughout the federal
+- [08:35.039] bureaucracy where those things can
+- [08:36.800] happen and work. The Department of
+- [08:38.399] Education has been a very bloated
+- [08:40.399] bureaucracy. We spent trillions of
+- [08:42.080] dollars on this department and for what
+- [08:44.320] um our children are worse off as far as
+- [08:46.080] education goes today than they were when
+- [08:48.320] this department originated and that's
+- [08:49.760] very concerning to the president. So the
+- [08:51.360] two issues she cited are those of
+- [08:52.800] priorities for the president school
+- [08:54.959] education choice vouchers and
+- [08:57.920] diminishing the role of teachers unions.
+- [09:00.000] Uh the president is very supportive of
+- [09:02.240] both of those things. Uh particularly
+- [09:04.160] when it comes to school choice. He has
+- [09:06.080] said that school choice is the civil
+- [09:07.600] rights issue of our time and he wants
+- [09:09.760] every child regardless of zip code,
+- [09:11.920] socioeconomic status, how much money
+- [09:13.760] their parents have to be able to go to
+- [09:15.519] the school of their choosing that best
+- [09:17.680] suits their educational needs. And he is
+- [09:19.440] going to empower state and local leaders
+- [09:21.200] to make those decisions on behalf of our
+- [09:22.959] nation's children. Thanks for being
+- [09:24.560] here, Mark. Jeff, um just changing
+- [09:27.519] subjects for one second. The
+- [09:28.720] administration has expressed a complete
+- [09:31.200] uh confidence in how all the deportation
+- [09:33.440] uh flights to El Salvador were
+- [09:35.920] conducted. But now that the
+- [09:37.200] administration has uh conceded that
+- [09:39.360] there was an error of one Salvadorian
+- [09:41.839] national, will there be any reviews
+- [09:43.760] conducted and does the president uh
+- [09:46.000] express any uh thoughts on the one error
+- [09:49.040] that was uh disclosed in court last
+- [09:51.040] night? Well, first of all, the error
+- [09:53.040] that you are referring to was a clerical
+- [09:55.120] error. It was an administrative error.
+- [09:57.040] The administration maintains the
+- [09:58.560] position that this individual who was
+- [10:00.640] deported to El Salvador and will not be
+- [10:02.480] returning to our country was a member of
+- [10:05.040] the brutal and vicious MS-13 gang. That
+- [10:08.640] is fact number one. Fact number two, we
+- [10:11.040] also have credible intelligence proving
+- [10:12.800] that this individual was involved in
+- [10:14.720] human trafficking. And fact number
+- [10:16.720] three, this individual was a member,
+- [10:18.800] actually a leader of the brutal MS-13
+- [10:21.040] gang, which this president has
+- [10:22.480] designated as a foreign terrorist
+- [10:24.240] organization. Fact number four is that
+- [10:26.959] foreign terrorists do not have legal
+- [10:28.880] protections in the United States of
+- [10:30.399] America anymore. And it is within the
+- [10:32.399] president's executive authority and
+- [10:33.839] power to deport these heinous
+- [10:35.680] individuals from American communities.
+- [10:37.360] It is a promise he campaigned on. It is
+- [10:39.200] a promise he is keeping. And every
+- [10:41.279] single person in this room uh should be
+- [10:43.120] grateful for that considering especially
+- [10:44.920] MS-13 is very prevalent and prominent
+- [10:47.680] here in the District of Columbia in
+- [10:49.839] Maryland and in Virginia and the
+- [10:51.440] president, the attorney general,
+- [10:53.200] everyone who has been involved in these
+- [10:54.640] operations is focused on eradicating
+- [10:56.560] these criminals and terrorists from our
+- [10:58.720] communities. The vice president said he
+- [11:00.079] was a convicted member of MS-13. What
+- [11:02.480] evidence is there uh to back that up?
+- [11:05.120] There's a lot of evidence and the
+- [11:06.399] Department of Homeland Security and ICE
+- [11:08.399] have that evidence and I saw it this
+- [11:09.920] morning. Steve, has has the president
+- [11:12.240] fully made up his mind on the level of
+- [11:14.320] tariffs to impose tomorrow? We keep
+- [11:15.920] hearing about a 20% flat rate. The
+- [11:18.560] president said last night he has made a
+- [11:20.320] decision in a determination. I was with
+- [11:22.079] him in the Oval Office earlier uh and he
+- [11:24.399] is going to announce that decision
+- [11:25.680] tomorrow. I don't want to get ahead of
+- [11:26.959] the president. This is obviously a very
+- [11:28.640] big day. He is with his trade and tariff
+- [11:30.720] team right now uh perfecting it to make
+- [11:32.959] sure this is a perfect deal for the
+- [11:35.120] American people and the American worker.
+- [11:36.959] And you will all find out in about 24
+- [11:38.880] hours from now. And are the car tariffs
+- [11:41.200] going to go into effect on April 3rd as
+- [11:43.360] scheduled? Correct. Yes, they will.
+- [11:45.360] Okay. And and last thing, would you like
+- [11:47.120] to respond to the Chinese military
+- [11:49.360] drills around Taiwan? Yes, I would. Uh
+- [11:52.640] as a matter of fact, the National
+- [11:54.000] Security Council briefed me on this this
+- [11:55.600] morning. Um and they said um that the
+- [11:58.320] president um is emphasizing the
+- [12:00.880] importance of maintaining peace in the
+- [12:02.720] Taiwan Strait, encouraging the peaceful
+- [12:04.560] resolution of these crossstrait issues,
+- [12:06.560] reiterating our opposition to any
+- [12:08.320] unilateral attempts to change the status
+- [12:10.320] quo by force or coercion. That is
+- [12:12.399] directly from the national security
+- [12:13.680] adviser. Just for you, Steve Holland of
+- [12:15.600] Reuters. Monica. Thank you so much,
+- [12:17.760] Caroline. Uh Elon Musk this week
+- [12:20.079] revealed that Doge found that uh the
+- [12:22.240] Biden administration issued over two
+- [12:24.399] million social security numbers to
+- [12:26.240] illegal aliens, found 20 million dead
+- [12:28.800] people marked as alive in the social
+- [12:30.639] security system. Has the White House
+- [12:32.399] confirmed these numbers with Elon? And
+- [12:34.079] is the White House looking into
+- [12:35.200] correcting this? I'm not sure about
+- [12:37.200] those specific numbers that Mr. Musk
+- [12:39.040] cited. Um, I can tell you what the
+- [12:41.040] Social Security Administration has said
+- [12:42.720] themselves according to an inspector's
+- [12:44.959] general's report that was conducted last
+- [12:46.720] year showing there was nearly 80 billion
+- [12:49.120] dollars worth of fraud in this program.
+- [12:51.440] We know for a fact there are individuals
+- [12:53.360] who are should not be receiving benefits
+- [12:55.920] uh on the social security roles. And
+- [12:57.600] this administration is focused on
+- [12:59.279] cleaning out the waste, fraud, and abuse
+- [13:01.040] in every agency, but particularly in
+- [13:03.040] Social Security to make it stronger for
+- [13:05.360] our taxpaying, law-abiding citizens who
+- [13:07.680] deserve these entitlements and programs.
+- [13:09.680] Because you did bring up Doge, I do want
+- [13:11.600] to tout the incredible efforts that have
+- [13:13.760] been made at the Environmental
+- [13:15.200] Protection Agency. Uh and Administrator
+- [13:17.200] Lee Zeldon is just doing a tremendous
+- [13:19.120] job. um just yesterday and today it will
+- [13:21.519] be going into effect. He announced that
+- [13:23.360] taxpayers will be saved $8 million in
+- [13:26.399] annual lease costs um by moving staff
+- [13:28.959] out of the
+- [13:30.360] 323,000 square ft of space that the EPA
+- [13:34.240] currently occupies, which is completely
+- [13:36.279] unnecessary. Um yesterday, Administrator
+- [13:38.639] Zeldon also announced he will be
+- [13:40.240] shutting down a museum that the Biden
+- [13:42.880] administration built to tell a selective
+- [13:45.760] story about the EPA's history and
+- [13:48.160] climate change. It was a real pat on the
+- [13:50.000] back to President Biden. And guess how
+- [13:52.800] much American taxpayers paid for it? $4
+- [13:55.360] million for this museum that I think
+- [13:58.000] only a thousand visitors saw last year
+- [14:00.320] alone. Um, and it would cost American
+- [14:02.399] taxpayers $600,000 per year to operate
+- [14:06.160] this museum. Well, it's not going to
+- [14:08.079] exist anymore. We're going to save
+- [14:09.360] taxpayers those critical funds. Um, and
+- [14:11.600] administration administrator Zelden is
+- [14:13.760] very proud to announce that. Um, and
+- [14:15.760] just at EPA alone and the the uh cuts
+- [14:19.120] that they have made, they've saved
+- [14:20.480] taxpayers more than$22 billion dollars
+- [14:23.279] in wasteful grants in spending.
+- [14:26.000] Thank you, Caroline. When the president
+- [14:27.920] goes down to Florida on the weekends,
+- [14:29.839] does he ever hear from There are so many
+- [14:31.680] retired folks down in Florida. Does he
+- [14:34.000] ever hear from any retired Americans who
+- [14:38.079] are stressed about these wild swings in
+- [14:40.639] the stock market because of the tariff
+- [14:43.160] uncertainty and they're sitting there on
+- [14:45.440] fixed income or living off a 401k and
+- [14:48.560] they don't know how much money is going
+- [14:50.399] to be left? Well, certainly they are
+- [14:52.800] legitimate concerns and the president
+- [14:54.560] takes those concerns very seriously and
+- [14:56.880] he's addressing them every single day
+- [14:58.720] and tomorrow's announcement is to
+- [15:00.480] protect future generations of the senior
+- [15:03.199] citizens you mentioned. It's for their
+- [15:04.720] kids and their grandkids to ensure that
+- [15:06.959] there are jobs here in the United States
+- [15:08.720] of America, for their children to uh
+- [15:11.040] live the American dream just like they
+- [15:13.199] presumably did. And as for their worries
+- [15:15.600] about their 401ks, uh their social
+- [15:17.760] security, I just addressed social
+- [15:19.040] security. This president is always going
+- [15:20.720] to protect it for our taxpaying senior
+- [15:22.959] citizens. As for their 401ks, look at
+- [15:25.120] what President Trump did for you in his
+- [15:27.120] first term. He is working on
+- [15:28.720] implementing that economic formula every
+- [15:31.120] single day by lowering inflation,
+- [15:32.959] lowering energy prices, massive
+- [15:34.639] deregulatory efforts while
+- [15:36.560] simultaneously effectively implementing
+- [15:38.480] tariffs. And they'll hear more about
+- [15:39.600] that announcement tomorrow. And you said
+- [15:41.040] that the president right now is with the
+- [15:42.880] trade and tariff team. They are very
+- [15:45.120] confident that this is all going to
+- [15:47.040] work. But what if they're wrong? Uh
+- [15:49.600] they're not going to be wrong. It is
+- [15:51.279] going to work. And the president has a
+- [15:53.360] brilliant team of adviserss who have
+- [15:54.959] been studying these issues for decades.
+- [15:57.440] Um and we are focused on restoring the
+- [16:00.240] golden age of America and making America
+- [16:02.320] a manufacturing superpower. And again,
+- [16:04.320] Peter, I would point you to the
+- [16:05.519] investments that have already trickled
+- [16:06.720] into this country. And the president
+- [16:08.399] hasn't even made his tariff announcement
+- [16:10.000] yet tomorrow. There have been billions
+- [16:12.079] of dollars in private investments from
+- [16:13.920] around the world pouring into American
+- [16:16.160] communities. What does that look like
+- [16:17.839] for those watching at home? For the
+- [16:19.360] people you mentioned worried about their
+- [16:21.440] own economic circumstances, it means
+- [16:23.519] more jobs in your communities, which
+- [16:25.199] means more money, more investments, more
+- [16:27.360] money in your pocket. That's what the
+- [16:29.040] president is committed to. And I would
+- [16:30.639] be remiss if I didn't mention the
+- [16:32.480] president's commitment to tax cuts,
+- [16:34.639] which we are counting on Congress to do,
+- [16:36.800] especially on social security. And one
+- [16:38.880] more. Sure. Are the special elections
+- [16:41.120] today a referendum on the president? I
+- [16:44.160] think the first of all, as you know, I'm
+- [16:46.079] a government employee now. Uh so I'm not
+- [16:48.560] very much uh allowed to comment on
+- [16:50.959] elections that are taking place. That's
+- [16:52.800] something to get used to having just
+- [16:54.079] been on the campaign trail for quite
+- [16:55.600] some time. Um but the president is the
+- [16:58.000] leader of the America First movement and
+- [17:00.160] the MAGA movement. And that was made
+- [17:02.320] very clear on November the 5th when he
+- [17:04.720] received nearly 80 million votes. I
+- [17:06.799] could also say that it is the
+- [17:08.559] constitutional right of every
+- [17:10.160] law-abiding American in these places
+- [17:12.240] where these elections are being held to
+- [17:14.000] vote. Um, and every American should
+- [17:18.000] exercise their constitutional rights.
+- [17:20.240] Sure. Thanks, Carolyn. A few questions
+- [17:21.679] about this deportation case. First, I
+- [17:24.240] wanted to clarify something that you
+- [17:25.439] said to Jeff a few minutes ago. You said
+- [17:27.600] you'd seen evidence that this man was a
+- [17:30.799] convicted gang member. In what court was
+- [17:33.919] he convicted and for what? the this
+- [17:36.640] individual was an MS-13 ring leader.
+- [17:39.280] This individual was also engaged in
+- [17:41.120] human trafficking. And I'm glad you
+- [17:43.120] brought up this point again because I
+- [17:44.799] would like to point out that if you just
+- [17:46.480] saw the headline from the insane failing
+- [17:50.000] Atlantic magazine this morning, you
+- [17:52.080] would think this individual was father
+- [17:54.240] of the year living in Maryland living a
+- [17:56.320] peaceful life when that couldn't be
+- [17:57.919] further from the truth. They didn't even
+- [18:00.080] mention in the title of that article or
+- [18:02.480] even in the first paragraph that this
+- [18:04.240] individual is an illegal criminal who
+- [18:06.400] broke our nation's immigration laws. He
+- [18:08.640] is a leader in the brutal MS-13 gang and
+- [18:12.160] he is involved in human trafficking. And
+- [18:13.840] now MS-13 is a designated foreign
+- [18:15.919] terrorist organization. Foreign
+- [18:17.679] terrorists have no legal protections in
+- [18:19.440] the United States of America. And this
+- [18:21.200] administration is going to continue to
+- [18:23.360] deport foreign terrorists and illegal
+- [18:24.960] criminals from our nation's interior.
+- [18:26.960] But a judge ordered that he should
+- [18:28.640] remain in this country. So are you
+- [18:30.799] saying that it is okay to ignore a
+- [18:32.799] judge's ruling if you don't like it? Uh
+- [18:34.960] who does that judge work for? He's an
+- [18:37.200] immigration. It was an immigration judge
+- [18:38.640] who works for the Department of Justice
+- [18:40.240] at the direction of the attorney general
+- [18:41.840] of the United States whose name is Pam
+- [18:43.679] Bondi who has committed to eradicating
+- [18:45.919] MS-13 from our nation's interior. And
+- [18:48.640] let me tell you why we've made this
+- [18:50.080] commitment. MS-13, may I remind each and
+- [18:52.480] every one of you, is a brutal and
+- [18:54.400] vicious gang. They raped and strangled a
+- [18:57.120] 20-year-old autistic woman to death in
+- [18:59.039] Maryland. They hacked four people to
+- [19:00.799] death with machetes in a park on Long
+- [19:02.559] Island. They have kidnapped, sexually
+- [19:04.559] tortured, and shot a teenage girl in
+- [19:06.559] Texas after she insulted them.
+- [19:09.039] Allegedly, killed and mutilated a
+- [19:11.120] 17-year-old girl in Virginia, stabbing
+- [19:13.200] him 16 times and cutting off his hands.
+- [19:16.799] They beheaded and cut out the heart of a
+- [19:18.799] man in Washington, DC. They raped and
+- [19:21.520] murdered a 13-year-old girl in
+- [19:23.200] California. They sex traffked a slew of
+- [19:25.760] young girls, including one who was just
+- [19:27.600] 12 years old. Raped an 11-year-old girl
+- [19:30.240] in Brooklyn while her brother was in the
+- [19:32.000] room, sex traffked a 13-year-old in
+- [19:34.400] Maryland in Virginia, miles away from
+- [19:36.720] this White House, even beating her 26
+- [19:38.720] times on her backside with a baseball
+- [19:40.400] bat, pressured to homeless New Yorkers
+- [19:42.480] to undergo unnecessary um um surgeries
+- [19:46.400] such as spinal fusion in order to
+- [19:47.919] bolster their fraudulent lawsuits. These
+- [19:50.000] are vicious criminals. This is a vicious
+- [19:53.120] gang and I wish that the media would
+- [19:55.120] spend just a second of the same time you
+- [19:57.120] have spent um trying to litigate each
+- [19:59.280] and every individual of this gang who
+- [20:01.039] has been deported from our country as
+- [20:02.720] the innocent Americans whose lives have
+- [20:04.559] been lost at the hands of these brutal
+- [20:06.480] criminals. We maintain our position and
+- [20:08.400] very strongly so. Jennifer, uh one more
+- [20:10.480] on the tariffs. Um can you say what the
+- [20:12.720] latest thinking is on the start date? I
+- [20:14.799] know you were just in the oval. Are they
+- [20:16.799] all going to take effect this week on
+- [20:18.400] the reciprocal tariffs? And whenever
+- [20:20.720] they start, is that enough time for
+- [20:22.320] companies and everyone involved to
+- [20:23.919] adjust to that start date? My
+- [20:25.919] understanding is that the uh tariff
+- [20:27.840] announcement will come tomorrow. They
+- [20:29.200] will be effective immediately. Uh and
+- [20:31.440] the president has been teasing this for
+- [20:32.960] quite some time as you know. He's talked
+- [20:34.480] a lot about April 2nd as liberation day
+- [20:36.799] in America. It would be taking place
+- [20:38.400] today if not for April Fool's Day. Uh
+- [20:40.559] but tomorrow will be the day and he's
+- [20:42.480] been talking about it for a while and as
+- [20:44.320] a result, you've seen these companies
+- [20:45.840] make commitments to investing right here
+- [20:47.600] in the United States. Jasmine, thank you
+- [20:49.840] so much. I wonder back on tariffs, um,
+- [20:52.559] what, if any, market indicators is the
+- [20:55.360] White House looking for to see if this
+- [20:57.919] tariffs plan is successful down the
+- [20:59.919] line? Well, look, the president has been
+- [21:01.760] asked and answered this question about
+- [21:03.039] the stock market and whether he's
+- [21:04.559] watching it. And I've said and he has
+- [21:06.480] said, the market is a snapshot in time.
+- [21:08.320] Yesterday, Dow futures were up uh, and
+- [21:10.480] there's been a lot of talk about the
+- [21:12.080] market and it was up yesterday. So look,
+- [21:14.559] the president wants to ensure that all
+- [21:16.480] Americans uh make out well, particularly
+- [21:19.039] Main Street, that's the focus of these
+- [21:20.559] tariffs, but as I've said repeatedly,
+- [21:22.559] just like they did in just like they
+- [21:24.720] were in his first term, Wall Street will
+- [21:26.159] be just fine. Shelby, thanks. Um, a
+- [21:28.080] bipartisan pair of senators sent a
+- [21:29.840] letter to the president today arguing
+- [21:31.520] that the recent strikes in Yemen are
+- [21:33.600] emboldening the Houthis and saying that
+- [21:35.679] Congress has not authorized war against
+- [21:37.760] them. Is the administration planning to
+- [21:39.919] consult with Congress at some point or
+- [21:41.840] going forward regarding the strikes and
+- [21:44.720] any response on the letter? Well, I
+- [21:46.799] would absolutely reject Congress's
+- [21:48.960] claims. Who made those claims in
+- [21:50.720] Congress? Um, Senator Jeff Mkeley and
+- [21:53.360] Rampaul. Okay. Well, I would absolutely
+- [21:55.679] reject those claims. These Houthi
+- [21:57.360] strikes have been incredibly successful.
+- [21:59.440] Last time I was at this podium, there
+- [22:01.039] were more than 100 successful strikes.
+- [22:03.200] There have now been over 200 successful
+- [22:05.280] strikes against the Houthis. Iran is
+- [22:07.360] incredibly weakened as a result of these
+- [22:09.280] attacks. Um, and we have seen they've
+- [22:11.360] taken out Houthi leaders. They've taken
+- [22:13.360] out critical members who were launching
+- [22:15.520] strikes on naval ships and on commercial
+- [22:17.600] vessels. And this operation will not
+- [22:19.520] stop until the freedom of navigation in
+- [22:21.840] this region is restored which is a
+- [22:23.440] critical principle and this president
+- [22:24.880] stands behind our defense department
+- [22:26.799] who's doing a tremendous job. And are
+- [22:28.480] they going to is the White House going
+- [22:30.320] to confer with Congress going forward on
+- [22:32.320] this? I would have to ask our team here
+- [22:34.240] at the White House, but the president is
+- [22:35.760] well within his authority as is the
+- [22:37.679] secretary of defense. Again, these are
+- [22:39.360] defensive strikes. The Houthis have been
+- [22:41.039] launching attacks on US naval v uh
+- [22:43.440] vessels and commercial ships for quite
+- [22:45.360] some time. Go ahead, Caroline. The pause
+- [22:49.679] on the Canadian and Mexican tariffs, the
+- [22:51.840] fentanyl tariffs that's set to expire
+- [22:53.919] tomorrow, is the president considering
+- [22:55.520] extending that pause? Look, I will let
+- [22:57.520] the president speak on the specifics of
+- [22:59.280] the tariffs tomorrow. Um, but as for
+- [23:01.280] fentanyl, we have seen this has
+- [23:02.799] certainly caused a national security
+- [23:04.400] crisis here in the United States.
+- [23:06.159] Fentanyl continues to be the number one
+- [23:08.000] killer of young people in this country
+- [23:10.000] and the president is very much focused
+- [23:12.000] on that. Diana, uh, thank you, Caroline.
+- [23:14.240] The president really flutently signed an
+- [23:16.159] executive order on making DC safe and
+- [23:18.960] beautiful. On the campaign trail, he
+- [23:21.039] talked about making New York great
+- [23:23.200] again. Um, does he have any plans on
+- [23:25.600] establishing a similar task force? Has
+- [23:27.679] he been pressuring Governor Hokll in any
+- [23:29.600] way in his conversations about New York
+- [23:31.919] and lowering crime? Well, he has been in
+- [23:34.640] correspondence with Governor Hokll quite
+- [23:36.320] a bit on the issue of crime, also on the
+- [23:38.880] issue of congestion pricing and so many
+- [23:41.120] other issues that are facing New
+- [23:42.480] Yorkers. Uh, and he wants New York to
+- [23:44.559] clean up their streets just as he does
+- [23:46.240] here in Washington DC. Uh, he also
+- [23:48.640] speaks to, you know, Mayor Adams as
+- [23:50.320] well. Um, so he's engaged with state and
+- [23:52.080] local leaders across the entire country
+- [23:53.760] to ensure they're doing their part to
+- [23:55.679] help American citizens in each and every
+- [23:57.600] state regardless of if it's a red state
+- [23:59.600] or a blue state. And then a question on
+- [24:01.840] Russia. Yesterday the Russian government
+- [24:03.679] said that their new goal is 160,000
+- [24:07.280] conscripts for the war. Has the
+- [24:09.200] president seen that number? And does he
+- [24:11.360] have any response given his recent
+- [24:13.200] conversations on peace talks? Well, I
+- [24:15.520] can tell you what the president said
+- [24:16.799] last night, uh, and that is he is
+- [24:19.360] frustrated with leaders on both sides of
+- [24:21.679] this war. He wants this war to end. Uh,
+- [24:24.320] there are men that are dying on both
+- [24:26.400] sides. Uh, and it's been going on for
+- [24:28.480] far too long. Our team continues to be
+- [24:30.799] engaged with the Russians as we are with
+- [24:32.640] the Ukrainians and the president
+- [24:34.400] continues to be very, very much engaged
+- [24:36.320] on this topic every single day.
+- [24:37.919] Caroline. Caroline. Caroline. Um
+- [24:42.400] the the president said over the weekend
+- [24:44.799] that he couldn't care less if prices
+- [24:46.880] went up on foreign cars because people
+- [24:49.440] buy more American cars. There's been uh
+- [24:51.520] consensus from a lot of economists that
+- [24:53.679] these tariffs could raise prices on
+- [24:55.520] other goods as well. Is the president
+- [24:57.200] comfortable with Americans on Main
+- [24:59.360] Street paying more because of these
+- [25:01.120] tariffs? The president is doing
+- [25:02.799] everything he can and this entire
+- [25:04.400] administration is doing everything we
+- [25:06.960] can to bring down the cost of living in
+- [25:09.279] this country. An inflation mess that was
+- [25:11.520] fueled by the previous administration's
+- [25:13.279] reckless spending overburdensome
+- [25:15.360] regulations that this administration is
+- [25:17.200] focused on slashing every single day. I
+- [25:19.600] just read you a statistic just from the
+- [25:21.360] environmental a protective agency alone.
+- [25:23.760] We're saving taxpayers money that's
+- [25:25.520] ultimately going to drive down inflation
+- [25:27.120] and we're unleashing the might of our
+- [25:29.120] energy industry which will bring down
+- [25:30.640] prices as well. To the heart of your
+- [25:32.880] question, because this is very important
+- [25:34.159] to the American people, um you should
+- [25:36.240] trust what this president did for you in
+- [25:37.919] his first term. He effectively utilized
+- [25:39.760] tariffs while driving down inflation. It
+- [25:42.000] was a record low 1.4% when he left
+- [25:44.240] office and he's focused on getting back
+- [25:46.080] to that. It's unfortunate the previous
+- [25:48.080] administration left us in this mess.
+- [25:50.720] Sure.
+- [25:51.919] Representative Anna Paul Anna Paulina
+- [25:54.320] Luna left the Freedom Caucus over their
+- [25:56.320] lack of support for her bill that would
+- [25:58.080] allow new parents to proxy vote around
+- [26:00.480] 12 weeks around the birth of their baby.
+- [26:02.240] Does the president support that bill?
+- [26:04.159] I'm not sure. I haven't actually talked
+- [26:05.919] to the president about that bill, but I
+- [26:07.520] certainly can and can get a take on uh
+- [26:09.679] if he supports it or not. Thank you. And
+- [26:11.200] one more. The DC circuit ruled last week
+- [26:13.840] that um the DC circuit ruled last week
+- [26:17.120] that the president can fire hold over
+- [26:18.960] Biden appointees of independent
+- [26:20.480] agencies. Will this ruling empower
+- [26:22.480] President Trump Trump to dismiss more
+- [26:24.240] federal employees? Well, the president
+- [26:26.880] has given the responsibility to his
+- [26:29.120] cabinet secretaries um to hire and fire
+- [26:32.559] at their respective agencies and they
+- [26:34.320] reserve that right. You saw the
+- [26:36.000] secretary of health and human services
+- [26:37.840] announced uh more layoffs today. This is
+- [26:40.159] all part of the administration's effort
+- [26:41.919] for a mass reduction in force in the
+- [26:44.080] federal bureaucracy here in Washington
+- [26:46.320] DC to save American taxpayers money. Um,
+- [26:49.039] as for uh agencies within the
+- [26:51.600] president's executive authority, um, the
+- [26:54.400] president retains that right and we've
+- [26:56.240] seen there have been bureaucrats at some
+- [26:58.000] of these uh, agencies that have been
+- [26:59.760] trying to act independent. They need to
+- [27:01.440] remember who they work for. It's the
+- [27:02.799] executive of the executive branch. You
+- [27:04.720] look at the United States Institute of
+- [27:06.320] Peace, for example. Um there was a
+- [27:08.320] little bit of a standoff with
+- [27:09.919] bureaucrats over there who didn't want
+- [27:11.600] to realize who they work for and that is
+- [27:13.520] Donald Trump. Uh and President Trump is
+- [27:15.360] focused on streamlining these agencies
+- [27:17.120] to save American taxpayers money. Um and
+- [27:19.760] he has every right to do that. Caroline
+- [27:21.760] Caroline. Sure. Go ahead. Thanks
+- [27:23.760] Caroline. Um the in Gaza the bodies of
+- [27:26.559] 15 rescuers have been found in their
+- [27:29.039] sort of ambulances where they were um
+- [27:31.120] apparently killed by Israeli forces.
+- [27:33.600] just wondering if the White House uh is
+- [27:35.679] going to be calling on Israel to
+- [27:36.960] investigate that and to try and avoid
+- [27:39.279] similar casualties and bordering rescue
+- [27:41.279] workers in the future. Uh well, as for
+- [27:43.919] the specific situation you just
+- [27:45.440] mentioned, I'll talk to the president
+- [27:46.799] about it in our national security team,
+- [27:48.720] what I can tell you is what I've spoken
+- [27:50.480] with President on. He very much remains
+- [27:52.880] committed to backing Israel. Um and it
+- [27:55.039] was only because of this president and
+- [27:56.640] his team's leadership that we had a
+- [27:58.159] temporary ceasefire in Gaza that we were
+- [28:00.080] able to bring many hostages home. Uh and
+- [28:02.640] the president made it very clear to
+- [28:04.080] Hamas, you get the hostages out, all of
+- [28:06.240] them, or there will be hell to pay. And
+- [28:08.159] Hamas is certainly uh witnessing what it
+- [28:10.799] feels like for all hell to be paid. And
+- [28:13.039] the president supports Israel's right to
+- [28:14.640] defend itself. Any progress at all on a
+- [28:16.240] ceasefire at the moment as far as the
+- [28:17.760] president's concerned. The president and
+- [28:19.760] his team continue to be engaged on this
+- [28:21.520] every single day. Sure.
+- [28:24.320] Go ahead. So um I'm just wondering
+- [28:26.720] related to that if you have an
+- [28:28.559] approximate date for the president's
+- [28:30.159] first foreign trip. I think there was a
+- [28:31.600] little confusion yesterday about what
+- [28:33.039] month he was talking about. And then um
+- [28:35.600] will he need a ceasefire to be in place
+- [28:39.039] or closer either in Gaza or in Ukraine
+- [28:41.600] before that takes place? The president
+- [28:44.320] will be heading to Saudi Arabia in May.
+- [28:46.399] Um as for specific dates and details, we
+- [28:48.640] will be reading those out to you um as
+- [28:50.559] soon as we possibly can. I know our
+- [28:52.080] teams are working on the details of that
+- [28:54.240] trip. Um and then again as for a
+- [28:56.320] ceasefire the president's made it clear
+- [28:57.760] that's what he wants to see in Russia
+- [28:59.520] and Ukraine and his team continues to be
+- [29:01.279] engaged on it every day signal um you
+- [29:04.480] said case closed yesterday do you as
+- [29:08.080] that case was closed do you have
+- [29:09.679] anything that you can share about what
+- [29:12.080] was learned how this can be avoided in
+- [29:14.320] the future any any sort of findings from
+- [29:16.720] that investigation the case is closed
+- [29:18.559] and the president continues to have
+- [29:19.919] confidence in his national security
+- [29:21.360] adviser yes Kelly. So, oh, thanks,
+- [29:24.240] Caroline. So, the president has said and
+- [29:26.320] I'll come to you after. The president
+- [29:28.240] said I'm glad you're so eager to ask a
+- [29:29.840] question. It's liberation day. Yes, it
+- [29:32.000] is. Caroline, the president has said
+- [29:33.520] foreign countries and companies will eat
+- [29:35.200] the cost of tariffs. In his speech on
+- [29:37.200] inauguration day, he said, quote,
+- [29:39.039] "Instead of taxing our citizens to
+- [29:40.799] enrich other countries, we will tariff
+- [29:42.799] and tax foreign countries to enrich our
+- [29:44.640] citizens." Right? So, then why did he
+- [29:46.320] have to tell the domestic automakers not
+- [29:48.559] to raise prices? Uh, well, that was a
+- [29:50.960] private conversation that was had. I'm
+- [29:52.559] not sure if that comment was made or was
+- [29:54.799] not made. Um, but as for what the
+- [29:56.640] president said in his inauguration day
+- [29:58.320] speech, he's absolutely correct. A
+- [30:00.480] tariff will be a tax on these foreign
+- [30:02.480] nations, these foreign companies, and if
+- [30:04.480] they want to uh be absolved of that
+- [30:07.120] tariff, then they can come here to the
+- [30:08.880] United States of America to do business,
+- [30:10.720] bring their jobs here. Edward, go ahead.
+- [30:13.039] Thank you. Um, so Canadians have been
+- [30:15.120] negotiating with the commerce secretary
+- [30:16.960] over the the trade, the tariffs. Um, how
+- [30:19.600] many companies are mutually talking with
+- [30:21.760] the US to or countries are mutually
+- [30:23.919] talking with the US to lower tariffs? I
+- [30:26.159] don't have a specific number, but I can
+- [30:27.760] tell you there have been quite a few
+- [30:28.960] countries that have called the president
+- [30:30.640] and have called um his team in
+- [30:33.039] discussion about these tariffs. But
+- [30:34.399] again, there's one country the president
+- [30:36.000] cares most about, and it's the United
+- [30:37.679] States of America and doing what's best
+- [30:39.279] for the people who elected him to this
+- [30:41.120] office to restore their jobs, their
+- [30:42.720] wealth, and their prosperity. I'm
+- [30:44.240] looking at the clock. I have a heart out
+- [30:45.880] today. Excuse me. I have a heart out
+- [30:48.080] today because I'm actually heading over
+- [30:49.440] to the State Department with the First
+- [30:50.799] Lady of the United States. Um, she will
+- [30:52.799] be delivering remarks at 1:00 this
+- [30:54.640] afternoon at the 19th International
+- [30:56.480] Women of Courage Award ceremony with our
+- [30:58.720] great secretary of state, Marco Rubio.
+- [31:00.720] That starts at 1. This is the fifth year
+- [31:02.960] Mrs. Trump is participating and standing
+- [31:05.039] with brave women leaders who embody
+- [31:06.880] American values abroad. In the first
+- [31:08.960] lady, in her remarks today will
+- [31:10.720] highlight the profound connection
+- [31:12.080] between the love and courage that will
+- [31:13.840] be shown by this year's honores. I
+- [31:16.080] encourage everybody to tune in at 1:00
+- [31:18.080] and then we'll see you all tomorrow for
+- [31:19.600] Liberation Day. Thanks, guys. Thanks,
+- [31:21.279] Caroline.

@@ -1,0 +1,866 @@
+<!-- source: https://www.youtube.com/watch?v=EjGWcQ1PtTw -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: EjGWcQ1PtTw -->
+<!-- date_published: 2026-03-30T18:03:30+00:00 -->
+<!-- date_accessed: 2026-06-02T02:35:48.007563+00:00 -->
+
+# Transcript: Press Secretary Karoline Leavitt Briefs Members of the Media, Mar. 30, 2026
+
+- [00:07.850] Karoline Leavitt: Good afternoon, everyone.
+- [00:09.750] Could you hear our amen in there?
+- [00:11.050] We just had a little loud prayer as a team.
+- [00:13.940] In this Holy Week, President Trump
+- [00:15.570] and the first lady are joining in prayer with Christians
+- [00:18.290] celebrating the resurrection of our Lord and Savior,
+- [00:21.310] Jesus Christ. On Wednesday,
+- [00:23.270] the President will host an Easter lunch in the East Room
+- [00:26.080] with faith leaders across the country to celebrate
+- [00:29.120] Holy Week.
+- [00:30.410] With respect to the ongoing major combat operations in Iran,
+- [00:34.130] Operation Epic Fury
+- [00:35.460] is moving ahead successfully and according to plan.
+- [00:38.810] With each passing day,
+- [00:40.060] the United States military is increasing its advantage
+- [00:42.980] over the terrorist Iranian regime.
+- [00:45.730] More than 11,000 enemy targets have been struck to date,
+- [00:49.630] each strike further crippling the regime's offensive
+- [00:52.570] and defensive capabilities and creating more leverage
+- [00:56.230] for the United States and our allies.
+- [00:58.790] Compared to the start of the operation,
+- [01:00.940] Iran's ballistic missile and drone attacks
+- [01:03.140] are down by roughly 90 percent.
+- [01:06.100] The United States is also decimating
+- [01:08.090] the Iranian regime's navy.
+- [01:09.950] We have destroyed more than 150 of their naval vessels
+- [01:13.470] so far, including 92 percent of their largest vessels.
+- [01:18.340] The Iranian navy has no vessels
+- [01:20.360] operating in major regional waterways
+- [01:22.520] and no ability to project naval power,
+- [01:25.420] which is why they've been assessed as combat ineffective.
+- [01:29.430] Our military continues to obliterate
+- [01:31.880] Iran's defense industrial base,
+- [01:34.200] with nearly 70 percent of their missile,
+- [01:36.980] drone and naval production facilities
+- [01:39.000] and shipyards damaged or destroyed
+- [01:41.440] thus far, significantly reducing their ability
+- [01:44.430] to pose future threats in the region.
+- [01:47.450] US and Israeli joint forces control the skies
+- [01:50.340] and have asserted air dominance over Iran,
+- [01:53.200] completing more than 11,000 successful
+- [01:56.400] combat flights thus far.
+- [01:58.610] The trend remains clear.
+- [02:00.380] The United States is conducting more intense targeted strikes
+- [02:03.940] with devastating combat power with each passing day
+- [02:07.040] to destroy the threat posed by the Iranian terrorist regime
+- [02:10.890] as President Trump sought out to do a month ago.
+- [02:14.310] It's no surprise that we are seeing the remaining elements
+- [02:16.940] of the regime become increasingly eager
+- [02:19.120] to end the destruction
+- [02:20.650] and come to the negotiating table while they still can.
+- [02:23.920] Despite all of the public posturing you hear
+- [02:26.390] from the regime and false reporting,
+- [02:28.790] talks are continuing and going well.
+- [02:31.660] What is said publicly is, of course, much different
+- [02:34.190] than what's being communicated to us privately.
+- [02:36.990] As a result, President Trump issued a ten day pause
+- [02:39.770] to postpone planned strikes on Iranian power plants
+- [02:42.890] and energy infrastructure.
+- [02:44.700] This remains a truly once in a generation opportunity
+- [02:47.240] for the regime
+- [02:48.510] to make a good deal with the United States,
+- [02:51.280] permanently abandon their nuclear ambitions and stop
+- [02:54.270] acting as the world's leading state sponsor of terrorism.
+- [02:58.290] If the Iranians reject this golden opportunity,
+- [03:01.080] the greatest military in the history of the world
+- [03:03.600] continues to stand by to provide President Trump
+- [03:06.200] with every option available
+- [03:08.220] to ensure this regime continues to pay a grave price.
+- [03:12.590] One way or another, Iran will no longer have the credible ability
+- [03:16.240] to threaten the United States or our allies,
+- [03:19.250] which is, of course, the overall objective and mission
+- [03:21.540] the President set out when he launched Operation Epic Fury.
+- [03:26.210] Unfortunately, even as President Trump
+- [03:28.120] is working hard every single day to protect the United States
+- [03:31.250] from foreign enemies, Democrats on Capitol Hill
+- [03:34.130] have failed to do the same here at home
+- [03:36.040] by keeping the Department of Homeland Security unfunded.
+- [03:40.030] Over the past six weeks,
+- [03:41.340] Democrats in Congress have pushed our air travel system
+- [03:43.950] to its breaking point
+- [03:45.360] and inflicted massive pain on Americans
+- [03:47.560] with their reckless political games.
+- [03:49.670] 500 TSA officers quit their jobs.
+- [03:52.650] Thousands more were calling out sick at record rates
+- [03:55.410] due to the lack of pay.
+- [03:56.980] This resulted in security wait times exceeding three hours
+- [04:00.380] at major airports across the country,
+- [04:02.570] creating nightmares for millions of Americans.
+- [04:05.730] Overall morale among TSA staff plummeted as well,
+- [04:08.930] all of this creating an unacceptable
+- [04:10.980] heightened security risk.
+- [04:12.750] Because of the Democrats unwillingness
+- [04:14.500] to do their basic job of funding DHS,
+- [04:17.520] President Trump determined that these circumstances
+- [04:19.820] constituted an emergency compromising American security.
+- [04:24.100] That's why last week he accordingly signed
+- [04:26.350] a presidential memorandum
+- [04:27.650] directing the secretary of Homeland Security
+- [04:30.380] to work with the director of the Office of Management
+- [04:32.780] and Budget here at the White House
+- [04:34.500] to use those funds with a regionable and reasonable
+- [04:37.800] and logical nexus to TSA operations
+- [04:40.520] to provide TSA employees
+- [04:42.670] with the compensation and benefits
+- [04:44.400] that would have accrued to them
+- [04:45.890] but for the Democrat-led DHS shutdown.
+- [04:49.350] This bold and necessary action by President Trump
+- [04:52.010] will ensure our TSA workers
+- [04:53.840] receive their hard-earned paychecks.
+- [04:56.340] It should not have come to this point,
+- [04:57.970] but President Trump will always do
+- [04:59.460] what's right by the American people.
+- [05:01.330] And he found a way to do that, to get TSA paid.
+- [05:04.630] Ensuring that these federal workers
+- [05:06.370] who perform critical public safety responsibilities
+- [05:09.550] can feed their families, pay their rent,
+- [05:11.290] and show up to work is something the President was honored to do
+- [05:14.840] but this moment should be an eye-opening one
+- [05:16.820] for the American people.
+- [05:18.330] Let's be clear about what is happening.
+- [05:20.610] Democrat members of Congress are more than happy
+- [05:23.100] to put your safety at risk,
+- [05:24.760] because they oppose the President's administration
+- [05:27.350] and his administration's efforts
+- [05:29.160] to enforce our nation's immigration law.
+- [05:32.150] Democrats refuse to fund ICE because they want millions
+- [05:35.020] and millions of illegal aliens to pour into the country,
+- [05:37.710] just like they were under the Biden administration.
+- [05:40.810] They want murderers and rapists
+- [05:42.400] and thugs to remain in your communities,
+- [05:44.450] rather than be removed by ICE and Border Patrol agents.
+- [05:48.730] The Democrats created this mess
+- [05:50.550] they are the reason for long lines at airports
+- [05:52.740] and tens of thousands of employees going without pay.
+- [05:56.120] Once again, President Trump is cleaning up their mess
+- [05:58.620] because he cares more about the American people
+- [06:01.220] than destructive, petty partisan politics.
+- [06:04.170] With that, I will take your questions.
+- [06:05.570] Today, here in our new media seat we have Wid Lyman.
+- [06:07.830] Thank you for being here and why don't you kick us off?
+- [06:09.740] The Press: Thank you. Happy Easter.
+- [06:10.960] Karoline Leavitt: Thank you, you as well.
+- [06:12.180] The Press: Two questions for you. Thank you.
+- [06:13.540] There are some concerns the administration
+- [06:15.180] is starting to change its position on deportations,
+- [06:18.130] border enforcement, possibly asylum policies.
+- [06:20.560] What would you say to Americans
+- [06:21.950] that are somewhat concerned that the shift has happened?
+- [06:25.240] Karoline Leavitt: Sure.
+- [06:26.470] Well, while there has, of course,
+- [06:27.800] been a change in leadership
+- [06:29.010] at the Department of Homeland Security
+- [06:30.600] with former Senator, now Secretary Mullin
+- [06:33.440] joining the President's cabinet, I can assure the American people
+- [06:36.550] there has not been a change in policy.
+- [06:38.230] It has always been the policy of this president
+- [06:40.630] and this administration to deport the worst
+- [06:43.260] of the worst illegal alien criminals from our communities.
+- [06:46.140] That's something I know Secretary Mullin
+- [06:48.130] remains wholeheartedly committed to doing,
+- [06:50.410] and it's something that is overwhelmingly popular
+- [06:52.360] with the American people.
+- [06:53.690] And it's something that is necessary
+- [06:55.210] to protect our homeland
+- [06:56.640] and to prevent deaths of Americans in our country.
+- [06:59.810] Just last week, Sheridan Gorman, a young woman in Chicago,
+- [07:03.460] was shot and killed on the street,
+- [07:05.280] walking with her friends outside of her university,
+- [07:07.600] by a legal alien from Venezuela
+- [07:10.110] who had no right to be here in the first place.
+- [07:13.220] And it's despicable that Democrats are currently
+- [07:15.610] defunding the department that's responsible
+- [07:17.630] for removing illegal aliens like that.
+- [07:19.990] And I would also add, it's despicable
+- [07:22.070] that the lack of coverage of this young woman's case,
+- [07:25.490] of her life and the way that it was tragically cut short.
+- [07:28.360] I saw a survey over the weekend
+- [07:30.510] that I'd like to bring to all of your attention.
+- [07:32.130] This is the media coverage of the case of Sheridan Gorman.
+- [07:35.870] You have ABC News has spent one minute and 19 seconds,
+- [07:40.750] um, between two days when this case was first alerted.
+- [07:44.230] You have CBS, two minutes and one second.
+- [07:47.150] You have NBC, 23 seconds spent on the life of a young,
+- [07:51.300] beautiful American woman
+- [07:53.140] whose life was taken short by an illegal alien
+- [07:55.500] who should have never been here in the first place,
+- [07:57.390] when we are in the middle of a battle on Capitol Hill
+- [08:00.330] with a major political party, the Democrat Party,
+- [08:02.940] who wants to defund the agency that is responsible
+- [08:05.260] for protecting Americans.
+- [08:06.550] I think her life was worth more than 23 seconds
+- [08:09.160] on cable television,
+- [08:10.440] and I think the people in this room
+- [08:12.150] have a responsibility to report on cases like this,
+- [08:15.160] because it just exemplifies
+- [08:16.650] why the President believes so strongly
+- [08:18.300] in deporting illegal aliens from our communities.
+- [08:20.310] And thank you for the question. Dasha, go ahead.
+- [08:23.200] The Press: Karoline, I have two questions,
+- [08:24.510] one on Iran and one on DHS funding.
+- [08:27.150] On Iran, the President has said that the administration
+- [08:29.760] is talking to a new and more reasonable regime.
+- [08:34.220] How confident are you that they are legitimate
+- [08:37.030] and have enough grip on power?
+- [08:38.940] Marco Rubio said earlier that he's not sure,
+- [08:41.670] and it's not clear whether they will be in power.
+- [08:43.940] So are you also talking to two other factions?
+- [08:46.730] As the President is trying to make a deal?
+- [08:48.400] How do you ensure that you're making a deal
+- [08:49.880] with the people who can actually implement it?
+- [08:52.090] Karoline Leavitt: Well, that's part of the ongoing process
+- [08:53.800] that's taking place and the ongoing negotiations.
+- [08:56.110] Of course, anything that they say to us
+- [08:57.800] privately will be tested and we will ensure
+- [09:01.010] that they are being held accountable to their word.
+- [09:03.050] And if they are not, the President has laid out
+- [09:04.890] the military consequences that the Iranian regime will see
+- [09:08.790] if they don't hold true to the words
+- [09:10.320] that we are hearing privately behind the scenes.
+- [09:12.600] When the President says, more reasonable, again,
+- [09:14.510] these folks are appearing more reasonable
+- [09:16.740] behind the scenes privately in these conversations
+- [09:19.300] than perhaps some of the previous leaders
+- [09:21.330] who are now no longer on planet earth
+- [09:23.580] because they lied to the United States,
+- [09:25.910] and they strung us along in negotiations
+- [09:28.680] and that was unacceptable to the President,
+- [09:30.610] which is why many of the previous leaders were killed.
+- [09:33.440] So again, this is another historic opportunity for Iran
+- [09:36.060] to do the right thing,
+- [09:37.540] to rid themselves of their nuclear ambitions
+- [09:40.630] and to come to a deal with this president
+- [09:42.630] and the administration,
+- [09:43.900] or, again, they will see the grave consequences of
+- [09:46.610] the United States armed forces, which they are continuing to see
+- [09:49.220] every day throughout this operation.
+- [09:50.610] The Press: And on DHS, how long can the administration
+- [09:54.020] keep paying TSA without action from Congress?
+- [09:57.020] And not to be hyperbolic, but given the, um --
+- [10:00.640] the airports were really the pain point
+- [10:02.080] that was pushing both sides to talk to each other,
+- [10:05.010] I mean, do you see a way for DHS to reopen?
+- [10:09.580] Is it possible this keeps going through the midterms?
+- [10:11.670] Karoline Leavitt: Well, we certainly hope so.
+- [10:12.920] I mean, of course, the President just can't keep
+- [10:15.230] signing presidential memorandums and proclamations
+- [10:18.760] every time Congress fails to do its job
+- [10:20.930] and every time Democrats
+- [10:22.520] are holding our entire country hostage,
+- [10:24.540] picking and choosing which programs and agencies
+- [10:27.690] they want to fund just because
+- [10:29.360] they don't like this administration's policies.
+- [10:31.300] That's not how it's supposed to work.
+- [10:33.170] They voted seven times against funding DHS
+- [10:37.160] over partisan and political reasons.
+- [10:39.150] And so, again, the President has stepped in
+- [10:41.290] to do the right thing at this moment in time,
+- [10:43.490] but the President is also encouraging Congress
+- [10:45.780] to come back to Washington to permanently fix this problem
+- [10:49.390] and to fund and reopen the Department of Homeland
+- [10:51.890] Security entirely. Stephen.
+- [10:54.600] The Press: Thank you, Karoline.
+- [10:55.820] Two questions one on TSA, one on Iran.
+- [10:58.070] On TSA, for ordinary Americans watching the briefing,
+- [11:02.540] how long until everything goes back to normal
+- [11:04.970] at airports after the President's action?
+- [11:06.980] And then on Iran, on the time frame.
+- [11:09.780] President Trump initially said about four weeks.
+- [11:12.190] Secretary of State Rubio on Friday
+- [11:13.850] reportedly said it might be another two to four.
+- [11:16.330] Is two to four the current ballpark
+- [11:18.130] that the administration is thinking?
+- [11:19.980] Karoline Leavitt: With respect to the timeline,
+- [11:21.190] again, the President, commander in chief,
+- [11:23.110] the Pentagon has always stated four
+- [11:24.950] to six weeks estimated timeline for Operation Epic Fury.
+- [11:28.380] We're on day 30 today.
+- [11:30.880] Um, so again, you do the math on how much longer we --
+- [11:34.540] the Pentagon needs to fully achieve the objectives
+- [11:36.930] of Operation Epic Fury,
+- [11:38.150] which I will reiterate, destroy the Iranian Navy,
+- [11:41.200] destroy their ballistic missiles,
+- [11:42.530] dismantle their missile and drone production infrastructure,
+- [11:46.570] significantly weaken their proxies
+- [11:49.020] throughout the course of this operation.
+- [11:50.550] And then, of course,
+- [11:51.760] preventing Iran from obtaining a nuclear weapon.
+- [11:55.230] To your first question, Stephen, about TSA and airports,
+- [11:58.500] nothing will be truly normal again
+- [12:00.110] until Democrats do the right thing to fund this agency fully.
+- [12:03.440] Again, the President has stepped in
+- [12:04.910] in the meantime to do what's right,
+- [12:07.010] to end this crisis that we've had at air travel
+- [12:10.620] and at airports across the country in the meantime.
+- [12:13.160] But again, Congress needs to come back.
+- [12:14.860] Democrats need to fund the Department of Homeland Security
+- [12:17.430] so we can formally and fully get these great employees played --
+- [12:21.820] paid long into the future. Jonathan.
+- [12:25.360] The Press: Thanks a lot, Karoline.
+- [12:26.580] Two questions regarding the financial costs of the war.
+- [12:29.570] Back during the Persian Gulf War, 1990 1991,
+- [12:33.000] Arab countries paid for the vast majority of the cost of a war,
+- [12:37.270] Kuwait, Saudi Arabia, the UAE.
+- [12:39.980] Who's paying for the cost of this war?
+- [12:42.610] Will those Arab countries step up to do just that?
+- [12:45.870] Karoline Leavitt: Well, I think it's something the President
+- [12:47.400] would be quite interested in calling them to do.
+- [12:50.070] I won't get ahead of him on that,
+- [12:51.980] but certainly it's an idea that I know that he has
+- [12:54.870] and something that I think you'll hear more from him on.
+- [12:57.330] The Press: And then secondly, the cost of diesel
+- [13:00.340] is averaging at $5.38 a gallon right now.
+- [13:03.870] What's the message from the Trump administration
+- [13:06.980] to truck drivers
+- [13:08.260] who are dealing with those high fuel costs right now?
+- [13:10.320] Karoline Leavitt: Again, we understand,
+- [13:11.520] we hear you, we see you.
+- [13:12.900] We are fully tracking this short term fluctuation
+- [13:16.520] in oil and in diesel prices,
+- [13:18.400] and that's why the President and the administration
+- [13:20.590] have continually announced robust actions to provide
+- [13:23.760] stability in the global energy market.
+- [13:26.100] As you know, political risk insurance,
+- [13:27.840] one of those actions allowing countries to purchase
+- [13:31.060] sanctioned oil just to increase the supply.
+- [13:33.220] In the meantime, we've worked to release
+- [13:35.950] 400 billion barrels of oil and refined products as well.
+- [13:40.380] We issued the 60-day Jones Act waiver.
+- [13:42.940] All of this has -- with the goal of increasing supply
+- [13:46.110] to create stabilization in the market in the meantime.
+- [13:49.840] But the overall message, as we've repeatedly stated,
+- [13:52.120] is, again, these are short-term actions
+- [13:55.430] and short-term price fluctuations
+- [13:57.260] for the long-term benefit of --
+- [13:59.540] of ending the threat that Iran poses
+- [14:02.560] to the United States of America,
+- [14:03.970] our troops and our allies in the region,
+- [14:06.830] and ensuring that this regime can no longer control
+- [14:09.410] the world's free flow of energy through the Strait of Hormuz,
+- [14:12.230] which is something the administration
+- [14:13.850] continues to tackle day-by-day as well.
+- [14:16.460] Jennifer.
+- [14:17.740] The Press: Just two questions. Oh, which, Jennifer?
+- [14:19.560] Karoline Leavitt: I'll go to both of you.
+- [14:21.200] Go ahead.
+- [14:22.570] The Press: So two questions, one on --
+- [14:24.530] one on China and one on Iran.
+- [14:26.150] On China, ahead of the President's trip to Beijing,
+- [14:28.410] will there be a working-level meeting with Secretary Bessent,
+- [14:31.930] Jamieson Greer, etc.? And when will that be?
+- [14:33.970] Karoline Leavitt: I do expect cabinet officials
+- [14:36.130] to travel to China ahead of time.
+- [14:38.000] I don't have a readout on their schedules for you.
+- [14:40.340] But this is something we typically do
+- [14:41.800] with international travel, as you know,
+- [14:43.140] so I'll talk to our --
+- [14:44.690] the Treasury department and the cabinet myself
+- [14:46.190] and will get you that answer.
+- [14:47.440] But we do expect them to move ahead of time.
+- [14:49.200] The Press: Ok. And thank you.
+- [14:50.450] And on Iran, if Iran is kind of cherry
+- [14:53.940] picking what tankers get to go through the strait now
+- [14:56.260] and contemplating big tolls on those tankers,
+- [14:59.340] is that consistent?
+- [15:00.570] Or how is that consistent, really,
+- [15:01.850] with the President's message about really wanting the strait
+- [15:04.020] to be fully open?
+- [15:05.460] Does the administration support a regime or system
+- [15:08.120] where Iran is --
+- [15:09.330] is effectively charging tolls on these vessels to access?
+- [15:11.980] Karoline Leavitt: That's not something we support,
+- [15:13.340] and I would reject that they are cherry picking.
+- [15:15.690] In fact, as you know,
+- [15:16.980] these tankers that are moving through,
+- [15:18.790] the 10 that were previously announced and now the new 20 --
+- [15:22.020] the announcement of 20 additional tankers,
+- [15:24.210] which we expect to see over the coming days,
+- [15:26.220] are a result of the direct and indirect talks
+- [15:29.120] that are taking place between the United States and Iran.
+- [15:31.470] So, you wouldn't have seen those tankers
+- [15:33.150] if not for the President's diplomacy
+- [15:34.880] and his team engaging on this matter,
+- [15:36.980] which we expect that compliance moving forward.
+- [15:39.060] And it's, again, something that we're working on very closely.
+- [15:43.150] Sure, behind the tape in the back right there.
+- [15:45.350] You put up your hand very excitingly. Go ahead.
+- [15:48.430] The Press: Hannah from NewsNation.
+- [15:50.850] Thanks for taking my question. I have two for you real quick.
+- [15:54.040] There are reports that Republicans are weighing cuts
+- [15:56.320] to health care
+- [15:57.530] in order to make way for that $200 billion
+- [16:00.390] for the Pentagon and Operation Epic Fury.
+- [16:02.790] Is that a trade off that President Trump supports?
+- [16:04.930] Karoline Leavitt: I've seen these reports.
+- [16:06.450] I haven't spoken to the President about it,
+- [16:08.150] nor have I heard this being discussed
+- [16:10.060] in any high-level meetings here at the White House.
+- [16:12.470] I don't want to weigh in definitively
+- [16:14.440] because I just haven't heard
+- [16:15.760] that being discussed here in the West Wing.
+- [16:17.640] The Press: And then secondly, I know
+- [16:18.890] President Trump says we're ahead of schedule
+- [16:21.160] in achieving his military objectives in Iran.
+- [16:23.950] He laid out that four-to-six-week timetable
+- [16:26.690] for this conflict, and we're now within week five.
+- [16:30.130] So, how do you square kind of those two?
+- [16:32.820] Karoline Leavitt: Well, four to six weeks estimated timeline,
+- [16:35.190] again, you just said we're on day 30 of the operation.
+- [16:38.320] I just provided you with some of the updates
+- [16:40.740] from the Pentagon directly. And achieving the objectives
+- [16:43.980] and the military has been enormously successful.
+- [16:46.440] I think we should all be very proud of our Armed Forces
+- [16:49.290] for what they have done over the past 30 days.
+- [16:51.770] The mission will continue until the objectives are achieved.
+- [16:54.230] And that four-to-six-week timeline does remain.
+- [16:56.120] Right now, I don't have any updates for you on that.
+- [16:58.480] Jake?
+- [16:59.750] The Press: Yeah. Karoline?
+- [17:00.990] Like others, one on TSA, one on Iran.
+- [17:03.550] On Iran, I know it's tough to engage in hypotheticals,
+- [17:08.000] but I feel like this is one that you could engage in.
+- [17:09.720] If the President does seek --
+- [17:10.990] Karoline Leavitt: Probably not, but we'll see.
+- [17:12.680] The Press: If the President does seek
+- [17:13.970] or the United States seeks a ground war,
+- [17:15.740] does he intend to get Congressional authorization
+- [17:18.210] of that in March?
+- [17:19.450] Karoline Leavitt: Look, the President has been asked
+- [17:21.570] about boots on the ground
+- [17:22.950] or alleged ground operations various times.
+- [17:25.740] He's obviously declined to rule them out.
+- [17:28.240] It's the Pentagon's job to provide
+- [17:30.260] maximum optionality to the President.
+- [17:32.230] Does not mean he's made a decision,
+- [17:33.920] nor would he ever notify the media of such decision
+- [17:37.320] as not to tip off our enemy.
+- [17:39.300] With respect to abiding by Congress and the rule of law,
+- [17:42.310] that's something the administration will,
+- [17:44.150] of course, always do.
+- [17:46.010] And it's something that we have --
+- [17:48.030] we have great respect for Congress,
+- [17:49.390] the President does with military operations.
+- [17:52.870] In fact, when --
+- [17:54.530] prior to the launch of Operation Epic Fury,
+- [17:56.790] as you know, the administration gave a courtesy notice
+- [17:59.060] to Congress and the Gang of Eight.
+- [18:00.740] And top level administration officials
+- [18:02.550] and cabinet secretaries
+- [18:03.870] have gone to Congress multiple times
+- [18:05.940] over the past 30 days to provide those courtesy briefings
+- [18:09.440] to Congress when requested.
+- [18:10.910] The Press: On TSA quickly, I was --
+- [18:13.290] I've been asked by multiple Trump supporters that have said,
+- [18:16.100] given the fact that the President
+- [18:17.580] on that Friday gave that memorandum informing
+- [18:20.080] DHS to pay TSA workers, I know there's a lot of negotiations
+- [18:23.410] involved in the shutdown of this size,
+- [18:25.260] why did the President not sooner issue
+- [18:27.450] that payment to TSA workers?
+- [18:29.130] Karoline Leavitt: Well, it's because of the Democrats
+- [18:30.660] voting seven times against reopening
+- [18:33.120] the Department of Homeland Security
+- [18:34.780] that we came to a place of an existential crisis.
+- [18:37.790] I mean, you saw the lines at various major airports
+- [18:40.340] across the country,
+- [18:41.610] American travelers really paying the price
+- [18:45.140] for Democrat's partisan games.
+- [18:46.620] And so, the President worked with his legal team
+- [18:48.990] here at the White House and the Office of Management
+- [18:50.860] and Budget to find a solution to take care of the emergency
+- [18:55.120] that we were seeing in air travel across the country.
+- [18:57.990] And it's because of the President
+- [18:59.460] that TSA agents are being paid.
+- [19:01.100] But again, he's calling on Congress to do the right thing,
+- [19:03.700] to come back to Washington and to fund
+- [19:05.950] and reopen the Department of Homeland
+- [19:07.290] Security fully. Sure.
+- [19:09.660] The Press: Hi, Lindsay Ellis from The Wall Street Journal.
+- [19:11.220] I'm trying to square the four objectives laid out
+- [19:13.690] by the administration with the goal of reopening
+- [19:16.750] fully the Strait of Hormuz.
+- [19:18.500] Would President Trump declare victory
+- [19:20.350] and wind down military operations
+- [19:22.200] if the four objectives are met
+- [19:23.730] but still passage remains quite slow through the strait?
+- [19:26.960] Karoline Leavitt: Look, as I've said repeatedly
+- [19:28.570] and as the President has laid out,
+- [19:29.950] the objectives of Operation Epic
+- [19:31.550] Fury are as follows: destroying the Iranian navy;
+- [19:34.300] destroying their ballistic missiles;
+- [19:36.080] dismantling their defense industrial infrastructure
+- [19:39.450] that produces those weapons that have long threatened
+- [19:41.740] the United States and our allies;
+- [19:43.080] and then, of course,
+- [19:44.310] preventing Iran from obtaining a nuclear weapon.
+- [19:47.610] The full reopening of the strait
+- [19:49.090] is something the administration is working towards,
+- [19:51.190] but the core objectives of the operation
+- [19:53.450] have been clearly defined for the American people
+- [19:55.410] by the commander in chief. Garrett?
+- [19:58.400] The Press: The president posted this morning about,
+- [20:00.600] you know, his threat to -- that on leaving Iran,
+- [20:02.960] he said we might be blowing up and completely obliterating
+- [20:05.840] all of their electric generating plants,
+- [20:07.630] oil wells, Kharg Island
+- [20:09.360] and possibly all desalinization plants.
+- [20:11.820] Under international law, striking civilian infrastructure
+- [20:14.330] like that is generally prohibited.
+- [20:16.600] Why is the President threatening what would amount
+- [20:18.790] to potentially a war crime with the US military?
+- [20:21.750] And how do you square that with the administration repeatedly
+- [20:23.930] saying that the US does not target civilians?
+- [20:26.550] Karoline Leavitt: Look, the President has made it
+- [20:27.950] quite clear to the Iranian regime at this moment in time,
+- [20:30.720] as evidenced by the statement that you just read,
+- [20:33.620] that their best move is to make a deal,
+- [20:36.160] or else the United States Armed Forces
+- [20:37.990] has capabilities beyond their wildest imagination,
+- [20:41.180] and the President is not afraid to use them.
+- [20:43.010] The Press: Including potential war crimes?
+- [20:44.230] Karoline Leavitt: That's not what I said, Garrett.
+- [20:46.070] And you're saying the word potential for a reason,
+- [20:48.270] because I'm sure some experts
+- [20:50.200] are telling you that in your ear,
+- [20:52.200] to try to ask me that question.
+- [20:53.960] Of course this administration and the United States Armed
+- [20:56.100] forces will always act within the confines of the law.
+- [21:00.090] But with respect to achieving the objectives
+- [21:02.430] of Operation Epic Fury,
+- [21:03.720] President Trump is going to move forward unabated.
+- [21:06.300] And he expects the Iranian regime
+- [21:08.470] to make a deal with the administration.
+- [21:09.850] Haley, go ahead.
+- [21:11.120] The Press: Which of those objections
+- [21:12.330] would destroying a desalination --
+- [21:14.350] Karoline Leavitt: Haley, go ahead. Hayley, go ahead.
+- [21:16.480] The Press: Thanks, Karoline. I want to follow up on Iran.
+- [21:19.760] When you're describing that the Iranians you're in contact
+- [21:22.360] with are being more reasonable this time around in discussions,
+- [21:25.870] what specifically are you hearing
+- [21:27.290] that is leading you to that conclusion?
+- [21:29.320] And how are you defining what's reasonable
+- [21:31.370] versus unreasonable in that regard?
+- [21:32.940] Karoline Leavitt: I'm not going to detail the private
+- [21:34.990] and sensitive conversations that are taking place
+- [21:37.040] between the United States and Iran right now.
+- [21:39.120] The Press: But generally speaking?
+- [21:40.340] Karoline Leavitt: Generally speaking,
+- [21:41.580] the President gave you the answer.
+- [21:42.930] What we're hearing from them is more reasonable.
+- [21:44.500] They have agreed to some of the points
+- [21:46.310] the United States laid out,
+- [21:47.590] as the President said last night aboard Air Force One.
+- [21:50.300] But again, as for the specifics,
+- [21:51.830] as these negotiations are ongoing,
+- [21:53.590] we're not going to broadcast them to the world,
+- [21:55.180] unless the President chooses to do so,
+- [21:56.690] which he has the full
+- [21:57.890] right to do as the leader of the free world.
+- [22:00.390] The Press: Karoline, on Cuba,
+- [22:01.940] the President threatened to tariff any country
+- [22:04.550] that would send oil to Cuba,
+- [22:06.430] but now the US is letting this Russian tanker to Cuba.
+- [22:10.170] Is this a policy change,
+- [22:11.770] or is he willing to let more tankers into Cuba now?
+- [22:15.910] Karoline Leavitt: This is not a policy change.
+- [22:17.260] There has not been a formal change in sanction policy.
+- [22:21.030] As the President said last night,
+- [22:23.340] we allowed this ship to reach Cuba
+- [22:24.920] in order to provide humanitarian needs to the Cuban people.
+- [22:28.270] These decisions are being made on a case by case basis.
+- [22:31.320] And as the administration has said,
+- [22:33.250] Cuba's nonfunctional economy cannot be fixed
+- [22:35.830] unless they undergo dramatic political and leadership change.
+- [22:38.960] But there has been no formal change
+- [22:40.830] with respect to sanction policy.
+- [22:42.730] The Press: So, you could expect more tankers to go to Cuba?
+- [22:45.570] Karoline Leavitt: Again, these decisions are being made
+- [22:46.990] on a case-by-case basis right now.
+- [22:49.330] The Press: Thanks, Karoline.
+- [22:50.590] You addressed this a little bit in the opening,
+- [22:52.010] but just to follow up because Americans are sort of seeing
+- [22:53.860] these conflicting messages
+- [22:55.080] between the United States and Iran.
+- [22:56.880] I know the President insists that negotiations are underway.
+- [22:59.650] As you just mentioned, he's also said
+- [23:01.460] that Iran has agreed to most of the 15 points.
+- [23:04.030] We just heard from Iran.
+- [23:05.270] Again, they're saying no negotiations are taking place.
+- [23:07.830] They're calling the proposal excessive, unrealistic.
+- [23:11.360] So, how do you square that?
+- [23:12.750] What -- what -- how do you explain
+- [23:14.100] that discrepancy between the two?
+- [23:15.510] Karoline Leavitt: I think the American people are smart enough
+- [23:17.640] not to take the word of a terrorist regime
+- [23:20.240] that has chanted death to America
+- [23:22.160] for 47 years at their word.
+- [23:24.640] And I hope the journalists in this room
+- [23:26.200] are wise enough not to take an Iranian regime
+- [23:28.960] that has repeatedly lied about our country,
+- [23:31.990] about our values, about everyone in this room,
+- [23:34.440] frankly, for nearly five decades.
+- [23:37.020] So, I think the American public
+- [23:38.640] are smart enough to understand that.
+- [23:40.030] The Press: And just to follow up on the objectives,
+- [23:41.370] you've laid them out,
+- [23:42.570] but I know the President has set a deadline for April 6th,
+- [23:45.410] in just one week.
+- [23:46.750] What does the President need to see to not move forward
+- [23:49.780] with those strikes by April 6th?
+- [23:51.300] Karoline Leavitt: Well, I think he said it in his Truth Social
+- [23:52.880] post this morning.
+- [23:54.170] He wants to see a deal over the next ten days.
+- [23:56.630] Look, that timeline is -- is waning, several days left.
+- [24:00.520] And we'll see. I won't get ahead of it.
+- [24:01.980] We'll see what happens in the end of the ten day period.
+- [24:04.340] Ed?
+- [24:05.560] The Press: Karoline, thank you.
+- [24:06.880] One on Iran, one on the shutdown.
+- [24:08.150] The president continues to say the US is in conversations
+- [24:10.820] with a more reasonable regime,
+- [24:13.750] but there are now hundreds of US Special Operations forces,
+- [24:16.820] including Navy SEALs and Army Rangers, in the Middle East,
+- [24:19.480] as well as thousands of other troops already deployed.
+- [24:22.260] So, is he trying to end or intensify the conflict?
+- [24:26.650] Karoline Leavitt: The president is focused
+- [24:28.080] on achieving the objectives of Operation Epic Fury.
+- [24:31.250] With respect to forces that are on the ground
+- [24:33.780] in the Middle East, it's the job of the Pentagon
+- [24:36.440] to create maximum optionality for the commander in chief.
+- [24:39.680] It does not mean the President has made
+- [24:41.590] any additional decisions.
+- [24:42.880] Again, he remains focused on ensuring
+- [24:45.200] that the Pentagon continues to achieve the objectives
+- [24:48.160] of the operation that was launched 30 days ago,
+- [24:50.750] and we're well on our way to doing that.
+- [24:52.170] The Press: So if an American sitting at home
+- [24:53.620] is hearing him say, I want to talk,
+- [24:56.280] but I keep seeing them send troops to that region,
+- [24:59.510] what are they to make of what's going on?
+- [25:00.960] Karoline Leavitt: There's two tracks here.
+- [25:02.200] The president has always said that diplomacy
+- [25:04.800] is his number one option and priority.
+- [25:07.210] Again, he tried earnestly in good faith
+- [25:09.840] to engage in diplomacy with the Iranian regime
+- [25:12.650] prior to this operation being launched in the first place.
+- [25:16.160] He wanted to strike a deal,
+- [25:17.650] and he sent his top negotiators to do so.
+- [25:20.260] They spent extensive amount of time
+- [25:22.510] and effort trying to strike a deal.
+- [25:24.550] And unfortunately, the previous regime,
+- [25:26.890] again, many of those leaders no longer with us here on earth
+- [25:29.630] because they faced the consequences
+- [25:31.690] of the United States military.
+- [25:32.920] So if there's ever a chance for a deal, again,
+- [25:35.560] the President is open to listening,
+- [25:38.140] but it does not deter him
+- [25:39.350] from focusing on the military objectives
+- [25:41.340] that he set out 30 days ago, and that our military
+- [25:44.110] is continuing to achieve day-by-day.
+- [25:46.000] The Press: On the shutdown -- on the shutdown,
+- [25:47.640] he signed the national emergency order last Thursday,
+- [25:51.870] making sure TSA officers will be paid.
+- [25:54.400] There are still other civilian DHS employees,
+- [25:56.220] however, who are not being paid.
+- [25:57.530] Karoline Leavitt: That's right. Yes.
+- [25:58.790] The Press: Can he sign something similar to ensure
+- [26:00.110] they also get paid?
+- [26:01.380] Karoline Leavitt: Look, the President will always
+- [26:02.950] look into ways that we can make sure
+- [26:04.950] that the American people are being taken care of
+- [26:06.960] and doing what's right by the American people.
+- [26:09.070] But again, it's ridiculous that the President
+- [26:11.300] even has to go to the length of working with the legal team
+- [26:14.090] and the Office of Management and Budget to identify these funds.
+- [26:16.700] It is the job of Congress to fund these agencies,
+- [26:20.770] and Democrats in Congress have voted seven times
+- [26:23.720] against funding the Department of Homeland Security.
+- [26:26.120] Congress should come back and they should get it done.
+- [26:28.920] The president again made the decision
+- [26:30.670] to prevent this existential crisis
+- [26:32.640] we were seeing at our nation's airports
+- [26:34.220] across the country that was only going to get worse,
+- [26:36.950] and that's why he wants Congress to do its job.
+- [26:39.330] The Press: Thank you, Karoline. Since you mentioned --
+- [26:40.940] Karoline Leavitt: I'll go to you as well
+- [26:42.150] (Inaudible)
+- [26:43.420] The Press: Since you mentioned Easter and prayers,
+- [26:45.310] I meant to ask you about something
+- [26:46.620] the Pope said yesterday.
+- [26:47.870] So Pope Leo said yesterday, and I quote him,
+- [26:50.660] God does not listen to the prayer of those who wage war.
+- [26:54.760] Can you comment on that?
+- [26:56.580] Karoline Leavitt: I think our nation was a nation founded
+- [27:00.200] 250 years ago, almost, on Judeo-Christian values
+- [27:04.730] and we've seen presidents,
+- [27:06.960] we've seen the leaders of the Department of War, um,
+- [27:10.450] and we've seen our troops go to prayer,
+- [27:13.150] um, during the most turbulent times in our nation's history.
+- [27:16.380] And I don't think there's anything wrong
+- [27:18.370] with our military leaders or with the President
+- [27:21.100] calling on the American people to pray for our service members
+- [27:25.130] and those who are serving our country overseas.
+- [27:27.820] In fact, I think it's a very noble thing to do.
+- [27:30.130] Uh, and if you talk to many service members,
+- [27:31.910] they will tell you they appreciate the prayers
+- [27:33.570] and support from the commander in chief
+- [27:36.310] and from his cabinet.
+- [27:38.090] The Press: Karoline, thank you.
+- [27:39.360] President Trump told the New York Post
+- [27:40.650] that a response is coming
+- [27:41.950] shortly to Tehran attacking Israel's largest oil refinery.
+- [27:46.660] Is there a timeline on that?
+- [27:48.240] Is that tied to the success or not of the negotiations?
+- [27:50.930] Karoline Leavitt: I don't have any updates for you
+- [27:52.270] on the President's comments.
+- [27:53.550] The Press: And (Inaudible)
+- [27:54.770] consider the IRGC in control of Iran?
+- [27:57.770] Karoline Leavitt: Well, look, as Secretary Rubio said today,
+- [28:00.280] the leadership is -- is very fragmented.
+- [28:02.890] We have really neutered their intercommunication systems
+- [28:06.890] and that's part of this process of diplomacy,
+- [28:09.480] to continue figuring out exactly who's in charge.
+- [28:12.640] I know they appointed a new Ayatollah.
+- [28:14.430] I haven't seen or heard much from him.
+- [28:16.870] And so that's part of this diplomatic process
+- [28:19.000] that's underway right now. I'll take a few more. Zolan.
+- [28:22.420] The Press: Thank you. You listed the --
+- [28:24.750] described humanitarian reasons, um,
+- [28:28.210] for allowing that oil tanker to reach Cuba.
+- [28:30.900] Um, just to clarify, why was the administration
+- [28:34.160] OK with Russia sending that oil to Cuba and not other nations?
+- [28:38.960] Karoline Leavitt: Look, again, this was a decision,
+- [28:40.480] it will continue to be made on a case
+- [28:42.150] by case basis for humanitarian reasons or otherwise,
+- [28:44.870] but there's been no firm change in our sanctions policy.
+- [28:47.490] The Press: President Sheinbaum of Mexico also said
+- [28:49.630] that Mexico is exploring different ways
+- [28:51.390] to restart some of those shipments to Cuba.
+- [28:54.230] Is the administration OK with that at this time?
+- [28:56.180] Karoline Leavitt: Again, there's been no change
+- [28:57.480] in our sanctions policy.
+- [28:58.720] We still reserve the right to seize vessels
+- [29:00.860] if it's legally applicable, that are headed towards Cuba
+- [29:03.960] and that violate the United States sanctions policy,
+- [29:06.490] but, of course, the President and the administration
+- [29:08.390] also reserve the right to waive those seizures
+- [29:11.750] on a case-by-case basis.
+- [29:12.960] The Press: And to clarify,
+- [29:14.200] just any more Russian oil tankers
+- [29:16.290] going to be allowed to reach Cuba at this time?
+- [29:18.300] I know you say case-by-case, but for the case of Russia,
+- [29:20.770] is it pretty much green light right now?
+- [29:22.550] Karoline Leavitt: No, that's not what I said.
+- [29:23.840] It's a case-by-case basis. Sure, Jeff, go ahead.
+- [29:28.310] The Press: Just switching topics.
+- [29:29.520] The president has always attended CPAC.
+- [29:31.730] He did not this year. Why did he not attend?
+- [29:34.530] And does he believe CPAC is becoming less relevant?
+- [29:37.190] Karoline Leavitt: No, I don't think he believes that at all.
+- [29:39.400] In fact, he loves CPAC and has a very good relationship
+- [29:42.650] with the great people who run it,
+- [29:44.630] Mercedes and Matt Schlapp.
+- [29:46.340] It was just simply for scheduling purposes this year
+- [29:48.940] with it being in Texas.
+- [29:50.620] It was best for the President's schedule
+- [29:52.550] and what he has on his plate right now, not to go.
+- [29:56.090] Michael. Michael.
+- [29:57.570] The Press: If and when the deal is finalized with Iran,
+- [30:00.250] how does the US provide protection
+- [30:02.280] to who it's negotiating with to ensure
+- [30:04.440] that they can carry out the President's peace plan?
+- [30:07.000] Karoline Leavitt: Again, that's something I'm sure
+- [30:08.350] our national security team is -- is discussing.
+- [30:10.650] I don't have anything for you on that today.
+- [30:12.660] The Press: On the ballroom, can you tell us more
+- [30:14.340] about this massive military complex
+- [30:16.660] underneath the President's new ballroom?
+- [30:19.040] Karoline Leavitt: I cannot tell you more about that,
+- [30:21.300] actually, as a matter of fact.
+- [30:23.290] However, the military is making some upgrades
+- [30:26.710] to their facilities here at the White House,
+- [30:28.530] and I'm not privy to provide any more details on that
+- [30:31.480] at this time. Go ahead, Reagan.
+- [30:33.640] The Press: Thanks, Karoline.
+- [30:35.020] A question on the Middle East and then a question on Antifa.
+- [30:38.820] Netanyahu said Sunday that Cardinal Pizzaballa
+- [30:41.320] will be able to hold services for Palm Sunday
+- [30:45.350] in the Church of Holy Sepulcher
+- [30:47.100] after he was initially blocked by Israeli police.
+- [30:49.870] Did anyone from the administration
+- [30:51.510] or the President call over to Israeli officials
+- [30:54.580] to assist the cardinal in this?
+- [30:55.990] Karoline Leavitt: Yes.
+- [30:57.210] I did speak with Secretary Rubio this morning,
+- [31:00.000] and we did express our concerns with Israel,
+- [31:03.160] with respect to these holy sites being shut down.
+- [31:05.670] We want worshipers to be able to access these holy sites.
+- [31:08.340] Of course, safety is a top priority,
+- [31:10.420] but we understand Israel
+- [31:11.670] is working on those security measures
+- [31:13.230] to reopen the sites throughout Holy Week,
+- [31:15.610] and that's something that we're appreciative of.
+- [31:17.530] The Press: On Antifa.
+- [31:18.740] Karoline Leavitt: Sure.
+- [31:19.940] The Press: In Texas, nine people have been convicted
+- [31:21.760] by a federal jury
+- [31:22.970] on domestic terrorism charges connected to Antifa.
+- [31:26.080] The White House has previously indicated
+- [31:27.960] that you guys are investigating Antifa,
+- [31:29.880] who's funding them, who's leading them.
+- [31:32.000] Can you provide an update on how that investigation is going?
+- [31:35.380] And do you think we're going to see more charges
+- [31:38.050] against people connected to Antifa?
+- [31:39.500] Karoline Leavitt: Well, I do know
+- [31:40.740] that there was an entire task force
+- [31:42.390] that was set up, an interagency task force
+- [31:44.420] to focus on the threat of Antifa,
+- [31:46.720] which, as you know, Reagan, this president declared
+- [31:49.390] a domestic terrorist organization, rightfully.
+- [31:52.680] And we will continue to look into it.
+- [31:55.060] I don't have any updates on those specific investigations,
+- [31:57.280] but I'd be happy to have my team get those over to you today,
+- [31:59.980] as this continues to be of the utmost importance
+- [32:02.630] to the President and his domestic policy agenda.
+- [32:06.600] JJ.
+- [32:07.920] The Press: On -- one question on landmines.
+- [32:10.290] There's been some reporting that American-made landmines
+- [32:13.380] have been spotted on the ground in Iran.
+- [32:15.990] Did President Trump sign off on using US-made landmines in Iran?
+- [32:19.910] Karoline Leavitt: I don't have any comment
+- [32:21.270] on that report today.
+- [32:22.470] The Press: Can you say whether they're being used at all?
+- [32:24.640] Karoline Leavitt: I don't have any comment on that.
+- [32:26.050] Karen.
+- [32:27.280] The Press: Karoline, two on DHS.
+- [32:28.820] You said that the President is encouraging Congress
+- [32:30.700] to come back to DC. Karoline Leavitt: He is.
+- [32:31.940] The Press: You also said yourself.
+- [32:33.150] How has he done that? Has he told leadership
+- [32:35.800] that they should cancel recess and come back?
+- [32:37.550] Karoline Leavitt: He's said it repeatedly.
+- [32:38.880] I think you recall, he said that he'll host a big
+- [32:41.590] Easter dinner here at the White House
+- [32:43.060] if Congress will come back and fight the Democrats
+- [32:45.750] on this issue, which we should do.
+- [32:47.460] Because, again, Democrat Party is in the wrong here.
+- [32:50.060] They have voted seven times against funding
+- [32:52.960] the Department of Homeland
+- [32:54.230] Security, which is completely egregious
+- [32:56.300] with everything we have going on in the world.
+- [32:58.340] And these brave men and women who serve
+- [33:00.800] DHS deserve to get their paychecks.
+- [33:02.760] The president wants to see that happen,
+- [33:04.140] and he wants Congress to come back to get it done.
+- [33:06.720] Thank you.

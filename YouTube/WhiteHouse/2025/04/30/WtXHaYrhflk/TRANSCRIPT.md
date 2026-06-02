@@ -1,0 +1,846 @@
+<!-- source: https://www.youtube.com/watch?v=WtXHaYrhflk -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: WtXHaYrhflk -->
+<!-- date_published: 2025-04-30T21:41:33+00:00 -->
+<!-- date_accessed: 2026-06-02T02:50:57.970481+00:00 -->
+
+# Transcript: President Trump Delivers Investing in America Remarks
+
+- [00:31.290] The President: Well, thank you very much.
+- [00:32.870] Please, sit down please. Thank you.
+- [00:36.760] We have a lot of great political leaders
+- [00:39.250] and the biggest political leaders around,
+- [00:41.600] I guess you could say,
+- [00:42.970] but by far much bigger are the business leaders.
+- [00:46.300] It's not even close.
+- [00:47.890] I say that to my friends, the politicians.
+- [00:49.920] You have the greatest business leaders in the world here.
+- [00:52.260] So it's an honor. And this week we're celebrating
+- [00:54.670] the most successful first 100 days
+- [00:57.520] of any administration in American history.
+- [01:00.520] We're thrilled to welcome to the White House,
+- [01:02.790] dozens of the world top leaders of all kinds,
+- [01:06.560] but in particular business leaders.
+- [01:08.310] And since the election,
+- [01:10.030] the companies represented in this room
+- [01:11.950] have collectively announced
+- [01:13.460] more than $2 trillion in new investments.
+- [01:16.770] And we have a total of close to eight trillion dollars all told.
+- [01:22.160] And there's never been anything like that in this country.
+- [01:24.720] We've never had anything close.
+- [01:26.730] I would say if you looked at the last administration,
+- [01:29.020] probably for four years, they did maybe less than one.
+- [01:33.440] And we've done almost eight.
+- [01:35.630] I would say we'll be above eight in a period of two months.
+- [01:40.740] So something happened.
+- [01:46.460] I think two things happened.
+- [01:48.480] November 5th happened, and November 5th gave you tariffs,
+- [01:52.600] intelligently used tariffs
+- [01:54.190] in various other forms of incentive,
+- [01:57.320] but it's really amazing.
+- [01:59.530] There's never been, I don't think there's ever been
+- [02:01.160] anything like this anywhere in the world.
+- [02:02.680] Together we're going to bring back the most beautiful words
+- [02:06.310] I always say, made in the USA. The most beautiful words,
+- [02:09.200] we're going to have made in the USA
+- [02:10.570] like we haven't had before in a long time.
+- [02:13.060] In addition to the business leaders
+- [02:14.880] whose companies I will mention in just a moment,
+- [02:18.750] we have some great people, great senators.
+- [02:22.100] Marsha. Marsha, where are you? Where are you? Martha?
+- [02:27.410] Marsha, you very much. Marsha Blackburn. Bill Cassidy.
+- [02:30.960] Bill, thank you, Bill. Ashley Moody. Ashley, thank you.
+- [02:36.790] And John, you said John, thank you very much.
+- [02:40.530] And representatives, Byron Donalds,
+- [02:43.430] Buddy Carter, Rob Whitman, Mark Alford, Mike Rogers,
+- [02:47.880] Richard Hudson, and Abe Hamadei, thank you all very much.
+- [02:57.190] We have Mike Kehoe, governors,
+- [02:59.920] Jim Pellin, Kevin Stitt, Mike Dunleavy,
+- [03:04.870] along with numerous other members of my Cabinet.
+- [03:07.350] And I want to thank you all for being here.
+- [03:09.020] How come my Cabinet has such good locations?
+- [03:11.890] You should have given them up to the business leaders.
+- [03:14.500] We want their money.
+- [03:17.550] They have their very good locations.
+- [03:19.230] I'm not surprised.
+- [03:21.970] 100 days ago this week we inherited the wreckage
+- [03:25.020] of four years of economic disaster
+- [03:27.120] under the previous administration.
+- [03:28.790] It was an economic disaster.
+- [03:31.020] It was a disaster at the border
+- [03:33.000] like nobody had ever seen before.
+- [03:35.480] And you probably see we've closed up the border, 99.999%,
+- [03:41.040] meaning three people got in, three,
+- [03:47.780] as opposed to hundreds of thousands of people
+- [03:51.840] coming in on a monthly basis, millions of people of actually,
+- [03:55.160] that periods where we had millions
+- [03:56.620] and millions of people pouring in on a monthly basis.
+- [03:59.190] We had three people.
+- [04:01.590] They buried companies in crippling regulations,
+- [04:04.950] waged war on American energy, pushed massive tax hikes
+- [04:08.840] and gave us the worst inflation in the history of our country.
+- [04:13.000] In Biden's final year,
+- [04:14.330] the United States had the worst trade deficit ever recorded
+- [04:17.500] and we lost 106,000 manufacturing jobs.
+- [04:21.230] Other than that, he's done a fantastic job.
+- [04:24.180] But now, all that is changing
+- [04:26.270] and all that's changing very fast,
+- [04:28.410] because we finally have the president
+- [04:31.340] who wants to put our country first.
+- [04:33.320] You have a president who believes in America first.
+- [04:37.140] In the first quarter,
+- [04:38.570] GDP numbers just out today, core GDP.
+- [04:42.450] Now where we're removing distortions from imports,
+- [04:46.000] inventories and government
+- [04:47.390] spending was up plus three percent.
+- [04:50.890] But this is Biden's economy,
+- [04:53.370] because we took over on January 20th
+- [04:56.270] and I think you have to get us a little bit of time
+- [04:59.370] to get moving, but this is the Biden economy.
+- [05:03.130] But we still had a, and we've had a lot of things
+- [05:06.570] happen since November 5th that helped this economy,
+- [05:09.820] because it was indicating a strong private sector growth.
+- [05:13.420] And it only started after November 5th.
+- [05:16.960] The private sector started really heating up
+- [05:19.340] after the election. Even though I wasn't there,
+- [05:22.560] people knew what we were going to be doing
+- [05:24.430] and the private sector growth was actually very good.
+- [05:27.520] Very importantly, gross domestic investment
+- [05:29.740] was up an incredible, 22%,
+- [05:31.730] which they had never seen before.
+- [05:34.050] Every new investment, every new factory
+- [05:36.030] and every new job created
+- [05:37.410] is a sign of strength in American economy
+- [05:40.600] and a declaration of confidence in America's future.
+- [05:43.940] We really do. We've never seen anything like this,
+- [05:46.810] even Samsung, which whose name isn't mentioned here,
+- [05:49.770] but I heard that they announced this morning
+- [05:52.400] that they're going to be building a very big plant,
+- [05:56.380] because they want to be able to beat the tariffs.
+- [05:58.740] That's the only way to beat them.
+- [06:00.670] The entire Trump economic agenda
+- [06:02.550] is about making it easier to do business in America,
+- [06:06.010] to create jobs in America, to hire American workers
+- [06:08.840] and to build your factories here in America,
+- [06:10.870] not in China or any other country.
+- [06:14.300] And we're dealing with many, many countries right now,
+- [06:17.030] I will say.
+- [06:18.400] And I think I can say for Scott and for Howard
+- [06:23.290] and for some of the people that are dealing,
+- [06:26.720] there are too many to handle.
+- [06:28.000] I mean, to be honest with you, I'd have to hire about,
+- [06:30.870] I'd love to hire some of the people running these companies.
+- [06:33.200] Boy, would you do a good job. I could have Jensen negotiate.
+- [06:37.820] He'd blow my people away, wouldn't you?
+- [06:39.420] I think even Howard would say that.
+- [06:42.370] Howard would say, we'll take them.
+- [06:44.490] He'd blow them away. It would make deals.
+- [06:46.700] One deal would be the end. That would be it.
+- [06:50.000] But we've terminated the [inaudible 00:06:49] scam.
+- [06:52.940] It was a scam and halted tens of billions of dollars of money,
+- [06:57.560] wasteful, deficit spending.
+- [07:00.130] It was like throwing money right out the window.
+- [07:02.960] And in the coming weeks we'll pass the largest tax
+- [07:05.300] cuts in American history and I think even more so,
+- [07:09.190] we'll be doing things for business
+- [07:11.200] like you've never seen before.
+- [07:12.780] You saw it in a little smaller version
+- [07:16.610] at the beginning of our last term.
+- [07:18.340] We had the most successful four years
+- [07:20.990] that any president has ever had. The stock market was up 88%.
+- [07:25.650] The other markets were up almost a 100%.
+- [07:29.620] And that's despite COVID,
+- [07:30.990] and all the crazy things happening.
+- [07:33.880] But we had a tremendous four years.
+- [07:37.340] We've given credit for that actually.
+- [07:39.660] But our big beautiful bill, as I call it,
+- [07:41.940] our big beautiful bill, we may name it that actually,
+- [07:45.270] will include 100% expensing retroactive to January 20th.
+- [07:50.330] So that's all the way back
+- [07:52.230] to just about the beginning of the year.
+- [07:54.990] So expensing, one year, you take a deduction one year,
+- [07:58.090] so you can build your factories right now
+- [08:00.650] essentially almost tax free if you think about it.
+- [08:04.370] Nobody's ever been given that.
+- [08:05.620] And we're going to make that expensing
+- [08:06.970] for a four-year period at a full 100%.
+- [08:10.490] So last time we made it one year,
+- [08:12.410] and you had the deductions from a 100% to 80,
+- [08:17.230] to 60, to 40, to 20, to zip-o. And now what we're going to do
+- [08:21.910] is we're going to keep it at that level
+- [08:23.620] and we're going to have it for four years.
+- [08:26.270] So I believe that was one of the reasons
+- [08:29.150] that we had such unbelievable growth.
+- [08:30.900] Also, we allowed you to bring money back
+- [08:32.630] from outside of the country. It was impossible.
+- [08:35.410] You had to have 15 different law firms representing you,
+- [08:38.360] it was so complicated.
+- [08:39.660] And worse was that the tax rate was 65%.
+- [08:43.740] I lowered the rate substantially, but still a lot.
+- [08:46.730] We shouldn't take your money just to hold you hostage, right?
+- [08:50.340] So we lowered it to a reasonable amount
+- [08:53.020] and we took in trillions of dollars, came back.
+- [08:55.640] Apple brought in a tremendous amount of money.
+- [08:57.770] A lot of the companies here brought in a lot of money.
+- [09:00.360] And the businesses represented today, clearly understand
+- [09:03.070] that if you build your factory in the United States,
+- [09:05.750] your tariff rate is zero, zero.
+- [09:08.620] And you have other advantages too,
+- [09:10.840] and not the least of which is what I just said,
+- [09:14.330] having to do with the bill.
+- [09:15.550] Now we have to get that bill approved.
+- [09:16.920] So call your local representative, please,
+- [09:19.850] and make sure that we get it approved.
+- [09:21.300] Because I don't want to talk too early,
+- [09:22.600] but we're doing well with the Republican Congress.
+- [09:25.730] We have the Senate is doing great
+- [09:27.270] and the house is doing great. John Thune has been spectacular.
+- [09:31.630] Mike Johnson has been, speaker, has been spectacular.
+- [09:37.430] Marcia, you're in there working very hard and doing well.
+- [09:40.480] What do you think? Are we going to get it passed?
+- [09:42.860] We have to.
+- [09:44.180] Marcia, we don't get it passed, I'm blaming you.
+- [09:47.210] We have to. We have to get it passed.
+- [09:50.720] We will. I think we will,
+- [09:53.390] but I don't think we'll have any Democrat votes.
+- [09:56.500] If we don't get it passed,
+- [09:58.370] what would happen is your taxes go up 68%, think of that.
+- [10:02.930] And we may not get one vote, because they just vote against.
+- [10:06.240] It's Trump derangement syndrome.
+- [10:07.870] Or maybe it's just they hate Republicans
+- [10:10.260] or they hate what we're doing,
+- [10:11.690] because they've lost their confidence.
+- [10:14.160] They've totally lost their confidence.
+- [10:16.600] They don't know what the hell is going on.
+- [10:19.000] And we are going to get it done.
+- [10:21.670] It's probably going to be fully Republican.
+- [10:23.610] Fortunately, we have the house, we have the Senate,
+- [10:26.410] and we may or may not have a couple of grandstanders,
+- [10:29.840] I don't know.
+- [10:31.130] But if we do, it would be good if you could work on anybody.
+- [10:33.850] I mean, if I were a Democrat, I'd be voting for it, a 100%.
+- [10:37.710] Because I think it's very dangerous
+- [10:39.040] politically not to vote for.
+- [10:40.360] Think of it, your taxes go up almost 68%.
+- [10:44.270] But it looks like we're in good shape, I think.
+- [10:46.760] And hopefully we'll get it approved.
+- [10:49.340] It'll be the biggest bill ever approved
+- [10:52.200] in the history of our country.
+- [10:53.860] And it'll be the biggest tax cut ever approved
+- [10:56.710] in the history of our country.
+- [10:58.100] And in addition to that, regulations,
+- [11:00.750] which I'm doing in and outside of the bill
+- [11:03.460] will be as big or bigger than we did last time.
+- [11:07.390] We have the record for regulation cuts
+- [11:09.420] in the four years.
+- [11:10.950] We cut four times higher than any other president
+- [11:14.070] in a four-year period,
+- [11:15.840] and we're talking about eight years and two-term presidents.
+- [11:21.780] We're four times higher than any other president
+- [11:25.050] in terms of regulation cuts.
+- [11:27.920] And I went to a friend of mine who happens to be in the room,
+- [11:30.570] one of the biggest business leaders.
+- [11:31.950] I won't mention him because I don't know,
+- [11:33.880] maybe he'll like it, maybe he won't.
+- [11:35.200] I said to him, "Have you had your choice
+- [11:37.010] between the big tax cut last time
+- [11:39.960] and the big regulation cuts?"
+- [11:41.350] Which were the biggest, again, the biggest we've ever done.
+- [11:44.910] I would've said taxes, but he would've said regulation.
+- [11:48.240] I said, "Which was more important to you?"
+- [11:51.480] Then he said, "If I could only have one?"
+- [11:52.940] "Yeah, if you could only have one."
+- [11:54.150] He said, "Most important would've been regulation."
+- [11:56.660] The regulation was more important than the tax cut.
+- [12:00.130] And we cut your taxes from almost 40% down to 21%.
+- [12:04.280] Now we're bringing your taxes down from 21% to 15%,
+- [12:08.500] if you build your product, make your product in the USA.
+- [12:12.170] If you make it in the USA, those chips,
+- [12:14.790] those beautiful chips,
+- [12:16.320] we'll make those suckers in the USA
+- [12:18.250] and you're going to be all the way down to 15%.
+- [12:22.190] And I think there's never been anything like it,
+- [12:25.420] so now we're at the lowest scale for a large country,
+- [12:28.710] by far the lowest scale.
+- [12:30.890] Our pro jobs, pro-American economic policies
+- [12:33.680] are major reason that businesses around the world
+- [12:36.420] have announced $5 trillion of investment since November 5th,
+- [12:41.570] and now we think it's up to plus eight trillion.
+- [12:45.210] And they're really coming in. They're really coming in fast.
+- [12:48.720] Some of them don't bother calling us.
+- [12:51.050] Some of them don't even want meetings.
+- [12:52.850] They just start their plants and start their factories.
+- [12:58.480] I want to express my tremendous appreciation
+- [13:00.720] to the business leaders here.
+- [13:02.060] You are really an amazing group. This is a who's who.
+- [13:06.990] I don't want to say, there's an expression,
+- [13:08.870] if something ever went off,
+- [13:10.780] the entire industry would be wiped out,
+- [13:12.610] but I won't say that. I want to think very positively,
+- [13:15.680] and that could never happen here, could it?
+- [13:17.770] But I want to congratulate you all
+- [13:19.340] on your incredible success and accomplishments.
+- [13:23.130] You've been amazing. You're the biggest and the best.
+- [13:26.450] I'd like to introduce some of you,
+- [13:28.220] president and CEO of Hyundai, Jose Munoz.
+- [13:34.100] Jose, thank you very much, you're fantastic.
+- [13:39.150] Jose is investing 21 billion,
+- [13:42.930] including 5.8 billion for a new steel plant in Louisiana,
+- [13:46.500] which is a beauty. I saw a picture of it,
+- [13:48.310] which is going to create at least 1500 jobs,
+- [13:51.190] just to plant alone.
+- [13:52.400] Thank you very much, Jose. Beautiful.
+- [13:55.080] Chairman and CEO of global shipping giant
+- [13:57.980] CMA CGM, Rodolphe Saadé.
+- [14:03.140] Thank you, Rodolphe. Thank you very much.
+- [14:05.910] Fantastic. Investing $20 billion
+- [14:09.060] in creating 10,000 new jobs at least.
+- [14:11.850] Thank you very much. That's fantastic.
+- [14:14.660] You'd be very happy.
+- [14:15.990] President and CEO of Toyota, North America,
+- [14:18.850] Ted Ogawa, investing 88 million. Where's Ted? That's fantastic.
+- [14:24.810] Thank you, Ted. That's fantastic.
+- [14:27.750] Ted's investing 88 million for car production
+- [14:31.900] at its West Virginia factory, which is a beauty.
+- [14:35.340] I've seen it actually. Congratulations.
+- [14:38.280] Thank you very much for being here, Ted.
+- [14:40.980] Co-founder and CEO of Anduril, Brian Schimpf.
+- [14:46.470] Brian, thank you, Brian. He's investing one billion
+- [14:52.460] for a new manufacturing facility in Ohio.
+- [14:55.110] And displayed next to me
+- [14:57.020] is their 125-pound Roadrunner drone.
+- [15:00.870] Where is that little sucker? Where is it? Which is that?
+- [15:04.560] Whoa, that's a nasty-looking thing.
+- [15:09.840] That's that nasty…
+- [15:11.100] I look up there when I'm having dinner outside.
+- [15:13.360] I used to look up and see the moon, this is beautiful.
+- [15:15.750] Now you see the moon, but you see drones
+- [15:17.410] all over the place and they say, let's get the hell out of here.
+- [15:23.120] That's a good one, isn't it? Huh? I can see it.
+- [15:25.930] CEO of Worldwide Amazon stores, Doug Herrington.
+- [15:29.620] Thank you very much. Thank you, Doug, very much.
+- [15:35.240] Investing $4 billion this year alone,
+- [15:38.360] and I know they said they're going to be investing a lot
+- [15:41.530] over the next two years. We appreciate it very much.
+- [15:43.750] Thank you. And say hello to everybody.
+- [15:45.850] CEO of Venture Global, Mike Sabel.
+- [15:49.230] Mike, thank you very much, Mike. Investing $18 billion
+- [15:55.830] in liquefied natural gas expansion in Louisiana.
+- [15:58.930] That's going to work out good. Thank you very much.
+- [16:02.030] President and CEO of Siemens
+- [16:03.670] USA, a big company, Barbara Humpton.
+- [16:08.030] Thank you, Barbara. Thank you very much.
+- [16:11.940] Investing $285 million.
+- [16:14.680] Executive global chairman of Pratt
+- [16:17.230] Industries, friend of mine, Anthony Pratt.
+- [16:20.080] He's investing $5 billion. Thank you. Thank you, Anthony.
+- [16:26.570] I read a report today, he's the richest man in Australia,
+- [16:28.780] but who the hell knows?
+- [16:29.980] Do you think you're the richest man in Australia?
+- [16:33.420] Close.
+- [16:35.780] I don't like to put you on the spot like that, Anthony,
+- [16:37.890] but that's pretty good.
+- [16:39.440] Thank you very much. That's great, $5 billion.
+- [16:42.540] Founder and CEO, Chobani Hamdi Ulukaya, where are you?
+- [16:49.970] Thank you very much. Investing 1.2 billion.
+- [16:55.250] Thank you very much. CEO of Bel
+- [16:58.690] Brands USA, Ivan Giraud. Ivan, thank you very much.
+- [17:04.170] Thank you very much, $350 million.
+- [17:07.620] President of Schneider Electric North America, Aamir Paul.
+- [17:11.600] Aamir, thank you very much.
+- [17:14.200] Investing 700 million for energy infrastructure
+- [17:17.320] and its largest investment in its 135-year history.
+- [17:22.050] Chairman and CEO of Johnson & Johnson.
+- [17:24.710] Oh, I know, I've heard of that company, huh?
+- [17:28.690] My hair looks so beautiful because of your product.
+- [17:32.010] Joaquin Duato, $ 55 billion manufacturing plant
+- [17:37.130] and research and development and technology.
+- [17:39.590] Thank you very much. 55 billion, that's a lot.
+- [17:44.010] But you got to catch up with Apple and some of the others.
+- [17:46.350] We got to get you to make a little…
+- [17:48.160] You're one of the few companies that could do that.
+- [17:51.320] Chair and CEO of Eli Lilly a great guy.
+- [17:55.050] Every time I talk to him about drug prices, he sweet talks me.
+- [18:00.100] He tells me about the middleman.
+- [18:01.600] The middleman, he keeps telling me about the middleman.
+- [18:03.350] By the time I leave the meetings,
+- [18:05.910] I was telling my people I say,
+- [18:07.790] "Gee, he's giving us a great bargain."
+- [18:10.890] But David, you have done some job.
+- [18:12.500] David Ricks, you have done some job.
+- [18:15.490] I'll see you later too. $27 billion,
+- [18:19.210] doubling its manufacturing investment in the US.
+- [18:21.850] And he's got a very hot topic right now going, don't you?
+- [18:25.500] This stuff is doing really well, isn't it?
+- [18:27.850] Really hot company. Thank you very much, David.
+- [18:30.880] CEO of Novartis, Vas Narasimhan,
+- [18:35.830] and that's $23 billion, thank you.
+- [18:38.480] Thank you very much. Thank you, Vas.
+- [18:43.680] CEO of Genentech, Ashley Magargee, 50 billion.
+- [18:49.490] Wow, that's a lot of money. Good.
+- [18:53.380] Thank you, Ashley. That's a big one.
+- [18:55.800] CEO of AbbVie, Rob Michael, $10 billion.
+- [19:01.970] Thank you very much. Thank you. Good company.
+- [19:06.060] President and CEO of ThermoFisher, Marc Casper,
+- [19:09.930] $2 billion. Thank you, Marc, very much.
+- [19:15.150] Chairman and CEO of Merck, great company,
+- [19:17.720] Rob Davis, $9 billion. Thank you very much, Rob.
+- [19:23.340] Chairman and CEO of Abbott, Robert Ford, $500 million.
+- [19:28.130] Thank you, Robert.
+- [19:30.780] Chairman and CEO of a company called IBM,
+- [19:35.320] Arvind, where are you?
+- [19:36.610] Where are you? Thank you very much.
+- [19:38.460] That's fantastic, 150 billion. That's all? That's great.
+- [19:44.660] Thank you very much. You've done a great job.
+- [19:46.620] You've done a great job with that company too.
+- [19:48.610] I'll tell you.
+- [19:50.210] Chairman and CEO of GE Aerospace, Larry Culp.
+- [19:53.940] Larry, thank you very much Larry.
+- [19:57.630] And Larry's investing one billion
+- [19:59.400] in manufacturing of across 16 states
+- [20:01.710] and with us as we have the model of their F110 engine,
+- [20:06.910] which I hear is like…
+- [20:08.510] I must tell you, I hear it's the hottest engine there is.
+- [20:11.320] You've got a gold mine over there, Larry,
+- [20:15.410] which powers our nation's finest fighter jets and other jets.
+- [20:19.340] And your big engine is really something
+- [20:21.140] that I hear is beyond anything that has been produced yet,
+- [20:24.500] so good luck with it.
+- [20:25.910] And Larry, I think we're going to ask you
+- [20:27.360] to say a few words actually, so come on up. Thank you.
+- [20:34.490] Mr. Culp: Thank you. Thank you.
+- [20:36.890] Thank you, Mr. President. It's an honor to be here
+- [20:38.920] representing all of my colleagues at GE Aerospace.
+- [20:42.890] We are today 125 years old,
+- [20:45.490] but we are inventing the future of flight.
+- [20:48.420] Today we power three-quarters of the world's commercial airlines
+- [20:53.030] and nearly two-thirds of the US military
+- [20:56.020] combat jets and helicopters. What you see here with the F110,
+- [21:01.400] powers 70% of the newest Air Force F-15s and the F-16s.
+- [21:07.470] And I know you were in Michigan just yesterday.
+- [21:09.680] This is the engine that will be under wing
+- [21:11.540] on the F-15EX Eagle II
+- [21:14.320] that the Michigan Air National Guard
+- [21:16.060] will soon be flying.
+- [21:18.820] We're excited about what's happening at our company.
+- [21:21.670] We're investing a billion dollars this year,
+- [21:24.480] as the President said, across 16 states,
+- [21:27.240] not only in our manufacturing footprint,
+- [21:31.220] but with so many of the small and mid-sized businesses
+- [21:34.270] that constitute our supply chain.
+- [21:36.360] There's a lot happening. We're excited about it.
+- [21:38.760] Mr. President, thank you for what you're doing.
+- [21:40.740] Not only to revitalize US manufacturing,
+- [21:44.010] but helping ensure that the US aerospace industry,
+- [21:47.430] one of our biggest net exporters,
+- [21:49.390] continues to lead the world in innovation.
+- [21:51.890] Thank you. The President: Thank you.
+- [21:53.090] Mr. Culp: Thank you.
+- [21:54.860] The President: Great job.
+- [21:57.890] And he has done a really great job.
+- [21:59.600] You took over a slightly troubled company
+- [22:02.900] and now you've made it hot as a pistol.
+- [22:04.570] So that's really an amazing job
+- [22:06.320] you've done in a short period of time.
+- [22:07.810] Also with us is Chairman and CEO of SoftBank, Masa.
+- [22:11.660] Where's Masa? Masa? Come on up here, Masa.
+- [22:17.520] Masa has pledged $200 billion plus another $500 billion
+- [22:23.190] with Oracle and OpenAI for a total of 700 billion.
+- [22:27.920] Thank you, Masa. Come on up, please.
+- [22:36.160] Mr. Son: Well, first time of Trump administration,
+- [22:40.270] we made an commitment, $50 billion.
+- [22:44.210] We delivered $70 billion over four years last.
+- [22:50.020] Time this time I tried to commit $100 billion
+- [22:55.980] and President Trump said, "Oh, Masa, go for more."
+- [23:01.980] So we did that $200 billion commitment,
+- [23:05.350] and then right after that, we SoftBank,
+- [23:09.650] OpenAI, Oracle and MGX together,
+- [23:13.270] we announced $500 billion investment.
+- [23:17.050] This is the largest investment for infrastructure
+- [23:21.250] in the United States investment.
+- [23:23.990] And I think this is more than the scale.
+- [23:27.310] The importance is this is the largest infrastructure
+- [23:31.620] for the AI,
+- [23:33.250] which is the future of mankind I believe.
+- [23:35.890] It's going to change every industry,
+- [23:39.600] every way of mankind's lifestyle of the future.
+- [23:45.350] I am committed. US is the center of innovation.
+- [23:49.980] US must continue the leadership of AI.
+- [23:53.830] Thank you very much.
+- [23:55.070] The President: Thank you. Thank you. A great honor.
+- [24:01.850] Thank you very much, Masa.
+- [24:03.640] Been a friend of mine for a long time.
+- [24:06.120] This guy's a mover. We got to say.
+- [24:08.460] You are really something. It's great.
+- [24:10.250] We appreciate it too. It's a great spirit.
+- [24:12.770] Great genius.
+- [24:14.850] Tim Cook from Apple is pledging,
+- [24:18.990] not only pledging, is committed to $500 billion,
+- [24:21.820] they're going to build plants all over the country,
+- [24:26.490] seven or eight different states.
+- [24:28.200] They've already started. And so I want to thank Tim.
+- [24:31.330] That's such a big investment for somebody
+- [24:34.340] that had them pretty much in one location, as you know.
+- [24:38.210] Now they're coming into the United States, I believe,
+- [24:41.000] because of the spirit and the tariffs and the incentives.
+- [24:46.130] So that's Apple for $500 billion.
+- [24:50.350] And one of the most brilliant men that you'll ever meet,
+- [24:53.240] a man that's done in a short period of time,
+- [24:55.130] something that is incredible. He's the founder, CEO,
+- [24:59.460] and president of NVIDIA, Jensen Wong.
+- [25:03.120] He's producing up to 500 billion over the next four years
+- [25:07.510] to manufacture the most powerful AI chips
+- [25:10.470] entirely in the USA for the first time ever.
+- [25:13.750] Jensen, would you come up and say a few words?
+- [25:15.800] This is a smart cookie.
+- [25:18.290] Thank you.
+- [25:20.190] Mr. Wong: Thank you, sir.
+- [25:23.160] Thank you, Mr. President. It's a great honor to be here.
+- [25:27.150] NVIDIA reinvented computing for the first time after 60 years.
+- [25:31.640] In fact, everyone at IBM knows quite well
+- [25:35.200] that the computer has largely been the same since the sixties.
+- [25:39.720] The IBM System 360 described
+- [25:42.500] really quite perfectly the computer that we use today.
+- [25:46.200] Central processing units, operating systems,
+- [25:48.620] the separation of hardware and software,
+- [25:50.890] IO subsystems, multitasking,
+- [25:53.260] all of the words that we used to describe computers today
+- [25:55.490] were really invented in 1964, the year after my birth.
+- [25:59.920] Well, after all this time,
+- [26:01.190] we've reinvented computers again.
+- [26:02.960] This is what a processor looks like.
+- [26:04.860] It's on the right there. People say it's a GPU.
+- [26:08.820] That's one GPU unit,
+- [26:11.210] and it's 70 pounds, 60,000 parts, 10,000 watts.
+- [26:17.670] In order to manufacture, it requires probably
+- [26:20.510] a couple of hundred companies in the supply chain.
+- [26:23.810] It is so heavy that it requires robotics to do.
+- [26:27.210] It's so precise.
+- [26:28.450] And just to test a supercomputer requires a supercomputer,
+- [26:33.880] and we're going to build NVIDIA's technology,
+- [26:37.130] the next generation of that all here in the United States.
+- [26:41.260] Without the president's leadership,
+- [26:44.290] his policies, his support,
+- [26:48.400] and very importantly, his strong encouragement,
+- [26:52.940] and I mean his strong encouragement,
+- [26:56.020] frankly, manufacturing United States
+- [26:59.140] wouldn't have accelerated through this pace.
+- [27:01.740] Manufacturing isn't about low-cost labor anymore.
+- [27:05.540] Manufacturing is about technology.
+- [27:08.130] And most of the factories that build these systems today
+- [27:12.990] are the most advanced factories in the future.
+- [27:15.280] And we're going to use artificial intelligence
+- [27:17.110] and robotics and omniverse digital twin technology
+- [27:19.920] to make it possible for us
+- [27:21.210] to create the factories of the future.
+- [27:23.520] And we ought to build it right here.
+- [27:27.790] The real amazing thing is that this computer
+- [27:31.620] is the engine of a whole new industry.
+- [27:34.530] And this new industry is called artificial intelligence.
+- [27:36.830] And this new industry
+- [27:38.110] is a manufacturing industry in itself.
+- [27:40.700] That's a factory machine.
+- [27:43.610] Just as several hundred years ago,
+- [27:46.600] the DYNAMO was invented,
+- [27:49.000] water would come in and electricity would come out.
+- [27:50.790] Now electricity goes into this machine and incredible tokens
+- [27:54.830] come out. Artificial intelligence.
+- [27:56.930] In order for this industry to thrive,
+- [27:59.450] we need to build these of course,
+- [28:01.500] but we also need a progressive growth
+- [28:04.330] and industry-oriented energy policy,
+- [28:07.950] which this president has really put his weight behind.
+- [28:10.980] I really appreciate that. Without energy,
+- [28:13.720] we can't possibly have new growth industries.
+- [28:16.930] And we now have the backing of the administration,
+- [28:19.270] the backing of President Trump
+- [28:21.560] to support the creation of a whole new industry.
+- [28:25.490] This industry is going to enable
+- [28:26.690] a whole bunch of other industries.
+- [28:28.560] What we now call the AI infrastructure
+- [28:30.250] is going to revolutionize every industry that we know.
+- [28:33.820] All of the many CEOs in the room today
+- [28:36.960] are great partners of ours, for that reason.
+- [28:39.780] We're working on artificial intelligence
+- [28:41.410] for many industries,
+- [28:42.670] from healthcare to drug discovery,
+- [28:44.310] to life sciences, financial services, education,
+- [28:48.300] so many different industries.
+- [28:49.940] And that's going to be possible because we have the fundamental
+- [28:52.420] infrastructure here in the United States.
+- [28:54.080] And so I want to thank you, sir,
+- [28:55.310] for everything that you've done and the strong encouragement
+- [28:59.190] and the great policies that make it possible for us.
+- [29:01.330] Thank you, sir.
+- [29:02.950] The President: Thank very much. Thanks.
+- [29:10.680] Another brilliant man. We have brilliant people here
+- [29:16.180] and we like brilliant people actually.
+- [29:19.090] But we have a lot of brilliant people in this group
+- [29:21.360] and it's an honor to be with you.
+- [29:23.110] Past 100 days I've been fighting to reclaim our jobs
+- [29:28.270] and bring our country back to a level
+- [29:29.980] that it's never seen before,
+- [29:31.750] and again, renew the American dream,
+- [29:35.070] which is what we're doing.
+- [29:36.470] We have tremendous spirit. I don't know if you've heard,
+- [29:39.630] but it's become really quite a story.
+- [29:42.120] I see Pete's writer over here, Secretary of Defense.
+- [29:45.680] We have the largest number of new enlistees or people
+- [29:51.810] enlisting in the military forces that we've ever had.
+- [29:55.340] And if you remember six months ago,
+- [29:57.130] we couldn't get anybody to sign up.
+- [29:59.590] That's a big turn in a very short period of time.
+- [30:03.000] And November 5th had a lot to do with that.
+- [30:06.070] And our Secretary of Defense
+- [30:07.920] and a lot of the people that you see sitting here
+- [30:10.220] really had a lot to do with that.
+- [30:11.610] There's great spirit.
+- [30:13.140] I can say that also with the police forces
+- [30:15.030] throughout the country,
+- [30:16.280] we were having a hard time filling them up.
+- [30:19.080] It's a dangerous job.
+- [30:20.480] But now we have waiting lists at almost every place.
+- [30:25.040] And that's an amazing accomplishment when you think.
+- [30:27.630] It's amazing.
+- [30:34.570] And when I first came here,
+- [30:35.810] you remember just three months ago,
+- [30:40.520] I came in and they started screaming,
+- [30:42.370] the fake news was screaming.
+- [30:44.160] They were going crazy about eggs.
+- [30:45.970] I don't know about eggs. What's with eggs? Tell me?
+- [30:48.810] They said, "Their cost is up 50%
+- [30:52.490] and you won't have them for Easter."
+- [30:54.880] I said, "Well, I'll have to get onto it.
+- [30:56.320] But this isn't my problem. This is Biden's problem.
+- [30:58.350] I've only been here for four days."
+- [31:00.640] They're screaming at me about eggs like it was my fault.
+- [31:03.330] I just got here.
+- [31:04.610] Didn't know anything about it. We got it taken care of.
+- [31:07.440] And eggs dropped 87% in the last short period of time.
+- [31:11.630] And everybody had eggs for Easter.
+- [31:14.320] In fact, we had a big Easter egg hunt on the lawns.
+- [31:17.030] We had 48,000 people actually came.
+- [31:20.160] We had a lot of eggs.
+- [31:21.420] I don't know how many, but there were a lot.
+- [31:22.880] We didn't use plastic.
+- [31:24.100] They said, "Could you use plastic eggs?"
+- [31:25.980] This is in early January,
+- [31:28.460] and I see our Secretary of Agriculture is here.
+- [31:30.650] Would you stand up? You did a great job.
+- [31:32.250] You got me out of a lot of trouble.
+- [31:34.790] Brooke Rollins, she got me out of a lot
+- [31:39.350] because they were trying to blame me for eggs
+- [31:41.060] and I didn't know anything about it yet.
+- [31:42.580] Explain it to me.
+- [31:44.180] But we had plenty of eggs, Brooke, right, for Easter?
+- [31:46.860] There was no dearth.
+- [31:49.800] And we have another man in the audience
+- [31:52.340] who's maybe the most important man in the room
+- [31:54.300] because he's the head of the Environmental Protection Agency,
+- [31:57.980] meaning he's the one that approves all your plants.
+- [32:00.930] And when Jensen and some of the others came in about…
+- [32:05.550] numerous of the others, especially having to do with AI,
+- [32:09.960] they came in. I learned a lot.
+- [32:12.740] Number one, I learned we need double the electricity
+- [32:15.470] that we have right now for the whole country.
+- [32:17.070] And really more than that, two times would be even better.
+- [32:20.620] It was like unlimited thirst for electricity.
+- [32:24.790] And at first I said, "How's that possible?"
+- [32:29.020] But whatever it is, it's possible.
+- [32:30.880] That machine that you say you can barely lift,
+- [32:33.540] I guess it sucks up a lot of energy.
+- [32:37.400] But we need more than double what we have right now.
+- [32:41.700] So you take all of the energy,
+- [32:43.010] even the energy in this beautiful, incredible…
+- [32:45.550] is just the greatest?
+- [32:46.820] I mean, I don't care where you come from
+- [32:49.130] with your 50-billion-dollar plant,
+- [32:51.650] the White House is the White House, right?
+- [32:53.450] You got to see in the Oval Office.
+- [32:55.130] If you want to take a trip down to the Oval Office interview,
+- [32:57.690] you come down with me, I'll show you a beautiful office.
+- [33:00.540] It'll blow your beautiful offices away.
+- [33:02.550] They'll stop it. They'll say. For a lot of other reasons.
+- [33:06.080] But it is, it's a beautiful place.
+- [33:07.750] And if you want to, I'm serious, you can do that.
+- [33:10.370] But I told Jensen, I told Tim, I told everybody that's building
+- [33:16.350] these very big, incredible plants,
+- [33:18.680] really plants of the future.
+- [33:20.660] They were talking about hooking into the grid.
+- [33:22.400] I said, the grid is old and it is subject to mishap.
+- [33:27.700] Things can happen,
+- [33:28.990] including storms and much worse than storms.
+- [33:31.540] And if you want, I'll let you build your own utility plant,
+- [33:36.620] your own electric plant, along with your building.
+- [33:38.750] You can build it inside of the plant
+- [33:40.320] or you can build it outside of the plant.
+- [33:43.280] And I went to Lee Zeldin right here and I said, Lee,
+- [33:47.670] we got to get fast approvals for these people.
+- [33:49.850] They're going to do the best job.
+- [33:51.240] They're going to have the best engineers, the best everything,
+- [33:54.320] would like to have them build their electric for them.
+- [33:57.020] They don't have to go outside. You become a utility.
+- [33:59.860] You become a great producer of electric,
+- [34:03.760] and if you have any extra, you put it back into the grid
+- [34:06.100] if you want or you sell it back in,
+- [34:08.500] but you're going to be able to build,
+- [34:10.040] so this way we don't have to worry about do we have enough?
+- [34:12.910] Because if you look at California,
+- [34:14.330] they have brownouts, blackouts and everything else.
+- [34:16.590] They don't know what the hell they're doing.
+- [34:18.310] Governor doesn't have a clue.
+- [34:20.200] But the last thing you want to do
+- [34:21.860] is be hooking up to the California grid,
+- [34:24.560] so that we can go in and you'll say, gee,
+- [34:26.620] we have to close down the factory for a couple of days.
+- [34:28.740] We have a little brownout going on.
+- [34:31.060] You're going to be able to build your own plant,
+- [34:35.080] then produce as much electric as your beautiful heart's desire.
+- [34:39.640] And that'll be something that nobody's done before.
+- [34:42.730] And we're going to ask Lee to get those approved very quickly
+- [34:46.500] and he'll get it approved before you can even imagine.
+- [34:51.910] He's great. He's great. He knows the difference.
+- [34:54.090] You can take years to get those approved.
+- [34:57.130] I would say, previous to us, it would be years and years,
+- [35:00.870] or you could take weeks to get them approved
+- [35:02.680] and it'll be just as good.
+- [35:04.710] But they don't play games and they're going to get it done
+- [35:06.810] and they'll get it done very quickly.
+- [35:08.480] That's going to be a big help
+- [35:09.710] because you're going to have unlimited energy,
+- [35:12.090] unlimited electricity, and I think it's going to…
+- [35:16.140] Really, we want to stay number one.
+- [35:17.820] We are number one right now by a lot.
+- [35:20.670] I will say this. If I didn't get elected,
+- [35:22.700] I would say get out of the AI business fast.
+- [35:26.180] Get out of all business fast, probably.
+- [35:27.950] Maybe get out of the country fast,
+- [35:29.450] because this country was heading in the wrong direction.
+- [35:31.470] But now it's heading in the right direction.
+- [35:33.100] I think it's the most consequential 100 days
+- [35:36.760] in the history of our country in certain ways.
+- [35:39.040] We had an editorial from a group
+- [35:43.930] that normally wouldn't give good editorials to people like me.
+- [35:47.940] And they said he's the most consequential President
+- [35:50.850] because of what he's doing with all of these policies
+- [35:53.420] that you're reading about,
+- [35:54.640] long beyond the electricity and the plants.
+- [35:57.280] Having to do with many other things,
+- [35:58.700] like secure borders and all of the many, many things.
+- [36:03.580] I could go down and name them.
+- [36:06.690] We're going to be getting tremendous amounts
+- [36:10.490] of drug and pharmaceutical companies,
+- [36:13.260] going to be pouring into the country.
+- [36:14.740] They're going to have to. They're going to have to
+- [36:17.170] and we're going to give them a lot of time to do it.
+- [36:19.200] But after that, there's going to be a tariff wall put up
+- [36:22.450] and they won't be happy about it.
+- [36:24.330] But they'll be happy if they start building right now.
+- [36:27.990] Right now, it's going to be billed
+- [36:29.520] and, after a certain period of time,
+- [36:31.220] it's going to get tougher, tougher, tougher.
+- [36:32.680] And then it's going to be real hard
+- [36:33.970] to do business in this country.
+- [36:36.500] For the pharmaceutical companies, chip companies,
+- [36:38.850] a lot of different companies, we're all set to really grow.
+- [36:45.330] Groceries are down. The grocery prices are down.
+- [36:49.210] Gasoline prices are down. We had some gasoline
+- [36:53.020] selling for $1 and 98 cents a gallon just recently,
+- [36:57.560] in three different states, over the last two days.
+- [37:02.120] It was at $4 and it was higher than that in some place.
+- [37:06.680] It was over $5. We have it way down.
+- [37:09.700] Energy prices are down all over the country.
+- [37:12.550] Mortgage rates are actually down slightly,
+- [37:14.490] even though I have a guy in the Fed
+- [37:15.750] that I'm not a huge fan of.
+- [37:17.590] But that's all right. These are minor details.
+- [37:19.470] Don't tell him I said that, please.
+- [37:21.890] As the cameras rock and roll back there.
+- [37:23.880] No, I'm just… He should reduce interest rates.
+- [37:28.320] I think I understand interest a lot better than him
+- [37:31.340] because I've had to really use interest rates.
+- [37:34.160] But we should have interest rates go down.
+- [37:36.630] It would be positive,
+- [37:38.070] but it's not going to matter that much
+- [37:40.900] because, ultimately, what we're creating
+- [37:44.120] has much more to do with other things
+- [37:46.070] than it does just pure interest rates.
+- [37:47.730] But it would be nice for people wanting to buy homes and things.
+- [37:51.990] The prescription drug prices
+- [37:55.270] just saw the largest monthly decline ever recorded,
+- [37:59.650] so David, I'm having a little bit of an impact,
+- [38:01.820] at least on you, as I just browbeat…
+- [38:03.700] I browbeat this guy. He's got the nicest…
+- [38:05.720] He looks like he's 25 years old.
+- [38:07.310] He has this massive company, Eli Lilly,
+- [38:11.760] and it has no impact on them whatsoever.
+- [38:14.690] But I just see this number just came out.
+- [38:16.930] It's the largest monthly decline ever recorded.
+- [38:19.930] Yeah, but it's probably about 2%.
+- [38:23.170] They did that to make me feel a little bit better.
+- [38:25.600] But I appreciate it.
+- [38:26.810] We have achieved the lowest number
+- [38:28.960] of illegal border crossings in US history
+- [38:31.790] and we're at a level that nobody thought
+- [38:34.360] we could get to in two years, let alone a couple of months.
+- [38:37.700] And I think Kristi Noem is here someplace.
+- [38:39.600] Where is Kristi? She's here. Stand up, Kristi. And Tom Homan.
+- [38:47.760] And I see Linda. Stand up, Linda.
+- [38:51.110] You are doing so good. Education.
+- [38:52.630] We're bringing education back to the states where it belongs.
+- [38:59.040] And she's been incredible. She's very upset with Harvard.
+- [39:04.440] They're $53 billion in a fund and yet they want more grants.
+- [39:07.990] And it looks like we're not
+- [39:09.210] going to be giving them any more grants.
+- [39:10.680] Right, Linda? And a grant is at our discretion
+- [39:15.470] and they're really not behaving well, so it's too bad.
+- [39:19.190] But our country is roaring like never before.
+- [39:22.100] Nobody's ever really seen anything like this.
+- [39:24.290] And again, the big thing is whether it's eight trillion
+- [39:27.320] or even more than that, by the end of the year,
+- [39:30.380] it could be a number that would be…
+- [39:32.290] I think it's already…
+- [39:33.530] There's never been anything like it,
+- [39:34.930] but this is in a period of couple of months.
+- [39:38.970] I think by the end of the year,
+- [39:40.330] the numbers will be just staggering.
+- [39:43.510] It's really going to be something very special.
+- [39:45.470] And I'm very honored to be with you.
+- [39:47.640] And I'd ask, if anybody has any questions,
+- [39:49.590] please, this is your time. This is your time.
+- [39:52.830] You'll be live on television. All the fake news back there.
+- [39:57.260] That'll keep them down, right?
+- [39:58.830] That's the way to keep them down.
+- [40:00.260] Unless they're bad people, in which case…
+- [40:03.180] Unless they want to make some news.
+- [40:05.130] Would anybody have any questions?
+- [40:06.740] Anybody? Business leaders?
+- [40:07.980] You want to know anything about depreciation?
+- [40:10.810] No? I love it.
+- [40:12.740] We've done such a good job. We don't have to take…
+- [40:16.170] Howard, would you like to say a couple of words, please?
+- [40:26.740] Secretary Lutnick: The President talks about $8 trillion
+- [40:30.610] coming into America
+- [40:31.870] and there's only one reason it's coming in.
+- [40:34.470] It's because he's finally set an industrial policy
+- [40:38.920] for the United States of America.
+- [40:40.830] We are the greatest economy in the world.
+- [40:43.080] We finally have the President who understands
+- [40:45.730] that we need to re-industrialize.
+- [40:47.730] We need to be made in America, made in the USA.
+- [40:51.130] And you feel it. You feel it with these leaders,
+- [40:54.390] you feel it across all your peers.
+- [40:56.680] Everyone feels it. It's coming back to America
+- [40:59.460] and we are going to be rocking, so thank you, sir.
+- [41:01.890] The President: Great job. Great job.
+- [41:06.820] Thank you very much everybody. And for the business leaders,
+- [41:09.990] if any of you would like to come down to the Oval
+- [41:12.000] and say hello, if you've never seen it.
+- [41:13.450] If you have seen it, just go home and enjoy your lives.
+- [41:15.760] Count your money.
+- [41:17.280] But if you'd like to come down, I'm heading down there now
+- [41:19.650] and, again, thank you very much everybody.
+- [41:22.260] Pam, you're doing a fantastic job.
+- [41:24.420] You're doing a fantastic job. Thank you very much.
+- [41:27.110] Thank you everybody.

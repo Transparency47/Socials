@@ -1,0 +1,1170 @@
+<!-- source: https://www.youtube.com/watch?v=rr2RA4JAntQ -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: rr2RA4JAntQ -->
+<!-- date_published: 2026-02-27T22:54:07+00:00 -->
+<!-- date_accessed: 2026-06-02T02:37:16.052523+00:00 -->
+
+# Transcript: President Trump Delivers Remarks on Energy, Feb. 27, 2026
+
+- [00:03.490] Announcer: Ladies and gentlemen, please welcome the President
+- [00:06.360] of the United States, Donald J. Trump.
+- [00:11.990] ♪ ("God Bless the USA" by Lee Greenwood) ♪
+- [02:34.855] (applause and cheers)
+- [02:36.270] The President: Well, thank you very much, everybody.
+- [02:38.250] I'm thrilled to be back in the great state of Texas,
+- [02:40.660] which we won over and over again.
+- [02:44.810] (Audience chanting "USA")
+- [02:51.090] President Trump: Ah, thank you very much.
+- [02:52.320] The gleaming shores of the Gulf of America.
+- [02:59.570] See, that's one of the things we did.
+- [03:01.680] We did so much, that's like one of the --
+- [03:03.590] I don't want to call it a throw-in
+- [03:04.920] because it's very important, but it's like a little throw-in.
+- [03:07.140] And I said, we ought to just sort of change the name.
+- [03:10.600] We have 92% of the frontage. But they were there first,
+- [03:14.400] they've been here 100 years longer.
+- [03:15.960] Gulf of Mexico, 100 years longer.
+- [03:17.890] Now it's the Gulf of America because we have 92%.
+- [03:22.210] I wouldn't say Mexico was thrilled, but they were fine.
+- [03:26.670] And I'm delighted to be here at this national treasure,
+- [03:29.870] one of the largest energy export hubs
+- [03:32.740] anywhere in the world, anywhere in the world.
+- [03:35.220] The Port of Corpus Christi, we had a lot to do with it.
+- [03:38.750] That bridge, we had so much. What a nice bridge.
+- [03:41.860] Ooh, I like that color. What a nice bridge.
+- [03:46.840] And we dredged nation deeply.
+- [03:48.630] I guess they said 54 feet or something.
+- [03:50.690] It's about as deep as you can go.
+- [03:53.940] I think we could go a few feet deeper and then you could --
+- [03:56.860] You want to go a little bit deeper?
+- [03:58.370] What the hell? What the hell? It's only money.
+- [04:03.120] With the men and women here today,
+- [04:04.700] we're unleashing America's potential,
+- [04:07.280] strengthening our security, increasing our prosperity.
+- [04:10.850] We had the most successful country anywhere in the world.
+- [04:14.590] A year and a half ago, we had a dead country.
+- [04:17.180] Our country was dead, you know it better than anybody.
+- [04:20.010] And cementing America's status
+- [04:21.890] as the number one energy superpower by far,
+- [04:26.070] anywhere on earth.
+- [04:27.350] And I want to thank Venezuela
+- [04:29.390] because our relationship is a very good one.
+- [04:32.960] A very, very good one.
+- [04:34.760] We're having a very good relationship.
+- [04:36.720] That boat, that ship is from Venezuela.
+- [04:40.700] For four long years before I took office,
+- [04:43.050] the Biden administration, sleepy Joe Biden,
+- [04:45.640] one of the worst presidents in history.
+- [04:48.370] Not one of the -- I have to think, the worst.
+- [04:51.760] Can you get worse?
+- [04:53.700] President Trump: Somebody said,
+- [04:55.060] "Please don't be political today."
+- [04:56.480] Okay. But he's the worst president we've ever had.
+- [04:59.560] And its allies in Congress waged a radical left war
+- [05:02.630] in American oil and natural gas like you've never seen before.
+- [05:06.930] They were killing our country
+- [05:08.260] and killing your area right here.
+- [05:09.770] In fact, they say if I wanted, I could work --
+- [05:12.690] If I ran for the Mayor of Corpus Christi, would I win?
+- [05:17.980] I think so. What the hell? I looked at your job stats.
+- [05:22.520] You have done very well with Trump.
+- [05:25.160] They killed the Keystone XL Pipeline.
+- [05:27.690] This is the Biden group. Here's the good news.
+- [05:30.650] In all fairness, he had no idea what the hell was happening,
+- [05:34.160] but it was his administration of horrible people.
+- [05:37.920] Horrible, radical left people.
+- [05:40.470] No, he used the autopen very well.
+- [05:42.940] There's never been anybody in history
+- [05:44.590] that used an autopen like that. Almost conclusively.
+- [05:48.780] He piled crippling regulations on producers and refiners,
+- [05:52.650] opposed natural gas export ban,
+- [05:55.600] and slashed new leases for drilling by 95%.
+- [06:01.480] That's Biden. Under their Green New scam,
+- [06:04.500] one of the greatest scams in history,
+- [06:06.970] gasoline reached a peak of over $ 6 a gallon
+- [06:10.040] in some states fueling the worst inflation
+- [06:12.830] in the history of our country.
+- [06:14.180] We had the worst inflation in the history of our country.
+- [06:18.030] You've heard me say this before,
+- [06:19.320] the fake news, sitting back there.
+- [06:24.620] They say, "Trump exaggerated. It wasn't in history."
+- [06:28.300] They say it was 48 years. Okay, we'll take that too.
+- [06:31.790] In a way, 48 years sounds even worse,
+- [06:34.080] if you want to know the truth. But they tell me it's 48 years.
+- [06:37.420] It's not, I think it's the history of our country.
+- [06:39.410] But whether it's 48 years or the history of our country,
+- [06:43.330] they're both pretty bad. Do we agree?
+- [06:46.040] But all of that changed.
+- [06:47.750] My first day back in office, it all changed.
+- [06:50.230] Our country started coming back like never before.
+- [06:54.850] On day one, I declared a national energy emergency.
+- [06:59.290] I ended the Biden export ban
+- [07:02.250] and I told our great Texas energy workers
+- [07:05.100] to, very simply, drill, baby, drill.
+- [07:14.430] Since my inauguration, US oil production
+- [07:17.110] is now up by 600,000 barrels a day.
+- [07:21.990] Natural gas production is at an all time record high, by far.
+- [07:26.700] And today, right here in Corpus Christi,
+- [07:28.860] the price of gasoline is down to just,
+- [07:31.520] less than actually now, $2.30.
+- [07:34.880] I just left Iowa two weeks ago, $1.99.
+- [07:39.230] And then I passed another one, $1.85.
+- [07:43.100] It's happening. It's happening.
+- [07:48.710] So we're witnessing a historic American energy boom
+- [07:51.890] like we've never seen,
+- [07:53.170] and this port is right at the center of the action.
+- [07:56.700] So, who lives here, or this area? Who lives?
+- [08:03.820] Not bad. A lot of happy people here.
+- [08:07.320] It's nice to be loved. It's nice to be loved.
+- [08:09.480] Audience: We love you, Pres.
+- [08:10.730] President Trump: Thank you.
+- [08:12.510] Thank you. In my first term, I approved vital federal funding
+- [08:17.180] to deepen the channel and fully modernize the -- Christi.
+- [08:22.570] Since that crucial investment, companies have flocked here,
+- [08:26.260] creating tens of thousands of jobs
+- [08:28.460] and generating billions and billions of dollars
+- [08:31.020] in revenue for your community.
+- [08:33.720] Joe Biden came in and tried to cut off the port funding,
+- [08:36.970] immediately tried to cut it off what we did.
+- [08:38.960] We had a tremendously successful first term,
+- [08:42.180] and he came in and tried to take away what we had.
+- [08:47.470] We stopped them.
+- [08:48.700] And today, the dock workers, energy workers,
+- [08:51.130] and great people of Texas, once again,
+- [08:53.910] really have a president that loves our country.
+- [08:57.020] A president that fights for our country.
+- [09:00.420] And a president who's got your back.
+- [09:04.200] Nationwide exports of liquefied natural gas
+- [09:07.680] are up 37%. Think of that.
+- [09:11.280] And the past year, the highest level in American history
+- [09:15.190] and going up a lot. Crude oil exports are up
+- [09:18.350] by hundreds of thousands of barrels a day.
+- [09:22.030] Venezuela, think of it, 80 million.
+- [09:27.150] So far, we just started, 80 million barrels of fuel.
+- [09:33.330] Think 80 million barrels of oil. Think of what that means.
+- [09:38.840] Think of a stadium with 80,000 people.
+- [09:42.430] Now say 80 million. That's what we've taken.
+- [09:45.790] And it's great for Venezuela, it is great for us.
+- [09:49.050] It's great for us, great for Venezuela.
+- [09:51.430] And a lot of it, like that, a lot of it comes right here.
+- [09:55.450] And with our new friend and partner, Venezuela,
+- [09:57.810] we're going to do a lot of other things.
+- [09:59.170] We're going to be doing a lot.
+- [10:00.770] We're having a great relationship
+- [10:02.370] with their government.
+- [10:04.830] Has anybody ever witnessed anything so beautiful,
+- [10:07.540] so decisive, and so popular with the people of Venezuela?
+- [10:12.010] It was very popular.
+- [10:13.230] In fact, 360,000 barrels of Venezuelan crude
+- [10:18.020] are right now sitting in the tanker on my left.
+- [10:28.400] It's a nice one.
+- [10:31.600] So where the hell does that one come from?
+- [10:34.620] For the benefit of both our nations,
+- [10:36.640] we're going to refine their oil right here in America
+- [10:39.400] and right here in Texas,
+- [10:40.660] and then export it to all over the world.
+- [10:44.200] We're going to keep some for ourselves.
+- [10:45.860] We're going to give some to them
+- [10:47.170] and they're going to make more money
+- [10:48.490] than they've ever made before.
+- [10:49.850] We'll help build their country again, which was a disaster.
+- [10:54.000] And we're going to build it up and we're going to benefit also.
+- [10:56.690] And that's the way it's supposed to be, right?
+- [10:58.210] It's going to be great.
+- [11:00.150] One person who has witnessed our energy turnaround firsthand
+- [11:05.670] is Jesse Robinson. Jesse?
+- [11:13.500] Come on up here, Jesse. He began his career at this port
+- [11:16.360] working on the front lines of railroad operations
+- [11:19.840] and has risen to become one of the port's key leaders,
+- [11:22.700] I can see that by the way you all know him,
+- [11:24.470] helping to drive the American energy surge like --
+- [11:28.500] This is a surge like nobody's ever seen.
+- [11:30.310] Jesse, come on up and say a few words.
+- [11:36.650] Audience: We love you.
+- [11:37.930] President Trump: Good to see you.
+- [11:43.730] Jesse Robinson: Wow. Good afternoon, everyone.
+- [11:48.490] You know I've been on this cargo dock probably a thousand times
+- [11:52.430] but I never could have imagined standing at this podium
+- [11:56.030] at this very moment with all of you,
+- [11:58.580] as we honor together
+- [11:59.920] what an irrefutably historical moment this is.
+- [12:05.860] In my role as director of asset management here at the port,
+- [12:09.620] I see firsthand every day the valuable contributions
+- [12:13.010] by President Trump.
+- [12:14.280] I see the millions of dollars in federal funds
+- [12:16.260] invested in infrastructure that helps us serve our customers
+- [12:19.600] so they can then turn
+- [12:20.800] and serve the communities around the world.
+- [12:23.990] At this port, I have the honor of leading
+- [12:26.170] roughly 75 employees and contractors,
+- [12:28.630] most of which are here today.
+- [12:32.550] And I can tell you with utmost sincerity
+- [12:34.800] that every one of us takes great pride in our jobs,
+- [12:37.900] supporting this global gateway. We work hard and with humility.
+- [12:43.190] This waterway means something to us.
+- [12:44.960] It represents the economic opportunity
+- [12:47.870] for tens of thousands of families throughout this region.
+- [12:52.340] I want to thank my family
+- [12:54.110] for supporting my commitment to this port.
+- [12:56.530] I want to thank my team for their heart and grit,
+- [13:01.430] and I want to thank President Trump
+- [13:02.760] for recognizing their tenacity and value. Thank you.
+- [13:05.380] President Trump: Thank you, Jesse. Good job.
+- [13:07.380] That's a great job you're doing, hey?
+- [13:10.600] Thank you, man. I appreciate it. Thank you, Jesse.
+- [13:19.000] Thank you, Jesse.
+- [13:20.200] Great guy and great family and hard worker.
+- [13:23.940] All hard workers. I'm a hard worker.
+- [13:25.680] We're all hard workers. Slashing energy costs.
+- [13:28.980] Hey, by the way, how did you like the State of the Union
+- [13:31.560] the other night? That was good.
+- [13:40.800] That was good.
+- [13:47.920] (Audience chanting "USA")
+- [13:53.890] President Trump: Thank you very much.
+- [13:55.180] It was fun.
+- [13:56.600] Did you see these people on my right,
+- [13:58.270] the way they just sat there? Some of them --
+- [14:02.420] How about Omar screaming? Screaming.
+- [14:06.300] Screaming like a lunatic. You looked at her bulging eyes.
+- [14:09.390] She's crazy. Get her the hell out of here.
+- [14:12.720] Omar and her friend,
+- [14:14.730] and her little friend sitting next to her.
+- [14:17.740] Slashing energy costs is among the most important actions
+- [14:22.200] we can take to bring down prices for American consumers
+- [14:25.470] because when you cut the cost of energy, you really caught --
+- [14:29.590] You just cut the cost of everything.
+- [14:31.170] Everything follows -- Look, you're in an industry,
+- [14:33.620] a business, whatever you want to call it,
+- [14:35.200] a profession in many cases. Everything follows energy.
+- [14:40.080] Now, AI, they build these big plants.
+- [14:42.840] I say, "How do you make your money?" "Information."
+- [14:45.160] Somehow I like oil better. I'm sorry. I think oil.
+- [14:49.180] If I had my choice, I have to stick with oil.
+- [14:52.170] In 12 months, we've driven core inflation
+- [14:54.560] down to the lowest level in more than five years.
+- [14:57.270] And in the last three months of 2025,
+- [15:02.040] it's been down to 1 point inflation, 1.7%.
+- [15:06.410] Nobody thought that.
+- [15:08.660] So we went from the highest inflation ever,
+- [15:12.400] to low inflation. Everything took place.
+- [15:15.140] I've been here one year. Think of it.
+- [15:17.400] One year, a little bit more than one year now.
+- [15:19.930] Time flies. Flying, flies. Maybe we do one more term.
+- [15:24.860] Should we do one more term? Do one more term. One more.
+- [15:27.820] Audience: One more term. One more term.
+- [15:33.420] President Trump: Well, we're entitled to it
+- [15:34.810] because they cheated like hell in the second one,
+- [15:36.950] so we would actually be entitled to it.
+- [15:39.960] But think of it. The price of eggs is down 60%.
+- [15:42.860] The cost of chicken, butter, fruit, hotels, automobiles;
+- [15:47.180] rent is lower today than it has been in years.
+- [15:51.060] And even beef is right now on the way down.
+- [15:53.410] It's coming down. It's coming down fast.
+- [15:55.270] Prices of almost everything is down.
+- [15:59.160] And we inherited a mess one year ago, a mess.
+- [16:03.580] And they came up with a word, affordability. Affordability.
+- [16:08.130] And I said, "What are they talking about?
+- [16:09.870] They're the ones that caused it."
+- [16:11.750] They're cons, they're liars, not good.
+- [16:14.090] Other than that, we want to have unity.
+- [16:16.240] Let's have unity.
+- [16:18.740] To have unity, you need sane people on the other side.
+- [16:21.860] And when you watch them not stand up for a mother
+- [16:25.430] that just lost her daughter
+- [16:26.720] or not stand up for a great, brave helicopter pilot
+- [16:30.910] that did so well and so amazing in Venezuela,
+- [16:35.880] or not stand up when I asked the question,
+- [16:38.330] "Stand up if you love our country," think of it,
+- [16:41.650] "and you love great American patriots.
+- [16:45.480] But don't stand up if you don't,
+- [16:48.390] or if you love illegal alien criminals."
+- [16:52.040] And not one of them stood up. They got killed in that.
+- [16:55.900] At the end of the night,
+- [16:57.180] they're all standing up for anything
+- [16:58.750] because the word was, they are getting killed.
+- [17:03.700] Did you see they were passing notes all over the place?
+- [17:05.900] "Stand up. Stand up for anything. Stand up."
+- [17:09.130] They were instructed.
+- [17:10.990] They have terrible policy, terrible everything,
+- [17:13.050] but they do stay together, as bad as it is.
+- [17:15.460] But they were instructed,
+- [17:16.740] "Under no circumstances are you to applaud or stand up."
+- [17:21.870] So I say, "Stand up for a mother
+- [17:23.640] who lost her beautiful daughter,"
+- [17:25.460] and they don't applaud. They sit there like --
+- [17:27.850] and eventually we just looked at him and said,
+- [17:30.070] "You people are crazy."
+- [17:33.180] And they are. They're crazy.
+- [17:34.480] Crazy, and we got to win the midterms.
+- [17:36.830] We brought this country back.
+- [17:38.600] We don't want to lose the midterm.
+- [17:40.040] We got to win the midterms. We got to get out.
+- [17:42.730] You got to get out, and we got to vote,
+- [17:44.100] and we'll keep it all going better
+- [17:45.450] even than it is now, as good as it is.
+- [17:47.340] Tuesday night in my State of the Union address,
+- [17:50.570] I laid out the historic actions my administration
+- [17:53.640] is taking to put more money in the pockets of workers
+- [17:56.650] and families like those here today,
+- [17:58.900] the greatest people on earth. You built the country
+- [18:01.570] and to ensure that we always keep America first.
+- [18:05.350] They don't keep America first. They keep America last.
+- [18:08.760] With the help of our Republican majorities in Congress,
+- [18:11.530] we passed the largest tax cuts in American history.
+- [18:15.090] That includes no tax on tips, no tax on overtime,
+- [18:20.080] and no tax on Social Security for our great seniors.
+- [18:26.500] And the average Texas family will save over $4,000
+- [18:30.930] on their taxes this year alone and much more next year.
+- [18:35.920] We gave you the best tax cuts anyone's seen.
+- [18:38.400] We also got you an interest deduction if you buy a car.
+- [18:42.300] If you borrow some money to buy a car,
+- [18:44.890] you have a loan, you're allowed to deduct
+- [18:47.290] the interest for income tax purposes.
+- [18:49.520] Never happened before, but only if it's an American made car.
+- [18:52.940] We put that in.
+- [18:55.570] We've cut a record number of job-killing regulations,
+- [18:58.850] slashing 129 old regulations
+- [19:02.200] for every one new regulation that we approve.
+- [19:05.630] So, if we put a regulation on, we slash 129 old regulations,
+- [19:12.940] which is far and above what anybody's been able to do.
+- [19:16.330] We terminated the insane electric vehicle mandate
+- [19:20.300] where you had to have a car, all electric car,
+- [19:22.720] within a couple of years. It was not going to work.
+- [19:26.620] I mean, you don't mind driving 200 miles
+- [19:28.740] to get a charger, right? You ever see the signs?
+- [19:32.470] You're running out, you're running low,
+- [19:34.000] and they say, "Charging booth 112 miles to the right."
+- [19:40.900] These people are crazy.
+- [19:43.660] But the mandate is over and the other radical attacks.
+- [19:47.730] And now you can go out and you can buy a gasoline-powered car,
+- [19:51.750] a hybrid, an electric car.
+- [19:53.220] You can buy whatever the hell you want.
+- [20:00.190] In four long years, the last administration
+- [20:03.340] got less than $1 trillion, so $1 trillion less.
+- [20:07.610] Much less of new investment came into the country.
+- [20:11.410] In less than 12 months,
+- [20:12.870] I secured commitments for more than 18 trillion.
+- [20:16.350] So, think of it.
+- [20:17.590] For four years, think of what it does to a place like this,
+- [20:21.790] four years, much less than one trillion,
+- [20:24.440] less than one year, more than $18 trillion.
+- [20:28.420] I would say that's--
+- [20:32.930] That's the difference between making America great again
+- [20:35.600] and making America a major loser.
+- [20:38.380] A short time ago, we were a dead country.
+- [20:40.810] We were totally a dead country.
+- [20:42.420] The king of Saudi Arabia said it to me.
+- [20:45.080] I was over. They invested $2 trillion in our country.
+- [20:49.120] I was over there with other great countries,
+- [20:50.990] but the king of Saudi Arabia said to me,
+- [20:53.640] "President, two years ago, you were a dead country.
+- [20:57.390] Now, you have the hottest country anywhere in the world."
+- [20:59.610] Can you imagine?
+- [21:03.170] The stock market has hit 53 all-time record highs
+- [21:06.830] since the election. Think of that, in one year.
+- [21:10.490] Adding trillions of dollars in value,
+- [21:12.630] Americans' pensions, and 401(k)s,
+- [21:15.660] and retirement accounts, they're all through the roof.
+- [21:18.280] Who has a 401(k)? Wow.
+- [21:22.850] Is anybody unhappy with the job I'm doing?
+- [21:25.810] Your 401(k)s have doubled, right?
+- [21:27.900] Are they doubled?
+- [21:30.920] I have a policeman. I tell the story.
+- [21:32.770] Same guy, I meet him, but it's this wonderful,
+- [21:35.490] tough policeman from New York. He's taken good care of us.
+- [21:39.170] And he said, "Sir, it's so good my married life
+- [21:42.910] has gotten so much better." "Why?"
+- [21:45.510] "My wife thought I was a loser financially.
+- [21:47.420] I couldn't make any money
+- [21:48.650] because my 401(k) was dying for years.
+- [21:51.610] And now she thinks I'm the smartest financial genius ever.
+- [21:56.160] It's made my sex life good. It's made my life good.
+- [22:02.960] It's given me a tremendous boost in life, sir."
+- [22:05.350] This is a big, tough cop.
+- [22:06.810] He said, "My wife treated me like a dog,
+- [22:08.810] and now she admires my financial genius,
+- [22:11.940] and I haven't done anything.
+- [22:13.610] My 401(k) has gone through the roof."
+- [22:16.070] So, I said, "Thank you very much."
+- [22:18.750] But everybody's there, right? Everybody's up.
+- [22:21.120] Has anybody gone down with their 401(k)?
+- [22:23.880] Because if you do, you're a loser.
+- [22:28.580] Nobody.
+- [22:30.870] And then, you hear these radical lunatics say, "
+- [22:34.490] The stock market doesn't matter."
+- [22:35.950] Well, it does matter because they have 401(k)s.
+- [22:38.130] They have investments. They buy stocks without 401(k)s.
+- [22:41.060] It matters a lot.
+- [22:42.280] Our stock market's going through--
+- [22:43.770] We beat 50,000 on the Dow. They said, when I got elected,
+- [22:48.570] if I could beat 50,000 by the end of my fourth year,
+- [22:51.510] it'd be a tremendous miracle,
+- [22:53.620] and we then hit 7,000 on the S&P.
+- [22:57.250] And that was even tougher.
+- [22:58.480] They said, "There's no way that could be done."
+- [23:00.880] I did them both by the end of my first year,
+- [23:03.530] not my fourth year, my first,
+- [23:06.610] which means you also did them both, so everybody's happy.
+- [23:11.840] And to help ensure that all Americans share in the gains
+- [23:15.220] from the rising stock market, I announced on Tuesday night
+- [23:18.730] that any worker whose employer does not provide
+- [23:21.380] matching contributions to a retirement account,
+- [23:24.650] my administration will begin matching your retirement
+- [23:28.330] savings with up to $1,000 a year.
+- [23:31.240] Nobody ever thought that's possible.
+- [23:37.330] And we passed the bill, the Great Big Beautiful Bill
+- [23:39.790] that the Democrats always said, "Oh, the Great Big Bill."
+- [23:42.810] They don't know.
+- [23:44.090] It's basically the great, big, beautiful tax cut bill
+- [23:48.880] if you really want to look at it,
+- [23:51.350] probably more accurate name.
+- [23:52.740] Every parent can actively just activate
+- [23:56.810] all of their children's accounts.
+- [23:58.360] We have a new thing,
+- [23:59.580] and it was Michael and Susan Dell, Dell computer.
+- [24:03.020] Go out and buy a Dell computer.
+- [24:04.350] They're great because he put up 6 billion,
+- [24:07.440] 250 million in the Trump Accounts,
+- [24:09.860] and it's for children.
+- [24:11.340] It's tax-free investment accounts
+- [24:13.220] for every American child,
+- [24:14.610] every single American child born rich.
+- [24:21.830] So, millions and millions will be pre-funded
+- [24:24.620] courtesy of the US Treasury.
+- [24:26.060] And private individuals like Michael and Susan Dell
+- [24:29.810] who have donated the-- Think of it, 6 billion.
+- [24:33.050] He put up 6 billion, 250 million,
+- [24:36.810] and now he wants to put up more to fund
+- [24:38.960] what's called the Trump Accounts
+- [24:40.310] for 25 million American children.
+- [24:42.460] And that number is growing rapidly all the time.
+- [24:45.680] So, these children, they reach 18, or 19, or 20.
+- [24:50.110] They could have over 100,000.
+- [24:51.490] They could have much more than that.
+- [24:52.970] Think of it. They'll be rich.
+- [24:55.310] They started with nothing and a small amount of seed money,
+- [24:59.080] and by the time they're 18 years old,
+- [25:01.380] they could have well over $100,000.
+- [25:03.630] And to make this investment in our children's future,
+- [25:07.270] go to trumpacounts.gov.
+- [25:09.620] It is amazing. It's going through the roof.
+- [25:12.980] One American who is benefiting tremendously from our tax cuts
+- [25:17.010] is Kevin Rhodes from Andrews, Texas.
+- [25:20.230] Kevin is a Marine Corps veteran
+- [25:22.820] who has spent 20 years in the oil and gas industry.
+- [25:26.620] Great guy just met him.
+- [25:28.520] He works as a wells tech in Permian Basin,
+- [25:32.910] where he averages 15 hours a week in overtime.
+- [25:35.890] Now, there's no tax on overtime anymore, Kevin.
+- [25:39.200] As a result, Kevin and his wife, Marcy,
+- [25:41.840] will take home more than $7,000 extra this year
+- [25:45.810] thanks to no tax or overtime with money
+- [25:49.430] that they are going to take.
+- [25:51.380] Their two boys are on a road trip to Yellowstone,
+- [25:54.490] Yellowstone National Park, nice place.
+- [25:56.430] Or, you could save the money, or you could buy a house
+- [25:58.310] or do whatever the hell you want with it, right?
+- [26:00.580] But you know what? I'd like to have Kevin and Marcy come up.
+- [26:03.050] They're so happy, no tax, in this case, overtime.
+- [26:06.660] But think of it, no tax on tips, no tax on overtime,
+- [26:10.090] no tax on Social Security for the seniors.
+- [26:13.770] So, who the hell else could have gotten that?
+- [26:16.250] Come on up, Kevin.
+- [26:17.850] (inaudible).
+- [26:22.880] Thank you for coming, guys. Please.
+- [26:29.920] Kevin Rhodes: Thank you, Mr. President.
+- [26:31.220] It's a huge honor to be here in Corpus Christi, Texas,
+- [26:34.550] with everyone here.
+- [26:37.040] Thank you to Oil and Gas Workers Association also.
+- [26:40.160] I stand here as a Marine Corps veteran.
+- [26:46.600] With my wife, who's a small business owner,
+- [26:48.960] we own a small catering company.
+- [26:52.520] We are products of the oil and gas industry of West Texas.
+- [26:57.060] We send our oil here to Corpus Christi
+- [26:58.990] to send out across the world.
+- [27:02.770] With the legislation that has been passed
+- [27:06.070] with the no tax on overtime,
+- [27:08.500] we were able to buy a commercial refrigerator for our business.
+- [27:11.570] And then, like Mr. President said,
+- [27:13.170] we're going to take our kids on a trip
+- [27:14.450] to Yellowstone and Grand Teton.
+- [27:20.800] We are just Americans,
+- [27:22.630] two parents trying to give the best life to their children,
+- [27:25.630] opportunities for both of our sons,
+- [27:27.450] one who is in automation,
+- [27:28.750] fixing to go into the oil gas industry.
+- [27:32.110] We have big dreams and are excited
+- [27:33.710] for the future of this nation and our family.
+- [27:37.180] We are grateful that God has given us
+- [27:39.140] a president like Mr. Trump that allows us to-
+- [27:47.830] Real grateful that he has put America first.
+- [27:51.530] So, God bless you, Mr. President,
+- [27:54.060] and God bless this nation.
+- [27:57.620] Thank you very much, Mr. President.
+- [27:58.870] President Trump: Good luck with that.
+- [28:00.100] You have a good life, okay?
+- [28:01.310] Kevin Rhodes: Yes, sir.
+- [28:02.570] President Trump: Thank you, that was great.
+- [28:06.350] Thank you very much, both.
+- [28:08.840] So, we're also grateful to be joined by a man who's,
+- [28:12.890] they say, the most talented man in the oil industry,
+- [28:16.600] Doug Burgum, who as you know, is a great gentleman.
+- [28:19.610] He was former governor of North Dakota.
+- [28:21.460] I wanted to put him at energy.
+- [28:22.750] He said, "Sir, I'm really good at energy,
+- [28:24.570] but there's one man that's better,
+- [28:25.880] and his name is Chris Wright."
+- [28:27.740] So, I made Chris Wright the secretary of energy,
+- [28:30.260] and he has really proven to be fantastic,
+- [28:32.250] wherever you are, Chris. Where is Chris? Thank you.
+- [28:35.700] And he's got a beautiful hat, beautiful.
+- [28:39.190] I love the hat, Gulf of America. I love that hat.
+- [28:42.630] We have one of the great governors of our country.
+- [28:44.860] He is an unbelievable guy, a tremendous friend of mine,
+- [28:48.960] and he is something very special.
+- [28:52.060] He's tough as hell. I want to tell you.
+- [28:54.130] If you think he's a nice guy, you're wrong.
+- [28:56.500] He's tough. He's mean, but it's all for you.
+- [29:00.170] So, I want to just say.
+- [29:01.550] Greg Abbott, we love you, Greg Abbott.
+- [29:07.470] Good.
+- [29:11.010] Lieutenant Governor Dan Patrick.
+- [29:15.880] Thank you.
+- [29:18.600] He's been the chairman of my campaign all three times.
+- [29:21.810] All three times, we set records. We set records like nobody.
+- [29:26.950] Okay, I don't want to brag.
+- [29:28.860] But in the history of Texas, I have-- Correct, Governor?
+- [29:33.070] I have by far the largest number of votes ever gotten,
+- [29:37.260] and it was the highest, then the highest again,
+- [29:40.460] and we just topped it big in the last election.
+- [29:43.690] So, we have the highest ever gotten by a lot,
+- [29:47.960] by millions of votes. I think I got to move here fast.
+- [29:51.890] I'll stay in Washington for a little while.
+- [29:54.170] We'll stay in Washington for a little while longer.
+- [29:56.920] So, thank you very much.
+- [29:58.130] And we have a great attorney general, Ken Paxton.
+- [30:02.770] Where's Ken? Hi, Ken. Hi, Ken.
+- [30:07.510] And we have a great senator, John Cornyn.
+- [30:10.390] Hi, John.
+- [30:12.210] Thank you, John. They're in a little race together.
+- [30:16.520] You know that, right? A little bit of a race.
+- [30:19.330] It's going to be an interesting one, right?
+- [30:21.640] They're both great people, too.
+- [30:22.960] Thank you both very much. We appreciate it.
+- [30:25.480] Texas House Speaker Dustin Burrows,
+- [30:28.250] he's here doing a terrific show.
+- [30:31.400] Hi, Dustin. Thank you, Dustin. Good job.
+- [30:35.220] Like you much better than the last guy, Dustin.
+- [30:39.610] And we have a senator who's really an amazing guy.
+- [30:43.850] I'm thinking about putting him in the Supreme Court.
+- [30:51.650] No, no. I'm thinking because it's very hard.
+- [30:53.930] Getting these nominations through is very tough.
+- [30:57.030] He's the only guy I know.
+- [30:58.610] He'll get 100% of the Democrat vote,
+- [31:01.590] 100% of the Republican vote.
+- [31:04.240] They want to get him out of there.
+- [31:05.880] He is such a pain in the ass,
+- [31:07.330] but he's so good and so talented, Ted Cruz.
+- [31:21.270] That's right.
+- [31:22.550] If we ever had a problem, I'd just picked Ted.
+- [31:25.010] That'd solve that problem. No, he's a great guy.
+- [31:27.780] He's a very talented guy, too, smart.
+- [31:30.810] Representatives John Carter,
+- [31:33.720] Randy Weber, Jason Smith, Brian Babin,
+- [31:38.010] these are all incredible warriors,
+- [31:39.840] by the way, Jodey Arrington, Lance Gooden,
+- [31:43.490] Chip Roy running for office.
+- [31:45.830] Chip, where's Chip? You're doing a good job, Chip.
+- [31:50.100] Michael Cloud.
+- [31:53.380] That's right. He's the-- Oh, look at that. Whoa.
+- [32:00.110] Okay, this is his district, and people like you--
+- [32:03.020] I've had some bad things where I introduce people
+- [32:06.340] from a district, and then--
+- [32:07.870] They like you, Michael. That's good.
+- [32:10.200] And you know what?
+- [32:11.560] Honestly, they should because he's a phenomenal congressman,
+- [32:15.960] a phenomenal friend, and a phenomenal congressman.
+- [32:18.320] Thank you for the great job. And you got that dredging.
+- [32:20.840] Is it 54 or 56 feet?
+- [32:24.270] Yeah. In other words, 54. He said, "Go with 54."
+- [32:30.360] You got that done. We got it done together, right?
+- [32:33.230] Made a big difference. Thank Thank you very much.
+- [32:34.810] You have a great congressman.
+- [32:40.210] Congressman Tony Gonzales is here. Tony, congratulations.
+- [32:45.400] Jake Ellzey, Monica De La Cruz.
+- [32:51.260] Thank you. Keith Self, good guy. Oh, these are great people.
+- [32:56.230] Thank you, Keith.
+- [32:58.800] Brandon Gill, a young one. I endorsed him.
+- [33:02.680] I said, "A very dear friend of mine
+- [33:05.610] happens to have a slight relationship."
+- [33:07.490] Right? I endorsed him.
+- [33:09.070] I said, "What does he know about politics?"
+- [33:10.790] That was like four years ago. He knows a lot.
+- [33:13.660] You've been fantastic. Thank you very much.
+- [33:15.590] Thank you, Brandon.
+- [33:17.150] And another friend of mine who's doing very well, Wesley Hunt.
+- [33:20.470] Where's Wesley?
+- [33:21.910] Wesley Hunt. Doing a good job. Thank you, Wesley.
+- [33:27.420] Well, you do have an interesting election.
+- [33:29.130] You have a couple of them going on.
+- [33:30.800] Texas is so good.
+- [33:32.630] I never really appreciated Texas because I won by so much.
+- [33:35.910] It wasn't fun, but I'd rather have it that way,
+- [33:38.350] so let's keep it that way. Let's keep it that way.
+- [33:41.300] Director of Federal Housing Finance
+- [33:43.570] Agency, a genius, financially, Bill
+- [33:47.350] Pulte.
+- [33:49.420] Hi, Bill.
+- [33:51.960] President and founder of the Oil and Gas Workers Association,
+- [33:55.500] very popular guy, Matt Coday.
+- [34:00.900] And we have an actor who's one of the best actors in America.
+- [34:04.690] He played a gentleman that preceded me
+- [34:07.790] by a few years named Ronald Reagan.
+- [34:11.810] And Dennis Quaid has gotten accolades all over the place.
+- [34:17.050] And he really is good. Dennis Quaid.
+- [34:19.060] Where are you, Dennis? Dennis Quaid.
+- [34:27.110] Hey, Dennis. Come here, Dennis. Come here.
+- [34:32.170] They like celebrities and actors
+- [34:34.000] more than politicians in America.
+- [34:36.070] Say a couple of words.
+- [34:37.300] Dennis Quaid: Thank you, sir. Hello, Corpus Christi.
+- [34:42.320] Hello, Texas. My home state.
+- [34:48.020] I love Corpus Christi and I love Donald Trump.
+- [34:57.610] President Trump: Thank you, Dennis.
+- [34:58.880] Did a great job. Thank you, Dennis.
+- [35:01.190] Got a new movie coming out, by the way.
+- [35:03.930] Thanks as well to several great Texas Patriots,
+- [35:07.010] Jessica Einstein who's doing unbelievably well.
+- [35:09.730] Where's Jessica? You're around here someplace.
+- [35:12.300] Thank you, Jessica. Alex Mahler. Alex. Thank you.
+- [35:19.050] Thank you, Alex. Chris Gaber. Thank you, Chris.
+- [35:25.820] Mark? Oh, Mark Teixeira. (inaudible)
+- [35:29.950] Are you the great Mark? He could throw that ball.
+- [35:34.010] We need you. We need you desperately.
+- [35:36.810] And I hear you doing very well.
+- [35:38.200] I endorsed all of these people, by the way,
+- [35:40.830] and I hear you doing very well.
+- [35:42.880] I'll tell you what, that's the end
+- [35:44.310] of the Democrat's chances of winning the game.
+- [35:47.390] When you have a top, top major league player in your team,
+- [35:51.070] they're in deep trouble. That's good.
+- [35:54.360] We're rooting for you, Big. I'm a big fan too.
+- [35:56.210] What a great baseball player you are.
+- [35:58.030] Thank you very much. Thanks, Mark.
+- [36:02.440] Jace Yarbrough.
+- [36:04.500] Jace, thank you very much, Jace. Good job. They're all leading.
+- [36:09.230] John Bonk. They're all leading in the polls, every one of them.
+- [36:15.640] And I want to call up three people that are running
+- [36:18.390] and we don't even have the polls yet,
+- [36:19.870] but they're, I think, doing well when we endorse people.
+- [36:24.300] I take it seriously, but these people we endorse
+- [36:27.680] and just run on up here real fast.
+- [36:29.840] Carlos De La Cruz.
+- [36:32.760] Webb County Judge, Tano Tijerina.
+- [36:38.640] Tijerina, come on up.
+- [36:40.360] And former assistant attorney, Eric Flores.
+- [36:43.800] They're all running.
+- [36:46.150] And I think they're doing great. Say a couple of words.
+- [36:50.420] Carlos De La Cruz: Thank you, sir.
+- [36:58.750] I have to first thank our Lord and Savior Jesus Christ
+- [37:03.760] for opening every single door for my family.
+- [37:07.500] I want to thank my family, Annette,
+- [37:10.520] and my daughter, Rebecca.
+- [37:14.690] And, Mr. President, I want to thank you, sir,
+- [37:16.280] for securing our borders and making America strong.
+- [37:23.680] And I got a lot of fighting in me, sir.
+- [37:26.440] And I'm going to make sure that Texas 35 brings you a wingman.
+- [37:33.240] President Trump: Thank you. (inaudible)
+- [37:36.640] Tano Tijerina: Mr. President, it's true and honored
+- [37:38.390] to stand up here.
+- [37:40.950] (foreign language).
+- [37:51.520] Mr. President, this is South Texas right here.
+- [37:54.400] Hardworking patriots, faith-filled patriots,
+- [37:57.910] Mr. President. Men and women that power this country,
+- [38:01.560] that our ports, our refineries,
+- [38:02.990] our ranches and our military bases.
+- [38:06.910] (foreign language) We're not just a border,
+- [38:15.220] but we're the future, Mr. President,
+- [38:17.210] and we're here to back you up
+- [38:18.850] and continue the fight, fight, fight.
+- [38:23.460] Mr. President.
+- [38:25.560] President Trump: God bless you.
+- [38:31.620] Eric Flores: Woo.
+- [38:35.120] Mr. President, I am honored to be here with you today.
+- [38:39.060] As someone who has worn the uniform
+- [38:40.790] of the United States Army
+- [38:42.030] and locked up some of the worst of the worst,
+- [38:45.120] I believe in strength, never backing down
+- [38:47.830] and staying focused on the mission.
+- [38:51.080] That is the kind of leadership
+- [38:52.480] that you have brought back to America,
+- [38:54.780] and that's the leadership that I will bring to DC
+- [38:57.830] to fight for Texas 34
+- [38:59.910] and always have your back, Mr. President.
+- [39:09.770] South Texas stands ready to do our part,
+- [39:12.040] to secure our borders, grow our economy,
+- [39:14.520] and keep America strong.
+- [39:17.560] Thank you for being here, Mr. President in Corpus Christi.
+- [39:20.970] Thank you for your endorsement and for your trust.
+- [39:24.150] And above all, thank you for your unwavering,
+- [39:27.440] unapologetic devotion to our great nation.
+- [39:31.440] God bless you, Mr. President.
+- [39:33.940] President Trump: Thank you. (inaudible)
+- [39:35.550] Eric Flores: I'll always have your back.
+- [39:40.320] President Trump: Good guys.
+- [39:41.550] They're all I hear doing really well.
+- [39:43.270] We haven't seen the polls, but they're all winning.
+- [39:45.890] Everybody I named is winning. And it's interesting,
+- [39:50.880] the governor called me after the last election.
+- [39:53.130] He said, "You did something no Republican has ever done.
+- [39:56.540] You won every border town and little border city,
+- [39:59.540] but every border town, all the way up and down,
+- [40:03.120] all the way from one side to the other,"
+- [40:06.300] he said, "first time it's ever happened since,"
+- [40:08.380] he used the word, "reconstruction." Right?
+- [40:10.840] And I said, "By reconstruction, are you saying the Civil War?
+- [40:13.560] Is that what you're saying?"
+- [40:14.980] That was a fancy way of saying the Civil War.
+- [40:16.970] He said, "That's the first time it's happened.
+- [40:18.960] We won every single and largely Hispanic vote."
+- [40:22.240] We love the Hispanic voters. We love them.
+- [40:28.990] And what a lot of people didn't understand
+- [40:30.840] that the Hispanic voter wants safety and understands safety
+- [40:36.010] better than anybody else.
+- [40:37.540] So when I said, "We want safety, we want law and order,"
+- [40:41.230] they got it better than anybody else that they voted for Trump.
+- [40:44.830] So I just want to thank you very much.
+- [40:47.230] Thank you. Thank you, man.
+- [40:49.240] Every day under the Trump administration,
+- [40:51.480] we're taking on the corruption and fraud
+- [40:53.600] that drives up your cost of living,
+- [40:55.910] and we're defending the honest,
+- [40:57.610] hardworking citizens of our country like you.
+- [41:00.640] Under the most favored nation agreements for drug prices,
+- [41:04.240] we're slashing drug prices at record levels like never seen
+- [41:07.650] before with price differences of 400, 500, even 600%.
+- [41:14.410] I went to other countries. I said, "No way."
+- [41:16.790] We were paying the highest prices
+- [41:19.590] in the entire world by far,
+- [41:22.290] and now we're paying the lowest price.
+- [41:25.110] It's numbers that have come down for decades.
+- [41:27.340] Think of it.
+- [41:28.540] For decades, Americans have paid the highest drug prices.
+- [41:31.870] Nobody's ever paid more.
+- [41:33.180] We would pay sometimes eight, 10,
+- [41:35.900] 12 times more than places in Europe and other countries.
+- [41:40.500] But from now on, because of what I did,
+- [41:42.460] we're going to be paying the lowest.
+- [41:44.400] It's called favored nations, most favored nations.
+- [41:47.570] So these incredible price reductions
+- [41:49.660] are available right now.
+- [41:50.890] And I didn't name this, but somebody did.
+- [41:52.650] They thought it was good.
+- [41:53.880] I said whatever sells trumprx.gov, TrumpRX.
+- [41:58.380] And you'll see numbers. You'll see numbers where--
+- [42:02.710] And I tell the story of a friend of mine,
+- [42:05.140] very smart, very heavy guy. I'm trying to be nice.
+- [42:09.420] Never use the word fat. Very heavy, slightly obese.
+- [42:15.530] But he takes the fat drug and it didn't work.
+- [42:18.590] But he's a very brilliant guy.
+- [42:20.170] He's highly neurotic, very brilliant, very smart, rich.
+- [42:24.540] He calls me. He was in London. He called me.
+- [42:26.400] He said, "You know, he takes the fat drug,
+- [42:28.230] one of the many fat drugs."
+- [42:30.560] And he says, "In New York, I pay $1,300.
+- [42:33.920] And in London, I'm paying $87. What the hell is going on?"
+- [42:38.750] So he checked it. He's a man of means, same plant,
+- [42:42.360] same factory, same manufacturer, shipped over to London,
+- [42:47.070] and it's a tiny fraction. He said, "What is it? "
+- [42:49.760] And I said, "Well, that started years ago
+- [42:52.300] and nobody's been able to do anything about it,
+- [42:54.280] but I'm working on it hard. I got it done."
+- [42:56.710] And I got it done by saying very simply to the other countries,
+- [42:59.800] "If you're not going to do it, we're going to charge you
+- [43:02.280] a massive tariff that's many times more."
+- [43:04.260] Because I had to approve it.
+- [43:05.780] The drug companies approved it, the countries approved it,
+- [43:09.240] and now you'll have a pill that would sell for $1,
+- [43:13.930] but in New York would sell for $13.
+- [43:16.660] And now that pill is selling in London for $2 or $3,
+- [43:21.580] and it's selling in New York for $2 or $3.
+- [43:24.850] Came all the way down.
+- [43:26.290] And I said, "That alone, Governor,
+- [43:28.900] that alone should win us the midterms.
+- [43:31.020] Ted, that alone should win us the midterms."
+- [43:33.940] That is the single biggest thing to happen.
+- [43:36.360] It's a revolution in prescription drugs.
+- [43:39.370] Your prices are going down 80%, 85%, 70%,
+- [43:45.100] numbers that nobody ever saw. In my first term, I had a year,
+- [43:50.130] my third year where I got it down one quarter of a percent.
+- [43:54.020] Think of it. One quarter. I was so proud of myself.
+- [43:56.700] I called the news conference immediately.
+- [43:59.310] I announced that I got,
+- [44:01.010] because nobody in 28 years had gotten drug prices done.
+- [44:04.430] I got them down from the beginning of the year
+- [44:06.640] to the end, one quarter of 1%.
+- [44:08.870] I thought it was great because nobody else
+- [44:10.920] had done it for 28 years.
+- [44:12.610] Now, I've got them down 80%, 85%, 75, 55.
+- [44:21.880] And that should really do it.
+- [44:23.300] And other presidents have tried and they were unable to get it.
+- [44:26.550] They were unable to get the other countries to do it.
+- [44:29.050] They were unable to get the drug companies.
+- [44:30.850] Everything is done. Everything is signed up.
+- [44:33.230] You know that Ted and John and everybody,
+- [44:36.080] everything is signed up, done.
+- [44:38.300] And there it is. I mean, it's amazing.
+- [44:41.300] Now, it's just taking hold. When it was done, a major paper,
+- [44:47.630] it's the single biggest thing in years in medicine.
+- [44:51.100] A major paper put it on page 22 of the newspaper.
+- [44:54.990] So we have to explain it. It's the biggest thing.
+- [44:57.770] It's the greatest thing, one of the great things.
+- [44:59.690] And that also has to do
+- [45:01.260] with bringing your healthcare way down.
+- [45:03.690] Since the passage of the Unaffordable Care Act,
+- [45:07.190] which is Obamacare--
+- [45:08.880] Did you ever hear of Barack Hussein Obama?
+- [45:11.020] Barack Hussein?
+- [45:13.790] Who likes Barack Hussein Obama? Who doesn't like him?
+- [45:22.550] I've heard worse, honestly.
+- [45:25.390] I've heard less popular people than that.
+- [45:28.160] Big insurance companies have gotten rich with our government,
+- [45:31.230] giving them hundreds of billions of dollars
+- [45:34.150] as their stock prices soared because Obamacare was good.
+- [45:37.970] It rotten health insurance.
+- [45:40.130] Good for one reason, the insurance companies.
+- [45:43.020] The insurance companies made a fortune.
+- [45:45.870] The insurance companies own Democrats.
+- [45:49.100] They own them.
+- [45:50.370] So the Democrats never want to do anything good for us.
+- [45:52.530] They want to do it for the insurance companies.
+- [45:54.480] That's why Obamacare is terrible and it's way too expensive.
+- [45:58.510] So that's why in introducing the great--
+- [46:01.960] We call it the great healthcare plan.
+- [46:04.040] I want to stop all payments to big insurance companies
+- [46:06.940] and all money.
+- [46:09.100] Billions and billions of dollars goes directly to the people
+- [46:13.120] so that you can buy your own healthcare,
+- [46:15.670] which is better and much less expensive than Obamacare.
+- [46:22.550] Right? You like that, Dan?
+- [46:23.960] Dan Patrick likes it.
+- [46:25.700] If Dan Patrick likes it, I like--
+- [46:28.280] How good a chairman was Dan Patrick?
+- [46:31.960] He's undefeated as chairman. Right, Dan?
+- [46:36.090] As I announced on Tuesday,
+- [46:37.740] under our new rate payer protection pledge,
+- [46:41.340] we're also telling the big tech companies that energy usage,
+- [46:45.330] AI data centers cannot drive up price in community,
+- [46:48.840] electric prices in communities.
+- [46:51.200] They have an obligation to pay that.
+- [46:54.130] We have told them, "You got to build your own power plant.
+- [46:58.070] You can't take it. You got to build it."
+- [46:59.860] And actually we're doing them a favor
+- [47:02.020] because they never thought they'd have it so good
+- [47:04.370] because our grid, which is very old and broken, tired,
+- [47:08.430] and doesn't have great capacity,
+- [47:09.950] cannot sustain the kind of numbers
+- [47:11.890] that you're draining out of it.
+- [47:14.180] So I gave them the right and now it's mandatory.
+- [47:17.060] I made it mandatory where they have to build
+- [47:19.870] their own electric power plant
+- [47:22.210] so they're no longer taken out of the community.
+- [47:24.870] And any excess they give back into the grid.
+- [47:28.470] So the grid is actually going to be enhanced as opposed to hurt.
+- [47:31.970] They wouldn't have been able-- We're leading China, we're
+- [47:34.150] We're leading everybody right now in AI.
+- [47:37.440] And the reason we're doing it
+- [47:38.760] is because they're building their own plants,
+- [47:40.490] otherwise we couldn't build much at all.
+- [47:43.490] And so I just want you to know, as you see these massive plants,
+- [47:46.880] they're building their own power plant.
+- [47:48.770] They're becoming, essentially, their own utility.
+- [47:51.580] We're expanding the dream of homeownership
+- [47:54.240] to millions of Americans.
+- [47:55.890] And after I directed the purchase of $200 billion
+- [47:59.510] in mortgage bonds,
+- [48:00.710] that's $200 billion in mortgage bonds,
+- [48:03.950] mortgage rates just fell substantially lower than 6%
+- [48:08.100] for the first time in five years.
+- [48:10.480] The annual cost of a typical new mortgage
+- [48:12.830] is now down almost $5,000 in one year. Think of that.
+- [48:18.430] And I have a lousy guy in the Fed.
+- [48:20.360] Terrible. Jerome, too late. You know what? He's too late.
+- [48:23.800] You know why we call him too late?
+- [48:25.480] He's too late in reducing mortgage interest rates
+- [48:28.480] or interest rate. He's not doing too good.
+- [48:31.110] But fortunately, he's going to be out of there soon.
+- [48:37.710] But even despite him,
+- [48:39.800] did you ever hear you got a little wall, an obstacle?
+- [48:42.000] You power through. We power through the wall.
+- [48:43.890] He's a wall that we just power through.
+- [48:46.040] In the past 12 months, we've helped over 50,000
+- [48:48.890] first time home buyers in Texas get the house of their dreams.
+- [48:52.590] We've really created the American Dream.
+- [48:54.770] By the way, our country right now,
+- [48:57.490] this is the golden age of America.
+- [48:59.330] We're in the golden age. This is the beginning.
+- [49:02.910] This is the beginning of the golden ages.
+- [49:05.110] They're going to be reading about this in a hundred years.
+- [49:07.950] We are in the golden age of America.
+- [49:09.980] We got to keep it going.
+- [49:11.310] Got to win the midterms. We've got to keep it going.
+- [49:13.750] Last month, I signed an executive order to ban large
+- [49:17.360] Wall Street investment firms from buying large numbers
+- [49:20.440] of family homes, single family home.
+- [49:24.250] No, you'd have these firms go out and buy 2,000 houses.
+- [49:26.920] We don't want it.
+- [49:28.210] We want you to buy the houses, not them.
+- [49:31.270] We're also fighting to pass the SAVE America Act,
+- [49:35.230] my all-time favorite.
+- [49:40.790] It's my all-time favorite, the SAVE America Act.
+- [49:46.260] We got it, John. You hear that, Ted?
+- [49:49.260] You're unstoppable, because they cheat like hell in elections
+- [49:52.640] in case you haven't noticed.
+- [49:54.420] They cheated on the third election.
+- [49:56.040] Second election was ridiculous. We got them. We caught them.
+- [49:59.120] It's all coming out. Daily, it's coming out.
+- [50:02.340] They cheated like dogs. That guy couldn't win.
+- [50:06.390] But to stop illegal aliens and other unpermitted persons.
+- [50:10.010] See? That's a politically correct.
+- [50:12.540] Unpermitted persons. Rather than illegal aliens,
+- [50:16.940] they'd rather have us use unpermitted persons.
+- [50:19.190] The first time I've ever heard those words,
+- [50:21.900] I don't like them, unpermitted persons.
+- [50:24.660] Is that the new phrase we're using?
+- [50:28.310] The governor says, "No." Good. Thank you. No, Ted, right?
+- [50:31.710] Unpermitted. He's an unpermitted person.
+- [50:35.260] He's killed 19 people. We're not permitting him in.
+- [50:39.000] From voting in our sacred American elections,
+- [50:41.950] we don't want people that aren't citizens of our country voting.
+- [50:45.830] We don't want people that aren't studied,
+- [50:48.600] and we don't want people that can't love our country
+- [50:50.730] voting in our elections. So, it's very simple.
+- [50:53.610] All voters must show this is the SAVE America Act.
+- [50:59.250] Now, think of it. I watched humor the other day,
+- [51:01.610] "We will stop the SAVE America Act."
+- [51:03.630] I said, "No, no. We're talking about SAVE America."
+- [51:05.780] It's a really hard thing. It was like MAGA.
+- [51:08.410] Biden. Remember Biden? He made those speeches.
+- [51:10.920] "We will stop MAGA." Then, he falls off the stage.
+- [51:14.210] "We will stop-- We will stop MAGA.
+- [51:18.310] We must stop MAGA."
+- [51:20.860] He had no idea what-- And I said, "No, no.
+- [51:23.140] MAGA is Make America Great Again.
+- [51:26.970] You don't want to stop it. You don't want to stop MAGA."
+- [51:31.470] And this may be even better, the SAVE America Act.
+- [51:35.970] I watched humor today.
+- [51:37.180] "We're going to stop the SAVE America Act."
+- [51:39.590] You know what it is? Basically, voter ID, et cetera.
+- [51:41.960] But what's wrong with that?
+- [51:44.860] So, they came up with all different theories
+- [51:47.120] about why anybody shouldn't--
+- [51:49.400] You have voter ID for everything.
+- [51:51.640] No matter where you go, it's ID.
+- [51:53.850] You have an identification for everything,
+- [51:56.510] except for one of the most sacred things
+- [51:58.900] you can be doing is voting.
+- [52:00.670] And the reason they don't want voter ID
+- [52:03.650] is because they want to cheat.
+- [52:05.980] Because the only way they can get elected is to cheat,
+- [52:09.440] because their policies are no good.
+- [52:11.090] They do stick together. You saw that the other night.
+- [52:13.340] They wouldn't stand up and clap for anyone, for anybody.
+- [52:16.970] We could introduce, "Ladies and gentlemen,
+- [52:20.700] I'd like to introduce you to the late great Amelia Earhart.
+- [52:23.740] Here she is." They would not clap.
+- [52:26.850] They wouldn't clap for anybody.
+- [52:28.550] There was nothing I can think of.
+- [52:31.390] Nothing I can think of where they would clap.
+- [52:33.640] They're sick people.
+- [52:35.360] So, they don't want all votes must show voter ID.
+- [52:39.830] All voters must show three simple things:
+- [52:43.570] proof of citizenship in order to vote.
+- [52:46.200] Voter ID, proof of citizenship. And then third--
+- [52:50.370] And I'm telling you, it's the most important.
+- [52:53.320] No mail-in ballots except for illness,
+- [52:56.460] disability, military, or travel.
+- [53:01.580] And if I had my choice, I think I'd take that one.
+- [53:03.840] You want to know the truth?
+- [53:05.100] There's more cheating with mail-in ballots.
+- [53:07.250] They drop them in the river. See this beautiful port?
+- [53:10.680] You see the damn things floating down?
+- [53:13.770] It is so terrible.
+- [53:16.600] Our elections are so rigged and crooked.
+- [53:19.300] And those three things will solve it.
+- [53:22.130] Think of it. Voter ID, proof of citizenship,
+- [53:25.970] no mail-in ballots with exceptions.
+- [53:27.890] Military, we want an exception.
+- [53:29.970] Illness, disability, we're on an exception.
+- [53:32.580] And if you're traveling, you're on a business trip,
+- [53:35.260] you're somewhere, even a vacation, you can vote by mail.
+- [53:38.510] But that's a very small number of people.
+- [53:41.090] And you will see that they will never win
+- [53:42.900] another election again.
+- [53:44.820] They will never win because their policy is no good.
+- [53:48.020] They want men playing in women's sports.
+- [53:50.910] They want transgender for everybody.
+- [53:53.580] They want open borders so that the world's criminals
+- [53:56.290] can pour into our country, which have we done a good job.
+- [54:00.680] I'll tell you what, ICE has done such a great job.
+- [54:06.040] And border patrol.
+- [54:07.490] You know that for the last nine--
+- [54:09.260] It's hard to believe.
+- [54:10.670] You remember the problems two years ago,
+- [54:12.680] you people, everybody was going crazy.
+- [54:15.240] People were pouring into our country by the millions.
+- [54:17.850] In the last nine months,
+- [54:19.590] and this is done by radicals, radical lefts.
+- [54:23.470] In the last nine months,
+- [54:25.600] zero people came into our country
+- [54:28.570] through your southern border illegal.
+- [54:34.610] And remember when Biden said, "For that, we need legislation."
+- [54:38.820] I said, "No, you need a new president."
+- [54:41.070] And I was right. I didn't get legislation.
+- [54:44.320] I said to Paul Perez,
+- [54:46.310] "Close your border, Paul. Close it."
+- [54:49.600] Where's Paul? Is he here? Where the hell is Paul?
+- [54:52.970] He's the greatest. That guy is great.
+- [54:56.310] I'd have him come up and speak,
+- [54:57.660] but he's such a good speaker that I don't like that.
+- [55:01.050] I only want to follow terrible, terrible speakers.
+- [55:04.260] That way they say, "Trump is a brilliant speaker."
+- [55:08.100] We got big ratings the other night, by the way.
+- [55:10.120] Big. Like, record, record writing.
+- [55:13.120] Everything was clicking. You want to come up, Paul?
+- [55:15.410] Come on up, Paul. Show off to your family.
+- [55:17.930] He's got a beautiful family. What a beautiful family.
+- [55:22.370] Now watch, I'll put pressure on him.
+- [55:24.260] Don't blow it, Paul. This is your one opportunity.
+- [55:26.360] This is a big crowd, Paul. Don't get nervous.
+- [55:30.570] No, Paul is just incredible.
+- [55:33.460] And he rates Trump the single greatest president in history.
+- [55:36.860] That's why I have him. He says he's the goat.
+- [55:40.640] The goat. No, we've had a couple good--
+- [55:43.590] We haven't had too many, actually.
+- [55:45.500] Come on up, Paul.
+- [55:52.230] Paul Perez: Thank you, President Trump.
+- [55:54.800] Thank you for the ride home on Air Force One.
+- [55:57.310] Really appreciated that.
+- [56:00.320] I am the President of the National Border Patrol Council,
+- [56:02.550] and I could tell you without a doubt,
+- [56:04.650] President Trump is the only president
+- [56:07.030] that backed up every campaign promise he made
+- [56:10.250] when it came to the border and everything else.
+- [56:13.690] We have record drops in immigration in border crossings
+- [56:18.650] and drug seizures, because President Trump,
+- [56:21.580] within one hour of being inaugurated,
+- [56:24.240] allowed us to do more than what Biden allowed us to do
+- [56:28.080] in the entire four-year term.
+- [56:31.690] President Trump is the best president
+- [56:34.180] in the history of this country. Prove me wrong.
+- [56:45.190] President Trump: He does a great job.
+- [56:48.750] He does a great job.
+- [56:49.960] The whole group: ICE, Border Patrol, law enforcement.
+- [56:53.140] By the way, our great firemen, how about that?
+- [56:57.130] One of the things-- And we can just talk today.
+- [57:01.040] We're together.
+- [57:02.480] One of the things that I'm most proud of,
+- [57:06.800] if you go back two years, three years,
+- [57:08.420] and four years under the last administration,
+- [57:11.370] we had the worst recruitment for our military
+- [57:15.490] in the history of our country. Nobody wanted to be a soldier.
+- [57:19.270] They didn't want Army, Air Force, Navy.
+- [57:23.170] They didn't want the Marines.
+- [57:24.520] They didn't want even beautiful Space Force or Coast Guard.
+- [57:28.290] They didn't want to be in the police.
+- [57:29.660] They didn't want to be in the fire departments.
+- [57:31.060] They didn't want to be anywhere.
+- [57:32.290] They didn't want anything with a uniform
+- [57:33.850] because it represented our country.
+- [57:36.610] Since then, and it started, really,
+- [57:38.950] with November 5th, which was the election.
+- [57:41.610] But since November 5th,
+- [57:43.430] we have the highest record of recruitment
+- [57:46.120] in the history of our country.
+- [57:48.890] Think of that. That includes ICE and Border Patrol,
+- [57:53.890] and I want to thank Paul
+- [57:55.220] because that group of people does a great job.
+- [57:57.590] Think of it.
+- [57:58.980] It gets its nine months now, registered zero.
+- [58:02.650] Now, I don't even believe it could possibly be that low
+- [58:05.070] because millions of people, but it's pretty close to zero.
+- [58:08.050] And they say it's zero.
+- [58:09.250] If they say it's zero, it has to be.
+- [58:10.610] They're Democrats that do it,
+- [58:11.870] so they're not going to give me any benefits.
+- [58:15.000] Just over one year ago, we inherited a total disaster.
+- [58:19.260] Four years now. Think of it.
+- [58:20.920] Four years, we had ruinous inflation, economic surrender.
+- [58:25.720] We surrendered to the whole world.
+- [58:28.010] A border invasion, rampant crime, and chaos.
+- [58:31.260] All over the world, they laughed at us.
+- [58:33.650] But today, we have ended that disaster
+- [58:35.850] and achieved a turnaround for the ages.
+- [58:38.190] Nobody's ever seen it like this.
+- [58:40.180] Nobody has ever seen a one-year turnaround like we had.
+- [58:43.940] Think of it.
+- [58:45.190] We were a laughing stock one and a half years ago,
+- [58:48.250] and now we're hot. We're hot.
+- [58:56.490] I was going to say, like, that person in the audience,
+- [58:58.710] but I won't say that because that could be career ending.
+- [59:03.080] So, I don't do that. We're hot.
+- [59:08.540] Our country is the hottest country in the world.
+- [59:12.470] America's back. Our economy is roaring,
+- [59:16.180] and our country is strong, and we're respected again.
+- [59:19.470] They're respecting us again. China respects us.
+- [59:22.840] Russia respects us. They all respect.
+- [59:25.400] They respect your president, and I respect them.
+- [59:29.650] We've got a lot of things going on.
+- [59:31.140] Now, we have a big decision to make.
+- [59:32.660] You know that. Not easy. Not easy.
+- [59:34.990] We have a very big decision to make.
+- [59:36.610] We have a country that's been, for 47 years,
+- [59:40.190] blowing people's legs off, arms off, the face.
+- [59:43.780] They've been knocking out ships, killing people, lots of people.
+- [59:47.740] Not only Americans, lots of people.
+- [59:49.680] It's been terrible.
+- [59:51.060] 32,000 people killed over the last two, three months.
+- [59:54.050] Protestors, 32,000. That's some number of people, 32,000.
+- [01:00:00.850] They want to make a deal,
+- [01:00:02.090] but got to make a deal that's meaningful.
+- [01:00:04.360] I spoke with Ted Cruz, John, all of them.
+- [01:00:07.540] On the way here, I said,
+- [01:00:08.790] "You got to make a deal that's meaningful."
+- [01:00:11.480] We hit them real hard.
+- [01:00:13.360] As you know, with those beautiful B-2 bombers,
+- [01:00:16.340] recently knocked out their nuclear capability.
+- [01:00:22.180] I'd rather do it the peaceful way,
+- [01:00:24.450] but they're very difficult people.
+- [01:00:26.840] I want to tell you that.
+- [01:00:28.070] They're very dangerous people, very difficult people.
+- [01:00:31.580] With the help of proud Texans like you
+- [01:00:34.050] and people we have today,
+- [01:00:36.130] and I want to just thank you because it is true.
+- [01:00:38.350] We have had voting in Texas.
+- [01:00:41.370] They say, "Sir, you don't have to go to Texas.
+- [01:00:43.130] You're leading by a lot."
+- [01:00:44.410] I said, "I want to go to Texas. I want to go there.
+- [01:00:49.370] I love Texas." I love Texas.
+- [01:00:52.430] It just represents something special.
+- [01:00:54.310] It's success. It's great, incredible people.
+- [01:00:56.990] But they said, "See? You don't have to go there.
+- [01:00:58.770] I'm telling you, sir.
+- [01:01:00.000] You're wasting your time, sir. You don't need it--"
+- [01:01:02.410] I said, "I'm going to Texas.
+- [01:01:03.640] I don't give a damn if I'm wasting --
+- [01:01:08.180] but we're going to keep on working
+- [01:01:09.870] and we'll keep on fighting. Texas will keep on drilling.
+- [01:01:13.700] Corpus Christi will keep on shipping.
+- [01:01:16.380] And the United States of America will keep on winning, winning,
+- [01:01:19.980] winning like we've never won before.
+- [01:01:23.450] And together, we will make our country richer,
+- [01:01:25.980] and stronger, and safer, and prouder, and freer,
+- [01:01:28.540] and greater than ever before.
+- [01:01:31.500] And I just want to tell everybody here,
+- [01:01:33.340] I appreciate everything you've done for me,
+- [01:01:35.890] and I've done a lot for you too. But I love you all very much.
+- [01:01:41.630] And thank you, Corpus Christi. Thank you very much.
+- [01:01:44.540] Thank you, Texas.
+- [01:01:53.990] ♪ ("YMCA" by The Village People) ♪

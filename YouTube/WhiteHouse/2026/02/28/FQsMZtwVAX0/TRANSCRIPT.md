@@ -1,0 +1,104 @@
+<!-- source: https://www.youtube.com/watch?v=FQsMZtwVAX0 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: FQsMZtwVAX0 -->
+<!-- date_published: 2026-02-28T00:02:46+00:00 -->
+<!-- date_accessed: 2026-06-02T01:04:37.543012+00:00 -->
+
+# Transcript: President Trump Visits a Local Business, Feb. 27, 2026
+
+- [00:00.000] God's plan.
+- [00:06.550] >> [cheering]
+- [00:13.755] [cheering]
+- [00:15.720] [applause]
+- [00:18.995] [cheering]
+- [00:24.235] [cheering]
+- [00:29.200] >> I'm looking forward to that. Thank you.
+- [00:30.560] Yes, sir. No names. Did you enjoy these
+- [00:32.200] BEST HAMBURGERS? YES.
+- [00:34.880] GOOD JOB ON THE FLIGHT HOME.
+- [00:38.680] How was the burgers? Pretty good?
+- [00:39.840] Fantastic.
+- [00:42.400] No famous people tonight.
+- [00:46.920] I thought I'd be invited.
+- [00:48.760] Did you like the State of the Union? WE
+- [00:50.400] SHOULD HAVE.
+- [00:52.800] DID YOU LIKE THE fact that the Democrats
+- [00:54.680] never stood up even once?
+- [00:57.600] Interesting state child
+- [00:59.160] and her
+- [01:00.000] It's It's unbelievable. It is. They're
+- [01:02.760] crazy.
+- [01:03.240] >> They are.
+- [01:04.800] I'm going to learn something. No, okay,
+- [01:06.320] you ready? Can you handle this?
+- [01:08.240] HAMBURGERS FOR ALL.
+- [01:14.670] >> [applause]
+- [01:14.720] >> I SHOULD HAVE SAID FOR ALL. I SHOULD
+- [01:15.400] HAVE SAID DRINKS FOR ALL, but I don't
+- [01:17.040] drink.
+- [01:20.640] You ready? HAMBURGERS FOR ALL.
+- [01:23.840] >> [cheering]
+- [01:29.280] >> NICE TO SEE YOU. EVERYBODY.
+- [01:33.666] >> [applause]
+- [01:40.680] >> NICE TO SEE EVERYBODY.
+- [01:44.320] Corpus Christi, you know, Corpus Christi
+- [01:46.200] likes me and Texas likes me. We do.
+- [01:49.200] We won Texas by more votes than anybody
+- [01:51.840] and I have to say this correctly because
+- [01:54.680] the fake news will call me out if I
+- [01:56.280] don't.
+- [01:57.160] But it's easy. We won We
+- [02:01.280] That's pretty good. So, thank you.
+- [02:04.360] Including I think most of you, maybe all
+- [02:06.720] of you, right? Thank you very much. We
+- [02:08.600] appreciate it. I'm going to get some
+- [02:10.240] stuff for Air Force One and I'm going to
+- [02:12.480] get the hell out of here.
+- [02:16.040] Remember this is a whole place, okay?
+- [02:21.840] That sucker looks good.
+- [02:25.720] That sucker
+- [02:26.720] still works.
+- [02:28.160] We love you, Mr. President.
+- [02:35.236] >> [cheering and applause]
+- [02:41.080] >> If [applause] he thinks
+- [02:42.360] I probably shouldn't eat this one, I
+- [02:43.680] should get a different one at random,
+- [02:45.760] but I trust him.
+- [02:47.240] I trust him.
+- [02:48.800] But,
+- [02:49.800] he's pretty smart.
+- [02:52.920] So, who's the owner?
+- [02:54.959] Who's the boss? I am.
+- [02:58.040] Who's the boss? She's the boss
+- [02:59.880] for 30 years.
+- [03:02.640] I did this for my mom. Nice to meet you.
+- [03:11.720] It's an honor for you to come. I
+- [03:13.040] appreciate it. Thank you. Thank you
+- [03:14.360] everybody.
+- [03:16.239] Thank you. Thank you everybody. I'm
+- [03:18.040] going to take this and I'll be thinking
+- [03:19.560] about you.
+- [03:21.280] And take care of everybody. Yes, sir.
+- [03:23.680] We love you. Thank you everybody.
+- [03:26.760] We love you,
+- [03:28.160] President.
+- [03:28.947] >> [cheering]
+- [03:29.720] >> USA!
+- [03:30.800] USA!
+- [03:32.280] USA!
+- [03:33.600] USA!
+- [03:35.080] USA!
+- [03:36.400] USA!
+- [03:37.800] USA!
+- [03:39.239] USA!
+- [03:40.600] USA!
+- [03:42.000] USA!
+- [03:43.160] USA!
+- [03:44.560] USA!
+- [03:46.560] USA!
+- [03:48.600] Don't drop on your picture.
+- [03:52.840] USA!
+- [03:55.802] >> [cheering]
+- [03:59.732] [applause]
+- [04:02.480] >> Let's go! Let's go!

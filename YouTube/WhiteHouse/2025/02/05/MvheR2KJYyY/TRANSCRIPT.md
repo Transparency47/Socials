@@ -1,0 +1,848 @@
+<!-- source: https://www.youtube.com/watch?v=MvheR2KJYyY -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: MvheR2KJYyY -->
+<!-- date_published: 2025-02-05T00:36:00+00:00 -->
+<!-- date_accessed: 2026-06-02T02:54:11.437411+00:00 -->
+
+# Transcript: President Trump Holds a Press Conference with Prime Minister Netanyahu of Israel
+
+- [00:03.660] Jonathan Goodrich: Good afternoon, everyone.
+- [00:04.890] Thanks for joining. As noted in the invite,
+- [00:11.490] this is to roll out sensitivity labels
+- [00:14.460] to the to the rest of Corp Fin. I'm John Goodrich.
+- [00:19.250] I'm an attorney in the Chief Counsel's Office in OIT.
+- [00:24.540] Also joining me is Laura Pfeffer on --
+- [00:28.360] in the Chief Counsel's Office.
+- [00:31.660] We were -- have been working this
+- [00:33.870] across the divisions and offices already
+- [00:38.300] and are happy to be rolling this out to the rest of you guys.
+- [00:43.050] So, I know this is being recorded for some of you.
+- [00:46.820] Thanks everyone for being here or watching later.
+- [00:50.770] We'll get started with just a little bit of background.
+- [00:54.630] Then we'll get into a little bit of a refresher
+- [00:58.200] on what is nonpublic information.
+- [01:00.710] And then we'll get some of the notes
+- [01:04.220] and bolts of what it -- what are sensitivity labels.
+- [01:07.140] We'll do a demo and then just talk about next steps
+- [01:11.320] as far as the testing and the rollout goes for everyone.
+- [01:15.750] So, again, this is -- the purpose of this is for --
+- [01:19.670] to rollout sensitivity labels.
+- [01:21.240] It'll be a tag that we see in our Microsoft products
+- [01:27.160] and emails and PDFs to tag information as to whether --
+- [01:32.570] what type of information, whether it's nonpublic
+- [01:35.450] or some other type of category.
+- [01:37.960] Why are we doing this?
+- [01:39.800] Because we've been told to by OMB.
+- [01:44.660] And they've directed the executive branch
+- [01:49.310] to begin to label data across each agency
+- [01:55.230] so that there's a better method of preventing inadvertent
+- [02:02.820] or intentional disclosures of protected information.
+- [02:07.080] The other benefit of the labels will be that
+- [02:11.900] it will also enhance all staff compliance
+- [02:15.760] with existing policy within the SEC, which is 23-2,
+- [02:21.320] regarding the safeguarding of nonpublic information.
+- [02:25.090] So, a little bit of background on how this has been
+- [02:27.210] rolling out across the agency. There are over 2500 people
+- [02:31.330] that are already using this in its final stage.
+- [02:34.810] And so, they've gone through months of testing
+- [02:38.500] and are already using this in its full implementation.
+- [02:42.640] So, you are not forging new grounds here
+- [02:44.990] but are, you know, following the footsteps of others.
+- [02:49.210] In addition, there's been 45 testers from Corp Fin
+- [02:54.060] who have been testing the labels since early December.
+- [02:58.800] So, you also have --
+- [03:00.890] as most of the rest of you start to get used to using the labels,
+- [03:06.100] you'll have colleagues around you
+- [03:07.590] who have already been using them.
+- [03:08.800] And you can also rely on them as well as, as we'll show later,
+- [03:12.430] reaching out to us via a number of different methods
+- [03:17.660] whenever you have questions.
+- [03:19.710] So, the kind of cadence of the rollout
+- [03:23.670] is we've gone to each division in office.
+- [03:26.440] We've gathered testers.
+- [03:28.270] Those testers will use the labels
+- [03:31.280] in sort of a test mode for a few weeks or longer.
+- [03:35.870] And then we roll it out to the rest of the office
+- [03:39.100] for a similar type of test mode, where you're using it.
+- [03:43.090] You'll get pop-ups and policy tips that show up
+- [03:46.090] when you hover over the labels, which I'll show you again here.
+- [03:50.230] I know it's hard to fully understand the abstract.
+- [03:55.980] And then after that test period,
+- [03:59.620] we go back to the original test group,
+- [04:03.140] and we'll turn on the full data loss prevention policies,
+- [04:08.630] which ultimately means that if a document is labeled as internal,
+- [04:14.340] then it will automatically be blocked
+- [04:16.340] by the system from leaving our agency.
+- [04:20.210] And so, you'll have to appropriately label the document
+- [04:23.320] so that it will go out as intended.
+- [04:27.730] You may have noticed since the end of last year
+- [04:30.390] that you no longer -- if you're one
+- [04:32.540] who regularly sends emails outside of the agency,
+- [04:36.030] that you're no longer getting that pop-up saying,
+- [04:37.960] "Hey, you're about to send an email to an outside party.
+- [04:40.880] Are you sure you want to do this?"
+- [04:43.300] This -- that feature was retired by OIT.
+- [04:48.900] And so, the labels actually serve this additional benefit
+- [04:53.890] of making us think each time
+- [04:56.280] we are sending something outside of the agency.
+- [04:58.250] "Hey, what am I sending? What's my authority to do so?
+- [05:01.930] And is everything labeled correctly?"
+- [05:08.210] I mentioned the policy SECR 23-2.
+- [05:12.160] That is sort of the guiding light for your questions
+- [05:16.240] about what is nonpublic information,
+- [05:18.150] and what is my authority to share it with external parties?
+- [05:22.730] The short of the definition would be --
+- [05:27.170] if you're thinking of a shorthand --
+- [05:29.650] is, most of what you do here at the agency,
+- [05:32.940] while at work, is going to be nonpublic information,
+- [05:37.330] unless you are aware that --
+- [05:40.610] where and how it's already been released publicly.
+- [05:45.030] And it is for that reason that you'll see here
+- [05:48.810] in the next slide, with a screenshot
+- [05:52.440] of the different labels that will be available,
+- [05:55.040] the default label is NPI - Internal.
+- [06:01.160] As I mentioned, 23-2, it's built into our agency-wide policy
+- [06:07.770] that most of what we do is nonpublic information.
+- [06:11.670] And so, that led to the default label for our documents
+- [06:17.180] and emails is going to be NPI - Internal.
+- [06:21.440] So, this is a screenshot of what the label menu will look like
+- [06:25.280] as you're working with them.
+- [06:26.930] Now, a little bit about the sort of nuts
+- [06:28.590] and bolts of what a label is. It's a piece of metadata,
+- [06:34.130] much like, you know, author or date created,
+- [06:37.100] that will be embedded with a file
+- [06:39.970] once you create a new document.
+- [06:45.070] There are exceptions as to what can be labeled.
+- [06:49.630] There are five supported file types.
+- [06:52.040] Only those five will be what you have to label going forward.
+- [06:58.470] And that's going to be your Outlook messages;
+- [07:01.250] your three main Microsoft products of Word,
+- [07:06.360] PowerPoint, and Excel; and then Adobe PDFs.
+- [07:10.540] If it's not on that list of five,
+- [07:12.770] then you're not going to have to label it.
+- [07:15.310] That also means, as an aside, things that aren't labeled --
+- [07:19.740] say you're trying to send some sort of database file
+- [07:23.540] outside of the agency that's not on that list of five,
+- [07:28.290] that is not a supported file type right now.
+- [07:31.810] And so, you would not have to label it,
+- [07:33.580] and the system is not going to prevent you from labeling it.
+- [07:37.450] Now, the email itself
+- [07:39.230] that you're sending will have to be labeled
+- [07:41.250] and will need to be labeled accurately to support --
+- [07:45.520] consistent with your authority,
+- [07:47.090] to send that information outside the agency.
+- [07:55.160] And you see the label menu here.
+- [07:57.740] And we'll go through in more detail which --
+- [08:00.070] what each of those specific labels
+- [08:03.980] means here throughout this training.
+- [08:08.630] So, in that instance,
+- [08:11.240] you're wanting to send a Word file
+- [08:15.400] to a colleague at another agency that you're working on,
+- [08:17.590] a matter with some sort of proposed joint
+- [08:20.600] proposed regulation, for example.
+- [08:25.220] There are a few types of labels that will allow you
+- [08:32.200] to send something outside of the agency.
+- [08:36.170] And so, you will need to change it
+- [08:38.310] to one of those labels so that you can do.
+- [08:40.450] So, one thing to note about the labels.
+- [08:45.410] This is not a new policy about what is or is not NPI
+- [08:51.570] and what our authority is.
+- [08:53.390] It is just a technical control on top of our existing
+- [08:58.410] work processes
+- [08:59.720] and procedures regarding how we share information.
+- [09:02.880] So ,whatever it is that your authority is right now
+- [09:06.490] to share nonpublic information
+- [09:09.480] with an authorized external party remains the same.
+- [09:12.730] We just have to take an extra step.
+- [09:14.730] Be more proactive about identifying
+- [09:16.980] that and properly labeling it
+- [09:18.810] as you're going through your work.
+- [09:22.740] So, the labels that are appropriate
+- [09:26.050] for sending outside of the agency would be NPI -
+- [09:30.170] External. So, you can see that here.
+- [09:33.800] And then the other label in use right now would be
+- [09:38.510] Does Not Contain NPI.
+- [09:40.600] And that's the primary label that has two sub-labels.
+- [09:45.500] You've got Personal and Work-Related.
+- [09:49.080] So, as far as what those mean, NPI -
+- [09:51.910] External just means that you're sending nonpublic information
+- [09:55.290] to an external party because you've got authority to do so.
+- [09:59.120] Just because -- as recognized in 23-2.
+- [10:03.050] If you send NPI to a specific external party
+- [10:08.070] and you've got authorization to do so,
+- [10:10.110] it does not change
+- [10:11.310] that information into public information.
+- [10:14.570] It remains NPI, and you're just sharing it
+- [10:17.320] with that specific party for that specific reason.
+- [10:21.410] In that case, the NPI -
+- [10:23.150] External label would be the appropriate label on your email,
+- [10:26.340] as well as the attachment.
+- [10:27.950] Both have to have the appropriate label
+- [10:29.720] to be able to send that outside the agency.
+- [10:32.060] There can also be other instances
+- [10:33.670] where what you're trying to send outside the agency
+- [10:36.110] does not contain NPI.
+- [10:38.020] In which case, you would use one of the Does
+- [10:40.880] Not Contain NPI labels. If it was work related,
+- [10:46.470] say you are responding to a random OPM email
+- [10:52.190] that you may have gotten,
+- [10:54.620] responding to that most likely is going to not contain NPI.
+- [10:59.610] And you could use that label to respond to it.
+- [11:04.370] Does Not Contain NPI Personal. Say you download your SF-50.
+- [11:08.730] And you want to send it to yourself,
+- [11:10.040] so you have it for your own records.
+- [11:12.220] That's not SEC Nonpublic Information.
+- [11:16.010] It's your own personal data. You send that to yourself.
+- [11:19.130] You can save the file as Does Not Contain NPI Personal
+- [11:23.920] and also label your email similarly.
+- [11:28.170] And then you'll --
+- [11:29.600] the system will allow you to send that outside the agency.
+- [11:35.060] Now, I mentioned that the default label is NPI - Internal.
+- [11:38.020] So, when you open a document and you need to change it
+- [11:41.160] to a different appropriate label,
+- [11:43.970] the system is going to give you this pop-up box
+- [11:46.270] that you see here on the screen, asking you for justification.
+- [11:50.920] So, you would just pick the most appropriate justification
+- [11:53.830] for your situation,
+- [11:55.030] whether that's "Previous label no longer applies -- "
+- [11:58.700] I most often use that, say, when I'm working on a draft document.
+- [12:02.740] And now, it's, you know, ready for signature.
+- [12:05.360] It's, you know, a letter that's going out from the Commission.
+- [12:09.720] And I've changed it from its draft
+- [12:13.010] deliberative process mode into final form.
+- [12:17.470] And I would change it to the appropriate label
+- [12:19.350] and put "Previous label no longer applies."
+- [12:22.640] "Previous label was incorrect" is another option.
+- [12:25.680] Say you had, from the very get-go,
+- [12:27.630] the intention that this document was not going to contain NPI.
+- [12:33.370] It was for the -- our website.
+- [12:36.310] And you would just select that option.
+- [12:38.830] And there's also the third option of "Other (explain)."
+- [12:42.030] As I'll show you during the demo,
+- [12:43.300] when you click that, a little pop-up box opens,
+- [12:48.640] where you can write an additional explanation,
+- [12:53.190] depending on the circumstances.
+- [12:56.750] This is essentially something I've already covered.
+- [13:00.790] And you'll have the deck here.
+- [13:02.390] And we'll be able to come back to this, as you have questions,
+- [13:08.010] once the labels are turned on for you next week.
+- [13:11.490] But again, this is just noting that all this is
+- [13:14.910] is a technical tool on top of our existing processes,
+- [13:21.010] agency wide, as well as within Corp Fin,
+- [13:23.580] on how to share nonpublic information
+- [13:27.290] with external parties.
+- [13:33.200] And I cover this as well.
+- [13:34.860] This is the "Does Not Contain NPI."
+- [13:38.670] And it's got a couple of examples here
+- [13:40.400] you can return back to.
+- [13:43.580] As I mentioned, what the end goal in --
+- [13:48.120] through this training process and testing process
+- [13:51.610] is that eventually what will be in place
+- [13:54.040] are data loss prevention policies
+- [13:55.920] that will automatically block information
+- [14:00.290] that's marked for internal use
+- [14:02.010] only from leaving the SEC network.
+- [14:05.230] And so, what that means is once those policies are turned on,
+- [14:12.240] as you're going through your work
+- [14:13.450] and emailing things outside of the agency,
+- [14:16.230] if they're not marked for external transmission,
+- [14:21.710] then they will be blocked. And they will tell you so.
+- [14:26.290] And you'll have to, you know, amend the labels
+- [14:29.990] so that you can send that outside the agency.
+- [14:34.320] The -- I'll note here that -- how that notification
+- [14:39.040] will show up will depend at times on what type of program
+- [14:44.080] and what you're using. If you're using your
+- [14:48.930] Outlook desktop application, then what will --
+- [14:53.700] you'll get a pop-up right then and there that shows you the --
+- [14:59.970] similar to the old Titus pop up, saying,
+- [15:03.010] "Hey, you're trying to send this outside the agency.
+- [15:05.510] It's marked for internal use only.
+- [15:06.910] You need to change the label."
+- [15:09.460] If you're using Outlook on the web
+- [15:12.350] or you're using your phone,
+- [15:14.770] what's going to happen is you're going to get
+- [15:17.080] a system-generated email after you hit
+- [15:19.910] Send, just right after, and it's going to come to you.
+- [15:22.470] And it's going to tell you that,
+- [15:24.460] "Hey, you just tried to send an email outside of the agency
+- [15:28.400] that was marked for internal use only,
+- [15:30.630] and it was blocked."
+- [15:32.160] And you'll have to go back and change that and then hit resend.
+- [15:36.840] Now, that's -- ultimately,
+- [15:38.830] that's where we're going to end up during this test phase.
+- [15:42.420] Watch -- what will be turned on for you next week,
+- [15:46.390] just like what the current Corp Fin
+- [15:48.590] testers are doing, is just a test mode.
+- [15:50.810] So, you will get just pop-up warnings or reminders,
+- [15:56.700] but it's not going to actually block you.
+- [15:58.280] You can click through it
+- [15:59.650] and continue to do your work as you had planned to do.
+- [16:04.820] But it's going to, you know, be a flag for you.
+- [16:06.920] Hey, in the future, this would be that point
+- [16:09.790] where the system would have blocked your --
+- [16:14.120] from continuing to do what you were trying to do.
+- [16:16.440] And so, I mean, you know,
+- [16:17.970] the recommendation would be to kind of go ahead --
+- [16:19.920] instead of just mindlessly clicking through
+- [16:23.270] those pop-ups right now, but, you know,
+- [16:25.180] start to get used to just labeling things correctly.
+- [16:28.340] And eventually, once the policies
+- [16:31.040] for blocking are turned on, you'll be a pro at it already
+- [16:33.940] and won't really have any issues.
+- [16:38.560] There is a note here about using Smail.
+- [16:43.140] I know there's been some recent changes in recommendations
+- [16:47.020] and policies regarding encryption.
+- [16:50.540] And to the extent that you have Corp Fin-wide or group --
+- [16:57.230] within Corp Fin policies on when to use Smail
+- [17:01.630] and sending things outside the agency,
+- [17:04.410] the use of labels does not impact those existing policies.
+- [17:11.440] You may have seen and noticed on the list of labels here,
+- [17:17.210] there are two that have NPI High.
+- [17:21.380] There's an NPI High - Internal.
+- [17:23.010] And there's an NPI High - External.
+- [17:26.530] As we know here, the rollout of those,
+- [17:29.650] even though they are visible here,
+- [17:32.240] they're not in use right now.
+- [17:34.270] They are just for test files only.
+- [17:39.160] And we will roll those out
+- [17:41.320] in a second phase of the label rollout.
+- [17:45.780] As a preview of what those labels will do
+- [17:51.760] is they both currently have certain heightened controls
+- [17:56.920] related to them
+- [17:58.810] once you apply those labels to the file.
+- [18:02.890] So, for example, for the NPI High - Internal --
+- [18:06.260] and you can see, even in the label right now,
+- [18:10.950] we have put the word TEST in there.
+- [18:14.010] Because we are asking folks not to use that at the moment
+- [18:17.310] on actual work files. The technical controls
+- [18:21.840] associated with that label include
+- [18:25.340] that once a particular person labels that file,
+- [18:30.370] that's the only person who will be able to change the label.
+- [18:33.910] So, if that person -- you know,
+- [18:36.520] you're working on a widely shared document
+- [18:38.600] across several groups.
+- [18:41.130] A particular staff labels the file as NPI High - Internal.
+- [18:49.150] And then they leave the agency.
+- [18:52.120] You'll have -- you won't be able --
+- [18:54.760] others won't be able to change
+- [18:56.210] that label should you need to do so.
+- [19:00.350] It also -- while it doesn't prevent others
+- [19:04.070] from working on the file,
+- [19:05.850] that label does prevent screen sharing and printing
+- [19:12.080] and some other capabilities
+- [19:13.940] that it really locks the label -- the document down.
+- [19:17.940] And so, the NPI High labels ultimately
+- [19:22.230] are going to be intended
+- [19:24.020] for potentially highly sensitive files
+- [19:27.500] that may warrant certain heightened protections.
+- [19:33.190] There are some CAT users
+- [19:36.680] who are currently using some of the NPI High labels.
+- [19:41.060] That could be some of you within Corp Fin.
+- [19:43.810] And that process is managed by the Chief Data Office.
+- [19:49.660] And you guys should continue operating through the direction
+- [19:56.030] you've got regarding the use of CAT labels.
+- [20:00.280] The NPI High - External, for example,
+- [20:03.100] the technical control that attaches when you use that label
+- [20:08.450] is that it automatically sends that email
+- [20:12.520] with that label through Smail,
+- [20:14.780] even if you did not include the word Smail in the subject line,
+- [20:19.080] the way we all bring up that email method today.
+- [20:31.850] So, you'll get this deck after we're done here.
+- [20:37.010] And these -- each of these six links here is to a video,
+- [20:41.900] where you can refresh on how you can pull up labels
+- [20:48.450] for each of those listed programs.
+- [20:51.360] What I'm going to do while we're here
+- [20:53.600] is just give you a bit of a live demo.
+- [20:56.350] So, you can see my screen here.
+- [20:59.080] I've got a blank Word document that I've just opened.
+- [21:03.440] There are a couple of places
+- [21:05.140] where you can find sensitivity labels.
+- [21:09.050] Up here at the top, there's a new sensitivity bar
+- [21:14.570] that Microsoft created.
+- [21:17.550] And you can -- this can be also where you go to click
+- [21:19.900] to as an easy way to save a document.
+- [21:22.910] So, you click the sensitivity bar at the top.
+- [21:28.590] You can save your file. And what you can see here
+- [21:31.300] is there's also this new sensitivity label option.
+- [21:36.410] And you can see that the default label was already populated,
+- [21:41.240] and it's NPI - Internal.
+- [21:43.870] And so, all you have to do is go ahead and click Save.
+- [21:48.380] And now the document is appropriately labeled
+- [21:53.190] with the default label.
+- [21:55.610] The other location where you can see the label
+- [21:59.330] and change label is over here on the right of the screen.
+- [22:03.240] You guys will already have this icon.
+- [22:06.890] It will just be grayed out until next week,
+- [22:09.830] when we turn the labels on for you.
+- [22:11.570] Sensitivity box here, you click that;
+- [22:14.160] you're going to get the same label menu.
+- [22:19.080] So, say, for example, this was a draft letter.
+- [22:22.540] I've finalized it,
+- [22:23.820] and it's ready to go outside the building.
+- [22:26.500] It's still going to contain NPI.
+- [22:28.370] But it's going to, you know, Department of Justice,
+- [22:33.720] because we're working on a case together,
+- [22:35.180] and they're authorized to receive it.
+- [22:36.830] So, I'm going to change the label to NPI - External.
+- [22:41.730] So, that Justification box popped up.
+- [22:46.420] And I'm just going to, for this particular --
+- [22:48.490] that situation and example,
+- [22:50.410] I'm just going to say the previous label
+- [22:52.950] no longer applies. I'm going to hit Change.
+- [22:56.770] And so, now you can see the document
+- [22:59.450] is labeled up here as NPI - External.
+- [23:02.620] And if I were to go and attach this to an email
+- [23:05.760] and try to send this to DOJ,
+- [23:07.660] I would also label the email as external.
+- [23:10.960] And so, let's go to email now. So, you can see my
+- [23:16.280] Outlook here. I will open a new email.
+- [23:22.310] As you can see, as soon as I open that new email,
+- [23:26.450] over here on the right, there's this little gold shield.
+- [23:29.560] That's where you're going to see the labels.
+- [23:32.260] Note that gold shield is also the icon
+- [23:35.110] you're going to see on your phones within
+- [23:37.880] Outlook, when you're sending emails.
+- [23:41.270] You click on that shield,
+- [23:42.680] and it'll bring up the label menu.
+- [23:44.850] And then you can change the label if you need to.
+- [23:47.700] You're just, again, sending emails internally.
+- [23:52.420] You're not really going to have to think about
+- [23:54.010] these labels very much.
+- [23:55.290] It's at the point where you need to send something externally,
+- [23:58.790] where this is going to kind of surface
+- [24:02.340] those questions about, okay, is this NPI?
+- [24:05.640] What's my authority to share?
+- [24:10.430] So, the default label was applied.
+- [24:13.230] Say I just want to send an email with my SF-50 or my W-2
+- [24:20.850] that I downloaded from Employee Express.
+- [24:23.780] I'm just going to hit Personal.
+- [24:27.430] And again, it's going to ask me for this justification.
+- [24:32.870] I'm going to click Other here,
+- [24:34.500] just to show you that this free-form box opens up.
+- [24:40.330] And you can type a reason and change it.
+- [24:51.380] If I were sending that email to DOJ,
+- [24:54.790] I would want --
+- [24:56.210] with that document in Word that we created,
+- [24:59.770] I would change this to NPI - External.
+- [25:03.480] And then I would also be -- so that the email is --
+- [25:08.020] has appropriate label for external transmission
+- [25:11.360] as well as the attachment.
+- [25:14.020] If there's a mismatch and one is --
+- [25:19.310] allows for external transmission
+- [25:21.370] and one doesn't, once we get to that blocking, it'll pop up.
+- [25:24.930] And during the test phase,
+- [25:26.980] it will, you know, give you the pop-up.
+- [25:31.050] One of the things to kind of note in here
+- [25:33.440] that I haven't shown you yet
+- [25:34.750] is there are tool tips that show up.
+- [25:39.060] So, you know, I've given you a lot of information
+- [25:42.080] about what each of these categories means.
+- [25:45.030] Some of you may have more familiarity with, you know,
+- [25:48.450] kind of thinking about NPI and what it means for you
+- [25:52.150] and your authorizations on a day-to-day basis.
+- [25:54.790] And some of you may not have had to think about it much.
+- [25:57.630] You mainly deal with internal things.
+- [25:59.660] And that's okay.
+- [26:01.110] We all have, sort of, different roles and responsibilities.
+- [26:06.120] Here, you don't have to remember everything.
+- [26:08.320] You can just hover over each of these different labels,
+- [26:13.160] and a little tool tip pops up
+- [26:16.220] that gives you a bit of an explanation.
+- [26:18.380] As well as along the top, you've got an information bar
+- [26:22.410] that gives you this information as well so that eventually,
+- [26:27.350] I'm sure everyone will know all of these quite well.
+- [26:30.200] But here at the beginning,
+- [26:32.660] you can rely on these tool tips to give you
+- [26:35.890] a quick-and-dirty explanation of what each one means.
+- [26:42.430] Let's see.
+- [26:48.520] I also want to show you a PDF.
+- [27:02.570] So, if you are in Adobe,
+- [27:06.690] Adobe PDF also has some sensitivity labels.
+- [27:11.780] And if you go to protect PDF,
+- [27:13.750] you do -- recently, as you can --
+- [27:16.840] I don't know if you've noticed, but on my computer,
+- [27:19.590] Adobe recently kind of changed its look.
+- [27:22.610] But if you select here, select a Microsoft sensitivity label,
+- [27:28.500] that's where you would go under protect a PDF.
+- [27:32.160] And you would select the appropriate label.
+- [27:35.380] This happens to be an old PDF of the training
+- [27:38.970] I'm giving right now.
+- [27:40.280] So, it's NPI - Internal. I'll apply that label.
+- [27:46.240] And now, you actually will see a blue information bar
+- [27:51.920] across the top that tells you.
+- [27:54.030] "This document is classified by Microsoft Purview
+- [27:57.300] with the label NPI - Internal/Internal Use Only."
+- [28:00.770] When you have this label, this blue box up here,
+- [28:04.380] you also have this option here to access the label menu
+- [28:08.600] by just clicking that. And you get the same menu
+- [28:11.040] that you got the other way through protect PDF
+- [28:13.590] and select Microsoft sensitivity label.
+- [28:29.280] So, in addition to getting this slide deck, you'll have --
+- [28:34.700] we have a SharePoint site
+- [28:36.270] that has a lot of really helpful information.
+- [28:38.850] It's got some Frequently Asked Questions.
+- [28:42.490] It's got a quick guide on SEC R 23-2 and nonpublic information.
+- [28:49.530] And there's a decision tree that kind of walks you through
+- [28:52.790] on the questions you may want to ask yourself
+- [28:54.660] as you're trying to decide how to label a document.
+- [28:58.220] And then there's also a feedback form that you fill out
+- [29:02.660] if you have any questions.
+- [29:05.240] They come right to us, as well as the implementation
+- [29:09.630] leads for Corp Fin, Kenya and Michelle.
+- [29:15.180] And you're also welcome to email me
+- [29:19.900] or Laura Pfeffer directly.
+- [29:21.260] Our names are on the last page of this deck.
+- [29:26.150] As well as on the SharePoint site,
+- [29:28.880] there is a link to Daily Office Hours
+- [29:32.360] that occur from 11:00 to 12:00.
+- [29:35.300] We are there staffing that every day.
+- [29:37.260] And if you have a question
+- [29:38.580] and you just like to get a quick answer to it,
+- [29:42.640] you can just pop into the Office Hours,
+- [29:44.960] and we're there to discuss any questions that you may have.
+- [29:52.440] Next steps, I've kind of mentioned these along the way.
+- [29:56.290] But it'll be next week, on February 6 --
+- [29:59.390] that gives a little bit of time for folks here on the training
+- [30:04.140] to go through some of these materials,
+- [30:05.850] if you like to ask questions,
+- [30:07.850] as well as those that weren't able to make it live
+- [30:09.930] to watch the training.
+- [30:11.150] But on February 6, when you log on,
+- [30:16.680] you should start to see these sensitivity labels
+- [30:20.380] in the relevant programs.
+- [30:23.730] You know, if you have questions and regular uses of information
+- [30:29.310] that you share externally,
+- [30:31.220] it's helpful to share those regular
+- [30:34.510] workflows with your implementation leads.
+- [30:36.950] Because they can pass this on to us.
+- [30:38.990] And you can think through any impacts on workflows
+- [30:42.940] and how to address that,
+- [30:46.800] as well as not just, you know, regular uses of NPI, you know,
+- [30:52.730] and sharing that outside the building,
+- [30:54.130] but also, as I mentioned,
+- [30:56.680] if you want to get an early start on thinking
+- [30:58.630] through whether you regularly or, you know, even infrequently,
+- [31:03.630] have information that is highly sensitive,
+- [31:07.040] where you think, you know, those high labels could be something
+- [31:11.440] that we would be interested in using
+- [31:13.100] on a certain type of file that we use.
+- [31:19.050] So, that covers it . Again, I'm John Goodrich.
+- [31:22.910] We've got the feedback form link here,
+- [31:25.860] and we welcome any questions now or at any later time.
+- [31:34.860] Dana Hartz: Hi, John. This is Dana.
+- [31:36.280] We did get a couple of questions.
+- [31:40.300] So, also, just for everyone who's on the call,
+- [31:44.810] as John said, we will be, after this session,
+- [31:47.490] sending out the deck and some of those resources.
+- [31:50.010] In addition, we'll send a link to the recorded training
+- [31:54.510] so that anyone who was unable to attend today
+- [31:58.050] will have time to view this
+- [32:00.520] before the labels go live on the 6th.
+- [32:05.270] So, the question seems to be -- there are two,
+- [32:09.350] and it's related to the same thing,
+- [32:12.710] which is, when would it be in -- like for non-NPI external,
+- [32:20.610] really just trying to understand the difference
+- [32:22.170] between Personal versus Work Related.
+- [32:26.190] Do you guys have examples?
+- [32:27.610] And I think some that have come out also have been,
+- [32:30.690] you know, the staff having to respond to,
+- [32:34.150] like, OPM emails and things like that.
+- [32:37.700] What sort of classification would be appropriate
+- [32:41.810] for something like that?
+- [32:44.000] Jonathan Goodrich: Yeah.
+- [32:45.230] So, if it still relates to your SEC duties
+- [32:50.280] but does not contain nonpublic information,
+- [32:53.240] so if it's public information, then the Work Related
+- [32:57.930] would be the appropriate label.
+- [32:59.730] But if it's about, you know, your childcare,
+- [33:03.240] or it's about your personal documents,
+- [33:06.640] then the Personal would be the best option.
+- [33:09.600] So, you know, another example, separate from, say,
+- [33:12.640] responding to an OPM email that you may get is,
+- [33:16.320] you know, say that you have finalized a regulation,
+- [33:24.630] and you're sending it out to the Federal Register.
+- [33:28.920] It's been approved by the Commission,
+- [33:31.030] and it's ready to be published.
+- [33:34.230] That document is no longer nonpublic
+- [33:38.270] and sending that to the Federal Register would be Work Related.
+- [33:43.990] But it doesn't contain nonpublic information.
+- [33:46.540] And so, that would be an instance
+- [33:48.440] where you would use that label.
+- [33:57.480] Your mic is not on.
+- [34:00.340] Dana Hartz: Thank you. Yes.
+- [34:01.550] Another question we got is how this labeling --
+- [34:05.070] if and how it would impact some of the Corp Fin systems
+- [34:08.750] we have, such as SWAT, where our comment letters go out.
+- [34:13.410] I know we've talked about this.
+- [34:16.850] Did you want to give an answer or --
+- [34:22.000] I think it's not going to impact it, right?
+- [34:24.590] The OIT said that the systems were outside of their scope --
+- [34:27.960] the scope for this initiative. And so --
+- [34:29.740] Jonathan Goodman: Right.
+- [34:30.970] So, system-generated emails aren't being labeled.
+- [34:36.060] And so, they just won't have an impact on that workflow.
+- [34:41.950] If anyone has questions about, like,
+- [34:43.920] other group email boxes that function through
+- [34:46.940] Outlook, we're happy to work with folks
+- [34:50.650] on how the labels may, if at all, impact those.
+- [34:56.990] Dana Hartz: Okay.
+- [34:58.640] Michelle, did you have anything to say about that?
+- [35:00.800] Okay. Another question we got is,
+- [35:03.370] "If I create a document
+- [35:04.680] that's intended to be sent to an external party,
+- [35:08.460] will it initially be labeled as NPI -
+- [35:10.830] Internal and then converted to NPI -
+- [35:14.370] External prior to being sent?" And you want to take that, John?
+- [35:21.280] Jonathan Goodman: Yeah. Sure.
+- [35:22.540] So, I mean, the way I would think about this,
+- [35:25.590] and it's sort of -- it will -- may depend on the specifics,
+- [35:28.500] but typically, when I'm drafting something,
+- [35:31.570] even if it was ultimately a letter for the Chair
+- [35:34.820] that was going to be posted publicly
+- [35:37.450] or at least released externally,
+- [35:40.870] while I'm working on that draft internally, it's in --
+- [35:44.790] still in a draft mode, and it's deliberative.
+- [35:47.250] And that is nonpublic information at that moment.
+- [35:50.910] So, as we go through different processes, draft regulation,
+- [35:55.890] ultimately up to publishing in the Federal Register,
+- [35:58.470] the information
+- [35:59.730] and how we categorize it changes over time.
+- [36:02.380] And so, yes, there may be instances
+- [36:04.360] where you create a document, and it has one label.
+- [36:07.740] And the ultimate end product
+- [36:09.540] is going to appropriately have a different label.
+- [36:14.600] Dana Hartz: And I think the big thing
+- [36:15.930] just to remember is that when you --
+- [36:18.480] before you are sending that email
+- [36:20.150] that you will attach that file, changing the label.
+- [36:23.250] Because I think, at least from our testers,
+- [36:26.190] that was the thing that they found the most,
+- [36:30.100] was when they had issues --
+- [36:32.290] and it was a system working correctly,
+- [36:33.810] but it was they would sometimes change the label on an email
+- [36:38.080] as to who the intended party was.
+- [36:40.590] But if there was an attachment, if --
+- [36:42.650] like you had said earlier, if they're not --
+- [36:44.470] if they don't have the same label type,
+- [36:46.470] you will get the pop-up.
+- [36:47.830] And then eventually, when the blocking is implemented,
+- [36:50.790] that would be blocked.
+- [36:53.440] Okay There's a question here.
+- [36:54.770] Jonathan Goodrich: [unintelligible]
+- [36:55.970] Dana Hartz: And this is an internal one.
+- [36:57.450] Oh, go ahead, John.
+- [36:58.670] Jonathan Goodrich: I was going to say
+- [36:59.870] that that that brought in my mind one tip
+- [37:02.250] that I will pass on that
+- [37:03.760] I think is helpful to note from the get-go,
+- [37:07.010] which is in particular when it comes to PDFs,
+- [37:10.320] for those of you that need to sign PDFs
+- [37:13.190] and send them outside of the agency,
+- [37:15.480] it's important to think about what the label
+- [37:18.320] is before you apply the signatures.
+- [37:21.170] Because once you apply the signatures, the --
+- [37:25.420] you're no longer able to edit the metadata of a file.
+- [37:30.600] So, that includes, no longer able to change
+- [37:33.380] what label is on it. So, if it had an internal label
+- [37:36.420] and then the party signed the label,
+- [37:40.600] that document is further locked from changing the label.
+- [37:44.840] So, the idea being, if you have a contract or letter
+- [37:49.910] that you need to send outside of the agency,
+- [37:52.760] and you first have to sign it, change it to NPI -
+- [37:55.790] External or if it's appropriate,
+- [37:58.230] Does Not Contain NPI Work Related,
+- [38:00.450] and then sign the document. There are, you know,
+- [38:04.940] ways to work around it, of course.
+- [38:06.710] If all the parties are internal and you miss this step,
+- [38:10.960] you can just resign the document.
+- [38:13.150] If the -- if it's not important to the external party
+- [38:17.330] that these certificates within the Adobe PDF signature function
+- [38:22.390] are there, you can also print the PDF to the PDF
+- [38:26.760] and then change the label on that document.
+- [38:28.900] But again, those things are -- if they pop up for you
+- [38:33.350] and you don't quite remember all that, that's okay.
+- [38:36.040] Reach out, pop into Office Hours,
+- [38:38.850] and we'll be able to work you through those.
+- [38:41.360] Dana Hartz: Great.
+- [38:42.710] We do have a couple more questions.
+- [38:45.340] One that's more internal for Corp Fin
+- [38:49.110] and how we're helping support OIT with this initiative is,
+- [38:52.900] "Do we have a list of the people in Corp Fin
+- [38:55.070] that tested the system?"
+- [38:56.710] And yes, that is a list that we have.
+- [38:58.540] We can make that available. Also, for the staff to know,
+- [39:03.470] we had asked each office to kind of keep track
+- [39:06.830] of some of the broader categories of work product
+- [39:13.830] that they were generating and sending out,
+- [39:16.060] and that is to use as a resource within the staff,
+- [39:18.910] to see if, you know, they've kind of identified
+- [39:22.090] what the label type should be for that internally,
+- [39:24.030] within the office.
+- [39:25.240] So, in addition to the list of people,
+- [39:27.300] we do have the more common types of information
+- [39:31.130] that the offices are generating
+- [39:32.610] and the potential label type for that.
+- [39:35.270] And we'll share that with the staff.
+- [39:39.760] In addition, we got a question on,
+- [39:43.890] "This email type is common in DRP.
+- [39:46.870] If I receive company contact and counsel contact
+- [39:50.410] emails to prepare comment letters, are they NPI -
+- [39:53.940] Internal or not NPI Work Related,
+- [39:57.810] as counsel emails are publicly posted on law firm websites,
+- [40:01.800] but I don't think the company emails usually are?"
+- [40:04.350] Jonathan Goodrich: Right.
+- [40:06.190] Dana Hartz: So, how would you treat that
+- [40:07.670] information? Yeah.
+- [40:10.700] Jonathan Goodrich: What I would say, one,
+- [40:13.360] I'd want to know the full specifics for most --
+- [40:16.670] for giving a sort of broad answer.
+- [40:18.910] But in most instances, the back and forth,
+- [40:22.560] "Whereas, as noted,"
+- [40:23.910] is not going to be something that is public.
+- [40:26.980] If you have an exchange with a party
+- [40:28.670] who's trying to submit a letter,
+- [40:30.950] that back and forth is most likely nonpublic information.
+- [40:34.160] Whereas the -- even if the end goal
+- [40:37.260] is that they are submitting something
+- [40:39.120] that will be posted publicly. So, in that case, NPI -
+- [40:45.060] External would be your most likely --
+- [40:48.930] the label to use there.
+- [40:52.220] Dana Hartz: Okay.
+- [40:54.390] And one more thing that we just do want to make sure is clear
+- [40:58.570] is that the default label for everything is
+- [41:02.550] the internal, nonpublic information default.
+- [41:08.690] So, any other label other than that,
+- [41:11.340] it's a manual assignment from the staff.
+- [41:13.800] The staff is actually going to physically
+- [41:15.610] select a different label type.
+- [41:18.580] And then, as John had demonstrated,
+- [41:20.800] you will be getting a pop-up box.
+- [41:23.280] And then you will just say, like, why that label type
+- [41:27.190] was changed. That was just some of my
+- [41:30.780] [spelled phonetically] clarification on that.
+- [41:33.620] And, okay, there's a lot of sec patterns that are coming.
+- [41:40.960] And I know we're at time.
+- [41:44.490] John, are you okay -- do you have enough time for me
+- [41:47.410] to just share these sec patterns?
+- [41:49.110] And then I do just want to make sure, you know,
+- [41:51.860] all the staff is aware.
+- [41:53.310] As John said, both he and Laura, they do Office Hours.
+- [41:57.620] They have that email inbox that you can send to.
+- [42:01.720] Kenya and Michelle are available.
+- [42:03.880] So, you know, I'm sure there'll be questions that come up,
+- [42:07.560] you know, once you have this --
+- [42:11.030] the labeling put on your computers.
+- [42:14.280] And so, you know, don't hesitate to reach out.
+- [42:16.940] Feel free to talk to the people
+- [42:19.290] who already have done the testing
+- [42:20.870] and also reference the sheets that they have.
+- [42:23.420] But, you know, there will be ways to receive guidance,
+- [42:28.690] you know, once you have this on your system.
+- [42:32.570] The next question is, "So, I guess there are instances
+- [42:37.030] when comment letters are resent.
+- [42:39.320] So, normally, the comment letters
+- [42:40.540] will go out through our system, SWAT.
+- [42:43.160] Sometimes they have to be resent.
+- [42:45.220] And they'll be resent in Outlook, apparently.
+- [42:50.040] And it isn't public yet, until they're publicly released
+- [42:54.520] 45 days after the filing is closed.
+- [42:57.730] So, does that get marked as NPI -
+- [42:59.200] External even though it will be public after a period of time?"
+- [43:03.080] So, is assessment done at that point in time
+- [43:05.320] that the email is sent or like down --
+- [43:08.480] if it's eventually going to be public,
+- [43:12.120] would you not use the NPI label?
+- [43:16.230] Jonathan Goodrich: What I would say is,
+- [43:18.060] I would suggest that we discuss that with the Counsel's Office
+- [43:22.750] as to how they want to view
+- [43:25.520] how that may change at a particular point in time.
+- [43:28.000] And, again, like from the Office of Information Technology,
+- [43:33.090] I know we are rolling this out.
+- [43:34.640] But ultimately, it's, you know, your Counsel's Office,
+- [43:38.150] as well as OGC, who is the agency-wide arbiter
+- [43:43.320] of what is nonpublic information.
+- [43:45.320] We certainly have facility in that
+- [43:47.060] as we are doing this training.
+- [43:48.780] But when it comes to sort of nuanced calls like that,
+- [43:53.470] I would suggest that we think through that deliberately
+- [43:58.530] and give you the accurate answer.
+- [44:04.000] Dana Hartz: Okay. Great.
+- [44:10.320] And I think that might be -- there are questions on guidance.
+- [44:18.570] And I think, at this time, you know,
+- [44:21.140] John has gone over quite a bit of resources that are available.
+- [44:24.540] They're agency-wide resources.
+- [44:26.970] Those will all be made available to the staff.
+- [44:30.120] And then I think we'll continue to evaluate
+- [44:32.010] internally within Corp Fin
+- [44:33.480] if there's any additional guidance
+- [44:35.140] that we need to supplement. And if we do, of course,
+- [44:39.390] we'll make it available when it's ready.
+- [44:43.040] So, I think that is all for now.
+- [44:46.720] Jonathan Goodrich: [unintelligible]
+- [44:48.560] from Daniel to follow up to his first question in the chat here.
+- [44:52.380] And he just says, "If I email a document intended to be sent
+- [44:55.590] to an external party to my supervisor for approval,
+- [44:59.180] would that document be labeled as NPI -
+- [45:01.320] Internal and then after approval by my supervisor,
+- [45:04.660] converted to NPI - External?
+- [45:07.190] And can I change the label
+- [45:08.510] the document that is already attached to an email?"
+- [45:12.070] And so, there, yeah, I would --
+- [45:15.460] what I would say is while it's still --
+- [45:18.780] the document is still under review and not yet finalized,
+- [45:22.830] it sounds like the appropriate label would be NPI - Internal.
+- [45:25.900] And you would want to keep that on the label
+- [45:27.470] until it has been approved by the necessary supervisors
+- [45:33.260] to ultimately make that external.
+- [45:35.950] And that has the added benefit of not
+- [45:39.540] just being sort of accurate as to the stage of the document,
+- [45:42.860] but it also prevents the document
+- [45:44.480] from being inadvertently sent outside the agency,
+- [45:48.160] when it's not ready or authorized for release.
+- [45:53.220] Now, as far as sort of the technical question of whether,
+- [45:55.660] can I -- you change the label
+- [45:57.760] on a document that's already attached,
+- [45:59.900] the answer would be no.
+- [46:01.350] You couldn't get the email back from your supervisor
+- [46:06.590] with that attachment and then forward it on, externally.
+- [46:10.060] Because you're going to have to save the document
+- [46:12.830] to actually change that metadata sensitivity label
+- [46:16.490] to its appropriate label to allow for external release.
+- [46:24.330] Dana Hartz: So, we'd have to save it down
+- [46:25.770] and change the label
+- [46:27.470] and then reattach it to send it to a different party.
+- [46:31.960] Jonathan Goodrich: Yeah.
+- [46:33.200] And so, just another question, "Does a label get applied
+- [46:37.340] to external emails that we receive?"
+- [46:40.240] So, no. Labels are applied to the documents
+- [46:43.810] that we create and save ourselves,
+- [46:46.790] not to incoming emails that we receive.
+- [46:54.900] The -- as a flag, old files that we have --
+- [46:59.280] say there's an instance where you're working
+- [47:02.230] with another government agency, and they wanted some old studies
+- [47:08.180] that we have from a prior rule that we worked on.
+- [47:14.470] And you don't need to do anything to the files.
+- [47:16.410] You're not -- you don't need to save them or edit them.
+- [47:19.710] So, they are -- they exist on our system, in your files,
+- [47:23.410] pre you ever having a dream of what a sensitivity label is.
+- [47:29.280] You would not have to label those documents
+- [47:32.510] to send them outside the agency. They're just unlabeled files
+- [47:36.430] that you would be able to send outside of the agency,
+- [47:40.880] assuming you have the authority to do so.
+- [47:46.180] Dana Hartz: Okay.
+- [47:47.400] I don't have any more on my end.
+- [47:49.030] John, I don't know if you've got any more direct questions.
+- [47:54.040] Jonathan Goodrich: No.
+- [47:55.270] Dana Hartz: Okay. All right.
+- [47:56.790] Well, thank you, everyone, for attending.
+- [47:59.410] And thank you so much John and Laura for this presentation
+- [48:04.490] and support of our office during this rollout.
+- [48:07.310] Jonathan Goodrich: Yeah.
+- [48:08.520] We really appreciate everyone.
+- [48:09.970] I know there's lots of change and challenges
+- [48:14.580] around these days. And so, I know a little extra
+- [48:19.290] is not necessarily what you want to be doing.
+- [48:22.180] But we really appreciate everyone's support
+- [48:24.920] for getting this roll out through your division.
+- [48:29.330] Dana Hartz: All right. Take care, everybody.

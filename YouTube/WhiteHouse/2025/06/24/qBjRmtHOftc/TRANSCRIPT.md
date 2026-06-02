@@ -1,0 +1,155 @@
+<!-- source: https://www.youtube.com/watch?v=qBjRmtHOftc -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: qBjRmtHOftc -->
+<!-- date_published: 2025-06-24T13:10:41+00:00 -->
+<!-- date_accessed: 2026-06-02T01:23:32.495796+00:00 -->
+
+# Transcript: President Trump Gaggles with Press Before Departing the White House, June 24, 2025
+
+- [00:10.639] I don't think so. But I'm not happy that
+- [00:12.639] Israel's going out now. There was one
+- [00:14.960] rocket that I guess was fired overboard.
+- [00:17.359] It was after the time limit and it
+- [00:20.240] missed its target. And now Israel's
+- [00:23.039] going out. These guys got to calm down.
+- [00:25.359] Ridiculous.
+- [00:27.359] Oh, sorry. I didn't like plenty of
+- [00:29.599] things I saw yesterday. I didn't like
+- [00:31.199] the fact that Israel unloaded right
+- [00:33.200] after we made the deal. They didn't have
+- [00:35.280] to unload and I didn't like the fact
+- [00:37.760] that the retaliation was very strong.
+- [00:40.640] But in all fairness, Israel unloaded a
+- [00:42.879] lot. And now I hear Israel just went out
+- [00:45.600] because they felt it was violated by one
+- [00:48.399] rocket that didn't land anywhere. That's
+- [00:50.879] not what we want. I'll tell you. And I'm
+- [00:52.399] telling you, I'm not happy about that
+- [00:53.920] Israel either.
+- [00:55.590] [Music]
+- [00:57.520] because all I do is play both sides. I'm
+- [00:59.520] going now, as you know, to NATO. Some of
+- [01:02.000] you are going with me and I think it's
+- [01:03.680] going to be uh successful. We'll see.
+- [01:06.240] I'll let you know.
+- [01:09.040] You can move on in the Middle East.
+- [01:11.439] Women who managed to escape. What are
+- [01:14.159] your future plans for the reasons for
+- [01:16.240] Saudi Arabia, Israel, Gaza, the
+- [01:18.000] hostages? Look, you're asking me about
+- [01:20.159] women in the Middle East. It's getting a
+- [01:22.560] lot better. Things are happening at a
+- [01:24.320] high level. Uh, as you know, Saudi
+- [01:26.479] Arabia has done a really good job. It's
+- [01:28.320] coming out uh far far faster than I
+- [01:31.680] thought. So, we're very happy about
+- [01:33.439] what's happening with women in the
+- [01:34.960] Middle East. No, I'm talking about the a
+- [01:36.799] new dawn in the Middle East that you
+- [01:38.240] managed to escape last night. Yeah. It's
+- [01:40.320] a, you know, the region is going to a
+- [01:42.640] new place with women. Can you tell
+- [01:45.119] what's your future plans for Gaza for
+- [01:47.360] the host? It's a new dawn. I appreciate
+- [01:50.079] the question. You're very nice. Who are
+- [01:51.520] you? Thank you. Maria calls from
+- [01:53.119] Israelis.
+- [01:54.640] Well, we have to have Israel calm down
+- [01:56.479] because they went on a mission this
+- [01:57.920] morning. I got to get Israel to calm
+- [02:00.320] down now. Do you speak with
+- [02:05.360] everybody?
+- [02:07.119] President,
+- [02:10.319] both sides not to violate the ceasefire,
+- [02:13.120] but we both coming from the region
+- [02:14.959] suggest that the sides accuse each other
+- [02:17.920] for violating the I think they both
+- [02:20.160] violated it. Uh, I don't think they I'm
+- [02:22.480] not sure they did it intentionally. They
+- [02:24.080] couldn't reign people back. I don't like
+- [02:26.319] the fact that Israel went out this
+- [02:27.920] morning at all. And I'm going to see if
+- [02:29.680] I can stop it. So, as soon as I get away
+- [02:32.000] from you, I'm going to see if I can stop
+- [02:34.080] it. Okay.
+- [02:40.130] [Applause]
+- [02:42.879] been completely demolished. I think the
+- [02:44.640] reason we're here is because those
+- [02:46.800] pilots, those B2 pilots did an
+- [02:48.800] unbelievable job. And you know, the fake
+- [02:51.280] news, like CNN in particular, they're
+- [02:53.360] trying to de, you know, they're trying
+- [02:54.640] to say, "Well, I agree that it was
+- [02:56.959] destroyed, but maybe not that
+- [02:58.480] destroyed." You know what they're doing?
+- [03:00.160] They're really hurting great pilots that
+- [03:02.000] put their lives in the line. CNN is
+- [03:04.560] scum, and so is MSDNC. They're all And
+- [03:07.760] frankly, the networks aren't much
+- [03:09.280] better. It's all fake news. But they
+- [03:11.760] should not have done that. Those pilots
+- [03:14.080] hit their targets. Those targets were
+- [03:15.840] obliterated. And the pilots should be
+- [03:18.000] given credit. They're not after the
+- [03:19.760] pilots. They're after me. They want to
+- [03:21.200] try and demean that Iran will rebuild
+- [03:23.360] it. No. Iran will never rebuild its
+- [03:26.560] nuclear from there. Absolutely not. That
+- [03:29.440] place is under rock. That place is
+- [03:31.599] demolished. The B2 pilots did their job.
+- [03:34.640] They did it better than anybody could
+- [03:36.239] even imagine. They hit late in the
+- [03:38.640] evening. It was dark with no moon and
+- [03:41.120] they hit that target with every one of
+- [03:43.040] those things and that place is gone. But
+- [03:45.920] when I see CNN all night long they're
+- [03:48.000] trying to say, "Well, maybe it wasn't
+- [03:50.239] really as demolished as we thought it
+- [03:52.560] was demolish." You take a look at the
+- [03:54.319] pin pricks and you see that place is
+- [03:57.200] gone. And I will say, I think CNN ought
+- [04:00.000] to apologize to the pilots of the B2s. I
+- [04:03.040] think that MSDNC ought to apologize.
+- [04:06.400] I think these guys really, these
+- [04:08.000] networks and these uh cable networks are
+- [04:11.519] real losers. You really are. You're real
+- [04:13.519] losers.
+- [04:14.780] [Music]
+- [04:17.759] You're gutless. You're gutless losers. I
+- [04:20.079] say that to CNN cuz I watch it. I have
+- [04:22.960] no choice. I got to watch that garbage.
+- [04:24.560] It's all garbage. It's all fake news.
+- [04:26.800] But I think CNN is a a gutless group of
+- [04:29.919] people. And the people that run it,
+- [04:31.759] nobody even knows it's been sold so many
+- [04:33.520] times. But the people that run it ought
+- [04:35.440] to be ashamed. MSDNC, a guy named Brian
+- [04:38.240] Roberts, he heads it. He's a disgrace.
+- [04:40.479] He's a weak, pathetic disgrace.
+- [04:43.360] Canada violated the peace agreement and
+- [04:45.919] the peace fighter agreement. Do you
+- [04:47.520] believe that Iran will be using?
+- [04:50.320] Yeah, I do. They violated, but Israel
+- [04:52.720] violated it, too. Are you questioning if
+- [04:54.720] Israel? Israel, as soon as we made the
+- [04:57.040] deal, they came out and they dropped a
+- [04:58.800] load of bombs the likes of which I've
+- [05:00.560] never seen before. The biggest load that
+- [05:02.720] we've seen. I'm not happy with Israel.
+- [05:05.280] You know, when when I say, "Okay, now
+- [05:06.960] you have 12 hours." You don't go out in
+- [05:09.440] the first hour and just drop everything
+- [05:11.199] you have on them. So, I'm not happy with
+- [05:12.800] them. I'm not happy with Iran either.
+- [05:15.440] But I'm really unhappy if Israel is
+- [05:17.360] going out this morning because of one
+- [05:19.120] rocket that didn't land that was shot
+- [05:21.840] perhaps by mistake that didn't land. I'm
+- [05:24.400] not happy about that.
+- [05:27.520] You know what we have? We basically have
+- [05:29.280] two countries that have been fighting so
+- [05:32.000] long and so hard that they don't know
+- [05:34.400] what the [ __ ] they're doing. Do you
+- [05:36.000] understand that?
+- [05:38.730] [Music]

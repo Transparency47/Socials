@@ -1,0 +1,1205 @@
+<!-- source: https://www.youtube.com/watch?v=z0C7H3biiYg -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: z0C7H3biiYg -->
+<!-- date_published: 2025-07-23T18:42:38+00:00 -->
+<!-- date_accessed: 2026-06-02T02:46:46.176403+00:00 -->
+
+# Transcript: Press Secretary Karoline Leavitt Briefs Members of the Media, July 23, 2025
+
+- [00:06.460] Karoline Leavitt: Hello. Good afternoon, everybody.
+- [00:09.390] We have a special guest with us today
+- [00:10.840] who will speak momentarily.
+- [00:12.680] But first, I would like to begin with a message
+- [00:15.410] from the White House to the families of the victims
+- [00:18.430] in the brutal murder case in Ohio – in Idaho,
+- [00:21.340] who were sharing their heart-wrenching stories
+- [00:23.480] about their loved ones before the court today
+- [00:26.040] and addressing the evil killer who took four precious souls.
+- [00:29.920] We are so sorry for the grief
+- [00:31.510] and the pain you have experienced
+- [00:33.450] at the hands of a vicious and evil killer.
+- [00:36.780] Our nation grieves with you,
+- [00:38.470] and we will never forget the precious souls
+- [00:40.560] who were lost in this horrific act of evil.
+- [00:43.810] If it were up to The President,
+- [00:45.330] he would have forced this monster to publicly explain
+- [00:48.030] why he chose to steal these innocent souls.
+- [00:51.310] May God bless and watch over everyone affected
+- [00:53.970] by this unimaginable tragedy,
+- [00:56.640] especially the parents who lost their children.
+- [00:59.610] Let me begin with a few scheduling items off the top.
+- [01:02.470] Later this afternoon,
+- [01:03.770] President Trump will deliver the keynote address at the
+- [01:06.510] Winning the AI Race Summit here in Washington DC.
+- [01:10.220] President Trump believes it is non-negotiable
+- [01:12.680] that the United States wins the AI race,
+- [01:15.120] which is why today, President Trump will announce
+- [01:17.850] a bold and comprehensive AI action plan to sustain
+- [01:21.840] and enhance America's global AI dominance.
+- [01:24.930] Under President Trump's leadership,
+- [01:26.740] our country will lead the world in AI
+- [01:28.990] to secure a brighter future for all Americans,
+- [01:32.410] massively grow our economy,
+- [01:34.100] and protect our national security.
+- [01:36.990] The President will also sign three executive orders
+- [01:39.900] at the event this afternoon.
+- [01:41.780] On Friday morning,
+- [01:43.020] President Trump will travel to Scotland
+- [01:44.830] for a working visit that will include a bilateral meeting
+- [01:47.620] with Prime Minister Starmer
+- [01:49.250] to refine the historic US-UK trade deal.
+- [01:53.340] On the topic of trade, yesterday,
+- [01:55.050] President Trump accomplished something no other president
+- [01:57.910] has ever achieved.
+- [01:59.650] The President secured and announced
+- [02:01.750] three major trade deals with the Philippines,
+- [02:04.870] Indonesia, and Japan, all in one day.
+- [02:08.680] President Trump is finally putting a stop to our country
+- [02:11.910] getting ripped off.
+- [02:13.240] As a result of The President's successful negotiating tactics,
+- [02:16.740] many foreign markets are now being opened
+- [02:19.250] to American industries for the very first time,
+- [02:22.340] and harmful trade barriers are being broken down.
+- [02:26.060] Thanks to President Trump, these countries around the world
+- [02:28.380] are agreeing to open their markets
+- [02:30.350] to American-made products and goods for the first time,
+- [02:33.140] which will lead to a boom in sales
+- [02:35.130] and profits for American businesses right here at home.
+- [02:39.550] As President Trump said, he will only lower tariff rates
+- [02:43.140] if a country agrees to open their market
+- [02:46.090] to American-made products.
+- [02:47.810] If not, they will continue to face tariffs
+- [02:50.410] and pay a steep price to do business
+- [02:52.440] in the United States of America,
+- [02:54.310] which remains the best market on the face of the planet.
+- [02:58.170] Also, this week, The President officially marked six months
+- [03:01.390] here at the White House.
+- [03:03.670] He made big promises to the American people
+- [03:06.050] on the campaign trail last year,
+- [03:07.960] and he has unquestionably delivered
+- [03:10.020] on those promises in record time.
+- [03:12.670] The President has defeated the Biden inflation crisis
+- [03:15.600] to make America affordable again.
+- [03:17.750] Core inflation is currently at its lowest level in four years,
+- [03:21.380] and prices for everyday goods are falling.
+- [03:24.460] The President's pro-growth policies have fueled massive job
+- [03:27.850] growth across our country.
+- [03:29.810] Since The President has taken office,
+- [03:31.540] our economy has added nearly 700,000 new jobs
+- [03:35.750] with native-born American workers
+- [03:37.940] accounting for all job gains.
+- [03:40.450] The President has put the economic needs
+- [03:42.350] of families and of workers first.
+- [03:44.370] He signed the largest tax cuts for the middle class
+- [03:47.420] in American history,
+- [03:48.640] including no tax on tips, overtime, and social security.
+- [03:52.990] We have also seen The President unquestionably deliver
+- [03:55.990] on his promise to secure our southern border.
+- [03:58.980] He has ended Biden's illegal alien invasion,
+- [04:01.620] and for two months in a row,
+- [04:03.060] zero illegal aliens were released into our country.
+- [04:06.970] The President has also, as you all know,
+- [04:08.900] initiated the largest mass deportation campaign
+- [04:12.030] in American history.
+- [04:13.830] The President has also restored law and order
+- [04:15.940] to make America safe again,
+- [04:17.440] another campaign promise he vowed to the American public.
+- [04:20.520] The United States of America is currently on track
+- [04:23.070] for its lowest murder rate on record following this shift
+- [04:27.700] from the last administration to the Trump administration.
+- [04:30.840] The President has also ended
+- [04:32.350] Joe Biden's reckless war on American energy.
+- [04:35.270] US oil and natural gas production are now surging.
+- [04:38.190] In summer, gas prices reached their lowest level since 2021.
+- [04:42.620] The President has also rebuilt our military,
+- [04:45.140] another campaign promise.
+- [04:46.360] He just signed the largest military investment
+- [04:48.950] in decades to modernize our armed forces
+- [04:52.000] with cutting-edge technology to replenish our stockpiles
+- [04:55.410] and provide American troops with the best equipment in the world.
+- [04:59.740] The US Army, Navy, Air Force, and Space Force have all reached
+- [05:03.190] their recruitment goals months in advance.
+- [05:05.860] The President has restored America's standing
+- [05:08.160] on the world stage,
+- [05:09.380] brought back peace through strength,
+- [05:11.110] and brokered numerous peace agreements to end wars.
+- [05:14.090] Again, all of this, in just six months.
+- [05:16.690] He obliterated Iran's nuclear program
+- [05:18.920] to end the war between Israel and Iran,
+- [05:21.480] got NATO members to raise their defense spending to 5% of GDP,
+- [05:25.520] and secured a ceasefire between India and Pakistan,
+- [05:28.770] as well as brokering a historic agreement between Rwanda
+- [05:32.050] and the Democratic Republic of the Congo.
+- [05:34.460] The President has already received three different Nobel
+- [05:37.060] Peace Prize nominations for his peacemaking efforts.
+- [05:40.630] Again, all of this progress, all of these accomplishments
+- [05:43.220] have occurred in just six months.
+- [05:45.330] We are truly just getting started,
+- [05:46.690] and we look forward to working with all of you
+- [05:48.260] for the next three and a half years.
+- [05:50.360] On another matter, over the past few days,
+- [05:52.820] Director of National Intelligence, Tulsi Gabbard,
+- [05:55.040] has unveiled shocking new evidence
+- [05:57.270] that former President Barack Obama
+- [05:59.170] and top aides in the Obama administration
+- [06:01.830] conspired to subvert
+- [06:03.790] President Trump's 2016 election victory
+- [06:07.210] and undermine the democratic will of the American people.
+- [06:11.000] While publicly pretending to engage
+- [06:13.200] in a peaceful transfer of power,
+- [06:15.250] in private, former President Obama
+- [06:17.440] went to great and nefarious lengths
+- [06:19.840] to try to sow discord among the public
+- [06:22.540] and sabotage his successor, President Trump.
+- [06:25.950] The new evidence released by the Director
+- [06:27.900] of National Intelligence, who is here with me today,
+- [06:30.370] confirms that the Obama administration
+- [06:32.420] manufactured politicized intelligence,
+- [06:35.190] which was later used as the justification
+- [06:38.110] for baseless smears against President Trump
+- [06:40.750] in an effort to try to delegitimize his victory
+- [06:43.390] before he even took the oath of office.
+- [06:46.780] The truth is that President Trump
+- [06:48.360] never had anything to do with Russia,
+- [06:51.210] and the Russia collusion hoax was a massive fraud
+- [06:54.720] perpetuated on the American people from the very beginning.
+- [06:58.230] And the worst part of this is Obama knew that truth,
+- [07:01.490] and so did all of the other corrupt officials
+- [07:03.670] involved in this scam,
+- [07:05.270] including former CIA Director, John Brennan,
+- [07:08.040] former Director of National Intelligence,
+- [07:09.910] James Clapper,
+- [07:11.140] former FBI Director, James Comey,
+- [07:13.570] former Deputy Director, Andrew McCabe, and many others.
+- [07:17.310] Director of National Intelligence Gabbard's
+- [07:19.120] report further confirms what we already knew.
+- [07:21.960] There was no collusion, no corruption,
+- [07:24.630] except on the part of Barack Obama
+- [07:26.840] and the weaponized intelligence agencies at the time.
+- [07:30.040] The Russia hoax was a blatant lie,
+- [07:32.240] all ginned up by Democrat political operatives
+- [07:34.750] that were signed off on by then-President Obama
+- [07:37.890] and leaked to the news media
+- [07:39.990] to launch a years-long witch hunt
+- [07:41.980] against President Trump in his first administration.
+- [07:45.440] Allies of The President, including his own son,
+- [07:48.280] Donald Trump Jr.,
+- [07:49.550] were disgustingly smeared as Russian assets,
+- [07:52.590] and some even had their lives destroyed
+- [07:55.030] because of this vicious lie.
+- [07:56.870] The President's first two years in office
+- [07:58.920] had this fake distraction hanging over it,
+- [08:01.470] and endless resources, time and political capital
+- [08:04.780] were spent having to debunk
+- [08:06.200] these lies from the highest levels of our government.
+- [08:09.790] Now, nearly 10 years later, thanks to the declassification
+- [08:13.460] of documents by Director Gabbard,
+- [08:15.200] the truth has finally come to light,
+- [08:17.340] and this truth vindicates President Trump,
+- [08:19.670] his family, and his many allies and associates
+- [08:22.200] who were smeared with defamatory lies.
+- [08:25.200] President Trump was right from the beginning about all of this,
+- [08:28.140] and we are grateful that justice can be served.
+- [08:30.980] Now, we have even more damning evidence
+- [08:33.090] implicating those who tried to sabotage
+- [08:35.030] a duly elected President
+- [08:36.590] and did grave material harm to our republic.
+- [08:39.670] Thanks to additional important work
+- [08:41.270] done by CIA Director Ratcliffe,
+- [08:43.150] Committee Chairman Rick Crawford,
+- [08:44.620] over the past few months,
+- [08:45.990] a newly declassified 2020 report prepared
+- [08:48.900] by the House Permanent Select Committee on Intelligence,
+- [08:51.540] which DNI Director Gabbard has declassified,
+- [08:54.310] found that the intel community
+- [08:56.080] did not have any direct information
+- [08:58.950] that Russian President Vladimir Putin
+- [09:01.700] wanted to help elect President Trump in 2016,
+- [09:05.300] and in fact, Russia was actively preparing
+- [09:08.170] for a Hillary Clinton victory.
+- [09:10.280] But at the unusual direction of Barack Obama at the time,
+- [09:13.980] the intel community published implausible intelligence
+- [09:17.290] suggesting otherwise. Why?
+- [09:19.320] To sabotage the incoming President.
+- [09:21.800] This is truly one of the greatest political scandals
+- [09:24.440] in American history, and reporters at legacy outlets,
+- [09:27.780] some of which are sitting in this room today,
+- [09:29.990] like the New York Times and the Washington Post,
+- [09:32.560] were ridiculously awarded Pulitzer Prizes
+- [09:34.980] for their perpetuation of this hoax.
+- [09:38.110] It's well-past time for those awards to be stripped
+- [09:40.690] from the journalists who received them.
+- [09:42.440] It is not journalism
+- [09:43.670] to propagate political disinformation
+- [09:46.010] in service of the Democrat Party
+- [09:47.870] and those in the intelligence community
+- [09:49.570] who hand over out-of-context and fake intelligence
+- [09:53.090] to push a false political narrative.
+- [09:55.870] I will now pass it over to the Director
+- [09:57.670] of National Intelligence, Tulsi Gabbard,
+- [09:59.230] to speak more about all of this,
+- [10:00.720] and then we will open it up for questions afterwards.
+- [10:03.110] Tulsi, thank you for being here.
+- [10:07.580] Tulsi Gabbard: Thank you very much.
+- [10:08.900] Good afternoon. At President Trump's direction
+- [10:11.710] and with the support and coordination
+- [10:13.540] with the House Intelligence Committee
+- [10:14.890] Chairman Rick Crawford, today,
+- [10:17.420] we've released a declassified oversight majority staff report
+- [10:21.610] that was produced in September of 2020.
+- [10:26.580] The stunning revelations that we are releasing today
+- [10:29.380] should be of concern to every American.
+- [10:31.310] This is not about Democrats or Republicans.
+- [10:33.220] This has to do with the integrity
+- [10:35.280] of our democratic republic
+- [10:37.250] and American voters having faith that the votes cast will count.
+- [10:41.970] There is irrefutable evidence
+- [10:43.540] that detail how President Obama and his national security team
+- [10:47.430] directed the creation of an intelligence
+- [10:49.900] community assessment that they knew was false.
+- [10:54.180] They knew it would promote this contrived narrative
+- [10:56.780] that Russia interfered in the 2016 election
+- [10:59.920] to help President Trump win,
+- [11:01.440] selling it to the American people as though it were true.
+- [11:04.930] It wasn't.
+- [11:06.210] The report that we released today
+- [11:07.560] shows in great detail how they carried this out.
+- [11:11.450] They manufactured findings from shoddy sources,
+- [11:14.570] they suppressed evidence and credible intelligence
+- [11:17.700] that disproved their false claims,
+- [11:20.670] they disobeyed traditional tradecraft
+- [11:23.640] intelligence community standards,
+- [11:25.780] and withheld the truth from the American people.
+- [11:28.830] In doing so, they conspired to subvert
+- [11:31.270] the will of the American people who elected Donald Trump
+- [11:34.080] in that election in November of 2016,
+- [11:37.000] they worked with their partners in the media to promote
+- [11:39.360] this lie,
+- [11:40.560] ultimately to undermine the legitimacy of President Trump,
+- [11:43.770] and launching what would be a years-long coup against him
+- [11:47.830] and his administration. We're here today
+- [11:50.560] because the American people deserve the truth,
+- [11:53.340] they deserve accountability, and they deserve justice.
+- [11:57.880] The records that we released on Friday that were ODNI records,
+- [12:02.120] Senator Chuck Grassley's released on Monday
+- [12:04.490] of what is known as the Clinton Annex,
+- [12:06.650] which was an appendix to the Department of Justice Office
+- [12:09.510] of Inspector General's 2018 report,
+- [12:12.310] as well as the House Intelligence Committee's
+- [12:14.950] majority oversight report that we're releasing today,
+- [12:17.220] all come back to and confirm the same report.
+- [12:22.340] There was a gross politicization and manipulation of intelligence
+- [12:26.230] by the Obama administration
+- [12:27.940] intended to delegitimize President Trump
+- [12:30.580] even before he was inaugurated,
+- [12:32.800] ultimately usurping the will of the American people.
+- [12:35.700] I'm going to go over the key findings
+- [12:37.980] from the House Intelligence report,
+- [12:40.820] which investigated the claims that were made
+- [12:43.620] by an intelligence community assessment
+- [12:45.290] ordered by President Obama and published
+- [12:47.320] in January of 2017.
+- [12:50.500] First, Putin's principle interests
+- [12:52.330] relating to the 2016 election
+- [12:54.110] were to undermine faith in the US democratic process,
+- [12:57.630] not show any preference of a certain candidate.
+- [13:01.140] In fact, this report shows Putin held back
+- [13:06.240] from leaking compromising material on Hillary Clinton
+- [13:09.220] prior to the election,
+- [13:10.780] instead planning to release it after the election to weaken
+- [13:14.050] what Moscow viewed as an inevitable Clinton presidency.
+- [13:18.920] In the January 2017 intelligence community assessment
+- [13:21.830] that President Obama ordered, John Brennan,
+- [13:24.610] who was CIA director at the time,
+- [13:26.690] and the intelligence community,
+- [13:27.970] intentionally suppressed intelligence that showed Putin
+- [13:31.540] was saving the most damaging material
+- [13:34.230] that he had in his possession about Hillary Clinton
+- [13:37.100] until after her potential and likely victory.
+- [13:41.900] The report goes into great detail about the information
+- [13:45.100] that Russia and Putin had on Hillary Clinton,
+- [13:47.850] which included possible criminal acts like secret meetings
+- [13:51.820] with multiple named US religious organizations
+- [13:54.780] in which State Department officials offered,
+- [13:58.030] in exchange for supporting Secretary Clinton's campaign
+- [14:00.870] for the presidency, significant increases
+- [14:03.610] in financing from the State Department.
+- [14:07.110] They also had documents that showed the patronage
+- [14:10.160] of the State Department to State Department employees
+- [14:13.560] who would go and support Hillary Clinton's presidential campaign.
+- [14:17.730] There were high-level DNC emails
+- [14:19.420] that detailed evidence of Hillary's, quote,
+- [14:21.890] "Psycho-emotional problems,
+- [14:23.840] uncontrolled fits of anger, aggression, and cheerfulness,"
+- [14:27.820] and that, "Then-Secretary Clinton
+- [14:29.790] was allegedly on a daily regimen of heavy tranquilizers."
+- [14:34.680] Then CIA Director Brennan
+- [14:36.120] and the intelligence community mischaracterized intelligence
+- [14:38.810] and relied on dubious substandard sources
+- [14:41.800] to create a contrived false narrative
+- [14:43.410] that Putin developed a, quote-unquote,
+- [14:45.150] clear preference for Trump.
+- [14:48.110] Brennan and the IC misled lawmakers
+- [14:50.090] by referencing the debunked Steele dossier to assess,
+- [14:54.330] "Russia's plans and intentions,"
+- [14:56.130] falsely suggesting that this dossier had intelligence value,
+- [15:00.380] when he knew that it was discredited.
+- [15:02.910] The intelligence community
+- [15:04.210] excluded significant intelligence
+- [15:06.320] and ignored or selectively quoted reliable intelligence
+- [15:09.390] that contradicted the Intelligence
+- [15:11.080] Community Assessment's key findings
+- [15:13.270] on Putin's alleged support for Trump.
+- [15:16.220] Including this intelligence reporting would've exposed
+- [15:19.760] the ICA's claim as implausible, if not ridiculous.
+- [15:25.140] The Intelligence Community Assessment
+- [15:26.520] omitted reliably sourced information
+- [15:28.950] such as how some Russian intelligence officials were,
+- [15:31.820] "planning for candidate Hillary Clinton's victory,"
+- [15:35.350] while others assessed neither Trump nor Clinton
+- [15:37.910] would respect Russia's interests.
+- [15:41.330] As was reflected in the ODNI documents that we released
+- [15:43.900] on Friday, multiple Intelligence Community Assessments
+- [15:46.830] released in the months leading up to the November 2016 election
+- [15:50.530] concluded that Russia had neither the intent
+- [15:52.610] nor capability to impact the outcome of the US election.
+- [15:57.200] On December 5th of 2016, the FBI and ODNI
+- [16:00.510] gave the House Intelligence Committee
+- [16:02.110] its first post-election classified briefing in
+- [16:05.560] which there was no mention of Putin aspiring
+- [16:08.360] to elect Trump by either agency.
+- [16:11.470] The Presidential Daily Brief drafted on December 8th,
+- [16:14.850] 2016 stated that no Russian or criminal actors
+- [16:18.860] impacted vote counts.
+- [16:21.010] This document was pulled just hours
+- [16:22.960] before it was to be published due to, "new guidance."
+- [16:27.320] If it had been published,
+- [16:28.670] it would've been briefed to both President Obama
+- [16:31.370] and President-elect Donald Trump.
+- [16:34.360] On December 9th, 2016,
+- [16:35.900] a National Security Council meeting was called to gather
+- [16:38.150] President Obama's Senior National Security officials,
+- [16:40.480] which included CIA Director, Brennan,
+- [16:43.190] then Obama DNI, James Clapper, Susan Rice, and others.
+- [16:47.700] Following that secret meeting,
+- [16:49.150] DNI Clapper's assistant sent an email
+- [16:51.400] to the intelligence community with the subject line,
+- [16:54.140] "POTUS tasking on Russia election meddling,"
+- [16:57.760] tasking ODNI leaders to create a new assessment
+- [17:01.010] per The President's request.
+- [17:03.920] The House Intelligence Committee oversight report
+- [17:05.820] that we released today reveals that,
+- [17:07.920] "Unlike routine intelligence community analysis,
+- [17:10.560] the Intelligence Community Assessment
+- [17:12.470] was a high-profile product
+- [17:14.530] ordered by The President, President Obama.
+- [17:18.270] It directed senior intelligence community agency heads
+- [17:21.510] and created an Intelligence Community Assessment
+- [17:25.440] limited to just five analysts using one principle drafter."
+- [17:30.330] This is not something that occurs in the normal path
+- [17:34.160] of producing an Intelligence Community Assessment
+- [17:37.240] that reflects the views across the intelligence community.
+- [17:40.970] The production of this Intelligence
+- [17:42.310] Community Assessment
+- [17:43.540] was subject to unusual directives directly
+- [17:45.700] from The President and senior political appointees,
+- [17:48.910] especially the former Director of the CIA, John Brennan.
+- [17:53.090] The House Intelligence Committee Oversight Report
+- [17:55.680] also shows how later that same day on December 9th,
+- [17:58.800] Brennan ordered the publication of,
+- [18:00.980] "Substandard reporting on Russian activities,"
+- [18:04.050] which had previously been withheld from publication
+- [18:06.760] of prior assessments because the information was judged,
+- [18:10.130] "To have not met long-standing publication standards."
+- [18:14.040] Some of the information later used
+- [18:16.030] in the Obama-ordered assessment
+- [18:18.880] over the objections of veteran CIA officers was,
+- [18:22.480] "Unclear or from unknown sources."
+- [18:26.810] The Intelligence Committee's Oversight Report
+- [18:28.470] reveals that CIA Director Brennan
+- [18:30.400] overruled senior CIA officers
+- [18:33.110] who challenged the Obama-ordered intelligence assessment,
+- [18:37.420] stating, "We don't have direct information
+- [18:40.060] that Putin wanted to get Trump elected."
+- [18:43.260] Yet the Obama-directed assessment was published
+- [18:45.760] on January 6th, 2017, which explicitly stated,
+- [18:50.070] "We assess Putin and the Russian government
+- [18:52.110] aspired to help President-elect Trump's election chances
+- [18:55.480] when possible by discrediting Secretary Clinton
+- [18:58.540] and publicly contrasting her unfavorably to him."
+- [19:03.930] The CIA and FBI, then led by John Brennan and James Comey,
+- [19:09.390] expressed high confidence in this judgment,
+- [19:12.290] while the NSA expressed moderate confidence.
+- [19:15.930] Yet as the report we released today shows,
+- [19:18.760] the ICA, the Intelligence Community Assessment
+- [19:21.050] did not cite any report where Putin indicated
+- [19:24.790] helping Trump win was an objective.
+- [19:27.900] The opposite is true.
+- [19:30.690] With regards to the Steele dossier,
+- [19:32.180] we now know that one of the source documents
+- [19:34.690] that the Obama administration used in the creation
+- [19:37.250] of this intelligence assessment in January of 2017
+- [19:41.490] was none other than the discredited unverified
+- [19:43.590] Steele dossier. The House Intel Report states, "
+- [19:47.130] Contradicting public claims by then CIA Director Brennan
+- [19:50.890] that the dossier was not in any way incorporated
+- [19:54.100] into this intelligence assessment,
+- [19:56.600] the dossier was referenced
+- [19:58.200] in the intelligence assessment's main body text
+- [20:00.400] and further detailed in a two-page assessment annex."
+- [20:04.820] John Brennan lied and he denied using this dossier
+- [20:08.030] in this intelligence assessment that President Obama ordered
+- [20:10.600] because he knew it was discredited.
+- [20:13.680] It was a politically motivated manufactured document.
+- [20:17.350] He directed senior CIA officials to use it anyway.
+- [20:22.640] CIA officer told the House Intelligence Committee staff
+- [20:26.900] as they investigated this quote, the director of the CIA,
+- [20:30.580] John Brennan, refused to remove it.
+- [20:33.540] And when confronted with the dossiers,
+- [20:35.220] many flaws responded, "Yes, but doesn't it ring true?"
+- [20:41.450] Even the bipartisan Senate Select Committee on Intelligence
+- [20:43.990] Report published in 2020
+- [20:45.740] criticized the FBI's handling of the Steele dossier,
+- [20:48.970] noting its completely unverified nature and purposeful
+- [20:52.710] sidestepping of intelligence community procedures in its use.
+- [20:57.790] Now, President Obama, Hillary Clinton,
+- [20:59.650] John Brennan, James Clapper, James Comey and others,
+- [21:02.620] including their mouthpieces in the media,
+- [21:04.740] knowingly lied as they repeated the contrived narrative
+- [21:08.060] that was created in this January
+- [21:09.920] 2017 Intelligence Community Assessment
+- [21:12.940] with high confidence as though it were fact.
+- [21:17.070] John Brennan as CIA Director stated in a memo
+- [21:20.070] to his agency staff in December of 2016 saying,
+- [21:23.530] "There is strong consensus among us on the scope,
+- [21:27.240] nature and intent of Russian interference
+- [21:30.140] in our presidential election."
+- [21:33.890] This was reported by NBC News confirming that Brennan,
+- [21:36.870] along with James Clapper and James Comey
+- [21:38.960] agreed with the CIA's assessment that Russia intervened
+- [21:42.400] to help Trump win the presidency.
+- [21:45.130] As Obama's Director of National Intelligence,
+- [21:46.980] James Clapper was tasked with overseeing the creation
+- [21:49.610] of this assessment in January of 2017 by President Obama
+- [21:54.250] and he expressed confidence in its findings.
+- [21:57.340] In a 2018 interview with the Harvard Gazette,
+- [22:00.740] he talked about how he provided Trump
+- [22:03.210] with the same classified assessment
+- [22:04.740] that President Obama received,
+- [22:06.900] which included the high confidence judgment
+- [22:08.790] that Putin directly ordered the hacking
+- [22:11.040] and election interference.
+- [22:13.070] Clapper then went on to add, "I think they, the Russians,
+- [22:16.260] actually influenced the outcome."
+- [22:20.370] This is a brief summary of the details
+- [22:22.240] that you'll find within the House Majority Staff's Report
+- [22:26.730] in their investigation into the Obama-directed
+- [22:29.380] January 2017 Intelligence Community Assessment.
+- [22:33.010] That leads us to the very same conclusion
+- [22:35.300] that we announced in the release of our documents on Friday.
+- [22:38.970] The implications of this are far-reaching
+- [22:41.960] and have to do with the integrity
+- [22:43.750] of our democratic republic.
+- [22:45.990] It has to do with an outgoing president
+- [22:48.740] taking action to manufacture intelligence, to undermine
+- [22:52.740] and usurp the will of the American people in that election
+- [22:56.270] and launch what would be a years-long coup
+- [22:58.990] against the incoming President of the United States,
+- [23:01.190] Donald Trump. Thank you.
+- [23:05.010] Karoline Leavitt: Well, thank you Tulsi,
+- [23:06.630] and we do want to take questions on this topic
+- [23:08.750] while the Director has time for this topic.
+- [23:10.710] She will leave.
+- [23:11.950] I'm happy to take questions on other matters after that,
+- [23:14.440] but if anyone has questions for Director Gabbard,
+- [23:16.570] you're welcome to ask them.
+- [23:17.790] We'll start with our new media seat as always.
+- [23:19.510] Emily, go ahead.
+- [23:20.780] The Press: Thank you, and Director Gabbard,
+- [23:22.480] this one is for you.
+- [23:23.710] Do you believe that any of this new information
+- [23:26.700] implicates former President Obama in criminal behavior?
+- [23:30.430] Tulsi Gabbard: We have referred
+- [23:31.650] and will continue to refer all of these documents
+- [23:34.360] to the Department of Justice and the FBI to investigate
+- [23:37.710] the criminal implications of this.
+- [23:39.570] The Press: For even former President Obama?
+- [23:41.200] Tulsi Gabbard: Correct. The evidence that we have found
+- [23:44.200] and that we have released directly point
+- [23:47.480] to President Obama
+- [23:49.110] leading the manufacturing of this intelligence assessment,
+- [23:52.880] there are multiple pieces of evidence and intelligence
+- [23:55.950] that confirm that fact.
+- [23:57.920] Karoline Leavitt: Ed, go ahead.
+- [23:59.120] The Press: Director Gabbard, thank you.
+- [24:00.320] So just two questions,
+- [24:03.380] but to begin on that. The President yesterday,
+- [24:06.390] you've inferred that the former president helped lead a coup.
+- [24:09.440] Based on what you now see,
+- [24:11.320] do you believe President Obama is guilty of treason?
+- [24:15.200] Tulsi Gabbard: I'm leaving the criminal charges
+- [24:16.800] to the Department of Justice.
+- [24:18.120] I'm not an attorney, but as I've said previously,
+- [24:21.100] when you look at the intent behind
+- [24:23.810] creating a fake manufactured intelligence document
+- [24:28.120] that directly contradicts multiple assessments
+- [24:32.280] that were created by the intelligence community,
+- [24:35.340] the expressed intent and what followed afterward
+- [24:38.170] can only be described as a years-long coup
+- [24:41.030] and a treasonous conspiracy against the American people,
+- [24:44.400] our republic, and an attempt to undermine
+- [24:46.180] President Trump's administration.
+- [24:48.000] The Press: The Senate Intelligence Committee
+- [24:49.350] spent several years looking into this
+- [24:51.680] and unanimously agreed in a bipartisan fashion,
+- [24:54.450] Secretary of State Rubio was a member of that committee,
+- [24:56.940] that there was no political interference.
+- [24:58.790] There was a years-long Justice Department
+- [25:00.970] investigation into this
+- [25:02.180] as well that also concluded no political interference.
+- [25:04.900] So help us from a 50,000-foot level
+- [25:08.030] explain what do you now have that refutes those two
+- [25:11.610] [inaudible]?
+- [25:12.810] Tulsi Gabbard: Sure. I will encourage you.
+- [25:14.390] In my role as the Director of National Intelligence,
+- [25:17.380] my job began, as I said, when I came into this role,
+- [25:19.970] was to make sure that we are telling the truth
+- [25:23.410] to the American people
+- [25:25.220] and that we are ensuring that the intelligence community
+- [25:27.740] is not being politicized.
+- [25:29.780] So I'm not asking you to take my word for it.
+- [25:32.270] I'm asking you and the media to conduct honest journalism
+- [25:35.510] and the American people to see for yourself
+- [25:38.520] in the documents that we've released now,
+- [25:40.210] close to 200 pages, that point in multiple references,
+- [25:44.250] multiple examples to include comments
+- [25:48.000] that have been made by senior intelligence professionals
+- [25:51.660] who are some still working within these agencies today
+- [25:54.920] that confirm the conclusions that we have drawn,
+- [25:57.950] that President Obama directed
+- [26:00.440] an Intelligence Community Assessment
+- [26:02.220] to be created to further this contrived false narrative
+- [26:07.860] that ultimately led to a years-long coup
+- [26:09.460] to try to undermine President Trump's presidency.
+- [26:10.930] Karoline Leavitt: John, go ahead.
+- [26:12.150] The Press: And it's your belief that those two
+- [26:13.350] previous investigations missed that or covered it up?
+- [26:17.150] Tulsi Gabbard: I'm telling you to look at the evidence,
+- [26:19.620] look at the evidence, and you'll know the truth.
+- [26:21.440] Karoline Leavitt: John.
+- [26:22.660] The Press: Thanks, Karoline. Thanks, Director Gabbard.
+- [26:25.130] You declassified these documents,
+- [26:27.000] if I'm not mistaken, Friday of last week. Correct?
+- [26:29.470] Tulsi Gabbard: We released them
+- [26:30.700] on Friday of last week. The first tranche, yes.
+- [26:33.270] The Press: This isn't the first time
+- [26:34.690] that President Trump has been President of the United States.
+- [26:37.590] He was president from 2017 to 2021.
+- [26:41.470] Couldn't the prior DNI under President Trump
+- [26:44.640] have declassified these documents
+- [26:46.980] and why didn't that DNI do that at that time?
+- [26:50.730] Tulsi Gabbard: I can't speak to what happened there.
+- [26:52.130] There were several DNIs under the first Trump administration.
+- [26:55.610] President Trump faced many challenges
+- [26:58.450] from those who were working in the government
+- [27:01.190] who sought to undermine his presidency.
+- [27:03.600] That's been clearly detailed. What I can speak to is the fact
+- [27:07.930] that this was one of the first things
+- [27:10.780] that we started to investigate here
+- [27:13.180] within this Trump administration and have released the results
+- [27:17.210] upon the conclusion of our investigation.
+- [27:19.170] The Press: And then my second question
+- [27:20.470] has to do with what intelligence agencies around the world
+- [27:24.430] have said about Russia that they have tried
+- [27:26.840] to influence elections in the United States,
+- [27:30.180] in France, in Germany, in the UK?
+- [27:33.490] Do you disagree with that?
+- [27:34.750] Do you believe that Russia is a bad actor
+- [27:37.410] as it relates to trying to influence elections?
+- [27:40.660] Tulsi Gabbard: I'll point back to the intelligence
+- [27:42.760] that President Trump has ordered declassified.
+- [27:45.300] That we have declassified and released,
+- [27:47.700] that the intelligence reflects Russia's motives
+- [27:52.870] or to try to sow discord
+- [27:54.950] and chaos within the US election,
+- [27:57.770] which is a clear distinction from showing a preference
+- [28:01.450] for or against a specific candidate,
+- [28:04.130] which is what the Obama-manufactured
+- [28:06.780] intelligence document alleges.
+- [28:08.780] That Russia preferred Donald Trump
+- [28:11.110] and tried to help Donald Trump get elected.
+- [28:13.330] Again, going back to the most important point here,
+- [28:16.260] with the intent to undermine the legitimacy
+- [28:19.030] of President Trump's election
+- [28:20.730] and therefore subvert the will of the American people
+- [28:23.680] who chose to send him to the White House.
+- [28:25.340] Karoline Leavitt: Reagan.
+- [28:26.600] The Press: Thanks, Karoline.
+- [28:27.890] Director Gabbard, Reagan-Reese with Daily Caller.
+- [28:30.120] You laid out that the documents revealed
+- [28:31.810] that the Obama administration did not publish
+- [28:34.100] a December 2016 presidential daily briefing
+- [28:36.860] that demonstrated that Russia did not steal the election.
+- [28:39.920] Trump was receiving these briefings
+- [28:41.720] at the time he was President-elect.
+- [28:43.900] Are you of the view that that information
+- [28:46.330] was kept out of the briefing
+- [28:47.600] because then President-elect Donald Trump wouldn’t seen it.
+- [28:51.930] Tulsi Gabbard: I don't have any documents that speak
+- [28:53.880] to exactly what the new guidance
+- [28:55.940] was that was given as the reason for pulling that document,
+- [28:59.260] which by the way, still has never been published
+- [29:02.000] until we released it last week, Friday.
+- [29:05.830] One could assume that they didn't want President Trump
+- [29:09.060] to see a document that came from the intelligence community
+- [29:12.760] that would contradict the Russia hoax narrative
+- [29:15.210] that began through the Hillary Clinton campaign
+- [29:18.750] with the Steele dossier.
+- [29:20.330] The Press: One more, maybe either for you or Karoline,
+- [29:24.020] The President said yesterday that Obama committed treason.
+- [29:28.000] Do you or the White House believe
+- [29:30.100] that the Supreme Court's immunity decision
+- [29:31.980] protects Obama from prosecution?
+- [29:34.360] Karoline Leavitt: Look, I can speak to
+- [29:36.590] The President's feelings on this matter.
+- [29:38.500] He spoke to all of you yesterday in the Oval Office,
+- [29:40.440] but I also spoke to him about this this morning
+- [29:43.030] and he wants to see all those who perpetuated this fraud
+- [29:47.030] against our country,
+- [29:48.340] who betrayed our country and the Constitution,
+- [29:50.890] to be thoroughly investigated and held accountable.
+- [29:53.920] And it's been 10 years of this. And I would just add,
+- [29:57.650] based on everything the director has said and declassified,
+- [30:01.410] all of you in this room should go through it
+- [30:03.680] and take a look at this report and review the intelligence,
+- [30:06.230] because unfortunately, that hasn't happened.
+- [30:08.490] And many of the people who perpetuated this hoax,
+- [30:11.160] Clapper, Andy McCabe, James Comey,
+- [30:14.380] and many others have been hired by major networks in this room
+- [30:17.870] to go on television
+- [30:19.130] and continue to spew these lies knowing that they are lies.
+- [30:22.970] And if you all recall,
+- [30:24.500] just flashback to 2016 and the years after,
+- [30:27.510] the entire Trump won presidency was embroiled in this scandal
+- [30:32.270] that was perpetuated by the Democrat Party.
+- [30:34.330] And you had major Democrat party officials in this city,
+- [30:37.400] namely Adam Schiff,
+- [30:38.680] Hillary Clinton, Elizabeth Warren,
+- [30:40.500] who went on television and told the American people,
+- [30:43.170] "Donald Trump is an asset of Russia."
+- [30:45.020] It was a lie. They always knew it.
+- [30:47.310] Hillary Clinton herself said that President Trump
+- [30:49.290] would be a puppet for Putin.
+- [30:50.910] Senator Tim Kaine at the time called President Trump,
+- [30:53.840] "Vladimir Putin's defense lawyer."
+- [30:55.370] Adam Schiff stated,
+- [30:56.860] and one of the worst things a lawmaker can do,
+- [30:59.280] is to tell the American people,
+- [31:00.510] "I know something you don't know.
+- [31:01.720] It's just classified and I can't tell you."
+- [31:03.510] And that's what he said.
+- [31:04.730] I can tell you that the case is more than that.
+- [31:06.900] I can't go into the particulars,
+- [31:08.370] but there is more than circumstantial evidence now.
+- [31:11.570] And not enough people in this room,
+- [31:13.200] not enough journalists in this country
+- [31:15.960] pushed Adam Schiff to say, what are you talking about?
+- [31:18.530] What evidence do you have?
+- [31:20.090] Everybody just ran with the lies and it led to impeachments.
+- [31:23.790] It led to the division of our country.
+- [31:25.990] Unfortunately, so many Americans,
+- [31:28.150] from listening to outlets in this room,
+- [31:29.800] believed in these lies and it's a complete scam
+- [31:33.910] and it's a scandal,
+- [31:35.170] and The President wants to see accountability for that.
+- [31:37.020] Phil.
+- [31:38.260] The Press: Thank you. Question for Director Gabbard,
+- [31:40.400] a spokesperson for former President Obama
+- [31:42.230] said in the statement earlier this week, quote,
+- [31:44.560] "Nothing in the documents issued last week
+- [31:46.520] undercuts the widely accepted conclusion
+- [31:48.910] that Russia worked to influence the 2016 election
+- [31:51.470] but did not successfully manipulate any votes."
+- [31:54.300] How do you respond to critics like former President Obama
+- [31:57.600] and also others on the Hill who say that the administration
+- [32:00.340] is conflating apples and oranges here,
+- [32:02.750] conflating allegations of actual hacking of voter machines
+- [32:06.640] and allegations of interference generally?
+- [32:09.490] Tulsi Gabbard: I think it's a disservice
+- [32:10.760] to the American people
+- [32:12.010] that former President Obama's office and others
+- [32:14.510] who are criticizing the transparency
+- [32:17.000] that is being delivered by releasing these documents.
+- [32:20.250] They are doing a disservice to the American people
+- [32:22.520] and trying to deflect away from their culpability
+- [32:25.470] in what is a historic scandal and negative action
+- [32:31.750] towards the American people and our democratic Republic.
+- [32:34.520] The answer to that statement can very clearly be found
+- [32:38.550] throughout all of the documents that we have released.
+- [32:41.910] Again, showing that Russia has took action
+- [32:45.840] to try to sow discord in the election,
+- [32:48.260] but showed no preference for or against any singular candidate.
+- [32:54.810] The Press: You've long been an opponent
+- [32:56.230] of weaponization in government. How do you respond to criticism
+- [32:59.420] that referring Obama administration officials
+- [33:01.740] and even potentially the former president
+- [33:03.620] is just more weaponization
+- [33:05.580] and this is a potential race to the bottom?
+- [33:07.750] Tulsi Gabbard: I think that's a very disrespectful attack
+- [33:10.690] on the American people who deserve the truth.
+- [33:13.380] They deserve to have faith and trust
+- [33:15.640] in the integrity of our democratic republic,
+- [33:17.660] which has been undermined by President Obama
+- [33:22.240] through his direction of this manufactured
+- [33:25.180] fake intelligence document,
+- [33:26.640] knowing that it was filled with lies and knowing that it would
+- [33:30.740] and could then be used for all of the actions that came after.
+- [33:35.420] The Press: Karoline?
+- [33:36.660] Karoline Leavitt: And I would just add there needs
+- [33:38.170] to be accountability
+- [33:39.410] for that weaponization, Phil, that we've seen.
+- [33:42.220] And no one has been a victim of the weaponized government
+- [33:44.620] more than President Trump,
+- [33:46.280] not just because of this political scandal.
+- [33:48.310] You all recall his house was raided.
+- [33:51.430] I think it's very disingenuous for people to say,
+- [33:54.680] how dare they speak of former President Obama
+- [33:56.990] about this based on evidence and based on intelligence
+- [34:00.290] when the former president of the United States,
+- [34:02.070] Donald Trump's home was raided
+- [34:03.960] when he was forced to sit in a Manhattan courtroom
+- [34:06.240] and many other courtrooms across the country
+- [34:08.110] for crimes he never committed.
+- [34:09.790] When he was impeached and indicted
+- [34:12.310] and the entire country witnessed that.
+- [34:13.870] That's the weaponization of justice.
+- [34:15.680] Now The President is back
+- [34:16.880] because the American people see the truth.
+- [34:18.480] Nearly 80 million Americans re-elected him back
+- [34:20.200] to this office
+- [34:21.470] and he believes that we need to have justice and accountability.
+- [34:24.290] And I think the nearly 80 million Americans
+- [34:26.160] who re-elected him agree with that. Caitlin.
+- [34:28.540] The Press: Thank you, Karoline.
+- [34:29.780] Two questions for Director Gabbard, just on this.
+- [34:32.760] Director Gabbard, you referenced the past intelligence reports
+- [34:35.770] and assessments on this,
+- [34:36.980] including that 2017 one that was signed off,
+- [34:39.570] as Ed noted, by every Republican
+- [34:41.460] on the Senate Intelligence Community,
+- [34:43.020] including the acting chair of the time,
+- [34:45.230] now Secretary of State, Marco Rubio,
+- [34:47.260] who said in his statement that they did not find
+- [34:49.400] any evidence of Russian collusion,
+- [34:51.030] but they did find however, is very troubling
+- [34:53.350] and they found irrefutable evidence of Russian meddling.
+- [34:56.370] One, are you saying that he's wrong
+- [34:58.030] in that statement that he made then?
+- [34:59.790] And secondly, what would you say to people
+- [35:01.800] who believe that you're only releasing these documents
+- [35:03.980] now to improve your standing with The President
+- [35:06.120] after he said that your intelligence assessments
+- [35:07.820] were wrong?
+- [35:09.130] Tulsi Gabbard: Well, first I want to correct something
+- [35:10.790] that you stated,
+- [35:12.010] which was citing the Senate Intelligence Committee's
+- [35:16.260] report as being one and the same.
+- [35:18.400] I think you said the intelligence community.
+- [35:20.250] The Senate Intelligence Committee
+- [35:21.910] has a very different function
+- [35:23.600] than the Office of the Director of National Intelligence.
+- [35:27.980] The evidence and the intelligence
+- [35:29.540] that has been declassified and released is irrefutable.
+- [35:33.220] I'm going to let Karoline speak to Secretary Rubio.
+- [35:36.240] Karoline Leavitt: I'll speak to both questions.
+- [35:37.640] First, on Secretary Rubio. He put out a statement in 2020
+- [35:41.610] following that Senate Intelligence Committee report,
+- [35:44.300] and he said what they found is troubling.
+- [35:46.050] "We found irrefutable evidence of Russian meddling,"
+- [35:48.170] which the Director of National Intelligence
+- [35:49.730] just confirmed for all of you
+- [35:51.430] that Russia was trying to sow distrust and chaos.
+- [35:54.280] But what's the outrage in this, that Secretary Rubio did not say
+- [35:57.720] at the time the Democrats were saying at the time,
+- [36:00.080] is the fact that the intelligence community
+- [36:01.660] was concocting this narrative that The President
+- [36:04.120] colluded with the Russians.
+- [36:05.780] That The President's son was holding secret meetings
+- [36:08.420] with the Russians, all of these lies that were never true.
+- [36:12.210] And he also said at that time,
+- [36:13.650] "We discovered deeply troubling actions
+- [36:15.350] taken by the FBI under Comey,
+- [36:17.950] particularly their acceptance and willingness
+- [36:19.950] to rely on the Steele dossier
+- [36:22.010] without verifying its methodology or sourcing."
+- [36:24.700] The Steele dossier that many outlets in this room
+- [36:27.390] ran as the gospel truth
+- [36:28.940] and it was cooked up and paid for by the Clinton campaign.
+- [36:31.680] As for your second question, Caitlin,
+- [36:33.590] I think who is saying that?
+- [36:35.380] That she would release this to try to boost her
+- [36:37.420] standing with The President? Who has said that?
+- [36:38.980] The Press: Well, The President has publicly
+- [36:40.220] undermined her when it came to Iran.
+- [36:41.970] He said she was wrong.
+- [36:43.220] He told me that she didn't know what she was talking about.
+- [36:45.210] That was on Air Force One on camera.
+- [36:47.310] Karoline Leavitt: The only people who are suggesting
+- [36:48.910] that the Director of National Intelligence
+- [36:50.430] would release evidence to try to boost her
+- [36:52.230] standing with The President are the people in this room
+- [36:54.950] who constantly try to sow distrust and chaos
+- [36:57.530] amongst The President's cabinet. And it is not working.
+- [36:59.630] The Press: This has been investigated by John Durham,
+- [37:00.960] directed by the Attorney General Bill Barr at the time.
+- [37:02.660] Karoline Leavitt: I will just answer your question directly.
+- [37:04.500] I am with The President of the United States every day.
+- [37:06.580] He has the utmost confidence in Director Gabbard.
+- [37:09.220] He always has. He continues to,
+- [37:11.560] and that is true of his entire cabinet,
+- [37:13.420] who is all working as one team
+- [37:15.340] to deliver on the promises this president made.
+- [37:17.490] Does anyone else have questions for Director Gabbard?
+- [37:19.290] And then we'll turn it over to a couple other questions.
+- [37:20.980] Christian, go ahead.
+- [37:22.220] The Press: Yeah, thank you.
+- [37:23.450] Director Gabbard, two follow ups on questions
+- [37:26.020] that have been asked. You mentioned the previous DNIs
+- [37:30.160] during The President's first term.
+- [37:32.230] One of them reports to you right now,
+- [37:34.300] if I'm not mistaken, John Ratcliffe.
+- [37:36.310] So have you not spoken to him about why this information
+- [37:40.080] was not declassified during the first term?
+- [37:42.840] Tulsi Gabbard: He was in that position
+- [37:44.100] for a very short period of time. The work that began back then,
+- [37:48.880] we have picked up and absolutely completed.
+- [37:51.360] We are continuing to investigate this.
+- [37:53.690] Additional whistleblowers are now coming forward
+- [37:56.000] because they see an opportunity for the truth to come to light,
+- [37:58.880] and as Karoline said,
+- [38:00.110] for real accountability to be brought forward.
+- [38:03.770] The accountability is the essential part of this.
+- [38:06.330] We can show the truth, reveal the truth,
+- [38:09.280] the accountability needs to occur
+- [38:10.790] to be able to start to restore that trust
+- [38:13.570] in the integrity of our democracy.
+- [38:15.180] The Press: And then just quickly,
+- [38:16.490] I know you said you would leave the charging to DOJ,
+- [38:20.290] but the statute of limitations on conspiracy is five years.
+- [38:23.400] So what else could they possibly pursue
+- [38:25.260] besides treason at this point?
+- [38:26.600] Tulsi Gabbard: I think that's a great question
+- [38:27.900] for Attorney General, Pam Bondi.
+- [38:30.630] We are providing all of the evidence,
+- [38:32.620] all of the intelligence that we have,
+- [38:34.240] both redacted and unredacted versions,
+- [38:36.640] referring it to the Department of Justice and the FBI.
+- [38:39.290] Karoline Leavitt: We'll take one more.
+- [38:40.680] Charlie, go ahead.
+- [38:42.060] The Press: How credible was the information about Hillary
+- [38:44.100] Clinton's [inaudible].
+- [38:45.820] The report said that it was sourced from the DNC.
+- [38:49.630] Have you seen that information or do you think
+- [38:53.350] that maybe Russia was over emphasizing what they had?
+- [38:56.360] Tulsi Gabbard: All I have seen
+- [38:57.580] is what the Intelligence Committee
+- [39:00.940] have reported through their investigation.
+- [39:04.050] I think the underlying point
+- [39:06.490] there is that we understand from intelligence
+- [39:10.510] what Russia said that they had.
+- [39:12.870] And the important point here is that
+- [39:14.620] if they were trying to influence the election as President Obama
+- [39:18.780] and James Clapper and John Brennan,
+- [39:20.830] and everybody said they were doing in order
+- [39:23.450] to support Donald Trump's election,
+- [39:25.900] they would've released the most damning of that information,
+- [39:28.690] some of which I detailed here,
+- [39:30.010] you'll find the rest in the report,
+- [39:32.100] prior to the election to help Donald Trump win.
+- [39:35.730] They specifically withheld what they had on her,
+- [39:38.610] the most damning information,
+- [39:40.340] because they thought that she would win the election.
+- [39:42.340] They had plans to release
+- [39:43.570] it just prior to her inauguration to again,
+- [39:47.370] sow discord and chaos in America.
+- [39:49.370] The Press: And if I may, on Jeffrey Epstein,
+- [39:51.640] can you rule out that he was connected in some way
+- [39:54.350] to any kind of intelligence, either foreign or domestic?
+- [39:57.800] Tulsi Gabbard: I haven't seen any evidence or information
+- [40:00.640] that reflects that.
+- [40:02.200] If anything comes before me that changes that in any way support
+- [40:07.920] The President's statement loud and clear,
+- [40:10.450] if any credible evidence comes forward,
+- [40:12.180] he wants the American people to see it.
+- [40:13.400] Karoline Leavitt: Great.
+- [40:14.680] Director Gabbard, we thank you for your time today.
+- [40:15.950] Tulsi Gabbard: Thank you.
+- [40:17.150] Karoline Leavitt: I know you're a busy woman,
+- [40:18.410] so we'll let you get out of here,
+- [40:19.650] but thank you so much. Okay.
+- [40:22.330] I know there's many issues going on today
+- [40:24.960] across the world and here at home.
+- [40:26.440] If you have any other further questions,
+- [40:28.000] I'm happy to take them. Ed, why don't you go ahead.
+- [40:29.910] The Press: Yeah, thank you, Karoline.
+- [40:31.130] So the Japan trade deal.
+- [40:33.370] Is that Japan trade deal the start
+- [40:35.740] of this number of trade deals that the Treasury sector says
+- [40:39.060] we're going to see by August 1st?
+- [40:41.010] Karoline Leavitt: I think it is.
+- [40:42.270] I mean, as you said, we had Japan yesterday.
+- [40:45.130] We also had Indonesia.
+- [40:46.610] And we had the Philippines as well.
+- [40:48.090] The President announcing all three.
+- [40:49.660] He came in as the closer in all three of those.
+- [40:52.420] I've said many times from this podium
+- [40:54.070] that The President's trade team has been in active talks
+- [40:57.530] and discussions with many countries around the world,
+- [40:59.650] and you've all been anxiously
+- [41:01.260] awaiting what those countries were.
+- [41:02.590] Now you know three of them,
+- [41:04.130] and there's many, many more to go.
+- [41:05.930] We have now sent 25 letters to countries around the world.
+- [41:09.520] But just to reiterate this Japan deal,
+- [41:11.890] for those at home who may have missed it,
+- [41:13.820] Japan will now pay a 15% tariff
+- [41:17.200] versus the reciprocal rate of 24% that they initially had.
+- [41:21.710] Auto and auto parts tariffs have been reduced to 15%.
+- [41:25.620] But the centerpiece of this deal now
+- [41:27.910] is The President got Japan to commit to $550 billion
+- [41:32.720] in investments to revitalize American industries.
+- [41:35.570] And these funds will be spent at President Trump's discretion
+- [41:38.660] and direction into key industries
+- [41:40.680] such as energy, semiconductors, critical minerals,
+- [41:43.250] pharmaceuticals, and shipbuilding.
+- [41:45.040] And the U.S. will retain 90% of the profits
+- [41:47.710] from any investments made by this $550 billion fund.
+- [41:52.350] This was originally a $400 billion investment
+- [41:54.670] that President Trump then negotiated
+- [41:56.710] to an increase of $150 billion,
+- [41:58.980] making it a $550 billion deal for the American people.
+- [42:02.890] And I just want to emphasize, Ed,
+- [42:04.600] I see you have a follow up, but it's very important,
+- [42:06.850] Japan has agreed to open their markets
+- [42:08.890] to many very key sectors and American-made products
+- [42:12.950] that have really faced very strict tariff
+- [42:15.920] and non-tariff barriers prior.
+- [42:17.490] So thanks to The President, Japan's markets will now be open
+- [42:20.550] to American made products and goods.
+- [42:22.380] This is big news for our tech companies
+- [42:24.790] and our farmers as well.
+- [42:26.130] The Press: On Monday, the Treasury sector
+- [42:27.440] is going to Stockholm to talk to the Chinese delegation.
+- [42:30.670] What does The President hope to get out of that meeting?
+- [42:32.600] Are there deliverables?
+- [42:34.600] Karoline Leavitt: I won't speak to any deliverables
+- [42:36.280] or set expectations.
+- [42:37.520] I'll let the Secretary of Treasury do that.
+- [42:39.290] But I did speak to him yesterday about his upcoming trip
+- [42:42.710] and he looks forward to continuing discussions
+- [42:45.160] with his Chinese counterparts.
+- [42:47.040] The President has ensured
+- [42:49.300] that we have a good continuing working relationship with China
+- [42:53.310] that benefits the United States, and so the Secretary of Treasury
+- [42:56.980] will be obviously discussing those key matters,
+- [42:58.850] but I'll let him set the expectations.
+- [43:00.120] The Press: One more, if I may.
+- [43:01.350] Karoline Leavitt: Sure.
+- [43:02.570] The Press: Given what the DNI just said and laid out,
+- [43:04.870] does President Trump believed that President Obama
+- [43:07.460] should go to jail for something?
+- [43:08.940] Karoline Leavitt: Look, The President believes
+- [43:10.160] that this matter needs to be thoroughly investigated
+- [43:12.580] and anyone convicted of crimes
+- [43:14.980] should be held accountable in this country. Go ahead.
+- [43:17.400] The Press: Special Envoy Witkoff
+- [43:18.730] is headed overseas again-
+- [43:20.030] Karoline Leavitt: Good to see you, Olivia.
+- [43:21.270] The Press: Good to see you.
+- [43:21.690] Karoline Leavitt: I haven't seen you
+- [43:22.160] since the campaign trail.
+- [43:23.390] The Press: Yeah, it's good to see you.
+- [43:24.620] He's headed back overseas.
+- [43:25.830] Can you give us a sense of what the margin orders
+- [43:27.540] are to some of the people he'll be meeting
+- [43:29.410] with specifically as it relates to Gaza and ongoing talks there?
+- [43:32.270] Karoline Leavitt: Yes.
+- [43:33.660] Special Envoy Witkoff is headed to Europe
+- [43:36.550] where he will meet with key leaders from the Middle East
+- [43:39.830] to discuss the ongoing ceasefire proposal
+- [43:43.930] to end this conflict in Gaza and to release the hostages.
+- [43:48.300] These are very sensitive negotiations
+- [43:50.700] that are currently taking place.
+- [43:52.590] I spoke to Special Envoy Witkoff last night about them.
+- [43:55.760] I will let him speak further on the matter,
+- [43:58.110] but The President and Special Envoy Witkoff
+- [44:00.920] has made the administration's goals clear.
+- [44:03.500] We want this ceasefire to happen as soon as possible,
+- [44:06.330] and we want these hostages to be released. Go ahead.
+- [44:09.750] The Press: Karoline. A Florida federal judge
+- [44:11.680] has refused to allow the Epstein grand jury materials
+- [44:13.370] to be released.
+- [44:14.610] Does The President want the administration
+- [44:16.390] or Department of Justice to appeal that ruling?
+- [44:18.660] Karoline Leavitt: That was just breaking as the director
+- [44:20.150] and I were coming out here,
+- [44:21.400] so I haven't had a chance to talk to The President about it.
+- [44:24.090] I understand there are two other requests
+- [44:26.180] from the Department of Justice that are ongoing,
+- [44:28.650] but I'll let The President speak
+- [44:30.350] to whether he wants to see an appeal.
+- [44:31.810] And the Department of Justice,
+- [44:33.080] I'm sure, can give you a statement on that as well.
+- [44:34.650] The Press: And is he supportive of the effort
+- [44:35.860] to talk to Ghislaine Maxwell? I know that Todd Blanchett
+- [44:37.940] mentioned that earlier this week.
+- [44:39.160] Karoline Leavitt: The President
+- [44:40.360] spoke to this yesterday,
+- [44:41.570] and he said he thinks it's an appropriate idea.
+- [44:43.180] Kelly?
+- [44:44.420] The Press: What is the accountability
+- [44:45.980] that you would like to see if this current president
+- [44:49.120] is the one who brought the case to the Supreme Court,
+- [44:51.310] and Chief Justice Roberts made clear in his opinion
+- [44:54.600] that a sitting president's responsibilities in office
+- [44:58.490] cannot lead to prosecution immunity.
+- [45:01.920] So what is it President Trump
+- [45:04.680] wants regarding President Obama given that fact?
+- [45:09.230] And the special counsel at the time, Durham,
+- [45:12.770] when that Supreme Court matter was not in effect,
+- [45:16.980] could have charged anyone, and did not.
+- [45:19.830] So on those two points, how do you respond?
+- [45:22.440] Karoline Leavitt: Look, The President has made it clear
+- [45:24.670] that he wanted these documents to be declassified.
+- [45:27.130] He wanted the American people to see the truth
+- [45:28.900] and now he wants those who perpetuated
+- [45:30.710] these lies in this scandal to be held accountable.
+- [45:34.000] As for what accountability looks like, as the director said,
+- [45:36.960] it's in the Department of Justice's hands
+- [45:38.610] and we trust them to move this ball forward. Stephanie?
+- [45:40.580] The Press: But you would agree that President Obama
+- [45:41.820] cannot be charged based on that immunity?
+- [45:43.600] Karoline Leavitt: Again, I'll leave that
+- [45:44.980] to the Department of Justice. Stephanie?
+- [45:46.840] The Press: In light of the Japan deal,
+- [45:48.340] are sectoral tariffs now up for negotiation
+- [45:51.230] with trading partners? And in a similar note,
+- [45:53.580] are these negotiators asking for investment funds,
+- [45:56.360] sort of like what Japan had agreed to?
+- [45:58.940] Karoline Leavitt: As for sectoral tariffs,
+- [46:00.510] I understand that The President continues to be in talks
+- [46:04.490] with our secretary of commerce.
+- [46:05.950] We have made commitments on various sectoral tariffs,
+- [46:08.080] as you know.
+- [46:09.310] The Department of Commerce has initiated studies to then
+- [46:12.290] move forward with implementing those sectoral tariffs,
+- [46:14.840] so I would defer you to them for further comment.
+- [46:17.520] Mary?
+- [46:18.720] The Press: I wanted to ask if the White House
+- [46:20.030] has any update on the Commerce Department employee
+- [46:23.270] who's been detained, or banned from exiting China,
+- [46:27.530] and if there are any efforts to get them out.
+- [46:30.290] Karoline Leavitt: I can assure you,
+- [46:31.870] and the American people, that the administration
+- [46:33.990] is actively monitoring the situation and engaged,
+- [46:36.650] but typically we don't comment on individual cases
+- [46:39.380] like this as we are sorting them out.
+- [46:41.840] Sure. Behind you, Dr. Harper, sorry.
+- [46:44.740] Go ahead, to the lady sitting down in the blue.
+- [46:46.640] Yes. What's your name?
+- [46:47.910] The Press: Hi. My name is Karoline.
+- [46:49.190] Karoline Leavitt: What's your name?
+- [46:50.420] The Press: My name is Karoline also,
+- [46:51.620] Karoline Boda with The Center Square.
+- [46:53.140] Karoline Leavitt: Oh. Great.
+- [46:54.360] The Press: So Republicans in the Senate today
+- [46:56.180] said that they are pulling back on legislation
+- [46:58.430] to impose sanctions on Russia,
+- [47:00.410] after The President said he wants to act unilaterally.
+- [47:03.690] Can you elaborate on what The President intends to do?
+- [47:07.090] Karoline Leavitt: Look, The President has been
+- [47:08.540] in very close communication with his friends in the Senate,
+- [47:11.860] particularly Senator Lindsey Graham on this issue.
+- [47:14.790] But The President has always maintained,
+- [47:16.920] he's the commander in chief and The President for a reason,
+- [47:20.330] and he has been deeply involved in this conflict
+- [47:22.530] since the beginning.
+- [47:23.800] And so any decisions that are made with respect to sanctions,
+- [47:28.240] The President wants to reserve that authority
+- [47:30.420] and that right to himself. Jasmine?
+- [47:33.460] The Press: Thanks, Karoline. Two questions for you.
+- [47:34.970] The first one, AI.
+- [47:36.580] Does President Trump support federal agencies
+- [47:39.410] contracting with Elon Musk's AI company?
+- [47:41.850] Karoline Leavitt: I don't think so.
+- [47:43.150] No. Go ahead.
+- [47:44.370] The Press: So he would want the DOJ to then
+- [47:45.590] cancel the contract with [inaudible]?
+- [47:46.830] Karoline Leavitt: I'll talk to him about it.
+- [47:48.150] Yes. The Press: Karoline?
+- [47:49.380] The Press: My second question,
+- [47:50.620] just obviously the developments with the Epstein case
+- [47:53.140] with the judge, but I wonder,
+- [47:54.970] has the White House, White House counsel,
+- [47:57.110] the DOJ explored any other documents
+- [47:59.990] that could be released to the public
+- [48:03.320] that don't have to do with that grand jury testimony?
+- [48:05.960] Karoline Leavitt: To my knowledge,
+- [48:07.330] the Department of Justice has moved forward
+- [48:09.020] with the request to unseal that grand jury testimony,
+- [48:11.740] and as you know, they have also moved forward
+- [48:14.190] with interviewing Ms. Maxwell,
+- [48:17.270] which I believe will be taking place very soon.
+- [48:19.370] [cross talk]
+- [48:20.640] Go ahead. Sure.
+- [48:21.920] The Press: Thanks, Karoline.
+- [48:23.170] I have a question about Paul Ingrassia,
+- [48:24.780] the OSCE nominee who faces a Senate committee
+- [48:27.500] hearing tomorrow.
+- [48:29.250] Tom Tillis said that he wouldn't vote for Ingrassia
+- [48:31.280] if it both came to the Senate floor.
+- [48:34.480] Two dozen worker advocacy groups
+- [48:37.160] have said that they don't support his nomination.
+- [48:40.870] What is the White House planning to do to sort of turn
+- [48:43.500] the tide or convince legislators that they should vote for them?
+- [48:46.430] Karoline Leavitt: The White House is always in communication
+- [48:48.280] with members of both the Senate and the House,
+- [48:51.040] and we stand by The President's nominees.
+- [48:53.620] Sure.
+- [48:56.120] The Press: In connection with the Mueller investigation,
+- [48:58.420] a grand jury indicted 13 Russians.
+- [49:02.130] President Putin has said he will never extradite those men
+- [49:05.820] given the new information that Ms. Gabbard has found.
+- [49:09.130] What's the administration's position on that case?
+- [49:10.990] Should those charges be dropped?
+- [49:12.210] Karoline Leavitt: I don't have
+- [49:13.420] an update for you on that case,
+- [49:14.650] but I'll check in with the National Security Council
+- [49:16.300] and our team will get you something. Sure.
+- [49:18.430] The Press: Karoline? Thank you so much.
+- [49:19.660] So Fani Willis and Jack Smith separately,
+- [49:21.830] they both charged President Trump with conspiracy
+- [49:24.470] to defraud the United States
+- [49:25.940] and a conspiracy to overturn the 2020 election.
+- [49:28.570] Now it turns out we're confirming
+- [49:30.310] that Obama and his cronies
+- [49:31.960] were doing that the whole time in 2016 on a massive scale,
+- [49:37.020] falsifying documents and having their intel agencies do this.
+- [49:43.740] What does this say about the 2020 election
+- [49:46.620] and also, yeah, what's your thoughts on the irony here?
+- [49:50.210] Karoline Leavitt: There is a lot of irony,
+- [49:51.750] especially for the democrat party
+- [49:55.300] who claims to be for democracy.
+- [49:57.610] We often heard throughout the 2024 campaign,
+- [50:00.250] they were calling this president a threat to democracy.
+- [50:03.640] And now I think the declassification
+- [50:05.190] of all of these documents
+- [50:06.430] proves that they were indeed the true threat to democracy.
+- [50:09.800] And as I said repeatedly today,
+- [50:11.160] there needs to be justice and accountability for that.
+- [50:13.440] You all will hear directly from The President later
+- [50:15.540] this afternoon at the AI Summit here in Washington DC,
+- [50:18.190] scheduled to speak later in a few hours,
+- [50:20.750] so we will see you all there. Thank you very much.
+- [50:24.100] [cross talk]

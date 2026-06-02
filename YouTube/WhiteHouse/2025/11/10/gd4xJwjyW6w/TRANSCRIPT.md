@@ -1,0 +1,730 @@
+<!-- source: https://www.youtube.com/watch?v=gd4xJwjyW6w -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: gd4xJwjyW6w -->
+<!-- date_published: 2025-11-10T21:10:27+00:00 -->
+<!-- date_accessed: 2026-06-02T02:41:51.788544+00:00 -->
+
+# Transcript: President Trump Participates in a Swearing-in Ceremony for the Ambassador to the Republic of India
+
+- [00:02.660] Jeanine Pirro: Right here. Goes over there.
+- [00:04.410] >>Male Speaker: Ok.
+- [00:05.730] Jeanine Pirro: [inaudible] stand in front.
+- [00:06.970] Male Speaker: [inaudible] chief protocols.
+- [00:09.610] [laughter]
+- [00:10.930] Jeanine Pirro: Don’t tell Monica.
+- [00:12.480] The President: She’s a strong leader.
+- [00:13.840] She just made television.
+- [00:15.060] J.D. Vance: She’s tough sir.
+- [00:17.510] The President: Ok. Thank you very much everybody.
+- [00:19.030] It's an honor to be here for our friend Sergio.
+- [00:23.190] Sergio Gor. Today we're thrilled to be in a swearin'
+- [00:28.150] for the next ambassador to India
+- [00:30.180] and special envoy to South and Central Asia,
+- [00:33.940] which is a big deal and Sergio will handle it better
+- [00:36.170] than anybody could handle it.
+- [00:37.500] So, I just want to congratulate Sergio Minister and
+- [00:41.930] [inaudible].
+- [00:45.385] [applause]
+- [00:49.340] So, we are honored to be joined this afternoon
+- [00:51.760] by our great Vice President, J.D. Vance. Thank you, J.D.
+- [00:55.570] [applause]
+- [00:58.650] Secretary of State Marco Rubio. Thank you Rubio.
+- [01:02.320] [applause]
+- [01:06.520] Secretary Scott Bessent is doing a great job.
+- [01:10.060] [applause]
+- [01:13.840] Attorney General Pam Bondi. Pam.
+- [01:17.820] [applause]
+- [01:20.260] And US Attorney Jeanine Pirro.
+- [01:22.830] [applause]
+- [01:28.040] DC is a very safe place, Jeanine, right?
+- [01:30.220] Very safe place, so we gotta keep it that way.
+- [01:31.920] [laughter]
+- [01:33.120] Jeanine Pirro: Yes.
+- [01:34.380] The President: Along with Senators Lindsey Graham,
+- [01:36.320] Jim Risch, Tommy Tupperville, and Katie Britt.
+- [01:39.430] And I will give you an exemption because you know
+- [01:42.160] they're supposed to be right now in the Senate.
+- [01:43.900] And if you guys want to sneak out,
+- [01:46.450] nobody will see you leaving. Do you want to do that, Lindsay?
+- [01:48.930] [cross-talk] Do you want to stay here?
+- [01:51.110] Okay, you sneak out anytime you want.
+- [01:52.430] Lindsay Graham: Thank you.
+- [01:53.680] The President: We don't want to screw up any votes, do we?
+- [01:54.960] Lindsay Graham: Amen. Amen.
+- [01:56.170] The President: Okay, thank you.
+- [01:57.380] Thank you for being here.
+- [01:58.620] But we're also very honored to be joined by Mrs. –
+- [02:03.000] a very special woman who I have unfortunately have seen
+- [02:06.630] a lot lately on television for the wrong reasons.
+- [02:10.060] A women who is great,
+- [02:12.190] who Charlie said is the greatest of anybody who knew,
+- [02:15.340] best friends and best everything, Erika Kirk.
+- [02:18.780] So, thank you very much.
+- [02:21.760] [applause]
+- [02:28.710] And as Erika knows another special woman, Laura Ingram.
+- [02:32.490] Where's Laura? She's here someplace.
+- [02:34.560] Thank you, Laura.
+- [02:35.960] And many other true American patriots, great people.
+- [02:39.340] One year ago, Sergio played a key role in helping us
+- [02:42.500] secure the most consequential presidential election victory
+- [02:46.070] in the history of our country. And from the day we won,
+- [02:49.740] he immediately began working to staff our new administration
+- [02:53.850] with the most talented team of any president.
+- [02:56.550] And we have had a great team.
+- [02:57.900] Couple of mistakes, Sergio, but we won't mention them.
+- [03:02.080] [laughter]
+- [03:03.710] We got rid of them pretty quick.
+- [03:05.630] We found a couple we weren't thrilled with.
+- [03:07.330] We got them out of here.
+- [03:09.200] But as my director of office and presidential personnel
+- [03:12.410] from the early days of transition,
+- [03:14.060] Sergio's leadership
+- [03:15.320] was essential to fulfilling the historic mandate
+- [03:18.790] entrusted to us by the American people.
+- [03:21.710] And that's what we've done with the help.
+- [03:24.250] Here at the White House
+- [03:25.540] we set new benchmarks for presidential staffing.
+- [03:28.760] Nobody's done it, I think hopefully better,
+- [03:31.780] but certainly quicker,
+- [03:33.320] but I don't think anybody's done it better.
+- [03:35.040] We have great people. We're surrounded by the people
+- [03:37.480] that I really do love and like and respect.
+- [03:41.000] But we hired 4,000 appointees
+- [03:43.210] across every federal department in record time,
+- [03:46.320] including over 1,000 appointments on day one.
+- [03:49.790] So, before we even got started,
+- [03:52.600] we had over a thousand people working for us.
+- [03:54.690] Under Sergio's leadership, federal agencies and departments
+- [03:58.600] reached staffing levels of ninety-five percent,
+- [04:01.800] and it's faster than any administration
+- [04:04.190] in modern day history.
+- [04:05.950] And prior to his work on behalf of my 2024 campaign,
+- [04:09.200] Sergio had tremendous success
+- [04:10.830] as an entrepreneur in the publishing world.
+- [04:14.060] He even published my book, which went to number one.
+- [04:16.340] I was very happy because if it didn't,
+- [04:17.880] I wouldn't probably be
+- [04:19.370] [inaudible]
+- [04:20.570] [laughter]
+- [04:21.870] Now I'm trusting Sergio to help strengthen one of our country's
+- [04:25.420] most important international relationships
+- [04:27.820] and that's the strategic partnership
+- [04:30.320] with the Republic of India. It's a big deal.
+- [04:33.510] India is home to one of the world's oldest civilization,
+- [04:36.570] the largest country in the world actually.
+- [04:39.100] And it's got over one point five billion people,
+- [04:43.090] and we have a fantastic relationship
+- [04:45.160] with the Prime Minister Modi,
+- [04:47.360] and Sergio's only enhanced that because he's become
+- [04:50.480] already friendly with the Prime Minister,
+- [04:52.800] knowing that Sergio is going to be
+- [04:55.380] the ambassador they would call constantly to say,
+- [04:58.250] let's get to know this man, and they like what they see.
+- [05:00.530] So, I know you're gonna have great success over there.
+- [05:03.200] It’s a very important relationship.
+- [05:05.810] But it's also the fastest growing middle class,
+- [05:08.690] and it's an important economic and strategic security partner
+- [05:12.140] in the Indo-Pacific region.
+- [05:14.350] It's an amazing country, actually.
+- [05:15.910] 1.5 million people. China has 1.4 million.
+- [05:19.910] Those are two big countries.
+- [05:21.710] As ambassador Sergio will work to fortify our country's bond,
+- [05:26.120] promote investments in key US industries and technologies,
+- [05:29.990] increase American energy exports,
+- [05:31.790] and expand our security co-cooperation.
+- [05:34.880] And you know, we're making a deal with India,
+- [05:37.260] much different deal than we had in the past.
+- [05:39.100] So right now they don't love me, but they'll love us again.
+- [05:42.760] We're getting a fair deal, just a fair trade deal.
+- [05:45.210] We had pretty unfair trade deals.
+- [05:47.050] They're very good negotiators, Sergio,
+- [05:48.720] so you have to take a look at that if you would, please.
+- [05:51.500] But we're getting close, Scott.
+- [05:52.940] I think we're pretty close to doing a deal
+- [05:55.220] that's good for everybody, right?
+- [05:57.060] In the old days, do you think Biden would ask that question?
+- [05:59.020] I don't think so.
+- [06:00.410] [laughter]
+- [06:01.610] How are we doing with India?
+- [06:02.890] He didn't know about India, he didn't know a damn thing.
+- [06:05.390] But that's okay. We had him.
+- [06:07.800] Likewise in Sergio's role as special envoy to South
+- [06:11.370] and Central Asia, he'll be a key emissary
+- [06:14.490] to a very important group of nations
+- [06:16.290] at the crossroads between East and West.
+- [06:19.070] And last week I was honored to host the leaders
+- [06:21.710] of five Central Asian countries here in the White House.
+- [06:25.000] And Sergio will be helping with all of that.
+- [06:27.310] We had an amazing meeting the other night at the White House.
+- [06:30.640] And I'm confident that Sergio will do an outstanding job
+- [06:33.990] and make our country and all of his friends very proud.
+- [06:37.150] But I'm very proud of Sergio.
+- [06:38.450] I've known him for a long time, and he's a great guy.
+- [06:41.920] And most people love him,
+- [06:43.340] some people don't like him so much.
+- [06:44.860] I'll be honest with you, Sergio.
+- [06:46.510] [laughter]
+- [06:47.770] Some people when they don't like Sergio,
+- [06:49.520] they don't like him, but when they like him,
+- [06:50.980] they like him more than anybody.
+- [06:52.990] But most of them really are of the like category.
+- [06:55.890] And I just want to say that I think he's gonna be
+- [06:58.540] an outstanding representative for the United States of America
+- [07:02.280] and it's a big deal.
+- [07:03.600] Being the ambassador to India is a big deal.
+- [07:06.310] So, Sergio, congratulations.
+- [07:07.900] I know you're gonna do a fantastic job. Thank you.
+- [07:10.570] [applause]
+- [07:15.075] [inaudible]
+- [07:20.080] J.D. Vance: Yeah, swear him in here.
+- [07:22.340] Jeanine Pirro: Left hand on the Bible.
+- [07:23.600] Right hand out.
+- [07:24.840] J.D. Vance: Thank you. Thank you, Judge.
+- [07:26.080] I appreciate the assistance. We have such a crowd here,
+- [07:28.600] you think we're swearing in a Vice President.
+- [07:30.170] [laughter]
+- [07:31.370] Okay. Please repeat after me. I, Sergio Gor.
+- [07:36.410] Sergio Gor: I Sergei Gor.
+- [07:37.770] J.D. Vance: Do solemnly swear.
+- [07:38.970] Sergio Gor: Do you solemnly swear.
+- [07:40.210] J.D. Vance: That I will support and defend
+- [07:41.410] the Constitution of the United States.
+- [07:42.960] Sergio Gor: That I will support and defend
+- [07:44.230] the Constitution of the United States.
+- [07:46.150] >>J.D. Vance: Against all enemies, foreign and domestic.
+- [07:48.360] Sergio Gor: Against all enemies, foreign and domestic.
+- [07:50.370] J.D. Vance: That I will bear true faith and allegiance
+- [07:51.960] to the same.
+- [07:53.240] Sergio Gor: That I will bear true faith and allegiance
+- [07:54.790] to the same.
+- [07:56.030] J.D. Vance: That I take this obligation freely.
+- [07:57.840] Sergio Gor: That I take this obligation freely.
+- [07:59.470] J.D. Vance: Without any mental reservation.
+- [08:01.070] Sergio Gor: Without any mental reservation.
+- [08:02.370] J.D. Vance: Or purpose of evasion.
+- [08:03.610] Sergio Gor: Or purpose of evasion.
+- [08:04.840] J.D. Vance: And that I will well and faithfully.
+- [08:06.770] Sergio Gor: And that I will well and faithfully.
+- [08:08.460] J.D. Vance: Discharge the duties.
+- [08:09.680] Sergio Gor: Discharge the duties
+- [08:10.900] J.D. Vance: of the office on which I'm about to enter.
+- [08:13.150] Sergio Gor: Of the office of which I'm about to enter.
+- [08:14.920] J.D. Vance: So help you God. Sergio Gor: So help me God.
+- [08:16.300] J.D. Vance: Congratulations.
+- [08:18.450] [applause]
+- [08:53.570] Sergio Gor: Mister President, this is an honor of a lifetime.
+- [08:56.230] I want to thank first you.
+- [08:59.140] What you have done for this country before you came back in,
+- [09:02.120] the trouble that this country was facing.
+- [09:04.020] I mean, frankly, we were screwed.
+- [09:05.930] What you have achieved in ten months has been historic,
+- [09:10.220] has surpassed any other presidency,
+- [09:12.720] and I fully believe what you will achieve
+- [09:14.330] in the next three years will never be beaten.
+- [09:17.730] So, it has been an honor to serve you.
+- [09:21.770] I've been at your side for many years.
+- [09:23.390] I will continue to be there.
+- [09:26.140] And it's just an incredible honor.
+- [09:27.650] And I look forward to enhancing the relationship
+- [09:30.420] between our two nations.
+- [09:32.840] But again, thank you for entrusting me
+- [09:34.950] with this position,
+- [09:36.310] and I look forward to doing a great job for you.
+- [09:39.080] The President: Thank you very much, Sergio.
+- [09:41.540] [applause]
+- [09:49.290] J.D. Vance: Well thank you, sir.
+- [09:50.560] First of all, congratulations, Sergio.
+- [09:51.980] You're gonna be a great ambassador,
+- [09:53.230] great representative to the country of India,
+- [09:55.050] which the President and I both love.
+- [09:57.350] As a lot of you know, Sergio was a critical piece
+- [09:59.710] of what made the first 10 months such a great success.
+- [10:01.900] Obviously, the President's leadership
+- [10:03.660] is the most important thing, but you can't do a whole lot
+- [10:06.050] unless you've got good people around you.
+- [10:07.630] And Sergio did as much as anybody to ensure
+- [10:10.290] that the White House was staffed with the very best people,
+- [10:12.720] people who were loyal to the president,
+- [10:14.350] loyal to the country, and loyal to the agenda
+- [10:16.010] that we're trying to implement.
+- [10:17.260] So, thank you all for being here.
+- [10:18.830] I think it's a great testament to you, Sergio,
+- [10:20.810] that you got multiple cabinet secretaries,
+- [10:23.640] Erika Kirk, the President of the United States.
+- [10:26.160] This crowd would not turn out for just anybody,
+- [10:28.320] but it turned out for Sergio Gor.
+- [10:29.630] You're gonna do a hell of a job, man.
+- [10:31.500] [applause]
+- [10:37.320] Marco Rubio: Just to echo what Sergio said, Mr. President,
+- [10:39.090] you've done a lot for this country
+- [10:40.380] more than any other president
+- [10:41.590] has in such a short period of time.
+- [10:43.290] And part of that is putting together a phenomenal team.
+- [10:45.910] And I know Sergio was instrumental
+- [10:47.300] in helping you achieve that and so we're --
+- [10:49.010] we think he'll do a great job.
+- [10:50.240] This is a very impressive collection of people.
+- [10:52.520] There are almost 1.5 million people
+- [10:54.190] in the Oval Office right now.
+- [10:55.510] [laughter]
+- [10:56.730] But to reflect but Sergio's gonna do a phenomenal job.
+- [10:59.790] Those of us who've known him,
+- [11:01.220] so many of his friends that are here and family
+- [11:02.870] as well that know how hard he works twenty-four hours,
+- [11:05.080] seven days a week.
+- [11:06.330] And that's what it takes to work in this administration
+- [11:08.270] because of how much you're pushing our country forward
+- [11:10.640] around the world and here at home.
+- [11:12.020] And we know Sergio will do a great job.
+- [11:13.650] So, congratulations, Sergio,
+- [11:15.230] you're gonna do a phenomenal job.
+- [11:16.520] Sergio Gor: Thank you.
+- [11:17.760] The President: Thank you. Jeanine please.
+- [11:19.890] Jeanine Pirro: Well, I'm very proud to be here
+- [11:21.260] with Sergio, my friend,
+- [11:22.460] who's been my friend for many years.
+- [11:24.670] He is someone who is loyal, he is trustworthy,
+- [11:28.760] and he works as hard as anyone I know.
+- [11:31.080] And Mr. President, there is in this room
+- [11:34.330] a group of people who love you, who believe in you,
+- [11:38.550] and who are so proud to be in this Oval Office
+- [11:41.600] and to be part of this amazing day
+- [11:44.530] because you have changed the course of America.
+- [11:47.900] You and thank you, Sergio, for what you've done.
+- [11:50.980] God bless you both.
+- [11:52.290] The President: Thank you.
+- [11:53.950] [applause]
+- [12:00.440] Well he was also very good friends
+- [12:02.370] with a guy named Charlie.
+- [12:03.610] We just knew him as Charlie and his wife,
+- [12:07.110] who we love so much is here with us,
+- [12:08.800] and maybe you know how close they were together.
+- [12:11.230] Maybe Erika you could say a couple of words please.
+- [12:14.140] Erika Kirk: [inaudible]
+- [12:15.580] Charlie loved you. It's hard not to get emotional
+- [12:17.910] because I know that he would have been the first phone call
+- [12:21.660] when he found out
+- [12:22.910] that you were going to be taking this position.
+- [12:25.880] And the way that I was able to witness
+- [12:28.800] the two of you work together for years
+- [12:30.910] and to champion and support the President
+- [12:35.110] was absolutely humbling to witness
+- [12:37.690] and I am so proud of you.
+- [12:39.480] And Charlie is going to be with you every single day in spirit.
+- [12:43.190] And I will be praying for you every day
+- [12:45.200] because I know that this is just the beginning
+- [12:47.690] of an incredible opportunity for you.
+- [12:49.870] And sir, thank you for allowing Sergio
+- [12:52.850] to have this beautiful moment.
+- [12:54.440] The President: Thank you. Thank you very much.
+- [12:56.070] Thank you, Erika.
+- [12:58.090] And that man’s watching over us right now.
+- [13:00.080] Right. Okay. Any questions?
+- [13:03.980] The Press: Mr. President,
+- [13:05.210] do you personally approve of the deal
+- [13:06.660] that's happening right now on Capitol Hill
+- [13:08.030] to end the government shutdown?
+- [13:09.260] The President: Well it depends what deal we're talking about.
+- [13:10.720] But if it's a deal I heard about that's certainly,
+- [13:13.050] you know, they wanna change the deal a little bit,
+- [13:15.330] but I would say so.
+- [13:16.570] I think based on everything I'm hearing,
+- [13:18.720] they haven't changed anything
+- [13:20.000] and we have support from enough democrats
+- [13:24.060] and we're gonna be opening up our country.
+- [13:25.530] It's too bad it was slows,
+- [13:26.760] but we'll be opening up our country very quickly.
+- [13:28.440] >>The Press: Mr. President,
+- [13:29.680] that deal does reverse the mass firings
+- [13:31.930] your administration put through during the shutdown.
+- [13:34.090] Did you sign off on that
+- [13:35.610] and will you abide by that if this passes?
+- [13:37.260] The President: Well, I will be.
+- [13:38.560] I’ll abide by the deal. The deal is very good.
+- [13:41.400] We're not going to be giving one and a half trillion dollars
+- [13:44.110] to people that came in from jails
+- [13:45.890] and from you know, the gangs and drug dealers
+- [13:49.230] and all of these others
+- [13:50.910] that they wanted to be given health care,
+- [13:52.870] which would have hurt our healthcare system.
+- [13:55.110] I hope that we're gonna be able to have a health care
+- [13:56.960] where Lindsay and I were discussing it,
+- [13:58.990] Jim and I were discussing it, and Katie we discussed it.
+- [14:02.350] We want a healthcare system where we paid the money
+- [14:04.430] to the people instead of the insurance companies.
+- [14:06.510] And I tell you, we're gonna be working on that very hard
+- [14:09.300] over the next short period of time
+- [14:10.640] where the people get the money.
+- [14:12.460] We're talking about trillions and trillions of dollars
+- [14:14.870] where the people get the money. Yes please.
+- [14:16.320] The Press: Concerning Syria Mr. President sir.
+- [14:19.750] Could you update us on your meeting?
+- [14:21.100] Did you come to any agreements?
+- [14:22.680] The President: Say it?
+- [14:23.950] The Press: With the leader of Syria you had earlier,
+- [14:26.160] did you come to any agreements today?
+- [14:27.750] The President: Well, I have had an agreement with him.
+- [14:29.310] He's a very strong leader.
+- [14:31.480] He comes from a very tough place and he's tough guy.
+- [14:36.070] I liked him, I get along with him.
+- [14:37.320] The president, the new president of Syria.
+- [14:39.980] And we'll do everything we can to make Syria successful
+- [14:42.970] because that's part of the Middle East.
+- [14:44.740] We have peace now in the Middle East,
+- [14:46.110] first time that anyone can remember that ever happening.
+- [14:47.980] [applause]
+- [14:49.180] I think you know Syria is a very big a very big part
+- [14:59.970] of the Middle East, very important part.
+- [15:01.860] If you look back at Syria for years they had the doctors,
+- [15:05.390] the lawyers, they had so many of the great intellects.
+- [15:08.960] It was it's an amazing place with great people
+- [15:11.810] and we want to see Syria be successful along
+- [15:13.730] with the rest of the Middle East.
+- [15:15.080] So, I have confidence
+- [15:17.140] that he'll be able to do the job, absolutely.
+- [15:20.700] The Press: How close are you to a deal
+- [15:21.990] on a trade deal with India? Are you willing to consider
+- [15:24.300] lowering the current tariff rate?
+- [15:26.290] The President: Well, right now the tariffs
+- [15:27.890] are very high on India because of the Russian oil
+- [15:30.210] and they've stopped doing the Russian oil.
+- [15:32.610] It's been reduced very substantially.
+- [15:34.410] Yeah, we're gonna be bringing the tariffs down on the
+- [15:37.010] The Press: What kind of level are we talking about here?
+- [15:38.820] >>The President: I mean at some point, no,
+- [15:40.160] at some point we're going to be bringing them down.
+- [15:42.520] Without tariffs, we would be --
+- [15:44.530] this country would be in such trouble,
+- [15:46.310] as they were for many years.
+- [15:47.620] That's why we owe thirty-eight trillion dollars.
+- [15:50.360] And one of the things we're gonna do,
+- [15:51.690] we're gonna issue a dividend to our middle-income people
+- [15:55.810] and lower income people of about two thousand dollars,
+- [15:58.940] and we're gonna use the remaining tariffs
+- [16:00.540] to lower our debt.
+- [16:01.820] We're gonna be lowering our debt,
+- [16:03.100] which is a national security thing.
+- [16:05.140] So, we we're doing a lot of good work.
+- [16:07.510] And the numbers were reported so incorrectly.
+- [16:10.130] The real numbers are trillions of dollars have been taken in
+- [16:13.640] or gotten in terms of investment from the tariffs.
+- [16:18.740] And so, if that were ever reversed,
+- [16:20.830] it would be a disaster.
+- [16:22.090] Frankly, it would be a national security problem
+- [16:24.000] for our country.
+- [16:25.240] And nobody thinks it's gonna be reversed.
+- [16:27.190] I think we had a very good court case.
+- [16:29.090] As you know, it's before the Supreme Court right now.
+- [16:31.670] But if that were ever reversed, you know, people say,
+- [16:33.790] “Oh, it's a billion dollars. Some people said,
+- [16:36.080] Oh, it's two billion”.
+- [16:37.330] Well, that obviously we can handle very easily.
+- [16:39.740] But this is trillions of dollars we're talking about
+- [16:42.220] in terms of the tariff income
+- [16:44.120] and all the investment income that's come into our country.
+- [16:46.670] You know, we have more than I would say right now
+- [16:49.720] more than eighteen trillion dollars.
+- [16:52.300] The biggest number ever is a tiny fraction of that
+- [16:54.740] for any country.
+- [16:56.130] China, the United States, the biggest number ever.
+- [16:59.240] If you look at the past administration, Biden,
+- [17:01.830] he did less than a trillion in four years.
+- [17:04.480] We're over eighteen trillion. By the time my first-year ends,
+- [17:08.070] we're gonna have over twenty trillion dollars of investment
+- [17:11.650] coming into the United States. It's unheard of.
+- [17:14.090] We have AI factories, we're leading China by a lot.
+- [17:17.300] We have cars and you know, car plants coming in
+- [17:21.180] by more than we've ever had built before.
+- [17:24.560] All of that would go away if we lose the tariff case.
+- [17:27.900] So, all of it would go away.
+- [17:29.150] So, they're not giving the right numbers.
+- [17:31.160] There would be an economic disaster,
+- [17:34.180] it would be a national security disaster
+- [17:36.250] if we lost the case in the Supreme Court.
+- [17:40.130] The Press: Can we ask that tariff rebate?
+- [17:41.890] This is an idea that you've been talking about for months.
+- [17:43.900] This is going to directly and positively impact
+- [17:47.120] millions of Americans.
+- [17:48.800] Why is this important thing to do
+- [17:50.180] and when can Americans expect that?
+- [17:51.750] >>The President: So, I've been talking about it
+- [17:52.970] for a long time, the dividend to people
+- [17:55.230] that you know have suffered under the Biden administration.
+- [17:58.150] So, Biden had the highest inflation in history,
+- [18:01.290] and we now are at a very low point.
+- [18:02.990] We're gonna be hitting one and a half percent pretty soon.
+- [18:05.700] So, we're at a low point, and he was a high point.
+- [18:09.350] We did that.
+- [18:10.710] Food prices are way down, it's all coming down,
+- [18:13.370] and the biggest decrease, of course, is energy.
+- [18:16.330] And you know, as goes energy, goes everything else.
+- [18:19.230] Because when energy comes down, the oil,
+- [18:21.160] the electric, all but --
+- [18:23.130] we I think you're gonna see two-dollar gasoline
+- [18:26.180] or something very close to that.
+- [18:27.540] In fact, we're already in the twos,
+- [18:29.260] but I think you're gonna be seeing
+- [18:30.730] very soon two-dollar gasoline.
+- [18:32.810] That's like the equivalent of a massive tax cut.
+- [18:35.560] But in addition to that, the great big beautiful bill
+- [18:38.900] gives you a very, very big tax cut.
+- [18:43.470] And then you have no tax on tips,
+- [18:45.020] no tax on Social Security,
+- [18:46.980] and no tax on overtime for the middle income
+- [18:50.520] and for even frankly anybody.
+- [18:53.510] But you have no tax, and then no tax on tips
+- [18:55.860] has turned out to be a tremendous thing.
+- [18:58.090] But when you think no tax on tips,
+- [18:59.890] no tax on overtime,
+- [19:02.010] and no tax on Social Security for our senior side.
+- [19:04.680] It's the great big beautiful bill,
+- [19:07.190] which has been mischaracterized,
+- [19:08.840] but now people even they don't want to talk about it
+- [19:11.340] because it's so good, the enemy,
+- [19:13.210] because it's so good for everybody.
+- [19:15.490] It's the greatest piece of legislation
+- [19:18.180] ever passed in the history of our country in terms of size.
+- [19:21.120] And hence it's called --
+- [19:22.360] they call it the big beautiful bill,
+- [19:24.540] or the one big beautiful.
+- [19:25.800] I call it the great big beautiful bill.
+- [19:28.310] It's an amazing bill for the middle class;
+- [19:31.370] it's an amazing bill for jobs.
+- [19:33.880] We've never passed anything like it.
+- [19:35.410] And in my first administration,
+- [19:37.710] so we had the greatest economy --
+- [19:39.670] everything was good, but we're really outdoing it this time
+- [19:42.440] because we have investments coming in largely
+- [19:44.510] because of tariffs,
+- [19:45.860] and I think because of November fifth, the election result.
+- [19:49.040] But we have investments coming in like we've never had before.
+- [19:52.560] The Press: [inaudible]
+- [19:54.560] The President: Katline, behind you.
+- [19:56.200] [inaudible]
+- [19:59.480] The Press: On Syria. Can we expect an announcement
+- [20:01.550] on a pact between Syria and Israel
+- [20:04.130] or an announcement on them joining the NTI system?
+- [20:07.240] The President: Yeah, you can expect some announcements
+- [20:08.770] on Syria.
+- [20:10.060] We want to see Syria become a country that's very successful,
+- [20:13.830] and I think this leader can do it.
+- [20:15.430] I really do. I think this leader can do it.
+- [20:17.870] And people said he's had a rough past.
+- [20:20.170] We've all had rough pasts, but he has had a rough past,
+- [20:23.510] and I think frankly, if you didn't have a rough past,
+- [20:25.480] you wouldn't have a chance.
+- [20:27.510] He gets along very well with Turkey,
+- [20:29.330] with President Erdogan, who's a great leader.
+- [20:33.450] Erdogan's a great leader, and very much in favor
+- [20:36.260] of what's happening in Syria. We have to make Syria work.
+- [20:39.050] Syria is a big part of the Middle East.
+- [20:41.320] And I will tell you, I think it is working and really well.
+- [20:43.850] We're working also with Israel on,
+- [20:46.050] you know, getting along with Syria,
+- [20:47.590] getting along with everybody, and that's working amazingly.
+- [20:51.840] As you know, Hamas has given us back numerous bodies.
+- [20:54.820] It sounds pretty gruesome,
+- [20:56.420] but it's something the parents want more than
+- [20:59.490] if their son had been living, hard to believe.
+- [21:02.420] It's -- I've seen all of the parents,
+- [21:05.890] so many of the parents,
+- [21:07.480] and getting back the body of their son,
+- [21:10.030] their dead son is as vital to them,
+- [21:14.000] as important to them as
+- [21:15.340] if the boy was generally the boy, the boy was alive.
+- [21:20.980] And as you know over the last four or five days
+- [21:22.920] we've gotten a lot of the additional bodies
+- [21:25.710] that they said they were gonna --
+- [21:27.050] they've worked very hard to do that.
+- [21:28.990] So, we have peace in the Middle East.
+- [21:31.010] It's a great thing.
+- [21:32.250] Nobody's ever seen anything quite like it.
+- [21:34.590] The Press: [inaudible]
+- [21:36.630] You posted last week
+- [21:37.910] about trade about your talks with Switzerland.
+- [21:39.690] We're reporting that you're near a deal
+- [21:41.040] that would lower their rate to fifty.
+- [21:42.360] The President: With Switzerland.
+- [21:43.590] The Press: Yeah.
+- [21:43.870] The President: We're working on a deal to get their tariffs
+- [21:45.660] a little bit lower because --
+- [21:46.960] The Press: 50% is what we are hearing.
+- [21:48.190] The President: No, I haven't said any number
+- [21:49.570] but we're gonna be working on something
+- [21:51.050] to help Switzerland along. We hit Switzerland very hard.
+- [21:54.240] We want Switzerland to remain successful
+- [21:56.450] and you know, we're a part of Switzerland in the sense
+- [21:59.420] that they've been a very good ally.
+- [22:01.680] Yeah, we're working on them and some others
+- [22:03.460] and we're working on others to increase them a little bit too.
+- [22:05.540] The Press: How close is it to Switzerland?
+- [22:06.830] The President: With Switzerland.
+- [22:08.030] Why, do you have something to do with Switzerland?
+- [22:09.400] [laughter]
+- [22:10.600] Jim Risch: He wants to buy a watch.
+- [22:13.090] The President: He wants to buy a nice watch.
+- [22:15.460] He wants to buy a nice Rolex.
+- [22:18.080] [inaudible]
+- [22:19.600] Because Rolex has been – they have been very nice.
+- [22:23.030] No, look it's a it's a beautiful country.
+- [22:25.030] It's a small country but economically very big.
+- [22:27.720] So, we're working on something. Katie?
+- [22:29.230] The Press: [inaudible]
+- [22:30.440] Syrian President Today: Marjorie Taylor Greene,
+- [22:32.730] who is a big ally of yours,
+- [22:34.100] said that she would rather see you focused
+- [22:35.590] on nonstop domestic policy meetings here at the White House
+- [22:38.390] instead of nonstop foreign policy meetings.
+- [22:40.630] What's your response to her saying that
+- [22:42.040] and also saying that grocery prices are up
+- [22:44.220] and not down, as you said?
+- [22:45.710] The President: Yeah, so I don't know
+- [22:48.490] what happened to Marjorie.
+- [22:49.800] She's a nice woman, but I don't know what happened.
+- [22:51.790] She's lost her way, I think.
+- [22:53.630] But I have to view the presidency
+- [22:56.690] as a worldwide situation, not locally.
+- [22:59.730] I mean, we could have a world that's on fire
+- [23:02.090] where wars come to our shores very easily
+- [23:04.670] if you had a bad president. We had a horrible President
+- [23:07.650] and we ended up with Russia, Ukraine,
+- [23:09.420] and we ended up with other disasters too.
+- [23:11.210] Don't forget, I put out eight wars, nine to come.
+- [23:15.210] I think I'll get the other one taken care of.
+- [23:17.050] But I put out eight wars.
+- [23:19.650] And look at the damage that Russia Ukraine
+- [23:22.720] has done to us as a country.
+- [23:24.250] I mean, they we spent 350 billion.
+- [23:26.310] We're not spending any money anymore.
+- [23:27.700] Now they pay us through NATO.
+- [23:30.010] You know, I got NATO to go from two percent to five percent.
+- [23:32.510] Well, that's very important.
+- [23:34.470] When you're president,
+- [23:35.680] you really sort of have to watch over the world
+- [23:37.890] because you're gonna be dragged into it,
+- [23:39.320] otherwise you're gonna be dragged into a world war.
+- [23:42.310] I think if I weren't president, if -- first of all, it --
+- [23:46.000] that war would have never happened if I was president.
+- [23:49.100] And if I weren't president,
+- [23:50.710] that war could have led to World War III.
+- [23:53.040] It won't. It's not going to anymore.
+- [23:54.690] But when I first got in, I said,
+- [23:56.120] “wow, this situation could lead to World War III”.
+- [23:59.170] And I got NATO together, I got everybody together.
+- [24:02.130] But with all of that, I passed a great big beautiful bill,
+- [24:05.260] which is the biggest tax cuts in the history of our country.
+- [24:07.750] So, when somebody like Marjorie Taylor Green,
+- [24:10.200] who's now catering to the other side,
+- [24:11.930] I don't know what, you know, I mean because she's, you know,
+- [24:13.850] got some kind of an act on, but I'm surprised at her.
+- [24:16.960] But when somebody like Marjorie goes over
+- [24:19.410] and starts making statements like that,
+- [24:21.580] it shows she doesn't know. I don't devote a lot of my time.
+- [24:24.830] Let me give you another example. China.
+- [24:27.060] China was gonna hit us with rare earth.
+- [24:29.280] Now everybody says, so what does that mean?
+- [24:31.390] Magnets. If China refused to give magnets
+- [24:36.000] 'cause they have a monopoly on magnets
+- [24:37.550] because they were allowed to you know
+- [24:39.030] happen over a 32 year period.
+- [24:42.100] There wouldn't be a car made in the entire world.
+- [24:44.220] There wouldn't be a radio, there wouldn't be a television,
+- [24:46.440] there wouldn't be internet,
+- [24:47.680] there wouldn't be anything because magnets are such a part.
+- [24:50.070] Now, nobody knows what magnets are
+- [24:52.830] and not overly sophisticated,
+- [24:54.630] but to build a magnet system would take two years.
+- [24:57.890] So, if I weren't able to say to China,
+- [25:00.160] look, if you're gonna do that to us,
+- [25:01.470] we're gonna charge you a hundred and fifty-eight percent tariff.
+- [25:03.950] It was a hundred percent on top of fifty-eight percent.
+- [25:07.240] And China called up immediately
+- [25:08.650] and said we will make peace, and we made peace.
+- [25:11.040] We made a great deal. We made an unbelievable deal.
+- [25:14.300] China's paying tariffs to the United States,
+- [25:16.550] not the United States paying tariffs to China,
+- [25:18.800] which has always been the way it was.
+- [25:20.300] Nobody can believe these deals.
+- [25:22.330] But so, when somebody makes a statement
+- [25:24.170] about he's devoting time to the world,
+- [25:26.280] well the world is the United States
+- [25:28.400] because if the world's in trouble,
+- [25:29.920] or if the world is ripping us off.
+- [25:31.680] You know, the world was ripping us off before I came here.
+- [25:34.650] Europe was getting massive tariffs.
+- [25:37.490] They were sending us nine, ten million cars a year,
+- [25:39.950] we were sending them none.
+- [25:41.920] They were not taking our agriculture,
+- [25:44.200] we were taking massive amounts of theirs.
+- [25:46.230] It was so unfair.
+- [25:47.930] Now we have a deal where 950 billion dollars
+- [25:51.090] is coming into the United States
+- [25:52.630] because of me and because of tariffs.
+- [25:54.800] So, if I don't do all these things,
+- [25:56.500] our country is doing very poorly.
+- [25:58.530] So, you know, it's easy to say,
+- [26:00.870] “Oh, don't worry about the world”,
+- [26:02.370] but the world is turning out to be our biggest customer.
+- [26:05.070] The world is -- the world was on fire
+- [26:08.430] and we could have been in that fire very easily
+- [26:10.410] if you didn't have a president that knew what he was doing.
+- [26:14.110] The Press: Can you guarantee to Americans
+- [26:15.990] that travel is going to go back to normal once the government –
+- [26:18.170] The President: The travel.
+- [26:19.370] The Press: The travel all the air traveling --
+- [26:20.650] The President: It’s going to be better than normal.
+- [26:21.850] You know why?
+- [26:22.740] The Press: When the government reopens.
+- [26:23.970] The President: Yeah, sure. It'll be much better than normal
+- [26:25.520] because we're buying the most sophisticated avionics
+- [26:29.260] and you know technology for our control towers.
+- [26:33.210] And we didn't have that.
+- [26:34.560] We had a guy named Buttigieg, boot-edge-edge.
+- [26:37.610] They say is the best word, just say two edges,
+- [26:40.130] like off the edge of a cliff.
+- [26:42.410] Which is where they were taking us, by the way.
+- [26:45.810] Boot-edge-edge was the Secretary of Transportation,
+- [26:49.910] and he spent billions of dollars trying to patch together
+- [26:53.270] our air control, our air traffic control system,
+- [26:56.490] which was a conglomeration of all different systems
+- [26:59.500] in all different cities.
+- [27:00.810] He spent -- they had hundreds of countries
+- [27:02.940] where companies working on it,
+- [27:04.860] and they were spending billions of dollars,
+- [27:07.100] and when they turned it on, it didn't work.
+- [27:08.810] It didn't even work a little bit.
+- [27:10.040] That's why you had a helicopter crashing into an airplane,
+- [27:13.170] that if we had a great system,
+- [27:14.730] bells and whistles would have started going off.
+- [27:17.140] So we are now in the process, we're in final bids
+- [27:20.580] of getting the finest system anywhere in the world.
+- [27:23.500] I've analyzed it.
+- [27:24.850] Sean Duffy has been working really hard on it,
+- [27:27.020] doing a fantastic job, by the way.
+- [27:29.150] And over the next two or three weeks
+- [27:30.850] we'll be handing out the finest air traffic control system
+- [27:34.990] anywhere in the world. All the towers will be equipped.
+- [27:38.380] They were going copper wire into glass wire
+- [27:40.750] into other types of wire.
+- [27:42.690] And if you do anything,
+- [27:44.650] you know copper wire doesn't work with glass,
+- [27:47.030] you know glass doesn't work with other substances,
+- [27:49.830] and they spent billions of dollars
+- [27:52.200] and when they turned it on nothing happened.
+- [27:54.250] Okay. We're getting the most sophisticated,
+- [27:57.060] all brand new, all brand new.
+- [27:59.130] Every control tower will have the same exact system.
+- [28:01.920] It'll be the most sophisticated system by far in the world.
+- [28:04.550] And what we've done is we've looked around other countries
+- [28:08.220] and we've taken the absolute best systems
+- [28:11.200] in every different form, because there are different --
+- [28:13.010] you have lots of different companies like IBM and Raytheon
+- [28:16.380] and a lot of great companies.
+- [28:18.360] They're all bidding, and we're gonna pick the best one.
+- [28:21.990] And it'll get built relatively quickly
+- [28:25.620] and we are gonna have the greatest air traffic
+- [28:27.580] control system anywhere in the world.
+- [28:29.310] Thank you very much, everybody.
+- [28:31.080] The Press: [Inaudible]
+- [28:37.410] [applause]

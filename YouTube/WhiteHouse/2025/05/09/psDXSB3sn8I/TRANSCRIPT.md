@@ -1,0 +1,325 @@
+<!-- source: https://www.youtube.com/watch?v=psDXSB3sn8I -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: psDXSB3sn8I -->
+<!-- date_published: 2025-05-09T22:17:30+00:00 -->
+<!-- date_accessed: 2026-06-02T01:26:25.479935+00:00 -->
+
+# Transcript: President Trump Signs Executive Orders, May 9, 2025
+
+- [00:00.320] Thank you very much. We have some
+- [00:01.760] executive orders that we're going to be
+- [00:03.120] signing right now that are very
+- [00:04.759] important. Uh they're really redoss from
+- [00:08.400] some horrible mistakes made by Biden and
+- [00:12.080] his group and we're changing them back
+- [00:14.639] so that we can lead a normal life, a
+- [00:17.279] good life, and they're actually very
+- [00:19.359] important. And uh from the standpoint of
+- [00:22.960] lifestyle, they're very important. So
+- [00:24.560] I'd ask Will to maybe explain them.
+- [00:26.880] We'll ask some of our congressmen and
+- [00:28.720] senators to say a few words, please.
+- [00:31.119] Yes, Mr. President. As you said, we have
+- [00:33.200] four bills for your attention today.
+- [00:35.040] These are bills that have been passed by
+- [00:36.480] Congress in the closing days of the
+- [00:38.559] Biden administration. They pushed
+- [00:40.079] through a large number of rules and
+- [00:41.760] regulations that really hurt ordinary
+- [00:44.320] Americans uh including in their own
+- [00:46.399] homes. So, the first of these is HJR20.
+- [00:49.760] Uh this is a bill that repeals Biden era
+- [00:52.320] regulations uh relating to consumer
+- [00:54.879] water heaters, consumer gas fired water
+- [00:56.960] heaters.
+- [00:58.800] Who was in charge of this one? This is
+- [01:00.800] Gary and myself, sir. Gary Palmer
+- [01:02.879] sponsored it, but this bill specifically
+- [01:05.840] saves a factory in my district. 300
+- [01:08.479] Georgians will continue to have their
+- [01:10.320] jobs as soon as you sign that. Mr.
+- [01:12.159] president. This rule was issued on
+- [01:15.119] Christmas Eve thinking that we wouldn't
+- [01:17.920] be keeping up with what the B
+- [01:19.280] administration was doing that uh we
+- [01:21.759] moved quickly to get and this was our
+- [01:23.280] gas heaters. Banning natural gas
+- [01:27.040] heaters. And how were you supposed to
+- [01:29.200] get your heat then? Through electric
+- [01:31.520] through electric was that basically
+- [01:34.400] electric heat which isn't as
+- [01:37.640] good. Crazy.
+- [01:46.880] Yeah, Gary, hold that up. Brian, hold
+- [01:49.280] that up. You guys were great.
+- [01:53.280] Thank you, Mr. President.
+- [01:55.600] No sense. Just no sense. But in addition
+- [01:58.640] to that, you have a lot of workers that
+- [02:00.240] lose their job, right? Yes, sir. 300
+- [02:02.399] workers saved because of you. Good.
+- [02:04.960] Thank you. It's an honor. Here's the
+- [02:09.200] Golden Dome, by the way, if you're
+- [02:11.160] interested. Here's the Golden Dome.
+- [02:14.400] That'll save all your lives someday,
+- [02:16.120] maybe. Okay, good. Thanks, Ryan. You
+- [02:18.720] hold it
+- [02:19.959] up. Next, Mr. President, we have House
+- [02:22.400] Joint Resolution 24. Uh, this is the
+- [02:25.200] same basic idea, but this relates to
+- [02:27.280] walk-in coolers and freezers and and
+- [02:29.599] other refrigeration devices. Again, last
+- [02:32.480] minute Biden era regulation that hits
+- [02:34.800] ordinary Americans uh hard. And what did
+- [02:37.200] they do? Uh they uh put in they increase
+- [02:40.879] the energy efficiency requirements for
+- [02:43.200] walk-in coolers and freezers and
+- [02:44.720] therefore putting an undue burden on
+- [02:47.200] businesses across the country.
+- [02:49.040] Everything from restaurants to uh
+- [02:52.160] pharmacies uh you know hospitals were
+- [02:54.400] all to a point where it didn't work. In
+- [02:55.920] other words, they made the restrictions
+- [02:57.280] so strong that it didn't work and it was
+- [02:59.200] going to cost them so much money to
+- [03:00.879] actually meet the energy efficiency
+- [03:02.640] standards which didn't really save much
+- [03:04.239] money. So this is going to actually help
+- [03:06.480] our small businesses across the country.
+- [03:08.319] Mr. President, good.
+- [03:15.519] Many manufacturers would have had to
+- [03:17.120] close stop
+- [03:18.920] lines, shut down entire lines of
+- [03:22.400] businesses. And I just want to say
+- [03:24.159] rescending these, this was done days
+- [03:26.040] before, days before you took office.
+- [03:29.120] They pushed through these regulations.
+- [03:31.200] They didn't think about the cost to
+- [03:33.040] businesses. They didn't put American
+- [03:34.799] interests first. They didn't put
+- [03:35.920] American businesses first. I am so
+- [03:38.000] grateful we finally have a president
+- [03:39.920] who's not only walking back these
+- [03:41.720] insane, burdensome regulations that are
+- [03:44.319] ultimately going to cost us Americans
+- [03:45.920] and American businesses, but that you
+- [03:48.640] are thinking about the next generation.
+- [03:50.879] And as we're leading into Mother's Day,
+- [03:52.879] some of us are trying to parent and
+- [03:54.560] serve this country at the same time.
+- [03:56.560] Thank you for welcoming my son who is 15
+- [03:59.840] with his mother serving, watching what
+- [04:01.840] we're doing for him and generations to
+- [04:03.760] come. You are making this country
+- [04:05.120] stronger for them. Thank you. Thank you
+- [04:06.799] very much. Good luck. Right. Take care
+- [04:08.560] of your mom.
+- [04:12.879] Thank you.
+- [04:16.239] That's a big one, isn't it? Huh?
+- [04:19.280] Common sense. It's all about common
+- [04:21.120] sense, right? Okay. Will, go ahead.
+- [04:23.520] Next, sir. This is House Joint
+- [04:24.960] Resolution 42. Again, this is a recision
+- [04:27.600] of a bid and error regulation in this
+- [04:29.840] case relating to uh energy conservation
+- [04:32.320] standards uh for household appliances
+- [04:34.800] and certain consumer products.
+- [04:45.120] That's a good one. I know who's over
+- [04:46.919] there. I know who did
+- [04:49.960] this. Explain that, please. Sure. Look,
+- [04:53.120] this is helping fight inflation. Uh
+- [04:55.360] because the cost of your the burden on
+- [04:58.800] appliance manufacturers is going to
+- [05:01.040] drive up the cost of them producing
+- [05:02.720] household products, which means that
+- [05:04.800] when you go buy a washer, dryer, uh any
+- [05:07.199] appliance, it was going to drive up the
+- [05:09.039] cost for consumers. It reduces co uh
+- [05:11.600] consumer choice. But in the bottom line,
+- [05:14.000] we've been trying to fight inflation.
+- [05:15.280] This fights inflation. This helps takes
+- [05:16.880] the cost out of producing these products
+- [05:18.560] that Americans need every day. And when
+- [05:20.800] you think when you add all this up, it
+- [05:22.960] it's one regulation here, one regulation
+- [05:24.880] there. They always say it's dimminimous,
+- [05:26.240] but when you add it all up, it costs a
+- [05:27.840] lot to American consumers and this is
+- [05:29.759] fighting back and it's not as good. And
+- [05:31.759] it's not as good. Not nearly as good,
+- [05:33.360] not nearly as efficient and more
+- [05:35.560] costly. Other than that, it's wonderful.
+- [05:39.120] Thank you. Great job. Thank you very
+- [05:40.639] much. Great. Fantastic.
+- [05:42.800] Okay. And lastly, sir, we have House
+- [05:44.720] Joint Resolution 75. Again, this is a
+- [05:46.960] recision of a Biden era regulation. uh
+- [05:49.680] in this case relating to energy
+- [05:51.440] standards for commercial refrigerators,
+- [05:53.680] freezers, and refrigerator freezers.
+- [05:58.479] Do you have the sink one in here? The
+- [06:00.160] sinks and uh uh that's showerheads. We
+- [06:03.440] we have an executive order on that
+- [06:04.960] coming for you later, sir. Yes, sir.
+- [06:06.240] That's coming when? Uh later this
+- [06:08.000] afternoon. Okay, good. You going to be
+- [06:09.759] around later this afternoon?
+- [06:13.560] Good. Sinks and
+- [06:16.840] showerheads where You buy a home and you
+- [06:20.319] have a new shower head and you don't get
+- [06:23.120] any water. The water doesn't come out of
+- [06:24.960] the sink. The water comes out of
+- [06:26.400] nowhere. What a shame. What a ridiculous
+- [06:28.919] waste. Okay, let me do this. Come here.
+- [06:31.600] Who's uh who's responsible for this?
+- [06:34.560] This mine, Mr. President. Oh, good man
+- [06:37.199] here. Yes, sir. Okay. Thank you. You
+- [06:39.840] want to discuss that? Yes, sir. This
+- [06:41.600] would have this was a government
+- [06:43.360] regulation that we have now repealed.
+- [06:46.000] Thank you very much, Mr. President. that
+- [06:48.080] now saves the the American taxpayer is
+- [06:50.400] getting ready to say the Texas taxpayer
+- [06:51.840] them too. Uh but the American taxpayer
+- [06:54.639] because who would have ultimately paid
+- [06:56.720] the price on a government government
+- [06:59.120] mandate and a government regulation the
+- [07:01.599] people of America. So you just say that
+- [07:03.840] American taxpayer money. So thank you
+- [07:05.440] very much. That's fantastic. Thank you.
+- [07:07.120] It's a great job. Okay. Any questions?
+- [07:10.199] President Caroline said today that a 10%
+- [07:13.840] baseline tariff on all countries is here
+- [07:16.160] to stay even after the deals are done.
+- [07:18.160] Does that mean that countries offering
+- [07:19.840] zero tariffs won't get reciprocity? You
+- [07:22.720] are going to always have a baseline. I
+- [07:25.280] mean there could be an exception at some
+- [07:26.880] point. We'll see. You know somebody does
+- [07:28.400] something exceptional for us. That's
+- [07:30.479] always possible. But basically you have
+- [07:32.160] a baseline of a minimum of 10% and some
+- [07:35.759] of them will be much higher. 40% 50% 60%
+- [07:39.120] as they've been doing to us over the
+- [07:40.639] years. Uh we had a wonderful deal
+- [07:44.319] yesterday. We have four or five other
+- [07:46.080] deals coming immediately. We have many
+- [07:48.560] deals coming down the line and
+- [07:50.000] ultimately we're just signing the rest
+- [07:51.440] of them in. Uh but we always have a
+- [07:54.000] baseline of 10%. And then specifically
+- [07:56.720] on the possibility of an increase in
+- [07:59.360] taxes on wealthier Americans, what do
+- [08:02.000] you say to conservative Republicans who
+- [08:04.639] argue that this is an increase on small
+- [08:07.120] business owners? Well, what we're doing
+- [08:08.879] is we're actually if we ever did that,
+- [08:11.360] it would only be and from what I hear,
+- [08:14.560] uh, people would love to do it, rich
+- [08:16.080] people, I would love to do it, frankly,
+- [08:17.599] but what we'll do is that, you know,
+- [08:19.039] they'll go around saying, "Oh, this is
+- [08:20.639] so terrible." What you do it is you're
+- [08:22.720] giving uh up something up top in order
+- [08:26.160] to make people in the middle income and
+- [08:28.240] the lower income brackets save more. So,
+- [08:31.120] it's really a redistribution. Uh and I'm
+- [08:34.800] willing to do it if they want. I would
+- [08:36.959] love to be able to give people in a
+- [08:38.479] lower bracket a big break by giving up
+- [08:41.519] some of what I have. But I'll tell you,
+- [08:43.200] a lot of people say don't do it because
+- [08:44.880] of the fact that you have uh the Bush
+- [08:47.760] statement about read my lips. But he
+- [08:50.240] lost because of Ross Perau. He didn't
+- [08:51.839] lose because of that statement. And then
+- [08:53.519] on the but I I don't think they're going
+- [08:55.519] to be doing it. But I actually think
+- [08:57.200] it's good politics to do it where richer
+- [09:00.080] people give up and it's a very small
+- [09:01.680] it's like a point but they give it up to
+- [09:04.399] benefit uh people on a lower income. And
+- [09:06.880] then on the salt tax credits, Mr.
+- [09:08.480] President, there are some Republicans
+- [09:10.800] who say, "Why is it that these 45 other
+- [09:14.880] states should be paying taxes to
+- [09:17.920] alleviate the tax burden of New York or
+- [09:21.120] it's only because those states are
+- [09:22.560] behind very badly behind and those
+- [09:25.279] people were affected very badly and you
+- [09:27.839] know the sad part is often times they
+- [09:29.600] were affected badly because you had bad
+- [09:31.279] management in those states like in
+- [09:32.800] California with Newsome and you know
+- [09:35.200] people so you had some bad management
+- [09:38.000] But uh that's being worked on now and
+- [09:40.399] they may do a piece one way or the
+- [09:42.000] other. It's a very complex issue, but I
+- [09:45.600] think I think it's being worked out. I
+- [09:47.440] think it's going to be it has not been
+- [09:48.880] settled yet, but they'll settle it up
+- [09:51.279] pretty quickly. Mr. President, can we
+- [09:53.200] ask what parameters have you given Scott
+- [09:55.440] Besson on negotiating with China this
+- [09:57.120] weekend?
+- [09:58.519] Uh we have to make a great deal for
+- [10:00.959] America. Are you going to be
+- [10:02.640] disappointed if he comes back without a
+- [10:04.160] deal? No, not at all. because we already
+- [10:06.959] made a great deal. We're not doing
+- [10:08.880] business with China right now. Mr.
+- [10:10.560] President, give me your relationship
+- [10:11.600] with We lost We
+- [10:13.560] lost $1 trillion last year with China.
+- [10:17.120] One trillion. So, if you're not going to
+- [10:18.560] do business with him, you're not going
+- [10:19.760] to lose $1 trillion. But we lost I just
+- [10:22.320] want I want China to do great. You know,
+- [10:24.560] I'm very friendly with President Xi. I
+- [10:26.880] have great respect for him and for
+- [10:28.440] China, but we can't continue to allow
+- [10:31.680] them to do what they did. when I was
+- [10:33.440] president that paid hundreds of billions
+- [10:35.200] of dollars in tariffs and taxes and then
+- [10:38.000] Biden screwed it all up. He what he did
+- [10:40.160] to this country between the border and
+- [10:42.000] between all of the other problems, the
+- [10:43.680] wars, everything. What he did to this
+- [10:46.000] country should never be forgotten. But
+- [10:48.240] one of the things he did is the trade
+- [10:49.839] was so bad and so imbalanced. So, uh I
+- [10:53.360] think we're going to come back with a
+- [10:54.640] fair deal for both China and US. Have
+- [10:56.880] you given Bessant a number of how low
+- [10:58.959] you're willing to go? Yeah, I have.
+- [11:01.360] What's the number that number? 80%. But
+- [11:04.240] I put out a number today, 80%, so we'll
+- [11:06.560] see how that all works out. The US
+- [11:09.040] embassy in Kev is warning right now
+- [11:12.079] about possible Russian uh significant
+- [11:14.880] attack on Kev. What's your message for
+- [11:17.279] Putin?
+- [11:19.680] I have a message for both parties. Get
+- [11:22.640] this war ended. We're losing
+- [11:25.640] 5,000 soldiers a week, Russian and
+- [11:28.720] Ukrainian soldiers, and other people
+- [11:30.720] also, by the way. And I say, get this
+- [11:33.519] stupid war finished. That's my message
+- [11:36.000] for both of them. Thank you very much.
+- [11:37.600] We'll see you
+- [11:42.839] in right through there. Thank you. Came
+- [11:45.440] in to say hello.
+- [11:48.160] Almost nothing. He came in to say hello.
+- [11:50.320] Was very nice. And I think he came in to
+- [11:52.399] thank me, frankly.
+- [11:54.000] I mean, that would be I would say the
+- [11:55.519] primary reason, but he uh he was very
+- [11:57.600] nice. He's a nice man, but I think he
+- [12:00.079] actually came in to thank me. Is he
+- [12:01.839] complying with ICE like you'd like to
+- [12:03.519] see? You'd have to ask Tom H.
+- [12:08.399] Mr. President, do you have a reaction to
+- [12:09.680] Bill Gates's comments yesterday that the
+- [12:11.519] cuts from USA ID will lead to millions
+- [12:13.760] of deaths of children around the world?
+- [12:15.200] I didn't know anything about those
+- [12:16.160] comments. Mr.

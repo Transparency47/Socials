@@ -1,0 +1,461 @@
+<!-- source: https://www.youtube.com/watch?v=vXe5Y2lmyEc -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: vXe5Y2lmyEc -->
+<!-- date_published: 2025-03-12T22:16:28+00:00 -->
+<!-- date_accessed: 2026-06-02T02:52:54.434434+00:00 -->
+
+# Transcript: President Trump Participates in a St. Patrick's Day Reception with the Taoiseach of Ireland
+
+- [00:33.960] The President: Well, thank you very much.
+- [00:35.370] It's a great honor. Great people.
+- [00:37.870] A lot of Irish friends right there.
+- [00:40.560] A lot of very, very good Irish friends.
+- [00:43.660] But thank you all for being here,
+- [00:45.180] even though it's still a few days away,
+- [00:47.170] I want to be the first to wish each
+- [00:48.910] and every one of you a very happy St. Patrick's Day.
+- [00:52.450] It's a big day. And as a lifelong New Yorker,
+- [00:56.980] nobody knows the Irish better than me.
+- [00:59.890] I know too much about the Irish.
+- [01:02.300] So let me begin by saying I really do … I love the Irish.
+- [01:06.440] I've had great, great friends over the years.
+- [01:08.500] And I love the Irish, special people.
+- [01:11.150] And I've been to Ireland many times.
+- [01:12.740] I have a lot of property in Ireland actually.
+- [01:15.680] And it does very well, so I like it.
+- [01:18.030] If it didn't do well, I wouldn't like it.
+- [01:20.830] But I'm always struck
+- [01:22.680] by the awesome beauty of the Emerald Isle,
+- [01:25.440] and its strength and warmth and grit
+- [01:27.090] and grace of the Irish people. Very few people can compare.
+- [01:31.770] Today we're delighted to welcome Taoiseach Micheál Martin,
+- [01:37.060] a very special man, doing incredibly well
+- [01:39.600] and very popular, and his beautiful wife, Mary.
+- [01:43.060] And I want to thank you both for being here.
+- [01:44.900] The first official visit to the White House.
+- [01:47.610] So thank you very much for being there with us.
+- [01:50.400] Thank you.
+- [01:57.140] I also want to extend a special welcome
+- [01:59.540] to Ireland's Ambassador to the United States,
+- [02:02.240] Geraldine [inaudible]. And where are you, Geraldine?
+- [02:05.910] There you are. Geraldine Byrne Nason.
+- [02:09.580] And you're going to be working with this gentleman right here.
+- [02:12.840] He is a very great golfer.
+- [02:14.650] One of the best golfers that you'll ever see.
+- [02:17.400] He'll be playing golf all day long with …
+- [02:19.190] He'll take clients out to play golf.
+- [02:22.100] But he's won many, many club championships.
+- [02:24.240] And Ed Walsh, congratulations. Great. Going to be great.
+- [02:31.740] We're grateful also to be joined by the members
+- [02:35.920] and many members of our cabinet. Proud Irish-Americans,
+- [02:39.420] Sean Duffy and Robert F. Kennedy Jr.
+- [02:43.100] Where's Robert F. And Sean? Hi, Bobby. I knew that …
+- [02:48.870] Let's see, Duffy we knew, and Kennedy we knew.
+- [02:51.240] Some of you, I wasn't as sure.
+- [02:52.730] Pam Bondi. I don't know. Are you Irish? Are you Irish?
+- [02:56.650] With that name, I can't … Haven't figured that out.
+- [02:58.480] She's doing a hell of a job. I'll tell you that.
+- [03:00.320] Attorney General, Pam Bondi. Secretary of Energy…
+- [03:07.440] Secretary of Energy, Chris Wright.
+- [03:09.590] Now you're doing a good job. You see the oil is going down.
+- [03:12.400] It's going down. $65 a barrel today.
+- [03:16.070] You're doing better than I even thought.
+- [03:17.610] Because everything else is going to be coming down with it.
+- [03:20.350] All those expensive goods that you had to suffer with
+- [03:23.420] for four years, they're all coming down.
+- [03:25.760] Energy leads the way. Thank you.
+- [03:27.210] Good job, you're doing with our friend, right?
+- [03:31.050] HUD secretary, Scott Turner. You're not Irish, Scott.
+- [03:34.640] Where's Scott? Give me a break, Scott.
+- [03:37.080] I want to be politically correct and not mention it,
+- [03:39.300] but I'm going to say,
+- [03:40.610] "How much Irish do you have in you, Sean?"
+- [03:42.670] I don't know. He said, "Zero." That's right.
+- [03:46.430] Secretary of Veterans Affairs, Doug Collins.
+- [03:49.730] Doug? Thank you, Doug. You're Irish.
+- [03:53.800] EPA Administrator, Lee Zeldin.
+- [03:56.370] He's one of the most important guys.
+- [03:59.530] He's going to get those approvals.
+- [04:01.560] A nuclear power plant will take less than two weeks
+- [04:04.980] to get approved, right, Lee, huh?
+- [04:08.040] They used to take 15 years.
+- [04:09.470] We're going to do it in a couple of weeks.
+- [04:11.350] US Trade Representatives, Jamieson Greer.
+- [04:15.070] Where are you, Jamieson? Jamieson Greer.
+- [04:18.000] Thank you, Jamieson. And I also …
+- [04:21.830] There's a very special man here
+- [04:23.210] that I've been watching a long time.
+- [04:25.840] One of the greatest dancers ever in the world.
+- [04:28.250] Michael Flatley is around here, some place.
+- [04:31.410] There's nobody like this guy.
+- [04:35.400] Great, Michael. I've watched him. Radio City.
+- [04:38.290] I've watched you a lot, Michael. Those feet the way they moved.
+- [04:40.970] I don't know how the hell you do it.
+- [04:42.810] Can you still dance like that? Or has Father Time caught up?
+- [04:47.040] You know Father Time has never lost.
+- [04:48.650] You know that, right?
+- [04:50.180] But you're doing great. You look fantastic.
+- [04:53.650] Also with us are Representatives, John McGuire.
+- [04:57.040] John? Hi, John. Good.
+- [05:01.350] Bill Huizenga. Bill, thank you. Ronny Jackson.
+- [05:06.160] Doc Ronny as I call him, even though he is a congressman.
+- [05:09.300] Special guy. John Joyce. John?
+- [05:14.370] Thank you, John. David Joyce.
+- [05:17.140] David? Thank you. And Guy Reschenthaler.
+- [05:23.780] You know Reschenthaler, he's …
+- [05:28.290] That's actually the way you pronounce it, you know.
+- [05:30.260] Nobody else gets it right. I got it right.
+- [05:32.250] But it's a hell of a name.
+- [05:34.400] And despite that, he's very successful at what he does,
+- [05:36.840] which is politics, and he is a great guy.
+- [05:38.610] Thank you, Guy.
+- [05:39.810] We have come together to this beautiful
+- [05:42.620] White House this evening for the Annual Shamrock
+- [05:45.630] Ceremony, a living symbol of the long and unique friendship
+- [05:48.510] between Americans and the Irish.
+- [05:50.750] And we're always going to have that friendship.
+- [05:52.420] Just like we have a great friendship.
+- [05:55.030] We'll always have that very special friendship.
+- [05:57.040] This wonderful tradition dates back to 1952,
+- [06:00.840] when the first Irish Ambassador to the United States
+- [06:04.210] sent President Truman
+- [06:05.480] a box of shamrocks as a gesture of goodwill.
+- [06:08.940] You hear that, Walsh? The first. You're not the first.
+- [06:11.900] You're … I don't know what you are.
+- [06:13.430] What number are you? Do you have any idea?
+- [06:16.300] It's been a long time, right? Let's see.
+- [06:18.300] I could figure it out pretty easily.
+- [06:20.290] The bond between our nations.
+- [06:21.800] As the old America itself, and it is as old as our country.
+- [06:26.690] So many Irish volunteers risked their lives
+- [06:29.350] in the American Revolution.
+- [06:30.750] And George Washington described Ireland as, quote,
+- [06:34.070] "The friend of my country in my country's most friendless day,"
+- [06:38.370] meaning Ireland stuck with us when we were not doing so well,
+- [06:42.430] when it was looking pretty bad.
+- [06:44.410] Irish heritage gave us the boldness of Andrew Jackson.
+- [06:48.170] I didn't know Andrew Jackson was Irish.
+- [06:50.860] The brilliance of F. Scott Fitzgerald,
+- [06:53.690] Henry Ford and Walt Disney,
+- [06:55.370] and the leadership of the late, great president, Ronald Reagan.
+- [07:05.470] It was men and women of Irish descent
+- [07:08.080] who built the hallowed halls of Notre Dame University.
+- [07:12.730] Notre Dame is great. What a great place.
+- [07:14.850] The legend of the Boston Red Sox
+- [07:17.030] and the golden arches of McDonald's.
+- [07:19.130] That's right. Today, one in every 10 Americans
+- [07:22.290] trace their roots back to the old country.
+- [07:24.590] We were discussing,
+- [07:26.000] we have 5 million people living in Ireland,
+- [07:28.910] but we have 35 million people living here,
+- [07:31.130] right, of Irish descent.
+- [07:32.400] That's a pretty interesting statistic.
+- [07:34.820] I was looking at all these great dancers over here.
+- [07:37.810] You are very beautiful.
+- [07:39.490] Are you all great dancers? That right?
+- [07:41.660] Look at that young, great dancers.
+- [07:44.480] Wow. That's great.
+- [07:48.730] Did you perform for the group before?
+- [07:51.270] Because I heard somebody was doing really fantastic.
+- [07:54.110] They said these people are fantastic.
+- [07:55.600] I didn't get to see you.
+- [07:56.810] Do you want to do it again?
+- [08:00.110] Well, we might have them do it again.
+- [08:02.300] I heard you did a fantastic job. Thank you.
+- [08:04.750] As we celebrate Irish-American Heritage Month,
+- [08:07.380] we're grateful to be joined
+- [08:08.660] by hundreds of these proud patriots right here today.
+- [08:12.170] And I know them, from personal experience,
+- [08:14.900] that many of the people that we have here,
+- [08:17.080] they're just fierce.
+- [08:18.340] They have fierce Irish flame, we call it.
+- [08:21.940] You never give up. You never ever give up.
+- [08:24.400] Oh, I even see Don. Hello Don. You are definitely Irish.
+- [08:28.030] Don McGahn. You are definitely an Irishman.
+- [08:31.050] There's no question about that. But you never give up.
+- [08:34.200] We'll never give up ever, right? For the young ones, ever.
+- [08:37.680] Because you never know what's going to happen, you know.
+- [08:39.670] Just a little bit more effort and you get there.
+- [08:42.840] Look at what happened to me.
+- [08:44.340] A lot of people said this was not a possibility.
+- [08:51.650] They said that was going to be a tough race,
+- [08:53.160] and we won in the landslide,
+- [08:54.640] and let's keep it that way, right.
+- [08:56.450] And we're having a great time bringing our country back
+- [08:59.380] and bringing it back at a level that people had no idea
+- [09:03.010] was going to take place this rapidly, this quickly.
+- [09:06.160] And a lot of our great people that are secretaries
+- [09:08.510] and the people working in the administration are here
+- [09:11.010] and they're doing a fantastic job.
+- [09:13.400] So I want to thank all of you.
+- [09:15.170] Five blocks east of where we are today,
+- [09:17.140] that spirit once helped save the very heart
+- [09:19.450] of the city's Irish-American community,
+- [09:22.380] you all know about it, during the war of 1812,
+- [09:25.690] British forces rampaged through the streets of Washington,
+- [09:28.730] burning every building in their path.
+- [09:30.650] Every single building was being burned down.
+- [09:33.850] Almost every one fled,
+- [09:36.930] but not Father William Matthews of St. Patrick's Church,
+- [09:40.330] which was built to serve the Irish workers
+- [09:42.700] who came to build the Capitol and the White House.
+- [09:45.160] They were building the White House
+- [09:46.440] and they formed a great bond.
+- [09:48.780] And they were doing pretty important buildings,
+- [09:52.350] the White House and the Capitol.
+- [09:53.890] I would say that's about as good as it gets.
+- [09:55.850] As the fire spread,
+- [09:57.630] the priest and the group of his parishioners said that,
+- [10:01.610] "We're just going to have to barricade ourselves in.
+- [10:03.840] We're going to have to do something.
+- [10:05.280] Because it's really bad. It's really dangerous in here."
+- [10:08.560] And inside the church, they climbed to the roof,
+- [10:11.330] armed with only buckets of water.
+- [10:13.140] That's the only thing they had.
+- [10:14.460] And the other thing they had was faith in God.
+- [10:17.490] They had a big faith in God.
+- [10:18.900] They said, "God will never do this to us."
+- [10:21.370] Risking their lives, they defended the church.
+- [10:23.820] And more than two centuries later,
+- [10:25.900] St. Patrick's still stands as a beautiful testament
+- [10:28.760] to their incredible resolve and bravery.
+- [10:31.350] And the patron saint of the Emerald Isle.
+- [10:35.120] And that's what it is, St. Patrick.
+- [10:37.570] So we have St. Patrick's Day and we remember their courage
+- [10:40.700] and we honor the bravery of countless Irish-Americans
+- [10:43.480] who have kept our country safe, strong, prosperous, and free.
+- [10:47.100] And I made a little talk with my friend right behind me,
+- [10:51.670] before, at the Capitol,
+- [10:53.820] and they gave me one statistic that they don't have here.
+- [10:56.760] I thought it was an amazing statistic.
+- [10:59.580] 50% of the people that won the Congressional Medal of Honor
+- [11:05.050] were Irish. Can you imagine?
+- [11:07.450] And I want to check on that.
+- [11:11.190] Because that sounds … to me, that's …
+- [11:13.550] No, it's just that. I want to …
+- [11:14.880] Pam, would you please have that investigated?
+- [11:16.800] Because how is that possible? Seriously, how is that possible?
+- [11:21.060] I was very surprised to see that, Mary.
+- [11:22.810] Would you agree that that's possible?
+- [11:24.260] With the Irish, anything-
+- [11:25.490] Female Speaker: Of course it's possible.
+- [11:26.690] The President: With the Irish …
+- [11:28.220] Now, think of it, the Congressional Medal of Honor
+- [11:30.230] is the highest award you can get in this country and 50% …
+- [11:35.850] Well, you also have the Presidential Medal of Freedom.
+- [11:38.330] But I will say the Presidential Medal of Freedom,
+- [11:41.160] it's much easier to …
+- [11:45.050] You get it for achievement in something.
+- [11:46.680] But you don't have to take many, many bullets.
+- [11:50.310] Although, there has been one bullet that was …
+- [11:53.400] There's been one bullet that was not too good.
+- [11:56.860] I'm the only one, the presidential, that got that.
+- [12:00.520] But think of that, 50% of the people
+- [12:03.760] that received the Congressional Medal of Honor
+- [12:06.980] had Irish heritage and were involved in some form
+- [12:11.080] with the Irish, and that's pretty good.
+- [12:12.580] That's a pretty big statement.
+- [12:14.720] In closing, I want to remember one more Irish-American patriot
+- [12:18.470] our nation lost this week.
+- [12:20.360] In 1979, Anthony R. Dolan, some of you know that name,
+- [12:24.850] a lot of the people that work in the White House
+- [12:26.630] know it very well,
+- [12:27.870] became the youngest ever Pulitzer Prize winner
+- [12:30.480] for his reporting on government corruption
+- [12:32.510] in Stanford, Connecticut.
+- [12:34.360] In 1981, he became the Chief Speechwriter
+- [12:36.840] to President Reagan, whom he served for eight years.
+- [12:39.810] That's a long time.
+- [12:41.040] That's the full time, eight years.
+- [12:43.520] Coining the phrase, "Evil empire."
+- [12:45.270] That was his word.
+- [12:46.500] That's a very famous … People aren't here.
+- [12:48.530] The Evil Empire was a very profound statement.
+- [12:52.530] Tony served as a White House Advisor
+- [12:54.580] throughout my first term and most recently was a Special
+- [12:57.690] Assistant to President on Domestic Policy
+- [13:01.390] and the Domestic Policy Council.
+- [13:04.230] He passed away early Monday morning
+- [13:06.190] and his family is devastated, to be honest.
+- [13:09.970] They're devastated.
+- [13:11.210] A couple of the family members are here.
+- [13:12.830] But they're devastated. He was a great person.
+- [13:15.250] Great, brilliant writer.
+- [13:16.960] And so he will be very greatly missed.
+- [13:20.600] And Tony is looking down on us right now.
+- [13:23.070] And he was so proud of what he did and his heritage.
+- [13:26.260] He was so proud of his heritage.
+- [13:27.700] So I want to thank him and his family
+- [13:29.840] for the incredible job they did.
+- [13:32.340] Once again, let me wish everyone a very happy St. Patrick's Day.
+- [13:35.660] And with that, I would like to ask Taoiseach Martin
+- [13:39.310] to say a few words.
+- [13:41.010] He's a very, very special man in Ireland, as you probably know.
+- [13:45.050] He is a very popular guy, which is not easy in Ireland.
+- [13:48.230] And it's an honor to have both Mary and Micheál here with us
+- [13:52.950] because we've gotten to know each other very well
+- [13:55.970] and they're great people. Thank you very much everybody.
+- [14:08.750] Thank you.
+- [14:13.680] Taoiseach Martin: President Trump, distinguished guests.
+- [14:16.510] It is a singular honor to represent the people of Ireland
+- [14:20.590] as we gather to celebrate St. Patrick's Day.
+- [14:24.510] The time-honored tradition of the Shamrock Bowl Ceremony
+- [14:28.950] is an important moment to reflect upon the relationship
+- [14:33.280] between our two countries.
+- [14:35.770] Mr. President, as you said on an earlier St. Patrick's Day,
+- [14:40.060] and I quote, "Through trial and triumph, ups and downs,
+- [14:43.880] thick and thin,
+- [14:45.150] the extraordinary Irish people have stood by America's side,
+- [14:49.010] and America will always stand by theirs."
+- [14:52.780] Our peoples have stood side by side for a long time.
+- [14:56.480] And next year, the United States marks the 250th anniversary
+- [15:00.960] of the Declaration of Independence.
+- [15:03.540] Of the 56 signatories of that historic document,
+- [15:07.000] three were born on the island of Ireland,
+- [15:09.480] and many others were of Irish descent.
+- [15:12.850] Since then, Irish-America has been at the heart
+- [15:15.810] of shaping this great nation.
+- [15:18.660] The ideals of liberty, democracy,
+- [15:21.200] and equality of opportunity, forged in this country,
+- [15:24.920] did much to inspire Irish independence.
+- [15:28.520] Our histories are interconnected
+- [15:31.030] because our people are interconnected.
+- [15:33.910] Today as the president has said, more than 30 million people
+- [15:37.180] claim Irish ancestry in the United States.
+- [15:41.420] Those who came to America
+- [15:43.230] seeking refuge from poverty and hunger at home worked hard.
+- [15:48.340] They helped build the railroads that connected this country
+- [15:51.750] and the skylines that defined it.
+- [15:54.420] Others served their communities
+- [15:57.120] and their adopted home as firefighters,
+- [16:00.030] teachers, nurses, doctors, policemen and soldiers.
+- [16:04.990] Irish people can now be found in almost every industry
+- [16:08.880] and community across the United States.
+- [16:11.970] Mr. President, Irish-Americans have lived the American dream.
+- [16:27.020] I saw that for myself earlier this week
+- [16:29.950] in the great state of Texas,
+- [16:31.810] where I met Governor Greg Abbott,
+- [16:34.030] attended South by Southwest,
+- [16:36.320] and learned about exciting economic opportunities
+- [16:39.060] that are bound in the Lone Star State.
+- [16:41.750] I met with Texan based companies using Ireland
+- [16:44.700] as a gateway into the European market.
+- [16:47.140] As well as the Irish companies investing in
+- [16:50.340] and buying from Texas.
+- [16:52.640] All across the United States, men and women go to work
+- [16:55.990] every morning in Irish owned companies.
+- [16:59.200] These companies play a key role in the US economy,
+- [17:02.990] operating in every sector, in every state.
+- [17:06.650] Some of your great American manufacturing companies
+- [17:09.780] count Irish buyers as their top client,
+- [17:12.790] with [inaudible 00:16:58] worth many billions of dollars,
+- [17:16.360] supporting the jobs of thousands of fantastic American workers.
+- [17:21.560] Ireland is now in the top 10
+- [17:23.930] as a source of foreign direct investment in the United States.
+- [17:27.670] Not bad for a small island.
+- [17:36.850] Ireland likes to trade with United States,
+- [17:39.570] and the United States likes to do business with Ireland
+- [17:42.620] because we are strong and reliable partners.
+- [17:45.750] Mr. President, let's do even more and better together.
+- [17:50.190] In the past, Irish laborers came to help build the new Republic,
+- [17:54.650] the beacon on the hill.
+- [17:56.600] They even built this beautiful White House.
+- [17:59.490] They built the roads and the railroads
+- [18:01.370] that made this mighty union possible.
+- [18:04.070] Today, Irish companies are building the infrastructure
+- [18:07.590] connecting the United States in the 21st century.
+- [18:11.480] Throughout our great shared history,
+- [18:13.920] Ireland has played a role in bringing America closer.
+- [18:18.130] In doing so, we've been proud to help make this country great.
+- [18:22.690] Mr. President,
+- [18:23.940] American companies continue to invest in Ireland,
+- [18:27.070] where our access to the European market,
+- [18:29.320] talented workforce,
+- [18:30.990] and consistent and stable business environment
+- [18:33.940] makes us one of the best places in the world to do business.
+- [18:37.890] And just like our peoples and cultures,
+- [18:40.370] our economies are deeply interconnected.
+- [18:43.130] Investment in Ireland helps American companies
+- [18:45.540] sell their products across the world.
+- [18:48.250] Our island is home to a people with an outward perspective,
+- [18:53.360] generations of whom have looked to the United States
+- [18:56.830] for opportunity and inspiration.
+- [18:59.930] We've built prosperity through free and fair trade
+- [19:02.810] with partners all over the world,
+- [19:05.080] and particularly here in these United States.
+- [19:08.470] Let us continue to build on that foundation,
+- [19:11.890] bringing ever-growing prosperity to both our great peoples.
+- [19:16.340] Let us continue to work together to make sure that we maintain
+- [19:20.040] that mutually beneficial two-way economic relationship
+- [19:23.640] that has allowed innovation and creativity
+- [19:25.790] and prosperity to thrive.
+- [19:28.640] Mr. President, on St. Patrick's Day in 1981,
+- [19:32.560] in this house, President Ronald Reagan
+- [19:34.990] spoke of a just and peaceful solution
+- [19:38.150] to the conflict in Northern Ireland.
+- [19:40.600] And that was the start of an extraordinary journey.
+- [19:43.620] 17 years later, after enormous effort,
+- [19:46.450] and commitment, and dialogue,
+- [19:47.830] and disagreement, and sheer perseverance,
+- [19:50.970] we signed a Good Friday Agreement.
+- [19:53.200] We signed a just and lasting peace into being.
+- [19:57.190] And the United States of America was at the very center
+- [20:00.970] of that magical moment of hope and inspiration.
+- [20:05.160] Successive presidents, Republican and Democrat,
+- [20:08.790] cared enough to put in the late nights,
+- [20:12.120] the persuading, the cajoling, the negotiating,
+- [20:15.820] the encouraging, the influencing.
+- [20:18.970] And Mr. President,, 3,720 people were killed in that conflict
+- [20:24.520] and close to 50,000 people were injured.
+- [20:27.660] In per capita terms, that's many millions of Americans.
+- [20:31.520] And just imagine that for a moment,
+- [20:33.630] in terms of the scale of what happened.
+- [20:36.270] It was the support of the United States of America
+- [20:39.620] that was essential in bringing that to an end.
+- [20:43.010] One of the greatest achievements of American Foreign Policy
+- [20:46.240] with heartfelt commitment from both sides of the aisle.
+- [20:50.860] The story of peace in Ireland is one that we wrote together.
+- [20:55.910] We know building peace is a difficult and painstaking task,
+- [21:01.040] but when the mighty United States of America
+- [21:03.780] puts its shoulder to the wheel,
+- [21:05.580] there is no mountain it cannot move.
+- [21:17.970] Mr. President, I welcome the unrelenting focus and energy
+- [21:23.740] you have brought to the search for peace in Ukraine
+- [21:27.370] and in the Middle East since your first days in office.
+- [21:39.040] In my view, there is nothing more noble,
+- [21:43.430] President, than the pursuit of peace.
+- [21:46.500] And this is what you are doing.
+- [21:55.680] Ireland is ready to work with you
+- [21:58.200] and our international partners to end conflict
+- [22:01.420] and especially to bring just, lasting and sustainable peace
+- [22:05.110] to the people of Ukraine and the people of the Middle East.
+- [22:08.570] Conflict and war hurt the most vulnerable.
+- [22:12.590] Too many children in particular have died in Gaza,
+- [22:15.960] in Israel, in Sudan.
+- [22:18.060] And too many children have been abducted in Ukraine.
+- [22:21.880] Let us together never cease to strive for peace, prosperity,
+- [22:25.740] and opportunity for all the world's children.
+- [22:29.160] That would be an extraordinary achievement
+- [22:30.820] for the transatlantic relationship.
+- [22:33.030] And an extraordinary legacy for the ages.
+- [22:36.520] Mr. President, County Clare
+- [22:39.110] is one of the most beautiful places on this earth.
+- [22:44.950] And Doonbeg is one of its finest jewels.
+- [22:49.350] One of Ireland's finest poets, and we've had a few,
+- [22:52.310] as you know, wrote of the beauty of County Clare,
+- [22:57.120] "Along the Flaggy shore in September or October
+- [23:01.440] when the wind and the light are working off each other."
+- [23:06.440] And Heaney wrote of how Ireland can catch the heart off guard
+- [23:11.780] and blow it open.
+- [23:13.850] I have been to that part of Clare,
+- [23:16.280] and I know that that is true.
+- [23:19.040] Mr. President, I hope that we can welcome you to Ireland
+- [23:22.390] soon to catch your own heart off guard.
+- [23:27.170] You know better than anyone, the beauty of Doonbeg.
+- [23:30.680] A place that would take anyone's breath away.
+- [23:34.740] [foreign language 00:23:19]. Thank you very much indeed.
+- [23:42.100] And happy St. Patrick's Day to you all.
+- [23:56.270] Thank you.
+- [24:03.090] Time-honored tradition,
+- [24:04.410] I'm going to present the bowl of shamrock to President Trump.

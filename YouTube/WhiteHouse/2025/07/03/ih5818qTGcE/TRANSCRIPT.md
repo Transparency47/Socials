@@ -1,0 +1,154 @@
+<!-- source: https://www.youtube.com/watch?v=ih5818qTGcE -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: ih5818qTGcE -->
+<!-- date_published: 2025-07-03T23:47:10+00:00 -->
+<!-- date_accessed: 2026-06-02T01:21:26.934384+00:00 -->
+
+# Transcript: President Trump Gaggles with Press at Joint Base Andrews, July 03, 2025
+
+- [00:04.640] We're having
+- [00:09.599] a lot of fun and we're celebrating the
+- [00:13.120] biggest bill of it kind of
+- [00:17.359] make this $1,000
+- [00:31.920] world
+- [00:35.840] tax credit.
+- [00:40.320] Uh immigration is covered just about
+- [00:43.120] everything. Again, it's the biggest bill
+- [00:45.920] ever signed on. Mr. President,
+- [01:07.119] we had a good time being here. I did not
+- [01:09.920] have much of a problem
+- [01:12.560] and you know we had two negative we had
+- [01:19.680] I think a few of them I did but I think
+- [01:21.439] they would have done yesterday
+- [01:24.400] no deal what I did is we talked about
+- [01:28.799] that's the deal I guess but uh obviously
+- [01:32.640] convincing but it was not hard it's a
+- [01:35.520] great deal it's going to be a great deal
+- [01:37.360] Mr. President, Congressman Brian was one
+- [01:40.479] of two vote no. Do you want to sign him,
+- [01:44.240] too? Well, I was disappointed that he
+- [01:47.040] didn't. There were two of them that
+- [01:48.799] voted no. So, I was disappointed.
+- [01:55.439] We had a call. It was a pretty long
+- [01:57.439] call. We talked about a lot of things
+- [01:59.280] including Iran and we also talked about
+- [02:02.399] uh as you know the war Ukraine.
+- [02:07.040] I'm not happy.
+- [02:14.480] No, I didn't make any money.
+- [02:17.599] How much growth in the country is
+- [02:19.440] actually I think we're going to get
+- [02:20.800] great growth. I think we have growth in
+- [02:22.560] record numbers. This is going to be
+- [02:24.879] something that's amazing. Everybody was
+- [02:26.800] watching all over the world. And I want
+- [02:29.360] to congratulate the speaker and Tom
+- [02:32.160] Emmer,
+- [02:34.080] everybody else. They worked so hard. So
+- [02:36.800] hard. This has really been going on for
+- [02:38.480] over a year. If you think about it, I
+- [02:40.000] think to be exact about 14 months and
+- [02:43.200] this was the culmination. And I guess it
+- [02:46.080] ended a lot earlier. A lot of people
+- [02:47.680] thought it would end up the following
+- [02:49.680] afternoon. It ended up late, but uh they
+- [02:52.959] they were great. What do you think? By
+- [02:56.400] the way, on the Senate side, I thought
+- [02:59.440] Senator D.
+- [03:05.120] within your party.
+- [03:09.120] I think I have more power now. I could
+- [03:11.599] say I don't know. I think I probably do
+- [03:14.640] because we've had a great record.
+- [03:17.120] You know, my first round was very, very
+- [03:19.120] successful. We had the greatest economy
+- [03:21.120] in the history of our country. I think
+- [03:23.519] we're going to blow it away this time.
+- [03:25.840] But right now, we we've proven certain
+- [03:27.760] things and uh yeah, I think probably
+- [03:30.400] it's got more gravitas, more power.
+- [03:34.720] radio in Vietnam yesterday.
+- [03:41.519] So, we have a couple of other deals, but
+- [03:43.200] I, you know, my inclination is to send a
+- [03:45.360] letter out and say what tariff. It's
+- [03:47.760] just much easier. We have, you know, far
+- [03:50.480] more than 170 countries and how many
+- [03:53.760] deals can you make? And you can make
+- [03:56.000] videos, but they're very much more
+- [03:57.439] complicated. I'd rather I've been like
+- [04:00.080] this from the beginning. I'd rather send
+- [04:01.599] out a letter and say this is what
+- [04:04.480] business
+- [04:11.200] so many countries, you know, then they
+- [04:13.760] go specific. Let's do this, let's do
+- [04:15.840] that, be adding it and all. And I'd
+- [04:19.600] rather just do a simple deal where you
+- [04:21.919] can maintain it and control it. uh
+- [04:24.240] you're going to pay a 20% or 25 or 30%
+- [04:27.360] tariff. You weren't going to buy and
+- [04:29.680] we're going to be sending some letters
+- [04:31.040] out starting probably tomorrow, maybe 10
+- [04:33.840] a day to various countries saying what
+- [04:36.479] they're going to pay to do business with
+- [04:38.560] the US. Mr. President,
+- [04:41.759] Republican Congress was shut down last
+- [04:44.000] night. Do you think it's time for
+- [04:46.479] Congress to take back control?
+- [04:50.479] I think that DC has to become
+- [04:54.320] It's a very safe place and uh we're not
+- [04:58.240] going to let anything bad happen
+- [05:02.160] and we're not going to let anything
+- [05:08.639] weapons
+- [05:12.720] weapons we haven't we're giving weapons
+- [05:15.360] but we've given so many weapons but we
+- [05:18.080] are giving weapons and we're working
+- [05:19.919] with them and trying to help them but we
+- [05:22.960] You know, Biden emptied out our whole
+- [05:24.560] country
+- [05:26.479] and we have to make sure we never
+- [05:34.320] see a lot of symbolism tomorrow
+- [05:39.199] at the White House.
+- [05:43.360] What message should Americans be getting
+- [05:45.520] tomorrow? What are you trying to build?
+- [05:46.720] Well, I think it's going to be really a
+- [05:48.240] matter of proud of the country because
+- [05:51.600] our country is doing fantastically well.
+- [05:53.680] The economy is great. You saw the stock
+- [05:55.600] market. We're setting records. Uh in
+- [05:58.880] every aspect of our country, we're doing
+- [06:00.639] well despite the fact that we inherited
+- [06:03.280] millions of people that shouldn't have
+- [06:04.639] been here. And I think we have crime
+- [06:06.720] stats that are coming out that are
+- [06:08.720] showing the lowest numbers we've had in
+- [06:10.560] many years. And that is also despite the
+- [06:13.120] fact that a lot of people are here that
+- [06:15.360] should have been led into our country.
+- [06:17.680] So, they're going to be very proud
+- [06:19.360] tomorrow. So, we're signing at about
+- [06:21.520] 5:00 and at about 5:00 we're going to
+- [06:24.319] have B2s and F22s and F-35s flying right
+- [06:28.479] over the White House and the speaker and
+- [06:31.039] I and John. We're all there together
+- [06:33.280] with most I think most Republican
+- [06:36.240] senators and congressmen and women and
+- [06:38.800] it's going to be a great day. So, we'll
+- [06:40.160] be dining with those beautiful planes
+- [06:42.639] flying right over our heads.
+- [06:45.759] expectation for the next round.
+- [06:50.319] Well, we'll see. Steve is a great guy.
+- [06:52.800] He's a great negotiator. Uh Iran does
+- [06:55.919] want to speak and I think they'd like to
+- [06:58.479] speak to me. And it's time that they do.
+- [07:01.680] We're not looking to hurt them. We're
+- [07:03.039] looking to let them be a country again.
+- [07:05.759] got beat up and
+- [07:08.880] they were both short practice but I
+- [07:11.840] really got beat up and uh if they want
+- [07:15.440] to beat I know they want to be special
+- [07:19.199] I'll do it is involved is very much
+- [07:21.599] involved
+- [07:24.319] one more
+- [07:30.639] I want the people of God
+- [07:34.240] I want I want to be safety.
+- [07:37.120] They've gone through hell. Thank you
+- [07:38.639] very much.

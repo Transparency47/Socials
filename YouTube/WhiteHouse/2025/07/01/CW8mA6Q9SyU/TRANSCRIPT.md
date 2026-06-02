@@ -1,0 +1,1759 @@
+<!-- source: https://www.youtube.com/watch?v=CW8mA6Q9SyU -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: CW8mA6Q9SyU -->
+<!-- date_published: 2025-07-01T17:04:49+00:00 -->
+<!-- date_accessed: 2026-06-02T02:47:38.227903+00:00 -->
+
+# Transcript: President Trump Participates in Roundtable Discussion
+
+- [00:05.610] Announcer: Ladies and gentlemen, please welcome the 45th and 47th
+- [00:09.480] President of the United States, Donald J. Trump.
+- [00:14.610] (applause)
+- [00:27.940] The President: Thank you very much.
+- [00:32.710] They've done a fantastic job. Even the microphone works well.
+- [00:35.860] That's good.
+- [00:39.250] Well, I'd like to just thank everybody
+- [00:41.590] for the incredible job they've done.
+- [00:44.010] I love the state.
+- [00:45.610] As you know, Ron and I
+- [00:47.390] have had a really great relationship for a long time.
+- [00:50.310] We had a little off period for a couple of days,
+- [00:52.210] but it didn't last long.
+- [00:54.450] It did last long, and a lot of respect for each other.
+- [00:57.980] And it's a great honor to be deep in Florida,
+- [01:02.090] the Florida Everglades,
+- [01:03.440] to open America's newest migrant detention center.
+- [01:07.740] Incredibly built, and you're seeing that yourself.
+- [01:09.860] That's why I said let the press join us on our walk
+- [01:12.640] so they can see what's happening.
+- [01:14.770] It's known as Alligator Alcatraz,
+- [01:17.110] which is very appropriate because I looked outside
+- [01:20.370] and it's not a place I want to go hiking anytime soon.
+- [01:24.830] But very soon, this facility will house
+- [01:26.880] some of the most menacing migrants,
+- [01:28.770] some of the most vicious people on the planet.
+- [01:32.060] We're surrounded by miles of treacherous swamp land
+- [01:34.610] and the only way out is really deportation.
+- [01:38.010] And a lot of these people are self-deporting back
+- [01:40.840] to their country, where they came from.
+- [01:42.870] Quite a few were amazed at, actually, the number.
+- [01:46.150] We took the FEMA money that Joe Biden allocated to pay
+- [01:49.420] for the free luxury hotel rooms,
+- [01:51.620] where he's paying hundreds of millions of dollars
+- [01:54.000] in New York City.
+- [01:55.700] And we used it to build this project.
+- [01:57.450] And Nirano was just a little fraction of that money.
+- [01:59.740] The money they spent on that project,
+- [02:02.200] I happen to know the real estate developer.
+- [02:04.140] He's a very real -- he never --
+- [02:05.900] He never really made that much, but he became very wealthy.
+- [02:10.010] With luxury, he didn't do well.
+- [02:11.420] With people that are not exactly luxury, he's made a fortune.
+- [02:17.560] I want to thank Florida Governor Ron DeSantis
+- [02:19.800] and Secretary of Homeland Security Kristi Noem
+- [02:22.970] and Florida Attorney General James Uthmeyer.
+- [02:26.120] Where is James? Where is he?
+- [02:28.620] You do a very good job. I hear good things.
+- [02:30.790] I hear things about you from Ron, too.
+- [02:33.440] No, you really do. He's even a good-looking guy.
+- [02:36.020] That guy's got a future, huh? Good job, James.
+- [02:39.000] I hear you did really, really fantastic.
+- [02:41.210] Worked hard.
+- [02:42.660] You were like in the construction business
+- [02:44.140] for a few days, right?
+- [02:46.370] Congratulations for all the hard work
+- [02:49.370] and to make this facility possible.
+- [02:51.470] It's amazing.
+- [02:52.850] Thanks as well to Florida Agriculture Commissioner
+- [02:56.300] Wilton Simpson. Where is Wilton?
+- [02:59.860] Where are you, Wilton. Hi, Will. Been a long time.
+- [03:02.820] Thank you. Congressman Byron Donalds.
+- [03:05.630] Where's Byron? Hi, Byron. How are you?
+- [03:10.860] Florida Speaker of the House, Daniel Perez.
+- [03:16.340] Daniel, thank you, Daniel.
+- [03:17.790] Why, you didn't want to sit up here with us, Daniel?
+- [03:21.410] Executive Director of the Florida Division
+- [03:23.540] of Emergency Management, Kevin Guthrie.
+- [03:28.420] Hi, Kevin. Good job.
+- [03:30.800] Acting Director of ICE, Todd Lyons.
+- [03:34.550] Todd, great job.
+- [03:36.660] And Senator Joe Gruters, he is a great guy.
+- [03:40.420] Where is Joe? We love Joe. Thank you very much.
+- [03:44.840] Thank you, Joe. Joe is great.
+- [03:47.590] With the help of those incredible border patrol agents,
+- [03:50.620] we now have the lowest level
+- [03:52.220] of daily border crossings ever recorded.
+- [03:54.930] As you know, last month, the month of May,
+- [03:57.880] it just got released two days ago.
+- [03:59.730] The number of illegal aliens into the United States was zero.
+- [04:05.880] Zero. Even I find that hard to believe.
+- [04:08.890] Somebody must have gotten in, I think.
+- [04:11.260] I don't know, but they say zero.
+- [04:12.770] And the people that count them are radical left Democrats.
+- [04:17.890] So when a radical left Democrat tells me it's zero,
+- [04:20.830] I believe him.
+- [04:22.460] But there's still much work to do.
+- [04:24.110] In the four years before I took office,
+- [04:26.020] Joe Biden allowed 21 million people.
+- [04:27.900] That's a minimum.
+- [04:29.100] I think it was much higher than that --
+- [04:30.850] illegal aliens to invade our country.
+- [04:33.870] He invaded our country just like a military would invade.
+- [04:37.140] It's tougher because they don't wear uniforms.
+- [04:39.110] You don't know who they are.
+- [04:40.970] More than the populations of New York City,
+- [04:43.210] Los Angeles, Chicago, Houston, Phoenix,
+- [04:45.680] and Philadelphia combined.
+- [04:48.740] That's what came into our country from prisons,
+- [04:51.100] from mental institutions, from street gangs, drug dealers.
+- [04:56.320] Disgusting.
+- [04:58.320] This enormous country, destroying invasion,
+- [05:00.840] has swamped communities nationwide with massive crime,
+- [05:03.960] crippling costs,
+- [05:05.510] and burdens far beyond what any nation could withstand.
+- [05:09.690] No nation could withstand what we did.
+- [05:12.070] And we're in the process of doing it,
+- [05:13.550] but we have some great people doing it now.
+- [05:16.210] And you see them up here with me.
+- [05:18.500] But it's -- I'd call it like an unforced era.
+- [05:22.620] It's sort of like men and women's sports.
+- [05:24.630] It's like transgender for everybody.
+- [05:27.770] How could they have done this to our country?
+- [05:29.450] And we're never going to forget it.
+- [05:32.570] Last year, 15 percent of all the hotel rooms in New York City
+- [05:35.950] were used to house illegal aliens at costs
+- [05:38.900] that they never got for luxury.
+- [05:42.260] They never got this much for luxury people
+- [05:44.120] coming in from the wealthiest places on Earth.
+- [05:48.800] They made more money with the illegal immigrants,
+- [05:52.270] with many rooms costing more than $300 a night,
+- [05:54.990] six times the rent of a typical American family.
+- [05:58.220] In Denver, Colorado, the city was forced to cut $10 million
+- [06:01.490] from its police and fire department budget
+- [06:04.060] as part of a $90 million plan to house illegal aliens.
+- [06:07.910] And it's a population that's growing and growing
+- [06:11.630] and destroying Denver
+- [06:12.980] and growing, and again, it's destroying Denver.
+- [06:17.470] And it's destroying many other cities, too.
+- [06:19.870] Likewise, one of the city's largest hospital system
+- [06:22.670] is drowning in unpaid medical bills.
+- [06:25.240] Unpaid in the billions after their emergency rooms
+- [06:29.360] were flooded with tens of thousands of illegals,
+- [06:32.240] leading to the closure of critical services.
+- [06:36.390] And these are really critical services,
+- [06:38.800] they can't even keep them open for American patients.
+- [06:42.210] The American patients were treated worse
+- [06:44.000] than any illegal immigrant.
+- [06:46.200] In Los Angeles, one in every four students
+- [06:48.390] in the public school system
+- [06:49.680] is from a household headed by an illegal,
+- [06:52.310] and most of them don't speak English.
+- [06:53.920] So they're in a school system
+- [06:55.780] and they don't have interpreters,
+- [06:57.100] they don't have anything, they don't speaking English.
+- [06:58.950] What a mess. What a mass. Unforced error.
+- [07:01.860] All these people allowed to come in.
+- [07:03.670] The United States is now spending $78 billion
+- [07:07.610] a year on translation. Okay, think of that.
+- [07:11.140] $78 billion a year on transition and smaller numbers
+- [07:15.730] on special education programs
+- [07:17.680] for non-English speakers in our public schools.
+- [07:19.750] So, $78 billion. I think that's not a mistake.
+- [07:25.180] I would say million dollars, maybe.
+- [07:27.450] Hundreds of thousands of dollars.
+- [07:28.840] Seventy-eight billion dollars, Joe,
+- [07:31.020] on translators and non-English-speaking work.
+- [07:35.070] Federal government, the Justice Department.
+- [07:37.900] It's more than twice the cost
+- [07:39.890] of maintaining the United States justice Department,
+- [07:43.270] what we're spending on translation
+- [07:44.980] and other things to help.
+- [07:48.130] In total, the average illegal alien
+- [07:49.740] cost American taxpayers an estimated $70,000.
+- [07:54.630] That's each. $70 thousand. I think that number is even low.
+- [07:58.510] If you care about balancing the budget,
+- [08:00.820] the single most impactful step we can take
+- [08:04.050] is to fully reverse the Biden migration invasion.
+- [08:07.350] And one of the worst invasions we've ever had.
+- [08:10.890] We've never had an invasion like this.
+- [08:12.820] We've had invasions, but we've taken care of them.
+- [08:15.020] We've never, ever had an invasion like this,
+- [08:17.090] and it's with us.
+- [08:18.610] And we have some very bad people out there
+- [08:20.360] looking to do big harm.
+- [08:22.170] That's why the One Big Beautiful Bill
+- [08:24.810] includes funding for 3,000 new border patrol offices
+- [08:28.280] and 10,000 new ICE agents.
+- [08:30.720] And I've gotten to know the Border Patrol and ICE very well.
+- [08:34.270] Unlike Kamala, she was the Border Czar,
+- [08:36.070] but she never saw the border.
+- [08:37.910] She never made one phone call. She was some Boarder Czar.
+- [08:40.500] So she would have been some president.
+- [08:42.950] Probably would have slightly better than Biden, though.
+- [08:46.380] I had to run against both of them, you know?
+- [08:49.080] The one guy, it's like a fighter.
+- [08:50.290] You knock out the one guy who's doing badly,
+- [08:52.190] then they put somebody else in.
+- [08:53.570] But fortunately, she was as stiff also.
+- [08:57.170] Otherwise, I would have very angry.
+- [08:58.760] I would've been extremely angry.
+- [09:00.890] The heroes of ICE will also help round up
+- [09:03.190] and remove members of the savage drug cartels
+- [09:05.820] which are coming back into our country.
+- [09:08.540] And we got them out, and now some of them came back in.
+- [09:11.540] We just got them again.
+- [09:12.780] And that's going to be a vicious cycle.
+- [09:15.070] But these are foreign gangs here, horrendous people,
+- [09:18.860] killers, that have infiltrated our territory,
+- [09:21.630] including eight which we have designated
+- [09:23.970] as foreign terrorist organizations,
+- [09:26.660] which gives us a lot more power for speed
+- [09:28.710] in getting them out much easier.
+- [09:30.580] And we had a great court victory, as you know,
+- [09:32.320] on Friday that allows us to do what we have to do
+- [09:35.640] from the Supreme Court of the United States.
+- [09:37.770] In five months,
+- [09:39.100] my administration has already arrested
+- [09:41.200] over 2,700 members of the murderous Venezuelan gang
+- [09:45.910] known as Tren de Aragua,
+- [09:48.210] including a pack of these sadistic animals
+- [09:52.060] arrested last month with over 280 guns.
+- [09:56.080] And these are guns of the latest caliber.
+- [09:59.080] These are guns that were made over the last period
+- [10:01.480] of less than a year.
+- [10:02.840] Getting brand-new guns, the latest and the greatest.
+- [10:06.720] Every day, our brave law enforcement officers
+- [10:08.800] are hunting down and deporting migrant criminals
+- [10:11.230] who have committed heinous crimes,
+- [10:13.330] including more than 13,000 murderers.
+- [10:17.130] 11,888, to be exact,
+- [10:19.500] but I'd probably say that 13,00 is right also.
+- [10:23.490] Think of it. 11,888.
+- [10:26.980] And more than half of them,
+- [10:28.340] they committed more than one murder.
+- [10:31.600] So, Ron, many of them are out of here already,
+- [10:33.580] but it's still a hell of a number to be confronted with.
+- [10:37.880] Just this year, ICE agents in Miami
+- [10:41.020] have apprehended illegals with arrests for murder,
+- [10:43.670] kidnapping, rape, child sexual abuse, and arson.
+- [10:48.070] People of the worst order.
+- [10:50.150] We're getting these monsters out of the United States,
+- [10:52.910] out of Florida, out all the places that they're in.
+- [10:56.180] And on January 20th, I signed an executive order
+- [10:59.670] empowering governors and state police
+- [11:01.660] to be to enforce federal immigration laws,
+- [11:05.310] and Ron's already taken advantage of it.
+- [11:08.120] It really is a tremendous advantage for the states.
+- [11:11.490] Most of them are doing it.
+- [11:13.110] Actually, the blue states tend not to do it.
+- [11:16.350] Even a couple of them have, though.
+- [11:18.340] And I want to express my tremendous
+- [11:19.940] thanks to the state of Florida
+- [11:21.480] for embracing this opportunity and being a true partner.
+- [11:26.160] They've worked so well with the federal government.
+- [11:28.650] It's been just a beautiful, beautiful partnership.
+- [11:31.850] I hope so.
+- [11:33.120] Ron, I'd like to thank you personally.
+- [11:34.890] You are my friend, and you'll always be my friend.
+- [11:37.140] And we may have some skirmishes even in the future.
+- [11:40.600] I doubt it, but we'll always come back
+- [11:43.870] because we just seem to --
+- [11:45.790] we have blood that seems to match pretty well.
+- [11:49.680] We have a relationship that's been a very strong one
+- [11:51.830] for a long period of time, and I appreciate it.
+- [11:54.250] Very much appreciate it, and also, Secretary Noem.
+- [11:59.100] I'd like to say, have you say a few words.
+- [12:01.260] You have been unbelievable. The job you've done,
+- [12:03.410] you and our favorite person, Tom, Tom Homan,
+- [12:08.250] have done, and your whole staff, because it's a lot of people.
+- [12:11.230] And Tom acknowledges it all the time.
+- [12:13.070] He respects you so much.
+- [12:14.630] He respects the staff that you both built.
+- [12:17.190] And you're really doing one of the great jobs.
+- [12:19.490] And it was great that you could work with Ron in Florida
+- [12:21.790] so well. Built such a great facility.
+- [12:23.750] So please say a a few word. Thank you very much.
+- [12:28.770] Secretary Noem: I don't know if this will work.
+- [12:30.220] Well, thank you, Mr. President.
+- [12:32.080] First of all, I want to thank you for putting the safety
+- [12:34.540] and the security of the American people first
+- [12:37.120] and the way that you never lose focus
+- [12:38.870] on making sure that America stays our priority
+- [12:41.990] and that the families that live here get the chance to grow up
+- [12:45.100] and to raise their children in communities that are safe,
+- [12:48.380] and they give them an opportunity
+- [12:49.670] to pursue the American dream.
+- [12:51.190] This facility here is a fantastic representation
+- [12:55.210] of what can happen when all of government works together.
+- [12:58.070] And when it's accountable to the taxpayers
+- [13:00.370] and to the citizens that live here.
+- [13:02.610] The president signed an executive order
+- [13:04.230] that allowed us to build partnerships with states
+- [13:07.160] and with local law enforcement officers,
+- [13:09.170] which is exactly how things should function in this country.
+- [13:12.620] More power, more authority given to people locally
+- [13:16.220] so that they can take control of their own destiny.
+- [13:18.620] And so we have already been working under the 287G program
+- [13:22.860] to deputize law enforcement officer,
+- [13:24.980] whether they be State Highway Patrol,
+- [13:27.310] local sheriff's departments in all of our states,
+- [13:29.580] and allow them to go out with our ICE officers,
+- [13:31.930] our border patrol officers, and make sure that we're getting
+- [13:34.680] the worst of the worst off of the streets.
+- [13:36.990] We also recognize that as we've been doing that
+- [13:38.920] and returning people back to their home countries,
+- [13:41.590] that we need detention facilities.
+- [13:43.180] We need beds to put them in place
+- [13:44.860] so that they can have their due process before they return home.
+- [13:48.310] And this facility is exactly what I want every
+- [13:51.680] single governor in this country to consider doing with us.
+- [13:54.770] What happened to start this conversation
+- [13:58.030] was that a young man named Jimmy Percival in my office,
+- [14:01.320] my general counsel,
+- [14:02.700] who came from Florida and used to work here,
+- [14:04.640] called up the attorney general and the governor and said,
+- [14:06.720] hey, what do you think about partnering with us
+- [14:09.310] on a detention facility that we could put in place
+- [14:12.540] that would allow us to bring individuals there?
+- [14:15.370] There's an airstrip close by.
+- [14:17.080] You guys volunteered the assets that you have
+- [14:19.550] and the connections that you've have and worked
+- [14:21.810] with Kevin extensively
+- [14:23.660] so that we could come here have their due process given
+- [14:26.450] and return them home to their countries
+- [14:28.440] and in eight days this facility has been stood up
+- [14:31.490] and I want everybody to recognize the detention
+- [14:33.360] facilities that ICE adheres to is a higher standard
+- [14:37.670] than is required at state levels,
+- [14:40.010] at local department of corrections facilities,
+- [14:42.300] sheriff's offices,
+- [14:43.770] this is a state-of-the-art facility, air-conditioned,
+- [14:47.650] isolated though for security purposes, which is very helpful.
+- [14:51.550] And I appreciate so many people being willing to work together
+- [14:54.240] to make a project like this happen.
+- [14:55.820] Right here on this location, we'll have about 3,000 beds.
+- [14:59.300] Other location, will have another 2,000 beds
+- [15:02.260] that will allow us to bring individuals
+- [15:04.010] across the country that we are bringing in
+- [15:07.520] and incarcerating for violating our laws
+- [15:10.380] and immediately get them out of the country
+- [15:12.210] as soon as we possibly can.
+- [15:13.530] It's exactly what we need to be perpetuating in other states.
+- [15:17.220] And what I would say is I want all of you notice
+- [15:19.490] these flyers that we've got.
+- [15:21.420] Is it everybody who sees these flyers
+- [15:25.020] or anybody who sees this news clips
+- [15:26.750] should know you can still go home on your own.
+- [15:29.130] You can self-deport. If you go on the CBP Home app
+- [15:32.260] and go home now, you will get the chance
+- [15:34.590] to come back to the United States legally.
+- [15:36.830] You will get a chance to back and do it the right way.
+- [15:40.290] If you don't, you may end up here.
+- [15:42.700] And you may be ended up here and being processed,
+- [15:45.070] deported out of this country and never get the change to come.
+- [15:48.320] That is the consequences of breaking the law
+- [15:50.190] in the United States of America.
+- [15:51.580] Listen, our job is to uphold the law.
+- [15:53.770] This is a country of laws. We have a border now and we --
+- [15:57.510] because we have a president that cares
+- [15:59.330] and recognizes that we need to be a nation of borders
+- [16:02.840] and a nation that upholds the law,
+- [16:05.030] if you break the law there's consequences,
+- [16:07.360] we will deport you and you will never get to be
+- [16:09.130] United States citizen.
+- [16:10.340] You'll never even get to come back here and work
+- [16:12.520] and to pursue the American dream,
+- [16:13.900] but if you decide you want to go home now, go home.
+- [16:16.470] And we'll help facilitate it. We'll buy your plane ticket.
+- [16:18.680] We'll get you there. In fact,
+- [16:19.900] I just got back from Panama, Costa Rica, Guatemala, Honduras.
+- [16:24.440] Those countries are excited to get their citizens home.
+- [16:27.530] They're setting up programs to loan them money to buy houses
+- [16:30.410] when they get there, help them with food assistance,
+- [16:33.060] get their children educated, scholarships.
+- [16:35.700] They want their citizens that are living here
+- [16:37.680] in the United States illegally to come home
+- [16:40.390] and to be a part of their economy
+- [16:41.830] and help their countries grow.
+- [16:43.480] So this is a win-win for everyone,
+- [16:45.650] and I just want to end, Mr. President,
+- [16:47.630] by thanking our law enforcement officers,
+- [16:50.230] by thanking our ICE officers and our border patrol officers
+- [16:53.880] for what they do every day. They are out on the streets,
+- [16:56.830] and violence against them has increased over 500%
+- [17:01.420] since Trump has gone back into the White House
+- [17:04.850] because he's upholding the law
+- [17:06.160] and because a bunch of liberals, socialists, and Marxists
+- [17:10.030] are out there lying about what President Trump is doing.
+- [17:13.300] President Trump is upholding freedom by what he is doing,
+- [17:16.670] the freedom to live safely in this country
+- [17:19.090] and to do things legally and to have justice.
+- [17:22.210] And because those liberals, and I'm calling out you,
+- [17:24.490] CNN, I'm call you out because you lie every single day
+- [17:28.030] about what these operations are.
+- [17:30.010] We are going after murderers and rapists and traffickers
+- [17:34.220] and drug dealers and getting them off the streets
+- [17:37.000] and getting out of this country
+- [17:38.300] because Joe Biden let the worst of the worst come in here.
+- [17:40.970] The other day I was talking to some marshals
+- [17:42.570] that have been partnering with ICE.
+- [17:44.390] They said that they had detained a cannibal
+- [17:46.550] and put him on a plane to take him home
+- [17:48.920] and while they had him in his seat,
+- [17:50.180] he started to eat himself and they had to get him off
+- [17:53.120] and get him medical attention.
+- [17:54.510] These are the kind of deranged individuals
+- [17:57.400] that are on our streets in America
+- [17:59.510] that we're trying to target and get out of our country
+- [18:02.450] because they are so deranged they don't belong here
+- [18:05.490] and they shouldn't be walking the streets with our children.
+- [18:08.890] And they shouldn't be living in the communities
+- [18:10.840] with our families who just want to grow up,
+- [18:13.330] go to job, raise their children to grow up and get a job
+- [18:16.590] and to live the American dream.
+- [18:17.890] So thank you to all of our law enforcement officers,
+- [18:21.100] those in our military that have been helping our National Guard.
+- [18:23.740] Thank you to Governor DeSantis
+- [18:25.420] for stepping up and being an example to other governors.
+- [18:27.890] I hope my phone rings off the hook
+- [18:30.700] from governor's calling and saying,
+- [18:31.940] how can we do what Florida just did?
+- [18:34.660] How can we exactly what they did?
+- [18:36.720] Because of this -- we need this Big Beautiful Bill.
+- [18:39.590] We absolutely have to have this Big Beautiful Bill
+- [18:42.890] that has the funding so that we can continue this operation
+- [18:46.470] and we can get those bad criminals off of our streets
+- [18:50.930] and have the officers to do it
+- [18:52.270] so that when they go out on an operation,
+- [18:53.910] somebody's got their back.
+- [18:55.510] Somebody's got they're back, they can do it safely
+- [18:57.570] and they can go home to their families at night too.
+- [18:59.610] So this bill needs to pass through Congress
+- [19:02.180] so we have the resources at the Department of Homeland Security
+- [19:05.220] to make sure that our homeland truly is secure.
+- [19:07.100] And, Mr. President, thank you for Stephen Miller.
+- [19:09.720] I just want to thank you, for him.
+- [19:11.030] This guy calls me night and day
+- [19:13.420] and tells me all of his wise advice and wisdom.
+- [19:17.490] But he's a rock star because he loves this country
+- [19:20.640] and he's passionate about making sure
+- [19:22.680] that nobody is prioritized over an American citizen.
+- [19:25.910] They, we, we love everybody. We do. We love everybody.
+- [19:30.010] The President: Not everybody.
+- [19:31.220] Secretary Noem: Well we shouldn't be putting people
+- [19:36.150] illegally above citizens.
+- [19:38.120] We should be making sure that we do things right.
+- [19:40.480] And that's what America has always stood for,
+- [19:42.090] and we're an example to the rest of the world
+- [19:43.680] because we do it right.
+- [19:44.890] So, Mr. President, you surround yourself with great people,
+- [19:48.460] and I think that's because everybody wants to work
+- [19:50.810] for the greatest president that the United States has ever had,
+- [19:53.460] and that's President Donald J. Trump.
+- [19:54.930] So, thank you, sir.
+- [19:56.160] The President: So thank you very much, Christy.
+- [19:57.380] That's so nice. Thank you.
+- [19:59.020] (applause)
+- [20:02.600] Thank you very much.
+- [20:04.160] And I have to say that, you know,
+- [20:05.930] when Christie's name was put before me --
+- [20:08.320] by Tom Homan, by the way,
+- [20:09.640] because I wanted him for the border,
+- [20:10.960] and somehow I thought that was going to be good,
+- [20:12.580] and that's what -- but he didn't want the upper job.
+- [20:15.370] And I said, Who do you recommend?
+- [20:17.480] Christie Noem. I said -- oh, are you kidding?
+- [20:19.170] She's great, but she's such a fine, elegant person.
+- [20:23.040] He said, sir, she's tough as hell.
+- [20:25.920] I said are you sure?
+- [20:27.840] You are tough as Hell. I tell you, and you're --
+- [20:30.450] and you do it in a very nice way,
+- [20:32.110] but you are -- if you ever saw her ride a horse,
+- [20:34.340] she rides a horse like she should be in the rodeo.
+- [20:37.550] She's like an unbelievable horse person.
+- [20:41.100] And you are, you've done a fantastic job.
+- [20:43.540] And Steve Miller would even agree to that.
+- [20:45.090] And he likes nobody, by the way.
+- [20:47.570] He likes -- I don't think he likes anybody.
+- [20:49.710] And another one we like is Ron.
+- [20:51.270] And, Ron, would you say a few words, please?
+- [20:53.890] Governor DeSantis: Well, thank you, Mr. President.
+- [20:55.310] Welcome back to Florida.
+- [20:57.150] And I think this is the first time you've been back
+- [20:58.880] since the events of a couple weeks.
+- [21:00.870] So just let me say, as somebody that was serving on active duty
+- [21:05.150] in Iraq back in the day,
+- [21:06.350] we witnessed the number of our troops
+- [21:08.200] that were killed or wounded by the Iranians.
+- [21:11.250] We know that they're a militant Islamic regime
+- [21:14.570] that was hell-bent on getting nuclear weapons and under Joe
+- [21:17.160] Biden they were about to get nuclear weapons.
+- [21:19.510] And because of your strong actions,
+- [21:22.090] those dreams and those ambitions have been reduced to rubble.
+- [21:25.440] And I thank you.
+- [21:26.670] I know a lot of veterans thank you
+- [21:28.200] and people in Florida really thank you for stepping up
+- [21:31.460] and really making a strong, tough but strong decision.
+- [21:34.110] I think we're much safer as a result of that.
+- [21:36.850] Now on the immigration.
+- [21:39.210] I think President Trump's election
+- [21:41.810] represented the chance for us to finally solve
+- [21:45.140] this illegal immigration and border problem
+- [21:47.640] once and for all.
+- [21:49.060] I knew he was going to do the border,
+- [21:50.490] although he did it very quickly and very thoroughly.
+- [21:53.340] I think that no one can say that that's been anything
+- [21:55.700] but a spectacular success.
+- [21:57.970] But then we have the issue of Biden
+- [22:00.410] let in how many millions of people,
+- [22:02.130] and you had millions had been in over decades previous to that.
+- [22:05.710] You can't have a country
+- [22:07.690] if you don't have respect for the rule of law.
+- [22:09.910] You can't have a country
+- [22:11.300] if foreigners get to decide who comes in.
+- [22:13.840] No, we the American people make that decision,
+- [22:16.830] who's allowed or not allowed to come into our country.
+- [22:19.390] We've seen Europe be overrun by open borders.
+- [22:22.650] So we're not going to let that happen here.
+- [22:24.290] So when president got elected,
+- [22:26.080] I knew that the states had an important role to play
+- [22:29.780] in facilitating this really, really historic mission.
+- [22:33.250] We're the only state in America -- Florida
+- [22:37.370] that requires full cooperation with ice from all state
+- [22:41.740] and local law enforcement entities
+- [22:44.460] and what is the net result of that
+- [22:46.590] we have these agreements for these 287G Task Force
+- [22:50.780] with sheriff's department's police department state agencies
+- [22:54.760] and it's really instrumental in rounding up
+- [22:57.090] a lot of really bad people who shouldn't be here.
+- [22:59.650] If you look at the number of those full-blown 287G
+- [23:03.250] agreements that have been executed around the country,
+- [23:05.910] the state of Florida counts for 60 percent of those.
+- [23:10.320] If you at the numbers of immigration arrests
+- [23:12.990] of illegal aliens on any given day,
+- [23:15.790] the arrests happening in Florida
+- [23:17.420] constitute between 15 and 20 percent nationwide.
+- [23:21.450] So we're all in on this because we understand
+- [23:24.090] how important it is to our citizens.
+- [23:26.280] It crowds schools, it crowds medical, it crowd housing.
+- [23:29.910] Yes, you have illegal alien crime as well
+- [23:32.870] and people want the problem solved.
+- [23:34.640] And the only way we're going to solve it
+- [23:36.010] is if states like Florida step up and help the President,
+- [23:39.120] help Secretary Noem get the job done.
+- [23:41.570] Now this facility here was really in response to us
+- [23:45.070] working with DHS
+- [23:46.300] and ICE from the time the President got sworn in.
+- [23:48.780] And the number one thing they kept coming back to was,
+- [23:51.750] you know, Biden decimated the agency.
+- [23:53.400] I mean, let's just be clear.
+- [23:54.600] You could have illegals in Florida.
+- [23:56.380] Biden would just release them.
+- [23:58.020] Even when they had notices or they had orders to be removed,
+- [24:01.190] Biden wouldn't send them back.
+- [24:02.630] So there were interior enforcement
+- [24:04.230] collapsed under Biden. So they're building it back up,
+- [24:07.390] but they're like, we need detention space
+- [24:09.720] in order to be able to bring about more deportations.
+- [24:12.150] And so what we have here is can hold 3,000 now.
+- [24:16.770] We have 2,000 facility up at Camp Blanding.
+- [24:19.360] That we're going to be open,
+- [24:20.710] which is our National Guard site.
+- [24:22.600] But think about what you have here.
+- [24:24.340] They come here, say they already or been ordered to be deported.
+- [24:27.830] You drive them 2,000 feet to the runway
+- [24:30.910] and then they're gone. It's a one-stop shop.
+- [24:33.700] And this airport that's been here for a long time
+- [24:35.940] is the perfectly secure location.
+- [24:38.200] It's going to make a big difference.
+- [24:39.590] And let me just thank everyone who was involved.
+- [24:42.190] We got the call from DHS
+- [24:43.950] a little bit more than a week ago.
+- [24:45.820] And here we are eight days later with this facility open,
+- [24:49.560] and as soon as Air Force One departs, it'll be swept,
+- [24:52.590] and it'll open for business to be able to do.
+- [24:55.500] But our goal here is to process them
+- [24:58.610] and be able effectuate their return to their home country.
+- [25:02.250] This is the opposite of what they were doing in New York,
+- [25:05.050] by just putting them up in a hotel
+- [25:07.050] and then just letting them stay there indefinitely.
+- [25:09.200] No, we want to be to do to send back.
+- [25:12.390] And when you walk into the processing,
+- [25:14.070] the President and I, Secretary Noem Kevin Guthrie,
+- [25:16.330] walked through that initial intake,
+- [25:18.390] the first thing you see is information
+- [25:20.940] on how to go home on your own.
+- [25:23.180] Why would you want to come through Alligator Alcatraz
+- [25:25.770] if you can just go home your own?
+- [25:27.640] I think a lot of people are going to make that decision.
+- [25:30.010] So you're going to have a lot of deportations
+- [25:32.340] that are going to be done by the administration,
+- [25:34.920] but I think you're going to have lot of voluntary as well.
+- [25:38.050] So this is a force multiplier for the President's efforts.
+- [25:41.440] I would just say, and echo what Secretary Noem says,
+- [25:44.690] there is no reason why other states can't be doing,
+- [25:48.520] and I know Louisiana, Texas, a couple of them,
+- [25:51.060] but we've got how, I mean, if only the red states did this,
+- [25:54.080] they would be able to expand their capacity
+- [25:56.330] by tens of thousands,
+- [25:58.380] maybe 50, 100,000 on a given day.
+- [26:01.440] That's how you really start to make a difference.
+- [26:03.950] And so we're proud to be able to partner
+- [26:06.460] with the Trump administration on that.
+- [26:08.230] Mr. President, thanks for coming down.
+- [26:09.590] I think you highlighting this is going to move the needle
+- [26:12.630] in a big way throughout the country.
+- [26:14.670] And I think it's going to help all of us achieve
+- [26:16.720] the really big results
+- [26:17.920] that I think our voters want to see.
+- [26:24.080] Kevin Guthrie: Thank you, Mr. President,
+- [26:25.290] for the opportunity. My name is Kevin Guthrie.
+- [26:26.960] I'm the executive director of the Florida Division
+- [26:28.610] of Emergency Management.
+- [26:29.840] I'd also like to thank President Trump
+- [26:32.260] and Department of Homeland Security, Secretary Noem
+- [26:34.680] for joining us here today and for their continued support.
+- [26:38.390] I want to thank first by thanking the man to my right,
+- [26:41.390] and that's Governor Ron DeSantis,
+- [26:42.900] whose bold leadership and swift action
+- [26:44.460] made this project possible.
+- [26:47.660] Make no mistake, this facility would not be standing here
+- [26:51.200] without the President,
+- [26:52.500] the Secretary and the Governor's vision
+- [26:54.940] and determination to uphold the rule of law,
+- [26:57.150] Florida is and will always be a law and order state.
+- [27:01.560] Even before the President took office,
+- [27:03.160] the Governor made it clear that illegal immigration
+- [27:06.300] would not be tolerated in the state of Florida.
+- [27:09.440] When the President and the Secretary asked Florida to help,
+- [27:12.160] the governor empowered our state
+- [27:13.910] and private partners to work collaboratively
+- [27:16.250] and deliver real results on a rapid timeline.
+- [27:20.050] The Florida Division of Emergency Management
+- [27:21.750] is best known for leading the nation
+- [27:24.610] in hurricane response and other natural disasters.
+- [27:28.090] We understand how to act fast
+- [27:30.760] without bureaucracy in the face of any emergency.
+- [27:34.660] Our team's built roads in eight hours,
+- [27:38.050] bridges in three days, base camps in 72 hours,
+- [27:41.410] and full causeways in two weeks.
+- [27:43.990] Getting things done quickly, efficiently,
+- [27:46.050] and correctly is at the core of our mission.
+- [27:48.290] We simply just want to be the best.
+- [27:50.470] At what we do in the nation.
+- [27:53.180] When the governor called me and we answered,
+- [27:55.720] and we were proud to bring our logistical expertise
+- [27:57.830] to the table.
+- [27:59.160] We know how to set up base camps for guardsmen,
+- [28:01.500] first responders, linemen, volunteers,
+- [28:04.520] and other aid sources and distribute
+- [28:07.870] that in a matter of days before a storm.
+- [28:11.860] We're able to translate this knowledge
+- [28:14.370] to what we did here at Alligator Alcatraz.
+- [28:17.730] Florida has put the best teams together
+- [28:20.360] who check their individual logos and egos
+- [28:22.390] at the door to get this done. Not just for you, Governor,
+- [28:26.520] but, Mr. President, for you as well.
+- [28:28.540] There are over 13 different vendors
+- [28:31.000] that came together to get these solved in eight days.
+- [28:33.720] Truly a whole of private sector partnership to get that done.
+- [28:37.790] Behind you on these boards, in only eight days,
+- [28:41.840] we have built a fully-compliant detention facility
+- [28:44.700] with a detainee capacity of up to 3,000 people.
+- [28:47.870] With room for additional capacity if you ask us to do so.
+- [28:50.930] The detention facility includes over 158,000
+- [28:53.290] square feet of housing
+- [28:55.230] and is a fully aluminum frame structure
+- [28:57.000] rated for winds of 110 miles an hour
+- [28:59.550] or a high-end category two for those people
+- [29:02.300] that don't think that we're taking that into consideration,
+- [29:04.720] this is Florida by the way.
+- [29:06.860] Power supply is fully redundant with backup generators in place.
+- [29:11.220] We've put a staff village here on site
+- [29:13.180] with a capacity of 1,000.
+- [29:14.800] Our services are hot meal three times a day,
+- [29:17.010] 24-7 medical facility, pharmacy, air conditioning,
+- [29:20.080] access to indoor and outdoor rec yards,
+- [29:21.880] legal and clergy support services, laundry.
+- [29:24.410] Our security element is over 200 security cameras
+- [29:27.730] throughout the facility,
+- [29:28.940] more than 28,000 feet of barbed wire,
+- [29:31.460] 400-plus security personnel to include 200 men and women,
+- [29:35.770] soldiers and airmen underneath Major General John Haas' command
+- [29:39.340] as the Adjutant General of Florida.
+- [29:40.850] And it's all surrounded,
+- [29:42.110] as you pointed out, Mr. President,
+- [29:43.330] by 10 miles of beautiful Florida Everglades.
+- [29:47.550] Contingencies, as with all state correctional facilities,
+- [29:50.320] we have a hurricane plan. We will not wait for a CAT2.
+- [29:54.110] We will follow our normal evacuation procedures
+- [29:56.720] as we do for any other facility statewide
+- [30:00.730] in our great state of Florida.
+- [30:02.360] We have on-site fire and EMS resources
+- [30:05.270] so that we don't burden the locals
+- [30:09.310] with any type of response.
+- [30:11.860] All in all, sir, this has been a perfect state logistics
+- [30:15.170] exercise for this hurricane season.
+- [30:17.390] Everything we did here in the last eight days,
+- [30:19.710] God forbid, if we have a hurricane,
+- [30:21.050] we're going to do it again.
+- [30:22.290] This was a dress rehearsal for us, and we are ready, willing,
+- [30:24.950] and able to support you, sir, the governor, secretary,
+- [30:29.040] and everything that you need us to do.
+- [30:30.970] Just a week ago, it was a taxiway and a runway,
+- [30:33.990] and now it's a fully functioning facility.
+- [30:36.610] We are happy to support you, Mr. President,
+- [30:38.740] governor, and secretary.
+- [30:41.280] (applause)
+- [31:01.450] Male Speaker: Ah, there we go. First of all, Mr. President,
+- [31:04.730] we all have to thank you for your leadership
+- [31:07.720] and for the mandate that the American people
+- [31:09.430] gave you to finally secure our borders
+- [31:12.110] and to deport criminal illegal aliens
+- [31:14.600] and long-standing illegal aliens out of the United States.
+- [31:17.610] That is a mandate given to you by the American People.
+- [31:20.240] I know Secretary Noem, Stephen Miller,
+- [31:22.300] Governor DeSantis, myself,
+- [31:24.150] on behalf of the other members of Congress in the Senate,
+- [31:26.780] and of course here in Florida,
+- [31:28.390] we are behind you 100 percent in that mission.
+- [31:31.310] To the governor, I really appreciate
+- [31:33.090] you and commend you for your leadership on this
+- [31:35.080] taking swift decisive action to building this facility.
+- [31:38.840] One of the things that has occurred
+- [31:40.660] because of the work you did earlier this year
+- [31:43.400] with the legislature
+- [31:44.920] is that our sheriffs are out there every single day.
+- [31:47.330] They are arresting these criminal aliens in our streets
+- [31:50.590] and they're seeing some backlog in their jails.
+- [31:53.470] So this facility primarily goes to address some of that backlog
+- [31:57.590] and then to help us fulfill the mission
+- [31:59.970] that the President has led us to.
+- [32:01.310] So, Governor, thank you for your leadership
+- [32:03.330] and thank you your decisive action on this.
+- [32:05.450] It really does mean a lot to all the people of Florida.
+- [32:08.310] It's, of course, the people of the 19th Congressional District.
+- [32:11.110] Secretary Noem, I mean, what can I say?
+- [32:12.780] The president's right. You're double-tough.
+- [32:14.910] So we appreciate all your leadership.
+- [32:16.730] You and Tom Homan have been doing a great job.
+- [32:19.400] And I'm actually going back to D.C. after this
+- [32:21.530] because we have to vote on One Big Beautiful Bill in the House.
+- [32:24.610] We have to get that to the President's desk
+- [32:26.760] so we can get you the resources that you need.
+- [32:29.390] To fulfill the mission
+- [32:30.900] that the American people have asked us to do.
+- [32:33.960] I totally agree with what Mr. Guthrie has said.
+- [32:37.670] This is a logistical marvel when something like this occurs.
+- [32:40.980] We've seen Florida Department of Emergency Management
+- [32:44.090] answer the bell time and time again.
+- [32:46.070] The governor has said we need to accomplish this,
+- [32:49.330] and DEM gets that job done.
+- [32:51.390] And we had a side conversation about --
+- [32:52.930] I know there were some concerns.
+- [32:54.240] People were like, well, what happens if a hurricane comes?
+- [32:56.510] What happens if this happens?
+- [32:57.920] And I looked at Kevin Guthrie and I said,
+- [33:00.060] you already have a plan, don't you?
+- [33:01.860] And he goes, of course we have a plane.
+- [33:03.380] You know that we do.
+- [33:04.600] This is what Florida does, Mr. President.
+- [33:06.600] And so I want to commend you for your leadership
+- [33:08.460] and your vision on this.
+- [33:09.690] Governor, thank you for all that you've done
+- [33:11.110] with your vision and determination.
+- [33:12.910] Secretary Noem, we're going to get the bill done
+- [33:14.910] so you get the resources you need.
+- [33:17.210] The President: Thank you very much.
+- [33:20.990] Oh, thank you, wow. Thank you.
+- [33:26.940] (applause)
+- [33:28.730] You know, I'm waiting, listening to these wonderful words,
+- [33:31.340] and they are music to my ears,
+- [33:33.320] but I was also wondering how we're doing,
+- [33:35.380] because I know this is primetime.
+- [33:37.120] It shows that I care about you because I'm here,
+- [33:39.400] and I probably should be there.
+- [33:41.300] But we do care. Thank you very much.
+- [33:44.490] James, please. We're all happy now, James.
+- [33:49.860] James Uthmeyer: I can speak on behalf of all of our sheriffs,
+- [33:52.380] state law enforcement, our police chiefs.
+- [33:55.050] We are going to continue to make arrests,
+- [33:57.410] our pedal is to the metal as many as we can.
+- [34:00.180] We want to fill this place up.
+- [34:02.230] The governor and Kevin have shown
+- [34:03.650] they can build bridges in three days.
+- [34:05.050] So why not some detention facilities?
+- [34:06.990] Hopefully there's more to come.
+- [34:08.730] And you really kind of the inspiration for this.
+- [34:11.140] We like the idea of reopening the original Alcatraz.
+- [34:14.160] I don't know if that can happen or not,
+- [34:15.650] but we thought, hey, we've got our own natural Alcatraz
+- [34:18.880] in the middle of the Everglades.
+- [34:20.790] Great runway, great perimeter. So let's make it happen.
+- [34:24.690] In Florida, we walk the walk and we will deliver for all of you.
+- [34:27.080] Thank you.
+- [34:28.310] The President: Well, I heard you were responsible
+- [34:29.600] for the locational pick,
+- [34:31.680] and you cannot have picked a better location.
+- [34:33.610] I said, whoever the hell made this choice,
+- [34:35.730] I know you're taking a little heat
+- [34:36.960] from some environmental groups, but I take it all the time.
+- [34:40.170] That's an honor.
+- [34:41.400] But I heard that you were very responsible for that choice,
+- [34:44.120] and that was a big choice. Thank you very much.
+- [34:45.790] Great job, James. Thank you.
+- [34:47.790] You want to finish over here, and then we'll go over here.
+- [34:49.800] We'll go back and celebrate the Big Beautiful Bill
+- [34:53.620] that just got passed.
+- [34:55.280] You sure that's right? Right, Brian? Yeah, all right.
+- [34:59.970] Wow. He's doing a good job. Wow.
+- [35:03.730] Male Speaker: Mr. President, first of all,
+- [35:04.970] I just want to say how grateful we are that you're back here
+- [35:07.240] and you're your home state of Florida.
+- [35:09.620] You've been doing an amazing job,
+- [35:11.540] not only at our border, but around the world,
+- [35:13.510] keeping this country safe and Americans.
+- [35:16.020] We are grateful for your leadership.
+- [35:18.660] God had a plan for us, and it was Donald Trump.
+- [35:21.830] So, thank you for that.
+- [35:23.380] As a member of the Immigration Board
+- [35:25.520] and as the Commissioner of Agriculture of this state.
+- [35:28.150] I've been happy to help lead with the governor
+- [35:30.740] and the rest of the cabinet on this issue.
+- [35:33.420] We're very proud, Secretary Noem is here today
+- [35:35.250] and others, to represent not only the United States
+- [35:39.800] and our efforts to make this commitment
+- [35:42.280] to keep our citizens safe,
+- [35:44.280] but we're going to continue in Florida to remove the barriers.
+- [35:47.990] To have your vision come true of a safe United States.
+- [35:52.000] We're going to get these illegal criminals out of this state
+- [35:55.570] and we really appreciate you and your leadership in this effort.
+- [35:58.050] So thank you for being here. .
+- [35:59.250] The President: Thank you very much.
+- [36:00.480] You're doing a great job, too. Thank you.
+- [36:02.730] Joe Gruters: Thank you, Mr. President,
+- [36:03.990] Joe Gruters, state senator.
+- [36:05.880] I'm a member of your Homeland Security Advisory Council,
+- [36:08.560] your vice chairman. Thank you for that appointment.
+- [36:11.590] And thank you for coming back to Florida
+- [36:12.940] and everything that you do.
+- [36:14.310] Every single day you are delivering on the promises
+- [36:17.220] that you promised to us at all of the events you've done
+- [36:21.290] throughout the year, specifically this last campaign.
+- [36:23.560] You deserve all the credit for everything
+- [36:25.950] and you are surrounding yourself with incredible people
+- [36:28.980] like Secretary Noem, Stephen Miller.
+- [36:30.880] And just like your Big Beautiful Bill here in Florida,
+- [36:34.110] there was a lot of commotion about our immigration bill.
+- [36:36.820] And we had three Bs in that, beds, badges, and bad guys.
+- [36:42.200] And this goes right along with our beds and the resources.
+- [36:44.880] And I give the governor, Ron DeSantis,
+- [36:47.290] a lot credit for stepping up
+- [36:48.950] and making sure that we all work together
+- [36:50.550] because at the end of the day,
+- [36:51.800] even if sometimes there are skirmishes,
+- [36:55.920] as a result of the back and forth,
+- [36:57.900] we ended up with a better bill. And we all win.
+- [37:00.820] And what we're doing here in Florida,
+- [37:02.160] hopefully will happen all across the country.
+- [37:05.450] You've done, your leadership is amazing.
+- [37:08.060] Keep up the great work and just know
+- [37:10.290] that Florida loves President Donald J. Trump.
+- [37:13.490] The President: Thank you very much, Joe.
+- [37:14.790] Appreciate it. For a long time. Appreciate it. By the way,
+- [37:17.670] Okeechobee is something that we did together also.
+- [37:20.830] And that was a lot of money spent.
+- [37:23.600] I hope it was well spent. I know they did.
+- [37:25.700] We did a Rolls-Royce job,
+- [37:27.000] but it's a lot money that we spent out there together.
+- [37:29.160] And how is it going?
+- [37:32.230] Governor DeSantis: You can delegate that to us
+- [37:34.380] because we move faster than the Army Corps.
+- [37:36.850] So we will finish that reservoir.
+- [37:39.530] If you delegate it to us,
+- [37:40.810] I'll get it done and much quicker.
+- [37:42.330] The President: Oh, I would do that.
+- [37:44.400] Let me ask myself permission. Permission granted.
+- [37:47.300] Go ahead, get the thing -- get it complete.
+- [37:48.960] You want to do that?
+- [37:50.200] Governor DeSantis: All right, we're going to go talk
+- [37:51.410] to the Army Corps then after this.
+- [37:54.010] The President: You can't move faster, actually. Please.
+- [38:01.480] Male Speaker: Sir, just first on behalf
+- [38:02.830] of the men and women of ICE,
+- [38:04.650] we just want to thank you for allowing us to do our job again.
+- [38:07.660] You know, your vision and under Secretary Noem's leadership,
+- [38:10.370] this is what the American people want.
+- [38:12.230] And I hope that you see great results
+- [38:14.040] of what we're doing out there every day of getting the worst
+- [38:16.110] of the worst out of our communities.
+- [38:19.170] Because of you and Secretary Noem,
+- [38:20.420] I have the privilege to lead one of the most premier
+- [38:23.570] and the finest law enforcement agencies
+- [38:25.660] that we do have in the United States.
+- [38:27.340] And the men and women of HSI and ERO Miami
+- [38:30.390] do incredible work like you highlighted.
+- [38:32.710] And with the governor and the state of Florida,
+- [38:34.690] the partnership in Florida has been amazing.
+- [38:36.800] The 287G program is only going to help us
+- [38:39.170] to identify all those known gotaways
+- [38:41.650] and get the worst of the worst out of the neighborhoods.
+- [38:43.830] And through our Homeland Security Task Force,
+- [38:45.520] we are going to make America safe again.
+- [38:47.000] So thank you very much to both you and the secretary.
+- [38:49.370] The President: Thank you, Todd. Great job.
+- [38:51.000] Really great job you're doing. Thank you.
+- [38:52.680] Garret Ripa; Good morning, Mr. President.
+- [38:58.710] Thank you so much for coming.
+- [39:00.100] Again, as Garret Ripa, I'm the field office director
+- [39:02.570] for ICRO here for the Miami field office.
+- [39:05.160] Incredible collaborative work we've been doing together,
+- [39:07.780] working with the state, working with our local partners.
+- [39:11.060] And again, just the 287G is going to open up that aperture
+- [39:14.210] and allow us to get those bad hombres off the street
+- [39:17.510] and get them into this facility. And we're looking forward to it.
+- [39:19.780] And, again, just appreciate all your support.
+- [39:21.740] The President: Thanks you.
+- [39:22.940] Always thank you, you've always been so great.
+- [39:25.060] Thank you very much. Please.
+- [39:28.810] Andres Blanco: Good afternoon, Mr. President.
+- [39:30.170] On behalf of Air and Marine Operations,
+- [39:31.770] my name is Andres Blanco.
+- [39:33.000] I'm the executive director for Southeast Region.
+- [39:35.860] AMO continues to execute and support your executive orders.
+- [39:39.440] Air and marine operations brings a unique capability,
+- [39:42.650] both the air and maritime domains.
+- [39:45.380] And in partnership with our Border Patrol,
+- [39:47.710] OFO officers and ERO,
+- [39:49.870] we continue to conduct effective operations,
+- [39:52.460] both interior, along the border and along maritime approaches.
+- [39:56.470] The President: Thank you very much. Good job.
+- [40:01.410] Jose Figueroa: Good afternoon, Mr. President. Jose Figueroa.
+- [40:03.910] I am the Acting Special Agent in charge for Homeland Security
+- [40:06.390] Investigations here in South Florida,
+- [40:08.410] and our office covers from Key West to Fort Pierce.
+- [40:11.270] Tremendous collaboration here with the state
+- [40:13.520] and our federal partners.
+- [40:15.590] HSI is conducting criminal investigations into TDA,
+- [40:18.680] MS-13s that are involved in human smuggling,
+- [40:21.850] sex trafficking of minors,
+- [40:23.240] and we will continue that effort with your support.
+- [40:26.820] Governor DeSantis, thank you very much for this facility.
+- [40:29.660] Looking forward to continue the great work.
+- [40:31.380] The President: Thank you very much.
+- [40:33.140] Steve, would you like to say something? Our star.
+- [40:37.550] Stephen Miller: Thank you, Mr. President.
+- [40:39.330] I just want to say on a personal note,
+- [40:41.540] getting to watch what you've done over the last five months
+- [40:45.690] to deliver on a 50-year hope
+- [40:48.100] and dream of the American people to secure the border.
+- [40:50.900] When President Trump came into office on January 20th,
+- [40:55.210] the United States had endured the largest wave
+- [40:57.830] of illegal immigration in human history.
+- [41:00.190] Not just American history, human history,
+- [41:03.030] and within just a few days,
+- [41:04.880] President Trump through his strength,
+- [41:07.230] leadership, diplomacy,
+- [41:09.390] and vision achieved the most secure border
+- [41:12.220] anyone in the world has ever seen.
+- [41:13.900] When we recently went overseas to the NATO summit,
+- [41:17.670] I had senior staff in foreign governments come up to me
+- [41:20.280] and ask me how he achieved the Trump miracle on his border
+- [41:24.190] and could that be replicated in their countries.
+- [41:26.690] For individuals who don't work in this space,
+- [41:29.940] to have zero successful illegal entries
+- [41:32.790] in an entire month should be an impossible achievement.
+- [41:37.290] There is a 2,000-mile border
+- [41:39.720] with one of the poorest countries in the world,
+- [41:42.190] and you have open travel from 150 countries
+- [41:46.170] into Central America and South America.
+- [41:48.720] There are 2 billion people in the world
+- [41:51.180] that would economically benefit
+- [41:52.650] from illegally coming to the United States.
+- [41:54.960] And through the deployment of the military,
+- [41:57.260] through the deployment of novel legal and diplomatic tools,
+- [42:01.040] through the building of physical infrastructure,
+- [42:03.130] through the empowering of ICE and Border Patrol
+- [42:05.700] and the entire federal law enforcement apparatus,
+- [42:08.070] President Trump achieved absolute border security.
+- [42:11.240] And now, once this legislation is passed,
+- [42:14.190] he will be able to make that with those resources permanent.
+- [42:17.600] Watching what you've done, sir,
+- [42:18.820] has been one of the honors of a lifetime.
+- [42:20.650] I'm proud to be able play any role in it.
+- [42:22.770] And what President Trump is going to achieve
+- [42:24.730] next with the resources in this bill
+- [42:27.610] will make America safer, stronger, freer, more sovereign,
+- [42:31.710] and more prosperous than it has ever been before.
+- [42:33.460] Thank you, sir.
+- [42:34.700] The President: Thank you, Steve. Thank you.
+- [42:37.700] (applause)
+- [42:39.760] And the bill -- the bill is going to be great for Ron.
+- [42:42.400] It's going to great for Florida, too.
+- [42:43.780] There's a lot of set-asides for Florida.
+- [42:46.270] Some of the things that you wanted, you wanted to do,
+- [42:48.480] and so it's great news to hear that it was approved.
+- [42:51.000] Do you want to take a few questions, Ron?
+- [42:52.550] We'll take a questions from these -- Yeah, please.
+- [42:57.800] The Press: Thank you, Mr. President,
+- [42:59.220] given the likelihood of the One Big Beautiful bill passing.
+- [43:02.800] And we look forward to the success of this facility here.
+- [43:07.000] How many more facilities like this
+- [43:09.770] do you feel that the country needs in order
+- [43:11.760] to enact your agenda of mass deportations?
+- [43:15.320] The President: Well, I think we'd like to see them
+- [43:16.820] in many states. Really, many states, this one.
+- [43:19.900] I know Ron's doing a second one, at least a second one,
+- [43:22.490] and probably a couple of more.
+- [43:25.430] And, you know, at some point, they might morph into a system
+- [43:29.260] where you're going to keep it for a long time.
+- [43:30.780] You know, it's not that far away from jails
+- [43:33.950] that take years to build and money is spent and wasted.
+- [43:37.450] And, like the railway that they have in California
+- [43:40.960] that costs like 40 times more than it was supposed to cost.
+- [43:44.470] The same thing happens with prisons.
+- [43:46.180] You look at this, in a short period of time.
+- [43:48.420] Ron, James and some of the people
+- [43:50.290] that really worked on it, along with our people,
+- [43:52.900] they did this in less than a week.
+- [43:55.550] And you look at it, it's incredible.
+- [43:57.710] Look, the incredible thing is picking the site,
+- [43:59.560] because the site was one of the most natural sites.
+- [44:02.490] It might be as good as the real Alcatraz site.
+- [44:04.760] You know, it could be.
+- [44:06.010] Well, that's a spooky one, too, isn't it?
+- [44:08.180] That's a tough site. But
+- [44:11.380] So I really think it could last as long as they want to have it.
+- [44:14.610] I mean, you may morph this into your prison system,
+- [44:18.010] frankly, which I know you always need, unfortunately.
+- [44:20.920] I'd like to say, you know, a little controversial,
+- [44:22.880] but I couldn't care less.
+- [44:24.740] We have a lot of bad criminals that came into this country,
+- [44:29.380] and they came in stupidly. It was an unforced error.
+- [44:32.400] It was a incompetent president that allowed it to happen.
+- [44:35.170] It was an auto pen, maybe, that allowed it to happen.
+- [44:37.680] And it did happen.
+- [44:38.900] But we also have a lot of bad people
+- [44:40.380] that have been here for a long time.
+- [44:42.380] People that whack people over the head with a baseball bat
+- [44:44.880] from behind when they're not looking and kill them.
+- [44:46.770] People that knife you when you're walking down the street.
+- [44:49.970] They're not new to our country. They're old to our county.
+- [44:53.220] Many of them were born in our country,
+- [44:55.080] I think we ought to get them the hell out of here too.
+- [44:56.940] You want to know the truth.
+- [44:58.150] So maybe that'll be the next job that we'll work on together.
+- [45:01.090] But I think getting them out, you know, we forget about them.
+- [45:03.320] We have some very bad -- we had some bad accidents in New York,
+- [45:06.160] and they're not accidents.
+- [45:07.750] They were done very much on purpose.
+- [45:09.200] People being pushed into a subway
+- [45:10.810] just before it arrives, going 40 miles an hour.
+- [45:13.930] And they're 10 feet away from where the thing is
+- [45:16.730] to get pushed right into the face of the subway train,
+- [45:19.030] get whacked and killed. These are sick people.
+- [45:22.150] I'd like to get them out of here, too.
+- [45:26.920] Yeah, please go ahead. White shirt, glasses.
+- [45:32.960] The Press: A couple of months ago
+- [45:34.240] I ran into former DHS Secretary Mayorkas
+- [45:37.270] and I asked him a couple of questions
+- [45:38.590] about his disastrous handling of the border,
+- [45:42.400] he didn't like my questions. But the number one question
+- [45:45.660] that I heard from people in responding to my video
+- [45:48.260] was why hasn't he been arrested yet?
+- [45:52.650] Obviously you guys are cleaning up
+- [45:53.880] the mess that was made deliberately for the four years
+- [45:57.990] and so people want accountability.
+- [46:00.360] It's great to see that the border is secured
+- [46:02.270] and it's great to see the state level cooperation.
+- [46:04.910] But I guess I would ask you, why hasn't --
+- [46:07.670] he hasn't been held accountable (inaudible).
+- [46:09.310] The President: Well, you know,
+- [46:10.510] pardons were given out by many --
+- [46:12.170] to many people, and they shouldn't have been given out.
+- [46:14.080] Like, the unselect committee of political thugs
+- [46:16.300] was given a pardon because they destroyed
+- [46:18.550] all of the information from two years of hearings,
+- [46:21.440] and the should be arrested, but they were given pardon.
+- [46:23.730] Was he given a pardon, Mayorkas? Was he not?
+- [46:25.830] The Press: I don't believe so.
+- [46:27.150] The President: Well, I'd take a look at that one
+- [46:28.430] because what he did is -- it's beyond incompetence.
+- [46:31.190] Something had to be done. Now, with that being said,
+- [46:33.070] he took orders from other people,
+- [46:35.160] and he was really doing the orders.
+- [46:36.790] And you could say he was very loyal to them
+- [46:38.600] because it must have been very hard for him
+- [46:40.850] to stand up and sit up and, you know,
+- [46:42.660] talk about what he allowed to happen to this country
+- [46:46.210] and be serious about it. So he was given orders.
+- [46:49.750] If he wasn't given a pardon, I could see looking at that.
+- [46:52.200] In fact, why don't you take a look at it, Chris?
+- [46:56.000] He was impeached, but yeah, it was just a fake impeachment.
+- [46:59.250] It was a fake impeachment.
+- [47:00.480] But why don't you take a look at it?
+- [47:01.800] I think he was so bad. They were all so bad, look,
+- [47:04.530] it was the worst president in the history of our country.
+- [47:06.910] We've had some bad ones. But he was the worse president.
+- [47:10.070] But somebody told Mayorkas to do that, and he followed orders,
+- [47:14.200] but that doesn't necessarily hold him harmless.
+- [47:17.250] So take a look at it. Very good question, actually.
+- [47:19.820] Thank you. Yeah, please.
+- [47:27.920] The Press: Mr. President, you and the secretary
+- [47:29.560] have both said that many people have self-deported
+- [47:32.430] since you came back into office.
+- [47:34.070] How many is many and has the rate gone up?
+- [47:36.300] How do you see the tempo of that moving forward going on?
+- [47:45.400] Secretary Noem: We have had several hundred thousand
+- [47:47.460] but also we have many that have self-deported
+- [47:49.370] not even using the CBP home app.
+- [47:52.320] When I have gone to these other countries
+- [47:53.950] to negotiate security agreements and information
+- [47:56.730] sharing on criminals
+- [47:58.390] who's coming and going into their countries
+- [48:00.530] they report that hundreds of thousands have come home
+- [48:03.430] that weren't on our radar
+- [48:04.780] that they are coming home on their own and self-reporting
+- [48:07.700] because they want the chance
+- [48:09.400] to be able to go back to America someday.
+- [48:11.170] So we believe it's over a million,
+- [48:13.520] possibly more than that.
+- [48:15.130] I'm asking all of those countries for their information
+- [48:18.040] on what they have of individuals
+- [48:19.300] that may have returned home that they have,
+- [48:21.570] taking advantage of their programs
+- [48:23.170] to help them become a part of their civilization again too.
+- [48:25.830] So we know it's over a million but we have to --
+- [48:29.550] I'm getting more information and that number will grow.
+- [48:32.150] The President: If they don't leave,
+- [48:33.420] they never get the chance to come back.
+- [48:35.340] We have to take them out, and we will.
+- [48:37.310] They'll go out, but they never got a chance to come back.
+- [48:40.410] The other way we actually make it a little bit easier
+- [48:43.300] for them to come back.
+- [48:44.630] Okay, thank you. Good question. Thank you.
+- [48:49.920] The Press: The bill is now passed in the Senate,
+- [48:51.450] but we are already hearing from some Republicans in the House
+- [48:54.050] who say they cannot get on board
+- [48:55.540] with the changes that were made to the bill in the senate.
+- [48:58.040] What is your message to those holdouts?
+- [49:00.240] The President: Well, I just heard that about the Senate,
+- [49:01.980] and the bill has just passed.
+- [49:03.270] And it tells you there's something for everyone.
+- [49:06.170] I mean, we have -- it's a great bill.
+- [49:08.200] There is something for every one.
+- [49:10.330] And I think it's going to go very nicely in the House.
+- [49:13.390] Actually, I think will be easier in the House
+- [49:15.720] than it was in the Senate.
+- [49:16.990] The Press: And just to be clear, on the Medicaid cuts,
+- [49:19.100] you've promised not to cut Medicaid,
+- [49:20.670] said this is all just targeting waste, fraud, and abuse.
+- [49:23.640] Are you saying that the estimated 11.8 million people
+- [49:26.720] who could lose their health coverage,
+- [49:28.150] that is all waste, fraught, and abused?
+- [49:29.520] The President: No, I'm not saying that.
+- [49:30.790] I'm saying it's going to be
+- [49:32.030] a very much smaller number than that,
+- [49:33.470] and that number will be waste, fraud, and abuse.
+- [49:35.630] And if you look, they took a much more liberal stance
+- [49:38.710] on the Medicaid situation than they could have.
+- [49:43.290] They had a tough stance and a weak stance.
+- [49:45.090] They took not a very strong stance on that to start off.
+- [49:48.390] And it's waste, fraught, and, abuse,
+- [49:50.320] and everybody wants that covered.
+- [49:51.680] The Press: What number is that?
+- [49:52.940] What analysis are you are you seeing?
+- [49:54.970] The President: I'm not seeing a number,
+- [49:56.210] but I know it's much less than the number you gave.
+- [49:58.380] And we really were very, very cognizant of three things.
+- [50:01.820] Social security --
+- [50:03.070] we're going to take care of it beautifully --
+- [50:04.970] Medicare and Medicaid. And we are going to save it,
+- [50:08.790] whereas the Democrats are going -- you won't have it.
+- [50:11.680] They will destroy Medicare and Medicare,
+- [50:13.890] and they have to because their numbers don't work.
+- [50:16.350] So, it's not going to happen.
+- [50:17.590] They're the ones that have destroyed --
+- [50:18.990] they have made it so bad
+- [50:20.190] already they're going to make it a lot worse.
+- [50:21.660] But now we'll be in charge,
+- [50:23.350] so we're going to have no problem
+- [50:24.930] with Medicaid or Medicare or Social Security.
+- [50:27.990] Thank you.
+- [50:33.560] The Press: Claire Gault with Wink News in Fort Myers.
+- [50:35.800] What is your direction to ICE
+- [50:37.270] when it comes to arresting farm workers here illegally,
+- [50:39.890] other workers in industries
+- [50:41.230] that are pretty critical to Florida's economy?
+- [50:43.990] The President: Well, we're very much cognizant of that.
+- [50:46.140] And as you know, I won the farmers by 92 percent,
+- [50:48.900] and I'm not going to be abandoning my farmers.
+- [50:51.620] We were strong on the borders,
+- [50:52.830] but we're also strong for the farmers
+- [50:54.410] and for others in the hotel industry, et cetera.
+- [50:57.350] You know, we have similar situations.
+- [50:59.740] And Kristi and I, and we'll be working with Ron
+- [51:02.700] and a lot of the states. We're going to work something
+- [51:05.310] where the farmers can be responsible
+- [51:07.250] for some of the people that have in.
+- [51:08.520] They have people, Ron, for 10,
+- [51:09.790] 15 years that they know very well.
+- [51:11.990] We're going to put them responsible.
+- [51:13.980] And have -- we're going to issue a form of a card or document,
+- [51:18.500] and the farmer is going to be responsible for these people.
+- [51:20.960] They're not -- they're not going to have citizenship,
+- [51:23.100] but they'll be working. They'll be paying taxes.
+- [51:24.950] We need to get our farmers the people they need.
+- [51:26.720] Otherwise, our farmers
+- [51:27.920] aren't going to be able to do their land.
+- [51:29.660] You know, we tried once before, many, many years ago,
+- [51:31.940] where there was a very strong guy,
+- [51:34.400] and he got everybody out.
+- [51:36.380] And every farm -- almost in the country,
+- [51:38.510] but every farm in California, every farm in Iowa --
+- [51:41.050] almost all the farms went bankrupt.
+- [51:42.940] They had nobody to work.
+- [51:44.190] And we don't want to have that situation.
+- [51:45.730] So we're going to work it.
+- [51:47.140] We're going put our farmers and others
+- [51:49.210] in charge of the people that they have under them.
+- [51:51.660] They know the people,
+- [51:52.940] and I think it's going to work out really well.
+- [51:54.640] We're going to take care of our farmer,
+- [51:56.060] but we're going to get the criminals out.
+- [52:00.610] Yeah, go ahead, please.
+- [52:01.970] The Press: Thank you.
+- [52:03.180] Mr. President, how do you respond to critics
+- [52:04.860] who fear that a 3,000-bed detention center
+- [52:07.440] and the waste that that could produce will pollute
+- [52:10.010] the surrounding federal protected land,
+- [52:12.000] including land that both administrations
+- [52:14.100] have invested billions of dollars in restoring?
+- [52:17.290] The President: Well, I was one of those
+- [52:18.520] that invested billions of dollars
+- [52:20.280] and hundreds of millions of dollars
+- [52:22.320] right here in the Meadowlands -- in the Everglades.
+- [52:25.610] And the Meadowlands, too, in New York.
+- [52:27.120] If you look at what we did up there,
+- [52:28.480] speaking of the Meadowlands, a lot of places like this,
+- [52:31.450] but this is a very unique one.
+- [52:33.760] One thing I'll say about this land,
+- [52:35.760] we'll be gone a million years,
+- [52:37.010] and this land is still going to be here.
+- [52:38.540] It's not going to much different.
+- [52:40.190] You'll have the water moccasins.
+- [52:42.830] You'll the alligators. You may not have people,
+- [52:45.220] but you're going to have all those animals.
+- [52:46.620] They're going to be around.
+- [52:47.970] And you've got plenty of them out here.
+- [52:50.040] I think it was a brilliant choice.
+- [52:51.810] And I think almost anybody in his or her right mind
+- [52:56.540] would say this was a brilliance choice.
+- [52:58.020] I give the governor a lot of credit
+- [52:59.890] for using this piece of land. And in addition to that,
+- [53:03.000] it's on top of something that was already developed.
+- [53:05.210] It's an airport. You know, you have the runways.
+- [53:06.880] You have the -- so it's already been developed.
+- [53:08.920] So it's not like you're dropping dirt right into the --
+- [53:11.650] there was zero movement of that.
+- [53:15.170] That was done many years ago, because the airport's very old,
+- [53:18.550] but it was an abandoned railroad --
+- [53:20.520] an abandoned airport.
+- [53:22.330] And, frankly, it's like -- it's, like, perfect.
+- [53:25.540] And you can do expansion on this site
+- [53:27.470] substantially without doing anything.
+- [53:29.110] So, the people --
+- [53:30.330] I heard them complaining about the Everglades.
+- [53:33.840] There's no -- there's no --
+- [53:36.050] I don't think you've done anything to the Everglades.
+- [53:37.850] I think you're just enhancing it.
+- [53:39.510] This was already here. How long has the airport been here?
+- [53:41.970] Governor DeSantis: Decades.
+- [53:43.270] The President: Many decades. Yeah.
+- [53:44.510] Governor DeSantis: And they and they have
+- [53:45.930] Kevin all these guys You know have a waste plan,
+- [53:50.440] like the wastewater gets trucked out,
+- [53:52.600] potable water gets --
+- [53:53.850] literally, they have even our DOT has put things up in case
+- [53:57.280] there's any seepage that you don't.
+- [53:58.990] so you are literally doing this on concrete that's already here.
+- [54:03.450] So I don't think those are valid and even good faith criticisms
+- [54:07.850] because it's not going to impact the Everglades at all.
+- [54:09.970] The President's been a champion, we've been a champion,
+- [54:12.100] really changed the game in Florida on it.
+- [54:14.150] I think it's just people
+- [54:15.750] don't want to see illegal immigrants deported,
+- [54:18.710] and that's their ideology, and they have a right to that.
+- [54:21.350] But illegal immigration's unpopular,
+- [54:23.470] so they know that they're going to have less effect.
+- [54:26.210] So they're going to try, oh, well, no,
+- [54:27.700] it's just about the Everglades.
+- [54:28.950] But really, I think a lot of those people,
+- [54:30.690] they just don't want to see illegals deported.
+- [54:34.620] Because if you actually hear, everyone's here,
+- [54:37.000] you obviously know there's zero land that's being disturbed.
+- [54:41.130] The President: Well, you know, when we talk about popularity,
+- [54:43.440] I will say I ran on the issue of illegals,
+- [54:46.570] and we have to get them out.
+- [54:48.150] And I won 82 percent on that issue.
+- [54:50.840] So, I think that they may not like certain aspects of it,
+- [54:54.030] but ultimately, they do not want them in their country.
+- [54:56.240] And this is a part of a use.
+- [54:58.450] But I think from an environmental standpoint,
+- [55:00.400] it's incredible.
+- [55:01.620] In fact, when we landed that very big heavy plane today,
+- [55:05.620] they came out and checked it fairly.
+- [55:07.860] You know, I think they want the President
+- [55:09.270] to be able to land on a piece of concrete
+- [55:11.050] that's not going to go six feet underground.
+- [55:13.360] And they checked it.
+- [55:14.690] They came back, and they said, this thing is really solid.
+- [55:17.850] So it's been there a long time. It's going to be here a long
+- [55:20.450] and it was a great choice of a site.
+- [55:22.510] Thank you. Yes, please, Brian, go ahead.
+- [55:26.700] The Press: The people of Syria
+- [55:27.920] were recently seen on the streets
+- [55:29.530] waving American flags, chanting Trump, Trump, Trump.
+- [55:33.360] They're so appreciative of the economic sanctions
+- [55:36.240] that was lifted on that country,
+- [55:37.530] giving them a little bit of hope for prosperity.
+- [55:39.440] You want to comment on that?
+- [55:41.130] The President: Well, they're great people.
+- [55:42.480] And the man that is leading them has a reputation,
+- [55:46.300] and he was the head of some pretty tough organizations.
+- [55:49.220] And a lot of people criticized me for that.
+- [55:50.830] I said, well, what are we going to do,
+- [55:52.140] take him out of a day school, a country day school?
+- [55:55.260] It's going to be, by nature, I would think,
+- [55:57.890] Ron, they'll be pretty tough.
+- [55:59.930] And he is pretty tough, but I think if --
+- [56:02.250] I met him, spent a lot time with him, good guy,
+- [56:04.600] I took off the sanctions because if I didn't do that,
+- [56:06.670] they wouldn't have had a chance.
+- [56:08.370] And Syria has a chance. You know, the people are great.
+- [56:10.670] They work hard, they're very smart.
+- [56:12.180] It used to be a place of professionals,
+- [56:14.610] accountants and lawyers and doctors,
+- [56:17.080] and high academic credentials in that part of the world.
+- [56:21.010] And I think it's going to work out great.
+- [56:22.610] I took off the sanctions and they were very appreciative.
+- [56:24.820] They were shocked, but they were appreciative.
+- [56:27.200] We're giving them a chance at survival.
+- [56:28.820] With the sanctions, it couldn't have worked.
+- [56:30.930] Thank you.
+- [56:33.720] The Press: Mr. President, your beloved New York City,
+- [56:36.870] your beloved, New York city may well be led
+- [56:38.750] by a communist soon, Zohran Mamdani,
+- [56:42.050] who in his nomination speech said he will defy ICE
+- [56:46.580] and will not allow ICE to arrest criminal aliens in New York,
+- [56:50.100] your message to communist Zohran Mamdani.
+- [56:52.790] The President: Well, then we'll have to arrest him.
+- [56:54.820] Look, we don't need a communist in this country,
+- [56:57.730] but if we have one, I'm going to be watching over him
+- [56:59.540] very carefully on behalf of the nation.
+- [57:02.180] We send him money.
+- [57:03.420] We send them all the things that he needs to run a government.
+- [57:07.020] And, by the way, they get, already,
+- [57:09.370] they get about three times what you get, Ron.
+- [57:11.720] If you look at the per capita,
+- [57:13.770] Florida gets one-third of what New York
+- [57:16.380] gets in terms of the numbers.
+- [57:18.500] Why don't you give us those numbers?
+- [57:20.180] Because that's what we should send him.
+- [57:21.950] Governor DeSantis: Yeah, sometimes
+- [57:23.160] people say Florida gets more
+- [57:24.400] because they count social security recipients,
+- [57:26.540] but that's not money to the state.
+- [57:28.290] Those are seniors that live here.
+- [57:29.650] If they moved to North Carolina, you could count it there.
+- [57:32.070] So it has no interaction with the state government.
+- [57:34.330] They get more on the city and state governments than we get.
+- [57:37.530] The President: Substantially.
+- [57:38.870] We're going to be watching that very carefully.
+- [57:41.120] And a lot of people are saying he's here illegally.
+- [57:43.910] He's, you know, we're going look at everything.
+- [57:45.740] But, and ideally, he's going to turn out
+- [57:49.270] to be much less than a communist.
+- [57:50.700] But right now, he is a communist,
+- [57:51.960] that's not a socialist. You know, I've always said,
+- [57:54.130] we will not have socialism in this country in the speeches.
+- [57:57.130] I said, well, what, he skipped socialism.
+- [57:59.810] And you get a lot them like that.
+- [58:01.760] And you see AOC, she's out there with her, you know, bad IQ.
+- [58:05.710] She's out there ranting and raving about
+- [58:07.920] how wonderful he is. And, look, so far, he's winning.
+- [58:10.620] He still has a race to win, but so far he's winning,
+- [58:12.910] and he has an advantage as a Democrat in New York City.
+- [58:16.110] I was there a long time ago,
+- [58:17.810] and it was a long time since the Republican won the city.
+- [58:21.340] But you would think that a Republican would be able to win.
+- [58:23.590] Or you have a good independent running, Mayor Adams,
+- [58:26.480] who's a very good person. I helped him out a little bit.
+- [58:29.450] He had a problem and he was unfairly hurt.
+- [58:32.540] Over this question, he made a statement
+- [58:35.330] to the effect that this is terrible.
+- [58:36.880] New York City can't have all these immigrants come in.
+- [58:39.950] And, like, he was indicted the following day.
+- [58:42.890] And I said, that was a phony indictment,
+- [58:44.550] and it was a phony Indictment.
+- [58:45.800] That was a Biden indictment. I said don't feel bad,
+- [58:49.030] I got indicted five times every time you opened your mouth.
+- [58:51.790] That was bad group.
+- [58:53.080] That was very dangerous group, I will tell you.
+- [58:55.100] This was, these were not nice people.
+- [58:57.510] That was the only thing they could do.
+- [58:59.080] They had no policy, they had no skill, they had know anything.
+- [59:02.190] But they were very good at that.
+- [59:03.670] They were vicious, vicious, horrible people.
+- [59:06.140] Thank you very much. Yeah, please, go ahead.
+- [59:09.920] The Press: Ann (inaudible) with Washington Examiner.
+- [59:12.070] Governor DeSantis has proposed using National Guard,
+- [59:15.500] deputizing them as immigration judges
+- [59:17.530] to get through this massive backlog of people
+- [59:19.860] in the immigration court. Would you be open to that?
+- [59:23.400] The President: Yes, he has my approval.
+- [59:26.680] That wasn't too hard to get, was it?
+- [59:29.030] He didn't even have to ask me, James.
+- [59:31.080] You didn't need James to ask. He has my approval, okay?
+- [59:36.150] I also like what he's doing in Okeechobee.
+- [59:37.970] He has approval for that, too.
+- [59:39.310] I don't know how we worked that out, but we'll work it out.
+- [59:41.300] Governor DeSantis: We'll follow up.
+- [59:47.000] The Press: President Trump, Jake Stofan with Action News,
+- [59:49.080] Jax from up in Jacksonville.
+- [59:51.030] There's some talk about a facility similar
+- [59:53.850] to this up in Camp Blanding.
+- [59:55.980] Has that been approved by DHS? If not, what's the timeline?
+- [59:59.000] When could we see ground break on that?
+- [01:00:01.190] The President: Well, I'll ask Ron or James to talk about it.
+- [01:00:03.490] Do you want to mention it, James?
+- [01:00:06.710] James Uthmeyer: The overarching plan,
+- [01:00:08.220] I think the Secretary
+- [01:00:09.510] has essentially supports the whole plan.
+- [01:00:11.510] So, you know, you guys are going to keep going.
+- [01:00:14.120] Kevin Guthrie: Mr. President,
+- [01:00:15.450] just specifically the response for proposals
+- [01:00:18.600] is out for that today.
+- [01:00:19.960] It closes, I can't even remember what day of the week it is,
+- [01:00:22.350] but it closes on Wednesday at five o'clock.
+- [01:00:24.860] Then we will do notice to proceed.
+- [01:00:26.770] So I would say right after our wonderful Independence
+- [01:00:30.020] Day we will be
+- [01:00:31.310] starting construction area of that facility.
+- [01:00:33.210] James Uthmeyer: You have another big runway there too.
+- [01:00:35.590] The President: Wow, well, I love these runways.
+- [01:00:37.230] It's very convenient, I must say.
+- [01:00:39.900] Having a runway is a nice thing.
+- [01:00:41.300] Today, you don't get runways approved.
+- [01:00:43.090] I will tell you, it's tough to get a runway.
+- [01:00:45.430] Although, in the age of Trump, you get them approved fast.
+- [01:00:48.840] You know, we're approving massive electrical bins,
+- [01:00:52.650] where they call them bins, but big electrical facilities
+- [01:00:55.820] for all of the factories and the AI that's coming in.
+- [01:00:58.490] They're going to build their own electric.
+- [01:01:00.070] They're going to be really --
+- [01:01:01.620] they're going to be made into electrical providers.
+- [01:01:03.600] They're going to have a lot left over.
+- [01:01:05.060] They'll put it into the grid.
+- [01:01:06.280] I think, well, you know, they're going to end up doing so much.
+- [01:01:08.690] They'll it into grid.
+- [01:01:09.900] Won't even cost anything from their standpoint.
+- [01:01:12.240] But so we have a of that happening.
+- [01:01:14.100] We get approvals fast, so.
+- [01:01:16.070] But I was just saying, runways are hard to get,
+- [01:01:17.790] but we'll get them now.
+- [01:01:19.000] But in the past, I would say over the past 30, 40 years,
+- [01:01:21.330] when you can get a runway, that was considered gold.
+- [01:01:24.260] Okay, please, go ahead.
+- [01:01:35.000] Okay, go ahead.
+- [01:01:39.750] The Press: President Trump, Laverne McGee, News 6, Orlando.
+- [01:01:43.250] You have fulfilled several campaign promises,
+- [01:01:46.560] along with the help of Governor Ron DeSantis.
+- [01:01:49.160] What is the next campaign promise
+- [01:01:51.880] that you plan to fulfill to the American people?
+- [01:01:55.750] The President: So, we have turned this country around
+- [01:01:59.280] in less than six months.
+- [01:02:02.050] And when I was away and I was telling Ron,
+- [01:02:04.380] I was telling some others.
+- [01:02:05.780] I've said it a little publicly, I guess,
+- [01:02:07.680] but I met a lot of very important people.
+- [01:02:10.000] The King of Saudi Arabia, I was there two weeks ago.
+- [01:02:12.810] And Qatar, the leader of Qatar, who's great,
+- [01:02:17.020] and the leader UAE, who is great.
+- [01:02:19.320] These are very substantial people, very smart people,
+- [01:02:22.570] and good people.
+- [01:02:24.260] And all three of them said essentially the same thing,
+- [01:02:26.500] along with many other people, because I just left NATO.
+- [01:02:28.990] NATO is going to -- we took it up to 5 percent.
+- [01:02:31.100] Nobody can believe that one run.
+- [01:02:32.370] That would be hard, but nobody believes that.
+- [01:02:34.990] What happened in NATO, over a trillion dollars a year
+- [01:02:37.260] from, like, nothing. It was an honor.
+- [01:02:40.360] But every leader said that a year ago,
+- [01:02:43.490] this country was dead.
+- [01:02:45.790] They had no confidence in the United --
+- [01:02:47.340] they really felt it was a dead country,
+- [01:02:49.020] and it was going to --
+- [01:02:50.820] some bad things were going to happen.
+- [01:02:53.010] But they used the term. It was a dead country.
+- [01:02:54.870] And now they said you have the hottest country
+- [01:02:56.400] anywhere in the world.
+- [01:02:57.600] We're the hottest in the country in the world right now.
+- [01:02:59.820] And we turned it around fast.
+- [01:03:01.360] I thought it would take longer than this.
+- [01:03:02.670] We turned it round fast. Some of it was psychology.
+- [01:03:06.110] And we had to know how good we were.
+- [01:03:08.410] But others was getting rid of rules, regulations,
+- [01:03:11.240] and all of the things that I got rid of already.
+- [01:03:13.350] I signed more executive orders
+- [01:03:15.460] than anybody in history times like three or four.
+- [01:03:18.620] And I got rid of just one. I got right of the other night.
+- [01:03:21.330] You buy a house, they have a faucet in the house, Joe.
+- [01:03:24.420] And the faucet, the water doesn't come out.
+- [01:03:26.200] They have a restrictor.
+- [01:03:27.660] In areas where you have so much water,
+- [01:03:29.510] they don't know what to do with it.
+- [01:03:31.750] You have a shower head, the shower doesn't --
+- [01:03:34.820] the shower, you think it's not working,
+- [01:03:36.640] it is working, the waters dripping out.
+- [01:03:39.550] And that's no good for me. I like this hair lacing.
+- [01:03:42.920] I like that hair nice and wet.
+- [01:03:45.880] You have to stand in the shower for it.
+- [01:03:47.860] 20 minutes before you get the soap out of your hair.
+- [01:03:51.000] And I put a thing in, and it sounds funny,
+- [01:03:53.240] but it's really not. It's horrible.
+- [01:03:55.510] And when you wash your hands,
+- [01:03:57.640] you turn on the faucet, no water comes out.
+- [01:03:59.360] You're washing, all water barely comes out.
+- [01:04:02.180] This was done by crazy people.
+- [01:04:04.730] And I wrote it all off and got it approved in Congress
+- [01:04:07.850] so that they can't just change it,
+- [01:04:09.200] because I did it in my first term,
+- [01:04:10.660] everyone was so happy. And then one of the first things
+- [01:04:13.130] that Biden did when he came back,
+- [01:04:14.830] because he put the restriction on showers,
+- [01:04:16.940] toilets, and sinks, and washing machines.
+- [01:04:21.530] The washing machine, they give you, like,
+- [01:04:23.230] a quarter of this bottle to do your clothing.
+- [01:04:26.440] And people needed 10 of these bottles.
+- [01:04:29.020] And the people came to me from Whirlpool,
+- [01:04:30.800] and they said, we can't make a machine that's competitive.
+- [01:04:32.960] We can make a machinery. It doesn't work. Why?
+- [01:04:35.090] They don't let us use water.
+- [01:04:36.420] Do you have any problems with water?
+- [01:04:37.810] We have so much, we don't know what to do with it.
+- [01:04:39.610] You know, it comes down from heaven, right?
+- [01:04:42.000] And I I approved all of that --
+- [01:04:44.320] the washing machines, the whole thing.
+- [01:04:46.390] The dishwashers -- that was the other one.
+- [01:04:48.800] They give you, like, this much water
+- [01:04:50.220] right up to there to do your dishes.
+- [01:04:51.860] So people -- you know what they do?
+- [01:04:53.200] They keep pressing the button.
+- [01:04:54.890] So they end up doing the dishes 10 times.
+- [01:04:56.550] They end up using more water than you would have used
+- [01:04:58.930] if you did it right in the first place.
+- [01:05:00.200] So all of the stuff has been written off.
+- [01:05:01.880] It sounds crazy. It's little things. The straw --
+- [01:05:06.420] I let you go back to a plastic straw.
+- [01:05:09.420] The other -- I was tired of having straws melt in my mouth.
+- [01:05:12.040] See you now. It wasn't working.
+- [01:05:13.860] The paper wasn't working too well.
+- [01:05:15.370] So these are little things that I did.
+- [01:05:17.420] Then we have the big things. We have the biggest things.
+- [01:05:19.570] And that has to do with some of the subjects we're talking now.
+- [01:05:22.900] I think the things we're talking about now are the biggest,
+- [01:05:24.880] because if you don't have borders in this country --
+- [01:05:27.390] borders and good elections -- and we're working on that next.
+- [01:05:30.500] There's some bills coming in that's going to make sure
+- [01:05:32.580] that you're a citizen,
+- [01:05:34.680] that people aren't counted in the voting
+- [01:05:36.590] when, you know, they were here and they're here as illegals,
+- [01:05:39.730] and they are criminals in many cases,
+- [01:05:41.380] and they give them a count.
+- [01:05:42.860] And you end up with extra congressmen.
+- [01:05:44.210] We're going to work on that.
+- [01:05:45.410] We're going to straighten that out next.
+- [01:05:46.670] That's going to be easy compared to what we were doing.
+- [01:05:49.060] But we did the big things, too.
+- [01:05:50.940] But little things like that, a straw, little things,
+- [01:05:53.230] like a washing machine with no water.
+- [01:05:54.890] People go out, they spend all their money
+- [01:05:56.550] on a washing-machine.
+- [01:05:57.790] The damn thing doesn't work. You can't use the water.
+- [01:06:00.350] Then you go to your sink, and that doesn't work either.
+- [01:06:02.400] You're stuck. You know what you do?
+- [01:06:04.010] You have dirty plates the next day. That's it.
+- [01:06:06.520] And we solved so many common-sense problems.
+- [01:06:10.580] And they weren't easy, you know.
+- [01:06:11.940] There are people that really believe in this stuff.
+- [01:06:14.210] But, you, know, most states have so much water,
+- [01:06:15.940] they don't know what to do with it.
+- [01:06:17.370] And look at North Carolina. I mean, they had a lot of water.
+- [01:06:21.510] And they have to get restrictors
+- [01:06:23.460] on their, you know, on their kitchen faucet.
+- [01:06:25.640] So, we're very proud of the things we did,
+- [01:06:28.590] and we're going to do a lot more of them.
+- [01:06:30.870] Yeah, please, go ahead. Guy's in good shape.
+- [01:06:35.350] Eric Bauling: It's Eric Bauling, how you doing, sir?
+- [01:06:36.940] Something we've talked about for,
+- [01:06:38.750] I'd say the better part of 20 years.
+- [01:06:40.240] I think it's something near
+- [01:06:41.610] and dear to your heart, energy security.
+- [01:06:45.080] Under Joe Biden, average price of oil for the four years
+- [01:06:48.440] was about $79 a barrel. He drained the SPR halfway down,
+- [01:06:52.780] promised to replenish it, never did.
+- [01:06:55.580] Under you, first term $53, average price for four years.
+- [01:07:00.070] Biden was $78 for eight years. It was never refilled.
+- [01:07:03.980] The question is now it's $64 or so.
+- [01:07:06.490] Yeah, coming down rapidly.
+- [01:07:09.660] Coming down and what a great opportunity to do,
+- [01:07:12.170] fix another one of Joe Biden's problems,
+- [01:07:14.510] one of the things he broke in America,
+- [01:07:16.270] giving us the energy security of an emergency
+- [01:07:19.230] SPR, fill it to, maybe even go beyond
+- [01:07:22.840] and fill it a billion barrels
+- [01:07:24.130] this time at a much cheaper price.
+- [01:07:25.930] Thoughts on the energy sector.
+- [01:07:28.130] The President: So it holds 77 million barrels.
+- [01:07:30.720] And we had it up to the top, if you remember.
+- [01:07:33.200] And I was proud of that.
+- [01:07:34.430] And I made a deal to buy it at the lowest price of oil.
+- [01:07:37.760] It was a good deal, good instinct.
+- [01:07:39.740] And we filled it up.
+- [01:07:41.080] And when he came in, he started using it to keep oil prices down
+- [01:07:43.980] because he blew our energy policy out.
+- [01:07:46.360] Energy is what caused --
+- [01:07:47.670] energy and its bad spending is what caused inflation.
+- [01:07:51.180] So now we have no inflation.
+- [01:07:53.330] Gasoline just hit $1.99 today in five states. $1.99.
+- [01:07:57.620] Isn't that a nice sound? It was up to $4.
+- [01:08:00.940] And going up to five, six, and seven.
+- [01:08:02.920] In California, it was $7.70.
+- [01:08:05.910] But we just hit, in five, five states, $1.99, $1.98.
+- [01:08:10.870] And it's coming down to that level,
+- [01:08:12.500] so that'll be a big thing.
+- [01:08:13.730] And one of the reasons the prices and costs
+- [01:08:15.720] are going down when you go to the supermarket,
+- [01:08:18.070] because I said I was going to get cost down.
+- [01:08:19.760] We're getting the cost down, food is coming down.
+- [01:08:21.750] When I came out, my first week, if you remember,
+- [01:08:25.240] I had a lunatic reporter screaming at me saying,
+- [01:08:28.020] eggs are going through the roof.
+- [01:08:29.430] What are you going to do about eggs?
+- [01:08:30.770] I said, I just got here.
+- [01:08:32.060] I didn't know anything about eggs. I had to call you.
+- [01:08:35.810] I said look, I've just got you. Tell me the problem.
+- [01:08:38.310] Well, they doubled in price
+- [01:08:39.630] and they're going to be five or six times higher.
+- [01:08:41.330] They were right, actually. I said let me work on it.
+- [01:08:44.280] And now we have eggs down to the same numbers
+- [01:08:46.360] it was when I first came in.
+- [01:08:47.590] You know, we lowered the cost of groceries.
+- [01:08:49.850] A simple word like that, groceries.
+- [01:08:51.430] Issues, I could almost. A strange word.
+- [01:08:53.780] I hadn't heard the word in so long.
+- [01:08:55.380] But what could be more beautiful than the word grocery?
+- [01:08:57.870] And we have the prices way down. We have the energy way down,
+- [01:09:02.170] energy brought the groceries down,
+- [01:09:03.640] if you want to know the truth.
+- [01:09:04.920] And, you know, so we think we're going to get it lower
+- [01:09:07.440] and we're going to fill up the national strategic.
+- [01:09:09.330] It's called the Strategic National Reserves.
+- [01:09:11.740] I had it topped out,
+- [01:09:13.450] and this guy would use them every time before the election.
+- [01:09:15.820] He'd use them whenever they had an election.
+- [01:09:17.800] It was artificial.
+- [01:09:19.410] But believe it or not, as big as that,
+- [01:09:21.660] tens of hundreds of millions of barrels of oil,
+- [01:09:25.230] all filled up at low prices.
+- [01:09:27.830] But it was really meant for wars,
+- [01:09:30.910] and it wasn't meant for keeping your prices
+- [01:09:32.970] down during a holiday
+- [01:09:34.210] so that somebody could get elected.
+- [01:09:35.780] But they used it, and they didn't bring it.
+- [01:09:37.640] The only mistake you made, they didn't bring it a little down.
+- [01:09:39.740] They brought it right down to the bottom.
+- [01:09:41.540] The thing is practically empty. They never filled it up.
+- [01:09:44.640] They never spent 10 cents in filling it up,
+- [01:09:47.080] and we'll do that. When the market is right,
+- [01:09:49.060] we'll fill it up I want to fill it when the market's right.
+- [01:09:51.600] Thank you. How about one more question?
+- [01:09:53.800] Okay, please, in the back.
+- [01:09:57.370] The Press: Dana Marie McNichol Fox News Channel.
+- [01:09:58.990] Mr. President, is there an expected time frame
+- [01:10:01.680] that detainees will spend here days, weeks, months?
+- [01:10:05.200] And does that have anything to do with the immigration judges
+- [01:10:07.590] you just spoke about being trained and staffed here?
+- [01:10:10.260] The President: When you say --
+- [01:10:11.530] what was the first part of your question?
+- [01:10:13.650] The Press: Is there a specific time
+- [01:10:14.890] frame you expect the detainees to spend here?
+- [01:10:18.010] Days? Weeks?
+- [01:10:19.620] The President: In Florida?
+- [01:10:20.890] I'm going to spend a lot -- look, this is my home state.
+- [01:10:24.810] I love it. I love your government.
+- [01:10:26.300] I love all the people around.
+- [01:10:27.510] These are all friends of mine. They know me very well.
+- [01:10:30.090] I mean, I'm not surprised that they do so well.
+- [01:10:32.050] They're great people.
+- [01:10:34.480] Ron has been a friend of mine for a long time.
+- [01:10:36.540] I feel very comfortable in this state.
+- [01:10:38.080] I'll spend a lotta time here.
+- [01:10:40.510] I want to, you know, for four years,
+- [01:10:42.150] I've got to be in Washington and I'm okay with it
+- [01:10:44.170] because I love the White House.
+- [01:10:46.190] I even fixed up the little Oval Office.
+- [01:10:49.010] I make it -- it's like a diamond.
+- [01:10:50.340] It's beautiful, it so beautiful.
+- [01:10:51.630] It wasn't maintained properly, I will tell you that.
+- [01:10:53.830] But even when it wasn't, it was still the Oval Office,
+- [01:10:56.910] so it meant a lot.
+- [01:10:58.210] But I'll spend as much time as I can here.
+- [01:11:00.140] You know, my vacation is generally here
+- [01:11:01.980] because it's convenient.
+- [01:11:03.260] I live in Palm Beach, it is my home.
+- [01:11:05.580] And I have a very nice little place,
+- [01:11:08.460] nice little cottage to stay at, right?
+- [01:11:10.810] But we have a lot of fun,
+- [01:11:12.780] and I'm a big contributor to Florida,
+- [01:11:14.460] you know, we pay a lot of tax.
+- [01:11:15.660] A lot of people move from New York
+- [01:11:17.690] and I don't know what New York is going to do.
+- [01:11:19.530] A lot people moved to Florida from New york
+- [01:11:22.170] and it was for a lot of reasons but one of them was taxes.
+- [01:11:24.920] The taxes are so high in New York they're leaving.
+- [01:11:27.150] I don't know what New York is going to do about that
+- [01:11:28.900] because some of the biggest wealthiest people
+- [01:11:31.600] and some of people that paid the most taxes of any people
+- [01:11:33.920] anywhere in the world
+- [01:11:35.200] for that matter they're moving to Florida and other places.
+- [01:11:38.900] So we're going to have to help some of these states out
+- [01:11:41.120] I think. But thank you very much.
+- [01:11:42.730] I'll be here as much as I can. Very nice question.
+- [01:11:46.000] With that, I'd like to just end by saying
+- [01:11:48.660] I want to thank Ron and James
+- [01:11:50.350] and all of the people that have done such a great job,
+- [01:11:52.820] all of your staff. Really fantastic work.
+- [01:11:56.970] And it really started with site selection.
+- [01:11:58.470] You can do a great
+- [01:11:59.740] but if you have the wrong site in real estate --
+- [01:12:01.890] you have the wrong cite, you're dead.
+- [01:12:04.350] And this was a great site selection,
+- [01:12:05.960] despite what you may read in the environmental press.
+- [01:12:08.390] Good job.
+- [01:12:09.680] And this is an honor for Christie and myself
+- [01:12:12.400] and Steve and all our people to be here.
+- [01:12:14.880] And I also appreciate the media. They've treated us very fairly.
+- [01:12:18.490] Over the last few weeks, I've been treated very nicely.
+- [01:12:21.290] And it's so unusual.
+- [01:12:22.570] I'm not used to it, but we've gotten great accolades.
+- [01:12:25.460] Brian, I want to thank you for calling out,
+- [01:12:27.110] because I was waiting here,
+- [01:12:28.900] because I knew the vote was taking place
+- [01:12:30.550] and I'm answering questions, right?
+- [01:12:31.960] So, I wanted to thank very much and say hello to our friend.
+- [01:12:35.460] And I will see a lot of you. Thank you very much.
+- [01:12:38.400] We're going to make America great again.
+- [01:12:39.800] Thank you, very much.

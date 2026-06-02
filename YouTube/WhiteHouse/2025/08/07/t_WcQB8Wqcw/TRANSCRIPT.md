@@ -1,0 +1,353 @@
+<!-- source: https://www.youtube.com/watch?v=t-WcQB8Wqcw -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: t-WcQB8Wqcw -->
+<!-- date_published: 2025-08-07T21:17:44+00:00 -->
+<!-- date_accessed: 2026-06-02T02:46:07.374421+00:00 -->
+
+# Transcript: President Trump Delivers Remarks, Aug. 7, 2025
+
+- [00:11.310] Announcer: Ladies and gentlemen,
+- [00:12.620] the President of the United States.
+- [00:16.050] ♪ (Hail to the Chief) ♪
+- [00:44.800] The President: Please.
+- [00:48.800] Nice crowd.
+- [00:49.810] I even hear a young, beautiful voice in the background.
+- [00:53.840] And that's good. That makes us all feel young.
+- [00:58.550] I want to thank everybody for being here
+- [01:00.390] on the 200th day in office.
+- [01:03.230] This is 200 days already. Time flies.
+- [01:06.520] But we have a country that's the hottest country
+- [01:09.060] right now anywhere in the world.
+- [01:10.470] A year ago, it was in a lot of trouble.
+- [01:14.410] It's the hottest country.
+- [01:16.180] And a lot the people in this room made it that way.
+- [01:19.540] Perhaps the most successful and consequential
+- [01:22.290] first 200 days,
+- [01:23.610] they say, in other administration and history.
+- [01:28.780] So let's hope they keep saying it.
+- [01:30.800] There they are right there.
+- [01:33.070] I hope they keeps saying it, but even more importantly,
+- [01:36.250] this is also National Purple Heart Day,
+- [01:39.310] and we're here to honor and celebrate
+- [01:41.150] the unyielding patriotism and grit and devotion
+- [01:46.170] to America's Purple Heart Veterans is great.
+- [01:49.310] Emotion and great love.
+- [01:51.100] The Purple Heart dates back to August 7th, 1782.
+- [01:55.650] That's a long time when General George Washington
+- [01:57.920] awarded a heart-shaped purple cloth to three soldiers
+- [02:02.270] for outstanding gallantry and service in battle.
+- [02:06.170] This afternoon, we're joined by dozens
+- [02:08.080] of Purple Heart recipients and their families.
+- [02:10.840] And just as General Washington did 243 years
+- [02:15.680] Today, we give our everlasting thanks to you
+- [02:19.550] and your unbelievable families.
+- [02:21.780] We want to thank you very much for being here.
+- [02:23.860] It's my great honor.
+- [02:25.470] (applause)
+- [02:31.490] We're also joined by American patriots
+- [02:33.970] who love our military and our veterans,
+- [02:35.890] including Secretary of Defense Pete Hegseth.
+- [02:39.640] You're doing a great job, Pete.
+- [02:40.940] Thank you. We're working hard together.
+- [02:43.580] (applause)
+- [02:47.600] Secretary of Veterans Affairs with -- Veterans Affairs,
+- [02:52.530] with 92 percent approval rating, I hear.
+- [02:55.040] That's a record. Doug Collins. Thank you very much, Doug.
+- [02:58.830] (applause)
+- [03:02.450] The Director of National Intelligence, Tulsi Gabbard.
+- [03:05.920] She's got a lot of interesting things
+- [03:07.650] happening in the last two months.
+- [03:10.940] (applause)
+- [03:12.230] A lot of interest.
+- [03:13.470] Keep it coming, Tulse, keep it coming.
+- [03:16.400] Chairman of the Joint Chiefs of Staff,
+- [03:19.150] General Dan Cain, my friend, who I knew a long time ago.
+- [03:23.920] (inaudible)
+- [03:27.840] He got rid of ISIS in record time.
+- [03:30.560] They said it was going to take four to five years.
+- [03:32.540] He did it in four weeks. That's what I said.
+- [03:35.020] If I get into this again,
+- [03:36.260] I'm going to make him the Chairman of the Joint Chiefs.
+- [03:38.320] And that's what happened. Great job.
+- [03:40.390] And he did an incredible job in Iran.
+- [03:42.500] I want to thank you very much. Great job, General.
+- [03:45.110] (applause)
+- [03:50.750] Deputy Secretary of Energy and Purple Heart recipient,
+- [03:54.570] James Danley.
+- [03:56.100] James, thank you very much, James. Great job.
+- [04:01.260] And we have a Medal of Honor recipient,
+- [04:03.110] Captain Paris Davis. Thank you.
+- [04:06.270] Where are you? Where might he be?
+- [04:09.680] Oh, look at you.
+- [04:11.250] You're better looking than I am, I'll tell you that.
+- [04:13.290] Thank you, very much. Thank you very much.
+- [04:16.910] (applause)
+- [04:18.860] We're also joined by the Marine Corps veteran
+- [04:21.420] who co-managed my 2024 campaign, a fantastic talent in many ways
+- [04:26.900] after he was wounded in battle for our country
+- [04:30.050] in Operation Desert Storm, Chris LaCivita.
+- [04:34.070] So, where is Chris? Where is Chris, Chris?
+- [04:37.560] Stand up, Chris.
+- [04:40.410] With your beautiful daughter, Victoria.
+- [04:43.250] Thank you very much for being.
+- [04:44.630] Thank you very much for being with your father.
+- [04:46.390] It's very nice.
+- [04:48.200] Every Purple Heart tells a story of courage,
+- [04:50.470] sacrifice, and purpose.
+- [04:52.410] It speaks of a price paid for the soldier beside you,
+- [04:56.240] the country behind you,
+- [04:57.920] and the generations of Americans yet to come.
+- [05:01.560] And we have some great generations to follow.
+- [05:04.220] It's going to happen.
+- [05:05.640] Those who wear this medal ran into bullets,
+- [05:07.830] faced ferocious bombs,
+- [05:09.430] and shed their blood on the field of battle.
+- [05:12.690] We will never forget what they did. We will.
+- [05:15.810] Always use them as an example of bravery
+- [05:18.410] and courage and strength.
+- [05:20.870] And we will also always think, when we look at them,
+- [05:24.070] of our great American flag.
+- [05:26.800] We want our great America flag to be strong,
+- [05:29.680] and it's stronger than ever.
+- [05:31.760] Since day one, my administration has used every power
+- [05:34.630] we have to fight for those who have fought for America
+- [05:37.920] in six months.
+- [05:39.220] We have reduced the backlog of veterans waitings.
+- [05:42.800] And that waiting list was very long, Doug, wasn't it?
+- [05:46.630] For the benefits and by, it's 37 percent.
+- [05:49.900] So it's just -- is that all you did, Doug? 37?
+- [05:53.040] I don't know, huh. That's incredible, actually.
+- [05:55.970] They gave me, you're getting tremendous marks,
+- [05:58.320] and we appreciate it very much.
+- [06:01.060] We process more than 2 million disability benefit
+- [06:03.790] claims this fiscal year on track for the most ever.
+- [06:07.880] In fact, not even close, we're...
+- [06:09.910] Slashing wait times at the VA medical centers.
+- [06:12.610] And we're bringing back VA choice and VA accountability.
+- [06:16.490] As you know, we had it.
+- [06:18.290] And then the previous administration,
+- [06:21.290] let's go with the Biden administration,
+- [06:23.550] they decided to get rid of it.
+- [06:26.180] And, you know choices where if you wait in line
+- [06:29.080] for an extended period
+- [06:31.050] or you're not going to see a doctor for a while,
+- [06:33.830] you have the right to go out and get a doctor
+- [06:35.590] and we'll pay for it.
+- [06:36.810] And you get yourself all fixed up real fast.
+- [06:39.380] You don't have to wait six weeks, eight weeks,
+- [06:41.880] months, like they were doing.
+- [06:44.320] And VA accountability, I'm very proud of those.
+- [06:46.340] We got them passed.
+- [06:47.620] Actually, Doug, you were a member of Congress when we did.
+- [06:49.880] You helped us a lot.
+- [06:51.620] But we got them past in the legislature,
+- [06:55.220] so they're with us forever.
+- [06:57.180] And yet, Biden found a way to not use them.
+- [07:00.920] But VA accountability.
+- [07:02.180] That's when we have bad people in the Veterans Association
+- [07:05.320] that were taking advantage of people, hurting people,
+- [07:09.020] and they weren't in prime time.
+- [07:10.420] In prime time, they wouldn't have touched them.
+- [07:12.540] But they weren't quite in prime time,
+- [07:14.300] and they were doing bad things.
+- [07:15.610] They were sadists, they were thieves, and some bad people.
+- [07:18.640] We had 9,000 of them.
+- [07:19.960] We fired every one of them, and it was a great thing.
+- [07:22.870] And then he put some of those people back.
+- [07:25.720] I don't know why they did that, but they did it.
+- [07:27.690] But we got them out again, I think, Doug, right?
+- [07:29.710] So, it's good.
+- [07:31.040] So, we had VA choice, VA accountability,
+- [07:33.740] something we're very proud of.
+- [07:35.680] I'm also working to keep my promise
+- [07:37.670] to end veterans' homelessness in America.
+- [07:40.250] In May, I signed an executive order
+- [07:42.800] to open the National Center for Warrior Independence
+- [07:46.070] in Los Angeles, California,
+- [07:48.380] which will house up to 6,000 homeless vets.
+- [07:51.740] It's going to be beautiful.
+- [07:53.420] (applause)
+- [07:58.960] And just last week,
+- [08:00.310] I signed the VA Home Loan Program Reform
+- [08:02.960] Act, a big deal to help ensure no veteran
+- [08:05.790] is kicked out of their home for a late payment.
+- [08:08.540] If you're a little bit late, don't worry about it.
+- [08:11.160] And frankly, if you're lot late,
+- [08:12.790] you don't have to worry about it either.
+- [08:15.150] You just get it in when you can. Get it in, when you can.
+- [08:19.020] (applause)
+- [08:21.210] And America's veterans have done their duty for us,
+- [08:24.100] and under the Trump administration,
+- [08:25.960] we are doing our duty for you.
+- [08:28.520] Okay, that's the way it's supposed to be.
+- [08:30.940] One of our brave soldiers with us today
+- [08:33.090] is Army veteran Specialist Kevin Jensen.
+- [08:36.330] In 2008, Specialist Jensen was a gunner in a Humvee
+- [08:41.050] racing to support a platoon ambushed
+- [08:43.160] by the Taliban in Afghanistan.
+- [08:45.660] His vehicle was hit by a roadside bomb, flew 10 feet.
+- [08:49.230] He flew 10 up into the air and exploded in flames.
+- [08:53.140] The whole place was on flames, including, unfortunately, Kevin.
+- [08:57.670] But he suffered deep third-degree burns
+- [08:59.820] and all over his body, he was in trouble, big trouble.
+- [09:02.700] Despite the agony,
+- [09:04.330] he selflessly ran to the aid of his platoon leader,
+- [09:08.170] who was engulfed just absolutely.
+- [09:11.940] Everyone thought he was gone. He was engulfed in fire.
+- [09:15.140] Sir, I've got you. I've go you, sir,"
+- [09:18.350] Kevin shouted and pulled his friend to safety.
+- [09:22.020] Specialist Jensen earned the Purple Heart,
+- [09:24.360] and he's here today with the platoon leader
+- [09:27.020] whose life he saved and our newly sworn
+- [09:29.600] in VA Undersecretary for Medical Affairs,
+- [09:32.340] Captain Sam Brown. Kevin and Sam, please stand.
+- [09:36.430] And I know Sam very well. Sam is great.
+- [09:39.420] (applause)
+- [09:45.400] what a combination. He's okay, right?
+- [09:57.130] Great, Sam. Look good. Thank you very much.
+- [10:02.800] You got a -- really, you did a great thing,
+- [10:05.080] because I got to know him and his really beautiful wife.
+- [10:09.220] You know, you're not allowed to say beautiful anymore.
+- [10:11.260] It's political suicide, they say.
+- [10:14.340] But I'll say it anyway.
+- [10:16.240] And the most beautiful family you've ever seen.
+- [10:18.240] And I just want to thank you for having done --
+- [10:20.480] and you for your great bravery.
+- [10:22.700] It's really great. Thank you both for being here.
+- [10:24.720] Appreciate it. Thank you.
+- [10:26.440] (applause)
+- [10:30.030] Also with us is 24-year Army veteran Brian Willett.
+- [10:33.880] In 2010, Staff Sergeant Willett
+- [10:36.700] was conducting a resupply mission in Afghanistan
+- [10:39.630] when his vehicle was struck by a roadside bomb.
+- [10:43.200] You know who did the roadside bomb, right?
+- [10:46.480] Salamene. Where is he? Where is Salamene?
+- [10:53.890] He did -- he was the father of the roadside bomb.
+- [10:56.820] They say 92 percent of the people
+- [10:58.740] who got either killed or badly hurt, it was Salamene.
+- [11:02.740] He was one that did it more than anybody else by far.
+- [11:06.930] Leaving this person very seriously injured,
+- [11:11.690] seven months later, Brian's teenage son,
+- [11:14.420] Private Kevin Willett, who was also deployed to Afghanistan,
+- [11:18.150] was standing guard when Insurgent forces attacked
+- [11:21.680] with heavy fire. The grenade knocked him out
+- [11:24.110] and knocked him right to the ground.
+- [11:26.350] He was in big trouble. But Kevin rose to his feet
+- [11:29.910] and successfully repulsed the attack on his camp,
+- [11:33.420] earning both the Purple Heart and Bronze Star for valor.
+- [11:36.670] And I'd like to ask Brian and Kevin to please stand
+- [11:41.010] wherever you may be. How are you? How are you?
+- [11:45.040] Good job. Good job.
+- [11:49.430] (applause)
+- [11:51.160] Two great people.
+- [11:52.520] I would say these are different types, right?
+- [11:56.100] These are different types, right, but same blood.
+- [11:59.580] That's all we care. That's very good.
+- [12:03.120] You both look great. Thank you both very much.
+- [12:05.190] Appreciate it.
+- [12:06.480] We're also joined by Marine Corps veteran Staff
+- [12:09.410] Sergeant Thomas Mateo,
+- [12:12.040] wounded six times during two tours in Vietnam.
+- [12:15.880] At the end of his first tour, shrapnel sliced open his abdomen
+- [12:19.980] and He was left bleeding and they thought he was gone.
+- [12:23.840] He was on the jungle floor for a long period of time,
+- [12:26.610] but he recovered and chose to go back and fight.
+- [12:29.580] Thomas later continued to protect our citizens
+- [12:32.560] as police chief of Hialeah Gardens and Inverness.
+- [12:36.770] That's two good places. We love those places.
+- [12:40.050] We love Florida.
+- [12:41.880] Every time I ran there, I won, so I got to love it, right?
+- [12:44.680] Set records. We have the all-time record, Thomas.
+- [12:47.860] And he was one of the very rare six-time recipients of the
+- [12:50.790] Purple Heart. Boy, you got hit.
+- [12:52.310] Where's Thomas? Six times.
+- [12:54.580] You got to be kidding. That's pretty tough stuff.
+- [12:57.520] And look at you. You look fantastic.
+- [12:59.850] So did it have any negative impact on you, would you say,
+- [13:02.440] now that you're recovered, fully recovered, would say?
+- [13:05.330] Did you get any extra aches and pains or anything?
+- [13:10.410] That's it. That's called an ache in the pain.
+- [13:14.210] That's right. I know. I have the whole list.
+- [13:16.940] It's amazing, and you look great.
+- [13:18.730] Thank you very much.
+- [13:20.210] (applause)
+- [13:23.530] That's some list. Thank you. It's amazing.
+- [13:27.820] Last year, after an assassin
+- [13:29.370] tried to take my life in Butler, Pennsylvania,
+- [13:32.670] Thomas generously mailed me one of his Purple Hearts.
+- [13:35.900] Many of the other veterans
+- [13:37.810] showed me the same unbelievable gesture of kindness,
+- [13:41.040] including three-time
+- [13:42.540] Purple Heart recipient John Ford and Gerald Enter, Jr.,
+- [13:46.390] who also came along with us and did us a great, great favor.
+- [13:51.070] Gerald, John, and Thomas, I want to thank you very much.
+- [13:54.160] What a great honor to get those Purple Hearts.
+- [13:58.270] I guess, in a certain way, it wasn't that easy for me,
+- [14:00.460] either, when you think of it.
+- [14:01.900] But you went through a lot more than I did.
+- [14:04.490] And I appreciate it all very much, thank you.
+- [14:06.650] Thank you. Oh, where are you? Stand up, please. Please.
+- [14:10.080] Thank you very much. Thank you very much. Thank you.
+- [14:16.480] Great. That was some day.
+- [14:19.480] That was some day we had together, though, huh?
+- [14:21.740] That was someday we had to gather.
+- [14:23.150] Thank you both very much.
+- [14:24.420] Thank you all. From the very beginning,
+- [14:26.650] our nation's fate has depended on heroes like those in the room
+- [14:31.280] who place their bodies between the enemy fire
+- [14:33.980] and really that fire
+- [14:37.140] and the American freedom that we all love so much.
+- [14:40.050] Because of their sacrifice today,
+- [14:41.970] our flag is still waving proudly
+- [14:44.710] and our freedom is still safe and
+- [14:46.720] You're in our future is looking brighter and greater than ever.
+- [14:49.800] Our country is doing really well.
+- [14:51.850] We're very proud of our country. We had that mission.
+- [14:55.240] I watched those B-2 bombers with those pilots.
+- [14:58.640] We had them in the Oval Office
+- [15:00.060] celebrating their incredible bravery and talent, pure talent.
+- [15:04.320] Every single bomb hit its mark perfectly.
+- [15:07.500] And then we had Tomahawks coming in, 30 of them,
+- [15:10.880] coming in from submarines that were 300 miles away.
+- [15:14.140] They all hit their mark, too.
+- [15:15.700] Look at this smile on you, you think that's --
+- [15:18.800] that's your boy. Look at his smile.
+- [15:21.760] But pretty good, right? Pretty good.
+- [15:24.450] We had them and we celebrated all together.
+- [15:26.510] We actually had 52 tankers. Can you imagine?
+- [15:29.740] We had a lot of the people over to the White House,
+- [15:31.590] to the gardens, and it was an incredible day.
+- [15:34.260] It was a day of celebration.
+- [15:36.310] They've been looking to do that for 22 years.
+- [15:38.350] One of the pilots came up and said to me, you know,
+- [15:41.740] we've been waiting for 22 years. My predecessors.
+- [15:45.080] Because he was a young guy, but he said,
+- [15:46.570] we've been practicing this three times a year for 22 years.
+- [15:50.370] Who knew that, Pete?
+- [15:52.080] I said, you mean you knew exactly what to do?
+- [15:54.870] He said, every single year, three times a year,
+- [15:57.320] we'd practice for that specific event.
+- [16:00.080] And you were the one that had the guts to do it,
+- [16:02.060] send us on our way.
+- [16:03.920] I said were you happy or unhappy about the fact that I said --
+- [16:06.510] he said we couldn't get into the planes fast enough, right?
+- [16:10.500] They say, well, you guys are different.
+- [16:12.390] But they're really talented people and special.
+- [16:14.530] We've had some incredible success.
+- [16:17.360] But I want to give a very special
+- [16:19.250] thanks to all of the Purple Heart recipients
+- [16:22.430] that are with us today and all over the country
+- [16:24.420] and all of over the world, frankly.
+- [16:25.700] And I'll now sign the proclamation,
+- [16:27.970] officially declaring this as National Purple Heart Day.
+- [16:32.140] Very special day. Thank you very much, everybody.
+- [16:34.690] Thank you. Thank you.
+- [16:38.070] (applause)
+- [16:46.020] I know who I'm giving attention to.
+- [16:48.490] That guy right there. Right?
+- [17:06.550] And that is not done by an auto pen.
+- [17:08.580] (applause)
+- [17:09.780] No auto pen, right?
+- [17:16.260] (applause)
+- [17:26.100] ♪ ("God Bless America" band rendition) ♪

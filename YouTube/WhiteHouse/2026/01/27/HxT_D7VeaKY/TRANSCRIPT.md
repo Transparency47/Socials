@@ -1,0 +1,259 @@
+<!-- source: https://www.youtube.com/watch?v=HxT-D7VeaKY -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: HxT-D7VeaKY -->
+<!-- date_published: 2026-01-27T22:19:57+00:00 -->
+<!-- date_accessed: 2026-06-02T01:06:16.509683+00:00 -->
+
+# Transcript: President Trump Visits the Machine Shed Restaurant
+
+- [00:00.390] The President: You all doing all right?
+- [00:01.610] You going over to the speech?
+- [00:02.840] You going over to the speech? Good.
+- [00:05.320] We're going to have a good time, nice -- nice group of people.
+- [00:13.170] We'll do whatever is appropriate.
+- [00:14.990] You know, we secured the border.
+- [00:16.680] Remember that, we secured the border.
+- [00:18.800] We did things that nobody thought was possible.
+- [00:21.520] We had 25 million people come through the border.
+- [00:23.690] When I took over, it was a mess.
+- [00:26.130] You take a look at what we did, pricing.
+- [00:28.730] So you had gasoline at $4.50.
+- [00:30.870] Now it's at $1.99 in many places, a gallon, $1.99.
+- [00:34.970] Unidentified: $1.89 in Iowa, sir.
+- [00:36.240] The President: That's right. And -- what are you here?
+- [00:37.700] Unidentified: $1.89.
+- [00:38.940] The President: $1.89.
+- [00:40.420] (applause)
+- [00:42.120] And he's a very honorable man. He doesn't make up stories.
+- [00:45.770] $1.89. When I took over, you were $4.50,
+- [00:48.380] $3.50, $5.00, all over the place.
+- [00:52.140] No, we have prices coming way, way down,
+- [00:55.190] but remember, we secured the border.
+- [00:57.410] Crime is down all over the country.
+- [00:59.360] We just had a crime report coming out from,
+- [01:02.090] I think one of the networks, which they hate to hear this,
+- [01:05.060] but crime is the lowest number ever recorded.
+- [01:08.280] (applause)
+- [01:09.480] So you know what they say.
+- [01:12.100] And you know, we -- we talk about Minnesota,
+- [01:14.270] but in Minnesota, you probably read,
+- [01:16.670] their crime is way down. You know why,
+- [01:18.170] because we took out thousands of criminals out of Minnesota
+- [01:21.470] and that's why it's good. So anyway, but we have --
+- [01:25.320] uh, Tom Homan is over there. We all love Tom.
+- [01:28.060] And he met with the governor, met with the mayor.
+- [01:29.840] He's going to meet with the mayor, I guess,
+- [01:31.230] and it's going very well. But remember this,
+- [01:34.630] even Minnesota, their crime is down.
+- [01:37.270] And you know why it's down, because of what we did.
+- [01:39.560] We took out thousands of criminals,
+- [01:41.350] career criminals, bad criminals,
+- [01:43.100] people that came in from Venezuela.
+- [01:45.500] By the way, how did we do in Venezuela?
+- [01:47.110] Not bad, right? But people that came in from --
+- [01:50.780] think of it, people that came in from countries
+- [01:53.240] all over the world, they came from the Congo,
+- [01:55.880] they came from all over the -- all over South America,
+- [01:58.510] all over Latin America, all over Africa.
+- [02:01.550] They came from everywhere
+- [02:03.430] and they came out of prisons in many cases.
+- [02:05.450] They came out of mental institutions in many cases.
+- [02:08.980] And we're getting them out and we got a lot of them out,
+- [02:11.270] but we have now the safest country we've ever had.
+- [02:13.880] Washington, D.C. went from being a crime-ridden place to a place
+- [02:17.940] that has virtually no crime in a period of a couple of months.
+- [02:21.630] So it's -- we're very proud of what we've been able to do.
+- [02:24.540] And this is a state that's been with me all three times, right?
+- [02:27.320] Unidentified: Since the very beginning, boss, very beginning.
+- [02:30.370] (applause)
+- [02:35.630] The Press: Mr. President, why did you decide --
+- [02:37.840] The President: Yeah, I'm going to do a lot of traveling.
+- [02:39.430] I think so. I mean, I like -- I like traveling to places.
+- [02:42.420] I love -- I love this place.
+- [02:44.350] This was the beginning of my politics, right?
+- [02:46.620] Unidentified: That's right. That's right.
+- [02:47.930] The President: And treated me well right from the beginning.
+- [02:50.100] The Press: Mr. President, what's your message for farmers?
+- [02:52.230] Mr. President, do you feel that the --
+- [02:53.990] The President: Say what? Wait.
+- [02:55.200] The Press: Mr. President, why did you decide
+- [02:56.990] to shake up your leadership team
+- [02:58.330] in Minnesota and send Tom Homan --
+- [03:00.260] The President: I do that all the time. I shake up teams.
+- [03:02.100] Everybody here, these are a lot of owners of farms and places
+- [03:05.460] and you shake up your team.
+- [03:06.670] If they can't do the crops fast enough, they go --
+- [03:09.680] look, we have an incredible team.
+- [03:12.170] We did something that nobody said was possible.
+- [03:14.800] We didn't go back to Congress and ask for legislation.
+- [03:18.220] We closed the border.
+- [03:19.930] And in the last eight months, they have --
+- [03:21.980] and this is actually hard to believe,
+- [03:23.880] nobody crossed the border, right, nobody.
+- [03:26.350] They say nobody. I don't even know if that's possible,
+- [03:28.510] but you know, it's Democrats that do the report.
+- [03:32.140] It's a very liberal group that does that report.
+- [03:34.290] It's a very important report.
+- [03:35.860] And for nine months, I guess eight months,
+- [03:37.680] nine months, we have nobody coming into our country
+- [03:40.830] unless they come in legally.
+- [03:42.700] We want them to come in legally. You need people to work for you.
+- [03:45.640] But uh, we did something that I would say people thought
+- [03:49.050] that was absolutely impossible and we were able to do it.
+- [03:52.100] So we're very honored by what's happened to our country.
+- [03:55.030] In addition, we have $18 trillion
+- [03:57.910] coming in building plants, building auto factories,
+- [04:00.490] building AI factories like no other country in the world
+- [04:05.030] has done what we've done in the last year
+- [04:07.370] and I think it's the most successful first term president.
+- [04:10.820] There's never been a year like this
+- [04:12.620] in the history of the country.
+- [04:14.350] (applause)
+- [04:20.340] And he's been with me from the beginning, this guy.
+- [04:22.780] Make sure -- take good care of him. He's been with him.
+- [04:25.230] So I -- you know, I'm going around
+- [04:27.320] and I'm going around because hopefully we win the midterms.
+- [04:29.570] And it's very scary because like,
+- [04:32.860] it's two out of 50 years or something like that.
+- [04:36.160] For some reason, when a president wins,
+- [04:38.420] Republican or Democrat,
+- [04:40.230] even if they're a good president,
+- [04:41.820] and hopefully I'm a great president,
+- [04:43.350] based on the first year (Inaudible)
+- [04:44.790] and we had a great first term too, people don't --
+- [04:48.130] we rebuilt our military.
+- [04:49.550] We had phenomenal financial numbers,
+- [04:52.100] but I think this term is blowing away really every term.
+- [04:55.590] But traditionally, when a president gets elected,
+- [04:59.800] out of I think 50 years, they've had two.
+- [05:02.630] That's what I don't understand.
+- [05:04.000] Unidentified: You're going to be the next.
+- [05:05.210] The President: We've had two, so we have to --
+- [05:06.880] and one was by unusual circumstance.
+- [05:08.960] So uh, there's something psychological,
+- [05:11.810] if you win the presidency --
+- [05:13.060] whether you're a Republican or Democrat.
+- [05:15.300] With that being said, the polls look very good,
+- [05:17.010] everything looks very good and you have great Congressmen
+- [05:19.910] here and Congressmen and women here and we love Iowa.
+- [05:24.030] We love Iowa.
+- [05:25.320] And I think I just -- didn't I just give --
+- [05:27.050] didn't I just give the farmers $12 billion, right?
+- [05:30.430] Unidentified: $66 billion in total.
+- [05:31.670] The President: Well, I gave total $66 billion.
+- [05:33.720] But just recently, we gave the farmers $12 billion
+- [05:36.160] because they were treated unfairly by foreign countries.
+- [05:39.780] I said, how much? They said, $12 billion.
+- [05:41.440] I said, they got it. You know where I got it, tariffs.
+- [05:43.210] I got it from the tariffs.
+- [05:44.420] (applause)
+- [05:45.620] And again, you know, most of these --
+- [05:51.670] we right now have more factories
+- [05:53.170] and plants being built in our country
+- [05:54.750] than we've ever had before that came in,
+- [05:56.440] because they're coming
+- [05:57.670] because they don't want to pay the tariffs.
+- [05:59.490] So I said, if you build here, you don't have to pay tariffs.
+- [06:01.880] So it's great.
+- [06:03.620] The Press: Mr. President,
+- [06:04.820] with the current value of the dollar,
+- [06:06.820] do you think it's declined too much?
+- [06:08.360] The President: No, I think it's great.
+- [06:09.570] I mean, the value of the dollar, look at the business.
+- [06:12.100] No, dollars -- dollar is doing great.
+- [06:15.080] You know, it's very interesting, if you look at China and Japan.
+- [06:18.250] I used to fight like hell with them
+- [06:20.100] because they always wanted to devalue their yen.
+- [06:22.730] Do you know that, the yen and the wan,
+- [06:25.220] and they'd always want to devalue it.
+- [06:26.800] They devalue, devalue, devalue.
+- [06:29.280] And I said, it's not fair that you devalue
+- [06:31.000] because it's hard to compete when they devalue,
+- [06:33.500] but they always fought.
+- [06:34.770] No, our dollar is very good.
+- [06:35.990] The Press: You talk a lot about Minnesota, Mr. President.
+- [06:37.640] some of your own administration officials
+- [06:39.240] have labeled Alex --
+- [06:40.460] The President: By the way, this is ABC fake news, this one.
+- [06:42.830] She hasn't asked me --
+- [06:44.580] she hasn't asked me a good question in years.
+- [06:48.440] I think a nice woman, but I don't really like her too much.
+- [06:51.070] Go ahead. What? What? What did you say?
+- [06:54.260] I'd say ABC is about as bad as they get.
+- [06:57.000] The Press: Would you like to see the dollar's value decline more?
+- [06:59.600] The President: No, no.
+- [07:00.880] I'd want it to be just seek its own level,
+- [07:03.740] which is the fair thing to do. You could have it --
+- [07:05.660] I could have it go up or go down like a yo-yo.
+- [07:08.960] I'll give you an example, unemployment,
+- [07:10.620] I could create the greatest unemployment numbers
+- [07:13.200] or employment numbers ever.
+- [07:15.060] All I have to do is hire three million people
+- [07:17.140] and put them into the federal government
+- [07:19.520] and you have 10 people, you know, for one job, right?
+- [07:23.540] And what we've done is we've cut the federal employees
+- [07:27.290] and they've gone to the private sector.
+- [07:29.260] But if I wanted, I could hire a million people tomorrow,
+- [07:31.960] put them in the federal government
+- [07:33.400] and she'd be writing a story,
+- [07:35.110] unbelievable employment, unbelievable employment.
+- [07:38.450] But we have great unemployment numbers.
+- [07:41.620] I think they're great. Is there one number that's bad?
+- [07:44.150] Can you tell -- is there one number that's bad?
+- [07:45.820] There's not one.
+- [07:47.050] The Press: Do you agree -- do you agree with the assessment
+- [07:48.890] from some of your own officials that Alex Peretti
+- [07:51.010] is a domestic terrorist or an assassin?
+- [07:52.570] The President: Well, I haven't heard that,
+- [07:53.840] but certainly he shouldn't have been carrying a gun.
+- [07:56.010] But all of -- hey, look,
+- [07:57.360] bottom line, everybody in this room,
+- [07:59.640] we view that as a very unfortunate incident. Okay?
+- [08:02.670] Everyone, unless you're a stupid person
+- [08:05.920] very, very unfortunate incident. I don't like that. He had a gun.
+- [08:09.380] I don't like that he had two fully loaded magazines.
+- [08:11.700] That's a lot of bad stuff.
+- [08:13.280] And despite that, I say that's a very unfortunate incident.
+- [08:18.590] The Press: You said that you are the de facto president
+- [08:21.180] of Venezuela.
+- [08:22.400] I don't know, maybe you were joking when you said that.
+- [08:24.280] Is the US a de facto member of OPEC right now?
+- [08:26.610] The President: Well, I'll tell you what,
+- [08:27.940] we are a very strong presence in Venezuela.
+- [08:31.050] We're going to get a lot of money for Venezuela.
+- [08:33.160] Venezuela has the largest oil reserves in the world,
+- [08:36.280] with the exception I think of our country
+- [08:38.520] and it's bigger than Saudi Arabia.
+- [08:41.180] And we had a very strong moment with Venezuela
+- [08:45.150] a couple of weeks ago
+- [08:46.920] and we are working beautifully with Venezuela.
+- [08:49.580] I will tell you, they're going to do better now
+- [08:51.160] than they ever did, than they've done ever at any point.
+- [08:54.360] And we're going to be making a lot of money for them
+- [08:56.870] and a lot of money for our country.
+- [08:58.710] We have a very good relationship with the leaders of Venezuela
+- [09:01.540] and we're going to keep it that way.
+- [09:03.000] The Press: What are your plans for --
+- [09:04.210] Mr. President, what are your plans for Cuba, Mr. President?
+- [09:06.790] The President: Well, we're going to see what happens with Cuba.
+- [09:08.880] I don't know, anybody interested in Cuba in this room?
+- [09:10.930] Not too many people.
+- [09:12.530] This is not a Cuba room, but that's all right.
+- [09:14.940] There are plenty of them around, especially in Miami.
+- [09:17.580] And Cuba will be failing pretty soon.
+- [09:21.430] Cuba is really a nation that's very close to failing.
+- [09:25.690] You know, they got their money from Venezuela.
+- [09:27.860] They got the oil from Venezuela.
+- [09:29.210] They're not getting that anymore.
+- [09:30.630] The Press: You were talking about the polls earlier.
+- [09:32.470] Clearly, your base is with you strong in support --
+- [09:35.280] The President: Stronger than -- by the way, our base --
+- [09:37.790] our base -- our base is with us.
+- [09:47.120] I think they're the best poll numbers, the real poll numbers.
+- [09:49.520] I think we have the best poll numbers we've ever had.
+- [09:52.100] Think of it, if I were to run again,
+- [09:53.760] if I run again, would you -- would anybody be happy?
+- [09:57.900] You know, so we have the best poll numbers we've ever had.
+- [10:00.730] Thank you all very much. I appreciate it.
+- [10:02.610] Unidentified: Thank you, Mr. President.

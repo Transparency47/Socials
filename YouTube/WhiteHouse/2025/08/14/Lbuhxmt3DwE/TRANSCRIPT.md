@@ -1,0 +1,991 @@
+<!-- source: https://www.youtube.com/watch?v=Lbuhxmt3DwE -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: Lbuhxmt3DwE -->
+<!-- date_published: 2025-08-14T18:16:45+00:00 -->
+<!-- date_accessed: 2026-06-02T02:45:49.123827+00:00 -->
+
+# Transcript: President Trump Delivers Remarks, Aug. 14, 2025
+
+- [00:08.450] The President: Are you all set?
+- [00:15.250] How are you?
+- [00:20.670] Thank you very much for being with us.
+- [00:22.620] It’s a good time for this country.
+- [00:25.400] We have the hottest country anywhere in the world.
+- [00:27.840] I think you’re hearing it from a lot of people,
+- [00:30.380] not just from me.
+- [00:33.010] We’re doing very well in so many ways
+- [00:35.090] and the gentleman on my right, we recruited him.
+- [00:39.120] We tried to get the best person.
+- [00:41.350] We got a man that you’ll hear in a second
+- [00:43.430] has done an amazing job with respect to social security.
+- [00:48.480] He’s running it and he’s running it
+- [00:49.980] like nobody’s ever even dreamed possible.
+- [00:53.860] It’s the 90th anniversary right now of social security,
+- [00:58.490] so today we celebrate that 90th anniversary
+- [01:01.330] of one of the most significant pieces of legislation
+- [01:05.410] ever signed into law, the Social Security Act of 1935.
+- [01:10.770] And we’re going to make it stronger,
+- [01:13.410] bigger and better, really doing a job.
+- [01:16.410] In the campaign I made a sacred pledge to our seniors
+- [01:19.400] that I would always protect social security
+- [01:22.020] and under this administration we’re keeping that promise
+- [01:25.310] and strengthening social security
+- [01:27.050] for generations to come.
+- [01:29.150] You keep hearing stories that in six years,
+- [01:31.040] seven years social security will be gone
+- [01:33.110] and it will be if the Democrats ever get involved
+- [01:35.350] because they don’t know what they’re doing,
+- [01:37.350] but it’s going to be around a long time with us.
+- [01:40.280] Very much, you’ll be surprised to hear some of the numbers.
+- [01:44.030] I’m delighted to be joined
+- [01:45.290] by the Commissioner of the Social Security Administration,
+- [01:50.050] Frank Bisignano, who in the world of business,
+- [01:53.780] in fact I wrote some of the little things down,
+- [01:58.690] he’s had an amazing, amazing -- he was
+- [02:01.130] Chief Operating Officer of J.P. Morgan Chase.
+- [02:04.020] He worked for Jamie Dimon and Jamie Dimon
+- [02:06.910] said that it was amazing. So think of that, Chief
+- [02:10.430] Operating Officer, J.P. Morgan Chase, had a storied career.
+- [02:13.960] Then he went to First Data, for those in the business,
+- [02:18.940] you know it’s the largest payment company
+- [02:20.800] anywhere in the world and worked for Henry Kravis
+- [02:24.330] and was in big trouble.
+- [02:26.030] He took it over as CEO, he made it incredible.
+- [02:28.180] They merged with Fiserv and he became CEO of that
+- [02:32.800] and that became extremely successful.
+- [02:35.760] That was in Milwaukee, I guess they had the Milwaukee Arena
+- [02:39.080] and where we had some good success and some good speeches,
+- [02:43.620] but he’s a really legendary guy and he wanted to do this.
+- [02:47.630] I mean he just wanted to straighten out social security
+- [02:50.250] because he loves our country
+- [02:52.030] and what he’s done in, you know, a few months is amazing.
+- [02:55.120] Almost 60 million American seniors rely on social security
+- [02:59.130] for peace of mind and a life of dignity and retirement.
+- [03:03.840] These Americans paid into the system
+- [03:05.800] and they deserve leaders in Washington
+- [03:08.040] who are going to protect the benefits
+- [03:09.440] they’ve had and protect social security.
+- [03:12.540] Under Biden, social security went down
+- [03:16.990] like nobody’s ever seen it, deteriorated.
+- [03:20.500] There’s never been anything like it.
+- [03:22.140] The four years of Biden were very, very destructive.
+- [03:26.350] It couldn’t have gone on much longer.
+- [03:27.810] Social security was going to be destroyed,
+- [03:30.430] it was being destroyed.
+- [03:31.660] The average call wait time reached an all-time high
+- [03:34.650] of more than 42 minutes.
+- [03:37.040] Field office wait times were at 32 minutes,
+- [03:40.910] which is unheard of and the disability claims backlog
+- [03:44.360] was the longest ever in recorded history.
+- [03:48.400] In other words, it was run just like the country was run.
+- [03:50.780] It was run really badly.
+- [03:53.610] But I’m pleased to report that under our leadership
+- [03:56.180] and Frank in particular, the changes he’s made
+- [03:58.700] and what he’s done is sort of a miracle,
+- [04:01.770] sort of like what happened with the country as a whole.
+- [04:04.740] Field office wait times are now down 30 percent since last year
+- [04:09.070] and it looks like it’s going to a total record number
+- [04:13.580] and the record was set in a long time ago
+- [04:16.210] when the world was a lot different place
+- [04:18.420] and we’re going to beat that record.
+- [04:20.640] Call wait times are down 73 percent
+- [04:23.970] while serving twice as many customers per day.
+- [04:27.430] The disability claims backlog is down 26 percent
+- [04:30.680] and seniors now have 24-7 online access to their accounts,
+- [04:34.860] which they never had before.
+- [04:36.100] Whereas under Biden, the website was down
+- [04:39.850] 29 hours a week for maintenance purposes.
+- [04:45.130] It was essentially not open very much.
+- [04:47.380] They were always maintaining it
+- [04:48.670] but they didn’t know what the hell they were doing.
+- [04:50.400] They had a person running that
+- [04:51.610] that had no idea what they were doing.
+- [04:54.820] Among my very first acts was to order all government employees
+- [04:58.290] to return to the office or be removed from the job,
+- [05:03.060] which means our social security offices are now open
+- [05:05.940] for full business hours five days a week,
+- [05:09.030] so unlike being shut down all the time,
+- [05:12.260] we’re open at record levels also.
+- [05:14.880] We’re making it really great for the people
+- [05:16.810] that want and demand social security
+- [05:19.680] and they paid into the system, they deserve it.
+- [05:21.610] Last month I signed one big beautiful bill
+- [05:25.190] and allowed no tax on social security
+- [05:27.900] for our great seniors, okay. So how’s that? Not bad, right.
+- [05:31.740] No tax on social security for our seniors.
+- [05:35.560] And to protect our benefits, we’ve already kicked nearly
+- [05:39.400] 275,000 illegal aliens off of the social security system.
+- [05:44.830] These are people, many of them have already left the country
+- [05:48.730] and yet we were sending them checks all the time and 275,000
+- [05:54.260] and that number is now even larger than that, frankly.
+- [05:56.600] It’s an unbelievable job and what that’s doing
+- [05:59.300] is making the system strong, it’s making it strong.
+- [06:04.580] Biden never kicked anybody off, everybody joined.
+- [06:08.630] We’re carrying out historic deportations to remove
+- [06:11.630] many more illegals committing social security fraud.
+- [06:14.140] It’s the social security fraud that was taking place at levels
+- [06:17.730] that nobody’s ever seen. We cleared 12.4 million names
+- [06:22.540] listed in the social security database
+- [06:24.960] over 120 years of age. Think of that.
+- [06:29.150] So we had 12.4 million names where they were over
+- [06:33.180] 120 years old, is that right? That’s a hell of a statement.
+- [06:38.410] I have a feeling, Dan, that’s not really going to,
+- [06:41.900] it really didn’t happen, did it? So you have 12.4 million names
+- [06:46.920] listed in the social security database
+- [06:49.740] that were over 120 years of age, meaning you’re breaking records
+- [06:55.570] because I’ve never heard of anybody at 125.
+- [06:58.110] There were nearly 135,000 people listed
+- [07:02.280] who were over 160 years old
+- [07:05.250] and in some cases getting payments,
+- [07:06.940] so somebody’s getting those payments and we’re after that.
+- [07:10.400] We’re also fighting the menace of inflation
+- [07:13.630] to make life more affordable for American seniors
+- [07:16.070] and we’ve ended Biden’s inflation nightmare.
+- [07:18.900] So we had the worst inflation in the history of our country
+- [07:22.890] and now our inflation is down to a perfect number,
+- [07:25.270] a beautiful number, hardly any at all
+- [07:28.100] and yet our country’s taking in tens of billions of dollars
+- [07:31.730] and trillions of dollars,
+- [07:33.040] actually trillions of dollars in tariffs
+- [07:37.240] and you know all about it. It’s been amazing.
+- [07:40.290] They say why are we taking in so much money?
+- [07:43.920] Last week they found 29 billion dollars
+- [07:46.840] and they couldn’t figure out where it came from.
+- [07:48.400] I said check the tariff shelf
+- [07:51.160] and they said how did you know that’s where it came from?
+- [07:54.630] Taking in billions and even trillions of dollars
+- [07:58.290] in tariffs paid by other countries
+- [08:01.960] who frankly were taking advantage of us for many,
+- [08:05.040] many years and they were doing that to us
+- [08:07.670] but our people didn’t know it,
+- [08:09.470] we didn’t have smart business people.
+- [08:13.000] We’ve ended Biden’s inflation nightmare
+- [08:15.100] and came in below expectations and yet again
+- [08:18.020] this past month we have, we set records.
+- [08:21.170] Gasoline prices are way down and really dramatically
+- [08:25.530] as everybody knows and energy prices
+- [08:28.120] have been going down other than in certain states
+- [08:31.270] where you have Democrat-run states
+- [08:33.490] where they put windmills all over the place.
+- [08:35.220] Anytime you see a windmill
+- [08:36.450] you’ll say well they have bad energy costs
+- [08:40.290] and it’s happening in New Jersey.
+- [08:41.660] I saw that there’s a revolution going on in New Jersey.
+- [08:45.170] They closed up a nuclear power plant
+- [08:47.790] and they’re raising electricity rates
+- [08:51.220] by 21, 22 and 28 percent, something like that
+- [08:55.290] and you’re going to have a new governor in New Jersey.
+- [08:58.090] I tell you what, you have a good man
+- [09:00.190] running in the Republican party,
+- [09:02.490] he’ll get them down but what they’ve done is they’ve killed
+- [09:05.920] so many good sources of energy for very expensive windmills
+- [09:10.000] and lots of other things that don’t work.
+- [09:12.540] 401ks and retirement accounts are soaring
+- [09:15.310] and the stock market is setting record highs almost every day.
+- [09:19.620] We’re going record highs and yet we’re taking
+- [09:22.500] in hundreds of millions of dollars in tariffs
+- [09:26.640] so it turned out that Trump was right and they were wrong.
+- [09:30.600] A few smart people knew what was going to happen,
+- [09:33.230] a few of us were right
+- [09:35.170] so we’re going to keep the fighting going,
+- [09:36.740] we’re going to make America’s seniors every single day,
+- [09:40.360] we’re going to fight for them.
+- [09:41.640] We’re going to make them richer, better, stronger
+- [09:43.900] in so many different ways,
+- [09:45.180] but Social Security is like pretty much the one
+- [09:48.240] that we think about
+- [09:49.980] and we love it and we love what’s happening with it.
+- [09:52.830] And it’s going to be good for 90 years and beyond.
+- [09:56.140] Again, you were given only a short period of time.
+- [09:58.300] Social Security was supposed to be like death.
+- [10:01.890] Had they won the election,
+- [10:03.250] Social Security would have defaulted
+- [10:05.110] during Biden or Kamala’s election,
+- [10:07.730] whoever they so chose – two beauties.
+- [10:11.920] And now what I’d like to do is ask Frank to say a few words.
+- [10:15.010] Again, this is a man with a really storied past.
+- [10:18.740] He’s one of the most successful anywhere in the world –
+- [10:21.970] what he did at JPMorgan Chase
+- [10:24.470] and what he did for Henry Kravis and all of the others.
+- [10:27.830] They’re like legendary stories and he just wanted to do this.
+- [10:30.880] He’s making about a tiny fraction,
+- [10:33.590] I would say a tiny fraction of what he used to make,
+- [10:36.470] but he didn’t care. He wanted to do it.
+- [10:37.840] He made a lot of money and he said,
+- [10:39.790] “I want to run that system. I want to put it back on track.”
+- [10:42.240] And he’s got an unbelievable talent over there.
+- [10:45.230] It’s like a different place.
+- [10:46.650] So Frank, would you say a few words please? Thank you.
+- [10:48.990] There’s less than one percent – a tiny fraction, sir.
+- [10:53.450] Is that what it is?
+- [10:55.440] That’s a tiny – it’s an honor, it’s an honor.
+- [10:57.860] Frank Bisignano: It is an honor and I’d like to start off
+- [10:59.850] by thanking the president for his tireless effort
+- [11:05.180] in running the country and what he’s done across the country,
+- [11:09.170] meeting every commitment.
+- [11:11.020] And you know I see it directly in the big beautiful bill –
+- [11:14.130] the opportunity that it’s brought to seniors,
+- [11:16.940] but his effort on every commitment,
+- [11:19.100] delivering against it
+- [11:20.890] and delivering on world peace tirelessly.
+- [11:25.060] I’d also thank him for my opportunity.
+- [11:27.920] You know he’s teasing me,
+- [11:29.270] I’m teasing him about the economics of the job,
+- [11:33.610] but the reality is to serve 300 million Americans,
+- [11:39.180] which is what Social Security serves, is a tremendous honor.
+- [11:43.900] And him putting that faith in me and building what I believe –
+- [11:49.410] what I believe and I think I have a right to say it –
+- [11:51.850] is the best leadership team ever assembled in the White House
+- [11:58.290] and in the cabinet. So that’s my great honor.
+- [12:01.650] So I come here and get the opportunity
+- [12:05.120] to serve the American public
+- [12:07.390] in a manner that I never imagined in my life.
+- [12:11.170] And what we found was the opportunity to fix a foundation.
+- [12:15.180] The reality is people talk about 72 beneficiaries.
+- [12:18.620] I talk about over 300 million Americans
+- [12:22.940] with a Social Security number
+- [12:25.130] that we must protect through the system.
+- [12:28.150] And when you look at what we talk about
+- [12:30.890] in eliminating Social Security numbers
+- [12:34.200] that were live in the system,
+- [12:36.080] they could carry fraud through the whole system.
+- [12:38.930] So the first thing was root out fraud, waste and abuse.
+- [12:43.960] But while doing it, the best way to be more efficient
+- [12:48.510] is provide more accurate payments and better service.
+- [12:53.950] And you heard the numbers.
+- [12:56.450] I think the most staggering number
+- [12:57.900] is that we had a website that was down 29 hours.
+- [13:03.160] This will be a digital first agency
+- [13:06.300] and we are building my SSA accounts –
+- [13:09.030] that’s the digital account.
+- [13:11.260] And we have a bold goal of 200 million Americans
+- [13:15.430] to have a digital SSA account by the end of next year.
+- [13:19.870] It will happen just like we had a bold goal of single digit
+- [13:25.640] wait time on the calls when they were at 40 minutes
+- [13:29.820] and we did that. This is my 100th day.
+- [13:32.380] We did that within 90 days, right?
+- [13:36.200] Get the web up and running,
+- [13:37.830] bring technology to our field offices,
+- [13:40.910] use digital presence to answer and serve the American public.
+- [13:45.850] That’s the job.
+- [13:47.140] When we do all that,
+- [13:48.340] then we’ll really know the answer to
+- [13:50.660] if we have a hole, right?
+- [13:53.460] We were – I was presenting my second week on the job
+- [13:56.690] with 18 billion dollars in errors
+- [13:59.960] by the inspector general. It was public.
+- [14:05.280] In less than a month we solved 9 billion of it.
+- [14:09.970] So that’s the type of swift action we could take, right?
+- [14:14.790] You see the things like the big beautiful bill for the seniors,
+- [14:18.360] you see better digital services,
+- [14:20.940] you see field office wait times down.
+- [14:24.040] If you make an appointment to have a field office visit,
+- [14:28.670] it now happens in six minutes – unprecedented.
+- [14:33.000] We are serving more people
+- [14:34.970] and delivering more than was ever delivered
+- [14:37.360] before in a manner with the highest possible quality
+- [14:41.380] and we’ve just begun.
+- [14:42.800] You should expect this to be a great digital first agency.
+- [14:46.830] My commitment to make this happened
+- [14:50.540] is as deep as the president’s commitment
+- [14:53.390] to make the world a great place
+- [14:55.550] and you see the fabulous job happening here across America
+- [14:59.880] and what he’s doing in the world.
+- [15:01.770] You should expect Social Security
+- [15:04.340] just like the president.
+- [15:06.100] I thank him for making America great again.
+- [15:09.620] It’s happening.
+- [15:11.180] Social Security will be great again.
+- [15:14.690] You have my commitment. Thank you, Mr. President.
+- [15:17.270] Will Scharf: Thank you.
+- [15:19.910] I’m going to sign the new proclamation, please.
+- [15:23.560] This is a proclamation both commemorating
+- [15:25.870] the 90th anniversary of the Social Security Act,
+- [15:28.430] the signing of the Social Security Act,
+- [15:30.470] and also the incredible accomplishments
+- [15:32.080] of your administration
+- [15:33.610] – fixing and promoting and safeguarding Social Security.
+- [15:37.110] And it also obviously mentions the fact
+- [15:38.960] that as part of the one big beautiful bill,
+- [15:41.680] a vast majority of our senior citizens
+- [15:43.580] are no longer paying taxes on their Social Security benefits,
+- [15:46.920] as you promised in your campaign
+- [15:48.360] and as you delivered for the American people.
+- [15:50.260] The President: That’s a big factor, isn’t it?
+- [15:51.720] Will Scharf: Yes, sir. That’s great.
+- [15:53.700] The President: I think they’re very happy about it, too.
+- [15:55.680] They’re very happy about a lot of things.
+- [15:57.670] Good job, Frank.
+- [15:58.930] Frank Bisignano: Thank you, sir.
+- [16:03.930] The President: And Frank has brought with him
+- [16:05.180] some of the most talented people in business,
+- [16:08.370] and they were making – again, they were making a lot of money,
+- [16:11.000] but they made a lot of money.
+- [16:12.250] They had money they didn’t have to make anymore,
+- [16:14.110] and they just want to do this.
+- [16:15.340] They want to have our country become strong and good,
+- [16:19.560] and that’s what’s happening.
+- [16:20.780] And we’re doing that in a lot of locations, a lot of areas.
+- [16:23.850] You deal with some of the people that are commissioners,
+- [16:26.040] that are secretaries of state,
+- [16:30.180] secretaries of treasury and commerce –
+- [16:33.710] people that were really, really successful people,
+- [16:36.550] and they gave all that up
+- [16:37.770] to make a very small amount of money.
+- [16:41.830] They don’t even consider it a fraction.
+- [16:44.030] You say one percent, less than one percent.
+- [16:46.900] That’s pretty good. That’s a big pay cut.
+- [16:49.930] But Frank is one of the most outstanding of all.
+- [16:52.230] His career has been incredible,
+- [16:53.500] and you just have to look at what happened at JPMorgan Chase
+- [16:56.680] and look at what happened with First Data.
+- [16:58.310] First Data was the biggest company of its kind
+- [17:01.020] in the world, but it was not going to make it.
+- [17:04.250] He went in, and it became a tremendous success.
+- [17:08.590] It merged into another company,
+- [17:10.010] and he became the head of that company.
+- [17:12.770] Then he said, “Let me go save Social Security,”
+- [17:15.360] because as big as that stuff is,
+- [17:16.660] it’s small potatoes compared in terms of numbers, right?
+- [17:19.110] In terms of numbers, these are big numbers.
+- [17:21.190] Government numbers are big numbers.
+- [17:23.580] So, I want to thank everybody for being here,
+- [17:25.410] but I’m really proud of you, Frank.
+- [17:26.800] And here’s your proclamation,
+- [17:28.130] and let’s take a look at what that looks like.
+- [17:31.470] Signed by the human hand. For a change.
+- [17:37.170] That’s good, right?
+- [17:38.430] Do you have any questions for Frank?
+- [17:42.420] How about the questions for Frank?
+- [17:44.950] For Frank? Yes. Please.
+- [17:46.910] The Press: First and foremost,
+- [17:48.160] this was a major campaign promise that you had.
+- [17:50.780] 2023 was one of the first Agenda 47s that you put out.
+- [17:54.150] It was titled “We Must Protect Medicare and Social Security.”
+- [17:57.950] Why was this important for both of you to get it done,
+- [18:01.010] and given the fact that it will impact millions of lives?
+- [18:04.340] The President: Well, it was very important to me,
+- [18:06.840] because I knew how Social Security –
+- [18:08.940] I’d been hearing about it for years,
+- [18:10.340] long before I came to office,
+- [18:11.590] that it was really going to die very shortly.
+- [18:14.710] And I had to put somebody outstanding in.
+- [18:18.320] And we were talking.
+- [18:19.730] I was talking to him on a business sense once,
+- [18:21.540] and I said, “This guy’s amazing.”
+- [18:24.050] And he said, “I’d love to help you with Social Security,”
+- [18:27.370] because it’s kind of what he does.
+- [18:29.000] He takes troubled entities and turns them around.
+- [18:32.720] And he did some of the biggest messes in the world.
+- [18:37.190] And Social Security, in a certain way,
+- [18:40.030] I guess, you know, you reported it all the time.
+- [18:42.560] In four or five years, it’s going to go bust.
+- [18:44.760] But not anymore, it’s not.
+- [18:46.290] And he’s got it turned around so well.
+- [18:49.530] The proclamation helps.
+- [18:50.810] All of the things we’ve done help.
+- [18:52.810] And he’s finding such tremendous fraud,
+- [18:55.480] where we have illegal aliens.
+- [18:56.910] We have people that don’t even exist on Social Security now.
+- [19:00.150] They don’t exist.
+- [19:01.550] And what it does, it makes it totally secure
+- [19:04.710] and powerful for the people that are on it and need it.
+- [19:07.950] And we’re very proud of the job he’s done.
+- [19:10.510] One of the best. How are you today, sir?
+- [19:14.260] The Press: Democrats like Bernie Sanders and Elizabeth Warren
+- [19:16.410] continue to peddle the lie
+- [19:17.660] and the claim that you’re trying to cut Social Security,
+- [19:20.340] despite your repeated promises to protect it.
+- [19:22.770] Why do you think they keep pushing this misinformation
+- [19:25.690] and literally terrorizing the elderly in America
+- [19:28.080] that sadly keep watching the government-led mainstream media?
+- [19:31.020] The President: I love your question.
+- [19:32.340] I should have called you almost first,
+- [19:34.090] but I love these questions.
+- [19:36.680] But it’s such a good question. It’s so vicious, what they do.
+- [19:40.890] Elizabeth Warren said she was an Indian.
+- [19:44.860] We call her Pocahontas. She’s a liar.
+- [19:48.310] She lied her whole career.
+- [19:50.290] Based on the fact that she was an Indian,
+- [19:52.040] she was able to get into certain colleges,
+- [19:54.320] get certain jobs,
+- [19:55.900] get into certain universities to work there.
+- [19:59.510] She’s a liar and a mean person.
+- [20:02.010] She’s a nut job. I watched her the other night.
+- [20:05.410] She’s all hopped up, endorsing a communist in New York City.
+- [20:09.280] And she was all excited and jumping up and down.
+- [20:11.720] She’s got to take a drug test.
+- [20:13.460] She really does. She’s got to take a drug test.
+- [20:15.290] There’s no way somebody can act that way and be normal.
+- [20:19.220] What she’s done to our financial institutions,
+- [20:21.380] she destroys people.
+- [20:22.900] You know that you had a lot of great banks in the Midwest
+- [20:25.510] and banks that loaned to farmers and others
+- [20:28.350] and they went out of business. She put them out of business.
+- [20:30.340] Stone cold mean. Banks that were open 150 years.
+- [20:34.050] Family banks that supplied the farmers
+- [20:36.070] and manufacturers and others.
+- [20:38.110] And she put them out of business.
+- [20:39.580] She’s a mean, horrible human being.
+- [20:41.170] Bernie Sanders is Bernie Sanders.
+- [20:43.960] I don’t mind him so much.
+- [20:45.570] He’s just a liberal guy, very liberal guy.
+- [20:47.540] He’s a wacky guy. He’s still sharp.
+- [20:51.610] I got to tell you, he’s 86 or 87 or something.
+- [20:54.890] He’s still sharp. You compare that to Joe Biden.
+- [20:57.600] It’s sort of what happens. So I don’t mind Bernie Sanders.
+- [21:00.750] With him, you know what you’re getting.
+- [21:02.310] You’re getting a guy. He’s a nasty guy.
+- [21:04.690] But he’s somebody that,
+- [21:07.990] I don’t know if I call it a fastball,
+- [21:10.020] but he’s able to throw the ball pretty well.
+- [21:13.570] He’s OK. I watched him the other day.
+- [21:15.070] He was totally on the opposite side of things.
+- [21:17.140] I will say this. The biggest issue right now
+- [21:20.490] and an issue that’s really taken hold is crime,
+- [21:23.080] stopping crime in the cities.
+- [21:24.450] And the Democrats are fighting the stopping of crime.
+- [21:29.070] So I think that’s like men playing in women’s sports
+- [21:33.560] is OK or transgender for everybody OK.
+- [21:36.330] But this is a bigger issue.
+- [21:37.650] This is the biggest of all issues.
+- [21:39.950] Crime is rampant in D.C.
+- [21:42.190] It’s rampant in our generally blue-run cities.
+- [21:46.050] And they’ve got to do something about it.
+- [21:47.560] And they’re never going to win another election.
+- [21:49.370] And instead of calling me a dictator,
+- [21:50.880] they like to say “Trump’s a dictator.
+- [21:52.560] Trump’s a dictator.”
+- [21:53.760] Well, I had calls from many, many friends,
+- [21:57.930] including Democrats, a lot of Democrat friends.
+- [22:00.560] But they’re normal people.
+- [22:02.270] And they were thanking me so much
+- [22:03.770] for what I’m doing in D.C. They feel so safe already.
+- [22:07.420] And, you know, at the border, we had,
+- [22:09.350] Frank, we had zero people come in.
+- [22:12.310] And this is done by a liberal group.
+- [22:14.380] They’re the people that do it. I have nothing to do with it.
+- [22:16.750] Zero people in three months.
+- [22:19.260] We had zero, zero, and zero for three months.
+- [22:22.020] And last year, we had millions of people pouring in
+- [22:24.630] from all countries, from jails, from drug addicts,
+- [22:28.100] gang members, drug dealers, by the thousands and thousands.
+- [22:34.130] 11,888 murderers, half of whom committed more than one murder.
+- [22:41.460] They flowed into our country.
+- [22:43.520] And for the last three months, we had none.
+- [22:45.130] And I didn’t get --
+- [22:46.500] remember when Joe Biden used to always go,
+- [22:48.100] “I need legislation. I need” -- I had no legislation.
+- [22:50.960] I just said, we’re closing the borders.
+- [22:52.500] And the whole world understood it
+- [22:54.280] because they respect your country again.
+- [22:56.200] They really respect this country again.
+- [22:58.140] They didn’t respect it.
+- [22:59.400] When he said it, it didn’t mean anything.
+- [23:01.520] But now they know it meant a lot.
+- [23:03.520] And Mexico does what we tell them to do.
+- [23:06.870] And Canada does what we tell them to do
+- [23:08.620] because we have the two borders.
+- [23:09.970] We have the northern border and the southern border.
+- [23:12.380] And they were both horrible.
+- [23:14.210] But now it’s -- some people say it’s a miracle.
+- [23:18.050] Well, what Frank has done with Social Security
+- [23:20.150] also is something very special. But what we’re doing with crime,
+- [23:23.690] which will be your next question,
+- [23:25.030] I guess, that’s because everyone’s -- they’re afraid.
+- [23:29.180] Half of the people here, maybe all of the people here --
+- [23:31.590] most of you live in D.C.
+- [23:33.400] You are petrified to go out. And you’re liberal.
+- [23:37.030] And if you’re liberal, you’re going to have to change.
+- [23:38.820] You’re Democrats, you’re going to have to change your ways.
+- [23:41.520] So we will have crime under control very shortly in D.C.
+- [23:46.060] But they’re record numbers.
+- [23:48.130] And sadly, what I guess the mayor did,
+- [23:51.580] but whoever it was, they asked the numbers to be fudged
+- [23:54.650] so that it would show less crime than the fact.
+- [23:56.510] The fact is, it’s worse than it’s ever been.
+- [23:58.990] And we will have it just like we did at the border,
+- [24:01.060] where borders are totally in great shape right now.
+- [24:04.970] Forever, record-setting shape.
+- [24:07.120] We’ll have the crime situation solved in D.C. very soon.
+- [24:10.410] And we’re also going to beautify the city.
+- [24:11.970] We have a beautiful city, but you can’t have graffiti,
+- [24:14.700] and you can’t have roads with potholes,
+- [24:16.600] and you can’t have the medians,
+- [24:18.510] the dividers in the roads falling down on the street.
+- [24:22.740] We’re going to be beautifying the city,
+- [24:24.750] making it really beautiful.
+- [24:26.480] We’re going to be getting the criminals the hell out of here.
+- [24:28.600] We don’t want the criminals in Washington, D.C.
+- [24:30.850] The Press: Mr. President, one on your Putin meeting
+- [24:33.870] and then one on D.C. crime.
+- [24:35.530] Are you prepared to offer Vladimir Putin access
+- [24:38.380] to rare minerals to incentivize him to end the war?
+- [24:42.020] The President: We’re going to see what happens
+- [24:43.400] with our meeting. We have a big meeting.
+- [24:45.620] It’s going to be, I think, very important for Russia,
+- [24:48.930] and it’s going to be very important for us,
+- [24:50.740] and important for us
+- [24:51.950] only that we’re going to save a lot of lives.
+- [24:53.550] Look, we have -- you know, we’re not paying any money,
+- [24:57.020] as you know, to Ukraine. We’re supplying equipment.
+- [25:00.370] We’re being paid 100 percent-plus
+- [25:02.760] for that equipment by NATO.
+- [25:05.870] And I got NATO up from 2 percent to 5 percent of GDP.
+- [25:10.110] They now have billions of dollars.
+- [25:14.280] NATO is a very rich group of countries,
+- [25:16.970] and we make the best military equipment
+- [25:19.140] anywhere in the world by far,
+- [25:20.370] and they’re buying our equipment,
+- [25:21.600] and they’re paying 100 percent for the equipment.
+- [25:23.430] A hundred percent.
+- [25:24.630] In fact, they owe us about $2 billion now.
+- [25:27.180] They’re going to send a check,
+- [25:29.420] another one was sent recently, for $1 billion.
+- [25:31.820] So we don’t -- we’re not spending any money anymore.
+- [25:34.020] Biden gave them $350 billion. We’ve got nothing for it.
+- [25:37.880] And if you look -- and by the way,
+- [25:39.730] we also signed a rare-earth deal where we get, you know,
+- [25:43.100] years of rare earth to get our money back,
+- [25:45.400] the money we spend. But what I’m really doing this
+- [25:48.050] for is to save thousands of soldiers a week.
+- [25:51.660] You have Russian soldiers, you have Ukrainian soldiers,
+- [25:54.300] and then you’ll have missiles
+- [25:56.330] dropped into various cities and towns in Ukraine.
+- [25:59.930] And they’re losing -- last week they lost 7,251 people,
+- [26:07.230] mostly soldiers, Russian and Ukrainian soldiers.
+- [26:10.700] I’m doing it for that reason.
+- [26:12.230] We have a meeting with President Putin tomorrow.
+- [26:14.860] I think it’s going to be a good meeting,
+- [26:16.440] but the more important meeting
+- [26:17.710] will be the second meeting that we’re having.
+- [26:19.330] We’re going to have a meeting with President Putin,
+- [26:21.630] President Zelensky, myself, and maybe we’ll bring
+- [26:24.910] some of the European leaders along, maybe not.
+- [26:27.330] It’s -- I don’t know that it’s going to be very important.
+- [26:30.130] We’re going to see what happens.
+- [26:31.810] And I think President Putin will make peace.
+- [26:35.800] I think President Zelensky will make peace.
+- [26:38.180] We’ll see if they can get along. And if they can, it’ll be great.
+- [26:41.580] You know, I’ve solved six wars in the last six months,
+- [26:46.350] a little more than six months now,
+- [26:48.220] and I’m very proud of it.
+- [26:49.420] I thought the easiest one would be this one.
+- [26:51.170] It’s actually the most difficult.
+- [26:52.560] We had one war raging, as you know, for 37 years.
+- [26:56.130] One in the Congo with Rwanda was raging for 31 years.
+- [26:59.320] We solved six of them.
+- [27:40.250] We have great rare earth.
+- [27:42.820] We made that as payment for all of the money
+- [27:45.100] that we’ve spent so foolishly in Ukraine.
+- [27:50.870] We spent $350 billion.
+- [27:54.180] Now, Europe spent a billion. That’s a lot of money.
+- [27:56.650] They spent $100 billion. That’s a lot of money.
+- [28:00.270] But we shouldn’t be spending a lot more money than them.
+- [28:04.570] And they understand that.
+- [28:06.260] And I think that’s maybe why we’re not
+- [28:08.970] spending money anymore. We’re not spending any money.
+- [28:11.060] They’re paying us for everything.
+- [28:12.400] So it’s pretty -- people are shocked when they hear it.
+- [28:15.240] They don’t even understand. They don’t even write about it.
+- [28:17.500] But we’re not spending money.
+- [28:18.740] But we are spending a lot of time
+- [28:20.170] trying to get the war solved.
+- [28:21.410] If we can get the war solved, we’ll be very happy.
+- [28:23.830] As far as rare earth, that’s a very unimportant relative.
+- [28:26.400] I’m trying to save lives.
+- [28:27.680] I think it’s a crime. I think it’s a crime, sir.
+- [28:29.380] I think it’s a crime. I think it’s a crime.
+- [28:30.730] The Press: Do you have a message for the Democrat lawmakers
+- [28:32.650] like Nancy Pelosi or media who are saying,
+- [28:35.220] after living here for many years,
+- [28:36.600] that there is no crime
+- [28:37.900] and you’re trying to start a new news cycle?
+- [28:39.760] The President: It’s another reason
+- [28:41.030] why the Democrats lost the election in a landslide.
+- [28:44.300] They lie. It’s just a lie. Look, the crime is very bad.
+- [28:46.780] I think they’d be much better off saying,
+- [28:49.060] “we want to help President Trump with the crime
+- [28:51.240] because it’s an epidemic.”
+- [28:52.550] It’s a tragic situation. It’s the worst it’s ever been.
+- [28:56.460] And “we want to help President Trump with the crime,”
+- [28:58.750] as opposed to, “he’s a dictator, he’s a dictator.”
+- [29:02.310] People are so happy to see our military going into D.C.
+- [29:05.670] and getting these thugs out.
+- [29:08.170] As you know, we arrested a lot of people yesterday.
+- [29:10.270] We arrested a lot of people today.
+- [29:12.210] We’re getting people that have arrest records
+- [29:16.730] that you wouldn’t believe.
+- [29:18.090] 28 arrests. 15 arrests. Brutal, brutal people.
+- [29:24.650] And we’re going to have to do something
+- [29:26.020] about this cashless bail
+- [29:28.210] because people who shoot somebody, they kill somebody,
+- [29:30.450] and they’re out on the street in less than an hour.
+- [29:33.090] Now, that’s when this all started in New York,
+- [29:36.030] in Chicago, Los Angeles.
+- [29:39.060] You take a look. If we didn’t go to Los Angeles
+- [29:41.450] to help this incompetent governor
+- [29:43.820] and a mayor that doesn’t know what the hell she’s doing,
+- [29:46.930] if we didn’t go to Los Angeles, you wouldn’t have --
+- [29:49.760] A big part of it burned down,
+- [29:51.170] the other part of it would have burned down, too.
+- [29:53.570] You would have not had --
+- [29:54.800] I don’t think you would have been able to have the Olympics.
+- [29:56.960] We have the Olympics. I have a lot at stake with that,
+- [29:59.170] because I’m the one that got the Olympics.
+- [30:01.420] I got it in my first term, and I was saddened
+- [30:05.000] because I got it for what would be my third term.
+- [30:09.360] Okay? Which turned out to be my second term.
+- [30:12.150] And the Olympics, it’s a great honor,
+- [30:15.440] but I felt badly because I said I won’t be president
+- [30:19.000] when the Olympics came.
+- [30:20.210] Well, through circumstance, I am president.
+- [30:22.780] I want to make sure the Olympics is great,
+- [30:24.330] the World Cup is great, and the 250,
+- [30:27.120] maybe the most important of all,
+- [30:28.530] is the 250th celebration is great.
+- [30:31.520] So what’s happening is we will work very hard.
+- [30:35.360] You would not have had -- I don’t believe that --
+- [30:38.360] If I didn’t send in the troops,
+- [30:40.200] I don’t think you would have had Los Angeles
+- [30:42.990] in condition to have the Olympics.
+- [30:44.810] I think you would have had to tell them,
+- [30:46.540] “I’m sorry, you’re going to have to go someplace else.”
+- [30:48.960] And if you look at the police commissioner or the sheriff,
+- [30:52.430] he said, “we really needed them.
+- [30:54.200] Thank God they were here. We really needed them.”
+- [30:56.300] That was the first two or three days.
+- [30:57.710] After we solved their problems, then he said,
+- [31:00.380] “well, I think we could have maybe done it.”
+- [31:02.090] No. He was told what to say.
+- [31:03.720] He said, you go back to your files and see what he said.
+- [31:07.370] He said, “thank goodness they came.”
+- [31:09.650] If I didn’t go and put our military there
+- [31:12.270] or National Guard in that case, and we’ll go military.
+- [31:15.260] We have to. The National Guard were there.
+- [31:17.670] They were very effective. If we didn’t do that,
+- [31:20.120] I don’t think you would have had the Olympics in Los Angeles.
+- [31:22.330] The place would have been just like the 25,000 houses
+- [31:25.330] that burned down, where, by the way,
+- [31:27.400] the governor to focus on getting their permits.
+- [31:30.310] You know, the federal permits are given.
+- [31:32.460] Those are the hard ones.
+- [31:33.790] And they were given a long time ago.
+- [31:35.620] People can’t rebuild the house
+- [31:36.920] because they can’t get permits from the state and the city.
+- [31:41.020] And they ought to focus on that because it’s very upsetting.
+- [31:44.030] I went there right after the fires.
+- [31:47.050] I walked the streets and I met a lot of great people
+- [31:49.350] that want to rebuild their homes.
+- [31:50.700] We took care of it from the federal standpoint.
+- [31:53.350] But they’re not taking care of it from the city,
+- [31:55.370] said the mayor and the governor.
+- [31:57.690] They’re not getting their permits.
+- [31:59.120] They can’t build their houses.
+- [32:03.020] The Press: Mr. President, do you think this summit
+- [32:05.680] and the incentives for peace you were putting on the table
+- [32:09.640] could end up rewarding Putin for his invasion of Ukraine?
+- [32:13.260] What kind of signal do you think
+- [32:14.710] that could potentially send to other aggressors?
+- [32:17.260] The President: No, I don’t think it’s a reward.
+- [32:18.770] I think that what we have is a situation
+- [32:21.910] that should never have started, should have never started.
+- [32:24.650] It didn’t start under me.
+- [32:25.930] And for four years, it wasn’t even discussed.
+- [32:29.060] And I could see it was going to happen after I left.
+- [32:32.060] I could see what was happening.
+- [32:33.400] Everything that we did was wrong.
+- [32:36.400] Everything that was done was wrong.
+- [32:39.160] Everybody’s to blame. Putin’s to blame.
+- [32:41.890] They’re all to blame.
+- [32:43.290] This is a war that would have never happened.
+- [32:49.350] The Press: Mr. President, earlier today,
+- [32:50.610] the Washington, D.C.
+- [32:51.840] police chief issued an executive order
+- [32:54.550] allowing metropolitan police officers
+- [32:56.070] conducting traffic stops to notify
+- [32:58.130] federal Immigration and Customs Enforcement
+- [33:00.460] about undocumented immigrants that they encounter,
+- [33:02.610] and yet the city
+- [33:03.840] has a longstanding pro-immigration policy,
+- [33:06.690] including allowing non-citizens to vote.
+- [33:10.060] The President: Which is ridiculous.
+- [33:11.300] The Press: And limiting cooperation
+- [33:12.580] with federal immigration agencies.
+- [33:13.900] The President: Right.
+- [33:15.100] The Press: Did your administration pressure
+- [33:16.520] the D.C. police chief to review and repeal these policies?
+- [33:19.310] And will you require other cities
+- [33:21.140] to roll back similar policies to avoid possible
+- [33:23.460] federal takeover of local law enforcement?
+- [33:24.970] The President: So what you’re saying
+- [33:26.180] is that it was a very positive thing.
+- [33:27.630] When they stop people, they find they’re illegal,
+- [33:29.460] they report them, they give them to us, etc.
+- [33:31.210] That’s a very positive thing. I have heard that.
+- [33:33.990] It just happened. That’s a great step.
+- [33:36.840] It’s a great step if they’re doing that.
+- [33:39.200] Yeah, I think that’s going to happen all over the country.
+- [33:41.210] We want to stop crime.
+- [33:42.610] I think if the Democrats aren’t strong on this issue,
+- [33:44.910] they won’t be able to. I think this is a bigger issue
+- [33:47.240] than all of the other ridiculous things that they have.
+- [33:50.570] Like open borders. Well, open borders is bad.
+- [33:53.090] Open borders has caused a lot of this problem,
+- [33:55.960] allowing millions and millions. I think 24 million people
+- [33:59.370] were allowed to come into our country.
+- [34:01.070] Many of these people from prisons, from jails,
+- [34:03.340] from mental institutions. This was the Biden policy.
+- [34:08.970] And I don’t believe it was him. He was never there before.
+- [34:11.370] It was the people that encircled this very beautiful desk,
+- [34:14.820] the Resolute Desk.
+- [34:16.380] Radical left lunatics who were smart, but radical left.
+- [34:21.640] And I’m very happy to hear what you just said,
+- [34:24.100] because I’ve heard that.
+- [34:25.430] The Press: Mr. President, on L.A., if I may, the mother
+- [34:28.800] of a 15-year-old California boy was briefly detained at gunpoint
+- [34:33.120] in the case of mistaken identity.
+- [34:34.910] And the L.A. U.S. Superintendent
+- [34:36.760] says that surveillance video shows armed agents
+- [34:39.740] wearing police and border patrol insignia.
+- [34:43.320] Given the National Guard, the border control agents,
+- [34:47.330] they’re not trained in local policing.
+- [34:48.870] What specific steps are you taking
+- [34:51.160] to ensure that young people are not put in harm’s way
+- [34:53.710] with these types of operations?
+- [34:55.160] The President: What they are trained in is common sense,
+- [34:57.200] and they’re very tough people.
+- [34:59.050] And they have great common sense,
+- [35:00.930] and they are highly trained.
+- [35:02.800] I heard the mayor of L.A. was saying,
+- [35:05.930] oh, they’re not trained this way.
+- [35:07.200] I heard this character from, where was he from?
+- [35:11.400] They talk about him as a candidate.
+- [35:13.040] He’s got no chance. The governor of Maryland,
+- [35:15.290] I watched him this morning
+- [35:17.300] saying that, the governor of Maryland,
+- [35:19.760] yeah, they say maybe he’ll be a president.
+- [35:22.170] He’s not presidential timber at all,
+- [35:24.800] but I heard him today talking about
+- [35:26.270] how the National Guard or the military
+- [35:30.170] is not trained in police.
+- [35:31.590] But they’re trained in common sense,
+- [35:33.980] and they’re trained in not allowing people
+- [35:35.700] to burn down buildings and bomb buildings
+- [35:37.830] and shoot people and all of the things.
+- [35:39.420] So they’ve done a great job.
+- [35:41.180] Again, if we didn’t send them, and very importantly,
+- [35:44.820] if we didn’t send them into Los Angeles,
+- [35:46.760] Los Angeles, the rest of Los Angeles
+- [35:48.510] would have been burned down to the ground.
+- [35:50.500] When you look at Minnesota, Minneapolis,
+- [35:53.070] I sent them into Minneapolis
+- [35:54.450] because the governor wouldn’t make the call.
+- [35:56.160] If I didn’t do that, you wouldn’t have a Minneapolis
+- [35:59.270] that wouldn’t be, I don’t think it would be existent today.
+- [36:01.750] You remember the famous scene
+- [36:03.080] burning over the CNN anchor’s shoulder.
+- [36:05.630] He said, “everything seems to be very peaceful.”
+- [36:07.910] And behind him, the whole city’s burning down.
+- [36:10.960] So you had the whack job governor
+- [36:13.310] who ran for vice president and made a fool out of himself.
+- [36:17.290] You would have had, I saved that city,
+- [36:19.920] I’ll tell you, I saved that city.
+- [36:21.690] So the bottom line is, these are very tough people
+- [36:26.850] that are trained in a thing called common sense,
+- [36:30.250] and they’re also trained in doing
+- [36:31.530] what we’re talking about right now.
+- [36:33.330] And you watch crime stuff,
+- [36:34.580] but you wouldn’t have Los Angeles.
+- [36:36.320] It wouldn’t be existent today.
+- [36:37.620] We would have had to cancel the Olympics if I let that go on.
+- [36:44.200] The Press: Will you pressure Israel
+- [36:45.860] to allow journalists into Gaza
+- [36:47.710] to cover the humanitarian efforts the U.S. is pursuing?
+- [36:51.020] The President: And I’d like to see that happen, Jim.
+- [36:54.160] I would like to see it happen.
+- [36:55.590] I would be very fine with journalists going in.
+- [36:58.050] It’s a very dangerous position to be in, as you know,
+- [37:01.160] if you’re a journalist. But I would like to see it.
+- [37:03.850] The Press: And on tariffs, Brazil, Mexico,
+- [37:05.830] and Latin America are getting closer to China.
+- [37:08.180] And they say it’s partly because of the tariffs
+- [37:09.840] you’re imposing on those countries.
+- [37:11.850] Are you concerned they’re getting closer to China?
+- [37:14.500] The President: No, not at all. I’m not concerned at all.
+- [37:16.570] They can do what they want.
+- [37:18.050] You know, none of them are doing very well.
+- [37:19.890] And what we’re doing in terms of economics,
+- [37:22.620] we’re blowing everyone away, including China.
+- [37:25.010] We’re doing better than any other country
+- [37:26.680] in the world right now.
+- [37:28.400] Brazil has been a horrible trading partner
+- [37:32.940] in terms of tariffs.
+- [37:34.200] As you know, they charge us tremendous tariffs,
+- [37:36.360] far, far more than we were charging them.
+- [37:38.090] We weren’t charging anything, essentially.
+- [37:41.220] And Brazil has some very bad laws happening,
+- [37:44.410] where they took a president and they put him in jail,
+- [37:46.450] or they’re trying to jail him. And I happen to know the man.
+- [37:48.950] And I will tell you, I’m pretty good at people.
+- [37:51.500] I think he’s an honest man. I think what they’ve done --
+- [37:53.500] this is an electric -- this is an electric --
+- [37:55.730] this is really a political execution
+- [37:57.870] that they’re trying to do with Bolsonaro.
+- [38:00.230] I think that’s terrible.
+- [38:01.560] But they also treated us very badly
+- [38:03.800] as trading partners for many, many years.
+- [38:05.250] One of the worst.
+- [38:06.450] One of the worst countries on Earth for that.
+- [38:08.900] They charged tremendous tariffs,
+- [38:10.860] and they made it very difficult to do anything.
+- [38:12.800] So now they’re being charged 50 percent tariffs,
+- [38:16.790] and they’re not happy, but that’s the way it goes.
+- [38:19.320] The Press: Mr. President, on D.C. crime, sir, on D.C.
+- [38:22.520] crime, are you concerned at all that some federal officers
+- [38:25.900] that are helping D.C.
+- [38:27.110] police might be being pulled away
+- [38:29.080] from other high-priority assignments?
+- [38:30.890] The President: Like what? Like what?
+- [38:32.160] The Press: Terrorism, sir.
+- [38:33.430] The President: Oh, really?
+- [38:34.670] Terrorism? They’ll stop terrorism
+- [38:36.400] as part of what they’re doing right now?
+- [38:38.190] No. The soldiers that we have -- first of all,
+- [38:42.570] we have plenty of them, long beyond what they --
+- [38:45.490] that you have here, but we’re just using a very small force.
+- [38:48.730] You know, in Washington, D.C.,
+- [38:51.330] they have thousands of police. They have a lot of police.
+- [38:54.720] But the police weren’t allowed to do their job.
+- [38:56.380] We have a lot of great ones.
+- [38:57.670] And you have some that weren’t so good, to be honest,
+- [39:00.330] but they weren’t allowed to do their job.
+- [39:01.930] But now they are allowed to do their job.
+- [39:03.800] And essentially, we’ve -- it’s only two days,
+- [39:06.990] but you look at the numbers already,
+- [39:12.710] The Press: Mr. President, as you know,
+- [39:14.080] there were some very concerning reports about crime statistics.
+- [39:17.660] Police are manipulating crime data to downplay crime in D.C.
+- [39:20.970] Will the administration release its own crime statistics
+- [39:23.450] to counter their misinformation?
+- [39:24.950] And will those individuals who are intentionally
+- [39:27.490] misrepresenting crime data and fudging the books,
+- [39:30.090] like you said, be penalized for endangering the public?
+- [39:32.840] The President: They are under investigation right now.
+- [39:35.960] They are giving us phony crime stats,
+- [39:37.910] just like they gave other stats in the financial world.
+- [39:40.880] They’re giving us their phony crime stats.
+- [39:43.370] And Washington, D.C., is at its worst point,
+- [39:46.810] and it will soon be at its best point.
+- [39:48.440] You’re going to have a very safe --
+- [39:49.730] you’re going to have a crime-free city.
+- [39:51.070] I mean, I say that.
+- [39:52.320] You’re going to have virtually a crime-free city.
+- [39:55.130] And these are strong men, but the criminals are strong men
+- [39:59.400] and women, but they’re strong men.
+- [40:02.010] And these are people that don’t play games.
+- [40:04.950] We’re not playing games.
+- [40:06.210] These are criminals we’re dealing with,
+- [40:08.330] and they treated people -- they took one of the people
+- [40:10.420] that worked for us the other day.
+- [40:11.730] You saw the beating, the pounding -- 10 against 1.
+- [40:15.910] And they pounded the hell out of him.
+- [40:17.450] He’s lucky to be alive. He was barely -- almost killed.
+- [40:20.750] And we’re not going to have that happening.
+- [40:22.430] The Press: Please. Tulsi Gabbard declassified more documents
+- [40:25.660] last night related to the Russia debate.
+- [40:27.660] The President: She’s doing a great job, by the way.
+- [40:28.940] That was another fake story.
+- [40:30.170] She’s -- I’m very happy with the job she’s doing.
+- [40:32.510] That’s right. They declassified some terrible documents
+- [40:36.380] talking about Democrats and what they did.
+- [40:38.650] I’m going to let them over. Thanks.
+- [40:40.070] The Press: You showed that then-DNI James Clapper
+- [40:41.950] sent out emails to IC officials
+- [40:43.650] saying that it would be a team sport
+- [40:46.030] to push them to debunk the 2017 ICA report
+- [40:49.380] and that it might need them to compromise
+- [40:51.340] on their normal modalities.
+- [40:53.390] What’s your reaction to the latest declassification,
+- [40:55.920] and in your views, sir,
+- [40:57.300] what does real accountability look like for the players?
+- [40:59.710] The President: It’s incredible what we’re finding,
+- [41:02.710] absolute proof of guilt, and we’ll see what happens.
+- [41:07.340] But Clapper and Comey and that whole group of criminals,
+- [41:11.920] they’re criminals, and they made it very tough.
+- [41:14.330] You know, they did the fake Russia, Russia, Russia,
+- [41:17.200] which had lasted for two years,
+- [41:20.360] and I got totally exonerated. There was no doubt about it.
+- [41:24.080] They should have done it in one day, not two years.
+- [41:26.740] But there was a whole scheme to try and demean
+- [41:29.940] Trump so that I couldn’t win an election.
+- [41:33.410] That is a criminal group of people.
+- [41:35.260] They’re sick people, and they’re criminals,
+- [41:38.050] and they should be taken care of.
+- [41:41.260] The Press: Did Putin come here tomorrow?
+- [41:44.520] The President: Well, he came to our country,
+- [41:46.090] and I heard CNN fake news
+- [41:48.920] talking about that that was a big win for him.
+- [41:52.950] Normally, you would say the opposite, but they said,
+- [41:55.590] oh, it’s a big win that he came here.
+- [41:57.180] Normally, I would say the opposite,
+- [41:58.660] you know, he came here.
+- [42:00.870] I think that President Putin would like to see a deal.
+- [42:04.270] I think if I weren’t president,
+- [42:05.630] he would take over all of Ukraine.
+- [42:08.210] It’s a war that should have never happened.
+- [42:10.660] If I weren’t president, in my opinion,
+- [42:13.800] he would much rather take off, take over all of Ukraine.
+- [42:17.980] But I am president, and he’s not going to mess around with me.
+- [42:22.290] The Press: On Russia, Mr. President,
+- [42:23.580] would you support or agree
+- [42:25.330] to reducing NATO troops in Europe,
+- [42:27.620] in countries like Poland,
+- [42:29.150] in order to get Russia to agree to a peace deal?
+- [42:32.730] The President: That hasn’t been put before me,
+- [42:34.150] and I’ll think about that for later,
+- [42:36.370] but it has not been put before me. Go ahead.
+- [42:38.310] The Press: Is anything less than an unconditional
+- [42:40.100] and immediate ceasefire a victory for the U.S.?
+- [42:42.840] Tomorrow?
+- [42:44.070] The President: Yes. Well, tomorrow we’ll see.
+- [42:45.870] I say, you know, I don’t know where that comes from.
+- [42:48.620] It’s sort of a not a good question.
+- [42:50.860] I would say that tomorrow, all I want to do
+- [42:52.870] is set the table for the next meeting,
+- [42:54.450] which should happen shortly.
+- [42:56.570] I’d like to see it happen very quickly,
+- [42:58.260] very shortly after this meeting.
+- [43:00.430] I’d like to see it actually happen, maybe in Alaska,
+- [43:03.070] where we just stay, because it’s so much easier.
+- [43:05.600] But I think that -- I think it’s going to be very interesting.
+- [43:09.440] We’re going to find out where everybody stands,
+- [43:11.950] and I’ll know within the first two minutes,
+- [43:14.470] three minutes, four minutes, two or five minutes.
+- [43:16.470] We tend to find out whether or not
+- [43:18.880] we’re going to have a good meeting or a bad meeting.
+- [43:20.840] And if it’s a bad meeting, it’ll end very quickly.
+- [43:23.690] And if it’s a good meeting, we’re going to end up
+- [43:25.310] getting peace in the pretty near future.
+- [43:27.090] Okay? How about one more?
+- [43:30.180] The Press: Thank you, Mr. President.
+- [43:31.380] I’m a Smithsonian.
+- [43:32.610] I know that your administration is seeking to weed out
+- [43:34.920] a lot of this left-wing spam that’s in the museums.
+- [43:37.530] But we’re seeing from people like Brian Stelter
+- [43:39.930] or other commentators that they’re insinuating
+- [43:42.540] that you are trying to change history
+- [43:44.500] according to your narrative. What’s your response to that?
+- [43:47.090] And is there anything you’d particularly like to --
+- [43:48.890] The President: Well, we want the museums
+- [43:50.110] to treat our country fairly.
+- [43:51.400] We want the museums to talk about the history
+- [43:53.530] of our country in a fair manner,
+- [43:54.950] not in a woke manner or a racist manner,
+- [43:58.190] which is what many of them, not all of them,
+- [44:00.040] but many of them are doing.
+- [44:01.940] Our museums have an obligation to represent
+- [44:04.530] what happened in our country over the years, good and bad,
+- [44:07.550] but what happened over the years in an accurate way.
+- [44:11.000] Thank you very much, everybody.

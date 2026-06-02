@@ -1,0 +1,114 @@
+<!-- source: https://www.youtube.com/watch?v=0dh3kJWBCUs -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 0dh3kJWBCUs -->
+<!-- date_published: 2025-06-25T16:02:58+00:00 -->
+<!-- date_accessed: 2026-06-02T01:23:20.400242+00:00 -->
+
+# Transcript: President Trump Meets with the Prime Minister of the Netherlands
+
+- [00:03.120] So, yes, absolutely. Well, I just want
+- [00:05.680] to thank the Netherlands. They've done a
+- [00:07.839] great job. You have done, Mr. Par.
+- [00:09.679] You've done a great job. And, uh, this
+- [00:12.160] was a tremendous summit. And I enjoyed
+- [00:15.280] it very much. And thank you. I stayed
+- [00:16.880] through every one of those speeches.
+- [00:19.600] Everyone. And some were good and some
+- [00:22.080] weren't quite as good. Right. I never
+- [00:24.000] realized. Yes. I was listening as well.
+- [00:26.080] Yeah. Yeah. You did a beautiful job.
+- [00:27.680] Yeah. Thank you. Thank you, Mr.
+- [00:28.960] President. and thank you for being in
+- [00:30.720] the NATO summit. I think together uh we
+- [00:33.120] made a big achievement in NATO today and
+- [00:35.440] going agreeing on the 5% and making real
+- [00:38.800] big step forward right and now working
+- [00:40.559] together on defense industry and make
+- [00:42.079] sure that we've got a deterrence on
+- [00:43.520] defense uh in the western world to help
+- [00:45.680] America and together make it strong.
+- [00:48.320] Thank you very much. Thank you. Big
+- [00:49.760] decisions today. Great honor. Yes, my
+- [00:52.399] honor. So, thank you very much
+- [00:53.920] everybody. We're going to have a press
+- [00:55.199] conference in a couple Thank you. Thank
+- [00:57.199] you.
+- [00:59.199] in a couple
+- [01:00.960] statements just came out from the
+- [01:02.559] Israeli Atomic Energy Commission and
+- [01:04.720] from Iran as you know that it was
+- [01:08.479] complete total destruction
+- [01:10.799] and uh CNN turned out to be fake news as
+- [01:13.680] always. That's why they have no
+- [01:14.960] credibility. That's why they have no
+- [01:16.320] viewers. But we're going to read it to
+- [01:18.080] you if you haven't seen it. Have you
+- [01:19.759] seen it, Jeff? Yes, sir. Yes, sir. Have
+- [01:21.360] you seen it? Okay. Pretty good. very
+- [01:24.240] unfair to the pilots that risk their
+- [01:26.640] lives for our country and then they get
+- [01:28.960] fake news. New York Times and CNN make
+- [01:31.360] up a phony story to get some uh hits.
+- [01:35.520] It's the only reason I cared about it
+- [01:37.119] because those pilots were so brave. I've
+- [01:39.040] never seen anything like it. They flew
+- [01:40.880] into the hornets's nest and then they
+- [01:42.479] got uh hurt so badly by what the fake
+- [01:46.240] news wrote. And it was CNN, it was the
+- [01:48.479] New York Times, and they're both uh
+- [01:50.479] disgusting, disgusting, really horrible
+- [01:53.119] groups of people. Uh the pilots did an
+- [01:56.880] unbelievable job like nobody's ever
+- [01:58.719] seen. They hit pay dirt. You see where
+- [02:00.960] the I guess you probably look, they call
+- [02:03.119] it the wound. You see where the wound is
+- [02:05.280] on the earth and three of them right
+- [02:07.680] next to each other. Perfect. And they
+- [02:10.640] should be admired and respected for what
+- [02:12.800] they did. and the fake news uh in order
+- [02:16.160] to try and hit me, the fake news made
+- [02:18.879] them look bad, but now they look really
+- [02:21.120] good again. So that was the Israeli
+- [02:22.879] Atomic Energy Commission and it was also
+- [02:25.520] about the High Commission of Iran just
+- [02:28.800] said it was totally demolished. But
+- [02:30.879] we're going to have a news conference in
+- [02:32.480] a couple of minutes and we'll see it
+- [02:34.080] because I don't want to I don't want to
+- [02:35.760] burden the prime minister with this.
+- [02:37.280] Okay. Thank you very much. Thank you.
+- [02:40.319] Thank you.
+- [02:42.319] I love the president. the Netherlands.
+- [02:44.640] Yes. If America is first, it's America
+- [02:47.680] second. Why are you saying if the
+- [02:50.239] Americans first and the Netherlands have
+- [02:51.760] been second? Oh, no. Well, I think I
+- [02:53.840] don't Some people put it first.
+- [02:56.400] Have a good time, everybody. Mr.
+- [02:58.000] President, what do you think of the
+- [02:59.519] outcome of the summit? What do you think
+- [03:01.920] of the outcome of the summit? I'm going
+- [03:03.519] to have I think the summit was
+- [03:05.280] fantastic. It was a big success. Uh you
+- [03:08.080] had great people here. Everybody showed
+- [03:09.760] up. They were all the prime ministers
+- [03:11.440] and the presidents and the kings and the
+- [03:13.920] queens, right? And I actually had
+- [03:16.319] breakfast today with a king and a queen
+- [03:18.000] who were beautiful, beautiful people.
+- [03:20.720] Central casting I must say, very nice.
+- [03:23.120] We had a great time. Uh we thought the
+- [03:25.519] Netherlands was fantastic. I think you
+- [03:27.920] did a fantastic job. Thank you. Big
+- [03:30.400] decisions today.
+- [03:33.280] Mr. President, you said you would
+- [03:34.560] clarify your stance on article 5 uh just
+- [03:37.360] yesterday. Is that something you can
+- [03:39.519] explain today? Stand with it. That's why
+- [03:41.040] I'm here. If I didn't stand with it, I
+- [03:43.120] wouldn't be here. So, you would defend
+- [03:45.040] countries even if they don't pay off
+- [03:46.879] their fair share. Of course. Why would I
+- [03:48.640] be here? Thank you very much, everybody.
+- [03:52.159] you guys.

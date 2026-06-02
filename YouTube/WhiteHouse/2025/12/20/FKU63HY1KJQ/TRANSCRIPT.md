@@ -1,0 +1,1797 @@
+<!-- source: https://www.youtube.com/watch?v=FKU63HY1KJQ -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: FKU63HY1KJQ -->
+<!-- date_published: 2025-12-20T03:36:39+00:00 -->
+<!-- date_accessed: 2026-06-02T02:39:53.830979+00:00 -->
+
+# Transcript: President Trump Delivers Remarks on the Economy, Dec. 19, 2025
+
+- [00:02.510] Announcer: Ladies and gentlemen, the 45th and 47th
+- [00:06.970] President of the United States, Donald J. Trump.
+- [00:11.920] ♪ ("God Bless the USA" by Lee Greenwood) ♪
+- [02:34.540] The President: Oh, thank you very much.
+- [02:36.230] This was just a little, a little quick stop
+- [02:39.010] that we made yesterday. Let's go to North Carolina.
+- [02:42.520] We want to go to North Carolina. And what a crowd.
+- [02:47.770] Thank you very much. We appreciate it.
+- [02:49.240] We'll never, there'll never be anything like this.
+- [02:51.660] You know, you say, let's go to North Carolina.
+- [02:53.470] We get this great crowd outside, you have people.
+- [02:56.550] It's crazy. We're having a great time.
+- [02:59.100] And you know, these ladies right here,
+- [03:00.800] they're, they've been to,
+- [03:04.220] I think over 200 rallies, but I'm not going to say it.
+- [03:07.750] And this time I made it easy
+- [03:09.090] because they come from North Carolina.
+- [03:11.550] They didn't have to travel.
+- [03:12.850] Today they traveled about a half an hour, right?
+- [03:14.550] Isn't that nice?
+- [03:15.790] Instead of traveling all over the country,
+- [03:17.900] they're unbelievable.
+- [03:19.720] And you look better than you've ever looked,
+- [03:21.220] and I'm not allowed to say that. You know, if you say that,
+- [03:24.200] if you say a woman looks beautiful,
+- [03:25.720] which you do, it's the end of your political career.
+- [03:29.440] But I don't care. You look beautiful.
+- [03:32.620] Well, I'm thrilled to be back in this incredible state
+- [03:35.240] with so many proud hardworking American patriots,
+- [03:37.980] which is what you are. And let me begin by wishing each
+- [03:42.370] and every one of you a very Merry Christmas.
+- [03:48.910] Remember they didn't want to say Merry Christmas
+- [03:51.050] when I first started.
+- [03:52.410] 2016, we don't want to say Merry Christmas.
+- [03:55.140] They said, I said, "No, we're going to bring back Christmas."
+- [03:57.790] And they don't say that anymore. They don't want to say it,
+- [04:00.660] but they don't talk about it anymore
+- [04:02.110] because they got shellacked.
+- [04:04.610] We're here tonight to celebrate 11 incredible months.
+- [04:07.460] It's been the most successful first year
+- [04:09.890] of any president in the history of our country.
+- [04:16.820] It's true. It has been. Isn't that a big statement,
+- [04:20.860] but it's a statement that you read all over the place.
+- [04:23.110] I mean, who could have done better?
+- [04:24.380] I don't think anybody could have done better.
+- [04:26.710] Than us. Not me, than us.
+- [04:28.700] We're all, we're in this together.
+- [04:31.580] Since my inauguration, we've created more than
+- [04:34.110] 53,000 North Carolina jobs,
+- [04:37.450] including 8,000 North Carolina construction jobs.
+- [04:42.730] More than 150,000 North Carolina residents
+- [04:46.160] have been lifted off of food stamps.
+- [04:48.930] They're very happy about that.
+- [04:51.740] And after your horrible hurricane,
+- [04:53.340] which produced more water damage than any hurricane in history,
+- [04:57.830] the Democrats let you down. They really did.
+- [05:00.790] Remember they wouldn't do anything.
+- [05:02.740] Remember?
+- [05:04.110] They wouldn't go to your, they wouldn't do anything.
+- [05:06.510] You had to wait till January 20th when I took office
+- [05:09.840] that we really knocked the hell out of it.
+- [05:11.680] Remember?
+- [05:13.790] Soon as I took office, I got in on January 20th and I,
+- [05:18.170] first thing I did was made North Carolina phone calls
+- [05:21.920] and we did a hell of a job. Did a hell of a job.
+- [05:25.760] You'd still be sitting in the mud if I didn't get elected.
+- [05:28.400] You would be, people were sitting in the mud.
+- [05:31.780] But I helped rebuild your state
+- [05:33.520] and I didn't get any help from the Democrats,
+- [05:35.580] not your governor, not your man that's running, by the way,
+- [05:38.430] for Senate against Michael Whatley,
+- [05:40.430] who's phenomenal. Michael Whatley is incredible.
+- [05:45.140] Your previous governor was a disaster.
+- [05:47.220] He's also a radical left person, by the way.
+- [05:49.370] He's radical left. You don't want him.
+- [05:51.530] He doesn't represent you. You just, and look at the crime.
+- [05:54.680] Look at what's going on with all the crime here.
+- [05:57.280] The slitting throats and stuff.
+- [05:59.130] I didn't, I never saw that with you.
+- [06:01.770] Now all of a sudden, that's what we see.
+- [06:03.850] You got to get Michael Whatley.
+- [06:05.080] It's going to be so important. He was so great.
+- [06:07.950] Don't forget, I took Michael and I
+- [06:10.720] put him as the head of the party because he did so great.
+- [06:14.350] We won the state all three times,
+- [06:16.900] and it was like a rock.
+- [06:18.950] He didn't allow cheating in the second time.
+- [06:23.060] I watched all these states boom, boom.
+- [06:25.820] We're leading. People went to sleep.
+- [06:27.860] It was over. Then they dropped ballots all over.
+- [06:29.980] They cheated like hell.
+- [06:32.350] The only good thing is this is a far better term
+- [06:36.550] than it would've been had
+- [06:37.820] I done it the more traditional way.
+- [06:39.480] It really is.
+- [06:40.710] It's a more powerful term. It's a more powerful term.
+- [06:44.340] And the biggest news of all is yesterday,
+- [06:47.230] it was announced that inflation
+- [06:48.880] is far lower than anybody expected.
+- [06:51.210] I told you, beating everyone of the 61 forecast
+- [06:58.460] from the so-called geniuses, the experts.
+- [07:00.680] We're the geniuses, not them.
+- [07:03.160] We now have the lowest core inflation since March of 2021,
+- [07:07.860] and we're just getting started. It's unbelievable.
+- [07:12.030] And that's despite taking in billions and billions
+- [07:16.910] and billions, hundreds of billions of dollars in tariffs.
+- [07:19.480] Remember they said,
+- [07:20.710] "Oh, the tariffs will cost inflation."
+- [07:23.070] Just came out with the best inflation report
+- [07:25.060] we've had in years and lots of cash too.
+- [07:30.280] In fact, 1776, right?
+- [07:36.800] 1,776 dollars goes to our military.
+- [07:42.710] You know, it was 1,700 and 75, and that was the number.
+- [07:47.960] You know, that was just a lump.
+- [07:50.340] I said, "You know, if we add $1, we got 1776."
+- [07:55.490] Somebody said, "That's genius."
+- [07:57.520] I said, "Well, I'm smart." I said, "For $1."
+- [08:03.010] And I'll get these ladies who are loaded with money
+- [08:05.260] to pay for it from North Carolina.
+- [08:08.130] Their husbands can write a check in two seconds, take care of it.
+- [08:11.530] Now, think of it for $1 more, they said,
+- [08:14.230] "I can't believe we didn't think of that."
+- [08:16.600] Only hours ago, I left a meeting at the White House
+- [08:19.430] where we cut the cost of prescription drugs by 300,
+- [08:22.780] 400, 500, and even 600 percent.
+- [08:28.020] And I'm doing what no politician of either party
+- [08:30.610] has ever done before,
+- [08:31.900] standing up to the special interest
+- [08:33.840] and demanding lower prices for the American people.
+- [08:36.220] This is what we have done.
+- [08:37.480] You know, it's called favored nations.
+- [08:40.640] And nations all over the world were screwing us.
+- [08:44.310] We would have prices that were 10 times higher
+- [08:47.740] than the prices they were charging in London
+- [08:50.870] and in Paris and all over.
+- [08:54.670] All over the world, we had the highest prices for drugs
+- [08:57.290] because we had politicians that wouldn't,
+- [08:59.350] I, I did it at the beginning at the first,
+- [09:01.650] but then we had a thing called,
+- [09:03.410] do you know what happened, COVID?
+- [09:04.660] And it was sort of hard to go after France and Italy.
+- [09:09.210] Say, "Listen, on top of all your COVID
+- [09:11.150] all over the place with everyone dying,
+- [09:12.920] we want you to pay a lot of money for drugs."
+- [09:14.830] You can't do it. But we did it and we,
+- [09:17.320] nobody's ever even thought of doing it before.
+- [09:19.490] I've negotiated and really did it directly
+- [09:22.770] with 17 of the world's largest drug companies
+- [09:25.590] as well as foreign nations that were taking advantage
+- [09:28.260] of your country for decades, many decades.
+- [09:32.360] For years, Americans have been paying the highest drug prices
+- [09:35.480] anywhere in the world by far,
+- [09:37.920] 10 times more sometimes, 15 times more,
+- [09:41.790] while other countries pay drastically less
+- [09:44.150] for the exact same drug made in the exact same plant,
+- [09:48.050] in the exact same country.
+- [09:50.190] But under my Most Favored Nation,
+- [09:52.330] you know what that means?
+- [09:53.600] It's a legal term.
+- [09:56.350] Drug pricing executive order, I just, I just signed a w- --
+- [10:01.100] couple of months ago and it's now being implemented.
+- [10:04.710] We have declared that the United States
+- [10:07.340] will now pay the same price as the lowest price
+- [10:11.110] of any country anywhere in the world.
+- [10:19.420] And we should, honestly,
+- [10:22.760] this is the biggest thing to happen in medicine,
+- [10:25.030] I think, since the founding of our country.
+- [10:27.090] (Audience chants "USA")
+- [10:28.320] You know, I don't mind. Go --
+- [10:32.070] They actually have a great location.
+- [10:33.830] You know, we've had people that look so good behind me
+- [10:38.260] that some of them went to Hollywood
+- [10:39.820] and actually did very well.
+- [10:42.520] You know? See, they may have a better location,
+- [10:46.010] but nobody's going to Hollywood.
+- [10:47.480] They can only see the back of your head.
+- [10:49.150] Look at all the television.
+- [10:50.810] Look at all those cameras. It's crazy.
+- [10:53.850] But we we did something nobody's ever done before.
+- [10:57.690] Nobody's tried. Nobody thought they could do it.
+- [10:59.590] Don't forget, the bigger the drug companies turned out
+- [11:03.770] to really do the right thing.
+- [11:05.070] And they really did.
+- [11:06.270] But, and they were there at the White House today.
+- [11:08.160] You saw some of the biggest companies
+- [11:09.510] in the world were there.
+- [11:10.730] The rest of them are coming next week.
+- [11:13.140] But the big problem with foreign countries,
+- [11:15.460] they would have to take their drug and raise it from $10
+- [11:20.390] to $20 to $30, maybe to $100, maybe 10 times more,
+- [11:24.810] but it really doesn't work that way
+- [11:26.750] because the world is a bigger place than the US.
+- [11:29.310] And so you're not going to have to raise it that much,
+- [11:32.180] but you have to raise it.
+- [11:33.650] And they always said for 50 years,
+- [11:36.070] they say, "Let the United States pay."
+- [11:38.720] And for 50 years, the United States got screwed
+- [11:42.330] because we're paying so much more drug
+- [11:44.180] that was selling for $10 in London, sells for $130.
+- [11:49.360] That's 13 times more in New York. 13 times more.
+- [11:52.590] So $10 in London, $130 in New York.
+- [11:57.980] And now that drug will go up for the other country
+- [12:02.790] from $10 to only $20 or maybe $30.
+- [12:08.130] And it will come down from the United States of America
+- [12:12.430] to $20 from $130. Think of that. Think of that.
+- [12:20.300] That's the biggest price reduction.
+- [12:23.590] You, you, when you talk about, you talk about cutting prices,
+- [12:26.890] cutting costs and cutting prices,
+- [12:29.170] you talk about affordability.
+- [12:31.920] You know, the Democrats they're the ones
+- [12:33.410] that got us into the mess.
+- [12:34.980] They're the ones that caused the high prices.
+- [12:37.360] And then they come out and they look,
+- [12:39.460] and they look at those fake news people back there.
+- [12:41.880] They go "this election's about affordability."
+- [12:46.490] They go, "Let's talk about it."
+- [12:47.850] No, I'd rather not talk about it because they can't.
+- [12:49.920] They're the ones that caused,
+- [12:51.150] they caused the highest inflation
+- [12:53.300] in the history of our country,
+- [12:55.200] which led to the highest prices in the history of our country.
+- [12:58.140] I inherited the mess.
+- [13:00.040] I got the prices down and they're going down
+- [13:01.970] (inaudible). The, look at gasoline,
+- [13:03.400] a lot of areas now in our country, 1.99 a gallon.
+- [13:08.940] Right? It cost these ladies from North,
+- [13:14.960] these beautiful friends of mine from North Carolina.
+- [13:17.500] It cost them like one third to get here
+- [13:21.960] than it would have cost under Sleepy Joe Biden.
+- [13:26.050] Right? If you drive, if you, this time you can drive.
+- [13:28.300] It's first time you didn't have to take an airplane.
+- [13:31.220] But we had nine blockbuster, buster agreements.
+- [13:33.620] We had nine of them with the big drug companies just today.
+- [13:37.170] The rest are coming over the next couple of weeks.
+- [13:40.280] But the first dramatic drug discounts
+- [13:42.120] will be available to all Americans
+- [13:43.930] starting on January at a thing called TrumpRx.gov.
+- [13:48.560] TrumpRx.gov.
+- [13:52.880] But this is the biggest thing ever to happen
+- [13:55.150] on drug prices, pharmaceutical prices,
+- [13:57.830] and it will also tremendously retart --
+- [14:00.180] it's going to reduce the cost of healthcare
+- [14:01.840] because healthcare is probably 50 percent drugs, right?
+- [14:05.870] Your drugs are coming down at levels
+- [14:08.700] that nobody ever thought was possible.
+- [14:11.280] This achievement alone should win us the midterms.
+- [14:15.360] You know, if we did nothing else,
+- [14:17.020] I said today, I said,
+- [14:18.220] "You know, you're talking about like this massive reduction
+- [14:22.200] in drug prices that affects everybody.
+- [14:25.230] Older people, younger people,
+- [14:26.870] middle-aged people, sick people, well people.
+- [14:30.150] It's not just like patients, it's everybody.
+- [14:33.930] It can never happen.
+- [14:35.300] Nobody would ever have done this.
+- [14:36.660] It was very hard to do. I had countries laughing at me.
+- [14:39.930] I said, "Listen, you're going to have to double
+- [14:42.240] and triple your drug prices."
+- [14:44.650] They said, "France, as an example,
+- [14:47.160] UK, European Union." They said "You must be kidding.
+- [14:54.540] They've had low prices for years.
+- [14:56.090] The drug companies would go, could you pay more?"
+- [14:58.360] No, no. Charge the United, they, they wanted the drug companies,
+- [15:02.090] in all fairness, to charge the United States of America.
+- [15:05.990] And they made up all sorts of crap.
+- [15:07.520] Well, research and development.
+- [15:09.520] I said, "Well, what about research and development?
+- [15:11.260] Why aren't they paying also for research?"
+- [15:13.170] Well, it just never worked that way.
+- [15:14.400] They used to use, remember, research and development,
+- [15:16.710] that's why we pay more.
+- [15:18.460] They say 12 times more why for research and development?
+- [15:22.180] It was all a conjure.
+- [15:24.030] But I'd say to the head of France as an example,
+- [15:28.050] "I'm sorry, but you're going to have to double
+- [15:29.610] or triple your prices for drugs."
+- [15:33.150] "No, no, no, we will not do that."
+- [15:34.870] "Oh, yes, you will." I said, "Yes, you will. 100 percent."
+- [15:38.220] "No, no, no. We will not do that.
+- [15:40.740] Of course we will not. I can't do that."
+- [15:42.800] I said, "Yes, you will." "No, I won't." "Yes, you will."
+- [15:47.750] And he said," Why do you have such certainty?"
+- [15:52.470] I said, "Because if you don't do it,
+- [15:53.910] I'm going to charge you a 25 percent tariff
+- [15:56.080] on everything you sell into America."
+- [16:05.140] And I said, because that was really the sticking point.
+- [16:08.300] They just would do it.
+- [16:09.610] They told the drug companies for years,
+- [16:11.410] "We're not doing it. We're keeping that pill at $10.
+- [16:15.150] We're not going to raise it."
+- [16:17.100] And the drug company said, "Well, you know, it's unfair."
+- [16:19.540] I mean, they're paying, they're paying 10 times more,
+- [16:24.360] sometimes 15 times more. That's okay. Let it pay more.
+- [16:28.410] We're not paying more than that.
+- [16:29.760] The, the prices were sucked for years,
+- [16:32.820] and no president did anything about it.
+- [16:35.350] Sleepy Joe Biden didn't know he was alive.
+- [16:39.010] The last thing he cared about,
+- [16:41.530] the last thing he cared about was this.
+- [16:44.200] He didn't care about anything. Just wanted to make it through.
+- [16:48.810] But, but they cheated.
+- [16:50.890] Look, he was surrounded by radical left.
+- [16:53.300] Hey, did you see on Mar-a-Lago, did you see how --
+- [16:56.700] how corrupt that was now? It's all come out.
+- [16:59.300] Wow. It's all come out. Some life. It's all come out.
+- [17:03.650] They were totally corrupt, radical left lunatics.
+- [17:06.210] Not stupid people, by the way.
+- [17:07.740] He was, but the people that really ran the country
+- [17:10.800] and that really ran the autopen, they were not stupid.
+- [17:14.820] But think about what we've done. Under the Trump administration,
+- [17:19.170] America will not be ripped off any longer.
+- [17:21.610] So can you imagine these countries?
+- [17:27.550] And when I told you the example before, from $10 to $20,
+- [17:32.790] you know, that doesn't sound like much,
+- [17:34.470] but it's a doubling of the price.
+- [17:36.020] You, you know, that's a doubling of the price.
+- [17:38.810] And if it went to 30 or 35 or 40, you know, that's still
+- [17:41.720] a doubling, tripling, or quadrupling of the price.
+- [17:45.700] But I said a 25 percent tariff,
+- [17:49.590] it's much more money than what you're talking about.
+- [17:52.200] So they would say to me, every, all, all countries,
+- [17:54.730] you know, obviously they said no at the beginning.
+- [17:56.770] And they would have told a, a, a normal president no,
+- [18:00.040] and that would have been the end of the conversation.
+- [18:01.780] So they said no to me.
+- [18:03.000] And I said, "No, no, you'll do it. 100 percent."
+- [18:06.500] And they said, "What's wrong with this? 100 percent."
+- [18:10.190] I said, "100 percent that you're going to do it."
+- [18:13.750] The one asked me, "Why are you so certain?
+- [18:15.740] Why would you say that I would quadruple
+- [18:17.570] the price of drugs in France or someplace?"
+- [18:21.580] I said, "Because if you don't,
+- [18:22.850] we're going to charge you a 25 percent tariff.
+- [18:25.170] That tariff is worth five times more money
+- [18:28.670] than you're talking about."
+- [18:30.010] And there was dead silence on the phone.
+- [18:33.850] And then when the gentleman, Emmanuel, is a wonderful guy,
+- [18:41.080] when he spoke, he said "You have a deal.
+- [18:44.680] You have a goal."
+- [18:52.160] He's a nice guy too, but you can't blame him,
+- [18:55.420] you know, it's been 40, 50 years, you can't blame him,
+- [18:59.040] but it was the same conversation with everybody.
+- [19:01.320] "No, no, no, we can't do that.
+- [19:02.670] No, no, I don't, I cannot double the price of my drugs."
+- [19:06.050] I said, "No, no, maybe triple or quadruple."
+- [19:09.730] But it's still much lower than we were playing, you know,
+- [19:12.020] we were paying a number that was crazy,
+- [19:13.960] 13, 14 times more. As president,
+- [19:17.050] I'm also taking on the gigantic health insurance companies
+- [19:20.090] that have gotten rich on billions of dollars
+- [19:22.120] of government subsidies,
+- [19:23.870] and I want the money to go directly to the people.
+- [19:26.690] I want the money to be paid directly to the people
+- [19:29.960] so that they can buy their own health insurance,
+- [19:32.560] which will give far better benefits at much lower cost.
+- [19:35.320] By the way, what I told you about buying the drugs
+- [19:37.820] at this massive dollar discount, it's like from where it is,
+- [19:42.820] that's going to have a huge impact
+- [19:44.200] on the cost of, of healthcare,
+- [19:48.830] the current Unaffordable Care Act,
+- [19:52.180] commonly known as Barack Hussein Obamacare
+- [19:57.250] was created to make insurance companies rich.
+- [20:03.210] Heh. It was bad healthcare at much too higher cost.
+- [20:08.270] And you see now that the steep increase in premiums
+- [20:11.820] that's being demanded by the Democrats,
+- [20:14.460] it was never any good, Obamacare.
+- [20:16.280] It was done for the benefit of insurance companies
+- [20:19.160] which totally control the Democrats.
+- [20:22.270] That's why you could have a strike on January 30th.
+- [20:25.230] You could have another shutdown because the Democrats
+- [20:28.100] are totally in the hands of they're,
+- [20:31.760] they're totally controlled by the insurance companies,
+- [20:33.910] big wealthy companies.
+- [20:35.680] Again, I want the money to go directly to the people
+- [20:38.090] so you could buy your own healthcare
+- [20:40.250] and you'll get much better healthcare
+- [20:41.790] at a much lower price.
+- [20:50.730] And the only losers will be the insurance companies
+- [20:53.440] that have gotten rich. How about these companies?
+- [20:56.740] Some of them have gone up 1,400 percent their stock prices.
+- [21:01.830] One, I think went up 1,700 percent.
+- [21:04.510] How many people have ever bought a stock
+- [21:06.340] that went up 1,700 percent?
+- [21:08.890] And it's, and, you know, think of it.
+- [21:12.250] They've taken in billions and billions of dollars.
+- [21:15.440] And the Democrat Party is also just,
+- [21:18.820] you know, it's look, I don't know.
+- [21:20.690] I don't know what they're going to do
+- [21:22.130] because I don't know how anybody beats us
+- [21:23.660] when we say that we want the money to go to the people
+- [21:26.050] so you can buy your own healthcare.
+- [21:28.080] How could it ever be better than that?
+- [21:29.750] I wanted to do that at the beginning in 2016,
+- [21:33.650] but the politicians told me, "Sir, you, don't worry."
+- [21:36.220] I, you know, I was a little bit inexperienced.
+- [21:37.900] I never did that, I've never done this before.
+- [21:40.210] Now, I'm quite experienced.
+- [21:41.480] I've seen things that nobody would've thought possible."
+- [21:45.330] But I said then, I said, "Why do we have this crazy Obamacare
+- [21:50.190] or as we call it, the Unaffordable"
+- [21:53.780] Isn't that a great name, the Affordable Care Act?
+- [21:55.480] They call it the, I call it the Unaffordable Care Act.
+- [21:59.000] I should get credit.
+- [22:00.240] That's a good one. What's better that or fake news?
+- [22:02.690] That or Pocahontas.
+- [22:04.820] That, I can't use the names that I used on the Republicans
+- [22:10.900] to gain access to the election.
+- [22:13.760] But we had some good names, didn't we?
+- [22:15.310] But I think the Unaffordable Care Act is pretty good.
+- [22:18.150] The UCA, right?
+- [22:21.690] You know, they keep talking about the ACA.
+- [22:24.430] Think of that.
+- [22:25.790] Instead of the ACA, we call it the UCA.
+- [22:27.700] The UCA, they say, "What is that?
+- [22:30.230] The Unaffordable Care Act?"
+- [22:31.580] It is unaffordable, but it was always no good,
+- [22:34.680] but now it's really gone, and with time, it gets worse.
+- [22:36.930] Now, it's going to be, hit big.
+- [22:38.830] Remember, I didn't do this. This is Obamacare.
+- [22:41.820] This is Obamacare. This isn't Trump.
+- [22:44.410] But you don't need it because the,
+- [22:46.090] let the money not go to the insurance companies.
+- [22:48.640] The problem is the Democrats will shut down the government
+- [22:51.690] because they are totally beholden,
+- [22:53.980] I don't love that word, but they're beholden, I-N,
+- [22:57.780] to, they're beholden to the insurance companies.
+- [23:01.860] So I don't know what they can do about it,
+- [23:03.740] but you know, they'll probably close down the government.
+- [23:06.750] It's so simple. The money should go to the people.
+- [23:10.240] The people should then take all of this money
+- [23:12.440] and buy the best healthcare there is.
+- [23:17.780] And there'll be a lot of money left over.
+- [23:20.140] (Audience chants "USA")
+- [23:22.220] Right?
+- [23:32.650] But they'll not be happy, but that's okay with me
+- [23:35.780] because you, the hardworking citizens,
+- [23:38.110] and finally you're going to have great healthcare
+- [23:40.200] at the right price, so you're going to have it.
+- [23:42.690] Although today, I did suggest one thing,
+- [23:44.700] because when I was watching these big drug companies
+- [23:47.200] get up and talk about things, they were giving free medicine,
+- [23:50.350] and I mean, they couldn't have been nicer,
+- [23:51.910] they couldn't have been better.
+- [23:53.200] And they were, you know, giving us a hard time a while ago,
+- [23:55.130] but it worked out good.
+- [23:56.740] Uh, I said, "You know what I'm going to do?
+- [23:58.360] I'm going to call these insurance companies.
+- [24:01.930] Fat cats. They are fat cats.
+- [24:05.140] I'm going to call the insurance companies,
+- [24:07.480] and I'm going to set up a meeting with them,
+- [24:09.670] all of them, and maybe I'll have the same luck
+- [24:12.170] that we had with the health companies,
+- [24:15.030] with the pharmaceuticals and the drug companies that we had."
+- [24:18.370] So rather than just saying, "We're not going to deal,"
+- [24:20.870] maybe they'll give us a deal,
+- [24:22.100] like cut the price by 50 percent,
+- [24:23.850] and maybe then it starts to make sense.
+- [24:25.420] So I'm going to meet with them. Who knows? Who knows?
+- [24:32.460] And I'll either meet in Florida. I've gone to Florida.
+- [24:35.100] I'll either meet in Florida, because I work all the time.
+- [24:37.470] So I'll either meet in Florida,
+- [24:39.930] or I'll meet in Washington the first week after,
+- [24:42.990] right after we all come back to going to our wonderful jobs.
+- [24:47.790] And l- -- I'll sit down with, it's like 12, 13 people.
+- [24:51.150] You know, it's basically these big monster companies.
+- [24:54.130] 13, 14 if I want to be generous.
+- [24:56.920] Get 14 people in a room and let's see what happens.
+- [24:59.090] Maybe they'll surprise us,
+- [25:00.370] but maybe we'll ask them for a 50 percent cut
+- [25:03.630] and maybe they'll give it. You know, you never know.
+- [25:05.680] You saw what happened with the drug companies.
+- [25:08.690] They want to give, they're giving free drugs to ev-
+- [25:10.760] -- I mean, they, they, they've been unbelievable,
+- [25:13.490] but they do love our country.
+- [25:15.050] And I probably think the insurance company guys
+- [25:17.170] love our country.
+- [25:18.500] They just felt they were dealing with stupid people,
+- [25:20.570] so you can't really blame them. Over the past 11 months,
+- [25:24.540] we have brought more positive change to Washington
+- [25:27.790] than any administration in the history of our country.
+- [25:30.340] That's true.
+- [25:31.640] (Audience chants "USA")
+- [25:35.630] And there's never been anything like it.
+- [25:37.510] When I took office last January,
+- [25:39.910] I inherited a mess and very simply, I am fixing it.
+- [25:44.540] Joe Biden gave us the worst inflation
+- [25:47.230] in the history of our country.
+- [25:48.670] A lot of people say, you know, the fake news says,
+- [25:51.770] "It's not the worst in history. It's the worst in 48 years."
+- [25:54.900] Oh, okay.
+- [25:56.100] Sorry. No, they do. They say 48 years is okay.
+- [26:00.220] But when I say history, they go crazy.
+- [26:03.570] That's when I let them win. I say, "I'm sorry, I apologize."
+- [26:06.470] I like that hat, 47. It's nice actually. Beautiful.
+- [26:16.500] Nice thread, gold thread. I watched that myself.
+- [26:18.780] I want gold thread, not mustard colored, you know?
+- [26:21.550] No, they give you, the,
+- [26:22.860] a lot of times they sell you mustard color.
+- [26:24.710] It costs them a lot less. We don't accept those hats.
+- [26:28.200] When you have a mustard colored thread, don't accept it.
+- [26:31.940] But it caused the prices to be higher than ever before,
+- [26:34.910] making it really life unaffordable for millions
+- [26:38.500] and millions of Americans.
+- [26:39.830] Our border was open and our country was being invaded
+- [26:43.760] by an army of 25 million people.
+- [26:46.850] Many came from prisons and jails, mental institutions,
+- [26:50.350] and insane asylums.
+- [26:52.310] Do you know the difference between a prison and a jail?
+- [26:55.230] A prison's more severe, right?
+- [26:57.450] You know the difference between a mental institution
+- [27:00.210] and an insane asylum?
+- [27:02.080] An insane asylum is more severe. They came from both.
+- [27:06.680] They were drug dealers, gang members,
+- [27:08.470] and over 13,000 murderers,
+- [27:11.470] more than 50 percent of whom killed more than one person.
+- [27:14.920] Think of that. They killed more than one.
+- [27:17.220] A lot of them said, "Oh I didn't mean,"
+- [27:19.550] but, you know, when you kill more than one,
+- [27:21.860] get them the hell out of our country.
+- [27:25.350] How about, how about that incident
+- [27:30.730] with that horrible monster
+- [27:32.530] that killed the young, beautiful girl from Ukraine,
+- [27:35.310] an ma- -- animal? And to think we'll g- --
+- [27:38.980] have, we'll have been trials for years
+- [27:41.030] and you'll get some nice liberal lawyer
+- [27:42.770] and they'll, will say, "Oh, well, he had a bad day."
+- [27:45.610] Yeah, he had a bad day.
+- [27:46.850] Slit her throat.
+- [27:49.270] We had men playing in women's sports,
+- [27:52.160] transgender for everybody, crime at record levels,
+- [27:55.070] the worst trade deals ever made.
+- [27:57.190] And our country was laughed at from all over the world,
+- [28:00.060] but they're not laughing anymore.
+- [28:02.880] One year ago, our country was dead.
+- [28:06.140] Now we are the hottest country anywhere in the world
+- [28:09.400] because we finally have a president
+- [28:11.490] who puts America first.
+- [28:14.690] (Audience chants "USA")
+- [28:39.120] The last administration and their allies in Congress
+- [28:41.990] looted our treasury for trillions of dollars,
+- [28:44.550] driving up prices on everything at unprecedented levels.
+- [28:50.620] How about the new thing in Minnesota with the Somalians?
+- [28:54.240] They stole, now it came out, the great US attorney up there,
+- [28:58.730] they came out, think of this, nine billion dollars,
+- [29:04.450] and they think that's just the beginning.
+- [29:06.740] They stole. Think of it.
+- [29:08.930] In their country, they live on nothing.
+- [29:11.660] They have nothing.
+- [29:12.990] They come here and they steal nine billion dollars.
+- [29:15.100] Are we stupid?
+- [29:16.320] I mean, how do we allow that to happen?
+- [29:18.800] Ilhan Omar should be sent out of our country.
+- [29:22.540] She should be, she should not be allowed to be a Congresswoman.
+- [29:29.160] She married her brother,
+- [29:33.400] either to stay or to get him into the country.
+- [29:36.780] And yesterday she, I guess, made up a story.
+- [29:40.350] She said the police attacked her son.
+- [29:44.060] They, they stopped the car and they, and the police said,
+- [29:48.940] "We never attacked him. We never stopped her.
+- [29:50.770] It was a made up story." She's a con person.
+- [29:54.260] She's full of con. She says zero.
+- [29:56.810] She said get, you ought get her the hell out of our country.
+- [29:59.280] That's what you ought to do.
+- [30:03.550] She made up a story that the police stopped her son's car
+- [30:07.290] and they harassed the hell out of him.
+- [30:08.800] Turned out to be a fake story.
+- [30:10.390] Never, they, it was no stoppage of his car
+- [30:12.670] and there was no harassment. But think of that.
+- [30:17.060] In Minnesota, this beautiful place,
+- [30:20.060] once beautiful, I don't call it beautiful.
+- [30:21.520] You got a governor who is a stupid person and a corrupt.
+- [30:26.220] He's corrupt and stupid.
+- [30:28.280] But he allowed this to go on. He allowed this to go on.
+- [30:31.500] Everybody knew what was going on.
+- [30:33.330] But what nobody knew is over nine billion dollars?
+- [30:37.330] And the people of Minnesota are not happy.
+- [30:40.810] And you know who's running for governor?
+- [30:43.070] Mike Lindell. Do we like Mike Lindell?
+- [30:47.710] That man suffered. That man suffered.
+- [30:51.590] He, what he did, what he went through
+- [30:53.500] because he knew the election was rigged.
+- [30:55.330] And he did it.
+- [30:56.540] He didn't, I mean, he just did it as a citizen.
+- [30:59.710] Mike Lindell, I'll tell you what,
+- [31:01.170] every time I introduced him, he got the biggest hand.
+- [31:03.480] I hope he does great. He deserves to do great.
+- [31:05.830] That man suffered. These people went after him.
+- [31:09.050] They went after his company. They did that with me, too,
+- [31:12.550] but at least I knew what I was getting into.
+- [31:15.450] He was just a guy that said,
+- [31:16.780] "Jesus, this election was so crooked.
+- [31:18.470] It was so rigged." He fought like hell.
+- [31:21.150] That guy deserves to be governor of Minnesota,
+- [31:23.490] I'll tell you right now.
+- [31:27.600] He's a great guy too. But I'm bringing the prices down
+- [31:32.110] and I'm bringing them down fast, you know that?
+- [31:35.300] As I saw the other day,
+- [31:37.890] and as I showed to people the other day, I made a speech.
+- [31:43.790] It was very well received. You know, we had one problem.
+- [31:46.850] I put up these gorgeous charts and it says, "Chart."
+- [31:51.040] And I'm, you know, sort of talking about the chart.
+- [31:54.060] You're reading into a piece of glass.
+- [31:56.310] I got no audience.
+- [31:57.540] I got just people, very hostile people waiting around.
+- [32:01.050] And I'm reading into a piece of glass for 22 minutes,
+- [32:03.720] and I talk about the chart.
+- [32:06.910] The networks didn't put up the charts.
+- [32:09.670] Only Fox put up the charts. Fox put them up in all fairness.
+- [32:13.710] When we get angry at Fox, we have to remember that.
+- [32:16.920] They put up the charts,
+- [32:18.160] so you could start putting them up now if you want.
+- [32:20.200] But we put up these beautiful charts that were very,
+- [32:24.650] look at that.
+- [32:29.230] But I very much like the chart from Butler, PA.
+- [32:33.150] I like that much better.
+- [32:36.390] That's my all-time favorite chart.
+- [32:39.890] You know, that's a great chart. They're all great charts,
+- [32:43.380] but I'll never like a chart like that chart I put up in Butler.
+- [32:46.360] Just take a look at the chart right here.
+- [32:49.540] That was a good chart. I love that chart so much.
+- [32:52.440] I sleep with that chart.
+- [32:57.540] But this is okay. There'll never be a great chart for me.
+- [33:01.600] It's only the one.
+- [33:03.240] Compared to Butler, the, all charts- -- stink.
+- [33:07.750] But look at that chart. Look at the kind of,
+- [33:10.060] Biden price increases and Trump price increases.
+- [33:12.640] Look at that. They're all Biden. We're bringing the prices down.
+- [33:15.790] Look at that chart. NBC, and CBS, and ABC fake news.
+- [33:21.010] The fake new-, Oops, that camera just went off.
+- [33:23.590] Sorry about that. Every time
+- [33:25.640] I mention that their camera, you know, you see the red light
+- [33:27.940] back there being, you see it go off.
+- [33:31.460] ABC fake news. I think ABC's the worst.
+- [33:34.970] Believe it or not, George Slopodopoulos,
+- [33:37.070] he paid me about 16 million. You have George Slopodopoulos.
+- [33:44.790] I heard Chris Christie lost his job.
+- [33:46.690] They fired Chris Christie.
+- [33:48.420] And they have a great young woman taking his place,
+- [33:51.790] who happens to be Hispanic and happens to be phenomenal.
+- [33:54.920] She's going to do a great job.
+- [33:56.570] But they fired Chris Christie. I guess, you know why?
+- [34:00.060] He wanted to eat all the time. No, they fired him.
+- [34:05.440] He was bad news.
+- [34:08.050] But I'd say ABC is the worst, of the networks.
+- [34:12.510] I would then say NBC is horrible.
+- [34:16.780] I mean, just horrible.
+- [34:18.350] They had this guy on, this fake guy, the fake senator.
+- [34:21.710] I call him the fake senator from a place called Georgia, right?
+- [34:26.180] And he was talking about all the, you know, things.
+- [34:29.640] He says he's a church leader.
+- [34:32.320] You know, it's funny, if you go on as a church leader,
+- [34:34.410] they talk about church and state, right?
+- [34:36.380] He's allowed to talk about it.
+- [34:37.980] He said, "I'm going back to my church
+- [34:39.530] and I'm going to pray this morning.
+- [34:40.960] I'm going to talk about all these issues."
+- [34:42.520] If a Republican said that, they start screaming,
+- [34:44.630] "Church and state." They don't scream.
+- [34:46.940] But NBC's really bad.
+- [34:49.570] And CBS, I mean, I love the new owners of CBS.
+- [34:54.050] Something happens to them though.
+- [34:56.170] 60 Minutes has treated me worse under the new ownership than,
+- [34:59.550] they just keep treating me.
+- [35:00.920] They just keep hitting me. It's crazy.
+- [35:03.430] And then you have Marjorie Trader Brown, I call her.
+- [35:08.820] Because Green turns to Brown under stress.
+- [35:11.650] So, I call her Trader Brown, which I don't like doing
+- [35:16.110] because two words is too much, two out of three.
+- [35:18.510] We're changing two. Marjorie Taylor Green,
+- [35:21.780] I'm going Marjorie Trader Brown, so I have to trade.
+- [35:24.780] And a lot of people don't understand,
+- [35:26.720] two words is too much to change.
+- [35:29.210] I actually like Marjorie Taylor Brown better,
+- [35:32.010] but everyone says Marjorie Trader Green is good,
+- [35:36.190] but they're all good.
+- [35:37.440] But what the hell happened to her?
+- [35:40.150] She, she was, must have been a stone cold liberal.
+- [35:42.400] She's on CNN now all the time. Can you believe it?
+- [35:46.070] And it was only because I couldn't call her back.
+- [35:47.930] You know, I have 218, 19 and change
+- [35:51.230] (inaudible)
+- [35:52.540] but we have 200 and some odd congress men and women.
+- [35:57.280] I have 53 senators.
+- [35:59.120] I have 212 countries. I've got a family.
+- [36:02.830] It's nice to talk to my family too.
+- [36:05.670] You can't call a president every single day,
+- [36:07.700] and then when the president doesn't call you back,
+- [36:10.540] she goes around saying, "He doesn't call me back."
+- [36:13.840] He just, I said, "Margie, I can't call you back.
+- [36:15.550] I got two " I think, "Marjorie, I just can't call you back.
+- [36:20.010] I'm sorry." And I wouldn't call her back.
+- [36:22.460] And then she goes onto a rant. "He won't call me back anymore."
+- [36:27.270] Sorry about that. You know, you can only go so far.
+- [36:30.360] You know, once a month, once every week or two weeks,
+- [36:33.400] but you can't, you know, highly neurotic.
+- [36:36.920] Her, not me. But I'm h- -- I'm neurotic too.
+- [36:39.890] I think I'm probably very neurotic too.
+- [36:42.310] I always say con- -- controlled neurosis is good.
+- [36:45.140] Being neurotic, no good, but if it's controlled,
+- [36:47.310] that's okay, it gives you some energy.
+- [36:50.000] But what the hell happened to Marjorie Trader Green?
+- [36:55.030] It's unbelievable.
+- [36:56.250] But she dropped out because I wasn't going to endorse her,
+- [37:01.080] and the person I would've endorsed
+- [37:02.510] was going to kill her in the polls.
+- [37:04.670] So she dropped out.
+- [37:06.620] And then they talk about how brave she is.
+- [37:08.380] No, brave would be to stay.
+- [37:10.910] And you know, it's one of those things.
+- [37:13.700] But she dropped out.
+- [37:14.950] I can't believe it that, that people can change so much.
+- [37:18.420] But you can't go from being a strong conservative
+- [37:20.770] to a stone-cold liberal unless you were lying.
+- [37:24.720] You know? You can't do that.
+- [37:26.010] I mean, you can stop liking somebody.
+- [37:27.890] Or you can say, I don't know. She's fake.
+- [37:31.620] Look, Front Row Joe, what are you doing in the second row?
+- [37:33.900] What happened to you?
+- [37:35.140] What, well, you're in the front row.
+- [37:36.470] That's good. That's Front Row Joe.
+- [37:38.900] I don't know who's been there, The Front Row Joes or you?
+- [37:41.390] It's pretty close, I think. Very different.
+- [37:44.280] Hey, very different types.
+- [37:46.460] Would you stand up, please, in the front row?
+- [37:48.220] Just stand up. Look at these women. Look.
+- [37:52.280] How incredible they are. Right?
+- [37:57.050] Front, even Front Row Joes will admit they're very great, right?
+- [38:00.680] Look how beautiful they are. They, uh-
+- [38:04.870] People like you built our country.
+- [38:07.060] You built our country.
+- [38:08.890] And that's why we love you. We, you built our country.
+- [38:11.710] The people in this room built our country.
+- [38:14.990] Um, under Sleepy Joe Biden, car prices, gasoline prices,
+- [38:20.330] hotel rates, airfare, and more went up 30 to 75 percent.
+- [38:25.240] Now they're all coming down. We're all coming down.
+- [38:28.350] Take a look at that. Isn't that beautiful to look?
+- [38:30.920] The same is true with groceries.
+- [38:32.520] The price of a Thanksgiving turkey was down by 33 percent
+- [38:37.330] compared to Sleepy Joe's high-priced era.
+- [38:41.300] Don't forget, when you have the highest inflation in history
+- [38:46.060] and/or 48 years, do we think 40, and look, in terms of a speech,
+- [38:51.820] I think 48 years is the equivalent of history.
+- [38:54.620] Do we agree?
+- [38:55.880] Can we say?
+- [38:57.680] 'Cause they had a piece on me today
+- [38:59.600] on one of these fake newspapers, which are all dying.
+- [39:01.970] They're all going bankrupt, thank God.
+- [39:04.260] But they're the worst.
+- [39:05.690] That I misrepresented by saying history.
+- [39:09.960] It's actually 48 years.
+- [39:12.490] And I said, "You know, that's not a bad misrepresentation,
+- [39:15.970] I don't think."
+- [39:17.300] The price of eggs is down 82 percent since March.
+- [39:27.420] Do you remember? There the people are.
+- [39:29.180] Do you remember fake news?
+- [39:31.110] Do you remember when I just got elected?
+- [39:33.630] It was a big thing. We won every swing state.
+- [39:36.830] We won the popular vote.
+- [39:38.640] We won by like 312 to 200 and something and like low 200.
+- [39:45.170] And we won everything.
+- [39:46.830] We won districts, the word district.
+- [39:49.480] We won districts by 2,750 to 525.
+- [39:57.650] That's a slaughter.
+- [39:59.020] And that's the thing when you see everything's red
+- [40:01.000] except for two little lines on the left and the right,
+- [40:03.160] meaning New York and California.
+- [40:05.590] Uh, that's the one that really is incredible.
+- [40:08.160] 2,750 to 525. We won everything in a slaughter.
+- [40:14.000] We won everything.
+- [40:15.370] And what a great thing it was, right?
+- [40:17.820] When you can have an election that good,
+- [40:20.340] and they tried to rig it. Remember we had the thing?
+- [40:23.650] Too big to rig. Remember that statement?
+- [40:25.560] That was a big thing. They tried like hell.
+- [40:27.990] They gave up at about 902. It was too big.
+- [40:31.170] It was just a landslide. They couldn't do it.
+- [40:33.760] They cheated a lot. But we made it too big to rig,
+- [40:37.040] and I appreciate you getting out.
+- [40:38.280] I said, "The polls had us up. Pretty way up."
+- [40:42.280] And a lot of times when that happens,
+- [40:43.880] you'll say, "Let's go out and watch a movie.
+- [40:45.570] And we'll come back and watch the president win."
+- [40:47.100] "No," I said.
+- [40:48.320] "Don't watch a movie. Go out and vote."
+- [40:50.290] But it was too big. So it came back.
+- [40:53.360] What an evening. That was, oh, what was better?
+- [40:55.870] 2016 or 2024? Tell me.
+- [41:01.940] I don't know. 2016 was pretty monumental..
+- [41:05.570] What was better?
+- [41:08.110] I don't know. Beating Hillary was fun.
+- [41:17.110] Well, Hillary has a much higher IQ than Kamala.
+- [41:20.390] I would say, I think Hillary has probably 50 or 60 points higher.
+- [41:28.020] Now, Hillary was smart. She was nasty.
+- [41:30.220] Whew. I wouldn't want to go home to her.
+- [41:36.270] She was nasty. Remember? Remember?
+- [41:40.200] She was a nasty person.
+- [41:42.730] I was going to use a, a B word.
+- [41:44.110] I said "N- -- my wife would not be happy."
+- [41:47.770] My wife always says, "Please, please don't use foul language."
+- [41:51.750] You know who else does? Franklin Graham.
+- [41:55.860] He says, "President" He says,
+- [41:58.690] "I love your speaking ability, President.
+- [42:00.630] You're a great speaker." Although nobody says it, yeah?
+- [42:02.740] You know, I get these big crowds,
+- [42:04.120] but he, did you ever see the press to a story
+- [42:06.190] that I'm a great speaker? They say, "Oh, he looked tired.
+- [42:10.240] Oh, he's this, so he's that." They, yeah, I mean, it's crazy.
+- [42:15.310] I get crowds, the biggest crowds in history of anything,
+- [42:18.200] not only of, of anything.
+- [42:20.830] They never say, "He gave a great speech tonight
+- [42:24.040] in front of 45,000 people." Look at some of the crowds
+- [42:27.080] that we get are the biggest crowds ever.
+- [42:29.660] Before the election, we're getting 80,
+- [42:32.110] we had 117,000 people show up in New Jersey.
+- [42:35.950] It was a great speech. You know what they said?
+- [42:38.670] He looked tired. I looked tired.
+- [42:41.840] You can't be tired in front of 117,000 people.
+- [42:44.870] It's not possible. You got a lot of adrenaline.
+- [42:47.230] The adrenaline is pumping, right?
+- [42:49.620] But that's why they're fake news.
+- [42:50.980] That's why nobody listens to them anymore.
+- [42:53.860] But remember that we slashed the yearly
+- [42:56.450] cost of new mortgages by $3,000.
+- [42:59.050] Look at the mortgage year. We slashed them.
+- [43:03.070] Look at that. Look at that. Oh, boy.
+- [43:07.020] Look at, look at how much you made with me
+- [43:09.120] and lost with that sleepy guy. But everything now is falling,
+- [43:14.070] and the only things that are going up are your salaries,
+- [43:18.250] the stock market, and your 401(k)s.
+- [43:21.170] They're going up.
+- [43:26.320] Do you remember when I first won in 2020- 2024?
+- [43:30.600] And I was at my first conference.
+- [43:32.080] I'm two days in.
+- [43:33.810] You know, we're recovering from all the hoopla.
+- [43:35.890] Two days in. In fact, I took a day off.
+- [43:38.780] They said, "Something's wrong with the president."
+- [43:40.830] I said, "I just got here. There's nothing wrong with me."
+- [43:44.730] Something's wrong; you took a day off.
+- [43:47.140] What's wrong with the president, right?
+- [43:49.090] Every time, do you remember
+- [43:50.350] when I had 28 news conferences in a row over 28 days?
+- [43:55.160] Sometimes I gave two or three in one day.
+- [43:57.730] And then I took my beautiful Kai, my g-
+- [43:59.900] -- beautiful granddaughter, who's a very good golfer,
+- [44:01.650] I took her to play golf one morning.
+- [44:03.900] And I was in the office very quickly.
+- [44:05.820] "Something's wrong with the president."
+- [44:08.760] Do you remember the rumor was that I had passed away?
+- [44:11.230] Do you remember that?
+- [44:13.230] I went 28 days in a row.
+- [44:15.670] I took the kid to play golf. And we play very fast.
+- [44:19.930] He's good at, I'm a very good golfer,
+- [44:22.320] and we played very fast. We play in two hours.
+- [44:25.590] We're done and, I mean, I said, "Baby, I got to get out of here.
+- [44:28.630] I'm sorry, honey. Enjoy your day.
+- [44:30.600] Go hit balls or something. I got to get out of here.
+- [44:32.970] I got to go to work."
+- [44:34.200] And I got a call, friend of mine.
+- [44:36.550] "Oh, oh, you're okay?"
+- [44:39.320] And I said, "Yeah, what's wrong?"
+- [44:42.080] I said, "I'll be back in the Oval Office in 30 minutes."
+- [44:46.050] "Oh." I said, "What's wrong with this guy?"
+- [44:48.610] Then I got another call. "Oh, you're okay."
+- [44:54.230] They said that I had passed away.
+- [44:55.800] Do you remember that?
+- [44:57.720] First day in 28 days, these people are sick.
+- [45:00.700] That's why I've taken more physicals,
+- [45:03.350] 'cause I think you have an obligation to, you know, report.
+- [45:06.750] And I hate when they put out false reports.
+- [45:08.770] So they put out a report that Donald Trump,
+- [45:11.760] so I took a lot of physicals,
+- [45:13.040] and I did something no other president's ever done.
+- [45:15.140] I took cognitive tests because I know that,
+- [45:18.580] and by the way, not easy.
+- [45:20.920] You get to those last questions,
+- [45:22.560] those last 10, 15 questions, those re- --
+- [45:26.610] that nobody on that stand could answer probably any of them.
+- [45:31.400] And I got them. I aced them.
+- [45:34.130] And no other president's taken a cog-
+- [45:36.300] -- could you imagine Sleepy Joe taking a cognitive test?
+- [45:39.500] I don't think it'd get the --
+- [45:40.830] you know, the first question is like, "What is this?"
+- [45:44.090] And they show a lion, a giraffe,
+- [45:46.240] a fish and a hippopotamus, right?
+- [45:51.480] And they say, "Which is the giraffe?"
+- [45:55.170] So that's the only question.
+- [45:56.920] But what happens is it then gets harder.
+- [45:59.490] I don't think Joe would've gotten
+- [46:00.940] the first question, right?
+- [46:04.780] He would say hippo. He would -- "I want the hippo."
+- [46:09.130] But anyway, but I've taken now three cognitive tests.
+- [46:12.840] I've got, I've aced every single one of them
+- [46:20.780] and these are at, you know, this is a, that big stuff.
+- [46:23.180] This is Walter Reed, you know,
+- [46:24.530] they've got a whole team of doctors all over the place.
+- [46:26.920] If you get them wrong, I said,
+- [46:28.610] "What do you think? Should I do it?"
+- [46:30.140] They said, "Well, here's the good news.
+- [46:31.580] The good news if you do well, that's great."
+- [46:34.050] Actually, if you do well, they won't report it.
+- [46:35.750] If you do badly, it's going to be the biggest story in history.
+- [46:38.480] They said, "You know, it's possible
+- [46:39.890] that if you do badly,
+- [46:41.140] the word will leak out and you look very bad."
+- [46:43.910] I said, this was on my first test.
+- [46:46.060] After that, I knew that I can do very well.
+- [46:49.390] Smart person. So what happens?
+- [46:51.760] What happens is first test, I said, "How hard is it?"
+- [46:55.040] He said, "Well, after the 10th or 12th question,
+- [46:57.720] it gets, you know, very hard."
+- [46:59.840] And I said, "Well, what do you think? "
+- [47:01.370] They said, "Look, if you're going to do well,
+- [47:02.890] but if you're not going to do well,
+- [47:04.360] it's p- -- it's probable that the word will get out."
+- [47:07.750] I said, "Well, let's do it anyway."
+- [47:09.630] And I did it, and it was actually good.
+- [47:11.110] For a year, they called me a very intelligent person,
+- [47:13.430] but then they forget.
+- [47:14.740] Then I did it again. I did a- -- ace it again. They report it.
+- [47:18.240] And these are doctors that I don't even know,
+- [47:20.650] and they report it.
+- [47:22.280] And then I did it a third time a few months ago
+- [47:24.460] and they report it. But it's very small reporting.
+- [47:28.280] But can you imagine if I, if I did badly, right?
+- [47:30.620] Could you imagine that?
+- [47:31.860] Front row Joe, would I be in trouble?
+- [47:34.210] They'd say, "There's something wrong."
+- [47:36.400] But I like to do it, but I gave a perfect,
+- [47:40.200] I got a, I had a perfect health,
+- [47:42.690] and they reported, "His health is perfect."
+- [47:45.980] And they interpret that, and the fake news interprets,
+- [47:53.550] when the doctor says, "He's got perfect health,"
+- [47:56.090] they go, "What does he mean by perfect?
+- [47:59.090] There's something wrong with the press."
+- [48:01.000] These people are sick.
+- [48:03.010] Now, there will be a time when perhaps I won't be 100 percent.
+- [48:09.440] True with all of us, right?
+- [48:11.090] And when that time comes, I will let you know about it.
+- [48:13.850] In fact, you'll probably find out about it just by watching.
+- [48:17.100] But that time is not now,
+- [48:18.650] because I feel the same that I felt for 50 years.
+- [48:21.720] I really do.
+- [48:31.590] But we have an you know, we, I think we have
+- [48:33.730] an obligation to, you know, be, at least report your health.
+- [48:37.640] But I, I will tell you the, to me,
+- [48:40.290] because of what happened for four years,
+- [48:41.970] I really think having a cognitive test,
+- [48:44.570] for presidents to take a cognitive test
+- [48:47.830] is very important. I think it's very important.
+- [48:50.510] I'm hearing that they say it's, you know, not, with, with Biden,
+- [48:55.340] they said it was not constitutional,
+- [48:57.120] and that was the least of his problems.
+- [49:00.080] But I think it's very important that a president or people
+- [49:04.450] running for president and vice president take a cognitive test.
+- [49:07.610] I mean, I think it's a very important thing.
+- [49:09.400] I don't know. They say, "You shouldn't do that.
+- [49:12.540] It's unjust. It's not constitutional."
+- [49:14.620] They say all these things, but I do, I be- --
+- [49:16.340] I really believe that under Trump,
+- [49:18.410] wages are rising much faster than inflation
+- [49:21.210] for the first time in many years. Think of that.
+- [49:23.350] Wages are rising faster than inflation.
+- [49:27.580] That's what it's all about, right?
+- [49:30.850] And we're delivering lower prices and bigger paychecks.
+- [49:34.650] And the wage chart that you see up there is incredible there
+- [49:37.500] that, you know, NBC didn't put up
+- [49:39.470] and the networks didn't put up.
+- [49:41.530] There are more people working today
+- [49:43.790] than at any time in American history.
+- [49:47.560] And very importantly,
+- [49:51.440] while tens of thousands of new jobs under Biden
+- [49:54.920] were government jobs, they were government jobs.
+- [49:57.260] I could do that right now.
+- [49:59.220] You saw today we had 4.5 percent inflation.
+- [50:01.650] That's because I'm letting go of tremendous numbers
+- [50:05.540] of government workers. We're replacing them.
+- [50:10.300] In fact, we've reduced the federal workforce
+- [50:13.250] by 270,000 jobs.
+- [50:15.610] That's not to be mean. That's to get them off.
+- [50:18.510] And they are getting jobs in the private sector,
+- [50:22.110] and we're helping them to get jobs.
+- [50:24.580] But if you have all government jobs, we're going to be,
+- [50:26.880] you know, a country that, we don't want to mention names
+- [50:30.270] because we don't want to insult,
+- [50:31.610] but we're going to be a country that cannot be great.
+- [50:35.510] 100 percent, just came out, 100 percent of all jobs created
+- [50:39.200] since I took office have been in the private sector,
+- [50:42.680] the only way to make our country great.
+- [50:47.420] Think of that. One, think of that.
+- [50:51.660] 100 percent of the jobs created are in the private sector.
+- [50:57.290] Now, if I want to make some good numbers,
+- [51:01.530] I'll add 300,000 jobs. I can do it with one phone call.
+- [51:06.250] Hire each agency, hire 25,000 people today.
+- [51:10.130] They hire them immediately.
+- [51:11.440] They fl- -- they pour in, and the 4.5 percent
+- [51:15.020] would be down to 2.5 percent in a matter of moments.
+- [51:18.710] I could get it down to zero.
+- [51:20.060] Hire a couple of million workers.
+- [51:22.120] Oh, the country's booming, we're down at zero.
+- [51:24.290] But that's the destruction of a country.
+- [51:27.620] That's what Biden used to do.
+- [51:29.040] They used to hire 10 people for one job.
+- [51:32.130] They'd have 10 people, like would look at a job
+- [51:35.240] and would say one person can do the job,
+- [51:37.360] but let's give it a break.
+- [51:38.610] Let's do two instead of,
+- [51:40.200] and they'd have like nine people for one job.
+- [51:43.610] And that's really tantamount to a failed country.
+- [51:46.230] In four years, the last administration secured less
+- [51:49.230] than one trillion dollars in new investments in our country.
+- [51:52.940] Think of that. Four years, less than one.
+- [51:56.020] Four years, four years,
+- [51:58.030] the whole term, less than one trillion.
+- [52:01.210] In 10 months, I have secured a record-breaking
+- [52:04.570] $18 trillion, more.
+- [52:10.760] They gave us doom and gloom,
+- [52:12.720] and I'm building the Trump economic boom.
+- [52:15.920] It's a boom. It's a boom.
+- [52:17.450] You know, these factories, auto plants,
+- [52:19.460] AI plants, we've never had anything like it.
+- [52:22.850] I ended the radical left's war on American energy,
+- [52:26.160] terminated the green new scam,
+- [52:28.430] and signed an order to drill, baby drill.
+- [52:31.920] We're drilling. You see where gasoline's coming back.
+- [52:37.390] Gasoline is now substantially lower than $2.50 a gallon,
+- [52:42.820] and many, many places now are under $2 a gallon for gasoline.
+- [52:52.280] And within the next 12 months, we will have opened
+- [52:54.880] 1,600 new electrical generating plants.
+- [52:59.460] One, that's a record all time.
+- [53:02.820] Because, you know we need tremendous amounts
+- [53:06.120] of electricity for AI and for all these plants.
+- [53:09.420] Electricity prices will fall very dramatically
+- [53:12.200] when these plants are open.
+- [53:13.970] To protect North Carolina workers,
+- [53:15.780] we impose 25 percent tariffs on foreign automobiles,
+- [53:18.990] 50 percent tariffs on foreign steel,
+- [53:21.240] and I approved 25, 30 percent, and 50 percent tariffs to save
+- [53:26.420] North Carolina's cherished furniture industry,
+- [53:30.030] which has been decimated by China.
+- [53:36.290] You know, I used to come here a lot for one reason.
+- [53:40.530] I'd build hotels, and I'd build different buildings,
+- [53:43.070] and I'd come here to your furniture area.
+- [53:45.620] I used to love it. Those people were so talented.
+- [53:49.190] I'd buy so much furniture, and that was before politics.
+- [53:53.110] I did great. I did, I was very good at real estate,
+- [53:55.820] I would tell you.
+- [53:57.080] But I used to come to North Carolina
+- [53:58.900] to buy furniture for lobbies or furniture for hotels,
+- [54:01.810] and I was here a lot.
+- [54:04.170] I mean, you, you've been decimated,
+- [54:05.670] but it's coming back now
+- [54:07.260] because I put tariffs on, big, big tariffs, actually.
+- [54:10.890] But I remember, I'd say to a guy,
+- [54:12.580] "I like that chair."
+- [54:14.120] You know, Rohit, what I did. I would look at a chair.
+- [54:16.920] The arm of a chair was very important to me.
+- [54:18.860] I said, "I like that chair,
+- [54:20.100] but this arm has to be a different shape.
+- [54:22.290] And you got to chisel that's"
+- [54:24.180] I'm a very aesthetic person, believe me.
+- [54:27.310] Except with women. I don't care what a woman looks like.
+- [54:30.110] I used to say beautiful, now I don't care.
+- [54:32.100] Since politics, I never mentioned looks anymore.
+- [54:35.530] The most beautiful woman can walk right across.
+- [54:37.580] I don't even look at her anymore.
+- [54:40.450] Because in politics, that's the sign of death.
+- [54:43.390] We don't look.
+- [54:44.660] But, but I do look at the arm of a chair.
+- [54:48.750] And I say, I'd say to your artists, they were artists.
+- [54:53.600] They were artisans, you know?
+- [54:55.840] I'd say, "No, no, can you give a different curve?
+- [54:57.950] Can you do a little more carving at the end about"
+- [55:00.930] They would right in front of me, bing, bing,
+- [55:02.570] bing, bing, bing, bing.
+- [55:03.820] They were like geniuses. You lost the business.
+- [55:06.990] It went to China and other places,
+- [55:08.700] but mostly to China because they never put tariffs on.
+- [55:12.950] Just like they didn't put them on chips,
+- [55:15.120] just like they didn't put them on cars.
+- [55:16.990] You lost 58 percent of your car industry.
+- [55:19.380] By the way, it's all coming back.
+- [55:21.650] Some of it's coming back here. It's all coming back.
+- [55:26.690] Because to bring a car into our country is costing
+- [55:29.010] 25 to 50 percent tariffs now and they can't do it.
+- [55:32.820] They can't compete. Tariff is, and I won't say it
+- [55:37.960] because it gets me in trouble, my favorite word.
+- [55:40.900] No, I won't. My fifth favorite word.
+- [55:42.710] Remember when I said,
+- [55:44.460] "The word tariff is my favorite word in the dictionary."
+- [55:48.830] Remember that? And then the fake news got me.
+- [55:52.440] "What about religion? What about God?
+- [55:54.130] What about your family?
+- [55:55.710] What about your wife? What about your children?"
+- [56:00.750] I said, "Uh, they got me in this one."
+- [56:03.130] So now tariff is my fifth favorite word.
+- [56:08.270] And now I'm okay. It's my fifth, five.
+- [56:12.290] Now I'm okay.
+- [56:15.310] But starting in the new year, the people of North Carolina
+- [56:18.000] will also see the dramatic results
+- [56:20.100] of the largest tax cuts in American history,
+- [56:22.400] including no tax on tips, no tax on overtime,
+- [56:26.780] and no tax on social security for our great seniors.
+- [56:33.340] No tax for our seniors.
+- [56:36.700] Tell me what?
+- [56:37.960] Uh, let's do a poll, because you know,
+- [56:39.650] these polls just charge you a million dollars
+- [56:41.290] to ask a question, then they don't even,
+- [56:43.070] they just write down an answer. They don't do polls.
+- [56:45.700] It's a total con-job, some of these polls.
+- [56:48.790] One thing I don't like about Fox is they're pollster.
+- [56:51.250] Total fake. Their pollsters are the worst.
+- [56:53.210] They've been saying they're going to get rid of them
+- [56:54.950] for 10 years. The fake pollster.
+- [56:57.370] Then you have the election, you win by numbers
+- [56:59.290] that are like through the roof.
+- [57:01.840] But the Fox, but Fox has been treating me good.
+- [57:03.950] They have great people there. Sean Hannity is great.
+- [57:08.110] Jesse is great. Laura is great. Greg is great.
+- [57:12.920] They're all great. We have great people.
+- [57:15.510] (inaudible)
+- [57:16.930] The Morning is excellent. Who, what?
+- [57:21.680] What, which corruption where?
+- [57:25.150] Oh, yeah. Well, we have to, we have to do that.
+- [57:27.270] We're going to take care of that.
+- [57:28.680] We're going to take care of corruption in our country.
+- [57:30.930] I mean, I was talking about Fox.
+- [57:32.230] I don't know, he's talking about corruption.
+- [57:34.640] No, it's okay because he's on our side,
+- [57:36.680] but he's just a little ahead of me.
+- [57:39.130] He's talking about corruption.
+- [57:40.330] I'm talking about Fox, how good the anchors are.
+- [57:42.400] Right. But they are really great.
+- [57:44.820] They are very good.
+- [57:46.060] But the pulse is no good, you know?
+- [57:48.100] It's no good. The pulse is terrible.
+- [57:49.910] But we still get good numbers,
+- [57:51.300] but the numbers are actually much better than that.
+- [57:54.690] But we're joined tonight by Heather Woodland,
+- [57:58.340] a bartender and server in Nashville,
+- [58:00.430] North Carolina, who will save over $5,000 from no tips.
+- [58:06.250] Think of that. From no tax on tips.
+- [58:09.910] Heather, where are you, Heather?
+- [58:11.740] Are you here, Heather? Where are you? Where are you?
+- [58:17.990] You want to come up? You want to come up?
+- [58:21.080] Come on up. She's going to save over $5,000,
+- [58:25.300] no tax on tips toward a down payment on her first home.
+- [58:29.450] So Heather, congratulations. Look how amazing she is, right?
+- [58:32.540] Come on up.
+- [58:33.830] I don't know how you're going to get up that stair.
+- [58:35.480] Are you okay? Look at her. She has no problem.
+- [58:38.700] Somebody else would not be able to make it.
+- [58:40.710] Thank you, darling. Pleased to see you.
+- [58:42.680] Want to say something? Go ahead.
+- [58:46.980] Heather Woodland: Well it, it's been a tremendous help.
+- [58:49.510] It's now allowed me to invest in my first home.
+- [58:52.820] Um, and that is the American dream for all of us.
+- [58:56.000] Um, I don't have much to say, sir.
+- [58:57.810] Donald Trump: That's so good.
+- [58:59.050] Heather Woodland: Thank you so much.
+- [59:00.290] Donald Trump: You said it perfectly.
+- [59:01.540] Thank you, darling. Thank you.
+- [59:11.110] Heather, you don't realize you said that so perfectly
+- [59:15.900] because that's what it is. You're going to get a home
+- [59:17.890] and you're going to be happy as can be,
+- [59:20.280] and you are a great person. Thank you very much.
+- [59:22.490] You couldn't have been better. Thank you, darling.
+- [59:26.790] Also with us, is Austin Harding, a police officer,
+- [59:31.540] highly respected, a loving father from Monroe.
+- [59:35.700] Austin and his wife are raising a son with autism.
+- [59:39.550] A beautiful son, beautiful, beautiful person,
+- [59:43.150] and are passionate supporters of MAHA,
+- [59:45.640] and they love Robert F. Kennedy Jr.,
+- [59:48.160] So do I. And with no thank you, Austin.
+- [59:54.730] And with no tax on overtime,
+- [59:56.440] Austin will have thousands of dollars,
+- [59:58.320] many thousands of dollars more to help care
+- [01:00:00.650] for his wonderful son.
+- [01:00:03.500] Last but not least, we have Carolyn and Charles Thurston,
+- [01:00:07.750] who run a successful small business
+- [01:00:09.540] providing care to senior citizens.
+- [01:00:11.530] That's great. Not only do we make
+- [01:00:13.790] their small business tax deduction permanent,
+- [01:00:16.550] helping them to expand, but under no tax on overtime,
+- [01:00:20.940] their employees will have much higher take home pay,
+- [01:00:23.680] and that makes their job a lot easier.
+- [01:00:26.290] So, Carolyn and Charles,
+- [01:00:28.120] please stand wherever you may be.
+- [01:00:30.610] Oh, that's great. Thank you. So it's going good? Going good.
+- [01:00:37.740] Good looking couple. Thank you very much.
+- [01:00:41.530] Another key part of our tax cuts is known as Trump accounts.
+- [01:00:44.560] You hear about that?
+- [01:00:45.830] You put money in and they are knocking them dead.
+- [01:00:48.770] It's great.
+- [01:00:50.210] It's Michael Dell. Dell computer put up six billion, 250 million.
+- [01:00:55.440] How do you like that? He started with no money,
+- [01:00:57.860] and now he puts six billion plus into the first accounts.
+- [01:01:03.110] I mean, think of that. Six billion.
+- [01:01:05.350] It's, to be exact, six billion, 250 million.
+- [01:01:09.200] Even the second part is a lot.
+- [01:01:11.420] And we've had a lot of great Wall Street Titans
+- [01:01:13.520] and a lot of great real estate Titans.
+- [01:01:15.380] They're all putting money in Trump accounts.
+- [01:01:17.140] It's for kids.
+- [01:01:18.590] They get a certain age and they're going to have money.
+- [01:01:20.620] It's going to double and triple, hopefully.
+- [01:01:23.060] It'll do well.
+- [01:01:26.780] Under this new program, the federal government
+- [01:01:29.100] will be creating an investment savings account
+- [01:01:31.590] for every single newborn American child with $1,000
+- [01:01:35.360] to be invested and grow over the course of their life.
+- [01:01:38.400] So they'll reach 21 years and, you know, it could be very good.
+- [01:01:43.160] They will consider themselves rich.
+- [01:01:44.720] I mean, it's a lot of money, actually.
+- [01:01:47.340] Friends, family, employers, and loved ones
+- [01:01:49.880] will be able to add thousands more each year,
+- [01:01:53.220] like a trust fund for every American child.
+- [01:01:55.660] It's something that people have wanted to do,
+- [01:01:57.330] but honestly, I give Mr. And Mrs. Michael Dell.
+- [01:02:02.880] Dell can be, go out and buy a computer from Dell
+- [01:02:05.570] because I'll tell you what,
+- [01:02:06.880] they really, they love the country.
+- [01:02:09.700] Great people. Every single Democrat in Congress
+- [01:02:12.170] voted against these incredible benefits.
+- [01:02:14.240] Every single Democrat said, "No,"
+- [01:02:17.750] including a guy named Don Davis right here from this district.
+- [01:02:21.170] He voted against it.
+- [01:02:24.400] That's why you got to vote against him.
+- [01:02:27.350] Don Davis voted against no tax on overtime.
+- [01:02:30.690] He voted against no tax on tips,
+- [01:02:33.270] and he voted for the largest tax increase in American history.
+- [01:02:36.950] He wanted the largest tax, and he's your congressman.
+- [01:02:40.300] So I don't know if you know him.
+- [01:02:43.050] And honestly, I'm good at politics.
+- [01:02:44.940] I never even heard of this guy, so he hasn't made a big impact.
+- [01:02:49.450] But he voted yes on every single Biden disaster,
+- [01:02:52.330] including massive inflation, open borders, sanctuary cities,
+- [01:02:55.700] and the green new scam.
+- [01:02:57.780] Don Davis betrayed North Carolina.
+- [01:03:01.180] Don Davis did nothing about the flood.
+- [01:03:04.420] He did nothing about the hurricane.
+- [01:03:06.580] I did it all with your, your congressmen
+- [01:03:10.450] and with a couple of Republicans from your state
+- [01:03:13.660] that put their lives on the line to make sure this got done.
+- [01:03:17.260] And we had to wait till January 20th.
+- [01:03:19.330] They wouldn't do a damn thing.
+- [01:03:20.820] People was, the waters didn't recede.
+- [01:03:24.560] They were living in areas that didn't have water
+- [01:03:26.560] and now they were surrounded by water.
+- [01:03:28.830] And by the way, Elon Musk with his incredible
+- [01:03:34.220] you would call it contraption of communication, incredible.
+- [01:03:39.070] I said, "Elon, we need 500 of those."
+- [01:03:43.350] You couldn't get them because it's been very successful.
+- [01:03:46.360] He said, "You'll have them tomorrow."
+- [01:03:48.050] Got to give him credit for that, you know?
+- [01:03:49.780] I have my little disagreements with him.
+- [01:03:55.350] I don't believe in the mandate
+- [01:03:56.760] where everybody has to have an electric vehicle within an hour.
+- [01:04:01.800] You know, I don't but you got to give him credit.
+- [01:04:05.220] He really saved a lot of lives.
+- [01:04:07.500] Here tonight are some of the warriors
+- [01:04:09.370] who, unlike Don Davis,
+- [01:04:10.760] who's a disaster vote against him,
+- [01:04:12.370] stood up for North Carolina,
+- [01:04:14.660] including Congressman Tim Moore and Brad Knott.
+- [01:04:18.630] Where are you guys? Hey, fellas, come up real fast.
+- [01:04:23.760] Come, come on up. Come on up.
+- [01:04:30.120] I'll tell you, these guys were, look at them.
+- [01:04:33.090] Two handsome gentlemen, extremely different types.
+- [01:04:38.660] That's great. Say hello. Say a couple of words.
+- [01:04:42.400] Brad Knott: Thank you, President. Appreciate it.
+- [01:04:49.220] Well, everybody, I was with the president
+- [01:04:51.600] when he had his first trip once he took the oath.
+- [01:04:56.350] And where did he come? North Carolina.
+- [01:05:03.380] As we gear up for the midterm cycle,
+- [01:05:06.630] where's the first state that President Trump has come?
+- [01:05:10.660] North Carolina. He knows what you know.
+- [01:05:18.250] It's the people that make this country great.
+- [01:05:22.660] It's not the government. It's not regulations.
+- [01:05:25.510] It's people just like you.
+- [01:05:29.260] And let me just tell you this. The fight is long. It's hard.
+- [01:05:34.530] I'm new to this, and I have been amazed
+- [01:05:37.340] at how hard the president is fighting for you.
+- [01:05:45.330] So let me just, let me say this simply
+- [01:05:49.190] and with my whole heart, stay with us.
+- [01:05:52.100] We hear you, and we're going to keep fighting for you.
+- [01:05:55.150] Thank you so much.
+- [01:06:00.940] Tim Moore: I guess I'll have to lower the mic, Mr. President.
+- [01:06:03.650] Uh, let me just say, echo what Brad said.
+- [01:06:06.470] I cannot think of a better president
+- [01:06:08.970] in the history of the United States.
+- [01:06:11.120] Someone who loves this country, who does so much.
+- [01:06:16.810] Mr. President, I don't know how you do it all.
+- [01:06:19.380] You, you, you make the Energizer Bunny look slow.
+- [01:06:22.760] It's absolutely incredible.
+- [01:06:24.720] The leadership that this man shows,
+- [01:06:27.690] not only in our country, but on the world stage.
+- [01:06:30.960] We are finally respected around the world again,
+- [01:06:34.730] and that is not an accident.
+- [01:06:36.810] Mr. President, North Carolina loves you.
+- [01:06:39.300] The United States loves you. Thank you for what you're doing.
+- [01:06:42.440] Donald Trump: Great job.
+- [01:06:45.890] (Audience chants "USA")
+- [01:06:59.570] Donald Trump: That's a great job.
+- [01:07:01.010] Boy, oh boy.
+- [01:07:02.440] Well, they, look, they're going to win good,
+- [01:07:03.840] but you got to beat that other guy.
+- [01:07:06.100] Thanks also. I want to thank somebody very special.
+- [01:07:09.220] She's the Secretary of Labor, Lori Chavez-DeRemer.
+- [01:07:14.090] Where's Lori?
+- [01:07:15.450] Lori, thank you. What a job. What a job you've done.
+- [01:07:19.820] Our friend did me a big favor when he recommended you.
+- [01:07:23.120] I was recommended by a great guy, a great friend of mine,
+- [01:07:26.550] and a big fan of Lori,
+- [01:07:28.800] and he said "I have somebody that would be great."
+- [01:07:32.120] And that was an understatement. You've been unbelievable.
+- [01:07:34.590] Thank you very much, Lori. Appreciate it.
+- [01:07:38.580] And another one has been incredible.
+- [01:07:41.070] Got a lot of energy.
+- [01:07:42.680] Director of Federal Housing Finance Agency,
+- [01:07:45.530] he's done a phenomenal job.
+- [01:07:47.620] Mr. Bill Pulte. Bill, thank you very much.
+- [01:07:52.260] Thank you, Bill. Also, State Senator Phil Berger.
+- [01:07:59.180] Phil, thank you. Great.
+- [01:08:03.140] And we have a lot of political people here.
+- [01:08:05.050] I would like to introduce them all.
+- [01:08:06.400] We'll be here, but one, one we have to,
+- [01:08:08.690] we have to introduce fellas is Michael Whatley.
+- [01:08:13.490] And he was the head of the Republican Party.
+- [01:08:19.890] Before that, he was the head of your party right here,
+- [01:08:22.440] the Republican Party, and we won,
+- [01:08:25.710] we won six in a row, three primers in landslides,
+- [01:08:28.930] and then we went on to win the election all three times.
+- [01:08:32.370] So we won six in a row. I've never had a loss with him.
+- [01:08:35.110] And when I won the, I mean, look, we did phenomenal.
+- [01:08:39.770] It turned out, you know, we won three times in a row,
+- [01:08:41.800] just so you understand. I don't mean here.
+- [01:08:43.330] I mean, all over. We won three in a row.
+- [01:08:46.500] They might have done us a favor, but we won three in a row.
+- [01:08:50.550] But when we got screwed in the second election,
+- [01:08:54.800] it didn't happen over here. He had 601 lawyers he hired.
+- [01:08:58.480] They had lawyers at every single ballot box
+- [01:09:01.890] and other people were cheating in other states
+- [01:09:04.150] that we won by a lot and they were cheating.
+- [01:09:06.220] You could see it go, "Here we are. Wa, wa."
+- [01:09:10.040] And d- -- you remember they have ballots all of a sudden,
+- [01:09:12.420] "We just found 75,000 ballots." A total rigged deal.
+- [01:09:17.100] And by the way, you have not heard the last of that,
+- [01:09:19.320] I can tell you.
+- [01:09:23.180] But in this state, that didn't happen
+- [01:09:25.710] because you had a guy named Michael Whatley,
+- [01:09:28.410] and he, he had every box secured.
+- [01:09:32.250] He had, I think, two or three lawyers at every station,
+- [01:09:35.500] but he had over 600 lawyers, I think 600.
+- [01:09:37.720] And I said, "How many lawyers did you have? 601."
+- [01:09:39.900] I said, "That's, like, genius." He was ahead of it.
+- [01:09:43.060] And you'd watch, you know, people went to bed that night.
+- [01:09:46.290] Everyone said the election's over. Trump won.
+- [01:09:49.120] And then all of a sudden they woke up in the morning
+- [01:09:50.980] and 3:00 in the morning,
+- [01:09:53.030] they found hundreds of thousands of votes
+- [01:09:55.190] in some of these states.
+- [01:09:56.450] It was a rigged election, but not here because of him.
+- [01:10:00.220] And I said, "I don't know if I'm doing this again,
+- [01:10:02.800] but if I'm doing this again, I want Mi- -- Michael Whatley."
+- [01:10:05.770] I said, "The guy from North Carolina,
+- [01:10:07.950] I want him to head the Republican National Committee,
+- [01:10:12.340] the RNC."
+- [01:10:14.340] And he did it, he did it beautifully.
+- [01:10:16.460] Come on up, Michael. Come up. He did it so well,
+- [01:10:20.770] and we had the big election when he worked with Lara.
+- [01:10:25.320] Now, how good is Lara? Lara Trump, who was born here,
+- [01:10:31.480] loves the state so much, she could have done very well.
+- [01:10:34.810] By the way, I think Ted Budd is doing a very good job, too,
+- [01:10:37.680] I have to tell you.
+- [01:10:42.080] And I will say this, Thom Tillis fought with me
+- [01:10:46.660] for the Lumbee Tribe, the Lumbee.
+- [01:10:48.950] I love the Lumbee.
+- [01:10:51.120] And he was, he's really been, he's really been very good.
+- [01:10:55.420] You know, we had a little dispute,
+- [01:10:56.630] but these are, you know, it's fine.
+- [01:10:58.160] He was, he's been really good.
+- [01:10:59.850] Thom has been very, very good, and I appreciate it very much.
+- [01:11:03.040] And he's been very strong on the Lumbee Tribe,
+- [01:11:04.820] and I think they're going to get out
+- [01:11:06.060] and they're going to vote.
+- [01:11:07.300] The Lumbees, you have some here.
+- [01:11:09.030] You have some of the leaders here.
+- [01:11:10.990] If you could, do you want to stand up if you're there?
+- [01:11:13.310] It's really great. Thank you very much.
+- [01:11:15.530] We appreciate it. Let them know we appreciate it.
+- [01:11:19.190] We got to get every one of those 60,000 votes or whatever.
+- [01:11:22.560] We got to get them for this guy. But the Lumbees have been great.
+- [01:11:25.660] I've been with them from the beginning.
+- [01:11:26.960] We got them, we got them across the finish line.
+- [01:11:30.640] But I want to ask Michael to say a few words.
+- [01:11:32.540] He's just been an unbelievable warrior.
+- [01:11:36.700] And I said, "If I do this again,
+- [01:11:38.980] I'm going to get that guy in North Carolina
+- [01:11:42.390] who wouldn't let that phony " You know, they tried here, too.
+- [01:11:45.300] They couldn't get away with it.
+- [01:11:46.720] They tried. He stopped it. He's a tough, strong guy.
+- [01:11:50.910] He's also a wonderful human being,
+- [01:11:52.810] a great, he's just a great person.
+- [01:11:55.430] And I want to tell you, him and Lara Trump were,
+- [01:11:58.210] there's never been a better team.
+- [01:11:59.630] In fact, I said, "If you
+- [01:12:01.490] " before he did this, I said, "If you had your choice
+- [01:12:04.650] for anybody to be your coach here, who would you pick?"
+- [01:12:07.600] He said, "I'd take Lara Trump again," right?
+- [01:12:09.470] Michael Whatley: Yes, sir.
+- [01:12:10.730] Donald Trump: You did say that.
+- [01:12:11.950] But I'd like to have Michael say he's in a fight
+- [01:12:14.710] against a radical left governor who did a shitty job for you.
+- [01:12:20.250] And I, I really want you, either way,
+- [01:12:23.500] but either governor, either governor,
+- [01:12:25.900] because you have another governor that's a Democrat.
+- [01:12:28.950] You know, every, virtually,
+- [01:12:30.390] I think every, every state run by a Democrat is a failure.
+- [01:12:34.930] Think of it.
+- [01:12:36.160] And now your state, with all these killings,
+- [01:12:37.970] I never heard of killings, but all of a sudden,
+- [01:12:40.720] and they came in through Biden with his open border craziness,
+- [01:12:44.820] and these are vicious people.
+- [01:12:46.870] But I want this man to say just a few words,
+- [01:12:49.350] because it's so important that he wins.
+- [01:12:51.730] You don't want to have a radical left senator
+- [01:12:55.090] that basically wants to have open borders,
+- [01:12:58.120] transgender for everybody, men playing in women's sports.
+- [01:13:02.800] Michael, are you in favor of men in women's sports?
+- [01:13:04.720] I- Michael Whatley: I am not.
+- [01:13:05.930] Donald Trump: Are you in favor of transgender for everybody?
+- [01:13:07.920] Michael Whatley: I am not.
+- [01:13:09.140] Donald Trump: Are you in favor of open borders?
+- [01:13:11.230] Michael Whatley: No.
+- [01:13:16.100] Donald Trump: Thank you.
+- [01:13:18.120] Michael Whatley: You know, in 2015, Donald Trump
+- [01:13:20.260] came down that golden escalator,
+- [01:13:21.990] said he was going to make America great again.
+- [01:13:26.150] And he was going to do it by rebuilding our economy,
+- [01:13:30.000] restoring our borders,
+- [01:13:31.610] and making America respected around the world again.
+- [01:13:35.950] And I said, "I'm with that guy."
+- [01:13:38.880] And we won in 2016, and we won in 2020,
+- [01:13:43.170] and thank the Lord that we won in 2024.
+- [01:13:47.310] And Donald Trump right now is serving
+- [01:13:51.300] as the most transformational president in our lifetime.
+- [01:13:58.230] And, President Trump, my pledge to you is this,
+- [01:14:02.000] when I win this seat,
+- [01:14:03.640] when I am the next senator from North Carolina,
+- [01:14:06.100] I am going to be a fighter every day for this great state.
+- [01:14:10.020] I am going to be a conservative champion for North Carolina,
+- [01:14:13.720] and I am going to be an ally to our great president.
+- [01:14:17.850] Not just the 45th president, but the 47th president as well,
+- [01:14:22.530] Donald J. Trump.
+- [01:14:31.510] Donald Trump: Thank you.
+- [01:14:36.990] What a, what a great guy he is, so get out and work for him.
+- [01:14:40.750] I, I hope you can get your group
+- [01:14:42.660] of about 70 women to go out and do it.
+- [01:14:45.600] We can get all the front rows and we got to win.
+- [01:14:48.320] He's just, he's a good man.
+- [01:14:50.660] And he represents your values, that I can tell you.
+- [01:14:52.960] But I also want to express my condolences
+- [01:14:55.340] to the people of this state
+- [01:14:57.470] and to the loved ones of NASCAR legend Greg Biffle
+- [01:15:02.550] who perished yesterday in a tragic plane crash
+- [01:15:04.990] with his family in Statesville.
+- [01:15:07.850] I met him twice. He was just a great young man.
+- [01:15:11.830] And what a tragedy that is with his whole family.
+- [01:15:15.680] So I just want to pay our condolences,
+- [01:15:17.670] our love, please, please.
+- [01:15:23.670] I'll tell you, North Carolina will never forget them.
+- [01:15:25.860] He, he was and his family were incredible people.
+- [01:15:29.650] Together we've achieved more in less than one year
+- [01:15:32.030] than most other administrations
+- [01:15:34.200] achieved in eight years, which is true.
+- [01:15:36.760] Most of them didn't achieve much.
+- [01:15:38.600] Within a matter of weeks,
+- [01:15:39.880] we ended the invasion of our southern border.
+- [01:15:42.400] For the past seven months,
+- [01:15:43.700] zero illegal aliens have been allowed into our country.
+- [01:15:46.280] Think of that, zero. And that's made up by Democrats,
+- [01:15:50.380] a feat which everyone said was impossible.
+- [01:15:53.050] Biden and the radical left Democrats in Congress
+- [01:15:56.280] turned North Carolina into a dumping ground
+- [01:15:58.740] for tens of thousands of third world
+- [01:16:01.050] migrants driving up your rent and your housing costs.
+- [01:16:04.650] According to a government report,
+- [01:16:06.240] over 60 percent of growth in the rental market
+- [01:16:08.920] came from foreign migrants paid for
+- [01:16:11.410] by the federal government, by the way.
+- [01:16:13.920] Paid for by the federal government, you, the taxpayer.
+- [01:16:17.230] Mass migration fueled mass inflation,
+- [01:16:20.390] but now we are fixing it
+- [01:16:22.150] and we have record setting deportations
+- [01:16:25.300] and we're really focused on the bad people.
+- [01:16:27.910] We're really focused on the bad people.
+- [01:16:29.710] We have farmers who have, who are great people.
+- [01:16:33.270] They know what they're doing,
+- [01:16:34.760] but we're focused on the bad ones.
+- [01:16:36.240] We're getting the really, we're getting the murderers,
+- [01:16:38.070] the drug dealers, we're getting the ones from prisons,
+- [01:16:40.370] we're getting them the hell out of here.
+- [01:16:41.980] We're focused very strongly at that.
+- [01:16:45.060] For the first time in 50 years,
+- [01:16:46.890] we're seeing reverse migration as migrants go back home.
+- [01:16:50.060] We're saying, "Go back home, please."
+- [01:16:52.440] And we want the bad ones to go back home
+- [01:16:54.690] because those are the ones that caused the problem.
+- [01:16:57.410] And think of Washington DC, so I mean,
+- [01:16:59.680] outside of the terrorism attack from three weeks ago.
+- [01:17:03.510] And by the way, that young, beautiful man is doing well.
+- [01:17:06.870] You know, they, they, we thought we lost both of them.
+- [01:17:10.620] And we lost one who's looking down on us right now.
+- [01:17:15.300] But looks like he just stood up. Can you believe it?
+- [01:17:20.060] He stood up today for the first time.
+- [01:17:24.040] Two great people.
+- [01:17:27.100] Sarah's looking down on us and from heaven,
+- [01:17:30.000] she was incredible, doing so well.
+- [01:17:32.840] But he's doing they were both about the same.
+- [01:17:35.390] We thought we lost both of them.
+- [01:17:37.810] Hit in the same area, if you can believe it, he was hit hard.
+- [01:17:41.500] But he's and his mother, Monica, I spoke to her the night of,
+- [01:17:45.150] "Sir, he'll be okay."
+- [01:17:46.800] Every doctor was saying, "He doesn't have much of a chance."
+- [01:17:50.080] And she said, "Sir, I'm telling you, I know my boy,
+- [01:17:52.780] he's going to be fine." I can't believe it.
+- [01:17:56.100] And literally, actually yesterday,
+- [01:17:59.070] he, he stood up and he's talking a little bit.
+- [01:18:02.400] I mean, the whole thing is incredible.
+- [01:18:04.210] The mother, I've never seen anybody,
+- [01:18:07.360] I never saw anything like it. She was so positive.
+- [01:18:10.340] She said, "I'm praying, and everybody's praying.
+- [01:18:12.090] The whole country's praying,
+- [01:18:13.340] and there's no way he's going to have any problem.
+- [01:18:15.610] He's going to be just fine."
+- [01:18:16.930] It was, it's not even that he was going to make it.
+- [01:18:19.040] It was like, he's going to be fine.
+- [01:18:21.260] Incredible person. In the year before my election,
+- [01:18:24.720] all net job creation was going to foreign migrants.
+- [01:18:28.610] All of it, 100 percent.
+- [01:18:30.600] Since I took office, 100 percent of all net job creation
+- [01:18:34.130] has gone to American-born citizens.
+- [01:18:36.780] The migrant invasion also brought massive crime.
+- [01:18:39.640] What's happening with the killings in North Carolina
+- [01:18:42.990] is indescribable.
+- [01:18:44.350] I mean, for the first time, you're in national news
+- [01:18:46.300] all the time with the killings.
+- [01:18:47.530] That's because you're run by Democrats.
+- [01:18:50.810] Two weeks ago, an illegal alien from Honduras
+- [01:18:54.380] who entered under Biden,
+- [01:18:55.700] walked onto a train in Charlotte with a large knife
+- [01:18:59.400] and brutally stabbed a passenger multiple times in the chest.
+- [01:19:03.810] The same savage criminal alien
+- [01:19:05.490] had previously been arrested two months earlier,
+- [01:19:08.490] but he was released by authorities to pillage and kill,
+- [01:19:13.110] which he did. Also recently in this state,
+- [01:19:16.660] you saw this one, nobody could watch it.
+- [01:19:20.590] Another monstrous criminal with 14 prior arrests
+- [01:19:23.350] plunged a knife into the throat
+- [01:19:25.910] of an innocent, young, beautiful girl.
+- [01:19:28.580] Ukraine, she was from Ukraine who was sitting on a train.
+- [01:19:34.450] You could see all, she was scared to be there.
+- [01:19:36.720] You could see that, right?
+- [01:19:37.940] Everybody knows what I'm talking about.
+- [01:19:39.530] She was, she walked onto the train,
+- [01:19:41.560] she was afraid to be there.
+- [01:19:42.890] What happened to North Carolina? You didn't have that condition.
+- [01:19:48.130] And then she was attacked from behind violently by this savage.
+- [01:19:52.110] No one can ever forget that look of shock and terror
+- [01:19:55.070] on the young woman's face.
+- [01:19:56.590] It happened so fast as her murderer
+- [01:19:58.790] walked down the train car dripping with blood all over.
+- [01:20:02.610] Passengers are looking at him. They're saying, what is that?
+- [01:20:05.150] There's blood pouring out of, from every part of him,
+- [01:20:08.180] from the knife.
+- [01:20:09.790] For years, radical left politicians
+- [01:20:11.590] have been releasing bloodthirsty,
+- [01:20:13.120] violent offenders and criminal aliens
+- [01:20:15.130] back onto your streets under our leadership.
+- [01:20:18.190] We're finally getting illegal aliens
+- [01:20:19.930] and vicious felons off the streets
+- [01:20:21.950] and throwing them out of our country,
+- [01:20:24.180] or in some cases,
+- [01:20:25.400] putting them in the toughest jails in the world,
+- [01:20:27.770] because frankly, we don't want to let them into their country
+- [01:20:31.950] because we don't want to take a chance
+- [01:20:33.380] that these animals will come back.
+- [01:20:36.220] We're restoring law and order in America.
+- [01:20:46.830] We just made a record investment in our military
+- [01:20:49.320] and gave every service member
+- [01:20:50.780] a warrior dividend of $1,776, 1776.
+- [01:20:58.400] And I'm also pleased to announce that just two hours ago,
+- [01:21:02.010] we hit the ISIS thugs in Syria
+- [01:21:03.970] who were trying to regroup after their decimation
+- [01:21:07.150] by the Trump Administration five years ago.
+- [01:21:09.590] We hit them all.
+- [01:21:11.930] I ordered a massive strike on the terrorists
+- [01:21:15.680] that killed our three great Patriots last week.
+- [01:21:18.980] Two soldiers, one interpreter, all great people.
+- [01:21:22.340] And it was very successful. It was precision.
+- [01:21:26.250] We hit every site flawlessly,
+- [01:21:28.090] and we are restoring peace through strength.
+- [01:21:30.610] We're all over the world.
+- [01:21:32.470] I settled eight wars in 10 months,
+- [01:21:34.350] destroyed the Iran nuclear threat,
+- [01:21:36.490] ended the war in Gaza,
+- [01:21:38.860] and got the release of hostages, both living and dead,
+- [01:21:42.750] and created peace in the Middle East.
+- [01:21:44.230] We have peace in the Middle East,
+- [01:21:45.490] first time in three years, peace in the Middle East.
+- [01:21:49.350] I cut federal funding for any school
+- [01:21:51.440] that pushes critical race theory or transgender insanity.
+- [01:21:59.870] And we completely banned the chemical
+- [01:22:02.030] and surgical mutilation of children.
+- [01:22:11.360] Can you believe I'm standing here, 2025,
+- [01:22:16.200] talking about I banned the surgical mutilation of children?
+- [01:22:20.260] Could you imagine 15 years ago saying that?
+- [01:22:22.420] People would say, this guy's crazy.
+- [01:22:23.720] What the hell is he talking,
+- [01:22:24.950] the surgical mutilation of children,
+- [01:22:28.010] I banned it.
+- [01:22:29.350] And it's a wonderful thing I did,
+- [01:22:30.600] but can you imagine having to even say it?
+- [01:22:33.570] Or can you imagine having to say
+- [01:22:36.280] that we are keeping men out of women's sports?
+- [01:22:39.490] Frankly, that's less important if you want to know the truth,
+- [01:22:41.920] but it's very important. The surgical mutilation
+- [01:22:44.860] I had to ban and I did, I banned it.
+- [01:22:47.730] But we're also keeping men out of women's sports.
+- [01:22:50.780] Have you seen some of these records?
+- [01:22:52.480] Have you seen the long distance race?
+- [01:22:54.280] One of these races go all day, they had champion women,
+- [01:22:57.350] they had some very good men, but not the champions.
+- [01:23:01.560] And one man won the race by five hours
+- [01:23:05.110] and 14 minutes and 12 seconds.
+- [01:23:08.220] Five hours, 14 minutes. Think of that.
+- [01:23:10.920] Won the race by five hours. What do you do?
+- [01:23:13.700] Your parents go back home, go to sleep for a few hours
+- [01:23:16.140] and come back and meet your daughter,
+- [01:23:17.860] and she's supposed to be thrilled?
+- [01:23:19.650] What kind of crap is that?
+- [01:23:20.880] Or the weightlifting records
+- [01:23:23.030] where people that never lifted a weight
+- [01:23:25.930] before are going into the women
+- [01:23:28.440] who are fighting national championships,
+- [01:23:31.080] almost Olympic championships,
+- [01:23:33.160] and they're lifting 112 pounds more,
+- [01:23:35.930] and they've never done it before?
+- [01:23:38.800] Or the boxers that are getting decimated.
+- [01:23:42.030] You saw the Olympics where they had two people
+- [01:23:46.620] that they converted to from men to women.
+- [01:23:51.590] They did a conversion.
+- [01:23:53.600] And the one young woman from Italy,
+- [01:23:55.210] a championship boxer, she got hit by a left jab.
+- [01:23:58.460] A left jab for those that don't do the,
+- [01:24:00.460] just like a defensive punch.
+- [01:24:02.420] She got hit, she walked to her corner, she said,
+- [01:24:04.390] "I've never been hit like that. I quit."
+- [01:24:06.710] Then they said, no, no, go out, you can do it.
+- [01:24:09.670] And then he gave her another left jab,
+- [01:24:11.270] and that was it and she said, "Nope, I can't do it."
+- [01:24:14.420] It's so, it's so demeaning to women.
+- [01:24:16.760] And they don't stop.
+- [01:24:17.980] I saw the other day on one of the shows,
+- [01:24:20.520] I think Meet the Fake Press.
+- [01:24:23.720] I'm pretty sure it was that stupid show.
+- [01:24:25.670] And, and they had a congressman that you all know,
+- [01:24:30.340] a Democrat saying,
+- [01:24:31.630] "No, no, we have to allow men to play in women's sports."
+- [01:24:36.220] Where do these people come from? Or how about open borders?
+- [01:24:38.700] They're fighting for open borders.
+- [01:24:41.240] If I didn't get elected, our country would be ruined.
+- [01:24:43.290] We would have, we would have not had a country.
+- [01:24:45.110] I'm telling you, not- I'm not bragging about myself.
+- [01:24:47.930] I'm saying we would not have had a country.
+- [01:24:51.760] And now we have the greatest country in the world.
+- [01:24:54.380] I'm telling you, hottest, we're the hottest.
+- [01:24:57.660] We're storing the name of a great president,
+- [01:25:00.870] William McKinley to Mount McKinley in beautiful
+- [01:25:03.410] Alaska that they took the name off
+- [01:25:09.740] and they named it something else.
+- [01:25:12.590] And I renamed the Gulf of Mexico to the Gulf of America, right?
+- [01:25:23.060] That was a good one.
+- [01:25:24.840] Well, you know, I checked, I, I, for all, my whole life,
+- [01:25:27.590] I don't know, I guess I didn't do it on my first term
+- [01:25:30.220] because I was the hunted.
+- [01:25:32.130] I had bigger problems.
+- [01:25:33.380] I had these animals trying to attack me at Mar-a-Lago.
+- [01:25:37.980] They went into my wife's closet,
+- [01:25:44.420] and I'll say this, number one, it's very bad,
+- [01:25:47.130] but it sounds a little strange. They looked at her drawers .
+- [01:25:55.610] You have drawer and then you have drawer.
+- [01:25:58.770] They looked at both.
+- [01:26:01.880] And she's a very meticulous person, you know?
+- [01:26:04.210] Like these people, just like,
+- [01:26:05.620] she'd fit into your group very well .
+- [01:26:07.590] She'd be very happy with her.
+- [01:26:09.540] But everything is perfect. Her undergarments is nice.
+- [01:26:15.110] Sometimes referred to as panties -- are folded.
+- [01:26:20.270] Perfect. Wrapped.
+- [01:26:21.920] They're like so perfect. I said, "That's beautiful."
+- [01:26:24.070] You're not supportive of the world she came from.
+- [01:26:26.190] Everything was perfect. No problem. Fold, fold, fold.
+- [01:26:29.420] I think that she steams them,
+- [01:26:30.650] make sure, just that it, we came home.
+- [01:26:37.390] I, I wasn't there when the raid took place.
+- [01:26:39.290] A raid of a popular president, a former president.
+- [01:26:43.990] She opened the drawers and it, it was not that way .
+- [01:26:48.750] They were a mess. It was all over the place.
+- [01:26:51.810] And she said, "Oh, what happened? That's so terrible."
+- [01:26:54.450] But it's terrible. They went into my young boy's room.
+- [01:26:57.870] These thugs are disgusting
+- [01:26:59.830] and we cannot let them get away with this stuff.
+- [01:27:02.110] We, we have all the evidence now.
+- [01:27:05.200] We have all the evidence and we have to do something about it.
+- [01:27:08.920] We have to do something about it.
+- [01:27:12.470] It's illegal and it's disgusting.
+- [01:27:18.370] You know, I brought a lawsuit and I'm winning the lawsuit.
+- [01:27:22.620] There's only one problem, I'm the one that has to settle it.
+- [01:27:25.230] In other words, I am suing
+- [01:27:26.650] and I'm the one that's supposed to settle it.
+- [01:27:28.990] So maybe I'll give myself one billion dollars
+- [01:27:31.290] and give it all to charity. Does that make sense?
+- [01:27:33.780] You know, I'll give it to charity.
+- [01:27:35.200] You have any nice charities? I have to settle the lawsuit.
+- [01:27:39.680] There's never been a case like this. Trump sued.
+- [01:27:42.550] I sued a long time ago and it's doing fine.
+- [01:27:44.900] It's a suit. And now, you know, we found all this stuff.
+- [01:27:47.720] Did you see where the FBI didn't want to do it,
+- [01:27:49.720] but the Justice Department forced them to do it?
+- [01:27:51.930] The FBI guys didn't want to do it.
+- [01:27:54.190] But they the thugs and the DOJ wanted to do it.
+- [01:27:59.800] So I sued them and it's and they do say that, you know,
+- [01:28:02.960] it's never been a case like this.
+- [01:28:04.850] Donald Trump sues the United States of America,
+- [01:28:09.530] Donald Trump becomes president,
+- [01:28:11.680] and now Donald Trump has to settle the suit.
+- [01:28:15.180] I hereby give myself $1 billion.
+- [01:28:20.780] Actually, maybe I shouldn't give it to charity.
+- [01:28:22.540] Maybe I should keep the money . No. A lotta people say, "Do it."
+- [01:28:26.450] No, I don't want to do it.
+- [01:28:28.080] But whatever happens, it's all going to good charities.
+- [01:28:31.650] Is that okay? It's all going to good charities,
+- [01:28:34.230] but, but isn't that a strange position to be in?
+- [01:28:37.630] I've got to make, I've got to make a deal --
+- [01:28:41.000] and negotiate with myself.
+- [01:28:44.660] From the skyscrapers of Charlotte,
+- [01:28:48.320] to the rolling hills of Asheville,
+- [01:28:50.370] from the sand dunes of Kitty Hawk,
+- [01:28:53.110] to the streets of Chapel Hill,
+- [01:28:55.470] and from the factories of Hickory,
+- [01:28:58.660] to the small towns and family farms
+- [01:29:01.050] across your beautiful countryside in North Carolina.
+- [01:29:06.020] We are bringing prosperity, opportunity,
+- [01:29:08.550] and pride surging back to your incredible home.
+- [01:29:14.690] Together, we're pairing all these people together.
+- [01:29:18.490] You're coming together.
+- [01:29:19.800] You know, it's coming together like nobody's ever seen,
+- [01:29:23.120] but we're fixing four years of disaster and decline.
+- [01:29:29.000] The whole world was laughing at us for four years.
+- [01:29:31.670] They were laughing, taking advantage of us.
+- [01:29:34.040] Friend and foe.
+- [01:29:36.000] And the friend was worse than the foe in many cases.
+- [01:29:38.420] On trade, they were worse.
+- [01:29:40.930] And we're beginning the greatest years
+- [01:29:42.880] in the history of our country.
+- [01:29:44.950] It's called the golden age of America.
+- [01:29:46.540] That's what's happening.
+- [01:29:47.790] We're right now, we were a dead country,
+- [01:29:51.300] now we're talking about the golden age of America.
+- [01:29:53.650] Think of it, in 10 months. Think of that.
+- [01:29:57.750] So in conclusion, tonight, after just 11 months,
+- [01:30:00.760] our border is secure, our spirit is restored,
+- [01:30:04.640] inflation is stopped, wages are up, prices are down,
+- [01:30:07.890] our nation is strong. And America is back.
+- [01:30:15.930] And every single day of this administration,
+- [01:30:19.390] we will keep on working for the hardworking citizens of America.
+- [01:30:24.160] We will fight, fight, fight, we will win, win, win.
+- [01:30:27.900] And with your help, we will make America powerful again.
+- [01:30:32.320] We will make America wealthy again.
+- [01:30:35.460] We will make America healthy again.
+- [01:30:39.300] We will make America strong again.
+- [01:30:43.170] We will make America proud again.
+- [01:30:47.420] We will make America safe again,
+- [01:30:51.090] and we will make America great again.
+- [01:30:55.130] Thank you, North Carolina.
+- [01:30:56.860] God bless you all. And Merry Christmas.
+- [01:31:00.100] ♪ ("YMCA" by The Village People) ♪

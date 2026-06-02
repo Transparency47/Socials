@@ -1,0 +1,184 @@
+<!-- source: https://www.youtube.com/watch?v=MoEAlhUTVnE -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: MoEAlhUTVnE -->
+<!-- date_published: 2025-12-06T22:39:32+00:00 -->
+<!-- date_accessed: 2026-06-02T02:40:38.410853+00:00 -->
+
+# Transcript: President Trump Participates in a Kennedy Center Honors Medal Presentation
+
+- [00:01.980] The President: Thank you very much everybody.
+- [00:03.220] This is a great evening. It's a great honor.
+- [00:06.000] And I'm delighted to welcome to the Oval Office,
+- [00:08.570] the world-famous, most famous office in the world,
+- [00:11.690] most powerful office in the world.
+- [00:13.950] Our truly exceptional 2025 Kennedy Center honorees.
+- [00:18.850] As President of the United States
+- [00:20.830] and the chairman of the board of the Kennedy Center,
+- [00:22.780] it's a privilege to pay tribute
+- [00:24.320] to the very best in American arts and culture.
+- [00:27.840] And that's what you have beside me.
+- [00:30.710] They are incredible people.
+- [00:32.890] I know most of them and I've been a fan of all of them,
+- [00:36.470] and it's been a real honor to get to know them
+- [00:38.840] during this little period of time.
+- [00:41.060] This is a group of icons whose work and accomplishments
+- [00:44.080] have inspired, uplifted,
+- [00:45.570] and unified millions and millions of Americans.
+- [00:49.490] This is perhaps the most accomplished
+- [00:51.600] and renowned class of Kennedy Center honorees ever assembled.
+- [00:56.760] We have country music legend, George.
+- [01:00.060] Got it. Turned off. Got it.
+- [01:05.300] We have country music legend, George Strait. George, thank you very much.
+- [01:10.330] (applause)
+- [01:20.510] (inaudible)
+- [01:30.690] (applause)
+- [01:40.420] The President: We have a great star of Broadway.
+- [01:43.900] I've seen the show many times,
+- [01:45.180] and other shows of his, Michael Crawford.
+- [01:50.000] (applause)
+- [02:06.160] The President: We have the disco queen,
+- [02:07.920] and she was indeed. And nobody did it like Gloria Gaynor.
+- [02:13.270] Gloria, thank you very much.
+- [02:16.150] (applause)
+- [02:30.080] The President: Thank you, Darling.
+- [02:34.420] A friend of mine, a wonderful person,
+- [02:38.130] a really spectacular person.
+- [02:40.530] One of the true great movie stars.
+- [02:44.320] There aren't many.
+- [02:45.590] There used to be a lot, there aren't many now.
+- [02:48.390] But he's one of the great legends
+- [02:49.830] and had some of the greatest movies ever,
+- [02:54.200] including the top grossing movies ever.
+- [02:57.290] Sylvester Sly Stallone. Sly.
+- [03:03.580] (applause)
+- [03:17.910] The President: Thank you.
+- [03:22.300] And the members of the incredible rock band, Kiss.
+- [03:27.080] Paul Stanley, Gene Simmons, Peter Criss, and Ace Frehley,
+- [03:33.180] who now is resting in peace, and his beautiful daughter
+- [03:36.310] is here to accept the award. Thank you very much.
+- [03:39.040] Thank you for being here. Thank you.
+- [03:41.339] (applause)
+- [04:02.040] My friend for a long time.
+- [04:03.540] (applause)
+- [04:14.180] Peter Criss: Thank you, Mr. President. It's an honor.
+- [04:17.540] (applause)
+- [04:29.540] (applause)
+- [04:35.030] The President: Those are great people.
+- [04:37.800] In a few moments, we will be presenting these stars
+- [04:41.150] with their Kennedy Center Honors Medallions,
+- [04:46.160] which were redesigned this year
+- [04:48.140] with the help of the fantastic team at Tiffany & Company.
+- [04:52.390] And I want to congratulate them. They have done a fantastic job.
+- [04:56.050] They're wonderful people. I know them very well
+- [04:58.190] because they're right next to Trump Tower.
+- [04:59.840] I've lived with them for many years,
+- [05:02.060] and they really have done a great job.
+- [05:03.570] So I want to thank Tiffany. Thank you very much.
+- [05:06.190] We're also joined by members
+- [05:07.600] of the Kennedy Center Board of Trustees
+- [05:09.460] who are doing a really great job.
+- [05:12.460] And as you know, the building is being renovated,
+- [05:16.280] fully renovated. It's being, I would say,
+- [05:20.000] fixed at a level that nobody's ever seen before.
+- [05:22.170] We're going to make it something really special.
+- [05:24.870] It's been tired. It's been mistreated,
+- [05:27.260] a little bit like the White House has been mistreated,
+- [05:29.220] to be honest with you.
+- [05:30.960] And we're bringing it back to a level
+- [05:33.810] that I don't think any place in the country will see.
+- [05:37.100] We were given quite a bit of money by Congress
+- [05:40.930] to do the job and we're doing it right.
+- [05:43.420] And you'll see the new marble and the renovated marble
+- [05:46.710] in all of the different rooms, major auditoriums.
+- [05:49.810] The sound is so fantastic.
+- [05:51.300] One of the very big prerequisites
+- [05:54.010] and something that doesn't happen often
+- [05:56.570] is when you have great sound, you take advantage of it.
+- [05:59.040] And the Kennedy Center has great, great sound.
+- [06:01.880] If they build it, fellas, you know this.
+- [06:03.670] Gloria, you would know it very well.
+- [06:05.070] George, you'd know it very well.
+- [06:06.790] Oh, Michael would know it so well.
+- [06:09.100] But if it's built with bad sound,
+- [06:10.720] you never get it fixed, right? It just doesn't work.
+- [06:13.730] They've tried very hard at Lincoln Center and other places
+- [06:16.350] and it hasn't worked out too well.
+- [06:19.080] But I just want to thank the executive director,
+- [06:23.060] Ric Grenell. Ric, thank you very much.
+- [06:25.830] (applause)
+- [06:30.640] Ambassador Sergio Gor, Ambassador to India.
+- [06:34.780] Thank you, Sergio. Great job.
+- [06:36.830] (applause)
+- [06:38.460] And other friends and distinguished guests,
+- [06:40.560] Mr. and Mrs. Ike Perlmutter.
+- [06:41.930] So many people are here that are great friends.
+- [06:44.380] Mrs. Fisher, thank you very much, very much.
+- [06:46.960] (applause)
+- [06:48.190] We have some unbelievable people on the board,
+- [06:50.690] most prestigious board,
+- [06:52.220] I think now, maybe in Washington.
+- [06:55.120] From Newark, New Jersey to Poteet, Texas,
+- [06:58.660] from New York City to as far away as London,
+- [07:03.900] these are among the greatest artists, actors,
+- [07:06.600] and performers of their generation.
+- [07:08.810] The greatest that we've seen.
+- [07:13.000] We can hardly imagine the country music phenomena
+- [07:18.520] without its king of country or the American disco
+- [07:22.670] without its First Lady or Broadway without its phantom.
+- [07:29.260] And that was a phantom, let me tell you.
+- [07:32.480] Or rock and roll without its hottest band in the world,
+- [07:35.170] and that's what they are,
+- [07:36.800] or Hollywood without one of its greatest visionaries.
+- [07:41.820] Each of you has made an indelible mark on American life,
+- [07:46.260] and together you have defined entire genres
+- [07:49.500] and set new standards for the performing arts.
+- [07:51.920] You have set new standards.
+- [07:54.340] On behalf of every American who has been inspired
+- [07:56.900] by the unbelievable talent of Michael Crawford,
+- [08:00.920] who has been influenced by the music of George Strait,
+- [08:04.550] or Gloria Gaynor, or Kiss,
+- [08:06.900] or who has been moved by Sylvester Stallone's
+- [08:09.800] unmatched heart and talent, and grit,
+- [08:12.510] because nobody played that role,
+- [08:14.840] and nobody will ever play that role like Sly.
+- [08:18.940] We want to thank you all.
+- [08:21.630] (applause)
+- [08:28.820] So we're going to have a good time tonight.
+- [08:31.170] I look forward to celebrating with all of you
+- [08:33.300] at the Kennedy Center tomorrow.
+- [08:36.220] And it's going to be something that I believe,
+- [08:39.580] and I'm going to make a prediction,
+- [08:40.840] this will be the highest rated show that they've ever done,
+- [08:44.030] and they've gotten some pretty good ratings,
+- [08:45.630] but there's nothing like what's going to happen tomorrow night.
+- [08:48.930] So I just want to thank you all.
+- [08:50.250] I want to congratulate you all. And I want to thank the media.
+- [08:53.390] They've treated this with such great respect.
+- [08:55.570] We very much appreciate it.
+- [08:56.830] Now we're going to go to the State Department
+- [08:58.750] with Secretary of State, Rubio and have a special event,
+- [09:02.180] something which was never done before,
+- [09:04.040] but we never had a president hosting the awards before.
+- [09:06.700] This is the first.
+- [09:07.920] I'm sure they'll give me great reviews, right?
+- [09:10.440] They'll say, "he was horrible. He was terrible.
+- [09:13.540] It was a horrible situation." No, we'll do fine.
+- [09:16.730] I've watched some of the people that host.
+- [09:18.430] Jimmy Kimmel was horrible. Some of these people…
+- [09:21.860] If I can't beat out Jimmy Kimmel in terms of talent,
+- [09:25.000] then I don't think I should be president.
+- [09:27.300] But I want to just thank you all,
+- [09:28.860] because this is a special night.
+- [09:31.050] And I think you're going to see that at the end of this evening,
+- [09:33.090] and by the end of these two days,
+- [09:34.710] you're going to say this is
+- [09:35.980] one of the most special days in your life.
+- [09:37.860] And I think a few of you have already told me it already was.
+- [09:40.590] So thank you all very much. Congratulations.
+- [09:42.690] And we'll see you in a couple of minutes.
+- [09:44.230] Thank you.
+- [09:45.530] (applause)
+- [09:48.850] Thank you, media. Thank you very much.
+- [09:53.490] Thank you very much.
+- [09:55.190] Thank you very much.

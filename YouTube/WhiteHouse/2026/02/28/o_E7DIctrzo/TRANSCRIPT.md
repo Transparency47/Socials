@@ -1,0 +1,194 @@
+<!-- source: https://www.youtube.com/watch?v=o-E7DIctrzo -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: o-E7DIctrzo -->
+<!-- date_published: 2026-02-28T07:57:00+00:00 -->
+<!-- date_accessed: 2026-06-02T01:04:35.115764+00:00 -->
+
+# Transcript: President Donald J. Trump on the United States Military Major Combat Operations in Iran
+
+- [00:00.000] A short time ago,
+- [00:02.160] the United States military began
+- [00:05.000] major combat operations in Iran.
+- [00:09.600] Our objective is to defend the American
+- [00:12.280] people by eliminating imminent threats
+- [00:15.240] from the Iranian regime, a vicious group
+- [00:19.960] of very hard,
+- [00:22.240] terrible people.
+- [00:24.320] Its menacing activities directly
+- [00:26.320] endanger the United States, our troops,
+- [00:28.760] our bases overseas, and our allies
+- [00:31.640] throughout the world.
+- [00:33.280] For 47 years, the Iranian regime has
+- [00:36.080] chanted death to America and waged an
+- [00:39.320] unending campaign of bloodshed and mass
+- [00:42.520] murder
+- [00:43.640] targeting the United States, our troops,
+- [00:46.040] and the innocent people in many, many
+- [00:48.200] countries.
+- [00:49.760] Among the regime's very first acts was
+- [00:52.240] to back a violent takeover of the US
+- [00:54.960] Embassy in Tehran
+- [00:56.880] holding dozens of American hostages for
+- [00:59.640] 444
+- [01:01.240] days.
+- [01:02.600] In 1983, Iran's proxies carried out the
+- [01:06.520] Marine barracks bombing in Beirut that
+- [01:08.640] killed 241 American military personnel.
+- [01:13.080] In 2000, they knew and were probably
+- [01:15.760] involved with the attack on the USS
+- [01:18.720] Cole.
+- [01:19.800] Many died.
+- [01:21.640] Iranian forces killed and maimed
+- [01:23.880] hundreds of American service members in
+- [01:26.080] Iraq. The regime's proxies have
+- [01:28.320] continued to launch countless attacks
+- [01:30.560] against American forces stationed in the
+- [01:33.360] Middle East in recent years, as well as
+- [01:36.120] US naval and commercial vessels in
+- [01:38.600] international shipping lanes.
+- [01:41.160] It's been mass terror, and we're not
+- [01:44.360] going to put up with it any longer.
+- [01:46.920] From Lebanon to Yemen and Syria to Iraq,
+- [01:50.760] the regime has armed, trained, and
+- [01:53.000] funded terrorist militias that have
+- [01:55.880] soaked the earth with blood and guts.
+- [02:00.000] And it was Iran's proxy, Hamas, that
+- [02:02.960] launched the monstrous October 7th
+- [02:05.560] attacks on Israel,
+- [02:07.960] slaughtering more than 1,000 innocent
+- [02:10.320] people, including 46 Americans, while
+- [02:12.720] taking 12 of our citizens hostage. It
+- [02:16.240] was brutal. Something like the world has
+- [02:19.720] never seen before.
+- [02:21.959] Iran is the world's number one state
+- [02:24.160] sponsor of terror, and just recently
+- [02:27.080] killed tens of thousands of its own
+- [02:29.360] citizens on the street as they
+- [02:31.160] protested. It has always been the policy
+- [02:33.680] of the United States, in particular, my
+- [02:36.959] administration,
+- [02:38.560] that this terrorist regime can never
+- [02:40.640] have a nuclear weapon.
+- [02:43.000] I'll say it again, they can never have a
+- [02:46.240] nuclear weapon.
+- [02:48.680] That is why in Operation Midnight Hammer
+- [02:51.600] last June, we obliterated the regime's
+- [02:54.840] nuclear program at Fordow,
+- [02:57.600] Natanz, and Isfahan.
+- [03:00.680] After that attack, we warned them never
+- [03:03.280] to resume their malicious pursuit of
+- [03:05.680] nuclear weapons,
+- [03:07.360] and we sought, repeatedly, to make a
+- [03:10.440] deal. We tried.
+- [03:12.959] They wanted to do it, they didn't want
+- [03:14.920] to do it, again they wanted to do it,
+- [03:17.080] they didn't want to do it, they didn't
+- [03:18.720] know what was happening, they just
+- [03:20.600] wanted to practice evil.
+- [03:23.200] But Iran refused, just as it has for
+- [03:26.239] decades and decades.
+- [03:28.720] They rejected every opportunity to
+- [03:30.880] renounce their nuclear ambitions,
+- [03:34.120] and we can't take it anymore.
+- [03:36.519] Instead, they attempted to rebuild their
+- [03:39.200] nuclear program and to continue
+- [03:42.000] developing long-range missiles that can
+- [03:45.160] now threaten our
+- [03:47.120] very good friends and allies in Europe,
+- [03:49.480] our troops stationed overseas, and could
+- [03:52.600] soon reach the American homeland.
+- [03:56.200] Just imagine how emboldened this regime
+- [03:58.920] would be if they ever had
+- [04:01.240] and actually were armed with nuclear
+- [04:03.440] weapons as a means to deliver their
+- [04:06.400] message.
+- [04:07.840] For these reasons, the United States
+- [04:09.800] military has undertaken a massive and
+- [04:12.320] ongoing operation
+- [04:14.280] to prevent this a very wicked, radical
+- [04:16.799] dictatorship from threatening America
+- [04:19.600] and our core national security
+- [04:22.280] interests. We are going to destroy their
+- [04:24.919] missiles and raise their missile
+- [04:27.280] industry to the ground. It will be
+- [04:30.160] totally, again, obliterated. We're going
+- [04:33.960] to annihilate their navy. We're going to
+- [04:36.600] ensure that the region's terrorist
+- [04:38.720] proxies can no longer destabilize the
+- [04:41.640] region or the world and attack our
+- [04:44.040] forces and no longer use their IEDs or
+- [04:48.320] roadside bombs, as they are sometimes
+- [04:50.760] called, to so gravely wound and kill
+- [04:53.800] thousands and thousands of people,
+- [04:56.560] including many Americans.
+- [04:58.760] And we will ensure that Iran does not
+- [05:01.360] obtain a nuclear weapon. It's a very
+- [05:04.680] simple message. They will never have a
+- [05:07.960] nuclear weapon.
+- [05:10.160] This regime will soon learn that no one
+- [05:12.720] should challenge the strength and might
+- [05:14.840] of the United States Armed Forces.
+- [05:18.120] I built and rebuilt our military in my
+- [05:20.640] first administration,
+- [05:23.080] and there is no military on Earth even
+- [05:25.400] close to its power,
+- [05:27.360] strength, or sophistication.
+- [05:29.840] My administration has taken every
+- [05:31.800] possible step to minimize the risk to US
+- [05:35.280] personnel in the region.
+- [05:37.240] Even so, and I do not make this
+- [05:39.600] statement lightly,
+- [05:41.320] the Iranian regime seeks to kill.
+- [05:45.000] The lives of courageous American heroes
+- [05:47.320] may be lost and we may have casualties.
+- [05:50.960] That often happens in war. But we're
+- [05:53.360] doing this not for now. We're doing this
+- [05:55.960] for the future and it is a noble
+- [05:58.680] mission.
+- [06:00.000] We pray for every service member as they
+- [06:02.360] selflessly risk their lives to ensure
+- [06:04.840] that Americans and our children will
+- [06:07.520] never be threatened by a nuclear armed
+- [06:09.800] Iran.
+- [06:11.040] We ask God to protect all of our heroes
+- [06:13.560] in harm's way. And we trust that with
+- [06:16.560] his help the men and women of the armed
+- [06:19.480] forces will prevail.
+- [06:22.160] We have the greatest in the world and
+- [06:24.040] they will prevail. To the members of the
+- [06:26.360] Islamic Revolutionary Guard, the armed
+- [06:29.520] forces and all of the police, I say
+- [06:32.560] tonight that you must lay down your
+- [06:35.160] weapons and have complete immunity or in
+- [06:38.480] the alternative face certain death.
+- [06:41.880] So, lay down your arms. You will be
+- [06:44.960] treated fairly with total immunity or
+- [06:48.800] you will face certain death.
+- [06:51.640] Finally, to the great proud people of
+- [06:53.680] Iran, I say tonight that the hour of
+- [06:56.560] your freedom is at hand.
+- [06:58.720] Stay sheltered. Don't leave your home.
+- [07:01.080] It's very dangerous outside. Bombs will
+- [07:03.480] be dropping everywhere. When we are
+- [07:05.840] finished, take over your government. It
+- [07:07.960] will be yours to take. This will be
+- [07:11.120] probably your only chance for
+- [07:13.880] generations.
+- [07:15.600] For many years you have asked for
+- [07:17.080] America's help, but you never got it. No
+- [07:20.240] president was willing to do what I am
+- [07:22.560] willing to do tonight.
+- [07:24.480] Now you have a president who is giving
+- [07:26.480] you what you want. So, let's see how you
+- [07:29.400] respond. America is backing you with
+- [07:32.320] overwhelming strength and devastating
+- [07:34.800] force. Now is the time to seize control
+- [07:37.680] of your destiny and to unleash the
+- [07:40.040] prosperous and glorious future that is
+- [07:43.080] close within your reach. This is the
+- [07:45.720] moment for action. Do not let it pass.
+- [07:49.080] May God bless the brave men and women of
+- [07:51.680] America's armed forces. May God bless
+- [07:54.920] the United States of America. May God
+- [07:57.600] bless you all. Thank you.

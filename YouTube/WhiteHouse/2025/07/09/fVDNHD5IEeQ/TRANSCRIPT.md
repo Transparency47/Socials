@@ -1,0 +1,1232 @@
+<!-- source: https://www.youtube.com/watch?v=fVDNHD5IEeQ -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: fVDNHD5IEeQ -->
+<!-- date_published: 2025-07-09T17:52:09+00:00 -->
+<!-- date_accessed: 2026-06-02T02:47:16.469625+00:00 -->
+
+# Transcript: President Trump Participates in a Multilateral Lunch with African Leaders
+
+- [00:12.559] Hello, Peter.
+- [00:13.440] Hey, President Trump. How you doing?
+- [00:14.960] I'm good, thank you.
+- [00:18.800] Been pretty busy.
+- [00:21.279] Now it's Africa.
+- [00:23.920] First Europe, then the Middle East, now
+- [00:26.560] Africa.
+- [00:28.480] Great people with us.
+- [00:43.120] Well, thank you very much everybody for
+- [00:44.960] being with us today and I want to thank
+- [00:49.120] you all of these great leaders for
+- [00:51.200] joining us as we welcome to the White
+- [00:53.600] House the uh presidents and prime
+- [00:57.360] ministers and various other forms of
+- [01:00.719] dignitary to
+- [01:02.960] uh this wonderful place is nothing like
+- [01:05.119] the white house to
+- [01:07.040] Uh we are
+- [01:09.520] represented today and your continent is
+- [01:11.600] represented by Gabon, Guinea, Basau,
+- [01:16.080] Liberia,
+- [01:18.159] Moritania and Sagal. All very vibrant
+- [01:22.560] places with very valuable land, great
+- [01:27.119] minerals, great oil deposits and
+- [01:30.640] wonderful people. Last month, the US
+- [01:33.040] Africa Business Summit had recorded an
+- [01:35.920] attendance and an attendance record
+- [01:38.079] actually and generated $2.5 billion in
+- [01:41.439] new economic deals for the United
+- [01:43.439] States. On June 27th, the foreign
+- [01:46.880] ministers of the Democratic Republic of
+- [01:49.840] the Congo and Rwanda visited the White
+- [01:53.040] House to sign a historic peace agreement
+- [01:54.960] that we worked out. Uh they've been
+- [01:57.520] fighting for 30 years.
+- [02:01.520] 7 million are dead and they think the
+- [02:04.399] number is actually quite a bit higher
+- [02:05.840] than that. It's been a it's been a long
+- [02:08.000] and vicious fight and I just wanted to
+- [02:09.920] say that the countries represented were
+- [02:12.640] very happy that we were able to solve
+- [02:15.200] that problem. Uh I think over the next
+- [02:17.520] couple of weeks the leaders of both
+- [02:19.920] country will will come to sign the final
+- [02:22.080] agreement. And as you know, we had
+- [02:23.200] foreign ministers last week. Uh but
+- [02:26.640] we're going to be signing an end to the
+- [02:29.120] horrible 30-year war. It's been going on
+- [02:31.920] for a long time. I've been reading about
+- [02:34.000] it, hearing about it, and it was it was
+- [02:36.319] a vicious it was a vicious war. It was a
+- [02:38.560] terrible war. I want to thank our
+- [02:40.720] outstanding senior adviser for Africa,
+- [02:43.360] Msad Bulos, for helping to mediate this
+- [02:47.120] breakthrough.
+- [02:48.640] uh he was very much involved in that uh
+- [02:51.440] settlement. Most people thought it
+- [02:53.599] couldn't be done, but there's still much
+- [02:56.000] more to be done and we're going to uh be
+- [02:59.200] facilitating peace also in places like
+- [03:01.760] Sudan where they have a lot of problems,
+- [03:04.640] Libya and uh others. We have a there's a
+- [03:07.440] lot of there's a lot of anger on your
+- [03:09.760] continent and we've been able to solve a
+- [03:12.480] lot of it. My administration is
+- [03:14.560] committed to strengthening our
+- [03:16.159] friendships in Africa through economic
+- [03:18.239] development efforts that benefit both
+- [03:20.560] the United States and our partners. And
+- [03:23.599] we're shifting from aid to trade. We had
+- [03:28.560] aid or aid as we sometimes call it,
+- [03:32.319] right to trade. and trade seems to be a
+- [03:34.879] foundation that I've been able to settle
+- [03:36.560] a lot of these disputes like as an
+- [03:38.959] example India and Pakistan
+- [03:42.400] Kosovo Serbia I said you guys are going
+- [03:45.760] to fight we're not going to trade and we
+- [03:48.000] seem to be quite successful in doing
+- [03:50.080] that to that end we have closed the US
+- [03:53.040] aid
+- [03:54.799] group to eliminate waste fraud and abuse
+- [03:57.120] which was tremendous waste fraud and
+- [03:59.040] abuse and we're working tirelessly to
+- [04:01.599] forge new economic opportunityities
+- [04:03.200] unities involving both the United States
+- [04:05.200] and many African nations. There's great
+- [04:08.080] economic potential in Africa like few
+- [04:11.360] other places in many ways and the long
+- [04:14.560] run this will be far more effective and
+- [04:16.639] sustainable and beneficial than anything
+- [04:19.440] else that we can be doing together. I'm
+- [04:22.880] eager to work with each of you on your
+- [04:25.680] vital issues and also to discuss
+- [04:27.759] security. We've en encouraged our staff
+- [04:30.960] at the White House to work along with
+- [04:33.199] these nations. There's such tremendous
+- [04:35.919] wealth there and potential there. We
+- [04:38.639] encourage the countries here today to
+- [04:41.520] make greater investments in defense.
+- [04:44.240] Hopefully, of course, buying our
+- [04:45.680] equipment because we do make the best
+- [04:47.919] defense equipment. I guess we proved
+- [04:49.440] that about two weeks ago in Iran, but we
+- [04:52.080] make the best equipment, best military
+- [04:54.400] equipment anywhere in the world by far.
+- [04:56.160] There's nobody close. and keep pursuing
+- [04:58.639] the fight against terrorism which is a
+- [05:01.360] big problem in Africa. Immigration will
+- [05:05.120] also be on the agenda and I hope we can
+- [05:07.280] bring down the high rates of people
+- [05:10.000] overstaying visas and also make progress
+- [05:12.400] on the safe third country agreements.
+- [05:15.440] And once again I want to thank you all
+- [05:16.880] for being here and it's an honor for me.
+- [05:20.080] Some of you I've met and some of you I
+- [05:22.479] just got to meet. And I think it would
+- [05:24.400] be nice if you uh said a few words to
+- [05:27.360] the press, which is right back here. Do
+- [05:29.440] we have a camera over here? Be nice if
+- [05:31.680] you could. Oh, there it is. You could
+- [05:33.600] speak to the You don't want to turn your
+- [05:35.680] head so much. I do it a lot. It's not
+- [05:38.560] pleasant, but uh perhaps we could start
+- [05:42.479] with you, please. Thank you very much.
+- [05:50.479] Great gentlemen, by the way.
+- [05:55.759] Thank you for giving me the floor, Mr.
+- [05:57.759] President.
+- [06:03.919] First of all,
+- [06:06.639] I would like to thank you. Thank you,
+- [06:09.280] Mr. President Trump,
+- [06:13.360] for inviting us to come here today.
+- [06:19.440] I'm President Gazwani, president of the
+- [06:21.759] Islamic Republic of Mortania.
+- [06:26.319] Thank you, Mr. President,
+- [06:29.199] for this invitation
+- [06:34.240] and the invitation you sent to the other
+- [06:36.240] colleagues present here today. This is a
+- [06:38.560] very strong message from you and uh we
+- [06:41.840] are receiving this message uh very well.
+- [06:45.199] This is a a message of interest that
+- [06:49.120] you're sending to us and it's a message
+- [06:52.240] that you're sending to the whole of
+- [06:53.600] Africa.
+- [06:55.840] All of this is generous on your part. We
+- [06:58.960] are receiving this and we accept this
+- [07:01.039] message from you.
+- [07:10.319] Before I talk about my country,
+- [07:14.960] I would like to
+- [07:18.080] let you know that we are
+- [07:21.919] delighted to see President Trump's
+- [07:24.960] commitment
+- [07:27.199] to our con continent. Mr. president.
+- [07:32.560] In the short time you've been back in
+- [07:34.560] office, the last few months,
+- [07:38.880] you came to the rescue for peace. You
+- [07:42.639] did it in Asia with Pakistan and India.
+- [07:49.440] The war sto s sort of started and if it
+- [07:51.520] had gone on, the consequences could have
+- [07:54.720] been a real disaster.
+- [08:01.919] Since the beginning, you've been doing a
+- [08:04.960] great deal of work
+- [08:09.520] on the war in Europe, that is the
+- [08:11.840] conflict between uh Russia and Ukraine.
+- [08:15.120] You
+- [08:17.520] rushed to Africa
+- [08:20.639] to resolve
+- [08:22.879] a long-standing problem.
+- [08:25.759] Lots of efforts had been made
+- [08:28.639] by many heads of states.
+- [08:32.080] But
+- [08:34.000] your will
+- [08:35.919] made it possible for this agreement to
+- [08:38.399] be signed and now this conflict is
+- [08:42.320] behind us.
+- [08:44.240] You are currently working
+- [08:47.360] with a great deal of enthusiasm
+- [08:53.200] and you're also working on the Middle
+- [08:54.959] East. You're paying a great deal of
+- [08:56.399] attention to the Middle East. We all
+- [08:59.360] know how far back this conflict goes. It
+- [09:03.200] is a conflict
+- [09:05.440] that is about 80 years old,
+- [09:09.120] 70 years, but it is also a war that has
+- [09:13.600] been raging for a year and a half. And
+- [09:17.040] you've also talked about the human toll.
+- [09:19.680] Many people have died in this conflict.
+- [09:23.680] Of
+- [09:30.000] course,
+- [09:31.519] you also stopped
+- [09:34.560] the war between Iran and Israel. That
+- [09:37.680] could have been a real disaster for the
+- [09:40.560] region. It's a sensitive region to start
+- [09:43.839] with.
+- [09:45.920] Your work
+- [09:47.920] in favor of peace has been tremendous
+- [09:51.680] and we are also very interested in
+- [09:57.200] supporting peace in the same way.
+- [10:01.200] When there's no peace, like you said
+- [10:02.959] earlier today,
+- [10:05.760] when there is no peace, a lot of other
+- [10:08.720] things are lacking. When there is no
+- [10:10.800] peace,
+- [10:13.519] it is difficult to have prosperity.
+- [10:16.640] It is difficult to have calm, to have
+- [10:22.399] a sense of quietness. It's hard to
+- [10:24.560] sleep. It's hard to go about your
+- [10:26.320] business every day. You understand that
+- [10:28.560] well, Mr. President, and you're working
+- [10:30.399] on this. So, thank you.
+- [10:37.440] I am the president of Moritania.
+- [10:46.079] Moritania is a small country
+- [10:52.959] depending on the criteria you apply.
+- [10:57.680] If you look at the number of people who
+- [10:59.680] live in Mortania,
+- [11:01.760] it's a small country because we have
+- [11:04.000] about five million people in Mortania.
+- [11:07.040] We might just be a little bit over 5
+- [11:08.959] million. It's a small country also in
+- [11:12.160] the sense
+- [11:14.160] that
+- [11:17.360] what influence it has throughout the
+- [11:19.360] world. It's not like the US, Mr.
+- [11:21.360] President.
+- [11:24.720] internationally.
+- [11:26.800] We understand that our weight, our
+- [11:30.000] influence is not that great and we're
+- [11:32.000] we're we have no complex about this.
+- [11:38.160] It's also a small country
+- [11:41.200] because of our level of prosperity.
+- [11:44.240] We're not a very prosperous country. We
+- [11:47.040] have many problems related to the
+- [11:49.440] well-being of our population.
+- [11:51.760] But it is also a great country, a big
+- [11:54.000] country in other ways.
+- [11:59.920] Moritania
+- [12:01.920] is a great country in the sense of its
+- [12:04.000] strategic position.
+- [12:06.800] It is on the Atlantic coast which makes
+- [12:09.760] it a neighbor to the US. It is what
+- [12:12.959] unites
+- [12:15.279] North Africa
+- [12:17.200] and subsaharan Africa or what links the
+- [12:20.079] two.
+- [12:21.920] that is its strategic position but also
+- [12:24.800] in terms of resources. We have a great
+- [12:26.959] deal of resources,
+- [12:29.120] many many resources and we have a lot of
+- [12:32.800] opportunities to offer in terms of
+- [12:35.040] investment.
+- [12:38.240] We have minerals,
+- [12:41.040] rare earths,
+- [12:44.000] rare minerals. We have manganese.
+- [12:48.320] We have uranium
+- [12:50.880] and we have
+- [12:53.680] a good inclination that we have lithium
+- [12:57.279] and other minerals. We're the second
+- [12:58.959] largest producer for the last 60 years
+- [13:00.959] in Africa of iron,
+- [13:03.440] iron ore. We produce a lot and uh we
+- [13:09.200] have a lot of resources
+- [13:11.839] in our seawaters. So lots of fishing and
+- [13:15.360] whatnot. I don't want to spend too much
+- [13:17.120] time on this,
+- [13:20.720] but I appreciate it very much. I
+- [13:23.600] appreciate it. Maybe we're going to have
+- [13:25.920] to go a little bit quicker than this
+- [13:27.279] because we have a whole schedule. Um, if
+- [13:30.959] I could just say it's, you know, your
+- [13:32.560] name and your uh country would be great.
+- [13:35.600] Thank you, please.
+- [13:38.959] President Trump.
+- [13:42.160] Thank you, Mr. President.
+- [13:44.800] and uh for welcome everything for us.
+- [13:47.760] The second time here to come as as uh as
+- [13:51.360] a guest the first time we had that
+- [13:54.720] meeting
+- [13:56.399] in Ginis
+- [14:00.079] but I will not um talk so much but Ginis
+- [14:05.920] is a peaceful country
+- [14:09.040] and u
+- [14:14.480] We are a small country but we are a
+- [14:17.199] great state. Not a great state like the
+- [14:19.920] United States
+- [14:22.720] but uh we are a great country as well
+- [14:24.880] and to end
+- [14:28.720] we are befalling
+- [14:31.360] your dynamics and uh the war with Russia
+- [14:35.440] and Ukraine
+- [14:37.519] and um you can count on Gina Bisau.
+- [14:40.000] Thank you very much.
+- [14:42.000] Thank you very
+- [14:56.079] recent celebration of your 249
+- [14:59.360] anniversary we did in Liberia at your
+- [15:02.240] embassy. Mr. President, we thank you for
+- [15:05.040] this opportunity to be here. Liberia is
+- [15:08.000] a longtime friend of the United States
+- [15:12.079] and we believe in your policy of making
+- [15:16.800] America great again. And we also go a
+- [15:21.040] long way with you with your
+- [15:24.240] in your diplomacy
+- [15:26.720] that has to do with economic development
+- [15:29.519] and commercial friendship. Liberia has a
+- [15:33.199] lot of uh minerals and one of the thing
+- [15:38.240] we asked as good friends for a long time
+- [15:41.279] is the opportunity to do a survey of our
+- [15:45.360] minerals
+- [15:46.560] and also we are committed to peace and
+- [15:52.959] uh we've been very lucky within our
+- [15:55.279] region we had a country that have had
+- [15:59.040] series of democratic elections
+- [16:01.519] and our country has been cooling down.
+- [16:05.199] And uh also we want to encourage
+- [16:08.000] American in involvement in the
+- [16:10.800] investment in in Liberia.
+- [16:13.839] Yeah,
+- [16:14.399] we like to see that happen. Uh we want
+- [16:17.920] to work with the United States in peace
+- [16:21.600] and security within the region because
+- [16:24.079] we are committed to that and we just
+- [16:26.399] want to thank you so much for this
+- [16:28.000] opportunity. Well, thank you. And such
+- [16:30.000] good English. Such beautiful. Where did
+- [16:31.920] you
+- [16:32.639] Where did you learn to speak so
+- [16:34.079] beautifully? Where where were you
+- [16:36.320] educated? Where?
+- [16:37.839] Yes, sir.
+- [16:38.880] In Liberia?
+- [16:40.399] Yes, sir.
+- [16:40.880] Well, that's very interesting. It's
+- [16:42.399] beautiful English.
+- [16:43.440] Sure.
+- [16:44.160] I have people at this table can't speak
+- [16:46.079] nearly as well. And
+- [16:48.000] they come from
+- [17:47.440] No microphone for the speaker.
+- [17:52.480] No interpretation.
+- [17:54.000] No interpretation.
+- [17:56.559] There's no microphone for the speaker.
+- [18:08.480] Still no microphone for the speaker.
+- [18:16.720] Could you turn that on? Yeah. Just press
+- [18:19.679] it. There you go.
+- [18:21.039] Yes.
+- [18:25.600] I would like to commend you, Mr.
+- [18:28.640] president
+- [18:30.240] for the success you had in reaching a
+- [18:32.240] peace agreement between Rwanda and the
+- [18:34.240] DRC. Africa is a vast continent that has
+- [18:38.240] many problems and we truly count on you
+- [18:40.960] for your assistance in Sudan and in the
+- [18:43.919] Sahel because no investment can be made
+- [18:46.960] when there is a war for investment. You
+- [18:49.919] need peace. the other heads of state who
+- [18:52.559] are here with me uh represent countries
+- [18:55.360] that are at peace and that has been the
+- [18:58.559] case for some time
+- [19:02.160] when
+- [19:04.400] we also have raw material materials
+- [19:08.320] minerals rare earths
+- [19:11.520] we are not poor countries
+- [19:14.160] we are rich countries when it comes to
+- [19:16.720] raw materials but we need partners to
+- [19:20.240] support us and help us develop those
+- [19:22.320] resources with win-win partnerships.
+- [19:26.240] That is our wish. I often listen to your
+- [19:30.480] remarks and speeches, Mr. President.
+- [19:34.480] We also want our raw materials to be
+- [19:37.840] processed locally in our country so that
+- [19:41.039] we can create value and to create jobs
+- [19:44.880] for youth so that they stop dying. They
+- [19:48.320] are crossing the sea. the ocean to go to
+- [19:51.520] other countries. That is what we want to
+- [19:54.080] have local processing of raw materials.
+- [19:57.360] Uh Gabon has is a rich country. We have
+- [20:00.559] over 2 million inhabitants and a great
+- [20:02.880] deal of uh diversity, raw materials, oil
+- [20:08.559] and gas reserves.
+- [20:11.840] And we would like those resources to be
+- [20:14.240] tapped using an economic model uh that
+- [20:19.440] uh fits
+- [20:22.400] since our liberation.
+- [20:25.600] We have changed how we do trade. We have
+- [20:29.760] focused on transparency and bids for
+- [20:33.360] anyone who wants to come invest in our
+- [20:35.360] country.
+- [20:37.200] If you follow the news, we have also
+- [20:41.760] uh worked on agreements with the
+- [20:44.720] European Union and we wanted to review
+- [20:46.960] those because we didn't think that those
+- [20:49.200] were win-win opportunities. So, our
+- [20:51.120] market is open. We want to process
+- [20:54.559] manganese locally
+- [20:57.840] which you purchase through a company
+- [21:00.799] called Aramat.
+- [21:03.840] And I'm sure that it's more expensive
+- [21:07.280] uh compared to when you can come and buy
+- [21:11.200] it directly from us. In order to do this
+- [21:14.320] local processing, we need 8 to 10 gawatt
+- [21:18.720] of electricity. Again, this is an open
+- [21:22.240] bid. Any American company that wants to
+- [21:24.960] invest in electricity in Gabon is
+- [21:28.640] welcome to take advantage of that
+- [21:30.159] opportunity. Now, looking at defense,
+- [21:33.919] uh the Gulf of Guinea is an issue. There
+- [21:37.280] is maritime piracy in that area and we
+- [21:40.559] want to work together to stabilize it.
+- [21:42.799] You said you had the best equipment, the
+- [21:45.039] best military equipment, and that's what
+- [21:46.720] we'd like to have so that we can stop
+- [21:49.840] maritime piracy in the Gulf of Guinea.
+- [21:52.240] We can't do it alone. We need a reliable
+- [21:56.159] and strong partner that is committed
+- [22:00.000] and that takes real steps, real action.
+- [22:04.320] We also need to be pragmatic. And that's
+- [22:07.360] what you are.
+- [22:09.520] And I'm a general and I am too. I'm
+- [22:11.760] pragmatic. I like it when things move
+- [22:14.159] quickly. Our country is free, open to
+- [22:17.520] one and all. You are welcome to come and
+- [22:20.559] invest. Otherwise, other countries might
+- [22:23.679] come instead of you. Thank you.
+- [22:27.280] Good job. Thank you very much.
+- [22:28.960] Appreciate it.
+- [22:30.880] Okay.
+- [22:35.120] Thank you so much, Mr. President. I
+- [22:38.720] would like to thank you for this
+- [22:40.640] invitation. It is an honor for us
+- [22:46.240] to be here at the White House and to
+- [22:49.200] have this opportunity to speak with you
+- [22:51.919] about the new partnership that you are
+- [22:55.760] putting in place with Africa
+- [22:58.799] particularly for investment.
+- [23:01.360] I also wanted to commend you for your
+- [23:04.080] commitment to peace throughout the world
+- [23:06.799] and the incredible diplomatic success
+- [23:10.080] that you had with the DRC. As my
+- [23:13.120] colleagues mentioned, you said that this
+- [23:16.320] put an end to a long war that claimed
+- [23:19.679] many lives and thankfully you were here
+- [23:23.440] to put an end to this 30-year war. I
+- [23:27.039] also wanted to express that Africa
+- [23:30.960] supports all efforts to bring back peace
+- [23:34.559] to Sudan, Libya, and in the Sahel.
+- [23:39.280] Mr. President, as you've seen, you can
+- [23:43.039] only do business when there is peace and
+- [23:45.840] security, and you build peace everywhere
+- [23:50.159] in the world so that there can be better
+- [23:53.280] investments.
+- [23:56.960] The entire world is grateful to you for
+- [23:59.919] this. Now with respect to my country
+- [24:02.960] Sagal, I have been president for some 15
+- [24:06.720] 16 months now
+- [24:09.760] and I want to reassure all American
+- [24:14.000] investors about our country's political
+- [24:16.799] stability
+- [24:18.559] and our favorable regulatory environment
+- [24:22.960] which we are continuously improving upon
+- [24:25.840] in order to attract more investment.
+- [24:30.320] I wanted to speak about two projects
+- [24:32.880] that I think are an exceptional
+- [24:34.720] opportunity.
+- [24:37.440] I will
+- [24:41.279] uh speak about the US ecological survey
+- [24:44.400] which can help assess
+- [24:47.279] the potential of the minerals in our
+- [24:50.000] country and thanks to American companies
+- [24:53.039] we've been able to discover oil and gas.
+- [25:01.120] some 950
+- [25:03.679] billion cubic
+- [25:06.480] uh meters of gas that we can tap into in
+- [25:12.400] order to support our economy. And again,
+- [25:15.679] here we were able to do this with an
+- [25:18.880] American company. Another project I'd
+- [25:21.520] like to mention and again I would like
+- [25:24.159] to invite American investors
+- [25:26.880] to take part in this uh it's for a
+- [25:30.480] digital city.
+- [25:33.600] We identified a space within the city of
+- [25:37.279] Dar. It has a view of the sea. It's on
+- [25:41.760] some 40 hectares. And this is a great
+- [25:47.360] opportunity for American tech companies
+- [25:49.840] to come in and make DAR a tech city open
+- [25:54.799] to Africa.
+- [25:59.679] I was wondering what your secret was for
+- [26:04.559] uh resolving all these complex crises
+- [26:06.559] and I know you are a tremendous golf
+- [26:08.400] player.
+- [26:10.559] Golf requires concentration and
+- [26:13.039] precision, qualities that also make for
+- [26:14.799] a great leader.
+- [26:16.799] Sagal has exceptional opportunities
+- [26:20.000] to offer, including in the area of
+- [26:23.520] tourism.
+- [26:25.039] So perhaps
+- [26:27.200] an investment could be made in a golf
+- [26:29.360] course in Sagal. It would just be six
+- [26:32.960] hours by flight from New York, from
+- [26:36.480] Miami, from Europe or from uh the golf.
+- [26:40.799] And that would be an opportunity for you
+- [26:42.640] to show off your skills on the golf
+- [26:44.720] course, too. Thank you for your
+- [26:46.159] attention, sir.
+- [26:48.400] Nice. Some way to show off my skills.
+- [26:51.360] It's a long trip to show off my skill,
+- [26:54.080] but that's really nice. And he's led a
+- [26:56.240] very interesting life. He looks like a
+- [26:58.400] very young person. He's a little older
+- [27:00.480] than he looks, but a fantastic job. He
+- [27:04.080] was treated very unfairly by his
+- [27:05.919] government and uh he prevailed and so
+- [27:09.520] congratulations on that. Really congrat.
+- [27:11.840] It was a great job and you've all done a
+- [27:14.240] fantastic job and so we'll be talking to
+- [27:16.559] you as we have the meal. Do you want to
+- [27:19.440] uh ask any questions, please? Where is
+- [27:21.360] my reporter from Africa? There you are.
+- [27:24.320] How are you?
+- [27:27.679] He's very famous in Africa. See,
+- [27:35.919] thank you. Uh, m I have one question for
+- [27:38.480] the African presidents and one question
+- [27:40.880] for President Trump. As you can see, Mr.
+- [27:43.600] President Trump, all the African
+- [27:46.080] presidents are very happy with your
+- [27:48.480] efforts to bring peace in the Democrat
+- [27:51.440] Republic of the Congo. Uh my question to
+- [27:54.240] you is today you are making history by
+- [27:57.440] receiving five African presidents and
+- [28:00.559] showing the interest of the United
+- [28:02.720] States to collaborate and to work close
+- [28:05.039] with the African nations. African
+- [28:07.520] continent is watching. African youth is
+- [28:10.559] watching and this new approach that your
+- [28:13.279] administration is taking to deal with
+- [28:16.080] African nation not only based on help
+- [28:18.559] but in doing business that everybody can
+- [28:21.440] win is really much appreciated for all
+- [28:24.000] the Africans. My question is are you
+- [28:27.120] planning Mr. president in the future to
+- [28:30.080] travel to Africa to see firsthand all
+- [28:34.320] those
+- [28:36.000] countries in Africa all those potential
+- [28:38.240] that those country have and for the
+- [28:41.360] African leaders my question is
+- [28:44.559] as you can see President Trump is
+- [28:46.559] working to bring peace not only in
+- [28:48.240] Africa but also in the world are you all
+- [28:51.279] considering to nominate President Trump
+- [28:53.919] for a Nobel Prize piece
+- [28:57.520] That's a very nice reporter.
+- [29:00.720] I got to meet her two weeks ago when we
+- [29:03.039] had the uh Congo and uh Rwanda and we
+- [29:08.159] had some other people up from Africa and
+- [29:11.360] uh that was the first time. But that's a
+- [29:14.240] very nice I appreciate the questions.
+- [29:16.080] Very nice actually. Um would you like to
+- [29:19.600] I I at some point I would like to go to
+- [29:21.840] Africa. Absolutely. We're going to see
+- [29:23.440] what the schedule is, but at some point
+- [29:25.039] I would like to do that very much. Uh
+- [29:27.200] would you like to give a uh fast answer,
+- [29:29.760] please?
+- [29:33.520] Thank you very much.
+- [29:36.480] Microphone, please.
+- [29:39.840] Please.
+- [29:41.760] Of course we
+- [29:48.480] we are in uh favor of this dynamic for
+- [29:52.720] peace.
+- [29:54.399] We are very committed on peace. I am the
+- [29:58.320] first head of state who went to Russia
+- [30:01.039] and who went to Ukraine both since the
+- [30:03.760] start of the war.
+- [30:05.840] I was I held the presidency of Ekawas
+- [30:09.120] and I went to see Mr. Putin. We uh spoke
+- [30:13.360] for four hours and then I went to
+- [30:15.200] Ukraine.
+- [30:17.520] I spent 12 hours on a train to speak to
+- [30:20.640] President Zullinski. But now the weight
+- [30:23.200] of President Trump is something else
+- [30:25.200] altogether. We are with you. We are
+- [30:27.919] behind you to see what we can do to help
+- [30:31.279] bring peace back. No one wins when
+- [30:34.000] there's war.
+- [30:36.320] So you have our support
+- [30:39.440] so that we can bring peace back. Thank
+- [30:42.159] you.
+- [30:42.720] Thank you very much. Appreciate it.
+- [30:45.760] Go ahead, please.
+- [30:50.799] Thank you, Mr. President Trump. Thank
+- [30:53.200] you
+- [30:55.840] for your questions.
+- [31:00.159] A Nobel Peace Prize. While I don't see
+- [31:03.200] any problem with it, I think that uh
+- [31:05.919] President Trump deserves it for all the
+- [31:08.559] efforts that he's worked on and uh he
+- [31:13.760] brought peace back in the SEAK region uh
+- [31:18.799] that is my region, the region where DRC
+- [31:21.760] and uh Rwanda uh signed a deal. And so
+- [31:25.520] he is now bringing peace back into a
+- [31:28.799] region where that was never possible.
+- [31:30.640] So, I believe that he does deserve a
+- [31:33.279] Nobel Peace Prize. That is my opinion on
+- [31:36.559] this.
+- [31:37.440] Well, thank you very much. Very nice.
+- [31:40.240] Thank you. I didn't know I'd be treated
+- [31:42.399] this nicely. This is great. We could do
+- [31:45.039] this all day long. Thank you very much.
+- [31:47.679] Please go ahead.
+- [31:51.600] Mr. President, we I believe that uh
+- [31:55.679] we have to continue to support America's
+- [32:02.080] in the strength to be able to bring
+- [32:03.919] about peace in the world.
+- [32:06.960] America is a melting point and also a
+- [32:10.480] country that we all look forward to. And
+- [32:13.760] I want to encourage you
+- [32:16.559] because without peace we we cannot have
+- [32:18.799] a war to live in. and we stand with you
+- [32:22.000] on that.
+- [32:24.159] Thank you. Well said. Please.
+- [32:30.159] Thank you, Mr. President. And uh thank
+- [32:32.399] you uh for your question.
+- [32:36.240] Very important question indeed.
+- [32:39.919] Forgive me for saying this, but
+- [32:41.679] unfortunately
+- [32:43.840] I don't really understand. I don't know
+- [32:46.799] how things work when it comes to Nobel
+- [32:49.519] prizes, but I can guarantee you that
+- [32:54.240] Mortenia would never be opposed to uh
+- [32:56.880] President Trump receiving a Nobel P
+- [32:59.440] peace prize
+- [33:02.080] because he's already working very hard
+- [33:04.799] in favor of peace throughout the world
+- [33:07.760] with no distinction, no regard to what
+- [33:12.159] continent it's on. and he's working on
+- [33:15.760] areas where there are tensions
+- [33:17.120] everywhere and he's committed towards
+- [33:19.679] peace and our world needs more peace.
+- [33:22.320] Thank you
+- [33:23.440] very much. Thank you.
+- [33:28.320] Thank you very much.
+- [33:31.760] The jury will decide.
+- [33:34.720] It's not a matter of voting amongst our
+- [33:37.360] countries. But what is for sure is that
+- [33:40.720] the results and the work has been done
+- [33:43.200] in such a short amount of time
+- [33:48.399] show that
+- [33:51.360] you would be a good recipient and I'm
+- [33:54.240] sure that the jury sees that and the
+- [33:56.559] rest of the world sees it as well and
+- [33:58.320] understands it. When the time comes I
+- [34:00.960] think
+- [34:02.559] everyone will see that it is a deserved
+- [34:06.080] prize. Congratulations on what you've
+- [34:08.720] done so far. If we uh took a poll, I
+- [34:12.960] think you would be very far ahead in
+- [34:14.560] those polls.
+- [34:16.800] That's very nice. All of you, thank you
+- [34:18.879] very much. I appreciate it. Peter,
+- [34:20.879] thank you. President Trump, James Comey,
+- [34:22.960] and John Brennan now under criminal
+- [34:24.960] investigation related to the Trump
+- [34:26.800] Russia probe. Do you want to see these
+- [34:29.280] two guys behind bars? Well, I know
+- [34:32.720] nothing about it other than what I read
+- [34:35.200] today, but I will tell you I think
+- [34:37.200] they're very dishonest people. I think
+- [34:39.839] they're crooked as hell and uh maybe
+- [34:43.919] they have to pay a price for that. I I
+- [34:46.159] believe they are truly bad people and
+- [34:49.599] dishonest people. So, whatever happens
+- [34:52.000] happens. And now a few weeks after the
+- [34:54.480] strikes that you ordered on the nuclear
+- [34:56.000] facilities in Iran, there is an Iranian
+- [34:58.160] facil uh an Iranian official who says
+- [35:01.119] you, President Trump, have done
+- [35:02.960] something that he can no longer sunbathe
+- [35:05.359] in Mara Lago as you lie there with your
+- [35:08.800] stomach to the sun. A small drone might
+- [35:11.520] hit you in the navl. It's very simple.
+- [35:15.040] Do you think that's a real threat?
+- [35:17.200] And when is the last time you went
+- [35:18.400] sunbathing anyway?
+- [35:19.599] It's been a long time. It's been a long
+- [35:21.680] time. I don't know. Maybe I was around
+- [35:25.040] seven or so. I'm not too big into it. Uh
+- [35:30.480] yeah, I guess it's a threat. I'm not
+- [35:33.119] sure it's a threat actually, but it
+- [35:35.040] perhaps it is.
+- [35:36.480] And on one other subject, uh two
+- [35:38.560] Democratic senators now, Cory Booker and
+- [35:40.320] Alex Padilla, have a new bill out. They
+- [35:42.400] want to require CBP and ICE officers to
+- [35:44.400] have legible IDs, and they don't want
+- [35:48.160] CBP or ICE officers covering their
+- [35:50.640] faces. Would you ever sign that?
+- [35:53.119] Well, they wouldn't uh be saying that if
+- [35:56.079] they didn't hate our country, and they
+- [35:58.640] obviously do. I'm surprised that they
+- [36:00.400] would do it knowing a little bit about
+- [36:02.240] them. I don't know them well, but uh
+- [36:06.560] these officers are doing a tremendous
+- [36:08.640] job. They're great patriots. uh if you
+- [36:11.680] expose them because of you know
+- [36:13.520] statements like have been made by
+- [36:16.000] Democrats and others on the left usually
+- [36:18.720] mostly I think probably exclusively uh
+- [36:21.440] you put them in great danger tremendous
+- [36:23.920] danger and it's sort of funny when
+- [36:26.320] people pick it in front of Colombia in
+- [36:28.560] front of Harvard and they have masks on
+- [36:30.960] more than masks I mean you can't see
+- [36:32.720] anything nobody complains about that but
+- [36:35.839] when a uh patriot who works for ICE or
+- [36:40.640] border patrol puts a mask on so that
+- [36:43.839] they won't recognize him and his family
+- [36:47.280] um so they can lead a little bit of a a
+- [36:50.079] normal life after having worked so hard
+- [36:51.839] and so dangerously. There's a problem
+- [36:54.320] with that. So they have their this is
+- [36:56.640] why this is the problem with the
+- [36:58.000] Democrats. They have they have a lot of
+- [37:00.400] bad things going on in their heads.
+- [37:02.880] They're they've really become very uh
+- [37:05.599] they've lost their confidence number one
+- [37:07.520] and they're really they become somewhat
+- [37:10.560] deranged. Uh I want to do whatever's
+- [37:13.359] necessary to protect our great law
+- [37:16.240] enforcement people and they are right at
+- [37:17.920] the top of the list.
+- [37:19.200] And your agriculture department also
+- [37:21.119] announced this week that they are going
+- [37:22.240] to start limiting Chinese ownership of
+- [37:24.720] American farmland. Why do you think that
+- [37:28.480] the Chinese have been buying up all this
+- [37:30.720] farmland in our country? so close to
+- [37:33.599] military installations.
+- [37:35.280] Well, I don't want to get into that. I
+- [37:36.960] have a very good relationship with
+- [37:38.560] President Xi. We're going to see and I'm
+- [37:40.160] going to, you know, they're going to be
+- [37:41.520] making a recommendation to me, but we
+- [37:44.000] have a very good relationship. As you
+- [37:45.839] know, we uh they're paying a lot of
+- [37:48.000] tariffs to the United States now and uh
+- [37:52.800] so I'm not going to get into that right
+- [37:54.480] now.
+- [37:55.680] Yeah, please.
+- [37:56.640] Thank you. Um, yesterday the Wall Street
+- [37:58.800] Journal reported that the White House
+- [38:00.480] was uh weighing whether to send another
+- [38:02.720] Patriot air defense system to Ukraine.
+- [38:04.800] Can you confirm that reporting?
+- [38:07.040] They would like it. Uh they've asked for
+- [38:09.040] it. They're very rare indeed, you know,
+- [38:11.599] because a lot of systems have been sent
+- [38:13.839] to Ukraine. Uh but they would like to I
+- [38:16.640] know they made the request. We're going
+- [38:17.920] to have to take a look at it. Very
+- [38:19.760] expensive, very expensive system. It's a
+- [38:22.160] shame that we have to spend so much
+- [38:24.480] money on a war that would have never
+- [38:26.079] happened if I were president. That's a
+- [38:27.839] terrible, terrible war over there. And
+- [38:30.720] uh truly a shame. It's a very sad, you
+- [38:34.160] know, when you talk about a system like
+- [38:35.520] that. Highly sophisticated, tremendous
+- [38:38.160] amount of money, and they're doing it
+- [38:39.680] because they want to prevent death.
+- [38:41.599] They're getting hit hard, very hard. So,
+- [38:44.880] we're looking at it.
+- [38:46.000] Mr. Also on Russian
+- [38:47.280] yesterday, sir, as well, Ukra Ukraine
+- [38:49.200] was hit by over 700 drones sent by
+- [38:51.119] Russia last night. What's your response
+- [38:52.720] to that to that attack?
+- [38:53.839] Well, I've been sort of letting people
+- [38:56.079] know I'm not happy about what's going
+- [38:57.760] on. It's a war that should have never
+- [38:59.359] happened. It should not happen now.
+- [39:00.960] They're losing. Now it's up. I've been
+- [39:02.960] saying 5,000. Now it's up to 7,000.
+- [39:06.000] Think of it. 7,000 people a week on both
+- [39:08.240] sides. 7,000 people. Young, mostly
+- [39:11.359] military people, young souls are dead.
+- [39:15.599] and dying and it should be stopped.
+- [39:19.119] Should be stopped. Very sad to see
+- [39:21.359] what's happening. Yes, please.
+- [39:23.440] Sir, can you explain how you calculated
+- [39:25.760] your latest round of tariffs? Was there
+- [39:27.520] a formula that was used? And do you
+- [39:29.520] expect any of these countries to face
+- [39:31.760] tariffs as well?
+- [39:33.760] The formula was a formula based on
+- [39:37.280] common sense, based on deficits, based
+- [39:40.320] on uh how we've been treated over the
+- [39:43.520] years and based on raw numbers. And
+- [39:46.800] we're going to have a couple of more
+- [39:48.079] coming out today. Brazil, as an example,
+- [39:50.160] has been uh not good to us. Not good at
+- [39:53.680] all. We're going to be releasing a
+- [39:56.240] Brazil number, I think, later on this
+- [39:58.160] afternoon or tomorrow morning. But
+- [40:00.640] they're based on very uh very
+- [40:02.480] substantial facts and also past history.
+- [40:06.000] You look at the past history, we've been
+- [40:08.560] uh we never had anybody in the White
+- [40:11.040] House that understood the numbers or
+- [40:14.640] were into it like I have. You know,
+- [40:16.320] we've taken in hundreds of billions of
+- [40:18.640] dollars in tariffs. Hundreds of
+- [40:20.560] billions.
+- [40:22.079] And we haven't even started yet. And
+- [40:24.960] it's going to be a great thing for our
+- [40:26.320] country. And I think it's going to be a
+- [40:27.520] fair thing for the world. And we really
+- [40:29.520] haven't had too many complaints because
+- [40:31.760] I'm keeping them at a very low number,
+- [40:34.000] very conservative as you would say
+- [40:36.400] number. And we haven't had uh I'm sure
+- [40:39.200] they will be complaining at certain
+- [40:40.960] points, but we haven't had complaints.
+- [40:43.119] We've been treated very unfairly by both
+- [40:45.119] friend and foe. And friend has treated
+- [40:48.160] us very badly. It's not even believable
+- [40:50.960] that for so many years, you know, I was
+- [40:55.280] uh I was using tariffs in my first
+- [40:58.800] administration. We had the most
+- [41:00.079] successful financially administration
+- [41:02.720] that there's ever been. This is going to
+- [41:04.319] be much better. But we got cut short
+- [41:06.640] with the co uh because I didn't think it
+- [41:09.599] was appropriate when you know Italy,
+- [41:12.160] Spain, you saw the horror show that a
+- [41:15.839] lot of the countries went through. So, I
+- [41:18.480] cut it a little bit short, but we took
+- [41:20.160] in hundreds of billions of dollars, and
+- [41:22.000] we had the most successful uh term ever
+- [41:25.119] from a president financially, but this
+- [41:27.920] is going to be much more successful.
+- [41:29.599] Yes, please.
+- [41:30.319] You expect any of the countries here to
+- [41:32.079] face tariffs as well?
+- [41:34.160] Uh, I haven't thought of it, but I maybe
+- [41:36.480] I don't know. Let's see. I like him,
+- [41:37.839] him, him, him, and him. No, I don't
+- [41:40.000] think so. Not too much. He's very good.
+- [41:42.079] These are friends of mine now.
+- [41:44.880] Thank you for Thank you for taking our
+- [41:46.160] questions, Mr. President, you talked
+- [41:47.839] about the amount of external revenue the
+- [41:49.920] country has brought in thanks to your
+- [41:51.440] tariffs. Can you talk about how these
+- [41:53.280] hundreds of billions of dollars that are
+- [41:54.720] getting brought in will help grow the
+- [41:56.720] country. And what do you hope to put it
+- [41:58.160] towards?
+- [41:58.720] Well, bigger than the tariffs actually
+- [42:00.640] are the fact that when you charge the
+- [42:02.400] tariffs at a certain point, they say,
+- [42:03.920] "Well, we can't pay those tariffs. It
+- [42:06.240] doesn't make economic sense. These are
+- [42:07.839] wealthy countries and they or their
+- [42:10.079] companies will come into our country and
+- [42:11.839] build." And that's what's actually
+- [42:13.119] happening. If you had a very low tariff,
+- [42:15.680] there'd be no incentive to do that. If
+- [42:17.359] you have no tariff, like we used to
+- [42:19.040] have, which is so stupid, it's not even
+- [42:22.000] believable. But then obviously they make
+- [42:24.640] their product, the product in their
+- [42:26.480] country, they have the jobs, they have
+- [42:28.319] the income, they have the taxes, they
+- [42:31.200] have everything and they just send it
+- [42:32.560] into us and uh it's jobs that we
+- [42:35.040] wouldn't get. Now, uh, the wheel is
+- [42:38.400] turned and what we're doing is, uh,
+- [42:41.280] we're I mean, more important, we're
+- [42:43.359] taking in hundreds of billions of
+- [42:44.800] dollars, money that we've never seen
+- [42:47.040] before. But more important than that, we
+- [42:49.760] have a lot of people that would rather
+- [42:51.520] not have to pay that. So, they're coming
+- [42:53.119] in and they're building plants, AI. I
+- [42:55.839] mean, we're leading everybody, including
+- [42:57.680] China, by a lot with AI. They're
+- [42:59.680] building their own plant. You heard me
+- [43:01.119] say yesterday, they're building their
+- [43:02.960] own electric generating plants to go
+- [43:05.040] along with the factories or plants that
+- [43:07.520] they're building if they want to do
+- [43:08.800] that. We're getting them fast approvals,
+- [43:11.119] very fast turnarounds. They're using
+- [43:13.520] mostly natural gas to start off, but
+- [43:15.680] they're using coal. They have the right
+- [43:17.119] to use coal. They have the right to use
+- [43:18.800] nuclear. Nuclear's become come a long
+- [43:22.000] way in the last five years. So, uh we're
+- [43:25.119] getting them very fast approvals. We
+- [43:27.119] have uh factories and plants building at
+- [43:29.839] a level that we've never had in this
+- [43:31.359] country before. Yeah.
+- [43:32.560] And secondly, a study from the Council
+- [43:34.400] of Economic Advisors. You put it on
+- [43:35.920] Truth Social yesterday. It showed that
+- [43:37.680] your assessment that tariffs would slow
+- [43:39.920] inflation was accurate and that the
+- [43:41.760] prices of imported goods since February
+- [43:43.680] has fallen. That your assessment was
+- [43:45.680] right, the critics were wrong. Why do
+- [43:47.440] so-called experts continually misread
+- [43:50.240] your economic policy, sir? Well, it's
+- [43:52.720] not the experts. It's the fake news and
+- [43:55.520] a combination of that and the Democrats.
+- [43:57.760] I saw an ad on television today on Fox.
+- [44:01.920] And it was some ad about, oh, Trump has
+- [44:05.119] raised costs. It's the opposite. I
+- [44:07.119] actually put out a statement. I brought
+- [44:09.040] down cost. I brought down the cost of
+- [44:10.880] groceries. I brought down the cost of
+- [44:13.200] energy. Tremendously energy.
+- [44:15.440] Tremendously groceries. If you remember
+- [44:18.000] my first week in office, uh the press
+- [44:21.200] was screaming at me about the cost of
+- [44:22.880] eggs. They were four times higher than
+- [44:24.960] they were just a short time ago. That
+- [44:26.960] was caused by Biden and stupid policies
+- [44:29.040] and and we got that down and by Easter
+- [44:31.599] it was normalized and now it's actually
+- [44:34.079] even at a lower price. So when I see an
+- [44:36.560] ad like that, it's always good to
+- [44:38.160] respond. I feel I feel you have to
+- [44:39.760] respond. It was an ad that things are
+- [44:42.079] more costly. No, they're much less
+- [44:43.760] costly. Uh yesterday a $1.99 a gallon is
+- [44:48.160] two states, three states were selling
+- [44:50.800] gasoline at $1.99. You haven't seen that
+- [44:53.359] for a long time. And I brought costs way
+- [44:56.160] down just about every cost. I can't
+- [44:58.720] think of a cost that went up, but just
+- [45:00.720] about every cost. So what they do is
+- [45:02.160] they lie. I mean, they take ads.
+- [45:05.119] Uh you'd almost think that the u the
+- [45:08.960] advertising station would stop it
+- [45:11.920] because they know it's wrong. It's such
+- [45:14.400] an it's such a lie. All you can do is
+- [45:16.079] say it's a lie and explain it. I guess I
+- [45:18.640] have the ability to explain it at
+- [45:20.720] conferences like this. So, I like to
+- [45:22.400] take advantage of it and and do it. But
+- [45:24.800] costs are substantially down under the
+- [45:26.720] Trump administration.
+- [45:28.880] And uh as you know, Biden had the
+- [45:30.640] highest inflation, I believe, in the
+- [45:33.200] history of our country. They say 48
+- [45:34.880] years, but regardless, I think it was
+- [45:36.720] really the highest in the history of our
+- [45:38.560] country. And uh they were up to numbers
+- [45:41.440] that nobody ever saw before.
+- [45:44.160] And uh we have inflation now totally
+- [45:47.119] under control. We have a Fed chairman
+- [45:49.520] that if he was doing his job properly
+- [45:51.200] would lower interest rates, but we're
+- [45:53.040] bullying through even that. We're doing
+- [45:54.560] so well it's not having that kind of an
+- [45:56.800] impact on us. But you want to see a
+- [45:58.400] rocket ship. U we should we should have
+- [46:01.280] the lowest interest rates because
+- [46:03.920] without us there there's nothing. And we
+- [46:07.119] have a strong country now and we're
+- [46:08.640] taking in a lot of money and other
+- [46:11.520] countries aren't even complaining. They
+- [46:13.119] got away with murder. They took
+- [46:15.119] advantage of a lot of very stupid people
+- [46:16.960] that sat in the seat. Very stupid people
+- [46:19.760] or people that didn't understand
+- [46:21.359] business or something or something was
+- [46:24.079] going on, but hard to believe that they
+- [46:26.240] got away with it for so many years. But
+- [46:28.960] now, and I'm treating them very fairly
+- [46:31.200] again. uh we have countries with
+- [46:33.760] tremendous deficits with us where we
+- [46:36.400] have you know where we essentially lose
+- [46:38.720] a lot of money and uh we are changing
+- [46:43.040] that around very rapidly and I think
+- [46:44.880] it's about time somebody did it.
+- [46:47.359] Sir,
+- [46:48.319] yeah please.
+- [46:48.960] Uh sir, yesterday um you said that you
+- [46:52.079] were not sure who ordered the munitions
+- [46:54.960] um halted to Ukraine. Have you since
+- [46:56.880] been able to figure that out? Well, I
+- [46:58.319] haven't thought about it because we're
+- [46:59.680] looking at Ukraine right now and
+- [47:01.599] munitions, but I have no I have not gone
+- [47:04.000] into it.
+- [47:05.119] What does it say that such a big
+- [47:06.640] decision could be made inside your
+- [47:08.000] government without you knowing?
+- [47:09.599] Uh, I would know if a decision was made.
+- [47:12.400] I will know. I'll be the first to know.
+- [47:15.040] In fact, most likely I'd give the order,
+- [47:16.720] but I haven't done that yet. Yeah,
+- [47:18.800] please.
+- [47:19.200] Sir, can I ask how your meeting with
+- [47:20.640] Netanyahu went over the last couple of
+- [47:22.240] days? And how realistic do you think a
+- [47:24.000] ceasefire is this week?
+- [47:25.359] Well, we're talking about Gaza for the
+- [47:26.960] most part. I think we have a chance this
+- [47:28.400] week or next week, not definitely.
+- [47:30.960] There's nothing def, you know, definite
+- [47:32.800] about war and Gaza and all of the other
+- [47:36.240] places that we all deal with so much.
+- [47:38.880] But, uh, there's a very good chance that
+- [47:40.960] we'll have a settlement, an agreement of
+- [47:43.040] some kind this week and maybe next week
+- [47:46.240] if not on Africa as well, sir. the
+- [47:48.560] African Growth and Opportunity Act,
+- [47:50.160] which has been central to many
+- [47:51.760] subsaharan uh countries having access to
+- [47:54.480] the US market, that's due to expire in
+- [47:56.640] September. Are you hoping to extend that
+- [47:59.680] uh beyond it?
+- [48:00.480] Well, we'll take a look at that. Yes,
+- [48:02.079] please.
+- [48:03.359] Uh thank you. That's that's up to
+- [48:05.280] Congress to take a first crack at. Uh we
+- [48:07.760] know that program has been in place for
+- [48:09.119] about 20 years and at the end result of
+- [48:11.359] that uh we see a lot of other countries
+- [48:13.760] operating in Africa. We still see a lot
+- [48:15.680] of tariff and non-tariff barriers in
+- [48:17.280] Africa. So I think anything any
+- [48:19.280] discussion about that act would also
+- [48:20.880] have to think about how we address those
+- [48:22.480] kinds of barriers.
+- [48:23.920] Yeah, Peter, President Trump in Al
+- [48:26.000] Verado, Texas a few days ago, 10 people
+- [48:29.680] wearing all black, allegedly set off
+- [48:32.400] fireworks outside an ICE office to lure
+- [48:35.520] the officers out so they could ambush
+- [48:37.359] them, shoot at them. They had guns and
+- [48:40.079] vests and two-way radios. Do you think
+- [48:42.720] that this was an isolated incident or do
+- [48:45.119] you think there's a national threat of a
+- [48:47.280] left-wing militia that is targeting ICE
+- [48:51.440] and CBP?
+- [48:52.720] Well, I think you have some very stupid
+- [48:54.640] people in the left who have some money
+- [48:56.240] that are making it available to these
+- [48:58.400] people because you look at the guns they
+- [49:00.079] had, they were brand new. You look at
+- [49:01.599] even the clothing they were wearing, it
+- [49:03.280] looked like it just came out of some
+- [49:05.440] military shop. Uh so you have some very
+- [49:08.480] stupid people that uh if anything ever
+- [49:11.280] happened they'd be the first to go. They
+- [49:12.880] don't understand that they'd be the
+- [49:14.240] first to go. They'd be the first ones
+- [49:16.240] hit. But they are there is money being
+- [49:19.440] put behind people when you look at the
+- [49:21.520] weapons they have. Uh the newness of the
+- [49:24.800] weapons rifles that just came out and
+- [49:26.720] they have the latest model. So there's
+- [49:29.680] something going on and we'll get to the
+- [49:31.280] bottom of it. And what do you think the
+- [49:33.119] penalty should be for these people who
+- [49:35.760] are if they are found guilty for people
+- [49:37.680] who shoot at ICE officers?
+- [49:40.720] Very very stiff. Very stiff.
+- [49:44.160] Uh a long time in jail. A long time.
+- [49:49.040] And one got hit yesterday in the neck
+- [49:51.760] and he fortunately uh it's going to be
+- [49:53.599] okay. But he got hit yesterday in the
+- [49:55.440] neck. No good. And what would you think
+- [49:58.319] if I read you a quote from a lawmaker
+- [50:00.400] who says about ICE to abolish it, to
+- [50:03.680] treat them as criminals or anything that
+- [50:05.599] is inappropriate and outrageous? And I
+- [50:08.160] told you that that was Democrat John
+- [50:10.559] Federman.
+- [50:11.760] Well, it's uh by the way, I assume when
+- [50:15.200] you read that because you paused in the
+- [50:16.880] middle, uh you you you're going to have
+- [50:19.200] to read that again without the pause.
+- [50:20.880] Could you read that again, please? to
+- [50:23.040] abolish it, to treat them as criminals
+- [50:25.040] or anything that's inappropriate and
+- [50:27.359] outrageous.
+- [50:28.319] So, he's saying that to treat the people
+- [50:30.319] that did the shooting is
+- [50:32.000] ICE officers.
+- [50:33.359] Oh, okay. Good. Because the way you read
+- [50:35.520] it, it really was the opposite. But
+- [50:37.839] that's okay. That's all right. I think I
+- [50:40.400] think that's what he meant. No, the the
+- [50:42.000] new John Federman is exactly what you
+- [50:44.400] said. He's right. He's right. And we
+- [50:46.880] have to protect our police officers and
+- [50:48.640] we will. And we have been uh if you saw
+- [50:51.040] the uh stats released by the FBI the
+- [50:53.680] other day, the murder rates way down,
+- [50:56.000] the lowest it's been in a long time and
+- [50:58.000] that took place over the last six
+- [50:59.440] months. For the last six months, murder,
+- [51:01.599] it's a hell of a subject to have to talk
+- [51:03.280] about, but murder is way down at almost
+- [51:07.440] getting to be modern-day records. So
+- [51:09.599] that's that's despite the fact that we
+- [51:11.680] have a lot of people that came into the
+- [51:13.119] country that shouldn't be here.
+- [51:14.720] Mr. President, Mr. President.
+- [51:16.079] Yes, please.
+- [51:16.800] So two questions. one on tariffs, the
+- [51:18.880] other on the IRS. On tariffs, uh, China
+- [51:22.720] is reportedly softening their impact on
+- [51:25.280] US tariffs in Africa, announcing last
+- [51:27.520] month that they would halt charges on
+- [51:29.760] imports for nearly all of its African
+- [51:32.240] partners. Good. Does this move by China
+- [51:35.440] uh influence your thinking, your
+- [51:37.119] approach to tariffs on the continent?
+- [51:38.720] Well, we treat Africa great in many
+- [51:40.720] different ways, including with tariffs,
+- [51:42.640] but uh you know, parts of Africa charge
+- [51:45.760] us tremendous tariffs as you know, and
+- [51:48.480] they're going to be dropping those
+- [51:49.680] tariffs. They've already informed me
+- [51:51.280] they're going to be dropping those
+- [51:52.400] tariff, but we treat Africa far better
+- [51:54.720] than China or anybody else any place
+- [51:57.119] else. Yeah.
+- [51:57.839] And and on the IRS, the IRS says that
+- [51:59.760] churches can now endorse political
+- [52:01.599] candidates. Uh what's your reaction to
+- [52:04.160] this? And do you how do you expect this
+- [52:06.720] to influence some of the work that's a
+- [52:09.119] foot on the continent? There's a lot of
+- [52:11.520] American churches that are missionaries
+- [52:13.760] doing missionary work on the continent.
+- [52:15.760] Uh do you support that?
+- [52:17.359] I love the fact that churches can
+- [52:19.200] endorse
+- [52:20.480] a political candidate. I think so
+- [52:22.559] because uh we have a lot of respect for
+- [52:24.800] the people that lead the church for the
+- [52:26.640] pastors and the ministers and the rabbis
+- [52:29.599] and the uh
+- [52:32.160] all different leaders all different
+- [52:33.839] religions and people respect those
+- [52:35.599] people and uh I think there's nothing
+- [52:37.680] wrong you know it was a very big penalty
+- [52:39.839] if that hap took place just a little
+- [52:42.240] while ago they had a thing called the
+- [52:43.920] Johnson Act and it was a very big
+- [52:46.079] penalty I think it's great if uh a
+- [52:48.640] pastor minister priest rabbi I uh and we
+- [52:53.119] could very much go into your your
+- [52:54.880] religion by the way, which is something
+- [52:56.720] that people are having great respect for
+- [52:59.040] throughout the world. Uh if somebody uh
+- [53:02.960] of faith wants to endorse, I think it's
+- [53:05.119] something that I'd like to hear. And I'd
+- [53:07.040] also I can I can guarantee you uh the
+- [53:10.000] people that they're with every Saturday
+- [53:11.760] or Sunday or whatever it is they're
+- [53:14.480] with, they want to hear from these
+- [53:15.920] people. And it was a very severe
+- [53:17.760] penalty. Those people were not allowed
+- [53:19.839] to speak up. Now they're allowed to
+- [53:21.200] speak up. No, I think it's terrific.
+- [53:23.119] Mr. President,
+- [53:24.559] your administration took new actions
+- [53:26.400] against Harvard University today. Are
+- [53:28.240] you still optimistic about reaching a
+- [53:30.079] deal with the university?
+- [53:31.040] Oh, yeah. I think so. Harvard's been
+- [53:32.480] very bad, totally anti-Semitic
+- [53:35.040] and uh yeah, they'll they'll absolutely
+- [53:38.640] reach a deal. Peter,
+- [53:39.839] I just got a text from our colleague
+- [53:41.599] John Roberts. He says that uh we are now
+- [53:43.760] reporting the guy who was arrested in
+- [53:46.160] the Alvarado, Texas incident for
+- [53:48.640] tampering with the evidence was a green
+- [53:51.119] card recipient under the Biden
+- [53:53.200] administration and a prior DACA
+- [53:55.520] recipient.
+- [53:56.480] What do you think of that?
+- [53:57.280] It's very sad. It's very bad. A lot of
+- [54:00.160] them are here. We came in and 21 million
+- [54:03.680] I think it's higher than that by the
+- [54:05.040] way, but they say 21 million people came
+- [54:07.520] in. Many of them are criminals. Many of
+- [54:09.920] them are murderers. 11,888
+- [54:12.720] is what they say are murderers and uh
+- [54:17.040] they came in through open border
+- [54:18.880] policies. No checking, no vetting, no
+- [54:21.359] nothing. Uh and we have a lot of that
+- [54:23.760] and despite that we have crime down
+- [54:25.680] which is pretty amazing.
+- [54:27.200] And this is a this is a long
+- [54:28.800] say hello to John. Say hello to John
+- [54:30.319] Roberts.
+- [54:30.720] Well, I'm sure he's watching this right
+- [54:31.920] now. Uh a lot of news has broken since
+- [54:34.400] we've been in here. Axio says a secret
+- [54:36.880] White House meeting between Steve
+- [54:38.160] Wickoff, Ron Durmer, and a Qatari envoy
+- [54:40.800] on Tuesday led to significant progress
+- [54:43.119] in the negotiations over the Gaza
+- [54:44.800] hostage and ceasefire deal. What can you
+- [54:46.400] tell us about this secret?
+- [54:47.280] Very possible. I will tell you we're
+- [54:48.880] getting very close to a deal. I don't
+- [54:50.640] know if it's secret or not secret, but
+- [54:52.800] doesn't matter to me. Secret's fine if
+- [54:54.800] it gets us to where we want to be. We
+- [54:56.960] want to have a ceasefire. We want to
+- [54:58.319] have peace. We want to get the hostages
+- [55:00.000] back, and I think we're close to doing
+- [55:02.400] it. Okay. Thank you all very much. Thank
+- [55:04.720] you very much.
+- [55:06.960] Thank you.

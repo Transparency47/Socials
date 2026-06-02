@@ -1,0 +1,1215 @@
+<!-- source: https://www.youtube.com/watch?v=u3I2JUNGTCI -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: u3I2JUNGTCI -->
+<!-- date_published: 2026-04-06T22:29:57+00:00 -->
+<!-- date_accessed: 2026-06-02T01:02:07.359699+00:00 -->
+
+# Transcript: President Trump and the First Lady Participate in the 2026 White House Easter Egg Roll
+
+- [00:09.920] Ladies and gentlemen, the President of
+- [00:11.759] the United States, Donald J. Trump, and
+- [00:14.400] First Lady Melania Trump, accompanied by
+- [00:16.640] the Easter Bunny.
+- [00:41.840] Master Gunnery Sergeant Kevin Baneer,
+- [00:44.000] accompanied by the president's own
+- [00:45.440] United States Marine Bands, will now
+- [00:47.600] honor America with the singing of our
+- [00:49.200] national anthem.
+- [00:52.800] Oh, say can you see
+- [00:56.559] by the dawn's early light, what so
+- [01:01.199] proudly we hailed
+- [01:04.720] at the twilight last gleaming
+- [01:09.119] whose stripes and bright stars
+- [01:13.119] through the perilous
+- [01:15.600] fight
+- [01:17.280] or the ramparts we watch were so
+- [01:22.320] gallantly
+- [01:24.080] streaming
+- [01:26.159] and the rockets red glare.
+- [01:30.560] The bubs bursting
+- [01:32.799] in air
+- [01:34.960] gave proof through the night
+- [01:39.280] that our flag was still there.
+- [01:43.759] Oh, say does that star spangle
+- [01:48.799] banner yet wave
+- [01:54.560] for the land
+- [01:57.520] of the free
+- [02:01.119] and the home
+- [02:03.920] of the brave.
+- [02:25.360] Does he have a good voice or what?
+- [02:28.080] >> I think we're going to send him to the
+- [02:29.599] Met. We'll get a little commission, make
+- [02:32.400] a lot of money because that man can
+- [02:34.000] sing. Thank you very much. It's not the
+- [02:36.000] first time we've heard him.
+- [02:38.319] So today is a very special day. It's a
+- [02:41.360] day where we celebrate Jesus. It's a day
+- [02:44.239] where we celebrate religion and it's an
+- [02:47.920] honor to be the president of the United
+- [02:49.920] States. Our country is doing so well
+- [02:52.720] like it has never done before. You'll
+- [02:54.720] see that very shortly. And things that
+- [02:57.120] we've done have not been done before.
+- [02:58.879] We've broken every record on the stock
+- [03:00.720] market. We've broken every record on our
+- [03:03.120] military. And what about the rescue that
+- [03:06.319] took place yesterday? What about that?
+- [03:10.720] That's something that you rarely see.
+- [03:12.480] You know, they were giving me a briefing
+- [03:14.239] about that. And they said, "Normally,
+- [03:16.640] when you're in very hostile territory,
+- [03:19.440] and I don't think it gets much more
+- [03:20.879] hostile than Iran. They're capable
+- [03:23.360] fighters. They're very tough people."
+- [03:25.920] And there are others like that. You
+- [03:27.680] don't mind when the enemy is weak, but
+- [03:29.360] that enemy is strong. Not so strong like
+- [03:32.000] they were about a month ago. I can tell
+- [03:33.680] you in fact right now they're not too
+- [03:36.080] strong at all in my opinion. But we're
+- [03:38.000] soon going to find out, aren't we? But
+- [03:40.239] when a thing like that happens where a
+- [03:42.239] pilot shot down, in most instances
+- [03:44.720] you're really not able to go in because
+- [03:47.599] you'll go in with 200 people and lots of
+- [03:50.640] jet fighters and helicopters and uh you
+- [03:53.920] really don't have a chance. They get
+- [03:55.599] shot down. You lose 200 in order to pick
+- [03:58.560] up one. It's a horrible thing, but it's
+- [04:00.400] very rare that you can do it. And what
+- [04:02.400] we did yesterday is we picked up not
+- [04:04.400] one, we picked up two, we kept the first
+- [04:06.239] one quiet and we were able to keep it
+- [04:09.040] quiet for about a day, which made it a
+- [04:10.959] lot better. But those two pilots were
+- [04:13.200] incredible, brave, and we thank them.
+- [04:15.360] And we're going to be having a news
+- [04:17.120] conference today at 1:00 at the Oval
+- [04:19.280] Office, and we look forward to it. But I
+- [04:22.079] just want to say we have a great
+- [04:23.280] military. We have the greatest military,
+- [04:25.040] the most powerful military any place in
+- [04:27.680] the world. You saw what happened with
+- [04:29.120] Venezuela.
+- [04:33.680] And it's an honor. I built it on my
+- [04:36.479] first term and I didn't know I was going
+- [04:38.160] to be using it this much in my second
+- [04:39.919] term, but it's my honor and they're the
+- [04:42.160] greatest people on earth. Our warriors
+- [04:43.759] are the greatest fighters on earth. And
+- [04:46.400] uh they very much appreciate you and
+- [04:48.720] love you and that's why they do it. So
+- [04:50.880] this is all about today. I must tell
+- [04:52.720] you, I came out and I expected we were
+- [04:55.600] going to be talking about farmers and we
+- [04:57.680] love our farmers. We were going to talk
+- [04:59.280] about so many different products, but
+- [05:01.040] you know what they want to talk about?
+- [05:02.720] Sir, this is about eggs. Eggs. Because
+- [05:06.960] we have the egg farmers of the entire
+- [05:09.360] country here and they are unbelievable.
+- [05:12.000] And if you remember when I first got
+- [05:14.479] elected, my first news conference with
+- [05:16.479] the fake news, a lot of fake news here
+- [05:18.160] today, but I had a news conference and
+- [05:22.080] the first question, what are you going
+- [05:23.840] to do about eggs, sir? I said, what do
+- [05:26.560] you what's wrong with eggs? I just got
+- [05:28.160] there. It's my second day in office at a
+- [05:30.240] news conference. And they were screaming
+- [05:32.400] at me. What am I going to do about eggs?
+- [05:35.120] And they said, "Well, it's like uh
+- [05:37.440] what's tell me what's wrong with eggs?"
+- [05:39.600] The price was so high. It was four times
+- [05:42.160] higher than it was a year before. I
+- [05:44.800] said, "Well, that sounds like a problem.
+- [05:46.479] Let me think about it." And Brooke
+- [05:47.919] Rollins, our great secretary of
+- [05:50.080] agriculture, she got involved. We all
+- [05:51.919] got involved. They didn't want me, as
+- [05:55.039] you know, just last year, it's hard to
+- [05:56.639] believe, they didn't want me to order
+- [05:59.280] eggs for the Easter egg roll, the Easter
+- [06:02.400] egg hunt that we have here every year.
+- [06:04.319] They wanted me to use plastic. I said,
+- [06:06.880] "I'm not using plastic. We'll get it
+- [06:08.960] solved." And within a short period of
+- [06:11.120] time, eggs came down. They came down
+- [06:13.120] 40%, 50%. And by the time we got there,
+- [06:16.720] we had so many eggs, we didn't know what
+- [06:18.400] to do with them. And today we have more
+- [06:20.000] than 40,000 eggs supplied by all of the
+- [06:22.880] great egg farmers that are with us. So
+- [06:25.840] it's eggs is a big thing and it was a
+- [06:27.919] big thing to our great first lady who's
+- [06:30.400] here someplace. Let's see. I think this
+- [06:33.039] is our first lady. What do you think of
+- [06:34.720] our first lady? She's a movie star.
+- [06:37.919] I don't know. Do we call her first lady
+- [06:39.680] or a movie star? She has the biggest
+- [06:41.360] movie. Can you believe this?
+- [06:43.440] >> And she deserves it. Would you like to
+- [06:45.840] say a couple of words to your friends?
+- [06:51.039] Happy Easter Monday. I hope you enjoy
+- [06:53.680] this beautiful day. We are celebrating a
+- [06:55.919] ve very special Easter egg agro this
+- [06:58.880] year because it's 250th
+- [07:01.599] birthday of this beautiful nation. Enjoy
+- [07:05.039] it and I hope you um have a wonderful
+- [07:08.880] day.
+- [07:12.240] >> Thanks. Thank you, honey. and she worked
+- [07:15.199] very hard with her staff and the staff
+- [07:17.039] of the White House on really just making
+- [07:19.680] it nice. This is the nicest I've ever
+- [07:21.440] seen it. So, this is my fifth and I will
+- [07:25.599] say that this is it gets better every
+- [07:27.919] time, right? It gets better every time.
+- [07:30.080] You notice the fencing is all brand new.
+- [07:32.560] I said, you know, we could have bought
+- [07:33.919] used fencing and saved a lot of money.
+- [07:35.680] They said, "This is for the this is for
+- [07:37.759] Easter and this is for our egg farmers
+- [07:39.759] and we're going to get new fencing.
+- [07:41.680] Everything's new and everything's
+- [07:42.960] beautiful." and the White House never
+- [07:44.319] looked better and our country never
+- [07:46.400] looked better. So, I just want to thank
+- [07:48.479] everybody. It's been a special period of
+- [07:50.479] time. One year ago, a little bit more,
+- [07:55.039] our country was dead. We had a dead
+- [07:57.680] country. We had an administration that
+- [08:00.400] didn't know what the hell they were
+- [08:01.759] doing. Today, we have the hottest
+- [08:03.840] country anywhere in the world. We're
+- [08:05.440] respected by everybody. And that's the
+- [08:07.120] way we're going to keep it. That's the
+- [08:09.120] way we're going to keep it.
+- [08:11.039] So again, I want to thank all of the uh
+- [08:13.440] associations and the egg farmers and all
+- [08:16.080] of the people that are here. We think we
+- [08:18.319] could have 50,000 people coming all day
+- [08:20.879] long. It's open and they expect between
+- [08:23.199] 30 and 50,000 people. So that's great.
+- [08:26.240] And most importantly, I want to just say
+- [08:28.720] happy Easter and God bless America. We
+- [08:31.199] have the greatest country on earth. God
+- [08:33.919] bless you all. You are very, very
+- [08:36.479] special people. Thank you everybody.
+- [08:38.719] Have a good time.
+- [09:00.000] Heat. Heat.
+- [09:20.640] Heat. Heat.
+- [10:11.360] I'm
+- [10:53.920] Hi.
+- [11:20.880] Are you ready?
+- [11:58.240] You see moving? Nothing.
+- [12:28.399] No,
+- [12:50.079] we don't.
+- [13:33.040] You want this? Yes.
+- [13:45.519] There you go. Where you going, buddy?
+- [13:47.200] This way.
+- [14:09.040] Hola.
+- [14:23.360] I
+- [15:07.120] Okay.
+- [15:15.040] 45.
+- [15:37.440] Heat. Heat.
+- [16:34.959] Come on. Come on.
+- [16:40.160] Heat. Heat.
+- [17:07.679] Oh man.
+- [17:28.960] Thank you very much.
+- [17:35.440] I want to go back.
+- [18:19.679] If you want to go up there and catch
+- [18:21.039] some audio cases with them, that'd be
+- [18:23.679] great.
+- [18:37.039] Heat. Heat.
+- [19:35.440] Heat. Heat.
+- [20:25.520] How close are they?
+- [20:43.679] Sir,
+- [20:46.720] >> thank you.
+- [20:48.240] >> Sir, is Tuesday your final deadline?
+- [20:51.520] >> Mr. President, are you prepared to fin
+- [21:00.159] your final
+- [21:00.559] >> dead? Proposal from this morning.
+- [21:03.120] >> I've seen every proposal you can
+- [21:04.799] imagine.
+- [21:06.320] >> Is your final deadline? Is Tuesday at
+- [21:08.320] 8:00 p.m. your final deadline?
+- [21:10.640] If Iran does not meet your demands, Mr.
+- [21:12.640] President, are you willing to continue
+- [21:14.400] the war?
+- [21:15.039] >> Well, you have to watch.
+- [21:19.120] >> That's an easy question. The answer is
+- [21:20.320] yes, but you'll have to
+- [21:23.200] do the latest proposal.
+- [21:25.360] >> Uh they made a proposal and it's a
+- [21:27.600] significant proposal. It's a significant
+- [21:29.679] step. It's not good enough, but it's a
+- [21:31.760] very significant step. What is that?
+- [21:36.720] >> They have made they're negotiating now
+- [21:38.480] and they have made a very significant
+- [21:40.240] step. We'll see what happens.
+- [21:44.400] >> Have you spoken to Star and also do you
+- [21:46.960] believe the UK can resurrect like Jesus
+- [21:49.120] this Easter weekend?
+- [21:50.400] >> Uh well that's what they need. They have
+- [21:52.880] a long way to go. The UK has a long way
+- [21:55.280] to go.
+- [22:00.240] >> We don't want another Neville
+- [22:02.000] Chamberlain. Do we agree? We don't want
+- [22:04.080] We don't want Neville Chamb.
+- [22:10.559] >> How is the airman that was rescued
+- [22:12.159] doing?
+- [22:12.480] >> Uh, he's doing really well. They're both
+- [22:14.000] doing well. You know, it was two and we
+- [22:16.240] held off the one because we if you if
+- [22:18.880] they would have known we had him. So, we
+- [22:20.480] held off the one. Uh, they are both
+- [22:22.640] recovering very well. They were both
+- [22:24.000] injured and they're doing well.
+- [22:25.440] >> Mr. President,
+- [22:27.280] what are you committing to committing a
+- [22:28.640] war crime in this war with Ukraine with
+- [22:30.559] the fraud? What else?
+- [22:32.320] >> Mr. President, you said that Iran had no
+- [22:34.960] anti- uh aircraft equipment. How were
+- [22:37.840] they able to drop those?
+- [22:39.120] >> Well, you know what? When you do
+- [22:40.320] thousands and thousands of flights and
+- [22:42.559] you have one plane shot down and not
+- [22:44.960] mortally, the two pilots got out, uh,
+- [22:47.520] they got a little bit lucky. And you
+- [22:49.039] know what? In war, you need a little bit
+- [22:50.320] of luck also. They got a little bit
+- [22:51.679] lucky. That's all they got.
+- [22:53.520] >> Stop you from ending the war. What's
+- [22:55.280] stopping you from ending the war?
+- [22:56.799] >> Well, it could end very quickly, the
+- [22:58.320] war. And they do what they have to do.
+- [23:00.000] they have to do certain things. They
+- [23:01.440] know that they've been negotiating, I
+- [23:03.120] think, in good faith. We've had total
+- [23:05.520] regime change. You know, the people
+- [23:07.039] there now are much more reasonable than
+- [23:08.960] the lunatics that you had in phase one
+- [23:11.840] and phase two. They were lunatics. The
+- [23:14.240] people that we we're negotiating with
+- [23:15.840] now in on behalf of Iran are much more
+- [23:19.120] reasonable. You can call it what you
+- [23:21.280] want, but I call it regime change, and I
+- [23:23.520] think most people are giving us credit
+- [23:24.960] for that. The first regime was taken
+- [23:27.360] out. The second regime was taken out.
+- [23:29.120] Now, the third group of people that
+- [23:30.799] we're dealing with is not as
+- [23:32.559] radicalized, and we think they're
+- [23:34.240] actually much smarter.
+- [23:38.480] >> Why did you use such vulgar language in
+- [23:40.240] that social
+- [23:41.520] >> only to make my point?
+- [23:43.520] >> I think you've heard it before,
+- [23:44.799] >> Mr. President.
+- [23:48.320] Have you spoken to the families of the
+- [23:50.080] state?
+- [23:50.400] >> I'm going to be doing it right now,
+- [23:51.679] >> Mr. President.
+- [23:53.360] What do you say to Americans, Mr.
+- [23:55.679] President?
+- [23:57.120] >> Uh, they're foolish because the war is
+- [23:59.919] about one thing. Iran cannot have a
+- [24:02.559] nuclear weapon. Had we not broken the uh
+- [24:07.200] Barack Hussein Obama agreement, you know
+- [24:09.440] that. You know what I'm talking about.
+- [24:10.880] The Iran nuclear deal. This is years
+- [24:12.559] ago, my first term. You would have had a
+- [24:15.600] total Israel would have been gone,
+- [24:18.799] extinguished. Israel would be would have
+- [24:20.559] been wiped off the face of the earth.
+- [24:22.080] and the entire Middle East would have
+- [24:23.760] been at a minimum in big trouble. But I
+- [24:26.559] did it. That was phase one. We killed
+- [24:28.559] Solomoni. Without Solommani. If they had
+- [24:31.039] Solommani would be a whole different
+- [24:32.400] thing. Maybe would still be winning, but
+- [24:34.480] it would have been harder because we are
+- [24:36.799] obliterating that country. And I hate to
+- [24:39.760] do it, but we're obliterating. And they
+- [24:41.520] just don't want to say uncle. They don't
+- [24:43.600] want to cry, as the expression goes,
+- [24:45.360] uncle. But they will. And if they don't,
+- [24:48.559] then they'll have no bridges. They'll
+- [24:50.960] have no power plants. They'll have no
+- [24:53.120] anything. I want to I won't go further
+- [24:54.880] because there are other things that are
+- [24:56.720] worse than those two. And we might have
+- [25:00.159] Well, the the thing if I had my choice,
+- [25:03.039] what would I like to do? Take the oil
+- [25:05.840] because it's there for the taking.
+- [25:07.360] There's not a thing they can do about
+- [25:08.720] it. Unfortunately, the American people
+- [25:10.960] would like to see us come home. If it
+- [25:12.960] were up to me, I'd take the oil. I'd
+- [25:14.799] keep the oil and we'd make plenty of
+- [25:16.400] money. And it also take care of the
+- [25:18.720] people of Iran much better than they've
+- [25:20.559] been taken care of. It's been a horrible
+- [25:22.720] They've killed 45,000 people as of a
+- [25:25.520] month and a half ago. 45,000 protesters.
+- [25:29.120] We don't do that. So, if I had my
+- [25:31.679] choice, I'd keep the oil. But I also
+- [25:34.000] want to make the people of our country
+- [25:35.760] happy. I think most people wouldn't
+- [25:37.440] understand that Vene I'll give you an
+- [25:39.679] example. Venezuela has worked out so
+- [25:42.720] incredibly. We've have 100 million
+- [25:45.279] barrels of oil right now in Houston
+- [25:48.000] being refined. It's been great. The
+- [25:50.080] relationship with Venezuela, the
+- [25:51.760] leaders, has been fantastic. And I think
+- [25:54.320] we're going to have a long-term very
+- [25:55.520] good relationship.
+- [25:58.559] >> And it might be and it might be beyond
+- [26:00.400] long term. You understand what I'm
+- [26:01.600] saying?
+- [26:06.880] The American people don't. How do you
+- [26:09.279] know about it? Well, I tell you what,
+- [26:11.360] I'm pretty good at this stuff. And I go
+- [26:12.880] around and I check. They'd like to see
+- [26:14.480] us win and come home. And uh I
+- [26:17.760] appreciate CNN for the first time maybe
+- [26:19.679] in my life. They did a poll. And
+- [26:21.919] everyone's saying, "Oh, is Trump losing
+- [26:23.600] MAGA?" No, I'm not losing MAGA. MAGA
+- [26:25.440] loves what I'm doing. And CNN did a poll
+- [26:27.919] of MAGA voters, a big poll, very
+- [26:29.760] important poll, Harry. And he went on,
+- [26:32.720] he said, "This is amazing. 100%
+- [26:35.520] support." He said, "I've never had a
+- [26:37.440] 100% poll at anything before." And is,
+- [26:40.559] "Do you support Trump?" MAGA people,
+- [26:42.640] which is, by the way, mostly Republican.
+- [26:44.720] If you if you look, I would say MAGA
+- [26:47.200] makes up a majority like about 95% of
+- [26:51.440] the Republican party. All right? So,
+- [26:53.600] they went out, they did a poll, and CNN
+- [26:55.679] came back 100% support. So, they support
+- [26:59.840] what we're doing, but they would like to
+- [27:01.919] see it end and come back. But remember,
+- [27:04.799] wars last years. We're in there for 34
+- [27:07.279] days, and we've obliterated a very
+- [27:10.159] powerful country in 34 days. Uh, yeah,
+- [27:13.200] if it were up to me, I'd like to keep
+- [27:14.559] the oil. I just don't think the people
+- [27:16.159] of the United States would really
+- [27:17.840] understand.
+- [27:21.919] >> How is it taking care of the Iranian
+- [27:23.679] people if you're
+- [27:25.039] >> Yeah. Who you with? Who you with?
+- [27:26.799] >> Yes.
+- [27:27.840] >> Well, that's a radical left group of
+- [27:29.919] lunatics in your Let me just tell you.
+- [27:32.320] Let me just tell you very fair question.
+- [27:35.840] The Iranian people when they don't hear
+- [27:38.720] bombs go off, they're upset. They want
+- [27:41.440] to hear bombs because they want to be
+- [27:43.279] free. And the only reason they're not
+- [27:45.440] out protesting, you know that, is
+- [27:47.600] because they were informed that if they
+- [27:49.520] protest, like the wrestler and his
+- [27:51.679] friends, if they protest, they will be
+- [27:53.919] shot immediately. And that's an edict
+- [27:56.880] that's in writing. If they protest, if
+- [27:59.600] they go out in the streets, they will be
+- [28:01.520] immediately shot. They don't have guns.
+- [28:04.240] You know, we sent some guns, but the
+- [28:06.720] group that was supposed to give, which I
+- [28:08.720] said would happen to my people. I said
+- [28:10.559] it. I called it. Exactly. We sent guns,
+- [28:13.600] lot of guns. They were supposed to go to
+- [28:15.679] the people so they could fight back
+- [28:17.200] against these thugs. You know what
+- [28:18.640] happened? The people that they sent them
+- [28:20.720] to kept them because they said, "What a
+- [28:23.039] beautiful gun. I think I'll keep it."
+- [28:24.960] So, I'm very upset with a certain group
+- [28:27.120] of people and they're going to pay a big
+- [28:28.720] price for that. But the Iranian people
+- [28:32.000] will fight back as soon as they know
+- [28:34.159] they're not going to be shot and as soon
+- [28:35.760] as they can get weapons. If they had
+- [28:38.320] weapons, not many of them. If they had
+- [28:40.640] weapons, they would go the other way.
+- [28:42.320] And you know what would happen? Iran
+- [28:44.399] would give up in two seconds because
+- [28:46.080] they wouldn't be able to take it. But in
+- [28:47.840] Iran, they have absolutely no weaponry.
+- [28:50.320] And they've been told point blank, if
+- [28:52.720] you come out, if you come out to the
+- [28:54.480] streets, you will be killed. As of this
+- [28:56.640] morning, and we have this on pretty good
+- [28:58.720] information, 45,000 protesters have been
+- [29:02.159] killed. Pretty bad.
+- [29:06.000] Mr. President, you said Iran has been
+- [29:07.840] obliterated. Why are we still at war
+- [29:09.600] then?
+- [29:11.200] >> Uh, it's a big country. They can't fight
+- [29:13.679] back. They have no capability. Uh, I
+- [29:17.760] mean they'll have they have some
+- [29:19.039] missiles left. They have some drones
+- [29:21.200] left, but essentially they have no
+- [29:22.640] capability. They had a lucky shot with
+- [29:25.200] an airplane, but we got them back out.
+- [29:26.880] The rescue was incredible. And it wasn't
+- [29:28.559] of one person, it was of two person.
+- [29:31.039] There are those that say that's never
+- [29:32.480] happened before. Cuz usually when you're
+- [29:34.159] shot down in strong enemy and deep enemy
+- [29:37.360] territory, you can't go after them
+- [29:39.279] because you'll end up losing 250 people
+- [29:41.440] to get one. So, it's a terrible thing.
+- [29:43.840] But we had to make a decision. Do we do
+- [29:45.679] it or do we not? And we did. And uh you
+- [29:48.480] know, we have some helicopters with a
+- [29:50.080] lot of bullet holes in them right now.
+- [29:51.520] Probably you know that. Now I'm very
+- [29:53.760] honored by I'm very honored to have
+- [29:56.480] rebuilt our military. We rebuilt our
+- [29:58.720] military in my first term. I'm using it
+- [30:00.799] in our second term and we are the most
+- [30:03.120] respected country anywhere in the world
+- [30:05.279] with the greatest military anywhere in
+- [30:07.600] the world. Thank you. So we have a news
+- [30:09.760] conference. You'll all be there. So you
+- [30:11.360] could ask the question in a little
+- [30:12.240] while. We have a news conference in a
+- [30:14.559] little while. What would you like to ask
+- [30:15.760] her?
+- [30:16.399] >> What she wants to say. Madam first lady,
+- [30:18.480] can you tell us your message to children
+- [30:20.799] who find themselves in war zones during
+- [30:23.360] this week?
+- [30:24.799] >> Well, all of this is happening for their
+- [30:27.760] future. So, they will be safe in years
+- [30:31.679] to come.
+- [30:34.799] >> Children that are now in a war zone.
+- [30:37.440] We're keeping them as safe as we can
+- [30:39.039] possibly keep them, but we're fighting
+- [30:41.039] for their parents, their grandparents.
+- [30:42.799] We're fighting for them. We're fighting
+- [30:44.080] for their future. And I will tell you, I
+- [30:46.640] it was given to me loud and clear, the
+- [30:49.120] time the Iranian people are the most
+- [30:51.120] unhappy when you hear bombs all over is
+- [30:53.600] when those bombs stop. That's the
+- [30:56.080] problem. It's uh when they stop because
+- [30:58.559] that means that are they coming back? We
+- [31:00.880] want to have them back. And you know,
+- [31:02.640] everybody knows it. Everybody sees it.
+- [31:04.880] So, uh, hopefully it could be over with
+- [31:07.440] quickly. Again, there are lots of
+- [31:09.440] different alternatives. We have many
+- [31:11.039] alternatives. We could leave right now
+- [31:12.960] and it would take them 15 years to
+- [31:14.480] rebuild what they have. We could leave
+- [31:15.840] right now. But I want to finish it up.
+- [31:18.559] Iran ready cannot have a nuclear weapon.
+- [31:22.000] They are lunatics and you can't put
+- [31:24.240] nuclear weapons in the hands of a
+- [31:25.919] lunatic. Thank you very much.
+- [31:28.640] >> We'll we'll see you at 1:00.
+- [31:37.919] Mr. President,
+- [31:46.880] >> NATO has not stepped up.
+- [31:50.559] >> NATO NATO should be ashamed of
+- [31:52.720] themselves.
+- [31:53.279] >> Mr.
+- [32:05.519] I never saw somebody.
+- [32:07.679] >> It tells you it's a big industry. How
+- [32:09.600] did I do with the voters that do eggs?
+- [32:12.799] >> Did you say 100% or 90%?
+- [32:15.519] >> 100%.
+- [32:16.159] >> Did anybody in the egg industry vote for
+- [32:18.320] Kamala? A low IQ. She's a low IQ person.
+- [32:22.559] Who's a lower IQ person? Biden or
+- [32:24.880] Kamala?
+- [32:26.960] >> Of course. I think that's probably the
+- [32:29.600] toughest question.
+- [32:31.440] >> That's a tough question.
+- [32:32.159] >> President Trump, take a picture of my
+- [32:33.760] best friend.
+- [32:36.960] That's why I voted best.
+- [32:38.320] >> No, no, no. Come, come. You're the best.
+- [32:42.559] >> Wait, wait, my daughter.
+- [32:45.360] Come on, daughter.
+- [32:48.080] >> Come on, mom. Mom's very aggressive.
+- [32:50.640] >> She's an aggressive mom.
+- [32:52.000] >> Yes. Thank you.
+- [32:54.960] the lens.
+- [32:57.360] >> Thank you, sir.
+- [33:00.640] Mr.
+- [33:01.840] Yes,
+- [33:04.640] >> he is. And he's British and he doesn't.
+- [33:06.880] So the little guy,
+- [33:08.960] >> what happened to your
+- [33:11.279] >> president is the first one.
+- [33:17.120] >> How beautiful, how beautiful is that?
+- [33:23.519] >> Ladies and gentlemen, we have the most
+- [33:25.440] powerful man in government with us
+- [33:27.760] today, Mr. Jameson Greer. Have you heard
+- [33:30.320] of him? He's right here. Come on over
+- [33:32.159] here, Jack.
+- [33:33.440] >> How are we doing on trade?
+- [33:35.039] >> Well, sir, we uh we have exported more
+- [33:37.440] in the past two months the United States
+- [33:39.120] have ever exported. Over 300 billion in
+- [33:41.360] January and February. The highest in
+- [33:43.279] American history of exported thanks to
+- [33:44.640] his deals. Terrible.
+- [33:46.880] >> This guy's fantastic. Look at him, my
+- [33:48.720] friend. Huh? You doing okay?
+- [33:50.720] >> Huh? You want to say something so your
+- [33:53.039] son will be impressed? Come on up and
+- [33:54.559] say come on up. This way your son's
+- [33:57.120] going to be impressed. He's high-tech.
+- [33:59.679] >> Yes, sir.
+- [34:00.159] >> He's all Go ahead. Say a couple of
+- [34:01.600] words.
+- [34:02.080] >> Well, the economy is doing great. The
+- [34:04.080] high-tech sector is amazing. AI is
+- [34:05.919] booming. We got so many data centers
+- [34:07.919] going up. It's really incredible.
+- [34:09.280] >> Are you impressed now with your father?
+- [34:11.280] >> He made a beautiful speech.
+- [34:14.560] >> Great. You guys are great.
+- [34:16.560] >> I think we're doing
+- [34:20.639] more.
+- [34:24.320] Okay.
+- [34:29.520] Yes, sir.
+- [34:30.240] >> Regardless,
+- [34:32.560] >> and we're doing well with the electric.
+- [34:34.159] Everything's fine.
+- [34:34.879] >> Yeah.
+- [34:38.480] >> You know that?
+- [34:39.599] >> I think I'm on your schedule for
+- [34:43.280] all my kids.
+- [34:44.240] >> Come on over here, kids. You have a
+- [34:45.520] great day.
+- [34:51.520] >> So, you only have to remember one name.
+- [34:58.720] I know. Can you believe that?
+- [35:01.359] Happy beautiful.
+- [35:04.960] >> Thank you.
+- [35:05.599] >> Thank you. Thank you.
+- [35:21.520] >> What a nice hat.
+- [35:23.920] Where did you get this hat?
+- [35:26.720] >> I want this hat. You're a beautiful hat.
+- [35:30.000] Look at a tall egg guy back there. Huh?
+- [35:32.560] >> That's Jacob.
+- [35:34.960] >> Oh, the tall egg. Yeah.
+- [35:40.880] So, we go this way.
+- [35:56.560] Say, "Hi, Mr. Trump."
+- [35:58.720] >> Say, "Hi, Mr. Trump."
+- [36:11.599] >> Amazing. The last 48 hours
+- [36:25.920] I love that. Where did you get it? I'm
+- [36:27.760] serious.
+- [36:29.599] >> Where did you go?
+- [36:31.280] >> I can't get a hat like that. Look, it's
+- [36:33.440] even It's even got Who's your
+- [36:36.640] >> Well, that's big stuff.
+- [36:39.359] >> You also sign this.
+- [36:40.560] >> Okay.
+- [36:44.320] >> Where? Where? Where? Ready?
+- [36:48.400] >> I don't even mind if it was used before.
+- [36:51.200] >> Are you ready?
+- [36:53.440] >> Ready.
+- [36:54.480] >> Get set.
+- [37:04.640] >> Is everybody watching? You kids are up
+- [37:06.720] there.
+- [37:08.960] >> Are you all ready?
+- [37:11.280] >> Ready. Wait, they got
+- [37:19.200] >> very focus.
+- [37:58.960] Are you ready? Are you ready?
+- [38:09.599] Come on.
+- [38:15.280] >> Ready, get set, go.
+- [38:20.640] >> Hi, Easter.
+- [38:26.560] Good job, baby.
+- [38:37.040] Dad. Dad.
+- [38:49.200] I'm going to go use the Easter money.
+- [39:08.320] They said Donald Trump.
+- [39:44.400] Are you guys ready?
+- [39:56.960] Everybody's
+- [40:07.280] really good
+- [40:12.960] for half there.
+- [40:27.280] It crack
+- [40:43.200] the next phase.
+- [40:44.400] What do we have here? What's this?
+- [40:46.160] >> We are coloring. Want to color?
+- [40:48.160] >> You guys want to do some coloring?
+- [40:55.760] >> That's an impressive
+- [41:17.920] Good job, buddy.
+- [41:35.280] >> Sure. Oh my gosh.
+- [41:48.240] I love this.
+- [41:50.480] My daughter
+- [42:14.480] More
+- [42:31.599] openings down there I can get in the
+- [42:32.960] middle.
+- [42:40.079] me here.
+- [42:44.319] >> I have no idea.
+- [42:55.040] Four more years. Four more years.
+- [43:19.119] Can you can you very
+- [43:27.680] I let Doug back last year?
+- [43:34.560] Never
+- [43:55.200] did the rescue.
+- [44:03.119] God bless you.
+- [44:27.359] >> Come see the bunny. Honey,
+- [44:33.760] >> we love you.
+- [44:52.000] God bless you.
+- [44:54.319] American history
+- [44:56.880] and tomorrow is going to be
+- [44:58.240] infrastructure.
+- [45:01.119] >> God bless you. You know what that means?
+- [45:03.119] Tomorrow is going to be infrastructure
+- [45:04.880] day in Iran.
+- [45:15.599] Number
+- [45:27.280] one movie of the
+- [45:29.680] >> right.
+- [45:46.480] You know, one of them
+- [45:48.960] right there.
+- [45:56.960] Break off.
+- [46:00.079] >> Well, he says great. What is great?
+- [46:14.319] I made it.
+- [46:28.319] You can tell
+- [46:36.800] >> you want to give grandpa
+- [46:42.960] is the only one that doesn't want my
+- [46:44.480] order.
+- [46:47.440] Zero. I would say Carolina has zero
+- [46:50.079] interest.
+- [46:52.000] >> That's nice.
+- [46:53.280] >> I look at the sign just that way. I say
+- [46:55.040] I look I drew it. Look what I did.
+- [46:57.440] Everybody.
+- [47:12.480] We have an auto
+- [47:25.839] take the paper, hand it to his guys,
+- [47:40.480] the big fish. I made.
+- [47:44.319] >> Who likes to take?
+- [47:46.079] >> Does anybody like
+- [48:04.160] it?
+- [48:08.960] Okay.
+- [48:37.200] Daddy here.
+- [48:55.599] Honey, honey,
+- [48:59.599] >> where's yours?
+- [49:15.200] It won't let me
+- [49:23.440] auto.
+- [49:36.079] I want to be able.
+- [49:46.559] >> I want to play.
+- [50:00.000] >> I don't know.
+- [50:02.480] looking.
+- [50:10.960] >> Why did you do this?
+- [50:44.960] Thank you.
+- [50:46.559] >> Thank you very much. Good luck with the
+- [50:47.920] lineback. You're going to have to do a
+- [50:49.839] lot of working out. Yay. Yay.
+- [51:15.440] You're doing a lot.
+- [51:18.559] >> You know what?
+- [51:20.800] See what we're doing. Walkway
+- [51:24.480] problem.
+- [51:30.319] 1799.
+- [51:39.119] >> Oh, hi.
+- [51:50.480] the middle collar
+- [51:54.000] right above the middle.
+- [51:57.520] Now go up front
+- [52:11.359] out.
+- [52:13.280] So the Easter egg gave you more things
+- [52:15.200] to do.
+- [52:15.920] >> Do you think anyone else would see it?
+- [52:39.680] >> Turnberry.
+- [52:41.599] This egg is ready to break.
+- [52:57.440] >> Right here.
+- [52:59.680] Right here. Right here.
+- [53:17.760] Do the other one.
+- [53:34.640] >> Fabulous.
+- [53:39.680] Next thing he's going to do is bring
+- [53:40.880] over a golf ball.
+- [53:43.200] >> He does want you to sign some
+- [53:50.480] golf.
+- [53:52.800] >> Mr. President, this is Josie
+- [53:57.200] and came to our creativity event. She
+- [53:59.280] made a bracelet for you. That's very
+- [54:01.599] nice. Thank you.
+- [54:04.240] Whose
+- [54:08.240] spoon is that?
+- [54:10.480] >> A good idea.
+- [54:13.599] >> My kid brought an egg to sign. We should
+- [54:15.359] have brought a
+- [54:17.040] >> What are we doing?
+- [54:26.400] >> I don't know.
+- [54:30.800] >> We're going to fly back
+- [54:31.599] >> 1:00. You want to go? What time? What
+- [54:34.400] time is it now? Everyone
+- [54:42.800] press this conference is at one.
+- [54:58.240] >> You think the press liked it when they
+- [55:00.400] said more use the press?
+- [55:05.200] And they don't realize that when I'm not
+- [55:07.440] here,
+- [55:08.319] >> they're going to all lose.
+- [55:09.200] >> What are they going to do?
+- [55:10.160] >> They're going to lose their jobs.
+- [55:19.119] >> What's with the Easter egg hunt?
+- [55:24.960] >> Tell us about the Easter. What's going
+- [55:26.640] on with the Easter egg hunt?
+- [55:31.200] >> Thank you.
+- [55:35.440] Who's that?
+- [55:55.280] >> Luke, you better hang on.
+- [56:01.280] We should put our
+- [56:01.920] >> track
+- [56:09.520] music.
+- [56:10.079] >> Let me ask
+- [56:11.920] you the band.
+- [56:18.000] >> Luke, let's see the egg here. Hold it up
+- [56:20.319] for the camera. Show them the egg.
+- [56:22.480] >> What are you going to do with that egg?
+- [56:25.920] >> Oh.
+- [56:30.480] on eBay.
+- [56:40.079] >> On eBay, so buy it and then it sit for
+- [56:43.920] 10 years.
+- [56:44.880] >> I don't think so.
+- [56:46.160] >> Does it last for 10 years? If you don't
+- [56:49.520] open it, can it last for 10 years?
+- [56:53.520] >> I wouldn't I don't know.
+- [57:14.640] Come on now. Get out.
+- [57:18.960] Show dad's
+- [57:20.799] right there.
+- [57:25.520] go.
+- [57:26.319] >> Right here.
+- [57:26.799] >> Okay.
+- [57:29.839] >> Is there Yeah. Is there anything else to
+- [57:31.359] do?
+- [57:31.920] >> Sure.
+- [57:33.359] >> Is there an auto pen around, please?
+- [57:35.839] >> Does anybody have an auto pen? You know,
+- [57:37.440] Biden used to They used to follow him
+- [57:39.119] with an autoen
+- [57:42.559] he gave everything to the auto because
+- [57:44.799] he was incapable of signing, let alone
+- [57:47.200] running a country.
+- [57:59.200] We need a little music.
+- [58:01.599] >> He went to go check on it.
+- [58:03.280] >> Come on. Get Michael moving.
+- [58:05.119] >> Come on, Michael.
+- [58:08.319] >> We're going to be famous.
+- [58:10.319] >> All right, Carolina and Athena and Leo.
+- [58:12.480] Are you guys about done with your
+- [58:13.680] drawing?
+- [58:15.359] >> Do you want to give it to grandpa?
+- [58:17.359] >> Daddy.
+- [58:18.559] >> Daddy. What they say?
+- [58:21.520] >> It's a wooden spoon.
+- [58:23.440] >> You know how I know that?
+- [58:25.280] >> My mother used to use it on me when I
+- [58:28.000] was bad. My mother would use this on me
+- [58:31.280] when I was I recognize it very nicely.
+- [58:35.119] >> I said, "I'll take the wooden spoon." I
+- [58:36.799] said, "Oh,
+- [58:42.880] >> that'll be a front page."
+- [58:45.920] I said,
+- [58:59.359] Leo
+- [58:59.839] >> here. Leo, you want to give him that
+- [59:01.440] sign for you?
+- [59:02.240] >> Yes. Leo,
+- [59:02.960] >> I'll take it to
+- [59:08.880] >> Where's your daughter?
+- [59:10.559] >> Leo.
+- [59:11.200] >> These are my This is my cousin. These
+- [59:13.359] are her kids.
+- [59:14.400] I want you.
+- [59:16.400] >> I'm sorry.
+- [59:16.960] >> You have beautiful hair, but she is much
+- [59:18.400] better.
+- [59:19.280] >> Thank you.
+- [59:19.920] >> You know that. Do you know that?
+- [59:22.319] >> She's your daughter.
+- [59:24.880] >> I'm Laura's cousin.
+- [59:28.720] >> Thank you.
+- [59:46.960] I thought you were 46.
+- [59:48.079] >> I got $4,000.
+- [59:49.440] >> I thought you were 46.
+- [59:56.079] >> And then and then I will have a lot of
+- [59:58.400] money. I'll be richer than my mom.
+- [01:00:04.960] >> Give it to grandpa.
+- [01:00:17.200] Oh, is this my
+- [01:00:22.799] >> Thank you, Carolina.
+- [01:00:25.599] >> The one that fell on the ground. Get
+- [01:00:26.880] that.
+- [01:00:33.760] >> She came there from the Hollywood.
+- [01:00:37.520] movie star.
+- [01:00:39.839] >> Thank you so much.
+- [01:00:42.960] >> Oh my god. What is your favorite color
+- [01:00:46.079] in your house?
+- [01:00:47.920] >> What is your favorite color? What is
+- [01:00:50.240] your favorite color?
+- [01:00:53.200] >> What is your favorite
+- [01:00:56.079] eleant? Did you
+- [01:01:01.280] Donald Trump?
+- [01:01:05.359] So, I want to ask who does her hair? I'd
+- [01:01:08.559] like to have my hair done just like
+- [01:01:10.000] hers,
+- [01:01:11.200] >> but I'm afraid that
+- [01:01:12.799] >> maybe it's not quite thick enough.
+- [01:01:15.200] >> All right. At this point, she's going to
+- [01:01:16.799] own that one.
+- [01:01:18.240] >> Got it.
+- [01:01:18.720] >> I think it's not going to work.
+- [01:01:20.480] >> Okay. Who's is this?
+- [01:01:21.520] >> What is
+- [01:01:23.440] he friend? Is he friend or foe?
+- [01:01:26.880] >> Are you friend or foe?
+- [01:01:28.799] >> They're our only foe in the room.
+- [01:01:30.720] >> He's White House.
+- [01:01:31.440] >> White House.
+- [01:01:32.559] >> Okay. Who's is that?
+- [01:01:34.880] I don't know who wants it. Who wants it?
+- [01:01:39.920] >> Who wants taken away?
+- [01:01:40.880] >> Okay, here's the thing. It's worth
+- [01:01:42.000] $10,000. Who wants to bet?
+- [01:01:48.000] >> That's a lot of money you just
+- [01:01:54.960] want to say bye to grandpa.
+- [01:02:06.720] Okay.
+- [01:02:10.400] >> How did you get Josie up here?
+- [01:02:12.400] >> She's just get
+- [01:02:34.559] Thank you everybody.
+- [01:02:36.400] >> In the press bin, please in the press.
+- [01:02:51.359] Bye kids.
+- [01:03:09.040] Yeah.
+- [01:03:14.000] >> Who's going to be at the press
+- [01:03:15.200] conference?
+- [01:03:16.640] >> Who's not going to be?
+- [01:03:18.720] >> Not me.
+- [01:03:20.640] >> Hey, Tiffany.
+- [01:03:22.319] >> Here we go.
+- [01:03:23.599] >> Coordinate.
+- [01:03:26.880] >> Mr. President, how would it not be a war
+- [01:03:28.720] crime to strike Iran's bridges power
+- [01:03:30.720] plants? because they killed 45,000
+- [01:03:33.280] people in the last month, more than
+- [01:03:35.520] that. Could be as much as 60. They kill
+- [01:03:38.799] protesters. They're animals. And we have
+- [01:03:41.760] to stop them and we can't let them have
+- [01:03:43.440] a nuclear weapon. Very simple. They want
+- [01:03:45.599] a nuclear weapon. They've been trying
+- [01:03:47.119] for a long time. I stopped them with the
+- [01:03:48.960] Obama horrible Iran nuclear deal. I
+- [01:03:52.079] stopped him in a lot of different ways.
+- [01:03:54.400] Got rid of Solomi, the evil genius. He
+- [01:03:57.359] was an evil genius. We got rid of him.
+- [01:03:59.760] And then we stopped it with the B2
+- [01:04:01.359] bombers not so long ago. And if we
+- [01:04:03.359] didn't do it, Israel and the Middle East
+- [01:04:05.599] would have been extinguished by that.
+- [01:04:22.000] And I hope they take my chance. If they
+- [01:04:24.000] don't, it's
+- [01:04:29.839] >> so bad. It's such a bad It's such a bad
+- [01:04:32.960] such a pathetic. Is this your camera?
+- [01:04:36.400] >> You what?
+- [01:04:38.079] Go ahead. Go ahead.
+- [01:04:54.240] But they will uh they'd like to have a
+- [01:04:55.839] ceasefire because they're getting
+- [01:04:57.119] obliterated. So we'll see how they do
+- [01:04:59.440] that. Okay.
+- [01:05:05.520] >> Number one, you have to have a lot of
+- [01:05:06.720] courage to do it because the chances of
+- [01:05:08.720] doing it are very small, successful. And
+- [01:05:11.599] it's amazing that we had nobody even
+- [01:05:13.119] injured. I mean, it's amazing. It never
+- [01:05:15.680] happens when pilots go down in war and
+- [01:05:18.079] you're in tough territory, Vietnam,
+- [01:05:21.039] places like Iran, tough, you know, to
+- [01:05:23.599] fight. They're nasty. Very rarely do you
+- [01:05:28.000] go in because you're going to send 200
+- [01:05:29.760] people in on a mission and that mission
+- [01:05:32.160] will likely be unsuccessful and you're
+- [01:05:34.880] going to get one person and you're going
+- [01:05:36.400] to lose 200 people. So if we did
+- [01:05:38.799] something that was risky to work out
+- [01:05:40.480] amazingly well we have a great military
+- [01:05:42.640] >> fears you're going to lose like the
+- [01:05:43.680] diplomatic
+- [01:05:44.480] >> could have happened
+- [01:05:45.440] >> it seems like diplomatic talks are
+- [01:05:46.799] picking up are you willing to hold off
+- [01:05:48.160] on attack
+- [01:05:49.039] >> well I want to see I don't even want to
+- [01:05:50.319] talk about it because I've given them
+- [01:05:51.760] chances and they haven't taken the show
+- [01:05:53.920] I don't want to really talk
+- [01:05:59.280] back a couple of times are you prepared
+- [01:06:00.799] to move the deadline back again
+- [01:06:03.520] >> highly unlikely they've had plenty of
+- [01:06:05.680] time in fact they asked for seven days.
+- [01:06:07.839] I said, I'm going to give you 10, but at
+- [01:06:10.480] the end of 10, all hell's going to break
+- [01:06:12.079] out if you don't get there.
+- [01:06:13.440] >> Mr. President, do you expect Vice
+- [01:06:14.880] President B to continue to be talking to
+- [01:06:16.720] the intermediaries from Pakistan?
+- [01:06:18.799] >> Well, he is. And we have Steve Wood,
+- [01:06:21.760] Jared Kushner. They're all unified and
+- [01:06:24.480] we're all talking.
+- [01:06:26.319] >> Do you expect the vice president to be
+- [01:06:27.839] involved in an in-person meeting with
+- [01:06:30.480] officials in the coming days?
+- [01:06:32.160] >> Could have
+- [01:06:35.280] relation to Wall Street. Do you have
+- [01:06:36.319] enough?
+- [01:06:39.280] >> I love Hispanics. Happy Easter.
+- [01:06:43.280] >> What advice do you have? You were about
+- [01:06:45.039] to be fatherly
+- [01:06:50.640] married. Is this you? Is this for you?
+- [01:06:52.640] >> Well, we got a No. About to be father
+- [01:06:54.160] right there, too.
+- [01:06:57.280] >> One of my all time favorites. We got to
+- [01:06:59.520] be kidding. You're about to be a father.
+- [01:07:01.039] You've come a long way.
+- [01:07:03.039] >> He's always been fair. and he's always
+- [01:07:05.440] been very went a little astray. Not him,
+- [01:07:09.039] his girlfriend went a little astray, but
+- [01:07:10.720] these are modern day.
+- [01:07:11.680] >> This is really I say on the other side
+- [01:07:13.680] of that coin, we got a father who's
+- [01:07:15.039] problem in the United States. So many
+- [01:07:16.960] kids are growing up without a father,
+- [01:07:18.240] without a father figure. You combine
+- [01:07:19.760] that without the heavenly father being
+- [01:07:21.119] on a lot of their homes. That one too
+- [01:07:22.559] much has cautioned a lot of these
+- [01:07:23.680] Americans. Well, the second thing is a
+- [01:07:25.440] lot to do with reverse and we want to
+- [01:07:28.079] bring religion back into
+- [01:07:30.160] >> bringing religion and we have you know
+- [01:07:31.839] if you see what's going on there's a
+- [01:07:34.240] real resurgence in religion and we like
+- [01:07:36.799] that
+- [01:07:38.400] you I'm very good to see you having real
+- [01:07:41.520] quickly and thanks for your friend. I
+- [01:07:43.280] appreciate that you're going to talk
+- [01:07:44.720] about this.
+- [01:07:46.559] >> Thank you.
+- [01:07:47.839] >> I never stop supporting you ever. Um,
+- [01:07:50.640] they're going to talk about it today at
+- [01:07:51.680] 1:00, but how great was that rescue
+- [01:07:53.760] mission trying to get? Some people say
+- [01:07:55.280] they've never seen it before. There is a
+- [01:07:57.680] theory that it's never happened cuz it's
+- [01:07:59.280] two pilots. It was two. And remember the
+- [01:08:02.079] first day we went into an open desert
+- [01:08:04.079] and that helicopter has so many bullets,
+- [01:08:06.400] you would have respected helicopters and
+- [01:08:08.079] you would have said no way it could
+- [01:08:09.359] stay, right? And if it's loaded up with
+- [01:08:11.520] bullets, that's why we had to go a
+- [01:08:12.720] different way with the other one. And it
+- [01:08:14.079] was tougher because it was, you know,
+- [01:08:16.319] longer the timing and the mountain the
+- [01:08:18.159] mountainous.
+- [01:08:19.839] He was amazing because he was able to
+- [01:08:21.520] get to a place to climb when you're
+- [01:08:23.199] injured. To be able to climb that high
+- [01:08:24.960] is really incredible. They're both very
+- [01:08:28.000] good. They say it has never really been
+- [01:08:30.159] done before for two. It's been done on
+- [01:08:32.239] occasion for one. When a plane goes
+- [01:08:34.880] down, it's truly hostile. You would rate
+- [01:08:37.600] that top of the line for you would say,
+- [01:08:40.719] Kevin, I'm much tougher. tough people,
+- [01:08:43.679] tough fighters.
+- [01:08:45.759] And that's that was central right there.
+- [01:08:48.400] That was central. That was they ran the
+- [01:08:50.640] bus. And when planes go down in
+- [01:08:52.880] territory, whether it's Vietnam or
+- [01:08:55.920] Detroit, the level of of fighting
+- [01:08:59.920] ability, I would say, and you rarely go
+- [01:09:03.199] in because there, you know, we had 200
+- [01:09:05.839] people go in there.
+- [01:09:07.839] because of the location, because of
+- [01:09:10.080] where you are, you're surrounded by guns
+- [01:09:11.759] all over the place. There's guns messing
+- [01:09:13.120] us under the lose 200 people for the
+- [01:09:15.279] sake of getting one.
+- [01:09:17.040] >> So, as much as we want to get our
+- [01:09:18.640] wounded and get our people out of there,
+- [01:09:21.199] we want to do it badly, but it just
+- [01:09:23.440] doesn't happen that much unless somebody
+- [01:09:25.359] else's doing it very risky because we
+- [01:09:28.000] got to lost 100, 200 people in order to
+- [01:09:30.640] get one.
+- [01:09:31.120] >> And it went the other way.
+- [01:09:32.159] >> And it went the other way.
+- [01:09:33.359] >> Mr. President Mr. President,
+- [01:09:35.359] >> they want to I've heard that. Mr.
+- [01:09:37.520] President,
+- [01:09:38.719] >> she should star him. Mr. President,
+- [01:09:41.040] she'd be better. Mr.
+- [01:09:42.239] >> President want to play yourself.
+- [01:09:43.759] >> I pick the best looking guy around. What
+- [01:09:46.080] about yourself?
+- [01:09:46.640] >> If he can't act,
+- [01:09:48.159] >> that's okay. I want the best looking
+- [01:09:50.159] guy. I I don't care if he can act.
+- [01:09:53.359] Mr. President,
+- [01:09:57.040] the fact that you were able to authorize
+- [01:09:58.480] the search and rescue operation, the
+- [01:10:00.000] fact that it was so dangerous, the fact
+- [01:10:01.600] that it was successful, what message
+- [01:10:03.679] does that send to Iran as this deadline
+- [01:10:06.080] come to a deal about the lethality of
+- [01:10:07.920] our military?
+- [01:10:08.880] >> I think they they've seen it for the
+- [01:10:10.560] last uh 40 days. There is no military.
+- [01:10:14.159] Look at what we did with Venezuela and
+- [01:10:16.000] how well that's worked out. We're taking
+- [01:10:17.679] in hundreds of millions of barrels of
+- [01:10:20.000] oil. It's been an amazing relationship.
+- [01:10:22.400] we get along. That's the best thing that
+- [01:10:23.920] ever happened to Venezuela. They're back
+- [01:10:25.920] on track. They're doing more business
+- [01:10:28.080] even though we're essentially a
+- [01:10:29.679] partnership on the oil. They're doing
+- [01:10:32.080] more business now in Venezuela than
+- [01:10:33.920] they've ever done before. Money's coming
+- [01:10:35.760] in like it's never come in before. It's
+- [01:10:37.520] amazing. And frankly, we could do the
+- [01:10:40.159] same here because if I had my wish, I
+- [01:10:42.960] would like to be able I would just like
+- [01:10:44.640] to take the oil. But I don't know that
+- [01:10:47.040] the American public wants that. They
+- [01:10:48.800] want us to go in, do what we have to do,
+- [01:10:51.199] and get out. You know what? We we went
+- [01:10:52.960] in for a very simple reason. They're not
+- [01:10:55.040] regime change, but we got regime change.
+- [01:10:57.040] It's a whole different regime. This is a
+- [01:10:59.600] different group of people. They're more
+- [01:11:00.880] moderate. They're smarter, much smarter.
+- [01:11:04.159] And uh you know, we blew up one regime
+- [01:11:06.320] and blew up with another regime and now
+- [01:11:08.560] we're dealing with a third and it is
+- [01:11:10.159] more moderate. It's better. But uh we
+- [01:11:12.560] didn't do it for that. It seems to be a
+- [01:11:15.040] byproduct. We did it for a simple
+- [01:11:17.199] reason, you know, that is no nuclear
+- [01:11:19.440] weapon and they will never have a
+- [01:11:22.719] nuclear weapon. Now, on top of that,
+- [01:11:25.120] we've decimated their military. We've
+- [01:11:26.960] not yet their n their navy is gone.
+- [01:11:28.880] Their air force is gone. Most of their
+- [01:11:30.560] missiles are gone. Most of their drones
+- [01:11:32.239] are gone. We have a hell of a and their
+- [01:11:35.440] leadership is gone. Their radar is gone.
+- [01:11:38.640] Their anti-aircraft is gone. And they'll
+- [01:11:40.880] get a lucky shot off. And you know, if
+- [01:11:42.400] you shoot enough shots into the air,
+- [01:11:44.239] you're going to hit something. And
+- [01:11:45.920] that's what happened. But uh our
+- [01:11:48.320] military is great. We built the military
+- [01:11:50.239] these days. I rebuilt the military in my
+- [01:11:52.320] first term and I'm using my second. Sir,
+- [01:11:54.640] >> do you have a message for the crew to
+- [01:11:56.880] get ready?
+- [01:11:58.080] >> I think they're fantastic. You know, uh
+- [01:12:00.640] Jared and not Jared, this is my other I
+- [01:12:03.920] have two Jareds in my life, right?
+- [01:12:05.440] Jared's done a fantastic job at NASA and
+- [01:12:08.320] he's been amazing and and everybody told
+- [01:12:11.840] me he was going to be good. I didn't
+- [01:12:13.280] know he'd be that good. and he's got
+- [01:12:15.120] that thing hopping. He's got NASA
+- [01:12:16.719] hopping and you know he was an astronaut
+- [01:12:20.159] he's he's done this very successful guy
+- [01:12:22.880] and he's doing great.
+- [01:12:23.920] >> Does it add to the meaning that this
+- [01:12:25.199] happened the 250th year of American
+- [01:12:27.520] independence?
+- [01:12:28.159] >> Well, it's happening then and it's also
+- [01:12:29.920] happening in a time where we're in a
+- [01:12:32.239] very very powerful you could call it a
+- [01:12:34.239] military operation. People like me to
+- [01:12:36.239] call it that because they don't like me
+- [01:12:38.239] using the word war because they say he
+- [01:12:40.880] said war. Oh, but uh let's go on a
+- [01:12:44.239] military operation. But uh no, Jared's
+- [01:12:47.040] doing a great job. NASA is amazing.
+- [01:12:49.040] Actually amazing. And that's some ship
+- [01:12:51.679] and so risky. Personally, I wouldn't
+- [01:12:54.159] want to do it. Okay. We all have
+- [01:12:56.080] courage. I would prefer not to.
+- [01:12:58.080] >> And President Trump, do you ever think
+- [01:12:59.440] you'd see the Trump arrangement syndrome
+- [01:13:01.120] so bad that you got people on Twitter
+- [01:13:02.880] look like they're even rooting for Iran?
+- [01:13:05.120] >> Uh yeah, they're sick people. They're
+- [01:13:07.120] sick people and they're weak people. You
+- [01:13:09.040] know, people that are rooting for
+- [01:13:11.360] they're weak, ineffective people, they
+- [01:13:14.000] lost. But you put them up in front. Put
+- [01:13:16.320] them right in front of me right here.
+- [01:13:18.000] And they wouldn't open their mouth. They
+- [01:13:20.320] wouldn't open their mouth. They're very
+- [01:13:21.920] weak, ineffective people.
+- [01:13:23.199] >> Mr.
+- [01:13:29.360] Who's doing the legal challenge?
+- [01:13:30.719] >> It's a group of veterans, sir.
+- [01:13:32.880] >> Group of veterans
+- [01:13:34.080] >> because it structure between
+- [01:13:37.440] >> You got to be kidding. This was approved
+- [01:13:40.480] a hundred years ago. You know that never
+- [01:13:42.480] got built. It was stopped by a thing
+- [01:13:45.360] called the Civil War. Maybe that circle
+- [01:13:48.159] has sat there vacant for hundreds like
+- [01:13:51.760] 150 years or something. They tried to do
+- [01:13:54.400] it again in around 1901, but it never
+- [01:13:57.280] happened. Now I think we're doing very
+- [01:13:59.600] well. I think it's going very good. And
+- [01:14:01.360] our veterans are the ones that should
+- [01:14:02.640] like it. It's called the triumphal ark.
+- [01:14:04.800] It's in honor of the veterans. Mr.
+- [01:14:06.719] President, you got the master weakness.
+- [01:14:08.159] Yes, I will.
+- [01:14:08.800] >> Mr. President,
+- [01:14:09.520] >> Mr. President, what would you say to the
+- [01:14:10.880] people who might be concerned that
+- [01:14:12.480] bombing civilian power plants could be a
+- [01:14:14.480] war crime?
+- [01:14:16.480] >> I'm not worried about it. You know
+- [01:14:17.920] what's a war crime? Having a nuclear
+- [01:14:20.000] weapon. Allowing a sick country with
+- [01:14:22.640] demented leadership have a nuclear
+- [01:14:25.040] weapon. That's a war crime. And if I
+- [01:14:27.440] allowed that to happen like seven other
+- [01:14:29.440] presidents did, every president said,
+- [01:14:32.080] you know, many of them are saying be off
+- [01:14:34.080] the record and they're saying behind the
+- [01:14:35.600] scenes, they should have done this a
+- [01:14:37.360] long time ago. Other for 47 years, this
+- [01:14:40.960] has been going on. And every one of
+- [01:14:42.719] those presidents should have done it.
+- [01:14:45.199] And actually, as you know, off the
+- [01:14:47.840] record, they're doing it off the record
+- [01:14:49.600] because they haven't got the courage to
+- [01:14:50.960] say it. Those presidents have given me a
+- [01:14:53.360] lot of credit. This should have been
+- [01:14:54.800] done by Obama. should have been done by
+- [01:14:56.640] Clinton. Should have been done by the
+- [01:14:58.080] Bushes. It should have been done and it
+- [01:15:00.640] would have been a lot easier if it was
+- [01:15:02.159] done a long time ago, right? You agree
+- [01:15:04.080] with me?
+- [01:15:04.560] >> Yes, sir.
+- [01:15:05.360] >> You know, the war crime war crime is
+- [01:15:07.360] allowing Iran to have a nuclear weapon.
+- [01:15:10.320] And take a look at countries. Take a
+- [01:15:11.920] look what if they would have had a
+- [01:15:13.280] nuclear weapon, they would have used it.
+- [01:15:14.719] You'd have no Israel. You'd have no
+- [01:15:17.040] Middle East right now. And they would
+- [01:15:19.280] have been coming here. I'm not going to
+- [01:15:20.640] let that. That would have been a
+- [01:15:21.760] workound. Thank you. Eggman. Can I have
+- [01:15:24.880] a hand?
+- [01:15:27.040] >> Excuse me,
+- [01:15:28.400] >> Mr. President.
+- [01:15:35.920] >> We'll see you at the news conference.

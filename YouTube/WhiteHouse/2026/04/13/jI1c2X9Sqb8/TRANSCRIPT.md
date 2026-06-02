@@ -1,0 +1,416 @@
+<!-- source: https://www.youtube.com/watch?v=jI1c2X9Sqb8 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: jI1c2X9Sqb8 -->
+<!-- date_published: 2026-04-13T18:09:38+00:00 -->
+<!-- date_accessed: 2026-06-02T01:01:49.068946+00:00 -->
+
+# Transcript: President Trump Receives a DoorDash Delivery
+
+- [00:10.010] The President: Hello. Nice to see you.
+- [00:11.930] Sharon Simmons: Nice to meet you.
+- [00:13.330] I have your DoorDash order for you, Mr. President.
+- [00:16.790] The President: That's very nice. Look at this.
+- [00:19.210] This doesn't look staged, does it?
+- [00:21.540] Sharon Simmons: They're all your favorites.
+- [00:23.000] The President: These are good. DoorDash is doing a good job.
+- [00:25.140] Sharon Simmons: We try.
+- [00:26.340] The President: So the reason for this is the fact
+- [00:29.730] that I heard you picked up an extra $11,000
+- [00:33.100] that you didn't think you'd get because the tax bill was so big,
+- [00:36.750] the refund was the biggest you've ever had.
+- [00:38.820] Is that a correct statement?
+- [00:40.330] Sharon Simmons: It definitely was.
+- [00:41.610] The President: Yeah?
+- [00:42.860] Sharon Simmons: Yeah.
+- [00:44.080] I saved over $11,000 by not having to claim.
+- [00:47.930] The President: Was that surprising to you?
+- [00:49.970] Sharon Simmons: It was very surprising, very surprising.
+- [00:52.070] The President: Great, Big, Beautiful Bill.
+- [00:53.380] And that doesn't include overtime, in your case.
+- [00:55.400] This is only just based on what we did
+- [00:58.320] in terms of every other aspect of the tax bill. Right?
+- [01:01.170] Sharon Simmons: Yes, sir.
+- [01:02.420] The President: So it was $11,007?
+- [01:03.650] Sharon Simmons: Yes.
+- [01:04.850] The President: Isn't that incredible?
+- [01:06.390] And that's what it is, the tax cut.
+- [01:08.130] It's really -- you know,
+- [01:09.500] we call it the Great, Big, Beautiful Bill.
+- [01:11.100] We should call it the great, big, beautiful tax cut bill,
+- [01:14.040] because it's tremendous amounts of money.
+- [01:16.770] And that's overtime.
+- [01:18.040] That's also on Social Security, as you know.
+- [01:19.890] Sharon Simmons: Yes.
+- [01:21.100] The President: And it's pretty amazing.
+- [01:22.660] Sharon Simmons: Yes, it is.
+- [01:23.860] The President: You're really nice.
+- [01:25.120] Would you like to do a little news conference with me,
+- [01:27.160] with these people? These are not the nicest people.
+- [01:29.870] They're not nice like you. You know that, right?
+- [01:32.790] Sharon Simmons: I'll do whatever you ask me to do, sir.
+- [01:34.810] The President: So the no tax on tips
+- [01:36.190] is something special, right?
+- [01:37.420] Sharon Simmons: It's very special.
+- [01:38.710] The President: And that's the one that really protects
+- [01:39.930] you more than anything else?
+- [01:41.210] Sharon Simmons: Yes, sir.
+- [01:42.430] The President: It's fantastic.
+- [01:43.710] So it's such an honor to meet you.
+- [01:45.320] And I think you voted for me (Inaudible)
+- [01:47.630] Sharon Simmons: Maybe.
+- [01:48.860] The President: Yeah?
+- [01:50.460] I heard you're a great supporter and we appreciate it.
+- [01:52.370] Sharon Simmons: Thank you.
+- [01:53.590] The President: I'll put this over here.
+- [01:54.890] And why don't we have a news conference with the press?
+- [01:56.670] Sharon Simmons: OK.
+- [01:56.760] The President: You want to do it?
+- [01:58.030] Sharon Simmons: Sure.
+- [01:59.320] The President: You don't have to say too much, I think.
+- [02:01.060] They're looking about Hormuz Strait and various other things.
+- [02:04.940] Do you have any questions?
+- [02:07.100] The Press: Mr. President, did you post
+- [02:08.970] that picture of yourself depicted as Jesus Christ?
+- [02:11.740] The President: Well, it wasn't depicted. It was me.
+- [02:14.460] I did post it, and I thought it was me as a doctor,
+- [02:17.560] and had to do with Red cross as a Red cross worker there,
+- [02:20.490] which we support.
+- [02:21.970] And only the fake news could come up with that one.
+- [02:25.220] So I -- I had -- I just heard about it
+- [02:29.280] and I said, how did they come up with that?
+- [02:31.730] It's supposed to be me as a doctor,
+- [02:33.890] making people better, and I do make people better.
+- [02:36.060] I make people a lot better. As an example, the $11,000 --
+- [02:41.140] I understand your husband is going through a treatment.
+- [02:43.520] Sharon Simmons: Yes, sir. Yes, sir. He has cancer.
+- [02:44.900] The President: He's going through
+- [02:46.110] some very serious cancer treatments,
+- [02:48.210] so this goes a long way.
+- [02:50.020] Sharon Simmons: Yes, sir, it sure does.
+- [02:51.610] The Press: Mr. President,
+- [02:52.840] are another round of talks planned with Iran?
+- [02:55.880] And if so, will you send Vice President JD Vance there?
+- [02:59.830] The President: Well, he's done a good job, and Steve and Jared.
+- [03:02.600] They've all done a very good job.
+- [03:04.230] And I can tell you that we've been called by the other side.
+- [03:08.480] They'd like to make a deal very badly, very badly.
+- [03:11.740] The Press: What was the sticking point over?
+- [03:13.300] You said it was over nuclear.
+- [03:14.880] The President: It was over nuclear, very similar.
+- [03:16.870] Yeah, very good. I guess you're listening.
+- [03:18.400] It's over the fact
+- [03:19.960] that they will never have a nuclear weapon, Iran.
+- [03:23.400] You marking it down?
+- [03:24.740] Iran will not have a nuclear weapon.
+- [03:27.530] And we agreed to a lot of things,
+- [03:29.980] but they didn't agree to that
+- [03:31.930] and I think they will agree to it.
+- [03:33.220] I'm almost sure of it. In fact, I am sure of it.
+- [03:35.440] If they don't agree, there's no deal.
+- [03:36.980] There'll never be a deal.
+- [03:38.430] Iran will not have a nuclear weapon
+- [03:40.320] and we're going to get the dust back.
+- [03:42.320] We'll get it back.
+- [03:43.610] Either we'll get it back from them or we'll take it.
+- [03:45.840] The Press: Mr. President, as far as the naval blockade
+- [03:47.800] is concerned, what's the end game?
+- [03:49.280] Is it to force Iran back to the negotiating table?
+- [03:52.610] Is it to open up the straits
+- [03:54.430] so that gas prices ultimately come down?
+- [03:55.840] The President: Maybe everything.
+- [03:57.060] I mean, both of those things, certainly, and more. OK?
+- [04:00.690] We can't let a country blackmail or extort the world
+- [04:06.440] because that's what they're doing.
+- [04:07.830] They're really blackmailing the world.
+- [04:09.300] We're not going to let that happen.
+- [04:11.120] And, you know, the amazing thing is,
+- [04:13.440] we don't -- can you believe this?
+- [04:15.290] We don't use the strait. We don't need the strait.
+- [04:17.130] We have our own oil and gas, much more than we need.
+- [04:20.570] We have more oil and gas than Saudi Arabia.
+- [04:23.200] Think of this, we produce more,
+- [04:25.120] Saudi Arabia and Russia to it, substantially more.
+- [04:29.480] And by next year, we'll have double that amount.
+- [04:32.480] So we don't need it but the world needs it.
+- [04:35.090] And many ships are heading to our country right now
+- [04:38.670] as we speak to load up with the best --
+- [04:42.290] Really, I guess you could say,
+- [04:43.670] somebody said the best and sweetest.
+- [04:45.550] I don't know exactly what sweet is,
+- [04:47.570] but when it relates to oil, it's a good thing.
+- [04:50.430] Uh, but they're coming to our country right now.
+- [04:52.530] There are many boats coming to our country.
+- [04:54.110] Now, it could very well be
+- [04:55.840] this is going to be settled before then.
+- [04:58.200] We've been called this morning by the right people,
+- [05:02.350] the appropriate people, and they want to work a deal.
+- [05:04.540] They would like to work a deal.
+- [05:05.800] The Press: Is it your anticipation, Mr. President,
+- [05:07.680] that other countries will assist in this effort
+- [05:10.630] to blockade Iran and (Inaudible)
+- [05:13.030] The President: Yeah, other countries are going to also.
+- [05:15.560] We don't need other countries, frankly,
+- [05:17.140] but they've offered their services.
+- [05:19.960] We'll let it -- we'll let it be known probably tomorrow.
+- [05:22.360] The Press: Has the blockade started, sir?
+- [05:23.930] The President: Yeah, it started, 10:00.
+- [05:26.110] The Press: (inaudible)
+- [05:28.150] supports you and your policy,
+- [05:30.280] praises you for defending religious freedom.
+- [05:33.330] Now saying you owe an apology. Will you apologize?
+- [05:37.260] The President: No, I don't, because Pope Leo
+- [05:38.530] said things that are wrong, that he was very much
+- [05:41.800] against what I'm doing with regard to Iran
+- [05:45.670] and you cannot have a nuclear Iran.
+- [05:47.520] Pope Leo would not be happy with the end result.
+- [05:50.460] You'd have hundreds of millions of people dead,
+- [05:53.340] and it's not going to happen, so I can't --
+- [05:56.470] I think he's very weak on crime and other things.
+- [05:59.650] So I'm not. I mean, he went public.
+- [06:01.660] I'm just responding to Pope Leo.
+- [06:04.060] And, you know, his brother is a big MAGA person
+- [06:06.550] and he's a great guy, Louis.
+- [06:08.590] And I said, I like Louis better than I like the Pope.
+- [06:10.960] No, you have to have law and order in our country
+- [06:13.860] and that's what we have now.
+- [06:16.240] We have the lowest crime numbers we've had in a long time,
+- [06:18.380] despite the fact that many criminals
+- [06:20.970] were allowed into our country.
+- [06:22.260] But we've gotten a lot of them out.
+- [06:24.260] We've done a great job on crime.
+- [06:25.640] So we have the lowest murder rate in 125 years,
+- [06:29.600] since 1900, the lowest murder rate.
+- [06:33.380] So we believe strongly in law and order.
+- [06:36.480] And he seemed to have a problem with that,
+- [06:39.260] so there's nothing to apologize for.
+- [06:41.800] He's wrong.
+- [06:43.090] And the other thing is he didn't like
+- [06:45.440] what we're doing with respect to Iran.
+- [06:47.090] But Iran is a -- wants to be a nuclear nation,
+- [06:51.400] so they can exterminate the world, not going to happen.
+- [06:55.560] The Press: And Mr. President, on Iran,
+- [06:57.910] if a deal is not reached by the end of this ceasefire
+- [07:00.920] does your threat from before still stand?
+- [07:03.190] The President: Yeah, I don't want to comment on that,
+- [07:04.750] but it won't be pleasant for them, let me put it that.
+- [07:08.730] The Press: Has your timetable changed in any way
+- [07:12.130] in terms of ending this conflict?
+- [07:13.760] The President: No, I would -- it's going it's going on,
+- [07:16.440] just right now, there's no fighting.
+- [07:18.360] Right now, we have a blockade. They're doing no business.
+- [07:22.530] I didn't like seeing boats come out
+- [07:24.770] if they were doing business with Iran,
+- [07:26.490] but if they weren't, no boats came out.
+- [07:28.020] So now they're doing Iran is doing absolutely no business,
+- [07:32.020] and we're going to keep it that way very easily.
+- [07:34.540] Don't forget, their Navy is gone,
+- [07:35.970] their air force is gone, their anti-aircraft is gone,
+- [07:39.010] their radar is gone, and their leaders are gone.
+- [07:41.670] That's a lot.
+- [07:42.950] The Press: (Inaudible)
+- [07:46.130] from -- predominantly going to China, Mr. President.
+- [07:49.400] Has Xi Jinping reached out and (Inaudible)
+- [07:50.990] The President: No, but we have a very good relationship
+- [07:52.470] with China.
+- [07:53.710] He would like to see this ended also.
+- [07:56.000] He certainly wants it ended, everyone --
+- [07:57.880] I want to see it ended too
+- [07:59.220] but we can't give a nuclear weapon
+- [08:03.360] to a group of people that have caused nothing
+- [08:06.310] but havoc for 47 years.
+- [08:08.690] Look, I'm the president that's done something about it.
+- [08:11.890] This should have been -- and many other Presidents
+- [08:13.970] regret that they didn't. Yeah.
+- [08:16.390] So I'm doing something.
+- [08:17.680] The Press: Mr. President (Inaudible)
+- [08:18.920] documents that were classified so that Eric
+- [08:21.050] (Inaudible)
+- [08:22.250] not only submitted false information,
+- [08:24.450] but that he had no direct knowledge
+- [08:26.230] of the alleged conversations, all hearsay.
+- [08:29.170] Do feel vindicated by those documents?
+- [08:30.580] The President: Yeah, I do.
+- [08:31.810] They were a bunch of crooked people.
+- [08:33.480] You're talking about with respect
+- [08:34.840] to all of the things that they put against me? Yeah.
+- [08:37.650] The Press: (Inaudible)
+- [08:38.890] The President: Well, it's come out that
+- [08:40.110] in so many different ways --
+- [08:41.370] thank you very much for that question I appreciate it,
+- [08:43.530] but in so many different ways. The election was rigged.
+- [08:46.190] The 2020 election was rigged. We found that out.
+- [08:49.410] What you just said is just a piece of that.
+- [08:52.140] It's a big piece, but minor, relatively speaking,
+- [08:55.470] compared to what they did.
+- [08:56.760] They cheated in the election, they cheated on the vote,
+- [08:59.770] and they cheated in every way possible.
+- [09:01.570] And it's the only way we got an incompetent man
+- [09:03.510] to be a president. And he was an incompetent man.
+- [09:06.040] Many of the things that we're talking about,
+- [09:07.580] even including this,
+- [09:08.850] this would have been settled a long time ago, not now.
+- [09:12.700] And it should have been settled by other presidents.
+- [09:14.830] But the election was a rigged election.
+- [09:16.690] We can't let that happen to our country.
+- [09:18.550] The Press: It's concealment of exculpatory information.
+- [09:20.790] What should happen?
+- [09:22.090] The President: Well, it's a very serious charge against them,
+- [09:24.520] and the Democrats. They cheat.
+- [09:27.760] They can't get elected with that policy.
+- [09:29.530] So their policy is no good.
+- [09:32.130] They want to have I mean, open borders.
+- [09:35.530] They want to have men playing in women's sports.
+- [09:37.640] Do you think that men should play in women's sports?
+- [09:40.940] Sharon Simmons: I really don't have an opinion on that.
+- [09:42.910] The President: You don't? I'll bet you do.
+- [09:44.450] Sharon Simmons: No, I'm here about the tax on tips.
+- [09:47.840] The President: Yeah. Yeah, go ahead, please.
+- [09:53.610] The Press: Thank you, Mr. President.
+- [09:54.840] Is it your understanding that during this period of time,
+- [09:57.370] while the US has instituted this naval blockade,
+- [10:00.060] that oil companies will be able
+- [10:02.110] to send their oil tankers through the strait
+- [10:04.540] and get more oil out from this area?
+- [10:06.010] The President: Yeah, I think
+- [10:07.230] they're going to be doing very well there,
+- [10:08.580] and I think they're doing very well here.
+- [10:11.290] You know, a lot of tankers are coming up here.
+- [10:13.210] They're coming in empty and out full.
+- [10:16.300] And we have a great capacity to take care of that business.
+- [10:19.320] Unidentified: Ma'am. May we know your name please?
+- [10:20.840] Have you delivered to the White House before?
+- [10:22.440] Sharon Simmons: I have not. My name is Sharon Simmons.
+- [10:25.290] The Press: And are the White House good tippers?
+- [10:26.860] Do you know?
+- [10:28.800] The President: Wait.
+- [10:31.720] Sharon Simmons: Potentially. Yes, very.
+- [10:34.110] The Press: Mr. President, can I ask you something else?
+- [10:35.890] The President: That's -- thank you. You reminded me.
+- [10:38.310] The Press: Mr. President, while on Cuba, sir.
+- [10:40.220] You previously said that you had no problem
+- [10:42.820] with countries sending fuel to Cuba
+- [10:46.340] after previously promising to tariff them.
+- [10:48.920] What happened? What changed?
+- [10:50.310] The President: Well, we're going to see with Cuba.
+- [10:51.710] Cuba is another story.
+- [10:53.700] Cuba's been a terribly run country for a long time.
+- [10:56.540] It's got a bad system. It's been very oppressive, as you know.
+- [11:00.560] And we have a lot of great Cuban Americans,
+- [11:02.440] all of whom just about voted for me
+- [11:05.050] and they were treated very badly.
+- [11:06.800] In many cases, family members have been killed.
+- [11:09.150] They've been beaten up and mugged and like --
+- [11:12.490] terrible things happened in Cuba.
+- [11:14.690] And Cuba is a failing nation.
+- [11:17.030] And we're going to do this and we may stop by Cuba
+- [11:20.400] after we're finished with this.
+- [11:21.640] But Cuba is a nation that was just been horribly run
+- [11:26.510] for many years by Castro.
+- [11:28.420] The Press: (inaudible)
+- [11:31.660] regarding those two recent referrals
+- [11:33.990] for Letitia James for insurance fraud,
+- [11:35.970] do you know if federal prosecutors
+- [11:37.740] have evidence to charge?
+- [11:38.950] The President: Well, I don't know.
+- [11:40.190] I know she's a very corrupt person and the --
+- [11:43.970] you're talking about the so-called attorney
+- [11:45.750] general of New York? She's a very corrupt person.
+- [11:48.480] That's been proven now, and I know they --
+- [11:51.700] I have nothing to do with it,
+- [11:53.290] but they're looking at things all over --
+- [11:55.950] all over the place, more than one state,
+- [11:57.720] concerning her and concerning people like Comey,
+- [12:01.040] who's a dirty cop.
+- [12:03.050] Comey's a dirty cop. And dirty cops are bad.
+- [12:06.950] I love -- nobody likes the police more than me,
+- [12:09.670] law enforcement more than me, but Comey's a totally dirty cop,
+- [12:13.790] and I'm not going to -- we're not going to stand for it.
+- [12:15.580] Yeah.
+- [12:16.800] The Press: The UFC fight that's happening
+- [12:18.130] at the White House this summer,
+- [12:19.820] UFC typically numbers those spikes consecutively,
+- [12:23.000] but should they label this one UFC 1776?
+- [12:26.150] The President: That's a good idea.
+- [12:27.460] I'll tell that to Dana White. I like that idea, actually.
+- [12:30.620] I will say, I've been involved with a lot of big events.
+- [12:33.170] I've never had an event that's had more interest
+- [12:36.290] than the UFC fight that we have right at the front door.
+- [12:38.480] Right there. They're going to start building a --
+- [12:40.640] about a 4,500 seat arena and then in the back,
+- [12:45.590] at the ellipse, we're going to have maybe 100,000 --
+- [12:48.750] 50,000 to 100,000 people, I guess.
+- [12:50.520] They're building tremendous stages
+- [12:53.720] and we're going to have massive screens
+- [12:55.830] (Inaudible)
+- [12:57.060] and it's, you know, very popular sport.
+- [12:59.210] But I have never been involved --
+- [13:01.270] because of the White House and everything,
+- [13:02.880] you know, a lot of reasons for it
+- [13:04.340] but we're having a fight at the white House on June 14th.
+- [13:08.230] And we're going to have an arena built right at the front door.
+- [13:11.860] And, you know, if you want, is your husband up to coming,
+- [13:14.860] you think? Does he like UFC?
+- [13:16.360] Sharon Simmons: He might.
+- [13:17.600] The President: If he's feeling good,
+- [13:18.860] we'll make sure you come. OK?
+- [13:20.210] Sharon Simmons: That would be wonderful. Thank you.
+- [13:21.570] The President: That's better than the tip I just gave you.
+- [13:22.970] I'll tell you. That's a lot better.
+- [13:24.430] But, no, if he's feeling good, right?
+- [13:26.090] Is he doing OK? Is he going to be OK?
+- [13:27.570] Sharon Simmons: He's doing very well.
+- [13:28.860] He's doing very well.
+- [13:30.060] He, actually, during the process he wrote a book.
+- [13:36.200] The President: Go ahead, give them the name.
+- [13:37.480] Maybe you'll sell --
+- [13:38.720] Sharon Simmons: He hasn't had it published yet, but it's --
+- [13:41.050] uh, it's a book on humility and his name is Leo
+- [13:45.050] and he's just doing good. He's doing great.
+- [13:49.670] The President: How long are you married?
+- [13:51.410] Sharon Simmons: We have been married for six years.
+- [13:53.630] The President: Oh, oh. That's good.
+- [13:54.990] Sharon Simmons: But we've, you know, like most people,
+- [13:56.850] we've been together for over 10.
+- [13:59.090] The President: That's very good. Well, that's great news.
+- [14:01.490] Say hello to him. He's going to be good.
+- [14:03.310] He's going to get better and he's going to be good.
+- [14:05.000] Sharon Simmons: Yes, sir.
+- [14:06.200] The President: Good. Well, I want to thank you
+- [14:07.600] all and I especially want to thank you for being here.
+- [14:09.870] Sharon Simmons: Well, I want to thank you
+- [14:12.000] for the no tax on tips.
+- [14:13.780] The President: That's great.
+- [14:14.980] Sharon Simmons: It has helped my family out immensely,
+- [14:17.640] and I definitely appreciate it. Thank you.
+- [14:19.490] The President: That's so amazing.
+- [14:20.710] You know, the one thing that I --
+- [14:22.050] just in leaving, we've had more good press for a change,
+- [14:26.770] having to do with the fact that people are receiving more money
+- [14:29.610] from their tax refunds than they ever thought possible.
+- [14:33.580] We had a man the other day, got $5,000
+- [14:35.330] and another one got $7,000.
+- [14:36.570] They weren't expecting anything like this
+- [14:38.840] and it's because of the Great, Big, Beautiful Bill.
+- [14:41.480] And that's why you came and I really appreciate it.
+- [14:43.590] And tell your husband to get better.
+- [14:44.880] Sharon Simmons: I will.
+- [14:46.090] The President: And if you're feeling good,
+- [14:47.360] you'll come up and we'll watch that fight, June 14th.
+- [14:49.170] Sharon Simmons: OK. I appreciate it. Thank you.
+- [14:50.380] The President: All right? Thank you very much.
+- [14:51.640] Sharon Simmons: Thank you so much.
+- [14:52.910] The President: Take care of yourself.
+- [14:54.110] Sharon Simmons: Thank you.
+- [14:55.310] The President: Thank you. Thank you much.
+- [14:57.160] The Press: Any update on who you want to lead DOJ?
+- [14:58.720] Can you give an update?
+- [14:59.950] The President: Well, I think Todd
+- [15:01.180] (Inaudible) is doing a fantastic job.
+- [15:02.630] I will say that. He's a great lawyer.
+- [15:04.040] I know that because he's been with me a long time,
+- [15:07.240] and so far, he's doing a great job.
+- [15:09.950] But we have incredible people in the DOJ,
+- [15:12.120] getting better all the time. Thank you very much, everybody.
+- [15:18.540] Do you want to come in for a second?
+- [15:20.040] Sharon Simmons: I would. Thank you.

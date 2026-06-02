@@ -1,0 +1,749 @@
+<!-- source: https://www.youtube.com/watch?v=xx0ad5vwC08 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: xx0ad5vwC08 -->
+<!-- date_published: 2025-07-08T13:00:52+00:00 -->
+<!-- date_accessed: 2026-06-02T01:21:01.736469+00:00 -->
+
+# Transcript: President Trump Participates in a Dinner with the Prime Minister of the State of Israel
+
+- [00:01.900] The President: Thank you very much, everybody.
+- [00:03.380] It's an honor to have Bibi and Sarah with us,
+- [00:07.330] friends of mine for a long time,
+- [00:08.820] and we had a tremendous success together
+- [00:11.770] and I think it will only go on
+- [00:13.480] to be even greater success in the future.
+- [00:15.570] So it's really nice to have you at the White House.
+- [00:18.720] It's nothing like the White House
+- [00:20.140] and it's great to have you both
+- [00:22.000] and all of your wonderful people.
+- [00:24.160] Ron, we've worked together for a long time
+- [00:25.890] and we've done well together.
+- [00:27.850] We had a great time. We say it's a lot of work,
+- [00:31.740] but we had a great result recently
+- [00:34.590] and we're going to have a lot of great results,
+- [00:36.380] so it's great to have you. Thank you very much.
+- [00:38.320] PM Netanyahu: Thank you.
+- [00:39.740] I want to express the appreciation
+- [00:42.640] and admiration not only of all Israelis,
+- [00:46.630] but of the Jewish people and many,
+- [00:50.520] many admirers around the world for your leadership.
+- [00:53.690] Your leadership of the free world,
+- [00:55.910] your leadership of a just cause,
+- [00:59.660] and the pursuit of peace and security
+- [01:01.830] in which you are leading in many lands.
+- [01:04.410] But now, especially in the Middle East,
+- [01:06.140] we have great opportunities.
+- [01:08.300] President has an extraordinary team,
+- [01:11.110] and I think our teams together
+- [01:12.650] make an extraordinary combination
+- [01:16.860] to meet challenges and seize opportunities.
+- [01:19.730] But the President has already realized great opportunities.
+- [01:24.170] He forged the Abraham Accords.
+- [01:26.470] He's forging peace as we speak in one country,
+- [01:29.450] in one region after the other.
+- [01:31.510] So I want to present to you, Mr. President,
+- [01:34.890] the letter I sent to the Nobel Prize Committee.
+- [01:38.640] It's nominating you for the Peace Prize,
+- [01:40.300] which is well-deserved and you should get it.
+- [01:44.100] The President: Thank you very much.
+- [01:45.340] This I didn't know. Well, thank you very much.
+- [01:49.880] PM Netanyahu: Thank you.
+- [01:51.110] The President: Coming from you in particular,
+- [01:52.510] this is very meaningful. Thank you very much, Bibi.
+- [01:55.240] PM Netanyahu: Thank you for everything you're doing.
+- [01:56.840] The President: Thank you. It's a great honor.
+- [02:01.120] Thank you very much everybody. Appreciate it.
+- [02:03.050] The Press: Mr. President, have you spoken
+- [02:04.350] with any of the families of the victims of the Texas flood,
+- [02:06.850] and can you talk about what you would like to do
+- [02:08.630] when you travel there on Friday?
+- [02:10.300] The President: Well, we're going to just make it as comfortable
+- [02:12.460] as possible for the State of Texas.
+- [02:15.380] They have a great governor. They have wonderful senators,
+- [02:18.360] they have wonderful representatives,
+- [02:19.870] and we're going to work together with them.
+- [02:21.320] And we have been working really very hard.
+- [02:23.480] This whole table has been working.
+- [02:24.830] That was a terrible event.
+- [02:27.440] Terrible event. You saw that Bibi,
+- [02:29.360] where Texas was just absolutely so badly hurt
+- [02:32.420] by something that was a big surprise late in the evening.
+- [02:36.820] So we'll be working with the governor
+- [02:38.370] and all of the people of Texas. We'll be going on Friday.
+- [02:42.960] The Press: Mr. President,
+- [02:44.290] there was a security incident in Northern Gaza today,
+- [02:47.740] quite around the time that the Prime Minister
+- [02:49.610] was meeting the Secretary of State, Mr. Steve Woodcock.
+- [02:53.630] And a number of IDF soldiers reportedly
+- [02:56.470] (inaudible) possibly killed.
+- [02:57.910] Does that in any way put a wrinkle in ceasefire
+- [03:00.470] negotiations with the (inaudible)?
+- [03:02.050] The President: I don't think so.
+- [03:04.100] They want to meet and they want to have that ceasefire,
+- [03:06.450] so I don't think so.
+- [03:08.330] Steve, could you respond to this? You know about it?
+- [03:12.240] Male Speaker: Well, I think it's terribly unfortunate.
+- [03:14.300] Terribly unfortunate.
+- [03:15.950] We were just talking about it, how tragic it is,
+- [03:18.210] but we have an opportunity to finally get a peace deal,
+- [03:21.700] Mr. Prime Minister, as we discussed,
+- [03:24.000] and I'm hopeful for it very quickly.
+- [03:26.970] The Press: Mr. President, are the tariff letters
+- [03:31.280] that you sent today final offers, or are they negotiated?
+- [03:34.630] The President: More or less final offer.
+- [03:36.100] The Press: So South Korea, Japan should take it or leave it?
+- [03:37.780] The President: We're always subject
+- [03:39.040] to negotiate something that's fair.
+- [03:40.830] But we've talked to most of the countries
+- [03:42.460] and pretty much they've had their way for many,
+- [03:45.570] many decades, as you know.
+- [03:47.930] And it was time that we just wanted fairness.
+- [03:49.880] This is not really equitable from our standpoint
+- [03:54.350] because it's just a small token
+- [03:56.530] by comparison to the damage that's been done over the years.
+- [03:59.490] But we had no other President that was willing to do this.
+- [04:02.880] I did it in my first term with China and others.
+- [04:05.620] We took in hundreds of billions of dollars of tariffs.
+- [04:08.350] No inflation.
+- [04:09.570] The most successful period of time
+- [04:11.770] that we've ever had financially in the country the first term.
+- [04:14.750] I think this term's going to be much better,
+- [04:16.620] even much better than that. That was the best ever,
+- [04:19.020] and this is going to be, I think, substantially better.
+- [04:21.420] And we're on the way to doing that.
+- [04:23.620] We've already taken in over a hundred million dollars
+- [04:25.960] worth of tariffs and we haven't even started.
+- [04:28.820] And all I say to the other countries
+- [04:30.810] is some of them wanted to make a deal and want to be fair.
+- [04:34.270] Others perhaps got a little bit spoiled.
+- [04:36.570] They were a little bit spoiled because for 30, 40 years,
+- [04:39.870] 50 years, they were taking advantage of the country.
+- [04:43.160] So we're going to, I would say final.
+- [04:46.240] But if they call with a different offer,
+- [04:48.840] and if I like it, we'll do it.
+- [04:53.720] The Press: Is the August one deadline firm now? Is that it?
+- [04:57.850] The President: No, I would say firm,
+- [04:59.180] but not 100 percent firm. If they call up and they say,
+- [05:02.980] "We'd like to do something a different way,"
+- [05:04.630] we're going to be open to that.
+- [05:05.900] But essentially that's the way it is right now.
+- [05:07.930] The Press: Mr. President,
+- [05:09.270] is your Palestinian relocation plan still on the table?
+- [05:13.030] Is there a plan? Any progress in finding (inaudible)?
+- [05:16.130] The President: Yeah, Bibi,
+- [05:17.350] why don't I let you answer that question?
+- [05:19.680] Wait a minute. Wait, he's got to answer that question.
+- [05:21.490] The Press: Oh, I'm sorry.
+- [05:22.750] PM Netanyahu: I think President Trump
+- [05:23.960] had a brilliant vision. It's called free choice.
+- [05:28.110] If people want to stay, they can stay,
+- [05:31.560] but if they want to leave, they should be able to leave.
+- [05:33.380] It shouldn't be a prison.
+- [05:35.190] It should be an open place and give people a free choice.
+- [05:39.470] We're working with the United States
+- [05:42.180] very closely about finding countries
+- [05:44.730] that will seek to realize what they always say,
+- [05:48.090] that they want to give the Palestinians a better future.
+- [05:53.280] And I think we're getting close to finding several countries,
+- [05:58.270] and I think this will give again, the freedom to choose.
+- [06:02.590] Palestinians should have it,
+- [06:04.150] and I hope that we can secure it close by.
+- [06:07.570] The President: And we've had great cooperation
+- [06:09.250] from surrounding,
+- [06:10.710] meaning surrounding Israel, surrounding countries,
+- [06:13.270] great cooperation from every single one of them.
+- [06:15.760] So something good will happen. Brian, did you have something.
+- [06:19.260] Brian: Mr. President, you've mentioned before,
+- [06:21.430] you want to go down as your legacy as the peacemaker.
+- [06:24.670] Are we in the last chapter of closing out peace
+- [06:28.350] amongst this conflict now
+- [06:29.950] and all the other ones that are going on?
+- [06:31.490] The President: Well, I hope so.
+- [06:32.710] Look, we did a job with India and Pakistan
+- [06:35.380] and Serbia, Kosovo, Rwanda and the Congo.
+- [06:39.550] And this was all over the last three weeks or so, Marco, right?
+- [06:44.830] And others that were ready to fight,
+- [06:48.550] and we stopped a lot of fights. I think a very big one, frankly,
+- [06:52.020] a very, very big one was Indian Pakistan,
+- [06:55.260] and we stopped that over trade.
+- [06:57.210] We're dealing with India, we're dealing with Pakistan,
+- [06:59.450] and we say, "We're not going to be dealing with you at all
+- [07:01.890] if you're going to fight."
+- [07:03.260] And they were maybe at a nuclear stage.
+- [07:05.130] They're both nuclear powers.
+- [07:07.790] And I think stopping that was very important.
+- [07:09.740] We're trying to help out with a Biden-created monster,
+- [07:13.560] this whole thing that's happening with Russia
+- [07:16.010] and Ukraine. It's a horrible thing.
+- [07:19.090] And I'm not happy with President Putin at all.
+- [07:22.530] But this is something that would've never happened
+- [07:24.370] if I were President.
+- [07:25.600] This was a war that was never going to happen.
+- [07:27.080] Go ahead, Brian.
+- [07:28.350] Brian: I was going to say,
+- [07:29.590] how would you address your critics that in the election
+- [07:31.890] they said that you would cause the next World War III,
+- [07:35.940] when in fact you're solving all the problems.
+- [07:38.750] The President: I'm stopping wars.
+- [07:39.970] I'm stopping wars, and I hate to see people killed.
+- [07:44.230] As an example, Ukraine and Russia,
+- [07:46.160] they're not Americans there being killed.
+- [07:48.730] They're not Israeli that are being killed.
+- [07:51.100] These are all Russians and all Ukrainians.
+- [07:56.620] But it's 5,000, maybe 7,000 last week, 7,500 last week.
+- [08:01.480] Mostly soldiers,
+- [08:03.330] but people in towns and cities that are getting hit.
+- [08:05.660] But death is mostly soldiers. They don't come from here,
+- [08:10.830] but it's 7,000 last week souls, and if I can stop that.
+- [08:16.290] They have parents and they have sisters and brothers
+- [08:19.450] and getting married and who knows?
+- [08:23.010] They're just people, but they're souls.
+- [08:25.570] And if I can stop a war because I have an ability to do so --
+- [08:29.640] I'm disappointed, frankly, that President Putin hasn't stopped.
+- [08:34.310] I'm not happy about it either.
+- [08:35.850] The Press: Mr. President, on the Iran talks,
+- [08:37.750] can you say if you've scheduled the next round of Iran talks?
+- [08:40.560] And then also on strikes.
+- [08:41.870] The President: We have scheduled Iran talks
+- [08:43.680] and they want to talk.
+- [08:46.370] They took a big drubbing I think when we hit the three sites,
+- [08:51.930] really I would say the three sites, not just the one.
+- [08:54.140] The one was a big one and it was deep in granite,
+- [08:57.200] and it was obliterated. It turned out the Atomic
+- [09:00.420] The President: My Energy Commission
+- [09:01.750] said it is obliterated.
+- [09:04.170] I would just want to take our hats off
+- [09:06.270] to those incredible flyers,
+- [09:08.510] the people that flew that big machine,
+- [09:10.120] and frankly, the mechanics and everybody else.
+- [09:13.120] They had zero.
+- [09:14.320] They flew for 37 hours with zero problem mechanically.
+- [09:19.580] When you're thinking, carrying the biggest bombs ever,
+- [09:23.800] the biggest bombs that we've ever dropped on anybody
+- [09:27.750] when you think non-nuclear,
+- [09:29.900] and we want to keep it non-nuclear, by the way.
+- [09:32.640] But they did a phenomenal job.
+- [09:34.650] It was an amazing job, and I think that was --
+- [09:37.390] I was talking to Bibi about it before.
+- [09:39.140] That was the very beginning of the end.
+- [09:41.310] It ended very quickly after that.
+- [09:43.460] I don't want to say what it reminded me of,
+- [09:45.460] but if you go back a long time ago,
+- [09:48.030] it reminded people of a certain other event,
+- [09:51.140] and Harry Truman's picture is now in the lobby
+- [09:55.490] in a nice location in the lobby where it should have been.
+- [09:57.810] But that stopped a lot of fighting
+- [10:01.400] and this stopped a lot of fighting.
+- [10:02.680] When that happened, it was a whole different ball game.
+- [10:05.050] The Press: On future Iran strikes, what can you say?
+- [10:07.300] What might make you have the desire
+- [10:08.980] to do another strike on Iran?
+- [10:10.960] The President: Another what?
+- [10:12.260] The Press: Another strike on Iran.
+- [10:13.950] The President: I hope you we're not going to have to do that.
+- [10:16.550] I can't imagine wanting to do that.
+- [10:18.150] I can't imagine them wanting to do it.
+- [10:19.700] They want to meet.
+- [10:20.910] They want to meet, they want to work something out.
+- [10:23.080] The Press: Can you say when?
+- [10:24.300] The President: They're very different now
+- [10:25.500] than they were two weeks ago.
+- [10:27.030] The Press: Is there a date yet, sir,
+- [10:28.280] for the Iran talk, or a city? Do you know when and where
+- [10:33.270] the next round of Iran talks will be?
+- [10:34.950] The President: Well, I can tell you, I'd rather not say,
+- [10:37.050] but you'll be reading about it tomorrow or seeing it tomorrow.
+- [10:41.240] The Press: Mr. President,
+- [10:42.470] what is the holdup currently in a ceasefire with Hamas?
+- [10:46.070] The President: In which?
+- [10:47.350] The Press: In the ceasefire between Israel and Hamas,
+- [10:49.300] what's currently the holdup?
+- [10:52.120] The President: I don't think there is a holdup.
+- [10:53.900] Well, I don't think there's a holdup.
+- [10:55.460] The Press: Do you think that you're going to do a deal?
+- [10:57.280] The President: I think things are going along very well.
+- [10:59.880] They just left each other
+- [11:01.620] and it was not a pleasant period of a few days.
+- [11:04.770] It was longer than a few days,
+- [11:06.220] but this was not a pleasant period of time.
+- [11:09.620] And we were -- at the end, 14 missiles were shot
+- [11:15.140] and every single missile was shot out of the air.
+- [11:17.410] It was pretty amazing, and that was the end.
+- [11:19.350] And they told us they were coming and where they were
+- [11:21.460] and what time they were coming, and they said,
+- [11:23.680] "If you'd like to have a different time, we'll do that."
+- [11:26.350] And that's respect when they do that.
+- [11:28.080] I appreciated that they did that.
+- [11:29.310] There was no surprise.
+- [11:30.570] We got the soldiers out of the base in Qatar
+- [11:34.270] in this case, but they knew they were coming.
+- [11:36.780] 14 missiles were coming. "One o'clock," they said.
+- [11:41.860] "Would you like to make it later?"
+- [11:43.930] They said, "No, let them come at one o'clock."
+- [11:45.850] And at one o'clock, everybody was --
+- [11:48.550] As you know, over 5,000 people left the base,
+- [11:51.890] and we had three gunners and three assistants.
+- [11:55.230] And out of the 14 that was shot, all 14 were knocked down,
+- [11:58.940] and that was the end. That was about it.
+- [12:01.630] And we had a rough time,
+- [12:05.700] but sometimes you need the rough time in order to get --
+- [12:09.350] I think things are going to be
+- [12:10.750] really settled down a lot in the Middle East.
+- [12:13.080] And they respect us and they respect Israel.
+- [12:16.280] They respect a lot of things that took place.
+- [12:19.520] Nobody's ever seen equipment like what we sent over
+- [12:23.160] to knock out those sites,
+- [12:24.830] but when those sites were knocked out,
+- [12:26.490] it essentially, that was the end.
+- [12:28.360] The Press: Do you think that
+- [12:29.730] there can be a two-state solution
+- [12:31.860] that creates an independent Palestine?
+- [12:33.260] The President: I don't know. I'd ask Bibi that question.
+- [12:35.210] You have the greatest man in the world
+- [12:36.930] to answer that age-old question, two-state.
+- [12:39.900] Go ahead. Give him your honest answer.
+- [12:42.830] PM Netanyahu: I think Palestinians should have
+- [12:44.530] all the powers to govern themselves,
+- [12:46.770] but none of the powers to threaten us,
+- [12:49.060] and that means that certain powers like overall security
+- [12:52.290] will always remain in our hands.
+- [12:55.020] Now that is a fact and no one in Israel
+- [12:58.550] will agree to anything else because we don't commit suicide.
+- [13:03.370] We want life, we cherish life for ourselves,
+- [13:06.530] for our neighbors,
+- [13:07.810] and I think we can work out a peace between us
+- [13:12.490] and the entire Middle East with President Trump's leadership.
+- [13:16.870] And by working together, I think we can establish
+- [13:19.870] a very, very broad peace
+- [13:22.450] that will include all our neighbors.
+- [13:24.940] The Press: Mr. President, a question on Iran.
+- [13:27.790] You have asserted that there's complete and total destruction
+- [13:30.580] of their nuclear facilities,
+- [13:31.840] so what is the basis of the talks going forward?
+- [13:34.840] Is it to cap future nuclear activity?
+- [13:37.190] Is it ballistic missiles,
+- [13:38.400] terror support, economic-based opportunities?
+- [13:40.640] What are the-
+- [13:41.910] The President: It's really a good question
+- [13:43.140] because if you remember, when it was done,
+- [13:44.970] I said, "What's the purpose of talking?
+- [13:46.960] It's been knocked out and knocked out completely."
+- [13:50.300] But they've requested a meeting
+- [13:51.990] and I'm going to go to a meeting,
+- [13:53.260] and if we can put something down on paper,
+- [13:55.420] that will be fine. That'll be good.
+- [13:57.910] I think they've gained a lot of respect for us.
+- [14:01.800] I think they've gained a lot of respect for Israel also,
+- [14:04.970] but they would like to meet and we're going to have a meeting.
+- [14:08.270] Steve, when is that meeting going to be? Do you want to say?
+- [14:10.620] The Press: Rather very quickly.
+- [14:12.800] Very quickly, in the next week or so.
+- [14:16.640] The President: So we'll see what happens.
+- [14:17.930] I think it would be nice to memorialize it, put it down,
+- [14:21.160] but because of the incredible result of that attack,
+- [14:28.920] if you want to call it an attack,
+- [14:31.120] I didn't think it was necessary to have it in writing.
+- [14:33.290] I think we spoke.
+- [14:34.500] That speaks much louder than writing,
+- [14:36.160] but I can also understand why they'd want it.
+- [14:38.940] And they've been very nice, they've been very respectful,
+- [14:41.730] and it began by them telling us about 14.
+- [14:44.550] They had to do -- You know what 14 represents, right?
+- [14:46.740] Do you know what 14 represents? Right? You know that, right?
+- [14:50.500] The number of bombs dropped, so it was representative.
+- [14:55.750] We got them all. Behind you, please? No, you.
+- [15:00.160] The Press: Oh, me? Oh.
+- [15:01.420] So this is question for the Prime Minister.
+- [15:03.530] The likely next mayor of New York City,
+- [15:05.650] Zohran Mamdani, a Democrat,
+- [15:07.390] a socialist and a vocal critic of Israel and of yourself,
+- [15:10.740] and has said he would arrest you
+- [15:12.890] if you came to New York City if he was mayor.
+- [15:15.680] Is that something you take seriously?
+- [15:17.160] Are you concerned about that? Do you have a response to that?
+- [15:19.730] PM Netanyahu: No, I'm not concerned about that.
+- [15:21.400] The President: I'll get him out.
+- [15:24.200] PM Netanyahu: Look, there's enough craziness in the world,
+- [15:26.990] but I guess it never ends.
+- [15:29.630] This is folly, and it's silly in many ways
+- [15:35.450] because it's just not serious,
+- [15:37.440] but what is serious is the question I was asked before.
+- [15:40.380] After October 7th, people said the Palestinians had a state,
+- [15:43.710] a Hamas state in Gaza and look what they did with it.
+- [15:45.670] They didn't build it up.
+- [15:46.960] They built down into bunkers, into terror tunnels,
+- [15:50.720] after which they massacred our people,
+- [15:53.260] raped our women, beheaded our men,
+- [15:55.650] invaded our cities and our towns and our kibbutzim,
+- [16:00.500] and did horrendous, horrendous massacres,
+- [16:03.660] the kind of which we didn't see since World War II
+- [16:05.580] and the Nazis, the Holocaust. So people aren't likely to say,
+- [16:09.800] "Let's just give them another state."
+- [16:11.420] It'll be a platform to destroying Israel.
+- [16:13.910] We'll work out a peace with our Palestinian neighbors,
+- [16:17.690] those who don't want to destroy us,
+- [16:20.470] and we'll work out a peace in which our security,
+- [16:23.200] the sovereign power of security always remains in our hands.
+- [16:27.210] Now, people will say, "It's not a complete state.
+- [16:29.200] It's not a state. It's not that."
+- [16:31.280] We don't care. We vowed never again.
+- [16:34.790] Never again is now. It's not going to happen again.
+- [16:38.000] The Press: So we'll see you in New York next year?
+- [16:39.710] PM Netanyahu: Oh, well, look, I'm going to come there
+- [16:42.030] with President Trump and we'll see.
+- [16:47.480] How do you know who the mayor will be?
+- [16:48.890] I don't know that. Do we know that?
+- [16:50.790] The President: He's going to be very fine, and who knows?
+- [16:53.180] We don't know who the mayor's going to be yet,
+- [16:55.650] but this is a communist.
+- [16:56.950] He's not a socialist, he's a communist,
+- [16:59.080] and he's said some really bad things about Jewish people
+- [17:02.200] and he said some really bad things about a lot of people,
+- [17:05.450] and I think he's going through a little bit of a honeymoon
+- [17:08.330] right now, but he might make it.
+- [17:10.050] But it all comes through the White House.
+- [17:11.890] He needs the money through the White House.
+- [17:13.550] He needs a lot. He's going to behave, he'll behave.
+- [17:15.930] He better behave, otherwise he's going to have big problems.
+- [17:18.140] But it's a philosophy that this country is not ready for
+- [17:21.460] and it never will be.
+- [17:22.980] By the way, we have a man with us
+- [17:25.190] who thought this was going to be a very glamorous, easy job.
+- [17:29.460] He's the ambassador to Israel, Mike Huckabee,
+- [17:33.210] former governor, former everything.
+- [17:35.110] I'd say he's a former everything,
+- [17:37.470] and respected and loved by everybody.
+- [17:40.130] And he loves Israel, he loves the state of Israel
+- [17:43.490] and nobody loves it much more.
+- [17:45.680] And he's not Jewish and he loves Israel,
+- [17:48.200] and he wanted to be there.
+- [17:49.440] I said, "You know, Mike, it could be dangerous."
+- [17:51.050] "No, no, no." Well, at least I was right about that.
+- [17:53.890] He was in every bunker you could be in.
+- [17:56.010] He was running around from bunker to bunker,
+- [17:58.200] but he's still with us, fortunately,
+- [18:00.280] and he's done a great job. Would you say a few words, Mike?
+- [18:02.890] Ambassador Huckabee: I just want to say what an honor
+- [18:04.160] it's to serve you, Mr. President,
+- [18:05.670] and to see a historic horizon
+- [18:09.160] that we are looking at in the Middle East.
+- [18:11.340] And when the President made his trip to the Middle East
+- [18:14.690] and then he really reached out to the new Syrian Government
+- [18:19.650] knowing they needed the partner
+- [18:21.500] and knowing that they could pick the wrong partner
+- [18:24.640] and what the President did, which took us all off guard.
+- [18:29.170] But the strategic move in that has set up something
+- [18:33.040] that is absolutely historic. And Mr. President,
+- [18:36.790] I don't even think you fully comprehend the impact
+- [18:40.330] that you're having on the region in a way that is so remarkable.
+- [18:46.520] And it was your leadership, your foresight.
+- [18:49.660] You did that when the B-2s went in,
+- [18:54.880] the celebration, the sense of partnership
+- [18:58.180] that you gave with the Israeli people was so dramatic,
+- [19:02.840] but the message was bigger than to Israel.
+- [19:04.810] It was a message to the world. America's friends can trust us,
+- [19:09.950] but America's foes had better fear us.
+- [19:13.130] And that is a message that the President sent
+- [19:15.350] to everyone on the planet, and it is a message
+- [19:18.720] that will resonate toward a matter of peace,
+- [19:21.720] the likes of which I don't think we've ever seen.
+- [19:23.390] So thank you.
+- [19:24.610] The President: Thank you. Great job you're doing too.
+- [19:25.850] Ambassador Huckabee: Thank you.
+- [19:27.070] The President: They love you over there.
+- [19:28.790] They respect him and they love them.
+- [19:32.560] It's very, very interesting.
+- [19:34.300] We had the pilots here yesterday, as you know,
+- [19:37.630] and they were incredible. And we also had the mechanics,
+- [19:41.450] we had a lot of people here that had to do --
+- [19:44.360] I think about 170 people
+- [19:46.600] that had to do with that incredible journey.
+- [19:49.680] A journey that could have been horrible.
+- [19:51.210] You remember what happened with Jimmy Carter
+- [19:53.470] with the helicopters and all of the problems
+- [19:55.840] and ultimately hostages? We had the exact opposite.
+- [19:59.690] Everything was perfect, it worked perfectly.
+- [20:01.830] But I didn't realize, I was saying to one,
+- [20:04.810] "Is this something that you felt strongly about?"
+- [20:07.370] "Absolutely, sir, I couldn't wait."
+- [20:09.250] I said, "Really better you than me."
+- [20:12.350] But they couldn't wait.
+- [20:14.180] He said, "Sir, we've been practicing for this mission
+- [20:16.400] for more than 20 years."
+- [20:19.000] From just after 2000 they've been thinking
+- [20:22.790] and practicing to go into that area.
+- [20:25.450] I guess you probably know that better than anybody, Pete.
+- [20:29.180] They've been looking at going in,
+- [20:30.460] but they never had a President that would allow them to do it.
+- [20:34.200] And perhaps right, perhaps wrong.
+- [20:36.000] I don't know if that's true or not,
+- [20:37.360] but I didn't realize they were preparing for that journeys
+- [20:40.440] from just a little bit after 2000,
+- [20:42.640] the year 2000 and I was pretty amazed by that.
+- [20:47.010] They knew it. They knew every inch of it.
+- [20:49.710] And they came back and they said,
+- [20:51.790] "We got it better than we ever did in practice."
+- [20:54.280] But they've been practicing for more than 20 years.
+- [20:57.850] Can you imagine? Yeah.
+- [20:59.280] The Press: Mr. President,
+- [21:00.510] are you planning to send more weapons to Ukraine?
+- [21:04.260] The President: We're going to send some more weapons.
+- [21:06.630] They have to be able to defend themselves.
+- [21:08.430] They're getting hit very hard now.
+- [21:10.310] They're getting hit very hard.
+- [21:11.590] We're going to have to send more weapons.
+- [21:13.030] Yeah, defensive weapons primarily.
+- [21:16.340] But they're getting hit very, very hard.
+- [21:19.620] So many people are dying in that mess.
+- [21:22.490] The Press: Mr. President with the One Big Beautiful Bill
+- [21:24.370] now signed into law by you.
+- [21:25.830] What would you like congressional
+- [21:27.580] Republicans to turn their focus to now?
+- [21:29.270] The President: All they have to do now
+- [21:30.480] is talk about how good it is. The biggest tax cuts ever.
+- [21:33.840] No tax on tips, no tax on social security.
+- [21:37.160] Think of it. No tax on overtime. From a business standpoint,
+- [21:42.230] the jobs are coming in like we've never seen them before.
+- [21:45.460] As soon as that was signed,
+- [21:46.700] there were nine factories that announced
+- [21:48.680] that they were building the one-year deductibility,
+- [21:52.360] things that from a business standpoint,
+- [21:54.560] you'd understand, the jobs that are being created.
+- [21:57.030] And one of the things that is, and this is also that,
+- [22:01.000] but it's also because of the tariffs, a tremendous success.
+- [22:03.690] We're taking in hundreds of billions of dollars in tariffs.
+- [22:08.360] One of the things that is so exciting
+- [22:10.600] is the number of companies and car companies
+- [22:14.370] where they're building plants, AI is the big thing.
+- [22:18.350] We have over $15 trillion announced already and, I mean,
+- [22:24.430] really I would say it is been during the last three months.
+- [22:28.430] But we're here for a short period of time
+- [22:30.140] and some administrations never had anywhere near
+- [22:33.530] that number for a whole term, probably for a whole two terms.
+- [22:38.110] But we're up to over $15 trillion
+- [22:41.160] coming into our country.
+- [22:42.600] There's never been anything like it anywhere in the world.
+- [22:45.320] There's never been an investment like that anywhere in the world.
+- [22:50.850] I told this story and I just told it to Bibi backstage.
+- [22:55.030] I was talking to him and I said,
+- [22:56.530] "The King of Saudi Arabia, smart guy."
+- [22:59.050] And also we went to Qatar and we went to UAE.
+- [23:03.080] Really three strong leaders, smart guys.
+- [23:06.130] They all told me the same thing.
+- [23:07.450] And then that was reiterated at NATO
+- [23:09.870] just recently when we got back
+- [23:11.340] where they agreed to spend a trillion dollars a year,
+- [23:13.830] by the way, which is about three times what they were spending.
+- [23:16.970] But they all said the same thing,
+- [23:19.010] "We thought your country was dead."
+- [23:22.000] Horrible term, right?
+- [23:23.680] "We thought the United States of America was dead
+- [23:26.730] and now you're presiding over the hottest country
+- [23:29.480] anywhere in the world."
+- [23:30.690] We're the hottest country in the world.
+- [23:31.940] I think Bibi would admit it, even hotter than Israel,
+- [23:34.280] though Israel was pretty hot about a week ago,
+- [23:36.490] I can tell you, for the wrong reasons.
+- [23:39.670] But we are the hottest country in the world right now
+- [23:42.690] and it happened faster than anybody thought possible.
+- [23:46.960] But we have over $15 trillion,
+- [23:49.270] and that means jobs and that means building,
+- [23:51.490] and that means things like we've never seen before.
+- [23:53.540] So all we can do is keep working hard.
+- [23:55.800] There'll be always surprises.
+- [23:57.150] Some of the surprises are going to be bad surprises.
+- [23:59.420] The Press: Mr. President, again,
+- [24:00.690] real quick on Iran, in your view,
+- [24:05.680] is the war between Israel and Iran over
+- [24:08.110] or do those talks need to happen before you can-
+- [24:10.980] The President: Well, I would say that the best man to answer
+- [24:13.940] that is the Prime Minister.
+- [24:16.230] But I will tell you that in my view I hope it's over.
+- [24:19.520] Yeah, I think Iran wants to meet,
+- [24:21.640] I think they want to make peace, and I'm all for it.
+- [24:24.740] Now, if that's not the case, we are ready, willing, and able.
+- [24:27.920] But I don't think we're going to have to be.
+- [24:29.450] But I think Bibi would answer that question very well.
+- [24:33.710] PM Netanyahu: I think the partnership
+- [24:35.350] between Israel and the United States,
+- [24:38.560] the partnership between President Trump and me
+- [24:42.800] produced a historic victory.
+- [24:45.130] It's an incredible victory, actually.
+- [24:48.400] It brought the greatest capabilities
+- [24:51.120] of the United States
+- [24:52.380] that are matched with the great capabilities of Israel
+- [24:57.740] and the Army of Israel, pilots of Israel,
+- [25:01.680] soldiers of Israel, and the Mossad.
+- [25:04.430] And the combination of these two extraordinary capacities
+- [25:09.140] produced a decisive result. It set back the two tumors
+- [25:17.320] that were threatening the life of Israel,
+- [25:20.110] the nuclear tumor, and the ballistic missile tumor
+- [25:24.560] because they were planning to build 20,000 of these things
+- [25:28.130] and launch it on a country the size of New Jersey.
+- [25:31.050] And no country could withstand that.
+- [25:32.900] So what do you do when you have two things
+- [25:35.120] that are going to kill you? You have to remove them.
+- [25:38.120] With our combined effort, we did.
+- [25:40.400] But when you remove a tumor,
+- [25:41.670] it doesn't mean that it can't come back.
+- [25:43.260] You have to constantly monitor the situation to make sure
+- [25:47.270] that there's no attempt to bring it back.
+- [25:49.320] So we've had a great achievement
+- [25:51.280] and I think part of the effort of consolidating this
+- [25:54.770] and ensuring that we don't have to repeat this,
+- [25:58.730] is to monitor this carefully.
+- [26:00.720] Of course, the President and I are talking about it,
+- [26:02.490] our teams are talking about it.
+- [26:04.260] But there's no question this is a historic victory.
+- [26:07.940] And I think, as was said here today,
+- [26:10.250] this has already changed the face of the Middle East,
+- [26:12.860] The Press: But it's not over in your view?
+- [26:14.150] PM Netanyahu: But I think that there's an opportunity here
+- [26:16.420] to create a historic expansion of the Abraham Accords,
+- [26:21.930] which were themselves an act history
+- [26:24.500] that deserve a Nobel Prize for the President.
+- [26:27.360] But I think the opportunities are much bigger,
+- [26:30.150] and I hope, I'd like to believe
+- [26:33.550] that Iran would not test our fortitude
+- [26:38.000] because it would be a mistake.
+- [26:39.280] It's better to go a different way.
+- [26:40.560] The Press: And do you believe that regime change
+- [26:42.150] is still necessary there?
+- [26:44.130] PM Netanyahu: I think it's up to the people of Iran.
+- [26:45.600] The Press: You do.
+- [26:46.820] The Press: Mr. Prime Minister, speaking of that.
+- [26:48.310] On Syria, the Trump Administration
+- [26:51.330] was fully supportive of the changes in Syria,
+- [26:54.930] backing the new regime there.
+- [26:56.400] Obviously, your government more cautious
+- [26:58.620] from the security standpoint.
+- [27:00.050] Are you comfortable with the pace of change,
+- [27:02.370] with the security situation vis-a-vis Syria right now?
+- [27:07.930] PM Netanyahu: I think there's an opportunity to explore.
+- [27:14.500] I think that everyone understands
+- [27:15.990] that the situation has changed.
+- [27:17.330] Before that, Iran was essentially running Syria.
+- [27:20.860] Okay? Directly through Hezbollah.
+- [27:24.100] Hezbollah has been brought to its knees.
+- [27:26.070] Iran is out of the picture.
+- [27:28.460] So I think this presents opportunities for stability,
+- [27:32.820] for security, and eventually for peace.
+- [27:36.210] And I think that's been opened up, also,
+- [27:39.780] by the fact that the President has opened up a channel
+- [27:44.940] so they have something.
+- [27:46.200] There's a lot to lose by going back to conflict.
+- [27:50.050] And there's a lot to gain by moving towards peace.
+- [27:52.690] And I think that opportunity has been opened by the President
+- [27:57.160] and by the changed security situation which we brought about
+- [28:01.860] with the collapse of the Assad regime.
+- [28:03.380] The Press: Are there direct talks with the Assad government?
+- [28:06.220] PM Netanyahu: Now, let's suppose there were.
+- [28:08.700] Would I answer yes? No. Right?
+- [28:10.450] The Press: It's my duty to ask. I appreciate it.
+- [28:11.930] PM Netanyahu: It's your duty to ask,
+- [28:13.150] it's my duty to ask you back.
+- [28:16.180] The President: At the request of a lot of countries
+- [28:18.080] in the surrounding area of the Middle East,
+- [28:20.940] including Bibi, we took the sanctions off Syria
+- [28:26.520] and I met the new leader. I was very impressed by him.
+- [28:30.680] Somebody said, "Well, he comes from a very tough background."
+- [28:33.200] I said, "Well, I'm not that surprised.
+- [28:35.240] It's a tough part of the world."
+- [28:36.790] But I was very impressed by him. But we took the sanctions off
+- [28:39.460] because we want to give them a chance.
+- [28:41.670] They would never have had a chance without the sanctions.
+- [28:44.060] And one of the things we have with Iran is,
+- [28:46.660] we have very, they call it biting,
+- [28:48.830] they got very biting sanctions. And I would love to be able to,
+- [28:53.330] at the right time, take those sanctions off,
+- [28:55.340] give them a chance at rebuilding,
+- [28:57.260] because I'd like to see Iran build itself
+- [28:59.100] back up in a peaceful manner and not going around saying,
+- [29:02.390] "Death to America, death to the USA, death to Israel,"
+- [29:05.810] as they were doing.
+- [29:07.060] They were the bully of the Middle East
+- [29:08.510] and now they're not the bully anymore.
+- [29:10.690] But they were saying terrible things
+- [29:12.170] and I would like to see them -- They have such potential.
+- [29:15.520] They have the oil power and they have great people,
+- [29:18.060] smart people, energetic people. Amazing.
+- [29:21.890] And I know so many Iranians, Iranians from New York,
+- [29:26.290] I have a lot of friends and they're great people.
+- [29:28.820] So it's a shame when you see a thing like this happen.
+- [29:30.920] But I think that taking the sanctions off of Syria
+- [29:34.090] is going to give Syria a great shot at making it.
+- [29:38.060] The Press: I have a follow-up on the congressional question.
+- [29:41.510] Are there any executive orders that you'd like
+- [29:43.690] to see Congress focus on when they come back in session?
+- [29:46.670] Do you have any that you prioritize to go first?
+- [29:49.570] The President: Well, we've done a lot of them in the last --
+- [29:51.280] As you know.
+- [29:52.520] And I always say, the great Big Beautiful Bill,
+- [29:55.370] I add the word "great,"
+- [29:56.860] but it was the largest bill of its kind ever passed.
+- [30:00.870] We were talking about it before, it was a beauty.
+- [30:04.560] But a lot of the things that we did, executive orders,
+- [30:07.660] have been codified in the legislation
+- [30:11.350] that we just had passed. And we're going to be sending it
+- [30:13.840] a lot more over the next period of about two months, separately.
+- [30:18.010] But a lot of it was part of that Beautiful Big Bill.
+- [30:21.510] The Press: Mr. President, on tariffs.
+- [30:24.370] What happened to 90 trade deals in 90 days as people are --
+- [30:29.090] The President: Oh, we've spoken to everybody.
+- [30:31.740] It's all done. I told you.
+- [30:33.970] I told you we'll make some deals,
+- [30:36.100] but for the most part, we're going to send a letter,
+- [30:37.870] we're going to say, "Welcome to the United States.
+- [30:40.730] If you'd like to participate in the greatest,
+- [30:42.920] most successful country ever." We're doing better than ever
+- [30:49.500] and you're going to see these numbers soon.
+- [30:51.120] We've never had numbers like this.
+- [30:52.510] We've never had investment like this.
+- [30:54.950] We have more than 90, we're going to have much more than 90.
+- [30:57.350] But most of those are going to be sent a letter.
+- [30:59.500] This is exactly what I said.
+- [31:00.860] Now we've made a deal with United Kingdom,
+- [31:03.480] we've made a deal with China,
+- [31:05.200] we're close to making a deal with India.
+- [31:08.350] Others we've met with and we don't think we're going
+- [31:10.440] to be able to make a deal, so we just send them a letter.
+- [31:12.260] "If you want to play ball, this is what you have to pay."
+- [31:16.510] So, as far as I'm concerned, we're done.
+- [31:20.300] We're sending out letters to various countries
+- [31:22.490] telling them how much tariffs they have to pay.
+- [31:25.090] Some will maybe adjust a little bit
+- [31:27.280] depending if they have a cause,
+- [31:29.900] we're not going to be unfair about it.
+- [31:31.740] And actually, it's a small fraction
+- [31:33.630] compared to what we should be getting.
+- [31:36.010] We could be asking for much more,
+- [31:37.540] but for the sake of relationships that we've had
+- [31:40.490] with a lot of really good countries,
+- [31:42.640] we're doing the way I do it.
+- [31:44.970] But we could be getting a lot more,
+- [31:46.430] we could ask for a lot more than what we're asking for.
+- [31:48.970] The Press: When you say "we're done"
+- [31:50.380] because you're sending the letters,
+- [31:52.090] to follow up on (inaudible)
+- [31:53.460] asked earlier, you're accounting these as deals by saying,
+- [31:56.980] "Here's the tariff rate we're going to-"
+- [31:58.560] The President: I'm saying, "Here it is.
+- [31:59.760] Congratulations. Welcome to the United States.
+- [32:01.950] I hope you make a lot of money
+- [32:03.180] and you're going to pay us money."
+- [32:04.950] They were charging us tariffs at levels
+- [32:09.860] that nobody has ever seen before.
+- [32:11.310] We have some countries that were charging 200 percent tariffs
+- [32:14.630] and making it impossible to do business.
+- [32:16.920] And what the tariffs are doing is,
+- [32:18.340] they're driving people in and companies
+- [32:20.900] into the United States.
+- [32:22.140] That's why we're building all of the work
+- [32:24.390] that you see happening in this country right now,
+- [32:26.770] and it's at a record level.
+- [32:28.070] All the factories, all of the AI institutions
+- [32:31.610] that are being built.
+- [32:34.420] Well, I think it's because of November 5th,
+- [32:36.480] the good election, and I think it's because of the tariffs.
+- [32:39.000] Thank you all very much. Thank you. Thank you.

@@ -1,0 +1,433 @@
+<!-- source: https://www.youtube.com/watch?v=4t1QLBb9FKo -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 4t1QLBb9FKo -->
+<!-- date_published: 2026-02-17T01:07:07+00:00 -->
+<!-- date_accessed: 2026-06-02T01:05:17.915242+00:00 -->
+
+# Transcript: President Trump Gaggles with Press on Air Force One En Route Joint Base Andrews, Feb. 16, 2026
+
+- [00:00.090] The President: Hello, Steve.
+- [00:02.940] Hello, everybody.
+- [00:06.270] So great financial numbers you saw.
+- [00:08.560] Low inflation, very low inflation.
+- [00:10.600] Prices are down, way down.
+- [00:12.820] Gasoline is less than $2 in many places, a gallon,
+- [00:18.440] which nobody expected to see,
+- [00:19.820] but I did is we're going by the initial expression
+- [00:24.390] of drill, baby, drill and prices are coming down very strongly
+- [00:28.360] and as goes gasoline and oil and gas
+- [00:31.960] so goes the rest of other products
+- [00:35.050] that were high because of Biden.
+- [00:36.790] So we inherited a mess and we've brought our country back
+- [00:41.530] very, very powerfully. Crime numbers are way down,
+- [00:45.000] despite the fact that they let in 25 million people,
+- [00:48.110] many of whom should not have been allowed into our country
+- [00:50.370] with their open border policy.
+- [00:52.930] But it's the country's doing very well.
+- [00:54.680] Any questions?
+- [00:55.880] The Press: What are you expecting from these Iran talks
+- [00:58.140] in Geneva tomorrow?
+- [00:59.420] The President: So I'll be involved
+- [01:01.860] in those talks indirectly,
+- [01:04.110] and they'll be very important. We'll see what can happen.
+- [01:06.810] But typically Iran's a very tough negotiator,
+- [01:09.470] they're good negotiators or bad,
+- [01:11.610] I would say they're bad negotiators
+- [01:13.250] because we could add a deal instead of sending the B-2s
+- [01:16.700] into knock out their nuclear potential
+- [01:19.600] and we had to send the B-2s.
+- [01:21.480] I hope I hope they're going to be more reasonable.
+- [01:24.260] They want to make a deal.
+- [01:25.820] The Press: Have you been told that a deal
+- [01:27.530] is next to impossible?
+- [01:29.140] The President: No, no.
+- [01:30.370] I think they want to make a deal.
+- [01:32.700] I don't think they want the consequences
+- [01:35.000] of not making a deal. They want to make a deal.
+- [01:36.770] The Press: You going to sit down with Democrats
+- [01:38.520] this week on DHS funding, sir?
+- [01:40.170] The President: I will.
+- [01:41.430] But you know, we have to protect our law enforcement.
+- [01:43.510] They've done a great job. I just got finished saying
+- [01:45.600] that we have the best crime numbers
+- [01:47.680] we've had in many years and on murders 125 years.
+- [01:51.930] And that's despite a lot of people
+- [01:54.000] that shouldn't have been led into our country
+- [01:55.650] coming into our country.
+- [01:56.880] Criminals, many, many criminals.
+- [01:58.800] But we've taken out tens of thousands of people,
+- [02:02.350] brought them back to their countries.
+- [02:04.280] Uh, many of the criminals that were brought
+- [02:05.830] in allowed to come in,
+- [02:07.740] have been removed. So, you know, we're okay.
+- [02:10.590] But to have the best crime numbers,
+- [02:12.130] which aren't made by me,
+- [02:13.410] these are made by people that do that, many left-leaning.
+- [02:17.910] We have the best murder numbers. Horrible thing to say.
+- [02:22.050] But we have the best murder numbers since 1900.
+- [02:26.420] That's before my father was born.
+- [02:28.830] 125 years, think of it.
+- [02:30.670] The best crime number since 1900,
+- [02:33.760] having to do with murder and really good crime numbers.
+- [02:36.800] The best in years.
+- [02:38.220] The Press: Are there any demands that Democrats are making
+- [02:40.020] that you're okay with? Uh, to, to get --
+- [02:41.390] The President: Well, I don't like some of the things
+- [02:42.680] they're asking for.
+- [02:43.920] We're going to protect law enforcement.
+- [02:45.310] We're going to protect ICE.
+- [02:47.170] You know, they're part of the whole system that is working.
+- [02:50.260] I mean, Washington, D.C now is considered a very safe city.
+- [02:54.180] When I took over, it was a, a city that you were losing two,
+- [02:57.760] three people a week.
+- [02:59.790] Over a hundred people a year
+- [03:01.160] were being murdered in Washington.
+- [03:03.300] Now, it's considered a very safe city.
+- [03:05.470] And we did that.
+- [03:06.850] I did it over a fairly short period of time too.
+- [03:09.410] The Press: On DHS recent news reports
+- [03:11.880] have discussed the widespread belief
+- [03:13.660] that Kristi Noem and Corey Lewandowski
+- [03:15.880] are in a personal relationship. Is that a bad look?
+- [03:19.200] The President: Huh?
+- [03:20.470] The Press: Recent news reports have discussed the possibility
+- [03:23.140] that Kristi Noem and Corey Lewandowski
+- [03:25.390] are in a close personal relationship.
+- [03:26.810] Is that a bad look?
+- [03:28.020] And do you think she'll be in the job much longer?
+- [03:29.800] The President: I don't know about that.
+- [03:31.010] I mean, I haven't heard that.
+- [03:33.850] I'll find out about it, but I have not heard.
+- [03:36.730] The Press: Will you give your State of the Union speech
+- [03:39.220] if we're still in a shutdown next week?
+- [03:42.970] The President: Well, I think I would.
+- [03:44.480] Wouldn't bother me. I would give. Yep.
+- [03:46.930] The Press: How are the negotiations going?
+- [03:48.630] The President: With what, which one?
+- [03:49.840] We have a lot of negotiations.
+- [03:51.130] The Press: No, with the government shutdown.
+- [03:53.810] The President: This is a Democrat shutdown.
+- [03:55.110] This has nothing to do with Republicans.
+- [03:56.960] This is a Democrat shutdown.
+- [03:58.610] They're upset that the crime numbers are so good.
+- [04:01.110] They're very unhappy that the crime numbers are so good.
+- [04:03.860] They're very unhappy that there's a movement for get,
+- [04:06.800] getting voter ID. They want voter ID.
+- [04:11.160] The population 98% want voter ID.
+- [04:14.540] They don't want voter ID 'cause they want to cheat on elections.
+- [04:17.620] Uh, they also want other things.
+- [04:19.360] They don't want mail-in ballots.
+- [04:21.180] They want to end mail-in ballots, which is corrupt.
+- [04:24.080] And one other thing that they're insisting on
+- [04:25.860] is proof of citizenship.
+- [04:28.130] And the Democrats don't want to give proof of citizenship.
+- [04:31.170] They don't want to give voter ID.
+- [04:32.710] Think of it, who wouldn't want proof of citizenship?
+- [04:36.020] I ask you, Steve, who wouldn't want voter ID?
+- [04:40.130] And why would you want mail-in ballots
+- [04:42.070] if you know it's corrupt?
+- [04:43.330] It's a corrupt system. We're the only country
+- [04:46.350] in the world that has this system of mail-in ballots.
+- [04:50.370] You think of it, the only country in the world
+- [04:52.960] that has this system with mail-in ballots
+- [04:55.770] 'cause they cheat.
+- [04:57.080] And the fact is, they could never get elected
+- [04:58.910] if they ever changed. They know it.
+- [05:00.120] If you had voter ID, if you had proof of citizenship,
+- [05:03.510] they could never win an election.
+- [05:05.150] And they know that. And they're fighting to the, to the hilt.
+- [05:09.140] And I put this down with men playing in women's sports.
+- [05:12.820] I put it down with transgender for everybody.
+- [05:15.400] I put it down with their horrible open border policy
+- [05:19.130] as being ridiculous.
+- [05:21.580] They don't want voter ID. No voter ID.
+- [05:26.030] And I put that down in the same category
+- [05:27.970] with men playing in women's sports.
+- [05:30.230] I'm going to add a fourth category.
+- [05:32.490] They don't want voter ID. Go ahead.
+- [05:34.220] The Press: So, so Hillary Clinton
+- [05:35.530] said in an interview today that she and her husband
+- [05:38.460] are getting pulled into the Epstein matter
+- [05:40.700] to divert attention from you
+- [05:42.530] and that your administration has something to hide.
+- [05:45.080] What's your response?
+- [05:46.290] The President: I have nothing to hide.
+- [05:47.550] I've been exonerated.
+- [05:48.750] I have nothing to do with Jeffrey Epstein.
+- [05:51.130] They went in hoping that they'd find it
+- [05:52.830] and found just the opposite. I've been totally exonerated.
+- [05:55.290] And in fact, Jeffrey Epstein was fighting
+- [05:57.800] that I don't get elected with some author,
+- [06:01.090] a sleazebag, by the way.
+- [06:02.940] And I've been totally exonerated.
+- [06:04.780] No, no, no, they're getting pulled in
+- [06:06.770] and that's their problem.
+- [06:08.040] I don't know. They got to see what happens,
+- [06:09.560] but I watched her in Munich,
+- [06:11.100] and she seriously has Trump derangement syndrome.
+- [06:13.660] The Press: Do you think that she should publicly testify?
+- [06:15.280] The President: You know, I've been totally exonerated
+- [06:16.730] on Epstein,
+- [06:17.970] and it's really interesting because they've been pulled in.
+- [06:21.440] Think of it, they've been pulled in,
+- [06:23.530] Clinton and, and many other Democrats have been pulled in.
+- [06:25.630] Yeah.
+- [06:26.880] The Press: US-Australia border, just (inaudible)
+- [06:28.250] from the Caribbean to the Middle East,
+- [06:30.230] is about to hit into eight-month deployment mark.
+- [06:32.700] Usually, they're deployed for about six months or so.
+- [06:34.760] Is there any concern that US carriers
+- [06:36.710] are being stretched too thin?
+- [06:39.400] The President: It's -- I'll answer the question last.
+- [06:40.940] The Press: Mr. President, you're warning Cuba to make a deal.
+- [06:43.820] What does that deal look like? What do you want them to --
+- [06:45.570] The President: Make a deal.
+- [06:46.790] Cuba is right now a failed nation.
+- [06:49.020] Uh, they don't even have jet fuel to get,
+- [06:51.350] for airplanes to take off. They're logging up their runway.
+- [06:54.160] But we're talking to Cuba right now.
+- [06:57.270] They have Marco Rubio talking to Cuba right now,
+- [07:00.420] and they should absolutely make a deal
+- [07:02.220] because it's a human,
+- [07:03.450] it's really a humanitarian threat
+- [07:06.690] and we have a lot of great Cuban-Americans
+- [07:08.720] and they're going to be very happy
+- [07:10.270] when they're going to be able to go back
+- [07:11.530] and say hello to their relatives and do things that
+- [07:14.030] they should have been allowed to do for a long time.
+- [07:16.210] I'm very interested in the people that are here,
+- [07:18.930] that were treated so badly by Castro
+- [07:22.080] and the Cuban authorities. They have been treated horribly.
+- [07:25.370] So, we'll see how it all turns out.
+- [07:27.420] But Cuba and us, we are talking.
+- [07:29.750] In the meantime, there's an embargo.
+- [07:33.190] There's no oil. There's no money.
+- [07:34.660] There's no anything.
+- [07:35.860] The Press: If a deal isn't made,
+- [07:37.070] would you consider an operation like the one in Venezuela?
+- [07:39.910] The President: I don't want to answer that.
+- [07:41.260] Why would I answer that? If I, if I was,
+- [07:43.650] it wouldn't be a very tough operation as you can figure,
+- [07:48.320] but I don't think that'll be necessary.
+- [07:50.050] The Press: Mr. President, Marco Rubio received
+- [07:52.060] really positive reviews in Munich.
+- [07:53.510] Is there --
+- [07:54.710] The President: Very good reviews.
+- [07:55.910] The Press: Is there a scenario in which you would support him
+- [07:57.500] at the top of the ticket in '28?
+- [07:59.250] The President: Something I don't have to worry about now.
+- [08:00.760] I've got three years to go,
+- [08:03.260] so it's something I don't have to worry.
+- [08:04.650] JD is fantastic, and Marco's --
+- [08:06.350] they're both fantastic, I think, really,
+- [08:08.490] and I think Marco did a great job at Munich.
+- [08:11.560] The Press: President Xi and your talk with him recently uh,
+- [08:14.750] it warned about sending more weapons to Taiwan.
+- [08:17.110] What was your response then?
+- [08:18.360] Are you going to send more weapons to Taiwan --
+- [08:19.980] The President: Response, I have a response.
+- [08:21.440] I'm talking to him about it.
+- [08:22.650] We had a good conversation and uh,
+- [08:25.070] we'll make a determination pretty soon.
+- [08:27.690] We have a very good relationship with President Xi.
+- [08:31.290] In fact, I'll be going, I guess, in April.
+- [08:32.790] The Press: I'm sorry.
+- [08:34.010] Tell us about your trip to Rome, Georgia on Thursday,
+- [08:36.180] your trip to Marjorie Taylor Green's old district.
+- [08:39.130] The President: Well, we have a lot of people
+- [08:40.440] that want to take Marjorie Taylor Greene's place
+- [08:44.550] and many, many candidates and I have to choose one.
+- [08:47.350] And they say whoever I endorse is going to win,
+- [08:50.630] but we have a lot of good candidates
+- [08:52.010] want to take her place.
+- [08:53.240] The Press: So, your Court of Peace meets
+- [08:54.770] for the first time this week, you said it could be
+- [08:56.350] the most consequential international organization ever.
+- [08:59.290] That's a high bar.
+- [09:00.600] What do you want for this first meeting?
+- [09:01.810] The President: Well, I think it can be.
+- [09:03.060] We're going to have all world leaders.
+- [09:04.480] They're putting up tremendous amounts of money,
+- [09:06.940] and I think it's going to go far beyond Gaza,
+- [09:08.820] and I think it'll be peace all over the world.
+- [09:11.160] And we're working in conjunction with the United Nations.
+- [09:13.670] If the United Nations is there,
+- [09:16.050] they haven't lived up to do potential.
+- [09:18.830] United Nations has great potential.
+- [09:20.620] They haven't lived up to the potential,
+- [09:22.190] but I think they might hate us a little bit.
+- [09:25.770] But we have the greatest leaders in the world
+- [09:28.050] joining the Board of Peace.
+- [09:29.720] And we'll be doing it in conjunction with,
+- [09:31.830] in some cases, the United Nations,
+- [09:34.400] and see if we can get the United Nations
+- [09:36.150] to get on the ball.
+- [09:37.830] The Press: Mr. President, you have been a kingmaker
+- [09:39.330] in a lot of Republican primaries,
+- [09:40.910] a lot of people --
+- [09:42.200] The President: Including foreign nations.
+- [09:44.640] I was very honored to see that.
+- [09:46.210] A very wonderful prime minister in Japan won by a landslide.
+- [09:51.230] I think she was going to win,
+- [09:52.530] but she won by just about the biggest vote ever in Japan,
+- [09:56.870] and she attributed my endorsement for that,
+- [09:58.530] and that's very good
+- [09:59.820] 'cause we have a great relationship with her and Japan.
+- [10:03.420] The Press: A lot of Republicans in DC
+- [10:04.990] are asking you to endorse John Cornyn, but you haven't yet.
+- [10:08.380] Is is there a chance you wouldn't endorse Paxton?
+- [10:10.330] And why haven't you endorsed Cornyn?
+- [10:11.830] The President: I just haven't made a decision
+- [10:13.090] on that race yet.
+- [10:14.290] It's got a ways to go and I haven't, he's a good man.
+- [10:16.420] John is a good, I like all three of them, actually.
+- [10:19.130] I like all three.
+- [10:20.370] So, those are the toughest races.
+- [10:22.310] They've all supported me. They're all good.
+- [10:25.400] And you're supposed to pick one, so we'll see what happens.
+- [10:27.430] But I support all three.
+- [10:28.810] The Press: (inaudible)
+- [10:30.010] not involved in the rift between UAE and Saudi Arabia?
+- [10:32.990] The President: No, I'm not. I would be.
+- [10:35.510] I would be. Well, I can settle it very easily,
+- [10:38.210] but they have a they do indeed have a rift
+- [10:41.070] and we can get it settled very easily.
+- [10:42.570] I settle wars.
+- [10:43.790] I settle a lot of rifts between countries.
+- [10:46.670] You've been noticing, right? That's an easy one to settle.
+- [10:50.080] The Press: On Venezuela, Nancy Rodriguez last week
+- [10:53.680] said that Nicolas Maduro is still a legitimate resident
+- [10:57.100] and is innocent.
+- [10:58.310] I know you said the relationship is a 10,
+- [10:59.930] but I'm curious, what's your thoughts on that?
+- [11:01.580] The President: I think we have a great relationship.
+- [11:02.830] I think she probably has to say that.
+- [11:04.550] I think politically, maybe she has to say that.
+- [11:07.140] Uh, but the relationship with Venezuela,
+- [11:09.700] well, she's doing a very good job,
+- [11:12.050] and I fully understand that statement.
+- [11:14.940] The Press: You're, you're going to have Ukraine talk tomorrow
+- [11:17.400] as well in Geneva with Witkoff and Jared Kushner.
+- [11:20.860] What are you expecting there? Is there --
+- [11:22.340] The President: Well, we're big talks.
+- [11:23.570] It's going to be very easy. I mean, it's, look so far,
+- [11:28.160] Ukraine better come to the table fast,
+- [11:30.390] it's all I'm telling you.
+- [11:32.110] Uh, we are in a position, we want them to come.
+- [11:35.310] And by the way, I watched AOC answering questions in Munich.
+- [11:37.390] This was not a good look with the United States.
+- [11:38.670] I watched Gavin Newsom answering questions for, in in Munich.
+- [11:40.000] And this was a bad look for our country.
+- [11:41.250] This was a bad, these two people are incompetent.
+- [11:42.450] It's all I'm telling you.
+- [11:43.330] We are in a position, we want them to come.
+- [11:44.570] And by the way, I watched AOC answering questions in Munich.
+- [11:46.060] This was not a good look with the United States.
+- [11:47.380] I watched Gavin Newsom answering questions for,
+- [11:48.580] in Gene- -- in Munich.
+- [11:49.810] And this was a bad look for our country.
+- [11:51.090] This was a bad, these two people are incompetent.
+- [11:54.320] And at least Hillary's competent.
+- [11:55.800] She's just Trump deranged. She was so deranged.
+- [11:58.830] I just, she is an angry woman.
+- [12:01.100] But I watched the other two speaking
+- [12:04.680] and answering basic questions.
+- [12:07.430] Look, Gavin is, destroyed California.
+- [12:10.420] And AOC, I never really got her to,
+- [12:12.320] I never heard her speak very much.
+- [12:13.860] And they started answering questions.
+- [12:16.280] She had no idea what was happening.
+- [12:17.950] She had no idea how to answer,
+- [12:19.990] you know, very important questions concerning the world.
+- [12:24.190] But she can't answer questions concerning New York City either.
+- [12:27.910] Because New York City is, got some problems.
+- [12:30.710] The Press: Now that Gaza's entering in phase two,
+- [12:32.560] should Israel lift its ban on foreign journalists
+- [12:35.060] being allowed into Gaza?
+- [12:36.420] The President: Well, we'll be lifting
+- [12:37.630] a lot of bans pretty soon.
+- [12:38.850] I think you're going to see everything opening up.
+- [12:41.240] Gaza, look, we have peace in the Middle East.
+- [12:43.510] Now, you have some flames here and there.
+- [12:47.310] But we essentially have peace in the Middle East.
+- [12:49.330] And that happened primarily when we did the B-2 attack
+- [12:52.650] on the nuclear potential nuclear power.
+- [12:55.460] They would've had a nuclear weapon within one month.
+- [12:58.680] If that happened, it would've been a whole different deal.
+- [13:00.990] Okay, thank you very much everybody. Thanks.
+- [13:02.490] The Press: One more thing.
+- [13:03.710] So the five billion that you announced yesterday
+- [13:05.750] for the Board of Peace,
+- [13:06.960] is that a down payment or are you expecting more?
+- [13:09.310] The President: No, we want to help people.
+- [13:10.590] That's peanuts compared to the kind of money
+- [13:12.380] that has been spent in the Middle East by Bush,
+- [13:16.500] by Obama, by all of these people, by Biden.
+- [13:19.660] I mean the money he spent.
+- [13:21.470] But the money he's made, you know,
+- [13:23.040] that's such a small amount of money like the (inaudible).
+- [13:26.060] But we want to make it successful.
+- [13:28.650] I think it has the chance to be the most consequential board
+- [13:32.630] ever assembled of any kind. Thank you.
+- [13:34.420] The Press: How was golf for Ron DeSantis?
+- [13:36.790] The President: Great. We had a great time.
+- [13:38.480] We had Ron and a couple of other people,
+- [13:40.170] two great coaches as you know, the two greatest coaches,
+- [13:43.470] I would say, certainly at college football.
+- [13:45.960] And we had a good time playing golf.
+- [13:48.170] Thank you very much.
+- [13:49.850] I didn't get to play today
+- [13:51.150] because I'm working on other things.
+- [13:52.350] Very important things.
+- [13:53.590] Much more important than golf. Thank you very much.
+- [13:55.130] The Press: (inaudible)
+- [13:56.330] Melania for Valentine's, Mr. President?
+- [13:57.940] The President: She's on the plane.
+- [13:59.900] She's -- Melania's in the --
+- [14:01.200] we have a movie star on the plane.
+- [14:02.590] The Press: Did you have any Valentine's Day plans with her?
+- [14:05.330] The President: Did I what?
+- [14:06.550] The Press: Did you do anything for Valentine's with her?
+- [14:09.260] Did you give her flowers?
+- [14:10.470] The President: I better not tell you that.
+- [14:12.880] Goodbye, everybody. That's the toughest question.
+- [14:15.900] No, she's very -- I'm proud of the fact, you know,
+- [14:18.210] her movie, so successful, it's a tremendous hit.
+- [14:21.430] And she does a good job.
+- [14:24.560] She does very consequential work.
+- [14:26.710] I think you're going to see in the end that she's going
+- [14:28.920] to go down as one of the truly great first ladies.
+- [14:30.960] When you see what she's doing with Russia, Ukraine,
+- [14:33.530] and so many of the other things she's doing,
+- [14:35.920] she's done a good job. She works very hard.
+- [14:38.280] The Press: Okay. Was Wes Moore invited to the White House
+- [14:40.040] this week, Mr. President?
+- [14:42.350] The President: Just so you understand,
+- [14:43.620] the governors were all, other than two.
+- [14:46.380] One was Colorado where he's got a 73-year-old woman
+- [14:50.030] who's probably got serious cancer, confined.
+- [14:54.190] And for some time, it's solitary confinement
+- [14:57.650] because she pointed out the voter theft
+- [15:00.000] that was taking place.
+- [15:01.310] In other words, she pointed it out.
+- [15:03.150] They arrested her and they gave her a nine-year sentence,
+- [15:07.000] and he better let her go because it's a disgrace.
+- [15:10.240] And the other guy's just a bad governor.
+- [15:11.840] He's not doing a good job.
+- [15:13.070] Wes Moore, he's doing a terrible job.
+- [15:14.340] The Press: So he's not invited?
+- [15:15.620] The President: And you can see that.
+- [15:16.880] Well I didn't invite those two.
+- [15:18.350] If the rest of them don't want to show up, that's okay.
+- [15:20.310] I hear they're coming, a lot of them.
+- [15:22.340] The White House is a great place to be.
+- [15:24.900] But no, I, I don't like the job that Wes Moore's doing.
+- [15:27.270] I don't like the job he's doing at the Bridge.
+- [15:29.020] I don't like the fact that he did that horrible,
+- [15:31.490] you know, with the pipes and the Potomac.
+- [15:33.990] And he's not doing the job. They got to do it.
+- [15:36.420] And we're going to --
+- [15:37.740] I'm going to have to get the federal government involved
+- [15:39.670] in getting it fixed because he can't fix anything.
+- [15:42.670] Thank you very much.

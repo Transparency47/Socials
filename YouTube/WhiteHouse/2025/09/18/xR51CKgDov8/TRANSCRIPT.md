@@ -1,0 +1,1120 @@
+<!-- source: https://www.youtube.com/watch?v=xR51CKgDov8 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: xR51CKgDov8 -->
+<!-- date_published: 2025-09-18T14:59:58+00:00 -->
+<!-- date_accessed: 2026-06-02T02:44:39.379770+00:00 -->
+
+# Transcript: President Trump Participates in a Press Conference with Prime Minister Keir Starmer
+
+- [00:04.504] (applause)
+- [00:14.013] Prime Minister Starmer: Mr. President, it's a
+- [00:15.582] pleasure to welcome you to Chequers.
+- [00:17.851] This historic second state visit is a moment to
+- [00:21.821] celebrate the unique bond between our two countries.
+- [00:26.659] But today we've gone far beyond that.
+- [00:30.230] We've renewed the special relationship for a new era
+- [00:33.400] for the United Kingdom of the United States.
+- [00:36.970] Stand together today as first partners on defense,
+- [00:42.175] first partners in trade with the ground-breaking
+- [00:46.346] deal we struck in May.
+- [00:48.648] And now with the new agreement that we've just
+- [00:51.317] signed this afternoon, we're confirming our
+- [00:54.354] status as the first partners in science and
+- [00:58.057] technology ready to define this century together,
+- [01:02.762] just as we did the last.
+- [01:05.498] This tech partnership has the power to change lives.
+- [01:10.270] It's our chance to ensure that technologies like AI,
+- [01:14.507] quantum, and others amplify human potential.
+- [01:18.978] Solve problems, cure diseases, make us richer
+- [01:22.882] and freer, strengthen the cause of democracy, not
+- [01:26.920] tyranny.
+- [01:28.388] This is the territory on which the future will be
+- [01:31.724] won.
+- [01:33.326] So this partnership today is a signal of our
+- [01:36.696] determination to win this race together and to
+- [01:40.567] ensure it brings real benefits in jobs, in
+- [01:44.404] growth, in lower bills, to put more hard-earned cash
+- [01:48.975] in people's pockets at the end of each month.
+- [01:53.213] That's what we are determined to deliver and
+- [01:56.483] we're bringing businesses with us.
+- [01:58.117] We've just come from a fantastic meeting with
+- [02:00.553] business leaders where we set out this vision.
+- [02:04.757] They have responded with new deals and investment,
+- [02:08.828] breaking every record that we have.
+- [02:12.165] 250 billion pounds flowing both ways across the
+- [02:16.936] Atlantic.
+- [02:17.737] That is a record.
+- [02:19.806] Expected to create 15,000 jobs here in the United
+- [02:23.276] Kingdom.
+- [02:24.244] High-skilled jobs in cutting-edge sectors where
+- [02:28.281] people can build careers for the long term.
+- [02:31.584] Changing lives in communities up and down
+- [02:34.521] our country.
+- [02:36.956] And look, while we shape this bond for a new era,
+- [02:41.995] the fundamentals have not changed.
+- [02:45.431] Security remains the cornerstone of this
+- [02:49.269] special relationship.
+- [02:51.738] We have the deepest, most advanced defense
+- [02:54.607] relationship in the world.
+- [02:57.277] Our warriors train together and they fight
+- [03:00.313] together.
+- [03:01.848] Our industries build together.
+- [03:04.017] Everything from fast jets to the new Orcas-class
+- [03:07.353] submarines.
+- [03:09.289] So now as we drive up defense spending, we're
+- [03:12.759] going to sweep away the barriers to working
+- [03:15.495] together on new defense technologies so we can
+- [03:19.098] stay ahead of our adversaries.
+- [03:22.135] We're united in defense and security.
+- [03:24.971] Yes, absolutely.
+- [03:28.207] But we're also united in the pursuit of peace.
+- [03:33.479] We are working together to end the humanitarian
+- [03:36.649] catastrophe in the Middle East, get the aid in, free
+- [03:41.821] the hostages, and ultimately bring Israel
+- [03:45.825] and the region back towards a comprehensive
+- [03:49.262] plan which can deliver peace and security for
+- [03:53.032] Israelis and Palestinians alike.
+- [03:56.803] We're also working together to end the
+- [03:58.371] killing in Ukraine.
+- [04:00.907] In recent days, Putin has shown his true face,
+- [04:04.444] mounting the biggest attacks since the evasion
+- [04:06.746] began.
+- [04:08.047] With yet more bloodshed, yet more innocents killed
+- [04:11.351] and unprecedented violations of NATO
+- [04:15.254] airspace.
+- [04:16.923] These are not the actions of someone who wants
+- [04:20.393] peace.
+- [04:22.028] So we've discussed today how we can build our
+- [04:24.130] defenses further support Ukraine and decisively
+- [04:27.934] increase the pressure on Putin to get him to agree
+- [04:31.738] a peace deal that will last.
+- [04:34.607] And President Trump, you have led the way here and
+- [04:37.744] we will continue to stand and work together for
+- [04:40.980] security and for peace.
+- [04:44.651] Mr. President, next year we'll celebrate the 250th
+- [04:47.887] anniversary of the United States.
+- [04:51.591] We've come on a long journey together since
+- [04:54.927] 1776, but it's no exaggeration to say that
+- [05:00.400] the partnership our two nations have built has
+- [05:04.103] shaped the world from the beaches of Normandy, to
+- [05:08.107] the founding of NATO, to the creation of
+- [05:10.943] technologies that have revolutionized our lives.
+- [05:15.682] Time and time again, it is British and American men
+- [05:20.887] and women side by side changing the path of
+- [05:24.824] history and turning it towards our values,
+- [05:29.429] towards freedom, democracy, and the rule of
+- [05:32.365] law.
+- [05:33.700] In Britain, we take huge pride in that.
+- [05:38.071] And let's be clear, this relationship is not just
+- [05:41.641] about history.
+- [05:43.543] It's about the future.
+- [05:45.311] It's about the benefits it delivers now and for
+- [05:48.147] decades to come, to make our people safer and
+- [05:51.818] better off.
+- [05:53.920] We've shown today that we're delivering those
+- [05:55.788] benefits, improving people's lives.
+- [05:58.925] So we will go into that anniversary year more
+- [06:01.994] optimistic than ever, and more confident than ever
+- [06:06.299] about our two great nations and what they can
+- [06:08.935] achieve side by side.
+- [06:12.004] Thank you.
+- [06:12.672] And it is now my pleasure to give the floor to
+- [06:16.342] Mr. President.
+- [06:17.043] Thank you.
+- [06:17.710] The President: Thank you very much, very much.
+- [06:20.113] Prime Minister Starmer, Melania and I are
+- [06:23.015] tremendously thankful for the wonderful hospitality
+- [06:27.420] that you and Lady Starmer have extended today at
+- [06:30.790] Checkers.
+- [06:31.691] Quite the place, I must say quite the place and
+- [06:34.861] we're grateful beyond words for the spectacular
+- [06:37.663] honor of the state.
+- [06:38.931] Visit yesterday at Windsor Castle, hosted by his
+- [06:42.001] Majesty King Charles III and her Majesty Queen
+- [06:46.405] Camilla.
+- [06:47.273] These are two fantastic people.
+- [06:50.009] We will never forget it.
+- [06:52.044] As I said last night, the bond between our countries
+- [06:54.781] is like no other anywhere in the world.
+- [06:57.683] The United States and the United Kingdom have done
+- [07:00.686] more good on this planet than any two nations in
+- [07:04.223] human history.
+- [07:06.359] That is thanks in large part to the traditions of
+- [07:09.762] British liberty, which grew up on these aisles,
+- [07:12.965] these beautiful, magnificent aisles, and
+- [07:16.068] were carried by our ancestors to the new
+- [07:18.771] world.
+- [07:20.373] We're forever joined, and we are forever friends and
+- [07:23.576] we will always be friends.
+- [07:26.345] This enduring connection is why I was thrilled that
+- [07:28.948] the United Kingdom was the very first country with
+- [07:31.884] which we made a historic trade deal and a very good
+- [07:35.354] trade deal.
+- [07:36.589] He's a tough negotiator.
+- [07:37.790] I think it was a better deal for you than us, but
+- [07:39.625] these are minor details.
+- [07:41.661] Prime Minister Starmer: It's a very good deal for
+- [07:43.029] both of us.
+- [07:43.696] The President: He is a great negotiator who will
+- [07:45.464] extend our unparalleled security alliance into the
+- [07:49.101] realm of economic security for the first time.
+- [07:52.171] And I look forward to finalizing it very soon.
+- [07:54.473] We'll have it done very quickly.
+- [07:55.808] We have also just signed a historic technology
+- [08:00.580] prosperity deal, one of a kind, to ensure our
+- [08:04.283] country's lead the next great technological
+- [08:08.120] revolution side by side.
+- [08:09.655] In fact, we just left the business leaders the
+- [08:11.724] biggest in the world.
+- [08:12.558] Some are in this room right now, and that was
+- [08:15.895] quite a meeting we had on business and trade and
+- [08:20.366] technology.
+- [08:21.901] This trip has galvanized $350 billion in deals
+- [08:25.805] across many sectors, and we're committed to
+- [08:29.275] ensuring that the UK is a secure and reliable
+- [08:32.011] supplier of the best AI hardware and software on
+- [08:35.381] Earth.
+- [08:36.549] And we supply that and we'll make sure we supply
+- [08:38.918] it in quantity to the UK.
+- [08:41.988] And we also are joining forces on quantum
+- [08:45.491] computing and nuclear power, a natural
+- [08:48.160] partnership for close allies.
+- [08:50.429] The United States, as you probably have heard, is
+- [08:53.766] doing better than it has ever done in terms of
+- [08:57.336] business and investment.
+- [08:58.838] The stock market has hit a new high, as you know, and
+- [09:05.077] that's for many, many days out of our fairly short
+- [09:08.648] eight months.
+- [09:10.583] And we seem to be hitting new highs, and I think
+- [09:12.852] we're going to do much better even as time goes
+- [09:15.688] by.
+- [09:16.355] Jobs are at a record.
+- [09:17.924] And most importantly, we have more than $17
+- [09:21.527] trillion.
+- [09:22.228] $17 trillion.
+- [09:22.895] And this is during an eight-month period being
+- [09:24.230] invested in the country, which is not only a
+- [09:25.564] record, but if you compare $17 trillion to the last
+- [09:26.899] year of the Biden administration, they did
+- [09:28.234] $250 billion.
+- [09:28.901] They didn't do $1 trillion for the four-year period.
+- [09:30.269] We did $17 trillion of investment coming in.
+- [09:31.604] A lot of it's because of tariffs and a lot of it's
+- [09:52.391] for a lot of other reasons, but there's never
+- [09:55.828] been anything like it.
+- [09:57.463] It's an economic superstar, is what it's
+- [10:01.701] become.
+- [10:02.935] It was mismanaged and badly handled for a long
+- [10:06.038] period of time, but it's not badly handled anymore.
+- [10:09.508] So that's a record.
+- [10:10.743] And remember, that's up until eight months.
+- [10:14.981] We have another few months to go and that number's
+- [10:17.817] going to get significantly higher, especially if we
+- [10:21.387] win a certain case that we're waiting to hear.
+- [10:24.457] That will be something like the world has never
+- [10:27.326] seen.
+- [10:27.994] I want to congratulate the United Kingdom on making
+- [10:30.129] the vital commitment to spend 5 percent of GDP on
+- [10:33.899] defense at the NATO summit this year.
+- [10:36.936] We've worked together very closely in so many ways.
+- [10:40.039] I'm very honored to tell you that we've solved
+- [10:44.910] seven wars.
+- [10:46.312] Seven wars.
+- [10:47.213] Wars that were unsolvable wars that couldn't be
+- [10:51.317] negotiated or done, we've done, the U.S.
+- [10:54.553] has done seven of them.
+- [10:56.622] The one that I thought would be easiest would be
+- [10:58.391] because of my relationship with President Putin, but
+- [11:00.993] he's let me down.
+- [11:01.861] He's really let me down.
+- [11:02.962] It was going to be Russia and Ukraine, but we'll see
+- [11:04.296] how that turns out.
+- [11:04.964] But that turned out to be...
+- [11:11.737] I thought it might be among the easiest of the
+- [11:13.639] group, but we had settled just about every conflict.
+- [11:17.143] And as you know, we're working very hard on
+- [11:18.811] Israel and Gaza.
+- [11:20.112] All that's happening over there.
+- [11:22.882] Complex.
+- [11:23.549] But it's going to get done.
+- [11:26.419] It'll all get done.
+- [11:28.521] And likewise, Russia and Ukraine will get done, but
+- [11:32.892] it's -- you never know in war.
+- [11:34.160] War is a different thing.
+- [11:36.195] Things happen that are very opposite of what you
+- [11:38.431] thought.
+- [11:39.098] You thought you were going to have an easy time or a
+- [11:41.467] hard time and it turns out to be the reverse.
+- [11:44.737] As we saw in the Unforgettable parade
+- [11:47.573] yesterday at Windsor Castle.
+- [11:48.908] What a place it is.
+- [11:49.875] The British Armed Forces carry on one of the finest
+- [11:53.112] military traditions in the world.
+- [11:54.880] One of the greatest marching bands, one of the
+- [11:56.882] most magnificent sites I've seen.
+- [11:59.652] I know that our service members look forward and
+- [12:02.154] we do look so forward to working even more closely
+- [12:06.025] with yours as you push toward that 5 percent
+- [12:09.328] goal, and I think Mr. Prime Minister, you're
+- [12:11.163] just about there.
+- [12:11.964] You're going to be there very quickly along with a
+- [12:14.233] lot of other great countries.
+- [12:16.068] I want to thank NATO and our wonderful head of NATO
+- [12:19.939] who's really worked very hard, Mark, for the job
+- [12:23.142] they've done.
+- [12:24.076] As you know, NATO is a 2 percent GDP and they
+- [12:28.414] didn't pay it.
+- [12:29.648] Now they're at 5 percent, then they pay it and we
+- [12:32.918] appreciate that and we're sending a lot of weapons
+- [12:36.755] to NATO.
+- [12:37.423] NATO is paying for those weapons in full, but we're
+- [12:40.693] sending them and we're doing a great job at
+- [12:42.928] getting them what they need.
+- [12:44.597] And we appreciate the fact that they're taking care
+- [12:48.167] because the United States is into that war for $350
+- [12:50.970] billion.
+- [12:51.637] And just really very sad.
+- [12:57.143] Just got out of control.
+- [12:58.577] They didn't know what they were doing, but over the
+- [13:02.148] generations, British and American Warriors have
+- [13:04.583] shed their blood side by side in defense of liberty
+- [13:07.553] and freedom.
+- [13:08.621] And that's why it's so imperative that the United
+- [13:10.756] States and the United Kingdom stand together for
+- [13:13.526] these fundamental rights and values of the
+- [13:15.728] English-speaking world.
+- [13:16.795] And we've always stood together and we will
+- [13:18.464] continue to.
+- [13:20.032] Just last week a great American, Charlie Kirk,
+- [13:22.568] was heinously assassinated for speaking his mind.
+- [13:25.237] He was a great young man, incredible future.
+- [13:30.009] Some people said he might be president someday.
+- [13:32.077] I told him, I said, "Charlie, I think you have
+- [13:34.580] a good shot someday at being president." He just
+- [13:38.717] wanted to take care of youth.
+- [13:39.985] He loved youth.
+- [13:41.086] I've never seen anybody relate to youth like
+- [13:43.789] Charlie and they related to him and they're
+- [13:46.525] devastated.
+- [13:48.194] But I appreciate the many British citizens who have
+- [13:50.529] offered their condolences.
+- [13:52.164] And again, Charlie was a great person.
+- [13:54.867] Will be going out to a service on Sunday.
+- [13:58.304] I'll be leaving with some of the people in this room
+- [14:01.173] just to celebrate Charlie and all that he's done.
+- [14:04.977] So incredible.
+- [14:06.078] Never seen anything like it.
+- [14:07.513] But I hope that together our nations can lead a
+- [14:10.282] movement to defend the glorious traditions of
+- [14:12.618] freedom on both sides of the Atlantic.
+- [14:16.322] There could be no greater tribute to the immortal
+- [14:18.591] bonds of affection and loyalty that unite the
+- [14:21.160] British and the American people for all of time.
+- [14:25.331] We have a relationship like no other.
+- [14:28.200] It will always be that way.
+- [14:29.501] We will always be united.
+- [14:30.936] We'll always be together.
+- [14:33.205] And I just want to thank you Mr. Prime Minister for
+- [14:35.608] the great job.
+- [14:36.375] I think you're doing.
+- [14:37.042] Thank you very much.
+- [14:38.010] Thank you.
+- [14:39.578] Are there any questions?
+- [14:42.681] Prime Minister Starmer: Thank you very much,
+- [14:45.718] Mr. President.
+- [14:46.785] We're going to take some questions.
+- [14:48.287] I'll call two or three to start with and then I'll
+- [14:50.856] pass over to the president.
+- [14:53.125] I've got Chris Mason from the BBC first.
+- [14:56.362] Chris?
+- [14:57.029] The Press: Thank you both.
+- [14:58.230] Chris Mason, BBC News.
+- [14:59.598] Mr. President, the UK is expected to recognize the
+- [15:02.468] Palestinian state in the coming days as the killing
+- [15:05.170] in Gaza continues.
+- [15:06.839] It often seems that you are the only person that
+- [15:08.941] Israel will listen to.
+- [15:10.743] What more can you say to them to tell them to stop?
+- [15:13.879] And why is the UK's position on a Palestinian
+- [15:16.682] state, in your view, wrong?
+- [15:18.317] And Prime Minister, what will the recognition of a
+- [15:21.287] Palestinian state actually achieve?
+- [15:23.722] Is it not just gesture politics to appease people
+- [15:27.326] in your own party?
+- [15:28.560] Thank you both.
+- [15:29.228] Prime Minister Starmer: Well, Chris, let me just
+- [15:31.597] start with that because we discussed this amongst
+- [15:34.800] other things.
+- [15:35.734] We had the best part of an hour, I think upstairs
+- [15:38.771] earlier today just one-to-one, going through
+- [15:42.641] a number of affairs, world affairs in private.
+- [15:45.744] And we absolutely agree on the need for peace and a
+- [15:51.150] road map because the situation in Gaza is
+- [15:54.219] intolerable.
+- [15:55.888] The hostages have been held for a very, very long
+- [15:58.457] time and they must be freed.
+- [16:00.626] And we need aid to get into Gaza at speed.
+- [16:05.564] And so it's within that context of a plan for
+- [16:09.968] peace, which we're working hard on, which not only
+- [16:13.339] did we discuss this morning, but our two teams
+- [16:16.408] have been working together on that the question of
+- [16:18.677] recognition needs to be seen.
+- [16:20.612] And so it's part of that overall package, which
+- [16:25.584] hopefully takes us from the appalling situation
+- [16:28.253] we're in now to the outcome of a safe and
+- [16:31.757] secure Israel, which we do not have and a viable
+- [16:35.294] Palestinian state.
+- [16:36.261] Thank you.
+- [16:36.929] The President: Well, simply, I want the
+- [16:39.298] hostages released now, right now.
+- [16:41.567] Not one, two, we'll give you three more tomorrow
+- [16:46.305] like it's been, but we're the ones that got all the
+- [16:48.207] hostages released.
+- [16:49.274] We got many, many that came.
+- [16:50.809] Many came to the Oval Office and I've heard
+- [16:54.646] stories like I've never thought even possible.
+- [16:57.750] There was no humanity, no anything.
+- [16:59.451] I said to them, I said, "Was there any warmth
+- [17:03.155] shown during this stay?
+- [17:04.857] Like they offered you a little extra meal, they
+- [17:08.427] gave you a little smile and they said, don't
+- [17:10.129] worry, you'll be okay?"
+- [17:11.230] And every one of them said, not even a little
+- [17:13.732] bit.
+- [17:14.400] Amazing to think that during this stay, a long
+- [17:17.669] stay in some cases.
+- [17:18.837] We had a man the other day, 451 days he was
+- [17:21.473] there.
+- [17:22.307] I always ask that question and was there any warmth,
+- [17:26.111] just a little word of encouragement?
+- [17:29.481] And the answer is every time absolutely not.
+- [17:32.618] I'm shocked to hear it because in the worst cases
+- [17:34.686] there's always somebody that comes through.
+- [17:37.823] We have to remember October 7th, one of the
+- [17:40.392] worst, most violent days in the history of the
+- [17:43.962] world.
+- [17:44.997] Not just there, the history of the world.
+- [17:46.632] And I got to see the tapes and I wish I didn't see
+- [17:48.834] them actually.
+- [17:50.402] But I got to see them.
+- [17:51.403] And I want an end.
+- [17:54.039] I want the hostages released and I think it's
+- [17:58.177] going to be okay.
+- [17:58.977] But it has been a brutal period of time.
+- [18:01.613] But this has been going on for a long time.
+- [18:03.348] This is not something that's over the last year,
+- [18:07.019] two years.
+- [18:07.753] This has been for decades and decades.
+- [18:10.756] But we want it to end.
+- [18:11.757] We have to have the hostages back immediately.
+- [18:13.759] That's what the people of Israel want.
+- [18:15.194] They want them back and we want the fighting to stop
+- [18:18.597] and it's going to stop.
+- [18:19.565] But a lot of bad things.
+- [18:22.034] Hamas said that they're going to put the hostages
+- [18:24.670] up as bait.
+- [18:25.370] They're going to put the hostages in front of any
+- [18:28.106] attack, and that's pretty brutal.
+- [18:30.809] We haven't heard that one in a long time.
+- [18:32.978] So we have to remember that.
+- [18:34.146] So I have a disagreement with the Prime Minister on
+- [18:37.416] that score.
+- [18:39.651] One of our few disagreements actually.
+- [18:41.320] Prime Minister Starmer: Great.
+- [18:43.388] Can I take Jack from the Sun?
+- [18:44.790] Jack.
+- [18:45.457] The Press: Thank you both.
+- [18:47.326] Jack Elson from the Sun.
+- [18:48.527] Mr. President, in the nine months you've been in
+- [18:50.095] office, you've been incredibly successful in
+- [18:52.364] all but eliminating crossings in your southern
+- [18:54.333] border.
+- [18:55.000] The President: Yeah.
+- [18:55.901] The Press: Meanwhile, illegal migration is at
+- [18:58.804] record levels in Britain and the Prime Minister is
+- [19:00.138] trying to tackle that.
+- [19:00.806] What advice would you give to the man standing next
+- [19:02.140] to you on trying to stop illegal migration in
+- [19:04.042] Britain?
+- [19:04.710] And Prime Minister, if I can just ask, the
+- [19:06.445] President is all about drill-baby-drill in terms
+- [19:09.248] of trying to secure American energy and cut
+- [19:11.917] bills for Americans.
+- [19:13.352] Meanwhile, you are turning Britain's back on oil and
+- [19:16.021] gas in favor of renewable energies such as wind
+- [19:18.323] turbines.
+- [19:19.124] Why do you think that you are right and he is wrong?
+- [19:21.059] The President: So we had millions of people flowing
+- [19:24.997] in totally unchecked, totally unvetted from the
+- [19:29.101] Biden administration.
+- [19:31.169] 25 million.
+- [19:32.137] In my opinion, that would be about 25 million.
+- [19:35.507] They came from prisons, they came from mental
+- [19:38.043] institutions.
+- [19:39.311] They were gang members, they were drug dealers.
+- [19:42.281] They came from the Congo, they came from all parts
+- [19:45.684] of South America.
+- [19:46.752] They came from everywhere.
+- [19:48.353] Think of it, prisons from the Congo being released
+- [19:52.357] into the United States.
+- [19:53.559] Prisons opened up in Venezuela and many other
+- [19:56.828] countries pouring into the United States, and I
+- [20:00.332] couldn't believe it.
+- [20:01.400] One of the reasons I decided to run.
+- [20:03.936] I decided to run because I don't want to be
+- [20:07.372] controversial, but you see what's happened and you
+- [20:09.875] see all the information that's come out.
+- [20:11.743] We won in 2020 big and I said, "Let's run.
+- [20:15.380] We got to run." Because I saw what was happening.
+- [20:17.316] And the worst thing that I saw was all of these
+- [20:19.251] people.
+- [20:20.085] We've already solved inflation, we've solved
+- [20:22.421] prices.
+- [20:23.121] Oil is way down, energy is way down the United
+- [20:26.058] States.
+- [20:26.725] But what I saw happening with millions of people
+- [20:31.129] pouring into our country, I couldn't stand to watch
+- [20:34.266] it.
+- [20:35.167] And we've done a great job.
+- [20:37.002] If you've seen the last...
+- [20:38.870] I appreciate your question by the way.
+- [20:40.238] Nobody, absolutely zero and I'm not even sure
+- [20:43.241] that's possible, but it's a very liberal group that
+- [20:46.044] come out with those statistics.
+- [20:47.679] The last three months, we had zero.
+- [20:50.082] From millions of people a year ago we had zero
+- [20:52.751] people enter our country illegally.
+- [20:54.820] And we do have people coming in legally through
+- [20:57.222] a legal process and testing and lots of other
+- [20:59.758] things.
+- [21:00.759] I think it's very important and we speak
+- [21:02.995] about it and I think your situation is very similar.
+- [21:06.565] You have people coming in and I told the Prime
+- [21:10.335] Minister I would stop it and it doesn't matter if
+- [21:13.271] you call out the military, it doesn't matter what
+- [21:15.674] means you use, but it's going to destroy...
+- [21:18.543] It destroys countries from within and we're actually
+- [21:21.947] now removing a lot of the people that came into our
+- [21:24.316] country.
+- [21:24.983] It's a very hard chore.
+- [21:25.951] We were given a very, very bad hand.
+- [21:30.722] Millions of people came in from prisons and mental
+- [21:33.425] institutions.
+- [21:34.192] We have to remove them and we are removing them.
+- [21:37.062] We have no choice.
+- [21:37.963] And I feel very strongly about it.
+- [21:39.965] Thank you very much.
+- [21:40.966] Prime Minister Starmer: Jack, let me just deal
+- [21:44.169] with the question of returns because this is
+- [21:48.206] obviously an issue we're taking incredibly
+- [21:50.509] seriously.
+- [21:51.209] We've struck a number of deals both on cooperation
+- [21:53.645] with other countries because this is a problem
+- [21:55.781] right across Europe to tackle the problem of
+- [21:59.317] actually breaking up the gangs that are running
+- [22:01.053] this trade.
+- [22:02.220] We have had a record number of returns, over
+- [22:04.456] 35,000 now since we came into office.
+- [22:07.459] That's the highest number for the best part of 10
+- [22:09.895] years.
+- [22:10.862] We struck the returns arrangement with France
+- [22:14.700] and notwithstanding the challenges to that scheme,
+- [22:18.236] which you've seen in the last few days, a flight
+- [22:20.906] went off at 6:15 this morning successfully
+- [22:24.509] returning someone under that scheme.
+- [22:26.812] So that is an important step forward.
+- [22:28.847] Obviously, there's no silver bullet here.
+- [22:30.682] There's a range of things that need to be done, but
+- [22:33.385] given the challenges of returning people, it is
+- [22:37.222] important that we're able to prove it can be done.
+- [22:39.491] It was done.
+- [22:40.158] It was done early this morning.
+- [22:42.294] So I can confirm that that flight went, it went
+- [22:44.329] successfully and I'm pleased about that.
+- [22:46.765] Now we need to ramp that up at scale, which was
+- [22:49.034] always envisaged under the scheme, but it's very
+- [22:52.104] important that we have been able to prove the
+- [22:55.073] proof of concept, if you like that this can be done
+- [22:58.777] and will continue in that way.
+- [23:00.545] On the question of energy, firstly, let me be really
+- [23:03.949] clear that I am absolutely determined to ensure that
+- [23:07.619] the price and cost of energy comes down so that
+- [23:11.723] bills come down both for individuals, for families
+- [23:14.960] with their household bills, but also for
+- [23:17.596] business because this is so important.
+- [23:20.465] The mix will include oil and gas for many years to
+- [23:22.901] come from the North Sea.
+- [23:24.569] We've been clear about that for some time, but we
+- [23:26.638] also need to mix that with renewables and it's the
+- [23:29.407] mix that's really important.
+- [23:31.042] And the approach I've taken on this is the same
+- [23:33.411] approach that I take to many other things, a
+- [23:34.913] pragmatic approach.
+- [23:35.981] Thank you, Jack.
+- [23:37.182] The President: I would like to say that we
+- [23:38.884] inherited the worst inflation in the history
+- [23:42.487] of our country.
+- [23:44.089] We had inflation the likes of which we've really
+- [23:46.224] never seen.
+- [23:46.892] They say 48 years, and I'll accept that, but I
+- [23:49.628] really don't.
+- [23:50.295] We had the worst inflation in the history of our
+- [23:52.898] country, and we had a expression that I used a
+- [23:56.368] lot, drill, baby drill.
+- [23:58.103] And as you know, we brought fuel way down.
+- [24:00.238] The price is way down and we don't do wind because
+- [24:04.209] wind is a disaster.
+- [24:05.243] It's a very expensive joke, frankly, and we got
+- [24:09.848] our energy prices way down that brought the inflation
+- [24:12.217] way down and now we have very little inflation and
+- [24:15.086] we have a very, very strong economy.
+- [24:16.788] So that was very important, drill, baby,
+- [24:19.491] drill.
+- [24:20.258] And you have a great asset here and we spoke about
+- [24:22.761] it, it's called the North Sea, the North Sea oil is
+- [24:25.330] phenomenal.
+- [24:26.164] And I hope, because I love this country, my mother
+- [24:29.768] was born in Scotland and the Hebrides Stornoway,
+- [24:33.972] that's Syria, Scotland, we were talking about it.
+- [24:36.541] And I want this country to do well, and you have
+- [24:39.511] great assets that you're going to start using, I
+- [24:41.847] believe under this Prime Minister.
+- [24:43.215] Prime Minister Starmer: And I've got Matthew from
+- [24:45.717] the Economist.
+- [24:46.384] Matthew.
+- [24:47.052] Matthew: Thank you.
+- [24:48.753] Prime Minister.
+- [24:50.088] Mr. President, you say that President Putin has
+- [24:53.425] let you down, have negotiations run out of
+- [24:56.228] road, and what are your next steps to compel an
+- [24:59.464] end to this war?
+- [25:00.298] The President: Well, he has let me down.
+- [25:02.968] I mean, he's killing many people and he's losing
+- [25:05.270] more people than he's killing.
+- [25:07.539] Frankly, the Russian soldiers are being killed
+- [25:10.475] at a higher rate than the Ukrainian soldiers.
+- [25:12.277] But yeah, he's let me down, I don't like to see,
+- [25:16.715] it's death you know?
+- [25:18.383] It doesn't affect the United States, other than
+- [25:20.719] unless you end up in a world war over this thing,
+- [25:23.421] you could, this was a thing that would've never
+- [25:26.391] happened had I been president.
+- [25:27.959] If I were president, it would've never happened
+- [25:29.594] and it didn't happen for four years, most people
+- [25:31.529] agree it didn't happen, nor was it close to
+- [25:35.166] happening.
+- [25:35.834] And I spoke to President Putin about Ukraine, it
+- [25:38.036] was the apple of his eye, I've said that many times
+- [25:40.105] it was.
+- [25:41.039] But he would've never done what he did except that he
+- [25:43.842] didn't respect the leadership of the United
+- [25:45.777] States.
+- [25:46.845] They just went through the Afghanistan total disaster
+- [25:50.348] for no reason whatsoever.
+- [25:51.783] We're going to leave Afghanistan, but we're
+- [25:53.718] going to leave it with strength and dignity and
+- [25:56.121] we're going to keep Bagram the big air base, one of
+- [25:59.157] the biggest air bases in the world, we gave it to
+- [26:01.059] them for nothing.
+- [26:02.661] We're trying to get it back by the way, okay,
+- [26:04.863] that could be a little breaking news.
+- [26:06.264] We're trying to get it back because they need
+- [26:09.034] things from us, we want that base back.
+- [26:11.670] But one of the reasons we want the base is, as you
+- [26:14.105] know, it's an hour away from where China makes its
+- [26:16.241] nuclear weapons.
+- [26:17.842] So a lot of things are happening, but I am very
+- [26:21.279] disappointed in the fact that that one's not
+- [26:24.549] settled.
+- [26:25.216] To think that we settled Azerbaijan and Albania as
+- [26:31.990] an example, it was going on for years, it was never
+- [26:35.427] going to be settled.
+- [26:37.028] If you remember the prime minister and the
+- [26:39.731] presidents, they were there for many years, when
+- [26:42.901] they were in my office, we settled.
+- [26:45.337] And they started off at both sides of the Oval
+- [26:47.572] Office, so far away I didn't know you could be
+- [26:49.407] so far away.
+- [26:51.309] And as we were together for an hour, they kept
+- [26:54.012] getting closer, closer, and by the time we
+- [26:56.548] finished we all hugged each other.
+- [26:58.917] And one said, I've been in this position for 22 years
+- [27:02.587] and all I've done is kill their people.
+- [27:06.958] The other was there for seven years and all he did
+- [27:09.160] was kill their people and we got it settled.
+- [27:12.497] And we did others, as you know, Congo, the Congo we
+- [27:16.368] did, we settled the Congo with Rwanda that was going
+- [27:20.605] on, and that was a machete war, that was a gruesome
+- [27:23.608] war.
+- [27:24.309] Many people, close to 10 million people killed, we
+- [27:26.578] got that settled.
+- [27:27.245] My biggest disappointment, but look, we did seven and
+- [27:33.818] most of them were not thought to be settleable.
+- [27:37.155] We did India and we did Pakistan, that's two
+- [27:39.824] nuclear, that was purely for trade.
+- [27:41.793] You want to trade with us, you're going to have to
+- [27:43.228] get along and they were going at it hot and heavy.
+- [27:46.031] But the Russia situation, I hope we're going to have
+- [27:50.769] some good news for you coming up.
+- [27:52.504] But again, it doesn't affect the United States.
+- [27:55.774] And look, it doesn't so much affect you, of course
+- [27:58.843] you are a lot closer to the scene than we are, we
+- [28:00.945] have a whole ocean separating us.
+- [28:02.947] But I will say this, millions of people have
+- [28:06.684] died in that war, millions of souls, and they're not
+- [28:11.156] American.
+- [28:11.823] They're soldiers, mostly soldiers as you know, the
+- [28:14.526] soldiers are being killed at levels nobody's seen
+- [28:17.162] since the Second World War.
+- [28:18.897] But they're being killed and I feel I have an
+- [28:21.800] obligation to get it settled for that reason.
+- [28:23.768] Prime Minister Starmer: And just to add on that
+- [28:26.905] question, because we have to put extra pressure on
+- [28:29.240] Putin and it's only when the President has put
+- [28:33.978] pressure on Putin that he's actually shown any
+- [28:37.082] inclination to move, so we have to ramp that pressure
+- [28:39.584] up.
+- [28:40.251] I think it's important to have this conversation in
+- [28:41.786] the context of what's happened in recent weeks,
+- [28:44.055] we saw damage and bombing to the British Council in
+- [28:47.725] Kiev.
+- [28:48.393] These are targets that it was thought until recently
+- [28:52.063] were not targets that would be hit, the British
+- [28:54.199] Council, the European Union Embassy, the Council
+- [28:57.902] of Ministers where President Zelenskyy's
+- [28:59.804] minister's work was hit.
+- [29:01.940] Again, these were thought to be places that wouldn't
+- [29:04.242] be hit.
+- [29:05.076] And then the incursion into Poland last week.
+- [29:09.547] And if you put that together, what you can see
+- [29:12.417] is either an emboldenment or at least an increased
+- [29:15.954] recklessness on Putin's part.
+- [29:18.089] And that's why I said earlier that they're not
+- [29:19.891] the actions of someone who wants peace, so we have to
+- [29:23.094] ramp up.
+- [29:24.028] And we discussed earlier today, we have built the
+- [29:27.432] coalition of the willing with British leadership
+- [29:30.335] and French leadership stepping up with military
+- [29:33.238] planning in the seas, in the sky, on the ground and
+- [29:39.310] ramping up what we do with the Ukrainians themselves.
+- [29:42.614] And of course that taken with an American guarantee
+- [29:46.151] is now an example I think of the challenge of Europe
+- [29:50.688] stepping up to the plate, which it has done in the
+- [29:52.657] last few months to show through what we and the
+- [29:55.894] French have done that we're prepared to take the
+- [29:57.762] lead in this and take the necessary measures.
+- [30:00.031] The President: But that's a war that could have been
+- [30:01.699] a third world war and I don't think we're going to
+- [30:03.201] be there now, but that was heading to a third world
+- [30:06.404] war and what a shame it is, what a shame it is.
+- [30:10.475] Prime Minister Starmer: Mr. President, do you want
+- [30:11.809] to call some of the audience?
+- [30:13.044] The President: I would love to call a few of
+- [30:14.646] them.
+- [30:15.313] Bev, do you want to have a question?
+- [30:16.648] Prime Minister Starmer: I've got to come back to
+- [30:18.917] you.
+- [30:19.584] The Press: Bev Turner at GB News.
+- [30:21.119] Thank you.
+- [30:21.786] Having been in DC for a few weeks, it's really
+- [30:24.455] interesting to see how you run the country as a proud
+- [30:27.725] Christian leader and it really begs the question
+- [30:30.895] to the Prime Minister, if you don't mind, are we
+- [30:32.697] still a Christian country?
+- [30:34.766] But also --
+- [30:35.433] The President: When you say we, are you talking
+- [30:37.168] here?
+- [30:37.835] The Press: Here, the UK.
+- [30:38.503] The President: Here?
+- [30:39.170] The Press: I'm still British, I might live in
+- [30:40.505] America but I'm still British.
+- [30:41.606] The President: I'd rather have him answer that
+- [30:42.941] question.
+- [30:43.608] I can't give you that answer.
+- [30:44.275] The Press: That's for the Prime Minister.
+- [30:45.710] But also, despite what we talked about in Scotland a
+- [30:49.180] few weeks ago, we still have 12,000 people a year
+- [30:52.750] here being arrested for social media posts, for
+- [30:55.887] free speech violations.
+- [30:58.022] Does that not remain an important area that there
+- [31:00.758] is still a lot of disagreement on?
+- [31:02.193] The President: Yeah, I'd like to have you answer
+- [31:05.129] that.
+- [31:05.797] Prime Minister Starmer: Yeah, look, I mean in
+- [31:07.131] terms of a Christian country, I was christened,
+- [31:08.466] so that is my church, has been all my life and that
+- [31:13.304] is wired into our informal constitution.
+- [31:16.207] Of course, we celebrate many other faiths as well
+- [31:20.612] and I'm really proud that we're able to do so as a
+- [31:24.282] country.
+- [31:25.183] And on free speech, that has long-lived in this
+- [31:29.287] country, free speech, it's one of the founding values
+- [31:32.657] of the United Kingdom.
+- [31:34.459] And we protect it jealously and fiercely and
+- [31:39.297] always will, and we will bear down on any limits on
+- [31:43.468] free speech.
+- [31:44.802] I draw a limit between free speech and the speech
+- [31:49.540] of those that want to peddle pedophilia and
+- [31:53.811] suicide social media to children.
+- [31:57.815] And therefore, I'm all for free speech, I'm also for
+- [32:01.152] protecting children from things that will harm
+- [32:04.555] them, pedophiles, those that peddle suicide, which
+- [32:08.760] had a terrible consequence for individuals,
+- [32:11.729] particularly teenagers.
+- [32:12.797] And so that's the balance we strike, but we have had
+- [32:16.301] freedom of speech in this country for a very long
+- [32:19.437] time and we will always protect it.
+- [32:21.639] The President: Thank you.
+- [32:23.007] Thank you very much.
+- [32:23.708] Brian, please.
+- [32:24.409] The Press: Thank you.
+- [32:25.977] Prime Minister, it's good to see you again.
+- [32:27.612] You have a beautiful country, thanks for having
+- [32:29.547] us.
+- [32:30.214] Prime Minister Starmer: Thank you for being here.
+- [32:31.549] The Press: Two questions.
+- [32:32.216] One, just recently, President Trump labeled
+- [32:34.419] Antifa domestic terrorist, would you consider doing
+- [32:37.889] something like that in your country?
+- [32:39.290] Prime Minister Starmer: Well, we obviously will
+- [32:44.629] take decisions for ourselves.
+- [32:46.197] I don't want to comment on the decisions of the
+- [32:48.900] President, but we take our decisions ourselves.
+- [32:52.837] The Press: And my question to you, President Trump,
+- [32:55.606] is there any update on the autopen?
+- [32:57.975] The President: Yeah, it's just gotten worse from
+- [33:02.680] their standpoint.
+- [33:03.848] The people that used it in particular one person, was
+- [33:08.319] never told by Biden to do it, only spoke to Biden
+- [33:11.723] twice and that was just talking about the weather,
+- [33:14.926] not talking about any order.
+- [33:17.095] And he was taking orders from people other than Joe
+- [33:20.531] Biden, Joe Biden wasn't giving those orders.
+- [33:23.501] Joe Biden didn't believe in open borders, he
+- [33:27.105] didn't, I've known him for a long time.
+- [33:29.507] He was never the brightest bulb in the ceiling as we
+- [33:33.478] know, you can go back 40 years ago and you'll see
+- [33:36.347] that, go back and take a look at the hearings on
+- [33:39.851] Justice Thomas, and you'll see that very much.
+- [33:42.987] But he didn't believe in open borders and all of
+- [33:47.458] this nonsense that they're peddling now, which is why
+- [33:49.761] they're not in office any longer.
+- [33:51.963] It's a shame, the autopen was a illegal, it was
+- [33:58.169] illegally used, he never gave the orders, he never
+- [34:00.338] told them what to do.
+- [34:01.305] And I guess the only one he signed or one of the
+- [34:04.075] few he signed was the pardon for his son.
+- [34:06.911] But you had the congressmen who when they
+- [34:11.883] got the information, they found out they were guilty
+- [34:14.986] and they deleted and destroyed all information,
+- [34:17.789] everything, you couldn't get any of it.
+- [34:19.724] They found out that Nancy Pelosi actually was
+- [34:22.226] offered the 10,000 soldiers and she turned
+- [34:24.495] them down.
+- [34:26.097] They found out many things that were very bad, so
+- [34:28.533] they deleted and destroyed all information.
+- [34:31.402] You talk about freedom of the press and freedom of
+- [34:33.337] speech, how about that one?
+- [34:35.273] And there's not a thing, this is after a year and a
+- [34:37.708] half of hearings, they destroyed everything and
+- [34:43.815] somebody's got to be held responsible.
+- [34:45.883] So Biden, what he did is they knew, I don't think
+- [34:49.420] he knew, but somebody knew, I don't think Biden
+- [34:51.556] had a clue about anything, if you want to know the
+- [34:53.791] truth.
+- [34:54.625] But they gave a pardon to those congresspeople, they
+- [34:59.030] gave a pardon.
+- [35:00.198] Those people are so guilty, they gave a
+- [35:02.099] pardon, but Biden didn't know about it.
+- [35:04.669] The people, whether it's Lisa or any of those
+- [35:08.506] people in there that really ran it, I know them
+- [35:11.976] all and they're sick people.
+- [35:14.145] They're smart people, they're very smart,
+- [35:15.546] they're probably brilliant, but they're
+- [35:16.881] sick in ideology and they were running the autopen
+- [35:21.052] and it was totally illegal what he did and I hope
+- [35:24.789] it's going to be so adjudged.
+- [35:26.123] Prime Minister Starmer: Did you want to take one
+- [35:27.458] more and then I'll go back to British.
+- [35:28.793] The President: Okay, let's see, Peter, go ahead.
+- [35:32.129] The Press: Thank you, President Trump.
+- [35:35.066] In the deal that you're working on for the Chinese
+- [35:38.135] to sell TikTok to an American buyer, are the
+- [35:41.405] Americans going to have to come up with their own
+- [35:43.808] algorithm or are they going to continue to use
+- [35:47.078] the successful but addictive Chinese
+- [35:49.881] algorithm?
+- [35:50.548] The President: So what we're doing, and we're
+- [35:51.916] speaking to President Xi on Friday to see if we can
+- [35:54.619] finalize something on TikTok because there is
+- [35:56.787] tremendous value and I hate to give away value.
+- [35:59.156] But I like TikTok, it helped get me elected.
+- [36:02.426] In fact, Charlie said, "Sir, you ought to get on
+- [36:05.630] TikTok, you'd be great." I said, "Really?
+- [36:07.298] Tell me about TikTok.
+- [36:09.033] And as you know, we did unbelievably well with
+- [36:11.302] youth at a level that no Republican has ever even
+- [36:14.705] dreamt of.
+- [36:16.040] And look, I think we won it for a lot of reasons,
+- [36:18.709] but that was a reason we won the election by such a
+- [36:21.145] big number.
+- [36:22.013] TikTok has tremendous value.
+- [36:27.051] The United States has that value in its hand because
+- [36:29.820] we're the ones that have to approve it.
+- [36:31.222] I specifically get the right to approve it.
+- [36:33.891] The people that are investing it are among the
+- [36:36.227] greatest investors in the world, the biggest, the
+- [36:38.496] richest, and they'll do a great job.
+- [36:40.765] And we're doing it in conjunction with China,
+- [36:43.901] but we are getting, the United States is getting a
+- [36:46.370] tremendous fee-plus, I call it a fee-plus, for
+- [36:50.107] just making the deal.
+- [36:51.175] And I don't want to throw that out the window.
+- [36:53.210] I can say this, that you'll have a lot of very
+- [36:56.347] unhappy youth.
+- [36:57.848] And I use TikTok very legitimately, very
+- [37:00.685] straight, just statements every day, little
+- [37:02.987] statements, short statements.
+- [37:04.388] Sir, make it short, please.
+- [37:05.489] And TikTok Jack, we call him, he was pretty good.
+- [37:08.693] Did a good job for me I guess.
+- [37:10.127] But no, I'd rather reap the benefits.
+- [37:14.298] I mean the kind of money we're talking about is
+- [37:16.434] very substantial and it'll be owned by all American
+- [37:19.737] investors and the best investors and the very
+- [37:23.040] rich people and companies are going to be owning it.
+- [37:24.375] Very, very straight, very legitimate companies and
+- [37:25.910] really companies that love America.
+- [37:29.013] So they're going to be owning it.
+- [37:34.218] It's a big thing.
+- [37:35.052] And on a much bigger scale and probably that's why we
+- [37:38.289] were able to get that, but on a much bigger scale,
+- [37:41.092] we're pretty close to a deal.
+- [37:42.159] We may do an extension with China, but it's an
+- [37:44.195] extension based on the same terms that we have
+- [37:46.364] right now, which are pretty good terms.
+- [37:48.265] The Press: And my question for Prime Minister
+- [37:50.267] Starmer.
+- [37:50.935] If you feel so strongly about officially
+- [37:53.537] recognizing Palestine for statehood, why are you
+- [37:56.941] waiting for President Trump to leave the
+- [37:58.309] country?
+- [37:59.043] Why can't you just do it right now?
+- [38:01.078] And isn't there a risk in rewarding Hamas with that?
+- [38:06.183] Prime Minister Starmer: Well, let me be really
+- [38:07.618] clear about Hamas.
+- [38:09.286] They're a terrorist organization who can have
+- [38:11.856] no part in any future governance in Palestine.
+- [38:16.527] And what happened on October the seventh was
+- [38:20.064] the worst attack since the Holocaust.
+- [38:22.800] We have extended family in Israel.
+- [38:24.135] I understand firsthand the psychological impact that
+- [38:29.273] that had across Israel.
+- [38:32.576] So I know exactly where I stand in relation to
+- [38:34.845] Hamas.
+- [38:35.513] Hamas of course don't want two-state solution.
+- [38:37.448] They don't want peace.
+- [38:38.115] They don't want the ceasefire.
+- [38:39.016] I'm very clear where I stand on Hamas.
+- [38:40.351] On the question of recognition, I made my
+- [38:41.686] position clear at the end of July.
+- [38:43.020] As to the timing, which has got nothing to do with
+- [38:51.495] this state visit, and I've discussed it with the
+- [38:55.199] president, as you would expect amongst two leaders
+- [38:58.169] who respect each other and like each other and want
+- [39:00.671] to bring about a better solution in the best way
+- [39:04.141] that we can.
+- [39:04.809] Thank you so much.
+- [39:05.476] Can I go back then to Robert at ITV?
+- [39:09.346] The Press: Robert Peston, ITV.
+- [39:13.150] Mr. President, you uniquely, you alone, the
+- [39:15.953] whole world have the power to persuade Prime Minister
+- [39:20.658] Netanyahu to stop the demolition of Gaza City,
+- [39:23.861] to stop the starvation of Palestine, to stop the
+- [39:27.932] killing of civilians.
+- [39:31.202] If not now, when will you exercise that power to
+- [39:35.139] tell them to stop?
+- [39:36.307] The President: Sure.
+- [39:37.641] The Press: And then for both of you all-
+- [39:39.510] The President: But you do understand about October
+- [39:42.046] 7th?
+- [39:42.713] You do understand?
+- [39:43.380] The Press: Believe me, I understand about that.
+- [39:45.082] The President: One of the worst days in the history
+- [39:47.485] of humanity.
+- [39:48.586] What happened?
+- [39:49.420] I have seen the tapes.
+- [39:51.856] Babies that are four months old, just chopped
+- [39:54.992] up to pieces.
+- [39:55.893] And you've seen the tapes and I've seen the tapes.
+- [39:58.429] You're a professional and so am I.
+- [40:00.664] And people forget about October 7th.
+- [40:03.033] I can't forget about it.
+- [40:04.201] So I want it to end, but I want the hostages back.
+- [40:08.139] I don't want the hostages used as human shields,
+- [40:11.041] which is what Hamas is threatening to do.
+- [40:12.810] The Press: But as soon as they're back, that's the
+- [40:14.245] moment you will tell Netanyahu to stop.
+- [40:17.915] The President: Well, it would certainly help, but
+- [40:19.316] I have to have the hostages back.
+- [40:20.684] And I don't want them back piecemeal as I said
+- [40:22.019] before.
+- [40:22.686] I want him back.
+- [40:23.354] The Press: On a separate issue, free speech.
+- [40:27.191] Your Vice President Vance said that free speech is
+- [40:32.530] under attack in the UK.
+- [40:34.632] Do you agree with him and Prime Minister?
+- [40:36.801] We saw the dismissal of a very well-known chat show
+- [40:41.038] host in America last night, Mr. Kimmel.
+- [40:43.440] Is free speech more under attack in Britain or
+- [40:46.310] America?
+- [40:46.977] The President: Well, Jimmy Kimmel was fired because
+- [40:48.512] he had bad ratings more than anything else.
+- [40:50.414] And he said a horrible thing about a great
+- [40:52.216] gentleman known as Charlie Kirk.
+- [40:54.018] And Jimmy Kimmel is not a talented person.
+- [40:57.188] He had very bad ratings, and they should have fired
+- [40:59.089] him a long time ago.
+- [41:00.057] So you can call that free speech or not.
+- [41:03.093] He was fired for lack of talent.
+- [41:04.728] Yeah, please go ahead.
+- [41:05.996] Prime Minister Starmer: Yeah, I mean firstly on
+- [41:08.532] the question of Charlie Kirk, can I just express
+- [41:11.468] how shocking that is I think to everybody who
+- [41:14.071] believes in free speech and in democracy, and it
+- [41:18.876] sent shockwaves through the world.
+- [41:22.346] And I know that he was a friend of the president
+- [41:26.283] and I reached out straight away to the president
+- [41:28.485] because I understood how impactful it would be on
+- [41:30.988] him and his family.
+- [41:32.489] And we all need to be absolutely clear about
+- [41:35.559] that.
+- [41:36.227] Whatever our political views, it is shocking and
+- [41:39.230] is to be condemned.
+- [41:40.965] On free speech, not much to add to the answer I
+- [41:43.968] gave earlier.
+- [41:44.869] This country's had free speech for a very, very
+- [41:47.638] long time.
+- [41:48.505] It is part of who we are as a country, and it is
+- [41:53.244] the values that we fought for.
+- [41:54.678] We fought for it during the Second World War
+- [41:57.314] alongside each other, so we need no reminding of
+- [42:00.651] the importance of free speech in this country.
+- [42:02.753] Thank you, Robert.
+- [42:03.787] And I go to Beth for the final question please.
+- [42:07.224] Beth.
+- [42:07.892] The Press: Thank you so much.
+- [42:10.160] Thank you.
+- [42:11.395] Beth Rigby, Sky News.
+- [42:12.263] Thank you, Prime Minister.
+- [42:13.597] If I could start with you.
+- [42:15.532] Prime Minister, President Trump has said he's ready
+- [42:18.269] to impose major sanctions on Russia if NATO country
+- [42:21.939] stop purchasing Russian oil.
+- [42:24.475] He's got a point, hasn't he?
+- [42:26.477] Is that what you now believe is needed to bring
+- [42:29.280] Putin properly to the table?
+- [42:31.448] And what's your message to the president on U.S.
+- [42:33.984] sanctions?
+- [42:34.652] And Mr. President, if I may, the king praised your
+- [42:38.889] personal commitment last night to finding solutions
+- [42:42.159] to the world's most intractable conflicts.
+- [42:45.729] You have invested much of your time and effort in
+- [42:48.332] Ukraine.
+- [42:49.366] But even as you seek to broker a deal, President
+- [42:52.536] Putin is escalating the war, he's firing drones
+- [42:55.673] into NATO airspace.
+- [42:57.775] You say he has let you down.
+- [43:00.344] Was it a mistake to invite him to Alaska?
+- [43:03.380] Do you regret it?
+- [43:04.315] The President: No.
+- [43:05.282] The Press: And is it time to squeeze him, sir, and
+- [43:08.085] scare him and impose sanctions?
+- [43:09.620] And finally, if I may, the elephant in the room, Lord
+- [43:13.057] Mandelson, he is no longer the ambassador.
+- [43:16.560] Do you have some sympathy with him that he lost his
+- [43:20.064] job over historic links to Jeffrey Epstein?
+- [43:23.367] Thank you very much, sir.
+- [43:24.168] The President: I don't know him actually.
+- [43:25.936] I had heard that, and I think maybe the Prime
+- [43:28.939] Minister would be better speaking of that.
+- [43:31.108] That was a choice that he made and I don't know.
+- [43:33.610] What is your answer to that?
+- [43:34.845] Prime Minister Starmer: Well, I mean it's very
+- [43:37.314] straightforward.
+- [43:37.982] Some information came to light last week which
+- [43:39.383] wasn't available when he was appointed, and I made
+- [43:41.118] a decision about it.
+- [43:43.087] And that's very clear.
+- [43:45.456] On the question of the pressure on Putin and on
+- [43:51.095] Russia, which is obviously really important.
+- [43:52.563] Look, I think it is a challenge to Europe.
+- [43:57.301] There are a number of European countries which
+- [43:59.370] are too reliant on energy from Russia.
+- [44:04.074] The UK actually obviously has almost got nothing at
+- [44:08.245] all, but we do need to bear down and work with
+- [44:10.180] our European counterparts here.
+- [44:11.949] There are one or two countries I think that do
+- [44:15.219] need to look again at the question of energy.
+- [44:18.055] There's no one silver bullet here.
+- [44:20.024] We do have to have a wider suite of sanctions, which
+- [44:22.960] we've put in place a number of times working
+- [44:26.263] across Europe and with the United States.
+- [44:29.867] And of course we must and we are making sure that
+- [44:33.971] Ukraine is in the strongest position now
+- [44:37.908] because one of my long concerns here has been
+- [44:40.377] that whilst we talk about a cease-fire and we all
+- [44:42.279] want a cease-fire and we talk about what might
+- [44:45.516] happen after a cease-fire, we mustn't forget that
+- [44:48.352] Ukraine needs our support now.
+- [44:49.887] And we've said we stand with Ukraine from the
+- [44:51.622] start to the finish and that means we must
+- [44:53.424] continue to supply them with what they need in
+- [44:56.460] order to fight this war which of course resulted
+- [44:59.730] from and is a result of Russian aggression.
+- [45:03.667] We have particularly done the leadership role in the
+- [45:07.371] coalition of the willing so that if there is a
+- [45:10.140] ceasefire and if there is a deal, and I do hope
+- [45:13.210] there is, that is then lasting and not then
+- [45:15.746] broken because given previous history, I don't
+- [45:20.617] trust Putin.
+- [45:21.318] Thank you.
+- [45:21.985] The President: Very simply, if the price of
+- [45:23.587] oil comes down, Putin's going to drop out.
+- [45:25.622] He's going to have no choice.
+- [45:26.290] He's going to drop out of that war.
+- [45:29.426] And when I found out that the European nations were
+- [45:31.728] buying oil from Russia, and as you know I'm very
+- [45:36.033] close to India, I'm very close to the prime
+- [45:38.335] minister of India.
+- [45:39.136] I spoke to him the other day, wished him a happy
+- [45:41.105] birthday.
+- [45:41.772] We have a very good relationship.
+- [45:43.107] He put out a beautiful statement too.
+- [45:44.475] But I sanctioned them.
+- [45:48.612] China's paying a very large tariff right now to
+- [45:51.415] the United States.
+- [45:52.916] But I'm willing to do other things, but not when
+- [45:55.652] the people that I'm fighting for are buying
+- [45:58.722] oil from Russia.
+- [46:00.124] If the oil price comes down very simply, Russia
+- [46:03.060] will settle and the oil price is way down.
+- [46:05.496] We got it way down.
+- [46:06.396] We're drilling and we produce more oil than
+- [46:09.032] anybody else in the world.
+- [46:10.167] We're doing a lot.
+- [46:11.568] But I was disappointed to see that.
+- [46:13.670] And the Prime Minister was disappointed to see that.
+- [46:16.140] And it wasn't him.
+- [46:17.307] It was other countries.
+- [46:19.576] And you can't do that.
+- [46:21.111] You can't do that.
+- [46:21.812] That's not playing fair with the United States.
+- [46:25.182] And we can't have that.
+- [46:26.450] Thank you.
+- [46:27.251] Prime Minister Starmer: Thank you very much
+- [46:27.885] indeed.
+- [46:28.352] Thank you.
+- [46:29.386] The President: Thank you.
+- [46:30.921] (applause)

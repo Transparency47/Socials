@@ -1,0 +1,560 @@
+<!-- source: https://www.youtube.com/watch?v=TtMt_61bSBI -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: TtMt_61bSBI -->
+<!-- date_published: 2025-09-17T19:06:48+00:00 -->
+<!-- date_accessed: 2026-06-02T01:15:25.216373+00:00 -->
+
+# Transcript: Vice President JD Vance Delivers Remarks on President Trump's Tax Cuts
+
+- [00:00.170] Representative Barrett: I'm proud to welcome
+- [00:01.430] Lori Chavez-DeRemer to the stage,
+- [00:02.720] Secretary of Labor. Thank you so much.
+- [00:09.870] ♪ (rock music playing) ♪
+- [00:18.810] Secretary Chavez-DeRemer: Thank you, Tom,
+- [00:20.400] for that kind introduction.
+- [00:22.680] You're doing great at representing your district
+- [00:25.270] here in Michigan, and I'm honored to be with you
+- [00:28.260] and the Vice President today at Hatch Stamping.
+- [00:33.550] That's right. Give it a hand.
+- [00:35.740] (applause)
+- [00:41.170] This is my first time on the road
+- [00:43.160] with the Vice President, Vice President Vance,
+- [00:46.070] and it is fitting that we're starting right here
+- [00:48.460] in the heart of America's industrial revolution
+- [00:51.870] as we continue fighting to put America workers first.
+- [00:57.050] With close ties to businesses and unions,
+- [01:00.060] I was thought by some to be an unconventional pick
+- [01:03.950] to serve as the labor secretary in a Republican administration.
+- [01:08.970] But President Trump and Vice President Vance
+- [01:11.270] ignited a historic coalition and they wanted someone
+- [01:15.300] who could bring everyone to the table
+- [01:18.050] and listen to the voices of the forgotten working class.
+- [01:22.320] No one understands this better than the Vice President,
+- [01:25.740] and I am grateful that he and the President
+- [01:28.260] trusted me to serve as your 30th Secretary of Labor.
+- [01:33.810] I'm proud to deliver this message.
+- [01:36.450] The Golden Age of America is here.
+- [01:41.000] (applause)
+- [01:47.880] Nine months into this administration,
+- [01:50.240] America First policies have created
+- [01:52.860] hundreds of thousands of private sector jobs,
+- [01:55.990] and job growth has been entirely among native-born Americans.
+- [02:00.510] Working-class wages are up,
+- [02:02.610] and GDP growth has smashed expectations.
+- [02:06.450] We've also seen nearly $8 trillion in private investment
+- [02:09.860] since Inauguration Day,
+- [02:12.180] which will bring mortgage-paying jobs back to the United States.
+- [02:17.000] Turns out all we needed to kick off the Golden Age
+- [02:20.530] was a new president.
+- [02:23.220] (applause)
+- [02:30.440] We have a master negotiator in the Oval Office
+- [02:33.250] who is putting American interests first again.
+- [02:36.320] President Trump has been striking new trade deals
+- [02:39.220] to restore our nation
+- [02:40.560] as the world's manufacturing superpower.
+- [02:44.200] Time and again,
+- [02:45.410] this administration has proven its commitment
+- [02:47.700] to putting American workers first.
+- [02:50.310] A prime example is the working-family tax
+- [02:53.170] cut that President Trump
+- [02:54.700] and Vice President Vance spearheaded.
+- [02:57.730] This big, beautiful bill delivered no tax on overtime,
+- [03:02.390] no tax on tips, and no tax social security.
+- [03:07.250] Working class families can expect to see
+- [03:09.410] an average of $10,000 more in take home pay.
+- [03:12.980] As a mom of twin girls, and now a grandmother,
+- [03:16.800] and my one daughter and my grandson,
+- [03:19.520] who also live in Michigan, Saginaw, Michigan, are here.
+- [03:28.230] I know just how life-changing it can be for a family of four
+- [03:32.850] when paychecks go further.
+- [03:35.470] I've told my former colleagues in Congress
+- [03:37.920] that the Working Family Tax Cut
+- [03:39.510] was probably the most important piece of legislation
+- [03:42.720] that they'll get to vote on
+- [03:44.380] and one of the most pro-worker bills in modern history.
+- [03:48.890] At the Labor Department, we're very excited
+- [03:51.380] about the provisions to expand Pell Grants
+- [03:53.990] for Technical Education, which will help attract future
+- [03:57.690] tradesmen and women to the job market.
+- [04:00.730] You all know that America won't be forged
+- [04:02.760] in the halls of these woke universities.
+- [04:05.200] It will be built by the hands of our skilled workers.
+- [04:09.460] This is the belief that Charlie Kirk and I shared.
+- [04:13.420] When talking about the next generation of American workers,
+- [04:16.960] I think about Charlie,
+- [04:18.640] who was always fighting for what he believed in
+- [04:21.220] and standing up for future generations.
+- [04:24.510] It's been one week since we lost him.
+- [04:27.360] And my prayers are with his wife Erica,
+- [04:29.900] his beautiful children and all of his loved ones.
+- [04:34.010] Charlie Kirk was an advocate
+- [04:35.550] for alternative pathways to workforce.
+- [04:38.060] Recently having said, we need more electricians
+- [04:41.220] and less sociology majors.
+- [04:44.140] He understood that living a life of meaning
+- [04:47.330] and contributing to your community
+- [04:49.470] was far more important than a piece of paper.
+- [04:52.660] We will honor Charlie's legacy
+- [04:54.250] by keeping up the fight for the next generation.
+- [04:57.670] And we're going to do that
+- [04:58.890] by continuing to expand apprenticeships
+- [05:01.360] so that our young people have an alternative pathway
+- [05:04.320] to success beyond a four-year degree.
+- [05:07.720] Since January, I'm proud to announce
+- [05:09.980] that the Department of Labor has registered
+- [05:12.000] over 180,000 new apprentices,
+- [05:15.230] and nearly 1,800 new registered apprenticeship programs
+- [05:19.260] have launched nationally. I'm confident that we will reach
+- [05:23.450] President Trump's goal of one million active apprentices
+- [05:27.570] across this country. But we can't achieve this goal
+- [05:31.170] without learning the needs of our communities.
+- [05:34.280] You know, when I started this job,
+- [05:35.590] I told my team that I wanted to be on the ground
+- [05:37.760] hearing from you all directly.
+- [05:39.910] That's why I launched my 50 state tour,
+- [05:43.040] America at Work, to learn how the actions in Washington
+- [05:47.240] impact your daily lives.
+- [05:50.280] My door is always open and it's an honor to serve you
+- [05:54.340] and defend your shot at the American dream.
+- [05:58.600] I'd now like to introduce someone who embodies that dream.
+- [06:03.140] Vice President J.D.
+- [06:04.470] Vance has never forgotten his Rust Belt roots
+- [06:08.230] and has fought tirelessly to support the heartland.
+- [06:12.090] He serves the American people with deep understanding
+- [06:15.430] of what hardworking men and women
+- [06:17.080] in this country are up against. And what they are capable of.
+- [06:21.510] Our Vice President knows the true heartbeat of America
+- [06:24.200] is not in Washington, D.C.
+- [06:26.520] It's right here with you. He's doing an incredible job
+- [06:30.540] to help revive our manufacturing sector and ignite our economy.
+- [06:34.850] And it's an honor to work with him to put you,
+- [06:38.750] the American worker, first.
+- [06:41.070] Please join me, ladies and gentlemen,
+- [06:43.720] in welcoming the United States Vice President, Mr. J.D. Vance.
+- [06:50.260] (applause and cheers)
+- [07:08.570] ♪ (rock music playing) ♪
+- [07:25.580] The Vice President: Thank you.
+- [07:26.930] Thank you, guys. Please, please. Thank you all.
+- [07:31.420] Well, it's great to be here in the great state of Michigan.
+- [07:33.960] I always loved coming to Michigan on the campaign trail.
+- [07:37.470] And I'd always said, you know, the most dangerous place
+- [07:40.640] maybe that the Ohio State grad visited
+- [07:42.330] was Michigan on the campaign trail.
+- [07:44.810] But you all were always kind and friendly and good to me.
+- [07:48.030] We love you, too. Thank you, sir.
+- [07:49.630] It's good to see you again, man. I'm not going to do that here.
+- [07:54.040] Somebody yelled out OH. I'm not doing that here.
+- [07:57.260] Don't insult your host is the basic thing
+- [07:59.520] that I learned in politics.
+- [08:02.020] Let me just say a few things, a few words of gratitude.
+- [08:06.560] First of all, you guys are lucky to have a great congressman
+- [08:10.290] who fights for working people
+- [08:12.220] in the state of Michigan, Tom Barrett.
+- [08:14.150] Where are you, Tom? Thank you so much for what you do.
+- [08:17.450] (applause)
+- [08:22.520] We talk a lot about the working families tax cuts.
+- [08:24.840] We talk about no taxes on overtime,
+- [08:26.830] which we are proud to deliver.
+- [08:28.400] No taxes on tips, which we are proud to deliver.
+- [08:31.160] The lowest taxes that we've had in this country
+- [08:33.760] in a very long time,
+- [08:35.210] because Tom Barrett went to Washington
+- [08:38.070] and fought for the people of this district.
+- [08:40.020] Thank you so much, Tom, for everything that you do.
+- [08:43.160] (applause)
+- [08:49.270] I want to thank, of course, the leadership
+- [08:51.710] of this great American manufacturer.
+- [08:53.700] Hatch was founded in 1952 by two brothers.
+- [08:57.700] Where are we out here?
+- [08:58.940] Where's the leadership of Hatch at?
+- [09:01.380] Thank you, guys. Stand up. Come on.
+- [09:02.760] Let's give them a round of applause.
+- [09:05.480] (applause)
+- [09:14.130] Thank you, guys.
+- [09:16.940] I got a little quorum with Daniel Craig
+- [09:19.120] and Wally earlier today. Thank you guys so much.
+- [09:21.490] I'm not going to try to pronounce your last name, Wally.
+- [09:23.370] I don't want to insult you,
+- [09:24.990] or look like an idiot in front of the TV cameras.
+- [09:26.990] But you guys, this is a great facility.
+- [09:29.220] So it started, of course, manufacturing parts
+- [09:32.290] for M1 rifles for the American warfighter.
+- [09:35.520] And now it manufactures all kinds of automotive components
+- [09:39.560] that we rely on each and every single day.
+- [09:48.620] And one of the things they told me
+- [09:50.030] is that business got maybe a little tough,
+- [09:52.160] a little uncertain when they had a president of the United States
+- [09:56.470] who was obsessed with telling everybody
+- [09:59.200] to drive an electric vehicle,
+- [10:00.930] because too many of those electric vehicle components
+- [10:03.550] were not made in America. But now that we are leaning in
+- [10:07.260] to great American-made automobiles,
+- [10:09.800] Hatch is doing better.
+- [10:11.010] The American auto worker is doing better.
+- [10:13.280] And President Trump and I are proud to fight for you each
+- [10:16.070] and every single day.
+- [10:26.880] I've also got to thank our incredible Secretary of Labor.
+- [10:30.130] You just heard from her, Secretary Chavez DeRemer.
+- [10:32.310] Let's get a round of applause
+- [10:33.670] for the great Secretary of Labor.
+- [10:35.720] (applause)
+- [10:40.520] Now, she is a very, very interesting person.
+- [10:43.100] She has got a great career.
+- [10:44.390] She had a great career in Congress.
+- [10:45.890] But I have never met anybody
+- [10:47.480] on either the Republican Party or the Democrat Party
+- [10:50.600] who is more obsessed with fighting
+- [10:52.830] for American workers every single day.
+- [10:55.370] She wants our workers to have the best training.
+- [10:57.940] She wants our workers to have the best benefits.
+- [11:00.090] She wants our workers to have the highest wages.
+- [11:02.410] And thanks to her work,
+- [11:03.680] we're getting closer every single day
+- [11:05.960] to being the most pro-worker administration
+- [11:09.130] in the history of the United States of America.
+- [11:11.110] So thank you, Madam Secretary.
+- [11:13.750] (applause)
+- [11:18.340] We also have Michigan GOP Chair Jim Runestad.
+- [11:20.700] Where's Jim at?
+- [11:22.080] Jim, thank you for everything that you're doing. Thank you.
+- [11:26.690] (applause)
+- [11:27.920] Now, Jim did such a good job during the last election in 2024
+- [11:31.890] that the previous GOP Chair, Pete Hextra,
+- [11:36.560] is now our ambassador to Canada.
+- [11:39.880] So if you do a really good job, man,
+- [11:41.900] you might just get a promotion. Who knows?
+- [11:44.050] But he's doing a great job here in Michigan.
+- [11:45.980] And we're going to fight with him
+- [11:47.240] for the next couple of years
+- [11:48.600] to make sure that we're electing candidates
+- [11:50.880] who actually serve the interests of Michiganders
+- [11:54.090] and serve the interests of the American worker.
+- [11:56.050] And that's what we're here for, and we'll never forget it.
+- [11:58.470] So I want to say just one thing about my friend Charlie Kirk.
+- [12:02.770] I want to talk about Charlie Kirk for a little bit.
+- [12:05.280] The last group I want to have be recognized here
+- [12:07.790] is we have got a lot of kids. And I hate to call you kids,
+- [12:11.270] but when you're 41 years old, you guys are kids.
+- [12:15.180] TPUSA is a great organization
+- [12:17.810] founded by my friend Charlie Kirk
+- [12:19.410] that takes the message of free speech
+- [12:21.860] and conservative values all over our college campuses
+- [12:25.850] here in the state of Michigan and elsewhere.
+- [12:27.550] And we've got some proud TPUSA folks here.
+- [12:31.310] Would you guys stand up and be recognized by the crowd?
+- [12:33.490] We love you.
+- [12:35.600] (applause)
+- [12:48.260] We love these kids. And we love the organization
+- [12:51.000] that was founded by Charlie Kirk.
+- [12:52.460] And I know I speak for all of the kids behind me,
+- [12:55.280] all of the great TPUSA members, and also the alums,
+- [12:59.430] that over the past 10 years,
+- [13:01.250] Turning Point USA has not just been an organization.
+- [13:04.890] It has been the fountain of a movement
+- [13:08.270] all across the United States of America.
+- [13:10.260] If you look at just the youth vote in 2024
+- [13:13.890] and how much young voters
+- [13:15.510] shifted from Democrat to Republican from 2020 to 2024,
+- [13:20.060] Charlie Kirk created a movement. And that movement made Donald J.
+- [13:24.040] Trump the President of the United States,
+- [13:25.640] and it made me the Vice President of the United States.
+- [13:27.880] I would not be here without Charlie.
+- [13:38.030] But Charlie was an exceptionally talented individual.
+- [13:42.100] People don't realize how integral he was,
+- [13:44.600] how important Charlie Kirk was.
+- [13:46.760] He helped to staff the administration
+- [13:48.500] with solid people like Secretary Chavez de Rimmer.
+- [13:51.870] He made sure that when we hired somebody,
+- [13:54.350] that it was a smart person,
+- [13:55.660] but it was also a kind and decent person.
+- [13:58.080] You see him at these college events,
+- [13:59.480] and he would talk to anybody.
+- [14:00.690] He didn't care if you were a Democrat,
+- [14:02.230] a Republican, a liberal, a conservative,
+- [14:04.050] if you supported the Trump administration or not.
+- [14:07.010] He felt that the most important American political virtue
+- [14:11.410] was to just get out there and talk to our fellow Americans.
+- [14:14.760] And I hate to say that a week ago,
+- [14:16.570] he was doing what he did best. He was doing what he loved.
+- [14:20.040] And an assassin gunned him down for daring to say things
+- [14:23.500] that that assassin thought were wrong or shouldn't be said.
+- [14:27.480] Well, I think I speak for every person in this room,
+- [14:29.570] and I think I speak for a majority of our fellow Americans
+- [14:32.250] when I say we do not attack
+- [14:35.210] or commit violence against people
+- [14:36.940] because we disagree with their ideas.
+- [14:39.040] We debate ideas, and we're going to keep on debating them
+- [14:41.690] in honor of the great Charlie Kirk
+- [14:43.460] for as long as I have a microphone.
+- [14:47.010] (applause)
+- [15:00.450] But the last thing I want to say about Charlie, my friends,
+- [15:03.120] is he was more than a political organizer,
+- [15:06.550] more than a person who literally helped make me
+- [15:08.380] the Vice President of the United States.
+- [15:09.940] And I'll never forget it, Charlie,
+- [15:11.460] that I would not be here were it not for you.
+- [15:13.730] He was a good guy. He was a good friend.
+- [15:16.190] I mean, all of these people who've been involved in TPUSA,
+- [15:19.400] you know, Turning Point USA wasn't just a debate society.
+- [15:22.410] It wasn't just a political organization.
+- [15:24.410] It gave these kids a sense of home
+- [15:27.450] and a sense of purpose in often very hostile places.
+- [15:30.930] If you were a young conservative or you were a young Christian
+- [15:33.790] and you were worried that a professor
+- [15:35.600] might give you a bad grade for being who you were,
+- [15:38.730] Charlie's Turning Point USA gave you a home.
+- [15:41.820] If you were worried that you had an idea
+- [15:44.020] that was maybe disfavored by your social group,
+- [15:46.830] if you were worried that you believed something
+- [15:48.560] that was just a little too controversial
+- [15:51.170] for a college campus,
+- [15:52.490] Turning Point USA gave you a home.
+- [15:54.370] It gave you friends. It gave you moral support.
+- [15:57.090] And that is what I think must live on
+- [16:00.190] in the wake of Charlie Kirk's death.
+- [16:02.010] I have friends who met a husband,
+- [16:03.960] a wife, a boyfriend, a girlfriend,
+- [16:05.880] who met the best man at their wedding at Turning Point USA
+- [16:09.750] because it was an organization of patriots
+- [16:12.770] dedicated to making this country
+- [16:15.180] the very best country that it could be.
+- [16:17.270] And I would like to think
+- [16:18.550] that whether you're a Democrat or a Republican,
+- [16:20.720] this basic idea of young people gathering to discuss and debate,
+- [16:25.950] that is the thing that we cannot let pass away
+- [16:29.360] just because the leader of Turning Point USA
+- [16:32.270] was gunned down by an assassin. And I want to let you know
+- [16:35.050] that whether you're a Democrat or a Republican,
+- [16:37.470] whatever your belief is,
+- [16:39.420] I will fight for your right to speak your mind.
+- [16:42.960] We reject political violence.
+- [16:45.210] And we reject the crazy left-wing radicals
+- [16:48.000] that gunned down our friend Charlie Kirk.
+- [16:49.950] Let's talk to one another
+- [16:51.480] and not try to shoot each other down for disagreeing.
+- [16:56.280] (applause)
+- [17:05.390] You know, one of the things that Charlie worked on very,
+- [17:08.330] very hard was the very bill that we're going to talk about today.
+- [17:12.720] I remember having so many phone conversations,
+- [17:14.900] so many text conversations with Charlie
+- [17:17.180] about how to make the bill better,
+- [17:19.030] about how to do more for working families.
+- [17:20.820] Because you know what, Charlie?
+- [17:22.080] He believed exactly what I believed
+- [17:23.830] and exactly what the President of the United States believed,
+- [17:26.700] that we have got to rebuild the American dream,
+- [17:29.480] especially for our young people,
+- [17:32.010] which is why this big, beautiful bill does so much
+- [17:35.730] to bring American manufacturing
+- [17:37.700] back to the United States of America.
+- [17:39.260] Rewarding American Investment and Workers
+- [17:40.660] These working families tax cuts,
+- [17:41.890] they don't just cut your taxes, though they certainly do.
+- [17:44.820] They reward companies for building
+- [17:47.610] and investing in the United States of America.
+- [17:50.290] Because isn't it nice to have an administration
+- [17:53.050] that is fighting for the businesses
+- [17:54.930] and the workers that are building right here at home,
+- [17:58.120] rather than shipping our jobs off to Asia or Mexico?
+- [18:10.040] We fought for no taxes on overtime and no taxes on tips
+- [18:14.490] because we want you to keep more of our hard-earned money.
+- [18:17.900] We fought for an increase to the child tax credit
+- [18:20.770] because we want to make it easier for young families
+- [18:23.450] to bring new life into this world
+- [18:25.300] and to raise that new life in security and prosperity
+- [18:28.940] and comfort.
+- [18:30.150] The working families tax cut is not just a big,
+- [18:32.600] 1,000-page bill.
+- [18:34.110] It is an important part, maybe the most important part,
+- [18:37.810] to restarting the American dream in this country.
+- [18:40.780] Wouldn't it be nice to have a president,
+- [18:42.610] and now we do, who builds in America,
+- [18:45.940] rather than rewards companies for shipping jobs overseas?
+- [18:49.900] Wouldn't it be nice to have an administration
+- [18:52.800] that actually gives you more of your hard-earned money,
+- [18:56.010] rather than taking more of it for government bureaucrats?
+- [19:00.420] Wouldn't it be nice to have an administration
+- [19:02.900] that fights for your ability to keep more money in your pocket?
+- [19:06.180] Wouldn't it be nice to have an administration
+- [19:08.810] that punishes corporations that ship our jobs overseas,
+- [19:12.170] but rewards businesses for building right here
+- [19:15.210] in the great state of Michigan?
+- [19:16.760] That is what we promised to do,
+- [19:18.950] and that is what we're doing every single day.
+- [19:22.330] (applause)
+- [19:28.560] Now, I don't know if you saw the headlines this morning,
+- [19:30.770] if you turned on the TV this morning,
+- [19:32.370] but the president right now is participating
+- [19:35.580] in a great state visit to the United Kingdom.
+- [19:38.060] Our closest ally, of course,
+- [19:40.220] going back to the very beginning of our country
+- [19:42.160] when we didn't always agree, very early on.
+- [19:45.320] But pretty much since then,
+- [19:46.930] they've been very close friends of the United States,
+- [19:48.960] about 200 years, our most important ally in the world.
+- [19:52.390] And the president is over there.
+- [19:54.220] And somebody asked me, would you rather be in England
+- [19:57.620] celebrating the state visit?
+- [19:58.920] I said, no, I'd rather be right here
+- [20:00.370] in the great state of Michigan,
+- [20:01.580] where people are building great products
+- [20:03.470] for the American people.
+- [20:11.900] So with all due respect to our great president,
+- [20:14.170] and all due respect to the King of England,
+- [20:16.660] I am so proud to be right here where I am today,
+- [20:19.950] with all of you talking about all of the ways
+- [20:22.900] in which we can continue to build an America
+- [20:25.780] that works for normal Americans again.
+- [20:28.430] And that means a lot of things.
+- [20:30.360] Part of making this country work for you all
+- [20:32.870] is making sure you're safe in your communities
+- [20:35.530] and safe in your streets.
+- [20:37.170] And one of the proudest things the president
+- [20:38.980] of the United States has done in Washington,
+- [20:41.140] DC, and in Memphis, as of a couple of days ago,
+- [20:44.620] is to send the National Guard to take back American streets.
+- [20:48.880] We deserve to be safe in our communities again.
+- [20:52.090] And that's what the president is making happen.
+- [20:59.560] And it's so funny, you go to these places,
+- [21:01.430] and the TV cameras, very often the fake news media,
+- [21:05.370] all due respect to the fake news.
+- [21:08.110] We love them, even when we don't.
+- [21:10.320] They show up in these places,
+- [21:11.970] and they put a microphone or a camera in front of somebody
+- [21:15.170] who they assume is the Democratic voter.
+- [21:17.830] And they say, "What do you think about Donald Trump
+- [21:19.520] deploying these people to your city?"
+- [21:21.570] And every single person says,
+- [21:22.890] "It's a great idea. I just want to be safe."
+- [21:24.820] And we're glad the president is making that happen.
+- [21:27.720] So my one message to Governor Gretchen Whitmer,
+- [21:30.640] here in the state of Michigan, is, oh, come on.
+- [21:37.850] My one message to Gretchen Whitmer is, look,
+- [21:40.040] the city of Detroit,
+- [21:41.330] we know, has got some serious crime problems.
+- [21:43.650] And we know that it's the people in Detroit who suffer the most
+- [21:47.810] when crime is allowed to run rampant all over city streets.
+- [21:51.640] Gretchen, we are happy to send the National Guard to Detroit,
+- [21:54.980] Michigan. All you got to do is ask.
+- [21:58.400] (applause)
+- [22:07.070] We got to remember, the streets are safer when law enforcement
+- [22:11.000] is allowed to put the bad guys away.
+- [22:13.690] And just as we want to protect your job,
+- [22:15.820] and we want to make sure you have a good wage
+- [22:17.670] when you work hard,
+- [22:18.930] we also want to make sure, when you go home,
+- [22:21.260] you can enjoy your neighborhood
+- [22:22.720] and enjoy your community and safety.
+- [22:24.830] You know what else we want to do?
+- [22:26.090] We want to make sure that our young people stop
+- [22:29.150] dying of this terrible poison, this fentanyl and other drugs
+- [22:33.320] that are being brought in by these cartels.
+- [22:41.910] And I'll tell you a little story.
+- [22:43.360] I was talking to our great Secretary of Defense,
+- [22:45.220] probably about a week, week and a half ago.
+- [22:47.290] And this was right after we lit up a narco-terrorist boat
+- [22:51.820] that was trying to bring drugs
+- [22:53.220] into the United States of America.
+- [22:54.620] And I got to tell you, after,
+- [23:02.060] I am a child of the war on terrorism era.
+- [23:05.050] I served, just as Tom did, in our military.
+- [23:07.550] I deployed to Iraq as a United States Marine,
+- [23:10.790] a young enlisted United States Marine.
+- [23:12.610] And I'm proud to have a president
+- [23:15.050] who is sending our military to light up the cartels
+- [23:18.350] that threaten our people in our own backyard.
+- [23:21.280] That's where the military belongs,
+- [23:23.090] if they belong anywhere.
+- [23:29.700] So I was talking to our great, I said, Secretary of Defense,
+- [23:32.310] but our new Secretary of War, Pete Hegseth.
+- [23:35.220] And I was talking to Secretary Hegseth.
+- [23:36.820] And you know what he said?
+- [23:38.040] He said, "You know what, Mr. Vice President?
+- [23:40.040] We don't see any of these drug boats coming into our country.
+- [23:42.330] They've completely stopped."
+- [23:43.970] And I said, "I know why. I would stop, too.
+- [23:47.070] Hell, I wouldn't go fishing right now
+- [23:48.670] in that area of the world."
+- [23:51.210] But that is what a military that is dedicated to its purpose
+- [23:55.960] and a commander in chief
+- [23:57.190] that is dedicated to the national good can do.
+- [23:59.990] If we just have our actual government
+- [24:03.510] fighting for the interests of Americans and nobody else,
+- [24:06.940] we can make this country safer. We can protect your jobs.
+- [24:10.590] We can make sure you've got the best wages
+- [24:12.480] anywhere in the world.
+- [24:13.720] And we can stop this terrible poison
+- [24:15.780] from coming into our country.
+- [24:17.340] We just needed a president who was willing to fight for you.
+- [24:20.670] And now we've got one.
+- [24:31.530] So let me leave you with this final thought here.
+- [24:33.720] Look, I grew up in a community.
+- [24:35.850] You heard Secretary Chavez, you remember, mention this.
+- [24:38.550] I grew up in a community
+- [24:40.480] where the American dream seemed to be disappearing,
+- [24:42.590] where the jobs were getting shipped overseas,
+- [24:44.700] where the factories were closing down.
+- [24:46.830] I remember driving around my hometown of Middletown, Ohio,
+- [24:50.620] and we'd see some abandoned factory.
+- [24:52.750] And my grandfather would tell me what used to happen there,
+- [24:55.690] what good jobs used to happen there,
+- [24:58.250] what good wages used to provide for families there.
+- [25:01.240] And I remember thinking, why is it like this?
+- [25:04.410] Why have our leaders ignored us for so long?
+- [25:06.920] Why are factories closing instead of opening up?
+- [25:10.190] Why are good jobs going to China
+- [25:12.120] when American workers deserve good jobs right here at home?
+- [25:14.980] And the answer was bad leadership.
+- [25:17.600] Just as our leadership chose crime,
+- [25:19.770] they also chose to shift your jobs overseas.
+- [25:22.350] Just as they chose to send our young men and women
+- [25:25.170] to foreign wars all over the world,
+- [25:27.220] they refused to stop the cartels
+- [25:29.520] that were operating right here in our backyard.
+- [25:31.910] And I believe our sacred promise and our sacred duty
+- [25:36.140] is to make this country even better for the next generation
+- [25:39.950] than it was for the generation that came before.
+- [25:42.690] That is why we're doing the things that we're doing.
+- [25:44.660] But I want to tell you,
+- [25:45.940] I'm never going to forget where I came from.
+- [25:48.770] I am never going to forget that I was a little boy
+- [25:51.310] who was worried about why the jobs were disappearing.
+- [25:54.370] I'm never going to stop fighting for the auto workers
+- [25:56.700] to have good jobs right here at home.
+- [25:58.820] I'm never going to stop.
+- [26:01.150] (applause)
+- [26:07.360] I'm never going to stop,
+- [26:08.780] and neither is the President of the United States,
+- [26:10.490] from fighting for your public safety,
+- [26:12.750] for your good wages. We're going to fight for
+- [26:14.790] when you send a dollar to Washington, D.C.,
+- [26:17.120] that we spend it wisely.
+- [26:18.650] We're going to fight for you to have low taxes.
+- [26:20.590] If you're working hard, we're going to fight for you
+- [26:22.660] to keep as much of your hard-earned money as possible.
+- [26:24.720] Because I believe that the American dream
+- [26:26.060] belongs to America.
+- [26:27.270] And I believe that the American dream
+- [26:28.890] belongs to American citizens,
+- [26:30.940] not to illegal aliens, not to drug cartels.
+- [26:34.050] And it doesn't belong to foreign workers.
+- [26:35.870] It belongs to workers right here in the state of Michigan.
+- [26:40.240] (applause)
+- [26:46.900] So I hope you remember, when you're voting in 2026,
+- [26:50.440] you have a choice between somebody
+- [26:53.530] who tried to fight for the illegal aliens
+- [26:56.070] and somebody who tried to fight against the drug cartels.
+- [26:59.570] You've got a choice between somebody
+- [27:01.930] who is trying to get good law enforcement officers
+- [27:05.060] to be able to do their job and those who demonized our cops
+- [27:08.980] and demonized our National Guardsmen.
+- [27:11.070] You've got a choice between politicians
+- [27:13.320] who shipped your jobs overseas and politicians
+- [27:16.410] who fought to keep good American jobs right here at home.
+- [27:19.840] Ladies and gentlemen, in November of 2026,
+- [27:22.990] we are going to have to make a choice.
+- [27:24.610] Let's make it for America, for our workers,
+- [27:26.740] and for our families.
+- [27:27.960] God bless you all, and thank you for having me.
+- [27:30.260] (applause)

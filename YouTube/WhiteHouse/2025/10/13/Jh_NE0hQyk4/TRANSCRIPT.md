@@ -1,0 +1,2048 @@
+<!-- source: https://www.youtube.com/watch?v=Jh-NE0hQyk4 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: Jh-NE0hQyk4 -->
+<!-- date_published: 2025-10-13T12:24:33+00:00 -->
+<!-- date_accessed: 2026-06-02T02:43:37.536442+00:00 -->
+
+# Transcript: President Trump Delivers Remarks to The Knesset
+
+- [01:19:31.949] ﻿Translator: Members, please stand up,
+- [01:19:40.160] The Honorable President,
+- [01:19:42.480] the Honorable Speaker of the Knesset,
+- [01:20:30.080] (applause)
+- [01:21:22.880] Translator:
+- [01:21:43.680] Please
+- [01:22:08.080] sit down,
+- [01:22:18.480] Knesset members, today is Monday, 13th of October 2025,
+- [01:22:26.720] and I'm intending to open the special session of the Knesset
+- [01:22:30.880] in honor of the President of the United States,
+- [01:22:34.320] Mr, Donald J, Trump,
+- [01:22:43.560] (applause)
+- [01:22:44.560] Dear Knesset members, I would like to remind you
+- [01:22:47.920] that this is a special session
+- [01:22:50.160] and therefore there will be no disturbances
+- [01:22:52.640] and whoever will disturb the session
+- [01:22:55.600] will be expelled from the session
+- [01:22:58.480] and there will no warning
+- [01:23:00.240] and it is allowed to applaud in this session
+- [01:23:06.240] the Honorable Mr, Itzhak Herzog and his wife, Michal,
+- [01:23:12.400] (applause)
+- [01:23:13.782] Translator: The Honorary Mr, -- The Prime Minister,
+- [01:23:20.000] Benjamin Netanyahu and his spouse, Sarah,
+- [01:23:39.920] (applause)
+- [01:23:52.429] Translator:
+- [01:24:07.440] The head of the opposition, Mr, Lapid
+- [01:24:12.560] and his wife, Lihi, Ministers and Knesset members,
+- [01:24:22.942] (applause)
+- [01:24:22.952] Speaker Ohana:
+- [01:24:50.560] Special recognition
+- [01:24:51.840] to Minister Ron Dermer
+- [01:24:53.680] who led the negotiation team on behalf of Israel,
+- [01:24:57.120] Thank you, Ron,
+- [01:25:00.800] (applause)
+- [01:25:01.733] Speaker Ohana: Secretary of State Marco Rubio,
+- [01:25:27.096] (applause)
+- [01:25:27.106] Speaker Ohana: Secretary of War, Pete Hegseth,
+- [01:25:39.520] (applause)
+- [01:25:39.680] Speaker Ohana: Chairman of the Joint Chiefs of Staff,
+- [01:25:48.400] General Ben Caine,
+- [01:25:54.800] (applause)
+- [01:25:59.056] Speaker Ohana:
+- [01:26:05.440] Two key players,
+- [01:26:07.840] President Trump's special envoy, Steve Witkoff,
+- [01:26:11.040] who is here with his partner, Lauren,
+- [01:26:12.960] (applause)
+- [01:26:21.920] Speaker Ohana: And Jared Kushner who is here
+- [01:26:39.200] with his wife Ivanka,
+- [01:26:41.680] (applause)
+- [01:26:54.924] Speaker
+- [01:27:05.520] Ohana: And thank you guys for everything
+- [01:27:06.960] that you have done to bring about this day,
+- [01:27:10.800] Ambassador of the United States to Israel,
+- [01:27:13.760] my dear friend and my absolute favorite rock star,
+- [01:27:17.440] Mike Huckabee,
+- [01:27:26.480] (applause)
+- [01:27:26.640] Speaker Ohana: Shagrir Israel,
+- [01:27:28.880] (speaking Israeli)
+- [01:27:45.880] (applause)
+- [01:27:53.280] Translator: (inaudible)
+- [01:27:54.680] and the head --
+- [01:27:55.200] the mayor of Jerusalem, Mr, Leon, and the first
+- [01:28:02.080] (inaudible)
+- [01:28:03.280] government, the heads of the states,
+- [01:28:06.160] and those who are here, the Eyal Zamir,
+- [01:28:10.240] the Chief of Staff,
+- [01:28:28.880] (applause)
+- [01:28:30.371] Translator: The head of the police, Danielle Levy,
+- [01:28:40.298] (applause)
+- [01:28:40.308] Translator: The head of the prisons, Mr, Jacobi,
+- [01:28:46.400] He is one of those who is in --
+- [01:28:52.480] Mr, Eyal Kaspi, the head of the fire --
+- [01:28:58.080] the head of the Mossad, Mr, David Barnea,
+- [01:29:10.800] (applause)
+- [01:29:20.320] The head of the General Zini,
+- [01:29:24.880] the head of the general security,
+- [01:29:29.440] Great success to you,
+- [01:29:38.458] (applause)
+- [01:29:38.468] Translator: The head, Mr, Gal Hirsch,
+- [01:29:40.400] the head of the headquarters for the abductees,
+- [01:29:48.440] (applause)
+- [01:29:52.400] Mayors and the local authorities,
+- [01:29:57.360] the chairman of the Knesset,
+- [01:30:00.560] who brought about a visit in three days,
+- [01:30:05.680] which usually takes three months, Mr, Itzik Edri,
+- [01:30:10.400] The secretary of the Knesset,
+- [01:30:15.200] the legal counsel of the Knesset,
+- [01:30:22.160] and the head of the Knesset,
+- [01:30:25.760] members of the management of the Knesset,
+- [01:30:30.960] families of the bereaved, families of the abductees,
+- [01:30:34.720] (applause)
+- [01:30:48.320] Translator:
+- [01:31:04.640] They had great honorees,
+- [01:31:09.760] and I exempt the others from mentioning them,
+- [01:31:14.240] Dear the citizens of Israel, I had the special honor
+- [01:31:20.080] to bless together with you the best friend
+- [01:31:24.320] that Israel ever had in the White House,
+- [01:31:27.440] Welcome to Israel, Welcome to the Knesset,
+- [01:31:32.800] The President, Donald J, Trump,
+- [01:31:39.920] (applause)
+- [01:31:56.575] Translator:
+- [01:32:16.560] Mr, President, I would like to thank you
+- [01:32:20.880] that you granted the Knesset the honor
+- [01:32:25.280] that it is the first parliament
+- [01:32:27.840] that you are visiting in your present term
+- [01:32:31.200] in the Jewish tradition,
+- [01:32:33.680] We are used to bless you, the one who gives us the honor,
+- [01:32:40.240] Thank you very much, Mr, President, President Trump,
+- [01:32:46.480] Honorary President, 2000 years ago,
+- [01:32:50.960] we were exiled from our homeland,
+- [01:32:54.000] but in all the diaspora that we lived by,
+- [01:32:56.880] we never forgot Jerusalem,
+- [01:32:59.280] the beating heart of the Jewish people, since it's --
+- [01:33:05.840] for which we prayed for year after year,
+- [01:33:09.680] And seven years ago it was you, President Trump,
+- [01:33:14.560] that in the name of the united states of the United States
+- [01:33:18.560] you recognize Jerusalem as the capital of Jerusalem,
+- [01:33:26.720] You executed a promise that many other presidents promised,
+- [01:33:33.680] You transferred the embassy to Jerusalem,
+- [01:33:39.120] Thank you very much President Trump,
+- [01:33:41.440] Thank Thank you very much, President Trump,
+- [01:33:55.200] (applause)
+- [01:33:57.818] Translator:
+- [01:34:00.960] In the dawn of its establishment,
+- [01:34:04.640] Israel was forced to fight,
+- [01:34:07.600] but it always extended its hand to peace,
+- [01:34:11.120] Seven years ago, you led the Abraham Accords,
+- [01:34:15.600] and I had the privilege
+- [01:34:21.840] to serving this government that signed it,
+- [01:34:26.480] and it was very meaningful for me
+- [01:34:28.880] because two and a half years ago,
+- [01:34:31.680] I was the first head of the Knesset
+- [01:34:35.280] that was invited to speak in a parliament of Arab country,
+- [01:34:42.800] and that was in the country of Morocco,
+- [01:34:47.120] where my parents came from,
+- [01:34:49.440] You made its relationship closer in an accord
+- [01:34:56.080] that it's peace for peace,
+- [01:34:59.440] Thank you very much, President Trump,
+- [01:35:07.200] (applause)
+- [01:35:07.309] Translator: Many years before your first term,
+- [01:35:10.720] already in 2011, you identified the danger of a nuclear Iran,
+- [01:35:23.505] Speaker Ohana: Our nation's national security interests,
+- [01:35:26.640] We can't allow Iran to go nuclear,
+- [01:35:33.680] (speaking Israeli)
+- [01:35:36.704] Translator:
+- [01:35:38.720] You continued that you put America first,
+- [01:35:43.600] but not alone, but not America alone,
+- [01:35:46.720] You brought with you to the White House
+- [01:35:50.720] in your two terms four months ago
+- [01:35:54.320] after Prime Minister started Rising Lion,
+- [01:35:59.840] you started the Midnight Hammer, which was a very brave action,
+- [01:36:04.720] That there was nothing like it
+- [01:36:06.720] until you arrived at the White House,
+- [01:36:13.920] And thus, Mr, President,
+- [01:36:16.240] you prevented a nuclear holocaust
+- [01:36:20.640] that Iran wanted to bring about to the world,
+- [01:36:24.160] a country in its parliament, its elected officials cry,
+- [01:36:30.720] death to America and death to Israel,
+- [01:36:33.200] And today we can say to the Ayatollah's rule,
+- [01:36:38.480] Iran will not have nuclear power,
+- [01:36:41.840] Thank you, Thank you, President Trump,
+- [01:36:44.400] (applause)
+- [01:36:51.018] Translator:
+- [01:36:58.960] Mr, President,
+- [01:37:00.400] today the Jewish people are ending the holiday of Sukkot,
+- [01:37:05.840] and tomorrow it will be Simchat Torah,
+- [01:37:09.120] And two years ago in Simchat Torah,
+- [01:37:11.920] it was the most difficult day for the State of Israel
+- [01:37:15.280] since its establishment and for the Jewish
+- [01:37:17.360] People since the Holocaust,
+- [01:37:19.600] Many times I came with many visitors
+- [01:37:22.880] to the area of the slaughter,
+- [01:37:25.280] and I saw the horrors and a few weeks
+- [01:37:29.760] after the 7th of October, I accompanied Jared
+- [01:37:33.120] and Ivanka who came to those difficult areas,
+- [01:37:38.320] We saw what we were in (inaudible)
+- [01:37:43.040] and we saw what, we hope, that we will never see again,
+- [01:37:47.680] Horrible sights of pogroms, children, men and women,
+- [01:37:53.840] the elderly, they are no longer there,
+- [01:37:57.760] The Satan not only murdered and raped
+- [01:38:02.240] and many of our brothers and sisters,
+- [01:38:04.600] it he also abducted the life and the dead,
+- [01:38:10.640] And since then, this has been the longest
+- [01:38:15.040] and the most just war,
+- [01:38:17.280] This wound of our brothers in prison
+- [01:38:23.120] has been when all the nation of Israel
+- [01:38:26.320] has been in pain of the families of the abducted
+- [01:38:33.200] until this morning,
+- [01:38:35.520] For two years, in the gallery where the people,
+- [01:38:40.320] the guests are sitting, we had photos of the hostages,
+- [01:38:46.560] but this morning, towards this historical day,
+- [01:38:51.200] we were able to remove the photos,
+- [01:38:54.000] And I will do something spontaneous,
+- [01:38:56.640] and I will remove the pin that I received from Tsvika Moore,
+- [01:39:03.200] I am removing it, because a minute ago,
+- [01:39:06.320] I spoke to Tsvka Moore's brother,
+- [01:39:09.040] and they are celebrating this unification,
+- [01:39:12.400] Thank you so much, President Trump,
+- [01:39:14.720] Thank you, so much President Trump,
+- [01:39:37.480] (applause)
+- [01:39:38.480] Speaker Ohana: (inaudible)
+- [01:39:39.120] American President, but as a giant of Jewish history,
+- [01:39:44.640] one for whom we must look back two
+- [01:39:47.520] and a half millennia into the mists of time
+- [01:39:51.680] to find a parallel, Cyrus the Great,
+- [01:39:56.080] You, President Donald J, Trump,
+- [01:39:58.800] are a colossus who will be enshrined
+- [01:40:02.160] in the pantheon of history,
+- [01:40:04.640] Thousands of years from now, Mr, President,
+- [01:40:06.880] the Jewish people will remember you,
+- [01:40:10.000] We are a nation that remembers, Far from being a local struggle,
+- [01:40:16.960] what we are witnessing is a global struggle,
+- [01:40:21.360] a global battle between the forces of extremism,
+- [01:40:25.040] radicalism, and fundamentalism,
+- [01:40:27.520] and those of freedom, liberty, and democracy,
+- [01:40:32.640] What the world needs now is not a appeasers
+- [01:40:36.640] who feed the crocodile in the hope
+- [01:40:38.640] that they will be eaten last,
+- [01:40:40.800] like the kind we have seen recently
+- [01:40:43.280] at the UN General Assembly, And by the way, President Trump,
+- [01:40:47.280] your team has checked the teleprompter
+- [01:40:49.040] as it is working beautifully,
+- [01:40:52.800] What the world needs, what the world needs now
+- [01:40:57.440] are more leaders who are brave, resolute, strong, and bold,
+- [01:41:03.040] The world needs more Trumps,
+- [01:41:13.175] (applause)
+- [01:41:13.185] Speaker Ohana: Mr, President, with your permission,
+- [01:41:15.440] I would like to take this moment
+- [01:41:16.960] to address Prime Minister Netanyahu,
+- [01:41:20.720] (applause)
+- [01:41:26.902] Translator:
+- [01:41:34.320] Mr, Prime Minister, you --
+- [01:41:37.360] you, the last few years, you faced great pressures,
+- [01:41:43.760] Steve Witkoff, the special envoy that fought with,
+- [01:41:47.760] along with you to return the hostages said about you,
+- [01:41:53.520] that most difficult work was that of the Prime Minister,
+- [01:41:58.080] It was the Prime Minster who had to make,
+- [01:42:00.640] to take harder decisions,
+- [01:42:02.720] How much we have to be hard towards Hamas
+- [01:42:06.240] and when we have to be more moderate,
+- [01:42:10.560] But the truth now, that looking backwards,
+- [01:42:15.200] we wouldn't have reached this point
+- [01:42:17.280] if the Prime Minister Netanyahu
+- [01:42:20.320] wouldn't of acted the way he acted,
+- [01:42:39.440] Also, my -- also, my President Trump,
+- [01:42:46.080] believes that Prime Minister Netanyahu made hard decisions,
+- [01:42:53.120] And there were people who would have been less brave
+- [01:42:56.080] who wouldn't have made these decisions,
+- [01:42:58.240] We are here today because the Hamas
+- [01:43:01.760] did not have an alternative, so says Witkoff,
+- [01:43:04.800] The pressure was great,
+- [01:43:06.640] And therefore we progressed immensely,
+- [01:43:10.800] And this is what brought about this agreement,
+- [01:43:14.640] This is what the envoy Witkoff has stated,
+- [01:43:19.120] Mr, Prime Minister, yesterday, on his way to Israel,
+- [01:43:24.400] President Trump,
+- [01:43:25.680] that you are the right person at the right time,
+- [01:43:29.120] and I'm proud to say here in front of the whole world
+- [01:43:32.960] that thanks to you,
+- [01:43:34.560] We achieved the great things that we have achieved,
+- [01:43:38.640] Thank you so much, Mr, Prime Minister,
+- [01:43:51.440] (applause)
+- [01:43:55.840] Translator:
+- [01:44:01.120] This day, today, we will thank from the heart,
+- [01:44:05.800] the depths of our heart,
+- [01:44:08.000] to the brave soldiers of the IDF,
+- [01:44:12.080] of the Israeli Defense Forces,
+- [01:44:40.720] We will thank the IDF, brave soldiers who fought like lions
+- [01:44:47.200] and endangered their lives
+- [01:44:49.360] in order to protect the state of Israel,
+- [01:44:52.160] Many of them sacrificed their lives
+- [01:44:55.600] for the country that bows its head,
+- [01:45:00.240] Their blood did not die in vain
+- [01:45:05.920] because with their heroism, they brought this state
+- [01:45:10.720] and their names will be inscribed
+- [01:45:13.360] forever in the hearts of the nation,
+- [01:45:20.000] President,
+- [01:45:21.120] Speaker Ohana: There was not a single person on this planet
+- [01:45:27.520] who did more than you to advance peace,
+- [01:45:30.960] No one even came close,
+- [01:45:34.400] Your election to the presidency marked a turning point,
+- [01:45:38.480] not only for the United States, but for the entire world,
+- [01:45:44.400] Through your strength of character
+- [01:45:46.960] and unwavering resolve,
+- [01:45:49.200] you brought an end to bloody conflicts in no fewer
+- [01:45:52.880] than eight regions across the globe,
+- [01:45:56.560] In less than nine months, you became one of the most
+- [01:46:00.320] consequential presidents in history,
+- [01:46:04.160] You saved countless lives that would have been lost
+- [01:46:08.400] without your leadership,
+- [01:46:10.400] And as our sages teach, whoever saves one life,
+- [01:46:14.880] it is as though he has saved an entire world,
+- [01:46:19.120] You have proven that true peace is achieved through strength,
+- [01:46:25.040] and that only those who are prepared to use force
+- [01:46:28.160] in the present
+- [01:46:29.840] can prevent the need to use it in the future,
+- [01:46:34.480] Mr, President, you, more than any other individual,
+- [01:46:44.560] are deserving of the highest recognition
+- [01:46:47.920] for your efforts in promoting peace,
+- [01:46:51.520] Therefore, I hereby announce
+- [01:46:54.560] that together with our good friend,
+- [01:46:56.800] Speaker of the House, Mike Johnson,
+- [01:46:59.840] we will rally speakers and presidents of parliaments
+- [01:47:03.440] from around the world to submit your candidacy
+- [01:47:07.360] for the Nobel Peace Prize next year,
+- [01:47:11.360] There is no one more deserving than you,
+- [01:47:14.640] President Trump, No one,
+- [01:47:18.800] (applause)
+- [01:47:23.126] Speaker Ohana: (speaking Israeli)
+- [01:47:36.969] Translator:
+- [01:47:42.160] Mr, President, we are confronting history,
+- [01:47:46.400] It is a very exciting day for the citizens of Israel,
+- [01:47:50.720] a day that we all wished for,
+- [01:47:52.640] In Jeremiah, it says that when we hear your cry,
+- [01:48:03.600] there will be a wage for your --
+- [01:48:07.360] and they will return from the country of the enemies
+- [01:48:13.120] and the sons returned to their borders, to their land,
+- [01:48:19.680] The book of Jeremiah, I would like to --
+- [01:48:24.160] I want to wish all the hostages how happy we are
+- [01:48:30.160] and how good it is that you're back home,
+- [01:48:34.560] President Trump, who will give us
+- [01:48:38.080] that God Almighty will bless you and your family, your country
+- [01:48:44.960] and all those who are dear to you and we'll make --
+- [01:48:51.400] Speaker Ohana: America, and may God bless the State of Israel,
+- [01:49:00.560] (speaking Israeli)
+- [01:49:07.900] (applause)
+- [01:49:11.978] Speaker Ohana: (speaking Israeli)
+- [01:49:25.027] Translator:
+- [01:49:29.920] I'm inviting now Mr, Benjamin Netanyahu,
+- [01:49:33.760] the Prime Minister, to say a few words,
+- [01:50:12.320] (applause)
+- [01:50:13.360] Translator: President Ertzog and his wife,
+- [01:50:15.280] Michal and the great honorary guests
+- [01:50:21.520] and headed by our great friend,
+- [01:50:28.080] the President of the United States,
+- [01:50:30.960] President Donald J, Trump,
+- [01:50:34.400] (applause)
+- [01:50:38.909] Translator:
+- [01:50:44.320] Welcome to Jerusalem,
+- [01:50:47.040] our eternal capital,
+- [01:50:51.280] Welcome to Israel in this moving day, exciting day,
+- [01:51:00.320] that will be inscribed in the history
+- [01:51:02.880] on the annals of Israel, And you, too, Mr, President,
+- [01:51:06.960] will be inscribed on the history of our nation,
+- [01:51:11.520] and you are already inscribed in the story of the world,
+- [01:51:15.680] And we remember our friends,
+- [01:51:19.120] We know your part, your important part
+- [01:51:23.520] and determined part
+- [01:51:26.560] to the return of the hostages in this day,
+- [01:51:33.280] When we were informed today an hour ago
+- [01:51:38.080] that all our live hostages returned back to us,
+- [01:51:44.000] What excitement!
+- [01:51:50.560] How much -- how long we've waited for this moment,
+- [01:51:54.480] And we have committed to return everyone,
+- [01:51:57.440] And I want to thank you
+- [01:51:59.040] personally on behalf of the whole nation,
+- [01:52:02.640] Thank you, Mr, President, President Trump,
+- [01:52:05.840] Thank you Mr, President,
+- [01:52:15.680] (applause)
+- [01:52:18.546] Prime Minister Netanyahu:
+- [01:52:26.000] But I'm not sure
+- [01:52:26.640] about the translation, so I'll say words in English,
+- [01:52:33.200] President Trump, the Knesset welcomes you
+- [01:52:36.960] and your distinguished delegation to Jerusalem,
+- [01:52:39.920] our eternal capital,
+- [01:52:42.080] This is your first visit to Israel
+- [01:52:45.520] since you recognized Jerusalem as our capital
+- [01:52:48.160] and moved the embassy here,
+- [01:52:50.640] Thank you, President Trump for that,
+- [01:53:00.360] (applause)
+- [01:53:08.320] There are many other reasons to thank you
+- [01:53:11.760] since your last visit here,
+- [01:53:14.400] Thank you for recognizing Israeli sovereignty
+- [01:53:17.360] over the Golan Heights,
+- [01:53:32.204] (applause)
+- [01:53:32.214] Prime Minister Netanyahu: Thank you for standing up
+- [01:53:34.800] to the lies against Israel and the United Nations,
+- [01:53:40.560] (applause)
+- [01:53:42.693] Prime Minister Netanyahu:
+- [01:53:48.240] Thank you for recognizing
+- [01:53:49.760] in your 2020 peace
+- [01:53:51.200] plan our rights in Judea and Samaria,
+- [01:53:54.160] the ancestral homeland of the Jewish people,
+- [01:54:00.800] (applause)
+- [01:54:01.911] Prime Minister Netanyahu: Thank you for brokering
+- [01:54:07.040] the historic Abraham Accords,
+- [01:54:10.292] (speaking Israeli)
+- [01:54:10.310] (applause)
+- [01:54:10.320] Prime Minister Netanyahu: Thank you for withdrawing
+- [01:54:22.240] from the disastrous Iran nuclear deal,
+- [01:54:27.840] (applause)
+- [01:54:29.240] Prime Minister Netanyahu:
+- [01:54:32.880] Thank you for supporting
+- [01:54:34.640] Operation Rising Lion and for your bold decision
+- [01:54:39.120] to launch Operation Midnight Hammer,
+- [01:54:42.160] Boy is that -- you got to hear this,
+- [01:54:47.600] (applause)
+- [01:54:48.466] Prime Minister Netanyahu: This is the most fitting name
+- [01:54:54.000] ever named for a military operation
+- [01:54:57.200] because a little after midnight,
+- [01:54:59.520] you really hammered them,
+- [01:55:01.600] (applause)
+- [01:55:01.825] Prime Minister Netanyahu: My friends,
+- [01:55:07.120] this is only a partial list,
+- [01:55:10.720] but it's enough to affirm what I've said time and again –
+- [01:55:14.720] Donald Trump is the greatest friend
+- [01:55:17.760] that the State of Israel has ever had in the White House,
+- [01:55:37.280] (applause)
+- [01:55:39.858] Prime Minister Netanyahu:
+- [01:55:46.560] No American president
+- [01:55:49.440] has ever done more for Israel,
+- [01:55:51.760] and as I said in Washington, it ain't even close,
+- [01:55:55.920] It's really not a match,
+- [01:55:58.800] Mr, President, today we welcome you here
+- [01:56:03.200] to thank you for your pivotal leadership
+- [01:56:05.680] in putting forward a proposal
+- [01:56:07.920] that got the backing of almost the entire world,
+- [01:56:12.000] A proposal, a proposal that brings all our hostages home,
+- [01:56:21.964] (applause)
+- [01:56:21.974] Prime Minister Netanyahu: A proposal
+- [01:56:22.720] that ends the war by achieving all our objectives,
+- [01:56:27.440] (applause)
+- [01:56:28.107] Prime Minister Netanyahu: A proposal
+- [01:56:30.560] that opens the door
+- [01:56:32.400] to an historic expansion of peace in our region
+- [01:56:35.520] and beyond our region,
+- [01:56:37.680] Mr, President, you are committed to this peace,
+- [01:56:41.600] I am committed to the peace,
+- [01:56:43.760] and together, Mr, President, we will achieve this peace,
+- [01:56:51.680] (applause)
+- [01:56:52.160] Prime Minister Netanyahu: We've done it before
+- [01:56:56.000] in the Abraham Accords, and we'll do it again,
+- [01:57:00.160] Mr, President, today the Jewish calendar marks
+- [01:57:05.040] the end of two years of war, That war began on October 7th
+- [01:57:10.480] on the Jewish Festival of Simchat Torah,
+- [01:57:14.160] You always tell me, and you tell the world,
+- [01:57:18.640] remember October 7, Mr, President, we remember,
+- [01:57:25.840] We remember the thousands of Hamas terrorists
+- [01:57:28.640] who stormed into our towns in Kibbutzim,
+- [01:57:32.080] We remember 1,200 people
+- [01:57:34.400] Hamas savagely slaughtered in cold blood,
+- [01:57:38.240] including dozens and dozens of Americans,
+- [01:57:41.760] We remember entire families burnt alive,
+- [01:57:46.000] burnt alive as they embraced each other,
+- [01:57:49.760] We remember the beautiful young Israelis
+- [01:57:52.560] brutally gunned down at the Nova Music Festival,
+- [01:57:57.600] We remember hundreds of our citizens
+- [01:58:00.400] who were dragged into the dungeons of Gaza,
+- [01:58:03.360] including 12 Americans, men and women,
+- [01:58:07.040] young and old, babies and elderly Holocaust survivors,
+- [01:58:14.960] My friends, Mr, President, Donald,
+- [01:58:18.480] these monsters take babies as hostages,
+- [01:58:24.640] In response to this barbaric attack on October 7th,
+- [01:58:28.960] Israel did what it had to do,
+- [01:58:31.840] With indomitable courage, we set out to defend our people,
+- [01:58:37.040] to defeat our enemies, and to release our hostages,
+- [01:58:41.280] our heroic soldiers fought like lions,
+- [01:58:46.400] They fought on the front lines of civilization and barbarism,
+- [01:58:50.480] Israel achieved amazing victories over Hamas
+- [01:58:54.320] and the entire Iran terror axis,
+- [01:58:57.360] Sinwar, Deif, Kania, Nasrallah, Assad, they're all gone,
+- [01:59:06.864] (applause)
+- [01:59:06.874] Prime Minister Netanyahu: Iran's nuclear weapons
+- [01:59:20.560] and ballistic missile program
+- [01:59:22.240] with your enormous help, Mr, President, rolled back,
+- [01:59:27.040] Half the Houthi leadership wiped out,
+- [01:59:31.440] But the price of this victory,
+- [01:59:33.840] the price these victories, has been heavy,
+- [01:59:37.760] Nearly 2,000 of Israel's finest were lost,
+- [01:59:41.360] nearly half in battle,
+- [01:59:43.760] They left behind, parents, spouses, siblings, and children,
+- [01:59:50.320] Their love and laughter,
+- [01:59:52.720] their promise and potential were lost forever,
+- [01:59:57.920] To the families of our fallen fighters,
+- [02:00:00.960] many of them are here, I say, I know the depth of your pain,
+- [02:00:10.000] I know the inconsolable grief that will accompany you
+- [02:00:16.880] for the rest of your lives,
+- [02:00:19.600] The State of Israel bows its head in eternal gratitude
+- [02:00:24.400] to our fallen heroes,
+- [02:00:27.360] Because of these heroes, our nation will survive
+- [02:00:32.240] because of the heroes, the nation will thrive,
+- [02:00:37.280] And because of these heroes, our nation will have peace,
+- [02:00:44.000] Mr, President, thousands of our brave soldiers
+- [02:00:48.400] were also wounded,
+- [02:00:50.560] suffering terrible blows to body and soul,
+- [02:00:54.720] Brave soldiers like Ari Speitz, Ari is an American,
+- [02:01:05.164] (applause)
+- [02:01:05.174] Prime Minister Netanyahu: Ari is an American-Israeli
+- [02:01:08.080] who was injured,
+- [02:01:12.560] (applause)
+- [02:01:20.516] Prime Minister Netanyahu:
+- [02:01:41.200] Ari is an American-Israeli
+- [02:01:43.760] who was injured in Gaza
+- [02:01:45.200] while searching for Hamas terrorists and weapons,
+- [02:01:48.880] Two of Ari's comrades were killed in this action
+- [02:01:52.240] and ten were injured, Ari was presumed dead,
+- [02:01:56.480] but made a miraculous recovery despite losing three limbs,
+- [02:02:06.320] Stand up for a minute, stand up, there you go, Ari,
+- [02:02:11.280] (applause)
+- [02:02:11.991] Prime Minister Netanyahu: Arie, you are the spirit of Joshua,
+- [02:02:17.920] You are the Spirit of David, You are spirit of the Maccabees,
+- [02:02:22.080] You are Spirit of Israel, I salute you, We all salute you,
+- [02:02:39.440] (applause)
+- [02:02:40.684] Prime Minister Netanyahu: Sabin Tassa of Kibbutz Nativa Asara
+- [02:02:49.120] is watching us today
+- [02:02:50.480] from the Israeli consulate in Los Angeles,
+- [02:02:54.240] Sabin lost her husband and her oldest son on October 7th,
+- [02:03:02.000] She is the mother of three other boys,
+- [02:03:04.960] Two of them, Koren and Shai,
+- [02:03:07.760] witnessed their father jump on a Hamas grenade
+- [02:03:12.480] to save his two sons,
+- [02:03:15.520] We all saw the film of those two boys crying out in pain,
+- [02:03:22.800] Father is dead, Why? Why did God save me?
+- [02:03:30.480] Mr, President, my friend Donald,
+- [02:03:34.400] I've seen some very tough things in my life,
+- [02:03:38.480] but I couldn't bring myself
+- [02:03:41.920] to watch those boys suffering again,
+- [02:03:45.440] So I didn't see this film except once,
+- [02:03:49.600] Yet Sabin, their mother, has had the strength and fortitude
+- [02:03:56.640] to show this film across the world,
+- [02:04:01.200] And my wife Sarah and I asked her,
+- [02:04:04.480] Sabin how do you do it? Why do you it?
+- [02:04:10.240] And she answered, I do it to show the entire world
+- [02:04:16.160] the monsters Israel is fighting and the justice of our cause,
+- [02:04:20.880] This is what she's doing once again in Los Angeles,
+- [02:04:24.240] Sabin, you can hear me now,
+- [02:04:26.480] so I want to tell you on behalf of all of us,
+- [02:04:29.920] you embody the spirit of our biblical heroines,
+- [02:04:33.520] Deborah, Ruth and Esther,
+- [02:04:36.000] You, too, are the spirit of Israel,
+- [02:04:38.560] and we all salute you,
+- [02:04:47.920] (applause)
+- [02:04:55.600] Prime Minister Netanyahu: Mr, President,
+- [02:04:56.480] you asked me on our many conversations
+- [02:04:59.120] during the 12-day war with Iran,
+- [02:05:01.760] you asked me, how are the people holding up?
+- [02:05:05.120] And I said to you, our people are strong,
+- [02:05:09.760] Israelis are a nation of lions with unlimited resolve
+- [02:05:13.520] to defend our country and secure our future,
+- [02:05:17.040] The people, the people give strength to our soldiers
+- [02:05:21.440] and the people gives strength to me and to my colleagues,
+- [02:05:25.920] The Jewish people have risen from the ashes time and again,
+- [02:05:29.600] but when we formed the state of Israel and the army of Israel,
+- [02:05:33.840] we pledged never again,
+- [02:05:36.640] never again would be defenseless against our enemies,
+- [02:05:42.880] And that resolute strength not only assures our survival,
+- [02:05:48.560] it assures our future, it ensures peace,
+- [02:05:54.880] We have paid a high price for this war,
+- [02:05:57.760] But our enemies now understand just how powerful
+- [02:06:02.320] and just how determined Israel is,
+- [02:06:05.840] They understand that attacking Israel on October 7th
+- [02:06:09.680] was a catastrophic mistake,
+- [02:06:12.400] They understand that Israel is strong
+- [02:06:15.040] and that Israel is here to stay, And this, Mr, President,
+- [02:06:19.920] is the indispensable foundation of peace,
+- [02:06:23.360] peace through strength,
+- [02:06:26.960] Ladies and gentlemen, this is a momentous day,
+- [02:06:31.280] a day of great joy,
+- [02:06:33.040] as the remaining hostages come home,
+- [02:06:35.680] My wife Sarah and I have met with the hostage
+- [02:06:37.920] families many times,
+- [02:06:40.800] There were no words to describe their agony,
+- [02:06:43.920] only tears of bottomless sorrow and unimaginable pain,
+- [02:06:49.920] At the beginning of the war,
+- [02:06:51.760] I promised to bring all the hostages home,
+- [02:06:55.360] Today,
+- [02:06:56.960] With the indispensable help, the determined and focused help,
+- [02:07:02.400] the unremitting help of President Trump's esteem,
+- [02:07:06.400] and with the incredible sacrifice
+- [02:07:09.600] and courage of the soldiers of Israel,
+- [02:07:12.800] we are fulfilling that promise,
+- [02:07:21.324] (applause)
+- [02:07:21.334] Prime Minister Netanyahu: It has been a long journey to get here,
+- [02:07:24.160] In the first week of the war,
+- [02:07:26.800] our brave soldiers put military pressure on Hamas,
+- [02:07:31.200] and the international community put diplomatic pressure on them,
+- [02:07:35.360] This enabled us to secure the release of over 100 hostages,
+- [02:07:40.560] In heroic rescue attempts behind enemy lines,
+- [02:07:44.000] Israel's special forces rescued eight live hostages
+- [02:07:47.760] and brought back the remains of a dozens more,
+- [02:07:51.600] But as time went on, we all know what happened,
+- [02:07:55.920] The diplomatic pressure was turned on its head,
+- [02:08:00.160] More and more governments bought into Hamas' false propaganda,
+- [02:08:04.800] More and more governments succumbed
+- [02:08:06.720] to anti-Semitic mobs in their own countries,
+- [02:08:10.000] They just turned on Israel,
+- [02:08:12.080] They called for us to surrender to Hamas demands –
+- [02:08:14.960] just leave Gaza immediately, they said, end the war
+- [02:08:17.920] without committing to disarm Hamas,
+- [02:08:20.480] Without committing to demilitarize Gaza,
+- [02:08:24.320] Had Israel succumbed to those demands,
+- [02:08:26.960] not only would the Sinwar, Nasrallah, Assad,
+- [02:08:30.480] and Iran's missile and nuclear program remain intact,
+- [02:08:36.240] not only that, because in no time
+- [02:08:39.920] the Hamas killers would be back on the border fence
+- [02:08:42.880] ready to repeat the horrors of October 7th again
+- [02:08:46.000] and again as they vow to do,
+- [02:08:49.680] But just at that point of maximum pressure on Israel,
+- [02:08:57.040] a man named Donald J, Trump
+- [02:08:59.440] was elected President of the United States,
+- [02:09:09.804] (applause)
+- [02:09:09.814] Prime Minister Netanyahu: And ladies
+- [02:09:10.560] and gentlemen, overnight,
+- [02:09:14.320] overnight everything changed, everything,
+- [02:09:22.080] (applause)
+- [02:09:22.400] Prime Minister Netanyahu: Mr, President,
+- [02:09:26.240] thanks to your unequivocal backing of Israel,
+- [02:09:29.760] we secured a second hostage within weeks of your election,
+- [02:09:35.360] And in the months that followed,
+- [02:09:37.440] we worked closely together to forge a path
+- [02:09:40.240] to bring the remaining hostages home and end the war,
+- [02:09:44.000] End the war in a way that ensures the disarming of Hamas,
+- [02:09:47.520] the demilitarization of Gaza,
+- [02:09:49.520] and that Gaza would never again pose a threat to Israel,
+- [02:09:53.360] Two months ago you fully backed my decision
+- [02:09:56.160] to send the IDF into the last Hamas stronghold in Gaza City,
+- [02:10:01.440] You shared my view that this military pressure
+- [02:10:04.400] would help free the hostages,
+- [02:10:06.560] And despite all the criticism, all the naysayers,
+- [02:10:11.040] we were right, Hamas caved in,
+- [02:10:16.240] And two weeks ago, you succeeded in doing something miraculous,
+- [02:10:24.880] You succeeded in something that no one believed was possible,
+- [02:10:30.480] You brought most of the Arab world,
+- [02:10:34.160] you brought most the world, behind your proposal
+- [02:10:38.880] to free the hostages and end the war,
+- [02:10:42.400] I want to thank Steve Witkoff, Jared Kushner,
+- [02:10:47.040] and Ron Durmer for their great contribution to this effort,
+- [02:11:06.880] (applause)
+- [02:11:09.102] Prime Minister Netanyahu:
+- [02:11:14.880] And I want to thank
+- [02:11:15.680] our negotiating team,
+- [02:11:18.560] I believe that the close cooperation
+- [02:11:21.840] between the two of us, between our two nations,
+- [02:11:25.920] combining Israel's military pressure
+- [02:11:28.560] and President Trump's unmatched global leadership,
+- [02:11:32.480] I have to tell you, I've seen a lot of American presidents,
+- [02:11:37.840] In the time that I've been here
+- [02:11:38.960] and I've been here quite a long time,
+- [02:11:42.560] I've never seen anyone move the world so quickly,
+- [02:11:49.280] so decisively, so resolutely as our friend
+- [02:11:54.320] President Donald J, Trump,
+- [02:12:04.240] (applause)
+- [02:12:06.773] Prime Minister Netanyahu:
+- [02:12:13.360] With our military pressure
+- [02:12:15.920] and President Trump's global leadership,
+- [02:12:19.280] we achieved this historic moment,
+- [02:12:22.000] It's a moment of indescribable joy
+- [02:12:24.960] as our nation embraces our sons who are coming home,
+- [02:12:29.600] Mr, President, this week, Jews around the world,
+- [02:12:37.840] Jews around the world are going to read
+- [02:12:40.480] the book of Ecclesiastes, Kohelet, in the Bible,
+- [02:12:46.000] The Bible has many miraculous moments,
+- [02:12:53.200] One of them was your decision to bomb Fordo,
+- [02:13:01.520] I think it was a pivot of history,
+- [02:13:04.000] because it wasn't meant only to bomb Fordo,
+- [02:13:07.360] That action and your previous action of taking out
+- [02:13:12.720] Qasem Soleimani, the architect of death,
+- [02:13:17.600] I think that changed the balance of power in the world,
+- [02:13:24.480] You brought America back again to the driver's seat,
+- [02:13:34.464] (applause)
+- [02:13:34.474] Prime Minister Netanyahu: I said that we're going to read
+- [02:13:36.960] this week the book of Ecclesiastes,
+- [02:13:41.200] It's not a book of action, It's a book meditations,
+- [02:13:48.320] of thought, of perspective on life and on death,
+- [02:13:54.240] And in this book we read the immortal words of King Solomon,
+- [02:13:58.960] "To everything there is a season,
+- [02:14:01.840] and a time for every matter under heaven,
+- [02:14:06.080] (speaking Israeli)
+- [02:14:09.440] A time for peace and a time for war,"
+- [02:14:13.680] The last two years have been a time of war,
+- [02:14:17.760] The coming years will hopefully be a time for peace,
+- [02:14:28.364] (applause)
+- [02:14:28.374] Prime Minister Netanyahu: Peace inside Israel
+- [02:14:32.080] and peace outside Israel,
+- [02:14:38.640] (applause)
+- [02:14:41.751] Prime Minister Netanyahu:
+- [02:14:49.840] I look forward to continuing
+- [02:14:51.520] marching with you on the path
+- [02:14:53.520] we paved together with the Abraham Accords,
+- [02:14:58.880] Under your leadership, we can forge new peace treaties
+- [02:15:03.600] with Arab countries in the region
+- [02:15:06.320] and Muslim countries beyond the region,
+- [02:15:09.600] Abraham's children will work together
+- [02:15:12.080] to build a better future,
+- [02:15:14.400] a future that will unite civilization against barbarism,
+- [02:15:19.360] light against darkness, and hope against despair,
+- [02:15:26.000] And my friends,
+- [02:15:27.680] I believe that with President Trump's leadership,
+- [02:15:32.800] this will happen a lot faster than people think,
+- [02:15:41.760] As Prime Minister of Israel,
+- [02:15:43.920] I extend my hand to hold those who seek peace with us,
+- [02:15:49.120] No one wants peace more than the people of Israel,
+- [02:15:53.920] Israel will always remain vigilant in defending itself,
+- [02:15:57.920] and Israel will remain full of hope,
+- [02:16:02.080] Hope is our national anthem, Hope is a creed,
+- [02:16:06.480] Hope is strength, It is time, my friends,
+- [02:16:10.000] to realize that hope and expand the circle of peace,
+- [02:16:15.200] Mr, President, thank you for all you have done for us,
+- [02:16:22.720] I have submitted your nomination
+- [02:16:27.760] to be the first non-Israeli recipient of the Israel Prize,
+- [02:16:33.760] Israel's highest award, As to that other prize,
+- [02:16:38.319] just a question of time, you'll get it,
+- [02:16:40.640] But I want you to get the Israel prize,
+- [02:16:43.280] our highest award, to our greatest friend,
+- [02:16:49.280] (applause)
+- [02:16:53.394] Prime Minister Netanyahu:
+- [02:17:03.680] When others
+- [02:17:04.399] were weak, you were strong,
+- [02:17:07.120] When others are fearful, you are bold,
+- [02:17:10.000] When others abandon us, you stood by our side,
+- [02:17:13.760] On behalf of the government and people of Israel,
+- [02:17:16.560] I thank you for your extraordinary friendship,
+- [02:17:19.520] Thank you for helping bring our hostages home,
+- [02:17:22.640] Thank you supporting Israel's march to victory,
+- [02:17:25.920] Thank you, for paving a path to peace,
+- [02:17:32.850] (speaking Israeli)
+- [02:17:32.868] Translator: Honorary President, welcome to Israel,
+- [02:17:37.040] welcome to Jerusalem,
+- [02:17:40.720] welcome in this exciting day that brought us to this day,
+- [02:18:02.240] (applause)
+- [02:18:05.372] Prime Minister Netanyahu: May God
+- [02:18:13.680] bless America, may God bless Israel,
+- [02:18:17.280] and may God bless the covenant between our two promised lands,
+- [02:18:23.280] Thank you, Mr, President,
+- [02:18:52.960] (applause)
+- [02:18:53.760] (applause)
+- [02:19:09.359] The President: Come on up, come on up, opposition,
+- [02:19:25.520] (applause)
+- [02:19:25.680] Speaker Ohana: (speaking Israeli)
+- [02:19:37.359] (applause)
+- [02:19:53.359] Yair Lapid:
+- [02:20:01.920] Mr, Speaker, members of Knesset,
+- [02:20:05.280] Ministers, President Herzog, Prime Minister Netanyahu,
+- [02:20:09.200] distinguished guests,
+- [02:20:10.160] Your Excellency, President Trump,
+- [02:20:14.720] For two years, we waited for this moment,
+- [02:20:19.680] Two years of sleepless nights,
+- [02:20:23.439] two years without air in our lungs,
+- [02:20:28.720] Our eyes are filled with tears today,
+- [02:20:32.160] our hearts are filled with gratitude,
+- [02:20:33.840] our children are coming home,
+- [02:20:44.479] In the Babylonian Talmud,
+- [02:20:46.640] a sacred book of the Jewish people,
+- [02:20:48.880] it is written, whoever destroys one life,
+- [02:20:52.560] it is as though he destroyed an entire world,
+- [02:20:56.240] and whoever saves one life it
+- [02:20:58.880] is though as he has saved an entire word,
+- [02:21:01.920] Mr, President, you have saved the lives of our hostages,
+- [02:21:13.760] (applause)
+- [02:21:13.833] Yair Lapid: But you saved so much more,
+- [02:21:15.760] You have saved the souls of the bereaved
+- [02:21:19.359] whose loved ones now will be brought home for burial,
+- [02:21:23.359] You have save thousands of soldiers
+- [02:21:26.319] who will now not fall in battle,
+- [02:21:28.800] And you have saved millions from the horrors of war,
+- [02:21:36.138] (applause)
+- [02:21:36.148] Yair Lapid: You have saved more than one life,
+- [02:21:38.880] and each life is an entire world,
+- [02:21:42.560] This is a historic moment,
+- [02:21:44.720] and a reminder that history is shaped by people,
+- [02:21:49.600] It is shaped those who know the past,
+- [02:21:53.359] but have the vision to change the future,
+- [02:21:56.720] When you were elected, you declared
+- [02:21:58.479] that you would be the president of peace,
+- [02:22:01.840] You have kept your word,
+- [02:22:04.240] The fact that you are not awarded the Nobel Peace Prize
+- [02:22:08.240] is a grave mistake by the committee,
+- [02:22:11.520] (applause)
+- [02:22:12.209] Prime Minister Netanyahu: But they
+- [02:22:15.600] will have no choice, Mr, President,
+- [02:22:18.160] They will have to award it to you next year,
+- [02:22:25.884] (applause)
+- [02:22:25.894] Prime Minister Netanyahu: Peace will
+- [02:22:26.479] not come by waiting,
+- [02:22:28.560] It will come by building, by reaching out,
+- [02:22:31.680] and by daring once again to believe,
+- [02:22:35.520] You, Mr, President, have done the unimaginable,
+- [02:22:38.640] We will be eternally grateful,
+- [02:22:41.520] But we also need to take responsibility,
+- [02:22:45.200] The destiny of Israel will always be written
+- [02:22:48.240] by the people of Israel, We must now prove ourselves
+- [02:22:52.399] worthy of what is being achieved,
+- [02:22:56.080] From its founding, Israel has said to the world
+- [02:22:59.120] that our strength, our power, rests upon our values,
+- [02:23:05.920] Israel is the strongest country in the Middle East
+- [02:23:09.439] because we are the only democracy in the middle east,
+- [02:23:16.000] (applause)
+- [02:23:18.068] Yair Lapid: Because we believe in the principles laid
+- [02:23:21.359] in our Declaration of Independence,
+- [02:23:23.920] which says Israel will ensure complete equality
+- [02:23:28.080] of social and political rights to all its habitants,
+- [02:23:31.920] irrespective of religion, race or sex,
+- [02:23:35.600] It will guarantee freedom of religion,
+- [02:23:38.160] conscious language, education and culture,
+- [02:23:40.960] It will safeguard the holy places for all religions,
+- [02:23:45.840] Those are our values,
+- [02:23:48.479] That is who we are as people, as a country,
+- [02:23:54.960] Our neighbors must understand one more thing about us,
+- [02:24:00.319] We are not going anywhere,
+- [02:24:07.417] (applause)
+- [02:24:07.427] Yair Lapid: The Middle East is our home,
+- [02:24:09.840] we are here to stay,
+- [02:24:11.760] Our story did not end in the Bible, it began there,
+- [02:24:16.160] It continues in our laboratories and universities,
+- [02:24:19.439] in our innovation hubs,
+- [02:24:21.680] Hamas, Hezbollah, Iran, and the Houthis,
+- [02:24:24.479] they all read the wrong intelligence reports,
+- [02:24:28.560] The real intelligence report on Israel's intentions
+- [02:24:33.520] is found in the book of Genesis,
+- [02:24:36.720] And I will give you and your descendants
+- [02:24:39.840] after you the land of Canaan for an everlasting possession,
+- [02:24:49.337] (applause)
+- [02:24:49.347] Yair Lapid: We call upon the nations of the Islamic world
+- [02:24:53.120] and all our neighbors, Saudi Arabia, Syria, others,
+- [02:24:56.479] We are here to stay, We can do great things together,
+- [02:25:01.200] Come and talk to us,
+- [02:25:03.600] Mr, President, you are the one who can make it happen
+- [02:25:07.359] as you did with the historic Abraham Accords,
+- [02:25:10.479] Then too, no one believed it was possible,
+- [02:25:14.800] Then too you imposed your vision on everyone,
+- [02:25:18.640] While others spoke of difficulties,
+- [02:25:21.680] you created opportunity,
+- [02:25:23.840] You can be the one to bring the next wave of peace,
+- [02:25:28.399] The people of Israel support this,
+- [02:25:30.880] They want this, We are ready,
+- [02:25:38.720] And you can, later today, in Egypt,
+- [02:25:42.080] with your unbelievably talented team,
+- [02:25:44.880] my friends Steve Witkoff, Jared Kushner,
+- [02:25:48.399] Marco Rubio, Pete Hegseth, forge a regional alliance
+- [02:25:53.439] that will change not only the Middle East,
+- [02:25:55.359] but the entire world, After two years of war,
+- [02:26:01.120] the peoples of this region should look around
+- [02:26:04.560] and ask themselves whose situation is better?
+- [02:26:08.720] Those who chose the path of peace
+- [02:26:11.680] or those who chose to path a war?
+- [02:26:15.520] Those who invested in their people,
+- [02:26:18.080] in the education of their children,
+- [02:26:19.680] in science and technology
+- [02:26:22.160] or those who invested in hate and in violence,
+- [02:26:29.200] From here, I say to all those who demonstrated against Israel
+- [02:26:35.439] these past two years,
+- [02:26:37.600] on the streets of London and Rome,
+- [02:26:40.720] in Paris and in Columbia University,
+- [02:26:43.439] I do not represent the government, as you know,
+- [02:26:45.520] I am the leader of the opposition,
+- [02:26:48.240] And I tell you, then, you were deceived,
+- [02:26:54.160] You were deceived propaganda experts
+- [02:26:56.560] funded by terror money manipulated you,
+- [02:27:00.319] Now that the war has stopped,
+- [02:27:01.600] you have time and a chance to go and learn the facts,
+- [02:27:05.680] The truth is, there was no genocide,
+- [02:27:10.080] no intentional starvation,
+- [02:27:19.498] (applause)
+- [02:27:19.508] Yair Lapid: The truth is there was an army and a country
+- [02:27:23.280] fighting in the most complicated conditions
+- [02:27:25.600] imaginable against terrorists who send their own children
+- [02:27:29.359] to die for a follow-up,
+- [02:27:32.240] who use their own kids as human shields,
+- [02:27:35.200] The truth was that a democratic state was attacked
+- [02:27:39.200] by a fanatical terrorist organization,
+- [02:27:41.760] 1,200 people were killed in one day,
+- [02:27:44.479] women were raped, babies were burned alive,
+- [02:27:47.920] And all that, on all the while, they played with your minds,
+- [02:27:53.040] selling you the absurd idea that supporting Islamic terror
+- [02:27:59.200] is somehow a liberal value,
+- [02:28:03.120] There is good and evil in this world,
+- [02:28:05.760] When you stand with Hamas, you stand with evil,
+- [02:28:08.000] when you stand his Hezbollah, you stand was evil,
+- [02:28:10.880] When you stand with the Iranian regime,
+- [02:28:12.640] you stand with evil, When you're stand with Israel,
+- [02:28:15.280] you stand on the side of justice,
+- [02:28:35.120] (applause)
+- [02:28:35.520] Yair Lapid: Last week, I attended
+- [02:28:38.399] the 7th October memorial ceremony,
+- [02:28:41.760] An inspirational woman called Galit Dan spoke on stage,
+- [02:28:47.680] Galit had a daughter, Noya, a 13-year-old girl
+- [02:28:52.640] who was autistic like my daughter,
+- [02:28:55.600] And Noya was full of light, She loved Harry Potter,
+- [02:29:00.800] On that dark day, Noya was sleeping at her grandmother's,
+- [02:29:05.920] Carmela's house in Kibbutzni Rose,
+- [02:29:08.720] Carmela was eight years old,
+- [02:29:11.359] The bodies of her grandmother and granddaughter
+- [02:29:16.479] were found embraced, They were murdered together,
+- [02:29:22.479] On stage at the ceremony,
+- [02:29:24.479] Galit said a sentence that moved us all,
+- [02:29:28.479] We don't want revenge, she said,
+- [02:29:31.439] We want redemption, Today, the redemption begins,
+- [02:29:37.200] Israel has endured two terrible years on the battlefield,
+- [02:29:41.680] And in the international arena, But in those two years,
+- [02:29:45.520] we also rediscovered our own greatness,
+- [02:29:50.880] We remember how good we can be,
+- [02:29:52.880] our pilots who took control of the skies over Iran,
+- [02:29:57.439] our industries leading the world in technology,
+- [02:30:00.800] our civil society,
+- [02:30:03.280] which reached out to help every victim of the war,
+- [02:30:07.840] We will move forward toward a different future,
+- [02:30:11.680] Our heroic soldiers who saved us
+- [02:30:15.359] all will fold away their uniforms
+- [02:30:17.920] and rise as teachers and engineers,
+- [02:30:21.359] scientists and innovators,
+- [02:30:23.200] investors and small business owners,
+- [02:30:25.840] We will never be able to repay the debt
+- [02:30:28.960] to those who sacrificed everything these past years,
+- [02:30:32.560] to those, as President Lincoln said,
+- [02:30:36.640] gave the last full measure of devotion,
+- [02:30:40.319] We can only be worthy of them, worthy of their sacrifice,
+- [02:30:46.399] Mr, President, allow me to speak also to the businessman in you,
+- [02:30:50.800] the deal maker who understands value,
+- [02:30:53.600] If there were one stock in the world
+- [02:30:56.080] I would invest in today, it is the state of Israel,
+- [02:30:59.920] (applause)
+- [02:31:00.174] Yair Lapid: If there were one nation
+- [02:31:04.399] that deserves unrestricted access to GPU chips,
+- [02:31:09.040] to AI and SMR technologies, to American markets,
+- [02:31:12.399] it is the state of Israel,
+- [02:31:17.978] (applause)
+- [02:31:17.988] Yair Lapid: Israel's future is intertwined
+- [02:31:20.720] with our eternal alliance,
+- [02:31:22.240] our strategic and moral covenant,
+- [02:31:24.720] with our greatest friends, the United States of America,
+- [02:31:29.359] This war is over,
+- [02:31:32.800] We will always need to stay vigilant to guard
+- [02:31:37.760] against those who seek our destruction,
+- [02:31:40.399] But the state of Israel is about to reinvent itself,
+- [02:31:45.120] The challenges ahead demand not only strength, but a new vision,
+- [02:31:49.760] It's time to take a new path,
+- [02:31:53.040] to be a nation that is advanced and thriving,
+- [02:31:58.399] and peace-seeking,
+- [02:32:01.200] We have waited for this moment, for the end of the war,
+- [02:32:03.760] for the return of the hostages, for the chance to re-channel
+- [02:32:08.640] our grief and loss into the energy
+- [02:32:11.200] needed to rebuild our nation, Thanks to you, Mr, President,
+- [02:32:16.800] Thanks to our soldiers, our lions,
+- [02:32:19.760] Thanks to the millions of great Israeli patriots
+- [02:32:22.960] who filled the streets and the square and never,
+- [02:32:26.800] not for one moment, gave up on the hostages,
+- [02:32:31.560] (applause)
+- [02:32:34.319] Thanks to all of them,
+- [02:32:35.600] the strength within us can now rise, succeed,
+- [02:32:39.600] and build for our future and for our children,
+- [02:32:44.560] Thank you very much,
+- [02:32:45.439] God bless the United States of America, Am Yisrael Chai,
+- [02:32:59.760] (applause)
+- [02:33:04.196] Translator:
+- [02:33:09.520] I would like to thank the head
+- [02:33:11.120] of the opposition, members of the Knesset,
+- [02:33:17.025] Speaker Ohana: President of the United States of America,
+- [02:33:20.720] His Excellency Donald J, Trump to address the Knesset,
+- [02:33:47.415] (applause)
+- [02:33:47.425] The President: Thank you very much,
+- [02:33:48.560] Thank you, Thank you very much, everybody,
+- [02:33:57.040] It's a great honor, Nice place, Very nice place,
+- [02:34:02.560] Mr, President, Mr, Prime Minister,
+- [02:34:05.680] Mr, Speaker, esteemed members of the Knesset
+- [02:34:08.800] and cherished citizens of Israel,
+- [02:34:13.280] We gather on a day of profound joy,
+- [02:34:15.520] of soaring hope of renewed faith,
+- [02:34:19.120] and above all, a day to give our deepest
+- [02:34:22.160] thanks to the Almighty God of Abraham, Isaac and Jacob,
+- [02:34:49.760] After two harrowing years in darkness and captivity,
+- [02:34:54.880] 20 courageous hostages are returning to the glorious
+- [02:34:59.359] embrace of their families and it is glorious,
+- [02:35:03.280] 28 more precious loved ones are coming home,
+- [02:35:06.240] at last, to rest in this sacred soil for all of time,
+- [02:35:12.720] And after so many years of unceasing war
+- [02:35:15.600] and endless danger, today the skies are calm,
+- [02:35:18.880] the guns are silent, the sirens are still,
+- [02:35:22.080] and the sun rises on a holy land that is finally at peace,
+- [02:35:26.399] A land and a region that will live,
+- [02:35:29.439] God willing, in peace for all eternity,
+- [02:35:36.840] (applause)
+- [02:35:40.560] This is not only the end of a war,
+- [02:35:44.000] this is the end of a age of terror and death
+- [02:35:46.800] and the beginning of the age of faith and hope and of God,
+- [02:35:53.040] It's the start of a grand concord
+- [02:35:55.680] and lasting harmony for Israel
+- [02:35:57.760] and all the nations of what will soon be
+- [02:36:00.960] a truly magnificent region, I believe that so strongly,
+- [02:36:06.000] This is the historic dawn of a new Middle East,
+- [02:36:10.960] I want to express my gratitude to a man of exceptional courage
+- [02:36:14.880] and patriotism whose partnership did so much
+- [02:36:18.880] to make this momentous day possible,
+- [02:36:22.240] You know who I'm talking about?
+- [02:36:23.760] There's only one, Prime Minister Benjamin Netanyahu,
+- [02:36:27.560] Bibi, please stand up,
+- [02:36:38.480] (applause)
+- [02:36:47.920] And he is not easy, I want to tell you,
+- [02:36:50.800] He's not the easiest guy to deal with,
+- [02:36:54.640] but that's what makes him great, That's what makes him great,
+- [02:37:05.760] Thank you very much, Bibi, Great job,
+- [02:37:14.560] And let me also convey my tremendous appreciation
+- [02:37:17.680] for all of the nations of the Arab and Muslim world
+- [02:37:21.680] that came together to press Hamas
+- [02:37:24.080] to set the hostages free and to send them home,
+- [02:37:27.920] We had a lot of help, We had a lot of help
+- [02:37:29.840] from a lot of people that you wouldn't suspect,
+- [02:37:32.319] and I want to thank them very much for that,
+- [02:37:35.040] It's an incredible triumph for Israel
+- [02:37:37.359] and the world to have all of these nations
+- [02:37:40.240] working together as partners in peace,
+- [02:37:43.920] And it's pretty unusual for you to see that,
+- [02:37:46.240] but it happened in this case,
+- [02:37:48.000] This was a very unusual point in time,
+- [02:37:51.280] a brilliant point in time,
+- [02:37:53.840] Generations from now, this will be remembered
+- [02:37:56.560] as the moment that everything began to change
+- [02:38:00.319] and change very much for the better,
+- [02:38:03.600] Like the USA right now, it'll be the golden age of Israel
+- [02:38:08.160] and the golden age of the Middle East,
+- [02:38:10.960] it's going to work together,
+- [02:38:13.040] I'd like to thank several great American patriots
+- [02:38:15.760] for their invaluable help in getting something done
+- [02:38:18.479] that almost everyone thought was absolutely impossible,
+- [02:38:23.439] we were wasting our time,
+- [02:38:25.040] So, many people said, "You're just wasting your time,"
+- [02:38:29.040] but we weren't because we had talented people working with us
+- [02:38:32.080] and we people that loved your country and frankly,
+- [02:38:36.319] people that love the region, they love the Middle East,
+- [02:38:40.000] I want to thank my friend Steve Witkoff,
+- [02:39:07.920] (applause)
+- [02:39:08.319] Steve was chosen by me, he never did this before,
+- [02:39:12.080] but I knew him as a few things, He was a great businessman,
+- [02:39:16.800] but I know a lot of great businessmen,
+- [02:39:18.479] to be honest with you,
+- [02:39:20.160] He had tremendous negotiating skills,
+- [02:39:22.479] but I know a lot of people that negotiate pretty well,
+- [02:39:25.120] although it is an art,
+- [02:39:27.280] But there are people that can negotiate pretty well,
+- [02:39:30.560] But most importantly with Steve, he's just a great guy,
+- [02:39:34.800] Everybody loved him, everybody,
+- [02:39:42.080] I mean, I know some negotiators that are so good,
+- [02:39:46.319] but you wouldn't have had peace in the Middle East,
+- [02:39:48.560] You would be in World War III
+- [02:39:50.800] right now with some of these guys,
+- [02:39:53.439] Everybody loves Steve and they respect him
+- [02:39:56.640] and they somehow can relate to him,
+- [02:39:58.479] I've known him for many years
+- [02:39:59.840] and I've seen it over and over again,
+- [02:40:12.160] (indistinct background chatter)
+- [02:40:13.280] Translator: Please expel this Knesset member,
+- [02:40:16.960] Please expel this Knesset Member Cassif out of the hall,
+- [02:40:23.680] Please expel him immediately,
+- [02:40:46.160] President Trump: Thank you,
+- [02:40:52.800] That was very efficient,
+- [02:41:07.240] (applause)
+- [02:41:08.240] So, back to Steve, He's –
+- [02:41:21.830] (chanting)
+- [02:41:21.840] But I tell one story because he was so involved,
+- [02:41:24.479] and then we called in Jared, we need that brain on occasion,
+- [02:41:28.560] We got to get Jared in here,
+- [02:41:30.080] We got to get a certain group of people,
+- [02:41:32.399] but Steve started this all by himself,
+- [02:41:35.439] I call him Henry Kissinger, who doesn't leak, okay?
+- [02:41:40.319] Henry is a big leaker, He leaked, Steve doesn't leak,
+- [02:41:44.960] Steve just wants to get the job done,
+- [02:41:46.560] He wants to do what's right,
+- [02:41:47.840] But I'll give you just a quick story because as you know,
+- [02:41:50.640] he's working on the war with Russia and Ukraine,
+- [02:41:55.200] A war that would've never happened
+- [02:41:56.640] if I were president, a shame,
+- [02:41:58.640] 7,000 young soldiers a week are being killed,
+- [02:42:02.479] more than that this last week,
+- [02:42:04.800] It's a shame, Should have never happened, but it did happen,
+- [02:42:08.800] And we won the race,
+- [02:42:10.640] and I took over this horrible war that's been raging
+- [02:42:13.920] and I thought it would be easily settled,
+- [02:42:17.840] I thought it was a hell of a lot easier
+- [02:42:19.680] than doing what we just did very successfully with Israel
+- [02:42:23.840] and a lot of other people,
+- [02:42:26.399] but this came first and we'll get that one,
+- [02:42:29.920] But I set up a meeting for him to meet with President Putin,
+- [02:42:33.600] thinking it would be a 15 or a 20-minute meeting,
+- [02:42:36.240] Steve had no idea about Russia,
+- [02:42:37.920] had no idea about Putin too much,
+- [02:42:40.240] didn't know too much about politics,
+- [02:42:42.000] wasn't that interested,
+- [02:42:43.040] He was really good at real estate,
+- [02:42:45.280] but he had that quality that I was looking for,
+- [02:42:47.600] and I didn't see it around in too many ways,
+- [02:42:50.080] And I set up the meeting with Putin and I called,
+- [02:42:53.359] I said, "Is Steve finished yet?"
+- [02:42:56.240] That was about a half an hour into the meeting,
+- [02:42:58.640] "No, sir, He's not, He's still inside,"
+- [02:43:00.479] This is in Moscow, I said, "Well, how's he doing?"
+- [02:43:03.920] "I don't know, sir, He's still inside,"
+- [02:43:05.280] I called up an hour later, "Let me speak to Steve,"
+- [02:43:08.000] "Sir, he's still with Putin, He's with President Putin,"
+- [02:43:11.600] I said, "Wow, that's a long meeting, one hour,"
+- [02:43:14.960] I called up an hour later, he was still with Putin,
+- [02:43:17.840] Three hours later, he was still with Putin,
+- [02:43:20.479] Four hours later, he started to get the word
+- [02:43:23.280] that he was going to be coming out soon,
+- [02:43:25.680] And in five hours, he came out,
+- [02:43:28.800] I said, "What the hell were you talking about for five hours?"
+- [02:43:32.880] And he says, "Just a lot of interesting things,
+- [02:43:35.760] We are talking about a lot of interesting things,"
+- [02:43:39.439] including what he went in there for,
+- [02:43:42.080] but you can't talk about it for five --
+- [02:43:43.920] You could talk about it for a certain period of time
+- [02:43:46.720] and you know what you're getting,
+- [02:43:48.960] But that's a talent,
+- [02:43:50.399] That's a talent where you can do that,
+- [02:43:52.399] Most people I'd send in, number one, they wouldn't be accepted,
+- [02:43:55.200] Number two, if they were,
+- [02:43:56.720] the meeting would last five minutes,
+- [02:43:59.600] And that's what happens with Steve,
+- [02:44:01.200] Everybody loves him, they love him on this side,
+- [02:44:03.760] they love him on the other side,
+- [02:44:05.520] And he really is, he's a great negotiator
+- [02:44:08.319] because he's a great guy,
+- [02:44:10.160] So, thank you very much, Steve, Very much,
+- [02:44:28.399] And let me also give a very special
+- [02:44:30.479] thanks to someone who truly loves Israel,
+- [02:44:35.040] In fact, loves it so much that my daughter converted,
+- [02:44:42.000] My daughter converted,
+- [02:44:44.160] I didn't know this was going to happen,
+- [02:44:50.319] And Ivanka's here,
+- [02:45:07.600] And Bibi, you do know this was not in the cards for me,
+- [02:45:10.720] You understand that,
+- [02:45:12.399] And she is so happy and they are so happy,
+- [02:45:15.120] at least I think they're happy,
+- [02:45:18.000] If they're not, we have a big story, right?
+- [02:45:21.040] No, they have a great marriage and they get along great,
+- [02:45:24.000] They're best friends, They have a very special relationship,
+- [02:45:26.880] But Jared has been so helpful,
+- [02:45:31.840] He really did something very special,
+- [02:45:35.680] He established the Abraham Accords
+- [02:45:38.880] with a group of very wonderful people,
+- [02:45:41.520] I like calling it the Avraham Accords because people that --
+- [02:45:49.120] Right? Avraham, it's so cool,
+- [02:45:55.600] It's so much nicer, The Abraham versus the Avraham,
+- [02:46:10.000] I just don't want to sound too sanctimonious
+- [02:46:12.560] when I do it, so I split it up,
+- [02:46:16.479] This way, I keep everybody happy,
+- [02:46:18.880] But we have some very great talent
+- [02:46:21.840] and they have no excuses for anything that's taken place
+- [02:46:27.439] because we had some unbelievably good people working on this,
+- [02:46:32.240] And then, you're going to add a man named Marco Rubio,
+- [02:46:36.160] who he's also here,
+- [02:46:40.000] (applause)
+- [02:46:58.479] And I have a prediction that Marco will go down,
+- [02:47:01.840] I mean this, as the greatest Secretary of State
+- [02:47:05.279] in the history of the United States,
+- [02:47:07.439] I believe that, I believe it,
+- [02:47:13.040] (applause)
+- [02:47:15.760] And he and I, we really fought it out,
+- [02:47:18.319] You remember, he was tough, He was nasty,
+- [02:47:22.479] Who the hell thought this was going to happen, Marco, right?
+- [02:47:25.439] And now, I'm saying he's going to go down
+- [02:47:27.200] as the greatest, he will,
+- [02:47:28.960] He was always smart and sharp and people respect him,
+- [02:47:36.560] And then, we have somebody who's young,
+- [02:47:39.279] but an unbelievable leader, I saw it a long time ago,
+- [02:47:42.000] And he's turned out to be even better than we thought,
+- [02:47:46.240] Right, Suzy? I think even better,
+- [02:47:48.720] And that's Pete Hegseth, who is our Secretary of War,
+- [02:47:52.560] formerly Secretary of Defense,
+- [02:48:01.960] (applause)
+- [02:48:09.920] And as you know, we decisively won World War I,
+- [02:48:13.680] we decisively won World War II, decisively,
+- [02:48:18.240] and everything in between and everything before it,
+- [02:48:22.560] we won everything,
+- [02:48:23.520] And then, they had the brilliant idea
+- [02:48:26.640] of changing the name from war, it was war, to defense,
+- [02:48:33.840] And with that went a certain thinking, and we fought
+- [02:48:37.359] in a very politically correct way after that,
+- [02:48:40.080] We always had the strongest military,
+- [02:48:42.240] And now, we have a stronger military
+- [02:48:43.840] than we've ever had before, Because of my first term,
+- [02:48:46.319] I've totally rebuilt the military, every aspect of it,
+- [02:48:50.960] But you think we settled eight wars in eight months,
+- [02:48:57.680] I'm now including this one, by the way, if that's okay,
+- [02:49:00.800] They may say, "Well, that was quick,"
+- [02:49:03.520] because yesterday I was saying seven,
+- [02:49:05.040] but now I can say eight, The hostages are back,
+- [02:49:08.000] The hostages are back,
+- [02:49:32.040] (applause)
+- [02:49:33.040] It is a good feeling, Isn't that nice to say?
+- [02:49:36.240] The first time I said, "The hostages are back,"
+- [02:49:39.439] It feels so good to say it,
+- [02:49:45.120] but when you settle eight wars in eight months,
+- [02:49:47.439] that means you don't like war,
+- [02:49:49.200] Everyone thought I was going to be brutal,
+- [02:49:51.200] In fact, I remember Hillary Clinton during a debate,
+- [02:49:54.479] she said, "Look at him, Look at him,
+- [02:49:56.080] He's going to go war with everybody,"
+- [02:49:58.720] And actually, she said,
+- [02:50:00.319] "He's got a personality that's all about war,"
+- [02:50:02.800] No, my personality actually is all about stopping wars
+- [02:50:06.880] and it seems to work, seems to work,
+- [02:50:14.240] But, it also means this name change and our attitude that --
+- [02:50:20.080] We're not going to go into a war,
+- [02:50:21.520] but if we do we're going to win that war
+- [02:50:24.560] like nobody has ever won a war before,
+- [02:50:27.200] We will not be politically correct,
+- [02:50:29.520] but we're not going to be there, And I think as you mentioned,
+- [02:50:32.880] Bibi before, peace through strength,
+- [02:50:36.080] And that's what it's all about,
+- [02:50:42.000] The United States has the greatest
+- [02:50:44.000] and most powerful military
+- [02:50:45.520] in the, right now, history of the world,
+- [02:50:48.080] I can tell you, we have weapons that nobody's ever dreamt of,
+- [02:50:52.479] I only hope we never have to use them,
+- [02:50:54.800] I rebuilt the military, I was proud to do it,
+- [02:50:59.120] but some of the things I hated to do,
+- [02:51:01.680] I hated certain of the weapons
+- [02:51:03.359] because the level of power is so enormous,
+- [02:51:06.640] it's so dangerous, so bad,
+- [02:51:09.120] But we have to do what we have to do,
+- [02:51:10.960] We make the best weapons in the world,
+- [02:51:13.120] and we've got a lot of them,
+- [02:51:15.520] And we've given a lot to Israel, frankly,
+- [02:51:41.359] Bibi would call me so many times,
+- [02:51:43.840] can you get me this weapon? That weapon, that weapon?
+- [02:51:47.279] Some of them I never heard of, Bibi, and I made them,
+- [02:51:51.040] But, we'd get them here, wouldn't we?
+- [02:51:52.800] And they are the best, They are the best,
+- [02:51:55.680] But, you used them well,
+- [02:51:56.960] It also takes people to know how to use them,
+- [02:51:59.520] and you obviously used them very well,
+- [02:52:02.319] But, so many that Israel became strong and powerful,
+- [02:52:05.279] which ultimately led to peace, That's what led to peace,
+- [02:52:12.800] As we celebrate today, let us remember
+- [02:52:15.040] how this nightmare of depravity and death all began,
+- [02:52:20.800] Two years ago on the eve of the Simchat Torah holiday,
+- [02:52:27.120] thousands of innocent Israeli
+- [02:52:28.800] civilians were attacked by terrorists,
+- [02:52:31.359] and one of the most evil
+- [02:52:33.040] and heinous desecrations of innocent life
+- [02:52:36.800] the world has ever seen,
+- [02:52:38.000] the worst slaughter of Jews since the Holocaust,
+- [02:52:42.640] the cruelty of October 7th struck
+- [02:52:45.200] to the core of humanity itself,
+- [02:52:47.600] Nobody could believe what they were witnessing,
+- [02:52:50.800] The United States of America grieved alongside you,
+- [02:52:54.000] and we mourned for our own citizens
+- [02:52:57.040] who were so viciously taken that day,
+- [02:53:00.800] And to all the families whose lives were forever changed
+- [02:53:03.760] by the atrocities of that day, and all of the people of Israel,
+- [02:53:09.760] please know that America joins you
+- [02:53:11.680] in those two everlasting vows, Never forget and never again,
+- [02:53:39.920] From October 7th until this week,
+- [02:53:42.640] Israel has been a nation at war,
+- [02:53:45.520] enduring burdens that only a proud and faithful people
+- [02:53:49.359] could withstand,
+- [02:53:50.640] It was a very tough period of time,
+- [02:53:54.240] For so many families across this land,
+- [02:53:56.479] it has been years
+- [02:53:57.359] since you've known a single day of true peace,
+- [02:54:01.359] But, now at last, not only for Israelis,
+- [02:54:05.600] but also for Palestinians, and for many others,
+- [02:54:08.960] the long and painful nightmare is finally over,
+- [02:54:13.840] And as the dust settles, the smoke fades,
+- [02:54:16.800] the debris is removed, and the ashes clean from the air
+- [02:54:22.720] the day that breaks on a region transformed,
+- [02:54:26.880] and a beautiful and much brighter future
+- [02:54:29.760] appears suddenly within your reach,
+- [02:54:31.840] This is now a very exciting time for Israel
+- [02:54:36.640] and for the entire Middle East,
+- [02:54:39.920] because all across the Middle East,
+- [02:54:41.680] the forces of chaos, terror,
+- [02:54:44.080] and ruin that have plagued the region
+- [02:54:46.000] for decades now stand weakened, isolated, and totally defeated,
+- [02:54:52.080] A new coalition of proud and responsible nations is emerging,
+- [02:54:56.720] And because of us,
+- [02:54:57.680] the enemies of all civilization are in retreat,
+- [02:55:03.279] Thanks to the bravery and incredible skill
+- [02:55:06.160] of the Israeli Defense Forces and Operation Rising Lion,
+- [02:55:34.000] The guy's central casting, let's put him in a movie,
+- [02:55:36.319] look at him, Great job,
+- [02:55:39.279] And my people loved working with you,
+- [02:55:42.080] Loved it, They work so well together,
+- [02:55:47.439] But, many of Iran's top terrorists,
+- [02:55:49.439] including nuclear scientists and commanders,
+- [02:55:53.279] have been extinguished from this earth,
+- [02:55:56.960] And with Operation Midnight Hammer,
+- [02:56:00.000] boy, that's a great name for that what we did,
+- [02:56:04.160] Bless you, The United States military flew
+- [02:56:08.160] seven of those beautiful B-II bombers,
+- [02:56:10.640] They look so beautiful all of a sudden,
+- [02:56:13.120] They were always -- I thought they were pretty planes,
+- [02:56:16.560] I had no idea they could do what they did,
+- [02:56:19.600] In fact, we just ordered 28 more of them,
+- [02:56:23.439] A little updated version, we ordered a whole pile of them,
+- [02:56:30.160] and almost 100 other planes went with them,
+- [02:56:33.279] including fighter jets,
+- [02:56:35.279] We had 52 tankers, big, beautiful, brand-new tankers
+- [02:56:40.080] that were loading them up four or five times,
+- [02:56:42.399] They've traveled 37 hours back and forth,
+- [02:56:45.520] Think of that,
+- [02:56:46.640] But we had tankers all over the sky
+- [02:56:48.560] for all the other planes,
+- [02:56:49.760] We had the F-22, the F-35s, F-16,
+- [02:56:54.160] We had a hell of a lot of planes,
+- [02:57:02.240] We had 52 gas stations in the sky,
+- [02:57:04.720] That's what they call them,
+- [02:57:06.800] I'll tell you, I wouldn't want to be flying one of them,
+- [02:57:08.960] We have our great general Raizin Cane
+- [02:57:12.080] right here, general stand up,
+- [02:57:14.160] This guy, What a general, Thank you,
+- [02:57:34.240] I asked General Caine, I said,
+- [02:57:37.520] "You know we're having problems with ISIS,"
+- [02:57:40.160] and I was in Washington, and I asked,
+- [02:57:43.439] "How long would it take to defeat ISIS?"
+- [02:57:46.800] And my Washington Generals told me,
+- [02:57:49.120] "Three, four, maybe five years, sir,"
+- [02:57:51.920] I said, "I don't get it,
+- [02:57:53.120] We got the best equipment in the world, Why?"
+- [02:57:56.000] I flew to Iraq, and I met with a man named Caine,
+- [02:58:00.479] He said, "What's your first name?"
+- [02:58:01.840] He said, "They call me Raizin, sir,"
+- [02:58:04.399] I said, "Wait a minute, Your name is Raizin Cane"
+- [02:58:08.080] I've been looking for you for a long time,
+- [02:58:11.840] You got to be kidding,"
+- [02:58:13.680] They told me three, four or five years to defeat ISIS,
+- [02:58:17.359] And I sit down with him and I say, "Why is it" --
+- [02:58:19.760] I flew there in the dark of night,
+- [02:58:22.800] I landed, I'll never forget it, It was quite a trip,
+- [02:58:25.680] I'm glad I made it, I met him,
+- [02:58:28.160] I said, "Could I ask you general" --
+- [02:58:29.760] I come down, he studied with another general and a sergeant,
+- [02:58:33.120] Everybody was like central casting,
+- [02:58:34.640] They could go into a movie right now,
+- [02:58:37.040] between him and you guys over here,
+- [02:58:39.840] We could get rich making movies, okay?
+- [02:58:43.760] And they got along so great,
+- [02:58:45.200] That's the beautiful thing that your military and our military,
+- [02:58:48.560] Bibi, got along so great,
+- [02:58:54.720] But, I was told
+- [02:58:55.680] by the television generals in Washington,
+- [02:58:58.160] we have the best equipment in the world,
+- [02:58:59.680] Why is it taking so long? And they said four years,
+- [02:59:03.840] I said, "So let me ask you, Raizin,
+- [02:59:07.680] how long would it take you to defeat ISIS?"
+- [02:59:10.640] "Sir, we can do it in three weeks,
+- [02:59:12.399] but you'll probably have some time left over,"
+- [02:59:14.560] I said, "You got to be kidding,
+- [02:59:16.479] What the hell are you talking about?
+- [02:59:18.240] They said, four years,"
+- [02:59:19.520] He said, "Well, sir, look, it's not my place to say,
+- [02:59:24.720] but you're asking me the question,
+- [02:59:26.880] What you have to do is you hit him from the west,
+- [02:59:29.920] you hit him from the north, you hit him from the south,
+- [02:59:32.479] You hit him above, You hit him below,"
+- [02:59:35.040] I said, "So why didn't they do it?"
+- [02:59:37.200] And he didn't want to speak badly of his superiors,
+- [02:59:40.479] which is hard to believe they were his superiors,
+- [02:59:43.040] Should have been the other way around a long time ago,
+- [02:59:45.439] because he's the one that did operation --
+- [02:59:47.760] It was flawless,
+- [02:59:49.359] It was flawless, It was absolutely flawless,
+- [02:59:55.920] And I said, "So you really think you can do it in four weeks?"
+- [02:59:58.560] "Yes, sir, 100%,
+- [03:00:00.240] You have to do it differently than they were doing it,
+- [03:00:03.200] They were using one base and it was hundreds of miles away,"
+- [03:00:06.560] And he says, "We have all these portable bases
+- [03:00:08.720] all over the Middle East, and they didn't want to use them
+- [03:00:12.160] because they didn't want to offend the country
+- [03:00:14.720] where the portable --
+- [03:00:15.600] They wouldn't have even known what the hell
+- [03:00:17.120] the planes were going up, right? They wouldn't have known,"
+- [03:00:20.399] But he said, "No, they didn't want to defend anybody,
+- [03:00:23.279] offend anybody, but we can do it in four weeks,"
+- [03:00:26.760] And I said, "You sure about that?
+- [03:00:28.479] I'm going to call you back, I'll call you back on Monday,
+- [03:00:31.359] I'm going back to Washington, But, you think four weeks?"
+- [03:00:35.040] "Yes, sir, I think we can do it in four weeks,
+- [03:00:37.120] We'll have time left over," I call him on Monday, I say,
+- [03:00:40.479] "You think you can do it four weeks?"
+- [03:00:42.479] I said, "Go ahead and do it," He did it,
+- [03:00:44.080] I'll tell you, he did it in four weeks, less than four weeks,
+- [03:00:48.000] General, stand up, please,
+- [03:00:51.439] Again, this is a real general,
+- [03:00:54.880] this is not a television general,
+- [03:00:56.720] He doesn't want to go on television,
+- [03:01:06.560] He doesn't want to go on television,
+- [03:01:08.399] I said the other guys love being on television,
+- [03:01:12.880] We dropped 14 bombs on Iran's key nuclear facilities,
+- [03:01:16.800] totally, as I said, originally obliterating them,
+- [03:01:20.319] And that's been confirmed, and everybody understands it,
+- [03:01:23.600] Together, we stopped the number one state sponsor of terror
+- [03:01:27.279] from obtaining the world's most dangerous weapons,
+- [03:01:31.680] And if you think about it, if we didn't do that,
+- [03:01:35.680] and assuming we made the same deal
+- [03:01:37.760] that we have today,
+- [03:01:39.680] there'd be a dark cloud over this deal,
+- [03:01:43.200] And number one, it wouldn't happen
+- [03:01:45.120] because the other Arab and Muslim
+- [03:01:47.200] nations really wouldn't feel comfortable
+- [03:01:49.279] making the deal that we have now, right?
+- [03:01:52.000] If Iran had that nuclear weapon that they were about two months
+- [03:01:56.160] away from having,
+- [03:01:57.040] they would've had it in two months,
+- [03:01:58.240] or maybe less than that,
+- [03:01:59.439] They were right -- this was our last shot,
+- [03:02:03.279] They looked at it for 22 years, This was our last shot,
+- [03:02:07.040] The pilots told me that, They said, "22 years, sir,"
+- [03:02:10.319] They looked at it, Our predecessors looked,
+- [03:02:12.800] They studied it, Three times a year,
+- [03:02:14.800] would do drills on that exact attack,
+- [03:02:17.840] And boy, did they get it right, But let's assume they didn't,
+- [03:02:21.040] And let's assume there was large-scale nuclear weapons
+- [03:02:25.200] in the hands of Iran,
+- [03:02:28.000] We couldn't be here today, Even if we signed the deal,
+- [03:02:30.880] which we couldn't do because a lot of people
+- [03:02:32.720] would not want to have anything to do with it,
+- [03:02:35.200] We took a big cloud off of the Middle East and off of Israel,
+- [03:02:58.120] (applause)
+- [03:02:59.120] And it was my honor to help,
+- [03:03:02.240] But, isn't it true though that --
+- [03:03:04.240] Can you imagine the same? Let's assume,
+- [03:03:07.359] Bibi, the same documents, we had everything the same,
+- [03:03:10.479] But, you had somebody out there that was in the opinion
+- [03:03:14.880] of everybody all powerful in the Middle East,
+- [03:03:19.439] They took a big hit, didn't they?
+- [03:03:21.040] Didn't they take a big hit?
+- [03:03:22.560] Boy, oh boy, they got it from one side, from the other,
+- [03:03:26.800] And you know what would be great
+- [03:03:27.760] if we could make a peace deal with them,
+- [03:03:29.439] And I think that's big, Wouldn't you be happy with that?
+- [03:03:31.680] Wouldn't it be nice, I think, because I think they want to,
+- [03:03:36.160] I think they're tired, Somebody said,
+- [03:03:38.399] "Sir, they're starting their nuclear program again,"
+- [03:03:40.800] I said, "Let me tell you something,
+- [03:03:42.479] They're not starting anything, They want to survive,
+- [03:03:45.760] The last thing they want to do
+- [03:03:47.040] is start digging holes again in mountains
+- [03:03:49.359] that just got blown up, and start --
+- [03:03:51.840] They're not doing -- They want to survive, okay?"
+- [03:03:55.120] But, I think we have a chance,
+- [03:03:56.479] Steve, you and I think Jared, come on,
+- [03:04:00.080] I'll call you back for another one,
+- [03:04:02.000] We always bring Jared, when we want to get that deal closed,
+- [03:04:04.720] We bring Jared, but Steve, you and Jared, and the general,
+- [03:04:08.319] and Pete, and Marco, you'll get that deal done easy,
+- [03:04:12.560] I think that'll be easy,
+- [03:04:13.520] But, first, we have to get Russia done,
+- [03:04:15.200] We got to get that one done, If you don't mind, Steve,
+- [03:04:17.840] let's focus on Russia first, all right? We'll get it done,
+- [03:04:24.399] In Lebanon, the dagger of Hezbollah long aimed
+- [03:04:28.640] at Israel's throat has been totally shattered,
+- [03:04:31.760] My administration is actively supporting
+- [03:04:34.560] the new president of Lebanon and his mission
+- [03:04:37.680] to permanently disarm Hezbollah's terror brigades,
+- [03:04:41.200] He's doing very well,
+- [03:04:44.080] and build a thriving state at peace with its neighbors,
+- [03:04:47.920] and you're very much in favor of that I know,
+- [03:04:49.920] and good things are happening there, really good things,
+- [03:04:54.479] And with this week's ceasefire, we've achieved
+- [03:04:56.960] the most challenging breakthrough of them all,
+- [03:05:00.160] The most challenging breakthrough maybe ever,
+- [03:05:02.319] I've never seen anything like --
+- [03:05:03.840] I've been involved in a lot of success,
+- [03:05:06.640] I have never seen anything like what's going on today
+- [03:05:09.680] all over the world,
+- [03:05:10.800] People are dancing in the streets, not just in Israel,
+- [03:05:13.920] They're dancing in the streets of countries
+- [03:05:16.319] that would've never danced in the street
+- [03:05:19.279] about what's happening today,
+- [03:05:21.520] They're dancing in those streets,
+- [03:05:26.640] This long and difficult war has now ended,
+- [03:05:30.080] Some people say 3,000 years, some people say 500 years,
+- [03:05:33.680] Whatever it is, it's the granddaddy of them all,
+- [03:05:39.040] And in an unprecedented achievement,
+- [03:05:41.439] virtually the entire region has endorsed the plan
+- [03:05:44.319] that Gaza will be immediately demilitarized,
+- [03:05:48.399] that Hamas will be disarmed,
+- [03:05:51.760] and Israel's security will no longer be threatened
+- [03:05:56.479] in any way, shape, or form,
+- [03:06:08.479] Israel, with our help, has won all that they can,
+- [03:06:13.520] By force of arms, you've won, you've won,
+- [03:06:16.960] Now, it's time to translate these victories
+- [03:06:19.600] against terrorists on the battlefield
+- [03:06:21.760] into the ultimate prize of peace and prosperity
+- [03:06:25.279] for the entire Middle East,
+- [03:06:26.720] It's about time you were able to enjoy the fruits of your labor,
+- [03:06:33.040] Mr, Opposition Leader,
+- [03:06:34.880] he's a very nice Opposition Leader, I think --
+- [03:06:37.840] No, he's a nice man, Bibi, he's a nice man,
+- [03:06:45.279] Good, He knows what he's doing, right?
+- [03:06:50.319] No, a very nice guy,
+- [03:06:56.000] Well, see, now you can be a little bit nicer, Bibi,
+- [03:06:58.399] because you're not at war anymore, Bibi,
+- [03:07:09.040] But only by embracing the opportunities of this moment
+- [03:07:12.319] can we achieve our goal of ensuring
+- [03:07:14.319] that the horrors of recent years will never happen again,
+- [03:07:17.520] You don't want to have to go through this again,
+- [03:07:19.760] Eight years ago, I came to this region
+- [03:07:21.840] on a very special first trip abroad
+- [03:07:25.279] as the President of the United States,
+- [03:07:27.279] I came here very early at your request,
+- [03:07:30.399] I addressed the leaders of the Arab and Muslim world
+- [03:07:34.000] gathered in Saudi Arabia
+- [03:07:35.680] and said that it was time to build a future
+- [03:07:38.319] free of the grip of extremism and terror,
+- [03:07:41.760] And I'm interestingly, right now,
+- [03:07:43.920] as soon as I'm finished, I'm quite late,
+- [03:07:46.160] You've kept me quite late between opposition leaders
+- [03:07:48.640] and Bibi's brilliant, but very long speech,
+- [03:07:54.560] I thought I was going to run up here, make a speech,
+- [03:07:56.640] and then head to Egypt, It didn't work out though,
+- [03:08:00.160] and you made a pretty long one too, Sarah,
+- [03:08:12.240] but I liked what you all said, It could be worse,
+- [03:08:14.560] Supposing, on top of it, I didn't like what you said,
+- [03:08:18.240] that would be no good, Ron, would it?
+- [03:08:20.399] Ron, you did a great job, by the way, Ron,
+- [03:08:38.800] So I'm going to be meeting actually in a little while,
+- [03:08:41.439] I'm going to be meeting with the most powerful,
+- [03:08:44.399] the richest nations really in the world,
+- [03:08:46.720] although now with the tariffs,
+- [03:08:48.240] the United States is by far the richest nation in the world,
+- [03:08:51.040] as you probably have been reading,
+- [03:08:52.960] But the richest nations, most powerful nations,
+- [03:08:58.080] tremendous, headed by some tremendous people in many cases,
+- [03:09:01.600] Some cases, I wouldn't say necessarily I would endorse,
+- [03:09:05.279] but I will tell you some incredible people
+- [03:09:07.840] that really helped us make this all possible,
+- [03:09:10.720] So I'll be going there, I'll be quite late,
+- [03:09:13.600] They might not be there by the time I get there,
+- [03:09:17.200] but we're going to give it a shot,
+- [03:09:19.520] But the journey we started back
+- [03:09:21.200] then led to the crushing defeat of the ISIS caliphate,
+- [03:09:25.680] to the monumental Abraham Accords,
+- [03:09:28.080] and ultimately to the historic ceasefire this week
+- [03:09:30.880] in which many of those same nations
+- [03:09:33.200] really played a very pivotal role,
+- [03:09:35.520] I have to tell you, Steve will tell you that,
+- [03:09:37.359] Jared will tell you that, Together we've shown that peace
+- [03:09:41.040] is not just a hope that we can dream about,
+- [03:09:44.000] it's a reality we can build upon day by day,
+- [03:09:47.120] person by person and nation by nation,
+- [03:09:50.720] And because of that, the Middle East is finally ready
+- [03:09:53.200] to embrace its extraordinary potential,
+- [03:09:56.640] You have extraordinary potential in this region,
+- [03:10:00.640] It should now be clear to everyone throughout the region
+- [03:10:03.279] that decades of fomenting terrorism and extremism,
+- [03:10:09.200] jihadism and anti-Semitism have not worked,
+- [03:10:12.399] They haven't worked, They've been a disaster,
+- [03:10:15.359] They've just killed, They've killed,
+- [03:10:21.279] They've backfired completely and totally,
+- [03:10:23.840] They've just totally backfired,
+- [03:10:25.760] Everything that you thought, take it worst case,
+- [03:10:29.840] it's turned out to be worse than that,
+- [03:10:31.600] They have not worked, From Gaza to Iran,
+- [03:10:35.439] those bitter hatreds have delivered
+- [03:10:37.439] nothing but misery, suffering, failure and death,
+- [03:10:42.080] They've served not to weaken Israel,
+- [03:10:44.880] but to annihilate the very forces
+- [03:10:47.040] that did the most to foment this hatred,
+- [03:10:51.760] And it's really, I mean,
+- [03:10:52.960] everybody that's tried it has become irrelevant,
+- [03:10:57.920] Meanwhile, we've seen those nations
+- [03:10:59.840] that set aside their differences reached across ancient divides
+- [03:11:03.600] and pursued engagement
+- [03:11:05.680] are now among the most successful in the region,
+- [03:11:08.880] They're getting along with Israel and they're doing great,
+- [03:11:12.560] And I can tell you, the four nations
+- [03:11:14.960] that joined the Abraham Accords early on,
+- [03:11:19.520] and you'd all be doing me a favor,
+- [03:11:21.439] and I'm going to be saying this in a little
+- [03:11:23.840] while to some other friends, would love you all to,
+- [03:11:28.240] is this right, Jared, join up in the Abraham Accords,
+- [03:11:33.120] We have to join up and get together,
+- [03:11:34.960] You can have that whole thing filled out,
+- [03:11:37.200] We had a very weak administration,
+- [03:11:40.640] worst president in the history of our country by far,
+- [03:11:44.399] And Barack Obama was not far behind, by the way,
+- [03:11:51.640] (applause)
+- [03:11:56.000] And they did nothing with this incredible document,
+- [03:11:59.359] the Abraham Accords, But now you can fill them up,
+- [03:12:01.840] Now you have peace, you have people that really like Israel,
+- [03:12:06.479] I'll tell you what, and they like Israel a lot more today
+- [03:12:08.960] than they did even five weeks ago,
+- [03:12:12.479] You've come back, You've come back strong
+- [03:12:14.960] because it was getting to be a little nasty
+- [03:12:16.720] out there in the world, And ultimately the world wins,
+- [03:12:19.279] You can't beat the world, or I would say to Bibi,
+- [03:12:22.319] "Bibi, it's now time,"
+- [03:12:25.120] And he understood it better than anybody
+- [03:12:27.760] because ultimately the world's a very big place,
+- [03:12:31.840] And I've said a lot,
+- [03:12:33.520] I said, "This piece of land is very small,
+- [03:12:36.560] It's unbelievable, you know with that tiny, you look at a map
+- [03:12:40.160] even of just not the world, the Middle East,
+- [03:12:42.880] and you have this little dot and think of what you've done,
+- [03:12:46.640] It's incredible, It's incredible,"
+- [03:13:06.640] But the world is loving Israel again,
+- [03:13:11.680] And I said to him,
+- [03:13:13.520] "Bibi, the world is big and it's strong,"
+- [03:13:16.960] And Ron, ultimately the world wins,
+- [03:13:19.439] And we don't have to worry about that now,
+- [03:13:21.439] But there was getting to be a period of time
+- [03:13:24.800] over the last few months,
+- [03:13:26.479] the world wanted peace and Israel wanted peace,
+- [03:13:29.680] Everybody did, Everybody did,
+- [03:13:31.840] And what a victory it's been, right? What a victory it's been,
+- [03:13:34.960] If you would've gone on for three, four more years,
+- [03:13:37.520] keep fighting, fighting, fighting, it was getting bad,
+- [03:13:42.000] It was getting heated, The timing of this is brilliant,
+- [03:13:45.680] And I said, "Bibi, you're going to be remembered
+- [03:13:47.680] for this far more than
+- [03:13:49.439] if you kept this thing going, going, going, kill, kill, kill,"
+- [03:13:55.600] It would not be the same,
+- [03:13:56.880] And I just want to congratulate you
+- [03:13:58.960] for having the courage to say,
+- [03:14:01.760] "That's it, We've won, and now let's enjoy our lives
+- [03:14:05.520] and let's rebuild Israel and make it stronger and bigger
+- [03:14:09.120] and better than it's ever been before,"
+- [03:14:11.359] You're going to do that, Took a lot of guts,
+- [03:14:18.880] And the choice for Palestinians could not be more clear,
+- [03:14:22.319] This is their chance to turn forever
+- [03:14:24.720] from the path of terror and violence, it's been extreme,
+- [03:14:28.560] to exile the wicked forces of hate that are in their midst,
+- [03:14:33.120] And I think that's going to happen,
+- [03:14:34.560] we've had some people over the last couple of months
+- [03:14:37.279] that want to see it happen very much,
+- [03:14:39.760] And after tremendous pain and death and hardship,
+- [03:14:43.600] now is the time to concentrate on building their people up
+- [03:14:48.000] instead of trying to tear Israel down,
+- [03:14:50.960] We don't want that to happen again,
+- [03:14:56.000] And the total focus of Gazans must be on restoring
+- [03:14:59.439] the fundamentals
+- [03:15:00.319] of stability, safety, dignity and economic development
+- [03:15:04.319] so they can finally have the better life that their children
+- [03:15:07.279] really do deserve after all these decades of horror,
+- [03:15:12.080] I intend to be a partner in this effort,
+- [03:15:14.479] in the sense that we're going to help
+- [03:15:17.040] and we're going to do something
+- [03:15:19.359] that became unbelievably popular,
+- [03:15:21.600] Everybody wants to be on it,
+- [03:15:24.000] It's called the Board of Peace, okay?
+- [03:15:26.960] How about that? Is that a beautiful name?
+- [03:15:28.640] Like a Board of Peace,
+- [03:15:36.319] The only bad thing from my standpoint,
+- [03:15:38.399] every single nation involved has asked me to be the chair,
+- [03:15:44.000] And I'll tell you, I'm very busy,
+- [03:15:46.160] I didn't count on that,
+- [03:15:47.439] But you know what, if we do it, we'll do it right,
+- [03:15:49.600] And we have unbelievable power and wealth
+- [03:15:53.520] because you're going to need wealth,
+- [03:15:54.720] You're going to need wealth to rebuild things,
+- [03:15:57.439] And they have wealth like few people have wealth,
+- [03:16:00.960] I want to thank the Arab and Muslim nations
+- [03:16:04.000] for their commitment that they've made to support
+- [03:16:07.279] a safe rebuilding of Gaza and beyond,
+- [03:16:09.920] I have many Arab countries, very wealthy countries
+- [03:16:13.680] that came up and said,
+- [03:16:14.640] "We'll put up tremendous amounts of money to rebuild Gaza,"
+- [03:16:22.080] And I think that's going to happen,
+- [03:16:23.760] The power, they want dignity, They want to come forward
+- [03:16:26.880] and they want to say and I want to say who they are
+- [03:16:29.279] because what they're doing is going to be,
+- [03:16:31.920] I think something that you're going to be
+- [03:16:33.279] very impressed with, Bibi, And you need that,
+- [03:16:36.560] You need the kind of economic power that they have
+- [03:16:39.760] and they want to see it work, and they want to see it be safe,
+- [03:16:43.120] and they want to see it be good for Israel too,
+- [03:16:49.120] And as much money as it will be, and it's a lot, as you can see,
+- [03:16:53.920] it's a lot, for these countries
+- [03:16:56.160] it's relatively little relative to their worth,
+- [03:17:02.160] It's really a lot of money,
+- [03:17:04.479] money most people could never even conceive,
+- [03:17:06.880] But for these countries, it's not that much,
+- [03:17:09.040] especially because it ensures success and stability
+- [03:17:12.319] in the Middle East, which is what they want to see,
+- [03:17:15.120] So many of them will be with us in Egypt in a little while,
+- [03:17:18.319] I think, I'm not sure, They may be gone,
+- [03:17:22.800] They may have taken their Boeing 747s and left,
+- [03:17:27.920] I said, "What kind of a plane do you fly?" "A 747,"
+- [03:17:32.319] I said, "That's a large plane," No, they may have --
+- [03:17:35.840] Steve, do you think they've left on their brand-new Boeing 747?
+- [03:17:41.120] I don't know, We're going to find out soon,
+- [03:17:43.120] It's going to be a big story,
+- [03:17:45.600] There'll be two people left and they'll be the two poorest ones,
+- [03:17:58.160] but it will be the wealthiest
+- [03:17:59.920] and most powerful group of nations,
+- [03:18:02.080] So the group that we have assembled,
+- [03:18:04.960] that's waiting for us,
+- [03:18:06.560] is the wealthiest and most powerful group
+- [03:18:09.040] ever assembled at one time,
+- [03:18:10.560] There has never been a group like this,
+- [03:18:12.560] And they're only looking for good,
+- [03:18:14.800] They want good, They're going to do good,
+- [03:18:17.040] And as those commitments are made,
+- [03:18:18.960] I'm going to let the world know who's doing it
+- [03:18:22.239] because they really deserve to get the credit,
+- [03:18:24.399] And some of them probably won't want the credit,
+- [03:18:26.479] but they deserve it,
+- [03:18:28.160] It's more obvious than ever that the productive
+- [03:18:30.800] and responsible nations of this region
+- [03:18:33.520] should not be enemies or adversaries,
+- [03:18:36.399] You should be partners and eventually even friends,
+- [03:18:39.120] And that's what's going to happen, I know it,
+- [03:18:41.680] Together you can stand against the forces of chaos --
+- [03:18:45.040] Yeah, you go ahead, That's an important point,
+- [03:18:53.680] Because you can stand against the forces of chaos
+- [03:18:56.479] that threatened all of your interests,
+- [03:18:58.479] and it's always a big threat, always a big threat,
+- [03:19:02.000] and unleash incredible prosperity and opportunity
+- [03:19:05.200] for all the people of these lands,
+- [03:19:07.040] And that's what's going to happen,
+- [03:19:08.560] You're going to unleash numbers and success
+- [03:19:11.760] the likes of which Israel has never been able to think of
+- [03:19:14.880] because you're so firm and you should be,
+- [03:19:18.560] and you've done the right thing in defending yourself,
+- [03:19:21.760] You're not going to have to worry so much about it,
+- [03:19:23.920] You've won, and now you can build
+- [03:19:25.920] and you can do things that you never even thought possible,
+- [03:19:29.279] When you put that genius into doing something else,
+- [03:19:32.399] it's going to be a miracle,
+- [03:19:35.120] The miracle in the desert, it's going to be amazing,
+- [03:19:37.760] and it already is in a true sense,
+- [03:19:40.160] But it'll be wonderful when you can spend time
+- [03:19:42.560] thinking about other than war and defense and offense also,
+- [03:19:46.960] To that end, it's my firm hope and dream, frankly,
+- [03:19:51.600] that together the Abraham Accords will turn out
+- [03:19:56.080] to be everything that we thought they would,
+- [03:19:58.479] Those four countries were very, very brave in doing it,
+- [03:20:01.600] They did it at a very early point,
+- [03:20:03.439] and every single one
+- [03:20:04.880] of them benefits unbelievably financially,
+- [03:20:08.560] And if you noticed, even in this bad period
+- [03:20:10.720] that we just went through,
+- [03:20:12.319] they all remained a member of the Abraham Accords,
+- [03:20:16.399] They've done unbelievably well,
+- [03:20:18.479] and you know who you are and I want to thank you,
+- [03:20:24.239] And they've stayed because of loyalty, but they've also stayed
+- [03:20:27.040] because it was really good business,
+- [03:20:28.880] They've made a lot of money being members,
+- [03:20:31.439] And you're going to all, I think, I hope that every one
+- [03:20:36.399] of the countries that we're seeking,
+- [03:20:38.720] Jared, I hope they join quickly, no games, no nothing,
+- [03:20:43.359] Just join, Get it,
+- [03:20:44.479] It's going to be a great peacemaker,
+- [03:20:46.560] It's really going to bring it together
+- [03:20:48.160] beyond anybody's wildest dream,
+- [03:20:51.680] So instead of building fortresses
+- [03:20:53.600] to keep enemies at bay, the nations of this region
+- [03:20:57.040] should be building infrastructure
+- [03:20:58.800] to weave your commerce closer together,
+- [03:21:01.680] because you've got to compete with a big world
+- [03:21:03.600] out there on commerce now,
+- [03:21:04.960] it's a different kind of competition,
+- [03:21:07.600] Instead of making weapons and missiles,
+- [03:21:09.920] the wealth of this region
+- [03:21:11.600] should flow to schools and medicine industry,
+- [03:21:14.720] And frankly, the new hot thing, artificial intelligence,
+- [03:21:22.000] Boy, it's a lot of intelligence you're going to have to be
+- [03:21:24.399] throwing off
+- [03:21:24.880] to pay back these sums of money that they're doing,
+- [03:21:29.040] But that's really the hot one,
+- [03:21:31.120] And I might say that the United States,
+- [03:21:34.640] a year ago was a dead country, I say it to people,
+- [03:21:38.080] I heard it first from the king of Saudi Arabia,
+- [03:21:40.399] I then heard it from UAE, I heard it from Qatar,
+- [03:21:44.720] I heard it from many other countries,
+- [03:21:47.359] A year ago, the United States of America was a dead country,
+- [03:21:51.920] Now it's the hottest country anywhere in the world,
+- [03:21:54.479] It is the hottest, There's no question about it,
+- [03:21:59.600] (applause)
+- [03:22:02.720] In fact, if you go back a year ago before the election,
+- [03:22:06.239] although once we had November 5th,
+- [03:22:07.840] we became hot because people got it,
+- [03:22:09.920] I would say November 5th
+- [03:22:11.200] was a time that we became really hot,
+- [03:22:13.760] But once you go back a couple of years,
+- [03:22:16.239] if I were in charge
+- [03:22:17.359] and the country was doing what --
+- [03:22:18.800] Nobody was going to ask me to speak,
+- [03:22:20.800] Nobody asked Joe Biden to come up and speak,
+- [03:22:22.960] I guarantee you that,
+- [03:22:23.840] And if they did, he would've turned them down,
+- [03:22:25.520] I promise you, He didn't speak and he didn't speak well,
+- [03:22:30.880] But all of the countries in the Middle East could have,
+- [03:22:36.080] what we're doing now, it could have happened a long time ago,
+- [03:22:38.880] but it was strangled and set back,
+- [03:22:40.720] almost irretrievably by the administrations
+- [03:22:43.520] of Barack Obama and then Joe Biden,
+- [03:22:47.760] There was a hatred toward Israel,
+- [03:22:49.840] There was an absolute hatred,
+- [03:22:51.840] The setbacks really started when President Obama
+- [03:22:54.720] signed the Iran nuclear deal, This was a disaster for Israel,
+- [03:22:59.040] and it was a disaster for everyone,
+- [03:23:00.880] And I remember that Bibi Netanyahu
+- [03:23:03.920] came to the United States and worked so hard to try
+- [03:23:06.640] and get Obama not to do that deal,
+- [03:23:18.399] He worked so hard, but it was like talking to a wall,
+- [03:23:25.040] I remember him telling me, it was like talking to a wall,
+- [03:23:27.600] They wanted to go with Iran,
+- [03:23:29.920] They chose Iran, frankly, over a lot of other good nations,
+- [03:23:33.600] but specifically Israel,
+- [03:23:36.160] And that was the beginning of a very bad period of time,
+- [03:23:39.040] You had Obama go out and the Iran nuclear deal
+- [03:23:43.439] turned out to be a disaster,
+- [03:23:45.120] And by the way, I terminated the Iran nuclear deal,
+- [03:23:48.800] and I was very proud to do it,
+- [03:24:04.960] Yet even to Iran, whose regime has inflicted so much death
+- [03:24:09.040] on the Middle East,
+- [03:24:10.479] The hand of friendship and cooperation is open,
+- [03:24:13.600] I'm telling you, they want to make a deal,
+- [03:24:16.000] That's all I do in my life, I make deals,
+- [03:24:18.880] I'm good at it, I've always been good at it,
+- [03:24:20.960] and I know when they want,
+- [03:24:23.120] Even if they said, "We don't want to make a deal,"
+- [03:24:25.279] I can tell you they want to make a deal,
+- [03:24:28.319] All right? They do, They want to make a deal,
+- [03:24:30.080] and we're going to see if we can do something
+- [03:24:31.680] because this is crazy what's happening
+- [03:24:33.439] and we're not going to have this anymore,
+- [03:24:36.000] Neither the United States nor Israel
+- [03:24:38.160] bear the people of Iran any hostility,
+- [03:24:40.720] We merely want to live in peace,
+- [03:24:43.200] We don't want any looming threats over our heads,
+- [03:24:47.359] and we don't want to even think in terms of nuclear destruction,
+- [03:24:50.640] It's not going to happen, never will happen,
+- [03:24:53.120] There's nothing that would do more good
+- [03:24:55.600] for this part of the world
+- [03:24:56.800] than for Iran's leaders to renounce terror,
+- [03:24:59.279] stop threatening their neighbors,
+- [03:25:00.720] quit funding their militant proxies,
+- [03:25:04.319] and finally recognize Israel's right to existence,
+- [03:25:07.760] They have to do that, They have to do that,
+- [03:25:12.880] And to Iran, and as you know,
+- [03:25:16.640] this is not said out of weakness,
+- [03:25:18.479] there's no weakness,
+- [03:25:20.239] but I'm going to say this, that we are ready when you are,
+- [03:25:23.680] and it will be the best decision that Iran has ever made,
+- [03:25:27.840] And it's going to happen, It's going to happen,
+- [03:25:31.920] And they're good people,
+- [03:25:33.359] I know a lot of Iranians in the United States,
+- [03:25:35.840] they're good people, smart, hardworking people,
+- [03:25:38.640] They don't want to see what's happened to their country,
+- [03:25:41.520] The story of fierce Israeli resolve and triumph
+- [03:25:45.680] since October 7th should be proof to the entire world
+- [03:25:49.120] that those who seek to destroy this nation
+- [03:25:52.080] are doomed to bitter failure, The state of Israel is strong
+- [03:25:56.960] and it will live and thrive forever,
+- [03:26:14.359] (applause)
+- [03:26:15.359] And that is why Israel will always remain a vital ally
+- [03:26:19.040] of the United States of America, Israelis share our values,
+- [03:26:23.920] field one of the world's most powerful militaries,
+- [03:26:27.600] You really do, You have an amazing --
+- [03:26:29.120] What a job, what a job you've done,
+- [03:26:33.920] And have one of the most innovative economies on earth,
+- [03:26:37.920] Those are just a few of the reasons
+- [03:26:39.600] why I'm proud to be the best friend
+- [03:26:41.520] that Israel has ever had,
+- [03:26:43.439] And they all say it in the White House, they all say it,
+- [03:26:48.319] I guess it's true because everybody says it,
+- [03:26:50.479] Bibi, you said it today, thank you,
+- [03:26:53.520] But as president, I terminated the disastrous
+- [03:26:56.239] Iran nuclear deal, and ultimately,
+- [03:26:58.160] I terminated Iran's nuclear program
+- [03:27:00.640] with things called B2 bombers,
+- [03:27:02.880] It was swift and it was accurate,
+- [03:27:05.520] and it was a military beauty,
+- [03:27:09.439] I authorized the spending of billions of dollars,
+- [03:27:12.239] which went to Israel's defense, as you know,
+- [03:27:20.800] And after years of broken promises
+- [03:27:23.120] from many other American presidents --
+- [03:27:25.120] You know that, they kept promising,
+- [03:27:26.720] I never understood it until I got there,
+- [03:27:28.800] There was a lot of pressure put on these presidents,
+- [03:27:31.439] It was put on me too,
+- [03:27:32.479] but I didn't yield to the pressure,
+- [03:27:35.279] But every president for decades said, "We're going to do it,"
+- [03:27:39.520] The difference is I kept my promise
+- [03:27:41.359] and officially recognized the capital of Israel
+- [03:27:44.319] and moved the American Embassy to Jerusalem,
+- [03:28:02.479] Isn't that right, Miriam? Look at Miriam,
+- [03:28:06.399] She's back there, Stand up, Miriam, Stand up,
+- [03:28:19.279] Miriam and Sheldon would come into the office,
+- [03:28:22.720] they'd call me, he'd call me --
+- [03:28:25.760] I think they had more trips to the White House
+- [03:28:27.600] than anybody else I can think of,
+- [03:28:29.200] Look at her sitting there so innocently,
+- [03:28:32.000] She's got 60 billion in the bank, 60 billion,
+- [03:28:37.680] I think she's saying, "No, more,"
+- [03:28:40.000] And she loves Israel, but she loves it,
+- [03:28:42.080] And they would come in --
+- [03:28:43.400] And her husband was a very aggressive man, but I loved him,
+- [03:28:46.880] He was a very aggressive -- Very supportive of me,
+- [03:28:49.920] And he'd call up, "Can I come over and see you?"
+- [03:28:54.080] I'd say, "Sheldon,
+- [03:28:55.359] I'm the president of the United States,
+- [03:28:57.840] It doesn't work that way," He'd come in, He would, though,
+- [03:29:01.600] But they were very responsible for so much,
+- [03:29:04.640] including getting me thinking about Golan Heights,
+- [03:29:07.120] which is probably one of the greatest things
+- [03:29:09.600] to ever happen to Israel,
+- [03:29:24.000] Miriam, stand up please, She really is --
+- [03:29:27.200] I mean, she loves this country,
+- [03:29:38.080] She loves this country,
+- [03:29:39.200] Her and her husband are so incredible,
+- [03:29:40.960] We miss him so dearly,
+- [03:29:43.920] I'm going to get her in trouble with this,
+- [03:29:45.120] but I actually asked her once,
+- [03:29:46.239] I said, "So, Miriam, I know you love Israel,
+- [03:29:49.200] What do you love more, the United States or Israel?"
+- [03:29:52.800] She refused to answer, That might mean Israel,
+- [03:29:57.279] I must say, We love you,
+- [03:30:01.040] Thank you, darling, for being here,
+- [03:30:02.319] That's a great honor, Great honor,
+- [03:30:04.239] She's a wonderful woman, She is a great woman,
+- [03:30:07.439] I've always stood for the people of this community,
+- [03:30:11.040] and I always will, I'll always be with you,
+- [03:30:12.960] I'm always going to be with you,
+- [03:30:14.160] I guess, maybe something could happen to changed my mind,
+- [03:30:17.359] somebody that's really stupid gets into office
+- [03:30:20.640] and wants to do really bad things, but that's about it,
+- [03:30:24.239] We don't think we're going to have that happen,
+- [03:30:25.680] I hope we're not going to have that happen,
+- [03:30:27.200] And this man is a good man right here,
+- [03:30:29.120] These two men are good men right here,
+- [03:30:36.800] Hey, I have an idea,
+- [03:30:39.120] Mr, President, why don't you give him a pardon?
+- [03:30:45.359] Give him a pardon, Come on,
+- [03:31:13.120] (applause)
+- [03:31:33.520] By the way, that was not in the speech,
+- [03:31:35.200] as you probably know,
+- [03:31:37.520] but I to like this gentleman right over here,
+- [03:31:40.000] and it just seems to make so much sense,
+- [03:31:43.279] Whether we like it or not,
+- [03:31:44.720] this has been one of the greatest wartime presidents,
+- [03:31:49.439] This has been one of the greatest wartime presidents,
+- [03:31:52.720] And cigars and champagne, who the hell cares about that?
+- [03:32:05.720] (applause)
+- [03:32:14.000] All right, enough controversy for the day, right?
+- [03:32:17.760] Actually, I don't think it's very controversial,
+- [03:32:21.040] I see, so popular, You are a very popular man,
+- [03:32:23.920] You know why? Because you know how to win,
+- [03:32:33.320] (applause)
+- [03:32:41.040] Over the past two years,
+- [03:32:42.399] I've met many of the families of the Israelis taken hostage
+- [03:32:47.040] and those that were taken hostage, unbelievable,
+- [03:32:50.000] I've looked into their eyes,
+- [03:32:51.359] I've seen the worst nightmares of their suffering,
+- [03:32:55.120] but I've also seen something else,
+- [03:32:56.800] the beautiful love of the people,
+- [03:32:58.399] The love of people, frankly, that hold things together,
+- [03:33:02.399] The love that gives you the courage to carry on
+- [03:33:04.960] through thousands of years of persecution and repression,
+- [03:33:08.880] and to emerge with the heart of David,
+- [03:33:12.319] It's the heart of David,
+- [03:33:13.920] It's that love that's defeated the enemies of civilization,
+- [03:33:17.920] built this incredible country, and this unbelievable economy,
+- [03:33:22.239] and forged one of the great democracies of the world,
+- [03:33:26.080] That is why it's a true honor to stand here today
+- [03:33:29.120] and address this assembly in your ancient
+- [03:33:32.399] and eternal now capital, Jerusalem,
+- [03:33:34.960] I'm proud to have helped in that regard,
+- [03:33:38.399] This city and this nation stand as living proof
+- [03:33:41.120] that a much brighter future for this entire region
+- [03:33:44.479] is truly within our grasp, For thousands of years,
+- [03:33:48.080] Jerusalem has been a home to Christians, Jews, Muslims,
+- [03:33:51.920] and people of all ethnicities and creeds,
+- [03:33:55.520] This is the holy center of the world's
+- [03:33:58.160] three great Abrahamic faiths, I like that too,
+- [03:34:05.680] It's the first time I've seen that word in a while,
+- [03:34:08.880] Adorned with their sacred sites and alive
+- [03:34:12.160] with their pilgrims and visitors from every corner of the globe,
+- [03:34:17.120] But here between the Western Wall, the Temple Mount,
+- [03:34:21.520] and the hill called Calvary,
+- [03:34:24.239] people of every faith and background, live, work,
+- [03:34:27.200] pray, serve, and raise their family side by side,
+- [03:34:30.960] and they do it with love,
+- [03:34:33.840] This example is just one of the modern miracles
+- [03:34:36.880] that Israel has given to the world,
+- [03:34:40.000] And just in closing, the leaders in this chamber know
+- [03:34:43.200] better than anyone else the challenges of disharmony,
+- [03:34:47.040] and it's been easily won,
+- [03:34:50.239] No, it hasn't, It has not been, It's been so tough,
+- [03:34:55.120] but it has been, some say, a miracle,
+- [03:34:58.479] What you've done is a miracle, Look at your size,
+- [03:35:03.439] Look at your chances when it all started,
+- [03:35:06.560] And if you think about it, you are safer today,
+- [03:35:10.880] stronger today, and more respected today
+- [03:35:13.920] than at any time in the history of Israel,
+- [03:35:18.960] Think of it,
+- [03:35:24.239] People used to say it wouldn't exist,
+- [03:35:26.160] They don't say that anymore, do they?
+- [03:35:28.399] Yet if safety, security,
+- [03:35:29.840] and coexistence can thrive here in the winding alleys
+- [03:35:33.680] and ancient paths of Jerusalem, then surely peace and respect
+- [03:35:37.520] can flourish among the nations of the broader Middle East,
+- [03:35:41.439] The God who once dwelled among his people in this city
+- [03:35:44.399] still calls us in the words of Scripture,
+- [03:35:47.279] the turn from evil and do good to seek peace and pursue it,
+- [03:35:53.840] So, he still whispers truth into the hills and knolls
+- [03:35:56.880] and valleys of his magnificent creation,
+- [03:35:59.920] And he still writes hope into the hearts of his children
+- [03:36:02.720] all over the world,
+- [03:36:04.239] And that is why even after 3,000 years of pain and conflict,
+- [03:36:08.720] the people of Israel have never given up
+- [03:36:11.120] from the threats of Zionism, from all sorts of threats,
+- [03:36:18.560] You want the promise of Zion,
+- [03:36:21.120] You want the promise of success and hope and love and God,
+- [03:36:26.239] And the people of America have never lost faith
+- [03:36:28.800] in the promise of a great
+- [03:36:30.560] and blessed future for all of us,
+- [03:36:33.200] From the very first day that modern Israel was founded,
+- [03:36:36.399] we have stood together through thick and thin of setbacks,
+- [03:36:42.800] and through victory and defeat, through glory and heartache,
+- [03:36:46.880] We have built industries together,
+- [03:36:48.880] we have made discoveries together,
+- [03:36:51.200] we have confronted evil together,
+- [03:36:53.040] and we have waged war together,
+- [03:36:54.800] and perhaps most beautifully of all,
+- [03:36:57.760] we have made peace together, And this week, against all odds,
+- [03:37:01.600] we have done the impossible and brought our hostages home,
+- [03:37:24.000] So, now we're going to forge a future
+- [03:37:26.479] that is worthy of our heritage, We're going to build a legacy
+- [03:37:29.920] that all the people of this region can be proud of,
+- [03:37:33.359] New bonds of friendship, cooperation,
+- [03:37:35.760] and commerce will join Tel Aviv to Dubai,
+- [03:37:40.160] Haifa to Beirut, Jerusalem to Damascus,
+- [03:37:43.920] and from Israel to Egypt, from Saudi Arabia to Qatar,
+- [03:37:49.760] from India to Pakistan, from Indonesia to Iraq,
+- [03:37:54.560] from Syria to Bahrain, Turkey to Jordan,
+- [03:37:59.520] the United Arab Emirates to Oman and Armenia,
+- [03:38:04.399] to Azerbaijan, another war that I just settled,
+- [03:38:09.600] We are going to have hope, harmony, opportunity,
+- [03:38:13.200] and happiness here in the spiritual
+- [03:38:16.239] and geographic center of the entire world,
+- [03:38:19.120] That's what you are,
+- [03:38:20.960] Israel, America, and all of the nations of the Middle East
+- [03:38:24.720] will soon be safer, stronger, greater
+- [03:38:26.800] and more prosperous than ever before,
+- [03:38:36.399] And I want to thank you all once again
+- [03:38:38.239] for this exceptional honor, This has been truly an honor,
+- [03:38:40.960] It's seldom that a president is invited to do this,
+- [03:38:45.760] And I love Israel, I'm with you all the way,
+- [03:38:50.479] You'll be bigger, better, stronger,
+- [03:38:54.960] and more loving than ever before,
+- [03:38:57.520] Thank you very much, God bless you,
+- [03:38:59.680] God bless the United States of America
+- [03:39:02.560] and God bless the Middle East,
+- [03:39:05.040] Thank you, everybody, Good luck, Thank you very much, Thank you,
+- [03:39:26.399] (applause)

@@ -1,0 +1,1242 @@
+<!-- source: https://www.youtube.com/watch?v=rKVM9pn0RZY -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: rKVM9pn0RZY -->
+<!-- date_published: 2025-11-28T00:26:08+00:00 -->
+<!-- date_accessed: 2026-06-02T02:41:02.345993+00:00 -->
+
+# Transcript: President Trump Participates in a Call with Service Members
+
+- [00:12.010] The President: We ready? Everybody ready?
+- [00:16.910] Okay, we're all set.
+- [00:17.770] Male Speaker: Mike, are we ready?
+- [00:18.980] Chris, we're ready?
+- [00:20.230] Male Speaker: Yep, we're good.
+- [00:21.460] Male Speaker: Go ahead.
+- [00:28.900] The President: I assume we're on and everybody sees us,
+- [00:31.470] I see you. A lot of great looking faces.
+- [00:34.170] Am I correct? Everybody's on, right?
+- [00:36.590] If you are, wave, if you're not,
+- [00:38.030] just, you can leave and go have turkey.
+- [00:42.200] Good. I think everyone's waving. Thank you very much.
+- [00:45.350] And I'm honored to speak with so many
+- [00:47.390] incredible members of the US military
+- [00:49.530] and to wish all of you a very happy Thanksgiving.
+- [00:52.940] Before we begin, I want to express the anguish
+- [00:55.530] and the horror of our entire nation
+- [00:57.870] at the terrorist attack yesterday
+- [00:59.380] in our nation's capital
+- [01:02.050] in which a savage monster gunned down two service members
+- [01:05.900] in the West Virginia National Guard
+- [01:09.100] who were deployed as part of the DC Task Force,
+- [01:12.140] which has done such an incredible job.
+- [01:14.450] I mean, until yesterday,
+- [01:16.400] we literally had no incidents for many months.
+- [01:18.740] It was the safest place imaginable,
+- [01:21.170] and this is a different kind of crime.
+- [01:23.710] This is a really bad crime.
+- [01:25.880] Millions of Americans are praying
+- [01:27.680] for those heroes and their families.
+- [01:29.650] And I must unfortunately tell you
+- [01:31.820] that just seconds before I went on, right now,
+- [01:36.170] I heard that Sarah Beckstrom of West Virginia,
+- [01:41.170] one of the guardsmen that we're talking about,
+- [01:44.120] highly respected, young, magnificent person
+- [01:48.870] started service in June of 2023, outstanding in every way.
+- [01:54.010] She's just passed away. She's no longer with us.
+- [01:57.270] She's looking down at us right now.
+- [02:00.720] Her parents are with her. It's just happened.
+- [02:05.180] She was savagely attacked. She's dead.
+- [02:07.700] Not with us. Incredible person.
+- [02:10.480] Outstanding in every single way in every department.
+- [02:15.840] That's horrible.
+- [02:17.750] As you know, the other young man is fighting for his life.
+- [02:21.860] He's in very bad shape. He's fighting for his life
+- [02:23.960] and hopefully we'll get better news with respect to him.
+- [02:28.690] And the monster that did this is also in serious condition,
+- [02:37.260] but we won't even talk about him.
+- [02:39.600] As you may know, DHS has confirmed
+- [02:41.830] that the suspect is an Afghan national,
+- [02:45.440] flown here by the previous administration
+- [02:48.920] who was such a bad administration.
+- [02:52.340] And I have a picture of a plane.
+- [02:56.420] This is what it looked like when they came in.
+- [02:58.100] It was total bedlam.
+- [02:59.360] Do you remember that period of time?
+- [03:01.190] Total bedlam. People crammed onto the plane.
+- [03:05.950] And the toughest, meanest,
+- [03:09.050] most capable physically got on the plane,
+- [03:11.760] not the people that we were looking for
+- [03:14.380] or that they wanted to bring in. Here's a picture for you.
+- [03:16.900] Just take a look at that plane. Standing on top of each other
+- [03:20.750] and sitting on top of each other.
+- [03:22.190] This is what we had under the Biden administration.
+- [03:25.180] That whole thing should have never, ever happened.
+- [03:28.110] They should have left from a different base.
+- [03:30.810] They should have left from Bagram.
+- [03:33.190] As you know, and, it would have been a much different story.
+- [03:37.890] But they didn't do that.
+- [03:39.140] And this was a this was just a route,
+- [03:42.050] just a terrible situation. This heinous atrocity reminds us
+- [03:46.050] that we have no greater national security priority
+- [03:49.200] than ensuring that we have full control
+- [03:51.640] over the people that enter and remain in our country.
+- [03:57.560] For the most part, we don't want them.
+- [04:00.280] They come in illegally. They have a lot of problems.
+- [04:03.880] Their countries force them in
+- [04:05.270] because their countries are smart.
+- [04:06.610] They don't want them.
+- [04:07.810] Let's give them to the Americans to take care of.
+- [04:09.650] They come out of jails in many cases, mental institutions,
+- [04:13.740] they're gang members, they're drug dealers.
+- [04:16.570] We don't want them.
+- [04:18.540] Many of the service members on this call today
+- [04:21.560] are engaged in crucial aspects of that mission.
+- [04:25.380] And to each and every one of you,
+- [04:26.930] I just want to thank you so much, incredible people.
+- [04:30.520] You make this sacrifice like few others understand.
+- [04:34.880] A lot of them don't even understand it.
+- [04:37.410] And you're keeping America safe and free.
+- [04:40.330] Our military is strong.
+- [04:41.750] My first term, I rebuilt our military,
+- [04:43.760] all aspects of our military.
+- [04:46.230] And in Afghanistan, we actually gave up a big chunk,
+- [04:48.890] but relatively, as much as it seemed
+- [04:51.440] like it's small compared to what we bought
+- [04:54.250] and to what we have and to what we're buying.
+- [04:56.950] We're spending over a trillion dollars
+- [04:59.240] this year on our military.
+- [05:00.610] We have our military, the best in the world.
+- [05:02.440] We make the best equipment in the world,
+- [05:05.190] and we have the best people in the world.
+- [05:08.810] So joining us this evening are six units deployed
+- [05:11.300] across our hemisphere
+- [05:13.020] representing every branch of the United States Armed Forces.
+- [05:16.790] First, I want to thank the members
+- [05:18.240] of Army's legendary 101st Airborne Division.
+- [05:22.810] You know, I've heard about that for, since I was a little boy.
+- [05:27.790] The screaming eagles calling in from Fort,
+- [05:32.510] "Watch your car, Arizona."
+- [05:35.470] And you're led by Major General David Gardner,
+- [05:38.130] a real tough cookie and great general.
+- [05:42.930] I appreciate it, General Gardner.
+- [05:45.210] The 101st has done an outstanding job
+- [05:47.670] leading the task force,
+- [05:48.910] joint task force at our southern border.
+- [05:51.550] I mean, we have nobody coming in.
+- [05:52.980] They're not coming in.
+- [05:54.250] Under Biden, they were coming in by the millions.
+- [05:57.380] Now we have nobody coming in.
+- [05:58.660] We have a strong border. Nobody talks about it anymore.
+- [06:01.810] I'm not given credit for anything,
+- [06:03.640] just like you guys are not given credit for anything.
+- [06:05.940] We do the greatest job.
+- [06:07.980] But that's all right. They don't talk about the border anymore
+- [06:10.330] because, you know why? Nobody comes in.
+- [06:11.870] We had nine months now where we had nobody coming in.
+- [06:14.490] Zero.
+- [06:15.760] And this is being fed, this is, the people that do this are,
+- [06:20.970] they tend to be on the left. They'd love to say,
+- [06:24.020] "Millions of people came in through Trump,"
+- [06:25.820] and they actually said, "Nobody ca-"
+- [06:27.310] Even I find that hard to believe,
+- [06:28.680] but they literally are saying, "Nobody came in."
+- [06:31.990] And I hope people appreciate the job that you've done
+- [06:34.780] and the job that we've all done,
+- [06:36.080] but we're stopping the invasion of our country.
+- [06:38.950] We stopped it cold. And if you remember, Biden said,
+- [06:42.260] "I need new legislation. I need new --"
+- [06:44.160] You didn't need legislation. I didn't get legislation.
+- [06:46.780] What you needed was a new president.
+- [06:49.680] So with your help, we now have the most secure border
+- [06:52.730] in American history.
+- [06:54.330] It's the single most secure border in American history.
+- [06:56.860] So I just want to thank you.
+- [06:58.660] And the 101st, I want to thank you very much.
+- [07:00.740] The job you've done is amazing,
+- [07:02.110] working with all of our great people.
+- [07:05.160] We also have the men and women of the US Navy
+- [07:07.540] serving as part of the Iwo Jima Amphibious
+- [07:10.440] Ready Group under Captain Christopher Farricker,
+- [07:14.570] and they're on board the USS Iwo Jima in the Caribbean Sea.
+- [07:18.490] Working right by their side are members of the 22nd
+- [07:22.510] Marine Expeditionary Unit led by Colonel Tom Trimble.
+- [07:26.370] Thank you very much.
+- [07:27.580] I think you wave to me because I can see you then.
+- [07:29.940] Let's see. Hey, you are handsome people.
+- [07:32.830] They're beautiful looking people.
+- [07:34.250] Thank you. Like central ca- --
+- [07:36.090] I could put you in a movie right this second
+- [07:38.090] and, the three of you
+- [07:39.810] and I think we'd have a top, a top grossing movie.
+- [07:43.620] You don't have people like you in Hollywood.
+- [07:46.870] Part of the 22nd MEU is also serving in Puerto Rico,
+- [07:51.350] the third battalion, six Marines,
+- [07:53.400] Devil Dogs, led by Major Ross Gilcrest.
+- [07:57.880] Where is Major? Where are you? Hello, Major.
+- [08:01.950] Another central ca- -- is everybody central casting?
+- [08:04.460] It's like they're all handsome, tough guys.
+- [08:07.440] I don't know what's going on here.
+- [08:09.840] But the Navy Marine Corps team
+- [08:11.480] is currently helping to defend our country,
+- [08:13.530] protect our interests,
+- [08:14.750] and decimate, literally decimate terrorists.
+- [08:18.250] The job you've done is incredible.
+- [08:20.490] I also want to thank you for your amazing work
+- [08:22.550] to quickly deliver life-saving aid to Jamaica
+- [08:26.510] in the aftermath of the recent hurricane,
+- [08:28.650] which was devastating. Thank you very much.
+- [08:30.480] Appreciate it, Major, and everybody.
+- [08:31.950] Appreciate it.
+- [08:33.970] Next up are the airmen serving with one
+- [08:36.450] of the most feared bomber forces in the world,
+- [08:40.300] the US Air Force's 7th Bomb Wing at Dyess Air Force Base in Texas
+- [08:45.920] under the, under the auspices
+- [08:49.300] and leadership of Colonel Seth Spanier.
+- [08:52.730] Colonel? Where are you, Colonel? Let's see here.
+- [08:55.960] You're right there. Thank you, Colonel.
+- [08:59.880] All of you are backbone of America
+- [09:02.770] and you really are the backbone of America's air power.
+- [09:06.160] And in recent weeks you've been working
+- [09:08.100] to deter Venezuelan drug traffickers,
+- [09:10.360] of which there are many.
+- [09:11.890] Of course, there aren't too many coming in by sea anymore,
+- [09:14.200] if you probably noticed that.
+- [09:16.310] From sending their poisons into the United States
+- [09:18.950] where they kill hundreds of thousands of people a year.
+- [09:22.380] But we're going to take care of that situation.
+- [09:23.990] We're already doing a lot. We, we've almost stopped,
+- [09:27.100] it's about 85 percent stopped by sea.
+- [09:29.660] You probably noticed that.
+- [09:32.030] People aren't wanting to be delivering by sea
+- [09:35.180] and we'll be starting to stop them by land also.
+- [09:39.190] The land is easier, but that's going to start very soon.
+- [09:42.690] We'd warn them, stop sending poison to our country.
+- [09:46.840] We also have the 18th Space Defense Squadron
+- [09:49.320] at Vandenberg Space Force Base in California,
+- [09:53.560] headed by Captain Ryan Weber. Captain? Where are you, Captain?
+- [09:58.100] Thank you very much, Captain. Great job.
+- [10:01.570] Every day you maintain American dominance
+- [10:03.910] on the high frontier.
+- [10:05.440] You're the guardians of one of the most important domains
+- [10:08.550] we have to protect and you make us
+- [10:10.350] very, very proud of the job you do, Captain.
+- [10:12.280] Thank you.
+- [10:13.660] Finally, we have the great men of the Coast Guard,
+- [10:17.050] and I have to tell you,
+- [10:18.340] there are a lot of women in the Coast Guard now too,
+- [10:20.780] and we're happy about that. United States Coast Guard,
+- [10:24.080] aboard the Coast Guard Cutter, Forest Rednour,
+- [10:28.260] with Lieutenant Commander Alexis Wilde.
+- [10:32.100] Alexis, where are you?
+- [10:33.980] Hi, Alexis. Alexis Wilde at the helm.
+- [10:37.660] And I'm told that just last month
+- [10:40.780] the Forrest Rednour intercepted a boat
+- [10:43.980] with lots and lots of illegal aliens
+- [10:47.340] off the coast of California. It was loaded.
+- [10:50.260] And then turned them over to the Customs and Border Patrol.
+- [10:53.230] And they did it so professionally.
+- [10:54.620] The people were very,
+- [10:56.430] very impressed with the job you did, Commander.
+- [10:58.560] So, thank you very much. It was a great job.
+- [11:01.460] And thank you for defending our maritime borders
+- [11:04.310] with skill and with pride and the job you do.
+- [11:07.040] Amazing.
+- [11:08.510] So, I want to thank all of you again
+- [11:10.560] for your amazing service to our country.
+- [11:12.530] God bless our warriors.
+- [11:13.950] God bless our heroes from West Virginia National.
+- [11:17.540] God, what a group. I love West Virginia.
+- [11:21.560] And I want to wish everybody a very happy Thanksgiving.
+- [11:25.280] We have a country that we, we can be very proud of.
+- [11:27.820] I was with the king of Saudi Arabia
+- [11:29.990] and he said, "You know, sir,
+- [11:31.290] last year you had a country that was a dead country.
+- [11:35.420] We thought it was dead.
+- [11:36.800] And now you have the hottest country anywhere in the world."
+- [11:39.750] And it's true.
+- [11:41.190] And we're going to be having close to $20 trillion invested.
+- [11:45.100] That's record-setting by 10 times.
+- [11:47.900] Nobody's ever had anything like it.
+- [11:49.170] We're building plants.
+- [11:50.420] We're building, we're building factories,
+- [11:53.000] auto factories, AI plants.
+- [11:56.140] The whole thing with artificial intelligence.
+- [11:58.590] I don't know the word, I've never liked the word artificial.
+- [12:00.720] I don't know what artificial are.
+- [12:01.940] I think they ought to change the name.
+- [12:03.210] I've always said that's a lousy name
+- [12:05.370] to have artificial anything, but it's a big business.
+- [12:08.650] And we're building more. We're leading China by a lot.
+- [12:11.670] We're leading everybody by a lot.
+- [12:13.620] We make the best military equipment in the world,
+- [12:16.020] and they're ordering it at numbers
+- [12:17.630] that nobody's ever seen before.
+- [12:20.260] But we're doing better than we've ever done before.
+- [12:22.290] We have the stock markets just hit for the 48th time
+- [12:25.840] an all-time high during the nine months that I've been here,
+- [12:28.210] a little more than nine months now.
+- [12:30.820] And so we have the hottest stock market ever.
+- [12:33.360] That's a big thing for 401(k)s
+- [12:35.280] and all of the millions of people with jobs
+- [12:37.860] and 401(k)s, everybody participates in that.
+- [12:40.800] But it's 48 times in a little bit less than 10 months,
+- [12:46.580] 48 times we hit an all-time high.
+- [12:49.380] And I think we're going to continue
+- [12:50.750] because when these factories that we're building
+- [12:53.470] from all over the world,
+- [12:54.760] they're coming because of tariffs.
+- [12:56.250] I think because of November 5th, the election result,
+- [12:58.780] but because of tariffs
+- [13:00.680] and we're taking in hundreds of billions of dollars
+- [13:03.690] like we've never done before.
+- [13:05.950] And some of that's going to go back in the form
+- [13:09.110] of a sort of dividend to our people.
+- [13:11.970] But much of it's going to go toward reducing debt.
+- [13:15.030] And what it really goes for,
+- [13:16.520] and even better than the money we're taking in,
+- [13:18.290] is the fact that nobody's attacking our companies
+- [13:20.240] and taking them out,
+- [13:21.440] stealing them like they've been for many years.
+- [13:23.710] Because if they do that, they have to pay a tariff
+- [13:26.570] as they make products and sell them into our country.
+- [13:29.980] So we made deals with Japan, we made deals with South Korea,
+- [13:32.750] we made deals with the European Union
+- [13:35.260] where they pay us hundreds of billions of dollars
+- [13:38.400] and they participate. They're now building plants.
+- [13:42.060] Honda is building plants, and they're all,
+- [13:45.110] every, every car company from all over the world
+- [13:47.730] virtually is building plants now in the United States
+- [13:50.800] because they don't want to pay the tariffs.
+- [13:53.150] So there's never been anything quite like it.
+- [13:55.060] It's been amazing.
+- [13:56.290] So we're taking in, think of it, hundreds of billions, next year
+- [14:00.100] it'll be a trillion dollars or more,
+- [14:02.340] but we're taking in all this money.
+- [14:03.820] At the same time, protecting our country.
+- [14:06.450] And we're respected again, they actually respect us
+- [14:09.860] and they made the deals. I mean, they respect us,
+- [14:12.020] but they pay us as an example, Japan, $650 billion.
+- [14:17.490] South Korea, $350 billion. European Union, $950 billion.
+- [14:22.780] And they are building plants now in the United States
+- [14:27.570] because they don't want to pay tariffs.
+- [14:29.520] So this is one of the biggest things economically
+- [14:31.900] that's never happened,
+- [14:33.870] nobody's ever seen anything like it.
+- [14:35.220] And over the next couple of years,
+- [14:37.170] I think we'll substantially be cutting
+- [14:38.760] and maybe cutting out completely.
+- [14:40.940] Uh, but we'll be cutting in income tax
+- [14:44.180] could be almost completely cutting it
+- [14:45.970] because the money we're taking and is going to be so large.
+- [14:49.690] And yet, other countries who have been ripping us off
+- [14:52.980] for many, many years and many years
+- [14:54.700] they've just been ripping us to shreds.
+- [14:57.790] Uh, China would take in 600, $700 billion a year,
+- [15:02.290] rebuild their military.
+- [15:04.000] And now we have a fair deal with China.
+- [15:05.750] We just met with Presidents Xi, we have a great relationship.
+- [15:08.090] We have a fair deal.
+- [15:09.350] We take it a lot of money in the form of tariffs.
+- [15:12.890] But so many, even our friends, I mean European Union,
+- [15:15.880] they're our friends, Japan, they're our friends.
+- [15:18.770] South Korea is our friends.
+- [15:20.510] They're now paying us hundreds of billions of dollars.
+- [15:23.680] And they're also paying tariffs to come in.
+- [15:25.440] We're not paying tariffs to go in there.
+- [15:27.040] By the way, they're paying tariffs, but we're not.
+- [15:29.230] So that's a total reversal. But we are benefiting like,
+- [15:36.340] like they used to benefit against us,
+- [15:38.170] but we're benefiting even more.
+- [15:40.550] So I just want to thank everybody
+- [15:42.000] for making all of this possible
+- [15:43.590] without you, well, you know, we don't have any defense.
+- [15:45.880] And boy, do we have defense.
+- [15:47.710] We have the strongest military anywhere in the world.
+- [15:50.040] We make, as I said, the best equipment, but we have,
+- [15:52.490] more importantly, we have the strongest military
+- [15:55.740] anywhere in the world. And you saw that with Iran,
+- [15:58.340] with those beautiful B-2 bombers.
+- [16:01.800] They totally obliterated the nuclear,
+- [16:04.430] potential nuclear supply of Iran.
+- [16:07.910] And they did it in the dark of night with no moon,
+- [16:11.080] no light, no nothing.
+- [16:13.200] Early in the morning they attacked.
+- [16:15.270] You couldn't see a thing.
+- [16:16.560] And every single bomb hit its mark. Every single bomb.
+- [16:20.670] The Atomic Energy Commission said it was total obliteration.
+- [16:25.310] Remember when some of the fake news tried to say,
+- [16:28.210] well, maybe it wasn't as bad.
+- [16:29.790] Well, it was much worse than anybody thought.
+- [16:32.400] And I want to thank those pilots and all of the mechanics
+- [16:35.060] and all of the people that serviced
+- [16:37.630] and worked on the B-2 bombers,
+- [16:39.400] we just ordered a lot more of them.
+- [16:42.250] And the reason we did is they were totally incredible,
+- [16:46.050] totally invisible.
+- [16:47.290] They were stealth, nobody saw them.
+- [16:48.520] They knew they were coming, but they couldn't see them.
+- [16:51.350] And they dropped the bomb and then one of the pilots
+- [16:54.300] commander said, skedaddle, let's get the hell out of here.
+- [16:58.580] But they dropped those bombs and they loved doing it.
+- [17:01.280] They were so honored.
+- [17:02.920] They said to me when they came to the,
+- [17:04.330] I invited them all to the Oval Office,
+- [17:06.330] including the people that take care of the machines
+- [17:09.240] because, you know, they flew 37 hours both ways, 37 hours
+- [17:13.190] and there wasn't a sputter from an engine.
+- [17:15.140] There wasn't a broken screw. There wasn't a, a problem.
+- [17:19.360] There wasn't a chipped piece of paint.
+- [17:21.950] It was a flawless mission.
+- [17:23.250] I want to thank General Raizin Caine
+- [17:25.330] for that and Pete Hegseth for that.
+- [17:28.370] But it was an unbelievable event.
+- [17:29.960] We have a country that's so respected again,
+- [17:32.700] but when the pilots came to see me
+- [17:34.980] and I gave them a medal,
+- [17:36.480] all of them, there were a lot of handsome people.
+- [17:39.830] They looked like Tom Cruise actually.
+- [17:41.320] It was very good casting. But I liked Tom Cruise.
+- [17:44.630] The last of our movie stars probably.
+- [17:47.460] But although we're honoring Sylvester Stallone
+- [17:50.230] a little while at the Kennedy Center,
+- [17:51.800] so I'm going to put him in that same category.
+- [17:54.360] We have Sylvester Stallone and Tom Cruise.
+- [17:57.170] But I will tell you that they said,
+- [17:59.540] "For 22 years, sir,
+- [18:02.420] our predecessors and us wanted to make this attack.
+- [18:06.280] 22 years, they wanted to make this attack
+- [18:09.200] and they practiced it three times a year for 22 years.
+- [18:12.020] And no president gave them the approval to do it
+- [18:14.600] until you came along. Sir, we want to thank you."
+- [18:16.610] And I said, "Did you really enjoy it?"
+- [18:19.650] They said, "Sir, we loved it. We loved it."
+- [18:22.780] And these are brave men.
+- [18:24.070] These are from a different place
+- [18:26.940] than some of the people I know who aren't courageous.
+- [18:30.120] We have a lot of people that aren't courageous.
+- [18:31.870] These people were amazing at the job they did.
+- [18:33.800] So with that,
+- [18:35.000] I'm going to ask Lieutenant Colonel Charlie Rockwood,
+- [18:39.110] who's a highly respected young man to speak to you.
+- [18:43.860] And if you have any questions, I'll answer them.
+- [18:45.730] Unlike Biden, he didn't take questions,
+- [18:47.990] but I take all the questions you want,
+- [18:49.550] you can ask me any damn question you want.
+- [18:52.500] And then we go and have a great Thanksgiving.
+- [18:55.700] Because I don't know about you,
+- [18:57.080] you probably had your dinner already,
+- [18:58.670] but I didn't, and I know exactly what I'm going to have, turkey.
+- [19:03.170] Okay? (Laughs) I believe it's Turkey.
+- [19:05.660] So Lieutenant Colonel, if you would, you take over.
+- [19:09.140] Go ahead.
+- [19:10.350] Lieutenant Rockwood: Yes sir. We're going to pass it over
+- [19:11.580] to Major General David Gardner from the United States Army.
+- [19:16.430] Major General Gardner: Happy Thanksgiving.
+- [19:17.720] President Trump, this is Major General Dave Gardner,
+- [19:20.660] the commander of the 101st Airborne Division
+- [19:22.560] and your Joint Task Force - Southern Border.
+- [19:25.570] I appreciate you saying I was tough.
+- [19:27.150] Everyone cheered.
+- [19:28.380] I assume that means they agreed with you.
+- [19:30.730] Um, we are headquartered in Arizona.
+- [19:33.620] The service members with me today represent over 10,000,
+- [19:37.700] deployed along the 2,000 miles of our border
+- [19:40.670] from San Diego to the Gulf of America.
+- [19:43.130] We support customs and border protection, US Border Patrol.
+- [19:47.170] And as you said, Mr. President,
+- [19:48.880] illegal aliens entering our country
+- [19:51.100] is at a historic low thanks to our collective efforts.
+- [19:55.340] On this behind me, you may be able to see
+- [19:57.390] some of the images of us patrolling,
+- [19:59.660] reinforcing the border wall.
+- [20:01.570] And we're doing that 24 hours a day,
+- [20:03.520] seven days a week, including today, Thanksgiving.
+- [20:07.230] Our, our soldiers, marines, sailors,
+- [20:10.120] airmen, guardians and coast guardsmen
+- [20:13.080] were able to have fantastic Thanksgiving meals
+- [20:16.210] and engage in traditional football games
+- [20:17.660] against each other.
+- [20:18.900] We're doing well.
+- [20:20.240] We all appreciate you taking some time from your family
+- [20:23.250] to speak with us today and thank you for your support,
+- [20:25.810] Mr. President and happy Thanksgiving.
+- [20:28.810] The President: Well, David, thank you very much.
+- [20:30.190] And one thing you said in the question or statement,
+- [20:34.030] probably I like a statement even better than a question,
+- [20:36.520] but I like that because you appreciate
+- [20:38.200] what we're all doing together. We're partners.
+- [20:40.670] But you said the Gulf of America.
+- [20:43.520] And there's a thing that for actually 350 years,
+- [20:47.520] 100 years older than us, Mexico, it was called Gulf of Mexico.
+- [20:52.580] And I would say to myself,
+- [20:53.960] why are we calling it Gulf of Mexico
+- [20:57.400] when we have 92 percent of the frontage and they have --
+- [20:59.870] I'm a real estate person at heart
+- [21:02.440] and they have 8 percent.
+- [21:04.340] And I made that change and it was amazing.
+- [21:06.160] It took literally a matter of hours and it was done.
+- [21:10.690] And nobody even, very rarely did they complain.
+- [21:12.980] We beat AP, Associated Press, very badly in a lawsuit.
+- [21:16.770] You know, they tried to get it stopped
+- [21:18.910] because they're not good Americans.
+- [21:20.900] I mean, who would want that stopped?
+- [21:23.160] But we beat them.
+- [21:24.360] As you saw, we beat them very badly in a lawsuit.
+- [21:27.000] But other than that, I mean, we had no complaints
+- [21:28.890] and everybody's happy with it, except Mexico.
+- [21:30.890] I wouldn't say they're thrilled,
+- [21:32.450] but they'll get, they'll get over it.
+- [21:34.540] But we now have the Gulf of America,
+- [21:36.800] David, the Gulf of -- ain't that great?
+- [21:39.410] And I'm very proud of it every time I see it.
+- [21:41.310] And now, it's spoken of routinely.
+- [21:42.680] I saw it before, there was some event
+- [21:44.220] taking place down by Louisiana and they said,
+- [21:47.830] "Uh, we're here at the Gulf of America."
+- [21:49.590] And they're just talking about it like routinely now.
+- [21:52.250] They're not saying like Gulf of America and smiling,
+- [21:54.460] it's just, just routine.
+- [21:55.720] It's called now the Gulf of America.
+- [21:57.150] So I'm actually very glad you brought it up.
+- [21:59.680] That's another one of our many achievements.
+- [22:01.900] So thank you very much. Appreciate it.
+- [22:05.020] Major General Gardner: Yes, sir. Thank you, Mr. President.
+- [22:06.480] The President: Great job. Please.
+- [22:08.120] Lieutenant Rockwood: Sir, before we go on,
+- [22:09.370] do you have any questions for the President?
+- [22:15.400] Sergeant Major Anderson: Yes, Mr. President,
+- [22:16.600] this is Sergeant Major Anderson. I do have one question, sir.
+- [22:19.360] The President: Yes, sir.
+- [22:20.850] Sergeant Major Anderson: If you were to place a wager
+- [22:22.610] between the Army and Navy football game
+- [22:25.500] who would you bet your money on, sir?
+- [22:27.910] The President: You know, David, I think you should dock him.
+- [22:29.650] That's a -- he'll get me in so much trouble.
+- [22:33.920] But I'll tell you what I will do.
+- [22:35.230] I'll be going, you know, you have one of those teams
+- [22:37.510] is having a, a spectacular year,
+- [22:39.450] and one of them, they're both doing well,
+- [22:41.870] but I'll be at the game, and I'm going to let you know
+- [22:44.830] right after the game who's going to win.
+- [22:47.840] It's going to be a good game and you're going to be watching it.
+- [22:50.410] I love it. I --
+- [22:51.920] That's a place where we get a lot of cheers where we go in.
+- [22:54.350] You know, we got, we won the military vote
+- [22:56.790] in the largest number ever gotten by a president by far,
+- [23:00.570] despite the lies that they said about me.
+- [23:02.490] You know, they make up stories of lies,
+- [23:03.910] they're disgusting people. But we won the military
+- [23:05.300] by the biggest vote in the history of our election.
+- [23:06.580] So I like the military, but I like the Navy
+- [23:07.830] and I like the Army a lot. And I'm going to be at the game.
+- [23:09.080] And, um, I don't know if you're going to be there,
+- [23:10.280] you're pretty far away, but we'll be thinking about you
+- [23:11.490] and I'll be thinking about that wise --
+- [23:12.420] But we won the military by the biggest vote
+- [23:13.630] in the history of our election. So I like the military,
+- [23:14.830] but I like the Navy and I like the Army a lot.
+- [23:16.070] And I'm going to be at the game.
+- [23:17.280] And, um, I don't know if you're going to be there.
+- [23:18.850] You're pretty far away, but we'll be thinking about you,
+- [23:21.590] and I'll be thinking about that wise guy question
+- [23:23.560] you just asked me. Thank you very much. Thank you.
+- [23:25.860] Lieutenant Rockwood: All right, sir, with that,
+- [23:27.200] we're going to go over to Major Ross Gilchrist
+- [23:29.360] from United States Marine Corps.
+- [23:33.490] Major Ross Gilchrist: Good evening, Mr. President.
+- [23:34.830] The Marines and Sailors in this room
+- [23:36.390] from Battalion Landing Team 3/6 are ready, capable,
+- [23:39.490] and lethal to support readiness and lethality
+- [23:42.610] in support of Operation Southern Spear.
+- [23:45.110] We're here in Camp Santiago, Puerto Rico,
+- [23:47.070] conducting sustainment training, and recently,
+- [23:49.570] we conducted a mobile training team,
+- [23:52.030] employing first-person-view attack drones,
+- [23:54.810] conducting two-day strikes, and the first ever three-night
+- [23:58.130] strikes in the history of the Department of War.
+- [24:01.430] This represents a milestone in our combat lethality,
+- [24:04.370] increasing the capability of the Marine Corps
+- [24:06.300] and the joint service.
+- [24:09.190] Soon we're going to prepare to support counter-narcotics
+- [24:11.980] operations in the ground, maritime, and air domains,
+- [24:15.920] and respond to crisis and contingency operations
+- [24:18.710] to provide you options, Mr. President,
+- [24:20.610] in support of national security objectives
+- [24:23.090] to protect the homeland.
+- [24:25.100] Marines and Sailors of BLT 3/6, the Hellhounds, are ready.
+- [24:30.010] We're the first to fight and at the tip of the spear,
+- [24:32.600] as an expeditionary force in readiness.
+- [24:35.180] Thank you for your support, Mr. President.
+- [24:37.220] Semper fidelis. Happy Thanksgiving.
+- [24:39.270] The President: Well, thank you, Ross.
+- [24:40.530] And you people are just amazing. You do a fantastic --
+- [24:42.980] I knew every move and every single thing you said.
+- [24:45.760] I know exactly what you did and who did it,
+- [24:47.700] and I want to just thank you. You were amazing.
+- [24:50.130] And Border Patrol and all of the people here,
+- [24:54.100] eh, Border Patrol, every single one of them,
+- [24:55.930] these are great people.
+- [24:57.190] ICE, you know, ICE gets not the credit they deserve.
+- [25:00.580] They are unbelievable, tough, smart,
+- [25:03.120] and they're unbelievable Patriots.
+- [25:05.060] So, Ross, thank you very much. You really have done a-
+- [25:06.790] Major Ross Gilchrist: Thank you, Mr. President.
+- [25:08.060] The President: Great job. We appreciate.
+- [25:09.300] We love working with you. Thank you.
+- [25:10.680] Major Ross Gilchrist: Thank you, Mr. President.
+- [25:12.060] Lieutenant Rockwood: Before we go over to the Navy,
+- [25:13.350] do you have any questions for the President?
+- [25:15.790] Major Ross Gilchrist: Anybody have any questions?
+- [25:17.050] Chris Farricker: Good afternoon, sir.
+- [25:18.260] The only proper response to the colonel from
+- [25:20.280] (inaudible) is go Navy beat Army.
+- [25:21.910] The President: Yeah. Okay, I got to remember that.
+- [25:23.820] (Laughs) Thank you very much.
+- [25:25.110] They're going to have a great game.
+- [25:26.430] Thank you very much.
+- [25:27.690] Lieutenant Rockwood: All right, sir,
+- [25:28.560] with that we're going to move over
+- [25:29.790] to Captain Chris Farrickey --
+- [25:31.000] Farricker from the United States Navy.
+- [25:32.720] The President: Okay.
+- [25:34.010] Captain Farricker: Yes, sir. Uh, sir, on board here,
+- [25:36.190] Iwo Jima proud commander
+- [25:38.180] of the USC Iwo Jima Amphibious Readiness Group
+- [25:40.760] along with the 22nd new expeditionary.
+- [25:42.670] You already met my one brother from Central Casting,
+- [25:45.120] Colonel Tom Tremble and my other brother
+- [25:47.050] is Colonel Rick "Shooter" Haley.
+- [25:49.400] Uh, behind me is so a few of the men and women
+- [25:52.640] who comprise the 10,000 Sailors and Marines of our Iwo ARG team,
+- [25:58.020] who are currently conducting maritime patrols
+- [25:59.860] against narcos in the Caribbean, in defense of the homeland.
+- [26:04.080] Rick Haley: Yes, sir, as you know that we have also,
+- [26:06.490] besides the missions that you know about, sir,
+- [26:08.700] we also reinforce the embassy in Haiti.
+- [26:11.480] We're getting engaged on a routine basis,
+- [26:13.420] both receiving fire from some of those gang members
+- [26:16.110] and returning fire, defending that embassy.
+- [26:18.830] Uh, we've also opened up operations down here in
+- [26:22.490] in the south,
+- [26:23.710] conducting Expeditionary Advanced Base Operations
+- [26:26.830] at Roosevelt Roads
+- [26:28.410] where Major Ross Gilchrist and the team
+- [26:30.840] are currently training.
+- [26:32.310] We've also done, as you mentioned Mr. President,
+- [26:36.730] humanitarian support to Jamaica.
+- [26:39.480] We're proud to be part of this Navy Marine Corps team
+- [26:41.920] and be part of the defense of the homeland, sir.
+- [26:43.920] The President: Thank you.
+- [26:45.260] Thank you very much and really great job.
+- [26:47.010] Would anybody in the --
+- [26:48.230] Rick Haley: Sir, I'd like to thank you for --
+- [26:49.530] The President: Yes, go ahead please.
+- [26:50.740] Rick Haley: -- for (inaudible)
+- [26:52.030] the First Lady came down to North Carolina last week
+- [26:55.560] and visited the Marines and Sailors at Camp Lejeune,
+- [27:00.120] and my wife, and my daughter,
+- [27:01.950] and my two sons were able to meet the First Lady
+- [27:04.490] and get a pic with her. She was really gracious,
+- [27:06.640] and we really appreciate the time
+- [27:08.410] that she spent with the, the Marines and Sailors.
+- [27:10.090] That meant a whole lot to a whole lot of people
+- [27:12.560] down in North Carolina, sir.
+- [27:13.880] The President: Well, thank you very much.
+- [27:15.170] And she had enjoyed it. And she mentioned that,
+- [27:17.210] meeting your family, and she said,
+- [27:18.990] "Those people are in good shape. They're in very good shape."
+- [27:21.580] I don't know if she's referring to me
+- [27:22.900] when she says that because I don't know.
+- [27:25.050] That could be a little slight,
+- [27:26.820] but she was very impressed with everything she saw.
+- [27:29.050] Thank you very much.
+- [27:30.430] Lieutenant Rockwood: Sir, before we go
+- [27:31.710] to the Navy Captain Farricker,
+- [27:33.120] do you guys have any questions for the President?
+- [27:35.850] Captain Farricker: I do have one selfish one, sir.
+- [27:37.300] My daughter's ninth birthday is here in a few days.
+- [27:40.630] I was wondering if I could get a happy birthday,
+- [27:42.940] Catherine from you, sir?
+- [27:44.250] The President: And her, her first name is?
+- [27:45.940] Captain Farricker: Catherine, sir.
+- [27:47.170] The President: Well, Catherine,
+- [27:48.370] you have a father who's a great hero
+- [27:49.910] and a great man and highly respected.
+- [27:52.180] Happy birthday and take good care of him.
+- [27:54.230] Thank you very much.
+- [27:55.700] Captain Farricker: Thank you, sir. Appreciate it.
+- [27:56.950] The President: Say hello to her.
+- [27:58.190] Captain Farricker: All right, sir.
+- [27:59.420] The President: Anybody, anybody back there have a question?
+- [28:01.480] (Inaudible)
+- [28:03.170] Captain Farricker: I think that's it from us here, sir.
+- [28:04.600] Again, appreciate your time and happy
+- [28:05.820] Thanksgiving to you and your family.
+- [28:07.030] Rick Haley: Happy Thanksgiving, sir.
+- [28:08.300] The President: Thank you all very much.
+- [28:09.530] Great. Have a great Thanksgiving. Thank you,
+- [28:11.730] Rick Haley: Sir, with that, we're going to go over
+- [28:13.170] to Colonel Seth Spanier from the United States Air Force.
+- [28:17.750] Colonel Spanier: Happy Thanksgiving,
+- [28:19.000] Mr. President.
+- [28:20.210] I'm Colonel Seth Spanier, 7th Bomb Wing commander.
+- [28:23.660] And here with me, I have Lieutenant Colonel
+- [28:25.530] Brian Guyette, our 28th Bomb Squadron commander,
+- [28:28.450] and Major Joseph Spada, our 28th Bomber Generation
+- [28:31.320] Squadron commander. And we're here representing
+- [28:34.370] the 4,000 men and women stationed at
+- [28:36.390] Dyess Air Force Base in Texas, employing the Mighty B-1.
+- [28:39.200] Unidentified: Good evening, sir.
+- [28:40.410] Uh, the Bomb Wing hosts multiple B-1 squadrons
+- [28:41.830] that are responsible for everything from training
+- [28:43.300] the world's best combat aviators to operational tests in addition
+- [28:44.850] to projecting strength and lethality across the globe.
+- [28:46.120] Recently the Bomb Wing's Combat Squadron
+- [28:47.360] was forward deployed to the Indo-Pacific,
+- [28:48.560] and the men and women that you see behind me were part
+- [28:49.850] of the 20th Bomb Squadron and fellow squadrons,
+- [28:51.090] um, that executed operations in the Caribbean,
+- [28:52.290] and were responsible for demonstrating
+- [28:53.510] the latent combat capability of the training squadron
+- [28:54.790] in addition to projecting credibility, um,
+- [28:56.000] into the Caribbean on behalf of the long range strike platform,
+- [28:57.580] the B-1B combat squadron
+- [28:58.810] was forward deployed to the Indo-Pacific.
+- [29:01.030] And the men and women that you see behind me
+- [29:02.950] were part of the 20th
+- [29:04.380] Bomb Squadron and fellow squadrons,
+- [29:07.500] um, that executed operations in the Caribbean,
+- [29:12.580] and were responsible for demonstrating
+- [29:15.770] the latent combat capability of the training squadron
+- [29:18.130] in addition to projecting credibility, um,
+- [29:23.150] into the Caribbean on behalf of the long range strike platform,
+- [29:26.360] the B-1B.
+- [29:28.720] The President: Well, thank you.
+- [29:29.930] Unidentified: It's currently off station at Nellis Air Force
+- [29:32.410] Base, Nevada.
+- [29:33.620] The President: Thank you very much.
+- [29:34.830] And I don't know if, you know, we have more planes on order
+- [29:37.830] in terms of dollars and planes itself,
+- [29:40.810] and they have a new one, the, the F-47.
+- [29:44.080] And I didn't name that. That was named F-47.
+- [29:47.780] They think I named it. I didn't, they surprised me.
+- [29:49.850] But I hear it's stage six and it's at a level
+- [29:53.560] that nobody's ever seen before.
+- [29:55.560] But we have more planes on order right now
+- [29:58.290] and things in the works than we've ever had.
+- [30:00.790] So from the Air Force's standpoint I know
+- [30:03.780] you know exactly what's in order
+- [30:05.420] because we dealt with you and what you like.
+- [30:07.990] But we've never had so much,
+- [30:10.490] so many planes being built at one time
+- [30:12.430] and we're reinvigorating everything.
+- [30:16.300] I know the F-35s been very good
+- [30:18.910] and we're working on some maintenance issues
+- [30:21.670] to get some of them back sooner, as you know.
+- [30:24.980] Because some of them are out,
+- [30:26.300] and rather than having them sit there, we're getting them fixed.
+- [30:29.520] Should have happened a long time ago.
+- [30:31.790] But we've never been in the position
+- [30:33.700] where we've ordered so many,
+- [30:35.360] and I think the Air Force has to be very happy about that.
+- [30:40.460] Unidentified: Yes, sir. Absolutely.
+- [30:41.710] The President: Good, thank you. And if you have any questions,
+- [30:43.560] please go ahead, from your group.
+- [30:47.590] Senior Airman Laura: Good, good evening, Mr. President,
+- [30:50.440] and happy Thanksgiving. The President: Thank you.
+- [30:51.880] Senior Airman Laura: I'm Senior Airman Laura,
+- [30:53.150] I'm an Intel Analyst at the 20th Bomb Squadron.
+- [30:55.400] Uh, my question for you today
+- [30:56.790] is what is the most memorable obstacle or hardship
+- [30:59.770] that you've encountered in your life
+- [31:01.040] and how did this shape you to be the leader you are today?
+- [31:05.350] The President: Well, that's an interesting question.
+- [31:08.230] But, I'll tell you, you know, in terms of obstacles
+- [31:11.770] would be the weaponization of government
+- [31:15.160] by the previous administration.
+- [31:17.560] That was probably the biggest obstacle.
+- [31:19.160] I ran, I won by a lot.
+- [31:21.490] I ran a second time, I won by a lot.
+- [31:24.440] And I ran a third time and it was too big to rig.
+- [31:27.790] But the biggest was that they went
+- [31:29.800] after a lot of great Americans.
+- [31:31.840] I was one of them.
+- [31:33.060] And I would say weaponization by my opponent
+- [31:38.520] was a disgrace to our nation.
+- [31:40.160] And I would say it was the most difficult time.
+- [31:42.820] And we won.
+- [31:44.160] And now I'm, you know, today I'm in Florida,
+- [31:46.980] but generally I'm in the White House,
+- [31:48.820] I'm in the Oval Office. So I look around and I say,
+- [31:50.780] "Oh, well. Couldn't have been that bad."
+- [31:52.540] But it was, it was a disgrace to our nation
+- [31:55.340] and it should never be allowed to happen again.
+- [31:57.280] And it's being looked at very strongly.
+- [32:00.020] But it's a very interesting question.
+- [32:01.540] I don't know that anybody's ever asked me the question that way,
+- [32:04.570] but if you did -- I would say it's the --
+- [32:06.500] it was the weaponization and illegal weaponization
+- [32:10.290] that they used where our government
+- [32:13.280] attacked the President
+- [32:15.960] and the former President of the United States of America.
+- [32:19.490] And I was fighting for you, not just for myself.
+- [32:21.260] I was fighting for you.
+- [32:22.480] I was fighting for everyone that I'm looking,
+- [32:24.580] all of those incredible patriots that I'm looking at,
+- [32:27.110] but the millions of people that are listening right now
+- [32:30.510] and the hundreds of millions of people in our country.
+- [32:32.890] And we fought and we won. But they're bad people.
+- [32:36.480] So, thank you. That's a great question.
+- [32:38.160] Thank you very much.
+- [32:39.450] Senior Airman Laura: Thank you, sir.
+- [32:40.710] Unidentified: Sir, one last one. If you could throw up
+- [32:43.840] (inaudible)
+- [32:45.040] to the Mohawks, that's our squadron motto, "Chop."
+- [32:47.540] The President: Oh, good. I love it. Chop.
+- [32:50.040] So we're not allowed to do that anymore.
+- [32:52.200] You know, we're not allowed.
+- [32:53.750] You're not allowed to use the word Indian anymore.
+- [32:55.660] The only one that wants you to are the Indians.
+- [32:57.590] All right.
+- [32:59.490] I don't think you should ever change.
+- [33:00.860] I will never tell you to change. All right? It's great.
+- [33:03.820] And, and they're very proud of it, too, by the way.
+- [33:06.090] Thank you all very much. Thank you.
+- [33:07.690] Unidentified: Sir, we're going to turn over
+- [33:09.070] to Captain Ryan Weber from the Space Force.
+- [33:11.420] The President: Okay.
+- [33:13.520] Captain Weber: Good evening, Mr. President.
+- [33:14.990] My name is Captain Ryan Weber and I'm the commander
+- [33:17.220] of the 18th Space Defense Combat Squadron.
+- [33:20.150] Uh, today with me, I have Delta Crew.
+- [33:22.570] Uh, they're working the holiday swing shift right now
+- [33:25.620] which is led by Lieutenant Cunningham and Sergeant Jackson.
+- [33:28.330] We also have five orbital analysts with us today.
+- [33:31.870] Our mission here at the 18th is space domain awareness
+- [33:35.740] tracking everything to, in, and from space,
+- [33:38.860] whether that's a launch satellite reentry
+- [33:41.260] or maintaining the cataloged 48,000 objects in space.
+- [33:46.440] It's been a historical year for 2025.
+- [33:49.330] Uh, we've had over 273 space launches to this year,
+- [33:54.440] 174 of those being from the US. Uh, and we're just grateful
+- [33:59.520] for our newly operationally accepted system
+- [34:02.610] to lead the way for the world in space domain awareness.
+- [34:06.790] The President: Well, I know all about it
+- [34:08.070] because that was my baby, Space Force.
+- [34:09.550] Captain Weber: Yes sir.
+- [34:10.840] The President: So I can't say I have any favorites
+- [34:12.200] because I don't want to do that.
+- [34:13.760] But I'll tell you, I have a, a real love for Space Force.
+- [34:17.640] And as you know I did that.
+- [34:19.770] We, we put some very good people in
+- [34:22.170] because we were losing to China and Russia substantially.
+- [34:26.040] And now we're leading China and Russia substantially.
+- [34:29.560] And as you know, Biden came in,
+- [34:30.760] he wanted to terminate Space Force.
+- [34:32.460] He thought it was funny. He thought it was so funny.
+- [34:35.350] Uh, the military didn't think it was funny,
+- [34:37.250] and he was met with a great force.
+- [34:39.000] (Laughs) And the force said,
+- [34:40.260] "You're not doing any , you're not doing this."
+- [34:42.610] But I think it's going to go down
+- [34:44.520] as one of our most important you know,
+- [34:46.420] as, as technology goes,
+- [34:49.090] the things we're doing now in space are unbelievable,
+- [34:51.870] and I think it'll be one of the truly great things
+- [34:54.490] that this administration did.
+- [34:55.940] I did it in my last term.
+- [34:58.080] But we really had great people there and we've,
+- [35:00.800] we're dominating space now. We're dominating it.
+- [35:03.120] We were losing it to both China and Russia at the time.
+- [35:06.060] We had no space source.
+- [35:08.270] And so we created this incredible group of people.
+- [35:11.980] They came together and they created something very special.
+- [35:15.110] And I'm very proud of all of you for being involved.
+- [35:18.660] It's going to be one of the most important things
+- [35:21.260] I think that I've ever done. Thank you.
+- [35:24.130] Unidentified: Ryan, before we move
+- [35:25.330] on to the Coast Guard, does anybody from your team
+- [35:27.260] have a question for the President?
+- [35:30.940] Captain Weber: The one question I would have, sir,
+- [35:32.320] is what do you see for the future for the Space Force?
+- [35:35.480] How do you expect it to grow as we build out as a branch?
+- [35:38.930] The President: Yeah. I just think it's unlimited.
+- [35:40.780] I think it's, you know, in terms of technology,
+- [35:42.870] in terms of , you know,
+- [35:44.130] the others have been here for a long time.
+- [35:46.910] And Air Force has been,
+- [35:48.380] and I could have left it in the Air Force,
+- [35:50.730] but I really thought it had, it should have its own identity,
+- [35:53.670] and it works closely with the Air Force.
+- [35:55.270] But you wouldn't have had your own identity
+- [35:58.110] and I don't think it was working doing it that way.
+- [36:00.330] So we created , because of the importance,
+- [36:01.970] we created Space Force.
+- [36:04.090] And I, I think it's got unlimited growth potential
+- [36:07.910] and maybe at a faster level than others,
+- [36:09.740] because they have been here.
+- [36:10.960] You know, they've seeded and they're doing great.
+- [36:13.520] But you're seedling.
+- [36:16.290] You're, you know, you're just at the beginning of your powers.
+- [36:19.920] Uh, it's going to be unlimited future.
+- [36:23.340] Really, I feel that , and I think you agree with that,
+- [36:25.910] but it's going to be unlimited future,
+- [36:27.510] and thank you all for being involved.
+- [36:28.950] Very proud of you. Thank you.
+- [36:31.390] Unidentified: Thank you, sir. On behalf of the 18th,
+- [36:33.110] thank you for your support and happy Thanksgiving.
+- [36:35.560] The President: Well, you have my support totally and you too.
+- [36:37.760] Happy Thanksgiving. Thank you very much.
+- [36:39.940] Unidentified: Sir, to round it out,
+- [36:41.230] we're going to go over to Lieutenant Commander Alex Wild,
+- [36:44.220] the United States Coast Guard.
+- [36:48.310] Commander Wild: Good evening, Mr. President.
+- [36:49.640] Lieutenant Commander Alex Wild,
+- [36:50.850] commanding officer of Coast Guard Cutter Forrest Rednour.
+- [36:53.850] We're currently patrolling the Southwest border
+- [36:56.270] off of the coast of California in support of Operation Border
+- [36:59.430] Trident to protect the maritime boundary.
+- [37:02.210] With the crew of 25, our fast response cutter
+- [37:04.830] has contributed to mission success
+- [37:06.600] and securing the border, as you mentioned.
+- [37:08.920] Last month alone, we had three at-sea
+- [37:10.910] interdictions and apprehended 45 illegal aliens.
+- [37:14.820] I'd like to recognize, to my right,
+- [37:16.430] the boarding team and pursuit team
+- [37:18.030] from our most recent interdiction.
+- [37:20.080] To my right, Lieutenant Junior Grade Fuller.
+- [37:23.170] Boatswain's Mate First Class Garcia Cosby.
+- [37:26.430] Electrician's Mate First Class Riza.
+- [37:28.740] Boatswain's Mate Third Class Gerhards,
+- [37:30.790] Machinery Technician Second Class Amano.
+- [37:35.860] We've had a real nice day, as you said.
+- [37:37.400] It's been pretty quiet on the water, to be honest.
+- [37:39.450] Uh, our two culinary specialists gave us a real treat today
+- [37:42.100] for Thanksgiving by smoking two turkeys.
+- [37:44.360] And this evening,
+- [37:45.570] we'll be trying to have some trivia here on the Mustang.
+- [37:48.960] We're truly grateful for this opportunity
+- [37:50.530] to speak with you today.
+- [37:52.020] The President: Thank you very much. Thank you.
+- [37:53.490] You know, I, I've loved the Coast Guard for a long time,
+- [37:56.630] and more than anything else, all the lives you saved in Texas
+- [38:00.460] and various places,
+- [38:02.230] all of these places that get hit by the hurricanes
+- [38:05.860] and all of the different , you know,
+- [38:07.570] the storms, the big storms, the big water storms,
+- [38:10.000] as they call them, but mostly hurricanes.
+- [38:12.230] The jobs you do, the way you go into those seas,
+- [38:14.550] I wouldn't want to do it.
+- [38:15.970] You want to do it, but I wouldn't want to do it.
+- [38:18.370] And I just want to thank you for that.
+- [38:20.920] Uh, as you know, we've ordered a lot of Coast Guard cutters,
+- [38:23.480] brand new, beautiful, the best machines in the world,
+- [38:26.190] the fastest, the best, the best maneuverability.
+- [38:28.590] They tell me, I said, "How's the speed and the maneuverability?"
+- [38:32.790] I'm a looks person. I wanted the hull to be perfect.
+- [38:35.580] I, you know, I sort of redesigned
+- [38:37.270] the hull a little bit, the hulls,
+- [38:39.800] but we ordered a lot and we're ordering icebreakers
+- [38:43.630] too that you're going to be in charge of.
+- [38:45.100] We have 11 of them being built right now.
+- [38:47.360] We had none.
+- [38:48.630] You know, we only have one in the whole country.
+- [38:51.490] Russia has 48, and we have one, and that's just ridiculous.
+- [38:57.120] So we're doing them in conjunction with Finland
+- [39:00.730] and some other people,
+- [39:02.170] and they make the big , you know,
+- [39:03.510] they're, they're, they're known as, uh , the people that do,
+- [39:05.950] I guess, 90 percent of the icebreakers,
+- [39:07.760] so they have a great expertise.
+- [39:09.910] But we're doing them also as a joint venture
+- [39:11.800] where they're going to be built in this country,
+- [39:13.460] and they've already started.
+- [39:15.050] So we've ordered 11. You were going to build one,
+- [39:19.220] and the one was going to cost almost,
+- [39:21.170] almost as much as the 11,
+- [39:23.630] and every one of the 11 is much better than the one.
+- [39:27.250] So that didn't sound like a good deal,
+- [39:28.830] so you know exactly what you're getting.
+- [39:30.230] You're getting the best icebreakers in the world,
+- [39:32.300] the top of the line,
+- [39:33.700] and they're going to be delivered very soon, actually.
+- [39:35.840] They're moving along very quickly.
+- [39:37.200] They're already , they're building them.
+- [39:39.570] And you'll end up with 11, but before we even start that,
+- [39:42.720] we're going to end up doing another 11 pretty soon.
+- [39:45.250] So you're going to have a lot of icebreakers pretty soon,
+- [39:47.170] which is very important,
+- [39:48.450] I assume , is that important for the Coast Guard?
+- [39:50.750] Because if it's not, I'll cancel the order immediately.
+- [39:53.720] Commander Wild: Very important. Yes.
+- [39:54.980] The President: Okay, good. Good.
+- [39:56.180] Then I won't cancel the order. That's good.
+- [39:58.320] You're going to have the best icebreakers there are,
+- [40:00.560] so it's really great.
+- [40:01.780] Very important to us. Thank you. Any other questions?
+- [40:06.060] Officer Riza: Yes, Mr. President.
+- [40:07.350] I'm Petty Officer Riza.
+- [40:09.170] First question is, what is your true golf handicap?
+- [40:12.020] Not according to fake news.
+- [40:13.670] And are you and President Biden going to play that golf match?
+- [40:17.270] The President: I'd love to.
+- [40:18.520] I mean, I've invited him, but he doesn't want to show up.
+- [40:22.480] Look, I know a lot about golf. I've won 38 club championships
+- [40:27.070] and I don't get to practice much.
+- [40:29.010] I won one last year.
+- [40:30.310] I won a club championship at a big club
+- [40:32.390] beating a 27-year-old kid.
+- [40:34.010] I said, "You know, I'm decades older than you,"
+- [40:38.190] but I said, "The fairway doesn't know how old you are
+- [40:40.320] as you walk up the middle," and he's in the rough.
+- [40:42.930] And I've been a good golfer over the years.
+- [40:45.470] I won. When you win,
+- [40:46.710] you know, club championships are our majors, you know that?
+- [40:49.420] Most people can't play in them, they won't.
+- [40:51.250] We're talking about no strokes or anything else.
+- [40:53.840] So I'm a very low handicap
+- [40:55.480] and I've won 38 of them legitimately.
+- [40:58.490] Everyone, legitimately.
+- [41:00.580] It has to be legitimate because you have a lot of people
+- [41:02.510] following you during club championships, as you know.
+- [41:05.390] So I guess I'm very I got to be right around scratch or better.
+- [41:09.770] I beat a plus three.
+- [41:12.280] That's three better, three below par.
+- [41:14.200] You know, if you look at it for those that don't know
+- [41:16.710] in the finals of the club championship last year,
+- [41:19.290] with all I was going through and with no practice,
+- [41:22.690] so I'm, I'm a good golfer.
+- [41:25.080] Yeah, I would have to say that.
+- [41:26.320] I want to be honest, I have to be honest.
+- [41:28.500] I played with Bryson DeChambeau, and he's, you know,
+- [41:31.450] the breaking 50 and we had a good time.
+- [41:35.240] But a lot of people thought that was,
+- [41:37.980] that was a great ratings hit and we had a lot of fun.
+- [41:41.660] But golf is great.
+- [41:43.290] Sort of, it's sort of a microcosm of life
+- [41:46.370] and you have a lot of people talk,
+- [41:47.890] but they can't play like Biden.
+- [41:49.840] Biden can't hit a ball 30 yards, I'm telling you.
+- [41:52.460] I looked at his swing. He cannot hit a ball 30 yards.
+- [41:56.220] He said he was a six handicapped.
+- [41:57.690] He said that was the only thing
+- [41:59.000] that made me angry during the debate with him.
+- [42:01.550] He said he was a six. I said, "You're not a six."
+- [42:03.740] And he said, "Well, I'm an eight."
+- [42:05.150] I said, "That was quick." I picked up two.
+- [42:07.440] But he's not a hundred. He's not a hundred.
+- [42:10.360] So but it's a great game
+- [42:12.810] and I hope you guys get to play a little bit of it.
+- [42:15.000] But frankly, I'm more excited about the icebreakers
+- [42:17.420] if you want to know the truth.
+- [42:18.970] So anyway, I want to thank you all. Great job.
+- [42:21.690] Coast Guard, great job. We're proud of you.
+- [42:23.340] You're going to have the best equipment in the world,
+- [42:26.090] and it's coming rapidly. Thank you very much. Thank you.
+- [42:29.250] Officer Riza: Thank you, Mr. President.
+- [42:30.510] Unidentified: So that concludes the presentations.
+- [42:32.450] If you have any closing remarks that'll be it.
+- [42:34.860] The President: Well, I do have closing remarks.
+- [42:36.400] I just want to say how proud I am.
+- [42:38.090] You look at the people that we just dealt with.
+- [42:40.100] These are the top people in our country.
+- [42:42.320] These are just beautiful people inside and out.
+- [42:45.500] They're brave, they're smart, they're brilliant.
+- [42:48.020] And I just want to say, it's an honor to be with you.
+- [42:50.620] It's an honor to be working with you.
+- [42:52.090] We have the strongest country we've ever had.
+- [42:54.810] We make the best equipment in the world.
+- [42:56.570] We have the best military in the world.
+- [42:58.710] Nobody can even come close and everybody knows it.
+- [43:01.230] And they respect us now again. A year ago, two years ago,
+- [43:04.860] four years ago, three years ago, they didn't respect us at all.
+- [43:07.930] They laughed at us. Nobody's laughing anymore.
+- [43:11.090] So I just want to thank you all very much.
+- [43:12.780] I'm very proud of you. Thank you. Thank you.
+- [43:20.030] Thank you very much. Okay.
+- [43:31.520] The Press: A question about this tragic shooting in Washington,
+- [43:34.440] D.C.
+- [43:35.660] U.S. officials say that the suspect worked very closely
+- [43:39.120] with the CIA in Afghanistan for years,
+- [43:41.800] and he was vetted and the vetting came up clean.
+- [43:44.610] The President: He went -- he went cuckoo.
+- [43:46.070] I mean, he went nuts. And that happens too.
+- [43:48.740] It happens too often with these people.
+- [43:50.500] You see them, but look, this is how they come in.
+- [43:53.840] This is how they're --
+- [43:55.160] they're standing on top of each other and that's an airplane.
+- [43:58.680] There was no vetting or anything.
+- [43:59.900] They came in un-vetted.
+- [44:01.750] And we have a lot of others in this country.
+- [44:03.380] We're going to get them out.
+- [44:05.180] But they go cuckoo. Something happens to them.
+- [44:07.700] The Press: Your DOJ IG just reported this year
+- [44:10.100] that there was thorough vetting by DHS
+- [44:12.900] and by the FBI of these Afghans who were brought into the U.S.
+- [44:17.240] So why do you blame the Biden administration --
+- [44:19.110] The President: Because they let them in.
+- [44:20.310] The Press: (Inaudible)
+- [44:21.510] The President: Are you stupid? Are you a stupid person?
+- [44:23.730] Because they came into, on a plane along
+- [44:26.520] with thousands of other people that shouldn't be here.
+- [44:29.640] And you're just asking questions because you're a stupid person.
+- [44:32.940] And we, there's a law passed
+- [44:35.220] that it's almost impossible not to, to get them out.
+- [44:38.040] You can't get them out once they come in.
+- [44:40.450] And they came in and they were un-vetted, they were unchecked.
+- [44:43.780] There were many of them.
+- [44:45.030] And they came in on big planes and it was disgraceful.
+- [44:48.770] And if you look, you'll see there was a law passed.
+- [44:51.230] It makes it almost impossible not to let them in,
+- [44:54.340] not to certify them, so to speak once they come in.
+- [44:58.370] And they came in and they shouldn't have come in.
+- [45:01.140] And frankly, the whole thing was a mess.
+- [45:02.980] The whole Afghanistan situation was a mess.
+- [45:06.020] We shouldn't, it should have never taken place.
+- [45:08.680] If we're going to go out and we would've gone out
+- [45:10.870] because I had everybody ready to go,
+- [45:12.490] we were going to go out with strength
+- [45:13.790] and dignity and precision, and we would've left for Bagram.
+- [45:17.290] And we would've kept Bagram, by the way,
+- [45:18.740] because of its very close relationship to China
+- [45:21.830] and where they make their missiles.
+- [45:23.900] But when you let the people come in by the thousands
+- [45:26.530] and thousands and thousands they made a terrible mistake,
+- [45:30.410] but they were incompetent. Yeah?
+- [45:31.760] The Press: Mr. President,
+- [45:33.050] thank you for having us here tonight.
+- [45:34.480] Have you spoken with Sarah and Andrew's family and --
+- [45:37.150] The President: We have a call-in in a little while,
+- [45:38.700] actually, right after this.
+- [45:40.830] Well, the family is devastated, as you can imagine.
+- [45:44.550] But we have we have spoken.
+- [45:46.880] I mean, my people have spoken with the family.
+- [45:48.640] We'll be speaking tonight or tomorrow.
+- [45:50.520] You have to give them a little,
+- [45:51.870] they just found out about their daughter, you know?
+- [45:53.560] You can't just call two seconds later.
+- [45:56.380] It's a very, very tough situation.
+- [45:58.620] She was so outstanding.
+- [45:59.960] I mean, I just heard outstanding in every single way.
+- [46:03.740] The Press: It's in the early stages, obviously,
+- [46:05.200] but do you plan to attend Sarah's funeral?
+- [46:08.430] The President: I haven't thought about it yet,
+- [46:09.640] but it's certainly is something I could conceive of.
+- [46:12.430] I love West Virginia. You know, I won West Virginia
+- [46:14.850] by one of the biggest margins of any president anywhere.
+- [46:20.860] And it's, you know, these are great people.
+- [46:22.430] I love the people of West Virginia.
+- [46:23.860] I love the people of our country.
+- [46:25.640] But I haven't given it any thought,
+- [46:28.720] but it sounds like something I could do, you know?
+- [46:30.600] It's very, it's very raw.
+- [46:32.030] The Press: Yeah, of course.
+- [46:33.320] The suspect does have a wife and five children
+- [46:36.750] who live in Washington. Do you plan to deport them?
+- [46:39.720] The President: The suspect has?
+- [46:40.920] The Press: The suspect.
+- [46:42.130] The President: Well, we're looking at that right now.
+- [46:43.520] We're looking at the whole situation with family.
+- [46:47.580] The tragic situation. Yeah, Jeff?
+- [46:49.810] The Press: Mr. President, are there any changes you want
+- [46:52.010] to make to improve safety for National Guardsmen
+- [46:55.220] who are being sent into these cities?
+- [46:56.840] The President: No, just I want to have more.
+- [46:59.120] We, as you know, we're sending 500 more.
+- [47:01.810] We had very little crime in Washington now for,
+- [47:04.510] you know, many months, record-setting low crime,
+- [47:07.430] and this happened,
+- [47:09.500] and I don't know how you put this on the scale of that.
+- [47:11.650] This is sort of different. This is a terrorism threat
+- [47:14.870] and this was done because they're so effective.
+- [47:17.360] If they weren't effective,
+- [47:18.580] you probably wouldn't have had this done.
+- [47:20.150] But this was done because the National Guard
+- [47:22.660] has been so effective.
+- [47:24.800] You know, you went from having a,
+- [47:26.290] a tremendous amount of crime and death,
+- [47:28.220] killing, everything else to having none.
+- [47:31.510] And this happened I assume, because it was so effective,
+- [47:35.070] and maybe this man was upset because he couldn't,
+- [47:38.790] he couldn't practice crime.
+- [47:40.130] Who knows what his motivation was?
+- [47:41.900] But what he did was horrible.
+- [47:45.790] The Press: And you've -- you've made changes
+- [47:47.220] for Afghanis' ability to apply for asylum.
+- [47:50.630] Do you blame all Afghans for this one man's --
+- [47:52.510] not mistake --
+- [47:53.890] The President: No, but we've had a lot of problems with Afghans
+- [47:56.170] because they had a lot of them coming in on these planes.
+- [47:59.120] Again, I show you this picture.
+- [48:01.040] We had a lot of them coming in on this,
+- [48:02.740] these planes that are, look at it.
+- [48:05.250] They -- there was no checking. They just poured into the plane.
+- [48:08.930] And many of these people are criminals,
+- [48:11.370] many of these people are people that shouldn't be here.
+- [48:13.790] And many of them have been gotten out.
+- [48:15.530] I mean, we've gotten out some, a lot of the people that,
+- [48:18.460] you know, we've taken a lot of them out of here.
+- [48:20.570] The Press: But many of them are here legally, right?
+- [48:22.100] The President: But they came in, yeah, I know, this deal.
+- [48:23.550] Sorry. Many are wonderful, yeah, I'm sure.
+- [48:25.260] The Press: I said, I said many are here legally though.
+- [48:26.870] What should they think in terms of their process?
+- [48:29.210] The President: Well, they can't be happy, okay?
+- [48:31.170] They can't be happy because what's taking place
+- [48:34.590] between that, if you look at Somalia,
+- [48:36.860] they're taking over Minnesota and they are,
+- [48:41.040] we got a lot of problems with the gangs,
+- [48:43.040] with all of the things taking place in Minnesota.
+- [48:45.430] We have an incompetent governor, a dope. We have a dope governor.
+- [48:50.760] They can't be happy about what's going on.
+- [48:52.630] And if you talk about the Afghans,
+- [48:55.780] you know, there's a problem because so many bad ones
+- [48:57.960] came in with, on the planes. They just walked in.
+- [49:00.350] Whoever the strongest people were physically in a way,
+- [49:03.860] but whoever the strongest they got on the planes.
+- [49:05.620] There was no check-in.
+- [49:06.850] They just swamped the planes, they took off.
+- [49:09.900] We had no idea who the -- who they were.
+- [49:12.380] Yeah, do you want to ask a question behind?
+- [49:14.720] The Press: Me? The President: Yeah.
+- [49:16.060] The Press: Hi, sir. Javier with --
+- [49:17.270] The President: Sure. Hi.
+- [49:18.550] The Press: What do the Somalians have to do
+- [49:19.920] with this Afghan guy who shot the National --
+- [49:21.970] The President: Nothing, but Somalians
+- [49:23.180] have caused a lot of trouble.
+- [49:24.430] They're ripping us off for a lot of money.
+- [49:26.100] There's a tremendous amount of money going back to Somalia.
+- [49:30.560] What the hell are we paying money to Somalia for?
+- [49:33.590] But they're ripping off our country
+- [49:35.360] at a level that few people have been able to see before.
+- [49:38.770] That's about the only thing I -- you talk about competence,
+- [49:41.410] we have Ilhan Omar who does nothing
+- [49:44.680] but complain about our country and our constitution,
+- [49:47.830] and she comes from a country with practically,
+- [49:50.630] it's practically no country.
+- [49:52.750] It's devastated, it's crime-ridden,
+- [49:54.750] it's a mess, it's a disgrace,
+- [49:57.510] and we took their people at tremendous,
+- [50:00.630] we're not taking their people anymore.
+- [50:02.700] We're not taking their people.
+- [50:04.000] And we're getting a lot of their people out
+- [50:05.530] because they're nothing but trouble.
+- [50:07.060] Okay. Thank you very much, everybody. Go ahead.
+- [50:08.740] The Press: (Inaudible)
+- [50:09.950] question about this asylum claim that is being floated.
+- [50:12.590] Of course, you just detailed that this suspect was flown
+- [50:15.550] in under the Biden administration.
+- [50:17.760] But was he granted asylum under your administration?
+- [50:20.910] The President: When it comes to asylum,
+- [50:22.420] when they're flown in, it's very hard to get them out.
+- [50:24.330] No matter how you want to do it, it's very hard to get them out.
+- [50:27.370] But we're going to be getting them all out now.
+- [50:29.430] Thank you very much.
+- [50:33.640] Here, take that picture if you want it, press.
+- [50:35.320] The Press: Mr. President, what are you most thankful
+- [50:36.720] for this Thanksgiving?
+- [50:38.220] The President: The fact that America's great again.
+- [50:42.270] We made America great again. America was a dead country.
+- [50:45.310] We've made America great again. Here you go.

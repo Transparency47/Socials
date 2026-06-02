@@ -1,0 +1,190 @@
+<!-- source: https://www.youtube.com/watch?v=XcJ9WUv5vno -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: XcJ9WUv5vno -->
+<!-- date_published: 2025-05-16T10:26:08+00:00 -->
+<!-- date_accessed: 2026-06-02T02:49:58.414927+00:00 -->
+
+# Transcript: President Trump Gaggles with the Press on Air Force One, May 16, 2025
+
+- [00:00.000] The President: -- wouldn't have been available to
+- [00:02.056] them except for November 5th.
+- [00:03.981] November 5th was a big day for our country.
+- [00:06.540] So I just want to thank you.
+- [00:08.080] You have great stamina also.
+- [00:09.460] We all have stamina because you needed it.
+- [00:11.320] That was a test.
+- [00:12.660] I think they were giving us a test.
+- [00:15.200] But it was amazing what they've done.
+- [00:17.940] In all three countries, you can't speak more highly.
+- [00:22.060] The job they've done is in a fairly
+- [00:24.399] short period of time is just outstanding.
+- [00:27.400] And they're great people.
+- [00:28.760] Great leaders.
+- [00:29.900] Great leaders.
+- [00:29.981] There's three great leaders.
+- [00:32.200] So it's an honor.
+- [00:32.860] Now we'll go back to D.C.
+- [00:35.680] and I have a nice grandchild
+- [00:37.655] waiting, which I'll see soon.
+- [00:40.380] But this was a fantastic moment for our country.
+- [00:42.940] I really believe that; everyone is talking about it.
+- [00:46.120] And the respect shown to our country was incredible.
+- [00:50.120] Nobody's treated like that.
+- [00:51.720] Nobody's treated well like that.
+- [00:54.580] So thank you all very much.
+- [00:56.000] Thank you very much.
+- [00:57.101] The Press: Mr. President, you arrived here with a big victory.
+- [00:59.480] Nice to see you.
+- [01:00.400] Thanks for bringing us.
+- [01:01.580] You arrived here with a big victory,
+- [01:03.270] getting Edon Alexander out, working
+- [01:04.961] directly with Hamas the last remaining American.
+- [01:08.780] Do you think the Israelis and Bibi
+- [01:11.126] Netanyahu can get his hostages out?
+- [01:13.880] The President: I don't know.
+- [01:14.440] We're going to find out pretty soon.
+- [01:15.720] We're going to know pretty soon.
+- [01:16.760] They're not in good shape,
+- [01:18.720] as you know, and different places --
+- [01:22.180] you know, it's not one place.
+- [01:23.440] It's a different place.
+- [01:24.180] And some of them are in better shape than others.
+- [01:28.380] but we'll be working with them to get them out.
+- [01:30.621] The Press: The Israelis didn't want the U.S.
+- [01:32.800] to be recognizing the new Syrian government.
+- [01:35.540] Is there a message that that --
+- [01:37.581] The President: I didn't ask them about that.
+- [01:38.940] I thought it was the right thing to do.
+- [01:40.340] I've been giving a lot of credit for doing it.
+- [01:42.521] Look, we want Syria to succeed.
+- [01:44.920] That's been a mess for 10 years
+- [01:46.943] and much longer than that.
+- [01:48.800] It would not have been --
+- [01:49.481] these were very biting.
+- [01:51.660] When you look at the sanctions,
+- [01:53.155] these were really brutal.
+- [01:55.120] And they would have --
+- [01:56.081] would say zero chance of success.
+- [01:57.980] And this way they have a chance.
+- [01:59.700] Their leader is a strong person.
+- [02:02.520] But young and a lot of energy
+- [02:04.674] and wants to do a good job.
+- [02:07.060] The Press: IDF planning to send in tens of
+- [02:09.810] thousands of more troops and expand the
+- [02:13.061] war in Gaza, especially if there
+- [02:14.963] wasn't a ceasefire while you were here.
+- [02:17.480] Do you support that?
+- [02:19.080] The President: Well, we're going to see what happens.
+- [02:20.220] I think a lot of good things are
+- [02:21.698] going to happen over the next month.
+- [02:23.820] And we're going to see --
+- [02:24.901] we help also out the Palestinians.
+- [02:26.400] You know, a lot of people are starving on Gaza.
+- [02:29.100] So we have to look at both sides.
+- [02:31.320] But we're going to do a good job.
+- [02:34.200] We're very happy with what happened with.
+- [02:36.190] -- I hope it continues and I think it will.
+- [02:38.920] But what happens with India and
+- [02:40.945] Pakistan, that was a big success.
+- [02:43.280] So if you would have seen the level of
+- [02:46.178] anger between the two, that was not a good thing, yes.
+- [02:49.861] The Press: A senior Hamas leader said that they
+- [02:51.999] might be willing to give up power and
+- [02:54.081] Egyptian proposal in order to bring peace.
+- [02:56.640] Is that a step that you're welcoming?
+- [02:59.300] The President: But we want to get the hostages back.
+- [03:00.940] I've gotten the majority, big majority back.
+- [03:04.680] But we want to get the hostages back.
+- [03:06.520] We'll see how that works out.
+- [03:08.180] The Press: Mr. President, are you putting to call Vladimir Putin?
+- [03:10.400] How do you think you can get those talks on?
+- [03:12.401] The President: I may. We have to meet. I think we'll solve it.
+- [03:16.420] Or maybe not.
+- [03:17.160] But at least we'll know.
+- [03:19.140] And if we don't solve it,
+- [03:21.380] it'll be very interesting.
+- [03:22.220] The Press: Did Austin Tice come up when
+- [03:23.603] you talked to the Syrian President?
+- [03:24.860] The President: I always talk about Austin Tice now.
+- [03:26.540] Austin Tice hasn't been seen in many, many years,
+- [03:29.021] you know that he's got a great mother
+- [03:31.261] who's just working so hard to find her boy.
+- [03:35.880] So I understand it.
+- [03:37.900] But Austin has not been seen in many, many years.
+- [03:40.581] The Press: You were joking about the
+- [03:41.789] endurance that it takes to do this.
+- [03:43.600] This was a lot to do in a short period of time.
+- [03:46.300] Conversations about endurance often focus
+- [03:48.138] now on Joe Biden and his endurance and his abilities.
+- [03:51.060] The Hur tapes right now, there's
+- [03:52.225] a lot of discussion about it.
+- [03:53.281] When will they be released?
+- [03:54.581] Will you release them?
+- [03:55.900] How's the chance to make it?
+- [03:56.741] The President: That's up to Pam and the group.
+- [03:59.440] I haven't really looked into it.
+- [04:01.280] Look, everybody understands the condition of him.
+- [04:05.880] I know people that are 89, 90,
+- [04:08.149] 92, 93 years old and are literally perfect.
+- [04:12.460] But Joe was not one of them.
+- [04:14.520] And they did a lot of hiding.
+- [04:16.580] They were really playing games.
+- [04:18.400] And you know, you can't do that.
+- [04:19.600] Our country's at stake, did you ever
+- [04:20.905] see even a thing like this?
+- [04:22.081] There's so many decisions for billions and billions.
+- [04:25.400] But then you have even more
+- [04:27.251] important decisions for life.
+- [04:30.080] And you can't have a man in that condition.
+- [04:33.040] And everybody was holding back,
+- [04:34.435] including the press, including the media.
+- [04:36.500] The President: So you're welcoming -- you're welcoming
+- [04:38.598] white South Africaners into the country as refugees.
+- [04:41.660] When you've closed off that door to a lot
+- [04:43.550] of other refugees from other parts of the world.
+- [04:45.740] What message does that send to those who say it isn't?
+- [04:48.580] Why is that fair?
+- [04:49.441] The President: Well, I think if I see people in distress,
+- [04:51.971] I don't care what color, what they
+- [04:54.006] look like, what anything, their
+- [04:56.209] size, their height, their eyes.
+- [04:58.540] I don't care.
+- [04:59.760] But I think that from all evidence,
+- [05:02.764] the farmers in South Africa are being
+- [05:05.941] treated brutally and it's been reported.
+- [05:09.640] Nobody wants to cover it.
+- [05:11.380] But they happen to be white.
+- [05:13.120] And if they were black, I'd do the exact same thing.
+- [05:16.341] And we treat people very well when
+- [05:18.183] we see there's a genocide going on.
+- [05:20.560] So if it's a genocide, that's terrible.
+- [05:23.160] And I happen to believe it could very well be.
+- [05:26.440] South Africa is out of control.
+- [05:27.880] And it's been out of control for a long time.
+- [05:29.680] And the media doesn't report it.
+- [05:31.440] And I'm not looking for reporting because,
+- [05:33.827] believe me, it's easier for me not to do anything.
+- [05:36.620] A lot of easier because I don't
+- [05:37.911] get nasty questions like that.
+- [05:39.440] But the fact is that we're about saving lives.
+- [05:42.100] And we're going to do that.
+- [05:43.081] So we've made a home and we'll make a home
+- [05:45.078] for other people that are treated badly,
+- [05:46.981] no matter what they're color.
+- [05:48.141] The Press: (talking simultaneously)
+- [05:50.700] The President: I'm not sure.
+- [05:52.820] The Press: On Iran, has the U.S.
+- [05:53.841] giving them a formal proposal,
+- [05:54.850] has Steve Whitcock handed that over?
+- [05:56.960] The President: They have a proposal, but more
+- [05:58.143] importantly, they know they have to move quickly.
+- [06:00.900] Or something bad, something bad is going to happen.
+- [06:03.080] The President: Thank you very much.
+- [06:03.780] The Press: How's Tiffany doing?
+- [06:04.340] The President: She's well-equipped.
+- [06:05.520] The Press: Congratulations.
+- [06:06.620] The President: Thank you very much.
+- [06:07.880] The Press: Travel safe, sir.
+- [06:08.960] The President: Thanks.
+- [06:11.480] Female Speaker: 2:16 to 2:23.

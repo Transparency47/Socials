@@ -1,0 +1,356 @@
+<!-- source: https://www.youtube.com/watch?v=fO9_N_2yY8M -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: fO9_N_2yY8M -->
+<!-- date_published: 2025-07-24T20:48:15+00:00 -->
+<!-- date_accessed: 2026-06-02T02:46:39.958070+00:00 -->
+
+# Transcript: President Trump Visits the Federal Reserve
+
+- [00:00.000] The President: Thank you very much, everybody,
+- [00:01.220] and it feels very good, actually,
+- [00:03.430] to be back on the construction site.
+- [00:05.090] You know, if you remember, not so long ago,
+- [00:08.210] we rebuilt the old post office into the Trump Hotel,
+- [00:12.900] and we sold it to Waldorf Astoria.
+- [00:15.950] And it was a great success,
+- [00:17.560] and we had great luck with the building.
+- [00:19.190] We did a good job.
+- [00:20.570] We built it quickly and relatively inexpensively,
+- [00:23.600] and for about $200 million.
+- [00:25.250] And that was a big hotel, a big, big project.
+- [00:29.300] But we looked around, and Tim Scott's here someplace.
+- [00:33.150] Tim, come on up. Just, you saw what we saw.
+- [00:39.000] And the big thing is to get it done.
+- [00:40.380] They have to get done. They have get it finished.
+- [00:42.890] And very importantly, we have to get interest rates
+- [00:44.920] lowered in our country.
+- [00:46.120] Our country is the hottest in the world right now,
+- [00:48.370] but the one section –
+- [00:50.060] people are pretty much unable to buy housing –
+- [00:52.140] Tim Scott: Yes.
+- [00:53.350] The President: because the interest rates are too high.
+- [00:55.200] We have no inflation. We have a lot of cash coming in.
+- [00:58.400] The tariffs have been unbelievable now.
+- [01:00.920] People that didn't even believe in tariffs are saying,
+- [01:03.410] what a great move that was.
+- [01:04.710] We have hundreds of billions of dollars coming in.
+- [01:06.820] Japan, just on one deal, is paying us $550 billion.
+- [01:11.920] And they opened up their economy.
+- [01:13.670] It's incredible, the deal.
+- [01:16.230] And they're happy, we're happy. Everybody's happy.
+- [01:18.940] But we should have the lowest interest rate of any country,
+- [01:22.420] and we don't. We should have.
+- [01:24.660] Every point is worth $365 billion.
+- [01:29.090] So we want to get the rates down,
+- [01:30.440] but we also want to get the Fed building finished.
+- [01:33.400] So I met with the contractors. We toured it with the chairman.
+- [01:37.440] And we had a very good tour.
+- [01:38.920] And we'll talk to you about it sometime.
+- [01:41.090] But Tim and I, we sort of understand what happened.
+- [01:46.010] Tim Scott: Too expensive. Bottom line is this,
+- [01:48.380] Americans deserve to become first-time homebuyers.
+- [01:50.840] President Trump has created the best economy in the world.
+- [01:53.710] The one thing that would make it better is lower interest rates.
+- [01:57.010] Full employment is even more possible.
+- [01:59.610] Wages rise faster as interest rates come down
+- [02:02.530] when your employment is at 4.1% because of your leadership.
+- [02:05.790] We have revenues coming in at record breaking.
+- [02:08.270] Maybe last month even more revenue coming in than bills
+- [02:10.880] going out, which is remarkable.
+- [02:12.740] The President: They found $25, $26 billion.
+- [02:15.270] They said, “Where did that come from?”
+- [02:17.000] Nobody had – I think that's been many,
+- [02:18.510] many decades since that happened.
+- [02:19.970] Tim Scott: I can't remember that.
+- [02:21.240] The President: They found 26 billion last month,
+- [02:23.460] and they said, “Where did they come from”.
+- [02:24.900] I said, “Why don't you try the tariffs?”
+- [02:26.430] And it was true, we took in
+- [02:28.310] – we're taking in hundreds of billions of dollars,
+- [02:30.590] and our country is doing great, and we have no inflation,
+- [02:34.220] and the numbers, the job – everything is good.
+- [02:36.860] The one thing we have to do is get housing prices down
+- [02:39.790] and the interest rates down so people can buy the house.
+- [02:42.190] Because they're all making money,
+- [02:43.530] but they can't get the interest rate down.
+- [02:45.930] We have to.
+- [02:47.290] Tim Scott: Amen.
+- [02:48.620] The President: He has been my friend for a long time.
+- [02:50.040] The Press: If you got on a number of construction sites,
+- [02:52.260] would you see the entry going on or the funds that aren’t
+- [02:54.500] [inaudible].
+- [02:55.700] The President: Well, I see a very luxurious situation
+- [02:58.940] taking place. Let's put it that way.
+- [03:01.210] And I was given a very nice tour by the head of construction.
+- [03:04.230] And, you know, look, if you look over here,
+- [03:06.390] they're trying to open up the basement.
+- [03:09.220] When you open up a basement,
+- [03:10.490] first of all, it's the worst space.
+- [03:11.830] Always a basement is the worst space in a building.
+- [03:14.460] And it's also the most expensive space to build.
+- [03:17.250] And especially here, because you have a water line.
+- [03:19.400] You know, they're going down into the water,
+- [03:21.020] so they have to build a reverse –
+- [03:22.430] what's called a reverse bathtub. The water has to be kept out.
+- [03:26.090] It's very expensive construction.
+- [03:27.510] So, it would have been good if they didn't build it.
+- [03:30.090] It would have good if didn't do certain other things.
+- [03:33.080] If you look at the kind of protection in the hole.
+- [03:36.620] Have you been able to get in the hole?
+- [03:38.130] You saw the protection of plywood.
+- [03:40.230] I mean, that was a lot of money
+- [03:42.210] just to protect it for a period of time.
+- [03:45.220] I would have done it very gingerly and easily
+- [03:47.310] and not have spent, you know,
+- [03:49.080] millions of dollars on protection.
+- [03:51.580] There are things that could have been different.
+- [03:53.260] Look, look, there's always Monday morning quarterbacks.
+- [03:55.230] I don't want to be that.
+- [03:57.080] I want to help them get it finished.
+- [03:58.520] It's been going around for years,
+- [04:00.540] and I want help them to get it finished.
+- [04:02.060] And what we really want to do, and I think I can speak for Tim,
+- [04:05.440] and I can think I speak for the entire Senate.
+- [04:08.880] We can speak to everybody, frankly,
+- [04:11.540] is we want to see interest rates come down.
+- [04:13.660] Our country is booming,
+- [04:15.390] and the interest rates is a final little notch.
+- [04:18.300] And ff you look at Europe, they've lowered 11 times.
+- [04:21.800] 11 times in a short period of time.
+- [04:24.390] We've lowered zero.
+- [04:26.620] And we know they are competition,
+- [04:28.670] although we're in the process
+- [04:30.020] of probably making a very good deal with them, too.
+- [04:33.310] They want to make a deal very badly, very badly.
+- [04:35.940] So we're making a deal.
+- [04:37.500] We just completed our deal with Indonesia.
+- [04:39.760] We just completed our deal with the Philippines.
+- [04:42.360] We're making unbelievable deals. And the money is pouring in.
+- [04:46.460] We want to get interest rates down.
+- [04:47.870] The Press: But on interest rates, at some point,
+- [04:49.560] the level of interest rates now is slowing economic growth.
+- [04:53.990] The President: Yeah, it never helps it, if it's high.
+- [04:56.450] Never helps it.
+- [04:57.690] Well, it's already as good as we're doing.
+- [05:00.370] Think of how well would be doing –
+- [05:01.740] it would be like a rocket ship.
+- [05:03.370] As good as we're doing, we do better
+- [05:05.670] if we had lower interest rates and we should.
+- [05:07.730] We're primed.
+- [05:08.950] Don't forget, without us the whole world collapses.
+- [05:11.840] So we should have the lowest interest rate
+- [05:13.720] because you know, you could talk about Switzerland.
+- [05:15.750] You can talk about wonderful countries. No debt.
+- [05:18.050] No – but without us everything collapses.
+- [05:21.090] We should have lowest interest rates.
+- [05:23.240] And if you took it down three points,
+- [05:25.520] not a little bit, but three points.
+- [05:27.900] If you got us down to one,
+- [05:29.850] we would save more than a trillion dollars,
+- [05:32.270] basically with just a paper transfer.
+- [05:35.300] You wouldn't be cutting costs of anything.
+- [05:37.100] You wouldn't be building anything.
+- [05:39.410] Just a move of the hand,
+- [05:41.600] saying, we're going to lower interest rates.
+- [05:44.280] You would save a trillion dollars a year.
+- [05:48.140] And there's nothing you can do to save that kind of money.
+- [05:51.530] The Press: [inaudible] why not?
+- [05:53.430] The President: Well, we had a little talk about it,
+- [05:55.460] and I thought it was a very productive talk.
+- [05:58.250] He'll be able to tell you at his next meeting,
+- [06:00.530] but I will say that he did say
+- [06:02.510] the country is doing really well.
+- [06:04.460] The Press: [crosstalk]
+- [06:06.080] The President: And the country is really doing well.
+- [06:07.560] The Press: Mr. President.
+- [06:08.760] The President: Yeah, please.
+- [06:10.020] The Press: How would you describe your talk with this
+- [06:12.230] [inaudible]? To say that the energy expense
+- [06:14.120] [inaudible].
+- [06:15.320] The President: No, I don't think it was tension.
+- [06:16.570] No, no, I thought we had a good meeting.
+- [06:18.490] No, there was no tension. There was no tension.
+- [06:21.320] I think he had more tension with my great senator to the right.
+- [06:24.890] He's a pretty tough cookie. He was, you might say well –
+- [06:28.620] Tim Scott: Well he is a –
+- [06:30.210] we had an honest candid conversation
+- [06:32.440] about some of the overruns at this building.
+- [06:34.720] We had it in my banking committee
+- [06:36.000] and he said we were wrong. It turns out we were right.
+- [06:38.190] Thank God President Trump and his team
+- [06:40.110] took enough time to dig into some of the details
+- [06:42.400] and the details are clear.
+- [06:44.200] We need to get this project done.
+- [06:45.670] We would like to keep it where it is or a little lower.
+- [06:48.050] But at the end of the day,
+- [06:49.480] the point is that instead of talking about interest rates,
+- [06:52.580] instead of talking about first time home buyers,
+- [06:54.550] instead talking about the heat in our economy,
+- [06:56.900] that's a good thing.
+- [06:58.230] We're talking about an overrun on the Federal Reserve building
+- [07:01.700] as opposed to the Federal Reserves objective of lowering
+- [07:04.720] and keeping our economy full.
+- [07:06.260] The Press: [inaudible].
+- [07:07.490] The President: You know, as an example,
+- [07:08.740] they built parking spots under a building next door.
+- [07:11.200] Tim Scott: Really expensive.
+- [07:12.520] The President: That's very expensive.
+- [07:13.750] When you're starting to build parking lots,
+- [07:15.340] underground parking lots. That's a very expensive thing.
+- [07:19.800] A lot of people, I know they park their car
+- [07:21.720] and they walk a block or two blocks or something.
+- [07:24.300] Tim Scott: [inaudible]
+- [07:25.500] The President: But it is a very inexpensive thing.
+- [07:27.350] That is what it is, and that's okay.
+- [07:28.880] The Press: [inaudible]. Mr. President.
+- [07:30.160] Does this posit a viable offense?
+- [07:32.150] The President: What? The Press: Sir.
+- [07:33.360] Is this project a viable offense for Jerome Powell?
+- [07:36.670] The President: Look, I would love to see it completed.
+- [07:41.550] I don't want to put that in this category.
+- [07:44.520] It's a very complex thing that could have been made simple.
+- [07:49.560] I built a great hotel.
+- [07:52.480] And the great hotel that everybody in this group
+- [07:54.870] knows very well. It's called the Old Post Office.
+- [07:57.150] And it's a much bigger project than this.
+- [07:59.590] And I spent $200 million building it.
+- [08:02.880] And it was taken down to the steel, for the most part,
+- [08:05.870] taken down, you know, you've seen it go up.
+- [08:08.250] And I built it quickly, and I built it for $200 million.
+- [08:10.670] That was a much bigger job than this, spent $200 million.
+- [08:13.800] And it's got marble bathrooms, the top fixtures,
+- [08:16.860] the best of everything, all brand new.
+- [08:19.380] So, you know, this is a very expensive job.
+- [08:21.350] I don't know, it got out of control.
+- [08:22.960] And that happens, that happens. It's a shame.
+- [08:25.250] The Press: Are you negotiating on auto tariffs.
+- [08:27.050] Your auto tariffs [inaudible].
+- [08:29.530] The President: No, I'm not negotiating on auto tariffs.
+- [08:31.310] The Press: Does the EU look to get 15% like Japan?
+- [08:33.900] The President: Well, it depends.
+- [08:35.120] Japan, what Japan did is they bought down their tariffs.
+- [08:37.760] They gave us $350 billion
+- [08:41.070] because they didn't want to pay 20.
+- [08:42.570] They were 28 percent, and they gave us five hundred
+- [08:46.110] and fifty billion dollars up front.
+- [08:48.840] Hundred percent, five hundred. We get 90. They get 10.
+- [08:51.860] 90%. They get 10. And there's no payment.
+- [08:54.810] It's not a loan or anything. It's a signing bonus, I call it.
+- [08:59.390] But they gave us five hundred fifty billion
+- [09:01.380] and took down the tariffs a little bit.
+- [09:03.270] And then they agreed to open their economy to everybody.
+- [09:06.830] This was not easy. This took, you know,
+- [09:08.700] a lot of people walked out of rooms and things.
+- [09:10.570] Sometimes they walked out rooms, went back to Japan.
+- [09:13.560] I said, “Where are they?” They went back Japan,
+- [09:15.670] and then they called and they said,
+- [09:16.990] could we make a deal?
+- [09:18.230] They came back a couple of times, this happened.
+- [09:20.280] This was, as you know, it was over a period of months.
+- [09:22.630] And ultimately they agreed to open their economy.
+- [09:27.120] Now the opening of the economy is worth more than $550 billion,
+- [09:31.860] the payment that they made. It's worth more.
+- [09:34.130] So between that and the payment,
+- [09:35.690] we reduced it down to 15 percent.
+- [09:38.380] But they were at about 28 percent,
+- [09:40.120] and then they bought it down, basically.
+- [09:42.260] The Press: But could other countries buy it down?
+- [09:43.800] The President: Yeah, I would let other countries buy it down.
+- [09:45.480] The Press: Do you feel better or worse about your relationship
+- [09:48.080] with the Fed Chairman after this meeting?
+- [09:49.690] The President: I feel good about it.
+- [09:50.890] I mean, look, I have one dispute, and the dispute is –
+- [09:54.570] there could be some things with money
+- [09:56.830] and, you know, where it comes from, how it's come from.
+- [10:00.540] How it is printed, where its printed,
+- [10:02.560] all of the standard things with the Fed.
+- [10:05.330] But I just want to see one thing happen.
+- [10:07.260] Very simple, interest rates have to come down.
+- [10:09.830] If the interest rates don't come down,
+- [10:11.440] we're knocking it out of the park with high interest rates.
+- [10:15.570] If interest rates come down
+- [10:16.830] then that final little element kicks into this housing.
+- [10:19.980] And the sad part is that people, wonderful young people,
+- [10:23.200] young couples starting off. They can't get a mortgage
+- [10:25.040] because their rates are too high.
+- [10:26.310] Tim Scott: [inaudible].
+- [10:27.550] The President: Tim knows that better than anybody, I think.
+- [10:28.980] The Press: But Mr. President,
+- [10:30.210] if the rates are hurting families in the country,
+- [10:32.410] why let that keep going for another eight months?
+- [10:34.360] Why not just fire the chair now?
+- [10:36.000] The President: To do that is a big move,
+- [10:37.330] and I just don't think it's necessary.
+- [10:39.210] And I believe that he's going to do the right thing.
+- [10:42.140] The Press: [inaudible]
+- [10:43.400] The President: I believe the chairman is going to the right.
+- [10:45.890] I mean, it may be a little too late, as the expression goes,
+- [10:48.940] but I believe he's gonna do the right thing.
+- [10:51.010] The fact is, it's so big what's taking place in America.
+- [10:56.580] Where the king of Saudi Arabia says,
+- [10:58.230] you have the hottest country anywhere in the world,
+- [11:00.660] and I thought you were dead one year ago.
+- [11:03.040] I thought we were dead. I just left NATO, as you know,
+- [11:06.050] they're agreeing to pay 5 percent.
+- [11:07.880] We're not paying anything. We send them the equipment.
+- [11:10.330] They pay for 100 percent
+- [11:11.570] of everything now for the war, Ukraine.
+- [11:14.240] But I just left NATO and every one of those leaders said.
+- [11:17.700] Every country, they said, and very smart countries, very –
+- [11:22.860] you know very successful countries, frankly.
+- [11:25.220] And every one of them said
+- [11:26.510] you have the hottest country in the world.
+- [11:27.840] We did that over a period of a year, less than a year.
+- [11:30.850] I mean, if you think, I mean less than –
+- [11:32.210] they say a year ago we were dead.
+- [11:34.760] And today, so I'm here six months,
+- [11:36.390] and we did it over, and we had the help of men like this
+- [11:39.390] and people like standing right behind me. They're great.
+- [11:41.540] Tim Scott: Leadership matters.
+- [11:42.880] The President: They're great professionals. They really are.
+- [11:44.760] They are great professionals. And in a short period of time,
+- [11:47.560] we made it the hottest country in the world.
+- [11:49.590] With all of that being said, we'd like to see –
+- [11:52.320] we can always do better,
+- [11:53.520] and we can do better if interest rates come down.
+- [11:55.210] The Press [inaudible].
+- [11:56.430] The President: Good job do you.
+- [11:57.650] You have a nice job – I watch you a lot.
+- [11:59.110] The Press: Thank you. Appreciate that Mr. President.
+- [12:00.700] Do you have a name in mind to replace the chairman?
+- [12:03.240] The President: I do.
+- [12:04.450] The Press: One person.
+- [12:05.690] The President: Two people. Maybe three.
+- [12:07.160] The Press: Any clues? The President: I’d pick him,
+- [12:08.410] but I think he's not leaving the Senate.
+- [12:09.850] Tim Cook: No sir, I am not.
+- [12:11.090] [laughter] The President: I’d pick him.
+- [12:12.300] The Press: [inaudible] Powell resign?
+- [12:16.480] The President: No, there's no question.
+- [12:17.780] No. We want to have, you know, his term comes up soon.
+- [12:22.390] I think he's going to do the right thing.
+- [12:23.930] Everybody knows what the right things is.
+- [12:26.090] Even people that believed in, you know,
+- [12:27.790] the higher rates, they're all on board.
+- [12:29.590] They all want to see the interest rates come down.
+- [12:31.380] It's very important.
+- [12:32.600] The Press: Mr. President [inaudible]
+- [12:33.800] if he doesn't do the right thing and cut interest rates,
+- [12:35.350] as you said, wouldn't you then consider firing him?
+- [12:36.790] The President: I don't think we're going to do that.
+- [12:38.030] The Press: Do you think he changed his mind?
+- [12:39.250] The President: I don't think so.
+- [12:39.720] The Press: Would you support [inaudible]
+- [12:40.920] investigate the newly leaked classified documents on Gabbard.
+- [12:43.270] The President: Yeah, that's a terrible thing.
+- [12:45.100] I have great respect for Tulsi
+- [12:47.530] and the documents they found on President Obama,
+- [12:51.360] well frankly – it was an Obama thing,
+- [12:52.900] but it was the people that worked under him also,
+- [12:54.830] working with him.
+- [12:56.120] And, no, it's a very, very serious thing.
+- [12:57.610] Thank you very much.
+- [12:58.810] The Press: [inaudible] Mr. President.
+- [13:00.050] What was the final straw U.S. negotiators
+- [13:02.110] [inaudible]?

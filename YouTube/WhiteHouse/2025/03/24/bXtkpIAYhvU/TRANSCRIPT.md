@@ -1,0 +1,428 @@
+<!-- source: https://www.youtube.com/watch?v=bXtkpIAYhvU -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: bXtkpIAYhvU -->
+<!-- date_published: 2025-03-24T20:01:52+00:00 -->
+<!-- date_accessed: 2026-06-02T02:52:30.509344+00:00 -->
+
+# Transcript: President Trump Participates in a Greek Independence Day Celebration
+
+- [00:00.400] Ladies and gentlemen, the president of
+- [00:02.159] the United States accompanied by his
+- [00:03.919] eminence Archbishop Alpa Forest of
+- [00:06.640] America.
+- [00:10.040] [Music]
+- [00:28.860] [Applause]
+- [00:37.680] Mr.
+- [00:39.000] President, first of all, allow me to
+- [00:42.000] offer the congratulations of the Greek
+- [00:44.640] American community on your reelection to
+- [00:48.480] the presidency of our nation.
+- [00:53.970] [Music]
+- [00:56.320] We all look forward to a bright future
+- [01:00.879] for all Americans.
+- [01:06.720] I also want to thank you for creating
+- [01:09.520] the White House Faith Office, which
+- [01:13.119] promises to be an extraordinary
+- [01:15.960] collaboration between your
+- [01:18.000] administration and all faith leaders.
+- [01:22.290] [Applause]
+- [01:22.650] [Music]
+- [01:24.720] Today, Mr. President, you bestow
+- [01:28.119] extraordinary honor upon the Greek
+- [01:30.640] American people with the annual Greek
+- [01:33.759] Independence Day celebration here at the
+- [01:37.119] White House. As ever, we are all humbled
+- [01:41.280] by the prestige of this celebration. And
+- [01:44.720] on behalf of all, I thank you. Thank you
+- [01:48.640] for continuing this wonderful tradition
+- [01:51.840] that recognizes the Greek roots of
+- [01:55.640] democracy. We are here to celebrate to
+- [01:59.840] celebrate the world's first democracy,
+- [02:03.799] Greece. But we are here also to
+- [02:06.719] celebrate the world's greatest
+- [02:09.000] democracy, the United States of America.
+- [02:19.200] We acclaim and remember the immortal
+- [02:22.480] heroes of
+- [02:24.280] 1821 who like those of
+- [02:27.800] 1776 gave their all to attain liberty
+- [02:31.520] for their
+- [02:32.599] land. Mr. President, we especially thank
+- [02:36.560] you for your commitment to
+- [02:38.920] Christianity and especially the
+- [02:41.120] Christians of the Middle East who keep
+- [02:44.160] Christianity alive and thriving in the
+- [02:47.440] lands of its origin.
+- [02:50.900] [Applause]
+- [02:56.959] as sons and daughters of the mother
+- [02:59.519] church of
+- [03:00.840] Constantinople whose longest serving
+- [03:03.280] leader in history is his all holiness
+- [03:05.519] our ecumenical patriarch
+- [03:07.640] Bartholomew we thank you for your
+- [03:10.080] unwavering support of the spiritual
+- [03:12.879] mission of the ecumenical patriarchy in
+- [03:16.519] Istanbul Mr.
+- [03:18.599] President, you lead the world. You are
+- [03:22.480] the leader of the world. You are the
+- [03:25.440] leader in championing freedom and peace
+- [03:28.959] between all
+- [03:30.280] people. We are very grateful to you for
+- [03:33.680] your support of Greece and your support
+- [03:37.280] for the cause of justice in
+- [03:40.680] Cyprus. Through your leadership, you
+- [03:44.080] embody the values of our Christian faith
+- [03:47.280] and love for the
+- [03:49.480] gospel. You remind me of the great Roman
+- [03:53.440] Emperor Constantine the
+- [03:56.030] [Applause]
+- [04:02.280] Great. This
+- [04:04.360] emperor, this emperor, your dear Mr.
+- [04:08.439] President is the one who founded and
+- [04:11.599] built the magnificent city of
+- [04:14.439] Constantinople, my
+- [04:16.680] birthplace
+- [04:18.410] [Applause]
+- [04:19.959] known known today as Istanbul. It is my
+- [04:24.320] great honor to present you with this
+- [04:27.919] holy cross.
+- [04:36.400] Thank you. This cross is the very symbol
+- [04:40.400] that led this great Roman Emperor
+- [04:43.360] Constantine to
+- [04:45.240] victory. As Christ revealed to him in a
+- [04:48.919] vision, he said, "And Tutoto Nika told
+- [04:53.520] the emperor means go with this and be
+- [04:57.680] victorious." Mr.
+- [04:59.240] President, this cross is an everlasting
+- [05:02.960] symbol of peace and an invincible
+- [05:06.680] trophy, a sign of divine strength and
+- [05:10.840] guidance. With this cross, I pray you
+- [05:14.800] bring peace to the world and make
+- [05:17.720] America invincible.
+- [05:20.160] [Applause]
+- [05:32.880] Hello.
+- [05:34.740] [Applause]
+- [05:35.010] [Music]
+- [05:41.620] [Applause]
+- [05:50.080] Wow, that's so beautiful. Thank you very
+- [05:52.000] much. I didn't know that was going to
+- [05:55.240] happen, but I'll I'll take
+- [05:57.880] it. Thank you so
+- [06:00.759] much. Greek Independence Day. Wow. I'm
+- [06:04.880] delighted to welcome to the White House
+- [06:07.280] the hundreds of proud, hardworking Greek
+- [06:09.680] American patriots. I know so many of
+- [06:11.520] you. I like most of you. Some I don't
+- [06:13.759] like. They get to be very tough. Some
+- [06:16.000] pretty tough people out there. But
+- [06:17.520] that's okay. We love you. We love you
+- [06:19.919] all. In a few moments, I'll sign the
+- [06:21.759] proclamation to officially recognize
+- [06:23.840] tomorrow, March 25th, 2025, as Greek
+- [06:27.440] Independence Day, celebrating 204
+- [06:31.800] years. That's right. Celebrating 204
+- [06:34.800] years of glorious Greek sovereignty and
+- [06:37.680] freedom. That's a long time. That's a
+- [06:39.759] great That's a great thing we're doing.
+- [06:41.680] And uh such an honor to have you. So
+- [06:45.720] uh having his eminence the archbishop
+- [06:48.560] with us is very special and I've been
+- [06:51.199] doing this from the very beginning. We
+- [06:53.759] missed four years unfortunately. Bad
+- [06:56.000] things happened. A lot of bad things
+- [06:59.000] happen. And the world the world wasn't
+- [07:02.240] doing so well for four years but we're
+- [07:04.000] doing well now. We're doing better now
+- [07:05.440] than we've ever done. We have things
+- [07:06.960] happening with our country that are
+- [07:08.680] incredible. And in terms of businesses
+- [07:11.520] coming in, I think we're close to$4
+- [07:13.039] trillion dollars now. Nobody's ever even
+- [07:14.720] heard of anything like that. And they're
+- [07:17.360] coming in, Archbishop. They're coming in
+- [07:19.199] at levels that we have never seen. And
+- [07:21.120] we're doing well. And the Greeks are
+- [07:22.560] doing well. They'll always do well. And
+- [07:24.400] I want to thank some of the wonderful
+- [07:26.000] Greek Americans working tirelessly by my
+- [07:28.960] side, members of my administration,
+- [07:30.960] friends of mine, and uh just incredible
+- [07:34.479] people. The president of science and
+- [07:37.039] technology policy, Michael Katzios.
+- [07:40.560] Where's Michael?
+- [07:43.280] Hello. Hello, Michael. Thank you,
+- [07:45.280] Michael. And Deputy Secretary of State,
+- [07:48.800] Michael Reyes. Reich. Michael, thank you
+- [07:52.000] very much. Thank you very much. I also
+- [07:56.160] want to thank Greeks for Trump. Greeks
+- [07:57.919] for those are the ones I really
+- [08:01.240] like. Christos
+- [08:04.280] Marafos. Christos. Where's Christos?
+- [08:07.520] Good-looking guy he is. Thank you very
+- [08:09.919] much. And we also have some very
+- [08:12.160] powerful Greek politicians like Gus.
+- [08:15.520] Gus, will you please stand up? Nobody
+- [08:17.360] sees
+- [08:18.280] you. Gus Beracus. And he is a great he's
+- [08:23.039] a great friend of mine. And he's doing
+- [08:24.720] well. You're doing well, aren't you,
+- [08:26.000] Gus? Huh? Yeah. I always say, "Stand up
+- [08:28.160] a little higher,
+- [08:30.280] Gus." And Mike Heridopoulos. Mike, thank
+- [08:33.919] you very much. Where's Mike? Mike, thank
+- [08:36.479] you very much. Appreciate it. Thank you
+- [08:38.240] for everything. Lance Gooden. Where's
+- [08:40.880] Lance? I don't know if I don't know how
+- [08:42.560] much uh Greek you have in you, Lance.
+- [08:44.800] You have Oh, the Greek. You do have
+- [08:47.519] That's the ultimate. You're right. And
+- [08:49.600] Joe Wilson, our friend Joe Wilson. Joe,
+- [08:52.399] thank you. Thanks. Thank you, Joe. And
+- [08:57.120] EPA administrator Lee Zeldon, who's got
+- [08:59.760] a big job. Thank you, Lee. He's got a
+- [09:02.880] big job. He's got to get those permits
+- [09:04.480] out fast because China gives fast
+- [09:06.160] permits, right? They don't even do
+- [09:08.000] permits. They just say build. Don't
+- [09:09.600] worry about it. Chief financial officer
+- [09:11.839] of Florida, Jimmy Petronis, who's
+- [09:13.760] running in a big race. He's running in a
+- [09:17.040] big race. And I hear you're doing well
+- [09:18.560] in the polls. You got to win that one.
+- [09:20.160] But uh they got to get out and vote,
+- [09:21.760] right, Jimmy? But you're doing great.
+- [09:24.160] And my former chief of staff, who's a
+- [09:26.160] terrific guy, Rance Priebus. Rince. Hi,
+- [09:31.080] Rice. Rece is a terrific guy. And
+- [09:34.000] another terrific guy and woman. By the
+- [09:36.240] way, we have John Casematitis, number
+- [09:38.959] one, and his beautiful wife, Margot. And
+- [09:42.399] I want to thank you. And your daughter
+- [09:44.000] Andrea is here. Good. Wow. That's good.
+- [09:46.480] That's We have the whole family. Uh he's
+- [09:48.880] done a fantastic job the family has with
+- [09:51.320] ABC and they have the biggest radio show
+- [09:54.160] and uh biggest station, I think, in New
+- [09:56.640] York. So, good. So, we have to really be
+- [09:58.560] nice to them where we think we're going
+- [09:59.839] to win New York and if you have him on
+- [10:02.399] your side. But it's a great family.
+- [10:04.160] Thank you very much my friends for a
+- [10:05.680] long time. Thanks John. Let me also
+- [10:08.560] extend a special welcome to Ambassador
+- [10:11.440] Nasica from Greece and Ambassador Sava
+- [10:14.800] from Cyprus. Two very friendly
+- [10:19.480] rivals. Thank you both very much. And
+- [10:21.760] the bond between the United States and
+- [10:23.680] modern Greek nation goes back more than
+- [10:26.720] two centuries. On March 25th, 1821,
+- [10:30.320] Greek patriots began their noble fight
+- [10:32.560] to reclaim their destiny from the grip
+- [10:35.200] of a foreign empire, a very powerful
+- [10:37.519] foreign empire. President James Monroe
+- [10:40.720] said at the time that the whole
+- [10:42.240] civilized world had a deep interest in a
+- [10:45.200] victory for the Greek people. President
+- [10:48.560] Monroe understood that Americans were
+- [10:50.640] bound by history and culture to the
+- [10:52.959] birthplace of democracy and the cradle
+- [10:55.279] of Western civilization. from the pages
+- [10:58.399] of our constitution to the architecture
+- [11:01.040] of this capital city, this wonderful
+- [11:03.360] city of ours that we're fixing up,
+- [11:05.680] starting to shape up very nicely, isn't
+- [11:07.440] it? Huh? To the very words of the
+- [11:09.839] English language, the legacy of the
+- [11:11.839] Greeks is all around us that encircles
+- [11:14.160] us. But perhaps the greatest gift we
+- [11:16.720] have inherited from that amazing culture
+- [11:19.040] is our incredible Greek American
+- [11:20.880] community that is now more than three
+- [11:23.920] million strong. I worked very
+- [11:26.400] [Applause]
+- [11:28.760] hard. I worked very hard on getting your
+- [11:31.600] votes, but we didn't need to because we
+- [11:33.120] got them by a lot, right? We won by a
+- [11:35.920] lot and we love them and they love us.
+- [11:38.560] But we're joined today by one
+- [11:40.079] extraordinary Greek American citizen,
+- [11:42.399] Alex Scaratus.
+- [11:44.959] And you know the story of Alex, inspired
+- [11:47.600] by his grandfather who fought against
+- [11:49.279] the Nazis and the Greek resistance, Alex
+- [11:52.800] joined the National Guard after high
+- [11:54.800] school 10 years ago following a
+- [11:56.880] deployment to Afghanistan. You all read
+- [11:59.040] about this. Alex and his friends were on
+- [12:01.680] a train from Amsterdam to Paris when a
+- [12:04.320] bloodthirsty radical Islamic terrorist
+- [12:06.480] began shooting innocent people all over
+- [12:08.800] the train. They were falling left and
+- [12:11.279] right. In an act of tremendous valor,
+- [12:13.920] Alex and his comrades charged the gunman
+- [12:16.959] despite being completely unarmed and
+- [12:19.440] beat him into submission. And uh where
+- [12:22.639] is Alex? He's around here someplace. Get
+- [12:25.120] up here, Alex. Get up here. Come on,
+- [12:27.519] Alex. Get up here,
+- [12:30.120] Alex. USA. USA.
+- [12:34.240] before providing life-saving aid to an
+- [12:36.880] American who was shot and hurt so badly.
+- [12:39.360] Alex's bravery helped save countless
+- [12:41.519] innocent lives that day. And today, he
+- [12:44.000] continues to serve his country as a
+- [12:45.680] member of the Oregon State Legislature.
+- [12:47.760] So, Alex, come up here for a second. I
+- [12:49.760] at least want to shake your hand. Come
+- [12:51.680] up
+- [12:55.639] here. That's a big story. He had a lot
+- [12:58.639] of I don't think I would have done that.
+- [13:00.000] I don't know. I'm not sure. Come here.
+- [13:02.480] Thank you. You want to say something? Go
+- [13:04.079] ahead. Oh, well, one of the last times I
+- [13:07.120] was here was actually to uh watch our
+- [13:10.240] movie that Clint Eastwood directed and
+- [13:12.079] we watched it with the president and um
+- [13:15.040] that was yeah, I think February of
+- [13:17.320] 2018. And um I honestly was surprised
+- [13:21.040] because I thought the president would
+- [13:23.360] watch about 10 minutes and then leave.
+- [13:25.920] and he stayed for the whole movie which
+- [13:28.399] I was very impressed by because we
+- [13:30.639] played ourselves in the movie and the
+- [13:32.079] acting wasn't the best but it was a very
+- [13:33.920] accurate movie and the best part was uh
+- [13:37.360] when it came to the uh part where we
+- [13:40.079] were beating up the terrorist the
+- [13:42.320] president hit me on the shoulder and was
+- [13:43.920] like right on and I was like well so
+- [13:48.279] that's one of one of the top tier
+- [13:50.800] memories for me so I just wanted to say
+- [13:52.480] thanks so much and great to see you
+- [13:53.920] again. Thank you very much. Thank you.
+- [13:55.680] Thank
+- [13:57.240] you. Thank you,
+- [13:59.480] Alex. We're also joined by another Greek
+- [14:02.399] American who first came here from Athens
+- [14:04.920] with $75 in his pocket after becoming an
+- [14:08.959] American citizen. Steve Valencis, where
+- [14:12.240] is Steve? Steve, that's our good story.
+- [14:15.519] Steve, he's got plenty of cash now. So,
+- [14:18.240] you started off with $75 and today you
+- [14:20.800] have a lot of money.
+- [14:23.199] But Steve built one of the most
+- [14:24.800] respected catering companies in
+- [14:26.480] Washington and all around the east
+- [14:28.399] coast. And they have proudly catered the
+- [14:31.360] inaugural banquet in the US capital for
+- [14:33.519] every president since Ronald Reagan. And
+- [14:37.120] uh I must tell you he just did ours. He
+- [14:39.760] did three. Uh the one we didn't show up
+- [14:42.480] to because uh something happened. Uh he
+- [14:45.680] was ready to do three but something
+- [14:47.760] happened on the middle one. But and we
+- [14:49.839] did awfully well that day, I will tell
+- [14:51.519] you. but uh he just did one on January
+- [14:54.880] 20th, 2025 and everybody is still
+- [14:57.199] talking about the great food and the
+- [14:58.800] great service and you did a fantastic
+- [15:00.800] job. There were a lot of people. Thank
+- [15:02.399] you very much, Steve, and your family.
+- [15:04.000] Thank
+- [15:05.959] you. Also, many of you know Steve's
+- [15:08.800] daughter, Alexandra, as the director of
+- [15:10.880] the White House visits office.
+- [15:12.760] Congratulations to Steve and Alexandra.
+- [15:15.760] Great job. Great job. Thanks, Alexander.
+- [15:18.959] Great job you do. You do a fantastic job
+- [15:21.360] at the White House. Also with us in
+- [15:23.680] person and uh a person that really is a
+- [15:27.120] great friend and been a great friend for
+- [15:29.600] a long time. I've known this woman
+- [15:31.920] although she's very young yet I've known
+- [15:33.920] her for a long time. Uh she came here
+- [15:36.800] and she loves our country and she loves
+- [15:39.120] Greece and now she's going to be the
+- [15:40.720] future ambassador to the Helanic
+- [15:43.120] Republic, Kimberly Gilfoil. And I'm
+- [15:46.399] going to say Kimberly, come on up and
+- [15:48.480] say a few words. Kimberly,
+- [15:51.560] come. She's really a good person. She
+- [15:55.240] represents the Greek culture very well.
+- [15:58.079] I will tell you, she's very proud of it.
+- [15:59.839] Kimberly, please. Kimberly, thank you,
+- [16:02.320] sweetheart.
+- [16:05.650] [Music]
+- [16:07.519] Good afternoon. Thank you so much of
+- [16:09.759] everyone being here. And I tell you,
+- [16:11.519] this is the honor and privilege of a
+- [16:13.279] lifetime to serve this country and to
+- [16:16.079] serve a country that I love so much,
+- [16:17.839] that is so near and dear to my heart
+- [16:19.759] with Greece. And to do it under the
+- [16:21.920] guidance, the leadership the most
+- [16:24.440] important, powerful president that this
+- [16:26.959] country has ever seen, a man of
+- [16:28.800] integrity. I know the measure of the man
+- [16:30.560] and his character and his strength. And
+- [16:32.720] I know his love for the people of
+- [16:34.399] Greece, the birthplace of democracy. And
+- [16:37.680] today we celebrate and cherish our rich
+- [16:40.560] history and our enduring bond, the
+- [16:43.600] United States and Greece and the
+- [16:46.000] founding of the Hellenic Republic and
+- [16:48.079] under President Trump. No, sleep well at
+- [16:51.279] night and wake up in the morning feeling
+- [16:53.600] hopeful and optimistic for a man that
+- [16:55.759] will fight for the economy of this
+- [16:57.360] country and of Greece, for religious
+- [16:59.600] liberty and freedom, and for the
+- [17:01.600] enduring alliance of Greece and the
+- [17:04.480] United States. God bless you
+- [17:07.000] all. Thank you for having me.
+- [17:15.540] [Applause]
+- [17:19.679] Four more years. Four more years.
+- [17:23.600] Thank you, Kimberly. We are well
+- [17:26.160] represented with Kimberly. Do we agree?
+- [17:28.799] Thank you, Kimberly. From Washington to
+- [17:31.600] Chicago, from New York to Detroit, from
+- [17:33.840] Philadelphia to the famous Tarpon
+- [17:35.919] Springs, you know all about Tarpon
+- [17:37.440] Springs, Florida. Greek Americans have
+- [17:40.000] blessed our country with exceptional
+- [17:41.760] courage, patriotism, and tremendous
+- [17:44.080] skill. Under this administration, we
+- [17:46.640] will continue to honor the virtues,
+- [17:48.640] ideals, and spirit of this magnificent
+- [17:50.960] heritage. And it is indeed magnificent.
+- [17:53.760] That has flourished for thousands of
+- [17:55.679] years from the golden age of ancient
+- [17:57.919] Greece to the golden age of America.
+- [18:00.720] That's where we are right now. The
+- [18:02.080] golden age of America. Right, John? Once
+- [18:05.360] again, let me wish you all a very, very
+- [18:07.440] happy Greek Independence Day. It's an
+- [18:09.919] honor again to have your eminence. It's
+- [18:11.679] an honor to have you with us. I
+- [18:13.039] appreciate it very much. And I
+- [18:14.320] appreciate that magnificent cross. It
+- [18:17.120] will be with me always. And uh I'd just
+- [18:19.679] like to uh finish by saying you are a
+- [18:22.640] very very special people. Uh I wouldn't
+- [18:26.799] have missed this. I was very busy today.
+- [18:29.280] I had something they took me away and I
+- [18:31.039] said, "Well, isn't that the same day
+- [18:32.400] we're celebrating Greek Independence
+- [18:34.160] Day?" They said, "Yes." They said,
+- [18:35.200] "Cancel the other one." It was a very
+- [18:36.960] big deal. It was It was not easy to do,
+- [18:41.039] my friend. It was not easy to do, but we
+- [18:44.480] did it. And it's now my honor to sign
+- [18:46.559] the proclamation. Thank you very much.
+- [18:48.400] Thank you very much.
+- [19:11.360] Okay, that's a good one.
+- [19:24.490] [Music]
+- [19:58.160] Heat. Heat.
+- [20:08.960] [Music]
+- [20:39.600] Heat. Heat.
+- [20:47.050] [Music]

@@ -1,0 +1,362 @@
+<!-- source: https://www.youtube.com/watch?v=fy41_0ESH_g -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: fy41_0ESH_g -->
+<!-- date_published: 2025-10-14T01:30:05+00:00 -->
+<!-- date_accessed: 2026-06-02T01:13:08.546744+00:00 -->
+
+# Transcript: President Trump Gaggles with the Press on Air Force One, Oct. 13, 2025
+
+- [00:01.830] The President: Thank you very much.
+- [00:03.110] So this was really a historic day, to put it mildly.
+- [00:07.280] Wasn't it amazing? Look at that last meeting,
+- [00:10.970] when you see the heads of those countries,
+- [00:13.810] those are serious countries.
+- [00:17.490] I thought it was fantastic, I did.
+- [00:20.050] And seeing the so-called hostages
+- [00:23.040] with those kids come back home,
+- [00:24.980] the way their parents just went crazy.
+- [00:28.570] Your father would not be that way with you.
+- [00:30.890] He'd be okay, but he wouldn't be like that.
+- [00:33.030] The Press: I would get a hug.
+- [00:34.360] The President: A hug? A minor hug, okay.
+- [00:36.660] No, he would be, I'm only kidding.
+- [00:40.160] So how are you doing? Everybody okay? Are we good?
+- [00:43.580] The Press: How are you feeling?
+- [00:44.780] The President: I feel good.
+- [00:46.150] It's a long day, it's a long day,
+- [00:49.040] and we did a couple of big ones.
+- [00:51.250] That first one was -- It's getting great reviews,
+- [00:54.570] I will tell you, there's a lot of meat in there.
+- [00:57.900] They're dissecting it and just playing it all night long.
+- [01:02.300] It's been very good. I think it's a very important day,
+- [01:06.360] because nobody thought this was possible, very good.
+- [01:10.070] And the press has been very respectful for a change,
+- [01:13.790] doesn't happen often. Go ahead, please, let's go.
+- [01:16.370] The Press: What does it tell you about the world,
+- [01:18.150] that it seems like you got a much better reception in Israel
+- [01:23.370] than you would get in New York City right now?
+- [01:26.910] The President: I think I get a great reception
+- [01:28.130] in New York City.
+- [01:29.360] The Press: I'm not saying that you don't,
+- [01:30.590] but it was on another level today.
+- [01:32.790] The President: Well, yeah, you're right, it was incredible.
+- [01:34.520] But I went to the Bronx and we had 31,000 people
+- [01:39.910] in a park in the Bronx, in New York City,
+- [01:42.520] during the campaign, 31,000. Do you remember that?
+- [01:45.070] And it was the friendliest crowd you've ever seen,
+- [01:48.180] and very diverse, but it was
+- [01:50.050] (inaudible). New York is good, it's good.
+- [01:52.860] The Press: New York City, bad example,
+- [01:54.130] but it was -- I don't know if you can see --
+- [01:56.100] The President: Are you admitting you made a mistake?
+- [01:58.020] I don't believe it. This is breaking news.
+- [01:59.920] No, I'm kidding. Let's go, go ahead.
+- [02:01.350] The Press: First rule of politics, never admit a mistake.
+- [02:03.670] The President: Never admit a mistake.
+- [02:04.950] The Press: But it was, in the motorcade,
+- [02:06.700] I don't know if you could see,
+- [02:07.960] there were people hanging out of every apartment, balconies,
+- [02:11.360] inside the Knesset.
+- [02:14.010] The President: Okay, so I've heard --
+- [02:16.240] They said if you did Russia
+- [02:18.550] or if you did lots of different combinations,
+- [02:21.890] they say the Middle East blows it away.
+- [02:23.420] I said, "Why (inaudible)
+- [02:24.750] it's just thousands of years, nothing's been done,
+- [02:28.680] it's the whole thing with the Arabs,
+- [02:31.250] Jewish people and everybody,
+- [02:33.560] it's just never been done before.
+- [02:36.200] And there's a certain mystery to the Middle East.
+- [02:40.840] Look, it's only because of the ratings,
+- [02:42.740] you're only as good as the ratings.
+- [02:44.220] If they weren't getting ratings, your people at Fox would --
+- [02:47.160] And by the way, Trey is excellent.
+- [02:49.930] The Press: He does a really good job.
+- [02:51.140] The President: He was really good.
+- [02:52.370] We did a very quick interview,
+- [02:54.000] I was running to the second one where we were pretty late.
+- [02:57.800] The Press: Something that we heard
+- [02:59.120] from some of the Israelis on the ground,
+- [03:01.100] they want to know how the peace holds
+- [03:04.010] when you are not the president, so three years from now-
+- [03:08.740] The President: I can't answer it.
+- [03:10.070] I know this, and you are all witness,
+- [03:12.620] we go and I get 25,000, 35,000.
+- [03:16.720] If you look at a normal president will get 300 people,
+- [03:20.170] and that's not bad, they'll go to a ballroom,
+- [03:22.350] they'll get 300 people. We get 35 --
+- [03:25.370] We had 117,000 people in New Jersey.
+- [03:29.390] And so, I can't tell you what's going to happen,
+- [03:31.510] but I'll be out there fighting for whoever it may be.
+- [03:36.410] The Press: Did you tell Bibi
+- [03:37.620] beforehand that you were going to go off script
+- [03:39.100] and try to get (inaudible) --
+- [03:40.470] The President: No, I actually told him
+- [03:41.690] I didn't want to bring up the pardon,
+- [03:44.040] but it was just the perfect spot, it was good timing.
+- [03:46.930] When you said -- Because he was getting a very good hand,
+- [03:50.770] and when they stopped, they said,
+- [03:52.260] "Why didn't he give this guy a pardon?"
+- [03:53.870] If he didn't get a good hand, they wouldn't have done that.
+- [03:55.930] But the timing was --
+- [03:58.150] What do you think, Katie, good timing for that one?
+- [03:59.990] The Press: I think
+- [04:01.190] people thought it was pretty funny, yes.
+- [04:03.000] The President: It worked out well.
+- [04:04.200] It was a little risqué, bringing it up,
+- [04:08.220] pretty sore subject in Israel. But the people were fantastic.
+- [04:13.370] The Press: Mr. President, you spoke to Egypt-
+- [04:14.980] The President: Oh, here we go.
+- [04:16.250] She can ask more questions this one.
+- [04:17.840] Go ahead.
+- [04:19.050] The Press: I have some good questions, I promise.
+- [04:20.400] The President: You do, you do. You were very nice today.
+- [04:21.620] Go ahead.
+- [04:22.860] The Press: You talked to President El-Sisi and you
+- [04:26.200] spoke about, in that room, how Egypt has so little crime,
+- [04:29.830] and you said it's all about leadership.
+- [04:31.610] You talked about --
+- [04:32.920] The President: Well, they've very strong on crime.
+- [04:34.880] The Press: You talked about some of the governors --
+- [04:36.860] The President: You wouldn't believe how strong.
+- [04:38.060] But they are very strong,
+- [04:39.300] but they don't have the kind of crime --
+- [04:41.840] They may have other kinds of crime,
+- [04:43.200] but their violent crime, you can actually walk down a park
+- [04:46.240] and not get mugged or hit over there with a baseball bat.
+- [04:48.240] The Press: Do you want to see some U.S. governors
+- [04:49.940] be more like Egypt?
+- [04:51.450] The President: No, I want them to be stronger and tougher
+- [04:54.140] and not allow us to have record-breaking crime in Chicago
+- [04:57.050] and different places.
+- [04:59.150] I want them to admit they have crime.
+- [05:01.220] So there were 4,000 shootings in Chicago,
+- [05:05.130] murders, over a fairly short period of time,
+- [05:08.730] meaning like a year and a half, I think, 4,000 murders,
+- [05:15.070] many, many thousands of you're hit by a bullet but don't die.
+- [05:19.550] I want them to say, "We have a problem.
+- [05:21.660] Could Trump bring in the troops and solve the problem?"
+- [05:24.780] Like I did in D.C., like I'm doing in Memphis.
+- [05:27.350] If you see the crimes way down in Memphis,
+- [05:29.290] and we've only been there seven days, way down.
+- [05:31.450] The Press: The courts have been standing in your way here
+- [05:32.950] (inaudible).
+- [05:34.150] The President: They have been. The lower courts have.
+- [05:35.930] The Press: Are you using the Insurrection Act, where you --
+- [05:37.500] The President: The lower -- Well, I could use it.
+- [05:38.910] If I wanted to, I could use it.
+- [05:40.690] Look, that's a very simple answer,
+- [05:42.350] I'm allowed to use the Insurrection Act.
+- [05:43.970] In fact, that was on Stephanopoulos today,
+- [05:47.330] his Slopodopoulos show.
+- [05:49.970] They asked sloppy Chris Christie about the Insurrection Act.
+- [05:53.160] He said,
+- [05:54.400] "Well, if you're talking about the Insurrection Act,
+- [05:56.400] he's got the absolute right to use that."
+- [05:58.980] And he said a couple of things,
+- [06:00.500] he said 50 percent of the presidents
+- [06:03.680] that served in office have used the Insurrection Act,
+- [06:07.490] and the Insurrection Act, according to all of them,
+- [06:10.210] said it can't even be challenged.
+- [06:13.470] I don't have to go there yet because I'm winning on appeal.
+- [06:16.610] You're right, we're losing with radical left judges,
+- [06:20.500] generally, radical left judges,
+- [06:22.400] and we're winning on appeal, so we'll see what happens.
+- [06:25.880] The Press: I'll be speaking to Governor JB Pritzker tomorrow.
+- [06:27.960] Do you have any messages or questions for him?
+- [06:30.510] The President: Well, I think he should beg for help,
+- [06:33.130] because he's running a bad operation
+- [06:35.090] and he's letting people be killed in his city
+- [06:38.830] because he doesn't want -- In Chicago, and I love Chicago,
+- [06:42.090] Chicago can be a great city again.
+- [06:43.980] And very quickly, I would have Chicago cleaned out,
+- [06:47.280] the criminals removed, we would remove them.
+- [06:50.080] In D.C., we took out 1,700 career criminals,
+- [06:53.470] hard-line criminals, that's why it's so good right now.
+- [06:57.740] D.C. is setting records the other way,
+- [06:59.380] it's never been so safe,
+- [07:01.340] and the restaurants have never done better business.
+- [07:04.870] They were closing restaurants,
+- [07:06.100] now they're opening new restaurants.
+- [07:07.750] I can do the same thing on a larger scale in Chicago,
+- [07:10.850] and Pritzker should ask me to do it.
+- [07:13.160] But when you mentioned Insurrection,
+- [07:14.660] you were the one that mentioned,
+- [07:15.920] one of you mentioned Insurrection, I could do that,
+- [07:19.910] and many presidents have. Fifty percent, Katie,
+- [07:24.110] 50 percent of the presidents have used the Insurrection
+- [07:26.740] because they don't want to go through this stuff,
+- [07:29.250] where somebody said there's no crime
+- [07:30.690] and 4,000 people got shot.
+- [07:34.590] The Press: Maybe you'll have to use it.
+- [07:35.870] The President: You (inaudible) have to convince,
+- [07:37.170] because she tends to be on the conservative side.
+- [07:40.080] The Press: Do you have an update on the Schumer shutdown
+- [07:42.240] and Democrats still continuing to
+- [07:43.730] (inaudible)?
+- [07:44.930] The President: Well, here's the Schumer shutdown, it's --
+- [07:47.450] Look, they want to have healthcare for illegals
+- [07:50.400] that have come in,
+- [07:51.660] many of these people are criminals
+- [07:53.160] and they want to have healthcare.
+- [07:54.430] And what it also does is --
+- [07:56.440] We have nobody coming in now, we haven't really like that,
+- [08:00.020] if they start winning cases like this,
+- [08:01.750] we're going to have a rush on our border,
+- [08:03.980] because they're going to come up for healthcare
+- [08:05.600] and the other things that they give away.
+- [08:07.110] Look at some Newsom, education,
+- [08:09.120] healthcare, he gives everything away.
+- [08:10.880] People come up for that,
+- [08:12.370] people come from other countries for that,
+- [08:14.280] so we can't have it, we can't have that.
+- [08:16.180] We have people coming into our country,
+- [08:17.670] but they're coming in legally.
+- [08:18.900] The Press: Do you have any more meetings
+- [08:20.130] with leadership this week?
+- [08:21.350] The President: We have the strongest border we've ever had,
+- [08:23.010] but they are coming in, Katie,
+- [08:24.290] they're coming in legally through a process.
+- [08:26.340] The Press: Do you have any planned meetings
+- [08:27.820] with House and Senate leadership on the Republican side
+- [08:29.580] to figure out this week?
+- [08:30.800] The President: Yeah, I'm meeting with them,
+- [08:32.040] I talk to them all the time.
+- [08:33.320] John Thune's been great and Mike has been great, speaker,
+- [08:37.220] he's been great, those two guys have done a great job.
+- [08:40.840] But we're dealing with a bunch of radical left lunatics
+- [08:45.020] that have lost an election in a landslide.
+- [08:47.460] They don't even admit that.
+- [08:49.600] Think of it, they lost the election 2,700,
+- [08:52.890] in terms of counties,
+- [08:55.180] to 525, that's where the map is entirely.
+- [09:00.100] They lost all seven swing states,
+- [09:01.990] they lost the popular vote,
+- [09:03.360] and then they say, "Oh, the election was close."
+- [09:06.310] She says the election was a landslide.
+- [09:10.470] But they lie.
+- [09:11.980] They can take any subject, like Newsome does, says,
+- [09:14.670] "Oh no, Los Angeles is doing great."
+- [09:16.830] If we didn't go into Los Angeles,
+- [09:20.530] they would've had to cancel the Olympics.
+- [09:22.990] And the head of law enforcement said,
+- [09:24.870] and he said it very strongly, "We could not have handled this
+- [09:28.440] if Trump didn't bring those people in."
+- [09:30.880] Two weeks later, he said, "Oh, we could have,"
+- [09:32.570] because he was told to say that.
+- [09:34.830] But we did a great job in Los Angeles.
+- [09:38.920] First of all, you lost half of it with the fires,
+- [09:42.180] and I think this would've been maybe even worse.
+- [09:47.020] They had no control, when we went in,
+- [09:49.880] the police had totally lost control,
+- [09:52.120] and he admitted it, the head, whoever he is,
+- [09:54.530] whatever his name is, he admitted it very strongly.
+- [09:57.260] The Press: What's your reaction to President Bill Clinton
+- [09:58.970] giving you credit for ending the war in Gaza,
+- [10:00.420] and others (inaudible).
+- [10:01.670] The President: I've always liked Bill Clinton,
+- [10:02.870] I've always got along with him.
+- [10:04.220] He used to be a friend of mine, he came to my wedding.
+- [10:07.370] So did she, a lot of people don't know that.
+- [10:11.290] But I've always liked him.
+- [10:15.360] I thought it was very nice, actually.
+- [10:17.660] And what is he doing? He's telling the truth,
+- [10:20.050] because nobody else has been able to deal
+- [10:21.800] with talking about the Middle East. Yes?
+- [10:23.760] The Press: Mr. President, I wanted to ask you
+- [10:25.670] about your conversations with world leaders today.
+- [10:28.180] You said that everybody is unifying over your plan,
+- [10:31.220] but we heard from President Sisi
+- [10:33.770] calling for a two-state solution,
+- [10:36.000] an independent Palestinian state.
+- [10:37.410] The President: You're talking about a different plan.
+- [10:38.740] I'm talking about something very much different.
+- [10:41.390] We're talking about rebuilding Gaza.
+- [10:43.570] I'm not talking about single-state
+- [10:45.010] or double-state or two-state,
+- [10:47.390] we're talking about the rebuilding of Gaza.
+- [10:51.090] The Press: What's the road ahead for governing Gaza?
+- [10:52.760] The President: Well, we'll have to see.
+- [10:53.960] A lot of people like the one-state solution,
+- [10:56.700] some people like the two-state solution,
+- [10:58.550] so we'll have to see. I haven't commented on that.
+- [11:01.210] The Press: How do you see bridging that gap?
+- [11:02.660] Because the Arab countries (inaudible).
+- [11:04.040] The President: At some point,
+- [11:05.280] I'll decide what I think is right,
+- [11:06.620] but I'd be in coordination with other states
+- [11:09.390] and other countries.
+- [11:10.820] The Press: And are you satisfied,
+- [11:12.880] some people might say it feels premature declaring peace
+- [11:15.700] for the whole Middle East,
+- [11:17.210] 3,000 years (inaudible).
+- [11:18.450] The President: Premature, why?
+- [11:19.650] You want more people to be killed?
+- [11:21.600] What do you want, another 300,000,
+- [11:23.370] 400,000 people to be killed, is that what you're looking for?
+- [11:26.120] The Press: But in terms of the risks in Gaza,
+- [11:27.550] in an already (inaudible).
+- [11:28.870] The President: Risk? Risk?
+- [11:30.080] So you mean let them fight on for another couple of years
+- [11:32.800] and let some more buildings fall down on top of people
+- [11:35.950] and keep it going on?
+- [11:37.260] No, we did it the right way. We did it --
+- [11:39.230] I think our timing was perfect, actually.
+- [11:41.840] You don't really mean that.
+- [11:43.070] You mean you want them to fight on, right?
+- [11:44.920] The Press: I'm just asking about the phase two
+- [11:46.240] of the negotiations
+- [11:47.450] and how confident you are that those can get underway.
+- [11:51.090] The President: We have a lot of power.
+- [11:52.320] That was a power room.
+- [11:54.320] Those people, those are the richest countries.
+- [11:56.520] I think now with tariffs,
+- [11:57.820] I think we're the richest country in the world,
+- [11:59.470] actually, the United States,
+- [12:00.710] we're taking in hundreds of millions of dollars.
+- [12:04.320] But those are really seriously rich countries,
+- [12:08.250] and they can handle it.
+- [12:10.490] The Press: Some of those players,
+- [12:11.690] or particularly Erdogan,
+- [12:13.610] could they also help in the war between Russia and Ukraine?
+- [12:16.420] The President: Yeah, Erdogan can,
+- [12:17.630] he's respected by Russia.
+- [12:20.570] Ukraine, I can't tell you about. But he is respected by Putin,
+- [12:24.310] and he's a friend of mine, you can see.
+- [12:26.920] I get along with the tough ones.
+- [12:29.070] I don't get along with the weak ones,
+- [12:30.810] I get along with the tough ones, I don't know what that is.
+- [12:32.920] But Erdogan's been great with me.
+- [12:35.470] When NATO has a problem with Erdogan,
+- [12:37.230] which they often do, they call me to talk to him,
+- [12:39.910] and I've never failed at working it out immediately.
+- [12:42.650] Is that right? How's Karoline doing?
+- [12:44.730] Is she doing good? Should Karoline be replaced?
+- [12:47.990] The Press: No. She's great.
+- [12:49.280] The Press: That's up to you, sir.
+- [12:50.500] The President: It'll never happen.
+- [12:52.750] (talking simultaneously)
+- [12:57.730] The President: Those lips,
+- [12:59.090] they move like a machine gun, right?
+- [13:00.760] The Press: Do you want to elaborate on the countries
+- [13:03.090] you consider weak?
+- [13:04.350] The President: They really are -- Okay, what?
+- [13:05.770] The Press: Do you want to comment on the leaders
+- [13:07.320] you consider weak who are in that room?
+- [13:09.060] The President: No, I won't comment on that,
+- [13:10.340] but you know probably who they are.
+- [13:13.660] I don't know that really --
+- [13:15.050] Yeah, there were a couple in the room.
+- [13:17.880] But overall, I thought that was an amazing group of people.
+- [13:22.240] I don't think they've ever seen an assembly like that,
+- [13:24.580] between power, money, et cetera,
+- [13:26.680] there's never been anything like that.
+- [13:28.820] But you know what? I have to --
+- [13:30.280] Because the plane is going to take off.
+- [13:32.030] The Press: Are you hosting Zelenskyy
+- [13:33.300] at the White House on Friday?
+- [13:34.500] The President: I think so.
+- [13:35.740] Bye everybody.
+- [13:36.960] The Press: Thanks, President Trump.
+- [13:38.160] The President: Have a good time. Thank you everybody.

@@ -1,0 +1,103 @@
+<!-- source: https://www.youtube.com/watch?v=_qJCImf1bp8 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: _qJCImf1bp8 -->
+<!-- date_published: 2026-04-11T21:57:39+00:00 -->
+<!-- date_accessed: 2026-06-02T01:01:53.657162+00:00 -->
+
+# Transcript: President Trump Gaggles with Press Before Departing the White House, Apr. 11, 2026
+
+- [00:00.000] Mr. President, are you pleased with how
+- [00:01.840] the helicopters are going? Is there
+- [00:03.080] anything Yeah, getting a lot of reports.
+- [00:04.560] I've been meeting for many hours, as you
+- [00:06.240] probably have noticed.
+- [00:08.080] We'll see what happens. Look, regardless
+- [00:10.640] uh we win. Regardless what happens, we
+- [00:13.360] win.
+- [00:14.440] Uh we've
+- [00:15.960] totally defeated that country.
+- [00:18.280] And so, let's see what happens. Maybe
+- [00:19.920] they make a deal, maybe they don't. Is
+- [00:22.040] it a good time to talk about And from
+- [00:23.760] that point of America, we win. One other
+- [00:26.080] thing that's happening
+- [00:27.640] is that boats are sailing up
+- [00:29.760] and they're heading out to our country.
+- [00:32.680] Big, beautiful tankers, and we're
+- [00:34.640] loading them up with oil and gas and
+- [00:36.720] everything else, and
+- [00:38.080] uh
+- [00:38.760] pretty beautiful thing to see. Mr.
+- [00:40.240] President, what about the oil
+- [00:42.160] that may be behind us?
+- [00:43.680] from Iran? After the deal with Iran, do
+- [00:45.640] you think the release of Iran affected
+- [00:47.000] other countries? We're going to see what
+- [00:48.440] happens. We're uh
+- [00:50.240] in very deep negotiations with Iran.
+- [00:53.600] Uh
+- [00:54.640] we win, regardless. We've defeated them
+- [00:56.760] militarily.
+- [00:58.480] Uh they've dropped a couple of
+- [01:00.640] uh water mines, you call them water
+- [01:02.040] mines in the boat. We've defeated all of
+- [01:03.840] their water boats, too. Their navy is
+- [01:05.600] gone. 158 ships.
+- [01:08.120] They have 28 water droppers, mine
+- [01:10.480] droppers, they call them. All of them
+- [01:12.600] are sunk.
+- [01:14.160] They probably have a couple of mines in
+- [01:15.800] the water. We have mine sweepers out
+- [01:17.400] there. We're sweeping the strait.
+- [01:20.440] In addition to that, we're negotiating
+- [01:22.320] whether we
+- [01:23.520] make a deal or not makes no difference
+- [01:25.560] to me.
+- [01:27.760] And the reason is because we've won.
+- [01:29.840] When they listed to the fake news
+- [01:31.240] tonight, you know,
+- [01:32.800] it's amazing that their credibility is
+- [01:35.600] down to 13%.
+- [01:37.640] The media credibility down to 13%.
+- [01:40.880] Think of it. We defeated their navy. We
+- [01:43.160] defeated their air force. We defeated
+- [01:45.520] their anti-aircraft. We defeated their
+- [01:47.720] radar. We defeated their leaders. Their
+- [01:50.240] leaders are all dead.
+- [01:52.560] And now, all we do is we'll open up the
+- [01:54.720] strait, even though we don't use it,
+- [01:56.760] because we have a lot of other countries
+- [01:58.360] in the world that do use it that are
+- [02:01.960] either afraid
+- [02:03.600] or weak
+- [02:04.840] or cheap.
+- [02:06.200] I don't know what it is, but we were not
+- [02:07.960] helped by NATO, that I can tell you.
+- [02:15.360] How do you know that? Why do you say
+- [02:16.600] that?
+- [02:18.440] Why do you say that? You don't know
+- [02:19.880] anything. Who you with? Who you with?
+- [02:21.960] ABC? NBC. Well, that's fake news. Let
+- [02:24.920] Let me just tell you.
+- [02:26.640] We win.
+- [02:27.840] No matter what. We've defeated them
+- [02:29.880] militarily. They have no navy. 158 ships
+- [02:32.840] are underwater, under sea.
+- [02:34.840] All of their mine sweepers and all of
+- [02:37.160] their They call them mine droppers. Can
+- [02:39.320] you imagine? A country has 28 mine
+- [02:42.920] droppers. You think that's nice? With
+- [02:45.000] all of that being said, they're all
+- [02:46.240] defeated, by the way. They're all at the
+- [02:47.680] bottom of the sea. Now,
+- [02:50.200] with all of that, they have no navy.
+- [02:52.840] They have no radar. They have no air
+- [02:55.000] force. Their leaders are all dead.
+- [02:57.800] With Soleimani is gone. Many years he
+- [03:00.680] ruled. He's gone.
+- [03:03.600] With all of that, let's see what
+- [03:05.320] happens. But from my standpoint, I don't
+- [03:07.560] care.
+- [03:13.600] Well, if China does that, China's going
+- [03:15.600] to have big problems, okay?

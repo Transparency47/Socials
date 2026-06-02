@@ -1,0 +1,232 @@
+<!-- source: https://www.youtube.com/watch?v=KaQLqlqPbrw -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: KaQLqlqPbrw -->
+<!-- date_published: 2026-04-28T15:29:55+00:00 -->
+<!-- date_accessed: 2026-06-02T02:34:48.180918+00:00 -->
+
+# Transcript: President Trump and the First Lady Participate in a Greeting with the King and Queen of the UK
+
+- [00:09.770] Announcer: Ladies and gentlemen, please rise if you are able,
+- [00:13.490] as honors are rendered to the President
+- [00:15.600] and remaining standing for the arrival of their Majesties,
+- [00:18.980] King Charles III and Queen Camilla,
+- [00:21.640] and the playing of the National Anthems
+- [00:23.670] of the United Kingdom and the United States.
+- [00:53.570] Ladies and gentlemen,
+- [00:54.930] the President of the United States,
+- [00:56.980] Donald J. Trump, and First Lady Melania Trump.
+- [01:01.720] ♪ (Hail to the Chief) ♪
+- [01:27.720] ♪ (patriotic music) ♪
+- [01:54.885] ♪ (drum roll) ♪
+- [02:02.885] ♪ (band music) ♪
+- [04:58.550] Announcer: Ladies and gentlemen,
+- [05:00.110] the National Anthem of the United Kingdom,
+- [05:02.690] followed by the National Anthem of the United States.
+- [05:38.540] ♪ (United Kingdom National Anthem) ♪
+- [06:25.710] ♪ (United States National Anthem) ♪
+- [07:54.380] Announcer: Ladies and gentlemen, please be seated.
+- [08:37.240] ♪ (band music) ♪
+- [11:38.240] ♪ (marching band music) ♪
+- [13:36.883] (military drill commands)
+- [13:54.883] (military drill commands)
+- [14:13.730] Announcer: Ladies and gentlemen,
+- [14:15.120] the President of the United States,
+- [14:17.210] Donald J. Trump.
+- [14:19.390] (applause)
+- [14:25.100] The President: Thank you very much.
+- [14:28.460] Thank you very much, everybody.
+- [14:30.160] What a beautiful British day this is. And it really is.
+- [14:38.050] Your Majesties, members of the British delegation,
+- [14:42.790] friends, service members and distinguished guests,
+- [14:45.730] welcome to the beautiful White House,
+- [14:49.290] great honor to have you.
+- [14:51.280] Melania and I will never forget the spectacular honor
+- [14:54.480] Your Majesties showed us during our extraordinary visit
+- [14:58.670] to Windsor Castle last September.
+- [15:03.020] Now, it is our tremendous privilege to host you,
+- [15:06.550] and you're going to have a wonderful short stay,
+- [15:10.120] but stay, nevertheless.
+- [15:12.630] Then you're going over to Congress,
+- [15:14.650] and you're going to make a speech
+- [15:16.650] that's going to make everybody very envious
+- [15:19.230] of that beautiful accent of yours.
+- [15:21.650] Very elegant, he's a very elegant man.
+- [15:25.120] Here in the shadows of monuments to George Washington,
+- [15:28.500] Thomas Jefferson honoring,
+- [15:30.990] the British king might seem an ironic beginning
+- [15:35.760] to our celebration of 250 years of American independence.
+- [15:40.800] But in fact, no tribute could be more appropriate.
+- [15:45.160] Long before Americans had a nation or a constitution,
+- [15:49.000] we first had a culture, a character, and a creed.
+- [15:53.840] Before we ever proclaimed our independence,
+- [15:56.370] Americans carried within us the rarest of gifts,
+- [16:00.970] moral courage, and it came from a small
+- [16:03.740] but mighty kingdom from across the sea.
+- [16:07.690] For nearly two centuries before the revolution,
+- [16:10.290] this land was settled and forged by men
+- [16:12.840] and women who bore in their souls the blood
+- [16:16.360] and noble spirit of the British.
+- [16:19.300] Here, on a wild and untamed continent,
+- [16:22.810] they set loose the ancient English love of liberty
+- [16:26.170] and Great Britain's distinctive sense of glory,
+- [16:29.700] destiny and pride.
+- [16:30.910] And that's what it is -- glory, destiny and pride.
+- [16:36.060] The American patriots who pledged their lives
+- [16:38.830] to independence in 1776
+- [16:41.580] were the heirs to this majestic inheritance,
+- [16:45.760] their veins ran with Anglo-Saxon courage,
+- [16:49.840] their hearts beat with an English faith
+- [16:52.160] in standing firm for what is right, good and true.
+- [16:58.310] In recent years we've often heard it said
+- [17:00.810] that America is merely an idea.
+- [17:04.550] But the cause of freedom did not simply appear
+- [17:08.530] as an intellectual invention of 1776.
+- [17:13.500] The American founding was the culmination
+- [17:16.980] of hundreds of years of thought, struggle, sweat, blood,
+- [17:20.370] and sacrifice on both sides of the Atlantic.
+- [17:25.800] Fate drew a long arc from the meadow at Runnymede
+- [17:30.140] to the streets of Philadelphia
+- [17:31.850] that ran through the lives of people
+- [17:34.040] born and bred on the British code
+- [17:36.920] that no man should be denied either justice or right.
+- [17:43.180] American patriots today can sing My Country Tis of Thee,
+- [17:48.200] Sweet Land of Liberty
+- [17:51.280] only because our colonial ancestors first sang God
+- [17:56.790] Save the King.
+- [18:00.080] We see today a living symbol of this century's old bond
+- [18:05.270] just a few dozen feet to the left, where I stand.
+- [18:11.740] There, her late
+- [18:13.960] Majesty, Queen Elizabeth, an incredible woman
+- [18:19.540] who I had the privilege of getting to know.
+- [18:23.760] Queen Elizabeth the Second, a very, very special woman
+- [18:26.860] who is very greatly missed
+- [18:29.420] on both sides of that mighty Atlantic,
+- [18:33.130] long ago planted a young tree,
+- [18:35.900] it was a very young and beautiful tree
+- [18:38.740] and look at it now.
+- [18:41.750] It's tripled in size and tripled in strength,
+- [18:45.480] very much as our nations have even more than tripled.
+- [18:50.460] Like our nation itself, it was laid with British hands
+- [18:53.770] but grew in American soil.
+- [18:56.090] Today it stands tall and proud, reaching ever higher.
+- [18:59.710] And this morning it reminds us that the mightiest of trees,
+- [19:04.090] like the greatest of nations, must be anchored
+- [19:06.570] by the strongest and deepest of roots.
+- [19:10.700] In the centuries since we won our independence,
+- [19:14.600] Americans have had no closer friends than the British.
+- [19:20.260] We share that same root. We speak the same language.
+- [19:25.760] We hold the same values.
+- [19:28.630] And together, our warriors have defended
+- [19:31.060] the same extraordinary civilization
+- [19:34.280] under twin banners of red, white and blue.
+- [19:39.280] My wonderful mother, Mary McLeod.
+- [19:41.760] Mary McLeod was born in Stornoway, Scotland,
+- [19:47.420] the Hebrides, and that's what they call very serious Scotland,
+- [19:51.010] there's no question about it.
+- [19:53.030] Some places they say, well, it wasn't really Scotland.
+- [19:55.890] The Hebrides, that's real serious Scotland.
+- [19:59.670] That's where they had their greatest of warriors,
+- [20:02.190] their greatest of warriors. She came to America at 19,
+- [20:08.120] met my incredible father -- we loved him so much,
+- [20:12.300] we all loved him we loved her, we loved him --
+- [20:16.200] Fred and they were married for 63 years.
+- [20:22.270] And excuse me, if you don't mind.
+- [20:25.280] That's a record we won't be able to match, darling.
+- [20:28.140] I'm sorry, it's just not going to work out that way.
+- [20:30.930] We'll do well, but we're not going to do that well. 63 years.
+- [20:37.300] And my mother, I just see it so clearly, she loved --
+- [20:46.140] I told the King this --
+- [20:48.030] she loved the royal family and she loved the Queen.
+- [20:54.140] And any time the Queen was involved
+- [20:57.690] in a ceremony or anything,
+- [20:59.930] my mother would be glued to the television.
+- [21:03.470] And she'd say, look, Donald, look how beautiful that is.
+- [21:08.520] She really did love the family, but I also remember her
+- [21:11.980] saying very clearly, Charles, look, young
+- [21:17.640] Charles, he's so cute. That's my mother.
+- [21:23.860] My mother had a crush on Charles; can you believe it?
+- [21:28.710] Amazing how -- I wonder what she's thinking right now.
+- [21:33.350] But beneath those beautiful flags, eight decades ago,
+- [21:37.420] Prime Minister Winston Churchill and President Franklin
+- [21:40.920] Roosevelt famously met on a ship in the North Atlantic
+- [21:45.880] to outline a vision for the free world after World War II.
+- [21:51.370] That understanding of our nation's
+- [21:52.960] unique bond and role in history
+- [21:54.960] is the essence of our special relationship,
+- [21:59.250] and we hope it will always remain that way.
+- [22:03.620] The ship where the two great leaders met
+- [22:07.220] was called the Prince of Wales,
+- [22:09.650] the very title that His Majesty the King
+- [22:11.870] held longer than any other individual in British history,
+- [22:16.200] and he held it with great pride and respect.
+- [22:21.190] It's said that when Prime Minister Churchill
+- [22:23.820] first met this future king many decades ago,
+- [22:28.020] he was so impressed he made the statement.
+- [22:31.430] He is so young to think so much and so well.
+- [22:37.810] And the bust of your great prime minister
+- [22:44.130] rests proudly again in the Oval Office.
+- [22:48.030] We're very proud to bring it back.
+- [22:50.250] We brought it back. Throughout His Majesty's life the world
+- [22:56.450] has witnessed that same thoughtfulness
+- [22:59.030] which first struck Britain's greatest prime minister.
+- [23:03.170] His Majesty's intellect, passion and devotion have been long,
+- [23:08.390] really long a blessing,
+- [23:09.800] a blessing to the British people,
+- [23:14.400] but not only to his own country, but to the cherished bond
+- [23:18.690] between the United States and the United Kingdom.
+- [23:22.880] And I am very certain that it will continue
+- [23:27.320] that way long into the future. In a few hours, His Majesty
+- [23:32.330] will stand in the heart of the United States Capitol
+- [23:37.580] as the very first British king ever to address
+- [23:42.140] a joint session of the United States Congress.
+- [23:47.630] So, he's going to be addressing Congress,
+- [23:51.090] and I'm going to be watching.
+- [23:53.480] I was thinking of going, but they said, I don't know,
+- [23:56.260] that might be a step too far. I would love to go.
+- [24:00.360] It's not supposed to be protocol,
+- [24:02.220] but I would love to be with you.
+- [24:04.940] But there the direct descendant of King George the Third
+- [24:09.460] will speak to the direct successor of the very body
+- [24:14.070] that gathered in Independence Hall on July 4, 1776.
+- [24:20.480] If John Adams and George Washington
+- [24:22.670] or the King's fifth great grandfather could see that site,
+- [24:27.030] they might be absolutely shocked,
+- [24:30.180] but probably only for a moment.
+- [24:33.570] Surely they would be delighted that the wounds of war
+- [24:38.750] healed into the most cherished friendship.
+- [24:41.050] Think of that very, very long ago, difficult war,
+- [24:47.230] and yet those wounds did indeed heal
+- [24:50.440] into the most cherished of friendships, most cherished.
+- [24:54.620] They would be moved beyond words to know
+- [24:57.260] that the soldiers who once called each other redcoats
+- [25:01.190] and Yankees became the Tommies and the GIS,
+- [25:04.700] who together saved the free world
+- [25:07.090] as brothers in arms and brothers in eternity.
+- [25:10.040] And nobody fought better together than us.
+- [25:14.600] If they could see us today,
+- [25:17.310] our ancestors would surely be filled with awe and pride
+- [25:22.220] that the Anglo-American Revolution in human freedom
+- [25:25.840] was never, ever extinguished,
+- [25:28.930] but carried forward across centuries,
+- [25:30.950] across oceans and across history
+- [25:33.420] until it became a fire that lit the entire world.
+- [25:37.820] So, today, we look back on 250 years.
+- [25:43.480] Let us remember what has made our countries
+- [25:46.950] the two most exceptional nations the world has ever known.
+- [25:52.860] And together, let us go forward with even stronger resolve
+- [25:56.040] to carry on our sacred devotion to liberty
+- [25:59.130] and to the traditions of excellence
+- [26:02.010] that have been our shared gift of all mankind.
+- [26:07.330] Your Majesties, thank you once again
+- [26:09.430] for making this important visit. We are so honored.
+- [26:16.680] May God forever bless the United Kingdom,
+- [26:21.160] Great Britain and Northern Ireland
+- [26:24.560] and may God bless the United States of America.
+- [26:28.550] Thank you very much, everybody. Thank you.
+- [26:32.030] (applause)
+- [26:50.040] (military drill commands)
+- [27:01.600] Announcer: Ladies and gentlemen, please rise
+- [27:03.960] if you are able for the conclusion of the ceremony
+- [27:06.830] and departure of the official party.
+- [27:15.360] ♪ (band music) ♪

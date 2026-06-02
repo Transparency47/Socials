@@ -1,0 +1,289 @@
+<!-- source: https://www.youtube.com/watch?v=-KznS2KtGPo -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: -KznS2KtGPo -->
+<!-- date_published: 2025-02-12T03:47:53+00:00 -->
+<!-- date_accessed: 2026-06-02T02:53:56.032416+00:00 -->
+
+# Transcript: President Trump Greets and Welcomes Marc Fogel Back to The United States
+
+- [00:04.640] hand
+- [00:09.700] [Applause]
+- [00:14.240] Loop thank you very
+- [00:18.520] much so beautiful look at nice be
+- [00:21.400] careful could be a
+- [00:23.279] littleit you don't want to SC yeah that
+- [00:26.960] would be it that would be
+- [00:36.200] somebody else very special very
+- [00:44.520] special very fair very very
+- [00:48.600] fair is it a Russian
+- [00:50.879] prisoner we're going to announce it
+- [00:52.960] tomorrow very fair
+- [01:05.119] Mr President why did you not use the
+- [01:06.880] government plane to go pick save the
+- [01:09.840] government
+- [01:10.880] money a lot we save the government a lot
+- [01:13.600] of
+- [01:14.240] money are you concern
+- [01:24.990] [Music]
+- [01:45.759] mother very difficult to articulate how
+- [01:49.439] proud I am you I am what done and came
+- [01:55.719] back in my country and it's the most
+- [02:20.120] I'm in in
+- [02:23.640] total my thanks is for you and your
+- [02:27.840] Administration and
+- [02:30.560] people that have brought me home and I
+- [02:34.959] just will spend the rest of my life in
+- [02:38.519] to you
+- [02:40.440] and I'm so
+- [02:46.440] excited pleasure to meet
+- [02:50.040] you and you know what I got about 10
+- [02:52.959] cards and one of
+- [02:56.480] them my lawyer snuck asked
+- [03:03.920] hello F pleasure to meet you sir this
+- [03:08.480] right yeah and it is a pleasure to meet
+- [03:10.280] you Mr Squirrel
+- [03:12.879] Hill I had a Steeler hat on when I got
+- [03:16.000] off the
+- [03:18.120] plan I don't know where it is but you
+- [03:20.440] know it's great to meet another your mom
+- [03:22.599] came to our house she told me that and
+- [03:25.480] uh I just talked to Vicki and I know she
+- [03:27.640] was there and at the
+- [03:31.000] I'm a proud
+- [03:33.840] PSB
+- [03:36.760] russan you've been an absolute star for
+- [03:40.760] me and my family and again uh you know
+- [03:45.879] like I said for me for me to articulate
+- [03:48.560] all this in this particular time after
+- [03:51.080] what I've been through and it's not the
+- [03:54.040] three and a half years but the last 6
+- [03:56.680] days has been
+- [03:59.920] quite you weren't
+- [04:03.079] sure they came and pulled me out
+- [04:06.840] and had a mask on I couldn't see where I
+- [04:10.239] was going and they were moving me
+- [04:13.280] and uh there was a point I think it was
+- [04:18.560] today what is but they brought me my
+- [04:24.120] clothes that's that's fantastic let's
+- [04:26.720] get you out of the cold I'm not one bit
+- [04:29.080] of cold I can't from
+- [04:35.120] Russia and you know what of the 10
+- [04:37.560] letters I got one from you as well and
+- [04:42.520] uh I had that in a uh scrapbook I was
+- [04:46.000] keeping and they took that scrapbook
+- [04:48.080] from me today and I want it back I want
+- [04:51.759] those journals back in that scrapbook
+- [04:54.759] your picture was in it and as they were
+- [04:56.840] you know giving me the Shakedown they're
+- [04:58.960] looking through and I have the picture
+- [05:00.520] of you and my mom oh that's and you
+- [05:02.600] should have seen these guys their their
+- [05:04.600] eyes lit up like in like
+- [05:37.800] heart from every ounce of my energies I
+- [05:41.919] thank you and I will for the rest of my
+- [05:45.520] life to have you
+- [05:49.680] home the I felt soad
+- [05:53.440] stop it's all cold in Russia yeah yeah a
+- [05:56.880] little cold
+- [06:14.479] everybody knows
+- [06:15.880] Mark he's become a very famous guy he's
+- [06:19.800] a very happy guy tonight so it's it's
+- [06:22.319] just a real honor an honor to have you
+- [06:24.800] at the white us I feel like the luckiest
+- [06:27.479] man on Earth right now
+- [06:30.000] and
+- [06:33.039] uh I want you to know that I am not a
+- [06:35.599] hero in this at
+- [06:37.039] all
+- [06:38.720] and president Trump is a
+- [06:42.840] hero these men that came from the
+- [06:45.919] Diplomatic service are
+- [06:50.960] heroes the Senators and and
+- [06:53.840] representatives that pass legislation in
+- [06:56.240] my honor to get me home are the
+- [07:01.240] heroes uh I am in awe of what they all
+- [07:06.080] did uh my family has been a
+- [07:09.759] force true I think my 95-year-old mother
+- [07:13.240] is
+- [07:14.960] probably the most dynamic 95y old on
+- [07:18.520] earth right
+- [07:19.759] now and uh I am so indebted to so many
+- [07:25.720] people I I think I remember a a
+- [07:28.120] Churchill quote that he
+- [07:30.400] said when the RAF was fighting the lift
+- [07:33.440] off and he said that uh never have so
+- [07:38.280] many owed so much to so few and I put
+- [07:43.960] myself fortunately in unfortunately into
+- [07:46.720] that category and I said never has one
+- [07:49.199] owed so much to so many that this super
+- [07:54.599] organism of people that came to my
+- [07:56.960] support
+- [08:00.159] and the love that I was
+- [08:03.240] given sustain sustained me for three and
+- [08:06.199] a half
+- [08:07.520] years in a prison that had me in
+- [08:11.080] hospitals for more than 100 days I was
+- [08:15.159] given more than 400
+- [08:17.479] injections in that time and knowing I
+- [08:23.000] had the support of my fellow
+- [08:26.159] pennsylvanians my family my friends
+- [08:31.000] uh it
+- [08:32.880] was so
+- [08:34.919] overwhelming that
+- [08:37.919] uh uh it brought me to my knees and it
+- [08:41.760] brought me to tears but it was uh it was
+- [08:46.800] my energy it was
+- [08:49.760] my being that that kept me going that
+- [08:52.959] whole time and I will forever be
+- [08:57.760] indebted president Trump
+- [09:02.040] to Steve over there what a dynamic man
+- [09:05.120] this guy is that's
+- [09:11.279] true when I met him the energy the can
+- [09:15.600] do attitude
+- [09:17.959] just exudes from his body and when he
+- [09:21.480] smiled at me and introduced me and I got
+- [09:23.880] the feel for what has
+- [09:25.640] happened you know it's not just me it's
+- [09:28.360] it's everybody and and secretary Rubio
+- [09:31.000] who met my son a while
+- [09:33.760] back uh
+- [09:36.000] I'm I'm a middle class school teacher
+- [09:39.600] who's
+- [09:43.120] now in
+- [09:45.000] a a dream world we're going to show you
+- [09:48.640] the Lincoln bedroom in a little while
+- [09:50.959] it's a very special special place
+- [09:53.760] appropriate for tonight very
+- [09:56.399] appropriate and um
+- [10:01.279] thank you all and I love our
+- [10:05.120] country and I'm so happy to be back
+- [10:08.600] here
+- [10:12.560] and I wish I could articulate it better
+- [10:15.640] you've done beautifully and U he's got a
+- [10:18.000] great mother and want I show the mother
+- [10:20.680] at a rally she said would you if you win
+- [10:24.120] will you get my son out and I promise
+- [10:25.959] she's 95 years old and I said we'll get
+- [10:29.079] him out out and we we got him out pretty
+- [10:31.279] quickly she told me that ex that EXA
+- [10:34.200] that exact words I remember she made
+- [10:36.600] quite an impression and you also did and
+- [10:41.240] uh I'm in all of what you've done and
+- [10:44.040] your team it's great to have you back oh
+- [10:46.399] going to have a great life president did
+- [10:48.880] you speak directly to President Putin
+- [10:50.639] about well I don't want to say that I
+- [10:52.760] just want to say that I appreciate very
+- [10:54.519] much what they did in uh letting Mark go
+- [10:57.880] home and uh I appreciate Steve witkoff
+- [11:01.720] the job he did and Marco behind the
+- [11:03.600] scenes was
+- [11:04.680] unbelievable and so many of these people
+- [11:07.320] were unbelievable they they represent
+- [11:09.519] him they're from his area uh and uh we
+- [11:13.920] we just wanted to get him back home I I
+- [11:16.000] had to get him back home because I would
+- [11:18.040] had big trouble with his mother and and
+- [11:20.560] we're going to take him for a little
+- [11:21.600] tour of the Lincoln bedroom which nobody
+- [11:23.480] gets to see and it's very special you
+- [11:26.040] want to see it I would love to and I I
+- [11:28.560] also should make mention that that
+- [11:31.560] President Putin was very generous and
+- [11:35.200] statesmanlike in granting me a pardon I
+- [11:38.839] I
+- [11:39.680] mean what were the terms of this deal Mr
+- [11:42.360] President uh very fair very very fair
+- [11:44.760] very reasonable not like deals you've
+- [11:46.399] seen over the years they were very fair
+- [11:50.480] and I think that's going to lead and
+- [11:51.839] where somebody else is being released
+- [11:53.760] tomorrow that you will know of uh but we
+- [11:57.120] wanted to get this done very important
+- [11:59.320] and Steve wanted to actually fly over
+- [12:01.120] and get Mark and get him home properly
+- [12:04.079] because it could be a pretty tough trip
+- [12:06.160] so is this so is this the beginning of a
+- [12:07.639] deal sir is this is this the start I
+- [12:09.639] think there's Goodwill in terms of the
+- [12:11.920] war you know a million and a half
+- [12:13.560] soldiers young people have been killed
+- [12:15.839] I've met many of them yeah and it's uh
+- [12:18.880] it's a terrible thing going on so we
+- [12:20.720] want to get that done I think I think
+- [12:22.639] this could be the very important element
+- [12:25.079] you could be a big part of it actually
+- [12:26.839] because it could be a big uh important
+- [12:29.399] part of getting the war over with
+- [12:31.880] Ukraine and we appreciate President
+- [12:34.440] Putin's what he what he did he was able
+- [12:38.279] to pull it off for you right he was able
+- [12:40.519] to pull it off we we think and you're
+- [12:43.240] here and here so it was great uh we'll
+- [12:46.880] tell you a little bit more about it
+- [12:48.199] tomorrow but I think we've made great
+- [12:50.000] progress progress on the war also
+- [12:52.360] getting the War I want to get the war
+- [12:54.120] ended that war should not have been it
+- [12:56.519] would have never happened if I was
+- [12:57.920] President it would not have happened
+- [12:59.199] happened and it did happen and now you
+- [13:01.279] have all blown up cities and dead people
+- [13:04.160] so many dead people should have never
+- [13:06.240] ever happened and uh you could be a big
+- [13:09.079] Catalyst for just this evening it's a
+- [13:11.639] very important evening for ending that
+- [13:13.680] war and I think they all want to see it
+- [13:15.720] ended how does it change how does it
+- [13:18.519] change your perspective on Putin and
+- [13:20.680] your attitud well I don't want to get
+- [13:22.000] into that I only can say this uh we got
+- [13:24.079] a man home whose mother and family
+- [13:26.920] wanted him desperately whose State
+- [13:28.639] wanted him he's he's become a big
+- [13:31.839] symbol and uh it's an honor to have
+- [13:35.399] played a small role in that and I just I
+- [13:38.240] want to tell you these people they they
+- [13:39.959] all played a role and we got him home
+- [13:43.040] and he's he's healthy it looks good
+- [13:45.639] actually to me you look damn good I'll
+- [13:47.199] tell you that I think when expectations
+- [13:49.519] are low maybe maybe that helps a little
+- [13:52.320] bit go plunk right can you tell us about
+- [13:54.880] the conditions of the prison that you
+- [13:56.240] were in sir uh you know I think I need a
+- [13:59.560] little bit of time to sort of digest all
+- [14:02.560] of that there were times
+- [14:05.880] when it was extremely trying there were
+- [14:10.279] times when I could manage it but I I
+- [14:13.480] think I need some more time to you know
+- [14:16.880] it wasn't it wasn't easy right it wasn't
+- [14:19.440] easy every second every minute every day
+- [14:22.519] had a challenge but you're but you're in
+- [14:24.800] good shape I mean compare that to what
+- [14:26.600] we saw two days ago come home they were
+- [14:30.120] very very ill those people are very ill
+- [14:32.639] they were treated really badly Mr
+- [14:35.519] President your predecessor left to
+- [14:37.279] almost $4 billion in unused uh aid for
+- [14:40.720] Ukraine to Ukraine are you going to use
+- [14:43.320] those money are you going to send but
+- [14:45.720] myor should have had this gentleman out
+- [14:48.639] a long time ago you know we did it in
+- [14:51.279] two and a half weeks he's he had four
+- [14:52.880] years to do it you should have had Mark
+- [14:54.839] out a lot earlier it's uh it's a a shame
+- [14:59.639] it's a shame it was very should have had
+- [15:02.120] never had the war to start off with
+- [15:04.480] should have never had that war would
+- [15:05.720] have never happened but he should have
+- [15:08.000] had him back three and a half years ago
+- [15:10.399] so it was it was too bad but he didn't
+- [15:12.880] do it but we did it thank you all very
+- [15:14.759] much thank you very much come on Mr
+- [15:17.079] President are reciprocal tariffs still
+- [15:18.560] coming tomorrow or are you waiting until
+- [15:20.279] you meet we'll see what
+- [15:23.079] happens have you spoken with President
+- [15:27.959] G so B

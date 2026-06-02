@@ -1,0 +1,238 @@
+<!-- source: https://www.youtube.com/watch?v=dRmQwgRzcwQ -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: dRmQwgRzcwQ -->
+<!-- date_published: 2025-01-25T15:33:12+00:00 -->
+<!-- date_accessed: 2026-06-02T02:54:40.914392+00:00 -->
+
+# Transcript: Vice President Vance Swears in Pete Hegseth to be Secretary of Defense
+
+- [00:03.080] [Applause]
+- [00:20.680] well good morning everybody I am so
+- [00:22.400] happy to be here today and so thrilled
+- [00:24.840] to be able to swear in our new secretary
+- [00:27.679] of defense and we are honored to have
+- [00:30.119] him now before we do that I have to say
+- [00:31.679] a few words of appreciation uh first of
+- [00:34.520] course to the president of the United
+- [00:36.200] States for nominating a person who is
+- [00:39.040] respected and adored by the war Fighters
+- [00:41.480] This is a secretary of defense who will
+- [00:43.600] stand up for the men and women that we
+- [00:44.960] send overseas to fight our nation's Wars
+- [00:47.199] I think a lot of them feel that they
+- [00:48.879] haven't had somebody who's had their
+- [00:50.320] back that will change because the
+- [00:52.320] president of the United States nominated
+- [00:53.840] this guy and we are grateful to
+- [00:55.280] president Trump for doing so I
+- [01:05.600] I also want to say thank you to my
+- [01:07.720] Senate colleagues it turns out we
+- [01:09.320] couldn't spare one and all of you did an
+- [01:11.680] incredible job in particular my my dear
+- [01:14.720] friend Roger wicker thank you for
+- [01:16.200] shepherding Pete through the committee
+- [01:18.000] Roger did a great
+- [01:19.490] [Applause]
+- [01:23.439] job and in addition all of the members
+- [01:25.960] of the Senate armed services committee
+- [01:27.560] who I know gave the the gave Pete the
+- [01:31.200] vetting and the hearing that he deserved
+- [01:33.600] and I'm glad that we all ultimately
+- [01:35.600] decided that the president's nominee for
+- [01:38.240] Secretary of Defense ought to be our
+- [01:40.079] actual Secretary of Defense and we're
+- [01:41.759] here today to say one final thing if you
+- [01:44.280] look at what has separated president
+- [01:46.079] Trump from so many of the people who
+- [01:47.920] came before him it is the view that
+- [01:50.360] number one we should be sparing and how
+- [01:53.240] we
+- [01:53.960] deplore and how we deploy our most
+- [01:57.320] precious resource which is the men and
+- [01:58.960] women who are willing to put put on the
+- [02:00.159] uniform and put their life on the line
+- [02:01.799] for this country we shouldn't send them
+- [02:04.079] everywhere but two when we do send them
+- [02:07.119] anywhere we ought to empower them with
+- [02:08.840] the tools necessary to fight and win
+- [02:11.599] quickly and come home afterwards and
+- [02:14.200] that is what sets this Administration
+- [02:16.160] apart and that's what Pete hex
+- [02:22.920] represents now finally I of course have
+- [02:25.280] to thank the nominee himself Pete thank
+- [02:27.440] you for Willing being willing to put
+- [02:28.920] yourself out there I think you've shown
+- [02:30.360] yourself a man of deep character and of
+- [02:33.000] resolve over the last few months
+- [02:35.080] Jennifer thank you for standing by our
+- [02:36.959] new secretary of defense and your
+- [02:39.159] beautiful family from your kids to the
+- [02:41.560] extended family you guys did a hell of a
+- [02:43.840] job we're proud of you and we're glad to
+- [02:46.080] have you in Washington as we work to
+- [02:48.159] make America great again so with that
+- [02:50.239] let me administer the oath of office
+- [02:52.760] kids come on
+- [02:55.480] up come on guys
+- [03:02.599] all right put your hand on the Bible
+- [03:04.400] raise your right hand and repeat after
+- [03:06.959] me I Pete hegf I Pete hegf do solemnly
+- [03:11.360] swear do solemnly swear that I will
+- [03:13.879] support and defend the Constitution of
+- [03:15.840] the United States that I will support
+- [03:17.879] and defend the Constitution of the
+- [03:19.640] United States against all enemies
+- [03:21.799] foreign and domestic against all enemies
+- [03:24.159] foreign and domestic that I will bear
+- [03:26.239] true faith and allegiance to the same
+- [03:28.239] that I will bear true faith and
+- [03:29.879] allegiance to the same that I take this
+- [03:31.720] obligation freely that I take this
+- [03:33.760] obligation freely without any mental
+- [03:36.480] reservation or purpose of evasion
+- [03:38.959] without any mental reservation or
+- [03:41.280] purpose of evasion and that I will well
+- [03:43.959] and Faithfully discharge and that I will
+- [03:46.280] well and Faithfully discharge the duties
+- [03:48.879] of the office on which I am about to
+- [03:50.560] enter the duties of the office of which
+- [03:53.159] I am about to enter so help you God so
+- [03:55.640] help me God congratulations Mr secretary
+- [04:06.890] [Applause]
+- [04:17.000] congratulations Mr secretary St
+- [04:22.120] words all all praise and glory to God um
+- [04:26.960] his will be done and we're grateful to
+- [04:28.759] be here
+- [04:30.400] uh and as I said in my hearing uh it was
+- [04:33.000] Jesus and Jenny I I would not be here
+- [04:35.600] without you sweetheart um thank you so
+- [04:39.759] much I want to thank the president of
+- [04:41.680] the United States our commander-in-chief
+- [04:44.479] Donald Trump we could not have a better
+- [04:46.440] commander-in-chief than him it is the
+- [04:48.520] honor of a lifetime sir to serve under
+- [04:51.479] you uh we look forward to having the
+- [04:53.880] backs of our troops and having your back
+- [04:55.880] in executing peace through strength in
+- [04:58.120] putting America first
+- [05:00.320] uh and in rebuilding our military uh Mr
+- [05:03.320] Vice
+- [05:04.160] President thank you for uh breaking the
+- [05:08.960] tie it it's it's not the last time or
+- [05:11.840] not the first time the headline reads
+- [05:14.320] Junior enlisted Marine bails out Junior
+- [05:16.960] army
+- [05:19.440] officer and you know some people were
+- [05:21.319] saying well 50/50 that's that's too
+- [05:23.360] tight and uh Senator Mark Wayne Mullen
+- [05:25.759] was was nice enough to take my uh kids
+- [05:27.800] up to the gallery to watch the actual
+- [05:30.240] uh moment that that the vice president
+- [05:33.319] sealed the deal and they came running in
+- [05:36.600] they said Dad instead of being sad about
+- [05:38.520] 50 to 50 51 to 50 they said dad you won
+- [05:41.400] an
+- [05:43.479] overtime that's the perspective I like
+- [05:46.160] so thank you throughout this process Mr
+- [05:48.400] Vice President uh for being incredible I
+- [05:51.080] also want to thank the chairman of the
+- [05:52.800] Senate armed services committee so many
+- [05:54.360] members of the Senate arm Services
+- [05:55.759] committee we became fast friends in this
+- [05:58.840] process the advice the consent um the
+- [06:01.600] wisdom the guidance I look forward to
+- [06:03.600] working with all of you and other
+- [06:05.440] Senators uh to ensure the defense
+- [06:08.199] department has what it needs that our
+- [06:09.800] nation has what it needs and that we're
+- [06:11.520] prepared to defend it uh in all moments
+- [06:14.280] to my staff amazing staff who would with
+- [06:16.840] us this entire process I see so many of
+- [06:19.160] you through thick and
+- [06:20.720] thin we used to look at the betting odds
+- [06:22.880] every once in a while in this it was low
+- [06:25.440] at one point never do that uh but we
+- [06:28.720] defied them and there were so many uh
+- [06:31.199] folks on the inside and then allies on
+- [06:33.919] the outside uh who stood by us every
+- [06:36.599] single moment uh and we are eternally
+- [06:38.240] grateful for that um and I want to thank
+- [06:41.840] the war Fighters I want to thank the men
+- [06:44.240] and women wearing the uniform and I've
+- [06:46.479] said this before when I speak and I mean
+- [06:48.000] it every time I stand at a Podium and
+- [06:50.599] there's bright lights and cameras the
+- [06:52.960] first thing that goes through my head
+- [06:55.479] are the guys that I served with on the
+- [06:58.039] battlefield the men the women who I lock
+- [07:01.240] Shields with and put my life on the line
+- [07:02.840] with um who never get the spotlight who
+- [07:06.039] never have the cameras who people don't
+- [07:08.319] know what they did in dark and dangerous
+- [07:10.479] places um but I know and at the Pentagon
+- [07:14.280] we're going to remember and we're going
+- [07:15.240] to know and we're going to think about
+- [07:17.000] those warriors with every single
+- [07:18.960] decision that we make um we will put
+- [07:21.520] America for first we will bring peace
+- [07:23.319] through strength and the three
+- [07:24.800] principles I talked about are are what
+- [07:26.520] we will bring to that Pentagon restore
+- [07:28.599] the warrior ethos in everything that we
+- [07:30.680] do rebuild our military and reestablish
+- [07:34.680] deterrence uh we don't want to fight
+- [07:36.560] Wars we want to deter them as you said
+- [07:39.000] and we want to end them responsibly but
+- [07:40.479] if we need to fight them we're going to
+- [07:42.400] bring overwhelming and decisive Force to
+- [07:44.840] close with and destroy the enemy and
+- [07:46.319] bring our boys
+- [07:49.590] [Applause]
+- [07:57.120] home and to my other family that's here
+- [07:59.680] as well who I love
+- [08:02.120] um it's the honor of a lifetime and I
+- [08:05.039] would be remiss if I didn't know one
+- [08:06.680] person in this room uh who doesn't
+- [08:08.840] expect to be recognized but Captain rjo
+- [08:11.319] is here uh he was my company commander
+- [08:15.520] on my first deployment uh in Guantanamo
+- [08:17.879] Bay he was there on June
+- [08:20.680] 3rd 2003 when I first swore in as a
+- [08:24.000] second Lieutenant at Princeton
+- [08:26.199] University and he swore me in and I
+- [08:28.159] wanted to make sure he was here today
+- [08:29.319] with with me as well thank you very
+- [08:34.900] [Applause]
+- [08:39.159] much so Mr President thank you very much
+- [08:41.760] to the American people we have your back
+- [08:43.599] we're going to get to work right away
+- [08:45.200] God bless thank
+- [08:46.550] [Applause]
+- [08:53.600] you all right I guess that's it any
+- [08:57.320] questions I said why should women our
+- [08:59.720] service trust
+- [09:02.079] you guys let me answer that for the the
+- [09:04.720] new secretary all people in our armed
+- [09:07.720] services should trust him because he
+- [09:09.240] looks out for them and he's going to
+- [09:10.480] fight for them and he's going to make
+- [09:11.600] sure that we have the kind of military
+- [09:13.279] that we can all be proud in that we can
+- [09:15.160] all be proud of and that again when we
+- [09:17.720] send it to do a job we do it well we do
+- [09:19.760] it quickly and then we get the hell out
+- [09:21.079] and that's what secretary hexi is going
+- [09:22.680] to bring to the Department of Defense
+- [09:24.279] anything else are you worried about any
+- [09:26.480] other nominees coming really close to
+- [09:28.360] the line as we
+- [09:30.279] you know as I learned with the Buckey
+- [09:33.079] just a week
+- [09:34.600] ago when you win the championship you
+- [09:37.079] don't give a damn what the score was we
+- [09:38.760] won the championship on this one we've
+- [09:40.240] got a great secretary defense we're
+- [09:41.800] proud of him and he's going to do a
+- [09:42.760] great job thank you all take care
+- [09:45.410] [Applause]

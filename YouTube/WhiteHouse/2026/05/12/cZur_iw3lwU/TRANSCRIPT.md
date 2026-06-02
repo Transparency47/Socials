@@ -1,0 +1,435 @@
+<!-- source: https://www.youtube.com/watch?v=cZur-iw3lwU -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: cZur-iw3lwU -->
+<!-- date_published: 2026-05-12T20:34:44+00:00 -->
+<!-- date_accessed: 2026-06-02T00:59:50.412809+00:00 -->
+
+# Transcript: President Trump Gaggles with Press Before Departing the White House, May 12, 2026
+
+- [00:00.800] The Press. Hi, Mr. President: Mr. President? Good afternoon.
+- [00:09.620] The Press: (Inaudible)
+- [00:12.770] The President: Well, we're going to see what happens.
+- [00:15.860] We're only making a good deal.
+- [00:17.690] We have, their military's gone, it's wiped out,
+- [00:21.370] and we're only going to make a good deal,
+- [00:22.840] and we'll see what happens
+- [00:24.810] but I believe that one way or the other
+- [00:28.250] it's going to be very good for the American people,
+- [00:30.550] and I think actually very good for the Iranians.
+- [00:33.810] The Press: Are you reconsidering the (Inaudible)
+- [00:37.280] The President: No they're great. I think the --
+- [00:39.360] I think that the Pakistanis have been great.
+- [00:41.720] The field marshal and the prime minister of Pakistan
+- [00:44.780] have been absolutely great.
+- [00:46.510] The Press: (Inaudible) what do you think
+- [00:49.180] (Inaudible) president (Inaudible)
+- [00:50.450] this is going to be a long war?
+- [00:51.880] The President: Well I think number one
+- [00:53.110] we're going to have a long talk about it.
+- [00:56.060] I think he's been relatively good,
+- [00:58.680] to be honest with you. You look at the blockade, no problem.
+- [01:02.780] Uh, they get a lot of their oil from that area,
+- [01:04.650] and we've had no problem,
+- [01:05.880] and he's been a, a friend of mine,
+- [01:07.920] he's been somebody that we get along with
+- [01:10.840] and I think we can see that good things are going to happen.
+- [01:14.490] This is going to be a very exciting trip.
+- [01:16.240] A lot of good things are going to happen.
+- [01:17.780] The Press: Mr. President (Inaudible)
+- [01:18.980] do you think he needs to intervene at all
+- [01:20.540] (Inaudible)
+- [01:21.760] The President: I don't think he does.
+- [01:22.640] The Press: Do you think he could help in any way?
+- [01:23.910] The President: No. I don't think we need any help with Iran.
+- [01:26.230] We'll win it one way or the other. We'll win it --
+- [01:28.750] we'll win it peacefully or otherwise.
+- [01:31.640] Their Navy's gone, their Air Force is gone,
+- [01:33.740] every single element of their war machine is gone.
+- [01:38.600] They killed a lot of people.
+- [01:39.990] They drove 42,000 people at least,
+- [01:42.260] over the last month and a half. We're going to, we'll win.
+- [01:48.440] No matter, no matter how you cut it.
+- [01:50.280] The Press: Mr. President.
+- [01:51.630] (Inaudible) Do you believe, do you believe
+- [01:53.850] (Inaudible)
+- [01:55.070] Mr. President, do we believe your visit to China
+- [01:58.460] will impact of international economy and price of oil?
+- [02:03.190] The President: It's going to be a positive.
+- [02:04.450] We're going to have a very good meeting.
+- [02:05.790] I spoke with President Xi.
+- [02:07.910] We look forward, we both look forward to the meeting.
+- [02:10.030] It's going to be great.
+- [02:11.260] The Press: (Inaudible)
+- [02:12.890] what is, Mr. President,
+- [02:14.340] what is going to be your red line to end,
+- [02:17.040] to end the ceasefire for you?
+- [02:18.680] What will it take, to pull the plug?
+- [02:20.260] The President: Well, we're going to see and uh,
+- [02:22.550] we'll be thinking about it on the flight
+- [02:24.320] and we'll be thinking about it for the next little while,
+- [02:27.310] but uh, we've beaten their military very soundly.
+- [02:31.450] That's over with. The blockade is very effective.
+- [02:35.180] It's been 100% effective and uh,
+- [02:38.130] one way or the other it's going to work out very well.
+- [02:40.450] It's going to work out very well.
+- [02:41.770] I think uh, you're going to have so much oil,
+- [02:44.080] you're going to have a gusher of oil
+- [02:45.490] like you've never had before.
+- [02:47.340] So when oil goes up a little bit,
+- [02:49.340] I thought it would go up much more.
+- [02:50.810] If you go back three, four months ago
+- [02:53.950] when we were contemplating,
+- [02:56.290] we assumed oil would go much higher.
+- [02:58.230] Yesterday was at $99, and if you think about it,
+- [03:02.910] I would have taken that all day long, because it's very simple.
+- [03:05.890] Iran cannot have a nuclear weapon.
+- [03:07.950] They will not have a nuclear weapon.
+- [03:10.180] They know that. They've agreed to that,
+- [03:12.780] and then that's not what they said to me when it came to Fed.
+- [03:15.520] We don't play games.
+- [03:17.130] They're not going to have a nuclear weapon.
+- [03:18.590] The Press: Mr. President, Mr. President.
+- [03:20.080] (Inaudible) Your promise to bring --
+- [03:21.680] Mr. President, you promised to bring inflation down.
+- [03:23.610] It's now at its highest level in three years.
+- [03:25.850] Are your policies not working?
+- [03:27.490] The President: No, my policies are working incredibly.
+- [03:29.520] If you go back to just before the war,
+- [03:31.970] for the last three months inflation was at 1.7%.
+- [03:36.430] Now, we had a choice.
+- [03:38.860] Let these lunatics have a nuclear weapon.
+- [03:41.380] If you want to do that, then you're a stupid person,
+- [03:44.140] and you happen to be. I mean, I know you very well.
+- [03:46.870] Uh, anybody that wants them to have a nuclear weapon
+- [03:51.570] is a stupid person.
+- [03:53.400] So we said we're going to take
+- [03:54.950] the greatest stock market in history
+- [03:57.420] and we're going to go down a little bit,
+- [03:59.360] and actually that turned out to be incorrect
+- [04:02.250] because our stock market is now at the highest point in history,
+- [04:06.490] which frankly surprised a lot of people.
+- [04:09.740] It's a very simple message.
+- [04:11.650] Iran cannot have a nuclear weapon
+- [04:13.750] and they won't have a nuclear w- -- and that's 100%.
+- [04:17.080] The Navy is gone, their Air Force is gone,
+- [04:20.240] their anti-aircraft is gone, their radar is gone,
+- [04:24.060] their leaders are gone.
+- [04:25.830] They're all gone.
+- [04:27.310] Iran will not have a nuclear weapon.
+- [04:30.170] The Press: Mr. President (Inaudible) Are you ready?
+- [04:33.410] Are you ready to extend a waiver on sanctioned Russian oil
+- [04:38.250] to ease the global group prices?
+- [04:40.970] The President: We're going to do whatever is necessary,
+- [04:43.640] and as soon as this war is over, which will not be long,
+- [04:46.990] you're going to see oil prices drop
+- [04:49.110] and you're going to see a stock market
+- [04:51.230] which is already at the highest point in history
+- [04:54.260] go through the roof.
+- [04:55.560] You're going to see the golden age of America,
+- [04:58.350] frankly, and you're seeing it now.
+- [05:01.120] So as soon as this is, oh, don't forget,
+- [05:04.140] you have hundreds of ships that are loaded up with oil
+- [05:06.670] that want to come out. As soon as they come out,
+- [05:09.260] we're going to have a gusher of oil,
+- [05:11.060] and you're going to have inflation that goes way down.
+- [05:14.150] Now with all of this,
+- [05:15.690] inflation is much lower than it was under Biden.
+- [05:19.410] Biden had the highest inflation in the history of our country.
+- [05:23.370] Inflation is nothing by comparison,
+- [05:25.520] but our inflation is just short term.
+- [05:29.280] Because if you go from before, just before the war,
+- [05:33.300] we were for the last three months, 1.7%,
+- [05:36.960] and now what you have is, as soon as this war is over,
+- [05:41.050] you're going to see inflation go down
+- [05:42.720] to probably one and a half percent.
+- [05:44.730] The Press: Mr. President, Mr. President.
+- [05:45.980] Will you extend the waiver, will you,
+- [05:47.810] will you extend the waiver?
+- [05:49.280] Sir, will you extend the waiver on Russian crude?
+- [05:51.960] The President: (Inaudible) go ahead, please.
+- [05:53.200] The Press: Thank you so much, Mr. President.
+- [05:54.450] Mr. President, yesterday you said you,
+- [05:55.970] you gave the Kurds arms, but they took it for themselves.
+- [05:58.870] A US military official
+- [06:00.420] says that the Kurds have not received any arms,
+- [06:02.600] and the Kurdish political parties
+- [06:03.970] are denying receiving any arms.
+- [06:05.290] The President: The officials are wrong.
+- [06:08.640] The Press: (Inaudible)
+- [06:15.350] How's that different than your ballroom
+- [06:16.870] (Inaudible)?
+- [06:18.070] The President: So, what happened is we have a ballroom
+- [06:20.150] that's under budget. It's going up right here.
+- [06:23.600] I've doubled the size of it because we obviously need that,
+- [06:27.080] and uh, we're right now on budget, under budget,
+- [06:29.800] and ahead of schedule.
+- [06:32.730] I doubled the size of it you dumb person.
+- [06:35.660] Doubled the size. You are -- you are not a smart person.
+- [06:39.740] Right over here. Wait a minute.
+- [06:44.670] Right over here and based on a lot of things
+- [06:48.530] that have happened over the last year
+- [06:50.660] we double the size of the ballroom.
+- [06:54.030] So we're going to have a ballroom
+- [06:55.440] that's appropriate for the White House.
+- [06:57.100] We doubled the size.
+- [06:58.670] Uh, the ballroom now is ahead of schedule
+- [07:01.400] and it's a little bit under budget
+- [07:02.920] depending on the finishes that we use.
+- [07:05.260] The Press: (Inaudible)
+- [07:07.200] President of Cuba has his days numbered.
+- [07:09.170] Does the President of Cuba have his days numbered?
+- [07:13.070] The President: Well, you, they're not doing well.
+- [07:15.150] Cuba is not doing well. It's a failed nation
+- [07:17.850] and we'll be talking about Cuba at the right time.
+- [07:20.540] The Press: Mr. President (Inaudible)
+- [07:26.870] ask you about Venezuela. Some Venezuelans are concerned
+- [07:30.010] that there are some political prisoners
+- [07:31.790] still in their prisons.
+- [07:33.070] Would you do something about that?
+- [07:34.290] The President: Yeah, we'll do it.
+- [07:35.520] We're going to get them all out.
+- [07:36.840] I'll tell you what, Delcy's doing a great job.
+- [07:39.450] The people of Venezuela are thrilled with what's happened.
+- [07:42.250] They can't even believe it. They're dancing in the streets.
+- [07:45.660] And as you know, we have Exxon, we have Chevron,
+- [07:48.720] we have all of the big companies going in and Venezuela now
+- [07:52.670] is making more money than they've made
+- [07:54.740] in the last 25 years. We, as you know, we let a lot,
+- [08:00.760] they let a lot of the political prisoners out
+- [08:03.570] and the rest will be coming.
+- [08:04.850] The Press: (Inaudible)
+- [08:06.050] Marty Makary to resign, sir? Or did you fire your
+- [08:09.230] (Inaudible)
+- [08:10.430] The President: Well, I don't want to say it,
+- [08:11.660] but Marty's a great guy. He's a friend of mine.
+- [08:14.040] He's a wonderful man and he's going to be off
+- [08:16.720] and the assistant,
+- [08:18.180] the deputy is taking over temporarily until we find,
+- [08:22.400] Everybody wants that job. It's a very important job.
+- [08:26.200] Marty's a terrific guy, but he's going to go on
+- [08:29.190] and he's going to lead a good life.
+- [08:32.840] He was having, he was having some difficulty.
+- [08:35.550] You know, he's a great doctor
+- [08:37.260] and he was having some difficulty,
+- [08:38.710] but he's going to go on and he's going to do well.
+- [08:41.310] We have, everybody wants that job.
+- [08:42.790] Everybody.
+- [08:44.180] The Press: (Inaudible)
+- [08:45.640] Will you send the National Guard or ICE
+- [08:48.710] to voting locations in November, would you do that?
+- [08:50.830] The President: Well, you know what?
+- [08:52.060] I do anything necessary to make sure we have honest elections.
+- [08:55.930] We have to have honest elections.
+- [08:57.770] The Press: So you're not ruling that out?
+- [08:59.570] (Inaudible) Quick question, Mr. President.
+- [09:01.350] This month is considered to be the month of Africa.
+- [09:04.730] On the May 25th, we'll be celebrating Africa Day.
+- [09:08.070] Would you mind doing something special,
+- [09:09.750] like 10 minutes interview
+- [09:10.970] to speak about your views on Africa?
+- [09:13.550] The President: We're with you on that one.
+- [09:14.830] The Press: Mr. President, (Inaudible)
+- [09:18.090] cease fire is on life support.
+- [09:20.650] Is President Xi the person to bring it back to life?
+- [09:24.210] The President: Well, we'll see what happens.
+- [09:25.570] We're going to have a great meeting in China.
+- [09:27.890] He's a wonderful guy. He's a friend of mine
+- [09:29.440] and we're going to have a great meeting.
+- [09:30.900] We do a lot of business with China.
+- [09:32.450] We do very well with China and they do well with us
+- [09:35.910] and the relationship is very good.
+- [09:37.970] We're going to have -- we are going to have a great meeting.
+- [09:40.690] The Press: But do you think he's got what it takes
+- [09:41.990] to convince the Iranians?
+- [09:43.220] The President: Whatever he can do to help with it.
+- [09:49.020] The Press: Mr. President (Inaudible)
+- [09:50.930] Will you be able to talk about the end of the war
+- [09:53.540] in Ukraine with the President?
+- [09:55.070] The President: Yeah. I think it's getting very close.
+- [09:57.360] The end of the war in Ukraine,
+- [09:58.830] I really think it's getting very close.
+- [10:01.210] The Press: (Inaudible)
+- [10:06.540] China invests Australian dollars in the US.
+- [10:08.230] (Inaudible) The President: Go ahead.
+- [10:09.460] The Press: When you're negotiating with Iran,
+- [10:10.900] Mr. President,
+- [10:12.130] to what extent are American financial situations
+- [10:15.020] motivating you to make a deal?
+- [10:16.920] The President: Not even a little bit.
+- [10:18.180] It, the only thing that matters when I'm talking about Iran,
+- [10:21.720] they can't have a nuclear weapon.
+- [10:23.110] I don't think about American financial situation.
+- [10:26.970] I don't think about anybody. I think about one thing.
+- [10:29.800] We cannot let Iran have a nuclear weapon, that's all.
+- [10:33.980] That's the only thing that motivates me.
+- [10:36.650] The Press: (Inaudible) What kind of
+- [10:38.590] (Inaudible) or NATO?
+- [10:40.010] The President: Say it?
+- [10:41.220] The Press: What is more broken? NATO or OPEC?
+- [10:45.100] The President: Well, OPEC is having some difficulty
+- [10:47.120] right now because one of those things,
+- [10:49.750] but that has nothing to do with me.
+- [10:52.410] Uh, NATO was very disappointing to me.
+- [10:55.720] NATO was not there when we wanted them,
+- [10:58.260] was not, we don't need NATO. We don't need NATO,
+- [11:00.650] but if we did need them, they just weren't there.
+- [11:04.170] The Press: (Inaudible)
+- [11:06.700] Do you think President Xi
+- [11:08.110] can help and contribute to a deal with Iran?
+- [11:10.570] The President: He could. I mean, it might be.
+- [11:12.730] I don't think we need any help with Iran to be honest with you.
+- [11:15.580] They're defeated militarily
+- [11:17.840] and they'll either do the right thing or we'll finish the job.
+- [11:23.470] They're either going to do the right thing
+- [11:25.460] or we're just going to finish the job.
+- [11:27.480] The Press: (Inaudible)
+- [11:32.610] The message, sir,
+- [11:33.900] to the Chinese people as you embark on this summit?
+- [11:37.380] The President: That we're going to have a great relationship
+- [11:39.080] for many, many decades to come.
+- [11:41.780] Uh, my relationship with President Xi is a fantastic one.
+- [11:45.210] We've always gotten along and we're doing very well with China
+- [11:48.910] and working with China's been very good.
+- [11:51.460] So we look forward to it. As you know,
+- [11:53.610] President Xi will be coming here toward the end of the year.
+- [11:56.920] So that'll be exciting too.
+- [11:58.400] I only wish we had the ballroom finished.
+- [12:00.940] The ballroom is right on budget and ahead of schedule,
+- [12:04.320] but I wish we had it finished.
+- [12:06.990] You also may want to do one other thing.
+- [12:09.420] You may want to go see the reflecting pool
+- [12:12.080] because that's under construction
+- [12:13.690] and for the first time since 1922,
+- [12:17.410] it's going to work properly.
+- [12:24.760] The Press: Mark Stone from Sky News.
+- [12:26.060] What's your advice to Keir Starmer, sir?
+- [12:27.870] He seems to be on the brink.
+- [12:29.900] The President: Well, my advice to him has always been open up,
+- [12:32.870] open up your oil in the North Sea.
+- [12:35.100] You got one of the great oil fines anywhere in the world
+- [12:38.520] and you're not using it. They're not allowed to use it.
+- [12:41.680] And it's one of the best in the world,
+- [12:43.250] among the best oils in the world.
+- [12:45.170] Open up your oil in the North Sea
+- [12:47.650] and get tough on immigration.
+- [12:49.600] The Press: Should he stay or go?
+- [12:50.860] The President: Europe is being very, very hurt by immigration,
+- [12:54.300] all over Europe. Not only that --
+- [12:55.530] The Press: Should he stay or go?
+- [12:56.810] The President: That's up to him.
+- [12:58.090] But I told him from day one, you're getting killed on energy.
+- [13:01.700] You're windmilling your country to death.
+- [13:04.150] Open up the North Sea.
+- [13:05.370] You have one of the greatest sources of energy in the world.
+- [13:09.020] Open up the North.
+- [13:13.460] The Press: Should state governors drop taxes on oil?
+- [13:16.130] Did you ask them to do that?
+- [13:17.440] The President: I think it's a great idea.
+- [13:18.710] The Press: May I ask you, two questions?
+- [13:24.720] Has there been any understanding between you and Putin
+- [13:28.010] that Russia should get entire
+- [13:29.560] (Inaudible)?
+- [13:30.860] The President: No. No.
+- [13:32.080] The Press: (Inaudible)
+- [13:34.230] invitation to travel Russia.
+- [13:36.710] Do you think it might happen this year?
+- [13:39.150] The President: I mean what, I will do whatever's necessary.
+- [13:42.070] That war, I've settled eight wars.
+- [13:45.210] That war is getting closer.
+- [13:46.600] Believe it or not, it's getting closer
+- [13:49.050] and we think we're going to end up getting a settlement
+- [13:51.560] between Russia and Ukraine.
+- [13:52.930] The Press: Mr. President,
+- [13:54.150] what is the ultimate goal of your trip to China?
+- [13:58.260] The President: I think more than anything else
+- [13:59.530] since we have massive relationships with China,
+- [14:01.910] we're the two superpowers.
+- [14:04.110] We, we're the strongest nation on earth in terms of military.
+- [14:07.880] Uh, China's considered second. Who knows?
+- [14:11.040] I mean, who knows, but we are,
+- [14:12.350] there's nobody even to come close.
+- [14:14.880] And you see that whether it's Venezuela or whether it's Iran.
+- [14:18.220] Iran's military is decimated.
+- [14:21.860] I have a great relationship with President Xi
+- [14:25.120] and I think it's going to remain that way.
+- [14:27.130] We have a lot of things to discuss.
+- [14:29.390] Uh, I, I wouldn't say Iran is one of them,
+- [14:31.270] to be honest with you,
+- [14:32.520] because we have Iran very much under control.
+- [14:35.620] We're either going to make a deal
+- [14:37.300] or they're going to be decimated.
+- [14:38.650] So one way or the other, we win.
+- [14:40.940] But we'll be, but we're going to be talking about,
+- [14:44.050] we're going to be talking with President Xi
+- [14:45.880] about a lot of different things.
+- [14:47.580] I would say more than anything else will be trades.
+- [14:52.760] The Press: Did you say, did you say earlier
+- [14:54.370] that the only thing that matters to you
+- [14:55.840] when it comes to Iran is a nuclear weapon?
+- [14:57.630] You're not considering the financial impact
+- [15:00.060] of this war on Americans?
+- [15:01.680] The President: The, the most important thing by far,
+- [15:05.350] including whether our stock market,
+- [15:07.400] which by the way, is at an all time high,
+- [15:10.920] but including whether or not our stock market goes up
+- [15:13.810] or down a little bit, the most important thing by far
+- [15:17.060] is Iran cannot have a nuclear weapon.
+- [15:20.450] The Press: What about the pressure on Americans
+- [15:22.110] and prices right now?
+- [15:23.380] The President: Every American understands --
+- [15:24.590] The Press: How concerned are you about Americans,
+- [15:25.820] how they're feeling about what they're paying for food, and --
+- [15:27.890] The President: Are you, are you listening to me?
+- [15:29.160] The Press: I'm sorry.
+- [15:30.380] The President: Every American understands and they,
+- [15:32.700] they would just had a poll.
+- [15:34.660] Like 85 percent, which is surprising it's only that,
+- [15:38.480] they understand that Iran cannot have a nuclear weapon.
+- [15:41.850] If Iran has a nuclear weapon,
+- [15:44.130] the whole world would be in trouble.
+- [15:45.920] Because they happen to be crazy.
+- [15:47.940] They're not going to have a nuclear weapon.
+- [15:49.920] Now, if the stock market goes up or down a little bit,
+- [15:53.550] the American people understand it.
+- [15:55.310] When it's over, you're going to have a massive drop
+- [15:57.680] in the price of oil,
+- [15:58.900] which a lot of people thought would be higher.
+- [16:01.050] And I mean, it was a hundred do- -- it was $99 yesterday,
+- [16:04.770] which is low, which is relatively low.
+- [16:07.570] When this war is over, oil is going to drop,
+- [16:10.760] the stock market's going to go through the roof and truly,
+- [16:13.800] I think we're in the golden age right now.
+- [16:15.860] You're going to see a golden age like we've never seen before.
+- [16:19.700] The minute it's announced,
+- [16:21.090] and I'll be the one to announce it,
+- [16:22.670] because I'm the one that makes that decision.
+- [16:24.930] I could leave right now and it would take them 25 years
+- [16:28.650] to rebuild their country, but I don't want to do that.
+- [16:31.660] I want to have it complete and total.
+- [16:33.800] So you ready? As soon as this war is over,
+- [16:36.860] you're going to see numbers like you've never seen.
+- [16:41.710] The Press: I know how much you value loyalty.
+- [16:44.730] I know how much you value loyalty.
+- [16:46.640] Are you comfortable with people serving in the military
+- [16:50.070] if they personally oppose the Iran war or you?
+- [16:55.340] The President: It doesn't mean I'm happy about it,
+- [16:56.960] but I live with a lot of different
+- [17:00.160] (Inaudible)
+- [17:01.550] The Press: A question on redistricting.
+- [17:03.040] The President: Yeah.
+- [17:04.260] The Press: So voters who are confused
+- [17:05.910] about the changing maps, the changing dates,
+- [17:09.310] and to African Americans concerned
+- [17:11.040] that this is going to draw black members
+- [17:12.580] of Congress off the map, what do you say?
+- [17:14.730] The President: Well, I think it's been a wonderful process.
+- [17:17.300] They've been the Democrats, or as I call the Dumbocrats,
+- [17:20.870] because they are dumb in so many ways,
+- [17:23.240] they've redistricted for years and now we took our shot
+- [17:26.910] and it looks like we're going to pick up a lot of seats
+- [17:29.420] and that's a good thing. That's a good thing.
+- [17:32.300] We want voters to have their choice.
+- [17:34.430] We want fair voting. We want fair elections.
+- [17:37.080] The Democrats have been cheating on elections for many years
+- [17:41.300] and all we're doing is winning. Thank you.

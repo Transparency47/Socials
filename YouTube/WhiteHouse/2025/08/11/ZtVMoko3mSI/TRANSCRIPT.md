@@ -1,0 +1,1706 @@
+<!-- source: https://www.youtube.com/watch?v=ZtVMoko3mSI -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: ZtVMoko3mSI -->
+<!-- date_published: 2025-08-11T16:03:06+00:00 -->
+<!-- date_accessed: 2026-06-02T02:46:01.230701+00:00 -->
+
+# Transcript: President Trump Holds a Press Conference, Aug. 11, 2025
+
+- [51:51.050] The President: Wow.
+- [51:54.050] I've been up here a lot,
+- [51:55.660] I've never seen a crowd like this.
+- [51:57.820] I think we need a ballroom and that's happening.
+- [52:00.900] It's going to be a beautiful ballroom.
+- [52:02.550] This is really a lot of people,
+- [52:04.790] most I've ever seen in this room.
+- [52:08.820] And we're here for a very serious purpose,
+- [52:11.550] very serious purpose. Something's out of control,
+- [52:13.810] but we're going to put it in control very quickly
+- [52:16.020] like we did on the southern border.
+- [52:18.370] I'm announcing a historic action
+- [52:20.180] to rescue our nation's capital from crime,
+- [52:24.080] bloodshed, bedlam and squalor and worse.
+- [52:29.050] This is Liberation Day in DC
+- [52:31.110] and we're going to take our capital back.
+- [52:34.210] We're taking it back.
+- [52:36.390] Under the authorities vested in me
+- [52:38.250] as the President of the United States,
+- [52:40.200] I'm officially invoking section 740 of the District of Columbia
+- [52:44.800] Home Rule Act. You know what that is?
+- [52:47.620] And placing the DC Metropolitan and Police Department
+- [52:50.450] under direct federal control, and you'll be meeting the people
+- [52:54.590] that will be directly involved with that.
+- [52:59.230] Very good people, but they're tough
+- [53:02.540] and they know what's happening and they've done it before.
+- [53:06.310] In addition, I'm deploying the National Guard
+- [53:09.080] to help reestablish law,
+- [53:10.740] order and public safety in Washington, DC
+- [53:14.390] and they're going to be allowed to do their job properly.
+- [53:17.690] And you people are victims of it, too.
+- [53:19.340] You're reporters, and I understand a lot of you
+- [53:22.110] tend to be on the liberal side,
+- [53:23.430] but you don't want to get mugged and raped and shot and killed.
+- [53:29.510] And you all know people and friends of yours that happened.
+- [53:33.040] And so you can be anything you want,
+- [53:36.210] but you want to have safety in the streets.
+- [53:37.890] You want to be able to leave your apartment
+- [53:39.630] or your house where you live and feel safe
+- [53:43.160] and go into a store to buy a newspaper or buy something,
+- [53:47.160] and you don't have that now.
+- [53:48.570] The murder rate in Washington today
+- [53:51.110] is higher than that of Bogota, Colombia, Mexico City,
+- [53:55.630] some of the places that you hear about
+- [53:57.710] as being the worst places on earth,
+- [54:01.420] much higher, this is much higher.
+- [54:04.140] The number of car thefts has doubled over the past five years
+- [54:08.990] and the number of car-jackings has more than tripled.
+- [54:12.400] Murders in 2023 reached the highest rate probably ever.
+- [54:17.140] They say 25 years, but they don't know what that means
+- [54:19.630] because it just goes back 25 years.
+- [54:22.060] Can't be worse.
+- [54:23.570] Our capital city has been overtaken by violent gangs
+- [54:26.510] and bloodthirsty criminals, roving mobs of wild youth,
+- [54:30.330] drugged out maniacs and homeless people.
+- [54:33.490] And we're not going to let it happen anymore,
+- [54:35.590] we're not going to take it
+- [54:38.000] just like we did on our southern border.
+- [54:40.850] Nobody comes to our southern border anymore.
+- [54:42.740] Three months in a row, we had zero.
+- [54:44.460] I don't know if that's right, but the people that do the work,
+- [54:48.600] it's a very liberal group of people, actually,
+- [54:50.410] and they actually said zero for the last three months.
+- [54:52.690] Nobody thought a thing like that was possible.
+- [54:55.720] And when you take a look at numbers,
+- [54:59.760] I just saw some charts,
+- [55:02.020] these are different cities throughout the world.
+- [55:08.670] The red is a place called Washington, DC.
+- [55:11.900] Look at these.
+- [55:14.290] Baghdad, we doubled up on Baghdad.
+- [55:20.340] Panama City, Brasilia, San Jose, Costa Rica,
+- [55:25.810] Bogota, Colombia, heavy drugs. Mexico City, I mentioned.
+- [55:31.110] Lima, Peru, all double and triple what they are.
+- [55:37.640] Do you want to live in places like that?
+- [55:40.170] I don't think so, I don't think so.
+- [55:42.120] And I think the people in this room,
+- [55:44.390] if you wrote correctly,
+- [55:45.610] you'd see, look at the kind of numbers we have.
+- [55:48.080] DC, 41 per 100,000,
+- [55:52.080] number one that we can find anywhere in the world.
+- [55:55.680] Other cities are pretty bad, but they're not as bad as that.
+- [56:00.660] That where you want to live, the reporters of the world?
+- [56:05.280] Juvenile offenders and crimes against persons, as they say.
+- [56:11.790] It's getting worse.
+- [56:13.970] Not getting better, it's getting worse.
+- [56:16.660] And we had a recent indication,
+- [56:21.200] there was a story about a man that just left.
+- [56:26.510] He quit because he was asked to do phony numbers on crime
+- [56:30.470] and we're going to look into that,
+- [56:31.950] I think Pam is going to be looking into that.
+- [56:34.850] But he was asked by the city, I guess,
+- [56:37.430] that we don't want to show the real numbers.
+- [56:39.480] Let me do numbers so it looks like it's going down.
+- [56:41.500] They're not going down.
+- [56:43.080] And under Biden, it was a disaster.
+- [56:45.280] And nobody did anything about it.
+- [56:46.700] We're going to do things about it like you wouldn't believe.
+- [56:50.570] Every American has a constitutional right to
+- [56:53.920] be able to access and petition their government in safety.
+- [56:58.150] And countless federal officials and employees
+- [57:00.250] likewise have the right to carry out their jobs in peace
+- [57:03.230] without being shot.
+- [57:04.450] As you know, I lost a very good person a while ago,
+- [57:09.790] was shot waiting for his wife.
+- [57:11.230] He was in the car, they robbed his car, they shot him.
+- [57:13.340] They killed him like it was nothing to it.
+- [57:16.060] She was walking to the car, it's a horror show.
+- [57:19.680] This issue directly impacts the functioning
+- [57:22.340] of the federal government
+- [57:23.640] and is a threat to America, really.
+- [57:26.910] It's a threat to our country.
+- [57:28.960] We have other cities also that are bad, very bad.
+- [57:32.150] You look at Chicago, how bad it is.
+- [57:34.820] You look at Los Angeles, how bad it is.
+- [57:37.890] We have other cities that are very bad.
+- [57:39.650] New York has a problem.
+- [57:41.610] And then you have, of course, Baltimore and Oakland.
+- [57:45.110] We don't even mention that anymore, they're so far gone.
+- [57:48.720] We're not going to let it happen.
+- [57:49.980] We're not going to lose our cities over this
+- [57:53.040] and this will go further.
+- [57:55.200] We're starting very strongly with DC
+- [57:58.110] and we're going to clean it up real quick,
+- [58:00.260] very quickly, as they say.
+- [58:02.330] Days ago, a former member of the DOGE staff
+- [58:04.840] was savagely beaten by a band of roving thugs
+- [58:08.650] after defending a young woman from an attempted carjacking.
+- [58:12.670] He was left dripping in blood,
+- [58:14.100] he thought he was dead with a broken nose and concussion.
+- [58:17.880] Can't believe that he's alive, he can't believe it.
+- [58:21.420] In June, a 21 year old congressional intern
+- [58:24.640] was tragically killed after being hit
+- [58:27.230] by a stray bullet in a drive-by shooting.
+- [58:30.030] A former Trump administration official named Mike Gill,
+- [58:33.110] fantastic person, was murdered last year in cold blood
+- [58:36.670] in a carjacking blocks away from the White House.
+- [58:42.450] We all knew him, great person.
+- [58:46.270] Waiting for his wife as she was walking to the car.
+- [58:51.170] A Democrat congressman was also carjacked at gunpoint
+- [58:54.420] not far from the capitol.
+- [58:56.570] And in 2023, an aide to Senator Rand Paul
+- [59:00.550] was stabbed in the chest and head by a demented lunatic
+- [59:06.580] as he walked down the street, just absolutely for no reason.
+- [59:10.300] Horrifically, last July 4th weekend,
+- [59:12.300] a three year old girl was shot in the head and killed
+- [59:15.640] while sitting in a car near the capitol.
+- [59:20.170] It's becoming a situation of complete and total lawlessness.
+- [59:24.960] And we're getting rid of the slums, too.
+- [59:26.480] We have slums here, we're getting rid of them.
+- [59:28.290] I know it's not politically correct.
+- [59:30.430] You'll say, "Oh, so terrible."
+- [59:32.150] No, we're getting rid of the slums where they live.
+- [59:37.040] Caravans of mass youth rampage through city streets
+- [59:41.050] at all times of the day.
+- [59:45.570] They're on ATVs, motorbikes, they travel pretty well.
+- [59:50.930] Entire neighborhoods are now under emergency curfews.
+- [59:55.560] Just this past weekend,
+- [59:56.870] gunfire went through and you saw that, the Navy yard.
+- [01:00:00.440] I saw it this morning.
+- [01:00:01.690] They saw that they fought back against law.
+- [01:00:04.730] See, they fight back until you knock the hell out of them
+- [01:00:08.790] because it's the only language they understand.
+- [01:00:10.730] But they fought back against law enforcement last night.
+- [01:00:15.270] And they're not going to be fighting back long
+- [01:00:17.750] because I've instructed them and told them whatever happens,
+- [01:00:24.630] they love to spit in the face of the police.
+- [01:00:27.670] As the police are standing up there in uniform,
+- [01:00:30.980] they're standing and they're screaming at them
+- [01:00:33.880] an inch away from their face.
+- [01:00:35.930] And then they start spitting in their face and I said,
+- [01:00:39.980] "You tell them, 'You spit and we hit,'"
+- [01:00:43.650] and they can hit real hard.
+- [01:00:46.670] It's a disgusting thing. I've watched that for years,
+- [01:00:49.880] for three, four years I've watched them.
+- [01:00:52.900] The police are standing and they're told,
+- [01:00:54.770] "Don't do anything under any --"
+- [01:00:57.260] And you can see they want to get at it.
+- [01:01:00.350] And they're standing there
+- [01:01:01.630] and people are spitting in their face
+- [01:01:03.770] and they're not allowed to do anything.
+- [01:01:05.880] But now they are allowed to do whatever the hell they want.
+- [01:01:09.430] This dire public safety crisis
+- [01:01:11.190] stems directly from the abject failures
+- [01:01:15.280] of the city's local leadership.
+- [01:01:17.330] The radical left city council adopted no cash bail.
+- [01:01:21.880] By the way, every place in the country
+- [01:01:23.910] where you have no cash bail is a disaster.
+- [01:01:26.560] That's what started the problem in New York
+- [01:01:28.420] and they don't change it, they don't want to change it.
+- [01:01:31.250] That's what started it in Chicago.
+- [01:01:34.660] I mean, bad politicians started it, bad leadership started it.
+- [01:01:37.910] But that was the one thing that's central, no cash bail.
+- [01:01:41.230] Somebody murders somebody and they're out on no cash bail
+- [01:01:45.310] before the day is out.
+- [01:01:47.980] We're going to end that in Chicago,
+- [01:01:49.950] we're going to change the statute.
+- [01:01:51.420] I spoke with Pam and Todd and everybody.
+- [01:01:54.590] We're going to change the statute
+- [01:01:55.930] and I'm going to have to get the Republicans to vote
+- [01:01:57.920] because the Democrats are weak on crime, totally weak on crime.
+- [01:02:03.440] They don't know why.
+- [01:02:05.610] They want it to stop because they get mugged, too.
+- [01:02:08.670] But we're going to change no cash bail.
+- [01:02:10.950] We're going to change the statute
+- [01:02:12.230] and get rid of some of the other things
+- [01:02:14.230] and we'll count on the Republicans in Congress
+- [01:02:16.590] and Senate to vote.
+- [01:02:18.380] We have the majority so we'll vote.
+- [01:02:20.210] We don't have a big majority, but we've gotten everything
+- [01:02:22.750] including the great Big Beautiful Bill.
+- [01:02:25.460] Got that done and that's one of the greatest things
+- [01:02:27.410] that's ever happened to people in this country.
+- [01:02:30.190] They're starting to figure it out, how good it is.
+- [01:02:32.210] Biggest tax cut in history, so many things.
+- [01:02:36.200] But we'll be able to get that done.
+- [01:02:37.640] So Todd, if you and Pam can draw up things
+- [01:02:40.320] working with the people, I'll get it passed.
+- [01:02:44.760] We'll get it passed with the Republicans.
+- [01:02:47.320] Think of this, probably won't get one Democrat vote
+- [01:02:51.400] because they have no idea what they're doing.
+- [01:02:53.690] That's why they want men playing in women's sports,
+- [01:02:56.280] that's why they want transgender for everybody.
+- [01:02:59.420] Everybody, transgender.
+- [01:03:03.300] And they just got walloped in an election, in a landslide
+- [01:03:08.040] and they haven't changed one thing.
+- [01:03:09.310] I saw the other day, the certain gentleman
+- [01:03:11.960] who is a very well-known politician, Democrat,
+- [01:03:14.720] was fighting like hell
+- [01:03:16.590] that men should be allowed to play in women's sport.
+- [01:03:18.690] They just don't get it. They said it's an 80/20 issue
+- [01:03:22.220] and I think it's a 97 to three issue,
+- [01:03:24.280] and I don't know who the three are.
+- [01:03:25.730] I've never heard anybody come. Nobody's ever come up to me,
+- [01:03:29.280] "Sir, you have to let men play in women's sports.
+- [01:03:32.990] You have to do it, sir." Nobody's ever approached me,
+- [01:03:35.210] I don't know where this issue even comes from.
+- [01:03:37.940] Never seen anything like it.
+- [01:03:40.450] But they turned our nation's capital
+- [01:03:42.100] into a sanctuary jurisdiction.
+- [01:03:44.080] That's the other thing, we have to get rid of sanctuary cities
+- [01:03:46.210] as quickly as possible. We're going to do it, too.
+- [01:03:48.000] We have to, because it's sanctuary for criminals.
+- [01:03:51.840] Releasing illegal alien gang members onto the streets.
+- [01:03:54.700] In 2022, nearly 70 percent of criminals
+- [01:03:57.460] arrested in Washington went un-prosecuted.
+- [01:04:02.470] That's not going to happen with the group
+- [01:04:03.890] we have standing aside and standing behind me.
+- [01:04:08.010] And at the Metropolitan Police Department,
+- [01:04:11.390] it's now reached a small number relatively
+- [01:04:15.280] compared to what it was, but it's thousands of people.
+- [01:04:18.470] We have thousands of police.
+- [01:04:20.090] I was told today, "Sir, they want more police."
+- [01:04:23.640] I heard a number, 3,500 police.
+- [01:04:26.090] That's a lot of police, 3,500. I thought they're going to say,
+- [01:04:31.440] "We only have 30 policemen or women."
+- [01:04:35.150] He said, "We have 3,500. We need more."
+- [01:04:38.210] You don't need more, that's so many.
+- [01:04:39.760] I'd never heard -- That's like an army.
+- [01:04:42.480] How could you need more than 3,000?
+- [01:04:44.130] It just happened two minutes ago.
+- [01:04:46.770] "Sir, they've requested more police."
+- [01:04:50.690] "Oh, what do they have?" "About 3,500." I said, "3,500?"
+- [01:04:56.970] This is not a big area, it's ridiculous.
+- [01:05:00.650] What you need is rules and regulations
+- [01:05:03.320] and you need the right people to implement them.
+- [01:05:05.270] And we have the right people here, that I can tell you.
+- [01:05:08.110] Look at the border. Biden said there's nothing you can do.
+- [01:05:12.220] Kamala was the border czar,
+- [01:05:13.540] she never called one of the border patrol agents,
+- [01:05:15.740] who are great. ICE is great.
+- [01:05:17.040] Never spoke to anybody, never went there.
+- [01:05:20.290] But she was the border czar
+- [01:05:22.480] and everybody said it was impossible to fix.
+- [01:05:24.530] I fixed it in three months.
+- [01:05:26.530] No, really, I fixed it the first week,
+- [01:05:30.220] but really fixed it over the last couple of months.
+- [01:05:33.660] And I mean literally to a point where, as I said,
+- [01:05:36.950] zero illegals entering our country in the last 90 days.
+- [01:05:43.320] Pretty amazing. It's time for dramatic action.
+- [01:05:46.550] We're going to do the same thing over here.
+- [01:05:48.200] It's going to be a very safe city very soon.
+- [01:05:49.740] We're not looking to just take years
+- [01:05:52.180] because a lot of people die in years,
+- [01:05:54.450] and we've got incredible people in this country,
+- [01:05:57.380] except we have to allow them to do their job.
+- [01:06:01.490] And that, we will deliver like nobody's ever delivered before.
+- [01:06:08.350] I actually think it's easy. If you're competent, it's easy.
+- [01:06:11.970] If you're incompetent, it's impossible.
+- [01:06:15.300] But I'm very competent.
+- [01:06:16.630] Last week, my administration searched 500 federal agents
+- [01:06:21.480] into the district, including from the FBI,
+- [01:06:26.580] ATF, DEA, park Police, the US Marshals service,
+- [01:06:30.930] the Secret Service and the Department of Homeland Security.
+- [01:06:34.700] A lot of nations, they don't have anything like that.
+- [01:06:38.730] They got some police and they're rough police.
+- [01:06:44.000] They don't have DEA, ATF, FBI, park police,
+- [01:06:47.920] the US Marshals Service, Secret Service,
+- [01:06:50.160] Department of Homeland Security.
+- [01:06:52.580] They got some police, but they're rough police
+- [01:06:57.590] and they do their job. They don't have crime.
+- [01:07:00.600] We're not going to have crime either.
+- [01:07:02.790] They made dozens of arrests and that's what starts to happen.
+- [01:07:09.930] Again, cashless bail, watch what we do with that.
+- [01:07:13.930] Today, we're formally declaring a public safety emergency.
+- [01:07:17.890] This is an emergency. This is a tragic emergency
+- [01:07:22.470] and it's embarrassing for me to be up here.
+- [01:07:24.470] I'm going to see Putin, I'm going to Russia on Friday.
+- [01:07:28.610] I don't like being up here, talking about how unsafe
+- [01:07:31.120] and how dirty and disgusting this once beautiful capital
+- [01:07:35.600] was with graffiti all over the walls.
+- [01:07:38.520] It's another part of it, by the way.
+- [01:07:40.820] Because we're talking about safety,
+- [01:07:42.260] but we're also talking about beautification.
+- [01:07:44.060] We are the most beautiful, potentially,
+- [01:07:45.630] capital in the world. We always had.
+- [01:07:48.860] But people come from Iowa, they come from Indiana,
+- [01:07:51.420] they come and then they get mugged.
+- [01:07:52.960] Not going to happen.
+- [01:07:54.240] Keep coming because by the time you get your trip set,
+- [01:07:58.140] it's going to be safe again
+- [01:07:59.460] and it's going to be clean very quickly.
+- [01:08:01.630] We're going to replace the medians
+- [01:08:02.950] that are falling down all over the roads,
+- [01:08:04.600] we're going to replace the potholes.
+- [01:08:06.030] We're going to put a nice new coat of asphalt over the top,
+- [01:08:09.610] knowing we don't have to rip the road out
+- [01:08:11.220] and spend seven years building a new road
+- [01:08:13.800] because they cut everything.
+- [01:08:15.900] Because some designers said, "Well, we need a quarter
+- [01:08:17.990] of an inch more turn for safety reasons."
+- [01:08:21.810] No, we're going to do it right,
+- [01:08:23.540] we're going to get it done quickly.
+- [01:08:26.460] So today, we're declaring public safety emergency
+- [01:08:30.640] in the District of Columbia.
+- [01:08:31.950] And Attorney General, Pam Bondi, who's fantastic,
+- [01:08:35.260] is taking command of the Metropolitan Police Department
+- [01:08:39.560] as of this moment.
+- [01:08:41.550] And I'll be making the appropriate notifications
+- [01:08:43.840] to Congress and to the mayor,
+- [01:08:46.520] our new DEA Administrator,
+- [01:08:48.210] who's one of the top in the country.
+- [01:08:50.330] He better be, Terry.
+- [01:08:51.620] If you're not, I'm going to get rid of you so fast.
+- [01:08:55.050] Terry Cole. Terry, thanks. Very good.
+- [01:08:57.320] We just got him, most highly recommended person.
+- [01:09:01.590] And you'll be designated as the interim Federal Commissioner
+- [01:09:05.040] of the Metropolitan Police Department, okay?
+- [01:09:09.310] And you run them tough.
+- [01:09:10.520] They're good, you have a lot of good people.
+- [01:09:12.120] You have people that shouldn't be there,
+- [01:09:13.830] you also have people that shouldn't be there.
+- [01:09:15.850] They got in there because of woke.
+- [01:09:17.930] But you have a lot of great police,
+- [01:09:19.590] and those people are the ones that want to help you.
+- [01:09:22.780] This city will no longer be a sanctuary
+- [01:09:25.380] for illegal alien criminals. We will have full, seamless,
+- [01:09:29.880] integrated cooperation at all levels of law enforcement,
+- [01:09:33.190] and we'll deploy officers across the district
+- [01:09:35.960] with an overwhelming presence.
+- [01:09:37.720] You'll have more police and you'll be so happy
+- [01:09:42.320] because you'll be safe when you walk down the street.
+- [01:09:45.640] You're going to see police or you're going to see FBI agents,
+- [01:09:48.310] we're going to have a lot of agents on the streets.
+- [01:09:50.640] And you're going to have a lot of, essentially, military.
+- [01:09:54.290] And we will bring in the military if it's needed,
+- [01:09:56.950] by the way.
+- [01:09:58.220] We're going to have National Guard,
+- [01:09:59.590] but Pete Hegseth will tell you about it.
+- [01:10:02.160] We will bring in the military if needed.
+- [01:10:04.410] People say, "Oh, that's so terrible.
+- [01:10:06.450] He's going to bring in --"
+- [01:10:07.720] It's been used many times over the years.
+- [01:10:11.800] I don't think we'll need it.
+- [01:10:13.190] I think we've got so many great people,
+- [01:10:15.390] including the people that are in the police department
+- [01:10:18.330] with proper leadership.
+- [01:10:20.460] They'll immediately begin massive enforcement operations,
+- [01:10:23.330] targeting known gangs, drug dealers and criminal networks
+- [01:10:26.610] to get them the hell off the street,
+- [01:10:28.110] maybe get them out of the country
+- [01:10:29.370] because a lot of them came into our country illegally.
+- [01:10:31.780] They shouldn't have been allowed in.
+- [01:10:33.250] They come from Venezuela, they come from all over the world.
+- [01:10:35.790] We're going to get them the hell out.
+- [01:10:37.300] They won't be here long. But some of these people,
+- [01:10:40.540] a lot of them are homegrown criminals
+- [01:10:43.680] and these are bad people. These are rough people.
+- [01:10:47.720] And this is just a list of some of the people
+- [01:10:49.770] that were given to me today that were criminals removed
+- [01:10:53.500] from the D.C. streets this weekend.
+- [01:10:55.240] They were rough, rough and tough,
+- [01:10:58.900] but we're rougher and tougher.
+- [01:11:01.290] Look at these people here. Nothing.
+- [01:11:05.630] They're not going to be your local school teacher.
+- [01:11:08.170] Look at this guy. He has killed people numerous times.
+- [01:11:12.610] They're not going to be an asset.
+- [01:11:14.580] They will never be an asset to society.
+- [01:11:16.490] I don't care. I know we all want to say,
+- [01:11:18.160] "Oh, they're going to be rehabbed.
+- [01:11:19.410] They're not going to be rehabbed."
+- [01:11:22.330] I'm going to ask Doug Burgum to come up
+- [01:11:24.110] and say a couple of words because he's in charge.
+- [01:11:26.400] As you know, he's interior,
+- [01:11:28.570] but he's in charge of the U.S. Park Police
+- [01:11:31.150] and I've heard so many great things about the Park Police.
+- [01:11:33.560] They're proud of it.
+- [01:11:34.780] They've been there for a long time.
+- [01:11:37.420] Their families oftentimes grow into the roles.
+- [01:11:39.930] They love the country, they love this area.
+- [01:11:42.010] So Doug, could you say a few words please?
+- [01:11:46.020] Doug Burgum: Thank you, Mr. President.
+- [01:11:47.560] On behalf of the U.S. Park Police,
+- [01:11:49.620] this is the oldest federal police force in the nation.
+- [01:11:52.190] They were formed in 1791 by none other
+- [01:11:54.740] than President George Washington.
+- [01:11:57.840] They've got the awesome responsibility
+- [01:11:59.730] of protecting our nation's most sacred monuments,
+- [01:12:03.420] the National Mall, Washington Monument,
+- [01:12:05.110] Jefferson Memorial, Lincoln Memorial Statue of Liberty,
+- [01:12:08.290] and out west the Presidio and the Golden Gate area.
+- [01:12:12.020] These folks have tens of millions of visitors a year,
+- [01:12:15.530] the kind of people that President Trump's
+- [01:12:17.000] talking about that come from around the country
+- [01:12:18.880] and around the world to see
+- [01:12:22.420] and learn about our history and our sacred monuments.
+- [01:12:25.580] They've been doing a fantastic job,
+- [01:12:27.210] but they are so pleased, the rank and file,
+- [01:12:28.970] that President Trump is now
+- [01:12:30.180] allowing them to enforce the law.
+- [01:12:32.480] As those of you that live in the city may know
+- [01:12:34.400] that the circles and the triangle parks
+- [01:12:37.080] that are spread throughout D.C.
+- [01:12:38.900] are actually federal park property.
+- [01:12:40.990] So the U.S. Park police also have responsibility for that.
+- [01:12:44.350] These became littered with homeless camps
+- [01:12:47.020] that are the Biden administration.
+- [01:12:48.290] All of you saw that.
+- [01:12:49.890] Since President Trump's executive order on March 27th
+- [01:12:53.290] making D.C. safe and beautiful again,
+- [01:12:55.690] the U.S. Park police have removed over 70 homeless camps
+- [01:12:59.160] and President Trump also talked about beautification.
+- [01:13:02.330] They're stopping and enforcing the laws
+- [01:13:05.040] against graffiti on our monuments.
+- [01:13:06.790] They've removed over 80 specific attacks
+- [01:13:09.650] against our history with graffiti on our monuments,
+- [01:13:12.660] so they continue to do a great job,
+- [01:13:14.080] whether it's in their vehicles on foot or on the mounted police
+- [01:13:16.860] that you see around the National Mall.
+- [01:13:18.740] And President Trump, they thank you.
+- [01:13:20.150] The rank and file is so happy to be enforcing the law again.
+- [01:13:22.930] Thank you for your leadership and they're excited
+- [01:13:25.520] about the announcement you're making today.
+- [01:13:27.170] The President: Thank you. Very good.
+- [01:13:28.390] Great job you're doing. Thank you very much.
+- [01:13:30.390] Pete, could you say something about the military as you are?
+- [01:13:33.920] Secretary Hegseth: Well, Mr. President,
+- [01:13:35.150] it's an honor to be here
+- [01:13:36.870] and at your direction this morning,
+- [01:13:39.620] we've mobilized the D.C. National Guard.
+- [01:13:41.290] It'll be operationalized by the Secretary of the Army,
+- [01:13:43.620] Dan Driscoll, through the D.C. Guard.
+- [01:13:46.100] You will see them flowing into the streets of Washington
+- [01:13:48.480] in the coming week. At your direction as well, sir,
+- [01:13:51.330] there are other units we are prepared to bring in.
+- [01:13:53.770] Other National Guard units, other specialized units.
+- [01:13:56.540] They will be strong, they will be tough,
+- [01:13:59.430] and they will stand with their law enforcement partners.
+- [01:14:01.560] This is nothing new for DOD
+- [01:14:03.610] as the President noted at the border,
+- [01:14:06.150] we've got 10,000 troops down there
+- [01:14:07.740] who've been operating in defense cooperation areas,
+- [01:14:11.640] defense zones where there's zero, zero illegal crossings
+- [01:14:16.140] because of troops on strikers scanning the border.
+- [01:14:18.690] We've been protecting other people's borders for 20 years.
+- [01:14:21.700] It's about time we protect our own
+- [01:14:23.400] and we're working with ICE and CBP.
+- [01:14:25.310] In Los Angeles, we did the same thing,
+- [01:14:28.210] working with the California National Guard,
+- [01:14:29.770] working with ICE officers.
+- [01:14:31.660] ICE officers deserve to do their job and not be attacked.
+- [01:14:36.100] We will work alongside all D.C.
+- [01:14:38.300] Police and federal law enforcement
+- [01:14:40.610] to ensure this city is safe, this city is beautiful
+- [01:14:44.730] and as I always say about President Trump to the troops,
+- [01:14:46.960] he has their back.
+- [01:14:48.170] And my message to the National Guard
+- [01:14:50.140] and federal law enforcement in Washington
+- [01:14:52.060] is we have your back as well.
+- [01:14:54.020] Be tough, be strong. We're right behind you.
+- [01:14:56.540] Thank you, sir.
+- [01:14:57.940] The President: I'm going to ask Pam because she's now,
+- [01:15:00.490] as you heard me say,
+- [01:15:01.780] she's really in charge of a lot of what we're talking about.
+- [01:15:04.930] She's done an incredible job.
+- [01:15:06.960] People are going to start to see the fruits of her labor.
+- [01:15:09.330] And Pam, maybe you could say a few words
+- [01:15:11.320] about what we're talking about here.
+- [01:15:13.410] AG Bondi: Sure President. Let me be crystal clear.
+- [01:15:18.810] Crime in D.C. is ending and ending today.
+- [01:15:21.590] We are going to use every power we have to fight criminals here.
+- [01:15:25.840] President, thank you for caring about our Capitol.
+- [01:15:29.140] Families come here every summer. Our museums are free.
+- [01:15:33.440] We have the National Zoo, we have the National Gallery.
+- [01:15:37.440] D.C. should be a place where everyone can come
+- [01:15:40.720] and feel safe behind me and to my side,
+- [01:15:44.190] we have some of the best career law enforcement
+- [01:15:46.730] and prosecutors in the country who are ready to take this on.
+- [01:15:51.780] As the President said,
+- [01:15:54.320] Terry Cole is going to be supervising
+- [01:15:57.230] the Metro Police Department, Gaddy Serralta,
+- [01:16:00.810] our U.S. Marshal is going to be supervising command
+- [01:16:04.690] and control the entire operation.
+- [01:16:09.050] Our Deputy Attorney General Todd Blanche
+- [01:16:11.140] and I will be working with them closely along
+- [01:16:14.370] with our great FBI director Kash Patel.
+- [01:16:17.320] Kash is going to talk to you in a minute
+- [01:16:18.820] about what we did in Virginia recently with Governor Youngkin.
+- [01:16:22.480] Many of you covered that and it was tremendously successful.
+- [01:16:26.470] Not only that, our secret weapon here in D.C.
+- [01:16:29.400] is U.S. attorney Jeanine Pirro,
+- [01:16:31.580] one of the toughest prosecutors and a former judge.
+- [01:16:34.880] And she is going to be talking about juvenile crime,
+- [01:16:37.700] how it's out of control here,
+- [01:16:39.470] and what she's going to do to fight back.
+- [01:16:42.650] No more, no more crime rampant in our beautiful capital.
+- [01:16:48.800] No more teenage girls beating a disabled man to death.
+- [01:16:53.330] No more of that. No more drive-bys.
+- [01:16:55.870] We're going to do everything we can and working with the ATF,
+- [01:17:01.330] ATF Director Driscoll and Commander of the army,
+- [01:17:05.110] we're going to all work together.
+- [01:17:07.320] That's what we all do in this room.
+- [01:17:08.730] We work together, we fight.
+- [01:17:10.820] Do not underestimate one person in this room.
+- [01:17:14.350] We're going to make D.C. beautiful.
+- [01:17:15.990] We're going to make D.C. safe again.
+- [01:17:18.390] One other thing, just at the wharf,
+- [01:17:20.560] a few days ago, the area of the wharf,
+- [01:17:23.220] Terry Cole reached out to me,
+- [01:17:24.980] not even nightfall on the weekend
+- [01:17:27.090] where so many families and tourists go,
+- [01:17:29.740] a guy's overdosing from fentanyl on a park bench
+- [01:17:33.360] in the middle of families around,
+- [01:17:36.150] they administered Narcan and saved his life.
+- [01:17:38.930] No more of that.
+- [01:17:40.180] The President of the United States
+- [01:17:41.930] is going to clean up D.C.
+- [01:17:43.610] and we're going to be there to help him
+- [01:17:45.190] and we're going to be successful.
+- [01:17:46.430] Thank you.
+- [01:17:47.640] The President: Thank you. (inaudible)
+- [01:17:48.860] Can I talk about Northern Virginia?
+- [01:17:50.910] Northern Virginia, we had a big success.
+- [01:17:53.880] Director Patel: Thank you, Mr. President.
+- [01:17:55.090] Thank you, Attorney General Bondi for your leadership.
+- [01:17:56.740] Deputy Attorney General,
+- [01:17:57.980] the rest of our interagency partners.
+- [01:18:00.190] Mr. President, the following is what happens
+- [01:18:02.330] when you let good cops be cops.
+- [01:18:03.630] And I just want to highlight that
+- [01:18:04.940] before I get into Northern Virginia.
+- [01:18:06.620] This year alone under President Trump's administration,
+- [01:18:09.150] we've had over 4,000 child victims identified and found.
+- [01:18:12.600] That's a 33 percent increase
+- [01:18:14.330] from the same time period last year,
+- [01:18:16.700] 33 percent increase.
+- [01:18:18.790] We've had a seizure of 1,500 kilograms
+- [01:18:21.840] of fentanyl up to this date. That is a 25 percent increase
+- [01:18:26.910] since the same time period last year.
+- [01:18:28.910] And just to put it in perspective,
+- [01:18:30.730] 1,500 kilograms of fentanyl
+- [01:18:32.780] is enough to kill 115 million Americans.
+- [01:18:35.830] 115 million Americans. Cops are getting after it.
+- [01:18:39.750] The FBI has arrested 19,000 people this year alone.
+- [01:18:44.280] Thanks to President Trump's administration,
+- [01:18:46.230] that's double than where we were this time last year.
+- [01:18:49.930] And we have also arrested 1,600 people
+- [01:18:53.270] who have committed violent acts against children.
+- [01:18:55.860] Children.
+- [01:18:57.120] 270 of them are human traffickers of children.
+- [01:19:01.660] Mr. President, this is what happens
+- [01:19:03.330] when you have great leadership
+- [01:19:04.650] at the Attorney General with Pam Bondi.
+- [01:19:06.850] Your administration's priority of protecting the homeland
+- [01:19:09.690] and protecting American citizens and protecting our children
+- [01:19:12.640] and the murder rates are plummeting.
+- [01:19:14.420] We are now able to report that the murder rate is on track
+- [01:19:17.920] to be the lowest in U.S. history,
+- [01:19:20.360] in modern recorded U.S. history thanks to this team behind me
+- [01:19:23.340] and President Trump's priorities and how do we do it
+- [01:19:26.040] and what are we going to bring to D.C.?
+- [01:19:27.710] What we did in Northern Virginia,
+- [01:19:29.450] thanks to Terry Cole and Governor Youngkin
+- [01:19:31.030] and the team, we stood up a task force out
+- [01:19:33.110] in my Northern Virginia field office
+- [01:19:35.030] and we said, let's let good cops be cops.
+- [01:19:36.930] Let's get them the intelligence and what they need
+- [01:19:39.010] and let's get the red tape out of their way
+- [01:19:40.800] and let's get DOJ partnered up with us
+- [01:19:42.690] to bring great prosecutions. And that's exactly what we did.
+- [01:19:45.550] In 1 month, we arrested 545 violent felons,
+- [01:19:49.610] 545 in the state of Virginia,
+- [01:19:52.070] thanks to Governor Youngkin's partnership.
+- [01:19:53.940] And that simplicity in law enforcement
+- [01:19:56.930] is what's coming to Washington D.C.
+- [01:19:59.120] When you let good cops be cops,
+- [01:20:00.660] when you give them the intel they need,
+- [01:20:02.440] when you work with our Homeland Security
+- [01:20:03.870] task force, when you work with Terry and Gaddy
+- [01:20:06.230] and I go way back to Miami,
+- [01:20:07.450] these guys are great leaders of their respective departments
+- [01:20:09.780] and law enforcement capacities.
+- [01:20:11.830] And when you have the DOJ and President Trump
+- [01:20:14.800] driving behind this mission, we are going to clean up
+- [01:20:17.490] Washington D.C.
+- [01:20:18.740] and we're going to do it the right way, the lawful way,
+- [01:20:21.130] and we're going to make sure Washington D.C. is safe again.
+- [01:20:24.140] Thank you Mr. President. Thank you Attorney General.
+- [01:20:25.770] The President: Thank you very much.
+- [01:20:28.600] Thank you Kash. So the process begins right now.
+- [01:20:33.920] It actually started over the weekend
+- [01:20:35.800] and we confronted a lot of very bad people.
+- [01:20:38.660] But it's going to be something
+- [01:20:40.760] that will be pretty amazing to you as you watch it.
+- [01:20:45.040] And I think most of you say
+- [01:20:46.790] it's a beautiful thing to do it right.
+- [01:20:49.500] We're going to be removing homeless encampments
+- [01:20:52.310] from all over our parks, our beautiful, beautiful parks,
+- [01:20:55.790] which now a lot of people can't walk on.
+- [01:20:58.810] They're very dirty, got a lot of problems,
+- [01:21:05.240] but we've already started that.
+- [01:21:06.570] We're moving the encampments away,
+- [01:21:08.860] trying to take care of people.
+- [01:21:11.860] Some of those people, we don't know how they even got there.
+- [01:21:16.070] Some of those people are from different countries,
+- [01:21:17.840] different parts of the world.
+- [01:21:19.070] Nobody knows who they are, they have no idea, but they're there.
+- [01:21:22.670] We're getting rid of the people from underpasses
+- [01:21:24.950] and public spaces from all over the city.
+- [01:21:27.630] There are many places that they can go
+- [01:21:30.580] and we're going to help them as much as you can help.But
+- [01:21:33.340] they'll not be allowed to turn our capital
+- [01:21:35.450] into a wasteland for the world to see.
+- [01:21:40.010] The Metropolitan Police Department
+- [01:21:41.510] and the federal authorities will be supported in the effort,
+- [01:21:45.860] a really big effort. The 800 D.C.
+- [01:21:49.480] National Guardsmen that we'll put on and much more
+- [01:21:52.390] if necessary, much more.
+- [01:21:56.900] You remember I said I offered 10,000 once.
+- [01:21:59.230] Remember I said to a certain person,
+- [01:22:02.010] a person who I thought always was highly overrated,
+- [01:22:04.980] not very competent, but I said, "If you need them,
+- [01:22:08.730] we'll give you 10,000 of the military
+- [01:22:11.880] or the National Guard." They turned me down.
+- [01:22:14.870] But if necessary, we're going to move service members
+- [01:22:18.050] directly to joining the guardsmen.
+- [01:22:21.740] And that'll take place very rapidly.
+- [01:22:23.730] And that'll be done in conjunction with Pam
+- [01:22:25.550] and with Pete and everybody else.
+- [01:22:28.020] Washington D.C.
+- [01:22:29.300] should be one of the safest, cleanest,
+- [01:22:31.030] and most beautiful cities anywhere in the world.
+- [01:22:33.220] And we're going to make it that. We're going to make it safe.
+- [01:22:35.780] We're going to make it smart.
+- [01:22:37.120] We're going to make it beautiful.
+- [01:22:38.480] So beautiful.
+- [01:22:39.900] Some of the buildings we're going to add to it.
+- [01:22:42.170] You see what we've done at the White House,
+- [01:22:43.890] White House is a whole different building.
+- [01:22:46.010] I do that in my part-time
+- [01:22:47.330] because it's a natural instinct as a real estate person.
+- [01:22:50.420] I was very good at that.
+- [01:22:51.730] I was very good at fixing things up.
+- [01:22:53.470] I like fixing things up. You see what's happening.
+- [01:22:56.770] The marble floors are being reinstalled, renovated, fixed.
+- [01:23:01.120] The whole place is becoming very beautiful.
+- [01:23:03.320] We're going to be adding a magnificent ballroom,
+- [01:23:05.520] most beautiful ballroom I think anywhere.
+- [01:23:07.660] We need it.
+- [01:23:08.910] I would've certainly loved to have had it today.
+- [01:23:11.410] I think we would've filled it up.
+- [01:23:12.840] A lot of you who are standing outside can't get in this room.
+- [01:23:15.830] I have never seen the room like this,
+- [01:23:17.600] which tells me that you want talk about --
+- [01:23:20.460] I mean, this was a D.C. news conference.
+- [01:23:23.250] It tells me that you want to talk about crime in D.C.
+- [01:23:26.250] and beautification of D.C.
+- [01:23:27.610] But I'm going to put that -- That's easy.
+- [01:23:30.850] And I think frankly, fixing the crime with the pros,
+- [01:23:33.130] fixing the crime is easy too.
+- [01:23:35.070] A person who I've known for a long time,
+- [01:23:37.740] and she's been incredible.
+- [01:23:39.900] She was a fantastic, one of the best ever,
+- [01:23:43.650] district attorneys in New York. She was in Westchester
+- [01:23:46.560] and she became a judge, very successful judge.
+- [01:23:49.880] And then she went into showbiz because she was such a good
+- [01:23:52.780] DA and such a good judge.
+- [01:23:55.110] Tough judge, but fair. Always fair.
+- [01:23:57.150] Nobody ever complained about that. But she was tough.
+- [01:24:00.130] And because of that and her reputation,
+- [01:24:02.700] she went into showbiz. So a lot of people don't --
+- [01:24:05.160] They think of Jeanine as showbiz.
+- [01:24:06.520] Actually showbiz was not her thing and she did great.
+- [01:24:11.430] She was on along with a couple of other of my friends
+- [01:24:14.040] on the number one show. And she did great.
+- [01:24:17.460] But this is what she loves doing.
+- [01:24:20.220] This is really her baby.
+- [01:24:23.230] What she's going to do is going to be incredible.
+- [01:24:25.840] And I'd like to introduce to speak for just a few seconds
+- [01:24:29.650] on what she has in mind, what she wants to do.
+- [01:24:32.860] We're going to be appointing some judges.
+- [01:24:34.650] We have some open spots,
+- [01:24:35.870] and we're going to take people --
+- [01:24:37.710] Because the judges are letting killers out.
+- [01:24:40.820] They just say, "Go. That's okay. Don't worry about it."
+- [01:24:45.590] So we're putting some -- Pam recommended,
+- [01:24:48.380] Todd recommended some judges, our great Janine recommended,
+- [01:24:52.470] Janine's given me three great candidates already.
+- [01:24:54.950] We have about 10 open spots
+- [01:24:56.490] and we could probably create some more.
+- [01:24:57.860] We need them.
+- [01:24:59.370] Janine, would you say a few words please?
+- [01:25:04.010] Jeanine Pirro: Thank you very much, Mr. President
+- [01:25:05.810] and thank you Madam Attorney General
+- [01:25:07.700] and to all my partners here. We all want the same thing.
+- [01:25:11.920] We all want a safe city. We want a safe capital.
+- [01:25:15.640] We want to be able to bring our families here.
+- [01:25:18.470] We be able to come and enjoy the history
+- [01:25:22.020] that makes this place great.
+- [01:25:24.180] And unfortunately, we are not in that position right now.
+- [01:25:27.780] And Mr. President, I want to thank you for taking the step
+- [01:25:31.360] that we need right now to make criminals understand
+- [01:25:36.030] that they are not going to get away with it anymore.
+- [01:25:38.490] And I'm not going to stand here and go over and over the cases,
+- [01:25:42.410] but what I can tell you is this.
+- [01:25:44.610] I see too much violent crime being committed by young punks
+- [01:25:49.690] who think that they can get together in gangs and crews
+- [01:25:52.860] and beat the hell out of you or anyone else.
+- [01:25:56.010] They don't care where they are. They can be in Dupont Circle,
+- [01:26:00.060] but they know that we can't touch them.
+- [01:26:02.220] Why?
+- [01:26:03.490] Because the laws are weak. I can't touch you if you're 14,
+- [01:26:07.450] 15, 16, 17 years old and you have a gun.
+- [01:26:11.440] I convict someone of shooting another person
+- [01:26:14.230] with an illegal gun on a public bus in the chest,
+- [01:26:18.650] intent to kill. I convict him.
+- [01:26:21.600] And you know what the judge gives him?
+- [01:26:23.610] Probation. Says, "You should go to college."
+- [01:26:26.890] We need to go after the D.C. Council and their absurd laws.
+- [01:26:31.660] We need to get rid of this concept of a no cash bail.
+- [01:26:36.400] We need to recognize that the people
+- [01:26:38.350] who matter are the law-abiding citizens.
+- [01:26:41.760] And it starts today. But it's not going to end today
+- [01:26:45.210] because the President is going to do everything we need to do
+- [01:26:48.750] to make sure that these emboldened criminals understand
+- [01:26:52.510] we see you, we're watching you
+- [01:26:55.250] and we're going to change the law to catch you.
+- [01:26:57.830] And my final note is this.
+- [01:27:00.320] These kids understand that the jurisdiction
+- [01:27:03.850] is through the State Attorney General Brian Schwab.
+- [01:27:07.310] I did a poster of the young man from DOGE
+- [01:27:10.210] who was beaten bloody with a severe concussion,
+- [01:27:12.850] a broken nose.
+- [01:27:14.540] And then I did a poster of what happens to those kids
+- [01:27:17.820] because I can't arrest them, I can't prosecute them.
+- [01:27:21.170] They go to family court
+- [01:27:23.110] and they get to do yoga and arts and crafts.
+- [01:27:26.610] Enough. It changes today. Thank you, Mr. President.
+- [01:27:30.430] The President: Thank you, Jeanine.
+- [01:27:31.710] Jeanine Pirro: You're welcome.
+- [01:27:33.000] The President: Great job. Thank you.
+- [01:27:36.240] If I could, I just signed some executive orders
+- [01:27:39.710] I'd like to have Will please come up
+- [01:27:41.370] and we'll let the people know what we signed.
+- [01:27:44.710] Do you want to put them down?
+- [01:27:46.000] The Press: Yes, sir.
+- [01:27:47.220] The President: Go ahead.
+- [01:27:48.840] The Press: A short while ago in the Oval Office,
+- [01:27:50.480] President Trump signed two crucial executive actions
+- [01:27:54.070] to deal with the emergency crime conditions
+- [01:27:56.130] we currently face in the District of Columbia.
+- [01:27:59.110] The first of these was an executive order
+- [01:28:00.950] as President Trump said before,
+- [01:28:02.990] invoking his powers under Section 40 of the Home Rule Act
+- [01:28:06.770] to take federal control of the D.C.
+- [01:28:08.830] Metropolitan Police Department. Along with that executive order,
+- [01:28:12.410] President Trump signed the statutorily
+- [01:28:14.940] required notification letters to Mayor Bowser
+- [01:28:18.500] and to the relevant House and Senate committee leaders.
+- [01:28:21.880] The second major executive action
+- [01:28:23.610] that President Trump signed was a presidential memorandum
+- [01:28:27.150] directing the Secretary of Defense
+- [01:28:29.320] to utilize the National Guard
+- [01:28:31.390] to address the conditions we see on our streets here in D.C.
+- [01:28:36.010] It also authorized the Secretary of Defense
+- [01:28:38.720] to work with state governors
+- [01:28:40.130] to utilize their National Guard units if necessary as well.
+- [01:28:44.920] These are bold, decisive steps intended
+- [01:28:48.030] to combat the out-of-control crime conditions
+- [01:28:50.390] we've seen on D.C.'s streets for far too long.
+- [01:28:53.530] And I, for one am deeply proud to be part of an administration
+- [01:28:56.650] that's finally coming to terms with these issues sir.
+- [01:28:59.200] The President: Thank you very much. Thank you.
+- [01:29:02.920] So just to conclude, Washington D.C.
+- [01:29:07.950] should be one of the safest, cleanest,
+- [01:29:10.920] most beautiful places anywhere in the world.
+- [01:29:13.130] It was years ago.
+- [01:29:16.610] We had one problem that was a pretty big problem.
+- [01:29:20.010] The radical left got out of control
+- [01:29:22.910] and they started trying to rip down statues.
+- [01:29:25.590] And I said, "Let's go pass a law real fast.
+- [01:29:28.500] We're going to do it real fast."
+- [01:29:29.910] But we were blocked by the Democrats
+- [01:29:31.720] who do not want safety.
+- [01:29:34.320] Nobody gets it. I don't get it.
+- [01:29:36.330] They don't get it because they can't get votes.
+- [01:29:38.520] I don't know how they can win an election with this,
+- [01:29:40.420] but they don't want safety.
+- [01:29:42.260] And I found an old statute, very old,
+- [01:29:44.290] early 1900s that said of you so much as touch
+- [01:29:49.140] or even think about destroying a statue
+- [01:29:53.220] or a monument in Washington.
+- [01:29:56.270] D.C. you go to jail for 10 years with no probation, no anything.
+- [01:30:01.490] Slightly different than we have today.
+- [01:30:02.840] Today we have cashless bail.
+- [01:30:04.820] There you get jailed 10 years, no curtailed sentence, 10 years.
+- [01:30:10.840] And we took it out. Nobody used it.
+- [01:30:13.280] It was never used because it was harsh.
+- [01:30:16.390] And you remember they started to rip down
+- [01:30:20.940] the statue of Abraham Lincoln.
+- [01:30:22.450] I said, "That's a tough one to rip down."
+- [01:30:25.400] He was pretty good, Pam. I think he was pretty
+- [01:30:28.840] When the ropes started going around Abraham Lincoln
+- [01:30:31.050] to pull him down, Andrew Jackson, others,
+- [01:30:35.080] and they were heading to the Jefferson Memorial,
+- [01:30:38.780] Thomas Jefferson.
+- [01:30:40.450] They're going to do a big number there,
+- [01:30:42.080] I said, it's time.
+- [01:30:44.160] And I signed that statute immediately.
+- [01:30:47.810] We had it updated. We made it --
+- [01:30:51.740] Used the same language. All passed by Congress.
+- [01:30:54.860] And I announced it's 10 years in jail,
+- [01:30:57.690] no probation, no anything. 10 years, no curtail sentence,
+- [01:31:01.190] if you so much as touch a statue in Washington.
+- [01:31:09.130] It was an amazing sight, beautiful sight,
+- [01:31:11.940] everybody just left.
+- [01:31:13.860] The ropes were hanging around Andrew Jackson
+- [01:31:16.080] and there were two ropes around Abraham Lincoln,
+- [01:31:20.790] they left the rope, but everybody just left.
+- [01:31:24.120] I know it was the last problem we ever had.
+- [01:31:25.880] You know that was the last problem
+- [01:31:27.620] that we ever had with the statutes?
+- [01:31:29.050] They were going wild.
+- [01:31:30.770] And somebody came to me and said, sir, in 1910 --
+- [01:31:34.690] I don't want to give you an exact,
+- [01:31:36.110] because you'll say Donald Trump gave us wrong dates.
+- [01:31:40.880] Around early on --
+- [01:31:42.990] If I'm slightly off they make you sound a little bad.
+- [01:31:46.480] So I won't put myself in that position.
+- [01:31:49.290] I won't put you in that position.
+- [01:31:51.260] Because I think everybody agrees with what we're doing today.
+- [01:31:53.870] But when I signed that thing, it was like a miracle.
+- [01:31:57.080] Everybody left. They were gone.
+- [01:32:00.120] They were starting to march down.
+- [01:32:01.550] They started the march toward Thomas Jefferson
+- [01:32:05.770] and I figured he was always going to be safe.
+- [01:32:09.410] But they found something with him
+- [01:32:11.050] and they found something with Abraham Lincoln
+- [01:32:14.000] and even in the name George Washington and California,
+- [01:32:18.000] numerous places changed the name of George Washington High School
+- [01:32:23.040] and various other places.
+- [01:32:24.370] They took George Washington's name --
+- [01:32:25.780] This was a sick woke culture that I think we've largely ended
+- [01:32:31.520] and a lot of those people that were woke
+- [01:32:33.070] are now turning out to be the opposite.
+- [01:32:36.800] I won't go so far as to say MAGA,
+- [01:32:39.760] it's a very special category, but they've gotten out of that.
+- [01:32:44.790] But we have people that love this country
+- [01:32:47.690] and they love this really beautiful capital.
+- [01:32:50.740] It is. I flew over it the other day
+- [01:32:52.470] and I said, what a beautiful place.
+- [01:32:54.210] But if there's crime all over the streets,
+- [01:32:56.930] when you get there it doesn't look so beautiful.
+- [01:32:59.020] But we're going to make it beautiful again.
+- [01:33:01.320] We're going to fix it with crime.
+- [01:33:02.630] And we're going to also, as we're doing that,
+- [01:33:04.570] we're going to start doing things that we know how to do,
+- [01:33:07.350] that I know how to do better than anybody I guess
+- [01:33:09.450] because of my experience from previous life.
+- [01:33:13.580] But not only are we stopping the crime,
+- [01:33:15.310] we're going to clean up the trash and the graffiti
+- [01:33:19.230] and the crime and the dirt and the broken marble panels
+- [01:33:23.930] and all of the things they've done to hurt this city.
+- [01:33:27.150] And we're going to restore the city
+- [01:33:28.710] back to the gleaming capital that everybody wants it to be.
+- [01:33:32.890] It's going to be something very special.
+- [01:33:36.530] All of these people are really tough.
+- [01:33:38.920] Can I shake your hand, Gaddy, please?
+- [01:33:40.370] You're going to be so important here.
+- [01:33:42.000] You're going to be that guy I hope I don't have to fire him
+- [01:33:46.390] in two weeks because he's too soft.
+- [01:33:48.760] I don't think he's too soft. If I do, I will though.
+- [01:33:51.320] Is it okay -- If you're soft,
+- [01:33:53.750] weak and pathetic like so many people
+- [01:33:56.560] I will fire you so fast.
+- [01:34:00.130] You're not going to have to worry about that.
+- [01:34:01.700] No, I think you're going to do a fantastic job.
+- [01:34:04.110] And everybody in this room, they may not express it,
+- [01:34:06.450] but they all want that to happen.
+- [01:34:08.120] They want to be safe and they have families too.
+- [01:34:11.310] So it's an honor to have such a large group.
+- [01:34:14.050] I've done this for years now, hard to believe,
+- [01:34:17.770] I've never seen this room so packed.
+- [01:34:20.620] In fact, I'm sure it's a violation of every fire code,
+- [01:34:26.320] but we'll let you stay anyway. You're taking a chance.
+- [01:34:30.780] With that we'll say maybe if you could --
+- [01:34:32.990] Oh, wow. We could be here all day long.
+- [01:34:39.860] If we could keep the first questions
+- [01:34:41.670] perhaps to this subject
+- [01:34:43.800] and then we'll go onto a few other. Please.
+- [01:34:47.400] The Press: Mr. President, thank you so much.
+- [01:34:48.840] Can you talk about how personal of an issue this is you?
+- [01:34:51.590] You talked about flying over the Washington Monument
+- [01:34:54.160] and seeing pride of what D.C. is and do you believe
+- [01:34:57.720] that the status of the city, the cleanliness,
+- [01:35:00.270] the way that crime is low is a direct reflection
+- [01:35:01.990] on how the country is run at a (inaudible)-
+- [01:35:03.390] The President: Yeah, I do.
+- [01:35:04.670] I think, the Capitol, look, everyone comes here.
+- [01:35:07.260] They're all coming, all the leaders,
+- [01:35:10.330] they're all wanting to come.
+- [01:35:12.320] And I say it, I've said it again,
+- [01:35:13.880] but I'm really just quoting other leaders from NATO,
+- [01:35:16.460] from the Middle East,
+- [01:35:18.220] King of Saudi Arabia, Qatar, UAE.
+- [01:35:22.430] I was over there, we brought back $5.1 trillion
+- [01:35:25.280] of investment into our country.
+- [01:35:26.720] But a month and a half ago I was at NATO.
+- [01:35:30.390] We had a great thing.
+- [01:35:31.620] They agreed to put up 5 percent instead of 2 percent.
+- [01:35:34.140] 2 percent, they didn't pay. 5 percent already paid.
+- [01:35:37.240] We had a great meeting and they all said the same thing.
+- [01:35:39.410] They said our country was dead.
+- [01:35:40.930] They thought our country was gone.
+- [01:35:43.230] One year ago they said your country was dead
+- [01:35:46.710] and now you have the hottest country anywhere in the world.
+- [01:35:48.910] We do. We have the hottest country in the world right now.
+- [01:35:52.170] The tariffs have helped.
+- [01:35:53.470] It's given us not only the money,
+- [01:35:55.250] it's billions, trillions of dollars of money,
+- [01:35:57.720] but it gives us great power over enemies.
+- [01:36:00.950] We solved five wars with Pakistan and India,
+- [01:36:05.650] we just solved one, Azerbaijan, as you know, in Armenia.
+- [01:36:12.480] That war was raging for 37 years and the two leaders got up
+- [01:36:17.520] and they said, we never thought this would be solved.
+- [01:36:20.130] Russia tried to solve it. They all tried to solve it.
+- [01:36:23.640] It was a very tough situation,
+- [01:36:25.230] but we got it done and got it done.
+- [01:36:26.710] And I said to the two men, I said, are you guys friends?
+- [01:36:29.960] And they had a hard time.
+- [01:36:32.070] They've been killing each other for 37 years, right?
+- [01:36:35.230] One was there five years, one was there for 22 years.
+- [01:36:37.820] He said, my whole life I've been fighting this war
+- [01:36:40.660] and you got it solved. But we did many of those.
+- [01:36:45.390] In the Congo and Rwanda,
+- [01:36:47.930] that's been going on for 30 years,
+- [01:36:50.520] 8 to 9 million people killed that they know of,
+- [01:36:53.050] but it was raging and we got that solved.
+- [01:36:54.820] We got a lot of them done. It's a great honor.
+- [01:36:57.310] But you want to have, when they come,
+- [01:37:00.390] the leaders come to our country to sign documents
+- [01:37:03.390] that the war is over or whatever,
+- [01:37:05.090] or for other reasons, they come for trade
+- [01:37:08.880] and you want them to come through so beautifully,
+- [01:37:11.840] you ride down those roads, everything should be perfect.
+- [01:37:14.890] You shouldn't have medians falling down into the roadway,
+- [01:37:18.770] median, the metal things that are always --
+- [01:37:22.390] Somebody had a great lobbyist
+- [01:37:25.090] because I've never seen them look good.
+- [01:37:28.420] I've been looking at those things
+- [01:37:29.880] with the little rut, they're always broken bad,
+- [01:37:35.020] but here they're really bad.
+- [01:37:37.750] We're going to either put new or fix it
+- [01:37:39.430] and it's not expensive, it's not really expensive
+- [01:37:41.840] or we're going to fix our roads a little bit.
+- [01:37:43.400] We're going to clean up our sidewalks.
+- [01:37:44.850] You have countries where every Saturday the people go out
+- [01:37:49.000] and they wash their sidewalks in front of their stores
+- [01:37:51.500] or their houses. They scrub their sidewalks.
+- [01:37:55.920] So we aren't quite at that level yet.
+- [01:37:58.250] I don't think, Gaddy, we're not quite there yet,
+- [01:38:01.010] but maybe we will. They go out and they scrub.
+- [01:38:03.650] I think it's so beautiful to hear that
+- [01:38:05.020] and to see those stories.
+- [01:38:06.240] But we're going to make it clean.
+- [01:38:08.930] But just to finish with your question,
+- [01:38:12.230] it's a very, very strong reflection of our country
+- [01:38:17.120] and when they see a bad city --
+- [01:38:20.720] My father always used to tell me,
+- [01:38:22.200] I had a wonderful father, very smart,
+- [01:38:24.760] and he used to say, son, when you walk into a restaurant
+- [01:38:29.490] and you see a dirty front door, don't go in.
+- [01:38:33.470] Because if the front door is dirty,
+- [01:38:35.320] the kitchen's dirty also. Same thing with the Capitol.
+- [01:38:40.190] If our Capitol's dirty, our whole country is dirty
+- [01:38:43.900] and they don't respect us.
+- [01:38:45.170] So it's a very good question actually.
+- [01:38:46.740] The Press: Mr. President, (inaudible)
+- [01:38:48.640] sorry, question for you on this specific issue.
+- [01:38:52.320] Do you expect more cities to follow D.C.'s path
+- [01:38:55.020] if this goes through?
+- [01:38:56.240] So the idea is that Chicago L.A.,
+- [01:38:58.350] San Francisco, would they expect similar action,
+- [01:39:00.410] what we've seen in D.C.? And the other question, sir,
+- [01:39:03.030] there's reporting that the administration
+- [01:39:04.730] is going to reclassify marijuana.
+- [01:39:06.900] Would that send mixed messages
+- [01:39:08.330] that if marijuana is okay, some drugs are okay,
+- [01:39:10.850] but we're trying to clean up crime?
+- [01:39:12.150] How do they go hand in hand?
+- [01:39:13.360] The President: We're only looking at that, that's early.
+- [01:39:15.090] But somebody reported it, which is fine.
+- [01:39:17.150] We're looking at it. Some people like it.
+- [01:39:18.700] Some people hate it.
+- [01:39:20.140] Some people hate the whole concept of marijuana
+- [01:39:22.170] because if it does bad for the children,
+- [01:39:23.850] it does bad for people that are older than children.
+- [01:39:27.030] But we're looking at reclassification
+- [01:39:28.930] and we'll make a determination
+- [01:39:30.880] I would say over the next few weeks,
+- [01:39:33.520] and that determination hopefully will be the right one.
+- [01:39:35.710] It's very complicated subject, the subject of marijuana.
+- [01:39:39.300] I've heard great things having to do with medical
+- [01:39:41.790] and I've had bad things having to do with
+- [01:39:43.570] just about everything else.
+- [01:39:44.850] But medical, for pain and various things.
+- [01:39:48.220] I've heard some pretty good things.
+- [01:39:49.680] But for other things I've heard some pretty bad things.
+- [01:39:53.980] The other part of your question,
+- [01:39:56.310] I mean we're just going to see what happens with it all.
+- [01:39:58.610] We're going to have a tremendous success on what we're doing.
+- [01:40:03.270] Other cities are hopefully watching this,
+- [01:40:06.040] they're all watching just like everyone's watching here,
+- [01:40:09.150] they're all watching and maybe they'll self-clean up
+- [01:40:13.900] and maybe they'll self-do this
+- [01:40:15.760] and get rid of the cashless bail thing
+- [01:40:18.030] and all of the things that caused the problem.
+- [01:40:20.040] I mean if you go back,
+- [01:40:21.460] this whole thing with cashless bail is a disaster.
+- [01:40:24.580] So many problems came that we never had before.
+- [01:40:28.820] So they're watching us today,
+- [01:40:30.870] and if they don't learn their lesson,
+- [01:40:33.100] if they haven't studied us properly --
+- [01:40:34.990] Because we're going to be very successful,
+- [01:40:36.370] I have zero doubt about that.
+- [01:40:38.780] It's a question of will it be really fast?
+- [01:40:41.200] Like the border,
+- [01:40:42.440] and everyone said, they used to say,
+- [01:40:44.200] Biden used to say, I need legislation.
+- [01:40:46.320] I didn't get any legislation.
+- [01:40:49.530] I called up our people and we did a great job.
+- [01:40:55.030] Tom Homan was great.
+- [01:40:57.320] As you know, our Secretary did a great job.
+- [01:40:59.290] They did a great job.
+- [01:41:00.490] There's no games. They didn't play games.
+- [01:41:02.990] And we're going to have the same thing here.
+- [01:41:05.510] But then I'm going to look at New York in a little while.
+- [01:41:08.460] Let's do this. Let's do this together.
+- [01:41:10.480] Let's see. It's going to go pretty quickly.
+- [01:41:13.040] And if we need to, we're going to do the same thing in Chicago,
+- [01:41:16.430] which is a disaster,
+- [01:41:17.750] we have a mayor there who's totally incompetent.
+- [01:41:20.650] He's an incompetent man
+- [01:41:22.690] and we have an incompetent governor there.
+- [01:41:25.880] Pritzker is an incompetent.
+- [01:41:27.290] His family threw him out of the business
+- [01:41:30.140] and he ran for governor.
+- [01:41:32.570] Now I understand he wants to be president.
+- [01:41:35.140] But I noticed he lost a little weight,
+- [01:41:36.510] so maybe he has a chance. You never know what happens.
+- [01:41:39.660] But Pritzker is a gross, incompetent guy,
+- [01:41:41.840] thrown out of the family business.
+- [01:41:44.860] But when I look at Chicago and I look at L.A.,
+- [01:41:50.130] if we didn't go to L.A. three months ago, L.A.
+- [01:41:53.490] would be burning, like the part that didn't burn.
+- [01:41:56.200] If he would've allowed the water to come down,
+- [01:41:59.310] which I told him about in my first term,
+- [01:42:01.170] I said, you're going to have problems, let it come down.
+- [01:42:03.670] We actually sent in our military
+- [01:42:05.210] to have the water come down into L.A.
+- [01:42:06.660] They still didn't want it to come down after the fires.
+- [01:42:10.140] But that was it, we have it coming down.
+- [01:42:12.590] But hopefully L.A. is watching. That mayor also,
+- [01:42:16.650] the city's burning, they lost like 25,000 homes,
+- [01:42:20.300] I went there the day after the fire, you were there,
+- [01:42:23.800] and I saw people standing in front of a burned down home.
+- [01:42:26.960] Their homes were incinerated. Even the steel was literally,
+- [01:42:33.090] it was all warped and literally disintegrated
+- [01:42:36.140] because of the winds and the flame, like a blow blowtorch.
+- [01:42:40.040] They were standing on this beautiful day,
+- [01:42:42.240] maybe a couple of days after, we gave it a little time
+- [01:42:45.400] because what they had suffered, almost 25,000 homes.
+- [01:42:50.410] And you see what's happening now.
+- [01:42:52.470] They didn't give their permits. I went to a town hall meeting,
+- [01:42:55.630] I said, we're going to get you the federal permits,
+- [01:42:57.460] which are much harder almost immediately.
+- [01:43:00.750] Lee Zeldin is a star. He did an incredible job.
+- [01:43:03.440] They have all their federal permits.
+- [01:43:05.720] They don't have their city permits.
+- [01:43:07.080] And the Mayor said to me,
+- [01:43:08.350] we think we could have them in two years.
+- [01:43:10.420] I was walking down the street
+- [01:43:12.780] and I met with firemen and police
+- [01:43:16.370] and I was saying hello to many people
+- [01:43:17.710] that were standing in front of their homes with yellow tape.
+- [01:43:20.580] You can't go in. You can't go onto the lot.
+- [01:43:23.220] And those people wanted to start rebuilding their homes
+- [01:43:25.540] then and there.
+- [01:43:26.770] And the Mayor said,
+- [01:43:28.000] we should be able to get them the permits within two years.
+- [01:43:30.260] I said, that's a shame. Two years.
+- [01:43:31.970] Are you kidding? I'm going to get them
+- [01:43:33.340] the federal permit like almost immediately.
+- [01:43:35.520] Two years? And she ruined back. Well, maybe one year.
+- [01:43:38.810] The place was booing her out of the place.
+- [01:43:41.540] They don't have their permits to build their homes.
+- [01:43:44.110] And now they're talking about putting,
+- [01:43:46.390] this is among the most beautiful areas,
+- [01:43:48.490] was, in the country, now they're talking about
+- [01:43:51.120] putting low income housing there.
+- [01:43:53.250] Can you believe this? I love low-income housing.
+- [01:43:56.120] I made money with low-income housing.
+- [01:43:57.710] I built low-income housing.
+- [01:43:58.920] I know more about low-income housing and luxury housing.
+- [01:44:01.330] I know about everything real estate.
+- [01:44:04.240] They want to replace some of those homes
+- [01:44:05.850] with low-income housing.
+- [01:44:08.930] They haven't gotten their permits yet.
+- [01:44:10.890] We've gotten all the federal permits,
+- [01:44:13.020] which are much tougher to get.
+- [01:44:14.470] And it was done almost immediately through Lee Zeldin
+- [01:44:16.950] and Federal Environmental.
+- [01:44:19.490] And I watched the other day, those people are angry
+- [01:44:21.840] and now they had tremendous -- They loved that area.
+- [01:44:25.450] They loved a whole big area, different places,
+- [01:44:28.250] but they loved it, it was all luxury stuff
+- [01:44:30.290] and beautiful stuff, and some wasn't that luxury.
+- [01:44:32.780] But the level of love for that neighborhood,
+- [01:44:36.440] their neighborhoods was incredible.
+- [01:44:39.020] And you know what, I watched people on television,
+- [01:44:41.490] they want to go, they want to leave.
+- [01:44:42.910] They've lost their spirit, they've lost their heart
+- [01:44:45.370] because the mayor's incompetent.
+- [01:44:47.520] And Gavin Newsom is incompetent. He's got a good line of bullshit
+- [01:44:51.270] but that's about it. He's incompetent.
+- [01:44:53.780] And you have the Los Angeles is, it's amazing.
+- [01:44:57.950] The first thing I did. I got the Olympics to go there.
+- [01:45:00.460] I was the one that got it and by a rare thing that happened,
+- [01:45:04.700] I'll be the president, I was very upset
+- [01:45:06.280] because I got the Olympics there and I said
+- [01:45:07.700] I won't be president when it comes.
+- [01:45:09.030] But bad things happened and illegal things happened,
+- [01:45:12.580] really illegal things happened.
+- [01:45:14.520] Now it turns out one good thing was
+- [01:45:16.660] I'm going to be the president for the Olympics for 250,
+- [01:45:20.720] which is going to be fantastic. And also for the World Cup.
+- [01:45:24.320] So we have a lot of good things
+- [01:45:25.740] and I hope, 250 anniversary is going to be the best.
+- [01:45:29.960] But when I looked at those people
+- [01:45:32.500] and I saw last night on television
+- [01:45:34.820] that they still don't have their permits,
+- [01:45:37.690] it's a disgrace what's happened in Los Angeles.
+- [01:45:42.590] The Press: (inaudible)
+- [01:45:43.790] Thank you. The China tariff deadline is tonight,
+- [01:45:47.100] or do you plan to extend that?
+- [01:45:48.910] The President: We'll see what happens.
+- [01:45:51.690] We've been dealing very nicely with China,
+- [01:45:53.370] as you probably have heard. They have tremendous tariffs
+- [01:45:58.140] that they're paying to the United States of America.
+- [01:46:01.480] And we'll see what happens.
+- [01:46:03.030] They've been dealing quite nicely.
+- [01:46:04.680] The relationship is very good with President Xi and myself.
+- [01:46:08.990] The Press: (inaudible) Mr. President,
+- [01:46:10.600] you mentioned upcoming meeting with President Putin.
+- [01:46:13.300] Can you tell us what you hope to get out of that
+- [01:46:15.480] and whether you'll consider inviting President Zelensky
+- [01:46:17.630] to join?
+- [01:46:18.830] The President: So you have to understand this
+- [01:46:20.920] is a war that should have never happened.
+- [01:46:22.980] There's a war that wouldn't have happened
+- [01:46:24.320] if I were president, it would've never happened.
+- [01:46:27.250] It was the apple of his eye,
+- [01:46:28.520] got along very well with President Putin.
+- [01:46:31.380] But if you look under President Bush,
+- [01:46:33.990] they took a lot of territory.
+- [01:46:35.530] Under President Obama, they took a lot of territory.
+- [01:46:39.350] Under Biden, they essentially took the whole thing.
+- [01:46:41.970] It took just a question of time.
+- [01:46:44.400] Under Trump, you know what they took?
+- [01:46:46.020] Nothing. Nothing. I was the one that said,
+- [01:46:49.970] you can't build your pipeline that was half built.
+- [01:46:52.710] I came in, I stopped the pipelines called Nord Stream 2.
+- [01:46:56.680] Nobody knows that.
+- [01:46:57.900] Nobody ever heard of Nord Stream 2.
+- [01:46:59.530] You might've not even heard it.
+- [01:47:01.060] Biggest pipeline in the world, I stopped it.
+- [01:47:03.650] I was not a friend of Russia, but I got along well with Putin.
+- [01:47:06.180] It's always good to get along with other countries
+- [01:47:08.070] if possible,
+- [01:47:09.410] but that doesn't mean you roll over like Biden did.
+- [01:47:12.850] Biden came in and he immediately approved the pipeline.
+- [01:47:15.190] I couldn't believe it.
+- [01:47:16.410] Then they say Trump wasn't tough on Russia.
+- [01:47:18.440] I wasn't tough? I was the toughest.
+- [01:47:20.610] Putin said, if you're not tough,
+- [01:47:22.100] I would hate like hell to see who is.
+- [01:47:23.720] I stopped the biggest economic development job,
+- [01:47:26.990] the biggest job that Russia had ever built,
+- [01:47:28.870] I stopped it. It was dead.
+- [01:47:31.130] And this low IQ president came in
+- [01:47:35.120] and he let them build a pipeline and supply oil
+- [01:47:38.490] and gas all over Europe.
+- [01:47:40.980] So this is really a feel out meeting a little bit.
+- [01:47:45.060] And President Putin invited me to get involved.
+- [01:47:49.640] He wants to get involved.
+- [01:47:50.910] I believe he wants to get it over with.
+- [01:47:53.090] Now, I've said that a few times and I've been disappointed
+- [01:47:57.200] because I'd have a great call with him
+- [01:47:59.010] and then missiles would be lobbed into Kiev
+- [01:48:01.090] or some other place
+- [01:48:02.300] and you'd have 60 people laying on the road dying.
+- [01:48:06.220] I said, that's cold. That's cold.
+- [01:48:08.310] But it's a violent war.
+- [01:48:11.450] 5 to 7,000 people a week are dying.
+- [01:48:15.740] There's nobody from here,
+- [01:48:17.320] they're all Russian and Ukrainian people
+- [01:48:19.430] and some people from the city, much smaller number.
+- [01:48:21.760] But still those missiles do damage
+- [01:48:24.900] and they kill a lot of people, but mostly soldiers.
+- [01:48:28.510] And they're young soldiers,
+- [01:48:30.930] although in the case of Ukraine they're getting much older,
+- [01:48:33.160] they're drafting 60 year olds now.
+- [01:48:36.930] It's a terrible thing to witness,
+- [01:48:38.490] and I think I have an obligation.
+- [01:48:40.540] Look, this is Joe Biden's war. This is not my war.
+- [01:48:44.290] I made a deal with NATO a month ago.
+- [01:48:46.700] You covered it very accurately, actually.
+- [01:48:49.240] We don't pay anything anymore. We're not paying anything.
+- [01:48:52.270] They are buying things from us and NATO is paying us.
+- [01:48:55.170] I got it raised from 2 percent of GDP to 5 percent,
+- [01:48:59.810] and they're paying us for everything that we send.
+- [01:49:02.490] We're not paying.
+- [01:49:03.700] But Biden approved, $350 billion.
+- [01:49:06.920] Europe has spent 100 billion.
+- [01:49:10.010] The money that's been spent, and the death is incredible.
+- [01:49:12.710] It's the worst thing that's happened,
+- [01:49:14.060] by far the worst that's happened since World War II.
+- [01:49:17.690] So I'm going in to speak to Vladimir Putin,
+- [01:49:21.890] and I'm going to be telling him, you got to end this war.
+- [01:49:24.380] You got to end it.
+- [01:49:26.170] And he wasn't going to mess with me.
+- [01:49:28.440] This war would've never happened.
+- [01:49:31.030] We had a discussion about it one time
+- [01:49:32.740] and we never had that discussion again,
+- [01:49:34.320] would've never happened. And when the election was rigged
+- [01:49:38.070] and then Biden took office, barely took office,
+- [01:49:42.270] the autopen took office, bad things started happening,
+- [01:49:46.110] bad things, stupid things were said
+- [01:49:48.380] and it ended up in a war.
+- [01:49:51.730] I don't believe this will happen anymore
+- [01:49:53.320] because I have that pretty well covered.
+- [01:49:56.160] This could end up in a third world war.
+- [01:49:57.750] This could have been a third world war.
+- [01:49:59.220] I don't think that's going to happen now.
+- [01:50:01.830] But I thought it was very respectful
+- [01:50:04.070] that the president of Russia is coming to our country
+- [01:50:09.390] as opposed to us going to his country
+- [01:50:11.580] or even a third-party place.
+- [01:50:14.510] But I think we'll have constructive conversations.
+- [01:50:18.870] Then after that meeting, immediately,
+- [01:50:21.190] maybe as I'm flying out, maybe as I'm leaving the room,
+- [01:50:24.800] I'll be calling the European leaders
+- [01:50:26.400] who I get along with very well.
+- [01:50:28.700] And I have a great relationship, I think with all of them,
+- [01:50:33.910] and I get along with Zelensky,
+- [01:50:35.570] but I disagree with what he's done,
+- [01:50:37.980] very, very severely disagree.
+- [01:50:39.460] This is a war that should have never happened,
+- [01:50:41.240] wouldn't have happened,
+- [01:50:42.900] but I'll be speaking to Zelensky.
+- [01:50:44.400] The next meeting will be with Zelensky
+- [01:50:47.510] and Putin or Zelensky and Putin and me.
+- [01:50:49.450] I'll be there if they need,
+- [01:50:51.140] but I want to have a meeting set up between the two leaders.
+- [01:50:54.550] I was a little bothered by the fact that Zelensky was saying,
+- [01:50:57.700] "Well, I have to get constitutional approval."
+- [01:50:59.900] I mean, he's got approval to go into war, kill everybody,
+- [01:51:03.560] but he needs approval to do a land swap
+- [01:51:06.440] because there'll be some land swapping going on.
+- [01:51:09.480] I know that through Russia
+- [01:51:11.390] and through conversations with everybody,
+- [01:51:14.400] to the good, for the good of Ukraine.
+- [01:51:16.940] Good stuff, not bad stuff. Also some bad stuff for both.
+- [01:51:20.760] So there's good and there's bad, but it's very complex
+- [01:51:23.790] because you have lines that are very uneven
+- [01:51:26.520] and there'll be some swapping.
+- [01:51:28.100] There'll be some changes in land,
+- [01:51:31.520] and the word that they will use is they make changes.
+- [01:51:35.400] We're going to change the lines, the battle lines.
+- [01:51:37.910] Russia's occupied a big portion of Ukraine.
+- [01:51:41.570] They've occupied some very prime territory.
+- [01:51:43.630] We're going to try and get some of that territory
+- [01:51:45.200] back for Ukraine.
+- [01:51:46.670] But they've taken some very prime territory.
+- [01:51:48.540] They've taken largely, in real estate
+- [01:51:52.430] we call it oceanfront property.
+- [01:51:53.830] That's always the most valuable property.
+- [01:51:56.380] If you're on a lake, a river or an ocean,
+- [01:51:58.420] it's always the best property.
+- [01:51:59.780] Well, Ukraine, a lot of people don't know that
+- [01:52:02.820] Ukraine was largely a thousand miles of ocean.
+- [01:52:07.260] That's gone, other than one small area, Odessa,
+- [01:52:12.390] it's a small area. There's just a little bit of water left.
+- [01:52:15.910] So I'm going to go and see the parameters.
+- [01:52:18.350] Now, I may leave and say good luck, and that'll be the end.
+- [01:52:23.110] I may say this is not going to be settled.
+- [01:52:25.310] I mean, there are those that believe
+- [01:52:27.650] that Putin wanted all of Ukraine.
+- [01:52:29.660] I happen to be one of them, by the way.
+- [01:52:32.170] I think if it weren't for me,
+- [01:52:33.520] he would not be even talking to anybody else right now.
+- [01:52:37.250] But I'm going to meet with him.
+- [01:52:38.710] We're going to see what the parameters are,
+- [01:52:40.790] and then I'm going to call up
+- [01:52:42.880] President Zelensky and the European leaders.
+- [01:52:45.820] The Press : Afterwards.
+- [01:52:47.040] The President: Right after the meeting, yeah.
+- [01:52:48.280] And I'm going to tell him what kind of a deal.
+- [01:52:49.790] I'm not going to make a deal.
+- [01:52:51.020] It's not up to me to make a deal.
+- [01:52:52.810] I think a deal should be made for both.
+- [01:52:54.560] I think Russia has to get back into building their country.
+- [01:52:57.190] It's a massive country.
+- [01:52:58.940] I think they have 11 time zones, if you can believe it.
+- [01:53:01.900] It's a massive --
+- [01:53:04.230] From the standpoint of land, it's by far the largest.
+- [01:53:07.450] They have tremendous potential in Russia to do well.
+- [01:53:09.850] They're not doing well.
+- [01:53:11.240] Their economy's not doing well right now
+- [01:53:12.900] because it's been very well disturbed by this.
+- [01:53:16.270] It doesn't help when the President of the United States
+- [01:53:18.620] tells their largest or second-largest oil buyer
+- [01:53:22.760] that we're putting a 50 percent tariff on you
+- [01:53:24.980] if you buy oil from Russia. That was a big blow.
+- [01:53:29.910] And then they say, "Gee, he wasn't so tough."
+- [01:53:31.920] Nobody else would've done that. And I haven't stopped there.
+- [01:53:34.320] I mean, look, I was all set to do things far bigger than that,
+- [01:53:39.980] but I got a call that they'd like to meet
+- [01:53:41.860] and I'm going to see what they want to meet about.
+- [01:53:44.000] I'd like to see a ceasefire. I'd like to see the best deal
+- [01:53:47.760] that could be made for both parties.
+- [01:53:50.340] It takes two to tango, right?
+- [01:53:52.680] So ultimately, I'll have a meeting next week.
+- [01:53:55.760] I had a great relationship with him considering the fact
+- [01:53:58.210] that I was not nice to him because of the pipeline.
+- [01:54:02.860] I ended the pipeline.
+- [01:54:04.980] I also gave the Javelins, do you ever hear of a Javelin?
+- [01:54:08.260] Javelin is called a tank buster.
+- [01:54:11.130] They say that Obama gave them sheets and I gave them Javelins.
+- [01:54:15.140] If it weren't for me, all those tanks
+- [01:54:17.190] that were destroyed at the first days of the war,
+- [01:54:20.450] because the tanks got stuck in the mud.
+- [01:54:22.720] Some commander made a better -- They would've been in Kiev
+- [01:54:27.230] in four hours going down the highway.
+- [01:54:32.280] But a Russian general made a brilliant decision
+- [01:54:34.350] to go through the farmland instead.
+- [01:54:36.650] And they just had torrential rains.
+- [01:54:38.390] And the rains were so bad and it was mud,
+- [01:54:40.560] and those tanks got stuck in the mud.
+- [01:54:42.770] I don't know who that general is, but knowing Vladimir,
+- [01:54:46.160] he's probably not around any longer
+- [01:54:48.280] because all those tanks were stuck in the mud
+- [01:54:50.210] and they went along with the Javelins.
+- [01:54:52.970] I gave them the Javelins, you know that, right?
+- [01:54:54.990] I gave them Javelins. They gave them sheets.
+- [01:54:58.750] But I'm going to meet with President Putin
+- [01:55:02.120] and we're going to see what he has in mind.
+- [01:55:06.000] And if it's a fair deal,
+- [01:55:07.360] I'll reveal it to the European Union leaders
+- [01:55:10.740] and to the NATO leaders and also to President Zelensky.
+- [01:55:14.500] I think out of respect I'll call him first
+- [01:55:18.070] and then I'll call them after.
+- [01:55:19.920] And I may say, "Lots of luck, keep fighting."
+- [01:55:23.640] Or I may say "We can make a deal."
+- [01:55:26.360] I will tell you this. I've seen a poll coming out of Ukraine.
+- [01:55:31.030] 88 percent of the people would like to see a deal made.
+- [01:55:35.460] And if you go back three years, everybody was gung-ho for war.
+- [01:55:39.220] Everybody's gung-ho for war until you have it.
+- [01:55:42.040] It's an amazing thing.
+- [01:55:43.280] I had it with a couple of countries
+- [01:55:44.860] where I couldn't get a deal done with one particular country
+- [01:55:49.890] and I just couldn't. The guy's great.
+- [01:55:51.750] He's a friend of mine, great, good leader, tough as hell.
+- [01:55:55.260] I couldn't get the deal done.
+- [01:55:56.610] And then he went into war for a short period of time,
+- [01:55:58.770] you know where I'm talking about, first term.
+- [01:56:01.670] And it was nasty, guys being killed all over the place.
+- [01:56:05.490] And he went through one week of war
+- [01:56:08.010] and I was able to get the deal done.
+- [01:56:09.430] He said, "This is nasty." Yes, please.
+- [01:56:11.960] The Press: Just to follow up on what you were saying there.
+- [01:56:14.800] First of all, Volodymyr Zelensky is not invited on Friday?
+- [01:56:19.100] The President: He wasn't a part of it.
+- [01:56:21.140] I would say he could go,
+- [01:56:22.420] but he's gone to a lot of meetings.
+- [01:56:23.800] He's been there for three and a half years. Nothing happened.
+- [01:56:25.610] The Press: Now what is the definition-
+- [01:56:27.000] The President: I mean, do you want somebody
+- [01:56:28.240] that's been doing this for three and a half years?
+- [01:56:30.310] What's the definition of a good deal?
+- [01:56:32.040] I'll tell you after I hear what the deal is.
+- [01:56:34.150] Because there could be many definitions.
+- [01:56:36.020] You're talking about a very large and complex situation.
+- [01:56:40.770] I tell you, the war that I just settled
+- [01:56:43.870] with Azerbaijan and with, as you know,
+- [01:56:47.310] and Armenia, was almost as complex as this one,
+- [01:56:50.900] having to do with routes, trade.
+- [01:56:52.150] The Press: What's the different with a successful meeting
+- [01:56:53.620] on Friday with Vladimir Putin?
+- [01:56:54.880] The President: We're going to have a meeting
+- [01:56:56.110] with Vladimir Putin, and at the end of that meeting,
+- [01:56:58.070] probably in the first two minutes,
+- [01:56:59.540] I'll know exactly whether or not a deal can be made.
+- [01:57:02.020] The Press: How will you know that?
+- [01:57:03.370] The President: Because that's what I do.
+- [01:57:04.630] I make deals. Please, go ahead.
+- [01:57:08.700] The Press: Thank you, Mr. President.
+- [01:57:09.980] I'm going to ask you two questions,
+- [01:57:11.250] one about China, one about Russia, if I could.
+- [01:57:13.440] On China, your administration agreed to send the most advanced
+- [01:57:17.900] or advanced NVIDIA and AMD chips to --
+- [01:57:20.640] The President: No, obsolete. No.
+- [01:57:21.940] The Press: Obsolete chip.
+- [01:57:23.140] And then 15 percent of the profits-
+- [01:57:24.430] The President: You mean the 20s.
+- [01:57:25.670] No, no. This is an old chip that China already has.
+- [01:57:32.320] And I deal with Jensen, who's a great guy, and NVIDIA.
+- [01:57:37.870] The chip that we're talking about,
+- [01:57:39.800] the H20, it's an old chip.
+- [01:57:43.930] China already has it in a different form,
+- [01:57:46.120] different name, but they have it,
+- [01:57:49.380] or they have a combination of two will make up for it
+- [01:57:52.360] and even then some. Jensen's a very brilliant guy,
+- [01:57:57.350] and Jensen also has a new chip, the Blackwell.
+- [01:57:59.830] Do you know what the Blackwell is?
+- [01:58:01.040] The Blackwell is super-duper advanced.
+- [01:58:04.730] I wouldn't make a deal with that,
+- [01:58:06.080] although it's possible I'd make a deal
+- [01:58:11.200] somewhat enhanced in a negative way, Blackwell.
+- [01:58:17.190] In other words, take 30 percent to 50 percent off of it.
+- [01:58:20.920] But that's the latest or the greatest in the world.
+- [01:58:23.440] Nobody has it. They won't have it for five years.
+- [01:58:25.990] But the H20 is obsolete.
+- [01:58:27.700] It's one of those things, but it still has a market.
+- [01:58:30.580] So I said, "Listen, I want 20 percent
+- [01:58:32.690] if I'm going to approve this for you,
+- [01:58:34.260] for the country, for our country, for the US."
+- [01:58:36.070] I don't want it myself. Every time I say, like, 747,
+- [01:58:42.070] I want, I want, yeah, for the Air Force.
+- [01:58:45.830] So I just wanted --
+- [01:58:47.090] So when I say I want 20, I want for the country.
+- [01:58:49.850] I only care about the country, I don't care about myself.
+- [01:58:52.910] And he said, "Would you make it 15?"
+- [01:58:55.950] So we negotiated a little deal.
+- [01:58:57.980] So he's selling a essentially old chip
+- [01:59:02.880] that Huawei has a similar chip, a chip that does the same thing.
+- [01:59:09.380] And I said, "Good, if I'm going to give it to you,"
+- [01:59:11.130] because they have a stopper, what we call a stopper,
+- [01:59:15.870] not allowed to do it.
+- [01:59:17.740] It's really known as a restrictive covenant.
+- [01:59:20.640] And I said, "If I'm going to do that,
+- [01:59:21.940] I want you to pay us as a country something
+- [01:59:24.500] because I'm giving you a release."
+- [01:59:25.790] I released them only from the H20.
+- [01:59:28.590] Now, on the Blackwell,
+- [01:59:31.830] I think he's coming to see me again about that,
+- [01:59:34.230] but that will be a unenhanced version of the big one.
+- [01:59:40.560] I don't know if you know it.
+- [01:59:41.940] We will sometimes sell fighter jets to a country
+- [01:59:45.560] and we'll give them 20 percent less than we have.
+- [01:59:48.890] Do you know what I mean, right? That's a safe (inaudible).
+- [01:59:54.460] The Press: Do you see a time, Mr. President,
+- [01:59:55.790] when there could be normal trade between the US and Russia
+- [01:59:58.490] should your meeting go well, should there be peace?
+- [02:00:00.370] The President: I do, yeah.
+- [02:00:01.640] Russia has a very valuable piece of land.
+- [02:00:04.280] If Vladimir Putin would go toward business
+- [02:00:08.660] instead of toward war, it's a warring nation.
+- [02:00:12.710] That's what they do. They fight a lot of wars.
+- [02:00:14.490] A friend of mine said, "Russia's tough
+- [02:00:16.490] because they just keep on fighting."
+- [02:00:18.160] They beat Hitler. So did we. And they beat Napoleon.
+- [02:00:22.380] They've been doing this for a long time.
+- [02:00:24.700] I asked a question to a very, very smart man
+- [02:00:28.060] that some people like and some people don't like,
+- [02:00:31.700] Viktor Orban from Hungary, the head of Hungary,
+- [02:00:37.170] and he's in that same area
+- [02:00:39.960] and knows the two countries very well.
+- [02:00:41.970] I said, "This was before Biden
+- [02:00:46.100] didn't do anything to get us out of it.
+- [02:00:47.660] He could have gotten us out of that.
+- [02:00:49.000] It would've never happened."
+- [02:00:50.890] I said, "So can Russia be beaten by Ukraine?"
+- [02:00:57.240] He looked at me like, what a stupid question.
+- [02:01:00.620] He said, "Russia's a massive country,
+- [02:01:03.530] and they win their country
+- [02:01:06.390] and they win their life through wars.
+- [02:01:09.000] They fight wars. That's what they do."
+- [02:01:11.300] He said, "China beats you with trade.
+- [02:01:14.990] Russia beats you with war."
+- [02:01:17.420] That was a very interesting statement.
+- [02:01:19.170] China's not beating us with trade,
+- [02:01:20.720] not when I'm in charge,
+- [02:01:21.930] but they were beating Biden with trade,
+- [02:01:23.690] but they'd never beat us with trade.
+- [02:01:25.030] Don't forget, China had to pay $400 billion worth of tariffs
+- [02:01:27.880] when I was last time. That was last time.
+- [02:01:31.120] And if we didn't have COVID,
+- [02:01:32.720] all of this stuff would already --
+- [02:01:34.120] We would be loaded.
+- [02:01:35.350] We're finding hundreds of billions of dollars of cash
+- [02:01:39.360] is pouring into our country now because of tariffs.
+- [02:01:43.270] And all we're doing is we're doing what they do to us.
+- [02:01:48.490] It's so beautiful to see it.
+- [02:01:51.600] They found last month, as you saw,
+- [02:01:53.430] $25 billion of excess cash flow.
+- [02:01:57.090] They say, "Where did it come from?"
+- [02:01:58.430] I said, "I'll tell you where it came from.
+- [02:01:59.880] It came from a place called tariffs."
+- [02:02:03.780] And we're doing very well. We're really doing well.
+- [02:02:05.750] But I expect to have a meeting with Putin
+- [02:02:09.440] that I think it'll be good, but it might be bad.
+- [02:02:12.740] And hey, I'm here for one reason,
+- [02:02:17.080] to get rid of a war that somebody else started,
+- [02:02:19.550] should have never happened. And if I could end it, great.
+- [02:02:23.870] Complex war, a lot of bad blood, a lot of bad blood.
+- [02:02:27.980] But Zelensky has been there for three and a half years.
+- [02:02:31.960] So if you put them in a room -- Now, I will say this.
+- [02:02:36.180] Ultimately I'm going to put the two of them in a room.
+- [02:02:39.120] I'll be there or I won't be there.
+- [02:02:41.080] And I think it'll get solved. Yeah, please. Excuse me.
+- [02:02:47.700] I'm going to suggest, because do you have any other questions?
+- [02:02:51.850] The Press: I've got one.
+- [02:02:53.620] The President: On DC, because I don't want them to be --
+- [02:02:58.260] Wait, wait, wait. These are incredible people.
+- [02:03:01.770] I don't want them to be standing up here on subjects --
+- [02:03:06.000] does anybody have a question of them?
+- [02:03:08.030] And then you guys can leave.
+- [02:03:12.470] Okay, a question. Brian, go ahead.
+- [02:03:15.970] The Press: Thank you, Mr. President. All right.
+- [02:03:17.980] The President: And by the way, this is only on DC
+- [02:03:20.970] and then they're going to leave because it's unfair to have them
+- [02:03:23.770] stand up here all day long. Brian.
+- [02:03:25.490] The Press: I agree. I've got two questions for you.
+- [02:03:27.030] First about DC, this is personal for me as well.
+- [02:03:30.280] Last year I was robbed on the streets
+- [02:03:32.910] by one of these teenage thugs, had a gun, got away with it.
+- [02:03:38.970] Let's talk about the effort that between law enforcement,
+- [02:03:42.080] prosecutors and judges, because it's a recycling belt.
+- [02:03:47.030] These kids go, they don't fear the police. They know it.
+- [02:03:50.020] If you talk about how we've got to get these judges
+- [02:03:52.430] and put these kids behind bars,
+- [02:03:54.670] adult crimes deserve adult penalties.
+- [02:03:58.400] And my second question after you answer that, please.
+- [02:04:00.710] Jeanine Pirro : Do you want me to answer it?
+- [02:04:02.060] The Press: Whoever wants to take it.
+- [02:04:03.290] Jeanine Pirro : Okay. Okay.
+- [02:04:04.500] It's real -- Do you want me to answer it?
+- [02:04:06.810] The President: Go ahead.
+- [02:04:08.410] Jeanine Pirro : Here's the problem.
+- [02:04:10.180] Assuming that they're older than 17 years old,
+- [02:04:15.300] I can get the case.
+- [02:04:16.850] If they're under 18 years of age,
+- [02:04:19.120] I can only get the case if it's murder, rob one, rape.
+- [02:04:24.090] Even if they shoot a gun but don't kill you,
+- [02:04:26.210] I can't get it. So the law has to be changed.
+- [02:04:29.220] As the president said, cashless bail.
+- [02:04:31.270] That has to be changed. All right.
+- [02:04:33.220] Then even assuming I get the case,
+- [02:04:35.350] I get jurisdiction, I get a conviction,
+- [02:04:37.740] the DC counsel has given the judges
+- [02:04:40.020] the ability to give probation on shootings.
+- [02:04:43.680] And so then it's up to them. All of these things,
+- [02:04:46.870] the Youth Rehabilitation Incarceration Reduction Act,
+- [02:04:49.870] and now they want to seal records.
+- [02:04:51.760] So if we work hard, we get a conviction,
+- [02:04:53.730] they want to wipe it out. So that needs all to be changed.
+- [02:04:56.270] The Press: Okay, (inaudible).
+- [02:04:57.540] The President: Pam, would you answer that also?
+- [02:05:01.010] The Press: Yeah, and just back to that topic,
+- [02:05:04.100] let's be clear though. We're going to charge them
+- [02:05:06.900] and we're going to track every single thing they do throughout
+- [02:05:11.330] every step of the court process and report back to you
+- [02:05:15.240] and let all of you know what's happening to them
+- [02:05:17.720] because the people who are prosecuting them,
+- [02:05:20.600] the judges who are trying them,
+- [02:05:22.080] they also need to be held accountable.
+- [02:05:27.470] The Press: This is the most people we've ever seen
+- [02:05:28.970] in this briefing.
+- [02:05:30.190] The President: I've never seen. The Press: Ever, right?
+- [02:05:31.390] The President: I've never seen any.
+- [02:05:32.590] Where's Caroline? Where's my superstar?
+- [02:05:36.500] Caroline, is Caroline in the back?
+- [02:05:39.890] Where's Caroline?
+- [02:05:41.530] Come here, Caroline. Come here, Caroline. Come here.
+- [02:05:46.380] Is she doing a good job, by the way?
+- [02:05:47.590] Jeanine Pirro : Yay.
+- [02:05:48.800] The President: Come here.
+- [02:05:50.910] Is this the largest crowd that you've ever seen?
+- [02:05:52.810] The Press: Yes.
+- [02:05:54.050] This is definitely the most packed briefing,
+- [02:05:55.780] and I think all of you would agree.
+- [02:05:57.250] I think it's why we need to build a ballroom.
+- [02:05:59.070] Jeanine Pirro : Yes.
+- [02:06:00.370] The Press: Mr. President, I have a better idea.
+- [02:06:04.940] The President: Brian, go ahead.
+- [02:06:06.150] The Press: The question is this.
+- [02:06:07.570] You're building the big beautiful ballroom.
+- [02:06:09.670] Could we build a big, beautiful briefing room,
+- [02:06:13.100] (inaudible) technology, more seats?
+- [02:06:15.370] The President: I don't want to do that.
+- [02:06:17.210] I don't want you to be comfortable.
+- [02:06:22.860] So no, I don't want to make life comfortable.
+- [02:06:27.640] So look, look, let's just do this.
+- [02:06:30.690] Let's do this. It's going to be a big thing.
+- [02:06:33.180] We're going to Russia. That's going to be a big deal.
+- [02:06:37.120] What happens, happens. I'll let you know what happens.
+- [02:06:39.380] You'll be the first to know.
+- [02:06:41.250] I'll be calling the European leaders.
+- [02:06:42.800] I'm going with totally, I mean, we have a lot of talks.
+- [02:06:44.890] They're great people.
+- [02:06:46.170] They're great leaders actually, and they want to get back.
+- [02:06:48.080] Honestly, as one of them said,
+- [02:06:51.740] "I've OD'd on trying to settle Ukraine."
+- [02:06:54.730] They've OD'd,
+- [02:06:55.990] meaning they've overdosed on the settlement of Ukraine.
+- [02:06:59.520] Not a nice expression, but boy, is it accurate.
+- [02:07:02.480] They're tired of it. They want to get back
+- [02:07:04.300] to spending money on their countries.
+- [02:07:08.090] Biden gave them $350 billion. Europe gave a hundred billion.
+- [02:07:13.760] It should be much more than that.
+- [02:07:16.070] Shouldn't have been that kind of --
+- [02:07:17.560] They should have had equalization, but they didn't.
+- [02:07:20.170] But you know what? Still a lot of money.
+- [02:07:22.090] They want to get back to building their own countries.
+- [02:07:24.110] They really want it resolved.
+- [02:07:25.840] My relationship with the European leaders, as you saw,
+- [02:07:28.800] is extremely good. It's perfect. It's beautiful.
+- [02:07:33.480] Wait, wait, wait, wait. And we're going to try --
+- [02:07:38.370] I'll be in touch with them. I have five of them call me.
+- [02:07:41.200] You think it's easy. A lot of European leaders,
+- [02:07:44.360] but they rely on me, very much rely on me.
+- [02:07:46.970] If it wasn't for me, this thing would never get solved
+- [02:07:49.100] until the last person breathing is dead.
+- [02:07:51.540] The Press: Would you talk to them before?
+- [02:07:54.490] The President: I'm talking to them right now.
+- [02:07:55.860] So I'm talking to the European leaders.
+- [02:07:57.930] I'll be talking to President Zelensky.
+- [02:07:59.920] I'm going to get everybody's ideas.
+- [02:08:01.590] I go into that thing fully loaded right up there,
+- [02:08:04.750] and we're going to see what happens.
+- [02:08:06.340] Now, I think one of two things is going to happen.
+- [02:08:09.720] It could be a good meeting, and we'll go a step further.
+- [02:08:12.080] We'll get it done.
+- [02:08:13.290] I'd like to see a ceasefire very, very quickly.
+- [02:08:16.240] Very quickly. I'd like to see it immediately
+- [02:08:17.890] but I'd like to see it very quickly.
+- [02:08:20.020] And we're going to be dealing with the European leaders
+- [02:08:22.540] and we're going to be dealing with President Zelensky,
+- [02:08:25.820] and hopefully we're going to have a great success.
+- [02:08:27.940] As far as this, what we did today,
+- [02:08:30.770] and I think you were here for DC more so than even Russia,
+- [02:08:35.220] because Russia will be -- We have a couple of days to go,
+- [02:08:39.810] but the Russia is going to be very interesting.
+- [02:08:41.490] But to me, what is very exciting,
+- [02:08:44.090] and we're going to take back our capital,
+- [02:08:46.120] we're going to make it beautiful again,
+- [02:08:47.650] but we're going to make it more importantly, safe again.
+- [02:08:50.100] It's going to be so safe. It's going to be a model.
+- [02:08:52.860] And then we'll look at other cities also.
+- [02:08:54.410] But other cities are studying what we're doing,
+- [02:08:56.570] and you have some capable people in other cities,
+- [02:08:59.160] they can do it too.
+- [02:09:00.650] But we have a great group of professionals.
+- [02:09:03.060] We're going to have a safe, beautiful capital,
+- [02:09:06.350] and it's going to happen very quickly.
+- [02:09:09.170] Thank you all. Thank you all very much.
+- [02:09:12.020] (the press talking simultaneously)

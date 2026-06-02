@@ -1,0 +1,799 @@
+<!-- source: https://www.youtube.com/watch?v=zK5EoGZ-EKw -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: zK5EoGZ-EKw -->
+<!-- date_published: 2025-04-22T17:47:10+00:00 -->
+<!-- date_accessed: 2026-06-02T02:51:35.022565+00:00 -->
+
+# Transcript: Press Secretary Karoline Leavitt Briefs Members of the Media, Apr. 22, 2025
+
+- [00:02.100] Ms. Leavitt: Good afternoon, everybody.
+- [00:04.400] Good to see you all.
+- [00:06.490] The thoughts and prayers of the entire White House
+- [00:10.370] remain with all of the Catholics around the world
+- [00:13.080] who are mourning the death of Pope Francis.
+- [00:15.700] Pope Francis touched millions of lives
+- [00:17.710] and dedicated his life to serving the Catholic Church.
+- [00:20.780] As a mark of respect for his memory,
+- [00:22.770] President Trump ordered flags be flown at half-staff
+- [00:25.810] and he will be traveling to attend his funeral in Rome.
+- [00:28.870] The President will depart from Washington on Friday morning
+- [00:31.800] and return to the United States on Saturday evening
+- [00:34.120] following the funeral service.
+- [00:36.300] I can also confirm the dates of the President's trip
+- [00:38.660] to the Middle East.
+- [00:39.870] He will travel to Saudi Arabia, Qatar,
+- [00:42.010] and the United Arab Emirates from May 13th until May 16th.
+- [00:46.330] And on Thursday of this week,
+- [00:48.260] President Trump will welcome Norwegian Prime Minister
+- [00:50.910] at the White House for a working visit.
+- [00:53.170] The two leaders will discuss trade and regional security.
+- [00:56.430] This will be the 13th head of state
+- [00:58.260] visit of President Trump's term already.
+- [01:01.060] At the border, President Trump continues to deliver
+- [01:03.460] on his promise to make America safe again.
+- [01:05.930] The Wall Street Journal captured the Trump effect
+- [01:08.030] in a recent article,
+- [01:09.590] "Border crossings grind to a halt
+- [01:11.410] as Trump's tough policies take hold."
+- [01:14.050] US Customs and Border Protection recorded its lowest Southwest
+- [01:17.550] border crossings in history in March,
+- [01:19.890] and we're seeing the same successes
+- [01:21.470] at our northern border.
+- [01:23.390] Here's how the New York Post put it.
+- [01:25.720] "Northern border sector previously overrun by illegal
+- [01:28.280] migrants sees dramatic drop in crossings.
+- [01:31.250] We haven't seen anyone since November."
+- [01:35.090] According to US Customs and Border Protection,
+- [01:37.140] just 54 illegal aliens were apprehended
+- [01:39.880] in the Swanton sector of our northern border,
+- [01:42.590] which stretches more than 300 miles in March.
+- [01:46.280] This is a drastic 95% drop from the more
+- [01:48.900] than a thousand border crossings that were caught in March, 2024.
+- [01:53.240] This is a main hotspot area
+- [01:54.690] that recorded more than 80% of all apprehensions
+- [01:57.460] along the northern border during the 2024 fiscal year.
+- [02:00.830] And new reporting from the Washington Times
+- [02:02.750] fully highlights the difference in Joe Biden's
+- [02:04.840] disgraceful approach to the border
+- [02:06.340] compared to President Trump's.
+- [02:08.290] Under Trump, border catch and release
+- [02:10.210] has dropped 99.99% from worst Biden month.
+- [02:15.330] You can't get much better than that.
+- [02:17.380] This statistic in particular is astounding.
+- [02:20.360] Border patrol agents caught and immediately released
+- [02:22.730] 189,604 illegal aliens into the United States in December,
+- [02:27.980] 2023 at the height of the Biden border crisis.
+- [02:32.110] But under President Trump, border patrol agents caught
+- [02:34.840] and released only 20 illegal aliens into the US
+- [02:37.870] in the month of February.
+- [02:39.740] Thanks to President Trump, operational control
+- [02:41.760] of the border is becoming a reality.
+- [02:43.420] And the administration's historic enforcement
+- [02:45.460] measures are yielding huge results.
+- [02:47.950] Illegal aliens are finally getting the blunt message,
+- [02:50.700] "If you cross the border illegally,
+- [02:52.500] you will be swiftly deported
+- [02:54.000] and never return to the United States of America."
+- [02:57.160] Efforts to arrest the criminal illegal alien invaders
+- [03:00.440] are continuing to ramp up.
+- [03:02.390] ICE Chicago arrested a Mexican national
+- [03:04.730] convicted of predatory sexual assault of a child
+- [03:07.370] in Cook County, Illinois.
+- [03:09.440] This week, ICE Denver arrested a Mexican national
+- [03:12.570] convicted of sexual assault of a child
+- [03:14.650] in Houston County, Texas. ICE Miami arrested a Nicaraguan
+- [03:18.840] convicted of aggravated battery in Hillsborough County, Florida.
+- [03:23.390] ICE Houston arrested a Salvadorian national
+- [03:26.180] convicted of attempted sexual assault of a child
+- [03:28.720] and escape in Dallas County, Texas.
+- [03:31.520] And ICE Chicago arrested a Mexican national
+- [03:33.910] convicted of aggravated sexual abuse of a minor in Illinois.
+- [03:37.610] Despite the Democrats' insane objections,
+- [03:39.950] President Trump will continue
+- [03:41.180] to embolden law enforcement officers
+- [03:42.850] to arrest dangerous illegal alien criminals
+- [03:44.940] and keep our community safe.
+- [03:47.070] And also thanks to President Trump's America
+- [03:48.980] first economic approach,
+- [03:50.410] investments continue to pour into our country.
+- [03:53.500] Swiss Pharmaceuticals Company announced
+- [03:55.320] they will be investing $50 billion
+- [03:57.290] in the United States over the next five years,
+- [03:59.480] creating 12,000 new quality jobs.
+- [04:02.260] Regeneron Pharmaceuticals also agreed to pay
+- [04:04.620] Fujifilm Technologies more than $3 billion over the next decade
+- [04:08.500] to help manufacture its medicines in the United States.
+- [04:11.710] It's a top priority for President Trump
+- [04:13.500] to ensure we are producing critical medicines
+- [04:16.970] and pharmaceutical drugs right here in America.
+- [04:19.330] And that is exactly what we continue
+- [04:21.280] to see happen every day.
+- [04:23.390] In other news, the Trump administration has announced
+- [04:25.710] we will put an end to Joe Biden's
+- [04:27.300] illegal student loan bailout attempts.
+- [04:30.020] No student loan has been referred to collections
+- [04:32.560] since March of 2020. That comes to an end.
+- [04:35.910] On May 5th, the Department of Education
+- [04:38.120] will resume involuntary collections for borrowers
+- [04:40.870] with defaulted federal student loans.
+- [04:43.310] The student loan portfolio controlled
+- [04:44.970] by the federal government is nearly $1.6 trillion,
+- [04:49.340] but fewer than four out of 10 borrowers are in repayment.
+- [04:53.250] This is unsustainable, unfair,
+- [04:55.700] and a huge liability for American taxpayers.
+- [04:59.130] Debt cannot be wiped away.
+- [05:00.920] It just ends up getting transferred to others.
+- [05:03.180] So why should Americans who didn't go to college
+- [05:05.480] or went to college and responsibly paid back
+- [05:07.500] their loans pay for the student loans of other Americans?
+- [05:10.790] The Trump administration will never force taxpayers
+- [05:13.250] to pay student loan debts that don't belong to them.
+- [05:16.400] Student loan borrowers need clarity
+- [05:18.280] and we're finally giving it to them.
+- [05:20.270] Borrowers will now be clearly expected to repay their loans
+- [05:23.580] and those who default on their loan obligations
+- [05:26.100] will face involuntary collections.
+- [05:28.510] The government can and will collect
+- [05:30.270] defaulted federal student loan debt
+- [05:31.810] by withholding money from borrowers' tax refunds,
+- [05:34.670] federal pensions, and even their wages.
+- [05:37.150] America is $36 trillion in debt. We must get our fiscal house
+- [05:40.830] in order and restore common sense to our country.
+- [05:43.690] If you take out a loan, you have to pay it back.
+- [05:46.240] It's very simple.
+- [05:47.670] President Trump will not kick the can down the road anymore.
+- [05:51.110] Before we open it up to questions today,
+- [05:52.870] I want to commend our pool photographer
+- [05:54.850] who is in the room with us today.
+- [05:56.730] ABC News Photojournalist Melissa Young
+- [05:59.040] is retiring after 44 incredible years
+- [06:02.020] on the job covering here at the White House.
+- [06:25.550] Melissa, congratulations.
+- [06:26.910] You have the largest round of applause
+- [06:28.670] I've ever heard in this room,
+- [06:30.050] so there's something we can all agree on,
+- [06:31.890] and you've had an incredible career here
+- [06:33.640] covering the White House, so congratulations to you,
+- [06:36.110] and we hope you enjoy retirement.
+- [06:38.540] Ms. Young: Oh, I will.
+- [06:39.740] Ms. Leavitt: I'm sure you will. And everybody else in the room
+- [06:42.110] will be very jealous of you as you're enjoying your rest.
+- [06:45.420] All right, let's get to it.
+- [06:46.700] We have an individual in our new media seat today.
+- [06:49.440] His name is Tim Pool. He's a political commentator
+- [06:52.200] and a media entrepreneur with millions of followers,
+- [06:54.560] a very big platform. Currently, hosts Timcast IRL,
+- [06:58.020] a daily news and discussions show,
+- [06:59.800] and The Culture War, a weekly podcast exploring
+- [07:02.430] cultural and political issues.
+- [07:04.230] His programs feature in-depth conversations on topics
+- [07:07.050] such as free speech, censorship,
+- [07:08.560] identity, politics, and societal change,
+- [07:10.960] often engaging with a diverse range of guests.
+- [07:13.530] He's in Washington today
+- [07:14.830] because we are also hosting a local media row
+- [07:17.570] across the street in the Eisenhower Building,
+- [07:19.170] which is a testament to our commitment
+- [07:20.680] to bring new voices into the White House
+- [07:22.730] to cover the President and this administration.
+- [07:24.640] So Tim, why don't you kick us off today?
+- [07:26.400] The Press: Yes. Many of the news organizations
+- [07:28.950] that are represented in this room
+- [07:30.870] have marked in lockstep on false narratives such as
+- [07:33.440] the Very Fine People Hoax, the Covington Smear,
+- [07:35.650] and now what's being called the Maryland Man Hoax,
+- [07:39.100] where an MS-13 gang member
+- [07:40.440] adjudicated by two different judges, I believe,
+- [07:43.220] is just simply being referred to as a Maryland man
+- [07:45.070] over and over again.
+- [07:46.330] Now in an effort from the White House
+- [07:47.890] to expand access to new companies,
+- [07:50.240] you've created this new media seat,
+- [07:52.730] so I'm wondering if you can comment
+- [07:54.290] on following this expansion,
+- [07:56.790] you've had numerous outlets disparage the companies
+- [08:00.810] that you've had sit here as well as the reporters.
+- [08:02.590] I'm wondering if you could comment
+- [08:03.910] on that unprofessional behavior as well as elaborate
+- [08:06.560] if there's any plans to expand access to new companies.
+- [08:08.660] Ms. Leavitt: Sure.
+- [08:09.900] Well, we certainly welcome diverse viewpoints in this room,
+- [08:12.900] which is one of the reasons we have you in here.
+- [08:14.520] And there's many new faces in this room
+- [08:16.350] in comparison to the previous administrations.
+- [08:18.660] We want to welcome all viewpoints into this room.
+- [08:21.080] We welcome unbiased journalists who really care about the truth
+- [08:24.450] and the facts and the accuracy.
+- [08:25.880] And you rightfully pointed out the Maryland Man story,
+- [08:28.500] which I, from this podium,
+- [08:29.990] when the Atlantic published it on that very first day,
+- [08:32.610] I came to this podium and said, "This is wrong.
+- [08:35.690] The press in this room have this story wrong."
+- [08:37.610] And we have seen more and more evidence
+- [08:40.110] come to the table that we have had all along.
+- [08:42.840] We were always right.
+- [08:44.060] The president was always on the right side of this issue
+- [08:46.430] to deport this illegal criminal from our community,
+- [08:48.930] and it is despicable to see the media
+- [08:50.650] continue to refer to this individual
+- [08:52.250] as someone who is just a peaceful man
+- [08:54.670] living his life in Maryland.
+- [08:56.010] This was and always has been an illegal criminal,
+- [08:59.010] an MS-13 gang member,
+- [09:00.370] and a designated foreign terrorist,
+- [09:02.180] and the administration maintains our position
+- [09:04.380] to deport these individuals from our community.
+- [09:06.260] So thank you for being here, Tim.
+- [09:08.060] It's great to see you. Thank you.
+- [09:09.460] Dasha, why don't you kick us off?
+- [09:10.740] The Press: Thank you, Karoline. Ms. Leavitt: You're welcome.
+- [09:12.010] The Press: I really appreciate it.
+- [09:13.300] I have two questions, one on the Pentagon
+- [09:16.950] and another on the economy.
+- [09:20.060] You said on Fox News that the entire Pentagon
+- [09:22.790] is working against Secretary Hegseth,
+- [09:25.660] but the people who were fired were Hegseth's own guys.
+- [09:30.140] So how do you square that and what do you say to concerns
+- [09:33.460] that that's bad management?
+- [09:35.180] Ms. Leavitt: They were Pentagon employees
+- [09:36.440] who leaked against their boss to news agencies in this room.
+- [09:40.350] And it's been clear since day one from this administration
+- [09:43.510] that we are not going to tolerate individuals
+- [09:45.640] who leak to the mainstream media,
+- [09:46.950] particularly when it comes to sensitive information.
+- [09:50.830] And the Secretary of Defense is doing a tremendous job
+- [09:54.400] and he is bringing monumental change to the Pentagon.
+- [09:56.860] And there's a lot of people in this city
+- [09:58.310] who reject monumental change.
+- [10:00.400] And I think frankly, that's why we've seen a smear campaign
+- [10:03.090] against the Secretary of Defense
+- [10:04.330] since the moment that President Trump announced his nomination
+- [10:07.210] before the United States' Senate.
+- [10:08.490] Let me reiterate,
+- [10:09.710] the president stands strongly behind Secretary Hegseth
+- [10:12.150] in the change that he's bringing to the Pentagon,
+- [10:14.670] and the results that he's achieved thus far speak
+- [10:16.750] for themselves.
+- [10:17.960] The Press: Is there an FBI investigation into the leaks?
+- [10:20.290] The Secretary said that these people would be prosecuted,
+- [10:22.930] so is the FBI investigating?
+- [10:24.600] Ms. Leavitt: You'd have to ask the FBI.
+- [10:26.010] You have to ask the Department of Justice
+- [10:27.940] on what they plan to do, but certainly we take leaks
+- [10:30.750] with the utmost seriously across this administration.
+- [10:33.230] You've seen people fired
+- [10:34.440] from the Department of Homeland Security.
+- [10:36.050] The president has made it clear it's an unacceptable behavior.
+- [10:38.570] The Press: On the economy, Karoline,
+- [10:40.700] Peter Navarro said that it's perfectly possible
+- [10:43.520] to do 90 deals in 90 days. We haven't seen one just yet.
+- [10:48.750] How soon might we see a deal and what evidence can you share
+- [10:51.510] that progress is being made in these trade negotiations?
+- [10:53.840] Ms. Leavitt: Sure.
+- [10:55.040] Well, I spoke to our entire trade team this morning.
+- [10:57.530] There is a lot of progress being made.
+- [10:58.880] We now have 18 proposals on paper
+- [11:01.610] that have been brought to the trade team.
+- [11:03.550] Again, these are proposals on paper
+- [11:05.820] that countries have proposed to the Trump administration
+- [11:09.120] and to our government.
+- [11:10.490] You have Secretary Besant, Secretary Lutnick,
+- [11:12.640] Ambassador Greer, NEC Director Hassett,
+- [11:14.570] and Peter Navarro, the entire trade team,
+- [11:17.290] meeting with 34 countries this week alone.
+- [11:20.690] We are moving at Trump speed to ensure these deals are made
+- [11:24.710] on behalf of the American worker and the American people.
+- [11:27.270] And just yesterday it seemed
+- [11:28.590] to get a little bit lost in the news,
+- [11:30.740] and I think it's a disservice to the American public that it did,
+- [11:33.130] the vice president announced terms of reference
+- [11:36.190] for a trade deal with India. That is a big deal.
+- [11:39.290] We know when we look at the numbers,
+- [11:40.740] the monetary trade barriers
+- [11:42.140] and the non-monetary trade barriers from India,
+- [11:44.430] they have been ripping off the United States
+- [11:46.230] and American workers for a very long time.
+- [11:48.570] So the fact that the vice president
+- [11:50.770] with Prime Minister Modi on that trip in India
+- [11:54.060] announced these terms of reference,
+- [11:55.460] which is essentially a framework to move the ball forward,
+- [11:58.100] to sign a good trade deal between our two nations,
+- [12:00.710] is great progress, and it speaks to the work ethic
+- [12:04.520] and the real labor that's being put into this effort
+- [12:06.940] by the president's trade team.
+- [12:08.540] Sure, go ahead.
+- [12:10.410] The Press: The proposals that you talk about,
+- [12:13.110] is that enough to extend the pauses
+- [12:15.150] on these reciprocal tariffs
+- [12:16.470] or does the president need to see these deals inked
+- [12:19.520] and signed to offer any sort of additional extension
+- [12:23.050] beyond the 90 days?
+- [12:24.300] Ms. Leavitt: Well, look, ask me in July
+- [12:25.830] when the deadline hits.
+- [12:27.160] I know I'll be answering those questions
+- [12:28.530] from all of you in this room. There's a lot of time left,
+- [12:31.090] and the president's trade team is working again at Trump speed
+- [12:34.770] as quickly as they can to ensure that these deals can be made.
+- [12:37.760] The Press: Are any of those conversations
+- [12:39.180] yet with China happening?
+- [12:40.840] Ms. Leavitt: I actually do have something to share on that.
+- [12:42.800] I asked the president about this before coming out here,
+- [12:45.450] and he wanted me to share with all of you
+- [12:46.820] that we're doing very well in respect
+- [12:48.760] to a potential trade deal with China.
+- [12:50.820] As I mentioned, there have now been 18 proposals
+- [12:53.750] in more than 100 countries around the world
+- [12:55.850] who are wanting to make a deal
+- [12:57.100] with the United States of America,
+- [12:59.070] and the president and the administration
+- [13:00.570] are setting the stage for a deal with China.
+- [13:02.850] So we feel everyone involved
+- [13:05.550] wants to see a trade deal happen,
+- [13:07.380] and the ball is moving in the right direction.
+- [13:08.880] Sure.
+- [13:10.200] The Press: Setting the stage for a deal with China,
+- [13:11.510] what does that mean?
+- [13:12.770] Has the president spoken directly with Xi yet?
+- [13:15.310] Ms. Leavitt: I don't have anything to read out
+- [13:16.720] on a direct talk between the president and President Xi,
+- [13:20.380] but we will continue to keep you updated.
+- [13:22.620] The Press: And Secretary Bessent reportedly today told investors
+- [13:25.590] that this trade standoff with China,
+- [13:27.850] he expects will be de-escalating soon
+- [13:29.430] because as he described it
+- [13:31.060] reportedly the situation is unsustainable.
+- [13:33.090] Is the president considering taking steps
+- [13:34.830] to de-escalate the situation with China?
+- [13:36.710] Ms. Leavitt: Again, I just read you words
+- [13:37.920] directly from the President of the United States.
+- [13:39.580] Those are moments ago.
+- [13:40.870] That's where his head is at right now.
+- [13:42.820] Sure.
+- [13:44.160] The Press: Karoline, I have two questions,
+- [13:45.520] one on immigration and one on China.
+- [13:46.910] First on immigration,
+- [13:48.360] roughly how many illegal immigrants and aliens
+- [13:50.700] do we have in our country and how many does
+- [13:52.450] the administration plan on deporting?
+- [13:53.690] Ms. Leavitt: Sure.
+- [13:54.940] Well, you'd have to ask the Department of Homeland Security
+- [13:57.400] for a specific number,
+- [13:58.640] but we suspect it's definitely in the millions,
+- [14:01.050] perhaps upwards of 20 million people
+- [14:02.790] that were allowed into the country
+- [14:04.450] illegally by the previous administration.
+- [14:07.310] And the president and his team are focused
+- [14:10.220] on deporting as many as we possibly can,
+- [14:12.490] and they are moving as quickly as possible.
+- [14:14.970] The president's team has made it clear,
+- [14:16.690] we need more funding from Congress to do more.
+- [14:19.400] We need more ICE agents out on the ground
+- [14:21.090] doing this very important work.
+- [14:22.690] And we also need rogue district court judges
+- [14:25.190] to stop acting as judicial activists
+- [14:28.200] trying to block the administration
+- [14:29.820] from deporting illegal criminals from our nation's interior.
+- [14:31.770] The Press: Absolutely.
+- [14:33.040] Ms. Leavitt: The American public
+- [14:34.250] elected the president to do this,
+- [14:35.460] and he's following through with that promise.
+- [14:36.800] The Press: We have over a quarter million
+- [14:38.070] Chinese nationals in our country right now on student visas.
+- [14:40.780] Does the administration believe
+- [14:42.180] there's any national security concern
+- [14:43.780] when it comes to those over quarter million
+- [14:45.460] Chinese nationals in our country?
+- [14:46.810] Ms. Leavitt: Well, as you know, when it comes to foreign visas,
+- [14:49.440] the Secretary of State has the right to revoke visas
+- [14:53.560] of those who we feel are acting in an adversarial way
+- [14:56.950] to our foreign policy interests here in the United States.
+- [14:59.650] He has that authority
+- [15:00.950] according to the Immigration and Nationality Act,
+- [15:03.740] so I would defer you to the State Department
+- [15:05.430] for any individual case,
+- [15:06.630] but they are looking at individuals
+- [15:08.370] who are given the privilege of being on a visa in our country.
+- [15:11.390] And if they are acting, again,
+- [15:13.350] adversarial to our foreign policy interests,
+- [15:15.450] their visa can be revoked and they should be aware of that.
+- [15:18.850] Sure, go ahead. Yes, I'm calling on you.
+- [15:21.840] The Press: Thank you, Karoline. Ms. Leavitt: You're welcome.
+- [15:23.240] The Press: Over the last few weeks,
+- [15:24.460] several countries have warned their citizens
+- [15:26.310] about travel to the US,
+- [15:27.520] and the Department of Commerce's own stats show
+- [15:31.450] that from a lot of countries the number of visitors is falling.
+- [15:34.560] Does the White House have any message for people
+- [15:36.170] that might be reconsidering business
+- [15:37.890] or tourism travel to the US?
+- [15:40.010] Ms. Leavitt: Where did you see that report?
+- [15:42.320] The Press: The statistics coming from the Department of Commerce.
+- [15:44.670] Ms. Leavitt: Said what? It's hard to hear you, sorry.
+- [15:46.970] The Press: Sorry. That visitors from a lot of countries
+- [15:50.960] have fallen in the last three months.
+- [15:52.610] Ms. Leavitt: I'd have to look at that report to comment
+- [15:53.930] on the merits of it.
+- [15:55.130] I think most people around the world
+- [15:56.600] recognize the United States of America
+- [15:58.070] is a great place to do business, it's a beautiful place to visit,
+- [16:01.130] and they should certainly come here
+- [16:02.580] because it's a much safer country
+- [16:03.920] than it was four years ago under the previous president.
+- [16:06.210] Libby, good to see you.
+- [16:07.530] The Press: Karoline, a question about this upcoming announcement
+- [16:10.050] from HHS to ban food dyes.
+- [16:11.860] During the first week of the administration,
+- [16:13.510] the FDA announced that it's pulling its plan
+- [16:15.580] to ban menthol cigarettes, so two questions for you.
+- [16:19.100] How do you square a ban on menthol cigarettes being pulled
+- [16:22.790] and then announcing this ban on food dyes?
+- [16:25.270] And then, how does the President feel about this
+- [16:27.070] upcoming ban that RFK is going to announce?
+- [16:29.110] Ms. Leavitt: Sure.
+- [16:30.340] Well, look, the Secretary of Health and Human Services,
+- [16:32.700] the President nominated him because he trusts him
+- [16:34.800] to make this country healthy again.
+- [16:36.880] It's not just a slogan, it really is a movement
+- [16:38.920] that has broken ground across the country.
+- [16:41.500] There's millions of people who believe in RFK Jr.,
+- [16:44.260] Secretary Kennedy, and what he's doing.
+- [16:46.410] I don't want to get ahead of HHS
+- [16:48.490] with this historic announcement later and the details of it,
+- [16:50.850] but obviously the Secretary feels that he has reason
+- [16:54.160] and evidence to announce the ban on artificial dyes later,
+- [16:56.830] and I'll let him speak to that this afternoon.
+- [16:58.600] Phil.
+- [16:59.890] The Press: The President started the process of reclassifying
+- [17:02.610] more than 50,000 federal employees
+- [17:04.340] as Schedule F. We've already seen him march
+- [17:07.290] through a number of government agencies.
+- [17:08.960] I'm curious, should we expect mass firings
+- [17:12.350] or is this a case-by-case approach,
+- [17:14.470] a scalpel or a sledgehammer?
+- [17:16.600] Ms. Leavitt: Well, look, as you saw on Friday,
+- [17:18.330] the President put out a statement about it,
+- [17:19.940] the Office of Personnel Management,
+- [17:21.710] reclassified workers,
+- [17:23.410] they're now called schedule policy/career.
+- [17:26.140] And all the President is trying to do
+- [17:27.990] is ensure that federal workers
+- [17:30.130] are being held accountable for corrupt behavior.
+- [17:33.320] If they are engaging in corruption
+- [17:34.760] as a government worker,
+- [17:35.990] they should no longer have their job,
+- [17:37.450] I think that's pretty common sense.
+- [17:39.290] He also believes that bureaucrats should be
+- [17:42.300] acting in accordance to the will of the American public
+- [17:45.640] who duly elected this president,
+- [17:47.290] not just this president, but all future presidents.
+- [17:49.320] If you work for the government, you should be adhering
+- [17:51.990] to the will of the American public
+- [17:53.340] and advancing the administration's goals
+- [17:55.240] and interests, and if you are not doing that,
+- [17:57.390] then you should go find another job
+- [18:00.040] whose interests you align with. So as for specific firings,
+- [18:03.770] I would defer you to the specific agencies,
+- [18:05.730] but the President in this move
+- [18:07.060] and Office of Personnel Management,
+- [18:09.320] it will make it easier to get rid of rogue bureaucrats
+- [18:11.680] who are engaging in corruption.
+- [18:12.970] The Press: And then, another quick question
+- [18:14.170] about Google real quick.
+- [18:15.380] Ms. Leavitt: Sure.
+- [18:16.620] The Press: A federal court ruled last Thursday
+- [18:18.290] that Google's dominance of online advertising
+- [18:21.880] and AdTech markets violated US antitrust laws.
+- [18:25.260] I know the President has spoken to a number of folks in big tech
+- [18:28.480] and Google's CEO was even at his inauguration.
+- [18:32.110] I'm curious, what is the President's reaction
+- [18:34.420] to that court ruling?
+- [18:36.020] Ms. Leavitt: I'll have to ask him
+- [18:37.300] and I'll get back to you, Phil. The Press: Thank you, Karoline.
+- [18:38.830] Ms. Leavitt: You're welcome. John.
+- [18:40.120] The Press: Thanks a lot, Karoline.
+- [18:41.350] I have some economic questions for you.
+- [18:43.190] Kevin Hassett has been a key economic advisor
+- [18:45.760] to the President in both of his terms.
+- [18:47.770] In 2022-
+- [18:49.080] Ms. Leavitt: And he still is. The Press: And he still is.
+- [18:50.650] Ms. Leavitt: He was just in my office.
+- [18:51.870] The Press: Absolutely. In 2022, he said that,
+- [18:54.450] "The independence of the Fed is super important,"
+- [18:57.660] that's a direct quote.
+- [18:58.900] Is that something that the President subscribes to?
+- [19:01.120] Does he still believe
+- [19:02.320] in the independence of the Federal Reserve?
+- [19:04.290] Ms. Leavitt: Look, I think the President
+- [19:05.560] has made his position on the Fed and on Powell quite clear.
+- [19:10.440] The President believes that they have been making moves
+- [19:13.880] and taking action in the name of politics
+- [19:16.250] rather in the name of what's right for the American economy.
+- [19:19.430] The President has the right
+- [19:20.880] to express his displeasure with the Fed
+- [19:23.490] and he has the right to say
+- [19:25.170] he believes interest rates should be lower.
+- [19:27.060] He believes Americans should be able to borrow money cheaper
+- [19:30.030] than they currently are right now.
+- [19:31.780] And I also spoke to Kevin Hassett about the Fed as well,
+- [19:34.710] and he has called into question the Fed's independence
+- [19:38.030] and whether they are actually doing things, again,
+- [19:39.960] out of the best interest of the economy
+- [19:41.850] or are they doing it for partisan reasons.
+- [19:45.130] The President wants to see interest rates lower,
+- [19:47.440] he has made that quite clear. Sure.
+- [19:48.740] The Press: We've also seen, if I may,
+- [19:50.540] I'm sorry, one more, Karoline,
+- [19:51.840] just about, I said two economic questions, about the dollar.
+- [19:55.230] We've seen the dollar at multi-year lows versus the Euro
+- [19:58.930] and other currencies around the world.
+- [20:01.170] Is it the administration's policy for a strong dollar?
+- [20:05.260] How does it view the dollar versus other currencies
+- [20:07.540] around the world?
+- [20:08.780] Ms. Leavitt: The President wants to see the dollar remain
+- [20:10.750] as the world's reserve currency
+- [20:12.820] for our long-term fiscal stability
+- [20:14.670] and our economic growth,
+- [20:16.140] he's been quite clear about that. Sure.
+- [20:18.000] The Press: Thanks, Karoline. Two questions.
+- [20:19.390] Ms. Leavitt: And then, to the woman behind you
+- [20:20.900] who I haven't seen before, welcome.
+- [20:22.500] Go ahead, Mary.
+- [20:23.720] The Press: Earth Day and then the Supreme Court,
+- [20:25.080] if that's okay.
+- [20:26.280] Ms. Leavitt: That's right, it's Earth Day.
+- [20:27.510] The Press: Yes.
+- [20:28.740] Ms. Leavitt: Happy Earth Day everyone.
+- [20:30.290] The Press: I saw the President Truthing
+- [20:31.680] about the garbage pile-up from China and the Pacific,
+- [20:34.550] and then I believe Lee Zeldin is headed to San Diego
+- [20:37.890] to investigate the pile of sewage from Mexico.
+- [20:40.490] Can you speak to what the White House
+- [20:41.970] has planned for Earth Day and anything in that arena?
+- [20:44.500] Ms. Leavitt: Sure. I do have points from the EPA.
+- [20:47.910] Administrator Zeldin is doing a fantastic job
+- [20:50.140] and they are always sharing their accomplishments
+- [20:52.430] with the White House, which we very much appreciate.
+- [20:54.410] He will be traveling, I believe he's in California today,
+- [20:58.400] for sewage situation… Here you go.
+- [21:02.290] Administrator Zeldin met with his Mexican counterpart
+- [21:04.730] to discuss steps Mexico needs to take
+- [21:06.490] to ensure the water entering the United States is clean and safe,
+- [21:09.680] and he's holding a press conference in San Diego today
+- [21:11.870] with elected officials and local stakeholders
+- [21:14.230] on the Tijuana River Sewage Crisis.
+- [21:17.010] I would also add from the President himself,
+- [21:19.120] he has always maintained he wants America
+- [21:21.420] to have the cleanest air and the cleanest water,
+- [21:24.250] and we want to do what's right for our environment
+- [21:26.140] and for our Earth, and a lot of that is making sure
+- [21:28.230] that we have clean and sustainable energy,
+- [21:31.660] and we know that we produce natural gas cleaner
+- [21:34.900] and more efficiently than any country in this world,
+- [21:36.790] and the President wants to see that continue.
+- [21:38.500] The Press: Thank you. And then, on the Supreme Court,
+- [21:39.790] I know the court is hearing a case dealing with parents
+- [21:41.970] who don't want their kids
+- [21:43.170] having to read gender ideology books in schools,
+- [21:45.480] can you comment on that case and what the Trump
+- [21:47.130] administration hopes to see come from that?
+- [21:48.610] Ms. Leavitt: Sure.
+- [21:49.810] We hope the Supreme Court will do the right thing,
+- [21:51.320] and the President has been very clear,
+- [21:52.740] he stands on the side of parental rights
+- [21:55.280] and he believes strongly that parents
+- [21:56.840] should have a greater say in their children's education,
+- [21:59.620] in the content, if you will, that children are being exposed
+- [22:02.970] to in our public school system. Sure, go ahead.
+- [22:04.530] The Press: Hi, Karoline, thank you.
+- [22:05.760] Ms. Leavitt: Hi.
+- [22:05.900] The Press: I'm Carolina Lumetta with World News Group.
+- [22:08.410] The administration ended some temporary protections
+- [22:10.340] for Afghans,
+- [22:11.580] including several hundred Christians
+- [22:13.460] who have been punished by the Taliban.
+- [22:15.320] Is the President considering any exceptions for Afghans
+- [22:18.170] who could face death or torture
+- [22:19.790] if they returned to their home country?
+- [22:21.550] Ms. Leavitt: So let's just be clear about one thing,
+- [22:23.320] we didn't end that proactively, it expired,
+- [22:26.380] and it's because the previous administration
+- [22:28.840] illegally paroled millions of people,
+- [22:31.830] or hundreds of thousands of people,
+- [22:33.210] I'm sorry, into the country
+- [22:35.410] and then gave them temporary protective status,
+- [22:38.240] which, again, is a temporary status,
+- [22:40.220] it's not a permanent status in this country.
+- [22:43.040] And if there are individuals here
+- [22:44.810] who came in through the Biden administration
+- [22:46.740] who want to claim asylum,
+- [22:48.010] there is a legal process to do that,
+- [22:49.700] and those cases will be adjudicated
+- [22:51.700] by a judge on a case-by-case basis.
+- [22:53.810] We have a legal immigration process
+- [22:55.960] in this country for a reason,
+- [22:57.210] and all this administration is trying to do
+- [22:59.270] is effectuate that. Reagan.
+- [23:01.790] The Press: Thank you, Karoline.
+- [23:02.990] I have two questions for you on immigration.
+- [23:04.500] Ms. Leavitt: Sure.
+- [23:05.760] The Press: March deportation numbers were down slightly
+- [23:08.020] from the same time period last year.
+- [23:10.070] SCOTUS recently ordered a pause
+- [23:12.070] on deporting Tren de Aragua members
+- [23:15.640] with the Alien Enemies Act.
+- [23:17.780] I'm curious what other tools the administration
+- [23:20.140] is looking at to boost those deportation numbers.
+- [23:22.110] Ms. Leavitt: Sure.
+- [23:23.380] Well, we are obviously complying with the court's order.
+- [23:25.650] However, it was a temporary pause.
+- [23:27.560] The Supreme Court basically said, "Sit tight"
+- [23:30.020] and they will follow up with an order,
+- [23:31.430] and we're confident that the Supreme Court
+- [23:33.740] will rule on the side of law and recognize the President
+- [23:36.580] absolutely has the executive authority
+- [23:38.970] to deport foreign terrorists from our nation's interior
+- [23:41.910] under the Alien Enemies Act.
+- [23:44.160] We feel very strongly about that,
+- [23:45.640] and we're confident the courts will side
+- [23:47.640] with the President and his executive authority.
+- [23:49.750] As for deportations, we continue to deport illegal criminals
+- [23:52.760] under Title Eight,
+- [23:54.050] which is an immigration authority
+- [23:56.210] given to our border patrol agents
+- [23:58.200] and the Department of Homeland Security
+- [24:00.010] to deport illegal criminals from this country,
+- [24:01.830] and the administration continues to do that at record speed
+- [24:05.520] as quickly as they can with the resources that they have.
+- [24:08.360] The Press: The DOJ recently dropped charges
+- [24:10.090] against the MS-13 leader caught in Woodbridge,
+- [24:12.650] Virginia with the idea
+- [24:14.370] that this will expedite the deportation process.
+- [24:17.130] Does the administration plan to drop charges
+- [24:19.220] against other criminal illegals
+- [24:20.660] to speed along the deportation process?
+- [24:22.720] Ms. Leavitt: You'd have to ask the Department of Justice.
+- [24:24.450] Obviously, that's within their purview
+- [24:26.070] and I can't speak for them.
+- [24:27.510] However, it is our goal to deport as many illegal criminals
+- [24:30.850] and aliens from our country as we possibly can,
+- [24:33.170] as quickly as we can. Jackie.
+- [24:34.690] The Press: Thank you, Karoline.
+- [24:35.900] We've heard so much about this Saudi trip planning,
+- [24:38.700] and the President's mentioned it himself before,
+- [24:40.480] but I don't think we've ever heard on the record
+- [24:42.020] what he hopes to achieve in Saudi Arabia
+- [24:43.660] and what the purpose of the trip is.
+- [24:44.990] Ms. Leavitt: Sure.
+- [24:46.220] Well, the President looks forward to this.
+- [24:47.640] It was supposed to be his first foreign visit,
+- [24:49.440] but of course now he is going to Rome this weekend
+- [24:52.610] to honor the Pope and attend the funeral.
+- [24:55.070] The President looks to strengthen the ties
+- [24:56.590] between the United States
+- [24:57.830] and these countries in which he will be visiting.
+- [24:59.870] He'll be having many bilateral meetings and talks,
+- [25:01.960] and we look forward to the trip
+- [25:03.250] and hope to see many of you there.
+- [25:05.090] The Press: And the meetings in London this week,
+- [25:07.120] do they have any nexus with the plans in Saudi Arabia?
+- [25:10.710] Ms. Leavitt: I can't speak to that.
+- [25:12.310] However, I do have an update on meetings
+- [25:14.610] when it comes to the Russia-Ukraine War.
+- [25:16.930] I was just in the Oval Office
+- [25:18.140] with the President and Steve Witkoff,
+- [25:19.610] and they wanted everybody to know
+- [25:21.280] that the negotiations continue.
+- [25:23.650] We feel, again, we're hopefully moving in the right direction.
+- [25:26.930] And the Special Envoy, Steve Witkoff,
+- [25:28.750] will be heading to Russia again later this week
+- [25:31.540] to continue talks with Vladimir Putin.
+- [25:33.200] The Press: Is that why Rubio is not heading to London,
+- [25:35.850] is he accompanying Witkoff to Moscow?
+- [25:37.370] Ms. Leavitt: I can't speak
+- [25:38.630] for the Secretary of State's travel schedule.
+- [25:40.220] I'd defer you to the Department of State.
+- [25:41.540] The Press: And then, more broadly,
+- [25:42.750] just about the piece agreement,
+- [25:44.820] the talks that are ongoing, Secretary Rubio had said
+- [25:48.780] that if things don't go the right way,
+- [25:50.310] that the US might need to take a step back.
+- [25:53.270] What does stepping back look like?
+- [25:54.760] Is that a step back from brokering peace,
+- [25:58.140] or would that imply a broader withdrawal
+- [26:00.600] from US support for Ukraine and the war?
+- [26:03.850] Ms. Leavitt: Look, I think it would be unwise for me
+- [26:05.550] to broadcast that from this podium.
+- [26:07.190] Ultimately, that's a decision for the President to make.
+- [26:09.580] But he's made it very clear, he wants to see peace,
+- [26:12.330] he wants to see this war end,
+- [26:14.080] and he wants to stop the killing on both sides of this war,
+- [26:17.180] and he's been very clear about that for quite some time,
+- [26:20.250] and he has grown frustrated with both sides of this war,
+- [26:22.810] and he's made that very known. Brian.
+- [26:25.380] The Press: Thank you, Karoline.
+- [26:26.580] Last week, the President talked about nonprofit groups,
+- [26:30.290] specifically taking on crew,
+- [26:32.710] and he hinted that there could be further actions
+- [26:36.130] taken against nonprofits.
+- [26:37.940] Does the White House have any plans
+- [26:40.320] for any sort of actions against NGOs,
+- [26:42.510] nonprofits, or other similar groups?
+- [26:44.170] Is any of that coming up,
+- [26:45.660] is that being worked on at this time?
+- [26:47.100] Ms. Leavitt: I'll have to check in with our policy team
+- [26:48.750] and get back to you. Sure.
+- [26:51.110] The Press: Thank you, Karoline.
+- [26:52.350] Travis Gillmore with The Epoch Times.
+- [26:54.470] Are some colleges using taxpayer funds
+- [26:57.000] to further political agendas?
+- [26:58.620] And what is the administration's response to Harvard's lawsuit?
+- [27:01.160] Ms. Leavitt: Sure.
+- [27:02.380] Well, the President has made it quite clear
+- [27:05.210] that it's Harvard who has put themselves in the position
+- [27:08.840] to lose their own funding by not obeying federal law,
+- [27:11.940] and we expect all colleges and universities
+- [27:14.120] who are receiving taxpayer funds to abide by federal law,
+- [27:17.760] it's quite simple. And the President made it clear,
+- [27:19.940] he's not going to tolerate violations of federal law,
+- [27:22.280] he's not going to tolerate illegal harassment
+- [27:24.970] and violence towards Jewish American students
+- [27:27.080] or students of any faith on our campuses across the country.
+- [27:30.970] And so, we will be responding to the lawsuit in court.
+- [27:33.850] And again, it's quite simple,
+- [27:35.250] if you want federal dollars, obey federal law.
+- [27:37.520] The Press: And just to quickly follow up on China,
+- [27:39.440] any response to reports that China is targeting
+- [27:42.710] US trade allies with potential retaliatory
+- [27:45.850] measures for supporting US agendas?
+- [27:47.940] Ms. Leavitt: I think the numbers
+- [27:49.150] and the sheer number of countries
+- [27:50.540] that have reached out to the United States
+- [27:52.180] and reached out to this administration
+- [27:53.770] to cut good trade deals speak for themselves.
+- [27:56.310] The entire world knows that they need
+- [27:57.900] the United States of America
+- [27:59.130] and they want to do business here,
+- [28:00.560] and so we'll stay focused on cutting good trade deals
+- [28:02.810] on behalf of the American worker.
+- [28:04.100] Stephanie.
+- [28:05.320] The Press: Thank you, Karoline.
+- [28:06.550] Can you give us any additional details
+- [28:07.890] from the President's call with Netanyahu today?
+- [28:11.140] Ms. Leavitt: I did speak to the President about it.
+- [28:12.690] It was a good call, they spoke particularly about Iran
+- [28:16.160] and the negotiations that are underway
+- [28:18.330] with Iran and the United States.
+- [28:21.550] And the President has made it very clear repeatedly,
+- [28:24.850] but I'll reiterate, there is no daylight
+- [28:26.800] between the United States of America and the State of Israel,
+- [28:29.270] he stands strongly behind our ally.
+- [28:31.260] He's made it quite clear when it comes to Iran
+- [28:33.130] that we want to see a deal and Iran has a choice to make.
+- [28:36.760] But the President has also made it very clear,
+- [28:38.780] and he reiterated that in his call
+- [28:40.380] with Prime Minister Netanyahu today,
+- [28:42.820] about the need for Iran to never obtain a nuclear weapon.
+- [28:46.280] I do have one more bit of news
+- [28:48.630] that I would like to share with all of you,
+- [28:50.280] just give me one second to find it,
+- [28:52.700] and it's in regards to the terrorist attack
+- [28:55.530] that took place in India earlier today.
+- [28:58.150] The President has been briefed
+- [29:00.010] by the National Security Advisor,
+- [29:01.720] and he's being kept up to speed as more facts are learned.
+- [29:04.770] What we know already is dozens were killed,
+- [29:06.970] and even more were injured, in a brutal terrorist attack
+- [29:09.350] in a popular tourist location in South Kashmir.
+- [29:12.450] President Trump will be speaking with Prime Minister Modi
+- [29:15.490] as soon as he possibly can to express
+- [29:17.370] his heartfelt condolences for those lost,
+- [29:19.620] and our prayers are with those injured
+- [29:21.320] and our nation's support for our ally, India.
+- [29:23.890] These types of horrific events by terrorists
+- [29:25.970] are why those of us who work for peace and stability
+- [29:28.090] in the world continue our mission.
+- [29:29.940] So we'll give you a readout of that call later this afternoon.
+- [29:32.530] There's a lot of work to be had,
+- [29:33.910] you may hear from the President later this afternoon as well,
+- [29:36.440] and we'll see you all later. Thank you.

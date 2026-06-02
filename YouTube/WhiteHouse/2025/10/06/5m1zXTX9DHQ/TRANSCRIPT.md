@@ -1,0 +1,1086 @@
+<!-- source: https://www.youtube.com/watch?v=5m1zXTX9DHQ -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 5m1zXTX9DHQ -->
+<!-- date_published: 2025-10-06T21:01:36+00:00 -->
+<!-- date_accessed: 2026-06-02T02:43:54.810457+00:00 -->
+
+# Transcript: President Trump Delivers Remarks, Oct. 6, 2025
+
+- [00:10.030] The President: Well, thank you very much everybody.
+- [00:11.430] We have a very big signing today having to do with Alaska,
+- [00:14.700] a place that I'm very familiar with.
+- [00:17.080] And we're making it greater, bigger,
+- [00:21.040] and more powerful, and job- producing.
+- [00:23.740] It's an economic gold mine, so to speak.
+- [00:27.440] And I signed this years ago, and Biden unsigned it for me.
+- [00:33.750] This was something that should have been long operating
+- [00:36.710] and making billions of dollars for our country,
+- [00:38.960] and supplying a lot of energy and minerals
+- [00:41.190] and everything else that we're talking about.
+- [00:43.930] And they undid it, and wasted a lot of time
+- [00:48.100] and a lot of money, a lot of effort.
+- [00:50.260] And now we're starting again,
+- [00:51.510] and this time we have plenty of time to get it done
+- [00:53.390] and it's going to be done properly.
+- [00:54.870] I'd like to ask your Department of Interior Head,
+- [00:57.440] who has done a fantastic job, Doug Burgum,
+- [01:00.770] to say a few words about it. And we'll go to Chris after you,
+- [01:04.390] and anybody else that wants to say something.
+- [01:06.590] And it's a very powerful deal, very, very big deal
+- [01:09.860] from the standpoint of minerals and energy.
+- [01:12.910] So thank you all for being here. Doug, please go ahead.
+- [01:15.280] Doug Burgum: Well, thank you President Trump.
+- [01:17.250] Yesterday is a historic day. President Trump, as he promised
+- [01:21.750] when he was running in the election to the American people,
+- [01:24.960] that he was going to unlock the potential of this country,
+- [01:29.130] he was going to unlock America's mineral wealth.
+- [01:31.380] He was going to generate -- he was going to --
+- [01:36.730] supply chains around critical minerals for our country.
+- [01:40.440] On Day 1 he signed a very important executive order,
+- [01:44.190] unleashing Alaska's extraordinary resource
+- [01:47.040] potential.
+- [01:48.310] And this is part of the continuation,
+- [01:50.150] there's a number of things that have already happened
+- [01:52.110] with Alaska that are moving forward,
+- [01:53.530] there's more to come, but big milestone today.
+- [01:56.670] In reversing this Biden decision about the Ambler Road,
+- [02:02.110] this is a 211-mil-long road
+- [02:04.930] that begins over 200 miles north of Fairbanks
+- [02:08.120] off the Haul Road that goes up to the north slope.
+- [02:12.060] This road goes through an area where there's no roads.
+- [02:15.280] Ambler Mining District at the end of that
+- [02:17.330] has some of the richest mining deposits in all of America
+- [02:21.130] and in all of the world.
+- [02:22.900] And these are minerals that are absolutely essential
+- [02:26.730] to defense to industry moving forward today.
+- [02:29.740] Just take copper alone,
+- [02:31.660] this is one of the richest copper locations in the country.
+- [02:35.470] And of course, today to build a data center,
+- [02:37.790] you can have tens of thousands of tons of copper
+- [02:40.780] required for that. Even a single family home today
+- [02:43.450] may have as much as 400 pounds of copper in a home.
+- [02:47.650] And we have, as a nation,
+- [02:51.400] in the past basically gotten out of the mineral and energy
+- [02:55.460] and mining area.
+- [02:56.700] President Trump, when he said, "Drill, baby, drill,"
+- [02:58.720] he also was, mine, baby, mine.
+- [03:01.000] We've got to get back in the mining business.
+- [03:02.820] China controls 85 to a 100 percent of all the mining
+- [03:06.930] and refining of the top 20 critical minerals.
+- [03:09.830] And in this mine area up there, we got copper,
+- [03:12.280] lead, zinc, gold, silver, gallium, germanium.
+- [03:15.810] So rich in all of the minerals that we need to win
+- [03:20.070] the AI arms race against China, and to prosper as a country.
+- [03:23.610] And so again, today this was history being made.
+- [03:27.690] When some of this was set aside in 1980 by Jimmy Carter
+- [03:31.540] there was a special authority created for presidents
+- [03:34.180] to decide if there was a dispute.
+- [03:36.350] And so for the first time in history,
+- [03:38.400] a president is actually using that authority,
+- [03:40.300] President Trump as he does,
+- [03:41.590] using his authority for the benefit of the American people.
+- [03:44.310] And the appeal came in from the state of Alaska
+- [03:47.300] asking that this road be built.
+- [03:49.730] Alaska is not a colony, they're a state.
+- [03:52.340] They have an opportunity to build roads
+- [03:53.990] like any other state.
+- [03:55.190] With this signing, President Trump,
+- [03:56.530] Alaska can go ahead and build this road.
+- [04:00.140] It'll be a toll road, not a public road.
+- [04:02.140] It's a toll road, so it'll be controlled in terms of traffic.
+- [04:04.930] It's a gravel road. It'll be sensitive to the environment.
+- [04:07.870] There'll be collaboration with the native
+- [04:09.970] Alaskan corporations in terms of how it's built
+- [04:13.010] and how it's used, supporting the Alaskan native tribes
+- [04:15.440] with subsistence
+- [04:17.020] hunting regulations on either side of this.
+- [04:19.770] But this opens up a wealth resources.
+- [04:24.510] In addition, there's going to be an announcement made later today
+- [04:29.100] that is part of this announcement,
+- [04:30.580] that the Department of War, the United States Government
+- [04:33.750] is making an investment in Trilogy Minerals.
+- [04:37.290] They're one of the companies
+- [04:39.170] that has mining claims in this area
+- [04:41.600] that is remote wilderness right now.
+- [04:44.130] And again, making that investment
+- [04:46.080] so we can make sure that we're
+- [04:47.430] securing these critical mineral supplies,
+- [04:50.380] and that ownership in that company
+- [04:53.430] will benefit the American people.
+- [04:55.200] With that, I'll kick it over to Chris Wright.
+- [04:58.050] Chris Wright: Thank you, Doug.
+- [04:59.310] And what a huge thank you to the president today.
+- [05:02.190] This is a tremendous achievement for the people of Alaska.
+- [05:05.820] We were in the North Slope of Alaska a few months ago,
+- [05:08.460] celebrating energy development there.
+- [05:10.570] They want jobs and opportunity
+- [05:12.550] to develop the resources on their lands.
+- [05:15.060] This is another major step forward.
+- [05:17.210] We say energy's the lifeblood of society, the circulatory system.
+- [05:22.110] Minerals and metals, they're the skeletal infrastructure,
+- [05:25.570] the physical upholding of everything we do,
+- [05:28.640] everywhere we walk and operate, your cameras,
+- [05:31.050] everything you hold are made out of minerals and minerals.
+- [05:34.640] President Biden thought it was appropriate to offshore
+- [05:36.970] both of these industries outside of our country,
+- [05:39.700] that has not left us in a strong place.
+- [05:41.900] President Trump in his first term,
+- [05:43.550] and even more strongly in his second term,
+- [05:45.880] is bringing those industries back to our country.
+- [05:48.840] America was a mining powerhouse for a long, long time,
+- [05:52.730] and our mining industry got squelched.
+- [05:54.770] Now, we're seeing it come back to life.
+- [05:56.350] You saw the President's truth not long ago
+- [05:58.830] about a deal for lithium production in Nevada
+- [06:02.390] just a week or so ago.
+- [06:04.300] This will more than tenfold increase
+- [06:06.630] American lithium production.
+- [06:08.600] And this infrastructure, this mining road in the Ambler
+- [06:11.610] Mining District, will just have immense impact
+- [06:14.330] on future mining opportunities for our country's security
+- [06:17.690] and economic opportunities for the people of Alaska.
+- [06:21.040] Our critical minerals and mining expert within the administration
+- [06:24.630] is standing right next to me, David Copley.
+- [06:26.450] I'll see if he wants to add new words.
+- [06:27.970] David Copley: This is a really big deal
+- [06:29.190] for the American mining industry.
+- [06:30.400] And I think it shows the President's seriousness
+- [06:32.130] about getting this industry going,
+- [06:33.360] and making sure we have the critical minerals we need
+- [06:35.260] for our defense industrial base and for our broader economy.
+- [06:38.540] The President: Thank you very much.
+- [06:39.770] And I think we want to get this going by a certain time,
+- [06:42.340] so I signed it.
+- [06:43.600] And Will, I'm going to give it to you, and you get it filed.
+- [06:46.500] Will Scharf: Yes, sir. The President: Good job.
+- [06:47.760] Will Scharf: Thank you, sir.
+- [06:49.050] The President: It's a big job. Thank you very much.
+- [06:50.810] Will Scharf: (inaudible)
+- [06:55.370] The President: So we created a great deal of wealth
+- [06:58.570] for that part of the world
+- [07:00.000] and that part of our country by doing this long,
+- [07:03.400] very difficult road to build.
+- [07:05.930] And we'll be talking about that sometime later.
+- [07:07.960] But it's a great deal for our country,
+- [07:11.020] it's a great deal for the people of our country
+- [07:13.550] and for the taxpayers of our country.
+- [07:16.250] And if you have any questions on that, let me know, Steve.
+- [07:18.820] The Press: When do you expect the road that we've constructed,
+- [07:20.970] and how quickly will I get underway?
+- [07:22.420] The President: Go ahead.
+- [07:23.660] Doug Burgum: Well, this road, I said industrial road,
+- [07:26.400] it'll have ownership.
+- [07:28.050] It'll likely be split between the state of Alaska,
+- [07:30.360] the federal government,
+- [07:31.990] and the native Alaska corporations.
+- [07:34.100] We would expect that construction would begin
+- [07:36.580] next spring with planning throughout this winter.
+- [07:39.230] The 211-mile-long road will be a gravel road
+- [07:43.050] with a solid design base
+- [07:45.300] to handle the weight of the trucks
+- [07:46.620] that are going in and out.
+- [07:48.100] This is typical design that far north
+- [07:50.720] because asphalt with a freeze-thaw cycle,
+- [07:53.610] very difficult with asphalt or concrete.
+- [07:55.240] So gravel, a fantastic gravel road,
+- [07:57.790] is going to have the least impact on the environment,
+- [07:59.810] it's going to be the best-suited purpose.
+- [08:02.660] Alaska's done this in the past with the Red Dog Mine.
+- [08:05.690] They built a toll road that again has ownership.
+- [08:09.280] The companies that use the road pay to transit that road,
+- [08:13.310] so this is an economic model used around the world
+- [08:15.730] in mining districts, we'll apply it right here.
+- [08:18.640] And again, it's going to generate revenue
+- [08:21.370] for the American people
+- [08:22.670] and for the citizens of Alaska as opposed to a cost.
+- [08:25.820] The President: And also two bridges.
+- [08:27.140] We're going to build two bridges that will be able to complete,
+- [08:30.890] and we'll get them up very quickly.
+- [08:32.350] The Press: And how long do you complete?
+- [08:33.620] I mean, 211 miles, I suppose (inaudible) --
+- [08:35.540] The President: Yes. We'll get it done in less than a year.
+- [08:37.550] Doug Burgum: It's going to come in, yeah, three phases.
+- [08:39.710] The first road, as President Trump said,
+- [08:41.180] we'll go quickly, which is, they call it a pilot road.
+- [08:43.680] We'll build a single-lane, gravel road
+- [08:47.110] through the full duration of it.
+- [08:48.950] That'll be then expanded to a second phase
+- [08:53.060] and then a third phase over time.
+- [08:55.270] But again, we want to get that pilot road built
+- [08:57.410] because then we can help get materials back
+- [08:59.100] to help the mine get started quickly as well.
+- [09:01.670] The Press: Mr. President,
+- [09:03.020] there's negotiations happening with your team in Egypt
+- [09:05.270] right now over your proposed peace plan.
+- [09:07.640] It was reported by Axios over the weekend
+- [09:09.500] that you had a call with Prime Minister Netanyahu,
+- [09:11.950] where you told him to stop being so negative,
+- [09:13.880] and to take the win when it came to Hamas's response to that.
+- [09:16.460] Is that true, and what else did you say to him?
+- [09:18.000] The President: No, it's not true.
+- [09:19.210] He's been very positive,
+- [09:20.860] he's been very positive on the deal, everybody is.
+- [09:23.000] I think every nation is.
+- [09:24.210] We have just about every nation working on this deal
+- [09:27.050] and trying to get it done.
+- [09:28.260] Something that you could say 3,000 years
+- [09:31.510] if you look at it in certain ways,
+- [09:33.410] or you could say centuries. But this is a deal that,
+- [09:37.330] incredibly everyone just came together,
+- [09:39.040] they all came together.
+- [09:40.240] No, Israel's been great. They've all been good, Caitlyn.
+- [09:42.650] The Press: And in the negotiations,
+- [09:43.890] do you have any red lines in terms of Hamas,
+- [09:46.750] disarming and whatnot?
+- [09:47.950] Are there any places you're willing to negotiate?
+- [09:49.480] The President: No, I have red lines.
+- [09:50.770] If certain things aren't met, we're not going to do it.
+- [09:52.700] But I think we're doing very well.
+- [09:54.260] And I think Hamas has been agreeing to things
+- [09:57.850] that are very important.
+- [10:00.180] The Press: Mr. President, the government shutdown.
+- [10:02.440] Mr. President, if the vote today fails in the Senate,
+- [10:05.820] will that trigger layoffs?
+- [10:07.880] The President: It could. At some point it will.
+- [10:09.500] And the Democrats are the ones that started this.
+- [10:12.380] And if you think about,
+- [10:13.660] it's about healthcare to a large extent.
+- [10:16.870] We want great healthcare for people,
+- [10:18.530] we don't want to give the money away to other people
+- [10:21.110] that come pouring into our country.
+- [10:22.350] And they've already poured
+- [10:23.590] because nobody's coming into our country now,
+- [10:25.260] we have the border totally stopped.
+- [10:27.280] In fact, numbers, we just announced again,
+- [10:29.140] we're at another zero.
+- [10:30.370] So we have zero for four months in a row.
+- [10:32.800] Zero people coming into our country illegally,
+- [10:34.660] that's a pretty good number.
+- [10:35.860] I'm not sure, even I can believe that, Doug,
+- [10:38.010] if you want know the truth.
+- [10:39.310] Zero, we went from millions of people to zero,
+- [10:41.790] but it's pretty close to that number.
+- [10:43.780] And the way you stop them is not to give away,
+- [10:48.550] not to announce that you're giving everybody
+- [10:50.900] free healthcare, free this and that.
+- [10:52.340] But what that does, it affects the American people
+- [10:55.210] because the American people are unable to get good healthcare.
+- [10:58.850] Obama Care has been a wreck, as you know.
+- [11:00.770] And to do that, we have to keep it propped up
+- [11:05.090] and do the best you can with it. It's a mess.
+- [11:07.520] But a lot of things are going on in that.
+- [11:10.110] We talk about Hamas, we talk about negotiations
+- [11:14.590] that we have going on right now.
+- [11:15.820] We have a negotiation going on right now with the Democrats
+- [11:18.820] that could lead to very good things.
+- [11:20.100] The Press: What kind of negotiations?
+- [11:21.260] Are you speaking Democratic leaders?
+- [11:22.480] The President: And I'm talking about good things
+- [11:23.710] with regard to healthcare.
+- [11:24.940] The Press: Are you speaking with Democratic leaders?
+- [11:26.180] What kind of negotiation's going on?
+- [11:27.420] The President: Well, I don't want to say that.
+- [11:28.620] I don't want to say that, but we are speaking with the Democrats.
+- [11:31.130] And some very good things could happen
+- [11:33.580] with respect to healthcare.
+- [11:35.290] The Press: Would you make a deal with them on the ACA subsidies?
+- [11:38.380] The President: If we made the right deal,
+- [11:39.870] I'd make a deal, sure.
+- [11:41.330] I mean, You have right now subsidies.
+- [11:42.930] You have subsidies, that's the problem with Obama Care.
+- [11:45.500] The subsidies are so much,
+- [11:47.690] it's billions and billions of dollars is being wasted.
+- [11:51.150] And we can have a much better healthcare
+- [11:53.090] that we have right now and we're talking to them.
+- [11:56.400] I'm not saying that's going to happen
+- [11:57.690] because this has also been going on, not for 3,000 years,
+- [12:01.150] but it's been going on for a long time.
+- [12:02.740] But yeah, we're talking to the Democrats.
+- [12:04.000] The Press: You would work to make a deal with them
+- [12:05.270] on (inaudible)?
+- [12:06.510] The President: I'd like to see a deal made
+- [12:07.750] for great healthcare.
+- [12:09.100] I want to see great health -- I'm a Republican,
+- [12:11.210] but I want to see healthcare much more so than the Democrats.
+- [12:13.900] The Press: So, Mr. President, on all of this, as you know,
+- [12:16.030] the American people are experiencing a lot of pain
+- [12:19.130] with any kind of government shutdown.
+- [12:21.590] And while you're dealing with Democrats,
+- [12:23.220] and of course, Republicans are standing their ground,
+- [12:26.170] what is your message directly to the American people
+- [12:28.430] who may encounter some of this pain and despair?
+- [12:31.660] How do you give them hope?
+- [12:32.890] The President: Well, up until now,
+- [12:34.130] there hasn't been a great deal of pain.
+- [12:36.000] There could be a great deal of pain,
+- [12:37.580] but up until now there hasn't been.
+- [12:39.160] I will say this, just hang in there
+- [12:40.830] because I think a lot of good things are going to happen.
+- [12:43.040] That's all I can say.
+- [12:44.530] I think a lot of good things could happen
+- [12:46.490] and that could also pertain to healthcare.
+- [12:49.000] The Press: A follow-up question.
+- [12:50.200] Journalists have seen a surge in attacks
+- [12:51.920] on ICE agents across the country,
+- [12:53.580] including the shooting in Dallas and over the weekend in Chicago,
+- [12:56.800] we saw 10 cars boxing in on ICE agents
+- [12:59.640] and another one ramming into an ICE vehicle.
+- [13:01.470] We have heard Secretary Noem
+- [13:03.710] saying that some of these attackers are actually organized
+- [13:06.500] and they're planning to carelessly
+- [13:07.980] ambush these officers.
+- [13:09.650] What are the consequences for these (inaudible)?
+- [13:11.360] The President: Very severe. We're going to have very severe.
+- [13:13.380] We're going to find out who is going after our federal agents.
+- [13:16.930] So when you look at Chicago, they've had probably 50 murders
+- [13:21.370] in the last six or seven months, eight months.
+- [13:24.150] Many, many people shot, like 30, 40, 50 people shot.
+- [13:30.430] Didn't die, but they've been shot.
+- [13:31.800] It's like a war zone.
+- [13:33.470] And then I listened to the governor
+- [13:34.880] and the mayor get up and say how they have it under control.
+- [13:37.410] They don't.
+- [13:38.650] It's probably worse than almost any city in the world.
+- [13:42.510] You can go to Afghanistan,
+- [13:44.390] you can go to a lot of different places,
+- [13:46.750] and they probably marvel at how much crime we have.
+- [13:49.710] Then you go to Memphis where we are right now.
+- [13:52.500] Now, just like in Washington --
+- [13:56.610] Washington D.C., right now, you people know better than I do
+- [13:59.970] because you have to live right inside,
+- [14:01.590] and so many of the press have come to me, they've said,
+- [14:04.510] "I can't believe it. It's changed so much."
+- [14:06.590] We have a safe city in Washington.
+- [14:08.160] Memphis will very soon have a safe city.
+- [14:10.290] Chicago can be very, very safe. It's going to be very safe,
+- [14:13.570] but Chicago is going to be very safe.
+- [14:15.440] And you say,
+- [14:16.860] "Why is it that a governor wouldn't accept free help?"
+- [14:21.180] From regardless, whether it's National Guard
+- [14:24.460] or the military or anybody if women raped and beaten
+- [14:29.440] and knocked to hell and the same with men
+- [14:32.110] where they're being shot all over the place in large numbers.
+- [14:35.930] We had a week in Chicago where 11 people were murdered
+- [14:39.140] and 38 people were shot.
+- [14:42.230] And then we have a governor get up and say,
+- [14:44.090] "Oh, it's safe. We can handle it."
+- [14:45.480] He can't handle it. He's an incompetent guy.
+- [14:47.680] That's why they threw him out of the family business.
+- [14:49.660] They threw him out.
+- [14:50.970] I knew the family business very well
+- [14:53.260] and they threw him out and now he's the governor.
+- [14:55.490] And he should say, "We'd love to have a safer place."
+- [14:59.310] Chicago is a great city potentially.
+- [15:01.300] I told you, the head of the Union Pacific Railroad said,
+- [15:04.430] "Sir, save Chicago. It's a great city.
+- [15:07.120] It's going to be lost if you don't do it."
+- [15:09.080] We have no choice but to do this.
+- [15:10.710] And when judges give us rulings that you don't have to do it --
+- [15:15.290] Portland is on fire.
+- [15:17.830] Portland has been on fire for years
+- [15:20.360] and not so much saving it. We have to save something else
+- [15:24.720] because I think that's all insurrection.
+- [15:26.590] I really think that's really criminal insurrection.
+- [15:29.100] So I appreciate the question. These are unsafe places.
+- [15:32.010] We're going to make them safe.
+- [15:33.310] So you see what's going on in Memphis, not pretty,
+- [15:37.320] but you know what? We're doing a pretty job
+- [15:38.970] because it's going to be a very safe place in a little while.
+- [15:42.080] And the people of Memphis are so happy that we're there.
+- [15:44.780] And the people of Chicago,
+- [15:46.860] so you have Black women with MAGA
+- [15:50.590] hats on in Chicago all over the place,
+- [15:53.540] they want the guard to come in. Or they don't care who comes in,
+- [15:57.490] they just want to be safe, and they really don't care.
+- [16:00.990] There was one woman, she was great today, she said,
+- [16:03.090] "You know what? I don't care if it's a national guard,
+- [16:05.920] the Army, the Marines, the Air Force,
+- [16:08.170] I don't care who comes in as long as we're safe."
+- [16:11.170] And that's the way most of the public feels.
+- [16:14.690] We're going to make Chicago really great again
+- [16:18.320] and we're going to stop this crime.
+- [16:19.630] Then we're going to go to another one
+- [16:20.980] and we're going to go city by city.
+- [16:22.890] We're going to have safe cities.
+- [16:24.320] And it was so great
+- [16:25.710] that we started with our nation's capital.
+- [16:27.780] One of the worst --
+- [16:29.220] So many people, every week somebody was killed.
+- [16:33.870] They'd come from Iowa, they'd come from Indiana,
+- [16:36.050] they want to see the Jefferson Memorial, the Lincoln Memorial,
+- [16:39.770] they want to see something and they'd get shot.
+- [16:43.030] And you'd call their parents,
+- [16:44.420] "I'm sorry, but your son is dead."
+- [16:47.520] And they go, "What do you mean he's dead?"
+- [16:49.150] Came to Washington, D.C. Not anymore.
+- [16:51.540] That's not happening anymore. We have a safe place.
+- [16:54.680] We have a safe capital. It's as safe as we have,
+- [16:58.050] probably almost just about, in the country.
+- [17:01.060] And if you look back six months ago,
+- [17:02.780] seven months ago, this was a death trap.
+- [17:05.780] You look back during the Biden, what they did,
+- [17:08.510] how badly they managed things. And almost all of these cities,
+- [17:14.300] most of these cities are Democrat run.
+- [17:17.630] And we don't care, Democrat, Republican,
+- [17:20.550] we're going to make them safe.
+- [17:21.750] So we have to save Chicago. It's very important.
+- [17:23.870] And you can't have a governor getting up and saying it's good.
+- [17:26.270] When 11 people were shot over a weekend.
+- [17:29.090] The Press: Under what condition --
+- [17:30.490] Mr. President, the Insurrection Act,
+- [17:31.690] under what conditions or terms would you
+- [17:33.020] (inaudible)?
+- [17:34.220] The President: Well, I'd do it if it was necessary.
+- [17:35.670] So far it hasn't been necessary,
+- [17:37.220] but we have an insurrection act for a reason.
+- [17:39.790] If I had to enact it, I'd do that.
+- [17:42.040] If people were being killed and courts
+- [17:44.840] were holding us up or governors
+- [17:47.260] or mayors were holding us up, sure I'd do that.
+- [17:50.250] I want to make sure that people aren't killed.
+- [17:52.330] We have to make sure that our cities are safe.
+- [17:55.350] And it's turning out.
+- [17:56.670] And we started with D.C., it's been so successful.
+- [18:00.780] Think of it, people wouldn't go to restaurants,
+- [18:03.400] the restaurants were closing.
+- [18:04.760] We're losing a lot of restaurants, as you all know.
+- [18:07.460] And now restaurants are opening and they're thriving.
+- [18:10.680] And I went two weeks ago and it was great.
+- [18:12.460] I'm going to go again. I felt very safe. Very safe.
+- [18:15.700] Forgetting about guards and Secret Service, I would've gone.
+- [18:19.710] It would've been very safe.
+- [18:22.180] D.C. is a great -- and look at the cleanliness of D.C.
+- [18:25.240] Look at how it's clean.
+- [18:27.060] You don't have tents all over the place.
+- [18:30.810] We had parks where you couldn't even walk through the park.
+- [18:33.760] You had people from tents and they were violent people.
+- [18:37.510] Some of these people were violent people.
+- [18:39.610] We have a great safe capital again,
+- [18:42.180] and if you look at it in six months from now,
+- [18:44.150] it'll be the most beautiful anywhere in the world.
+- [18:47.270] It's being cleaned. The graffiti is all gone now.
+- [18:50.800] The tents are all gone.
+- [18:53.220] We have a capital that you can be proud of,
+- [18:55.130] but it'll only get better with time.
+- [18:56.570] The Press: Mr. President, tomorrow is October 7th,
+- [18:59.740] the two-year anniversary of the original Israeli attack.
+- [19:03.410] Do you expect a Gaza deal tomorrow
+- [19:04.890] or is there any sort of hostage (inaudible)?
+- [19:06.470] The President: I think we're going to have it soon.
+- [19:07.790] I think we're going to have a deal.
+- [19:09.090] Look, it's a hard thing for me to say that when for years
+- [19:12.560] and years they've been trying to have a deal with Gaza.
+- [19:15.700] But literally for centuries, if you really think about it.
+- [19:21.650] But we're going to have a Gaza deal, I'm pretty sure, yeah.
+- [19:24.500] The Press: And what can you tell us about the talks?
+- [19:27.240] The President: Well, I'm the one that got the hostages back.
+- [19:29.190] Remember that. I'm the one that --
+- [19:30.660] The Press: I was going to ask you that.
+- [19:31.890] The President: Yeah, I got them back.
+- [19:33.230] The Press: Israeli citizens are celebrating
+- [19:35.260] what you've accomplished in this deal.
+- [19:38.200] Should it come through,
+- [19:39.500] there will be a lot of celebration
+- [19:40.740] on the streets of Israel. The hostages' families,
+- [19:43.200] have they been in contact with you
+- [19:45.970] with regard to this deal that could happen?
+- [19:50.320] The President: Yeah, they're so happy
+- [19:51.570] about it they can't breathe. One said, "I can't breathe."
+- [19:56.670] It's very sad because you have hostages
+- [19:58.960] and you have people that are no longer living.
+- [20:02.930] And I've said this to you many times,
+- [20:04.350] the parents want the bodies of their boy back,
+- [20:07.460] the bodies of their loved one back.
+- [20:10.250] In most cases, they're young men and they're dead.
+- [20:14.770] And there's probably 32 or so, about that number,
+- [20:18.100] nobody knows exactly what the number is.
+- [20:20.830] They want that body back as much as if their son were alive.
+- [20:26.750] And I've been with them.
+- [20:28.050] Many have come to the White House, to the Oval Office.
+- [20:30.230] I've been with many of the people that I got released.
+- [20:34.840] We have a fantastic group working on it.
+- [20:37.390] Steve Witkoff has been amazing. Jared, I have Jared.
+- [20:40.600] I took Jared out because Jared is a very --
+- [20:44.160] you don't find anybody more capable,
+- [20:45.900] and we have the A-plus team working on it.
+- [20:49.120] I think we've made tremendous progress.
+- [20:52.200] And the people of Israel want it to happen.
+- [20:56.190] But the people related to hostages,
+- [21:00.170] you see in Israel, tens of thousands of people.
+- [21:04.930] They really want the hostages back
+- [21:06.810] and they really want things to end.
+- [21:08.940] And I think Hamas now has been --
+- [21:12.680] All I can say is they've been fine.
+- [21:16.380] They've been fine. I hope it's going to continue that way.
+- [21:18.690] I think it will. I really think we're going to have a deal.
+- [21:21.100] We have a really good chance of making a deal
+- [21:23.750] and it'll be a lasting deal. We want to have peace.
+- [21:26.150] This is beyond Gaza. Gaza is a big deal,
+- [21:28.390] but this is really peace in the Middle East.
+- [21:30.660] And the amazing thing is we have every Arab country,
+- [21:34.080] every Muslim country,
+- [21:35.420] we have every country surrounding, they all want --
+- [21:38.460] I spoke with President Erdogan of Turkey.
+- [21:40.910] He's fantastic. He's been pushing very hard.
+- [21:42.890] He is a very powerful guy,
+- [21:44.760] and he's been pushing very, very hard to get this deal done.
+- [21:49.120] And Hamas has a lot of respect for him.
+- [21:52.920] They have a lot of respect for Qatar.
+- [21:54.540] They have a lot of respect for UAE and Saudi Arabia.
+- [22:00.490] Everybody is on our side to get this deal done.
+- [22:03.280] There's never been anything like it.
+- [22:04.550] Nobody's ever seen it.
+- [22:05.770] There's always been like 80 percent of them
+- [22:07.810] don't want something done.
+- [22:10.160] I think virtually we even had a very strong signal,
+- [22:13.550] as you know, from Iran. They'd like to see this done.
+- [22:19.490] The Press: Mr. President, Governor Abbott
+- [22:21.380] offered up the Texas National Guard to you.
+- [22:23.270] The President: That's good.
+- [22:24.490] The Press: Have you had any other conversations
+- [22:26.370] with other red state governors?
+- [22:28.340] The President: Yeah, I have.
+- [22:30.320] Every one of them is willing to offer whatever we need.
+- [22:33.540] We thank Governor Abbott of Texas.
+- [22:35.830] Every one of the, as you call them,
+- [22:38.000] red state Governors, is willing to give whatever we need,
+- [22:41.600] because they want our agents protected.
+- [22:43.910] These ICE agents have a tough job.
+- [22:45.650] They have to go in and get, in many cases,
+- [22:47.840] stone-cold criminals,
+- [22:49.140] hardened criminals, long-time criminals,
+- [22:52.410] and every, essentially Republican governor
+- [22:56.580] has offered up whatever we need.
+- [22:58.260] And some Democratic governors also. Daniel.
+- [23:01.280] The Press: Mr. President, thank you.
+- [23:02.510] A quick question on the subject of the order,
+- [23:05.240] the Biden administration previously speaking,
+- [23:08.000] they shut down Alaska for business.
+- [23:10.230] You have reversed that. You reversed it on day one.
+- [23:12.430] You opened it up going after all the critical minerals.
+- [23:15.350] This mission of yours,
+- [23:17.040] Secretary Burgum, Secretary Wright,
+- [23:19.040] to boost our own independent production
+- [23:21.260] of critical minerals, rare earth-
+- [23:22.730] The President: Well, it's necessary, right?
+- [23:23.970] The Press: Can you just talk about how important
+- [23:25.730] that is over the next four years, sir?
+- [23:28.520] The President: Well, it's very necessary.
+- [23:30.080] In the past, we were able to go to other countries,
+- [23:32.000] buy whatever we want. But all of a sudden,
+- [23:33.800] if those countries are hostile --
+- [23:35.540] and by the way, China hasn't been,
+- [23:36.990] we've made deals with China. They approved the TikTok deal.
+- [23:40.010] Everyone said, "You'd never get the TikTok deal approved."
+- [23:43.020] They approved it and we have great people buying it.
+- [23:46.580] Big, strong American companies are buying it,
+- [23:49.150] the most prestigious companies there are, actually.
+- [23:51.500] And they're going to make sure everything was good,
+- [23:53.450] but President Xi was great. He approved it.
+- [23:57.000] So I'm not saying hostile,
+- [23:58.310] but it's good to have our own minerals.
+- [24:00.270] And we create a tremendous value by creating a road.
+- [24:04.300] We build a road that only we can do
+- [24:06.180] because we have the rights to do it, number one,
+- [24:08.800] and we have the power to do it.
+- [24:10.060] And so we build a road that's over 200 miles
+- [24:12.560] long through a very beautiful area of the world.
+- [24:16.780] Actually, it's incredible.
+- [24:18.500] When you look at it, it's incredible.
+- [24:19.990] But a rough area from the standpoint of building.
+- [24:22.640] So we get a road done, and with that,
+- [24:24.830] we unleash billions and billions of dollars of wealth.
+- [24:28.280] It's pretty amazing when you think of it.
+- [24:30.470] And it's wealth that we need,
+- [24:31.750] if we're going to be the number one country.
+- [24:33.860] We're number one now with AI, you probably read.
+- [24:37.900] We're beating everybody with AI at levels
+- [24:40.580] that nobody ever thought even possible.
+- [24:42.910] And one of the reasons we are is because of energy.
+- [24:45.680] So our grid is old and tired, like most grids are.
+- [24:49.170] They get old with time.
+- [24:50.490] I mean, the older you are, the older the grid gets, right?
+- [24:53.800] But I've allowed the people building AI or other plants,
+- [24:57.780] other types of plants, but AI in particular,
+- [24:59.920] because they need so much electricity,
+- [25:02.010] I've allowed them to build their own power.
+- [25:04.510] And it's been amazing.
+- [25:06.420] They're building massive plants and with the plant,
+- [25:09.830] they're building their own electricity.
+- [25:11.580] They've become a utility in a sense.
+- [25:13.230] I said, maybe you'll do better with the utility
+- [25:14.970] than you do with the AI. I don't know.
+- [25:17.160] But we're letting them build their own electricity.
+- [25:19.260] So we don't have to worry about the grid.
+- [25:21.240] We don't have to worry about anything.
+- [25:22.800] And they're going to build it in such a way
+- [25:24.900] that if they have excess capacity,
+- [25:26.620] they're going to put it back into the grid.
+- [25:29.730] It's pretty amazing.
+- [25:31.330] So when they build, we're giving them permits
+- [25:34.100] to build their own electric power plants.
+- [25:37.400] And it's incredible when you see what they're doing.
+- [25:40.260] And because of that and other things that we're doing,
+- [25:43.490] we're leading every country.
+- [25:45.690] Nobody's even close to us with AI.
+- [25:48.080] And AI seems to be the big thing.
+- [25:50.960] I don't know, I can't tell you that.
+- [25:53.240] There are a lot of people building and a lot of people
+- [25:55.830] have high stock prices because of AI.
+- [25:57.710] So a lot of people think it's great stuff,
+- [25:59.700] and I think it's great stuff.
+- [26:00.970] I look at it, it's amazing what it can do.
+- [26:04.190] In terms of medical, in terms of medical costs,
+- [26:07.070] in terms of knowledge,
+- [26:08.980] it's basically information and information
+- [26:11.880] at a level that nobody thought possible before.
+- [26:13.700] So we'll see.
+- [26:14.970] But they're building plants where you saw the one overlay
+- [26:17.500] that I did where, in this case it's Meta,
+- [26:21.530] one of their plants is essentially the size,
+- [26:24.020] almost the size of Manhattan. And that's a building.
+- [26:27.870] It's a building that covers Manhattan.
+- [26:30.210] So it's big stuff. And nobody's even close to us.
+- [26:33.450] We're leading AI by so much. Yeah, go ahead, please.
+- [26:37.630] The Press: Since the start of your administration
+- [26:39.240] we've seen a lot more Americans wanting to join ICE.
+- [26:41.930] And as we are seeing more attacks on them right now,
+- [26:44.310] what's your message to rank and file ICE agents
+- [26:47.130] who are trying to do their jobs
+- [26:48.380] but are facing a thousand percent increase in attacks?
+- [26:51.200] The President: I love your questions.
+- [26:52.690] I like you. So who are you with?
+- [26:54.340] The Press: I'm with NTV. The President: Very good.
+- [26:55.820] The Press: I was the one who got mugged.
+- [26:57.420] The President: You were the one, that's what I thought.
+- [26:58.790] You got mugged. You're not getting mugged anymore.
+- [27:00.360] The Press: Not anymore.
+- [27:01.570] The President: She was really --
+- [27:02.800] you're lucky to be with us with that deal that happened.
+- [27:05.830] I know all about that. Not anymore though.
+- [27:08.150] You feel a different world out there, right?
+- [27:09.690] The Press: Totally. I feel safe with the baby nowadays
+- [27:11.040] (inaudible) --
+- [27:12.240] The President: Oh, good. Well, you're safe now.
+- [27:13.810] Nobody is going to be hurting you in any way.
+- [27:15.990] The Press: Thank you, Mr. President.
+- [27:17.210] The President: Okay. Thank you very much. Thank you.
+- [27:20.180] So the bottom line on your question,
+- [27:22.110] we're just going to make things real safe.
+- [27:23.690] We're going to make --
+- [27:24.970] we're going to have a country that you could be proud of.
+- [27:26.990] Not a country that you read about every day
+- [27:28.800] where somebody gets mugged from behind or hit
+- [27:32.070] over the head with a baseball bat.
+- [27:33.930] Those people aren't with us any longer.
+- [27:35.990] Yeah, please. Thank you very much.
+- [27:37.720] The Press: Thank you, Mr. President.
+- [27:38.950] On today's call with Lula from Brazil,
+- [27:41.150] are you considering lowering tariffs after the call?
+- [27:43.390] (inaudible)
+- [27:44.590] The President: Well, I had a great talk
+- [27:45.840] with the president of Brazil, who's a good man.
+- [27:48.090] I met him actually at the United Nations.
+- [27:49.890] I was going up to make a speech
+- [27:51.310] and I didn't have a teleprompter.
+- [27:53.160] I was walking up to my teleprompter.
+- [27:55.890] I said, "I don't have a teleprompter."
+- [27:58.250] But just before that, I met with President Lula
+- [28:02.150] and I found him to be very good.
+- [28:03.730] I mean, we had a very good talk for about two minutes,
+- [28:07.490] and then I went up to make a speech
+- [28:09.180] and I was surprised to see --
+- [28:10.460] How would you like that one, Doug?
+- [28:11.660] I've got every leader in the world sitting out there.
+- [28:14.910] My teleprompter isn't on.
+- [28:16.430] You know why, Daniel? Because it was a rigged deal.
+- [28:21.630] But fortunately I made a better speech
+- [28:23.360] than I would've if I read it off a teleprompter,
+- [28:25.870] which is pretty easy to do.
+- [28:27.540] So it was quite a day. That was a big day.
+- [28:31.370] But we met and we liked each other,
+- [28:33.520] and yeah, we had a great conversation.
+- [28:35.030] Yeah, we'll start doing business.
+- [28:36.760] The Press: And are you considering traveling to Brazil
+- [28:38.540] for a (inaudible)?
+- [28:39.790] The President: At some point, I would.
+- [28:41.030] And he's going to come here. We talked about that.
+- [28:42.960] The Press: And a follow-up question on Israel.
+- [28:45.400] Israel government has been arresting
+- [28:47.360] and reporting activists that were traveling to Gaza.
+- [28:50.900] Today, Greta Thunberg, for instance, also some --
+- [28:53.220] The President: Well, she's just a troublemaker.
+- [28:55.030] I mean, you mean she's no longer into the environment now,
+- [28:57.780] she's at this. She's a troublemaker.
+- [29:00.230] She has an anger management problem.
+- [29:02.000] I think she should see a doctor.
+- [29:03.810] She needs anger -- if you ever watched her.
+- [29:05.630] She's a young person, she's so angry, she's so crazy.
+- [29:10.020] Now you can have her. You can have her.
+- [29:11.920] She's just a troublemaker. Yeah, please.
+- [29:13.430] The Press: The Supreme Court is back in its term today,
+- [29:15.250] Mr. President, and they -- The President: Say it.
+- [29:16.660] The Press: The Supreme Court is back in session,
+- [29:18.230] they rejected today, I know,
+- [29:20.340] appeal by Ghislaine Maxwell to overturn her conviction.
+- [29:23.200] That means her only chance of getting out of prison
+- [29:25.210] is a pardon from you.
+- [29:26.440] Is that something you're open to doing?
+- [29:27.820] The President: Who are we talking about?
+- [29:29.040] The Press: Ghislaine Maxwell.
+- [29:31.660] The President: I haven't heard the name in so long.
+- [29:33.500] I can say this, that I'd have to take a look at it.
+- [29:36.250] I would have to take a look. Did they reject that?
+- [29:38.210] The Press: She wanted to appeal her conviction.
+- [29:39.540] The President: And what happened?
+- [29:40.770] The Press: And they said that they were not going
+- [29:42.000] to hear her appeal. The President: I see.
+- [29:43.230] Well, I'll take a look at it. I'll speak to --
+- [29:44.630] The Press: But you're considering that?
+- [29:45.890] The President: I will speak to the DOJ.
+- [29:47.140] I wouldn't consider it or not consider it.
+- [29:48.890] I don't know anything about it, but I'll speak --
+- [29:50.350] The Press: Why would she be a candidate?
+- [29:51.570] The President: I will speak to the DOJ.
+- [29:52.770] The Press: Why would she be a candidate for clemency, Sir?
+- [29:54.210] The President: I don't know.
+- [29:55.430] I mean, I'd have to speak to the DOJ.
+- [29:56.770] I'll look at it.
+- [29:58.870] I have a lot of people have asked me for pardons.
+- [30:02.370] I call him Puff Daddy, has asked me for a pardon.
+- [30:04.630] The Press: But she was convicted of child sex trafficking.
+- [30:06.530] The President: Yeah, I mean,
+- [30:07.890] I'm going to have to take a look at it.
+- [30:09.200] I'd have to ask DOJ. I didn't know they rejected it.
+- [30:12.360] I didn't know she was even asking for it, frankly.
+- [30:14.940] The Press: (inaudible)
+- [30:16.570] supply Tomahawk missiles to Ukraine or selling to NATO
+- [30:19.910] and let them sell them to Ukraine?
+- [30:22.310] The President: Yeah, I've sort of made a decision pretty much.
+- [30:24.020] The Press: Could you share it with us, Sir?
+- [30:25.400] The President: If you consider --
+- [30:26.710] yeah, I think I want to find out what they're doing with them.
+- [30:31.310] Where are they sending them, I guess?
+- [30:32.950] I'd have to ask that question.
+- [30:36.000] That war should never have started.
+- [30:38.420] Would've never started.
+- [30:40.090] Such bad judgment was used there,
+- [30:41.930] I think on both sides, by the way.
+- [30:44.150] But nobody looks good with the war with Russia and Ukraine.
+- [30:47.120] Nobody.
+- [30:48.370] The Press: I know, Sir.
+- [30:49.580] The President: It's been a horrible --
+- [30:51.230] this week they lost over 7,000 soldiers
+- [30:53.690] between the two of them.
+- [30:55.670] This is every week, they're losing 7,000, 8,000, 5,000.
+- [30:58.750] The Press: (inaudible)
+- [31:00.030] they have a range of like 1500 miles or something,
+- [31:02.150] and so they'd be able to (inaudible).
+- [31:03.580] The President: No, I know.
+- [31:05.520] I would ask some questions. I want to see what's --
+- [31:10.400] I'm not looking to see escalation.
+- [31:12.580] The Press: Yes. And tomorrow you're meeting
+- [31:14.630] with the Canadian prime minister.
+- [31:15.980] What's on the agenda for that, Mr. President?
+- [31:17.650] The President: Well, I guess he's going to ask about tariffs.
+- [31:19.270] Because a lot of companies from Canada
+- [31:22.120] are moving into the United States.
+- [31:25.070] Everybody's moving back into the US,
+- [31:27.350] and he's probably going to be asking about tariffs.
+- [31:31.890] They're losing a lot of companies in Canada.
+- [31:34.460] They're coming into the -- they left here.
+- [31:36.150] They left here 20 years ago
+- [31:38.790] when presidents that sat right at this desk
+- [31:41.420] weren't doing their job properly.
+- [31:43.030] They were probably good politicians,
+- [31:44.780] but they weren't good at business
+- [31:46.460] and they allowed these companies to leave.
+- [31:48.120] And all they had to do is do what I'm doing right now.
+- [31:51.290] And I'm not saying it's the easiest thing to do,
+- [31:53.560] but it is, it's effective.
+- [31:55.570] We're a rich country again, we're a powerful country,
+- [31:57.840] because I've ended seven wars, at least half of them
+- [32:02.120] was because of my ability at trade and because of tariffs.
+- [32:05.930] If I didn't have tariffs to throw around a little bit,
+- [32:10.570] you would have at least four wars
+- [32:12.410] raging right now with thousands of people a day being killed.
+- [32:16.600] That aren't happening, we've settled.
+- [32:19.060] We settled seven. We're getting close to settling eight.
+- [32:22.160] That would be a big one.
+- [32:23.970] And that's something that could happen.
+- [32:27.100] So I think he's coming probably to talk about tariffs
+- [32:29.540] because a lot of companies are leaving
+- [32:31.270] Canada to come into the U.S. And they're leaving Mexico.
+- [32:35.610] And by the way, they're leaving China.
+- [32:38.010] They're leaving all over the world to come into the U.S.
+- [32:41.360] Nobody's actually seen anything like it.
+- [32:43.700] The Press: Would you shift your position on tariffs in response
+- [32:46.220] to whatever you speak about?
+- [32:47.450] The President: Well, I mean, look,
+- [32:48.670] my position's turned out to -- everybody said I'm right.
+- [32:52.020] They find billions of dollars
+- [32:53.740] that they didn't even know they had.
+- [32:56.090] Recently, they said they found billions of dollars
+- [32:59.860] and they couldn't understand.
+- [33:01.230] I said, "Check the tariff shelf."
+- [33:04.040] And they come in the next hour and they said,
+- [33:05.770] "Sir, you're right. It was from the tariffs."
+- [33:08.670] We're a rich, really rich country again.
+- [33:11.860] But more importantly, maybe influence.
+- [33:15.350] If I didn't have the power of tariffs,
+- [33:17.610] you would have at least four of the seven wars raging.
+- [33:21.520] I use tariffs to stop wars.
+- [33:23.570] If you look at India and Pakistan,
+- [33:26.330] they were ready to go at it. Seven planes were shot down.
+- [33:29.180] They were ready to go at it. And they're nuclear powers,
+- [33:32.520] and I don't want to say exactly what I said,
+- [33:35.610] but what I said was very effective. They stopped.
+- [33:38.070] And that was based on tariffs. It was based on trade.
+- [33:41.320] Tariffs are very important for the United States.
+- [33:43.590] We are a peacekeeper because of tariffs.
+- [33:45.650] Not only do we make hundreds of billions of dollars,
+- [33:49.300] but we're a peacekeeper because of tariffs.
+- [33:53.940] The Press: Mr. President, on the shutdown.
+- [33:55.850] Mr. President, the shutdown that occurred during your first term
+- [33:59.220] lasted 35 days, how long do you expect this shutdown to go?
+- [34:03.240] The President: Well, you don't know.
+- [34:04.550] Look, I can say this, that it would've not happened
+- [34:07.300] except for the Democrats.
+- [34:08.560] The Democrats are very foolish. They've lost their way.
+- [34:12.270] And we have a new thing now, when you look at,
+- [34:15.540] it's called crime, it's called absolute -- as Biden would say,
+- [34:20.770] well, I won't say what he would've said.
+- [34:23.160] Remember when he said, "It's a three-letter word, no"?
+- [34:26.980] Remember that one? We would say, what was that all about?
+- [34:29.510] He probably meant exclamation point
+- [34:31.470] or something after the word.
+- [34:33.350] But this is a five-letter word, crime, C-R-I-M-E.
+- [34:38.280] And we want to put it out and are putting it out.
+- [34:41.520] And they don't seem to care about it, but they do care.
+- [34:44.530] I believe that Pritzker and this mayor of Chicago
+- [34:49.010] that like to say about we have it under --
+- [34:51.650] they don't have it under control.
+- [34:54.070] Not only is it not under control, it's the opposite.
+- [34:57.050] And I believe they're afraid. They're scared for their lives.
+- [35:00.030] I believe that the Portland people are scared.
+- [35:02.390] You look at what's happened with Portland over the years,
+- [35:05.250] it's a burning hellhole.
+- [35:08.150] And then you have a judge that lost her way,
+- [35:12.900] that tries to pretend that like there's no problem.
+- [35:15.280] The Press: You appointed that judge, Mr. President.
+- [35:17.030] The President: Actually, she's not even saying that.
+- [35:18.870] There's a huge problem in Portland.
+- [35:20.480] I'll tell you what the problem is, crime.
+- [35:22.720] Okay? Crime.
+- [35:24.040] And it's a huge problem in Chicago, it's called crime.
+- [35:27.900] And we want to put out the crime
+- [35:29.500] and they want to inflame the crime.
+- [35:31.270] And why they want to, I don't know.
+- [35:33.150] But it could be that Pritzker is scared for his life. Yeah.
+- [35:36.560] The Press: You appointed that judge
+- [35:37.780] in Portland, Mr. President.
+- [35:39.060] The Press: Mr. President, on the U.N.,
+- [35:40.280] do you have an update on the investigation
+- [35:41.640] into what happened to you at the UN last month?
+- [35:43.700] And also what's your message to Americans
+- [35:45.860] who are concerned about yours and your family's safety,
+- [35:48.390] as you're very out in public (inaudible).
+- [35:50.200] The President: Yeah, I am out there.
+- [35:51.450] There's no question about it. Well, at the UN, we --
+- [35:53.300] and we had a problem with the teleprompter.
+- [35:55.830] We had another problem
+- [35:57.090] that nobody has actually talked about,
+- [35:59.480] the people in the room didn't hear my speech.
+- [36:02.410] Did you know that? The people in the room,
+- [36:04.470] they didn't have any loudspeakers
+- [36:06.290] and they didn't hear my speech,
+- [36:08.720] and I thought I made a really good speech.
+- [36:11.050] Considering I didn't have the use of a teleprompter,
+- [36:13.510] which is unusual, but I made a speech.
+- [36:17.200] I could have walked off the stage.
+- [36:20.070] Doug, I think most people would've just said,
+- [36:22.730] "We'll see you in about a half an hour."
+- [36:24.170] Right? But they obviously turned off the --
+- [36:27.560] I think they turned off the teleprompter,
+- [36:29.230] but there was a reason that it didn't work.
+- [36:32.150] I actually know the reason.
+- [36:33.480] They didn't let the teleprompter person into the room,
+- [36:36.950] which is essentially the same thing.
+- [36:39.500] So I made a speech, it turned out to be a very good speech,
+- [36:41.610] got good reviews.
+- [36:43.810] I went out to the audience after the speech, I saw my wife.
+- [36:48.100] I said, "How good was that speech?
+- [36:50.200] Was that unbelievable or what?"
+- [36:52.730] She said, " I didn't hear a word you said."
+- [36:54.390] I said, "What do you mean?" She was sitting in the front.
+- [36:56.550] I said, "What do you mean?"
+- [36:57.840] She said, "You couldn't hear anything that you said.
+- [37:00.470] The speakers were turned off."
+- [37:02.640] So, I think that's pretty bad stuff, right?
+- [37:06.090] Especially since we support most of the United Nations.
+- [37:10.130] And yet, I still want to keep it in New York,
+- [37:12.400] 'cause I think the United Nations
+- [37:14.110] has tremendous potential.
+- [37:15.970] If properly run, the United States has tremendous potential.
+- [37:19.150] But think of this, I settled seven wars.
+- [37:22.950] I never spoke to the United Nations about it.
+- [37:25.330] Not one of them. And those were wars
+- [37:28.220] that were raging a long time in many cases.
+- [37:32.410] And I settled seven, I never heard from the United --
+- [37:34.930] They didn't help me.
+- [37:36.170] They should be able to settle the wars.
+- [37:37.460] I shouldn't have to be settling the wars.
+- [37:38.920] Yeah, please.
+- [37:40.130] The Press: Last week you signed the security
+- [37:41.830] guarantees for Qatar.
+- [37:43.270] Do you see any role for the Senate
+- [37:45.090] in that they have to vote on that,
+- [37:46.480] or do you think (inaudible)?
+- [37:47.750] The President: Well, I wouldn't mind if they did.
+- [37:49.390] If they want to, they'd let me know.
+- [37:50.610] Nobody said that but, Qatar has been very,
+- [37:55.340] very helpful to us in this process,
+- [37:57.890] and I think you'll find that.
+- [37:59.340] I think maybe the most influential,
+- [38:02.140] they're very influential, very strong.
+- [38:04.850] With Hamas, they're very strong.
+- [38:08.210] And Turkey has likewise been helpful.
+- [38:10.930] Honestly, UAE, Saudi Arabia, everybody has been helpful.
+- [38:14.810] I just spoke today with the king of Jordan
+- [38:18.310] and he's been terrific, too.
+- [38:22.080] I can't think of any countries that's been negative about this.
+- [38:25.910] This is why it should happen.
+- [38:27.260] Everybody wants it to happen, including, I think, Hamas.
+- [38:33.410] And when they want it to happen, it's going to happen.
+- [38:38.030] The Press: James Comey is being arraigned on Wednesday,
+- [38:39.880] obviously after his indictment.
+- [38:41.370] Are you worried that your own statements
+- [38:43.110] calling for his prosecution could help him
+- [38:45.390] actually in his defense of this case?
+- [38:47.010] The President: No, I think he's a crooked guy.
+- [38:48.700] He's a dirty cop, Comey. I think he's a dirty cop.
+- [38:51.290] He's a recognized by many people to be a dirty cop
+- [38:55.740] and a dishonest guy, so all I have to do is --
+- [39:01.070] I mean, I have nothing to do with the case,
+- [39:02.790] I just say, "Good luck."
+- [39:04.240] The Press: But you called on Pam Bondi to prosecute him
+- [39:05.820] and opposed to him on Truth Social.
+- [39:07.100] The President: No, no, I don't call anybody.
+- [39:08.540] You know what? I'm allowed to do that
+- [39:10.090] if I wanted to do that, but Comey's a crooked guy.
+- [39:12.720] He has been for years and he got caught.
+- [39:15.540] Look, he lied. This is just a simple case.
+- [39:18.050] He totally lied.
+- [39:19.290] And then he confirmed the lie on,
+- [39:21.320] I guess, numerous occasions,
+- [39:22.780] or at least one occasion he confirmed the lie.
+- [39:25.410] He said, 'That's what I said, and I stand by it."
+- [39:27.460] And the guy, he didn't say, "To the best of my knowledge,"
+- [39:32.070] he didn't say, "Well, I don't remember"
+- [39:34.380] he made a very definitive statement
+- [39:36.160] and a very important statement concerning him,
+- [39:39.300] and he got caught in an outright lie.
+- [39:41.260] And that's why a group of people,
+- [39:44.350] it wasn't me that voted, they voted to indict him,
+- [39:47.510] but he's a crooked guy in my opinion.
+- [39:49.380] And we'll find out.
+- [39:50.600] The court's going to determine that in a little while, I guess.
+- [39:52.800] The Press: Mr. President,
+- [39:54.050] do you expect to announce farm relief this week?
+- [39:56.560] The President: Yeah, I going to do some farm stuff
+- [39:58.500] this weekend. Yeah, please?
+- [39:59.850] The Press: (inaudible)
+- [40:01.050] the Navy yesterday celebrating their 250th.
+- [40:04.600] Can you talk about that,
+- [40:05.920] and as we get closer to America's 250th,
+- [40:09.550] you've initiated a prayer initiative as well?
+- [40:11.550] The President: Yeah.
+- [40:12.830] The Press: Talk to me about both of those events
+- [40:14.470] and why they're so important,
+- [40:15.920] particularly the prayer initiative going forward
+- [40:17.530] to the celebration of America.
+- [40:18.730] The President: Well, we have and we're dealing,
+- [40:19.980] as you know, with all of the different,
+- [40:22.160] and not just evangelicals, Christians,
+- [40:25.850] we're dealing with lots of different faiths, religions.
+- [40:29.330] And I felt for a long time
+- [40:30.870] that if a country doesn't have religion,
+- [40:33.560] doesn't have faith, doesn't have God,
+- [40:35.560] it's going to be very hard to be a good country.
+- [40:37.830] There's no reason to be good. I want to be good
+- [40:41.180] 'cause you want to prove to God that you're good,
+- [40:43.080] so you go to that next step, right?
+- [40:46.090] So, that's very important to me.
+- [40:47.900] I think it's really very important.
+- [40:49.310] And yesterday was amazing.
+- [40:50.540] We went out, we went to the naval base,
+- [40:54.580] the largest in the world, actually.
+- [40:56.150] And I saw things that were incredible.
+- [40:58.420] The level of just, I don't want to use the word weapons,
+- [41:02.780] but they are weapons.
+- [41:04.090] The technology on these planes or the carriers
+- [41:06.660] and all of the different things that we saw.
+- [41:09.280] They gave us missile displays, they did the whole --
+- [41:12.020] I don't think they've ever done anything like it,
+- [41:13.660] but it was really impressive.
+- [41:15.060] And the talent of the pilots where they can land.
+- [41:18.860] The aircraft carriers look massive,
+- [41:21.010] but when you put them in the middle of the Atlantic,
+- [41:24.170] or in this case, pretty far off the coast of Virginia,
+- [41:28.520] and it's sitting in a big ocean.
+- [41:31.020] And it was pretty calm yesterday,
+- [41:32.550] but it's still a little bit testy.
+- [41:36.200] And you'd have these guys land right on a thing
+- [41:38.400] and come to a sudden screeching halt,
+- [41:41.290] and they're really something.
+- [41:42.510] They were taking off yesterday and they look over, "Yes, sir,"
+- [41:46.290] and then you see them just get ripped back into the seat
+- [41:50.690] 'cause the G-forces are so great.
+- [41:52.780] And actually, if you're not in great shape,
+- [41:54.400] 'cause they were doing maneuvers that were incredible yesterday,
+- [41:58.110] and the admirals were explaining
+- [42:00.900] that if you're not in really good shape,
+- [42:04.500] you don't make it because you pass out.
+- [42:07.270] These guys and women, I met some women pilots
+- [42:11.210] that it's incredible what they're able to do.
+- [42:13.590] So we saw something that was great, and you saw the spirit
+- [42:17.240] 'cause we had for a couple of thousand.
+- [42:19.310] I think they had probably 20, 22,000 largely sailors
+- [42:25.150] all dressed in the most beautiful white.
+- [42:27.610] There wasn't a spot on any of those uniforms.
+- [42:30.040] I looked at them, it was just a wave of white,
+- [42:32.950] and it was a great crowd and great reception.
+- [42:35.480] So, getting back to a very important question
+- [42:38.640] that was asked, when you go back a year ago,
+- [42:42.440] people weren't joining the armed forces.
+- [42:44.590] They weren't joining the Army, Navy, Air Force, Marines,
+- [42:48.310] the Coast Guard, Air Force. If you look at any of them,
+- [42:53.400] they weren't joining, the Space Force.
+- [42:56.510] And now, we're setting records, recruitment,
+- [42:59.930] and that goes for the police and fire.
+- [43:02.080] Now they want to be policemen, they want to be firemen.
+- [43:05.200] And firemen, people don't mention them,
+- [43:06.830] but they're incredible there.
+- [43:08.530] I know so many of them. They're brave as hell.
+- [43:10.600] I wouldn't want to do it, tell you.
+- [43:12.920] But they weren't able to recruit.
+- [43:15.200] The police weren't able to recruit
+- [43:17.160] and the military wasn't able to recruit.
+- [43:19.150] We were really off. And I got elected,
+- [43:22.460] and it really started on November 5th,
+- [43:24.440] I got elected and somehow the country developed a spirit.
+- [43:28.280] Financially, yes, but also with the military.
+- [43:30.470] And now we have record levels of people wanting to be in.
+- [43:33.570] Every force is filled.
+- [43:35.480] We have waiting lists to get into the Marines,
+- [43:37.940] to the Army, to the Navy, to the Air Force.
+- [43:39.970] We have Coast Guard. We have waiting lists to get in.
+- [43:43.700] It's amazing actually what's happened.
+- [43:45.330] We have a country, it was a dead country.
+- [43:48.020] And I say it all the time,
+- [43:49.360] we had a dead country one year ago.
+- [43:51.010] Now, we have the hottest country anywhere in the world.
+- [43:53.640] And it's nice to see you.
+- [43:54.930] I've watched you for years on television,
+- [43:56.910] so it's nice to meet you. Thank you very much, everybody.

@@ -1,0 +1,126 @@
+<!-- source: https://www.youtube.com/watch?v=vyn-_Tsl5A0 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: vyn-_Tsl5A0 -->
+<!-- date_published: 2026-04-09T18:40:08+00:00 -->
+<!-- date_accessed: 2026-06-02T02:35:20.593617+00:00 -->
+
+# Transcript: A Statement by First Lady Melania Trump
+
+- [00:14.520] Good afternoon.
+- [00:17.040] The lies linking me with the disgraceful
+- [00:20.120] Jeffrey Epstein
+- [00:22.240] need to end today.
+- [00:25.440] The individuals lying about me
+- [00:28.800] are devoid of ethical standards,
+- [00:31.880] humility,
+- [00:33.400] and respect.
+- [00:35.920] I do not object to their ignorance, but
+- [00:39.280] rather
+- [00:40.600] I reject their mean-spirited attempts
+- [00:44.160] to defame my reputation.
+- [00:47.680] I've never been friends with Epstein.
+- [00:51.440] Donald and I were invited to the same
+- [00:54.560] parties
+- [00:56.160] as Epstein from time to time
+- [00:59.080] since overlapping in social circles is
+- [01:02.800] common in New York City
+- [01:05.760] and Palm Beach.
+- [01:08.880] To be clear,
+- [01:10.320] I never had a relationship with Epstein
+- [01:13.760] or his accomplice, Maxwell.
+- [01:18.400] My email reply to Maxwell
+- [01:20.920] cannot be
+- [01:22.640] categorized as anything more
+- [01:25.800] than casual correspondence.
+- [01:29.200] My polite reply to her email doesn't
+- [01:32.280] amount to anything more
+- [01:35.280] than a trivial note.
+- [01:38.840] I am not Epstein's victim.
+- [01:42.080] Epstein did not introduce me to Donald
+- [01:45.360] Trump.
+- [01:46.960] I met my husband by chance
+- [01:49.800] at a New York City party in 1998.
+- [01:54.520] This initial encounter with my husband
+- [01:57.560] is documented in a detail in my book,
+- [02:00.520] Melania.
+- [02:02.960] The first time I crossed paths with
+- [02:05.400] Epstein was in the year 2000
+- [02:08.840] at an event Donald and I attended
+- [02:11.600] together.
+- [02:13.520] At the time, I had never met Epstein
+- [02:17.400] and had no knowledge
+- [02:19.520] of his criminal undertakings.
+- [02:24.800] Numerous fake images
+- [02:28.080] and statements about Epstein and me
+- [02:31.440] have been circulating on social media
+- [02:35.480] for years now.
+- [02:38.480] Be cautious about what you believe.
+- [02:42.360] These images and stories are completely
+- [02:45.520] false.
+- [02:48.280] I'm not a witness or a named witness in
+- [02:51.720] connection with any of Epstein's crimes.
+- [02:55.960] My name has never appeared in court
+- [02:58.240] documents,
+- [02:59.760] the positions,
+- [03:01.600] victim statements,
+- [03:03.600] or FBI interviews surrounding the
+- [03:06.880] Epstein matter.
+- [03:09.520] I have never had any knowledge of
+- [03:12.480] Epstein's
+- [03:13.800] abuse of his victims.
+- [03:17.480] I was never involved in any capacity.
+- [03:20.840] I was not a participant,
+- [03:23.200] was never on Epstein's plane,
+- [03:26.000] and never visited his private island.
+- [03:32.440] I have never been legally accused or
+- [03:35.360] convinced of a crime
+- [03:38.120] in connection with Epstein's sex
+- [03:40.160] trafficking,
+- [03:41.720] abuse of minors, and other repulsive
+- [03:44.760] behavior.
+- [03:46.960] The false smears about me from
+- [03:49.680] mean-spirited and politically motivated
+- [03:52.520] individuals
+- [03:54.120] and entities looking to cause damage to
+- [03:57.280] my good name,
+- [03:58.720] to gain financially and climb
+- [04:01.200] politically, must stop.
+- [04:04.880] My attorneys and I have fought these
+- [04:07.400] unfound and baseless lies with success
+- [04:11.600] and will continue to maintain my sound
+- [04:13.880] reputation without hesitation.
+- [04:17.200] To date,
+- [04:18.560] several individuals and companies have
+- [04:21.720] been legally obligated to publicly
+- [04:25.280] apologize and retract their lies about
+- [04:28.960] me,
+- [04:29.960] such as Daily Beast, James Carville, and
+- [04:33.440] HarperCollins UK.
+- [04:38.000] Now is the time for Congress to act.
+- [04:41.960] Epstein was not alone.
+- [04:45.040] Several prominent male executives
+- [04:47.560] resigned from their powerful positions
+- [04:50.280] after this matter became widely
+- [04:53.440] politicized.
+- [04:55.400] Of course,
+- [04:56.880] this doesn't amount to guilt,
+- [04:59.440] but we still must work openly and
+- [05:01.960] transparently to uncover the truth.
+- [05:06.320] I call on Congress to provide the women
+- [05:09.440] who have been victimized by Epstein with
+- [05:12.320] a public hearing specifically centered
+- [05:15.720] around the survivors.
+- [05:18.280] Give these victims their opportunity to
+- [05:21.520] testify under oath in front of Congress
+- [05:25.840] with the power of sworn testimony.
+- [05:29.680] Each and every woman
+- [05:31.880] should have her day to tell her story in
+- [05:34.680] public if she wishes,
+- [05:37.240] and then her testimony should be
+- [05:39.640] permanently entered
+- [05:42.040] into the congressional record.
+- [05:45.280] Then,
+- [05:46.760] and only then,
+- [05:48.440] we will have the truth.
+- [05:50.400] Thank you.

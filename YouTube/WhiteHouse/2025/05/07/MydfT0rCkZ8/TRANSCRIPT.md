@@ -1,0 +1,372 @@
+<!-- source: https://www.youtube.com/watch?v=MydfT0rCkZ8 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: MydfT0rCkZ8 -->
+<!-- date_published: 2025-05-07T18:31:50+00:00 -->
+<!-- date_accessed: 2026-06-02T02:50:42.760984+00:00 -->
+
+# Transcript: President Trump Swears In the Ambassador to the People's Republic of China, May 7, 2025
+
+- [00:02.340] The President: Well, thank you very much.
+- [00:03.610] Before we begin, I'm pleased to announce
+- [00:06.830] that I've just signed a proclamation
+- [00:08.870] officially designating tomorrow,
+- [00:11.100] May 8th, as a Victory Day for World War II,
+- [00:15.520] commemorating the 80th anniversary of America's victory
+- [00:18.760] in the Second World War.
+- [00:21.330] All over the globe, our World War II
+- [00:24.120] allies are celebrating this week,
+- [00:26.950] but the United States has never joined in
+- [00:28.880] with the proper celebration of our own,
+- [00:33.260] and the victory was mostly accomplished
+- [00:36.360] because of us, whether you like it or not.
+- [00:39.980] We came into that war, and we won that war.
+- [00:43.220] And we had a lot of help from a lot of great people,
+- [00:45.790] a lot of great allies.
+- [00:48.250] But I think there would be nobody that would say
+- [00:50.320] that we were not the dominant force in that war
+- [00:53.220] and we don't celebrate it.
+- [00:55.030] And I think that's a great disservice
+- [00:56.670] to the people that lost their lives
+- [00:58.260] and people that fought so hard in winning World War II
+- [01:03.080] and also a separate victory day for World War I.
+- [01:07.430] And we're going to be doing that, too.
+- [01:09.850] It was American tanks and ships
+- [01:11.650] and trucks and airplanes and service members
+- [01:14.190] that vanquished the enemy 80 years ago this week.
+- [01:17.020] Without America, the liberation would never have happened.
+- [01:22.640] And so we have to pay tribute and homage
+- [01:26.770] to those people that gave us victory.
+- [01:31.910] And we did something else that people don't talk about.
+- [01:35.870] We rebuilt the world.
+- [01:37.870] All of these countries that were destroyed,
+- [01:40.030] we helped them rebuild.
+- [01:42.720] And that's something that, for the most part,
+- [01:44.830] others did not do. So with this proclamation,
+- [01:49.290] we are hereby honoring the incredible sacrifice
+- [01:52.510] and heroism of millions of Americans
+- [01:54.810] who served in World War II
+- [01:58.030] along with the unprecedented mobilization,
+- [02:01.110] home front that helped deliver this great triumph.
+- [02:04.880] All Americans should take pride
+- [02:06.440] in what these incredible patriots have achieved.
+- [02:09.510] So I just want to say happy Victory Day to all.
+- [02:13.280] So we are celebrating every year now.
+- [02:16.380] I can guarantee for four years, but I think after that,
+- [02:19.270] we're going to have two Victory Days.
+- [02:20.610] World War I and World War II.
+- [02:23.780] This is World War II Victory Day.
+- [02:26.540] In the future, we're going to have
+- [02:29.110] a major celebration of each day. We're not going to days off
+- [02:35.810] because we don't have enough days in the year.
+- [02:37.480] We have too many celebrations already.
+- [02:40.810] But we're going to have Victory Day
+- [02:42.430] and World War I, World War II.
+- [02:46.130] And without us, those wars would not have been won.
+- [02:51.770] I think we can say that, would not I've been won.
+- [02:54.920] And I think it's time that the United States
+- [02:56.920] start taking credit for their achievements.
+- [03:00.910] And I really believe it's a shame.
+- [03:03.230] You know, I was watching for the last week,
+- [03:07.020] and I noticed France.
+- [03:08.570] I noticed other countries all getting ready for Victory Day.
+- [03:13.400] And I said, that's sort of strange,
+- [03:15.270] because David just added something.
+- [03:16.980] He said, we also rebuilt the world.
+- [03:20.230] And I didn't have that, and I should have that.
+- [03:22.490] That was a big factor.
+- [03:25.130] I notice all of the countries, Russia,
+- [03:28.000] having a big day tomorrow.
+- [03:30.780] And, by the way, they lost millions of people,
+- [03:33.830] and they were absolutely a major factor.
+- [03:38.470] There was no major factor like us.
+- [03:40.200] We won the war, and we won it with the help of others.
+- [03:43.570] But everybody was celebrating,
+- [03:45.120] but the United States of America.
+- [03:46.640] And I said, you know, I think it's time
+- [03:49.280] that we start celebrating victory.
+- [03:51.980] And that's what we're doing.
+- [03:55.190] So now, for the reason that we're here,
+- [04:00.140] but I asked David, would it be appropriate if I did that?
+- [04:02.650] He said, absolutely.
+- [04:03.850] That's a big thing that we are doing on your swearing in.
+- [04:06.860] Very big thing.
+- [04:08.860] But now for the real reason, and a reason I'm very proud of
+- [04:13.410] because he's been my friend for a long time.
+- [04:15.170] We're swearing in our next ambassador
+- [04:17.140] to the People's Republic of China.
+- [04:19.140] What timing, David, what timing.
+- [04:21.620] Only you could have picked this timing.
+- [04:24.960] I picked him a long time ago,
+- [04:26.250] but it just happened to come due on a pretty important date.
+- [04:31.130] But our friend, David Perdue, Senator David Perdue.
+- [04:35.360] Joining David this afternoon are his incredible wife
+- [04:38.820] Bonnie has been at his side for a long time.
+- [04:41.630] Their sons, David and Blake, their daughter-in-law, Danielle,
+- [04:46.280] and daughter- in-law Charlotte,
+- [04:48.660] and their grandsons, David, Hudson, and Jack.
+- [04:52.270] That's a beautiful family. Congratulations.
+- [04:54.660] I didn't think you had it in you, David.
+- [04:56.330] That's really something.
+- [04:57.810] That's pretty amazing. Look at that.
+- [05:00.740] Our new ambassador brings to this position
+- [05:04.470] a lifetime of experience
+- [05:06.040] at the highest levels of business and politics,
+- [05:08.810] and he is at the highest level. Over four decades in business,
+- [05:12.900] he rose to lead several major American corporations,
+- [05:16.150] including as the President and CEO
+- [05:19.170] of the footwear giant Reebok,
+- [05:21.480] where he did very well and did a great job,
+- [05:24.430] and later CEO of Dollar General. Likewise, he did a great job.
+- [05:28.330] David also lived and worked in Singapore
+- [05:31.070] and Hong Kong for several years,
+- [05:32.640] developing a health of experience negotiating
+- [05:36.180] and doing tremendous business deals
+- [05:39.060] for lots of different leaders that he worked with.
+- [05:42.940] Following his tremendous business success
+- [05:45.570] as an executive,
+- [05:46.810] David stepped forward to serve America in government,
+- [05:49.540] and as we all know, in 2014,
+- [05:52.250] he was elected United States Senate in Georgia,
+- [05:56.670] and he was very popular, very respected from day one.
+- [06:00.760] He served on the Senate Foreign Relations Committee
+- [06:03.310] and was a tremendous partner
+- [06:05.380] to our administration during my first term.
+- [06:08.540] I dealt with him a lot, and he solved a lot of problems.
+- [06:12.100] Now I'm entrusting David to help manage one of America's
+- [06:15.380] most complex and consequential foreign relationships.
+- [06:19.610] And I know he'll do a fantastic job.
+- [06:22.870] As our lead diplomat in Beijing,
+- [06:25.770] David will work to promote American interests
+- [06:28.300] and stability in the Indo-Pacific.
+- [06:31.070] Help stop the flood of Chinese fentanyl across our borders,
+- [06:34.260] which we have to do.
+- [06:35.460] We lost, I believe, 300,000 people last year.
+- [06:40.040] Seek fairness and reciprocity for the American worker,
+- [06:43.370] ensure the safety of our citizens overseas,
+- [06:46.680] and promote peace in the region and in the world.
+- [06:50.420] And I'm confident that he will do an exceptional job.
+- [06:54.290] He's an exceptional man. And make our country very proud
+- [06:58.190] and make our country very safe too.
+- [07:00.800] So, David, I want to congratulate you.
+- [07:02.460] This is as big as it gets, and the timing is unbelievable,
+- [07:07.290] but it's time that we have somebody like this.
+- [07:10.660] This is a very, very extraordinary man,
+- [07:13.860] and you're going to do a fantastic job.
+- [07:16.450] And say hello to President Xi when you're over there, please.
+- [07:19.520] Okay? Thank you very much.
+- [07:21.730] Marco, would you do the service? Thank you.
+- [07:24.030] Marco Rubio: You just stand here
+- [07:26.060] and put your left hand and raise your right.
+- [07:30.260] Raise your right hand, all right.
+- [07:33.130] David Perdue: I, David Perdue,
+- [07:34.950] do solemnly swear that I will support and defend
+- [07:40.290] the Constitution of the United States
+- [07:43.780] against all enemies, foreign and domestic,
+- [07:48.070] that I will bear true faith and allegiance to the same,
+- [07:56.020] that I take this obligation freely
+- [07:57.720] without any mental reservation or purpose of evasion,
+- [08:03.860] and that I will well and faithfully discharge
+- [08:08.850] the duties of the office on which I am about to enter.
+- [08:13.960] So help me God. Congratulations. Thank you so much.
+- [08:18.900] [applause]
+- [08:25.420] The President: David, would you like to say something?
+- [08:29.090] David Perdue: Mr. President,
+- [08:30.350] I'm humbled to be in this office today.
+- [08:32.530] I love what you've done with this office.
+- [08:33.940] I like the Declaration of Independence.
+- [08:36.370] I want the world to know that I know this man personally.
+- [08:38.630] He loves this country,
+- [08:39.910] and I am glad to be your man in China.
+- [08:41.900] Thank you. [applause]
+- [08:47.220] The President: I think just for the sake of formality,
+- [08:50.940] here we go, David. Come on up. Come on here, Bonnie.
+- [08:54.690] That's what it's all about, right?
+- [08:59.590] And now we send you on your way. Lots of luck.
+- [09:03.500] We're right behind you, David.
+- [09:05.960] Okay, have a good time. Congratulations, everybody.
+- [09:09.340] Congratulations. Any questions, please?
+- [09:12.800] The Press: [inaudible]
+- [09:14.080] secretary just told lawmakers that a tariff exemption
+- [09:16.860] for certain baby items like car seats is under consideration.
+- [09:20.150] Will you exempt some products that families rely on?
+- [09:22.190] The President: I don't know. I'll think about it.
+- [09:23.550] I don' know. I really don't.
+- [09:25.460] I want to make it nice and simple.
+- [09:26.880] I'm not looking to have so many exemptions
+- [09:29.840] that nobody knows what's doing.
+- [09:31.070] We have to make very simple, but I'll take a look at it.
+- [09:33.870] Yep. Please.
+- [09:35.370] The Press: Mr. President,
+- [09:36.570] there are rumblings in Washington
+- [09:37.860] that some House Republican moderates
+- [09:39.650] are opposed to defunding Planned Parenthood
+- [09:41.590] in this year's reconciliation package.
+- [09:43.790] What do you say to those members,
+- [09:45.060] and are you supportive of --
+- [09:46.300] The President: Well, I don't know yet.
+- [09:47.520] I have to see because you're just telling me that
+- [09:49.170] for the first time. We'll work something out
+- [09:51.500] The Press: Mr. President, what are you hoping
+- [09:52.820] your representatives
+- [09:54.060] will get out of the talks in Switzerland on China?
+- [09:56.160] And secondly, what does China need to do on fentanyl?
+- [09:58.400] Specifically, what do you want to see them do?
+- [10:00.080] The President: Well, they have to stop Fentanyl from coming in.
+- [10:01.970] That'll be a very big part.
+- [10:03.760] And I had that understanding with President Xi
+- [10:06.100] before I left last time.
+- [10:07.670] And we had a deal, and he would have honored the deal.
+- [10:10.710] But when Biden came in, of course,
+- [10:12.070] nothing ever happened with him.
+- [10:13.290] He didn't know what the hell he was doing.
+- [10:15.040] But that would have saved a lot of lives.
+- [10:16.680] That election cost us a lot lives and a lot of heartache,
+- [10:20.520] the fact that we went through four years of misery.
+- [10:23.960] And you look at what's coming through the border
+- [10:25.960] and the job of getting murderers out of our country.
+- [10:30.110] So many bad things happened. The wars.
+- [10:32.600] You wouldn't be having -- you wouldn't have October 7th.
+- [10:36.010] You wouldn't' have Russia fighting with Ukraine.
+- [10:39.020] You wouldn't have had that disaster in Afghanistan.
+- [10:41.390] You wouldn't have inflation.
+- [10:43.560] All these things would have not taken place.
+- [10:45.700] So sad to see what happened. Any other questions?
+- [10:49.560] The Press: Are you administration
+- [10:50.880] sending migrants to Libya?
+- [10:53.620] The President: I don't know,
+- [10:54.830] you'll have to ask Homeland Security, please.
+- [10:57.860] The Press: The Vice President said Russia
+- [11:01.340] was asking for too much to end the war.
+- [11:03.840] Given that, do you still have confidence that --.
+- [11:05.990] The President: When did he say that?
+- [11:07.230] The Press: Earlier this morning.
+- [11:08.470] The President: Well, it's possible that he's right.
+- [11:10.080] He may know some things that,
+- [11:11.930] because I've been dealing with this and some other things,
+- [11:15.030] but we are getting to a point
+- [11:19.150] where some decisions are going to have to be made.
+- [11:21.990] I'm not happy about it. I'm not happy about it.
+- [11:26.610] The Press: On the talks [inaudible], what do you expect?
+- [11:28.870] What do you hope to come out of it?
+- [11:30.180] The President: We'll see. I mean, look, it's —
+- [11:32.490] we were losing a trillion dollars a year,
+- [11:34.730] now we're not losing anything, you know?
+- [11:36.310] That's the way I look at it.
+- [11:37.520] We were losing, with China on trade,
+- [11:39.160] a trillion dollar a year.
+- [11:40.490] More, actually. 1.1. But let's say a trillion.
+- [11:44.180] You know what we're losing now? Nothing. That's not bad.
+- [11:48.580] Speaker 10 The ceasefire and hostage your proposal
+- [11:52.570] before you head over to the region next week --.
+- [11:55.580] The President: Where?
+- [11:57.980] The Press: In Gaza.
+- [11:59.380] Well, we're going to see what's happening.
+- [12:02.520] There's a lot of talk going on about Gaza right now.
+- [12:04.490] You know that, right?
+- [12:05.750] So you'll be knowing probably in the next 24 hours.
+- [12:09.810] The Press: [inaudible]
+- [12:12.650] India and Pakistan. What's your position?
+- [12:14.750] Oh, it's so terrible.
+- [12:15.980] My position is I get along with both.
+- [12:19.390] I know both very well.
+- [12:20.880] And I want to see them work it out.
+- [12:22.180] I want see them stop.
+- [12:24.160] And hopefully they can stop now. They've gone tit for tat.
+- [12:28.250] So hopefully they can stop now, but I know both.
+- [12:30.960] We get along with both the countries very well,
+- [12:33.520] good relationships with both, and I want to see it stop.
+- [12:36.610] And if I can do anything to help, I will be there.
+- [12:39.770] You know, by the way, you know, by the way, unrelated,
+- [12:42.880] but I guess it's all related
+- [12:45.890] when you look at the world nowadays.
+- [12:47.420] Rwanda and the Congo, we've made a lot of progress
+- [12:50.600] in getting that disaster stopped.
+- [12:53.020] We've had a very talented person over there,
+- [12:55.230] and we've had made a ton of progress with Rwanda and Congo
+- [12:58.890] fighting a very violent war, by the way.
+- [13:02.570] The Press: China says in order
+- [13:03.920] to have substantive negotiations,
+- [13:05.410] you have to bring down your 145% tariffs.
+- [13:08.650] Are you open to pulling back your tariffs
+- [13:10.260] in order to get China to the negotiating table?
+- [13:12.410] The President: No.
+- [13:15.450] The Press: Senator Phyllis has come out against Ed Martin
+- [13:18.140] as U.S. Attorney. Do you have any response to that?
+- [13:20.800] The President: Well, it's disappointing because,
+- [13:22.990] you know, I know Eddie's very talented.
+- [13:25.340] Crime is down in Washington, D.C.
+- [13:27.750] Street crime, violent crime by 25 percent.
+- [13:31.590] And it's — people have seen —
+- [13:34.110] they've noticed a big difference.
+- [13:35.380] So I haven't — I didn't know that.
+- [13:37.650] But if he — if anybody voted against him,
+- [13:40.910] I feel very badly about it. Only in the sense that —
+- [13:44.490] in this short period of time that he's been there,
+- [13:46.570] crime is down 25 percent in Washington D. C.
+- [13:49.840] That's really up to the senators.
+- [13:52.150] If they, you know, feel that way,
+- [13:53.900] they have to vote the way they vote.
+- [13:55.180] They have to follow their heart, and they have follow their mind.
+- [13:59.700] The Press: [inaudible]
+- [14:02.440] are you going to make that announcement?
+- [14:03.910] The President: They're going to ask me about that
+- [14:05.160] when I get there, and I'll have to make a decision
+- [14:08.310] I don't want to hurt anybody's feelings.
+- [14:09.860] I don' know if feelings are going to be hurt.
+- [14:12.080] Well have a case right over here.
+- [14:13.380] It's called Gulf of America
+- [14:15.680] and I guess a lot of people get ideas from us.
+- [14:19.500] But the Gulf of American was something
+- [14:22.290] I thought should have been named a long time ago.
+- [14:25.200] I'm going to be given a briefing on that.
+- [14:27.580] It was just done Then I'll make a decisions
+- [14:30.190] The Press: It is the U.S. position
+- [14:31.390] that Iran can have an enrichment program
+- [14:33.150] as long as it doesn't reach a weapons --
+- [14:35.200] The President: We haven't made that decision yet.
+- [14:37.030] We will, but we haven't made that decisions yet.
+- [14:39.690] The Press: China said the U.S.
+- [14:41.960] Initiated the trade talks this weekend
+- [14:44.060] and that its position hasn't changed.
+- [14:46.100] Are you still confident you can reach a deal with China?
+- [14:49.060] The President: They said, we initiated?
+- [14:51.270] Well, I think they ought to go back and study their files.
+- [14:55.180] Okay? I do think that. Go ahead. What were you --.
+- [14:57.270] The Press: [inaudible]
+- [14:58.470] planning to ease ship export restrictions
+- [15:00.530] to some of these Gulf countries
+- [15:01.920] and also make announcements regarding --.
+- [15:03.950] The President: We might be doing that, yeah.
+- [15:05.340] And it'll be announced soon.
+- [15:09.110] The Press: [inaudible]
+- [15:10.320] The President: Well, we're going to take a look.
+- [15:11.600] We're going take a look.
+- [15:12.830] But, you know, we had really a very good,
+- [15:17.190] as you know we had a very good outcome with the Houthis
+- [15:21.940] and we honor their word and they made a commitment.
+- [15:25.660] And we dealt with other countries
+- [15:28.490] that were close to them and their surrogates.
+- [15:31.430] And, we honor all of their words.
+- [15:33.260] We'll see what happens.
+- [15:34.500] But I think, you know, I believe that hopefully that's over with.
+- [15:39.320] And they'll leave the ships alone, you know?
+- [15:41.780] Leave those ships alone.
+- [15:44.110] But so we do -- we take their word for it.
+- [15:46.180] It was, you, know, we hit them very hard.
+- [15:48.470] They had a great capacity to withstand punishment.
+- [15:52.030] They took tremendous punishment.
+- [15:54.880] And, you can say there's a lot of bravery there.
+- [15:59.040] It was amazing what they took.
+- [16:02.820] But we honor their commitment and their word.
+- [16:04.700] They gave us their word
+- [16:05.940] that they wouldn't be shooting ships anymore.
+- [16:07.690] And we honor that.
+- [16:09.840] I want to thank you all for being here.
+- [16:11.560] I want congratulate David Perdue and his family.
+- [16:14.730] He's going to be really an incredible ambassador to China.
+- [16:18.000] I have no doubt about it.
+- [16:19.960] And we're going to work together very closely.
+- [16:21.930] Thank you all very much.
+- [16:23.130] Female Speaker Thank you, everybody.
+- [16:24.680] Thanks, guys.

@@ -1,0 +1,690 @@
+<!-- source: https://www.youtube.com/watch?v=t5v-NYVaHzs -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: t5v-NYVaHzs -->
+<!-- date_published: 2025-11-20T15:33:40+00:00 -->
+<!-- date_accessed: 2026-06-02T02:41:17.049700+00:00 -->
+
+# Transcript: Vice President JD Vance Joins Breitbart’s Matthew Boyle for a Fireside Chat
+
+- [00:13.490] Male Speaker: Welcome, everybody,
+- [00:14.870] to a very special conversation with Vice President Vance.
+- [00:17.660] We've got a great program for you.
+- [00:19.970] Before we bring the main event up,
+- [00:22.890] we want to thank our partners, CGCN, Alpha Institute,
+- [00:26.710] and we're very grateful to all our sponsors.
+- [00:29.340] So I want to list them real quick.
+- [00:30.590] American Chemistry Council, One Brief.
+- [00:33.300] Bitdeer T1 Energy, RJ Reynolds, Chevron, Meta,
+- [00:38.250] Microsoft, Bank of America, American Petroleum Institute,
+- [00:42.000] American Global Strategies, and Bank Policy Institute.
+- [00:46.280] So now I'd like to bring to the stage Washington Bureau
+- [00:48.840] Chief for Breitbart News,
+- [00:50.220] Matt Boyle, and the Vice President
+- [00:52.460] of the United States, Mr. J.D. Vance.
+- [00:55.610] ♪ (Country music playing) ♪
+- [01:14.450] Matt Boyle: Mr. Vice President,
+- [01:15.710] thanks for taking the time to do this.
+- [01:17.120] The Vice President: Absolutely.
+- [01:18.360] Well, I love to be here with all of you.
+- [01:20.610] It's a beautiful building and a beautiful morning.
+- [01:23.620] I always joke with Matt, but it's actually not a joke.
+- [01:26.480] I'm being dead serious that this is
+- [01:28.260] the most well-sourced journalist in Washington, D.C.
+- [01:31.870] And if you remember maybe six months ago,
+- [01:35.000] maybe it was actually a year, a year and a half ago,
+- [01:37.140] when there was this big conversation
+- [01:38.740] at The Washington Post about what do we do
+- [01:40.340] to actually get in touch with the other half of America?
+- [01:42.740] How do we actually make our journalism
+- [01:44.780] more to the half of the country
+- [01:46.960] that doesn't agree with far-left politics.
+- [01:49.240] And I actually, I think I texted Jeff Bezos,
+- [01:51.730] and I said, if you're really serious about this,
+- [01:53.570] you should just hire Matt Boyle
+- [01:55.460] and make him run your entire political reporting shop.
+- [01:58.330] Now, Larry Soloff, I'm sure,
+- [02:00.010] is pissed off at me for that suggestion,
+- [02:02.140] but unfortunately for the Washington Post,
+- [02:04.680] they did not take my advice.
+- [02:06.040] So I'm proud to be here with Matt Boyle and Breitbart,
+- [02:08.200] and thanks for everything you guys do.
+- [02:09.680] Matt Boyle: All right, so Mr. Vice President,
+- [02:10.950] the big news this morning
+- [02:12.170] is new jobs numbers blew away expectations.
+- [02:14.950] From the September numbers, so these were delayed
+- [02:16.790] because of the government shutdown.
+- [02:18.440] More than double, 119,000 new jobs.
+- [02:20.840] And then also there's some interesting stuff
+- [02:22.590] in the wages numbers there as well
+- [02:25.150] that shows wages on the rise.
+- [02:26.580] Your thoughts on the jobs numbers.
+- [02:27.880] The Vice President: Okay, so a huge jobs report,
+- [02:29.790] and I assume the market is going crazy right now,
+- [02:31.880] probably just opened, because what this shows
+- [02:34.590] is that the Trump economic policies are actually working.
+- [02:37.360] And you've got 119,000 new jobs,
+- [02:39.230] economists thought that we would have about 50,000 new jobs.
+- [02:41.970] But that's actually just the headline number.
+- [02:44.060] If you look below the surface,
+- [02:45.390] I think the numbers are actually better.
+- [02:46.730] So number one, wages continue to weigh out pace inflation.
+- [02:50.900] If you go back to the three years
+- [02:52.340] of the Biden administration,
+- [02:53.790] the average American worker actually lost about
+- [02:56.360] $3,000 of take-home pay.
+- [02:58.390] In the first 10 months of the Trump economy,
+- [03:00.180] we've increased take-ome pay by about $1,200
+- [03:03.330] adjusting for inflation. So that's a huge, huge thing,
+- [03:06.080] and this jobs report confirms that.
+- [03:07.970] You have the number of manufacturing hours
+- [03:09.620] worked in the economy is actually going up.
+- [03:11.760] You see the private sector
+- [03:12.960] is really driving this economic growth
+- [03:14.990] and is driving the job creation. And this is really important,
+- [03:17.910] I know to you, Matt, but really to me,
+- [03:20.030] and it's that we are seeing the job growth
+- [03:23.010] go to native born American citizens.
+- [03:26.480] And what happened under the Biden administration
+- [03:28.280] is to the extent there was any job growth at all.
+- [03:30.370] If you looked at the data,
+- [03:31.690] almost all of the net job creation in the United States
+- [03:34.690] under the by administration went to the foreign born.
+- [03:37.250] Now, of course, some of those people
+- [03:38.610] are illegal immigrants to the United states,
+- [03:40.690] but that means that a lot of the job creation
+- [03:42.790] was actually going to illegal aliens
+- [03:44.600] who shouldn't have been in our country.
+- [03:46.090] The best thing that you can say about the Trump economy
+- [03:48.660] is that American jobs are going to American workers
+- [03:51.320] for a change. And that's the thing
+- [03:52.900] that I'm proudest about with these numbers.
+- [03:54.690] Matt Boyle: Right, so now another big story
+- [03:57.480] is that last night President Trump announced
+- [03:59.510] that tomorrow he's going to be hosting a meeting
+- [04:02.640] with the New York City Mayor-elect, Zoran Mamdani.
+- [04:06.580] He calls him communist(inaudible)
+- [04:08.650] Anyway, the point is that Mamdani's rise can be attributed
+- [04:17.220] to the new buzzword, affordability.
+- [04:26.840] People out there feel like the economic situation
+- [04:30.050] isn't that great,
+- [04:31.380] we're 10 months to the day here since the inauguration,
+- [04:34.700] but they want to see more, they want to see more action.
+- [04:37.930] We've seen a lot of steps you guys have taken.
+- [04:39.880] A lot of people are putting a lot of faith
+- [04:41.530] in what Secretary Bessent
+- [04:42.760] is saying that the first half of next year,
+- [04:44.360] the economy is going to boom
+- [04:46.140] because of the policies you guys have enacted.
+- [04:50.220] What's your message to those out there
+- [04:51.890] who feel like they haven't seen that gaining?
+- [04:55.680] The Vice President: Yeah, well, first, Matt,
+- [04:57.020] the government shutdown didn't help, to be clear.
+- [04:59.240] And I do think that actually pumped the brakes a little bit
+- [05:01.870] on all the great economic news that we were seeing.
+- [05:04.030] And look, the Democrats, our attitude was,
+- [05:06.240] why are the Democrats doing this?
+- [05:08.010] They're the party of government.
+- [05:09.780] Why are they shutting down the government?
+- [05:11.280] For 10 years, they said to shut down the government
+- [05:13.470] is an act of economic terrorism on the United States.
+- [05:16.660] And it's sort of a question that answers itself
+- [05:18.500] because I think that they were so worried
+- [05:20.660] about what the Trump administration is doing.
+- [05:23.160] That they were willing to blow the whole thing up,
+- [05:24.960] hold a gun to the head of the American economy
+- [05:27.450] in order to get what they want.
+- [05:28.880] And that's going to cause a little bit of damage,
+- [05:30.410] but I think it'll be ultimately very, very minor
+- [05:32.500] because we were able to get the shutdown wrapped up.
+- [05:35.430] And I guess my message to the American people
+- [05:37.470] who are still feeling like things are unaffordable,
+- [05:40.560] who are feeling like are rough out there,
+- [05:42.580] is look, we get it, and we hear you,
+- [05:44.520] and we know that there's a lot of work to do.
+- [05:46.270] There's a lotta wood to chop because the Biden administration
+- [05:48.780] put us in such a very, very tough spot.
+- [05:51.210] And the way that I think about this
+- [05:52.650] is it's always helpful to take this from the abstractions
+- [05:57.210] to the actual real things that people are worried about.
+- [05:59.650] So take, for example, a dozen eggs.
+- [06:02.210] I'll never forget this. It was one of the very first,
+- [06:04.650] maybe the single first press conference
+- [06:06.650] that the President had done
+- [06:08.350] since he had started his second term.
+- [06:11.810] And some reporter, probably from ABC,
+- [06:14.750] yells at him and says,
+- [06:15.960] what have you done about the price of eggs?
+- [06:17.520] The price of egg are up 300% over the past three years.
+- [06:20.550] And it's like, it was January the 23rd.
+- [06:23.530] It's like what do you mean what have we done in two days?
+- [06:25.750] It's going to take a little bit of time to fix that problem.
+- [06:28.090] And so if you're an American who's just struggling to get by,
+- [06:31.840] you work hard, you pay your taxes,
+- [06:33.500] you want your kids to have good opportunities,
+- [06:35.610] and the price of eggs goes from $2 a dozen to $8
+- [06:39.610] a dozen under the Biden administration,
+- [06:41.890] and then under the Trump administration
+- [06:43.380] it goes from eight dollars a dozen to maybe $6.50 a dozen,
+- [06:47.140] well to you, That is still a major problem.
+- [06:50.930] And even though we've made incredible progress,
+- [06:53.580] we understand that there's a lot more work to do.
+- [06:56.390] And the thing that I'd ask for the American people
+- [06:58.100] is a little bit of patience.
+- [06:59.610] This economy was not harmed in 10 months.
+- [07:03.930] It took a deliberate four-year administration
+- [07:07.620] that was making life harder for everyday Americans,
+- [07:10.020] that was importing foreign workers
+- [07:11.700] instead of giving jobs to American workers,
+- [07:13.960] that was over-regulating, over-taxing, overspending.
+- [07:17.200] They were doing everything wrong.
+- [07:19.090] And as much progress as we've made,
+- [07:21.180] it's going to take a little bit of time
+- [07:23.340] for every American to feel that economic boom,
+- [07:25.980] which we really do believe is coming.
+- [07:28.350] We believe that we're on the front end of it,
+- [07:30.510] but we also recognize that we've got a lot of work
+- [07:32.890] to do to undo the damage
+- [07:34.310] that Joe Biden did to the American economy.
+- [07:35.940] And the last one I'll say, Matt, is it's, let's be honest,
+- [07:38.410] it's not just Joe Biden. As much as I think Joe Biden
+- [07:41.430] was one of the most disastrous presidents of American history.
+- [07:45.150] We had a policy in this country
+- [07:47.020] for 40 years of shipping American jobs overseas
+- [07:51.330] and hiring foreign workers instead of American workers.
+- [07:53.880] That has caused the economic stagnation
+- [07:56.740] of the American middle class.
+- [07:58.360] There was one bright spot in 40 years,
+- [08:00.860] and that was the first Trump administration,
+- [08:03.190] and there was going to be a massive exception
+- [08:04.930] to that 40-year trajectory of American decline,
+- [08:07.780] and that's the second Trump administration.
+- [08:09.770] We just got to keep it going.
+- [08:11.260] Matt Boyle: Right, so now, we're a year removed from you
+- [08:16.050] and President Trump
+- [08:17.300] winning a massive electoral victory in November 2024,
+- [08:24.090] and we're just a couple of months
+- [08:25.360] since our friend Charlie Kirk
+- [08:27.790] was brutally murdered by a radical leftist,
+- [08:32.560] but at the same time, we are seeing some,
+- [08:35.110] whether it's inside Congress, outside Congress,
+- [08:37.570] some divisions in the MAGA movement,
+- [08:40.250] I get it that there's this issue, that issue, whatever.
+- [08:43.020] What would be your message
+- [08:44.360] to how to reunify this movement for the fights ahead,
+- [08:47.560] whether it's the midterm elections, 2028 and beyond?
+- [08:50.820] The Vice President: Yeah, I mean,
+- [08:52.020] I think that we have to remember
+- [08:53.310] that we have a lot more in common than we do not in common,
+- [08:56.800] and that the disagreements that animate the Republican Party,
+- [09:00.190] while they matter and they're important,
+- [09:01.560] I think these debates should happen.
+- [09:02.760] They should happen in podcasts,
+- [09:04.140] and they should happen in the media.
+- [09:05.710] They should happened on the op-ed pages.
+- [09:07.630] It's totally reasonable for the people
+- [09:09.610] who make up this coalition to argue
+- [09:11.700] about what our foreign policy should be,
+- [09:14.020] what our specific tax policy should,
+- [09:15.700] be what our housing policy should.
+- [09:17.370] I mean I had a meeting just yesterday.
+- [09:19.110] That was focused in the West Wing
+- [09:20.380] about how do we get housing more affordable for young Americans
+- [09:23.920] because of all the things that got completely out of control
+- [09:26.780] under the Biden administration.
+- [09:28.260] You had homes that doubled or tripled in price,
+- [09:31.680] depending on the geography,
+- [09:33.260] in four years under the by Biden administration,
+- [09:35.810] we've got to solve that problem for our young people
+- [09:38.120] so they can afford to buy homes, start families,
+- [09:40.760] and actually build their own American dream.
+- [09:43.510] So I think my attitude is let these debates play out.
+- [09:47.040] But don't let the debates that we're having internally blind us
+- [09:50.900] to the fact
+- [09:52.130] that we are up against a radical leftist movement
+- [09:55.040] that murdered my friend a couple of months ago
+- [09:57.420] and that would throw many people
+- [09:59.470] in the Trump administration in prison,
+- [10:01.540] not for doing anything illegal,
+- [10:03.210] but for not following the far left's agenda.
+- [10:05.650] That is the real opponent here.
+- [10:07.880] A political movement in this country
+- [10:10.000] that has no animating principle,
+- [10:11.810] that has not agenda for the American people,
+- [10:13.910] Their sole obsession is to take down Donald Trump
+- [10:16.890] and anybody who helped Donald Trump govern.
+- [10:19.010] Focus on the enemy, have our debates,
+- [10:21.670] but focus on the enemies so that we can win victories
+- [10:24.520] that matter for the American people.
+- [10:25.800] That's my message.
+- [10:27.040] Matt Boyle: Right, so now, one of the things
+- [10:28.770] that powered your guys' victory, I think, a year ago
+- [10:31.170] was a political realignment in this country,
+- [10:34.590] where we're seeing working-class people shift
+- [10:36.460] to the Republican side. And the Democrats, frankly,
+- [10:38.230] are becoming the party of the rich.
+- [10:39.920] There was a new report that our partners here
+- [10:42.910] that put on this event, CGCN,
+- [10:44.960] published a couple of weeks ago called Class Dismissed 2.
+- [10:48.420] And in this report, they go into detail
+- [10:50.660] about how some of the numbers on this political realignment.
+- [10:54.130] 75 percent, more than 75 percent of the top
+- [10:57.890] 30 income congressional districts
+- [11:01.120] are represented by Democrats now.
+- [11:02.860] That's a totally new thing.
+- [11:05.020] The last three presidential elections,
+- [11:06.570] the Democrats' counties were represented
+- [11:10.100] more than 60 percent in the case of the 2020 election,
+- [11:13.160] more than 70 percent of aggregate GDP in this country.
+- [11:16.800] President Trump won counties 30-something percent
+- [11:20.320] in each of those elections.
+- [11:21.620] So your thoughts on what we're seeing now
+- [11:23.570] with this political realignment and some of those statistics?
+- [11:25.650] The Vice President: So let me say
+- [11:26.870] a few things Matt so first of all I think that part
+- [11:29.310] of what you see as division in the Republican Party
+- [11:32.340] is a consequence of this realignment.
+- [11:34.240] We have a new governing coalition,
+- [11:35.640] we have a New Political Coalition,
+- [11:37.530] we have people who didn't used to vote Republican
+- [11:40.200] and frankly they have different preferences
+- [11:42.080] sometimes on certain issues than maybe the Ronald Reagan
+- [11:45.930] or George W. Bush Republican Party did.
+- [11:48.080] I think the Donald Trump Party
+- [11:49.890] is a fundamentally new phenomenon in American politics.
+- [11:53.120] I but some of those divisions you talk about
+- [11:58.190] are just the natural outgrowth of the fact
+- [12:00.420] that we've got a lot of working class voters
+- [12:02.260] who frankly don't care what was Republican orthodoxy
+- [12:06.160] 25 years ago,
+- [12:07.650] and so they're pushing the party in a different direction,
+- [12:10.180] and again, I think that debate is natural and normal
+- [12:12.810] and it's something that we should frankly lean into,
+- [12:15.550] recognizing that the far left is really the problem
+- [12:19.160] we have to confront in this country.
+- [12:20.890] The second thing that I'll say about it, Matt,
+- [12:22.520] is I think it's a great thing.
+- [12:24.630] And I'm biased, obviously I grew up
+- [12:25.960] in a working-class family.
+- [12:27.190] I was raised by the kind of people
+- [12:29.290] who were blue dog Democrats,
+- [12:30.800] socially conservative Democrats in the 80s and 90s,
+- [12:33.810] and have turned hard towards Donald Trump's Republican Party.
+- [12:37.480] These are the people who built America's greatest icons,
+- [12:41.730] who built American's greatest buildings,
+- [12:43.830] who drive our food into the grocery store every day.
+- [12:46.530] They are the human beings who actually make this country run.
+- [12:49.990] I'm proud of them and I want
+- [12:51.390] to keep the Trump coalition together.
+- [12:53.810] That's one of the things that we have to do in 2026.
+- [12:56.090] And this is my third point, and this is tough,
+- [12:58.960] because one of things that was true
+- [13:01.120] of the Democratic coalition in, say,
+- [13:02.810] the 1990s is that because the Democratic Coalition
+- [13:07.300] in the 90s was more upscale, they showed up, excuse me,
+- [13:11.740] the Republican Coalition in 1990s was more of upscale.
+- [13:14.700] They showed up in midterms.
+- [13:16.330] So Republicans tended to do a little bit better
+- [13:18.870] in midterm elections in the 1990's
+- [13:21.540] than say Republicans do today.
+- [13:24.110] And that's because while these working class voters are great,
+- [13:27.590] they're also people who don't necessarily show up
+- [13:30.970] to vote in the midterms all the time.
+- [13:32.510] We've got to motivate them.
+- [13:33.760] We've got to get them out to vote.
+- [13:35.040] I think that's one of the lessons
+- [13:36.320] that we learned in Virginia and New Jersey,
+- [13:38.220] is that when Donald Trump is not on the ballot,
+- [13:40.500] you've got to give people something
+- [13:42.210] to actually believe in,
+- [13:43.630] something to be inspired by to get out there and vote.
+- [13:46.640] They're not going to vote
+- [13:47.930] just because you have an R next to your name.
+- [13:50.210] You've got to speak to this new working class coalition.
+- [13:53.130] And the one worry that I have when I look at so many
+- [13:55.490] of our great congressional allies,
+- [13:57.390] I do think that some of our folks in Congress,
+- [14:00.270] they want to go back to the Republican Party
+- [14:02.220] of 20 years ago,
+- [14:03.540] that Republican Party was a Republican Party
+- [14:06.310] that lost and that couldn't successfully govern the country.
+- [14:09.690] We need to lean into this new coalition,
+- [14:11.880] do a better job serving them, and that's how we get them
+- [14:14.530] to show up in these midterm elections
+- [14:15.920] so that we can win not just presidential races,
+- [14:18.280] but midterm races too.
+- [14:19.700] Matt Boyle: Right, okay, so you mentioned George W. Bush
+- [14:21.490] at the beginning of that answer.
+- [14:23.960] Now, there's a lot of news going on out there.
+- [14:25.860] Today is a somber day for the Bush family
+- [14:28.540] and for your predecessor,
+- [14:30.790] former Vice President Dick Cheney, who passed away.
+- [14:33.920] Today's his funeral.
+- [14:35.520] So I want to see if you have any thoughts
+- [14:36.930] on or message to the Cheneye family.
+- [14:39.070] I know there was some misreporting out there
+- [14:40.740] about whether or not you were invited to that or whatever.
+- [14:43.700] But outside of that, there is also another big report
+- [14:47.030] that came out a couple of days ago.
+- [14:48.780] About how George W. Bush and the people around him
+- [14:51.790] are plotting for a retaking the Republican Party
+- [14:55.300] from President Trump and you down the road
+- [14:58.270] and going back to the old way of doing things.
+- [15:00.280] I guess they don't like to win,
+- [15:01.520] but the point is that that's out there,
+- [15:03.640] so any response to that as well.
+- [15:05.750] The Vice President: Well, first of all,
+- [15:07.410] my condolences go to Dick Cheney and his family.
+- [15:09.800] Obviously, there are some political disagreements there,
+- [15:11.900] but he was a guy who served his country.
+- [15:13.930] We certainly wish his family all the best
+- [15:15.910] in this moment of grieving.
+- [15:17.510] On the issue of George W. Bush, I mean, look, as you know, Matt,
+- [15:20.870] I don't put stock in any story that doesn't come from
+- [15:22.980] Matthew J. Boyle at Breitbart News,
+- [15:25.230] so this could be totally fake news.
+- [15:28.110] But I definitely think, and you already see this,
+- [15:30.950] you saw this in 2020.
+- [15:32.380] You're going to see it in 2025 and 2026.
+- [15:35.240] There is an effort to try to wrest control
+- [15:37.730] of the Republican Party away from the voters
+- [15:41.160] and away from a coalition
+- [15:42.410] that really delivered the big victory in 2024.
+- [15:44.980] I think it's a huge mistake.
+- [15:46.290] Look, the American people don't want stupid wars
+- [15:50.040] and America's jobs going overseas and wide open borders.
+- [15:53.450] That is, whether intentional or not,
+- [15:55.530] that was the legacy of the Republican Party
+- [15:57.430] that came before Donald J. Trump.
+- [15:59.230] I'm glad the President got us away from that Republican Party.
+- [16:02.540] It lost, but it was also a disaster.
+- [16:05.090] For the United States of America.
+- [16:06.730] Let's actually have a foreign policy
+- [16:08.740] where we focus on the interests of American citizens.
+- [16:11.810] Let's have an economic policy
+- [16:13.480] that's about building in the United states of America
+- [16:16.350] rather than shipping all of our jobs overseas
+- [16:18.830] and getting Wall Street enriched in the process.
+- [16:20.950] Let's having an economic that's about more self-sufficiency.
+- [16:25.190] I mean, I have three kids. I have an eight year old,
+- [16:26.880] a five year old and a three year old.
+- [16:28.450] I don't want to wake up in a country
+- [16:30.540] where I take my kid to the doctor
+- [16:32.300] and they can't get antibiotics.
+- [16:33.900] Because the antibiotics that were invented
+- [16:35.960] in the United States of America
+- [16:37.670] are manufactured in some foreign country.
+- [16:40.050] That is the legacy of the Republican party
+- [16:41.950] that came before Donald J. Trump.
+- [16:43.560] We're not going back to it.
+- [16:45.170] Matt Boyle: Okay, so now, you mentioned the foreign policy
+- [16:49.040] and the deals that we're seeing around the world.
+- [16:50.760] One of the things that's been the hallmark here
+- [16:52.460] of President Trump's second term, again,
+- [16:54.250] we're 10 months to the day,
+- [16:55.640] since the inauguration, has been these deals.
+- [16:57.880] We were going to try to do this event last month,
+- [16:59.600] but I know you got called over to Israel on the Gaza deal.
+- [17:03.570] So give us a kind of, and by the way,
+- [17:05.450] we have in the audience here today,
+- [17:06.890] I know that there are ambassadors
+- [17:08.170] from at least two places. The European Union ambassador
+- [17:11.380] and the Taiwanese ambassador are here.
+- [17:14.110] Walk us through how President Trump
+- [17:16.310] has approached these various big-picture deals,
+- [17:19.390] because I mean, he's got more than,
+- [17:20.800] I think, 85 percent of world GDP now
+- [17:22.840] in trade deals with the United States,
+- [17:24.810] and I lost count of how many peace deals he's done this year.
+- [17:27.800] The Vice President: Yeah, well, greetings to the ambassadors.
+- [17:29.820] We're thrilled to have you, of course,
+- [17:31.500] and greetings to everybody else, including even the fake news
+- [17:33.440] I'm sure is reporting there in the back.
+- [17:34.730] Matt Boyle: There's a lot of fake news back here.
+- [17:36.050] They're all lined up.
+- [17:37.250] The Vice President: I'm sure there are.
+- [17:38.470] I can see their fake news eyes peering up at me,
+- [17:40.900] I'm sure, ready to misreport everything that I've said today.
+- [17:45.060] But no, we love you guys, too. Kind of.
+- [17:48.890] So here's the thing about the President's negotiating style.
+- [17:52.990] And I actually, you know, we were a little delayed
+- [17:54.580] because the President called me right before I got on stage,
+- [17:57.030] just about one of these deals that we're working on.
+- [17:59.770] And what I love about it is that it's never enough, right?
+- [18:04.130] And so you bring him a deal
+- [18:06.360] and, you know, he sort of asked for this, this, and this.
+- [18:09.910] We want this tariff rate.
+- [18:11.600] We want country to drop their tariff barriers.
+- [18:13.700] We want the country to draw their non-tariff barriers
+- [18:15.670] and you say, I'm never going to be able to get that done.
+- [18:17.570] And then you get it done and you bring it to him,
+- [18:19.060] and he said, well, I want three other things too.
+- [18:21.080] Because his attitude is he wants to get the best deal possible
+- [18:25.270] for the American people.
+- [18:26.780] And for too long, we had trade negotiators that so believed
+- [18:31.360] in the fake idea of free trade over fair trade
+- [18:35.010] that they were willing to sell American workers down the river
+- [18:38.480] without actually negotiating on the interests
+- [18:40.950] of American workers.
+- [18:42.240] And so, whether it's with China or India
+- [18:45.370] or any of the countries that we struck deals.
+- [18:47.690] The basic principle is we want Americans
+- [18:50.040] to have better access to their markets.
+- [18:51.620] We believe in our workers.
+- [18:52.830] We think that we have the best products in the world.
+- [18:54.820] We want to be able to sell them everywhere.
+- [18:56.450] That's number one.
+- [18:57.680] Number two, we don't want foreign products
+- [19:00.110] to undercut the wages of American workers.
+- [19:02.240] We're actually going to protect our markets,
+- [19:04.040] protect our important industries,
+- [19:06.470] and that's a very important part of the Trump trade plan.
+- [19:09.640] And you've seen it happen in a lot of different ways.
+- [19:11.950] And then the final thing, and this raises your point
+- [19:13.730] about Gaza or any of these other foreign deals,
+- [19:15.530] is we've been able to use the incredible economic leverage
+- [19:19.550] of the United States of America. I mean, we're 25 percent,
+- [19:22.470] probably a little bit more than that, of the world GDP.
+- [19:25.250] Why don't we ever use our economic leverage
+- [19:28.100] to achieve peace?
+- [19:29.440] Because when countries aren't fighting each other,
+- [19:32.070] when they're actually using their economic talents
+- [19:34.270] to manufacture good things
+- [19:35.950] rather than weapons to kill each other
+- [19:38.020] then that actually creates incredible
+- [19:40.070] economic opportunities for Americans.
+- [19:42.080] And that's why he's so focused on peace.
+- [19:45.530] He's fundamentally a humanitarian,
+- [19:47.140] and we've got eight peace deals at this point.
+- [19:49.010] We're working on number nine and number 10.
+- [19:51.460] And I think that, you know, if he gets number 10,
+- [19:53.640] purely for, like, mathematical harmony,
+- [19:55.700] if he get to 10,
+- [19:56.990] the Nobel Prize should be awarded to Donald J. Trump,
+- [19:59.940] even though he's certainly earned it with the first eight.
+- [20:02.480] But I also think that there's this sense that
+- [20:05.730] while he wants to save lives,
+- [20:07.660] he also sees a world where people are engaging in commerce
+- [20:12.020] with one another rather than killing one another.
+- [20:14.470] And he just, you know, he's a tough guy,
+- [20:17.420] but he's not a violent human.
+- [20:18.900] Like he's, he is not a person, you know,
+- [20:20.780] who I think understands violence at a sort of fundamental level.
+- [20:24.930] It's like, why don't you stop killing each other
+- [20:26.770] and start trading with one other?
+- [20:28.650] Why, rather than Russian Ukraine killing one other,
+- [20:31.180] why don't t they actually engage in some commerce with another,
+- [20:34.350] travel between the two countries,
+- [20:35.830] engage in some sort of cultural exchange?
+- [20:38.420] That is his fundamental perspective
+- [20:40.500] that he takes into these things.
+- [20:42.030] And fundamentally, if we get more peace in the world,
+- [20:44.680] it's good for American workers, it's for the American people,
+- [20:48.010] and the President's going to keep on pursuing peace.
+- [20:50.130] He's done very well so far,
+- [20:51.490] but he's going to on working at it.
+- [20:52.960] Matt Boyle: Yeah, so there's a lot
+- [20:54.200] I want to pack into this next question.
+- [20:55.890] So one of the things that we've seen, I think,
+- [20:58.250] since your guys' victory last year, the whole world over,
+- [21:02.190] everybody I've talked to around the world,
+- [21:04.280] really seems to have rallied to President Trump's vision
+- [21:07.780] on things like trade and immigration.
+- [21:10.400] I just saw, and particularly with regard to China
+- [21:14.570] and how we need to have a better deal with regard to there,
+- [21:16.760] and we just saw the President get back from there.
+- [21:19.770] I just saw comments that Pope Leo made about immigration.
+- [21:24.390] He said just the other day,
+- [21:26.900] and we did a huge story on it on Breitbart last night,
+- [21:29.530] that every country should get to decide,
+- [21:31.090] I'm paraphrasing him here,
+- [21:32.380] every country should decide who gets to come in.
+- [21:34.230] I mean, that's amazing to see that from the Pope himself.
+- [21:37.230] Your thoughts on more broadly how President Trump
+- [21:41.300] really does seem to have electrified the world
+- [21:43.970] and woke them up to these major issues
+- [21:47.470] that we're talking about.
+- [21:48.670] The Vice President: Well, Matt, you know I'm a devout Catholic,
+- [21:51.340] so I follow those comments closely,
+- [21:53.840] including on, of course, Breitbart.com.
+- [21:55.890] And that's my third Breitbart shout-out.
+- [21:58.290] I've done pretty good, right? Not bad. Thank you, guys.
+- [22:03.070] But it's interesting because you may not know
+- [22:07.740] it judging purely from the comments
+- [22:10.100] of some people on social media,
+- [22:12.230] but the Catholic Church's views on this
+- [22:13.940] are actually quite clear,
+- [22:15.480] and it's that yes, you must treat immigrants humanely.
+- [22:19.310] On the other hand, every nation
+- [22:20.870] has the right to control its borders.
+- [22:22.360] And obviously, how you strike that balance is very important,
+- [22:25.280] but there's a lot of room there
+- [22:26.640] to actually control your own borders
+- [22:28.700] for the sake of your own people. One of the things, Matt,
+- [22:31.250] that you know always frustrated me about the immigration debate
+- [22:34.030] is that we ignored how open borders
+- [22:37.110] were not actually good for the dignity
+- [22:39.020] even of the illegal migrants themselves.
+- [22:41.100] You had little kids getting sex trafficked.
+- [22:42.830] We had 300,000 missing children under the Biden administration
+- [22:46.470] that the Mexican drug cartels had brought into our country.
+- [22:49.160] You had cartels using, in some cases,
+- [22:52.190] nine and 10-year-old children
+- [22:54.180] as drug mules for their activity.
+- [22:56.430] Border security is not just good for American citizens,
+- [22:59.850] it is the humanitarian thing to do for the entire world.
+- [23:03.290] Because when you empower the cartels
+- [23:05.890] and when you power the human traffickers,
+- [23:08.000] whether in the United States or anywhere else,
+- [23:10.250] you're empowering the very worst people in the world.
+- [23:13.060] Now you've seen this in Europe,
+- [23:14.430] you've see this in a whole host of places,
+- [23:16.190] but, you know, it's almost like Europe and America
+- [23:20.110] got this idea in their head that to control your border
+- [23:23.300] at all was fundamentally you know, uncompassionate.
+- [23:26.790] Maybe it was even racist and bad.
+- [23:29.380] The president and I reject that wholesale.
+- [23:32.550] Putting the interests of your citizens first,
+- [23:34.800] it's not some ancillary thing.
+- [23:37.130] It is the very purpose of government.
+- [23:39.210] I am the American vice president.
+- [23:40.980] I wish very good things for the people of Mexico
+- [23:43.780] or the people of the United Kingdom
+- [23:45.130] or the people of any other country.
+- [23:46.960] But my priority, my charge,
+- [23:49.710] is to look after the people of the United States of America
+- [23:53.140] and you cannot do that if you're flooding the country
+- [23:56.340] with a ton of illegal immigrants and the drugs
+- [23:58.460] and the crime that they bring.
+- [23:59.710] Matt Boyle: Yes, so the last question I've got,
+- [24:02.510] please give him applause for that one. That's incredible.
+- [24:05.030] (applause)
+- [24:06.370] Okay, so Mr. Vice President, the last question I got --
+- [24:08.220] The Vice President: Even the Washington Post applauded.
+- [24:09.420] Matt Boyle: I know. I think they did.
+- [24:12.730] So Mr. Vice President.
+- [24:14.830] The last question that I got for you, on that note,
+- [24:16.900] is that there's a big discussion right now
+- [24:19.520] about health care in this country.
+- [24:22.350] You know, the ACA subsidies expire at the end of the year.
+- [24:25.320] There's a lot of questions
+- [24:26.610] about what's going to happen about this.
+- [24:28.010] Democrats shut the government down supposedly over this.
+- [24:31.280] But that -- where does this go?
+- [24:33.650] What we do to address health care prices
+- [24:36.020] and premium prices and so on and so forth?
+- [24:38.310] What does that look like? Is it reconciliation plan?
+- [24:40.640] Walk us through what happens.
+- [24:41.880] The Vice President: So what's so crazy about this, Matt,
+- [24:43.230] is right before the government shut down,
+- [24:44.930] we had a meeting with Hakeem Jeffries
+- [24:46.720] and Chuck Schumer in the Oval Office.
+- [24:49.310] Matt Boyle: Where President Trump gave them the MAGA hats?
+- [24:53.110] The Vice President: No, no, not just that.
+- [24:54.620] But the President whispers to one of his personal assistants,
+- [24:58.610] they're all very good people, and she kind of runs off
+- [25:01.440] and I think to myself immediately,
+- [25:02.700] oh, what the hell have I gotten myself into?
+- [25:05.030] And she comes back with two Trump 2028
+- [25:07.890] hats to give to Jeffries and Schumer.
+- [25:12.070] And then he has the photographer come in
+- [25:14.640] and he points at Jeffries as he's holding the Trump 2028 hat.
+- [25:20.110] And he's like, he says to the photographer,
+- [25:22.380] make sure Hakeem gets that.
+- [25:23.610] I'm sure he's going to want to use it
+- [25:24.820] in his campaign advertisements.
+- [25:26.550] And it was like a hysterical moment.
+- [25:28.990] But when we got to the serious stuff and they said,
+- [25:32.260] we really want to address the healthcare problem
+- [25:35.220] confronting the American people.
+- [25:36.580] The President said, well, absolutely.
+- [25:38.670] We agree. We want to address the health care problem
+- [25:40.960] confronting the America people.
+- [25:42.310] In fact, you people screwed it up with Obamacare,
+- [25:44.940] the unaffordable care act,
+- [25:46.730] and now you're coming to us saying, let's fix it.
+- [25:49.140] Great. Let's fix.
+- [25:50.380] And then they said, I think they were kind of caught off guard
+- [25:52.630] and they're like, well but we want the fix before we --
+- [25:56.290] before we're willing to open up the government.
+- [25:58.410] And the President was like, that's like three days from now.
+- [26:01.130] You want us to fix American health care
+- [26:02.430] in the next three days
+- [26:03.690] and unless you do it you're not going to --
+- [26:05.100] you're going to shut down the government.
+- [26:06.570] How about we open up the government
+- [26:08.270] and then work together to fix the American health care.
+- [26:10.930] And of course we know the history they rejected it.
+- [26:12.960] They shut down. The government.
+- [26:14.330] But I don't want to get ahead of the President Matt
+- [26:15.960] because we had a very very good meeting in the office yesterday.
+- [26:19.020] I think that we have a great health care plan come together.
+- [26:22.060] I think it's going to get Republican and Democrat support.
+- [26:25.500] And I think the President, look, right now, American people --
+- [26:29.300] the American people get crap health care
+- [26:31.160] and they pay way too much for it.
+- [26:33.010] You have people who are paying thousands of dollars a month
+- [26:36.290] in premiums for a family of four, a family a five,
+- [26:39.390] and the access to health care is really low.
+- [26:41.800] This system is broken.
+- [26:43.320] The Democrats broke it, but who cares?
+- [26:45.410] We're going to work together if they're willing to fix it.
+- [26:47.850] And the interesting thing, Matt, is people say,
+- [26:50.310] and this is one of the things I love about the President,
+- [26:52.740] people come to the President and say,
+- [26:54.120] no, no don't talk about health care.
+- [26:56.530] That's a graveyard for Republicans.
+- [26:58.610] Republicans always lose on health care.
+- [27:00.920] And the President's like,
+- [27:02.340] I don't care about the politics of it.
+- [27:04.600] This system is screwed up for the American people.
+- [27:07.380] We need to fix it.
+- [27:08.670] So let's go and do it, politics be damned. I love that.
+- [27:11.770] That's leadership. And that's exactly what
+- [27:13.560] we should want coming from the White House.
+- [27:14.960] Matt Boyle: Mr. Vice President,
+- [27:16.200] really want to thank you for taking the time here.
+- [27:17.770] The Vice President: Thank you, Matt.
+- [27:18.970] Good to see you guys.
+- [27:20.710] (applause)
+- [27:23.210] ♪ (Country music playing) ♪

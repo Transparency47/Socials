@@ -1,0 +1,1017 @@
+<!-- source: https://www.youtube.com/watch?v=A-DSB13ZWtg -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: A-DSB13ZWtg -->
+<!-- date_published: 2025-01-23T16:53:58+00:00 -->
+<!-- date_accessed: 2026-06-02T02:54:47.070526+00:00 -->
+
+# Transcript: President Trump Gives Virtual Remarks to World Economic Forum
+
+- [00:04.210] Male Speaker: Mr. President.
+- [00:12.620] Hello?
+- [00:16.830] What a great honor and pleasure
+- [00:24.620] to welcome you back to the Davos community.
+- [00:28.750] Just four days into your new mandate,
+- [00:33.780] we highly appreciate your presence with us today.
+- [00:39.000] We wish you all the best
+- [00:42.270] as you take on your critical work ahead.
+- [00:47.220] It's incredible, challenges we face today are monumental.
+- [00:53.490] The importance of American leadership
+- [00:56.460] and your personal leadership in this regard
+- [00:59.720] is fundamental and paramount.
+- [01:03.080] We are here to hear your mission and policies
+- [01:07.410] related to revitalizing the economy
+- [01:11.490] and addressing the global challenges.
+- [01:14.960] As you might expect, Mr. President,
+- [01:18.310] your return to office and your forthcoming policies
+- [01:23.370] have been a true focus of our discussions this week.
+- [01:28.730] So discussions among 3000 political and business leaders
+- [01:35.320] from over 30 countries who came together here in Davos.
+- [01:41.500] We look forward to hearing first from you
+- [01:45.110] and a follow up discussion with business leaders
+- [01:49.860] moderated by my colleague Bogey Brende.
+- [01:54.370] Ladies and gentlemen,
+- [01:56.230] the President of the United States,
+- [01:59.840] Donald J. Trump.
+- [02:08.990] THE PRESIDENT: Well, thank you very much, Klaus.
+- [02:10.750] And hello to everyone in beautiful Davos.
+- [02:14.250] This has been a truly historic week in the United States.
+- [02:18.470] Three days ago, I took the oath of office,
+- [02:21.030] and we began the golden age of America.
+- [02:25.820] The recent presidential election
+- [02:27.820] was won by millions of votes and all seven --
+- [02:30.600] every one of them -- all seven swing states.
+- [02:33.790] It was a massive mandate from the American people
+- [02:36.580] like hasn’t been seen in many years.
+- [02:39.160] And some of the political pundits,
+- [02:41.490] even some of my so-called enemies,
+- [02:43.660] said it was the most consequential election victory
+- [02:46.830] in 129 years. That’s quite nice.
+- [02:50.260] What the world has witnessed in the past 72 hours
+- [02:53.110] is nothing less than a revolution of common sense.
+- [02:56.930] Our country will soon be stronger, wealthier,
+- [02:59.350] and more united than ever before,
+- [03:01.150] and the entire planet will be more peaceful and prosperous
+- [03:04.810] as a result of this incredible momentum
+- [03:07.740] and what we’re doing and going to do.
+- [03:11.060] My administration is acting with unprecedented speed
+- [03:14.370] to fix the disasters we’ve inherited
+- [03:16.860] from a totally inept group of people
+- [03:19.650] and to solve every single crisis facing our country.
+- [03:23.360] This begins with confronting the economic chaos
+- [03:26.210] caused by the failed policies of the last administration.
+- [03:31.010] Over the past four years,
+- [03:32.250] our government racked up $8 trillion in wasteful deficit
+- [03:36.170] spending and inflicted nation- wrecking energy restrictions,
+- [03:40.200] crippling regulations, and hidden taxes like never before.
+- [03:45.400] The result is the worst inflation crisis
+- [03:47.760] in modern history
+- [03:48.980] and sky-high interest rates for our citizens
+- [03:51.480] and even throughout the world.
+- [03:54.320] Food prices and the price of almost every other thing
+- [03:57.500] known to mankind went through the roof.
+- [04:01.020] President Biden totally lost control
+- [04:03.090] of what was going on in our country
+- [04:04.960] but, in particular, with our high-inflation economy
+- [04:08.040] and at our border.
+- [04:10.230] Because of these ruinous policies, total government
+- [04:12.810] spending this year is $1.5 trillion
+- [04:15.920] higher than was projected to occur
+- [04:18.490] when I left office just four years ago.
+- [04:22.040] Likewise, the cost of servicing the debt
+- [04:24.870] is more than 230 percent higher than was projected in 2020.
+- [04:30.370] The inflation rate we are inheriting remains
+- [04:33.200] 50 percent higher than the historic target.
+- [04:35.720] It was the highest inflation
+- [04:37.060] probably in the history of our country.
+- [04:40.270] That’s why, from the moment I took office,
+- [04:42.990] I’ve taken rapid action to reverse each
+- [04:45.340] and every one of these radical left policies
+- [04:47.510] that created this calamity -- in particular,
+- [04:50.680] with immigration, crime, and inflation.
+- [04:53.680] On day one, I signed an executive order
+- [04:55.770] directing every member of my Cabinet to marshal
+- [04:58.480] all powers at their disposal to defeat inflation
+- [05:02.630] and reduce the cost of daily life.
+- [05:05.470] I imposed a federal hiring freeze,
+- [05:07.890] a federal regulation freeze, a foreign aid freeze,
+- [05:12.170] and I created the new Department of Government Efficiency.
+- [05:17.190] I terminated the ridiculous and incredibly wasteful
+- [05:20.160] Green New Deal -- I call it the “Green New Scam”;
+- [05:24.240] withdrew from the one-sided Paris Climate Accord;
+- [05:28.150] and ended the insane and costly electric vehicle mandate.
+- [05:32.650] We’re going to let people buy the car they want to buy.
+- [05:35.590] I declared a national em- -- energy emergency --
+- [05:39.100] and it’s so important -- national energy emergency
+- [05:42.420] to unlock the liquid gold under our feet
+- [05:45.820] and pave the way for rapid approvals
+- [05:48.230] of new energy infrastructure.
+- [05:50.740] The United States has the largest amount of oil
+- [05:53.060] and gas of any country on Earth, and we’re going to use it.
+- [05:57.210] Not only will this reduce
+- [05:58.900] the cost of virtually all goods and services,
+- [06:01.800] it will make the United States a manufacturing superpower
+- [06:05.810] and the world capital of artificial intelligence
+- [06:09.400] and crypto.
+- [06:11.100] My administration has also begun the largest
+- [06:14.010] deregulation campaign in history,
+- [06:16.610] far exceeding even the record- setting efforts of my last term.
+- [06:21.780] In total, the Biden administration imposed $50,000
+- [06:25.710] in additional regulatory
+- [06:27.310] costs on the average American household
+- [06:30.610] over the last four years.
+- [06:32.740] I have promised to eliminate 10 old regulations
+- [06:36.130] for every new regulation,
+- [06:38.550] which will soon put many thousands of dollars
+- [06:40.990] back in the pockets of American families.
+- [06:44.260] To further unleash our economy,
+- [06:46.040] our majorities in the House and Senate --
+- [06:48.920] which we also took, along with the presidency --
+- [06:52.550] are going to pass the largest tax cut in American history,
+- [06:55.820] including massive tax cuts for workers and family
+- [06:59.310] and big tax cuts for domestic producers and manufacturers.
+- [07:04.190] And we’re working with the Democrats
+- [07:06.270] on getting an extension of the original Trump tax cuts,
+- [07:09.660] as you probably know by just reading any paper.
+- [07:14.300] My message to every business in the world is very simple:
+- [07:17.740] Come make your product in America,
+- [07:19.770] and we will give you among the lowest taxes
+- [07:22.580] of any nation on Earth.
+- [07:25.020] We’re bringing them down very substantially,
+- [07:26.990] even from the original Trump tax cuts.
+- [07:30.070] But if you don’t make your product in America,
+- [07:32.440] which is your prerogative, then, very simply,
+- [07:35.640] you will have to pay a tariff --
+- [07:38.250] differing amounts, but a tariff --
+- [07:40.030] which will direct hundreds of billions of dollars
+- [07:42.510] and even trillions of dollars into our Treasury
+- [07:45.340] to strengthen our economy and pay down debt.
+- [07:48.460] Under the Trump administration,
+- [07:50.340] there will be no better place on Earth
+- [07:52.110] to create jobs, build factories,
+- [07:54.020] or grow a company than right here in the good old USA.
+- [07:58.320] Already, American’s economic --
+- [08:00.440] and you can see this, I think, maybe even in your --
+- [08:03.780] in your wonderful, wonderful room
+- [08:06.070] that you’re all gathered together --
+- [08:07.450] so many of my friends --
+- [08:08.660] but, Americans, the economic confidence
+- [08:11.270] is soaring like we haven’t seen in many,
+- [08:14.290] many decades, maybe not at all.
+- [08:16.630] Upon my election, it was just announced
+- [08:19.220] that small-business optimism skyrocketed
+- [08:22.110] by 41 points in a single month. That’s the highest ever.
+- [08:26.360] There’s never been anything like that.
+- [08:28.350] SoftBank has announced between a $100
+- [08:30.890] and $200 billion investment in the U.S. economy
+- [08:34.430] because of the election result.
+- [08:36.000] And just two days ago, Oracle, SoftBank,
+- [08:38.870] and OpenAI announced a $500 billion
+- [08:42.250] investment in AI infrastructure.
+- [08:45.290] Other companies, likewise, have announced billions
+- [08:48.540] and billions and billions -- adding up to trillions --
+- [08:51.740] of investment in America, in the United States.
+- [08:55.930] And it’s also reported today in the papers that Saudi Arabia
+- [09:00.370] will be investing at least $600 billion in America.
+- [09:03.630] But I’ll be asking the crown prince, who’s a fantastic guy,
+- [09:06.600] to round it out to around $1 trillion.
+- [09:09.290] I think they’ll do that because we’ve been very good to them.
+- [09:13.010] And I’m also going to ask Saudi Arabia and OPEC
+- [09:16.190] to bring down the cost of oil.
+- [09:17.910] You got to bring it down, which, frankly,
+- [09:20.530] I’m surprised they didn’t do before the election.
+- [09:22.680] That didn’t show a lot of love by them not doing it.
+- [09:25.840] I was a little surprised by that.
+- [09:27.980] If the price came down,
+- [09:29.230] the Russia-Ukraine war would end immediately.
+- [09:32.380] Right now, the price is high enough
+- [09:34.020] that that war will continue.
+- [09:35.380] You got to bring down the oil price;
+- [09:36.850] you’re going to end that war.
+- [09:38.570] They should have done it long ago.
+- [09:40.090] They’re very responsible, actually, to a certain extent,
+- [09:43.630] for what’s taking place --
+- [09:44.950] millions of lives are being lost.
+- [09:47.660] With oil prices going down,
+- [09:49.250] I’ll demand that interest rates drop immediately.
+- [09:51.900] And, likewise, they should be dropping all over the world.
+- [09:54.630] Interest rates should follow us.
+- [09:56.930] All over, the progress that you’re seeing is happening
+- [10:00.960] because of our historic victory
+- [10:02.670] in a recent presidential election,
+- [10:05.080] one that has become quite well known throughout the world.
+- [10:08.720] I think a lot of things are happening to a lot of countries.
+- [10:11.520] They say that there’s light shining all over the world
+- [10:14.180] since the election.
+- [10:15.440] And even countries that we aren’t particularly friendly
+- [10:19.000] with are happy because they understand what --
+- [10:23.340] there is a future and th- -- how great the future will be.
+- [10:25.960] Under our leadership, America is back and open for business.
+- [10:29.960] And this week, I’m also taking swift action
+- [10:32.700] to stop the invasion at our southern border.
+- [10:35.660] They allowed people to come in at levels
+- [10:37.830] that nobody has ever seen before.
+- [10:39.440] It was ridiculous. I decided a --
+- [10:42.430] and declared to dec- -- to -- to do --
+- [10:45.700] and very, very importantly --
+- [10:47.210] a national emergency on our border;
+- [10:49.280] immediately halted all entry of illegal border crossers,
+- [10:53.230] of which there were many;
+- [10:54.600] and began properly returning the illegal trespassers
+- [10:57.850] back to the place from which they came.
+- [11:00.150] That action, as you’ve probably seen,
+- [11:02.150] has already started very strongly.
+- [11:04.320] I have deployed active-duty U.S.
+- [11:07.160] military and National Guard troops to the border to assist
+- [11:10.810] in repelling the invasion. It was really an invasion.
+- [11:14.840] We will not allow our territory to be violated.
+- [11:17.800] After four long years,
+- [11:20.200] the United States is strong and sovereign
+- [11:23.380] and a beautiful nation once again.
+- [11:25.490] It’s a strong, sovereign nation.
+- [11:28.740] In addition, I’m pleased to report
+- [11:30.350] that America is also a free nation once again.
+- [11:33.700] On day one, I signed an executive order
+- [11:35.940] to stop all government censorship.
+- [11:38.440] No longer will our government label
+- [11:40.400] the speech of our own citizens
+- [11:42.420] as misinformation or disinformation,
+- [11:45.980] which are the favorite words of censors
+- [11:48.330] and those who wish to stop the free exchange of ideas
+- [11:52.170] and, frankly, progress.
+- [11:54.220] We have saved free speech in America,
+- [11:57.470] and we’ve saved it strongly.
+- [11:59.480] With another historic executive order this week,
+- [12:01.950] I also ended the weaponization of law enforcement
+- [12:05.100] against the American people --
+- [12:06.640] and, frankly, against politicians --
+- [12:08.960] and restored the fair, equal, and impartial rule of law.
+- [12:13.460] My administration has taken action
+- [12:15.500] to abolish all discriminatory diversity,
+- [12:18.870] equity, and inclusion nonsense --
+- [12:21.140] and these are policies that were absolute nonsense --
+- [12:24.720] throughout the government and the private sector.
+- [12:27.650] With the recent, yet somewhat unexpected,
+- [12:29.870] great Supreme Court decision just made,
+- [12:33.180] America will once again become a merit-based country.
+- [12:37.930] You have to hear that word: merit-based country.
+- [12:42.730] And I’ve made it official --
+- [12:44.640] an official policy of the United States
+- [12:47.350] that there are only two genders, male and female,
+- [12:52.170] and we will have no men participating in women’s sports,
+- [12:56.940] and transgender operations,
+- [12:58.950] which became the rage, will occur very rarely.
+- [13:02.980] Finally, as we restore common sense in America,
+- [13:05.690] we’re moving quickly to bring back strength
+- [13:08.370] and peace and stability abroad.
+- [13:11.170] I’m also going to ask all NATO nations to increase defense
+- [13:14.540] spending to 5 percent of GDP,
+- [13:17.250] which is what it should have been years ago --
+- [13:20.060] it was only at 2 percent,
+- [13:21.680] and most nations didn’t pay until I came along;
+- [13:24.520] I insisted that they pay, and they did --
+- [13:27.150] because the United States
+- [13:28.490] was really paying the difference at that time,
+- [13:30.590] and it’s -- it was unfair to the United States.
+- [13:33.050] But many, many things have been unfair
+- [13:35.260] for many years to the United States.
+- [13:38.280] Before even taking office,
+- [13:39.950] my team negotiated a ceasefire agreement in the Middle East,
+- [13:43.310] which wouldn’t have happened without us,
+- [13:45.820] as I think most of the people in the room know.
+- [13:48.780] Earlier this week,
+- [13:50.040] the hostages began to return to their families.
+- [13:53.590] They are returning, and it’s a beautiful sight.
+- [13:56.520] And they’ll be coming in more and more.
+- [13:58.180] They started coming back on Sunday.
+- [14:01.090] Our efforts to secure a peace settlement
+- [14:02.960] between Russia and Ukraine are now, hopefully, underway.
+- [14:07.010] It’s so important to get that done.
+- [14:08.620] That is an absolute killing field.
+- [14:11.580] Millions of soldiers are being killed.
+- [14:14.370] Nobody has seen anything like it since World War II.
+- [14:17.540] They’re laying dead all over the flat fields.
+- [14:20.080] It’s a flat field -- farmland,
+- [14:22.360] and there’s millions of Russians and millions of Ukrainians.
+- [14:26.910] Nobody’s seen anything like it since World War II.
+- [14:29.650] It’s time to end it.
+- [14:31.140] And here in America, we have big events coming up.
+- [14:33.980] Next year we have the 250th anniversary
+- [14:37.660] of America’s founding.
+- [14:38.940] I’m so honored to be president during that.
+- [14:41.070] That’s been a big event.
+- [14:42.560] They’ve been talking about it for 10 years.
+- [14:44.970] We also have the World Cup, and I understand Gianni --
+- [14:49.200] Gianni is in the room -- Infantino.
+- [14:52.160] He was very instrumental in helping us get it --
+- [14:54.940] he’s there with you someplace, I think --
+- [14:57.630] and I want to thank him for that.
+- [14:59.100] And then we have the Olympics coming up,
+- [15:01.160] which I was instrumental in getting, also,
+- [15:04.690] in my first term.
+- [15:05.960] And who would have known that by skipping a term,
+- [15:08.070] I would get the Olympics? I was upset.
+- [15:09.930] I said, “You know, I got the Olympics to come
+- [15:12.210] and I won’t be president.”
+- [15:13.410] But it turned out, through a stroke of luck
+- [15:15.860] or whatever you might call it,
+- [15:17.200] that I’m going to be president during the World Cup
+- [15:19.630] and the Olympics and the 250th anniversary.
+- [15:23.480] So, that’s going to be three big events.
+- [15:26.310] And we’ve accomplished more in less than four days --
+- [15:29.130] we have really been working -- four days --
+- [15:31.770] than other administrations have accomplished in four years,
+- [15:35.460] and we’re just getting started.
+- [15:36.880] It’s really an amazing thing to see,
+- [15:38.640] and the spirit and the light over our country
+- [15:41.110] has been incredible.
+- [15:42.350] Under the last administration, our nation has suffered greatly,
+- [15:46.740] but we are going to bring it back
+- [15:48.400] and make it greater, bigger, stronger,
+- [15:51.680] better than ever before.
+- [15:53.620] I want to thank everybody for being with you.
+- [15:56.000] I would have been there myself,
+- [15:57.200] except the inauguration was two days ago.
+- [15:59.430] I thought it might be a little bit quick
+- [16:01.300] to make it the first stop, but we’ll get there one day.
+- [16:04.230] We hope to get there.
+- [16:05.470] But I -- I do appreciate --
+- [16:07.160] I heard the audience is fantastic,
+- [16:09.120] and many of my friends are in the audience.
+- [16:10.930] And I will be taking questions now
+- [16:13.450] from some very distinguished people.
+- [16:15.510] Thank you all very much.
+- [16:17.190] (Applause.)
+- [16:20.510] MR. BRENDE: Thank you.
+- [16:21.760] Thank you very much, Mr. President,
+- [16:24.210] for that very powerful speech,
+- [16:27.040] and I think you could hear the applause
+- [16:29.560] all the way from Davos to the White House.
+- [16:32.560] But next year, it will be even better,
+- [16:34.200] because then you can get the applause here in Davos.
+- [16:36.940] So, we wish you welcome to our village next year.
+- [16:39.600] We hope to see you.
+- [16:40.930] THE PRESIDENT: Thank you very much.
+- [16:42.950] MR. BRENDE: So, we also know, Mr. President,
+- [16:45.990] that you open up for interaction here.
+- [16:48.680] We have a great panel with some
+- [16:50.360] of the most distinguished businesspeople in the world.
+- [16:54.330] Let me start with someone that you know really well,
+- [16:58.270] that I think is almost a neighbor of you in Mal-a-
+- [17:02.040] -- in -- in Florida, Mr. Steve Schwarzman,
+- [17:07.560] chairman, CEO, and cofounder of Blackstone Group.
+- [17:11.080] So, Steve, floor is yours.
+- [17:15.570] MR. SCHWARZMAN: Well, Mr. President --
+- [17:17.100] THE PRESIDENT: Hello, Steve.
+- [17:18.580] MR. SCHWARZMAN: -- I’m sure the crown prince of Saudi Arabia
+- [17:21.240] will be really glad you gave this speech today.
+- [17:24.500] (Laughter.)
+- [17:25.980] THE PRESIDENT: I hope so.
+- [17:30.490] MR. SCHWARZMAN: You’ve had the busiest four days
+- [17:34.210] that anybody can imagine, and congratulations for that.
+- [17:41.080] And my question is --
+- [17:44.260] is about some of the things I’ve observed here at Davos.
+- [17:49.370] It’s a terrific forum.
+- [17:51.740] I’ve met lots of people, as usual.
+- [17:55.680] I think I’ve been here 30 years.
+- [17:58.190] And a lot of the European businesspeople
+- [18:03.690] have expressed enormous frustration
+- [18:07.460] with the regulatory regime in the EU,
+- [18:12.790] and they attribute slower growth rates here
+- [18:17.970] because of numerous factors,
+- [18:20.420] but especially because of regulations.
+- [18:24.350] And you’ve taken a completely different approach in this area.
+- [18:31.850] And if you could explain the theory of what you’re doing,
+- [18:37.490] how you’re going to do it,
+- [18:39.580] and what you expect the outcome to be, I’d appreciate it.
+- [18:45.630] THE PRESIDENT: Well, thank you very much.
+- [18:46.900] And congratulations, Steve -- you’re a friend of mine --
+- [18:49.270] but on a great career.
+- [18:50.560] You have had an amazing career and continues.
+- [18:52.990] So, I just want to congratulate you.
+- [18:54.610] Very inspirational to a lot of people.
+- [18:57.680] I want to talk about the EU,
+- [19:00.820] because you mentioned specifically that
+- [19:02.520] I’ve also had a lot of friends and leaders of countries.
+- [19:06.090] I’ve gotten to know them all my first term
+- [19:07.730] and a little bit during this period of four years
+- [19:11.420] and know them well, like them a lot,
+- [19:13.870] but they’re very frustrated
+- [19:15.150] because of the time everything seems to take to get approved --
+- [19:19.720] environmental impact statements for things
+- [19:22.080] that you shouldn’t even have to do that,
+- [19:23.900] and many, many other ways that it takes.
+- [19:26.750] And I’m going to give you a quick little example.
+- [19:28.590] I w- -- in the private life, my beautiful private life --
+- [19:31.600] before I had all these things happening --
+- [19:33.950] the world is a little different --
+- [19:35.780] I had a nice, simple life. You knew that.
+- [19:38.050] But when I had that simple life, I did projects,
+- [19:42.180] and I had a big project in Ireland,
+- [19:44.620] and it had to get approval on something
+- [19:47.950] that would have made it even better.
+- [19:50.250] And I got the approval from Ireland in a period of a week,
+- [19:54.680] and it was a very, very, very efficient, good approval.
+- [19:59.180] And they informed me, though,
+- [20:00.530] “The problem is you’re going to have to get it from the EU,
+- [20:03.020] and we think that’ll take five to six years.”
+- [20:05.990] And I said, “You have to be kidding.”
+- [20:08.510] And this was before politics.
+- [20:11.870] And I said, “Wait a minute. It’s not that important.
+- [20:14.200] I don’t want to go five or six years.”
+- [20:15.540] But it would have been a big investment.
+- [20:17.000] It would have been nice,
+- [20:18.210] and it would have been good for the project.
+- [20:20.920] And I sent the people to the EU
+- [20:23.400] to see if they could speed it up,
+- [20:24.900] and basically it was a five- or six-year wait
+- [20:27.230] just to get a simple approval that Ireland gave me
+- [20:30.420] in a period of, literally, not much more than a week.
+- [20:34.110] And I realized right then --
+- [20:35.350] that was the first time I really was involved with the EU,
+- [20:39.000] but I realized right then, that’s a problem,
+- [20:42.020] and I didn’t even bother applying to do it,
+- [20:45.730] and -- or if I did, I pulled it very quickly.
+- [20:48.700] I don’t wa- -- I have to be very accurate,
+- [20:50.340] because I don’t want to be criticized.
+- [20:52.330] “He did apply, actually.” No, I want to be very accurate.
+- [20:55.880] So, I don’t think I did,
+- [20:57.660] but if I did, I pulled it very quickly.
+- [20:59.090] It was just something you --
+- [21:00.540] you couldn’t wait five years or six years to get an approval.
+- [21:03.260] So, a lot of -- in a very big business sense,
+- [21:07.020] a lot of people are -- are claiming that’s the problem.
+- [21:09.820] From the standpoint of America, the EU treats us very,
+- [21:14.360] very unfairly, very badly.
+- [21:16.940] They have a large tax that we know about and --
+- [21:22.200] a VAT tax -- and it’s a very substantial one.
+- [21:25.940] They don’t take our far- -- essentially,
+- [21:27.760] don’t take our farm products and they don’t take our cars.
+- [21:30.380] Yet, they send cars to us by the millions.
+- [21:34.590] They put tariffs on things that we want to do,
+- [21:38.130] like, for instance, I think they actually --
+- [21:41.170] in terms of these are noneconomic
+- [21:44.460] or nonmonetary tariffs, and -- and those are very bad,
+- [21:48.580] and they make it very difficult to bring products into Europe,
+- [21:52.220] and yet they expect to be selling
+- [21:54.050] and they do sell their products in the United States.
+- [21:55.950] So, we have, you know,
+- [21:57.360] hundreds of billions of dollars of deficits with the EU,
+- [22:01.290] and nobody is happy with it.
+- [22:02.560] And we’re going to do something about it,
+- [22:03.980] but nobody is happy with it.
+- [22:05.200] So, I think the EU has to speed up their process.
+- [22:09.040] Friends of mine that are in some of the nations
+- [22:12.310] within the EU, great people, they --
+- [22:14.930] they want to be able to compete better,
+- [22:17.220] and you can’t compete when you can’t get --
+- [22:20.150] go through the approval process fast.
+- [22:22.060] There’s no reason why it can’t go faster.
+- [22:24.410] So, you know, I’m -- I’m trying to be constructive,
+- [22:27.700] because I love Europe. I love the countries of Europe.
+- [22:32.080] But the process is a very cumbersome one,
+- [22:35.260] and th- -- and they do treat the United States of America
+- [22:38.580] very, very unfairly with the VAT taxes
+- [22:42.430] and all of the other taxes they impose.
+- [22:45.750] One other -- just to finish up,
+- [22:47.140] I got a call from the head of a major airline,
+- [22:49.960] one of the biggest airlines in the world.
+- [22:51.770] And he said, “Sir, could you help us?”
+- [22:54.460] “What?” “Landing in Europe is brutal.
+- [22:57.230] They charge us fees for everything, and it’s so unfair.”
+- [23:01.220] I said, “How does it compare to China?”
+- [23:03.890] He said, “It’s -- it’s much worse.”
+- [23:07.240] And the other thing, as you know,
+- [23:09.260] they took court cases with Apple,
+- [23:13.110] and they supposedly won a case that most people
+- [23:16.960] didn’t think was much of a case.
+- [23:18.550] They won $15 or $16 billion from Apple.
+- [23:21.600] They won billions from Google.
+- [23:23.750] I think they’re after Facebook for billions and billions.
+- [23:26.410] These are American companies. Whether you like them or not,
+- [23:28.810] they’re -- they’re American companies,
+- [23:30.330] and they shouldn’t be doing that.
+- [23:32.690] And that’s -- as far as I’m concerned,
+- [23:35.030] it’s a form of taxation.
+- [23:36.370] So, we have some very big complaints with the EU.
+- [23:40.990] Thank you. MR. BRENDE: Tha- --
+- [23:45.020] thank you very much, Mr. President.
+- [23:47.280] We’ll now go to one of your friends
+- [23:51.060] in the EU, Patrick Pouyanné.
+- [23:54.250] He’s the chairman and CEO of TotalEnergies.
+- [23:58.260] I guess you have a question ready, Patrick,
+- [24:01.930] for the president.
+- [24:04.020] MR. POUYANNÉ: Mr. President, as we understand,
+- [24:06.700] energy is at the top of your agenda,
+- [24:08.900] and it’s an honor for me
+- [24:10.150] to represent the energy industry tonight in this panel.
+- [24:13.550] TotalEnergies is indeed the fourth largest oil
+- [24:15.990] and gas and electricity company in the world.
+- [24:18.920] I will not ask you a question about the oil price.
+- [24:21.310] It’s quite clear what you expect from us.
+- [24:23.880] I will more go to gas more.
+- [24:26.010] And we, our company, is the largest,
+- [24:30.170] number one exporter LNG from the U.S. company.
+- [24:36.510] We are a strong contributor to and we invest in mammoth
+- [24:41.640] LNG projects in Texas, $20 billion.
+- [24:44.380] It’s far from $200, but it’s $20 billion.
+- [24:47.330] And we contribute with that to security of supply to Europe
+- [24:52.090] as we export this LNG to Europe.
+- [24:54.570] Some experts fear that if there are too many projects
+- [24:58.890] developed in the U.S. on LNG, this could have an inflat- --
+- [25:02.910] inflationary impact on the U.S. domestic gas price,
+- [25:07.520] and they recommend a pause on these projects.
+- [25:11.640] I would ask you the following question:
+- [25:13.230] What are your views on --
+- [25:14.920] about such a pause on investments on LNG in the U.S.?
+- [25:19.220] What would happen if you would observe
+- [25:22.260] an increased domestic gas price because of these exports?
+- [25:26.460] And final question, which is important for Europe:
+- [25:30.340] Would you agree to guarantee security of supplies of U.S.
+- [25:33.880] LNG to Europe?
+- [25:36.740] THE PRESIDENT: Well, on the last part of your question,
+- [25:38.320] yes, I would.
+- [25:39.540] I would make sure that you get it.
+- [25:41.270] If we make a deal, we make a deal; you’ll get it.
+- [25:43.530] Because a lot of people do have that problem.
+- [25:45.220] They make a deal, and then it can’t get supplied
+- [25:47.010] because of war-type problems and other problems.
+- [25:50.420] So, we would absolutely do that.
+- [25:53.170] LNG is very interesting,
+- [25:54.490] because when I took office for the first term,
+- [25:57.250] one of the first things I looked at was two --
+- [26:00.610] there were two very massive plants in Louisiana,
+- [26:04.460] a state that has been very good to me.
+- [26:06.090] I won it by many, many points, and
+- [26:08.990] I felt strongly indebted to it, actually.
+- [26:11.540] And they said there are two plants
+- [26:12.960] that have been under environmental consideration
+- [26:15.780] for more than 10 years, and they were costing --
+- [26:19.180] as you say, you know how expensive those plants are --
+- [26:21.430] but they were costing like $12 billion
+- [26:23.810] and, I think, $14 or $15 billion.
+- [26:26.320] But they couldn’t get their permits.
+- [26:27.710] It was -- they were in review for years --
+- [26:31.140] many, many years -- like a decade or more.
+- [26:35.440] And I said, “So ridiculous.” I know so much about that,
+- [26:38.370] because in the construction industry,
+- [26:40.050] I had to go through it too,
+- [26:41.390] but I got good at it after a while.
+- [26:43.650] But I -- I went -- I saw the projects,
+- [26:46.650] and you’re talking about a total investment of $25
+- [26:50.500] to $30 billion,
+- [26:51.760] and it looked like it was going to end.
+- [26:53.200] They couldn’t get their permits,
+- [26:55.110] and I got them done in less than a week.
+- [26:58.270] It was done, completed.
+- [26:59.580] In fact, when they called them to announce that it was done,
+- [27:03.020] the countries -- largely countries --
+- [27:06.520] Japan was involved and -- and another country
+- [27:08.870] and some very big investors -- they couldn’t believe it.
+- [27:11.860] They actually couldn’t believe it.
+- [27:13.350] And I said, “Just do yourself one favor.
+- [27:15.500] Don’t pay any consultants,
+- [27:16.920] because the only one that got it done was me.”
+- [27:18.890] I got it done because it was the right thing to do for the U.S.
+- [27:21.410] and for the world,
+- [27:22.760] but the consultants had nothing to do with it, you know?
+- [27:24.990] The consultants go in and they say,
+- [27:26.380] “Give us millions of dollars because Trump did it.”
+- [27:29.130] Nobody called me about it.
+- [27:30.370] I just heard it was a problem for years,
+- [27:32.340] and I got it done
+- [27:33.570] because it was the right thing to do for the U.S.
+- [27:35.560] and the right thing to do for beyond.
+- [27:37.720] It had to do with energy -- very important.
+- [27:39.720] So, I think it’s very important. I think the -- the -- you know,
+- [27:43.180] I disagree with one. I think the more that you do,
+- [27:45.680] the lower the price is going to go.
+- [27:48.170] And what I’d like to see is rapid approvals.
+- [27:50.830] We’re going to give very rapid approvals in the United States,
+- [27:53.320] like with the AI plants, talking to --
+- [27:55.850] many people want to build them.
+- [27:58.180] That’s going to be a very big thing.
+- [28:00.780] We’re going to build electric generating facilities --
+- [28:04.200] they are going to build.
+- [28:05.500] I’m going to get them the approval.
+- [28:07.090] Under emergency declaration,
+- [28:09.040] I can get the approvals done myself
+- [28:11.370] without having to go through years of waiting.
+- [28:13.780] And the big problem is we need double the energy
+- [28:16.180] we currently have in the United States --
+- [28:17.860] can you imagine? --
+- [28:19.100] for AI to really be as big as we want to have it.
+- [28:23.350] Because it’s a very competitive --
+- [28:24.890] it will be very competitive with China and others.
+- [28:27.560] So, I’m going to give emergency declarations
+- [28:29.900] so that they can start building them almost immediately.
+- [28:33.090] And I’m -- I’m -- I think it was largely my idea,
+- [28:36.120] because nobody thought this was possible.
+- [28:38.000] It wasn’t that they were not smart,
+- [28:39.580] because they’re the smartest,
+- [28:41.780] but I told them that what I want you to do
+- [28:44.300] is build your electric generating plant
+- [28:46.320] right next to your plant
+- [28:47.620] as a separate building, connected.
+- [28:49.940] And they said, “Wow, you’re kidding.”
+- [28:52.230] And I said, “No, no. I’m not kidding.”
+- [28:54.570] You don’t have to hook into the grid,
+- [28:56.280] which is old and, you know, could be taken out.
+- [28:59.050] If it’s taken out,
+- [29:00.300] they wouldn’t have any way to get any electricity.
+- [29:05.210] So, we are going to allow them to go on a very rapid bas- --
+- [29:10.380] basis to build their plant --
+- [29:11.930] build the electric generating plant.
+- [29:13.750] They can fuel it with anything they want,
+- [29:16.470] and they may have coal as a backup.
+- [29:18.710] Good, clean coal.
+- [29:19.960] You know, if there were a problem with a --
+- [29:22.650] with a pipe coming in -- as an example,
+- [29:24.650] you’re going with gas -- oil or gas --
+- [29:26.830] and a pipe gets blown up or, for some reason,
+- [29:30.120] doesn’t work, there are some companies in the U.S.
+- [29:33.130] that have coal sitting right by the plant
+- [29:38.360] so that if there’s an emergency,
+- [29:40.020] they can go to that short-term basis
+- [29:42.180] and use our very clean coal.
+- [29:44.720] So, that’s something else that a lot of people
+- [29:46.370] didn’t even know about. But nothing can destroy coal --
+- [29:49.880] not the weather, not a bomb -- nothing.
+- [29:52.800] It might make it a little smaller,
+- [29:54.920] might make it a little different shape.
+- [29:57.890] But coal is very strong as a backup.
+- [30:00.120] It’s a great backup to have that facility,
+- [30:02.120] and it wouldn’t cost much more -- more money.
+- [30:04.590] And we have more coal than anybody.
+- [30:06.710] We also have more oil and gas than anybody.
+- [30:09.190] So, we’re going to make it
+- [30:10.460] so that the plants will have their own electric
+- [30:12.770] generating facilities attached right to their plant.
+- [30:16.430] They don’t have to worry about a utility.
+- [30:18.080] They don’t have to worry about anything.
+- [30:19.410] And we’re going to get very rapid approvals.
+- [30:23.910] MR. BRENDE: Thank you.
+- [30:25.220] Thank you so much, Mr. President.
+- [30:26.730] We’ll now go to another CEO that you know very well:
+- [30:31.510] Brian Moynihan, the CEO and chair of Bank of America.
+- [30:37.080] MR. MOYNIHAN: Good afternoon, Mr. President,
+- [30:38.450] and congratulations --
+- [30:39.990] an obviously eventful week for you and your family.
+- [30:43.100] If you remember, five years ago, you came here
+- [30:45.020] and we walked among 150 CEOs from all over the world,
+- [30:48.190] and you engaged with them about your policies
+- [30:51.080] and your procedures.
+- [30:52.780] This year, you’re not here. And yet this week was eventful,
+- [30:55.920] from the orders that you mentioned earlier --
+- [30:57.430] literally a wave of orders coming out on immigration,
+- [31:00.610] on trade, and many other matters.
+- [31:03.740] And so, as a representative of the United States here,
+- [31:08.180] we got a lot of questions about what does all this mean
+- [31:10.530] and how would the president square this
+- [31:12.960] with his clear focus on growth, prosperity, market gro-
+- [31:17.170] -- stock market growth, a good bond market,
+- [31:20.040] and bringing down prices.
+- [31:21.350] So, how do you think about the impact of all these orders
+- [31:24.140] and how fast they come out
+- [31:25.610] and how you’re going to balance them with that scorecard
+- [31:28.220] of being successful on both contan- --
+- [31:30.640] continuing GDP growth, bringing down inflation,
+- [31:33.240] and also having a good stock price appreciation
+- [31:35.830] for the American citizen?
+- [31:37.350] THE PRESIDENT: Well, I think it’s going to actually
+- [31:38.630] bring down inflation. It’s going to bring up jobs.
+- [31:41.390] We’re going to have a lot of jobs.
+- [31:42.830] We’re going to have a lot of companies moving in.
+- [31:44.490] You know, Brian, we’re at 21 percent.
+- [31:46.880] It was at 40 percent,
+- [31:48.180] and I got it down to 21 percent -- the corporate tax.
+- [31:51.520] And it was -- actually, if you look at state and city,
+- [31:53.800] it was, in many cases, much higher than 40 percent.
+- [31:56.130] I got it down to 21 percent.
+- [31:58.460] And now we’re going to bring it down from 21 to 15 percent if --
+- [32:02.030] this is a big “if” --
+- [32:03.300] if you make your product in the U.S.
+- [32:04.780] So, we’re going to have the lowest --
+- [32:06.150] just about the lowest rate.
+- [32:07.360] It will be -- the 21 is on the low side worldwide;
+- [32:11.300] the 15 is about as low as it gets,
+- [32:14.170] and by far the lowest of a large country --
+- [32:16.230] a large, you know, rich, powerful country --
+- [32:18.990] by far, not even a contest.
+- [32:20.460] So, we’re going to bring it down to 15 percent
+- [32:23.080] if you make your product in the USA.
+- [32:26.300] So, that’s going to create a -- a tremendous buzz.
+- [32:28.870] We’re also probably going back to the one-year deduction,
+- [32:32.090] where we deduct -- you know, we --
+- [32:34.000] we did that originally, and that was amazing what --
+- [32:37.620] the impact that that had, the one-year deduction,
+- [32:40.460] which built up over a period of time and then it expires.
+- [32:44.920] But we’re going to go back to that
+- [32:46.270] when we do the renewal of the Trump tax plan.
+- [32:49.150] We have to get Democrats to approve it.
+- [32:50.920] But, you know, if the Democrats didn’t approve it,
+- [32:54.300] I don’t know how they can survive with
+- [32:55.770] about a 45 percent tax increase, because that’s what it would be.
+- [32:59.330] And so, I think they’re going to b- -- w-
+- [33:01.350] -- we’ve been working along with them pretty well.
+- [33:04.420] I think it’s very hard for a political group to say,
+- [33:06.510] “Let’s charge people 45 percent more.”
+- [33:08.740] So, I think we’re in good shape.
+- [33:10.150] But we’re actually doing a reduction for business
+- [33:12.570] and small businesses, where you’re going to b- --
+- [33:15.570] bring it down to 15 percent, which is really something.
+- [33:19.990] And, by the way, speaking of you --
+- [33:21.810] and you’ve done a fantastic job --
+- [33:23.870] but I hope you start opening your bank to conservatives,
+- [33:26.490] because many conservatives complain that the banks
+- [33:29.440] are not allowing them to do business within the bank,
+- [33:32.180] and that included a place called Bank of America.
+- [33:35.060] This conserve- -- they don’t take conservative business.
+- [33:38.130] And I don’t know if the regulators mandated
+- [33:40.240] that because of Biden or what, but you and Jamie and everybody,
+- [33:44.290] I hope you’re going to open your banks to conservatives,
+- [33:46.490] because what you’re doing is wrong.
+- [33:50.340] MR. MOYNIHAN: Mr. President --
+- [33:51.560] MR. BRENDE: (Inaudible.) MR. MOYNIHAN: --
+- [33:52.760] I’ll say that your friend Gianni was -- said hello --
+- [33:54.940] told me tell you hello,
+- [33:56.170] and we look forward to sponsoring the World Cup
+- [33:58.960] when it comes, both this summer for the club and next year.
+- [34:01.790] So, thank you for getting that for the United States.
+- [34:03.910] THE PRESIDENT: Thank you very much, Brian.
+- [34:06.740] MR. BRENDE: Thank you, Mr. President.
+- [34:07.970] We’ll now go to Ana Botín.
+- [34:10.780] She’s the executive chairman of Banco Santander,
+- [34:14.460] one of the big European banks and also in the U.S.
+- [34:18.290] So, Ana.
+- [34:20.400] MS. BOTÍN: Mr. President,
+- [34:21.620] congratulations on a historic victory.
+- [34:23.490] THE PRESIDENT: Thank you.
+- [34:24.700] MS. BOTÍN: I believe you don’t know me as well
+- [34:26.340] as my fellow panelists, so a few words.
+- [34:29.030] Santander is one of the largest banks in the world
+- [34:31.680] by number of customers, 170 million.
+- [34:35.150] That’s more than my friend Brian or my friend Jamie have.
+- [34:37.540] (Laughter.)
+- [34:38.820] THE PRESIDENT: Wow.
+- [34:40.470] MS. BOTÍN: And those -- (applause) --
+- [34:45.440] MR. MOYNIHAN: If they fix the regulation (inaudible).
+- [34:47.740] MS. BOTÍN: That’s coming. That’s coming.
+- [34:49.080] MR. BRENDE: That was cheeky. (Laughter.)
+- [34:50.940] MS. BOTÍN: We are --
+- [34:52.320] we are a big investor in the United States.
+- [34:54.240] We have many million customer, 12,000 employees.
+- [34:57.500] We’re one of the largest auto lenders,
+- [34:59.820] and we recently launched a fully digital bank called Openbank.
+- [35:04.290] We strongly believe banks have a pivotal role in the economy,
+- [35:08.200] and we can accelerate growth and help many more customers.
+- [35:11.820] That’s what we do in the United States.
+- [35:14.110] So, as Brian pointed out, we very much welcome your focus
+- [35:18.910] on deregulation and reducing bureaucracy.
+- [35:22.770] So, my question is:
+- [35:23.980] What are your priorities in this regard,
+- [35:26.800] and how fast is this going to happen?
+- [35:28.550] Thank you very much.
+- [35:29.780] THE PRESIDENT: Well, I think it’s going to --
+- [35:31.070] thank you and congratulations.
+- [35:32.430] I know very much about your bank,
+- [35:34.910] and you’ve done a fantastic job. Congratulations.
+- [35:38.650] We are going to move very quickly.
+- [35:41.050] We’ve moved very quickly.
+- [35:42.380] We’ve done things in the last three days
+- [35:44.980] that nobody thought were possible to do in years.
+- [35:48.220] And it’s all taken -- it’s all taken effect.
+- [35:52.060] It’s going to have a huge impact on the economy,
+- [35:53.960] a huge positive impact.
+- [35:55.330] Money was being wasted on crazy things.
+- [35:58.760] I mean, the Green New Deal was such a total disgrace --
+- [36:02.660] what -- what -- how that was perpetrated.
+- [36:04.840] And it was conceived of by people
+- [36:07.160] that were average students --
+- [36:08.980] less than average students, I might add --
+- [36:11.530] and never even took a course in energy or the environment.
+- [36:16.090] It was just a game.
+- [36:17.330] Remember, the world was going to end in 12 years? Remember that?
+- [36:20.520] Well, the 12 years has come and gone. It was going to end.
+- [36:22.900] It was going to all foam into earth.
+- [36:26.400] But, you know, the time has come.
+- [36:27.690] The -- these people -- and they -- they really --
+- [36:32.090] they really scared the Democrats large- --
+- [36:35.110] I can’t say the Republicans.
+- [36:36.710] Republicans maybe could have fought harder to stop it,
+- [36:39.830] but it’s been a tremendous waste of --
+- [36:42.190] a tremendous waste of money.
+- [36:43.590] You know, during my four years, we had the cleanest air,
+- [36:46.570] we had the cleanest water,
+- [36:47.890] and yet we had the most productive economy
+- [36:49.660] in the history of our country.
+- [36:50.920] We had the most productive economy.
+- [36:54.070] Until COVID came, we had the most productive
+- [36:56.340] in the history of our country, by far.
+- [36:58.720] And -- and actually, you could look worldwide, we -- we’re --
+- [37:03.310] we were beating everybody from China to everybody else.
+- [37:05.920] So -- and we think we really -- now, with what we have learned
+- [37:10.370] and all of the other things that have taken place,
+- [37:14.620] we think we can even far surpass that -- a- --
+- [37:17.380] actually, far, far surpass it. But we do --
+- [37:20.350] one thing we’re going to be demanding is we’re going to --
+- [37:22.520] be demanding respect from other nations.
+- [37:26.190] Canada. We have a tremendous deficit with Canada.
+- [37:28.720] We’re not going to have that anymore.
+- [37:30.240] We can’t do it. It’s -- it’s --
+- [37:31.870] I don’t know if it’s good for them.
+- [37:34.090] As you probably know, I say, “You can always become a state,
+- [37:37.380] and if you’re a state, we won’t have a deficit.
+- [37:39.570] We won’t have to tariff you, et cetera, et cetera.”
+- [37:41.610] But Canada has been very tough to deal with over the years,
+- [37:45.510] and it’s not fair that we should have a $200 billion
+- [37:48.130] or $250 billion deficit.
+- [37:51.270] We don’t need them to make our cars,
+- [37:53.020] and they make a lot of them.
+- [37:54.410] We don’t need their lumber because we have our own forests,
+- [37:57.110] et cetera, et cetera. We don’t need their oil and gas.
+- [37:59.470] We have our -- we have more than anybody.
+- [38:02.180] So, you know, just as an example, with Mexico --
+- [38:06.250] we’re dealing with Mexico, I think, very well.
+- [38:08.790] And we’re just -- you know, w- --
+- [38:10.900] we just want to be treated fairly with other nations,
+- [38:13.230] because there’s hardly a nation in the world --
+- [38:17.310] and I blame this on us,
+- [38:18.630] and I blame it on politicians that for some reason --
+- [38:23.350] and probably mostly it’s stupidity,
+- [38:25.350] but you could also say other reasons,
+- [38:27.880] but mostly stupidity --
+- [38:29.430] they’ve allowed other nations to take advantage of the U.S.
+- [38:32.930] And w- -- we can’t allow that to happen anymore.
+- [38:35.170] You know, we have debt.
+- [38:36.490] It’s a very small debt when you compare it to value --
+- [38:39.520] the value of the assets that we have,
+- [38:41.430] but we don’t want to do that.
+- [38:42.940] We want to just have debt be obliterated,
+- [38:46.590] and we’ll be able to do that fairly rapidly.
+- [38:49.690] And a lot of good things are going to happen.
+- [38:51.890] And -- and honestly,
+- [38:53.280] good things are going to happen for the world,
+- [38:54.830] and good things are going to happen for the people
+- [38:56.610] that are dealing with us -- allies and beyond allies.
+- [39:00.490] One thing -- very important --
+- [39:01.910] I really would like to be able to meet with President Putin
+- [39:05.600] soon and get that war end -- ended, and --
+- [39:07.610] and that’s not from the standpoint of economy
+- [39:09.950] or anything else.
+- [39:11.190] It’s from the standpoint of millions of lives
+- [39:13.760] are being wasted.
+- [39:15.010] Beautiful, young people are being shot in the battlefield.
+- [39:18.940] You know, the bullet -- a very flat land, as I said,
+- [39:22.030] and the bullet goes -- there’s no -- there’s no hiding.
+- [39:26.020] And a bullet -- the only thing going to stop the bullet
+- [39:27.930] is a human body. And you have to see --
+- [39:30.730] I’ve seen pictures of what’s taken place.
+- [39:32.810] It’s a carnage.
+- [39:34.050] And we really have to stop that war.
+- [39:36.350] That war is horrible.
+- [39:37.800] And I’m not talking economy, I’m not talking economics,
+- [39:40.500] I’m not talking about natural resource.
+- [39:42.860] I’m just talking about:
+- [39:44.830] There’s so many young people being killed in this war,
+- [39:47.920] and that’s not including the people that have been killed
+- [39:50.780] as the cities are being,
+- [39:52.540] you know, knocked down building by building.
+- [39:54.550] So, we really should get that stopped.
+- [39:57.530] Likewise, in the Middle East,
+- [39:59.250] I think we’ve made a lot of progress in the Middle East,
+- [40:01.420] and I think that’s going to --
+- [40:03.330] that’s going to come along pretty well.
+- [40:06.180] Thank you very much.
+- [40:07.470] MR. BRENDE: Thank you, Mr. President.
+- [40:08.670] We know that most consequential relationship in the world
+- [40:13.500] is between the U.S. and China.
+- [40:15.660] U.S., 28 percent of the global economy; China close to 20.
+- [40:20.380] That’s almost half of the global GDP.
+- [40:22.910] And we know that you called President Xi Jinping
+- [40:26.860] last Friday.
+- [40:28.770] We heard that you had a good discussion.
+- [40:30.910] How do you see the relationship between the U.S. and China
+- [40:34.550] in the next four years under your leadership?
+- [40:38.030] THE PRESIDENT: He called me. But I see it very good.
+- [40:42.190] I think that we’re going to have a very good relationship.
+- [40:47.280] All we want is fairness.
+- [40:48.520] We just want a level playing field.
+- [40:50.110] We don’t want to take advantage.
+- [40:51.450] We’ve been having massive deficits with China.
+- [40:56.000] Biden allowed it to get out of hand.
+- [40:57.590] He’s -- $1.1 trillion deficit.
+- [41:00.400] It’s ridiculous, and it’s just an unfair relationship.
+- [41:04.690] And we have to make it just fair.
+- [41:06.270] We don’t have to make it phenomenal.
+- [41:07.950] We have to make it a fair relationship.
+- [41:09.790] Right now, it’s not a fair relationship.
+- [41:12.480] The deficit is massive, as it is with other countries --
+- [41:15.840] a lot of Asian countries, actually.
+- [41:17.550] But we have deficits that are very big,
+- [41:19.450] and we can’t keep doing that,
+- [41:21.790] so we’re not going to keep doing that.
+- [41:23.230] But I like President Xi very much.
+- [41:26.100] I’ve always liked him.
+- [41:27.350] We always had a very good relationship.
+- [41:29.500] It was very strained with COVID coming out of Wuhan.
+- [41:33.270] Obviously, that strained it.
+- [41:34.620] I’m sure it strained it with a lot of people,
+- [41:36.590] but that strained our relationship.
+- [41:39.880] But we always had a great relationship, I would say,
+- [41:42.910] and we look forward to doing very well with China
+- [41:45.470] and getting along with China.
+- [41:47.540] Hopefully, China can help us stop the war with,
+- [41:50.210] in particular, Russia-Ukraine.
+- [41:52.040] And they have a great deal of power over that situation,
+- [41:55.860] and we’ll work with them.
+- [41:57.740] And I mentioned that with --
+- [41:59.050] during our phone conversation with President Xi,
+- [42:02.220] and hopefully we could work together and get that stopped.
+- [42:05.440] We’d like to see denuclearization.
+- [42:07.810] In fact, with President Putin, prior to a --
+- [42:11.270] an election result, which was, frankly, ridiculous,
+- [42:14.980] we were talking about denuclearization
+- [42:17.870] of our two countries, and China would have come along.
+- [42:20.830] China has a -- a much smaller, right now, nuclear armament
+- [42:26.060] than us or field than us, but they’re --
+- [42:28.370] they’re going to be catching it at some point
+- [42:30.490] over the next four or five years.
+- [42:32.280] And I will tell you that President Putin
+- [42:35.600] really liked the idea of -- of cutting way back on nuclear.
+- [42:40.590] And I think the rest of the world,
+- [42:41.940] we would have gotten them to follow.
+- [42:43.920] And China would have come along too.
+- [42:45.280] China also liked it.
+- [42:47.200] Tremendous amounts of money are being spent on nuclear,
+- [42:50.740] and the destructive capability is something
+- [42:53.170] that we don’t even want to talk about today,
+- [42:55.540] because you don’t want to hear it.
+- [42:56.930] It’s too depressing.
+- [42:58.480] So, we want to see if we can denuclearize,
+- [43:01.520] and I think that’s very possible.
+- [43:03.830] And I can tell you that President Putin wanted to do it.
+- [43:06.350] He and I wanted to do it.
+- [43:08.660] We had a good conversation with China.
+- [43:11.930] They would have been involved, and that would have been
+- [43:14.160] an unbelievable thing for the planet.
+- [43:17.790] And I hope --
+- [43:19.020] MR. BRENDE: Mr. President, when you’re --
+- [43:20.250] THE PRESIDENT: -- it can be started up again.
+- [43:21.510] MR. BRENDE: -- back here in Davos next year, will --
+- [43:22.750] will there be then a peace agreement with --
+- [43:25.740] with Ukraine and Russia by then?
+- [43:28.230] THE PRESIDENT: Well, you’re going to have to ask Russia.
+- [43:30.120] Ukraine is ready to -- to make a deal.
+- [43:32.750] Just so you understand,
+- [43:34.140] this is a war that should have never started.
+- [43:35.770] If I were president, it would never have started.
+- [43:38.550] This is a war that should have never, ever been started.
+- [43:42.510] And -- and it wasn’t started during my --
+- [43:44.410] there was never even talk about it.
+- [43:46.080] I knew that it was the apple of President Putin’s eye,
+- [43:49.510] but I also knew that there was no way he was going in,
+- [43:52.130] and he wasn’t going to go in.
+- [43:54.070] And then, when I was out, bad things happened,
+- [43:59.620] bad things were said, a lot of stupidity all around,
+- [44:03.620] and you end up with what you have.
+- [44:04.920] Now you have all these bombed-out cities --
+- [44:06.750] they look like demolition sites -- with many people killed.
+- [44:09.580] I think the --
+- [44:10.860] the thing that you’ll see about Ukraine is that far --
+- [44:13.540] far more people have died than is being reported.
+- [44:17.730] And I’ve seen that.
+- [44:19.030] But far, far more people have died.
+- [44:21.160] When you look at a city that’s become a demolition site,
+- [44:24.440] where big buildings have been collapsed
+- [44:26.700] by missiles hitting them
+- [44:28.040] and everything else, and they say,
+- [44:30.260] “One person was slightly injured.”
+- [44:33.280] No, no, many people were killed. Those are big buildings.
+- [44:36.340] I was surprised at how -- that was my business.
+- [44:39.470] These are buildings that go two and three blocks long.
+- [44:41.640] They’re 20 stories high. They’re big, powerful buildings.
+- [44:44.440] Then they were knocked down,
+- [44:45.690] and there were a lot of people in those buildings.
+- [44:47.830] They had announced that two people were injured.
+- [44:50.390] That’s not true. So, I think you’re going to find
+- [44:52.680] that there were many more people killed in Ukraine
+- [44:55.070] and the Ukraine war than anybody has any idea.
+- [44:57.950] But if you look now, so many of the --
+- [45:00.450] the people being killed are soldiers just facing each other
+- [45:04.000] with guns, rifles, and drones --
+- [45:06.560] the new form of warfare -- drones.
+- [45:09.120] And it’s a very sad thing to see.
+- [45:10.890] And when you see pictures of the fields that I see,
+- [45:14.880] nobody wants to see it. You’ll never be the same.
+- [45:20.300] MR. BRENDE: Thank you very much, Mr. President.
+- [45:23.320] On behalf of all the 3,000 participants here in Davos,
+- [45:28.260] we really, really underline that joining us,
+- [45:33.910] the third day in your presidency,
+- [45:36.450] live, taking questions here, it’s so appreciated.
+- [45:39.690] And we are already ready
+- [45:41.490] for receiving you next year in person.
+- [45:44.650] So, thank you very much, and all the best from Davos.
+- [45:47.800] (Applause.)
+- [45:49.000] THE PRESIDENT: Thank you. Thank you very much. Thank you.
+- [45:59.360] (Applause.)

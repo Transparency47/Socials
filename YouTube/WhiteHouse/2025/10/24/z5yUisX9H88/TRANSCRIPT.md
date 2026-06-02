@@ -1,0 +1,225 @@
+<!-- source: https://www.youtube.com/watch?v=z5yUisX9H88 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: z5yUisX9H88 -->
+<!-- date_published: 2025-10-24T19:06:57+00:00 -->
+<!-- date_accessed: 2026-06-02T01:12:30.398015+00:00 -->
+
+# Transcript: The Story of America: Story of the American Soldier
+
+- [00:01.000] (mix of famous American history quotes)
+- [00:44.266] Michale Knowles: Just over 231,000 men served in the
+- [00:47.313] Continental Army during the American Revolution,
+- [00:50.116] and only 48,000 ever served at the same time.
+- [00:54.587] How many can you name?
+- [00:56.556] George Washington probably comes to mind, maybe
+- [00:59.826] Hamilton, Lafayette.
+- [01:02.962] If you're a real history buff, you might remember
+- [01:06.733] Nathaniel Green or John Stark.
+- [01:11.070] How about all the others?
+- [01:12.071] Who remembers the ordinary soldiers who won our
+- [01:16.476] independence?
+- [01:19.345] I'm Michael Knowles, and I remember one
+- [01:21.614] of those soldiers.
+- [01:22.415] Not because he led a famous regiment or went on
+- [01:25.885] to hold any high office.
+- [01:27.987] There's no monument to his service other than a small
+- [01:30.790] headstone in a far-flung cemetery with a simple
+- [01:34.194] four-word epitaph.
+- [01:36.563] Soldier of the Revolution.
+- [01:38.364] And I remember that soldier because he's my
+- [01:42.001] great-great-great great-
+- [01:42.969] great-grandpa Simon Knowles.
+- [01:44.437] Like most Continental soldiers Simon's name
+- [01:47.373] appears in the appendix of a history book.
+- [01:51.277] If not for a single army pension application
+- [01:55.215] written almost 50 years after the fact, no one
+- [01:59.252] would know a thing about his service.
+- [02:01.788] But Providence and Congress so arranged
+- [02:05.325] things that we do know about his services and the
+- [02:08.228] service of tens of thousands of his fellow
+- [02:11.264] rank and file soldiers.
+- [02:14.067] Simon signed up to fight at the tender age of 15.
+- [02:16.970] And he served throughout the entire war, from the
+- [02:20.173] Battle of Bunker Hill in 1775, across the Delaware
+- [02:24.277] with Washington to the Battles of Trenton,
+- [02:26.246] Princeton, and Saratoga, through the bitter winter
+- [02:31.985] at Valley Forge, all the way through final victory
+- [02:35.555] at Yorktown, and then to an honorable discharge
+- [02:38.958] once again with Washington at Newburgh in 1783.
+- [02:43.429] After the war, Simon, like most of his fellow
+- [02:46.733] veterans, became a farmer.
+- [02:49.369] He didn't own much.
+- [02:51.037] His estate comprised a heifer, a sword from his
+- [02:54.307] father, and a walking cane.
+- [02:56.476] Personal effects all of the value of one dollar.
+- [03:00.547] This relative poverty, common among the men who
+- [03:03.550] won the revolution, was a hardship for him, but a
+- [03:06.920] blessing to us.
+- [03:07.887] Because it prompted these patriots to detail their
+- [03:11.124] service in official government documents in
+- [03:14.127] exchange for a modest stipend in their old age.
+- [03:18.598] But money was never a top priority for these men.
+- [03:21.801] The teenagers and 20-somethings who enlisted
+- [03:24.270] and re-enlisted in the Continental Army might
+- [03:26.573] have done so with the promise of pay, but that
+- [03:29.442] pay rarely came on time.
+- [03:32.011] Even when it did, it was worth less than the paper
+- [03:34.547] it was printed on.
+- [03:35.315] A wagonload of Continental dollars would hardly buy a
+- [03:39.252] wagonload of provisions.
+- [03:42.221] The men were paid as though they were
+- [03:43.723] volunteers, but they were expected to fight like a
+- [03:47.293] professional army.
+- [03:49.228] General Stark trained his men in the finer points of
+- [03:51.864] warfare, including the bayonet, which astonished
+- [03:54.834] the Hessians in the surprise attack at
+- [03:56.736] Trenton.
+- [03:58.137] Hessian survivors recounted that the
+- [03:59.939] American troops charged with a ferocity and
+- [04:02.375] discipline more characteristic of elite
+- [04:04.611] European forces than of a ragtag New World militia.
+- [04:08.448] These ordinary soldiers' skill in battle was all
+- [04:10.817] the more impressive, given the fact that they were
+- [04:13.553] usually starving.
+- [04:16.623] At Valley Forge, during the winter of 1777 to
+- [04:19.626] 1778, meat and bread all but disappeared.
+- [04:23.529] The men lived on fire cakes, flour and water
+- [04:26.299] paste, for days on end.
+- [04:29.068] The most common refrain from the feeble huts that
+- [04:31.371] lined the camp was, no meat.
+- [04:33.640] Joseph Plum Martin was 17 years old when he encamped
+- [04:38.544] at Valley Forage.
+- [04:40.079] Oftentimes, he wrote, have I gone one, two, three,
+- [04:44.684] even four days without a morsel unless the fields
+- [04:47.787] or forests might chance to afford enough to prevent
+- [04:50.890] absolute starvation.
+- [04:53.159] Often, when I have picked the last grain from the
+- [04:55.495] bones of my scanty morsel, have I eaten the very
+- [04:58.798] bones, as much of them as possibly could be eaten,
+- [05:02.635] and then have had to perform some hard and
+- [05:05.304] fatiguing duty.
+- [05:07.507] One in six soldiers died that winter.
+- [05:10.276] Those who survived the bullets and bayonets of
+- [05:12.412] the British, as well as the constant malnutrition,
+- [05:15.915] disease, dysentery, typhus,
+- [05:18.418] smallpox, and exposure.
+- [05:21.554] General Washington reported that by late
+- [05:23.389] December of that year, not less than 2,898 men were
+- [05:28.094] unfit for duty by reason of their being barefoot
+- [05:31.230] and otherwise naked.
+- [05:33.800] Many couldn't walk on their frost-bitten feet.
+- [05:37.103] And Valley Forge wasn't even the coldest winter.
+- [05:40.106] Two years later, during the winter of 1779 to
+- [05:43.209] 1780, One sentry froze to death at his post in
+- [05:46.946] Morristown, New Jersey.
+- [05:48.014] When the Continental soldiers weren't freezing,
+- [05:52.452] they were dropping from heat stroke.
+- [05:56.656] At the Battle of Monmouth in June of 1778, countless
+- [05:59.892] soldiers collapsed and dozens died
+- [06:02.829] from heat exhaustion.
+- [06:05.264] One sergeant recalled that the sun-baked soldiers
+- [06:07.867] drank from mud puddles as they ducked
+- [06:10.236] British cannonballs.
+- [06:11.237] But the endless suffering was only one part of the
+- [06:15.408] story and the minor part at that.
+- [06:17.944] The crucial fact of that battle of the whole
+- [06:21.781] revolution, really, was that the Americans
+- [06:24.784] stood their ground.
+- [06:26.686] Before the British slunk away, the Patriots had
+- [06:29.422] proved that they could face the finest army on
+- [06:32.525] Earth in open battle despite an incomparable
+- [06:36.395] disadvantage in training and supplies.
+- [06:39.332] Unfortunately, the morale boost did not improve
+- [06:42.001] material conditions on the ground.
+- [06:44.504] When soldiers ran out of food in Maine during
+- [06:47.140] Colonel Arnold's expedition to Quebec, They
+- [06:49.909] boiled leather for soup.
+- [06:51.210] After seven days, with no kind of nourishment but
+- [06:56.682] roots and black birch bark, Private William
+- [06:59.786] Beggs recalled his party of soldiers ate a stray
+- [07:03.623] horse, and they were lucky to have found him.
+- [07:06.993] On the Sullivan campaign in 1779, soldiers had to
+- [07:10.329] settle for horse feed, as overstretched supply lines
+- [07:13.566] reduced them to half rations without flour.
+- [07:18.037] They managed to rout Tory rangers and their Iroquois
+- [07:20.807] allies at the Battle of Newtown, a major military
+- [07:24.177] victory, albeit one that cost them their clothes.
+- [07:27.146] One private, Nathan Davis, recalled that his uniform
+- [07:31.284] had been cut to rags by marching through
+- [07:33.319] woods and thickets.
+- [07:36.022] Many men walked bare-chested.
+- [07:38.324] The lucky ones wore Indian leggings.
+- [07:41.394] Some wore little more than loincloths, but they had
+- [07:44.664] broken the Indian strength.
+- [07:46.499] And advanced the Army's campaign.
+- [07:49.302] Occasionally, troops mutinied.
+- [07:52.138] Who could blame them?
+- [07:53.873] But most did not.
+- [07:55.741] In Simon's New Hampshire line, no major mutiny
+- [07:58.344] ever broke out.
+- [08:00.112] These men had not signed up for good food, warm
+- [08:03.282] clothes, or pity parties.
+- [08:05.651] But they enlisted with a
+- [08:06.552] purpose, to defend their country.
+- [08:09.956] And the defense of one's country entails sacrifice.
+- [08:18.698] Modern people sometimes struggle to believe that
+- [08:21.200] others are not as cynical as they themselves.
+- [08:24.971] They believe that all human action must derive
+- [08:27.473] from selfish, material interest.
+- [08:30.810] The ordinary soldiers who signed up to fight for
+- [08:33.179] American independence confound these cynics
+- [08:36.816] because they didn't stand to gain much of anything,
+- [08:38.885] at least materially, for their troubles.
+- [08:42.421] What motivated them was more valuable,
+- [08:44.657] honoer, virtue, ideals.
+- [08:47.526] Ensign Samuel Cooper wrote to his wife in July 1775,
+- [08:54.500] the dangers we are to encounter I know not, but
+- [08:57.837] it shall never be said to my children, your father
+- [09:01.073] was a coward.
+- [09:03.009] These soldiers took leave of their families, some of
+- [09:06.112] whom disagreed even with the cause of independence.
+- [09:10.116] They endured and overcame their hardships for, In
+- [09:13.486] the words of Massachusetts soldier James Davenport,
+- [09:17.023] liberty, peace, and independence forever.
+- [09:20.359] If the soldiers had one fear, it was the
+- [09:25.164] indifference of their countrymen, that their
+- [09:27.533] sacrifices would be in vain, and their
+- [09:30.269] cause soon forgotten.
+- [09:32.538] At Valley Forge, Dr. Albigens Waldo
+- [09:35.207] described the dread in his diary.
+- [09:38.244] There comes a soldier, he comes and cries, I fail
+- [09:42.515] fast, I shall soon be no more, and all the reward I
+- [09:46.819] shall get will be poor Will is dead.
+- [09:51.524] In 1780 the Continental Congress voted to give a
+- [09:54.593] reward, at least to officers who had served
+- [09:57.396] in the Revolution.
+- [09:58.064] Half pay for life, a courtesy later amended to
+- [10:01.934] full pay for five years.
+- [10:04.403] The ordinary soldier, on the other hand, returned
+- [10:06.672] home with next to nothing, worthless promissory notes
+- [10:10.242] and a pat on the back.
+- [10:12.378] It took an additional 38 years, and for most
+- [10:14.914] soldiers more than half a century for Congress
+- [10:17.917] finally to offer a reward to the destitute veterans
+- [10:21.687] who had not already died.
+- [10:24.557] Even in their old age and penury, these veterans
+- [10:27.493] once again gave their country a greater gift
+- [10:29.762] than anything they received in return.
+- [10:32.198] They told us who they were and what they did.
+- [10:36.969] And not one of their names was ordinary.
+- [10:40.673] No man is ordinary.
+- [10:42.742] Each man suffers and delights, fails and
+- [10:45.644] triumphs in his own way.
+- [10:50.049] In the words of the poet of the revolution, Philip
+- [10:52.451] Fresnau, Far, far from domes where splendid
+- [10:56.555] tapers glare, Tis his from dear bought peace no
+- [10:59.992] wealth to win, Removed alike from courtly
+- [11:02.895] cringing squires, The great man's levy and the
+- [11:06.365] proud man's grin.
+- [11:08.834] Sold are those arms which once on Britain's blazed,
+- [11:12.872] When flushed with conquest to the charge they came,
+- [11:16.275] that power repelled and freedom's fabric raised,
+- [11:21.914] she leaves her soldier, famine,
+- [11:25.518] and a name.
+- [11:30.866] ♪ (somber music) ♪

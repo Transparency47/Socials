@@ -1,0 +1,346 @@
+<!-- source: https://www.youtube.com/watch?v=3XXJyE2lIT8 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 3XXJyE2lIT8 -->
+<!-- date_published: 2025-06-17T13:08:09+00:00 -->
+<!-- date_accessed: 2026-06-02T01:24:05.271595+00:00 -->
+
+# Transcript: President Trump Gaggles with the Press on Air Force One, June 17, 2025
+
+- [00:01.580] The President: It's going well. Did everybody have a good time?
+- [00:06.200] I did. I always have a good time.
+- [00:08.950] The Press: You just posted right before we took off
+- [00:11.270] that you're not leaving because of a ceasefire.
+- [00:13.690] Why are you? Can you elaborate?
+- [00:15.150] The President: We're looking at better than a ceasefire.
+- [00:16.520] We're not looking for a cease fire.
+- [00:18.810] I didn't say I was looking for cease fire,
+- [00:20.460] that was Emanuel, nice guy.
+- [00:23.460] But he doesn't get it right too often.
+- [00:25.000] But we're not looking --
+- [00:26.700] we're looking for better than the cease fire
+- [00:29.720] The Press: You're not going to invest
+- [00:31.180] (inaudible) in this conflict at this stage.
+- [00:33.920] Are you going to do anything more for Israel right now?
+- [00:36.270] The President: We're doing pretty well.
+- [00:38.930] Right now, we're doing pretty well, and remember,
+- [00:41.410] Iran cannot have a nuclear weapon.
+- [00:43.310] It's very simple. We don't have to go too deep into it.
+- [00:46.880] They just can't have a nuclear weapon.
+- [00:48.500] The Press: What was your thinking on the call
+- [00:50.350] for Tehran to evacuate.
+- [00:52.470] Is there a threat or is there incoming?
+- [00:54.570] What was the thinking on the (inaudible)?
+- [00:56.330] The President: I want people to be safe,
+- [00:58.720] and that's always possible.
+- [01:00.330] A thing like that could happen. I just want people be safe.
+- [01:03.870] The Press: Is there any new concern about U.S. Troops
+- [01:06.180] or assets in the region today?
+- [01:09.120] The President: We have great people that know
+- [01:10.450] how to protect themselves.
+- [01:11.740] The Press: And when you say better,
+- [01:12.980] what specifically do you have (inaudible)?
+- [01:14.250] The President: (inaudible)
+- [01:15.450] so hard if they do anything to our people.
+- [01:17.040] We'll come down so hard.
+- [01:18.270] Then the gloves are off so beautifully.
+- [01:20.760] No, they -- I think they know not to touch our troops.
+- [01:27.740] The Press: Are you sending the vice --
+- [01:29.480] The President: Our troops are ready.
+- [01:31.610] The Press: Do you want to send the Vice President
+- [01:33.330] and Steve Witkoff, there's reports that you want
+- [01:35.700] to send to Vice President Steve Wikoff
+- [01:37.450] to meet with the Iranians and have discussions.
+- [01:40.010] Is that something you're considering?
+- [01:41.440] The President: Not sure yet. I may.
+- [01:43.230] Depends on what happens when I get back.
+- [01:45.400] The Press: What specifically is better than a ceasefire.
+- [01:47.340] What are you looking for here?
+- [01:51.740] The President: A real end, not a ceasefire, an end.
+- [01:53.690] The Press: So something that will be permanent.
+- [01:55.470] The President: Yeah, or giving up entirely.
+- [01:58.900] That's okay, too.
+- [02:00.150] The Press: Are you close to there? Are you possible --
+- [02:01.840] is that possible in the next 24 or 48 hours?
+- [02:04.170] The President: It's certainly impossible.
+- [02:05.520] A complete, give up. That's possible, yeah.
+- [02:10.470] The Press: Has the Chairman of the Joint Chiefs
+- [02:12.000] and the Secretary of Defense drawn up plans for you
+- [02:15.140] if Iran were to attack U.S. bases
+- [02:17.590] or do any damage to U.S. bases?
+- [02:18.890] The President: I can't tell you that.
+- [02:20.100] I just can't tell you.
+- [02:21.860] The Press: Can I ask you because there's been some skepticism,
+- [02:24.080] is there any guarantee
+- [02:25.450] that if the U.S. did get involved militarily that a U. S.
+- [02:28.450] bomb could destroy Iran's nuclear program and facilities?
+- [02:31.090] The President: (inaudible) everything already.
+- [02:32.390] (inaudible)
+- [02:33.590] you know that? Look at you, right? There's no guarantee.
+- [02:38.530] But you're saying a guarantee on what?
+- [02:40.340] The Press: Do you think if the U.S. got involved militarily,
+- [02:42.670] it would actually wipe out Iran's nuclear program,
+- [02:45.710] or where's your assessment on that?
+- [02:47.260] The President: I hope their program
+- [02:48.530] is going to be wiped out long before that,
+- [02:51.640] but they're not going to have a nuclear weapon.
+- [02:54.000] The Press: Do you have any reason to believe
+- [02:55.980] the Israelis are going to slow down
+- [02:57.240] or are they going to hit the accelerator right now
+- [02:58.760] because they've got superiority?
+- [02:59.980] The President: You're going to find out
+- [03:01.190] over the next two days, right? You're going to find out.
+- [03:04.700] Nobody's slowed up so far.
+- [03:06.360] The Press: Has the Gang of Eight been notified
+- [03:08.060] about what's coming in the next couple days?
+- [03:09.900] The President: We'll be talking to them,
+- [03:11.760] but hope it's not necessary.
+- [03:13.160] The Press: What can you do in Washington
+- [03:14.440] that you couldn't do in Canada?
+- [03:17.730] The President: Just be a little bit,
+- [03:19.560] I think, more well-versed.
+- [03:22.700] Not having to use telephones so much,
+- [03:24.330] because I don't believe in telephones,
+- [03:26.820] because people like you listen to them.
+- [03:29.540] So being on the scene is much better.
+- [03:32.930] And we did everything I had to do in the G7.
+- [03:35.090] We had a good G7.
+- [03:36.640] We signed the deal with the European Union.
+- [03:40.940] Phase one of a deal but we signed the deal with the U.K.
+- [03:45.390] And the U.K. Is really great.
+- [03:48.290] We were very far down the line with a lot of deals.
+- [03:53.070] I mean look we're actually finished with every deal
+- [03:55.100] if you really think about it because all I have to do is say
+- [03:57.200] this is what you're going to pay,
+- [03:59.120] but it's nice to be nice.
+- [04:00.370] The Press: Did Secretary Bessent
+- [04:01.650] stay behind as your representative?
+- [04:03.070] The President: Yeah.
+- [04:04.310] The Press: Okay. Anybody else?
+- [04:06.430] The President: Yeah, a couple of people.
+- [04:07.630] Here we go,
+- [04:09.780] who else has a question other than CNN?
+- [04:11.790] Thank you.
+- [04:14.250] The Press: Mr. President, you talked with the European Union,
+- [04:16.070] can you tell us what the status is on talks
+- [04:19.590] on those you signed with the U.K. today?
+- [04:21.060] The President: I don't feel
+- [04:22.290] that they're offering a fair deal yet.
+- [04:25.660] You know, they've been very tough over the years,
+- [04:27.810] if you look at European Union.
+- [04:29.900] They formed in order to hurt the United States on trade.
+- [04:33.690] And we're either going to make a good deal
+- [04:35.260] or they'll just pay whatever we say they have to pay.
+- [04:37.510] The Press: What about the Japanese?
+- [04:38.720] You met briefly with Prime Minister Ishiba.
+- [04:40.260] The President: (inaudible) great conversation.
+- [04:42.450] I thought he was terrific, actually.
+- [04:44.280] You know, I was very friendly with Shinzo Abe, Prime Minister.
+- [04:48.130] He was a great man, but I think this --
+- [04:50.570] I think he's going to do a very good job.
+- [04:52.190] The Press: Do you think you have a chance of a deal there?
+- [04:54.100] The President: A chance?
+- [04:56.730] Yeah, they're tough. Japanese are tough.
+- [04:59.970] But ultimately, you have to understand,
+- [05:01.460] we're just going to send a letter and say,
+- [05:03.040] this is what you're going to pay,
+- [05:04.330] otherwise you don't have to do business with us.
+- [05:06.430] But there's a chance of a deal.
+- [05:07.670] The Press: You want changes to the auto tariffs as well.
+- [05:09.270] Is that on the table?
+- [05:10.560] The President: We'll see what happens.
+- [05:11.910] Anything else?
+- [05:13.180] The Press: Drone attack in Kiev. What's your response to that?
+- [05:15.650] It looks like 14 or so --. The President: What's that?
+- [05:17.190] The Press: A drone attack -- a Russian drone attack in Kiev.
+- [05:18.940] The President: When?
+- [05:20.140] The Press: Very recently.
+- [05:21.460] Fourteen civilians (inaudible)
+- [05:24.875] The President: (inaudible) sounds like it.
+- [05:28.450] I'll have to look at it.
+- [05:29.830] The Press: The joint statement on the Middle East.
+- [05:32.000] What changed about that that convinced you to sign on to it?
+- [05:35.180] The G7 joint statement?
+- [05:37.550] The President: Well, I haven't seen the statement yet,
+- [05:39.790] but I authorized them to say certain things.
+- [05:41.850] I don't know whether or not they said them correctly,
+- [05:44.380] but I think they probably did. We had a good meeting.
+- [05:48.250] I think that Canadian representatives were very good.
+- [05:53.170] He did a very good job.
+- [05:57.380] The Press: How was your meeting with (inaudible)
+- [05:58.740] trade talks looking with (inaudible)?
+- [06:00.390] The President: I think we had a lot of good talks
+- [06:01.620] with a lot people.
+- [06:02.840] The Press: You said he's looking for something more complex.
+- [06:04.440] Can you tell me what you mean by that?
+- [06:05.760] The President: (inaudible) too complex on the deals,
+- [06:07.160] and they never get done. And we need speed.
+- [06:09.990] You know, we're dealing with, really, if you think about it,
+- [06:12.470] probably 175 countries.
+- [06:15.630] And most of them are going to just be sent a letter saying,
+- [06:18.940] it'll be an honor to trade with you,
+- [06:20.570] and here's what you're going to have to pay to do it.
+- [06:23.100] We're making a lot of money, you know?
+- [06:24.370] We took in $88 billion in tariffs.
+- [06:27.860] And I was called by Congress about two nights ago
+- [06:31.520] saying, we don't understand. The numbers are so far off.
+- [06:36.200] And I said, is that good or bad? He said, well, we're taking in
+- [06:39.330] so much more income than we thought.
+- [06:41.390] We've never seen anything like this.
+- [06:42.820] What is it? I said check the tariff column.
+- [06:47.150] And it's about $88 billion that they've never seen before.
+- [06:51.640] And that's nothing compared to what it's going to be.
+- [06:53.540] The Press: You've got other tariffs
+- [06:54.770] coming down the pipe here.
+- [06:57.470] What's the timing on those things
+- [06:58.780] like lumber, copper, pharmaceutical drugs?
+- [07:01.030] The President: Yeah, we're going to be
+- [07:02.280] doing pharmaceuticals very soon.
+- [07:03.930] That's going to bring all the companies back into America.
+- [07:06.530] The Press: All of them or focusing on (inaudible).
+- [07:08.040] The President: (inaudible)
+- [07:09.240] back in, at least partially back in.
+- [07:12.700] You know, they had left us because we had presidents
+- [07:14.890] that didn't know what the hell they were doing.
+- [07:17.080] We should have never lost our car business.
+- [07:18.930] We lost 52 percent of our car business over the years.
+- [07:22.910] We should've never lost it.
+- [07:24.250] All they had to do is say, if you make a car --
+- [07:27.280] you're going to leave us, you're going to make a car,
+- [07:29.290] you're going to pay a 25, 30 percent tariff,
+- [07:31.760] and they would have never left.
+- [07:33.550] Nobody said that to anybody. Until I came along.
+- [07:36.200] The Press: Homeland Security is saying
+- [07:37.510] that ICE is going to start enforcing
+- [07:39.100] in hotels and farms again.
+- [07:41.330] Is that a change of course from last week?
+- [07:44.620] The President: We're going to look everywhere,
+- [07:46.460] but I think the biggest problem is the inner cities.
+- [07:49.210] We're looking everywhere.
+- [07:50.550] Look what they let into this country,
+- [07:52.820] what Biden let in and were allowed to --
+- [07:55.280] I don't think he knew what the hell he was doing frankly,
+- [07:57.510] but whoever worked for him.
+- [08:00.070] What they let in to this country we're never going to forget it.
+- [08:04.980] They let prisoners in, they let gang members in,
+- [08:08.260] drug dealers in, the mentally insane into our country.
+- [08:12.930] No, we're going to get them out.
+- [08:15.620] There are far more of the inner-cities,
+- [08:18.420] Democrat-run cities.
+- [08:19.710] Sadly, I'm just giving you a fact,
+- [08:21.960] there's far more in there than you have on a farm or someplace.
+- [08:25.920] The Press: No one's getting exemptions anymore.
+- [08:27.600] Everyone is --.
+- [08:28.870] The President: (inaudible)
+- [08:30.080] being looked at. The bigger problem is the cities right now.
+- [08:34.370] And that tends to be where the really bad ones are.
+- [08:37.690] The murderers, you know, they've let in 11,888 murderers.
+- [08:43.710] People that killed people. Biden allowed that to happen,
+- [08:47.600] so the Democrats allowed it to happen.
+- [08:50.530] Biden didn't know he was even around.
+- [08:53.070] The Press: Question on your Senate confirmations
+- [08:55.130] with all the military actions there are only three of your
+- [08:58.330] six sub cabinet members at the Defense Department --
+- [09:00.460] The President: Yeah, I'd like to see the nominations
+- [09:01.850] go faster.
+- [09:03.090] The Democrats hold up our nominations.
+- [09:05.710] The Press: Are you talking to Senator Thune about that?
+- [09:07.400] The President: John Thune is doing a very good job.
+- [09:09.600] You know, I've gotten a lot of people,
+- [09:11.190] but he's doing a very good job, The Democrats --
+- [09:14.560] if we had George Washington up for approval,
+- [09:18.070] the Democrats would take maximum time,
+- [09:20.430] every hour, every minute,
+- [09:22.720] to delay him as long as possible.
+- [09:25.000] If we had a combination of Abraham Lincoln
+- [09:27.220] and George Washington,
+- [09:28.670] they would go max. It's called max time.
+- [09:31.340] The Press: You always said that you don't believe
+- [09:32.880] Iran should be able to have a nuclear weapon.
+- [09:35.090] But how close do you personally think
+- [09:37.130] that they were to getting one?
+- [09:38.540] Because Tulsi Gabbard testified in March
+- [09:41.610] that the intelligence community said
+- [09:43.570] Iran wasn't building a nuclear weapon.
+- [09:45.230] The President: I don't care what she said.
+- [09:46.480] I think they were very close to having one.
+- [09:48.120] The Press: (inaudible)
+- [09:49.320] you were at this beautiful scene for the meeting,
+- [09:51.790] and you said a lot about acquiring Canada as a state.
+- [09:54.430] Did anybody talk to you about that, and where are you now?
+- [09:56.180] The President: (inaudible)
+- [09:57.380] deal from Canada, but it's up to them.
+- [10:00.680] They're going to have to pay a lot of tariffs and things.
+- [10:02.870] They're going to have to have a lot of money for the dome,
+- [10:05.580] for the iron dome. They want to be a part of it.
+- [10:08.290] We may make a separate deal on that, by the way.
+- [10:11.090] We discussed that, yeah, on the dome.
+- [10:12.920] That may be a separate deal.
+- [10:14.570] They want it to be at 71 billion, they're gong to pay.
+- [10:16.840] The Press: (inaudible) dome separate from the tarrif
+- [10:18.210] (inaudible)?
+- [10:19.410] The President: They'll be in the dome,
+- [10:20.660] they'll be under the dome.
+- [10:22.640] The Press: Are you open to negotiating
+- [10:23.960] with the Iranians right now or do you want to wait?
+- [10:27.940] The President: I've been negotiating.
+- [10:29.180] I told them to do the deal, they should have done the deal.
+- [10:32.110] Their cities have been blown to pieces,
+- [10:34.460] lost a lot of people. They should have done the deal.
+- [10:37.300] I told them do the deal. So I don't know.
+- [10:40.080] I'm not too much in the mood to negotiate now.
+- [10:42.010] The Press: Do you think you'll be in the Situation Room
+- [10:43.660] tomorrow at any point?
+- [10:44.890] The President: Yeah, tomorrow morning early.
+- [10:47.560] While you're sleeping. Goodbye everyone.
+- [10:50.010] The Press: (inaudible)
+- [10:51.210] evacuate Tehran. You know how you posted evacuate?
+- [10:54.430] The President: I think it's safe.
+- [10:57.220] A lot of bad things happening there.
+- [10:58.660] I think it's safer for them to evacuate.
+- [11:01.480] The Press: On Minnesota there were a lot of horrific details
+- [11:03.660] that came out today about the suspect
+- [11:05.330] who's been charged there. Have you called the governor yet
+- [11:07.680] or been able to speak to any of them?
+- [11:09.270] The President: I don't really call him.
+- [11:10.820] He appointed this guy to a position.
+- [11:13.600] I think the governor of Minnesota is so whacked out,
+- [11:16.670] I'm not calling him. Why would I call him?
+- [11:18.280] I could call him and say, hi, how are you doing?
+- [11:21.890] The guy doesn't have a clue. He's a mess.
+- [11:25.090] So I could be nice and call him, but why waste time?
+- [11:28.320] The Press: On the Big, Beautiful Bill, sir,
+- [11:29.820] can you talk about what the Senate --.
+- [11:31.350] The President: We're doing well with the Big, Beautiful Bill --
+- [11:33.530] the great Big, Beautiful Bill.
+- [11:35.610] The Press: Are you okay with their changes?
+- [11:37.390] The President: I hear so far it's going well.
+- [11:41.440] Look, if it doesn't get approved,
+- [11:43.190] 68 percent tax increase
+- [11:45.910] and I think the Democrats would have to --
+- [11:48.370] you know they'd be --
+- [11:49.570] because we won't get Democrat support.
+- [11:51.120] Think of it, we're giving the biggest tax cut in history
+- [11:54.810] instead you have the biggest tax increase in history, 68 percent.
+- [11:59.460] The Press: Are you going to extend the Tik-Tok deadline
+- [12:01.250] again (inaudible)?
+- [12:04.020] The President: Probably have to get China approval,
+- [12:05.420] I think we'll get it.
+- [12:06.640] The Press: Do you have the legal basis to do that?
+- [12:07.920] The President: I think the President Xi
+- [12:09.120] will ultimately approve it.
+- [12:10.320] The Press: And you have the legal basis to do that,
+- [12:11.850] to keep extending it?
+- [12:13.110] The President: We do.
+- [12:14.450] The Press: Two more on Iran. Is there any sign
+- [12:16.690] that North Korea is getting more involved in helping Iran
+- [12:19.930] or is Russia getting more involved
+- [12:21.390] with military assistance?
+- [12:22.660] The President: I haven't seen it, no.
+- [12:23.870] I don't think anybody wants to get involved, it's a mess.
+- [12:26.230] The Press: What about American citizens, U.S. Citizens
+- [12:28.430] who are trying to leave the area
+- [12:29.990] with the airport shut down, Ben-Gurion shut down?
+- [12:32.010] The President: We're doing the best we can with it.
+- [12:33.730] We're working on that. We're going the best we can.
+- [12:35.780] Thank you, everybody, very much.

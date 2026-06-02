@@ -1,0 +1,490 @@
+<!-- source: https://www.youtube.com/watch?v=UEHplff4Rpo -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: UEHplff4Rpo -->
+<!-- date_published: 2025-09-25T16:08:02+00:00 -->
+<!-- date_accessed: 2026-06-02T02:44:21.144786+00:00 -->
+
+# Transcript: President Trump Participates in a Bilateral Meeting with the President of the Republic of Turkey
+
+- [00:00.520] The President: Thank you very much.
+- [00:01.740] It's a pleasure to be with President Erdogan of Turkey,
+- [00:04.460] and we've been friends for a long time actually.
+- [00:08.120] Even for four years when I was in exile unfairly
+- [00:12.620] as it turns out. Rigged election, you know.
+- [00:15.010] He knows about rigged elections better than anybody.
+- [00:19.140] But when I was in exile we were still friends.
+- [00:22.970] That's always a good way to find out test of friendship.
+- [00:25.800] But he's a highly respected man.
+- [00:29.480] He's respected very much in his country
+- [00:31.190] and all throughout Europe
+- [00:32.470] and throughout the world where they know him.
+- [00:34.550] He's built a tremendous military powerful military
+- [00:38.350] uses a lot of our equipment
+- [00:40.440] and it's an honor to have him at the White House.
+- [00:43.850] We're going to have a lunch together
+- [00:46.800] we're going to have a discussion big discussion.
+- [00:49.300] We do a lot trade with Turkey and we're going to continue.
+- [00:51.920] We are going to do some additional trade.
+- [00:54.120] They want to buy f-16s f-35s and some other things
+- [00:57.170] and we are going talk to them about that
+- [01:00.050] and we're just going to have
+- [01:02.950] I think a very interesting a couple of hours.
+- [01:05.630] We're going to get a lot done
+- [01:07.190] but I have great respect for this man
+- [01:08.980] and we've had a very good relationship for a long time.
+- [01:12.530] If you remember he let Pastor Brunson --
+- [01:15.670] he freed Pastor Brunson.
+- [01:17.040] Pastor Brunson was put in jail for 35 years before I got there.
+- [01:21.490] This was a group that should have stopped it
+- [01:25.380] and the president after I called him released him
+- [01:29.620] which was a great thing for our Christian community,
+- [01:32.670] our evangelical community.
+- [01:34.480] The evangelicals really really wanted that.
+- [01:37.050] It was very important to him so I always remembered that
+- [01:39.170] but he released him from 35 years in prison
+- [01:43.330] and Pastor Brunson now is healthy, happy, and well.
+- [01:47.370] And we're very happy about that, but it's a great honor
+- [01:50.530] to have the President of Turkey with us and how are you?
+- [01:56.810] Say a few word. Great guy .
+- [02:04.910] President Erdogan: (Speaking Turkish)
+- [03:09.720] Translator: First Mr. President, I am very pleased
+- [03:12.160] that this visit actually coincides with the 80th Unga.
+- [03:15.990] So I am very pleased to be here with my colleagues and friends
+- [03:19.200] and as we have said during the first term of your presidency
+- [03:22.200] and during your second term we are able to carry Turkey
+- [03:25.630] and U.S. relations to a much different level and process
+- [03:28.990] and as you've said we have an opportunity here today
+- [03:31.900] to be able to discuss some of the issues
+- [03:33.660] regarding the f-35 the f-16
+- [03:35.710] And also the (inaudible)
+- [03:36.960] case and we will have an opportunity
+- [03:38.770] to thoroughly discuss them.
+- [03:40.900] And based on what you have mentioned
+- [03:42.290] regarding the (inaudible)
+- [03:43.920] school. We are ready to do
+- [03:45.850] whatever we can that falls on our part
+- [03:47.740] and I will when I get back try to discuss this issue
+- [03:51.240] with the esteemed Mr. Bartolemos
+- [03:53.500] to discuss how we can move forward on that
+- [03:55.530] The President: Okay, very good,
+- [03:56.750] I would like to be able to do that.
+- [04:00.660] The Greek Orthodox Church was here
+- [04:02.530] and they would really like to have some help.
+- [04:06.000] They need some help and I said I'd mention it.
+- [04:08.400] We appreciate it. So this is a tough man.
+- [04:11.430] This is a a guy who's highly opinionated.
+- [04:17.530] Usually I don't like opinionated people,
+- [04:19.390] but I always liked this one,
+- [04:21.080] but he's a tough one and does an amazing job in his country.
+- [04:27.120] And we've had tremendous relationships
+- [04:29.010] both having to do with war and having to deal with trade
+- [04:33.370] and I guess today we're talking about both.
+- [04:35.420] I'd like to have him stop buying any oil from Russia
+- [04:38.920] while Russia continues this rampage against Ukraine
+- [04:45.210] and they've been fighting,
+- [04:46.420] they've lost millions of lives already and for what?
+- [04:49.490] You know for what? Disgraceful.
+- [04:53.110] And I said yesterday let it keep going
+- [04:55.720] because their economy is absolutely terrible right now
+- [04:59.600] and I think it's --
+- [05:00.940] I think its a shame that they're doing that,
+- [05:02.640] killing a lot of people unnecessarily --
+- [05:04.960] 7,818 people were killed last week.
+- [05:09.020] It's mostly military people, their people and Ukrainians.
+- [05:13.000] More Russians actually then Ukraine --
+- [05:14.840] a little bit more but it's such a waste of human life.
+- [05:19.550] And it ought to stop. Putin ought to stop.
+- [05:23.770] And with that we'll get to a little bit of a discussion.
+- [05:27.290] We're going to make some great trade deals for both countries.
+- [05:29.500] We do a lot of business with Turkey.
+- [05:31.510] They build great products.
+- [05:32.850] They built beautiful, great products,
+- [05:34.320] really fantastic manufacturers and we buy a lot from them
+- [05:37.890] and they buy a lots from us. You have any questions, please?
+- [05:42.040] The Press: (inaudible)
+- [05:48.570] for their stupid decisions. One example you gave was refusal
+- [05:52.580] to sell the Patriot missile defense systems to Turkey
+- [05:54.400] (inaudible)
+- [05:55.600] which resulted in the expulsion of the country
+- [05:57.170] from (inaudible)
+- [05:58.380] program. Now you are known to be a great deal maker in Turkey.
+- [06:02.360] What can you do to undo the stupidity?
+- [06:04.980] Yes
+- [06:07.390] The President: CNN?
+- [06:09.040] Because you sounded like a nice guy.
+- [06:12.040] CNN is fake news.
+- [06:13.880] But you sound like the real deal to me.
+- [06:15.510] So I'll answer the question.
+- [06:16.960] And we're going to be discussing the Patriot system
+- [06:19.280] which is the best system?
+- [06:21.050] We'll discuss that. We're going to discuss the f-35.
+- [06:23.470] We'll be discussing all of the things that you know about
+- [06:26.510] and that some of that you mentioned.
+- [06:29.570] And I think he'll be successful
+- [06:31.330] with buying the things he'd like to buy.
+- [06:34.370] The Press: (inaudible)
+- [06:36.720] The President: We haven't even started yet,
+- [06:38.560] but I know he wants --
+- [06:40.290] he wants the f-35 and he's wanted that
+- [06:43.240] and we're talking about that very seriously.
+- [06:45.320] And the f-16 were in great shape.
+- [06:49.670] Certain other things he needed as you know,
+- [06:51.510] and I'm going to see to it that we get that to him.
+- [06:55.100] He needs certain things and we need certain things.
+- [06:58.170] And we're going to come to a conclusion,
+- [06:59.910] you'll know by the end of the day.
+- [07:01.630] Go ahead, please.
+- [07:02.840] The Press: (Speaking Turkish)
+- [07:18.695] President Erdogan: (Speaking Turkish)
+- [07:35.300] The President: Because I haven't learned his language yet.
+- [07:41.710] What did he say?
+- [07:43.040] Translator: The gentleman was asking Mr. President's
+- [07:45.700] you have referred to President Trump's peace efforts
+- [07:48.810] and you have also contact with many leaders in the region
+- [07:52.170] and what do you think that you can do about this
+- [07:54.780] and Mr. President has said that yes,
+- [07:56.910] I believe in the peace efforts
+- [07:58.380] that President Trump is leading and together
+- [08:01.150] We will be able to overcome the challenges in the region.
+- [08:03.890] The President: I think that's true.
+- [08:05.110] He's got tremendous influence in the region.
+- [08:08.210] The Press: Mr. President, when are you going to lift --
+- [08:10.110] cut the sanctions against Turkey?
+- [08:11.670] The President: Against --
+- [08:12.920] sanctions against Turkey could be very soon.
+- [08:16.020] If we have a good -- if we ever good meeting,
+- [08:18.930] almost immediately
+- [08:20.520] The Press: (inaudible)
+- [08:26.390] and what impact it would be in (inaudible)?
+- [08:30.080] The President: Where are you from?
+- [08:31.360] The Press: Turkey.
+- [08:32.590] The President: We have a lot of people from Turkey.
+- [08:35.710] Because I like the questions very much
+- [08:37.390] actually they're very nice questions
+- [08:39.090] and we'll see you about tariffs.
+- [08:40.480] We're going to be talking about tariffs.
+- [08:42.170] The Press: (inaudible) remove that?
+- [08:43.380] The President: Well, we're going to be talking about that.
+- [08:45.290] The Press: (inaudible)
+- [08:48.950] sanctions on Russia even if not all NATO countries
+- [08:52.210] stop purchasing Russian oil.
+- [08:54.560] The President: We're going to be seeing about that.
+- [08:56.450] The NATO countries were disappointing in that regard,
+- [08:59.560] but they've been very amazing in other ways.
+- [09:02.640] They did, as you know, they went from 2 percent to 5 percent GDP,
+- [09:07.500] and that's a big step, and it's paid.
+- [09:09.370] I mean, they have the money there.
+- [09:11.080] We're selling a tremendous amount
+- [09:13.490] of military equipment to NATO.
+- [09:16.340] We're not giving, like Biden did.
+- [09:18.250] We're selling it to NATO, and they're buying a lot,
+- [09:21.580] and I assume they're giving it to Ukraine.
+- [09:24.630] I think they could buy it for other reasons too,
+- [09:26.560] but I assume they're giving most of it to Ukraine.
+- [09:28.990] But they're buying highly sophisticated weaponry,
+- [09:32.120] and they're paying for it full price.
+- [09:35.330] And that's how we're involved. Biden gave $350 billion.
+- [09:41.010] Look, this war would have never started if I were president.
+- [09:44.080] If I were a president, this would never be happened.
+- [09:46.620] Would have never happened. Yeah.
+- [09:47.940] The Press: Mr. President, I'd like to talk about Gaza.
+- [09:49.910] Are you on the same page, Mr. Erdogan,
+- [09:52.330] for Palestinian, Israelis?
+- [09:53.990] The President: Well, I don't know his stance.
+- [09:55.220] I can't tell you about that.
+- [09:56.580] I just say that we want to get Gaza over with.
+- [09:59.900] I had a great meeting with the leaders of that area,
+- [10:03.170] of that region, generally speaking, the Middle East.
+- [10:07.340] We had a meeting the other day at UNGA, as you know,
+- [10:09.930] and I think we're close
+- [10:11.820] to getting some kind of a deal done.
+- [10:14.080] Yeah, we want to get the hostages back.
+- [10:16.460] I have to get hostages.
+- [10:18.370] We're the ones that got the hostages,
+- [10:20.250] all of them that we have now.
+- [10:22.020] But it looks like there are 20 living hostages
+- [10:26.350] and probably 38 or so dead hostages, pretty sad.
+- [10:30.590] And the parents of those dead souls,
+- [10:33.680] those dead mostly men,
+- [10:35.700] boys, in many cases like literally boys.
+- [10:40.070] They want those bodies back so badly,
+- [10:42.690] as much as though they were alive.
+- [10:46.080] And so we had a very good meeting with the representatives
+- [10:50.260] of the most powerful countries in the Middle East.
+- [10:52.440] And I think we're going to be close to a deal.
+- [11:03.240] The Press: We've noticed that in the Ukrainian war
+- [11:06.080] and during the Israeli-Iran war,
+- [11:09.720] the airspace of the NATO countries is very fragile
+- [11:15.240] and it needs to be stronger.
+- [11:18.010] And in that sense, Turkey being the second largest army in NATO,
+- [11:22.980] it needs to support its air force and air defense.
+- [11:26.690] How do you look at this issue in general as a NATO
+- [11:31.630] (inaudible)/
+- [11:33.400] The President: We're in NATO and, you know,
+- [11:35.010] they're paying now five percent of GDP.
+- [11:37.130] Nobody thought that was possible.
+- [11:38.550] And they agreed to that six months ago when I was there.
+- [11:42.610] And the relationship is very good.
+- [11:44.350] The NATO countries, I mean with us,
+- [11:47.360] is the strongest it's ever been.
+- [11:48.710] We used to complain that they paid two percent,
+- [11:50.850] but they're not paying.
+- [11:52.210] The United States was paying almost everything.
+- [11:54.900] And now they're paying five percent and they pay.
+- [11:58.000] And that's trillions of dollars.
+- [11:59.890] You know, we're talking about trillions of dollars.
+- [12:02.510] And they're spending that, giving that money to us,
+- [12:04.800] and we are giving them great defensive,
+- [12:07.580] you know, the Patriots and all of the different javelins,
+- [12:11.070] all the different missile systems
+- [12:12.870] and everything else that they want.
+- [12:14.870] But it's trillions of dollars.
+- [12:17.170] So we appreciate that they did that.
+- [12:19.430] So they went from two percent to five percent of GDP,
+- [12:22.170] and that was something that nobody even would bring up.
+- [12:25.640] Biden should have brought it up a long time ago,
+- [12:28.190] because under Biden we paid $350 billion,
+- [12:32.430] and all it did is make things worse.
+- [12:35.060] So we'll see how it goes. Yeah, go ahead.
+- [12:40.710] The Press: (inaudible)
+- [12:45.340] The President: For Turkey. Yes, we are.
+- [12:51.590] The Press: Are we going to see any steps
+- [12:53.200] going to be taken today about the issue,
+- [12:55.940] about the things that are going on in Gaza, Palestine?
+- [12:59.110] The President: It could be today.
+- [13:00.440] It could be today.
+- [13:02.150] We have a very strong dialog going on with Saudi Arabia,
+- [13:08.170] with I would say you have four or five real leaders
+- [13:11.790] that are being good.
+- [13:13.710] As you know, I met with Qatar, Saudi Arabia and UAE.
+- [13:18.830] We met with Jordan. The King of Jordan was there.
+- [13:21.140] We had great -- we had a really great meeting.
+- [13:24.480] I think a lot was determined at that meeting.
+- [13:27.610] And I have to meet with Israel.
+- [13:29.890] And I have to do that also. They know what I want.
+- [13:34.150] And we think -- I think we can get that one done.
+- [13:36.880] I hope we can it done. A lot of people are dying.
+- [13:40.090] But we want the hostages back. We don't want them back one --
+- [13:43.010] this week, one and two months from now,
+- [13:45.410] three later, and, you know, like the way it's been going.
+- [13:47.690] We got them all back. We got a lot of them back.
+- [13:49.590] We got our American -- the American -- Alexander.
+- [13:52.150] We got the American hostages back.
+- [13:54.850] But we have now 20 plus 38 bodies, dead bodies.
+- [14:00.990] And we want them all back.
+- [14:02.240] And we want them back at one time.
+- [14:04.270] The Press: (inaudible) release the hostages?
+- [14:14.810] The President: Do I think what?
+- [14:16.070] The Press: (inaudible) release the hostages?
+- [14:18.420] The President: I don't know if he'll help in that.
+- [14:19.870] I don't really think we have --
+- [14:21.970] I don't think it'll be necessary in this case.
+- [14:23.880] I think we're going to be in a pretty good position.
+- [14:26.960] There are a lot of people that want that done.
+- [14:28.970] I met with great leaders.
+- [14:30.180] Look, Elver, you saw the people that were there.
+- [14:32.990] And great leaders -- Egypt was also represented.
+- [14:37.500] We met with the leaders of that part of the world.
+- [14:40.310] And they want to see if they can get something done.
+- [14:42.790] And I'm going to have to tell Israel let's go.
+- [14:45.950] We want to get the hostages back.
+- [14:47.450] They want -- everybody wants to see that war over with,
+- [14:49.740] by the way. Everybody.
+- [14:51.860] So we're going to see what happens.
+- [14:59.330] The Press: Mr. President.
+- [15:00.530] How do you see a joint initiative
+- [15:02.250] with President Erdogan to bring the President of Russia, Putin,
+- [15:07.350] and President Zelensky to the table?
+- [15:10.280] The President: Well, I can tell you that President Erdogan
+- [15:12.340] is very respected by both of them.
+- [15:14.900] Everybody respects Erdogan. They really respect Erdogan.
+- [15:19.020] I do.
+- [15:20.280] And I think he could have a big influence if he wants to.
+- [15:23.360] Right now, he's very neutral. He likes being neutral.
+- [15:26.480] So do I. I like being neutral,
+- [15:28.780] but he's somebody that, if he got involved --
+- [15:31.990] the best thing he could do is not buy oil and gas from Russia.
+- [15:36.330] If he did that, that would be -- probably the best thing.
+- [15:39.690] He knows Putin like I know Putin.
+- [15:42.410] I thought Putin -- I settled, as you know, seven wars.
+- [15:46.370] And it's probably more than that,
+- [15:47.640] if you really want to know the real facts.
+- [15:50.010] But seven wars,
+- [15:51.810] and I thought this would be among the easier ones to settle.
+- [15:55.650] But I'm very disappointed in Putin.
+- [15:58.700] And he's been fighting hard, he's fighting long,
+- [16:01.040] and they lost millions --
+- [16:02.440] they lost like a million soldiers.
+- [16:05.830] And you know, they've --
+- [16:07.090] with all of the heavy bombardment
+- [16:08.800] over the last two weeks, they've gained almost no land.
+- [16:13.390] Think of that. They've gained most no land,
+- [16:17.740] and I'm not going to ever call anybody a paper tiger,
+- [16:21.090] but Russia's spent millions and millions of dollars in bombs,
+- [16:26.350] missiles, ammunition, and lives -- their lives.
+- [16:30.100] And they've gained virtually no land.
+- [16:33.910] I think it's time to stop, I really do.
+- [16:36.430] The Press: (inaudible) can you follow up on --.
+- [16:45.620] The President: So where?
+- [16:47.050] The Press: (inaudible) can you pull up on what
+- [16:56.590] (inaudible).
+- [16:59.480] The President: No, I can't. I just -- I can't.
+- [17:05.130] I like this guy. I like him. He's from CNN. Fake news.
+- [17:09.140] The worst fake news, but I like him.
+- [17:11.420] So it's CNN Turkey. Go, go.
+- [17:19.690] The Press: Syria has been a major issue
+- [17:21.780] between the two countries for the past decade.
+- [17:24.630] And you said the future of Syria is in Erdogan's tanks back in
+- [17:29.050] I think December and January.
+- [17:30.840] And the countries are in the process
+- [17:33.060] of integrating missile fractures into the main government.
+- [17:37.930] When do you want to see that happen?
+- [17:39.680] The President: Well, I think President Erdogan
+- [17:41.270] is the one responsible for Syria,
+- [17:45.230] for the successful fight
+- [17:47.960] in ridding Syria of its past leader.
+- [17:51.370] And I think this man is responsible.
+- [17:53.300] He doesn't take the responsibility,
+- [17:54.870] but it's actually a great achievement.
+- [17:56.430] They've been trying to do it for 2,000 years.
+- [17:59.080] I said, he does it. He did it. I mean, they're your surrogates.
+- [18:02.760] I think you should take the credit for it.
+- [18:04.170] I told him, take the credit.
+- [18:06.800] For 2,000 years, you've been trying to take over Syria.
+- [18:10.470] He took over Syria, and he doesn't want to take the credit.
+- [18:12.880] You know, all of those people are his surrogates.
+- [18:15.560] But the leader of Syria, the new leader, as you know,
+- [18:18.500] I took sanctions off in order to let them breathe,
+- [18:21.270] because those sanctions were very strong.
+- [18:23.590] But I think we should have a major announcement today.
+- [18:27.030] He was responsible for that victory.
+- [18:28.790] It was a victory for Turkey,
+- [18:30.630] because they've been fighting, as know, for like 1,000 year.
+- [18:35.830] It never went, you know, it was back and forth,
+- [18:38.040] but he's responsible for that.
+- [18:40.090] So he would have a lot to say with respect to Syria.
+- [18:42.580] But at his request, I took --
+- [18:46.550] and the request also of the King of Saudi Arabia,
+- [18:49.540] it's very interesting, and Qatar.
+- [18:52.140] They said, if you could, take the sanctions.
+- [18:56.130] We had very strong sanctions.
+- [18:58.030] They couldn't have lived with those sanctions,
+- [18:59.570] and I took them off to give them a chance to breathe.
+- [19:03.310] But the President was one of the people
+- [19:05.590] that was responsible for that. He asked me to do it.
+- [19:13.250] The Press: Mr. President (inaudible)
+- [19:14.600] in the government shuts down, why is the administration
+- [19:18.390] directing federal layoffs of federal workers?
+- [19:22.210] The President: Well, this is all caused by the Democrats.
+- [19:24.220] They asked us to do something that's totally unreasonable.
+- [19:27.880] They never change.
+- [19:29.140] They want to give money away to illegals, illegally.
+- [19:32.860] People that entered our country illegally,
+- [19:34.690] they want to a massive federal money.
+- [19:37.730] And we don't want to do that,
+- [19:39.070] because it means everyone's going to just keep pouring --
+- [19:41.470] right now, we have absolutely perfect borders,
+- [19:44.390] like you haven't seen in many years.
+- [19:46.470] Even better than the --
+- [19:47.670] I had great borders during my four years.
+- [19:50.310] But these borders are stone-cold closed.
+- [19:52.250] You can only come into our country legally now,
+- [19:55.050] but the Democrats want to give it all away.
+- [19:56.860] They want to also, they want to open up the borders.
+- [20:00.080] Take a look at that.
+- [20:01.690] Big thing, they want to open borders again.
+- [20:03.530] After what we're going through now, getting rid of prisoners,
+- [20:06.210] getting rid of all of these people
+- [20:08.500] dropped out from mental institutions,
+- [20:11.130] drug dealers, drug addicts, everything.
+- [20:14.010] They're putting everybody into our country.
+- [20:16.240] It's all ended now.
+- [20:18.010] But this is what Schumer wants. This is what the Democrats want.
+- [20:21.360] They want to have -- and they want to take our money,
+- [20:24.450] we're doing well, because of tariffs.
+- [20:26.060] We're doing unbelievable.
+- [20:27.320] We're making more money than we ever have made.
+- [20:29.480] And by the way, we're going to take some of that tariff money
+- [20:32.280] that we've made, just to get off the subject for a second.
+- [20:35.390] We're going take some of the tariff money that made.
+- [20:37.850] We're going to give it to our farmers,
+- [20:39.640] who are, for a little while,
+- [20:42.270] going to be hurt until it kicks in,
+- [20:44.170] the tariffs kick into their benefit.
+- [20:46.230] So we're going to make sure that our farmers are in great shape,
+- [20:48.570] because we're taking in a lot of money.
+- [20:51.000] We're finding -- the other day, it was very interesting.
+- [20:54.150] They found $31 billion. They said, sir, we found 31.
+- [20:58.610] I said, you mean positively, right?
+- [21:00.120] They said yeah, 31 million more than we knew.
+- [21:03.380] And they said, we don't know where it came from.
+- [21:05.780] I said check the tariff shelf.
+- [21:09.240] They came back the following morning.
+- [21:10.740] They said you're right, sir. It came from the tariffs.
+- [21:14.240] We've never seen anything like this.
+- [21:15.900] So what we're going to be doing
+- [21:18.260] is we're going to be taking some money
+- [21:20.960] from all of the tariff money that we've taken
+- [21:23.070] and we're going to distribute it to our farmers
+- [21:25.670] until the tariffs kick into their benefit,
+- [21:28.050] which ultimately,
+- [21:29.350] the farmers are going to be making a fortune.
+- [21:32.510] But it's a process of it has to kick in.
+- [21:35.040] Alright, maybe one more.
+- [21:38.290] The Press: There was another shooting
+- [21:40.380] at an ICE facility in Texas yesterday.
+- [21:42.940] Detainees were killed.
+- [21:44.800] The FBI director posted on social media bullets
+- [21:48.140] that were engraved with the message anti-ICE.
+- [21:50.410] He just posted another thing on social medias
+- [21:52.410] saying they recovered a handwritten note
+- [21:54.380] from the subject that read hopefully
+- [21:56.090] this will give ICE agents real terror
+- [21:58.060] to think is there a sniper with AP rounds.
+- [22:01.030] On that roof, who do you hold responsible
+- [22:03.350] for the uptick in left-wing violence?
+- [22:05.550] The President: Radical left rhetoric.
+- [22:07.530] The radical left is causing the problem.
+- [22:10.890] They're out of control. They're saying things.
+- [22:13.780] And they're really dumb people.
+- [22:15.330] I look at Crockett, I look some of these people there.
+- [22:18.060] They are very low IQ people, actually.
+- [22:21.850] But the radical left is causing this problem.
+- [22:24.290] Not the right, the radical left. And it's going to get worse
+- [22:27.820] and ultimately it's going to go back on them.
+- [22:29.590] I mean, bad things happen when they play these games.
+- [22:33.150] And I'll give you a little clue.
+- [22:35.960] The right is a lot tougher than the left.
+- [22:38.310] But the right's not doing this. They're not doing it.
+- [22:41.020] And they better not get them energized.
+- [22:43.550] Because it won't be good for the left
+- [22:45.380] and I don't want to see that happen either.
+- [22:46.890] I'm the President of all the people.
+- [22:49.310] But the radical left is causing this radical left,
+- [22:51.780] Democrats are causing this problem.
+- [22:54.270] And it gets worse.
+- [22:56.920] It gets worse and it'll be a point
+- [22:59.240] where other people won't take it anymore.
+- [23:02.210] That will not be good for the radical left.
+- [23:04.290] We don't want that.
+- [23:11.260] The Press: It seems like in an indictment of James Comey
+- [23:13.550] is intimate.
+- [23:14.780] Would this be the first step in accountability
+- [23:18.030] for pushing the hoax of Russia, Russia, Russia,
+- [23:21.530] along with Barack Obama involved as well?
+- [23:23.880] The President: Well, I can't tell you what's going to happen
+- [23:25.370] because I don't know.
+- [23:26.590] You have very professional people headed up
+- [23:29.260] by the attorney general Todd, Todd Blanch and Lindsay Alligan,
+- [23:34.230] who's very smart, good lawyer, very good lawyer.
+- [23:37.280] They're going to make a determination.
+- [23:38.660] I'm not making that determination.
+- [23:39.940] I think I'd be allowed to get involved if I want,
+- [23:42.020] but I don't really choose to do so.
+- [23:44.230] I can only say that Comey's a bad person.
+- [23:47.760] He's a sick person. I think he's a sick guy, actually.
+- [23:50.820] He did terrible things to the FBI.
+- [23:54.400] But I don't know.
+- [23:55.610] I have no idea what's going to happen.
+- [23:57.420] Thank you very much everybody.

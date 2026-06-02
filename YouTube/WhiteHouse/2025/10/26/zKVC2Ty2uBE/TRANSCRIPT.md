@@ -1,0 +1,170 @@
+<!-- source: https://www.youtube.com/watch?v=zKVC2Ty2uBE -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: zKVC2Ty2uBE -->
+<!-- date_published: 2025-10-26T06:37:08+00:00 -->
+<!-- date_accessed: 2026-06-02T02:42:43.934406+00:00 -->
+
+# Transcript: President Trump Participates in a Working Session with U.S. - ASEAN Leaders
+
+- [00:04.799] I invite you to deliver your opening
+- [00:07.120] remarks.
+- [00:08.480] >> Thank you very much. It's a great honor
+- [00:10.240] to be here. So many friends in this room
+- [00:14.799] and so many new friends. I want to thank
+- [00:17.840] Prime Minister Anoir for hosting us.
+- [00:21.039] spectacular man and for organizing this
+- [00:24.080] year's ASEAN summit here in beautiful
+- [00:29.599] Koala Lumpur.
+- [00:31.679] As you know, this has been an incredibly
+- [00:33.760] successful day for Malaysia.
+- [00:36.559] Great honor to be here. I promised I'd
+- [00:39.280] be here when
+- [00:41.440] the prime minister helped us so
+- [00:44.000] beautifully with our peace treaty among
+- [00:47.280] two very friendly countries. I think we
+- [00:49.920] can say right now and here I am and it's
+- [00:54.079] really something to see what you've done
+- [00:57.120] for the United States and for all
+- [00:58.800] nations across this magnificent region.
+- [01:01.120] They're all watching and they're seeing
+- [01:03.039] what's taking place. Thank you very
+- [01:04.640] much. It's a great honor.
+- [01:07.200] Today, the prime minister and I signed a
+- [01:09.119] major trade deal between the United
+- [01:11.600] States and Malaysia and together we took
+- [01:14.159] part in the signing of a historic peace
+- [01:16.159] agreement ending the hostilities between
+- [01:18.880] Cambodia and Thailand. And we're calling
+- [01:21.680] it the Koala Lampur Peace Accords.
+- [01:25.920] I once again want to congratulate Prime
+- [01:28.000] Minister
+- [01:29.520] Moon Manet of Cambodia
+- [01:32.960] and Prime Minister Pan Newton of
+- [01:36.640] Thailand
+- [01:38.479] who had to return home because of the
+- [01:41.520] Queen's passing.
+- [01:44.320] This magnificent woman known all over
+- [01:47.360] the world and respected by everybody.
+- [01:51.600] But this was a great achievement that
+- [01:53.920] she was very proud of. I also want to
+- [01:57.040] thank the other ASEAN countries for
+- [01:59.840] agreeing to send observers and in most
+- [02:02.640] cases your heads of state because I
+- [02:05.360] don't see too many observers. I only see
+- [02:07.200] heads of state to help ensure a lasting
+- [02:11.440] settlement. Today's signing represents
+- [02:13.920] just one of eight conflicts that we've
+- [02:15.920] ended in eight months of the Trump
+- [02:18.800] presidency. I'm very honored to have
+- [02:20.319] done it. We saved millions of lives.
+- [02:22.879] That also includes the end of the war in
+- [02:25.120] Gaza. We've signed a very strong
+- [02:27.920] agreement. We have 59 countries involved
+- [02:31.920] and we have [snorts] numerous of them
+- [02:34.720] right here at this table.
+- [02:37.280] Like as an example, Indonesia, my new
+- [02:40.000] friend. Thank you very much for helping.
+- [02:42.640] We appreciate it. I want to thank
+- [02:44.720] Malaysian Brunai as well as my friend
+- [02:49.040] President Brao of Indonesia for their
+- [02:53.120] incredible support of these efforts to
+- [02:56.000] secure the new day for the Middle East.
+- [02:57.760] It really is a new day. There's never
+- [02:59.360] been a period of time like this.
+- [03:03.200] The Middle East will have peace after
+- [03:05.920] 3,000 years. This is a very strong
+- [03:09.120] peace. It's going to be an everlasting
+- [03:10.800] peace.
+- [03:12.560] It's true a it really is a true pleasure
+- [03:16.480] to be back with all of you in Southeast
+- [03:19.280] Asia, home of some of America's most
+- [03:22.159] important allies and countries and
+- [03:24.159] partners
+- [03:25.760] in the entire world. They look up to
+- [03:28.319] you. I'm here on a mission of friendship
+- [03:30.799] and goodwill and to deepen our ties of
+- [03:33.440] commerce to strengthen our common
+- [03:35.200] security and to really promote strongly
+- [03:38.799] stability, prosperity and peace for all
+- [03:41.440] of the countries in this room and long
+- [03:44.400] beyond this room. That's why I'm
+- [03:46.560] delighted that in addition to the
+- [03:48.720] agreement with Malaysia this week, we're
+- [03:50.640] also signing or nearing completion on
+- [03:52.879] trade deals with many other Indo-Pacific
+- [03:56.799] partners from Cambodia to Japan to South
+- [03:59.840] Korea. We're delighted to forge richer
+- [04:02.560] partnerships on energy technology,
+- [04:04.720] artificial intelligence,
+- [04:07.040] critical minerals, and other industries.
+- [04:10.000] The United States is having its golden
+- [04:12.959] age.
+- [04:14.480] Last year we were a country that was
+- [04:16.160] doing very poorly under a different
+- [04:18.720] semile leadership. I don't even call it
+- [04:20.479] a leadership.
+- [04:22.400] But this year we're doing numbers that
+- [04:24.400] nobody ever thought it was possible for
+- [04:26.320] any country to do. We'll be at the end
+- [04:29.120] of my first year over 20 trillion
+- [04:31.040] dollars worth of investment into the
+- [04:34.000] United States. There's no country
+- [04:35.520] anywhere that's ever done anything close
+- [04:37.199] to that. The United States last year for
+- [04:40.960] the four years it was announced did less
+- [04:44.400] than1 trillion dollars and we're going
+- [04:46.080] to be doing over 20. That's quite a
+- [04:49.040] difference. I'd like to uh just say the
+- [04:52.560] United States is for you. It's committed
+- [04:55.120] to a free and open and thriving
+- [04:56.800] Indo-Pacific. My message to the nations
+- [05:00.240] of Southeast Asia is that the United
+- [05:02.400] States is with you 100% and we intend to
+- [05:06.000] be a strong partner and friend for many
+- [05:08.800] generations to come. One year ago, we
+- [05:12.479] were in a different position, but now
+- [05:15.039] we're in the best position we've ever
+- [05:17.759] been. And I really do I say it's the
+- [05:20.080] golden age of America, golden age of the
+- [05:22.880] United States. together will create
+- [05:25.520] incredible prosperity for the nations on
+- [05:27.919] both sides of the Pacific Ocean and to
+- [05:30.160] seize new opportunities for all of our
+- [05:33.520] people. It's uh really
+- [05:37.039] been an amazing experience. I've been
+- [05:38.960] here for a day, but it's been an amazing
+- [05:40.960] experience to see some of the things
+- [05:42.479] that you've done. And the prime minister
+- [05:45.360] made sure I saw everything, every single
+- [05:47.919] thing. When I said, "Well, that's okay.
+- [05:50.320] Maybe I'll take it easy for a little
+- [05:51.759] while." I said, "No, no, I have other
+- [05:53.199] things to show you." We even rode in the
+- [05:55.759] car together, and he's something. But
+- [05:59.120] America's ties to this region date back
+- [06:01.680] to early days of our republic when
+- [06:04.319] fearless Americans voyage across the
+- [06:06.400] Pacific to establish outposts of trade
+- [06:08.720] and diplomacy here in Asia. Those bonds
+- [06:12.160] forged so long ago continue to
+- [06:14.160] strengthen and grow to this day,
+- [06:16.560] including here in Koala Lur. I'm looking
+- [06:19.680] forward to speaking with many of you
+- [06:21.440] today and also at APEC in South Korea
+- [06:25.280] later this week where we're heading.
+- [06:27.680] Once again, thank you very much, Mr.
+- [06:29.440] Prime Minister, and thank you to
+- [06:31.759] everyone in this room. You are
+- [06:33.360] spectacular leaders. You are incredible
+- [06:36.080] people, your energy, your genius, your
+- [06:39.440] everything you do, and I say it truly,
+- [06:42.720] everything you touch turns to gold.
+- [06:45.680] And you can be very proud of it. other
+- [06:47.600] parts of the world are not like this. Uh
+- [06:51.520] you're very special people and it's a
+- [06:53.759] very very special place. Thank you very
+- [06:55.600] much. It's a great honor to be with you.
+- [06:57.280] Thank you.
+- [07:01.824] [applause]
+- [07:02.400] >> Thank you members of the media.

@@ -1,0 +1,706 @@
+<!-- source: https://www.youtube.com/watch?v=im5y3yC16WM -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: im5y3yC16WM -->
+<!-- date_published: 2025-05-28T16:52:07+00:00 -->
+<!-- date_accessed: 2026-06-02T02:49:12.542628+00:00 -->
+
+# Transcript: President Trump Participates in a Swearing-In for the US Attorney for the District of Columbia
+
+- [00:01.210] The President: Thank you very much.
+- [00:03.050] So today, we're honored to swear in Jeanine Pirro,
+- [00:05.910] somebody I've known for a long time,
+- [00:07.650] and she's an incredible person and incredible woman,
+- [00:10.700] as our new interim
+- [00:11.940] United States Attorney for the District of Columbia,
+- [00:14.780] that's a big deal.
+- [00:16.430] And I'd like to congratulate Jeanine and her whole family.
+- [00:20.040] And we have Christine with us,
+- [00:22.020] and Alex, I know, is in a very, very important place right now.
+- [00:27.600] And the two children, but they're not children anymore.
+- [00:30.890] And I've heard that Christine, you're doing unbelievably well
+- [00:35.060] and very successful at a great law firm.
+- [00:37.340] So it's great to have you with us.
+- [00:38.670] Thank you very much. Over five decades,
+- [00:42.260] Jeanine Pirro, known by millions as Judge Jeanine,
+- [00:46.810] has devoted her life to the pursuit of justice,
+- [00:49.180] the defense of freedom, and the fair, equal,
+- [00:52.460] and impartial rule of law. And that's what she's about.
+- [00:55.390] She was a great DA. I remember her very well.
+- [00:58.570] She was as good as anybody I've seen.
+- [01:01.970] She began a career in 1975
+- [01:04.180] as an assistant district attorney
+- [01:05.950] in Westchester County, New York,
+- [01:07.510] where she prosecuted violent crimes.
+- [01:10.190] And that was a serious prosecute.
+- [01:12.190] And she went after real criminals,
+- [01:14.000] not fake criminals like we seem to do today,
+- [01:18.550] nowadays, people that shouldn't be prosecuted,
+- [01:22.030] including rape, murder, and was tireless warrior,
+- [01:25.240] a tireless warrior on behalf of the most vulnerable people
+- [01:27.930] in our society.
+- [01:29.180] In that role, Jeanine helped create one of our country's
+- [01:32.430] first domestic violence bureaus.
+- [01:34.140] I think it was the first, Jeanine.
+- [01:35.730] And as its chief,
+- [01:36.930] she revolutionized victim protection and bold,
+- [01:40.360] innovative policies like very few people even thought of.
+- [01:43.730] In 1990, Jeanine became the first female judge
+- [01:47.180] in Westchester County history. And following the year,
+- [01:50.570] and by the way, very distinguished,
+- [01:51.990] had an unbelievable distinguished career.
+- [01:54.970] And in the following years,
+- [01:56.200] she presided over numerous complex criminal cases.
+- [01:59.410] The reason they were complex is that other judges
+- [02:01.460] were not able to understand them.
+- [02:03.400] They were called the complex cases.
+- [02:05.000] My sister had them, too.
+- [02:06.200] They always used to give her the complex cases
+- [02:08.760] because other people didn't understand them,
+- [02:11.220] including high stakes felony narcotics trials.
+- [02:13.770] Her outstanding judicial record earned her the honor
+- [02:16.810] for being named the number one judge in 1990
+- [02:20.120] by the Independent Fund for Modern Courts.
+- [02:23.090] That's nationwide. Outstanding judge.
+- [02:26.220] The following year, Judge Jeanine
+- [02:27.670] was elected Westchester County District Attorney,
+- [02:30.060] became the top prosecutor for a jurisdiction that included
+- [02:33.390] some of the largest suburbs in New York City,
+- [02:36.860] including Yonkers and White Plains.
+- [02:38.750] It's a big deal. As District Attorney Jeanine
+- [02:41.880] tackled high-profile violent crime cases
+- [02:44.360] and establish one of the nation's
+- [02:45.860] most successful cybercrime units to combat online child abuse.
+- [02:50.760] She was way ahead of a lot of people.
+- [02:54.050] They still aren't there, if you get right down to it,
+- [02:56.310] from what I hear. They're still not there.
+- [02:58.260] In many cases, back there where we come from.
+- [03:00.910] In addition to her stellar legal career,
+- [03:03.040] Jeanine also excelled in news media as her, as you know,
+- [03:07.320] and she's become one of the most beloved political figures
+- [03:11.420] through her time on television
+- [03:14.080] because she's been very, very successful.
+- [03:16.720] Thing called television, she got out of what she was doing.
+- [03:20.090] And frankly, she does them both great, but she's really, to me,
+- [03:23.040] she'll always be known as a great lawyer
+- [03:24.670] and a great prosecutor, which is what she's doing now.
+- [03:27.950] So Jeanine Pirro, I have no doubt,
+- [03:30.300] will be an exceptional U.S. Attorney
+- [03:32.130] for the District of Columbia,
+- [03:33.660] one of the truly most important positions
+- [03:36.300] in our country, of any position,
+- [03:38.570] where she will restore public safety in our nation's capital,
+- [03:41.760] break up vicious street gangs and criminal networks,
+- [03:44.540] and ensure equal justice under the law.
+- [03:46.990] You'll see very, very big improvements in the D.C. area
+- [03:50.480] that I can promise you.
+- [03:52.380] So I want to congratulate Jeanine.
+- [03:54.250] I want congratulate you and Christine
+- [03:56.260] and your whole family on this undertaking.
+- [04:00.000] And, as you know, Pam Bondi is doing an unbelievable job
+- [04:04.510] as our real leader, leader in the fight against crime.
+- [04:08.250] And Pam heard about this, and Pam said,
+- [04:12.120] I'll have to find time for Jeanine.
+- [04:13.620] She doesn't have time to do this,
+- [04:14.990] but for Jeanine, she did,
+- [04:16.200] and she's going to be doing the swearing-in.
+- [04:18.190] So, Pam, thank you very much for the great job you're doing
+- [04:20.550] and for swearing in our friend,
+- [04:23.090] Justice Jeanine, good. Thank you.
+- [04:40.030] AG Bondi: I solemnly swear?
+- [04:42.430] AG Pirro: I, Jeanine Piro, do solemnly swear.
+- [04:45.320] AG Bondi: That I will support and defend
+- [04:46.930] the Constitution of the United States.
+- [04:49.500] AG Pirro: That I will support and defend
+- [04:51.260] the Constitution of the United States.
+- [04:53.700] AG Bondi: Against all enemies, foreign and domestic.
+- [04:56.210] AG Pirro: Against all enemies, foreign and domestic.
+- [04:58.960] AG Bondi: And that I will bear true faith and allegiance
+- [05:01.430] to the same.
+- [05:02.640] AG Pirro: That I will bear true faith and allegiance
+- [05:04.760] to the same.
+- [05:06.190] AG Bondi: I take this obligation freely.
+- [05:09.170] AG Pirro: I take this oblication freely.
+- [05:11.370] AG Bondi: Without any mental reservation.
+- [05:13.480] AG Pirro: Without any mental reservation.
+- [05:15.280] AG Bondi: Or purpose of evasion.
+- [05:16.800] AG Pirro: Or purpose of evasion.
+- [05:18.430] AG Bondi: And that I will well and faithfully,
+- [05:20.580] AG Pirro: And that I will well and faithfully.
+- [05:22.810] AG Bondi: Discharge the duties of the office
+- [05:26.950] upon which I am about to enter.
+- [05:28.300] AG Pirro: Discharge the duties of the office
+- [05:29.730] upon which I am about to enter.
+- [05:31.620] AG Bondi: So help me God.
+- [05:32.830] AG Pirro: So help me God.
+- [05:34.310] AG Bondi: Congratulations.
+- [05:36.980] (applause)
+- [05:47.190] AG Pirro: Thank you, Mr. President,
+- [05:48.630] and thank you, Madam Attorney General,
+- [05:51.500] both my friends for many years.
+- [05:54.440] Long ago, I went to law school to study about justice
+- [06:00.950] and to bring justice to victims of violent crimes,
+- [06:04.860] women, children, and the elderly.
+- [06:07.750] I fought to give them a voice in a system
+- [06:10.890] that was both blind and deaf to their concerns.
+- [06:15.370] I dedicated my heart and soul
+- [06:17.970] to making sure that there was a system that responded to them.
+- [06:23.070] My profile and my prosecutorial successes
+- [06:26.840] garnered public attention
+- [06:28.150] and my life took unexpected turns.
+- [06:31.630] Through all of this, President Trump,
+- [06:34.000] you have remained as steadfast
+- [06:36.420] as one of my earliest supporters and champions.
+- [06:40.040] You never wavered.
+- [06:41.890] You were always steadfast, trustworthy and confident.
+- [06:47.620] Today Mr. President, you bring me back to my roots.
+- [06:52.460] And it is a larger arena,
+- [06:55.160] but no less an arena where we need justice,
+- [06:59.400] where we send a message that justice will be honored
+- [07:03.890] in the District of Columbia.
+- [07:06.340] And just last week, here in our nation's capital two people
+- [07:11.600] on the brink of beginning their life had hopes and dreams
+- [07:15.640] that were never realized because a cold blooded murderer
+- [07:20.460] made a decision to shoot them down on the streets
+- [07:23.640] on a cold rainy night in our nation's capital.
+- [07:28.540] This will not go without just accounting.
+- [07:33.790] My voice should be heard loud and clear.
+- [07:37.550] No more, no more tolerance of hatred,
+- [07:42.350] no more mercy for criminals.
+- [07:45.580] Violence will be addressed directly
+- [07:48.970] with the appropriate punishment.
+- [07:51.760] And this city will again become a shining city on a hill
+- [07:56.840] in an America that President Trump
+- [08:00.070] has promised to make great again and will make safe again.
+- [08:05.660] Mr. President, America thanks you and I thank you.
+- [08:11.740] (applause)
+- [08:18.530] The President: Any questions you'd like to ask?
+- [08:25.790] AG Pirro: You just want to talk to him, I get it.
+- [08:28.150] The President: (inaudible)
+- [08:30.570] AG Pirro: Thank you.
+- [08:31.910] The President: She's going to be fantastic.
+- [08:33.170] Thank you very much. AG Pirro: Thank you.
+- [08:34.480] The President: There's no question,
+- [08:35.730] because there's no doubt.
+- [08:37.770] We have no doubt you're going to fantastic.
+- [08:39.800] AG Pirro: Thank you, Mr. President.
+- [08:46.880] The Press: Do you believe the Russians are being disrespectful
+- [08:49.340] when they say that your criticisms of Putin
+- [08:52.080] are simply an emotional response,
+- [08:54.070] and do you still believe
+- [08:55.320] that Putin actually wants to end the war?
+- [08:57.970] The President: I can't tell you that,
+- [08:59.170] but I'll let you know in about two weeks,
+- [09:01.020] within two weeks. We're going to find out very soon.
+- [09:04.620] We're going to find out whether or not
+- [09:06.780] he's tapping us along or not.
+- [09:08.640] And if he is, we'll respond a little bit differently,
+- [09:11.470] but it'll take about a week and a half, two weeks.
+- [09:13.440] We have -- Mr. Witkoff is here, is doing a phenomenal job,
+- [09:17.650] is dealing with them very strongly right now.
+- [09:22.090] They seem to want to do something,
+- [09:23.450] but until the document is signed,
+- [09:26.180] I can tell you. Nobody can.
+- [09:28.650] I can say this, I can this that I'm very disappointed
+- [09:33.980] at what happened a couple of nights now
+- [09:37.270] where people were killed in the middle
+- [09:39.710] of what you would call a negotiation.
+- [09:41.540] I'm disappointed by that.
+- [09:43.200] Very, very disappointed. Yeah, please.
+- [09:45.220] The Press: (inaudible)
+- [09:55.330] do you have any frustration
+- [09:57.050] with his handling of the situation of the war?
+- [09:58.940] The President: No, we're dealing
+- [10:00.180] with the whole situation in Gaza.
+- [10:02.850] We're getting food to the people of Gaza.
+- [10:06.350] It's been a very nasty situation, very nasty fight.
+- [10:09.790] October 7th was a very nasty day,
+- [10:11.820] the worst that I think I've ever seen.
+- [10:14.200] It was a horrible day,
+- [10:15.400] and people aren't going to forget that either.
+- [10:17.780] So we'll see how that all works out.
+- [10:19.730] And Steve, would you want to say a couple of words about Gaza,
+- [10:22.270] because you just have some information?
+- [10:25.400] Steve Witkoff, do you want to come up for a second?
+- [10:29.350] You might give them a little bit of information
+- [10:31.130] as to what's happening with Gaza and also Israel.
+- [10:33.560] We're having some very good talks with Iran.
+- [10:36.050] We'll find out whether that means anything,
+- [10:37.800] but we're having good talks.
+- [10:43.210] SW: Well, hi, everybody.
+- [10:48.230] I think that we are on the precipice
+- [10:50.220] of sending out a new term sheet
+- [10:53.760] that hopefully will be delivered later on today.
+- [10:56.890] The President is going to review it,
+- [10:58.960] and I have some very good feelings about
+- [11:01.410] getting to a long-term resolution,
+- [11:05.900] temporary ceasefire, and a long term resolution,
+- [11:09.030] a peaceful resolution of that conflict.
+- [11:12.800] The President: It's having to do with Iran.
+- [11:15.540] We're having very good talks with Iran
+- [11:16.890] The Press: Mr. President, you said yesterday
+- [11:18.190] that Putin is playing with fire.
+- [11:20.080] What would be the consequences for Russia
+- [11:22.860] if he continues to -- if Russia continues to --
+- [11:24.440] The President: Well, I'm not going to tell you exactly,
+- [11:26.050] but the words speak pretty loud.
+- [11:30.560] We're not happy about that situation.
+- [11:32.340] I think we're doing very well with Iran.
+- [11:36.800] We're doing well with Gaza,
+- [11:39.470] but we are doing very good with Iran,
+- [11:41.060] and I think we're going to see something very sensible,
+- [11:45.640] because there are only two outcomes.
+- [11:47.020] You know what the two outcomes is.
+- [11:48.480] There is a smart outcome and there is a violent outcome.
+- [11:53.050] Anybody who wants to see the second.
+- [11:55.230] But I think we've made a lot of progress, and we'll see.
+- [11:58.480] You know, they still have to agree
+- [12:01.060] to the final stages of a document,
+- [12:03.070] but I think you could be very well
+- [12:04.540] surprised what happens there.
+- [12:05.810] And it would be a great thing for them.
+- [12:07.590] It could have a great country into the future.
+- [12:10.640] The Press: Mr. President, Elon Musk
+- [12:11.860] in a television interview criticized
+- [12:13.560] the One Big Beautiful Bill,
+- [12:16.230] saying he was disappointed it didn't cut enough,
+- [12:18.480] essentially, that it undercut the DOGE efforts.
+- [12:20.460] What's your reaction to that?
+- [12:21.770] The President: Well, the reaction is a lot of things.
+- [12:23.900] Number one, we have to get a lot votes.
+- [12:25.740] We can't be cutting -- you know, we need to get a lot support,
+- [12:31.470] and we have a lot of support.
+- [12:33.270] We had to get it through the House.
+- [12:34.560] The House was -- we have no Democrats.
+- [12:36.860] You know if it's up to the Democrats,
+- [12:38.270] they'll take the 65 percent increase.
+- [12:40.110] You know if that doesn't get approved
+- [12:42.310] this country is going to have a 65 percent increase in taxes
+- [12:45.850] and lots of other problems.
+- [12:47.280] Big problems. Almost bigger than that.
+- [12:50.500] But we'll have a 65 percent increase
+- [12:52.990] as opposed to the largest tax
+- [12:54.550] cut in the history of our country.
+- [12:57.730] We will be negotiating that bill,
+- [12:59.750] and I'm not happy about certain aspects of it,
+- [13:02.920] but I'm thrilled by other aspects of.
+- [13:04.720] That's the way they go. It's very big.
+- [13:06.300] It's the Big Beautiful Bill,
+- [13:08.290] but the beautiful is because of all of the things we have.
+- [13:11.630] The biggest thing being, I would say the level of tax
+- [13:16.730] cutting that we're going to be doing.
+- [13:18.310] We're going to make people really be able to --
+- [13:20.270] we'll have one of the one of the lowest tax rate
+- [13:22.670] we've ever had in the history of our country
+- [13:25.330] and tremendous amounts of benefit
+- [13:27.020] are going to the middle-income people of our country --
+- [13:29.280] low and middle Income people of our country.
+- [13:32.670] So we're going to see what happens
+- [13:34.160] because the Senate is you know is negotiating with us
+- [13:37.110] and they have to then go back to the house and you know,
+- [13:39.620] it's got a way to go but I have to say speaker
+- [13:43.080] Johnson And Thune has done an incredible job.
+- [13:46.790] John Thune is done a fantastic --
+- [13:48.210] leader Thune -- a fantastic job.
+- [13:51.220] And they're working together with me and others.
+- [13:54.100] And I think we have an amazing --
+- [13:55.870] if we pull this off -- remember,
+- [13:57.160] we have zero Democrat votes because they're bad people.
+- [13:59.900] There's something wrong with them.
+- [14:01.420] You know, they're -- they'll let people pour into our country.
+- [14:04.740] Single biggest problem is we have 21 million people
+- [14:07.690] pour into out country -- probably higher than that.
+- [14:10.900] And the people that weren't supposed to be here.
+- [14:12.880] And many of those people are bad.
+- [14:14.500] Murderers, drug dealers, the mentally insane.
+- [14:19.380] They were closing mental institutions all over the world,
+- [14:21.510] not South America.
+- [14:22.750] All over the word, they're coming into our country,
+- [14:24.660] and we're getting them out. We're having a hard time
+- [14:26.960] because some judges aren't making it very easy for us,
+- [14:29.870] and it's tough enough. They approved that.
+- [14:32.100] They allowed that to happen to our country.
+- [14:34.240] We don't have one Democrat vote.
+- [14:36.890] And if I were a Democrat, I'd be voting for this bill,
+- [14:39.490] and I'd get elected to any position I want as a Democrat.
+- [14:43.280] They're crazy. They're voting for a 65% tax increase,
+- [14:47.720] and they're only doing it for hatred.
+- [14:49.100] They're not doing it any reason. They know it's terrible.
+- [14:52.610] Terrible politics, in my opinion.
+- [14:54.750] So we have no Democrat votes.
+- [14:56.010] That means we have to get almost all Republican votes,
+- [14:59.340] and I think we're very close to doing that.
+- [15:01.070] I think it'll be very successful. Yeah, please.
+- [15:03.210] The Press: Mr. President, Wall Street analysts
+- [15:04.540] have coined a new term called the taco trade.
+- [15:06.700] They're saying Trump always chickens out
+- [15:08.670] on your tariff threats,
+- [15:09.900] and that's why markets are higher this week.
+- [15:11.710] What's your response to that?
+- [15:13.020] The President: I kick out?
+- [15:14.260] The Press: Chicken out.
+- [15:15.920] The President: Oh, and then I chicken out.
+- [15:17.290] I've never heard that.
+- [15:18.570] You mean because I reduced China from 145 percent
+- [15:21.970] that I set down to 100 and then down to another number,
+- [15:25.610] and I said you have to open up your whole country?
+- [15:28.340] And because I gave the European Union a 50 percent tax tariff,
+- [15:36.520] and they called up and they said, please,
+- [15:38.450] let's meet right now. Please, let's meet right now
+- [15:41.700] and I said, okay, I'll give you till June 9th.
+- [15:44.700] I actually asked them, I said what's the date?
+- [15:46.740] Because they weren't willing to meet.
+- [15:48.450] And after I did what I did,
+- [15:49.740] they said, we'll meet any time you want.
+- [15:53.260] And we have an end date of July 9th,
+- [15:56.900] you call that chickening out?
+- [15:58.190] Because we have $14 trillion now invested,
+- [16:02.250] committed to investing
+- [16:03.550] when Biden didn't have practically anything, Biden.
+- [16:06.800] This country was dying.
+- [16:08.130] You know, we have the hottest country anywhere in the world.
+- [16:10.070] I went to Saudi Arabia. The King told me.
+- [16:12.900] He said, you got the hottest comp.
+- [16:14.530] We have the hardest country in the world right now.
+- [16:17.430] Six months ago, this country was stone cold dead.
+- [16:21.190] We had a dead country.
+- [16:22.440] We had country people didn't think it was going to survive.
+- [16:24.720] And you ask a nasty question like that.
+- [16:28.060] It's called negotiation. You set a number.
+- [16:30.500] And if you go down, you know,
+- [16:31.740] if I set a number at a ridiculous high number
+- [16:34.050] and I go down a little bit, you know, a little bit.
+- [16:37.470] They want me to hold that number, 145 percent tariff.
+- [16:41.550] Even I said, man, that really got up.
+- [16:43.630] You know how it got?
+- [16:44.870] Because of fentanyl and many other things,
+- [16:47.000] and you added it up. I said where are we now?
+- [16:50.130] We're at 145%. I said woo, that's high.
+- [16:53.720] That's high, they were doing no business whatsoever,
+- [16:56.030] and they were having a lot of problems.
+- [16:57.410] We were very nice to China.
+- [16:58.730] I don't know if they're going to be nice to us,
+- [17:00.210] but we were very to China And in many ways,
+- [17:02.910] I think we really helped China tremendously,
+- [17:05.630] because, you know, they were having great difficulty
+- [17:07.710] because we were basically going cold turkey with China.
+- [17:11.330] We were doing no business because of the tariff,
+- [17:13.350] because it was so high. But I knew that.
+- [17:16.780] But don't ever say what you said.
+- [17:18.910] That's a nasty question. Go ahead.
+- [17:21.360] To me, that's the nastiest question.
+- [17:23.740] Wait a minute. Wait. Wait, go ahead, please.
+- [17:26.750] The Press: President Zelensky says he's ready
+- [17:28.340] to sit down with you and Vladimir Putin in Geneva.
+- [17:31.520] And it sounds like General Kellogg
+- [17:32.930] is working on preparations for that.
+- [17:35.330] Are you planning to sit with the two of them?
+- [17:37.710] The President: Well, I will, if it's necessary.
+- [17:39.300] It takes -- we have to -- I think I'm -- at this point --
+- [17:44.770] I wish you would have been that way a couple of months ago --
+- [17:47.550] but at this point, we're working on President Putin,
+- [17:51.480] and we'll see where we are.
+- [17:53.270] I think we're doing fine, but we'll --
+- [17:54.620] see, I don't like what's happening.
+- [17:55.860] That's one thing I'll say.
+- [17:57.110] I don't like -- when I see rockets being shot into cities,
+- [17:59.810] that's no good. We're not going to allow it.
+- [18:01.920] The Press: People always said that the war
+- [18:03.280] never would have started if you were President.
+- [18:04.660] The President: Would have never happened,
+- [18:05.890] and it didn't happen.
+- [18:07.130] The Press: And he doesn't seem willing to do anything
+- [18:08.500] that you want him to do. Do you still believe that,
+- [18:11.110] that he wouldn't have launched the war?
+- [18:12.590] The President: No, no, we would have never had a war.
+- [18:15.370] We would have had a never had war.
+- [18:16.820] If I were President, the election weren't rigged,
+- [18:19.310] you wouldn't have had the war.
+- [18:20.660] You wouldn't have the war, you wouldn't had inflation.
+- [18:23.440] You wouldn't have had October 7th.
+- [18:25.170] That would have ever happened
+- [18:26.430] because Iran was stone cold broke.
+- [18:28.780] They didn't have any money to give to Hamas or Hezbollah.
+- [18:32.220] You wouldn't have that Afghanistan
+- [18:34.330] most embarrassing moment in the history of our country.
+- [18:36.590] You wouldn´t have any of it.
+- [18:37.880] You wouldn't have had inflation because energy costs.
+- [18:40.430] Look what happened.
+- [18:41.880] I brought inflation down to practically zero.
+- [18:45.000] And all of the groceries and all of eggs
+- [18:47.650] and all of the things that you've been hearing about,
+- [18:49.730] they're back down.
+- [18:50.970] They're way down from where they were.
+- [18:53.040] I did something in four months that nobody's seen.
+- [18:55.350] And I have to say, in four months,
+- [18:57.370] and I said it before
+- [18:58.570] and everyone's talking about it all over the world,
+- [19:00.440] we've got the hottest country anywhere in the world right now.
+- [19:03.980] We're the only country anybody's even talking about.
+- [19:06.310] All right, please, Scott.
+- [19:07.560] The President: What stopped you from imposing
+- [19:09.020] new sanctions on Russia?
+- [19:11.000] The President: Only the fact that if I think
+- [19:13.530] I'm close to getting a deal,
+- [19:14.750] I don't want to screw it up by doing that.
+- [19:17.180] Let me tell you, I'm a lot tougher
+- [19:18.470] than the people you're talking about,
+- [19:20.250] but you have to know when to use that.
+- [19:23.400] If I think it's going to hurt a deal.
+- [19:25.590] This isn't my war.
+- [19:26.880] This is Biden's war, Zelensky's war and Putin's war.
+- [19:30.100] This isn't Trump's war.
+- [19:31.620] I'm only here for one thing to see if I can end it,
+- [19:33.780] to save 5,000 lives a week and a lot of money.
+- [19:38.350] The money being much less important,
+- [19:39.890] because I made that money.
+- [19:41.100] I went to Saudi Arabia, Qatar, and UAE,
+- [19:45.340] and we brought back $5.1 trillion.
+- [19:49.690] So I made the money in about two hours,
+- [19:51.400] the money that we're talking about,
+- [19:52.810] but it's still three -- think of it --
+- [19:54.500] $300 billion we've spent with no checks, no balances.
+- [19:59.280] They just send cash.
+- [20:01.860] You can imagine what's happened to that money,
+- [20:04.840] I never saw anything like it in my life,
+- [20:06.580] but I'm more interested because I picked up $5.1 trillion.
+- [20:11.740] And, by the way, got a beautiful,
+- [20:13.330] big, magnificent, free airplane
+- [20:16.620] for the United States Air Force, okay?
+- [20:18.860] Very proud of that, too.
+- [20:20.140] They tried to say, oh, it's Trump's airplane.
+- [20:22.200] Oh, yeah, sure. It's too big.
+- [20:24.610] It's frankly, it is too big, much too big.".
+- [20:27.560] The Press: (inaudible).
+- [20:29.680] The President: Well, it here already.
+- [20:30.910] It's in the country.
+- [20:32.140] It's being refitted for military standards.
+- [20:35.430] The Press: How much will it cost to refit it?
+- [20:36.700] The President: Oh, I don't know, whatever it is,
+- [20:38.310] a hell of a lot less than building a new one.
+- [20:40.000] We're waiting too long from Boeing.
+- [20:42.050] Boeing has got to get its act together.
+- [20:44.200] The Press: (inaudible)
+- [20:48.090] is that an arrangement you would consider for TikTok as well?
+- [20:52.010] The President: Nothing to do with TikTok,
+- [20:53.280] totally different kind of a deal.
+- [20:55.040] We'll have to get, you know, to do it properly,
+- [20:57.020] we'll probably have to China's approval.
+- [20:59.440] China's never easy.
+- [21:01.100] China's is never easy, but I think, yeah,
+- [21:03.290] I think we'll be able to save TikTok.
+- [21:04.680] I'd like to save TikTok.
+- [21:05.930] I mean, TikTok was very good to me.
+- [21:07.950] I won the young people by 37 percent.
+- [21:11.610] No Republicans ever won, and I won by 37%.
+- [21:15.900] And Charlie Kirk will tell you, TikTok helped,
+- [21:20.100] but Charlie Kirk helped also.
+- [21:23.620] Oh, he just happens to be here. Look at him.
+- [21:25.830] He loves that we mentioned that name, right, Charlie?
+- [21:28.610] He's done great. And I appreciate all the help.
+- [21:30.520] But with young people, we won by 37 percent, Charlie.
+- [21:33.230] And you helped, but TikTok was amazing.
+- [21:36.240] And he was the first one. He said, get on TikTok.
+- [21:38.680] So I have a little bit of a warm spot.
+- [21:40.310] I know I shouldn't. They'll say quid pro quo.
+- [21:43.500] Put him in jail for the rest of his life.
+- [21:45.110] Quid pro quo.
+- [21:47.340] TikTok was very good to me. I won young people.
+- [21:49.900] I don't know if it was because of TikTok,
+- [21:51.960] but it was -- something happened.
+- [21:55.460] No Republican has ever won, they call them young people,
+- [21:59.440] young people you can define it a lot of different ways,
+- [22:01.710] but I won every age group in young people
+- [22:05.230] and it never happened and won by 37%.
+- [22:07.880] That's a lot.
+- [22:09.130] The Press: Mr. President, back out of Iran,
+- [22:11.440] did you warn Prime Minister Netanyahu
+- [22:13.810] against taking some sort of actions
+- [22:15.320] that could disrupt the talks there in a phone call last week?
+- [22:19.170] The President: Well, I'd like to be honest.
+- [22:22.370] Yes, I did. Next question, please.
+- [22:26.690] I did, yeah. It's not a warning.
+- [22:29.800] I said I don't think it's appropriate.
+- [22:32.250] The Press: What exactly did you tell him?
+- [22:33.760] The President: I just said, I don't think it's appropriate.
+- [22:35.490] We're having very good discussions with him.
+- [22:37.580] And I said, I don't think it is appropriate right now
+- [22:40.550] because if we can settle it with a very strong document,
+- [22:43.450] very strong, with inspections and no trust.
+- [22:48.250] I don't trust anybody.
+- [22:50.330] I don t trust anybody, so no trust,
+- [22:53.240] I want it very strong where we can go in with inspectors,
+- [22:56.180] we can take whatever we want,
+- [22:57.600] we can blow up whatever we want but nobody getting killed.
+- [23:01.220] We can blow up a lab,
+- [23:02.470] but nobody's going to be in the lab,
+- [23:03.710] as opposed to everybody being in the lab
+- [23:05.450] and blowing it up, right? Two ways of doing it.
+- [23:09.100] Yeah, I told them this would be inappropriate to do right now
+- [23:11.620] because we're very close to a solution.
+- [23:13.540] Now, that could change at any moment.
+- [23:15.880] It could change with a phone call.
+- [23:18.480] But right now, I think they want to make a deal.
+- [23:20.330] And if we can make a deal, save a lot of lives.
+- [23:25.010] The Press: When do you think
+- [23:27.140] that a deal could happen on Iran?
+- [23:29.530] The President: On which?
+- [23:30.770] The Press: (inaudible)that the deal with Iran could happen.
+- [23:32.470] The President: Oh, I don't know.
+- [23:33.700] I think over the next couple of weeks, if it happens, yeah.
+- [23:35.930] The Press: And on the -- when could the administration
+- [23:39.340] resume the interviews for foreign students'
+- [23:42.080] When do you think your administration
+- [23:44.010] could resume these interviews?
+- [23:45.530] The President: On what?
+- [23:46.810] The Press: For the foreign students visa.
+- [23:48.300] Yesterday, there was --
+- [23:49.540] The President: For the French visa?
+- [23:50.750] The Press: For the -- for all the foreign visas.
+- [23:53.810] The President: Oh, for the foreign visas?
+- [23:55.740] What are you referring foreign visas for, what?
+- [23:57.950] Are you talking about for colleges?
+- [24:00.140] Okay, so you're off of Israel.
+- [24:01.410] Now you're talking about colleges, right?
+- [24:03.330] Okay. Well, we're going to see.
+- [24:05.280] Look, Harvard has been a disaster.
+- [24:08.630] They've taken five plus, by the way.
+- [24:11.190] Five billion dollars plus. Five billion.
+- [24:14.020] Nobody knew that they were making this kind of --
+- [24:15.630] if we didn't do this, nobody would have --
+- [24:17.530] we would have never found this out, Pam.
+- [24:19.550] They're taking five billion dollars.
+- [24:23.070] And I'd rather see that money go to trade schools.
+- [24:25.280] And by the they're totally anti-Semitic at Harvard,
+- [24:28.260] as you know, and some other colleges, too,
+- [24:30.400] in all fairness to them.
+- [24:32.160] And it's been exposed, very exposed.
+- [24:34.860] And I think they're dealing very badly.
+- [24:36.910] Every time they fight, they lose another $250 million.
+- [24:40.780] Yesterday, we found another $100 million.
+- [24:43.950] And they have a fund, an endowment, $52 billion.
+- [24:51.450] They get a lot of that from the United States,
+- [24:54.270] and I think it's ridiculous.
+- [24:55.590] I think this -- everyone's coming up to me
+- [24:59.690] saying we love the idea of trade schools
+- [25:02.740] with that kind of money and money from others,
+- [25:04.850] but money from them.
+- [25:06.400] You can have the best trade schools anywhere in the world.
+- [25:09.420] You give them to Iowa, Indiana, lots of good states,
+- [25:13.520] well-run states, and you give them the money.
+- [25:16.300] They can only be used for trade schools,
+- [25:18.020] and they'll teach people how to build motors and cars
+- [25:21.620] and AI, you know, the AI. We're building plants.
+- [25:24.800] So we're building hundreds of billions of dollars
+- [25:29.190] worth of AI plants. Already started many of them.
+- [25:32.250] We've never had a boom like we're having now.
+- [25:33.970] You're going to see it.
+- [25:35.450] There's never been anything like it.
+- [25:37.240] So we're up to about $14 trillion in investments.
+- [25:41.310] There's ever been anything even close.
+- [25:42.960] You look at Biden, this guy,
+- [25:44.770] they had people leaving as opposed to investing.
+- [25:48.160] And they're doing it because of November, really November 5th,
+- [25:51.790] and they're going it because the tariffs.
+- [25:54.250] The tariffs have been tremendous.
+- [25:56.770] Well I can promise you,
+- [25:59.100] and I have great respect for the people at the European Union,
+- [26:02.900] they wouldn't be over here today negotiating
+- [26:05.760] if I didn't put a 50 percent tariff on.
+- [26:09.060] The sad thing is now when I make a deal with them,
+- [26:10.970] it's something much more reasonable.
+- [26:13.090] They'll say, oh, he was chicken.
+- [26:15.050] He was chicken. That's so unbelievable.
+- [26:19.510] I usually have the opposite problem.
+- [26:21.940] They say you're too tough?
+- [26:23.960] The Press: Mr. President, on Harvard,
+- [26:25.280] there were some Jewish students protesting on campus yesterday.
+- [26:29.040] They said they don't want you making these huge cuts,
+- [26:32.900] cutting off student visas to Harvard in their name.
+- [26:36.580] The President: Well, Harvard has to show us their lists.
+- [26:41.210] They have foreign students,
+- [26:42.530] about 31 percent of their students
+- [26:45.340] are foreign-based, almost 31 percent.
+- [26:48.910] We want to know where those students come.
+- [26:50.530] Are they troublemakers? What countries do they come?
+- [26:52.840] And we're not going to --
+- [26:54.060] if somebody is coming from a certain country
+- [26:56.320] and they're 100 percent fine, which I hope most of them are,
+- [26:59.480] but many of them won't be,
+- [27:01.430] you're going to see some very radical people.
+- [27:03.310] They're taking people from areas of the world
+- [27:05.650] that are very radicalized,
+- [27:07.590] and we don't want them making trouble in our country.
+- [27:10.010] So, I saw yesterday that in the middle of the U.K.,
+- [27:15.920] there was a nice young man,
+- [27:18.430] he wants to go back to school at Harvard,
+- [27:20.670] and he looked good to me, but I want to check his past.
+- [27:22.820] But we want to be able to see why, you know,
+- [27:25.830] these countries aren't helping us.
+- [27:27.780] They're not investing in Harvard and all of our -- we are.
+- [27:31.670] So why would 31% -- why would a number so big?
+- [27:34.610] I think, number one, I think they should have a cap of
+- [27:37.050] maybe around 15 percent, not 31 percent.
+- [27:41.070] We have people who want to go to Harvard and other schools.
+- [27:43.320] They can't get in because we have foreign students there.
+- [27:46.690] But I want to make sure that the foreign students are people
+- [27:49.970] that can love our country.
+- [27:51.620] We don't want to see shopping centers exploding.
+- [27:53.600] We don't want to the kind of riots that you had.
+- [27:55.710] And I'll tell you what,
+- [27:56.990] many of those students didn't go anywhere.
+- [27:58.600] Many of those student would trouble-makers
+- [28:00.310] caused by the radical left lunatics in this country.
+- [28:03.260] One more question.
+- [28:06.260] The Press: Will you pardon the people
+- [28:07.560] who are accused of conspiring
+- [28:09.090] to kidnap Michigan Governor Gretchen Whitmer?
+- [28:11.500] The President: I'm going to look at it, I will take a look at it.
+- [28:14.010] It's been brought to my attention.
+- [28:15.820] I did watch the trial.
+- [28:17.780] It looked to me like somewhat of a railroad job.
+- [28:20.200] I'll be honest with you, it looked to me,
+- [28:21.820] like some people said some stupid things.
+- [28:23.530] You know, they were drinking,
+- [28:24.810] and I think they said stupid things,
+- [28:26.880] but I'll take a looked at that,
+- [28:28.270] and a lot of people are asking me that question,
+- [28:30.840] from both sides actually.
+- [28:32.620] A lot of people think they got railroaded.
+- [28:35.080] A lot people think they got railroaded,
+- [28:38.530] and probably some people don't -- one more.
+- [28:42.370] The Press: How will the confrontation with Harvard end?
+- [28:46.090] The President: I don't know. I don't know.
+- [28:47.560] Harvard's got to behave themselves.
+- [28:49.310] Harvard is treating our country with great disrespect
+- [28:52.570] and all they're doing is getting in deeper and deeper and deeper.
+- [28:56.000] They've got to be have themselves.
+- [28:57.320] You know, I'm looking --
+- [28:58.550] I'm looking out for the country and for Harvard.
+- [29:00.420] I want Harvard to do well.
+- [29:01.640] I want Harvard to be great again,
+- [29:04.480] probably because how could it be great?
+- [29:06.330] How could it be great
+- [29:07.870] when you have Harvard announce two weeks ago
+- [29:10.800] that they're going to teach remedial mathematics, remedial,
+- [29:15.180] meaning They're going to teach low-grade mathematics,
+- [29:18.510] like 2 plus 2 is 4.
+- [29:21.180] How did these people get into Harvard
+- [29:24.370] if they can't do basic mathematics?
+- [29:26.970] How did they do it?
+- [29:28.240] I mean, people with 1,600 in their boards don't get in,
+- [29:31.340] and they're letting people in, and they are bragging about
+- [29:34.430] how they're teaching them basic mathematics.
+- [29:36.400] Where did these people come from?
+- [29:38.300] So we have to look at the list, and Harvard has to understand
+- [29:42.460] the last thing I want to do is hurt them.
+- [29:44.670] They're hurting themselves, they're fighting.
+- [29:46.900] You know, Colombia has been really --
+- [29:49.220] and they were very, very bad what they've done.
+- [29:51.440] They're very anti-Semitic and lots of other things.
+- [29:54.990] But they're working with us on finding a solution.
+- [29:58.660] And, you know, they've taken off that hot seat.
+- [30:01.310] But Harvard wants to fight.
+- [30:02.640] They want to show how smart they are.
+- [30:04.200] And they're getting their ass kicked.
+- [30:06.150] Thank you very much, everybody.

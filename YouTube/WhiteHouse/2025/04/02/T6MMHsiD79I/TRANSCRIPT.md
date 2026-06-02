@@ -1,0 +1,112 @@
+<!-- source: https://www.youtube.com/watch?v=T6MMHsiD79I -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: T6MMHsiD79I -->
+<!-- date_published: 2025-04-02T13:59:12+00:00 -->
+<!-- date_accessed: 2026-06-02T01:28:34.167341+00:00 -->
+
+# Transcript: HAPPY LIBERATION DAY, AMERICA! 🇺🇸💰
+
+- [00:00.000] President Trump pushing ahead with his
+- [00:01.840] America first agenda.
+- [00:03.240] Breaking news, Apple announced it's
+- [00:04.480] going to work with Foxconn to build a
+- [00:06.320] server factory in Texas by 2026.
+- [00:09.480] The company says it is now planning to
+- [00:11.200] invest $500 billion
+- [00:12.840] in the US economy.
+- [00:14.120] The CEO of SoftBank pledging to invest
+- [00:16.560] $100 billion in the US over the next 4
+- [00:20.280] years. This is President Trump
+- [00:22.280] delivering on the promise he made to the
+- [00:24.400] American people on the campaign trail.
+- [00:26.080] The idea is come to America, build
+- [00:28.440] greatness in America, build for American
+- [00:31.880] customers.
+- [00:32.640] Project Stargate.
+- [00:34.400] It's a joint venture between SoftBank,
+- [00:36.760] Oracle, and OpenAI. And they're going to
+- [00:38.720] create a data center that will
+- [00:40.120] eventually be expanded to other states.
+- [00:41.960] Shows people are listening to Mr.
+- [00:44.000] Trump's pitch to bring new industry to
+- [00:46.600] America.
+- [00:47.160] This is the latest pledge from a foreign
+- [00:48.400] business leader promising to spend big
+- [00:50.560] in the US as a result of Trump's
+- [00:52.480] election victory. Founder of the
+- [00:54.120] property development company Damac
+- [00:56.120] Properties is pledging the money.
+- [00:58.160] President Trump announcing a $100
+- [00:59.600] billion investment from Taiwan
+- [01:01.600] Semiconductor, bringing the company's
+- [01:03.000] total American investments to $165
+- [01:05.360] billion. The most powerful AI chips in
+- [01:07.680] the world will be made right here in
+- [01:09.200] America.
+- [01:09.840] Things happen so quickly in the Trump
+- [01:11.680] world, right? It's 100 days, it feels
+- [01:13.040] like it's 100 months. This is
+- [01:14.240] leadership. This is taking control of
+- [01:16.040] the problem for military, for for
+- [01:17.880] everything, for industrial, for our
+- [01:19.080] economy. Even if it causes short-term
+- [01:20.960] pain, the reality is it is the right
+- [01:22.600] decision. Nvidia says it will invest
+- [01:24.720] hundreds of billions of dollars over the
+- [01:26.320] next 4 years, part of the manufacturing
+- [01:28.520] renaissance under President Donald J.
+- [01:30.320] Trump.
+- [01:30.840] Furniture maker Prepac, are shifting
+- [01:32.800] their operations from Canada to North
+- [01:35.000] Carolina.
+- [01:35.640] Johnson & Johnson says it will invest
+- [01:37.440] more than $55 billion in the US over the
+- [01:40.480] next 4 years.
+- [01:41.720] Hyundai announced a $20 billion
+- [01:43.680] investment.
+- [01:44.440] With your leadership, Mr. President,
+- [01:46.440] Hyundai Motor Group is proud to be
+- [01:48.080] stronger partner in America's industrial
+- [01:50.840] future. It is the automobile industry.
+- [01:52.920] And now those plants largely have
+- [01:54.400] stopped and they're moving them to our
+- [01:56.480] country. Honda is building one of the
+- [01:58.600] biggest plants. The trade story is
+- [02:00.520] certainly picking up speed here and
+- [02:01.880] pushing more countries to to make these
+- [02:03.560] bigger investments.
+- [02:04.440] It's another example of the Trump
+- [02:06.240] effect.
+- [02:06.920] GE Aerospace announcing a nearly $1
+- [02:08.880] billion investment into American
+- [02:10.880] manufacturing.
+- [02:11.800] Eli Lilly announcing plans to expand its
+- [02:13.680] manufacturing here in the United States.
+- [02:15.480] $27 billion additional spend, bringing
+- [02:17.400] our total to more than $50 billion. The
+- [02:19.400] money's rolling in, and this is in the
+- [02:21.280] past 60 some odd days, Charles. These
+- [02:23.680] are deep pocketed folks who want to have
+- [02:25.520] a relationship, and they're really it's
+- [02:27.520] just smart moves.
+- [02:28.400] We are CMA CGM, one of the leaders in
+- [02:30.800] shipping and logistics around the world.
+- [02:33.080] Today, we are investing $20 billion.
+- [02:35.440] Foreign leaders from around the world,
+- [02:37.000] investors from Silicon Valley to Wall
+- [02:39.320] Street to Main Street, have confidence
+- [02:41.520] again in our economy and our markets and
+- [02:44.200] in President Trump.
+- [02:45.240] The Trump effect this morning, a string
+- [02:47.680] of massive wins for American
+- [02:50.000] manufacturing. The numbers speak for
+- [02:51.880] themselves. Wisconsin-based Clarios is
+- [02:54.600] putting up $6 billion to expand its
+- [02:57.040] American operation. And what's driving
+- [02:58.760] these decisions? Well, President Trump's
+- [03:00.600] aggressive made in America policies and
+- [03:03.320] his commitment to bringing industry back
+- [03:05.280] to American soil. This is exactly what
+- [03:08.280] Trump promised.
+- [03:09.840] America first is back.

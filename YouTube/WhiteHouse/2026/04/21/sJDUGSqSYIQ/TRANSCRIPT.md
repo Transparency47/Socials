@@ -1,0 +1,238 @@
+<!-- source: https://www.youtube.com/watch?v=sJDUGSqSYIQ -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: sJDUGSqSYIQ -->
+<!-- date_published: 2026-04-21T20:53:37+00:00 -->
+<!-- date_accessed: 2026-06-02T01:01:12.381250+00:00 -->
+
+# Transcript: The Story of America: John and Abigail Adams
+
+- [00:02.535] (mix of famous American History Quotes)
+- [00:41.241] Susan Hanssen: While John Adams was writing the
+- [00:42.776] Declaration of Independence in July of 1776,
+- [00:46.646] his wife Abigail Adams was going through a very
+- [00:49.349] personal crisis of her own.
+- [00:52.085] At the very moment of the birth of America as an
+- [00:54.454] independent nation, Abigail experienced the
+- [00:57.524] tragic stillbirth of her fifth child.
+- [01:00.994] Her grief was compounded by the loss of her mother
+- [01:03.463] just months before, during an epidemic that swept
+- [01:07.066] across the Colonies.
+- [01:08.935] This episode in the life of John and Abigail Adams
+- [01:12.639] reminds us that when the American founders pledged
+- [01:15.341] their lives, their fortunes, and their sacred
+- [01:17.544] honor, a large portion of the sacrifice was borne by
+- [01:21.781] the wives and families of the patriots.
+- [01:23.783] We are blessed as a nation to have the letters of
+- [01:27.454] John and Abigail Adams as a window into the
+- [01:30.323] sustaining relationship that women played in the
+- [01:32.859] founding of our country.
+- [01:35.562] Let us look more closely at what was going on on
+- [01:38.298] the home front while John Adams was participating in
+- [01:41.901] the Continental Congress in Philadelphia, far from
+- [01:44.871] his home in Quincy, Massachusetts.
+- [01:48.007] Abigail and John had had two children two years
+- [01:50.677] apart.
+- [01:51.344] After being blessed with little Abigail and little
+- [01:54.113] John, they had a daughter who died at age two years
+- [01:57.350] old.
+- [01:58.017] But since they were together for this family
+- [02:00.253] tragedy, there are no letters relating to it.
+- [02:03.690] They went on to have two more boys, Charles and
+- [02:07.627] Thomas.
+- [02:08.294] In 1775, when Abigail's mother dies, John is far
+- [02:14.167] from the scene of the deaths of intimate family
+- [02:16.169] members, and he takes a somewhat detached and
+- [02:18.571] stoic approach to this personal tragedy.
+- [02:21.307] It is, for him, drowned in the general calamity.
+- [02:24.844] "It is not uncommon," he writes from Philadelphia,
+- [02:28.648] "for a train of calamities to come together, fire,
+- [02:32.218] sword, pestilence, famine, often keep company and
+- [02:35.355] visit the country in a flock." But Abigail, much
+- [02:41.261] more immersed in the nursing of the dying,
+- [02:43.663] turns not to philosophic consideration, but to the
+- [02:47.267] scriptures for consolation.
+- [02:48.601] "It has pleased the great disposer of all events to
+- [02:53.072] add breach to breach.
+- [02:54.874] Rare are solitary woes, and they come in a train
+- [02:58.111] and tread each other's heel." She pours out her
+- [03:01.247] complaint using the language of the Psalms and
+- [03:03.516] the prophet Isaiah from the Hebrew scriptures.
+- [03:06.753] "How long, O Lord, shall the whole land say, I am
+- [03:09.422] sick?
+- [03:10.323] O, show us wherefore it is that Thou art contending
+- [03:13.026] with us." She turns to the Gospels to receive comfort
+- [03:17.564] from the scene of Jesus weeping over the death of
+- [03:19.866] his friend Lazarus.
+- [03:22.201] "He who deigned to weep over a departed friend
+- [03:25.104] will surely forgive a sorrow which at all times
+- [03:27.840] desires to be bounded and restrained by a firm
+- [03:31.444] belief that a being of infinite wisdom and
+- [03:34.147] unbounded goodness will carve out my portion in
+- [03:37.083] tender mercy towards me.
+- [03:39.786] Yea, though he slay me, I will trust in him," says
+- [03:43.056] Holy Job.
+- [03:45.391] Abigail explicitly says that the trial of her
+- [03:47.827] husband's absence had deepened her reliance on
+- [03:50.763] God.
+- [03:52.465] "Oh, how I have longed for your bosom, to pour forth
+- [03:55.335] my sorrows there and to find a healing balm, but
+- [03:58.838] perhaps that has been denied me, that I might be
+- [04:01.407] led to a higher and more permanent consolator, who
+- [04:04.944] has bid us call upon him in the day of trouble."
+- [04:09.816] John Adams responds in amazement at her strength.
+- [04:12.585] "I am charmed with that admirable fortitude and
+- [04:17.090] that divine spirit of resignation which appears
+- [04:21.127] in your letters."
+- [04:22.428] Just over a year later, Abigail writes to John with
+- [04:27.500] touching immediacy about what she is experiencing
+- [04:31.371] as she goes through her miscarriage.
+- [04:33.940] She writes that she must lay aside her pen because
+- [04:37.076] the labor pains are too intense, only to pick up
+- [04:39.846] her pen again when they have passed.
+- [04:42.782] But she says with great simplicity that she knows
+- [04:45.184] the labor pains are in vain.
+- [04:47.420] "I was last night taken with a shaking fit, she
+- [04:50.323] says, and I am very apprehensive that a life
+- [04:52.692] was lost, and I have no reason today to think
+- [04:55.695] otherwise." John writes to her his famous compliment.
+- [05:05.138] "It gives me more pleasure than I can express to
+- [05:09.175] learn that you sustain with so much fortitude the
+- [05:11.477] shocks and terrors of the times.
+- [05:13.713] You are really brave, my dear.
+- [05:15.548] You are a heroine, and you have reason to be.
+- [05:21.320] For the worst that can happen can do you no harm.
+- [05:23.723] A soul as pure, as benevolent, as virtuous
+- [05:27.060] and pious as yours has nothing to fear, but
+- [05:29.996] everything to hope and expect from the last of
+- [05:33.633] human evils." Yet, even these most personal of
+- [05:36.569] tragedies did not pass without some philosophical
+- [05:39.639] reflection from them both.
+- [05:42.175] John suggests that perhaps Abigail's mother, who has
+- [05:45.311] just died, was too devoted to the domestic realm to
+- [05:48.915] be a fitting model for their children, who should
+- [05:51.317] be trained up to value the public and civic virtues
+- [05:54.120] above all.
+- [05:55.855] "It should be your care, therefore, and mine, to
+- [05:58.458] elevate the minds of our children and exalt their
+- [06:00.693] courage to accelerate and animate their industry and
+- [06:03.730] activity.
+- [06:04.964] If we suffer their minds to grovel and creep in
+- [06:07.233] infancy, they will grovel all their lives, but their
+- [06:10.837] bodies must be hardened as well as their souls
+- [06:13.473] exalted.
+- [06:14.440] Without strength and activity and vigor of
+- [06:17.410] body, the brightest mental excellencies will be
+- [06:20.213] eclipsed and obscured." This is not the only time
+- [06:24.417] that John is critical of a life that is too limited
+- [06:27.120] in its horizons.
+- [06:28.121] Reflecting on the great Roman philosopher Cicero's
+- [06:31.457] discussion of the levels and degrees of human
+- [06:33.860] sociability, John thinks that too great concern for
+- [06:37.096] the personal and the local can pervert the intellect
+- [06:40.133] and will.
+- [06:40.800] But Abigail adroitly responds by quoting and
+- [06:44.737] acknowledging Cicero's dictum.
+- [06:46.806] "Our country is, as it were, a secondary God and
+- [06:50.810] the first and greatest parent.
+- [06:52.945] It is to be preferred to parents, wives, children,
+- [06:55.515] friends, and all things God only accepted.
+- [06:59.452] For if our country perishes, it is as
+- [07:02.455] impossible to save an individual as it is to
+- [07:05.458] preserve one of the fingers of a mortified
+- [07:07.727] hand." Nevertheless, she gently reminds him that
+- [07:12.498] his absorption in public affairs sometimes leads
+- [07:15.735] him to neglect important domestic duties as a
+- [07:18.271] father.
+- [07:19.772] She reminds him that he is responsible for the moral
+- [07:23.209] education of his children.
+- [07:24.510] She points out that his children's virtues would
+- [07:27.680] be doubly enforced could they be indulged with the
+- [07:30.883] example of a father constantly before them.
+- [07:34.954] She insists that public virtue must be backed up
+- [07:38.291] with virtue in private life as well.
+- [07:40.293] That civic obligations cannot be separated from
+- [07:43.296] religious and moral obligations.
+- [07:44.897] "I have been led to think, from a late defection,
+- [07:50.736] that he who neglects his duty to his Maker may well
+- [07:54.607] be expected to be deficient and insincere in
+- [07:57.443] his duty towards the public." Abigail insists
+- [08:01.113] that merely civic motives cannot replace the more
+- [08:03.950] internal motives of religion and morality.
+- [08:07.019] "Let revenge or ambition, pride, lust, or profit
+- [08:11.023] tempt these men to base and vile action.
+- [08:14.427] You may as well hope to bind up a hungry tiger
+- [08:17.563] with a cobweb as to hold such debauched patriots in
+- [08:21.701] the visionary chains of decency, or to charm them
+- [08:25.404] with the intellectual beauty of truth and
+- [08:27.306] reason." She clearly got through to John, because
+- [08:31.911] years later, looking back at the founding, he echoed
+- [08:35.214] her image.
+- [08:36.582] "We have no government armed with power capable
+- [08:39.118] of contending with human passions unbridled by
+- [08:41.888] morality and religion.
+- [08:44.123] Avarice, ambition, revenge, or gallantry
+- [08:46.759] would break the strongest cords of our Constitution
+- [08:49.795] as a whale goes through a net.
+- [08:51.764] Our Constitution was made only for moral and
+- [08:55.301] religious people.
+- [08:56.235] It is wholly inadequate to the government of any
+- [08:59.138] other." Abigail's insistence that religious
+- [09:02.808] and family obligations are fundamental to a thriving
+- [09:05.745] republic helped shape America's founding.
+- [09:08.514] George Washington would famously confirm this
+- [09:11.517] insight in his farewell address.
+- [09:14.053] "Of all the dispositions and habits which lead to
+- [09:18.557] political prosperity, religion and morality are
+- [09:21.027] indispensable supports.
+- [09:23.062] In vain would that man claim the tribute of
+- [09:25.097] patriotism, who should labor to subvert these
+- [09:28.367] great pillars of human happiness, these firmest
+- [09:31.270] props of the duties of men and citizens." The
+- [09:34.974] founding generation inherited these ideas
+- [09:37.076] about the interconnectedness of
+- [09:38.544] duties to God, Father, and country.
+- [09:40.279] From the long-standing classical and Christian
+- [09:44.350] tradition in which they stood, the ancient
+- [09:46.686] statesman Marcus Tullius Cicero, who had stood up
+- [09:50.156] for the liberty of the Roman Republic against the
+- [09:52.358] tyranny of Caesar, was not just the Founder's tutor
+- [09:55.828] in the understanding of the Republic and the laws.
+- [10:00.032] The American Founders had been educated in his moral
+- [10:02.501] philosophy by reading his book "On Duties," which
+- [10:05.738] was the textbook for ethics throughout the
+- [10:07.840] Christian ages and into the modern period.
+- [10:10.009] The English Enlightenment philosopher said that
+- [10:14.347] Cicero's little book "On Duties" was the most
+- [10:16.949] important book that a parent could put into the
+- [10:19.285] hands of their children.
+- [10:21.420] The American founding generation read there of
+- [10:24.256] the interconnectedness of the laws of nature that
+- [10:27.293] unite all mankind under God, family, and country.
+- [10:31.530] Even as the American founders demanded their
+- [10:33.532] rights grounded in the laws and of nature's God,
+- [10:37.803] they acknowledge their duties to God, family, and
+- [10:40.573] country.
+- [10:41.841] They did not think that rights could be abstracted
+- [10:43.843] from those duties, which were grounded just as
+- [10:46.746] surely in the laws of nature and of nature's
+- [10:48.814] God.
+- [10:50.583] In the letters of John and Abigail Adams, we're given
+- [10:53.085] a glimpse into this founding family, with
+- [10:55.688] sorrows, joys, long months apart, and innumerable
+- [10:59.625] sacrifices for the cause of freedom.
+- [11:03.529] John and Abagail's letters remind us that the bonds
+- [11:06.265] of marriage and family gave our founders the
+- [11:09.301] strength to serve with honor and bravery.
+- [11:12.805] And like Abigail Adams, many of the ladies of the
+- [11:15.441] founding played an indispensable role in
+- [11:17.810] American independence.
+- [11:19.912] They ran the family farms and businesses, made warm
+- [11:23.149] clothes for freezing soldiers, prayed for a
+- [11:25.985] swift and definitive victory, counseled their
+- [11:28.454] husbands, and reminded the young republic of the
+- [11:31.257] importance of duty to God, family, and country.
+- [11:34.093] And we will forever remember the ladies whose
+- [11:37.096] quiet service and tireless toil helped give birth to
+- [11:40.566] this new land of liberty.
+- [11:44.737] ♪ (soft orchestral music) ♪

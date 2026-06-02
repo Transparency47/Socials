@@ -1,0 +1,879 @@
+<!-- source: https://www.youtube.com/watch?v=iQa3rY9fu94 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: iQa3rY9fu94 -->
+<!-- date_published: 2025-09-22T17:49:45+00:00 -->
+<!-- date_accessed: 2026-06-02T02:44:33.530707+00:00 -->
+
+# Transcript: Press Secretary Karoline Leavitt Briefs Members of the Media, Sep. 22, 2025
+
+- [00:00.834] Karoline Leavitt: Good afternoon, everyone.
+- [00:02.135] The Press: Good afternoon.
+- [00:03.636] Karoline Leavitt: Happy Monday. Good to see all of you here.
+- [00:05.905] I want to start with a preview of President Trump's
+- [00:08.441] very busy schedule for the week.
+- [00:11.144] Later this afternoon, the President
+- [00:13.012] will be making a major announcement
+- [00:15.081] focused on the childhood autism epidemic,
+- [00:18.218] alongside his top health advisors
+- [00:20.286] who are working to make America healthy again.
+- [00:23.623] This will be a powerful display
+- [00:25.425] of how the entire Trump administration
+- [00:27.894] is committed to addressing root
+- [00:29.662] causes of chronic conditions and diseases,
+- [00:32.565] embracing full transparency in government,
+- [00:35.235] and championing gold standard science.
+- [00:38.338] Tonight, the President will depart to New York City
+- [00:40.640] ahead of the 80th session of the United Nations General Assembly.
+- [00:44.644] He will be joined in New York City by the First Lady.
+- [00:47.514] Tomorrow morning, President Trump
+- [00:49.048] will deliver a major speech
+- [00:50.884] touting the renewal of American strength around the world,
+- [00:54.254] his historic accomplishments in just eight months,
+- [00:57.123] including the ending of seven global wars and conflicts.
+- [01:01.161] The President will also touch upon how globalist institutions
+- [01:04.731] have significantly decayed the world order,
+- [01:08.034] and he will articulate his straightforward
+- [01:11.070] and constructive vision for the world.
+- [01:14.274] The President will also be hosting bilateral meetings
+- [01:17.210] with the UN Secretary-General and the leaders of Ukraine,
+- [01:21.181] Argentina, and the European Union.
+- [01:24.017] The President will also later in the day
+- [01:26.052] hold a multilateral meeting with Qatar,
+- [01:29.322] the Kingdom of Saudi Arabia, Indonesia,
+- [01:32.425] Turkey, Pakistan, Egypt, the UAE, and Jordan.
+- [01:37.297] After these important meetings,
+- [01:38.932] the President will attend a reception tomorrow night
+- [01:41.334] with more than 100 world leaders
+- [01:43.670] before returning to Washington, D.C.
+- [01:46.406] On Thursday here at the White House,
+- [01:48.174] President Trump will welcome President Erdogan of Turkey
+- [01:51.611] for a bilateral meeting.
+- [01:53.213] And on Friday the President
+- [01:54.681] will travel to Long Island for the Ryder Cup golf match
+- [01:57.484] between the United States and Europe.
+- [01:59.886] This event is one of the greatest
+- [02:01.454] sporting events in the world,
+- [02:02.922] and it would not be taking place this year
+- [02:05.158] without President Trump's help.
+- [02:07.160] President Trump signed an executive order last week
+- [02:09.462] preventing a strike that would have crippled
+- [02:12.232] the New York City area ahead of the tournament
+- [02:14.601] and at the request of the five labor unions
+- [02:16.836] who all represent workers on the Long Island Railroad.
+- [02:20.473] One of the greatest golfers in the world, Bryson DeChambeau,
+- [02:23.476] praised the President's critical intervention saying, quote,
+- [02:27.146] "When the possibility of a strike threatened
+- [02:29.048] to disrupt transportation and attendance,
+- [02:31.618] President Trump stepped up and took the action needed
+- [02:34.153] to protect this world-class competition.
+- [02:37.223] Thanks to President Trump's decisive leadership,
+- [02:39.325] the Ryder Cup experience will be everything fans
+- [02:41.794] and the golf community deserve."
+- [02:43.630] Again, that's a quote from the great golfer,
+- [02:45.565] Bryson DeChambeau.
+- [02:46.966] Now let's all hope the American Ryder Cup team
+- [02:49.102] can take home the trophy.
+- [02:51.004] In other news, positive economic data can continues to pour in.
+- [02:54.541] Brand new polling shows that Americans' faith in the economy
+- [02:57.911] and the direction of the nation is back on track
+- [03:00.413] and shooting even higher.
+- [03:02.248] Homeownership is more affordable with mortgage rates
+- [03:04.751] dropping to a three- year low.
+- [03:06.853] For new home buyers, this represents a 250 decline
+- [03:10.223] in your monthly mortgage payment or nearly 3,000 a year.
+- [03:14.027] And President Trump has made it very clear
+- [03:15.895] he wants to continue to see mortgage rates decline
+- [03:18.131] to a record low just like they did in his first term.
+- [03:21.668] Thanks to President Trump's unleashing energy dominance,
+- [03:24.203] gas prices are dropping and Americans
+- [03:26.372] are spending the smallest share of their disposable
+- [03:29.576] income on gasoline since 2005.
+- [03:32.845] Additionally, the annual cost to own and operate a new vehicle
+- [03:36.382] is down by nearly 6 percent over the last year.
+- [03:39.953] Americans are earning more
+- [03:41.254] and they are spending more than ever before.
+- [03:43.790] After inflation outpaced for 26 straight months under Joe Biden,
+- [03:48.494] real wages have increased nearly every month
+- [03:51.230] since President Trump took office with wages
+- [03:53.666] for blue collar workers
+- [03:54.968] rising at the fastest rate in six decades.
+- [03:58.371] Retail sales are also booming up 5 percent over last year,
+- [04:02.375] and the stock market is booming
+- [04:03.810] and Americans' retirement accounts
+- [04:05.478] continue to do well with the Dow,
+- [04:07.647] S&P 500, and Nasdaq all hitting new record highs.
+- [04:11.784] In fact, the S&P 500 is up nearly 15 percent
+- [04:15.288] and the Nasdaq is up more than 21 percent since election day.
+- [04:19.392] As part of President Trump's mission to restore America
+- [04:22.028] as the manufacturing superpower of the world,
+- [04:24.397] he has secured nearly $9 trillion in US investment,
+- [04:28.468] nearly nine times more than Biden attracted
+- [04:30.870] in his entire four-year term, and we expect that number
+- [04:34.007] to be upwards of $15 trillion very soon.
+- [04:37.143] We're already seeing the initial economic benefits
+- [04:39.445] of these investments with industrial production
+- [04:41.648] recently rising to an all-time high.
+- [04:44.083] President Trump built the greatest economy
+- [04:46.219] in the history of the world in his first term,
+- [04:48.621] and we are witnessing him do it all over again.
+- [04:51.424] Now, before I open it up to questions,
+- [04:52.892] I do want to speak
+- [04:54.127] on the heinous political assassination of Charlie Kirk.
+- [04:57.563] As President Trump powerfully stated yesterday,
+- [05:00.400] this assassination was an attack
+- [05:02.068] on everything that makes the United States of America
+- [05:05.304] the greatest country on earth.
+- [05:07.373] But that attack has completely failed.
+- [05:09.642] The heartwarming response from the overwhelming majority
+- [05:12.311] of the American people over the past two weeks
+- [05:14.480] is all of the proof that you need.
+- [05:16.616] The assassin who took Charlie's life
+- [05:18.384] can destroy flesh and blood,
+- [05:20.219] but he can never destroy the values that Charlie stood for.
+- [05:24.090] All across the country, millions of Americans have prayed,
+- [05:26.959] hosted vigils, attended church services,
+- [05:29.595] became politically engaged for the first time,
+- [05:31.798] and honored the legacy of Charlie
+- [05:33.866] and the ideals he died speaking for.
+- [05:36.869] The beautiful memorial service attended by President Trump
+- [05:40.073] and 100,000 great Americans in State Farm Stadium
+- [05:43.676] yesterday was just the latest example.
+- [05:46.713] And Erika Kirk's mercy was one of the greatest acts of grace
+- [05:50.383] this world has ever seen.
+- [05:52.285] May God continue to watch over Erika
+- [05:54.620] and their beautiful children.
+- [05:56.389] Unfortunately, there have been some jarring exceptions
+- [05:59.425] to this unity.
+- [06:00.760] This past Friday, 58 House Democrats
+- [06:03.696] voted no and 38 voted present on a resolution
+- [06:07.333] that simply stated condemning in the strongest
+- [06:10.236] possible terms the assassination of Charles James Kirk
+- [06:13.940] and all forms of political violence.
+- [06:16.476] There were no strings attached to this vote.
+- [06:18.845] This was a simple gesture of human decency
+- [06:21.581] to denounce political violence.
+- [06:23.716] I wish I could say that this was only a fringe group,
+- [06:26.552] but 96 votes
+- [06:27.887] is nearly half of the entire House Democrat caucus.
+- [06:31.858] And they didn't just vote against this basic resolution
+- [06:34.427] condemning political violence.
+- [06:36.262] A number of those same Democrats took to the House floor
+- [06:38.998] to smear Charlie Kirk's name. The man wasn't even buried yet,
+- [06:43.035] and Democrat members of Congress were denigrating his memory
+- [06:45.838] on the floor of the House of Representatives.
+- [06:48.708] This was truly a sad moment and a clear reflection
+- [06:51.844] of how radical the Democrat Party has become.
+- [06:54.947] Many Democrats in elective office
+- [06:56.749] have now been totally captured
+- [06:58.251] by a radical fringe of the far-left base
+- [07:00.920] who want to dehumanize every person they disagree with.
+- [07:05.158] We must continue to call this wickedness out.
+- [07:08.027] It's the only way that our nation can heal.
+- [07:11.030] For too long, past leaders have offered platitudes
+- [07:13.566] while political violence has been allowed to fester
+- [07:16.369] and harm innocent Americans.
+- [07:19.839] There has been coordinated campaigns dating back years
+- [07:23.176] spearheaded by radical left-wing organizations
+- [07:26.212] centered on dehumanizing, intimidating, doxing,
+- [07:29.515] and even attacking Americans whom they disagree with.
+- [07:33.753] These groups have radicalized impressionable individuals
+- [07:36.789] to foment violence.
+- [07:38.491] An attempted transgender assassin
+- [07:40.326] traveled to Justice Brett Kavanaugh's family home
+- [07:42.995] with plans to end his life.
+- [07:45.298] An attempted assassin came within an inch
+- [07:47.233] of ending President Trump's life in Butler, Pennsylvania.
+- [07:49.969] And on the campaign trail, another attempted assassin
+- [07:52.905] tried to kill the President at his golf club in Florida.
+- [07:56.142] A left-wing assassin shot
+- [07:57.510] UnitedHealthcare CEO Brian Thompson
+- [07:59.579] right in the back in the heart of New York City.
+- [08:02.415] ICE agents are facing a more than 1000 percent
+- [08:05.251] increase in assaults for simply doing their jobs.
+- [08:08.788] Violent, radical left-wing mobs engaged in illegal behavior,
+- [08:11.924] targeted Jewish Americans
+- [08:13.392] and shut down America's college campuses
+- [08:16.295] under the previous administration.
+- [08:18.397] Left-wing mobs burned down Tesla dealerships
+- [08:20.967] out of "protest" of Elon Musk and his policies.
+- [08:25.104] In May, a left-wing activist shouting,
+- [08:26.973] "Free Palestine,"
+- [08:28.241] murdered two innocent Israeli embassy staffers outside
+- [08:31.744] of the DC Jewish Museum here in Washington.
+- [08:34.747] These are just a few examples, prominent examples
+- [08:38.050] of the growing left-wing political violence
+- [08:40.186] in our country.
+- [08:41.687] Enough is enough, and as President Trump has promised,
+- [08:44.457] he will directly address the dark sources funding
+- [08:47.560] and supporting this domestic terrorism
+- [08:50.129] to finally restore order in our country.
+- [08:53.432] The American people can expect further very strong action
+- [08:56.736] on this very soon.
+- [08:58.571] Everyone, Republican, Democrat, everyone in between,
+- [09:02.341] we all deserve to live in a country
+- [09:03.976] where we do not have to fear for our lives
+- [09:06.646] simply for stating what we believe in.
+- [09:09.715] With that, I will take your question.
+- [09:11.284] In today's new media seat we have Monica Paige,
+- [09:13.719] who is the White House correspondent for Turning Point
+- [09:16.155] USA's news organization on the front lines.
+- [09:19.225] Monica, thank you for being here.
+- [09:21.193] We're so sorry for the loss of Charlie.
+- [09:22.929] I know you work for him. You were very close to him
+- [09:24.730] and we appreciate your being in the new media seat
+- [09:26.933] and also your commitment to covering the White House.
+- [09:28.734] You are here every day,
+- [09:29.936] just like the rest of everyone in this room.
+- [09:31.437] So why don't you kick us off today?
+- [09:33.272] Monica Page: Thank you so much, Karoline.
+- [09:35.174] I don't think you realize how much it means to me
+- [09:36.876] to be here in this seat,
+- [09:38.878] especially on behalf of Turning Point USA and Frontlines.
+- [09:41.447] We greatly appreciate it.
+- [09:42.848] We also greatly appreciate the outpouring of support
+- [09:46.519] and just really kind words that we heard yesterday
+- [09:48.688] at the memorial service.
+- [09:49.956] That means more to us than I don't think anybody ever knows.
+- [09:53.426] Even the global support that we're seeing for Charlie
+- [09:55.861] has been overwhelming and it doesn't go unnoticed.
+- [09:58.130] So thank you so much. I have three questions,
+- [10:00.066] if I may on the horrific murder of Charlie Kirk.
+- [10:04.370] Government and local officials said that Antifa inscriptions
+- [10:07.606] were engraved in these bullet casings
+- [10:10.543] that killed Charlie Kirk.
+- [10:12.578] It appears to be a trend, especially after what we saw
+- [10:15.715] in the Annunciation Catholic Church shooting.
+- [10:18.918] Additionally, Stephen Miller recently commented on the rise
+- [10:21.620] in this kind of violence
+- [10:22.855] saying there is a domestic terrorist movement
+- [10:25.958] growing in this country, but the President is designating
+- [10:29.161] Antifa as a domestic terrorist organization.
+- [10:31.864] I'm wondering what is the approach
+- [10:34.633] to holding these people accountable
+- [10:37.269] just to ensure that violence like this
+- [10:39.805] just is eradicated moving forward?
+- [10:42.041] Karoline Leavitt: Sure.
+- [10:43.275] Well, Antifa is going to be designated
+- [10:46.045] a domestic terrorist organization.
+- [10:48.014] The President intends to sign that executive order very soon,
+- [10:51.484] as soon as it's drafted, as soon as today,
+- [10:53.786] later this afternoon.
+- [10:55.554] And this is something the President campaigned on
+- [10:58.024] because we have seen a rise in violence
+- [11:01.394] perpetuated by Antifa radical people across this country
+- [11:06.899] who subscribe to this group.
+- [11:08.534] And unfortunately, it's gone widely uncovered
+- [11:11.103] by many in the legacy media.
+- [11:12.705] It also went completely ignored by the previous administration.
+- [11:16.308] Not anymore. Not only, as you mentioned,
+- [11:18.677] were the bullet casings subscribed
+- [11:20.479] with Antifa mottos, if you will,
+- [11:22.915] in the heinous assassination of Charlie,
+- [11:25.217] but there have also been more examples
+- [11:27.353] than I could read off for you here
+- [11:29.221] in this briefing room today of violence from Antifa.
+- [11:32.024] I will just read a few.
+- [11:33.359] In July 2025, several members of an Antifa cell ambushed
+- [11:37.830] and opened fire on officers at an ICE facility in Alvarado,
+- [11:41.600] Texas shooting one officer in the neck.
+- [11:44.170] Also, in July 2025, three Antifa members were charged
+- [11:47.873] with assaulting a police officer during a violent riot
+- [11:51.077] outside an ICE facility in Portland,
+- [11:53.879] which for weeks prior had been under siege
+- [11:56.282] from the local Antifa terror cell.
+- [11:58.451] In February 2024, a transgender Antifa terrorist
+- [12:01.854] detonated an explosive device outside of the office
+- [12:05.357] of the Republican Attorney General of Alabama.
+- [12:08.194] In July 2023, Antifa members linked to abortionist group,
+- [12:11.964] Jane's Revenge,
+- [12:13.265] firebombed pro-life facilities and vandalized churches.
+- [12:17.103] In January 2022, a suspected Antifa member was arrested
+- [12:21.006] for bringing a pipe bomb to a pro-Trump event.
+- [12:24.210] In January 2021, an Antifa supporter threatened
+- [12:27.179] to shoot police officers and Trump supporters
+- [12:29.648] outside of the Florida State Capitol building.
+- [12:32.084] Again, I could continue to list many more examples
+- [12:34.854] for those in the room who don't believe this
+- [12:36.388] is a serious threat to American safety
+- [12:38.858] and our national security,
+- [12:40.126] but this administration knows that it is.
+- [12:42.061] That's why the President will be signing this order.
+- [12:44.163] And we will also be most importantly looking at
+- [12:46.098] who is funding Antifa
+- [12:48.033] and who is funding these other violent left-wing groups
+- [12:51.103] that we've seen perpetuate so much crime
+- [12:53.672] and mayhem across our country.
+- [12:54.940] Monica Page: Thank you.
+- [12:56.175] And Charlie Kirk died exercising his first amendment right,
+- [12:59.278] willingly debating, conversing with everybody and anybody.
+- [13:02.915] That was what he did.
+- [13:04.550] So what message does this White House
+- [13:06.452] have now to all Americans who feel like they're too afraid
+- [13:11.190] to express their beliefs, their values,
+- [13:13.792] their morals in the wake of such horrific violence?
+- [13:16.395] Karoline Leavitt: I think the President has answered this,
+- [13:18.230] and I will leave it to his response, Monica,
+- [13:21.133] where he so beautifully said, "We have to keep fighting."
+- [13:24.270] We have to keep speaking up,
+- [13:25.638] we have to keep speaking our mind.
+- [13:27.306] I know that's what Charlie would want us to do
+- [13:30.075] and we have a right to free speech in this country.
+- [13:32.845] The President supports it.
+- [13:34.113] It is protected by our beautiful Constitution,
+- [13:36.982] and Americans should not cower in fear.
+- [13:38.984] They should rise up in courage to continue speaking the truth.
+- [13:41.854] Monica Page: And to end on a lighter note, Karoline,
+- [13:43.355] I'd love to know what your favorite memory of Charlie is.
+- [13:46.125] Karoline Leavitt: Sure. Charlie was a great guy
+- [13:48.961] and he was, of course a very influential person
+- [13:51.363] in the conservative movement, in the MAGA movement.
+- [13:53.899] He was so helpful to the President during the campaign
+- [13:56.535] and to all of us who worked on that historic campaign.
+- [14:00.239] I myself had many great memories
+- [14:02.341] going on Charlie's amazing podcast and his show.
+- [14:05.911] He was always willing to text people
+- [14:08.681] with words of encouragement.
+- [14:09.982] In fact, my last text exchange with him
+- [14:12.484] was the day before he died and he was asking for my husband
+- [14:16.488] and I's address to send a children's book to our son.
+- [14:19.858] And I think that just speaks to the type of person that he was.
+- [14:23.562] And I know so many of us here at the White House
+- [14:25.231] are going to miss him very much.
+- [14:26.565] Monica Page: Thank you, Karoline.
+- [14:27.766] Karoline Leavitt: Thank you. Gabe?
+- [14:29.001] The Press: Karoline, thank you.
+- [14:30.336] Regarding the autism announcement, why now?
+- [14:33.872] Does the administration have new data that hasn't been published
+- [14:37.443] previously showing a possible link
+- [14:39.245] between acetaminophen and autism?
+- [14:41.580] Karoline Leavitt: I know there's been many reports
+- [14:43.315] about what this announcement at 4:00 will be, Gabe.
+- [14:45.985] The President is very excited about this.
+- [14:47.853] So I don't want to scoop the President of the United States
+- [14:50.222] and our Secretary of Health and Human Services,
+- [14:52.625] but what I can assure you is that Robert F. Kennedy
+- [14:57.062] and the incredible health team
+- [14:59.498] that this President has put together
+- [15:00.833] are really viewing things in a much different lens
+- [15:03.769] and they're paying attention to studies
+- [15:05.738] and the gold standard of science and research
+- [15:08.073] that many in this city for far too long
+- [15:10.376] have turned a blind eye to.
+- [15:11.543] So I think Americans are going to be enlightened
+- [15:14.046] and proud of what they hear later this afternoon.
+- [15:16.715] But I won't get ahead of the President
+- [15:18.217] on exactly what that announcement entails.
+- [15:20.052] The Press: : On a different topic,
+- [15:21.620] going back to the President's social media post
+- [15:23.389] from over the weekend regarding the DOJ
+- [15:27.259] and his seeming frustration
+- [15:29.595] that they hadn't taken action quickly enough.
+- [15:33.232] I want to point to something that the President said
+- [15:35.134] during his inaugural address.
+- [15:36.635] "Never again will the immense power of the state be weaponized
+- [15:39.938] to persecute political opponents.
+- [15:42.007] We will not allow that to happen."
+- [15:43.976] Is the President going back on his promise?
+- [15:45.811] Karoline Leavitt: No.
+- [15:47.079] In fact, the President is fulfilling his promise
+- [15:50.616] to restore a Department of Justice
+- [15:52.384] that demands accountability.
+- [15:54.186] And it is not weaponizing the Department of Justice
+- [15:57.022] to demand accountability
+- [15:58.223] for those who weaponized the Department of Justice.
+- [16:02.027] And nobody knows what that looks like more than President Trump.
+- [16:05.798] We are not going to tolerate gaslighting
+- [16:07.966] from anyone in the media or from anyone on the other side
+- [16:10.569] who is trying to say that it's the President
+- [16:12.671] who is weaponizing the DOJ. It was Joe Biden
+- [16:15.841] and his attorney general who weaponized the DOJ.
+- [16:18.877] Joe Biden used this sacred American institution
+- [16:22.181] to go after his political opponent
+- [16:24.450] in the middle of an election year.
+- [16:26.885] And you look at people like Adam Schiff
+- [16:28.787] and like James Comey and like Letitia James,
+- [16:30.956] who the President is rightfully frustrated.
+- [16:33.559] He wants accountability for these corrupt fraudsters
+- [16:37.262] who abuse their power,
+- [16:38.697] who abuse their oath of office to target the former President
+- [16:42.668] and then candidate for the highest office in the land.
+- [16:45.904] And I think the President is reaffirmed in those frustrations
+- [16:49.041] and his hope for accountability by the millions
+- [16:52.344] and millions of people who re-elected him to this office
+- [16:54.780] with a mandate to demand accountability.
+- [16:57.015] And the President has not been shy about this, Gabe.
+- [17:00.452] In fact, when he traveled to the Department of Justice
+- [17:02.921] earlier this year, all of you were there to cover it.
+- [17:05.858] He said, "I demand a full and complete accountability
+- [17:09.495] for wrongs and abuses that have occurred."
+- [17:12.030] The American people gave a mandate to investigate
+- [17:14.700] and route the corruption out of our system
+- [17:17.002] and that's what the President wants to see done.
+- [17:19.505] Ed?
+- [17:20.739] The Press: On the autism issue again,
+- [17:23.175] there are reams of scientific research
+- [17:26.211] that suggest there's no clear link
+- [17:27.746] between autism and acetaminophen usage.
+- [17:32.184] You're suggesting today they may have no information on this.
+- [17:34.853] A lot of it and this entire debate
+- [17:36.922] has the potential to women,
+- [17:39.491] especially pregnant women, about what to do.
+- [17:41.727] What do you say to those that say what you're doing today
+- [17:44.196] potentially just introduces more confusion into the debate?
+- [17:46.765] Karoline Leavitt: I think women, for many years, in fact,
+- [17:49.067] for decades, Ed, have been confused
+- [17:51.036] by the rapid increase in autism in this country,
+- [17:55.174] in the childhood chronic epidemic,
+- [17:58.911] disease epidemic that is plaguing America's youth.
+- [18:01.814] Women are confused about that and they want answers to that.
+- [18:04.783] And that's exactly what this administration
+- [18:06.485] is focused on finding,
+- [18:07.953] and before you jump to conclusions,
+- [18:09.655] based on reports that the White House has not even confirmed,
+- [18:12.691] I would encourage everyone in this room
+- [18:14.626] to go into the 4:00 announcement
+- [18:16.361] with some critical thinking skills
+- [18:18.096] and with some open ears to actually listen
+- [18:20.699] to what the President and his team of outsiders
+- [18:23.502] have to say about this. There will be a number of things
+- [18:26.405] that will be announced and discussed.
+- [18:28.774] I know, as a mother myself, I speak,
+- [18:31.009] I believe, for many mothers across the country,
+- [18:32.845] who really want answers to what is happening
+- [18:34.847] to our nation's children.
+- [18:36.381] Again, I won't get ahead of the President,
+- [18:37.850] but I think everyone in this room
+- [18:39.384] needs to tone down the judgment
+- [18:41.320] before you even hear what people are going to say.
+- [18:43.422] Sure.
+- [18:44.656] The Press: : Thanks, Karoline. Two on the Homan investigation.
+- [18:47.493] Can you just speak to, did the President
+- [18:49.795] ask the Justice Department to close the case?
+- [18:52.498] Does Homan have to return the $50,000?
+- [18:55.133] Karoline Leavitt: Well, Mr. Homan never took the $50,000
+- [18:57.169] that you're referring to,
+- [18:58.537] so you should get your facts straight, number one.
+- [19:00.906] Number two, this was another example of the weaponization
+- [19:04.643] of the Biden Department of Justice
+- [19:06.745] against one of President Trump's strongest
+- [19:09.114] and most vocal supporters in the midst
+- [19:11.283] of a presidential campaign.
+- [19:12.718] You had FBI agents going undercover
+- [19:15.721] to try and entrap one of the President's
+- [19:17.890] top allies and supporters, someone who they knew very well
+- [19:21.193] would be taking a government position months later.
+- [19:23.662] Mr. Homan did absolutely nothing wrong,
+- [19:26.598] and even the President's Department of Justice,
+- [19:29.668] even Cash Patel's FBI looked into this just to make sure
+- [19:33.505] they had a number of different prosecutors
+- [19:35.173] and FBI agents who looked into this.
+- [19:37.276] They found zero evidence of illegal activity or criminal
+- [19:41.013] wrongdoing in the White House,
+- [19:42.881] and the President's stand by Tom Homan 100 percent,
+- [19:46.351] because he did absolutely nothing wrong,
+- [19:48.153] and he is a brave public servant,
+- [19:50.222] who has done a phenomenal job
+- [19:51.456] in helping the President shut down the border. Mary.
+- [19:53.525] The Press: : Thanks, Karoline.
+- [19:54.760] I had two questions on far-left violence.
+- [19:55.994] Karoline Leavitt: Sure.
+- [19:57.262] The Press: : On the first one,
+- [19:58.530] the President said yesterday that the bullet hit Charlie,
+- [20:00.499] but it was aimed at every one of us.
+- [20:02.601] Do you and your colleagues have a heightened sense
+- [20:04.436] of fear of following this shooting
+- [20:06.271] and this far-left violence we're seeing across the country?
+- [20:08.974] Karoline Leavitt: I certainly think
+- [20:10.242] there's a heightened sense of awareness
+- [20:11.877] by conservatives across the country,
+- [20:15.147] by all of us here at the White House.
+- [20:17.115] Again, as I said to Monica,
+- [20:18.684] many of us were personal friends with Charlie
+- [20:21.853] and had involvement with Turning Point
+- [20:24.323] before we came and served our government in this way.
+- [20:27.659] Certainly, it's a very shocking incident,
+- [20:30.529] and I think it's very unfortunate
+- [20:33.165] that those of us who work in this movement
+- [20:35.968] have to think about violence just for speaking our minds
+- [20:39.438] and for supporting President Trump.
+- [20:41.173] The Press: As a follow-up on that,
+- [20:42.474] I asked the President last night on Air Force One
+- [20:44.309] about this pattern of transgender violence
+- [20:46.311] we're seeing.
+- [20:47.879] Charlie's killer lived with his boyfriend
+- [20:51.316] who identifies as transgender,
+- [20:52.551] and then, we had the Annunciation shooting,
+- [20:54.453] the Covenant shooting, all of these incidents.
+- [20:56.488] The president said that we're looking
+- [20:57.756] into transgender violence.
+- [20:59.091] Does that mean the FBI is looking into it?
+- [21:00.993] Can you give any more clarity
+- [21:02.294] on how the administration is viewing this uptick
+- [21:05.464] in specifically transgender violence?
+- [21:07.466] Karoline Leavitt: It's definitely something
+- [21:08.800] worth looking into, and I think anyone who denies
+- [21:10.936] that at this point is being willfully ignorant.
+- [21:13.872] The administration is taking it seriously,
+- [21:15.807] all causes of violence and why these people would be driven
+- [21:19.378] to such evil and such hatred.
+- [21:22.080] There's probably many answers to that question,
+- [21:24.216] but the administration is really focused on all of them
+- [21:27.352] for individual investigations and cases.
+- [21:29.454] Of course, the FBI and the Department of Justice
+- [21:31.556] are leading those. But as for this overall violence
+- [21:35.127] and domestic terrorism that we're seeing,
+- [21:37.496] the White House and the President's policy team
+- [21:39.498] will be leading the charge,
+- [21:40.866] and that really begins with designating ANTIFA
+- [21:43.602] as a domestic terrorist organization,
+- [21:45.671] and I can assure you,
+- [21:46.905] there will be additional actions to come.
+- [21:49.107] Sure, in the pink.
+- [21:50.542] The Press: : Thanks, Karoline. Liz Landers with PBS News Hour.
+- [21:53.211] I just wanted to follow up quickly on something
+- [21:55.380] that the President had said yesterday.
+- [21:57.683] We heard from Erika Kirk,
+- [21:59.217] she said she forgives the man who shot and killed her husband.
+- [22:02.854] And then, right after that,
+- [22:04.156] we heard from the President who said,
+- [22:05.390] I hate my opponent and I don't want the best for them.
+- [22:09.027] How does that square with bringing down the temperature
+- [22:11.029] of political violence in this country?
+- [22:12.864] And then, if I could, I had a follow-up on Venezuela too.
+- [22:15.333] Karoline Leavitt: Look, the President
+- [22:16.635] is authentically himself.
+- [22:18.303] I think that's why millions of Americans
+- [22:19.938] across the country love him and support him,
+- [22:22.107] including Erika Kirk, who you saw, so beautifully,
+- [22:25.911] was on stage with the President in an unthinkable moment,
+- [22:29.281] in the midst of an unthinkable tragedy,
+- [22:31.216] and was leaning on the President for support during that time.
+- [22:34.386] He was there to give it to her, as well as the vice president,
+- [22:37.189] and many other top-ranking Cabinet officials.
+- [22:39.591] Akayla.
+- [22:40.859] The Press: Thanks, Caroline. On TikTok.
+- [22:46.231] The deal, how much is the deal?
+- [22:48.700] If you can't give an exact number
+- [22:50.435] to how much the deal is, when can we expect to learn
+- [22:53.238] how much the deal is being valued at?
+- [22:54.773] And then, separately,
+- [22:57.943] who are the members involved in the deal?
+- [23:00.412] Can you share any more details there?
+- [23:02.214] Karoline Leavitt: I don't have a specific number for you,
+- [23:04.015] nor am I going to confirm the specific individuals
+- [23:07.285] and entities in the deal, Akayla,
+- [23:09.888] but I do have several details
+- [23:11.356] I'm happy to run through for all of you.
+- [23:13.191] The president will be signing the deal,
+- [23:15.594] the official deal, later this week at some point.
+- [23:18.964] Under the terms of this deal,
+- [23:20.265] TikTok will be owned by a majority of American investors
+- [23:23.368] and controlled by a board of directors
+- [23:24.936] with extensive national security and cybersecurity credentials.
+- [23:28.573] In partnership with the US government,
+- [23:30.375] Oracle will serve as TikTok's trusted security provider,
+- [23:34.079] and they will independently monitor
+- [23:35.614] the safety and data security
+- [23:37.282] of all US user data on TikTok's platform.
+- [23:40.418] American's data will be stored securely in the United States
+- [23:43.655] without access from China.
+- [23:45.590] All US user data will be stored on servers
+- [23:48.193] operated by Oracle in the United States,
+- [23:50.929] protected from surveillance or interference
+- [23:52.931] by foreign adversaries.
+- [23:54.466] The algorithm, I know this is a question many of you have had,
+- [23:57.536] will be secured, retrained,
+- [23:59.871] and operated in the United States
+- [24:01.840] outside of ByteDance's control.
+- [24:04.509] TikTok will remain globally interoperable,
+- [24:07.779] meaning TikTok users in the US will be able to see videos
+- [24:10.849] posted by users in other countries and vice versa.
+- [24:14.419] While I don't have a number on this specific deal,
+- [24:16.154] we do expect that thanks to the President's leadership
+- [24:19.558] and the securement of this historic deal,
+- [24:22.093] businesses using TikTok will generate
+- [24:23.895] as much as $178 billion in economic activity
+- [24:27.966] within the US over the next four years.
+- [24:31.503] This is great news not just for the millions
+- [24:33.972] of American youth who use TikTok.
+- [24:35.807] Their data will be safe and secure with this new deal.
+- [24:38.276] They'll continue to use this very fun app.
+- [24:42.314] It's also great news for all of the small business owners,
+- [24:44.416] who have really been able to make a living off
+- [24:46.585] of the use of TikTok as well.
+- [24:47.919] The Press: If I could just get one more,
+- [24:49.154] as it relates to China, on crop prices with farmers.
+- [24:54.926] As there's still no official trade deal with China,
+- [24:57.662] farmers are getting a little bit antsy
+- [24:59.431] navigating prices being weak and not strong.
+- [25:03.835] How is the administration
+- [25:05.904] thinking about farmers right now?
+- [25:07.606] Is there anything we can expect to see
+- [25:09.407] from the administration on bailing farmers
+- [25:14.946] out should prices continue to not work in their favor?
+- [25:17.849] Karoline Leavitt: Well, the administration
+- [25:20.051] completely understands the anxiety of farmers.
+- [25:22.654] We're very much aware of this issue.
+- [25:24.522] It has been a part of our discussions,
+- [25:26.925] the trade team's discussions, with their Chinese counterparts.
+- [25:29.628] As for any specific actions,
+- [25:31.129] I don't have any news on that for you today,
+- [25:32.797] but I can fully assure you
+- [25:34.499] the entire National Economic Council in this building,
+- [25:36.968] as well as our Secretary of Agriculture, Brooke Rollins,
+- [25:39.838] have been talking with the trade team about this.
+- [25:41.907] There's been many meetings on this
+- [25:43.375] and they are on the ball,
+- [25:44.609] but I don't have anything specific for you today.
+- [25:46.044] Sure, Selina.
+- [25:47.245] The Press: Thanks, Karoline.
+- [25:48.446] About the case against Letitia James,
+- [25:49.781] was extensively investigated for five months,
+- [25:52.984] and President Trump's handpicked Attorney General,
+- [25:55.453] Erik Siebert, could not find any evidence
+- [25:58.423] that he committed a crime. Is the President saying here
+- [26:00.959] it doesn't matter if there's a crime,
+- [26:02.394] he just wants his political enemies to be charged?
+- [26:04.429] Karoline Leavitt: Well, let me
+- [26:05.664] just walk you through Letitia James.
+- [26:07.365] Letitia James completely abused her oath of office.
+- [26:11.403] Letitia James was actively and openly engaged in lawfare.
+- [26:15.573] You talk about weaponizing the Department of Justice.
+- [26:18.576] What was Letitia James' campaign slogan?
+- [26:21.279] It was prosecute Donald Trump.
+- [26:23.615] She was saying she was going to prosecute Donald Trump
+- [26:25.750] before she even knew if Donald Trump committed a crime,
+- [26:28.720] which, of course, we did not.
+- [26:30.322] Those are not the words of a serious prosecutor.
+- [26:32.924] Those are the words of a corrupt politician
+- [26:35.393] who is abusing their power.
+- [26:36.962] She actively campaigned on that. She also led the witch hunt,
+- [26:39.597] the financial fraud investigation against
+- [26:41.933] President Trump and the Trump organization,
+- [26:43.835] and an Appeals Court tossed that case out,
+- [26:46.104] a $500 million civil fraud penalty in August,
+- [26:49.774] which was another win for the President
+- [26:51.309] and exonerated him of this witch hunt
+- [26:53.545] and showed that this is an individual who is corrupt
+- [26:56.214] and abused her oath of office.
+- [26:57.782] We also have evidence of her mortgage fraud.
+- [27:01.119] An April report from a white-collar fraud
+- [27:03.054] investigator found
+- [27:04.255] that there was documented evidence that James engaged
+- [27:07.325] in a consistent pattern of financial and property
+- [27:09.995] disclosures that raise serious legal questions.
+- [27:13.565] The Press: But why won't the President
+- [27:14.799] accept the conclusions of his Justice Department
+- [27:18.703] to not bring charges against Letitia James?
+- [27:20.772] In fact, you had Bondi and Blanche, top DOJ leadership,
+- [27:23.875] who were against ousting Erik Siebert,
+- [27:25.844] who, again, was picked by President Trump?
+- [27:27.879] Karoline Leavitt: I just answered that question for you,
+- [27:29.581] and the President has every right to express
+- [27:31.683] how he feels about these people,
+- [27:33.451] who literally campaigned on trying to put him in jail,
+- [27:37.155] who literally tried to ruin his life and ruin his businesses,
+- [27:40.725] and he wants to see accountability
+- [27:42.093] for those who abuse their office and abuse their power.
+- [27:45.497] Letitia James absolutely did that,
+- [27:47.132] whether you want to admit it or not. Jeff.
+- [27:48.500] The Press: Isn't that retribution though?
+- [27:49.834] Karoline Leavitt: Jeff. It's accountability.
+- [27:51.436] The Press: Thanks, Karoline. Two foreign policy questions.
+- [27:53.271] President Putin has offered President Trump
+- [27:55.874] a one-year extension of the latest
+- [27:58.209] for the most recent treaty eliminating nuclear weapons.
+- [28:00.545] Does the White House have a reaction to that?
+- [28:02.580] Does the President want to accept that offer?
+- [28:04.816] And then, one separate issue to just generally,
+- [28:06.918] what is the President's response or reaction
+- [28:08.887] to the number of countries this week who are planning to
+- [28:11.956] or have recognized a Palestinian state?
+- [28:14.692] Karoline Leavitt: Two great questions, Jeff.
+- [28:16.428] To your first question about Russia,
+- [28:18.963] the President is aware of this offer
+- [28:20.698] extended by President Putin,
+- [28:23.068] and I'll let him comment on it later.
+- [28:24.602] I think it sounds pretty good,
+- [28:26.071] but he wants to make some comments on that himself,
+- [28:28.006] and I will let him do that.
+- [28:29.607] As for all of these western nations
+- [28:31.810] that are recognizing a Palestinian state,
+- [28:34.245] the President has been very clear.
+- [28:35.713] He disagrees with this decision.
+- [28:37.615] He spoke about that in the UK,
+- [28:39.084] standing right next to his friend, Prime Minister Starmer.
+- [28:41.886] And he feels this does not do anything
+- [28:44.856] to release the hostages,
+- [28:46.591] which is the primary goal right now in Gaza.
+- [28:49.260] Does nothing to end this conflict
+- [28:51.496] and bring this war to a close.
+- [28:53.498] And frankly, he believes it's a reward to Hamas.
+- [28:55.867] So he believes these decisions are just more talk
+- [28:59.170] and not enough action from some of our friends and allies,
+- [29:01.739] and I think you'll hear him talk about that tomorrow at the UN.
+- [29:03.675] Kristen.
+- [29:04.909] The Press: Thanks (inaudible).
+- [29:06.144] Just going back to this Letitia James story,
+- [29:10.415] what does President Trump plan to do
+- [29:12.484] if the Attorney General, Pam Bondi,
+- [29:14.986] tells him that there is not enough evidence
+- [29:17.222] to bring his political opponents' cases
+- [29:20.191] or to charge those cases?
+- [29:21.826] Karoline Leavitt: That's a hypothetical question, Kristen.
+- [29:23.328] That hasn't happened at this point.
+- [29:24.762] The Press: But we did see one U.S. attorney
+- [29:27.432] not be able to find enough evidence
+- [29:28.700] and now they no longer have a job.
+- [29:30.435] Is that something that you would consider?
+- [29:31.970] Karoline Leavitt: Look, the President stands
+- [29:33.505] with Pam Bondi 100 percent.
+- [29:35.340] He made that clear this weekend. He answered questions
+- [29:37.909] from all of you last night on Air Force One.
+- [29:39.811] He said the same and that's how he feels at this moment in time.
+- [29:42.580] The Press: Just one more thing on the Attorney General.
+- [29:44.082] Karoline Leavitt: Go ahead.
+- [29:45.350] The Press: Karoline, would the President support
+- [29:47.318] designating Russia as a sponsor of terrorism
+- [29:49.921] if it doesn't return kidnapped Ukrainian children?
+- [29:53.124] And secondly, we just found out
+- [29:56.394] through questioning that Hunter Biden sat in
+- [30:00.398] on the discussions of his pardons.
+- [30:02.734] What's the White House response to that?
+- [30:06.237] Karoline Leavitt: Unfortunately, I think it's unsurprising
+- [30:08.840] and it's also very telling
+- [30:11.176] that one of the only pardons Joe Biden
+- [30:13.378] signed on his way out the door was the pardon of his son.
+- [30:16.881] Everything else was signed with an auto pen,
+- [30:18.750] but that one was clearly his own signature.
+- [30:21.386] To your first question about Russia,
+- [30:22.720] I have no news to share with you on that.
+- [30:25.723] In the yellow.
+- [30:27.926] The Press: According to media reports,
+- [30:30.028] Maduro has sent a letter to President Trump,
+- [30:32.764] but President Trump avoid saying whether he has read it.
+- [30:36.067] Did he receive it?
+- [30:38.136] Karoline Leavitt: We have seen this letter.
+- [30:40.205] Frankly, I think there were a lot of lies
+- [30:42.574] that were repeated by Maduro in that letter,
+- [30:45.276] and the administration's position on Venezuela
+- [30:47.979] has not changed.
+- [30:49.180] We view the Maduro regime as illegitimate,
+- [30:52.217] and the President has clearly shown
+- [30:55.453] that he's willing to use any and all means necessary to stop
+- [30:58.423] the illegal trafficking of deadly drugs
+- [31:00.625] from the Venezuelan regime into the United States of America.
+- [31:03.962] The Press: What is the context of the letter?
+- [31:05.430] Karoline Leavitt: Gilbertson, go ahead.
+- [31:06.664] Go ahead to you and then go ahead.
+- [31:09.200] Wid Lyman: Thank you, Karoline. Wid Lyman with Border Hawk News.
+- [31:11.603] The admin has openly discussed taking legal action
+- [31:13.671] against officials in sanctuary jurisdictions
+- [31:15.640] just this last weekend,
+- [31:16.874] we saw Mayor of Evanston, Daniel Bliss,
+- [31:18.910] rioting and protesting outside the ICE facility near Chicago.
+- [31:22.480] Are there plans to start arresting sanctuary mayors
+- [31:25.116] or governors going forward?
+- [31:28.519] Karoline Leavitt: Unless they commit a crime,
+- [31:29.721] I don't see them being arrested.
+- [31:31.222] But if they are violating federal law,
+- [31:33.491] if they're violating state law,
+- [31:35.059] then of course they should be arrested by state
+- [31:37.028] and local law enforcement.
+- [31:38.263] If they're violating federal law,
+- [31:40.398] then they can expect the consequences
+- [31:42.367] of that behavior. Nick.
+- [31:43.635] The Press: Thank you, Karoline.
+- [31:44.936] Would the President like to see Congress pass a national holiday
+- [31:48.773] honoring Charlie Kirk annually?
+- [31:51.075] Karoline Leavitt: That's an interesting question.
+- [31:52.443] I'm sure he wouldn't oppose such a thing,
+- [31:54.779] but you can pose that to him yourself
+- [31:56.247] next time you get the chance.
+- [31:57.515] The Press: Sure thing. And to follow up too,
+- [31:58.883] I know the President is honoring Charlie
+- [32:00.985] with the Presidential Medal of Freedom.
+- [32:03.388] Is there anything else that we don't know of
+- [32:05.690] in the works to honor Charlie?
+- [32:07.625] Karoline Leavitt: Not at this time,
+- [32:08.860] but we do look forward to that Medal of Freedom
+- [32:10.628] ceremony very soon. Daniel.
+- [32:12.797] The Press: Thanks, Karoline. This past Friday, Adam Schiff,
+- [32:14.999] Tim Kaine introduced a resolution on Capitol Hill
+- [32:17.635] aimed at stopping the successful kinetic
+- [32:19.304] strikes against narco-terrorists in the Caribbean Sea.
+- [32:23.007] What type of message does it send to families,
+- [32:24.609] specifically families who have suffered
+- [32:26.544] at the hands of deadly narco drugs like these?
+- [32:29.013] Karoline Leavitt: I definitely think it sends
+- [32:30.648] the wrong message.
+- [32:32.216] We wish that Democrats would get on board
+- [32:34.986] with a very simple idea of ending drug trafficking
+- [32:38.723] and securing our homeland.
+- [32:40.625] And I saw a report this morning
+- [32:42.060] that the Dominican Republic actually helped us seize a boat
+- [32:44.862] that was on its way from Venezuela
+- [32:47.065] to the United States of America
+- [32:49.267] with lots of deadly drugs on board.
+- [32:51.235] And so if you actually hear from Caribbean nations
+- [32:54.005] in the region, they're thankful and grateful
+- [32:56.407] for the administration's efforts,
+- [32:57.675] and they're working alongside us to end
+- [32:59.677] this plague of drug trafficking through their seas.
+- [33:03.181] Sure. Karen.
+- [33:04.682] The Press: : Over the weekend, Democratic leaders,
+- [33:06.417] Chuck Schumer and Hakeem Jeffries,
+- [33:07.919] sent a letter to the White House
+- [33:09.287] asking for a meeting with the President
+- [33:10.988] to talk about government funding.
+- [33:12.423] Has the White House responded to that letter
+- [33:14.225] and will the President sit down with them
+- [33:15.827] to talk about this given that deadline is now eight days away?
+- [33:19.597] Karoline Leavitt: Discussions are ongoing
+- [33:20.932] with both Republican and Democratic
+- [33:22.800] members of Capitol Hill. I don't have any meetings
+- [33:27.004] or any scheduling updates for you today,
+- [33:29.474] but what I will share is that what this White House wants
+- [33:32.343] and what Republicans want,
+- [33:33.644] we want a clean funding extension
+- [33:36.414] to keep the government open.
+- [33:38.049] That's all we're advocating for, a simple clean budget extension,
+- [33:40.918] a straightforward, responsible solution
+- [33:43.020] to keep the government open to November 21st
+- [33:45.556] and allow the full-year appropriations
+- [33:47.558] process to move forward.
+- [33:49.127] And I will add, this is the same budget
+- [33:51.629] that the Democrats approved six months ago
+- [33:53.464] just adjusted for inflation.
+- [33:55.333] And unfortunately, all of a sudden
+- [33:56.801] now they want to shut down the government.
+- [33:59.804] And if the government is shut down,
+- [34:02.573] it will be the fault of the Democrats
+- [34:03.908] and it will only hurt the most vulnerable in our country,
+- [34:06.611] our seniors, our veterans, our military families,
+- [34:09.714] and increasing security for members of Congress,
+- [34:12.083] which is something this White House
+- [34:13.718] and the administration supports.
+- [34:15.353] And if you look back at the statements
+- [34:17.155] made by Chuck Schumer and Hakeem Jeffries in the past,
+- [34:20.425] they too have advocated against a shutdown
+- [34:23.294] and for keeping the government open.
+- [34:25.730] Democrat Chuck Schumer himself said,
+- [34:28.433] "A shutdown would mean chaos and pain
+- [34:30.835] and needless heart break for the American people."
+- [34:33.271] He said once, "Avoiding a shutdown is very good news
+- [34:35.873] for the country, for our veterans,
+- [34:37.341] for parents and children, for farmers,
+- [34:39.410] and for small businesses."
+- [34:40.845] Hakeem Jeffries also said, "It's about the harm.
+- [34:43.481] Families will be hurt.
+- [34:44.916] If there is a government shutdown, farmers will be hurt.
+- [34:47.819] Holiday travel will be impacted."
+- [34:50.121] Democrats clearly know what the right thing to do is here.
+- [34:52.557] It's to join with Republicans
+- [34:53.825] to pass this clean funding extension.
+- [34:55.993] That's what the White House and the President wants.
+- [34:58.029] And with that, we will see you all at 4:00
+- [34:59.864] for this big announcement later on.
+- [35:01.632] Thanks guys.

@@ -1,0 +1,271 @@
+<!-- source: https://www.youtube.com/watch?v=Nlmkn3JNOHI -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: Nlmkn3JNOHI -->
+<!-- date_published: 2025-04-16T21:34:43+00:00 -->
+<!-- date_accessed: 2026-06-02T01:27:50.391319+00:00 -->
+
+# Transcript: Press Secretary Karoline Leavitt Briefs Members of the Media with a Special Guest, Apr. 16, 2025
+
+- [00:06.670] Ms. Leavitt: Thank you. Good afternoon, everybody.
+- [00:10.890] President Trump campaigned on the promise
+- [00:13.330] to secure our homeland
+- [00:15.030] and deport violent alien criminals from our communities.
+- [00:19.320] That is why the American people
+- [00:20.870] overwhelmingly re-elected him back to this office
+- [00:23.880] and it's why the American people
+- [00:25.300] defeated the Democrat Party in devastating fashion.
+- [00:29.010] Today, we have officially learned Democrat officials
+- [00:32.390] still refuse to accept the will of the American people.
+- [00:36.800] Maryland Democrat Senator, Chris Van Hollen,
+- [00:39.350] rushed to Dulles Airport this morning to fly to El Salvador,
+- [00:43.580] potentially using taxpayer dollars,
+- [00:46.410] to demand the release of deported illegal alien
+- [00:50.150] MS-13 terrorist.
+- [00:52.750] The Democrats in the media in this room
+- [00:54.940] have continually and wrongly labeled Kilmar Abrego Garcia
+- [00:59.850] as a Maryland father.
+- [01:02.150] There is no Maryland father. Let me reiterate.
+- [01:05.610] Kilmar Abrego Garcia is an illegal alien,
+- [01:08.870] MS-13 gang member, and foreign terrorist
+- [01:12.050] who was deported back to his home country.
+- [01:15.430] And when Kilmar Abrego Garcia was originally arrested,
+- [01:18.820] he was wearing a sweatshirt with rolls of money
+- [01:21.100] covering the ears, mouth, and eyes of presidents
+- [01:23.490] on various currency denominations.
+- [01:25.900] This is a known MS-13 gang symbol of hear no evil,
+- [01:30.330] speak no evil, see no evil.
+- [01:32.760] Abrego Garcia was also arrested with two other
+- [01:35.330] well-known members of the vicious MS-13 gang,
+- [01:39.100] and two separate judges found that Abrego Garcia
+- [01:41.770] was a member of MS-13.
+- [01:43.980] And that finding has never been disputed.
+- [01:47.170] And just this morning it was revealed through Maryland
+- [01:50.250] Court documents that Abrego Garcia's wife petitioned
+- [01:53.330] for an order of protection against him
+- [01:55.870] for two instances of domestic violence in May of 2021.
+- [02:01.100] And here is the order right here.
+- [02:04.230] The court ordered that the respondent
+- [02:06.960] committed the following acts of abuse.
+- [02:09.170] Once in May of 2021, assault in any degree,
+- [02:14.100] and on May 4th, 2021, he punched and scratched his wife,
+- [02:19.840] ripped off her shirt and grabbed and bruised her.
+- [02:23.970] This is from a court in Maryland.
+- [02:27.840] Not only are Democrats rushing to defend an illegal criminal,
+- [02:30.840] foreign terrorist gang member,
+- [02:32.140] but also an apparent woman beater.
+- [02:35.840] To set all of that aside, the basic fact
+- [02:37.940] that he was illegally inside our country,
+- [02:40.150] and had a lawful deportation order,
+- [02:42.270] made him subject to removal back
+- [02:44.500] to his home country of El Salvador.
+- [02:47.400] And if he ever ends up back in the United States,
+- [02:49.690] he would immediately be deported again.
+- [02:53.010] Nothing will change the fact that Abrego Garcia
+- [02:55.640] will never be a Maryland father.
+- [02:58.030] He will never live in the United States of America again.
+- [03:01.710] And the United States Supreme Court ruled unanimously
+- [03:04.120] that the President of the United States
+- [03:05.710] and the Secretary of State
+- [03:06.980] could not be compelled to forcibly retrieve
+- [03:09.560] this citizen of El Salvador,
+- [03:11.660] who is currently locked up in a maximum security prison
+- [03:14.480] in his home country due to his MS-13 membership.
+- [03:18.740] To remind the media and the Democrat party,
+- [03:20.840] MS-13 are among the most vicious
+- [03:22.910] and dangerous individuals in this world.
+- [03:25.510] They pose a direct threat to the United States, El Salvador,
+- [03:29.060] and any other country who maintains basic law and order.
+- [03:32.290] MS-13 rapes innocent girls and women,
+- [03:35.290] runs sex trafficking operations,
+- [03:37.910] murders for sport and terrorizes law-abiding people.
+- [03:42.210] That's why El Salvador President Bukele
+- [03:44.410] made it clear this week that he will not be releasing
+- [03:47.170] this MS-13 gang member from his prison.
+- [03:50.180] But that is not enough.
+- [03:51.950] All of that is not enough to stop the Democrat Party
+- [03:55.660] from their lies.
+- [03:57.460] The number one issue they're focused on right now
+- [03:59.500] is bringing back this illegal alien terrorist to America.
+- [04:03.100] But where are the Democrats applauding the fact
+- [04:05.240] that southern border crossings just hit a historic low?
+- [04:08.560] Where are the Democrats supporting our brave men
+- [04:10.640] and women of law enforcement
+- [04:11.950] who are putting their lives on the line
+- [04:13.480] every single day to arrest the violent,
+- [04:15.370] illegal alien invaders
+- [04:17.130] that the previous administration allowed into our country?
+- [04:20.250] And where are the Democrats
+- [04:21.530] when innocent Americans are victimized by illegal criminals
+- [04:25.840] that Joe Biden led in?
+- [04:27.660] It's appalling and sad that Senator Van Hollen,
+- [04:30.820] and the Democrats applauding his trip to El Salvador today,
+- [04:34.320] are incapable of having any shred of common sense
+- [04:37.370] or empathy for their own constituents and our citizens.
+- [04:41.700] Nobody knows this more than the woman standing to my right,
+- [04:45.700] Patty Moran,
+- [04:47.090] whose beautiful daughter Rachel was brutally maimed and murdered
+- [04:50.110] at the hands of an illegal alien in August of 2023.
+- [04:54.480] Patty no longer has her daughter
+- [04:56.410] because of the failed Democrat Party's open border.
+- [04:59.620] And these are policies that President Trump
+- [05:01.710] is bringing an end to.
+- [05:03.450] Patty should not have to be here today,
+- [05:05.020] but she is, and we are grateful
+- [05:07.370] and we are honored for her willingness
+- [05:09.240] and her request to share her powerful story with the world.
+- [05:13.840] Thank you, Patty, for being here.
+- [05:15.190] Ms. Moran: Thank you.
+- [05:18.750] A lot of you don't know the whole story about Rachel
+- [05:23.630] and about the crime that was committed against her.
+- [05:27.540] Even us, her family, we didn't know all the details.
+- [05:32.010] They kept most of it close to their chest, the detectives,
+- [05:37.060] because they didn't want to do anything to hurt the case.
+- [05:45.450] They wanted to keep the integrity of the case,
+- [05:48.070] so they kept everything close.
+- [05:50.570] I sat for the last two weeks in her trial
+- [05:55.620] and we saw layer upon layer
+- [05:59.990] upon layer of evidence against the accused,
+- [06:04.220] an illegal immigrant from El Salvador.
+- [06:08.050] And the things that we thought,
+- [06:10.360] maybe this might've happened, we didn't know,
+- [06:13.750] but when we were at the trial, we got all the puzzle pieces.
+- [06:17.570] And I want to share some of those things with you.
+- [06:21.440] You know that Rachel's a 37-year-old mother.
+- [06:24.320] She has five children.
+- [06:25.970] We've walked the trail for the last 25 years
+- [06:28.560] that we've lived in Maryland.
+- [06:30.430] It's a safe place for our family.
+- [06:32.330] It's where we go to get a little bit of New England,
+- [06:35.340] because that's where we're from, New England.
+- [06:38.180] When she went on that trail that day,
+- [06:40.880] she was not planning on dying.
+- [06:43.320] She wasn't planning on walking to her death.
+- [06:45.960] She was planning on going to the grocery store
+- [06:47.730] with her girls afterwards.
+- [06:50.890] Victor Martinez, he waited for her.
+- [06:55.520] He waited for her to come closer.
+- [06:58.580] He saw her. He saw that there was nobody around.
+- [07:03.900] He attacked her.
+- [07:07.420] He dragged her 150 feet, blood gushing from her head.
+- [07:13.360] It left 150 foot trail of her blood
+- [07:16.910] to the culverts where he took, he picked her up,
+- [07:22.070] he threw her against the wall of the tunnel and he raped her.
+- [07:29.960] But before he did that, he stopped on that trail
+- [07:34.190] and rocks, still stained with her blood,
+- [07:39.130] he used them to hammer her head against those rocks.
+- [07:44.340] They say at least 20 times.
+- [07:48.470] They could count the cuts in her head.
+- [07:52.850] They said that when they did the autopsy,
+- [07:55.010] and I've seen the pictures,
+- [07:56.680] there's a six-inch square in the back of her head
+- [08:00.520] where the skull is shattered the way
+- [08:03.150] that you would crush an eggshell in pieces.
+- [08:07.500] Three-fourths of her brain hemorrhaged.
+- [08:11.030] Her right and left side of her face bashed in.
+- [08:14.970] Her beautiful face, bashed in.
+- [08:17.910] Her head, bashed in. Broken bones, fractures.
+- [08:23.430] He takes and he drags her some more.
+- [08:26.810] He drags her through the thorn bushes.
+- [08:31.180] She has all the scrapes and cuts on her body.
+- [08:34.570] There wasn't one inch of her body
+- [08:36.020] that didn't have some kind of injury,
+- [08:39.030] whether it's bruising, broken bones,
+- [08:42.870] contusions, the scratches.
+- [08:45.650] She had a fractured rib, fractured nose, fractured skull.
+- [08:53.060] And then he takes her into the tunnel and he picks her up.
+- [08:58.310] He throws her against the wall.
+- [09:01.230] Blood is gushing from her head. Her hair is soaked in blood.
+- [09:06.210] And they showed us pictures of her body
+- [09:09.750] against the wall, outlined.
+- [09:11.620] The blood outlined her body and you could see
+- [09:15.210] where the blood ran down around her as he was raping her.
+- [09:20.630] And then he threw her down and raped her some more.
+- [09:25.560] And then he strangled her because he didn't want her
+- [09:28.740] to be able to live to tell the story.
+- [09:32.010] They said that when they did the autopsy on her neck,
+- [09:35.790] that one of the things they do is they open up the neck
+- [09:38.140] and they look to see how far the injury is.
+- [09:41.020] And they went all the way down as far as an injury is possible,
+- [09:44.980] hemorrhaging in the muscles,
+- [09:47.150] because of how strong and violent the grip was around her.
+- [09:54.270] These are the kind of people that have no compulsion.
+- [10:01.720] To them, this is nothing.
+- [10:04.180] And when he was sitting in the courtroom,
+- [10:08.850] he actually looked like
+- [10:10.950] he thought he was going to be set free.
+- [10:14.500] There was no remorse on his face at all.
+- [10:18.970] This person took my daughter so violently and so gruesomely
+- [10:24.740] and so graphically that they sealed the pictures
+- [10:28.650] because I don't want my granddaughters
+- [10:31.320] to see these pictures. These are the kind of criminals
+- [10:37.420] President Trump wants to remove from our country.
+- [10:41.390] These are the kind of criminals
+- [10:42.810] that we need to remove from our country.
+- [10:45.770] We are American citizens.
+- [10:47.600] Why should we allow people like this,
+- [10:51.330] violent criminals that have no conscience at all,
+- [10:55.210] to murder our mothers, our sisters, our daughters?
+- [11:02.300] I don't understand
+- [11:03.940] why there's even any kind of problem with this.
+- [11:09.120] And it's not that it's political,
+- [11:11.910] like the left or the right,
+- [11:13.300] although I understand different parties
+- [11:15.860] have used it in the past.
+- [11:17.740] But we have to look at it as we are American citizens.
+- [11:22.170] We need to protect our families, our borders, our children.
+- [11:29.230] I don't care about politics.
+- [11:31.610] I do, but I want to preserve life.
+- [11:36.780] And that's the only reason why I have taken
+- [11:39.970] and spoken about Rachel all this time.
+- [11:43.330] If you're a mother here in the room,
+- [11:45.780] can you imagine standing there, alive?
+- [11:49.480] You're alive and someone comes
+- [11:51.380] and puts the hands into your chest
+- [11:53.060] and rips out your heart. That's what it feels like.
+- [11:57.170] It feels like a part of you is being ripped out of you.
+- [12:00.590] You can't even describe the pain.
+- [12:03.380] Just like you can't describe to your husband
+- [12:05.870] what it feels like to carry a baby in your womb
+- [12:08.910] or to feel those first kicks
+- [12:11.200] or to know just intuitively if it's a boy or a girl.
+- [12:14.720] It's only a thing that a mother knows.
+- [12:18.660] Why are we not protecting the American citizens?
+- [12:23.810] It's just common sense.
+- [12:25.110] Why are we not protecting our children?
+- [12:28.980] And to have a senator from Maryland,
+- [12:33.470] who didn't even acknowledge, or barely acknowledged,
+- [12:36.730] my daughter and the brutal death that she endured,
+- [12:42.220] leaving her five children without a mother
+- [12:46.240] and now a grandbaby without a grandmother,
+- [12:50.160] so that he can use my taxpayer money
+- [12:53.740] to fly to El Salvador,
+- [12:56.340] to bring back someone that's not even an American citizen.
+- [13:01.110] Why does that person have more right than I do,
+- [13:07.390] or my daughter or my grandchildren?
+- [13:12.550] I don't understand this. Thank you.
+- [13:18.330] Ms. Leavitt: Thank you, Patty. Thank you.
+- [13:21.470] And I just want to say that,
+- [13:26.450] as a mother and as an American citizen,
+- [13:30.280] the President and our entire team,
+- [13:32.710] and I hope people in this room,
+- [13:33.950] are grateful for your willingness to come here
+- [13:36.620] and your request to share your daughter's story.
+- [13:40.710] And I think the country hears you loud and clear,
+- [13:42.690] so thank you.
+- [13:43.980] Ms. Moran: You're welcome.
+- [13:45.180] Ms. Leavitt: Does anyone have any questions
+- [13:47.030] for Patty or for me? No?
+- [13:51.820] The Press: I have a question.
+- [13:53.140] Ms. Leavitt: No. Anybody? Okay. We'll see you all later.
+- [13:56.130] The President will be at his dinner later this evening.
+- [13:58.040] Thank You.
+- [13:59.260] The Press: Thank you for being here, Miss Moran.
+- [14:00.810] We really appreciate it.
+- [14:10.400] Ms. Moran: Tell the truth. Tell how violent it really is.
+- [14:15.330] This is about protecting our children.
+- [14:19.360] It's more than just politics or votes or just anything.
+- [14:25.000] It's about national security, protecting Americans,
+- [14:28.190] protecting our children.
+- [14:30.660] Thank you. Thank you for listening.
+- [14:32.580] The Press: Thank you.

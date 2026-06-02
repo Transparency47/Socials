@@ -1,0 +1,923 @@
+<!-- source: https://www.youtube.com/watch?v=As557pqGUZU -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: As557pqGUZU -->
+<!-- date_published: 2025-12-11T18:55:48+00:00 -->
+<!-- date_accessed: 2026-06-02T02:40:20.701836+00:00 -->
+
+# Transcript: Press Secretary Karoline Leavitt Briefs Members of the Media, Dec. 11, 2025
+
+- [00:03.070] Karoline Leavitt: Hello, everybody.
+- [00:04.610] Good afternoon.
+- [00:05.910] Hello -- some new faces in here today.
+- [00:08.970] As we approach the end of the year,
+- [00:10.830] it is a great time to reflect on how much progress our country
+- [00:14.420] has made under President Trump's bold leadership.
+- [00:18.090] Given the complete mess that President Trump inherited
+- [00:21.120] from Joe Biden and radical left Democrats in Congress,
+- [00:24.760] what this administration has accomplished
+- [00:26.990] since January 20th has been nothing short of remarkable.
+- [00:31.250] While most politicians promise big on the campaign trail
+- [00:34.630] and break those promises once they get into office,
+- [00:37.820] President Trump promised big and has delivered even bigger.
+- [00:42.120] On the economic front,
+- [00:43.380] after inheriting the worst inflation crisis
+- [00:45.890] in over four decades,
+- [00:47.740] President Trump's pro-growth policies
+- [00:49.860] are making tremendous progress
+- [00:51.870] to make America affordable again.
+- [00:54.630] Under the painful Biden years,
+- [00:56.270] inflation reached a record high nine percent
+- [00:59.570] and devoured Americans' purchasing power.
+- [01:02.330] In President Trump's term thus far,
+- [01:04.530] inflation has dropped to an average of just 2.7 percent,
+- [01:08.550] marking critical progress.
+- [01:10.600] The Trump administration is working hard every single day
+- [01:14.080] to bring down the cost of living
+- [01:15.650] through bigger paychecks and lower prices.
+- [01:19.010] Real wages are finally on the rise again
+- [01:21.650] and on pace to increase to roughly $1,200
+- [01:25.310] for the average American worker this year.
+- [01:28.050] To put that into perspective, real wages declined
+- [01:31.240] by almost $3,000 under the Biden administration.
+- [01:35.600] That means Americans right now are on track already to make up
+- [01:39.060] one-third of the $3,000 in lost wages under Joe Biden.
+- [01:44.030] There's much work to do,
+- [01:45.330] but this has already been significant progress.
+- [01:48.520] President Trump has also delivered resoundingly
+- [01:50.850] on his promise to end Joe Biden's,
+- [01:52.660] insane war on American energy
+- [01:55.530] and make sure our country has reliable and affordable energy
+- [01:59.360] produced right here at home.
+- [02:01.660] As a result, the nationwide average for regular gas
+- [02:04.760] just fell to its lowest level in nearly five years.
+- [02:08.620] According to data from GasBuddy released on Monday,
+- [02:11.940] average gas prices have now dipped below $3 per gallon
+- [02:15.690] in 37 states,
+- [02:17.380] below $2.75 per gallon in 22 states,
+- [02:20.850] and below $2.50 per gallon in five states.
+- [02:23.690] Just a few years ago,
+- [02:24.970] we saw record high price gas of nearly $5 per gallon.
+- [02:29.480] American families faced constant pain at the pump,
+- [02:32.310] and those costs caused the price of everything else
+- [02:34.960] to go up as well.
+- [02:36.500] In fact, the average cost for a gallon of regular gas
+- [02:39.310] in the country was the most expensive price
+- [02:42.090] during a presidential term in US history
+- [02:44.830] under Biden's disastrous leadership,
+- [02:47.130] even with them recklessly draining our strategic reserves
+- [02:50.380] to try and artificially decrease prices.
+- [02:53.000] But thanks to President Trump, those days are long behind us.
+- [02:56.470] In the months ahead,
+- [02:57.690] Americans can expect prices to fall even further.
+- [03:01.390] We know that when gas gets cheaper,
+- [03:03.740] everything else gets cheaper too,
+- [03:05.620] and that's what this president is focusing on.
+- [03:08.150] Americans can also expect another boost
+- [03:10.150] to their bank accounts in the months
+- [03:11.430] ahead as 2026 tax refund season is upon us after the holidays
+- [03:16.880] and it's projected to be the largest ever thanks
+- [03:20.160] to President Trump's passage of the One Big, Beautiful Bill.
+- [03:23.550] According to recent analysis from Piper Sandler,
+- [03:26.410] when Americans file their taxes early next year,
+- [03:29.310] their refunds could be about one-third larger than usual,
+- [03:33.290] or roughly an extra $1,000 per filer.
+- [03:36.440] That is money straight into the pockets of the American people.
+- [03:40.400] It's only because of President Trump and Republican leadership
+- [03:43.920] that Americans will now pay no tax on tips,
+- [03:46.880] overtime and Social Security.
+- [03:49.110] President Trump and Republicans believe hard-working Americans
+- [03:52.240] deserve to keep more of their hard-earned money,
+- [03:55.000] but Democrats on the other hand,
+- [03:56.640] every single one of them voted against these massive tax cuts.
+- [04:01.600] So, remember that the next time
+- [04:03.240] Democrats try to talk about affordability.
+- [04:06.110] Democrats don't have a single clue
+- [04:08.010] about how to make America more affordable.
+- [04:10.510] They just spent the last four years
+- [04:12.210] creating the very affordability crisis
+- [04:14.690] that President Trump is fixing right now.
+- [04:17.270] And if given the chance of power ever again,
+- [04:20.030] the Democrats will implement those same policies
+- [04:22.770] and jack inflation right back up to where it was.
+- [04:26.160] Finally at the border,
+- [04:32.030] This is the single greatest
+- [04:33.670] and fastest national security victory
+- [04:36.170] in modern American history and it's not even close.
+- [04:39.520] The latest preliminary number
+- [04:40.830] is released from the month of November,
+- [04:42.930] so we have the most secure border in our nation's history.
+- [04:46.140] This is a remarkable achievement.
+- [04:49.050] November encounters came in even lower than the previous
+- [04:52.530] historic low in October, if you can believe it.
+- [04:55.510] There were only 30,367 total encounters nationwide.
+- [05:01.420] That's lower than the previous record set in October.
+- [05:05.240] And for the seventh consecutive month,
+- [05:07.880] US Border Patrol released zero illegal aliens
+- [05:12.030] into the United States.
+- [05:13.410] Let me repeat, seven months of zero illegal aliens
+- [05:17.070] being released into our country. This is a historic achievement
+- [05:20.920] and it's one that every law-abiding American citizen
+- [05:23.830] should be grateful for.
+- [05:25.440] At this point in 10 months
+- [05:26.800] under President Trump's unmatched leadership,
+- [05:29.170] we've seen less apprehensions overall than we saw
+- [05:32.460] in just one month under Joe Biden.
+- [05:34.770] Again, let me repeat, in 10 months under President Trump,
+- [05:38.470] we've seen less apprehensions at the southern border
+- [05:41.270] than we saw in one month under the previous president.
+- [05:44.440] Again remarkable results.
+- [05:47.020] All in all, the economy is back on track
+- [05:49.110] and ready to boom over the next three years.
+- [05:51.240] Biden's inflation crisis is over.
+- [05:53.130] Prices are coming down, wages are rising,
+- [05:56.520] the border is fully secure and America's best days are to come.
+- [06:00.460] President Trump has kept his word
+- [06:02.080] and delivered for the American people over the past year
+- [06:05.100] and he will not stop fighting as you heard
+- [06:06.910] from him directly this week
+- [06:08.450] until our country in every state in this country
+- [06:11.340] is better than ever before.
+- [06:13.140] So with that, I will take your questions today.
+- [06:14.960] I know there's a lot of news.
+- [06:16.170] We'll start with our new media seat.
+- [06:17.730] Mr. Bolling, it's great to see you here.
+- [06:19.780] He's a Real America's Voice. He's also the host of Edge,
+- [06:22.570] his interview and commentary podcast.
+- [06:24.880] Please, Eric, why don't you kick us off?
+- [06:26.350] The Press: Karoline, thank you very much for this
+- [06:28.220] inviting me to the new media seat.
+- [06:29.990] As you point out affordability crisis,
+- [06:32.850] it strikes me energy prices have been coming down aggressively
+- [06:36.250] since President Trump's second term approaching $55 a barrel
+- [06:40.460] for oil, gasoline, as you point out,
+- [06:42.300] under $3 a barrel nationally.
+- [06:44.340] First time in five years, by the way that $55 barrel oil
+- [06:47.420] is about half of the peak under the last four years.
+- [06:50.350] And last administration, half price,
+- [06:52.590] um wholesale prices come down yet affordability crisis.
+- [06:56.360] A lot of the folks in this room, a lot of legacy media,
+- [06:58.710] some of the people in the front row
+- [07:00.790] seem to want to call this an affordability crisis right now,
+- [07:03.800] forgetting the fact that over the last four years
+- [07:06.140] prior we hit nine percent inflation.
+- [07:08.820] Wages, as you point out, had more stagnant at best,
+- [07:11.460] sometimes had dipped.
+- [07:13.390] That's a real affordability crisis there,
+- [07:15.520] but they weren't really calling it that.
+- [07:18.140] Then you point out how President Trump
+- [07:20.520] is changing the affordability in America,
+- [07:22.920] but how will he ensure that the legacy media
+- [07:26.850] doesn't flip the script and change it
+- [07:29.450] so that they're using affordability as their word,
+- [07:33.150] their idea versus what the American people
+- [07:35.760] who know much better?
+- [07:36.980] Karoline Leavitt: Yeah, well, it's a great question, Eric,
+- [07:38.680] and it's a point of frustration for the President
+- [07:40.180] and for myself,
+- [07:41.520] I will say that's part of the reason
+- [07:42.780] I just kicked off this briefing today,
+- [07:44.640] setting the record straight with facts about the economic mess
+- [07:48.490] that the President inherited from his predecessor, Joe Biden.
+- [07:51.910] And he's focused on digging our country
+- [07:54.300] and our economy out of that hole every day.
+- [07:56.740] Things are getting better and they will continue to.
+- [07:59.450] And President Trump understands better than any politician
+- [08:02.060] in this city the pain that the American consumer
+- [08:04.730] has been feeling for years now
+- [08:06.690] because of the last administration's policies.
+- [08:08.830] You heard him in the great Commonwealth of Pennsylvania
+- [08:11.850] this past week campaigning and talking to these voters
+- [08:14.900] saying I was elected to fix this problem and I am fixing it.
+- [08:19.580] Don't forget who created it and that's the Democrats.
+- [08:22.030] And I think when you hear the President
+- [08:23.550] talk about affordability, he's saying the Democrats
+- [08:26.730] are the greatest con artists in history
+- [08:28.560] because they are now trying to claim ownership of an issue
+- [08:31.820] that they created.
+- [08:33.410] And every data point and every economic metric
+- [08:36.400] does in fact show that the economy is improving.
+- [08:39.160] And so I do wish more people would report on those facts.
+- [08:42.370] I do wish that more people would remind the American public
+- [08:45.250] how we got here and why.
+- [08:46.960] It does not mean this president is discarding
+- [08:49.060] the feelings of the American people.
+- [08:50.480] He gets it better than anyone,
+- [08:52.360] which is why his entire administration
+- [08:54.160] has been focused on the issue of the economy
+- [08:56.890] and energy prices since day one.
+- [08:58.360] The Press: If I may follow up?
+- [08:59.560] Karoline Leavitt: Sure.
+- [09:00.790] The Press: It's reported that around 10,000 commercial
+- [09:03.880] driver's license operators have been pulled
+- [09:05.790] by your transportation secretary department.
+- [09:09.240] will -- the President apply that same metric for the reason
+- [09:12.460] was they don't --
+- [09:13.720] the operators weren't speaking or reading English
+- [09:16.590] to a level that was safely --
+- [09:18.650] people thought they were safely be able
+- [09:20.190] to operate trucks on our roadways.
+- [09:22.380] It's estimated in California around 40 percent
+- [09:24.880] of Uber drivers who were --
+- [09:26.530] and Lyft drivers, don't speak English proficiently
+- [09:29.100] and the number is 45 percent in Minnesota.
+- [09:31.600] Will this same rule or metric apply
+- [09:34.740] to the gig economy like Uber and Lyft?
+- [09:36.800] Karoline Leavitt: So I don't have any announcements
+- [09:38.140] on further regulations, if you will,
+- [09:40.900] from the Department of Transportation
+- [09:42.740] with respect to this issue. However, I will just reiterate,
+- [09:46.100] the Trump administration's position is that truck drivers,
+- [09:49.750] particularly those driving big rigs
+- [09:52.200] on our nation's roads and highways,
+- [09:54.590] who have a great responsibility to keep the American public
+- [09:57.420] and their fellow citizens safe should be speaking English
+- [10:00.880] and should have an ability to read English --
+- [10:02.750] English proficiently.
+- [10:04.080] I think that's a very common sense policy to have
+- [10:07.220] and we've unfortunately seen
+- [10:08.600] and the Department of Transportation has uncovered
+- [10:11.190] and is actively working to fix these state
+- [10:13.640] sponsored commercial trucking,
+- [10:15.120] driving license -- driver's licenses,
+- [10:17.260] which we're going to people who are not qualified
+- [10:19.700] to be driving these massive trucks on American roads
+- [10:22.400] and they're endangering the lives of our fellow citizens.
+- [10:25.050] We've unfortunately seen many vehicle accidents
+- [10:28.190] across the country where people have lost their lives
+- [10:30.680] because of drivers that were just simply unqualified
+- [10:33.180] to be driving these trucks.
+- [10:34.440] So I know this is something DOT and Secretary Duffy
+- [10:37.050] take very seriously. Peter?
+- [10:39.510] The Press: Thank you, Karoline.
+- [10:41.120] Based on the way that things stand right now,
+- [10:43.420] is Operation Southern Spear about drugs or is it about oil?
+- [10:49.730] Karoline Leavitt: What I will tell you, Peter,
+- [10:51.180] is that the Trump administration is focused
+- [10:53.670] on doing many things in the Western Hemisphere.
+- [10:56.850] The President has taken a new approach
+- [10:58.940] that has not been taken by any administration
+- [11:01.440] for quite some time
+- [11:02.750] to actually focus on what's going on in our own backyard
+- [11:05.320] and there are two things
+- [11:06.610] that are very important to this administration.
+- [11:08.380] Number one, stopping the flow of illegal drugs
+- [11:12.620] into the United States of America,
+- [11:14.580] which we know has killed
+- [11:16.400] hundreds of thousands of Americans.
+- [11:18.560] The President promised on the campaign trail
+- [11:20.250] that he would demolish the foreign terrorist organizations
+- [11:23.790] and drug cartels around the world,
+- [11:25.900] especially right here in our own hemisphere.
+- [11:28.020] And you have seen that he is delivering on that promise.
+- [11:30.680] With respect to the oil and what happened yesterday,
+- [11:33.500] the Department of Justice requested
+- [11:35.070] and was approved for a warrant to seize a vessel
+- [11:38.290] because it's a sanctioned shadow vessel
+- [11:40.740] known for carrying black market sanctioned oil to the IRGC,
+- [11:44.780] which you know is a sanctioned entity.
+- [11:46.320] So the President is committed
+- [11:48.220] to stopping the illegal flow of drugs into our country.
+- [11:50.840] He's also fully committed to effectuating
+- [11:53.200] this administration's sanction policy
+- [11:55.420] and that's what you saw and the world saw take place yesterday.
+- [11:58.210] The Press: And because you said the President
+- [11:59.570] is trying to do a lot of things at once,
+- [12:01.870] he talks a lot about how he thinks
+- [12:03.530] the way to bring down prices
+- [12:04.900] for everything would be to bring down the cost of energy.
+- [12:08.450] Would he use this seized Venezuelan oil
+- [12:12.390] to try to help Americans
+- [12:14.700] with affordability here in the United States?
+- [12:18.110] Karoline Leavitt: Well, what I can tell you right now,
+- [12:20.560] the vessel has been seized as you know,
+- [12:23.370] and the Department of Justice
+- [12:25.140] is did that in conjunction with the Coast Guard
+- [12:27.240] and the Department of War.
+- [12:28.480] The vessel is currently undergoing
+- [12:30.540] a forfeiture process right now.
+- [12:32.520] The United States currently has a full investigative team
+- [12:35.690] on the ground on the vessel and individuals
+- [12:37.810] on board the vessel are being interviewed
+- [12:40.120] and any relevant evidence is being seized.
+- [12:42.010] With respect to the oil, that's a different issue,
+- [12:44.530] as you know, Peter. The vessel will go to a US port
+- [12:48.240] and the United States does intend to seize the oil.
+- [12:50.780] However, there is a legal process
+- [12:52.760] for the seizure of that oil
+- [12:54.200] and that legal process will be followed.
+- [12:55.720] The Press: And just my last one on this,
+- [12:57.260] if President Trump launches a bigger military campaign
+- [13:00.770] in the Caribbean,
+- [13:02.180] is he jeopardizing a possible Nobel Peace Prize?
+- [13:07.160] Karoline Leavitt: Look, the President has proven
+- [13:08.450] over the past year
+- [13:09.690] that he is more than worthy of the Nobel Peace Prize.
+- [13:12.360] I think he's been nominated for it
+- [13:14.470] nearly 100 times this past year, which is definitely a record.
+- [13:18.610] He's solved I think nine conflicts around the world,
+- [13:21.070] we are up to now.
+- [13:22.310] He's actively working on Russia, Ukraine war,
+- [13:25.470] which is the big one as we speak and has been over the past year.
+- [13:29.830] With respect to any additional action in Venezuela,
+- [13:32.240] I'm definitely not going to get ahead of the President
+- [13:34.070] or the United States military. Mary.
+- [13:36.830] The Press: It now seems all but certain
+- [13:38.320] that the Obamacare subsidies will expire
+- [13:40.500] at the end of the year.
+- [13:41.780] It means more than 20 million Americans
+- [13:43.530] are now bracing for their health care costs to soar.
+- [13:46.400] Is the President prepared to let this happen
+- [13:48.810] or is he going to step in?
+- [13:50.740] Karoline Leavitt: The President is prepared
+- [13:52.020] to take action on health care
+- [13:53.380] and he wants Republicans on the Hill to do the same.
+- [13:56.140] As you have seen, Senate Republicans
+- [13:57.830] put forth their own legislation earlier this week.
+- [14:00.580] As for the subsidies that are set to expire.
+- [14:03.320] I would like to remind you and everybody at home
+- [14:06.300] why this is on the brink of happening.
+- [14:09.330] Democrats wrote Obamacare,
+- [14:11.570] they passed it without a single Republican vote
+- [14:14.250] and then they ballooned it with these expensive COVID subsidies
+- [14:17.730] that completely distorted the health insurance market.
+- [14:20.490] And then they doubled down on extending those subsidies
+- [14:23.510] and setting their own expiration date right now in 2025,
+- [14:27.040] which the administration is obviously well aware of.
+- [14:29.660] And we are working, the President is working
+- [14:32.220] with his health care policy team here at the White House
+- [14:34.490] as well as Republicans on Capitol Hill
+- [14:36.510] to find a solution.
+- [14:37.920] The Press: You said he's working to find a solution.
+- [14:39.410] He wants to see a solution to lower more health care costs.
+- [14:41.250] Karoline Leavitt: He does.
+- [14:42.530] The Press: But these subsidies are expiring
+- [14:44.300] at the end of the year.
+- [14:45.690] So, what is the plan and what is he going to do
+- [14:48.620] to put this in place in the next two or three weeks?
+- [14:50.530] Karoline Leavitt: Well, you'll hear more from the President
+- [14:51.930] and from the White House on that very soon.
+- [14:54.390] As for wanting a solution to lower health care costs,
+- [14:57.250] I'm glad you said it
+- [14:58.470] because the President is doing just that.
+- [15:00.570] He has made unprecedented progress towards lowering health
+- [15:03.410] care costs in this country and drug prices.
+- [15:05.830] He's secured numerous most favored nation drug price deals
+- [15:09.070] with many more to come. As you know, the One Big,
+- [15:11.470] Beautiful Bill, the Working Family Tax
+- [15:13.230] Cut significantly expanded access
+- [15:15.740] to health savings accounts for those on Obamacare,
+- [15:18.860] again, a Democrat written program,
+- [15:21.610] an approved program which has led to higher health care
+- [15:24.590] costs in this country.
+- [15:25.860] So, it goes back to the issue of affordability.
+- [15:28.860] Democrats are now pretending they want a solution
+- [15:31.120] to this issue, but they created the problem.
+- [15:33.800] The President and Republicans
+- [15:35.650] are currently coming up with creative solutions
+- [15:38.280] and ideas to lower health care costs for the American people.
+- [15:41.320] And you'll continue to hear more from them on that.
+- [15:43.220] The Press: Before these subsidies expire?
+- [15:44.760] Karoline Leavitt: I just said you're going to continue
+- [15:45.960] to hear more from the President and Republicans
+- [15:48.120] on this issue, I'm sure. Sure, Bloomberg, go ahead.
+- [15:50.580] The Press: Thank you, Karoline.
+- [15:51.860] The President said he was going to be holding a call
+- [15:54.760] with the leaders of Thailand and Cambodia.
+- [15:56.880] Have those calls taken place?
+- [15:58.190] Is there a readout you can share?
+- [15:59.840] Karoline Leavitt: The President has not yet engaged
+- [16:01.400] in those calls and when he does,
+- [16:02.920] I'm sure you'll hear from him
+- [16:04.230] directly as you always do after a foreign leader calls
+- [16:06.940] or from somebody here at the White House.
+- [16:08.740] I do know with respect to the conflict
+- [16:11.080] and the peace deal in Thailand and Cambodia
+- [16:13.590] and some of the conflicts you've seen arise reports
+- [16:16.420] of that in the press over the past couple of days.
+- [16:18.380] The President addressed it in Pennsylvania.
+- [16:20.520] The administration is obviously tracking this
+- [16:22.910] at the highest levels and is very much engaged.
+- [16:25.220] I spoke with Secretary Rubio about it this morning.
+- [16:27.600] The Press: Will senior US officials be meeting
+- [16:30.320] Saturday with European and Ukrainian officials
+- [16:34.010] to discuss the peace plan?
+- [16:36.380] Karoline Leavitt: Look, the United States
+- [16:38.140] and the Trump administration
+- [16:39.480] continues to be very much engaged
+- [16:41.690] in trying to bring the Russia-Ukraine war to an end.
+- [16:44.670] The President had a call with Europeans yesterday.
+- [16:47.750] His Special Envoy Witkoff and his team
+- [16:50.400] continue to talk with both sides literally as we speak.
+- [16:54.220] If there is a real chance of signing a peace agreement,
+- [16:57.570] if we feel like those meetings are worthy of someone
+- [17:00.510] on the United States's time this weekend,
+- [17:03.040] then we will send a representative.
+- [17:04.440] It's still up in the air, whether we believe real peace
+- [17:07.470] can be accomplished so we can truly move the ball forward.
+- [17:10.310] The President is extremely frustrated
+- [17:12.070] with both sides of this war
+- [17:13.660] and he's sick of meetings just for the sake of meeting.
+- [17:17.060] He doesn't want any more talk, he wants action.
+- [17:19.330] He wants this war to come to an end.
+- [17:21.550] And the administration has spent more than 30 hours
+- [17:25.240] just in the past couple of weeks meeting with the Russians
+- [17:27.760] and the Ukrainians and the Europeans
+- [17:29.680] and speaking with them as well.
+- [17:31.090] So, we'll see about the meetings this weekend and stay tuned.
+- [17:35.050] The Press: Has the President read President Zelenskyy's
+- [17:37.050] latest proposal that was sent over yesterday?
+- [17:39.340] Karoline Leavitt: He's aware of it, yes. Ed?
+- [17:42.020] The Press: Thanks, Karoline. So, the Fed chairman,
+- [17:44.170] the President says that he's interviewing candidates,
+- [17:46.400] so I just want to be clear.
+- [17:47.620] So, the pick has not been locked in,
+- [17:50.160] and could we get an announcement before Christmas?
+- [17:51.970] Karoline Leavitt: I know every business outlet in the world
+- [17:54.320] is just chomping at the bit for a scoop
+- [17:57.220] or something on this fed chair announcement.
+- [18:00.660] I'm not going to get ahead of the President.
+- [18:02.310] I know there's been a lot of reports about potential meetings
+- [18:05.080] this week with potential candidates.
+- [18:07.180] Look, as always, this is a decision
+- [18:09.260] the President himself is going to make.
+- [18:11.260] And I know there's a lot of reporting out there
+- [18:13.150] from anonymous sources who claim to know something.
+- [18:16.190] I would wait and see what the President himself
+- [18:17.970] does and announces
+- [18:19.170] and I certainly won't be the one to get ahead of him on that.
+- [18:22.900] Michael, go ahead.
+- [18:24.200] The Press: On the next Fed chair,
+- [18:25.440] does the President have an expectation
+- [18:27.040] that his pick will lower interest rates next year
+- [18:29.400] to his liking?
+- [18:30.630] Karoline Leavitt: I think the President has been quite clear
+- [18:32.270] about what he believes the fed should be doing,
+- [18:34.830] which is lowering interest rates.
+- [18:36.150] I know there was a quarter point reduction this past week
+- [18:39.210] and the President was pleased to see that,
+- [18:40.700] but he thinks more should be done.
+- [18:42.670] Philip?
+- [18:43.920] The Press: Thank you, Karoline.
+- [18:45.120] On these advanced NVIDIA H200 chips,
+- [18:48.700] why is the President willing to allow China
+- [18:50.930] to have access to one of America's chief
+- [18:53.090] technological advantages?
+- [18:54.480] Karoline Leavitt: Look, I will tell you
+- [18:55.710] just a couple of things.
+- [18:56.920] The President put out his own statement on this,
+- [18:58.810] which I do think highlights his exact thinking.
+- [19:01.860] What you see from the President on Truth Social
+- [19:04.220] is most of the time what you hear from the President
+- [19:07.210] behind closed doors privately.
+- [19:08.910] He told President Xi that we will --
+- [19:10.670] NVIDIA will only be shipping H200 products
+- [19:14.000] to approved customers in China under conditions
+- [19:17.410] that will allow for continued strong national security.
+- [19:21.260] The administration continues to maintain
+- [19:23.130] a strict export control regime,
+- [19:25.740] and we are ensuring that the Blackwell chip
+- [19:27.820] and other advanced technologies stay right here in America.
+- [19:31.590] And these H200 chips will only be sent to China
+- [19:34.760] after undergoing a security inspection here
+- [19:37.430] in the United States. Elizabeth?
+- [19:39.010] The Press: Thank you, Karoline.
+- [19:40.250] New York City Mayor-elect Zohran Mamdani
+- [19:42.500] put out a video recently telling immigrants in New York City
+- [19:45.090] they have the right to stand up to ICE.
+- [19:47.400] Are you concerned this will inspire New York City
+- [19:49.620] residents to resist ICE operations?
+- [19:51.410] And what will the Trump administration do
+- [19:52.910] if this happens?
+- [19:54.160] Karoline Leavitt: The Trump administration
+- [19:55.400] is definitely concerned
+- [19:56.640] about the rise in violence and attacks and physical threats
+- [20:00.950] that we have seen against our brave men
+- [20:03.200] and women who wear the ICE uniform.
+- [20:05.330] Again, these are agents who are just simply doing their jobs.
+- [20:08.230] They are enforcing our nation's immigration laws.
+- [20:10.610] And we've seen more than a 1,000 percent increase
+- [20:13.530] in violent attacks on them and their families.
+- [20:15.680] They've been doxed, they've been harassed,
+- [20:17.320] many of them have been physically
+- [20:19.550] assaulted and attacked.
+- [20:21.180] So, we condemn that wholeheartedly.
+- [20:23.330] I know the administration has done a lot
+- [20:24.860] to protect our ICE agents,
+- [20:26.640] and the President stands firmly behind them
+- [20:29.170] in conducting these enforcement operations.
+- [20:31.540] And there's a lot of talk
+- [20:33.390] from Democrat politicians in New York.
+- [20:35.810] But the Trump administration will continue
+- [20:37.630] to do our jobs in every state,
+- [20:39.410] and that's to remove illegal aliens and public safety threats
+- [20:42.810] from American communities. Sure.
+- [20:48.750] I'll go to the gentleman who's very eager and then to you.
+- [20:51.520] The Press: Thank you so much. Obviously Jasmine Crockett,
+- [20:53.280] who the President has openly criticized,
+- [20:54.720] just entered Texas's Senate race.
+- [20:56.350] I asked Mike Johnson who said
+- [20:57.960] that Texas largely supports the President.
+- [21:00.530] Crockett, on the other hand,
+- [21:01.890] says that Trump is an example of extremism.
+- [21:06.580] She says that her support is a referendum on Trump.
+- [21:09.080] I'm curious to get your thoughts on this.
+- [21:10.740] And has Trump made any statements since she's been --
+- [21:13.940] since she's announced her candidacy?
+- [21:15.400] Karoline Leavitt: Not to my knowledge.
+- [21:16.630] As you know, from the White House
+- [21:18.060] (inaudible) a government employee,
+- [21:19.400] I'm not privy to comment on future elections,
+- [21:22.240] but I do think the President has made his thoughts
+- [21:24.720] on Ms. Crockett quite clear. And I do believe he thinks
+- [21:27.950] she is wholly unqualified for the office
+- [21:30.280] that she is seeking. Joey?
+- [21:31.740] The Press: Yeah, thanks, Karoline.
+- [21:32.950] A federal judge today ordered the immediate release
+- [21:35.750] of Kilmar Abrego Garcia from ICE detention.
+- [21:37.920] Does the White House have a response to that?
+- [21:40.940] And does the administration plan to appeal that decision?
+- [21:44.460] Karoline Leavitt: Absolutely. The White House,
+- [21:45.800] the administration opposed this activism from a judge
+- [21:49.270] who is really acting as a judicial activist,
+- [21:52.370] which we've unfortunately seen in many cases
+- [21:54.250] across the country.
+- [21:55.480] Abrego Garcia is present in our country illegally.
+- [21:58.830] He is a proven human trafficker. He is a proven gang member.
+- [22:03.370] The administration has evidence of that.
+- [22:05.890] And as you saw from the Department of Homeland Security,
+- [22:08.040] they issued a statement saying they will continue to fight
+- [22:10.450] this legal battle in court. Kaitlan?
+- [22:12.870] The Press: Two questions, I have one on Venezuela to follow up.
+- [22:14.980] But first on affordability,
+- [22:16.200] since we were talking about the economy at the beginning.
+- [22:18.560] If the economy is as strong as the President has said it is,
+- [22:21.720] then why is he telling parents two weeks before Christmas
+- [22:24.470] that they should only buy two or three dolls for their children?
+- [22:27.130] Karoline Leavitt: Look, what the President is saying
+- [22:28.800] is that if we want products made right here in America,
+- [22:31.650] if we want them to be made from American small businesses,
+- [22:35.130] which is a large part of the reason
+- [22:36.690] the President has effectively implemented tariffs,
+- [22:39.860] then we're going to have better quality products
+- [22:41.760] right here in the United States.
+- [22:43.190] Maybe you'll pay a dollar or two more,
+- [22:45.170] but you will get better quality,
+- [22:46.730] and you'll be supporting your fellow Americans
+- [22:49.020] by buying American,
+- [22:50.300] and that's what the President was saying.
+- [22:51.880] Again, with respect to affordability,
+- [22:54.430] every economic metric, Kaitlan,
+- [22:56.100] and I wish you would report more on it,
+- [22:57.860] does in fact show that the economy is getting better
+- [23:00.430] and brighter than where it was
+- [23:02.060] under the previous administration.
+- [23:03.480] I will repeat, inflation as measured by the overall CPI
+- [23:07.670] has slowed to an average 2.5 percent pace.
+- [23:10.740] Real wages are increasing roughly $1,200
+- [23:13.830] for the average worker.
+- [23:15.060] Gas prices are down in almost every single state
+- [23:17.700] across the country.
+- [23:18.920] Again, in 22 states, it's below $2.75.
+- [23:22.610] You look at the tax cuts;
+- [23:24.000] those are going to go into effect next year.
+- [23:25.680] So, the best is yet to come.
+- [23:27.630] The President is digging our country out of the economic hole
+- [23:30.880] that the previous administration put us in
+- [23:32.500] and that's what he's talking about.
+- [23:34.800] The Press: Was a year ago, as you know,
+- [23:36.290] and grocery prices have been up. So, we've covered the economy,
+- [23:38.690] but there's mixed signals in terms of what that looks like.
+- [23:42.410] Karoline Leavitt: Inflation is down from where it was.
+- [23:44.290] As measured by the overall CPI,
+- [23:45.790] it has slowed to an average 2.5 percent pace.
+- [23:48.360] This is down from what the President inherited --
+- [23:50.870] the President inherited 2.9 percent in January.
+- [23:53.820] Today it's at about 2.5 percent.
+- [23:55.510] So, we're trending in the right direction with more to come.
+- [23:57.830] And I would remind you,
+- [23:59.040] when President Trump left office in his first term,
+- [24:01.220] inflation was 1.7 percent and the previous administration
+- [24:05.110] jacked it up to a record high nine percent.
+- [24:07.630] So again, in 10 months,
+- [24:08.940] the President has clawed us out of this hole,
+- [24:10.590] he's kept it low at 2.5 percent.
+- [24:13.270] And we believe that number is going to continue to decline,
+- [24:16.450] especially as energy and oil prices
+- [24:18.010] continue to decline as well.
+- [24:19.290] The Press: It wasn't high under Biden,
+- [24:20.660] they're just saying it's not --
+- [24:21.860] Karoline Leavitt: Well, nobody reported on it
+- [24:23.060] being high under Biden.
+- [24:24.940] My predecessor was standing at this podium
+- [24:26.800] but now you want to ask me a lot of questions about it,
+- [24:28.730] which I'm happy to answer. But I will just add,
+- [24:31.370] there's a lot more scrutiny on this issue
+- [24:33.080] from this press corps than there was --
+- [24:35.830] well, and the previous administration said that too.
+- [24:38.170] My predecessor stood up at this podium and she
+- [24:39.800] (Inaudible)
+- [24:41.000] that inflation doesn't exist. She said the border was secure
+- [24:44.200] and people like you just took her at her word
+- [24:45.990] and those were two utter lies.
+- [24:47.930] Everything I'm telling you is the truth
+- [24:49.740] backed by real factual data
+- [24:51.380] and you just don't want to report on it
+- [24:52.900] because you want to push untrue, narratives about the President.
+- [24:55.820] Go ahead. I'm not going to take your call.
+- [24:58.430] Go ahead.
+- [24:59.660] The Press: Does the White House have --
+- [25:00.990] is the White House optimistic
+- [25:02.200] about the upcoming redistricting vote in Indiana?
+- [25:04.580] And what happens if it fails?
+- [25:06.380] Karoline Leavitt: We'll see how the vote plays out.
+- [25:07.820] That's a political matter and frankly,
+- [25:09.630] a legal one and I won't comment on it here.
+- [25:11.360] Brian.
+- [25:12.570] The Press: Thank you. Thank you, Karoline.
+- [25:13.770] I'm going to go back to the Fed.
+- [25:14.970] I have two topics I want to address with you.
+- [25:16.680] The first one on the Fed, the President did say yesterday
+- [25:19.220] that he was meeting with Kevin Warsh.
+- [25:20.610] Karoline Leavitt: This is your favorite story
+- [25:21.850] in the world, Brian.
+- [25:23.130] The Press: It is. It is. It is our favorite story.
+- [25:25.030] Uh, the President said yesterday was meeting with Kevin Warsh
+- [25:27.320] to talk about the Fed chair.
+- [25:28.740] I interview him for Fed chair role.
+- [25:29.960] Can you just say how that interview went with him?
+- [25:32.470] Karoline Leavitt: I won't comment on private meetings
+- [25:33.950] without the President's approval to do so.
+- [25:35.400] The Press: And the second thing
+- [25:36.820] is on the Netflix-Warner Brothers deal.
+- [25:40.200] The President did address this also yesterday.
+- [25:42.100] He said that he believes that the sale of CNN
+- [25:45.730] should be attached to that deal with Netflix or with --
+- [25:48.860] with Paramount if that happens down the road with them.
+- [25:51.550] Can you just explain what the President's plan
+- [25:53.980] to do going forward to continue to make that case similar
+- [25:56.310] to what he made yesterday?
+- [25:57.520] Karoline Leavitt: Well, I think the President's comments
+- [25:58.850] yesterday about the sale of CNN and new leadership
+- [26:01.520] is evidenced by my exchange with CNN reporter in this room.
+- [26:04.940] Their -- their viewership has gone down,
+- [26:07.150] their ratings has declined.
+- [26:08.370] And I think the President rightfully believes
+- [26:10.510] that network would benefit from new ownership.
+- [26:13.180] With respect to this deal, he has great respect
+- [26:15.150] for both companies who are bidding against one another
+- [26:18.550] and I won't weigh in any further than that.
+- [26:22.420] In the back. Go ahead.
+- [26:26.060] I wasn't calling on either of you,
+- [26:27.430] but I'll take both of your questions
+- [26:28.720] and then to you. Go ahead.
+- [26:30.000] The Press: I have two questions.
+- [26:31.750] One is South Korea, one under Japan.
+- [26:34.750] First question, the recent US and South Korea trade pact.
+- [26:39.260] Xi made no mention of agricultural product,
+- [26:43.790] thus the United States wanted to completely open its rice
+- [26:48.780] and beef market to South Korea. A second question on Japan.
+- [26:54.260] China is using its military power to slander Okinawa, Japan.
+- [27:00.210] The Press: Is the United States concerned about
+- [27:03.100] the military conflict between China and Japan?
+- [27:07.000] And what action will the United States take?
+- [27:10.910] Karoline Leavitt: Okay.
+- [27:12.250] To your first question on South Korean beef
+- [27:14.980] or beef exports to South Korea, I will check with our trade team
+- [27:18.700] and we will get you an answer on that.
+- [27:20.690] To your second question with respect to Japan and China,
+- [27:24.590] the President has a phenomenal relationship
+- [27:26.950] with the new prime minister of Japan, as you know.
+- [27:30.160] He was pleased to meet her when we went to Asia
+- [27:33.030] a couple of months ago
+- [27:34.610] and they have spoken a few times since.
+- [27:37.450] They continue to be engaged with one another and Japan
+- [27:40.360] is a great ally of the United States
+- [27:42.380] as evidenced by their personal relationship
+- [27:44.840] and our continued trade relations with Japan.
+- [27:48.220] With respect to China, the President also has a good
+- [27:50.630] working relationship with President Xi,
+- [27:52.860] which he believes is a good thing for our country.
+- [27:55.420] And he believes that the United States should be
+- [27:57.570] in a position to have a good working relationship with China
+- [28:00.630] while maintaining our very strong alliance with Japan.
+- [28:03.290] Go ahead.
+- [28:04.520] The Press: Yesterday, President Trump,
+- [28:05.720] while speaking about drug production in Colombia,
+- [28:08.600] he said that the President of Colombia
+- [28:10.450] better wise up or he's going to be next.
+- [28:14.140] What was he meaning exactly?
+- [28:15.980] And the other thing is that President Petro of Colombia
+- [28:19.310] responded to that statement by issuing a formal invitation
+- [28:23.180] to President Trump to go to Colombia
+- [28:25.210] and to see firsthand how the authorities in Colombia
+- [28:28.050] are fighting against drugs.
+- [28:29.640] Do you think that President Trump would consider that?
+- [28:32.070] Karoline Leavitt: Well, that's very interesting.
+- [28:33.380] I hadn't heard the news about that invitation.
+- [28:35.270] I will let the President speak directly to it
+- [28:37.790] on whether or not that's something he would entertain.
+- [28:40.200] But as for his comments
+- [28:41.440] yesterday towards President Petro,
+- [28:43.520] he has been saying some very alarming
+- [28:46.170] and frankly insulting things
+- [28:47.570] towards the United States of America
+- [28:49.340] and the President does not like it.
+- [28:50.550] Yes, in the blue. Yes, go ahead.
+- [28:54.040] The Press: Thank you. The President's been spotted out
+- [28:56.070] and about a number of times with bandages on his hands.
+- [28:58.770] Could you please explain what that is about?
+- [29:00.880] Secondly, he noted on Truth Social the other day
+- [29:03.470] that he had aced three cognitive tests.
+- [29:06.050] Could you please clarify when those tests took place?
+- [29:09.210] Karoline Leavitt: I can do that at a later date.
+- [29:10.830] I obviously don't have that in front of me.
+- [29:12.430] The President has spoken about that
+- [29:14.290] quite extensively throughout the years.
+- [29:16.320] As for the bandages on the hand, we've also given you
+- [29:18.740] an explanation for that in the past.
+- [29:20.570] The President is literally constantly shaking hands.
+- [29:23.630] The Oval Office is like Grand Central Terminal.
+- [29:26.320] He is meeting with more people than any of you
+- [29:28.590] even know about on a daily basis.
+- [29:30.240] He's also on a daily aspirin regimen,
+- [29:32.060] which is something his physical examinations
+- [29:34.610] has said in the past as well,
+- [29:36.280] which can contribute to that bruising that you see.
+- [29:39.160] The Press: Thank you. Thank you, Karoline.
+- [29:41.580] Uh, back to that oil tanker, I just want to know,
+- [29:43.780] was this a one off or is it safe to say the administration
+- [29:47.090] is taking a more active look at the oil industry in Venezuela?
+- [29:52.020] Whether targeting other oil ships
+- [29:53.840] or perhaps Venezuelan oil production facilities in,
+- [29:58.030] in -- in Venezuela?
+- [29:59.290] Karoline Leavitt: I won't broadcast
+- [30:00.590] any future actions from the administration,
+- [30:02.770] but I will just reiterate that the Trump administration
+- [30:06.280] is executing on the President's sanction policies
+- [30:08.820] and the sanction policies of the United States
+- [30:11.080] and we're not going to stand by and watch sanctioned vessels.
+- [30:14.610] Sail the seas with black market oil,
+- [30:16.690] the proceeds of which will fuel narco terrorism of rogue
+- [30:19.860] and illegitimate regimes around the world.
+- [30:22.040] Andrew?
+- [30:23.300] The Press: Thank you, Karoline. Two for you.
+- [30:25.310] First, when the President announced
+- [30:27.880] the farm relief program
+- [30:29.880] the other day Secretary Rollins afterwards
+- [30:34.230] right out there told us that the program would be paid for
+- [30:38.410] by the Commodity Credit Corporation
+- [30:40.490] and existing program. The President keeps saying
+- [30:43.590] that it's being paid for by tariff revenue.
+- [30:46.230] Why does he keep saying that if the secretary
+- [30:48.160] who's running the program says that's not the case
+- [30:51.210] and also about his comments from the other night,
+- [30:54.800] the President's a billionaire,
+- [30:56.600] he's probably the wealthiest person
+- [30:58.180] to ever serve as president.
+- [31:00.480] Is it a good look for him to be telling parents,
+- [31:03.680] oh, you can -- you should only buy,
+- [31:05.610] you know, two or three dolls for your kids
+- [31:08.600] when he's one of the wealthiest people in the country?
+- [31:11.370] Karoline Leavitt: Do you think the people
+- [31:12.650] in that room in Pennsylvania
+- [31:13.950] who the President was speaking to,
+- [31:15.230] don't know the President's a billionaire?
+- [31:17.090] I think that's a very well established fact.
+- [31:19.250] And actually I think it's one of the many reasons
+- [31:21.160] they reelected him back to this office
+- [31:23.010] because he's a businessman who understands the economy
+- [31:26.480] and knows how to fix it and he's doing it right now
+- [31:28.660] just like he did in his first term.
+- [31:32.030] Sure, go ahead. To the gentleman behind you, Andrew.
+- [31:34.980] Yes, go ahead. Go ahead.
+- [31:37.340] The Press: Thank you, Karoline.
+- [31:38.580] On Gaza, we heard the President say yesterday
+- [31:41.720] that the Board of Peace members
+- [31:43.080] are going to be announced early next year.
+- [31:45.680] What is the administration doing to move the parties
+- [31:48.390] in the region
+- [31:49.660] closer toward phase two of his peace plan for Gaza?
+- [31:53.950] Karoline Leavitt: Sure, well, first of all,
+- [31:55.200] I would be remiss if I didn't highlight what a success it is
+- [31:58.410] that 10 months into the President's administration,
+- [32:00.830] you're asking me about a peace plan in Gaza
+- [32:03.560] because that's a legitimate reality on the ground
+- [32:05.920] right now in the region.
+- [32:07.440] And it's only because of this president's leadership
+- [32:09.990] that that was able to take place
+- [32:11.830] that all the hostages were returned.
+- [32:13.970] All but one body of the deceased hostages has been returned
+- [32:17.520] and we're still of course working on the last one.
+- [32:19.750] As for this next phase of the peace process,
+- [32:21.950] there is a lot of quiet planning that's going on behind
+- [32:24.690] the scenes right now for phase two of the peace deal
+- [32:27.370] and when the United States is ready
+- [32:28.720] to make those announcements public on the Board of Peace,
+- [32:31.360] the ISF and the Palestinian techno technocratic government,
+- [32:35.990] we will be making those announcements
+- [32:37.540] at the appropriate time.
+- [32:38.750] But the reason that you know the negotiators
+- [32:41.600] and the teams on the ground have been rather quiet about this
+- [32:44.500] is because I spoke with them this morning,
+- [32:46.920] they are trying to be deliberate and thoughtful
+- [32:48.800] about this peace in Gaza and the Palestinians trip
+- [32:53.140] is something the Gaza Strip rather is something that people
+- [32:57.330] have been trying to accomplish for 70 years.
+- [32:59.560] So, you know, this is a complex problem
+- [33:01.460] and this administration wants to be very thoughtful about it
+- [33:04.330] and we want to ensure an enduring and lasting peace
+- [33:07.430] and when those announcements are ready,
+- [33:08.910] they will be made sure.
+- [33:10.520] The Press: Thank you.
+- [33:11.810] There have been reports that Vladimir Putin
+- [33:14.220] called Maduro today to reaffirm his support.
+- [33:18.110] I wanted to ask if it is concerning to the President
+- [33:20.780] that Putin has given such a warm embrace Maduro?
+- [33:24.390] Karoline Leavitt: I don't think that would be concerning
+- [33:25.920] to the President at all, no.
+- [33:27.190] I'll let him speak on it further.
+- [33:28.450] The Press: Talking to Putin about that?
+- [33:30.140] Karoline Leavitt: He has not spoken to President Putin today
+- [33:32.260] and I understand that call took place this morning.
+- [33:34.200] So the answer is no.
+- [33:35.710] The Press: Thanks.
+- [33:36.930] Yes, I have a question about the ACA.
+- [33:38.940] But just first very quickly clarifying Kaitlan's question.
+- [33:42.510] You acknowledged that CPI in January
+- [33:45.380] when you took office was three percent
+- [33:47.230] and in September the last month for which we have data,
+- [33:49.340] it was also three percent. So inflation --
+- [33:51.130] Karoline Leavitt: No, it's 2.5 percent.
+- [33:52.870] The Press: Not in September, it was three percent.
+- [33:54.330] Karoline Leavitt: It's 2.5 percent.
+- [33:55.550] The average CPI right now.
+- [33:57.060] I have it in front of me in President Trump's
+- [33:59.320] first eight months in office inflation
+- [34:00.870] is measured by the overall consumer price index
+- [34:03.490] has slowed to a 2.5 average pace.
+- [34:06.130] This is down from the 2.9 percent inherited in January.
+- [34:09.780] The Press: January is one month. You're --
+- [34:11.100] Karoline Leavitt: Kelly in the back. Okay.
+- [34:12.360] The Press: Can I ask you about the ACA really quickly?
+- [34:14.150] There are a number of plans that are floating around on the hill
+- [34:17.480] right now having to do with these premium subsidies
+- [34:19.760] that are about to expire.
+- [34:20.990] Which plan does the White House support?
+- [34:23.680] Karoline Leavitt: Again, I have told you now a few times
+- [34:26.280] that the President and the Republicans
+- [34:28.330] will continue to unveil creative ideas and solutions
+- [34:31.710] to the health care crisis that was created by Democrats.
+- [34:35.160] And I know Chuck Schumer is putting up a vote today.
+- [34:37.600] This is a political show vote.
+- [34:39.550] Chuck Schumer is not sincerely interested
+- [34:41.980] in lowering health care costs for the American people.
+- [34:45.100] He's putting this vote on the floor
+- [34:46.550] knowing that it will fail
+- [34:47.860] so he can have another talking point
+- [34:49.440] that he can throw around without any real plan or action.
+- [34:52.690] If Chuck Schumer actually wanted to lower health care costs,
+- [34:56.140] I'm sure the President would welcome him
+- [34:58.160] and his entire Democratic caucus to a legitimate coordination
+- [35:03.570] on the President's policies of bringing down drug prices,
+- [35:07.320] these most favored nation deals.
+- [35:09.010] Why hasn't Chuck Schumer ever come out in support of those?
+- [35:11.760] Those are going to legitimately -- they already are --
+- [35:13.680] lower drug prices for the American people
+- [35:16.810] and not a word from Chuck Schumer on it.
+- [35:18.350] So, I think that just proves this is completely political.
+- [35:20.870] Kelly, go ahead.
+- [35:22.160] The Press: Two quick ones on Venezuela,
+- [35:25.160] does the President consider the seizure
+- [35:26.830] of the oil tanker an escalation
+- [35:28.640] or a step towards war with Venezuela?
+- [35:31.350] Karoline Leavitt: I think the President considers
+- [35:33.540] the seizure of the oil tanker as effectuating
+- [35:36.020] the administration's sanction policies,
+- [35:39.270] which I've already discussed previously.
+- [35:42.040] The Press: Potential invasion or potential land
+- [35:44.330] strikes in Venezuela
+- [35:46.040] aligned with the President's supporters, the MAGA base?
+- [35:49.930] Does it risk the potential for a prolonged war
+- [35:53.840] and US troops involved in that?
+- [35:56.590] Karoline Leavitt: Prolonged war is definitely not something
+- [35:58.200] this president is interested in.
+- [35:59.850] He's been very clear about that. He wants peace.
+- [36:02.340] He also wants to see the end of illegal drugs
+- [36:05.770] being trafficked into the United States
+- [36:07.450] and taking the lives of hundreds of thousands of Americans
+- [36:10.180] across our country.
+- [36:11.640] And he's thinking about that every day
+- [36:13.150] here at the White House.
+- [36:14.390] With every drug vote that is taken out
+- [36:15.940] by this administration,
+- [36:17.300] we are saving thousands of lives by deterring those drugs
+- [36:21.410] and stopping those drugs from flowing into our country.
+- [36:24.440] You will all -- excuse me, you'll all hear --
+- [36:28.400] excuse me, you will all see the President tonight.
+- [36:31.480] He'll be making remarks at the Congressional Christmas Ball,
+- [36:34.000] which will be taking place here at the White House.
+- [36:36.350] And later this afternoon,
+- [36:37.780] he will be signing some congressional bills
+- [36:39.860] and executive orders that we, as always,
+- [36:42.240] will keep you apprised of. Thanks, guys.

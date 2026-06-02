@@ -1,0 +1,375 @@
+<!-- source: https://www.youtube.com/watch?v=PCkvVgiSOjU -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: PCkvVgiSOjU -->
+<!-- date_published: 2026-02-22T00:57:19+00:00 -->
+<!-- date_accessed: 2026-06-02T02:37:34.299503+00:00 -->
+
+# Transcript: The President and First Lady Participate in a Governors Dinner
+
+- [00:11.550] Announcer: Ladies and gentlemen,
+- [00:12.860] the President of the United States,
+- [00:14.710] Donald J. Trump, and First Lady Melania Trump.
+- [00:18.300] ♪ (Hail to the Chief) ♪
+- [01:00.120] The President: Thank you very much.
+- [01:01.400] This is a great honor. It's a great place.
+- [01:05.500] There's no place like it. Please sit down. Thank you.
+- [01:10.730] You know, I told my -- now I can say my movie star wife.
+- [01:14.940] Do you believe this?
+- [01:16.560] I have to live with now another title.
+- [01:18.590] Yeah, yeah, that's good.
+- [01:22.590] She said, well, tell me about the group tonight.
+- [01:24.550] I said, we're all governors, and just about we have
+- [01:27.170] a couple of cabinet secretaries, so we can probably include them.
+- [01:30.630] And every time they look in the mirror,
+- [01:32.140] every time the wake up or go to sleep,
+- [01:34.320] they look at that mirror and they say,
+- [01:36.090] I should be president, not him.
+- [01:38.710] So, I said, despite that, it's a very friendly group.
+- [01:42.320] And it really is, too.
+- [01:43.700] Many, many friends and very competent people.
+- [01:46.730] Over the past year, we've already achieved
+- [01:48.590] a historic turnaround for our country.
+- [01:51.360] With unprecedented speed, we solved intractable problems.
+- [01:55.730] We really have done something.
+- [01:57.080] It's been an incredible first year for all of us.
+- [02:00.570] We've transformed stagnation into growth,
+- [02:03.100] weakness into strength and chaos into order.
+- [02:07.180] Liberty and justice. We have done that.
+- [02:09.670] Today, our border is secure. Murders are at a 125-year low.
+- [02:14.910] Thank you very much.
+- [02:20.730] Core inflation is the lowest in five years and going down.
+- [02:24.080] Prices are going down really rapidly.
+- [02:26.200] We inherited a mess, and we've brought them down a lot,
+- [02:29.550] and we're going to go still further.
+- [02:31.810] And our military is more powerful than ever before,
+- [02:34.430] and we are just respected all over the world.
+- [02:36.630] Like I would say, we have maybe never been,
+- [02:38.730] but certainly don't believe their case.
+- [02:42.270] Working with your states wherever we can,
+- [02:44.850] we can achieve so much more.
+- [02:46.470] You governors, you great people, you're great leaders.
+- [02:49.320] You're just about all very popular.
+- [02:51.140] I know every one of you,
+- [02:52.340] and you've all had a very easy time becoming governor.
+- [02:55.420] That's because you've done really good work.
+- [02:58.370] From Thomas Jefferson to today,
+- [03:00.820] America's governors have been among the smartest,
+- [03:03.160] most creative, most talented Americans
+- [03:05.960] our country has ever produced.
+- [03:07.280] So many people, they leave other positions.
+- [03:09.420] I will not say the Senate.
+- [03:11.220] But we can say that, and they want to be governor.
+- [03:13.200] Would you explain that to me, Mr. Governor?
+- [03:15.910] And we're going to save the Great Salt Lake.
+- [03:18.200] You know that, right? We've got our problem.
+- [03:22.050] He came in to see me today. These are the kind of things,
+- [03:24.520] he said, sir, we have to save Great Salt Lake.
+- [03:28.530] I said, explain this to me please.
+- [03:30.430] And in that city called Salt Lake City,
+- [03:33.940] somebody said, where is it located?
+- [03:35.580] I said it's located in Salt Lake City, right.
+- [03:38.360] So he said we're losing water rapidly, rapidly.
+- [03:43.730] And it's getting smaller, smaller, drier, drier.
+- [03:47.330] And you tell those people we're going to work on it really hard.
+- [03:50.100] We're going save it. We're not going to let that go.
+- [03:51.770] That is what I call a real environmental problem,
+- [03:54.840] not using hairspray.
+- [03:57.490] And I'm going to ruin the ozone, okay?
+- [04:00.080] I'm in my apartment in Trump Tower.
+- [04:01.630] The building is totally sealed off.
+- [04:03.210] And if I use hairspray, they say, sir,
+- [04:05.370] you're creating an environmental hazard.
+- [04:07.180] That's not the kind of thing we want to talk about.
+- [04:10.150] But saving the Great Salt Lake.
+- [04:12.500] That's what we're going to be doing, okay?
+- [04:17.750] So this was a good trip for you, Governor,
+- [04:19.280] and I'll tell you what,
+- [04:20.560] because I heard you're the most popular guy there now.
+- [04:22.650] We put out a statement, and you're in pretty good shape.
+- [04:26.580] But there's no coincidence that 17 governors have gone on
+- [04:30.180] to become the President of the United States.
+- [04:33.090] I'm not surprised by that at all.
+- [04:35.350] Whether it's reforming education,
+- [04:37.040] defending public safety,
+- [04:38.320] bringing back manufacturing from overseas,
+- [04:40.810] or responding to natural disasters,
+- [04:43.800] like I think they could call that a natural disaster.
+- [04:47.310] I view each of you as essential partners in our mission
+- [04:50.310] to make America great again
+- [04:52.350] and just in time for America 250.
+- [04:55.300] This is a big, big deal. I invite everyone in this room
+- [04:59.870] to bring forward ideas and opportunities
+- [05:02.150] to better serve our people
+- [05:03.480] and, in turn, never hesitate to let us know
+- [05:06.640] if there's anything we can do for you.
+- [05:08.820] This administration is open and available.
+- [05:11.350] I met with Governor Abbott today,
+- [05:13.520] and you had a couple of requests, unfortunately.
+- [05:15.540] He always says it's very expensive, you know, it's Texas.
+- [05:19.450] And he did tell me I got the greatest vote
+- [05:21.330] in the history of Texas by far, and that's an honor.
+- [05:24.070] But it's Texas, it is always big dollars,
+- [05:25.890] but I always approve them for Texas, right?
+- [05:28.150] So we've taken care of business. I hope everyone here tonight
+- [05:32.300] will be back in Washington this summer
+- [05:34.110] as we celebrate the glory of the unique heritage
+- [05:36.560] of your individual states with a Great American State Fair,
+- [05:40.490] and you know all about it.
+- [05:41.770] Our national mall is going to be transformed
+- [05:44.680] into something that's actually unbelievable.
+- [05:46.900] But first, we have to clean up
+- [05:48.530] some mess that Maryland and Virginia left us.
+- [05:51.980] We're going to cleaning it up.
+- [05:54.080] It's unbelievable what they can do with incompetence.
+- [05:57.330] Together, we're going make our 250th year
+- [05:59.610] the greatest in the history of our country.
+- [06:02.540] And we have a couple of other events
+- [06:05.580] coming up also very shortly thereafter.
+- [06:07.760] We have the World Cup. And we have the Summer Olympics,
+- [06:10.510] and the World Cup has gone out with their tickets.
+- [06:12.620] And more than double, they sold more than double
+- [06:15.460] what they've ever sold before, way early.
+- [06:17.880] And it's unbelievable.
+- [06:19.130] The numbers they've done, Susie, are unbelievable.
+- [06:21.290] They just came back, and it's really, really special.
+- [06:25.520] It's going to be something that I think that,
+- [06:30.260] there will be nothing like this period of time.
+- [06:31.920] You know, when the election was rigged
+- [06:34.130] and I missed my, what, normal second term.
+- [06:37.460] I said, this is terrible.
+- [06:38.670] But I was the one that got the Olympics,
+- [06:40.300] and I was one that the World Cup.
+- [06:41.810] The problem was, I was going to be president
+- [06:43.890] for another four years,
+- [06:45.150] and this was going to take place of Mr. Govind
+- [06:48.440] doing a good job in Louisiana.
+- [06:50.900] We did a good in that very special city of yours, too,
+- [06:53.480] with crime, didn't we?
+- [06:55.050] He said, you cleaned it out, New Orleans.
+- [06:57.650] We cleaned it, you never had,
+- [06:59.130] and your Mardi Gras was a big success, right?
+- [07:01.900] But we have so many different things
+- [07:04.660] that we can be so proud of.
+- [07:06.730] And what's going to happen and what has happened
+- [07:10.530] when this horrible event took place with the election, 2020.
+- [07:15.800] And I said, this is terrible.
+- [07:17.180] And then I said you know what, I got to do it again
+- [07:19.800] because we did so well in that second election.
+- [07:22.260] I said I got do it again. And I did it again,
+- [07:25.360] and then all of a sudden they're saying, sir,
+- [07:26.950] the Olympics are coming up.
+- [07:28.800] Sir, the World Cup's coming up, sir.
+- [07:31.060] 250 years is coming up now. I took credit for the Olympics.
+- [07:34.930] I took credit for the World Cup.
+- [07:37.180] And I'm trying to take credit for the 250 years,
+- [07:39.760] but I'm not getting away with it.
+- [07:41.820] I'm getting hammered.
+- [07:43.570] I'm being hammered, I tried to take a credit for three,
+- [07:45.760] but I'll take credit of two of the three.
+- [07:47.880] But we're going to have an incredible few years.
+- [07:51.120] I mean, we're going to have something special.
+- [07:52.780] And, you know, factories are being built
+- [07:54.730] all over the country at numbers. I don't know if you saw,
+- [07:56.970] but they did job reports, just came out,
+- [07:59.330] and the numbers of construction jobs is at a record.
+- [08:02.650] Well, those jobs are at a record
+- [08:04.240] because they're building plants and factories
+- [08:06.190] all over the country. We hit the Dow, hit 50,000.
+- [08:10.270] When I got elected, they said it would be great
+- [08:13.120] if he could hit 50 thousand by his fourth year,
+- [08:15.860] by the end of his fourth
+- [08:18.080] and I hit it by the of my first year.
+- [08:20.480] And then we hit 7,000 on the S&P and 7,000
+- [08:23.700] was even more difficult.
+- [08:25.030] They said, it's probably impossible in four years,
+- [08:28.400] but five or six years out, well, we did it in one year
+- [08:32.220] and you're all the beneficiaries of it.
+- [08:33.850] So I just want to thank you. I want to congratulate you for.
+- [08:36.900] All of the incredible work you've done.
+- [08:39.100] Now, we're with some very special reporters tonight.
+- [08:42.360] I often say the fake news, but I will not say that tonight,
+- [08:45.700] even though I'm on live television.
+- [08:47.220] I will NOT call you fake news. Okay? As the cameras are roaring
+- [08:51.010] and I say that guy always gets...
+- [08:52.880] But we have tonight incredible entertainment,
+- [08:59.240] as good as you'll ever see anywhere in the world.
+- [09:01.810] We have the greatest violinist in the world
+- [09:04.890] And we had an event here about two months ago,
+- [09:07.970] and she played with Andrea Bocelli right in this room.
+- [09:11.620] And she blew the roof off, as they say.
+- [09:14.560] She was unbelievable.
+- [09:16.600] And when I thought of the governor's dinner,
+- [09:18.240] I said, we have to invite her back.
+- [09:19.530] So we invited her back, she's here tonight.
+- [09:22.230] And, of course, we had these genius military musicians
+- [09:25.860] who are as good as any musicians in the world.
+- [09:30.680] I said to myself, the press has been relatively fair to me
+- [09:36.070] over the last year,
+- [09:37.890] meaning they've been bad but not horrible.
+- [09:42.760] If you'd like, should we, by vote,
+- [09:46.310] allow the press to watch the great finale
+- [09:49.840] that we have planned tonight with the musicians?
+- [09:52.030] If you like to do it, you can do it.
+- [09:53.230] And look at them.
+- [09:54.430] They're all dressed up and all looking beautiful.
+- [09:56.920] So if you'd, like, shouldn't we vote, governors?
+- [09:59.650] Who's in favor of letting the media
+- [10:03.260] watch the finale tonight of the greatest musicians in the world?
+- [10:07.150] I'm in favor. Anybody in favor? Okay.
+- [10:11.100] Well, you win by a slight margin.
+- [10:13.070] It's not exactly unanimous, but that's all right.
+- [10:15.390] We understand the government. They are politicians, after all.
+- [10:19.170] So, if you'd like to come back a little bit later,
+- [10:20.980] we'd love to have you.
+- [10:22.200] You'll see some unbelievable entertainment.
+- [10:24.510] So, governors and spouses and everybody that's here
+- [10:28.850] and my Cabinet members, my great Cabinet members.
+- [10:31.400] So many are here.
+- [10:32.880] I just want to thank you for doing a fantastic job.
+- [10:35.100] Our country is back on track.
+- [10:36.320] We had a horrible, horrible dead country.
+- [10:39.480] One and a half years ago, we were dead.
+- [10:41.140] Now we have the hottest country anywhere in the world,
+- [10:43.160] as said by many leaders of the world.
+- [10:45.860] And speaking of leaders, we have a great leader,
+- [10:48.050] a great military leader named Pete Hegseth,
+- [10:51.300] and he is going to say Grace.
+- [10:52.790] e's a man who turned out to be absolutely fantastic
+- [10:58.630] at what he does, and you know what he doesn't.
+- [11:02.090] He's turned out be an incredible inspiration
+- [11:05.970] to the men and women in our military.
+- [11:09.660] Again, a year and a half ago, two years ago,
+- [11:11.850] we couldn't get anybody to go into the military.
+- [11:14.560] We couldn't him for the police, for the military,
+- [11:16.320] for anything, for firefighters,
+- [11:17.940] anything with a uniform on, Governor, right?
+- [11:20.580] And now we're setting records in every --
+- [11:22.650] even police departments, police departments.
+- [11:24.490] Fire departments.
+- [11:25.700] But the Army, Navy, Air Force, Marines,
+- [11:28.830] Space Force, Coast Guard -- we have waiting lists to get in.
+- [11:33.580] In fact, if you'd like to make those great services larger.
+- [11:37.810] This is an awfully good time to do it.
+- [11:39.530] Let's make them larger, if you want.
+- [11:41.350] But we've never had anything like it.
+- [11:43.210] We went from a year and a half ago, nobody wanted to join.
+- [11:47.440] We could not even come close to our recruitment numbers.
+- [11:50.770] And now we're setting records.
+- [11:52.300] We have never had something like it,
+- [11:53.970] and all it is is spirit and love for our country.
+- [11:57.560] It's very simple.
+- [11:58.840] So you have done a fantastic job,
+- [12:00.620] and, Pete, you are doing incredible.
+- [12:02.650] And please say grace. Thank you.
+- [12:05.080] (applause)
+- [12:10.780] Secretary Hegseth: If you would bow your head.
+- [12:13.610] Dear Heavenly Father, King Jesus,
+- [12:16.010] we come humbly before your throne,
+- [12:19.890] praising you for all the providence
+- [12:21.660] you've bestowed upon this nation.
+- [12:24.600] For over 250 years, from George Washington to President Trump,
+- [12:28.590] we have dedicated this nation to one nation under God,
+- [12:32.610] and certainly in God we trust.
+- [12:34.810] As we think 250 years ago to George Washington
+- [12:37.280] on bended knee in Valley Forge.
+- [12:40.100] Appealing to heaven on behalf of his troops
+- [12:42.160] in this young nation.
+- [12:43.390] We've appealed to you from the beginning,
+- [12:44.790] and may we continue to appeal to you.
+- [12:47.650] And tonight we pray for our president,
+- [12:49.770] President Trump,
+- [12:51.180] give him safety, give him wisdom.
+- [12:53.590] Lord, we pray, for our vice president,
+- [12:55.850] our first lady, our second lady, the cabinet members here,
+- [12:59.800] all the governors assembled here as well are civil magistrates.
+- [13:03.900] Lord God asked that you give them the to see what is right.
+- [13:09.150] And the courage to do it.
+- [13:11.380] Wisdom defined as the fear of the Lord,
+- [13:14.640] the fear the Lord being the source
+- [13:16.290] of all knowledge and wisdom.
+- [13:18.210] Lord God, your eternal truths, may they rule.
+- [13:21.970] So this evening, also, I would be remiss
+- [13:24.690] if I did not pray for our great troops,
+- [13:27.030] our men and women all around the globe,
+- [13:29.030] defending our great nation as they have for 250 years.
+- [13:33.010] Lord God, watch over them and protect them.
+- [13:36.530] It is in your holy name, the Lord.
+- [13:38.960] Jesus Christ, the King of Kings and Lord of Lords,
+- [13:41.000] that we pray and we bless this food to you.
+- [13:43.060] Amen. Thank you, Mr. President.
+- [13:47.370] The President: I'd like to just ask JD Vance.
+- [13:49.520] He's doing a fantastic job.
+- [13:50.910] J D, could you come up and say a few words, please?
+- [13:54.750] Thank you, JD.
+- [13:56.400] (applause)
+- [14:01.960] The Vice President: Well, I didn't expect that, sir,
+- [14:03.350] so I don't have anything prepared,
+- [14:04.590] but I will say that like Marco Rubio and a few others,
+- [14:08.790] I serve in the United States Senate.
+- [14:10.720] And Mr. President, what I admire so much about you
+- [14:13.180] and the governors
+- [14:14.670] is that you guys actually have to make decisions,
+- [14:18.340] you have to live by those decisions,
+- [14:20.540] and you have to suffer the consequences
+- [14:22.740] or enjoy the rewards of those decisions.
+- [14:25.240] The good thing about being a United States Senator,
+- [14:28.160] like the good thing about being vice president.
+- [14:31.800] Nobody blames you when anything goes wrong.
+- [14:33.850] So to the governors here, we admire your courage.
+- [14:37.590] We admire your leadership.
+- [14:38.860] And to the President of the United States,
+- [14:40.370] we admire you for all the great things
+- [14:41.690] you're doing for our country. Thank you, sir.
+- [14:43.590] (applause)
+- [14:48.490] The President: So, I'm just enclosing a one or two --
+- [14:50.370] you've read a lot -- we're building a ballroom.
+- [14:52.880] For 150 years, they've wanted a great ballroom at --
+- [14:56.990] even a ballroom. Not a great one.
+- [14:58.400] Just give me a room, because this is a very small room,
+- [15:01.260] can hold very small numbers of people.
+- [15:04.360] And they've wanted a great bowl room,
+- [15:06.330] and we're going to build the greatest ballroom
+- [15:08.290] anywhere in the world. There'll be nothing like it.
+- [15:10.900] And you're looking right here at the entrance.
+- [15:12.660] This is a knockout panel,
+- [15:14.010] exactly where the gold curtains are.
+- [15:16.240] And when that gets opened, there's a magnificent walkway
+- [15:20.970] that goes into what will be the most beautiful ballroom
+- [15:23.280] anywhere in the world.
+- [15:24.540] So we did this, no charge to the taxpayer whatsoever.
+- [15:28.600] This was all donations made by friends of mine
+- [15:31.910] and people that love our country.
+- [15:35.050] They love the White House Preservation Society,
+- [15:38.240] the whole group, but not one penny of --
+- [15:41.330] and it's a very expensive building,
+- [15:43.950] very expensive ballroom,
+- [15:45.170] but beautiful, beautiful in keeping with the way it has.
+- [15:48.600] An enhancement to the White House,
+- [15:49.970] but they've needed it for years when they had a big event
+- [15:52.760] when the President of China comes in,
+- [15:55.430] when somebody comes in of magnitude,
+- [15:58.480] they put a tent out on the lawn.
+- [16:00.460] If it rained, you were in deep trouble
+- [16:01.850] because the only part of the lawn
+- [16:03.440] that they can do it is a very low section.
+- [16:05.890] So it would be, you know, a little embarrassing
+- [16:08.770] when you're sitting down with the King of Saudi Arabia
+- [16:11.470] and he's sitting in a puddle
+- [16:14.260] with four inches of water over his shoes.
+- [16:16.200] Research was not exactly good.
+- [16:18.510] But we're -- it's under construction.
+- [16:20.070] But right through, that's going to be a very famous portal
+- [16:23.000] for, hopefully, hundreds of years,
+- [16:25.430] because what we're building is really special.
+- [16:27.230] But so important to say, because nobody ever reports it,
+- [16:30.170] it will be totally, totally tax-free.
+- [16:32.450] Not one penny of tax will be donated to this.
+- [16:36.140] And it's going be something that I think
+- [16:38.660] the country will be very proud of when it opens.
+- [16:40.640] But for hundreds -- hopefully hundreds and hundreds of years.
+- [16:44.430] So thank you all very much.
+- [16:45.910] And this is a great honor. And we'll talk later.
+- [16:47.800] And media will see you in a little while, okay?
+- [16:50.150] Thank you very much. Thank you, everybody.
+- [16:53.370] (applause)

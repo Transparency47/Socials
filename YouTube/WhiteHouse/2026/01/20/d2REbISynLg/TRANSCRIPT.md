@@ -1,0 +1,188 @@
+<!-- source: https://www.youtube.com/watch?v=d2REbISynLg -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: d2REbISynLg -->
+<!-- date_published: 2026-01-20T12:46:39+00:00 -->
+<!-- date_accessed: 2026-06-02T01:07:06.669589+00:00 -->
+
+# Transcript: President Trump Gaggles with Press Upon Departure in Palm Beach, FL. Jan. 19, 2026
+
+- [00:00.560] So, we saw a great game tonight.
+- [00:02.399] Congratulations to Indiana.
+- [00:05.359] It was a really turned out to be a great
+- [00:07.680] game. Two great teams, wonderful teams
+- [00:10.480] with a lot of talent. We enjoyed it very
+- [00:12.559] much. Our country is doing very well. We
+- [00:16.080] have many, many buildings opening,
+- [00:18.880] factories opening. We've never had
+- [00:20.560] anything like it. And I think you're
+- [00:22.800] going to see results very soon. You're
+- [00:24.400] already really seeing them. But we have
+- [00:27.279] more money being invested on our country
+- [00:29.359] than any country in history. Uh, as you
+- [00:32.800] know, the Secretary of the Interior,
+- [00:35.520] Doug Burkham, is with me right now, has
+- [00:39.520] a lot to report. I don't know if you
+- [00:41.120] want to say a couple of words, Doug, but
+- [00:43.200] you might want to say how well we're
+- [00:44.719] doing as a country. Well, with President
+- [00:48.239] Trump's leadership, we've got inflation
+- [00:50.239] coming down. We've got investment going
+- [00:51.920] up. We've got taxes going down. Uh we've
+- [00:55.600] got energy prices down there. Everything
+- [00:58.079] is aligned for us to have a banner year
+- [01:00.160] in 2026. Uh and the and the interest in
+- [01:03.840] building and investing in our country's
+- [01:05.600] never been greater.
+- [01:07.920] There's never been anything like it. The
+- [01:09.680] money being invested in our country is
+- [01:12.640] unparalleled. There's never been
+- [01:13.920] anything even close by by many times
+- [01:16.880] more than China or any other country. Do
+- [01:20.400] you have any questions?
+- [01:21.119] >> What will President What will be your
+- [01:24.000] your message.
+- [01:25.520] >> Well, I think I have a lot of messages
+- [01:27.200] for us, but the primary message is how
+- [01:29.920] well the United States is doing. And I
+- [01:32.400] say it all the time. A year and a half
+- [01:33.920] ago, we were a dead country and now we
+- [01:36.560] have the hottest country in the world. I
+- [01:38.079] mean, your beneficiaries, too, you look,
+- [01:40.720] some of you have 401ks.
+- [01:43.520] You don't have to tell me. Your numbers
+- [01:45.840] are the best they've ever been. And uh
+- [01:48.880] the stock market's at an all-time high.
+- [01:51.439] It's we are just doing great. So I think
+- [01:54.799] the message of Davos, we're leaving
+- [01:57.040] going to have an interesting time. We
+- [01:59.040] have a lot of meetings scheduled, but
+- [02:01.280] the the message for Damos is how
+- [02:04.159] incredible our country is doing.
+- [02:06.719] >> Your letter that you wrote to prime
+- [02:08.319] minister said that the Nobel Prize has
+- [02:11.120] influenced your thinking on
+- [02:12.959] >> No, I don't care about the Nobel Prize.
+- [02:14.879] First of all, a very fine woman felt
+- [02:18.160] that I deserved it and really wanted me
+- [02:20.480] to have the Nobel Prize, and I
+- [02:22.560] appreciate that. Uh, if anybody thinks
+- [02:24.720] that Norway doesn't uh doesn't control
+- [02:27.920] the Nobel Prize, they're just kidding.
+- [02:30.800] They have a board, but it's controlled
+- [02:32.319] by Norway. And I don't care what Norway
+- [02:34.720] says. But I really don't care about
+- [02:37.519] that. What I care about is saving lives.
+- [02:40.160] And I think I've saved
+- [02:42.879] tens of millions of lives. If you look
+- [02:45.040] at India, Pakistan just has won two
+- [02:47.440] nuclear powers. You look at so many of
+- [02:50.080] the countries that were in a 30 in some
+- [02:53.280] cases a 35 year war and I got it done.
+- [02:57.120] We stopped eight wars and maybe we'll be
+- [02:59.440] stopping a ninth very soon. We'll see.
+- [03:02.560] >> What do you what do you plan to say to
+- [03:03.920] European leaders and when they push back
+- [03:06.480] on your green plan? Well, I don't think
+- [03:08.720] they're going to push back too much.
+- [03:10.080] Look, we have to have it. They have to
+- [03:12.879] have this done. They can't protect it.
+- [03:15.280] Denmark, they're wonderful people. And I
+- [03:18.159] know the leaders, they're very good
+- [03:19.680] people, but they they don't even go
+- [03:22.239] there. And you know, because the boat
+- [03:24.400] went there 500 years ago and then left,
+- [03:27.280] that doesn't give you title to property.
+- [03:30.319] So, uh, we'll be talking about it with
+- [03:32.560] the various people. We've had we've had
+- [03:36.319] tremendous success and we've you know
+- [03:38.319] I've done more for NATO than anybody
+- [03:40.080] else. I don't think you'd have NATO
+- [03:42.400] right now. I got him to go 5% and pay as
+- [03:46.000] opposed to 2% and not pay. I've done
+- [03:48.720] more than any other American president
+- [03:50.799] for NATO by far. And we'll see how that
+- [03:53.760] goes. But Greenland is very important.
+- [03:58.239] >> Have you invited President?
+- [04:02.000] >> Yeah, he's been invited.
+- [04:04.560] Did he give any response to President
+- [04:06.080] Mccron saying he will not join the board
+- [04:08.480] of meetings?
+- [04:09.599] >> Well, did he say that? Well, nobody
+- [04:11.120] wants him because he's going to be out
+- [04:12.560] of office very soon. You know, that's
+- [04:14.799] all right. What I'll do is if they feel
+- [04:17.040] like hostile, I'll put a 200% tariff on
+- [04:20.160] his wines and champagne and he'll join.
+- [04:22.960] But he doesn't have to join. If he if he
+- [04:25.120] said that, you're probably giving it to
+- [04:26.800] me a little bit differently. But if he
+- [04:29.360] actually did say that, but as you know,
+- [04:31.280] he's going to be out of office in a few
+- [04:32.880] months. You invite President Putin to
+- [04:35.440] join the
+- [04:36.160] >> Yes. He's one of the people these are
+- [04:38.960] world leaders and the answer is yes.
+- [04:47.520] >> Amazing. Tomorrow is the first year.
+- [04:49.440] Think of it. One year. I don't think
+- [04:51.759] there's been a term like it. I don't
+- [04:53.440] think any president has had a better
+- [04:56.080] first year than we've had in terms of
+- [04:58.400] success. Again, we've taken our country
+- [05:01.280] from a failure with open borders, no
+- [05:04.800] business, everything going badly,
+- [05:07.680] terrific inflation, the highest
+- [05:10.400] inflation in history. Uh prices that are
+- [05:13.759] through the roof and we brought prices
+- [05:16.320] down. We have very little inflation. We
+- [05:18.720] have a great economy and the prices are
+- [05:21.360] coming down still further. But I
+- [05:23.440] inherited a mess and now we have the
+- [05:25.840] hottest country anywhere in the world.
+- [05:27.680] >> Mr. President, do you think that you had
+- [05:29.520] any influence on the Giants having
+- [05:30.720] signing a deal with Coach Harbaugh? How
+- [05:32.400] do you think you'll do in New York?
+- [05:33.520] >> I don't know, but they got a great
+- [05:34.800] coach. I like the coach. I like his
+- [05:36.880] brother. They came up to see me with uh
+- [05:39.759] about
+- [05:41.680] three months ago, they came up to see me
+- [05:43.600] in the White House. Did you know that?
+- [05:44.960] >> Yes, I did.
+- [05:45.600] >> With the mother and father, cuz the
+- [05:47.120] mother likes me and the father likes me
+- [05:48.639] and I think they like me. And he's a
+- [05:50.800] great coach and he's going to do well
+- [05:52.880] with the Giants just like his brother
+- [05:54.639] does so well. They are. They got
+- [05:56.880] something very special in their blood.
+- [05:59.440] And I'm happy for the Giants. They got a
+- [06:01.360] great coach. It's nice that you ask. I
+- [06:03.680] did put out a I put out a strong word.
+- [06:06.319] Hire coach Harbble.
+- [06:09.120] >> President, President, can you tell us on
+- [06:11.520] the Fed? Will you make a decision
+- [06:12.880] before?
+- [06:13.520] >> Yeah, I know who I want.
+- [06:15.840] >> In the Fed.
+- [06:16.560] >> When will you make a decision?
+- [06:17.919] >> I'll I'll announce it sometime, but I
+- [06:19.759] know I know who I want. You said
+- [06:22.319] securing the Arctic from Russian Corona
+- [06:24.560] is important to you. Why are you upset
+- [06:26.319] about NATO allies taking that, you know,
+- [06:28.639] more seriously greenly by holding
+- [06:30.240] military exercises? Well, that wasn't a
+- [06:33.280] military. They sent a few people and
+- [06:35.600] they say they sent them not for me, but
+- [06:37.759] to guard against Russia. But you know,
+- [06:41.039] NATO's been warning Denmark for about 20
+- [06:44.560] years now, longer than that, 25 years.
+- [06:47.120] They've been warning Denmark about the
+- [06:49.680] Russian threat. And it's not only
+- [06:52.000] Russia, it's also China. So, we'll see
+- [06:54.800] what happens. But, uh, let's put it this
+- [06:57.520] way. It's going to be a very interesting
+- [06:59.280] Davos. Goodbye, everybody. Have a good
+- [07:01.599] flight. Thank you.

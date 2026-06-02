@@ -1,0 +1,335 @@
+<!-- source: https://www.youtube.com/watch?v=LRkGiKk3Wxs -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: LRkGiKk3Wxs -->
+<!-- date_published: 2025-06-06T23:35:58+00:00 -->
+<!-- date_accessed: 2026-06-02T01:24:49.660772+00:00 -->
+
+# Transcript: President Trump Gaggles with the Press on Air Force One, June 6, 2025
+
+- [00:08.950] The President: So we visited the military course just to see
+- [00:11.850] if we could fix it up and make it nice.
+- [00:14.620] The budgetary situation takes some years
+- [00:16.890] to get something approved.
+- [00:18.520] So we're going to take a look at that.
+- [00:20.780] It's two courses, very nice,
+- [00:22.170] but they need a lot of work, a lot of work.
+- [00:25.930] And if we can fix them up --
+- [00:27.980] they're military, they're for the military,
+- [00:29.580] if we could fix them we're going to do that.
+- [00:31.860] The Press: Mr. President, did you speak with Bukele
+- [00:33.830] directly to facilitate the return of Abrego Garcia?
+- [00:36.320] The President: I don't want to say that, but he's returned.
+- [00:42.690] He should have never had to be returned.
+- [00:44.860] I mean, you take a look at what's happened with him.
+- [00:47.860] You take a look at what they found in the grand jury
+- [00:50.390] and everywhere else.
+- [00:51.610] I thought Pam Bondi did a great job today.
+- [00:53.810] The Press: Was this your call to bring him back
+- [00:55.160] to the United States?
+- [00:56.390] The President: I don't want to say that.
+- [00:59.740] And by the way, either way, it's a disaster.
+- [01:02.640] He's a whole disaster.
+- [01:04.060] Look at him with his -- with his antics. Not good.
+- [01:08.170] And for the Democrats who have backed him,
+- [01:11.180] this was not the man from Maryland,
+- [01:12.700] this wonderful father from Maryland.
+- [01:14.830] This is a pretty, pretty bad guy.
+- [01:17.180] The Press: Mr. President, you posted yesterday
+- [01:19.520] that a good way to save money
+- [01:21.580] would be to cancel some of Musk's contracts.
+- [01:25.250] How seriously are you considering that?
+- [01:27.160] The President: Oh, I'll take a look at everything.
+- [01:28.670] I look at everything. He's got a lot of money.
+- [01:31.670] He gets a lot of subsidy. So we'll take a look at that.
+- [01:35.050] Only if it's fair, only if it's for him and for the country,
+- [01:38.980] I would certainly think about it.
+- [01:40.470] Yeah, but it has to be fair.
+- [01:41.730] The Press: Mr. President, would you consider re-opening
+- [01:44.300] investigations into his companies?
+- [01:46.200] There are a bunch of investigations.
+- [01:47.600] The President: I didn't know that they had any.
+- [01:49.850] They had to -- I would just let them speak for themselves.
+- [01:53.040] I had no idea -- excuse me --
+- [01:55.070] I have no idea whether or not they had investigations.
+- [01:58.190] The Press: What's your view on Elon Musk as of today?
+- [02:00.560] I mean, have you heard from him at all?
+- [02:02.320] The President: Honestly, I've been so busy
+- [02:04.200] working on China, working on Russia,
+- [02:06.170] working on Iran, working on so many --
+- [02:08.500] I'm not thinking about Elon. You know, I just wish him well.
+- [02:11.930] The Press: On the China talks, sir,
+- [02:14.010] there's a meeting coming up with Secretary Bessent
+- [02:15.920] and Secretary Lutnick.
+- [02:18.540] What do you hope to see from those talks in London, sir?
+- [02:21.360] The President: We were very far advanced on the China deal.
+- [02:23.520] We wanted clarification. We had to have clarification.
+- [02:26.280] It's a little bumpy up here. We had to have clarification,
+- [02:30.810] and that's what we're really having the meeting about.
+- [02:32.800] We had a very good talk.
+- [02:34.040] I talked to President Xi for, I guess, more than two hours.
+- [02:37.960] We had very good talks. It's a complicated deal,
+- [02:41.600] but it's a deal that's, you know,
+- [02:43.350] going to bring us a lot of money and a lot everything else.
+- [02:46.990] And we get along very well with President Xi and with China.
+- [02:51.330] The Press: On Mr. Musk's contracts,
+- [02:53.000] do you feel like the U.S. can survive without them?
+- [02:55.330] Obviously (inaudible)
+- [02:56.620] a lot when it comes to defense and space,
+- [02:58.750] and that relationship has been important for quite some time.
+- [03:01.710] The President: The U.S. Can survive
+- [03:02.950] without almost anybody except me.
+- [03:07.090] The Press: Did you have any concerns about his drug use
+- [03:10.040] when he was working for you?
+- [03:12.270] The President: I don't want to comment on his drug use.
+- [03:14.170] I don't know what his status is.
+- [03:16.920] I read an article in the New York Times.
+- [03:18.720] I thought it was -- frankly it sounded very unfair to me.
+- [03:21.360] The Press: You said earlier today that Mr. Musk
+- [03:22.850] had a problem.
+- [03:24.120] What did you mean by that, and did you misjudge him?
+- [03:27.130] The President: I don't want to talk about problems.
+- [03:28.840] I think that my -- I think the United States had problems.
+- [03:32.790] And if you look at the numbers today,
+- [03:34.130] the numbers were unbelievable. The numbers were incredible.
+- [03:38.240] The numbers that came up today in the stock market went way up.
+- [03:41.810] The country is doing really well.
+- [03:44.360] Almost, I think, in a very short period of time,
+- [03:45.940] you're going to be saying,
+- [03:47.170] doing better than it's ever done before.
+- [03:49.240] We have hundreds of plants coming in -- plants.
+- [03:52.160] A lot of jobs are being created.
+- [03:54.500] That's what -- that's what happened this morning.
+- [03:56.660] You saw the jobs.
+- [03:58.040] And the nice part, they're not government jobs.
+- [04:00.230] They're jobs of people coming in and doing other things,
+- [04:03.320] including the leisure, hotel and leisure. Good stuff.
+- [04:06.260] A lot of good things are happening with our country.
+- [04:09.190] We're taking in billions of dollars of tariff money.
+- [04:12.010] The money is pouring in and it hasn't even started yet,
+- [04:15.970] really, relatively. It's -- we're going to have
+- [04:18.560] a very successful country very soon
+- [04:20.460] and the stock market is seeing that.
+- [04:22.990] We have, and I've been saying it,
+- [04:24.720] we have the hottest country anywhere in the world.
+- [04:28.030] The hottest country. And if you think about it,
+- [04:30.710] six months ago, we had the coldest country.
+- [04:32.530] We had a country that was a disaster.
+- [04:35.060] And we've done it very quickly. Okay, go ahead.
+- [04:37.840] The Press: On the One Big Beautiful bill,
+- [04:39.850] so your critics, often your critics --
+- [04:43.600] The President: I don't have too many critics.
+- [04:45.210] You know, honestly, I don't know of anybody
+- [04:47.320] that's going to vote against it. Maybe Rand Paul or somebody.
+- [04:49.880] But, you know, they always vote against --
+- [04:52.880] but I actually think that over the last 24 hours,
+- [04:56.730] it's even solidified. We have tremendous support.
+- [04:59.940] The Press: The critics that want to talk about the bill,
+- [05:02.640] they often fail to mention that your tariffs
+- [05:05.290] are actually offsetting a lot, you know, the debt and itself.
+- [05:08.580] I believe the CBO said $2.8 trillion over the next 10 years,
+- [05:12.670] so what do you have to say to them?
+- [05:14.030] The President: We got tremendous reviews,
+- [05:15.990] and CBO, who never gives good -- basically it's a Democrat group,
+- [05:19.880] and we're getting tremendous reviews on the bill.
+- [05:22.860] We cut $1.6 trillion -- trillion, not billion --
+- [05:27.050] trillion out of the budget,
+- [05:29.210] and yet we haven't affected anybody.
+- [05:31.140] We're going to save and totally cherish
+- [05:34.440] Social Security, Medicare, and Medicaid.
+- [05:37.010] The Democrats are going to destroy it.
+- [05:38.700] They'll destroy it, we're going save it,
+- [05:40.650] and make it stronger than ever before.
+- [05:42.810] So Medicare, Medicaid.
+- [05:44.460] They just make statements, oh, he's going to talk.
+- [05:46.900] We're not touching it, other than waste, fraud, and abuse.
+- [05:51.110] The Press: On Russia-Ukraine, did the Ukraine drone
+- [05:54.650] strikes against the bombers inside Russia,
+- [05:57.990] the airfields, did that change your view
+- [06:00.140] at all of what Zelensky, the cards he has?
+- [06:02.990] The President: Well, they gave Putin a reason
+- [06:05.630] to go in and bomb the hell out of him last night.
+- [06:07.600] That's the thing I didn't like about it.
+- [06:08.920] When I saw it, I said, here we go.
+- [06:11.230] Now it's going to be a strike.
+- [06:12.490] You know, I did something that people don't talk about
+- [06:15.840] and I don't talk about very much,
+- [06:17.450] but we solved a big problem,
+- [06:18.760] a nuclear problem potentially with India and with Pakistan.
+- [06:23.210] And I spoke to Pakistan. I spoke India.
+- [06:25.610] They have really great leaders. But they were going at it.
+- [06:28.860] And they could have gone at it nuclear,
+- [06:30.300] both nuclear countries, strong nuclear countries.
+- [06:33.550] And I talked about trade, and they said,
+- [06:35.190] We're not doing trade if you guys
+- [06:36.890] are going to be throwing bombs at each other.
+- [06:38.590] And they both stopped.
+- [06:40.480] And I stopped that war immediately.
+- [06:42.180] That was going, as you know, that was going much further.
+- [06:45.220] And hopefully not to nuclear,
+- [06:46.610] but it might have gone to nuclear.
+- [06:47.990] In fact, it might've gone to the nuclear in the next round,
+- [06:51.040] but we stopped it.
+- [06:52.270] And I'd like to comment, the leaders have both
+- [06:54.450] (inaudible) to Pakistan and India.
+- [06:56.620] The Press: Are you worried that there might be a nuclear
+- [06:58.920] break-out with Russia-Ukraine? Are you worry that that could --
+- [07:01.900] The President: I don't -- I hope not.
+- [07:04.480] I think it's a war that would have never happened
+- [07:06.800] if I were president, that wouldn't have happened.
+- [07:09.020] I certainly hope not.
+- [07:10.970] The Press: Senator Hawley said he had spoken with you
+- [07:13.110] about potentially removing cuts
+- [07:15.530] that were in the House pass bill to Medicaid
+- [07:17.760] that would hurt Trump voters in rural areas.
+- [07:19.870] What are your thoughts about that?
+- [07:21.250] The President: (inaudible)
+- [07:22.450] about that. We're really talking about waste, fraud, and abuse.
+- [07:25.350] And Senator Hawley is a great senator.
+- [07:27.920] He's a good guy. And I did speak to him,
+- [07:30.460] and we want to make sure that doesn't hurt anybody,
+- [07:33.010] you know, because it is it is about waste fraud and abuse,
+- [07:36.750] that's the only thing. And everybody wants that.
+- [07:38.470] The Press: On Russia and Ukraine,
+- [07:39.740] where are you at today with the Senate's sanctioned bill?
+- [07:42.050] There's been some reporting that the White House is,
+- [07:44.140] you know, considering -- thinks it's watered down.
+- [07:45.740] The President: We're going to see.
+- [07:46.970] I mean, if we're -- if I think there's --
+- [07:50.330] if I think Russia will not be making a deal
+- [07:52.920] or stopping the bloodshed,
+- [07:55.510] five and six, even I've been saying five and six,
+- [07:58.030] and now it's more, a thousand a week soldiers being killed
+- [08:02.230] and people being killed,
+- [08:03.520] not just soldiers, people being killed,
+- [08:05.160] but largely soldiers being killed.
+- [08:07.850] Yeah, use it if it's necessary.
+- [08:10.540] And they really give me that option.
+- [08:12.320] The Press: Are you trying to get the Senate to water it down,
+- [08:14.010] though, from its current budget?
+- [08:15.510] The President: I haven't spoken to them about it.
+- [08:17.220] They have a bill that's going to be up to me.
+- [08:19.610] It's my option. They've made it that way.
+- [08:22.300] And it would save a lot of time if that happened.
+- [08:24.280] So I'm okay with it. I haven't decided to use it.
+- [08:28.000] It's a very strong bill.
+- [08:29.390] The Press: You gave Elon Musk, when he left the White House,
+- [08:31.650] a key, symbolically, to the White House,
+- [08:34.620] to administration at large.
+- [08:35.910] I think that's what -- would you like him to give that back?
+- [08:38.340] The President: No, I don't take things back.
+- [08:39.630] The Press: What about the Tesla?
+- [08:40.870] The President: I gave him a key. He tried very hard.
+- [08:42.450] The Tesla, I haven't thought about it.
+- [08:43.870] The Press: (inaudible)
+- [08:45.070] on his work then at this point for the administration?
+- [08:47.730] How do you think his DOGE
+- [08:49.130] did at the end of the day with savings and --
+- [08:51.020] The President: Oh, I think it helped us a lot.
+- [08:52.230] I think it helped our thinking, and it's not finished at all.
+- [08:55.870] We are taking -- we've basically taken it over.
+- [08:57.440] We're doing a job.
+- [08:58.660] Many of those people remain with us,
+- [09:00.240] and they're going to remain with this.
+- [09:01.640] They're very good. It's terrific.
+- [09:05.150] We saved, you know, hundreds of billions of dollars.
+- [09:08.530] It's terrific. And it's going further.
+- [09:10.340] I mean, I'd give you the answer, actually,
+- [09:12.300] at the end of two years,
+- [09:13.520] because a lot of it is out into the future.
+- [09:16.400] But it was a big saving and a good mindset.
+- [09:18.270] The Press: What are you going to do about the Tesla?
+- [09:19.630] Are you going to keep it, or are you going to --.
+- [09:21.270] The President: I haven't thought about it.
+- [09:23.450] But I hope he does well with Tesla.
+- [09:25.180] The Press: Do you have any plans to speak with Mr. Musk?
+- [09:27.150] This was one of your closest advisors for months.
+- [09:29.150] The President: No, I don't have any plans.
+- [09:30.390] Somebody made a mistake.
+- [09:32.240] A lot of reporters have been calling me.
+- [09:34.470] I didn't call any reporter.
+- [09:36.040] A lot reporters, they asked me the same question.
+- [09:38.320] No, I don't. I'm not even thinking about it.
+- [09:40.280] The Press: Apparently were these efforts --
+- [09:41.540] this is what I read --
+- [09:42.800] to bring you guys, you and Elon back together.
+- [09:45.310] So those efforts are -- where are they?
+- [09:47.280] The President: No, there are efforts.
+- [09:48.530] I mean, I've been asked about it,
+- [09:49.900] but I'm not really interested in that.
+- [09:52.320] I'm really interested the country in solving problems,
+- [09:55.570] including war problems in very far away lands.
+- [09:58.560] A lot of people being killed.
+- [10:00.190] You know, when I left, we had no problem.
+- [10:02.200] We didn't have wars. We defeated ISIS 100 percent.
+- [10:05.830] Iran was broke. There was no Hamas problem.
+- [10:08.060] There was no Hezbollah problem.
+- [10:10.050] Israel wouldn't have happened, in other words.
+- [10:12.530] Russia-Ukraine wouldn't happen. We had no inflation.
+- [10:15.610] And, by the way, we have no inflation now.
+- [10:18.230] And if we had a good Fed Chairman, you would lower rates.
+- [10:21.010] And you know what? If inflation happened in a year
+- [10:22.860] from now or two years, let him raise rates.
+- [10:25.080] But we're going out for long-term debt
+- [10:27.260] or short-term debt. We have a lot of debt coming due
+- [10:29.410] because Biden had all short- term debt, mostly.
+- [10:32.270] And we would get a lower rate and a lower interest rate
+- [10:35.320] if this guy would lower rates.
+- [10:38.030] We get a low interest rate. It's unbelievable.
+- [10:40.870] And he's worried about inflation.
+- [10:42.110] If he worries about inflation any longer --
+- [10:44.040] all he has to do get the lower rate,
+- [10:46.160] let us go out and borrow at a much lower rate.
+- [10:48.310] Much lower. You can go down a point or two.
+- [10:50.920] We'll go out, borrow it, and if in two years inflation
+- [10:53.790] comes back, he raises rates.
+- [10:55.890] But he keeps them the same. It's just -- it's insane.
+- [11:00.530] The Press: Are you already thinking about
+- [11:01.920] who your next Fed Chair would be?
+- [11:03.160] I know it's 2026 when his term expires,
+- [11:05.650] so you're already thinking about it?
+- [11:07.390] The President: It's coming out very soon.
+- [11:08.740] The Press: Who are you thinking about for that?
+- [11:10.060] The President: I could tell you, but I don't think I will.
+- [11:12.830] I have a pretty good idea.
+- [11:16.280] The Press: What do you make of the Ayatollah
+- [11:18.070] saying that they have to enrich, they have to be able to enrich?
+- [11:21.210] The President: They won't be enriching.
+- [11:22.410] If they enrich, then we're going to have to do it the other way.
+- [11:25.750] And I don't really want to do the other way,
+- [11:27.340] but we're going to have
+- [11:28.570] (inaudible).
+- [11:30.040] The Press: Just one more on Abrego Garcia, sir,
+- [11:31.700] because this is the big news for today.
+- [11:33.880] Just months ago, it seemed like from El Salvador
+- [11:36.190] to even your administration
+- [11:37.490] that there was no chances that he would be returned.
+- [11:39.890] So can you just explain to the American people
+- [11:41.980] what sort of happened to facilitate his return
+- [11:43.430] (inaudible) ?
+- [11:44.630] The President: Well, DOJ made a decision.
+- [11:45.930] I think their decisions have been very, very good.
+- [11:48.910] And maybe they just said, look, all of these people,
+- [11:51.230] these judges, they want to try and run the country.
+- [11:53.990] The judges are trying to --
+- [11:55.320] a local judge trying to run the county.
+- [11:58.100] The man has a horrible past.
+- [12:01.720] And I could see a decision being made, bring him back,
+- [12:04.310] show everybody how horrible this guy is.
+- [12:07.150] And frankly, we have to do something
+- [12:08.640] because the judges are trying to take the place of a president
+- [12:12.260] that won in a landslide
+- [12:13.800] and that's not supposed to be the way it is.
+- [12:16.010] And so I could see bringing him back.
+- [12:18.240] I could see it either way.
+- [12:19.480] Bringing him back or not bringing him back.
+- [12:20.930] But by bringing him back you show how bad he is.
+- [12:23.300] He's a bad guy.
+- [12:25.100] The Press: Did President Xi agree
+- [12:27.130] to restart the flow of rare minerals and magnets?
+- [12:30.730] The President: Say it -- what?
+- [12:32.080] The Press: Did President Xi agreed to restart
+- [12:34.050] the flow rare minerals in magnets?
+- [12:35.840] The President: Yes, he did. Thank you very much everybody.
+- [12:37.410] The Press: Thank you, Mr. President.
+- [12:38.690] Thank you for coming back.

@@ -1,0 +1,1925 @@
+<!-- source: https://www.youtube.com/watch?v=YaXu-W--h0A -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: YaXu-W--h0A -->
+<!-- date_published: 2025-10-30T01:17:07+00:00 -->
+<!-- date_accessed: 2026-06-02T02:42:15.237191+00:00 -->
+
+# Transcript: Vice President JD Vance Delivers Remarks at a Turning Point USA Tour Event
+
+- [20:52.000] ♪ (somber music playing) ♪
+- [21:15.510] (cheers and applause)
+- [21:25.020] Erika Kirk: Good evening, Ole Miss.
+- [21:29.870] (cheers and applause)
+- [21:33.910] Love you guys, too.
+- [21:36.770] Oh, it's hard not to cry after watching that.
+- [21:39.180] I haven't seen that
+- [21:42.580] – haven't seen that video since that day happened.
+- [21:48.870] Charlie, when he came onto campus,
+- [21:52.780] he loved to immerse himself
+- [21:55.470] in the culture of the campus that he was in.
+- [21:59.540] And so from word on the street, you guys have a chant out there.
+- [22:06.770] I hear it's a good one. It's hotty toddy.
+- [22:11.310] (audience indistinct chanting)
+- [22:27.670] I love it, I love but it's a tremendous honor
+- [22:33.130] and blessing to be on stage today
+- [22:35.140] and this is, this is what Turning Point USA is all about.
+- [22:41.260] This is what the future of our country is all about
+- [22:43.710] and I want to thank you all also on a personal level
+- [22:47.880] for all of your prayers.
+- [22:49.960] And all of your support, not only for our family,
+- [22:52.000] but for the Turning Point USA family,
+- [22:53.640] which includes all of you,
+- [22:54.910] especially those that are students,
+- [22:56.700] part of the Turning Point USA chapter at Ole Miss.
+- [22:58.860] So, I love you guys, truly, this whole.
+- [23:08.260] You guys have no idea how helpful it is
+- [23:13.210] to have all of you in my life because you help me feel
+- [23:17.030] even more deeply connected to my husband.
+- [23:20.110] And I thank you for that. I thank all of.
+- [23:32.090] And I say that also because you guys
+- [23:33.810] are the heartbeat of Turning Point USA.
+- [23:36.980] You're the heartbeat of this organization.
+- [23:38.900] And every time we were at an event,
+- [23:43.710] especially one that Charlie was speaking at,
+- [23:45.850] he would always ask, beforehand, he would ask Mikey or the team,
+- [23:49.880] he'd say, who in the audience
+- [23:52.960] is a Turning Point USA chapter leader or a chapter member?
+- [23:57.880] And whenever there was a student there,
+- [24:00.720] He would stop everything before the event,
+- [24:03.180] and he would sit down with them.
+- [24:05.390] He would ask you what your name is, what you're studying,
+- [24:09.460] what is the issues that are going on on campus.
+- [24:14.210] He would take the time to make sure that you guys knew
+- [24:17.810] he was investing into you,
+- [24:20.550] into your chapter, into your school.
+- [24:24.560] That was a pulse point for him.
+- [24:28.550] Being on campus right now for me is --
+- [24:35.160] Is a spiritual reclaiming of territory.
+- [24:38.980] And let me explain that
+- [24:40.210] because there is a lot of symbolism in today.
+- [24:45.750] It's Wednesday. Seven weeks.
+- [24:51.590] And the more that I am coming to grips
+- [24:53.980] with the permanency of this nightmare,
+- [24:57.710] the more than I'm starting to realize and witness
+- [24:59.750] that the enemy, he doesn't want you,
+- [25:03.990] he wants your territory. He wants your influence.
+- [25:10.340] When our team asked my dear friend,
+- [25:13.860] Vice President JD Vance
+- [25:16.310] to speak today, I really prayed on it
+- [25:18.680] because obviously it's a very emotional, emotional day,
+- [25:24.870] but I could just hear Charlie in my heart,
+- [25:29.410] I could hear him say, go reclaim that territory baby.
+- [25:37.060] The battle's already won. God's love conquers.
+- [25:42.480] And that's why I'm here today. I'm because this moment,
+- [25:46.130] it can either be your breaking point or your wake-up call.
+- [25:50.730] Essentially your turning point, if you will.
+- [25:54.530] And at this moment, every single one of us
+- [25:56.850] has a choice to make, whether we stand for freedom
+- [26:02.160] or we're just going to fall for everything else.
+- [26:07.360] But I want to encourage you,
+- [26:08.720] especially the students here, find your voice.
+- [26:13.180] You are the courageous generation.
+- [26:16.030] That's what you are.
+- [26:18.270] All of you, Gen Z, you are the courage generation.
+- [26:23.840] Hear me when I say that.
+- [26:25.060] My husband believed that to his core.
+- [26:27.980] That's why he went on campuses.
+- [26:30.580] That's what he was trying to reach you.
+- [26:33.680] You are the courageous generation.
+- [26:36.370] Own it. Make him proud.
+- [26:43.330] And students beyond Ole Miss,
+- [26:45.260] if you are pursuing a chapter on your campus,
+- [26:48.980] harness this amazing opportunity to advocate
+- [26:53.280] for something that you truly believe in
+- [26:56.900] and express it in the most articulate way
+- [27:00.340] of what exactly you're advocating for.
+- [27:02.340] You're advocating America,
+- [27:03.820] you're advocating for freedom of speech.
+- [27:08.490] Because our chapters on high school campuses,
+- [27:10.710] I love it. Charlie was so excited
+- [27:12.310] when he named the programs for high schools.
+- [27:15.820] He said, we're going to name it Club America.
+- [27:18.790] Because he goes, who could hate that name?
+- [27:21.770] It's the perfect name, Club America, and he loved it.
+- [27:25.630] Who could be against it? And I want you to know
+- [27:28.990] that if you are trying to start a chapter,
+- [27:31.270] I'm with you, we are with you.
+- [27:32.810] Charlie's with you you have an arsenal of Turning Point USA.
+- [27:38.070] Staff members that are with you.
+- [27:43.390] But I also, what I've been able to sit back and witness
+- [27:47.490] is the leaders that have stepped up to ensure that chapters.
+- [27:55.910] For example, I don't know if you guys saw
+- [27:58.030] what happened earlier this week with Governor Ron DeSantis,
+- [28:01.270] which is amazing.
+- [28:03.400] I want to give him a massive shout out
+- [28:04.760] because he said,
+- [28:07.350] we're announcing a partnership with Turning Point USA.
+- [28:09.910] We want to make sure that all high schools in Florida,
+- [28:12.940] anybody in a high school
+- [28:14.190] that wants to start a Club America chapter
+- [28:16.710] will be able to do that.
+- [28:19.130] There will be no impediments to that
+- [28:22.570] and certainly no discrimination.
+- [28:33.600] That's amazing.
+- [28:36.120] And then also, Governor Yonkin. I want to thank him as well.
+- [28:41.160] He donated generously to Turning Point USA
+- [28:44.690] to support new Turning Point U.S.A.
+- [28:46.310] Chapters all over the commonwealth of Virginia.
+- [28:49.900] How powerful is that? It's amazing.
+- [28:58.530] So when I heard that, I just looked up and I was like,
+- [29:02.800] all right, Charlie, two down, 48 to go.
+- [29:06.940] I see you. But Club America and Turning Point USA chapters.
+- [29:13.930] If you're wondering what those values are,
+- [29:15.800] it's life, liberty, and the pursuit of happiness,
+- [29:18.050] and that's what our country was founded on.
+- [29:21.900] And when you succeed in establishing that chapter,
+- [29:24.960] I want to commend you
+- [29:26.190] because that experience will leave a mark on you
+- [29:29.910] that will influence every choice
+- [29:31.880] that you make for the rest of your life
+- [29:33.490] and generations to come. Earn your voice.
+- [29:38.210] Charlie loved the word earn. Earn your Voice.
+- [29:41.800] This is about your legacy. Each one of you in this room,
+- [29:45.610] everyone watching, when you earn your voice
+- [29:48.610] and you stand up for what is right,
+- [29:51.240] that is a part of your legacy, your family's legacy,
+- [29:54.680] just as much as it is part of Charlie's legacy.
+- [29:58.900] Don't forget that. Don't ever forget that
+- [30:02.710] because if there's one thing I've learned,
+- [30:05.560] especially being with Charlie for the past seven years,
+- [30:10.380] it's that the hope we're looking for
+- [30:13.450] is not found in Washington, it's not found media.
+- [30:19.300] It's right here, all of you.
+- [30:21.690] This is, this is the hope, and he saw that.
+- [30:30.620] He saw that. It's in stadiums like this.
+- [30:33.440] Charlie had a visual in his head.
+- [30:35.370] He loved the on-campus events. But for the night events,
+- [30:40.670] he would send Tyler pictures and the team pictures of,
+- [30:44.570] I want our chapter events to look like this,
+- [30:47.800] and he sent a picture
+- [30:50.220] of one of the largest college football stadiums
+- [30:53.730] in the country packed. That was his vision.
+- [30:58.770] And that's what makes all of this so powerful
+- [31:02.640] because Your generation is living at a crossroads.
+- [31:11.710] And you are living in one of the most defining moments
+- [31:15.010] in American history.
+- [31:17.750] And we are all witnessing, in real time,
+- [31:20.540] the battle that is raging for the soul of your generation.
+- [31:25.590] Again, your generation's. This is far more than political.
+- [31:32.510] And you will hear the world and the culture,
+- [31:35.240] for that matter, pressure you and say, go with the flow.
+- [31:39.230] Don't ruffle feathers. Don't say that.
+- [31:42.310] You might offend someone.
+- [31:46.570] Lose some friends if you wear a red hat,
+- [31:50.380] if you go to a Turning Point USA chapter event.
+- [31:58.040] When I hear that, I just,
+- [31:59.640] I need to be so blunt and honest with you now
+- [32:01.860] because before when I heard it, I said,
+- [32:03.980] okay, now when I hear that --
+- [32:10.380] If you're worried about losing a friend,
+- [32:18.140] I lost my friend. I lost best friend.
+- [32:23.520] And if you're nervous about standing up for the truth,
+- [32:27.410] the assassination of my husband
+- [32:30.830] puts into perspective all those fears.
+- [32:37.670] It really does.
+- [32:39.790] Because my husband never went with the flow.
+- [32:42.900] He swam in the streams of significance.
+- [32:48.340] And Charlie knew so deeply to his core.
+- [32:53.340] Comfort doesn't change the world
+- [32:56.480] and you cannot influence the world when you look like it.
+- [33:03.650] The enemy of truth doesn't need to destroy a nation overnight.
+- [33:09.010] He just needs to convince people that truth no longer matters.
+- [33:14.680] And the enemy thrives when Christians don't speak up,
+- [33:18.540] when citizens don't vote,
+- [33:21.050] when students don't think for themselves.
+- [33:26.700] In Ephesians chapter five, verse 11,
+- [33:28.560] it says, have nothing to do with the fruitless deeds of darkness,
+- [33:32.040] but rather expose them.
+- [33:35.490] That's what it means to live as salt and light.
+- [33:38.740] To bring flavor to a world gone bland and clarity
+- [33:42.180] to a word that lost its way and it's lost in confusion
+- [33:45.830] because Christians are called to go into the public space
+- [33:51.120] to correct error with truth and that's what my husband did.
+- [33:56.100] When he would sit there with his microphone,
+- [33:59.420] I got to watch this evolve over the years.
+- [34:03.930] At first, he would hold the microphone the whole time.
+- [34:07.890] He would listen. And as the years went on,
+- [34:13.230] he would put the microphone down.
+- [34:14.820] And he wasn't listening, he was hearing.
+- [34:18.460] He was absorbing what the students were saying
+- [34:21.750] and what they were asking. He was engaging. He was calm.
+- [34:28.790] He wasn't combative. He never insulted.
+- [34:32.620] He just wanted you to think.
+- [34:34.880] Again, like I said, he never told you what to say.
+- [34:37.090] He just want to challenge you so at what your convictions were.
+- [34:41.670] You actually understood why you had them,
+- [34:43.810] rather than they being talking points
+- [34:45.550] because your professor told you so,
+- [34:47.270] or your friend told you, so. He wanted the best of you,
+- [34:52.790] because he demanded the best himself.
+- [34:57.310] And Charlie would say this all the time.
+- [35:01.500] Your rights don't come from the government, they come from God.
+- [35:06.660] And he knew what every founding father knew.
+- [35:11.760] Almost, nearly almost, every university has forgotten
+- [35:15.460] that you cannot have freedom without virtue
+- [35:17.300] and you cannot virtue without God.
+- [35:21.950] And that's what makes this nation so different.
+- [35:24.110] That's what it makes it worth defending
+- [35:26.060] as the courageous generation.
+- [35:30.270] And another thing that Charlie used to say all the time
+- [35:32.670] is that it does not take skill to be courageous.
+- [35:36.130] It takes a choice to be courageous.
+- [35:43.390] Now is the time to make that choice.
+- [35:44.810] Either you sit on the sidelines.
+- [35:46.010] I mean, I don't know what else can wake you up.
+- [35:49.960] I really don't what else could stir that fire
+- [35:53.380] within you to get involved
+- [35:54.880] or to use your voice or to make a difference.
+- [35:58.000] If you're looking for another sign,
+- [36:02.030] I have no idea what to tell you.
+- [36:06.850] I just want to encourage you though.
+- [36:13.410] Yes, this is about America.
+- [36:17.410] And yes, my husband would say, saving Western civilization.
+- [36:23.170] That's true on both fronts.
+- [36:25.780] But deeper than that, this about your soul.
+- [36:28.370] Because the fight for freedom starts within.
+- [36:32.700] Inside of each and every one of you.
+- [36:36.120] So again, please.
+- [36:40.860] Stand firm against the wickedness of the devil
+- [36:45.920] and the schemes of man.
+- [36:48.920] Be alert because his tactics are so clever.
+- [36:53.150] What he'll do is he will find one thing.
+- [36:55.880] He will find fear, he'll find disappointment,
+- [36:58.110] he will one thing and he will wedge it
+- [37:00.270] in between you and the Lord and he will make it grow.
+- [37:03.970] He will make grow so much that you lose sight.
+- [37:09.210] It becomes almost like an eclipse
+- [37:13.030] where the truth is hidden behind it.
+- [37:17.230] And yes, the light's still there,
+- [37:19.700] but you can't see it anymore. That's the enemy's tactic.
+- [37:23.630] And the bottom line is that the enemy
+- [37:24.920] doesn't need to change your theology.
+- [37:27.820] It just needs to change your vision.
+- [37:29.350] And if he can get in your head
+- [37:32.730] and blur your vision and distort your vision,
+- [37:39.880] He'll do whatever he can.
+- [37:42.440] But what the enemy forgets, though,
+- [37:46.710] is that the presence of a shadow is proof that there is light.
+- [37:52.190] He forgets that.
+- [37:53.850] And Charlie's murder might seem like we're standing in a shadow,
+- [37:57.350] as if death was the victory meant for the enemy,
+- [38:00.320] but looking around in this arena,
+- [38:03.230] you are proof that this light of truth burns so brightly.
+- [38:10.120] So brightly.
+- [38:21.800] The Lord is calling you to rise.
+- [38:24.680] Please hear me when I say that courageously.
+- [38:27.450] He is. Do not be afraid. It is so easy to be afraid,
+- [38:33.370] but we are commanded to not be afraid.
+- [38:39.370] And when you take that stand,
+- [38:42.220] it will encourage and inspire someone else to do the same.
+- [38:48.100] Whether that is someone in your circle,
+- [38:52.160] whether that's a family member,
+- [38:54.000] whether that someone you've never even met before
+- [38:56.270] because they saw you posting something on social media.
+- [39:01.310] You can't change a nation if you're enslaved to fear.
+- [39:06.270] And you can't call out corruption
+- [39:09.810] if you're still chained to comfort.
+- [39:14.560] And you can't stand for truth
+- [39:15.890] if you first do not kneel before the Lord.
+- [39:32.770] And I know I keep saying it,
+- [39:34.080] but I'm trying to drive home a point.
+- [39:38.940] You all being labeled as the courageous generation
+- [39:43.460] because This generation will decide
+- [39:47.860] if America remembers who she is or if she'll forget.
+- [39:55.270] And I believe with all my heart that God placed you here now,
+- [40:00.180] in Ole Miss, not by accident, but by assignment.
+- [40:05.510] There is no mistake that you are here
+- [40:07.280] in this stadium and arena today. No mistake.
+- [40:10.990] God doesn't make mistakes. It doesn't make mistakes.
+- [40:20.080] Being on this campus, I think of 18-year-old Charlie,
+- [40:24.150] who would always say, you know, when I started this,
+- [40:27.730] I had no money, no connections,
+- [40:31.430] and I had no idea what I was doing.
+- [40:34.850] But what he did know what he was doing
+- [40:36.810] is that he was obeying the Lord.
+- [40:39.600] He was obeying what the Lord had placed inside of his heart
+- [40:43.810] to fight for.
+- [40:46.110] (applause)
+- [40:57.200] And he persevered.
+- [40:59.490] He persevered, and look what he left us.
+- [41:02.910] Look what he's left us with. He didn't leave us empty-handed.
+- [41:08.410] He built a machine, and all of you are a part of that.
+- [41:13.290] Again, the heartbeat of Turning Point USA.
+- [41:18.420] That's what happens when you obey the Lord.
+- [41:22.590] A movement like this, it becomes unstoppable.
+- [41:25.910] It becomes the revival that it is.
+- [41:31.970] I just want this to be the generation
+- [41:35.640] that says we will not apologize for loving our country first.
+- [41:42.290] We will not be silent about our faith.
+- [41:45.690] We will NOT back down when the world tells us to kneel
+- [41:50.600] because we bow only to the King of Kings.
+- [41:54.790] (applause)
+- [42:07.250] And it's from him that we rise.
+- [42:12.270] I personally still believe in America.
+- [42:18.040] I still believe in her founding. I still in her future.
+- [42:22.220] I don't care if people think it sounds crazy,
+- [42:24.180] but I still that our nation can heal.
+- [42:28.750] But we can't save a country that we're too afraid to defend.
+- [42:33.030] (applause)
+- [42:43.870] On a more personal note, inside of our,
+- [42:46.610] when we first moved into our home,
+- [42:49.650] inside of out bedroom, I had on the side wall,
+- [42:54.550] when you walk in, it was above the bookshelves,
+- [42:56.780] it says on two framed pieces of paper,
+- [43:02.010] it says, they will be known by the boldness of their faith.
+- [43:08.710] And when I hung that, as many women can attest to this,
+- [43:12.490] when you hang things, you see them all the time.
+- [43:14.110] You just kind of go about your life.
+- [43:16.260] And so. Being in the position that I am now,
+- [43:22.300] it took me a while to even just make it back into our bedroom.
+- [43:27.390] Sprint from the opening door into the bathroom
+- [43:29.480] and sprint out.
+- [43:30.700] I was not ready to walk into our bedroom yet.
+- [43:34.940] When I was finally able to sleep in our bed for the first time,
+- [43:39.320] I slept on his side of the bed.
+- [43:42.690] And I noticed, because he had to sleep a certain way on his side,
+- [43:46.970] facing the outside of the bed, because he, he had a bad back,
+- [43:51.480] I'm sure most of you didn't know that,
+- [43:53.220] but he had really bad back.
+- [43:54.540] Anyways, so, it's also why he wore compression socks too.
+- [43:59.230] I know a lot of people are like,
+- [44:00.470] why did he wear compression socks?
+- [44:02.880] Circulation. Anyways, he would sleep that direction,
+- [44:08.590] and so I found myself sleeping that direction as well.
+- [44:11.880] And when I. I woke up for the past several nights
+- [44:16.830] that I've been able to be in there.
+- [44:19.830] I saw that the first thing I'd see is that.
+- [44:25.610] On the wall. They will be known by the boldness of their faith.
+- [44:29.080] And I thought to myself,
+- [44:30.340] he saw that every single morning he woke up.
+- [44:32.510] I didn't, because I'm on the other side of the bed,
+- [44:34.400] so I'm facing the window. But he saw it every single day.
+- [44:38.160] And then I thought, to myself -- Because when I go to the office,
+- [44:44.810] I will never sit in his office chair.
+- [44:46.600] So I sit, there's like a couch on the side when you walk in,
+- [44:49.190] and I sit on the couch. And on his desk,
+- [44:55.970] flanked between the Bible verse of Micah chapter 6 verse 3.
+- [45:04.700] It all kind of came together for me.
+- [45:07.170] So he sees us on the wall,
+- [45:09.140] and then he sees on his desk these three questions
+- [45:12.910] that he would ask himself every single day.
+- [45:19.190] And it would be,
+- [45:21.120] what is something I can do for someone today?
+- [45:25.060] The second one was,
+- [45:26.310] what something I could do to add value to the world today?
+- [45:30.840] And the third was, how can I honor God today?
+- [45:34.480] Those were the three questions combined with the words
+- [45:37.340] he saw every single morning. So to me,
+- [45:43.850] Seeing that, seeing on his desk, that was him suited up.
+- [45:50.260] With the armor of the Lord every day.
+- [45:53.080] That was his combination.
+- [45:57.390] And what I'm realizing with that is,
+- [46:00.500] those were the action points of how to have courage.
+- [46:06.330] Because you can ask me, well, how do I become courageous?
+- [46:12.260] Ask yourself those three questions every single day.
+- [46:16.210] And I promise you. You will get courage.
+- [46:24.530] Because --
+- [46:27.630] What death amplifies even more is that you only get one life.
+- [46:35.850] That's it, it's an eternal life.
+- [46:40.590] So that's why you have to live like it matters,
+- [46:42.400] but I want to remind you
+- [46:44.780] that God has created you for greatness.
+- [46:49.320] Not for something that's lifeless, just greatness.
+- [46:55.080] And the question isn't how long you're going to live.
+- [47:00.780] It's what are you going to do with your life in the time
+- [47:02.680] that the Lord has blessed you with?
+- [47:04.000] What are you going to do with that?
+- [47:08.690] That's the question.
+- [47:11.200] (applause)
+- [47:17.490] And when you get to the end of your life --
+- [47:24.190] Will the Lord be proud of what you stood for?
+- [47:30.470] Will you be able to say that you ran the race,
+- [47:33.500] that you fought the good fight?
+- [47:37.790] Or will you realize that you wasted your time
+- [47:40.050] that the Lord has blessed you with,
+- [47:41.510] chasing after things that didn't even matter?
+- [47:45.420] Hold that into perspective.
+- [47:49.060] And remember,
+- [47:51.590] being the courageous generation that you are.
+- [47:55.900] Stand up for the truth. Defend life.
+- [48:00.600] Love your family fearlessly. Love your spouse fearlessly."
+- [48:09.690] love this country, defend her. Defend her and serve our God.
+- [48:18.570] And don't think that it's someone else's role to do it.
+- [48:22.550] You do it! You do it.
+- [48:29.020] Do it for Charlie. Do it for sure.
+- [48:34.450] (applause)
+- [48:49.410] I am tremendously blessed and honored tonight
+- [48:54.820] to be able to introduce to you.
+- [48:59.970] A very, very dear friend and his wife.
+- [49:08.260] They are incredible.
+- [49:14.010] And I see no one will ever replace my husband.
+- [49:20.570] But I do see some similarities of my husband in JD
+- [49:25.830] and Vice President JD Vance. I do.
+- [49:29.280] And that's why I am so blessed
+- [49:32.680] to be able to introduce him tonight.
+- [49:37.120] Because he understands the fight that we're up against.
+- [49:44.770] And he can articulate that in a way that he doesn't.
+- [49:50.450] That transcends race.
+- [49:55.230] That transcends demographic backgrounds.
+- [50:00.590] He's an amazing man. So please help me welcome
+- [50:03.480] to the stage Vice President J.D. Vance.
+- [50:06.800] (cheers and applause)
+- [50:12.230] Recorded Voice: I am honored to introduce a friend of mine,
+- [50:15.000] somebody that I have just been so thrilled
+- [50:17.000] to see ascend American politics. His story is uniquely American,
+- [50:20.770] growing up in poverty, difficult circumstances,
+- [50:23.580] serving his country honorably and heroically
+- [50:26.910] in the United States Marine Corps,
+- [50:28.440] being an America first champion in Congress
+- [50:31.960] and somebody who I know will bring this vision
+- [50:35.230] to make America great again.
+- [50:36.990] Join me in welcoming JD Vance, everybody.
+- [50:41.140] ♪ (upbeat music playing) ♪
+- [51:24.900] (cheers and applause)
+- [51:33.660] (audience chanting "USA")
+- [51:42.970] The Vice President: Ole Miss, I got a question.
+- [51:45.890] Are you ready?
+- [51:49.930] (audience indistinct chanting)
+- [52:07.310] Wow, that was impressive.
+- [52:09.050] They told me that would be impressive
+- [52:10.630] and they were exactly right. So, let me say a few words
+- [52:15.190] of thank you first to my dear friend
+- [52:18.480] and the widow of my dear friend Charlie Kirk.
+- [52:21.120] Erika, you have been such an amazing inspiration
+- [52:24.460] to the entire country. How much do we love Erika Kirk?
+- [52:27.480] She's done a hell of a job.
+- [52:29.330] (cheers and applause)
+- [52:33.620] I want to thank --
+- [52:34.970] we have a couple of Mississippi senators here.
+- [52:37.650] We have both Senator Roger Wicker
+- [52:39.880] and Senator Cindy Hyde-Smith. Thank you guys for being here.
+- [52:43.910] (applause)
+- [52:48.340] We have the governor of Mississippi with us.
+- [52:49.900] We got an all star crowd here.
+- [52:51.150] Governor, thank you for being here.
+- [52:53.180] (applause)
+- [52:59.010] And most importantly, we have got over 10,000 students
+- [53:02.930] from across Mississippi.
+- [53:04.810] We are proud to have you and we know
+- [53:07.330] that you are the future of Charlie Kirk's legacy,
+- [53:10.450] so thank you for being here.
+- [53:12.890] (applause)
+- [53:19.010] I got this whole speech written
+- [53:21.180] and I'm not going to deliver any of what I had written.
+- [53:23.530] I'm just going to speak from the heart,
+- [53:24.880] because that's what Charlie would so often do.
+- [53:33.340] When I think about what we lost six weeks ago,
+- [53:36.050] it feels like forever ago
+- [53:37.800] when I was in a meeting in the West Wing,
+- [53:41.340] and one of my staff members came in
+- [53:43.220] and said that Charlie had been shot.
+- [53:45.280] And then I looked at my phone,
+- [53:46.560] and I saw all the text messages and realized
+- [53:49.400] that my dear friend had been very seriously injured.
+- [53:51.490] Now, in the West Wing at that time,
+- [53:54.630] we actually thought that Charlie had a chance.
+- [53:57.680] We didn't know that he was eventually going to pass away.
+- [54:00.620] There were initial reports from the medical team
+- [54:02.960] that maybe things were going okay.
+- [54:04.540] And of course, eventually Charlie took his last breath,
+- [54:08.090] and went home to be with his Lord and Savior.
+- [54:11.620] I remember thinking at that moment,
+- [54:14.110] first, of course, about Erika and the children.
+- [54:16.500] They've got their oldest.
+- [54:18.150] Their daughter is very similar in age to our youngest child.
+- [54:21.520] And I remember thinking,
+- [54:22.780] what a terrible tragedy for that family.
+- [54:25.780] And the second thing that I thought
+- [54:27.020] was what a terrible tragedy for the United States of America,
+- [54:30.580] because Charlie wasn't just a political figure.
+- [54:33.400] He wasn't just a guy who went around campus,
+- [54:35.810] and said very interesting things and hosted all of these debates.
+- [54:39.840] He was a person who particularly to the young people
+- [54:43.170] of this country, to all of you, he had the very best advice.
+- [54:48.190] And I think that's the most important way for me
+- [54:50.300] to honor Charlie, which is to repeat that advice.
+- [54:52.770] Something I found true in my own life.
+- [54:55.180] Charlie wanted all of you, whatever life path you chose,
+- [54:59.270] whatever career you chose,
+- [55:00.800] whatever you ultimately did for a living,
+- [55:03.020] Charlie wanted you more than anything to invest
+- [55:07.140] in the things that were worth having to build a life
+- [55:11.530] that was worth building. And that started.
+- [55:14.370] The most important advice he ever gave you was fall in love,
+- [55:19.590] get married, and start a family. And I can't honor Charlie
+- [55:22.990] without repeating that most important advice.
+- [55:31.810] Now, most of you are probably too young
+- [55:34.580] to have found the person
+- [55:35.800] you're going to spend the rest of your life with.
+- [55:37.300] Some of you are lucky enough to have found that person already.
+- [55:40.590] But I will tell you, if you're as lucky
+- [55:42.720] and blessed as I have been,
+- [55:44.110] it hits you like a ton of bricks.
+- [55:46.190] And I found that person in my lovely wife,
+- [55:48.970] Usha, our second lady who is here with us today.
+- [55:51.430] She's sitting in the audience somewhere.
+- [55:52.920] I don't know where. But I love you, honey.
+- [55:59.540] And have children,
+- [56:00.910] that's something Charlie also always told.
+- [56:03.730] I grew up in a generation.
+- [56:06.010] I'm 41 years old. I'm a millennial.
+- [56:08.400] And if you're being uncharitable,
+- [56:09.690] you would call me a geriatric millennial,
+- [56:11.710] which I really hate.
+- [56:13.250] I really hate being called a geriatric millennial.
+- [56:15.690] But here I am at 41,
+- [56:17.320] talking to all of you like I've got great wisdom.
+- [56:21.480] Here's the thing: The one regret,
+- [56:22.700] the only regret that I really have in my entire life,
+- [56:25.860] and I've made plenty of mistakes.
+- [56:27.840] But the one regret that I have is that frankly,
+- [56:29.970] I wish we had started having kids sooner.
+- [56:32.430] Because when you're a young father,
+- [56:34.420] you realize what an incredible blessing they are,
+- [56:37.120] but they're also very exhausting.
+- [56:39.300] And I know here at Ole Miss, we like to party a lot.
+- [56:44.530] And I know at Ole Miss, occasionally some of you
+- [56:46.990] will have a few drinks on a Friday or Saturday,
+- [56:50.610] or hopefully not a Tuesday night,
+- [56:52.100] but I'm sure that happens from time to time
+- [56:54.610] here in SEC Country.
+- [56:56.620] But here's the thing, when you go out until 3:00 in the morning
+- [57:01.740] and wake up at 6:00 a.m. for class,
+- [57:04.410] the thing that I've learned in my old age
+- [57:06.630] is that incredible energy,
+- [57:08.390] God actually meant it for another purpose.
+- [57:11.010] And that purpose was to help take care of a family.
+- [57:13.810] So, while you're young, have those babies if you're able to.
+- [57:17.030] That's something Charlie said all the time.
+- [57:19.980] (applause)
+- [57:26.120] But if you think of that advice, if you think of that advice,
+- [57:28.860] Charlie wanted you to get married.
+- [57:30.870] He wanted you to fall in love. He wanted you to build a family.
+- [57:33.450] He wanted you to find a vocation.
+- [57:34.910] That was the advice that he gave on campuses,
+- [57:37.510] but that's not just about you.
+- [57:39.710] That's also about our country and about our government.
+- [57:43.080] Because while you have the freedom
+- [57:45.170] to live life as you so choose,
+- [57:47.670] I have got a responsibility as your vice president
+- [57:50.760] to make the American dream as accessible as possible.
+- [57:53.990] And this is why, my friends,
+- [57:55.930] this is why we care about all the things that we care about.
+- [57:59.110] Why do I care so much about having a secure border
+- [58:02.900] in the United States of America? It's because I believe that
+- [58:06.910] when you let in a flood of illegal immigration,
+- [58:09.880] what it does is it drives down the wages of young people
+- [58:13.300] and makes housing unaffordable
+- [58:15.360] for the entire American population.
+- [58:17.560] That's why we closed down the border.
+- [58:27.580] The left will say our immigration policy
+- [58:29.720] is about hating immigration, hating immigrants.
+- [58:32.480] We don't hate anybody. We love our fellow citizens.
+- [58:35.920] And because we want them to have the American dream,
+- [58:39.130] we shut that border down the very first day
+- [58:41.680] that Donald J. Trump
+- [58:42.940] was the President of the United States.
+- [58:46.010] (applause)
+- [58:52.290] I care about you being able to afford a home,
+- [58:54.600] which is why we fought so hard to fix the broken policies
+- [58:58.690] of the Biden administration. I want a lot of you--
+- [59:01.130] I'm sure there are military veterans in this room right now.
+- [59:04.150] I'm sure there are a lot of people
+- [59:05.820] who will join the military in the future.
+- [59:07.650] And we're proud of you. But part of America First
+- [59:10.810] is ensuring that we never ask you to go
+- [59:14.350] and do the American people's business,
+- [59:17.200] unless it is in the interest of the United States of America.
+- [59:21.180] And that's how we honor the sacrifice of our truths.
+- [59:30.090] And that's why, my friends,
+- [59:31.410] that's why we care so much about free speech,
+- [59:33.970] as Charlie lived and died for the basic principle
+- [59:37.650] that we ought to be able to talk about our differences.
+- [59:40.980] We ought to be able to debate them.
+- [59:42.590] And we ought to have faith that the best way
+- [59:45.360] to make sure that the best idea wins
+- [59:47.850] is to actually just have a discussion.
+- [59:50.780] And that is what this event is all about.
+- [59:53.080] That is what Turning Points USA is all about.
+- [59:55.670] And I'm so proud.
+- [59:57.120] And most of all, I'm so grateful to each and every person,
+- [01:00:00.400] whether you're a Republican or a Democrat,
+- [01:00:02.770] for coming out and honoring one of the most important parts
+- [01:00:06.270] of Charlie's legacy,
+- [01:00:07.630] because we're going to have a discussion tonight.
+- [01:00:10.110] And that's what Charlie would want us to do.
+- [01:00:20.710] Now, I want to get to questions
+- [01:00:22.330] and I want to leave plenty of time for questions,
+- [01:00:24.280] but I want to make just a couple of final points
+- [01:00:26.420] about Charlie's legacy and politics.
+- [01:00:28.870] The most important thing about Charlie
+- [01:00:30.580] is that he was a great husband and a great father.
+- [01:00:33.380] Erika told me probably 12 hours after Charlie
+- [01:00:36.710] had been pronounced dead,
+- [01:00:38.190] she was just absolutely devastated.
+- [01:00:42.740] If you've ever known anybody who's grieving,
+- [01:00:44.390] sometimes they're unable to even hold a single thought
+- [01:00:48.610] for more than a few seconds. And what Erika told me,
+- [01:00:51.760] and I'm going to get a little emotional,
+- [01:00:53.400] is that she said that Charlie never yelled at her,
+- [01:00:56.590] he never cussed at her.
+- [01:00:58.240] And that to me is a great legacy to leave as a husband
+- [01:01:02.380] and a father, for your wife to be able to say
+- [01:01:05.040] that my husband was always good to me.
+- [01:01:07.290] And Charlie was a good man.
+- [01:01:16.620] But he also had the legacy of believing in political debate.
+- [01:01:21.280] And he was the most effective person in politics
+- [01:01:24.590] that I have ever seen.
+- [01:01:25.930] And by the way, that's not because
+- [01:01:27.790] Charlie always agreed with me and the president's policies.
+- [01:01:32.100] I remember one time in particular
+- [01:01:34.690] where Charlie Kirk called me, and guys, he was mad.
+- [01:01:37.960] It was I wouldn't say the last conversation
+- [01:01:40.920] that I had with him,
+- [01:01:42.130] but it was in the last few months of his life.
+- [01:01:44.220] And he called me and he said, "JD, I'm really worried.
+- [01:01:47.810] I'm really worried that what's going on in the Middle East
+- [01:01:51.000] right now is going to lead the United States
+- [01:01:53.350] into a protracted military conflict."
+- [01:01:55.730] I've never told anybody that,
+- [01:01:57.240] that Charlie was really worried about that
+- [01:01:59.560] in the final months of his life.
+- [01:02:02.430] Now here's the thing, Charlie was so effective,
+- [01:02:06.640] and he was so trusted by both me
+- [01:02:10.620] and the President of the United States,
+- [01:02:12.140] that when Charlie made that phone call,
+- [01:02:13.720] I didn't say, "Screw you.
+- [01:02:14.960] You don't know what you're talking about."
+- [01:02:17.220] I listened to him.
+- [01:02:18.630] And I really believe that one of the reasons
+- [01:02:20.940] why the President of the United States
+- [01:02:23.650] knocked out the Iranian nuclear facilities,
+- [01:02:26.170] but never got the United States
+- [01:02:27.800] into a protracted military conflict,
+- [01:02:30.120] and never lost a single American in a Middle Eastern conflict,
+- [01:02:34.850] is because we had the wisdom and the good sense to recognize
+- [01:02:40.590] that the American people are done with American troops
+- [01:02:44.060] dying in unnecessary foreign conflicts.
+- [01:02:46.790] But Charlie Kirk reminded me of that.
+- [01:02:48.730] Charlie Kirk.
+- [01:02:55.640] So, that was a great moment for our country.
+- [01:02:58.090] It was a great moment for my friendship with Charlie Kirk,
+- [01:03:00.990] because friendship is not just about
+- [01:03:03.270] telling everybody what they want to hear.
+- [01:03:05.060] It's not just about agreeing with everybody all the time.
+- [01:03:08.180] It's about having the trust in another human being,
+- [01:03:12.060] that you can tell them they're wrong
+- [01:03:14.270] and actually encourage them to change their mind.
+- [01:03:16.720] Or in that case, not necessarily even tell us that we were wrong,
+- [01:03:20.280] but make sure that we were thinking about all the options.
+- [01:03:23.020] And of course, under the president's leadership,
+- [01:03:25.080] we were doing exactly that, but Charlie was so good at that.
+- [01:03:30.330] And I think that's one of the ways
+- [01:03:31.930] in which I want all of you to honor your legacy.
+- [01:03:33.930] Obviously, you care about our great nation
+- [01:03:35.640] or you wouldn't be here.
+- [01:03:36.850] A lot of you will go on to become future leaders
+- [01:03:39.970] in business or in politics. A lot of you will run campaigns.
+- [01:03:43.500] A lot of you will work on campaigns.
+- [01:03:45.480] A lot of you will be future leaders.
+- [01:03:47.900] There might even be a lowly future
+- [01:03:50.400] Vice President of the United States in this very room.
+- [01:03:56.410] But here's the thing that I want all of you to remember.
+- [01:04:02.230] Charlie wasn't effective just because he had opinions.
+- [01:04:05.350] A lot of people have opinions.
+- [01:04:07.810] Charlie was effective because he was courageous,
+- [01:04:11.430] because he worked very hard,
+- [01:04:13.650] and because he made his vision a reality.
+- [01:04:16.760] And so, if you care about this country,
+- [01:04:18.810] as I know all of you do,
+- [01:04:20.430] don't just complain about social media.
+- [01:04:22.640] Get up and get involved in a campaign.
+- [01:04:24.960] If you want a better policy outcome,
+- [01:04:27.530] even from an administration that you voted for,
+- [01:04:30.150] then get out and get involved in making your voice heard.
+- [01:04:33.520] If you care about this country,
+- [01:04:36.040] love it enough to get involved in the process
+- [01:04:39.410] in how we govern it.
+- [01:04:40.740] That is the only way we are going to save
+- [01:04:42.920] the United States of America.
+- [01:04:44.600] And that is perhaps the greatest contribution
+- [01:04:47.480] that you can make to Charlie Kirk's legacy
+- [01:04:50.000] is getting involved and saving this country.
+- [01:04:53.080] I'm in the fight
+- [01:04:54.340] and I know every single one of you are with me.
+- [01:04:56.230] God bless you and thank you for having me.
+- [01:05:14.460] Thank you. Thank you.
+- [01:05:16.140] Hey, please, I appreciate that, but we're not even halfway done.
+- [01:05:26.260] I don't know what you're saying, but it sounds awesome.
+- [01:05:41.310] Let's not get ahead of ourselves, ladies and gentlemen.
+- [01:05:44.860] What we're going to do next is actually take some questions.
+- [01:05:47.960] And I remember one of my favorite things about Charlie,
+- [01:05:50.000] not that there aren't going to be some questioners
+- [01:05:52.080] who agree with me. But if you disagree with me,
+- [01:05:55.510] I would ask that you come to the front of the line,
+- [01:05:58.360] because we want to talk to people we agree with.
+- [01:06:00.560] We also want to hear from people we disagree with.
+- [01:06:02.730] It is hard for me to see,
+- [01:06:03.970] because the spotlights are very bright.
+- [01:06:06.220] But whoever's in line, go ahead and ask your question.
+- [01:06:09.320] Oh, there we go. Okay, now I can see you.
+- [01:06:10.860] How you doing?
+- [01:06:12.100] Student: Hi, Mr. Vice President.
+- [01:06:13.380] Thank you so much for being here. My name's Lucy.
+- [01:06:15.220] Student: And I'm Ellie.
+- [01:06:16.520] And we're with the Turning Point chapter for this question.
+- [01:06:19.730] The Vice President: Thank you, guys.
+- [01:06:21.010] Student: Yes. Can you tell us how your faith
+- [01:06:23.520] helps you in your role as vice president?
+- [01:06:26.200] The Vice President: Well, I appreciate that.
+- [01:06:27.440] That is a very good question.
+- [01:06:29.010] And this is another way in which Charlie has affected my life.
+- [01:06:32.860] I would say that I grew up, again, in a generation
+- [01:06:35.440] where even if people had very deep personal faith,
+- [01:06:38.420] they didn't talk about their faith a whole lot.
+- [01:06:40.890] And I grew up in a country where you just didn't hear
+- [01:06:43.520] political leaders talk about their faith.
+- [01:06:45.480] But the reason why I try to be the best husband I can be,
+- [01:06:50.790] the best father I can be, the reason why I care so much
+- [01:06:53.820] about all the issues that we're going to talk about,
+- [01:06:56.030] is because I believe that I've been placed in this position
+- [01:07:00.160] for a brief period of time to do the most amount of good for God
+- [01:07:04.210] and for the country that I love so much.
+- [01:07:05.790] And that's the most important way that my faith influences me
+- [01:07:10.490] is we all get a limited opportunity
+- [01:07:12.510] to make a difference.
+- [01:07:13.790] And if you believe as we believe, you believe that God,
+- [01:07:16.330] you believe that Jesus Christ has a plan.
+- [01:07:18.350] And sometimes we don't understand that plan.
+- [01:07:20.720] By the way, one way I don't understand that plan
+- [01:07:23.020] is why my friend lost his life six weeks ago.
+- [01:07:25.540] Sometimes I get pissed off about that.
+- [01:07:27.640] But what I remind myself is that there is a deeper rhythm,
+- [01:07:31.570] that Jesus Christ is the author of the fate of human history.
+- [01:07:35.910] And we are charged to do everything
+- [01:07:38.740] that we can to effectuate that vision,
+- [01:07:41.510] to make our country a more virtuous place,
+- [01:07:44.770] a more prosperous place, where people can raise a family
+- [01:07:47.930] and not be persecuted for their faith,
+- [01:07:50.200] but teach their children their faith.
+- [01:07:52.070] That recognition that all of us have a duty.
+- [01:07:54.650] And I have two very important duties
+- [01:07:56.320] as Vice President of the United States,
+- [01:07:57.870] to the American people and to God.
+- [01:07:59.750] And that's the most important influence my faith has on me.
+- [01:08:02.610] Thank you.
+- [01:08:10.700] Student: I understand your view on illegal immigration
+- [01:08:13.200] is it should be a top priority,
+- [01:08:14.570] strengthening our southern borders
+- [01:08:15.960] and fighting the massive drug trafficking
+- [01:08:18.940] that's taken place while securing jobs
+- [01:08:20.620] for the working class Americans.
+- [01:08:22.590] Also, deporting every single person
+- [01:08:25.160] who's invaded our country illegally,
+- [01:08:27.950] which I 100 percent agree on.
+- [01:08:30.220] Student: My question to you is what is your view
+- [01:08:32.150] on legal immigration. Personally, I have a girlfriend
+- [01:08:35.430] who's studying in America off of visa.
+- [01:08:37.900] Our hope is eventually getting a Green Card.
+- [01:08:39.960] So what is your view on legal immigration?
+- [01:08:41.870] Should we reduce it?
+- [01:08:43.090] Also, what is your plan for a merit-based system?
+- [01:08:46.670] The Vice President: Yes, sir. Well, I appreciate the question
+- [01:08:48.500] and, look, my honest view is that, right now, America,
+- [01:08:53.110] thanks in part to the Biden border invasion,
+- [01:08:55.160] but also thanks in part to a lot of bad immigration policy,
+- [01:08:58.280] right now, we have let in too many immigrants
+- [01:09:00.850] into the United States of America.
+- [01:09:02.150] That is just a fundamental reality.
+- [01:09:07.010] Now, look, legal immigration is complicated,
+- [01:09:09.580] because we let in about a million legal immigrants
+- [01:09:12.270] into the United States of America every single year,
+- [01:09:14.750] and I think the evidence is pretty clear
+- [01:09:16.450] that a lot of those immigrants
+- [01:09:17.740] are actually undercutting the wages of American workers.
+- [01:09:23.160] It's one of the reasons why the President of United States,
+- [01:09:25.080] and a lot of us in the administration,
+- [01:09:26.470] have encouraged H-1B reform.
+- [01:09:29.330] Because if you look at the H-1B visa,
+- [01:09:31.910] what it's supposed to be, what it's supposed to be,
+- [01:09:34.790] is that you have a super genius
+- [01:09:36.390] who's studying at an American university
+- [01:09:38.210] who's working at a great company,
+- [01:09:40.540] you want that super genius to stay
+- [01:09:42.320] in the United States of America and not go somewhere else.
+- [01:09:45.050] What it's actually used to do is hire an accountant
+- [01:09:49.300] at a 50 percent discount to an American citizen.
+- [01:09:52.250] I don't think that we should be hiring accountants
+- [01:09:54.680] from foreign countries
+- [01:09:55.880] when we've got accountants right here in the United States
+- [01:09:57.780] that would love to work for a good wage.
+- [01:10:05.630] Now, you asked about, I think your girlfriend,
+- [01:10:07.320] you said, and I obviously don't know
+- [01:10:09.160] the full details about your situation,
+- [01:10:12.520] but my view is, look, there are people
+- [01:10:14.410] who want to come to the United States of America,
+- [01:10:17.100] and some of them, I'm sure,
+- [01:10:18.440] can enrich the United States of America by coming here,
+- [01:10:21.570] but we have got to get our overall numbers way, way down.
+- [01:10:26.230] Too many people have come into the United States of America.
+- [01:10:29.380] I am married to the daughter of immigrants
+- [01:10:32.180] who came to the United States in the 1980s.
+- [01:10:34.440] I do believe that some immigrants, many immigrants,
+- [01:10:37.820] do in fact enrich the United States of America.
+- [01:10:40.310] But here's the problem.
+- [01:10:41.610] We don't even know how many illegal aliens we have.
+- [01:10:45.300] We don't even know.
+- [01:10:46.530] The best guess is probably 25, 30 million people.
+- [01:10:50.270] I've heard estimates as high as 50 million.
+- [01:10:52.730] When something like that happens,
+- [01:10:54.630] you've got to allow your own society to cohere a little bit,
+- [01:10:58.670] to build a sense of common identity
+- [01:11:00.730] for all the newcomers to assimilate,
+- [01:11:02.700] the ones who are going to stay,
+- [01:11:04.300] to assimilate into American culture.
+- [01:11:06.560] Until you do that, you've got to be careful
+- [01:11:08.650] about any additional immigration, in my view.
+- [01:11:10.700] Thank you, sir.
+- [01:11:11.940] Student: Thank you.
+- [01:11:17.450] Student: Hello.
+- [01:11:18.800] I have a question about Israel and Trump's policy towards it.
+- [01:11:23.560] Do you think it's a conflict of interest
+- [01:11:26.130] for Miriam Adelson, an Israeli donor,
+- [01:11:29.450] to give millions of dollars to his campaign,
+- [01:11:31.730] and then Trump have pro-Israeli policies?
+- [01:11:35.560] The Vice President: Well, if you're asking,
+- [01:11:36.840] do I think the President of the United States
+- [01:11:38.430] has a conflict of interest?
+- [01:11:39.750] No, I do not, because I know
+- [01:11:41.090] how the President of the United States
+- [01:11:42.400] makes his decisions, and I see it behind the scenes.
+- [01:11:44.790] Now as the president himself has said,
+- [01:11:46.970] Miriam Adelson, who, by the way,
+- [01:11:48.510] I know and I have a very good relationship with her,
+- [01:11:51.400] she is very clear about the fact.
+- [01:11:52.750] She doesn't hide the fact that she really loves Israel,
+- [01:11:55.520] and that is part of what motivates her political giving.
+- [01:11:57.980] That is a reality.
+- [01:11:59.290] At the same time, the President of the United States
+- [01:12:02.020] is America First through and through.
+- [01:12:03.670] And let me give you just a couple of examples of this.
+- [01:12:06.390] Number one, we have heard from some pro-Israel voices,
+- [01:12:10.130] some people who really love the state of Israel,
+- [01:12:12.490] that they don't want us to have a relationship
+- [01:12:14.420] with certain Middle Eastern countries.
+- [01:12:15.700] Well, the president, his attitude
+- [01:12:17.160] is we need to build relationships with any country
+- [01:12:20.540] where we have shared interests, and he's going to do it
+- [01:12:23.070] if it's in the interest of the American people,
+- [01:12:24.910] and he's done exactly that.
+- [01:12:26.480] Number two, there were people, and I remember this criticism
+- [01:12:28.980] of the President of the United States,
+- [01:12:30.450] I just raised it in the context of a conversation
+- [01:12:33.740] that I had with Charlie.
+- [01:12:35.120] I remember when people said
+- [01:12:37.670] that the President of the United States
+- [01:12:39.420] was going to get us into a multi-hundred thousand
+- [01:12:42.740] troop regime change war for Israel.
+- [01:12:46.030] This was four months ago. This was six months ago.
+- [01:12:49.060] Now the people who accused the President of the United States
+- [01:12:51.930] of wanting to get us into a regime change war for Israel,
+- [01:12:55.090] I wonder if they stepped back and said,
+- [01:12:57.240] "You know what? We were wrong about that,
+- [01:12:59.410] because the President of the United States
+- [01:13:00.980] did not want to get us into a regime change war
+- [01:13:03.650] for any other country,
+- [01:13:04.930] he wanted to knock out a nuclear facility
+- [01:13:06.990] and get everybody back home, and that's exactly what he did."
+- [01:13:09.900] So I understand there's some frustrations out there,
+- [01:13:12.590] but I think the President of the United States,
+- [01:13:14.380] more than any president of my lifetime,
+- [01:13:16.570] is willing to stand up to anybody if he thinks
+- [01:13:19.690] it puts the interest of the American people first.
+- [01:13:21.960] Thank you.
+- [01:13:26.990] Student: Hello, Vice President Vance.
+- [01:13:28.700] The Vice President: How you doing?
+- [01:13:29.910] Student: Good. I have a question.
+- [01:13:31.890] Do you condone large private corporations,
+- [01:13:34.020] such as Palantir, hoarding data caches on US citizens?
+- [01:13:38.080] The Vice President: No, I don't condone it.
+- [01:13:39.450] And here's the thing.
+- [01:13:41.310] So I get asked about Palantir a lot,
+- [01:13:43.250] because there's this internet meme out there
+- [01:13:45.550] that somehow I am super in bed with Palantir.
+- [01:13:49.480] And here's the thing that I'd say about this.
+- [01:13:51.110] Palantir is a private company.
+- [01:13:53.240] They sometimes do a useful service,
+- [01:13:55.210] and sometimes they're going to do things that we don't like.
+- [01:13:57.530] You should be demanding that your representatives
+- [01:14:00.100] do two things when it comes to Palantir
+- [01:14:02.490] or when it comes to any other technology company.
+- [01:14:04.800] Number one, protecting your data.
+- [01:14:07.270] What's going on with artificial intelligence
+- [01:14:09.480] is going to mean that there are massive inducements
+- [01:14:12.600] to steal your data, to harvest it,
+- [01:14:15.040] and to use it against you to sell digital advertisements.
+- [01:14:17.830] That is not what I believe in,
+- [01:14:19.340] and I've been fighting against it,
+- [01:14:20.730] whether it's Palantir or any other technology company,
+- [01:14:23.630] literally before I ran for office.
+- [01:14:25.470] When ran for office, I was criticized by Republicans
+- [01:14:29.240] in my Republican Senate primary,
+- [01:14:30.900] because I was talking then about Google and Facebook
+- [01:14:33.900] harvesting our data. It's unacceptable.
+- [01:14:36.070] I don't care who does it, I don't want them to do it.
+- [01:14:38.750] Number two, and this is also very important.
+- [01:14:41.080] What's going on with artificial intelligence
+- [01:14:43.260] we got to be worried about large scale surveillance.
+- [01:14:47.010] Okay? Everything -- you asked about Palantir.
+- [01:14:50.250] Do you know that every time you make a credit card transaction,
+- [01:14:53.950] the credit card companies are collecting data
+- [01:14:56.440] on how you spend your money?
+- [01:14:57.950] Do you know that every time you linger
+- [01:15:00.260] over a link on the internet for more than a half second,
+- [01:15:04.040] the search engines are collecting data on you
+- [01:15:06.720] so that they can sell you advertisements?
+- [01:15:08.880] One of the biggest questions for American policy
+- [01:15:12.570] over the next 10 years is how to ensure
+- [01:15:15.380] that you are a sovereign citizen.
+- [01:15:17.490] And you cannot be a sovereign citizen
+- [01:15:19.680] if any private corporation or any government
+- [01:15:22.580] can steal something from you that belongs to you.
+- [01:15:24.970] Student: Yes, sir. The Vice President: Thank you.
+- [01:15:26.180] Student: Thank you.
+- [01:15:31.530] Student: Vice President JD Vance.
+- [01:15:33.480] Good evening. The Vice President: Thank you.
+- [01:15:34.740] Student: My question is the Republican Party,
+- [01:15:36.740] they stand for the right to bear arms,
+- [01:15:38.400] a lot of things the Founding Fathers really made a priority.
+- [01:15:43.550] And I feel as if requiring Christianity in public schools
+- [01:15:48.120] goes against the Founding Fathers
+- [01:15:49.590] wish of freedom of religion. What do you think about that?
+- [01:15:54.820] The Vice President: Well, I guess --
+- [01:15:56.720] who is saying that we require Christianity in public schools?
+- [01:16:01.110] Student: Just from what I've seen on the media
+- [01:16:02.540] and the news,
+- [01:16:03.750] it seems like the Trump Administration
+- [01:16:05.670] had wanted to make praying in schools
+- [01:16:09.380] and Christian values incorporated.
+- [01:16:12.270] The Vice President: Well, look,
+- [01:16:13.490] I think Christian values are a good thing,
+- [01:16:15.480] and I'll talk to you about why I think that's a good thing.
+- [01:16:17.510] But that's separate from forcing people to pray,
+- [01:16:19.980] which I don't think that anybody,
+- [01:16:21.310] certainly no Christian that I know,
+- [01:16:22.690] would ever support or ever endorse.
+- [01:16:24.600] And let me just say something generally about all the people,
+- [01:16:26.970] I see there's a big line,
+- [01:16:28.280] and I hope I can get to everybody's question.
+- [01:16:30.630] I remember when I was a sophomore in high school,
+- [01:16:35.890] I went to an event at my church,
+- [01:16:38.250] which was a book signing with Oliver North
+- [01:16:40.940] and Sean Hannity, the Fox News host.
+- [01:16:42.670] And this was back before --
+- [01:16:43.990] I mean, this was I guess 25 years ago.
+- [01:16:47.200] And so, neither of these guys
+- [01:16:48.670] was maybe as big as they are today.
+- [01:16:50.840] And I remember standing in line
+- [01:16:52.690] and I'm about to say hello to Oliver North and Sean Hannity,
+- [01:16:55.700] and I remember thinking to myself, I was so nervous,
+- [01:16:58.380] all I need to do is shake my hand or shake their hand,
+- [01:17:02.000] give them a firm handshake, and tell them my name.
+- [01:17:05.050] That's what I'm thinking.
+- [01:17:06.250] Firm Handshake. Tell them my name.
+- [01:17:07.780] Firm Handshake. Tell them my name.
+- [01:17:09.430] And I get to the front of the line
+- [01:17:11.260] and Sean Hannity looks at me
+- [01:17:12.770] and he says, "How are you doing?"
+- [01:17:14.980] And I totally panic, and I go, "JD,"
+- [01:17:18.750] because I had rehearsed shaking and saying my name.
+- [01:17:23.180] My point is I admire your guys' courage,
+- [01:17:25.480] and please don't be nervous.
+- [01:17:26.690] If you need to work through a question,
+- [01:17:28.510] think about it, speak it.
+- [01:17:30.110] We're all here to have a nice conversation
+- [01:17:31.990] and we're all supportive of it.
+- [01:17:33.470] Here's the thing, when you talk about forcing,
+- [01:17:35.110] let answer your question, forcing Christianity,
+- [01:17:38.980] forcing people to pray.
+- [01:17:42.890] There's a liberal idea out there that I think is wrong,
+- [01:17:46.020] and that's that liberalism
+- [01:17:48.810] is the source of freedom of religion.
+- [01:17:51.810] And actually, if you go back to the original Founding
+- [01:17:54.410] Documents of the United States of America,
+- [01:17:56.320] if you go back to the Anglo-legal tradition,
+- [01:17:58.900] well before there was ever a United States of America,
+- [01:18:01.380] what you find is that freedom of religion
+- [01:18:04.390] is actually a Christian concept.
+- [01:18:12.950] And the reason it's a Christian concept is very simple.
+- [01:18:17.300] Because Christianity, Imago Dei,
+- [01:18:20.030] the idea that we are all made in the image of our Creator,
+- [01:18:23.370] means that we must respect
+- [01:18:25.130] the free will of every single person.
+- [01:18:27.860] Now, part of that is you have a conversation with people,
+- [01:18:30.460] having free will doesn't mean
+- [01:18:31.780] that you're not allowed to encourage somebody,
+- [01:18:33.720] that you're not allowed to talk to somebody about your faith,
+- [01:18:36.060] that you're not allowed to talk about certain values in school.
+- [01:18:38.790] When our founders talked about freedom of religion,
+- [01:18:41.350] they didn't mean you weren't allowed to say
+- [01:18:43.030] a Christian prayer in a public school
+- [01:18:44.740] or that you weren't allowed to talk about
+- [01:18:46.360] Jesus Christ in a public forum,
+- [01:18:48.670] they just meant that nobody could force you
+- [01:18:52.020] to profess the Christian faith.
+- [01:18:53.810] That had to come from your own free will.
+- [01:18:56.590] And I believe that, and I think every Christian
+- [01:18:58.520] who I've ever spoken to believes that the source of your faith,
+- [01:19:04.900] the Christian understanding, must be your own free will.
+- [01:19:07.920] But here's the thing about Christian values.
+- [01:19:10.440] There are a lot of Christian values out there
+- [01:19:12.280] that I think that we've just sort of assumed
+- [01:19:14.850] and we've, in fact, taken for granted.
+- [01:19:17.100] Christian values are the idea that you should respect
+- [01:19:20.860] every single person as an individual,
+- [01:19:23.700] whatever the color of their skin created in the image of God,
+- [01:19:27.270] that's a Christian concept.
+- [01:19:28.930] And, in fact, it was a Christian Empire,
+- [01:19:31.450] Great Britain, that abolished slavery to begin with.
+- [01:19:34.870] The idea that we should eliminate child sacrifice.
+- [01:19:38.390] What did the Christian settlers find
+- [01:19:40.420] when they came to the new world?
+- [01:19:41.900] They found a lot of civilizations
+- [01:19:43.330] that were murdering babies in weird religious rituals.
+- [01:19:46.460] It was Christianity that said,
+- [01:19:48.880] "We don't kill children just because
+- [01:19:52.420] they're somehow inconvenient to people."
+- [01:19:54.720] A lot of the things -- human rights.
+- [01:19:56.470] The very idea that human beings have rights
+- [01:20:01.280] are a Christian concept.
+- [01:20:02.970] And so, I'd ask you, my assumption,
+- [01:20:04.600] based on the question,
+- [01:20:05.800] is that you're skeptical of Christianity
+- [01:20:08.120] or at least of certain public professions of Christianity.
+- [01:20:11.130] One of my favorite Bible
+- [01:20:12.410] verses is by your fruits, ye shall know them.
+- [01:20:16.880] And I think that the fruits of the Christian faith
+- [01:20:19.970] are the most moral, the most just,
+- [01:20:22.990] and the most prosperous civilization in history.
+- [01:20:25.840] I make no apologies for believing
+- [01:20:28.410] that Christianity is the pathway to God,
+- [01:20:30.720] I make no apologies for thinking that Christian values
+- [01:20:34.060] are an important foundation of this country,
+- [01:20:36.710] but I'm not going to force you to believe in anything,
+- [01:20:38.770] because that's not what God wants
+- [01:20:40.150] and that's not what I want either.
+- [01:20:43.470] Go ahead.
+- [01:20:44.790] Student: The school system, do you agree
+- [01:20:47.130] that there should be Christian implementation
+- [01:20:49.630] or do you think that school system should be neutral
+- [01:20:52.050] and be focused on science, literature, reading,
+- [01:20:54.130] writing, arithmetic?
+- [01:20:55.430] The Vice President: Well, I reject the idea
+- [01:20:56.950] that anything is purely neutral. Okay?
+- [01:21:00.240] There are, for example, let's take a basic scientific fact.
+- [01:21:04.520] And this is a little spicy,
+- [01:21:06.570] I'm not trying to make this too controversial,
+- [01:21:09.200] but take the basic scientific fact
+- [01:21:11.790] of can you take a pill to change your biological gender?
+- [01:21:17.770] Now that's something that 15 years ago,
+- [01:21:19.420] quite literally, every single scientist
+- [01:21:21.230] in the Western world would've said,
+- [01:21:22.660] "Absolutely not. That's crazy." And now people will.
+- [01:21:26.020] I actually, I think the premise of your question,
+- [01:21:28.320] I don't totally share it,
+- [01:21:29.630] because I don't think perfect neutrality is possible.
+- [01:21:32.770] What is (inaudible) -- you talk about history.
+- [01:21:34.960] Was Christopher Columbus a great explorer
+- [01:21:37.540] or was he a guy who committed genocide
+- [01:21:39.590] against the native populations?
+- [01:21:41.250] These debates, I'm happy to have them,
+- [01:21:44.420] but I reject the idea that there are truly neutral debates.
+- [01:21:48.640] Anybody who's telling you their view is neutral,
+- [01:21:51.720] likely has an agenda to sell you.
+- [01:21:53.780] And I'm, at least, honest about the fact
+- [01:21:55.720] that I think the Christian foundation of this country
+- [01:21:57.980] is a good thing. Next.
+- [01:22:00.020] Student: Okay, thank you. Thank you.
+- [01:22:01.380] And for the pill you were talking about,
+- [01:22:03.200] what do you mean specifically?
+- [01:22:04.590] Are you talking about testosterone, estrogen?
+- [01:22:07.490] The Vice President: Yeah, I'm talking about hormone
+- [01:22:08.950] replacement therapy. That's what I'm talking about.
+- [01:22:10.620] Just to be respectful, let's keep it going. Thank you.
+- [01:22:12.620] Student: Yes, thank you. Have a good night.
+- [01:22:14.100] The Vice President: You too.
+- [01:22:18.520] Student: Hello, Mr. Vice President.
+- [01:22:19.770] Thank you so much for giving this opportunity
+- [01:22:21.670] to talk here today.
+- [01:22:23.510] I did not agree with many of the things
+- [01:22:26.110] that you said right ahead of this,
+- [01:22:28.300] but I don't think that's my point to discuss here.
+- [01:22:31.300] What I want to ask is you are married
+- [01:22:34.270] to a woman who is not Christian.
+- [01:22:37.360] In her Wikipedia, I mean, I just looked that up,
+- [01:22:40.520] I wanted to know what her faith was,
+- [01:22:42.290] I didn't know this before,
+- [01:22:43.760] but she still calls herself Hindu.
+- [01:22:47.050] You are raising two kids, three kids,
+- [01:22:50.640] in intercultural, racial, religious household.
+- [01:22:56.500] How are you maintaining, or how are you teaching your kids
+- [01:23:02.050] not to keep your religion ahead of their mother's religion?
+- [01:23:07.030] Or how are you teaching them that your kind,
+- [01:23:10.380] they're Dad kind, who got here just few years
+- [01:23:13.530] or few decades ago, is different or is better,
+- [01:23:18.860] than your mom's kind who got here just a generation before?
+- [01:23:23.560] How are you balancing that?
+- [01:23:25.400] And when you talk about too many immigrants here,
+- [01:23:30.260] when did you guys decide that number?
+- [01:23:32.930] Why did you sell us a dream? You made us spend our youth,
+- [01:23:38.700] our wealth in this country, and gave us a dream.
+- [01:23:42.440] You don't owe us anything. We have worked hard for it.
+- [01:23:45.970] Then how can you, as a vice president,
+- [01:23:48.510] stand there and say that we have too many of them now,
+- [01:23:53.130] and we are going to take them out,
+- [01:23:55.200] to people who are here, rightfully so.
+- [01:23:58.870] By paying the money that you guys asked us,
+- [01:24:02.670] you gave us the path, and now how can you stop it,
+- [01:24:06.470] and tell us we don't belong here anymore?
+- [01:24:08.450] And one more thing.
+- [01:24:09.750] I'm sorry. One more thing. Do you have to be-
+- [01:24:11.130] The Vice President: There's a lot there.
+- [01:24:12.370] I don't know if I'm going to remember all this,
+- [01:24:13.720] but I will try.
+- [01:24:14.960] Student: I'm sorry. I'm sorry.
+- [01:24:16.160] I had to say all of this and please take it with due --
+- [01:24:18.450] I mean, I'm saying all of this with due respect.
+- [01:24:19.790] The Vice President: Of course.
+- [01:24:21.020] No, no, go ahead. Please. Thank you.
+- [01:24:22.290] Student: I have no intention of causing a scene here
+- [01:24:24.470] or anything, but -
+- [01:24:25.800] The Vice President: We're not close to causing a scene.
+- [01:24:27.140] Don't worry.
+- [01:24:28.340] Student: But we talked about Christianity, all of this.
+- [01:24:31.810] I'm not even Christian, and I'm here standing to so support,
+- [01:24:36.620] why are we making Christianity one of the major thing
+- [01:24:41.240] that you have to have in common to be one of you guys,
+- [01:24:44.110] to show that I love America just much as you do?
+- [01:24:47.500] Why is that still a question?
+- [01:24:50.270] Why do I have to be a Christian or-
+- [01:24:52.570] The Vice President: Okay, so there was a lot there,
+- [01:24:55.600] and I'm going to try to respond to as much of it as I can.
+- [01:24:58.510] So on the question of immigration.
+- [01:25:01.420] So first of all, I can believe
+- [01:25:04.300] that we should have lower immigration levels,
+- [01:25:07.430] but if the United States passed a law
+- [01:25:10.180] and made a promise to somebody, the United States,
+- [01:25:13.000] of course, has to honor that promise.
+- [01:25:14.750] Nobody's talking about that.
+- [01:25:16.200] I'm talking about people who came in violation
+- [01:25:19.050] of the laws of the United States of America,
+- [01:25:21.010] and I'm talking about in the future,
+- [01:25:22.800] reducing the number,
+- [01:25:24.690] reducing the number of people -- sorry, what?
+- [01:25:28.850] Student: May I continue on that?
+- [01:25:30.370] Because when you just said you are not stopping
+- [01:25:34.730] with the people who came here legally, right?
+- [01:25:37.690] But you are pushing out policies that hurt us,
+- [01:25:41.040] and these policies are not even solving the problems.
+- [01:25:44.750] These policies are just creating chaos.
+- [01:25:46.830] The Vice President: No ma'am.
+- [01:25:48.060] Okay, so again, I'm going to finish answering the question,
+- [01:25:52.080] and then if I've answered all nine of your questions
+- [01:25:56.410] in less than 15 minutes, then we can keep on going.
+- [01:26:02.580] We got to have a little fun, right?
+- [01:26:05.540] Here's the thing. I can believe that the United States
+- [01:26:10.650] should lower its levels of immigration in the future,
+- [01:26:13.710] while also respecting that there are people
+- [01:26:16.200] who have come here through immigration,
+- [01:26:18.120] lawful immigration pathways that have contributed to the country.
+- [01:26:21.250] But just because one person, or 10 people,
+- [01:26:24.000] or 100 people came in legally
+- [01:26:26.360] and contributed to the United States of America,
+- [01:26:29.040] does that mean that we're there by committed
+- [01:26:31.100] to let in a million or 10 million
+- [01:26:33.580] or 100 million people a year in the future?
+- [01:26:35.640] No, that's not right.
+- [01:26:36.940] We cannot have -- I'll go and finish.
+- [01:26:39.920] We cannot have an immigration policy
+- [01:26:42.300] where what was good for the country 50 or 60 years ago
+- [01:26:45.640] binds the country inevitably for the future.
+- [01:26:48.440] There's too many people who want to come
+- [01:26:49.940] to the United States of America,
+- [01:26:51.530] and my job as vice president is not to look out
+- [01:26:53.910] for the interest of the whole world,
+- [01:26:55.320] it's to look out for the people of the United States.
+- [01:27:05.580] Now, you asked a personal question
+- [01:27:09.320] about our interfaith household,
+- [01:27:11.770] and yes, my wife did not grow up Christian.
+- [01:27:13.760] I think it's fair to say that she grew up in a Hindu family,
+- [01:27:17.080] but not in a particularly religious family
+- [01:27:18.840] in either direction.
+- [01:27:20.050] In fact, when I met my wife, we were both,
+- [01:27:22.150] I would consider myself an agnostic or an atheist,
+- [01:27:24.100] and that's what I think
+- [01:27:25.380] she would have considered herself as well.
+- [01:27:27.940] Everybody has to come to their own arrangement here.
+- [01:27:30.230] The way that we've come to our arrangement is,
+- [01:27:32.400] she's my best friend, we talk to each other about this stuff.
+- [01:27:35.190] So, we've decided to raise our kids Christian,
+- [01:27:38.110] our two oldest kids who go to school,
+- [01:27:39.900] they go to a Christian school.
+- [01:27:41.750] Our eight-year-old did his first communion about a year ago.
+- [01:27:45.080] That's the way that we have come to our arrangement,
+- [01:27:48.410] but thank you.
+- [01:27:52.790] My eight-year-old was also very proud of his first communion.
+- [01:27:54.830] Thank you guys.
+- [01:27:56.060] I'll tell him that Ole Miss wishes him the best.
+- [01:27:58.800] But I think everybody has to have this own conversation
+- [01:28:01.920] when you're in a marriage.
+- [01:28:03.200] I mean, it's true for friends of mine
+- [01:28:05.450] who are in Protestant and Catholic marriages,
+- [01:28:07.980] friends of mine who are in atheists
+- [01:28:10.140] and Christian marriages, you just got to talk to --
+- [01:28:12.830] The only advice I can give is you've just got to talk
+- [01:28:14.830] to the person that God has put you with,
+- [01:28:17.420] and you've got to make those decisions as a family unit.
+- [01:28:20.290] For us, it works out.
+- [01:28:21.560] Now, most Sundays Usha will come with me to church.
+- [01:28:24.170] As I've told her, and I've said publicly
+- [01:28:26.110] and I'll say now in front of 10,000 of my closest friends,
+- [01:28:29.450] do I hope eventually that she is somehow moved by the same thing
+- [01:28:34.010] that I was moved in by church? Yeah. I honestly do wish that.
+- [01:28:38.240] Because I believe in the Christian gospel,
+- [01:28:40.620] and I hope eventually my wife comes to see it the same way.
+- [01:28:43.590] But if she doesn't, then God says,
+- [01:28:46.480] "Everybody has free will."
+- [01:28:47.780] And so, that doesn't cause a problem for me.
+- [01:28:49.920] That's something you work out with your friends,
+- [01:28:52.130] with your family, with the person that you love.
+- [01:28:54.280] Again, one of the most important Christian principles
+- [01:28:57.640] is that you respect free will.
+- [01:28:59.150] Usha is closer to the priest who baptized me than maybe I am.
+- [01:29:02.980] They talk about this stuff.
+- [01:29:04.540] My attitude is, you figure this stuff out as a family,
+- [01:29:08.070] and you trust in God to have a plan
+- [01:29:10.170] and you try to follow it as best as you can.
+- [01:29:12.060] And that's what I try to do.
+- [01:29:13.750] I want to make a final point. I don't want to cut you off.
+- [01:29:19.460] I want to be respectful to all the people behind you in line,
+- [01:29:21.490] but I want to make this point about immigration.
+- [01:29:25.540] If you ask the question,
+- [01:29:26.940] "What is the exact right number of immigrants
+- [01:29:29.660] for the United States to let in?"
+- [01:29:31.510] It is just very specific on the context.
+- [01:29:34.260] If you go back to the 1920s,
+- [01:29:36.750] the United States passed an Immigration Reform Act
+- [01:29:39.230] that effectively cut down immigration
+- [01:29:41.050] to close to zero for 40 years in this country.
+- [01:29:44.140] And what happened over those 40 years?
+- [01:29:46.570] The many, many people,
+- [01:29:48.210] who had come from many different foreign countries
+- [01:29:50.300] and different foreign cultures,
+- [01:29:51.830] they assimilated into American culture.
+- [01:29:54.300] And there was an expectation
+- [01:29:56.050] that they would assimilate into American culture.
+- [01:29:58.170] I think we have two problems in our immigration system today,
+- [01:30:00.870] and my guess is you're probably
+- [01:30:02.520] a slightly more leftist political persuasion,
+- [01:30:04.930] liberal political persuasion. Maybe not. But here's the thing.
+- [01:30:08.080] I remember back in my establishment GOP days
+- [01:30:12.320] when I was still very early getting involved
+- [01:30:14.380] in Republican politics,
+- [01:30:16.060] I remember a conservative think tank person who told me
+- [01:30:21.390] that one of the reasons why immigration was really good is
+- [01:30:24.890] that if you had enough diversity in a country,
+- [01:30:28.500] people would mistrust each other
+- [01:30:30.100] and they wouldn't join labor unions.
+- [01:30:33.370] Okay? So, when I see a lot of left-wing people
+- [01:30:36.530] who theoretically support organized labor saying,
+- [01:30:38.910] "We need to flood the country
+- [01:30:40.420] with a limitless number of immigrants,"
+- [01:30:42.360] they're unwilling to set any limitations on it,
+- [01:30:44.910] my response to that is,
+- [01:30:46.360] you're destroying the very social trust
+- [01:30:49.330] on which American freedom and prosperity was built,
+- [01:30:52.770] and that is really important to me.
+- [01:30:57.060] So, the honest answer to your question, "
+- [01:30:58.690] What is the exact number of immigrants
+- [01:31:00.850] America should accept in the future?"
+- [01:31:02.760] Right now the answer is, far less than we've been accepting.
+- [01:31:06.410] We have got to become a common community again.
+- [01:31:08.780] And you can't do that when you have such high numbers
+- [01:31:11.580] of immigration, which is one of the reasons
+- [01:31:13.370] why we have the immigration policy we do.
+- [01:31:15.600] Thank you. Next.
+- [01:31:24.550] Student: Good evening, Vice President Vance.
+- [01:31:25.920] I just want to say it's an honor
+- [01:31:27.560] to actually be able to talk to you.
+- [01:31:29.090] The Vice President: It's an honor to be here. Thank you.
+- [01:31:30.310] Student: Thank you.
+- [01:31:31.870] One of my biggest questions is I feel
+- [01:31:33.470] like one of the biggest problems that America is facing today
+- [01:31:36.230] is that ever-growing social-political divide,
+- [01:31:38.570] and we're seeing this on the Republican and Democratic side.
+- [01:31:42.490] But we've seen that a refusal to cooperate with the other side
+- [01:31:49.490] has led to some major issues,
+- [01:31:51.560] including right now the government shutdown.
+- [01:31:53.130] And I wonder, as the party empower,
+- [01:31:56.590] what are your plans to address that issue
+- [01:31:59.110] towards reaching that olive branch out to the other side
+- [01:32:03.050] to actually come to an agreement
+- [01:32:05.460] on how to go forward with our government?
+- [01:32:07.610] The Vice President: Look, it is a very good question,
+- [01:32:09.460] and let me just say on the government shutdown
+- [01:32:11.190] in particular.
+- [01:32:12.620] The reality here is that there's a very simple bill
+- [01:32:15.880] that just reopens the government.
+- [01:32:17.170] It does it through pretty much the end of the year.
+- [01:32:19.980] That got every single Republican
+- [01:32:22.010] in The House of Representatives to support it,
+- [01:32:24.040] and then it got 52 Republicans in the Senate
+- [01:32:26.050] and three Democrats in the Senate to support it.
+- [01:32:28.640] But because of weird senate procedural rules,
+- [01:32:31.290] it requires a 60-vote threshold. So, on that issue in particular,
+- [01:32:34.910] when you have every single Republican,
+- [01:32:37.300] with two exceptions in both Houses of Congress,
+- [01:32:40.020] I feel pretty confident. I know that I'm partisan.
+- [01:32:42.190] I know I have an R next to my name,
+- [01:32:43.810] but I feel pretty good
+- [01:32:45.030] saying the shutdown is the Democrat's fault,
+- [01:32:47.320] because we voted again and again to open it.
+- [01:32:55.550] Now, look, there's a broader question there,
+- [01:32:58.160] and I think most Americans,
+- [01:32:59.420] whatever their political persuasion,
+- [01:33:00.680] would actually like the country's political parties
+- [01:33:03.380] to work together better to solve the problems.
+- [01:33:05.710] And look, and I agree with that.
+- [01:33:06.920] And my approach when I was in the United States Senate
+- [01:33:09.270] was to try to find some issues
+- [01:33:11.210] where we could agree with the other side on
+- [01:33:13.500] and try to work with them on it.
+- [01:33:14.870] And let me give you one example.
+- [01:33:18.760] I really worry about concentration
+- [01:33:21.100] in the corporate sector.
+- [01:33:22.420] I worry about big corporate monopolies.
+- [01:33:24.590] I worry that when you have only one or two companies
+- [01:33:27.830] dominating an entire sector,
+- [01:33:29.460] it's bad for liberty and it's bad for prosperity.
+- [01:33:32.170] So, you may be shocked to hear this,
+- [01:33:33.470] but I actually worked with Elizabeth Warren
+- [01:33:35.640] on some anti-monopoly stuff
+- [01:33:37.280] when I was in the United States Senate.
+- [01:33:38.940] But here's the problem.
+- [01:33:40.440] The problem is, there is actually a lot of things
+- [01:33:43.530] where we could work across the aisle.
+- [01:33:45.690] There are a lot of -- President Trump is, in my view,
+- [01:33:50.040] you haven't seen organized labor
+- [01:33:51.800] ever get behind a Republican at least in 100 years
+- [01:33:54.770] like they have behind Donald J. Trump.
+- [01:33:57.140] There are a lot of areas of common ground on that question.
+- [01:34:01.400] The problem is, as reasonable as some of these people
+- [01:34:04.620] can be in private, in public the current obsession
+- [01:34:08.190] of the Democratic Party in leadership,
+- [01:34:10.100] I'm not saying every Democrat in the country.
+- [01:34:12.410] But the current obsession of every Democrat in Congress
+- [01:34:15.010] is, "Get President Trump,
+- [01:34:17.010] fight President Trump, attack President Trump."
+- [01:34:19.560] It is impossible for us to work across the aisle,
+- [01:34:23.090] unless a person is willing to put down their partisan sword,
+- [01:34:27.200] shut the hell up about fake scandals
+- [01:34:30.090] related to Donald Trump and actually work with us.
+- [01:34:32.560] That's the way you make this happen.
+- [01:34:38.590] Next, thank you.
+- [01:34:40.490] Student: Thank you.
+- [01:34:41.800] The Vice President: Next, I want to try to get through
+- [01:34:44.000] as many as possible guys. Thank you.
+- [01:34:47.080] Student: Good evening, Mr. Vice president.
+- [01:34:48.330] The Vice President: Hello.
+- [01:34:49.540] Student: Hi. I actually drove here
+- [01:34:51.720] all the way from Memphis, Tennessee. Go Tigers.
+- [01:34:58.720] I'm sure everyone here is aware of the Memphis Safe Task Force
+- [01:35:02.250] that has been in the city for about a month now,
+- [01:35:05.270] and I checked a little earlier, as of this morning,
+- [01:35:09.500] I believe they've arrested 1,700 people,
+- [01:35:14.300] and seized about 300 illegal guns.
+- [01:35:20.570] I want to ask, how does this law enforcement objective jive
+- [01:35:26.150] with Attorney General Pam Bondi's pledge
+- [01:35:30.320] to make the Department of Justice
+- [01:35:34.790] a more pro-Second Amendment Department of Justice?
+- [01:35:38.840] Because I'm sure most people in here support
+- [01:35:41.090] the Second Amendment,
+- [01:35:42.690] so how can Republicans and this Department of Justice
+- [01:35:49.990] use the current gun laws that are on the books
+- [01:35:52.600] that a lot of pro-Second Amendment advocates disagree
+- [01:35:56.460] with that we wanted to overturn in the Big Beautiful Bill,
+- [01:36:00.170] but we didn't get it?
+- [01:36:01.480] The Vice President: Yeah, so I understand the question,
+- [01:36:03.080] and by the way, I supported some of those changes
+- [01:36:04.750] in the Big Beautiful Bill,
+- [01:36:05.970] I know the President of the United States did too.
+- [01:36:07.420] We didn't have the votes to get them in there,
+- [01:36:09.050] and that's as simple as that.
+- [01:36:10.780] But I know exactly what you're talking about,
+- [01:36:12.430] because there were a couple of issues in particular,
+- [01:36:14.550] I talked to some of my Second Amendment friends.
+- [01:36:16.740] But here's the basic issue.
+- [01:36:18.440] We don't want people who have violated the law,
+- [01:36:22.010] who have committed felonies,
+- [01:36:23.210] the Second Amendment like every other amendment,
+- [01:36:25.160] it's about due process.
+- [01:36:26.750] It's that you don't have your rights violated,
+- [01:36:28.830] unless there is due process of law.
+- [01:36:30.880] If you're a person who's committed four felonies
+- [01:36:32.950] and a court has lawfully ordered that you shouldn't have a gun
+- [01:36:35.930] and you're running around with a firearm,
+- [01:36:38.300] I don't have any problem with law enforcement saying,
+- [01:36:40.610] "You don't get to have that firearm that is illegally
+- [01:36:43.050] possessed, illegally obtained."
+- [01:36:44.930] I think that's basic law and order.
+- [01:36:46.430] Now, again, if you had somebody come in and say,
+- [01:36:52.960] "Well, we don't think that person should have a firearm,
+- [01:36:55.660] but they haven't violated any law,"
+- [01:36:57.240] that's a totally separate question.
+- [01:36:58.570] That's not what we're focused on.
+- [01:36:59.890] What we're focused on is violent crime
+- [01:37:02.300] and people who have violated the bodily autonomy
+- [01:37:06.240] of another human people,
+- [01:37:08.070] a person who has committed an act of violence
+- [01:37:10.590] against one of their fellow citizens.
+- [01:37:12.330] We're going to clean up the streets,
+- [01:37:14.590] get those people off the streets,
+- [01:37:16.150] and make America safe for the American citizens again.
+- [01:37:19.680] That is our entire law and order policy,
+- [01:37:21.460] and I think we're doing a pretty good job at it.
+- [01:37:23.350] Thank you.
+- [01:37:29.930] Student: Thank you for the opportunity to speak.
+- [01:37:32.410] I'm a Christian man,
+- [01:37:33.740] and I'm just confused why there's this notion
+- [01:37:38.020] that we might have owed Israel something,
+- [01:37:42.180] or that they're our greatest ally,
+- [01:37:44.310] or that we have to support this multi
+- [01:37:46.290] $100 billion foreign aid package to Israel to cover this,
+- [01:37:52.090] to quote Charlie Kirk, "Ethnic cleansing in Gaza."
+- [01:37:56.640] I'm just confused why this idea has come around,
+- [01:38:01.590] considering the fact that not only does their religion
+- [01:38:04.790] not agree with ours,
+- [01:38:06.080] but also openly supports the prosecution of ours.
+- [01:38:11.460] The Vice President: Yeah, so let me,
+- [01:38:17.060] let's say things, a few things about this.
+- [01:38:18.570] First of all, when the President of the United States
+- [01:38:20.600] says America first,
+- [01:38:21.830] that means that he pursues the interests of Americans first.
+- [01:38:26.530] That is our entire foreign policy.
+- [01:38:28.360] Now, that doesn't mean that you're not going
+- [01:38:30.650] to have alliances, that you're not going to work
+- [01:38:32.990] with other countries from time to time,
+- [01:38:34.880] and that is what the President believes.
+- [01:38:36.360] Is that Israel, sometimes they have similar interests
+- [01:38:38.540] to the United States,
+- [01:38:39.900] and we're going to work with them in that case,
+- [01:38:42.040] sometimes they don't have similar interests
+- [01:38:43.760] to the United States.
+- [01:38:44.970] This example, the most recent Gaza Peace Plan
+- [01:38:47.930] that all of us have been working on very hard
+- [01:38:49.670] for the past few weeks,
+- [01:38:51.050] the President of the United States
+- [01:38:52.730] could only get that peace deal done
+- [01:38:55.040] by actually being willing
+- [01:38:56.670] to apply leverage to the State of Israel.
+- [01:39:00.000] When people say that Israel is somehow manipulating
+- [01:39:04.550] or controlling the President of the United States,
+- [01:39:07.080] they're not controlling this President of the United States,
+- [01:39:09.590] which is one of the reasons why would it be able
+- [01:39:11.910] to have some of the success that we've had in the Middle East.
+- [01:39:14.250] Now, you ask about sort of Jews disagreeing with Christians
+- [01:39:18.150] on certain religious ideas. Yeah, absolutely.
+- [01:39:20.590] It's one of the realities is that Jews
+- [01:39:22.540] do not believe that Jesus Christ is the Messiah.
+- [01:39:25.370] Obviously, Christians do believe that.
+- [01:39:26.860] There are some significant theological
+- [01:39:28.680] disagreements between Christians and Jews.
+- [01:39:31.190] My attitude is, let's have those conversations.
+- [01:39:34.170] Let's have those disagreements when we have them.
+- [01:39:36.310] But if there are shared areas of interest,
+- [01:39:38.500] we ought to be willing to do that too.
+- [01:39:40.300] For example, I really care about,
+- [01:39:42.830] one thing I really, really care about
+- [01:39:45.280] is the preservation of the Church
+- [01:39:46.800] of the Holy Sepulcher in Jerusalem.
+- [01:39:48.990] Christians believe that that is the site
+- [01:39:51.770] where Jesus Christ was crucified,
+- [01:39:53.990] and also that his tomb is right there as well.
+- [01:39:57.970] My attitude is, if we can work with our friends in Israel
+- [01:40:01.170] to make sure that Christians have safe access to that site,
+- [01:40:04.670] that's an obvious area of common interest, I'm fine with that.
+- [01:40:08.390] What I'm not okay with is any country
+- [01:40:10.630] coming before the interest of American citizens,
+- [01:40:13.290] and it is important for all of us,
+- [01:40:15.750] assuming we're American citizens,
+- [01:40:17.350] to put the interest of our own country first.
+- [01:40:19.100] That's what we're going to do.
+- [01:40:20.480] That's what we try to do every single day, I promise you.
+- [01:40:23.120] Thank you.
+- [01:40:30.260] Student: Hi, Mr. Vice President.
+- [01:40:31.900] I'm the president of our pro-life organization
+- [01:40:34.620] here at Ole Miss, Rebels for Life.
+- [01:40:41.790] And I myself as the president am 100 percent pro-life,
+- [01:40:45.930] and I know you've stated you being Catholic,
+- [01:40:48.590] that in the past you've stated
+- [01:40:50.930] that you're 100 percent pro-life,
+- [01:40:53.090] but since joining the presidential campaign as the VP,
+- [01:40:56.790] you've kind of wavered how you see abortion.
+- [01:41:01.440] I'm just wondering what your stance is right now,
+- [01:41:04.590] and do you think that someone else's right to liberty trumps
+- [01:41:09.140] someone else's right to life?
+- [01:41:11.840] The Vice President: Well, first of all,
+- [01:41:13.620] I appreciate your question and I appreciate the work that you do.
+- [01:41:16.390] You asked the question,
+- [01:41:17.670] "Do I think somebody else's right to liberty
+- [01:41:19.440] trumps somebody else's right to life?"
+- [01:41:21.370] No, I do not. I, in fact, do not believe that.
+- [01:41:24.260] Now, you said, and I'm going to take issue
+- [01:41:25.820] with something you said,
+- [01:41:27.030] just the premise of the question,
+- [01:41:28.310] which is that I've wavered on the pro-life issue.
+- [01:41:31.020] I really do believe that the President has been
+- [01:41:33.140] the most pro-life president in the history
+- [01:41:35.090] of the United States of America.
+- [01:41:36.980] Now, that said, there are two things
+- [01:41:39.990] that I think we have to keep in mind here.
+- [01:41:41.780] Now, one is the very, very hard question of,
+- [01:41:45.550] when we talk about our abortion policy,
+- [01:41:48.020] there are some very, very difficult education.
+- [01:41:50.100] There are cases where you've got an 11-year-old girl,
+- [01:41:53.520] who was raped, who it would be unsafe for her
+- [01:41:55.710] to bring the baby to term.
+- [01:41:57.320] You've got situations where bringing a baby to term
+- [01:42:00.850] would cause serious bodily harm, maybe death for the mother.
+- [01:42:04.430] That's one of the reasons why we believe in the exception
+- [01:42:07.540] in these cases where you have,
+- [01:42:09.750] again, they're edge cases, they're rare.
+- [01:42:11.990] I think the pro-abortion community would have you believe
+- [01:42:14.630] that's 90 percent of abortions.
+- [01:42:16.120] That's not true, but we've got to be honest about the fact
+- [01:42:18.520] that there are some edge cases.
+- [01:42:20.110] The second thing I'd say about this
+- [01:42:21.560] is that we have to be prudential and practical
+- [01:42:24.620] in what can get accomplished.
+- [01:42:26.240] And there may be disagreements about what exactly that is,
+- [01:42:28.690] The Vice President: -- is, but if you look
+- [01:42:30.230] at the pro-life victories
+- [01:42:31.440] that the President of the United States
+- [01:42:32.760] has been able to achieve, he's been able to achieve them
+- [01:42:35.540] because he has worked within the system that we have.
+- [01:42:38.600] If your attitude is, you are going to pursue
+- [01:42:41.910] the most aggressive pro-life option,
+- [01:42:45.260] even if it means you lose every election and every outcome,
+- [01:42:49.830] means that you're going to be in a situation
+- [01:42:52.620] where the Democrats have abortion on demand
+- [01:42:55.090] up to the moment of birth to the very end.
+- [01:42:57.100] You've got to work within the political constraints
+- [01:42:58.810] that we have.
+- [01:43:00.040] Now here, let me just say something about this,
+- [01:43:02.120] and somebody asked me earlier about my Christian values.
+- [01:43:05.450] And one of the points I made
+- [01:43:06.720] is that when the Settlers came to the new world,
+- [01:43:10.150] they found a very widespread child sacrifice.
+- [01:43:13.210] I imagine there are some people who don't agree with my view
+- [01:43:16.340] on the pro-life issue.
+- [01:43:17.600] Let me just make an observation.
+- [01:43:20.060] If you go to historical archeological sites
+- [01:43:24.140] where there were brothels,
+- [01:43:25.790] and the two oldest businesses in the world
+- [01:43:28.020] are gambling and prostitution,
+- [01:43:29.400] so there were brothels even in very ancient civilizations.
+- [01:43:32.840] If you go back to ancient brothels
+- [01:43:35.100] and you dig up the bones of the women
+- [01:43:37.390] who were working in these places,
+- [01:43:39.590] you will very often find a lot of children
+- [01:43:43.570] who were buried with them.
+- [01:43:45.250] And the answer is that whenever a society
+- [01:43:48.550] decides to discard Innocent babies,
+- [01:43:52.770] they also don't treat their women very well.
+- [01:43:55.060] And whenever a society mistreats its women,
+- [01:43:57.730] it is very often the babies who come right after that.
+- [01:44:01.410] There is a reason why Christian civilization
+- [01:44:05.540] ended the practice of child sacrifice all over the world,
+- [01:44:09.800] and it's one of the great accomplishments
+- [01:44:11.670] of Christian civilization.
+- [01:44:13.410] I believe that we should try to be protecting every unborn life.
+- [01:44:18.010] There's a question of exactly how we do it,
+- [01:44:20.400] but I would never say that anyone's right to life
+- [01:44:23.340] should be sacrificed. Thank you, ma'am.
+- [01:44:30.690] Student: First, I just have to say I am thrilled
+- [01:44:32.830] to hear you articulate Christian values on a stage like this,
+- [01:44:35.940] and to remind us that things we take for granted
+- [01:44:38.920] and things we value so much have a Christian origin.
+- [01:44:41.640] So thank you for that, I really mean that. However-
+- [01:44:44.440] The Vice President: So much of liberalism, by the way,
+- [01:44:45.950] so much of the far-left is a sort of,
+- [01:44:49.120] if you really pay attention to it,
+- [01:44:51.060] it's a kind of perverted version of Christianity.
+- [01:44:54.570] There's nothing wrong, of course,
+- [01:44:56.820] with focusing on people who are disenfranchised, for example.
+- [01:45:00.930] That's the focus of liberalism.
+- [01:45:03.130] But if you completely separate it from any religious duty,
+- [01:45:07.210] any civic virtue, then that can actually become,
+- [01:45:09.980] for example, an inducement to lawlessness.
+- [01:45:12.830] You can't just have compassion for the criminal.
+- [01:45:15.270] You also have to have justice too, which is why
+- [01:45:17.490] I think that a properly rooted Christian moral order
+- [01:45:20.850] is such an important part of the future of our country.
+- [01:45:23.390] But sorry, I interrupted you. Go ahead.
+- [01:45:25.310] Student: Amen, absolutely. Now, as much as I hope and pray
+- [01:45:29.880] that we can be a nation of Christians,
+- [01:45:32.940] the idea of a Christian nation scares me.
+- [01:45:35.930] So I'd like to hear your feedback
+- [01:45:37.150] on a pretty nuanced argument here,
+- [01:45:39.560] that perhaps there should be a wall of separation,
+- [01:45:42.940] as at least one of our founders advocated,
+- [01:45:45.130] for between church and state at the national level.
+- [01:45:48.320] However, that line can and should get blurrier
+- [01:45:51.210] as we descend to the community level.
+- [01:45:53.180] And perhaps that is actually the system,
+- [01:45:56.110] the structure that our founders gave us
+- [01:45:58.330] when they said Congress shall make no law
+- [01:46:01.020] establishing a religious body.
+- [01:46:02.490] However, states did have close relationships
+- [01:46:04.310] with churches at that time.
+- [01:46:05.660] The Vice President: Yeah.
+- [01:46:06.860] Student: Do you think that that is a rationale that works?
+- [01:46:08.710] Do you think that that is the way we should implement
+- [01:46:10.800] on the ground, these Christian values?
+- [01:46:12.210] The Vice President: So this is a very nuanced point,
+- [01:46:13.750] and I want to just make sure
+- [01:46:15.160] that everybody's kind of on the same page here.
+- [01:46:16.990] So if you go back to the first Amendment,
+- [01:46:19.100] it doesn't say separation of church and state,
+- [01:46:21.070] it says Congress shall make no law
+- [01:46:23.080] respecting an establishment of religion.
+- [01:46:25.040] But if you go back to the founding time,
+- [01:46:27.230] there were actually a number of states
+- [01:46:29.400] that had formally recognized churches.
+- [01:46:32.110] So there was the Anglican Church of Virginia,
+- [01:46:34.310] that was the official state church of Virginia.
+- [01:46:36.470] Maryland at the time was the only majority Catholic colony
+- [01:46:39.770] or at least had a significant Catholic representation
+- [01:46:41.940] of the original 13 colonies. There's a lot there.
+- [01:46:45.430] And yes, I do think that what happened
+- [01:46:47.180] is the Supreme Court interpreted Congress
+- [01:46:50.360] shall make no law respecting an establishment of religion,
+- [01:46:53.120] to effectively throw the church out of every public space
+- [01:46:56.750] at the federal, state, and local level.
+- [01:46:58.770] I think it was a terrible mistake
+- [01:47:00.030] and we're still paying for the consequences of it today.
+- [01:47:02.670] But if, and I think this is your point,
+- [01:47:05.160] if you were to undo that,
+- [01:47:06.640] if you were to get back to a system
+- [01:47:08.140] actually meant by the founders where Congress
+- [01:47:10.940] is not setting up an established religion,
+- [01:47:13.130] but people in their local communities
+- [01:47:14.690] can kind of do whatever it is that they want to do,
+- [01:47:17.070] I think that would be a better system than what we have today.
+- [01:47:20.280] But I think the most important principle
+- [01:47:22.080] that we have got to remember,
+- [01:47:23.470] is you do not have to completely kick God
+- [01:47:28.880] out of the public square,
+- [01:47:30.170] which is what we've done in modern America.
+- [01:47:32.880] It's not what the founders wanted,
+- [01:47:34.310] it's not good for the United States of America.
+- [01:47:36.470] And anybody who tells you it's required
+- [01:47:37.850] by the Constitution is lying to you.
+- [01:47:40.910] Thank you.
+- [01:47:46.560] Student: Hello, JD. How you doing today, man?
+- [01:47:48.200] The Vice President: Good. How you doing?
+- [01:47:50.430] Student: In the wise words of Ricky Bobby?
+- [01:47:51.950] I don't know what to do with my hands.
+- [01:47:57.560] The Vice President: Don't feel bad.
+- [01:47:58.770] Neither do I, half the time, man.
+- [01:48:01.940] Student: Okay. Okay.
+- [01:48:04.670] First off -- yeah, laugh it up, laugh it up.
+- [01:48:07.200] Okay. First off, I just want to say,
+- [01:48:09.320] I'm a huge supporter of the Trump administration.
+- [01:48:12.730] I was three months too late to vote for you guys,
+- [01:48:15.080] but if I could have, I would have.
+- [01:48:17.650] So I'm huge supporter of you guys before I make my argument,
+- [01:48:20.520] but there is something you guys are doing
+- [01:48:21.920] that is kind of disturbing me a little bit.
+- [01:48:23.630] The Vice President: Okay, go ahead.
+- [01:48:24.830] Student: Thank you.
+- [01:48:27.720] You guys have sent the military into Washington DC
+- [01:48:31.420] and a few other cities
+- [01:48:32.620] that I can't think of off the top of my head,
+- [01:48:34.460] which first off, they've had wonderful results.
+- [01:48:36.520] No one can deny the results of that. It's wonderful.
+- [01:48:40.550] Some might even say the greatest. I'm a comedian.
+- [01:48:46.200] The Vice President: I like this guy.
+- [01:48:47.400] Who is this guy?
+- [01:48:50.490] Student: Thank you, JD. I like you too.
+- [01:48:53.160] The Vice President: Now he's going to ask the question
+- [01:48:54.600] about all the shit that we did wrong,
+- [01:48:55.990] but that's okay, go ahead and ask your question.
+- [01:48:58.100] Student: But yeah, I'm just wondering--
+- [01:48:59.630] Well, it's not necessarily something you did wrong,
+- [01:49:01.460] but it's what could someone else do wrong?
+- [01:49:03.320] Let's say we get a complete tyrant in office,
+- [01:49:05.510] and let's say Turning Point USA is having a huge protest
+- [01:49:10.250] against something really bad that we don't like,
+- [01:49:13.810] and let's say a president
+- [01:49:15.930] is saying that it's getting violent.
+- [01:49:19.620] I'm trying to think. My mind's gone blank.
+- [01:49:23.020] What is the difference between what you're doing,
+- [01:49:25.450] and how could we prevent someone from abusing that power?
+- [01:49:29.430] The Vice President: Yeah.
+- [01:49:30.670] So look, I understand where the question is coming from,
+- [01:49:33.580] and I think it's a fair question.
+- [01:49:35.300] And it's going to sound like I'm being sarcastic,
+- [01:49:37.730] and it really is not meant in any offense,
+- [01:49:42.080] but when you talk about what could another administration do,
+- [01:49:44.860] to take a wild, hypothetical example,
+- [01:49:47.670] totally off the top of my head,
+- [01:49:49.620] what if Joe Biden sent the Federal Bureau of Investigation
+- [01:49:52.470] to start arresting his political opponents? Okay?
+- [01:49:58.080] So here's something that I want conservatives,
+- [01:50:01.710] I want every conservative to remember,
+- [01:50:03.750] it's an important part of my entire political philosophy,
+- [01:50:06.540] is we cannot be afraid to do something
+- [01:50:10.010] because the left might do it in the future.
+- [01:50:12.360] The left is already going to do it,
+- [01:50:13.890] regardless of whether we do it.
+- [01:50:16.000] That is the takeaway of the last 40 years.
+- [01:50:22.580] And in particular, if you look at what we're doing,
+- [01:50:25.460] if Joe Biden wanted to deploy the National Guard
+- [01:50:29.910] to a red state in a place where the murder rate
+- [01:50:33.160] was twice what it is in third world countries,
+- [01:50:36.650] to actually go after murderers,
+- [01:50:38.340] that would be a great use of the National Guard.
+- [01:50:40.590] Unfortunately, I don't think Joe Biden would use it like that.
+- [01:50:42.820] What I'm worried about, frankly,
+- [01:50:44.680] is what the far left already did with American law enforcement,
+- [01:50:48.310] and that is the thing that we have to prevent against.
+- [01:50:50.340] And the answer to that question,
+- [01:50:51.920] is you make sure that people who did it face penalties
+- [01:50:55.710] for using the federal power against American citizens.
+- [01:50:59.060] And by the way, that's exactly what we're trying to do.
+- [01:51:02.080] Thank you.
+- [01:51:03.420] Student: Thank you, JD. Honored to meet you, man.
+- [01:51:05.220] The Vice President: Good to meet you too, man.
+- [01:51:11.390] Student: This will be the last question.
+- [01:51:12.660] The Vice President: Ricky Bobby, 2048,
+- [01:51:13.980] that's who I'm voting for. This is the last--
+- [01:51:21.130] Oh, wow, we've been here over an hour, that's amazing.
+- [01:51:23.340] Okay, I'm sorry,
+- [01:51:24.580] those of you who didn't get to answer a question.
+- [01:51:26.070] I tried to be as quick as I could. Go ahead.
+- [01:51:28.510] Student: Mr. vice president,
+- [01:51:29.750] I'm humbled and honored to be here.
+- [01:51:32.190] Recently, President Trump endorsed a candidate
+- [01:51:34.480] to run against Republican representative Thomas Massie,
+- [01:51:37.690] who has opposed and criticized
+- [01:51:39.070] some of the Trump administration's aims.
+- [01:51:41.510] How would you address those who fear that principal disagreement
+- [01:51:44.380] or independent thinking is discouraged within the party
+- [01:51:47.450] because of how it can be framed as a betrayal,
+- [01:51:50.160] instead of as internal accountability
+- [01:51:52.190] or an opportunity for debate and negotiation?
+- [01:51:55.060] The Vice President: So it's a very good question,
+- [01:51:56.600] and let me say, this one is hard for me.
+- [01:51:58.560] And the reason it's hard for me is because Thomas Massie and I,
+- [01:52:02.680] he's one of the first people that ever reached out to me
+- [01:52:05.220] about my book or about political office.
+- [01:52:06.930] I've known Thomas Massie well before
+- [01:52:08.450] I ever got involved in politics.
+- [01:52:10.620] Thomas' wife died, well, maybe it was a year and a half ago,
+- [01:52:15.600] two years ago, it was a little while ago.
+- [01:52:17.060] She died very unexpectedly, was a very sweet and kind woman,
+- [01:52:20.710] and I was probably one of the first people
+- [01:52:22.560] that called Thomas to offer my condolences.
+- [01:52:25.230] I think the problem with Thomas,
+- [01:52:27.140] and I've told him this in private,
+- [01:52:28.580] and now I guess I'll say it in public,
+- [01:52:30.430] is it's one thing to disagree with the party
+- [01:52:33.300] on a particular issue.
+- [01:52:34.890] It's one thing to have your independent stand
+- [01:52:38.150] on a number of questions.
+- [01:52:39.390] And by the way, some of the stuff
+- [01:52:40.620] where Thomas Massie has been independent
+- [01:52:42.790] against the Republican Party, I've agreed with him with.
+- [01:52:45.570] Thomas and I worked together during 2023
+- [01:52:49.130] where I was trying to stop the limitless
+- [01:52:51.110] flow of American money to Ukraine,
+- [01:52:53.630] and Thomas was one of the people I was working closest with it.
+- [01:52:56.990] But that's one thing.
+- [01:52:58.750] Being independent, having your own opinions is one thing.
+- [01:53:02.180] Voting against the party on every single issue,
+- [01:53:06.190] you're eventually going to make too many enemies.
+- [01:53:08.300] And that is the problem that Thomas has had.
+- [01:53:10.570] It's not one issue, it's not three or four issues.
+- [01:53:13.290] It's that every time that we've needed Thomas for a vote,
+- [01:53:16.270] he has been completely unwilling to provide it.
+- [01:53:18.560] That is why the President of the United States
+- [01:53:21.340] has trained his ire on Thomas Massie.
+- [01:53:23.480] It's because we can never count on him
+- [01:53:25.670] for some of the most difficult votes.
+- [01:53:27.490] I wish that that weren't the case.
+- [01:53:29.270] I say that as somebody who's known Thomas well
+- [01:53:31.080] before I got into politics, but politics is politics.
+- [01:53:34.390] And when you always vote against the party,
+- [01:53:37.200] you can't expect the party to actually back you.
+- [01:53:39.900] That's the reality.
+- [01:53:42.790] So let me say just a couple of final things
+- [01:53:49.370] before I hit the road here.
+- [01:53:51.000] And one, it has been such an amazing honor
+- [01:53:52.940] to be with all of you this evening.
+- [01:53:55.120] I want to say two things.
+- [01:54:05.300] I want to say two things.
+- [01:54:06.510] Number one, when I was back in my agnostic days
+- [01:54:10.560] and I was thinking about returning to my faith,
+- [01:54:13.990] I remember talking to a friend of mine
+- [01:54:17.030] and actually talking about a number of things.
+- [01:54:19.730] And he said something to that was really interesting,
+- [01:54:22.370] and I was talking about all the things that were going wrong.
+- [01:54:24.930] I was looking to the future,
+- [01:54:26.340] I was talking about everything that was broken in the world.
+- [01:54:29.780] And I said to him, I said,
+- [01:54:32.800] "Things are just really, really dark."
+- [01:54:35.310] And he said, and he stopped me in my tracks,
+- [01:54:37.160] he said, "JD, you're right.
+- [01:54:38.610] There are a lot of things that are really dark out there,
+- [01:54:40.350] but despair is a sin."
+- [01:54:43.430] Now, I know not all of you are Christians,
+- [01:54:44.970] but for the Christians out there,
+- [01:54:46.250] I think that it is very important to remember
+- [01:54:48.010] that despair is actually a sin.
+- [01:54:50.790] It's okay to disagree, it's okay to criticize,
+- [01:54:54.070] it's okay to think that things aren't going well
+- [01:54:56.770] with a particular issue,
+- [01:54:58.330] but we are called to never give up hope.
+- [01:55:01.310] But I think one of the critical lessons of Charlie Kirk's life,
+- [01:55:04.220] to his dying breath,
+- [01:55:05.880] this was a man who never lost hope in his creator
+- [01:55:09.900] and never lost hope in the United States of America.
+- [01:55:12.510] So let's remember that and carry that forward
+- [01:55:15.080] as a way to remember him.
+- [01:55:23.610] And the second thing that I want to say
+- [01:55:25.440] is in line with despair being a sin.
+- [01:55:28.210] Look, I can tell most of you apparently agree
+- [01:55:32.140] with a lot of what I said.
+- [01:55:33.440] I'm sure that a lot of you disagree
+- [01:55:35.230] with some of the things that I've said.
+- [01:55:36.970] That's okay. We don't need in our political movement,
+- [01:55:41.020] people who agree with us on every single issue.
+- [01:55:43.030] We got a couple of questions about Israel,
+- [01:55:44.630] we got a couple of questions
+- [01:55:45.890] about the National Guard deployments.
+- [01:55:47.420] We don't need somebody who agrees with us
+- [01:55:50.210] on every single question or every single issue.
+- [01:55:53.140] What we need is people of good faith
+- [01:55:56.260] who love the United States of America
+- [01:55:58.470] and are willing to work hard to save it.
+- [01:56:01.040] So when you look at all the accomplishments,
+- [01:56:04.100] you look at the accomplishments of the last nine months,
+- [01:56:06.890] we inherited the worst border crisis
+- [01:56:08.660] in the history of the United States of America,
+- [01:56:11.010] we shut down the border,
+- [01:56:12.690] and net immigration is two and a half million lower today
+- [01:56:16.230] than it was in nine months.
+- [01:56:17.620] That means the total number of people that have been sent
+- [01:56:20.630] out of this country is two and a half million.
+- [01:56:24.110] We have two and a half million fewer illegal immigrants
+- [01:56:26.900] than we had. That's a great accomplishment.
+- [01:56:35.040] We inherited a terrible affordability crisis
+- [01:56:37.480] from Joe Biden,
+- [01:56:38.740] and I'm not going to tell you everything's perfect
+- [01:56:40.550] because it was a real bad situation that we inherited,
+- [01:56:43.360] but inflation is consistently below economists' expectations,
+- [01:56:47.660] and we are chipping away at it every single day.
+- [01:56:50.450] We inherited an economy where we had the largest trade deficit
+- [01:56:54.470] in the history of the United States of America.
+- [01:56:57.120] In nine months, Donald Trump's tariff policies
+- [01:57:00.140] have cut the American trade deficit by over half.
+- [01:57:03.830] That means we're making more of our own stuff
+- [01:57:06.020] and we're actually employing American workers to do it.
+- [01:57:11.840] And all that is to say that very often Charlie Kirk would call me
+- [01:57:16.390] and he would say, not "Attaboy,"
+- [01:57:18.600] but he would say, "Do more, do more, do more."
+- [01:57:22.060] And I listened to Charlie because he was a dear friend
+- [01:57:24.370] and because I knew that he loved this country.
+- [01:57:26.450] My point is, the best way in your life
+- [01:57:30.030] to honor Charlie Kirk's legacy, it's not to despair,
+- [01:57:33.540] but to hope in the future of this country.
+- [01:57:35.520] If you disagree with something,
+- [01:57:37.480] then get involved in the movement to save this country.
+- [01:57:40.810] If you think that we could be doing more,
+- [01:57:42.970] then pick up the phone
+- [01:57:44.350] and get involved in the effort to change our minds
+- [01:57:47.280] and change the future of the United States of America
+- [01:57:50.450] in the process.
+- [01:57:51.690] My friends, the Rebels of Ole Miss,
+- [01:57:54.130] despair is a sin, do not give into despair,
+- [01:57:57.020] let's keep fighting to save the United States of America.
+- [01:57:59.460] Thank you and God bless you.
+- [01:58:01.060] (cheers and applause)
+- [01:58:04.375] ♪ (rock music playing) ♪

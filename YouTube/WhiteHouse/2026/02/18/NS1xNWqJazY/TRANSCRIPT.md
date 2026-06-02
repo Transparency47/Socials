@@ -1,0 +1,1000 @@
+<!-- source: https://www.youtube.com/watch?v=NS1xNWqJazY -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: NS1xNWqJazY -->
+<!-- date_published: 2026-02-18T21:03:31+00:00 -->
+<!-- date_accessed: 2026-06-02T02:37:48.594568+00:00 -->
+
+# Transcript: President Trump Participates in a Black History Month Reception
+
+- [00:11.450] Announcer: Ladies and gentlemen,
+- [00:12.700] the President of the United States,
+- [00:14.430] Donald J. Trump.
+- [00:17.130] ♪ (Hail to the Chief) ♪
+- [00:37.760] The President: This is a nice, full room.
+- [00:39.250] You know, we have a --
+- [00:40.480] we have a ballroom being built right now.
+- [00:44.040] So in about a year and a half, we'll be able to have about,
+- [00:48.570] I'd say, 10 times the number.
+- [00:51.620] You can invite some friends that couldn't make it today
+- [00:54.110] because, frankly, this was a sold out crowd,
+- [00:56.980] has been ever since I've been President.
+- [00:59.560] Every year it's been sold out.
+- [01:01.850] So a lot -- a lot of great friends.
+- [01:03.460] This is your knockout panel, OK, for those that are interested.
+- [01:06.140] See that curtain?
+- [01:07.390] You open that curtain and it's a beautiful funnel
+- [01:10.420] right into the most beautiful ballroom.
+- [01:12.120] It's being built right now.
+- [01:13.770] So it's pretty -- and they've wanted it for 150 years.
+- [01:17.320] We're getting it done a lot --
+- [01:18.520] we're getting a lot of other things done too.
+- [01:21.170] Well, I want to thank you all and welcome you
+- [01:22.980] to the White House on this very special occasion.
+- [01:25.490] It is indeed. I've been at every one of them
+- [01:27.170] and we celebrate the 100th anniversary
+- [01:30.400] of Black History Month. That's a big deal, 100th.
+- [01:36.940] Wow. That's sort of special.
+- [01:39.870] The 100th. That's about -- like, 150 is good,
+- [01:44.590] but 200 is better, right? 100 is better.
+- [01:48.170] I want to begin by expressing our sadness
+- [01:50.950] at the passing of a person who I knew very well.
+- [01:54.950] Jesse was a piece of work, I want to tell you.
+- [01:57.710] He was a piece of work, but he was a good man.
+- [02:01.130] He was a real --
+- [02:02.490] He was a real hero and I just want to pay
+- [02:06.000] my highest respects to Reverend Jesse Jackson.
+- [02:09.000] Right? He's a good man. He was actually --
+- [02:12.660] as you got to know him, he got better and better all the time.
+- [02:14.580] A lot of (inaudible)
+- [02:15.820] a lot of people, you get to know them,
+- [02:17.120] they get worse and worse. Jesse got better and better.
+- [02:21.390] But I knew him well, long before becoming president
+- [02:24.090] and he really was special, with lots of personality,
+- [02:27.050] grit and street smarts.
+- [02:28.310] You would say Jesse had serious street smarts,
+- [02:31.390] right, a very important ingredient to life,
+- [02:33.660] I will tell you.
+- [02:35.000] He was gregarious and someone who truly loved people
+- [02:38.900] and a force of nature.
+- [02:40.200] He was somebody that we're going to greatly miss.
+- [02:43.150] And on behalf of everyone here today,
+- [02:45.100] I know you join me in sending our condolences
+- [02:48.050] to the entire family.
+- [02:49.930] Got a great family.
+- [02:51.990] We're also honored to be joined this afternoon
+- [02:54.390] by many exceptional African American leaders and patriots,
+- [02:57.480] including Secretary Scott Turner,
+- [03:00.350] recommended -- where is Scott?
+- [03:02.950] Where is Scott? Will you come up here, Scott?
+- [03:06.410] He was recommended by somebody who's very special to me,
+- [03:09.260] Ben Carson.
+- [03:10.490] Ben Carson. Where is Ben? Where is Ben?
+- [03:16.510] Is Ben -- come on up here, Ben.
+- [03:17.960] Come here. I got to get here. And his wonderful wife, Candy.
+- [03:22.150] Candy, I'm going to steal Ben for a second
+- [03:23.770] because, you know, Ben -- Ben recommended Scott.
+- [03:28.300] And when Ben recommends somebody, I just do it.
+- [03:31.100] Did I make a good decision? Be careful.
+- [03:32.880] Don't fall, Ben. If you fall, that's the end.
+- [03:36.170] It's never -- you can never recover from a fall.
+- [03:38.580] You know, if you make --
+- [03:39.800] you can make the greatest speech ever,
+- [03:41.220] but if you fall -- my predecessor taught me that.
+- [03:47.840] So is Scott doing a good job, Ben?
+- [03:50.150] He's doing the best job ever.
+- [03:51.920] Come on, say that. I like that.
+- [03:54.580] Ben Carson: You know, one of the reasons
+- [03:56.160] I was so high on Scott Turner
+- [03:58.590] is he was really the driving force
+- [04:00.830] behind the opportunity zones, which was --
+- [04:06.450] Which doesn't get nearly the attention that it should.
+- [04:10.550] But it was because President Trump realized
+- [04:13.890] that the best way to get things done
+- [04:16.090] is through public private partnerships,
+- [04:19.860] and have everybody with skin in the game.
+- [04:22.560] And it is working,
+- [04:24.080] as are all the other things that he's been recommending.
+- [04:27.210] And at some point --
+- [04:28.840] at some point the mainstream media
+- [04:31.620] will recognize that you don't politicize everything.
+- [04:35.700] You open your eyes and your ears,
+- [04:37.560] and you look and you see what works and you deal with that.
+- [04:41.920] But the best thing about Scott, he's got a lot of energy.
+- [04:46.530] You know, I'm an old man now, I'll be 75 on my next birthday
+- [04:51.120] And I'm not like President
+- [04:55.030] Trump, he just goes forever, but --
+- [04:57.560] The President: You're doing okay.
+- [04:59.380] You're doing good.
+- [05:01.610] Ben Carson: No one else is like that.
+- [05:03.110] But Scott Turner, we call him the Energizer Bunny,
+- [05:06.110] and he is doing a fantastic job.
+- [05:08.410] And I want to congratulate all the people at HUD
+- [05:10.210] because most of them have come back and continued
+- [05:13.090] with what we're doing during the first Trump term
+- [05:15.600] and it's fantastic. Thank you very much.
+- [05:18.290] The President: Scott, please.
+- [05:23.400] Scott Turner: Well, just very briefly.
+- [05:24.720] Thank you, Mr. President, we are so grateful for your leadership
+- [05:29.760] and for your heart for America.
+- [05:32.250] And Dr. Carson, who is a tremendous just leader,
+- [05:37.570] servant leader and been a great mentor to me.
+- [05:41.420] And you know, I never thought that I would see the day
+- [05:43.610] where I'm standing between the president and Dr. Ben Carson.
+- [05:50.300] That's pretty cool, yeah.
+- [05:52.290] The President: He's more important.
+- [05:53.530] Scott Turner: And so, I just want to say
+- [05:56.150] to everyone that's here, as we celebrate this special day
+- [05:59.150] and not only black history, but American history,
+- [06:03.670] this year that we've been here under President Trump,
+- [06:07.380] the Lord has been so gracious to us,
+- [06:09.860] and he's been faithful.
+- [06:11.140] And the president has been a tremendous leader
+- [06:13.850] in his work ethic, his heart for people.
+- [06:16.280] And when he says America first,
+- [06:17.670] he really does mean America first, yeah.
+- [06:22.160] And so -- and to be able to stand
+- [06:24.710] on the shoulders of Dr. Ben Carson
+- [06:27.020] and for the president to trust Dr. Carson at his word
+- [06:30.480] is truly humbling for me.
+- [06:32.140] And so, to stand now as the servant leader
+- [06:34.110] and the Secretary of HUD, I'm grateful to the Lord.
+- [06:36.710] I'm grateful to the president and Dr. Carson.
+- [06:39.020] And I promise you we will continue to do good work
+- [06:41.960] and to make not just housing affordable
+- [06:44.890] and everybody achieve the American dream,
+- [06:46.430] but really to bring transformation,
+- [06:48.850] and so that those that are in our country
+- [06:51.100] who depend on subsidies
+- [06:52.890] and this that and the other will get off of that
+- [06:54.510] and live a life of self-sustainability.
+- [06:56.530] So, God bless you all.
+- [07:03.120] The President: Thank you.
+- [07:04.460] And Ben mentioned opportunity zones, we did that.
+- [07:07.860] And I want to thank Tim Scott because he really --
+- [07:10.770] it was his baby, that was his baby
+- [07:14.400] and he did a great job with it. We appreciate it.
+- [07:16.670] And again, Candy, thank you very much for being here.
+- [07:19.270] Special woman.
+- [07:21.140] Ben's getting the Presidential Medal of Freedom.
+- [07:24.260] That's the biggest -- that's the biggest --
+- [07:28.630] it's the highest award you can have outside
+- [07:30.560] of the Congressional Medal of Honor.
+- [07:33.180] But it's better because, you know,
+- [07:34.550] a lot of people get the Congressional Medal of Honor,
+- [07:36.700] they're not around.
+- [07:38.140] When you get them, they're not around, they've got --
+- [07:40.280] whereas we don't have to go that far, generally speaking.
+- [07:44.110] But it's the highest award -- civilian --
+- [07:47.730] and then you have the matching
+- [07:49.100] is the Congressional Medal of Honor, both tremendous.
+- [07:51.740] So, Ben, I'll be seeing you back here pretty soon,
+- [07:54.110] I think, and you're going to get the award,
+- [07:55.540] you'll probably fill up this room.
+- [07:57.620] I said we'll do it in the Oval Office.
+- [07:59.120] He said, sir, it's not big enough.
+- [08:00.540] I said what. So, we're going to do it right here, okay?
+- [08:05.870] And we love it.
+- [08:09.400] I'd like to also thank senior counsel
+- [08:11.750] to the assistant attorney general.
+- [08:14.950] He's a fantastic man.
+- [08:16.800] He's been my friend for a long time, Leo Terrell.
+- [08:20.340] there's no better. We have time, right?
+- [08:24.150] Do we have time? Yes. Anybody have to go,
+- [08:26.630] like come on up here, Leo, get up here.
+- [08:28.570] This guy, he says it like it is.
+- [08:31.040] I like Leo. Come here.
+- [08:37.200] Leo 2.0.
+- [08:38.430] Leo Terrell: Let me just --
+- [08:40.450] thank you very much, Mr. President.
+- [08:42.000] First of all, we are living under the administration
+- [08:46.220] of the greatest president in our lifetime.
+- [08:50.370] And we have the hottest country in our lifetime.
+- [08:55.230] And I want to make sure the mainstream media
+- [08:56.940] knows this because you represent the people
+- [09:00.560] who basically counter what the mainstream media has done.
+- [09:05.290] President Trump was the president who fully funded
+- [09:09.700] historically black colleges and universities.
+- [09:13.220] President Trump took the lead
+- [09:16.220] and performed criminal justice reform.
+- [09:19.100] President Trump made sure that we had opportunity zones.
+- [09:24.640] Let me close by saying this. This country is at a crossroads,
+- [09:30.270] and we have the right president at the right time.
+- [09:33.470] And if you want school choice, like I know you do,
+- [09:36.530] President Trump wants it.
+- [09:38.930] If you want a law-and-order society and secure border,
+- [09:43.010] President Trump wants that.
+- [09:45.660] And more importantly, I say this
+- [09:48.500] because this is the greatest country on the planet.
+- [09:51.680] American citizens should decide American elections.
+- [09:55.900] Vote for the SAVE Act.
+- [10:01.700] The President: Thank you. Leo 2.0, we know Leo.
+- [10:06.230] Thank you, Leo. That was very good.
+- [10:10.350] Yeah, four more years.
+- [10:13.070] (Audience chants "Four more
+- [10:19.030] years")
+- [10:20.530] The President: Anyway. So, he's a special guy.
+- [10:23.870] I watched him on Sean Hannity a long time ago.
+- [10:26.600] He used to be a Democrat, you know.
+- [10:27.950] Leo was a Democrat. That's a long time ago, right?
+- [10:31.350] Can you imagine you were a Democrat?
+- [10:33.670] I can't imagine it.
+- [10:34.930] Leo Terrell: I'm a Trump supporter.
+- [10:36.140] The President: You'd see him with Leo 2.0
+- [10:38.040] up on the hat. We love him. He's a great man, actually.
+- [10:41.570] General Counsel for the Department of War,
+- [10:44.910] Earl Matthews. That's a big deal.
+- [10:46.420] Thank you, Earl. Thank you very much.
+- [10:49.510] I see Johnny over there with a great book.
+- [10:51.970] How's the book doing? Good?
+- [10:53.990] What a great person you are, great book.
+- [10:57.340] White House pardons czar. This is a big job.
+- [11:01.200] This is a big job. Alice Johnson.
+- [11:04.070] Alice, where's Alice? What a sweetheart?
+- [11:11.180] I met Alice and she was incarcerated
+- [11:15.370] for what some people would say today
+- [11:18.630] is not even a fine, right, Alice? It's not even a fine.
+- [11:22.870] And I said how long has she been in jail?
+- [11:25.180] 22 years? I said 22 years, is that right, Alice?
+- [11:31.030] And come on up here, Alice. Come on up.
+- [11:38.340] I said 22 years and she was on a phone call.
+- [11:41.380] This was over a phone call.
+- [11:43.000] I know about fake phone calls too, Alice.
+- [11:44.840] You know, remember, they tried to get me on a fake phone call.
+- [11:48.590] But Alice was in jail for like 22 years.
+- [11:50.810] I said how many years does she have left?
+- [11:53.240] 28. I said 28 years left.
+- [11:56.890] And I said, and I mean,
+- [11:58.860] she admitted she made a little mistake,
+- [12:00.200] but it was not the kind of a mistake
+- [12:02.540] that you serve 50 years in jail for,
+- [12:04.930] like maybe a couple of months, maybe less than that.
+- [12:09.000] And I said this is the most unfair.
+- [12:10.680] And then when I met her, I fell in love.
+- [12:14.930] My wife was very upset with it.
+- [12:17.660] Our great First Lady did not like that, Scott.
+- [12:20.760] We didn't -- She didn't like it,
+- [12:22.090] but Alice is great and say a couple of words.
+- [12:24.300] It was so ridiculous, 22 years, she had 28 left.
+- [12:28.030] And I said, let's get her the hell out and we got her out,
+- [12:31.210] we did a commute and then when I got to know her,
+- [12:33.640] she was so high quality. I said full pardon.
+- [12:36.300] So, she's cleaner than anybody in this room,
+- [12:40.060] even than my friend right here.
+- [12:41.940] She's cleaner -- because of that she's cleaner
+- [12:45.050] than anybody in this room.
+- [12:48.570] Alice Marie Johnson: Thank you, Mr. President.
+- [12:50.500] The feeling was mutual.
+- [12:53.170] I fell in love with this man, with his heart --
+- [12:56.480] with his heart for this country,
+- [12:59.200] with his heart to really bring America back
+- [13:03.230] to the former greatness that it deserved
+- [13:05.650] and that's exactly what he has done.
+- [13:08.130] My story is truly a Joseph story.
+- [13:11.790] This president right here, President Donald Trump,
+- [13:15.250] brought me from the prison pit to the White House.
+- [13:22.030] Only in America could there be a story like my story.
+- [13:27.340] And President Trump is the only president
+- [13:31.810] who would have had the courage,
+- [13:33.910] the courage to bring someone like me,
+- [13:36.950] someone who received a second chance,
+- [13:39.940] but who knows more than someone who has sat among the captives
+- [13:45.270] than someone who has been in captivity themselves.
+- [13:48.380] I did not get comfortable in my own freedom,
+- [13:51.400] but I went back, as Harriet Tubman said she did.
+- [13:55.220] She went back to draw many others into freedom.
+- [13:59.050] And President Trump has listened to those recommendations.
+- [14:03.530] There's so much more to come because, when you see me,
+- [14:08.080] you see a miracle, you see hope, you see second chances
+- [14:13.070] and you see someone who is willing to roll up their sleeves
+- [14:16.880] and do the work,
+- [14:18.230] do the hard work to help individuals gain their freedom.
+- [14:22.060] President Trump did something historic in his first term.
+- [14:26.100] He signed the First Step Act into law, and for that --
+- [14:31.760] over, over 40,000, and that number is low.
+- [14:36.660] Over 40,000 individuals have come home
+- [14:39.710] to their families early. And you know, many, many,
+- [14:42.860] many of those were Black Americans who had no hope.
+- [14:47.230] This president right here, as you look out upon this sea
+- [14:52.280] of Black Americans, this president hears you.
+- [14:57.120] This president cares for you.
+- [14:59.380] Don't let anyone tell you that this president right here,
+- [15:03.360] Donald Trump, has not -- is not for Black America,
+- [15:08.250] because he is. I'm standing here today --
+- [15:11.880] I'm standing here today as a testament,
+- [15:14.570] as a testament to how he feels about Black Americans.
+- [15:19.490] There has never been a position like this.
+- [15:22.740] I don't know if there ever will be before,
+- [15:25.460] but I worked with him in his first term
+- [15:28.050] and I'm proud to now
+- [15:29.670] officially have the title to make it happen.
+- [15:34.090] Let's get -- let's get real with the realness.
+- [15:38.310] Let's get behind President Trump,
+- [15:41.180] who truly has turned our nation around
+- [15:43.900] and made us the envy of every country in the world.
+- [15:49.760] Thank you, Mr. President, and thank you God
+- [15:53.570] for recognizing and raising up this man
+- [15:56.580] to be the leader of the free world.
+- [15:58.740] I love you.
+- [16:01.620] The President: Thank you. Thank you very much, beautiful.
+- [16:04.740] Great woman.
+- [16:06.500] You know, when I was looking for a pardon person,
+- [16:08.770] like a pardon czar
+- [16:11.520] they gave me somebody from Harvard,
+- [16:13.630] somebody from Yale, somebody from Princeton,
+- [16:15.740] somebody from Penn, somebody from Stanford.
+- [16:19.930] And I said, do you know anything about it?
+- [16:21.870] Well, we can learn.
+- [16:23.150] You know, they can learn.
+- [16:25.300] And when I met Alice, I said, she's better than these people.
+- [16:30.820] And she's done a fantastic job.
+- [16:32.330] You know, I said to Alice, I said,
+- [16:33.660] so I'm looking for people like you to let out.
+- [16:37.010] How many people are there like you.
+- [16:38.430] She said, many. I said, many? In jail.
+- [16:41.730] Think of it, 22 years she was in jail
+- [16:43.840] and she had 28 years to go, on a phone call.
+- [16:47.250] You admit you did a little something wrong, right?
+- [16:49.880] But it was like, OK. It wasn't -- it wasn't 50 years.
+- [16:55.330] Even if you said six months.
+- [16:57.860] Today, it would be probably nothing,
+- [17:00.200] but even if you said some little time.
+- [17:03.130] But I said, I'm looking for other people like you,
+- [17:05.320] how many are there, many.
+- [17:07.140] Then I was worried because I -- then I was worried.
+- [17:09.470] I said, well, maybe she's going to say everybody
+- [17:11.590] should be let out
+- [17:12.870] and we're not a believer in that.
+- [17:15.110] I said, so Alice, are there people that shouldn't be --
+- [17:17.510] you met a lot of people, right?
+- [17:19.360] Are they people that shouldn't be let out, absolutely.
+- [17:22.090] Then I felt better.
+- [17:23.910] Because there are some bad ones in there too, right?
+- [17:26.700] But you are fantastic, and you've been great
+- [17:29.030] and so respected all over the --
+- [17:30.630] all over the country, all over the world, in a sense.
+- [17:32.630] It's become -- you've become a very big story.
+- [17:35.230] Thank you very much, Alice. I appreciate it.
+- [17:38.870] And we have Lynn Paton. Lynn, thank you.
+- [17:40.880] You've been such a help. And Kelly Mitchell.
+- [17:46.010] Thank you, Kelly. Thank you.
+- [17:48.390] Where is Kelly? Thank you, Kelly.
+- [17:51.710] And we have, oh, oh, oh, Dr. Alveda King.
+- [17:58.360] Thank you, darling. Thank you.
+- [18:00.930] You've been with me from day one, right?
+- [18:03.560] From day one, she's been there.
+- [18:05.220] She's been fighting for me and I fight for her.
+- [18:08.050] I don't have to do too much fighting for her.
+- [18:09.600] She takes care of herself. Thank you.
+- [18:11.100] Alveda King: And we can say Merry Christmas.
+- [18:12.570] The President: Ah, thank you.
+- [18:13.860] We can say Merry Christmas is right. Thank you.
+- [18:16.340] Thank you for all that support for years, for years, right,
+- [18:19.510] even before Alice, a long time. Years before Alice, right?
+- [18:21.920] Alveda King: Yes, sir.
+- [18:23.160] The President: Thank you, darling.
+- [18:24.570] Corrin Rankin. Thank you very much.
+- [18:27.510] Thank you very much. Thank you, Corrin.
+- [18:30.980] And Deonte Johnson. Thank you.
+- [18:37.690] And a man who's been with me for a long time
+- [18:40.120] and he's never asked me for a thing,
+- [18:42.080] Bruce, thank you very much.
+- [18:44.250] Bruce Lavelle. Thank you very much.
+- [18:48.810] I wasn't sure if they had your name down here, Bruce.
+- [18:50.660] I was going to mention you anyway, OK?
+- [18:52.220] But they had your name. They did a job finally.
+- [18:55.390] They always leave a lot of names out and that bothers me.
+- [18:58.750] Like I see Scott Bessent.
+- [19:00.130] His name was left out, first time ever.
+- [19:01.960] Look at Scott. I'm looking for his name.
+- [19:06.000] I'm looking for his name. I said, I better --
+- [19:08.300] he's the greatest Treasury secretary we've ever had.
+- [19:11.720] I think he's -- how's the economy doing, Scott, good?
+- [19:13.950] Scott Bessent: It's doing great, sir.
+- [19:15.190] The President: The best.
+- [19:16.420] It's really -- people are going to see.
+- [19:18.280] And watch the State of the Union.
+- [19:19.990] We're going to be talking about the economy.
+- [19:22.030] We inherited a mess and now we have prices way down.
+- [19:25.670] We have energy way down.
+- [19:27.500] Gasoline is now breaking $2 a gallon in many places
+- [19:31.520] and it's been actually amazing. But Scott's fantastic.
+- [19:34.810] I don't want to forget to mention him.
+- [19:36.240] I'd be in big trouble.
+- [19:37.450] All of a sudden, the economy would turn bad on us.
+- [19:39.570] I'd say -- I'd say, what happened?
+- [19:41.280] It was Scott. Thank you, Scott.
+- [19:43.800] And Secretary Lori Chavez-DeRemer.
+- [19:47.480] Lori, thank you very much. She is Secretary of Labor.
+- [19:52.750] Assistant Attorney General Harmeet Dhillon.
+- [19:56.010] How are you doing -- how are you doing with Harvard?
+- [19:58.580] How are you doing with Harvard?
+- [20:00.480] You know, Harvard is extremely discriminatory,
+- [20:02.680] unfortunately, and it's working good.
+- [20:05.790] Harmeet is on their trail, right?
+- [20:07.260] Harmeet Dhillon: (inaudible)
+- [20:08.460] The President: Good, good. You keep suing them.
+- [20:10.180] To hell with them.
+- [20:13.440] I like the historically Black colleges and universities,
+- [20:20.080] which I -- which I saved.
+- [20:24.220] Leo 2.0 said it, but which I saved.
+- [20:27.750] We saved them.
+- [20:28.970] They had no funding and every year they'd come back
+- [20:32.670] and I got to know some of the heads.
+- [20:34.100] And every year, they come back and after my third year,
+- [20:36.050] first term, I said, you guys keep coming back.
+- [20:38.460] Why do you keep coming back?
+- [20:40.030] Said, we have to come back every year.
+- [20:41.550] For years and years, they had to come back and one of them said,
+- [20:44.530] one of the heads, a great guy said
+- [20:46.340] they make us feel like beggars, we have to come back.
+- [20:48.350] I said, I'm going to get you long term financing
+- [20:50.240] and I got it for them. And I said, the only --
+- [20:53.340] I said, the only bad thing, I'll never see you guys again.
+- [20:56.180] I'll never see -- I haven't seen too many of them,
+- [20:58.660] but we took care of the historically
+- [21:00.810] Black colleges and universities, right?
+- [21:03.790] And it was a great thing to do.
+- [21:06.920] And so many others are in the audience
+- [21:09.310] that are just friends of mine. Look at them, so many.
+- [21:12.690] But if I introduce all of you, we're going to be here
+- [21:14.800] a long time and that's unacceptable.
+- [21:17.880] Not only are we celebrating
+- [21:19.880] the century of Black History Month,
+- [21:22.140] also as you know, this year we'll also be celebrating
+- [21:25.910] the 250th anniversary of our nation's founding.
+- [21:30.060] And the good thing, when they cheated on the election,
+- [21:34.450] they made me wait four years.
+- [21:36.010] And because I waited four years, I get the 250th year,
+- [21:40.250] I get the Olympics, which I was the one got --
+- [21:42.560] that got it, and I get the World Cup.
+- [21:46.020] So I got the World Cup and I said,
+- [21:47.630] you know, it's too bad, before all this nonsense takes place --
+- [21:50.390] took place, I said, it's too bad.
+- [21:52.230] I got the World Cup to come here, Gianni.
+- [21:54.220] Another Gianni.
+- [21:55.540] We got the World Cup, it was fantastic.
+- [21:57.660] The head of it, one of the great people.
+- [22:00.070] And I said, the only bad part is I won't be in office
+- [22:03.380] because my four years will be up.
+- [22:04.750] This would have been the more traditional route
+- [22:07.150] and then they cheated on the election.
+- [22:08.730] And I said, now -- oh, we won by so much.
+- [22:12.230] We won by millions of votes, but they cheated.
+- [22:14.240] It was during a COVID period and they cheated.
+- [22:16.740] And we did it again and we made it
+- [22:18.910] too big to rig, too big to rig.
+- [22:21.840] And by doing that, I ended up getting the Olympics.
+- [22:25.450] I ended up -- because we were responsible for both of them.
+- [22:28.680] And we're going to have a great year,
+- [22:30.440] but we're going to have a great three years.
+- [22:32.100] We're going to have hopefully a great --
+- [22:33.700] hopefully, we're going to have a great century
+- [22:35.410] because that's ultimately what it
+- [22:37.520] (inaudible) we'll get it started.
+- [22:40.140] But as we honor America's 250,
+- [22:43.050] and I can't say that I got the 250.
+- [22:44.910] I tried doing that a couple of times, Bruce.
+- [22:46.770] I said, I got the Olympics, I got the World Cup
+- [22:50.620] and I got the 250th year.
+- [22:52.250] They said, you didn't do that. I said, you're right about that.
+- [22:54.970] I didn't do (inaudible)
+- [22:56.420] we happened to be here at the right time. That's all that was.
+- [22:59.440] But we thank God for the strength and courage
+- [23:01.630] and grit and devotion of Black Americans
+- [23:04.420] who have helped make America the most powerful country
+- [23:07.000] in the history of the world.
+- [23:08.310] We now have -- and you saw that with our with our attack
+- [23:13.290] a few weeks ago on Venezuela.
+- [23:15.750] We have the greatest military in the world.
+- [23:17.450] We make the greatest equipment in the world.
+- [23:19.270] There's nobody even close. Nearly 10,000 African Americans
+- [23:23.380] fought for the patriot cause in the Revolutionary War.
+- [23:27.680] Did you know that? 10,000 -- and actually a number
+- [23:30.500] even I've heard even higher than that,
+- [23:32.570] helping secure our independence in every generation since,
+- [23:36.540] from the Buffalo Soldiers to the Tuskegee Airmen.
+- [23:40.870] Black Americans have stepped forward to defend the flag
+- [23:44.650] and to defend our country like few others,
+- [23:47.870] really like few others.
+- [23:49.210] And you've never really been given the recognition
+- [23:51.990] that you should get for that. You know that, Ben?
+- [23:54.200] They never -- I don't think a lot of people
+- [23:56.170] have given the kind of recognition,
+- [23:57.930] but everyone knows all about the Tuskegee Airmen.
+- [24:01.180] They were great and amazing.
+- [24:04.370] The Buffalo Soldiers, do you know the Buffalo Soldiers?
+- [24:07.620] Good stuff, right?
+- [24:09.650] From jazz to the blues, that you know.
+- [24:11.870] That you do get recognition for, jazz,
+- [24:14.830] the blues, from rock and roll to rap,
+- [24:17.620] Black artists like Chuck Berry, Muddy
+- [24:19.730] Waters, how about Nicki Minaj?
+- [24:28.740] A couple of weeks ago, so beautiful.
+- [24:31.650] Her skin is so beautiful. I said Nikki is so beautiful.
+- [24:35.190] Her nails -- her nails like that long.
+- [24:38.670] I said I said, Nikki, are they real?
+- [24:41.370] She said -- she didn't want to get into that.
+- [24:46.040] But she was so beautiful and so great and she --
+- [24:49.220] and she gets it.
+- [24:50.500] You know, more importantly, frankly, she gets it.
+- [24:53.120] But black leaders from Frederick Douglass
+- [24:56.140] to Martin Luther King, right --
+- [24:58.360] a little relative over here -- have made our country freer.
+- [25:03.410] And really what they've really done is made life more just.
+- [25:09.640] And black athletes have inspired billions
+- [25:12.280] around the globe from Sugar Ray Robinson,
+- [25:15.260] Sugar Ray Leonard also by the way, great.
+- [25:17.370] What a great fighter.
+- [25:18.840] Muhammad Ali, who was a friend of mine.
+- [25:20.470] I put a picture of myself in Muhammad
+- [25:22.770] it was another piece of work.
+- [25:24.120] You talk about a piece of work, but he could fight, couldn't he?
+- [25:27.540] Mike Tyson -- boy, I tell you, Mike has been loyal to me.
+- [25:30.950] Whenever they come out, they say Trump's a racist --
+- [25:33.050] you know, it's like a statement, Trump's a racist.
+- [25:35.050] Mike Tyson said he's not a racist, he's my friend.
+- [25:37.930] He's been there from the beginning, good times and bad.
+- [25:41.290] But Mike Tyson is a great guy,
+- [25:43.000] and he was so loyal, always been loyal.
+- [25:46.170] And Herschel Walker, speaking about loyal,
+- [25:48.100] how good a football player was Herschel?
+- [25:50.290] Herschel Walker, now he's ambassador to the Bahamas.
+- [25:54.150] I don't know, Bahamas, Bermuda, Bahamas, whatever.
+- [25:58.820] It's a nice place.
+- [26:01.320] You'd like that, Bruce, wouldn't you?
+- [26:03.110] Bruce wants it.
+- [26:04.810] And a friend, a guy -- they became really,
+- [26:07.840] he liked Trump. Jim Brown, he was tough.
+- [26:11.350] He'd come in, he was very silent.
+- [26:12.920] He was silent but deadly.
+- [26:14.680] He'd come in and he'd look at people
+- [26:16.310] and if he didn't like them,
+- [26:17.870] he'd just look at me and he'd go no good.
+- [26:21.050] He'd wanted to rip their heart out.
+- [26:22.450] I would say there can't be a better football --
+- [26:24.630] greater football player than Jim Brown.
+- [26:27.040] By the way, Lawrence Taylor, great friend.
+- [26:29.630] Lawrence -- the great Lawrence Taylor,
+- [26:31.220] the greatest defensive player
+- [26:33.120] probably in the history of football.
+- [26:34.680] He's a great friend of mine and --
+- [26:38.360] but I'm longer off the tee than him.
+- [26:39.780] You know why? Because I take the club back further.
+- [26:42.430] He takes the club back this far and he hits it 200 yards.
+- [26:45.580] When you can do that, you're strong.
+- [26:48.260] He's a great guy. I'll tell you that.
+- [26:51.310] And all of this is a part of the legacy
+- [26:53.560] that we celebrate on July 4th, 2026,
+- [26:56.720] Because Black History Month
+- [26:58.770] is really all about American history.
+- [27:04.580] And this is a big year. This is a big year for you.
+- [27:07.250] During my first term,
+- [27:08.930] I was honored to deliver unprecedented victories
+- [27:11.630] for black Americans and all Americans frankly.
+- [27:15.000] But black Americans I single handedly
+- [27:17.390] secured record long-term funding for,
+- [27:20.030] I told you, the historically black colleges and universities.
+- [27:23.780] I created nearly 9,000 opportunity zones
+- [27:27.550] with our great secretary,
+- [27:29.560] and also, I think we have to do, as I said before.
+- [27:31.950] Tim Scott really -- he came to me with that idea
+- [27:35.170] and we put it into use, right, Scott?
+- [27:38.430] And I signed historic criminal justice reform into law.
+- [27:41.510] We got criminal justice reform.
+- [27:43.710] Just so you know, for 30 years you,
+- [27:48.590] more than any other group of people,
+- [27:50.710] have been trying to get criminal justice reform
+- [27:52.930] and they couldn't do it.
+- [27:54.140] And a group of people came to my office,
+- [27:56.890] and they asked me to do it. They couldn't get it.
+- [28:00.840] They needed five conservative votes in the Senate
+- [28:05.520] and conservative
+- [28:06.830] was five conservative white votes in the Senate.
+- [28:10.810] And of the five, all five of them were totally against.
+- [28:13.750] And I called them up and they were great, they were great.
+- [28:17.420] And they -- one of them was Senator John Kennedy,
+- [28:19.780] to be honest with you. He was not in favor of it.
+- [28:23.400] And I spoke to him and he was 100 percent.
+- [28:25.530] He's a great Senator; a great guy and you know
+- [28:29.180] that he was a tremendous help.
+- [28:31.510] So, we got criminal justice reform done and approved
+- [28:35.140] and nobody thought it could be done.
+- [28:37.360] And it's no wonder that in 2024
+- [28:39.260] we won more African American votes
+- [28:41.080] than any Republican presidential candidate in history.
+- [28:46.390] And just over one year ago, we had a dead country,
+- [28:49.630] we were a dead country.
+- [28:50.960] Scott just said it; we were dead as a doornail.
+- [28:53.500] We had an idiot as a president.
+- [28:56.750] We had a man that was not a president.
+- [28:59.490] Number one, he didn't win the election.
+- [29:01.640] He was not a president.
+- [29:03.710] Yeah, right. He was a real beauty, wasn't he?
+- [29:07.230] He allowed 25 million people into our country,
+- [29:10.320] many of them should not have been here.
+- [29:12.650] And we've done -- now we have -- by the way,
+- [29:14.090] we went from the worst border in history to the best --
+- [29:16.860] by far the best border in history.
+- [29:20.410] But I had the support of many people, Bruce,
+- [29:23.170] I had the support of many people in this room,
+- [29:25.600] and we've got right now
+- [29:27.040] the hottest country anywhere in the world.
+- [29:28.680] King of Saudi Arabia told me that.
+- [29:30.240] He said, you were a dead country a year and a half ago;
+- [29:32.960] now you're the hottest country.
+- [29:34.330] We're the hottest country right now anywhere in the world
+- [29:37.200] and you're a big part of it
+- [29:38.690] and you're a big beneficiary to it.
+- [29:40.410] Take a look at your 401(k)s.
+- [29:42.400] Has anybody got a 401(k) that's lower than it was?
+- [29:46.060] Better put your hand down. Lower than it was a year ago?
+- [29:49.900] They're double. I mean, they are through the roof.
+- [29:53.080] The stock market has hit 53 all-time record highs
+- [29:56.750] since the election.
+- [29:58.000] And earlier this month, the Dow Jones Industrial Average
+- [30:00.670] rose above 50,000 for the first time ever, right, Scott?
+- [30:04.660] First time ever.
+- [30:05.920] And also, you know, they don't talk about this,
+- [30:09.370] the S&P broke 7,000. So, when I got elected,
+- [30:13.880] they said for the S&P to break 7,000 within four years
+- [30:18.120] would be a great achievement for the president.
+- [30:20.770] And for the Dow Jones to break 50,000
+- [30:23.790] would be a great thing, but it's not possible.
+- [30:26.730] They were talking about in four years.
+- [30:28.300] Scott, they said in four years, it would not be possible
+- [30:31.640] to break 50,000 or 7,000 under these two very important,
+- [30:37.280] call them a metric -- metrics. And you know what happened?
+- [30:41.120] We broke it before the end of my first year.
+- [30:44.220] So, right? So, we did something.
+- [30:48.090] So, they said we couldn't do it in four years,
+- [30:50.370] we did it in one year.
+- [30:51.780] More Americans are working today
+- [30:53.460] than at any time in American history.
+- [30:55.630] So, we have more Americans right now working than at any time.
+- [30:59.080] And you know when I say this stuff,
+- [31:00.310] I get the fake news back there, a lot of it.
+- [31:04.500] Thank you. I agree.
+- [31:06.440] Sometimes we have to be very careful
+- [31:08.090] because they actually go and it's not pretty, Leo.
+- [31:11.080] We have to get Leo and the DOJ involved.
+- [31:14.520] But think of that -- Leo, think of that,
+- [31:17.020] more Americans are working today than any time in history.
+- [31:22.980] And since I took office, African American employment
+- [31:25.800] has increased by 182,000, the highest ever, jobs --
+- [31:32.170] 182,000. Nearly half a million Black Americans
+- [31:36.740] have rejoined the labor force since we took office.
+- [31:38.990] Half a million.
+- [31:40.290] Wages for workers have increased $1,000,
+- [31:43.790] $2,000 even $3,000, and even sometimes in some cases
+- [31:48.150] $5,000 a year. That's faster than inflation.
+- [31:52.040] So, wages have gone up at a much faster clip than inflation.
+- [31:56.770] We took over the worst inflation in the history of our country,
+- [31:59.550] they say 48 years or 49 years.
+- [32:02.420] I said that, you know, I said inflation under Biden
+- [32:06.610] went up more than at any time in the history of our country.
+- [32:09.760] They said he's not right about that, it's 49 years.
+- [32:13.430] I said, all right, I'll accept that too.
+- [32:15.460] Actually, I think it sounds worse, I think, for some reason,
+- [32:18.270] because when you say the worst ever,
+- [32:20.320] but when you say the worst in 49 years,
+- [32:22.230] I'll take that, right?
+- [32:24.030] The fake news got me on that one.
+- [32:26.360] I think I was right by the way, but I'll accept 48 or 49 years.
+- [32:30.540] But for the first time in many years,
+- [32:32.160] 100 percent of all net job creation
+- [32:35.160] is going to American born citizens.
+- [32:38.130] Think of that, 100 percent. And in the last administration
+- [32:42.980] was going mostly to illegal aliens that came in,
+- [32:45.710] many of them murderers and others.
+- [32:48.060] Last summer we passed the largest working-class tax
+- [32:50.640] cuts in the history of our country,
+- [32:52.520] that includes no tax on tips, no tax on overtime,
+- [32:56.170] no tax on Social Security for our great seniors.
+- [32:59.300] And you're going to see that, you know,
+- [33:00.730] it just kicked in on January 1st,
+- [33:02.790] you're going to see tremendous results
+- [33:04.190] and they're already seeing it.
+- [33:05.410] And I think we're going to have GDP's --
+- [33:07.000] we're going to have numbers
+- [33:08.210] that nobody's ever seen before, Scott.
+- [33:10.470] Joining us this afternoon and really somebody
+- [33:14.020] that is fantastic, Arnetta Bradford.
+- [33:16.740] In 2019, Arnetta and her husband
+- [33:19.160] opened an incredibly successful coffee shop
+- [33:21.670] in Arkansas named Hebrews 11:1. That's an interesting name.
+- [33:26.850] No one thinks that the no tax on tips matters.
+- [33:30.510] Well, it does matter and it mattered a lot to Arnetta.
+- [33:33.430] And she was able to grow her business
+- [33:35.500] just in a short period of time and hired more employees.
+- [33:38.510] And she's making a fortune.
+- [33:40.120] I'd like you to give some of the people
+- [33:41.720] in that room some of that money, Arnetta.
+- [33:43.310] She's making a lot. Come in -- Arnetta, where are you?
+- [33:48.270] Come on up here, Arnetta, come on up. Hi, darling.
+- [33:53.330] Please let me move that down.
+- [33:57.480] Arnetta Bradford: I can't do anything first
+- [33:59.050] but say to God be the glory.
+- [34:02.300] I have no business being here other than him having me here.
+- [34:06.090] And so, yeah, I'm not going to do it.
+- [34:08.000] I'm not going to preach. I'm going to settle myself.
+- [34:11.490] Thank you so much for inviting me and having me here,
+- [34:15.100] it is such an honor to be here today.
+- [34:17.540] Hebrews 11:1 -- people ask me all the time
+- [34:20.070] why did I even open a business.
+- [34:21.410] Why did I even call it Hebrews 11:1.
+- [34:23.870] Hebrews 11:1 is my very favorite scripture:
+- [34:27.100] Now faith is the substance of things hoped for,
+- [34:29.600] and the evidence of things not seen.
+- [34:32.100] That scripture has walked with me, has --
+- [34:34.130] had grown me from a little girl on up.
+- [34:38.510] Not having no longer my mother here,
+- [34:40.210] no longer having my father here,
+- [34:42.080] my husband not having his mother and his father here, we open
+- [34:44.460] Hebrews 11:1 with no funding,
+- [34:46.550] no money, no big family investors,
+- [34:49.590] no business loans, didn't have great credit.
+- [34:52.410] It was us and faith in God. That was seven years ago.
+- [34:57.810] But I ran that business with just myself and one employee.
+- [35:01.240] Then here comes no tax on tips.
+- [35:03.660] I was able to hire seven more employees
+- [35:07.230] just by what you did. Not only that,
+- [35:11.070] I was able to open a second location on our college campus.
+- [35:16.820] Things are just going off simply because having now faith.
+- [35:20.950] And so I love the fact of that scripture.
+- [35:22.870] Now I say all of that as to --
+- [35:24.650] I'm trying to stick to my little written down thing that I wrote.
+- [35:27.910] I don't know how to do that so well.
+- [35:29.990] Um, but as a small business owner,
+- [35:31.610] I understand how critical support is.
+- [35:34.170] I understand that you have to have the right people
+- [35:36.280] that make the right policies for us as small business owners.
+- [35:39.910] So no tax on tips has been an extremely blessing for me
+- [35:43.890] and my business, not just mine,
+- [35:45.770] but I know so many people across the country.
+- [35:48.040] I know a lot of us don't want to talk about the good part of it.
+- [35:50.350] We only want to share the negative,
+- [35:51.660] but I'm here today to tell you you've done a great thing.
+- [35:54.510] Thank you for just loving on us
+- [35:56.700] and showing us that even in small town
+- [35:59.450] Hope, Arkansas, and I have got to say this,
+- [36:01.960] I have the best governor in the world.
+- [36:06.140] I don't only just call
+- [36:07.410] Sarah my friend, I call her my sister.
+- [36:09.320] And so that's why I am here today,
+- [36:11.980] to just tell you that no tax on tips
+- [36:14.180] has been an amazing blessing for me.
+- [36:16.120] President Trump has been an amazing blessing for me.
+- [36:19.010] And at the end of the day,
+- [36:21.260] Jesus has been an amazing blessing for me.
+- [36:26.760] I love you guys and thank you so much,
+- [36:28.720] because I am a youth pastor, but I will not preach on today.
+- [36:32.060] I love y'all. Thank you so much. Thank you. Thank you.
+- [36:34.470] The President: Thank you. Good job.
+- [36:38.800] Good job, huh? So thank you very much, Arnetta.
+- [36:45.270] And we can't provide opportunity for the next generation
+- [36:49.320] if we do not also have a thing called law and order.
+- [36:52.940] We need law and order. You know, Washington DC is amazing.
+- [36:56.220] It was a crime capital. It was a horror show.
+- [36:59.580] A year ago, it was really dangerous and now
+- [37:01.970] it's one of the safest cities anywhere in the country.
+- [37:04.920] And we're in Memphis, Tennessee now,
+- [37:06.630] where it's like a different world.
+- [37:08.690] In four months, we've made it safe.
+- [37:11.600] We're in Louisiana, as you know. We're in lots of other places
+- [37:15.720] and we have the lowest crime numbers
+- [37:17.720] that we've had in many years.
+- [37:19.100] We have the lowest murder numbers
+- [37:20.560] in 125 years, since 1900.
+- [37:24.060] And that's despite the fact that a lot of people are here,
+- [37:26.760] but those people have been taken out.
+- [37:28.590] Lots of them have been taken out.
+- [37:29.860] That's why we stopped
+- [37:31.460] the invasion at the southern border.
+- [37:33.140] And just one year ago, and think of this, one year ago,
+- [37:36.740] we had the absolute worst border that we've ever had.
+- [37:39.580] And now we have
+- [37:40.970] the safest border that we've ever had.
+- [37:42.590] So it's going to be really something.
+- [37:44.410] 125 years ago, that's before my father was born.
+- [37:47.500] I had a wonderful father, but that was before.
+- [37:50.090] So we have, murders are down from 125 years.
+- [37:53.550] We had the best numbers.
+- [37:54.760] When you think about it, that's pretty incredible.
+- [37:57.090] And those numbers are made up by Democrats.
+- [37:58.910] Can you believe it? They don't want to give me those numbers.
+- [38:01.460] They can add a couple of people here and there.
+- [38:04.310] But I've also deployed the National Guard
+- [38:06.330] to bring back safety to Memphis
+- [38:08.010] and to New Orleans and Washington
+- [38:09.700] and the National Guard has been incredible and people are safe.
+- [38:13.090] In the case of Washington, the restaurants were all closing up.
+- [38:15.710] People were getting really badly, badly hurt and killed,
+- [38:19.160] frankly, many people killed.
+- [38:21.100] And now you can walk down the street
+- [38:22.770] and you have nothing to fear.
+- [38:24.090] We have one of the safest cities in the world,
+- [38:26.280] and it happened very fast, Bruce.
+- [38:28.320] One of those who knows the importance of this mission
+- [38:30.810] is Felicia Cook, a lifelong Washingtonian,
+- [38:34.180] who tragically lost her grandson to violence in 2017.
+- [38:38.220] Felicia?
+- [38:39.910] We're so sorry, and you are a spectacular person.
+- [38:42.790] If you could say a few words, please. Thank you very much.
+- [38:46.260] Yes, come on -- oh, yeah, oh, help her up.
+- [38:49.800] We don't want any mistakes. Come on in.
+- [38:53.260] Felicia Cook: First of all, can I have a hug?
+- [38:54.980] The President: Yes, you can. Thank you (inaudible)
+- [38:57.860] Thank you so, darling.
+- [38:59.490] That's so nice. I like her. Please.
+- [39:03.870] Felicia Cook: I like him too.
+- [39:05.800] One thing I like about him, he keeps it real,
+- [39:07.940] just like grandma.
+- [39:10.130] I appreciate that because I can trust him
+- [39:12.280] because he tells exactly how he feel and what he thinks.
+- [39:15.730] Thank God for this president. I am filled.
+- [39:22.890] My cup runneth over, because he allowed his constituencies,
+- [39:29.630] his people to come to my house to interview me
+- [39:32.900] to talk about the murder of my grandson.
+- [39:36.920] It seemed like nobody cared. I'm an advocate for murder.
+- [39:40.850] I marched. I rallied.
+- [39:43.020] I pulled out other families in the District of Columbia
+- [39:46.270] that had murders and did not have answers.
+- [39:49.570] Oh. We must rally.
+- [39:52.610] And nobody heard me. Democrats get mad at me.
+- [39:57.860] Until this Republican send his constituents,
+- [40:01.260] his people out there to interview me in my home.
+- [40:04.450] Have you ever heard of a thing?
+- [40:07.180] Then they invited me twice before Congress
+- [40:10.340] to testify for the Beautiful Bill
+- [40:13.330] that's going to change crime in the district.
+- [40:17.060] If you kill somebody,
+- [40:19.270] OK, you take a life, you do life, just that simple.
+- [40:26.370] If you do a harsh crime, you do harsh time,
+- [40:29.290] just that simple. And if we need National Guard,
+- [40:33.760] and which we did years ago, he brought it on.
+- [40:40.770] I love him.
+- [40:42.020] I don't want to hear nothing you got to say
+- [40:43.460] about that racist stuff
+- [40:44.930] and don't be looking at me on the news,
+- [40:47.040] hating on me because I'm standing up for somebody
+- [40:49.830] that deserves to be stand up for.
+- [40:51.790] Get off the man's back. Let him do his job.
+- [40:54.310] He's doing the right thing.
+- [40:55.690] Back up off of him, and grandma said it.
+- [41:04.440] The President: Thank you so much.
+- [41:21.320] Wow. That's pretty good. When is she running for office?
+- [41:25.360] Felicia, when are you running for office, please?
+- [41:27.380] You have my endorsement.
+- [41:28.700] You have my endorsement, Felicia.
+- [41:31.610] Thank you, darling, very -- that's great.
+- [41:33.760] What a great -- well, and it's from the heart.
+- [41:36.790] Your little baby, right, was just so horribly,
+- [41:40.970] horribly taken from you.
+- [41:42.890] Under the Trump administration, we believe that no community
+- [41:46.000] should be abandoned to the scourge of violent crime
+- [41:48.800] and we're saving thousands and thousands of lives
+- [41:51.330] in many cities.
+- [41:52.580] And frankly, if these radical left lunatic Democrats
+- [41:55.750] would come and say, please help us, please,
+- [41:59.230] we'd stop crimes all over the place
+- [42:00.910] and we're doing it in a lot of --
+- [42:02.520] a lot of cities.
+- [42:03.730] Sometimes we have to force ourselves upon them
+- [42:05.810] because they're so bad.
+- [42:07.360] And I don't even think they realize what's happening
+- [42:09.250] to their cities and their towns. But every town that we go in,
+- [42:13.180] every city that we go in, like Washington, Felicia,
+- [42:15.350] you feel much safer now, totally safe.
+- [42:17.920] You can walk to a restaurant.
+- [42:19.750] The restaurants were all closing.
+- [42:21.100] Now, you can't get a restaurant.
+- [42:23.700] The bad news is you can't get into a restaurant,
+- [42:26.430] but it's a great thing to see what's happening in Washington.
+- [42:29.770] It's like -- it's a hot place and hopefully,
+- [42:32.200] people will be coming in record numbers and it's been --
+- [42:35.600] I know we need a little help.
+- [42:37.150] You need help in Atlanta.
+- [42:38.370] He just said -- you're right, Atlanta.
+- [42:43.260] Atlanta, we could -- ww could take care of Atlanta,
+- [42:46.480] I'll tell you what, you ought to get them to call me.
+- [42:49.260] We could take care of Atlanta so fast.
+- [42:57.840] They don't want to call. They don't want to --
+- [43:00.490] they don't want to call because they don't want to admit it
+- [43:02.450] and they'll never fix it themselves.
+- [43:04.620] Don't forget, we move people out.
+- [43:05.980] We don't just go in and, you know, be tough guys.
+- [43:07.930] We move people out.
+- [43:09.420] We take career criminals and we get them out.
+- [43:12.200] We bring them back to the country from where they came.
+- [43:15.540] And think of it, 90 percent of the crime
+- [43:18.760] is caused by two percent of the people. Think of it.
+- [43:22.100] So when you get the criminals out,
+- [43:24.300] you solve a lot of problems.
+- [43:25.640] Another way that we're fulfilling our duty
+- [43:28.110] to the next generation is the single biggest thing
+- [43:31.260] that's happened having to do with schools and education.
+- [43:33.730] It's called school choice in our Great Big,
+- [43:37.440] Beautiful Bill, our bill, our Beautiful Bill,
+- [43:41.220] which really covers four years.
+- [43:43.400] We put it all together, that's why we call it
+- [43:45.300] the Great Big, Beautiful Bill.
+- [43:46.500] This will help millions of African American children
+- [43:49.630] and ensure that no child is condemned
+- [43:52.120] to a failing government or a horrible school.
+- [43:54.490] And we have a person here who is fantastic on this subject.
+- [43:58.090] Greta, would you please come up?
+- [44:00.260] Please, Greta, come on up. Thank you.
+- [44:03.150] And her beautiful daughter. Thanks, Greta.
+- [44:05.760] Thank you very much.
+- [44:07.010] Greta Alexander: How are you?
+- [44:08.230] God bless you. I'm happy to meet you.
+- [44:10.090] The President: Thank you, darling.
+- [44:11.890] Greta Alexander: Well, ditto, to God be the glory.
+- [44:15.200] And we're grateful for our president.
+- [44:17.350] He's doing some tremendous work and I want to remind those
+- [44:20.930] that don't know that this was prophesied.
+- [44:23.300] So you weren't supposed to have the second term when you --
+- [44:26.310] when it came about. This is your season and God,
+- [44:29.650] I said that it was going to be rough the first two years,
+- [44:32.450] and that things were going to happen,
+- [44:33.810] but then the last two years are going to be great.
+- [44:35.490] The President: Well, I hope so.
+- [44:36.700] Greta Alexander: And yes, you're going to do
+- [44:38.090] some tremendous things. And so, for that, we thank you
+- [44:41.790] on behalf of all the mothers all around the world.
+- [44:44.800] I'm from Texas, I live in a zip code
+- [44:47.320] that I didn't have an opportunity
+- [44:49.340] to have a choice to go to school.
+- [44:51.740] And so, when I raised my children,
+- [44:53.680] I wanted a better opportunity for them.
+- [44:56.200] And I'm so grateful to ACE Scholarships and all the doors
+- [45:00.250] that the president is opening for education.
+- [45:03.000] My son was in a school that he didn't have any voice,
+- [45:08.630] and he found drugs in school and he died.
+- [45:12.560] And so, I'm here today to just show my appreciation
+- [45:16.820] for all the moms around the world.
+- [45:19.190] We have a choice now.
+- [45:21.160] This choice is so important to mothers.
+- [45:23.980] I have a child that, because I had a choice,
+- [45:27.750] she's in private school,
+- [45:29.500] she's thriving -- she's thriving.
+- [45:34.700] She's going to be an anesthesiology nurse
+- [45:38.170] and she's doing great.
+- [45:39.580] And ACE Scholarships was a big part of that.
+- [45:43.670] Changing education changes everything.
+- [45:47.360] Changing education changes everything.
+- [45:51.670] In my zip code, it feels like we were locked in a cage,
+- [45:56.650] and being locked in a cage and can't get out.
+- [45:59.460] And because of all of the things that you're doing for education,
+- [46:03.450] now we can get out and soar.
+- [46:05.620] Our children can have a chance to be prosperous
+- [46:08.660] just like other children.
+- [46:10.530] And I thank you for that. This is a great opportunity.
+- [46:13.880] So, on behalf of all the mothers all around the world,
+- [46:17.080] I stand here and I give you your flowers
+- [46:19.290] while you can still get them.
+- [46:21.240] Thank you. I appreciate you. Give me a hug.
+- [46:23.370] The President: Thank you. Thank you.
+- [46:26.310] And this is beautiful. Look, how beautiful. Thank you.
+- [46:31.710] Wow, so nice. Thank you very much.
+- [46:34.680] Thanks, Greta. So, we're calling an end,
+- [46:38.350] and I just want to say this is an honor to be here.
+- [46:40.440] We celebrate Black History Month.
+- [46:42.900] We honor the memory of those who came before us
+- [46:46.050] by continuing their legacy
+- [46:48.460] and fighting for an America that's --
+- [46:50.690] really an America that's safe and strong and prosperous.
+- [46:53.570] We now have a country that's bigger, better,
+- [46:56.460] greater than ever before.
+- [46:57.760] I want to thank all my secretaries
+- [46:59.420] and all of the people that came here.
+- [47:01.400] Our military leaders are here.
+- [47:02.870] We have a lot of people that are here
+- [47:04.750] and I want to thank you all.
+- [47:06.230] But this is a very special group of people.
+- [47:08.260] So, Happy Black History Month, Happy Black History Year,
+- [47:14.180] and Happy Black History Century.
+- [47:17.510] Thank you all. Thank you, Bruce. Thank you.
+- [47:20.320] Thank you very much, everybody.
+- [47:26.320] ♪ (soft piano music) ♪

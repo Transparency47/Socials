@@ -1,0 +1,426 @@
+<!-- source: https://www.youtube.com/watch?v=9IIH9WTHHz8 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 9IIH9WTHHz8 -->
+<!-- date_published: 2025-05-21T20:52:09+00:00 -->
+<!-- date_accessed: 2026-06-02T02:49:34.473826+00:00 -->
+
+# Transcript: President Trump Welcomes the 2025 Men's NCAA Basketball Champions, The University of Florida Gators
+
+- [00:07.050] Announcer: Ladies and gentlemen, the President of the
+- [00:09.401] United States, accompanied by head coach Todd Golden. ♪(Hail to the Chief)♪
+- [00:30.920] The President: It's a big crowd.
+- [00:33.280] That's really, really nice.
+- [00:35.200] I just met your coach.
+- [00:36.800] Now I see why you won.
+- [00:39.720] But they had to -- boy they are tall.
+- [00:48.360] That's not easy, right coach?
+- [00:51.060] But today we're delighted to welcome
+- [00:54.447] the 2025 NCAA basketball champions,
+- [00:58.500] the University of Florida Gators.
+- [01:05.750] Hello, Tim.
+- [01:08.010] Congratulations also to a
+- [01:10.110] really great young head coach.
+- [01:13.130] Todd Golden on the entire job
+- [01:14.991] he did the season, the inspiration
+- [01:17.199] that he gave these players.
+- [01:18.990] He's unbelievable as a coach.
+- [01:20.350] I heard a lot of great things about him.
+- [01:22.611] Oh, would I like to be his agent.
+- [01:25.950] Don't go anywhere, coach.
+- [01:28.290] Stay, coach.
+- [01:28.990] You can't leave.
+- [01:32.090] And joining us this afternoon is
+- [01:34.834] University of Florida's interim president Kent Fox.
+- [01:44.250] Good, congratulations.
+- [01:46.070] Attorney General Pam Bondi is doing a phenomenal job.
+- [01:49.470] Keeping us safe.
+- [01:54.060] And of course, there's no bigger Florida
+- [01:55.875] fan than Secretary of State Marco Rubio.
+- [01:59.630] Pam, why don't you and Marco come up?
+- [02:01.750] Come up.
+- [02:02.211] Come up.
+- [02:02.810] Senator, come on up.
+- [02:03.651] Get up here.
+- [02:04.230] Come on up here.
+- [02:05.350] Senator.
+- [02:07.010] And I see Marco's son Anthony is a running
+- [02:09.367] back for the Gator's football team.
+- [02:11.910] Whoa.
+- [02:14.330] That's pretty good.
+- [02:16.170] We're also joined by Senators Rick Scott.
+- [02:18.680] Ashley Moody.
+- [02:20.210] Rick Scott.
+- [02:20.730] Where's Rick?
+- [02:22.190] Rick.
+- [02:22.570] Come on up, Rick.
+- [02:24.130] Ashley's up.
+- [02:26.370] Representatives --
+- [02:27.610] Aaron Bean.
+- [02:29.410] Gus Bilirakis.
+- [02:30.510] Vern Buchanan.
+- [02:32.670] Kate Cammack.
+- [02:33.530] And if you want, come on up.
+- [02:34.790] This stage is meant for a lot of people, actually.
+- [02:38.830] Byron Donalds.
+- [02:40.610] Randy Fine.
+- [02:43.370] Randy, come on up, Randy.
+- [02:45.570] Congratulations on your election.
+- [02:46.590] I was worried about you, Randy.
+- [02:49.210] He ended up winning by 16 points, right?
+- [02:52.170] I wasn't too worried.
+- [02:54.250] Scott Franklin.
+- [02:55.445] Scott, thank you very much.
+- [02:58.890] Carlos Jimenez.
+- [03:00.570] Where's Carlos?
+- [03:02.050] Come on up, Carlos.
+- [03:03.670] Good guy.
+- [03:05.210] Mike Haridopolos.
+- [03:06.770] Laura Lee.
+- [03:08.640] Laura Lee.
+- [03:09.710] Look at this.
+- [03:10.970] Hi, Greg.
+- [03:12.730] They don't have your name down.
+- [03:14.090] Greg, get up here.
+- [03:15.410] Greg (inaudible).
+- [03:17.215] Anna Paulina.
+- [03:18.470] Luna.
+- [03:20.990] Come on, Anna.
+- [03:23.150] Jimmy Patronis.
+- [03:26.370] Jimmy, congratulations.
+- [03:28.150] I was a big... that was a big election.
+- [03:30.590] We got them all.
+- [03:31.200] We have Greg up here.
+- [03:33.350] Thanks as well to the wonderful members
+- [03:35.582] of the Florida State Legislature.
+- [03:37.810] And the very special thanks to the
+- [03:40.003] NFL legend and University of Florida.
+- [03:42.650] I mean, one of the greatest players I've ever seen.
+- [03:45.230] I'll tell you what.
+- [03:47.190] As a college player, maybe the best ever.
+- [03:50.170] And you did damn well.
+- [03:53.610] And you did damn well in the pros too.
+- [03:56.210] He was great.
+- [03:58.110] Despite being on the Jets, you did damn well.
+- [04:01.785] Come on up here, Tim.
+- [04:02.851] You got to come up here.
+- [04:04.970] Tim Tebow.
+- [04:07.090] And he's a terrific guy.
+- [04:09.790] He's a terrific guy.
+- [04:11.310] He's a winner.
+- [04:12.130] Boy, he was a winner.
+- [04:13.690] What you win two, right?
+- [04:14.830] And you almost won the third.
+- [04:16.340] There's nobody did that.
+- [04:18.250] Nobody did that.
+- [04:19.980] I think we... you know, he goes down
+- [04:21.512] really as one of the best...
+- [04:22.682] maybe the best college football player, if you think
+- [04:25.211] about it, based on... we can only
+- [04:26.862] based on our results, right, Tim?
+- [04:28.865] Which is all that counts, a great guy too.
+- [04:32.430] The 2025 University of Florida basketball
+- [04:35.235] team was one for the history books.
+- [04:37.690] And I saw a few of those games.
+- [04:39.790] And they were tough games against great teams.
+- [04:42.350] You brought home the third
+- [04:43.971] national title in program history.
+- [04:46.091] And made Florida the only division one
+- [04:48.553] program ever to win three national titles
+- [04:51.211] in both basketball and football.
+- [04:53.410] That's not bad.
+- [05:03.310] The team was hot from the very beginning
+- [05:05.926] starting off the year with a 13-game
+- [05:08.281] winning streak and roaring to a 27 and
+- [05:10.609] four record in the regular season against
+- [05:13.121] really, really good competition,
+- [05:15.523] including two wins over number one ranked opponents.
+- [05:19.765] In one of the pivotal moments early in the
+- [05:22.006] season, the Gators found themselves in a
+- [05:24.141] fierce battle with South Carolina, great
+- [05:26.850] team, trailing the Gamecocks 52 to 38 coach.
+- [05:30.500] That's pretty good coach.
+- [05:32.240] They're not too happy about it either.
+- [05:33.980] That's one of those.
+- [05:35.081] You know, you're happy.
+- [05:36.140] But they're not happy when that happens.
+- [05:38.821] With 12 minutes left in the clock fighting
+- [05:40.890] against time, the Gators clawed your
+- [05:42.625] way back into striking distance.
+- [05:45.680] With just five seconds left in the clock,
+- [05:48.061] senior guard Will Richard seized his moment.
+- [05:56.500] And drove in hard to sink a game winning
+- [05:59.632] layup earning Florida a 70 to 69 come from behind
+- [06:04.260] victory. Well done.
+- [06:05.220] Where is... where's Will?
+- [06:06.480] I want to see this guy.
+- [06:15.820] That's great, Will.
+- [06:17.220] Boy, oh, boy.
+- [06:17.840] These are good-looking guys.
+- [06:20.700] And they're definitely... they're definitely tall.
+- [06:23.020] One of my guys said down says he's a big guy.
+- [06:25.320] He said, these are the tallest
+- [06:26.530] human beings I've ever seen.
+- [06:28.880] You know, I have a son who's 6'9".
+- [06:30.680] But six foot nine is not... I now see.
+- [06:32.760] You know, he always says, Dad, I'm
+- [06:34.090] not that tall compared to some of these guys.
+- [06:36.300] And now, I understand what he's talking about.
+- [06:40.610] By the SEC tournament, Florida truly
+- [06:42.890] caught fire, the Gators even set a new
+- [06:45.361] tournament scoring record when you beat
+- [06:48.451] Alabama 104 to 82 in the closing minutes
+- [06:51.621] of the SEC championship game against Tennessee,
+- [06:55.430] the Volunteers cut the Gators
+- [06:57.362] 13 point lead down to five.
+- [06:59.800] Oh, that's called sometimes choke time, coach.
+- [07:02.860] That's never good when you
+- [07:04.256] take that big lead in your all.
+- [07:06.160] You're thinking about your victory speech.
+- [07:08.285] And you forget to play basketball, right?
+- [07:11.300] You forget you've got to play
+- [07:12.866] golf or basketball or whatever.
+- [07:15.260] And then all of a sudden you say,
+- [07:16.580] oh, man, we could lose the sucker, right?
+- [07:18.640] That's never good.
+- [07:19.860] But you handle it.
+- [07:20.640] The pressure was on.
+- [07:21.640] You handle it.
+- [07:22.180] That's when star senior guard Walter Clayton Jr.
+- [07:37.430] I tell you, I hear he's really good.
+- [07:42.490] See, he's really rich too.
+- [07:44.190] You know that.
+- [07:45.750] seized control of the game.
+- [07:50.850] Not yet.
+- [07:52.730] Not yet.
+- [07:54.590] Is he coming back?
+- [07:57.030] No, he'll be playing in the NBA next year.
+- [07:59.870] No, I hear he's unbelievable.
+- [08:03.650] Special is going to be a very early draft choice, sir.
+- [08:06.210] I think.
+- [08:06.930] If they're smart.
+- [08:08.250] If they're smart -- seized control of the game
+- [08:10.811] scored eight straight points leading
+- [08:12.901] the Gators to your first SEC Championship in 11 years.
+- [08:16.830] And earning himself a title and tournament MVP.
+- [08:20.670] That's great.
+- [08:21.110] A lot of MVPs up there.
+- [08:23.210] Up next was the big dance.
+- [08:25.390] Florida opened March Madness with a
+- [08:27.784] commanding win over Norfolk State.
+- [08:30.790] And followed it up by edging out
+- [08:32.527] two-time defending champ Yukon.
+- [08:34.290] That's tough.
+- [08:35.320] And the thrilling 77-75 win.
+- [08:37.890] Some of these games are close, Coach.
+- [08:40.850] You know what they say about those.
+- [08:42.710] That means they have a good coach.
+- [08:44.910] You won a lot of close games here.
+- [08:47.370] The elite 8 brought to a face-off
+- [08:49.831] with Texas Tech down by nine.
+- [08:52.150] With under four minutes left, Florida
+- [08:54.196] responded with a furious rally.
+- [08:56.290] Led by sophomore Thomas Hawke, who
+- [08:58.777] made back-to-back three-pointers.
+- [09:01.430] Back-to-back.
+- [09:09.310] He's got good hair, too.
+- [09:15.570] He's got no hair loss problem, I can tell you.
+- [09:19.110] Thomas was still on full display as he
+- [09:21.780] earned his fourth double double of the
+- [09:24.451] season by recording 20 points at 11 rebounds.
+- [09:28.780] against the Red Raiders and
+- [09:31.211] with an 84-79 victory over Texas Tech,
+- [09:34.410] you punched your ticket to the final four.
+- [09:36.770] Not easy to do.
+- [09:37.870] Thank you.
+- [09:38.655] Not easy to do, fellas.
+- [09:40.870] Facing off against top-seated Auburn,
+- [09:43.210] Walter Clayton again, Walter Clayton.
+- [09:45.551] This guy, Walter Clayton, has to be very --
+- [09:49.130] Walter Clayton, Jr. turned in another big
+- [09:51.331] performance, dropping a career high 34
+- [09:53.371] points and became the first player since Larry Bird.
+- [09:57.020] How good was Larry Bird?
+- [09:59.990] In 1979 to score 30 points or more
+- [10:02.809] in both the elite 8 and the final four.
+- [10:05.950] That's some --
+- [10:17.310] They like Larry Bird, I do, too.
+- [10:21.070] So, in the championship game against the
+- [10:23.045] Houston Cougars, what became one of the
+- [10:24.971] most hard-fought title games in
+- [10:26.670] college, basketball history.
+- [10:29.170] The first half was a battle over every
+- [10:31.608] point with both teams playing ferocious
+- [10:34.111] defense and the lowest scoring first
+- [10:36.885] half of a championship game since 2011.
+- [10:39.891] The Gators fell behind and it was looking bad.
+- [10:43.690] But in the second half, Florida
+- [10:45.404] stormed back with a 14 and three run.
+- [10:47.810] That's not bad.
+- [10:48.970] With less than 60 seconds left in
+- [10:51.180] the clock, Houston led by one point.
+- [10:53.710] Did you think you're going to win?
+- [10:54.970] Coach Golden: I did.
+- [10:57.090] The President: That's what he gets paid for.
+- [11:02.750] That's good.
+- [11:05.170] Houston then fouled.
+- [11:07.150] Elijah Martin.
+- [11:07.971] Okay, where's Elijah?
+- [11:15.690] Giving him two free throws, which he easily sank.
+- [11:19.950] Were you nervous?
+- [11:20.770] I always think here's a guy,
+- [11:23.150] he's got to sink... It's not that easy.
+- [11:25.370] I can name a couple of very big
+- [11:27.159] players that didn't do too well in that circumstance.
+- [11:30.490] Were you nervous?
+- [11:31.850] Were you...
+- [11:35.860] That's pretty good.
+- [11:37.430] He sank in both coache, right?
+- [11:39.610] Oh, if you didn't sink him, you
+- [11:40.850] wouldn't be up here right now.
+- [11:43.630] And nobody would ever call you again.
+- [11:47.020] That's great.
+- [11:48.190] That's a lot of pressure.
+- [11:49.550] That's a tremendous thing.
+- [11:51.030] Houston fouled
+- [11:52.650] Junior guard Denzel Aberdeen, who
+- [11:54.976] expanded Florida's lead again.
+- [11:57.310] And that's great.
+- [11:57.910] Where's Denzel?
+- [12:03.670] I love that name.
+- [12:05.390] Denzel Aberdeen.
+- [12:06.490] I have a place in Aberdeen, Scotland.
+- [12:08.370] I like that name.
+- [12:11.290] And he's a good player, Coach.
+- [12:13.270] I wouldn't...
+- [12:13.791] I'd like to have him say, no, not that good.
+- [12:17.880] He looked like a good player.
+- [12:19.570] On Houston's final possession, the
+- [12:21.740] Gators clamped down, pressured the ball.
+- [12:24.510] That's right. I saw that game.
+- [12:25.510] That was a crazy game.
+- [12:27.250] And forced to turn over the ball, rolled
+- [12:29.293] loose, and the Gators clinched the
+- [12:31.031] National Championship 65 to 63 in one of
+- [12:34.221] the most exciting games in championships
+- [12:38.140] they've ever had.
+- [12:47.670] That's great coaching.
+- [12:49.351] Lesser teams would have crumbled.
+- [12:51.630] That was a hell of a game, Tim.
+- [12:53.430] What do you think?
+- [12:54.210] Pretty good, right?
+- [12:55.490] That was pretty good.
+- [12:57.890] And under that pressure, very
+- [12:59.434] few teams could have wasted that.
+- [13:01.310] That was an amazing moment, actually.
+- [13:03.150] And those two free throws
+- [13:05.926] by Denzel were pretty amazing.
+- [13:08.670] But time after time, you refused to let up.
+- [13:11.650] I'm going to think of it.
+- [13:12.291] All these close games.
+- [13:13.590] And against great teams, and a lot
+- [13:15.055] of those guys are going into the NBA.
+- [13:17.240] And you won coach.
+- [13:18.610] You just kept winning.
+- [13:19.950] You refused to let up when the odds were against you.
+- [13:22.690] And that's the mark of true champions.
+- [13:24.950] All of you.
+- [13:25.290] The coach is great.
+- [13:26.110] And the team is great.
+- [13:27.770] And the coach feels really...
+- [13:29.351] I asked the first question.
+- [13:30.430] How do you think you'll do this year?
+- [13:31.570] You know, in other words, forget about last year.
+- [13:33.690] How you doing this year, right?
+- [13:35.100] We always think forward coach.
+- [13:36.690] But he said he thinks he's
+- [13:37.730] going to have a fantastic team.
+- [13:39.310] Will you go and rank top five or so or one or maybe?
+- [13:42.831] Coach: I think we'll be top five.
+- [13:43.970] The President: Five, good coach.
+- [13:45.090] That's good.
+- [13:45.371] So if you're top five, that means with
+- [13:46.579] you, it's a coach you're going to win, right?
+- [13:48.110] So I think so.
+- [13:53.790] So again, congratulations to a well-earned victory.
+- [13:57.290] And all I can say is go Gators.
+- [13:58.890] We love you in Florida.
+- [14:01.930] And now Coach Golden, coach?
+- [14:11.010] Well, my passport.
+- [14:14.380] First of all, thank you, Mr. President.
+- [14:16.450] For inviting my team in our program to the
+- [14:18.090] White House to celebrate our
+- [14:19.266] national team championship.
+- [14:20.230] It means everything to us.
+- [14:20.930] So thank you very much.
+- [14:23.410] We're going to go to the Oval Office after this.
+- [14:27.910] Yeah, it's... And then we just want to thank all of our
+- [14:29.936] friends and family and supporters of our
+- [14:31.211] program that are here today, enjoying
+- [14:33.461] this moment and celebrating with us.
+- [14:35.670] If it wasn't for your all support
+- [14:37.409] all year, we wouldn't be here.
+- [14:39.090] So thank you all very much.
+- [14:41.630] Mr. President, I'd like to think of our
+- [14:43.531] program similarly to how you
+- [14:44.970] think of the United States.
+- [14:46.130] We're a meritocracy.
+- [14:47.350] All right, we work really, really hard
+- [14:48.543] no matter what you look like or where you come from.
+- [14:50.695] If you put the team first and
+- [14:52.363] win, we're going to play you.
+- [14:54.570] And we have a program full of that.
+- [14:56.091] Guys that have great attitudes, great work ethics.
+- [14:57.850] I think it's most importantly, want
+- [14:59.250] to be at the University of Florida.
+- [15:00.930] All right.
+- [15:01.310] We have a young men that have great
+- [15:03.074] physical tools, great basketball talent.
+- [15:05.550] In fact, as Mr. President said,
+- [15:07.186] a number of these guys will be
+- [15:08.771] participating in the NBA next year
+- [15:10.539] or when their time at Florida is up.
+- [15:12.750] But the reason why we were successful this
+- [15:14.365] year is we had incredible team talent.
+- [15:15.850] We had guys that were willing to play
+- [15:18.051] together, sacrifice individual stats and
+- [15:20.431] records for the greater good of the group.
+- [15:22.640] And it led us to a 36 and 4 record
+- [15:24.441] and a trip to the White House.
+- [15:34.240] I'm incredibly proud of my players and our
+- [15:36.570] staff in the work that we've done over the last year.
+- [15:40.720] And our goal is to do everything we can to
+- [15:42.280] put ourselves in position to be here again next year.
+- [15:44.180] But we've got a lot of work to do in the meantime.
+- [15:47.420] But again, Mr. President, thank you so much.
+- [15:49.840] And to show a token of our appreciation,
+- [15:52.269] we have an autographed team basketball and
+- [15:54.821] a Donald Trump jersey with number 47 on it.
+- [16:01.150] All right.
+- [16:02.350] To honor your 47th term as President
+- [16:03.875] of the United States of America.
+- [16:13.420] Thank you all very much.
+- [16:14.381] Go Gators.
+- [16:23.500] The President: (inaudible) not sure they'll want to,
+- [16:24.880] I think the most exciting room anywhere
+- [16:26.870] in the world is called the Oval Office.
+- [16:29.760] And I'm going to invite the coach
+- [16:31.353] and the team down to the Oval Office.
+- [16:33.141] I might even ask our great representatives.
+- [16:35.980] Senators, Marco, everybody to come down with them.
+- [16:38.581] And we'll take some pictures in the Oval
+- [16:40.282] Office and I have a special little coin
+- [16:41.941] for them, a really nice coin.
+- [16:44.120] I hope they never lose it.
+- [16:45.400] Because if they do, it's a lot of money that coin.
+- [16:49.380] But, so let's see.
+- [16:50.500] Do you want to go to the Oval Office?
+- [16:51.720] Gators Team: Yes, sir.
+- [16:53.200] The President: I thought they were going to say that.
+- [16:55.060] Thank you all very much.
+- [16:56.221] Great team, great, great everything.
+- [16:58.440] Thank you.
+- [16:59.640] Fantastic.
+- [17:00.200] Thank you very much.
+- [17:01.200] (applause)
+- [17:09.200] ♪(music playing)♪

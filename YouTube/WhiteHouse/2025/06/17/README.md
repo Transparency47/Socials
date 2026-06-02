@@ -1,0 +1,31 @@
+# YouTube / WhiteHouse / 2025-06-17
+
+- Posts: 9
+
+- [23:59 UTC - Moms for Liberty, Parents Defending Education Action, & American Moms Support One Big Beautiful Bill](0mgzEFWpmek/)
+  - Source: https://www.youtube.com/watch?v=0mgzEFWpmek
+  - [00:00.000] I'm Tina Descovich, the CEO and - [00:02.000] co-founder of Moms for Liberty. I'm - [00:03.760] Nikki Neely, the executive director of - [00:05.359] PTE Action. Hi, I...
+- [23:59 UTC - Moms for Liberty, Parents Defending Education Action, & American Moms Support One Big Beautiful Bill](uESTwU4Qj58/)
+  - Source: https://www.youtube.com/watch?v=uESTwU4Qj58
+  - [00:00.000] I'm Tina Descovich, the CEO and  cofounder of Moms for Liberty. - [00:03.600] I'm Nicki Neily, the Executive  Director of PDE Action. - [00:06.240] Hi. I'm Colette Ca...
+- [23:31 UTC - Army 250 Parade: "I will support and defend the Constitution of the United States" 🇺🇸](DgACskODS8w/)
+  - Source: https://www.youtube.com/watch?v=DgACskODS8w
+  - [00:00.160] This morning, as many as 200,000  people expected in Washington, D.C., - [00:04.000] to celebrate the 250th  anniversary of the U.S. Army. - [00:07.120] The National...
+- [23:31 UTC - Army 250 Parade: "I will support and defend the Constitution of the United States" 🇺🇸](IiW8CyEveaY/)
+  - Source: https://www.youtube.com/watch?v=IiW8CyEveaY
+  - [00:00.160] This morning, as many as 200,000 people - [00:02.320] expected in Washington DC to celebrate - [00:04.560] the 215th anniversary of the US Army and - [00:07.279] Nati...
+- [16:42 UTC - The Story of America: The Battle of Bunker Hill](0fH4iJie8U/)
+  - Source: https://www.youtube.com/watch?v=_0fH4iJie8U
+  - [00:03.500] (Blend of Famous American History Quotes) - [00:38.365] (intermittent cannon and gunfire) - [00:46.730] Walter Borneman: The spring of 1775, 250 years ago, - [00:52.7...
+- [16:28 UTC - President Trump Participates in a Pull Aside with the Prime Minister of the United Kingdom](JhJ9WO5nlu4/)
+  - Source: https://www.youtube.com/watch?v=JhJ9WO5nlu4
+  - [00:00.880] Okay, thank you very much. Uh, we all - [00:03.600] know the great prime minister of the UK - [00:05.759] and we just signed a document. This is - [00:09.280] Sorry a...
+- [13:08 UTC - President Trump Gaggles with the Press on Air Force One, June 17, 2025](3XXJyE2lIT8/)
+  - Source: https://www.youtube.com/watch?v=3XXJyE2lIT8
+  - [00:01.580] The President: It's going well. Did everybody have a good time? - [00:06.200] I did. I always have a good time. - [00:08.950] The Press: You just posted right before...
+- [01:52 UTC - One Big Beautiful Bill: NO TAX ON OVERTIME](5pbMl0AvAgU/)
+  - Source: https://www.youtube.com/watch?v=5pbMl0AvAgU
+  - [00:06.000] Yeah. - [00:09.920] Money money money. - [00:16.340] [Music] - [00:20.940] [Applause]
+- [01:52 UTC - One Big Beautiful Bill: NO TAX ON OVERTIME](b5kK1eG4A8Y/)
+  - Source: https://www.youtube.com/watch?v=b5kK1eG4A8Y
+  - [00:06.000] Yeah. - [00:09.920] Money money. - [00:16.340] [Music] - [00:19.520] Money money.

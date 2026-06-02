@@ -1,0 +1,579 @@
+<!-- source: https://www.youtube.com/watch?v=WwBzHksi9QE -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: WwBzHksi9QE -->
+<!-- date_published: 2025-12-07T23:48:01+00:00 -->
+<!-- date_accessed: 2026-06-02T02:40:32.351931+00:00 -->
+
+# Transcript: President Trump and the First Lady Arrive at the Kennedy Center Honors
+
+- [00:28.230] The Press: This is one of the most prestigious times
+- [00:34.360] in American parts when you were hosting on the night,
+- [00:37.730] first President to do that. What does this mean to you
+- [00:40.890] personally chairman of the commission?
+- [00:42.590] The President: Well it's very exciting being chairman,
+- [00:44.790] but maybe more importantly
+- [00:46.330] saving this incredible structure,
+- [00:48.940] building and concept and it's done so well
+- [00:51.910] and we've raised a tremendous amount of money tonight
+- [00:54.780] for building itself for the chairs
+- [00:57.010] and then what really happens
+- [00:59.650] when you see the way it's been perceived,
+- [01:02.990] like it's never been enjoyed.
+- [01:05.060] And this building, this building is going to be
+- [01:08.460] going back to life when we started.
+- [01:10.970] And it'll be better than it was from day one.
+- [01:12.730] The Press: Do (inaudible)
+- [01:13.930] represent the storytelling of Americans
+- [01:16.900] like what are these
+- [01:19.120] (inaudible)?
+- [01:20.470] The President Well we have a great honorary
+- [01:22.050] and this is a group that's really
+- [01:23.990] (inaudible). I think it's one of the --
+- [01:27.710] over the years I've been watching
+- [01:29.620] we've had some wonderful honorees,
+- [01:31.030] but I think this is I believe very much unparalleled.
+- [01:34.140] So we'll see how it turns out. I think it's going to be great.
+- [01:37.070] The Press: Okay, firstly Melana,
+- [01:38.320] can I ask you about your upcoming video?
+- [01:40.280] Can you tell us anything about that as well?
+- [01:56.270] (inaudible).
+- [02:00.960] You have celebrated the arts and design,
+- [02:03.790] the part of your journey, and all this
+- [02:05.220] (inaudible).
+- [02:06.420] The President Well a (inaudible)
+- [02:07.710] meeting will bring it back to the Capitol, Washington, DC.
+- [02:10.580] You look back a year ago, it was a very unsafe place.
+- [02:14.320] Beautiful but unsafe.
+- [02:15.630] But it wasn't properly kept, it's not in good condition.
+- [02:19.260] Now it's in very good condition and as you know
+- [02:20.870] (inaudible)
+- [02:22.070] go down to a level that no one's ever seen here before.
+- [02:25.180] So we're very proud. Thank you very much.
+- [02:33.210] The Press: Do you think the center will eventually make
+- [02:34.730] (inaudible)?
+- [02:35.930] The President I don't know, I hear that, but I don't know.
+- [02:39.220] It's not up to me. That's up to the board.
+- [02:40.750] The board makes that decision. I have a very prestigious board.
+- [02:44.230] If you look at the names,
+- [02:45.470] I don't think there's a board like it.
+- [02:47.440] So that would be up to the board.
+- [02:49.970] Yeah. Say it?
+- [02:51.320] The Press: (inaudible)
+- [02:52.520] The President Well I think maybe not.
+- [02:56.850] This is about the Kennedy Center. Thank you.
+- [02:58.500] The Press: (inaudible)
+- [02:59.700] The President Yeah.
+- [03:02.030] Well that's got to go through a process
+- [03:03.610] and we'll see what happens.
+- [03:04.940] It's a -- Netflix's a great company
+- [03:07.400] and they've done a phenomenal job.
+- [03:09.030] Ted is a fantastic man, I have a lot of respect for him.
+- [03:12.040] But it's a -- it's a lot of market share.
+- [03:14.310] So we'll have to see what happens.
+- [03:15.600] The Press: (inaudible)
+- [03:16.800] The President I should -- I looked at a list today.
+- [03:21.420] I can't tell you that yet.
+- [03:23.240] But a a lot of people want to be on my list.
+- [03:26.080] You'd like to be on the list.
+- [03:27.700] The Press: (inaudible)
+- [03:29.280] The President Well maybe. I haven't prepared.
+- [03:35.420] Maybe you want to be a little bit loose.
+- [03:38.190] If you look at the great hosts, Johnny Carson,
+- [03:40.980] Bob Hope, those are the greats.
+- [03:43.620] If you look at the not so greats like Jimmy Kimmel,
+- [03:46.870] who's just terrible.
+- [03:48.640] But no, I think you you want to be just loose.
+- [03:52.660] Not a lot to prepare for --
+- [03:54.300] I think, you know what you have to be, you have to be yourself.
+- [03:57.400] The Press: (inaudible)
+- [03:59.280] more Johnny Carson or Don Rickles?
+- [04:01.520] The President Well I knew them both
+- [04:02.790] and they were both great guys and friends of mine.
+- [04:06.150] Both difficult, but great.
+- [04:09.090] I mean I was really very close to both of them.
+- [04:13.070] You can't compare them, they were very different.
+- [04:15.570] But Johnny Carson for hosting was top of the line.
+- [04:20.200] The Press: President Trump,
+- [04:21.400] Jesse Waters has a question for you.
+- [04:23.790] What was your favorite moment of 2025 in the year?
+- [04:26.400] The President I think when Jesse Waters interviewed me.
+- [04:31.760] Such a phenomenal interview.
+- [04:34.220] He's a great guy and you're a great guy.
+- [04:35.910] You're doing a very good job out there. I'm proud of you.
+- [04:37.870] The Press: Thank you so much, President Trump.
+- [04:39.110] (inaudible)?
+- [04:40.310] The President Oh, that's a long list.
+- [04:44.790] I better not tell you
+- [04:46.070] it's got a problem out there in the world.
+- [04:48.380] No, we have a a pretty big naughty list,
+- [04:50.910] but our country is doing well.
+- [04:52.820] We're the hottest country anywhere in the world right now.
+- [04:56.110] And a year ago we were a dead country.
+- [04:58.110] We're a dead country that was laughed at all over the world.
+- [05:00.340] We're the hottest country in the world.
+- [05:02.670] And Jesse Waters is terrific.
+- [05:04.260] The President Mr. President, (inaudible)
+- [05:07.420] overturning your authority on a on tariffs,
+- [05:10.620] (inaudible)?
+- [05:11.820] The President Well, we have a right
+- [05:14.960] to go a different form of tariffs.
+- [05:16.550] We have a right to go licensing,
+- [05:18.390] we have a right to go other ways.
+- [05:19.890] But the form of tariffing, as we call it,
+- [05:24.300] the form of the current form of tariffing
+- [05:26.090] that's before the court gives us a great national security
+- [05:29.680] more than anything else because it allows the President
+- [05:31.870] to act quickly and effectively, swiftly, and make a decision.
+- [05:36.740] And as you know, I ended eight wars.
+- [05:39.140] We tried to end a ninth,
+- [05:40.590] and we thought this would be maybe one of the easier ones.
+- [05:43.170] We just did Rwanda and Congo.
+- [05:46.150] And that was going on for 30 years.
+- [05:48.650] The Russia and Ukraine,
+- [05:50.230] I thought it was going to be a little bit easier,
+- [05:51.730] but it's not being made easy.
+- [05:53.800] It's a very tough war, very nasty.
+- [05:55.600] 47,000 people died last month, mostly soldiers.
+- [06:00.020] I will say that all I really think
+- [06:04.250] this is really a night of joy tonight
+- [06:06.220] because of what's happening with this building.
+- [06:07.860] It's going to be fantastic when you see the end product,
+- [06:10.780] it's going to be better than it was new,
+- [06:12.390] and I think we'll celebrate that,
+- [06:13.990] but I will say that our country is doing really well.
+- [06:16.510] The President (inaudible)
+- [06:17.760] expressed concern about using the tariffs,
+- [06:21.680] the revenue for a dividend,
+- [06:23.930] saying we should be paying down the national debt.
+- [06:25.630] The President Well we will. I agree with them on that,
+- [06:27.290] but I also think that you know we're making so much money
+- [06:29.510] with tariffs that we'll also be able to make a nice dividend
+- [06:32.650] to middle income people.
+- [06:34.120] We're talking about middle income and lower income people.
+- [06:36.720] We're not talking about dividends to rich people.
+- [06:39.280] But there's so much money being made from the tariffs,
+- [06:42.940] and countries that were taking advantage of us for many,
+- [06:45.910] many years are not taking advantage of us anymore.
+- [06:48.390] We're taking in tremendous amounts of money
+- [06:50.540] from countries that we'll we were losing lots of money to.
+- [06:53.380] And you know what? They're okay with it.
+- [06:54.980] They're not complaining.
+- [06:56.190] They're not complaining about the tariffs,
+- [06:57.590] and rather not have them,
+- [06:58.890] but they're not saying there's anything wrong.
+- [07:01.110] And the big thing is in the court,
+- [07:04.080] we have tremendous flexibility with the current system.
+- [07:08.450] It's unbelievable for national security.
+- [07:11.010] I've ended eight wars, largely because of trade
+- [07:13.680] and because of tariffs. If we go the other tariff route,
+- [07:17.020] and there are other routes we can go,
+- [07:19.050] but it won't give you the same pure national security
+- [07:21.720] as this one.
+- [07:23.070] This one is swift and very powerful.
+- [07:25.080] The Press: Mr. President,
+- [07:26.360] what's the next step in Russia and Ukraine talks?
+- [07:28.710] What's your next step in Russian (inaudible)?
+- [07:30.260] The President So we've been speaking to President Putin
+- [07:34.480] and we've been speaking to Ukrainian leaders,
+- [07:37.650] including Zelensky, President Zelensky.
+- [07:41.960] And I have to say that I'm a little bit disappointed
+- [07:44.360] that President Zelensky hasn't yet read the proposal.
+- [07:47.380] That was as of a few hours ago. His people love it.
+- [07:51.380] But he has Russia's fine with it.
+- [07:53.680] Russia's you know Russia's Russia,
+- [07:56.780] I guess would rather have the whole country
+- [07:58.310] when you think of it.
+- [08:00.060] But Russia is I believe fine with it,
+- [08:02.900] but not sure that Zelensky is fine with it,
+- [08:05.710] his people love it. But he hasn't read it.
+- [08:10.040] So someday you'll explain that one to me, Jeff.
+- [08:16.440] Raymond, thank you very much.
+- [08:17.730] Good job you're doing. Say hello. Thank you.
+- [08:19.410] The President (inaudible)
+- [08:20.990] Sylvester Stallone do
+- [08:22.200] as a Hollywood ambassador in Hollywood?
+- [08:24.790] The President He is automatic, I mean as far as I'm concerned.
+- [08:27.740] He is one of the ambassadors as you know.
+- [08:30.400] And he's already been doing that.
+- [08:32.310] Look, all he has to do is be himself.
+- [08:35.430] If Sly is himself, that's all he can be.
+- [08:37.430] If he tries to be somebody else, it wouldn't be good.
+- [08:40.510] He's a great guy, he's done a fantastic job,
+- [08:42.620] and he really deserves this honor.
+- [08:44.620] You know, it's something he's wanted for years.
+- [08:47.560] And this is bigger than it's ever been.
+- [08:49.380] I mean I don't want to say why, I refuse to say why,
+- [08:52.840] but you take a look at this line last --
+- [08:54.730] late year last year, if you look at
+- [08:57.120] (inaudible) it was not this.
+- [08:58.550] It was a different -- it was a different thing.
+- [09:00.380] The Press: Why are you and the First Lady
+- [09:01.860] that's spending so much time,
+- [09:04.150] so much energy in revivifying and remaking the Kennedy Center?
+- [09:08.520] The President It's not the Kennedys.
+- [09:10.000] We're -- and we are --
+- [09:11.320] look Bobby Jr.'s doing a fantastic job.
+- [09:14.720] It's not the Kennedys, it's our country.
+- [09:17.350] We're bringing our country back
+- [09:18.830] and we're bringing DC back, Washington, DC.
+- [09:21.140] We're bringing our capital -- it's a safe place now.
+- [09:23.770] It's a very unsafe. The center itself.
+- [09:25.930] Why are you so focused on revivifying?
+- [09:28.090] Because it could never be built again.
+- [09:30.890] It's got three massive places (inaudible).
+- [09:33.360] You have different stages, dance, theater,
+- [09:37.140] and you have a place that we're going to be in tonight
+- [09:39.470] that there's really nothing like it in the country.
+- [09:43.010] And if this disappeared, you'd never be able to build it again.
+- [09:46.510] And I'm able to save it because that's what I used to do
+- [09:48.820] for a living, really is well,
+- [09:50.250] make it better than anybody else.
+- [09:51.660] I could take something and spend less money than other people
+- [09:55.270] and make it better than anybody else,
+- [09:57.360] but the Kennedy Center has a chance to be unbelievable.
+- [10:00.080] And you know, I mentioned yesterday
+- [10:01.560] something very important, sound.
+- [10:04.430] It's like sometimes you could say like people,
+- [10:07.090] you either have it or you don't. Great sound in this building.
+- [10:10.880] A lot of times, and you know the Lincoln Center sound,
+- [10:14.150] they've rebuilt one building, most important building,
+- [10:16.940] they rebuilt it four times,
+- [10:19.090] and they've never been able to produce really great sound.
+- [10:22.440] The sound in the Kennedy Center
+- [10:24.100] has been incredible from day one.
+- [10:26.310] Call it luck or talent. Probably luck.
+- [10:28.840] There's a lot of luck (inaudible).
+- [10:30.620] You know, the great sound buildings,
+- [10:31.980] the greatest in the world, are the old opera houses
+- [10:34.290] built in the 17 and 1800s in Europe.
+- [10:37.500] And they had one thing that was in common, lots of marble.
+- [10:42.040] And they didn't have sound engineers,
+- [10:44.140] they had lots of marble.
+- [10:45.370] And this is -- this is has got great sound.
+- [10:48.740] Even right here in the hallway, the sound is fantastic.
+- [10:51.950] Thank you very much, Raymond.
+- [10:53.500] The Press: (inaudible).
+- [10:58.160] I'm just curious to know how they have impacted
+- [10:59.760] your own personal journey
+- [11:00.990] (inaudible).
+- [11:02.190] The President Well, are you talking about the five honorees?
+- [11:04.500] The five group -- the group with the five honorees.
+- [11:07.000] They are outstanding people. I had to approve them all.
+- [11:11.340] And every one of them, very different.
+- [11:13.600] I said last night, totally different,
+- [11:15.470] totally different audience, but when you add them up,
+- [11:17.840] they're a hundred percent of our country.
+- [11:20.070] And a big percentage of the world.
+- [11:22.290] So we have great honorees. It's going to be a lot of fun.
+- [11:25.220] You can have a good time tonight.
+- [11:26.720] Thank you.
+- [11:28.700] The President Ms. President,
+- [11:31.700] now we know that your hosting board
+- [11:34.260] (inaudible).
+- [11:35.620] Could you imagine next year maybe you're not hosting,
+- [11:37.940] but maybe you receive it?
+- [11:39.760] The President That's an interesting one.
+- [11:42.950] I haven't thought of that.
+- [11:44.920] Yeah, I think I'm going to nominate myself for next year.
+- [11:50.050] The Press: Every day you have such a big job
+- [11:51.400] being the President. How why was it important for you
+- [11:53.720] to actually host this show tonight?
+- [11:55.820] And how much time did you spend getting ready for it?
+- [11:57.530] The President Well, it wasn't important for me other than
+- [12:00.890] if I get much higher ratings,
+- [12:02.720] if it's a more successful show that I'm contributing.
+- [12:05.090] I get nothing. I don't make money with it.
+- [12:07.410] I don't do anything.
+- [12:08.660] It's a little bit of work, not a lot of work.
+- [12:11.040] I look forward to doing it, but the network said,
+- [12:13.460] would it be possible to get the President to host?
+- [12:16.510] And I love the concept of no
+- [12:18.170] President has ever hosted the Kennedy Center honorees.
+- [12:22.690] And it's very important that this building be great.
+- [12:25.960] And that this building remain really,
+- [12:27.640] you know, I saved the building.
+- [12:29.190] You know, we raised a lot of money tonight,
+- [12:30.700] tremendous record numbers of dollars.
+- [12:32.590] A lot of money.
+- [12:33.840] And we've raised over a hundred million dollars
+- [12:36.540] over the last very short period of time.
+- [12:38.270] That's a lot of money.
+- [12:39.690] And that money goes into the rejuvenation
+- [12:42.390] and the rebuilding of the building.
+- [12:43.830] And a lot of it's -- a lot of it's already taken place.
+- [12:46.090] A lot of the things
+- [12:47.320] that you don't see have already taken place.
+- [12:49.890] (inaudible)
+- [12:52.200] locals who come to the Kennedy Center
+- [12:53.920] who live here when will we start to see all the changes?
+- [12:56.130] Do you have a timeline for when this will all be wrapped up?
+- [12:58.480] The President Over the next four or five months,
+- [12:59.930] we're going to have it very well (inaudible).
+- [13:01.870] You see the outside, the columns are beautiful.
+- [13:04.420] You know, they had a fake gold color
+- [13:06.060] and now they're beautiful, gleaming white.
+- [13:08.350] And everyone's talking about that.
+- [13:09.620] It sounds like not much of a change, it's a massive change.
+- [13:12.280] You know, the white against the white marble.
+- [13:14.500] The marble is being rejuvenated. They're great pieces of marble,
+- [13:17.460] but they've been let go and they've been tired.
+- [13:21.200] And I always say you can take a hundredth of an inch
+- [13:24.560] off of a piece of marble
+- [13:25.810] and you have a brand new piece of marble,
+- [13:27.240] but nobody does that. It's not an easy process.
+- [13:29.400] But if you look upon the outside of the building,
+- [13:32.240] people see already a very big one.
+- [13:35.390] The Press: (inaudible).
+- [13:36.670] Yeah, she's got great taste.
+- [13:37.950] I'll ask her. I'll ask her her opinion.
+- [13:40.080] She liked the white as opposed to the fake gold.
+- [13:42.730] But they had the fake gold.
+- [13:44.910] You know, the one thing about gold,
+- [13:46.180] you can never imitate real gold.
+- [13:49.280] They've tried to do it for years, paint, gold paint.
+- [13:52.330] Gold paint never works.
+- [13:54.010] You got to go for the real 24 karat gold. Yes.
+- [13:56.170] The President (inaudible)
+- [13:57.990] President other than yourself who you think would have done
+- [14:00.130] a good job hosting (inaudible)?
+- [14:01.420] The President Hosting, yes, building no.
+- [14:04.600] You have a couple of you know politicians.
+- [14:08.420] They're very good on their feet, most of them.
+- [14:10.210] I would say the last one
+- [14:11.490] wouldn't have done too well hosting.
+- [14:14.460] But you know, we've had some great politicians.
+- [14:16.660] Excuse me, John F. Kennedy
+- [14:18.000] would have done a very good job hosting.
+- [14:20.650] But building no.
+- [14:22.320] No, I will build better than anybody.
+- [14:23.990] I build better than anybody. Thank you. Say it?
+- [14:27.470] The Press: $23 million was made tonight
+- [14:32.130] nearly doubling last year. Why do you think that is?
+- [14:34.920] The President Maybe we had something to do with it.
+- [14:37.600] I don't know. We doubled up last year.
+- [14:39.990] It's really much more than that
+- [14:41.440] because we've raised we've done over a hundred,
+- [14:44.020] not including tonight,
+- [14:45.250] we've done over a hundred million dollars already.
+- [14:47.580] And those are numbers
+- [14:48.810] that the Kennedy Center has never seen before.
+- [14:51.120] It's doing really well. Thank you for that question.
+- [14:55.990] Say it?
+- [14:57.230] The Press: You've done so much for American greatness.
+- [14:59.030] Talk to the next generation about how important the values
+- [15:01.870] are that you're celebrating tonight
+- [15:04.000] are to American greatness.
+- [15:05.340] Things like self-discipline, creativity, talent,
+- [15:07.610] those things.
+- [15:08.840] The President Well the young generation
+- [15:10.510] I think is going to grow up strong.
+- [15:12.460] We have a very different country than we had a year ago.
+- [15:15.510] A year ago we had a country that was in big trouble.
+- [15:18.480] Now we have a country that's the talk of the world,
+- [15:20.790] and everybody's respecting us again,
+- [15:23.370] and young people are respecting us again too.
+- [15:25.260] I won the young vote.
+- [15:26.520] The Republicans never win the young vote.
+- [15:28.810] I won it easily.
+- [15:30.660] And I want to thank Charlie and I want to thank TikTok,
+- [15:34.220] and there are a lot of reasons for it.
+- [15:36.510] But there's never been a Republican
+- [15:39.520] who won the young vote,
+- [15:40.770] and I won the very young vote, so that's a good sign.
+- [15:45.530] The Press: Mr. President?
+- [15:46.850] Why did you select Kiss for being honor this evening?
+- [15:48.760] Do you have a favorite Kiss song.
+- [15:50.100] The President Well, I I like them as people.
+- [15:53.670] I've listened to their music over the years.
+- [15:56.100] Characters to really are.
+- [15:58.420] I don't know if you saw last night
+- [15:59.860] the speeches, they were great.
+- [16:01.250] They really made some great speeches last night.
+- [16:03.720] And they're very popular. A lot of people, you know,
+- [16:05.900] a lot of people write in and ask us to select.
+- [16:08.720] So like think of it.
+- [16:10.430] Sylvester Salone was not picked for any of this stuff.
+- [16:13.900] He's one of the greatest movie stars of all time.
+- [16:16.240] Based on revenue, based on, you know,
+- [16:18.570] Rocky and Rambo and the numbers. No, I I doubt --
+- [16:21.930] maybe there's a couple of stars that have done something equal,
+- [16:25.660] but really there's nothing like it.
+- [16:27.170] So we're going to have a very exciting night.
+- [16:28.680] But Kiss is terrific.
+- [16:29.890] The Press: Mr. President, what are you -- two questions?
+- [16:34.090] What are you looking forward to most about listening tonight?
+- [16:36.710] And number two, Secretary Duffy
+- [16:38.700] says you are the master of the playlist
+- [16:41.000] out on the Rose Garden club.
+- [16:42.370] What's your favorite song to listen to on the Rose Guard?
+- [16:44.070] The President Well I have so many different songs
+- [16:46.450] and I mean look Lee Greenwood really hit big with that.
+- [16:50.010] He it was from day one that was --
+- [16:52.470] we put it on the first rally and we never --
+- [16:54.490] we never took it off and he's great.
+- [16:56.820] But I have a lot of favorites and I can tell you
+- [16:58.660] that we both love Elton John,
+- [17:00.420] special man, special guy, and he's a real talent.
+- [17:05.460] We like a lot of different -- I like a lot of different songs,
+- [17:08.530] a lot of different types of music.
+- [17:09.850] I have a good playlist. Thank you.
+- [17:12.150] The Press: What would you like to see for America's 250
+- [17:14.060] here at the Kennedy Center? What would you like to see?
+- [17:16.520] The President Well, we're going to have a lot of events.
+- [17:19.050] You know, one of the things you're going to have here
+- [17:20.950] is some of the UFC press.
+- [17:24.370] You're going to have the fighters
+- [17:25.690] coming over talking about the fights.
+- [17:27.200] It's a big deal. The UFC on June 14th.
+- [17:29.740] It's going to be June 14th next year.
+- [17:32.450] And they're building an arena.
+- [17:33.940] The Great Dana White's building an arena.
+- [17:36.490] And they're going to have eight or nine championship fights,
+- [17:38.710] the biggest fights they've ever had.
+- [17:39.990] Everyone's a championship fight.
+- [17:42.250] And everyone's a legendary type of fight.
+- [17:44.230] He's actually holding back fights right now for six months
+- [17:47.850] so he can do it for this -- the 250.
+- [17:50.750] I think 250 is going to be amazing.
+- [17:52.320] I think the arena is going to be 5- or 6,000 seats
+- [17:55.860] right in front of the front door of the White House,
+- [17:58.070] and a hundred thousand people in the back
+- [18:00.170] where they're putting up eight or ten very big screens.
+- [18:02.820] That's going to be an exciting night.
+- [18:05.180] So many people are asking for tickets, the UFC. Thank you.
+- [18:07.350] The Press: (inaudible)
+- [18:08.550] The President I did.
+- [18:12.960] I met with Ted. I think he's fantastic.
+- [18:14.960] I think he's in the history of Hollywood,
+- [18:17.240] it's really been almost you could say
+- [18:19.840] nothing like what he's done. You'd go back to Louis B.
+- [18:22.880] Mayor, maybe, Metro Golden Mayor, MGM.
+- [18:26.740] Ted has done an incredible job. I mean, he had a company
+- [18:29.160] that was very troubled seven or eight years ago,
+- [18:31.150] and he took it over and he he's really done a legendary job.
+- [18:35.500] The Press: Should they be allowed to buy Warner Brothers?
+- [18:37.770] The President Well, that's the question.
+- [18:39.360] They have a very big market share.
+- [18:41.810] And when they have Warner Brothers, you know,
+- [18:43.400] that share goes up a lot. So I don't know.
+- [18:45.130] That's going to be for some economists to tell.
+- [18:47.970] And also, and I'll be involved in that decision too.
+- [18:50.730] But they have a very big market share.
+- [18:53.300] The Press: Did he make any guarantees to you
+- [18:55.090] about the merger if they do merge?
+- [18:56.860] The Press: No, no, not at all.
+- [18:58.100] He came up, he was in the Oval Office last week.
+- [19:00.770] I have a lot of respect for him.
+- [19:02.330] He's a great -- he's a great person.
+- [19:04.750] But he's done one of the greatest jobs
+- [19:06.470] in the history of movies and other things.
+- [19:09.690] He's and he's got a lot of interesting things
+- [19:12.260] happening aside from what you're talking about.
+- [19:15.050] But it is a big market share,
+- [19:16.500] there's no question about it. It could be a problem.
+- [19:18.410] The Press: Mr. President,
+- [19:19.650] you mentioned some of your favorite songs,
+- [19:21.350] in your opinion of what makes a song great?
+- [19:24.360] The President Well, it's something that has to be soft
+- [19:26.750] and soothing to your ear.
+- [19:28.810] I like some songs that other people don't like, you know.
+- [19:31.630] That's why they have -- you ever hear the expression,
+- [19:33.810] that's why they have menus and restaurants.
+- [19:35.400] We're all different. We all order different things.
+- [19:37.550] Otherwise you just serve one meal and that would be it.
+- [19:39.760] The Press: Are you a country music fan?
+- [19:41.130] The Press: I love country music.
+- [19:42.450] And we have hey, we have the king of country music tonight.
+- [19:46.460] So that's another one.
+- [19:47.760] The Press: President Trump, will you rename
+- [19:48.980] the Kennedy Center, the Trump Center?
+- [19:51.060] The President It's not up to me. We have a board of 40 people
+- [19:55.740] that are really the most prestigious people
+- [19:58.590] in the United States.
+- [19:59.820] We have the honorary chairwoman on the board, right.
+- [20:03.260] As the First Lady, she's honorary chairwoman.
+- [20:05.310] But we have it's a really prestigious board
+- [20:07.660] and that's up to them.
+- [20:08.920] I I don't know what they're doing about that.
+- [20:13.110] We are saving the Kennedy Center.
+- [20:14.930] The Press: And can you tell us
+- [20:16.140] how did you choose the nominees today, the winners today?
+- [20:19.370] Yeah, we went through probably fifty different names.
+- [20:22.250] We were politicked by a lot of people,
+- [20:24.820] some of them the stars themselves.
+- [20:27.090] But we went through fifty names and we picked the five.
+- [20:30.470] And we're very happy with it.
+- [20:32.220] It really very different, very different audiences,
+- [20:35.500] but as I said just down the line,
+- [20:37.800] they're different audiences,
+- [20:39.080] but when you add 'em up it's a hundred percent of the public.
+- [20:41.930] Thank you.
+- [20:43.330] The Press: What did you talk about with Prime Minister Carney
+- [20:47.880] and Mexican President Sheinbaum
+- [20:49.730] when you were here just a few days earlier?
+- [20:51.430] The President Mexico and Canada we met with the as you know,
+- [20:56.250] I mean it was pretty -- well a lot of people were here.
+- [20:58.340] Right here we met.
+- [21:00.220] And the Prime Minister of Canada,
+- [21:02.500] President of Mexico, and we spoke for a half hour.
+- [21:06.060] Very good, very productive, talk mostly trade.
+- [21:08.600] The Press: Will you restart negotiations with Canada?
+- [21:10.820] The President Oh well look,
+- [21:12.500] I have a great relationship with Canada.
+- [21:14.360] They're very tough traders,
+- [21:16.070] but I have a very good relationship with the Prime
+- [21:18.510] Minister and with Canada.
+- [21:19.770] The Press: And you had said you would halt
+- [21:21.000] those negotiations earlier after the terror --
+- [21:22.840] The President Well I have halted them.
+- [21:24.230] The Press: And so will you restart them?
+- [21:25.440] The President Yeah, well see.
+- [21:26.640] I mean, you know, the problem is Canada
+- [21:29.150] makes a lot of things that we don't need
+- [21:31.200] because we make them also. But we'll work it out.
+- [21:34.050] Look, Canada's a special place
+- [21:35.650] and they really are good at ice hockey, aren't they?
+- [21:40.290] The Press: What is more difficult, Mr. President,
+- [21:42.290] hosting the Kennedy Center honors
+- [21:44.410] or preparing for the State of the Union.?
+- [21:47.870] The President Well I'll --
+- [21:49.120] could I answer that question after the show's over?
+- [21:51.280] The Press: If you give it to me, absolutely.
+- [21:52.930] The President I'll give it to you after the show's over.
+- [21:54.920] This is a little bit different. But you know I hosted
+- [21:57.310] The Apprentice when it was the number one show on television.
+- [21:59.830] We did 42.5 million people that night.
+- [22:03.240] It was a little different television than it is now.
+- [22:05.750] We had more people watching in those days.
+- [22:07.610] The Press: What are you expecting, Mr. President,
+- [22:09.170] in terms of ratings for this year's Kennedy Center.
+- [22:11.470] The President I think it'll do great.
+- [22:12.950] I think it's going to do great.
+- [22:14.310] Ratings are complicated now because you have streaming
+- [22:16.600] added on and everything else, but I think it'll do very big.
+- [22:20.170] I mean just look,
+- [22:21.390] I mean just based on what you see right here.
+- [22:23.890] If you if you came here last year
+- [22:26.050] you saw a line that was about one tenth this size.
+- [22:29.590] You weren't even here last year, right?
+- [22:31.230] The Press: How to you prepare
+- [22:34.010] for hosting this year's Kennedy Center?
+- [22:35.750] You have so much on your plate.
+- [22:37.140] The President I do, I have a lot on my plate,
+- [22:38.860] and I didn't really prepare very much.
+- [22:40.710] I read a little bit. I have a good memory,
+- [22:43.200] so I can remember things, which is very fortunate.
+- [22:45.600] But it just -- I want to just be myself
+- [22:47.710] and so you have to be yourself.
+- [22:48.950] Johnny Carson, he was himself. Thank you everybody.
+- [22:52.100] The Press: (inaudible)
+- [22:57.090] is now better serving all Americans?
+- [22:58.700] The President I think it is.
+- [23:00.020] I think it's been it's been really enhanced very greatly
+- [23:04.410] over the last ten months, meaning since we've been here.
+- [23:07.360] And we're making it great.
+- [23:08.630] We're going to make it physically great as a building.
+- [23:10.940] So you won't even believe how beautiful it'll be.
+- [23:13.800] And we saved the Kennedy Center, that's a big thing.
+- [23:16.270] Thank you.

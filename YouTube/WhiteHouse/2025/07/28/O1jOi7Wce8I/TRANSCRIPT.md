@@ -1,0 +1,1679 @@
+<!-- source: https://www.youtube.com/watch?v=O1jOi7Wce8I -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: O1jOi7Wce8I -->
+<!-- date_published: 2025-07-28T14:12:39+00:00 -->
+<!-- date_accessed: 2026-06-02T02:46:31.041104+00:00 -->
+
+# Transcript: President Trump Participates in a Bilateral Meeting with the Prime Minister of the United Kingdom
+
+- [00:04.730] Prime Minister Keir Starmer: Well, let me welcome you,
+- [00:06.960] Mr. President, to Scotland and fantastic
+- [00:10.730] to be here at Turnberry with you.
+- [00:12.140] Thank you so much for showing us around
+- [00:15.030] and having this opportunity to sit in this fantastic ballroom,
+- [00:18.970] which is absolutely incredible.
+- [00:21.900] And to start talking about some of the issues
+- [00:23.780] that are most pressing in your country and in my country.
+- [00:27.280] And in particular, we've had the opportunity
+- [00:29.910] to talk about the situation in Gaza,
+- [00:34.100] the intolerable situation, including images of starvation.
+- [00:39.180] And I think both of us know that we have to get to that ceasefire
+- [00:44.360] and we have to increase humanitarian aid in.
+- [00:47.720] And thank you for what you've already been doing,
+- [00:50.190] are doing and are committed to because without you,
+- [00:54.220] this would not be capable of resolution.
+- [00:57.160] And I think that if we can work
+- [00:59.670] not just on the pressing issues of the ceasefire,
+- [01:04.040] but also on this issue of getting humanitarian aid
+- [01:07.330] in at volume, at speed.
+- [01:09.710] And then we've discussed a plan
+- [01:13.570] for what then happens afterwards.
+- [01:16.660] I think we can do our very best to alleviate
+- [01:20.780] what is an awful situation at the moment.
+- [01:22.540] So thank you very much for the discussion we've had so far
+- [01:27.100] and the discussion we're about to continue
+- [01:28.980] on that really important issue.
+- [01:30.360] But it's fantastic to be here.
+- [01:32.070] The President: Thank you very much.
+- [01:33.280] Prime Minister Keir Starmer: Thank you for your hospitality
+- [01:34.820] and to see this amazing golf course.
+- [01:37.860] I'll invite you to a football ground at some stage
+- [01:41.850] and we can exchange sports.
+- [01:44.470] The President: It's been great being with you
+- [01:45.700] and thank you very much Mr. Prime Minister.
+- [01:47.390] And you've done a fantastic job with regard to the trade deal.
+- [01:51.240] You know they've wanted a trade deal here for years,
+- [01:55.400] many years,
+- [01:56.640] through many different terms of different people,
+- [01:58.740] and you got it done.
+- [02:00.660] So I want to congratulate you on that
+- [02:02.500] and it's a great deal for both.
+- [02:04.770] It brings unity. We didn't need unity,
+- [02:06.830] but it brings us even closer together, I think.
+- [02:10.950] It's good for both parties.
+- [02:13.040] We also discussed obviously Gaza
+- [02:16.010] and I think before we get to phase two,
+- [02:17.810] which is what's going to happen afterwards,
+- [02:19.640] we want to get the children fed.
+- [02:20.990] We made a contribution a week ago of $60 million
+- [02:26.990] all going into food.
+- [02:28.580] We only hope the food goes to the people that need it.
+- [02:31.950] So much as you know, when you do something there,
+- [02:34.770] it gets taken by Hamas or somebody, but it gets taken.
+- [02:40.560] And we're prepared to help. We want to help.
+- [02:43.060] It's a terrible situation. The whole thing is terrible.
+- [02:47.760] It's been bad for many years,
+- [02:50.560] but it's great to hear you feel the same way that I do.
+- [02:52.530] Prime Minister Keir Starmer: Yeah.
+- [02:53.730] The President: We have to help on a humanitarian basis
+- [02:55.460] before we do anything. We have to get the kids fed.
+- [02:58.600] So we've been sending in a lot of food.
+- [03:00.030] A lot of the food that's been going there
+- [03:01.430] has been sent by the United States.
+- [03:04.300] I spoke yesterday with the President
+- [03:06.920] of the European Union, Ursula,
+- [03:10.120] who was terrific also in the subject,
+- [03:11.940] and she's going to play a big role also in helping us.
+- [03:14.960] So we have a good group of countries
+- [03:16.870] that are going to help with the humanitarian needs,
+- [03:19.560] which is food, sanitation and some other things.
+- [03:25.530] It's very difficult to deal with Hamas.
+- [03:27.780] As I said, we got a tremendous amount of hostages out,
+- [03:31.800] but it would take place in drips and drabs.
+- [03:34.540] You'd get 10, you'd get five, you'd get two, you'd get 10, 12,
+- [03:39.400] we get 12 one time.
+- [03:41.120] Many of them would come to the White House
+- [03:42.640] and they were so thankful.
+- [03:43.890] But I always said, when you get down to the final 10 or 20,
+- [03:47.240] you're not going to be able to make a deal with these people
+- [03:49.360] because they use them as a shield
+- [03:51.490] and when they give them up, they no longer have a shield.
+- [03:54.160] And the people of Israel feel so strongly about the hostages.
+- [03:59.440] Some people would take a different view,
+- [04:00.990] but they feel so strongly about the hostages.
+- [04:04.440] So that's an ongoing process.
+- [04:06.820] Hamas has become very difficult to deal with
+- [04:09.620] in the last couple of days
+- [04:12.040] because they don't want to give up these last 20
+- [04:14.860] because they think as long as we have them –
+- [04:16.710] they have them, they have protection.
+- [04:19.760] But I don't think it can work that way.
+- [04:21.240] So I'm speaking to Bibi Netanyahu
+- [04:24.460] and we are coming up with various plans.
+- [04:28.290] We're going to say it's a very difficult situation.
+- [04:31.790] If they didn't have the hostages,
+- [04:33.230] things would go very quickly.
+- [04:35.140] But they do, and we know where they have them in some cases.
+- [04:39.240] And you don't want to go riding roughshod over that area
+- [04:43.170] because that means those hostages will be killed.
+- [04:46.240] Now there are some people that would say,
+- [04:47.710] "Well, that's the price you pay,"
+- [04:49.220] but we don't like to say that. We don't want to say that.
+- [04:52.210] And I don't think the people of Israel want to say
+- [04:53.950] that either, which is pretty amazing.
+- [04:56.110] A lot of people would say, just get it done and whatever it is.
+- [05:00.310] You could also say speed might be better for the hostages,
+- [05:04.050] you go through with speed.
+- [05:06.290] You may have a better chance because in deep trouble.
+- [05:09.340] They're in deep trouble.
+- [05:11.130] You saw October 7th and you saw what the damage
+- [05:14.140] and the horror that they committed.
+- [05:17.350] People can't forget that.
+- [05:19.560] They tend to forget it, but they can't forget.
+- [05:21.320] That was one of the most evil things I've ever seen
+- [05:24.910] and you just cannot forget that.
+- [05:27.190] So we're very much involved, the Prime Minister's involved.
+- [05:30.110] I'm involved. And I think I can speak,
+- [05:32.220] we just signed a very big trade deal,
+- [05:34.410] the biggest of them all yesterday. Right?
+- [05:36.280] Prime Minister Keir Starmer: Yeah.
+- [05:37.520] The President: And the European Union is very much involved
+- [05:40.190] and wanting to help with really the Palestinians
+- [05:45.060] in terms of getting people fed. But the area of Gaza,
+- [05:49.820] another way of defining it is the area of Gaza.
+- [05:53.510] It's a very troubled place,
+- [05:54.980] and it has been for many, many years.
+- [05:56.480] It has been for many decades.
+- [05:58.810] So it's not like this just happened.
+- [06:00.770] This has been on for a long period of time.
+- [06:03.560] So that's it.
+- [06:06.890] Our hearts are in the right place.
+- [06:10.170] We have some good news
+- [06:12.760] because the recent war that you just saw,
+- [06:15.420] they just announced I see, the newest of the five.
+- [06:21.550] Now this would be six that we've stopped.
+- [06:23.260] I've stopped six wars in the last –
+- [06:26.530] I am averaging about a war a month.
+- [06:28.960] [laughter]
+- [06:30.260] But the last three were very close together,
+- [06:32.490] India and Pakistan, and a lot of them.
+- [06:35.230] Congo was just, and Rwanda was just done.
+- [06:39.000] But you probably know, I won't go into it very much
+- [06:42.850] because I don't know the final numbers yet.
+- [06:45.020] I don't know. Numerous people were killed.
+- [06:48.040] And I was dealing with two countries
+- [06:50.630] that we get along with very well, very different countries
+- [06:53.510] from certain standpoints.
+- [06:54.820] They've been fighting for 500 years intermittently.
+- [06:59.660] And we solved that war.
+- [07:02.340] You probably saw it just came out over the wire,
+- [07:04.530] so we solved it through trade.
+- [07:05.930] I said, "I don't want to trade with anybody
+- [07:07.540] that's killing each other." So we just got that one solved.
+- [07:12.010] And I'm going to call the two prime ministers
+- [07:14.080] who I got along with very, very well
+- [07:16.520] and speak to them right after this meeting
+- [07:18.600] and congratulate them.
+- [07:20.990] But it was an honor to be involved
+- [07:22.620] and it was going to be a very nasty war.
+- [07:26.080] Those wars have been very, very nasty.
+- [07:28.790] So we've done a lot of good work.
+- [07:30.770] We've had great support from the Prime Minister.
+- [07:33.240] Anytime we needed help,
+- [07:34.720] anytime we needed any form of support, you've been there.
+- [07:37.780] We appreciate it very much and we're going to continue onward.
+- [07:41.320] We do have to take care of the humanitarian needs
+- [07:44.950] on what they used to call the Gaza Strip.
+- [07:47.020] You don't hear that line too much anymore.
+- [07:48.650] You don't hear the Gaza Strip,
+- [07:50.400] but it is the Gaza Strip and it's amazing.
+- [07:56.860] It's now being handled a little bit differently.
+- [07:59.200] We're going to set up food centers
+- [08:01.810] and we're going to do it in conjunction
+- [08:03.670] with some very good people and we're going to supply funds.
+- [08:08.730] And we just took in trillions of dollars.
+- [08:11.890] We've got a lot of money
+- [08:13.370] and we're going to spend a little money on some food
+- [08:17.200] and other nations are joining us.
+- [08:19.000] I know your nation's joining us
+- [08:20.520] and we have all of the European nations joining us
+- [08:24.410] and others also have called and they want to be helpful.
+- [08:27.700] So we're going to set up food centers
+- [08:29.350] and where the people can walk in and no boundaries.
+- [08:32.370] We're not going to have fences and they can't
+- [08:35.950] – they see the food from 30, you would say, yards away,
+- [08:42.380] and they see the food. It's all there.
+- [08:44.270] But nobody's at it because they have fences set up
+- [08:46.330] that nobody can even get it.
+- [08:47.820] It's crazy what's going on over there.
+- [08:50.290] So we're going to work very closely together
+- [08:52.480] with your country, a great country.
+- [08:56.280] We also discussed inside that we are,
+- [08:59.690] you know there's a whole new thing
+- [09:01.130] happening with regard to energy from nuclear.
+- [09:03.610] Prime Minister Keir Starmer: Yeah.
+- [09:04.840] The President: And the Prime Minister
+- [09:06.070] is looking at that very strongly.
+- [09:08.530] And I know you have Rolls-Royce nuclear plants.
+- [09:11.390] That sounds pretty good, right? I love that.
+- [09:13.350] What a great brand that is.
+- [09:14.610] But you're also doing the Rolls-Royce
+- [09:17.560] or the nuclear plants. It's smaller plants.
+- [09:20.360] We're doing smaller and bigger, but the small is interesting.
+- [09:24.330] They do a small plant, very easy, very safe,
+- [09:27.730] and as they need more, they hook up another plant
+- [09:30.020] and they have a series of plants.
+- [09:31.290] Instead of doing the $20 billion plant,
+- [09:35.160] that gets tough for a lot of people to do.
+- [09:37.810] So we're just studying that
+- [09:39.650] and it sounds like you're very far progressed,
+- [09:42.230] but that's a great thing you're doing on nuclear.
+- [09:43.930] We opened up nuclear about two months ago
+- [09:47.440] and it's now safe and very inexpensive.
+- [09:50.380] Prime Minister Keir Starmer: Now we see civil nuclear
+- [09:51.630] as a big part of the future
+- [09:53.670] as we go to sustainable independent energy.
+- [09:57.100] And I think that between the two of us,
+- [09:59.070] we can work very much more closely on this.
+- [10:00.740] The President: Yes.
+- [10:01.970] Prime Minister Keir Starmer: And we've agreed
+- [10:03.210] that that's our ambition, that's our aspiration,
+- [10:06.000] and this is going to be a big part of the future
+- [10:08.080] when it comes to energy.
+- [10:09.280] And you can see in the last few years,
+- [10:10.850] energy has been weaponized.
+- [10:13.060] Prices have dictated both families and businesses
+- [10:17.040] across the United Kingdom,
+- [10:18.310] and therefore taking control of energy is a huge prize.
+- [10:21.880] So the more we can work together on this, the better.
+- [10:23.820] The President: Right.
+- [10:25.090] Prime Minister Keir Starmer: And small modular reactors
+- [10:26.650] are a very big part of the future here.
+- [10:28.910] And we've got great companies like Rolls-Royce
+- [10:31.580] involved in that. So I'm very much looking forward
+- [10:34.660] to working together with you, Mr. President.
+- [10:37.310] The President: Good. We'll do that. We'll do that.
+- [10:39.410] We're going up to your oil capital in a little while.
+- [10:42.890] We're going up to Aberdeen,
+- [10:44.170] that's called the oil capital of Europe.
+- [10:46.880] And that's a great asset that you have up there someday.
+- [10:50.450] If they ever change their thinking on that,
+- [10:52.960] you have a great and valuable asset.
+- [10:55.860] There's a lot of valuable resources underground there,
+- [11:02.110] but that's a decision for you to make.
+- [11:04.080] But it's a very amazing place
+- [11:06.400] and it is considered the oil capital of Europe,
+- [11:10.050] so it's another option that you have.
+- [11:13.440] So we are doing really well as a country,
+- [11:16.060] and I think that the Prime Minister
+- [11:19.880] has been so supportive of us and so strong and so respected,
+- [11:25.360] and I respect him much more today than I did before
+- [11:28.760] because I just met his wife and family.
+- [11:30.440] He's got a perfect wife and family
+- [11:32.850] and that's never easy to achieve, right?
+- [11:35.120] [laughter]
+- [11:36.320] Prime Minister Keir Starmer: I take no credit for that.
+- [11:37.630] The President: But he's become a friend.
+- [11:39.330] And together we got a deal done
+- [11:40.850] that has not been able to be done.
+- [11:45.020] It was a deal that's very good for both parties.
+- [11:46.600] Prime Minister Keir Starmer: A really good deal
+- [11:47.850] for both of our countries
+- [11:49.830] and very, very well received here in the United Kingdom.
+- [11:52.510] The President: Yeah.
+- [11:53.750] So thank you very much for having us.
+- [11:54.980] Prime Minister Keir Starmer: Thank you.
+- [11:56.200] The President: Appreciate it. Any questions?
+- [11:57.580] The Press: Mr. President, [inaudible]
+- [11:58.820] about Russia, earlier you said that you were going to change
+- [12:02.540] the deadline from 50 days. What is your new deadline, sir?
+- [12:05.200] The President: Yes. I'm going to make a new deadline
+- [12:07.770] of about 10 or 12 days from today.
+- [12:12.810] There's no reason in waiting. There's no reason in waiting.
+- [12:16.890] It's 50 days. I want to be generous,
+- [12:18.860] but we just don't see any progress being made.
+- [12:23.290] The Press: Mr. President,
+- [12:24.650] you just talked about setting up food centers
+- [12:27.300] in conjunction with other organizations.
+- [12:28.640] The President: Right.
+- [12:29.860] The Press: You're talking about the Garza
+- [12:31.100] Humanitarian Foundation
+- [12:32.320] or recognized aid agencies. How will this work?
+- [12:34.660] The President: Well, it's going to be working
+- [12:36.030] where the United States will be helping with the food.
+- [12:39.790] We have a lot of access to food. We got a lot of food ourselves,
+- [12:42.950] and we're going to bring it over there.
+- [12:44.380] We're also going to make sure
+- [12:45.640] that they don't have barriers stopping people.
+- [12:47.450] You've seen the areas where they actually have food
+- [12:50.270] and the people are screaming for the food in there.
+- [12:53.100] They're 35, 40 yards away and they won't let them
+- [12:57.530] because they have lines that are set up.
+- [13:00.340] And whether they're set up by Hamas or whoever,
+- [13:03.080] but they're very strict lines.
+- [13:05.390] So we have to get rid of those lines.
+- [13:07.290] But we're going to be getting some good, strong food.
+- [13:09.520] We can save a lot of people.
+- [13:11.640] I mean, some of those kids are, that's real starvation stuff.
+- [13:14.850] I see it. And you can't fake that.
+- [13:18.530] So we're going to be even more involved.
+- [13:21.690] We did some airlifts before, some air drops,
+- [13:25.590] and the people are running for it.
+- [13:28.180] And the Prime Minister's going to help us.
+- [13:30.430] They're very effective with that.
+- [13:31.630] You've done that before. And for many –
+- [13:33.950] They've done that for a hundred years very well.
+- [13:36.000] So it's not very hard to do, actually. Yes?
+- [13:40.030] The Press: Mr. President, you say you love Scotland.
+- [13:42.540] You're the most Scottish president
+- [13:44.450] ever in the White House. It's not a [inaudible]
+- [13:47.160] deal to be done for Scotland, for the Scottish industry
+- [13:49.860] and the deal that you've done with the Prime Minister.
+- [13:52.470] [inaudible], for example.
+- [13:54.180] The President: Well, I have great love for Scotland.
+- [13:57.360] My mother loved Scotland and she loved the Queen.
+- [14:02.130] I don't know. I might hurt myself
+- [14:04.470] by saying that the Monarchists are going to like it,
+- [14:07.790] some other people, but she loved the queen.
+- [14:09.780] Whenever the queen was on television, she wanted to watch.
+- [14:13.080] And she would come back religiously.
+- [14:14.690] She'd come back to Scotland once a year with my sister
+- [14:17.250] Maryanne primarily, and sometimes my sister
+- [14:20.590] Elizabeth also.
+- [14:22.340] But they loved this part of the world.
+- [14:25.630] And we're talking about the Isle of Lewis.
+- [14:27.590] We're talking about serious Scotland.
+- [14:31.770] That's serious Scotland. There was no doubt about it.
+- [14:35.140] So yeah, it gives me a feeling – It's different.
+- [14:38.680] You go to another country, you have no relationship to it.
+- [14:40.960] You got like maybe the head of the country or something.
+- [14:43.620] But it's different when your mother was born here,
+- [14:45.800] Stornoway; right in Stornoway, a beautiful little place.
+- [14:54.020] The Press: Because of your love of Scotland,
+- [14:55.760] is there a better trade deal to be done
+- [14:57.430] for Scottish businesses like whiskey?
+- [14:59.980] The President: I assume when we do our trade deal overall,
+- [15:02.000] a lot of it comes through Scotland, I hope.
+- [15:03.690] Maybe all of it should go to Scotland.
+- [15:05.080] Prime Minister Keir Starmer: It's a very good deal
+- [15:06.320] for the whole United Kingdom.
+- [15:08.160] And we're already achieved great things under the deal
+- [15:12.840] and we'll achieve even more as we work together.
+- [15:16.320] The President: A lot of it is [inaudible]
+- [15:17.560] Scotland. I mean, I do know that.
+- [15:19.140] But I mean, we're dealing with the UK,
+- [15:21.070] but a lot of it comes to Scotland.
+- [15:23.100] And I was very particular.
+- [15:25.890] This is a part of the world I want to see thrive.
+- [15:30.430] It's going to thrive.
+- [15:31.690] The Press: Mr. President, back to Gaza.
+- [15:33.570] You talk about Hamas stealing food and stealing aid.
+- [15:37.010] What responsibility does Israel
+- [15:39.230] have for limiting aid to the region?
+- [15:41.810] And if I could ask a follow-up to the Prime Minister,
+- [15:44.660] what pressure can be put on Israel?
+- [15:46.500] Is that something that you and the United States could work on
+- [15:48.580] [inaudible]?
+- [15:49.810] The President: Israel has a lot
+- [15:51.010] of responsibility. They're hampered by the fact
+- [15:52.860] that you still have 20 hostages or so.
+- [15:55.930] And the people of Israel are very concerned
+- [15:58.190] about the 20 hostages. It's very interesting.
+- [16:01.460] You could say they could be more concerned
+- [16:03.340] about retribution than the 20 hostages,
+- [16:06.250] but they really want the 20 hostages to survive
+- [16:11.210] and live to make it.
+- [16:12.810] Many of the hostages came to my office, the Oval Office.
+- [16:17.250] And I was amazed by, I would ask them the question,
+- [16:20.570] "Was there any sign of love?"
+- [16:24.280] When you were a hostage, and you have all of these people
+- [16:26.720] from Hamas around you, sometimes a hundred,
+- [16:29.450] sometimes ten, sometimes two, but you're a hostage
+- [16:32.730] and you're being stored in a pipe.
+- [16:35.060] It's not even really a cave. It's a pipe, a little pipe.
+- [16:40.860] And some said they didn't think they were going to make it
+- [16:42.820] because they were losing air. There wasn't enough air,
+- [16:45.080] and they'd open up the pipe just in time,
+- [16:47.860] but they didn't do it on purpose.
+- [16:49.250] They just happened to open it. They got lucky.
+- [16:51.970] But I said, "Did they ever wink at you and say like,
+- [16:54.860] 'Don't worry. You're going to be okay.'
+- [16:56.400] Did they ever give you some extra food,
+- [16:58.960] even it if was a piece of bread?
+- [17:00.710] Did they ever give you anything during that time?"
+- [17:02.500] And some were there for four or 500 days now, right?
+- [17:05.530] It's a long time. A year and a half, more than that.
+- [17:08.750] And not one person said there was any love from anybody.
+- [17:12.310] In other words, you have hundreds of people,
+- [17:15.790] and you see it in the movies where somebody's a prisoner
+- [17:19.510] and somebody's helping. You even see it with Germany,
+- [17:23.200] where people would be led into a house
+- [17:27.080] and live in an attic in secret. You'd see signs of something.
+- [17:31.700] I said, "Did you see anything like, did they wink at you?
+- [17:35.000] Did they say, ‘Don't worry, you're going to be okay.'"
+- [17:38.370] I asked that question all the time.
+- [17:40.420] I've never received one answer that said,
+- [17:42.940] "Yeah, they really wanted to help."
+- [17:44.460] No, the hatred is just incredible.
+- [17:46.610] The Press: The access to food issue.
+- [17:49.280] What more can Israel do and with Congress as well?
+- [17:53.280] The President: Well, I think Israel can do a lot.
+- [17:56.220] I will say that Iran, I think,
+- [18:00.380] interjected themselves in this last negotiation.
+- [18:03.390] Can you imagine the beating they took?
+- [18:05.710] We wiped out their nuclear possibilities.
+- [18:08.020] They can start again.
+- [18:09.550] If they do, we will wipe it out faster
+- [18:11.300] than you can wave your finger at it.
+- [18:14.870] We'll have to do that.
+- [18:16.110] We will do that gladly, openly, and gladly.
+- [18:19.640] They've been saying
+- [18:20.880] – Iran's been sending out bad signals.
+- [18:22.790] I'll tell you, for a country that just got wiped out,
+- [18:26.930] they've been sending very bad signals, very nasty signals,
+- [18:31.320] and they shouldn't be doing that.
+- [18:33.180] They shouldn't be doing that. They were talking about things
+- [18:36.190] that they shouldn't be talking about.
+- [18:37.520] They were interviewed on a recent show,
+- [18:40.480] the Foreign Minister,
+- [18:41.750] saying things that he shouldn't be talking about,
+- [18:44.110] shouldn't be saying.
+- [18:45.970] And I think they got involved in this negotiation
+- [18:49.010] telling Hamas and giving Hamas signals and orders,
+- [18:54.380] and that's not good. That's not good.
+- [18:58.280] Prime Minister Keir Starmer: Yeah, I'd like to say,
+- [18:59.530] look, we need to get the hostages out.
+- [19:01.470] They've been held for a very, very long time,
+- [19:03.150] and we must always start from there, but also recognize,
+- [19:08.490] the situation on the ground in Gaza
+- [19:10.210] is absolutely intolerable.
+- [19:11.480] And I think that certainly speaking
+- [19:14.400] for the British public and myself,
+- [19:16.500] seeing those images of starving children
+- [19:19.060] in particular are revolting.
+- [19:22.950] And there's a sense of revulsion in the British public
+- [19:25.100] at what they're seeing.
+- [19:26.310] And they know and we know that humanitarian aid
+- [19:29.810] needs to get in at speed at volume.
+- [19:32.450] Yes, some could be airdropped and we're working with others
+- [19:35.360] with the US, with Jordan on that.
+- [19:38.590] But the trucks need to get in
+- [19:40.620] because that's the only way you can get the volume in.
+- [19:42.920] And we do thank the President for the work he's done
+- [19:46.650] to try to get to a ceasefire, which we desperately need,
+- [19:49.440] but also to put aid in to the region.
+- [19:52.420] There needs to be much more of that,
+- [19:53.880] we need to galvanize other countries
+- [19:56.390] in support of getting that aid in.
+- [19:58.270] And yes, that does involve putting pressure on Israel
+- [20:01.770] because absolutely this is a humanitarian catastrophe.
+- [20:06.580] Now we also need to look beyond that situation
+- [20:11.840] to what then happens in the event of a ceasefire,
+- [20:14.670] which is desperately needed.
+- [20:16.450] And that's why I'm really pleased
+- [20:17.840] that we're having a discussion about what a peace plan
+- [20:20.690] would look like after that, the component parts of that.
+- [20:25.320] And we have to be really clear at this point
+- [20:29.100] that Hamas can play absolutely no part
+- [20:31.590] in any future governance in Palestine and in Gaza.
+- [20:37.210] And it's really important that we are clear
+- [20:39.830] about what triggered this, who took the hostages,
+- [20:43.960] and calling out Hamas for what they are,
+- [20:46.620] which is a terrorist organization.
+- [20:48.300] But I think today the focus has to be
+- [20:51.010] on getting that humanitarian aid in.
+- [20:55.120] The Press: Will the UK avoid your pharmaceutical tariffs
+- [20:58.220] and will it happen before August the first?
+- [21:00.550] The President: Well, we'll be announcing on pharmaceuticals
+- [21:02.560] sometime in the very near future.
+- [21:04.440] We have a very big plan on pharmaceuticals.
+- [21:07.420] We want to bring a lot of the pharmaceuticals back to America
+- [21:11.560] the way they should be.
+- [21:14.090] If you look at COVID, it sort of taught us a lesson.
+- [21:16.500] We were getting our pharmaceuticals
+- [21:18.540] from other countries,
+- [21:19.760] we almost didn't make any. We used to make them ourselves
+- [21:22.670] and we're going to want to be making a lot of them ourselves,
+- [21:25.700] all of them in a sense.
+- [21:28.590] But you also have a good pharmaceutical business.
+- [21:30.780] We'll be dealing with you on pharmaceuticals also.
+- [21:34.280] And we certainly feel a lot better with your country
+- [21:36.820] working on pharmaceuticals for America
+- [21:38.620] than some of the other countries that were.
+- [21:41.700] With the relationship we have.
+- [21:43.600] You would not use that as a cudgel,
+- [21:45.400] you wouldn't be using it as a block.
+- [21:48.670] But we're going to be announcing sometime very soon,
+- [21:51.800] I think pharmaceuticals, our whole thing.
+- [21:55.340] And the companies know and drug prices
+- [21:58.100] are going to be coming down very substantially in the US,
+- [22:01.140] very, very substantially. And that'll happen very soon.
+- [22:04.130] The Press: Mr. President, we can all sense
+- [22:05.590] your frustration with Vladimir Putin.
+- [22:07.330] The President: No, go ahead.
+- [22:08.550] The Press: We can all sense your frustration with Vladimir Putin.
+- [22:11.450] Do you think he's been lying to you about his intentions?
+- [22:15.500] The President: Well, I don't want to use the word lying.
+- [22:16.890] All I know is we'd have a good talk
+- [22:19.270] and on let's say three occasions,
+- [22:21.500] it seemed that we were going to have a ceasefire
+- [22:24.240] and maybe peace and you divide it up
+- [22:26.060] and you do whatever you have to do obviously to get to the end.
+- [22:29.760] And all of a sudden missiles
+- [22:31.900] are flying into Kiev and other places.
+- [22:35.420] And I said, "What's that all about?"
+- [22:37.260] I spoke to him three, four hours ago
+- [22:40.000] and it looked like we were on our way.
+- [22:42.390] And then I'd say,
+- [22:43.930] "Forget it, and I'm not going to talk anymore."
+- [22:47.870] This has happened on too many occasions
+- [22:50.900] and I don't like it. I don't like it.
+- [22:53.910] The Press: Mr. President you have successful
+- [22:55.950] social media sites.
+- [22:57.620] There are new powers here to censor your site,
+- [23:00.420] state mandated.
+- [23:01.680] The President: To censor my site?
+- [23:02.890] The Press: To censor your site.
+- [23:04.110] The President: You mean Truth? Truth Social.
+- [23:05.340] The Press: I mean Truth. Is that, okay?
+- [23:06.560] The President: Well, I don't think
+- [23:07.840] he's going to censor my site because I say only good things.
+- [23:09.530] Prime Minister Keir Starmer: No, no, no.
+- [23:10.750] The President: Will you please uncensor my site?
+- [23:11.970] Prime Minister Keir Starmer: Yeah, we're not
+- [23:13.220] censoring anyone.
+- [23:14.760] We've got some measures which are there to protect children
+- [23:17.510] in particular from sites like suicide sites.
+- [23:21.830] We've had too many cases in the United Kingdom
+- [23:24.820] of young children taking their own lives.
+- [23:27.680] And when you look through their social media,
+- [23:29.380] they've been accessing sites which talk about suicide
+- [23:34.090] and encouraging, if you like, children down that road.
+- [23:39.410] And that is what we want to stop.
+- [23:40.880] Nothing about censoring free speech.
+- [23:43.810] This country is the proud free speech in this country,
+- [23:47.220] has been for a very long time.
+- [23:48.650] We're very, very proud of it. We will protect it forever.
+- [23:52.060] But at the same time, I personally feel very strongly
+- [23:54.700] that we should protect our young teenagers,
+- [23:57.130] and that's what it usually is, from things like suicide sites.
+- [24:00.350] I don't see that as a free speech issue.
+- [24:02.130] I see that as a child protection issue.
+- [24:03.580] The President: We actually passed a bill in Congress
+- [24:05.360] headed up by my wife actually, which was to pull bad stuff out,
+- [24:11.790] having to do with children because it is a problem.
+- [24:14.900] But I cannot imagine him censoring Truth Social.
+- [24:18.370] That's more of a very political
+- [24:20.730] and it's been a very big success.
+- [24:22.200] Prime Minister Keir Starmer: Not going to happen.
+- [24:23.530] The President: And I only say good things about him
+- [24:25.800] and his country. So they say to me,
+- [24:27.630] "You're making a mistake after," –
+- [24:28.930] [laughter]
+- [24:30.140] I'm going to give my ambassador to the job,
+- [24:31.510] make sure it's not censored.
+- [24:32.710] Prime Minister Keir Starmer: It's not happening.
+- [24:33.970] The President: I had not heard that.
+- [24:36.410] The Press: You're a big investor in this area, Mr. President.
+- [24:38.040] The President: Say it?
+- [24:39.250] The Press: You're a big investor in this area.
+- [24:41.030] The President: To put it mildly, like this ballroom
+- [24:44.220] that we built from scratch.
+- [24:45.760] The Press: Do you worry though about the risk
+- [24:47.990] increased taxes here? A lot have stopped investing.
+- [24:50.640] And do you have a message last out on the soccer
+- [24:53.030] to the English Lionesses who won the European trophy?
+- [24:56.530] The President: So I think that I have a theory
+- [25:00.050] that low taxes bring growth.
+- [25:02.310] We just passed a big tax cut bill,
+- [25:04.140] the biggest bill in the history of our country actually.
+- [25:07.660] One Big Beautiful Bill I used to call it
+- [25:09.830] The Great One Big Beautiful. We took word great out,
+- [25:12.890] but it's actually called the One Big Beautiful Bill.
+- [25:14.830] It's essentially a very large tax cut bill for everybody.
+- [25:20.910] And our country's, pretty soon, I think I can say it right now,
+- [25:25.250] our country's never done better. We had a country that was dead.
+- [25:29.720] It was dead six months ago, a year ago.
+- [25:33.210] Leaders from NATO, we had a very successful meeting at NATO.
+- [25:37.530] Your Prime Minister was there. It was an unbelievable love fest
+- [25:40.340] with all of those countries and they agreed to go 5%
+- [25:44.070] and all the things, very smart to do.
+- [25:47.260] But many of the leaders, essentially they said,
+- [25:52.130] "Your country was dead one year ago."
+- [25:55.990] And we did, we had a dead country.
+- [25:57.400] We had a president who didn't know where the hell he was.
+- [26:01.010] We had horrible, horrible people running our country.
+- [26:05.920] I think they were sick people actually, sick.
+- [26:08.560] You talk about censorship, those are big.
+- [26:11.670] All they did was censor, they didn't know what to do.
+- [26:14.810] And they had high taxes,
+- [26:16.140] they wanted more tax, total censorship,
+- [26:18.730] transgender for everybody, men playing in women's sports.
+- [26:23.070] Everything bad they wanted and they still do.
+- [26:24.860] That's what they still do.
+- [26:26.130] That's why they're down at 15% or something.
+- [26:29.020] I saw today the lowest
+- [26:30.670] that the other part of the Democrats have ever been.
+- [26:33.390] But no, I find that when you lower taxes, you get growth.
+- [26:37.910] I will say this, and the Prime Minister
+- [26:41.020] hasn't been here very long on all affairs,
+- [26:42.730] I think he'll be a tax cutter.
+- [26:45.610] But I find that as we cut taxes, we did more business.
+- [26:49.150] In my first tax bill,
+- [26:50.950] we cut taxes from 39% down to 22%.
+- [26:55.970] And we ended up at the end of the first year,
+- [26:58.160] the first year, when it was still a little raw,
+- [27:00.980] we ended up taking in much more revenue than we did at 39%.
+- [27:05.060] It was pretty amazing.
+- [27:06.960] And we're taking in a lot of revenue right now
+- [27:09.070] and this was an additional tax cut.
+- [27:12.270] So I find for whatever it's worth,
+- [27:14.810] tax cuts are very good.
+- [27:16.710] The Press: You moved up the deadline.
+- [27:18.940] It's now 10, 12 days. Is the sanction the same
+- [27:21.700] that you're going to slap a 100% tariff
+- [27:23.540] on anybody who does business with Russia?
+- [27:25.070] The President: So what I'm doing
+- [27:26.290] is we're going to do secondary sanctions
+- [27:28.520] unless we make a deal and we might make a deal.
+- [27:30.500] I don't know. I don't know, you don't know.
+- [27:35.280] We've done so many peace deals.
+- [27:37.830] This is the one I started out with.
+- [27:40.560] I know President Putin called me.
+- [27:42.380] He wanted to know if I could help him with Iran.
+- [27:44.430] I said, "No, I don't need your help with Iran.
+- [27:45.990] I need you help with Russia."
+- [27:48.430] And so that's the one deal that continues to linger.
+- [27:52.140] And you know, we are losing 5,000.
+- [27:53.760] They are losing. I'm not losing, you're not losing,
+- [27:56.460] but 5,000 Russian and Ukrainian kids a week are dying.
+- [28:02.670] And that's not mentioning the people that are dying
+- [28:05.240] also in towns where he's lobbing missiles
+- [28:08.230] into certain towns like Kiev and he's got to make a deal.
+- [28:14.390] It's too many people are dying. It's a really bloody war.
+- [28:18.290] And the five now they're really telling me
+- [28:20.440] that number is obsolete, it's like seven.
+- [28:22.160] Prime Minister Keir Starmer: That's terrible.
+- [28:23.410] The President: So you have 7,000 Russian and Ukrainian soldiers
+- [28:26.570] dying every single week for no reason whatsoever.
+- [28:30.620] So you would think based on common sense,
+- [28:32.880] you would think he would want to make a deal.
+- [28:34.590] We'll find out.
+- [28:35.870] The Press: Mr. President, communication publicly,
+- [28:37.930] have you had any other channels,
+- [28:40.040] conversations with the Russians reiterating this?
+- [28:42.470] The President: In what?
+- [28:44.060] The Press: Reiterating this new pressure and deadline?
+- [28:48.050] The President: Yeah, I mean well you're The Press.
+- [28:50.170] I'm reiterating it to you. Yeah, I'd say 10 to 12 days.
+- [28:54.140] I'll announce it probably tonight or tomorrow.
+- [28:56.800] But there's no reason to wait.
+- [28:58.790] If you know what the answer is going to be, why wait?
+- [29:02.110] And it would be sanctions and maybe tariffs,
+- [29:07.010] secondary tariffs.
+- [29:08.280] You know what a secondary tariff is.
+- [29:12.000] Look, I don't want to do that to Russia.
+- [29:14.190] I love the Russian people. They're great people.
+- [29:18.300] I don't want to do that to Russia.
+- [29:19.540] But this thing, they're losing a lot of Russians.
+- [29:23.300] They've lost a million Russians.
+- [29:25.780] And that's the sons and daughters of Russian families.
+- [29:32.450] They leave the house, they go "Bye, Mom, bye, Dad,"
+- [29:35.130] and then they get blown away. And Ukrainian too.
+- [29:38.620] Look at Ukraine, it's a disaster what's happened there.
+- [29:42.820] But it continues to go on.
+- [29:45.960] As you know, we made a deal where the European Union
+- [29:49.450] is essentially involved,
+- [29:50.800] but it's NATO and we're supplying weapons to NATO.
+- [29:55.560] NATO is now paying because the United States,
+- [29:58.610] because of Biden's in for $350 billion,
+- [30:02.230] the European nations are in for about a hundred billion.
+- [30:04.850] Should be the opposite way, by the way,
+- [30:07.390] because we have a big ocean in between,
+- [30:09.520] should be the opposite way.
+- [30:11.440] But I think that eventually something's going to happen.
+- [30:17.180] It should happen fast. So many people are dying.
+- [30:21.780] You know, when I settled out with Congo and Rwanda,
+- [30:25.900] they lost almost 8 million people
+- [30:29.500] and it just made so much sense.
+- [30:31.350] And if I didn't get involved, they wouldn't have done it.
+- [30:33.790] They weren't even thinking about settling it.
+- [30:35.470] It was just going on forever.
+- [30:37.340] And nobody could go into those territories
+- [30:39.390] because they'd get killed. They'd get killed.
+- [30:42.840] And now I hear it's a whole different ballgame.
+- [30:45.970] We settled it. This is one that should be settled.
+- [30:48.700] Russia, Ukraine, this is one that really should be settled.
+- [30:54.650] The Press: Scotland's First Minister has today
+- [30:56.710] set out his plans for our second referendum,
+- [30:58.940] which is Scottish independence. Can I get your reaction to that
+- [31:01.740] as someone with deep ties to Scotland?
+- [31:04.330] Sorry, Prime Minister, can I also get your thoughts on that?
+- [31:06.850] If you do win a majority of next year's election
+- [31:09.490] and they have the right to hold the referendum.
+- [31:11.660] The President: Well, I don't want to get involved
+- [31:12.960] in your politics.
+- [31:14.170] We got enough politics of our own.
+- [31:16.320] I will say that I predicted
+- [31:19.260] what was going to happen the last time.
+- [31:20.760] You remember? I was opening the first course
+- [31:23.820] over at Aberdeen and I was over here
+- [31:28.540] and at the same time and they asked me that question.
+- [31:31.870] I made a prediction.
+- [31:33.140] It was the day before the vote and I like to be correct,
+- [31:38.230] but I made a correct prediction. I don't know.
+- [31:41.440] I do say that when they made that deal, somebody said,
+- [31:46.020] and I remember this very distinctly,
+- [31:47.630] I said, "Could they do this all the time?"
+- [31:49.420] There was a little bit of a restriction like 50 or 75 years
+- [31:53.930] before you could take another vote
+- [31:55.490] because a country can't go through that too much.
+- [31:59.400] I don't know the first minister,
+- [32:00.710] but I've heard great things about him.
+- [32:02.000] I've spoken to him, I hear very good things about him
+- [32:04.970] and I'm meeting him today.
+- [32:07.260] So maybe I'll have a better opinion then.
+- [32:08.970] Prime Minister Keir Starmer: And let me answer
+- [32:10.200] that straightforwardly
+- [32:11.410] because I believe in a stronger Scotland,
+- [32:14.100] in a better United Kingdom.
+- [32:15.950] And I think that at a time like this,
+- [32:18.640] when it's quite clear that there's uncertainty
+- [32:21.680] and volatility around the world,
+- [32:24.340] the strength of the United Kingdom together
+- [32:26.450] is very important for all four nations,
+- [32:28.990] very important for Scotland.
+- [32:31.850] And that should be our priority. That should be our focus.
+- [32:36.000] Not on the politics, which feels like the politics of yesteryear
+- [32:40.740] now at a time like this.
+- [32:44.000] And I think that the first minister
+- [32:47.610] should probably focus more on his delivery in Scotland
+- [32:51.620] than on his constitutional issues
+- [32:53.630] and we might have a better health service in Scotland.
+- [32:56.320] But at a time like this, I think the United Kingdom
+- [33:00.210] is always stronger as four nations.
+- [33:03.160] I think that's better for all four nations.
+- [33:05.720] I think that's how Scotland is stronger.
+- [33:10.100] Look at the deal that we've been able to do
+- [33:13.490] with the United States.
+- [33:14.760] A really important deal that we made just months ago.
+- [33:20.450] That is what the United Kingdom can do
+- [33:22.830] when we act as a powerful set of four nations together.
+- [33:26.390] And there are very many other examples.
+- [33:29.640] The Press: Mr. President,
+- [33:30.990] you toured the Federal Reserve last week.
+- [33:32.960] The President: I did.
+- [33:34.160] The Press: And it's set to be this week,
+- [33:36.280] do you think your visit has inspired a potential rate cut
+- [33:40.200] or how you see things shaping out?
+- [33:41.510] The President: Oh, it's interesting.
+- [33:42.780] I did tour it. I toured the building.
+- [33:45.250] And if you looked at this building,
+- [33:46.680] if you came here like, 14, 15 years ago,
+- [33:51.440] we've had it a long time.
+- [33:53.050] It's been an honor to have Turnberry.
+- [33:55.300] But I was on much more opulent walls, ceilings, floors.
+- [34:01.490] We had to do this and we did a very great job.
+- [34:07.060] I mean, you see how beautiful it is inside.
+- [34:08.950] Everything was saved. Everything was preserved.
+- [34:10.940] We had ceilings that were in bad shape, they were falling down.
+- [34:14.400] It's very old, wasn't properly maintained.
+- [34:18.260] Now it's brand new and beautiful and we saved everything.
+- [34:23.840] If you really think here, you took a look
+- [34:26.130] and you sort of commenting, the coloring, the building.
+- [34:29.090] Now this is a brand new building,
+- [34:31.010] but if you look outside,
+- [34:32.220] it's equally opulent and beautiful.
+- [34:35.030] And we didn't do that
+- [34:37.920] by spending hundreds of millions of dollars
+- [34:41.960] in surrounding a railing underneath the area
+- [34:44.850] that you're painting.
+- [34:46.330] I've never seen anything like it.
+- [34:47.990] Brand new, beautiful plywood, very expensive,
+- [34:50.550] wrapped around a figurine or a railing to preserve it.
+- [34:55.720] But you don't have to do that.
+- [34:57.130] You can just wrap a cloth, they call it a blanket.
+- [35:01.850] And you don't even have to do that
+- [35:03.310] if you're careful when you're doing the ceiling.
+- [35:05.720] But I don't know what they did to take down a ceiling
+- [35:07.650] and put up a new ceiling.
+- [35:09.170] And the new ceiling had no opulence to it
+- [35:11.260] or they'd fix the ceiling. But I would say that all I need
+- [35:15.800] is a good plaster and a can of paint.
+- [35:18.800] And they spent $3.9 billion. And I spent a lot of money too,
+- [35:23.370] but it's, I would say 3.8 billion less.
+- [35:31.280] You know, meaning I spent
+- [35:32.980] probably a hundred million dollars
+- [35:35.910] making this place incredible.
+- [35:37.250] Prime Minister Keir Starmer: And you're saying a lot of that
+- [35:38.500] was local trades?
+- [35:39.780] The President: I used local trades.
+- [35:40.990] Prime Minister Keir Starmer: We were looking at the windows
+- [35:42.550] I think in the next room.
+- [35:43.910] The President: I had local trades do a lot of this.
+- [35:46.230] We have the most opulent windows next door.
+- [35:49.850] And I had a choice. Do I take them out?
+- [35:53.890] They suffered through 125 years of storms.
+- [35:57.300] You have very big storms in this area.
+- [35:59.380] When you have a storm, you have a storm.
+- [36:00.970] Prime Minister Keir Starmer: We do it properly.
+- [36:02.170] The President: And they made it barely,
+- [36:03.550] but they were in bad shape.
+- [36:05.170] So I had some local people come up and we looked at them.
+- [36:09.340] You have some great craftsmen here
+- [36:11.020] I think is what you're getting at.
+- [36:13.140] And they said, "Sir, honestly, they've had it.
+- [36:16.200] We can copy it and do it much better."
+- [36:18.930] And they did. If you take a look at the windows
+- [36:21.340] in the various dining rooms, they're magnificent
+- [36:24.810] and they're new and they're much better
+- [36:27.320] looking than what was the same exact look other
+- [36:29.660] than a much higher quality. And they're local people.
+- [36:34.330] I used a lot of your local people.
+- [36:35.830] You have really great local tradesmen here. Yes?
+- [36:40.980] The Press: Do you foresee a rate cut this week.
+- [36:42.450] Do you expect-
+- [36:43.680] The President: A rate cut? Meaning a tax cut?
+- [36:45.650] The Press: No, no, no.
+- [36:46.880] Do you expect the fed to cut rates this week?
+- [36:50.800] The President: I think he has to.
+- [36:53.060] You had 11 cuts. In Europe, they had 11 cuts.
+- [36:57.900] In other places, they had 10 or 11 cuts and we had none.
+- [37:02.520] But I'm not going to say anything bad.
+- [37:04.930] We're doing so well even without the rate cut.
+- [37:08.400] With the rate cut, it would be better.
+- [37:09.810] It affects our housing a little bit.
+- [37:11.730] Look, we should be three points lower.
+- [37:16.970] Each point is $360 billion. Can you imagine that?
+- [37:21.020] That's big numbers. Each point, one point of cut
+- [37:24.490] is the equivalent of $360 billion in savings.
+- [37:29.550] That's big stuff. Those are big numbers in the US.
+- [37:32.620] Everything's big. He should cut. A smart person would cut.
+- [37:38.830] He leaves very soon, so it's like one of those things.
+- [37:41.850] But I'll miss him greatly. I'll miss him.
+- [37:46.560] The Press: Turnberry, if I may,
+- [37:47.960] have you or will you enlist the Prime Minister
+- [37:50.260] in your effort to bring the open back to Turnberry?
+- [37:52.950] And Prime Minister, you described this beautiful course.
+- [37:55.240] Do you agree with the President
+- [37:56.520] that it's time to bring the Open back to Turnberry?
+- [37:58.930] Prime Minister Keir Starmer: Well, as you know,
+- [38:00.210] that's not a matter directly for me,
+- [38:02.380] that's for the sporting authorities.
+- [38:04.040] But look, I mean, it is the first time I've been here.
+- [38:06.840] It's absolutely magnificent both inside and out.
+- [38:10.980] And looking at the courses itself
+- [38:13.270] and the building, it's incredible.
+- [38:15.870] But the decision on the opening
+- [38:17.740] is not a decision for me, as you'll understand.
+- [38:19.840] I should just pick up on the earlier question
+- [38:21.510] because I, for one,
+- [38:22.740] will say congratulations to the Lionesses.
+- [38:24.830] Last night our women's football team won the Euros.
+- [38:28.180] Well, defended the Euros I should say-
+- [38:29.740] The President: That's right. That's right. It's a big story.
+- [38:31.190] Prime Minister Keir Starmer: which was a really big success.
+- [38:33.100] And the mental and physical resilience
+- [38:35.490] that they showed was quite incredible, so-
+- [38:37.070] The President: It's a big deal.
+- [38:38.400] Prime Minister Keir Starmer: there's a lot of bunting
+- [38:39.630] out today and tomorrow
+- [38:40.980] to celebrate them bringing that cup home.
+- [38:42.790] The Press: Did you get the chance to do any planning
+- [38:44.740] for the upcoming state visit, and how is that going to work,
+- [38:47.320] where would you stay and anything about this?
+- [38:49.220] The President: Well, I'm looking forward to it.
+- [38:50.700] It's never been done before twice.
+- [38:53.280] We had our original at Buckingham Palace,
+- [38:54.980] and now I guess we're going to Windsor?
+- [38:56.370] Prime Minister Keir Starmer: Windsor, yeah.
+- [38:57.600] The President: And it's never been done.
+- [38:58.810] And I'm a big fan of King Charles.
+- [39:02.250] I've known him for quite a while.
+- [39:04.640] He's a great guy, great person.
+- [39:07.730] He looks really well to me. He looks great.
+- [39:10.400] So we look forward to coming over.
+- [39:14.070] It was one of the most beautiful evenings
+- [39:16.020] I've ever seen.
+- [39:17.250] I hate to say it, but nobody does it like you people
+- [39:20.330] in terms of the pomp and ceremony.
+- [39:22.000] Prime Minister Keir Starmer: Yeah. It's true.
+- [39:23.210] The President: And I look forward to being here
+- [39:25.550] with the ambassador.
+- [39:26.790] Our ambassador's a very, very successful man
+- [39:29.010] who just wanted to do this.
+- [39:31.730] And I said, "How are you going to be able to do that?"
+- [39:34.860] And he's so committed to the relationship
+- [39:38.750] between the countries,
+- [39:40.260] but he's very great guy and a very, very successful man,
+- [39:43.700] so I very much thank you for doing this.
+- [39:46.610] Prime Minister Keir Starmer: No, thank you for the honors.
+- [39:47.900] The Press: Mr. President, will there be a state visit
+- [39:49.850] when you go to London
+- [39:51.220] or are you worried it's no longer about this?
+- [39:52.660] The President: About what?
+- [39:53.880] The Press: Will you visit London during the state visit
+- [39:55.480] or are you worried-
+- [39:56.730] The President: I will. I'm not a fan of your mayor.
+- [39:59.720] The Press: Why not?
+- [40:01.010] The President: I think he's done a terrible job,
+- [40:03.220] the mayor of London. But a nasty person.
+- [40:06.440] The Press: [inaudible].
+- [40:07.780] The President: No, I think he's-
+- [40:09.030] Prime Minister Keir Starmer: He's a friend of mine
+- [40:10.280] [inaudible]. [laughter]
+- [40:11.500] The President: No, I think he's done a terrible job.
+- [40:14.900] But I would certainly visit London, yeah.
+- [40:17.090] The Press: [inaudible].
+- [40:19.230] So MP Nigel Farage has asked for Parliament to be recalled
+- [40:21.840] when you're there [inaudible].
+- [40:23.230] The President: Well, I like Nigel.
+- [40:24.430] I mean, Nigel, as you know, is a friend of mine.
+- [40:26.910] Nigel's done very well. He's a friend of mine.
+- [40:30.820] And Keir's a friend of mine.
+- [40:32.120] The Press: Would you recall Parliament
+- [40:33.330] so that the president can talk to MP?
+- [40:35.070] Prime Minister Keir Starmer: Well, Parliament's
+- [40:36.290] in recess at the time. But look, I do want to be clear,
+- [40:38.670] this is an unprecedented and very special state visit.
+- [40:42.350] This has never been done before
+- [40:44.060] and there'll be many elements of it
+- [40:45.970] that have never been seen before.
+- [40:48.430] So this is going to be a historic occasion,
+- [40:51.840] and we're all very much looking forward to it.
+- [40:54.550] And I was very, very pleased
+- [40:56.190] to be able to put forward the invitation
+- [41:00.230] when we were at the White House earlier this year.
+- [41:03.920] So this is not just a state visit.
+- [41:07.940] They're always incredible occasions,
+- [41:11.260] and this is an unprecedented second state visit.
+- [41:14.860] So you can imagine just how special that's going to be.
+- [41:18.500] The President: The fact that it's never been done before,
+- [41:21.610] and that's because it's non-consecutive
+- [41:23.870] and it's the only reason it could be,
+- [41:27.110] made it even more interesting, frankly.
+- [41:29.070] So it's going to be great.
+- [41:30.530] And being with Charles and Camilla
+- [41:32.340] and everybody I've gotten to know
+- [41:35.210] because of four years and now six months,
+- [41:39.460] I've gotten to know a lot of the family members.
+- [41:41.650] They're great people. They're really great people.
+- [41:44.190] And in that sense, I think that the UK is very lucky.
+- [41:48.330] You could have people that weren't great people.
+- [41:49.920] I don't know if I'd say that,
+- [41:51.120] but you could have people that weren't. But-
+- [41:52.620] Prime Minister Keir Starmer: We're very lucky
+- [41:53.830] to have our royal family, absolutely fantastic.
+- [41:56.190] The President: So we really look forward to that.
+- [41:57.770] As far as Parliament –
+- [41:59.220] if he wants me to speak in Parliament,
+- [42:00.560] I'll do it. Okay?
+- [42:01.800] [laughter]
+- [42:03.000] But it doesn't have to be then. It could be some other time.
+- [42:05.010] Maybe we should save it for another time.
+- [42:07.160] We'll let the one visit speak for itself.
+- [42:09.140] But anytime if I could be helpful,
+- [42:11.280] I would certainly do it. Thank you.
+- [42:12.600] The Press: Mr. President, [inaudible]
+- [42:13.810] what kind of alternatives are you
+- [42:16.120] considering to get the hostages out if there's no ceasefire?
+- [42:19.670] The President: Well, there are a couple of alternatives.
+- [42:22.030] Some are pretty strong.
+- [42:23.940] But the most sensible alternative
+- [42:27.050] is talk and negotiation. But I said a long time ago,
+- [42:30.570] at a certain point they're not going to be talking
+- [42:32.310] because they're going to lose their shield.
+- [42:34.230] The hostages are a shield for them.
+- [42:37.150] They did horrible things on October 7th,
+- [42:41.030] and the hostages are a shield.
+- [42:43.250] And I said, "You're going to get down a number
+- [42:45.920] and the number's going to be at a point
+- [42:48.630] where you're not going to be able to get them back
+- [42:53.790] unless you're going to be very energetic,
+- [42:57.010] or to put it a different way,
+- [42:58.370] unless you're going to be very ruthless and violent."
+- [43:02.000] It's a bad situation to be in. Very bad.
+- [43:04.640] The Press: Mr. President, with the EU deal last night –
+- [43:06.910] You talked during the campaign about President Putin
+- [43:09.790] respecting you
+- [43:11.130] and that helping you have a relationship with him.
+- [43:13.450] Do you still feel that way, that he respects you,
+- [43:15.770] considering the conversations you've had that have been really
+- [43:17.910] [inaudible]?
+- [43:19.110] The President: Yeah, I've always gotten along
+- [43:20.990] with President Putin.
+- [43:22.420] I had a great relationship with him.
+- [43:24.650] And he went through the Russia, Russia, Russia hoax too.
+- [43:27.420] I mean, we used to talk about it.
+- [43:29.320] We used to say,
+- [43:30.620] "It's too bad we really can't do anything between our country."
+- [43:34.260] Because if we did, they'd say, "Oh…"
+- [43:37.220] Look, I was tough on Putin because I was the one
+- [43:39.280] that closed up Nord Stream,
+- [43:41.680] and Biden came along and opened it up.
+- [43:44.520] I was very tough on Putin in one way,
+- [43:46.510] but we got along very well
+- [43:49.130] and I never really thought this would happen.
+- [43:52.400] I thought we'd be able to negotiate something.
+- [43:54.970] And maybe that'll still happen,
+- [43:56.290] but it's very late down the process.
+- [43:58.400] So I'm disappointed.
+- [44:00.280] And the funny thing is that their economy isn't that big
+- [44:04.130] and it's having a hard time right now,
+- [44:05.700] but it's a relatively small economy.
+- [44:08.640] A strong military but strong economy.
+- [44:11.430] And it used to be a strong economy.
+- [44:13.620] Now it's not. He's going through a lot economically.
+- [44:18.040] It's not easy. But it's pretty small
+- [44:21.690] compared to that magnificent size of that land.
+- [44:24.000] The land is massive.
+- [44:25.810] It's got, I guess, nine time zones or something.
+- [44:28.180] It's a massive piece of land.
+- [44:31.880] Russia could be so rich. It could be so rich.
+- [44:36.570] It could be thriving like practically no other country.
+- [44:41.120] And they're holding that back
+- [44:43.040] because he wants to do trade deals with us.
+- [44:45.840] He talks about it all the time. He wanted to.
+- [44:48.680] And I envision that a lot of trade with Russia
+- [44:52.020] – They have a lot of valuable things.
+- [44:53.880] When you talk about rare earth, they have serious rare earth.
+- [44:57.540] They have just about every form you can have.
+- [45:00.130] So Russia could be so rich right now.
+- [45:05.600] Instead, they spend all their money on war.
+- [45:08.770] They spend everything on war and killing people,
+- [45:10.700] and it doesn't make sense to me.
+- [45:12.020] I thought he would want end this thing quickly.
+- [45:15.600] I really felt it was going to end.
+- [45:17.690] But every time I think it's going to end, he kills people.
+- [45:20.780] The Press: Could a meeting help and are you considering –
+- [45:22.660] as been proposed [inaudible]?
+- [45:23.880] The President: I don't know.
+- [45:28.310] I'm not so interested in talking anymore. He talks
+- [45:32.690] – We have such nice conversations,
+- [45:34.290] such respectful and nice conversations.
+- [45:36.470] And then people die the following night
+- [45:40.160] with a missile going into a town and hitting.
+- [45:42.460] I mean, recently I guess the nursing home,
+- [45:44.550] but they hit other things. Whatever they hit, people die.
+- [45:48.550] So I don't know. We'll see what happens.
+- [45:50.960] The Press: We just had a sense of your differences
+- [45:53.740] in political persuasion with Nigel Farage
+- [45:56.170] and Sadiq Khan in the conversation.
+- [45:58.530] I wonder if you have any advice, either of you,
+- [46:00.310] for a very divided, polarized world on how you make
+- [46:03.730] [inaudible] relationships [inaudible]?
+- [46:05.210] The President: Not differences. Yeah, not differences.
+- [46:08.210] I happen to like both men.
+- [46:10.240] I like this man a lot. And I like Nigel.
+- [46:14.250] And I don't know the politics over here.
+- [46:16.830] I don't know where they stand.
+- [46:18.660] I would say one's slightly liberal,
+- [46:21.340] not that liberal, slightly.
+- [46:23.160] And the other one is slightly conservative,
+- [46:25.920] but they're both good men.
+- [46:29.270] The Press: Mr. President [inaudible] –
+- [46:30.530] Prime Minister Keir Starmer: Look, we like each other.
+- [46:32.710] We respect each other. We get on.
+- [46:35.630] And we've both got a great love of our countries,
+- [46:39.830] of our families,
+- [46:42.190] and therefore there's a huge amount
+- [46:44.010] that we have already achieved,
+- [46:45.560] actually, together and will achieve
+- [46:47.910] as we go forward leading our respective countries
+- [46:50.640] and of course the relationship between our countries.
+- [46:53.960] Donald, we were talking about this this morning
+- [46:56.980] that whether it's defense, security, intelligence sharing,
+- [47:00.930] it's a close, historic relationship.
+- [47:03.240] We have fought together in the past.
+- [47:06.550] We've always stood together. And I, for one am very pleased
+- [47:10.290] that we've got such a good past relationship between us.
+- [47:14.480] And I think it just shows that even
+- [47:16.640] if you come from different political perspectives,
+- [47:19.510] different backgrounds, actually,
+- [47:21.010] there's a huge amount of common ground
+- [47:22.690] when it comes to what is in the best interests
+- [47:25.160] of our two great countries.
+- [47:26.420] And they are two great countries.
+- [47:28.680] And I think that because we focus on
+- [47:31.150] what's best for our countries, we get along very well.
+- [47:34.510] And I'm really pleased that that's the case.
+- [47:36.080] The Press: Mr. President-
+- [47:37.290] The President: Well, I do know he wants to cut taxes
+- [47:39.600] as much as he can. And politics is pretty simple.
+- [47:43.850] I assume there's a thing going on between you and Nigel,
+- [47:48.000] and it's okay. It's two parties.
+- [47:50.210] But generally speaking, the one who cuts taxes the most,
+- [47:53.620] the one who gives you the lowest energy prices
+- [47:55.750] and the best kind of energy,
+- [47:58.290] the one that keeps you out of wars,
+- [48:00.430] he's kept you out of wars,
+- [48:01.980] but the one that keeps you out of wars.
+- [48:03.310] You have a few basics.
+- [48:05.400] And you can go back a thousand years,
+- [48:07.100] a million years, whoever does these things
+- [48:09.290] – But low taxes, keep us safe,
+- [48:12.060] keep us out of wars, no crime, stop the crime.
+- [48:16.420] And in your case, a big immigration component
+- [48:19.560] because I know that your attitude has become strong
+- [48:24.310] on immigration, strong on the toughness of immigration.
+- [48:27.720] But I think whoever's going to be –
+- [48:29.550] I think I won because of –
+- [48:31.430] I think I won because we had a lousy president,
+- [48:33.630] to be honest with you. We had an incompetent president.
+- [48:36.640] But I won because of I was very strong on immigration.
+- [48:40.940] Now we had inflation.
+- [48:42.540] We had sort of a bad economy with this guy.
+- [48:45.470] We had a lot of problems.
+- [48:46.710] But I focused on immigration more than I did anything else.
+- [48:50.260] And I think I won because of immigration.
+- [48:52.760] I think I won because of the border.
+- [48:54.470] I had a bad border where millions of people
+- [48:56.200] were coming into our country illegally.
+- [48:59.370] And as you know, in last month,
+- [49:01.510] zero people came into our country illegally. Zero.
+- [49:04.650] So we went from a bad incompetently run border
+- [49:08.440] to the most competently run border that anybody's ever seen.
+- [49:12.050] The Press: Prime Minister.
+- [49:13.340] The President makes it look easy dealing with illegal migration.
+- [49:16.770] You must be envious of his record in such a short period.
+- [49:20.720] Prime Minister Keir Starmer: Well, I think we've been
+- [49:23.120] discussing irregular illegal migration
+- [49:26.500] is a huge issue in both of our countries.
+- [49:29.340] In the United Kingdom it is a real cause for concern,
+- [49:33.290] and that's why we must bear down on it
+- [49:35.980] in all its aspects upstream across Europe
+- [49:40.190] where a lot of ours comes into through northern France,
+- [49:44.480] across the channel, working with our allies,
+- [49:47.920] with our colleagues to break the gangs
+- [49:49.660] that are actually running this trade.
+- [49:52.340] But equally being very strong that when people have arrived
+- [49:55.880] in this country who've got no right to be here,
+- [49:57.590] then we should be removing them to their own country.
+- [50:01.940] And that's why I'm really pleased
+- [50:03.220] that we've been able to focus on this very intensely
+- [50:06.510] and get 35,000 people out of the United Kingdom
+- [50:10.070] having no right to be here. Because the message has to be,
+- [50:13.950] you can't make your way to the United Kingdom.
+- [50:16.920] We won't tolerate our rules being broken.
+- [50:20.170] And if you get here, you will be returned to where you came from.
+- [50:23.970] And it's really important that we bear down on that.
+- [50:26.700] The Press: With such an attractive place,
+- [50:28.390] people come because they want better life
+- [50:30.150] because we are a wonderful country.
+- [50:32.920] Prime Minister Keir Starmer: People coming via the rules
+- [50:35.120] are always welcome.
+- [50:36.800] But of course we've welcomed talent
+- [50:40.170] and people into this country for centuries, literally.
+- [50:44.060] But what the British people will not tolerate
+- [50:47.090] is those that break the rules,
+- [50:49.070] those that come through irregular routes.
+- [50:51.980] And that's the really important distinction here,
+- [50:56.360] and that's what we're bearing down on.
+- [50:58.060] And I'm really pleased that through pretty well
+- [51:00.620] all of the international engagement I've done,
+- [51:04.220] all the meetings I've had,
+- [51:05.470] the country we've done deals with –
+- [51:06.810] We've done deals with countries in the last 12 months
+- [51:09.280] that many people thought it was not possible to deal with
+- [51:12.110] when it came to immigration, irregular immigration.
+- [51:17.050] And we've returned thousands of people
+- [51:19.240] who've got no right to be here.
+- [51:20.500] And that I think is – For the British people,
+- [51:24.330] we're a reasonable tolerant country
+- [51:28.580] where people are coming lawfully to contribute
+- [51:31.710] to our communities, to our country.
+- [51:34.910] Then of course they're welcome
+- [51:37.230] and have made a great contribution.
+- [51:38.830] But what people will not tolerate
+- [51:40.660] is those that are breaking the rules.
+- [51:42.500] And that is an issue of today, but it's a very British thing.
+- [51:48.010] We are people who respect rules.
+- [51:50.770] We don't approve of those that break rules.
+- [51:53.290] The Press: Mr. President-
+- [51:54.590] The President: I can say though
+- [51:55.800] that I had one of the greatest victories.
+- [51:58.960] They say the most consequential in 129 years.
+- [52:02.120] I don't know about that, but it was pretty close.
+- [52:04.720] And we won all of the swing states, which never happens.
+- [52:07.990] We won the popular vote by millions of votes.
+- [52:10.280] We won tremendous electoral college sweep.
+- [52:13.630] And I believe I did it more than anything else
+- [52:16.910] because of my strong stand on immigration.
+- [52:19.750] And I don't think this country's any different in that sense.
+- [52:22.320] I think it's a big factor.
+- [52:25.250] And it is with a lot of the European countries.
+- [52:28.100] Some of the countries have lost their way
+- [52:31.370] and they have tremendous crime because of it.
+- [52:33.510] I mean, you had countries with no crime
+- [52:36.390] that now have tremendous crime.
+- [52:38.140] And you know the countries, and I know the countries.
+- [52:40.940] And so I think it's a huge factor in any election,
+- [52:45.160] not just this election, but in any election.
+- [52:47.690] I think the one that's toughest and most competent
+- [52:50.730] on immigration is going to win the election.
+- [52:53.270] But then you add low taxes and you add the economy.
+- [52:58.430] He did a great thing with the economy
+- [52:59.900] because a lot of money's going to come in
+- [53:02.030] because of the deal that was made.
+- [53:04.420] But I think that immigration is now bigger than ever before.
+- [53:10.490] The Press: Mr. President, your treasury secretary,
+- [53:12.760] is meeting with Chinese trade-
+- [53:13.960] The President: Right now.
+- [53:15.230] The Press: Right now. Have you received an update?
+- [53:17.410] Do you expect a deal when these talks are over?
+- [53:21.220] [inaudible].
+- [53:22.910] The President: Know they're meeting right now
+- [53:24.890] and we have a good relationship with China,
+- [53:28.060] but China's tough, and like you're tough.
+- [53:31.760] We're all tough, I guess.
+- [53:33.740] But we're going to see what happens.
+- [53:37.320] We just concluded our deal with Japan.
+- [53:40.540] It was very good, good for everybody.
+- [53:42.910] We're making great deals.
+- [53:45.040] We're making deals that are good for us,
+- [53:47.470] but we want them to be good for everybody.
+- [53:49.090] It's important.
+- [53:52.400] Sometimes I'll do something that I shouldn't do
+- [53:54.840] because it's not very important for our country,
+- [53:57.990] but it's very meaningful for the country on the other side.
+- [54:01.710] And I'll let them have that point
+- [54:03.510] because it's very important for them.
+- [54:06.110] So I don't know.
+- [54:07.370] But we've made a lot of deals in the last couple of months.
+- [54:12.500] And then ultimately, as you might as well know,
+- [54:15.130] we're going to just –
+- [54:16.860] You have 200 countries, more, but people don't know that.
+- [54:20.470] You got a lot of countries. And I wouldn't want to sit down
+- [54:23.220] with 200 people to have to deal the way
+- [54:25.750] – He was calling me all the time.
+- [54:27.400] "We want this. We got to have that.
+- [54:31.130] These are tough negotiators. Look, they're smart people.
+- [54:33.620] They're tough negotiators. They know what they want.
+- [54:38.060] But we're going to be setting a tariff
+- [54:41.570] for essentially the rest of the world,
+- [54:43.440] and that's what they're going to pay
+- [54:44.920] if they want to do business in the United States.
+- [54:47.240] Because you can't sit down and make 200 deals.
+- [54:49.710] But we've made the big ones. We just finished Indonesia.
+- [54:52.290] They opened up their country. We just finished Japan.
+- [54:55.250] They opened up their country.
+- [54:56.700] Japan opened up the country. They were totally closed.
+- [54:59.940] They opened it up to our cars, even to rice.
+- [55:02.800] Rice was a big deal.
+- [55:04.120] They would never take anybody else's rice.
+- [55:05.980] They're taken rice.
+- [55:07.250] But they opened up their country.
+- [55:10.540] Philippines we just finished. They opened up their country.
+- [55:13.120] They were very closed.
+- [55:15.240] I'd love to see China open up their country.
+- [55:18.690] So we're dealing with China right now as we speak.
+- [55:22.580] Yeah, we're dealing with China right now.
+- [55:24.460] The Press: The deal you've got with UK
+- [55:26.020] is better than the one with the European Union.
+- [55:28.040] Is that because you think Brexit [inaudible] this country?
+- [55:31.910] The President: Look, we have a very special relationship
+- [55:34.050] with this country. My mother was born here.
+- [55:39.240] And not only born here, loved it.
+- [55:40.770] She'd come back, I told you, religiously every year.
+- [55:44.910] And she'd go up to Stornoway and see her relatives.
+- [55:49.710] But she loved the country. Yeah, that probably has
+- [55:52.770] – It always has an impact. Always has an impact.
+- [55:56.350] But Germany has a new leader, and I think he's terrific.
+- [56:02.730] I think you like him too.
+- [56:03.940] Prime Minister Keir Starmer: Yeah. Yeah, we get along.
+- [56:05.150] The President: I think he's terrific.
+- [56:06.390] My father was born in Germany. Or Germany was –
+- [56:10.040] His parents said, "We're just out."
+- [56:14.820] So you have a lot of feeling for this part of the world.
+- [56:19.720] I do. I want to see this part of the world do well.
+- [56:23.350] Germany, Scotland, the UK.
+- [56:28.540] I want this part of the world to do well, all of the nations.
+- [56:32.200] You do feel a certain – You have a feeling,
+- [56:36.260] a warm feeling toward a part when your parents are born,
+- [56:39.410] essentially here,
+- [56:41.190] and oh, I think maybe it's slightly different.
+- [56:43.390] Maybe it's not. I don't know.
+- [56:44.750] But maybe it's slightly different.
+- [56:47.280] The Press: Mr. President, you didn't completely rule out
+- [56:48.980] a pardon for Ghislaine Maxwell when you landed,
+- [56:51.130] is that something you would ever consider and why?
+- [56:52.740] The President: Pardon for who?
+- [56:53.970] The Press: For Ghislaine Maxwell.
+- [56:55.700] The President: Well, I'm allowed to give her a pardon-
+- [56:57.110] The Press: Yeah, you are.
+- [56:58.330] The President: but nobody's approached me with it.
+- [57:00.400] Nobody's asked me about it.
+- [57:04.050] It's – in the news about that aspect of it,
+- [57:08.430] but right now it would be inappropriate to talk about it,
+- [57:12.660] so –
+- [57:13.900] The Press: Mr. President, Mr. President,
+- [57:15.160] your opposition to offshore wind is well-known, and Scotland-
+- [57:18.920] The President: Wind is a disaster.
+- [57:20.190] The Press: But in Scotland and across the UK wind farm is
+- [57:21.680] [inaudible]-
+- [57:22.880] The President: I know, it's a shame.
+- [57:24.140] It's not his fault. I used to tell Alex Salmon.
+- [57:28.020] The Press: Have you spoken to the Prime Minister,
+- [57:29.560] and will you speak to the [inaudible]-
+- [57:30.850] The President: Well, all I can do is give my word.
+- [57:33.120] Look, wind is the most expensive form of energy,
+- [57:36.460] and it destroys the beauty of your fields
+- [57:40.000] and your plains and your waterways.
+- [57:45.430] Look out there, there's no windmills.
+- [57:47.690] But if you look in another direction, you see windmills.
+- [57:50.640] When we go to Aberdeen,
+- [57:52.870] you'll see some of the ugliest windmills you've ever seen,
+- [57:55.610] they're the height of a 50-story building.
+- [58:00.630] And you can take 1000 times more energy
+- [58:05.430] out of a hole in the ground this big.
+- [58:07.720] This big, it's called oil and gas.
+- [58:10.730] And you have it there, the North Sea.
+- [58:12.650] This big that nobody would even see.
+- [58:16.290] You can take 1000 times more power
+- [58:19.650] because the wind is intermittent,
+- [58:21.130] it doesn't work, it's extremely expensive.
+- [58:23.150] All the windmills are made in China.
+- [58:25.430] They used to be Germany and China,
+- [58:26.700] now they're mostly in China. They all come out of China.
+- [58:30.300] They say that the blades which are carbon fiber,
+- [58:34.190] you can't bury. Oh, okay, you can't bury.
+- [58:36.000] What are you going to do, dump them in the ocean someplace?
+- [58:38.910] Because they only last a certain period of time.
+- [58:40.840] And remember, a windmill has a life of eight years,
+- [58:45.260] especially when they're out in the salty sea,
+- [58:47.820] and they start to rot and to rust.
+- [58:49.910] You're going to have to replace them,
+- [58:51.600] it's very hard to replace them.
+- [58:55.430] Wind needs massive subsidy, and you are paying in Scotland
+- [59:00.960] and in UK and all over the place where they have them,
+- [59:04.060] massive subsidies to have these ugly monsters
+- [59:07.090] all over the place.
+- [59:08.340] So I've restricted windmills in the United States.
+- [59:10.930] Now, a couple. We have the poor, stupid people
+- [59:15.420] at the beginning they approved them,
+- [59:17.330] so they have their full approvals.
+- [59:19.940] But I've restricted windmills in the United States
+- [59:22.640] because they also kill all your birds, they wipe out.
+- [59:26.620] It's interesting, if you shoot a bald eagle in the United States,
+- [59:30.280] they put you in jail for five years.
+- [59:33.130] And yet windmills knock out hundreds of them,
+- [59:35.950] they don't do anything. You explained that.
+- [59:38.590] So it's a very expensive energy, it's a very ugly energy,
+- [59:42.720] and we won't allow it in the United States.
+- [59:44.800] Prime Minister Keir Starmer: So we believe in a mix.
+- [59:46.750] And obviously oil and gas is going to be with us
+- [59:49.160] for a very long time, and that'll be part of the mix.
+- [59:53.780] But also wind, solar, increasingly nuclear,
+- [59:57.040] which is what we've been discussing this morning,
+- [59:58.630] civil nuclear as we go forward.
+- [01:00:00.850] The most important thing for the United Kingdom
+- [01:00:03.510] is that we have control of our energy,
+- [01:00:06.110] and we have energy independence and security.
+- [01:00:08.680] Because at the moment,
+- [01:00:10.420] whatever the attributes and facilities in the North Sea,
+- [01:00:14.760] that is sold onto the international market,
+- [01:00:16.450] and we buy back off the international market,
+- [01:00:19.000] that was a historic mistake in my view.
+- [01:00:21.890] But what we need is a mix
+- [01:00:23.370] so that we get the energy security
+- [01:00:25.880] that we need for the future.
+- [01:00:27.610] And that's the focus of everything that we are doing.
+- [01:00:30.510] But what we have discussed today
+- [01:00:31.890] is that the energy prices are too high,
+- [01:00:33.700] which is why we recently took measures
+- [01:00:36.730] to reduce the energy prices,
+- [01:00:38.210] particularly for energy-intensive businesses.
+- [01:00:41.440] But in the long run, the only way to reduce your energy price
+- [01:00:44.360] is to take control of your energy.
+- [01:00:46.650] And that's what we're doing, taking control of our energy.
+- [01:00:49.100] The Press: Mr. President.
+- [01:00:51.170] Our King Charles, who you great friend of big as big fan of
+- [01:00:55.780] [inaudible] windmills, as you call them.
+- [01:00:57.680] Is he wrong?
+- [01:00:59.490] The President: So King Charles is an environmentalist,
+- [01:01:02.340] I will tell you.
+- [01:01:03.670] And I say that in a positive way, not a negative way.
+- [01:01:06.340] And every time I've met with him,
+- [01:01:09.130] he talked about the environment, how important it is.
+- [01:01:11.280] And I'm all for it, I think that's great.
+- [01:01:15.690] King Charles more than anything else,
+- [01:01:17.050] loves the country, but I got to know him very well.
+- [01:01:20.070] He truly is an environmentalist. He wants clean air, clean water,
+- [01:01:24.420] all of the things that we all want.
+- [01:01:26.220] The Press: Mr. President.
+- [01:01:27.490] You have said that you have not been briefed
+- [01:01:30.040] on the Epstein files,
+- [01:01:32.180] or your name does not appeared in the Epstein files.
+- [01:01:34.970] But doesn't the AG have to tell you if your name is?
+- [01:01:38.820] The President: Well, I haven't been overly interested in it.
+- [01:01:41.140] It's something, it's a hoax that's been
+- [01:01:43.260] built up way beyond proportion.
+- [01:01:45.260] I can say this, those files were run by the worst scum on earth.
+- [01:01:50.350] They were run by Comey, they were run by Garland,
+- [01:01:55.410] they were run by Biden.
+- [01:01:57.240] And all of the people that actually ran the government,
+- [01:02:00.400] including the autopen.
+- [01:02:02.990] Those files were run for four years by those people.
+- [01:02:07.080] If they had anything, I assume they would've released it.
+- [01:02:09.880] The whole thing is a hoax. They ran the files,
+- [01:02:13.580] I was running against somebody that ran the files.
+- [01:02:17.970] If they had something they would've released.
+- [01:02:20.010] Now, they can easily put something in the files
+- [01:02:22.540] that's a phony.
+- [01:02:23.910] Like as an example, Christopher Steele,
+- [01:02:26.360] a person well happens to be from your country.
+- [01:02:29.460] But Christopher Steele as an example,
+- [01:02:32.080] wrote a book, a dossier,
+- [01:02:34.050] we call it the Fake News Dossier.
+- [01:02:36.200] And the whole thing was a fake. The whole thing was a fake.
+- [01:02:41.290] They can put things in the file that are fake,
+- [01:02:44.060] but those files were run by bad sick people.
+- [01:02:49.640] If they had anything, why didn't they use it
+- [01:02:51.420] when I was killing Joe.
+- [01:02:53.630] And then he gave out because he was 25 points down,
+- [01:02:57.010] and then I got somebody new,
+- [01:02:58.580] nobody even knew anything about her.
+- [01:03:00.110] She was a horrible vice president.
+- [01:03:02.130] She was our Border Czar,
+- [01:03:03.330] but she never went to the border,
+- [01:03:04.670] she never once called the border patrol agent
+- [01:03:06.380] to find out how we're done.
+- [01:03:07.650] But she was the border czar, her name was Kamala.
+- [01:03:11.790] Nobody knows her last name, it was Harris.
+- [01:03:14.340] But nobody knew her last name.
+- [01:03:16.210] So I ended up, how would you like to end up in a race
+- [01:03:18.750] where you're killing somebody, you're beating himself.
+- [01:03:20.820] And then they say, "All right, we'll take him out,
+- [01:03:22.400] he's not working. Let's put somebody else.
+- [01:03:24.720] And then she had a six-week honeymoon.
+- [01:03:27.880] It was amazing, they predicted she will have a six-week
+- [01:03:30.270] honeymoon and she did. And then she got slaughtered.
+- [01:03:35.310] But think of it, those files were run by these people.
+- [01:03:38.900] They were run by my enemy. If there was anything in there,
+- [01:03:44.350] they would've used them for the election.
+- [01:03:46.600] The Press: Do you think that drawing –
+- [01:03:47.870] I think I heard you say something the other day
+- [01:03:49.480] that the drawing that was as subject to the Wall
+- [01:03:50.790] Street Journal report –
+- [01:03:52.000] The President: I don't do drawings.
+- [01:03:53.260] I'm not a drawing person.
+- [01:03:54.550] The Press: Do you think it was fraudulent-
+- [01:03:55.750] The President: I don't do drawings-
+- [01:03:56.950] The Press: [inaudible] name or-
+- [01:03:57.470] The President: Sometimes people say,
+- [01:03:58.670] "Would you draw a building?" And I'll draw four lines
+- [01:04:00.190] and a little roof for a charity stuff.
+- [01:04:03.160] But I'm not a drawing person.
+- [01:04:05.630] I don't do drawings of women that I can tell you.
+- [01:04:08.570] They say there's a drawing of a woman,
+- [01:04:11.210] and I don't do drawings of women.
+- [01:04:13.190] And also Epstein was always a very controversial guy.
+- [01:04:17.400] I was at a very high position pretty much all my life.
+- [01:04:20.270] In all fairness, I've been doing this for a long time.
+- [01:04:23.580] I had the top show on television, I had the number
+- [01:04:26.560] one bestsellers, I had everything, right?
+- [01:04:29.630] And I was a very successful business guy.
+- [01:04:32.110] He was a very controversial.
+- [01:04:33.340] Who would do a controversial drawing?
+- [01:04:36.100] Now, with that being said,
+- [01:04:37.310] they say there were many letters done by many people.
+- [01:04:40.570] And many big people, big successful people.
+- [01:04:45.230] But I just don’t, -- you know, when you talk about files,
+- [01:04:52.150] I just keep going back, and other people too.
+- [01:04:54.340] Even the enemy says this thing is not correct.
+- [01:04:59.360] Because if we had it, we would've used it on the guy.
+- [01:05:02.460] It's a bad issue. They say it's a good issue for Trump.
+- [01:05:05.410] Do you know that my poll numbers are up 4.5 points
+- [01:05:08.590] since this ridiculous Epstein stuff?
+- [01:05:11.660] My poll numbers have gone up 4.5 points
+- [01:05:15.110] because people don't buy it. Okay, people don't buy it.
+- [01:05:18.820] And he's gone, and we want to focus on trade deals,
+- [01:05:21.510] I want to focus on the deal
+- [01:05:22.880] we just made with the European Union,
+- [01:05:25.540] which is the biggest trade deal in history.
+- [01:05:28.030] It's the biggest deal I think in history, not just trade deal.
+- [01:05:32.270] So if they would've had something,
+- [01:05:33.740] they would've used it.
+- [01:05:35.070] The Press: And people keep writing stories about the time
+- [01:05:36.480] you threw him out of Mar-a-Lago, can you settle that?
+- [01:05:38.590] What was it about? What caused the breach for him?
+- [01:05:41.760] The President: That's such old history.
+- [01:05:44.610] Very easy to explain,
+- [01:05:46.660] but I don't want to waste your time by explaining it.
+- [01:05:48.940] But for years I wouldn't talk to Jeffrey Epstein.
+- [01:05:52.220] I wouldn't talk because he did something
+- [01:05:53.870] that was inappropriate. He hired help.
+- [01:05:57.060] And I said, "Don't ever do that again."
+- [01:05:58.610] He stole people that worked for me.
+- [01:06:01.620] I said, "Don't ever do that again."
+- [01:06:03.050] He did it again and I threw him out of the place,
+- [01:06:06.780] persona non grata. I threw him out and that was it.
+- [01:06:10.980] I'm glad I did, if you want to know the truth.
+- [01:06:12.660] The Press: Mr. President. Mr. President.
+- [01:06:13.860] The President: And by the way, I never went to the island,
+- [01:06:16.020] and Bill Clinton went there supposedly 28 times.
+- [01:06:21.420] I never went to the island,
+- [01:06:22.780] but Larry Summers I hear went there,
+- [01:06:24.570] he was the head of Harvard.
+- [01:06:26.370] And many other people that are very big people,
+- [01:06:28.290] nobody ever talks about them.
+- [01:06:30.140] I never had the privilege of going to his island.
+- [01:06:33.630] And I did turn it down,
+- [01:06:34.970] but a lot of people in Palm Beach
+- [01:06:36.250] were invited to his island.
+- [01:06:38.840] In one of my very good moments, I turned it down,
+- [01:06:41.430] I didn't want to go to his island.
+- [01:06:42.800] Yeah. The Press: Mr. President.
+- [01:06:44.030] On Gaza, next time you speak to Netanyahu,
+- [01:06:46.120] what will you ask him to do?
+- [01:06:47.630] The President: Say what? Louder.
+- [01:06:48.910] The Press: Next time you speak to Netanyahu,
+- [01:06:50.310] what will you ask him to do to [inaudible]-
+- [01:06:51.720] The President: Well, I'm going to say,
+- [01:06:52.920] "Look, we're giving money and we're giving food,
+- [01:06:54.960] but we're over here in the United States,
+- [01:06:57.950] and I think I could speak for the Prime Minister.
+- [01:07:00.330] We're giving money and things, he's got to sort of run it.
+- [01:07:04.220] The Press: What should he do?
+- [01:07:05.530] The President: Well, I want them to make sure they get the food.
+- [01:07:07.480] The Press: Open.
+- [01:07:08.700] The President: I want to make sure they get the food,
+- [01:07:10.160] every ounce of food. I think you want the same thing.
+- [01:07:11.670] Prime Minister Keir Starmer: Yeah, absolutely.
+- [01:07:12.910] It's an absolute [inaudible]-
+- [01:07:14.160] The President: Because that food is a being delivered.
+- [01:07:15.580] The Press: Mr. President-
+- [01:07:16.810] The President: -- or at least all of it.
+- [01:07:18.010] The Press: You said you were going to set essentially tariff
+- [01:07:20.620] for the [inaudible], for the rest of the world-
+- [01:07:22.650] The President: For the world.
+- [01:07:23.890] The Press: What percent will that tariff be?
+- [01:07:25.780] The President: I would say it'll be somewhere in the 15
+- [01:07:27.710] to 20% range.
+- [01:07:30.180] The Press: So maybe 15 or 20 or?
+- [01:07:32.420] The President: No, I sort of know,
+- [01:07:34.910] but I just want to be nice.
+- [01:07:37.070] I would say in the range of 15 to 20%.
+- [01:07:39.130] The Press [inaudible] make to UK steel-
+- [01:07:42.030] The President: Probably one of those two numbers.
+- [01:07:43.420] The Press: [inaudible]
+- [01:07:44.660] UK and steel aluminum
+- [01:07:45.860] makers here are worried about them tariff,
+- [01:07:47.300] will you do anything to help them here?
+- [01:07:48.540] The President: Aluminum?
+- [01:07:49.750] The Press: And steel.
+- [01:07:51.060] The President: You're pretty big aluminum maker.
+- [01:07:52.570] Prime Minister Keir Starmer: Yeah. That's already covered
+- [01:07:53.770] in the deal that we've agreed,
+- [01:07:56.660] so we're just doing the implementation of that.
+- [01:07:58.300] The Press: But Mr. President,
+- [01:07:59.510] when will that come down from 25% to zero?
+- [01:08:02.250] The President: You mean the overall, on the world?
+- [01:08:05.200] The Press: On steel aluminum from Britain, it's 25.
+- [01:08:08.270] The President: Well, we're going to know pretty soon,
+- [01:08:09.860] we're going to have it pretty soon that –
+- [01:08:11.400] The Press: Mr. President, I'm sure you-
+- [01:08:13.110] The President: You have no idea that these people
+- [01:08:14.610] are tough negotiators, okay. But we're a big buyer of steel,
+- [01:08:18.360] but we're going to make our own steel,
+- [01:08:19.790] and we're going to make our own aluminum for the most part.
+- [01:08:23.180] But we buy a lot of aluminum from right here,
+- [01:08:25.210] and a lot of steel too.
+- [01:08:26.580] Prime Minister Keir Starmer: Yeah.
+- [01:08:27.940] The President: Who are you with? Who are you with?
+- [01:08:29.660] Because you're asking such a nice question.
+- [01:08:31.610] The Press: TV News, [inaudible] TV News.
+- [01:08:33.520] The President: Very good. Good. They're lucky.
+- [01:08:35.500] The Press: We have a lot of unhappy farmers
+- [01:08:37.620] in this country at the moment, and I'm sure the Prime Minister
+- [01:08:39.940] [inaudible] for raising this.
+- [01:08:41.210] We've had changes to the inheritance tax,
+- [01:08:42.830] which mean lot farmers we have are going to heir farms
+- [01:08:45.130] when they die of [inaudible].
+- [01:08:47.530] How important are farmers to a country?
+- [01:08:50.850] The President: You mean they're going to lose the farm
+- [01:08:52.730] because of estate taxes?
+- [01:08:54.020] The Press: Correct. So when they-
+- [01:08:55.280] The President: So what I've done-
+- [01:08:56.500] The Press: [inaudible] pay so much, they're cash poor,
+- [01:08:57.790] but they have great [inaudible]-
+- [01:08:59.000] The President: I know. Well, they're cash poor.
+- [01:09:00.240] They're land rich and cash poor.
+- [01:09:02.710] I've had that too. Sometimes I'm land rich and cash –
+- [01:09:06.010] Sometimes I'm cash and land-poor.
+- [01:09:09.230] I like it both ways, but as they get older,
+- [01:09:11.730] I like the more conservative, right?
+- [01:09:13.510] So I did something that I don't know if you can do,
+- [01:09:15.670] but it was great. I love our farmers.
+- [01:09:19.260] As you know in our tax bill,
+- [01:09:21.160] we have a clause that's very important.
+- [01:09:22.970] We were losing a lot of farms to the banks
+- [01:09:26.310] because a loving mother and father would die,
+- [01:09:30.000] and left their farm to their children or their child,
+- [01:09:33.220] but their children, their family.
+- [01:09:35.260] And they loved their family
+- [01:09:36.590] and they thought they were doing them a favor,
+- [01:09:38.170] but they had a 50% tax to pay.
+- [01:09:41.490] So the land would get valued at a high number
+- [01:09:44.950] because some of the farms were valuable,
+- [01:09:46.550] but they couldn't quantify it.
+- [01:09:51.760] And they go out and borrow money to pay the estate tax,
+- [01:09:55.050] or the death taxes it's called.
+- [01:09:57.660] And they'd overextend and they'd lose the farm,
+- [01:10:00.800] and they'd commit suicide in many cases.
+- [01:10:03.660] The Press: We're seeing that. The President: You have that.
+- [01:10:05.070] Prime Minister Keir Starmer: No, no, no, no.
+- [01:10:06.300] Our levels are nowhere near 50%.
+- [01:10:07.960] The Press: They're not 50% but [inaudible]-
+- [01:10:10.030] Prime Minister Keir Starmer: We've just introduced
+- [01:10:11.270] where it's paid over many years works out about-
+- [01:10:13.680] The President: Well, that's good.
+- [01:10:14.910] Prime Minister Keir Starmer: an extra 2% a year over 10 years.
+- [01:10:18.950] So it's not at those levels by any stretch of the imagination.
+- [01:10:21.960] But the other thing that we've done as you know,
+- [01:10:24.040] is make sure that we've got a pathway for farmers
+- [01:10:27.600] that actually increases their year-on-year income,
+- [01:10:30.380] which is the most important thing.
+- [01:10:32.070] And in all of the deals that we do,
+- [01:10:34.820] we ensure that our farmers are the central focus
+- [01:10:37.540] for much of it, particularly on the agriculture-
+- [01:10:39.150] The President: That's good.
+- [01:10:40.440] Prime Minister Keir Starmer: I mean,
+- [01:10:41.670] including in the U.S. deal,
+- [01:10:42.870] because I don't think we can go on for years
+- [01:10:45.920] saying that it's acceptable for farmers
+- [01:10:49.160] to have a year-on-year income, which isn't sufficient.
+- [01:10:52.280] We've got to fix that problem,
+- [01:10:54.020] we can't simply live with that problem.
+- [01:10:55.810] So it's a very different situation.
+- [01:10:57.250] The President: Well, we ended the estate tax.
+- [01:10:59.640] There is no estate tax on farmers.
+- [01:11:01.350] The Press: [inaudible] you're saying-
+- [01:11:02.570] The President: So when a parent leaves their farm,
+- [01:11:05.780] because again, a lot of these farms
+- [01:11:07.280] they don't make a lot of money,
+- [01:11:08.480] but it's a way of life and they love their way of life,
+- [01:11:11.080] and they love that dirt.
+- [01:11:13.150] That dirt is the most beautiful thing
+- [01:11:14.650] they've ever seen, they love it.
+- [01:11:15.900] I mean, they're farmers, they love doing.
+- [01:11:17.640] They don't know how to do anything else,
+- [01:11:19.400] but they don't want to do anything else.
+- [01:11:21.450] I speak to farmers, they say,
+- [01:11:22.760] "Would you like to live in my penthouse in Manhattan?
+- [01:11:25.210] It's always beautiful." "No sir, I want this farm."
+- [01:11:29.060] Now, what happens is, I mean,
+- [01:11:31.810] we were losing a lot of people to suicide.
+- [01:11:35.110] They'd borrow money to pay the estate tax,
+- [01:11:38.070] and they were not able to pay it.
+- [01:11:40.270] And some banks are ruthless, they wouldn't do anything.
+- [01:11:42.630] And they would end up committing suicide.
+- [01:11:46.290] We have totally ended the estate tax in those situations.
+- [01:11:51.220] So there's no estate tax.
+- [01:11:52.880] So when a parent leaves the farm to the kids,
+- [01:11:55.030] they don't have to worry about their local,
+- [01:11:57.190] possibly unfriendly banker
+- [01:11:59.540] coming in and stealing their farm.
+- [01:12:01.610] The Press: Mr. President, on [inaudible]
+- [01:12:04.070] migration. One of the factors that are huge in Britain
+- [01:12:07.550] is migrants being housed in hotels,
+- [01:12:09.830] and people in the communities not feeling safe.
+- [01:12:12.890] Is that an appropriate [inaudible]-
+- [01:12:15.030] The President: I don't like anything about it.
+- [01:12:16.460] They shouldn't be allowed in.
+- [01:12:18.070] Anybody illegally should not be allowed in the country.
+- [01:12:20.310] Thank you all very much.
+- [01:12:21.510] The Press: Mr. President. Thank you.
+- [01:12:23.240] The President: Thank you.
+- [01:12:24.440] The Press: [inaudible]

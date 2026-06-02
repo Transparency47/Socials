@@ -1,0 +1,229 @@
+<!-- source: https://www.youtube.com/watch?v=o3iNCi6wE6k -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: o3iNCi6wE6k -->
+<!-- date_published: 2026-01-14T00:03:27+00:00 -->
+<!-- date_accessed: 2026-06-02T01:07:32.407215+00:00 -->
+
+# Transcript: President Trump Gaggles with Press at Joint Base Andrews, Jan. 13, 2026
+
+- [00:01.839] We had great numbers introduced today.
+- [00:04.960] We had a wonderful speech in front of
+- [00:07.839] great people in Detroit,
+- [00:10.240] mostly in the car business and we're
+- [00:12.000] setting records in the manufacturing.
+- [00:14.240] It's going very well. I think uh people
+- [00:17.119] appreciated what I had to say in terms
+- [00:19.119] of the numbers. So, we're very happy
+- [00:21.840] about that. I'm going back to the White
+- [00:23.359] House now. We're going to look at the
+- [00:26.080] whole situation that's going on in Iran.
+- [00:28.560] really bad stuff and Minnesota is uh
+- [00:32.960] going to have to take care of itself for
+- [00:34.480] a little while. We have tremendous stuff
+- [00:37.120] and fraud going on in that state because
+- [00:38.800] you have an incompetent governor,
+- [00:41.040] grossly incompetent governor and a
+- [00:42.800] corrupt governor. But we'll straighten
+- [00:45.120] that out. But the Iran is on my mind
+- [00:48.079] when I see the kind of death that is
+- [00:51.680] happening over there. We think so. We're
+- [00:53.760] going to get some accurate numbers. I'll
+- [00:55.440] have it in about 20 minutes. We'll get
+- [00:58.559] some accurate numbers as to what's
+- [01:00.160] happening with regard to the killing.
+- [01:01.840] The killing looks like it's significant,
+- [01:03.600] but we don't know yet for certain. I'll
+- [01:05.280] know within 20 minutes.
+- [01:09.439] >> And we'll act accordingly.
+- [01:10.720] >> How is that US air strikes if it comes
+- [01:14.320] to that? Will it be will protect will
+- [01:16.880] have a result of protecting the protest?
+- [01:18.799] >> Well, you never know, do you? You never
+- [01:20.640] know.
+- [01:20.960] >> You think so far, my track record's been
+- [01:23.119] excellent, but you never know. Do you
+- [01:24.720] think it's going to be something kinetic
+- [01:26.080] like that on like fiber or
+- [01:28.080] >> Well, I can't tell you that. I know
+- [01:29.439] exactly what it would be. We have to
+- [01:30.880] make a decision,
+- [01:32.240] >> but I can't be obviously.
+- [01:34.720] Yeah. Yeah. Timeline, sir. Jamie Diamond
+- [01:36.880] said today that it's not a great idea to
+- [01:38.720] be chipping away at the independence. Do
+- [01:41.680] you think Jamie Diamond's wrong about
+- [01:43.119] that?
+- [01:43.759] >> Yeah, I think it's fine what I'm doing.
+- [01:45.520] We have a bad bad person. He was
+- [01:47.759] extended by Biden and Yeah, I think he's
+- [01:51.920] wrong. I think he's He's done a bad job.
+- [01:55.040] We should have lower rates. Jamie
+- [01:56.560] Diamond probably wants higher rates.
+- [01:58.240] Maybe he makes more money that way.
+- [02:00.159] >> Mr. President, Jamie Diamond also was
+- [02:01.920] talking about the 10% uh credit card.
+- [02:04.560] The House Speaker said that it could
+- [02:06.320] have negative side effects um if it was
+- [02:08.720] opposed to Congress. Are you concerned
+- [02:10.399] about that? Have you talked about
+- [02:11.440] >> No, I'm not. I think that people that
+- [02:12.879] are paying 28% interest should be
+- [02:15.440] protected. uh we're talking about for a
+- [02:18.000] one-year period, but when you have a
+- [02:21.440] bank, whether it's Jamie Diamond or
+- [02:23.760] anybody else, charging people 28 to 32%,
+- [02:27.280] 30% 31% 1K 35%.
+- [02:31.760] No, I'll I'll help those people. That's
+- [02:33.760] all right.
+- [02:36.160] >> It's a one year 10%. Let the people have
+- [02:38.800] a break. Mr. Presidente say that they're
+- [02:41.040] going to be cutting off funding for
+- [02:42.879] sanctuary cities on February 1st. That's
+- [02:45.120] right. What kind of funding?
+- [02:46.560] >> You'll see. It'll be significant.
+- [02:48.959] President
+- [02:49.920] >> on healthcare. Is there something that
+- [02:51.680] you can do with insurance companies to
+- [02:53.920] bring down premiums like you're doing
+- [02:55.680] with
+- [02:56.160] >> I'm not going to meet with the insurance
+- [02:57.599] companies, but I want the money to go
+- [02:59.760] directly to the people. It's very
+- [03:01.360] simple. Into a health care savings
+- [03:03.840] account, but directly to the people so
+- [03:06.480] the people can buy their own healthcare.
+- [03:08.640] on Thursday will be the 6y year
+- [03:10.239] anniversary of you signing the phase one
+- [03:12.560] trade deal with China, the signature on
+- [03:15.120] it. Would that deal open Chinese markets
+- [03:18.080] to US goods? It protected intellectual
+- [03:20.319] property. Can we get back to that?
+- [03:22.080] >> Yeah, we can. We doing very well with
+- [03:24.000] China. Have a great relationship with
+- [03:26.480] President Xi as you obviously know. Uh
+- [03:29.040] we're doing really well. We're making a
+- [03:30.799] lot of money with China.
+- [03:32.000] >> Can you open their markets to US goods?
+- [03:33.599] Can't
+- [03:34.000] >> I think so. Yeah, I think it's going to
+- [03:35.280] happen.
+- [03:36.319] President Iran says that it will
+- [03:38.000] retaliate in the instance of US strikes
+- [03:40.480] against US assets in the Middle East.
+- [03:42.640] What do you say to US service members
+- [03:44.560] about why it is worth the risk to
+- [03:46.879] intervene in Iran?
+- [03:48.080] >> Yeah, Iran said that the last time I
+- [03:49.760] blew them up with the nuclear capability
+- [03:52.720] which they don't have any longer. So
+- [03:54.640] Iran said that the last time they better
+- [03:56.879] behave.
+- [03:58.319] >> The Intel stock is really high after you
+- [04:00.400] invested. Are you going to invest more
+- [04:02.560] in Intel?
+- [04:03.439] >> I like it. know well I don't know about
+- [04:05.519] Intel but I'll invest more in other
+- [04:07.040] things as you know Intel came to see me
+- [04:09.840] they needed help and I said I'll help
+- [04:12.159] you but I want 10% of your company to go
+- [04:14.799] to the United States of America and we
+- [04:17.440] made because of that deal tens of
+- [04:19.120] billions of dollars the
+- [04:21.680] top went very up and very high and we
+- [04:24.160] made tens of billions of dollars we got
+- [04:27.360] they walked away and they gave us a lot
+- [04:29.040] of money but they did a great deal for
+- [04:30.479] themselves because their stock has gone
+- [04:32.160] up as soon as we went in, Apple went in,
+- [04:35.919] Nvidia went in, a lot of smart people
+- [04:38.320] went in, they followed us. So, yeah,
+- [04:39.840] we're doing that deal. We've done other
+- [04:41.440] of those deals. In Alaska, we did a deal
+- [04:43.919] where we got a big piece of a company
+- [04:46.000] where we were helping them to get a
+- [04:47.520] road. We're the only ones that could
+- [04:48.800] have done it and we said, "We want
+- [04:50.800] something out of the company for the
+- [04:52.479] United States of America." Okay? So, I
+- [04:55.040] believe in that. We have some other ones
+- [04:56.560] that we're looking at. I believe in
+- [04:58.400] that. if it's up to us, if they can't do
+- [05:00.400] it without us. And then I say, "Well,
+- [05:03.040] we'll do it." If you were a private guy,
+- [05:05.360] you'd say, "What do we get for doing
+- [05:07.120] it?" Now, I don't want anything for
+- [05:09.199] myself. I wanted to I want our country
+- [05:11.360] to be rich as hell, but with intel, we
+- [05:13.919] made billions and billions of dollars.
+- [05:15.759] Right.
+- [05:16.080] >> So, Mr. President, on Iran, do you have
+- [05:17.840] a message for the leaders currently of
+- [05:19.680] Iran?
+- [05:21.360] >> Yeah. The message is they've got to show
+- [05:23.199] humanity. They've got a big problem, and
+- [05:25.840] I hope they're not going to be killing
+- [05:27.199] people. And I'm going to have a report
+- [05:29.120] very soon. It would seem to me that they
+- [05:32.240] have been badly misbehaving, but that is
+- [05:35.360] not confirmed.
+- [05:36.479] >> You mentioned the 1980 uh hostage rescue
+- [05:39.759] effort that ended in disaster. Are are
+- [05:42.479] you
+- [05:42.720] >> Well, it was a disaster for Jimmy
+- [05:44.240] Carter. They had all sorts of problems
+- [05:46.160] and the helicopters were crashing and
+- [05:48.160] everything. You know what? It was
+- [05:50.320] >> the exact opposite of Venezuela. Do you
+- [05:52.880] agree with that?
+- [05:54.160] >> Do you agree as a reporter? Who are you
+- [05:56.000] with? Who you with? I'm with the
+- [05:57.280] Financial Times, sir.
+- [05:58.240] >> Oh, good. Well, it's a nice paper.
+- [06:00.240] >> So, are you committing not to sending US
+- [06:02.400] troops into Iran?
+- [06:04.479] >> Why would I tell you that?
+- [06:07.039] >> Mr. President, I don't talk about
+- [06:08.639] military strategy with the reporter. You
+- [06:10.560] know, Mr. President, even though I do
+- [06:11.759] like the financial, are you consulting
+- [06:14.400] with our allies regarding Iran? What are
+- [06:17.280] they telling you? And why do you think
+- [06:18.880] the Iranian I'm not going to tell you
+- [06:20.160] what Iranian why do you think the
+- [06:22.800] Iranian leadership continues to defy
+- [06:24.639] you, Mr. President?
+- [06:26.800] You think they are?
+- [06:27.919] >> Well, it's only been a couple of days.
+- [06:29.680] >> They continue to kill protest.
+- [06:30.720] >> Well, they said that about Venezuela,
+- [06:32.400] too. You know, it's only been a couple
+- [06:33.919] of days. They haven't divided me. They
+- [06:35.440] haven't done anything as far as we're
+- [06:37.520] concerned, but it looks like they're
+- [06:39.280] killing a lot of people, but it has not
+- [06:41.600] been confirmed. I'll know very soon.
+- [06:43.759] >> Sorry. The premier of Greenland said
+- [06:46.160] today, "We prefer to stay with Denmark."
+- [06:49.199] Do you see that as the
+- [06:50.240] >> Who said that?
+- [06:50.960] >> The premier of Greenland.
+- [06:53.919] Well, that's their problem. That's their
+- [06:57.600] problem. I disagree with him. I don't
+- [06:59.360] know who he is. Don't know anything
+- [07:01.199] about him, but that's going to be a big
+- [07:03.759] problem for him.
+- [07:04.720] >> Uh, you want to see democracy in Iran?
+- [07:08.240] >> Ideally, you'd like to see it. But what
+- [07:09.840] we want to see is we don't want to see
+- [07:11.199] people killed and we want to see a
+- [07:13.039] little bit of freedom for these people.
+- [07:14.400] These people have been living in hell
+- [07:16.400] for a long time. Uh, you know, that used
+- [07:18.560] to be a hell of a country. You have
+- [07:19.759] friends that used to invest in Iran and
+- [07:22.240] they did well with their investments. It
+- [07:24.000] was a great place. The people were
+- [07:25.440] great. Even the leadership was good. And
+- [07:28.160] now it's living in hell. Thank you very
+- [07:30.479] much everyone.

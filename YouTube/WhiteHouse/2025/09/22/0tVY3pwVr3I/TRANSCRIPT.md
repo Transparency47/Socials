@@ -1,0 +1,319 @@
+<!-- source: https://www.youtube.com/watch?v=0tVY3pwVr3I -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 0tVY3pwVr3I -->
+<!-- date_published: 2025-09-22T02:00:34+00:00 -->
+<!-- date_accessed: 2026-06-02T01:14:57.616404+00:00 -->
+
+# Transcript: President Trump Gaggles with the Press on Air Force One, Sep. 21, 2025
+
+- [00:00.610] The President: Hello everybody, I think we had a great tribute
+- [00:06.500] to a great man, a great, wonderful guy.
+- [00:08.740] I hope you liked it. Do you know Doug?
+- [00:11.860] If you have any energy questions, we're ready.
+- [00:16.170] The Press: Mr. President, you and Erika shared a moment.
+- [00:19.010] If you don't mind me asking, what words did you have for her?
+- [00:21.990] The President: I've gotten to know her over the years.
+- [00:24.350] She's great. Charlie always used to say she's very smart.
+- [00:27.580] He would always say that.
+- [00:29.110] You don't necessarily say that about a lot of people,
+- [00:31.370] but he always felt she was. And she's got a good heart,
+- [00:34.450] and, you know, she's got a shot at making it even more special,
+- [00:39.230] if you think about it. She's going to do good.
+- [00:40.780] I think she's going do a good job.
+- [00:42.410] That's a hard thing to do.
+- [00:44.560] You know, it's one thing to make a speech,
+- [00:46.530] but with that, for her to make that speech,
+- [00:48.700] because they had a really good relationship.
+- [00:50.840] The Press: Mr. President, I'm with Turning Point USA.
+- [00:52.690] We just want to say thank you for being there.
+- [00:54.710] Thank you for speaking and we offer our deepest condolences
+- [00:57.300] because I know Charlie was a friend of yours.
+- [00:59.420] The President: Well, that gentleman right there
+- [01:00.810] was pointing at you and I like his question,
+- [01:04.350] so that means he thought you were --
+- [01:08.040] or make a statement just like you --.
+- [01:11.200] The Press: (inaudible). The President: Are you married?
+- [01:12.490] The Press: Yes.
+- [01:13.720] The President: Congratulations.
+- [01:14.960] When did the ceremony take place?
+- [01:22.580] The Press: I was just wondering,
+- [01:23.810] because there are a number of spots
+- [01:25.250] in and around the White House
+- [01:26.460] that are named after specific people,
+- [01:28.420] I was wondering if you would be considering naming something
+- [01:30.900] after Charlie's honor, his legacy.
+- [01:32.300] The President: Yeah, there are, there's different little areas.
+- [01:34.890] Yeah, I like that idea.
+- [01:36.100] But we're giving them, I think even more importantly,
+- [01:37.990] the Presidential Medal of Freedom,
+- [01:40.650] which is the highest civilian -- I guess they say, you know,
+- [01:44.900] you think Congressional Medal of Honor is for military,
+- [01:48.060] and this is for the civilian.
+- [01:49.540] So that's a great tribute to him. Great guy.
+- [01:52.590] The Press: Any details around that upcoming event
+- [01:54.570] that you can share with us?
+- [01:56.270] Any further details about that event?
+- [01:58.510] The President: I think the event was just a flawless event.
+- [02:00.610] It was beautiful. I thought the last song was incredible,
+- [02:03.350] the way it was, as we were leaving.
+- [02:05.770] In fact, I think I'm going to --
+- [02:07.140] I said, who is singing that song?
+- [02:09.990] And I think what I'll do is I'll grab it,
+- [02:12.510] and I'll use it at rallies.
+- [02:15.000] We have rallies to get people elected,
+- [02:16.830] and I will use it in some of the rallies.
+- [02:19.010] Wasn't that beautiful?
+- [02:20.960] That was the best rendition I've ever heard.
+- [02:23.480] The Press: Mr. President, what can you and your staff do
+- [02:27.290] to make sure that over the next three years
+- [02:29.730] that you carry forth the vision and the faith of Charlie
+- [02:32.510] in a way that honors him?
+- [02:33.830] What can you guys do over the three years?
+- [02:35.420] The President: I think it's going to be automatic, actually,
+- [02:37.160] and I think Turning Point is going to be a very big factor.
+- [02:39.480] When you see the people, now the press reported 200,000
+- [02:44.480] because, you know, different areas,
+- [02:46.020] different stadiums and everything.
+- [02:47.400] There's a lot of people.
+- [02:48.880] That's a big, that's an NFL stadium.
+- [02:52.470] I think its going to automatic. I really do.
+- [02:54.250] I think that it's automatic. They're great people.
+- [02:56.610] He had a good staff, and they're great people.
+- [02:58.980] (inaudible) to do with that question.
+- [03:01.800] I thought (inaudible).
+- [03:06.270] The Press: Mr. President, everyone's saying
+- [03:07.690] that Charlie brought you and Elon back together.
+- [03:10.350] Is that true?
+- [03:12.010] The President: Well, Elon came over and said hello.
+- [03:14.110] And, no, it's nothing to do with that.
+- [03:16.910] I thought it was nice that he came over,
+- [03:19.780] had a little conversation. We had a very good relationship,
+- [03:23.580] but it was nice that he come over.
+- [03:25.210] Dana White was there, the great Dana White.
+- [03:28.120] You know, the big question is having the UFC fight as the --
+- [03:32.400] I know you won't accept tickets
+- [03:33.710] because you're with the fake news,
+- [03:35.720] you're not allowed to accept tickets,
+- [03:37.090] but we're going to have a UFC fight right at the White House.
+- [03:42.440] And we're going to end up probably 6,000 people
+- [03:44.430] in front of the White House. And then, on the ellipse,
+- [03:46.230] we're going to have 80- or 90,000.
+- [03:48.430] It's going to be an unbelievable event.
+- [03:50.730] A lot of people are talking about it.
+- [03:52.900] The Press: Energy question for you,
+- [03:54.610] an energy question. You've been calling --
+- [03:57.340] The President: (inaudible) the right man. Go ahead.
+- [03:58.840] The Press: I got the experts.
+- [04:00.240] You've been calling on Europe to stop buying Russian oil.
+- [04:03.210] The U.S. has imported $755 million worth of Russian uranium
+- [04:07.660] and plutonium so far just this year.
+- [04:09.380] That's up from the Biden administration last year,
+- [04:12.100] about $100 million. Can you ask Europe to cut off
+- [04:16.630] purchasing those kinds of products?
+- [04:18.600] The Press: Doug, do you know anything about this?
+- [04:20.300] Doug Burgum: Absolutely, but just goes back,
+- [04:22.700] not only drill baby drill, we've got a mine baby mine.
+- [04:25.050] We allowed ourselves to fall under dependence
+- [04:27.970] of both China and Russia for critical minerals.
+- [04:32.020] Us, America, buying uranium from Russia is not acceptable.
+- [04:37.080] And so we're working very hard.
+- [04:38.360] And Secretary of Energy Chris Wright, myself,
+- [04:41.140] to make sure that we've gotta plan
+- [04:42.900] so that the United States can get back into domestic
+- [04:45.200] enriched uranium production as quickly as possible.
+- [04:49.280] The Press: On Venezuela, you said that,
+- [04:51.700] let me quote your tweet here.
+- [04:53.520] The President: No boats in the water anymore.
+- [04:55.260] The Press: Well, you said --
+- [04:58.260] The President: You don't even find a fishing boat.
+- [05:00.090] You don't even find cruise liners anymore.
+- [05:02.080] There's nothing in the water near Venezuela.
+- [05:05.660] It's actually strange. You know what that means?
+- [05:08.880] That means there are no drugs coming in.
+- [05:10.800] The Press: You said the price they'll pay will be incalculable
+- [05:13.740] if they don't take people back. What does that mean?
+- [05:15.940] The President: You're going to have to figure that out.
+- [05:20.750] The Press: On your autism announcement tomorrow,
+- [05:22.840] multiple news outlets are reporting
+- [05:24.580] that you plan to tie Tylenol
+- [05:27.340] to increased risk of autism. Can you confirm that?
+- [05:30.390] The President: We're going to do it tomorrow,
+- [05:32.220] but I think it's a very big factor.
+- [05:34.630] I think you'll see what it is tomorrow.
+- [05:36.980] We have various things, but you'll see what is is tomorrow.
+- [05:39.410] I think it's going to be a very important news conference.
+- [05:42.360] And we want things to take effect immediately.
+- [05:45.750] You know, if there's a question,
+- [05:47.290] even if there is a question you just do it, right?
+- [05:50.240] But great research has been done.
+- [05:53.810] You know when you think,
+- [05:55.170] if you think that let's say 15 years ago,
+- [05:59.240] they had one in 10,000 that were born with autism.
+- [06:02.750] And now it's, think of it, 1 in 12, 1 in 10.
+- [06:07.160] Boys, 1 and 10 or 12. Two different studies.
+- [06:11.790] Girls, it's 1 in 20. Can you imagine 1 in 20?
+- [06:15.770] And let's see, 22 years ago, it was 1 in 20,000.
+- [06:23.430] But it got down to 1 in 10,000 about 17 years ago.
+- [06:26.680] But now it's 1 in 12.
+- [06:29.070] Actually, boys at 1 in 12 and 1 in 10.
+- [06:32.920] I mean, can you imagine 1 in 10? And it was 1 in 20,000.
+- [06:38.110] So there's obviously something artificial that's really wrong,
+- [06:42.510] and we think we know what that is.
+- [06:44.390] The Press: Are you going to announce any link
+- [06:45.710] between vaccines and autism?
+- [06:47.820] The President: Tomorrow.
+- [06:50.010] Vaccines are very interesting. They can be great.
+- [06:54.030] But when you put the wrong stuff in them,
+- [06:57.080] and, you know, children get these massive vaccines
+- [06:59.220] like you'd give to a horse. Like you'd gift to a horses.
+- [07:03.480] And I've said for a long time, I mean, this is no secret,
+- [07:06.170] spread them out over five years. Get five shots, small ones.
+- [07:10.420] Have you ever seen what they give?
+- [07:11.830] They give -- I mean for a little baby
+- [07:14.290] to be injected with that much fluid.
+- [07:17.410] Even beyond the actual ingredients,
+- [07:20.310] sometimes 80 different vaccines, it's crazy.
+- [07:24.630] It's, you know, that's a common sense thing, too.
+- [07:28.190] It's like you're shooting up a horse.
+- [07:30.280] You have a little body, a little baby,
+- [07:32.110] and you're pumping this big thing.
+- [07:33.900] It's a horrible thing. So I've always felt that,
+- [07:37.680] but we'll be having a big discussion tomorrow
+- [07:40.130] about autism.
+- [07:42.460] The Press: Your son had a very welcoming message today,
+- [07:45.000] welcoming people to the Republican Party.
+- [07:47.500] Love of country, love of family, love of God.
+- [07:49.730] So I ask you,
+- [07:50.990] what did the Democrats stand for at this point?
+- [07:54.130] The President: I think chaos, confusion, anger.
+- [07:58.820] They're losers.
+- [08:01.630] They don't even want to extend the, you know, the opening --
+- [08:06.010] we have a very successful country.
+- [08:08.110] If we gave them everything they wanted, they're deranged.
+- [08:11.650] If we give them everything that they wanted
+- [08:13.360] they wouldn't extend, in my opinion.
+- [08:15.400] Either they say, oh they want to meet with me.
+- [08:17.030] It's nonsense, but I'll meet with them.
+- [08:19.970] But no, they are angry and they took a big loss.
+- [08:25.180] And they're doing worse now than they were during the election.
+- [08:27.470] So, you know, they're really -- they are doing very badly.
+- [08:30.810] I don't think, actually, I think they stand for chaos.
+- [08:35.570] They stand for nothing.
+- [08:37.500] The Press: I'm with the Daily Wire
+- [08:38.760] and we've been doing a lot of investigating
+- [08:40.600] of these transgender shooters.
+- [08:42.980] We reported on Friday that the Kavanaugh
+- [08:45.240] attempted assassin actually identifies as transgender.
+- [08:47.710] We just wanted to get your reaction to that
+- [08:49.360] and see if you had heard.
+- [08:50.570] The President: Well, it's too bad.
+- [08:51.770] It's a very sad thing going on with them,
+- [08:54.740] and I'll have to take a look at it.
+- [08:57.020] We have to protect our Supreme Court judges and justices,
+- [09:00.700] and Justice Gavin was a great guy.
+- [09:03.580] I mean, it was horrible.
+- [09:05.060] He's been through a lot with this.
+- [09:06.440] All of them have, in a way.
+- [09:07.730] They didn't give the proper protection, and we are giving.
+- [09:09.980] You saw what, you know, numerous bills,
+- [09:12.440] but we just passed another one.
+- [09:14.080] We have protect the Supreme Court. We have too.
+- [09:17.040] The Press: On that same note,
+- [09:19.640] there's been so many different shooters
+- [09:21.530] who either the Charlie's killer lives
+- [09:23.670] with a guy who's transgender,
+- [09:25.390] the Annunciation shooter was transgender,
+- [09:27.080] The Covenant shooter was transgender.
+- [09:28.770] Should the FBI be investigating transgender extremists?
+- [09:31.050] The President: You know, we're looking at that
+- [09:32.290] and it seems like, you know,
+- [09:33.580] is that just a, you know, what's the reason for it?
+- [09:37.580] Yeah, there seems to be something,
+- [09:39.110] but we're look at it very strongly.
+- [09:42.440] Something seems to going on,
+- [09:44.430] but you can't make that statement yet.
+- [09:47.020] The Press: So again, Mr. President, back in 2020-2021,
+- [09:51.630] you were banned from Twitter, Facebook,
+- [09:53.710] basically every single platform on God's green earth, sir.
+- [09:56.900] And now, many people on the left
+- [09:58.910] want to throw out cries about First Amendment
+- [10:01.300] claims after Jimmy Kimmel's show was canceled.
+- [10:03.430] Do you find it hypocritical, sir,
+- [10:05.540] after what they did to you?
+- [10:06.780] The President: I did his show before I ran for politics,
+- [10:09.140] I did his show many times
+- [10:10.430] and he was never one of the top people.
+- [10:14.820] Do you remember during the Academy Awards
+- [10:16.630] when he read my Truth
+- [10:17.860] just before giving out the Best Picture Award?
+- [10:20.420] And I said, and what he read was that he's the worst host
+- [10:23.000] in the history of the Academy Awards.
+- [10:25.010] Look, Jimmy Kimmel suffers from two things.
+- [10:27.900] First of all, he said a terrible thing about Charlie.
+- [10:32.160] He also suffers with the fact that he's got no talent,
+- [10:35.410] and he's gotten no ratings.
+- [10:37.740] A deadly combination. That's deadly, right?
+- [10:42.170] The Press: When's the National Guard
+- [10:43.550] going to be arriving in Memphis? You said they'd be coming soon.
+- [10:45.960] The President: Very soon.
+- [10:47.180] And we're going to straighten that up,
+- [10:48.890] just like we straightened out Washington.
+- [10:50.650] And we are not letting Washington go, by the way.
+- [10:53.460] We're not letting -- if we didn't go there,
+- [10:55.050] Washington right now would be leading the nation in crime.
+- [10:59.070] I mean, D.C. leading the nation.
+- [11:02.270] And we have it down. I mean it is a beautiful thing.
+- [11:07.510] And everybody, every person I meet is saying thank you, sir.
+- [11:11.180] They don't care whether it's the National Guard.
+- [11:13.230] They don't care what it is.
+- [11:15.100] They're not being raped, mugged, shot.
+- [11:18.650] Washington, D.C. is now a very safe city.
+- [11:21.290] And you know what? I drove through it yesterday.
+- [11:23.010] You probably saw it. Everything was nice.
+- [11:25.970] The grass was -- I thought I'd replace the grass.
+- [11:29.170] Much of it just has to be -- it looks so beautiful.
+- [11:31.770] It was so well-maintained. And that's by us.
+- [11:35.690] The Press: The U.N.
+- [11:37.000] This week where there's going to be a major push
+- [11:39.490] for a two-state solution. Obviously, the U.S.
+- [11:41.620] And Israel have not signed on to that.
+- [11:44.540] Is there still possibility in your mind
+- [11:46.900] that there could be a diplomatic solution to this conflict?
+- [11:49.780] The President: So I'd like to see a diplomatic solution.
+- [11:52.430] There's a lot of anger and a lot of hatred, you know that.
+- [11:55.450] And there has been for a lot of years,
+- [11:57.210] this is not something new.
+- [11:58.510] But hopefully we'll get something done.
+- [12:00.830] We're looking at -- we're studying Gaza
+- [12:03.370] and dealing with Gaza very slow. That's a real mess.
+- [12:07.080] The Press: The investigation is still ongoing
+- [12:09.090] into Charlie Kirk's killer
+- [12:11.120] and whether he had ties to groups,
+- [12:13.410] but do you have a sense now whether he --
+- [12:15.110] The President: (inaudible)
+- [12:16.390] they've seen a lot for an investigation that's ongoing.
+- [12:19.900] I think they've done an incredible job.
+- [12:21.920] The Press: Have they found --
+- [12:23.140] The President: I mean, the shells,
+- [12:24.860] so many different things, I mean what's to say?
+- [12:29.190] The Press: Have you found direct links to --
+- [12:31.450] The President: You mean about other people?
+- [12:33.240] The Press: Yeah, and does that affect your decision
+- [12:35.990] about how to proceed in terms of pursuing?
+- [12:37.660] The President: I think, you know,
+- [12:38.880] as far as I'm concerned,
+- [12:40.100] but they're going to do a final report.
+- [12:42.440] Whether other people involved is what you're asking.
+- [12:45.310] It would look to me like not.
+- [12:46.530] Now, he did have a friend, but I don't know.
+- [12:48.790] The friend should be a little bit surprised.
+- [12:51.580] The Press: In regards to Pam Bondi,
+- [12:53.580] who should she focus on as far as bringing accountability?
+- [12:57.520] The President: Everybody. Really. It's a big office.
+- [12:59.610] She's doing a good job, but focus on everybody.
+- [13:02.880] There are a lot of crooked people that were here before me,
+- [13:05.700] and people that almost destroyed our country.
+- [13:08.120] If I didn't win this election, our country would be destroyed.
+- [13:11.740] We wouldn't have a country right now.
+- [13:13.510] Thank you very much.

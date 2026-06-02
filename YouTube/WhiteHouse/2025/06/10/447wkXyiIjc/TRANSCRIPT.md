@@ -1,0 +1,1019 @@
+<!-- source: https://www.youtube.com/watch?v=447wkXyiIjc -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 447wkXyiIjc -->
+<!-- date_published: 2025-06-10T21:22:33+00:00 -->
+<!-- date_accessed: 2026-06-02T02:48:40.827477+00:00 -->
+
+# Transcript: President Trump Delivers Remarks at Fort Bragg
+
+- [00:15.270] Announcer: Ladies and gentlemen,
+- [00:16.640] please welcome your Commander-in-Chief,
+- [00:19.690] the 45th and 47th President of the United States,
+- [00:24.070] President Donald J. Trump.
+- [00:26.930] ♪ (Hail to the Chief) ♪
+- [01:00.930] ♪ (God Bless the U.S.A.) ♪
+- [03:55.230] The President: Wow, wow, wow.
+- [04:02.720] That's a beautiful sight and it's a beautiful sight
+- [04:05.220] to be with you in a place called Fort Bragg.
+- [04:15.580] Can you believe they changed that name
+- [04:17.850] in the last administration for a little bit?
+- [04:22.350] But we'll forget all about that, won't we?
+- [04:24.980] We're going to forget all about it.
+- [04:26.330] I want to just say, God bless the U.S. Army and God
+- [04:30.070] bless the USA, great place, great group.
+- [04:36.330] I want to thank so many incredible soldiers
+- [04:38.870] and paratroopers, pilots,
+- [04:40.610] warriors for that awesome display of pure,
+- [04:44.040] unrivaled American military might.
+- [04:46.930] I just saw something that was crazy.
+- [04:50.230] You don't want to mess. I've been saying a long time,
+- [04:53.130] we have the best, nobody even comes close,
+- [04:55.160] but they just gave me a display that you might be lucky
+- [04:59.070] not to see it because it's a little scary.
+- [05:01.720] It was beautiful to watch.
+- [05:04.110] Let's hear it for the Army Special Operations and Command
+- [05:08.420] and the 82nd Airborne Division and the 18th Airborne Corps,
+- [05:15.840] what a show it was and what a show it continues to be.
+- [05:19.290] And Saturday is going to be a big day in Washington D.C.
+- [05:24.670] You know, a lot of people said, we don't want to do that.
+- [05:26.740] I said, yeah, we do. We want to show off a little bit.
+- [05:29.950] You know, recently other countries
+- [05:32.020] celebrated the victory of World War I.
+- [05:35.360] France was celebrating, really. They were all celebrating.
+- [05:38.750] The only one that doesn't celebrate is the USA,
+- [05:41.200] and we're the ones that won the war.
+- [05:43.340] Without us, you'd all be speaking German right now,
+- [05:49.090] maybe a little Japanese thrown in.
+- [05:52.410] But we won the war and we don't celebrate,
+- [05:55.160] but we're going celebrate with a parade on Saturday
+- [05:57.030] and we're going to celebrate --
+- [05:58.280] from now on, we're going to celebrate our greatness
+- [06:01.260] and our achievements.
+- [06:02.710] This week, we honor 250 years of valor and glory
+- [06:06.280] and triumph by the greatest fighting force
+- [06:09.380] ever to walk the face of the earth,
+- [06:12.170] the United States Army. For two and a half centuries,
+- [06:19.970] our soldiers have marched into the raging fires of battle
+- [06:24.160] and obliterated America's enemies,
+- [06:26.880] there's never been anything like it.
+- [06:28.390] There's never been a force like this, and I rebuilt it.
+- [06:32.330] I gave you so much money for four years it was crazy.
+- [06:35.300] And we just -- we just approved our largest budget
+- [06:39.910] for military operations,
+- [06:41.870] over $1 trillion, we've never even come close.
+- [06:51.180] But our army has smashed foreign empires,
+- [06:54.790] humbled kings, toppled tyrants and hunted terrorist savages
+- [06:59.140] through the very gates of hell.
+- [07:02.560] Our soldiers do not rest until they win.
+- [07:06.020] You know that better than anybody.
+- [07:07.550] From June 1775 to June 2025,
+- [07:12.940] those foolish enough to challenge America's army
+- [07:16.200] have been met with unyielding strength, unbreakable spirit
+- [07:19.450] and unstoppable, overwhelming force.
+- [07:23.370] Time and again, our enemies have learned
+- [07:25.320] that if you dare to threaten the American people,
+- [07:28.930] an American soldier will chase you down,
+- [07:32.330] crush you and cast you into oblivion.
+- [07:35.820] That's what happens unfortunately that's right.
+- [07:39.380] It doesn't sound very nice, but it's true, isn't it?
+- [07:45.480] The last sound you every hear will be the chilling howl
+- [07:49.110] of Black hawks in the dead of night,
+- [07:51.880] the thunderous boom of artillery fire
+- [07:54.380] or the ferocious roar of a U.S. Army infantry
+- [07:57.650] brigade charging over the horizon.
+- [08:00.580] That brigade is going to charge like you've never seen before.
+- [08:04.040] And hopefully I can keep you out of that.
+- [08:06.660] But if I don't, you're ready. Is that right?
+- [08:08.850] If I can keep you out of it --
+- [08:11.820] if I keep you out of it, that's OK.
+- [08:13.550] But if we need it, you're ready.
+- [08:16.030] You know, it's called peace through strength, isn't it?
+- [08:18.890] Peace through strength.
+- [08:20.710] For our adversaries, there is no greater fear
+- [08:23.780] than the United States Army. They all fear us,
+- [08:27.020] and we have the greatest force anywhere on earth.
+- [08:29.240] You know, you read different stories
+- [08:30.720] that others are building and building and building.
+- [08:33.560] We have a force like no other --
+- [08:35.130] they said it would take five years to defeat ISIS.
+- [08:38.190] We did it in four weeks.
+- [08:40.150] Four weeks. We let them go. Unlike other of your leaders,
+- [08:44.110] I let them go and we had General Razin Caine,
+- [08:48.060] who's now the head of the Joint Chiefs of Staff
+- [08:51.090] because I liked him.
+- [08:52.350] He was a warrior; he was a great warrior
+- [08:54.280] and now he's been rewarded for his incredible work.
+- [08:58.380] But they said it would take five years,
+- [08:59.940] and we did it in four weeks.
+- [09:01.760] Someday I'm going to ask him to explain that one to me.
+- [09:05.190] But it was the television generals that said that.
+- [09:07.920] The real generals got out and fought
+- [09:10.520] and nobody fought like them ever.
+- [09:13.170] But for the American people, there is no greater pride
+- [09:15.850] because you are the righteous sword of American justice
+- [09:19.480] and the ultimate shield of American freedom.
+- [09:22.930] This week we remember that we only have a country
+- [09:26.560] because we first had an army, the army was first.
+- [09:30.470] In fact, the army was even before the country,
+- [09:33.100] you know that, right? One year before the country.
+- [09:35.270] After 250 years, we still proudly declare that we are free
+- [09:40.840] because you are strong, you are so strong.
+- [09:44.310] We're safe because you are brave.
+- [09:47.060] And America's flag will never fall
+- [09:49.400] because America's army will never ever fail,
+- [09:53.310] never going to fail.
+- [09:55.010] Every branch of the armed forces has played a critical role
+- [09:58.230] in protecting our nation.
+- [10:00.140] But no one has done more fighting,
+- [10:01.770] bleeding and winning than the U.S. Army.
+- [10:03.960] Nobody's done that.
+- [10:05.840] The Army has earned more combat medals
+- [10:08.210] and more battle ribbons than any other service,
+- [10:11.200] and 70 percent of all of the Medals of Honor.
+- [10:14.800] We give away Medals of Honor all the time at the White House
+- [10:18.510] to incredibly brave people, but you have 70 percent of them.
+- [10:23.010] Army soldiers, and especially our Army paratroopers,
+- [10:27.340] truly go all the way.
+- [10:28.710] You know that expression, all the way.
+- [10:31.160] It's one of your beautiful expressions.
+- [10:36.510] As president of the United States
+- [10:38.490] let me express my undying gratitude
+- [10:41.240] to our nation for every soldier here today,
+- [10:45.080] for every veteran and their families,
+- [10:47.440] those incredible families that are with us
+- [10:50.600] and all across America.
+- [10:51.940] And for every patriot who has worn the uniform.
+- [10:57.110] Over 250 years, can you imagine that?
+- [11:00.720] We thank you from the absolute bottom of our hearts.
+- [11:04.970] Few places loom larger in Army lore
+- [11:07.830] than where we are gathered today,
+- [11:11.600] the one and only Fort Bragg, the one and only Fort Bragg.
+- [11:22.200] But remember, it was only that little brief moment
+- [11:24.820] that it wasn't called Fort Bragg,
+- [11:27.260] it was by the Biden administration, not Trump.
+- [11:30.380] I had nothing to do with it. We got it changed.
+- [11:35.180] (audience booing) We said -- you know,
+- [11:36.810] I came here numerous times
+- [11:38.660] and everybody they kept saying Fort Bragg, Fort Bragg.
+- [11:41.310] I said, you know it's not the name,
+- [11:42.830] but then I was making a speech,
+- [11:44.700] I said, what do you think I should call this place.
+- [11:46.480] Call it Fort Bragg?
+- [11:47.940] I said Fort Bragg, how are you doing?
+- [11:50.250] We won a lot of battles from this place
+- [11:52.450] and that's the way it is. It wasn't even close.
+- [11:54.540] When Pete and some of the generals came to see me,
+- [11:57.200] I said not even close, not even close.
+- [12:00.340] This is the home of the Green Berets,
+- [12:03.740] the Sky Dragons and the All American 82nd Airborne.
+- [12:09.130] We know what, 82nd Airborne Division.
+- [12:14.460] This is where the guys who won the Second World War
+- [12:18.500] learned to pack their parachutes and push howitzers
+- [12:23.570] and go right into those C-47s with lots of arms
+- [12:28.230] and push them right out those big beautiful doors
+- [12:30.940] and wield their bayonets and pry the enemy
+- [12:34.510] from the hedgerows of the French countryside.
+- [12:38.730] France needed us badly. We were there.
+- [12:42.090] A lot of people needed us badly.
+- [12:44.200] They still do, maybe worse than ever.
+- [12:46.970] It was here in this soil that the army forged the metal
+- [12:49.830] that held strong at Bastogne.
+- [12:53.800] It was here the mighty Paratroopers earned their wings
+- [12:56.480] before they rained down death from above to liberate
+- [13:00.850] Sicily, Normandy and even the Netherlands.
+- [13:04.070] That's right. We saved the Netherlands.
+- [13:07.470] Every inch of this base is steeped in the legacy
+- [13:10.370] of those warriors who have said with pride, sir,
+- [13:14.350] I trained at Fort Bragg, sir.
+- [13:18.300] That was pretty cool, and that is why we restored
+- [13:22.340] the historic name of this very, very special place.
+- [13:25.260] I don't know if it could be the same place.
+- [13:27.790] Fort Bragg is in, that's the name and Fort Bragg,
+- [13:33.110] it shall always remain,
+- [13:35.080] that's never going to be happening again.
+- [13:43.440] And for a little news for the fake news back there,
+- [13:45.810] the fake news, ladies and gentlemen --
+- [13:47.530] look at them, look at them all,
+- [13:48.900] aye yai yai, what I have to put up with.
+- [13:51.670] Fake news.
+- [13:55.640] (audience booing) What I have to put up with,
+- [13:58.260] but they're all right. They've been very nice today.
+- [14:00.190] They were impressed with that display; I can tell you that.
+- [14:03.440] I think it took them a little by surprise,
+- [14:05.470] but for a little breaking news, we are also going to be
+- [14:10.910] restoring the names to Fort Pickett,
+- [14:14.450] Fort Hood, Fort Gordon, Fort Rucker, Fort Polk,
+- [14:19.830] Fort A.P. Hill and Fort Robert E. Lee.
+- [14:28.810] We won a lot of battles out of those forts.
+- [14:31.130] It's no time to change.
+- [14:34.050] And I'm superstitious, you know, I like to keep it going, right.
+- [14:37.480] I'm very superstitious, we want to keep it going.
+- [14:40.770] So, that's a big story.
+- [14:41.990] We just announced that today to you for the first time.
+- [14:44.250] They said why don't you wait till Saturday,
+- [14:45.770] I said I can't wait.
+- [14:48.110] I got to talk to my friends here today.
+- [14:50.440] This is a record crowd.
+- [14:51.700] You know you never -- you never had a crowd this big.
+- [14:54.280] That's an honor.
+- [14:55.550] You think this crowd would have showed up for Biden?
+- [14:57.660] I don't think so.
+- [14:59.150] (audience booing) I don't think so.
+- [15:00.490] I don't think so.
+- [15:01.780] Maybe I'm wrong, maybe I'm wrong.
+- [15:05.390] I want to thank so many great leaders here today,
+- [15:07.670] including Secretary of Defense, Pete Hegseth,
+- [15:10.800] who's been great by the way.
+- [15:12.240] Pete, thank you, great. And he went through the wars.
+- [15:18.070] You know, Pete went through the wars,
+- [15:19.530] he had to get through a very hostile group of people
+- [15:22.580] that I think really don't want to see America be great again,
+- [15:26.200] maybe or something, but he persevered
+- [15:29.650] and he got there and he's doing a fantastic job.
+- [15:31.980] Great job, Pete. Thank you very much.
+- [15:34.100] Secretary of Veterans Affairs, Doug Collins, a fantastic man.
+- [15:38.210] Thank you, Doug.
+- [15:39.470] You're doing a great job -- doing a great, great job.
+- [15:45.270] Way, way up from the last administration, veterans --
+- [15:48.310] the Veterans Administration. It's way up.
+- [15:51.980] You saw the recent poll. The people are happy.
+- [15:54.530] They weren't happy a couple of years ago.
+- [15:57.430] They were really happy five years ago,
+- [16:00.370] but it went downhill from there.
+- [16:01.690] We did so much. We got you medical --
+- [16:04.470] if you had to wait, if you had to delay at all,
+- [16:06.330] you go out to see a private doctor,
+- [16:07.890] we pay the bill, you take care --
+- [16:09.130] you don't wait for six months and end up getting very sick.
+- [16:11.800] And something that could have been done
+- [16:13.390] with a little shot or a pill.
+- [16:16.040] We did that, then they wanted to drop that.
+- [16:18.040] I said, we're not dropping it. But Doug, I'm proud of you.
+- [16:21.210] I just heard some great things. Thank you very much.
+- [16:24.010] The secretary of the Army, a really brilliant, young guy,
+- [16:28.560] went to Yale. You can't have everything.
+- [16:32.050] Top student, Dan Driscoll, thank you. Thank you, Dan.
+- [16:42.350] And we have your Senators Senator Ted Budd
+- [16:46.400] and Senator Thom Tillis. Thank you, fellas.
+- [16:55.710] Congressman Richard Hudson, Pat Harrigan.
+- [17:00.270] Where's Pat? Pat, good? Pat, you're doing great.
+- [17:03.380] You guys are amazing and we have the big brass,
+- [17:07.490] General Andrew Pappas. General, thank you.
+- [17:11.670] Thank you, gentlemen, doing a great job.
+- [17:16.570] General John Braga, John? Thank you. Great job.
+- [17:20.800] Thank you for today, John. General Greg Anderson.
+- [17:26.680] Thank you. Thank you, Greg. Thank you.
+- [17:30.520] Sergeant major of the Army, Michael Weimer.
+- [17:38.960] And before going further, I want to say a few words
+- [17:41.520] about the situation in Los Angeles, California.
+- [17:45.300] Have you heard of the place,
+- [17:47.660] where I've deployed thousands of National Guard troops
+- [17:50.590] and hundreds of Marines
+- [17:51.790] to protect federal law enforcement
+- [17:54.080] from the attacks of a vicious and violent mob
+- [17:58.020] and some of the radical left. They say, oh, that's not nice.
+- [18:00.580] Well, if we didn't do it, there wouldn't be a Los Angeles
+- [18:02.850] we'd be burning today just like their houses
+- [18:04.710] were burning a number of months ago.
+- [18:07.800] Generations of army heroes
+- [18:10.700] did not shed their blood on distant shores
+- [18:13.510] only to watch our country be destroyed by invasion
+- [18:16.810] and third world lawlessness here at home like
+- [18:20.150] is happening in California.
+- [18:22.830] As Commander in chief, I will not let that happen.
+- [18:25.820] It's never going to happen.
+- [18:30.680] What you're witnessing in California
+- [18:32.550] is a full-blown assault on peace,
+- [18:34.710] on public order and on national sovereignty
+- [18:38.330] carried out by rioters bearing foreign flags
+- [18:42.410] with the aim of continuing a foreign invasion of our country.
+- [18:46.580] We're not going to let that happen.
+- [18:49.580] Remember, millions of people were allowed
+- [18:52.020] to come into our country totally unchecked and unvetted
+- [18:55.560] by stupid people or radical left people or sick people.
+- [19:00.010] But regardless, open border policy, the dumbest policy yet.
+- [19:05.150] I would say even dumber than men playing in women's sports,
+- [19:10.100] transgender for everyone, even dumber than that.
+- [19:17.910] They're hurling bricks and cinder blocks
+- [19:20.750] at law enforcement.
+- [19:22.240] Did you see they're breaking up the sidewalks and the curbs,
+- [19:25.610] breaking it up with big strong hammers?
+- [19:27.890] These guys are professionals. These are not amateurs.
+- [19:30.610] They're breaking it up
+- [19:31.870] because they took the bricks away from them.
+- [19:34.380] They came in with bricks,
+- [19:35.580] red bricks that they could throw at our military
+- [19:38.540] and at the police in L.A., who are very good.
+- [19:42.370] But they weren't aggressive like our soldiers.
+- [19:44.330] Our soldiers really were aggressive,
+- [19:46.340] but they all worked together. But they came in with bricks.
+- [19:49.810] They were taken away and they had hammers.
+- [19:52.990] Oh, wow, how did that happen?
+- [19:54.430] And they're pounding the sidewalk.
+- [19:55.850] I said, what the hell is he doing?
+- [19:57.900] And he's breaking it up
+- [19:59.140] and making it into concrete bombs, in a way.
+- [20:03.690] And they're dropping them on our military.
+- [20:05.230] They're throwing them at our military pretty good arms
+- [20:08.550] they had too, hit guys right in the face,
+- [20:11.590] big chunk of concrete, worse than a brick.
+- [20:14.310] They're taking him up to the bridges
+- [20:15.790] and they're dropping them in the cars that are going by.
+- [20:18.440] These are animals,
+- [20:20.480] but they proudly carry the flags of other countries,
+- [20:25.020] but they don't carry the American flag.
+- [20:26.890] They only burn it.
+- [20:28.130] Did you see a lot of flags being burned?
+- [20:30.660] They weren't being burned by people from our country
+- [20:35.300] or from people that love our country.
+- [20:38.740] People that burn the American flag
+- [20:40.950] should go to jail for one year.
+- [20:42.490] That's what they should be doing, one year,
+- [20:47.190] and we'll see if we can get that done.
+- [20:48.980] We're going to try and get that done.
+- [20:50.310] We're working with some of your senators.
+- [20:52.560] I know Senator Josh Hawley is very much involved,
+- [20:56.460] and I know the two senators from here.
+- [20:58.230] I think you guys -- are you guys in favor of it?
+- [21:01.470] Boy, would this be a bad time for them to say no.
+- [21:05.110] I got you. I got those two votes.
+- [21:08.170] The agitators are throwing firebombs,
+- [21:10.910] Molotov cocktails, lighting vehicles ablaze.
+- [21:14.560] You saw all the cars that were burning,
+- [21:16.330] mobbing police officers and ICE officers
+- [21:19.490] who are the toughest people you'll ever meet.
+- [21:21.880] And they love our country and they're getting really --
+- [21:25.830] tried to -- they want to stomp on them, but they're too tough.
+- [21:28.140] They don't allow it.
+- [21:29.510] And attempting to infiltrate and occupy federal buildings,
+- [21:32.830] wearing armor and face shields.
+- [21:34.940] The best money can buy, somebody is financing it
+- [21:37.700] and we're going to find out through Pam Bondi
+- [21:39.900] and Department of Justice, who it is.
+- [21:42.510] They're already on it,
+- [21:43.790] who's financing all this equipment, very professional.
+- [21:48.060] Under the Trump administration, this anarchy will not stand.
+- [21:52.300] We will not allow federal agents to be attacked
+- [21:54.770] and we will not allow an American city to be invaded
+- [21:57.750] and conquered by a foreign enemy and that's what they are.
+- [22:01.860] A lot of those people were let in here
+- [22:04.170] by the Biden administration.
+- [22:06.400] They just poured right in. They came from prisons.
+- [22:09.490] They came from jails from all over the world.
+- [22:11.470] They came from mental institutions,
+- [22:13.310] they were the leaders of gangs.
+- [22:15.520] They were drug lords allowed to come into our country.
+- [22:18.690] Their countries threw them out.
+- [22:20.690] Their countries would bus them or drive them
+- [22:22.530] right to our border and say, go in there, you ever come back,
+- [22:24.920] we're going to kill you.
+- [22:26.720] And we got them and we're getting them out of here.
+- [22:29.500] I want to applaud the courage
+- [22:31.350] and the strength of the incredible troops
+- [22:33.980] who are right now standing guard
+- [22:36.520] to protect federal property and personnel
+- [22:39.700] and uphold the supremacy of federal law.
+- [22:42.760] That's what they're doing.
+- [22:44.140] They're protecting our ICE agents.
+- [22:47.250] They're protecting the police in Los Angeles.
+- [22:50.250] The head of the police in Los Angeles, a good man.
+- [22:53.800] I hear a good man, but he was actually saying
+- [22:56.460] we really did need this help. It had gotten away from them.
+- [22:59.850] It had long gotten away, and we gave it to him.
+- [23:03.710] Not only are these service members
+- [23:05.450] defending the honest citizens of California,
+- [23:08.190] they're also defending our republic itself.
+- [23:11.660] And they are heroes, they're in there, they're heroes.
+- [23:14.230] They're fighting for us. They're stopping an invasion,
+- [23:17.220] just like you'd stop an invasion.
+- [23:18.770] The big difference is most of the time
+- [23:21.040] when you stop an invasion, they're wearing a uniform.
+- [23:24.360] In many ways, it's tougher when they're not wearing a uniform
+- [23:27.100] because you don't know exactly who they are.
+- [23:30.020] In Los Angeles, the governor of California,
+- [23:32.660] the mayor of Los Angeles, they're incompetent
+- [23:42.270] and they paid troublemakers, agitators and insurrectionists.
+- [23:47.740] They're engaged in this willful attempt to nullify federal law
+- [23:52.250] and aid the occupation of the city by criminal invaders.
+- [23:57.030] That's what it is. They're invaders, no different.
+- [24:00.540] Their position is that the rioting will not stop
+- [24:03.470] unless ICE withdraws from Los Angeles
+- [24:05.770] and ceases the enforcement of federal immigration law.
+- [24:09.120] In other words, they came in here illegally,
+- [24:11.450] many of them came out of prisons and jails,
+- [24:13.740] the most heinous people.
+- [24:16.090] They came from all over the world.
+- [24:17.530] They came from the Congo in Africa.
+- [24:19.470] They came from Asia.
+- [24:21.460] They came from the prisons of these places.
+- [24:24.900] They were put into the United States
+- [24:26.790] and allowed to stay here
+- [24:28.620] because we had a grossly, grossly unfit president
+- [24:35.280] who listened to whoever was operating the autopen,
+- [24:39.550] and they allowed these people to stay.
+- [24:41.170] And by the way, I've known this guy for a long time.
+- [24:43.360] He was never the sharpest bulb, but you know what he was,
+- [24:46.860] he wasn't a radical left lunatic.
+- [24:49.650] He never dreamt about open borders.
+- [24:51.630] He never said that when he was of sound mind,
+- [24:54.340] which actually was a very long time ago.
+- [24:58.160] So sad what they've done to our country.
+- [25:01.080] I will say without question, however,
+- [25:03.950] you're seeing the financial numbers.
+- [25:06.230] We've now got the hottest country anywhere in the world
+- [25:10.420] and six months ago it was the coldest country.
+- [25:13.670] We're being laughed at all over the world.
+- [25:16.420] I was in Saudi Arabia, Qatar, UAE.
+- [25:21.000] We brought back $5.1 trillion into our country
+- [25:24.340] and all three leaders, they're great leaders,
+- [25:26.900] all three said,
+- [25:28.260] you are presiding over the hottest country
+- [25:31.470] anywhere in the world.
+- [25:33.240] And they said the exact same thing.
+- [25:34.950] They said, six months ago, it was the coldest country.
+- [25:38.830] I'll tell you it changed on a date.
+- [25:40.240] You know what November 5th was,
+- [25:41.830] it was the election of a president that loves you
+- [25:45.070] and that's when it all changed. That's when it all changed.
+- [25:51.980] Within the span of a few decades,
+- [25:53.980] Los Angeles has gone from being one of the cleanest, safest
+- [25:57.730] and most beautiful cities on Earth
+- [26:00.740] to being a trash heap with entire neighborhoods
+- [26:03.890] under the control of transnational gangs
+- [26:07.370] and criminal networks.
+- [26:08.690] It's horrible what's happened so quickly.
+- [26:11.880] As the entire world can now see,
+- [26:13.700] uncontrolled migration leads to chaos, dysfunction and disorder.
+- [26:19.190] And you know what, they have it in Europe too.
+- [26:22.410] It's happening in many of the countries of Europe.
+- [26:26.150] They don't like it when I say it,
+- [26:27.940] but I'll say it loudly and clearly,
+- [26:29.670] they'd better do something before it's too late.
+- [26:33.170] Very simply, we will liberate Los Angeles and make it free,
+- [26:36.310] clean and safe again, it's happening very quickly.
+- [26:39.610] The One Big, Beautiful Bill, you've heard about it,
+- [26:41.740] we call it the One Big -- you know,
+- [26:43.210] I was on one of the television shows,
+- [26:45.090] I think Deface the Nation.
+- [26:46.410] Ladies and gentlemen, Deface the Nation.
+- [26:50.130] It's actually called Face the Nation for those of you
+- [26:52.220] that are smart enough not to know,
+- [26:53.670] because you're better off not knowing.
+- [26:55.390] But I was on one of the shows
+- [26:57.660] and I said we've got to get a great bill.
+- [27:00.330] They said, would you like it to be one bill
+- [27:01.950] or would you like it to be seven or eight bills?
+- [27:04.230] I said I want one big, beautiful bill.
+- [27:06.750] And the Republican Party liked that statement.
+- [27:08.660] They call it One Big, Beautiful Bill.
+- [27:10.170] So, that's good and that's what it is. It's great.
+- [27:13.820] And it's currently before Congress,
+- [27:15.610] it provides all necessary
+- [27:17.120] funding for ICE, for Border Patrol
+- [27:19.600] and for the Department of Defense.
+- [27:21.440] And I told you at a level that we've never had before,
+- [27:23.740] over $1 trillion.
+- [27:24.950] We'd better get that bill approved otherwise
+- [27:28.130] your helicopters and your planes and your equipment
+- [27:30.790] is going to start to look a little bit old, General.
+- [27:32.760] You'd better push your favorite Congressman;
+- [27:35.120] you'd better push these two Senators.
+- [27:36.850] I think they're in good shape, however.
+- [27:39.150] But we've got to get it approved
+- [27:40.980] and those Congressmen by you are all 100 percent.
+- [27:44.720] I don't even have to talk to them; they've been so great.
+- [27:48.130] So, I want to sign this into law immediately and with the signing
+- [27:51.640] so many great things will happen to our country.
+- [27:54.170] No tax on tips, think of that --
+- [27:59.050] no tax seniors on Social Security, no tax on overtime.
+- [28:05.360] It's going to -- they're going to pay for themselves.
+- [28:08.120] And if you get a car and if you borrow money to buy the car,
+- [28:10.900] we're going to let you deduct the interest payment,
+- [28:13.230] if it's a new car made in America.
+- [28:14.760] Only if it's made in America;
+- [28:15.980] if it's made in Japan or China or any place else
+- [28:19.620] we're not really interested in your deduction.
+- [28:23.800] I was elected winning all seven swing states,
+- [28:26.440] the popular vote by millions and millions of votes
+- [28:29.200] and all counties throughout America by 2,750 to 525.
+- [28:35.550] That's what I call a big number.
+- [28:38.670] But this is a mandate from the people
+- [28:40.630] to restore the sovereign borders of the United States.
+- [28:43.730] And that is exactly what we're doing, not only the borders,
+- [28:47.320] the financial institutions and our country itself.
+- [28:51.570] We will not be deterred.
+- [28:53.760] And the mob in Los Angeles or anyone else
+- [28:57.620] anywhere else will not succeed.
+- [28:59.890] They don't even have a little chance.
+- [29:01.950] And I will be calling you early as I see this happening,
+- [29:05.400] because, you know, in theory
+- [29:06.970] I guess you could say a governor could call.
+- [29:08.890] But they don't call.
+- [29:10.240] They let their city burn like in Minneapolis
+- [29:13.510] with this guy who ran for vice president against JD.
+- [29:16.890] That was a good debate, JD against this guy.
+- [29:19.430] Remember how bad he was? That was one of the --
+- [29:21.810] I said, JD, has never been a man like you're competing against.
+- [29:26.140] This is the worst -- I think he's running for president too,
+- [29:28.350] can you believe it? But he's a radical left lunatic.
+- [29:32.010] And I'll never forget, in Minnesota --
+- [29:37.810] that city was burning down. Minneapolis was burning down,
+- [29:41.270] it was going to burn to the ground,
+- [29:42.770] and he wouldn't call the guard.
+- [29:45.350] And I waited for a long time
+- [29:46.840] and I called the guard and I saved it,
+- [29:48.710] but I wish I would have called it the first day.
+- [29:51.080] And I said, you know, if this ever happens again
+- [29:53.990] because I was thinking about running
+- [29:55.360] because the election was rigged and stolen. We all know it.
+- [29:58.530] They said we're going to run again
+- [29:59.780] and if I win, I hope, remember too big to --
+- [30:02.710] we're going to make it too big to rig.
+- [30:05.290] But we did -- we won by millions and millions of votes.
+- [30:08.420] So beautiful to watch, that was such a beautiful --
+- [30:10.610] 9:02 in the evening, they said, ladies and gentlemen,
+- [30:14.790] Donald Trump is projected to be the winner.
+- [30:17.540] I said, well, you think that was easy.
+- [30:21.700] I don't think these ladies from North Carolina
+- [30:23.960] think it was easy.
+- [30:25.170] You know, they followed me.
+- [30:27.020] I don't know what happened to their husbands.
+- [30:28.800] They're married to very nice people,
+- [30:31.220] but they've been to what, 138 rallies.
+- [30:34.790] They said more, and they're from North --
+- [30:37.140] it's nice that we have one nearby finally, right?
+- [30:40.240] They go all over the country.
+- [30:41.810] I don't know what the hell's going on, but they're great.
+- [30:43.690] They're North Carolina beautiful, wonderful women.
+- [30:46.820] And we appreciate it.
+- [30:48.300] Like 130 rallies or some crazy number
+- [30:51.670] are your husband satisfied with that?
+- [30:53.370] Are they OK? Oh, here he is, he showed up.
+- [30:56.050] One of them showed up. That's great. Congratulations.
+- [31:00.260] Great women, actually. They're great patriots.
+- [31:03.290] We will use every asset at our disposal to quell
+- [31:07.170] the violence and restore law and order right away.
+- [31:09.350] We're not going to wait seven days
+- [31:10.660] and eight days and wait for a governor
+- [31:12.400] that's never going to call and watch cities burn.
+- [31:17.070] And let me tell you, if we didn't do this
+- [31:18.860] Los Angeles would burn,
+- [31:20.090] it would be burning to the ground right now
+- [31:21.930] just like the houses burned to the ground
+- [31:25.060] just a few months ago.
+- [31:27.340] And the only flag that will wave triumphant
+- [31:29.920] over the streets of Los Angeles is the American flag,
+- [31:33.970] so help me God, the American flag
+- [31:36.830] is the one that's going to wave triumphantly over the streets.
+- [31:43.290] And now let's get back to the true reason we're here today,
+- [31:47.070] celebrating 250 years of unbreakable Army courage.
+- [31:52.440] This week we commemorate
+- [31:54.410] not just the starting point in Army history,
+- [31:57.530] but a turning point in the history of the world,
+- [32:00.690] that's how important it is.
+- [32:02.800] When the Continental Congress created the Army
+- [32:05.300] and appointed its first commander, name happened
+- [32:08.760] to be George Washington.
+- [32:10.130] Has anybody heard of him? George Washington.
+- [32:13.440] Are you okay, darling, are you all right?
+- [32:15.940] Yeah, take your time, please. Doctor, please.
+- [32:18.780] Doctor, doctor in the house. Thank you.
+- [32:24.710] Thank you very much. These are great people.
+- [32:28.440] They've been waiting here a long time, general,
+- [32:31.780] so, you know,
+- [32:33.040] we want to give them all the time they need, right?
+- [32:36.240] Thank you very much.
+- [32:53.140] Greatest people in the world, they are amazing, amazing.
+- [33:03.020] Oh, good. Thank you very much. Thank you.
+- [33:12.240] OK, honey, thank you.
+- [33:15.250] Beautiful young person, beautiful young person.
+- [33:19.960] We have a lot of young people, you know, they have --
+- [33:23.580] we won young people, old people and everything in between.
+- [33:26.590] It's sort of nice.
+- [33:27.830] Remember they used to say,
+- [33:29.090] but Trump doesn't have the young people.
+- [33:30.640] We won -- we won everything.
+- [33:34.430] Thank you very much, doctor. Great job.
+- [33:37.550] When the Continental Congress created the Army
+- [33:39.810] and appointed its first commander,
+- [33:41.420] General George Washington,
+- [33:42.900] they sent the fierce spirit of a free nation into battle
+- [33:46.800] under a rallying cry that echoes to this day --
+- [33:50.800] give me liberty or give me death.
+- [33:53.430] Have you heard of it. Quite a beautiful statement.
+- [33:58.340] Think of what that means, give me liberty
+- [34:00.150] or give me death. I know exactly what that means.
+- [34:03.720] Just three days after the birth of the army, the great patriot,
+- [34:07.890] founding father Dr. Joseph Warren,
+- [34:11.100] was on the front lines as soldiers stood totally
+- [34:15.070] outnumbered and outgunned at Bunker Hill.
+- [34:17.970] They had a group of soldiers against them
+- [34:20.940] that were supposed to be in that day unbeatable.
+- [34:25.070] Warren's mother had begged him, son, please don't do it.
+- [34:29.160] She said please, please don't do it.
+- [34:31.250] Don't risk your life for even the Patriot cause, please.
+- [34:36.620] And he replied, wherever danger is, dear mother,
+- [34:42.740] there your son will be.
+- [34:45.000] I will either set my country free
+- [34:47.210] or shed my last drop of blood to make us so.
+- [34:50.910] So beautiful.
+- [34:52.200] The words are so beautiful.
+- [34:54.240] At Bunker Hill, Warren kept his vow fighting and fighting
+- [34:57.570] and fighting and loving his country
+- [34:59.390] until he fell drenched in blood
+- [35:02.060] and gave his life at the very young age of 34.
+- [35:06.730] Exactly 250 years later we are joined by Dr. Warren's great,
+- [35:12.400] great, great, great, great grandson
+- [35:15.980] and it's seven generations down.
+- [35:19.200] And now an Iraq War veteran, retired Army specialist,
+- [35:24.740] Scott Warren is here with his daughter,
+- [35:28.620] Sergeant E-5 Carrington Sanders of Fort Irwin.
+- [35:32.650] I want to just -- where are you?
+- [35:34.610] Where would you be in this big crowd.
+- [35:39.010] Thank you very much. What an honor, what an honor.
+- [35:47.110] You look great too, by the way. You really look great.
+- [35:50.140] Thank you very much. What a great family,
+- [35:53.980] but you carry in your veins the love and devotion
+- [35:57.450] [Inaudible] for American Liberty.
+- [36:00.880] Please stand, just put that hand up once more for the people
+- [36:05.210] because they want -- thank you very much.
+- [36:06.860] You're looking good, looking good, good genes,
+- [36:11.260] good genetics. Thank you both.
+- [36:15.440] Thank you very much.
+- [36:17.030] The life of a soldier is not just a job,
+- [36:20.390] it's a calling and a sacred tradition
+- [36:23.400] passed down from father to son,
+- [36:25.480] brother to sister and one generation to the next.
+- [36:29.240] At every hour of danger,
+- [36:31.360] our noblest citizens have answered that call,
+- [36:34.680] kiss their loved ones' goodbye
+- [36:36.400] and run to the sound of guns, you run to the sound of guns.
+- [36:40.950] You run right into them.
+- [36:42.150] You're going to win when the British tried
+- [36:44.820] to reconquer our young nation in 1812, 1,000 Americans
+- [36:50.150] at Fort McHenry fought off a British invasion fleet
+- [36:54.150] 5,000 strong. They say it was unstoppable.
+- [36:58.830] Lieutenant Francis Scott Key, you all heard the name,
+- [37:02.340] watched from Baltimore Harbor as the army kept
+- [37:05.640] Old Glory flying high.
+- [37:08.700] Many people died deeply inspired.
+- [37:11.190] He wrote a poem in tribute to army courage
+- [37:14.540] and American pride known today
+- [37:16.250] as the Star-Spangled banner or our national anthem, great.
+- [37:23.210] Eight generations later,
+- [37:24.470] we're joined by a descendant of Francis Scott Key,
+- [37:28.850] who has spent two decades in uniform,
+- [37:30.830] Major Kyle Key of Army National Guard Fame.
+- [37:37.010] Please, Major, where are you, Major?
+- [37:43.170] Thank you. Thank you. Looking good too.
+- [37:46.930] What's going on here? These guys are --
+- [37:49.910] they all come from a very fine strain of blood.
+- [37:54.630] That's great genetics is right. Thank you both very much.
+- [37:58.340] Major Key, thank you for helping
+- [38:00.100] to keep this incredible land of ours free
+- [38:03.670] and the home of the brave and that's what it was.
+- [38:07.390] Through the decades that followed the Army
+- [38:09.270] conquered the great frontier
+- [38:11.400] won the war that restored our nation
+- [38:13.570] and broke forever the chains of slavery.
+- [38:17.580] A generation later, the Army's Rough Riders stormed up
+- [38:21.360] San Juan Hill with Colonel Theodore
+- [38:24.300] Roosevelt and swept the last foreign empire
+- [38:27.800] from the American hemisphere, forever, forever swept.
+- [38:34.610] In World War I,
+- [38:35.930] our doughboys fought bravely in the Valley of the Marne
+- [38:40.500] and in the Argonne. There in 1918, a devout
+- [38:44.950] Tennessee Christian named Alvin York,
+- [38:47.320] you know that name, charged across an open field
+- [38:50.690] towards the German machine guns.
+- [38:52.750] They were firing at levels at that time
+- [38:56.370] that nobody had ever seen before.
+- [38:58.110] They were knocking down everything in their way,
+- [39:00.200] including giant trees were coming down.
+- [39:03.640] The enemy mowed down more than half of his platoon
+- [39:08.090] almost immediately.
+- [39:10.590] The platoon was going down like nobody's ever thought possible.
+- [39:17.910] But York pressed on into the jaws of death.
+- [39:20.440] He slayed German after German
+- [39:22.360] and returned with 132 prisoners from behind the enemy lines
+- [39:27.400] and he had the option of killing them
+- [39:30.060] and he didn't want to do that.
+- [39:31.410] And that's OK, isn't it, right? It's OK.
+- [39:34.950] But he brought 132 back and his actions
+- [39:40.510] and the actions of that great day are crazy,
+- [39:42.790] but great day,
+- [39:44.160] Sergeant York earned the Congressional Medal of Honor
+- [39:47.450] and became one of the most famed
+- [39:49.240] and decorated heroes of the First World War,
+- [39:54.240] very famous actually because of the movie that was made.
+- [39:58.020] And we're joined today by Sergeant York's grandson,
+- [40:00.570] Army Colonel Gerald York. Gerald?
+- [40:05.980] Thank you. Thank you, Gerald. Thank you very much.
+- [40:15.720] It's great, great honor to have you.
+- [40:17.010] Thank you, Gerald.
+- [40:18.760] At his grandfather's funeral in 1964,
+- [40:21.300] Gerald was told by the command sergeant major of Fort Bragg
+- [40:25.720] that it was about time he joined the Army
+- [40:30.050] and he volunteered for combat in Vietnam
+- [40:33.170] and gave the army 31 of his best years.
+- [40:36.540] No, I think your best years are right now.
+- [40:38.250] You look very good. Your best years are right now.
+- [40:40.950] Keep it going. But Colonel York, we salute you,
+- [40:44.060] we salute your family and the fame
+- [40:46.480] and the bravery of your family.
+- [40:47.830] Thank you very much, appreciate you being here.
+- [40:53.760] And in World War II, the Army once again
+- [40:56.040] came to the free world's rescue among the millions
+- [41:00.110] and millions who volunteered was Henry Armstrong.
+- [41:03.880] He enlisted six months before his high school graduation
+- [41:07.650] and did basic training right here at Fort Bragg.
+- [41:11.430] By the next year, he was in Normandy.
+- [41:14.590] He fought his way across France as part of Patton's third Army,
+- [41:18.980] crossed the Rhine into the heart of Germany
+- [41:21.170] and helped liberate a Nazi concentration camp.
+- [41:24.280] He was a brave person.
+- [41:27.090] Command Sergeant Major Henry Armstrong is here with us today.
+- [41:30.460] He's 100 years old, a veteran of numerous World War II battles
+- [41:35.510] and 41 years in the Army.
+- [41:44.020] Thank you. Wow. These are great, amazing people.
+- [41:49.040] Thank you very much. Great. Thank you very much.
+- [41:52.700] He's joined by his grandson, Army Major Dennis Armstrong.
+- [41:57.460] And Dennis, I assume that's you, right?
+- [42:00.000] Thank you, Dennis.
+- [42:01.830] And Dennis's wife Captain Shelley Armstrong.
+- [42:04.680] They love the military and they love our country.
+- [42:08.770] Thank you very much, Shelley. Thank you very much.
+- [42:10.660] Appreciate it and their son, Tanner.
+- [42:13.490] Where's Tanner? Let me see.
+- [42:15.660] Oh, he looks good too. They all look good.
+- [42:18.630] Tanner might look the best, actually.
+- [42:20.810] Thank you very much. Who's an active duty staff
+- [42:24.660] sergeant in the 82nd airborne right here in Fort Bragg.
+- [42:29.480] He could right now run for office, I think.
+- [42:31.390] He's very popular.
+- [42:33.070] In Korea, our warriors held the front line
+- [42:35.390] in the battle against communism and liberated millions
+- [42:38.830] and millions into the light of freedom.
+- [42:41.780] To Vietnam, we sent some of the toughest men
+- [42:44.270] who ever wore army boots and olive drab,
+- [42:49.180] one of them was Joe Malm of Pennsylvania.
+- [42:53.380] He was 23 years old
+- [42:54.660] when his platoon was ordered to rescue soldiers
+- [42:57.460] surrounded by the enemy in the Battle of Ia
+- [43:01.620] Drang, Lieutenant Malm charged into heavy fire,
+- [43:06.780] killing four, enemy soldiers in the brush
+- [43:08.980] before sprinting across 40 yards of open field.
+- [43:13.140] His teammates could not believe he was doing it,
+- [43:15.830] actually, they said.
+- [43:17.600] He then tossed a grenade that killed eight
+- [43:19.680] Viet Cong gunners plunged into the trenches
+- [43:22.400] and killed still more before being shot in the jaw,
+- [43:27.170] badly in the jaw.
+- [43:28.380] He successfully cleared the way for his men
+- [43:31.200] to save their stranded comrades
+- [43:33.990] and frankly, for his men to save their own lives.
+- [43:36.780] He was unbelievable.
+- [43:38.660] For his exceptional bravery, Lieutenant
+- [43:41.030] Malm received the Congressional Medal of Honor
+- [43:44.050] and retired as an Army colonel after 30 years of service.
+- [43:47.380] Colonel Malm is here today with his two sons
+- [43:50.790] Will and Walter, both Army rangers.
+- [43:54.660] What a great family legacy. Please, stand up.
+- [44:04.560] How's your jaw feeling, all right, the jaw?
+- [44:06.910] It's all right? It looks pretty good.
+- [44:08.780] I wish mine looked that good. It's very good.
+- [44:11.970] Thank you very much, great family, appreciate it.
+- [44:14.970] Real heroes.
+- [44:16.670] In the modern era, soldiers have charged into the darkest caves
+- [44:20.490] and ventured into the most godforsaken places to vanquish
+- [44:24.700] the forces of radical Islamic terror
+- [44:27.830] from the face of the Earth.
+- [44:29.720] In 2007, Chief Warrant Officer, Eric Phillips was stationed
+- [44:34.170] at a remote outpost in the Afghan mountains
+- [44:38.480] when a massive Taliban force attacked from all sides,
+- [44:41.660] he thought he was finished.
+- [44:44.340] For three hours, he led a hellacious counter assault
+- [44:47.260] to successfully repulse the enemy in close combat.
+- [44:51.410] In the same deployment, Eric, again repelled an attack
+- [44:54.100] by a vastly larger enemy force, saving countless lives.
+- [44:58.420] For his spectacular gallantry, Chief Phillips earned
+- [45:01.850] the Distinguished Service Cross and the Silver Star,
+- [45:05.080] becoming among the most highly decorated warriors
+- [45:08.140] of any branch in the War on Terror.
+- [45:12.080] Actually he is the most decorated
+- [45:14.970] and it's not even that close. Many, many battles,
+- [45:19.450] many, many medals and he's with us today.
+- [45:22.110] Chief Phillips, you did us all proud.
+- [45:25.460] Please, stand up Chief Phillips.
+- [45:28.880] Thank you. Thank you very much. Thank you.
+- [45:36.880] You are Army strong. Thank you very much, Chief.
+- [45:41.980] From the American Revolution until today,
+- [45:44.120] the story of the Army
+- [45:45.330] is the tale of an unbroken chain of American patriots
+- [45:48.660] who gave all they had for this country.
+- [45:53.080] It is the saga of epic men like Washington
+- [45:56.770] and Jackson, Grant and Custer, Pershing and Eisenhower,
+- [46:00.290] Patton and MacArthur, Wild Bill Donovan
+- [46:05.650] and the great General William Yarborough,
+- [46:08.460] father of the Green Berets. You know that, the Green Berets?
+- [46:11.310] You know that, William Yarborough.
+- [46:13.830] It's the story of fabled units like the Old Guard,
+- [46:17.680] the Iron Brigade, the Big Red One,
+- [46:20.640] the Buffalo Soldiers, the Harlem Hellfighters,
+- [46:24.190] the Tuskegee Airmen, the Screaming Eagles
+- [46:27.370] and George Patton's Hell on Wheels.
+- [46:29.440] They called it Hell on wheels.
+- [46:30.980] When he was after you it was not good.
+- [46:33.850] The weapons of war have changed with every generation,
+- [46:37.630] but the unflinching loyalty of the American soldier
+- [46:40.770] has always remained the same.
+- [46:44.000] The Army has always stayed true to its motto,
+- [46:47.150] This We'll Defend, you know that, this we'll defend.
+- [46:52.740] Army warriors who have laid down their lives for America rest
+- [46:57.160] by the thousands in the sacred soil of Arlington
+- [47:00.460] and Gettysburg, Anzio and Manila
+- [47:04.620] and to far off places known only to God.
+- [47:09.370] We owe everything to them.
+- [47:11.970] Today, we renew our devotion to the cause of liberty
+- [47:15.160] for which they so selflessly lived and fought
+- [47:19.250] and so bravely died.
+- [47:21.660] There could be no greater tribute to their memory
+- [47:24.020] than to prepare the army to dominate America's enemies
+- [47:27.430] for the next 250 years and more than that.
+- [47:31.300] That's why under the Trump administration;
+- [47:34.040] we're focused on restoring the spirit of the U.S. armed forces.
+- [47:39.050] No soldier ever volunteered for the Army
+- [47:41.570] to be lectured about transgender diversity or inclusion.
+- [47:48.010] You don't want to hear that -- transgender for everybody.
+- [47:51.200] We don't do that.
+- [47:52.850] America's patriots joined the army to kick down doors,
+- [47:55.830] storm beaches, kill terrorists and win America's wars.
+- [47:59.340] That's what we want and that's what you want.
+- [48:09.860] And to that end, we're making that record investment,
+- [48:14.120] but not only in the Army and the other forces also,
+- [48:17.200] because you work together as a team.
+- [48:19.810] And we're including in that and across the board --
+- [48:22.480] now you don't have to take this if you don't want.
+- [48:24.470] You could be great patriots, say I don't want to raise,
+- [48:27.990] I do not -- I will not accept it.
+- [48:29.610] Let it go back into our country, let's give it to Gavin Newscum
+- [48:34.260] so he can waste it in Los Angeles.
+- [48:37.100] No, we don't want to do that, but we're giving you
+- [48:39.050] an across-the-board raise
+- [48:40.930] for every single service member in the U.S. armed forces.
+- [48:44.070] We're giving you across the board and you deserve it.
+- [48:50.630] You know, we spend so much money on things
+- [48:52.750] that we shouldn't be spending it on,
+- [48:55.110] but I think those days are stopping,
+- [48:57.170] Mr. Senators and Congressmen that are with us.
+- [49:00.270] As part of our One Big, Beautiful Bill
+- [49:02.470] we are also investing over $1 billion
+- [49:05.730] to update your on-base housing,
+- [49:08.300] and we're building a state-of-the-art missile
+- [49:10.320] defense shield to protect our homeland
+- [49:12.980] and it's called the Golden Dome.
+- [49:14.590] It's going to be all made in America.
+- [49:18.820] We've done it for others.
+- [49:20.130] We're now doing it -- about time, right?
+- [49:22.210] We're doing it for ourselves.
+- [49:24.430] After years of recruiting shortfalls,
+- [49:26.440] this is to me maybe the most exciting thing.
+- [49:29.840] We're setting the strongest peacetime
+- [49:31.630] recruiting records ever.
+- [49:34.640] Just think of this, six months ago
+- [49:36.950] we couldn't recruit anybody to join the military.
+- [49:39.270] Nobody wanted to join. It was six months ago.
+- [49:43.350] And then we had the election of November 5th,
+- [49:46.070] and now we have the strongest recruiting numbers
+- [49:49.340] in the history of our country.
+- [49:51.010] Can you imagine that? Can you imagine that?
+- [49:57.170] We've already surpassed our recruiting targets for 2025
+- [50:00.940] and we're not done yet
+- [50:03.200] and I'll tell you, doesn't it make you feel good
+- [50:05.560] when you had to hear six or seven months ago
+- [50:08.070] that nobody wants to join the Army.
+- [50:09.820] They don't want to join our military.
+- [50:11.210] Frankly, they didn't want to join our police, our firemen.
+- [50:15.000] They lost confidence, they lost faith in our country.
+- [50:19.120] And just a short number of months later
+- [50:22.610] we're setting all-time records.
+- [50:24.450] In fact, your job might be in jeopardy.
+- [50:27.140] Somebody else may come in and take it. That was bad.
+- [50:29.590] We'll get you out of here. You have to be good.
+- [50:32.140] We're getting the best people that you've ever seen.
+- [50:34.360] We're getting people -- they're like I don't think
+- [50:37.060] we've ever seen anything like it,
+- [50:38.620] great people are coming in.
+- [50:40.130] Doesn't it make you feel good though?
+- [50:41.690] You have something and you're doing something
+- [50:43.360] that other people want to join you.
+- [50:44.770] Isn't that a great feeling?
+- [50:47.050] And wasn't it a lousy feeling just a short time ago
+- [50:49.510] when they announced --
+- [50:50.770] you know, you're a soldier and you're proud of your country
+- [50:53.990] and you're proud of the Army in your case
+- [50:56.980] and you're reading stories about nobody wants to come in
+- [50:59.820] and join the military, right? Isn't that lousy?
+- [51:02.070] Even the ladies from North Carolina
+- [51:04.220] were not happy with that.
+- [51:06.300] But then we had a great election.
+- [51:08.690] It was amazing; too big to rig. We had a great election
+- [51:12.190] and all of a sudden, the people are pouring in.
+- [51:15.630] And we have incredible people like Pete
+- [51:17.620] and the others that are here, Dan.
+- [51:21.010] I think they made a big difference, I really do.
+- [51:22.850] So, thank you very much, all of you guys.
+- [51:24.650] I think you've really made a big difference.
+- [51:26.800] The Army will soon be stronger, bigger and better
+- [51:31.100] than ever before.
+- [51:33.080] And every new soldier that joins our ranks
+- [51:35.160] will kindle the same fighting spirit,
+- [51:38.150] exemplified by the likes of Sergeant Major Jim Schmidt,
+- [51:42.920] who's no longer with us.
+- [51:45.170] At 15 years old, after lying about his age
+- [51:49.510] because he wanted to get in so badly,
+- [51:51.720] Jim trained at Fort Bragg to fight in World War II.
+- [51:55.790] When Jim's middle school wrote to ask if he would attend
+- [51:59.810] his eighth-grade graduation, he wrote back,
+- [52:02.350] that will be impossible as I'm rather busy now.
+- [52:07.050] I'm in the hinterlands hunting down Germans --
+- [52:11.390] and I have to say this, and Italians.
+- [52:13.120] I know there are a couple of Germans and Italians here.
+- [52:16.410] As a paratrooper he made the famous
+- [52:19.330] drops at Sicily and Salerno
+- [52:21.800] while still a young boy, too young to be in.
+- [52:24.780] The army kicked him out. They found out about it.
+- [52:26.900] They kicked him out.
+- [52:28.420] They discovered he was way underage.
+- [52:30.380] They said, Jim, you've got to get out of here,
+- [52:31.860] you're a hell of a soldier, but you've got to get out.
+- [52:34.580] But that didn't stop, Jim. He enlisted in the Navy.
+- [52:38.270] But the moment he turned 18, he came right back,
+- [52:42.000] and he joined the 82nd Airborne. How about that.
+- [52:49.350] He went on to fight at the Chosin Reservoir in Korea,
+- [52:53.560] rough place; saw combat in Vietnam
+- [52:56.630] and ended his career right back at Fort Bragg,
+- [52:59.560] having earned two Silver Stars,
+- [53:01.740] three Bronze Stars and two Purple Hearts.
+- [53:05.360] With us today is Jim's widow, Peggy,
+- [53:07.810] and their beloved grandson,
+- [53:10.130] Army Specialist Christian Forbes,
+- [53:12.110] who is currently deployed at our southern border,
+- [53:14.980] defending our country from an invasion.
+- [53:17.640] Whether we like it or not, it's an invasion.
+- [53:20.360] But I don't know if you've heard the invasion
+- [53:24.280] was 99.9 percent stopped. Did you hear that?
+- [53:27.560] 99, could even be more, right? 99.999 percent stopped?
+- [53:33.090] That invasion has stopped. So, I think he's in good shape.
+- [53:36.660] Specialist Forbes, I want to thank you for defending America,
+- [53:40.400] and you've obviously done a good job
+- [53:42.160] because that invasion has been stopped
+- [53:44.110] and we appreciate you being here.
+- [53:45.400] Thank you wherever you may be. Thank you very much.
+- [53:48.990] Thank you very much. Great.
+- [53:52.290] We stopped that sucker, didn't we? Huh?
+- [53:54.950] We stopped it. Thank you very much.
+- [53:57.640] Each and every one of you here today carries in your souls,
+- [54:00.640] the love, strength and courage of millions
+- [54:03.520] upon millions of army patriots who came before you.
+- [54:08.330] Your uniforms bear the same stars
+- [54:10.690] and stripes that our ancestors carried to victory at Yorktown,
+- [54:14.180] across the Great Plains and over our Rockies,
+- [54:18.040] up the missionary ridge,
+- [54:20.560] down through the streets of Paris.
+- [54:22.310] That's right, we went down the streets of Paris.
+- [54:25.100] We've got to help our allies, don't we?
+- [54:28.290] Across the sands of North Africa
+- [54:30.030] and onto the shores of Omaha Beach
+- [54:32.760] into the blood soaked hills of Korea.
+- [54:35.740] And it was a West Point graduate named Buzz
+- [54:38.840] Aldrin, who first planted our great American flag
+- [54:42.580] on the face of the moon.
+- [54:43.900] We know that. Now it's your turn to carry that flag forward
+- [54:48.000] and to add your own daring deeds
+- [54:50.610] into this chronicle of triumph and legends.
+- [54:54.580] Now it's your duty to shield the flame of freedom
+- [54:57.470] that was first lit 250 years ago
+- [55:01.140] by the heroes of Concord Bridge and Bunker Hill.
+- [55:05.880] Standing before you today,
+- [55:07.190] I am more confident than ever that in the days ahead
+- [55:11.810] and every generation to come, the U.S. Army
+- [55:14.350] will heap glory upon glory upon glory upon us all.
+- [55:21.200] You will protect every inch of U.S. soil
+- [55:24.850] and you will defend America to the ends of the earth.
+- [55:29.150] Wherever danger is, there the U.S. Army will be.
+- [55:34.120] Another beautiful phrase. Whatever peril comes our way,
+- [55:39.250] whatever menace threatens our people,
+- [55:41.480] you will stand strong, you will be proud,
+- [55:44.550] you will charge hard
+- [55:46.250] and you will keep that flame lit,
+- [55:48.950] that beautiful, beautiful flame, you're going to keep it lit.
+- [55:53.030] You will hold the flag high and you will do something
+- [55:57.260] that's become quite a famous little phrase also,
+- [56:02.050] but you're a hell of a lot braver than me.
+- [56:04.550] You will fight, fight, fight, and you will win, win, win.
+- [56:08.320] Thank you. God bless you.
+- [56:09.780] God bless our soldiers and God bless the U.S. Army.
+- [56:13.670] Thank you very much. Thank you, everybody.
+- [56:16.880] ♪ ("YMCA" by the Village People) ♪

@@ -1,0 +1,953 @@
+<!-- source: https://www.youtube.com/watch?v=5_6R9nmcvMM -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 5_6R9nmcvMM -->
+<!-- date_published: 2025-03-11T17:59:25+00:00 -->
+<!-- date_accessed: 2026-06-02T02:53:00.585496+00:00 -->
+
+# Transcript: Press Secretary Karoline Leavitt Briefs Members of the Media, Mar. 11, 2025
+
+- [00:00.210] Ms. Leavitt: Good afternoon everybody.
+- [00:01.440] The Press: Good afternoon.
+- [00:02.690] Ms. Leavitt: How are you? Good. Let my staff get settled.
+- [00:04.940] There's a lot of news today,
+- [00:06.170] so I look forward to taking your questions.
+- [00:07.740] Good to see you.
+- [00:08.980] And I have some updates for you as well.
+- [00:11.240] Later today, President Trump will address
+- [00:13.510] the Business Roundtable's quarterly meeting,
+- [00:16.280] where he will tout his pro-growth economic agenda
+- [00:18.970] and answer questions
+- [00:20.190] before more than 100 of our nation's leading CEOs.
+- [00:23.990] In fact, it's the largest attendance ever for this event,
+- [00:27.570] because business leaders are so eager
+- [00:29.810] and encouraged by President Trump's return to Washington.
+- [00:33.600] This follows President Trump's roundtable yesterday
+- [00:36.030] with the Technology CEO Council here at the White House,
+- [00:39.430] where he met with key leaders in the technology industry.
+- [00:42.810] And last night, President Trump also held an official swearing-
+- [00:46.090] in ceremony in the Oval Office for Sean Curran,
+- [00:49.020] who is now the 28th Director
+- [00:51.280] of the United States Secret Service.
+- [00:53.410] Sean demonstrated unbelievable bravery under gunfire
+- [00:57.140] in Butler, Pennsylvania this past July
+- [00:59.740] when an assassin tried to kill President Trump.
+- [01:02.420] As someone who got to know
+- [01:03.780] Sean personally throughout the campaign last year,
+- [01:06.640] I can say, unequivocally,
+- [01:08.000] that there is nobody better suited for this important role.
+- [01:12.090] And following the confirmation of Labor Secretary Lori
+- [01:15.060] Chavez-DeRemer last night,
+- [01:17.200] the Senate has now confirmed 21 of President Trump's
+- [01:20.390] well-qualified cabinet-level nominees,
+- [01:22.970] far outpacing the previous administration.
+- [01:26.320] And looking ahead, tomorrow, the President will welcome
+- [01:29.230] the Taoiseach Micheal Martin of Ireland
+- [01:32.120] for the annual White House Shamrock Ceremony.
+- [01:36.100] And Thursday, President Trump
+- [01:37.830] will welcome the NATO Secretary General
+- [01:40.010] for a working meeting and lunch. On the economy,
+- [01:43.920] February's jobs report was good news for America,
+- [01:47.260] particularly our manufacturing sector.
+- [01:50.190] The manufacturing sector gained 10,000 new jobs
+- [01:53.550] in just one month under President Trump.
+- [01:56.180] This rebound was led by the automobile sector,
+- [01:59.020] where we saw 9,000 new auto jobs created already.
+- [02:03.090] That is the most auto jobs added to the economy in 15 months.
+- [02:07.690] This was a complete turnaround from the Biden administration,
+- [02:11.290] where we were losing an average of 9,000
+- [02:13.800] manufacturing jobs per month last year.
+- [02:16.670] Reuters is out with a report that a number of companies
+- [02:19.530] are now looking at expanding their presence
+- [02:21.720] or bringing their businesses into America
+- [02:24.340] because of President Trump's policies.
+- [02:26.470] And just moments ago, before coming out here,
+- [02:28.870] I saw another report by Reuters,
+- [02:31.140] revealing that Merck has opened a $1 billion facility
+- [02:35.230] at its North Carolina site.
+- [02:37.120] This is just the latest pharmaceutical company
+- [02:39.460] to boost its US manufacturing
+- [02:41.460] in lieu of President Trump's tariffs.
+- [02:44.070] This announcement follows Eli Lilly's plans to invest
+- [02:46.970] at least 27 billion to build four new
+- [02:49.420] manufacturing plants here in the United States.
+- [02:52.150] And Pfizer has also said it's considering
+- [02:54.470] moving their manufacturing overseas right here
+- [02:57.870] to the United States of America.
+- [03:00.220] As the President has said over and over again,
+- [03:03.290] when we purchase products made in the USA,
+- [03:05.970] the profits stay here, the revenue stays here,
+- [03:08.320] and most importantly, the jobs stay here.
+- [03:11.380] And despite the globalist mainstream media's attempts
+- [03:13.740] to worry consumers, President Trump will not repeat
+- [03:17.030] the trend of past American presidents
+- [03:19.060] who broke their promises to the American public
+- [03:21.770] and smiled while they stuck a knife
+- [03:23.580] in the back of American workers and shipped their jobs overseas.
+- [03:27.890] Our country has lost more than 5 million jobs
+- [03:31.090] in more than 90,000 factories,
+- [03:33.180] due to devastating globalization,
+- [03:35.420] over the last three decades alone.
+- [03:37.700] North Carolina lost 300,000 manufacturing jobs,
+- [03:41.440] including 60% of its furniture manufacturing jobs,
+- [03:45.040] in the years following NAFTA.
+- [03:47.040] And in Michigan, globalist policies destroyed 250,000 jobs,
+- [03:51.530] including 40% of the auto industry,
+- [03:54.620] which, again, we know is clawing back
+- [03:56.710] because of President Trump's action already.
+- [03:59.410] These are harrowing statistics that represent countless towns
+- [04:02.640] and families who have been completely destroyed.
+- [04:05.840] But the America last globalist era
+- [04:07.890] is ending under President Trump.
+- [04:10.160] He will no longer allow our country and our workers,
+- [04:13.100] our hardworking American families, to be ripped off.
+- [04:17.420] On another very important issue for the president,
+- [04:20.860] he continues to work hard to secure the border.
+- [04:23.600] If you missed it yesterday, CBP launched an enhanced home
+- [04:27.350] mobile app with a new feature, the Intent to Depart,
+- [04:31.030] which offers unlawfully present aliens
+- [04:33.590] or those aliens whose parole has been revoked,
+- [04:36.370] an orderly and defined process to notify the U.S. government
+- [04:40.240] of their intent to depart the country.
+- [04:42.940] The CBP Home app strengthens our mission
+- [04:45.340] to secure the border and provides illegal aliens
+- [04:48.230] with a straightforward way to leave now
+- [04:51.040] before facing much harsher consequences later.
+- [04:54.880] A new report from Bloomberg just found
+- [04:56.940] that the number of aliens trying to reach our country
+- [04:59.650] by traveling through the jungle to Central America
+- [05:02.080] dropped a whopping 99% last month.
+- [05:06.760] And this follows the incredible news
+- [05:08.590] that illegal border crossings plummeted last month as well,
+- [05:11.550] down 94% at our southern border from last February
+- [05:16.460] under the Biden administration.
+- [05:18.990] As President Trump made clear
+- [05:20.370] during his historic address to Congress,
+- [05:22.580] we must finish this job and continue to carry out
+- [05:25.480] the largest deportation campaign in American history.
+- [05:29.300] And that is why the President fully endorses
+- [05:31.910] the continuing resolution that is before Congress
+- [05:34.800] and was negotiated by Speaker Johnson.
+- [05:37.410] He is encouraging all Republicans
+- [05:39.330] to vote yes on this clean CR,
+- [05:42.150] which freezes funding at current levels
+- [05:44.180] and will prevent the Democrats
+- [05:46.080] from getting their long-awaited government shutdown.
+- [05:49.000] Voting against this CR will hurt the American people
+- [05:52.020] and kill the incredible momentum
+- [05:53.680] that President Trump has built over the past 51 days.
+- [05:58.270] And lastly before I take questions,
+- [06:00.140] I would like to commend the Washington Post,
+- [06:02.150] who I believe is in the room today.
+- [06:04.280] According to a new report from Axios, the Washington Post
+- [06:07.520] is overhauling their newsroom structure.
+- [06:10.190] It appears that the mainstream media including the Post,
+- [06:12.810] is finally learning that having disdain
+- [06:15.430] for more than half of the country
+- [06:16.800] who supports this president does not help you sell newspapers.
+- [06:20.000] It's not a very good business model,
+- [06:22.210] and that's why we have people in our new media seat.
+- [06:24.630] And today we have Saagar Enjeti
+- [06:26.980] who is the host of Breaking Points,
+- [06:28.820] a popular political YouTube news and podcast show
+- [06:31.870] that has racked up nearly one billion views on YouTube,
+- [06:35.070] several hundred million podcast downloads
+- [06:37.070] since its launch in June 2021. He's also a former member
+- [06:41.220] of the White House Correspondents' Association,
+- [06:43.050] but is now a part of the thriving independent media.
+- [06:46.380] We're very happy to have you with us here today.
+- [06:48.350] Why don't you kick off our briefing? Thank you.
+- [06:50.120] The Press: Really, really appreciate
+- [06:51.390] you having me, Karoline.
+- [06:52.770] A couple of questions for you, if I may.
+- [06:54.660] First is first on the stock market.
+- [06:56.570] So currently it's the 25th anniversary today
+- [07:00.110] of the dot-com bubble crash.
+- [07:02.160] There's a lot of concern for a lot of Americans right now
+- [07:04.390] about the state of the economy.
+- [07:06.100] President Trump has refused to rule out a recession.
+- [07:08.390] Secretary Lutnick however,
+- [07:10.130] has told us there will not be one.
+- [07:11.680] So can the White House just tell and assure Americans today
+- [07:14.230] that there's not going to be a recession?
+- [07:15.920] Ms. Leavitt: Well, there's a lot to unpack there.
+- [07:17.350] So let me start by saying that first of all
+- [07:19.260] when it comes to the stock market,
+- [07:20.800] the numbers that we see today, the numbers we saw yesterday,
+- [07:23.350] the numbers we will see tomorrow
+- [07:25.760] are a snapshot of a moment in time.
+- [07:27.930] And as President Trump has said, and I'm here to echo
+- [07:30.430] the remarks of this president of this White House,
+- [07:33.240] we are in a period of economic transition.
+- [07:36.380] We are in a period of transition from the mess
+- [07:39.070] that was created under Joe Biden and the previous administration.
+- [07:43.070] Joe Biden left this country in an economic disaster.
+- [07:46.620] Several statistics to point out,
+- [07:48.100] the delinquency rate on credit card
+- [07:49.800] loans increased 63% under Joe Biden,
+- [07:53.030] hitting a near 12-year high. Under Joe Biden,
+- [07:55.940] all net job growth went to foreign-born Americans.
+- [07:59.420] Real wages declined by 1.5% under Joe Biden.
+- [08:03.270] And as we all know in this administration
+- [08:05.150] continues to combat,
+- [08:06.380] prices soared more than 20% under Joe Biden
+- [08:10.580] because of his reckless spending and economic policies.
+- [08:13.430] So we are in a period of transition
+- [08:15.190] from that economic nightmare under a president
+- [08:17.530] who had no idea what he was doing,
+- [08:19.310] never held the private sector job in his life,
+- [08:21.660] into a golden age of American manufacturing
+- [08:24.650] under a businessman and a dealmaker-in-chief
+- [08:27.460] and President Donald J. Trump, who will be implementing,
+- [08:30.570] is implementing the formula that we know works.
+- [08:33.960] Look at President Trump's results in his first term.
+- [08:36.840] If people are looking for certainty,
+- [08:38.720] they should look at the record of this president.
+- [08:40.760] That's why the American people
+- [08:42.450] reelected him back to this office.
+- [08:44.290] And look at everything
+- [08:45.550] that President Trump has already done,
+- [08:47.170] and his team has already done in just 51 days.
+- [08:50.260] The massive efforts to deregulate,
+- [08:52.680] tax cuts which we need Congress
+- [08:54.620] to pass the Trump economic agenda,
+- [08:57.080] the Trump tax cuts which will unleash economic growth.
+- [09:00.370] And the president also addressed this directly.
+- [09:02.330] I will point out as well,
+- [09:04.080] when you look at what he said on Air Force One,
+- [09:07.030] and he said he wants the American people
+- [09:08.750] to have so much money in their pockets
+- [09:10.560] they don't even know what to do with it.
+- [09:12.160] That's the intent of this administration,
+- [09:13.810] and we're working very hard every day on that goal.
+- [09:16.270] The Press: Second question on the CR.
+- [09:17.560] So President Trump came out today
+- [09:18.970] in a primary challenge against Congressman Thomas Massie.
+- [09:21.850] Congressman Massie has been a supporter of DOGE.
+- [09:23.870] He's been a supporter of Make America Healthy Again.
+- [09:26.640] What kind of message is this White House
+- [09:28.460] sending against a congressman who's sticking up for principles
+- [09:31.410] that he's long held in the chamber
+- [09:33.900] and voting against continuing resolution and it's spending?
+- [09:36.780] Ms. Leavitt: I think the president has made it very clear
+- [09:38.580] that he believes it's critical for conservatives
+- [09:40.700] and Republicans,
+- [09:42.070] and frankly all members of Congress
+- [09:43.670] to get behind this continuing resolution
+- [09:47.090] to keep the government funded.
+- [09:48.350] The president wants to continue the momentum
+- [09:50.590] that he has built over the last 51 days.
+- [09:53.740] In order to keep the government funded
+- [09:55.310] we got to keep moving with these deportations,
+- [09:57.970] and he believes that everybody
+- [09:59.220] needs to get on board with this bill.
+- [10:00.830] He's been active in this process.
+- [10:02.250] He's been making calls to get this over the finish line.
+- [10:04.810] And we're urging every Republican and Democrats too
+- [10:07.860] to do what's right for the American public
+- [10:09.970] to prevent a government shutdown.
+- [10:11.340] The Press: Just the last question here on Mahmoud Khalil.
+- [10:13.170] Does the administration believe that it needs to charge
+- [10:16.040] a green card holder with a crime to be eligible for deportation?
+- [10:20.920] Ms. Leavitt: Well, in fact, Secretary Rubio
+- [10:24.520] reserves the right to revoke the visa of Mahmoud Khalil,
+- [10:28.440] and I'm glad you brought this up.
+- [10:30.010] Under the Immigration and Nationality Act,
+- [10:32.140] the Secretary of State has the right to revoke a green card
+- [10:36.660] or a visa for individuals who serve
+- [10:39.710] or are adversarial to the foreign policy
+- [10:41.910] and national security interests of the United States of America.
+- [10:45.050] And Mahmoud Khalil was an individual
+- [10:47.700] who was given the privilege of coming to this country
+- [10:50.570] to study at one of our nation's finest universities
+- [10:54.390] and colleges.
+- [10:55.890] And he took advantage of that opportunity,
+- [10:58.080] of that privilege by siding with terrorists,
+- [11:00.980] Hamas terrorists who have killed innocent men,
+- [11:03.450] women and children.
+- [11:04.790] This is an individual who organized group protests
+- [11:08.320] that not only disrupted college campus classes
+- [11:11.990] and harassed Jewish American students
+- [11:14.070] and made them feel unsafe on their own college campus,
+- [11:17.340] but also distributed pro-Hamas propaganda,
+- [11:20.690] flyers with the logo of Hamas.
+- [11:23.280] That is what the behavior and activity
+- [11:25.640] that this individual engaged in.
+- [11:27.600] And I have those flyers on my desk.
+- [11:29.460] They were provided to me by the Department of Homeland Security.
+- [11:32.130] I thought about bringing them into this briefing room
+- [11:33.990] to share with all of you,
+- [11:35.190] but I didn't think it was worth the dignity of this room
+- [11:38.160] to bring that pro-Hamas propaganda.
+- [11:40.260] But that's what this individual distributed
+- [11:41.950] on the campus of Columbia University.
+- [11:43.910] And this administration is not going to tolerate individuals
+- [11:47.230] having the privilege of studying in our country
+- [11:50.080] and then siding with pro-terrorist organizations
+- [11:52.870] that have killed Americans. We have a zero tolerance policy
+- [11:56.890] for siding with terrorists, period.
+- [11:58.780] Peter Doocy.
+- [12:00.100] The Press: Thank you, Karoline.
+- [12:01.780] So you said that the Dow dropping and dropping
+- [12:04.060] and dropping is a period of transition.
+- [12:06.420] You're sure nobody here at the White House shot at the Dow?
+- [12:10.350] Ms. Leavitt: No, I don't think so.
+- [12:11.620] The Press: Okay. But is there any concern here
+- [12:15.550] that it's going to be harder to ask certain federal workers
+- [12:18.920] to retire if they look at their retirement accounts,
+- [12:22.700] and they're getting robbed every day?
+- [12:25.460] Ms. Leavitt: Well, I'm glad you brought up workers
+- [12:27.020] because that's exactly who President Trump
+- [12:29.020] is looking out for with his America First Trade Policy,
+- [12:33.090] and his America First economic agenda.
+- [12:35.640] And if you look at,
+- [12:37.170] there's great indication to be optimistic
+- [12:39.990] about where the economy stands.
+- [12:41.710] And the American people, investors,
+- [12:43.760] CEOs, small business owners,
+- [12:45.250] but most importantly workers should bet on President Trump
+- [12:48.330] because his tariff policies,
+- [12:49.860] what he envisions is reciprocity,
+- [12:52.800] fair trade practices where American workers are put first
+- [12:56.480] and are no longer ripped off
+- [12:57.720] by foreign countries all over this world.
+- [12:59.740] The Press: President Trump says he's going to buy a Tesla today.
+- [13:03.610] Did he buy it?
+- [13:04.900] And when is the last time he drove a car?
+- [13:07.830] Ms. Leavitt: That's a very good question.
+- [13:09.170] I have heard the president remark
+- [13:10.680] that he misses being able to drive,
+- [13:12.850] that luxury of driving his own vehicle,
+- [13:14.950] although the beast is nice.
+- [13:16.210] But he is going to be viewing a Tesla
+- [13:18.710] that is making its way to the White House complex now.
+- [13:21.630] I can confirm perhaps the press pool today
+- [13:24.430] will have an opportunity to witness
+- [13:25.910] this very exciting moment later this afternoon.
+- [13:29.280] But Tesla is on its way here now,
+- [13:32.960] and we'll see if the president likes it when he checks it out.
+- [13:36.090] The Press: So they're bringing him a Tesla to look at
+- [13:38.590] and if he likes it, he's just going to buy it.
+- [13:41.860] Ms. Leavitt: He's definitely going to buy one,
+- [13:43.980] but he'll take a look at it when it gets here later this after.
+- [13:46.010] The Press: Full retail?
+- [13:47.740] Ms. Leavitt: Yes, full market price.
+- [13:49.360] Kelly.
+- [13:50.580] The Press: Can we talk about Canada?
+- [13:52.600] What is the status of President Trump
+- [13:54.450] having a conversation with Mark Carney?
+- [13:57.320] We have seen the president use the term governor
+- [13:59.710] to refer to Justin Trudeau.
+- [14:01.500] Will that moniker also go to Mr. Carney going forward?
+- [14:05.450] And is the decision to increase the tariffs,
+- [14:09.480] is that based on a specific economic metric
+- [14:12.250] that he looked at? Is it impulse?
+- [14:14.230] How would you describe his reaction to Canada?
+- [14:16.700] Ms. Leavitt: The president has not yet spoken to Mr. Carney,
+- [14:19.860] not since I checked, which was just moments ago.
+- [14:24.360] But certainly his phone is always open to leaders
+- [14:28.060] who wish to speak with him.
+- [14:29.510] As for the tariffs, the president made his position
+- [14:32.320] on this quite clear with the statement that he put out.
+- [14:35.760] And it was a retaliatory statement
+- [14:38.210] due to the escalation of rhetoric
+- [14:39.810] that we've seen out of Ontario, Canada.
+- [14:42.220] The president saw the premier, Doug Ford,
+- [14:44.740] make an egregious and insulting comment,
+- [14:47.490] threatening to shut down electricity
+- [14:50.000] for the American people,
+- [14:51.320] for hard-working American families.
+- [14:53.520] He made that threat.
+- [14:54.770] The president saw that and has an obligation
+- [14:57.020] and a responsibility to respond accordingly,
+- [15:01.670] and represent the interests of the American people.
+- [15:04.130] So he has made the decision to add a 25% tariff.
+- [15:07.760] So now steel and aluminum tariffs
+- [15:09.530] will come into effect tomorrow at the rate of 50%.
+- [15:13.530] And our steel and aluminum industries
+- [15:15.930] have actually applauded these tariffs because again,
+- [15:18.190] they know it's going to grow their industry here.
+- [15:20.850] It's going to allow them to export more steel
+- [15:23.150] that is made right here
+- [15:24.580] in the United States with American workers.
+- [15:27.050] The Press: Egregious and insulting are your words here,
+- [15:29.730] but that's what many Canadian leaders
+- [15:31.200] have said about the actions
+- [15:32.520] President Trump has taken toward Canada.
+- [15:34.870] And what do you think the timeline is
+- [15:36.170] for speaking to Mr. Carney?
+- [15:37.410] Because normally a sitting president
+- [15:40.210] speaks to a close ally very quickly
+- [15:42.100] when there's new leadership.
+- [15:43.840] Ms. Leavitt: Well, the president is again responding to the fact
+- [15:47.870] that Canada has been ripping off the United States of America
+- [15:51.340] and hard-working Americans for decades.
+- [15:54.060] If you look at the rates of tariffs across the board
+- [15:56.810] that Canadians have been imposing on the American people
+- [15:59.970] and our workers here, it is egregious.
+- [16:02.190] In fact, I have a handy-dandy chart here
+- [16:05.060] that shows not just Canada,
+- [16:07.040] but the rate of tariffs across the board.
+- [16:08.880] If you look at Canada since you brought it up,
+- [16:11.110] American cheese and butter, nearly 300% tariff.
+- [16:15.450] You look at India, 150% tariff on American alcohol.
+- [16:19.770] You think that's helping Kentucky bourbon
+- [16:21.910] be exported into India? I don't think so.
+- [16:24.220] 100% tariff on agricultural products from India.
+- [16:27.530] Look at Japan, tariffing rice 700%.
+- [16:31.470] President Trump believes in reciprocity,
+- [16:33.870] and it is about dang time that we have a president
+- [16:36.470] who actually looks out for the interests
+- [16:38.410] of American businesses and workers.
+- [16:40.950] And all he's asking for at the end of the day,
+- [16:43.100] are fair and balanced trade practices.
+- [16:45.710] And unfortunately, Canada has not been treating us
+- [16:49.870] very fairly at all over the past several decades.
+- [16:52.340] To the woman in the purple
+- [16:53.540] because I saw you were making a face at my previous answer.
+- [16:56.970] So what's going on?
+- [16:58.320] The Press: Oh, did I?
+- [17:00.350] Well, actually I have a couple of questions.
+- [17:04.480] At the core of pro-Palestinian protests on college campuses
+- [17:07.510] and elsewhere is a demand to end the war in Gaza,
+- [17:10.770] a goal that this administration actually supports
+- [17:13.360] and has pursued. So why has this --
+- [17:16.170] it's not been acknowledged or highlighted even.
+- [17:18.800] Ms. Leavitt: Because these colleges and these protests
+- [17:21.680] have again put out Hamas propaganda.
+- [17:25.810] The flyers that have been distributed,
+- [17:27.750] a call for violence.
+- [17:29.000] The flyers that have been distributed
+- [17:30.570] have the logo of an organization that has held Americans hostage,
+- [17:35.200] that murdered innocent babies,
+- [17:37.290] that murdered men, women and children.
+- [17:40.010] They are a designated foreign terrorist organization.
+- [17:43.450] And we are not going to tolerate non-citizens,
+- [17:46.410] foreigners who come here on a visa engaging
+- [17:49.820] in such behavior siding with terrorists.
+- [17:52.360] And the Secretary of State reserves the authority
+- [17:55.390] to revoke the green card
+- [17:58.280] or the visa of an individual who serves…
+- [18:02.740] Actually it says right here, "Reasonable grounds to believe
+- [18:05.070] that the aliens presence or activities in the United States
+- [18:08.600] would have potentially serious adverse foreign policy
+- [18:11.490] consequences to the United States."
+- [18:13.990] And I think siding with Hamas makes that quite clear.
+- [18:16.920] Secretary Rubio exercised that authority,
+- [18:19.630] and we fully believe
+- [18:20.910] that we are going to move forward with more arrests
+- [18:23.380] as President Trump previewed in his statement yesterday.
+- [18:25.560] The Press: What about also- The Press: Yeah, thanks.
+- [18:26.770] Ms. Leavitt: Go ahead.
+- [18:27.970] So are there conversations between the administration
+- [18:30.540] and the Canadians going on over this tariff?
+- [18:33.250] Because the Ontario Premier says the next step
+- [18:35.410] is to cut off electricity to the US.
+- [18:37.610] And the President put out a statement
+- [18:39.510] after seeing those comments and said
+- [18:41.440] that there would be grave consequences imposed on Canada
+- [18:46.140] if they think about shutting off electricity
+- [18:48.610] for the United States of America and our citizens.
+- [18:51.350] And the President is also determined to ensure
+- [18:54.760] that we are depending on American electricity,
+- [18:57.810] not the electricity production of foreign nations,
+- [19:00.520] including our allies in Canada.
+- [19:02.810] As for conversations, there is continued correspondence
+- [19:05.720] between the President's team,
+- [19:07.910] particularly Secretary Lutnick and the Canadians as well.
+- [19:11.090] The Press: And in the market reaction,
+- [19:12.450] how do you sell to the American people
+- [19:14.490] then after they're looking at what's happening
+- [19:16.380] in the markets this week
+- [19:17.630] and say that the tariff policy long-term is something good?
+- [19:21.260] Ms. Leavitt: Well just think about what the tariff policy
+- [19:23.030] long-term will do for our country.
+- [19:25.360] I think many of us probably grew up in small towns,
+- [19:28.130] I know at least I did.
+- [19:29.390] And the Main street in my small town,
+- [19:31.350] looks a heck of a lot worse than it probably did decades ago
+- [19:33.940] before I was alive,
+- [19:35.220] at least my parents and grandparents tell me so.
+- [19:37.890] And I know many Americans feel that same way.
+- [19:40.360] What the President envisions for this country
+- [19:42.620] is for the United States of America
+- [19:44.240] to be a manufacturing superpower
+- [19:46.990] where there are American factories and businesses
+- [19:49.640] owned by Americans producing goods
+- [19:51.820] that we are exporting to the rest of the world.
+- [19:54.020] Those revenues will stay here, it will increase wages
+- [19:56.860] for people here in our great country.
+- [19:58.990] It will ensure our national security
+- [20:01.420] and it will boost the morale of the American people
+- [20:03.610] to have thriving industries again.
+- [20:05.720] Think about Detroit, Michigan,
+- [20:07.560] think about North Carolina, as I mentioned,
+- [20:09.680] that used to have a thriving furniture industry
+- [20:11.740] that no longer exists because of the globalist trade policies
+- [20:15.500] of previous and past administrations.
+- [20:17.730] And the American people gave the President
+- [20:20.140] a tremendous opportunity to restore American greatness
+- [20:23.510] and restore our manufacturing dominance
+- [20:26.450] and his intent on doing just that.
+- [20:28.310] John.
+- [20:29.550] The Press: The two questions for your first on the CR
+- [20:32.280] you put up on the screen,
+- [20:33.570] the President's message to Republicans to support
+- [20:37.010] this continuing resolution is their outreach to Democrats
+- [20:40.650] because what we've seen since the beginning of the fiscal year
+- [20:43.790] is that in order to get a continuing resolution,
+- [20:46.720] you need bipartisan support and you need compromise.
+- [20:49.800] Ms. Leavitt: Well, right now we are focused
+- [20:51.610] on House Republicans and on the House
+- [20:53.680] because that's the first step, as you know John.
+- [20:56.020] And so the president has engaged in correspondence
+- [20:58.460] with House Republicans whipping votes and getting them to a yes,
+- [21:02.260] which I understand has been pretty successful
+- [21:04.990] this morning thus far.
+- [21:06.430] And so again, the president is encouraging Republicans
+- [21:09.050] especially, but again, as I said,
+- [21:11.030] all members of Congress
+- [21:12.430] to vote to continue funding this government
+- [21:15.310] so we can continue the business of the American people,
+- [21:18.040] which elected President Trump to do.
+- [21:19.760] The Press: And then on financial markets,
+- [21:21.230] we've seen this decline yesterday.
+- [21:23.320] We see it today as well.
+- [21:25.390] It seems that the read on the President's
+- [21:28.800] policies is one in which
+- [21:30.520] they do not have confidence in his trade tariffs' policy.
+- [21:34.440] They do not have confidence
+- [21:35.860] in what the President said to Fox News over the weekend
+- [21:38.240] that he didn't rule out the idea of a recession.
+- [21:40.960] What is your read in terms of the decline
+- [21:43.340] that we've seen over the last week
+- [21:45.420] and a half in financial markets?
+- [21:47.640] Ms. Leavitt: Well, I think there's actually a lot of reason
+- [21:49.840] to be confident and many people do feel confident.
+- [21:52.160] Just look at the nearly $2 trillion in private investment
+- [21:56.400] that this President has secured.
+- [21:58.430] Look at the comments made by the CEO of Apple,
+- [22:00.730] one of the biggest companies in this world
+- [22:03.150] who said that he is bullish on the future
+- [22:06.170] of American innovation under the leadership of President Trump.
+- [22:09.900] Look at CEO confidence,
+- [22:11.250] according to the Conference Board Measure of CEO confidence,
+- [22:14.530] in Q1 2025 under the leadership of this President,
+- [22:17.980] it jumped to its highest level in three years
+- [22:20.860] from cautious optimism to confident optimism.
+- [22:24.190] If you again look at the $2 trillion in investments
+- [22:26.960] from some of the biggest companies in the world,
+- [22:29.370] look at the jobs report last Friday.
+- [22:31.340] As I also cited in my opening remarks,
+- [22:34.040] Fox Business reported that Trump sees a manufacturing boom
+- [22:37.900] in first fulls jobs report of his second term.
+- [22:40.690] Look at the auto jobs
+- [22:42.000] that have already poured back into America.
+- [22:44.160] We added 9,000 new auto jobs. Those are sticky jobs.
+- [22:47.750] Those are good paying jobs. That's 9,000 American families
+- [22:51.530] who will now be able to live the American dream
+- [22:53.630] because of the policies of this administration.
+- [22:56.000] You also look at small business optimism.
+- [22:58.030] The NFIB put out a report this morning.
+- [23:00.520] Small business optimism continues to be far higher
+- [23:03.920] than it ever was under the previous administration.
+- [23:06.610] There's a lot of reason to be optimistic,
+- [23:08.750] and again, the American people, CEOs and people on Wall Street
+- [23:12.740] and on Main Street should bet on this President,
+- [23:15.680] he is a dealmaker, he is a businessman,
+- [23:18.070] and he's doing what's right for our country.
+- [23:19.840] He wants to restore wealth to the United States of America.
+- [23:23.930] Michael, good to see you.
+- [23:25.130] The Press: Hey, Karoline, thank you.
+- [23:26.560] Two questions if I may.
+- [23:28.640] Will the administration be providing any relief
+- [23:31.100] to states affected by the Ontario Power tariff?
+- [23:34.410] Ms. Leavitt: Well, the President has made it very clear
+- [23:36.280] that Canada would be very wise
+- [23:38.430] not to shut off electricity for the American people.
+- [23:42.150] And we hope that that does not happen.
+- [23:44.140] As for what would happen if that does take place,
+- [23:47.080] I'll leave it to the President to make those decisions.
+- [23:49.090] The Press: Does President Trump
+- [23:50.310] share the Justice Department's concern over rising egg prices
+- [23:53.640] and possible collusion of big egg?
+- [23:57.290] Ms. Leavitt: Well, we definitely do share the concerns
+- [24:01.850] of the American people when it comes to the price of eggs.
+- [24:05.290] However, good news, the average cost of a dozen eggs
+- [24:07.780] is actually down since Secretary Rollins
+- [24:10.690] and President Trump announced their plan.
+- [24:12.730] It's down a dollar 85.
+- [24:14.320] So that's good news on the cost of eggs.
+- [24:16.890] And as we know under the Biden administration,
+- [24:19.330] egg prices went up 22%.
+- [24:22.370] This is another example of an economic mess
+- [24:24.580] that President Trump inherited and the Secretary of Agriculture
+- [24:27.890] and the President are focused on fixing it.
+- [24:30.090] Secretary Rollins put out a five point plan,
+- [24:32.970] four point plan rather to address this crisis.
+- [24:36.310] She has been honest and realistic
+- [24:37.910] with the American people
+- [24:39.140] as this administration always is.
+- [24:40.970] It will take about three to six months
+- [24:42.630] to get the egg supply back to where it should be,
+- [24:45.720] but she's focused and this administration is focused
+- [24:48.070] on doing that every day. Karen.
+- [24:50.020] The Press: Thanks Karoline. Just back on the markets,
+- [24:52.330] you said that what we're seeing this week right now
+- [24:54.260] in Wall Street is a snapshot of a moment in time,
+- [24:56.620] but does the President think he bears any responsibility
+- [24:59.570] for the turmoil in the stock market this week?
+- [25:01.800] Ms. Leavitt: Look, the president is unwavering in his commitment
+- [25:05.000] to restore American manufacturing
+- [25:07.350] and global dominance.
+- [25:08.700] And I think he doubled down on that this morning
+- [25:10.930] with his new statement and the tariffs
+- [25:13.290] that will be implemented tomorrow on steel and aluminum.
+- [25:16.680] The Press: And he has said recently,
+- [25:18.540] he's not looking at the market.
+- [25:20.070] He said, "You can't really watch the stock market."
+- [25:22.590] But all of the gains since election day
+- [25:24.270] have been erased in the S&P 500.
+- [25:26.460] At what point, how far do stocks have to fall
+- [25:28.580] before the President considers it a factor and changes course?
+- [25:32.110] Ms. Leavitt: Again, as I just said,
+- [25:33.360] the president will look out for Wall Street
+- [25:35.380] and for Main Street just like he did in his first term.
+- [25:37.780] And people on Wall Street and Main Street
+- [25:40.030] should bet on this President
+- [25:41.250] he's doing what's right for this country.
+- [25:43.100] Nick, good to see you.
+- [25:44.320] The Press: Good to see you too. Thank you Karoline.
+- [25:45.780] So is the President prepared like
+- [25:47.990] what we saw the Congressman Massie
+- [25:50.420] to pressure other Republican lawmakers
+- [25:53.660] into supporting this continuing resolution?
+- [25:56.660] Ms. Leavitt: Well, he is very much,
+- [25:57.990] as I said, engaged in this process.
+- [25:59.730] He's been making calls to lawmakers on Capitol Hill
+- [26:02.860] and I think his statements against Congressman Massie
+- [26:05.930] speak for themselves. And I will let the president
+- [26:09.010] put out any additional statements if he chooses to.
+- [26:11.280] But he fully expects all House Republicans
+- [26:13.900] to vote for this continuing resolution.
+- [26:15.590] The Press: And just to follow up,
+- [26:16.790] can we start to anticipate
+- [26:18.560] seeing more of the president weighing in
+- [26:20.820] on upcoming 2026 races like we saw this morning?
+- [26:25.150] Ms. Leavitt: I'm not sure about that.
+- [26:26.650] I'm not even sure if I'm allowed to speak
+- [26:28.150] about that from this podium.
+- [26:29.630] I would check in with our outside political team
+- [26:32.110] for guidance on future races
+- [26:33.600] and the president's involvement. Alayna.
+- [26:35.180] The Press: Thank you.
+- [26:36.390] I wanted to ask you about some comments
+- [26:37.690] Elon Musk made yesterday.
+- [26:39.500] He said that there is 500 to $700 billion
+- [26:43.280] in waste in fraud and entitlement spending.
+- [26:45.880] He called it, "The big one to eliminate."
+- [26:48.810] Earlier this month, he also referred to Social Security
+- [26:51.040] as a Ponzi scheme. Should Americans expect changes,
+- [26:54.750] big changes to Social security and Medicare?
+- [26:57.090] Ms. Leavitt: President Trump has been
+- [26:58.400] unequivocally clear on this.
+- [26:59.820] He is going to protect Social Security and Medicare benefits
+- [27:03.530] and Medicaid for hardworking Americans
+- [27:05.990] who paid into these entitlement programs
+- [27:08.110] and deserve those hard-earned benefits.
+- [27:10.030] And unfortunately, the mainstream media
+- [27:11.770] has taken Mr. Musk out of context.
+- [27:14.340] I saw a Bloomberg headline that our team actually worked
+- [27:17.010] on getting updated and fixed because it was so wrong.
+- [27:20.860] And it took Mr. Musk out of context.
+- [27:23.000] What he was specifically referring to cutting
+- [27:25.720] was the waste and the fraud and abuse
+- [27:27.940] that does exist in these programs.
+- [27:30.110] According to an IG report
+- [27:31.530] from the Social Security Administration,
+- [27:33.370] there's more than $70 billion of fraud
+- [27:36.110] in the Social Security program alone that we know of.
+- [27:39.680] And so the president will continue
+- [27:41.180] to protect these programs for hardworking Americans.
+- [27:43.820] And actually cutting the waste, fraud
+- [27:45.260] and abuse out of these programs
+- [27:46.710] will protect it for hardworking Americans.
+- [27:48.260] The Press: And respectfully,
+- [27:49.470] he said around 500 to $700 billion.
+- [27:52.970] There was no evidence to claim that.
+- [27:54.620] And also if that is the case, that would represent more than
+- [27:57.050] a third of what Social Security paid out last year,
+- [28:00.590] maybe 20% of Social Security and Medicare combined.
+- [28:02.760] Ms. Leavitt: Again, if you read his full quote,
+- [28:04.020] he said, "We think so."
+- [28:05.770] It's an estimate based on what he's seen.
+- [28:07.930] He's not saying definitively.
+- [28:09.400] He's saying that's what DOGE suspects and thinks.
+- [28:12.700] And that's exactly why DOGE was created to ensure
+- [28:15.810] that we are investigating the fraudulent spending,
+- [28:18.710] the wasteful abuse across our federal government.
+- [28:21.720] And I would remind everybody in this room
+- [28:23.570] that 77% of the American people
+- [28:26.050] support this effort by Elon Musk and DOGE
+- [28:28.310] to identify such waste, fraud and abuse.
+- [28:29.900] The Press: Karoline. Ms. Leavitt: Go ahead.
+- [28:31.130] The Press: Thanks Karoline for-
+- [28:32.330] Ms. Leavitt: You're welcome.
+- [28:33.610] The Press: If we could just step back for a second.
+- [28:35.600] When President Trump last addressed the BRT
+- [28:38.020] when he was on the campaign trail,
+- [28:39.750] his big push was on tax cuts.
+- [28:42.130] He's going there today as he's proposing tax
+- [28:44.890] hikes in the form of tariffs.
+- [28:46.180] Ms. Leavitt: Not true. The Press: And I'm curious-
+- [28:47.390] Ms. Leavitt: He's not doing that.
+- [28:48.640] The Press: For why he's prioritizing that
+- [28:50.140] over the tax cuts.
+- [28:51.440] Ms. Leavitt: He's actually not implementing tax hikes.
+- [28:54.890] Tariffs are a tax hike on foreign countries that again,
+- [28:58.040] have been ripping us off.
+- [28:59.350] Tariffs are a tax cut for the American people,
+- [29:02.250] and the President is a staunch advocate of tax cuts.
+- [29:05.130] As you know, he campaigned on no taxes on tips,
+- [29:08.570] no taxes on overtime, no taxes on social security benefits.
+- [29:12.650] He is committed to all three of those things
+- [29:15.040] and he expects Congress to pass them later this year.
+- [29:17.200] The Press: I'm sorry. Have you ever paid a tariff?
+- [29:18.860] Because I have. They don't get charged on foreign companies.
+- [29:22.330] They get charged on the importers.
+- [29:23.850] Ms. Leavitt: And ultimately,
+- [29:25.060] when we have fair and balanced trade,
+- [29:27.320] which the American people have not seen in decades,
+- [29:30.250] as I said at the beginning, revenues will stay here,
+- [29:33.470] wages will go up,
+- [29:34.730] and our country will be made wealthy again.
+- [29:36.790] And I think it's insulting that you're trying
+- [29:38.920] to test my knowledge of economics
+- [29:41.160] and the decisions that this president has made.
+- [29:43.970] I'm now regretting giving a question
+- [29:45.700] to the Associated Press.
+- [29:46.950] Mary, go ahead
+- [29:48.290] The Press: Karoline. I have two of that
+- [29:49.970] [inaudible]. The first one was on Russia-Ukraine.
+- [29:52.140] I know Special Envoy Witkoff said yesterday
+- [29:54.430] that Zelensky apologized in his letter to Trump.
+- [29:57.760] Can you share any more about that letter
+- [29:59.290] and what else might be interesting from it
+- [30:00.650] that we don't know?
+- [30:01.850] Ms. Leavitt: Yes, the President did reference that letter,
+- [30:03.650] as you're saying, in his joint address to Congress,
+- [30:06.660] and I do have an update.
+- [30:08.840] As you know, Secretary of State Rubio
+- [30:11.050] and our National Security Advisor, Mike Waltz,
+- [30:13.130] have been negotiating with the Ukrainians today in Saudi,
+- [30:16.820] they will be providing a full readout
+- [30:18.360] of that meeting very soon.
+- [30:20.710] But I can assure you and everybody here
+- [30:23.360] and the American people that the news we've received
+- [30:25.640] from that meeting throughout the day
+- [30:26.920] and the president has been briefed on is positive.
+- [30:29.860] This meeting has been productive.
+- [30:31.290] I will let Secretary of State Rubio
+- [30:35.700] and our National Security Advisor
+- [30:37.330] speak to the specifics of what has taken place today
+- [30:40.340] when they're ready to do so, when the meeting concludes.
+- [30:42.690] Lindsay, go ahead.
+- [30:43.920] The Press: Thank you, Karoline.
+- [30:45.510] Referring to Mahmoud Khalil, the president has said
+- [30:48.370] this is the first of many arrests like this.
+- [30:51.330] Does the administration have a rough estimate
+- [30:53.280] of how many arrests you're planning to make similar?
+- [30:56.070] Ms. Leavitt: I don't have an estimate.
+- [30:57.490] I do know that DHS, based on very good intel,
+- [31:00.500] that they have gathered,
+- [31:01.700] at the direction of the president's executive order,
+- [31:04.600] which made it very clear to the Department of Homeland Security
+- [31:07.810] that engaging, as I said, an anti-American,
+- [31:10.890] anti-Semitic, pro-Hamas protest will not be tolerated.
+- [31:14.350] So since the president signed that executive order
+- [31:16.960] and since Secretary Noem has taken the oath at DHS,
+- [31:21.100] they have been using intelligence
+- [31:23.460] to identify individuals
+- [31:25.050] on our nation's colleges and universities,
+- [31:27.270] on our college campuses,
+- [31:28.760] who have engaged in such behavior and activity
+- [31:32.050] and especially illegal activity.
+- [31:34.290] And so I don't have a readout on how many arrests will come,
+- [31:36.940] but I do know that DHS is actively working on it.
+- [31:39.680] And I also know that Columbia University
+- [31:41.760] has been given the names of other individuals
+- [31:44.100] who have engaged in pro-Hamas activity
+- [31:46.740] and they are refusing to help DHS
+- [31:49.110] identify those individuals on campus.
+- [31:51.280] And as the president said very strongly
+- [31:53.070] in his statement yesterday, he's not going to tolerate that.
+- [31:56.090] And we expect all America's colleges and universities
+- [31:59.770] to comply with this administration's policy.
+- [32:02.640] Jasmine.
+- [32:03.900] The Press: Thank you so much, Karoline.
+- [32:06.740] On Canada, after all of these threats to increase tariffs
+- [32:10.880] or turn off electricity, I wonder,
+- [32:12.680] does this administration still consider Canada
+- [32:15.020] to be a close ally of the United States?
+- [32:18.420] Ms. Leavitt: Well, I think Canada is a neighbor,
+- [32:21.240] they are a partner, they have always been an ally,
+- [32:23.850] perhaps they are becoming a competitor now.
+- [32:26.370] But as the president also laid out
+- [32:28.130] in his Truth Social post today,
+- [32:29.880] he believes that Canadians would benefit greatly
+- [32:32.270] from becoming the 51st state of the United States of America.
+- [32:36.240] And I actually looked into some of the research
+- [32:38.440] about the cost of living in Canada
+- [32:41.120] and the cost of living is much higher than it
+- [32:43.440] is here in the United States of America.
+- [32:45.290] The average cost of a home in Canada is much higher.
+- [32:48.720] In Quebec, the highest tax rate for an income of $150,000
+- [32:53.280] or more is 53.3%,
+- [32:55.610] more than half of Canadians incomes they're being taxed on.
+- [32:58.810] So the president has made it clear
+- [33:00.490] that he believes Canadians would be better served economically,
+- [33:04.170] militarily if they were to become the 51st state
+- [33:07.590] of the United States of America. Reagan.
+- [33:10.090] The Press: Thank you, Karoline.
+- [33:11.460] A week ago, Attorney General Bondi
+- [33:13.450] said a truckload of Epstein files
+- [33:15.100] had been delivered to her office from the SDNY.
+- [33:17.830] When can we expect those files to be released to the public?
+- [33:20.670] Ms. Leavitt: I would defer you to the Department of Justice.
+- [33:22.330] I don't have a timeline here.
+- [33:23.690] The Press: Do you have any update on the JFK files?
+- [33:25.530] Ms. Leavitt: I don't at this moment.
+- [33:26.770] Again, I would defer you to our DNI Director Tulsi Gabbard
+- [33:30.920] and also the Department of Justice.
+- [33:32.370] I know that they're working on that diligently as the president
+- [33:35.340] requested them to do. Christian.
+- [33:37.340] The Press: Thanks, Karoline. Two questions.
+- [33:39.040] Since we've been talking a lot about tariffs,
+- [33:40.600] have there been any updates
+- [33:41.850] on standing up the External Revenue Service
+- [33:44.410] to collect revenue from there?
+- [33:46.420] Ms. Leavitt: Well, we need reciprocal tariffs
+- [33:48.350] to go into effect first. And as you know,
+- [33:50.110] the president will be rolling those out on April 2nd.
+- [33:52.780] And then the next start of that process
+- [33:54.610] is collecting that revenue
+- [33:55.940] to ultimately create the External Revenue Service,
+- [33:58.960] which Secretary Lutnick is working very hard on
+- [34:01.600] and is quite enthusiastic about,
+- [34:03.270] if you have noticed from his media interviews.
+- [34:05.030] The Press: Will the president do that through executive action
+- [34:06.900] or will it require legislation?
+- [34:08.680] Ms. Leavitt: Well, the president already signed
+- [34:09.900] an executive order to direct the Secretary of Commerce
+- [34:12.490] to establish the External Revenue Service.
+- [34:14.700] Or at least to identify ways in which it can be done.
+- [34:16.920] I would defer you to the Department of Commerce
+- [34:19.080] for more on specifics on that. Sure. In the back.
+- [34:23.400] The Press: Thank you very much, Karoline.
+- [34:25.410] I have a few questions on South Korea and North Korea.
+- [34:28.290] First question.
+- [34:29.660] As you know, South Korean President Yoon
+- [34:33.050] has been released from illegal detention.
+- [34:37.330] What is the reaction of the United States as an ally?
+- [34:42.010] Is there a possibility of summit with President Trump
+- [34:47.550] when President Yoon returns? Second question on North Korea.
+- [34:52.630] North Korea launched the several ballistic missiles
+- [34:58.130] into the West Coast yesterday.
+- [35:01.660] What is the White House's reaction on this?
+- [35:03.340] Thank you very much.
+- [35:04.590] Ms. Leavitt: Sure.
+- [35:05.820] Yes, I'll start with your question on North Korea.
+- [35:07.870] We condemn these actions and we call on North Korea
+- [35:10.730] to stop their unlawful and destabilizing actions.
+- [35:14.170] As for South Korea,
+- [35:15.540] the US and Republic of Korea's alliance is ironclad
+- [35:20.070] and the Trump administration remains in close contact
+- [35:22.810] with our South Korean counterparts
+- [35:24.490] as we work together to promote a free and open
+- [35:27.650] Indo-Pacific. Sure.
+- [35:29.910] The Press: The question you didn't answer
+- [35:32.140] that release of South Korean president from jail.
+- [35:37.920] Ms. Leavitt: I don't have anything on that,
+- [35:39.270] but I can certainly check in
+- [35:40.480] with the National Security Council
+- [35:42.070] and get back to you. Sure. Good to see you.
+- [35:45.000] The Press: Press Secretary,
+- [35:46.390] many are concerned about the validity
+- [35:48.070] of President Biden's official actions
+- [35:50.610] and also his pardons of the possible criminal actions
+- [35:53.550] of individuals such as his family members
+- [35:55.380] and Liz Cheney as information emerging
+- [35:57.980] that many of his official actions
+- [35:59.470] were auto-signed, possibly even the pardons,
+- [36:02.220] and without his knowledge or consent.
+- [36:04.390] Does the White House have any information available
+- [36:06.400] currently that Biden was actually the one
+- [36:08.560] that approved and signed those pardons?
+- [36:10.390] And second question, will the DOJ investigate
+- [36:13.200] whether President Biden's cognitive decline
+- [36:16.330] allowed unelected staff to push through radical policy
+- [36:18.800] and pardons without his known approval?
+- [36:20.930] Ms. Leavitt: I don't know the answer to that question,
+- [36:22.880] but I can check in with our folks here
+- [36:24.510] who may know the answer to that question
+- [36:25.980] and get back to you. Dasha, go ahead.
+- [36:28.230] The Press: Karoline, you did a great job
+- [36:29.600] articulating the vision that President Trump
+- [36:31.950] has for what he believes his tariffs can do
+- [36:34.880] in terms of bringing jobs back to the United States.
+- [36:37.510] I asked you last week about how much Americans
+- [36:40.110] might need to buckle up for some short-term pain,
+- [36:42.330] a conversation with the president
+- [36:44.070] and Treasury Secretary Scott Bessent,
+- [36:45.910] I've had with the people.
+- [36:47.150] I'm wondering, how high is the pain threshold
+- [36:52.720] for President Trump and for this White House
+- [36:55.550] as you watch some of the turbulence in the stock markets,
+- [36:58.370] as you field concerns from businesses
+- [37:00.480] and potentially see some of those approval ratings
+- [37:02.980] drop in the short term?
+- [37:04.510] How much is he willing to stomach that
+- [37:06.500] and will he stay committed to his vision for tariffs
+- [37:09.000] even as all of this comes up?
+- [37:11.120] Ms. Leavitt: Well, the president has been working hard
+- [37:13.200] every single day to alleviate the pain
+- [37:15.440] that was inflicted by the previous administration
+- [37:18.200] through massive deregulation,
+- [37:19.830] through drill baby drill, as we like to call it,
+- [37:22.910] unleashing the might of our energy industry,
+- [37:25.050] which we know will ultimately jive down costs
+- [37:27.120] for consumers here at home.
+- [37:28.620] And again, as I mentioned, the president is intent
+- [37:31.730] on signing tax cuts for the American people
+- [37:34.350] to put more money back into their pockets,
+- [37:36.570] which will ultimately unlock consumer confidence.
+- [37:39.440] And again, I'll reiterate the president's words
+- [37:42.000] in layman's terms, as he does best,
+- [37:44.580] the president wants the American people
+- [37:46.240] to have so much more money in their pockets,
+- [37:48.020] they don't know what to do with it.
+- [37:49.270] That's the goal of this administration through tariffs,
+- [37:51.880] through tax cuts, through deregulation,
+- [37:54.950] and through unleashing the potential
+- [37:56.470] of our energy industry.
+- [37:57.710] I have two more quick notes before I wrap up.
+- [38:00.720] April 28th, I can confirm that the Philadelphia Eagles
+- [38:04.060] will be here at the White House
+- [38:05.820] to celebrate their Super Bowl victory.
+- [38:07.880] I know there was a lot of fake news about an invitation
+- [38:10.240] that wasn't sent or was sent. We want to correct the record.
+- [38:13.040] We sent an invitation, they enthusiastically accepted,
+- [38:15.830] and you will see them here on April 28th.
+- [38:18.690] And lastly, on a sad note,
+- [38:20.440] I would like to express our condolences to Fox News
+- [38:23.470] and to the entire Fox family who did lose a cameraman,
+- [38:27.790] Craig Savage, who passed away at 61 years old recently.
+- [38:32.030] A very tragic death.
+- [38:33.270] An individual who was a great man
+- [38:35.160] and covered this building for many years.
+- [38:38.400] So the entire press office, the communications office here,
+- [38:41.240] wants to express our condolences with his family
+- [38:44.380] and also with Fox News. And I'll see you guys later.
+- [38:46.820] Perhaps you'll see the president in a Tesla later this afternoon.
+- [38:49.460] Have a good one. The Press: Thanks.
+- [38:50.660] The Press: Thanks, Karoline.

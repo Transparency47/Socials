@@ -1,0 +1,756 @@
+<!-- source: https://www.youtube.com/watch?v=IyKAzbxybog -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: IyKAzbxybog -->
+<!-- date_published: 2026-03-27T17:22:58+00:00 -->
+<!-- date_accessed: 2026-06-02T02:35:53.704466+00:00 -->
+
+# Transcript: President Trump Delivers Remarks to Farmers
+
+- [00:12.870] Announcer: Ladies and gentlemen,
+- [00:14.110] the President of the United States,
+- [00:16.070] Donald J. Trump.
+- [00:17.770] ♪ (Hail to the Chief) ♪
+- [01:02.750] The President: Well, thank you very much, everybody.
+- [01:04.390] It's a great honor to have you at this -- this beautiful house.
+- [01:09.140] It's a beautiful house. There's no other house like it.
+- [01:12.440] I've seen them all. Believe me, this one is tops.
+- [01:16.200] But I'm thrilled to welcome all of you to the South Lawn
+- [01:19.550] for the single largest gathering of American farmers
+- [01:23.410] that the White House has ever seen, has ever had.
+- [01:29.140] And rain or shine -- and you don't mind rain, shine.
+- [01:32.230] The one thing about farmers,
+- [01:33.510] they don't care about that weather.
+- [01:34.970] They get out there; it makes no difference.
+- [01:37.550] But rain or shine, no one has more grit or greater spirit
+- [01:41.530] than the American farmer. We love the American farmer.
+- [01:44.000] I just gave you $12 billion.
+- [01:45.850] I don't know if you know that or not.
+- [01:48.360] You make enough money, it doesn't matter to you, right?
+- [01:51.080] But we just provided $12 billion, right, Brooke?
+- [01:53.970] ~Brooke Rollins~ That's right. For the American farmer.
+- [01:56.680] You think Biden would have done that?
+- [01:58.240] No, he wouldn't have done --
+- [02:00.990] we're delighted to be joined by Secretary of Agriculture,
+- [02:04.450] who's doing a fantastic job, Brooke Rollins.
+- [02:07.250] Brooke, thank you very much.
+- [02:11.710] Secretary of Health and Human Services,
+- [02:15.140] Robert F. Kennedy, Jr. Robert, Bobby.
+- [02:20.730] EPA administrator is doing such an incredible job.
+- [02:24.320] He's getting those costs down for you
+- [02:26.830] and he's always protecting the environment,
+- [02:29.020] but he does it quickly. A real superstar, Lee Zeldin.
+- [02:33.860] Thank you, Lee. Great job.
+- [02:38.050] And someone everyone loves and they love,
+- [02:40.280] in particular the job she's doing,
+- [02:42.730] Small Business administrator Kelly Loeffler.
+- [02:45.660] Kelly, thank you very much.
+- [02:49.150] Thanks as well to John Hoeven, Joni Ernst, Pete Ricketts,
+- [02:55.700] along with the chairman of the House
+- [02:57.880] Agriculture Committee, GT Thompson.
+- [03:02.050] And I tell you, they're fantastic people.
+- [03:04.560] They are warriors.
+- [03:06.190] And Representatives Jim Baird, Randy Feenstra,
+- [03:10.480] Monica De La Cruz, Brad Finstad, Michelle Fischbach,
+- [03:16.340] Mark Messmer, Victoria Spartz, Frank Lucas, Traci Mann,
+- [03:25.210] Zach Nunn, Adrian Smith, and Derrick Van Orden.
+- [03:29.790] They're all out here.
+- [03:31.040] They want your votes desperately, desperately.
+- [03:34.480] They're only here for your vote.
+- [03:35.750] You know that.
+- [03:37.400] But they're here because, actually, they did a great job.
+- [03:39.990] Those were people that were the most --
+- [03:41.580] I would say, the most aggressive for the farmer,
+- [03:43.930] which is what we want.
+- [03:45.490] Other than me, they were right in there.
+- [03:47.840] I was -- I was more aggressive than any of them.
+- [03:51.640] But also with us is the CEO of Tractor Supply, Hal Lawton,
+- [03:56.910] who will soon open the company's 2,500th store
+- [04:00.900] in honor of America's 250th. Hal, thank you very much.
+- [04:04.440] It was great -- great to meet you
+- [04:06.340] at the Oval Office two minutes ago.
+- [04:09.070] I also want to thank the president
+- [04:10.730] of the American Farm Bureau Federation, Zippy Duvall.
+- [04:14.700] I've known Zippy for a long time.
+- [04:17.670] Zippy has been with me
+- [04:18.940] right from the beginning, right, Zippy?
+- [04:21.520] From day one, he liked Trump. He said, well, I don't know,
+- [04:24.430] but I just had a good meeting with him, I'm going to --
+- [04:26.700] I'm going to go with Trump, right?
+- [04:28.030] That was in 2015.
+- [04:30.650] And very special thanks to the proud,
+- [04:32.500] young parents of two beloved American institutions,
+- [04:35.980] Future Farmers of America and 4H, two great ones.
+- [04:45.620] For four disastrous years before I took office,
+- [04:48.360] Sleepy Joe Biden and the Democrats in Congress
+- [04:52.050] crushed America's farmers with the worst inflation
+- [04:54.680] in the history of our country.
+- [04:56.430] Prices were going through the roof, so bad.
+- [04:59.430] It was so bad what they had done to our country.
+- [05:02.040] And by the way, in so many other ways too,
+- [05:04.190] borders and everything else.
+- [05:06.560] But they crippled the American agriculture industry
+- [05:09.990] with brutal restrictions and failed to negotiate
+- [05:12.930] even a single new trade deal on your behalf.
+- [05:15.500] Not one trade deal was negotiated on your behalf
+- [05:19.700] during the Biden administration,
+- [05:21.920] and we happen to be the exact opposite.
+- [05:25.540] We have so many trade deals,
+- [05:26.910] we don't know what the hell to do with them.
+- [05:29.080] We need more lawyers.
+- [05:31.790] But now, the American farmers, ranchers, growers and producers
+- [05:35.280] once again have a true friend and champion in the Oval Office.
+- [05:38.970] And in my first year back in the White House,
+- [05:41.070] farm income has soared by 20 percent very quickly.
+- [05:45.630] I repealed the Biden EPA's ridiculous water restrictions.
+- [05:50.150] You had water restrictions that --
+- [05:51.820] gave you everything but water.
+- [05:53.840] OK, needed a little water. They wouldn't give you --
+- [05:57.130] it was crazy, to keep federal bureaucrats off your land
+- [06:00.710] and out of your pockets.
+- [06:02.280] It's a big deal.
+- [06:03.850] With the help of Republicans in Congress,
+- [06:07.070] we passed the largest tax cuts in American history.
+- [06:10.650] Already 45 percent of filers
+- [06:12.630] have taken advantage of our new tax provisions,
+- [06:15.070] with an average refund so far of almost $5,000, a record.
+- [06:20.530] In fact, we passed them,
+- [06:21.760] and people are just starting to see how important they are.
+- [06:24.960] It's amazing what's happened. The numbers are --
+- [06:28.580] they're reporting that it's much more money than I thought.
+- [06:31.150] I tell you, I call it the Great, Big,
+- [06:33.750] Beautiful Bill is a great, big, beautiful bill
+- [06:36.570] and it's especially in terms of your tax refunds and your taxes,
+- [06:41.480] because it's the lowest tax we pay --
+- [06:43.740] it's the biggest tax reduction in the history of our country.
+- [06:47.230] It's also the biggest regulation reduction
+- [06:50.700] in the history of our country,
+- [06:51.900] which as farmers, you know what that means.
+- [06:53.780] It means a lot of good things.
+- [06:55.000] We made the small business tax deduction permanent,
+- [06:58.590] benefiting 98 percent of America's farmers and ranchers.
+- [07:02.030] And thanks to bonus depreciation,
+- [07:04.910] farmers can now deduct 100 percent
+- [07:08.010] of the cost of new tractors
+- [07:09.490] and all equipment in the first year.
+- [07:11.910] In other words, you buy a tractor,
+- [07:13.170] you deduct the whole price.
+- [07:14.980] Normally, it goes over a 38-year period.
+- [07:17.300] This is slightly better.
+- [07:20.810] You got these tiny little deductions
+- [07:22.520] that weren't even worth it. Now you can do it at one time.
+- [07:25.540] Only Trump could have gotten you that one.
+- [07:27.420] That was a big thing.
+- [07:29.060] And in the first term, you know, we had the greatest economy
+- [07:32.020] in the history of our country in the first term.
+- [07:34.140] We are blowing them away right now.
+- [07:35.740] And by the way, we're doing really well in Iran,
+- [07:38.550] just so you understand.
+- [07:40.130] You know, I mean, how good is our military?
+- [07:43.340] How good is our military? Very importantly,
+- [07:48.750] we saved two million American farms from extinction
+- [07:52.760] by virtually ending the unfair estate tax.
+- [07:55.480] We've ended the estate tax,
+- [07:56.980] or as they call it, the death tax.
+- [07:59.240] And you can now keep your family farms in the family.
+- [08:02.510] We had a problem -- See, these are all people,
+- [08:08.070] that are clapping, that love their children.
+- [08:10.000] If they didn't love their children,
+- [08:11.480] they wouldn't care about what I just said.
+- [08:13.930] But most of you -- does anybody not love your child?
+- [08:18.100] Because that would be the one person
+- [08:19.550] that would have clapped the other way.
+- [08:21.670] No, it was a big thing.
+- [08:22.990] I would see farmers and they pass away.
+- [08:26.860] They love their life, they love --
+- [08:28.230] there's something about a farmer,
+- [08:30.730] maybe more than anybody else, they love that --
+- [08:34.250] they love the soil and they love their farms.
+- [08:37.620] And they'd pass away. They'd have wonderful children,
+- [08:40.060] and the children would get hit with this massive tax bill
+- [08:43.890] for the value of the farm.
+- [08:45.220] Sometimes the farm is very valuable,
+- [08:47.600] but the cash isn't so readily available.
+- [08:51.110] And they go out to a bank and they'd borrow money
+- [08:53.440] and borrow and borrow and borrow to pay the tax.
+- [08:55.980] They'd be working for 20 years to pay it off.
+- [08:57.940] If they had a bad season, they'd lose their farm.
+- [09:01.090] We -- lost it many, many times.
+- [09:04.180] And you'd have, actually, many, many suicides over it.
+- [09:06.770] They would actually commit suicide
+- [09:09.570] because they couldn't stand the concept
+- [09:11.220] of losing their family farm.
+- [09:13.830] And I ended the death tax, or the estate tax,
+- [09:16.680] on family farms and small businesses.
+- [09:19.900] So I think you're appreciative of that.
+- [09:22.890] It was a terrible thing.
+- [09:27.650] It's too bad that so many people in the past
+- [09:29.800] couldn't have taken advantage of it,
+- [09:31.290] because it would have would have made a lot of happy people
+- [09:36.690] out of people that really have had a miserable life.
+- [09:40.090] When they lose their farm, they're never the same.
+- [09:42.150] They're never the same.
+- [09:43.710] And I hope our farmers never forget
+- [09:45.410] that every single Democrat in Congress
+- [09:47.410] voted against all of the provisions I just mentioned,
+- [09:50.130] including the estate tax. And Republicans, very --
+- [09:54.120] all of these Republicans have stood strong
+- [09:57.330] and fought hard and gotten it.
+- [09:59.070] But the Democrats voted against every single provision
+- [10:02.900] that I just mentioned, including the tax reductions
+- [10:06.220] and including, frankly, the estate tax.
+- [10:08.900] But we delivered.
+- [10:10.150] The Republicans delivered for the farmers
+- [10:11.920] and it was not easy,
+- [10:13.190] because the opposition to farmers by Democrats
+- [10:15.930] is very strong. Thanks to our trade deals,
+- [10:19.070] you're now sending over $40 billion
+- [10:21.530] in American soybeans to China.
+- [10:23.260] I want to thank President Xi of China,
+- [10:26.500] because we had a deal at $20 billion,
+- [10:28.410] and I said, could you do me a favor?
+- [10:31.110] It's a big place, could you double it?
+- [10:35.110] He said, what are you talking about?
+- [10:36.670] I said, could you make it $40 billion instead of $20 billion?
+- [10:40.370] And he overrode all of his people.
+- [10:41.890] He said, all right, I'll do it,
+- [10:43.740] and you got $40 billion instead of $20 billion.
+- [10:45.980] So now you go out and buy bigger tractors.
+- [10:47.810] What can I tell you?
+- [10:49.720] Remember when that was announced?
+- [10:51.180] Everybody was surprised.
+- [10:52.540] Everybody thought it was going to be $20 billion.
+- [10:54.480] He was very good.
+- [10:56.180] But the American soybeans are now being shipped to China
+- [11:00.160] in record amounts
+- [11:01.410] and we expanded markets for American beef,
+- [11:04.550] dairy products, biofuels across Asia, Europe,
+- [11:07.930] South America like we've never had before.
+- [11:10.760] Our farmers and agricultural producers do not want handouts.
+- [11:14.760] They really don't.
+- [11:16.130] The farmers come to my office a lot and they never --
+- [11:19.220] they just, sir, please just give us a level playing field.
+- [11:23.050] Others want more than that. They want everything.
+- [11:25.640] The farmers want a level playing field and it's --
+- [11:28.780] I talk about it all the time, that's all they want,
+- [11:31.590] because you were -- you were just the first.
+- [11:34.690] Last four years, four years before this one,
+- [11:36.900] before our great first year --
+- [11:38.140] our great first year we had records in so many categories.
+- [11:41.320] But during the past administration,
+- [11:44.440] you were treated really badly,
+- [11:46.190] and you were treated badly by the world
+- [11:47.790] because you had nobody that cared about defending you
+- [11:51.240] but you want that fair shot in a level playing field,
+- [11:53.770] and I'm giving that to you
+- [11:55.440] and I think I'm actually giving you much better
+- [11:57.660] than a level playing field I'm giving you
+- [11:59.800] a field that goes like this, makes it a lot easier for you.
+- [12:03.370] The things that we've done and to further help farmers
+- [12:05.830] recovering from the Biden catastrophe,
+- [12:09.180] we use money taken from tariffs, the tariffs --
+- [12:12.170] we've taken in hundreds of billions of dollars
+- [12:14.550] from the tariffs and as I said,
+- [12:16.520] we gave you $12 billion in farm relief
+- [12:20.360] and that happened just recently
+- [12:21.830] because you were hurt by certain countries unfairly.
+- [12:25.710] And I said you were unfairly hurt
+- [12:27.410] and we gave you $12 billion and that -- that made up for it
+- [12:30.820] I'm also asking Congress to quickly pass the new Farm Bill,
+- [12:34.950] and today I'm promising to request additional farm relief
+- [12:38.200] for our great patriots and the next funding bill
+- [12:41.170] so we have you taken care of in both instances.
+- [12:43.730] And we're pushing very hard for the new Farm Bill.
+- [12:48.510] The Democrats fight us I don't know
+- [12:50.190] what's the Democrats fight us on farm bills
+- [12:52.660] and they always have they are not your natural politician.
+- [12:58.040] Any farmer that votes for a Democrat is crazy.
+- [13:03.670] They are brutal on the farmers one of the Americans
+- [13:06.510] benefiting from our policies and new market access
+- [13:09.710] is Joel Viereck,
+- [13:12.310] a fourth-generation farmer from Woolwich Township, New Jersey.
+- [13:16.560] Joel, he really has a great story to tell.
+- [13:20.880] Please, Joel, come up and tell that story.
+- [13:25.560] Joel Viereck: Mr. President, thank you so much.
+- [13:28.760] I just want to say thank you, Mr. President,
+- [13:30.390] for the opportunity to speak today
+- [13:32.230] and for having this event and inviting us all here.
+- [13:35.270] Uh, yeah, I'm a vegetable farmer from Woolwich Township,
+- [13:38.810] New Jersey we farm a few hundred acres
+- [13:40.740] where we specialize in Jersey fresh tomatoes
+- [13:43.730] I do that along with my family.
+- [13:45.610] Um, also, I just, I guess most importantly today,
+- [13:48.690] as you spoke about the farm bill,
+- [13:50.200] I just urge Congress to pass the Farm Bill
+- [13:52.700] it's vital to everything that we do.
+- [13:54.930] Everything from financing to crop insurance,
+- [13:58.380] and it's vital to the USDA and the farm credit system.
+- [14:01.640] Um, also just we appreciate the bridge payments
+- [14:05.500] your policy on trade, everything.
+- [14:08.070] It's going to help strengthen what we do
+- [14:09.830] so I just want to thank you again
+- [14:11.800] for just everything you're doing to make America great again.
+- [14:19.480] The President: You know, while I'm up here,
+- [14:20.710] I'm looking around I love construction
+- [14:22.680] you see all those nice caterpillars and John Deeres.
+- [14:25.990] We have a lot of John Deeres. That's a big that's a big dig
+- [14:29.890] and we're building a ballroom for 150 years
+- [14:33.570] they haven't they've wanted -- every President said,
+- [14:36.730] could we have a ballroom, please?
+- [14:38.230] A room where you can have a lot of people
+- [14:40.300] so when the president of China, France,
+- [14:43.500] when somebody comes over from the UK,
+- [14:46.600] including the king we have the king coming over very shortly,
+- [14:49.580] and King Charles, so we can have like a large room
+- [14:52.880] because the white House is incredible,
+- [14:55.070] but it was never had a ballroom and we're building.
+- [14:57.830] That'll be the finest ballroom
+- [14:59.250] anywhere in the world when it's completed
+- [15:00.960] and I'm just looking at the construction.
+- [15:02.500] In fact, if you don't mind,
+- [15:03.780] I'll walk over there and look for a little while,
+- [15:05.990] then I'll come back and I'll continue to speak.
+- [15:09.510] I love construction.
+- [15:10.800] I love building beautiful things,
+- [15:12.840] but you're going to have something very,
+- [15:14.570] really tremendously.
+- [15:15.790] And thank you, Joel, and every day we're looking for new ways
+- [15:19.990] to support our farmers, reduce your costs
+- [15:22.070] and to help lower the price of food for the American family.
+- [15:26.580] Last month, we issued a major new rule
+- [15:28.700] declaring that farmers have a right
+- [15:30.720] to repair your own equipment. Can you believe that one?
+- [15:36.490] And your action -- that action will save the typical farmer
+- [15:40.120] up to $30,000 on major repairs.
+- [15:43.420] I mean, I heard about this,
+- [15:44.710] I said, you got to be kidding you don't have the right to --
+- [15:46.590] think these guys can fix anything
+- [15:49.050] but you didn't have the right to fix your own equipment.
+- [15:51.190] We ended that rather quickly and now you do
+- [15:54.730] and I did another thing, and I'll explain it in a second,
+- [15:59.400] because we had a ridiculous Washington restriction
+- [16:03.560] called the so-called diesel exhaust fluid requirement.
+- [16:08.100] Do you know about that? It was a basic disaster.
+- [16:12.470] Today, we're announcing new guidelines,
+- [16:14.620] drastically limiting these ridiculous DEF rules,
+- [16:18.420] saving farmers and consumers billions
+- [16:20.790] and billions of dollars.
+- [16:26.820] And when I was in Iowa recently,
+- [16:28.720] I met a man who was the chairman of John Deere, great company,
+- [16:35.900] and I asked him, I said, could I ask you a question?
+- [16:40.190] We cut a lot of the restrictions,
+- [16:42.430] almost all of them on cars.
+- [16:45.220] What have we done for tractors and trucks
+- [16:47.340] and different things that you use on the farms?
+- [16:50.340] He said, sir, they never got to us they never did that.
+- [16:53.350] I said, well, we're going to have to.
+- [16:54.890] That was about two months ago we've worked very hard
+- [16:58.680] and Lee is working on that.
+- [17:01.070] It's a top priority I told him Lee Zeldin a top priority.
+- [17:05.180] So when you buy a tractor today,
+- [17:08.020] you spend 50 percent of your time
+- [17:10.260] fixing the environmental --
+- [17:12.820] I say environmental impact statement garbage
+- [17:15.960] that's on the tractor. In fact,
+- [17:18.260] I buy a lot of things that having to do with farm equipment
+- [17:21.270] where I own clubs and other things.
+- [17:22.870] And I used to -- I said, give me ten-year-old equipment.
+- [17:26.810] Do you have any ten-year-old equipment
+- [17:29.440] that's hasn't been used yet? And whenever they had it,
+- [17:33.140] I would buy it because it was much better than the new stuff,
+- [17:36.630] which has so much environmental nonsense on it
+- [17:40.090] that it ends up costing
+- [17:41.460] thousands of dollars more to produce.
+- [17:44.060] And it doesn't work well, too complicated
+- [17:47.680] and then you'll get somebody that is a farm worker,
+- [17:51.010] and he's looking
+- [17:52.240] at heavy computerized environmental equipment
+- [17:55.700] and you have where the tractor will turn off
+- [17:58.000] if the environmental equipment
+- [17:59.380] isn't working it was an automatic turn off.
+- [18:02.520] It did absolutely nothing for the environment.
+- [18:05.650] It cost you $6, $7, $8,000 a machine and to save fuel,
+- [18:11.590] many of you are working over massive deposits of fuel
+- [18:15.420] to save a quarter of a glass of fuel this much.
+- [18:17.670] Just a little bit they'll have two extra computers in it
+- [18:20.910] that never worked
+- [18:22.430] and I said to the head of John Deere,
+- [18:26.110] is this a good thing or a bad thing?
+- [18:27.940] He said, sir, you have no idea how bad it is.
+- [18:30.780] It's made our tractors so complicated.
+- [18:33.500] You have to -- you need a major degree from MIT
+- [18:35.920] in order to turn on a tractor.
+- [18:38.320] We want to go back to the old ways, sir,
+- [18:40.760] and I said, I agree with you 100 percent,
+- [18:43.220] and we are working very hard and very quickly to get rid of
+- [18:46.710] the horrible chains placed on tractor suppliers.
+- [18:50.650] That's a beautiful tractor.
+- [18:51.970] That's a gold tractor somebody had me in mind.
+- [18:54.300] What's that all about? That's a hell of a tractor.
+- [18:58.260] I'm looking at this that's a good one,
+- [18:59.760] too red, white and blue
+- [19:00.990] but somebody really hit me with that one.
+- [19:03.870] That's beautiful.
+- [19:05.350] Oh, but so we are going to be -- Lee, I think we can say --
+- [19:10.370] I know you're in the process,
+- [19:12.130] cutting out massive amounts of nonsense
+- [19:16.680] that are mandated to be put on your tractors
+- [19:19.990] and all of your trucks that cost you a fortune and I --
+- [19:25.440] I know that they're going to do this
+- [19:26.950] and I asked him, you got to promise me one thing
+- [19:29.610] you're not going to take any profits
+- [19:31.150] you're going to lower the cost of a tractor.
+- [19:33.650] I want you to lower the cost
+- [19:35.060] and if they don't lower the cost,
+- [19:36.420] you'll let me know
+- [19:37.700] and I'll have to do a big number in those companies, OK?
+- [19:40.790] Because they're going to be able to very shortly produce --
+- [19:43.810] -- a bigger, better tractor at substantially less money.
+- [19:48.840] It's going to be better.
+- [19:50.070] It's going to be a better tractor
+- [19:52.170] at substantially less money.
+- [19:53.700] It's going to be more reliable.
+- [19:55.480] It's not going to be turning off every 15 seconds
+- [19:57.930] because the computer went haywire and you don't need.
+- [20:01.810] You're going to have a better tractor for less money
+- [20:04.310] but I want John Deere and Case and all of the great companies,
+- [20:08.480] Caterpillar, I want all of them --
+- [20:10.850] got a lot of Caterpillars in there all over the place.
+- [20:13.890] I look forward to seeing them later,
+- [20:15.840] but I want these companies to give it to you
+- [20:20.210] in the form of lower tractor and equipment costs,
+- [20:24.710] and I think it's going to have a huge impact and, Lee,
+- [20:27.450] when you do this I really want you to mandate
+- [20:30.910] to the companies to sell the equipment cheaper,
+- [20:32.970] not to get the same price and make a --
+- [20:35.310] a spread of could be $6 or $7,000 a machine.
+- [20:39.280] So we'll work on that together, OK?
+- [20:42.050] Thank you very much, everybody. I think it's going to be
+- [20:44.020] a great thing we're working on it very hard.
+- [20:49.080] So Americans love our farmers
+- [20:50.970] and to make it easier for consumers to choose products
+- [20:53.940] raised by ranchers like Michael,
+- [20:57.340] we recently announced a brand new food label,
+- [21:01.030] it's product of the USA. I love that, product of the USA.
+- [21:08.460] We have another one called made in the USA.
+- [21:10.440] That's better for a car.
+- [21:11.680] I like US product for the USA.
+- [21:13.480] I hadn't heard that, but it's good.
+- [21:15.720] They want the USA product.
+- [21:17.100] When Americans see those words in grocery stores,
+- [21:19.830] they'll know that it was raised, harvested,
+- [21:21.370] and processed by the greatest farmers and ranchers
+- [21:22.830] anywhere in the face of the earth.
+- [21:24.060] You are the greatest. Nobody even close.
+- [21:25.290] Just like we have the greatest military, we have the greatest,
+- [21:26.750] most powerful military in the world by far,
+- [21:27.980] we have the greatest farmers also. Thanks.
+- [21:29.210] And thanks to your hard work and incredible --
+- [21:30.750] Just like we have the greatest military, we have the greatest,
+- [21:33.330] most powerful military in the world by far,
+- [21:36.460] we have the greatest farmers also. Thanks.
+- [21:41.650] And thanks to your hard work and incredible productivity.
+- [21:44.400] We're slashing the prices of key staples for American families.
+- [21:48.020] The cost of cheese, butter, potatoes and fruit,
+- [21:52.120] many, many other products,
+- [21:53.460] is lower today than when I took office.
+- [21:55.850] Eggs are down, as an example,
+- [21:57.920] 60 percent from when I took office.
+- [22:00.820] And we have others coming down and beef
+- [22:03.220] is starting to come down.
+- [22:04.590] Beef was it was an amazing thing, I was told by Brooke.
+- [22:08.410] I said, I don't really believe it.
+- [22:10.260] They wanted to have less cattle in the country
+- [22:12.530] for environmental reasons. You know what I'm saying?
+- [22:15.350] Do you know what that means? Can you believe it?
+- [22:18.230] Who would think of this? These are sick people.
+- [22:21.920] No, they want less cattle for environmental reasons.
+- [22:25.560] It has something to do with gas permeating throughout the air.
+- [22:31.980] And we actually -- and that's what happened.
+- [22:33.930] Secretary Rollins: That's right.
+- [22:35.130] The President: And these the number of cattle was way down.
+- [22:38.590] I said, what happened? They were mandated.
+- [22:42.130] They were restricted for that reason.
+- [22:45.650] These people are crazy.
+- [22:47.290] But anyway, we -- we got rid of that one too.
+- [22:49.460] That was an easy one. You know, if I --
+- [22:53.430] if I said this 10 years ago, 15, 20 years ago,
+- [22:55.780] people wouldn't even believe what I'm saying.
+- [22:57.520] It's like men playing in women's sports.
+- [23:00.910] Would you believe we have an argument over that,
+- [23:03.720] men playing in women's sports?
+- [23:05.240] Did you ever see the weightlifting record?
+- [23:08.150] It stood for 19 years, women --
+- [23:11.100] great women athletes, they got up there.
+- [23:14.700] And then a man came along who happened to transition,
+- [23:17.910] and the record was broken by 119 pounds.
+- [23:22.130] And he was a bad weightlifter. It's true.
+- [23:25.710] He was a failed -- he was a failed male weightlifter.
+- [23:30.350] He shattered the record. I would say that's not good.
+- [23:34.180] So we are bringing all that back to normalcy too.
+- [23:38.260] And look what happened at the Olympics,
+- [23:40.700] the Olympic Committee,
+- [23:42.760] the heads of the Olympics just announced
+- [23:44.670] there will be no men playing in women's sports.
+- [23:48.110] Who else could have done that? Do you think --
+- [23:50.240] do you think that was easy?
+- [23:51.530] That wasn't easy. That was not easy.
+- [23:55.520] It's probably -- you know, they say it's an 80/20.
+- [23:58.790] No, I think it's a 99/1 issue, and nobody can find the one.
+- [24:03.750] To help lower gasoline prices for farmers and consumers,
+- [24:07.090] this week I issued an emergency order
+- [24:09.850] to allow immediate sales of E15.
+- [24:19.120] And just as I promised in the campaign,
+- [24:21.540] I'm seeking Congressional action to allow E15 all year round. OK?
+- [24:32.720] And I'm trusting Speaker Johnson and Leader Thune.
+- [24:35.900] They're two good men.
+- [24:37.490] I'm trusting them to find a deal that works for farmers,
+- [24:40.350] consumers and refiners,
+- [24:41.760] including small and mid-sized refiners.
+- [24:44.270] and they're going to send me a bill,
+- [24:45.710] and we should be able to get that done.
+- [24:47.200] We've worked with refiners before
+- [24:49.800] and we're going to get that done.
+- [24:51.780] Today, I'm also announcing a dramatic update
+- [24:54.190] to the renewable fuel standards for 2026 and 2027,
+- [24:59.190] a big problem.
+- [25:00.440] What they've done to you is -- and the country --
+- [25:02.980] what they've done to the country is just incredible.
+- [25:08.140] The environmentalists, I mean, they are terrorists.
+- [25:10.910] They were terrorists.
+- [25:12.180] I call them the environmental terrorists.
+- [25:15.530] And we'll now be requiring the highest volumes
+- [25:18.530] of renewable fuels in history.
+- [25:21.520] These new standards will generate over $10 billion
+- [25:24.520] of rural economic benefit,
+- [25:27.480] create an estimated 100,000 new jobs,
+- [25:30.740] and massively increase our nation's energy supply.
+- [25:35.230] It will come right out of the farms.
+- [25:37.410] In addition, to help bring down grocery costs even more, today,
+- [25:41.450] I'm pleased to announce that the Small Business Administration,
+- [25:44.550] that's Kelly, is opening up massive new loan guarantees
+- [25:48.330] for farmers and food suppliers,
+- [25:50.020] including vegetable farmers, grain farmers and seed farmers,
+- [25:54.250] cattle, pig and poultry producers,
+- [25:56.810] grocery wholesalers and many more.
+- [25:59.520] So if you're in the industry, Kelly, you better get ready.
+- [26:01.850] You're going to be inundated, right?
+- [26:03.910] It's the first time that's happened.
+- [26:08.530] And you know, when they say she's the head of
+- [26:10.140] small business, small business, when you add it all up,
+- [26:12.740] it's got to be the biggest --
+- [26:13.950] it's like the biggest bank in the world or something.
+- [26:16.820] There's nothing small about it.
+- [26:18.690] But you'll do a job, Kelly, right, help them out, right?
+- [26:22.480] From Texas to Kansas, from Iowa to Idaho
+- [26:25.810] and from Minnesota -- did I hear Minnesota?
+- [26:28.620] How is Minnesota doing? What's going on?
+- [26:30.970] What's going on in Minnesota with that crazy governor,
+- [26:33.580] that crooked, corrupt governor? How about the attorney general?
+- [26:37.330] Do you think he's a dirty cop? Do you think he's a dirty cop?
+- [26:42.570] All right. We'll get Minnesota back.
+- [26:44.330] We'll take it back from Somalia. No, do you believe?
+- [26:50.280] Do you believe -- these people come from Somalia,
+- [26:52.290] they have nothing. It's not -- they come --
+- [26:55.180] Somalia's considered the worst -- the worst country.
+- [26:57.690] It's not even a country,
+- [26:59.280] like the worst country in the world, the worst.
+- [27:02.080] They come over here and they steal $19 billion.
+- [27:08.030] We'll get it straightened out. It's happening.
+- [27:10.710] Our vice president is in charge of a new division.
+- [27:14.360] It's called the fraud division.
+- [27:16.240] Do you know if we straighten out half the fraud
+- [27:18.370] that took place in this country over the years,
+- [27:20.860] we'd have not only a balanced budget,
+- [27:22.600] we'd have a big surplus, and we're going to get it done.
+- [27:25.520] We're going to get it done.
+- [27:27.690] But from Minnesota to Mississippi,
+- [27:29.640] we're lifting up our hardworking farmers
+- [27:32.230] and ranchers and growers,
+- [27:33.730] and we're putting more money in American pockets.
+- [27:37.000] We're going to prove that the golden age
+- [27:39.550] of American agriculture is right here and right now.
+- [27:43.160] And I want to ask, just if you would,
+- [27:46.420] would you come up and say something?
+- [27:47.870] Because I'll tell you what --- come on over here.
+- [27:50.890] This is a great farmer.
+- [27:52.090] Would you just tell your quick story, please?
+- [27:54.000] Michael Cliver: Yes, sir. The President: Thank you.
+- [27:55.340] Michael Cliver: Thank you, Mr. President.
+- [27:56.850] My name is Michael Cliver, and I operate my family's ranch
+- [28:00.300] in Westfield, Pennsylvania, Double Circle D Farms
+- [28:03.500] and the work that you guys have done,
+- [28:06.140] it's unexplainable how big it is for the American farmer
+- [28:09.250] and the next generation that don't have the headache
+- [28:11.420] and don't have to worry about the death tax.
+- [28:13.710] It's astounding what you guys have done.
+- [28:15.980] It's absolutely spectacular.
+- [28:17.820] And also, the working family tax cut policies,
+- [28:20.870] that allowed us to get my daughter a Trump account
+- [28:23.730] and we can teach her fiscal responsibility,
+- [28:26.380] compound interest and investment and plan for her future,
+- [28:29.860] and it's just absolutely astounding
+- [28:31.350] what you've done with that.
+- [28:32.620] Also, your energy policies,
+- [28:34.630] up in Potter and Tioga County, Pennsylvania,
+- [28:36.720] the gas companies are leasing mineral rights again,
+- [28:39.110] actively, and that's putting money back
+- [28:41.220] into the farmers pockets up there too.
+- [28:42.790] So for all that, I applaud you and thank you, Mr. President.
+- [28:45.140] The President: Thank you very much.
+- [28:46.370] Great job. I'm glad I called him up.
+- [28:50.290] I didn't know who the hell he was.
+- [28:51.530] He's standing up here. You know, he's standing --
+- [28:55.650] we went through one and I said, there's another guy,
+- [28:57.660] but they don't have anything about --
+- [28:59.400] but you did -- it's an extremely good job you did, huh?
+- [29:03.200] Wow. Thank you very much.
+- [29:06.470] I do want to say -- could I -- do you mind if I step over here
+- [29:09.470] and just look at that tractor for a second?
+- [29:11.560] Because I assume it's a gift to me.
+- [29:17.740] That's crazy.
+- [29:19.120] Secretary Rollins: It's beautiful.
+- [29:21.340] The President: Oh, that is really something.
+- [29:23.490] Wow. Thank you very much for the gift.
+- [29:25.100] I appreciate it. Oh, boy.
+- [29:29.210] Can you imagine if I accepted that gift, what they would do?
+- [29:33.450] A Democrat can accept, we're not allowed to accept.
+- [29:36.760] No, but that's a beautiful machine.
+- [29:38.560] I love -- we make the greatest machines.
+- [29:40.390] That's a beautiful, beautiful machine.
+- [29:42.400] I'd like to ask a very special woman to step up.
+- [29:45.150] You know, Brooke,
+- [29:46.440] I always said could run any company in the world.
+- [29:49.520] She could run these big companies.
+- [29:51.000] She's a great executive. And we've talked about it.
+- [29:54.910] My wife's actually said, you know,
+- [29:56.370] Brooke could be an executive anywhere.
+- [29:58.510] That doesn't mean you're leaving, OK?
+- [30:00.560] But when I had a chance, I said,
+- [30:02.750] what about Department of Agriculture?
+- [30:05.490] I had no idea that she has, like, a PhD in agriculture.
+- [30:09.560] She went to school on agriculture.
+- [30:11.190] I would have put her there even if she didn't.
+- [30:13.450] But she's so highly trained and she loves it,
+- [30:15.700] and she loves the farmers, just like I do,
+- [30:18.120] and ranchers and everybody else having to do
+- [30:20.250] with this very special world that you live in.
+- [30:23.290] And Brooke has really been a star
+- [30:25.180] and I want to thank you very much.
+- [30:26.690] And say a few words. Thank you.
+- [30:28.480] Secretary Rollins: Thank you, sir. Thank you.
+- [30:30.950] Oh my goodness.
+- [30:35.060] Sir, the first thing I want to say
+- [30:36.980] is when we had that unexpected conversation
+- [30:41.770] about this job November 21st of 2024.
+- [30:47.580] Um, I've often said
+- [30:49.550] that sometimes you have plans for yourself,
+- [30:51.600] but then God and Donald Trump redirect your plan.
+- [30:56.880] One year in, I can't tell you the honor,
+- [31:02.290] the joy, the blessing of getting to fight every day.
+- [31:07.540] There is no better job than this.
+- [31:10.360] Even, President, I believe there is no better job
+- [31:15.450] than being your 33rd Secretary of Agriculture.
+- [31:20.710] And I just, President, Mr. President,
+- [31:22.440] thank you for your trust. It's just incredible.
+- [31:27.800] Not in our lifetime --
+- [31:29.360] the president and I on our walk over here,
+- [31:31.010] were talking about how the farmers,
+- [31:33.480] the ranchers, rule America.
+- [31:36.300] We are your people, sir.
+- [31:39.480] From the moment he came down the golden escalator to today,
+- [31:44.990] no one has stood more proudly, more strongly,
+- [31:48.860] more courageously for this man, this transformational president,
+- [31:54.300] at this moment in our country's history,
+- [31:56.620] than you all, our farmers and ranchers.
+- [31:59.580] I want everyone to get to their feet
+- [32:01.370] and just thank him for what he has done for our community,
+- [32:06.060] for our farmers and ranchers.
+- [32:08.050] He's the best -- the best. Never cry in
+- [32:14.130] (Inaudible) but so grateful. So grateful.
+- [32:22.660] A couple of -- a couple of other really special people,
+- [32:25.800] I know we have some friends in from Pennsylvania
+- [32:28.780] we have some amazing Amish farmers
+- [32:31.620] and I started thinking I maybe shouldn't do this
+- [32:33.940] because I don't think they like --
+- [32:35.760] or like the recognition, but they drove all the way here.
+- [32:39.120] If they're willing to stand up,
+- [32:40.820] let us thank you for making such an effort
+- [32:43.190] and your wonderful support for our president.
+- [32:49.690] I was told that even a new dress was made for this event,
+- [32:53.760] and I know this is out of the box a little bit for you
+- [32:56.780] and your amazing community,
+- [32:58.300] but I know on behalf of our Pennsylvanians and others,
+- [33:01.220] we're so grateful for you and your leadership.
+- [33:04.540] I also want to do a big shout out to Senator Hoeven,
+- [33:07.570] Senator Ernst, our congressman, Senator Ricketts,
+- [33:10.820] who fought so hard to get rural America in the One,
+- [33:15.410] Big, Beautiful Bill. You all deserve so much credit
+- [33:19.800] it was the largest investment in rural America
+- [33:23.250] for our farmers and ranchers in American history.
+- [33:27.440] This man drove it, but you guys executed,
+- [33:30.410] and we're so grateful to you.
+- [33:31.790] So thank you. Thank you.
+- [33:37.860] Also, very quickly, my mom is on the front row,
+- [33:40.810] state legislator Helen Kerwin, thanks to Donald Trump,
+- [33:45.470] is doing remarkable work for us in Texas,
+- [33:47.600] my beautiful sister, um, we talked about, Mr. President,
+- [33:50.810] the future of farming with a faith
+- [33:53.320] born not of words but of deeds.
+- [33:55.480] You have the FFAers and the 4-Hers here.
+- [33:58.230] We're so glad you are our future
+- [34:00.290] and we are so grateful, thank you.
+- [34:04.890] And speaking of the FFA, sir, my ag teacher from 35 years ago
+- [34:11.180] came all the way from Glen Rose, Texas, Mr. Rosenbusch, stand up.
+- [34:16.980] I love you. There were a few times
+- [34:21.420] he put me in the back of the bus for being too sassy
+- [34:24.550] and we've come a long way, Mr. Rosenbusch.
+- [34:27.550] God bless you and thank you for everything you mean.
+- [34:30.040] Listen, everyone the president did it so well.
+- [34:32.420] What we inherited when we came in just over a year ago,
+- [34:36.000] we left with an agricultural trade surplus
+- [34:38.800] when we walked out of here in January of 2021.
+- [34:42.310] We came back with an agricultural trade deficit
+- [34:46.060] of $50 billion.
+- [34:48.260] Not one new trade deal under the Biden administration.
+- [34:52.720] When we left, the cost of inputs were 40 percent
+- [34:57.050] less for our farmers and ranchers
+- [34:59.430] than when we came back four years later.
+- [35:03.440] We inherited a mess but this president understands
+- [35:07.820] that there is no more American of the Americans
+- [35:12.530] than our farmers and ranchers and the pioneering spirit
+- [35:16.150] that you all represent and today,
+- [35:18.740] on the South Lawn of the White House,
+- [35:21.160] to have the largest gathering of farmers
+- [35:24.870] in American history at this White House is historical.
+- [35:29.750] It will go down in the record books
+- [35:31.870] I believe this president will be remembered as the president
+- [35:35.740] and our administration with Bobby,
+- [35:38.430] with with Lee and with Kelly, who are all here,
+- [35:41.540] my best friends from the cabinet,
+- [35:43.240] across the cabinet as the moment in American history
+- [35:47.270] where we reversed the trend,
+- [35:49.600] where we stopped losing family farms,
+- [35:52.490] where we fought for rural America
+- [35:54.530] because the very, very best of who we are.
+- [35:58.520] And that began with this president,
+- [36:01.020] with his leadership,
+- [36:02.550] and we just couldn't be more grateful.
+- [36:04.190] God bless you, Donald Trump.
+- [36:05.590] God bless America and God bless our farmers and ranchers.
+- [36:09.170] Thank you all. Thank you, sir.
+- [36:19.070] The President: So the Farm Bill is going to happen.
+- [36:21.500] It's all going to happen
+- [36:22.900] and I just want to thank you all for being here.
+- [36:24.590] You're very, very special people.
+- [36:27.030] I'll never forget we won like such a number
+- [36:31.310] like nobody's ever won before.
+- [36:32.790] You voted for me. I will never forget that.
+- [36:36.150] I'll never forget the friendship --
+- [36:37.800] the great friendship that we've had.
+- [36:39.790] And we've got a lot more to do, Brooke and we're going to do it
+- [36:42.840] and we're going to get it done very fast, very, very, very fast
+- [36:45.700] and thank you all for being at the White House.
+- [36:47.710] Thank you very much. Bye.
+- [36:52.460] (applause)
+- [37:00.995] ♪ ("YMCA" by the Village People) ♪

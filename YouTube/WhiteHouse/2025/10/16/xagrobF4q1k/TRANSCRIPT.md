@@ -1,0 +1,1299 @@
+<!-- source: https://www.youtube.com/watch?v=xagrobF4q1k -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: xagrobF4q1k -->
+<!-- date_published: 2025-10-16T20:48:22+00:00 -->
+<!-- date_accessed: 2026-06-02T02:43:22.578944+00:00 -->
+
+# Transcript: President Trump Makes an Announcement, Oct. 16, 2025
+
+- [00:06.740] The President: Thank you very much.
+- [00:08.775] This is very exciting what we're doing.
+- [00:11.611] I want to thank everybody for being here,
+- [00:13.813] and I want to thank this group of people.
+- [00:15.348] They're incredible people.
+- [00:17.717] We just had a call, as you know, with President Putin.
+- [00:20.286] I thought it was a very good call,
+- [00:21.621] so we'll talk about it maybe later.
+- [00:24.057] But it went very well.
+- [00:25.291] We're here today to announce a historic victory
+- [00:28.261] for American women, mothers, and families.
+- [00:30.797] With the actions I will outline this afternoon,
+- [00:34.033] we will dramatically slash the cost of IVF
+- [00:37.804] and the treatment and many of the most common fertility drugs.
+- [00:42.842] For countless millions of Americans,
+- [00:44.611] prices are going way down, way, way down.
+- [00:47.680] I want to thank Libby Horne, who is the Senior Vice
+- [00:50.850] President of Fertility of EMD Serono.
+- [00:55.655] So I want to thank you. Let's see here.
+- [00:58.658] That's what I thought. I thought it was you.
+- [01:01.161] Thank you, Libby, very much.
+- [01:02.529] And let me also thank the Secretary of Health
+- [01:06.800] and Human Services, Robert F. Kennedy, Jr.,
+- [01:09.202] whose wife destroyed the people in "The View" yesterday.
+- [01:13.606] I have to say that she's,
+- [01:15.308] I'm not going to ever get into an argument with her.
+- [01:18.044] And you've decided you learned that a long time ago.
+- [01:21.481] She did a great job, actually.
+- [01:23.917] Secretary of Commerce Howard Lutnick.
+- [01:25.985] Thank you, Howard.
+- [01:27.487] Secretary of Labor Lori Chavez-DeRemer.
+- [01:32.492] Thanks, Lori. Howard. Thanks.
+- [01:34.394] Secretary of the U.S. Administrator Dr. Mehmet Oz,
+- [01:37.096] a fantastic guy and he's done really well.
+- [01:40.467] FDA Commissioner Marty Makary. Thank you, Marty.
+- [01:45.872] Senator Katie Britt,
+- [01:47.073] who got me started with this whole thing
+- [01:48.775] when she called up to say
+- [01:51.244] there was a bad ruling by a judge, right?
+- [01:54.414] "We've got to do something, sir."
+- [01:55.715] And we did. We did it very quickly.
+- [01:58.151] Probably in 24 hours, it was done.
+- [02:01.454] Congressman Richard Hudson, a great guy,
+- [02:04.357] and his wife, Renee.
+- [02:06.559] Richard and Advocate Samantha Bush,
+- [02:11.898] a very respected person.
+- [02:13.700] For years, American couples struggling with infertility
+- [02:16.803] have faced crushing costs in their quest to start a family.
+- [02:20.740] And IVF is among the most expensive treatments of all.
+- [02:25.979] A single round of IVF in the United States
+- [02:29.482] can cost up to $25,000,
+- [02:32.585] can actually go a lot higher than that.
+- [02:34.787] And many couples require multiple rounds
+- [02:37.023] for a successful pregnancy.
+- [02:38.791] A major reason for these high prices
+- [02:40.793] is the excessive cost of the drugs involved.
+- [02:44.697] The number one fertility drug used in IVF
+- [02:47.433] is currently 700 percent more expensive in the United States
+- [02:51.971] than the rest of the world.
+- [02:54.107] And you know, we're ending all of that.
+- [02:56.643] It's called favored nations and we're ending it
+- [02:58.945] and we're ending it pretty fast.
+- [03:01.514] Nobody thought we'd be able to do it.
+- [03:03.616] And we've done it. Drugs are going to come down.
+- [03:06.486] Drug prices are coming down 400 percent,
+- [03:10.256] 200 percent, 600 percent.
+- [03:12.559] Numbers that nobody's ever seen before.
+- [03:15.495] Great for Medicare, Medicaid, even Social Security.
+- [03:18.698] Great for everything, I think, Dr. Oz.
+- [03:21.868] So that's something that's, to me, very exciting.
+- [03:25.271] I'm bugging him and Bobby all the time.
+- [03:27.540] How are we doing with that?
+- [03:29.509] And we're doing really good, Bobby. It's really going good.
+- [03:32.512] Other countries are agreeing to it because if they don't,
+- [03:35.715] we put tariffs on them and then they agree.
+- [03:38.551] So it's amazing. It's amazing how that worked out.
+- [03:41.154] But as an example, in London,
+- [03:45.592] you'd buy a certain drug for $130
+- [03:49.729] and even less than that, I guess,
+- [03:51.097] $88 as of a count a month ago.
+- [03:54.567] And in New York, you pay $1,300 for the same thing.
+- [03:58.338] So now we're going to be paying, instead of $1,300,
+- [04:02.575] you'll be paying about $150. And they'll be paying $150, too.
+- [04:07.880] We're going to pay the same thing.
+- [04:09.449] Favored Nations. It's beautiful. It's a beautiful thing.
+- [04:13.620] We've been ripped off by the whole world
+- [04:15.288] for a long period of time.
+- [04:16.856] One of the most popular fertility drug regimens
+- [04:20.259] cost over $5,000 per cycle, as an example.
+- [04:24.063] Well, largely as a result of these unsustainable prices,
+- [04:28.768] 70 percent of the employers do not offer insurance
+- [04:31.604] that covers IVF.
+- [04:33.272] Therefore, most couples with fertility challenges
+- [04:35.775] are paying these costs entirely out of their own pockets,
+- [04:39.045] which is not really possible to do.
+- [04:42.815] Oh, look who we have. Look at that.
+- [04:45.585] The great Maria Bartiromo. I didn't know.
+- [04:49.088] Did you get put into the regular pool pack?
+- [04:51.658] That's very good. Yeah. That's good. Nice to see you.
+- [04:55.161] I'm doing an interview with her in a little while.
+- [04:59.032] In the Trump administration, we want to make it easier
+- [05:02.368] for all couples to have babies, raise children,
+- [05:04.937] and start the families I've always dreamed about.
+- [05:08.508] That's why today I'm pleased to announce that,
+- [05:11.277] after extensive negotiations, EMD Serono,
+- [05:14.347] the largest fertility drug manufacturer in the world,
+- [05:17.684] has agreed to provide massive discounts
+- [05:19.886] to all fertility drugs they sell in the United States,
+- [05:23.523] including the most popular drug of all the IVF drugs, Gonal-F.
+- [05:30.096] So it's Gonal-F. Is that a proper pronunciation?
+- [05:33.166] Close enough, right? Gonal-F.
+- [05:36.102] As part of this agreement, EMD Serono
+- [05:39.138] will list their fertility drugs online at trumprx.gov
+- [05:44.377] at very heavily reduced prices,
+- [05:46.979] prices that you won't even believe.
+- [05:49.849] And ultimately, that's because of the favorite nations.
+- [05:53.152] In addition, the FDA will be working with the company
+- [05:56.656] to expedite review
+- [05:57.890] and approval of another common fertility IVF drug,
+- [06:01.060] and currently it's selling in Europe.
+- [06:03.963] It's Pergoveris. Pergoveris.
+- [06:08.968] And that's a nice name. Pergoveris.
+- [06:12.739] Why can't you name a nice, simple name?
+- [06:15.274] A nice, easy name. It doesn't matter.
+- [06:19.011] If it works, that's all we care about, right?
+- [06:22.014] Upon approval, this drug would directly compete
+- [06:24.650] against a much more expensive option
+- [06:26.786] that currently is a monopoly in the American market,
+- [06:29.856] and this will bring down costs very significantly.
+- [06:32.892] And the other one's going to have to come down also.
+- [06:35.294] Finally, EMD Serono has agreed that all future drugs
+- [06:39.565] and everything that it develops and sells in the United States
+- [06:42.769] will be offset at most favored nation prices.
+- [06:47.340] I've been after this for a long time,
+- [06:50.309] and we started the process in the last administration,
+- [06:53.045] and then we had a little thing called COVID that came up.
+- [06:55.782] We had to focus on that. Did a good job on that, too.
+- [06:58.951] So they'll bring a significant portion of their drug
+- [07:01.320] manufacturing back to the United States.
+- [07:03.156] So they're going to bring it largely back
+- [07:05.224] into the United States, and that's for a lot of reasons,
+- [07:07.994] but primarily because of the election result,
+- [07:11.264] November 5th,
+- [07:12.532] and maybe, most importantly, because of the tariffs.
+- [07:15.334] Because if they do it here, there are no tariffs.
+- [07:18.304] So we have -- we're going to be very close.
+- [07:20.673] I think by the end of this year,
+- [07:24.010] we're going to be very close to $20 trillion in investment.
+- [07:27.046] As an example, the Biden administration
+- [07:29.715] had less than $1 trillion --
+- [07:32.919] substantially less than $1 trillion --
+- [07:35.021] for four years, Maria.
+- [07:36.455] Can you imagine? Four years, less than one.
+- [07:39.025] We're going to break $20 trillion of investment,
+- [07:42.495] and we're already over $17 trillion,
+- [07:45.331] and that's in eight months. Can you believe that?
+- [07:47.266] And he was at less than $1 trillion.
+- [07:50.570] And in addition to that, he had open borders,
+- [07:52.839] allowing millions of people to pour in
+- [07:54.574] during the administration.
+- [07:55.842] That was the worst President in history, by far.
+- [08:00.446] As a result of these actions, the per-cycle cost of drugs
+- [08:04.016] used in IVF will fall by an estimated 73 percent
+- [08:08.721] for American consumers,
+- [08:10.122] and the numbers are going to actually be
+- [08:12.258] very substantially higher as time goes by,
+- [08:14.760] when it really kicks in for most of --
+- [08:16.729] I mean, think of those numbers.
+- [08:18.364] You know, I told the story last time because we were with
+- [08:20.733] Pfizer, and Pfizer is doing something very similar.
+- [08:24.904] But I told them that -- my first term,
+- [08:27.807] I was so proud of myself because I was the first
+- [08:30.576] President in 28 years where drug prices went down for the year.
+- [08:34.380] And you know what?
+- [08:35.648] They went down one-eighth of 1 percent.
+- [08:38.417] But I was thrilled. One-eighth of 1 percent.
+- [08:40.853] Now I'm getting them down, Maria, 500, 600,
+- [08:44.190] 800 percent -- in some cases, even more than that.
+- [08:47.493] It's hard to believe. But I was proud.
+- [08:49.729] I said, "Oh, wow. I'm the first one.
+- [08:52.131] One-eighth of 1 percent." And I was proud of that.
+- [08:55.601] Now I realize. And I called a news conference.
+- [08:57.937] Some of you were at that news conference, actually.
+- [09:00.673] And I said, "Ladies and gentlemen,
+- [09:02.074] congratulations, we've gone down by one-eighth of 1 percent."
+- [09:06.145] And now we're going down 5, 6, 700, 800 percent,
+- [09:09.282] which is really something.
+- [09:11.384] For most administrations and all of the people
+- [09:14.854] involved in this kind of thing,
+- [09:16.689] this action would be a crowning achievement of their agenda
+- [09:20.192] for fertility health.
+- [09:22.194] But for us, it's really just the beginning.
+- [09:24.730] It's just the start. It's one of many things we're doing.
+- [09:27.600] Today, we're also taking historic steps
+- [09:30.336] to vastly expand access
+- [09:32.605] to insurance coverage for fertility care,
+- [09:35.775] including IVF -- something that, as you know, was not covered.
+- [09:39.779] Effective immediately, for the first time ever,
+- [09:42.548] we will make it legal
+- [09:43.816] for companies to offer supplemental insurance plans
+- [09:48.187] specifically for fertility. It has never been done before.
+- [09:51.223] We're signing it in today with what we signed.
+- [09:54.961] Americans will be able to opt in to specialized coverage
+- [09:58.631] just as they get vision and dental insurance.
+- [10:02.401] They're going to get fertility insurance for the first time.
+- [10:05.705] So I don't know, you know,
+- [10:06.973] I don't know how well these things are covered.
+- [10:09.442] You know, I see the Democrats like to take credit
+- [10:13.179] for all of the things we do.
+- [10:14.447] We do the things that they take the credit.
+- [10:17.149] But I think if you do enough of these,
+- [10:19.418] eventually people are going to figure it out.
+- [10:21.454] The Democrats have done nothing.
+- [10:23.723] This will make all fertility care,
+- [10:25.491] including IVF, far more affordable and accessible.
+- [10:29.195] And by providing coverage at every step of the way,
+- [10:33.165] it will reduce the number of people
+- [10:35.001] who ultimately need to resort to IVF
+- [10:38.104] because couples will be able
+- [10:39.939] to identify and address problems early.
+- [10:43.109] The result will be healthier pregnancies, healthier babies,
+- [10:46.545] and many more beautiful American children.
+- [10:49.015] It's a big factor. It's a big deal.
+- [10:51.884] I'm asking all employers
+- [10:53.552] to make these new fertility benefit options
+- [10:55.888] available to their employees immediately.
+- [11:00.459] The initiatives I've just announced are the boldest
+- [11:03.262] and most significant actions ever taken by any President
+- [11:06.866] to bring the miracle of life into more American homes.
+- [11:11.037] And I will say, Katie was, as you know,
+- [11:14.306] she's a great senator from Alabama.
+- [11:16.976] She's the first one that told me about this.
+- [11:19.678] I had not known too much about it,
+- [11:21.280] and we worked very rapidly together, didn't we, though?
+- [11:24.350] We had everything passed,
+- [11:25.651] and Alabama then took care of it and passed it.
+- [11:28.387] Within a week, everything was done.
+- [11:30.656] Really, it was something. So I want to thank Katie, Brett.
+- [11:34.326] There's no deeper happiness and joy of raising children,
+- [11:38.030] and now millions of Americans struggling with infertility
+- [11:41.300] will have a new chance
+- [11:43.202] to share the greatest experience of them all.
+- [11:47.106] So I'd like to thank all of the people that are here,
+- [11:50.476] and I think we'll start with Dr. Oz and Ms. Horn.
+- [11:55.181] We'll go through the list, and we'll listen.
+- [11:58.384] And yesterday, I did this,
+- [11:59.718] and I stood for about an hour and a half as people spoke.
+- [12:03.556] And they said, this time, I'm sitting right there,
+- [12:06.592] and I'm going to watch you.
+- [12:08.127] I stood for an hour and a half like this,
+- [12:09.862] and I said, you've got to be kidding.
+- [12:11.564] Here we go. It was one after another,
+- [12:13.599] and it was wonderful listening to them.
+- [12:15.401] But I said, if I have to do this every day,
+- [12:17.336] Bob Easton, I stand or sit? Thank you, Bob. Please, Dr. Oz.
+- [12:25.511] Senator Britt: Mr. President,
+- [12:26.779] I'm going to jump in here real quick.
+- [12:30.683] I want to start by thanking President Trump.
+- [12:34.620] Sir, from the very first phone call we ever had,
+- [12:39.325] your support was strong.
+- [12:41.560] It was steadfast. It was unwavering.
+- [12:44.630] And because of you, millions of Americans
+- [12:48.734] are going to have a greater opportunity
+- [12:51.103] to bring the greatest gift, in my opinion,
+- [12:53.405] life into this world.
+- [12:57.276] Your support, your administration's support,
+- [13:00.946] it's a game changer.
+- [13:02.848] All of us here today are aligned.
+- [13:05.584] This is a celebration of life.
+- [13:08.254] It's a celebration of parents. It's a celebration of family.
+- [13:12.424] And it's a celebration for those people
+- [13:14.326] who want to one day be parents themselves.
+- [13:18.464] I think every parent can attest, and I certainly do myself,
+- [13:22.368] that the greatest gift that God has ever given me
+- [13:25.004] is the ability to be a mom.
+- [13:28.174] We want more people to have that opportunity.
+- [13:32.178] We want to make that easier and more affordable.
+- [13:37.149] IVF is what makes the difference for so many families
+- [13:41.387] that are facing infertility. So you've seen the numbers.
+- [13:44.890] It's either one in eight couples,
+- [13:46.926] or some people say as much as one in six,
+- [13:50.729] are actually experiencing issues with fertility.
+- [13:54.700] It's 9 percent of males and at least 11 percent of females
+- [13:59.672] that are facing these challenges
+- [14:01.640] as they work to build their family.
+- [14:04.610] The recommendations today that President Trump has set forth
+- [14:09.014] are going to expand IVF coverage
+- [14:11.417] to nearly a million more families,
+- [14:14.486] and they're going to drive down costs significantly.
+- [14:18.791] Mr. President, this is the most pro-IVF thing that any President
+- [14:26.765] in the history of the United States of America has done.
+- [14:36.408] And Mr. President, it's your leadership.
+- [14:39.078] You are the reason why the Republican Party
+- [14:41.180] is now the party of parents. We are the party of families.
+- [14:47.219] This is why when Senator Cruz and I worked last year,
+- [14:49.688] we got every single Republican senator to sign on
+- [14:52.725] and say that they supported nationwide access to IVF.
+- [14:57.329] And just for the record,
+- [14:59.765] IVF is legal and accessible in all 50 states.
+- [15:07.139] And President Trump taking this action today to lower costs,
+- [15:12.945] to bring these issues to the forefront,
+- [15:15.814] and to enact solutions for people
+- [15:18.784] working to start their families,
+- [15:21.120] I want you to know it's significant
+- [15:23.222] and there's more to come.
+- [15:25.257] But this isn't the only thing that you've done to prove
+- [15:28.260] that we're the party of parents and we're the party of families.
+- [15:31.397] If you look at the working family tax cut, guys,
+- [15:35.701] he made sure that hardworking parents
+- [15:37.903] were front and center in that legislation.
+- [15:40.806] You know, whether it was child tax credits being expanded
+- [15:45.210] and made permanent, whether it was Trump accounts
+- [15:49.114] that are going to change the game for so many parents,
+- [15:52.785] or whether it was childcare.
+- [15:55.054] So for decades, we have heard Democrats talk about childcare.
+- [15:59.591] President Trump actually took action
+- [16:02.328] on the affordability and accessibility of childcare.
+- [16:06.332] We know that one in four families say
+- [16:08.600] that they hesitate to have more children
+- [16:11.170] because of the cost and because of childcare costs.
+- [16:17.076] For the first time, this man actually took steps
+- [16:20.846] to change the dynamics for hardworking parents.
+- [16:23.716] So of the three tax credits that he reformed
+- [16:26.352] in the working families tax cuts,
+- [16:28.620] two of them had not been touched in two decades,
+- [16:31.423] and one of them had not been touched since 1986.
+- [16:36.128] So President Reagan was in office
+- [16:39.164] the last time anybody did anything about it,
+- [16:41.600] but you changed the game on that,
+- [16:43.168] and I was proud to lead that effort in the Senate.
+- [16:46.705] And so on behalf of moms and dads,
+- [16:49.541] on behalf of grandparents and sisters
+- [16:52.177] and aunts and uncles and brothers
+- [16:55.013] and people who are looking to expand their family,
+- [16:59.618] we say thank you.
+- [17:01.954] Thank you for all you do to support families in this country
+- [17:05.758] and make a healthier environment and an easier one for us
+- [17:09.661] to grow the very most important thing.
+- [17:12.030] God bless.
+- [17:13.599] (applause)
+- [17:19.037] Administrator Oz: Let's set the stage.
+- [17:21.039] To put it in perspective, two weeks ago,
+- [17:22.741] as President Trump alluded,
+- [17:24.610] a leading U.S. drug manufacturer came into this room
+- [17:27.980] and agreed to do something none of us thought was possible,
+- [17:30.549] a most-favored-nation agreement
+- [17:31.917] with numbers, again, inconceivable.
+- [17:34.453] Last week, a leading company from Europe,
+- [17:37.923] a global leader in the pharmaceutical sector,
+- [17:39.591] came to this office, made the same kind of commitment
+- [17:42.694] for most-favored-nation pricing, again,
+- [17:44.997] because the President insisted on it and was persistent,
+- [17:47.599] and he alluded to the fact that he was calling Secretary Kennedy
+- [17:49.802] and me quite a bit.
+- [17:51.036] He definitely was with great insights into the process
+- [17:54.106] and would not hold back.
+- [17:55.774] But I think what you're seeing today is something even larger.
+- [17:59.211] It's larger because we're now showing that MFN is the tool
+- [18:01.747] that can get other initiatives going as well.
+- [18:04.249] We are revealing perhaps
+- [18:05.484] the most important MFN opportunity at all
+- [18:07.653] because it's about procreation. It's about babies.
+- [18:10.889] It turns out that MFN is a tool for a lot of things,
+- [18:14.092] and it goes without saying that you get the drug pricing down,
+- [18:17.029] but lots of other business necessities
+- [18:20.032] become possible when that occurs.
+- [18:22.201] So, Secretary Kennedy and I, who's a wonderful leader,
+- [18:24.937] talk frequently about family.
+- [18:26.205] I think the reason he's a great leader,
+- [18:27.539] and the President as well,
+- [18:28.774] is because they have large families
+- [18:30.275] and they take pride in the joy that it gives us.
+- [18:32.878] But many families, as Senator Britton alluded,
+- [18:35.314] do not have the ability to have children.
+- [18:37.716] But it turns out that it's about one in three families,
+- [18:40.519] a much higher number,
+- [18:42.054] that don't have the number of babies they desire.
+- [18:44.456] They're under-babied.
+- [18:46.225] So, this President committed to address
+- [18:48.794] that during the campaign,
+- [18:50.062] and he is delivering on that today
+- [18:51.530] in a way I don't think anyone thought was possible.
+- [18:54.099] We're opening the door with MFN pricing and tariffs
+- [18:57.135] that support it, Secretary Lutnick,
+- [18:58.904] with a new approach to make reproductive medicine
+- [19:01.173] more affordable for Americans.
+- [19:02.908] Now, I know what you're all thinking,
+- [19:04.142] and you're probably right,
+- [19:05.444] there are going to be a lot of Trump babies.
+- [19:06.945] I think that's probably a good thing.
+- [19:08.780] But it turns out the fundamental creative force in society
+- [19:12.818] is about making babies. It's about creating.
+- [19:15.354] And this country,
+- [19:16.822] the one that President Trump is leading so beautifully,
+- [19:19.391] has been a country of abundance, not scarcity.
+- [19:22.694] To have abundance, you have to address the fact
+- [19:25.197] that we had 3.6 million babies last year, which is beautiful.
+- [19:29.101] 3.6 million miracles, that's half a million
+- [19:31.670] less babies than we would ideally have had.
+- [19:34.139] It meant to replace our current population.
+- [19:36.642] Building on the success of the last two weeks,
+- [19:38.644] our team, led by the head of Medicare, Chris Klump,
+- [19:40.979] is standing over there, and Ines Hernandez,
+- [19:44.082] have negotiated a spectacular MFN deal
+- [19:47.185] to reduce the cost of IVF drug prices by $2,200 a cycle.
+- [19:54.159] That's nearly half of the price that it had been.
+- [19:57.696] The most prescribed drug in this category in America,
+- [20:01.500] made by MD Serrano, is described over here.
+- [20:05.037] You'll notice, President Trump,
+- [20:06.705] these are discounted from $242 to $10.
+- [20:10.075] I don't know what the math is on that.
+- [20:11.677] We can't even calculate it. It's a lot.
+- [20:13.946] It's too high to calculate without a more studied approach,
+- [20:18.617] but I give it up there because that number, $10,
+- [20:21.753] will apply for every American
+- [20:23.555] who earns less than $115,000 a year.
+- [20:26.191] That's 70 percent of the American people.
+- [20:28.894] The remaining folks who are able to make more
+- [20:31.063] would have to pay a tiny bit more,
+- [20:32.364] but it's still most favored nation pricing,
+- [20:34.566] no different from what the Europeans are willing to pay.
+- [20:38.170] Now, to make this deal happen,
+- [20:39.871] Chris and Inma had to do something special.
+- [20:41.673] They had to not just get the drug price down,
+- [20:43.542] but get the middlemen to let it go as well.
+- [20:46.545] Mr. President, we've met with the middlemen in the past.
+- [20:48.914] They're now joining the MFN movement.
+- [20:51.183] I want to thank Express Scripts Freedom Pharmacy,
+- [20:53.785] and then CVS Specialty Pharmacy,
+- [20:55.420] because they were willing to stand up
+- [20:57.089] and do the right thing for the American people
+- [20:59.157] by answering the President's call and slashing their prices.
+- [21:02.628] Now, this announcement also encompasses
+- [21:05.097] a remarkable move from Marty Makary.
+- [21:08.000] Marty Makary is, of course, the leader of the FDA,
+- [21:10.569] but he has ongoing efforts to accelerate
+- [21:13.171] their approval of innovative medicines
+- [21:15.240] that will further reduce the price
+- [21:16.808] and make this whole process
+- [21:18.076] more seamless for the American people.
+- [21:20.345] Now, you're about to hear about a spectacular new program
+- [21:24.182] that's been alluded to,
+- [21:25.584] but one of the architects of that program,
+- [21:27.185] Heidi Overton, Deputy Director of the White House
+- [21:29.154] Domestic Policy Council,
+- [21:30.789] is going to take us through the exciting details
+- [21:33.025] of what this is going to offer for the American people,
+- [21:36.161] especially those who are in the workforce.
+- [21:38.063] But first, we think you should hear from Libby Horn.
+- [21:40.499] Libby is EMD Serono's Head of Fertility.
+- [21:42.534] She brings both professional expertise
+- [21:44.603] and a personal connection to this work.
+- [21:46.471] She has three beautiful daughters,
+- [21:48.240] and she has personally benefited from reproductive medicine
+- [21:51.109] that has shaped her family, and her company made today's
+- [21:53.745] spectacular MFN pricing possible.
+- [21:55.547] Libby.
+- [21:56.915] Libby Horne: Thank you, Dr. Oz. Thank you, Mr. President.
+- [22:02.587] Today, we gather on this national stage
+- [22:05.290] to celebrate a historic step forward in expanding access
+- [22:09.261] to fertility treatment for those who need it most.
+- [22:12.264] Mr. President, thanks to your leadership
+- [22:15.100] and the tireless efforts of your team,
+- [22:17.736] this is a momentous day for Americans
+- [22:21.006] who struggle but remain hopeful to build their families.
+- [22:25.777] Fertility is on the rise in our country.
+- [22:28.513] One in eight couples face infertility.
+- [22:31.817] This isn't just a number. It's real lives, dreams,
+- [22:35.053] and aspirations of hardworking Americans.
+- [22:38.590] The teacher who goes to school each day,
+- [22:40.559] surrounded by children,
+- [22:42.260] but aching for children of her own.
+- [22:45.831] The firefighter who puts his life on the line,
+- [22:48.934] but can't create the life he wants at home.
+- [22:53.939] The consequences of these challenges
+- [22:55.574] can take significant tolls.
+- [22:58.376] Some of you watching today have given up or are frustrated
+- [23:02.614] because access to IVF treatments has been out of reach.
+- [23:06.485] That's why expanding access to IVF
+- [23:08.487] has been an issue of great importance to the President.
+- [23:12.924] He made this clear in his executive order
+- [23:15.494] declaring the administration's goal
+- [23:17.162] of supporting American families
+- [23:18.997] by enabling access and eliminating barriers to IVF.
+- [23:22.934] Today, EMD Serono is proud to help President Trump
+- [23:27.339] deliver on his promise to you.
+- [23:31.843] Thanks to the President's leadership,
+- [23:33.612] EMD Serono has worked alongside distributors
+- [23:36.148] and other partners to help more families
+- [23:38.784] have access to services and innovations
+- [23:41.119] that are consistent with other countries.
+- [23:43.989] Through our partnership with the administration,
+- [23:46.024] we are proud to announce
+- [23:47.692] that Americans will have access to our leading IVF therapies
+- [23:51.062] for an 84 percent discount off list prices.
+- [23:58.770] Thank you for making this possible.
+- [24:04.009] For more than 40 years,
+- [24:05.644] EMD Serono has been a global leader in fertility.
+- [24:08.613] Our science was instrumental in the birth
+- [24:10.148] of the first IVF baby in the U.S.,
+- [24:12.717] and we've helped to bring more than 6 million babies
+- [24:14.586] into the world since then.
+- [24:16.688] Our purpose is to help create, improve, and prolong life.
+- [24:20.492] That means discovering more medicines
+- [24:22.761] and bringing them to patients faster.
+- [24:25.831] FDA Commissioner Makary has made it a priority
+- [24:28.733] to ensure that Americans have access to the world's
+- [24:31.169] most innovative treatments as quickly as possible.
+- [24:34.272] To that end, EMD Serono is filing a new IVF therapy
+- [24:38.143] called Pergoveris for review under the FDA
+- [24:41.680] Commissioner's National Priority Voucher Program.
+- [24:45.517] If approved, Pergoveris would combine
+- [24:47.719] two key reproductive hormones in synergy
+- [24:50.455] designed to mimic reproductive physiology.
+- [24:53.325] This therapeutic option could mean fewer injections,
+- [24:56.361] fewer co-pays, and lower self-pay costs,
+- [24:59.097] all of which make a real difference
+- [25:00.665] in the IVF patient experience.
+- [25:03.168] In closing, on behalf of EMD Serrano,
+- [25:06.972] I want to send my heartfelt thanks to President Trump
+- [25:12.077] and the entire administration for their leadership
+- [25:14.145] and vision in this critical area of health care.
+- [25:17.582] Together, we will make a difference
+- [25:19.484] in the lives of countless families across this nation
+- [25:22.420] and uphold our long-standing legacy of creating life.
+- [25:26.825] Thank you.
+- [25:28.126] (applause)
+- [25:32.797] Dr. Heide: Wonderful.
+- [25:35.834] Mr. President, thank you for your bold leadership.
+- [25:38.603] This allowed our teams to go far
+- [25:40.272] beyond what anyone thought was possible.
+- [25:42.607] On behalf of the Domestic Policy Council and Vince Haley here,
+- [25:45.777] we would like to also thank all the agency partners
+- [25:48.647] and the stakeholders that we worked with
+- [25:50.081] to get to the solution today
+- [25:51.716] that will make a real impact for families.
+- [25:54.052] Specifically, today's historic actions,
+- [25:56.054] four in total that you see,
+- [25:57.689] are made possible by coordination
+- [25:59.291] of all of the White House team and seven agencies,
+- [26:01.893] many of who are represented here
+- [26:03.161] and their teams that have worked tirelessly.
+- [26:05.931] As you described, Mr. President,
+- [26:07.299] the current system isn't working.
+- [26:09.668] Seven in ten Americans don't have coverage for IVF.
+- [26:13.438] They face high costs and uncertain outcomes,
+- [26:16.141] and there's intense demand for fertility benefits.
+- [26:18.877] Sixty-five percent of Americans say
+- [26:21.012] that they would leave their current job
+- [26:23.248] just because of fertility benefits.
+- [26:25.784] So you asked us to lower costs
+- [26:27.786] and to fix the broken incentives in health care.
+- [26:30.488] In addition to lowering the cost of drugs by 73 percent
+- [26:33.992] or $2,200 per cycle, which if you missed it,
+- [26:37.295] most people require two or three cycles.
+- [26:39.864] So that's significant savings for families.
+- [26:43.601] I'm also going to briefly outline
+- [26:45.003] the new solution for coverage.
+- [26:47.272] This is a new fertility benefit option
+- [26:49.507] that employers can immediately offer
+- [26:51.343] to their employees starting today.
+- [26:54.346] This afternoon, the Departments of Labor,
+- [26:55.981] Health and Human Services,
+- [26:57.215] and Treasury will be releasing guidance that,
+- [27:00.285] for the first time, creates a legal pathway
+- [27:02.487] for employers to offer fertility benefit packages
+- [27:06.324] to people that need them, similar to how dental, vision,
+- [27:09.494] and life insurance are currently offered.
+- [27:11.663] This will be followed up by a regulation.
+- [27:14.132] These benefits can address the continuum of fertility needs,
+- [27:17.502] from the root causes of IVF,
+- [27:19.104] which Secretary Kennedy is working on very hard at HHS.
+- [27:31.116] It will be a coordinated package that does not exist
+- [27:34.252] in traditional health insurance today.
+- [27:36.755] It will make it easier for employers,
+- [27:38.356] including small and mid-sized employers,
+- [27:40.392] to compete for talented employees.
+- [27:41.993] Currently, many small businesses
+- [27:43.862] cannot afford to offer fertility benefits at all.
+- [27:46.164] This is making it possible for them to offer benefits,
+- [27:48.833] the same way that large companies like Amazon
+- [27:50.869] and others offer benefits.
+- [27:52.837] This is a pro-family benefit expansion
+- [27:55.006] that will transform clinical outcomes
+- [27:56.941] by addressing fragmented coverage and care.
+- [27:59.544] I'm a physician by training,
+- [28:01.079] and it's very important that we have high-quality care.
+- [28:04.182] Fertility benefit companies are poised to offer packages
+- [28:07.786] that have reported, so far, roughly 25 percent
+- [28:10.655] higher live birth rates for those that seek care,
+- [28:13.558] compared to those that don't have such benefits.
+- [28:16.294] They also report fewer cycles to achieve pregnancy,
+- [28:19.798] improved natural pregnancy rates through better care
+- [28:22.600] before you need IVF,
+- [28:24.736] and reduced chance of miscarriages,
+- [28:26.938] a 21 percent reduction in miscarriage rates.
+- [28:30.575] Leading physicians in the field have also relayed
+- [28:33.178] that these types of benefits significantly improve
+- [28:35.847] the patient and doctor experience,
+- [28:37.982] allowing both to focus on care,
+- [28:39.984] rather than navigating the bureaucracy.
+- [28:42.821] These impacts are very personal.
+- [28:45.123] Here with us today are my good friends,
+- [28:46.825] Congressman Richard Hudson of North Carolina,
+- [28:48.526] and his wife, Renee Hudson.
+- [28:50.161] Both have worked in public service for years,
+- [28:52.097] including Renee, for all four years
+- [28:53.698] of your past administration, Mr. President,
+- [28:56.000] and they struggled with infertility.
+- [28:58.103] Today, they have a beautiful son,
+- [28:59.370] who's their pride and joy.
+- [29:00.805] He's an amazing boy, but they also suffered multiple
+- [29:04.109] losses throughout their fertility journey,
+- [29:06.444] something that is very common.
+- [29:09.380] Unfortunately, too many people go through
+- [29:14.085] the hard, arduous process of IVF,
+- [29:15.954] and still result in a miscarriage.
+- [29:18.423] Today, your option is not only saving money,
+- [29:21.826] it's going to improve the quality of care significantly.
+- [29:25.763] This new benefit option simultaneously represents
+- [29:28.666] the greatest opportunity to expand coverage of IVF
+- [29:31.302] that the federal government has ever taken,
+- [29:33.771] while also improving the care delivered.
+- [29:36.274] Additionally, and very importantly,
+- [29:37.842] it gives employers maximum flexibility
+- [29:40.145] to design benefits that are consistent with their values.
+- [29:43.715] Put simply, this new fertility benefit option
+- [29:46.050] means lower costs and more healthy babies.
+- [29:49.254] So today, this announcement, we are realigning the industry
+- [29:52.891] towards the simple metric of more healthy babies
+- [29:56.127] at lower costs.
+- [29:57.962] I would now like to introduce Samantha Bush,
+- [29:59.898] the wife of NASCAR driver Kyle Bush,
+- [30:02.100] who's been a leading advocate for IVF access and affordability
+- [30:04.769] after your own infertility journey.
+- [30:06.671] Thank you, Mr. President.
+- [30:08.139] (applause)
+- [30:12.377] Samantha Bush: Hello, everyone.
+- [30:13.745] My husband, Kyle, and I battled infertility for over a decade
+- [30:17.448] before being blessed with our two beautiful children,
+- [30:20.318] Brexton, who's 10, and our daughter, Lennox,
+- [30:22.887] who's now three.
+- [30:24.622] But our journey was long and painful.
+- [30:27.592] We faced six rounds of IVF, multiple miscarriages,
+- [30:31.796] multiple failed cycles,
+- [30:33.464] and countless moments of heartbreak.
+- [30:35.633] We faced the rollercoaster of hope and devastation
+- [30:38.403] that so many families know all too well.
+- [30:41.239] Through it all, we held on to faith, each other,
+- [30:43.841] and the belief that somehow, someday,
+- [30:46.711] God would turn our pain into purpose.
+- [30:49.781] We also saw firsthand the staggering financial burden
+- [30:52.784] that comes with infertility treatment.
+- [30:55.220] Sitting in the waiting room of our fertility clinic,
+- [30:57.655] we overheard another couple quietly
+- [30:59.791] say that money was the only thing standing
+- [31:02.760] in their way of having their child.
+- [31:05.863] In that moment, Kyle and I looked at each other,
+- [31:08.299] and we knew God was planting a seed in our hearts,
+- [31:11.469] a calling to take action.
+- [31:14.005] In 2015, that calling became the Bundle of Joy Fund,
+- [31:18.276] a nonprofit foundation
+- [31:19.711] dedicated to providing financial assistance
+- [31:22.480] to couples struggling with infertility.
+- [31:24.816] What began as a small act of faith has now grown
+- [31:28.019] into something far greater than we could have ever imagined.
+- [31:31.756] To date, we've granted over $2 million directly to individuals,
+- [31:36.160] helping them pay for their IVF treatments,
+- [31:38.630] and we've celebrated the birth of 108 beautiful babies
+- [31:42.634] through our fund.
+- [31:48.706] Each baby is a living, breathing testament to hope,
+- [31:52.543] community, and God's grace.
+- [31:55.246] For every tear we cried, for every shot we gave,
+- [31:58.316] every doctor's appointment that ended in disappointment,
+- [32:01.519] Kyle and I knew there had to be a greater reason.
+- [32:05.123] This was God's plan for us, to use our journey to advocate,
+- [32:08.526] empower, and be the voice to those battling in silence.
+- [32:12.630] Over the past 12 years,
+- [32:13.965] we've worked hard to raise awareness, erase stigma,
+- [32:17.268] and bring hope to the one in six couples
+- [32:19.570] that will face infertility.
+- [32:22.040] Infertility can be incredibly isolating.
+- [32:24.475] It can leave you questioning your faith,
+- [32:26.177] your body, and your future.
+- [32:28.479] But it can also reveal a strength
+- [32:30.315] that you never knew you had inside of you.
+- [32:32.717] It can deepen love, it can bring couples closer together,
+- [32:36.287] and it unites people through a shared struggle.
+- [32:39.524] Our goal has always been to show others that they are not alone,
+- [32:43.394] that there is a powerful community of infertility
+- [32:45.863] warriors behind them.
+- [32:48.032] Today, seeing President Trump acknowledge infertility
+- [32:52.537] on a national stage is profoundly moving.
+- [32:56.074] It's no longer a whispered conversation
+- [32:58.376] behind closed doors.
+- [32:59.911] It is a recognized, validated struggle
+- [33:02.547] that so many families have to endure.
+- [33:05.350] His leadership reminds us that those in positions of power
+- [33:09.153] can make real and lasting changes for generations to come.
+- [33:13.725] Their willingness to bring this issue forward
+- [33:16.060] shows that they not only hear our community,
+- [33:18.596] but they truly care about us.
+- [33:21.199] Thank you, Mr. President, and to your family,
+- [33:24.202] for shining a light on infertility
+- [33:26.170] and for standing by couples like Kyle and I,
+- [33:28.706] for standing by couples
+- [33:30.007] who only want to hear the words mommy and daddy,
+- [33:32.810] who want to watch their children open their Christmas presents
+- [33:35.480] on Christmas morning, who want to see the world
+- [33:39.083] anew through the joy in their kids' eyes.
+- [33:42.553] Your acknowledgement honors the power of family, faith,
+- [33:46.424] and love, the very values that make America
+- [33:50.128] the greatest country in the world.
+- [33:52.463] It's proof that when promises are made and promises are kept,
+- [33:55.800] lives are changed forever. Thank you, Mr. President.
+- [33:57.535] (applause)
+- [33:58.703] The President: Thank you, Mr. President.
+- [34:06.444] Anybody else?
+- [34:07.945] Howard, would you like to say a couple of words?
+- [34:12.183] I was hoping you would say that. Bobby, come on up for a second.
+- [34:17.288] What a job you're doing. Say a few words for me.
+- [34:22.393] Secretary Kennedy: Thank you, Mr. President.
+- [34:23.628] Thank you for your vision, your commitment to our country.
+- [34:27.398] When Alka was President,
+- [34:30.234] the fertility rate in this country was 3.5 percent.
+- [34:34.238] Today, it is 1.6 percent.
+- [34:37.675] The replacement rate, in other words,
+- [34:39.744] the amount of fertility that you need
+- [34:42.947] in order to keep your population even, is 2.1 percent.
+- [34:48.186] But we are below replacement right now.
+- [34:50.154] That is a national security threat to our country.
+- [34:53.558] And we know why this is happening.
+- [34:55.560] And President Trump is addressing the root
+- [34:57.495] causes through his MAHA agenda
+- [35:00.531] of reducing endocrine disruptors,
+- [35:02.834] the exposure, the chemicals that decrease fertility.
+- [35:07.705] Today, the average teenager in this country
+- [35:11.576] has 50 percent of their sperm count,
+- [35:14.312] 50 percent of their testosterone as a 65-year-old man.
+- [35:18.382] Our girls are hitting puberty six years early.
+- [35:21.085] And that's bad.
+- [35:22.420] But also, our parents aren't having children.
+- [35:26.157] Parents who want to have children do not have access.
+- [35:28.826] I have seven children.
+- [35:30.895] I feel that God has blessed me with that.
+- [35:33.898] And I can't imagine how different my life would be
+- [35:37.435] if I did not have that blessing.
+- [35:40.905] I want to point out also that this morning,
+- [35:44.575] the Harvard University released a study
+- [35:48.546] that shows that the obesity rates have now
+- [35:51.115] climbed over 70 percent.
+- [35:53.818] And this, again, is for the same reason.
+- [35:55.686] We're flooding our kids. We're poisoning a generation,
+- [36:00.224] mass poisoning a generation of kids with chemicals.
+- [36:03.794] President Trump has instructed us
+- [36:07.131] to stop these problems at the root cause.
+- [36:09.800] But he's also recognized
+- [36:11.335] that there are people who are injured,
+- [36:14.705] people who are not living the life to the fullest.
+- [36:17.542] And he's addressing that last week.
+- [36:20.411] We made GLP drugs available at Most Favored Nation.
+- [36:25.483] And this week, it's IVF.
+- [36:28.953] Oh, I want to thank you so much for that, Mr. President.
+- [36:31.455] I saw on an airplane the other day
+- [36:35.326] that you said that you didn't believe
+- [36:37.128] that you were going to get to heaven.
+- [36:39.297] But you're doing God's work here.
+- [36:41.666] You've made peace in the Middle East,
+- [36:43.301] which is beyond anybody's imagination.
+- [36:48.105] And now you're giving millions of Americans
+- [36:51.142] a chance to have babies.
+- [36:52.443] And you're doing this while the government
+- [36:54.946] is locked down by the Democrats.
+- [36:58.249] But this administration has not stopped
+- [37:01.085] working for the American people.
+- [37:03.154] And that's because of your energy,
+- [37:05.056] your commitment, your vision.
+- [37:07.158] And I want to thank you for allowing me to be part of it.
+- [37:10.428] (applause)
+- [37:15.166] The President: And he's doing a great job.
+- [37:16.534] And by the way, Kyle is fantastic.
+- [37:20.871] He's got a lot of courage.
+- [37:22.440] I wouldn't do that. I wouldn't care.
+- [37:24.008] Howard, you and I would not be good on that.
+- [37:26.644] We'd go about 30 miles an hour. But we'd be safe.
+- [37:31.248] Anyway, so thank you very much. Any questions?
+- [37:37.054] The Press: Mr. President, this is a major campaign promise
+- [37:39.857] that you made with the big hot topic towards the election.
+- [37:42.960] You're delivering on that again. I actually had a question
+- [37:45.663] for Secretary Kennedy or Dr. Heide.
+- [37:47.832] Dr. Heide, you said something
+- [37:49.033] that I thought was really important.
+- [37:50.301] You talked about how this coverage option,
+- [37:52.403] this benefit option,
+- [37:53.771] gives companies the maximum flexibility
+- [37:56.974] to design benefits consistent to their values.
+- [38:00.111] I was wondering if either you
+- [38:01.445] or the President could expand on that
+- [38:02.913] and talk about why that's an important thing to understand
+- [38:05.850] about this program.
+- [38:08.519] Dr. Heide: Thank you. It's a great question.
+- [38:10.755] We think that employers are best situated to know
+- [38:13.858] what them and their employees want to contribute to
+- [38:17.528] in relation to their benefits.
+- [38:19.196] So employers are going to be able to decide
+- [38:21.966] how to cover the root causes of infertility,
+- [38:24.001] things like obesity, metabolic health,
+- [38:25.903] and other things that are impacting infertility.
+- [38:28.272] And also, if they want to encourage their employees
+- [38:31.976] to see certain types of doctors,
+- [38:34.612] then they can work with providers
+- [38:36.247] that are identifying the highest quality fertility providers.
+- [38:39.650] And so it puts them in the driver's seat.
+- [38:42.219] And our view is that we want employers to be the ones
+- [38:44.822] that can make those decisions, not the government.
+- [38:47.324] The President: All right. That's a good answer.
+- [38:50.828] Those are very good answers.
+- [38:54.065] The Press: Mr. President, previously you did not seem
+- [38:56.867] to be bothered regarding Hamas cracking down
+- [39:00.905] on what you called games, a couple of games.
+- [39:08.312] And today you issued a threat against Hamas on Truth Social.
+- [39:15.019] What has changed? What was said?
+- [39:16.921] The President: Go ahead. If they continue killing,
+- [39:19.757] keep killing innocents in Gaza, if that continues,
+- [39:24.028] the United States can go after them.
+- [39:25.396] The Press: I know you issued a strong statement.
+- [39:26.597] The President: That's right.
+- [39:27.832] The Press: They used to be gangs and now you're saying innocents.
+- [39:31.035] What made you think they're innocents now?
+- [39:33.537] The President: Well, I'm looking at what's happening
+- [39:35.005] and that wasn't the deal that was made
+- [39:37.074] and we'll see what happens. It's calmed down.
+- [39:40.077] It's a tough neighborhood. We know that.
+- [39:43.514] We have a commitment from them
+- [39:45.416] and I assume they're going to honor that commitment.
+- [39:47.251] I hope they do, and I know, I understand
+- [39:51.489] they brought back some additional bodies today.
+- [39:54.692] It's a rough deal when you think of it, right?
+- [39:56.694] Very rough.
+- [39:57.895] And we have our hostages back completely,
+- [39:59.864] we were very lucky with that. But it's a tough situation.
+- [40:07.938] They brought back bodies today, as you probably know.
+- [40:10.841] But they also said they're going to behave,
+- [40:14.411] we're going to find out if they behave, if they behave good.
+- [40:16.380] If they don't behave, we'll take care of it.
+- [40:17.715] The Press: Yeah, please.
+- [40:18.949] Following up on that, Mr. President.
+- [40:20.284] The President: I didn't say you, you CNN fake news. Go ahead.
+- [40:23.454] The Press: You said in your post that if they kept killing,
+- [40:27.424] we would have no choice but to go in and kill them.
+- [40:29.660] So you mean U.S. forces would go in and take our lives?
+- [40:33.430] The President: I didn't say who would go in,
+- [40:34.799] but somebody will go in.
+- [40:36.934] It's not going to be us. We won't have to.
+- [40:38.636] There are people very close, very nearby that will go in.
+- [40:41.372] They'll do the trick very easily.
+- [40:43.507] But under our auspices.
+- [40:46.110] The Press: You also posted about your call
+- [40:48.512] with President Putin today, and you spoke about
+- [40:50.648] meeting in Hungary with him.
+- [40:52.349] Do you have a timeline or a date set for when?
+- [40:54.385] The President: I would say within two weeks or so.
+- [40:56.020] Pretty quick.
+- [40:57.288] Marco Rubio is going to be meeting with his
+- [40:59.957] counterpart, as you know, Lavrov.
+- [41:02.927] And they'll be meeting pretty soon.
+- [41:05.095] They're going to set up a time and
+- [41:06.897] a place very shortly.
+- [41:08.299] Maybe it's already set up.
+- [41:09.667] They've already spoken.
+- [41:11.569] And I thought it was a very good phone call.
+- [41:12.903] I thought very productive.
+- [41:14.638] But I'll be meaning with President Putin, and we'll
+- [41:18.843] make a determination.
+- [41:20.010] Tomorrow our meeting with President Zelensky.
+- [41:23.547] And I'll be telling them about the call.
+- [41:26.150] I mean, we have a problem.
+- [41:26.951] They don't get along too well, those two.
+- [41:29.086] And it's sometimes tough to have meetings, so we
+- [41:31.722] may do something where we're separate, but
+- [41:34.792] separate but equal.
+- [41:36.727] We'll meet and talk to parties, but this is a
+- [41:42.299] terrible relationship the two of them have.
+- [41:44.268] And it's one of those things.
+- [41:46.871] I've seen things that nobody would believe.
+- [41:48.906] But this is one of them. So I'll be meeting --
+- [41:51.008] we're going to be meeting in Hungary.
+- [41:53.444] Viktor Orban is going to be hosting,
+- [41:57.147] and it's really something, this time.
+- [42:02.386] Last week over 7,000 people were killed.
+- [42:06.457] That's ridiculous.
+- [42:08.359] And you know, it doesn't affect our country.
+- [42:10.494] We're not losing people. We're not losing Americans.
+- [42:14.298] But they're losing Russians, Ukrainians,
+- [42:16.000] mostly soldiers, for the most part, soldiers.
+- [42:19.136] And we think we're going to get --
+- [42:21.338] we hope we're going to get it stopped.
+- [42:23.207] I thought this would be --
+- [42:24.742] because of my relationship with President Putin,
+- [42:26.911] I thought this would be very quick.
+- [42:29.113] And it turned out to be --
+- [42:31.115] who would think I did Middle East before I did this?
+- [42:33.250] We did a total of eight, now, seven, and now eight.
+- [42:36.987] And we're going to make this number nine.
+- [42:39.890] The Press: Mr. President, you said --
+- [42:42.226] you posted that there was great progress.
+- [42:44.395] Can you tell us a little bit about that?
+- [42:45.829] Was it a shift in Putin's tone? Was it something new?
+- [42:49.066] Did he tell you? Did he give you any message?
+- [42:53.103] The President: The President's election tomorrow.
+- [42:54.838] It just seems to me that -- you know, look, it's only a --
+- [42:58.976] that's all I've done in my whole life.
+- [43:00.311] I've made deals. I know about deals.
+- [43:02.579] Well, I don't think any President's ever ended a war,
+- [43:06.383] frankly. One war -- I did eight of them, right?
+- [43:09.186] And -- but I don't know. Did Bush ever end?
+- [43:11.422] Do you think Biden ended a war?
+- [43:12.823] Biden started wars because he was stupid.
+- [43:16.560] But do you think Biden ended any wars?
+- [43:18.896] No. I don't think --
+- [43:20.230] I don't know of anybody that ended wars.
+- [43:21.765] I ended eight of them. This is going to be nine.
+- [43:24.101] I think we're going to have this one done hopefully soon.
+- [43:26.937] But I'll be meeting him probably over the next two weeks.
+- [43:30.174] Marco is going to be meeting -- and the Vice President,
+- [43:33.610] as you know, is very much involved.
+- [43:35.245] The whole team is involved. Steve Witkoff will be involved.
+- [43:38.582] The Press: What did you talk about the Tomahawks?
+- [43:40.317] Did you discuss the Tomahawks as well as you just said?
+- [43:43.187] The President: Well, we talked about it a little bit.
+- [43:44.755] Didn't say much. But I do say to you, you know,
+- [43:47.024] we need Tomahawks for the United States of America, too.
+- [43:51.595] We have a lot of them, but we need them.
+- [43:55.199] I mean, we can't deplete for our country.
+- [43:59.703] So, you know, they're very vital.
+- [44:01.005] They're very powerful. They're very accurate.
+- [44:03.307] They're very good. But we need them, too.
+- [44:05.843] So, I don't know what we can do about that.
+- [44:07.978] The Press: Mr. President,
+- [44:09.246] why do you think a second meeting with Putin --
+- [44:12.016] why do you think a second meeting with Putin
+- [44:13.717] now will yield different results?
+- [44:15.319] The President: Well, I think Alaska actually set a stage.
+- [44:18.122] And that wasn't very long ago, but it set a stage.
+- [44:21.759] You have to understand, I came into this situation --
+- [44:23.827] I didn't start this war. This is a Biden deal.
+- [44:27.498] And I came into it, and it was a mess.
+- [44:29.066] It could have led to World War III.
+- [44:43.447] And we all went,
+- [44:50.120] because of some really bad decisions that were made.
+- [44:53.223] And look what you have now. Millions of people dead.
+- [44:57.428] You have just a horrible, horrible situation.
+- [45:00.531] I'm doing it to save souls. That's all I'm doing it for.
+- [45:02.866] I'm not doing it for us. We have an ocean between us.
+- [45:07.037] I'm doing it also to help Europe.
+- [45:09.339] They want to have it ended, but they're unable to do it.
+- [45:12.910] I'm able to do it. So I think we'll be successful.
+- [45:16.113] We'll save a lot of lives.
+- [45:17.414] It should have been done. It should have never started.
+- [45:19.283] This would have never happened if the election weren't rigged.
+- [45:22.219] This would have never happened.
+- [45:23.887] But it did happen, and I'll get it stopped.
+- [45:32.029] The Press: You mentioned a $1,300 drug
+- [45:33.697] at the top of this,
+- [45:34.932] were you referring to the weight loss drugs?
+- [45:36.733] The President: I was referring to Ozempic
+- [45:38.402] or the fat loss drugs.
+- [45:41.538] So those are going to be $150 out of pocket.
+- [45:44.608] They'll be much lower. They'll be much lower.
+- [45:48.612] We have not negotiated those yet.
+- [45:50.814] We're going to be rolling these out over time.
+- [45:52.783] The GOP category of drugs, which includes Ozempic,
+- [45:54.918] have not been negotiated yet.
+- [45:56.854] But it will. It'll come down. Like everyone else. OK.
+- [45:59.423] The Press: Any time on the negotiations?
+- [46:01.024] Administrator Oz: No, but I think those are going to
+- [46:02.426] come down pretty fast,
+- [46:03.694] and we do have, I guess, some more time.
+- [46:05.863] The President will be happy with the result,
+- [46:07.764] and until he is, we're not going to close those negotiations.
+- [46:10.701] The President: Except it'll happen. Yeah.
+- [46:12.269] The Press: Mr. President, what we've learned
+- [46:14.037] about some pro-life conservatives.
+- [46:15.906] Some pro-life conservatives have religious objections to IVF.
+- [46:19.109] They're already critical of those policies.
+- [46:20.544] What's your message to them?
+- [46:21.778] The President: I don't know about the views of that.
+- [46:23.580] I'm just looking to do something.
+- [46:25.582] Because, you know, pro-life. I think this is very pro-life.
+- [46:28.819] This is -- you can't get more pro-life than this. Please.
+- [46:32.656] The Press: President, you've been talking about
+- [46:34.091] how this new benefit plan
+- [46:35.993] will also include root cause treatments for infertility.
+- [46:39.363] How will you make sure that those root cause treatments
+- [46:41.899] are equally accessible to IVF?
+- [46:43.467] The President: Well, I think we're going to be doing that.
+- [46:45.102] Would you like to --
+- [46:46.303] would anybody like to talk about that subject?
+- [46:49.139] Female Speaker: Process.
+- [46:50.374] I think it's the determination, again, Secretary of Labor,
+- [46:53.477] the determination the Department of Labor
+- [46:55.879] is issuing their intent today
+- [46:57.614] to open up the rulemaking process,
+- [46:59.683] again for more flexibility.
+- [47:01.585] Any time that you have a President who's leading
+- [47:04.288] when you can offer more access to healthcare at a lower rate
+- [47:08.258] is a benefit to the American people
+- [47:09.526] and to the end user and that's exactly what he's doing.
+- [47:11.395] And so you heard before that through the Q&A.
+- [47:17.467] Guidance that was issued today with the other agencies
+- [47:20.737] that will give guidance to our employers
+- [47:22.739] and the employees about what the flexibility of that is
+- [47:25.475] and then again opening that rule making process
+- [47:27.377] for further determination of the access
+- [47:29.513] that can be had offered in those benefits
+- [47:31.148] for all different types of health care access
+- [47:33.617] is the goal of the Department of Labor.
+- [47:35.719] The President: Good answer. I like this better.
+- [47:39.022] I just say they can do better than me.
+- [47:41.825] Yeah, please. Good job, Laurie.
+- [47:44.161] You know, you're doing a fantastic job.
+- [47:47.431] I shouldn't tell. I won't say it,
+- [47:49.633] but I will not say that she was recommended by the Teamsters.
+- [47:53.036] Can you believe it?
+- [47:54.338] And she's turned out to be a gem, an absolute gem.
+- [47:57.307] You're doing great job. Thank you very much.
+- [48:00.410] The Press: Do you think we can see your deal-making skills
+- [48:02.913] applied to the government shutdown anytime soon?
+- [48:05.983] The President: Well, look, I mean,
+- [48:07.784] all we want to do is just extend.
+- [48:09.386] We don't want anything. We just want to extend,
+- [48:11.188] live with the deal that they had.
+- [48:13.523] They want to spend $1.5 trillion on illegal immigrants,
+- [48:17.361] and they want to destroy healthcare for everyone else.
+- [48:19.596] And it's crazy. It's crazy, people that are here illegally,
+- [48:22.833] they want spend$ 1.5 trillion.
+- [48:25.369] So we're just not going to do it.
+- [48:27.304] No, we have to take care of our healthcare.
+- [48:29.072] Now, we're doing that today, and we're do it with,
+- [48:32.376] you know, favorite nations, the most favorite nations.
+- [48:36.046] Your costs are going to be dropping greatly.
+- [48:38.749] And I'm really good.
+- [48:40.017] I'm happy that it's at the beginning of my administration
+- [48:43.687] because I did insulin and got it down to, like, $25.
+- [48:47.157] But it doesn't kick in.
+- [48:48.358] It didn't kick for two years by statute,
+- [48:50.494] so it couldn't kick it. And I said, boy,
+- [48:53.030] I hope I win this election because if I don't,
+- [48:55.198] somebody else is going to take credit for it, Bobby.
+- [48:58.001] And sure as can be, Biden said,
+- [49:00.871] he didn't even know what the hell was happening,
+- [49:03.807] and it was a hard thing for me to do.
+- [49:06.076] I got insulin way down. What was it before that?
+- [49:09.012] It was just massive. It was impossible to afford.
+- [49:13.684] And sure as can be, because it was a statute.
+- [49:16.453] It couldn't have been earlier.
+- [49:18.388] I said, boy, this falls into the next administration.
+- [49:20.824] I better win. And all of a sudden,
+- [49:23.894] I watch this Biden taking credit for something that I did.
+- [49:27.731] And on other things, too.
+- [49:29.533] We had a lot of things kick in. So the nice part about this,
+- [49:32.636] This is at the beginning of our administration.
+- [49:35.005] So I think we're going to see the fruits of our labor.
+- [49:37.908] And I hope on our other situation
+- [49:40.844] that we've talked so much about autism,
+- [49:43.347] I hope we're gonna see some very good results
+- [49:45.048] based on the recommendations that we made.
+- [49:47.684] And, you know, we have time to watch those results now.
+- [49:50.120] The Press: (inaudible)
+- [49:51.355] was just indicted by a grand jury in Maryland.
+- [49:52.856] Do you have a reaction to that?
+- [49:54.091] The President: I didn't know that,
+- [49:55.292] you tell me for the first time,
+- [49:56.560] but I think he's, you know, a bad person.
+- [49:59.429] I think that he's a bad guy, yeah, he's bad guy.
+- [50:03.633] He's too bad, but that's the way it goes.
+- [50:06.603] That's the ways it goes, right? That's way it -- will I what?
+- [50:09.740] The Press: Have you reviewed the case against him?
+- [50:11.475] The President: No, I haven't, I haven't.
+- [50:12.676] But I just think he's a bad person.
+- [50:14.044] Okay, anybody else?
+- [50:15.245] The Press: (inaudible)
+- [50:16.480] the IVF drug through the National Commissioner
+- [50:18.482] of Priority Review voucher.
+- [50:20.817] The President: What do you think (inaudible)?
+- [50:23.186] Male Speaker: So first of all,
+- [50:24.488] the National Priority Voucher Program
+- [50:26.390] says we're going to proactively at the FDA
+- [50:30.060] look for amazing treatments like this IVF treatment.
+- [50:33.964] We're going to reach out to the companies
+- [50:35.766] and if it's in line with the President's national priorities,
+- [50:38.335] we're going to put those drugs at the front of the line
+- [50:40.871] and get a decision out in weeks instead of a year.
+- [50:43.974] And so today we announced nine drugs
+- [50:46.076] that are going to be recipients.
+- [50:47.277] These are products where the manufacturing
+- [50:49.913] is going to be in the United States.
+- [50:51.915] Or it's meeting a large unmet public health need,
+- [50:54.785] like a diabetes drug we announced today.
+- [50:57.788] Or it is a product where you're going to see
+- [51:01.792] an affordability phenomenon
+- [51:05.695] because the prices are getting equalized in line
+- [51:08.064] with the President's most favorite nation's status goal.
+- [51:12.569] The President: Why didn't I have him speak?
+- [51:13.804] He was so -- could have saved a lot of time.
+- [51:16.473] Thanks, Lonnie. I'm not surprised. Yeah, please.
+- [51:20.076] The Press: So Senate Majority Leader John Fung
+- [51:22.779] today said he'd like to proceed with the bill
+- [51:25.816] which would put sanctions on Russia.
+- [51:27.451] What's your thought on that?
+- [51:28.819] The President: Well, we're going to see.
+- [51:30.053] He doesn't know about the call yet.
+- [51:31.755] I'm going to speak to him later.
+- [51:33.223] And it was subject to what I wanted to do.
+- [51:36.026] And so we'll see what happens.
+- [51:38.161] We may have -- this may be such a productive call
+- [51:41.798] that we're going to end up -- we want to get peace.
+- [51:45.202] We want to stop the killing.
+- [51:47.771] 7,000 people a week, can you believe it?
+- [51:50.474] We want stop the killings.
+- [51:51.842] So I'm going to speak to the Speaker, Mike Johnson.
+- [51:56.947] I'll speak to them a little bit later,
+- [51:58.582] and I'll tell them about this.
+- [51:59.883] And we'll make the right determination.
+- [52:01.585] I'm not against anything.
+- [52:02.853] I'm just saying it may not be perfect timing.
+- [52:06.890] It could happen in a week or two,
+- [52:09.092] but it's at my option, as you know.
+- [52:11.394] The Press: But did President Putin try to dissuade you
+- [52:14.064] from selling Tomahawk missiles?
+- [52:16.333] The President: Well, of course,
+- [52:17.534] what do you think he's going to say?
+- [52:18.802] Please sell tomahawks.
+- [52:20.904] Is he going to said, please sell those Tomahawks?
+- [52:22.939] I really appreciate it.
+- [52:25.609] I did actually say, would you mind
+- [52:27.244] if I gave a couple of thousand Tomahawks to your opposition?
+- [52:31.515] I did say that to him. I said it just that way.
+- [52:35.886] He didn't like the idea.
+- [52:37.854] He really didn't the idea, no, I said it that way.
+- [52:41.825] You have to be a little bit lighthearted sometimes,
+- [52:44.027] but no, he doesn't want Tomahawk.
+- [52:45.729] Tomahawks is a vicious weapon.
+- [52:47.697] It's a vicious, offensive, incredibly destructive weapon.
+- [52:52.569] Nobody wants Tomahawks shot at them.
+- [52:54.704] The Press: Did he ask you not to provide Tomahawks?
+- [52:57.707] The President: Wouldn't anybody? I mean, it's been in the news.
+- [53:00.043] Who wouldn't do that? CNN.
+- [53:01.845] Who wouldn't do that, you know? You think he's going to say,
+- [53:04.714] I'd love to have Tomahawk sent my way.
+- [53:06.616] I don't think so.
+- [53:07.817] Maria, we have one of the great stars of television here,
+- [53:10.420] and she's an incredible person.
+- [53:11.821] And she's just an amazing woman who she got it all right.
+- [53:15.926] She got the Russia Russia, Russia hoax right.
+- [53:18.595] She got everything. Would you have a question?
+- [53:22.866] The Press: I would ask you why this was so important to you,
+- [53:27.437] IVF, and why was autism so important to you?
+- [53:30.707] What are you trying to achieve?
+- [53:32.509] The President: Well, autism is like a whole different thing.
+- [53:35.145] When you look at -- it was one in 20,000.
+- [53:39.082] Now it's one in 12.
+- [53:40.784] If you look, Bobby, we have different numbers.
+- [53:42.485] But one in twelve, one in 28, one and 32.
+- [53:45.255] There's a couple of different numbers out there.
+- [53:47.157] But it's a one in a very, very different number
+- [53:49.526] than it used to be.
+- [53:50.827] It used to one in twenty thousand.
+- [53:54.598] And that was -- that was not that long ago,
+- [53:56.399] twenty years ago or so.
+- [53:58.435] And now they had something for boys, for babies, baby boys.
+- [54:03.106] It's one in 12. I heard one in 10, Bobby.
+- [54:06.376] I heard another one, you know, different lists.
+- [54:08.345] But when you think of that, it's not even sustainable.
+- [54:12.449] But there's something artificial.
+- [54:14.918] When that happens, that's not like natural.
+- [54:17.854] And then you have certain groups of people
+- [54:19.322] that literally don't have autism,
+- [54:20.991] and they're not taking some of the things that we're taking.
+- [54:24.094] So we're working very hard.
+- [54:25.395] And on IVF, it's just that I have.
+- [54:28.231] Friends, including Katie, that called me,
+- [54:30.800] and they told me the importance of it.
+- [54:32.202] I wasn't that familiar with it, and now I think I've sort of
+- [54:34.804] become the father ever since I heard.
+- [54:37.340] There was a bad decision in Alabama
+- [54:40.043] where a judge wanted all clinics to be immediately closed, right?
+- [54:43.613] And Katie called up, and you said
+- [54:45.849] you were pretty strongly attacked by your friends
+- [54:48.485] that you didn't even know were involved with IVF, right.
+- [54:52.022] Senator Britt: (inaudible)
+- [54:53.590] people who had gone through IVF themselves,
+- [54:55.291] telling their story and saying there are people --
+- [54:59.262] The President: Tell what you did when you heard
+- [55:00.864] from your friends. You said this was not --
+- [55:03.166] they almost became violent.
+- [55:04.834] Senator Britt: I told him, I said, Mr. President,
+- [55:06.870] we need you, we need your voice in this conversation.
+- [55:10.573] We need the directive. We need this strong support
+- [55:13.576] because there are millions of people out there,
+- [55:16.846] moms and dads wanting to bring life into the world.
+- [55:19.616] And you had people,
+- [55:20.984] the chilling effect that occurred across Alabama,
+- [55:23.286] there were people that were in the middle of that process
+- [55:26.156] that had been praying to have a child.
+- [55:28.692] And that was halted.
+- [55:30.093] And so the reality of that was very stark in our state.
+- [55:34.097] And so I was able to tell the President
+- [55:36.332] some of the stories of people, friends and grandparents
+- [55:40.737] and relatives that told me what they had experienced
+- [55:44.908] and also what they were fearful of in the future.
+- [55:48.545] And the President very quickly acted,
+- [55:50.880] spoke with a strong voice and really led the way.
+- [55:55.318] Obviously, we saw Democrats continue to fear monger
+- [55:58.421] for the remainder of the year,
+- [55:59.889] trying to use it as an election issue
+- [56:01.858] when actually IVF is legal and accessible in all 50 states.
+- [56:06.296] And President Trump very clearly said where he was on this.
+- [56:09.099] And he said, I'm going to make sure
+- [56:10.867] that this is more accessible
+- [56:12.335] and that it is more affordable for families coast to coast.
+- [56:15.405] That's exactly what he did, but it's that real life.
+- [56:19.075] There's real life stories, sir, that he responded to.
+- [56:22.078] And that's what people don't know about him.
+- [56:24.280] He cares. And when you tell him
+- [56:27.217] what American people are dealing with,
+- [56:29.552] he wants to do something about it.
+- [56:31.988] You have leaders and politicians that come before him
+- [56:34.724] that want to talk about things.
+- [56:36.392] President Trump wants to actually make things happen.
+- [56:40.330] That's exactly what he did here.
+- [56:41.865] And I'm so, so grateful, Mr. President.
+- [56:43.933] The President: Thank you very much. Appreciate it.
+- [56:45.835] So, we will go back to what we're doing.
+- [56:49.506] I'm working again with Marco and with JD
+- [56:53.409] and a few of the people on the war,
+- [56:54.811] and we're doing a lot of other things also.
+- [56:57.247] The economy is unbelievable.
+- [56:59.282] It really is. It's been incredible.
+- [57:01.684] And I think one of the great numbers that I've ever heard,
+- [57:06.122] think of it, over $17 trillion being invested in our country.
+- [57:10.293] And when you think of Compare that to the last administration.
+- [57:14.397] But really, compare it to any administration,
+- [57:17.033] compare it any country.
+- [57:18.368] There's never been a country with anything like that.
+- [57:20.303] That's in a period of eight months.
+- [57:22.806] And we're going to --
+- [57:24.073] we've already broken every record possible.
+- [57:26.442] There's ever anything even close.
+- [57:28.978] So, we'll go back to all of that.
+- [57:31.447] Prices are down. Oil is down. Down $58 a barrel.
+- [57:35.585] That's going to -- we're going to be hitting $2 for gasoline.
+- [57:38.454] I mean, I think we're going to be at $2 in --
+- [57:40.590] The previous administration, they were at $4 and $5.
+- [57:43.760] They were going up much higher.
+- [57:45.395] And then they swung back into Mike things,
+- [57:47.964] but they didn't swing back properly.
+- [57:50.633] They were very, very late. They really blew it.
+- [57:52.936] We had it really going in the right direction.
+- [57:55.104] They came and took everything out.
+- [57:56.539] And, you know, it's incredible. I'll never forget.
+- [58:00.844] They lost control of the price of gasoline, of oil.
+- [58:05.515] They totally lost control, Howard.
+- [58:07.016] And then, they went back immediately.
+- [58:08.818] Well, let's go back to Trump.
+- [58:10.587] But by that time, it was too late.
+- [58:12.789] And they didn't go back, because the leases and everything else,
+- [58:16.726] they didn't do what they had to do.
+- [58:19.162] They really didn't know how to.
+- [58:20.864] But we could be hitting close to $2 a gallon.
+- [58:23.900] I'd love to break it if we could, but we could be --
+- [58:27.003] and, you know, when that comes down, everything else --
+- [58:28.905] and everything else has been coming down.
+- [58:31.140] Groceries are down. The price of things are down,
+- [58:34.811] and honestly, the simplicity is, if you can get oil down --
+- [58:40.950] It's such a big category, everything follows.
+- [58:43.853] So just about everything follows,
+- [58:45.655] and we are working on beef.
+- [58:47.957] And I think we have a deal on beef
+- [58:49.826] that's going to bring the price of beef.
+- [58:51.194] That would be the one product that we would say
+- [58:54.464] is a little bit higher than we want it,
+- [58:57.333] maybe higher than what we want.
+- [58:58.835] And that's going to be coming down pretty soon, too.
+- [59:00.737] We did something. We worked our magic.
+- [59:03.106] But groceries are down, and energy is down,
+- [59:06.009] electricity is way down.
+- [59:08.645] We have the prices coming down for people.
+- [59:10.813] They were abused for four years by the Biden administration.
+- [59:14.417] Thank you very much, everybody. We'll see you soon. Thank you.

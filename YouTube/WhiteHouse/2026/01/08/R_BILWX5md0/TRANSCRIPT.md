@@ -1,0 +1,1003 @@
+<!-- source: https://www.youtube.com/watch?v=R_BILWX5md0 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: R_BILWX5md0 -->
+<!-- date_published: 2026-01-08T19:10:14+00:00 -->
+<!-- date_accessed: 2026-06-02T02:39:17.660027+00:00 -->
+
+# Transcript: Press Briefing by Press Secretary Karoline Leavitt and the Vice President, Jan. 8, 2026
+
+- [00:00.120] Karoline Leavitt: Good afternoon, everybody.
+- [00:02.400] Let me be clear.
+- [00:03.940] President Trump and his entire administration
+- [00:06.860] stand fully behind the heroic men and women of ICE
+- [00:10.710] and will always uphold law
+- [00:12.490] and order in the United States of America.
+- [00:15.900] The deadly incident that took place in Minnesota yesterday
+- [00:19.100] occurred as a result of a larger sinister left wing movement
+- [00:23.880] that has spread across our country,
+- [00:25.770] where our brave men and women of federal law enforcement
+- [00:28.880] are under organized attack.
+- [00:31.470] Right now, Immigration and Customs Enforcement officers
+- [00:34.430] are facing a 1,200 percent increase in assaults, a 32 --
+- [00:40.190] 3,200 percent increase in vehicle rammings
+- [00:43.910] and an 8,000 percent increase in death threats.
+- [00:47.560] ICE agents are faithfully enforcing federal law
+- [00:50.770] to protect the safety of the American people
+- [00:53.970] by removing criminal illegal aliens from our country,
+- [00:57.510] which is exactly what nearly 80 million Americans
+- [01:01.060] elected President Trump and Vice President JD Vance to do.
+- [01:05.370] Radicals in the Democrat Party are furious over this.
+- [01:09.120] They don't want our border secured or criminal
+- [01:11.530] illegal aliens being removed.
+- [01:13.720] As a result, Democrats are impeding
+- [01:16.180] immigration enforcement operations daily,
+- [01:19.040] creating extremely heightened and dangerous circumstances
+- [01:22.840] that make it nearly impossible for the men
+- [01:25.470] and women of law enforcement to simply do their jobs.
+- [01:29.370] Democrats are calling to defund federal law enforcement agencies
+- [01:32.780] who are protecting public safety,
+- [01:35.140] and Democrats are calling to abolish ICE
+- [01:37.590] and defund the police.
+- [01:39.460] That will never be allowed to happen
+- [01:42.060] under this President and vice President.
+- [01:44.730] The Trump administration will redouble our efforts
+- [01:47.510] to get the worst of the worst criminal illegal alien killers,
+- [01:51.790] rapists and pedophiles off of American streets.
+- [01:55.330] The Department of Homeland Security
+- [01:56.790] will continue to operate on the ground in Minnesota
+- [01:59.970] not only to remove criminal illegal aliens,
+- [02:02.800] but also to continue conducting door
+- [02:05.360] to door investigations of the rampant fraud
+- [02:08.660] that has taken place in the state
+- [02:10.480] under the failed and corrupt leadership
+- [02:13.000] of Democrat Governor Tim Walz.
+- [02:15.360] Taxpayers have been ripped off
+- [02:17.110] to the tune of billions of dollars
+- [02:19.320] in this one state alone, and that is going to end
+- [02:22.800] and people are going to be held accountable.
+- [02:25.490] The Trump administration has activated
+- [02:27.480] thousands of federal agents,
+- [02:29.180] doubled the number of US attorneys
+- [02:30.870] in the DOJ office in Minneapolis
+- [02:32.980] and surged resources to hold fraudsters accountable
+- [02:36.270] and demand justice for law-abiding American taxpayers
+- [02:39.880] and citizens across our country.
+- [02:42.000] And that's what brings the vice
+- [02:43.390] President out here with me today,
+- [02:45.350] to discuss all the Trump administration is doing
+- [02:47.530] and to make an additional important announcement
+- [02:49.390] on this front.
+- [02:50.640] So, please, Mr. Vice President will be joining us now.
+- [02:58.490] The Vice President: Thank you, Karoline.
+- [03:00.120] Great. Well, good afternoon, everybody.
+- [03:01.750] And I want to echo some of what Karoline said
+- [03:04.110] about what we're doing to combat the rampant fraud
+- [03:07.200] that exists in our immigration system
+- [03:09.190] thanks to failed politicians
+- [03:11.100] and thanks to people who allowed the American taxpayer
+- [03:13.250] to be taken advantage of for far too long.
+- [03:16.250] I think it's important to understand
+- [03:18.190] why this matters to the American people.
+- [03:20.170] I am a father of three young kids.
+- [03:22.840] A lot of kids -- a lot of people in my generation --
+- [03:25.600] what is that going on there?
+- [03:26.830] Karoline Leavitt: I don't know.
+- [03:28.050] The Vice President: Is that normal?
+- [03:29.250] The Press: It's a camera.
+- [03:30.530] The Vice President: Okay. CNN installed this broken camera
+- [03:32.540] just to throw me off my game, but it's not going to work.
+- [03:35.200] So, here's -- here's the simple fact here.
+- [03:38.830] If you're a young parent struggling to afford child care
+- [03:42.940] in the United States of America,
+- [03:44.440] there are programs that we have to make it easier
+- [03:47.070] for your kids to get in daycare,
+- [03:48.430] for your kids to get in preschool.
+- [03:50.030] Those programs should go to American citizens,
+- [03:52.940] not be defrauded by Somali immigrants
+- [03:54.860] and others making it hard for you
+- [03:56.930] to get the access to the resources you need,
+- [03:59.250] but number two, making it easier for people
+- [04:01.550] who shouldn't even be in this country
+- [04:03.230] to fleece the United States and our taxpayers to begin with.
+- [04:06.670] We have actually activated a major interagency task force
+- [04:11.610] to make it possible to get to the heart of this fraud.
+- [04:14.470] We have Department of Agriculture resources
+- [04:16.350] that are focused on SNAP fraud
+- [04:18.410] so that people who need food benefits can get them
+- [04:21.210] but illegal aliens and other fraudsters don't.
+- [04:23.840] We have over 1,500 subpoenas that the Department of Justice
+- [04:27.440] has issued to get to the heart of the fraud ring.
+- [04:30.350] We've done almost 100 indictments,
+- [04:32.290] mostly Somali immigrants but also a few others.
+- [04:35.210] And of course, we're looking in with broad
+- [04:37.040] investigatory authority to a number of the instances
+- [04:41.130] of wrongdoing that we've seen in Minneapolis.
+- [04:43.610] But we also want to expand this.
+- [04:45.880] We know that the fraud isn't just happening in Minneapolis.
+- [04:48.380] It's also happening in states like Ohio.
+- [04:50.540] It's happening in states like California.
+- [04:52.930] And so, what we're doing, in order to help coordinate
+- [04:55.670] this remarkable interagency effort
+- [04:57.510] from the Trump administration
+- [04:59.030] but also to make sure that we prosecute the bad guys
+- [05:02.660] and do it as swiftly and efficiently as possible,
+- [05:05.870] is we are creating a new assistant attorney
+- [05:09.000] general position who will have nationwide jurisdiction
+- [05:12.510] over the issue of fraud.
+- [05:14.150] Now, of course, that person's efforts will start
+- [05:16.670] and focus primarily in Minnesota,
+- [05:18.790] but it is going to be a nationwide effort,
+- [05:20.730] because unfortunately the American people
+- [05:23.060] have been defrauded in a very nationwide way.
+- [05:26.160] I want to thank a couple of people for their cooperation,
+- [05:28.200] in particular Pam Bondi, our attorney general,
+- [05:30.430] first of all for getting a lot of resources to Minneapolis
+- [05:33.470] to start to investigate and prosecute this fraud
+- [05:36.520] really at an industrial scale.
+- [05:38.070] We've never seen fraud like this in the history of our country.
+- [05:40.960] Pam has been doing a great job
+- [05:42.320] to get the resources there to uncover it.
+- [05:44.600] But importantly, creating a job like this often takes months,
+- [05:48.510] sometimes even longer. When we realized that we needed
+- [05:51.940] this associate attorney general position,
+- [05:53.950] Pam got this person up and running in about a week.
+- [05:56.420] We're going to make the nomination
+- [05:57.880] hopefully in the next few days.
+- [05:59.120] We'll obviously let you guys know who that is when we do it.
+- [06:01.650] I've talked to Senate Majority Leader John Thune,
+- [06:03.710] who has promised me swift confirmation for this official.
+- [06:06.490] But this is the person who is going to make sure
+- [06:09.020] that we stop defrauding the American people.
+- [06:12.550] Here's one final thing I'll say about this.
+- [06:14.550] I've heard a lot of people say that we need a special council
+- [06:16.890] to investigate fraud in the United States of America.
+- [06:19.810] I actually agree and that's what this position does.
+- [06:23.000] It has all the benefits, all the resources,
+- [06:25.480] all the authority of a special counsel,
+- [06:27.910] but with two crucial differences.
+- [06:29.480] Number one, it will be run out of the White House
+- [06:32.340] under the supervision of me
+- [06:33.660] and the President of the United States.
+- [06:35.120] And number two, it's actually constitutionally legitimate.
+- [06:38.140] As you guys may know, the special counsel statute
+- [06:40.500] has some major constitutional questions.
+- [06:42.530] When we get the bad guys,
+- [06:43.910] we want to make sure we get them permanently
+- [06:46.330] and they don't have some legal technicality
+- [06:47.980] they can get out of which is why we set it up
+- [06:50.130] as an associate attorney general.
+- [06:51.870] I'll take some questions,
+- [06:53.160] but I want to make just one final observation here.
+- [06:55.490] When I was actually walking out here, um,
+- [06:58.670] somebody sent me a photo of a CNN headline
+- [07:01.960] about what happened in Minneapolis
+- [07:04.150] and this is the headline. I'm just going to read it,
+- [07:06.520] "Outrage after ICE officer kills US citizen in Minneapolis."
+- [07:11.140] Well, that's one way to put it
+- [07:13.470] and that is the way that many people in the corporate media
+- [07:16.300] have put this attack over the last 24 hours
+- [07:18.880] and I say attack very, very intentionally
+- [07:22.050] because this was an attack on federal law enforcement.
+- [07:24.570] This was an attack on law and order.
+- [07:26.230] This was an attack on the American people.
+- [07:28.610] The way that the media, by and large has reported
+- [07:31.550] this story has been an absolute disgrace
+- [07:34.990] and it puts our law enforcement officers
+- [07:37.090] at risk every single day.
+- [07:39.070] What that headline leaves out is the fact
+- [07:41.080] that that very off ICE officer nearly had his life ended,
+- [07:45.050] dragged by a car six months ago 33 stitches in his leg.
+- [07:49.610] So you think maybe he's a little bit sensitive
+- [07:51.830] about somebody ramming him with an automobile?
+- [07:54.130] What that headline leaves out is that that woman was there
+- [07:57.100] to interfere with a legitimate law enforcement operation
+- [08:00.470] in the United States of America.
+- [08:01.800] What that headline leaves out is that that woman has --
+- [08:04.980] is part of a broader left-wing network to attack,
+- [08:08.450] to dox, to assault and to make it impossible
+- [08:11.170] for our ICE officers to do their job.
+- [08:13.200] If the media wants to tell the truth,
+- [08:15.370] they ought to tell the truth that
+- [08:16.720] a group of left-wing radicals have been working tirelessly,
+- [08:20.380] sometimes using domestic terror techniques
+- [08:23.050] to try to make it impossible
+- [08:24.630] for the President of the United States
+- [08:26.170] to do what the American people elected him to do
+- [08:29.260] which is enforce our immigration laws.
+- [08:31.430] The President stands with ICE, I stand with ICE.
+- [08:34.390] We stand with all of our law enforcement officers
+- [08:37.090] and part of that is recognizing that you people in the media,
+- [08:40.350] not everybody in this room but many people in this room
+- [08:43.380] have been lying about this attack.
+- [08:45.520] She was trying to ram this guy with his -- with her car.
+- [08:50.350] He shot back, he defended himself.
+- [08:52.910] He's already been seriously wounded
+- [08:54.770] in law enforcement operations
+- [08:56.030] before and everybody who has been repeating the lie
+- [08:59.200] that this is some innocent woman
+- [09:00.500] who was out for a drive in Minneapolis
+- [09:02.620] when a law enforcement officer shot at her,
+- [09:04.570] you should be ashamed of yourselves.
+- [09:06.350] Every single one of you. Questions.
+- [09:08.330] The Press: Thank you, Mr. Vice President.
+- [09:09.610] I wanted to read a quote from Tim Walz earlier today.
+- [09:11.910] He said when things look bleak, it was Minnesota's first
+- [09:14.600] that held the line for the nation on July 3rd, 1863
+- [09:18.370] and I think we may be in that moment now.
+- [09:20.600] Can you comment on his rhetoric and Mayor Jacob Frey
+- [09:23.190] and whether they want to see unrest in Minneapolis?
+- [09:25.780] The Vice President: Well, it's very tough rhetoric from a guy
+- [09:27.520] who just quit because his fraudulent activities
+- [09:29.940] have been uncovered. Look, Tim Walz is a joke.
+- [09:32.370] His entire administration has been a joke.
+- [09:34.160] The idea that he's some sort of freedom fighter,
+- [09:36.720] he's not -- he's a guy who has enabled fraud
+- [09:38.750] and maybe in fact, has participated in fraud.
+- [09:40.900] That's what this new assistant attorney general position
+- [09:42.830] is going to find out. I don't care what Tim Walz says.
+- [09:45.460] I care about getting to the bottom of this fraud
+- [09:47.150] for the American people
+- [09:48.390] and I care about enforcing the nation's immigration laws.
+- [09:50.640] That's what we're going to stay focused on.
+- [09:53.350] The Press: Unrelated question here,
+- [09:54.670] I mean Democrats have accused ICE of murder,
+- [09:57.100] they've said they're targeting Americans,
+- [09:59.210] they've told ICE to get the eff out of Minnesota.
+- [10:02.520] This is going to stoke the fire against ICE agents
+- [10:05.290] and you're talking about ICE agents
+- [10:06.540] right now being concerned about them.
+- [10:07.920] What, if anything, is the administration going to do
+- [10:09.940] to make sure these folks are protected during these protests?
+- [10:12.670] But also should DHS sort of revisit their procedures here?
+- [10:17.470] I mean, nobody wants to see an American killed.
+- [10:19.980] Uh, are there changes that need to be made
+- [10:22.370] to make sure something like this doesn't happen again?
+- [10:24.310] The Vice President: Look, first of all,
+- [10:25.520] of course nobody wants an American citizen to be killed.
+- [10:27.970] This is absolutely a tragedy,
+- [10:29.960] but it's a tragedy of the making of the far left.
+- [10:33.560] They have radicalized a very small segment of the population,
+- [10:36.830] taught them that ICE agents are engaging in --
+- [10:39.920] in wide scale violation of people's rights.
+- [10:42.680] What are ICE officers are doing
+- [10:44.470] is deporting the millions of criminal aliens
+- [10:47.290] that were let in during the Biden administration.
+- [10:48.900] So number one, we have to say, as a matter of leadership,
+- [10:52.190] and I would appreciate if the Democrats would join me on this,
+- [10:54.760] let's be honest about the fact
+- [10:56.370] that we have way too many illegal aliens in this country.
+- [10:58.560] Our ICE officers should be supported in doing their job.
+- [11:01.580] You're trying to actually marshal
+- [11:04.230] the far-left lunatic fringe
+- [11:06.540] to engage in doxing to try to make it impossible for them
+- [11:10.530] to enforce the law and in some cases
+- [11:12.060] actually to engage in acts of domestic terrorism
+- [11:14.670] against our law enforcement officers.
+- [11:16.750] When you talk about different plans,
+- [11:18.230] different protocols, different policies,
+- [11:20.110] I forget exactly how you asked the question.
+- [11:22.130] Here's the simple fact.
+- [11:23.370] What we're going to do is make it easier
+- [11:25.680] for the American people's administration
+- [11:27.480] to enforce the American people's law.
+- [11:29.640] And that means that Democrats have to stop rallying the mob
+- [11:34.390] against legitimate law enforcement operations.
+- [11:36.950] And that means that we are going to get tougher
+- [11:39.310] and that's what this AAG position is about.
+- [11:41.600] We're going to get tougher at the people
+- [11:43.550] who are defrauding the United States
+- [11:46.070] by inciting violence against our law enforcement officers.
+- [11:49.670] That's one of the things that we're going to do.
+- [11:51.390] We've already started that work at the Department of Justice.
+- [11:54.160] We're going to keep on doing it. And this new AAG position
+- [11:57.040] is going to kick that into high gear.
+- [11:59.030] The Press: Vice President Vance,
+- [12:00.450] you just suggested that this woman who was killed,
+- [12:02.870] Renee Good, is part of a broader left-wing network.
+- [12:07.540] Who do you think is behind this broader left-wing network?
+- [12:10.040] The Vice President: Well, it's one of the things
+- [12:11.350] we're going to have to figure out.
+- [12:12.600] But here's the way that I put it.
+- [12:13.860] When somebody throws a brick at an ICE agent
+- [12:16.410] or somebody tries to run over an ICE agent who paid for the brick
+- [12:20.320] and who told protesters to show up and engage
+- [12:22.810] in violent activity against our law enforcement officers?
+- [12:25.830] You see just with this most recent terrible incident
+- [12:29.560] in Minneapolis, you see friends of this woman's
+- [12:31.980] or other people who are eyewitnesses
+- [12:33.530] saying basically that she was there to engage in obstruction
+- [12:37.950] of a legitimate law enforcement operation.
+- [12:40.120] How did she get there? How did she learn about this?
+- [12:42.470] There's an entire network,
+- [12:43.860] and frankly some of the media are participating in it,
+- [12:46.330] that is trying to incite violence
+- [12:48.490] against our law enforcement officers.
+- [12:50.190] It's ridiculous.
+- [12:51.460] It's preposterous and part of our investigatory work
+- [12:54.220] is getting to the bottom of it.
+- [12:55.500] Who's funding it? Who's supporting it?
+- [12:57.560] Who's cheerleading it? And of course,
+- [12:59.090] if there's illegal activity related to that,
+- [13:01.410] we're going to get to the bottom of that
+- [13:02.840] and prosecute it where we can.
+- [13:05.250] The Press: Vice President, thank you for taking questions today.
+- [13:07.890] Is there a risk with you describing her
+- [13:10.550] as a deranged leftist
+- [13:11.890] talking about very specific facts of these events
+- [13:15.100] when an investigation is just beginning?
+- [13:17.430] Are you preempting a thorough investigation
+- [13:20.810] by drawing such conclusions?
+- [13:22.330] And have you received any information beyond the videos
+- [13:25.530] we've seen publicly about this individual,
+- [13:28.330] her specific acts that has informed your point of view?
+- [13:31.190] The Vice President: Well, first of all,
+- [13:32.510] the Department of Justice is going to investigate this.
+- [13:35.500] The Department of Homeland Security
+- [13:36.980] is already investigating this, but the simple fact
+- [13:39.240] is what you see is what you get in this case.
+- [13:41.900] You have a woman who is trying to obstruct
+- [13:44.820] a legitimate law enforcement operation, nobody debates that.
+- [13:47.720] You have a woman who aimed her car
+- [13:49.620] at a law enforcement officer and pressed on the accelerator.
+- [13:52.500] Nobody debates that I can believe
+- [13:54.260] that her death is a tragedy
+- [13:55.790] while also recognizing that it's a tragedy of her own making
+- [13:58.920] and a tragedy of the far left
+- [14:01.020] who has marshaled an entire movement,
+- [14:03.470] a lunatic fringe against our law enforcement officers.
+- [14:07.290] I think what is clearly happening here
+- [14:09.380] and it's going to keep on happening
+- [14:10.690] unless the Democrats wake up and say, you know what,
+- [14:13.250] You don't have to agree with our immigration policies.
+- [14:15.430] You don't have to agree with what the President or the vice
+- [14:17.380] President believe about immigration enforcement,
+- [14:19.560] but why don't you take this to the ballot box?
+- [14:21.410] Why don't you vote?
+- [14:22.670] Why don't you organize instead what some of them are doing?
+- [14:26.110] What some of them are doing is encouraging people
+- [14:28.830] to get violent with our law enforcement officials.
+- [14:31.670] It's disgraceful and it's got to stop.
+- [14:34.790] The Press: Just to follow up on that question and again
+- [14:36.250] thank you for taking questions, Mr. Vice President.
+- [14:38.210] There's clearly a lot of emotion in Minnesota,
+- [14:40.770] across the country over this incident.
+- [14:43.250] You're calling Renee Good, a deranged leftist.
+- [14:45.420] There's been heated rhetoric
+- [14:46.750] that we've also heard from officials.
+- [14:48.740] What responsibility do you and the President
+- [14:50.960] have to defuse some of the tension
+- [14:52.630] that we are seeing play out in Minnesota,
+- [14:54.540] bring down the temperature
+- [14:55.780] as this investigation is unfolding?
+- [14:57.860] The Vice President: What we have a responsibility to do
+- [14:59.960] is to protect the people who are enforcing the law
+- [15:02.150] and protect the country, writ large.
+- [15:03.670] Whether you're Democrat or Republican,
+- [15:05.560] you deserve to have the people's laws
+- [15:07.250] enforced in the United States of America.
+- [15:09.340] Now again, I don't --
+- [15:10.810] I'm not happy that this woman lost her life.
+- [15:13.450] I'm not happy that this woman was there
+- [15:15.660] at a protest violating the law
+- [15:18.140] by interfering with a law enforcement action.
+- [15:20.330] I think that we can all recognize
+- [15:21.790] that the best way to turn down the temperature
+- [15:23.920] is to tell people to take their concerns
+- [15:25.910] about immigration policy to the ballot box,
+- [15:28.450] stop assaulting and stop inciting violence
+- [15:31.410] against our law enforcement officers.
+- [15:33.080] That's the best way to take down the temperature.
+- [15:35.090] And we're not --
+- [15:36.310] look, we're not going to give in to terrorism on this
+- [15:39.270] and that's exactly what's happening.
+- [15:40.830] People trying to antagonize to commit acts of violence,
+- [15:44.290] they throw bricks at them, sometimes they shoot at them.
+- [15:46.810] Sometimes they dox them,
+- [15:48.010] sometimes they go to their place of residence
+- [15:50.120] and harass their families.
+- [15:51.620] This is classic terrorism and we cannot say
+- [15:55.390] that when a far-left fringe is inciting violence
+- [15:59.350] against our brave law enforcement officials
+- [16:01.650] that we're no longer going to enforce the law.
+- [16:03.710] That's rewarding the very people who are engaged in this garbage.
+- [16:06.860] The actual reward that they just got
+- [16:08.630] is a new assistant attorney general
+- [16:10.730] who is going to prosecute
+- [16:11.950] and investigate this stuff even more --
+- [16:14.130] even more aggressively than before.
+- [16:15.740] Yeah. The Press: Mr. Vice President --
+- [16:16.960] Thank you, sir -- Thanks for taking -- okay.
+- [16:18.190] The Vice President: Go ahead.
+- [16:19.450] The Press: Thanks for taking my question.
+- [16:20.790] So, the head of Minnesota's investigations agency
+- [16:23.340] says that the US Attorney's office
+- [16:24.910] has essentially cut off the state
+- [16:26.880] investigations agencies' access to the investigation.
+- [16:30.520] What is the precedent for that?
+- [16:31.730] And why shouldn't the Minnesota officials on the ground
+- [16:34.240] have access and evidence to work on this investigation?
+- [16:37.110] First of all, I wish the state officials in Minnesota
+- [16:39.950] would investigate why you have so many people
+- [16:42.700] who are using their vehicles
+- [16:43.950] and other means to actually interfere
+- [16:45.830] with a legitimate law enforcement operation.
+- [16:47.950] The precedent here is very simple.
+- [16:49.450] You have a federal law enforcement official
+- [16:51.170] engaging in federal law enforcement action.
+- [16:53.240] That's a federal issue.
+- [16:54.510] That guy is protected by absolute immunity.
+- [16:56.620] He was doing his job. The idea that Tim Walz
+- [16:59.580] and a bunch of radicals in Minneapolis
+- [17:01.510] are going to go after and make this guy's life miserable
+- [17:04.280] because he was doing the job
+- [17:06.100] that he was asked to do is preposterous.
+- [17:08.540] The unprecedented thing is the idea that a local official
+- [17:12.660] can actually prosecute a federal official with absolute immunity.
+- [17:16.010] I've never seen anything like that.
+- [17:17.700] It would get tossed out by a judge.
+- [17:19.430] So, what I'd like Minnesota to focus on is the real issue,
+- [17:22.170] that they're encouraging people --
+- [17:23.980] Minneapolis officials are encouraging people
+- [17:26.480] to commit violence against ICE officials.
+- [17:28.370] It's ridiculous. It's got to stop. Go ahead.
+- [17:30.680] The Press: Mr. Vice President, thank you.
+- [17:32.350] You said earlier that there's a left-wing network to attack,
+- [17:36.980] to dox, to assault and make it impossible
+- [17:39.200] for ICE officers to do their job.
+- [17:41.810] You told my colleague just now
+- [17:43.840] that there's an investigation going on into that network.
+- [17:47.530] Yeah.
+- [17:48.780] The Press: So, if everything that you say is true,
+- [17:53.290] how does being part of that network justify being shot?
+- [17:58.110] The Vice President: Well, being part of the network
+- [17:59.410] doesn't justify being shot.
+- [18:01.120] But ramming an ICE officer with your car,
+- [18:03.440] that's what justifies being shot.
+- [18:05.040] It's not a good thing, by the way,
+- [18:06.460] but when you force somebody to engage in self-defense,
+- [18:09.520] it's almost a preposterous question.
+- [18:11.650] I'm not saying that funding some of this stuff
+- [18:14.650] justifies capital punishment.
+- [18:16.670] Nobody would suggest that. The reason this woman is dead
+- [18:20.120] is because she tried to ram somebody with her car
+- [18:22.910] and that guy acted in self-defense.
+- [18:24.920] That is why she lost her life, and that is the tragedy.
+- [18:27.880] Now, there may be other violations of the law
+- [18:31.590] and other penalties that -- that --
+- [18:34.000] that are associated with those violations of the law.
+- [18:35.830] For example, if you are funding violence
+- [18:38.900] against our law enforcement officers -- I --
+- [18:40.760] I'm not a prosecutor.
+- [18:42.030] My guess is that's not the sort of thing
+- [18:43.660] that earns capital punishment,
+- [18:45.140] but it should sure as hell earn you a few years in prison
+- [18:47.770] if you're funding the effort
+- [18:49.030] to try to insult our law enforcement officers.
+- [18:51.780] What is -- I'm sorry, guys. What's going on here?
+- [18:55.240] You guys are meant to report the truth.
+- [18:58.480] How have you let yourself become agents of propaganda,
+- [19:02.170] of a radical fringe that's making it harder
+- [19:04.290] for us to enforce our laws?
+- [19:05.860] You just asked me a question that presumed
+- [19:08.650] that the reason why this woman died
+- [19:10.790] is because she was engaged in legitimate protest.
+- [19:13.160] She tried to run somebody over with her car
+- [19:15.130] and the guy defended himself when that happened.
+- [19:16.920] Next question.
+- [19:18.130] The Press: But the investigation is still ongoing.
+- [19:19.860] The Vice President: I said next question.
+- [19:21.280] The Press: Mr. Vice President, I mean,
+- [19:22.560] you presumably watched the video yourself.
+- [19:24.840] There's not the slightest doubt in your mind,
+- [19:26.900] having viewed it that this -- the victim, you still believe
+- [19:32.570] that she deliberately tried to ram him
+- [19:34.250] despite seeing this video?
+- [19:36.320] The Vice President: Look, I don't know what it's --
+- [19:37.570] in a person's heart or in a person's head.
+- [19:39.760] And obviously, we're not going to get the chance
+- [19:41.300] to ask this woman what was going on.
+- [19:43.080] What I am certain of is that she violated the law.
+- [19:45.540] What I am certain of is that that officer had every reason
+- [19:47.760] to think that he was under very serious threat for injury
+- [19:51.550] or, in fact, his life.
+- [19:53.790] What I am certain of is that she accelerated
+- [19:56.100] in a way where she ran into the guy.
+- [19:59.260] I don't know what was in her heart and what was in her head,
+- [20:02.690] but I know that she violated the law
+- [20:04.210] and I know that officer was acting in self-defense.
+- [20:06.000] That -- that's -- it raised an interesting point, though.
+- [20:07.690] Look, if people want to say
+- [20:09.720] that we should have a legitimate debate about,
+- [20:11.950] you know, what was she really doing, right,
+- [20:13.740] was she panicking when she drove into this officer
+- [20:16.700] or was she actually trying to ram him, that's a --
+- [20:19.100] that's a reasonable conversation.
+- [20:20.880] What's not reasonable is for so many of you
+- [20:23.330] to plaster all over the media that this was an innocent woman
+- [20:26.620] and that the ICE agent committed murder,
+- [20:28.640] which is what many of you have said explicitly
+- [20:30.700] and some of you have said implicitly.
+- [20:33.280] That's what I have an objection to.
+- [20:34.880] The idea that this was not justified is absurd.
+- [20:38.370] I think everybody knows it in their heart.
+- [20:40.470] Yeah.
+- [20:42.160] In the -- in the green jacket.
+- [20:43.470] The Press: On taking down the temperature,
+- [20:44.960] it seems like political violence
+- [20:46.320] is ratcheting up and riots could be around the corner.
+- [20:48.880] What steps does the administration
+- [20:50.370] have planned to try to unite America?
+- [20:52.410] Average people on both political sides
+- [20:53.960] are so tired of fighting with each other.
+- [20:55.890] And I think all the journalists in this room could agree with me
+- [20:58.260] that we don't want to be part of the problem.
+- [20:59.750] Do you have any --
+- [21:01.020] The Vice President: I appreciate that.
+- [21:02.260] The Press: Do you have any words to unite America?
+- [21:03.530] The Vice President: You know, I know you don't want
+- [21:04.800] to be a part of the problem,
+- [21:06.030] and I think that's true of a lot of you.
+- [21:07.310] I'm not sure it's true for everybody,
+- [21:08.990] because the reporting over this has been
+- [21:10.480] one of the biggest scandals I've ever seen in media.
+- [21:12.860] I've never seen a case so misrepresented and misreported
+- [21:17.070] when you have a guy who was defending himself
+- [21:19.100] and is now being treated by -- as some sort of federal assassin
+- [21:22.670] by so many of the people in this room.
+- [21:24.690] What I -- first of all, let me say about crime.
+- [21:26.710] You mentioned violence.
+- [21:28.410] One of the things we're proudest about
+- [21:29.900] is that you saw violent crime over the last year
+- [21:31.960] drop by 20 percent.
+- [21:33.610] Why has that dropped by 20 percent?
+- [21:35.560] Is it because we're attacking our law enforcement officers,
+- [21:38.470] or is it because we in the administration
+- [21:40.120] are empowering our law enforcement officers
+- [21:41.910] to enforce the law?
+- [21:43.260] I think that's one of the ways you take down the temperature,
+- [21:45.290] is you make people feel more secure and safe
+- [21:47.720] in their person and property.
+- [21:49.070] That's why we care so much about protecting our law enforcement,
+- [21:52.330] because it accrues to the benefit
+- [21:54.300] of the entire national community.
+- [21:56.220] I think that we can absolutely talk about the ways in which,
+- [21:59.260] you know, we can -- we can try to --
+- [22:01.710] we can lower the temperature by discussing differences
+- [22:05.240] in a reasonable and rational way.
+- [22:07.420] Again, I'm happy to talk with any Congressional Democrat
+- [22:10.270] or any of you about our immigration policy,
+- [22:12.660] about why I think it's necessary,
+- [22:14.070] about why I think it's in the best interest of the country,
+- [22:16.130] about why the President of the United States
+- [22:17.780] was elected to actually enforce the border
+- [22:20.130] for the first time in at least four years.
+- [22:22.690] So, here's the problem.
+- [22:24.360] That's not the debate so many people are having.
+- [22:26.650] They are actively covering for people
+- [22:29.940] who are committing acts of violence
+- [22:31.480] against federal law enforcement. It is preposterous.
+- [22:34.330] The way to take down the temperature is to stop it.
+- [22:36.620] Have your debates about policy. Attack me.
+- [22:38.850] Attack the President of the United States.
+- [22:40.490] Don't attack our law enforcement officers.
+- [22:42.560] They are trying to do the job
+- [22:44.470] the American people demanded that they do.
+- [22:47.030] That -- that -- they are not policy actors.
+- [22:49.570] They are enforcing the law.
+- [22:51.770] They should be treated with a modicum of dignity and respect.
+- [22:55.190] And the fact that they're not
+- [22:56.390] is why incidents like yesterday happen.
+- [22:58.550] The one final point I'll make about this is, look, there --
+- [23:01.370] there's a part of me that feels very, very sad for this woman,
+- [23:05.260] not just because she lost her life
+- [23:06.670] but because I think she is a victim of left wing ideology.
+- [23:10.380] What young mother shows up
+- [23:12.550] and decides they're going to throw their car
+- [23:14.800] in front of ICE officers who are enforcing legitimate law?
+- [23:18.290] You've got to be a little brainwashed
+- [23:20.220] to get to that point, to where you're willing not
+- [23:22.400] just to protest, that's fine, not peacefully protest,
+- [23:25.880] but throw your vehicle
+- [23:27.700] in front of legitimate law enforcement officers
+- [23:30.140] and drive your car into them.
+- [23:31.800] To get to that point, you have to be,
+- [23:34.520] I think, radicalized in a very, very sad way.
+- [23:38.030] I certainly wish that she hadn't got there.
+- [23:39.580] I know there's an ICE officer right now
+- [23:41.310] who very much wishes he was not put in the position
+- [23:43.750] where he had to fire a gun to defend his own life. Yeah.
+- [23:47.160] The Press: Thank you, Mr. Vice President.
+- [23:48.850] What's your message -- following up on that,
+- [23:50.840] what's your message to the leaders in Minnesota,
+- [23:54.080] the governor of Minnesota, the mayor of Minneapolis,
+- [23:57.440] to calm down the situation on the ground, on the streets?
+- [24:01.170] What's your message also to those protesters
+- [24:04.290] who saw that video in a completely different way
+- [24:07.300] than you saw that video?
+- [24:08.570] The Vice President: Well, first of all,
+- [24:09.800] I think if you watch every angle of that video,
+- [24:12.710] there is one angle where, if you squint,
+- [24:15.770] you can maybe tell yourself that it's not clear what happened.
+- [24:19.010] But when you look at all angles of that video,
+- [24:20.850] it is very clear that her vehicle went right for the guy.
+- [24:24.140] She actually collided with him.
+- [24:26.000] And then that's, of course, when he fired his shots.
+- [24:28.780] That's obvious, ok?
+- [24:30.540] So, what I'd say to the protesters is,
+- [24:32.010] by all means, protest peacefully,
+- [24:34.270] but make this about ideas.
+- [24:35.660] Make this about disagreement with our policy.
+- [24:38.010] Don't use your protest as a justification
+- [24:41.590] or an encouragement for people to go and incite violence
+- [24:45.400] and participate in violence
+- [24:46.740] against our law enforcement officials.
+- [24:48.480] To the people on the ground in Minneapolis,
+- [24:50.110] meaning the local officials in Minneapolis
+- [24:52.410] from Tim Walz on down,
+- [24:53.820] I'd say, look, why can't you just disagree
+- [24:58.020] with a given piece of immigration policy
+- [25:00.370] without turning law enforcement into the enemy?
+- [25:03.280] And what's -- I mean, think about, for example,
+- [25:06.220] a criminal law where a police officer goes
+- [25:09.310] and arrests somebody because they violated a criminal law.
+- [25:12.150] If you're mad about that, go and protest
+- [25:14.210] the politician who passed that law.
+- [25:16.360] Don't attack the police officer who's just doing their job.
+- [25:19.520] We had a wide-open border under Joe Biden.
+- [25:21.690] I happen to think it's a good thing
+- [25:22.990] the President United States has closed it down.
+- [25:24.970] If you think that's a bad idea,
+- [25:26.480] criticize this administration for a policy decision.
+- [25:29.330] Don't attack our people for enforcing the law.
+- [25:32.340] Because I guarantee, you go to ICE,
+- [25:34.570] there are black people and white people.
+- [25:36.290] There are Democrats and Republicans.
+- [25:38.110] They are patriotic Americans who are trying to enforce the law.
+- [25:41.870] Attack me. Lay off of our ICE agents.
+- [25:45.560] Yeah, in the blue all the way. Yeah.
+- [25:47.280] The Press: Thank you. Mr. Vice President,
+- [25:48.500] you've called on Tim Walz to resign.
+- [25:50.340] Can you lay out the case as to why he should step down?
+- [25:53.530] The Vice President: Well, look, I think Tim Walz should resign
+- [25:55.490] because it's very clear either that he knew
+- [25:57.860] about the fraud in Minneapolis, he knew about the welfare fraud,
+- [26:00.680] or at the very least he looked the other way.
+- [26:02.720] I mean, this is not --
+- [26:05.530] this is not like Lex Luther, right?
+- [26:07.530] This is not movie villain fraud.
+- [26:10.420] This is the lowest IQ possible fraud.
+- [26:13.290] This is we're going to take kids --
+- [26:15.940] or sorry, we're going to take the absence of kids
+- [26:18.390] and set up a daycare center where there are no children.
+- [26:21.010] And we're going to call our early childhood education center
+- [26:24.570] the Quality Learning Center.
+- [26:26.930] By the way, if you can't spell learning,
+- [26:29.920] maybe you shouldn't be in early childhood education.
+- [26:33.020] But people got rich off of this.
+- [26:35.280] We know that there were schools who either had no enrollment,
+- [26:38.230] or at least they overstated their enrollment.
+- [26:40.470] Tim Walz, either it was unbelievable incompetence
+- [26:44.180] or he was in on the fraud.
+- [26:45.400] That's one of the things we're going to get to the bottom of.
+- [26:47.200] Sir?
+- [26:48.480] The Press: Thank you, Mr. Vice President.
+- [26:50.060] Can you explain the difference
+- [26:51.930] between this associate attorney general and a special counsel?
+- [26:55.620] And do you envision this being a permanent position
+- [26:57.910] or having more of a limited scope?
+- [26:59.890] The Vice President: Well, it's going to be permanent
+- [27:01.290] until we get to the bottom of what's going on,
+- [27:02.850] so I think it's going to last for
+- [27:04.130] at least the remainder of the administration.
+- [27:06.090] What's different about it from a special counsel is,
+- [27:07.940] if you remember the Jack Smith case
+- [27:10.610] where the special counsel was found unconstitutional,
+- [27:13.160] one of the big issues there is
+- [27:14.650] that that person was not an appointed person.
+- [27:18.300] Completely aside from all the other issues
+- [27:20.060] that the person was a lunatic and that the case had no merit,
+- [27:22.980] there was a fundamental constitutional issue,
+- [27:25.050] which is that he had not been appointed by the President
+- [27:28.320] and he had not been confirmed by the United States Senate.
+- [27:31.110] An assistant -- or excuse me, an assistant attorney general,
+- [27:34.450] what that's going to allow us to do is appoint this person,
+- [27:37.180] have them confirmed by the Senate.
+- [27:38.520] That's one difference. The more substantive difference
+- [27:41.350] is that this person is going to be
+- [27:42.600] part of a very broad interagency White House that's being led
+- [27:46.010] from the President of the United States on down.
+- [27:48.510] And that's going to give them the resources,
+- [27:50.090] the access to material and information
+- [27:52.640] to make this person more effective.
+- [27:54.380] I think a lot of people have asked how are you
+- [27:56.290] really going to get to the heart of the fraud.
+- [27:58.360] We've been asking ourselves that question
+- [27:59.880] for the past couple of months,
+- [28:01.310] and we think this is the critical piece
+- [28:03.730] at the Department of Justice
+- [28:05.220] to really ramp this fraud investigation into high gear.
+- [28:09.970] In the red tie. Yeah.
+- [28:11.180] The Press: Vice President Vance,
+- [28:12.420] I wanted to ask what's your message to far leftist agitators
+- [28:15.510] who feel emboldened to obstruct ICE activity in Minnesota
+- [28:17.730] and around the country?
+- [28:18.990] The Vice President: Well, I think
+- [28:20.200] they shouldn't feel emboldened,
+- [28:21.400] because now they have an assistant attorney general
+- [28:23.300] who is going to prosecute and investigate their fraud
+- [28:26.010] and their violence more aggressively than it
+- [28:28.030] has ever been investigated in the United States of America.
+- [28:30.580] We are doing so much to try to find the financing networks
+- [28:35.220] and the domestic terrorism networks
+- [28:37.110] that legitimate this violence, that funded this violence
+- [28:39.440] and that, of course, engage in the violence.
+- [28:41.390] These people should not feel emboldened
+- [28:42.930] because they have, for the first time maybe in American history,
+- [28:46.350] an administration that is not going to tolerate
+- [28:48.400] political violence of any kind from anywhere.
+- [28:51.280] Yeah.
+- [28:52.550] The Press: It's loud and clear today
+- [28:54.050] that the entire weight of the federal government
+- [28:55.670] is behind these ICE agents
+- [28:57.280] and this ICE agent in particular.
+- [28:59.330] There is still a federal investigation
+- [29:01.330] happening on the ground. Does that mean that they are not
+- [29:03.560] looking into this ICE agent at all?
+- [29:05.560] They are just focused on the woman who was in the car?
+- [29:08.950] The Press: What is the investigation
+- [29:10.160] if the federal government has already determined
+- [29:11.830] that its weight is behind this ICE investigation?
+- [29:13.640] The Vice President: So what do you mean?
+- [29:14.840] When you say investigation,
+- [29:16.050] do you mean investigation of the shooting yesterday
+- [29:17.920] or of the fraud that's happening in Minneapolis?
+- [29:19.560] The Press: The shooting yesterday.
+- [29:20.790] The Vice President: Okay. Look, DHS, as I understand it,
+- [29:22.220] has an investigation already ongoing.
+- [29:24.610] I know that other organs of our government are looking at this.
+- [29:27.040] So, yes, there is certainly an investigation
+- [29:28.990] that's happening right now.
+- [29:30.810] But as part of the broader fraud investigation,
+- [29:33.290] a lot of what we're doing with the Department of Justice
+- [29:35.480] has already started.
+- [29:36.710] We've got over 1,500 subpoenas. We've got --
+- [29:39.030] people this morning, actually, were going door to door
+- [29:41.720] to actually knock on some of these fraudulent care centers,
+- [29:44.420] these fraudulent social services organizations
+- [29:46.400] to get to the bottom of what's going on there.
+- [29:48.920] So, the investigation in some ways
+- [29:50.140] has already been ramping up into the anti-fraud element
+- [29:53.450] for at least a few weeks.
+- [29:55.060] What we're trying to do is supercharge it
+- [29:56.770] and make sure there's a designated person
+- [29:58.410] within the Department of Justice
+- [29:59.910] who completely controls that particular focus.
+- [30:03.240] Yeah.
+- [30:04.450] The Press: Just to follow up on that,
+- [30:05.710] Mr. Vice President, on the agent,
+- [30:07.540] is he still on duty or has he been placed on leave --
+- [30:11.180] on administrative leave?
+- [30:12.430] And what really was the target of the operation on Wednesday,
+- [30:15.260] of the ICE operation on Wednesday?
+- [30:16.640] The Vice President: Well, first of all,
+- [30:17.860] it was a legitimate law enforcement operation.
+- [30:19.550] We were going door to door
+- [30:20.800] to try to find criminal illegal aliens
+- [30:22.330] and deport them from the United States of America.
+- [30:24.280] Because if you come to our country
+- [30:25.840] illegally in violation of our immigration laws,
+- [30:28.580] then we have the mandate,
+- [30:29.880] and in fact we have the legal duty,
+- [30:31.940] to enforce those immigration laws.
+- [30:33.720] Whether he's been placed on administrative leave,
+- [30:35.360] I don't know the answer to that question.
+- [30:36.740] I'd refer it to the Department of Homeland Security
+- [30:38.890] and they can follow up.
+- [30:40.110] I will say, look, I would appreciate everybody
+- [30:42.070] saying a prayer for that -- that agent.
+- [30:43.600] Look, in the past six months,
+- [30:45.160] he has been hit twice by a motor vehicle.
+- [30:47.810] One time, the first time, it led to over 30 stitches
+- [30:50.960] and very serious injuries to his legs.
+- [30:53.070] This is a guy who's actually done a very, very important job
+- [30:56.570] for the United States of America.
+- [30:58.110] He's been assaulted. He's been attacked.
+- [31:00.110] He's been injured because of it. He deserves a debt of gratitude.
+- [31:03.740] And I think the media prejudging and talking about this guy
+- [31:06.340] as if he's a murderer is one of the most disgraceful things
+- [31:08.370] I've ever seen from the American media.
+- [31:09.590] Yeah.
+- [31:10.860] The Press: Mr. Vice President,
+- [31:12.140] what is your specific role in the future of Venezuela?
+- [31:15.700] And I'm wondering, could you confirm reports
+- [31:18.220] that the director of National Intelligence, Tulsi Gabbard,
+- [31:21.460] was kept out of the planning for the operations
+- [31:23.750] because of her past concerns
+- [31:24.960] about military involvement in Venezuela?
+- [31:26.550] The Vice President: So, I've heard a couple of things.
+- [31:28.010] One, that I was kept out of the planning
+- [31:29.890] for the Venezuela operation, that's false,
+- [31:31.880] and another that Tulsi was kept out of the planning
+- [31:34.300] for Venezuela operations. That's completely false.
+- [31:36.230] Look, we're all part of the same team.
+- [31:38.270] And one of the things that is really amazing
+- [31:40.060] about that operation is that we kept it very tight
+- [31:43.300] to the senior cabinet level officials
+- [31:45.260] and related officials in our government,
+- [31:47.250] and we kept this operation secret for a very long time.
+- [31:49.970] I'm very proud of that. I think it suggests --
+- [31:51.780] I think it suggests that the team works very well together.
+- [31:54.690] Looking ahead, what is my role? Look, my role's going to be
+- [31:56.650] whatever the President asks me to do.
+- [31:58.590] The Press: Has he asked you to do something yet?
+- [32:00.070] The Vice President: Well, every single --
+- [32:01.290] or I should say every other day
+- [32:02.840] I'm chairing the meeting that we do on this
+- [32:04.860] among White House principals to talk about next steps
+- [32:07.350] to try to ensure that Venezuela is stable.
+- [32:09.330] And as the President has directed us to do,
+- [32:11.320] to ensure that the new Venezuelan government
+- [32:13.540] actually listens to the United States
+- [32:15.670] and does what the United States needs it to do
+- [32:18.620] under our country's best interest.
+- [32:20.170] So, I'm going to be as involved as the President wants me to be.
+- [32:22.650] So far, that's been very involved.
+- [32:24.330] And I'll keep on doing that so long
+- [32:25.710] as the President asks me to do it.
+- [32:29.320] In the purple.
+- [32:31.250] All righty. We'll go purple and then we'll go pink
+- [32:33.440] or whatever that is in front.
+- [32:34.750] The Press: Royal purple and then beige. All right.
+- [32:36.100] The Vice President: Okay.
+- [32:37.340] The Press: Are there any indications --
+- [32:38.570] you talked about the network.
+- [32:39.820] Are there any indications that the lady who was shot --
+- [32:42.360] I know there are different reports from there.
+- [32:44.330] Her wife said they were new to the area.
+- [32:46.920] Are there any indications she may have been a paid agitator
+- [32:49.800] or maybe that there are others that were brought to the area,
+- [32:52.800] considering everything that's going on in Minneapolis?
+- [32:55.200] The Vice President: I wouldn't say that she was paid.
+- [32:56.410] I don't have the evidence to say that one way or the other.
+- [32:58.300] What I do know is that she was violating the law.
+- [33:00.440] And if you just look at the eyewitness accounts,
+- [33:02.310] they were saying she was there to prevent
+- [33:04.550] the enforcement of the law. She was trying to obstruct
+- [33:06.970] a legitimate law enforcement operation.
+- [33:08.980] That much is obviously clear.
+- [33:11.020] The rest of it, of course, is part of the reason
+- [33:12.560] why we investigate this stuff. Yeah.
+- [33:13.860] The Press: Mr. Vice President,
+- [33:15.150] even beyond the War Powers Resolution today,
+- [33:18.480] Congress has bucked President Trump on issues like tariffs.
+- [33:22.500] Are you concerned that President Trump
+- [33:24.520] is losing his grip on Republicans in the Congress?
+- [33:27.260] And what are you going to do about it?
+- [33:28.720] The Vice President: No, I'm not concerned at all.
+- [33:29.960] First of all, you know, we talked to some of the senators
+- [33:31.970] who are going to vote the wrong way in my view,
+- [33:33.480] on this resolution today.
+- [33:34.990] Much of their argument was based more on a legal technicality
+- [33:38.540] than any disagreement in policy.
+- [33:39.810] If you look at the people who actually voted,
+- [33:41.640] every single one of them
+- [33:42.930] have supported the administration's plan.
+- [33:44.830] Second of all, as the President I believe himself
+- [33:46.740] has already said,
+- [33:47.980] every President, Democrat or Republican,
+- [33:50.410] believes the War Powers Act
+- [33:51.890] is fundamentally a fake and unconstitutional law.
+- [33:54.220] It's not going to change anything about
+- [33:56.120] how we conduct foreign policy over the next couple of weeks,
+- [33:58.580] the next couple of months.
+- [33:59.820] And that -- that'll continue to be how we approach things.
+- [34:01.440] Go ahead.
+- [34:02.670] The Press: Thank you, Mr. Vice President.
+- [34:03.900] So, we are seeing -- regarding Iran,
+- [34:05.560] we are seeing the protests in Iran these days.
+- [34:07.230] The cities are begging for help from the US and Israel,
+- [34:10.630] naming streets in the city after President Trump.
+- [34:13.890] It seems there is an opportunity here that may not come again.
+- [34:16.660] Will the United States stand by the citizens of Iran?
+- [34:19.820] And if Israel decides to strike again the nuclear sites in Iran,
+- [34:23.210] is the US expected to take part?
+- [34:25.530] The Vice President: Well, look, we certainly stand by anybody
+- [34:27.240] who's engaged in peaceful protests,
+- [34:28.920] anybody who's trying to exert their rights
+- [34:30.800] for free association and to have their voices heard.
+- [34:33.420] Obviously, the Iranian regime has a lot of problems.
+- [34:35.400] And as the President of United States has said,
+- [34:37.270] the smartest thing for them to have done,
+- [34:39.180] it was true two months ago, it's true today,
+- [34:41.590] is for them to actually have a real negotiation
+- [34:44.860] with the United States about what we need to see
+- [34:47.230] when it comes to their nuclear program.
+- [34:48.910] I'll let the President speak
+- [34:50.220] to what we're going to do in the future,
+- [34:52.040] but we certainly stand with anybody across the world,
+- [34:53.920] including the Iranian people,
+- [34:55.310] who are advocating for their rights.
+- [34:56.540] I'll take just a couple more questions.
+- [34:58.120] Yeah, go ahead.
+- [34:59.340] The Press: Thank you very much, Mr. Vice President.
+- [35:02.490] Concerning Venezuela, how would you assure the Caribbean region
+- [35:07.190] that they will remain a zone of peace?
+- [35:09.390] Because some member states in the region are concerned.
+- [35:12.320] The Vice President: Well, look,
+- [35:13.610] the President had a very productive phone call
+- [35:15.710] with the President of Colombia yesterday,
+- [35:17.590] and we continue to talk at all levels of government
+- [35:19.600] with a number of our friends in the Caribbean region.
+- [35:21.840] I actually think this is really good for peace in the Caribbean
+- [35:24.670] because, when you take away
+- [35:26.220] a major source of illegal cartel revenue,
+- [35:29.410] which is the cocaine trade, the fentanyl trade,
+- [35:31.530] other sources of illicit revenue,
+- [35:33.360] you actually remove the power of one of the main
+- [35:36.360] destabilizing forces in Latin America and in the Caribbean.
+- [35:39.860] I really do think -- look, we say it all the time.
+- [35:42.250] This is the President of peace.
+- [35:43.740] One of the ways that you establish peace
+- [35:45.620] in your own hemisphere
+- [35:46.930] is to make it clear that the United States
+- [35:48.600] is going to be respected,
+- [35:49.900] that the United States is willing to take power away
+- [35:52.710] from criminal cartel organizations
+- [35:54.690] and give it to legitimate governments.
+- [35:56.480] That's how we see the future of the Western Hemisphere,
+- [35:59.060] and we think it's going to be much more peaceful than it
+- [36:01.280] was certainly under Joe Biden. I'll take one more question.
+- [36:03.220] Go ahead.
+- [36:04.450] The Press: Mr. Vice President, thank you.
+- [36:05.840] On Greenland, do you have a message for European leaders?
+- [36:09.590] Many in Europe reject the idea
+- [36:11.670] that the island could be for sale.
+- [36:14.350] The Vice President: Well, first of all, Secretary Rubio
+- [36:16.570] I believe is meeting with the leaders of Denmark
+- [36:18.980] and Greenland next week, I want to say it is,
+- [36:20.730] but maybe it's the week after that.
+- [36:22.670] We'll continue to deliver some of these messages in private,
+- [36:25.320] some of them in public.
+- [36:26.530] But I guess my advice to European leaders
+- [36:28.170] and anybody else,
+- [36:29.370] would be to take the President of the United States seriously.
+- [36:32.160] What has he said about Greenland?
+- [36:34.320] Set to the side the crazy overreactions
+- [36:37.280] that I've seen from the press
+- [36:38.480] and from certain people in Europe.
+- [36:39.990] What has the President said?
+- [36:41.210] Number one, Greenland is really important,
+- [36:43.540] not just to America's missile defense,
+- [36:45.400] but to the world's missile defense.
+- [36:47.000] Number two, we know that there are hostile adversaries
+- [36:50.030] that have shown a lot of interest
+- [36:51.510] in that particular territory,
+- [36:52.800] that particular slice of the world.
+- [36:54.390] So what we're asking our European friends to do
+- [36:57.240] is to take the security of that landmass more seriously,
+- [37:00.300] because if they're not,
+- [37:01.570] the United States is going to have to do something about it.
+- [37:03.440] What that is, I'll leave that to the President
+- [37:05.710] as we continue to engage in diplomacy
+- [37:07.200] with our European friends
+- [37:08.440] and everybody on this particular topic.
+- [37:10.080] And again, thank you all for listening.
+- [37:11.970] Thanks for taking questions.
+- [37:13.220] And I just ask you, look, this is politics and often,
+- [37:16.770] Republicans and -- you know, get in --
+- [37:19.000] get in arguments with the press about things
+- [37:21.000] and I understand that.
+- [37:22.670] I think it's really irresponsible for you guys
+- [37:25.410] to go out there and imply or tell the American people
+- [37:28.800] that a guy who defended himself from being rammed
+- [37:32.210] by an automobile is guilty of murder.
+- [37:34.820] Be a little bit more careful.
+- [37:36.020] Want to talk about toning down the temperature,
+- [37:37.650] which I know the President wants to do
+- [37:39.300] and I certainly want to do.
+- [37:40.680] One of the ways we tone down the temperature
+- [37:42.300] is to have a media that tells the truth.
+- [37:44.680] I encourage you all to do that. God bless you.
+- [37:48.680] The Press: Happy New Year, Mr. Vice President.
+- [37:50.550] The Vice President: Happy New Year, guys.

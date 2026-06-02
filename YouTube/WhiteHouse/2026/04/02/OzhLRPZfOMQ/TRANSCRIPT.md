@@ -1,0 +1,365 @@
+<!-- source: https://www.youtube.com/watch?v=OzhLRPZfOMQ -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: OzhLRPZfOMQ -->
+<!-- date_published: 2026-04-02T01:57:29+00:00 -->
+<!-- date_accessed: 2026-06-02T02:35:37.018494+00:00 -->
+
+# Transcript: President Trump Delivers an Address to the Nation, Apr. 1, 2026
+
+- [09:22.870] The President: Thank you very much.
+- [09:25.030] My fellow Americans, good evening.
+- [09:27.920] Let me begin by congratulating the team at NASA
+- [09:32.370] and our brave astronauts on the successful launch of Artemis 2,
+- [09:36.960] it was quite something. It will be traveling further
+- [09:40.390] than any manned rocket has ever flown
+- [09:42.690] and will very substantially pass the moon,
+- [09:46.410] go around it and come back home from a distance
+- [09:49.370] that has never been done before.
+- [09:52.290] It's amazing. They are on the way and,
+- [09:56.230] God bless them, these are brave people.
+- [09:59.060] We want to God bless those four unbelievable astronauts.
+- [10:04.380] As we speak this evening, it's been just one month
+- [10:07.160] since the United States military began Operation Epic Fury,
+- [10:13.720] targeting the world's number one state sponsor of terror, Iran.
+- [10:19.170] In these past four weeks, our armed forces have delivered
+- [10:22.360] swift, decisive, overwhelming victories on the battlefield,
+- [10:28.040] victories like few people have ever seen before.
+- [10:31.710] Tonight, Iran's Navy is gone, their Air Force is in ruins.
+- [10:37.510] Their leaders, most of them terrorists,
+- [10:42.030] regime they led are now dead. Their command and control
+- [10:47.480] of the Islamic Revolutionary Guard Corps
+- [10:50.480] is being decimated as we speak.
+- [10:54.070] Their ability to launch missiles and drones
+- [10:56.630] is dramatically curtailed,
+- [10:58.770] and their weapons factories and rocket launchers
+- [11:02.190] are being blown to pieces, very few of them left.
+- [11:06.670] Never in the history of warfare has an enemy suffered such clear
+- [11:10.080] and devastating large-scale losses in a matter of weeks.
+- [11:14.800] Our enemies are losing in America,
+- [11:18.400] as it has been for five years under my presidency,
+- [11:21.530] is winning and now winning bigger than ever before.
+- [11:26.150] Before discussing this current situation,
+- [11:29.050] I also want to thank our troops for the masterful job
+- [11:32.260] they did in taking the country of Venezuela
+- [11:35.020] in a matter of minutes.
+- [11:37.490] That hit was quick, lethal, violent,
+- [11:39.460] and respected by everyone all over the world.
+- [11:42.930] After rebuilding our military during my first term,
+- [11:46.710] we have by far the strongest military anywhere in the world,
+- [11:50.840] and now we're working along with Venezuela
+- [11:53.770] and are, in a true sense, joint venture partners.
+- [11:56.900] We're getting along incredibly well.
+- [11:59.390] In the production and sale of massive amounts of oil and gas,
+- [12:03.530] the second largest reserves on earth
+- [12:06.120] after the United States of America,
+- [12:09.500] we're now totally independent of the Middle East.
+- [12:14.020] And yet we are there to help.
+- [12:16.300] We don't have to be there; we don't need their oil;
+- [12:19.030] we don't need anything they have.
+- [12:20.430] But we're there to help our allies.
+- [12:23.520] Tonight, I want to provide an update
+- [12:25.420] on the tremendous progress our warriors have made in Iran
+- [12:29.340] and discuss why Operation Epic Fury
+- [12:31.930] is necessary for the safety of America
+- [12:34.330] and the security of the free world.
+- [12:37.880] From the very first day
+- [12:39.740] I announced my campaign for president in 2015,
+- [12:44.280] I have vowed that I would never allow Iran
+- [12:47.050] to have a nuclear weapon.
+- [12:49.680] This fanatical regime has been chanting Death to America,
+- [12:54.850] Death to Israel for 47 years.
+- [12:58.330] Their proxies were behind the murder of 241 Americans
+- [13:03.490] in the Marine barracks bombing in Beirut,
+- [13:06.230] the slaughter of hundreds of our service members
+- [13:08.970] with roadside bombs.
+- [13:10.950] They were involved in the attack on the USS Cole,
+- [13:15.340] and they carried out the countless other heinous acts,
+- [13:18.590] including the blood --
+- [13:20.250] just horrible, bloody atrocities of October 7th in Israel.
+- [13:26.820] Something that most people have never seen anything like it.
+- [13:30.790] This murderous regime also recently killed
+- [13:33.450] 45,000 of their own people who were protesting in Iran,
+- [13:38.220] 45,000 dead.
+- [13:40.810] For these terrorists to have nuclear weapons
+- [13:42.880] would be an intolerable threat.
+- [13:46.340] The most violent and thuggish regime on earth
+- [13:48.980] would be free to carry out their campaigns of terror, coercion,
+- [13:53.210] conquest, and mass murder from behind a nuclear shield.
+- [13:57.890] I will never let that happen
+- [14:00.240] and neither should any of our past presidents.
+- [14:04.700] This situation has been going on for 47 years
+- [14:08.490] and should have been handled long before I arrived in office.
+- [14:13.330] I did many things during my two terms in office
+- [14:16.650] to stop the quest for nuclear weapons by Iran first,
+- [14:20.970] and perhaps most importantly,
+- [14:22.570] I killed General Qassem Soleimani in my first term.
+- [14:29.180] He was an evil genius, brilliant person,
+- [14:32.560] a horrible human being, however, the father of the roadside bomb.
+- [14:37.410] And he lived -- just horrible, what he did.
+- [14:41.090] Iran would have been perhaps in a far better, stronger position.
+- [14:45.810] Had he lived we would have had
+- [14:47.790] probably a different conversation tonight.
+- [14:49.850] But you know what?
+- [14:51.130] We'd still be winning and winning big.
+- [14:53.470] And then, very importantly, I terminated
+- [14:55.700] Barack Hussein Obama's Iran nuclear deal, a disaster.
+- [14:59.800] Obama gave them $1.7 billion in cash -- green, green cash,
+- [15:06.280] took it out of banks from Virginia, DC and Maryland,
+- [15:10.450] all the cash they had, flew it by airplanes
+- [15:14.220] in an attempt to buy their respect and loyalty
+- [15:16.820] but it didn't work.
+- [15:18.430] They laughed at our president
+- [15:19.860] and went on with their mission to have a nuclear bomb.
+- [15:23.690] His Iran deal would have led to a colossal arsenal
+- [15:27.160] of massive nuclear weapons for Iran.
+- [15:30.070] They would have had them years ago,
+- [15:32.420] and they would have used them,
+- [15:33.680] would have been a different world.
+- [15:35.950] There would have been no Middle East
+- [15:37.440] and no Israel right now, in my opinion,
+- [15:39.800] the opinion of a lot of great experts,
+- [15:42.220] had I not terminated that terrible deal.
+- [15:44.890] I was so honored to do it, I was so proud to do it.
+- [15:47.520] It was so bad right from the beginning.
+- [15:49.940] Essentially, I did what no other president was willing to do.
+- [15:54.200] They made mistakes and I am correcting them.
+- [15:58.140] My first preference was always the path of diplomacy,
+- [16:01.900] yet the regime continued their relentless quest
+- [16:05.300] for nuclear weapons and rejected every attempt at an agreement.
+- [16:10.040] For this reason, in June,
+- [16:11.460] I ordered a strike on Iran's key nuclear facilities
+- [16:14.760] and Operation Midnight Hammer.
+- [16:17.550] Nobody's ever seen anything like it.
+- [16:20.670] Those beautiful B-2 bombers performed magnificently.
+- [16:25.330] We totally obliterated those nuclear sites.
+- [16:28.500] The regime then sought to rebuild their nuclear program
+- [16:32.360] at a totally different location,
+- [16:34.270] making clear they had no intention
+- [16:36.050] of abandoning their pursuit of nuclear weapons.
+- [16:40.280] They were also rapidly building a vast stockpile
+- [16:43.300] of conventional ballistic missiles
+- [16:46.230] and would soon have had missiles
+- [16:48.020] that could reach the American homeland,
+- [16:50.320] Europe and virtually any other place on earth.
+- [16:53.660] Iran's strategy was so obvious;
+- [16:56.930] they wanted to produce as many missiles as possible,
+- [17:00.310] and they did, with the longest range possible.
+- [17:03.630] And they had some weapons that nobody believed they had --
+- [17:07.110] we just learned that; we took them out,
+- [17:08.880] we took them all out --
+- [17:10.100] so that no one would really dare stop them and their race
+- [17:14.330] for a nuclear bomb, a nuclear weapon,
+- [17:16.750] a nuclear weapon like nobody's ever seen before.
+- [17:19.970] They were right at the doorstep. For years, everyone has said
+- [17:23.920] that Iran cannot have nuclear weapons.
+- [17:26.690] But in the end, those are just words
+- [17:29.890] if you're not willing to take action when the time comes.
+- [17:34.260] As I stated in my announcement of Operation Epic Fury,
+- [17:38.610] our objectives are very simple and clear,
+- [17:42.070] we are systematically dismantling the regime's ability
+- [17:45.190] to threaten America or project power outside of their borders.
+- [17:50.070] That means eliminating Iran's Navy,
+- [17:52.510] which is now absolutely destroyed;
+- [17:56.770] hurting their Air Force and their missile program
+- [17:59.540] at levels never seen before;
+- [18:02.000] and annihilating their defense industrial base.
+- [18:04.460] We've done all of it.
+- [18:05.740] Their Navy is gone, their Air Force is gone,
+- [18:08.680] their missiles are just about used up or beaten.
+- [18:12.610] Taken together, these actions will cripple Iran's military,
+- [18:16.380] crush their ability to support terrorist proxies
+- [18:19.150] and deny them the ability to build a nuclear bomb.
+- [18:23.100] Our armed forces have been extraordinary.
+- [18:25.630] There's never been anything like it militarily,
+- [18:29.380] everyone is talking about it.
+- [18:31.120] And tonight, I'm pleased to say that these core
+- [18:34.010] strategic objectives are nearing completion.
+- [18:38.130] As we celebrate this progress, we think especially
+- [18:41.730] of the 13 American warriors who have laid down their lives
+- [18:45.270] in this fight to prevent our children
+- [18:48.280] from ever having to face a nuclear Iran.
+- [18:52.410] Twice this past month,
+- [18:53.650] I have traveled to Dover Air Force Base,
+- [18:57.040] and it's been something.
+- [18:58.830] I wanted to be with those heroes as they return to American soil.
+- [19:03.450] And I was with them and their families,
+- [19:05.320] their parents, their wives, their husbands.
+- [19:08.760] We salute them, and now we must honor them
+- [19:11.080] by completing the mission for which they gave their lives.
+- [19:15.400] And every single one of the people, their loved ones,
+- [19:18.770] said, please, sir,
+- [19:20.020] please, finish the job, every one of them.
+- [19:23.860] And we are going to finish the job,
+- [19:25.510] and we're going to finish it very fast.
+- [19:27.160] We're getting very close.
+- [19:28.370] I want to thank our allies in the Middle East, Israel,
+- [19:32.410] Saudi Arabia, Qatar, the UAE, Kuwait and Bahrain.
+- [19:38.520] They've been great and we will not let them
+- [19:41.600] get hurt or fail in any way, shape or form.
+- [19:45.490] Many Americans have been concerned to see the recent rise
+- [19:49.200] in gasoline prices here at home.
+- [19:52.320] This short-term increase has been entirely the result
+- [19:55.510] of the Iranian regime launching deranged terror attacks
+- [19:59.130] against commercial oil tankers and neighboring countries
+- [20:02.110] that have nothing to do with the conflict.
+- [20:05.120] This is yet more proof that Iran can never be trusted
+- [20:08.840] with nuclear weapons.
+- [20:10.130] They will use them and they will use them quickly.
+- [20:12.900] It would lead to decades of extortion,
+- [20:16.040] economic pain and instability worse than we can ever imagine.
+- [20:21.350] The United States has never been better prepared
+- [20:23.750] economically to confront this threat.
+- [20:25.910] You all know that.
+- [20:27.560] We built the strongest economy in history.
+- [20:30.820] We're going through it right now,
+- [20:32.160] the strongest in history.
+- [20:33.500] In one year, we've taken a dead and crippled country --
+- [20:38.220] I hate to say that, but we were a dead and crippled country
+- [20:42.840] after the last administration,
+- [20:45.910] and made it the hottest country anywhere in the world, by far,
+- [20:49.850] with no inflation, record-setting investments
+- [20:52.830] coming into the United States, over $18 trillion
+- [20:56.840] and the highest stock market ever,
+- [20:58.860] with 53 all-time record highs in just one year.
+- [21:03.690] It all positioned us to get rid of a cancer
+- [21:07.000] that has long simmered. It's known as the nuclear Iran,
+- [21:10.930] and they didn't know what was coming.
+- [21:14.270] They never imagined it.
+- [21:16.120] Remember, because of our drill, baby, drill program,
+- [21:18.900] America has plenty of gas.
+- [21:20.440] We have so much gas. Under my leadership,
+- [21:23.540] we are number one producer of oil and gas on the planet,
+- [21:27.240] without even discussing the millions of barrels
+- [21:29.730] that we're getting from Venezuela.
+- [21:32.910] Because of the Trump administration's policies,
+- [21:35.630] we produce more oil and gas than Saudi Arabia
+- [21:38.510] and Russia combined.
+- [21:40.220] Think of that, Saudi Arabia and Russia combined,
+- [21:43.620] and that number will soon be substantially higher than that.
+- [21:47.980] There's no country like us anywhere in the world,
+- [21:51.100] and we're in great shape for the future.
+- [21:53.570] The United States imports almost no oil through the Hormuz Strait
+- [21:59.550] and won't be taking any in the future.
+- [22:01.450] We don't need it. We haven't needed it and we don't need it.
+- [22:05.580] We've beaten and completely decimated
+- [22:09.240] Iran they are decimated both militarily and economically
+- [22:13.800] and in every other way. And the countries of the world
+- [22:17.280] that do receive oil through the Hormuz Strait
+- [22:20.020] must take care of that passage.
+- [22:22.270] They must cherish it.
+- [22:23.510] They must grab it and cherish it.
+- [22:26.010] They can do it easily. We will be helpful,
+- [22:29.710] but they should take the lead in protecting the oil
+- [22:32.300] that they so desperately depend on.
+- [22:34.770] So to those countries that can't get fuel,
+- [22:38.070] many of which refuse to get involved
+- [22:40.070] in the decapitation of Iran,
+- [22:42.090] we had to do it ourselves; I have a suggestion.
+- [22:45.440] Number one, buy oil from the United States of America.
+- [22:48.590] We have plenty. We have so much and number two,
+- [22:51.500] build up some delayed courage, should have done it before,
+- [22:54.820] should have done it with us as we asked, go to the strait
+- [22:58.300] and just take it, protect it, use it for yourselves.
+- [23:02.400] Iran has been essentially decimated.
+- [23:06.490] The hard part is done, so it should be easy.
+- [23:09.410] And, in any event, when this conflict is over,
+- [23:11.970] the strait will open up naturally.
+- [23:14.630] It'll just open up naturally.
+- [23:16.170] They're going to want to be able to sell oil
+- [23:17.820] because that's all they have to try and rebuild.
+- [23:21.450] It will resume the flowing and the gas prices
+- [23:25.120] will rapidly come back down.
+- [23:26.940] Stock prices will rapidly go back up.
+- [23:29.480] They haven't come down very much.
+- [23:30.820] Frankly, they came down a little bit,
+- [23:32.920] but they've had some very good days
+- [23:34.730] over the last couple of days.
+- [23:36.580] We've done actually much better than I thought,
+- [23:39.140] but we had to take that little journey to Iran
+- [23:41.910] to get rid of this horrible threat.
+- [23:44.430] With our historic tax cuts,
+- [23:45.960] where people are just now talking
+- [23:48.610] about receiving larger refunds than they ever thought possible.
+- [23:52.910] They are getting so much more money than they thought.
+- [23:55.080] That's from the Great Big, Beautiful Bill.
+- [23:57.440] Our economy is strong and improving by the day
+- [23:59.980] and it will soon be roaring back like never before.
+- [24:03.610] It will top the levels that it was a month ago.
+- [24:06.810] I've made clear from the beginning of Operation Epic Fury
+- [24:10.010] that we will continue until our objectives are fully achieved.
+- [24:14.270] Thanks to the progress we've made,
+- [24:16.300] I can say tonight that we are on track to complete
+- [24:19.500] all of America's military objectives
+- [24:21.840] shortly, very shortly.
+- [24:24.240] We are going to hit them extremely hard
+- [24:26.640] over the next two to three weeks.
+- [24:29.050] We're going to bring them back to the stone ages,
+- [24:32.320] where they belong.
+- [24:33.830] In the meantime, discussions are ongoing.
+- [24:36.490] Regime change was not our goal.
+- [24:38.950] We never said regime change, but regime change has occurred
+- [24:42.900] because of all of their original leaders' death.
+- [24:48.190] They're all dead.
+- [24:49.810] The new group is less radical and much more reasonable.
+- [24:53.770] Yet, if during this period of time no deal is made,
+- [24:56.350] we have our eyes on key targets.
+- [24:59.330] If there is no deal, we are going to hit each
+- [25:01.730] and every one of their electric generating plants very hard
+- [25:05.520] and probably simultaneously. We have not hit their oil,
+- [25:09.980] even though that's the easiest target of all,
+- [25:12.870] because it would not give them
+- [25:14.360] even a small chance of survival or rebuilding.
+- [25:18.890] But we could hit it and it would be gone,
+- [25:22.020] and there's not a thing they could do about it.
+- [25:24.800] They have no anti-aircraft equipment.
+- [25:27.380] Their radar is 100 percent annihilated.
+- [25:30.870] We are unstoppable as a military force.
+- [25:34.720] The nuclear sites that we obliterated
+- [25:37.050] with the B-2 bombers have been hit so hard
+- [25:40.260] that it would take months to get near the nuclear dust,
+- [25:44.350] and we have it under intense satellite surveillance
+- [25:47.590] and control.
+- [25:49.010] If we see them make a move, even a move for it,
+- [25:52.610] we'll hit them with missiles very hard again.
+- [25:56.410] We have all the cards; they have none.
+- [25:58.070] It's very important that we keep this conflict in perspective.
+- [26:03.060] American involvement in World War I lasted one year,
+- [26:08.600] seven months and five days.
+- [26:10.930] World war II lasted for three years, eight months,
+- [26:14.430] and 25 days.
+- [26:16.200] The Korean War lasted for three years,
+- [26:18.260] one month and two days.
+- [26:21.170] The Vietnam War lasted for 19 years,
+- [26:24.550] five months and 29 days.
+- [26:27.370] Iraq went on for eight years, eight months and 28 days.
+- [26:32.750] We are in this military operation so powerful,
+- [26:35.860] so brilliant against one of the most powerful countries
+- [26:38.700] for 32 days,
+- [26:42.250] and the country has been eviscerated
+- [26:45.330] and, essentially, is really no longer a threat.
+- [26:49.000] They were the bully of the Middle East,
+- [26:50.390] but they're the bully no longer.
+- [26:52.800] This is a true investment in your children
+- [26:55.810] and your grandchildren's future.
+- [26:58.000] The whole world is watching and they can't believe
+- [27:01.220] the power, strength and brilliance.
+- [27:03.730] They just can't believe what they're seeing.
+- [27:06.390] They -- leave it to your imagination,
+- [27:08.790] but they can't believe what they're seeing,
+- [27:10.710] the brilliance of the United States military.
+- [27:14.540] Tonight, every American can look forward to a day
+- [27:17.050] when we are finally free from the wickedness
+- [27:19.830] of Iranian aggression
+- [27:21.280] and the specter of nuclear blackmail.
+- [27:24.230] Because of the actions we have taken,
+- [27:25.990] we are on the cusp of ending Iran's sinister threat
+- [27:29.590] to America and the world.
+- [27:31.900] And I'll tell you, the world is watching.
+- [27:33.920] And when we do, when it's all over,
+- [27:37.950] the United States will be safer, stronger, more prosperous,
+- [27:41.400] and greater than it has ever been before.
+- [27:44.510] May God bless the men
+- [27:46.110] and women of the United States armed forces,
+- [27:48.700] and may God bless the United States of America.
+- [27:52.460] Thank you very much, and good night.

@@ -1,0 +1,1153 @@
+<!-- source: https://www.youtube.com/watch?v=zkDVSD6bA08 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: zkDVSD6bA08 -->
+<!-- date_published: 2025-04-23T22:07:45+00:00 -->
+<!-- date_accessed: 2026-06-02T02:51:31.992021+00:00 -->
+
+# Transcript: President Trump Signs Executive Orders in the Oval Office, Apr. 23, 2025
+
+- [00:28.010] The President: job.
+- [00:29.220] The doctors are absolutely unbelievable, the job they do.
+- [00:33.960] So we were having a little meeting,
+- [00:35.320] and at the same time we're signing
+- [00:36.990] some very important legislation, what will become legislation.
+- [00:41.210] And right now, it's an executive order,
+- [00:44.810] and having to do mostly with education.
+- [00:48.180] And we have our Secretary of Education, Linda McMahon,
+- [00:51.440] has been so incredible over the last few weeks.
+- [00:53.710] I've been watching her on television.
+- [00:55.180] I'd like to tell her she could do better,
+- [00:56.690] but she can't do any better. She can't do any better.
+- [00:59.420] So I want to thank you, Linda. Fantastic.
+- [01:01.330] And we also have commerce and we have labor with us today.
+- [01:05.130] And thank you, Lori, very much.
+- [01:06.460] Female Speaker: Thank you, Mr. President.
+- [01:07.700] The President: And Howard, thank you very much.
+- [01:10.170] And we'll take some questions after we're finished.
+- [01:13.720] Maybe I'll ask Will to step forward
+- [01:17.000] and you can go through some of these.
+- [01:20.560] Also, Lindsay, you work with
+- [01:22.060] Will, two very talented lawyers, as you all know by now.
+- [01:26.200] Male Speaker: Thank you, Mr. President.
+- [01:27.560] The President: And we'll go through them.
+- [01:28.810] And Linda, why don't you come over here.
+- [01:30.220] In fact, what are the three of you come over here.
+- [01:33.920] Male Speaker: We also have a special guest
+- [01:35.530] with us today, sir.
+- [01:38.940] The President: Oh, that's right, Annette Albright.
+- [01:41.790] Where is Annette?
+- [01:43.680] Annette Albright, Charlotte-Mecklenburg
+- [01:47.220] schoolteacher.
+- [01:48.550] Very special one. Thank you very much.
+- [01:50.020] Ms. Albright: Thank you.
+- [01:51.220] The President: It's a great honor to have you.
+- [01:52.460] You got all sorts of awards for talent.
+- [01:55.350] That's good. Thank you very much for being with us.
+- [01:57.520] Appreciate it. Thank you. Okay, please.
+- [02:00.560] Male Speaker: Sir, the first executive order
+- [02:01.980] we have prepared for your attention.
+- [02:03.520] There are currently laws on the books
+- [02:05.710] requiring certain disclosures of universities
+- [02:08.580] when they accept large foreign gifts.
+- [02:11.360] We believe that certain universities,
+- [02:13.220] including for example, Harvard,
+- [02:15.430] have routinely violated this law.
+- [02:17.470] And this law has not been effectively enforced.
+- [02:20.440] So this executive order charges your departments and agencies
+- [02:23.940] with enforcing the laws on the books
+- [02:25.620] with respect to foreign gifts to American universities.
+- [02:29.380] The President: Okay, thank you.
+- [02:34.660] Thank you very much. We'll put it right here.
+- [02:38.390] Male Speaker: Next for you, sir.
+- [02:39.650] University accreditation is currently a process
+- [02:42.860] controlled by a number of third-party organizations.
+- [02:46.390] That's by statute, by law.
+- [02:48.550] Many of those third-party accreditors have relied
+- [02:51.790] on woke ideology to accredit universities
+- [02:55.260] instead of accrediting based on merit and performance.
+- [02:59.190] This executive order affects a number of changes
+- [03:01.970] to the university accreditation process,
+- [03:04.440] also applies to law schools and other sort of graduate programs.
+- [03:09.980] But the basic idea is to force accreditation
+- [03:13.620] to be focused on the merit and the actual results
+- [03:16.580] that these universities are providing,
+- [03:18.520] as opposed to how woke these universities have gotten.
+- [03:21.950] So we're setting up new accreditation pathways,
+- [03:24.260] we're charging the Department of Education
+- [03:26.490] to really look holistically at this accreditation mess,
+- [03:29.100] and hopefully make it much better.
+- [03:30.630] The President: Will we look into the past people
+- [03:33.420] that they've taken, for instance?
+- [03:34.860] I hear all about certain great schools,
+- [03:37.490] and then we read
+- [03:39.040] where they're going to teach people basic math,
+- [03:42.120] math that we can all do very easily, but they can't do.
+- [03:45.030] They're going to the top school
+- [03:46.830] and they come out with a program of teaching basic math
+- [03:51.380] to somebody that got into a Harvard
+- [03:53.120] or a Princeton or a Yale. Is that part of this?
+- [03:57.710] Male Speaker: When universities are not
+- [03:59.800] performing appropriately, whether that's in admissions
+- [04:02.790] or whether that's in their actual instructional activities,
+- [04:05.700] that's certainly something that accreditors
+- [04:07.940] should be considering, that right now we believe
+- [04:10.420] they're not doing a good enough job of,
+- [04:11.740] and I think Secretary McMahon
+- [04:13.010] could probably speak to that better than I could say.
+- [04:14.550] The President: What about that, Linda?
+- [04:15.790] So, they're allowing people into school, they can't do math,
+- [04:18.150] and yet kids who've worked really hard and number one
+- [04:21.850] in their class in a high school someplace in New Jersey
+- [04:24.540] or in Mississippi,
+- [04:26.640] they can't get into the best schools.
+- [04:28.280] What is that all about?
+- [04:29.480] Ms. McMahon: Yeah, and I think that gets to your policy, sir,
+- [04:31.950] of meritocracy, that we should be looking at those
+- [04:34.850] who have real merit to get in,
+- [04:37.140] and we have to look harder at those universities
+- [04:39.470] that aren't enforcing that.
+- [04:41.070] The President: Okay, thank you. And this pretty much does it.
+- [04:42.690] Right?
+- [04:43.890] Ms. McMahon: Yes, sir.
+- [04:45.430] The President: Thank you.
+- [04:55.060] Okay. Thank you.
+- [05:02.780] Male Speaker: Sir, during your first administration you made
+- [05:05.540] promoting historically Black colleges and universities,
+- [05:08.340] HBCUs a major priority.
+- [05:11.660] This executive order takes existing law on HBCUs
+- [05:15.550] and brings it into effect.
+- [05:16.780] We're going to be setting up a White House initiative on HBCUs.
+- [05:20.670] The basic idea here is making sure
+- [05:22.470] that every aspect of your administration is working
+- [05:25.320] to ensure that HBCUs are able to do their job as effectively
+- [05:29.300] and as efficiently as possible.
+- [05:31.290] The President: Okay.
+- [05:41.680] Okay. All right.
+- [05:47.860] Male Speaker: This next executive order relates
+- [05:49.630] to artificial intelligence education, sir.
+- [05:52.730] You've obviously done a lot
+- [05:54.410] in the artificial intelligence space already.
+- [05:57.690] The basic idea of this executive order
+- [05:59.530] is to ensure that we properly train
+- [06:01.970] the workforce of the future
+- [06:03.890] by ensuring that school children, young Americans,
+- [06:07.100] are adequately trained in AI tools
+- [06:09.210] so that they can be competitive in the economy years
+- [06:12.830] from now into the future
+- [06:14.050] as AI becomes a bigger and bigger deal.
+- [06:16.300] The President: That's a big deal because AI
+- [06:17.980] is where it seems to be at.
+- [06:20.670] We have literally trillions of dollars being invested in AI.
+- [06:26.610] And somebody today, a very smart person,
+- [06:29.250] said that AI is the way of the future.
+- [06:31.770] I don't know if that's right or not,
+- [06:33.270] but certainly very smart people are investing in it heavily.
+- [06:45.450] Good. Okay.
+- [06:54.790] Male Speaker: Next, sir, we have an executive order
+- [06:56.340] on workforce development.
+- [06:58.230] This executive order is going to charge numerous departments
+- [07:01.110] and agencies within the government
+- [07:04.290] to reshape the way that we do workforce development.
+- [07:07.050] One example from the executive order, for instance,
+- [07:09.560] we're looking to get the total number of apprenticeships,
+- [07:12.690] new apprenticeships up to a million in the country,
+- [07:15.890] to ensure that in critical jobs areas,
+- [07:19.300] in areas where we currently
+- [07:21.040] don't have enough trained workers,
+- [07:23.120] that we're recreating that pipeline to ensure
+- [07:25.670] that particularly as we onshore industrial jobs
+- [07:29.320] and new industries,
+- [07:30.870] that those industries have the workforce
+- [07:32.880] they need to be competitive globally.
+- [07:35.100] The President: Right. Very important.
+- [07:37.020] Male Speaker: And this is the EO that we're all here
+- [07:39.030] working together.
+- [07:40.900] The President: And in a way, this is like a training center.
+- [07:43.100] Right? For what we're trying to do,
+- [07:45.610] which is jobs that great salaries.
+- [07:48.420] These are great salaries, too.
+- [07:49.900] Male Speaker: Right.
+- [07:51.150] So all those factories that you're bringing in,
+- [07:53.790] because of your trade policy,
+- [07:55.680] we're going to train people in trade craft,
+- [07:57.930] bring back trade craft to America
+- [08:00.520] so that people can work in these factories
+- [08:02.690] with great paying jobs, and we're going to train them,
+- [08:05.560] and we're going to remake the American dream
+- [08:08.220] for all these people we're working together.
+- [08:09.820] Female Speaker: That's right. Male Speaker: Right, Lori?
+- [08:11.040] Female Speaker: Absolutely.
+- [08:12.310] This plays right into America at Work tour,
+- [08:15.110] which I have kicked off.
+- [08:16.680] We will work with our state partners
+- [08:18.590] and work with our businesses
+- [08:19.810] to see exactly who they need in that workforce.
+- [08:21.910] And we will skill and upskill these apprentices
+- [08:24.640] so they can get right to work,
+- [08:25.980] and get in the field and build back this economy
+- [08:27.910] for exactly living the American Dream.
+- [08:29.810] The President: Good, Lori.
+- [08:31.140] Female Speaker: Yeah. Thank you, sir.
+- [08:32.360] Thank you, Mr. President.
+- [08:33.940] Male Speaker: Next, sir, we have an executive order
+- [08:35.480] on school discipline policies under,
+- [08:38.330] I believe it was the Biden administration,
+- [08:40.110] first Obama and then Biden.
+- [08:41.990] The Department of Justice issued guidance
+- [08:44.470] that made it almost impossible for schools
+- [08:46.740] to enforce adequate disciplinary policies.
+- [08:50.580] This created issues in the classroom
+- [08:52.510] for teachers and students alike.
+- [08:55.210] Basically, they focused on CRT and sort of diversity ideology,
+- [09:00.370] instead of actually just enforcing the rules
+- [09:02.600] in classrooms to ensure a safe learning environment.
+- [09:05.390] This executive order revokes that prior guidance
+- [09:08.440] and puts us back in a place
+- [09:10.330] where hopefully the Department of Education
+- [09:11.990] can focus on education and teachers
+- [09:14.160] can focus on teaching in a safe environment.
+- [09:16.460] The President: And this was important for you,
+- [09:17.910] Linda, as I understand it?
+- [09:19.160] Ms. McMahon: Yeah, absolutely,
+- [09:20.360] because it gives teachers the authority now
+- [09:22.460] to have discipline in their classroom
+- [09:24.610] and discipline the person who is being disruptive.
+- [09:28.710] The President: Great.
+- [09:29.910] Ms. McMahon: We took that away.
+- [09:40.280] The President: Okay. Nice.
+- [09:47.900] Here Linda, you should hold that.
+- [09:51.130] Male Speaker: Lastly, sir, we have an executive order
+- [09:52.730] on disparate impact theory.
+- [09:53.970] This is a theory that underlies a lot of the modern DEI and CRT-
+- [09:58.830] driven diversity culture.
+- [10:00.940] The basic idea here is instructing your departments
+- [10:03.490] and agencies to no longer rely on disparate impact theory
+- [10:07.810] as they're regulating, as they're issuing guidance,
+- [10:10.170] as they're making rules. We want to focus on results.
+- [10:14.170] We want to focus on actual fairness.
+- [10:16.040] We want to focus on merit,
+- [10:18.030] not things like disparate impact theory
+- [10:20.180] and the whole sort of diversity, equity, and inclusion cult.
+- [10:23.200] The President: It's getting out of that, huh?
+- [10:24.530] Male Speaker: Yes, sir.
+- [10:25.770] The President: After being in that jungle for a long time.
+- [10:34.770] Okay. Thank you. Very good job. Male Speaker: Thank you, sir.
+- [10:40.980] The President: Thank you very much.
+- [10:42.270] Male Speaker: Appreciate it.
+- [10:43.490] The President: [inaudible] very much.
+- [10:45.890] Would you like to introduce again, Annette,
+- [10:48.860] and perhaps Annette wants to say something,
+- [10:51.870] having to do with that? Annette is right here.
+- [10:55.690] Ms. McMahon: Yes, Annette. Yes, please come over.
+- [11:01.830] Would you like to have some comments to make?
+- [11:03.500] I know you're a former Charlotte-Mecklenburg
+- [11:05.030] school teacher.
+- [11:06.270] I'm a North Carolina girl, so it's nice see you.
+- [11:08.000] Ms. Albright: Yes, New Bern.
+- [11:09.260] Ms. McMahon: Yes, from New Bern.
+- [11:10.460] Ms. Albright: Yes. Thank you so much for having me.
+- [11:12.950] Thank you so much. I'm so honored to be here.
+- [11:15.900] This has been an eight-year journey for me
+- [11:19.610] to raise awareness
+- [11:20.890] to the violence that's in public schools,
+- [11:22.730] and the critical need to address violence in public schools.
+- [11:26.950] Again, been doing it eight years because most administrations
+- [11:30.080] like to keep the violence hidden.
+- [11:32.520] We have three students that should be here with us today.
+- [11:34.990] We have Austin Metcalf, I'm sorry
+- [11:38.290] if I say his name wrong, Serenity Baker,
+- [11:41.150] and Nahzir Taylor from Charlotte, North Carolina,
+- [11:43.770] who was shot in the back
+- [11:45.490] as he was getting off of a school bus
+- [11:47.370] because they thought he was a part of a big brawl
+- [11:50.150] that happened inside a public high school.
+- [11:52.970] So this is very important and critical legislation,
+- [11:56.780] that we have to keep our educators safe,
+- [11:58.790] we have to keep our students safe,
+- [12:00.800] and public schools have to be safe environments.
+- [12:05.080] Like I said, I've done this journey alone,
+- [12:07.000] I've been on it, but I have a whole team behind me now.
+- [12:10.720] I spoke at the RNC and I told millions
+- [12:14.360] that Donald Trump and his administration
+- [12:16.450] was going to make schools great again.
+- [12:18.380] And I feel that we're on the right path,
+- [12:20.000] and I'm just honored to be here.
+- [12:22.160] The President: Thank you very much.
+- [12:28.490] [inaudible]
+- [12:30.160] our great vets that are with us.
+- [12:31.730] And is it okay if I give her one?
+- [12:34.080] What do you think?
+- [12:35.700] Ms. Albright: Thank you. Thank you so much.
+- [12:37.040] The President: Thank you.
+- [12:38.280] Ms. Albright: I appreciate it. The President: Very much.
+- [12:39.520] Ms. Albright: Thank you. Thank you. What an honor.
+- [12:40.840] The President: Great job. Could I ask Sarah to speak?
+- [12:42.860] Verado?
+- [12:44.170] Ms. Verado: Yes, sir. Thank you. Thank you.
+- [12:45.540] The President: Tell us a little bit
+- [12:46.770] about these great gentlemen.
+- [12:48.400] Ms. Verado: These heroes, Mr. President are extraordinary.
+- [12:51.020] This is my husband, Michael, and so many of our dear,
+- [12:53.780] dear friends who are here today, many of them have met you, sir,
+- [12:57.500] in your first administration in the hospital,
+- [12:59.280] many times at Walter Reed. And they've had long recoveries.
+- [13:02.830] Tomorrow, for my husband, marks 15 years
+- [13:05.020] since he was wounded in Afghanistan.
+- [13:06.990] And on that day, about six years ago,
+- [13:09.540] he had his 120th surgery post-Afghanistan,
+- [13:12.160] and you came to see him at Walter Reed.
+- [13:13.590] The President: I did.
+- [13:14.790] Ms. Verado: And so many others.
+- [13:16.170] And we saw great reform in the VA, access,
+- [13:19.850] same-day, access to prosthetics, mental healthcare.
+- [13:22.930] And we know that that is back.
+- [13:25.000] These gentlemen were saying, Alex here earlier,
+- [13:27.050] was saying in the last few years
+- [13:28.660] when he's gone to get a wheelchair,
+- [13:30.180] the VA has asked him, this gentleman,
+- [13:32.570] they've asked him to prove that he still has his injuries
+- [13:35.790] as though maybe his limbs would grow back.
+- [13:37.700] The President: Wow.
+- [13:38.940] Ms. Verado: And they unfortunately did not.
+- [13:40.870] Yes. And we've seen that many times.
+- [13:42.480] And so we're excited for you bringing back
+- [13:44.570] the VA accountability Mission Act, community care,
+- [13:47.570] that we're the hallmark of your first term.
+- [13:49.760] And we're so excited, sir, to be here.
+- [13:51.160] We're honored to be here.
+- [13:52.490] And thank you for all you do for our nation's heroes.
+- [13:55.050] The President: Thank you. Who's that picture on there?
+- [13:58.210] Ms. Verado: That is Joe Biden and it says, let's go Brandon.
+- [14:00.870] The President: I was looking at that and I'm saying,
+- [14:05.770] what was that picture? That's great.
+- [14:08.340] Ms. Verado: I told him he wasn't allowed to ask you to sign it.
+- [14:12.610] The President: That's great. That's very good.
+- [14:14.000] Well, thank you all very much.
+- [14:15.690] Would you like to say anything fellas?
+- [14:17.970] Here's a big chance.
+- [14:19.210] You have a lot of good people watching that believe in you.
+- [14:22.910] They happen to be the media,
+- [14:24.220] but they believe very much in you like I do. Anybody?
+- [14:26.790] Male Speaker: Mr. President.
+- [14:28.110] We just were very happy with the energy
+- [14:29.730] that this administration is bringing
+- [14:31.630] and it's an administration that does what it promises.
+- [14:35.420] And so we're behind you.
+- [14:36.730] We believe in you and I think we all love you.
+- [14:39.110] We got to speak for everybody.
+- [14:40.430] The President: Thank you very much.
+- [14:41.660] And I'm going to get you a better hat.
+- [14:42.900] See, I have better hats.
+- [14:44.120] That's a good one. That was the original.
+- [14:45.380] Male Speaker: It was.
+- [14:46.580] The President: That means he was there.
+- [14:47.810] Male Speaker: I've been wearing it before it was cool.
+- [14:49.160] The President: That's right. That's an early one.
+- [14:50.770] We'll save that one though, right?
+- [14:52.110] Male Speaker: Yes, Mr. President.
+- [14:53.310] The President: Thank you. Anybody please?
+- [14:54.530] Male Speaker: I'd like to say… Oh, go ahead.
+- [14:55.760] Male Speaker: I was just going to say thank you
+- [14:57.050] for loving America, sir.
+- [14:58.300] The President: Thank you very much.
+- [14:59.540] Male Speaker: Thank you so much.
+- [15:00.410] The President: Very nice. Thank you very much.
+- [15:01.620] True. Thank you.
+- [15:02.830] Male Speaker: Sir, the man that just spoke saved
+- [15:04.180] Michael Varnado's life.
+- [15:05.610] And of course he goes immediately to say
+- [15:07.420] thank you as he was the one that saved Michael Varnado,
+- [15:10.140] put him in the helicopter and got him off the combat zone,
+- [15:12.910] so selflessness of these men is unspeakable.
+- [15:15.600] The President: That's great to hear.
+- [15:16.890] Ms. Verado: He's alive because of that man right here.
+- [15:18.870] The President: That's very good.
+- [15:27.040] Now these are amazing people, great heroes,
+- [15:29.380] so that's really great. Anybody else? Yes, please.
+- [15:32.170] Male Speaker: I'd like to say it was an honor to serve.
+- [15:34.910] You are worth it. This country's worth it
+- [15:36.640] and it's of what Christ paid for.
+- [15:38.590] The President: Thank you.
+- [15:39.810] And we have a spirit that people haven't seen in many years,
+- [15:43.470] at least five they haven't seen.
+- [15:46.580] I think even then, because we've been through so much
+- [15:50.290] for the last four years together.
+- [15:52.420] It was so bad. It was so bad.
+- [15:53.990] What they've done to the borders,
+- [15:55.440] what they've done all over the place.
+- [15:57.500] And it's really an honor to be with you, all of you.
+- [16:01.060] Incredible.
+- [16:02.300] And I'm going to give you these coins
+- [16:03.680] and I think you're going to really like them.
+- [16:05.530] I think they're the best. These are the best coins.
+- [16:08.710] And you have your choice. This is gun metal.
+- [16:11.140] I don't know, soldier like the black,
+- [16:14.360] but I think you like this one.
+- [16:15.740] It's okay. A lot of soldiers like the black.
+- [16:18.540] Here you go. What do you like?
+- [16:22.070] Male Speaker: I'll go to black, Mr. President.
+- [16:24.820] The President: See, I told you. These are the choices.
+- [16:30.770] Male Speaker: I'll take a black one, sir.
+- [16:32.080] The President: Look at this.
+- [16:34.170] That rarely happens. You different, huh?
+- [16:36.330] Male Speaker: I'll take a black one, sir.
+- [16:38.010] The President: There you go. That's great.
+- [16:40.020] Male Speaker: They're called the military anyway.
+- [16:41.420] The President: No, but I always say the soldiers,
+- [16:43.240] they do like it, it's gunmetal. What do we like here?
+- [16:46.800] Male Speaker: That's what I heard that it was gunmetal.
+- [16:48.480] Male Speaker: Gold is-
+- [16:49.710] The President: I'm giving you… I'm giving him two.
+- [16:53.170] Ms. Verado: We have three girls, they're going to fight.
+- [16:54.780] The President: One for this one right here.
+- [16:55.990] We'll get another one too. Okay. This is actually fun.
+- [17:02.280] Male Speaker: I'll take the gold, Mr. President.
+- [17:04.160] The President: I thought you were going to
+- [17:05.440] take that gold one.
+- [17:09.350] Male Speaker: Gold one, sir.
+- [17:10.620] The President: Okay. You got it.
+- [17:11.860] Male Speaker: I had an opportunity to sail
+- [17:13.120] across the Gulf of America two days
+- [17:14.460] after you named it right.
+- [17:15.690] The President: Oh, wow. Isn't that great?
+- [17:19.330] It's been an honor. And now people say it routinely,
+- [17:23.600] they don't even think about that they say it routinely.
+- [17:26.300] That's been a great honor for me.
+- [17:29.000] Male Speaker: I'll take a gold one, sir.
+- [17:38.160] The President: Almost even. I think gold has an edge.
+- [17:40.470] Male Speaker: I would love a gold one, sir.
+- [17:41.840] Thank you so much. Thank you.
+- [17:43.060] The President: I think the gold, it picked up at the end.
+- [17:45.980] Are you all okay? That's good.
+- [17:51.130] I want to thank you very much and especially,
+- [17:53.630] that's a great story.
+- [17:54.920] Male Speaker: Yes, sir.
+- [17:56.210] The President: What do you think of a guy like that?
+- [17:57.480] Pretty good.
+- [17:58.710] Male Speaker: Oh, actually him and him.
+- [18:01.650] We all served together.
+- [18:03.040] The President: Wow.
+- [18:04.280] Male Speaker: And Jared over there.
+- [18:05.500] Ms. Verado: And Jared over there.
+- [18:06.710] Male Speaker: Oh, I forgot Jared.
+- [18:07.920] The President: You guys got hit, huh?
+- [18:09.130] Pretty good. You got hit.
+- [18:11.070] Male Speaker: Pretty good. The President: Amazing. Amazing.
+- [18:12.270] Male Speaker: We were in a pretty tough area on Kandahar
+- [18:14.210] in the Arghandab River Valley, right outside Kandahar.
+- [18:17.190] Ms. Verado: Their unit had a more than 50%
+- [18:18.800] Purple Heart rate, sir, in 2010.
+- [18:21.380] The President: You deserve it.
+- [18:22.990] You deserve that and more. We appreciate it so much.
+- [18:25.770] Brave, really brave, brilliant people.
+- [18:28.630] Thank you very much.
+- [18:29.960] Do you have any questions of the guys here?
+- [18:33.480] Male Speaker: I want to say Mr. President,
+- [18:34.750] thank you to the veterans who are here.
+- [18:36.710] Thank you so much for defending us.
+- [18:38.320] And then I wanted to ask you, Mr. President,
+- [18:40.120] you said you want to bring the tariffs on China down soon.
+- [18:44.570] How soon do you want to bring the tariffs
+- [18:47.580] on Chinese goods down?
+- [18:48.840] The President: Well, that depends on them.
+- [18:50.190] We have a situation where we have a very, very great place.
+- [18:55.760] It's called the United States of America,
+- [18:57.650] and it has been ripped off for years and years.
+- [19:00.630] These people know it. We talked about it before you came in.
+- [19:03.890] We've been ripped off by every country in the world
+- [19:06.080] practically and friend and foe.
+- [19:11.070] We're not doing that anymore, so what's happened is we've…
+- [19:14.730] Howard, how many countries have we spoken to already?
+- [19:17.050] Male Speaker: 90.
+- [19:18.300] The President: 90.
+- [19:20.810] And they all want to make deals and we're going to make deals,
+- [19:24.820] but they're going to be fair deals.
+- [19:26.220] They're not going to be rip-off deals.
+- [19:27.680] And we were losing almost $5 billion a year.
+- [19:32.510] No country can do that.
+- [19:34.500] And now we have it down almost to even,
+- [19:36.640] maybe even better than even
+- [19:38.450] because of the tariffs on cars and aluminum and steel.
+- [19:42.310] We have tariffs, 25% on cars, aluminum and steel.
+- [19:46.220] And there's a rush to build new steel plants,
+- [19:48.290] a rush to build new aluminum plants.
+- [19:50.820] And a biggest rush I've ever seen,
+- [19:53.040] that we've ever seen to build car plants.
+- [19:55.470] We have like 11 of them or something.
+- [19:57.590] Big ones where you guys maybe work,
+- [19:59.890] maybe you won't want to work,
+- [20:01.140] you'll do something else instead of that.
+- [20:02.870] But if you like cars, you'd like to work in one of these plants.
+- [20:05.190] The biggest plants in the world.
+- [20:07.120] Three of them have left Mexico before construction started,
+- [20:10.100] one of them during construction.
+- [20:12.300] And they're coming to this country,
+- [20:13.910] they're coming back, don't forget,
+- [20:15.730] and we get along great with Mexico,
+- [20:17.260] but Mexico took 32% of our car building business.
+- [20:23.170] It's amazing what's happened. Remember this number,
+- [20:26.670] anywhere from three to $5 billion a day.
+- [20:31.970] That's not million dollars. That's billion dollars a day.
+- [20:34.410] Nobody can even imagine it. And that's what we were losing.
+- [20:37.910] And hence we have $36 trillion in debt and everything else.
+- [20:42.160] And in the end, I think what's going to happen
+- [20:44.010] is we're going to have great deals.
+- [20:45.680] And by the way, if we don't have a deal
+- [20:47.290] with a company or a country, we're going to set the tariff.
+- [20:50.380] We just set the tariff. It's something that we think-
+- [20:52.260] Male Speaker: How soon?
+- [20:53.470] The President: That will happen I'd say
+- [20:54.740] over the next couple of weeks, wouldn't you say? I think so.
+- [20:56.790] Over the next two, three weeks, we'll be setting the number.
+- [20:59.760] Male Speaker: For China?
+- [21:01.000] The President: And we're going to pick…
+- [21:02.280] It could be for China too. Could be for China.
+- [21:04.260] Well, we're dealing with almost all of them.
+- [21:07.170] Too many to fully deal with,
+- [21:08.680] but we're going to be fair to them.
+- [21:10.320] But we're dealing with a lot of countries right now
+- [21:12.720] and could be with China, but maybe we'll make a special,
+- [21:17.560] a deal and we'll see what it'll be.
+- [21:19.670] Right now it's 145%. That's very high.
+- [21:23.070] It got there because of the fentanyl.
+- [21:25.510] They're sending massive amounts of Fentanyl
+- [21:28.640] into our country and killing a lot of people.
+- [21:31.080] Probably 200,000 plus a year, wiping them out.
+- [21:34.160] You probably all have friends that were killed,
+- [21:36.550] somebody was killed in your family
+- [21:38.250] or your friends with fentanyl.
+- [21:40.210] And somehow it's made almost exclusively in China.
+- [21:44.080] And as you know, we essentially tax them 10 and then another 10.
+- [21:51.110] We also taxed Mexico 25 and we taxed Canada 25.
+- [21:56.630] And that's the kind of money
+- [21:58.090] that's what's pouring into our country right now.
+- [22:01.000] And it's gotten us down from losing three to $5 billion
+- [22:03.920] a day to actually making money but breaking even, let's say.
+- [22:08.110] But we're going to make a lot of money
+- [22:10.210] and that money's going to be used to reduce taxes.
+- [22:12.390] We're going to get big, big tax breaks.
+- [22:15.640] There was a time…
+- [22:16.870] I said it this morning, I think some of you were there.
+- [22:19.560] There was a time from 1870 to 1913, it was a long time ago,
+- [22:24.400] we were an all-tariff nation of foreign nations paid taxes.
+- [22:28.410] They paid money to us in the form of tariffs.
+- [22:31.100] And that was when we were the wealthiest.
+- [22:32.860] We were the wealthiest proportionately
+- [22:34.700] that we ever were.
+- [22:36.400] And they formed committees in 1887 in particular,
+- [22:41.280] but they formed committees to determine what we should do
+- [22:44.410] with all the money. We had so much money…
+- [22:46.710] You guys would've loved it. We had so much money,
+- [22:48.990] they didn't know what to do with it.
+- [22:50.460] We gave it away to different causes.
+- [22:53.180] And you haven't seen that too much anymore.
+- [22:56.170] Although we give plenty away,
+- [22:57.480] but now we shouldn't be giving it away.
+- [22:58.790] We have to take care of ourselves first, right?
+- [23:00.680] Male Speaker: Absolutely.
+- [23:01.910] The President: But we were very wealthy
+- [23:04.010] and proportionately the wealthiest we ever were.
+- [23:06.460] We built the Panama Canal.
+- [23:07.860] Jimmy Carter gave that away for $1, by the way.
+- [23:10.800] One of the most profitable things ever built,
+- [23:12.720] the Panama Canal.
+- [23:13.920] We gave it away for $1 to Panama.
+- [23:17.390] Why? I don't know. Nobody knows. But that's what we had.
+- [23:20.710] We had people like that sitting behind this desk
+- [23:23.450] and that shouldn't have happened.
+- [23:25.410] Panama Canal, we spent…
+- [23:27.480] It was the most expensive thing ever built
+- [23:29.830] by our country in history, I'm talking to relative dollars.
+- [23:34.270] We've never built anything so expensive.
+- [23:36.140] I think it was the equivalent of $1.7 billion.
+- [23:40.690] And we've never built anything like that.
+- [23:44.500] We built a lot of things but never so expensive,
+- [23:48.360] then we started building other things.
+- [23:49.970] We had a lot of money to do it,
+- [23:51.720] all based on foreign countries coming in and paying us tariffs.
+- [23:55.520] And we're doing that again.
+- [23:56.790] And I think we're going to make so much
+- [23:58.150] that we're going to be able to reduce taxes
+- [23:59.790] in this country by a lot.
+- [24:01.290] And we're also going to treat those countries very fairly.
+- [24:04.080] But if we don't make a deal, which is possible,
+- [24:07.130] we're going to just set the price.
+- [24:08.790] Because you remember, they have to come in…
+- [24:10.520] They want to come in here
+- [24:11.720] and they want to do business with the United States.
+- [24:14.480] We want to set a fair price and we'll do that,
+- [24:17.230] we're going to be very fair, but we'll set a fair price.
+- [24:19.850] And then they can make a determination
+- [24:21.590] as to whether or not they want to do business
+- [24:23.360] with the United States. And I think most of them will.
+- [24:26.030] And I think we're going to treat them very fairly.
+- [24:28.740] The Press: Were you worried about what the 145% tariffs
+- [24:31.080] were doing to small businesses here in the US?
+- [24:32.700] The President: No, no.
+- [24:33.910] The Press: Is that why you're bringing it down?
+- [24:35.220] The President: No, no, no. I haven't brought it down.
+- [24:37.550] I haven't brought… It's still 145.
+- [24:39.950] I haven't brought it down. I said it's a high tariff.
+- [24:42.420] It is a high tariff, but I haven't brought it down.
+- [24:45.070] It basically means China's not doing any business with us
+- [24:47.850] essentially because it's a very high number,
+- [24:50.190] so when you add that to the price of a product,
+- [24:52.800] a lot of those products aren't going to sell.
+- [24:56.200] But China's not doing any business.
+- [24:57.770] They were doing $ 1.1 trillion.
+- [25:03.530] Think of that, $1.1 trillion. You know what that is?
+- [25:07.370] And it was just very unfair to us.
+- [25:09.770] And we were doing very little,
+- [25:11.050] relatively very little with them.
+- [25:12.700] It was a very one-sided. But we get along.
+- [25:16.280] I get along very well with President Xi.
+- [25:18.100] We can make a deal. Otherwise, we'll set a price
+- [25:20.470] and hopefully they'll come here and they'll contribute.
+- [25:24.470] And if they don't, that's okay.
+- [25:26.620] The Press: Sir, about your trip to Rome,
+- [25:28.320] there's a lot of leaders attending the Pope's funeral
+- [25:30.200] who also said they'd like to meet with you
+- [25:31.690] while you're there.
+- [25:32.950] Do you have any meetings set up or you-
+- [25:34.400] The President: Yes, I do. I have a lot of meetings set up.
+- [25:36.710] I don't know if I can do it. Do you want help me out, fellas?
+- [25:39.730] I've had a lot of meetings. I got every leader in the world,
+- [25:42.760] which tells you that we have a good product.
+- [25:45.840] It's called the United States of America and it's great.
+- [25:49.180] And these people know about it better
+- [25:51.240] than anybody in this room.
+- [25:53.480] But we have a great place and it should be a lot greater.
+- [25:58.830] And that's what we're going to do.
+- [26:00.250] We're going to make it greater than ever before,
+- [26:01.810] it's very simple.
+- [26:03.200] The Press: Who are you going to be meeting with?
+- [26:04.420] President Zelenskyy-
+- [26:05.690] The President: Well, I have a lot of meetings set on. Yeah.
+- [26:07.280] The Press: And are you meeting anyone with you
+- [26:08.810] in the US delegation to the funeral,
+- [26:10.510] like Secretary Rubio or a former-
+- [26:13.180] The President: We have a couple of people coming.
+- [26:15.270] We will announce it probably this evening or tomorrow.
+- [26:18.980] The First Lady's going and some people
+- [26:22.940] are coming with me from staff.
+- [26:25.470] But we'll have a number of people going.
+- [26:27.810] I'm sure it's going to be a beautiful ceremony. Okay.
+- [26:30.780] The Press: I had one on Ukraine,
+- [26:32.050] but I wanted to ask you one about veterans
+- [26:33.660] since they are here today,
+- [26:34.870] and thank you for your service and sacrifice.
+- [26:36.930] I wanted to ask you about the cuts that have been made,
+- [26:39.650] including with the VA.
+- [26:40.950] Can you assure that veterans, like these men here,
+- [26:45.250] those that have been suffering from mental health issues
+- [26:48.570] or burn pits, for example, will be taken care of?
+- [26:51.820] The President: Yeah, very much so.
+- [26:53.070] In fact, they will tell you it's been better with me
+- [26:56.670] than any president in history. We had a 92% approval rating,
+- [27:00.290] which is unheard of up 50 points from the previous administration
+- [27:04.890] in my first four years. And we're doing better now.
+- [27:07.290] And in fact, now they have something,
+- [27:08.670] the call in doctor stuff
+- [27:10.800] where it's really become modernized and great,
+- [27:14.730] where you don't have to go and travel sometimes long distances
+- [27:18.030] to get to a clinic or get to the VA.
+- [27:21.450] And I just heard this morning,
+- [27:22.660] I was listening to Doug Collins who's a secretary.
+- [27:25.160] He was being interviewed and the numbers are incredible.
+- [27:28.750] The approval ratings are the highest,
+- [27:30.890] I've never heard numbers like this.
+- [27:32.420] It's better than the first four years.
+- [27:34.550] So no, there's no group of people
+- [27:38.240] more important than the people in this room.
+- [27:41.110] And I am not talking about the media,
+- [27:44.180] I'm talking about these people right here.
+- [27:45.770] There's no group and they're going to be taken
+- [27:48.020] really well care of. That's very important to me.
+- [27:50.250] The Press: And on the war in Ukraine,
+- [27:51.940] are you going to be meeting with President Zelenskyy?
+- [27:53.830] He's asked to meet with you this weekend.
+- [27:55.190] Will you be meeting with him this week?
+- [27:56.530] The President: I don't know.
+- [27:57.780] I don't know that he's going to the funeral or not,
+- [27:59.740] but I just hope he gets this thing solved
+- [28:03.370] because we're losing about, think of this 5,000,
+- [28:07.380] I would say 2,500 and everyone was telling me that's low.
+- [28:11.420] 5,000 soldiers are being killed every week approximately.
+- [28:16.130] Think of that every week, 5,000 soldiers,
+- [28:19.310] but let's say from 3000 to 5,000 are being killed.
+- [28:23.060] They're Russian and Ukrainian.
+- [28:24.380] They're not Americans, but they're Russian.
+- [28:26.050] But they're people and they're humans.
+- [28:28.860] They're human beings. They have families.
+- [28:30.370] They wave goodbye to their son
+- [28:32.290] and then they get a call that the son's no longer there.
+- [28:35.160] It's a vicious war.
+- [28:37.360] And if I can help solve it, we're not losing our soldiers,
+- [28:40.950] but we're losing soldiers, a lot of people.
+- [28:43.460] And if I can solve it because of a certain ability,
+- [28:45.750] that would be great. And if it doesn't happen,
+- [28:49.090] I will say that I think Russia is ready.
+- [28:52.160] And a lot of people said Russia wanted to go
+- [28:53.860] for the whole thing.
+- [28:55.710] And I think we have a deal with Russia.
+- [29:00.310] We have to get a deal with Zelenskyy.
+- [29:03.990] I thought it might be easier to deal with Zelenskyy.
+- [29:06.500] So far it's been harder, but that's okay. It's all right.
+- [29:10.060] The Press: Have you had the discussion?
+- [29:11.640] The President: But I think we have a deal with both.
+- [29:13.720] I hope they do it and we spend a lot of money,
+- [29:17.670] but this is about a lot of humanity.
+- [29:21.020] This is the worst. I get the satellite pictures.
+- [29:25.690] I've never seen anything like it of the fields
+- [29:28.250] after some of these battles.
+- [29:29.770] It's horrible that it's going for nothing.
+- [29:32.420] We would've never had this problem.
+- [29:33.800] You would've never had that war if I were president,
+- [29:35.600] I guarantee you that.
+- [29:36.800] And for four years you didn't have it. Please.
+- [29:38.260] The Press: Are you hoping to meet with President Putin-
+- [29:40.800] The President: I will be meeting him.
+- [29:42.180] The Press: … in Saudi Arabia?
+- [29:44.650] The President: It's possible, but most likely not.
+- [29:46.700] I think we'll meet with him shortly thereafter then.
+- [29:48.850] The Press: What is President [inaudible]
+- [29:50.140] going to present to the- The President: Please.
+- [29:51.420] The Press: Federal Reserve Chairman Jerome Powell.
+- [29:54.890] During the Biden administration and the campaign
+- [29:57.690] with inflation raging,
+- [29:59.780] he lowered interest rates two times.
+- [30:01.430] The President: That's right.
+- [30:02.810] The Press: Now with two consecutive months of inflation
+- [30:06.060] being down,
+- [30:07.360] all economic theory you learn in the eighth grade
+- [30:10.550] says it's time to cut rates when inflation is down.
+- [30:12.630] The President: You're right.
+- [30:13.840] The Press: He's not done that.
+- [30:15.050] Have you had any direct conversation with him?
+- [30:17.080] The President: No, I haven't. I haven't called him.
+- [30:18.560] I might call him. I haven't called him,
+- [30:21.030] but I believe he's making a mistake
+- [30:22.740] by not lowering interest rates.
+- [30:24.130] And I think as well as we're doing we'd do much better.
+- [30:27.330] He's keeping rates too high.
+- [30:29.840] He historically has been laid except when it came to Biden,
+- [30:33.390] he was recommended by a certain person
+- [30:35.440] that I'm not particularly happy with.
+- [30:38.590] But he will hopefully do the right thing.
+- [30:42.990] The right thing is to lower interest rates.
+- [30:44.500] So we'll see what happens.
+- [30:45.710] I think we're sitting on something
+- [30:47.300] that's going to be very good
+- [30:48.540] with all the tariff money starting to come in,
+- [30:51.470] our country's going to be doing really well
+- [30:53.300] and hopefully he'll be there, we don't have inflation.
+- [30:56.410] Grocers are down.
+- [30:58.020] When I first came in, people were there,
+- [31:00.920] they hit me with the first day that I was president,
+- [31:03.380] somebody started screaming at me that eggs are up.
+- [31:05.950] I said, "I just got here."
+- [31:08.160] And in the first week they were going crazy.
+- [31:09.990] You remember that, Linda?
+- [31:11.220] They were going crazy.
+- [31:12.430] They're saying egg prices are too…
+- [31:14.070] I said, "I'm here for one week. Just leave me alone."
+- [31:18.210] This is the fake news radio.
+- [31:20.060] And I said, "What can I sell you?"
+- [31:22.750] But Brooke Rollins, our secretary of agriculture
+- [31:25.180] and a group working with her, have done an amazing job.
+- [31:27.470] And egg prices have gone down 87%.
+- [31:31.410] Energy now is down $65 a barrel.
+- [31:33.860] They have some energy selling gasoline
+- [31:36.600] for less than $2 in a couple of states, Alabama,
+- [31:39.640] a couple of great states, but all over the country.
+- [31:42.850] It's way down from what it was six months ago,
+- [31:46.770] three months ago.
+- [31:48.350] And that has a lot to do with the war.
+- [31:53.630] When Biden allowed energy to skyrocket, it just skyrocketed.
+- [31:57.560] It was out of control. Russia made a lot more money
+- [32:00.640] because they make their money on energy.
+- [32:02.810] And I kept saying,
+- [32:04.040] "He supposedly wants to end the war,
+- [32:05.610] but he lets energy go out of control."
+- [32:07.870] Well, I've gotten it and we are drilling like crazy right now,
+- [32:11.190] and we have it down to $65 a barrel.
+- [32:14.160] It went up to almost $100 a barrel.
+- [32:17.310] And at that number, Putin and Russia made a lot of money.
+- [32:24.250] Look, I think he has a certain for me,
+- [32:26.620] but one of the big reasons is oil prices are down.
+- [32:29.160] I think this is a good time to get the war settled.
+- [32:30.810] Thank you. Thank you.
+- [32:32.080] The Press: Just one more question.
+- [32:33.310] The President: Thank you for that question.
+- [32:34.510] The Press: For those of us that live here in the district,
+- [32:36.600] you said when you came in,
+- [32:37.840] you were going to make Washington, D.C.
+- [32:39.260] great again.
+- [32:40.470] The President: Right.
+- [32:41.740] The Press: One of the issues we've got right now
+- [32:42.940] is we understand there might be an imminent deal
+- [32:45.390] between the owner of the Washington football team,
+- [32:48.040] whatever you want to call them now,
+- [32:49.510] Commanders and locally in getting the Redskins
+- [32:54.760] back to D.C. in RFK Stadium that's on federal property.
+- [32:57.930] The President: Right.
+- [32:59.130] The Press: Are you going to be involved in that negotiation
+- [33:01.650] and would one of the stipulations
+- [33:03.200] be they change their name back to the Redskins?
+- [33:05.860] The President: Oh, I see.
+- [33:07.760] Well, nobody's asked me that one.
+- [33:11.040] Look, I think the Indian population
+- [33:14.780] is a great part of this country, great heritage,
+- [33:18.820] and we're talking about Massapequa,
+- [33:21.070] Long Island, the Chiefs,
+- [33:22.320] they call themselves the Chiefs or the Kansas City Chiefs.
+- [33:24.880] They're not changing their name, but great team, great people,
+- [33:27.780] great owners, great coach and quarterback.
+- [33:30.920] I love the quarterback, like his girlfriend too.
+- [33:33.790] And his wife.
+- [33:35.540] His wife is great, she's been a big fan.
+- [33:40.910] Quarterback's mother is incredible.
+- [33:42.720] I like that team. They're called the Chiefs.
+- [33:45.070] And frankly, I see nothing wrong with it.
+- [33:48.390] They call them the Warriors and not that team,
+- [33:50.620] but a lot of other teams
+- [33:51.870] and all of these Indian surnames and different names.
+- [33:56.130] And I'm saying that I think that's a positive thing.
+- [33:59.670] And when you go back to Indians,
+- [34:01.210] they told us they don't know why these names are being taken off.
+- [34:06.310] I think it's degrading to the Indian population
+- [34:09.120] and it's a great population
+- [34:11.210] and they like when they're called by various names.
+- [34:14.150] Now, Washington, the Redskins,
+- [34:17.720] perhaps that's a little different,
+- [34:19.330] a little bit different.
+- [34:20.620] But I can tell you that I spoke to people of Indian heritage
+- [34:24.640] that love that name, and they love that team.
+- [34:28.150] And I think it's a superior name to what they have right now.
+- [34:30.920] And it had heritage behind it. It had something special.
+- [34:34.100] But a lot of the names having to do with different places,
+- [34:36.960] not just Indians,
+- [34:38.160] but I think they changed the name of the Cleveland Indians.
+- [34:41.950] Why would you take the name
+- [34:43.160] Indians off the Cleveland Indians?
+- [34:46.350] And now it's called the Cleveland something else, right?
+- [34:48.380] The Press: Guardians.
+- [34:49.660] The President: Guardians.
+- [34:51.240] It just doesn't make sense to me.
+- [34:53.820] So we're about bringing common sense back to this country,
+- [34:57.830] and it may be popular or unpopular, what I'm saying.
+- [35:00.530] And I just said to you, he's a nice guy.
+- [35:02.570] He got a lot out of me on this one.
+- [35:04.060] But I think most people agree with me.
+- [35:07.730] I think it really is demeaning to Indians,
+- [35:10.770] but to change the name of the Cleveland Indians
+- [35:12.910] as an example to the Cleveland Guardians is not the same.
+- [35:17.790] And I'm sure it has an impact on the team. Please.
+- [35:20.140] The Press: Yes, sir. Thank you, sir.
+- [35:21.820] Elon Musk said he'll be stepping back from his work with DOGE
+- [35:24.230] a little bit and will only be dedicating
+- [35:25.810] maybe a day or two, a week to it.
+- [35:27.460] How long would you like to see that continue
+- [35:29.440] and how involved would you like to see him continue to be after?
+- [35:31.460] The President: Well, first of all,
+- [35:32.660] I can't speak more highly about any individual.
+- [35:35.520] He's an incredible guy. He's a brilliant guy.
+- [35:37.740] He's a wonderful person. I've seen him with his family.
+- [35:41.890] I've seen him with a lot of his children.
+- [35:43.540] He's got a lot of children. He treats them good.
+- [35:47.410] He loves his children. But he's a brilliant guy
+- [35:51.550] and he was a tremendous help both in the campaign
+- [35:55.510] and in what he's done with DOGE.
+- [35:58.380] And we're talking about almost $200 billion and rising fast
+- [36:04.200] because many of the things that we were looking at
+- [36:06.420] are now being found out to be fact. It's terrible.
+- [36:11.570] I mean, the fraud, the waste, the abuse,
+- [36:15.350] everything that's happened is just terrible.
+- [36:17.160] So I also know that he was treated very unfairly by the,
+- [36:23.020] I guess you'd call it the public,
+- [36:24.450] by some of the public, not by all of it.
+- [36:26.840] He makes an incredible car,
+- [36:28.200] makes everything he does is good,
+- [36:30.140] but they took it out on Tesla.
+- [36:33.400] And I just thought it was so unfair
+- [36:35.710] because he's trying to help the country,
+- [36:37.750] but he has helped the country. I also want him to make sure
+- [36:40.620] that he's going to be in great shape,
+- [36:42.390] and I know he is. I mean, he's going to do great.
+- [36:45.830] He loves the country. He didn't need to do this.
+- [36:48.010] He did it. And I told him, I said, "Whenever you're ready,"
+- [36:53.070] I'd like to keep him for a long time,
+- [36:55.170] but, "Whenever you're ready." He's an exceptional guy.
+- [36:57.890] When you see those rockets go up
+- [36:59.460] and come back and land in the same gantry,
+- [37:02.480] nobody else can do that but this man.
+- [37:05.670] He's just an incredible person and he's a friend of mine,
+- [37:08.550] and he's a nice person too. He's a very nice person.
+- [37:10.750] He really helped the country, he saved us a lot of money.
+- [37:13.450] And I heard him say that he'll start easing,
+- [37:17.770] he was always at this time, going to ease out.
+- [37:20.960] And when he goes back to Tesla, that'll be taken care of.
+- [37:25.000] It's artificial. These were sick people
+- [37:27.040] that thought they were doing something.
+- [37:29.900] He's a great patriot and it shouldn't be the way
+- [37:36.720] that should never have happened to him.
+- [37:38.960] I will tell you right now, he makes a great product.
+- [37:41.980] He makes a great product.
+- [37:43.290] It's a great car, it's great everything.
+- [37:45.040] Starlink is great. What he does is good.
+- [37:47.940] He's doing medical things that are amazing
+- [37:51.110] and we have to at some point let him go and do that.
+- [37:55.280] And we expect him to be doing it about this time.
+- [37:58.700] But I'll talk to Elon about it. Thank you for the questions.
+- [38:02.430] The Press: A second question,
+- [38:04.600] Canada has an election coming up.
+- [38:06.170] Do you have a prediction for that
+- [38:07.530] and what do you think the results of that-
+- [38:08.910] The President: With respect to Canada?
+- [38:10.150] The Press: With the negotiations?
+- [38:11.350] The President: Oh, I don't want to predict
+- [38:12.570] other nations elections.
+- [38:15.020] It's tough enough doing this one.
+- [38:18.640] Look, I love the Canadian people.
+- [38:21.450] I like Canada, but it's costing us $200 billion
+- [38:26.820] a year to support Canada, $ 200 million.
+- [38:30.080] And I say, why are we doing that?
+- [38:31.900] We can make our own cars.
+- [38:33.860] We have more energy than they do.
+- [38:35.670] We have more energy than anybody in the world.
+- [38:38.480] We don't need their lumber, obviously.
+- [38:40.060] We have more lumber. We have a lot of lumber.
+- [38:42.960] We have a lot of everything that they sell us,
+- [38:45.720] but in particular cars,
+- [38:47.140] they took a large percentage of the car making,
+- [38:49.860] and I want to bring it back to this country.
+- [38:51.420] I really don't want cars from Canada.
+- [38:53.800] So when I put tariffs on Canada, they're paying 25%,
+- [38:56.840] but that could go up in terms of cars.
+- [39:00.720] When we put tariffs on, all we're doing is we're saying
+- [39:04.660] we don't want your cars, in all due respect,
+- [39:07.960] we want really to make our own cars,
+- [39:09.960] which is what we're doing in record numbers now.
+- [39:12.110] We're going to be at record levels in a very near future
+- [39:14.660] because of all the car plants that are being built.
+- [39:18.320] And I'd rather see them made in Michigan
+- [39:20.060] and made in South Carolina and made in different states.
+- [39:24.400] Tennessee.
+- [39:26.050] We have a lot of great car making states.
+- [39:28.580] We have some that aren't car-making yet,
+- [39:30.390] but they will soon be car-making states,
+- [39:32.860] and that's what I want to see for our country.
+- [39:35.860] At the same time, I want to help Canada.
+- [39:39.700] I have spoken to the current prime minister.
+- [39:43.050] He was very, very nice, I will say, very nice.
+- [39:45.350] We had a couple of very nice conversations, very good,
+- [39:48.480] but I don't think it's appropriate for me
+- [39:50.550] to get involved in their election.
+- [39:52.170] The Press: Mr. President, if I may,
+- [39:54.890] this deal that you have with Russia,
+- [39:56.710] does it include recognizing Russia's sovereignty
+- [40:00.610] over Crimea?
+- [40:02.790] The President: Well, everything is good.
+- [40:04.710] Look, I just want to see the war end.
+- [40:06.820] I don't care as to what…
+- [40:08.060] If they're both happy, they both signed an agreement.
+- [40:11.810] I have no favorites.
+- [40:13.090] I don't want to have any favorites,
+- [40:14.420] I want to have a deal done. I want to save the lives.
+- [40:17.200] Now with that being said, we're spending
+- [40:20.170] hundreds of billions of dollars through Biden.
+- [40:23.530] Biden should have never let that war happen.
+- [40:25.830] We're spending hundreds of billions,
+- [40:27.560] maybe $350 billion, we've given to Ukraine.
+- [40:32.280] And we could use that money right here.
+- [40:34.670] So I'd like to see that.
+- [40:35.930] But most importantly right now is when I see the pictures,
+- [40:39.680] the satellite pictures of the battlefield,
+- [40:42.850] if I can stop that because of an ability I have to do things,
+- [40:47.330] I want to see if I can do that. Kim.
+- [40:49.270] The Press: Mr. President, on tariffs,
+- [40:50.820] you just mentioned that 25%
+- [40:53.410] could go up on cars in terms of Canada.
+- [40:55.380] Does that mean that you're considering changes
+- [40:57.710] to the auto tariffs and auto parts?
+- [40:59.060] The President: No, we're not considering it now,
+- [41:00.290] but at some point it could go up.
+- [41:01.750] Yeah, because again, we don't really want Canada
+- [41:04.540] to make cars for us to put it bluntly.
+- [41:07.810] We want to make our own cars,
+- [41:09.550] and we're now equipped to do that.
+- [41:12.070] They took a lot of our car business, Mexico too,
+- [41:14.490] took a lot of our car business. We want to make the cars here.
+- [41:17.170] I'm running this country, I'm not running Canada.
+- [41:20.180] And that's why I asked Trudeau,
+- [41:24.020] who I call Governor Trudeau affectionately,
+- [41:26.500] but I asked him, " Why are we spending $200 billion
+- [41:31.990] to support Canada, to subsidize Canada?"
+- [41:34.270] And he was unable to answer the question.
+- [41:36.260] Why are we doing that?
+- [41:37.890] And I have to be honest, as a state,
+- [41:41.930] it works great, as a nation,
+- [41:45.170] considering the fact that most of the nation,
+- [41:48.120] 95% of Canada, what they do is they buy from us
+- [41:51.760] and they sell to us. They sell to us.
+- [41:55.210] If we didn't buy their oil, if we didn't buy their…
+- [41:57.460] And we don't need their oil, we have more oil than anyone.
+- [42:00.830] But we don't need their oil, we don't need their lumber,
+- [42:02.720] we don't need their cars, we don't need anything.
+- [42:04.930] So I said, "Why are we doing this?
+- [42:06.690] Why are we spending $200 billion?
+- [42:08.750] It doesn't make sense." If we needed something,
+- [42:10.690] that would be a different subject.
+- [42:13.500] So I'm working well with Canada, we're doing very well.
+- [42:17.960] We're working on a deal. We'll see what happens.
+- [42:21.300] But again, why… representing this country,
+- [42:25.110] why are we spending $200 billion
+- [42:29.120] to support and subsidize another country?
+- [42:33.870] Because if they didn't have us,
+- [42:36.190] and if we didn't spend that money,
+- [42:38.580] as Trudeau told me, they would cease to exist.
+- [42:41.260] He said that to me. They would cease to exist,
+- [42:43.280] which is true certainly as a country.
+- [42:46.750] The Press: On tourism, there's been a steep drop-off
+- [42:49.810] in international travel to the United States,
+- [42:52.200] it was down 12% last month,
+- [42:54.970] down even more from Western Europe.
+- [42:57.130] Why do you think that there are fewer people
+- [43:00.040] suddenly who want to travel to the United States?
+- [43:02.090] The President: Well, there could be a little na…
+- [43:03.690] There's a little nationalism there,
+- [43:05.480] I guess, perhaps, it's not a big deal,
+- [43:07.460] but with the dollar being where it is,
+- [43:09.930] because China would always fight for having a low dollar,
+- [43:15.570] Japan would always fight for having a low dollar,
+- [43:18.700] meaning a low yen or in the case of China, the yuan.
+- [43:22.660] They'd always want to have… China would always…
+- [43:24.450] I'd speak to President Xi a lot, I'd say,
+- [43:26.330] "It's unfair that your yuan is so low."
+- [43:30.380] I'd call up a great man, Prime Minister Abe, great man,
+- [43:36.200] Shinzo, who was unfortunately assassinated,
+- [43:40.860] and I used to tell… he was a good friend of mine.
+- [43:42.720] I used to say, "Shinzo, you can't let your yen go down.
+- [43:46.390] It makes it very hard for us to sell tractors.
+- [43:48.420] It makes it very hard for us to get tourism."
+- [43:51.300] And our dollar is a little bit on the low side,
+- [43:55.480] and that means that a lot of tourism is going to come in.
+- [43:58.460] But I could see a little bit nationalism at work.
+- [44:01.150] And I can see it likewise with us
+- [44:03.270] not wanting to go to certain countries,
+- [44:05.390] but that'll work out very easily.
+- [44:07.910] The Press: Do you think some people are scared to come here
+- [44:10.160] because they hear the stories of tourists
+- [44:12.240] who are detained for a few days or even a week or two?
+- [44:16.490] The President: No. No, we treat our tourists great.
+- [44:19.180] We're the tourism capital of the world.
+- [44:21.730] There's nobody, no place like this.
+- [44:23.480] And there may be a little bit of nationalism,
+- [44:27.180] but I doubt it. I actually doubt it. Yeah.
+- [44:28.810] The Press: Mr. President,
+- [44:30.070] has there been any direct contact
+- [44:31.650] between the U.S. and China on trade at all?
+- [44:34.480] The President: Yeah, of course. Every day.
+- [44:37.190] The Press: Every day.
+- [44:38.490] And then secondly, would you support a millionaire tax?
+- [44:42.240] The President: I think it would be very disruptive
+- [44:44.830] because a lot of the millionaires
+- [44:46.600] would leave the country.
+- [44:48.120] In the old days they left states,
+- [44:49.700] they'd go from one state to the other.
+- [44:51.770] Now, with transportation so quick and so easy,
+- [44:54.240] they leave countries.
+- [44:55.490] You'll lose a lot of money if you do that.
+- [44:57.320] That would… And other countries that have done
+- [44:59.630] it have lost a lot of people. They lose their wealthy people.
+- [45:02.620] That would be bad because the wealthy people pay the tax.
+- [45:04.740] Okay.
+- [45:06.080] The Press: Sir, how did the talks today go in London?
+- [45:10.300] Do you think that the asks from Ukraine and
+- [45:13.090] [inaudible]-
+- [45:14.290] The President: I think they went well.
+- [45:16.140] We've got to get two people, two strong people,
+- [45:19.020] two smart people to agree.
+- [45:21.530] And as soon as they agree, the killing will stop.
+- [45:24.460] But yeah, I think they went well, pretty well.
+- [45:26.900] The Press: Mr. President, we understand
+- [45:28.900] that your Economic Team, many of them are here today.
+- [45:32.430] JD Vance has negotiated
+- [45:34.250] what's been called a monster trade deal with India,
+- [45:38.070] biggest one ever. Can you share with us
+- [45:40.270] what some of the framework of that might be?
+- [45:42.890] The President: You said England?
+- [45:44.160] The Press: India.
+- [45:45.360] The President: India? The Press: India.
+- [45:46.570] The President: Oh.
+- [45:50.310] They're not very complicated these deals.
+- [45:52.920] It's about the tariffs.
+- [45:54.230] India charges almost more than any other country in the world.
+- [45:58.270] And believe it or not, we do very little business with India.
+- [46:00.690] Other than the fact that I like the prime minister very much.
+- [46:04.650] He's a friend of mine,
+- [46:06.000] he was here two weeks ago, as you know.
+- [46:08.750] And we stood right outside, did a news conference.
+- [46:11.110] Unfortunately, the grass was very wet
+- [46:13.130] and it was very hard for people to stand on the grass.
+- [46:16.060] They got their shoes all ruined.
+- [46:19.240] But other than that, it was a very good news conference
+- [46:21.850] and he's a great guy, but we do very little business.
+- [46:24.550] You know why? Because their tariffs are so high.
+- [46:26.760] They have among the highest tariffs, higher than China.
+- [46:29.790] They have among the highest tariffs in the world.
+- [46:33.250] And I understand they're going to reduce those tariffs,
+- [46:35.910] but it's really sort of their problem, not ours.
+- [46:40.430] We do very, very little purchasing in India
+- [46:43.710] because their tariffs…
+- [46:45.050] and selling, we do very little selling.
+- [46:48.080] Harley Davidson, I said, "How are you doing in India?"
+- [46:50.540] This is about six years ago.
+- [46:53.590] They came to lunch as a great American company,
+- [46:57.140] they make the motorcycles.
+- [46:58.460] And I said, "How are you doing in India as an example?"
+- [47:01.280] "Well, we don't do any business there."
+- [47:02.960] "Why?" "Because their tariffs are too high."
+- [47:05.600] I said, "That's interesting. Well, what are you going to do?"
+- [47:07.980] He said, "Well, we're going to build a plant in India."
+- [47:09.980] And that's what they did. I don't want that to happen.
+- [47:13.580] They were forced to build a plant.
+- [47:14.810] Well, essentially what we're doing is same thing.
+- [47:17.050] Remember, there's no tariff when they build their plant here
+- [47:21.090] and everybody wants to build because they don't want…
+- [47:22.900] And the higher the tariffs go,
+- [47:25.080] the more likely it is they come in and build a plant.
+- [47:28.580] If it's 25%, that's fine.
+- [47:30.330] If it's 50%, you'll get more plants.
+- [47:32.340] 75, you get more. And 100, you get more than that.
+- [47:36.090] And they're all coming in at numbers that nobody's…
+- [47:38.290] I don't think, Howard,
+- [47:39.570] there's ever been numbers like we've seen.
+- [47:40.850] The Press: No.
+- [47:42.120] The President: $7, 8 trillion worth in two months
+- [47:45.880] because it took me a month to get started in all fairness,
+- [47:49.390] but in two months we did this.
+- [47:53.040] And now we're coming up on 100 days, first 100 days,
+- [47:57.070] and I think we're going to be close to $8 trillion.
+- [48:00.500] There was never any president
+- [48:02.230] that did even a tiny percentage of that.
+- [48:05.010] Okay. Any other questions?
+- [48:06.300] The Press: Sure. Well, you have a deal signed,
+- [48:07.980] one of the deals signed by your 100-day mark,
+- [48:10.410] and China is saying that we're threatening
+- [48:12.530] and blackmailing them into a deal.
+- [48:14.670] What would be your response to that?
+- [48:16.140] The President: Well, China, look,
+- [48:17.340] I have great relationships in China,
+- [48:19.280] with President Xi in particular,
+- [48:20.810] but China has been charging us massive tariffs for many years.
+- [48:24.150] That's one of the reasons they were able to steal
+- [48:26.010] so many of our companies.
+- [48:28.120] They took our companies out of America
+- [48:30.860] and they built their plants in China.
+- [48:33.550] And one of those things, so now we're reversing it,
+- [48:38.500] but at levels that nobody's ever seen before.
+- [48:40.690] No, we're going to get along great with China.
+- [48:42.430] I have no doubt about it. Thank you very much, everybody.
+- [48:45.250] Thank you.

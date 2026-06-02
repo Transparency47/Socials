@@ -1,0 +1,105 @@
+<!-- source: https://www.youtube.com/watch?v=4fwqBgAhZPo -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 4fwqBgAhZPo -->
+<!-- date_published: 2026-04-12T01:39:13+00:00 -->
+<!-- date_accessed: 2026-06-02T02:35:15.430778+00:00 -->
+
+# Transcript: Vice President JD Vance Delivers Remarks in Islamabad, Pakistan
+
+- [40:27.491] The Vice President: Well, good morning, everybody.
+- [40:29.193] And let me say a couple of notes of appreciation,
+- [40:31.862] first of all, to the Prime Minister of Pakistan and
+- [40:34.965] to Field Marshall Meniere, who were both incredible
+- [40:38.169] hosts.
+- [40:39.403] And whatever shortcomings of the negotiation, it
+- [40:41.872] wasn't because of the Pakistanis who did an
+- [40:43.941] amazing job and really tried to help us and the
+- [40:47.378] Iranians bridge the gap and get to a deal.
+- [40:51.081] We have been at it now for 21 hours and we've had a
+- [40:55.886] number of substantive discussions with the
+- [40:58.022] Iranians.
+- [40:58.823] That's the good news.
+- [40:59.890] The bad news is that we have not reached an
+- [41:01.959] agreement, and I think that's bad news for Iran
+- [41:04.061] much more than it's bad news for the United States
+- [41:05.696] of America.
+- [41:06.964] So we go back to the United States having not
+- [41:09.333] come to an agreement.
+- [41:10.634] We've made very clear what our red lines are, what
+- [41:13.137] things we're willing to accommodate them on, and
+- [41:15.072] what things we're, we're not willing to accommodate
+- [41:16.540] them on.
+- [41:17.808] And we've made that as clear as we possibly
+- [41:20.344] could, and they have chosen not to accept our
+- [41:23.047] terms.
+- [41:24.615] Questions?
+- [41:26.450] The Press: Sir Nick Robinson from CNN.
+- [41:28.519] Precisely, what have they rejected here?
+- [41:32.089] Can you, can you help us understand it a little
+- [41:33.924] bit?
+- [41:35.392] The Vice President: Well, I won't go into all the
+- [41:36.861] details because I don't want to negotiate in
+- [41:38.662] public after we negotiated for 21 hours in private.
+- [41:41.999] But the simple fact is that we need to see an
+- [41:44.201] affirmative commitment that they will not seek a
+- [41:47.605] nuclear weapon, and they will not seek the tools
+- [41:50.040] that would enable them to quickly achieve a nuclear
+- [41:52.543] weapon.
+- [41:53.510] That is the core goal of the President of the
+- [41:55.012] United States, and that's what we've tried to
+- [41:56.747] achieve through these negotiations.
+- [41:58.849] Again, their nuclear programs, such as it is,
+- [42:02.219] the enrichment facilities that they've, that they
+- [42:04.288] had before, they've been destroyed.
+- [42:07.324] But the simple question is, do we see a
+- [42:09.393] fundamental commitment of will for the Iranians not
+- [42:13.497] to develop a nuclear weapon, not just now, not
+- [42:15.733] just two years from now, but for the long term?
+- [42:18.002] We haven't seen that yet.
+- [42:18.669] We hope that we will.
+- [42:19.169] Jen.
+- [42:20.804] The Press: Was there a framework on anything and
+- [42:22.172] also did the Iranian frozen assets come up and
+- [42:24.875] did you reach any conclusions on, on, on
+- [42:26.677] those frozen assets?
+- [42:27.745] The Vice President: We talked about all those
+- [42:28.679] issues, Jen, and we talked about a number of issues
+- [42:31.548] beyond that.
+- [42:32.616] And so certainly those things came up, but again,
+- [42:34.585] we just could not get to a situation where
+- [42:38.722] the Iranians were willing to accept our terms.
+- [42:41.258] I, I think that we were quite flexible.
+- [42:43.060] We were quite accommodating.
+- [42:44.328] The President told us, "You need to come here in
+- [42:46.397] good faith and make your best effort to get a
+- [42:48.799] deal." We did that.
+- [42:51.068] And unfortunately, we weren't able to make, um,
+- [42:53.704] make any headway.
+- [42:54.371] Preston.
+- [42:55.973] The Press: I think, Mr. Vice President, how
+- [42:57.374] often did you communicate with President Trump
+- [42:58.475] throughout the negotiations?
+- [42:59.610] There were reports that there were multiple rounds
+- [43:02.780] where there were breaks in between negotiations.
+- [43:04.982] How often did you communicate with the
+- [43:06.283] President throughout those rounds and what was he
+- [43:08.419] saying as you were going through these negotiations
+- [43:10.254] that you said fell short?
+- [43:11.822] The Vice President: Yeah, obviously we were, we were
+- [43:13.123] talking to the President consistently.
+- [43:14.925] Um, I don't know how many times we talked to him, a
+- [43:16.627] half dozen times, a dozen times over the past 21
+- [43:18.562] hours.
+- [43:19.630] We obviously also talked to Admiral Cooper, to
+- [43:21.699] Pete, to Marco to the entire national security
+- [43:24.201] team.
+- [43:25.069] We talked to Scott Bessent a number of times.
+- [43:26.603] So look, we were constantly in
+- [43:28.072] communication with the team because we were
+- [43:30.207] negotiating in good faith.
+- [43:31.976] And we leave here and we leave here with a very
+- [43:35.980] simple proposal, a method of understanding that is
+- [43:39.283] our final and best offer.
+- [43:42.720] We'll see if the Iranians accept it.
+- [43:44.054] Thank you.

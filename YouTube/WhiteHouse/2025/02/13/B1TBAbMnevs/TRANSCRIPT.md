@@ -1,0 +1,763 @@
+<!-- source: https://www.youtube.com/watch?v=B1TBAbMnevs -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: B1TBAbMnevs -->
+<!-- date_published: 2025-02-13T23:50:43+00:00 -->
+<!-- date_accessed: 2026-06-02T02:53:49.957610+00:00 -->
+
+# Transcript: President Trump Hosts a Press Conference with Prime Minister Narendra Modi
+
+- [00:09.370] President Trump: Thank you very much, please.
+- [00:13.790] A great honor.
+- [00:17.600] I'm thrilled to welcome the Prime Minister of India,
+- [00:20.960] my friend, Narendra Modi, back to The White House,
+- [00:25.830] and we spent a lot of time here
+- [00:27.240] and a lot of time in India and he's a very special man.
+- [00:31.860] Prime Minister, it is a pleasure to extend to you
+- [00:34.530] the same hospitalality that you showed Melania and myself
+- [00:40.110] to your beautiful country five years ago.
+- [00:42.120] It's hard to believe so long ago,
+- [00:43.810] and it seemed like yesterday. It was beautiful.
+- [00:46.790] We opened a cricket stadium, 129,000 seats.
+- [00:50.280] The largest stadium in the world
+- [00:52.880] and it was an incredible period of time.
+- [00:56.370] There is truly a special bond
+- [00:58.350] between the United States and India,
+- [01:00.690] the world's oldest democracy
+- [01:02.370] and the world's largest democracy
+- [01:05.200] and I believe the world's largest country
+- [01:07.510] in terms of the numbers of people.
+- [01:09.960] And today, the Prime Minister and I
+- [01:12.100] are announcing a framework to strengthen
+- [01:14.970] those ties even further economically.
+- [01:17.090] And the US-India Compact with the 21st century
+- [01:20.830] is a historic initiative that will deepen every aspect
+- [01:25.080] of our partnership and our friendship.
+- [01:27.370] Starting this year,
+- [01:28.740] we'll be increasing military sales to India
+- [01:31.660] by many billions of dollars.
+- [01:33.700] We're also paving the way to ultimately provide India
+- [01:36.780] with the F-35 Stealth fighters.
+- [01:40.660] In 2017, my administration revived
+- [01:44.320] and reinvigorated the Quad Security Partnership.
+- [01:48.420] In our meeting today, the Prime Minister and I
+- [01:51.330] reaffirmed that strong cooperation
+- [01:53.790] among the United States, India, Australia, and Japan
+- [01:57.800] and it's crucial really to maintain peace and prosperity,
+- [02:01.200] tranquility even in the Indo-Pacific.
+- [02:06.110] In addition, the United States and India
+- [02:08.360] will be working together like never before to confront
+- [02:11.520] the threat of radical Islamic terrorism,
+- [02:14.690] a threat all over the world actually.
+- [02:17.250] Today I'm pleased to announce that my administration
+- [02:19.740] has approved the extradition of one of the plotters
+- [02:22.780] and one of the very evil people of the world
+- [02:26.530] and having to do with the horrific 2008 Mumbai
+- [02:32.550] terrorist attack to face justice in India.
+- [02:36.170] So he's going to be going back to India to face justice.
+- [02:41.640] As we deepen our defense partnership,
+- [02:44.470] we'll also strengthen our economic ties
+- [02:46.680] and bring greater fairness and reciprocity
+- [02:49.550] to our trading relationship.
+- [02:51.720] As a signal of good faith, Prime Minister Modi recently
+- [02:54.810] announced the reductions to India's unfair,
+- [02:59.900] very strong tariffs that limit US access
+- [03:02.880] into the Indian market very strongly
+- [03:05.050] and really it's a big problem, I must say.
+- [03:08.580] India imposes a 30% to 40% to 60%
+- [03:13.760] and even 70% tariff on so many of the goods,
+- [03:17.120] and in some cases far more than that.
+- [03:18.940] And as an example, a 70% tariff on US cars going into India,
+- [03:23.790] which makes it pretty much impossible to sell those cars.
+- [03:27.570] Today, the US trade deficit with India
+- [03:30.400] is almost $100 billion dollars and Prime Minister Modi
+- [03:34.930] and I have agreed that we'll begin negotiations
+- [03:38.330] to address the long-running disparities
+- [03:40.670] that should have been taken care of over the last four years
+- [03:43.090] but they didn't do that in the US-India trading relationship
+- [03:47.120] with the goal of a signing an agreement
+- [03:51.570] and really we want a certain level playing field,
+- [03:57.070] which we really think we're entitled to
+- [03:59.470] and he does also in fairness.
+- [04:01.810] We're going to work on that very hard
+- [04:03.220] and we can make up the difference very easily
+- [04:05.210] with the deficit, with the sale of oil and gas,
+- [04:08.680] LNG, of which we have more than anybody in the world.
+- [04:12.750] The Prime Minister and I also reached
+- [04:14.300] an important agreement on energy
+- [04:15.900] that will restore the United States
+- [04:18.450] as a leading supplier of oil and gas to India.
+- [04:22.010] We'll be hopefully their number one supplier.
+- [04:24.470] In the groundbreaking development
+- [04:26.650] for US nuclear industry, India is also reforming its laws
+- [04:30.730] to welcome US nuclear technology,
+- [04:32.910] which is at the highest level into the Indian market.
+- [04:36.700] This will bring safe, clean, and affordable electricity
+- [04:39.460] to millions of Indians and tens of billions of dollars
+- [04:42.980] to the US civilian nuclear industry in India.
+- [04:47.840] And under the framework we are announcing today,
+- [04:50.550] the United States and India are also joining forces
+- [04:53.360] to ensure that artificial intelligence
+- [04:56.060] and other advanced technologies are developed
+- [04:59.030] by the two of the most advanced nations intellectually
+- [05:05.790] and otherwise technologically anywhere in the world.
+- [05:09.030] There's nobody very much closer.
+- [05:11.560] We have an incredible relationship there
+- [05:13.930] and this is where it seems to be heading.
+- [05:17.590] And artificial intelligence, a very complex subject,
+- [05:22.320] but it seems to be where people want to be
+- [05:24.320] and they want to go and we're leading right now by a lot,
+- [05:28.360] but other people will try to catch us.
+- [05:30.710] I don't know if they're going to be able to.
+- [05:32.320] We're going to make it available.
+- [05:33.580] We're going to make tremendous amounts
+- [05:34.930] of electricity available.
+- [05:37.030] We're going to let the people that are buying the electricity
+- [05:40.430] make their own electric plants, electric generation plants,
+- [05:45.110] and we've never done this in our country,
+- [05:47.040] but we're going to get it done very quickly.
+- [05:48.540] Lee Zeldin and his group are going to get the approvals
+- [05:51.830] in very rapid form
+- [05:53.990] and we're calling it a national emergency,
+- [05:57.140] and that's exactly what it is.
+- [05:58.630] So we're going to remain at the top of the AI
+- [06:02.280] or artificial intelligence, I think for a long time to come.
+- [06:05.200] And we're going to be working very closely with India
+- [06:08.050] and other countries on that,
+- [06:10.370] but right now we're a leader by quite a bit.
+- [06:12.330] Finally, we agreed to work together to help build
+- [06:15.150] one of the greatest trade routes in all of history.
+- [06:19.670] It will run from India to Israel to Italy
+- [06:22.240] and onward to the United States,
+- [06:23.920] connecting our partners by ports, railways,
+- [06:27.030] and undersea cables.
+- [06:29.050] Many, many undersea cables. It's a big development.
+- [06:32.960] It's a lot of money going to be spent
+- [06:35.140] and we've already spent some,
+- [06:37.570] but we're going to be spending a lot more for them
+- [06:39.670] to stay advanced and stay the leader.
+- [06:42.760] I'm pleased to report that with today's announcements,
+- [06:46.120] the friendship between the United States and India
+- [06:48.410] is the strongest I believe it's ever been.
+- [06:50.590] I think our relationship is the best it's ever been
+- [06:52.930] between two leaders of the two countries
+- [06:56.130] and it's an honor to say that.
+- [06:57.500] I'd like to now invite the Prime Minister to say a few words
+- [07:00.450] and then we'll take some questions
+- [07:02.700] and we appreciate you all being here.
+- [07:05.480] Thank you very much.
+- [07:18.520] Prime Minister Modi: Your Excellency, President Trump,
+- [07:24.750] delegates of both countries,
+- [07:27.560] friends from the media, Namaskar,
+- [07:32.850] I would like to first of all express
+- [07:40.270] my heartfelt gratitude to my dear friend,
+- [07:45.030] President Trump,
+- [07:46.740] for the grand welcome and hospitality accorded to me.
+- [07:51.370] President Trump's leadership has been instrumental
+- [07:58.360] in nurturing India-U.S and making them vibrant.
+- [08:06.060] I could feel today the same enthusiasm, the same energy,
+- [08:16.750] the same commitment that we had worked with
+- [08:20.530] during our first term.
+- [08:26.120] Our discussions today highlighted pride
+- [08:33.370] in our accomplishments during his first term,
+- [08:38.150] the deep mutual trust that we share,
+- [08:42.650] and the resolve to attain new goals.
+- [08:50.720] We all believe that the partnership and cooperation
+- [08:58.650] between India and the US can shape a better word.
+- [09:02.510] Friends, the people of America
+- [09:07.380] are aware of President Trump's motto,
+- [09:12.210] Make America Great Again or MAGA, the people of America.
+- [09:20.680] The people of India too are focusing on both heritage
+- [09:29.240] and development as they move forward
+- [09:34.600] at a fast pace with a firm resolve
+- [09:39.440] and ensure a developed India by 24/7.
+- [09:44.680] If I were to say this, borrowing an expression from America,
+- [09:51.130] our vision for a developed India
+- [09:53.800] is to make India great again or MIGA.
+- [10:01.500] When America and India work together, that is when MAGA,
+- [10:10.990] when it's MAGA plus MIGA, it becomes MEGA,
+- [10:18.870] a MEGA partnership for prosperity.
+- [10:22.730] And it's this MEGA spirit that gives new scale
+- [10:32.300] and scope to our objectives.
+- [10:35.110] Friends, today we have also set ourselves
+- [10:42.120] the target of more than doubling our bilateral trade
+- [10:48.770] to attain $500 billion by 2030.
+- [10:55.490] Our teams will work on concluding very soon
+- [11:02.640] a mutually beneficial trade agreement.
+- [11:08.440] In order to ensure India's energy security,
+- [11:13.880] we will focus on trade in oil and gas.
+- [11:20.370] Investment in energy infrastructure
+- [11:23.800] will also increase in the area of nuclear energy.
+- [11:28.800] We also discussed increasing cooperation
+- [11:33.530] on small modular reactors.
+- [11:36.160] Friends, America plays an important role
+- [11:44.330] in India's defense preparedness.
+- [11:48.940] As strategic and trusted partners,
+- [11:52.600] we are moving forward actively towards joint development,
+- [11:58.350] joint production, and transfer of technology.
+- [12:04.810] In the times to come as well, new technologies and equipment
+- [12:11.700] will enhance our capacities.
+- [12:17.070] We have decided to launch the autonomous systems
+- [12:21.460] industry alliance.
+- [12:25.050] A defense cooperation framework for the next decade
+- [12:29.790] will be prepared.
+- [12:34.110] Interoperability, logistics, repair,
+- [12:39.310] and maintenance will also be its key components.
+- [12:46.020] When the 21st century is a technology-driven century,
+- [12:53.290] close cooperation in the area of technology,
+- [12:57.790] which we are countries that believe in democratic values
+- [13:02.630] can give new direction, strength,
+- [13:07.140] and opportunities to the entire humanity.
+- [13:12.370] India and the US will jointly work in areas
+- [13:17.160] of artificial intelligence, semiconductors,
+- [13:21.310] quantum, biotechnology, and several other technologies.
+- [13:27.890] Today, we also agreed on TRUST,
+- [13:33.230] which stands for Transforming Relationships
+- [13:37.330] Utilizing Strategic Technology.
+- [13:41.950] Under this, our focus will be
+- [13:46.790] on establishing strong supply chains for critical minerals,
+- [13:52.010] advanced materials, and pharmaceuticals.
+- [13:56.830] We have also decided to launch a recovery
+- [14:05.090] and processing initiative for strategic minerals
+- [14:09.080] like lithium and rare earths.
+- [14:13.420] We have had close cooperation with the US
+- [14:19.300] in the area of space.
+- [14:23.920] The NISAR satellite, developed with mutual cooperation
+- [14:28.530] between Israel and NASA,
+- [14:30.860] will soon be flying into space on an Indian launch vehicle.
+- [14:36.030] Friends, partnership between India
+- [14:39.550] and the US strengthens democracy,
+- [14:44.260] and strengthens democratic values and systems.
+- [14:51.600] We will work together to enhance peace,
+- [14:55.170] stability, and prosperity in the Indo-Pacific.
+- [15:01.690] The Quad will play a special role in this.
+- [15:07.320] During the Quad summit,
+- [15:09.100] scheduled to be held in India this year,
+- [15:12.340] we will expand cooperation in new areas
+- [15:15.770] with our partner countries.
+- [15:19.060] Under the IMEEC and I2U2, we will work together
+- [15:27.090] for the development of economic corridors,
+- [15:30.770] and in the area of connectivity.
+- [15:34.000] India and US will stand strongly together
+- [15:38.690] in the fight against terrorism.
+- [15:43.060] We agree that in order
+- [15:47.540] to eliminate cross-border terrorism,
+- [15:50.620] we need concrete actions,
+- [15:53.970] and I'm very grateful to President Trump
+- [15:57.510] that in 2008,
+- [16:02.790] somebody who carried out genocide in India,
+- [16:05.430] that criminal is now going to be handed over to India,
+- [16:08.660] and I'm grateful to President Trump for this,
+- [16:11.350] and appropriate action will be taken in the courts in India.
+- [16:15.610] Friends, the Indian community living in the US
+- [16:22.360] is an important link in our relations.
+- [16:26.110] In order to further deepen our people-to-people ties,
+- [16:31.480] India will soon open new consulates
+- [16:35.330] in Los Angeles and Boston. These will be new consulates.
+- [16:42.730] We have invited some American educational institutes
+- [16:48.730] to open their offshore campuses in India.
+- [16:54.450] President Trump, I am grateful to you for your friendship
+- [17:02.080] and strong commitment towards India.
+- [17:07.820] The people of India still fondly remember your visit in 2020,
+- [17:16.000] and hope that President Trump will come and visit them again.
+- [17:24.800] On behalf of 1.4 billion Indians,
+- [17:29.540] I invite you to visit India. Thank you. Thank you very much.
+- [17:37.160] President Trump: Thank you very much.
+- [17:40.590] Great job. Okay, thank you very much.
+- [17:45.160] That was excellent. We'll do a few questions, please.
+- [17:48.590] The Press: Mr. President?
+- [17:49.790] Mr. President?
+- [17:51.010] President Trump: Please, go ahead.
+- [17:52.210] Please, go ahead. Yeah. Yeah, blue shirt.
+- [17:59.030] The Press: Thank you, Mr. President.
+- [18:00.740] People in India will naturally welcome your decision
+- [18:03.220] to extradite Tahawwur Rana to India back home.
+- [18:06.250] In that context, I'd like to ask you a question
+- [18:08.140] about in the last few years, we have seen several groups
+- [18:10.760] in the US been raising anti-India voice,
+- [18:14.710] calling about separation… Terrorism activities in India.
+- [18:17.990] Do you think that should continue here in the US as well?
+- [18:20.350] President Trump: You're going to have to go louder.
+- [18:23.500] The Press: Mr. President, people in India
+- [18:24.700] will be welcoming your decision
+- [18:26.050] to extradite Tahawwur Rana to India-
+- [18:27.820] President Trump: Yeah, I can't understand a word he's saying.
+- [18:29.650] It's the accent, it's a little bit tough for me.
+- [18:33.210] The Press: Can I try?
+- [18:34.500] President Trump: How about you? Please. Go ahead, back there.
+- [18:36.220] The Press: Mr. President, thank you.
+- [18:37.870] First, I want to ask the prime minister a question.
+- [18:41.300] You and the president, you both spoke about combating ISIS.
+- [18:44.650] You both sounded very excited about this,
+- [18:46.760] excited about this partnership upcoming.
+- [18:50.600] And I was curious, how much more confident
+- [18:53.850] are you with President Trump leading this country
+- [18:57.290] that there will be peace through strength
+- [18:59.600] and you will have a successful partnership with United States,
+- [19:03.680] versus with Biden's incompetence and weakness
+- [19:09.720] over the last four years?
+- [19:18.890] President Trump: That's your question, but I'll answer it.
+- [19:20.630] I agree with you. Yeah, gross incompetence.
+- [19:24.640] We're going to have a fantastic relationship.
+- [19:27.460] And it has been like the whole world's been set back
+- [19:30.270] over the last four years by the weakness of the United States,
+- [19:33.570] the weak leadership of the United States.
+- [19:35.360] But I think we've taken care of it in just three weeks.
+- [19:38.090] It seems to me that even some of the media
+- [19:41.360] that we wouldn't prefer has been writing
+- [19:44.360] that this is a much different country right now,
+- [19:46.400] that the world has a light over it.
+- [19:48.480] Not only our country, but the whole world.
+- [19:51.280] The Prime Minister told me that before, too.
+- [19:53.250] Even over India, the world has a light.
+- [19:55.130] They need the United States to be strong and powerful,
+- [19:58.460] but good. And I think that's happened,
+- [20:01.110] and I think it's happened in a very short period of time.
+- [20:03.360] But I will tell you,
+- [20:04.560] we're going to have a fantastic relationship,
+- [20:06.510] and it will make both countries much stronger.
+- [20:09.980] The Press: Mr. President?
+- [20:11.210] Mr. President, [inaudible].
+- [20:12.600] Mr. President, I have a question about-
+- [20:14.010] [inaudible].
+- [20:15.210] President Trump: Yes, go ahead, please.
+- [20:21.210] The Press: Okay, Geeta Mohan from India Today, sir.
+- [20:23.500] I'll just take my colleague Lalit Jha's question forward
+- [20:26.320] because you couldn't understand-
+- [20:27.690] President Trump: Okay. Fine.
+- [20:29.550] The Press: The question is about the fact
+- [20:32.500] that you've decided to extradite Tahawwur Rana.
+- [20:34.870] Thank you so much.
+- [20:36.100] India has been waiting to have him back in India
+- [20:39.670] to bring him to justice.
+- [20:41.880] But there are many other elements
+- [20:43.440] in the United States of America,
+- [20:45.370] particularly Khalistani separatists
+- [20:48.340] who've been working against Indian interests.
+- [20:50.800] How's the United States of America
+- [20:52.430] going to cooperate on that front with India?
+- [20:56.390] There have been allegations that have been levied
+- [20:58.740] against Indian agencies by the Biden administration.
+- [21:02.220] Are you going to re-look that with Tulsi Gabbard as DNI now?
+- [21:06.320] President Trump: Well, I don't think India
+- [21:07.550] had a very good relationship with the Biden administration.
+- [21:10.520] Biden, they wouldn't sell them oil and gas,
+- [21:13.230] which is rather hard to believe, because it's a good thing to do.
+- [21:17.540] And a lot of things happened that weren't very appropriate,
+- [21:20.580] I thought, between India and the administration,
+- [21:22.800] the Biden administration.
+- [21:24.070] But as you said, we're giving a very violent man,
+- [21:28.640] it seems to me,
+- [21:29.850] and I don't know that he's been convicted yet or will be,
+- [21:32.730] but let's assume he is a pretty violent person,
+- [21:36.010] we're giving him back to India immediately.
+- [21:38.830] And there are more to follow,
+- [21:41.130] because we have quite a few requests.
+- [21:43.230] So, we work with India on crime,
+- [21:45.570] and we want to make it good for India,
+- [21:47.460] and it's very important.
+- [21:48.800] So, that kind of a relationship is very important to us. Okay?
+- [21:52.450] The Press: Mr. President?
+- [21:53.760] Mr. President? [inaudible].
+- [21:54.990] President Trump: Go ahead, please.
+- [21:56.340] The Press: Thank you.
+- [21:57.750] President Trump: Go ahead.
+- [21:59.130] The Press: Thank you.
+- [22:00.340] President, you've repeatedly called India
+- [22:02.310] a big abuser of trade,
+- [22:04.450] and said it is really difficult to do business in India
+- [22:07.490] because of tariffs.
+- [22:08.950] You announced reciprocal tariffs today.
+- [22:11.580] I am hoping you can speak about
+- [22:13.850] what kind of reciprocal tariffs India can expect.
+- [22:16.870] Are you willing to make any concessions,
+- [22:19.510] and how can India head off these tariffs?
+- [22:21.950] I also have one for the Prime Minister.
+- [22:24.750] President Trump: Sure. Well, India has been, to us,
+- [22:27.760] just about the highest tariffed nation anywhere in the world.
+- [22:31.770] They've been very strong on tariffs,
+- [22:33.340] and I don't blame them, necessarily,
+- [22:35.070] but it's a different way of doing business.
+- [22:37.240] It's very hard to sell into India
+- [22:39.440] because they have trade barriers, very strong tariffs.
+- [22:43.410] We are, right now, a reciprocal nation.
+- [22:46.450] We are going to, if it's India
+- [22:48.770] or if it's somebody else with low tariffs,
+- [22:50.850] we're going to have the same.
+- [22:52.130] We're going to have whatever India charges,
+- [22:53.720] we're charging them; whatever another country charges,
+- [22:56.110] we're charging them. So, it's called reciprocal,
+- [22:59.490] which I think is a very fair way.
+- [23:01.050] We didn't have that.
+- [23:03.300] I was going to do that in my other term,
+- [23:05.040] and we had the greatest economy ever in the world.
+- [23:08.180] There's never been an economy like we had.
+- [23:10.400] And then we got hit with COVID, we had a focus on that.
+- [23:13.300] And I wasn't really in the mood
+- [23:15.900] to be putting it on Italy and Spain and France
+- [23:19.000] and India, frankly, and a lot of other countries,
+- [23:21.300] because the world was very troubled
+- [23:23.160] until we got rid of that nightmare.
+- [23:25.680] But we had the strongest economy anywhere in the world
+- [23:28.510] during that fairly long period of time
+- [23:30.750] during my first term, as you know,
+- [23:32.510] and that we didn't do the tariffs,
+- [23:35.550] and we would've done the reciprocal tariffs.
+- [23:38.010] But we decided, and I decided,
+- [23:40.810] I think, on a human basis, on a humane basis,
+- [23:43.750] not to do them because of the fact
+- [23:45.270] that there was such suffering all over the world.
+- [23:47.420] The last thing we needed to talk about is trade problems.
+- [23:51.400] But now we do.
+- [23:53.540] We see a tremendous future for our country,
+- [23:56.080] but we felt that now it's finally time,
+- [23:58.100] after 45 or 50 years of abuse, that we will do…
+- [24:02.090] And this isn't India, this is among a lot of nations.
+- [24:06.040] The European Union is very difficult for us,
+- [24:09.090] very, very difficult.
+- [24:10.780] They tax our companies at levels that nobody's ever seen before.
+- [24:14.640] They take advantage of a lot of things,
+- [24:16.630] so we're not happy about that. China, of course, is terrible,
+- [24:19.350] and we've never taken in 10 cents until I was president.
+- [24:23.100] We've taken in hundreds of billions of dollars from China
+- [24:26.070] since I've been president, in the first term and now,
+- [24:29.920] and we have to do that just as a mechanism of fairness,
+- [24:34.020] and that's what I've done.
+- [24:35.470] And so we are being reciprocal with India.
+- [24:39.070] Whatever India charges, we charge them.
+- [24:41.210] So frankly, it no longer matters to us
+- [24:44.020] that much what they charge, because whatever they charge…
+- [24:47.420] I had discussions with India in the first term
+- [24:50.880] about the fact that their tariffs were very high
+- [24:53.640] and I was unable to get a concession.
+- [24:56.590] So, we're just going to do it the easy way.
+- [24:58.220] We're just going to say,
+- [24:59.430] "Whatever you charge, we charge."
+- [25:00.820] And I think that's fair for the people of the United States,
+- [25:03.770] and I think it's actually fair for India. Okay?
+- [25:06.640] The Press: [inaudible].
+- [25:11.470] President Trump: Go ahead, please.
+- [25:14.730] Ask to the Prime Minister, please.
+- [25:16.140] The Press: A question for the Prime Minister, please.
+- [25:17.520] President Trump: Ask to the Prime Minister, please.
+- [25:18.760] The Press: Yes, sorry.
+- [25:19.980] Yoshita Singh with Press Trust of India.
+- [25:22.170] Thank you, Mr. President. Prime Minister,
+- [25:23.870] the US is giving a lot of push to curb illegal immigration,
+- [25:28.910] and India has been cooperating on this issue.
+- [25:32.160] How does India see this issue in the larger context?
+- [25:34.800] Thank you.
+- [25:39.970] Prime Minister Modi: This is a question
+- [25:41.350] that is about India only,
+- [25:43.550] but even globally, you can talk about this issue.
+- [25:47.130] And we are of the opinion that anybody
+- [25:54.940] who enters another country illegally,
+- [26:03.350] they have absolutely no right to be in that country.
+- [26:07.780] And as far as India and the US is concerned,
+- [26:11.570] we have always been of the same opinion,
+- [26:14.550] and that is that any verified Indian
+- [26:20.240] who is in the US illegally,
+- [26:25.090] we are fully prepared to take them back to India.
+- [26:31.620] However, it doesn't stop there.
+- [26:37.480] These are children of very ordinary families,
+- [26:41.120] and they are lured by big dreams and big promises.
+- [26:45.640] A lot of them are brought in without them
+- [26:50.880] knowing about why they're going to a country.
+- [26:53.560] And, in fact, they are connected with a human trafficking system.
+- [26:58.870] And we have to make sure that we fight against this system.
+- [27:02.210] As far as the US and India is concerned,
+- [27:04.700] I think what we should do is make efforts
+- [27:07.860] to make sure that we uproot these from within the system,
+- [27:14.190] so that we can reduce or remove human trafficking.
+- [27:19.130] And basically the young, vulnerable, poor people of India
+- [27:24.280] are fooled into coming over as illegal immigrants,
+- [27:28.540] and our bigger fight actually is against this ecosystem
+- [27:32.060] or this system that encourages such gangs to thrive.
+- [27:36.180] And I can tell you that-
+- [27:37.390] The Press: [inaudible]. Mr. President? Mr. President?
+- [27:38.660] Prime Minister Modi: -- India will completely support.
+- [27:43.000] President Trump: Yes.
+- [27:44.210] The Press: Thank you. Thank you, Mr. President.
+- [27:45.700] A question for Prime Minister Modi first, if I may.
+- [27:48.820] I wanted to ask you,
+- [27:50.390] did you discuss any possible business deals with Elon Musk
+- [27:53.470] during your meetings today, Mr. Prime Minister?
+- [27:57.120] And Mr. President, I wanted to ask you:
+- [27:59.460] today, you spoke about hoping to have three-way talks
+- [28:02.990] with President Xi and President Putin.
+- [28:06.670] What would you say to European leaders
+- [28:08.940] and other allies who may be concerned
+- [28:10.410] that you're apparently more keen to speak
+- [28:13.600] to America's adversaries than to its allies?
+- [28:16.300] Thank you.
+- [28:17.690] President Trump: Maybe I'll just go first on this one.
+- [28:21.470] We had some talks, and we told the European Union,
+- [28:27.890] we told the NATO people, largely, they overlap,
+- [28:32.670] "You have to pay more money,
+- [28:34.590] because it's unfair what we're doing.
+- [28:36.280] We're doing a tremendous amount more."
+- [28:38.880] We're probably $200 billion more going into Ukraine,
+- [28:43.500] using for Ukraine to fight.
+- [28:47.560] And Europe has not really carried its weight,
+- [28:50.040] in terms of the money. It's not equitable.
+- [28:53.610] And we want to see a counterbalance.
+- [28:55.370] We want to have them put up more money.
+- [28:57.670] They have to do that.
+- [28:58.980] At the same time, we had a very good conversation
+- [29:01.130] with President Putin the other day, yesterday,
+- [29:03.670] and we also had a very good conversation,
+- [29:06.050] I did both, in both cases, with President Zelenskyy.
+- [29:10.230] And I think we're going to be able to do something,
+- [29:12.590] I think we're going to be able to make a deal.
+- [29:14.830] And I hope so, because because it's a horrible war.
+- [29:16.910] It's a very terrible, bloody war
+- [29:18.720] with a million and a half soldiers,
+- [29:20.320] at least, already dead on the battlefield,
+- [29:22.610] lying all over the fields like,
+- [29:24.660] nobody has ever seen anything like it,
+- [29:26.120] certainly since the Second World War.
+- [29:30.090] So, I think we're going to be able to do something.
+- [29:31.870] We're working with President Zelenskyy
+- [29:34.700] and with President Putin, and my impression is that they …
+- [29:38.400] I know that President Zelenskyy wants to make a deal,
+- [29:41.540] and I also feel that,
+- [29:42.820] I know that President Putin wants to make a deal.
+- [29:45.640] I wanted to know that before I began any detailed discussions.
+- [29:49.630] But the meeting and the conversation,
+- [29:52.630] also, the meeting with Steve Witkoff in Moscow
+- [29:55.440] was a very successful one,
+- [29:57.450] and my phone call with him was a very successful one.
+- [30:00.730] Please.
+- [30:07.560] Prime Minister Modi: You asked a question regarding Elon Musk.
+- [30:11.390] I have known him for a very long time.
+- [30:13.720] I was not even prime minister at the time
+- [30:16.760] when I first met him; I was chief minister.
+- [30:20.100] And today he came to meet me along with all his family,
+- [30:23.510] with his children.
+- [30:25.120] And so, we had a nice discussion.
+- [30:29.970] As far as the EVs are concerned, the word EV has a copyright.
+- [30:40.900] And that is one person who has a copyright for the word EV,
+- [30:44.330] and that is Trump.
+- [30:45.750] President Trump: Thank you. That was very nice.
+- [30:52.460] Go ahead, please.
+- [30:54.960] The Press: Thank you, Mr. President.
+- [30:56.370] Can I ask whether you discussed at all today
+- [30:58.590] the case of Gautam Adani,
+- [31:00.600] who's one of the wealthiest men in Asia
+- [31:02.780] and perceived as an ally of Prime Minister Modi?
+- [31:05.280] Prime Minister Modi, have you asked the president
+- [31:07.590] to take action on that case? Thank you.
+- [31:13.950] Prime Minister Modi: Firstly, India is a democratic country,
+- [31:20.120] and our culture and our thought philosophy
+- [31:24.820] is Vasudhaiva Kutumbakam,
+- [31:26.450] which basically means that the entire world is a family.
+- [31:29.760] Every Indian is my own family member.
+- [31:33.180] And when it comes to such personal matters,
+- [31:38.490] leaders of two countries will not get together on that topic
+- [31:41.170] and discuss anything on an individual matter.
+- [31:44.870] President Trump: Go ahead. Please. Yeah. Please.
+- [31:48.360] The Press: Which one?
+- [31:50.360] President Trump: Sir, go ahead, please.
+- [31:51.980] The Press: Yeah. Thank you, Mr. President.
+- [31:53.910] Thank you, Mr. Prime Minister.
+- [31:55.250] I have a question for you as well.
+- [31:56.870] But, Mr. President, you have suggested,
+- [31:59.270] with regards to the Russia-Ukraine war,
+- [32:01.000] you've suggested several things that Ukraine should give up:
+- [32:04.840] the idea of NATO membership, territory
+- [32:07.170] that was seized back in 2014 by Russia.
+- [32:09.760] What should Russia give up?
+- [32:13.130] President Trump: Russia has gotten themselves into something
+- [32:16.260] that I think they wish they didn't.
+- [32:18.410] If I were president, it would not have happened,
+- [32:20.990] absolutely would not have happened,
+- [32:22.640] and it didn't happen for four years.
+- [32:24.910] If you look at what has taken place,
+- [32:28.760] under President Bush, they lost a lot.
+- [32:30.860] Under President Obama, they lost Crimea.
+- [32:36.210] Under Biden, it looks like they could lose the whole thing.
+- [32:39.180] Under Trump, they lost nothing, Ukraine lost nothing.
+- [32:42.440] They didn't give up anything.
+- [32:44.460] And you take a look at the other three presidents surrounding me,
+- [32:49.110] they gave up a lot.
+- [32:51.450] I think that when you look at Ukraine
+- [32:54.210] and when you look at the mess that they're in,
+- [32:57.480] it's got to be ended, and it's got to be stopped.
+- [32:59.550] Now, Russia has taken over a pretty big chunk of territory,
+- [33:05.390] and they also have said from day one,
+- [33:08.670] long before President Putin,
+- [33:10.330] they've said they cannot have Ukraine be in NATO.
+- [33:12.630] They said that very strongly.
+- [33:14.770] I actually think that that was the thing
+- [33:16.360] that caused the start of the war.
+- [33:18.080] And Biden said it, and Zelenskyy said it,
+- [33:22.710] and I think that was one of the reasons,
+- [33:24.630] one of the starts of the war.
+- [33:26.640] But from long before Putin,
+- [33:28.140] they said you cannot have Ukraine going in,
+- [33:33.100] in any way, into NATO.
+- [33:35.540] And I start from that standpoint.
+- [33:38.650] I think everybody knew that.
+- [33:39.870] Now, if a better deal can be negotiated,
+- [33:43.050] if they were able to make a deal where they can do that,
+- [33:46.260] that's fine with me. I really don't care.
+- [33:48.920] I want that bloodshed to stop. I don't want to see …
+- [33:53.230] We have an ocean between us
+- [33:55.260] and the site we're talking about, the site of death.
+- [33:58.420] We're calling it the fields of death.
+- [34:00.590] We have a big ocean in between us.
+- [34:02.770] This is more important for Europe.
+- [34:04.820] We shouldn't be in. They have to equalize,
+- [34:06.560] and they're going to have to do it fast,
+- [34:08.160] but they have to equalize.
+- [34:09.900] But as far as the negotiation,
+- [34:12.020] it's too early to say what's going to happen.
+- [34:14.890] Maybe Russia will give up a lot, maybe they won't,
+- [34:17.560] and it's all dependent on what is going to happen.
+- [34:20.530] The negotiation really hasn't started.
+- [34:22.840] But I will say, as far as NATO is concerned,
+- [34:24.860] from many years before President Putin,
+- [34:27.960] I will tell you that I've heard
+- [34:29.630] that Russia would never accept that,
+- [34:31.780] and I think Ukraine knew that, because Ukraine wasn't in
+- [34:34.620] and never requested to be in until more recently.
+- [34:37.440] So, that's the way it is,
+- [34:38.720] and I think that's the way it's going to have to be.
+- [34:41.130] The Press: But, Mr. President … Mr. President, I-
+- [34:43.390] President Trump: Go ahead, please.
+- [34:44.810] All right. Go ahead, please, with the tie.
+- [34:47.120] With the tie, yeah.
+- [34:48.790] The Press: Mr. President.
+- [34:50.140] President Trump: Yes, go ahead, please.
+- [34:51.380] The Press: This is Saurabh Shukla from NewsMobile.
+- [34:53.210] Mr. President, you spoke about Prime Minister Modi
+- [34:55.830] as a tough negotiator.
+- [34:57.210] Who was a tougher negotiator today,
+- [34:59.030] and who has a better negotiating tactic
+- [35:01.200] when it comes to tariffs with-
+- [35:02.560] President Trump: Oh, he's a much tougher negotiator than me,
+- [35:04.610] and he's a much better negotiator than me.
+- [35:06.780] There's not even a contest. Okay?
+- [35:15.110] Yeah, go ahead. Please. Go ahead. Go ahead.
+- [35:18.360] The Press: Reena Bhardwaj from ANI.
+- [35:20.730] How do you see this relationship between the India
+- [35:23.590] and the United States to counter China?
+- [35:26.090] And what is your vision when it comes to India
+- [35:31.120] brokering peace in the Ukraine and Russia conflict?
+- [35:35.040] President Trump: Well, I think we are going to have
+- [35:36.270] a very good relationship with China.
+- [35:37.940] I got along with President Xi very well until COVID.
+- [35:40.630] That was a bridge too far.
+- [35:42.710] But until then, I got along with President Xi very, very well.
+- [35:45.750] We were very close, as leaders go.
+- [35:49.200] I don't want to be naive, but as leaders go,
+- [35:51.950] I think we were very close.
+- [35:53.760] And I think that China is a very important player in the world.
+- [35:57.900] I think they can help us get this war over
+- [35:59.810] with Ukraine and Russia.
+- [36:01.740] And I look at India, I do see the skirmishes on the border,
+- [36:06.190] which are quite vicious,
+- [36:07.490] and I guess they continue to go on.
+- [36:10.820] If I could be of help, I'd love to help,
+- [36:12.480] because that should be stopped.
+- [36:13.760] That's been going on for a long time,
+- [36:16.110] and it's quite violent. It's quite violent.
+- [36:18.960] But I would hope that China and India and Russia and U.S.
+- [36:24.400] and all of us can get along. It's very important.
+- [36:28.280] You know, the power of weaponry today is,
+- [36:31.160] and not only nuclear, but nuclear in particular,
+- [36:33.720] the power of weaponry is very important.
+- [36:35.870] I said before that I had very constructive
+- [36:39.150] talks in my first term with President Putin
+- [36:42.900] about the denuclearization of the two countries.
+- [36:47.050] And then we were going to go to China
+- [36:48.650] after we worked some kind of a deal,
+- [36:51.150] and we had the confines of a deal.
+- [36:53.270] We were, I thought we …
+- [36:55.070] He really wanted to do it and so did I, denuclearize.
+- [36:58.360] And it's such a beautiful term, when you think about it.
+- [37:02.110] In other words, to bring it down,
+- [37:03.430] because the power of those weapons is too great.
+- [37:07.090] And I did speak to President Xi about that,
+- [37:09.990] and I was getting also a very good response.
+- [37:12.030] He's building a very strong nuclear power.
+- [37:15.720] He's not very close to Russia or the United States right now,
+- [37:19.390] but he will be soon. I mean, he'll catch up
+- [37:21.780] over the period of four or five years, they say.
+- [37:25.560] But it would be a great thing if we could,
+- [37:27.280] on a military basis, we're going to spend this year
+- [37:30.550] 900, let's say $915 billion on military.
+- [37:35.310] Russia, without the war, was spending close to a hundred,
+- [37:37.980] but with the war,
+- [37:39.190] I can't tell you what they're spending,
+- [37:40.430] but they're spending a lot.
+- [37:41.660] And China is spending $400 and $450 billion.
+- [37:45.540] We're over $900 billion.
+- [37:47.390] And I said, "You know, it doesn't really make sense."
+- [37:50.310] I said, "We're spending the money against each other,
+- [37:54.070] and we could spend that money for better purpose
+- [37:56.540] if we got along."
+- [37:57.920] And I'll tell you, I think that something like that will happen.
+- [38:01.580] First, when I left, as you know, four years ago,
+- [38:04.680] we didn't have Israel and the Middle East.
+- [38:07.930] We didn't have October 7th, what a disaster, the disaster.
+- [38:12.270] Nothing was happening.
+- [38:13.560] Iran was not going to do anything,
+- [38:16.330] because Iran did not have much money at that point.
+- [38:18.940] They were broke. They were totally broke.
+- [38:21.100] They didn't have money for Hamas or for Hezbollah.
+- [38:24.090] And you didn't have Russia with Ukraine,
+- [38:26.110] and that would never have happened.
+- [38:27.990] But now I come back, and the whole world is on fire,
+- [38:30.990] so I have to put out the fires.
+- [38:32.360] But after I put out the fires, I'm going to meet with China,
+- [38:35.280] and I'm going to meet with Russia,
+- [38:36.500] and we're going to see if we can de-escalate,
+- [38:38.330] if we can bring it down, military,
+- [38:40.370] especially as it pertains to nuclear.
+- [38:42.540] Please.
+- [38:43.760] The Press: Mr. President,
+- [38:45.460] you mentioned about American Islamic terrorism-
+- [38:49.350] The Press: Prime Minister, how do you see India play a role
+- [38:51.900] in de-escalating the Ukraine-Russia-
+- [39:01.220] The Press: Prime Minister, how do you see India's role?
+- [39:05.430] You have had discussions with President Trump
+- [39:09.500] about de-escalating the conflict in Russia and Ukraine.
+- [39:14.250] Prime Minister Modi: As you know,
+- [39:18.920] I have been in constant contact with both Russia and Ukraine.
+- [39:24.050] I have also visited both countries.
+- [39:27.670] And many peoples are mistaken
+- [39:30.520] and they feel that India is neutral.
+- [39:33.420] I would like to clarify: India is not neutral.
+- [39:37.610] We have taken a side, and we have taken the side of peace.
+- [39:46.410] And it is based on this principle of ours that,
+- [39:53.570] in the presence of President Putin,
+- [39:57.230] I clearly said in front of the media
+- [39:59.540] that this is not the era of war.
+- [40:01.960] And even today, it is my conviction
+- [40:05.690] that solutions cannot be found on the battlefield.
+- [40:10.140] Ultimately, you have to come to the negotiating table,
+- [40:14.550] and India has constantly made efforts
+- [40:18.470] that there are talks that take place
+- [40:21.760] where both parties are present.
+- [40:23.890] It is only then that we will find a solution.
+- [40:27.360] The efforts being made by President Trump,
+- [40:30.990] I support them, I welcome them,
+- [40:35.090] and I would like that President Trump is successful
+- [40:40.280] as soon as possible
+- [40:41.480] so that the world is on the path to peace once again.
+- [40:46.840] President Trump: Everybody, thank you very much.
+- [40:48.310] Thank you very much.
+- [40:49.540] And I very much appreciate the prime minister
+- [40:52.470] visiting our great country, and I do really appreciate it.
+- [40:55.230] We have so much in common,
+- [40:56.570] and all we want to do is have peace,
+- [40:58.750] and we want to have strength,
+- [41:00.000] and we want to have lots of different things together,
+- [41:02.080] but the relationship with India
+- [41:03.770] and with the prime minister has never been better.
+- [41:05.340] Thank you very much. The Press: Mr. President-
+- [41:06.560] President Trump: Keep your seats.
+- [41:07.060] Keep your seats. The Press: Keep your seats.
+- [41:08.260] The Press: Keep your seat. President Trump: Thank you.
+- [41:09.510] The Press: Thank you so much for that.

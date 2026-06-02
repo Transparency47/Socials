@@ -1,0 +1,442 @@
+<!-- source: https://www.youtube.com/watch?v=trU0vxQ-syo -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: trU0vxQ-syo -->
+<!-- date_published: 2025-12-12T01:40:42+00:00 -->
+<!-- date_accessed: 2026-06-02T02:40:17.934103+00:00 -->
+
+# Transcript: President Trump Delivers Remarks at the Congressional Ball
+
+- [00:09.370] Announcer: Ladies and gentlemen,
+- [00:10.690] the President of the United States
+- [00:12.820] and the First Lady, Melania Trump.
+- [00:15.470] ♪ (Hail to the Chief) ♪
+- [01:24.180] The President: Hello, everybody. What a nice group of Democrats.
+- [01:29.780] We do, we have a lot of Democrats and we welcome you.
+- [01:31.900] Honestly, we do.
+- [01:33.170] And I think we're going to start working together in healthcare.
+- [01:36.390] I really predict that. How are you?
+- [01:39.070] Boy, I see some very friendly faces.
+- [01:41.550] I see some faces that are friendly,
+- [01:43.520] but they could be friendlier.
+- [01:46.100] But I think we're going to do great.
+- [01:47.780] And we got a lot of good things to, to happen.
+- [01:50.550] We know our First Lady.
+- [01:51.820] She works so hard on making this so beautiful.
+- [01:56.680] And the decorations, she's been given wonderful reviews
+- [01:59.510] for the trees and all of the Christmas decorations.
+- [02:01.870] So thank you very mch. Thank you.
+- [02:06.380] So we have a very special Congresswoman with us.
+- [02:10.090] Julia Letlow.
+- [02:11.780] Where's Julia?
+- [02:14.020] And it was just announced, and in fact, I just heard
+- [02:17.630] that she went to the dip room where she officially announced
+- [02:22.130] with a very handsome man, her engagement.
+- [02:25.890] Okay. Where is Julia? Julia, where are you?
+- [02:28.930] Come on up. Julia. That's a big deal.
+- [02:33.660] Come on, Julia. Let's go, Julia. That's a big deal.
+- [02:40.850] That's bigger than, that transcends politics.
+- [02:43.610] Look at Julia. Oh, he's so lucky.
+- [02:45.780] He's the luckiest guy. He's a handsome guy, too.
+- [02:52.720] Congratulations.
+- [02:54.790] Let me see that ring. Oh, that's a nice ring.
+- [02:58.380] That's fantastic.
+- [02:59.730] Want to say something? Huh?
+- [03:04.540] Yeah, go ahead.
+- [03:05.780] Julia Letlow: Thank you so much to the best president
+- [03:08.690] of my entire life because he's heard
+- [03:10.710] (Inaudible) of America. Thank you.
+- [03:15.430] The President: Thank you.
+- [03:16.660] You got a great, great woman. He's got a great woman.
+- [03:20.420] Here's a fantastic couple. Thank you very much.
+- [03:24.310] So I want to just welcome everybody to the White House.
+- [03:27.440] It's a very special tradition.
+- [03:32.140] And it's interesting because all other time,
+- [03:34.650] oh, look, I have my favorite Congressman.
+- [03:36.270] How are you, Congressman?
+- [03:38.340] You know, it's very interesting
+- [03:40.800] because all of the Christmas occasions, everyone's quiet.
+- [03:46.200] When they're all politicians in the room,
+- [03:47.970] they talk right through a speech and that's okay.
+- [03:50.510] I don't mind that.
+- [03:52.390] But I want to welcome you all to the White House.
+- [03:54.360] It's an honor to have you. It's a special place.
+- [03:57.040] You know, for 150 years,
+- [03:58.390] they've been trying to do a ballroom.
+- [04:00.310] They never got it off, but we got it off.
+- [04:01.940] And in a, in a very short period of time,
+- [04:05.590] like about a year-and-a-half,
+- [04:07.540] you're going to have the best ballroom
+- [04:09.020] anywhere in the country, anywhere.
+- [04:10.420] It is, it is special, and they're going to be able to,
+- [04:13.550] we'll be able to host this in a larger setting.
+- [04:15.710] However, it won't be the same.
+- [04:17.860] So I think we'll keep this the same way.
+- [04:20.310] But we really did, we had a fantastic turnout.
+- [04:23.080] We had 12 different parties,
+- [04:26.180] and they asked me to go to speak at every party.
+- [04:28.810] And I did. I spoke at every single party.
+- [04:32.140] Then they announced because of the fact
+- [04:33.800] that they have so many people.
+- [04:35.530] It's 11 people are turned down for everyone that makes it.
+- [04:38.920] So it's a very good feeling, but I did 11.
+- [04:42.300] Then they said, "Sir, would you do two more?" I did two more.
+- [04:44.980] And I said, "Did Biden do this, too? I don't think so."
+- [04:49.440] I would love it if he did.
+- [04:50.730] It would've been very interesting.
+- [04:53.300] But we have a lot of things happening.
+- [04:56.960] We have a congressional ball. We have so many different,
+- [04:59.880] but what we're really here to celebrate is Christmas.
+- [05:02.240] So I want to wish everybody a very Merry Christmas,
+- [05:04.850] a very happy New Year.
+- [05:06.110] Happy Hanukkah.
+- [05:08.010] Whatever it may be, it's going to be happy
+- [05:10.020] and we're going to have a fantastic year.
+- [05:12.600] We have a fantastic year coming up.
+- [05:14.810] You know, never in our country have we had investment
+- [05:17.990] like has taken place over the last 10 months.
+- [05:20.670] We have $18 trillion plus already,
+- [05:23.370] and I think by the end of the year,
+- [05:24.820] it'll be over $20 trillion.
+- [05:27.450] That's more than any nation anywhere in the world,
+- [05:30.040] at any time by quadruple. By quadruple.
+- [05:35.330] Um, in the previous administration,
+- [05:37.490] just to give you a little fact, not to be hostile,
+- [05:41.850] but they had less than one trillion over four years.
+- [05:45.340] So we have 18, I think we'll have 20,
+- [05:47.720] but we have 18 over 10 months.
+- [05:50.390] So that's some, that's some number.
+- [05:53.630] And with that, and with that automatically comes jobs.
+- [05:56.360] And today, for the 52nd day, we hit an all-time
+- [06:01.030] stock market high, and that's great.
+- [06:03.400] And that means, that means 401(k)s,
+- [06:06.060] that means a lot of things are happening. It means jobs.
+- [06:09.110] And I think when the real numbers start coming out,
+- [06:12.100] and when the real pollsters start doing the polls,
+- [06:14.850] I think you're going to see some really fantastic numbers.
+- [06:17.650] And that's good for Republicans, frankly, and Democrats.
+- [06:21.050] I want to again, thank our first lady
+- [06:24.180] for working so hard on this.
+- [06:25.610] She's done so well. It's the let's see.
+- [06:29.390] She's done it four times. This would be the fifth time.
+- [06:33.440] And I would say this is the best,
+- [06:35.990] although I like the red tree.
+- [06:38.160] She got criticized for the red trees.
+- [06:40.760] Then I liked the white trees,
+- [06:42.620] and she was criticized for the white trees.
+- [06:45.210] Then I liked the green trees, and she got criticized,
+- [06:47.550] and she went back to green, and they love it.
+- [06:49.000] So I don't know what's going on.
+- [06:51.060] I think this is a little bit of a different administration
+- [06:53.340] maybe than the first.
+- [06:55.020] But I want to thank all of the great people in the room,
+- [06:57.590] both Democrat and Republican who work so hard
+- [07:00.870] on behalf of our great nation.
+- [07:03.820] You're members of the greatest legislative body
+- [07:07.730] and the history of our country, history of the world really.
+- [07:10.730] And we have the greatest nation anywhere in the world,
+- [07:14.790] and it's getting stronger, bigger, better.
+- [07:17.640] And I just want to I just want to thank you
+- [07:21.060] because sometimes we don't work together,
+- [07:22.660] but we come up with great ideas together, and that is true.
+- [07:25.390] So tonight we're going to set aside all political differences.
+- [07:29.730] We're not going to criticize each other,
+- [07:31.250] we're going to love each other. And we're going to come together
+- [07:34.210] not as Democrats and Republicans,
+- [07:36.330] but as fellow Americans to give thanks for this nation,
+- [07:40.210] which is so great indeed.
+- [07:42.410] And it's a, it's a tremendous, I think it's a tremendous
+- [07:47.230] tribute that it, I think it really is.
+- [07:49.800] I think it's a tremendous tribute
+- [07:51.220] that so many Democrats have joined us tonight.
+- [07:53.910] High level. I know almost every single name on the list.
+- [07:57.750] It's a very impressive list too, I must say.
+- [08:00.560] But let me also say a very special
+- [08:02.380] thanks to all of the spouses and loved ones here tonight.
+- [08:06.630] You make incredible sacrifices for us as politicians.
+- [08:10.100] I call myself now a politician.
+- [08:12.580] I never thought that was going to happen.
+- [08:14.760] I never thought that was going to happen, but it happened.
+- [08:18.600] But none of what we absolutely do, whatever,
+- [08:22.440] would be possible without you.
+- [08:23.860] And I want to thank my great wife,
+- [08:26.260] my great first lady for helping me.
+- [08:28.990] But every single one of you have been helped by your spouse.
+- [08:33.600] I want to also thank our really wonderful,
+- [08:37.900] great Vice President JD Vance, who's here.
+- [08:41.010] JD, and thank you. And Second Lady Usha Vance.
+- [08:46.120] Usha, thank you very much. Thank you, Usha.
+- [08:50.490] Also a man that a few of you might know, not very well,
+- [08:54.140] but you might know him,
+- [08:55.530] Speaker of the House Mike Johnson.
+- [08:56.920] Where's Mike? What a great job you're doing. What a great job.
+- [09:02.750] And most importantly, you have a wonderful, beautiful wife.
+- [09:05.490] Thank you very much. Say hello to the boys, okay?
+- [09:08.310] It's great to have you both.
+- [09:10.390] It was really, it's not easy to manage with a majority of three.
+- [09:15.630] But we've been up to seven
+- [09:16.970] and we sort of veer back and forth, but he's done a job
+- [09:20.430] and he gets along very well with the Democrats.
+- [09:23.850] Sometimes I would say he gets along too well.
+- [09:25.780] That bothers.
+- [09:27.730] We also have Senate Majority Leader John Thune here.
+- [09:30.450] Where's John? Where is John?
+- [09:33.730] One of the really good, he's a good, thank you.
+- [09:36.260] Oh, wow. Look at him.
+- [09:37.910] See, he always gives the best location to others.
+- [09:40.910] Thank you, John.
+- [09:42.460] Thank you for everything. You've done a great job.
+- [09:44.450] It's not easy, John. It's not easy.
+- [09:47.280] Thank you very much. House Majority
+- [09:49.660] Leader Steve Scalise. Where's Steve?
+- [09:55.040] Where is Steve, Mr. Speaker? I'll tell you what, you know,
+- [09:58.900] I, I always say he's got great courage
+- [10:00.670] because he got hit real hard.
+- [10:03.240] He got hit harder than I got hit.
+- [10:04.820] I got hit too, but I got little,
+- [10:06.400] you know, I have a throbbing feeling.
+- [10:08.510] He had much more than a throbbing feeling.
+- [10:10.390] In fact, I went to the hospital
+- [10:13.120] and they actually thought he wasn't going to make it.
+- [10:15.060] His wife was devastated.
+- [10:17.370] She was crying. I tell the story.
+- [10:19.930] I found out that night you have a wife that loves you dearly.
+- [10:23.210] I know many wives would not even be crying.
+- [10:25.340] But your wife, your wife was absolutely a mess.
+- [10:29.910] She was crying. She was inconsolable, Steve.
+- [10:33.960] So we found that out, but he made it.
+- [10:36.010] And then he went about four months later,
+- [10:38.290] he could barely walk, he went and he played second base
+- [10:40.840] in the game between the Ne- --
+- [10:43.200] the, you, between you people, right?
+- [10:45.850] Republicans and Democrats.
+- [10:48.600] He could barely walk, he could barely stand.
+- [10:50.690] He was not going to be the great Bobby Richardson,
+- [10:53.300] all star second baseman of the New York Yankees
+- [10:55.730] for 15 years.
+- [10:57.550] And this could only happen by God.
+- [11:00.250] A shot was hit to him so hard, I said, "Oh, no."
+- [11:04.900] And it went right at him. He fell to his knees,
+- [11:08.010] which was his only option because he couldn't bend.
+- [11:10.580] This was not a good looking picture.
+- [11:12.710] He knocked down the ball, picked it up,
+- [11:15.110] could barely grab it, threw it to first base.
+- [11:18.040] The runner who was actually a very good
+- [11:19.970] Democrat athlete was out. And I said that, and I said,
+- [11:26.310] and I've told this that was a miracle.
+- [11:29.090] That was a miracle. And then brilliantly,
+- [11:31.960] after one hitter, the manager took him out of the game -- --
+- [11:35.400] because there was no way
+- [11:37.090] that he was going to outdo that one.
+- [11:39.070] So Steve, it's great that you're here
+- [11:40.660] and we love you, Steve, and you went through a lot.
+- [11:43.260] Majority Whip Tom Emmer,
+- [11:45.170] a fantastic guy with a fantastic spouse.
+- [11:48.860] Where's Tom? Tom is a great guy.
+- [11:52.940] I don't know what you're going to do about Minnesota.
+- [11:56.420] Where? What, here he is. He's a handsome devil, isn't he?
+- [12:03.270] With a, with an unbelievable wife
+- [12:05.510] who puts up with a lot of stuff.
+- [12:08.600] She does not have an easy job, Tom. You are a difficult man.
+- [12:14.620] And Tom is very friendly with the Somalians, you know?
+- [12:17.390] He's doing a great job. He's a big, he's a big fan.
+- [12:21.170] He's a big fan of Somalia. Anyway.
+- [12:25.380] He said, "Please correct that." Anyway.
+- [12:29.280] Thank you, Tom, very much. Thank you.
+- [12:31.590] He's a great guy. He's done a fantastic job,
+- [12:33.820] and we re- -- real- -- we really appreciate it.
+- [12:35.910] And you have so many members of the House and the Senate,
+- [12:39.870] but I just want to thank a few of them.
+- [12:41.470] And I really, I do mean it.
+- [12:43.090] I think it's fantastic that we're all here together tonight.
+- [12:46.150] We have cabinet members, and we have Marco is here.
+- [12:50.010] Scott Bessent is here. We got them all sort of here.
+- [12:53.430] Every single one. I won't call them out
+- [12:55.750] because they're not names that are going to get huge applause
+- [12:58.840] from this very substantially Democrat audience.
+- [13:02.100] But you know what? They're working,
+- [13:03.770] they're working toward making America great again.
+- [13:06.390] It's very simple.
+- [13:07.650] We are making America great again.
+- [13:11.010] I saw it today on a somewhat left-ish broadcast.
+- [13:15.870] They were saying, "You know whether you like it or not,
+- [13:17.840] these numbers are starting to get very good."
+- [13:19.630] And they are. And that's good for all of us."
+- [13:21.310] But during the season of joy and peace,
+- [13:23.800] we have so much to celebrate as a nation
+- [13:26.870] because one year ago we really were,
+- [13:28.530] we were a country that was in serious trouble.
+- [13:30.950] There were those that say we were a country
+- [13:32.550] that was really not going to make it.
+- [13:35.530] And they were saying we were not going to make it.
+- [13:38.100] Now we have the hottest country anywhere in the world.
+- [13:40.360] They're all saying it. Other leaders are saying it.
+- [13:42.580] The European nations are saying it.
+- [13:44.730] The European nations are reporting that your president
+- [13:48.740] might as well be the leader of the European nations also.
+- [13:51.440] They listen to us and they respect us
+- [13:53.610] like they've never respected us before.
+- [13:55.910] So we're going to work very hard.
+- [13:57.900] We get along with them.
+- [13:59.300] We want to get along with as many nations as we can.
+- [14:01.860] We've been ripped off by a lot of them for a lot of years.
+- [14:04.440] And frankly, a lot of the Democrats
+- [14:06.580] knew that better than some of the Republicans.
+- [14:09.190] But we've been ripped off and taken advantage
+- [14:12.060] of by friend and foe.
+- [14:13.730] And in many cases, friend was worse than foe.
+- [14:16.870] But not anymore.
+- [14:18.160] We have I don't know if you noticed the the deficit
+- [14:23.260] was cut down by 64 percent.
+- [14:26.560] Nobody's ever heard of a number like that.
+- [14:28.110] You know why? A thing called tariffs.
+- [14:30.160] The tariffs are so big and so substantial.
+- [14:33.760] And it was just announced two weeks ago,
+- [14:35.390] the deficits cut down by,
+- [14:36.970] nobody ever heard of a number like that.
+- [14:38.290] If the deficit goes down by 2 percent,
+- [14:40.260] it's, like, a great thing.
+- [14:41.940] The tariffs have reduced the deficit by 64 percent.
+- [14:45.130] Nobody has ever seen.
+- [14:46.650] And frankly, we haven't even started yet.
+- [14:49.320] It's given us strength. We've solved eight wars.
+- [14:52.350] Think of it. Eight wars have been solved.
+- [14:54.750] Although Thailand and Cambodia, I think I'm going to have
+- [14:57.700] to make a couple of phone calls on Thailand and,
+- [15:00.450] but we'll get that one back on track.
+- [15:02.160] But think of it.
+- [15:03.410] We've solved eight wars that's never happened.
+- [15:06.180] And more Americans are working today
+- [15:08.780] than ever before the history of our country.
+- [15:11.190] We've never had anything like it.
+- [15:13.600] We have more Americans working today than at any time,
+- [15:17.070] by far, in the history of our country.
+- [15:20.270] And 100 percent of all new jobs have been created, 100 percent,
+- [15:25.490] created in the private sector. I mean, that's a big factor.
+- [15:29.250] Right, Virginia, right?
+- [15:32.740] Also, I just announced real wages are up
+- [15:35.440] for the typical worker by more than $1,000 a year.
+- [15:39.600] That's a record, $1,000 a year.
+- [15:43.370] And many of you in Congress worked very hard,
+- [15:45.720] both, both sides,
+- [15:47.640] this year to keep the promises that you were elected on
+- [15:50.940] and to deliver big wins for the American people.
+- [15:53.760] And Democrats worked very hard too.
+- [15:56.550] I mean, I think you could get rid of a couple
+- [15:59.150] of your little policies, like men in women's sports,
+- [16:01.430] open borders, transgender for everybody.
+- [16:03.280] But other than that, other than that, I like what you're doing.
+- [16:08.130] You pass the largest tax cuts in American history.
+- [16:11.250] We all did that.
+- [16:12.820] We passed the largest spending cuts in American history,
+- [16:17.210] and we have the largest regulation
+- [16:18.900] cuts by far in American history.
+- [16:20.730] All of these things were just passed.
+- [16:22.810] You passed the Laken Riley Act
+- [16:24.430] to get criminal aliens off the street
+- [16:26.360] so they don't kill our people, hurt our people,
+- [16:28.910] mug our people, slice up our people,
+- [16:31.650] which is what they, what they did.
+- [16:34.200] They're not doing it so much because crime is way down.
+- [16:37.420] And you passed the Genius Act
+- [16:39.670] to unleash a new era of financial innovation.
+- [16:43.390] And on a bipartisan basis,
+- [16:46.100] working with a woman named Melania.
+- [16:49.540] Have you heard of Melania? But working with our great
+- [16:54.490] First Lady, you passed the Take It Down Act
+- [16:58.920] to protect our nation's youths of -- from some horrible people.
+- [17:03.870] And I think, I'm not sure,
+- [17:05.900] that was, this is hard to believe.
+- [17:08.440] I believe this is correct.
+- [17:09.700] It was just about a unanimous vote,
+- [17:11.940] to which I said,
+- [17:13.180] "Maybe you should be doing my job
+- [17:14.900] because I don't get one vote."
+- [17:17.500] You know that it was, was it, did anybody vote against it?
+- [17:21.000] Even Rand Paul voted for it, right?
+- [17:24.290] Because Rand Paul is an automatic no vote.
+- [17:26.890] He's not a Democrat vote, but he's an automatic no.
+- [17:29.790] Everybody voted.
+- [17:31.050] I think it was just about unanimous.
+- [17:32.510] I can't believe it. She came home.
+- [17:34.760] I said, "I heard you got a unanimous vote."
+- [17:36.650] Yeah, she looks at me like, you know, "What was the big deal?"
+- [17:40.410] But that was a great thing that she did
+- [17:42.010] and a great thing that all of you did.
+- [17:43.380] Very soon, I'll hopefully be signing
+- [17:45.710] a National Defense Authorization Act
+- [17:48.420] that makes a historic investment in the United States Military,
+- [17:52.680] which I think most people want to see.
+- [17:55.470] And I look forward to working with each
+- [17:56.980] and every one of you in the coming year
+- [17:58.530] to make our nation stronger, safer, wealthier, healthier.
+- [18:02.820] And I really believe we can work on healthcare together
+- [18:05.270] and come up with something that's going to be much better,
+- [18:09.160] much less expensive for the people,
+- [18:10.920] less expensive for our nation, but really most importantly,
+- [18:14.760] better and less expensive for the people.
+- [18:17.610] And we have an idea that rather than making
+- [18:20.110] these massive payments where they, you know,
+- [18:22.400] their stocks went up 1,700 percent
+- [18:24.900] over a short period of time, the insurance companies,
+- [18:27.420] we make beautiful, big payments directly to the people
+- [18:32.250] and they buy their own health insurance.
+- [18:35.160] And it's so good and so popular and everybody wants it.
+- [18:39.680] And I think, frankly, I think a lot of the Democrats
+- [18:41.650] are going to want it too.
+- [18:42.870] It's been a very popular, ever since I uttered those words
+- [18:45.900] about a month ago, it's been very, very popular.
+- [18:48.670] So hopefully we can get that done together.
+- [18:51.290] So I want to just say in closing, have a fantastic,
+- [18:54.790] you're going to have a fantastic evening.
+- [18:56.680] This food is unbelievable.
+- [18:58.720] The White House is known for great food,
+- [19:00.740] and it's better than that, and it's a great house.
+- [19:03.540] It's a special, special place.
+- [19:05.780] You know, I've had a lot of nice houses,
+- [19:07.790] but I have to tell you, this house, it's just special.
+- [19:10.830] It's one of the reasons that every one of these events,
+- [19:13.470] all of them, are packed, sold out, waiting room,
+- [19:17.010] and they're begging to come. People love the White House,
+- [19:20.200] and people love our country, and we love the Republicans,
+- [19:23.210] and we love the Democrats, so we love everybody else.
+- [19:26.070] We love everybody, especially tonight.
+- [19:28.520] Now, tomorrow, I'll have to deny I ever said that,
+- [19:30.970] but that's okay. So I want to thank you.
+- [19:33.340] Maybe our First Lady would like to say something.
+- [19:40.320] The First Lady: Good evening. Welcome to the White House.
+- [19:43.060] As the President said our greatest triumph in my office
+- [19:49.540] in the First Lady office in 2025 is a Take a Down Act.
+- [19:56.190] I want to, I appreciate all of your support.
+- [20:00.330] I appreciate your bipartisan,
+- [20:03.600] overwhelmingly bipartisan support
+- [20:06.930] and across the House and the Senate.
+- [20:10.020] Thank you, Mr. Speaker Johnson.
+- [20:13.180] And, um, I hope you will be excited
+- [20:17.110] to support my new legislative initiative in 2026.
+- [20:22.880] Some of you already know about it
+- [20:25.240] because it's already in the works.
+- [20:26.840] Thank you very much.
+- [20:28.130] I wish you and your families a very happy and Merry Christmas
+- [20:32.800] and a healthy New Year. Thank you.
+- [20:39.940] The President: Well, I just heard
+- [20:41.150] about that for the first time. The only thing I can tell you,
+- [20:44.290] I know one thing for sure, Mr. Speaker,
+- [20:46.780] it's going to be great.
+- [20:48.370] It's going to be great for children, okay?
+- [20:51.060] I don't know what it is she's doing,
+- [20:53.400] but I know it's going to be great for children,
+- [20:56.040] because she loves children and she's got a wonderful boy
+- [21:00.290] and she's very proud of her boy, but she loves children.
+- [21:04.070] And if she, if she puts it out,
+- [21:06.310] it'll be maybe unanimous again or whatever that was,
+- [21:08.690] but very close, unanimous again. I want to thank you all.
+- [21:11.870] Have a great Christmas, a great Hanukkah, and a fantastic year,
+- [21:15.700] but we're going to have a great 3 years, 4 years, 10 years.
+- [21:18.170] We're going to make it great.
+- [21:19.450] Our country is -- our country is going to be strong,
+- [21:22.760] safe, rich. It's going to be great.
+- [21:24.900] We're going to make America great again.
+- [21:26.650] Thank you, everybody. Thank you very much. Thank you.
+- [21:31.580] Thank you.
+- [21:33.570] ♪ (Orchestral playing of "Deck the Halls") ♪

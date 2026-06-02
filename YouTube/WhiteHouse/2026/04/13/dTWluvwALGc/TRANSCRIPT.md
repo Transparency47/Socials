@@ -1,0 +1,157 @@
+<!-- source: https://www.youtube.com/watch?v=dTWluvwALGc -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: dTWluvwALGc -->
+<!-- date_published: 2026-04-13T13:18:08+00:00 -->
+<!-- date_accessed: 2026-06-02T01:01:51.517760+00:00 -->
+
+# Transcript: President Trump Gaggles with Press Upon Arrival at Joint Base Andrews, Apr. 12, 2026
+
+- [00:03.920] that a lot of
+- [00:06.040] very good things are happening with
+- [00:07.600] regard to this straight of Hormuz
+- [00:10.560] and uh
+- [00:12.320] a lot of good things are happening for
+- [00:13.600] our country. It's been very strong. We
+- [00:15.200] have some tremendous numbers released
+- [00:18.040] economically on jobs and everything else
+- [00:21.520] and things are going very well. How are
+- [00:23.400] the sanctions holding, Mr. President?
+- [00:25.720] Say that How are the sanctions holding?
+- [00:28.120] Uh
+- [00:28.920] I would say it's holding well.
+- [00:31.960] Uh their military is destroyed.
+- [00:35.000] Their whole
+- [00:36.640] uh
+- [00:38.200] navy is underwater, you know that. 158
+- [00:41.280] ships are gone. Their navy's gone.
+- [00:44.760] And most of their mine droppers are
+- [00:46.760] gone.
+- [00:47.880] We have a lot of people, as you know, at
+- [00:49.360] 10:00 tomorrow we have a blockade going
+- [00:51.760] into effect. That'll be 10:00 tomorrow.
+- [00:54.480] Other nations are working so that uh
+- [00:57.120] Iran will not be able to sell oil.
+- [00:59.840] And uh that would be very effective. But
+- [01:02.880] uh what we want to do is we want to uh
+- [01:05.160] and again, we don't need it. What we
+- [01:07.240] notice and what we see and what I think
+- [01:09.440] is
+- [01:10.600] maybe my idea, maybe not. I don't know.
+- [01:13.520] But there are many boats heading toward
+- [01:15.480] our country to fill up with oil and then
+- [01:18.480] go and take it. So they're not going to
+- [01:20.040] go through the Hormuz Strait.
+- [01:22.160] Uh
+- [01:22.720] and
+- [01:23.720] ultimately that'll be corrected, but in
+- [01:26.000] the meantime they're using us. We have
+- [01:28.520] more oil because of drill, baby, drill.
+- [01:31.120] We have more oil than Russia and Saudi
+- [01:34.120] Arabia put together. So if you look at
+- [01:36.480] Russia
+- [01:37.920] and Saudi Arabia, two big ones, we have
+- [01:40.560] much more oil than they have
+- [01:42.960] put together. And what's happening is
+- [01:45.000] boats are coming over here, filling up.
+- [01:47.160] They don't have to go through the Hormuz
+- [01:48.600] Strait.
+- [01:49.520] Do you have an update, MR. PRESIDENT, ON
+- [01:51.040] THE TWO PILOTS? ARE THEY IN GOOD
+- [01:52.480] CONDITION? Have you spoken to them or
+- [01:54.160] their families? They are in very good
+- [01:56.200] shape and we're very proud of it. That's
+- [01:58.160] a good pilot. Go.
+- [01:59.560] Mr. President, you said Iran earlier.
+- [02:01.800] You said Iran. You said it's wanting to
+- [02:03.320] come back to the table. What did you
+- [02:04.600] base that thought on today? I think Iran
+- [02:06.440] is in very bad shape.
+- [02:08.800] I think they're very desperate. We had a
+- [02:11.520] meeting that lasted 21 hours. We
+- [02:13.600] understand the situation better than
+- [02:16.200] anybody, and Iran is in very bad shape.
+- [02:19.520] And And just so you understand, Iran
+- [02:22.120] will not have a nuclear weapon. We will
+- [02:25.280] not have. There is no way
+- [02:27.720] that they're going to get They still
+- [02:28.920] want it, and they made that clear the
+- [02:31.800] other night. Iran will not have a
+- [02:34.120] nuclear weapon.
+- [02:38.280] Oh, I don't know. I don't care if they
+- [02:39.640] come back or not. If they don't come
+- [02:41.040] back, I'm fine. Their military is gone,
+- [02:44.720] and their missiles are largely depleted.
+- [02:47.520] The manufacturing capability for
+- [02:49.880] missiles and drones is largely defeated.
+- [02:53.560] We've been very nice. We haven't ripped
+- [02:55.240] down too many bridges. We did one, only
+- [02:57.880] because they broke their word. They
+- [02:59.280] broke their promise. And remember, their
+- [03:01.959] promise was that they were going to open
+- [03:05.040] the Hormuz Strait. They didn't do it.
+- [03:08.680] They lied.
+- [03:12.840] Yeah, they're coming up, and they're
+- [03:14.239] helping out. We have many other
+- [03:16.200] countries. Do you have any
+- [03:17.720] OTHER COUNTRIES THAT WILL BE BUYING THE
+- [03:19.400] OIL from the United States? Have you had
+- [03:20.920] any talks with specific
+- [03:22.440] >> Well, you just have to see, but our
+- [03:24.200] ships are heading up to our country
+- [03:26.000] right now, empty, and they're going to
+- [03:27.840] go back
+- [03:29.120] filled up with oil.
+- [03:31.360] Mr. President, why did you put Pope Leo
+- [03:32.920] on Truth Social?
+- [03:34.840] Uh
+- [03:35.760] I don't think he's doing a very good
+- [03:37.000] job. He likes crime, I guess. He uh He
+- [03:40.800] hit us Think of it.
+- [03:42.959] He's worried about fear. What about the
+- [03:44.720] fear when
+- [03:46.440] the ministers and the priests and the
+- [03:50.280] All of those great people that arrested
+- [03:53.080] during COVID
+- [03:54.560] and in many cases they're outside 10 ft
+- [03:56.760] apart and they were arrested. So, we
+- [03:59.680] don't like it. We don't like a pope
+- [04:02.080] that's going to say that it's okay to
+- [04:03.800] have a nuclear weapon.
+- [04:05.520] We don't want a pope that says crime is
+- [04:07.800] okay in our cities. I don't like it. I'm
+- [04:10.160] not a big fan of Pope Leo.
+- [04:12.080] He's a very liberal person
+- [04:14.640] and he's a man that doesn't believe in
+- [04:16.320] stopping crime. He's a man that doesn't
+- [04:18.799] think that
+- [04:20.000] we should be
+- [04:21.880] going with a country that wants a
+- [04:24.440] nuclear weapon so they can blow up the
+- [04:26.480] world. So, I'm not I'm not a fan of Pope
+- [04:29.000] Leo.
+- [04:33.919] About what?
+- [04:39.800] Well, that's a very theoretical
+- [04:41.840] question.
+- [04:43.520] I don't want to answer.
+- [04:49.280] Well, they're coming up. They're going
+- [04:50.600] to be coming up, but I'm very
+- [04:51.720] disappointed in NATO. They didn't do the
+- [04:54.080] They weren't there for us.
+- [04:56.000] We paid trillions of dollars for NATO
+- [04:59.200] and they weren't there for us.
+- [05:01.280] Remember what I said, NATO was not
+- [05:04.080] there. Now they want to come up, but
+- [05:06.120] there's no real threat anymore.
+- [05:08.400] But NATO was not there for us.
+- [05:12.160] We'll see what happens, but you know, we
+- [05:14.520] spent trillions of dollars on NATO
+- [05:17.160] to help them guard really against Russia
+- [05:19.919] when you think of it, guarding against
+- [05:21.720] Russia.
+- [05:22.800] And
+- [05:24.200] I've long thought it was a little
+- [05:26.320] ridiculous, but we spent trillions of
+- [05:28.680] dollars doing it
+- [05:30.400] and I think that's going to be under
+- [05:32.360] very serious examination.

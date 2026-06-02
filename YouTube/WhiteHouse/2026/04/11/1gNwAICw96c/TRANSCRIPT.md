@@ -1,0 +1,702 @@
+<!-- source: https://www.youtube.com/watch?v=1gNwAICw96c -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 1gNwAICw96c -->
+<!-- date_published: 2026-04-11T01:05:44+00:00 -->
+<!-- date_accessed: 2026-06-02T02:35:18.114135+00:00 -->
+
+# Transcript: NASA's Artemis II Crew Comes Home
+
+- [00:00.980] Male Speaker: The USS John P. Murtha
+- [00:03.020] and the recovery team is on station and in position,
+- [00:07.580] as are the airborne imagery assets
+- [00:10.180] that we hope to receive imagery
+- [00:11.950] from as Artemis enters the Earth's atmosphere
+- [00:17.590] and through parachute deployment.
+- [00:35.800] All of Integrity systems are in great shape.
+- [00:37.890] The crew is ready to complete its mission
+- [00:42.280] just 15 and a half minutes from now.
+- [00:45.400] All of the activities today have gone off in perfect fashion.
+- [00:49.580] No issues with the vehicle, no issues with a crew.
+- [00:53.000] And the weather at the splashdown site is go.
+- [01:25.210] Coming up on one minute until entry interface.
+- [01:49.070] Mark, one minute until entry interface.
+- [01:54.730] One minute, twenty seconds until the expected start
+- [01:57.310] of our six-minute blackout.
+- [02:00.620] Female Speaker: Integrity, one minute to a six-minute blackout.
+- [02:07.190] Male Speaker: Integrity.
+- [02:37.800] Male Speaker: Ten seconds till entry interface.
+- [02:52.400] And we have crossed the threshold now,
+- [02:54.960] entering the Earth's atmosphere. We're at 400,000 feet,
+- [02:59.030] traveling 34,800 feet per second.
+- [03:09.780] Time to splash down 13 minutes 10 seconds.
+- [03:26.230] And as predicted, we've entered our communications blackout.
+- [03:31.090] This will be a six-minute blackout period.
+- [03:33.960] No voice, no data from the crew.
+- [03:43.860] We're 30 seconds away from the anticipated point
+- [03:46.320] of peak heating on the vehicle,
+- [03:48.380] where temperatures will rise to about 4,000
+- [03:51.440] to 5,000 degrees Fahrenheit.
+- [03:53.800] This is the true test of our trajectory.
+- [04:03.840] And from the G5 aircraft in the vicinity of the splashdown zone,
+- [04:09.450] this view of Integrity.
+- [04:14.640] So that pinpoint of light shows the vehicle
+- [04:17.860] as it enters the period of peak
+- [04:19.640] heating in the Earth's atmosphere,
+- [04:21.530] the first tug of gravity being felt by Integrity's astronauts
+- [04:25.700] since their launch back on April 1st.
+- [04:40.210] Four and a half minutes until the end of the blackout period.
+- [04:46.030] Time to splashdown, 11 minutes, 33 seconds.
+- [05:25.720] The landing and support officer reports
+- [05:27.770] that the P-3 has acquisition on Integrity.
+- [05:37.780] Three and a half minutes left in this blackout period.
+- [05:41.060] This is a visualization of the plasma buildup
+- [05:45.730] around the spacecraft
+- [05:47.030] and the repelling of that heat on Integrity's heat shield.
+- [06:27.720] Flight dynamics reports that airborne assets
+- [06:30.820] in the vicinity of the splashdown zone
+- [06:32.660] do have a visual on Integrity.
+- [06:35.540] Still 2 minutes and 40 seconds left in our blackout period.
+- [06:40.720] Time to splash down, nine minutes, 35 seconds.
+- [06:59.710] Multiple airborne assets as part of the recovery team
+- [07:02.610] all have visuals on Integrity.
+- [07:21.640] And the WB-57 flying in the splashdown zone
+- [07:24.690] also has a visual.
+- [07:29.550] And the Navy Helos also have visuals.
+- [07:39.680] We're still in the blackout period.
+- [07:42.850] Still do not have communications from the crew.
+- [08:20.450] We're standing by for communications from the crew.
+- [08:23.580] We should be out of the blackout period
+- [08:25.230] less than a minute from now.
+- [08:49.810] We are now processing data from Integrity.
+- [09:08.650] Landing and support officer reports the small boats
+- [09:11.120] are en route to the splashdown target zone.
+- [09:49.190] Passing through 150,000 feet, our trajectory is perfect.
+- [09:54.060] We're getting intermittent views of Integrity.
+- [09:59.350] Still waiting to establish voice communication.
+- [10:07.070] Female Speaker: Integrity, Houston,
+- [10:08.370] com check, post blackout.
+- [10:12.350] Male Speaker: Houston, Integrity we have you loud and clear
+- [10:16.300] Female Speaker: Your trajectory is nominal
+- [10:18.310] and your recovery teams have visual.
+- [10:22.910] Male Speaker: Guys, looks good.
+- [10:26.320] Female Speaker: No action for the enabled
+- [10:27.640] internal camera controller fail.
+- [10:31.170] Male Speaker: Big cheers from the viewing room here
+- [10:32.780] in mission control
+- [10:34.000] as voice communication reestablished
+- [10:36.020] with Commander Reid Wiseman. For America and a waiting world,
+- [10:41.380] Integrity is five and a half minutes away from coming home.
+- [10:55.280] Passing 100,000 feet now.
+- [11:01.650] Range to splashdown 19 nautical miles.
+- [11:32.060] Female Speaker: Integrity impact to the camera controller fail
+- [11:34.650] is no cab one views of the shoot.
+- [11:42.630] Male Speaker: Integrity.
+- [11:46.280] Male Speaker: We're processing good data
+- [11:47.640] through the GPS system. A good view of Integrity.
+- [11:50.850] Time to splash down four and a half minutes.
+- [11:59.570] And a view of Integrity from the WB-57.
+- [12:03.570] We're at 50,000 feet.
+- [12:26.280] The Pyros are armed for forward bay cover jettison.
+- [12:47.470] And there go the first series of parachutes,
+- [12:50.290] and we're on droves.
+- [12:53.340] Male Speaker: Houston, we're visual two droves out the window
+- [12:58.880] Male Speaker: Two good drove shoots. Next up.
+- [13:01.620] Female Speaker: We copy. We see him.
+- [13:02.970] Male Speaker: Next up,
+- [13:04.260] the deployment of pilot parachutes
+- [13:05.880] that will pull the main chutes out.
+- [13:08.630] Time to splash down, three minutes, and ten seconds.
+- [13:22.590] Perfect descent rate according to flight dynamics.
+- [13:28.320] Female Speaker: We see the same on board.
+- [13:43.960] Male Speaker: Passing through 10,000 feet, still on droves.
+- [14:03.160] Main chute deploy. We're at 5,000 feet.
+- [14:14.950] Surgeon Recovery Beacon has been activated on Integrity.
+- [14:21.650] And we have three good main chutes.
+- [14:26.000] Good three main chutes, good reefing, good descent rate.
+- [14:28.260] Female Speaker: -- rates
+- [14:29.470] and we see three good-looking parachutes.
+- [14:44.780] Female Speaker: Integrity, cabin pressure indicates
+- [14:46.610] no need for hydrazine checks.
+- [14:50.800] Male Speaker: Integrity copies.
+- [14:55.270] Male Speaker: This is a perfect descent for Integrity.
+- [14:58.380] Its crew sounding hail and hearty on board.
+- [15:04.170] Time to splash down one minute, 15 seconds.
+- [15:19.910] Integrity about to complete a journey spanning 694,481 miles
+- [15:26.720] from its launch from the Kennedy Space Center
+- [15:29.290] back on April 1st and a trip around the moon.
+- [16:06.240] Passing through 1,000 feet.
+- [16:47.510] Male Speaker: Houston, Integrity splashdown,
+- [16:49.040] sending post landing command now.
+- [16:51.460] Male Speaker: Splashdown confirmed.
+- [16:53.320] Female Speaker: Copy, splashdown, waiting on VLDR.
+- [16:55.790] Male Speaker: Splashdown confirmed
+- [16:57.080] at 7.07 p.m. Central Time, 5.07 p.
+- [17:00.510] m. Pacific Time. From the pages of Jules Verne
+- [17:04.910] to a modern-day mission to the moon,
+- [17:07.200] a new chapter of the exploration
+- [17:09.010] of our celestial neighbor is complete.
+- [17:11.370] Integrities astronauts, back on Earth.
+- [17:23.780] And the landing and support officer
+- [17:25.190] reports the vehicle is stable one.
+- [17:27.520] We still will be deploying the crew module upriding system
+- [17:30.740] to maintain that orientation.
+- [17:32.880] A perfect bullseye splashdown for Integrity
+- [17:35.690] and its four astronauts.
+- [18:11.310] The unofficial splashdown time, 7:07 and 47 seconds p.m.
+- [18:16.890] Central Time. We'll get that refined for you,
+- [18:20.100] that would put the end of the mission
+- [18:22.140] at a mission elapsed time of nine days,
+- [18:24.080] one hour, 31 minutes, 35 seconds.
+- [18:34.560] And we're configuring for a very low data rate.
+- [18:42.670] Once again, splashdown occurring in the Pacific southwest
+- [18:47.800] of San Diego at 7:07 and 47 seconds p.m.
+- [18:52.830] Female Speaker: Integrity Houston Comm Check on VLDR.
+- [19:00.340] Male Speaker: Houston, we have you loud and clear on
+- [19:02.040] (inaudible).
+- [19:03.960] Female Speaker: We have you the same.
+- [19:05.230] We'll meet you over in post landing.
+- [19:10.230] Male Speaker: Perfect communications established.
+- [19:13.340] Male Speaker: We are stable one, four green crew members.
+- [19:19.790] Female Speaker: Houston, copies all.
+- [19:21.980] Male Speaker: Reid Wiseman reporting
+- [19:23.320] four green crew members. That is not their complexion.
+- [19:26.540] That is the fact that they're in great condition.
+- [19:29.430] That's what that means. So, stable one upright.
+- [19:34.340] The crew module upriding system is being deployed.
+- [19:36.980] The five airbags being inflated through helium
+- [19:40.210] to maintain the upright configuration for the vehicle.
+- [19:44.000] This was a textbook entry
+- [19:45.670] and a textbook touchdown for Integrity.
+- [19:48.520] Reid Wiseman, Victor Glover, Christina Koch,
+- [19:50.650] and Jeremy Hansen back on Earth after a journey around the moon.
+- [20:44.250] We continue to monitor the functioning of the CMOS system.
+- [20:49.010] The airbags are being inflated to maintain a stable one
+- [20:52.390] or upright configuration.
+- [20:55.280] And there's a good view
+- [20:56.590] from one of the naval helicopters hovering overhead.
+- [21:02.860] Reid Wiseman reporting four green crew members,
+- [21:06.220] meaning they're all in excellent shape.
+- [21:24.890] Female Speaker: Integrity Houston
+- [21:26.280] for SAR Beacon and Radio.
+- [21:32.110] Male Speaker: SAR Beacon is in 406
+- [21:35.810] and we're powering the radio now, go ahead.
+- [21:39.880] Female Speaker: We see the beacon on, however,
+- [21:42.450] the recovery team is not seeing the signal.
+- [21:46.380] Your SAR radio uses the same antenna,
+- [21:49.170] so you may run into trouble with the radio.
+- [21:54.110] Male Speaker: Okay, copy,
+- [21:55.440] and we are also powering up the SAT phone now.
+- [22:07.890] Male Speaker: So Integrity is in great shape.
+- [22:10.980] And as the crew continues its post splashdown,
+- [22:15.510] timeline activities on board. Reid Wiseman once again
+- [22:18.840] reporting that all four crew members are in excellent shape.
+- [22:23.530] And we have five inflated airbags
+- [22:26.540] to maintain an upright configuration
+- [22:29.920] so that the reaction, the recovery team
+- [22:34.590] can now begin a slow approach to the vehicle.
+- [22:38.170] Meanwhile, here in the flight control room,
+- [22:39.950] entry flight director Rick Henfling
+- [22:42.080] is polling his team of flight controllers
+- [22:44.780] for the start of powering down the vehicle
+- [22:49.700] after a thorough systems check,
+- [22:52.330] we have no toxic gasses to be concerned about,
+- [22:57.020] so the recovery personnel can approach the vehicle,
+- [23:01.520] but not until we have powered down the spacecraft.
+- [23:04.160] That's expected to take a few more minutes.
+- [23:40.090] Integrity back on Earth
+- [23:42.060] following its historic flyby of the Moon.
+- [23:46.480] It was for all intents and purposes a textbook mission.
+- [23:49.620] Male Speaker: (inaudible)
+- [23:50.840] put our main on this frequency
+- [23:57.750] Female Speaker: We copy.
+- [24:03.510] Male Speaker: Reid Wiseman indicating some trouble
+- [24:05.570] with the SARSAT phone on board, but that's not an issue.
+- [24:09.740] What is more important is that the vehicle is solid,
+- [24:14.090] no issues as we begin the power down of the vehicle
+- [24:17.550] to begin the recovery process.
+- [24:54.910] The propulsion officer here in mission control reports
+- [24:57.910] that we have saved the prop system on Integrity.
+- [25:02.370] Male Speaker: Can you say again that was very weak and broken?
+- [25:10.070] Female Speaker: Integrity, Houston did not call.
+- [25:19.440] Male Speaker: Copy that, Houston.
+- [25:20.650] It might have been on the side radio. Standby.
+- [25:32.550] Male Speaker: All of the milestones were executed
+- [25:35.360] in perfect fashion.
+- [25:37.960] Integrity entering the Earth's atmosphere right on time.
+- [25:44.770] Reaching its peak speed shortly after a blackout period began.
+- [25:49.460] We emerged from the blackout period,
+- [25:52.410] but the recovery imagery airborne assets
+- [25:56.770] were able to pick up Integrity's descent
+- [25:59.730] almost immediately through entry interface,
+- [26:02.830] tracking the vehicle all the way down.
+- [26:05.770] And finally, you saw the sequence of chute deployments.
+- [26:10.170] First, the forward bay cover being pulled off
+- [26:12.960] the top of the vehicle by a series of three parachutes.
+- [26:16.900] Then the drove chutes were deployed,
+- [26:21.180] followed by the three main chutes
+- [26:23.370] that slowed the splashdown velocity of Integrity
+- [26:27.780] to just 19 miles an hour.
+- [27:01.940] Female Speaker: Integrity, Houston,
+- [27:03.500] with no joy on SAR and SAT phone,
+- [27:07.010] we'd like you to command an additional 15 minutes
+- [27:10.560] for a total of 30-minute power down delay.
+- [27:22.950] Male Speaker: All right, Jackie,
+- [27:24.220] we have selected T slash D plus 3, 0.
+- [27:29.060] No joy on SAR radio or SAT phone.
+- [27:35.260] And standby, we have the master diver on SAR radio.
+- [27:38.360] Please hold comms.
+- [27:41.910] Male Speaker: Hey Lily, excuse me,
+- [27:43.220] hey Jackie, we just got the Master Diver on SAR.
+- [28:05.450] Male Speaker: A good view of one of the fast boats.
+- [28:07.450] Female Speaker: Integrity Houston,
+- [28:09.010] if you are happy with your com with Master Diver,
+- [28:12.120] you can go back to the 15-minute power down.
+- [28:19.150] Male Speaker: Okay, standby.
+- [28:20.400] Yeah, we'll confirm here in a second.
+- [28:23.520] Male Speaker: The crew on board Integrity coordinating
+- [28:25.410] with the flight control team in Houston here
+- [28:28.040] in mission control
+- [28:29.460] on the timing of the power down of the vehicle,
+- [28:32.840] which will be the precursor to the recovery teams
+- [28:36.660] approaching the spacecraft.
+- [28:40.010] There are no issues with Integrity.
+- [28:42.530] We've had a bit of broken capability in establishing
+- [28:47.550] a SARSAT or satellite phone communications
+- [28:50.850] capability between the crew on board Integrity
+- [28:53.900] and the recovery team that will get sorted out here shortly.
+- [29:01.690] There's plenty of cooling on board Integrity,
+- [29:04.620] so there's no rush to begin the power down.
+- [29:06.650] Male Speaker: I'm calling you there on the SAT phone
+- [29:08.530] and not getting an answer there either.
+- [29:12.850] Female Speaker: Concur.
+- [29:14.170] We haven't had anything come through.
+- [29:32.260] Male Speaker: And Houston, if you could relay to recovery
+- [29:34.800] that we hear them, but it does not --
+- [29:38.970] but it does not appear so they are hearing us.
+- [29:49.500] Female Speaker: Houston copies and read just to confirm
+- [29:51.880] you are pushing the PTT on the radio.
+- [30:09.100] Male Speaker: So as we continue to sort out the communications
+- [30:11.610] between Integrity and the recovery teams,
+- [30:14.870] we are standing by for the initiation of the power
+- [30:17.470] down procedures that, as you see, the recovery team
+- [30:22.220] are moving towards the side of the capsule.
+- [30:25.510] The next major event will be the erection
+- [30:27.580] of that large inflatable raft called the front porch.
+- [30:33.000] That will be the port of call for the crew
+- [30:36.030] as they're being extracted one by one from the vehicle.
+- [30:49.690] Female Speaker: Integrity Houston for SAT phone,
+- [30:52.310] we are going to attempt to call you.
+- [31:00.620] Male Speaker: Good idea. Standing by.
+- [31:05.030] Male Speaker: And Jackie, yes, we are pushing the push-to-talk,
+- [31:08.460] the two buttons on the left side of the radio
+- [31:11.290] below the up-down arrows. We are utilizing them.
+- [31:13.890] I'm rebooting the radio to see if we get good comms.
+- [31:19.770] Female Speaker: Okay, we copy all,
+- [31:21.010] and just to confirm,
+- [31:22.590] you are seeing that your touchdown plus 30,
+- [31:26.080] 3, 0 for power, correct?
+- [31:31.620] Male Speaker: That's affirmative.
+- [31:49.850] Male Speaker: We are trying a back door approach
+- [31:52.770] to have mission control here,
+- [31:54.940] call the crew on their satellite phone.
+- [31:58.200] This is all part of the coordination
+- [31:59.590] for the power down of the vehicle
+- [32:02.520] that will initiate the actual recovery operation.
+- [32:07.720] The first boats with the Navy divers on board
+- [32:11.350] are standing by, waiting to close in on Integrity
+- [32:15.850] to begin the process of erecting large inflatable raft.
+- [32:20.660] That's called the front porch.
+- [32:22.560] That will be where the astronauts are extracted from so
+- [32:26.620] that they can have a few minutes to get their lamb legs back.
+- [32:31.930] Before they're hoisted aboard the Navy helicopters
+- [32:35.080] for the flight back to the deck of the USS John P. Murtha.
+- [33:09.020] Male Speaker: Houston, please don't reply NRD very weak
+- [33:14.300] But a readable master diver we can hear,
+- [33:17.190] but they cannot hear us.
+- [34:09.430] And Houston on OE1, is there any chance to tie us into NRD?
+- [34:28.570] Female Speaker: Checking.
+- [34:47.080] Male Speaker: This is Mission Control Houston.
+- [34:48.990] While we stand by for the establishment of communications
+- [34:52.250] between Integrity and the recovery team,
+- [34:55.800] that is basically standing by very close to the spacecraft,
+- [35:00.260] we're going to go to the deck of the USS John P.
+- [35:02.790] Murtha, where Megan Cruz is standing by
+- [35:05.200] with Administrator Jared Isaacman.
+- [35:14.640] Megan Cruz: Hey, Rabia, just such an honor
+- [35:15.980] to be able to be here on the ship,
+- [35:18.170] to be able to share and experience this moment
+- [35:20.560] with everyone together. And of course, as you just said,
+- [35:22.310] yes, here with NASA Administrator
+- [35:24.170] Jared Isaacman, Administrator,
+- [35:26.170] how did you feel getting to witness this
+- [35:27.990] and seeing NASA at its best?
+- [35:29.860] Jared Isaacman: Oh, I mean, I'm honestly --
+- [35:31.270] I'm still at a loss for words.
+- [35:32.610] I mean you know like the childhood
+- [35:34.480] Jared right now can't believe what I just saw.
+- [35:36.300] I mean almost been waiting my whole lifetime to see this
+- [35:40.300] and then as NASA administrator
+- [35:42.220] I just couldn't be more proud of the entire workforce,
+- [35:44.990] the years, the effort, the late nights,
+- [35:46.830] all the hard work from across the country
+- [35:48.930] that contributed to this incredible moment right now.
+- [35:53.260] And yeah, incredibly grateful too for our teams here
+- [35:57.420] on the John P. Murtha right now.
+- [35:58.860] Megan Cruz: Yeah, look at the behind us here!
+- [36:00.260] Jared Isaacman: What do you guys think,
+- [36:01.520] we just brought some astronauts back from the moon, huh?
+- [36:03.910] (cheers)
+- [36:08.580] Jared Isaacman: Thank you. Yeah, so grateful to the Navy
+- [36:10.560] the sailors that are here, the NASA teams
+- [36:13.270] I mean, this is a joint effort that's on their way right now
+- [36:15.540] These recovery forces are getting out to our
+- [36:17.490] Orion spacecraft, to Integrity to get our astronauts
+- [36:20.500] back on the ship safely
+- [36:21.810] Megan Cruz: Yeah, and this is not
+- [36:23.110] just an accomplishment for
+- [36:24.340] NASA, this is an accomplishment for humanity again,
+- [36:26.750] a historic mission to the moon and back,
+- [36:29.800] how does this make you feel
+- [36:31.320] and what do you hope people take away from this?
+- [36:33.050] Jared Isaacman: Well, I'll tell you, you know,
+- [36:34.270] I think about the crew members that we've all had
+- [36:37.740] an opportunity to observe over the last 10 days, right?
+- [36:40.360] I mean, they're absolutely professional astronauts,
+- [36:43.690] I mean wonderful communicators, almost poets,
+- [36:46.080] but then I think these were the ambassadors from humanity
+- [36:49.440] to the stars that we sent out there right now.
+- [36:51.310] And I can't imagine a better crew
+- [36:54.030] than the Artemis II crew
+- [36:55.410] that just completed a perfect mission right now,
+- [36:58.180] so yes, it's a huge moment for everybody, right.
+- [37:01.530] We are back in the business of sending astronauts to the moon,
+- [37:05.610] bringing them back safely and to set up for a series more.
+- [37:08.470] I mean, this is not a once in a lifetime,
+- [37:10.630] which you hear sometimes around here is like,
+- [37:12.280] this was a once-in-a-lifetime.
+- [37:13.520] No, it's not. This is just the beginning.
+- [37:15.540] We are going to get back into doing this with frequency,
+- [37:17.990] sending missions to the Moon until we land on it in 2028
+- [37:21.780] and start building our base.
+- [37:23.100] Megan Cruz: Yeah, are we going to build on the momentum
+- [37:24.700] for Artemis III?
+- [37:25.910] I mean, it's just around the corner.
+- [37:27.210] Jared Isaacman: Absolutely, so I mean
+- [37:28.420] that's you know part of me too like
+- [37:29.820] I can't wait to get the crew off of Integrity right now
+- [37:33.590] But also getting Integrity back on this ship
+- [37:36.520] so we can start taking a look at it
+- [37:37.780] because all that data is so precious to us right now.
+- [37:40.300] I mean we are going to definitely want
+- [37:41.790] to take a good look at the thermal protection system
+- [37:43.780] We're going to want to download all the data
+- [37:45.350] they couldn't transmit back to us
+- [37:46.900] and use that to inform Artemis three,
+- [37:48.570] but we're already making progress, right?
+- [37:50.110] You had SRB segments already showing up at at KSC core stage
+- [37:53.890] for Artemis 3 is rolling out on April 20th
+- [37:57.290] We're getting mobile launcher one back
+- [38:00.130] in vehicle assembly building.
+- [38:01.500] So yes, there is a lot to celebrate right now
+- [38:04.580] on a mission well accomplished for Artemis II.
+- [38:07.360] And at the same time,
+- [38:08.670] we've got to start getting ready for three.
+- [38:10.120] Megan Cruz: Amazing. And last question, you know,
+- [38:11.420] for people who joined us for all 10 days
+- [38:14.680] to see what we can accomplish together
+- [38:16.620] with our international partners. What do you think about the fact
+- [38:21.890] that we're going to keep doing this more and more and more.
+- [38:25.720] Jared Isaacman: It's incredibly exciting.
+- [38:27.020] I mean, yes, it's the contributions,
+- [38:28.660] like the best and brightest across the NASA workforce,
+- [38:30.820] from across the country, our industry partners,
+- [38:33.000] our international partners.
+- [38:34.480] We had a Canadian space agency astronaut on board,
+- [38:36.930] and Jeremy, we had the European service module.
+- [38:39.290] And you think, in the days leading up to this launch,
+- [38:41.640] I mean 48 hours prior to launching Artemis 2.
+- [38:45.100] I was meeting with the Italian Space Agency.
+- [38:47.180] We signed a memorandum of understanding
+- [38:49.420] to build a habitation module on the moon.
+- [38:52.720] I mean, you have countries,
+- [38:54.500] all of our allies and partners coming together saying,
+- [38:57.040] we are committed to this effort.
+- [38:58.670] We are returning to the moon, we're doing it to stay.
+- [39:01.560] We are building that enduring presence.
+- [39:03.270] We are going to master the skills
+- [39:04.730] on the surface of the moon
+- [39:05.960] so someday we can undertake missions to Mars.
+- [39:08.100] It's just an incredibly exciting time
+- [39:10.180] and we're not going at it alone.
+- [39:11.670] We're bringing everybody along with us.
+- [39:13.050] Megan Cruz: Absolutely and speaking
+- [39:14.260] of everyone one more time
+- [39:15.460] we're going to ask the crew here.
+- [39:16.700] You guys ready to land on the moon?
+- [39:18.510] (cheers)
+- [39:21.980] I love that!
+- [39:23.350] Okay, well, thank you so much, Administrator.
+- [39:24.890] Appreciate you being here.
+- [39:26.130] We're, of course, going to stay on
+- [39:27.380] to watch the crew get extracted from Orion.
+- [39:29.300] So stay tuned and we'll see you back here shortly.
+- [39:41.090] Male Speaker: Thank you, Megan,
+- [39:42.450] and thank you, Administrator Isaacman.
+- [39:45.230] We are in the process of working to establish
+- [39:48.690] that communications link and to establish the procedures
+- [39:52.800] that will lead to the power down of the spacecraft,
+- [39:55.760] which is gently bobbing in the Pacific
+- [39:58.330] following a bullseye touchdown that occurred at 7:07 p.m.
+- [40:04.220] Central Time, 5:07 p.m. Pacific Time,
+- [40:07.110] two and a half hours before sunset in the Pacific.
+- [40:11.040] Southwest of San Diego.
+- [40:14.600] We have once again heard from the crew
+- [40:17.470] during that interview opportunity
+- [40:19.050] with the administrator
+- [40:20.720] and we have four healthy crew members on board.
+- [40:29.590] We now have confirmation that the vehicle
+- [40:31.870] has been powered down as per the procedures.
+- [40:35.650] So we have vehicle powered down
+- [40:37.630] and the flight control team here in Houston,
+- [40:39.700] flight director Rick Henfling,
+- [40:41.390] has handed over mission authority
+- [40:43.110] to the exploration ground systems team out on the Pacific.
+- [40:46.710] Now, we will physically not get off console with this team
+- [40:52.310] until the crew has been extracted into the front porch,
+- [40:55.800] that inflatable raft that will be erected
+- [40:57.760] along the side hatch of Integrity,
+- [41:00.230] so we're standing by for that in the next step
+- [41:02.540] in the recovery procedures.
+- [41:03.830] But everything is in great shape
+- [41:05.680] and we have four healthy crew members on board the vehicle.
+- [41:29.180] All of the entry events went by the book.
+- [41:31.670] No issues, perfect trajectory for Integrity
+- [41:35.970] that was culminated with one final raise burn
+- [41:39.630] to improve the angle of attack for the vehicle
+- [41:42.740] as it entered the Earth's atmosphere.
+- [41:44.250] All of that flight dynamics computation worked like a charm.
+- [42:16.360] So we are standing by for the recovery team
+- [42:19.840] to approach Integrity
+- [42:21.880] and begin the process of erecting that inflatable raft
+- [42:24.740] called the front porch,
+- [42:26.580] which we'll see the crew members be extracted
+- [42:30.110] from the hatch of Orion into that inflatable raft
+- [42:34.850] before they're hoisted aboard two Navy helicopters
+- [42:42.040] in a variety of different configurations,
+- [42:46.270] each crew member will be hoisted in sequential fashion
+- [42:50.050] and alternating fashion.
+- [42:52.070] Two crew members for each helicopter
+- [42:54.290] before they turn around to head back to the John P.
+- [42:56.770] Murtha. Once on the deck of the ship,
+- [42:59.770] they'll be brought into medical bay
+- [43:01.150] for comprehensive medical exams.
+- [43:03.840] But Reid Wiseman has reported several times
+- [43:06.580] that the crew is in excellent shape.
+- [43:27.320] So just to recap, it has been some 26 and a half minutes
+- [43:34.070] since the splashdown of Integrity in the Pacific.
+- [43:37.290] The vehicle is in excellent shape.
+- [43:39.510] It performed like a champ
+- [43:41.110] all the way down through the Earth's atmosphere.
+- [43:43.990] All of the vehicle functions were checked off
+- [43:47.500] in excellent trip hammer fashion.
+- [43:50.800] The parachutes all deployed as planned,
+- [43:53.650] splashdown occurring at 7:07 p.m.
+- [43:56.650] Central Time, 5:07 p.m. Pacific Time.
+- [44:08.110] And after a bit of a tussle
+- [44:10.970] to try to establish a communications link
+- [44:13.110] with the recovery team,
+- [44:14.800] we were finally able to run through the procedures
+- [44:18.700] for the powering down of the vehicle.
+- [44:21.060] We've handed over mission authority to the exploration
+- [44:23.990] ground systems folks out in the Pacific.
+- [44:27.460] And the recovery will be approaching the vehicle
+- [44:31.820] shortly to erect the inflatable raft called the front porch.
+- [44:37.080] Before opening the hatch to Integrity
+- [44:39.100] to bring the crew members onto that raft
+- [44:42.040] before they're hoisted onto two Navy helicopters,
+- [44:46.370] two crew members for each helicopter
+- [44:49.090] before they are flown back to the deck of the USS John P.
+- [44:51.760] Murtha.
+- [47:36.220] This is Mission Control Houston.
+- [47:39.030] After talking to the flight dynamics folks,
+- [47:41.640] we have a bit of a refinement on the splashdown time for you.
+- [47:46.820] Their computation shows a splashdown of time of 7:07
+- [47:51.570] and 27 seconds p.m. Central Time.
+- [47:54.640] 7:07 and 27 second p.m. Central Time.
+- [48:08.240] That would equate to a mission elapsed time of nine days,
+- [48:12.700] one hour, 32 minutes, and 15 seconds.
+- [48:23.560] Once again, from Flight Dynamics,
+- [48:27.130] a splashdown time of 7:07 and 27 seconds p.m.
+- [48:31.200] Central Time.
+- [48:33.650] That would equate to a mission elapsed time of 9 days,
+- [48:36.540] 1 hour, 32 minutes, and 15 seconds.
+- [48:49.960] Reports from the Pacific indicate
+- [48:54.490] that the recovery team in communications
+- [48:57.240] with the crew abhorred Integrity
+- [48:59.100] that the crew remains in excellent shape
+- [49:01.900] as they await the approach of the team
+- [49:06.300] for a final hazard gas evaluation
+- [49:09.360] before they move to the side of the vehicle
+- [49:11.730] to erect the inflatable life raft called the front porch.
+- [49:36.010] Again, no issues with Integrity. The vehicle is powered down.
+- [49:40.080] All of its systems are now safe.
+- [49:43.560] We have handed over mission authority
+- [49:45.390] to the exploration ground systems folks in the Pacific,
+- [49:49.230] but we will not stand down
+- [49:52.570] and have the entry flight control team
+- [49:56.370] depart its positions until that inflatable raft,
+- [50:02.150] the front porch is erected, the hatch open, and the crew.
+- [50:05.650] Having exited the vehicle.
+- [50:07.350] So that's the next step in the recovery process
+- [50:10.390] that will lead to the hoisting of the crew members
+- [50:13.360] for two crew members for each helicopter.
+- [50:15.330] They'll be hoisted to a pair of Navy helicopters
+- [50:19.290] that will then fly a short distance back to the USS John P.
+- [50:22.790] Murtha.
+- [50:27.320] What you're looking at is one of the fast boats
+- [50:29.460] circling the vehicle to make a hazard assessment.
+- [53:08.570] This is Mission Control Houston.
+- [53:10.200] Once again, you're watching the initiation of the recovery
+- [53:14.070] of the Artemis crew aboard Integrity.
+- [53:18.660] All of the Navy divers and the fast boats
+- [53:21.500] are now approaching the spacecraft
+- [53:23.830] after conducting a hazard assessment.
+- [53:26.420] The vehicle has been powered down.
+- [53:28.770] Entry flight director Rick Henfling
+- [53:30.430] now waiting for the life raft,
+- [53:32.880] the front porch, to be erected along the side of the vehicle
+- [53:37.020] so that the hatch can be opened
+- [53:38.530] and the crew members extracted from Integrity
+- [53:42.310] soon to be hoisted one by one into a pair of Navy helicopters
+- [53:46.850] for a short flight back to the deck of the USS John P.
+- [53:49.830] Murtha.
+- [53:52.720] If you missed it earlier, we talked to Flight Dynamics
+- [53:56.020] and received a more official touchdown time of,
+- [53:59.940] or splashdown time as it were, of 7:07 and 27 seconds p.m.
+- [54:04.350] Central Time, 5:07 and 27 second p.m. Pacific Time.
+- [54:09.720] That would equate to a mission elapsed time of 9 days,
+- [54:12.490] 1 hour, 32 minutes, and 15 seconds.
+- [57:00.860] Continuing to get excellent views from the imagery assets
+- [57:06.160] out at sea in the Pacific of Integrity,
+- [57:09.300] we continue to get good reports
+- [57:10.740] from the landing and support officer
+- [57:13.380] who's in contact with the recovery team
+- [57:15.230] that the crew is in excellent shape, no issues.
+- [57:18.470] They're just currently biding their time,
+- [57:21.700] waiting for the front porch to be erected.
+- [57:24.450] We have no hazardous -- we have no hazard gasses
+- [57:29.720] and no hazardous situation with the vehicle.
+- [57:31.950] It performed perfectly all the way down from entry interface
+- [57:36.330] to its splashdown in the Pacific at 7:07 and 27 seconds p.m.
+- [57:40.880] Central Time. And as you can see,
+- [57:46.400] the first phalanx of recovery personnel now
+- [57:51.160] pulling up alongside of Integrity.
+- [58:00.430] This includes Navy divers and Navy flight surgeon
+- [58:05.280] and other recovery personnel who have trained for several years
+- [58:09.680] for this recovery process.
+- [58:48.230] At this hour, some 41 minutes following splashdown,
+- [58:52.570] the vehicle has been powered down.
+- [58:54.700] There's no hazardous gas emanating from the vehicle.
+- [58:57.760] That's why the first team of recovery personnel
+- [59:02.140] has been able to pull alongside Integrity.
+- [59:05.680] And the reports continue to come in that
+- [59:07.650] the four astronauts are in excellent shape.
+- [01:01:00.710] This is Mission Control Houston continuing to watch
+- [01:01:03.340] the initiation of the recovery of Integrity's astronauts.
+- [01:01:09.510] One by one, they'll be brought out of the spacecraft
+- [01:01:12.110] onto a large inflatable raft just a short time from now.
+- [01:01:17.150] In the meantime, we can go back to the USS John P.
+- [01:01:19.660] Murtha, where my colleague Megan Cruz
+- [01:01:21.830] is standing by to provide her situation report.
+- [01:01:26.110] Megan, can you hear us?
+- [01:01:34.340] Megan Cruz: Hey, Rob. Yes, I can hear you. Thank you.
+- [01:01:36.200] Yeah, we're back here on the bow of the recovery ship
+- [01:01:40.120] where there are still plenty of people
+- [01:01:43.040] peering out into the water.
+- [01:01:44.340] We are not very far from the action.
+- [01:01:46.470] Everyone is seeing on their screen now.
+- [01:01:49.750] The Orion spacecraft Integrity in the ocean
+- [01:01:53.810] surrounded by a number of recovery boats.
+- [01:02:01.390] As Rob has been saying, in those recovery boats,
+- [01:02:04.620] NASA and Navy personnel specifically trained
+- [01:02:08.310] to get the astronauts out of Orion.
+- [01:02:24.700] In some of our wide shots you can probably see
+- [01:02:26.730] that there are six boats out in the water.
+- [01:02:33.470] More than 40 people out in the water right now on those boats.
+- [01:03:19.050] First order of business is to set up the front porch
+- [01:03:24.210] and the stabilization collar.
+- [01:03:26.730] You might also hear it referred to as a stab collar,
+- [01:03:31.270] basically just to make sure that Orion stays upright,
+- [01:03:35.160] doesn't sway in the water too much, again,
+- [01:03:37.430] to make it easier for recovery forces
+- [01:03:40.610] to get the astronauts out.
+- [01:03:58.480] Again, we splashed down in the Pacific Ocean
+- [01:04:00.270] just after 5:00 p.m. Pacific Time here.
+- [01:04:03.880] It's a requirement by NASA
+- [01:04:06.190] to be able to get the crew out of Orion
+- [01:04:10.520] within two hours of splashdown.
+- [01:04:14.650] So doing great on time so far. Plenty of time, no rush either.
+- [01:04:19.360] I was speaking to NASA Flight Surgeon Rick
+- [01:04:23.330] Schuring earlier in this broadcast,
+- [01:04:25.640] and he said to me, no rush to get the crew out.
+- [01:04:29.560] Just want to make sure that they're feeling good.
+- [01:04:33.480] And whenever they're ready to take their step out of Orion
+- [01:04:37.640] and onto that large raft,
+- [01:04:39.420] the front porch, folks will be ready.
+- [01:05:03.740] And as there are mission audio loops
+- [01:05:06.040] in mission control in Houston,
+- [01:05:07.730] there is a mission audio loop here on the ship.
+- [01:05:11.290] And it was just reported out that the side hatch is open.
+- [01:05:16.570] Side hatch of Integrity is open.
+- [01:05:23.060] We're getting these beautiful shots from our aerial assets.
+- [01:05:27.250] The ship itself, where I'm on, just 3,000 yards away.
+- [01:05:34.950] Again, plenty of people on the boat here,
+- [01:05:38.020] glued to the side,
+- [01:05:39.330] closest to where they can see all this action.
+- [01:05:41.280] And again, with just 3,000 yards separating us,
+- [01:05:44.650] great views from the bow here.
+- [01:05:50.240] You can see now that side hatch is open.
+- [01:05:54.060] One of the Navy personnel is about to get inside there.
+- [01:06:07.780] In they go. In total, four will go into Orion.
+- [01:06:13.280] So it'll be a little bit of a tight squeeze,
+- [01:06:14.910] but the goal is to have a recovery personnel
+- [01:06:22.600] with each astronaut assessing them.
+- [01:06:40.130] The boat's getting closer now.
+- [01:06:56.380] Again, that one that's right up against Orion,
+- [01:06:58.770] those are the divers that will go in to the spacecraft
+- [01:07:02.770] to check on each of the astronauts.
+- [01:07:05.530] These other boats will begin doing a number of things,
+- [01:07:08.170] putting on that stabilization collar onto Orion,
+- [01:07:11.610] building that front porch.
+- [01:07:16.620] Eventually they will retrieve the parachutes as well as tow
+- [01:07:23.180] Orion back to the well deck of the recovery ship here.
+- [01:07:44.900] And so as we wait for the Navy and NASA personnel
+- [01:07:48.660] to get their assessment of the crew inside of Orion,
+- [01:07:52.960] why don't we toss it back to Rob for an update.
+- [01:07:56.530] Male Speaker: Yes, thank you, Megan.
+- [01:07:57.820] Here in Mission Control, Flight Director Rick Henfling
+- [01:08:00.160] and the entry team of flight controllers still on duty.
+- [01:08:03.370] The vehicle has been powered down for some time now.
+- [01:08:06.760] There are no hazardous gasses emanating from Integrity
+- [01:08:09.850] that, of course, allowed the recovery personnel
+- [01:08:13.100] to approach the vehicle and then open the hatch
+- [01:08:16.200] to begin the initial medical assessment of the crew,
+- [01:08:19.560] as you just indicated. Now we're standing by
+- [01:08:22.600] for the erection of that inflatable raft,
+- [01:08:26.260] the front porch, alongside of the vehicle
+- [01:08:29.490] that will enable the crew to be extracted one
+- [01:08:31.630] by one onto the raft,
+- [01:08:33.460] have a moment or two to get their land legs back
+- [01:08:36.530] before they're hoisted into two hovering Navy helicopters,
+- [01:08:41.370] two crew members for each helicopter
+- [01:08:43.670] for a short flight back to the deck of the USS John P.
+- [01:08:46.830] Murtha.
+- [01:08:52.620] All of Integrity's systems operated flawlessly
+- [01:08:55.900] throughout the course of the approach to the Earth,
+- [01:09:00.150] the entry into the Earth's atmosphere,
+- [01:09:02.240] and all of the key milestones
+- [01:09:04.380] that followed in this high-speed return to Earth for Integrity,
+- [01:09:08.540] a mission that spanned more than 694,000 miles
+- [01:09:12.860] from the vehicle's launch from the Kennedy Space Center
+- [01:09:15.680] atop the space launch system back on April 1st.

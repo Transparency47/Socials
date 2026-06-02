@@ -1,0 +1,132 @@
+<!-- source: https://www.youtube.com/watch?v=6jdfVSz2FXo -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 6jdfVSz2FXo -->
+<!-- date_published: 2026-03-25T21:47:03+00:00 -->
+<!-- date_accessed: 2026-06-02T01:03:00.380260+00:00 -->
+
+# Transcript: President Trump Participates in Medal of Honor Ceremony
+
+- [00:00.000] The President of the United States of
+- [00:01.760] America has posthumously awarded in the
+- [00:04.040] name of Congress the Medal of Honor to
+- [00:06.440] Master Sergeant Rodger W. Edmonds,
+- [00:08.760] United States Army. 1941,
+- [00:12.280] Rodger Edmonds of Knoxville, Tennessee
+- [00:14.640] enlisted in the US Army
+- [00:16.800] and soon rose to one of the youngest
+- [00:18.880] Master Sergeants in the military. On the
+- [00:21.480] evening of January 26, 1945, the Germans
+- [00:24.160] announced that only Jewish-American
+- [00:25.600] prisoners would fall out for roll call
+- [00:27.760] the following morning at the threat of
+- [00:29.640] execution. There were more than 200
+- [00:31.840] Jewish-American soldiers in the camp and
+- [00:34.040] Rodger knew their separation from the
+- [00:36.360] group would mean certain death. So, that
+- [00:38.680] night he summoned his team and devised a
+- [00:41.040] plan.
+- [00:42.280] The next morning, all 1,200 American men
+- [00:45.600] fell in line together shoulder to
+- [00:47.520] shoulder. The commandant removed his
+- [00:49.360] pistol, pressed it hard against Master
+- [00:51.320] Sergeant Edmonds' forehead between his
+- [00:53.280] eyes, and demanded that he order all
+- [00:55.480] Jewish-American prisoners to step
+- [00:57.240] forward or he would be shot. Master
+- [01:00.000] Sergeant Edmonds fearlessly held his
+- [01:01.960] ground refusing to concede. The Nazi
+- [01:04.440] officer lowered his weapon and the
+- [01:06.080] soldiers erupted in cheers.
+- [01:09.000] With total disregard for his own life,
+- [01:11.080] Rodger had saved over 200 of his fellow
+- [01:13.720] service members.
+- [01:14.720] >> Master Sergeant Edmonds gallantly led
+- [01:16.520] these prisoners in a relentless pursuit
+- [01:18.320] of opposition and resistance, forcing
+- [01:20.520] the Germans to abandon the camp leaving
+- [01:22.280] the 1,200 American prisoners behind.
+- [01:25.200] Congratulations to the family of Master
+- [01:27.600] Sergeant Rodger Edmonds. The President
+- [01:30.360] of the United States of America has
+- [01:32.080] posthumously awarded in the name of
+- [01:34.120] Congress the Medal of Honor to Staff
+- [01:36.360] Sergeant Michael H. Ollis, United States
+- [01:38.720] Army. After 9/11, Michael enlisted in
+- [01:41.240] the Army and by
+- [01:43.560] 24 years old, he was in he was he was
+- [01:46.400] locked in. He loved it. He wanted it so
+- [01:48.400] badly.
+- [01:49.840] He was a squad leader serving in
+- [01:51.760] Afghanistan with the 2nd Battalion, 22nd
+- [01:56.400] Infantry Regiment, 1st Brigade Combat
+- [01:59.400] Team
+- [02:00.440] of the legendary 10th Mountain Division.
+- [02:03.400] A complex enemy attack involving
+- [02:05.360] multiple vehicle born improvised
+- [02:07.479] explosive devices, suicide vest,
+- [02:09.960] indirect fire and small arms fire was
+- [02:12.280] launched against forward operating base
+- [02:14.120] Honzi. From across the compound Michael
+- [02:16.400] saw the pillar of white smoke rising and
+- [02:18.520] ran to join the fight rushing without
+- [02:21.440] his gear. Along the way he encountered a
+- [02:23.760] Polish soldier and together they
+- [02:26.520] advanced
+- [02:27.959] under heavy fire, very very heavy fire.
+- [02:30.640] While fighting along the perimeter an
+- [02:32.240] insurgent came around the corner.
+- [02:34.720] Staff Sergeant Allis fired on the
+- [02:36.680] insurgent and incapacitated him, but as
+- [02:39.120] he approached the downed insurgent and
+- [02:40.720] the insurgent suicide vest detonated and
+- [02:42.840] mortally wounded him. He charged the
+- [02:45.440] wounded Polish soldier without
+- [02:47.640] hesitation. Michael raised his gun and
+- [02:49.840] forced himself
+- [02:51.440] between the insurgent and the man he
+- [02:53.760] just met shielding him with his own
+- [02:56.040] body. Staff Sergeant Allis' exceptional
+- [02:58.240] courage and complete disregard for
+- [03:00.280] personal safety were in keeping with the
+- [03:02.280] highest traditions of military service
+- [03:04.120] and reflect great credit upon him, his
+- [03:06.519] unit and the United States Army. The
+- [03:08.760] President of the United States of
+- [03:10.280] America has awarded in the name of
+- [03:12.160] Congress the Medal of Honor to Staff
+- [03:14.680] Sergeant Terry P. Richardson, United
+- [03:16.720] States Army. 102 brave men of Terry's
+- [03:19.680] Alpha Company were asked with
+- [03:23.200] securing Hill 22 deep behind the enemies
+- [03:28.120] line in Vietnam. They didn't know it at
+- [03:31.040] the time, had no idea, but the area was
+- [03:34.600] totally infested with nearly 300 enemy
+- [03:37.480] bunkers. Pin down in hell on earth Terry
+- [03:40.400] summoned
+- [03:41.560] unimaginable
+- [03:43.200] courage. Three times he exposed himself
+- [03:45.959] to enemy fire to rescue
+- [03:48.600] severely wounded comrades and three
+- [03:50.680] times he dragged them back to the group.
+- [03:53.440] Staff Sergeant Richardson recognized
+- [03:55.040] that the only way to keep his company
+- [03:56.720] from being overrun was with accurate
+- [03:58.880] tactical air strikes. Acting without
+- [04:01.120] regard of his own life, he grabbed the
+- [04:03.040] radio and charged up hill 22 alone. He
+- [04:07.200] began to direct the tactical air strikes
+- [04:09.240] and shortly thereafter became wounded by
+- [04:11.240] an enemy sniper.
+- [04:12.920] Staff Sergeant Richardson continued
+- [04:15.000] directing the tactical air strikes for
+- [04:16.560] seven more hours before the enemy broke
+- [04:18.720] contact.
+- [04:19.519] >> Due to his actions above and beyond the
+- [04:21.600] call of duty, 82 men, Alpha Company,
+- [04:24.600] survived this battle
+- [04:26.400] including two in this room, Norm Meyer
+- [04:29.280] and
+- [04:30.080] Dave Hemmer. Terry, today you enter the
+- [04:33.040] ranks of the bravest warriors ever
+- [04:36.560] to stride the face of the earth.

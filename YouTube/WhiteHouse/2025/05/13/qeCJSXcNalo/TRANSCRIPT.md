@@ -1,0 +1,132 @@
+<!-- source: https://www.youtube.com/watch?v=qeCJSXcNalo -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: qeCJSXcNalo -->
+<!-- date_published: 2025-05-13T16:06:00+00:00 -->
+<!-- date_accessed: 2026-06-02T01:26:07.882733+00:00 -->
+
+# Transcript: President Trump Participates in a Signing Ceremony and an Exchange of Agreements
+
+- [00:00.500] Male Speaker: (foreign language)
+- [00:30.190] Female Speaker: In the name of Allah,
+- [00:31.920] the Most Gracious, the most Merciful,
+- [00:35.010] Your Royal Highness Prince Mohammed bin Salman bin
+- [00:37.300] Abdulaziz Al Saud, Crown Prince and Prime Minister,
+- [00:41.470] the Honorable Donald J. Trump,
+- [00:44.390] President of the United States of America.
+- [00:48.040] Your Highnesses and Excellencies,
+- [00:50.790] warm greetings.
+- [00:52.460] Male Speaker: (foreign language)
+- [01:06.200] Female Speaker: With your permission,
+- [01:07.490] we shall now begin the signing ceremony
+- [01:09.340] of the Strategic Economic Partnership
+- [01:11.710] between the government of the Kingdom of Saudi Arabia
+- [01:14.530] and the United States of America.
+- [01:16.800] Male Speaker: (foreign language)
+- [01:36.330] Female Speaker: Signing on behalf of the Kingdom,
+- [01:38.210] His Royal Highness, Prince Mohammed bin Salman
+- [01:40.960] bin Abdulaziz Al Saud, Crown Prince and Prime Minister.
+- [01:44.760] Signing on the behalf of United States,
+- [01:47.340] the Honorable Donald J. Trump,
+- [01:50.110] President of the United States of America.
+- [01:54.013] (the documents are signed)
+- [03:50.283] (applause)
+- [04:07.728] Male Speaker: (foreign language)
+- [04:23.700] Female Speaker: Your Royal Highness, Mr. President,
+- [04:26.350] with your permission, we shall now begin the ceremony
+- [04:29.010] of exchange and announcements
+- [04:31.160] of number of bilateral agreements and memorandums
+- [04:34.750] between the Kingdom of Saudi Arabia
+- [04:36.730] and the United States of America.
+- [04:38.980] Male Speaker: (foreign language)
+- [05:04.280] Female Speaker: Starting with a memorandum of understanding
+- [05:07.070] between the Ministry of Energy and the Kingdom of Saudi Arabia
+- [05:10.300] and the U.S. Department of Energy
+- [05:12.010] for cooperation in the field of energy.
+- [05:14.910] From the Saudi side, His Royal Highness Prince Abdulaziz
+- [05:17.530] bin Salman bin Abdulaziz, Minister of Energy.
+- [05:20.660] From the U.S. Side,
+- [05:21.940] His Excellency, Mr. Chris Wright, Secretary of Energy.
+- [05:34.539] (applause)
+- [05:39.156] Male Speaker: (foreign language)
+- [06:12.860] Female Speaker: Next, a letter of intent
+- [06:14.730] between the Ministry of Defense of Saudi Arabia
+- [06:17.430] and the U.S. Department of Defense
+- [06:19.050] regarding the modernization and development
+- [06:22.000] of the capabilities of the Saudi
+- [06:23.750] armed forces through future defense capabilities.
+- [06:26.770] From the Saudi side,
+- [06:28.060] His Royal Highness Prince Khalid bin Salman bin Abdulaziz,
+- [06:31.110] Minister of Defense. From the U.S. side,
+- [06:33.500] his Excellency, Mr. Pete Hegseth,
+- [06:35.810] Secretary of Defense.
+- [06:49.875] (applause)
+- [06:56.545] Male Speaker: (foreign language)
+- [07:15.630] Female Speaker: Announcing the agreements
+- [07:17.480] of memorandum of understanding on cooperation
+- [07:20.010] in the field of mining and mineral resources
+- [07:22.430] between the Ministry of Industry
+- [07:24.170] and the Mineral Resources in Saudi Arabia
+- [07:27.420] and the U.S. Department of Energy.
+- [07:30.110] Male Speaker: (foreign language)
+- [07:47.670] Female Speaker: Announcing a letter of intent
+- [07:49.060] to complete work and enhance joint corporation on ammunition,
+- [07:53.270] training, support services, maintenance, system upgrades,
+- [07:57.580] spare parts, and education for land and air systems
+- [08:01.180] of the National Guard.
+- [08:03.340] Male Speaker: (foreign language)
+- [08:14.240] Female Speaker: Memorandum of Understanding
+- [08:16.150] between the International Partnership Program
+- [08:18.770] at the Ministry of Interior
+- [08:20.560] and the Federal Bureau of Investigation.
+- [08:23.130] Male Speaker: (foreign language)
+- [08:37.370] Female Speaker: A letter of intent
+- [08:38.840] between the Ministry of Defense of Saudi Arabia
+- [08:41.440] and the U.S. Department of Defense
+- [08:43.180] regarding the development of the health
+- [08:45.580] capabilities of the Saudi armed forces.
+- [08:48.850] Male Speaker: (foreign language)
+- [08:58.960] Female Speaker: Memorandum of Understanding
+- [09:00.580] for Judicial Cooperation
+- [09:02.340] between the Ministry of Justice in Saudi Arabia
+- [09:05.090] and the U.S. Department of Justice.
+- [09:07.780] Male Speaker: (foreign language)
+- [09:25.900] Female Speaker: An executive agreement
+- [09:27.450] between the Saudi Space Agency
+- [09:29.440] and NASA for cooperation in the CubeSat-2 Space
+- [09:33.810] Weather Monitoring Project as part of the Artemis mission.
+- [09:38.570] Male Speaker: (foreign language)
+- [09:50.270] Female Speaker: An agreement between the government
+- [09:51.940] of Saudi Arabia
+- [09:53.200] and the government over the United States
+- [09:55.240] regarding mutual assistance between the customs authorities
+- [09:58.920] of the two countries.
+- [10:00.590] Male Speaker: (foreign language)
+- [10:11.160] Female Speaker: Next, protocol amending the Air
+- [10:13.250] Transport Agreement
+- [10:14.700] between the government of Saudi Arabia
+- [10:16.670] and the government of the United States of America.
+- [10:19.920] Male Speaker: (foreign language)
+- [10:35.690] Female Speaker: Next, a memorandum of understanding
+- [10:38.390] between the National Institute for Health Research
+- [10:41.650] in Saudi Arabia and the U.S. National
+- [10:43.800] Institute of Allergy and Infectious Diseases
+- [10:46.680] on medical research related to infectious diseases.
+- [10:50.870] Male Speaker: (foreign language)
+- [11:03.900] Female Speaker: Corporation agreement between
+- [11:05.500] the Royal Commission for Al-Ula
+- [11:07.510] and the Smithsonian Institute National Zoo
+- [11:10.380] and Conservation Biology Institute.
+- [11:13.320] Male Speaker: (foreign language)
+- [11:26.020] Female Speaker: And last but not least,
+- [11:27.230] corporation agreement
+- [11:28.440] between the Royal Commission for Al-Ula
+- [11:30.260] and the Smithsonian Institute National Museum of Asian Art.
+- [11:35.060] Male Speaker: (foreign language)
+- [11:57.190] Female Speaker: To here,
+- [11:59.037] this decades-long strategic partnership
+- [12:00.930] will continue with more signings of agreements and memoranda
+- [12:05.380] of understanding at the Saudi-U.S. investment forum.
+- [12:09.480] In closing, we wish both nations a fruitful partnership
+- [12:13.510] and a prosperous future. Thank you.
+- [12:16.850] (applause)

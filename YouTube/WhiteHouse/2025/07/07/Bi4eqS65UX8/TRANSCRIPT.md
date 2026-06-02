@@ -1,0 +1,912 @@
+<!-- source: https://www.youtube.com/watch?v=Bi4eqS65UX8 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: Bi4eqS65UX8 -->
+<!-- date_published: 2025-07-07T18:03:00+00:00 -->
+<!-- date_accessed: 2026-06-02T02:47:22.878835+00:00 -->
+
+# Transcript: Press Secretary Karoline Leavitt Briefs Members of the Media, July 7, 2025
+
+- [00:05.370] Karoline Leavitt: Good afternoon, everyone.
+- [00:06.650] Audience: Good afternoon.
+- [00:07.860] Karoline Leavitt: Hope you all had a great weekend.
+- [00:09.630] I want to start by addressing the devastation
+- [00:12.060] from the tragic flash floods in Texas.
+- [00:15.670] Moments ago, the Department of Homeland Security
+- [00:17.880] provided an update
+- [00:19.080] that 91 innocent souls have now perished.
+- [00:22.620] Everyone here at the White House,
+- [00:24.360] including the President of the United States,
+- [00:26.910] is praying for the victims' families and friends
+- [00:29.240] during this unimaginable time.
+- [00:31.660] President Trump swiftly signed a major disaster
+- [00:34.400] declaration for Care County Texas
+- [00:36.660] to ensure our heroic first responders
+- [00:40.110] have every resource they need in the relief and recovery efforts.
+- [00:44.620] Secretary of Homeland Security, Kristi Noem,
+- [00:46.690] traveled to Texas over the weekend,
+- [00:48.840] and the entire Trump administration
+- [00:50.760] is working hand in glove with state
+- [00:53.170] and local officials to provide every assistance available.
+- [00:57.180] The situation on the ground remains dangerous
+- [00:59.430] and there could be additional public safety threats
+- [01:01.790] with potential incoming heavy rain,
+- [01:04.200] so we encourage everyone in the area to remain vigilant,
+- [01:07.420] listen to all warnings, and respond accordingly.
+- [01:10.970] Unfortunately, in the wake of this
+- [01:12.830] once-in-a-generation natural disaster,
+- [01:15.530] we have seen many falsehoods pushed by Democrats
+- [01:18.350] such as Senator Chuck Schumer and some members of the media.
+- [01:22.040] Blaming President Trump for these floods is a depraved lie
+- [01:25.480] and it serves no purpose during this time of national mourning.
+- [01:29.970] Here are the facts.
+- [01:31.560] In the lead-up to this tragic natural disaster,
+- [01:34.190] the National Weather Service did its job.
+- [01:36.900] Despite unprecedented rainfall, the National Weather Service
+- [01:40.330] executed timely and precise forecasts and warnings.
+- [01:44.630] On July 3rd, the National Weather Service Office
+- [01:47.520] in Austin, San Antonio,
+- [01:48.750] Texas conducted forecast briefings
+- [01:51.230] for emergency management in the morning
+- [01:53.120] and issued a flood watch in the early afternoon.
+- [01:56.800] Flash flood warnings were also issued on the night of July 3rd
+- [01:59.960] and in the early morning of July 4th,
+- [02:02.290] giving preliminary lead times of more than three hours
+- [02:05.350] before flash flooding conditions occurred.
+- [02:07.900] In the National Weather Service Office in New Braunfels,
+- [02:10.620] which delivers forecasts for Austin, San Antonio,
+- [02:13.420] and the surrounding areas,
+- [02:15.000] had extra staff on duty during the storms,
+- [02:17.500] despite claims of the contrary.
+- [02:19.980] So to any person who has deliberately lied
+- [02:22.600] about these facts surrounding this catastrophic event,
+- [02:25.880] you should be deeply ashamed. At this time,
+- [02:28.450] the administration's focus will be on giving the victims
+- [02:31.720] and their communities the support they deserve
+- [02:34.370] during these recovery efforts in this tragic time.
+- [02:37.770] May God bless the great people of Texas,
+- [02:40.230] especially the parents who have lost their children.
+- [02:43.290] President Trump loves you, we are praying for you,
+- [02:46.190] and he will be traveling to see you later this week.
+- [02:49.800] Moving along to some further scheduling announcements,
+- [02:52.600] tonight President Trump will host
+- [02:54.110] the Prime Minister of Israel, Benjamin Netanyahu, for dinner,
+- [02:57.460] where they will discuss the positive developments
+- [02:59.730] taking place in the Middle East region.
+- [03:01.900] Tomorrow the President will host his sixth cabinet
+- [03:04.560] meeting of his second term.
+- [03:06.340] Many of you will be invited to cover that.
+- [03:08.580] And on Wednesday, the President will host leaders
+- [03:10.840] from five African nations for lunch in the state dining room.
+- [03:14.620] In other news, after the historic signing
+- [03:16.630] on the South Lawn
+- [03:17.970] of the White House on the 4th of July,
+- [03:20.380] President Trump's One Big Beautiful Bill
+- [03:22.850] is now the law of the land.
+- [03:24.960] Republicans in Congress met the once-in-a-generation moment
+- [03:28.120] and codified the Make America Great Again agenda into law.
+- [03:32.070] After this monumental achievement,
+- [03:33.850] no other president in modern history
+- [03:35.780] has worked harder and faster to fulfill their campaign
+- [03:39.420] promises than Donald Trump. The One Big Beautiful Bill
+- [03:42.800] will get the United States of America
+- [03:44.330] firing again on all cylinders.
+- [03:46.760] It's safe to say that over the past few weeks,
+- [03:48.660] the President has delivered on many, many wins.
+- [03:52.100] For the fourth month in a row,
+- [03:53.550] jobs numbers beat market expectations,
+- [03:55.590] with nearly 150,000 good jobs created in the month of June.
+- [04:00.280] The American economy has now added nearly 700,000 jobs
+- [04:04.100] since January 2025,
+- [04:06.180] with American-born workers accounting for all job gains.
+- [04:10.620] President Trump drove illegal border crossings
+- [04:12.860] to another historic low in the month
+- [04:14.840] of June and Border Patrol
+- [04:16.400] once again released zero illegal aliens into our country.
+- [04:21.360] The Supreme Court stopped activist judges
+- [04:23.460] from imposing nationwide injunctions
+- [04:25.240] and cleared the way for President Trump
+- [04:27.240] to carry out his popular and common sense agenda.
+- [04:30.390] The University of Pennsylvania agreed
+- [04:32.340] to all of the Trump administration's demands
+- [04:34.580] and will now keep men out of women's sports.
+- [04:37.910] President Trump secured his trade deal with Vietnam,
+- [04:40.250] giving the United States total access to their markets.
+- [04:43.630] Because of President Trump's
+- [04:44.860] unleashing American energy dominance,
+- [04:46.670] gas prices are at four-year lows,
+- [04:49.230] and when adjusted for inflation, gas prices
+- [04:51.660] are near the lowest levels we've seen in the last 20 years.
+- [04:55.610] NATO members agreed to raise defense
+- [04:57.320] spending to 5 percent of GDP,
+- [04:59.270] a foreign policy feat long thought impossible
+- [05:02.290] until President Trump made it happen.
+- [05:04.570] The Operation Midnight Hammer
+- [05:06.070] obliterated Iran's nuclear capabilities,
+- [05:08.420] taking out this imminent national security threat
+- [05:10.660] not just to the United States, but to the entire world.
+- [05:13.780] The President secured a ceasefire
+- [05:15.240] between Israel and Iran ending the 12-Day War.
+- [05:17.940] The President brokered a historic peace agreement
+- [05:20.000] between Rwanda and the Democratic Republic of Congo.
+- [05:23.090] Pakistan nominated President Trump for the Nobel Peace Prize
+- [05:26.400] in recognition of his decisive diplomatic intervention
+- [05:29.420] to prevent a nuclear war between India and Pakistan.
+- [05:33.410] Blue collar wage growth
+- [05:34.690] has seen its largest increase in nearly 60 years,
+- [05:37.760] and President Trump has defeated Joe Biden's inflation crisis,
+- [05:41.160] with core inflation at the lowest level
+- [05:43.410] since March of 2021.
+- [05:45.430] And just about all of that has happened
+- [05:47.250] in the last three weeks, and I know you all know it
+- [05:49.150] because you've been very busy here covering it along with us.
+- [05:52.260] So with that, I will take your questions today
+- [05:54.010] as we kick off another very busy week here at the White House.
+- [05:56.740] We'll lead with our new media seat, Brian Glenn,
+- [05:59.070] who is of course very present in this briefing room.
+- [06:02.100] He's put in a lot of hours covering this president,
+- [06:04.150] so we're glad you finally have a seat today, Brian, go ahead.
+- [06:05.890] The Press: It feels great to sit down.
+- [06:07.260] Thank you very much.
+- [06:08.480] Karoline Leavitt: You're welcome.
+- [06:09.720] The Press: I want to go back to the hurricane.
+- [06:11.240] You said that President Trump is scheduled
+- [06:12.670] to go to Texas later this week.
+- [06:14.770] Can you speculate on what day and what do he has plans?
+- [06:18.100] Karoline Leavitt: Sure. The White House
+- [06:19.310] is currently arranging those travel plans.
+- [06:21.430] We hope that it will be later this week, likely on Friday.
+- [06:24.210] But of course we want to do it at the most appropriate time
+- [06:27.020] on the ground for state and local officials.
+- [06:28.750] We don't want to interrupt the recovery efforts,
+- [06:31.020] but we're planning tentatively for a Friday trip
+- [06:33.330] and when that becomes final,
+- [06:34.640] we'll let all of you know as we always do.
+- [06:36.340] The Press: And you gave a little bit of reaction earlier,
+- [06:37.970] but the National Weather Service,
+- [06:39.310] the union actually, publicly stated
+- [06:41.390] they had an adequate staff on hand to forecast,
+- [06:44.220] to predict the storm. You shared your thoughts earlier
+- [06:47.790] on how the way the left has really weaponized this
+- [06:51.770] to blame the deaths in Texas on Trump,
+- [06:54.490] you want to comment on that again?
+- [06:56.360] Karoline Leavitt: Yeah, I just do think those comments
+- [06:58.450] are depraved and despicable,
+- [06:59.860] especially when so many Americans
+- [07:01.360] are mourning the loss of their children.
+- [07:03.730] The National Weather Service, as I said, did its job.
+- [07:06.160] Many experts, many meteorologists have said that.
+- [07:08.770] Many of you in the media,
+- [07:09.990] in all fairness have said that as well, unfortunately not all.
+- [07:13.140] And many Democrat elected officials
+- [07:14.870] are trying to turn this into a political game
+- [07:17.310] and it is not. This is a national tragedy
+- [07:20.180] and the administration is treating it as such.
+- [07:22.380] We know the National Weather Service
+- [07:23.980] provided early in consistent warnings.
+- [07:26.340] They gave out timely flash flood alerts.
+- [07:28.660] There were record-breaking lead times in the lead
+- [07:31.540] up to this catastrophe.
+- [07:33.270] There is ongoing flood monitoring
+- [07:35.080] and these offices were well staffed.
+- [07:37.640] In fact, one of the offices was actually overstaffed.
+- [07:40.570] They had more people than they need.
+- [07:42.710] So any claim to the contrary is completely false
+- [07:45.010] and it's just sad that people are pushing these lies.
+- [07:46.610] The Press: Can you just get one more?
+- [07:48.000] Karoline Leavitt: Sure.
+- [07:49.240] The Press: Kind of a little bit of breaking news,
+- [07:50.480] the Department of Homeland Security
+- [07:51.750] and moving to end the TPS status
+- [07:53.810] on Honduran and Nicaraguan migrants.
+- [07:55.990] Karoline Leavitt: Yes.
+- [07:57.280] The Press: Any plans to adding additional countries
+- [07:59.510] that you could be targeting? Just a reaction.
+- [08:01.110] Karoline Leavitt: Sure.
+- [08:02.340] Well, I won't get ahead of the Department of Homeland Security
+- [08:04.480] on additional countries, but as you pointed out,
+- [08:06.310] they did end temporary protective status
+- [08:08.870] for Nicaraguans and Hondurans in this country
+- [08:11.850] because TPS, temporary protective status,
+- [08:14.950] is temporary by definition.
+- [08:16.530] It is not meant to be a permanent path
+- [08:18.670] to residency or citizenship here in the United States of America.
+- [08:22.270] It was originally granted to Nicaraguans
+- [08:24.290] following a natural disaster in 1999,
+- [08:28.130] that doesn't sound very temporary to me.
+- [08:31.260] And as well as Hondurans in 1999
+- [08:34.010] after the impact of Hurricane Mitch in 1998.
+- [08:37.690] And so this administration is doing what it promised to do.
+- [08:42.160] And if individuals from these countries want to come here,
+- [08:45.110] they have a legal pathway to do it.
+- [08:47.150] But temporary protective status was never meant to be permanent.
+- [08:50.250] The previous administration abused this status
+- [08:52.700] and this parole program essentially treating it as such,
+- [08:55.590] and we're not going to tolerate that any further.
+- [08:57.410] Thank you, Brian. Megan.
+- [08:58.970] The Press: Secretary Bessent said yesterday that countries
+- [09:01.440] will boomerang back to the April 2nd tariff level
+- [09:04.440] starting August 1st.
+- [09:06.220] Why did the President decide to have those tariffs
+- [09:09.130] not take effect Wednesday as originally scheduled?
+- [09:11.610] And then I was also wondering if you could share,
+- [09:13.380] obviously we saw the letters the President
+- [09:15.140] sent out on Japan and South Korea,
+- [09:17.300] but if any other major US trading partners
+- [09:19.100] are getting letters today?
+- [09:20.340] Karoline Leavitt: Sure, yes, I can confirm.
+- [09:21.910] In fact, I have those letters.
+- [09:23.190] If you could get me the folder with the letters in them,
+- [09:25.090] Liz, they're right in the previous office.
+- [09:27.350] I have the signed letters that went out
+- [09:29.000] to both South Korea and Japan today,
+- [09:31.620] and there will be approximately 12 other countries
+- [09:34.390] that will receive notifications and letters directly
+- [09:37.410] from the President of the United States.
+- [09:39.630] And weeks ago I stood at this podium
+- [09:41.630] and I told all of you that the President
+- [09:43.350] was going to create tailor
+- [09:45.330] made trade plans for each and every country on this planet.
+- [09:49.010] And that's what this administration
+- [09:50.500] continues to be focused on.
+- [09:51.850] The President will also sign an executive order today
+- [09:54.500] delaying the July 9th deadline to August 1st.
+- [09:57.470] So the reciprocal tariff rate or these new rates
+- [09:59.790] that will be provided in this correspondence
+- [10:01.810] to these foreign leaders will be going out the door
+- [10:05.210] within the next month or deals will be made.
+- [10:07.270] And those countries continue to negotiate
+- [10:09.120] with the United States.
+- [10:10.480] We've seen a lot of positive developments
+- [10:12.480] in the right direction.
+- [10:14.440] But the administration, the President and his trade team
+- [10:17.050] want to cut the best deals for the American people
+- [10:20.090] and the American worker. That's what they're focused on.
+- [10:22.680] And in the effort of transparency,
+- [10:24.100] these letters will continue to be posted to Truth Social,
+- [10:26.500] so you can enjoy them yourself. Go ahead.
+- [10:29.110] The Press: Thanks Karoline.
+- [10:30.310] Just about the visit of Prime Minister Netanyahu today.
+- [10:33.910] I was just wondering why that is not open to the press?
+- [10:37.460] Previous visits by him we've had Oval Office press conferences.
+- [10:40.610] Does that reflect somehow the kind of sensitivity
+- [10:42.910] of this particular visit?
+- [10:44.410] Karoline Leavitt: No, they're having a private dinner.
+- [10:45.890] There's many important matters
+- [10:47.230] that are obviously ongoing in the region, as you know.
+- [10:50.600] The utmost priority for the President
+- [10:52.630] right now in the Middle East is to end the war in Gaza
+- [10:55.260] and to return all of the hostages.
+- [10:57.920] Also, as you know, there was a ceasefire proposal
+- [11:00.410] that Israel supports that was sent to Hamas,
+- [11:02.870] and we hope that they will agree to this proposal.
+- [11:05.420] We want to see all of the hostages released,
+- [11:08.330] that's on the top of the President's mind.
+- [11:10.090] So that will be discussed as well
+- [11:11.320] as the many other positive developments
+- [11:13.300] we've seen in the Middle East.
+- [11:14.690] I want to go back to the trade deals, as you see,
+- [11:16.650] we have these beautiful letters that the President has signed.
+- [11:19.530] This one is to the President of the Republic of Korea,
+- [11:23.680] original signature on that, and these will be mailed.
+- [11:26.570] And then here we also have another letter
+- [11:29.720] to the Prime Minister of Japan as well.
+- [11:32.770] Both countries will be receiving a 25 percent tariff
+- [11:35.330] rate effective on August 1st. Go ahead.
+- [11:38.650] The Press: Thank you so much.
+- [11:39.940] You said it and the President said it many times,
+- [11:42.000] you want to see an end to the war in Gaza.
+- [11:44.820] Will he give guarantees during the 60-day period of ceasefire
+- [11:50.100] that actually the world will end?
+- [11:51.350] Because this is a sticking point with Prime Minister Netanyahu
+- [11:54.420] and I'm wondering if the see eye to eye on this point.
+- [11:56.790] And how do you see the next day,
+- [11:58.720] what the next day in Gaza will look like?
+- [12:00.790] Karoline Leavitt: Look, right now the President
+- [12:02.010] is focused on today
+- [12:03.990] and to get the Hamas to agree to this ceasefire.
+- [12:06.650] I don't want to comment on the details of the arrangement
+- [12:08.710] out of respect for these negotiations.
+- [12:10.920] But a agreeable and appropriate ceasefire proposal
+- [12:14.080] has been sent to Hamas.
+- [12:15.680] And I can also tell you Special Envoy Witkoff
+- [12:18.000] intends to travel to Doha later this week
+- [12:20.610] where he will continue to engage in these discussions.
+- [12:22.980] And the Qataris and the Egyptians
+- [12:24.560] have been incredibly helpful partners
+- [12:26.700] in mediating these negotiations
+- [12:28.820] and discussions to bring peace to this region
+- [12:31.090] and end this conflict once and for all. Kristen.
+- [12:33.120] The Press: Two questions. Thank you.
+- [12:34.500] Karoline Leavitt: Sure.
+- [12:35.760] The Press: The first question is,
+- [12:36.960] is President Trump reconsidering his plan to phase out
+- [12:39.320] FEMA given what officials have said
+- [12:41.520] as their critical role in the ground now in Texas?
+- [12:43.640] Karoline Leavitt: Look, the President
+- [12:44.860] wants to ensure American citizens
+- [12:46.910] always have what they need during times of need.
+- [12:50.010] Whether that assistance comes from states
+- [12:52.350] or the federal government,
+- [12:53.580] that's a policy discussion that will continue.
+- [12:56.190] And the President has always said
+- [12:57.630] he wants states to do as much as they can if not more.
+- [13:00.420] And in the case of Texas,
+- [13:02.770] the state and local officials are doing a tremendous job.
+- [13:05.430] And I know the President, Secretary Noem
+- [13:08.000] and the federal government
+- [13:09.270] are very proud to be working with them.
+- [13:10.770] And the President has promised to give Texas
+- [13:13.560] the assistance that they need during this tragic time.
+- [13:16.050] The Press: Just one follow up on cuts overall.
+- [13:19.340] Over the weekend, President Trump said
+- [13:21.340] that Elon Musk was a train wreck.
+- [13:24.760] Given this current viewpoint,
+- [13:26.280] are there concerns within the White House
+- [13:27.890] or from the President himself over the cuts
+- [13:29.650] that happened under Musk while he was advising DOGE
+- [13:32.960] including the National Weather Service?
+- [13:34.720] Karoline Leavitt: I think I've already addressed
+- [13:36.000] that, Kristen. And what I can tell you
+- [13:38.160] is that these offices were fully staffed.
+- [13:41.060] The San Angelo office was fully staffed
+- [13:43.140] with 12 forecast meteorologists. There were no vacancies.
+- [13:46.550] The San Antonio office was operating with 11 forecasters.
+- [13:50.790] And as Brian said, the union themselves said
+- [13:53.700] that there was adequate staffing.
+- [13:55.180] So I think those words speak for themselves
+- [13:57.100] and the numbers speak for themselves.
+- [13:58.900] This was a once-in-a-century flash flood,
+- [14:01.540] a tragic natural disaster,
+- [14:03.080] and the administration is doing all that we can on the ground
+- [14:05.610] to help these families during this time of need. Jeff.
+- [14:07.580] The Press: Thanks very much, Karoline.
+- [14:08.960] Just following up on Kristen's question,
+- [14:10.390] is it still the President's plan
+- [14:11.820] to phase FEMA out by the end of this year?
+- [14:14.030] Karoline Leavitt: I just answered
+- [14:15.260] Kristen's question for you.
+- [14:16.500] The Press: And one more. Hold on. One more.
+- [14:17.980] Karoline Leavitt: Sure. I'll give it to you. Go ahead.
+- [14:19.950] The Press: A follow up on trade as well.
+- [14:22.060] 12 more letters coming, you said,
+- [14:23.440] can you give us a sense of which countries those are?
+- [14:25.420] Karoline Leavitt: I'll let the President
+- [14:26.880] reveal those in very due time.
+- [14:28.460] Keep your eyes on Truth Social. Michael in the back.
+- [14:30.840] The Press: Thank you, Karoline.
+- [14:32.100] An armed shooter today was shot in McAllen, Texas
+- [14:35.510] after opening fire on Border Patrol agents.
+- [14:38.410] Comes just days after Democratic
+- [14:40.000] Congresswoman Pramila Jayapal recently said
+- [14:42.650] she gets, quote, inspired when activists obstruct ICE.
+- [14:46.660] Does the White House expect Democrats
+- [14:48.600] to tone down their rhetoric in light
+- [14:50.220] of what we saw today in McAllen, Texas?
+- [14:52.150] Karoline Leavitt: We certainly call on Democrats
+- [14:54.120] to tone down their rhetoric
+- [14:55.690] against ICE and Border Patrol agents
+- [14:57.670] who again are everyday men and women.
+- [14:59.960] I would encourage AOC and other Democrats
+- [15:02.460] to actually meet with the United States Border Patrol.
+- [15:05.200] These are honorable Americans
+- [15:06.900] who are just simply trying to do their job to enforce the law.
+- [15:09.920] They go home to their families every night just like we all do,
+- [15:12.690] and they deserve respect and dignity
+- [15:14.840] for trying to enforce our nation's immigration laws
+- [15:18.230] and to remove public safety threats from our communities.
+- [15:21.050] The White House is aware of the shooting
+- [15:23.210] that took place today in Texas,
+- [15:25.790] and we are working with the appropriate federal agencies
+- [15:28.430] to get to the bottom of what happened.
+- [15:29.970] The Press: Karoline, the DOJ and FBI have now concluded
+- [15:32.240] there was no Jeffrey Epstein client list.
+- [15:34.600] What do you tell MAGA supporters
+- [15:36.300] who say they want anyone involved in Jeffrey Epstein's
+- [15:39.420] alleged crimes to be held accountable?
+- [15:41.070] Karoline Leavitt: This administration wants anyone
+- [15:42.720] who has ever committed a crime to be held accountable.
+- [15:45.240] And I would argue this administration
+- [15:46.750] has done more to lock up bad guys
+- [15:49.170] than certainly the previous administration.
+- [15:51.470] And the Trump administration is committed to truth
+- [15:53.990] and to transparency, that's why the Attorney General
+- [15:56.400] and the FBI director pledged at the President's direction
+- [16:00.030] to do an exhaustive review of all of the files
+- [16:03.420] related to Jeffrey Epstein's crimes and his death.
+- [16:06.440] And they put out a memo in conclusion of that review.
+- [16:09.680] There was material they did not release
+- [16:11.430] because frankly it was incredibly graphic
+- [16:13.470] and it contained child pornography,
+- [16:15.380] which is not something that's appropriate
+- [16:17.300] for public consumption.
+- [16:19.130] But they committed to an exhaustive investigation.
+- [16:22.440] That's what they did, and they provided the results of that.
+- [16:24.510] That's transparency.
+- [16:25.890] The Press: Follow up on that, Karoline.
+- [16:27.090] Karoline Leavitt: Sure.
+- [16:28.310] The Press: Okay. So the FBI looks at the circumstances
+- [16:30.530] surrounding the death of Jeffrey Epstein.
+- [16:33.970] According to the report, this systematic review
+- [16:37.230] revealed no incriminating client list.
+- [16:41.000] So what happened to the Epstein client list
+- [16:43.200] that the Attorney General said she had on her desk?
+- [16:46.510] Karoline Leavitt: Well, I think if you go back
+- [16:47.800] and look at what the Attorney General said in that interview,
+- [16:50.540] which was on your network on Fox News --
+- [16:52.070] The Press: I got the quote. Karoline Leavitt: Go ahead.
+- [16:53.310] The Press: John Roberts said, "DOJ may be releasing the list
+- [16:55.710] of Jeffrey Epstein's clients. Will that really happen?"
+- [16:58.630] And she said, "It's sitting on my desk right now to review."
+- [17:02.130] Karoline Leavitt: Yes, she was saying the entirety
+- [17:03.970] of all of the paperwork,
+- [17:05.410] all of the paper in relation to Jeffrey Epstein's crimes.
+- [17:08.850] That's what the Attorney General was referring to,
+- [17:11.020] and I'll let her speak for that.
+- [17:12.470] But again, when it comes to the FBI
+- [17:14.240] and the Department of Justice,
+- [17:15.670] they are more than committed to ensuring
+- [17:17.580] that bad people are put behind bars.
+- [17:19.970] They have an operation going on right now called Summer Heat,
+- [17:23.430] which has our murder rate trending in the lowest direction
+- [17:26.870] in United States history.
+- [17:28.370] Their emphasis on violent crime and locking up violent criminals
+- [17:31.510] has led to the arrest of 14,000 violent criminals.
+- [17:34.940] That's a 62 percent increase
+- [17:36.690] from the same time period last year.
+- [17:38.230] So this attorney general and the FBI director are committed
+- [17:41.630] to putting bad people behind bars where they belong,
+- [17:44.670] that they promised an exhaustive review.
+- [17:46.970] That's what they did. For any further details,
+- [17:49.000] I would refer you to the Department of Justice.
+- [17:51.340] The Press: Thanks, Karoline.
+- [17:52.680] With Prime Minister Netanyahu visiting the White House today,
+- [17:55.510] yesterday the President said that he was working
+- [17:58.810] on a more permanent deal with Iran,
+- [18:01.140] but several days ago he didn't think one was necessary.
+- [18:03.450] What changed?
+- [18:04.690] Karoline Leavitt: Well, when you asked me about this
+- [18:06.870] or when you all asked me about this several weeks ago,
+- [18:09.430] I said the President thought maybe an Iran deal
+- [18:11.780] was not necessary, but of course the President
+- [18:13.980] is always interested in peace and diplomacy.
+- [18:16.390] That remains true,
+- [18:17.990] and the administration continues to be in contact
+- [18:20.820] both directly and indirectly with the Iranians on a deal.
+- [18:23.640] The Press: And then on tariffs,
+- [18:25.430] you're now delaying the deadline from July 9th to August 1st.
+- [18:28.870] Is that an acknowledgement that perhaps the administration
+- [18:31.640] found it more difficult to negotiate these trade deals
+- [18:33.950] or whatever happened to 90 deals in 90 days?
+- [18:35.870] Karoline Leavitt: No.
+- [18:37.070] It's an acknowledgement that this administration
+- [18:38.970] is doing what's best for the American worker
+- [18:40.770] and we want the best deals possible for our workers,
+- [18:43.930] for our manufacturing base, for our middle class,
+- [18:46.960] and they are doing this deliberately
+- [18:48.640] and appropriately on behalf of our country's interests.
+- [18:50.960] Josh.
+- [18:52.170] The Press: A couple more on the tariffs.
+- [18:54.030] You said about 12 more letters.
+- [18:56.180] There were about 55 or so countries,
+- [18:58.410] including the EU as a block
+- [18:59.970] that were facing this tariff increase.
+- [19:01.460] All of those, if I'm understanding correctly,
+- [19:02.840] are now deferred to August 1st, right?
+- [19:04.440] Karoline Leavitt: Correct.
+- [19:05.650] The Press: Of the 12, what happens with the remaining
+- [19:07.470] whatever it would be, 40 something?
+- [19:08.870] Karoline Leavitt: So just 12 today.
+- [19:10.110] There will be additional letters in the coming days.
+- [19:11.690] The Press: So all of them are going to get a letter
+- [19:12.910] at some point? Karoline Leavitt: Correct.
+- [19:14.130] The Press: Okay. And can you tell me
+- [19:15.340] why he decided to start with South Korea and Japan?
+- [19:17.750] Are they annoying him?
+- [19:20.660] Karoline Leavitt: It's the President's prerogative
+- [19:22.910] and those are the countries he chose.
+- [19:24.940] The Press: On the sectoral tariffs,
+- [19:26.180] our understanding of these continue to be a separate track.
+- [19:27.990] We're still waiting on a bunch of those.
+- [19:29.190] Karoline Leavitt: That's right.
+- [19:30.470] The Press: Do you have any timing update on
+- [19:31.690] when he's going to move on,
+- [19:32.900] for instance, semiconductor tariffs
+- [19:34.760] and other things that are still in the hopper?
+- [19:36.510] Karoline Leavitt: I don't have a timing update,
+- [19:37.780] but for where they are in the process,
+- [19:39.200] I would defer you to the Department of Commerce.
+- [19:41.090] The Press: Should we expect deals, finally, as well?
+- [19:42.820] He announced his Vietnam deal.
+- [19:44.090] Are you close on any other country?
+- [19:45.600] Karoline Leavitt: The president and the administration?
+- [19:47.170] Yes, we are close, but again, the President wants to ensure
+- [19:49.660] these are the best deals possible.
+- [19:51.690] And I would add just one more thing on trade and tariffs
+- [19:54.330] to wrap it up.
+- [19:55.670] Look at the extensive work this president
+- [19:58.410] has put in to cutting these good deals
+- [20:00.510] and doing what's right for the American worker.
+- [20:02.550] He is literally looking at the map
+- [20:04.390] and looking at every country on the planet
+- [20:07.210] and seeing where they are ripping off the American people,
+- [20:09.590] seeing where they have hollowed out our industrial base,
+- [20:12.550] seeing where our jobs have gone to other countries overseas
+- [20:15.840] because of their tariff policies and he's trying to correct that.
+- [20:19.380] So this is decades of bad trade policy
+- [20:21.550] that has led to a deficit that is ravaging our country,
+- [20:24.710] that is ravaging our middle class,
+- [20:26.070] and the President is taking a very deliberate approach
+- [20:29.010] to correcting this wrong of many decades,
+- [20:31.190] of many past presidents.
+- [20:32.800] And so I think he should be commended for the time
+- [20:35.940] and the effort that he is putting into this.
+- [20:37.600] And the fact that he has announced
+- [20:39.260] a framework with China,
+- [20:40.870] a trade deal with the United Kingdom,
+- [20:44.590] a trade deal with Vietnam and many others to come in
+- [20:46.980] just a matter of six months is truly historic
+- [20:49.720] and it's a testament to this president
+- [20:51.460] and his trade team who are working around the clock
+- [20:53.270] to get this done. Sure. Go ahead.
+- [20:55.660] The Press: Thank you so much, Karoline.
+- [20:56.930] Two quick questions on Iran.
+- [20:59.790] What's the permanent deal with Iran
+- [21:01.280] looks like for the President
+- [21:02.610] and what issues related to Iran should it cover?
+- [21:05.790] And secondly, has the President seen the interview
+- [21:08.190] with Iranian president which he says
+- [21:10.040] that the United States President, Mr. Trump,
+- [21:12.330] is capable enough to guide the regions toward the peace
+- [21:15.210] and brighter future
+- [21:17.170] and put Israel into its place or it gets more into conflict?
+- [21:22.860] Has the President seen these comments
+- [21:24.420] and what's his reaction to these comments?
+- [21:26.140] Karoline Leavitt: I'm not sure if he's seen those comments,
+- [21:27.950] but certainly I think it's true
+- [21:30.290] that the President is the right man for the job
+- [21:32.400] to move this region into the direction of peace
+- [21:35.590] and stability for the future.
+- [21:37.070] That's what he and his national security team
+- [21:38.880] are working on every day
+- [21:40.150] and we've already seen historic achievements in that direction.
+- [21:42.490] The Press: Is there a follow-up?
+- [21:43.850] Karoline Leavitt: Go ahead. In the back. Kelly, go ahead.
+- [21:46.480] The Press: Okay, great. Thank you.
+- [21:47.810] Karoline Leavitt: Sure. And then in front of you.
+- [21:49.440] The Press: A couple questions for you. First on --
+- [21:51.390] Karoline Leavitt: You all need name tag signs.
+- [21:53.770] The Press: First question on the flooding in Texas.
+- [21:55.300] Karoline Leavitt: Sure.
+- [21:56.510] The Press: I know there has been some concern
+- [21:57.820] about the timing of the alerts knowing that they did go out,
+- [22:01.110] but the warning is coming out in the wee hours,
+- [22:03.300] so while many people were likely sleeping.
+- [22:05.170] Can you share just details what you know about
+- [22:08.570] why those warnings were sent
+- [22:09.830] while people were likely sleeping
+- [22:11.140] and then what the administration's doing to ensure
+- [22:13.630] that these alerts come out sooner?
+- [22:15.430] Karoline Leavitt: Well, the alerts imminently
+- [22:17.130] were sent out before the flood when people were sleeping
+- [22:19.740] because the flood hit in the very early hours of the morning.
+- [22:23.090] So people were sleeping in the middle of the night
+- [22:25.300] when this flood came. That was an act of God.
+- [22:27.710] It's not the administration's fault
+- [22:29.530] that the flood hit when it did,
+- [22:31.750] but there were early and consistent warnings.
+- [22:34.400] And again, the National Weather Service did its job.
+- [22:37.270] On July 2nd, there were initial notices of potential weather
+- [22:40.630] and flooding risks were issued.
+- [22:42.600] On July 3rd, escalating warnings throughout the day
+- [22:45.700] with a flood wash issued at 1:18 P.M.
+- [22:48.990] And then later at 6:10 P.M. on July 3rd,
+- [22:51.860] the Weather Prediction Center warned of excessive rainfall
+- [22:54.680] and a high likelihood of flash flooding.
+- [22:57.510] At 6:22 P.M.
+- [22:58.910] July 3rd, National Weather Center
+- [23:00.610] issued a hydraulic warning highlighting considerable
+- [23:03.550] flooding risks including in Kerrville County.
+- [23:06.470] And then there were the timely flash flood alerts
+- [23:08.830] at 11:41 P.M., 1:14 A.M.
+- [23:12.170] and then another flash flood emergency
+- [23:13.960] warning issued at 4:03 A.M. just before the flood hit.
+- [23:17.480] So those were all of the warnings
+- [23:19.030] that went out to the affected area and region.
+- [23:21.730] Go ahead.
+- [23:22.960] The Press: Thank you very much. I appreciate it, Karoline.
+- [23:26.270] Two questions for you relating to the Prime
+- [23:27.810] Minister's visit today. Number one, there's a report
+- [23:30.530] circulating that the Gaza Humanitarian Foundation
+- [23:33.380] provided a proposal to the White House
+- [23:35.500] to build the so-called humanitarian transit areas
+- [23:38.960] inside and outside of Gaza.
+- [23:40.630] The GHF is insisting
+- [23:41.990] it has nothing to do with that proposal.
+- [23:43.930] Can you shed any light on whether the White House
+- [23:46.060] has received such a proposal, and if so, from whom?
+- [23:49.440] Karoline Leavitt: I'm unaware of a proposal
+- [23:51.060] from the Gaza Humanitarian Foundation
+- [23:52.770] was sent to the White House.
+- [23:54.010] I haven't seen it, but I can ask our National Security Council.
+- [23:57.080] The Press: And also, a document circulating that the White House
+- [23:59.420] is prepared to lift the foreign terrorist organization
+- [24:02.190] designation from HDS,
+- [24:04.080] the group of President al-Sharah in Syria.
+- [24:06.510] Can you confirm that that's taking place?
+- [24:08.610] Karoline Leavitt: Again, I haven't heard that
+- [24:10.220] or I'm not aware of that action taking place.
+- [24:12.830] As you know, we did lift particular sanctions on Syria,
+- [24:16.240] but we did leave them on for particular terrorist groups.
+- [24:18.850] If that has changed, we will of course let you know
+- [24:21.260] if there's a change in policy,
+- [24:22.610] but I'm unaware of one at this time.
+- [24:24.670] Go ahead.
+- [24:28.410] The Press: Hi Karoline. Thank you. Ahead of the --
+- [24:30.060] Karoline Leavitt: You're welcome.
+- [24:31.300] And then you can go too, since you're so eager.
+- [24:33.370] The Press: Ahead of the President's meeting
+- [24:34.720] with Prime Minister Netanyahu today,
+- [24:37.470] is there a scenario where Israel has made it clear
+- [24:40.460] that they will not bring an end to this war
+- [24:42.240] until Hamas is decimated?
+- [24:44.150] And the President just five months ago
+- [24:45.700] suggested a potential takeover of Gaza.
+- [24:48.250] Is there a situation where tonight the two men
+- [24:50.580] will change their posture and in the scenario
+- [24:52.560] that Hamas turns over the remaining hostages,
+- [24:55.440] that the war could come to a permanent end
+- [24:59.200] and that they will seek under that scenario
+- [25:01.960] that they would essentially try to bring this war
+- [25:04.440] to a permanent end beyond just that 60 day ceasefire?
+- [25:07.130] Karoline Leavitt: Again, you're putting
+- [25:08.890] a hypothetical situation in the air,
+- [25:10.770] so I don't want to comment on that out of respect
+- [25:13.440] for these ongoing negotiations and discussions
+- [25:16.080] that are taking place. But as for the takeover of Gaza,
+- [25:19.120] I don't believe the President ever said that.
+- [25:20.660] I think he discussed a rebuilding of Gaza
+- [25:22.950] once this war is over.
+- [25:24.430] This has become an uninhabitable place for human beings
+- [25:27.690] and the President has a big heart.
+- [25:29.470] He wants this to be a prosperous,
+- [25:31.590] safe part of the region where people and families can thrive
+- [25:35.520] and there will be a need for a real rebuilding effort
+- [25:38.500] when the time comes.
+- [25:39.780] But right now, we need to end this war
+- [25:41.730] and we need to bring all of the hostages home.
+- [25:43.800] The president is adamant about that.
+- [25:45.260] The Press: (inaudible) the war tonight?
+- [25:46.540] Karoline Leavitt: Again, I will let the President
+- [25:47.760] speak for himself later
+- [25:49.220] if he decides to comment on the details of the agreement.
+- [25:51.350] But out of respect for the discussions,
+- [25:53.240] I won't do that from the podium. Go ahead.
+- [25:55.140] The Press: So Congressman Lawler
+- [25:56.450] and Gottheimer have introduced a bill in Congress,
+- [25:58.900] the Bunker Buster Act,
+- [26:01.250] that would allow the United States
+- [26:02.810] to sell B2 bombers and Bunker Buster bombs to Israel.
+- [26:06.350] Is that something the President would support?
+- [26:08.640] Karoline Leavitt: Well, I don't know
+- [26:09.880] if the President's aware of the Bunker Buster Act,
+- [26:11.950] but I will ask him and see what his opinion on that is.
+- [26:14.690] I'm not sure. The Press: All right, thank you.
+- [26:16.190] Karoline Leavitt: You're welcome.
+- [26:18.040] The Press: Thank you, Karoline.
+- [26:19.620] Building off the question earlier about the shooter
+- [26:21.700] in Texas who targeted ICE, Axios reported today,
+- [26:24.980] I believe, that democrat lawmakers
+- [26:27.250] were saying their constituents are calling on them
+- [26:29.070] to be more violent when they go to ICE facilities,
+- [26:31.590] including, I believe, they want them to shed blood
+- [26:33.650] and that they said that democrat lawmakers
+- [26:35.880] should be willing to get shot themselves.
+- [26:37.910] Can you respond to that and do you have concerns
+- [26:40.290] that any of these lawmakers might act
+- [26:41.750] on the wishes of their constituents?
+- [26:43.700] Karoline Leavitt: It's hard to believe anyone with morals
+- [26:46.220] in this country or decency would say such a thing.
+- [26:49.190] Obviously, the White House condemns that rhetoric
+- [26:51.400] and we condemn violence of any kind.
+- [26:53.520] This administration is simply trying to enforce our laws,
+- [26:56.420] and we must be a nation of law and order.
+- [26:58.690] You cannot simply waltz across our border
+- [27:00.810] and live here illegally and expect to stay.
+- [27:03.570] We are going to enforce our nation's laws,
+- [27:05.280] and the men and women who are doing
+- [27:06.520] that are doing so in a respectful way,
+- [27:09.490] they are doing so within the confines of the law
+- [27:11.690] and they are just trying to do their jobs,
+- [27:13.650] and we condemn any violence or any calls for violence
+- [27:16.190] of any kind against any American. Go ahead.
+- [27:19.300] The Press: Thank you. Karoline. I wanted to ask you if --
+- [27:20.830] Karoline Leavitt: I was not calling on you,
+- [27:22.100] but you can go ahead. That's fine.
+- [27:24.600] There's a lot of people in here today.
+- [27:26.050] The Press: Has President Trump already saw the letter
+- [27:27.820] that the Colombian president, Gustavo Petro,
+- [27:30.150] sent him, apologizing for his comments a few weeks ago,
+- [27:33.630] suggesting that there was an involvement
+- [27:35.230] from the US government
+- [27:37.040] in an alleged coup d'etat in Colombia,
+- [27:40.060] and Secretary Rubio called the US charter
+- [27:43.920] the first in Colombia.
+- [27:45.340] Did President Trump saw that letter?
+- [27:46.910] And what do you think about the comments from President Petro
+- [27:49.030] suggesting that the US has some kind of involvement
+- [27:51.030] The Press: Netanyahu.
+- [27:52.300] Karoline Leavitt: I'm not sure if the President
+- [27:53.550] has seen that letter, but I can check with him
+- [27:55.120] and the National Security Council.
+- [27:56.350] We will get you a response.
+- [27:57.570] If you follow up with my team, we will find out for you.
+- [28:01.450] Sure. Go ahead. Iris, go ahead.
+- [28:03.430] The Press: Thank you. Thank you, Karoline.
+- [28:04.800] Thank you, Karoline, on two topics. First-
+- [28:07.410] Karoline Leavitt: I love how excited everyone is on Monday.
+- [28:09.280] Yes. Raquel, you can go after.
+- [28:10.550] The Press: On two topics.
+- [28:11.810] First, tariffs, the President announced last night
+- [28:14.330] that any countries aligning themselves
+- [28:16.390] with the anti-American policies of BRICS
+- [28:19.670] will be charged with an additional 10 percent tariff.
+- [28:22.050] Can you tell us more details on that?
+- [28:23.550] What specific policies is the President talking about here?
+- [28:26.690] What policies should countries stay away
+- [28:28.550] from to avoid being subject to additional tariffs?
+- [28:30.320] Karoline Leavitt: Sure.
+- [28:31.550] Well, the President feels generally speaking that BRICS
+- [28:33.730] is seeking to undermine the interests of the United States.
+- [28:36.750] It's the President's utmost responsibility
+- [28:38.710] to put the interests of the United States first.
+- [28:40.830] That's how he views his job as President.
+- [28:42.930] So he's going to ensure that America
+- [28:44.390] is fairly treated on the world stage
+- [28:46.780] and he'll take any action necessary to prevent countries
+- [28:49.540] from taking advantage of the United States and our people.
+- [28:53.040] Raquel? Raquel, go ahead.
+- [28:55.310] The Press: (inaudible) Illegal immigrants.
+- [28:56.790] Orders are, Tom Homan told us this morning
+- [28:58.620] that ICE will have to arrest 7,000 illegal immigrants
+- [29:02.420] every day for the remainder of this administration
+- [29:04.680] to just catch the ones that were let in
+- [29:07.270] during the last administration.
+- [29:08.650] I'm wondering what the new resources
+- [29:10.430] and manpower of course, given by the Big Beautiful Bill,
+- [29:13.450] which of course opens the door for ICE
+- [29:15.030] to hire additional 10,000 agents and officers.
+- [29:19.490] What's the administration's expectations now
+- [29:21.430] for daily arrest numbers
+- [29:22.910] going forward in upcoming months?
+- [29:24.200] Karoline Leavitt: Sure.
+- [29:25.440] I'll let the Secretary of Homeland Security
+- [29:27.210] and her department speak on what they're looking for
+- [29:29.590] in terms of daily numbers. What I can tell you is,
+- [29:31.790] I receive the daily reports each morning and ICE
+- [29:34.870] is out there doing the jobs that they swore an oath to do,
+- [29:38.500] and they are removing public safety threats
+- [29:40.240] from our communities every day.
+- [29:41.980] And our country is becoming a safer place
+- [29:44.310] because of their efforts.
+- [29:45.570] And the one Big Beautiful Bill that is now law
+- [29:48.250] will give significant resources to ICE and Border Patrol
+- [29:51.800] to continue the tremendous work that they're already doing.
+- [29:54.630] And I think every American who wants to live
+- [29:56.720] in a safe neighborhood should be grateful for their efforts.
+- [30:01.180] Raquel, Raquel. Raquel. Raquel. Then I can go to you.
+- [30:05.100] The Press: Thank so much.
+- [30:06.370] Karoline Leavitt: And then you, Dr. Harper.
+- [30:07.990] The Press: Thank you, Karoline.
+- [30:09.280] It's a follow up on the BRICS question.
+- [30:12.520] So does President Trump believe that the BRICS
+- [30:15.900] are getting stronger or trying to isolate the United States?
+- [30:20.180] And how close is he monitoring this summit
+- [30:23.790] that is taking place in Brazil right now?
+- [30:25.410] Karoline Leavitt: He's closely monitoring it,
+- [30:26.900] which is why he put out a statement himself.
+- [30:28.740] He does not perceive these countries as growing stronger.
+- [30:31.690] He just perceives them as trying to undermine
+- [30:34.250] the United States interests. And that's not okay with him,
+- [30:36.540] no matter how strong or weak a country may be.
+- [30:39.030] Go ahead. Yes, go ahead. As promised. Yes, go ahead.
+- [30:43.380] The Press: Thank you. Thank you.
+- [30:44.840] Does Trump have a vision for post-war Gaza?
+- [30:47.570] You mentioned he's talking about now the ceasefire,
+- [30:50.840] but does he support permanent or temporary presence
+- [30:55.520] in the Gaza Strip?
+- [30:56.850] Does he continue to see a continued role
+- [30:59.650] for the Gaza Humanitarian Foundation
+- [31:01.660] to continue to operate in the Gaza Strip?
+- [31:03.870] Karoline Leavitt: Well, as you know,
+- [31:05.190] because we've talked about it before,
+- [31:06.610] the President has directed aid to be moved into the region,
+- [31:10.370] and that has been taking place.
+- [31:12.030] You've actually seen people in the Gaza Strip yelling out,
+- [31:15.060] "Thank you, Trump,"
+- [31:16.290] for the aid and for the meals that they have received
+- [31:18.420] because the previous administration
+- [31:20.870] never did that for some reason. But this President,
+- [31:24.470] again wants to see peace and stability in the region.
+- [31:26.730] So as I outlined previously, he views this part of the region
+- [31:30.330] as having a real chance at being peaceful and prosperous.
+- [31:33.150] But again, we need to end this war.
+- [31:34.720] We need to get all the hostages home,
+- [31:36.080] and Hamas needs to accept this proposal in order to do that.
+- [31:39.730] Dr. Harper, go ahead.
+- [31:40.970] The Press: I'm Dr. Anthony Harper with the
+- [31:42.220] (inaudible 00:36:52) Christian News.
+- [31:43.780] Thank you for taking my questions.
+- [31:45.430] Given the nature of the Palestinian Authority
+- [31:47.680] with their pay to slay, teaching Jew hatred to children,
+- [31:51.560] corrupt leaders, and no elections for 19 years,
+- [31:55.770] who does President Trump support to govern area
+- [31:59.980] A and area B to prevent Hamas from ruling?
+- [32:04.100] And what is President Trump's position on Israeli sovereignty?
+- [32:06.680] Karoline Leavitt: Sure.
+- [32:07.940] Well, the President believes Israel, of course,
+- [32:10.040] has a right to defend itself.
+- [32:11.790] As for the first part of your question,
+- [32:13.610] you're getting ahead Dr. Harper.
+- [32:15.000] As I told you, the President wants Hamas
+- [32:17.490] to accept this proposal right now.
+- [32:19.280] He wants to see peace in this region,
+- [32:21.340] and he's committed to doing that.
+- [32:22.620] Sean.
+- [32:23.910] The Press: Hey, Karoline,
+- [32:25.140] can you just please walk us through the decision
+- [32:27.420] to halt the supply of weapons to Ukraine
+- [32:30.160] at a time when Russia is really hitting Ukrainian cities
+- [32:33.020] and civilians?
+- [32:34.240] Was that the President who decided that,
+- [32:36.830] or did the Pentagon do it without his approval?
+- [32:39.020] Karoline Leavitt: Nope, neither of those things are true.
+- [32:40.340] I'm happy to walk you through it.
+- [32:41.540] This was a standard review by the Pentagon of all weapons
+- [32:45.720] and all aid and all support that the United States
+- [32:48.390] is providing all countries and all regions around the world,
+- [32:52.240] not just Ukraine.
+- [32:53.530] When the Secretary of Defense took office,
+- [32:55.540] he directed the Pentagon to conduct this review
+- [32:58.040] to ensure that everything that's going out the door
+- [33:00.180] aligns with America's interest. So it's a pause to review,
+- [33:03.970] to ensure that everything the Pentagon is pushing out there
+- [33:07.490] is in the best interest of our military
+- [33:09.910] and our men and women in uniform.
+- [33:11.380] Fran?
+- [33:12.890] The Press: Two questions on Israel.
+- [33:14.320] You suggested that Hamas is the impediment
+- [33:16.950] currently to a ceasefire.
+- [33:18.780] So if not a ceasefire deal, then what does the President
+- [33:22.090] hope to achieve with tonight's dinner with the Prime Minister?
+- [33:24.810] Karoline Leavitt: Again, you guys are getting around
+- [33:27.140] to a lot of hypotheticals.
+- [33:28.350] I don't want to get ahead of the President,
+- [33:29.890] but there are many other issues
+- [33:32.220] to discuss with Prime Minister Netanyahu
+- [33:34.060] tonight related to the region and just the entire world.
+- [33:36.810] So this will be a dinner to talk about Operation Midnight Hammer,
+- [33:39.720] which was incredibly successful, to talk about peace in Gaza
+- [33:43.070] and ending that conflict, as well as many other topics
+- [33:46.710] of discussion in relation to Israel and the United States.
+- [33:50.410] Sure. Go ahead.
+- [33:51.700] The Press: Thank you, Karoline. This is on the trade letters.
+- [33:55.370] Given the fact that the President
+- [33:56.850] put into effect the tariffs on April 2nd
+- [34:00.050] and then put the pause into place,
+- [34:03.950] is the President at all concerned that these countries
+- [34:06.540] that are receiving the letters won't take them seriously
+- [34:09.090] because the deadline seems to have shifted already
+- [34:11.910] and may shift again?
+- [34:13.470] Karoline Leavitt: They will take the letters seriously,
+- [34:15.310] because they have taken the President seriously.
+- [34:17.730] And that's why the President's phone,
+- [34:19.640] I can tell you, rings off the hook from world leaders
+- [34:22.500] all the time who are begging him to come to a deal.
+- [34:26.930] And this administration is working hard
+- [34:29.390] to ensure those deals are in the best interest
+- [34:31.460] of the American people. And this delay, again,
+- [34:34.140] is in the best interest of the American people.
+- [34:36.110] And you all will continue to see these letters
+- [34:37.990] released on the President's Truth Social,
+- [34:39.620] and we will see you all later. Thank you, guys.

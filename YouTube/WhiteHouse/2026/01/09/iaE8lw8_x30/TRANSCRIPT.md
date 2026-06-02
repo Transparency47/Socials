@@ -1,0 +1,2087 @@
+<!-- source: https://www.youtube.com/watch?v=iaE8lw8_x30 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: iaE8lw8_x30 -->
+<!-- date_published: 2026-01-09T22:01:22+00:00 -->
+<!-- date_accessed: 2026-06-02T02:39:14.532469+00:00 -->
+
+# Transcript: President Trump Participates in a Meeting with Oil and Gas Executives
+
+- [00:10.890] Announcer: Ladies and gentlemen,
+- [00:12.190] the President of the United States,
+- [00:13.960] Donald J. Trump.
+- [00:16.570] ♪ (Hail to the Chief) ♪
+- [01:01.795] The President: (inaudible)
+- [01:08.570] by far, I would say.
+- [01:11.640] And we're doing tremendous things.
+- [01:14.720] Our country is doing very well.
+- [01:17.770] You saw the numbers that got released.
+- [01:19.900] Today, yesterday, deficits cut way,
+- [01:23.580] way, way back at levels
+- [01:25.140] that nobody's ever seen before, setting records.
+- [01:28.730] And the numbers coming into our country are unprecedented.
+- [01:32.730] And we're doing really well.
+- [01:34.560] We had a situation three days ago with Venezuela.
+- [01:39.650] And we're getting along extremely well
+- [01:41.370] with the people of Venezuela,
+- [01:43.880] both the people and the people that are running Venezuela.
+- [01:49.610] I just want to thank our military.
+- [01:51.090] What they've done is incredible.
+- [01:52.580] That was considered unprecedented.
+- [01:54.700] To go into a military fort
+- [01:56.230] with thousands of soldiers and others.
+- [02:00.230] And to come in with 152 planes going every which way,
+- [02:05.910] and very rapid speeds. And helicopters.
+- [02:10.110] And to come out with no deaths and the loss of no equipment.
+- [02:15.390] It was pretty amazing. Nobody's seen anything like it.
+- [02:18.460] I was called by the leaders of numerous countries.
+- [02:21.770] I won't go into which ones,
+- [02:23.490] but the biggest and the strongest
+- [02:25.950] and they said that was very impressive.
+- [02:28.390] They're all impressed.
+- [02:30.870] But today, I'm delighted to welcome almost two dozen
+- [02:33.440] of the biggest and most respected oil and gas executives
+- [02:37.490] in the world to the White House. It's an honor to be with them.
+- [02:41.430] We have many others that were not able to get in.
+- [02:44.150] I said if we had a ballroom,
+- [02:46.610] we'd have over a thousand people.
+- [02:49.100] Everybody wanted -- I never knew your industry was that big.
+- [02:51.740] I never knew you had that many people in your industry.
+- [02:56.230] But here we are.
+- [02:58.190] And if you -- in fact, if you look --
+- [02:59.940] come to think of it, well, I got to look at this myself.
+- [03:11.580] Wow! What a -- what a view.
+- [03:15.770] This is the door to the ballroom.
+- [03:21.170] Wow! What a job. Unusual time to look,
+- [03:26.400] but I figure we might as well do it.
+- [03:28.220] If the fake news would like to go back
+- [03:29.770] and take a look, you can.
+- [03:30.980] But you'll see a very big foundation that's moving.
+- [03:33.850] We're ahead of schedule in the ballroom and under budget.
+- [03:36.890] It's going to be -- I don't think there'll be
+- [03:38.550] anything like it in the world, actually.
+- [03:40.420] I think this will be the best.
+- [03:42.230] We went from -- this is, as you know, our biggest room,
+- [03:44.990] which would seat 100 for dinner. Maybe, if you're lucky.
+- [03:48.980] If you're nice and tight and the ballroom will seat many.
+- [03:52.730] And it'll also take care of the inauguration
+- [03:55.780] with bulletproof glass,
+- [03:57.280] drone proof ceilings and everything else,
+- [03:59.040] unfortunately, that today you need.
+- [04:02.520] So we're going to discuss how these great American companies
+- [04:05.130] can help
+- [04:06.360] rapidly rebuild Venezuela's dilapidated oil industry
+- [04:09.950] and bring millions of barrels of oil production
+- [04:13.660] to benefit the United States,
+- [04:15.370] the people of Venezuela and the entire world.
+- [04:18.770] And yesterday, the number is 30 million barrels.
+- [04:24.400] I can't even -- is that a correct number?
+- [04:26.640] 30 million barrels. Did you hear that Peter?
+- [04:31.380] Of oil was given to us by Venezuela.
+- [04:34.280] That's a lot of oil. That's about $4 billion worth.
+- [04:37.180] And it's on our way to --
+- [04:39.150] it's on its way to the United States right now.
+- [04:42.420] And we want to thank Venezuela for that.
+- [04:45.820] And we're working very well with them, obviously,
+- [04:47.880] or they wouldn't have been so generous.
+- [04:49.270] But they respect us again.
+- [04:51.050] They didn't respect us at all before.
+- [04:53.750] So that's money that goes to the United States.
+- [04:55.850] Some will go to Venezuela.
+- [04:58.360] And some will go to the oil companies,
+- [05:00.190] but not that because that's already been extracted.
+- [05:03.660] So you're not getting any of that.
+- [05:06.400] But when you start extracting, you'll get --
+- [05:09.390] but it's a tremendous reserves.
+- [05:12.630] Among the biggest in the world.
+- [05:13.940] Some people say it is the biggest in the world.
+- [05:16.980] And we're going to be working with Venezuela.
+- [05:19.020] We're going to be making the decision
+- [05:20.480] as to which oil companies are going to go in,
+- [05:23.160] that we're going to allow to go in.
+- [05:24.430] We're going to cut a deal with the companies.
+- [05:26.620] We'll probably do that today
+- [05:28.100] or very shortly thereafter with Chris and Doug.
+- [05:32.820] And we're dealing with the country,
+- [05:35.330] so we're empowered to make that deal.
+- [05:38.670] And you have total safety, total security.
+- [05:41.690] One of the reasons you couldn't go in is you had no guarantees,
+- [05:44.170] you had no security, but now you have total security.
+- [05:46.910] It's a whole different Venezuela.
+- [05:48.220] And Venezuela is going to be very successful.
+- [05:52.250] And the people of the United States
+- [05:53.780] are going to be big beneficiaries
+- [05:55.320] because we're going to be extracting,
+- [05:58.460] you know, numbers of -- in terms of oil like,
+- [06:01.990] you know, a few people have ever seen, actually.
+- [06:04.940] So you're dealing with us directly.
+- [06:08.020] You're not dealing with Venezuela at all.
+- [06:09.560] We don't want you to deal with Venezuela.
+- [06:12.180] Let me thank Vice President JD Vance,
+- [06:14.550] who's doing a fantastic job.
+- [06:17.700] Secretary of State Marco Rubio, likewise a fantastic job.
+- [06:21.340] I have good people.
+- [06:24.560] I like them better than my first group.
+- [06:26.900] But we had a great --
+- [06:28.230] Despite that, we had a great first term.
+- [06:29.940] We had some great people there too, by the way.
+- [06:32.780] But we had a great -- a great first term.
+- [06:35.310] We had the greatest economy in the history of our country
+- [06:37.530] in the first term, but this is blowing it away.
+- [06:40.310] And you haven't seen anything yet.
+- [06:42.100] Everyone's been shocked by the numbers, 5.4 percent GDP.
+- [06:47.230] And that's despite the fact that we were badly hurt
+- [06:50.960] by the Democrat shutdown of which they'd like to see
+- [06:53.560] if they could shut it down again.
+- [06:56.350] Secretary of the Interior Doug Burgum, who is fantastic.
+- [06:59.800] Secretary of Energy Chris Wright,
+- [07:02.840] recommended by Doug
+- [07:04.070] as being the greatest oil man anywhere in the world.
+- [07:06.710] Because I wanted Doug for that job, energy.
+- [07:09.650] And Doug said no, sir.
+- [07:11.740] There's a man named Chris Wright.
+- [07:12.970] I said who the hell is Chris Wright?
+- [07:15.470] He said he's the most talented oil man anywhere in the world.
+- [07:19.250] I doubt you can get him because typically oil men
+- [07:22.190] make a lot of money.
+- [07:23.390] And women, they make a lot of money.
+- [07:25.910] But Chris came.
+- [07:27.370] You took one of the greatest salary cuts
+- [07:29.040] probably in history, Chris, right?
+- [07:31.560] But he's a fantastic person, loves our country.
+- [07:34.180] And many other important members of this team.
+- [07:37.140] And I want to thank them for their efforts.
+- [07:38.650] As you know, last week, the United States Armed Forces
+- [07:41.260] performed one of the most spectacular military operations
+- [07:45.110] in American history,
+- [07:47.110] apprehending the outlaw dictator, Nicolas Maduro,
+- [07:50.740] for his crimes against the United States.
+- [07:53.400] Crimes for which he has now been indicted
+- [07:56.610] and is in federal court awaiting trial.
+- [08:01.220] And he killed many people, millions of people actually.
+- [08:06.550] And allowed jails, prisons, mental institutions,
+- [08:09.790] insane asylums, drug dealers, drug addicts
+- [08:13.340] to pour into our country totally unchecked
+- [08:15.380] because of sleepy Joe Biden's policy of open borders.
+- [08:19.310] The stupidest thing I've ever seen,
+- [08:20.790] we're getting them all out.
+- [08:23.320] The departure of Maduro makes it possible.
+- [08:27.350] An incredible future for both nations,
+- [08:29.480] Venezuela and the United States
+- [08:32.430] in which we will more closely integrate the economies
+- [08:37.190] of two major energy powers in the Western Hemisphere.
+- [08:40.180] Energy coming out of Venezuela was very small.
+- [08:43.370] One of the things the United States gets out of this
+- [08:45.520] will be even lower energy prices.
+- [08:47.780] We have people now getting gasoline for $1.99,
+- [08:52.370] $1.96, $1.95, $1.92 yesterday somebody
+- [08:58.090] and it used to be three-and-a-half,
+- [08:59.320] $4, $5 a gallon. Think of that, $1.99.
+- [09:05.970] Decades ago, the United States built Venezuela's oil industry
+- [09:09.940] a tremendous expense with American skill,
+- [09:12.460] technology, know how, and dollars.
+- [09:15.550] But those assets were stolen from us
+- [09:18.810] and we had presidents did nothing about it.
+- [09:21.820] This president is much different than your other presidents.
+- [09:24.700] They did nothing about it. They stole it.
+- [09:26.490] Some of the people in this room
+- [09:28.580] were a little bit younger when that happened.
+- [09:30.800] But not that much younger, wasn't that long ago,
+- [09:34.850] but they stole our assets like we were babies.
+- [09:39.100] And the United States said absolutely nothing about it.
+- [09:41.750] So now we're doing everything about it.
+- [09:43.460] Now we're doing 500 percent about it, but it's --
+- [09:48.200] it's a long time after the act took place.
+- [09:50.870] So they stole from us
+- [09:52.110] and it was taken by socialists and communists
+- [09:55.310] at the time and Venezuela was going bad, really bad.
+- [09:59.360] And as much oil as they have,
+- [10:00.680] they're producing almost nothing --
+- [10:03.010] almost nothing which is just a system.
+- [10:06.850] So we're really -- if you look at it,
+- [10:09.020] we're taking back what was taken from us.
+- [10:12.220] They took our oil industry.
+- [10:14.190] We built that entire oil industry,
+- [10:16.240] started a long time ago, but they took it and they --
+- [10:21.300] they were very ungracious to this country,
+- [10:23.490] but now they're being very nice.
+- [10:25.750] American companies will have the opportunity
+- [10:28.150] to rebuild Venezuela's rotting energy infrastructure
+- [10:32.300] and eventually increase oil production
+- [10:34.180] to levels never ever seen before.
+- [10:37.990] When you add Venezuela in the United States together,
+- [10:41.180] we have 55 percent of the oil in the world.
+- [10:45.110] The United States is number one.
+- [10:46.570] We have them drilling, drill baby,
+- [10:49.110] drill was my campaign -- and Doug and Chris,
+- [10:52.760] I think we're setting records on drilling right now
+- [10:55.780] and taking oil without Venezuela.
+- [10:58.950] That's how we're getting the oil prices down.
+- [11:01.930] The plan is for them to spend, meaning our giant oil companies
+- [11:06.720] will be spending at least $100 billion of their money,
+- [11:10.230] not the government's money.
+- [11:11.530] They don't need government money,
+- [11:14.340] but they need government protection
+- [11:15.920] and need government security
+- [11:17.520] that when they spend all this money,
+- [11:19.560] it's going to be there.
+- [11:20.910] So they get their money back and make a very nice return.
+- [11:23.990] The plan is for them to spend at least $100 billion
+- [11:27.870] to rebuild the capacity and the infrastructure necessary.
+- [11:33.450] Venezuela has also agreed that the United States
+- [11:36.190] will immediately begin refining
+- [11:37.870] and selling up to 50 million barrels of Venezuelan crude oil,
+- [11:43.480] which will continue indefinitely.
+- [11:46.250] We're all set to do it. We have the refining capacity
+- [11:49.740] was actually based very much on the Venezuelan oil,
+- [11:53.790] which is a heavy oil, very good oil, grade oil.
+- [11:56.250] It's fantastic for certain things like asphalt, roads,
+- [12:01.640] the best there is in the world for asphalt roads
+- [12:03.890] and other things. All of the companies here today
+- [12:07.300] are going to be treasured partners
+- [12:09.600] in bringing the nation of Venezuela back to life,
+- [12:12.380] restoring its economy and generating great wealth
+- [12:15.570] for their companies and for their people
+- [12:19.200] and also great wealth for the American people
+- [12:23.300] and tremendous wealth for the companies
+- [12:25.630] that are going in the companies that are going in.
+- [12:28.110] And if you don't want to go in, just let me know
+- [12:29.830] because I got 25 people that aren't here today
+- [12:34.060] that are willing to take your place.
+- [12:36.960] So I just want to thank --
+- [12:38.920] uh, these are people that I either know
+- [12:41.250] or I know of by reading lots of business magazines
+- [12:44.430] and journals and papers.
+- [12:46.660] These are the greatest oil people anywhere in the world.
+- [12:50.710] Harold Hamm, I see is here.
+- [12:51.990] Harold, you know, there's a story about Harold Hamm
+- [12:54.300] that he can look at a piece of land
+- [12:57.020] put a straw into the land and oil pours out.
+- [13:00.300] Is that true about you?
+- [13:01.830] Whereas some of you guys have to invest hundreds
+- [13:04.780] of millions of dollars to find that oil,
+- [13:06.560] so we can't let that story be true,
+- [13:08.380] but they say Harold puts a straw into the land
+- [13:11.420] and oil comes gushing out.
+- [13:13.630] So you're not a big R&D person, are you, huh?
+- [13:16.840] He's -- he's -- he's called instinct for oil.
+- [13:20.660] Now he's got other problems,
+- [13:21.860] but we won't talk about those problems,
+- [13:24.300] but he's been a great supporter of mine for a long time.
+- [13:26.620] Haven't you, Harold? So congratulations.
+- [13:28.570] But we have -- and I think Harold would agree,
+- [13:30.610] we have the greatest oilmen and women
+- [13:33.990] anywhere in the world sitting in this room right now.
+- [13:36.950] And we have a lot of people that will be back
+- [13:38.900] to see us sometime next week.
+- [13:40.840] We're going to have another meeting for another group,
+- [13:44.600] but we're going to do this very quickly.
+- [13:45.950] We can have this done almost immediately.
+- [13:48.390] So I'd like to thank you all for being here.
+- [13:50.700] I'd like to invite Vice President Vance
+- [13:54.220] to say a few words followed by Secretaries Rubio,
+- [13:57.170] Bergman, Wright, and then we'll have a few words
+- [14:00.060] from representatives that are here
+- [14:02.080] and to discuss their ideas, a couple of them.
+- [14:06.290] We have Chevron, which has been --
+- [14:08.920] where's Chevron? Where are you?
+- [14:10.940] Male Speaker: Far right.
+- [14:12.510] The President: No, I thought you'd have a better location.
+- [14:14.410] You were the only one that was there for all that.
+- [14:17.160] I used to call you and say what the hell
+- [14:19.760] is going on with Venezuela. He stuck it out.
+- [14:22.520] I don't know if you made money or not, but you stuck it out.
+- [14:24.970] You got to give you a lot of credit for that.
+- [14:27.350] Mark Nelson, thank you very much.
+- [14:29.070] Exxon CEO, Darren Woods. Darren, thank you very much.
+- [14:33.020] How's Exxon doing? Okay?
+- [14:34.220] Darren Woods: All right.
+- [14:35.440] The President: They'll do a lot better now, won't they, huh?
+- [14:37.990] Exxon's been amazing. It's been an amazing company
+- [14:41.600] and ConocoPhillips CEO, Ryan Lance.
+- [14:45.860] Thank you very much. So you guys could say something
+- [14:47.970] and then we'll take some questions from the press
+- [14:50.660] and if anybody else would like to speak we'll have you speak.
+- [14:54.730] We have all the time in the world.
+- [14:55.940] This is a big subject.
+- [14:57.210] This is massive wealth and more importantly than massive wealth,
+- [15:02.400] it leads to lower taxes and a lot of jobs for Americans
+- [15:06.670] and for Venezuelans, but for Americans in this case.
+- [15:10.560] And I just again appreciate you all being here
+- [15:13.540] and I'd like to ask JD to say a few words, please.
+- [15:15.510] Thank you.
+- [15:16.810] The Vice President: Thank you, Mr. President,
+- [15:18.060] and thanks to everybody for being here.
+- [15:19.390] You know, as a Marine Corps veteran
+- [15:22.070] for my entire lifetime, presidents,
+- [15:23.960] and let's be honest, they were Democrats and Republicans
+- [15:26.840] would send the American military to far off places
+- [15:29.660] they would get us involved in these endless quagmires,
+- [15:31.920] they would lose hundreds or thousands of American lives.
+- [15:34.660] And the American people would get nothing out
+- [15:36.850] of these misadventures.
+- [15:38.440] And now you have an American president
+- [15:39.810] who has empowered the American military
+- [15:42.040] to stop the flow of drugs into our country.
+- [15:44.850] And to ensure that we, as opposed to our adversaries,
+- [15:47.960] control one of the great energy reserves
+- [15:50.100] that exist anywhere in the entire world.
+- [15:52.610] And he did it without losing a single American life
+- [15:55.770] in the process. It was an amazing operation.
+- [15:58.190] It's going to make our country richer.
+- [15:59.970] It's going to make our country more powerful.
+- [16:01.940] It's going to make our country safer
+- [16:03.700] and it's going to lead to the decline.
+- [16:05.410] The further decline of drug overdose deaths
+- [16:08.320] in the United States of America, an amazing thing.
+- [16:10.930] And I'm happy to be here to talk about
+- [16:12.650] how we can make it an even bigger
+- [16:13.900] and better operation for the American people.
+- [16:15.460] Thank you, sir.
+- [16:16.660] The President: Thank you very much. Marco?
+- [16:18.800] Secretary Rubio: Thank you, Mr. President,
+- [16:20.010] and I think this is a reminder that everything this president
+- [16:22.330] does --everything President Trump
+- [16:23.660] does is with the American people in mind.
+- [16:25.430] It was not in the national interest
+- [16:27.430] or national security of the United States
+- [16:29.320] and of our people to have in our own hemisphere a country,
+- [16:33.150] not just with vast energy reserves,
+- [16:35.180] but controlled by an indicted narco trafficker
+- [16:38.020] who flooded our country with illegal immigration,
+- [16:40.760] including drug gang members flooded our openly cooperated
+- [16:44.490] with drug gangs and by the way opened up the --
+- [16:46.860] stole the wealth of that country to fund a repressive regime
+- [16:50.690] and also benefit adversaries such as Iran.
+- [16:53.100] All of that is now changing. As part of this process,
+- [16:56.900] the first phase of course is the phase we're in now,
+- [16:58.860] which is the stabilization phase.
+- [17:00.270] We do not want to see destabilization in the country.
+- [17:02.390] We're working very cooperatively with the interim authorities
+- [17:05.260] there to provide a market
+- [17:06.800] for the sale of the wealth of Venezuela
+- [17:09.340] in such a way that benefits
+- [17:10.670] the people both of the United States,
+- [17:12.090] but also the people of Venezuela.
+- [17:13.740] And as a reminder to everyone,
+- [17:15.120] the president announced this just two days ago,
+- [17:17.270] every penny, everything they buy with the money
+- [17:19.150] that they're making from the oil,
+- [17:20.430] now, Mr. President, will be bought from America
+- [17:23.190] and that includes everything from equipment
+- [17:25.350] for the oil industry to food to Medicines
+- [17:27.390] and everything in between.
+- [17:28.720] The second will be a phase of recovery
+- [17:30.390] and then some of these phases will interlap
+- [17:32.160] and that is to have a normal economy again
+- [17:33.910] where the money goes to the benefit of people,
+- [17:36.020] not the benefit of our adversaries
+- [17:38.500] or the benefit of elements in that country
+- [17:41.750] and around the world that are against our interests.
+- [17:43.740] At the same time as a process of reconciliation
+- [17:45.930] has to happen internally among the different sectors of society
+- [17:49.150] and politics and the like. And finally, the third phase,
+- [17:51.810] which is the most important of the three
+- [17:53.480] is when the country fully transitions
+- [17:55.300] into a normal country
+- [17:56.520] that we have strong economic and diplomatic and relations
+- [17:59.750] with that is friendly towards the United States,
+- [18:02.480] that's not a foothold for our adversaries,
+- [18:04.060] that serves our interests,
+- [18:05.330] but also the interests of the people.
+- [18:06.640] It will be a country that is wealthy,
+- [18:08.060] a country that is prosperous for the people,
+- [18:10.460] not for a handful of criminals,
+- [18:13.030] but also a country that is supportive of our interests
+- [18:15.600] in the region and throughout the world.
+- [18:17.410] And we thank you, Mr. President,
+- [18:18.860] and the team you've assembled that have made --
+- [18:20.380] brought us to this point.
+- [18:21.620] A lot of work remains important work, but this is historic.
+- [18:25.110] The President: Okay. Thank you very much. Doug?
+- [18:29.350] Secretary Burgum: Well, Mr. President,
+- [18:30.550] I want to thank you for your leadership,
+- [18:33.870] not just as president, but as commander in chief.
+- [18:36.290] The boldness, the execution, the breathtakingly precise work
+- [18:40.870] that you've delivered both in Iran back in June
+- [18:42.880] and here has changed the --
+- [18:44.530] changed the field for the whole world.
+- [18:46.960] And you always ran about the idea of peace and prosperity.
+- [18:50.080] And in Venezuela, as you know,
+- [18:52.570] this is a playground for every bad actor in the world.
+- [18:55.560] We had Russians, Iran terror groups,
+- [18:59.120] all of them profiting from this criminal organization
+- [19:01.600] that was pretending to run the country.
+- [19:04.170] That makes America safer. You secured the border.
+- [19:06.880] We're stopping the flow of drugs.
+- [19:08.410] And now with the normalization of relationships
+- [19:10.590] on an economic basis, it's going to mean tremendously
+- [19:14.090] for the prosperity of the American people.
+- [19:17.060] So I just want to say again congratulations to you
+- [19:20.240] and to the entire leadership team.
+- [19:22.280] It's been an amazing historic week
+- [19:24.630] on the scale of things
+- [19:25.830] that we haven't seen perhaps for 125 years
+- [19:28.480] in terms of the US exerting its influence over Latin America
+- [19:32.540] in a way that's going to make a change for generations.
+- [19:35.320] And on behalf of all the oil executives that are here today
+- [19:39.010] Chris and I want to say thank you to all of you.
+- [19:41.360] It's your technology, your innovation
+- [19:44.020] that has put America in the place where today
+- [19:46.090] we are the most energy dominant country in the world.
+- [19:48.910] And that is -- that position is what's allowed us
+- [19:51.500] to take the action that we're taking with statecraft,
+- [19:54.900] with military action. None of that would happen
+- [19:57.210] if we were dependent on everybody else for energy.
+- [19:59.200] So you're a big part of the reason
+- [20:01.530] that we're able to move the way we are today.
+- [20:03.230] And we're grateful that you're here to be --
+- [20:04.950] to be part of the solution going forward.
+- [20:06.930] The President: Thank you, Doug,
+- [20:08.180] and you are doing a fantastic job
+- [20:09.930] and we appreciate it. Everybody appreciates it.
+- [20:12.280] They know, -- they know who's doing well. Chris Wright.
+- [20:17.300] Chris Wright: Thank you, Mr. President.
+- [20:18.890] Yeah, what we've seen in the last week
+- [20:21.020] is leadership matters and credibility matters.
+- [20:24.930] Venezuelan oil has been sanctioned for many years,
+- [20:28.800] and the oil just flew, you know,
+- [20:30.730] those sanctions were not enforced.
+- [20:32.670] That oil just floated out to --
+- [20:35.070] trafficked by bad actors of the world
+- [20:37.670] that these resources weren't gone to a central place.
+- [20:40.670] The corruption and decline of Venezuela
+- [20:43.730] has been a crisis for the people of Venezuela.
+- [20:46.180] And as Secretary Rubio said,
+- [20:47.880] massive spillover effects in the United States in crime,
+- [20:52.090] in drugs, in kidnappings.
+- [20:54.420] And in taking a huge resource base
+- [20:56.510] and making it not exploited,
+- [20:58.710] not developed the whole world is a poorer,
+- [21:01.450] less opportunity rich place because of that.
+- [21:04.740] When you have materials underground,
+- [21:06.640] they've been underground for a million years,
+- [21:08.570] that does not make them a resource.
+- [21:10.570] That does not make them valuable for your country,
+- [21:12.850] your people or the world.
+- [21:14.670] They only become a resource with technology,
+- [21:17.780] with capital, with rule of law and a system of governance
+- [21:21.410] that encourages the harvesting of those resources
+- [21:23.770] to make the better world.
+- [21:25.240] And we see here the dramatic contrast
+- [21:27.570] between the United States,
+- [21:29.020] which may have less oil underground than Venezuela.
+- [21:32.100] We have 20 times the production of Venezuela,
+- [21:35.470] 20 times the impact of human betterment,
+- [21:38.270] massively better quality of living here
+- [21:40.120] in the United States.
+- [21:41.430] That was at risk under the last administration.
+- [21:43.570] We've seen a lot of attacks on the energy
+- [21:45.850] that makes the world go round.
+- [21:47.530] President Trump's election has removed those risks,
+- [21:50.700] has embraced reality about how the world is energized.
+- [21:54.150] And we are at record production of oil in the United States,
+- [21:56.630] record production in natural gas in the United States.
+- [21:59.280] We've seen a meaningful decline in gasoline prices,
+- [22:02.020] diesel prices, travel prices because of jet fuel.
+- [22:05.880] And now, President Trump is taking the genius
+- [22:08.140] of a different way
+- [22:09.400] to try to solve a 25 year festering problem in Venezuela
+- [22:14.410] that all the traditional things have not worked
+- [22:17.580] by ordering both the tremendous military operation
+- [22:20.840] to remove the heads of a criminal organization
+- [22:24.080] masquerading as a government.
+- [22:26.130] And then to use the power of our military,
+- [22:28.290] not to fire bullets,
+- [22:29.740] but to stop the flow of Venezuelan oil to the world,
+- [22:33.380] immediately gave us leverage
+- [22:35.580] over the interim authorities in Venezuela
+- [22:38.470] and has allowed us to be in this position today
+- [22:41.310] where the actions of this government
+- [22:43.900] can massively improve Venezuela for the better.
+- [22:46.830] And the bigger impact is to massively improve
+- [22:50.180] the quality of life, affordability,
+- [22:52.900] safety and security of the United States.
+- [22:56.060] Very proud to be here.
+- [22:58.520] And I -- you know, I will turn it over to Mark Nelson,
+- [23:04.030] who's the vice chairman of Chevron.
+- [23:06.180] Chevron has been in Venezuela for over 100 years continuously.
+- [23:12.360] Mike Wirth, the CEO, had a knee replacement recently.
+- [23:14.640] He's not here.
+- [23:15.840] Mark is a tremendous leader in our industry,
+- [23:18.470] and I'll turn it over to him.
+- [23:21.710] Mark Nelson: Thank you, Secretary Wright.
+- [23:23.660] Again, I'll send Mike Wirth's regrets.
+- [23:25.520] He really wanted to be here, Mr. President.
+- [23:27.310] The President: That's all right. He's a great, great guy.
+- [23:28.800] Mark Nelson: Yeah. On his -- on his behalf,
+- [23:30.340] I have three very quick thank yous,
+- [23:33.710] and an assurance I'd like to provide you all the first.
+- [23:37.220] Thank you, Mr. President, is to you.
+- [23:39.190] It's thank you for convening this gathering.
+- [23:41.380] It's thank you for your leadership.
+- [23:43.350] And -- and thank you for continuing
+- [23:45.830] to keep American energy domination in the --
+- [23:48.760] in the forefront.
+- [23:50.000] So thank you. Thank you for that.
+- [23:51.320] The President: Thank you. Thank you very much.
+- [23:52.600] Mark Nelson: The -- the second thank you actually is --
+- [23:54.490] is to the cabinet uh, so Secretary Rubio,
+- [23:58.490] Secretary Burgum, Secretary Wright,
+- [24:00.840] your ability and commitment to continue to engage
+- [24:03.950] with the parties around the table,
+- [24:06.100] to keep the world working is greatly appreciated,
+- [24:08.830] so thank you. Thank you for that.
+- [24:10.980] And the -- and the final thank you actually would go
+- [24:13.000] to our Venezuelan employees of Chevron.
+- [24:16.840] They have been working tirelessly to operate safely,
+- [24:20.710] protect the environment in country.
+- [24:23.540] And their dedication and skill
+- [24:25.710] will help us in this next chapter.
+- [24:29.420] And finally, I'll close with the assurance
+- [24:32.640] for more than a century,
+- [24:34.200] Chevron has been a part of Venezuela's past.
+- [24:36.930] We are certainly committed to its present.
+- [24:40.520] And we very much look forward, as a proud American company,
+- [24:43.360] to help it build a better future.
+- [24:45.810] And so Mr. President, thank you for your leadership.
+- [24:48.370] The President: Man, you really suffered there.
+- [24:50.200] You stuck it out.
+- [24:51.540] A lot of people left, a lot of big companies left.
+- [24:53.370] Some of the people,
+- [24:54.600] many of the people sitting at this table left
+- [24:56.980] because of the safety risk and other risks.
+- [25:00.110] But you really -- you stuck it out.
+- [25:01.830] I give you credit for that. Sometimes it was hard.
+- [25:05.010] I remember uh, six months ago, I told you to stay.
+- [25:07.960] Just stay. Things are going to happen.
+- [25:10.080] You'll be very happy.
+- [25:11.670] I didn't know they were going to happen this fast
+- [25:13.230] or this conclusively.
+- [25:16.040] One thing I think everyone has to know
+- [25:17.660] is that if we didn't do this,
+- [25:19.220] China or Russia would have done it.
+- [25:21.780] And if China or Russia were a next door neighbor,
+- [25:25.150] because essentially this is not around
+- [25:27.140] the other parts of the world
+- [25:28.830] so far away where you fly an airplane
+- [25:31.410] for 24 hours before you get there.
+- [25:33.390] This is sort of a next door neighbor if you think about it.
+- [25:37.530] And uh, I told China and I told Russia,
+- [25:42.490] we get along with you very well. We like you very much.
+- [25:45.070] We don't want you there, not going to be there.
+- [25:47.250] And if we didn't do this, China would have been there
+- [25:49.160] and Russia would have been there,
+- [25:50.410] maybe they both would have been there together,
+- [25:52.060] but they're not going to be there now.
+- [25:53.740] One thing I will tell them, and I will tell you,
+- [25:57.430] that we are open for business. Uh, China can buy all the oil
+- [26:02.250] they want from us there or in the United States.
+- [26:06.830] Russia can get all the oil they need from us.
+- [26:10.060] And they do like oil, even though they produce a lot of it.
+- [26:13.520] But China and Russia and everybody else is able to go.
+- [26:16.200] And we'll be open for business almost immediately.
+- [26:20.000] I have a feeling the $100 million
+- [26:21.800] will be spent very, very --
+- [26:23.600] $100 billion will be spent very, very rapidly
+- [26:26.510] by these very big powerful and rich companies.
+- [26:28.890] And I think they're going to be able to build --
+- [26:30.600] rebuild the infrastructure. And I --
+- [26:32.370] I hope it's going to be brand new as opposed to a rehab
+- [26:35.170] because I know the tremendous difference between the new
+- [26:38.530] and the not so new in your industry.
+- [26:40.270] The new is much more beautiful,
+- [26:43.550] much better in every way and actually much smaller.
+- [26:46.740] It's like everything else gets smaller and stronger.
+- [26:49.290] It's a combination of smaller, better and stronger.
+- [26:52.100] So I hope you're going to build all brand new stuff,
+- [26:53.990] rip out the old crap that's been there for so many years
+- [26:56.650] and do it the right way.
+- [26:57.880] You're going to be there a long time, if we make a deal.
+- [26:59.910] If we make a deal, you're going to be there a long time.
+- [27:02.130] If we don't make a deal, you won't be there at all.
+- [27:03.890] It's, you know, sort of interesting.
+- [27:05.800] But uh, again, China and Russia would have been there
+- [27:10.900] if we didn't do this.
+- [27:12.430] And the other thing people ask about the second wave.
+- [27:14.390] I don't think it's going to be necessary.
+- [27:15.940] We have an armada, a giant armada
+- [27:17.900] like nobody's ever seen in that part of the world.
+- [27:21.970] And it's stationed off the coast.
+- [27:24.350] And we are getting along so well
+- [27:26.970] with the people that are involved
+- [27:29.280] and representing Venezuela
+- [27:31.290] that I don't think we're going to have any --
+- [27:34.110] I don't think it's going to be necessary to do the second wave.
+- [27:37.130] We were planning on a second wave,
+- [27:39.420] but the first wave was so powerful
+- [27:41.320] and so good and so strong.
+- [27:43.380] And frankly, the people in the country,
+- [27:46.590] they really -- they did the right thing.
+- [27:48.410] They were smart, they did the right thing.
+- [27:50.250] They didn't want to go through a second wave.
+- [27:51.910] But we've got a tremendous number
+- [27:55.100] of the most powerful ships in the world right there.
+- [27:58.650] I don't think we're going to have to use that.
+- [28:00.420] I'm happy to say that.
+- [28:02.400] I don't think we're going to have to use that at all.
+- [28:04.180] If I could ask Chevron, you did a great job.
+- [28:07.340] I want to thank you.
+- [28:08.590] And ExxonMobil, if you would say a few words
+- [28:10.880] and then followed by ConocoPhillips.
+- [28:12.950] Great companies, massive companies, great companies.
+- [28:15.940] Exxon please.
+- [28:17.240] Darren Woods: Sure, thank you, Mr. President.
+- [28:18.670] I appreciate the invitation and the opportunity,
+- [28:21.160] frankly, for the entire industry to show up
+- [28:24.000] and provide a perspective.
+- [28:26.250] Frankly, we've been kind of unresponsive
+- [28:28.400] to the press regarding Venezuela.
+- [28:30.780] I guess today is the opportunity to address the press directly
+- [28:33.210] with respect to a number of questions
+- [28:34.660] that have been asked of ExxonMobil.
+- [28:36.620] First and foremost obviously is the interest
+- [28:38.490] that we have in Venezuela.
+- [28:39.960] And I think, you know, the way I would position that.
+- [28:42.070] I think one of the reasons why we see many
+- [28:43.450] of the industry players here is we're in a depletion business
+- [28:46.360] for a product that is in great demand
+- [28:48.120] and will be in demand for many, many, many decades to come.
+- [28:51.410] And as a depletion business,
+- [28:52.800] the biggest challenge we have is finding resources.
+- [28:56.120] There's an opportunity in Venezuela
+- [28:57.660] with all the resources there is --
+- [28:59.200] we don't have that challenge of finding.
+- [29:00.860] We have the challenge of developing those resources.
+- [29:03.330] So I think it's on --
+- [29:05.260] it's in the best interest of these companies
+- [29:08.430] and frankly society as a whole for the industry
+- [29:11.720] to be interested in understanding
+- [29:13.560] what the opportunity here represents.
+- [29:16.290] I'll just share a philosophy that ExxonMobil has
+- [29:18.320] when we enter countries
+- [29:19.520] because we do business all around the world
+- [29:21.350] in a number of different regimes.
+- [29:22.570] We take a very long term perspective,
+- [29:25.480] the investments that we make span decades and decades.
+- [29:29.220] So we do not go into any opportunity
+- [29:31.910] with a short mindset -- short-term mindset.
+- [29:35.500] And there's a value proposition that we have to meet.
+- [29:38.710] It has to be a win-win-win proposition.
+- [29:41.610] Obviously, it has to be a win for the company
+- [29:43.380] and our shareholders
+- [29:44.580] and to generate a return for the investments
+- [29:46.350] that we make has to be a win for the government.
+- [29:49.810] The resources are an important source of revenue
+- [29:51.930] that helps support the people of the places that we do business
+- [29:55.510] and that has to be a win for the people.
+- [29:57.810] We have to be wanted there and to be a good neighbor
+- [30:00.190] and those three things ensure a stable long term platform
+- [30:04.200] for the large investments that we make for the long term.
+- [30:08.960] With respect to Venezuela in particular,
+- [30:11.610] we have a very long history in Venezuela.
+- [30:13.520] In fact, we first got into Venezuela back in 19 -- 1940s.
+- [30:18.670] We've had our assets seized there twice.
+- [30:21.840] And so you can imagine to reenter a third time
+- [30:25.320] would require some pretty significant changes
+- [30:27.770] from what we've historically seen here
+- [30:29.350] and what is currently the state.
+- [30:31.240] If we look at the legal and commercial constructs
+- [30:33.830] and frameworks in place today in Venezuela today,
+- [30:37.180] it's uninvestable.
+- [30:39.150] And so significant changes have to be made
+- [30:41.120] to those commercial frameworks, the legal system,
+- [30:44.480] there has to be durable investment protections
+- [30:46.730] and there has to be a change
+- [30:48.060] to the hydrocarbon laws in the country.
+- [30:51.600] We're confident that with this administration
+- [30:53.490] and President Trump
+- [30:54.740] working hand-in-hand with the Venezuelan government
+- [30:57.920] that those changes can be put in place.
+- [31:02.020] Uh, with respect to the Venezuelan government that --
+- [31:06.210] that perspective, we don't have a view on --
+- [31:07.820] we haven't talked to the Venezuelan government
+- [31:09.890] and obviously,
+- [31:11.230] we have yet to assess the people's perspective
+- [31:14.660] with respect to ExxonMobil entering the company --
+- [31:17.490] country.
+- [31:18.830] In the short term, there are things that can be done
+- [31:21.790] while these longer term issues are being worked.
+- [31:24.860] Uh, for us, we haven't been in the country for almost 20 years.
+- [31:28.720] Uh, we think it's absolutely critical in the short term
+- [31:31.500] that we get a technical team in place
+- [31:34.040] to assess the current state of the industry
+- [31:35.970] and the assets to understand what would be involved
+- [31:38.790] to help the people of Venezuela
+- [31:40.120] get production back on the market.
+- [31:42.690] With the invitation of the Venezuelan government
+- [31:44.780] and with the appropriate security guarantees,
+- [31:46.700] we are ready to put a team on the ground there.
+- [31:50.030] We also have a integrated set of capabilities
+- [31:53.160] from production to refining to trading.
+- [31:56.120] And I think we can be of assistance
+- [31:57.860] to getting the Venezuelan crude to market
+- [32:00.410] and realizing a market price to help again
+- [32:03.240] with the financial situation in Venezuela.
+- [32:06.440] So those are my short term perspective that I have.
+- [32:08.530] I'd say maybe close with a thank you uh, Mr. President,
+- [32:11.890] for the work that you've done to secure
+- [32:13.470] not only the national security
+- [32:14.760] but the energy security of the region.
+- [32:16.820] And then thank you, Secretary Rubio, Secretary Rice,
+- [32:19.240] Secretary Burgum for your leadership in this matter.
+- [32:21.910] Thank you.
+- [32:23.390] The President: How long would it take you, Darren,
+- [32:25.380] as Exxon to if we make a deal and if we make a deal,
+- [32:30.240] how long would it take you to get in there and get started?
+- [32:33.120] Darren Woods: Well, we --
+- [32:34.330] the first step, this technical team, we --
+- [32:36.530] as I talked with Secretary Wright earlier this week,
+- [32:39.010] we started from the beginning to put the team together
+- [32:41.940] so that if and when it was needed,
+- [32:43.560] we could hit the ground almost immediately.
+- [32:45.200] The President: So you laid the groundwork?
+- [32:46.420] Darren Woods: So we can -- we can hit the ground
+- [32:47.980] within the next couple of weeks, start the assessment
+- [32:50.230] and then from there we need to understand --
+- [32:51.870] The President: That's what we want.
+- [32:53.080] We want speed and quality. That's what we want.
+- [32:55.730] Thank you, Darren. And Sonoco, Ryan.
+- [32:58.590] Ryan Lance: Thank you, Mr. President,
+- [32:59.790] I appreciate the opportunity to be here to
+- [33:01.600] and you've assembled a great team
+- [33:03.180] and our congratulations as well
+- [33:05.330] for removing one of the terrible people in the world
+- [33:09.130] and bringing them to justice. It was quite amazing.
+- [33:11.600] I think you've given hope to the people of Venezuela again,
+- [33:15.430] which I think is quite remarkable.
+- [33:17.700] We've been on the other end of that despot regime a long time.
+- [33:22.370] Our assets were expropriated
+- [33:23.740] I had a little bit more hair when that happened.
+- [33:25.620] Um, and you know, I think we're the ninth largest
+- [33:31.490] non-sovereign credit holder in Venezuela today.
+- [33:35.030] So we're in a bit of a different situation.
+- [33:37.440] But I think you're big and bold idea to use energy commerce
+- [33:42.380] instead of conflict is something that could make
+- [33:46.010] a real big difference in Venezuela and we stand --
+- [33:48.680] our company certainly stands ready to help in --
+- [33:51.950] in that endeavor.
+- [33:53.820] Encourage you to continue to think bigger and even bolder
+- [33:56.740] and we've had some discussions with your energy team
+- [33:59.900] about that as well.
+- [34:01.560] As we think about the other people
+- [34:03.050] that need to be in this room
+- [34:04.290] and then this discussion or the banks
+- [34:06.000] and including probably the EXIM Bank
+- [34:08.320] as we think about how the debt needs to be restructured
+- [34:11.240] in the financing to deliver the billions of dollars
+- [34:14.900] that are required to restore their energy infrastructure.
+- [34:18.410] And I think as we think that big and bold,
+- [34:20.770] we need to be also thinking about even restructuring
+- [34:23.790] the entire Venezuelan energy system, including PDVSA.
+- [34:28.810] And I think if we can do that and think bold,
+- [34:32.590] there's an opportunity to be quick,
+- [34:33.940] fast and restore the quality of what's happened in Venezuela
+- [34:37.800] or what's been lost in Venezuela
+- [34:39.910] over the course of the last 25 years.
+- [34:41.490] So thank you for this opportunity.
+- [34:42.840] The President: Well, thank you very much
+- [34:44.080] and you'll get a lot of your money back.
+- [34:45.600] We're going to start with an even plate though.
+- [34:47.660] We're not going to look at what people lost in the past
+- [34:50.680] because that was their fault. That was a different president.
+- [34:52.920] We're going to -- we're going to --
+- [34:54.200] you're going to make a lot of money,
+- [34:55.420] but we're not going to go back.
+- [34:56.730] You left a lot of money behind, I guess, huh? What number?
+- [35:00.520] Ryan Lance: $12 billion.
+- [35:01.790] The President: How much?
+- [35:03.020] Ryan Lance: $12 billion.
+- [35:04.240] The President: Well, good write off.
+- [35:08.470] Ryan Lance: It's already been written off.
+- [35:09.720] The President: It's been written.
+- [35:11.740] All right. Thank you very much.
+- [35:13.120] You'll make it back one way or the other.
+- [35:14.900] You're all going to do very well.
+- [35:16.400] I think really Very well. Marco just gave me a note,
+- [35:19.840] go back to Chevron, they want to discuss something.
+- [35:23.530] Go ahead. I'm going back to Chevron, Mark.
+- [35:26.110] Thank you, Marco.
+- [35:28.100] Mark Nelson: Was there a question, Mr. President?
+- [35:29.460] The President: Yes, go ahead.
+- [35:30.680] Marco, what was -- what are you saying here?
+- [35:32.430] Chris Wright: Mark --
+- [35:33.650] Mark, if you can update us on operations in the ground
+- [35:37.590] and with the appropriate approvals what you might be able
+- [35:40.050] to achieve in the next 12 to 18 months?
+- [35:42.350] Give us a little view from the ground?
+- [35:44.000] Mark Nelson: You bet -- you bet.
+- [35:45.210] So today Chevron has 3,000 employees
+- [35:48.910] in four different joint ventures in Venezuela today.
+- [35:52.320] In over the past five to seven years,
+- [35:54.140] they've taken production from about 40,000 barrels
+- [35:57.050] a day to 240,000 barrels a day,
+- [35:59.420] essentially getting those facilities
+- [36:01.230] and that equipment up to standards.
+- [36:02.440] That would be something that people in the room
+- [36:04.370] would be more accustomed to.
+- [36:06.820] Given the work we've done with Secretary Wright
+- [36:09.500] and Secretary Burgum and even Secretary Bessent,
+- [36:14.090] I think we have a path forward here
+- [36:15.680] very shortly to be able to increase our liftings
+- [36:18.410] from those joint ventures,
+- [36:19.700] 100 percent essentially effective immediately.
+- [36:23.570] We are also able to increase our production
+- [36:26.080] within our own disciplined investment schemes
+- [36:29.220] by about 50 percent just in the next 18 to 24 months
+- [36:32.840] and that's just leveraging what's on the ground.
+- [36:35.400] So to Secretary Rubio's comments about phase one,
+- [36:39.040] this is taking the momentum of improvements
+- [36:41.340] we've already made there locally and building on those
+- [36:44.770] and creating more momentum for the people of Venezuela.
+- [36:48.420] The President: Do you think you have an advantage being there?
+- [36:50.730] You know, you've been there by the skin of your teeth.
+- [36:53.390] It's been tough for you to be there.
+- [36:54.670] But do you think you have an advantage
+- [36:56.040] over the other people in this room
+- [36:57.460] by the fact that you are there?
+- [36:58.850] Mark Nelson: Yeah, I think there are, Mr. President.
+- [37:00.070] I think there would be days
+- [37:01.330] where it didn't feel like an advantage
+- [37:02.650] and there are days where it does feel like an advantage.
+- [37:04.660] But having people on the ground today
+- [37:06.770] that care desperately about the people of Venezuela
+- [37:09.410] and know how to operate the assets that are there,
+- [37:11.290] it's a definite advantage today.
+- [37:12.640] The President: Would you say the best locations are available
+- [37:16.510] or would you say the best locations
+- [37:18.300] are already sort of worked
+- [37:20.920] even though they're in very bad shape?
+- [37:23.480] The best locations for finding oil,
+- [37:25.390] the best locations for oil?
+- [37:28.090] Mark Nelson: There are more opportunities than not,
+- [37:30.030] Mr. President.
+- [37:31.280] With 300 billion barrels of reserves
+- [37:33.890] and resources in country
+- [37:35.600] there are lots of opportunities for many companies.
+- [37:37.420] The President: Will you be building new
+- [37:38.650] or will you be using the old infrastructure that you have?
+- [37:41.540] Mark Nelson: Yeah, today it's a --
+- [37:42.820] it's a little bit of a mix,
+- [37:44.030] but today it's mostly us taking the -- the equipment of today,
+- [37:47.700] getting it to the standards that we are accustomed to.
+- [37:49.670] To your comments about making it how it should be today,
+- [37:52.410] most of the investments that we've been making
+- [37:54.560] are about getting it up to our standards.
+- [37:55.940] The President: Well, I think
+- [37:57.170] you're going to make an investment,
+- [37:58.370] but you're going to get your money back very quickly
+- [38:00.130] and that's part of our thing.
+- [38:01.350] We're going to have you get your money back fast
+- [38:03.000] and then you'll give a lot to Venezuela
+- [38:05.690] and to the United States after that, okay?
+- [38:07.980] So you'll be -- you'll be in good shape.
+- [38:09.880] Could I ask Harold Hamm to say a few words?
+- [38:11.800] He's been a friend of mine for a long time,
+- [38:14.330] a very amazing man, actually, an amazing energy person.
+- [38:18.680] Harold Hamm: Well, thank you, Mr. President.
+- [38:20.050] It's good to be here with so many dignified people
+- [38:24.320] and this effort particularly.
+- [38:25.950] And thank you for your effort for what you've done here,
+- [38:29.470] taking this despot out of that area.
+- [38:32.640] And the world dealt with him way too long.
+- [38:36.450] Certainly, our industry knows that this is a real jewel
+- [38:41.310] that can be developed for -- for the people.
+- [38:45.870] For the people of Venezuela and --
+- [38:49.170] and also benefit the world.
+- [38:51.500] And like Secretary Wright said, it has not been done.
+- [38:56.510] That has not been done in the past.
+- [38:58.340] And -- and they had a good chance at it.
+- [39:01.170] Uh, brought someone in that totally took it down,
+- [39:06.580] as everybody knows here, and that was Chavez.
+- [39:09.700] And we know what happened to him finally,
+- [39:11.910] but, you know, that ruined the industry in Venezuela.
+- [39:17.400] And all of us know how that happened,
+- [39:19.820] ended very well, very, very wrongly, uh.
+- [39:23.930] So anyway, we're glad to see uh, what's happened here.
+- [39:29.020] And uh, look forward for the opportunity
+- [39:32.990] for a lot of people in this room,
+- [39:35.230] but also for America and the country itself.
+- [39:38.620] The President: Are you going to be involved in going in?
+- [39:41.250] Because you know he's in North Dakota
+- [39:43.950] and he's in Oklahoma and some incredible places.
+- [39:48.110] It's a little bit different. But there's no doubt about it,
+- [39:50.750] you won't have to worry about this drug too much here.
+- [39:52.690] You can just -- just go at it.
+- [39:55.430] Are you going to be one of the participants?
+- [39:57.530] Harold Hamm: Well, certainly you know,
+- [39:59.270] I'm an oil founder like you said.
+- [40:01.510] Uh, you know Barry Switzer you know, told that story.
+- [40:05.350] The President: To coach.
+- [40:06.630] Harold Hamm: And he's kind of exaggerated a little bit.
+- [40:08.460] It doesn't come out that quite that easily, usually.
+- [40:10.910] But uh, anyway, great story. I love it.
+- [40:14.460] But -- and I love Barry.
+- [40:16.390] The President: Barry's the one that told me that story.
+- [40:17.900] Harold Hamm: Yeah, he -- he's a champion, you know, in --
+- [40:20.380] in a lot of ways, so love that story.
+- [40:23.210] Uh, certainly, I --
+- [40:24.960] it excites me as an expressionist you know,
+- [40:29.700] everybody has that in their blood.
+- [40:32.050] And, you know, it is a very exciting country
+- [40:37.660] and a lot of reserves.
+- [40:40.090] And so it's got its challenges and the industry knows how to --
+- [40:45.100] how to handle that.
+- [40:46.370] And, like Darren said, you know, you go into your eyes open
+- [40:51.000] and -- and do the best you can with the team you got.
+- [40:53.430] So thank you.
+- [40:54.720] The President: But you're going to have something
+- [40:55.990] that they never had really here is tremendous security.
+- [40:58.710] You're going to be very secure, very safe.
+- [41:00.870] Physically safe in addition to financially safe.
+- [41:04.280] So it's good to see you, Harold. Thank you very much.
+- [41:07.770] Does anybody have anything to say before we get to the press?
+- [41:10.320] The Press: Mr. President, what does Cuba have to do
+- [41:11.630] to avoid the same fate as Venezuela?
+- [41:14.450] What does Cuba have to --
+- [41:15.770] The President: Well, Cuba is in bad shape.
+- [41:17.280] Cuba relied on Venezuela for oil and for money.
+- [41:21.680] And nobody really knows what's going to happen with Cuba.
+- [41:24.110] They're doing very poorly.
+- [41:25.340] They really are Third World all the way.
+- [41:28.220] And we have a lot of Cuban Americans.
+- [41:31.110] And I would say Marco fits very solidly into that category,
+- [41:34.560] and I might ask you to say a few words about it.
+- [41:37.040] We were discussing it before.
+- [41:38.360] Cuba is a very different --
+- [41:39.970] they don't have energy, they don't have oil,
+- [41:41.710] but they would live off of the oil from Venezuela.
+- [41:46.210] And they -- what they do have is very strong people
+- [41:49.250] and very powerful people, militarily.
+- [41:52.570] And they would protect the people running Venezuela.
+- [41:56.200] And they would take in a lot of money from Venezuela.
+- [41:58.210] And now that they don't have
+- [41:59.510] that they won't be taking in any money.
+- [42:01.220] So Marco, what do you think?
+- [42:03.320] Secretary Rubio: Well, I mean, the fundamental problem in Cuba
+- [42:04.980] is that it's run by incompetent people
+- [42:06.580] and don't know what an economy looks like,
+- [42:08.110] much less a functioning one. They've made a choice
+- [42:10.570] and that is they would rather have political control
+- [42:12.360] over the people than they would have an economy that functions.
+- [42:15.160] And they've gotten away with it for 60 something years
+- [42:17.390] because they've had donors, the Soviet Union
+- [42:19.220] and now most recently Venezuela.
+- [42:20.720] But that's now gone.
+- [42:22.110] So the people in control in Cuba have a choice to make.
+- [42:25.150] They can either have a real country with a real economy
+- [42:27.280] where their people can prosper,
+- [42:28.870] or they can continue with their failing dictatorship
+- [42:30.870] that's going to lead to systemic and societal collapse.
+- [42:33.290] That's a very stark and dramatic choice
+- [42:34.710] and it's one we hope to make the right one.
+- [42:35.920] (inaudible)
+- [42:37.120] we don't have an interest in a destabilized Cuba,
+- [42:39.140] but that would be their fault
+- [42:40.360] because they refused to allow the people of Cuba
+- [42:42.430] to have either economic or political freedom
+- [42:44.650] for that matter.
+- [42:45.880] The President: And you have -- you have -- Hold on.
+- [42:48.100] You have a lot of people in this country
+- [42:49.870] that want to go back to Cuba and help Cuba.
+- [42:52.230] A lot of people have left, you know,
+- [42:54.440] they came in penniless, they didn't have anything,
+- [42:56.300] and they become very rich people in our country.
+- [42:58.330] And they want to very much go back and help Cuba.
+- [43:00.830] So that's something that Cuba has that a lot
+- [43:03.100] of other places don't have. Peter?
+- [43:04.540] The Press: President Trump, thank you.
+- [43:05.770] I do want to ask you about Minnesota,
+- [43:06.970] but first just more on topic President Zelenskyy
+- [43:10.720] said that he was watching with the rest of the world
+- [43:12.920] as you made this order to go and capture Nicolas Maduro.
+- [43:16.840] And he said if that's how it works with dictators,
+- [43:19.670] then the United States knows what to do next.
+- [43:22.420] It sounds like he wants you to go and capture Vladimir Putin.
+- [43:25.440] Would you ever order a mission
+- [43:26.700] to go and capture Vladimir Putin?
+- [43:27.950] The President: Well, I don't think
+- [43:29.190] it's going to be necessary.
+- [43:30.430] I think we're going to have a -- we've always --
+- [43:32.450] I've always had a great relationship with him.
+- [43:34.350] I'm very disappointed. I settled eight wars.
+- [43:36.580] I thought this would be in the middle of the pack
+- [43:38.400] or maybe one of the easier ones.
+- [43:40.560] And I don't know if you know, Peter,
+- [43:41.980] the last month they lost 31,000 people,
+- [43:45.310] many of them Russian soldiers.
+- [43:46.910] And the Russian economy is doing poorly.
+- [43:49.180] I think we're going to end up getting it settled.
+- [43:52.540] I wish we could have done it quicker
+- [43:54.580] because a lot of people are dying and mostly soldiers.
+- [43:57.620] You know, they get hit in Kyiv
+- [43:59.320] and they get hit a little bit here
+- [44:01.010] and there and people are dying there too.
+- [44:03.170] But largely, it's the soldier population when you have 30,000,
+- [44:07.540] 31,000 soldiers dying in a period of a month.
+- [44:11.580] 27,000 the month before, 26,000 the month before that,
+- [44:16.220] you know, that's bad stuff. So, as you know, President Biden
+- [44:20.650] gave $350 billion to Ukraine to fight.
+- [44:26.260] And we would never get that back.
+- [44:29.660] Although, I did make a rare earth deal to get it back.
+- [44:31.940] So we will be getting it back, but shouldn't have done that.
+- [44:35.140] It was a -- it was a bad thing to do.
+- [44:37.220] Uh, I will say that right now, because I was able to get NATO
+- [44:41.700] to up GDP from two percent to five percent,
+- [44:45.170] NATO has got a lot of money,
+- [44:46.500] and they are paying for everything.
+- [44:47.800] We're not losing any money.
+- [44:49.840] We're making a lot of money, I guess, if you think of it
+- [44:51.930] because we're selling a military equipment.
+- [44:53.680] They're probably giving it to Ukraine,
+- [44:55.650] but we're selling them to NATO military equipment.
+- [44:59.100] We're getting full price and all of that.
+- [45:00.810] But that's not a big deal to me.
+- [45:02.800] What is a big deal is stopping a war
+- [45:04.590] where 30,000 people are being killed every single month.
+- [45:07.660] The Press: On Minnesota, the vice president, yesterday,
+- [45:11.120] suggested that Renee Good,
+- [45:13.640] who was killed by this ICE officer,
+- [45:15.400] was part of a broad left-wing network.
+- [45:18.450] What has your team told you about this broad
+- [45:21.280] left-wing network? Who is in charge of it?
+- [45:23.950] Who's part of it? What -- what's it called?
+- [45:26.330] The President: Well, I haven't seen the vice
+- [45:27.680] president's statement,
+- [45:28.900] but he's generally very accurate.
+- [45:30.300] I hate to say. Look, I watched that yesterday.
+- [45:34.450] And there were a lot -- a lot of different forms to it.
+- [45:37.010] But there was a woman screaming, shame, shame, shame, shame.
+- [45:40.710] She was an agitator, probably a paid agitator.
+- [45:44.230] But in my opinion, she was an agitator,
+- [45:46.580] a very high level agitator.
+- [45:48.360] So professional, she wouldn't stop screaming.
+- [45:51.910] I said this isn't a normal situation.
+- [45:54.010] This is a professional troublemaker.
+- [45:57.880] Because you heard it and I heard it.
+- [45:59.510] Now, I will say this, the news sort of turned her down,
+- [46:02.490] turned her off. Because you're trying to watch,
+- [46:05.560] she was so loud and so crazy and just not normal.
+- [46:11.120] When somebody sees something like that,
+- [46:12.720] they don't go screaming and screaming and the same words.
+- [46:17.400] So I guess you could say professional,
+- [46:20.020] but I didn't think she did a very good job.
+- [46:22.250] You have agitators.
+- [46:24.030] And we will always be protecting ICE.
+- [46:26.160] And we're always going to be protecting our border patrol
+- [46:28.430] and our law enforcement. Yeah?
+- [46:33.210] The Press: Mr. President,
+- [46:34.410] in your conversations with these oil executives today,
+- [46:37.430] did you provide any security guarantees
+- [46:40.460] so that they can do their work safely in Venezuela?
+- [46:43.480] The President: Yeah.
+- [46:44.770] The Press: And separately, Mr. President --
+- [46:46.490] The President: They will have those guarantees, yes.
+- [46:48.310] The Press: And separately, Mr. President,
+- [46:49.680] I'm curious in terms of the future of Venezuela,
+- [46:52.410] do you see Venezuela now led by Delcy Rodríguez
+- [46:55.980] as an ally of the US?
+- [46:58.500] Is that the way that you view that country right now?
+- [47:00.240] The President: Well, right now, they seem to be an ally.
+- [47:01.710] And I think it will continue to be an ally.
+- [47:03.500] And we don't have -- want to have Russia there.
+- [47:06.070] We don't want to have China there.
+- [47:07.790] And by the way, we don't want Russia
+- [47:09.440] or China going to Greenland.
+- [47:10.850] Which if we don't take Greenland,
+- [47:12.620] you're going to have Russia or China
+- [47:14.750] as your next door neighbor.
+- [47:16.080] That's not going to happen. Dwight?
+- [47:24.010] The Press: Mr. President, thank you.
+- [47:25.400] You just said that these companies
+- [47:26.910] would have security guarantees
+- [47:28.520] if they go in on the ground in Venezuela.
+- [47:29.990] The President: They will have.
+- [47:31.190] The Press: And what is your plan
+- [47:32.390] there actually for these companies
+- [47:33.970] and those Americans who are going to be on the ground
+- [47:36.050] working for these companies?
+- [47:37.840] The President: Well, there are going to be Americans.
+- [47:39.250] I assume they're going to be using a lot of Americans.
+- [47:41.260] But they're going to be using a lot of people from Venezuela
+- [47:43.720] and other places I would imagine.
+- [47:45.280] But I would think that mostly
+- [47:46.860] they'll be using Venezuelan workers.
+- [47:48.650] They have a lot of great workers.
+- [47:50.420] They have a very high unemployment rate.
+- [47:52.220] And they have workers that are very familiar
+- [47:53.910] with taking oil out of the ground.
+- [47:55.150] Yeah? The Press: (Inaudible)
+- [47:56.360] And another question for you on Iran.
+- [47:57.880] How long do you think the ayatollah will be in power
+- [48:00.410] after what we've seen play out on the ground there?
+- [48:02.290] When is the US going to get involved now
+- [48:04.290] that reports of protesters being killed on the ground?
+- [48:06.900] The President: So Iran's in big trouble.
+- [48:08.850] It looks to me that the people are taking over certain cities
+- [48:13.050] that nobody thought were really possible just a few weeks ago.
+- [48:17.160] We're watching the situation very carefully.
+- [48:19.340] I've made this statement very strongly,
+- [48:21.000] that if they start killing people
+- [48:22.420] like they have in the past, we will get involved.
+- [48:25.070] We'll be hitting them very hard where it hurts.
+- [48:27.930] And that doesn't mean boots on the ground,
+- [48:29.760] but it means hitting them very, very hard where it hurts.
+- [48:32.180] So we don't want that to happen. There have been cases like this
+- [48:36.300] where President Obama totally backed down,
+- [48:40.420] but this is something pretty incredible
+- [48:43.220] that's happening in Iran.
+- [48:44.510] It's an amazing thing to watch. They've done a bad job.
+- [48:47.720] They've treated their people very badly
+- [48:49.290] and now they're being paid back. So let's see what happens.
+- [48:52.260] We're watching it -- we're watching it very closely.
+- [48:57.250] Go ahead, please. Yes, go ahead.
+- [49:00.920] The Press: Thank you so much, Mr. President.
+- [49:03.640] Do you have any comments on reaction to the recent attacks
+- [49:06.030] by the Syrian government alignment groups
+- [49:07.980] against US-backed Kurdish forces in Aleppo, Syria,
+- [49:11.160] which killed dozens of civilians and displacing many families?
+- [49:14.770] Does your administration bring peace
+- [49:16.330] between the Kurds and the Syrian government?
+- [49:17.980] The President: I want to see peace, yes, I do.
+- [49:19.670] The Kurds and the Syrian government,
+- [49:21.130] we get along with both, as you know, very well.
+- [49:24.190] They have been natural enemies over the years,
+- [49:26.490] but we get along both and we want to see Syria succeed.
+- [49:31.770] And so far, I think they are succeeding,
+- [49:33.540] but this is just breaking out and we want to see that stopped.
+- [49:40.500] Go ahead, please.
+- [49:41.740] The Press: Sir, you're meeting with the president of Colombia,
+- [49:43.370] Gustavo Petro, in a few weeks. Do you hope this --
+- [49:45.800] this meeting with Gustavo Petro marks a new chapter,
+- [49:48.220] a new beginning in the benefit of the US-Colombian relations?
+- [49:50.310] The President: Yes, you said what country? What country?
+- [49:51.700] The Press: Colombia.
+- [49:52.980] The President: Yeah. Yes, I have.
+- [49:54.190] The Press: With the president of Colombia, Gustavo Petro.
+- [49:55.440] The President: I had a very good talk with him yesterday,
+- [49:57.890] and, you know, he's been very hostile to us and to the nation.
+- [50:02.140] And to me, called me a dictator and lots of other things.
+- [50:05.660] Uh, called Biden some terrible names,
+- [50:08.610] far worse than he called me.
+- [50:10.720] But he called yesterday through people and he wants to meet,
+- [50:15.830] and that's fine with me.
+- [50:17.710] I've made up with people also, you know,
+- [50:19.550] so we're going to have a meeting with him.
+- [50:21.070] We had a very good conversation.
+- [50:23.500] Uh, the people of Colombia are incredible people.
+- [50:26.130] Uh, Marco would know that better than anybody
+- [50:28.270] because he's married to a woman from Colombia.
+- [50:31.700] And I don't mean Columbia University.
+- [50:33.570] That would be -- I'm not sure.
+- [50:35.370] I think I like Colombia the country better,
+- [50:37.320] if you want to know the truth.
+- [50:38.590] The people -- the people are -- the people --
+- [50:41.800] hold it, hold it, hold it. The people are great people.
+- [50:44.350] I look forward to meeting with them.
+- [50:45.880] I'm going to meet in the very near future.
+- [50:47.370] The Press: Would you meet the president --
+- [50:50.480] the interim president of Venezuela here
+- [50:52.250] in the White House?
+- [50:53.460] Would you greet her to discuss the fate of the oil?
+- [50:55.660] The President: Yeah, well, I'm going to meet
+- [50:56.980] a lot of people and we're going to meet --
+- [50:58.840] you know, we meet a lot of people.
+- [51:00.490] We've -- when you end eight wars,
+- [51:02.320] you get to know a lot of people.
+- [51:03.830] And uh, I think it's very important.
+- [51:06.380] As an example, we have over $18 trillion.
+- [51:10.190] Think of it, $18 trillion coming into our country.
+- [51:13.310] A lot of that's coming in from foreign countries
+- [51:15.320] like Saudi Arabia and Qatar and UAE and others.
+- [51:19.440] And I get to meet a lot of people,
+- [51:21.220] but I will be meeting with various
+- [51:24.290] Representatives of Venezuela probably pretty soon.
+- [51:27.380] We haven't set that up.
+- [51:29.300] But the relationship that we have with the people
+- [51:31.350] that are currently running Venezuela is very good.
+- [51:34.170] We also have a young lady that received the Nobel Peace Prize.
+- [51:39.460] She's going to come in and pay her regards
+- [51:42.100] to our country really, to me. But you know,
+- [51:44.060] I'm a representative of the country, nothing else.
+- [51:47.180] And uh, she's coming in sometime next week,
+- [51:50.420] I think Wednesday, Tuesday or Wednesday,
+- [51:52.850] and we'll see how that is. But no, no, we're going to be --
+- [51:55.670] we're dealing with the people from Venezuela.
+- [51:58.210] We're dealing with them very well.
+- [51:59.640] I think they've been very smart in the way they've dealt
+- [52:01.600] with us, frankly, because that whole place
+- [52:03.610] could have been obliterated with one more strike
+- [52:05.730] and we didn't want to do that.
+- [52:09.330] The Press: Thank you so much.
+- [52:10.600] I have a question for you on Minneapolis,
+- [52:12.230] but on Venezuela and you're meeting with Machado next week,
+- [52:14.990] if she gives you her Nobel Peace Prize,
+- [52:16.870] will that change your view about her running that country?
+- [52:20.080] The President: Well, I have to speak to her.
+- [52:21.480] I mean, I'm going to have to speak to her.
+- [52:22.800] She might be involved in some aspect of it.
+- [52:24.660] I will have to speak to her.
+- [52:25.930] I think it's very nice that she wants to come in
+- [52:28.520] and that's what I understand the reason is,
+- [52:31.250] because Norway is very embarrassed by what took place.
+- [52:35.720] I mean, they're getting decimated.
+- [52:37.610] Look, whether people like Trump or don't like Trump,
+- [52:41.380] I settled eight wars, big ones, some going on for 36 years,
+- [52:45.940] 32 years, 31 years, 28 years, 25 years,
+- [52:50.890] some just getting ready to start, like India and Pakistan,
+- [52:55.150] where already eight jets were shot out of the air.
+- [52:58.140] And I got it done in rapid order without nuclear weapons.
+- [53:04.350] I can't think of anybody in history
+- [53:06.220] that should get the Nobel Prize more than me.
+- [53:08.170] And I don't want to be bragging, but nobody else settled wars.
+- [53:10.520] Obama got the Nobel Prize. He had no idea why.
+- [53:13.560] He still has no idea.
+- [53:15.300] He walks around, he says, I got the Nobel Prize.
+- [53:17.500] Why did he get a Nobel Prize?
+- [53:19.060] He got it almost immediately upon attaining office
+- [53:22.140] and he didn't do anything and he was a bad president.
+- [53:24.960] So I mean you should get the Nobel Prize
+- [53:28.270] for every war you stopped. These were major wars.
+- [53:30.560] These were wars that nobody thought could be stopped.
+- [53:34.150] President Putin called me and he said about two of the wars
+- [53:36.600] that he's been trying to stop them for 10 years,
+- [53:38.820] he wasn't able to do it. He couldn't believe it.
+- [53:41.190] So in theory, you should get the Nobel Prize
+- [53:42.940] for every war you stopped.
+- [53:44.180] Every one of them was major. But uh, I don't care about that.
+- [53:48.450] What I care about is saving lives.
+- [53:50.100] I've saved tens of millions of lives.
+- [53:52.680] You know, the Prime Minister of Pakistan came here
+- [53:56.090] and he made a very public statement.
+- [53:58.300] He said that President Trump saved minimum 10 million lives,
+- [54:03.910] having to do with Pakistan and India.
+- [54:06.160] And that was going to be raging, so you know --
+- [54:08.090] but I'm honored that she's coming here.
+- [54:09.470] I look forward to meeting her. Yes. Go ahead.
+- [54:15.070] The Press: And on Minneapolis, Mr. President.
+- [54:16.390] I have a follow up for you.
+- [54:17.670] The state officials there have said
+- [54:19.070] that the FBI is not sharing evidence with them.
+- [54:21.190] Typically, they would conduct a joint investigation,
+- [54:22.850] as you know.
+- [54:24.080] Do you believe that the FBI should be sharing evidence
+- [54:26.430] with state officials in Minnesota?
+- [54:27.820] The President: Well, normally, I would,
+- [54:29.050] but they're crooked officials.
+- [54:30.390] I mean, Minneapolis and Minnesota,
+- [54:33.140] what a beautiful place, but it's being destroyed.
+- [54:35.960] It's got an incompetent governor, fool.
+- [54:37.960] I mean, he's a stupid person.
+- [54:39.810] And uh, it looks like the number could be $19 billion
+- [54:45.680] stolen from a lot of people, but largely people from Somalia.
+- [54:49.940] They buy their vote. They vote in a group.
+- [54:51.760] They buy their vote.
+- [54:53.360] They sell more Mercedes-Benzes in that area than almost --
+- [54:56.560] can you imagine, you come over with no money.
+- [54:58.310] And then shortly thereafter, you're driving a Mercedes-Benz.
+- [55:01.520] The whole thing is ridiculous, so they're very corrupt people.
+- [55:04.310] It's a very corrupt state.
+- [55:05.620] I feel that I won Minnesota.
+- [55:08.250] I think I won it all three times.
+- [55:11.140] It -- nobody's won it for --
+- [55:13.480] since Richard Nixon won it many, many years ago.
+- [55:16.640] I won it all three times, in my opinion,
+- [55:19.420] and it's a corrupt state, a corrupt voting state.
+- [55:22.550] And the Republicans ought to get smart and demand on voter ID.
+- [55:27.180] They ought to demand maybe same-day voting
+- [55:29.940] and all of the other things
+- [55:31.260] that you have to have to safe election.
+- [55:33.400] But I won Minnesota three times and I didn't get credit for it.
+- [55:37.340] I did so well in that state. Every time -- the people were --
+- [55:40.090] they were crying every time after.
+- [55:42.900] That's a crooked state. California is a crooked state.
+- [55:45.640] Many crooked states.
+- [55:47.040] We have a very, very dishonest voting system.
+- [55:49.560] The last time I won, '24, the one that just took place,
+- [55:54.580] I won because it was too big to rig.
+- [55:56.250] You couldn't rig it, it was too big,
+- [55:58.090] but I won the state of Minnesota.
+- [55:59.610] It's a corrupt voting system with an incompetent governor,
+- [56:03.530] a very incompetent governor.
+- [56:08.750] And by the way, he's a very corrupt governor, too. Go ahead.
+- [56:11.190] The Press: I have a question on Iran,
+- [56:12.600] but first very quickly on Venezuela.
+- [56:14.420] How do you provide total security
+- [56:16.640] guarantees to these companies
+- [56:17.900] without putting US boots on the ground?
+- [56:19.460] The President: Well, we're going to work
+- [56:20.770] with the Venezuelan leaders and people
+- [56:23.390] and we're going to have a very safe group
+- [56:26.300] and they're going to also bring over some security with them.
+- [56:28.690] You know, these are not babies.
+- [56:29.890] These are people that drill oil in some pretty rough places.
+- [56:33.150] I could say a couple of those places
+- [56:34.690] make Venezuela look like a picnic.
+- [56:37.410] These are very -- these people around the table,
+- [56:40.450] these are tough people.
+- [56:42.070] They go into areas that you wouldn't want to go.
+- [56:45.200] They go into areas that if they invited me,
+- [56:47.210] I'd say, no, thanks, I'll see you back in Palm Beach.
+- [56:50.230] Uh, no, this is a tough group of people.
+- [56:52.340] They know how to do it.
+- [56:53.840] But we are -- in addition to that,
+- [56:55.620] we'll have very good security for them.
+- [56:58.450] We're going to make sure that it's very, very good security
+- [57:00.800] and I think the people of Venezuela
+- [57:03.290] are going to give you very good security.
+- [57:05.170] You know, the people -- now I'm not talking even leadership,
+- [57:08.720] the people of Venezuela are going wild over this.
+- [57:13.790] They named a street after President Trump.
+- [57:15.880] What do you do, you attack a country and the name a street?
+- [57:18.030] That's never happened before.
+- [57:19.540] Although, I heard that's also taking place in Iran.
+- [57:23.020] They named a street, the protesters.
+- [57:25.530] I just hope -- you know, just God bless them.
+- [57:28.090] I just hope the protesters in Iran are going to be safe
+- [57:31.350] because that's a very dangerous place right now.
+- [57:33.210] And again, I tell the Iranian leaders,
+- [57:36.210] you better not start shooting
+- [57:37.740] because we'll start shooting too.
+- [57:42.970] With your glasses. Sir, go ahead. Please.
+- [57:46.400] Hold it, hold it, hold it. Hold it.
+- [57:49.140] Yes, glasses, the gentleman with the glasses.
+- [57:50.950] The Press: Me? All right. Thank you.
+- [57:52.210] The President: With those very big glasses, actually.
+- [57:53.800] The Press: Yeah, Ferrari, actually.
+- [57:57.100] Mr. President, I have two questions.
+- [57:58.990] Um, what do you want the European Union to do in Ukraine?
+- [58:03.650] The European leaders seem pretty divided on Ukraine.
+- [58:06.360] And then if you can reiterate this straight message
+- [58:09.270] that you have to -- to the Iranian leader,
+- [58:11.490] to Khamenei, the –
+- [58:13.350] The President: You're talking about Iran?
+- [58:15.830] What do I want Iran to do?
+- [58:17.200] The Press: I'm sorry?
+- [58:18.460] The President: Where are you from?
+- [58:19.670] The Press: Italy.
+- [58:20.910] The President: Oh, a nice place.
+- [58:22.120] The Press: Yeah. Thank you.
+- [58:23.410] The President: Okay.
+- [58:24.630] So, what are you asking about Iran for?
+- [58:26.710] The Press: Well, if you can answer about Europe
+- [58:29.090] and what you think the Europeans should do on Ukraine,
+- [58:31.270] and then a message to --
+- [58:32.630] The President: Well, look, Europe has been doing
+- [58:33.910] so much for Ukraine,
+- [58:35.130] but it hasn't been enough. And obviously that --
+- [58:39.000] I would say that President Putin is not afraid of Europe.
+- [58:42.800] He's afraid of the United States of America.
+- [58:44.990] It's led by me. Uh, there's no fear of Europe.
+- [58:48.760] You know, Europe is falling behind.
+- [58:50.220] And Europe, and JD said it very strongly.
+- [58:53.010] I don't know it's -- he got --
+- [58:54.730] took a lot of heat, but I didn't give him any heat.
+- [58:57.200] Europe is a different place. Europe is changing.
+- [58:59.400] Europe has got to get its act together.
+- [59:00.920] I love Europe. I guess I came from Europe essentially.
+- [59:04.340] I had I have -- my roots are in Europe.
+- [59:08.110] But Europe is a different place.
+- [59:09.640] They have to get their act together.
+- [59:11.680] Now, they've started -- they have a great NATO leader.
+- [59:14.820] And they've gone up to five percent from two percent GDP.
+- [59:17.680] That's a big step. But they have to be very careful
+- [59:20.820] with their immigration policy, and they have to be very --
+- [59:23.200] because you know I will just say to be nice
+- [59:27.670] that there are certain places in Europe
+- [59:29.420] that are very important that are no longer recognizable.
+- [59:32.010] I'm being very nice.
+- [59:33.280] I'm being very diplomatic when I say that.
+- [59:35.170] They are not recognizable.
+- [59:37.700] And they have to be careful on energy
+- [59:39.390] because they're putting windmills all over the place
+- [59:42.300] and losing a fortune.
+- [59:43.590] They're destroying their country.
+- [59:44.980] They're destroying the beautiful landscapes,
+- [59:47.400] the beautiful everything they're doing.
+- [59:49.540] And by the way, in case you people don't know,
+- [59:51.680] I'm not much of a windmill person.
+- [59:53.410] I can proudly say, Doug, that we have not approved
+- [59:57.060] one windmill since I've been in office.
+- [59:59.940] And we're going to keep it that way.
+- [01:00:01.450] My goal is to not let any windmill be built.
+- [01:00:04.470] They're losers. They lose money. They destroy your landscape.
+- [01:00:08.400] They kill your birds. They're all made in China.
+- [01:00:11.900] And all you have to do is --
+- [01:00:13.930] you know, just about all of the windmills
+- [01:00:15.780] are made in China, the structures.
+- [01:00:18.120] All you have to do is say to China,
+- [01:00:19.760] how many windmill areas do you have in China?
+- [01:00:23.860] So far, they're not able to find any.
+- [01:00:26.440] They use coal and they use oil and gas
+- [01:00:29.870] and some nuclear, not much, but they don't have windmills.
+- [01:00:33.630] They make them and sell them to suckers like Europe
+- [01:00:36.520] and suckers like the United States before.
+- [01:00:39.310] They are the worst form of energy,
+- [01:00:40.780] the most expensive form of energy.
+- [01:00:42.580] And in eight years they're rotted out anyway.
+- [01:00:45.480] Go take a look at Palm Springs, California
+- [01:00:47.800] and take a look at what that looks like.
+- [01:00:49.420] It looks like a junkyard, a junkyard of steel.
+- [01:00:52.290] So we don't approve.
+- [01:00:53.710] And I've told my people, we will not approve windmills.
+- [01:00:57.090] Maybe we get forced to do something
+- [01:00:59.040] because some stupid person in the Biden administration
+- [01:01:02.390] agreed to do something years ago.
+- [01:01:04.480] We will not approve any windmills in this country.
+- [01:01:07.170] The Press: I've got a couple of questions.
+- [01:01:11.080] On Venezuela, is it ultimately more important to you
+- [01:01:13.090] to establish stability there or democracy there?
+- [01:01:16.860] The President: Well, you're talking
+- [01:01:18.070] about maybe the same thing.
+- [01:01:19.400] I mean, you're talking about stability or democracy.
+- [01:01:21.810] I don't know. To me, it's almost the same thing.
+- [01:01:23.640] We want stability, but we do want democracy.
+- [01:01:26.490] Ultimately, it will be democracy. Peter?
+- [01:01:29.180] The Press: I do have a policy question President Trump,
+- [01:01:31.180] but I'm having a hard time seeing here.
+- [01:01:32.840] I see the American flag lapel pin.
+- [01:01:35.210] What is the lapel pin on your jacket?
+- [01:01:36.640] The President: Somebody gave me this.
+- [01:01:37.880] Do you know what that is? That's called a happy Trump.
+- [01:01:42.360] And considering the fact that I'm never happy,
+- [01:01:45.400] I'm never satisfied, I will never be satisfied
+- [01:01:49.060] until we make America great again.
+- [01:01:50.810] But we're getting pretty close.
+- [01:01:52.270] I'll tell you what. This is called a happy Trump.
+- [01:01:54.490] Somebody gave it to me. I put it on.
+- [01:01:58.190] The Press: Thank you. Thank you. And uh, the policy question,
+- [01:02:01.380] how much money are you thinking of giving people in Greenland
+- [01:02:04.850] to get them on board with a possible US takeover?
+- [01:02:07.550] The President: I'm not talking about money for Greenland yet.
+- [01:02:10.000] I might talk about that.
+- [01:02:11.930] But right now, we are going to do something on Greenland,
+- [01:02:15.080] whether they like it or not. Because if we don't do it,
+- [01:02:19.420] Russia or China will take over Greenland.
+- [01:02:22.430] And we're not going to have Russia or China as a neighbor.
+- [01:02:25.510] Okay. I would -- I would like to make a deal,
+- [01:02:32.710] you know, the easy way, but if we don't do it
+- [01:02:34.300] the easy way we're going to do it the hard way.
+- [01:02:40.330] And I'm a man -- and by the way,
+- [01:02:41.660] I'm a fan of Denmark, too. I have to tell you.
+- [01:02:43.930] And I -- and you know, they've been very nice to me.
+- [01:02:46.580] Uh, I'm a big fan, but you know,
+- [01:02:48.120] the fact that they had a boat land there 500 years ago
+- [01:02:50.810] doesn't mean that they own the land.
+- [01:02:53.450] Uh, I'm sure we had lots of boats go there also.
+- [01:02:56.480] But we need that because if you take a look outside of Greenland
+- [01:03:00.400] right now, there are Russian destroyers,
+- [01:03:03.060] there are Chinese destroyers and bigger.
+- [01:03:05.820] There are Russian submarines all over the place.
+- [01:03:08.490] We're not going to have Russia or China occupy Greenland,
+- [01:03:12.100] and that's what they're going to do if we don't.
+- [01:03:13.900] So we're going to be doing something with Greenland
+- [01:03:15.940] either the nice way or the more difficult way.
+- [01:03:22.790] Please go ahead, ma'am.
+- [01:03:24.160] The Press: On Greenland, Mr. President,
+- [01:03:25.540] why is it so important to you to own it
+- [01:03:27.770] when you have a military presence there,
+- [01:03:29.170] which you could expand to affect the security?
+- [01:03:31.000] And what does --
+- [01:03:32.230] The President: Because when we own it, we defend it.
+- [01:03:34.320] You don't defend leases the same way.
+- [01:03:36.130] You have to own it. And you know, with a nation --
+- [01:03:40.090] look at what happened with Obama,
+- [01:03:42.160] with that horrible deal they made with Iran.
+- [01:03:44.190] It was a short term deal. It was like a nine year deal.
+- [01:03:47.830] Countries can't make nine year deals or even 100 year deals.
+- [01:03:50.890] Countries have to have ownership.
+- [01:03:53.050] And you defend ownership. You don't defend leases.
+- [01:03:56.200] And we'll have to defend Greenland.
+- [01:03:58.310] If we don't do it, China or Russia will.
+- [01:04:00.810] That's not going to happen.
+- [01:04:02.060] We are not going to have -- and I like China, I like Russia.
+- [01:04:05.120] I love the people of China. I love the people of Russia.
+- [01:04:09.090] I get along very well with President Putin,
+- [01:04:11.300] but I'm very disappointed in him.
+- [01:04:13.190] I get along very well with President Xi.
+- [01:04:15.260] I'm going to go over to China in April.
+- [01:04:17.520] But I don't want them as a neighbor in Greenland.
+- [01:04:19.500] It's not going to happen. And -- and by the way,
+- [01:04:22.540] and NATO's got to understand that.
+- [01:04:24.840] I'm all for NATO. I saved NATO.
+- [01:04:26.850] If it weren't for me, you wouldn't have NATO right now.
+- [01:04:29.910] But we're not going to allow Russia or China
+- [01:04:32.630] to occupy Greenland.
+- [01:04:33.880] And that's what's going to happen if we don't.
+- [01:04:38.850] Go ahead. The Press: (Inaudible)
+- [01:04:40.240] about the economic report that came out today, Mr. President,
+- [01:04:42.330] one, can you respond to that? And two --
+- [01:04:44.270] The President: Yeah, it was an amazing report.
+- [01:04:45.960] The amazing -- and the most amazing thing
+- [01:04:48.050] is government jobs are way down and yet the employment came --
+- [01:04:52.240] unemployment or the employment numbers are very good.
+- [01:04:55.300] Uh, we've gotten rid of tremendous numbers
+- [01:04:57.850] of federal jobs, government jobs.
+- [01:05:00.310] Nobody's ever seen anything like it.
+- [01:05:02.160] And yet the employment numbers are very good.
+- [01:05:04.410] They're really getting better, but now we have all those people
+- [01:05:06.810] to work in the private sector for a lot more money.
+- [01:05:09.810] I think that's one of the very big things.
+- [01:05:11.310] The other thing is that at 5.4 percent.
+- [01:05:13.920] And remember, this is after we had a shutdown.
+- [01:05:17.530] And that shutdown had an impact.
+- [01:05:19.080] Because the concept of the shutdown,
+- [01:05:21.220] even though it's before,
+- [01:05:22.680] people knew we were going to be shutting down.
+- [01:05:24.500] A lot of bad things happened.
+- [01:05:26.210] And by the way, on January 30th, you may have another shutdown.
+- [01:05:29.450] We'll see what happens.
+- [01:05:30.860] But uh, I think the numbers, Caitlin, were really amazing.
+- [01:05:34.350] Look, to think about 5.4 percent.
+- [01:05:37.860] Nobody thought that.
+- [01:05:39.110] They thought it was going to be two percent.
+- [01:05:40.610] And do you know what it is? It's tariffs.
+- [01:05:43.010] And it's also November 5th. We had a great election.
+- [01:05:46.060] Uh, a great, great election.
+- [01:05:47.970] Our country was dead one and a half years ago,
+- [01:05:51.460] and now we have the hottest country anywhere in the world.
+- [01:05:54.060] And I hope you guys were impressed, 5.4 percent.
+- [01:05:57.910] And we haven't even really transitioned yet.
+- [01:06:00.740] There's no reason it can't be much, much higher than that.
+- [01:06:04.250] Yeah?
+- [01:06:09.130] The Press: First off,
+- [01:06:10.390] can you respond to the manufacturing number --
+- [01:06:11.830] The President: Let's give CNN a chance, you know,
+- [01:06:13.620] they've been fighting so hard to get back into the mainstream.
+- [01:06:15.780] The Press: And also -- Mr. President,
+- [01:06:16.990] you posted some numbers actually on Truth Social last night.
+- [01:06:19.750] People saying you posted the job data early
+- [01:06:21.490] when you're not supposed to obviously share it
+- [01:06:22.910] until the next morning.
+- [01:06:24.140] Does -- did you do that on purpose?
+- [01:06:25.370] The President: No, no.
+- [01:06:26.590] I don't know if they posted them.
+- [01:06:27.860] I said post them whenever you get a chance.
+- [01:06:29.450] I don't know. They gave me some numbers.
+- [01:06:30.890] I -- I post -- when people give me things I post them.
+- [01:06:34.170] But the numbers, the numbers are amazing.
+- [01:06:36.340] Yeah, please.
+- [01:06:38.500] The Press: How does the administration plan
+- [01:06:40.380] to distribute the money from the Venezuela oil sales?
+- [01:06:43.220] Is it -- obviously you say it's going to go
+- [01:06:44.770] into these controlled accounts.
+- [01:06:45.980] Would it go back to Venezuela in a direct payment?
+- [01:06:47.350] The President: Yeah.
+- [01:06:47.670] The Press: Is it going through these goods?
+- [01:06:48.910] How do you plan to do that?
+- [01:06:50.110] And I have several more questions.
+- [01:06:51.380] The President: Well, we want to make sure
+- [01:06:52.590] that Venezuela can survive. You know, Venezuela needs money.
+- [01:06:55.570] And we're going to make sure that they get money.
+- [01:06:57.570] And we're going to get money.
+- [01:06:58.800] And the oil companies are going to make something
+- [01:07:00.440] for the work they do.
+- [01:07:01.640] And they're going to get back their money.
+- [01:07:03.880] We're devising a formula, but it won't be so much of a formula.
+- [01:07:06.910] It's going to be what they need.
+- [01:07:08.420] We're going to take care of what they need.
+- [01:07:09.800] There'll be plenty left over.
+- [01:07:11.070] We're going to have a lot of money left over.
+- [01:07:12.880] And the money left over is going to the United States of America.
+- [01:07:16.310] And the oil companies are going to be very happy.
+- [01:07:18.330] Yes, please.
+- [01:07:21.300] The Press: Thank you, Mr. -- thank --
+- [01:07:22.570] My second question is,
+- [01:07:23.810] would the administration offer a backstop
+- [01:07:25.490] to these oil companies for like financial guarantees,
+- [01:07:28.790] some sort of backstop
+- [01:07:30.100] if the country did destabilize again?
+- [01:07:31.890] The President: That's a very interesting question.
+- [01:07:33.390] Using the word backstop,
+- [01:07:34.650] I haven't heard that word in a long time.
+- [01:07:36.400] That was at the Wharton School of Finance
+- [01:07:38.090] I last heard it. That's a good term.
+- [01:07:40.390] We ought to use it more often.
+- [01:07:41.640] I hope I don't have to give a backstop.
+- [01:07:43.910] I'm just -- look, these are very smart people,
+- [01:07:47.370] the smartest people, though, not only in oil in business.
+- [01:07:49.680] These are the biggest companies in the world
+- [01:07:51.430] sitting around this table. Uh, they know the risks.
+- [01:07:55.010] I mean, there are risks. We're going to help them out.
+- [01:07:57.050] We're going to make it really easy.
+- [01:07:58.440] They're going to be there for a long time.
+- [01:08:00.070] We're going to be there together for a long, long time.
+- [01:08:03.030] And they're going to be taking the oil.
+- [01:08:04.920] And they're going to be bringing oil prices down.
+- [01:08:07.290] They're going to make a lot of money.
+- [01:08:08.830] They're going to get their money back.
+- [01:08:10.060] They're going to be safe.
+- [01:08:11.370] Uh, the people of Venezuela are going to be big beneficiaries
+- [01:08:14.260] and the United States of America
+- [01:08:15.740] is going to be a big beneficiary for what we've done.
+- [01:08:20.650] And, you know, one other thing I might say,
+- [01:08:23.380] it's also very big for national security
+- [01:08:25.470] because again just like Greenland,
+- [01:08:27.300] we can't have China or Russia occupy
+- [01:08:29.260] Greenland. We can't have China or Russia occupy Venezuela.
+- [01:08:34.460] And if we didn't do what we did,
+- [01:08:36.030] China or Russia would have been in Venezuela,
+- [01:08:38.980] I think I can -- where's Mr. Chevron?
+- [01:08:41.760] So let me ask you, they would have been there.
+- [01:08:44.420] If we didn't do this, do you agree with that?
+- [01:08:46.530] Mark Nelson: They certainly have a lot
+- [01:08:47.810] of economic interests in country.
+- [01:08:49.390] There's absolutely no argument about that.
+- [01:08:51.520] The President: They were trying to be there.
+- [01:08:52.840] I mean, you know we had a Russia, I guess sort of semi,
+- [01:08:56.820] I call it a semi Russian ship yesterday
+- [01:08:59.630] that we took over and Russia
+- [01:09:02.350] decided not to defend that ship against us.
+- [01:09:05.030] It's a big movement.
+- [01:09:06.440] Uh, the ship was loaded up with oil
+- [01:09:09.150] and we took the oil and it came out of that port,
+- [01:09:12.490] but Russia would be there or China would be there
+- [01:09:15.130] and we want them to be there for a different reason.
+- [01:09:17.620] We want them -- do you people agree?
+- [01:09:19.950] Uh, in particular China, they need a lot of oil.
+- [01:09:23.370] Russia doesn't need so much, but Russia was there anyway.
+- [01:09:26.890] But I assume you agree that China would like
+- [01:09:29.480] to be doing a lot of business there by buying oil.
+- [01:09:32.170] And I want to just tell President Xi
+- [01:09:33.770] and President Putin,
+- [01:09:35.620] but more so in this case President Xi
+- [01:09:37.810] because they do need a lot of oil.
+- [01:09:40.680] And we are open for business in the United States
+- [01:09:43.570] and we are open for business in Venezuela, right?
+- [01:09:51.330] Yes. Go ahead, sure.
+- [01:09:55.130] I could take questions from these people all day long.
+- [01:09:58.030] You know, they're sitting here
+- [01:09:59.570] and generally they're very rich, very powerful,
+- [01:10:02.950] but nobody gives a damn about them.
+- [01:10:05.430] It's a sad thing. You have all that money,
+- [01:10:07.220] all that power and look at all these crazy questions.
+- [01:10:10.580] We could do this all day long and they wouldn't be satisfied.
+- [01:10:15.030] We'll take a few more though.
+- [01:10:16.860] Do you have -- let me ask you more importantly,
+- [01:10:18.900] do you have any questions from the biggest?
+- [01:10:22.090] Hold it. Do you have any questions
+- [01:10:23.900] for the biggest people on earth, the biggest business people,
+- [01:10:27.830] the biggest companies anywhere on Earth?
+- [01:10:30.550] Do you have any questions for these people?
+- [01:10:34.990] No, no. Do you have a question for them?
+- [01:10:37.420] Go ahead, go ahead ask them a question.
+- [01:10:39.580] The Press: (Inaudible) that they are committed
+- [01:10:41.600] to rebuilding the oil infrastructure in Venezuela
+- [01:10:44.940] and for the executives in the room,
+- [01:10:47.150] what do you need from the administration
+- [01:10:49.030] in order to invest?
+- [01:10:50.280] The President: That's a good question.
+- [01:10:51.560] Do you want to go and answer that question?
+- [01:10:55.080] Exxon. Small company.
+- [01:10:57.270] Darren Woods: I'll refer you back to the statements
+- [01:10:58.800] I made before,
+- [01:11:00.030] there are a number of legal and commercial frameworks
+- [01:11:03.050] that would have to be established to even understand
+- [01:11:05.660] what kind of returns that we'd get on investments.
+- [01:11:07.790] So I think all the investments and the opportunity sets,
+- [01:11:10.930] I think everyone sitting around this table
+- [01:11:12.620] would have the opportunity and the know-how
+- [01:11:15.430] and the capability to make the investments.
+- [01:11:17.530] The questions will ultimately be how durable
+- [01:11:20.240] are the protections from a financial standpoint,
+- [01:11:22.660] what are the returns look like?
+- [01:11:24.160] What are the commercial arrangements,
+- [01:11:25.730] the legal frameworks?
+- [01:11:26.960] All those things have to be put in place
+- [01:11:29.030] in order to make a decision to understand
+- [01:11:31.220] what your return would be over the next several decades
+- [01:11:33.920] that these billion dollar investments would be made on?
+- [01:11:37.440] The President: You know, could I do this
+- [01:11:39.350] because we have, again,
+- [01:11:41.260] the biggest people on the planet Earth around this table,
+- [01:11:45.400] biggest companies in the world.
+- [01:11:46.640] I'd like to just ask them to introduce themselves.
+- [01:11:49.910] We'll start from this end and go around to here.
+- [01:11:52.970] And if you have anything to quickly say we can do that,
+- [01:11:56.530] but you want to just start right over here.
+- [01:11:58.410] These two guys will leave them out
+- [01:12:00.350] because they're with us, please.
+- [01:12:02.010] John Addison: Thank you.
+- [01:12:03.220] President Trump, John Addison at Vitol.
+- [01:12:04.990] We're here to ensure that you are going to be able
+- [01:12:07.120] to move all of this oil all around the world
+- [01:12:09.270] at the best price possible
+- [01:12:11.030] so that the influence that you have over the Venezuelans
+- [01:12:14.630] will ensure that you get what you want. Thank you.
+- [01:12:17.610] The President: Thank you. Good point.
+- [01:12:19.400] Bryan Sheffield: Thank you.
+- [01:12:20.670] Mr. President, Bryan Sheffield of Formentera my grandfather,
+- [01:12:24.580] Hugh Sheffield was president of Arco Venezuela.
+- [01:12:29.890] Thank you for what you did.
+- [01:12:31.710] The President: Do you like what we're doing?
+- [01:12:33.600] Bryan Sheffield: There's a lot of shale there, a lot of upside.
+- [01:12:36.050] The President: He would be very happy looking down.
+- [01:12:37.690] He'd be very proud of you right now, right?
+- [01:12:39.300] Bryan Sheffield: Yes, sir.
+- [01:12:40.530] The President: Good. Thank you.
+- [01:12:42.720] Luis Rodriguez: Mr. President, Luis Rodriguez,
+- [01:12:44.720] I'm probably the only Venezuelan American sitting on this --
+- [01:12:50.290] around this table. I --
+- [01:12:51.830] I want to personally thank you for the courage of your actions
+- [01:12:54.870] over the last couple of weeks. Uh, I -- I think I speak --
+- [01:13:00.260] and I speak of Venezuela in general
+- [01:13:03.590] in saying there's optimism,
+- [01:13:06.050] you've brought optimism to the table.
+- [01:13:08.900] And if the conditions are met,
+- [01:13:12.140] the opportunities are absolutely immense.
+- [01:13:14.830] The President: I agree with that, that's true.
+- [01:13:16.460] Thank you. Well said too .
+- [01:13:17.720] It's immense, this is a tremendous opportunity.
+- [01:13:21.890] Thank you.
+- [01:13:23.310] Richard Holton: Richard Holton from Trafigura,
+- [01:13:25.100] we're working with your administration, Mr. President,
+- [01:13:27.920] to bring that Venezuelan oil to the United States.
+- [01:13:31.150] Our first vessel should load in the next week.
+- [01:13:33.570] The President: Great. Good job. Thank you.
+- [01:13:36.590] Male Speaker: I think the reason that most of us are here
+- [01:13:40.150] and thinking about the future
+- [01:13:42.120] is because we trust you initially to set this program up
+- [01:13:45.940] that will work and guarantee that this can be done
+- [01:13:50.540] and is a huge investment that needs to be done.
+- [01:13:53.380] We've all agreed on that
+- [01:13:55.170] and certainly we need time to see that through.
+- [01:13:59.080] So thank you for what you've done.
+- [01:14:01.110] The President: Thank you very much. Thank you.
+- [01:14:03.690] Layne Riggs: Mr. President, I'm Layne Riggs,
+- [01:14:05.010] CEO of Valero Energy
+- [01:14:06.220] and we're one of those companies that refineries in the US
+- [01:14:09.170] that are uniquely configured to run Venezuelan oil
+- [01:14:11.360] and we're more than happy is this opportunity for us
+- [01:14:15.160] to further invest in our refineries
+- [01:14:16.940] to produce more of it.
+- [01:14:18.190] The President: And you're very much set up
+- [01:14:19.430] for the heavy oil, right?
+- [01:14:20.660] Layne Riggs: Yes, sir.
+- [01:14:21.900] The President: That's great. That's great.
+- [01:14:23.140] We're really -- we're ready for it.
+- [01:14:24.940] Male Speaker: Thank you, Mr. President.
+- [01:14:27.930] Thank you, Mr. President. Thank you for having us here.
+- [01:14:30.500] And thank you for opening the door to a better Venezuela.
+- [01:14:35.240] We are a Spanish company,
+- [01:14:37.090] but we are fully committed to invest here in the states.
+- [01:14:40.520] We have invested over the last 15 years $21 billion
+- [01:14:44.520] in the American oil
+- [01:14:46.500] and gas industry in Pennsylvania,
+- [01:14:49.230] in the Gulf of America,
+- [01:14:50.470] in Texas and in Alaska with the discovery of pica
+- [01:14:54.650] that is going to have the first oil this quarter
+- [01:14:57.600] and is going to change.
+- [01:14:59.450] It's going to reverse the declining history
+- [01:15:01.580] of that great state of Alaska.
+- [01:15:03.950] We are in Venezuela, Mr. President,
+- [01:15:06.530] with our partners of ENI
+- [01:15:08.520] we produce the gas that guarantees the stability
+- [01:15:12.000] of a half of the grid power in Venezuela.
+- [01:15:15.250] So we are committed with this stability
+- [01:15:17.410] and on top of that we are on the ground.
+- [01:15:19.690] We have people, we have facilities,
+- [01:15:21.870] we have technical capabilities
+- [01:15:23.870] and I take your point, Mr. President,
+- [01:15:25.980] we are ready to invest more in Venezuela.
+- [01:15:28.750] Today, we are producing 45,000 barrels a day gross of oil
+- [01:15:35.040] and we are ready to multiply by three this figure
+- [01:15:39.280] in coming 2 or 3 years investing hard in the country
+- [01:15:43.390] following your recommendation if you allow us, of course,
+- [01:15:46.850] and in the framework commercial and legal framework
+- [01:15:49.710] that could allow this growth.
+- [01:15:51.480] So thank you, Mr. President.
+- [01:15:52.680] The President: Thank you. Great job you've done.
+- [01:15:54.000] Thank you.
+- [01:15:55.570] Matt Sheehy: Mr. President, thank you for having me,
+- [01:15:57.160] Matt Sheehy. I'm with Tallgrass Energy.
+- [01:15:59.440] We are an infrastructure business.
+- [01:16:00.910] So whether it's oil, gas, CO2, we move that around.
+- [01:16:03.870] So most of my customers are sitting around the table
+- [01:16:06.090] and happy to lend our expertise
+- [01:16:08.420] to what's going on in Venezuela to support the people.
+- [01:16:12.260] And obviously infrastructure is going to be critical too.
+- [01:16:14.490] The President: Good job.
+- [01:16:15.780] Matt Sheehy: Thank you.
+- [01:16:17.000] The President: Thank you.
+- [01:16:18.810] Maryann Mannen: Mr. President, thank you, an honor to be here,
+- [01:16:20.490] Maryann Mannen, Marathon Petroleum.
+- [01:16:22.800] Uh, we are one of the largest US refiners.
+- [01:16:25.090] On behalf of the men and women of Marathon Petroleum
+- [01:16:27.760] and of our industry, thank you and the administration
+- [01:16:30.640] for what you're doing for us energy independence.
+- [01:16:33.480] We have the ability and the capability of our assets
+- [01:16:36.090] to process Venezuelan crude
+- [01:16:38.430] and the people of Marathon Petroleum stand ready to do so.
+- [01:16:41.500] The President: Do we need more refineries in our country?
+- [01:16:44.770] Maryann Mannen: In the US, probably not.
+- [01:16:46.140] We have sufficient capacity.
+- [01:16:47.460] The President: It's amazing.
+- [01:16:48.690] A lot of it was approved during my first term.
+- [01:16:50.600] We were getting approvals that nobody could have gotten
+- [01:16:52.770] in Louisiana and other places and they got built.
+- [01:16:56.360] Before that it was a disaster.
+- [01:16:57.850] We didn't have the refineries now we do
+- [01:16:59.710] because of the first term. Please.
+- [01:17:03.100] Darren Woods: Darren Woods, Exxon Mobil.
+- [01:17:06.700] The President: Okay. We'll go over here.
+- [01:17:08.640] Jeff Hildebrand: Thank you, Mr. President,
+- [01:17:09.920] Jeff Hildebrand, founder and chairman of Hilcorp Energy,
+- [01:17:13.350] one of the --
+- [01:17:14.710] one of the largest private energy companies in America.
+- [01:17:17.500] The President: Who's bigger, you or Harold?
+- [01:17:20.040] Jeff Hildebrand: We're close. We're close.
+- [01:17:21.780] Harold, Harold. Absolutely. Mr. Hamm.
+- [01:17:25.790] Uh, but thank you for your uh, great, tremendous leadership
+- [01:17:29.090] in protecting the interests in Western Hemisphere.
+- [01:17:32.140] The message that you have sent to China
+- [01:17:34.410] and our enemies to stay out of our backyard
+- [01:17:37.140] is absolutely fantastic. So thank you.
+- [01:17:38.980] The President: Thank you very much.
+- [01:17:40.300] Jeff Hildebrand: And finally, Hilcorp is fully committed
+- [01:17:42.700] and ready to go to rebuilding the infrastructure in Venezuela.
+- [01:17:45.500] The President: You'll go there? You'll be going?
+- [01:17:46.750] Jeff Hildebrand: Yes.
+- [01:17:47.980] The President: Good. That's good.
+- [01:17:49.200] You'll be very happy.
+- [01:17:50.880] Jeff Hildebrand: Thank you very much.
+- [01:17:53.110] Jeff Miller: Thank you, Mr. President, Jeff Miller,
+- [01:17:55.260] CEO of Halliburton Company.
+- [01:17:56.970] We are the largest American oilfield services company.
+- [01:18:00.820] We're the second largest in the world,
+- [01:18:02.690] been in business over 100 years,
+- [01:18:05.070] started operations in Venezuela in 1938.
+- [01:18:08.700] Uh, a long time in Venezuela.
+- [01:18:11.250] Um, I personally lived there for four years
+- [01:18:13.320] and raise my kids there.
+- [01:18:14.980] So quite familiar with Venezuela.
+- [01:18:17.630] And just couldn't express gratitude more so
+- [01:18:21.130] for the opportunity to return to Venezuela
+- [01:18:24.570] under the stability that I know that this team and your team
+- [01:18:29.260] are able to deliver. And so --
+- [01:18:30.610] The President: When did you leave?
+- [01:18:31.850] Jeff Miller: Huh?
+- [01:18:33.080] The President: When did you leave Venezuela?
+- [01:18:34.340] Jeff Miller: As a company,
+- [01:18:35.540] we left under the sanctions in 2019.
+- [01:18:37.920] So we had intended to stay,
+- [01:18:39.790] and then when the sanctions went into place,
+- [01:18:41.450] we were required to leave.
+- [01:18:42.920] Uh, but very much interested in returning.
+- [01:18:44.480] The President: Good.
+- [01:18:45.720] Jeff Miller: We have the 600 Venezuelans
+- [01:18:47.150] with Halliburton today, all around the world.
+- [01:18:49.330] And look forward to putting them back to work.
+- [01:18:50.970] The President: Great job, great job.
+- [01:18:52.200] Jeff Miller: Thanks.
+- [01:18:53.420] The President: You'll be back. Please.
+- [01:18:55.830] Alex Greenberg: Mr. President,
+- [01:18:57.070] I'm Alex Greenberg my company Aspect Energy
+- [01:19:00.120] is one of the leading American international wildcatters.
+- [01:19:03.100] We've found significant fields in central --
+- [01:19:05.350] The President: Are you a wildcatter?
+- [01:19:06.580] Alex Greenberg: I'm a wildcatter.
+- [01:19:07.800] The President: That's pretty cool.
+- [01:19:09.070] I'll tell you. I would have been a wildcatter too, if I was in --
+- [01:19:12.030] and you've been successfully wildcatting.
+- [01:19:15.470] Alex Greenberg: We've found significant fields
+- [01:19:17.340] in Central and South America,
+- [01:19:18.600] in the Middle East and in Europe.
+- [01:19:19.870] The President: That's good.
+- [01:19:21.140] Alex Greenberg: We're the leading oil producer in Hungary.
+- [01:19:23.330] But our -- probably the most pertinent example is our --
+- [01:19:26.330] is what a wildcatter does is take on risk
+- [01:19:28.620] and try to reduce it.
+- [01:19:29.880] And then other people come in and put more capital in later.
+- [01:19:32.290] So we're kind of kick-starters in the oil industry.
+- [01:19:35.550] We went into Kurdistan very early on back
+- [01:19:38.310] when people told us it wasn't safe and we shouldn't do it.
+- [01:19:41.300] We found a big field there.
+- [01:19:42.740] And ultimately, that's got to be developed uh,
+- [01:19:45.290] along with one of my colleagues here
+- [01:19:47.470] to be one of the leading fields in Kurdistan.
+- [01:19:50.580] Uh, we think that Venezuela
+- [01:19:52.070] has a tremendous amount of opportunity.
+- [01:19:54.400] If you look at the reinvestment required,
+- [01:19:56.170] the investment required,
+- [01:19:57.400] people are talking about hundreds of billions of dollars.
+- [01:19:59.380] But if you put that in perspective,
+- [01:20:01.760] that's a million barrels a day for 15 years.
+- [01:20:03.720] It's $220 billion net cash flow. So what we really need to do
+- [01:20:08.510] is to be able to kick start production
+- [01:20:11.110] and then reinvest and have the confidence to reinvest.
+- [01:20:13.450] And what you're doing by putting the United States
+- [01:20:16.520] in control of the cash flow coming out of the country,
+- [01:20:19.000] it gives countries -- companies like ours the confidence
+- [01:20:21.200] to say we can kick start this production
+- [01:20:23.400] and then reinvest and reinvest.
+- [01:20:25.520] In Hungary, we've invested $1 billion
+- [01:20:27.400] in changing the trajectory of Hungarian oil production.
+- [01:20:30.010] And we are only able to do that not because
+- [01:20:33.080] we could write $1 billion check, we're a smaller company,
+- [01:20:35.780] but because we reinvest all the cash flow
+- [01:20:38.030] back into new production.
+- [01:20:39.250] The President: Good. Good job.
+- [01:20:41.230] Mark Nelson: Mark -- Mark Nelson with Chevron again.
+- [01:20:45.000] The President: Sure.
+- [01:20:48.020] Claudio Descalzi: Thank you, Mr. President.
+- [01:20:49.310] I'm Claudio Descalzi, ENI's CEO, Italy.
+- [01:20:52.610] We -- we started working in Venezuela in 1980.
+- [01:20:57.140] We have a lot of oil, but now just the gas is flowing
+- [01:21:00.990] because it's not under sanction.
+- [01:21:03.170] And as my colleague from Repsol said,
+- [01:21:05.930] we cover more than about
+- [01:21:07.670] 50 percent of the electricity in the country.
+- [01:21:11.180] So that is essential to avoid any kind of problem,
+- [01:21:14.920] social problem.
+- [01:21:16.360] Um, we own about four billion barrels of reserves,
+- [01:21:22.050] so a huge amount in the Orinoco Belt.
+- [01:21:24.970] And in Central Venezuela,
+- [01:21:26.480] we have now in the country 500 people, most Venezuelans.
+- [01:21:33.550] And uh, we are ready to invest. Clearly, we are ready to invest.
+- [01:21:37.350] We thank you for what -- for the big efforts
+- [01:21:40.660] and the efficiency of our -- your action.
+- [01:21:43.530] And we are here.
+- [01:21:45.050] And we are here to work together with the US.
+- [01:21:48.920] We are also a big investor in -- in the -- in the US.
+- [01:21:52.500] So we thank you again. And we are there.
+- [01:21:57.040] And we are also ready to join
+- [01:21:59.930] with American companies in our assets to develop
+- [01:22:03.750] and go faster with good investors
+- [01:22:06.390] and good know how from the US company. Thank you.
+- [01:22:10.540] The President: You've done a great job.
+- [01:22:11.770] Thank you very much.
+- [01:22:15.580] Ross Perot Jr.: Mr. President, Ross Perot,
+- [01:22:16.990] good to see you again.
+- [01:22:18.210] I'm chairman of Hillwood and HNK Energy,
+- [01:22:19.890] and I've been in the energy business for 45 years.
+- [01:22:22.620] And we have been working with your team quite a bit.
+- [01:22:25.810] We have been in Kurdistan now for 19 years along with Alex
+- [01:22:29.760] and built a very good business.
+- [01:22:31.490] But now with your team, we're looking in Syria,
+- [01:22:33.700] we're now in Libya.
+- [01:22:34.970] And so we are very excited to look at Venezuela
+- [01:22:37.570] with you and your group.
+- [01:22:39.220] And look forward to continuing to build this great industry.
+- [01:22:41.890] The President: Thank you very much.
+- [01:22:43.120] Ross Perot Jr.: Thank you.
+- [01:22:44.330] Wael Sawan: Mr. President,
+- [01:22:45.600] thank you for having us here today.
+- [01:22:46.840] Wael Sawan from Shell.
+- [01:22:48.980] Of course, we have a huge presence here
+- [01:22:50.770] in the US in the Gulf
+- [01:22:52.620] as well as in Pennsylvania with the petrochemical facility
+- [01:22:55.130] which I think we had the opportunity to host you
+- [01:22:58.030] at as well as being one of the largest
+- [01:23:00.240] LNG off takers of American LNG.
+- [01:23:03.320] We have been in Venezuela for a very long time.
+- [01:23:05.520] We actually drilled in 1914
+- [01:23:07.320] the first well that discovered oil in Venezuela
+- [01:23:10.930] and on the back of which the entire energy industry
+- [01:23:13.630] was established in Venezuela.
+- [01:23:15.770] And when we left in the 1970s because of nationalization,
+- [01:23:19.050] we had a million barrels per day of production.
+- [01:23:21.770] But we have kept boots on the ground in Venezuela
+- [01:23:24.510] all this time and we now have a few billion dollars'
+- [01:23:27.520] worth of opportunities to invest in subject to OFAC approval.
+- [01:23:31.120] So we are ready to go and looking forward
+- [01:23:32.770] to the investments in support of the Venezuelan people.
+- [01:23:36.960] The President: That's great. Thank you very much.
+- [01:23:39.480] Ben Marshall: Thank you, Mr. President.
+- [01:23:40.680] Ben Marshall, the Americas CEO for Vitol,
+- [01:23:43.390] um, alongside Trafigura,
+- [01:23:44.840] we're very thankful to have worked with the government
+- [01:23:46.820] and the Venezuelans to be able to bring the crude oil
+- [01:23:49.270] to market at a market price
+- [01:23:50.580] as quickly as we can to help stabilize the country.
+- [01:23:52.570] Thank you.
+- [01:23:53.790] The President: Thank you.
+- [01:23:55.440] Ryan Lance: Ryan Lance, ConocoPhillips.
+- [01:23:56.720] I'll defer to my colleagues.
+- [01:23:59.030] Olivier Ripoche: Thank you, Mr. President.
+- [01:24:00.340] Olivier Ripoche, CEO of SLB
+- [01:24:02.610] or formerly known as Schlumberger,
+- [01:24:04.000] the largest global oilfield services.
+- [01:24:07.040] We have been in Venezuela since 1930 and we still operate.
+- [01:24:11.680] We operate today on the ground with and support of Chevron.
+- [01:24:15.430] We have the ability to scale.
+- [01:24:17.050] We have 1100 Venezuelans in the company,
+- [01:24:19.410] 2000 additional that are calling us to go back to country
+- [01:24:23.330] and to go back to work.
+- [01:24:24.620] We're able to mobilize in less --
+- [01:24:26.690] in the last 18 months,
+- [01:24:28.400] two weeks and deliver 50 wells with success.
+- [01:24:30.860] So, yeah, we are here.
+- [01:24:32.250] We have knowledge of the subsurface like nobody else has.
+- [01:24:36.230] We have boots on the ground, capacity on the ground.
+- [01:24:38.490] $700 million of equipment value on the ground in Venezuela,
+- [01:24:42.970] ready to popularize for all of our partners customers.
+- [01:24:46.980] So we are ready to scale fast.
+- [01:24:49.270] And we really want to thank the administration,
+- [01:24:52.300] Secretary Wright, Secretary Burgum for the effort
+- [01:24:54.460] they are supporting
+- [01:24:55.780] and giving us to be successful on behalf of the Venezuelan oil
+- [01:24:59.970] and gas industry. Thank you very much.
+- [01:25:01.680] The President: Thank you very much.
+- [01:25:04.050] Bill Armstrong: Well, check this out,
+- [01:25:05.370] they saved the very best for last.
+- [01:25:08.080] And I don't have that sexy accent like this guy
+- [01:25:10.310] next to me here. Uh, Mr. President,
+- [01:25:12.750] my name is Bill Armstrong of Armstrong Oil and Gas.
+- [01:25:15.110] I'm a private independent guy.
+- [01:25:17.110] And in real estate, you were a wildcatter,
+- [01:25:20.540] so where that -- where that motto probably.
+- [01:25:25.900] But like you, I was a -- my own guy.
+- [01:25:28.810] And I don't have shareholders.
+- [01:25:30.340] I don't have private equity partners.
+- [01:25:32.420] But I've been drilling all over the place.
+- [01:25:34.410] In fact, I had the largest discovery in Alaska.
+- [01:25:36.480] Uh, the biggest discovery in 50 years in our country.
+- [01:25:40.220] I now control 8 million acres adjacent to Venezuela,
+- [01:25:43.680] so I'm already heavily invested in the area.
+- [01:25:46.320] We share 150 mile border with Venezuela
+- [01:25:49.630] in the countries of Aruba and Curacao.
+- [01:25:51.620] And we are ready to go to Venezuela.
+- [01:25:54.430] It is -- it is -- in real estate terms,
+- [01:25:56.630] it is prime real estate.
+- [01:25:59.220] And it's kind of like West Palm about 50 years ago. Very ripe.
+- [01:26:04.440] The President: Yep, I agree with you.
+- [01:26:05.860] Thank you. Congratulations.
+- [01:26:07.110] Bill Armstrong: Thank you.
+- [01:26:08.350] The President: So I think what we're going to do
+- [01:26:10.630] is speak without the press to these gentlemen,
+- [01:26:14.570] see what kind of a deal we can make.
+- [01:26:17.080] We're going to get them involved.
+- [01:26:18.430] I'm going to ask Doug and Chris and some of the people
+- [01:26:23.170] that we have from the business standpoint representing
+- [01:26:25.590] our country to start talking about the confines of a deal.
+- [01:26:30.500] We have -- I have an idea what I want,
+- [01:26:32.660] what I think we should have.
+- [01:26:34.430] Uh, we have to get them to invest
+- [01:26:36.730] and then we have to get their money back as quickly as we can.
+- [01:26:39.150] And then we can divvy it all up
+- [01:26:40.520] between Venezuela and the United States and them.
+- [01:26:43.950] I think it's simple. I think the formula is simple.
+- [01:26:46.450] We start with a brand new plate.
+- [01:26:48.770] And it's going to be a tremendous success.
+- [01:26:50.750] I think it's going to be probably like a few other things
+- [01:26:53.720] could ever be, you know.
+- [01:26:55.360] There's so much -- there's so much.
+- [01:26:57.740] Uh, Venezuela's been really taken advantage of
+- [01:27:02.010] by a lot of people because they drill very little.
+- [01:27:04.490] I mean, as much as you hear they have,
+- [01:27:06.750] they drill very, very little, very small percentage.
+- [01:27:09.620] But now that will change and it will change very rapidly
+- [01:27:12.000] because these are the biggest people.
+- [01:27:13.280] And it will change very rapidly.
+- [01:27:14.580] So if you don't mind, I'll ask the press to leave,
+- [01:27:17.670] and we will see what kind of a deal
+- [01:27:19.640] we're going to make with these geniuses.
+- [01:27:21.200] And I think you're going to come out very good.
+- [01:27:23.140] Thank you all very much.
+- [01:27:24.500] Thank you, thank you. Thank you.

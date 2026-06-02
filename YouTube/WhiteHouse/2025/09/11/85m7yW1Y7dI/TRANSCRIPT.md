@@ -1,0 +1,247 @@
+<!-- source: https://www.youtube.com/watch?v=85m7yW1Y7dI -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 85m7yW1Y7dI -->
+<!-- date_published: 2025-09-11T22:58:37+00:00 -->
+<!-- date_accessed: 2026-06-02T01:15:57.549227+00:00 -->
+
+# Transcript: President Trump Gaggles with Press Before Departing the White House, Sep. 11, 2025
+
+- [00:07.730] The Press: Are you concerned for your own safety?
+- [00:09.290] The President: Not really.
+- [00:11.020] I'm really concerned for our country.
+- [00:14.510] We have a great country.
+- [00:17.040] We have the radical left group of lunatics out there.
+- [00:20.760] Just absolute lunatics.
+- [00:22.220] And we're going to get that problem solved.
+- [00:24.230] I'm only concerned for the country. Yeah.
+- [00:28.380] The Press: How do you want
+- [00:29.650] to see your supporters respond to this?
+- [00:32.590] Charlie Kirk was a big advocate of nonviolence
+- [00:34.720] and free speech on campus.
+- [00:35.970] How do want your supporters to respond, sir?
+- [00:38.040] The President: I think the way he was.
+- [00:39.370] He was an advocate of nonviolence.
+- [00:41.670] That's the way I'd like to see people respond.
+- [00:47.320] The Press: Did you speak with his family this afternoon?
+- [00:48.960] The President: I did. I spoke to Erika, his wife,
+- [00:52.050] and we had a long talk, and she's devastated.
+- [00:55.640] She is absolutely devastated, as you can imagine.
+- [00:59.190] The Press: (inaudible)
+- [01:11.680] The President: I don't know what you're saying.
+- [01:16.250] The Press: When Mr. President,
+- [01:17.510] are you planning to bring both presidents,
+- [01:19.960] the president of Congo, Félix Chispeke,
+- [01:22.660] and president of Rwanda to here?
+- [01:25.110] The President: Yeah, they're coming soon.
+- [01:26.530] They're coming, soon.
+- [01:27.900] And as you know, I spoke to the foreign ministers.
+- [01:29.980] They were here a couple of weeks ago, as you remember.
+- [01:32.590] And they'll be coming soon, the presidents are coming,
+- [01:37.750] The Press: This week, Mr. President,
+- [01:39.370] I witnessed more than 60 people in DRC Congo were killed.
+- [01:43.980] Various people affiliated with ISIS.
+- [01:47.270] Terrorist groups are taking advantage
+- [01:49.200] because of the situation going on, because of war.
+- [01:52.880] So what is your word for Congolese people?
+- [01:55.140] The President: But we're going to be talking to them.
+- [01:56.730] As you know, we are talking to them.
+- [01:58.840] It's a very violent place. It's very, very violent.
+- [02:01.420] For a long time, it's been going on for 30 years,
+- [02:04.140] 35 years even, they say. But we're going to handle it. .
+- [02:20.940] The Press: What do you think about the media
+- [02:22.530] that justify the murder of Charlie Kirk?
+- [02:24.680] The President: I think it's terrible.
+- [02:25.970] They've ought to be ashamed of themselves.
+- [02:31.990] The Press: Why haven't they found
+- [02:33.200] the shooter yet, Mr. President?
+- [02:34.490] Are you concerned that it's been 24 hours?
+- [02:36.280] The President: Well, I hear they're making big progress,
+- [02:38.100] and we'll have to see what happens.
+- [02:39.730] The Press: Do you have any indication
+- [02:41.600] of the shooter's motivation, sir?
+- [02:44.790] The President: I have an indication, yeah,
+- [02:46.230] but we'll let you know about that later.
+- [02:51.680] The Press: You spoke with Uzbekistan's president,
+- [02:54.060] and this last time you sent greetings to Kazakhstan.
+- [02:58.790] UN General Assembly is upcoming.
+- [03:00.490] Are you going meet with the president
+- [03:02.550] of Central Asian countries?
+- [03:03.780] The President: President where?
+- [03:05.000] The Press: Central Asian countries (inaudible).
+- [03:06.860] The President: I will be, yeah.
+- [03:08.110] They're very good people and I will be doing that, yes.
+- [03:11.410] The Press: (inaudible)
+- [03:18.410] The President: I'd rather not say.
+- [03:19.790] I think progress is being made. He's an animal, total animal.
+- [03:24.650] And hopefully they'll have him and they'll get him.
+- [03:27.340] What he did is disgraceful. Charlie Kirk was a great person,
+- [03:31.060] a great man, great in every way, especially with youth.
+- [03:35.910] And what he did, what this man did was disgraceful,
+- [03:39.040] so hopefully we'll have them
+- [03:40.710] and we will deal with them very appropriately.
+- [03:44.870] The Press: What's your reaction to (inaudible)?
+- [03:50.220] The President: It could have been a mistake,
+- [03:52.980] but regardless, I'm not happy about anything having to do
+- [03:56.260] with that whole situation,
+- [03:57.930] but hopefully it's going to come to an end.
+- [03:59.350] The Press: Mr. President, in Brazil Bolsonaro
+- [04:02.290] was just found guilty by the Supreme Court.
+- [04:04.540] You've been very clear that you would apply sanctions.
+- [04:07.090] Are you thinking further sanctions to Brazil
+- [04:09.190] because of this Bolsonaro?
+- [04:10.450] The President: Well, I watched that trial.
+- [04:11.790] I know him pretty well, a foreign leader.
+- [04:14.820] He was a good --
+- [04:16.060] I thought he was a good president of Brazil.
+- [04:18.700] And it's very surprising that that could happen.
+- [04:21.140] That's very much like they tried to do with me,
+- [04:23.830] but they didn't get away with it at all.
+- [04:26.100] But I can only say this.
+- [04:29.000] I knew him as president of Brazil.
+- [04:30.790] He was good man. And I don't see that happening.
+- [04:38.300] The Press: I'm very sorry for your loss.
+- [04:39.750] The President: Thank you.
+- [04:40.960] The Press: How do you think Israel's attack in Doha
+- [04:43.360] will affect all people?
+- [04:46.170] The President: You've got to say it a little bit more.
+- [04:47.660] Where are you from? Where are you from?
+- [04:48.920] The Press: I'm from Israel. Channel 14 is like (inaudible).
+- [04:50.510] The President: Go ahead, do it again. Do it again.
+- [04:52.300] The Press: How do you think Israel's attacking Doha
+- [04:54.180] will affect the hostage deal?
+- [04:55.760] The President: Well, hopefully, it won't affect it at all.
+- [04:57.440] We want the hostages out, and we want them out soon.
+- [05:01.560] Hopefully, it won't affect it.
+- [05:04.800] The Press: My condolences to you sir,
+- [05:06.580] my condolence is on the loss of your friend Charlie Kirk.
+- [05:08.890] I want to ask, sir, personally,
+- [05:10.340] how are you holding up over the last day and a half, sir?
+- [05:12.870] The President: I think very good.
+- [05:14.070] And, by the way, right there, you see all the trucks.
+- [05:16.860] They've just started construction of the new ballroom
+- [05:19.400] for the White House,
+- [05:20.880] which is something they've been trying to get,
+- [05:22.450] as you know, for about 150 years.
+- [05:25.160] And it's going to be a beauty.
+- [05:26.400] It'll be an absolutely magnificent structure.
+- [05:29.820] And I just see all of the trucks, we just started.
+- [05:31.890] So it'll get done very nicely,
+- [05:34.730] and it'll be one of the best anywhere in the world, actually.
+- [05:38.270] Thank you.
+- [05:46.030] The Press: Will you get to meet with Mayor Adams
+- [05:47.510] when you're in New York? Do you expect to?
+- [05:48.960] The President: I don't expect to.
+- [05:50.190] I would, but I don't expect to.
+- [05:54.400] The Press: Do you have one favorite memory of Charlie?
+- [05:57.290] The President: Many favorite memories.
+- [05:58.550] He was just a great guy.
+- [06:00.230] I've never seen a person that was a little bit older
+- [06:03.310] get along so well with youth. He got along with young people.
+- [06:06.790] I've ever seen anything like it. And he really helped me a lot.
+- [06:09.380] I did very well, as you know, with young people,
+- [06:11.900] and he was a big factor. How are you? All right?
+- [06:14.260] The Press: Are you going to go to Charlie Kirk's funeral, sir?
+- [06:16.880] The President: I will be.
+- [06:18.190] I believe it's in Arizona, and they've asked me to go.
+- [06:21.860] And I think I have an obligation to do that.
+- [06:24.740] The Press: Do you know when that will be?
+- [06:27.010] The President: I'm hearing the next --
+- [06:28.300] I hear next weekend.
+- [06:30.430] The Press: After your trip, after your trip?
+- [06:31.980] The President: Next weekend.
+- [06:33.200] The Press: Are you frustrated that they have
+- [06:34.570] not caught the perpetrator yet?
+- [06:35.950] The President: Well, I hear
+- [06:37.200] they're making great strides, Maggie.
+- [06:39.010] I hear that they're make great stride.
+- [06:40.300] You know, they have pictures and some other things,
+- [06:42.930] and they found the weapon. Big factor.
+- [06:45.430] So, they're very talented people.
+- [06:48.470] Let's see what happens.
+- [06:49.710] Certainly, we hope we can do it soon.
+- [06:51.560] The Press: Do you have a reaction
+- [06:52.910] to the Brazilian Supreme Court convicting Bolsonaro?
+- [06:54.810] The President: I'm very unhappy about it.
+- [06:56.050] I know President Bolsonaro.
+- [06:58.300] Not so well, but I know him as a leader of a country.
+- [07:01.420] And I always found him to be very straight, very outstanding.
+- [07:05.080] Actually, as a man, a very outstanding man.
+- [07:07.470] I think it's a terrible thing. Very terrible.
+- [07:10.790] I think, actually, I think it's very bad for Brazil.
+- [07:13.680] The Press: Do you condemn Russia flying drones in Poland?
+- [07:17.130] The President: Well, I hear that what happened,
+- [07:19.280] as you know, where they were taken down
+- [07:21.290] and they went a little berserk. But regardless,
+- [07:23.670] yes, I would condemn even for being near that line.
+- [07:27.340] I don't like it. I'm not happy about it.
+- [07:29.250] That whole thing, I'm happy about.
+- [07:32.230] The Press: If the Supreme Court says
+- [07:37.620] the tariff is unconstitutional,
+- [07:42.720] will the 550 investment agreement
+- [07:45.920] with Japan be canceled?
+- [07:48.210] The President: We have a great case,
+- [07:50.050] and everyone thinks it's going to be very successful.
+- [07:53.110] It's a great case. I don't see how anybody could be successful
+- [07:56.450] (inaudible).
+- [08:00.640] The Press: Great speech today.
+- [08:01.840] What is your message to other conservative influencers,
+- [08:05.090] podcasters, TV hosts that they might be targeted
+- [08:08.410] by some of these radical groups?
+- [08:09.870] The President: Well, we have to be brave in life,
+- [08:11.180] you know, in all fairness.
+- [08:12.440] We have a life, and we have be brave.
+- [08:14.270] I probably shouldn't be out here talking to you, in all fairness,
+- [08:17.210] but we will be brave, and we a great country.
+- [08:21.150] We have radical-left lunatics out there,
+- [08:23.430] and we just have to beat the hell out of them.
+- [08:26.580] The Press: Charlie was my boss.
+- [08:29.010] The Press: She works for Charlie Kirk (inaudible).
+- [08:30.780] The Press: Charlie Kirk was my boss,
+- [08:32.060] and we're absolutely devastated.
+- [08:33.620] So I'm wondering if you have a message
+- [08:35.370] for our Turning Point USA family.
+- [08:37.530] The President: It's a great family.
+- [08:38.740] They're great friends of mine. He was, I would say,
+- [08:41.310] nobody stronger for me than Charlie Kirk.
+- [08:43.480] This is a devastating moment for the country.
+- [08:46.610] And as you know, I'm giving him the Presidential Medal
+- [08:49.180] of Freedom, which is the biggest award
+- [08:50.770] outside of the Congressional Medal of Honor.
+- [08:54.020] That's the civilian version
+- [08:55.660] of the Congressional Medal of Honor,
+- [08:57.390] and he deserves it, and I look forward to it.
+- [08:59.170] I'll be going to his funeral.
+- [09:00.380] The Press: Do you have a favorite moment --
+- [09:01.620] you have favorite moment with Charlie Kirk?
+- [09:03.190] The President: The overall person,
+- [09:04.410] the persona of Charlie Kirk, I mean, he was unbelievable,
+- [09:07.280] especially with youth. Now, he is a young guy,
+- [09:10.060] but older than the people he was even catering to.
+- [09:12.570] I've never seen anybody have such an impact on young people.
+- [09:17.290] The Press: What was going through your mind today
+- [09:18.840] at delivering the speech at the Pentagon?
+- [09:20.310] What was it going through you mind?
+- [09:21.530] The President: I felt so sad. Charlie was on my mind,
+- [09:23.270] even though the speech was, initially about Charlie,
+- [09:26.520] and then we went on to, you know, September 11th.
+- [09:30.050] But more than anything else, Charlie was on my mind.
+- [09:33.910] You know, it's very fresh and a very horrible thing.
+- [09:36.500] He was a great man.
+- [09:37.800] The Press: Mr. President, what is your message
+- [09:42.110] to the millions of young Americans
+- [09:43.800] who feel like their voice, their political voice,
+- [09:46.020] was snuffed out (inaudible)?
+- [09:47.950] The President: Hang in there. And I think Turning Point,
+- [09:49.860] I spoke with Erika's wife,
+- [09:52.200] and they have great people in Turning Point.
+- [09:54.320] And I they're going to carry it forward.
+- [09:56.500] And they're gonna make Charlie very proud,
+- [09:58.330] looking down on us all. But he was incredible.
+- [10:01.060] He really helped me with the election, too.
+- [10:02.690] We won youth. We did great with young people,
+- [10:05.420] which really doesn't happen very often
+- [10:07.590] with Republican candidates.
+- [10:09.380] You take a look at Mitt Romney and some of these others.
+- [10:11.770] They did so badly, and I did so well.
+- [10:13.970] And Charlie was a big factor. Thank you all.

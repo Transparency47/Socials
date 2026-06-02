@@ -1,0 +1,272 @@
+<!-- source: https://www.youtube.com/watch?v=820-2j_6VNQ -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 820-2j_6VNQ -->
+<!-- date_published: 2026-05-20T15:32:22+00:00 -->
+<!-- date_accessed: 2026-06-02T00:59:18.599055+00:00 -->
+
+# Transcript: President Trump Gaggles with Press at Joint Base Andrews En Route Groton, CT, May 20, 2026
+
+- [00:00.310] The President: Hello, everybody.
+- [00:01.890] We're having a nice trip today. We're doing very well.
+- [00:04.680] And the numbers at department, the economic numbers are phenomenal.
+- [00:09.270] We're in the final stages of Iran.
+- [00:11.470] We'll see what happens. We'll either have a deal
+- [00:14.020] or we're going to do some things that are a little bit nasty.
+- [00:17.650] I don't believe that won't happen.
+- [00:19.540] Good things are doing well.
+- [00:20.860] You see the numbers came out today.
+- [00:22.400] They're fantastic.
+- [00:23.790] The economic numbers, they're fantastic, so.
+- [00:27.020] Do you have any questions?
+- [00:28.460] The Press: How are you feeling
+- [00:29.700] after this coffee defeat last night?
+- [00:31.450] What does it mean for the Republican Party?
+- [00:32.950] The President: No, we had a great number of victories,
+- [00:34.550] not just Massey. Massey is the alumni.
+- [00:37.130] We had a number of great victories.
+- [00:38.730] We have the governors, you know, the governorships.
+- [00:42.850] We won senatorships. We won everything.
+- [00:46.110] We won all races last night, and they won them all.
+- [00:48.270] And we have a great candidate, I believe, in Texas.
+- [00:52.530] And I believe the Texas candidate,
+- [00:54.040] who's Ken Paxton I think he'll win.
+- [00:57.510] I think probably he'll win very substantially.
+- [01:00.840] And I think he'll go on to d- --
+- [01:02.240] defeat a very defective candidate,
+- [01:04.630] a candidate that believes in six genders,
+- [01:06.890] and he, he takes hits at Jesus Christ,
+- [01:09.720] and he was wearing a mask six months ago, wears a g-
+- [01:13.740] -- anybody wearing a mask six months ago doesn't get it.
+- [01:17.980] And he's a vegan. He's a vegan in Texas,
+- [01:20.980] and you can't get elected as a vegan in Texas.
+- [01:23.010] The Press: Did you talk to Senate leadership
+- [01:25.650] on the Republican side about endorsing against an incumbent?
+- [01:28.300] The President: I did.
+- [01:29.580] I did. They'll be all right with it.
+- [01:32.110] They want to win. I know how to win.
+- [01:34.420] The Press: Are you worried about the ballroom funding?
+- [01:35.970] The President: Some of them don't know how to win.
+- [01:37.200] I know how to win.
+- [01:38.740] I think I've proven that, haven't I?
+- [01:40.480] The Press: Are you worried about the ballroom funding,
+- [01:42.040] Mr. President?
+- [01:43.330] There's speculation that could be --
+- [01:44.650] The President: The ballrooms are being built.
+- [01:46.540] I'm building the ballroom. You saw it yesterday, right?
+- [01:48.630] The Press: Yeah.
+- [01:49.910] The President: We're building a great ballroom.
+- [01:51.150] It's been needed. It's a very military complex.
+- [01:55.090] The roof is actually a drone port.
+- [01:57.810] The roof of the ballroom's a drone port,
+- [02:00.240] and it gives great safety to everything below.
+- [02:02.280] Um, it's good. We're building a, um, really great ballroom,
+- [02:06.770] but it's, it's also a military,
+- [02:08.660] a strong military position for our, our people.
+- [02:14.830] The Press: (inaudible)
+- [02:16.130] The President: Do I think who?
+- [02:17.380] The Press: Vance or Rubio did better
+- [02:18.680] in the press briefing, Sir.
+- [02:19.950] The President: I think they both did great.
+- [02:21.700] What do you want me to say, right?
+- [02:23.500] I think they're both, do you like that?
+- [02:25.270] That's pretty good though, right?
+- [02:27.130] I think they both did good. I watched both of them.
+- [02:29.240] So they're both very good men, really are.
+- [02:32.140] The Press: Did you have a problem
+- [02:33.380] with Prime Minister Netanyahu?
+- [02:35.150] The President: Well, her husband votes against me all the time.
+- [02:37.970] Can you imagine? I don't know what's with him.
+- [02:40.410] You better ask him what's with him.
+- [02:42.180] Her husband, she's married to a certain congressman.
+- [02:45.420] He votes again- -- he likes voting against Trump.
+- [02:48.010] You know what happens with that? Doesn't work out well.
+- [02:50.610] I don't know why he does.
+- [02:52.620] The Press: Mr. President, are you (Inaudible)
+- [02:54.120] Do you have any plans to call President Lai
+- [02:56.370] before you make your decision on the arms deal?
+- [02:58.800] The President: What?
+- [03:00.150] The Press: Do you have any plans to call President Lai of Taiwan
+- [03:03.070] before you make a decision on the weapons package?
+- [03:05.800] The President: Well, I'll speak to him.
+- [03:07.040] I speak to everybody.
+- [03:09.010] Uh, we have that situation very well in hand.
+- [03:12.460] We had a great meeting with President Xi.
+- [03:13.920] Uh, he's really, it was amazing, actually.
+- [03:17.190] It was amazing. You, many of you were there.
+- [03:20.320] We'll work on that, the Taiwan problem.
+- [03:23.440] The Press: You said to Prime Minister Netanyahu about Iran
+- [03:25.640] and how long to, to hold off on strike?
+- [03:27.190] The President: He's fine.
+- [03:28.400] He'll do whatever I want him to do.
+- [03:29.790] He's very, very good man.
+- [03:32.700] Uh, he'll do whatever I want him to do
+- [03:34.650] and he's a, he's a great guy. To me, he's a great guy.
+- [03:39.010] Don't forget, he was a wartime prime minister
+- [03:42.080] and he's not treated right in Israel, in my opinion.
+- [03:45.400] I'm right now at 99% in Israel.
+- [03:48.290] I could run for prime minister, so maybe after I do this,
+- [03:52.000] I'll go to Israel, run for prime minister.
+- [03:54.480] I had a poll this morning. I'm 99%. So that's good.
+- [03:58.090] But no, he's a wartime prime minister.
+- [04:02.100] I just don't think they treat him well.
+- [04:05.760] I think they have a president over there
+- [04:07.260] that treats him very poorly.
+- [04:08.560] The Press: You're on the same page with him on Iran?
+- [04:10.950] The President: Yeah.
+- [04:12.220] The Press: Mr. President, have you spoken to anyone
+- [04:13.800] about replacing Lauren Boebert? Are these --
+- [04:17.020] The President: If somebody comes along, I'd look.
+- [04:18.530] It's a little late in the race,
+- [04:20.550] but if somebody comes along, I'd look, certainly.
+- [04:24.920] The Press: Sir, do you see yourself in him at all?
+- [04:27.010] A former reality TV star?
+- [04:28.600] The President: No, I'd like to see him do well.
+- [04:29.880] He's a character. I don't know. I don't know him.
+- [04:32.630] I assume he probably supports me.
+- [04:34.320] Does he support me?
+- [04:35.570] The Press: Think so.
+- [04:36.800] The President: I think so, yeah. I heard he does.
+- [04:38.570] I heard he's a big MAGA person. He's doing well. I don't know.
+- [04:42.310] You know, if you have a rigged vote out there,
+- [04:44.310] that's the problem. The votes are rigged.
+- [04:46.630] You have a really rigged vote in California.
+- [04:49.180] You have all the mail-in ballots, everything else.
+- [04:51.150] Very hard to win because the elections are very dishonest.
+- [04:54.830] If we had Jesus Christ come down and count the votes,
+- [04:59.370] I would have won California
+- [05:01.450] because I do great with Hispanics.
+- [05:03.440] But it's a rig vote. They send out 38 million votes.
+- [05:06.630] Nobody knows where they're going.
+- [05:07.880] Of course, the Democrats do, I guess, but disproportionately,
+- [05:11.940] Democrats get many more votes. Some get eight votes.
+- [05:15.720] They get eight cards and Republicans have to call in,
+- [05:18.760] "Where's my card?" It's a rigged system.
+- [05:21.630] One of the most, not the worst, I'll give you a list.
+- [05:24.620] Maybe I'll do my list. But it's, California's
+- [05:27.660] one of the most dishonest states for voting.
+- [05:30.860] The Press: What's your message to the cadets today?
+- [05:32.880] The President: Just enjoy your life, you know?
+- [05:34.090] Got to enjoy it. They're great guys.
+- [05:36.360] It's my second time at the Coast Guard Academy.
+- [05:38.600] Uh, they're great guys. We like them.
+- [05:42.770] You know, you don't realize how important Coast Guard is
+- [05:45.920] until you have a hurricane.
+- [05:47.410] And I remember the big hurricane in Texas
+- [05:49.480] where these kids go on boats and they're going through waves
+- [05:53.740] that are 20 times higher than the boat.
+- [05:57.500] And I say, "Can they really make it?"
+- [05:59.010] I'm watching this. And they say they find a way,
+- [06:02.030] but they were going into waves, these massive waves,
+- [06:05.380] to save people that were inside and you don't realize it,
+- [06:09.080] but boy, they are good, they are a good sea men.
+- [06:11.990] They are unbelievable. I wouldn't want to do it.
+- [06:14.840] I'm a very brave person, but I wouldn't want to do it.
+- [06:16.810] The Press: What do you make of President Xi
+- [06:19.290] meeting with Putin this week?
+- [06:20.860] The President: Well, he told me he was going to.
+- [06:22.320] I think it's good.
+- [06:23.680] I get along with both of them, but I think it's good.
+- [06:26.820] I don't know if the ceremony was quite as brilliant as mine.
+- [06:29.190] I watched. I think we topped him.
+- [06:30.450] I think we topped him.
+- [06:31.670] Good team. But no, I like, I get along...
+- [06:32.940] The ceremony was quite as brilliant as mine.
+- [06:34.200] I watched. I think we topped them.
+- [06:35.440] I think we topped them. Good team.
+- [06:36.660] But no, I like, I get along with Putin,
+- [06:37.920] I get along with you.
+- [06:39.240] I get along with everybody but your husband and a few others.
+- [06:41.710] The Press: On the Iran deal,
+- [06:43.040] would you be open to a limited deal
+- [06:44.760] that just covered the Strait of Hormuz?
+- [06:46.290] The President: What does that mean?
+- [06:47.520] The Press: On Iran, just a limited deal
+- [06:49.230] just for a longer ceasefire.
+- [06:50.740] The President: I would have to open the straight,
+- [06:51.960] that would open immediately.
+- [06:53.160] So we're going to give this one shot.
+- [06:55.050] I'm in no hurry.
+- [06:56.380] You never think, "Oh, the midterms.
+- [06:57.810] I'm in a hurry." I'm in no hurry.
+- [06:59.120] I just ideally I'd like to see few people killed
+- [07:03.220] as opposed to a lot. We can do it either way,
+- [07:06.090] but, but I'd like to see few people killed.
+- [07:08.720] I just wonder whether or not they have the good of the people
+- [07:11.280] because some of the things they're doing to me
+- [07:14.320] means they don't have the good of the people
+- [07:16.040] and they have to have the good of the people.
+- [07:18.720] Um, there's a lot of anger now in Iran
+- [07:22.600] because people are living so badly.
+- [07:24.670] There's a lot of foment that we haven't seen before so much
+- [07:27.940] and we'll see what happens.
+- [07:29.470] The Press: Is it taking longer than you expected
+- [07:30.770] it would to make a deal with Iran?
+- [07:32.550] The President: Well, let's put it this way.
+- [07:33.800] You were in Vietnam 19 years, right?
+- [07:36.470] You were in, you were in Afghanistan
+- [07:38.900] and these other places 10 years.
+- [07:41.180] You were in Iraq. How long were you in Iraq?
+- [07:44.630] 12- -- 12 years? You were in Korea for 7 years.
+- [07:49.460] World War II is different. That was 4 years.
+- [07:52.210] I'm in for 3 months and much of it's been ceased fire, so.
+- [07:56.920] And you know what?
+- [07:58.180] You lost hundreds of thousands of soldiers
+- [08:00.090] in these various wars.
+- [08:02.100] In two wars, Venezuela, where we lost nobody,
+- [08:05.870] and here we lost 13 people.
+- [08:09.390] Now, 13 people is 13 too much, but we lost 13 people.
+- [08:14.300] In other wars, you lost hundreds of thousands of people.
+- [08:17.440] So people don't like it when you say,
+- [08:21.560] "Oh, do you know you've lost 13?"
+- [08:23.530] We lost, in two major wars, we took over Venezuela,
+- [08:27.920] we essentially took over Iran and we've lost so far 13 people.
+- [08:33.700] Some other, some --
+- [08:35.300] somebody else would have lost 100,000 people, okay?
+- [08:40.850] But I get a kick when I look at somebody on television,
+- [08:43.860] "He's lost 13 people." I lost 13 people.
+- [08:47.540] They lost 13 people leaving an airport.
+- [08:50.190] Obama, 13 very good people that I got to know their families.
+- [08:54.150] So, so what we've done is amazing
+- [08:57.530] and we have them decimated.
+- [08:59.380] Iran is decimated and I mean,
+- [09:02.630] you're going to see things that are amazing.
+- [09:04.770] You're going to see a lot of amazing things
+- [09:06.820] over the next 3 years for our country.
+- [09:09.180] And I'd like to talk more about the economic
+- [09:11.520] because we have $18 trillion being spent
+- [09:14.370] and no country has ever had anything like that.
+- [09:16.320] We have car plants pouring in from Mexico, Canada.
+- [09:19.670] They don't want to be there. There's no reason to be there
+- [09:22.450] because they want to sell to our market.
+- [09:24.410] We have car companies and plants coming in from Germany,
+- [09:27.990] from South Korea, from Japan, coming in by the billions
+- [09:32.940] and they're being built now.
+- [09:34.220] You're going to see things that nobody thought was possible.
+- [09:38.710] You can end up saying,
+- [09:39.930] "He's the greatest president that ever lived."
+- [09:41.860] Goodbye, everybody.
+- [09:43.130] The Press: James called me over the weekend, Mr. President.
+- [09:45.030] He suggested that there's still people in your DOJ and FBI
+- [09:47.990] that are waiting you out. They're waiting until your,
+- [09:50.210] your administration is over to get back to work.
+- [09:52.770] Do you think those people are still in the DOJ and FBI?
+- [09:54.750] The President: I hope not.
+- [09:55.990] Well, we're going to seek them out.
+- [09:57.960] We'll seek them out. We'll get rid of them.
+- [10:00.440] Okay? 'Cause you have in every agency,
+- [10:02.230] you have scum and certainly they did in the FBI and DOJ,
+- [10:07.440] but Todd Blanche is doing a fantastic job.
+- [10:09.700] Kash is doing a very good job, so we'll we will prevail.
+- [10:14.770] I've been standing here a long time with you many years, right?
+- [10:18.080] And they've been saying, "I think it's it.
+- [10:19.710] I think he's troubled."
+- [10:21.450] Here I am, you know, we just, it's a very constant situation,
+- [10:25.620] but I think you're going to find
+- [10:27.120] that we have great people in the FBI
+- [10:30.430] and we have great people in DOJ.
+- [10:31.990] Todd Blanche has really been doing a great job
+- [10:34.700] and a lot of things to come.
+- [10:36.320] We have a lot of things that are coming right now.
+- [10:39.320] Going to be great. Our country's doing well.
+- [10:41.190] Thank you very much.

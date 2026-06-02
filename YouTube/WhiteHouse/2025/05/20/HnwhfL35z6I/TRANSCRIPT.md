@@ -1,0 +1,617 @@
+<!-- source: https://www.youtube.com/watch?v=HnwhfL35z6I -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: HnwhfL35z6I -->
+<!-- date_published: 2025-05-20T20:28:12+00:00 -->
+<!-- date_accessed: 2026-06-02T02:49:40.695435+00:00 -->
+
+# Transcript: President Trump Makes an Announcement with the Secretary of Defense
+
+- [00:01.540] The President: Thank you very much, and thank you for
+- [00:03.972] being here at the Oval Office,
+- [00:05.642] one of great places of the world
+- [00:08.290] as we make a historic announcement about
+- [00:10.032] the Golden Dome Missile Defense
+- [00:12.484] Shield, that's something we want.
+- [00:14.960] And at Ronald Reagan wanted it many years
+- [00:16.600] ago, but they didn't have the technology.
+- [00:19.440] But it's something we're going to have.
+- [00:20.740] We're going to have it at the highest level.
+- [00:23.020] I want to thank Secretary Hegseth
+- [00:24.370] who's been fantastic and
+- [00:27.291] Secretary Rubio and Space Force vice chief,
+- [00:31.450] of Space Operations, General Mike Guetlein.
+- [00:35.490] I also want to recognize Senators Dan Sullivan.
+- [00:38.900] Kevin Kramer and Jim Banks.
+- [00:40.720] Fantastic Senators.
+- [00:41.960] Great talents.
+- [00:42.400] Great political talents and
+- [00:43.721] people that love our country.
+- [00:46.230] In the campaign, I promised the American
+- [00:48.035] people that I would build a cutting edge
+- [00:50.540] missile defense shield to protect our
+- [00:52.647] homeland from the threat of foreign missile attack.
+- [00:56.720] And that's what we're doing.
+- [00:57.960] Today I'm pleased to announce that we have
+- [01:00.366] officially selected an architecture for
+- [01:02.850] this state-of-the-art system that will
+- [01:04.954] deploy next-generation technologies across
+- [01:07.281] the land, sea and space, including
+- [01:09.905] space-based sensors and interceptors.
+- [01:13.680] And Canada has called us and
+- [01:15.046] they want to be a part of it.
+- [01:16.580] So we'll be talking to them.
+- [01:18.020] They want to have protection also.
+- [01:20.960] So as usual, we help Canada as best we can.
+- [01:24.820] This design for the Golden Dome will
+- [01:27.173] integrate with our existing defense
+- [01:30.810] capabilities and should be fully
+- [01:32.065] operational before the end of my term.
+- [01:33.580] So we haven't done in about three years.
+- [01:37.270] Once fully constructed, the Golden Dome
+- [01:39.477] will be capable of intercepting missiles
+- [01:42.190] even if they are launched from other sides
+- [01:44.371] of the world and even if they're launched from space.
+- [01:48.540] And we will have the best system ever built.
+- [01:51.480] As you know, we helped Israel with
+- [01:53.960] theirs and it was very successful.
+- [01:56.460] And now we have technology that's
+- [01:58.830] even far advanced from that.
+- [02:01.340] but including hypersonic missiles,
+- [02:03.248] ballistic missiles and advanced cruise
+- [02:05.381] missiles, all of them will be knocked out of the air.
+- [02:10.070] We will truly be completing the job that
+- [02:12.119] President Reagan started 40 years ago for
+- [02:14.345] ever ending the missile threat to the
+- [02:16.828] American homeland and the success rate is
+- [02:19.581] very close to 100 percent, which is incredible.
+- [02:22.060] When you think of it, you're
+- [02:23.180] shooting bullets out of the air.
+- [02:25.340] I'm also pleased to report that the
+- [02:27.535] One Big Beautiful Bill will include
+- [02:30.230] $25 billion for the Golden Dome to help
+- [02:32.462] construction get underway, that's the
+- [02:34.561] initial sort of a down deposit.
+- [02:41.140] And we have... probably you're talking about.
+- [02:43.209] .. General, we're talking about $175
+- [02:45.740] billion total cost of this when it's completed.
+- [02:49.080] This afternoon, I'm also announcing that
+- [02:51.290] I will appoint very importantly,
+- [02:53.680] General Guetleins to lead the ambitious new
+- [02:56.150] effort as the direct reporting
+- [02:58.116] program manager for the Golden Dome.
+- [03:00.990] Very talented man and I'm very honored to
+- [03:03.373] have been the one that helped
+- [03:05.050] to really create a Space Force.
+- [03:07.041] Space Force has turned out to be a tremendous success.
+- [03:10.410] We were third in space and now
+- [03:11.845] we're number one in space by a lot.
+- [03:13.820] It's not even close.
+- [03:15.700] And Mike is a four star Space Force general.
+- [03:20.000] The recipient of the defense,
+- [03:21.876] distinguished service medal, one of the
+- [03:24.401] most respected people in the
+- [03:25.885] world having to do with defense.
+- [03:28.110] We have offense and we have defense.
+- [03:29.361] I bet he's good at offense, too.
+- [03:32.640] And he has an unmatched background in
+- [03:34.109] missile warning technology and defense procurement.
+- [03:37.540] General Guetlein also knows that we need to move fast.
+- [03:40.740] No one is more qualified for his job and everybody --
+- [03:43.720] this was a universal acceptance of General Guetlein.
+- [03:49.320] Everybody that knows him and knows everybody else.
+- [03:51.520] They said there's only one man for the job.
+- [03:53.300] So I have a feeling we have the right guy.
+- [03:55.940] But now I'd like to invite
+- [03:57.491] Secretary Hegseth and the general
+- [04:01.440] to please say a few words and
+- [04:02.601] describe the system a little bit.
+- [04:04.255] And we appreciate you being here.
+- [04:07.470] The press has really been very fair over
+- [04:08.591] the last period of a couple of months.
+- [04:09.680] I don't know what happened to you.
+- [04:11.580] So much more exciting the other way.
+- [04:13.920] But you've been very, very fair.
+- [04:15.200] We have very high poll numbers.
+- [04:18.010] The highest we've ever had.
+- [04:19.320] And I think we're doing a great job.
+- [04:21.200] We had a tremendous trip to the Middle East as you know.
+- [04:23.840] It was a really amazing trip.
+- [04:25.880] And now I came home.
+- [04:27.260] And this is the one I was really looking forward
+- [04:29.321] to this day.
+- [04:31.420] Because this is very important for the
+- [04:33.662] success and even survival of our country.
+- [04:36.680] It's an evil world out there.
+- [04:41.510] So this is something that goes a long way
+- [04:43.084] toward the survival of this great country.
+- [04:44.720] And as I said, we'll be discussing Canada.
+- [04:50.550] They want to hook in and they want
+- [04:51.149] to see if they can be a part of it.
+- [04:51.790] That sort of makes sense.
+- [04:53.100] I guess that's what I was talking about from day one.
+- [04:55.405] Now it just automatically makes sense.
+- [04:57.940] And it won't be very difficult to do.
+- [04:59.810] But they'll pay their fair share.
+- [05:02.050] Thank you very much, everybody.
+- [05:02.980] And Pete, go ahead.
+- [05:05.390] Secretary Hegseth: Well, Mr. President, add this to the
+- [05:07.508] long and growing list of
+- [05:08.747] promises made and promises kept.
+- [05:13.420] Ultimately, this right here, the Golden
+- [05:14.821] Dome for America is game changer.
+- [05:16.030] It's a generational investment in the
+- [05:18.141] security of America and Americans.
+- [05:20.380] Mr. President, you said, we're to
+- [05:22.048] secure our southern border and
+- [05:23.583] get 100% operational control.
+- [05:26.185] But the previous administration allowed
+- [05:28.263] an invasion of people into our country.
+- [05:31.890] President Reagan 40 years ago cast the vision for it.
+- [05:34.300] The technology wasn't there.
+- [05:35.720] Now it is.
+- [05:36.540] And you're following through to say we
+- [05:38.273] will protect the homeland from cruise
+- [05:41.660] missiles, ballistic missiles, hypersonic
+- [05:43.622] missiles, drones, whether
+- [05:44.816] they're conventional or nuclear.
+- [05:46.910] And it's not lost on me, sir, also that
+- [05:49.255] you had the vision to start the Space Force.
+- [05:52.600] And here we are -- when others said we didn't need it.
+- [05:55.560] Here we are in the Oval Office with one of
+- [05:57.584] the leaders of the Space Force in General
+- [06:00.310] Guetlein, leading the charge on putting
+- [06:02.805] in place a game-changing Golden Dome for America.
+- [06:06.170] So, sir, it's an honor to be a
+- [06:07.371] part of this bold initiative.
+- [06:08.640] We're going to get to work on it.
+- [06:09.481] We have been, since you signed that
+- [06:11.539] executive order on January 27th,
+- [06:13.421] we've been fast-forward on this.
+- [06:15.230] We're here on this day, and this is just
+- [06:17.103] one stop in delivering this defense of the
+- [06:19.121] homeland, which is something you've
+- [06:20.987] charged us with doing, and we'll
+- [06:22.730] keep going until it is complete, sir.
+- [06:24.380] The President: Thank you, Pete.
+- [06:25.201] Pete's done a great job, by the way.
+- [06:26.920] Thank you very much.
+- [06:27.961] General?
+- [06:29.861] Gen. Guetlein: (inaudible) day for the nation to double
+- [06:31.325] down on protection homeland.
+- [06:33.360] As you're aware, our adversaries have
+- [06:35.346] become very capable and very intent on
+- [06:37.590] holding the homeland at risk.
+- [06:39.140] While we have been focused on keeping the
+- [06:41.570] peace overseas, our adversaries have been
+- [06:44.001] quickly modernizing their nuclear forces,
+- [06:46.085] building out ballistic missiles capable of
+- [06:48.221] hosting multiple warheads, building out
+- [06:50.383] hypersonic missiles capable of attacking
+- [06:52.700] the United States within an hour,
+- [06:54.300] traveling in 6,000 miles an hour,
+- [06:56.150] building cruise missiles that can navigate
+- [06:57.831] around our radar and our defenses,
+- [06:59.740] building submarines that can sneak up on
+- [07:01.696] our shores and worst yet, building space weapons.
+- [07:05.030] It is time that we change that equation
+- [07:06.368] to start doubling down on the protection of the homeland.
+- [07:08.840] Golden Dome is a bold and aggressive
+- [07:11.260] approach to hurry up and protect the
+- [07:13.681] homeland from our adversaries.
+- [07:15.350] We owe it to our children and our
+- [07:16.895] children's children to protect them and
+- [07:18.820] afford them a quality of life that
+- [07:20.828] we have all grown up enjoying.
+- [07:22.980] Golden Dome will afford that.
+- [07:25.200] I greatly appreciate your trust in me and
+- [07:27.066] your nomination in me and your
+- [07:28.427] trust in the team to deliver this.
+- [07:30.300] It is a great day for America.
+- [07:31.820] The President: And also, very importantly, we are the
+- [07:33.870] only ones that have this, we call it super
+- [07:36.170] technology, nobody else has it, and
+- [07:38.823] nobody else has nearly really near what we have.
+- [07:42.800] So this is a very exciting project.
+- [07:47.910] This is something that will --
+- [07:48.892] as the general said, close to 100 percent protection,
+- [07:50.280] so that's something we need, I think it's that very --
+- [07:52.360] and everything is going to be made
+- [07:53.740] in the USA, by the way.
+- [07:55.420] So it's something that I've been
+- [07:57.139] looking forward to for a long time.
+- [07:59.670] And I just noticed you too, Jim, you
+- [08:01.105] standing there behind you is a very
+- [08:02.501] important document, Declaration of Independence.
+- [08:05.940] And that was in the vault for
+- [08:08.670] many decades under this area.
+- [08:11.860] I have vaults with pictures on
+- [08:13.443] top of your Abraham Lincoln.
+- [08:15.650] You see, that was the original Abraham
+- [08:17.171] Lincoln, the original Washington.
+- [08:19.520] And does everybody know who the middle was?
+- [08:21.740] General Grant.
+- [08:23.720] And so it's a very exciting, you look
+- [08:25.519] over here, and above Ronald Reagan,
+- [08:27.675] you have Thomas Jefferson.
+- [08:30.110] It's Monroe from the Monroe document.
+- [08:34.000] And you know who that is, right?
+- [08:36.960] Andrew Jackson.
+- [08:38.520] So we have a lot of very exciting
+- [08:40.161] pictures on the other side, likewise.
+- [08:44.200] Just some great presidents and great people.
+- [08:47.205] And many of these people were asking about
+- [08:49.210] many of them, almost all of them were in the vaults.
+- [08:53.125] Or nearby, but generally in the vaults downstairs.
+- [08:56.500] Well, we have some great, so it's very exciting.
+- [09:00.020] And the place has become a little different
+- [09:01.485] than you first saw, Jim, right?
+- [09:02.621] Senator Banks: Yes, much better.
+- [09:04.060] The President: It's slightly better.
+- [09:05.740] But to think we had them in somewhere
+- [09:07.548] in the vaults for over 100 years.
+- [09:09.161] So it's pretty cool stuff.
+- [09:12.600] Everybody knows Jim Banks.
+- [09:15.330] He's a great congressman, and now
+- [09:16.650] he's a good senator from Indiana.
+- [09:19.040] And he might want to say a few words.
+- [09:20.730] Senator Banks: Well, your legacy with Space Force,
+- [09:22.814] Mr. President, is already big,
+- [09:25.150] but the golden dome is going to be an
+- [09:26.645] even bigger legacy for our country.
+- [09:28.635] Indiana is going to help you make it.
+- [09:30.950] The space satellites that are made
+- [09:32.626] of Fort Wayne, Indiana by L3 Harris.
+- [09:34.700] All the work done at Crane Navy Base in
+- [09:36.481] southern Indiana is going to be a big part of it.
+- [09:39.160] And Hoosiers are very proud of that.
+- [09:40.520] We're proud of you.
+- [09:41.320] Thank you very much.
+- [09:43.755] The President: It would be a big factor that you --
+- [09:44.759] a good luck and congratulations.
+- [09:45.700] You won that race by a lot.
+- [09:47.860] That was an even a contest, right?
+- [09:50.360] The President: Thank you.
+- [09:51.880] The President: Thank you very much.
+- [09:52.760] Nice.
+- [09:55.240] Please go ahead.
+- [09:56.940] I missed that.
+- [09:57.520] This is Senator Kramer.
+- [10:00.150] He's one of our best.
+- [10:01.701] You can't get any of that.
+- [10:02.860] Senator Kramer: You're very nice, Mr. President.
+- [10:04.980] And thanks for this.
+- [10:06.760] And I remember the day in your
+- [10:08.044] first term when you called.
+- [10:09.980] I was a brand new baby freshman senator
+- [10:11.969] on the Armed Services Committee and said,
+- [10:14.210] he said, I want to have a Space Force.
+- [10:16.880] Would you lead the effort on the
+- [10:18.560] Senator Armed Services Committee?
+- [10:20.580] And I felt so proud of thinking that you
+- [10:22.297] chose me and only to find out
+- [10:23.572] later no one else would do it.
+- [10:25.060] But nonetheless, it worked out
+- [10:26.849] really, really well because...
+- [10:28.725] North Dakota has some
+- [10:31.535] great space assets to the Golden Dome.
+- [10:34.581] No surprise that you would be the
+- [10:36.331] president that would come along
+- [10:38.048] and put the homeland first.
+- [10:40.610] And this is just one more example of that.
+- [10:42.440] So thanks for this and for
+- [10:43.679] allowing me to stop by.
+- [10:45.140] By the way, let me just add my strong
+- [10:46.939] endorsement in General Guetlein.
+- [10:49.000] for leading this.
+- [10:50.100] I don't know anybody better.
+- [10:51.480] For sure.
+- [10:52.020] Better equipped to do it than he is.
+- [10:53.241] The President: Everybody said that.
+- [10:54.760] Senator Kramer: That's for sure.
+- [10:55.740] The President: Dan Sullivan.
+- [10:56.620] Alaska Senator.
+- [10:57.601] Senator Sullivan: Thank you, Mr. President.
+- [10:59.400] And thank you for your continued
+- [11:01.155] leadership on missile defense.
+- [11:02.900] We were talking earlier in 2019 at the Pentagon
+- [11:07.350] you laid out a speech about missile
+- [11:09.589] defense review that had all these
+- [11:11.701] principles on missile defense.
+- [11:13.630] You articulated then during your first term.
+- [11:17.360] And now the Golden Dome is all of that.
+- [11:20.740] So you're continuing to lead.
+- [11:22.020] We really appreciate it.
+- [11:24.700] The Congress is stepping up as you
+- [11:26.090] mentioned right now in the budget reconciliation bill.
+- [11:29.120] $25 billion for the Golden Dome in what
+- [11:31.749] Senator Kramer and Senator Banks and I and many others.
+- [11:35.520] We're working on our brief view on this
+- [11:37.891] before, sir, on our Golden Dome Act.
+- [11:41.020] Which we think we'll have in terms of
+- [11:43.010] legislation that can help cement
+- [11:44.694] what you're doing right here.
+- [11:47.250] Getting the Congress behind it,
+- [11:48.598] not just with the funding, but with authorizations.
+- [11:51.030] So we're working closely with Secretary
+- [11:53.303] Hegseth, General Guetlein, the whole team.
+- [11:55.980] So we're very honored to be here, sir.
+- [11:57.740] You know, Alaska is the cornerstone of
+- [11:59.584] missile defense right now in terms of
+- [12:01.381] ground-based missile interceptors.
+- [12:03.500] In terms of radar systems and
+- [12:04.853] tracking incoming missiles.
+- [12:07.410] So my state is honored to continue to play
+- [12:09.505] a critical role in all of this and build on it.
+- [12:12.340] And we're really excited to be here.
+- [12:13.881] The President: Thank you very much.
+- [12:15.700] Any questions?
+- [12:17.280] The Press: You have mentioned at the beginning of
+- [12:18.699] your remarks that this was a campaign promise of yours.
+- [12:21.640] Have military commanders asked
+- [12:23.267] for this system specifically?
+- [12:25.090] Because NORAD had said previously
+- [12:26.698] that the current system was adequate.
+- [12:29.410] So what does this get the United States?
+- [12:33.180] The President: There really is no current system.
+- [12:36.910] We have certain areas of missiles and
+- [12:38.015] certain missile defense, but there's no system.
+- [12:42.400] We just have some very capable weapons
+- [12:44.149] that hopefully we never have to use.
+- [12:45.761] But we have some very capable weapons.
+- [12:49.030] Now this is a very different league.
+- [12:49.718] There's never been anything like this.
+- [12:50.660] This is something that's going to be very protective.
+- [12:54.000] I think you can rest assured
+- [12:55.294] there'll be nothing like this.
+- [12:56.780] Nobody else is capable of building it either.
+- [12:58.980] The Press: (inaudible) other military commanders --
+- [13:01.585] did they ask you to do this?
+- [13:03.700] The President: Well, they had it differently.
+- [13:05.100] I suggested it and they all said, we love the idea, sir.
+- [13:08.800] That's the way it's got to be, right?
+- [13:10.430] But they want it and they wanted
+- [13:11.807] it badly once it was suggested.
+- [13:13.470] I don't know if they have a thought
+- [13:15.460] they would be lucky enough to have it.
+- [13:18.440] But we were able to get it done.
+- [13:20.130] And we have all the funding, so pretty much tucked away.
+- [13:23.140] I think most people feel it's
+- [13:24.300] very important to have you up.
+- [13:25.560] The Press: Thank you, Mr. President.
+- [13:26.540] When you first announce this idea,
+- [13:28.980] critics said it would be prohibitively
+- [13:30.906] expensive, potentially ineffective,
+- [13:33.165] and could trigger an arms race in space?
+- [13:36.510] What do you say to those critics about that?
+- [13:37.340] The Presidet: Well, they're wrong,this is about as
+- [13:39.379] close to perfect as you can have.
+- [13:44.055] And I tell you, Canada wants to be a part
+- [13:46.292] of it, which be fairly small expansion.
+- [13:50.185] But we'll work with them on pricing.
+- [13:52.080] Deal with them on pricing,
+- [13:53.278] they know about it very much.
+- [13:54.460] They've asked to be a part of it, actually.
+- [13:56.720] They've asked us to be a part of it.
+- [13:59.200] I think it's something that is great
+- [14:01.512] if you can to afford to do it.
+- [14:04.060] We can afford to do it.
+- [14:05.000] We took in $5.1 trillion in the last
+- [14:07.494] four days in the Middle East.
+- [14:10.530] And when you think about it,
+- [14:12.084] this is a tiny fraction of that.
+- [14:14.700] But we make it all here.
+- [14:15.840] We're going to make it all here.
+- [14:19.120] I will tell you, an adversary told me
+- [14:21.640] a very big adversary told me the most
+- [14:24.410] brilliant people in the world are Silicon Valley.
+- [14:26.835] He said, we cannot duplicate them.
+- [14:28.020] We can't.
+- [14:28.760] This is somebody that I won't tell
+- [14:30.120] you who it is, but you'd be amazed.
+- [14:32.630] We have the most brilliant minds in
+- [14:34.030] the world doing this kind of thing,
+- [14:35.480] the equipment, the space, the computers, everything.
+- [14:37.601] But he said, we just can't duplicate
+- [14:40.276] what you have there in Silicon Valley.
+- [14:43.480] We never have been able to.
+- [14:46.590] There's a very strong group of people
+- [14:48.361] and very strong minds, but they can't.
+- [14:50.280] So we have things that nobody else can have.
+- [14:52.780] You see what we've done helping Israel with that.
+- [14:56.220] You probably wouldn't have an Israel.
+- [14:58.640] It launched probably 500 missiles altogether.
+- [15:01.040] And I think one half of a missile got through.
+- [15:04.200] And it was only falling to the ground to scrap metal.
+- [15:07.260] It's pretty amazing.
+- [15:10.720] And this is in terms of technology,
+- [15:12.400] far advanced from that system.
+- [15:14.420] The Press: What about the adversaries?
+- [15:16.380] Have you addressed Russia's ventures in
+- [15:18.750] space with a space-based nuclear weapon
+- [15:22.270] and told Putin to stop in your conversations with him?
+- [15:23.801] The Presidet: We haven't discussed it,
+- [15:25.277] but at the right time we will.
+- [15:28.760] The Press: (inaudible)
+- [15:31.240] keeping Americans safe with this.
+- [15:32.900] Can you talk about the timeline?
+- [15:34.720] How long will this take?
+- [15:37.580] The Presidet: We think it's going to be about a
+- [15:38.900] little bit less than three years.
+- [15:41.110] And we'll have a big phase in.
+- [15:43.830] You know, we're starting immediately with $25 billion.
+- [15:46.700] It'll cost about $175 billion completed.
+- [15:49.820] But we think in two and a half to three years.
+- [15:52.415] The Press: How confident are you can get
+- [15:53.705] the funding needed for Congress?
+- [15:54.940] The Presidet: Yeah.
+- [15:56.300] It's amazing how easy this one is to fund.
+- [15:59.070] You know, some funding is tough and some is easy.
+- [16:01.220] When we say we're going to save everyone's
+- [16:03.433] lives in a crazy world, that
+- [16:04.909] seems to be very easy to get.
+- [16:07.180] Yeah, we've already spoken to everybody
+- [16:08.740] who have to speak to everybody.
+- [16:10.560] I would say, Dan, everybody's in line here.
+- [16:12.810] Senator Banks; Yes, sir. there's $25 billion as a down
+- [16:14.625] payment in the budget reconciliation bill right now.
+- [16:17.960] The Presidet: People actually love it.
+- [16:20.960] The Press: Mr. President, on Russia,
+- [16:22.010] are you worried about the reports on
+- [16:24.194] the military build up along the
+- [16:26.118] borders towards Finland and Norway?
+- [16:28.420] The Presidet: No.
+- [16:29.260] I don't worry about that at all.
+- [16:30.900] They're going to be very safe.
+- [16:32.601] Those two countries,
+- [16:34.050] they're going to be very safe.
+- [16:35.410] The Press: And the secondly, sir, if I may.
+- [16:37.320] President Zelensky said today that he's hoping for
+- [16:39.636] you to impose new sanctions on Russia.
+- [16:42.700] Are you considering that?
+- [16:44.080] The Presidet: Well, that's going to be my determination.
+- [16:45.980] That's going to be nobody else's determination.
+- [16:47.940] We'll see how Russia behaves.
+- [16:50.120] We see what's going to happen.
+- [16:52.240] We have a pretty critical time right now.
+- [16:55.910] I had a talk yesterday for two and a half
+- [16:57.464] hours with President Putin, as you know.
+- [17:00.525] I also spoke to all of the European...
+- [17:01.701] to many of them leaders, but
+- [17:03.647] they were representing the whole.
+- [17:06.460] And I think we had a very good conversations yesterday.
+- [17:10.440] The Press: Thanks, Mr. President.
+- [17:13.210] What companies have asked to be
+- [17:13.794] involved in building this system?
+- [17:14.440] And have you decided on who will be building it?
+- [17:16.440] The Presidet: Yeah, I think I'll let you answer that.
+- [17:18.770] You can mention some of yours from Alaska's involved.
+- [17:22.360] Alaska's a big part of it because,
+- [17:23.852] location, they're sort of perfect.
+- [17:25.740] Because your first line of
+- [17:27.366] defense in certain instances.
+- [17:30.320] And Kevin will tell you that his state's involved.
+- [17:33.660] But honestly, all Georgia is going to be very big.
+- [17:36.820] Florida is going to be very big.
+- [17:38.150] They're all going to be very big.
+- [17:39.580] Jim, do you want to talk about Indiana?
+- [17:41.140] Senator Banks: Yeah, in Fort Wayne, Indiana, where i live
+- [17:43.540] we make all the space satellites at L3-Harris.
+- [17:47.000] Across the board, we're the top
+- [17:48.409] manufacturing state in the country.
+- [17:50.140] By the way, the tarrifs have been very good.
+- [17:52.760] Our auto-manufacturing --
+- [17:53.301] The Presidet: They've been so good.
+- [17:54.760] Senator Banks; But this is going to be really good
+- [17:56.432] for the defense industry in my state.
+- [17:59.520] There's so much money involved here.
+- [18:01.440] They're going to be a lot of American companies involved.
+- [18:04.480] The Presidet: You might also say you're talking about the tariffs.
+- [18:07.930] He has some of the biggest auto-plants
+- [18:09.510] in the world moving into Indiana.
+- [18:11.130] Only for one reason.
+- [18:12.000] Maybe two reasons.
+- [18:12.940] November 5th.
+- [18:14.700] And the tariffs.
+- [18:16.240] But the tariffs have driven
+- [18:17.985] tremendous business into this country.
+- [18:21.040] But you have one of the biggest in
+- [18:22.542] the world.
+- [18:24.001] Senator Banks: The new Honda Civic made in Indiana.
+- [18:26.150] GM has added jobs.
+- [18:28.140] Eli Lilly moving pharmaceutical
+- [18:29.955] manufacturers from China to
+- [18:31.403] the United States, $27 billion.
+- [18:35.040] You go on and on with good news in Indiana
+- [18:36.529] and across the country because of the tariffs.
+- [18:38.080] The Presidet: Our country was cold as ice a year ago.
+- [18:43.460] And now we have the hottest country in the world.
+- [18:45.480] This is the hottest country in the world.
+- [18:47.100] Nobody even close.
+- [18:48.220] You look at even this last trip that I made.
+- [18:51.040] The respect that is paid to our country.
+- [18:53.830] We've went from being laughed at all over the world.
+- [18:57.460] And now with the hottest country in the world by far.
+- [19:00.700] Dan, go ahead, please.
+- [19:01.705] Senator Sullivan: Yes, sir,
+- [19:02.717] Mr. President, I think when you
+- [19:03.865] look at the system that you've laid out,
+- [19:06.280] it's an idea your executive order of a layered defense.
+- [19:10.350] So you have an initial ground-based
+- [19:12.042] missile interceptors which are made by
+- [19:13.881] some of the big defense companies.
+- [19:17.900] Lockheed, Martin, Raytheon.
+- [19:19.041] But the beauty of your vision,
+- [19:21.095] Mr. President, is that it's layered,
+- [19:24.035] it's open architecture, and it goes up into space.
+- [19:26.635] So this is going to be some of the new
+- [19:28.825] defense tech companies that are very
+- [19:31.450] interested in it and can bring missile
+- [19:33.618] defense at a cost that I don't think you said
+- [19:37.734] Mr. President is unimaginable
+- [19:38.950] in terms of how much lower the cost is.
+- [19:41.160] So it's all across the board in terms of companies.
+- [19:44.200] Senator Kramer, I just met with a bunch
+- [19:46.171] from last week that are interested in this.
+- [19:49.430] And you said it earlier, Mr. President.
+- [19:52.030] Our technology sector is head to shoulders
+- [19:55.175] above any other place in the world and
+- [19:58.021] they're going to be a key part of this,
+- [19:59.437] and I think that's why it makes it so exciting.
+- [20:02.120] Senator Kramer: Mr. President, I think one of the
+- [20:04.001] things that you alluded to this, the new
+- [20:06.281] autonomous space-age defense ecosystem is
+- [20:09.531] more about Silicon Valley than
+- [20:11.923] it is about big metal, right?
+- [20:14.750] And so what's exciting about this is
+- [20:16.915] it makes it available to everybody,
+- [20:19.785] to participate, to compete, big companies,
+- [20:22.100] mid-sized companies, small companies,
+- [20:24.360] but General Guetlein is the perfect person
+- [20:26.242] again to sort all that out because he
+- [20:29.000] understands how it has to work together ultimately.
+- [20:31.080] The Presidet: And Pete, maybe we close with you.
+- [20:34.585] We have been discussing this for a long time.
+- [20:36.080] Peter and I used to discuss it when I was
+- [20:38.301] going to go on a show that he did very
+- [20:40.361] well in tremendous ratings, but only
+- [20:42.318] all he wanted to talk about was the military.
+- [20:44.400] He didn't want to talk about
+- [20:45.365] anything else, we used to talk about this.
+- [20:48.620] How about you closing it out?
+- [20:50.140] Secretary Hegseth: Yes, sir.
+- [20:51.120] I mean, like I said, without your vision
+- [20:53.186] willing to say and do things when other
+- [20:55.850] people wanted to look away and pretend
+- [20:57.573] like the threat didn't exist, or be
+- [20:59.161] focused on foreign adventurism, some
+- [21:01.231] other threat that we've been told is affecting us.
+- [21:04.425] When you looked at the data, sir, from Russia
+- [21:06.025] to the Communist Chinese and other,
+- [21:07.580] their capabilities, what they're trying
+- [21:09.555] to do to supersede us and threaten us,
+- [21:11.680] how do we find the best innovators,
+- [21:13.970] the best military leaders, the best
+- [21:16.710] companies, tech companies, you mentioned
+- [21:18.310] open architecture, that's exactly right.
+- [21:20.260] So multiple companies can pour into this, sir.
+- [21:22.160] It's a layered defense.
+- [21:23.790] So if you miss out one, you catch at
+- [21:25.535] the next, and it integrates existing
+- [21:27.281] technologies that can speak to each other.
+- [21:29.640] So it moves quickly while also
+- [21:31.483] investing in further ranging space-based interceptors.
+- [21:35.040] So our enemies, our adversaries are
+- [21:36.608] going to pay a lot of attention to this.
+- [21:38.401] Just like they have to President
+- [21:39.943] Trump from day one, sir.
+- [21:41.300] You're defending the homeland,
+- [21:42.710] defending the American people.
+- [21:44.680] It's going to benefit my kids,
+- [21:46.098] grandkids, all of ours in this room.
+- [21:48.160] So thank you for your leadership.
+- [21:50.300] The Presidet: Thank you very much.
+- [21:51.200] Great job, everybody.
+- [21:52.360] Thank you.
+- [21:52.480] Thank you very much.
+- [22:01.880] No cuts to Medicaid.

@@ -1,0 +1,100 @@
+<!-- source: https://www.youtube.com/watch?v=UpiT6ifKGPA -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: UpiT6ifKGPA -->
+<!-- date_published: 2025-11-12T19:24:20+00:00 -->
+<!-- date_accessed: 2026-06-02T01:10:43.701550+00:00 -->
+
+# Transcript: Road to Liberty: Lexington and Concord
+
+- [00:03.560] It was chaos on the green.
+- [00:08.480] Smoke,
+- [00:10.240] shouts,
+- [00:11.840] bayonets edging [music] forward, and it
+- [00:14.000] all started with a single, unexpected,
+- [00:17.000] and unforgettable shot.
+- [00:28.960] Blessed be the Lord my strength, which
+- [00:31.720] teacheth [music] my hands to war,
+- [00:34.080] and my fingers to fight, my shield.
+- [00:37.560] And he
+- [00:44.840] We were remembered as minutemen
+- [00:48.280] due to our duty to answer when called
+- [00:49.760] upon in a moment's notice.
+- [00:56.000] But not all of us were trained.
+- [00:58.950] >> [bell]
+- [00:59.600] >> Many more were simple farmers,
+- [01:02.400] shopkeepers, [music] and neighbors
+- [01:05.480] who came to defend our homes.
+- [01:08.440] We were the first line of defense
+- [01:10.080] against the greatest military power in
+- [01:12.760] the world.
+- [01:15.240] What looked like 200 trained soldiers
+- [01:17.120] marched toward us.
+- [01:20.520] But they were only the tip of the spear.
+- [01:23.760] The first from a force of about 700
+- [01:25.840] redcoats
+- [01:27.440] marching toward Concord to seize
+- [01:29.160] weapons,
+- [01:30.400] munitions, and supplies,
+- [01:33.400] and to capture any rebel leaders they
+- [01:35.440] found.
+- [01:36.960] Captain Parker was ill that morning. His
+- [01:39.360] voice thin in the cold.
+- [01:42.040] Some of us wondered if he was too frail
+- [01:43.960] to lead.
+- [01:45.600] And if he could not stand,
+- [01:47.840] how could we?
+- [01:57.440] Disperse, ye rebels! LAY DOWN YOUR ARMS!
+- [02:03.640] STAND YOUR GROUND.
+- [02:05.680] Don't fire unless fired upon.
+- [02:09.840] But if they mean to have a war,
+- [02:12.800] let it begin here!
+- [02:19.516] >> [bell]
+- [02:30.640] >> Oh, my lord.
+- [02:38.880] No one knows who fired first,
+- [02:41.680] but it was clear to all who the victor
+- [02:43.480] was.
+- [02:49.320] We lost eight men,
+- [02:51.400] 10 wounded.
+- [03:00.160] The British [music] only suffered a
+- [03:01.440] single wound,
+- [03:04.360] and continued on to Concord.
+- [03:10.800] They looked destined to take what they
+- [03:12.000] came for.
+- [03:15.680] Drilled ranks,
+- [03:17.400] steel at the ready,
+- [03:20.480] hours ahead of us.
+- [03:26.800] Parties spread through Concord,
+- [03:29.360] breaking open barrels,
+- [03:32.120] setting fire to carts.
+- [03:35.320] Then the word ran along our lines,
+- [03:38.120] form on the river.
+- [03:41.560] If they crossed,
+- [03:43.880] the town was lost.
+- [03:50.720] At the bridge, they expected difference.
+- [03:55.040] What they met
+- [03:55.802] >> [music]
+- [03:56.040] >> was a wall.
+- [03:57.680] They fired as one.
+- [04:00.800] And for the first time, the king's line
+- [04:02.600] bent.
+- [04:06.600] And everywhere along the road,
+- [04:08.600] minutemen [music] stood and would not
+- [04:10.200] move.
+- [04:13.320] I was with Captain Parker as we struck
+- [04:15.000] back.
+- [04:21.347] >> [cough and clears throat]
+- [04:22.480] >> Load and be ready.
+- [04:24.680] We'll give them a remembrance.
+- [04:26.640] The British staggered,
+- [04:29.320] and their long [music] retreat began.
+- [04:31.360] At North Bridge, the minutemen did not
+- [04:33.080] break.
+- [04:34.400] They stood,
+- [04:35.720] fired,
+- [04:36.880] and watched the empire [music] turn.
+- [04:39.200] Here, ordinary men committed their
+- [04:41.240] lives,
+- [04:42.480] so that in Philadelphia, [music]
+- [04:43.800] the founders could commit their names to
+- [04:45.800] liberty.

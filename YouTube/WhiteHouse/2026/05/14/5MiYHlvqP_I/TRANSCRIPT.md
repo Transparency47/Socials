@@ -1,0 +1,1203 @@
+<!-- source: https://www.youtube.com/watch?v=5MiYHlvqP-I -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 5MiYHlvqP-I -->
+<!-- date_published: 2026-05-14T17:33:54+00:00 -->
+<!-- date_accessed: 2026-06-02T02:33:47.506804+00:00 -->
+
+# Transcript: Vice President JD Vance Delivers Remarks in Bangor, Maine
+
+- [00:07.690] Male Speaker: Please welcome Keith Sonderling,
+- [00:10.160] Acting Secretary, U.S. Department of Labor.
+- [00:14.380] (applause)
+- [00:23.540] ♪ (country music playing) ♪
+- [00:32.200] Keith Sonderling: All right, Maine, we're here.
+- [00:34.340] Are you excited? Are you excited to hear
+- [00:39.110] from our incredible vice president how he is --
+- [00:44.140] How he is working every single day
+- [00:46.480] to protect your taxpayer dollars.
+- [00:50.350] Well, there's no better time or no better place
+- [00:52.860] than to be in Maine to have that discussion.
+- [00:55.400] So I'm Keith Sonderling, your acting Secretary of Labor,
+- [00:59.280] and in this capacity, I have the privilege
+- [01:02.640] to serve on the Vice President's task force to eliminate fraud.
+- [01:12.880] That is the honor of my life. You know why?
+- [01:16.040] Because Americans like you, you're sick and tired
+- [01:18.770] of watching your hard-earned tax dollars
+- [01:21.310] get stolen by fraudsters, scammers, and criminals,
+- [01:26.820] and I know you're also sick and tired of Washington D.C.
+- [01:30.000] Turning our back on you and not getting to the bottom of this.
+- [01:39.330] Under President Trump's leadership
+- [01:41.290] and thanks to Vice President Vance's
+- [01:43.200] willingness to make a generational change,
+- [01:46.260] those days are over. You know why?
+- [01:54.090] Because this administration believes government
+- [01:56.050] should serve American workers and job creators.
+- [01:58.830] All of you in the audience and all of you behind me.
+- [02:05.240] We are not serving those gaming the system anymore.
+- [02:11.600] And nowhere was government failure more obvious
+- [02:15.100] than in our unemployment insurance system.
+- [02:18.580] During the pandemic, what started as emergency relief
+- [02:21.800] for hardworking Americans
+- [02:23.320] became one of the largest taxpayer dollar frauds
+- [02:27.300] in modern history.
+- [02:29.630] So $888 billion in unemployment benefits
+- [02:32.900] were paid during that time, but guess what?
+- [02:35.670] It's estimated as much as $135 billion
+- [02:38.880] of that may have been stolen through fraud.
+- [02:41.660] Think about that, $134 billion of your money, gone.
+- [02:47.680] That was meant for you. That was met for your families.
+- [02:50.270] It was meant hardworking Americans.
+- [02:52.090] But instead, criminals,
+- [02:54.060] fraud rings and overseas scammers took this money.
+- [02:57.430] But now, due to Vice President's leadership and his task force,
+- [03:01.500] we are working every day to make sure that never happens,
+- [03:04.800] to get that money back
+- [03:06.050] and hold those accountable with law enforcement.
+- [03:16.040] Since the task force began,
+- [03:17.510] we've already uncovered widespread fraud
+- [03:20.520] and are aggressively preventing it from ever happening again.
+- [03:23.820] So here's some examples. We found that nearly 29 billion
+- [03:26.860] went to the same social security numbers
+- [03:29.300] across multiple states. Oh, hold on. I got better ones.
+- [03:35.040] 139 million got sent to dead people.
+- [03:42.510] All right, ready for another one?
+- [03:46.180] All right this is a good one.
+- [03:48.030] One billion was sent to children under the age
+- [03:51.920] of 14 seeking unemployment insurance.
+- [03:57.540] Under 14. That doesn't work because they can't work.
+- [04:00.720] So it got so bad that as much as 17 billion dollars in fraud
+- [04:04.370] may have gone out in a single month.
+- [04:06.300] We learned that our systems were overwhelmed and exploited.
+- [04:09.350] And who got stuck with the bill? All you. Yeah, the taxpayers.
+- [04:14.860] Maine is a smart group because Maine knows all too well
+- [04:19.060] about these pandemic uninsurance programs.
+- [04:21.320] More than 93 million dollars in overpayments
+- [04:24.210] were put on the books here in Maine.
+- [04:27.330] And barely $7 million has been recovered.
+- [04:29.820] But that's changing. Thanks to the Vice President,
+- [04:33.690] paying benefits first and verifying later never works.
+- [04:38.510] We must prevent fraud before it happens.
+- [04:42.260] And President Trump and Vice President Vance
+- [04:44.450] looked at this disaster and said,
+- [04:46.090] not in this administration.
+- [04:53.490] Now the Department of Labor
+- [04:54.810] is taking action to restore integrity with one goal,
+- [04:57.860] to protect your taxpayer dollars.
+- [05:00.840] We are strengthening our identity systems,
+- [05:02.880] we're working with artificial intelligence
+- [05:05.180] to make sure that this never happens again
+- [05:07.430] with the most advanced systems
+- [05:09.080] and we're deploying strike teams in states like California.
+- [05:13.370] And we're cracking down on organized fraud.
+- [05:15.980] And above all, I'm working very closely
+- [05:17.830] with our Inspector General, Anthony D'Esposito,
+- [05:20.480] who is fighting every single day
+- [05:21.840] to recover stolen tax dollars before they disappear forever.
+- [05:26.080] Currently, the Department of Labor
+- [05:27.350] is working on recovering $520 million
+- [05:30.320] that we had banks freeze.
+- [05:31.860] We're also tracking down $912 million
+- [05:35.270] sitting on prepaid debit cards in dormant accounts
+- [05:38.080] because every dollar we recover is a dollar that belongs to you,
+- [05:42.420] the American people.
+- [05:48.320] And finally, this administration believes
+- [05:51.240] that unemployment insurance
+- [05:52.490] was never meant to be a permanent way of life.
+- [05:55.410] The system was only designed as a temporary bridge
+- [05:57.890] to get workers back on their feet.
+- [06:00.130] So not only is this administration
+- [06:01.810] restoring accountability to these programs,
+- [06:04.070] but more importantly, we're bolstering workforce
+- [06:06.020] development programs that work, like apprenticeships.
+- [06:09.300] And here in Maine, shipbuilding is coming back.
+- [06:11.910] The president promised the industry would come back.
+- [06:18.510] President Trump is delivering on these jobs here in Maine,
+- [06:22.270] and we're making sure that you have the skilled workforce,
+- [06:24.670] not to create a dependency on these unemployment
+- [06:26.950] insurance systems that were scammed,
+- [06:28.830] but to make sure that you all have the skills
+- [06:30.770] to be in high paying American jobs.
+- [06:34.090] So as I wrap up, let me be clear.
+- [06:36.200] And as you're about to hear from our incredible vice president,
+- [06:39.120] he has zero tolerance for fraud.
+- [06:47.870] His task force is restoring accountability and trust,
+- [06:50.980] ensuring that all of your taxpayer dollars benefit you.
+- [06:55.120] He is fighting relentlessly
+- [06:56.350] to make the federal government accountable
+- [06:58.410] to the American people again,
+- [07:00.290] and it's an honor to work alongside him
+- [07:02.720] as we put you first.
+- [07:04.760] Now, for what you all have been waiting for,
+- [07:07.930] it is my absolute privilege to introduce the Vice President
+- [07:12.600] of the United States of America,
+- [07:14.550] JD Vance.
+- [07:21.150] ♪ (rock music playing) ♪
+- [07:47.150] (cheers and applause)
+- [07:52.150] The Vice President: Well.
+- [07:54.060] We love you too and it's great to be in Maine today.
+- [08:00.550] Now before we get started, I got to poll the crowd
+- [08:02.440] a little bit because, you know, it's lunchtime.
+- [08:05.150] And so when we get back on Air Force 2,
+- [08:07.050] I told the team we need to get lobster rolls
+- [08:09.190] now that we're here in Maine.
+- [08:12.640] So what is the recommendation of this Bangor crowd?
+- [08:15.010] Where do we get lobster rolls from?
+- [08:20.170] We have a lobster roll guy right here?
+- [08:23.020] Okay, fantastic. So where do I need to go?
+- [08:30.810] Okay.
+- [08:32.320] Whoa. Eagles Nest. Eagles Nest.
+- [08:38.100] What about somebody, I heard Lobster Boy.
+- [08:39.780] Is that, okay.
+- [08:44.510] So, word, word to the wise, never come to a crowd of Maine
+- [08:48.550] and ask them where to buy lobster rolls
+- [08:50.150] because I've gotten 14 answers in the past 15 seconds,
+- [08:54.060] but it sounds like we got plenty of options,
+- [08:56.490] and I'm proud to be here in Maine
+- [08:57.970] and proud to be in a state with hardworking people,
+- [09:01.340] hardworking fishermen, hardworking shipbuilders
+- [09:03.910] and the people who make the United States run.
+- [09:06.830] God bless you, Maine. I'm proud to be here.
+- [09:15.950] Now, I want to give a, a great shout out
+- [09:17.660] to our acting labor secretary,
+- [09:18.970] Keith, who's done an amazing job helping us fight fraud
+- [09:22.160] but also protect American working people.
+- [09:24.760] One of the things the Trump administration,
+- [09:27.100] the president has ordered us to do from day one
+- [09:29.810] is we are trying to create good American jobs
+- [09:33.130] for the American people who is sick of leadership that sips,
+- [09:37.330] ships our jobs overseas.
+- [09:39.320] Aren't we proud to have a president
+- [09:40.690] who protects your jobs and keeps them right here in America?
+- [09:47.860] But here's the thing, my friends,
+- [09:49.130] because you all work hard, because you all pay your taxes,
+- [09:53.370] because you do things the right way,
+- [09:56.000] it is time to have leadership in Washington
+- [09:58.940] that treats you the right way
+- [10:00.460] and protects those hard earned tax dollars.
+- [10:03.320] When the president of the United States said,
+- [10:05.270] "JD, we've got a fraud problem, and I want you to tackle it,"
+- [10:09.020] I was so proud and so happy to be able to do it
+- [10:11.730] because I realized that fraud isn't just about saving money.
+- [10:15.780] It's not just about protecting taxpayers,
+- [10:17.970] it's about protecting you.
+- [10:19.690] The money you send to the government
+- [10:21.200] and the services that you rely on.
+- [10:22.990] So for once, for the first time in a very long time,
+- [10:26.620] you've got an administration in Washington DC
+- [10:29.160] that is fighting for you,
+- [10:30.820] fighting to protect your tax dollars
+- [10:32.760] and fighting to put the fraudsters in prison,
+- [10:35.340] which is where they belong.
+- [10:40.190] And, and we're going to talk about that
+- [10:46.720] because everybody asked me. The president asked me,
+- [10:48.770] I hear from people all the time who say,
+- [10:50.790] "Is, is going after fraud hard?" And I say, "Unfortunately no,
+- [10:56.430] because there is a lot of fraud in the federal government."
+- [10:58.380] It's like fishing in a barrel. There is always something.
+- [11:01.170] Every week I get a report from these guys.
+- [11:03.600] We're going to talk about that in a second,
+- [11:05.440] but it's unbelievable,
+- [11:07.220] unbelievable how much you have been fleeced
+- [11:10.110] by your own government over the past 15, 20, 30 years.
+- [11:14.100] Nobody, nobody was looking at this.
+- [11:17.220] Nobody was asking difficult questions like, for example,
+- [11:21.020] are dead people getting food stamps? Okay?
+- [11:25.240] Call me, call me old-fashioned,
+- [11:26.840] but I don't, I don't think that dead people eat,
+- [11:29.000] so certainly they don't need food stamps.
+- [11:32.950] Unfortunately, they vote for Democrats.
+- [11:36.210] They don't vote for us, my friends.
+- [11:39.880] But why is it that we have people
+- [11:41.450] who are driving Lamborghinis?
+- [11:42.740] And that is true. People driving Lamborghinis
+- [11:45.360] who are getting low income assistance
+- [11:47.260] that's supposed to go for housing and food for our people.
+- [11:50.840] Why is it that we have people in hospice
+- [11:54.850] claiming hospice benefits
+- [11:57.000] but who have no terminal illnesses?
+- [11:59.230] And by the way, here's the crazy thing.
+- [12:01.650] It's very often it's not a person
+- [12:04.140] who's even using their own identity.
+- [12:06.270] They're claiming that somebody else,
+- [12:08.460] they're, they're stealing somebody else's identity,
+- [12:10.690] claiming hospice services and then when that hardworking
+- [12:14.430] American goes to apply for some other benefit,
+- [12:17.070] they get tagged by the bank as being a fraudster,
+- [12:19.830] even though it wasn't them.
+- [12:21.200] It was somebody who stolen their identity.
+- [12:23.380] Who here knows somebody who's had their identity stolen?
+- [12:26.900] Isn't that a shame?
+- [12:28.170] At least half of the hands shot up
+- [12:30.610] and the reason why we've allowed identity theft
+- [12:33.630] to fester in this country
+- [12:35.430] is because the government wasn't going after fraud.
+- [12:38.300] And ladies and gentlemen,
+- [12:39.520] that changed the moment Donald J. Trump
+- [12:41.570] became the president of the United States.
+- [12:46.880] Now, I want to talk about all that,
+- [12:49.510] but I, I'm going to give a few notes of shout-out here
+- [12:51.840] because we have a lot of great local officials
+- [12:54.420] and a lot of great future officials that are here today.
+- [12:58.270] And first, we have your great former governor, Paul LePage.
+- [13:02.820] Paul, where are you, man? There he is.
+- [13:11.280] Now, Paul is a great guy, a gr-
+- [13:13.050] -- guy who loves the state of Maine,
+- [13:14.310] and we're going to talk a little bit about
+- [13:15.600] how he was the biggest advocate for your tax dollars
+- [13:19.360] and the biggest threat to fraudsters
+- [13:20.950] that ever existed in the state of Maine.
+- [13:22.840] And here's the, here is the,
+- [13:24.050] here's the problem is fraud has festered in Maine
+- [13:28.160] because this guy is no longer the governor of Maine,
+- [13:31.400] so we're going to send him to Washington
+- [13:33.170] and fight fraud at the federal level.
+- [13:40.300] Now my, now my, my, my friend and former
+- [13:43.090] Senate colleague, Susan Collins, was not able to be here.
+- [13:45.750] Susan is back in DC. She doesn't like to miss votes.
+- [13:48.650] And here's the thing I'll say about Susan Collins is sometimes
+- [13:52.340] I get frustrated with Susan Collins.
+- [13:54.970] I almost wish that she was more partisan.
+- [13:58.120] But the thing I love about Susan is she is independent
+- [14:01.000] because Maine is an independent state.
+- [14:03.300] And, frankly, if she was as partisan
+- [14:05.950] as I sometimes wish that she was,
+- [14:08.080] she would not be a good fit for the people of Maine.
+- [14:11.040] So let's give a shout-out to Susan Collins
+- [14:12.760] who's doing a great job.
+- [14:19.190] We have got Senate GOP leader, Trey Stewart. Where is Trey at?
+- [14:22.250] Raise your hand, Trey, good to see you, man.
+- [14:26.820] A young guy, a good-looking guy,
+- [14:29.050] younger and better-looking than I am.
+- [14:30.670] So I don't like you, Trey. I don't like it.
+- [14:33.350] But you're doing a good job.
+- [14:34.970] We got House GOP leader, Billy Bob Faulkingham.
+- [14:38.630] Where is Billy Bob?
+- [14:47.130] We've got ranking member Chad Perkins.
+- [14:49.400] Where is Chad Perkins at? Chad, thank you, man.
+- [14:56.080] And we've got the county sheriff, Troy Morton.
+- [14:58.370] Where is the county sheriff at? Troy, thank you.
+- [15:04.600] Thank you for your service and for all that you
+- [15:06.560] and your law enforcement folks are doing for our great country.
+- [15:09.490] We've also got some reporters from The Maine Wire,
+- [15:12.470] people who have been fighting,
+- [15:20.360] people who have been fighting fraud.
+- [15:21.910] So let's give a round of applause
+- [15:23.410] to Jon Fetherston and Steve Robinson.
+- [15:29.140] See you, guys.
+- [15:34.800] So, and so here's the thing that I've learned in fighting fraud
+- [15:37.370] for the last few months and focus on this issue
+- [15:39.880] is that fraud is the ultimate non-victimless crime.
+- [15:44.890] There are multiple victims in fraud.
+- [15:47.250] The, we, what we think about
+- [15:48.570] when somebody steals your tax dollars and goes
+- [15:50.850] and spends it on something it's not supposed to,
+- [15:52.880] supposed to be spent on,
+- [15:54.210] we think of you all as the victims,
+- [15:55.800] the American taxpayer, the main taxpayer,
+- [15:57.930] the people who wake up, who go, go to work,
+- [16:01.230] who do what they're supposed to do
+- [16:02.780] and don't want their money stolen by people
+- [16:04.610] who are doing the opposite of what they're supposed to do.
+- [16:07.380] You were the first victim of fraud.
+- [16:09.390] But you know what I, also I've realized
+- [16:10.920] is that you're not the only victim of fraud.
+- [16:13.120] Because when people steal your money
+- [16:15.530] and it doesn't go to where it's supposed to go,
+- [16:17.680] there are a lot of people who are out there
+- [16:19.340] who are suffering in the process.
+- [16:21.150] And I'm talking about physicians
+- [16:23.520] who are denied their Medicaid reimbursements
+- [16:27.330] because a fraudster stole their identity
+- [16:29.160] and charged for services that weren't actually being provided.
+- [16:32.150] I'm talking about the good doctors
+- [16:33.770] who do what they're supposed to,
+- [16:35.690] and don't like it when corrupt healthcare providers go
+- [16:39.350] and claim services that aren't even necessary.
+- [16:43.600] So then the victim is the doctor that gets stolen from,
+- [16:46.660] it's the taxpayer that gets stolen from,
+- [16:48.790] but it's also the innocent patient
+- [16:50.680] who should be able to know
+- [16:52.070] that when their doctor prescribes something
+- [16:53.860] it's meant for them, and it's good for them.
+- [16:56.510] I'm talking about the construction worker
+- [16:58.440] who can't buy a cell phone.
+- [17:00.560] Because when an illegal alien goes and steals their identity
+- [17:04.090] and applies for SNAP benefits, now, all of a sudden,
+- [17:06.740] they're tagged in the banking system,
+- [17:08.720] their credit score is ruined, not because they sing- --
+- [17:11.830] did a single thing wrong
+- [17:13.210] but because somebody stole their identity.
+- [17:16.680] Fraud is exactly what happens
+- [17:19.500] when you've got a government
+- [17:20.920] that is not fighting for the American people,
+- [17:23.050] but is fighting for fraudsters and illegal aliens,
+- [17:25.970] and it had to stop. And under the Trump administration,
+- [17:29.240] we are fighting it every single day.
+- [17:39.880] And, and again, it, it is every single day
+- [17:43.890] I learn of something new.
+- [17:45.100] I learn about people who say
+- [17:47.250] that they're claiming for hospice services,
+- [17:49.870] but in fact they're not providing any services
+- [17:52.540] and they're making hundreds of millions
+- [17:54.080] or billions of dollars in, in the process.
+- [17:56.780] Talk about something that we've seen in Minneapolis
+- [17:59.470] but also in Maine. We have seen people go out there
+- [18:02.630] and say that they're providing services to autistic children,
+- [18:06.860] when in reality, they maybe don't have any children at all
+- [18:09.870] or they certainly don't have autistic children.
+- [18:12.060] So, they get paid millions and millions of your dollars
+- [18:16.600] to provide services that they're not actually providing.
+- [18:19.760] And oh, by the way,
+- [18:21.060] what happened to the autistic children
+- [18:22.750] and their families who actually need those services
+- [18:25.630] and need a competent government
+- [18:27.270] to ensure that they're doing the right thing?
+- [18:29.330] My friends, this has gone on for far too long.
+- [18:32.410] You have been fleeced by your own government for far too long,
+- [18:35.890] and we are stopping it every single day.
+- [18:47.630] Now, let me tell you about a guy though
+- [18:49.210] who did not stand for fraud.
+- [18:50.660] He did not stand for fraud when he was in the state government,
+- [18:53.380] and he will not stand for fraud
+- [18:55.530] in the United States House of Representatives
+- [18:57.900] representing you, and that's Paul LePage.
+- [19:06.350] Now, I, I hate to say this because I, I love this state.
+- [19:09.020] The first time I ever visited Maine actually was,
+- [19:11.540] was probably four or five years ago.
+- [19:14.940] Actually, it was exactly four years ago
+- [19:16.410] because I remember our, our daughter who's now four
+- [19:19.150] was probably three or four months old at the time.
+- [19:21.410] And we came up here and we stayed for a week.
+- [19:23.220] It was one of the most amazing trips
+- [19:24.900] I've ever had in my life
+- [19:26.170] because this is a beautiful state,
+- [19:27.430] as you all know, with incredible people,
+- [19:29.470] with good food. This is America.
+- [19:31.970] This is the very best of America
+- [19:33.460] right here in communities like this.
+- [19:39.950] And, and so, I have,
+- [19:41.340] I have a special affection for this state,
+- [19:43.460] but I can't even compare to your great former governor,
+- [19:47.290] because while I love this state as an outsider,
+- [19:49.230] he loves this state
+- [19:50.490] as somebody who has fought for it every single day.
+- [19:53.020] A guy who came to work every single day
+- [19:55.410] protecting your tax dollars,
+- [19:57.170] protecting your essential services,
+- [19:58.680] protecting our local law enforcement,
+- [20:00.760] making sure common sense
+- [20:03.220] that the government actually works for the people who deserve
+- [20:06.640] and have the right to be in the United States to begin with.
+- [20:09.380] Makes sense, right?
+- [20:10.730] That's what it should be.
+- [20:15.070] But because I love this state, I can say I am heartbroken
+- [20:17.970] by what has happened to the fraud
+- [20:20.510] that's being perpetrated on the taxpayers of this state.
+- [20:23.840] Because outside of Minnesota and California,
+- [20:26.270] which are probably number one and number two,
+- [20:29.280] if they're the gold, gold medalist
+- [20:30.640] and the silver medalist,
+- [20:31.850] I heard somebody shout out in New York,
+- [20:34.410] maybe New York is the bronze medalist,
+- [20:35.810] but let me be honest,
+- [20:37.030] maybe Maine is the bronze medalist.
+- [20:39.900] 'Cause if you look at the fraud that has happened in this state,
+- [20:43.860] if you look at the illegal immigrant communities
+- [20:46.310] who have taken benefits that ought by rights
+- [20:48.770] go to the people in this room,
+- [20:51.070] what you have in Maine is a festering problem,
+- [20:54.120] where people have been taken advantage of
+- [20:56.010] and they've been stolen from and your government
+- [20:58.450] hasn't done anything about it.
+- [21:00.610] You ask yourself, why did Maine go from a state
+- [21:03.550] that did not have a serious fraud problem
+- [21:05.750] to one where I can honestly say,
+- [21:07.250] it's one of the worst states in the Union,
+- [21:09.120] and I'll give you two answers and two politicians.
+- [21:16.170] Number one is Janet Mills and number two is Joe Biden,
+- [21:19.700] and thankfully, thankfully one of them
+- [21:22.270] has already been kicked to the curb
+- [21:24.240] and one is on our way out the door exactly as it should be.
+- [21:36.220] Now, here, here's what Paul LePage do,
+- [21:38.300] and I'm not just, I'm not just blowing smoke,
+- [21:40.090] my friends, he took concrete action
+- [21:42.860] to try to fight back against fraud.
+- [21:45.020] He doubled the number of fraud
+- [21:46.790] investigations when he was the governor of this state.
+- [21:49.250] That's an amazing thing.
+- [21:50.700] He required personal photos on EBT cards,
+- [21:53.800] so that we could make sure that people getting those benefits
+- [21:56.930] are the ones who deserve those benefits.
+- [22:00.370] And he cracked down on the international fraud rings
+- [22:02.720] that were taken, tak-
+- [22:03.940] -- taking advantage of this great state.
+- [22:06.960] You have to ask yourself,
+- [22:08.380] why is it that you have a government
+- [22:10.580] that seems more focused on the illegal aliens
+- [22:14.500] growing weed illegally than it is
+- [22:16.750] on the taxpayers of this state?
+- [22:19.410] Why is it that you have a government
+- [22:21.300] that seems not to care about you,
+- [22:23.410] but sure as hell cares about Somali fraudsters
+- [22:25.820] who are making millions and millions of dollars
+- [22:28.070] off of your taxpayer money?
+- [22:29.730] And the answer is because you have a governor
+- [22:32.510] who hasn't fought for you. Let's send a governor
+- [22:35.440] who did fight for you to the US Congress.
+- [22:37.910] Let's send Paul LePage to the US House.
+- [22:49.070] Now, now here, here's another thing Paul said,
+- [22:51.170] and this is why I blame Joe Biden,
+- [22:52.590] because you cannot talk about the fraud problem
+- [22:54.790] in the United States of America
+- [22:56.520] without acknowledging that Joe Biden's administration
+- [22:59.070] let in tens of millions of illegal aliens
+- [23:02.360] all over the United States of America,
+- [23:04.260] including the state of Maine.
+- [23:07.980] And unfortunately, you still got way too many of them.
+- [23:10.470] It's one of the reasons why we have devoted ourselves
+- [23:12.990] over the past 18 months
+- [23:14.280] and we're going to keep on fighting to get illegal aliens
+- [23:16.710] out of the United States of America.
+- [23:18.910] We got to fight for our own people.
+- [23:25.890] So here's the difference though,
+- [23:27.580] the difference one administration,
+- [23:29.310] the difference one political leader
+- [23:30.720] makes is we are now trying so hard.
+- [23:34.630] And I know y'all don't like Janet Mills,
+- [23:36.110] I don't especially care for her either.
+- [23:38.690] But I would love to work with the governor of Maine
+- [23:41.940] to stop the fraud that's being perpetrated in this state.
+- [23:44.720] This, this, this should not be, think about this.
+- [23:47.310] This should not be a red, red state or a blue state issue.
+- [23:49.910] This isn't Republican or Democrat.
+- [23:51.660] This is common sense.
+- [23:52.930] This is protecting every single person in this room
+- [23:56.070] from being defrauded by their own government.
+- [23:58.330] But you know what she's done?
+- [23:59.870] She has prevented local police from working with us
+- [24:03.740] to get criminal illegal aliens out of this state.
+- [24:09.220] She has actually fought back against our efforts
+- [24:12.450] to identify fraud in the Medicaid and Medicare programs,
+- [24:16.380] which by the way, not only does it steal from you,
+- [24:18.990] but it means that those programs are going to go bankrupt
+- [24:21.610] because all the money's going to the fraudsters.
+- [24:24.450] So let me ask you this simple question.
+- [24:26.610] Do you like having a government official
+- [24:28.630] who fights for illegal aliens over you?
+- [24:31.990] Do you like having a state governor
+- [24:34.470] who doesn't work with the federal government
+- [24:36.890] to fight against fraud?
+- [24:39.430] So let's kick Janet Mills to the curb.
+- [24:43.060] And let's send Paul LePage to Washington to help us
+- [24:45.760] fight the fraudsters and protect all of you.
+- [24:57.190] This guy just said, "Send her to Gitmo."
+- [24:59.910] No, no, no comment, sir, but I kinda,
+- [25:02.890] I kinda like sending the fraudsters to Gitmo.
+- [25:04.740] We got to get them out of this country
+- [25:06.370] and we got to get them in prison.
+- [25:07.700] Here, here's the thing.
+- [25:09.230] Let me talk a little bit about just one person,
+- [25:12.650] because I think it highlights how bad the fraud problem
+- [25:16.280] has been in the state of Maine.
+- [25:18.630] We had an illegal immigrant in this community who said,
+- [25:23.010] who said that she was, she was providing services,
+- [25:27.130] interpretive services to other immigrants, okay?
+- [25:30.710] So the, so Medicaid reimburses people
+- [25:33.200] to provide interpretation services
+- [25:35.820] for people who don't speak English,
+- [25:38.380] which by the way, people should be speaking
+- [25:40.620] English in the United States of America.
+- [25:42.070] I think that's common sense.
+- [25:46.550] But this woman, her name was Rakia Muhammad.
+- [25:52.060] And it turns out that Rakia Muhammad
+- [25:53.990] was not a particularly upstanding citizen, okay?
+- [25:57.180] So while she said
+- [25:58.450] that she was providing interpretation services,
+- [26:00.680] do you know what she was actually doing?
+- [26:02.470] Providing zero services and collecting the $15 million
+- [26:06.890] over a five-year period that was going directly into her pocket.
+- [26:11.090] And that happened pretty much
+- [26:12.420] during the entirety of the Biden administration
+- [26:14.970] and no one in the Biden administration
+- [26:17.170] thought to step in and stop this ridiculous fraud.
+- [26:20.720] Now here's a, here's, here, I have two questions
+- [26:22.850] when it comes to Rakia Muhammad stealing $15 million
+- [26:26.660] from every single person in this room.
+- [26:29.200] The Press: number one is, why was this person
+- [26:31.380] in the United States of America to begin with?
+- [26:37.100] Call me crazy, but I think that when we welcome new immigrants
+- [26:40.110] to the United States of America,
+- [26:41.790] they should be people who enrich our country
+- [26:44.590] and bring some good skills into our country.
+- [26:46.990] Not a person who's going to steal $15 million
+- [26:49.690] from the people in this room.
+- [26:56.500] But second of all, why on earth are we allowing a person
+- [27:01.940] to steal $15 million from all of you
+- [27:05.660] without the state government lifting a finger to stop it?
+- [27:08.780] Why did it take Washington coming in from the outside
+- [27:11.880] to ensure that this person who is defrauding you
+- [27:15.280] is going to go to prison and ladies and gentlemen,
+- [27:17.100] that's exactly what is going to happen,
+- [27:19.130] convicted guilty and she's going to jail,
+- [27:21.500] which is where she belonged.
+- [27:28.030] Now with all these things though, there, there's,
+- [27:29.760] there's a good news, bad news situation.
+- [27:31.680] So the good news is that she's going to prison
+- [27:35.510] and she's not going to be committing fraud.
+- [27:37.530] But the bad news is the same system that allowed these people
+- [27:41.500] to take advantage of the taxpayers of Maine,
+- [27:43.790] it has not been changed at all by the local government.
+- [27:46.980] I'm telling you, and I'll say this to the cameras,
+- [27:49.490] I'll say this to the Governor and anybody else,
+- [27:51.930] if you want to partner in fighting fraud, you've got one.
+- [27:55.690] This does not need to be Republican versus Democrat.
+- [27:58.380] This needs to be fraudster against non-fraudster.
+- [28:01.850] This needs to be good government versus bad government.
+- [28:07.860] So I will extend the hand to anybody whether they've got
+- [28:10.740] a D next to their name or an R next to their name.
+- [28:12.910] If you want to help the Trump administration fight fraud,
+- [28:15.980] you are going to find a willing partner.
+- [28:17.860] And by the way, as much as I'm a Republican, you all know this,
+- [28:20.910] I'm the Republican Vice President of the United States,
+- [28:23.650] we have found some blue states
+- [28:25.780] that are willing to work with us.
+- [28:27.050] Unfortunately, Maine is not among them.
+- [28:29.520] So whenever you replace Janet Mills with somebody,
+- [28:32.650] I hope you replace her
+- [28:33.980] with somebody who's going to help us fight fraud,
+- [28:36.490] protect you and protect the programs
+- [28:38.790] that the people of Maine rely on.
+- [28:48.440] A- -- and the, and the bad news for Rakia Muhammad
+- [28:51.990] is that she's going to go to prison
+- [28:53.230] hopefully for a very long time.
+- [28:55.500] Now, the, the, the good news for her though
+- [28:59.270] is I think she might have a future
+- [29:00.800] in Democratic Party politics in the state of Maine.
+- [29:03.080] Unfortunately, the, the Maine Democrats,
+- [29:06.030] elected Democrats seem to really like fraudsters.
+- [29:08.300] They might just elect this woman, the next governor,
+- [29:10.270] the next senator from Maine.
+- [29:11.610] Who knows? But not if you have anything to do with it.
+- [29:15.170] Am I right?
+- [29:16.950] Are we going to elect the fraudster
+- [29:18.340] to the governor of Maine?
+- [29:20.550] Are we going to elect the fraudster
+- [29:21.980] a pro-fraud Democrat to be the next Senator for Maine?
+- [29:26.080] Absolutely not. We're going to send representatives, senators,
+- [29:29.550] and governors who fight for the people in this room.
+- [29:32.350] We're going to do it by rejecting fraudsters,
+- [29:34.420] sending them to prison where we can
+- [29:36.520] and taking away the money in all cases.
+- [29:39.360] That's how we fight fraud successfully.
+- [29:46.590] And I want to just say one, one final thing about fraud,
+- [29:49.210] because I, I think it's, it's such an important topic.
+- [29:51.390] You heard the, the great Secretary of Labor say this.
+- [29:54.130] What is so different about our approach in this administration
+- [29:58.130] is that we're not just sending money out the door
+- [30:00.340] and then trying to find the fraudsters afterwards.
+- [30:03.160] We're actually making the money conditional on state governments
+- [30:06.420] fighting fraud to begin with.
+- [30:08.530] Now, why does this matter?
+- [30:09.970] Because that's where you've got the most power,
+- [30:12.430] and that's where you've got the ability
+- [30:14.240] to stop it from going to fraudsters to begin with.
+- [30:17.080] So here's what we did yesterday, the Trump administration.
+- [30:19.520] We sent out 50 letters to every state Medicaid system
+- [30:22.950] all over the country, and we basically said
+- [30:25.190] very simply that we're going to take away your money
+- [30:27.980] unless you get serious about fighting fraud.
+- [30:31.140] Common sense. And what that means
+- [30:39.400] is that we're going to be able to ensure
+- [30:41.960] that there are proper controls, that there are proper filters,
+- [30:44.980] that before somebody pays out benefits,
+- [30:47.570] that they ensure that your money is going to where it should go.
+- [30:51.250] And I got to say, as, as a person who has,
+- [30:53.480] in the past, benefited from some of these programs,
+- [30:56.270] this is a very personal issue to me.
+- [30:57.850] One of the things I love about our country,
+- [31:00.170] and I certainly think is true about the great state of Maine
+- [31:03.050] is that we're generous people.
+- [31:04.630] We don't want American citizens to go hungry.
+- [31:07.150] We don't want low income kids
+- [31:08.880] to not be able to afford a bite to eat.
+- [31:11.050] We want to make sure that if you're a poor child
+- [31:13.680] or a poor family,
+- [31:14.930] you get an opportunity to see a doctor
+- [31:16.790] even if money is particularly tight.
+- [31:19.090] That's why these programs exist. They exist for American citizens
+- [31:23.510] to look after our fellow citizens,
+- [31:25.960] and I think that's a great and generous thing
+- [31:28.160] about the United States of America.
+- [31:29.600] Again, my family has benefited
+- [31:31.610] from some of those programs in the past.
+- [31:33.770] But you know what destroys those programs
+- [31:35.530] and not just destroys those programs,
+- [31:37.780] but destroys the spirit of generosity
+- [31:40.460] that makes those programs possible?
+- [31:42.590] It's when local officials and state officials
+- [31:45.720] and federal officials,
+- [31:47.000] it's when they let the fraudsters take advantage of you
+- [31:50.580] instead of fighting for you.
+- [31:52.180] So when I say that I'm fighting against fraud,
+- [31:54.480] I'm not just fighting to save your money as,
+- [31:56.490] as much as that matters to me. I am fighting to preserve
+- [32:00.220] the sense that Americans look after Americans.
+- [32:03.320] But you know who we don't look after?
+- [32:05.180] We don't look after fraudsters,
+- [32:06.630] and we don't look after people who have no right to be
+- [32:09.450] in the United States of America to begin with.
+- [32:19.900] So here's, let me just, let me close with this,
+- [32:22.390] and then I'll take a few questions from the reporters.
+- [32:25.200] What we've done here in the last 18 months,
+- [32:27.430] I'm very, I, I'm incredibly proud of.
+- [32:29.830] We have managed to take the fight to the fraudsters.
+- [32:33.830] We've managed to save hundreds of billions
+- [32:35.840] of dollars of your tax dollars
+- [32:37.640] and, God willing, were to save hundreds of billions
+- [32:39.670] of more in the next two and a half years,
+- [32:42.020] but we cannot do it without you.
+- [32:44.170] And one of the coolest things about this effort,
+- [32:46.620] maybe my single favorite thing about this anti-fraud effort
+- [32:49.960] is that many of the big leads
+- [32:52.260] that we've had have come from citizens and journalists,
+- [32:55.530] have come from people like Nick Shirley.
+- [32:58.440] It was a, a 22-year-old kid, a 22-year-old kid
+- [33:05.400] who had the audacity to go to the people
+- [33:08.010] who were receiving your tax dollars and ask questions.
+- [33:10.690] Something, frankly, it would have been great
+- [33:12.300] if the national media
+- [33:13.530] showed a little bit more interest in it.
+- [33:16.090] But I just want to say to all of you
+- [33:17.720] for caring about this issue, for being engaged in this issue,
+- [33:22.320] for sending tips into our fraud task force, thank you,
+- [33:26.070] because a big part of Americans
+- [33:28.160] looking after our fellow Americans
+- [33:30.000] is to ensure that nobody
+- [33:32.010] is defrauding the greatest country in the world,
+- [33:34.650] and you have been our best advocates
+- [33:37.040] in fighting back against fraud.
+- [33:38.720] Thank you all. Thank you all for having me.
+- [33:46.180] All right.
+- [33:50.700] So we will take a, a few questions from the local press.
+- [33:55.790] The lights are so bright, it is unfortunate I can't see you
+- [33:58.930] so I'll, you just have to kind of raise your hand and,
+- [34:00.730] and shout out your question.
+- [34:02.570] Um, but I, I, I will say
+- [34:04.380] that I want one of these great local journalists
+- [34:06.600] who've been focused on this fraud issue.
+- [34:08.440] Let's start with you, sir. Go ahead.
+- [34:09.990] The Press: Thank you, Mr. Vice President.
+- [34:11.220] Jon Fetherston with The Maine Wire.
+- [34:16.060] The Vice President: We like this guy.
+- [34:17.550] The Press: (Inaudible)
+- [34:18.940] fraud here in Maine and they want to know
+- [34:21.730] that these fraudsters are going to be held accountable.
+- [34:24.240] But I tell everybody --
+- [34:25.480] Unidentified: Can't hear him.
+- [34:26.710] The Vice President: I'll repeat it for you.
+- [34:27.920] The Press: -- that it comes from us.
+- [34:29.210] You today coming validates the fraud.
+- [34:31.400] But it's up to the rest of us to make sure it gets fixed.
+- [34:35.030] What is your advice to the people of Maine
+- [34:36.690] and how they hold their elected leaders accountable?
+- [34:38.620] The Vice President: So the question
+- [34:39.880] for those of you who couldn't hear
+- [34:41.090] is we all know there's a fraud problem in Maine.
+- [34:43.700] We all know we want to fix the fraud problem in Maine.
+- [34:46.310] What advice do I have? What are the concrete steps
+- [34:49.030] that we can take to actually ensure that the fraud stops?
+- [34:52.670] Let me give you a few answers.
+- [34:54.030] And, and one, I got to be honest, it's on me
+- [34:56.850] and it's on the federal Department of Justice,
+- [34:58.510] it's on the leadership of the United States government
+- [35:01.410] is when we find somebody like Ms. Muhammad
+- [35:04.710] who's committing fraud against the American people,
+- [35:07.130] we've got to show up and arrest her
+- [35:08.460] and try to send her to prison.
+- [35:09.820] It's very simple. There's got to be accountability.
+- [35:12.600] 'Cause here, one of the things I learned
+- [35:14.380] and I was shocked by this is that when we have I --
+- [35:17.550] what, what is defined as low-level fraud,
+- [35:19.370] let's say a person defrauds all of you for a million bucks.
+- [35:22.760] Too many of our Department of Justice leaders
+- [35:25.220] under the Biden administration,
+- [35:26.640] they said that was too low level to actually go after.
+- [35:29.840] So, I mean, how, how many of you would like
+- [35:32.430] the federal government to hand you a million dollars?
+- [35:35.060] Yeah. Well, there were fraudsters out there
+- [35:37.950] who were getting a million dollars of your money
+- [35:40.110] and the government wasn't even paying attention to it.
+- [35:43.070] One of the best things that you can do
+- [35:44.460] when you go and arrest somebody
+- [35:45.730] and throw them in prison when they break the law is yes,
+- [35:48.280] it's justice for that one person,
+- [35:50.280] but it also sends a message to all the other fraudsters
+- [35:52.920] that we're not going to tolerate this crap anymore.
+- [35:55.320] So we have got to get serious and sir, we have.
+- [35:57.710] I promise you that we have.
+- [35:59.670] Here's -- the other thing is, is the best
+- [36:04.990] and most actionable thing that you can do,
+- [36:06.660] because you're not going to get help from
+- [36:08.110] the governor right now. We all know that.
+- [36:09.470] She hasn't taken fraud very seriously.
+- [36:11.030] It's, it's funny.
+- [36:12.360] She, she came to Washington last year
+- [36:15.050] and did some breakfast with the President of the United States
+- [36:17.480] and when she when she showed up, what did she talk about?
+- [36:21.290] Did she talk about, you know, the, the,
+- [36:23.340] the, the, the issues that matter to workers?
+- [36:25.130] Was she talking about jobs and investments
+- [36:26.600] in the state of Maine?
+- [36:27.810] No, she shoot up, she showed up to advocate
+- [36:30.650] for the right of men to play in women's sports.
+- [36:33.710] That's what she cared about when she got in front of
+- [36:35.790] the President of the United States.
+- [36:37.100] Again, I think all of us believe it's crazy
+- [36:39.960] that men would want to play in women's sports.
+- [36:41.920] That's, I think that's common sense.
+- [36:44.650] But here's what I understand even less than that.
+- [36:46.510] Even if you think,
+- [36:47.890] even if you think that men should play in women's sports,
+- [36:51.020] how is that the issue you care most
+- [36:52.460] about as the governor of the state of Maine?
+- [36:54.040] It's crazy. It's crazy.
+- [36:56.360] So what you all can do is keep your eyes open, okay?
+- [37:00.120] I don't have any faith in your local government right now,
+- [37:02.970] or I should say your state government,
+- [37:04.660] that they're going to fix this problem.
+- [37:06.430] But so much, again, of the best stuff
+- [37:08.740] that we've gotten on the anti-fraud task force
+- [37:11.440] has been from local officials and local citizen journalists.
+- [37:15.120] And when I say a citizen journal- --
+- [37:16.470] citizen journalist,
+- [37:17.690] I don't mean a person who went to journalism school.
+- [37:19.740] I mean a person with a cell phone
+- [37:21.200] who's willing to ask questions of their local leadership
+- [37:24.270] and of everybody else in their community.
+- [37:26.200] Like here's, here's, here's the thing.
+- [37:28.430] When we really got wind of what was going on in Minneapolis,
+- [37:32.240] it was because somebody showed up
+- [37:33.850] at the Quality Learning Center.
+- [37:37.500] We've got a guy over there. Did you get a good education
+- [37:39.810] at the Quality Learning Center, sir?
+- [37:42.440] Unidentified: I did. I graduated with honors.
+- [37:44.960] The Vice President: That's not, he said he's a graduate
+- [37:46.340] with honors of the Quality Learning Center.
+- [37:48.470] I congratulate you, but I don't think it's that hard
+- [37:50.780] if we're being honest with you.
+- [37:53.240] But he's, he's the proudest graduate.
+- [37:55.470] Look, here's the thing. If you have a daycare center
+- [37:59.640] that's receiving millions of dollars
+- [38:00.950] of federal tax dollars and it says it do --
+- [38:03.940] it can't even spell the word learning right,
+- [38:07.340] maybe you send a message to your local representative,
+- [38:10.060] you send a message to Paul LePage
+- [38:11.940] or you reach out to us on the fraud task force,
+- [38:13.890] the website's right there,
+- [38:15.580] and, and actually make it possible for us to go
+- [38:17.950] and investigate this stuff.
+- [38:19.180] So keep your eyes and your ears to the ground.
+- [38:21.760] There is unfortunately fraud all around us.
+- [38:24.270] If we're going to get at this problem,
+- [38:25.890] we're going to need citizens to take it seriously.
+- [38:28.050] I know you are. Let's just keep at it.
+- [38:30.380] Thank you.
+- [38:36.400] We'll take a few questions from back in the,
+- [38:38.900] the peanut gallery there. Go ahead, guys.
+- [38:40.570] The Press: (Inaudible)
+- [38:41.910] Unidentified: Louder.
+- [38:44.490] The Vice President: Do we have a microphone for them?
+- [38:45.900] I -- it's, because it's hard for me
+- [38:47.250] to hear all the way back there.
+- [38:53.340] The Press: Can you hear me now?
+- [38:55.220] Unidentified: -- cross-county skiing
+- [38:56.550] and snowshoeing with your family.
+- [38:58.340] The Vice President: Thank you, ma'am.
+- [38:59.590] I just got invited to go cross-country skiing
+- [39:02.240] and snowshoeing by this lovely young lady here.
+- [39:05.220] And I got to tell you, ma'am, I appreciate that.
+- [39:07.400] I love this state and we,
+- [39:09.500] we will make sure we get the brochure.
+- [39:11.390] But here, here, here's the thing about cross-country skiing
+- [39:13.840] is it's a lot of work.
+- [39:17.000] When I'm doing leisure activity,
+- [39:18.360] I like to be a little bit lazier than that.
+- [39:20.190] I kind of like a nice hill where you just glide down.
+- [39:22.390] Cross country's a lot of work. Sure.
+- [39:27.630] The Press: Rich McHugh from NewsNation.
+- [39:28.900] We have been reporting here in Maine since last year on fraud.
+- [39:32.630] We've been reporting in Minnesota on fraud.
+- [39:35.750] We're seeing prosecutions happen in Minnesota and in California,
+- [39:39.760] but some of the things that we're hearing from people
+- [39:41.550] and whistleblowers is you have to go to the org, org structure,
+- [39:44.910] the leadership, and that's not happening.
+- [39:47.700] How will this administration go after
+- [39:50.190] not just the people who are perpetrating it,
+- [39:51.860] but the people who are enabling it
+- [39:53.580] and overseeing it in the first place?
+- [39:55.770] The Vice President: That's a good question.
+- [39:59.440] So, you know, one of the reasons why I raised this question
+- [40:01.630] of, of certain amounts of fraud being so low level
+- [40:04.530] that people weren't even looking at it
+- [40:06.240] is it's impossible to get to the high level fraudsters
+- [40:10.010] unless you're sometimes willing to look
+- [40:11.430] at the low level fraudsters too. You think, I mean,
+- [40:14.150] how many of us have watched a good mob movie
+- [40:17.050] and how do those prosecutions always start?
+- [40:19.110] They, you never start with the boss.
+- [40:20.960] You start with the low level guys
+- [40:23.120] who then give you some sense of the criminal enterprise
+- [40:25.700] and then you can go after the high level fraud
+- [40:28.110] and the high level crime.
+- [40:29.440] The fact that we were turning a blind eye
+- [40:31.670] to fraud under a million dollars
+- [40:33.570] meant that we weren't even looking at the people
+- [40:36.080] who were sitting on top of some of these fraud rings.
+- [40:38.020] And we, we do see already signs in Minnesota,
+- [40:40.600] for example, of some very sophisticated stuff.
+- [40:43.650] I mean, sometimes I see these fraud rings
+- [40:45.320] and I think to myself, you know, sir,
+- [40:46.620] if, if you just started like a real business,
+- [40:49.770] you might actually be a halfway productive citizen,
+- [40:53.080] but instead you put those talents into fraud
+- [40:55.090] and so we're going to put all,
+- [40:56.310] all our talents to throw you in prison,
+- [40:58.100] if that's how you're going to approach that.
+- [41:00.570] And that's the most important thing is you've got
+- [41:04.620] to be willing to go everywhere and look at all fraud,
+- [41:07.030] or you're never going to be able to,
+- [41:08.330] to look at the high level guys.
+- [41:09.640] 'Cause very often what will happen is you've got,
+- [41:11.250] you have 10 people
+- [41:12.500] who are skimming a million dollars off the top
+- [41:14.760] and then they kick out up a few hundred thousand dollars
+- [41:17.630] to somebody above them and then it turns out that
+- [41:20.100] when you look at the whole network,
+- [41:21.770] you've got a lot of people who are making millions
+- [41:24.430] and millions and millions of dollars
+- [41:26.740] for every low level guy
+- [41:28.290] that's making $500,000 or something like that.
+- [41:31.000] So our approach has been to go everywhere to look at everything
+- [41:34.550] and that's how we're going to get the fraudsters.
+- [41:36.230] And trust me, we are going to get them.
+- [41:38.160] We already have gotten a lot of them
+- [41:39.990] and we're going to keep our pedal to the gas
+- [41:42.250] for the next two and a half years.
+- [41:46.480] Next question.
+- [41:47.740] The Press: Brittany Bacaton from WABI and Bangor
+- [41:50.460] wondering what the Mills Administration
+- [41:52.570] and the state government could do today
+- [41:54.870] to begin working with you on this issue.
+- [41:57.910] The Vice President: Yeah, so I'll give you two very con- --
+- [41:59.520] the question was what could the local administration,
+- [42:01.930] the state administration do to help work with us on this issue?
+- [42:04.210] I'll give you two very concrete examples.
+- [42:05.740] So, so first of all, one of the biggest problems
+- [42:08.310] that we have in Medicaid fraud is, again,
+- [42:10.560] because these programs are state administered,
+- [42:13.090] the states have to actually empower their anti-fraud people
+- [42:17.120] to look into what's going on.
+- [42:18.700] So we have what's called every 50 state,
+- [42:21.740] or all 50 states should have what's called an MFCU,
+- [42:25.070] a Medicare fraud control unit.
+- [42:27.340] And we need the local governor to just empower
+- [42:30.490] that Medicare fraud control unit to look at the fraud,
+- [42:33.230] to prosecute it,
+- [42:34.430] and then of course they can ask the federal government
+- [42:36.670] if they reach a case that's so big they need a little help.
+- [42:39.100] We would be happy to help them. We just need the local governor
+- [42:42.360] to work with us a little bit better.
+- [42:44.140] Exactly. And unfortunately, I just,
+- [42:45.690] I just don't get the sense having talked to her,
+- [42:47.750] my people have talked to her,
+- [42:49.150] I, I don't get the sense that the local,
+- [42:52.330] that the, the state governor here
+- [42:53.570] is particularly interested in working on this problem.
+- [42:55.660] But I'll give you another example.
+- [42:57.420] So we, we know one of the biggest drivers
+- [43:00.110] of fraudulent federal benefits is SNAP.
+- [43:04.120] It's the food stamps program, okay?
+- [43:06.440] So again, this is a program which ha- --
+- [43:08.850] actually has even less federal oversight,
+- [43:10.850] as shocking as that is, even less federal oversight
+- [43:14.000] than the state Medicaid program.
+- [43:16.180] So here's, here's how food stamps works.
+- [43:18.570] Every month or every couple of weeks,
+- [43:20.260] the state of Maine, the state of California, all 50 states,
+- [43:23.450] I'm not joking about this, will submit a bill
+- [43:26.550] to the federal government and say,
+- [43:27.780] "This is how much we spend on food stamps."
+- [43:30.120] There's no verification of a single person,
+- [43:33.190] there's no confirmation that let's say
+- [43:35.620] a person was on food stamps and passed away,
+- [43:38.120] that that person has stopped receiving benefits.
+- [43:40.360] There's no confirmation that you don't have a legal aliens
+- [43:42.950] receiving food stamp benefits. So I always laugh a little bit
+- [43:46.000] when I hear people like Gavin Newsome or Janet Mills say,
+- [43:49.800] "We don't let illegal aliens access the food stamp program."
+- [43:53.150] And I say, "How do you know?".
+- [43:55.210] And so the number one thing that I would like them to do
+- [43:57.880] is to help us set up the systems
+- [44:00.060] to where if you're getting food stamps,
+- [44:02.080] we confirm that number one, you're eligible,
+- [44:04.300] you actually need the program.
+- [44:05.750] Number two, you're not an illegal alien
+- [44:07.700] and number three, you're still alive.
+- [44:11.240] It, it is not a high barrier
+- [44:13.750] to demand that Janet Mills confirms
+- [44:16.630] that the people who are receiving food stamps
+- [44:18.560] are actually breathing. I'm a pretty conservative guy,
+- [44:21.240] but I think that's a pretty low bar for Janet Mills to clear.
+- [44:24.510] We would love to work with her on that.
+- [44:26.080] We encourage her to do so.
+- [44:30.880] The Press: ABC seven and Fox 22 News here in Bangor.
+- [44:34.020] In your remarks, as you mentioned,
+- [44:35.880] the administration has warned that states
+- [44:38.040] could lose federal funding if they don't aggress-
+- [44:41.140] aggressively prosecute Medicaid fraud.
+- [44:44.010] If funding is cut, how will the feder- --
+- [44:46.610] federal government ensure that low income Mainers,
+- [44:49.930] particularly those in rural areas
+- [44:52.430] are still receiving necessary medical care?
+- [44:55.620] The Vice President: Well, let me say, let me say two things.
+- [44:57.220] First of all, there is no administration
+- [44:58.920] in American history
+- [45:00.180] that has done more to make secure and safe
+- [45:05.210] and dependable the rural healthcare system
+- [45:07.430] than the Trump administration
+- [45:08.810] in the working family's tax cuts bill.
+- [45:10.720] Now, you all think of that primarily
+- [45:12.710] as a tax piece of legislation because it was,
+- [45:15.150] but do you know that there were tens of billions of dollars
+- [45:18.350] put into a rural healthcare stabilization fund,
+- [45:20.980] so that all the rural hospitals and clinics
+- [45:23.130] that were closing under the Biden administration,
+- [45:25.470] so that we could make sure those clinics
+- [45:27.600] are able to stay open for the people in Maine who need them.
+- [45:30.560] That was a very, very important part of the legislation
+- [45:33.150] and something I'm very proud of.
+- [45:35.280] But the, the second thing I'd say is,
+- [45:38.510] is whether it's, it's Medicaid or any other program,
+- [45:40.720] we don't want the people and we're setting this up
+- [45:44.250] so that the people who need these programs
+- [45:46.330] and are eligible for them,
+- [45:47.880] they're not going to suffer the consequences.
+- [45:49.980] We want the fraudsters
+- [45:51.740] and we want the bureaucrats who enable the fraud.
+- [45:54.080] We want those people to suffer the consequences.
+- [45:56.810] So here, here's, here's a very simple thing is,
+- [45:59.590] the, the threat to the Medicaid program,
+- [46:02.010] I always think some of these political, you know,
+- [46:03.910] partisan types get this exactly backwards.
+- [46:06.390] The threat to the Medicaid program
+- [46:08.110] is not us keeping fraudsters away from the Medicaid program.
+- [46:12.560] It's the fraudsters raiding that program to begin with.
+- [46:15.680] That's the threat to the Medicaid program.
+- [46:18.170] And so what I'd say to anybody who's worried
+- [46:22.920] about the Medicaid program,
+- [46:24.500] help us fight back against the fraud
+- [46:26.400] because we want low income people in this state
+- [46:29.510] to be able to get the healthcare benefits they need,
+- [46:31.620] but that's not going to happen
+- [46:32.830] if the fraudsters steal all the money
+- [46:34.860] that should go to the people who actually need it.
+- [46:39.200] The Press: Seamus Othot with The Maine Wire.
+- [46:41.690] In the recent budget, Janet Mills and the Democrats
+- [46:44.830] enshrined, um,
+- [46:46.040] essentially protections for fraudsters.
+- [46:48.860] If they get their federal funding cut,
+- [46:50.680] the state will pay for them.
+- [46:52.570] Um, how do you think that that can be fought
+- [46:55.440] on the federal level
+- [46:56.790] without just, um, taking those currently diffuse costs
+- [47:00.380] and putting them even more directly
+- [47:01.830] onto the main taxpayers?
+- [47:03.660] The Vice President: Well, I had not heard of that.
+- [47:05.720] Unfortunately, it doesn't shock me and I think that th- --
+- [47:08.090] this is where when we talk about, what can you do?
+- [47:10.650] What is my advice to you in order to stop the fraud?
+- [47:14.680] Advice number one is throw the people that enable the fraud,
+- [47:18.060] the hell out of office.
+- [47:19.340] They're not worthy of your support and it,
+- [47:21.290] it's going to keep happening,
+- [47:22.790] unless we kick them out of office.
+- [47:28.740] But, but, but the, the answer is we have a number of tools
+- [47:33.140] at the federal government to force compliance
+- [47:35.540] with our anti-fraud statutes and anti-fraud provisions.
+- [47:39.800] We're working very hard, again, to work with these states,
+- [47:42.260] but if the states aren't going to work with us,
+- [47:44.340] we're going to force them to comply
+- [47:46.150] with the anti-fraud mandate.
+- [47:47.530] It's very simple.
+- [47:48.770] We're going to use those tools at every step of the way.
+- [47:51.280] I don't frankly care whether the far left politicians in this
+- [47:56.140] or that state try to protect the fraudsters.
+- [47:58.300] We're not going to protect them under the Trump administration
+- [48:00.790] and that is my solemn promise to every person in the state.
+- [48:07.210] The Press: Jackie Mundry from WMTW in Portland.
+- [48:09.550] It, it sounds like it's been a challenge to work
+- [48:11.370] with the Mills administration on this issue.
+- [48:12.970] We have a good --
+- [48:14.180] The Vice President: That's an understatement.
+- [48:15.420] The Press: We have a gubernatorial election
+- [48:16.670] coming up in November with primaries
+- [48:18.340] in just a couple of weeks. Do you think it would be easier
+- [48:21.300] to work with a Republican governor?
+- [48:22.760] If so, why? And do you plan to endorse any of them?
+- [48:24.870] I know a number of them are here today.
+- [48:26.350] The Vice President: Well, first of all,
+- [48:27.590] congratulations to those guys.
+- [48:29.150] I mean, I've run for political office.
+- [48:30.520] I always admire anybody who's willing
+- [48:32.370] to put their hat in the ring
+- [48:33.640] and try to represent the great people
+- [48:35.250] of this state or any other.
+- [48:36.780] It's an amazing thing. Thank you all.
+- [48:42.020] But, but, I mean, look, what I would say is obviously,
+- [48:45.280] I'm a Republican, so I think it's going to be easier to work
+- [48:47.730] with some of these Republican candidates.
+- [48:49.170] But the simple fact is,
+- [48:50.580] it couldn't be harder than it is with Janet Mills.
+- [48:53.710] Again, there are a few states.
+- [48:55.480] There are a few states, maybe, you know, California,
+- [48:58.200] New York, Maine, Minneapolis, or Minnesota.
+- [49:01.270] There probably are five or 10 states
+- [49:03.200] that are just impossible to work with
+- [49:05.160] because it's clear, they don't want to go after the fraud.
+- [49:07.850] Now, I don't know why that is.
+- [49:09.240] Part of that could be they're complicit in it themselves.
+- [49:11.990] Okay?
+- [49:14.970] Part of that could be they know
+- [49:16.240] that a lot of their donors have gotten rich off the fraud.
+- [49:19.070] Part of that could just be laziness
+- [49:20.680] and part of that could be
+- [49:21.970] because they honestly, in their hearts,
+- [49:24.020] care more about illegal aliens than the people they represent.
+- [49:26.880] There's a combination of explanations,
+- [49:29.260] but I guarantee you, whoever is the next governor of Maine,
+- [49:32.410] it cannot be worse when it comes to anti-fraud than Janet Mills.
+- [49:44.960] We'll do one more question, and then we'll hit the road.
+- [49:47.360] The Press: Thank you, Mr. Vice President, for taking questions.
+- [49:49.820] Uh, I'm Phil Hirschkorn from News Center Maine.
+- [49:54.500] So it turns out, it turns out
+- [49:57.090] that Maine does have a Medicare fraud control unit.
+- [50:00.580] You mentioned that a few minutes ago.
+- [50:02.170] I'm wondering, um, you said
+- [50:04.380] Maine could be the third worst state
+- [50:06.190] after states like California and Minnesota,
+- [50:08.590] which have proven tens of millions,
+- [50:11.890] maybe hundreds of millions of dollars in fraud
+- [50:13.860] and many federal convictions.
+- [50:15.830] So far, what we've heard about from the federal government
+- [50:19.300] in Maine is questionable $45 million
+- [50:22.500] in the autism services, which you mentioned.
+- [50:25.010] We've also heard about $1.7 million
+- [50:28.440] in questionable billing by a Somali immigrant run NGO.
+- [50:32.610] My question is, what else --
+- [50:38.760] The Vice President: Guys, it's all right.
+- [50:42.050] Now appreciate you all standing up for me, but trust me --
+- [50:45.370] The Press: Hey, hey, we still have innocent
+- [50:46.770] until proven guilty in this country.
+- [50:48.270] My question is, what else do you got?
+- [50:50.470] What else has your task force flagged
+- [50:53.540] that we should be concerned about
+- [50:54.940] because those amounts are a lot, 46 million, 1.7 million,
+- [50:58.940] but they don't really compare to California and Minnesota.
+- [51:02.220] What else should we expect from your task force?
+- [51:03.910] Thank you.
+- [51:05.110] The Vice President: Well, let me say a few,
+- [51:06.510] let me say a few things.
+- [51:09.090] So let -- ladies and gentlemen, we've got bias rep- --
+- [51:12.780] we've got bias reporters in all states.
+- [51:14.380] It's okay, trust me.
+- [51:15.990] I can, I can hand, I can handle it,
+- [51:17.540] but here, here's, here's what I'd say a few things.
+- [51:19.930] Number one, you talk about the scale of the fraud
+- [51:22.850] being less in Maine than it is in California.
+- [51:25.270] Well, California has a population
+- [51:27.520] that's much higher than Maine,
+- [51:28.720] so that's not necessarily a fair comparison.
+- [51:33.930] Number two, we've frankly been at this less long
+- [51:36.850] than we have in Maine than in, than in other states, okay?
+- [51:39.820] This is something where what, what we,
+- [51:42.440] I would say, you notice a pattern,
+- [51:43.750] and you're right, innocent until proven guilty,
+- [51:46.200] but what I've noticed is a pattern
+- [51:47.990] that when you see certain types of fraud
+- [51:49.830] and certain types of programs, that's the tip of the iceberg.
+- [51:53.020] And when I see that autism services fraud
+- [51:56.310] in the Medicaid program in the Somali community,
+- [51:58.800] but not just that, I see local and state politicians
+- [52:02.220] who don't care about policing that fraud,
+- [52:04.390] that's the tip of the iceberg.
+- [52:05.880] And we're going to find out just how deep that iceberg is,
+- [52:08.240] and I suspect, I can't promise,
+- [52:10.660] but I suspect we are going to find
+- [52:12.600] hundreds of millions of more dollars
+- [52:15.180] every single month that we look in the state of Maine
+- [52:17.420] because this is not a state that takes it seriously.
+- [52:19.750] And this is the third point and the most important one.
+- [52:22.390] I, I do not actually like having a contentious relationship
+- [52:27.980] between the state government and the federal government.
+- [52:30.030] We want people to help us find the fraudsters.
+- [52:33.030] It goes a lot quicker, it's a lot easier,
+- [52:35.820] it requires fewer resources from the federal government,
+- [52:38.690] but you find more fraud
+- [52:40.130] when you're working with people at the local level.
+- [52:42.520] What I find so preposterous about Maine,
+- [52:44.860] it's not just that we found tens of millions of dollars of fraud
+- [52:48.340] in a relatively small state.
+- [52:50.250] It's that we've had no cooperation
+- [52:53.090] from the state government. So when I say,
+- [52:59.310] so when, when I say that the state government,
+- [53:03.100] when I say this is the, the third,
+- [53:04.610] maybe the fourth-worst state when it comes to fraud,
+- [53:06.710] what I mean very simply is that you've got a governor
+- [53:09.710] and you've got a set of the bureaucrats
+- [53:11.140] that don't care about fraud,
+- [53:12.410] and all I'm saying is Donald J. Trump
+- [53:14.570] and J.D. Vance, we care about fraud,
+- [53:16.630] we care about the people of this state,
+- [53:18.250] and we care about your tax dollars
+- [53:19.940] going to where it's actually supposed to go.
+- [53:25.360] Are we --
+- [53:28.060] guys, do we have somebody over here who's got an issue?
+- [53:31.010] Okay. Let's get a, let's get a doctor in here.
+- [53:32.950] Sounds like we got somebody who may be fainted or, got him?
+- [53:50.780] So let's, if we would, ladies and gentlemen,
+- [53:53.960] if you would just make a pathway so the law enforcement
+- [53:57.210] and the doctors can get to that person?
+- [54:02.200] We okay?
+- [54:08.010] We're good? She's got care? Okay, sounds good.
+- [54:14.400] Well, I want to -- I just -- I want to be respectful
+- [54:17.900] so I'm not going to answer any more questions here.
+- [54:19.670] I'm going to let this, let this person get the,
+- [54:23.030] the treatment and the care that she needs.
+- [54:24.670] Let me just say two, two quick words.
+- [54:27.370] Number one, let's all say a prayer for our friend here
+- [54:30.890] and make sure that God looks after him or her,
+- [54:33.400] looks after her health.
+- [54:44.140] And number two, what I'd say is, it is the coolest job
+- [54:47.780] that I've ever had to be
+- [54:49.010] the vice president of this great country.
+- [54:50.890] It's the coolest thing to be able to come here in,
+- [54:54.000] in the beautiful state of Maine in the beautiful month of May
+- [54:56.790] and to be able to spend some time with you.
+- [54:58.340] Let me just say that this job has given me more confidence
+- [55:01.500] than ever that this country, its best days are ahead of it.
+- [55:12.890] As much as I am sometimes frustrated by Washington DC,
+- [55:16.370] as much as I'm sometimes frustrated
+- [55:18.060] by the politicians who seem to care more about illegal aliens
+- [55:21.130] than they do the citizens of this country
+- [55:23.860] and the citizens of this state,
+- [55:25.460] what I've learned over the last 18 months
+- [55:27.800] is that we have the most talented,
+- [55:30.260] the most compassionate,
+- [55:31.680] and the toughest people anywhere in the world.
+- [55:34.050] Ladies and gentlemen, America is the best country
+- [55:37.410] and it's going to be the best country for many years to come.
+- [55:39.720] God bless you all.
+- [55:40.920] Thank you for having me. It's good to see you all.
+- [55:44.600] (cheers and applause)
+- [55:51.790] ♪ (country music playing) ♪

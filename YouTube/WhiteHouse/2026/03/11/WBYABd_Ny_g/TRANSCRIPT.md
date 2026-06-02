@@ -1,0 +1,266 @@
+<!-- source: https://www.youtube.com/watch?v=WBYABd-Ny-g -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: WBYABd-Ny-g -->
+<!-- date_published: 2026-03-11T18:10:17+00:00 -->
+<!-- date_accessed: 2026-06-02T01:03:57.519617+00:00 -->
+
+# Transcript: President Trump Gaggles with Press Before Departing the White House, Mar. 11, 2026
+
+- [00:00.000] Mr. President, a few questions.
+- [00:02.880] >> This is day 11.
+- [00:04.880] And as you know, we're doing something
+- [00:07.240] that nobody ever thought was possible to
+- [00:09.200] do. Our military
+- [00:11.240] is the best, is the most powerful in the
+- [00:13.280] world, and
+- [00:14.840] they're hitting them very hard. This is
+- [00:16.480] 47 years of abuse
+- [00:19.200] and killing lots of people, killing and
+- [00:21.160] maiming
+- [00:22.440] lots of people. What is it, Peter?
+- [00:24.680] >> Mr. President, what more do you need to
+- [00:26.200] do militarily for this operation to end?
+- [00:29.000] >> Or the same. And we'll see how that all
+- [00:31.840] comes out. Right now,
+- [00:34.480] they are they've lost their navy,
+- [00:36.440] they've lost their air force.
+- [00:38.600] They have no anti-aircraft
+- [00:40.920] apparatus at all.
+- [00:42.920] They have no radar.
+- [00:44.840] Their leaders are gone.
+- [00:47.080] Uh
+- [00:48.600] and we could do a lot worse. You want to
+- [00:50.440] know that. We're leaving certain things
+- [00:53.040] that if we take them out or we could
+- [00:54.400] take them out
+- [00:55.840] by this afternoon, in fact, within an
+- [00:57.920] hour,
+- [00:59.040] uh they literally would never be able to
+- [01:00.920] build that country back.
+- [01:02.600] >> A new report shows A new report says
+- [01:05.920] that the military investigation has
+- [01:07.760] found that the United States struck the
+- [01:09.960] school in Iran. As commander-in-chief,
+- [01:12.200] do you take responsibility for that?
+- [01:13.960] >> That is what? What is
+- [01:15.400] >> As commander-in-chief, do you take the
+- [01:17.400] strike on the school in Iran? A military
+- [01:19.160] A new report says the military
+- [01:20.480] investigation has found it was the
+- [01:22.480] United States that struck the school.
+- [01:24.800] >> I don't know about that.
+- [01:27.000] >> How do you respond Mr. President, how do
+- [01:29.080] you respond to that?
+- [01:30.000] >> Are you talking about the CEOs of
+- [01:32.080] various oil companies encouraging them
+- [01:35.120] to use the Strait of Hormuz right now?
+- [01:37.920] I think they should. I think they should
+- [01:39.520] use the Strait
+- [01:41.360] Well, you respond to that. And look, we
+- [01:42.720] took out
+- [01:44.160] just about all of their mine ships in
+- [01:46.400] one night.
+- [01:47.880] Uh we're up to boat number 60. I didn't
+- [01:50.400] realize they had that big a navy.
+- [01:52.560] I would say it was big and ineffective.
+- [01:55.240] But every one of their ships, just about
+- [01:57.200] all of their navy is gone. It's bottom
+- [01:59.560] of the sea. I
+- [02:00.960] I hope you're impressed.
+- [02:02.280] >> Did they lay any mines in the Strait of
+- [02:04.440] Hormuz?
+- [02:06.680] >> Mr. President, Mr. President, Mr.
+- [02:08.720] President.
+- [02:09.200] >> Is Senator Thune listening to you
+- [02:12.640] when you say you want to pass the Save
+- [02:14.840] America Act? He says there aren't the
+- [02:16.800] votes to do it right now. What's your
+- [02:18.280] response?
+- [02:18.880] >> He's got to be a leader, you know. If
+- [02:20.320] he's a leader, he's got to get them.
+- [02:22.200] It's the most popular bill I've ever
+- [02:24.040] seen put before Congress.
+- [02:26.520] And it's voter ID and it's voter You
+- [02:29.280] have to be able to be a citizen to vote.
+- [02:31.760] You've got to It's called citizenship.
+- [02:34.400] And
+- [02:35.640] we're also adding in no men playing in
+- [02:38.360] women's sports, no transgender
+- [02:41.160] mutilation of our children,
+- [02:43.600] and no mail-in ballots, fake mail-in
+- [02:45.920] ballots. We have none of that, except in
+- [02:48.640] the case of the military except for
+- [02:50.480] that.
+- [02:52.880] I will say
+- [02:54.200] it is it is the
+- [02:56.920] Save America Act. It's the most popular
+- [03:00.160] bill I think I've ever put before
+- [03:01.800] Congress.
+- [03:04.080] >> What's your message to Democrats?
+- [03:06.160] >> Can you declare victory in this war if
+- [03:09.360] the supreme leader remains the
+- [03:11.200] Ayatollah's son?
+- [03:12.360] >> I don't want to comment on that.
+- [03:14.239] I don't want to comment on that. But I
+- [03:15.519] will tell you I just spoke with various
+- [03:17.360] countries, the leaders of various
+- [03:19.560] countries. You'll have a list.
+- [03:21.640] And they said they've never seen
+- [03:23.000] anything like it. We have And I built it
+- [03:26.160] during my first term and I used it. I
+- [03:28.680] didn't realize I was going to use it
+- [03:30.160] this much, but
+- [03:31.840] we have the greatest military in the
+- [03:33.519] world by far. Nobody close.
+- [03:38.320] >> Are you worried about a domestic terror
+- [03:39.560] attack backed by Iran here, sir?
+- [03:43.440] >> What about from the FBI?
+- [03:45.880] >> Mr. President, invited to the Summit of
+- [03:47.360] the Americas. Mexico, Brazil, and
+- [03:49.680] Colombia were not invited to the Summit
+- [03:51.440] of the Americas. Why was that? And will
+- [03:53.760] they come in the future to the event?
+- [03:56.280] >> They were invited. Maybe they didn't
+- [03:58.320] come. I think they were I get along very
+- [04:00.000] well with all of them.
+- [04:02.080] >> Mr. President
+- [04:03.520] In Iraqi Parliament
+- [04:05.520] few days
+- [04:06.640] members slogan death to America, death
+- [04:10.000] to Israel. What is your response to
+- [04:12.280] them? What is your message for Iraqi
+- [04:14.160] government?
+- [04:14.840] >> What did he say?
+- [04:16.560] >> In Iraqi Parliament
+- [04:18.640] slogan death to America, death to
+- [04:20.959] Israel. Member of the Parliament.
+- [04:23.240] >> Death to America, death to Israel.
+- [04:24.919] What's your response to that?
+- [04:26.560] >> That's not a nice question.
+- [04:31.080] >> Even after you told them that you would
+- [04:33.320] cut
+- [04:34.320] commerce ties with them, are they
+- [04:35.640] cooperating with the United States in
+- [04:37.320] Spain?
+- [04:38.480] Spain.
+- [04:39.360] >> No, I think they're not cooperating at
+- [04:41.520] all. Spain?
+- [04:42.880] I think they've been very bad.
+- [04:45.120] Very bad, not good at all. May we cut
+- [04:47.120] off trade with Spain.
+- [04:50.040] >> Would you cut Would you cut all trade
+- [04:51.919] all trade with them?
+- [04:53.000] >> I don't know what Spain's doing. They've
+- [04:54.400] been very bad to NATO.
+- [04:56.360] They get protected. They don't want to
+- [04:57.720] pay their fair share. And they've been
+- [04:59.720] that way for many years actually.
+- [05:05.080] Let me give you the good news. The
+- [05:06.919] people of Spain are fantastic. The
+- [05:09.840] leadership, like you. The leadership,
+- [05:12.600] not so good.
+- [05:14.480] >> Hezbollah in Lebanon. Lebanon is under
+- [05:16.600] attack and Hezbollah is making dangerous
+- [05:19.080] for the Lebanese and specially the
+- [05:20.880] Lebanese Christians. What is your
+- [05:22.840] message for Lebanon?
+- [05:24.320] >> We're working at it very hard. We love
+- [05:26.760] Lebanon. We love the people of Lebanon.
+- [05:29.360] And we're working very hard. We got to
+- [05:30.960] get rid of the Hezbollah. It's been a
+- [05:33.160] disaster for many years.
+- [05:38.440] >> Mr. PRESIDENT
+- [05:39.520] >> THE NEW OIL refinery going up in
+- [05:41.120] Brownsville, Texas. We want Americans to
+- [05:43.440] know about that.
+- [05:44.440] >> About what?
+- [05:45.240] >> About the new oil refinery going in
+- [05:47.000] Brownsville, Texas.
+- [05:49.480] >> It's going to be the greatest anywhere
+- [05:51.400] in the world. There's never been
+- [05:52.480] anything like it. It's great that it's
+- [05:54.000] going up in Texas.
+- [05:55.760] You know, it's very hard to get
+- [05:56.880] refineries done. Uh this will be like
+- [06:00.560] nothing else ever built.
+- [06:02.600] It's a great thing. Thank you for that
+- [06:04.040] question.
+- [06:09.480] >> What do you make of it?
+- [06:10.600] >> When will you say mission accomplished?
+- [06:13.080] >> Uh Well, look. We've knocked out their
+- [06:15.960] navy. We've knocked out their air force.
+- [06:18.640] We've knocked out all of their
+- [06:20.200] anti-defense.
+- [06:21.960] We've taken out uh 60 mine boats, 59
+- [06:25.800] mine boats, which
+- [06:27.880] nobody has ever seen anything like it.
+- [06:30.400] We have the greatest military in the
+- [06:32.400] world by far, not even close.
+- [06:36.919] But, you know what? They've inflicted 47
+- [06:39.520] years worth of damage to the world, and
+- [06:41.960] now they're paying a big price.
+- [06:46.400] >> Mr. President, would you Are you willing
+- [06:48.880] to withdraw the US from Iran even if
+- [06:52.800] they have not turned over and allowed
+- [06:55.560] the US to seize their remaining
+- [06:58.000] >> I'm not going
+- [06:59.080] Yeah.
+- [06:59.720] >> Do they have to turn over but
+- [07:01.760] >> We have hit them harder than
+- [07:04.520] virtually any country in history has
+- [07:06.600] been hit.
+- [07:07.800] And we're not finished yet.
+- [07:15.040] >> Mr. President
+- [07:15.760] >> imposed the sanctions on Rwanda. What
+- [07:18.600] make you so confident that they will
+- [07:20.520] stop the war in Congo?
+- [07:21.960] >> Well, we get along very well with Rwanda
+- [07:23.960] and with Congo, and we hope they're
+- [07:26.000] going to be uh
+- [07:27.640] they're going to get along.
+- [07:31.040] >> Why did the FBI seize election records
+- [07:33.800] in that state?
+- [07:35.160] >> Probably thought the election was
+- [07:36.640] rigged, right?
+- [07:37.760] >> rigged, though.
+- [07:38.600] >> Really? Who
+- [07:39.560] How do you know?
+- [07:40.720] >> Your own Your own attorney General in
+- [07:43.520] 2020 said that there was not measurable
+- [07:46.320] voter fraud to keep
+- [07:47.200] >> Oh, really? You don't think it was
+- [07:48.720] rigged? I think it was rigged.
+- [07:51.240] And if you say it wasn't rigged, YOU'RE
+- [07:52.880] A ROTTEN REPORTER.
+- [07:59.680] >> WHAT IS THE US DOING UH TO reopen the
+- [08:02.360] Strait of Hormuz?
+- [08:03.600] >> Oh, it's working out very well and I
+- [08:05.960] think you're going to see that. Working
+- [08:07.360] out very well.
+- [08:10.040] >> Mr. President, thanks for coming to the
+- [08:11.240] G 20. Um now the tankers are being
+- [08:13.240] attacked in the Strait of Hormuz. How
+- [08:15.080] are you going to ensure the safety of
+- [08:16.560] oil flowing through there?
+- [08:17.840] >> you're going to see great safety and
+- [08:19.160] it's going to be very, very quickly.
+- [08:21.520] Uh we have decimated that country.
+- [08:24.200] They're paying a big price now for 47
+- [08:26.720] years of killing. They killed, they
+- [08:29.000] killed you. You have relatives, we all
+- [08:31.080] have relatives. What they've done and
+- [08:33.240] now they're paying the price.
+- [08:34.400] >> Mr. President, America First Refining
+- [08:36.719] opened up its first oil refinery in 50
+- [08:38.919] years, Brownsville, Texas. Why is this
+- [08:41.159] such a big deal and would it have
+- [08:42.640] happened under a different president?
+- [08:45.320] >> Uh it would not have happened under a
+- [08:47.120] different president. None of this would
+- [08:49.360] have happened under a different
+- [08:50.800] president.
+- [08:51.839] Just so you know. Ready?
+- [08:55.120] A year ago we were a dead country.
+- [08:57.920] Now we're the hottest country in the
+- [08:59.360] world. Thank you.

@@ -1,0 +1,798 @@
+<!-- source: https://www.youtube.com/watch?v=BtGt3VkVv8w -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: BtGt3VkVv8w -->
+<!-- date_published: 2025-01-24T18:15:42+00:00 -->
+<!-- date_accessed: 2026-06-02T02:54:43.929900+00:00 -->
+
+# Transcript: President Trump Delivers Remarks in North Carolina
+
+- [11:07.180] Male Speaker: It's a great honor to be here
+- [11:12.570] with these people today that have suffered so much
+- [11:17.210] and to lose everything you have
+- [11:22.680] and you just wonder what you're going to do
+- [11:25.140] and where are you going to go?
+- [11:27.380] And we just thank God, and that's what I want to say.
+- [11:30.540] Thank God that he's given us the resources to be able to help.
+- [11:35.900] And a lot of people have helped, and not just Samaritan's Purse,
+- [11:39.790] but there's been many different organizations
+- [11:41.750] and volunteers have just come to western
+- [11:44.070] North Carolina and East Tennessee to help.
+- [11:46.890] I grew up this was my backyard.
+- [11:48.860] I grew up about eight miles or so from here and a lot of --
+- [11:54.160] went to high school right down the road,
+- [11:55.720] about a mile down the road.
+- [11:58.130] And so this is this is home to me.
+- [12:02.000] But we've got a family today. We've got the West family.
+- [12:09.170] This is their house.
+- [12:11.350] So we're here today to show the president
+- [12:16.290] just a little bit of the damage and the problems
+- [12:21.540] that the people of western North Carolina are facing.
+- [12:24.420] So, Mr. President,
+- [12:25.790] thank you for what you have done for western North Carolina.
+- [12:29.360] Thank you for coming again to see. Thank you.
+- [12:33.360] Your your son Don jr, he came with us twice.
+- [12:37.360] And so they've taken a real interest.
+- [12:41.090] And this isn't a politician coming down here
+- [12:43.980] looking for votes.
+- [12:45.290] This is a man who wants to do something,
+- [12:47.000] who wants to see some changes.
+- [12:48.660] He wants to make life better for you.
+- [12:52.210] So thank you.
+- [12:53.550] And Melania, thank you so much for coming.
+- [12:56.090] It's an honor to have you here with us.
+- [12:58.700] So, Mr. President, please.
+- [13:00.640] The President: Thank you very much, Franklin.
+- [13:02.010] Thank you. A good man.
+- [13:05.470] He’s done a great job, a fantastic job.
+- [13:08.460] And we’ve come to North Carolina
+- [13:10.640] with a simple message for all the people of this region
+- [13:13.300] who were hit so hard by Hurricane Helene.
+- [13:16.530] And that message is very simple:
+- [13:18.890] You are not forgotten any longer.
+- [13:22.080] You were treated very badly by the previous administration.
+- [13:24.860] And I’m here after a few days of the administration.
+- [13:28.550] We’re going to California, Los Angeles.
+- [13:31.770] They got hit hard, as you know.
+- [13:33.960] A lot of that could have been prevented,
+- [13:36.070] I think, if they had water,
+- [13:37.520] which they had plenty of, but they didn’t use it.
+- [13:40.120] But I’m going there, but — and it was set up to go there,
+- [13:42.660] and I said,
+- [13:43.870] “Well, wait a minute, what about North Carolina?”
+- [13:47.040] They said, “Well, what.” I said, “I have to stop there first.
+- [13:49.430] I’m stopping in North Carolina.”
+- [13:50.850] So, we made the stop, and I feel very good.
+- [13:53.480] You’re represented by some great people.
+- [13:56.020] Great, great congressmen are with us,
+- [13:58.810] and we’re going to get involved with them.
+- [14:01.780] And Michael Whatley is here,
+- [14:03.250] who is the head of the Republican Party.
+- [14:05.520] He worked with Lara Trump to take us through
+- [14:08.900] to a tremendous victory, one of the — as the media says,
+- [14:12.800] one of the most consequential presidential elections ever —
+- [14:16.750] they say in 129 years, whatever that may mean.
+- [14:20.360] But whatever it is, it was a great election we had,
+- [14:23.130] and we won your state.
+- [14:24.370] All three times, we won your state.
+- [14:27.060] And all three primaries, we won your state.
+- [14:29.020] So, we won it six times, I guess, Mr. Congressman, huh?
+- [14:32.570] And it’s a great place.
+- [14:33.770] And I wanted to come here and before I went anywhere, frankly.
+- [14:37.710] In the campaign, I promised that I’d come back
+- [14:40.640] to western North Carolina to help the people of the state.
+- [14:43.470] And today, here I am to deliver on that promise.
+- [14:46.690] And we have a lot of things in mind,
+- [14:48.130] and we’re getting the Army Corps of Engineers all set.
+- [14:52.870] You need your riverbanks fixed. You need a lot of roads fixed.
+- [14:55.720] And we’re going to get it done in rapid time.
+- [14:58.360] And I’ve asked Susie Wiles and all of my people
+- [15:01.950] to start calling up and get the Corps ready,
+- [15:05.040] and they’re going to get ready to go.
+- [15:07.390] I don’t know what it is —
+- [15:08.650] I don’t know what took so long for the other administration.
+- [15:11.120] But remember, I wasn’t here for the first four months
+- [15:14.300] or three months, whatever it may be.
+- [15:15.810] See, we can only start as of, essentially,
+- [15:19.330] one or two days ago. And we’ve made a lot of progress
+- [15:21.410] over the last couple of days, Michael.
+- [15:22.920] I understand we’re going to get you the resources you need
+- [15:26.240] and the support that you deserve,
+- [15:27.810] and we’ll be at your side
+- [15:29.400] through every step of the rebuilding.
+- [15:31.250] And no American is going to be left behind.
+- [15:35.130] The people that I just met are so great,
+- [15:38.170] and the people that own that house
+- [15:39.770] is going to be very beautiful in a little while.
+- [15:42.530] And who knows, if Franklin decides,
+- [15:44.650] maybe he’ll rip it down and build them a new one,
+- [15:47.120] because sometimes he can do that just as easily.
+- [15:49.150] But we’re going to take care of the people.
+- [15:51.120] I want to thank our great first lady for coming today.
+- [15:53.460] She really wanted to be here. She said, “No, I want to go.”
+- [15:56.730] And, you know, she sees what happened
+- [15:59.990] and she felt very badly, and she wanted to go.
+- [16:02.500] And we’re then going out together to Los Angeles,
+- [16:05.540] but she wanted to be in North Carolina.
+- [16:07.080] She saw what happened.
+- [16:08.330] She has a — she has a feeling like I do for North Carolina.
+- [16:12.520] So, thanks, as well, to a great gentleman, Franklin Graham.
+- [16:16.020] And his father, Billy Graham —
+- [16:18.780] I used to go with my father to Yankee Stadium
+- [16:21.090] and places to watch his father preach.
+- [16:24.570] And he was some preacher.
+- [16:25.800] Where is he — he was some — you got good stock.
+- [16:28.730] You come from the ultimate genes, I can tell you.
+- [16:32.690] But he was really something.
+- [16:34.740] And Franklin, though, has done so much,
+- [16:37.270] and his father is looking down on him right now,
+- [16:39.060] I guarantee you.
+- [16:40.280] For a long time, he’s been looking down on Franklin,
+- [16:42.320] saying, “I’m very proud of you, son.”
+- [16:45.250] He really is, because what Franklin has done
+- [16:47.890] with Samaritan’s Purse is incredible.
+- [16:49.960] They told me just yesterday
+- [16:51.310] that Samaritan’s Purse has been great.
+- [16:53.770] But the FEMA people sort of left you high and dry,
+- [16:56.840] but we’re going to change that around.
+- [16:58.380] We’re not happy with FEMA.
+- [17:00.440] As well as all of the representatives —
+- [17:02.450] you have great representatives here.
+- [17:03.910] Chuck Edwards, who’s here someplace.
+- [17:05.520] Where is Chuck?
+- [17:06.780] PARTICIPANT: Right here.
+- [17:07.980] The President: Where is Chuck? Chuck?
+- [17:09.250] Tim Moore.
+- [17:10.890] Tim — thank you, Tim. Great job too, both of you guys.
+- [17:14.250] Virginia Foxx, a power — she’s a power, that one.
+- [17:19.360] Don’t — don’t ever have her as your enemy.
+- [17:21.170] It’s not good.
+- [17:22.470] (Laughter.) It’s not healthy.
+- [17:24.370] Pat Harrigan. Good job, Pat.
+- [17:28.230] Addison McDowell.
+- [17:29.680] These guys were just here, just put in,
+- [17:32.350] and they’re doing a fantastic job.
+- [17:34.120] Addison, thank you very much. Great.
+- [17:37.160] Mark Harris. Thank you, Mark. Thank you, Mark.
+- [17:40.510] Brad Knott. Thank you, Brad.
+- [17:44.410] Greg Murphy, a fantastic guy —
+- [17:46.840] my friend for a long time now, right?
+- [17:48.260] REPRESENTATIVE MURPHY: Yes, sir.
+- [17:49.550] The President: And the RNC chairman, Michael Whatley,
+- [17:51.170] who really, as I said,
+- [17:52.450] brought us to a great victory with Lara
+- [17:56.020] the chairman of the party, the whole Republican —
+- [17:58.250] I took Michael Whatley from North Carolina,
+- [18:01.800] because he did the best job,
+- [18:03.020] and put him in charge of everything.
+- [18:04.450] And the job they did together was incredible.
+- [18:07.750] Last September, Hurricane Helene became
+- [18:09.760] one of the deadliest natural disasters
+- [18:11.870] in modern American history.
+- [18:13.230] Rainfall rose to far more than 30 inches,
+- [18:16.710] which is lethal, unleashing unprecedented devastation
+- [18:20.560] throughout western North Carolina
+- [18:22.300] and many other states, as you know,
+- [18:24.050] but you got hit the hardest.
+- [18:26.190] The highest responsibility and deepest obligation
+- [18:28.950] of the American government is to protect its people,
+- [18:32.720] and that’s never truer than in times of emergency like this.
+- [18:36.060] Unfortunately, our government failed you,
+- [18:39.040] but it wasn’t the Trump government.
+- [18:40.480] It was a government run by Biden.
+- [18:45.230] What a terrible situation.
+- [18:47.640] But our government failed the people of North Carolina
+- [18:51.020] in this horrible crisis.
+- [18:54.020] For two months, Asheville lacked running water.
+- [18:56.060] And even today, some North Carolinians
+- [18:58.500] can’t take a hot-water shower.
+- [19:01.640] They can’t drink water. They don’t know where to get it.
+- [19:04.380] They have to — it’s delivered to them by somewhere.
+- [19:07.240] They just go out and somehow find some.
+- [19:09.680] It’s been four months since the storm made landfill
+- [19:12.440] [landfall], and still 180 roads remain closed and in ruins.
+- [19:16.800] Earlier this month, the Biden administration
+- [19:19.750] kicked 2,000 displaced
+- [19:22.470] North Carolinians out of their temporary
+- [19:24.310] housing into freezing, 20-degree weather —
+- [19:26.430] I don’t know how they did that one, because it was cold —
+- [19:30.150] even while your government provided shelter
+- [19:32.290] and housing for illegal aliens from all over the world.
+- [19:36.130] But under the Trump administration,
+- [19:37.760] the days of betrayal and neglect are over.
+- [19:40.880] They are over.
+- [19:42.950] As I said in my Inaugural Address,
+- [19:46.320] we restore the integrity, competency,
+- [19:49.420] and loyalty of the American government.
+- [19:52.240] And I think I said most of it in the Inaugural Address.
+- [19:56.550] We said a lot of things, but one of the groups of people
+- [19:59.360] I was thinking about is you in North Carolina.
+- [20:02.890] A lot of that was in reference to you
+- [20:04.590] and what you’ve had to suffer.
+- [20:06.090] I’m pleased to announce that under our leadership,
+- [20:08.440] the federal government will be surging housing solutions
+- [20:11.610] to the state that go beyond mere temporary hotel
+- [20:15.570] stays that ended up being very short term.
+- [20:18.520] The government wouldn’t do it any longer, which is ridiculous.
+- [20:22.150] We’ll marshal all available resources
+- [20:24.250] that bring back potable water
+- [20:26.710] and make your water and infrastructure
+- [20:29.470] dramatically more reliable very quickly.
+- [20:31.720] And today, I’ll also be signing an executive order
+- [20:35.490] slashing all red tape and bureaucratic barriers
+- [20:39.510] and permits to ensure the rapid reconstruction of the roads
+- [20:42.560] here in western North Carolina.
+- [20:44.510] We’re going to go through a permitting process
+- [20:47.050] that’s called “No permitting. Just get it done.”
+- [20:50.140] That’s the way they built them many years ago,
+- [20:51.660] I guarantee you that. Right?
+- [20:53.660] We will get them back very quickly.
+- [20:55.430] And we’ll begin the work of funderv-
+- [20:58.500] — fundamentally changing, terminating,
+- [21:01.230] or overhauling FEMA.
+- [21:02.930] FEMA has been a disaster, no matter where they are.
+- [21:05.690] We’re honored to be joined today, very quickly,
+- [21:07.580] by several families affected by the vicious storm.
+- [21:10.440] I’d like to ask each of them to share their story.
+- [21:13.860] Chris and Kim West, you can come forward.
+- [21:16.710] Ramona Nix, Jackie Mitchell, and Thomas Gary
+- [21:20.230] Bright, and finally, the Wright family.
+- [21:22.530] And come on up and maybe say a few words.
+- [21:25.480] Please. Thank you very much.
+- [21:27.550] Hello.
+- [21:28.860] MS. WEST: Hi.
+- [21:30.100] The President: Come on in here.
+- [21:31.320] MS. WEST: (Laughs.) Whenever it started,
+- [21:39.490] we started moving our vehicles to the top of the road.
+- [21:42.210] And by the time we got the vehicles moved,
+- [21:46.160] the water had already hit our ankles in the house.
+- [21:50.300] And so, I grabbed my purse and my little pug dog,
+- [21:57.560] and my husband grabbed the dog food
+- [22:00.190] and put it in a trash bag.
+- [22:01.880] And by the time we got out into the driveway,
+- [22:05.630] it was already waist deep,
+- [22:07.350] and there was sticks and that kind of thing.
+- [22:12.440] I didn’t think I was going to make it, but we did make it out,
+- [22:16.190] and we made it to the top of the road.
+- [22:18.920] And we were kind of stuck there for hours
+- [22:21.300] because we couldn’t get out any other ways,
+- [22:24.340] because it was flooded all the way around.
+- [22:28.450] It took us hours, and we sat there.
+- [22:30.540] And finally, it receded enough
+- [22:33.600] to where we could actually get out.
+- [22:35.660] It was probably, like, close to midnight.
+- [22:37.860] And it started like, 5, 6 o’clock in the morning.
+- [22:42.810] We just lost everything that we had.
+- [22:47.110] Didn’t even have a brush for, like, three days. So —
+- [22:51.740] The President: Thank you. Come on over.
+- [22:53.100] MS. WEST: Thank you.
+- [22:55.920] MR. WEST: That — The President: Okay.
+- [22:57.170] Would you like to say something with that beautiful baby?
+- [23:01.620] MR. WRIGHT: Say, “hey.”
+- [23:03.630] Yeah. So, when the hurricane storms hit North Carolina,
+- [23:09.570] hit our home, my daughter and my wife
+- [23:11.480] and I were actually out of town.
+- [23:13.870] But unfortunately, my dad, who was still home,
+- [23:16.690] and my mother was staying at our house with our —
+- [23:18.860] with our animals.
+- [23:20.420] And my — the waters got so high that it actually lifted —
+- [23:25.570] between that and the tornado that came through —
+- [23:27.730] or microburst is what they’ve been calling them —
+- [23:30.950] and lifted his home and the house that I grew up in
+- [23:34.530] and crashed it into our barn. It took away his business.
+- [23:39.030] It took away all of our tools and tractors
+- [23:41.950] and everything needed to keep the farm going.
+- [23:44.550] And my mother was trapped in the house,
+- [23:46.550] and there was no way to escape because the water got so high.
+- [23:50.020] The only thing she could do was ride it out
+- [23:52.440] and wait until the waters came down.
+- [23:56.990] So, we’ve been doing a little bit of battling
+- [23:59.460] with our insurance and FEMA. We did have proper insurance,
+- [24:02.550] with flood insurance and homeowner’s insurance,
+- [24:07.140] but since we had proper insurance,
+- [24:09.610] FEMA has not been able to assist us with a whole lot of things.
+- [24:12.920] And, again, we’ve been having some issues
+- [24:16.710] with trying to get some payout for our insurance
+- [24:20.320] in a timely manner.
+- [24:22.440] We had to do mold mitigation on our home,
+- [24:24.380] which is extremely expensive, before the structural engineer
+- [24:28.010] even came out in order to get our flood payout.
+- [24:30.910] And to me, that was not really acceptable.
+- [24:34.620] The President: Has the insurance company been responsive,
+- [24:36.420] or not really?
+- [24:37.760] MR. WRIGHT: Not — not so much. You know, again —
+- [24:40.670] The President: Are they going to give you
+- [24:41.910] they have to give you? Huh?
+- [24:43.780] MR. WRIGHT: I’m — I’m hoping so.
+- [24:45.120] The President: (Inaudible.)
+- [24:46.350] MR. WRIGHT: And we might need — I mean,
+- [24:47.570] we need some assistance with that.
+- [24:48.810] We reached out to an attorney.
+- [24:50.020] The President: What’s the name of the insurance company?
+- [24:51.740] MR. WRIGHT: North Carolina Farm Bureau.
+- [24:55.360] The President: You’ve got a mortgage, right?
+- [24:56.630] MR. WRIGHT: Yep. The President: That’s terrible.
+- [24:57.830] MR. WRIGHT: That’s what we’re after here. So —
+- [24:59.030] The President: Are a lot of people having that problem
+- [25:00.250] too with the insurance companies, general?
+- [25:03.250] Different insurance companies?
+- [25:05.160] And they’re all difficult, or just the one particular one?
+- [25:09.170] MR. WRIGHT: I’ve heard different stories from others,
+- [25:10.630] and a lot of folks are —
+- [25:11.860] The President: Have you heard some were responsive,
+- [25:13.060] that some were good?
+- [25:14.280] MR. WRIGHT: I’ve heard some — some good instances
+- [25:15.820] of even Farm Bureau themselves. But in my case, you know,
+- [25:19.640] they’d sent out a third-party adjuster immediately.
+- [25:22.480] Well, they wound up firing that third-party adjuster group.
+- [25:26.000] He gave us a quote for a much higher estimate
+- [25:27.700] than what we received.
+- [25:28.950] The President: And he got fired?
+- [25:30.150] MR. WRIGHT: And then he got let go.
+- [25:31.410] Yeah, he got fired.
+- [25:32.710] So, then they brought in another third-party adjuster
+- [25:34.830] to come in and lowball us.
+- [25:36.600] We’ve not received any kind of —
+- [25:38.190] so, the flood insurance is our primary insurance.
+- [25:42.200] And so, there was roof leaks in the home
+- [25:46.130] that the inspectors found — the adjusters.
+- [25:49.470] Well, that contributed to us losing
+- [25:51.440] some of our personal property, as it come in the third story,
+- [25:53.920] where there’s no — or second-story living space,
+- [25:57.270] where the flood wa- —
+- [25:58.550] well above the flood waters. So, they’ve neglected us for —
+- [26:04.080] The President: Was your mother saved?
+- [26:05.460] MR. WRIGHT: Yes, yes, she was saved.
+- [26:06.790] The President: (Inaudible.)
+- [26:08.070] MR. WRIGHT: She’s right here.
+- [26:09.280] The President: Oh, good. Okay. You made it.
+- [26:10.570] MR. WRIGHT: So, we — yeah, we made it.
+- [26:11.960] The President: That was not exciting, right?
+- [26:13.260] MR. WRIGHT: That’s right.
+- [26:14.470] The President: How scared were you?
+- [26:15.690] MS. WRIGHT: Very.
+- [26:16.900] The President: Did you think you were going to make it?
+- [26:18.300] MS. WRIGHT: No.
+- [26:19.530] The President: You didn’t think so?
+- [26:20.790] MS. WRIGHT: Nope. I just started praying.
+- [26:22.090] The President: So, you were sort of on a boat?
+- [26:23.370] Your house became a boat, huh?
+- [26:24.770] MS. WRIGHT: (Laughs.) MR. WRIGHT: It’s a big pontoon.
+- [26:25.990] The President: Wow. That’s some story.
+- [26:27.200] Would you like to say something?
+- [26:28.580] MR. WRIGHT: It was a beach house on — on the steps.
+- [26:30.720] The President: I’ll bet this guy would like to say something,
+- [26:32.670] I can tell.
+- [26:34.500] MR. WRIGHT: I was next door to the house,
+- [26:38.790] and my son was out of town.
+- [26:42.320] So, when he came in to Charlotte —
+- [26:46.130] to my sister’s, he called about 2:00 in the morning,
+- [26:50.890] because at midnight, the water was still in the stream.
+- [26:54.140] The President: Right. (Inaudible.)
+- [26:55.370] MR. WRIGHT: In — within the banks.
+- [26:57.810] So, when he called, the water was coming up.
+- [27:02.640] So, I started moving vehicles up to about 5:30 in the morning.
+- [27:10.050] And she was in the house, and I pulled up to the steps,
+- [27:14.120] and I said, “Hop on the fender, and I’ll get you out.”
+- [27:18.010] Well, it — he built a beach house on stilts —
+- [27:20.580] The President: Right.
+- [27:21.790] MR. WRIGHT: — five times higher than the floodplain.
+- [27:24.920] And she said, “Well, he said I’d be okay.”
+- [27:29.300] The President: Right.
+- [27:30.540] MR. WRIGHT: “So, I’m staying with the dogs.”
+- [27:31.950] The President: Right.
+- [27:33.150] MR. WRIGHT: So, I went to higher ground with some vehicles,
+- [27:35.890] hers included, and the water covered everything.
+- [27:41.680] But I’d already seen it coming around both sides of my place,
+- [27:45.110] so I got my blind and deaf dog and a bag of valuables
+- [27:51.590] and took up off the side of the hill behind my house.
+- [27:56.740] And then was heading to the cemetery back there
+- [28:01.730] because I knew it was open,
+- [28:03.100] because there was trees falling —
+- [28:04.990] The President: Right.
+- [28:06.210] MR. WRIGHT: — and right uprooting.
+- [28:09.090] It was raining. I mean, it was —
+- [28:11.620] The President: You never saw anything like that before?
+- [28:13.170] MR. WRIGHT: No, no. I’ve been through floods —
+- [28:14.420] The President: There’s never been anything like that before.
+- [28:15.710] MR. WRIGHT: — all my life around here.
+- [28:16.990] Never, no.
+- [28:18.190] The President: Never been anything like it.
+- [28:19.460] MR. WRIGHT: Mm-hmm. Mm-hmm.
+- [28:20.720] The President: But you’ve okay, right?
+- [28:21.930] MR. WRIGHT: Yep.
+- [28:23.140] The President: All right. Come here.
+- [28:24.380] MR. WRIGHT: House is destroyed.
+- [28:25.630] The President: Yeah, well, we’re going to help you out there.
+- [28:27.110] We’re going to help you out. MR. WRIGHT: Appreciate you.
+- [28:28.510] The President: That’s what we’re here for.
+- [28:29.740] MR. WRIGHT: Thanks for being here.
+- [28:30.970] The President: Anybody else? You guys okay?
+- [28:32.240] Please. Please.
+- [28:35.280] MR. BRIGHT: Our day that morning began — I’m a little taller —
+- [28:38.690] with some trees falling into our house,
+- [28:40.920] which our house is — goes back four generations, 80 years,
+- [28:45.810] and never came close to flooding.
+- [28:48.030] And we woke up with trees about 4:30 or 5:00 in the morning.
+- [28:51.420] And our house sits three tenths of a mile back off the road.
+- [28:55.650] And the water — you know,
+- [28:56.950] we’ve had flooding and such in the lake,
+- [28:58.790] but nothing like we saw. And like most everybody else,
+- [29:02.460] we moved five vehicles as far up —
+- [29:05.920] lawnmowers and everything else.
+- [29:07.630] And the water started coming in the house.
+- [29:10.370] And when it got up to about ankle high, we have a loft.
+- [29:14.060] I got her up in that and tried to gather what you might want,
+- [29:17.440] which was totally random. And when it made it to the loft
+- [29:21.570] and started getting up to about our hips,
+- [29:23.820] I built a little makeshift ladder,
+- [29:25.480] and we got out on our roof.
+- [29:27.280] And we spent four hours on the roof.
+- [29:30.250] I had a little baggie.
+- [29:31.510] I — I di- — I did notes on my cell phone
+- [29:34.530] to my two kids and my two grandkids
+- [29:37.180] and something to identify me, in case we were lost in it.
+- [29:40.670] The President: Did you think you were going to make it?
+- [29:42.160] MR. BRIGHT: No. We — we’re —
+- [29:43.390] The President: Oh, you didn’t think so?
+- [29:44.600] MR. BRIGHT: Yeah, we didn’t think we were
+- [29:45.820] going to make it at all.
+- [29:47.040] I mean, our house was 25 feet underwater. And —
+- [29:48.810] The President: So, you didn’t think you were going to live?
+- [29:50.360] MR. BRIGHT: No, we were watching houses, trailers,
+- [29:53.000] bodies coming by us.
+- [29:56.120] And we live in the Azalea Road area of —
+- [30:00.180] in East Asheville. Oteen.
+- [30:01.500] MS. MITCHELL: We watched our garage lift up and float away.
+- [30:02.930] MR. BRIGHT: Yeah, we watched our garage float by.
+- [30:04.450] The President: It just lift up?
+- [30:05.650] MR. BRIGHT: Yeah.
+- [30:06.990] But, you know, we — we got to a point
+- [30:09.570] where it crested about four feet up on the roof.
+- [30:12.640] We took about three or four hours for it
+- [30:14.530] so it could kind of do everything in reverse
+- [30:17.290] and got out in the mud to higher ground.
+- [30:21.200] And I got out — higher ground, up toward the Subway
+- [30:23.990] and got over to her daughter’s house,
+- [30:27.510] where — when she saw that I didn’t have her, she lost it.
+- [30:30.910] And I was like, “She’s okay. She’s alive.”
+- [30:32.590] And we tried to make our way back in there
+- [30:35.450] and gather things best we could.
+- [30:37.110] But, you know, found a body right away.
+- [30:39.900] We had — there was about eight bodies in our area
+- [30:42.170] that first two weeks, located.
+- [30:43.970] And we were lucky we weren’t one of them and — and blessed.
+- [30:46.830] But like other people, no insurance on flood insurance,
+- [30:50.990] so we — we had to depend on FEMA.
+- [30:53.460] They did what they could do. And, of course, it’s not enough.
+- [30:56.090] The President: Yeah, no, I know. (Inaudible.)
+- [30:57.470] MR. BRIGHT: Yeah. Yeah. Yeah. The President: (Inaudible.)
+- [30:58.760] MR. BRIGHT: Yeah, no, it’s crazy.
+- [31:00.040] But, yeah, again, we’re thankful to be alive,
+- [31:02.030] but it’s a long haul.
+- [31:03.240] The President: So, what are you doing now?
+- [31:04.480] MR. BRIGHT: Staying in a camper.
+- [31:05.740] I’ve never been — if you all have noticed,
+- [31:07.310] I’m a big guy. I don’t sleep in campers very —
+- [31:09.550] (laughter) — very well.
+- [31:10.870] And the — the first night we spent in the camper —
+- [31:12.960] very grateful with the Asheville Dream Center
+- [31:15.040] coming through with one and —
+- [31:17.370] The President: Do you still have the land?
+- [31:18.910] MR. BRIGHT: Oh, yeah. It’s — it’s family land.
+- [31:20.200] Yeah, the land, it looks like a beach now; it’s sand.
+- [31:21.740] MS. MITCHELL: Yeah. MR. BRIGHT: But —
+- [31:23.050] The President: Can it be built on?
+- [31:24.370] MR. BRIGHT: Yes.
+- [31:25.590] The President: Do you intend to do that?
+- [31:26.830] MR. BRIGHT: Yes.
+- [31:27.020] The President: You want to build again?
+- [31:28.260] MR. BRIGHT: Yeah, Samaritan’s Purse — we’re working with them.
+- [31:29.770] We’re working with people.
+- [31:30.970] We — you know, it’s — it’s 80 years, four generations.
+- [31:33.160] The President: But the house is totally gone?
+- [31:34.490] MR. BRIGHT: No, the house is there. It’s down to —
+- [31:35.760] MS. MITCHELL: They — they gutted it to just the rafters.
+- [31:37.070] MR. BRIGHT: Yeah, they came in and mudded it,
+- [31:38.570] but everything in it was completely destroyed.
+- [31:41.250] But, yeah, it’s — it’s tough.
+- [31:43.770] I think we’re at a point in Asheville
+- [31:45.160] where peoples forgot about Asheville and —
+- [31:47.290] The President: (Inaudible.)
+- [31:48.530] MR. BRIGHT: It’s — it’s stag- — everything is stopped.
+- [31:49.850] The President: (Inaudible.)
+- [31:51.050] MR. BRIGHT: Yeah. Yeah. Thank you, sir. Appreciate that.
+- [31:53.410] The President: We’re going to take care of you.
+- [31:54.790] MR. BRIGHT: Thank you, Jackie.
+- [31:56.000] MS. MITCHELL: Thank you. The President: Thank you.
+- [31:59.240] MS. MITCHELL: Thank you. Stay well.
+- [32:00.530] The President: Thank you. Please
+- [32:03.500] MS. NIX: I’m Pastor Nix.
+- [32:05.370] Our church is right down the road.
+- [32:07.360] We had only purchased in May, and it’s a big church.
+- [32:12.730] We’re a small congregation. And I had people say,
+- [32:16.360] “What are you going to do with this big building?”
+- [32:19.040] And I said, “Only God knows.” And we had our dedication,
+- [32:22.770] and the storm came the next week.
+- [32:25.260] And the outpouring of people —
+- [32:27.710] my son brought the first load of supplies.
+- [32:30.630] And from there, I stayed there for about three months.
+- [32:35.460] I slept on the floor for about three weeks
+- [32:37.420] because the need was so great. The people were so devastated.
+- [32:43.620] And I said, “I want to be here for them.”
+- [32:47.680] And they were coming in just day and night,
+- [32:49.560] so there’s really no need for me to go home.
+- [32:52.220] But we had people from Kentucky, Tennessee, Texas,
+- [32:56.650] Indiana, Oklahoma — people from all over.
+- [33:00.120] We have not received any help — like,
+- [33:02.150] from the government — anything.
+- [33:03.530] But I said, “Lord, if you want us to do that” —
+- [33:05.130] The President: (Inaudible) helped you?
+- [33:06.350] MS. NIX: People.
+- [33:06.600] The President: So, they came from all over the —
+- [33:07.890] MS. NIX: All over the states. MR. BRIGHT: (Inaudible)
+- [33:09.120] groups, that’s what — that’s what did it.
+- [33:10.350] The President: But FEMA — FEMA did nothing, right?
+- [33:11.550] MS. NIX: No.
+- [33:11.660] MR. BRIGHT: It was the — it was the — the locals.
+- [33:13.630] The President: FEMA is a waste of time and money.
+- [33:15.580] MS. NIX: The locals and the people that — that knew us.
+- [33:18.260] And before the week was over,
+- [33:21.760] our church was so packed with supplies,
+- [33:25.540] we couldn’t even — we couldn’t even walk.
+- [33:27.670] Even in our sanctuary, it was up to the platform —
+- [33:29.470] The President: That’s great.
+- [33:30.670] MS. NIX: — of things, and in our halls and in our rooms.
+- [33:32.990] And we’re just now beginning to get a little straightened out.
+- [33:36.210] But somebody said, “How long are you going to be here?”
+- [33:38.930] I said, “I’m going to be here through the winter
+- [33:40.950] and even on, if possible,” because when you meet people
+- [33:46.280] that’s been through this struggle —
+- [33:48.500] I had a little lady come up, and I said,
+- [33:51.770] “Can we do anything special for you?”
+- [33:54.530] And she said, “I don’t want to be selfish,”
+- [33:56.840] but said, “Could I have a cup of coffee?”
+- [33:59.660] And I handed her that coffee, and she stood there,
+- [34:02.420] and tears just poured.
+- [34:04.180] She said, “You don’t realize how —
+- [34:06.460] how important the — the little things.”
+- [34:09.690] It’s not the big things in life that we have,
+- [34:12.680] but it’s the little things and —
+- [34:14.890] and knowing that God is our source.
+- [34:17.950] I don’t look to man. I don’t have to have a lot of things.
+- [34:22.040] I — I had trees — about 20 trees down in my yard,
+- [34:25.790] but that didn’t really matter. It doesn’t matter,
+- [34:29.080] because the needs of the people is what —
+- [34:32.310] is what I want to be there for.
+- [34:33.570] And God is good.
+- [34:34.810] The President: He’s very good.
+- [34:36.010] MS. NIX: He’s very good.
+- [34:37.250] And my daughter — now, she —
+- [34:38.750] her house is really in bad shape.
+- [34:40.840] And I’ll let her tell you about that.
+- [34:42.130] The President: Okay.
+- [34:42.420] MS. NIX: But thank you, President.
+- [34:43.620] The President: Thank you very much.
+- [34:44.860] MS. NIX: This is our president.
+- [34:46.170] The President: (Laughs.)
+- [34:47.380] MS. NIX: We appreciate you so much.
+- [34:48.600] THE FIRST LADY: Thank you. Thank you all. Thank you.
+- [34:49.910] Thank for all what you do.
+- [34:51.840] MS. NIX-ROPER: I live out in the Fairview area
+- [34:54.060] of North Carolina and the —
+- [34:56.340] near the Bat Cave, Lake Lure area,
+- [34:58.840] and our area was hit — it was hit really hard. I —
+- [35:03.810] I was home alone, and my husband had stayed in town
+- [35:06.910] because we take care of a little lady that’s 98 years old,
+- [35:10.380] and she lives out in the woods by herself.
+- [35:12.200] And I said, “Just stay with her and make sure that she’s okay.”
+- [35:15.860] And I got up the next morning, and my first thought was,
+- [35:19.210] “I want to go see what our road and bridge looks like.”
+- [35:22.370] So, as I was making it down to the road and the bridge,
+- [35:26.100] there was no road and bridge.
+- [35:27.860] And so, you know, here we are. We’re, like, in a little island.
+- [35:31.080] You know, we can’t access the main road or anything.
+- [35:35.010] And then the fire department came by the next day
+- [35:39.220] and said that they were evacuating me and my neighbor
+- [35:41.920] because a landslide was going to come,
+- [35:45.780] and they told me to get my stuff and get ready.
+- [35:47.780] And so, while I was getting my stuff and getting ready,
+- [35:49.820] there was a knock at the door.
+- [35:51.100] So, I thought it was the fireman.
+- [35:52.310] And I went to the door,
+- [35:53.760] and there stood my 21-year-old son —
+- [35:56.310] his name is Nathan —
+- [35:57.820] and he had drove as far as he could to get to me.
+- [36:01.780] But he hiked five miles,
+- [36:04.220] and it took him a really long time.
+- [36:06.090] And he got there, and he said — he said,
+- [36:07.610] “Mom, grab a bag. We got to go.”
+- [36:09.720] And I said, “Son, there’s no way I can — I can hike out of here.”
+- [36:13.040] And he’s like, “No.” He said, “We got to go.”
+- [36:15.490] So, we — we started hiking out, and I —
+- [36:18.510] and I seen one of my neighbors who — she had no clothes on.
+- [36:24.760] Her — her — she was — her skin was —
+- [36:27.780] was, like, chunked up. It was just — she was blue.
+- [36:31.270] She had been — she had been in the — in the waters.
+- [36:34.990] And where she had went or — or —
+- [36:37.290] I don’t know, but it — horrific, is just all I can say.
+- [36:41.440] But then, as — as me and my son hiked on out,
+- [36:44.880] we went through where this — this place — we call it
+- [36:47.850] Craigtown — but there were, like, a lot of family members
+- [36:50.480] there that passed away — like 11 of them.
+- [36:52.530] And — and there — there were people out everywhere
+- [36:55.470] looking for their loved ones.
+- [36:56.900] And there were — there were dead bodies,
+- [36:58.780] you know? My son’s like,
+- [37:00.340] “Mom, you’re going to see things you don’t want to see.”
+- [37:03.080] And so, anyway, we got through all that,
+- [37:06.070] but I stayed at our church in our sound booth.
+- [37:09.800] My husband and I, we just slept up in the sound booth
+- [37:12.020] for a couple of months because we didn’t have power
+- [37:14.460] or anything for about two months out there.
+- [37:17.180] And then we — we have went back.
+- [37:21.150] I’ve been fighting with FEMA since day one.
+- [37:23.930] Our community — there’s, like, 32 homes.
+- [37:26.990] We don’t have a road and a bridge.
+- [37:28.650] We’re driving through our neighbors’ property.
+- [37:31.800] You know, I went to EMS, and I said,
+- [37:33.880] “Look, my concern is, if we have a fire or we have
+- [37:36.720] an emergency out here, you’re not going to get to us.
+- [37:39.850] You can’t get those big trucks up here.”
+- [37:42.340] And — and I’ve called and called and called FEMA.
+- [37:45.860] And, you know, I said it’s — this happened on September 27th.
+- [37:51.280] That’s four months ago.
+- [37:53.010] Well, for us, today is still September 27th.
+- [37:56.320] You know, we haven’t had help.
+- [37:58.240] And so, when I talk to FEMA,
+- [38:00.650] I’m explaining the road and the bridge,
+- [38:02.360] and they send me a letter that tells me to —
+- [38:04.890] to basically fix it and send in my receipts,
+- [38:07.520] and they’ll refund me some money.
+- [38:09.810] I’m looking at a road and bridge
+- [38:11.270] that, honestly, the bridge itself
+- [38:13.280] is probably going to be $300,000,
+- [38:15.510] and the road could be close to that also,
+- [38:17.410] because we have to have —
+- [38:18.810] the community has to have big boulders brought in.
+- [38:21.360] We’re not a rich community. We can’t fix it ourself.
+- [38:25.300] You know, it’s just — and as far as, like, house repairs,
+- [38:29.290] I’m still pending. I can’t get money from FEMA
+- [38:32.010] until I fix the road and bridge and fen- —
+- [38:34.150] and send in my — my proof that it’s fixed and everything.
+- [38:38.990] It’s — it’s just — it’s been a nightmare.
+- [38:41.760] And I totally feel like — that we have been forgotten.
+- [38:44.840] If it had not been for — for our fellow American citizens
+- [38:49.060] who stepped up to help us,
+- [38:51.190] I don’t know what we would have done.
+- [38:52.810] I have — I have five neighbors around me
+- [38:55.400] who completely lost everything.
+- [38:58.110] You know, I have damage to my house and — and I feel —
+- [39:02.410] I don’t feel entitled.
+- [39:05.020] I’m embarrassed to even say I need help, because, you know —
+- [39:08.930] and sometimes there’s even that —
+- [39:10.300] that survivors’ guilt, is what they’re calling it.
+- [39:14.790] But you feel guilty to even be alive
+- [39:16.260] sometimes, you know, when you look around
+- [39:17.880] and you see your neighbors that are gone.
+- [39:19.750] And it’s just, you know — we — we need help.
+- [39:22.570] I wrote a letter that — to send to Congress.
+- [39:24.830] You know, “I don’t understand what’s going on.
+- [39:27.720] If we can’t get FEMA help, then will you guys help us?
+- [39:31.300] Will you step up and be our fellow citizen?
+- [39:33.820] Will you step up and be our neighbor
+- [39:35.470] and send us something. Help us. Help us get our community back.”
+- [39:39.490] It’s — I could go on.
+- [39:41.140] It’s just a — I don’t know, it’s just heartbreaking.
+- [39:44.540] I appreciate you.
+- [39:45.950] The President: Thank you.
+- [39:47.190] A good daughter you have, huh? A good daughter.
+- [39:50.450] Take care of mom. And your son must be great.
+- [39:53.440] MS. NIX-ROPER: My son is great.
+- [39:54.690] The President: No, he sounds like a real leader and smart.
+- [39:57.100] MS. NIX-ROPER: He really is. Th- — to hike in —
+- [39:58.380] The President: So, how would you have been
+- [39:59.600] if he didn’t come and get you?
+- [40:01.510] MS. NIX-ROPER: I don’t know.
+- [40:03.170] I’d — I’d just been — would have been there until —
+- [40:05.910] because the only thing we could do —
+- [40:07.300] there were no way to get out there.
+- [40:08.950] The only thing we could do is just hike up to the church,
+- [40:12.160] the first church that was up there —
+- [40:13.590] about three miles to — to get, you know, maybe what we needed —
+- [40:17.240] The President: You tell him he’s just —
+- [40:18.580] MS. NIX-ROPER: — or some — I don’t know.
+- [40:19.820] The President: Tell him he’s a real leader.
+- [40:21.060] MS. NIX-ROPER: He is. Thank you.
+- [40:22.390] The President: Sounds good.
+- [40:23.600] Well, again, thank you very much, everybody.
+- [40:25.560] So, we’re going to be here.
+- [40:26.790] We’re going to be working with our congressmen and woman,
+- [40:29.990] and they’re going to do a job.
+- [40:31.740] And Michael Whatley is going to be very much in charge,
+- [40:36.330] and you’ll get it done.
+- [40:37.840] And FEMA is ready to rock. They haven’t done the job,
+- [40:41.670] because they weren’t really told to do the job by Biden.
+- [40:45.100] I guess Biden was thinking about other things, wasn’t he?
+- [40:48.230] But they weren’t told.
+- [40:49.590] What they did to — what the past administration
+- [40:52.010] did to North Carolina is a disgrace.
+- [40:54.690] So, I just want to wish you all well.
+- [40:58.280] I was here right after the event,
+- [40:59.770] and I couldn’t believe it.
+- [41:00.980] I have never seen anything like it.
+- [41:02.650] I’ve seen a lot of bad things,
+- [41:05.260] but I’ve never seen anything like it.
+- [41:07.100] And it’s an honor to meet the people behind me,
+- [41:10.630] and it’s an honor to be with our congressional delegation
+- [41:14.210] and some of the other politicians in the area.
+- [41:16.650] And it’s an honor to have Michael Whatley at my side,
+- [41:20.800] because maybe we wouldn’t be standing here
+- [41:22.890] as president if he wasn’t.
+- [41:24.270] Him and Lara — Lara Trump —
+- [41:26.170] were unbelievable as the head of the Republican Party.
+- [41:28.600] So, he happens to come from a place called North Carolina.
+- [41:31.820] So, I said, “Michael, fix it.” (Laughs.)
+- [41:35.010] So, good luck. Good luck.
+- [41:37.330] And we’ll supply what you need.
+- [41:38.700] You know that. Okay? Thank you.
+- [41:40.270] Thank you all very much. Thank you very much.
+- [41:41.920] The Press: Mr. President,
+- [41:43.180] what kind of role will Mr. Whatley have?
+- [41:44.430] The Press: Mr. President,
+- [41:45.640] I’m hearing all these heartbreaking stories
+- [41:47.260] and how there’s been so many local groups —
+- [41:49.220] The President: Yeah.
+- [41:49.560] The Press: — who have stepped up to —
+- [41:50.840] The President: Yeah.
+- [41:51.030] The Press: — assist these families.
+- [41:52.280] The President: That’s one of the things you hear.
+- [41:53.570] The Press: Is there any talk on having money —
+- [41:56.130] instead of going to FEMA and going through the bureaucracy
+- [41:58.500] — to go through them?
+- [41:59.700] The President: Yeah, that’s what I want to do.
+- [42:01.390] We want to bring it locally
+- [42:03.010] so that a state takes care of its problem,
+- [42:05.190] and then they can bring it down to a local level,
+- [42:07.690] like Samaritan’s Purse and Franklin,
+- [42:11.090] because that’s, you know, one of the better examples.
+- [42:14.190] But you had numbers of people that did a great job.
+- [42:16.200] You have groups that did a great job and organizations.
+- [42:19.510] The one that didn’t do a good job was the government.
+- [42:21.980] They did a bad job.
+- [42:23.220] They did in many ways, they did no job.
+- [42:26.050] They weren’t even available.
+- [42:30.660] So, good question.  The answer is: We go local.
+- [42:31.920] I think it will work much better.
+- [42:33.590] FEMA is a very expensive organization
+- [42:36.820] that really doesn’t work out very well.
+- [42:39.350] It hasn’t. This is not the only example.
+- [42:41.500] So, if it was up to me right now, I’d end it right now,
+- [42:45.150] and I’d just let the state take care of the problem.
+- [42:47.440] I mean, you’re going to always have problems.
+- [42:49.150] Let the state — if it’s Florida, it’s a hurricane,
+- [42:51.850] let Florida take care of it. They don’t need FEMA to come in.
+- [42:54.680] Yeah.
+- [42:55.890] The Press: What kind of role do you envision for Mr. Whatley?
+- [42:59.150] Is it within FEMA, outside of FEMA?
+- [43:00.650] The President: Yeah, I envision a very important role for him.
+- [43:03.400] It’s any role he wants. He’s a very capable guy.
+- [43:07.350] Michael Whatley, a very capable guy.
+- [43:09.880] And he’s friends and works with these guys.
+- [43:13.530] Keeps them elected, right? They have to do a good job.
+- [43:15.870] Otherwise, no matter how good Michael is, not going to work.
+- [43:18.770] But they’ve done an amazing job. They’ve been great.
+- [43:20.640] You’re lucky.
+- [43:21.930] You have great congressmen here and — and -woman,
+- [43:24.790] by the way — a great woman, very powerful woman.
+- [43:28.930] And they’re going to do a great job.
+- [43:30.870] They’ll do it together. They’ll work together,
+- [43:32.590] and we’ll supply what they need as they need it.
+- [43:35.090] We’ll coordinate that.
+- [43:36.330] And we will immediately get the Army Corps, Michael,
+- [43:40.930] because you need roads built.
+- [43:42.210] You know, we’re talking about the bridge,
+- [43:43.670] we’re talking about roads and things,
+- [43:45.210] so we’ve got to get them built.
+- [43:46.460] All right? Okay?
+- [43:48.140] Thank you all very much. Thank you very much.

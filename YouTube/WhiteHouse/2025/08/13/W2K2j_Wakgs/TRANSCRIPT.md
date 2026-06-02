@@ -1,0 +1,1180 @@
+<!-- source: https://www.youtube.com/watch?v=W2K2j_Wakgs -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: W2K2j_Wakgs -->
+<!-- date_published: 2025-08-13T16:32:31+00:00 -->
+<!-- date_accessed: 2026-06-02T02:45:52.502060+00:00 -->
+
+# Transcript: President Trump Visits the Kennedy Center and Makes an Announcement
+
+- [00:04.210] Announcer: Please welcome the President of the United States
+- [00:06.860] and the Chairman of the Board of the Kennedy Center,
+- [00:09.300] Donald J. Trump.
+- [00:11.210] ♪ (Hail to the Chief) ♪
+- [00:31.060] The President: Thank you very much.
+- [00:32.340] This is a very exciting project.
+- [00:34.680] We're going to do something that will go rapidly,
+- [00:38.940] relatively inexpensively,
+- [00:41.260] and we'll make it better than it ever was, frankly.
+- [00:44.920] It'll be something that people are going to be very proud of.
+- [00:47.990] Along with in the bigger picture,
+- [00:50.760] a place called Washington DC.
+- [00:53.160] That is the bigger one,
+- [00:54.450] and we'll talk about that in a little while.
+- [00:56.880] But let's talk about, right now, the Kennedy Center,
+- [00:59.380] and I'm delighted to be here as we officially announce
+- [01:02.570] the incredibly talented artists
+- [01:05.810] who will be celebrated later this year
+- [01:08.670] at the 2025 Kennedy Center Honors.
+- [01:12.640] It's going to be a big evening. I've been asked to host.
+- [01:18.570] I said, I'm the president of the United States.
+- [01:21.350] Are you fools asking me to do that?
+- [01:24.010] "Sir, you'll get much higher ratings."
+- [01:26.200] I said, I don't care.
+- [01:27.480] I'm president of the United States.
+- [01:29.020] I won't do it.
+- [01:30.650] They said, please.
+- [01:33.380] And then Susie Wells said to me, "Sir, I'll get a host."
+- [01:35.770] I said, "Okay, Susie. I'll do it."
+- [01:38.170] That's the power she's got.
+- [01:40.500] But I have agreed to host. I didn't want to do it.
+- [01:46.880] Okay? They're going to say he insisted. I did not insist.
+- [01:50.000] But I think it will be quite successful.
+- [01:52.750] It's been a long time.
+- [01:54.030] I used to host the apprentice finale,
+- [01:56.450] and we did rather well with that.
+- [01:58.630] So I think we're going to do very well
+- [01:59.960] because we have some great honorees,
+- [02:01.550] some really great ones.
+- [02:03.230] Since 1978, the Kennedy Center Honors
+- [02:07.020] have been among the most prestigious awards
+- [02:08.960] in the performing arts. I wanted one.
+- [02:10.780] I was never able to get one. This year, it's true, actually.
+- [02:14.640] I would have taken it if they would have called me.
+- [02:16.500] I waited and waited and waited. And I said, the hell with it.
+- [02:20.130] I'll become chairman. And I'll give myself an honor.
+- [02:23.200] Maybe next year, we'll honor Trump. Okay?
+- [02:27.590] This year, the board has selected
+- [02:28.970] a truly exceptional class of honorees.
+- [02:31.480] I mean, really exceptional.
+- [02:33.780] First is country music star, actor,
+- [02:37.460] and producer George Strait.
+- [02:40.190] (applause)
+- [02:46.270] Great. Over an extraordinary four decade career,
+- [02:50.960] George has sold more than 120 million records worldwide,
+- [02:55.710] amassed 60 number one hits, wow, and produced 33 platinum
+- [03:01.160] certified albums more than any other living American.
+- [03:05.180] That is amazing. He's believed by millions of people
+- [03:09.830] to just be as good as you can get,
+- [03:12.960] and he's beloved by hundreds of millions of people
+- [03:17.640] all over the world.
+- [03:18.890] He's really something, and they call him the king of country,
+- [03:21.800] and we know him very well, George Strait.
+- [03:25.700] (applause)
+- [03:31.810] Oh, and it looks nice. You're a good looking guy.
+- [03:35.860] I hope he still looks like that.
+- [03:39.730] Second is actor, singer, philanthropist,
+- [03:43.880] and star of the Broadway stage. One of my favorite talents.
+- [03:49.270] I think he's one of the greatest talents I've ever actually seen.
+- [03:52.530] I've always said among the greatest artists in the world
+- [03:59.900] are the Broadway London actors back and forth.
+- [04:02.220] That's all they want to do is they want to do Broadway,
+- [04:04.480] and they want to do London.
+- [04:06.290] They want to do eight shows a week,
+- [04:08.240] including matinee on Wednesday.
+- [04:11.220] And if you said make a movie, they can't even think about it.
+- [04:13.830] If you say go on television, they don't want to.
+- [04:15.930] All they want to do is be on the stage,
+- [04:17.730] the live stage, and it's amazing.
+- [04:19.330] But I've always said that they're most talented people.
+- [04:23.190] And this man may be the most of all, Michael Crawford,
+- [04:27.450] is being honored.
+- [04:28.930] (applause)
+- [04:33.050] Michael was born in England in 1942.
+- [04:37.560] He made his Broadway debut in 1967.
+- [04:42.740] I was there.
+- [04:44.680] I shouldn't say that, but I was there.
+- [04:47.030] Seems like a long time ago.
+- [04:49.220] And he became an international sensation in the 1980s
+- [04:53.400] for his original portrayal of the Phantom of the Opera,
+- [04:57.980] one of the greatest ever, ever, ever, ever.
+- [05:01.740] You don't see him like that very often.
+- [05:04.870] Winning him the esteemed Tony Award
+- [05:06.590] for best actor in a musical. He's won so many awards.
+- [05:11.370] Michael is truly a generational talent,
+- [05:13.570] had a voice that was unbelievable.
+- [05:17.980] It was unbelievable. There's never -- I don't know.
+- [05:20.480] It's Luciano Pavarotti had a very different voice.
+- [05:23.580] The power was incredible, magnificent.
+- [05:25.740] Michael had a different kind of a voice.
+- [05:28.310] These are just unbelievable talents.
+- [05:31.940] But Michael is very special
+- [05:34.780] and one of the greatest roles in the history of Broadway,
+- [05:39.800] and nobody did it like him.
+- [05:42.160] Michael Crawford, thank you very much. Great guy.
+- [05:48.500] Next, we look forward to honoring three time
+- [05:50.530] Oscar nominee, Golden Globe Award winner,
+- [05:53.020] an action movie icon, and a friend of mine.
+- [05:56.420] He's a very unique man.
+- [05:59.190] He's somebody that doesn't do these things.
+- [06:02.160] I said, I wonder if he'll accept
+- [06:03.600] because some people don't really want to be honored.
+- [06:07.330] They don't care.
+- [06:09.090] But he was very honored to be honored, I will tell you.
+- [06:13.770] He was -- he's a very special guy.
+- [06:19.050] A real talent, never been given the credit for the talent.
+- [06:21.790] There was nobody else could have done the roles
+- [06:23.440] that he did like he did. I'm not even close.
+- [06:25.350] And they've tried, and they didn't work out too well.
+- [06:28.290] His name is Sylvester Stallone.
+- [06:32.450] (applause)
+- [06:39.170] So it's very few, almost, if any,
+- [06:44.670] people that could have taken a name
+- [06:45.970] and made it so incredible, like Rocky,
+- [06:49.250] Rambo, Creed, and others.
+- [06:53.820] But think of it, Rocky, Rambo.
+- [06:55.710] If you did one, you're good. You do two.
+- [06:59.030] And I'll never forget, I was a young guy,
+- [07:00.940] and I went to see a thing called Rambo,
+- [07:04.800] and it had just come out.
+- [07:06.020] I didn't know anything about it, but I got --
+- [07:08.420] I was in a movie theater.
+- [07:09.640] Like, we used to go to movie theaters a lot.
+- [07:12.580] And I said, this movie is phenomenal.
+- [07:14.930] What the heck?
+- [07:16.760] And that turned out to be a monster.
+- [07:18.360] Rocky is Rocky.
+- [07:19.600] I mean, the way that happened, you know,
+- [07:22.500] Sly had no money, nothing, and he went around,
+- [07:26.560] and everybody wants to do a boxing movie.
+- [07:28.140] It's the most -- you know,
+- [07:29.390] probably more than any other type of character, boxing.
+- [07:32.620] Boxing. Always boxing. It's so great.
+- [07:35.360] And there's rarely been anything like this one.
+- [07:41.050] John Voigt did a great one, as you know.
+- [07:43.490] Champ. Great. I think that was right there too.
+- [07:48.780] John Voigt's a phenomenal person,
+- [07:50.390] phenomenal actor.
+- [07:52.250] But Sly came in, he had no money.
+- [07:55.610] He wrote a script along with thousands of other people
+- [07:58.650] writing scripts on a boxer.
+- [08:01.740] And for some reason, a studio picked up this and liked it.
+- [08:07.250] And Sly had -- he's in an old car
+- [08:11.280] that he came in from Brooklyn or someplace in New York,
+- [08:14.550] but I think Brooklyn. It barely made it to California.
+- [08:18.180] He was sleeping in the car. I mean, he had nothing.
+- [08:21.810] And he wanted control over who the actor was going to be
+- [08:26.690] because he said it can't be successful
+- [08:28.270] if you're going to pick a movie actor with a bad build.
+- [08:30.720] Okay? A nice face, but a bad body.
+- [08:34.830] And he said, I can't have these guys
+- [08:36.470] because he's a tough cookie,
+- [08:37.780] and he knew exactly what it took.
+- [08:40.130] He knew what a boxer's body was. So they brought him one,
+- [08:44.920] and I won't tell you who it was, but it was a big name.
+- [08:48.530] But the chest wasn't exactly what you need.
+- [08:52.170] One shot and your heart would pop out.
+- [08:56.000] That wasn't too good. Then he did another one.
+- [08:57.960] He was fat, sloppy, but had a good face.
+- [09:02.610] Then he did another one and another one and another one.
+- [09:06.270] And he turned it down.
+- [09:07.510] He wouldn't take one million dollars.
+- [09:09.490] He wouldn't do it.
+- [09:11.780] And it turned out that when they saw him, they said,
+- [09:14.540] you know, you'd be actually pretty good for this role.
+- [09:17.700] And he had never done this before, think anything like it.
+- [09:21.010] But think of it, he turned down a million dollars.
+- [09:23.640] He had nothing. He refused to let somebody else play.
+- [09:26.600] He didn't want to play it.
+- [09:27.840] He wasn't original. He did it as a writer.
+- [09:30.440] But he ended up playing it
+- [09:31.760] because he couldn't find anybody else that fit the role.
+- [09:35.370] And who knew what would have happened?
+- [09:39.550] He's become a legend of the silver screen,
+- [09:42.620] a true legend, and he's a great guy.
+- [09:44.550] He's a little bit tough, a little bit different,
+- [09:46.780] I will tell you. He's a little tough guy.
+- [09:49.450] But he's a phenomenal person
+- [09:51.170] with a phenomenal wife and family.
+- [09:54.050] Incredible wife. Incredible family.
+- [09:56.900] His films are grossing more than 7.5 billion,
+- [10:01.500] which is either a record or very close to it.
+- [10:03.600] I can't imagine anybody doing more.
+- [10:05.190] If you add up Rambo and Rocky and these others, it's --
+- [10:07.780] I can't imagine anybody doing much more.
+- [10:11.140] 7.5 billion worldwide over the course of six decades.
+- [10:15.620] And Sly is a pillar of the, really, American pop culture
+- [10:21.830] and a Hollywood superstar like few others,
+- [10:26.050] and one of the biggest names on the Hollywood Walk of Fame.
+- [10:30.190] In fact, the only one that's a bigger name
+- [10:32.220] on the Hollywood Walk of Fame,
+- [10:33.420] they say is a guy named Donald Trump.
+- [10:36.510] I'm on the Hollywood Walk of Fame too,
+- [10:38.230] if you can believe that one.
+- [10:40.780] But he's amazing.
+- [10:42.520] He's really amazing, and he's actually a great actor.
+- [10:46.840] Fourth will be together celebrating
+- [10:50.780] one of the most revered singers of the American disco era,
+- [10:55.710] Gloria Gaynor.
+- [10:57.290] (applause)
+- [11:01.660] Best known for her chart topping 1978 hit,
+- [11:06.240] "I Will Survive,"
+- [11:08.040] Gloria won the 1980 Grammy for best disco recording,
+- [11:12.840] and her song was inducted into the national
+- [11:15.930] recording registry in 2016.
+- [11:18.370] Four decades later, Gloria won a second Grammy in 2020
+- [11:23.100] for her gospel album,
+- [11:25.970] "Testimony," which is incredible.
+- [11:28.470] Truly a historic achievement, not only in times of the --
+- [11:32.280] not only in terms of the years that have gone by
+- [11:34.850] to be great that long, but to have the two top --
+- [11:39.640] two top of anything in that span of time
+- [11:42.090] and with that kind of period between is pretty amazing.
+- [11:47.350] But I will say that "I Will Survive"
+- [11:51.030] is an unbelievable song. I've heard it, you know,
+- [11:55.730] like everyone else hear thousands of times,
+- [11:59.250] and it's one of those few
+- [12:00.810] that get better every time you hear it,
+- [12:03.180] and nobody can sing it like her. And that's an honor.
+- [12:06.930] So Gloria Gaynor, thank you. Thank you very much.
+- [12:13.220] And finally, we'll be honoring one of the greatest rock
+- [12:16.160] bands of all time, KISS.
+- [12:24.540] So KISS was formed in 1973 in New York City
+- [12:28.940] by founding band members, and incredible people,
+- [12:31.830] by the way, Paul Stanley, Gene Simmons, Ace Frehley,
+- [12:38.300] and Peter Criss. Kiss became a global phenomenon,
+- [12:43.110] sold more than 100 million records worldwide,
+- [12:46.030] and produced 30 gold albums
+- [12:48.640] and lots of other things they produced.
+- [12:50.830] They made a fortune.
+- [12:52.740] And they're great people, and they deserve it.
+- [12:55.450] And they work hard, and they're still working hard.
+- [12:57.830] And it's an honor to present Kiss.
+- [13:03.370] Thank you very much. Got it? Yeah. Thank you.
+- [13:10.190] And they're going to do something very special.
+- [13:11.950] KISS is going to be here on a little bit before the show.
+- [13:16.860] I think they're going to do something very special.
+- [13:18.640] We're going to have a good time.
+- [13:20.690] The 48th Kennedy Center honorees are outstanding people,
+- [13:26.110] a standing group, incredible.
+- [13:27.950] We can't wait to celebrate the Kennedy Center honors.
+- [13:34.050] It'll be in December. It'll be on CBS.
+- [13:38.040] In a few short months since I became chairman
+- [13:40.190] of the board of the Kennedy Center,
+- [13:41.520] we have completely reversed the decline
+- [13:44.910] of this cherished national institution.
+- [13:48.560] It was being run down.
+- [13:52.000] Money wasn't being spent properly.
+- [13:54.290] They were building things
+- [13:55.540] they shouldn't have built that nobody wanted
+- [13:57.140] instead of taking care of the great gem that it is.
+- [13:59.520] You look at the marble.
+- [14:00.810] Look at the quality of the marble
+- [14:02.310] and the things that with a little fix up
+- [14:05.080] and a little work, we can make it unbelievable.
+- [14:07.190] These columns, when you see them the next time,
+- [14:10.260] they'll be magnificent.
+- [14:11.500] I mean, we have some great plans for this.
+- [14:13.970] The bones are so good. The bones of a building.
+- [14:17.660] If you don't have the bones, you might as well forget it.
+- [14:20.680] I'm working on another building, a thing called the White House.
+- [14:23.780] We're fixing it up so beautifully.
+- [14:25.320] It needed it. It's been many,
+- [14:27.090] many years since it's been properly taken care of.
+- [14:30.170] It's incredible. One of the great places of the world.
+- [14:32.300] Maybe -- I mean, truly, to me, it's --
+- [14:34.450] is there anything else even close?
+- [14:37.120] But we're doing that and doing some other things,
+- [14:41.050] and we're going to also fix up place called Washington, DC.
+- [14:44.200] We're going to make it so beautiful again.
+- [14:46.210] We're going to be redoing the parks, redoing the grass.
+- [14:48.840] You know, grass is a lifetime like people have a lifetime.
+- [14:52.670] And a lifetime of this grass has long been gone
+- [14:56.130] when you look at the parks
+- [14:57.410] where the grass is all tired, exhausted.
+- [15:02.650] We're going to redo the grass with the finest grasses.
+- [15:06.490] I know a lot about grass because I own a lot of golf courses.
+- [15:09.470] And if you don't have good grass,
+- [15:10.810] you're not in business very long, Lindsey Graham.
+- [15:13.640] By the way, you have very good poll numbers, Lindsey.
+- [15:15.550] I just saw congratulations.
+- [15:20.050] But a few short months ago,
+- [15:22.660] I became chairman of the Kennedy Center,
+- [15:24.590] and we completely reversed it. We reversed what was happening.
+- [15:29.350] We ended the woke political programming,
+- [15:32.520] and we're restoring the Kennedy Center
+- [15:34.430] as the premier venue for performing arts
+- [15:36.660] anywhere in the country, anywhere in the world.
+- [15:39.090] This has the potential to be anywhere in the world.
+- [15:41.370] We're going to make it something that people can't even believe.
+- [15:44.510] We have some unbelievable plans.
+- [15:46.100] And, ultimately, it's about the talent you get, though.
+- [15:48.740] You know, you can have a beautiful --
+- [15:50.640] you can have a beautiful building.
+- [15:51.950] You can have nice marble walls.
+- [15:53.420] You can have nicely done columns, as I was saying.
+- [15:56.480] But if you don't have the talent on the stage,
+- [15:58.980] then we're going to get the best talent in the world.
+- [16:01.550] To that end, the world renowned musical
+- [16:03.600] Les Mis had a phenomenal five weeks
+- [16:05.910] sold out run this summer,
+- [16:07.810] beat projected revenues by 35 percent,
+- [16:11.790] and we've raised over 10 million dollars in private funds
+- [16:15.290] from a lot of generous donors.
+- [16:17.140] And we closed the 26 million dollar budget shortfall
+- [16:22.270] that they had for before we got here.
+- [16:25.580] And with the help of Congress,
+- [16:27.200] we secured the critical funding necessary
+- [16:30.310] to rebuild the building and we're going to get all brand
+- [16:34.140] new highest level seats, magnificent seats,
+- [16:37.540] and it's going to be all new.
+- [16:38.830] We could've taken the existing ones
+- [16:40.590] and done a little paint job,
+- [16:42.960] a little fabric, but it's not the same thing.
+- [16:45.730] So we'll be taken out next season.
+- [16:48.220] All of the seats will be taken out.
+- [16:52.500] The room is being completely rebuilt.
+- [16:54.670] And I just want to thank the Republicans in the Senate
+- [16:58.210] headed by Lindsey in that case. Lindsey was very much –
+- [17:00.620] she's a big fan of this building.
+- [17:03.280] And they got a record $257 million
+- [17:07.810] that's going to go toward renovations
+- [17:11.180] that building really needs,
+- [17:12.480] and all of the exterior is going to be incredible.
+- [17:14.730] It's going to be exciting. So I thank you very much
+- [17:17.850] and thank all of your Republican senators.
+- [17:19.880] I don't think we had too many Democrat votes, probably.
+- [17:22.190] You never have. We don't have Democrats voting even for crime.
+- [17:26.340] But I shouldn't make this political because they made
+- [17:28.320] the Academy Awards political and they went down the tubes.
+- [17:31.970] So they'll say, "Trump made it political."
+- [17:34.000] But I think if we make it our kind of political, we'll go up.
+- [17:36.850] Okay? Let's see if I'm right about that.
+- [17:40.050] But I want to thank the executive director
+- [17:42.210] for an incredible job. He's done great.
+- [17:44.510] He's been with me for just about the beginning,
+- [17:47.370] and everything he's touched has been good.
+- [17:49.680] He was on high intelligence.
+- [17:51.950] He worked in low intelligence and high intelligence.
+- [17:55.160] He did better with the high intelligent people,
+- [17:58.380] but he's been fantastic.
+- [17:59.870] He's the executive director Rick Grinnell for his work.
+- [18:02.620] Thank you very much, Rick. Unbelievable job.
+- [18:09.630] And as well as Lindsey and all the people
+- [18:11.950] that helped us in Congress, I want to thank.
+- [18:14.030] And the Senate has been incredible.
+- [18:18.150] By the way, leader Thune has been unbelievable.
+- [18:22.570] And Speaker Mike Johnson – these are great people.
+- [18:28.020] What we're doing with the great big beautiful bill
+- [18:30.600] is you're going to see a whole different country.
+- [18:32.390] You're seeing it already.
+- [18:33.680] We're coming in where trillions of dollars is coming in
+- [18:38.310] from tariffs from all over the world,
+- [18:39.980] from countries that took advantage of our country.
+- [18:43.660] They thought we were children.
+- [18:45.820] They took advantage of us for decades,
+- [18:47.750] and now, the money is flowing to us.
+- [18:51.160] And we have become the hottest country anywhere in the world.
+- [18:55.180] But the Kennedy Center board members,
+- [18:57.060] many of whom I knew and many of whom I put on the board,
+- [19:01.940] and they're outstanding.
+- [19:03.380] As good a board as I've ever seen.
+- [19:06.800] And on the board also are some people
+- [19:09.680] that are doing an incredible job.
+- [19:11.050] One in particular is Attorney General Pam Bondi.
+- [19:13.540] The job she's doing is incredible.
+- [19:15.870] Thank you very much. Long beyond the Kennedy Center.
+- [19:19.370] The Kennedy Center is the easy part.
+- [19:21.920] She's incredible and you're going to see a big change
+- [19:24.610] in Washington crime stats very soon.
+- [19:26.900] Not the stats that they gave
+- [19:28.130] because they turned out to be a total fraud.
+- [19:30.460] The real stats. The stats went through the roof.
+- [19:32.770] You know, they had a man that was forced
+- [19:34.830] to put up stats like they were doing better.
+- [19:36.450] They're not doing better.
+- [19:37.790] The crime is the worst it's ever been,
+- [19:39.320] but it started as of about yesterday.
+- [19:42.950] It started – you see a big change,
+- [19:45.680] and people are feeling safe already.
+- [19:47.040] I've had so many calls. "Thank you, sir. Thank you."
+- [19:50.040] They were afraid to walk out. They're not afraid anymore.
+- [19:53.300] And this will get – this will be like the border.
+- [19:55.890] We started off with millions and millions of people coming in
+- [19:58.450] from all over the world,
+- [19:59.650] gang members and people from jails.
+- [20:01.880] They were unloading their jails into our country.
+- [20:04.710] All over the world, they were coming.
+- [20:06.910] Drug dealers, they came from Africa.
+- [20:10.320] They came from Asia. They came from South America.
+- [20:12.890] Venezuela, in particular, they were coming in.
+- [20:15.940] Trinidad Tobago and the toughest people you've ever seen.
+- [20:21.170] And by the millions and for the last three months,
+- [20:26.420] we had zero, zero, and zero.
+- [20:29.190] We had zero people come in for three months.
+- [20:32.020] They respect our country again.
+- [20:33.570] That's the other thing.
+- [20:34.810] All over the world, our country is respected again.
+- [20:38.010] So I also want to thank the Chief of Staff, Susie Wiles,
+- [20:41.900] who's fantastic. She's done an incredible job.
+- [20:46.440] And Sergio Gor for the job he's done with personnel.
+- [20:50.320] Thank you very much, Sergio. Fantastic.
+- [20:53.080] In the coming months, we'll fully renovate the dated
+- [20:56.200] and the entire infrastructure of the building
+- [21:02.080] and make the Kennedy Center a crown jewel of American arts
+- [21:06.140] and culture once again.
+- [21:08.070] I think we'll bring it to a higher level than it ever hit.
+- [21:10.490] Actually, it hit a certain level,
+- [21:11.900] but we're going to bring it to a higher level than it ever hit.
+- [21:15.000] We have the right location.
+- [21:17.420] And soon, we will be a crime free area.
+- [21:20.720] This is going to be a crime free area, by the way.
+- [21:23.300] You'll be able to go out.
+- [21:24.510] People tell me they can't run anymore.
+- [21:26.310] They're just afraid. And they'll be running again.
+- [21:29.370] We're going to have a crime free –
+- [21:30.830] it's a big statement because if one thing happens all year,
+- [21:34.440] Pam, you better be good because they'll say
+- [21:36.880] Trump did not fulfill this.
+- [21:39.030] One person gets a little injured by somebody, they'll say
+- [21:42.170] Trump did not fulfill his promise. No.
+- [21:44.330] We're going to be essentially crime free.
+- [21:47.230] This is going to be a beacon,
+- [21:49.820] and it's going to also serve as an example of what can be done.
+- [21:54.870] We have to get rid of this cashless bail nonsense.
+- [21:58.250] If you look at New York, Chicago, Los Angeles,
+- [22:01.670] which is so badly run.
+- [22:03.420] Los Angeles, they can't get the houses.
+- [22:04.910] They can't get the people
+- [22:06.270] their permits to build their houses.
+- [22:07.810] They're trying to rebuild their houses from the ridiculous fire
+- [22:10.720] that should have never been allowed to have taken place.
+- [22:13.910] They should have had the water coming down
+- [22:15.420] from the Pacific Northwest, but they didn't do that.
+- [22:18.880] But they can't get the permits for the people.
+- [22:20.700] They want to build their houses.
+- [22:22.990] But I want to thank Lee Zeldin because the federal government
+- [22:25.840] has gotten all of their permits,
+- [22:27.440] which are much more difficult permits, actually,
+- [22:29.940] and had them literally within thirty days after the fire.
+- [22:33.910] Everybody had their permit.
+- [22:35.930] But you don't have the city and state permits.
+- [22:38.070] They got to get going.
+- [22:39.280] The governor and the mayor have to get going.
+- [22:42.230] It will just be a matter of time
+- [22:45.100] that we're going to do something that's going to be incredible.
+- [22:47.780] We're going to use the Kennedy Center as a big focus of it,
+- [22:50.900] and that's the 250th anniversary celebration that we're having.
+- [22:55.610] So it's 250 years.
+- [22:57.290] So we have the Olympics, we have the World Cup,
+- [23:01.880] and we have the 250th anniversary celebration
+- [23:06.200] all in this administration.
+- [23:07.900] And it's an honor that we were able to –
+- [23:12.490] not be allowed to do what we were illegally –
+- [23:16.740] and what we were supposed to do,
+- [23:18.590] and that was we had a great election in 2020.
+- [23:22.270] We won the election by a lot, but it was a rigged election.
+- [23:27.030] And we had to wait four years, and we waited four years.
+- [23:29.820] And interesting because I got the Olympics
+- [23:31.830] and I got the World Cup.
+- [23:33.080] I can't claim that I got the 250th.
+- [23:35.230] That one's a big one, but I happen to be here.
+- [23:38.450] But I got the Olympics, I got the World Cup, and I said,
+- [23:41.490] "The shame of it is that I'm not going to be president
+- [23:44.660] when it happens."
+- [23:45.900] And lo and behold, look what happens.
+- [23:48.190] We have some bad things took place,
+- [23:50.880] and now I'm going to be president for the Olympics.
+- [23:53.510] I'll be president for the World Cup,
+- [23:56.130] and the 250th is going to be maybe more exciting than both.
+- [24:00.200] It's a great celebration of our country.
+- [24:01.960] We're going to be using this building
+- [24:03.320] for a lot of the celebration having to do with 250 years.
+- [24:09.420] But as I said earlier, I'm determined to make
+- [24:11.330] Washington DC safe, clean, and beautiful again.
+- [24:14.110] It's going to take place very rapidly. Be prepared.
+- [24:17.460] And a big part of that's going to include the Kennedy Center.
+- [24:21.180] So thank you very much,
+- [24:22.840] and I want to thank everybody for helping us.
+- [24:25.900] This is mostly the group right here that's
+- [24:28.350] – they're young, they're smart,
+- [24:30.680] they're ambitious, they want my job.
+- [24:33.200] Someday one of them will probably have it,
+- [24:35.860] but we have a great group of people
+- [24:37.600] that are putting this together,
+- [24:38.860] and they're also helping us with Washington, DC.
+- [24:41.430] We're going to make Washington beautiful.
+- [24:43.530] We're going to redo roads.
+- [24:44.840] We're going to redo the medians, the pavers,
+- [24:47.650] and the medians all throughout the city.
+- [24:50.250] We're going to take all the graffiti off.
+- [24:51.850] We're going to have to remove the tents
+- [24:53.910] and the people that are living in our parks.
+- [24:57.110] We're going to be redoing the parks, the grasses, and all.
+- [25:00.260] We're going to be going to Congress
+- [25:02.550] for a relatively small amount of money,
+- [25:04.300] and Lindsey and the Republicans are going to be approving it.
+- [25:07.440] I don't know about the Democrats.
+- [25:09.760] They don't approve anything. It's amazing.
+- [25:11.610] It's like they just don't want to vote for anything.
+- [25:14.720] They've got the yips.
+- [25:15.920] You know, in golf, they say the yips.
+- [25:18.280] The Democrats are afraid to do anything
+- [25:20.000] because they don't want to be criticized.
+- [25:21.410] But fighting crime is a good thing.
+- [25:23.030] We have to explain.
+- [25:24.270] We're going to fight crime. That's a good thing.
+- [25:26.760] Already, they're saying, "He's a dictator."
+- [25:30.030] The place is going to hell, and we've got to stop it.
+- [25:33.540] So instead of saying he's a dictator, they should say,
+- [25:35.790] "We're going to join him and make Washington safe."
+- [25:38.850] But they say, "He's a dictator."
+- [25:44.400] And then they end up getting mugged.
+- [25:46.550] But the stats are very bad. But we're going to –
+- [25:51.020] I think we'll actually get Democrat support.
+- [25:52.850] I really believe. They can't do this one too.
+- [25:55.960] You know, they talk about 80-20 issues.
+- [25:59.760] But I think many of those 80-20 issues,
+- [26:02.080] like men and women's sports, I think it's 97 to 3, not 80-20.
+- [26:06.300] And I think crime is maybe 100 to nothing.
+- [26:08.990] So I think we may very well get some Democrat support,
+- [26:11.080] but I hope so.
+- [26:12.370] But even if we don't, we have the majority,
+- [26:14.000] so we're going to vote it in as Republicans,
+- [26:16.590] and we're going to do something. And that's going to serve
+- [26:18.540] as a beacon for New York, Chicago, Los Angeles,
+- [26:22.710] and other places all over the country.
+- [26:24.420] This whole – our whole country is going to be so different
+- [26:28.610] and so great.
+- [26:30.100] It's going to be clean and safe and beautiful,
+- [26:32.180] and people are going to love our flag
+- [26:34.480] more than they've ever loved it.
+- [26:36.500] And we're going to do a great job.
+- [26:38.150] So I want to congratulate all the nominees.
+- [26:40.590] They're unbelievable people,
+- [26:42.580] and we're going to have a tremendous day in December.
+- [26:47.000] And that evening is going to be special,
+- [26:49.520] some really special people and real talent.
+- [26:53.300] Do you have any questions? Yes, please.
+- [26:59.320] The Press: Hi, sir. There's new reporting
+- [27:01.590] that the Russians have hacked into some computer systems
+- [27:05.220] that manage US federal court documents.
+- [27:07.400] I wonder if you've seen this reporting
+- [27:08.990] and if you plan to bring it up with Putin
+- [27:10.410] when you see him later in the week.
+- [27:11.660] The President: I guess I could. I mean, are you surprised?
+- [27:13.560] You know? Are you surprised? They hack in.
+- [27:15.830] That's what they do. They're good at it.
+- [27:17.400] We're good at it. We're actually better at it.
+- [27:20.230] But, no, I have heard about it. I have heard about it.
+- [27:29.660] The Press: Mr. President,
+- [27:30.890] you mentioned congressional Democrats.
+- [27:33.950] You have not yet met with Democratic leadership,
+- [27:37.210] but there's a funding deadline at the end of September.
+- [27:40.180] Do you plan to meet with Leader Schumer
+- [27:42.630] and Leader Jeffries to discuss that situation?
+- [27:45.190] The President: Well, I will, I guess,
+- [27:46.500] but it's almost a waste of time to meet
+- [27:49.140] because they never approve anything.
+- [27:51.690] If we want money to fight crime,
+- [27:53.840] if we want money for only good things, just good things.
+- [27:56.540] Let's not even talk about controversy.
+- [27:58.320] They don't want to meet about anything.
+- [28:00.950] They really are – they're stuck. They don't know what to do.
+- [28:05.400] They have probably more –
+- [28:07.600] I would say more than half are sane,
+- [28:10.190] but they are led by insane people.
+- [28:13.250] And the kind of things
+- [28:15.390] that they're pushing are not something.
+- [28:17.810] We have a communist running for the mayor of New York,
+- [28:21.090] and I wish him well. I may have to deal with him.
+- [28:23.030] I mean, it's not even conceivable.
+- [28:26.450] It's not even conceivable that that could happen,
+- [28:28.500] and maybe he won't win,
+- [28:29.770] but he won the primaries by quite a bit.
+- [28:32.750] You know? Shockingly, he won the primaries.
+- [28:35.410] So you see some of the people supporting him
+- [28:40.160] that truly don't believe what he's espousing.
+- [28:44.370] So, I mean, we will meet,
+- [28:47.550] but nothing's going to come out of the meeting.
+- [28:49.760] But here's the advantage we have is that we have a great –
+- [28:52.470] we just passed the great, big, beautiful bill
+- [28:54.330] that had all the biggest tax cuts in history.
+- [28:57.050] No tax on tips. No tax on Social Security. Think of it.
+- [29:02.010] Think of that for the seniors. No tax on overtime.
+- [29:05.450] And all sorts of things.
+- [29:07.990] You go out, buy a car, you can deduct the interest payment.
+- [29:11.280] If you borrow money, you can deduct the interest payment,
+- [29:13.530] free of your taxes. So many things.
+- [29:16.030] But the biggest thing is,
+- [29:18.730] from a business standpoint, deductions.
+- [29:20.740] You know? That was tremendous.
+- [29:22.060] It's going to – our country is roaring.
+- [29:23.650] Our businesses are –
+- [29:24.860] you're going to see some numbers in twelve months
+- [29:28.290] when these factories are open.
+- [29:29.780] You know, we're opening up factories all over the country,
+- [29:33.380] but that's all spreading to –
+- [29:34.820] I think we're spreading the wealth
+- [29:36.170] all over the world, if you want to know the truth.
+- [29:38.480] But we're opening them in this country
+- [29:39.750] at a level that we've never seen before.
+- [29:41.680] We've never seen. So they just don't want to approve anything.
+- [29:45.130] They just – we meet with them
+- [29:46.610] and they say, as Nancy Reagan said,
+- [29:50.430] "Just say no." They go, "Say no."
+- [29:53.700] They're afraid to approve anything if we say,
+- [29:56.370] "We want to stop crime in this country."
+- [29:59.130] Or as an example, bail, we want to make it so that people,
+- [30:03.870] if they murder somebody, they're in jail.
+- [30:05.490] They don't get out on no bail. They say, "We don't want that.
+- [30:09.220] We want people to murder somebody,
+- [30:10.790] and they immediately are released,
+- [30:12.330] they go out and murder somebody else."
+- [30:13.800] It's a big problem. A tremendous problem.
+- [30:16.190] By the way, we're going to go for statutes in DC
+- [30:19.840] and then ultimately for the rest of the country
+- [30:21.620] where that's not going to be allowed.
+- [30:23.100] Because it was when they did the cashless bail thing
+- [30:28.270] that the numbers really started going up in this city,
+- [30:32.660] in New York, in Chicago, in Los Angeles.
+- [30:34.650] No matter where they have it,
+- [30:36.270] the numbers went through the roof.
+- [30:37.570] So we're going to meet with them, of course.
+- [30:39.610] I'd like to meet with them.
+- [30:40.910] We're going to tell them all these good things,
+- [30:42.400] and they're going to tell us no. And then we're going to go out,
+- [30:44.970] and we're going to vote it in by the Republicans
+- [30:46.700] because I don't believe that anybody
+- [30:50.960] is capable of making a deal with these people.
+- [30:53.330] They have gone crazy.
+- [30:55.900] The Press: Mr. President.
+- [30:57.560] The President: Go ahead.
+- [30:58.880] The Press: Thank you, Mr. President.
+- [31:00.120] Your federalization of the police has a thirty day limit
+- [31:03.190] unless congress acts to extend it.
+- [31:05.130] Are you talking to congress about extending it,
+- [31:07.010] or do you believe thirty days is sufficient?
+- [31:08.910] The President: Well, if it's a national emergency,
+- [31:10.430] we can do it without congress, but we expect to be to congress
+- [31:13.610] before congress, very quickly. And, again,
+- [31:16.660] we think the Democrats will not do anything to stop crime,
+- [31:19.520] but we think the Republicans will do it almost unanimously.
+- [31:23.010] So we're going to need a crime bill
+- [31:25.770] that we're going to be putting in,
+- [31:27.720] and it's going to pertain initially to DC.
+- [31:31.280] We're going to use it as a very positive example,
+- [31:34.760] and we're going to be asking for extensions on that,
+- [31:37.960] long term extensions because you can't have thirty days.
+- [31:40.360] Thirty days is that's by the time you do it.
+- [31:43.390] We're going to have this in good shape.
+- [31:44.980] And don't forget, in the border,
+- [31:48.330] everyone said it would take years
+- [31:49.810] and you'd have to go back to congress.
+- [31:51.150] I never went to congress for anything.
+- [31:52.620] I just said, close the border, and they closed the border.
+- [31:57.790] And that was the end of it. I didn't go back to congress.
+- [32:00.670] We're going to do this very quickly,
+- [32:02.290] but we're going to want extensions.
+- [32:03.760] I don't want to call national emergency.
+- [32:05.260] If I have to, I will.
+- [32:07.000] But I think the Republicans in Congress
+- [32:09.310] will approve this pretty much unanimously.
+- [32:14.880] The Press: Thank you, Mr. President.
+- [32:16.360] Would you encourage members of the press to do ride alongs
+- [32:19.550] with the DC police to understand how serious this crime issue is?
+- [32:22.620] The President: Sure.
+- [32:23.820] Sounds okay to me if they want to do it.
+- [32:26.120] We're going to work with the DC police.
+- [32:27.670] A lot of very good people in there.
+- [32:30.180] Not all, but a lot of very good, very professional.
+- [32:34.710] And, you know, we have a big force.
+- [32:36.170] I think they said three thousand five hundred.
+- [32:40.290] The mayor, who's a very nice woman,
+- [32:42.230] but has got to do the job.
+- [32:44.230] You know, we've worked with the mayor for six months,
+- [32:46.920] and she's been here for many years.
+- [32:49.260] And the numbers are worse than they ever heard.
+- [32:50.830] Don't let anyone tell you they're not.
+- [32:52.510] And the whole statistical charts that they made,
+- [32:56.160] the whole thing is a rigged deal.
+- [32:58.700] They got rid of the guy because he didn't want to do
+- [33:01.520] the numbers the way they wanted to,
+- [33:02.840] and they put their own numbers out.
+- [33:04.100] They said it's the best in twenty years.
+- [33:05.640] No. It's the worst in twenty years.
+- [33:08.220] But we're going to be very open about what we're doing.
+- [33:12.190] So if the media wants to ride with police,
+- [33:14.580] if they want to do it,
+- [33:15.810] if they feel it's safe, that would be okay.
+- [33:20.700] Please. Go ahead.
+- [33:23.020] The Press: Thank you, Mr. President.
+- [33:24.280] Mary Barrow with Daily Wire.
+- [33:25.780] Two questions on DC, if that's okay.
+- [33:27.900] How do you feel about mayor Bowser's level of cooperation
+- [33:30.490] and her choosing to advocate for DC statehood right now?
+- [33:33.990] The President: Well, statehood is ridiculous.
+- [33:39.190] We want to straighten the place out.
+- [33:41.140] Statehood's ridiculous. It's unacceptable.
+- [33:44.950] The Democrats want it because the Democrats have,
+- [33:47.980] you know, about ninety five percent in this little area.
+- [33:51.340] Even I didn't get very much.
+- [33:53.850] They want that. They want to pick up two senators,
+- [33:55.780] and it's not going to happen. It's not going to happen.
+- [33:58.880] And that's the least of the reasons why, by the way,
+- [34:01.040] but that's one of the reasons why.
+- [34:03.120] What we want to do is make Washington DC
+- [34:06.550] the greatest, most beautiful, safest capital
+- [34:09.100] anywhere in the world, and that's going to happen.
+- [34:11.450] I mentioned the word bones before.
+- [34:13.120] The bones here, we have the greatest bones.
+- [34:15.170] When you look at that Supreme Court building,
+- [34:17.080] I think it's one of the most beautiful buildings.
+- [34:20.070] When you look at some of the buildings here,
+- [34:21.780] it's so magnificent and everything's good,
+- [34:24.540] but it's just dirty and not properly maintained.
+- [34:27.700] It's not taken care of.
+- [34:29.200] Potholes in the roads.
+- [34:30.400] All of it's going to happen very quickly.
+- [34:32.070] We're going to seek a relatively small amount
+- [34:34.730] of money for fix up,
+- [34:36.620] and we're going to put it out to bid.
+- [34:38.400] And we have great contractors here,
+- [34:39.960] great road builders every day.
+- [34:41.790] And we're not ripping roads apart
+- [34:43.320] so they're closed for four years as they redo the concrete bases,
+- [34:47.170] and you don't need that.
+- [34:48.760] We need a beautiful topping by a very talented
+- [34:53.350] asphalt type person, somebody that does the job.
+- [34:58.280] When I get contractors, I use great contractors.
+- [35:00.860] To me, contractors are very special,
+- [35:04.440] like a great surgeon,
+- [35:06.440] like a great teacher, like a great nurse.
+- [35:09.650] A great contractor is very important.
+- [35:11.310] We'll only use the best.
+- [35:12.520] And when you put a coat of asphalt on that,
+- [35:15.810] two inches of asphalt, three inches of asphalt,
+- [35:18.140] it looks brand new. You take all the garbage off.
+- [35:23.180] They recede it, as we call it, or different names,
+- [35:25.740] but they take the bad stuff off
+- [35:27.760] and they put the good stuff down.
+- [35:29.180] It takes not a long period of time.
+- [35:31.740] A matter of a few days,
+- [35:33.120] you'll have a beautiful, magnificent road.
+- [35:37.090] You fix up the curbs.
+- [35:38.660] You get rid the medians in this town are just horrible.
+- [35:40.940] You know, you're riding around.
+- [35:42.280] Think for myself, leaders come from foreign countries.
+- [35:46.010] I've with leaders all the time, differently.
+- [35:48.040] They came in from India recently and from everywhere.
+- [35:51.500] They came in from a war that we just ended,
+- [35:56.310] Azerbaijan and Armenia.
+- [36:00.440] We just ended the war. The two leaders came in.
+- [36:03.150] One of them said, "My country looks better.
+- [36:05.730] The roads are better than you know,"
+- [36:07.350] we were talking about it. I said, "What do you think?"
+- [36:09.680] He said, "Well, the roads are better in Armenia
+- [36:12.310] than they are in Washington, DC."
+- [36:15.240] It's embarrassing.
+- [36:16.820] And I was asked at the last press conference,
+- [36:20.940] they said to me, "How important is it?
+- [36:22.870] You're doing world peace. We're going Friday to Alaska
+- [36:27.300] meeting with president Putin Russia.
+- [36:30.110] How important it is that the capital is important?"
+- [36:32.070] I said, very, very important.
+- [36:33.290] I told my father said to me, "When you see a restaurant
+- [36:38.500] and you want to go and you want to have dinner
+- [36:40.980] and then you go up to the front door
+- [36:42.270] and it's dirty, turn around and go back
+- [36:45.070] because the kitchen's dirty."
+- [36:46.300] It's the same thing with the capital
+- [36:47.660] of the United States of America.
+- [36:49.850] If it's dirty and unsafe, it sets a bad tone
+- [36:52.500] for the rest of the world. So we're not going to do that.
+- [36:54.980] We're going to have this capital fixed up, safe, clean,
+- [36:57.350] and beautiful in a very short period of time.
+- [37:01.600] Go ahead, please. In the back. Yeah. Please.
+- [37:04.140] The Press: Mr. President, how were your calls
+- [37:06.460] this morning with European leaders,
+- [37:08.210] and was it your call not to invite president Zelensky
+- [37:11.240] to your meeting with Putin?
+- [37:13.030] The President: No. Just the opposite.
+- [37:14.230] No. No. We had a very good call. He was on the call.
+- [37:17.240] President Zelensky was on the call.
+- [37:19.820] I would rate it a ten, you know, very, very friendly.
+- [37:24.300] I know the leaders because I was at NATO, as you know.
+- [37:26.660] I took it from two percent to five percent.
+- [37:29.560] Two percent that wasn't paid, five percent that is paid,
+- [37:33.290] which is trillions of dollars in defense capability.
+- [37:38.000] No. It was always going to be
+- [37:39.420] I was going to meet with president Putin,
+- [37:41.130] and then after that, I'm going to call the leaders
+- [37:44.730] and president Zelensky.
+- [37:46.490] I'm going to call president Zelensky,
+- [37:48.020] and then I'll call probably in that order the leaders.
+- [37:50.860] There's a very good chance
+- [37:52.070] that we're going to have a second meeting,
+- [37:53.360] which will be more productive than the first
+- [37:55.400] because the first is I'm going to find out where we are
+- [37:58.320] and what we're doing. Again, this is Biden's war.
+- [38:01.110] This isn't my war. He got us into this thing,
+- [38:04.040] and it should have never happened.
+- [38:05.310] This war would have never happened if I were president.
+- [38:08.430] But it is what it is, and I'm here to fix it.
+- [38:10.350] And I'm here to stop six thousand,
+- [38:12.720] seven thousand people last week.
+- [38:14.220] Seven thousand two hundred and thirteen people last week
+- [38:16.770] were killed, mostly soldiers.
+- [38:19.350] But missiles being lobbed into towns
+- [38:21.110] don't exactly help either, but mostly soldiers.
+- [38:24.660] And Ukrainian and Russian, they're not American soldiers.
+- [38:27.750] But, you know, if we can save a lot of lives,
+- [38:30.060] it would be a great thing.
+- [38:32.810] I've stopped five wars in the last six months.
+- [38:36.580] And on top of that, we wiped out the nuclear capability of Iran,
+- [38:40.190] obliterated it.
+- [38:42.210] It's turned out to be a correct word, by the way,
+- [38:43.930] because, you know, some of the press said,
+- [38:45.360] "Well, maybe it wasn't obliteration."
+- [38:47.270] It was obliteration.
+- [38:49.650] And we're going to meet with, I would say, the second meeting.
+- [38:55.300] If the first one goes okay, we'll have a quick second one.
+- [38:59.290] I would like to do it almost immediately,
+- [39:01.920] and we'll have a quick second meeting
+- [39:03.940] between president Putin and president Zelensky and myself
+- [39:08.170] if they'd like to have me there. And that would be a meeting
+- [39:11.880] where maybe it could be absolutely worked.
+- [39:13.640] But the first meeting will not work that.
+- [39:15.740] Certain great things can be gained in the first.
+- [39:17.850] It's going to be a very important meeting,
+- [39:20.170] but it's setting the table for the second meeting.
+- [39:23.170] I think the second meeting
+- [39:24.600] if the second meeting takes place
+- [39:26.600] now there may be no second meeting
+- [39:28.190] because if I feel that it's not appropriate to have it
+- [39:32.680] because I didn't get the answers that we have to have,
+- [39:34.670] then we're not going to have a second meeting.
+- [39:42.520] The Press: I just wanted to ask you.
+- [39:43.800] Thank you, Mr. President.
+- [39:46.530] How involved were you in the selection process
+- [39:48.660] of these honorees?
+- [39:50.580] The President: I would say I was
+- [39:51.830] about ninety eight percent involved.
+- [39:55.370] No. They all went through me.
+- [39:56.910] They came over, Rick and Sergio and everybody.
+- [39:59.610] They said, I turned down plenty. They were too woke.
+- [40:03.910] I turned I had a couple of wokesters.
+- [40:08.490] No. We have great people.
+- [40:10.280] This is very different than it used to be.
+- [40:11.990] Very different.
+- [40:13.230] These are great people
+- [40:14.430] and not they're not I don't have any idea of the Republican
+- [40:19.050] because the Kennedy Center has everything.
+- [40:22.610] Look at the Academy Awards. It gets lousy ratings now.
+- [40:25.210] It's all woke.
+- [40:26.760] All they do is talk about how much they hate
+- [40:28.510] Trump, but nobody likes that. They don't watch anymore.
+- [40:32.070] That used to have forty five million people watching.
+- [40:34.630] Remember The Apprentice, first season.
+- [40:37.100] The Apprentice had forty two million people.
+- [40:39.630] The Academy Awards had forty one million people.
+- [40:42.330] We were the second show to the Super Bowl.
+- [40:45.080] But since then, the Academy Awards have gone down to
+- [40:49.090] I think they've gone down to numbers
+- [40:52.120] that are like a regular show because it went woke.
+- [40:56.480] We're not doing it for that reason.
+- [40:57.940] We're doing it because we want the great talent.
+- [40:59.520] But these are great people. So I was very involved.
+- [41:08.310] The Press: Thank you, Mr. President.
+- [41:09.850] The Biden administration was auctioning off
+- [41:11.720] border wall materials, but we're hearing now
+- [41:13.520] that the auctioneer is selling those materials back.
+- [41:16.930] Are you finishing building the wall?
+- [41:18.680] The President: Well, I built hundreds of miles of wall,
+- [41:21.850] and I was getting very close. I actually finished the wall,
+- [41:25.640] but then I added another two hundred miles
+- [41:27.620] because when you do the original wall
+- [41:30.320] that I said I was going to build, which I got built.
+- [41:33.150] And I got it to the specifications
+- [41:34.860] of the border patrol and ICE,
+- [41:36.160] the exact they wanted steel, they wanted concrete inside,
+- [41:38.850] they wanted rebar inside that, they wanted it to have wires.
+- [41:42.270] We have the walls are wired for, you know,
+- [41:44.720] all of the Internet stuff and security things.
+- [41:48.050] And we built it hundreds of miles.
+- [41:49.630] We did great. That's one of the reasons,
+- [41:51.800] even now, we're able to have such good numbers at zero,
+- [41:54.990] essentially, very little people coming in.
+- [41:58.070] But Biden, I ordered for another two hundred miles.
+- [42:01.840] I was going to do another two hundred
+- [42:03.230] because it's the way it is. And we're all set to do it.
+- [42:07.080] Then we had the bad election result, the horrible,
+- [42:10.220] horrible what happened to our country,
+- [42:12.020] what they've allowed to happen to our country.
+- [42:14.480] And we are taking now that wall back.
+- [42:18.450] They sold the wall. Now this is expensive stuff.
+- [42:22.160] Hardened steel, very expensive.
+- [42:25.460] Nine thousand pound concrete and rebar.
+- [42:28.110] Rebar is very expensive. The hardest rebar.
+- [42:30.120] No. It's very hard to cut. You have different materials.
+- [42:33.360] It's very hard to cut because they cut it down if they can.
+- [42:36.050] It's very hard to cut.
+- [42:37.700] And Biden sold it for pennies on the dollar,
+- [42:44.650] three cents on the dollar, four cents on the dollar.
+- [42:48.480] He sold it.
+- [42:49.920] And I said, these guys really don't want that was
+- [42:51.980] when I first realized when I saw the wall was being put up
+- [42:54.870] because we could have finished
+- [42:56.250] the rest of the wall in about four weeks,
+- [42:57.870] anywhere from three to four weeks.
+- [42:59.150] It was all set to go.
+- [43:00.350] It was laying down, ready to be put up.
+- [43:02.000] The foundations were and they took over.
+- [43:07.010] And they said, "We're going to sell the wall."
+- [43:09.280] And they sold it, as you know, for pennies on the dollar.
+- [43:12.250] Well, Pam Bondi's been working very hard on suing that company,
+- [43:17.130] and I think they reached a settlement
+- [43:18.590] where we're taking the wall back.
+- [43:20.600] But they stole the wall from us.
+- [43:23.540] That wall is so expensive to build,
+- [43:25.820] and we had it, as you know, hundreds of miles of it.
+- [43:28.520] And they came along, and they basically sold it for scrap.
+- [43:32.120] And what a shame that is.
+- [43:33.450] But that was when I first realized
+- [43:35.010] that these people actually want to have open borders.
+- [43:37.990] And no country has open borders.
+- [43:40.370] Poor countries don't have open borders.
+- [43:42.390] We had open borders where people just walked in
+- [43:44.490] that didn't matter what they looked like, who they were.
+- [43:47.150] They could have – we had 11,888 murderers,
+- [43:52.450] half of whom killed more than one person.
+- [43:55.590] They literally killed more than one person.
+- [43:59.240] And this is who we took into our country.
+- [44:03.420] So the wall is the least of it,
+- [44:04.970] but we're going to take the wall back.
+- [44:07.100] We're paying a small amount of money, as I understand it,
+- [44:10.810] to get it back, to get rid of the litigation.
+- [44:12.600] We'll take it back. We'll put it up.
+- [44:19.480] The President: Go ahead. In the back, please.
+- [44:20.740] Stay right there.
+- [44:23.930] The Press: I want to take it back to the Kennedy Center,
+- [44:25.700] if I can, just for a second, Mr. President.
+- [44:27.750] From what I understand, the Les Mis show
+- [44:30.340] exceeded everyone's expectations, attendance,
+- [44:33.530] revenue across the board. That's great.
+- [44:35.380] Do you anticipate future shows to basically do the same?
+- [44:40.700] The President: I like that guy. Now that's called a question.
+- [44:44.590] Okay? And he's a great reporter, actually.
+- [44:47.420] Thank you very much. I appreciate it.
+- [44:50.060] Yeah. It did great. Les Mis did great.
+- [44:51.710] Broke records and was sold out and beautiful.
+- [44:55.640] And we anticipate a lot of that happening.
+- [44:58.540] It's a thirst for it.
+- [45:00.310] And especially when the crime is knocked out.
+- [45:02.100] You know, when we knock out crime,
+- [45:03.350] some people probably stay away from places
+- [45:06.550] like restaurants and other things.
+- [45:08.220] It ruins your whole fabric. It ruins your country.
+- [45:12.650] And when somebody thinks they have
+- [45:14.790] about a 25 percent chance of getting mugged, they say,
+- [45:17.860] "Listen, I'm not going to restaurants tonight."
+- [45:19.500] We're going to make it so that they have
+- [45:21.180] no chance of getting mugged, and it's going to happen soon.
+- [45:24.260] And, yeah, we think we're going to have a lot
+- [45:26.270] of very successful evenings here. Please.
+- [45:28.340] The Press: Mr. President,
+- [45:30.790] will Russia face any consequences
+- [45:33.820] if Vladimir Putin does not agree to stop the war
+- [45:36.870] after your meeting on Friday?
+- [45:38.710] The President: Yes. They will.
+- [45:40.160] The Press: What will there be consequences?
+- [45:41.780] Sanctions, tariffs?
+- [45:43.050] The President: There will be – I don't have to say.
+- [45:44.380] There will be very severe consequences.
+- [45:46.100] Yes.
+- [45:48.510] The Press: Can I ask you a question
+- [45:50.970] about the Federal Reserve?
+- [45:56.890] You're considering suing Jay Powell.
+- [45:59.300] Can you update us on your thinking about that
+- [46:00.900] and tell us where you are in your search for a new chair?
+- [46:03.320] The President: Well, he took a building
+- [46:04.550] that could have been painted and fixed.
+- [46:06.280] Like, we're going to fix this building for very little money.
+- [46:10.100] He took – and that was in better shape.
+- [46:12.730] He took a building, and what they did to that building –
+- [46:16.020] they built a basement under the building.
+- [46:17.660] It didn't have a basement.
+- [46:19.520] This is simple to understand.
+- [46:21.040] The building is right next to a thing called the Potomac River.
+- [46:25.110] The beautiful Potomac River, that means lots of water.
+- [46:29.210] And the water is right under the building,
+- [46:31.680] and they decided to build a basement
+- [46:34.770] under the building in the Potomac River.
+- [46:37.590] So in order to do that, you need the biggest pumps
+- [46:40.770] that God ever created.
+- [46:42.830] And they were pumping their hearts out.
+- [46:44.430] But as big as those pumps are, you can't pump it fast enough
+- [46:48.130] because it's the Potomac River.
+- [46:49.860] If the pump were bigger than this room, you couldn't pump it.
+- [46:53.070] But they tried, and they've been building a basement.
+- [46:55.930] And I said, "Why did you want to build a basement?"
+- [46:57.830] "I thought it would be a good idea, sir."
+- [47:00.720] A basement is the least valuable floor in a building.
+- [47:03.110] I know a lot about real estate.
+- [47:04.420] The least valuable thing is the basement,
+- [47:07.810] and you don't build a basement under a building
+- [47:11.540] that is two feet above the river that's right next to it.
+- [47:16.730] You know, it's right near the river.
+- [47:18.110] People don't realize that river is right out their window.
+- [47:21.420] And that's the beginning. They did a just a terrible job.
+- [47:27.130] Instead of – I could take a ceiling like this,
+- [47:29.370] they'd rip out the ceiling because they see a crack.
+- [47:32.650] "Let's rip out the ceiling."
+- [47:34.250] And I would fix the crack, and I would paint the ceiling.
+- [47:37.640] And under the ceiling,
+- [47:38.930] they put the most incredible protective material.
+- [47:42.150] They go out by three quarter inch, brand new, gorgeous,
+- [47:46.170] three quarter inch plywood
+- [47:50.230] and sheetrock, hardened sheetrock,
+- [47:52.990] and they had it all over the building.
+- [47:54.920] So if a little piece of flake came down,
+- [47:57.710] but the problem is when they took the ceiling down
+- [47:59.680] and it would hit,
+- [48:01.240] they spent millions of dollars on protective material
+- [48:03.730] that you didn't have to spend anything.
+- [48:06.800] He could have done that job for $25 million,
+- [48:09.430] and they spent $3.1 billion.
+- [48:12.840] He said $2.7 billion, but it's really $3.1 billion.
+- [48:15.410] They just don't want to include one of the buildings
+- [48:17.490] in the deal.
+- [48:18.770] But it's going to be much more than that.
+- [48:20.380] And I think he'll be long gone by the time it finishes
+- [48:22.840] because they've got a long way to go.
+- [48:25.860] And then I hear they want to hire 3,000 economists.
+- [48:28.540] What are they going to do? And he got it all wrong.
+- [48:31.430] He's too late. We call him "Jerome Too Late Powell."
+- [48:35.260] It will live with him forever.
+- [48:36.700] I believe that name will live with him forever along
+- [48:39.060] with the name Pocahontas and some of the others that we –
+- [48:42.060] he worked closely with Pocahontas, by the way.
+- [48:44.170] She's another beauty.
+- [48:45.920] But we have a real problem there.
+- [48:49.420] They're way over budget, and they did a job
+- [48:52.310] that shouldn't have been done. It was unnecessary to be done.
+- [48:55.090] Instead of – I could have gotten the greatest wallpaper
+- [48:58.320] anywhere in the world from the finest stores in the world.
+- [49:01.380] I could have fixed up a wall a little bit.
+- [49:03.120] It would have taken about two hours
+- [49:05.300] and covered it with the most magnificent silk
+- [49:08.470] and most magnificent paper for thousands of dollars
+- [49:12.620] as opposed to tens of millions of dollars.
+- [49:15.280] What a shame it is that they did.
+- [49:17.410] But they would take down areas of the building
+- [49:19.730] that shouldn't have been taken down.
+- [49:20.990] They could have literally been painted,
+- [49:23.670] and they didn't do that. So they've got a long way to go.
+- [49:27.510] And I think it's just grossly incompetent,
+- [49:30.260] but not quite as incompetent as his decision
+- [49:33.650] not to do interest rates, take down interest rates,
+- [49:37.800] because just like they shouldn't have taken down a ceiling,
+- [49:40.540] they should take down interest rates.
+- [49:43.520] Every point costs us $360 billion a year.
+- [49:48.380] Think of that. $360 billion for one point.
+- [49:52.340] And we should be down at one percent
+- [49:54.160] because we're the leader of the world.
+- [49:55.690] We were always the lowest interest rate
+- [49:57.630] until a certain time ago, decade, couple.
+- [50:01.700] But we were always
+- [50:02.910] because we were the United States of America.
+- [50:05.040] So even if the country has run badly,
+- [50:06.790] we were considered to be super prime.
+- [50:10.440] And now he's got us in a bad place.
+- [50:13.390] So we're paying $360 billion a year for each point.
+- [50:16.830] Now, I believe we should be three or four points lower.
+- [50:20.370] So that's over a trillion dollars
+- [50:21.880] we pay every year in interest.
+- [50:24.300] And it's really just a paper calculation.
+- [50:27.100] You sign a document and you save almost a trillion dollars
+- [50:32.650] because that number equates very much
+- [50:34.500] to the bonds that we have to buy.
+- [50:36.940] But despite that, we're powering through it,
+- [50:39.810] and we have the greatest economy maybe we've ever had.
+- [50:43.280] But the housing sector,
+- [50:45.100] people aren't able to get good mortgages.
+- [50:47.350] They're paying too much because of Jerome Too Late Powell.
+- [50:50.880] He's truly incompetent, and we'll be making another –
+- [50:53.810] we put a very good man in temporarily in the one spot
+- [50:56.280] because one of the people that was appointed
+- [50:59.420] by the Democrats left early.
+- [51:02.340] And I heard left because that person wanted
+- [51:05.940] lower interest rates,
+- [51:07.280] and I heard quit, but I have no idea.
+- [51:09.880] I'm sure she won't say that.
+- [51:13.620] I'll be naming a new chairman sometime within the next –
+- [51:17.030] I think I'll name it a little bit early, the new chairman.
+- [51:19.890] I'm down to three or four names. All good.
+- [51:23.410] All great. The problem is you name them
+- [51:25.880] and then they turn out to be not good.
+- [51:28.750] That's happened to me a couple of times.
+- [51:30.090] You name somebody, they tell you everything you want to hear,
+- [51:32.250] and then they go in and they turn out to be not good.
+- [51:34.790] I mean, he told me everything that I thought was appropriate.
+- [51:37.100] He turned out to be stiff, you know, real stiff.
+- [51:41.400] But other than that, I think he's doing a very good job.
+- [51:43.600] Yes. Okay. Maybe one or two more.
+- [51:47.050] One or two more. Yes, sir. Please. Go ahead.
+- [51:50.740] The Press: Mr. President, are you the treasury secretary?
+- [51:54.380] The President: You don't want me for treasury secretary.
+- [51:55.770] I don't know. I don't know.
+- [51:56.990] You look like he could do a good job.
+- [51:58.340] Go ahead. I keep my family budget okay.
+- [52:00.770] The Press: Sir, when you meet
+- [52:02.470] with Vladimir Putin Friday in Alaska,
+- [52:05.880] do you believe you can convince him
+- [52:08.110] to stop targeting civilians in Ukraine?
+- [52:11.450] The President: Well, I'll tell you what.
+- [52:12.920] I've had that conversation with him.
+- [52:15.400] I've had a lot of good conversations with him.
+- [52:17.340] Then I go home and I see that a rocket hit a nursing home
+- [52:20.350] or a rocket hit an apartment building
+- [52:21.970] and people are laying dead in the streets.
+- [52:23.600] So I guess the answer to that is no
+- [52:26.270] because I've had this conversation.
+- [52:28.110] I want to end the war.
+- [52:29.670] It's Biden's war, but I want to end it.
+- [52:32.430] I'll be very proud to end this war
+- [52:33.850] along with the five other wars I ended.
+- [52:36.480] But I guess the answer to that is probably no
+- [52:39.300] because I would have had a good conversation with Vladimir.
+- [52:42.030] I knew him very well.
+- [52:43.230] I got along with him great, actually.
+- [52:44.670] We had the – I had to go through the Russia Russia hoax.
+- [52:47.890] And it was actually – it was a strain on the relationship.
+- [52:51.240] I actually told them.
+- [52:52.490] I said, "You know, they got this phony investigation going on.
+- [52:56.770] Russia, Russia, Russia." Totally phony.
+- [52:59.400] Created by Adam Schiff – Shifty Schiff
+- [53:02.720] – and Hillary Clinton and the whole group of them.
+- [53:05.460] And it made it very dangerous for our country
+- [53:07.410] because I was unable to really deal with Russia
+- [53:09.760] the way we should have been. I'm looking at Pam
+- [53:11.610] because I hope something's going to be done about it.
+- [53:13.990] These people put our country at great danger.
+- [53:16.710] And Adam Schiff was all made up.
+- [53:19.270] It was a hoax. The Mueller report came out.
+- [53:21.170] They all hated me. They had eighteen Trump haters,
+- [53:25.150] and they said I did nothing wrong.
+- [53:27.450] They couldn't believe they couldn't find anything
+- [53:29.940] after years of investigation.
+- [53:32.090] It was all a hoax.
+- [53:33.340] It was a hoax created by the Democrats,
+- [53:35.520] but in particular Schiff and crooked Hillary,
+- [53:38.990] the whole group.
+- [53:40.330] And now we've learned all the stuff that's come out
+- [53:43.950] over the last two months is incredible through intelligence.
+- [53:47.290] And hopefully, something's going to happen with it.
+- [53:49.610] These are people that put our country in danger --
+- [53:52.810] in real danger.
+- [53:54.050] I want to thank you all very much.
+- [53:55.610] Thank you very much.
+- [54:00.110] ♪ (patriotic music) ♪

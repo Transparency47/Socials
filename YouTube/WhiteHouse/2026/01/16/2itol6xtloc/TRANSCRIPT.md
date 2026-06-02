@@ -1,0 +1,146 @@
+<!-- source: https://www.youtube.com/watch?v=2itol6xtloc -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 2itol6xtloc -->
+<!-- date_published: 2026-01-16T19:11:54+00:00 -->
+<!-- date_accessed: 2026-06-02T01:07:16.544631+00:00 -->
+
+# Transcript: President Trump Gaggles with Press Before Departing the White House, Jan. 16, 2026
+
+- [00:05.839] Thank you, Mr. President.
+- [00:07.200] >> Um, can you explain how you view uh, you
+- [00:10.000] know, your great your great healthcare
+- [00:11.759] plan will impact Americans health
+- [00:13.519] insurance premiums?
+- [00:14.639] >> It's going to be a tremendous It is a
+- [00:16.720] tremendous plan. build a great health
+- [00:18.560] care plan and we're going to get
+- [00:20.400] tremendous uh reductions as you know
+- [00:23.199] through uh if you look at uh medicines
+- [00:27.199] and prescription drugs. They're going to
+- [00:29.039] come down by numbers that have never se
+- [00:30.720] been seen before. And we're doing that
+- [00:33.040] by most favored nations, other nations.
+- [00:35.840] Whoever pays the lowest in the world,
+- [00:37.840] that's what we're going to pay. Right
+- [00:39.360] now, we're paying sometimes 10 times
+- [00:41.600] higher than other nations. So, we have
+- [00:43.920] favored nations that's been approved.
+- [00:46.559] Other nations have for the most part
+- [00:48.399] agreed to it and they had no choice
+- [00:50.800] otherwise we were going to put tariffs
+- [00:52.160] on them
+- [00:54.640] plan that we're coming the money is
+- [00:56.559] going to pay be paid directly to the
+- [00:58.800] people. So it goes directly not to the
+- [01:01.840] companies not to the insurance
+- [01:03.280] companies. It's going to go directly to
+- [01:05.199] the people and the people are going to
+- [01:06.960] buy their own health care. They'll get
+- [01:09.119] much better health care at a much
+- [01:11.280] reduced
+- [01:13.760] pull out of NATO if it doesn't help you
+- [01:15.760] acquire Greenland. If it doesn't,
+- [01:17.680] >> we're going to see NATO has been dealing
+- [01:19.439] with us on Greenland. We need Greenland
+- [01:21.439] for national security very badly. If we
+- [01:24.240] don't have it, we have a big hole in
+- [01:25.759] national security, especially when it
+- [01:28.159] comes to what we're doing in terms of
+- [01:30.640] the Golden Dome and all of the other
+- [01:32.640] things. We have a lot of a lot of
+- [01:34.479] investments in military. We have got the
+- [01:37.200] strongest military in the world and it's
+- [01:38.960] only getting stronger. And you saw that
+- [01:41.200] with Venezuela. You saw that with the uh
+- [01:44.479] attack on Iran with the knocking out
+- [01:46.560] their nuclear capability potentially. So
+- [01:50.640] um yeah, we're going to we're talking to
+- [01:52.880] NATO
+- [01:54.720] Mr. President
+- [01:59.360] militarily.
+- [02:01.520] >> I don't talk about Mr. President Mr.
+- [02:03.920] president.
+- [02:06.000] >> You urged protesters in Iran earlier
+- [02:08.000] this week to keep fighting in the
+- [02:09.679] streets and said that help was on the
+- [02:11.200] way. Is help still on the way or has
+- [02:13.280] your bar
+- [02:14.640] >> as you know Iran canled the hanging of
+- [02:17.040] over 800 people. They were going to hang
+- [02:19.360] over 800 people yesterday and I greatly
+- [02:22.720] respect the fact that they canled that.
+- [02:24.560] >> Mr. Prime Minister Carney is in China.
+- [02:28.000] Prime Min Prime Minister Carney is in
+- [02:30.000] China. How do you see the deals Canada
+- [02:33.040] and China? I've I've just signed trade
+- [02:35.200] deals between the two partners.
+- [02:36.800] >> Well, it's okay. That's what he should
+- [02:38.160] be doing. I mean, it's a good thing for
+- [02:39.680] him to sign a trade deal. If you can get
+- [02:41.680] a deal with China, you should do that.
+- [02:44.800] >> Election in Venezuela.
+- [02:46.000] >> Did Arab and Israeli officials convince
+- [02:48.319] you to not strike Iran?
+- [02:50.319] >> Nobody convinced me. I convinced myself.
+- [02:52.560] You had yesterday scheduled over 800
+- [02:55.040] hangings. They didn't hang anyone. They
+- [02:57.680] cancelled the hangings. That had a big
+- [02:59.760] impact.
+- [03:01.040] >> Yesterday, yesterday you accepted Maria
+- [03:04.000] Machado's Nobel Prize medal. What do you
+- [03:06.159] intend to do with it? And why would you
+- [03:07.599] want someone else's Nobel Prize?
+- [03:09.680] >> Well, she offered it to me. I thought it
+- [03:11.519] was very nice. She said, you know,
+- [03:12.800] you've had eight wars and nobody
+- [03:15.760] deserves this prize more than in history
+- [03:18.480] than you do. And I thought it was a very
+- [03:20.080] nice gesture. And by the way, I think
+- [03:21.680] she's a very fine woman and we'll be
+- [03:24.159] talking again.
+- [03:28.319] >> What's the trigger for the insurrection
+- [03:29.760] act in Minnesota? What are you waiting
+- [03:31.200] for?
+- [03:31.920] >> Well, the insurrection act and which has
+- [03:34.000] been used by 48% of the presidents as of
+- [03:37.120] this moment. Uh the insurrection act
+- [03:39.840] also uh if you look at I believe it was
+- [03:42.480] Bush the elder Bush uh he used it I
+- [03:46.560] think 28 times. Uh, it's been used a lot
+- [03:50.000] and if I needed it, I'd use it. I don't
+- [03:52.080] think there's any reason right now to
+- [03:53.519] use it. But if I needed it, I'd use it.
+- [03:56.319] It's uh very powerful.
+- [04:01.200] A very nice person. You said the meeting
+- [04:02.720] went well. Why align with Deli Rodriguez
+- [04:05.439] and the remnants of the Maduro regime
+- [04:06.879] and not with Machado who has the support
+- [04:09.120] of the Venezuelan people? Well, if you
+- [04:10.720] ever uh remember a place called Iraq
+- [04:13.760] where everybody was fired, every single
+- [04:16.000] person, the police, the generals,
+- [04:18.959] everybody was fired and they ended up
+- [04:21.440] being ISIS. Instead of just getting down
+- [04:24.160] to business, they ended up being ISIS.
+- [04:26.080] So, I remember that. But I'll tell you,
+- [04:27.840] I had a great meeting yesterday by a
+- [04:30.560] person who I have a lot of respect for,
+- [04:33.360] and she has respect obviously for me and
+- [04:36.160] our country, and she gave me her Nobel
+- [04:39.040] Prize. But I'll tell you what, uh, I I
+- [04:42.240] got to know I never met her before and I
+- [04:44.400] was very very impressed. She's a a
+- [04:46.240] really this is a fine woman.
+- [04:50.000] >> The March for Life is the March for Life
+- [04:52.080] is next week and some proifers are
+- [04:54.800] worried about your support for the
+- [04:56.320] height amendment. What do you tell them?
+- [04:58.160] >> Well, you know what I tell them? Uh,
+- [05:00.000] you're going to hear about it because I
+- [05:01.520] just taped a beautiful piece for them
+- [05:03.759] and they're going to play it and those
+- [05:05.919] are great people. I want to tell you,
+- [05:07.360] they're great people. Thank you very
+- [05:08.560] much.
+- [05:09.600] Thank you very much everybody.

@@ -1,0 +1,542 @@
+<!-- source: https://www.youtube.com/watch?v=doRlRPJf7QQ -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: doRlRPJf7QQ -->
+<!-- date_published: 2025-02-11T22:22:26+00:00 -->
+<!-- date_accessed: 2026-06-02T01:30:03.142630+00:00 -->
+
+# Transcript: President Trump Hosts a Bilateral Meeting with the King of Jordan and the Crown Prince of Jordan
+
+- [00:00.240] thank you very much it's an honor to
+- [00:01.839] have King Abdullah with us he's been a
+- [00:04.319] friend of mine for a long time actually
+- [00:06.040] long before even my first term and uh we
+- [00:09.639] we've had a great relationship he's a
+- [00:11.960] great gentleman a great leader uh and
+- [00:15.160] does a fantastic job in his country his
+- [00:17.960] his son we're lucky enough to have his
+- [00:19.640] handsome son with us today so it's good
+- [00:22.359] to see you again we uh we've had some
+- [00:26.039] quick discussions just now and we're
+- [00:27.720] going to have some longer discussions
+- [00:29.279] after this
+- [00:30.720] and uh the relationship with Jordan has
+- [00:33.800] been very strong has been with me and I
+- [00:36.399] really has been with the country but I
+- [00:38.719] think I've been closer than other
+- [00:40.680] presidents to Jordan and what Jordan
+- [00:43.200] represents and it's an honor to have you
+- [00:45.480] and your son with us today and if you'd
+- [00:48.520] like to say a few words and thank you
+- [00:50.079] very much Mr President thank you very
+- [00:51.559] much for having us and so short after
+- [00:54.000] your adoration I think just as a
+- [00:56.079] testament to what you said as a special
+- [00:57.960] relationship between our two countries
+- [00:59.680] and the personal relationship of
+- [01:02.120] friendship and trust between the two of
+- [01:03.840] us um Mr President I I truly believe
+- [01:06.880] that with all the challenges that we
+- [01:08.200] have in the Middle East that I finally
+- [01:09.920] see somebody that could take us across
+- [01:12.000] the Finish Line to bring stability peace
+- [01:14.960] um and prosperity to all of us in the
+- [01:17.400] region and it is I think our Collective
+- [01:19.320] responsibility in the Middle East to
+- [01:21.200] continue to work with you to support you
+- [01:23.640] uh to achieve those lofter goals so I'm
+- [01:25.280] very delighted to be here and as you
+- [01:26.759] said s we've got some very interesting
+- [01:28.280] discussions ahead of very good very good
+- [01:30.439] thank you very much Mr President um many
+- [01:33.159] people in the region especially Rodan
+- [01:35.079] are worried about the annexation of the
+- [01:36.840] West Bank will you give the his majesty
+- [01:39.000] the king guarantee that you won't allow
+- [01:41.479] Israel to Annex the West bang and how
+- [01:43.520] are you going to I think that's going to
+- [01:44.600] work out very well that's not really
+- [01:46.280] what we're talking about today I think
+- [01:47.880] that's something that's going to work
+- [01:49.399] out
+- [01:50.240] automatically and it's in good shape and
+- [01:54.040] we discuss it other people have
+- [01:55.960] discussed it with us and with me that's
+- [01:58.520] going to work out west bank is going to
+- [02:00.039] work out very well Mr President why
+- [02:01.840] should the king take in the Palestinian
+- [02:03.560] people he's made clear he doesn't want
+- [02:05.000] to well I don't know but he may have
+- [02:06.719] just something to say because we
+- [02:08.160] discussed just briefly uh uh I think
+- [02:11.480] maybe you want to say it now or well um
+- [02:14.319] Mr President I I think um we have to
+- [02:17.400] keep in mind that there is a a plan from
+- [02:19.840] Egypt and the Arab countries we're being
+- [02:21.680] invited by Muhammad bin Salman to
+- [02:23.480] discussions in in Riyad I think the
+- [02:25.440] point is is how do we make this work in
+- [02:27.080] a way that is um good for everybody
+- [02:29.560] obviously um we have to look at the best
+- [02:31.879] interests of of the United States of the
+- [02:34.160] people in the region especially to my
+- [02:35.760] people of Jordan um and we're going to
+- [02:37.640] have some interesting discussions today
+- [02:39.200] I think one of the things that we can do
+- [02:41.280] right away um is take 2,000 children
+- [02:45.080] that are either cancer children or in a
+- [02:47.360] very uh ill State um to Jordan as
+- [02:50.080] quickly as possible um and then wait for
+- [02:52.959] I think the Egyptians to present their
+- [02:54.560] plan on how we can work with the
+- [02:56.040] president to uh work on Baza challenges
+- [02:59.879] so you I want to tell you excuse me wait
+- [03:02.760] just please uh I didn't know that what
+- [03:05.840] you just said 2,000 children with cancer
+- [03:08.480] or other problems and uh that's really a
+- [03:12.640] beautiful gesture that's really good and
+- [03:14.959] we appreciate it and we'll be working on
+- [03:17.159] the rest uh with u with Egypt I think
+- [03:20.959] you're going to see some great progress
+- [03:23.200] I think with Jordan you're going to see
+- [03:24.480] some great progress three of us and
+- [03:26.640] we'll have some others helping and we're
+- [03:28.000] going to have some others that are very
+- [03:29.519] high level helping and the whole thing
+- [03:31.599] will come it's not a complex thing to do
+- [03:34.239] and with the United States being in
+- [03:35.879] control of that uh peace of land a
+- [03:38.799] fairly large piece of land you're going
+- [03:40.319] to have stability in the Middle East for
+- [03:42.239] the first time and uh the Palestinians
+- [03:45.760] or the people that live now in Gaza will
+- [03:48.280] be living beautifully in another
+- [03:49.760] location they're going to be living
+- [03:51.280] safely they're not going to be uh killed
+- [03:53.959] murdered and having to leave every 10
+- [03:55.760] years because I've been watching this
+- [03:57.599] for so many years it's nothing trouble
+- [04:01.079] uh everyone's being killed they're being
+- [04:03.560] uh robbed it's it's it's like living in
+- [04:06.040] hell and they're going to end up having
+- [04:08.280] a great home great families that don't
+- [04:11.799] have to get mugged and killed and beaten
+- [04:14.239] up and harassed by Hamas and everybody
+- [04:17.880] else and uh I know we'll be able to work
+- [04:20.600] something and uh you and you what you
+- [04:23.120] just said about the 2000 is fantastic
+- [04:25.600] it's so beautiful it's music to my ears
+- [04:28.720] uh but we're going to be able to work
+- [04:30.120] something and I know we'll be able to
+- [04:31.360] work something also with uh with I
+- [04:35.199] believe not not 100% but 99% we're going
+- [04:38.880] to work out something with Egypt Mr
+- [04:41.440] presiding your
+- [04:43.479] election how is the US how is the US
+- [04:45.960] going to own Gaza your white house has
+- [04:47.759] made clear taxpayer dollars won't be
+- [04:49.960] used for this so what one are you going
+- [04:51.520] to use to buy Gaza we're not going to
+- [04:53.759] buy anything we're going to have it and
+- [04:55.400] we're going to keep it and we're going
+- [04:56.479] to make sure that there's going to be
+- [04:57.840] peace and there's not going to be any
+- [05:00.199] problem and nobody's going to question
+- [05:01.919] it and we're going to uh run it very
+- [05:05.240] properly and eventually we'll have
+- [05:07.400] economic development at a very large
+- [05:09.240] scale maybe the largest scale on that
+- [05:11.240] site and we'll have lots of good things
+- [05:14.080] built there including hotels and Office
+- [05:16.320] Buildings and housing and other things
+- [05:19.160] and we'll make that site into what it
+- [05:20.680] should be and the people from Gaza who
+- [05:23.120] wouldn't be able to be be there for
+- [05:24.600] years because you're talking about just
+- [05:26.840] to get it and prepare it and to take
+- [05:29.479] care of all of the problems that
+- [05:31.000] currently it has as you know tunnels and
+- [05:33.600] people are in those tunnels and you have
+- [05:36.160] some good people and some bad people and
+- [05:38.680] you may have hostages right now you know
+- [05:41.240] you have the hostages possibly there
+- [05:43.680] they don't know where they are and you
+- [05:45.400] know I have a Saturday deadline and I
+- [05:48.039] don't think they're going to make the
+- [05:49.039] deadline personally I think they they
+- [05:51.880] want to play tough guy but we'll see how
+- [05:54.160] tough they are uh but it's uh it's going
+- [05:56.880] to be a wonderful thing it's going to be
+- [05:58.319] wonderful for the Middle East I think
+- [05:59.639] think it'll turn the Middle East I think
+- [06:01.360] you're going to have peace in the Middle
+- [06:02.520] East you're going to eventually have
+- [06:03.639] peace in the Middle
+- [06:05.400] East could this couldn't this deadline
+- [06:08.160] um risk undermining the talks that
+- [06:10.199] you're having with the the King today
+- [06:12.160] and risk the kind of wider piece that
+- [06:14.479] you're trying to because that's not
+- [06:16.360] we're not talking about a big situation
+- [06:18.280] we're talking about something that can
+- [06:19.680] go very quickly we're talking it's going
+- [06:22.280] to go quickly it's not going to take a
+- [06:23.599] long time okay that's not going to take
+- [06:26.039] a long time you know bullies you know
+- [06:27.800] what a bully is right you know the the
+- [06:30.120] bully I've always and I found it
+- [06:32.120] throughout my life a bully is the
+- [06:33.639] weakest person and they're bullies amas
+- [06:37.280] is bullies the weakest people are
+- [06:39.759] bullies you know that right all right go
+- [06:42.280] ahead Mr President you were saying that
+- [06:44.039] U Palestinians will live somewhere else
+- [06:45.880] safe um where exactly do you want them
+- [06:48.720] to live well it's not where I want them
+- [06:51.080] to live it's going to be where we uh
+- [06:53.120] ultimately choose as a group and I
+- [06:55.639] believe we'll have a parcel of land in
+- [06:58.639] Jordan I Believe we have a parcel of
+- [07:00.520] land in Egypt we may have uh someplace
+- [07:04.080] else but I think when we finish our
+- [07:06.319] talks we'll have a place where they're
+- [07:08.800] going to live very happily and very
+- [07:10.360] safely and you know don't forget they
+- [07:13.360] only want to be on the Gaza Strip
+- [07:15.720] because they don't know anything else
+- [07:17.080] they never had an alternative and they
+- [07:19.240] don't want to be in the Gaza Strip but
+- [07:21.240] they have no choice they have to be and
+- [07:23.599] they're being killed there at levels
+- [07:25.080] that nobody's ever seen no no place in
+- [07:27.120] the world is like as as dangerous as is
+- [07:29.680] the Gaza Strip they don't want to be
+- [07:31.520] there they have no alternative when they
+- [07:33.039] have an alternative not one person will
+- [07:35.400] want to stay where they are nobody wants
+- [07:37.720] to stay there they're living in hell
+- [07:39.960] it's a it's a death trap Mr President
+- [07:43.120] how do you know that the Palestinians
+- [07:44.560] don't want to leave their land some
+- [07:46.680] people say this is ethnic cleansing you
+- [07:48.840] won't be able to force them to leave the
+- [07:50.680] land they we're moving them to a
+- [07:52.599] beautiful location where they have new
+- [07:55.639] homes where they can live safely where
+- [07:58.120] they'll have doctors and
+- [08:00.479] and all of those things and I think it's
+- [08:02.680] going to be great yeah any questions
+- [08:04.520] King what do you think about the US
+- [08:06.080] taking over the go do you want to see
+- [08:07.520] the US own the Gaza Strip well I think
+- [08:10.479] as I said earlier um the president is
+- [08:12.919] looking at Egypt coming to present that
+- [08:15.120] plan uh as I said uh we will be in Saudi
+- [08:17.879] Arabia to discuss how we can uh work
+- [08:19.919] with the president and with the United
+- [08:21.400] States um so I think let's wait until
+- [08:24.639] the Egyptians can come and present to to
+- [08:26.319] the president and not get ahead of
+- [08:27.919] ourselves and is there a partial land
+- [08:29.520] Jordan that you're willing to have pales
+- [08:31.159] well I think what we said um I have to
+- [08:33.000] look at the best interest of of my
+- [08:34.479] country I think the the president is
+- [08:36.640] very happy that we do this thing with
+- [08:37.959] 2,000 children as quickly as possible
+- [08:40.800] and again I I believe that the president
+- [08:42.719] is looking forward to to getting a group
+- [08:44.240] of us Arabs here uh to discuss um the
+- [08:47.160] overall plan and last question the the
+- [08:49.279] the 2,000 children are those from the
+- [08:51.160] Gaza scrip absolutely from the Gaza
+- [08:53.120] Strip you willing to change your mind Mr
+- [08:54.720] that's from the Gaza Strip the 2000 are
+- [08:57.399] you willing to change your mind if you
+- [08:59.000] hear the Egyptian and the Arab plan end
+- [09:01.360] of the month if they present you
+- [09:03.120] something different are you are you open
+- [09:05.000] I think we sort of have gone down the
+- [09:07.640] line we know pretty much what is going
+- [09:09.959] to be
+- [09:10.959] presented and I think it's going to be
+- [09:12.920] something that's going to be magnificent
+- [09:14.560] for the Palestinians they're going to
+- [09:16.519] they're going to be in love with it I
+- [09:18.680] did very well with real estate I can
+- [09:20.279] tell you about real estate they're going
+- [09:21.519] to be in love with it Mr pres doesn't
+- [09:24.120] concern you that that moving 2 million
+- [09:26.880] people from from there it's a very small
+- [09:29.399] number of people relative to other
+- [09:31.040] things that have taken place over the
+- [09:33.480] decades and centuries it's a very small
+- [09:35.399] number of people and they're living a a
+- [09:38.959] terrible life look at look at the way
+- [09:40.680] they're living now nobody's nobody's
+- [09:42.880] living like that in the entire
+- [09:45.120] world uh they're living under buildings
+- [09:47.839] that are mostly falling down and will
+- [09:49.800] continue to fall down and they're living
+- [09:52.320] under people are being killed every day
+- [09:54.399] the conditions are horrible there are no
+- [09:56.600] conditions anywhere in the world that
+- [09:58.600] are worse than the a strip right now but
+- [10:00.800] don't you
+- [10:02.519] have you said all hell will break out if
+- [10:05.079] all the hostages are not released on
+- [10:06.680] Saturday what did you mean by that and
+- [10:08.360] are you encouraging Netanyahu to walk
+- [10:10.120] away from this deal have you talked
+- [10:11.600] about this with so I've looked at what
+- [10:14.320] at the condition of people coming out of
+- [10:17.480] the hostage situation and it's horrible
+- [10:20.600] I looked at the before and after
+- [10:23.440] yesterday uh three young men one one is
+- [10:27.519] dead now as you know the older gentleman
+- [10:29.640] who died which everybody said he was
+- [10:31.600] alive and well he's he's dead but the
+- [10:34.519] three young men and I looked at them
+- [10:37.040] from a short while ago and I looked at
+- [10:38.959] them now they're emaciated they look
+- [10:41.279] like Holocaust Survivors they looked uh
+- [10:45.880] I mean they'll get better but they uh
+- [10:48.880] they're in rough shape they were treated
+- [10:50.720] really badly and we've heard things from
+- [10:52.880] them
+- [10:53.720] since and I think the reason that Hamas
+- [10:57.680] is playing so mute is because they
+- [11:00.760] probably they they saw the reaction to
+- [11:03.279] these three people that came out and the
+- [11:05.279] and the other on look the one young lady
+- [11:06.800] had her hand blown off practically and
+- [11:10.000] uh they were not in great shape either
+- [11:12.760] but she's missing her fingers and a big
+- [11:15.000] part of her hand you know what she did
+- [11:16.880] she was stopping a bullet that was aimed
+- [11:18.720] at her she went like that and it blew
+- [11:21.959] off her
+- [11:22.920] hand uh no I I think what they're I
+- [11:26.680] think they want time because I think
+- [11:28.480] they the people that they have living
+- [11:29.920] are in such bad shape because they're
+- [11:32.160] sending the most healthy people out
+- [11:35.120] because they don't want to send the
+- [11:36.200] least healthy people out and there was
+- [11:38.279] an upro when they saw the people from
+- [11:40.959] yesterday so these people are so I don't
+- [11:44.399] want to do two and then we do another
+- [11:46.519] two in another week and then we do four
+- [11:48.639] and three weeks no no they either have
+- [11:51.519] them out by Saturday at 12:00 or all
+- [11:56.000] bets are off Mr President Mr President
+- [11:59.240] would you still consider withholding Aid
+- [12:00.760] to those countries if they don't accept
+- [12:02.800] your plans to accept well I don't want
+- [12:04.680] to say that because we've had such a
+- [12:06.200] good relationship and we're we're doing
+- [12:08.200] so well just in the short time that
+- [12:09.839] we've been talking I mean uh the king
+- [12:13.040] just made a a statement I didn't ask him
+- [12:16.160] to do that about literally saving 2,000
+- [12:20.560] young children from the Gaza
+- [12:23.360] Strip uh we didn't know about that you
+- [12:25.959] didn't know about that nobody did except
+- [12:27.920] for the king and his son I assume you
+- [12:29.880] talk your son right uh and I just
+- [12:33.120] thought it was great now I think we'll
+- [12:34.720] do something I don't have to threaten
+- [12:36.480] with money we do we contribute a lot of
+- [12:38.920] money to Jordan and to Egypt by the way
+- [12:42.040] a lot to both but I don't have to
+- [12:44.560] threaten that I don't think I think
+- [12:46.160] we're above that I I do believe we're
+- [12:48.079] above that so would you consider other
+- [12:50.760] countries not Jordan and Egypt there was
+- [12:52.680] talks about Indonesia Albania other
+- [12:55.199] places yeah sure we would and we have
+- [12:57.720] other uh countries that want to get
+- [12:59.920] involved we have a lot of people that
+- [13:01.760] want to get involved there's a great
+- [13:03.839] sense of uh wanting to help the
+- [13:07.120] Palestinians they really there's a lot
+- [13:09.079] of good countries out there people that
+- [13:11.079] rule those countries with big hearts and
+- [13:14.079] this gentleman is at the top of the list
+- [13:16.160] and if they don't want to leave how are
+- [13:17.720] you going to force them Mr President oh
+- [13:19.519] they're going to be great they're going
+- [13:20.560] to they're going to be very happy you
+- [13:23.240] your majesty should we expect that the
+- [13:25.120] Jordanian response will be part of a
+- [13:27.519] coordinated Arab response
+- [13:29.639] uh the um uh response will be from a
+- [13:32.959] multitude of countries Arab
+- [13:34.720] International I know the Europeans want
+- [13:36.839] to step in um and again we'll probably
+- [13:39.120] have to look to the help of the United
+- [13:40.600] States to make sure that uh uh Kat which
+- [13:43.079] is the clearing Agency on the Israeli
+- [13:44.880] side makes it as efficient as possible
+- [13:47.040] uh because 2,000 kids the best way to
+- [13:48.839] get to them is by helicopters and get
+- [13:50.360] them straight to our institutions and I
+- [13:52.440] also believe that quite a few countries
+- [13:54.199] would also probably like to take some of
+- [13:55.759] those kids and have them treated in
+- [13:57.519] their their hospitals so
+- [14:00.680] yes and that's right this should have
+- [14:02.240] been done by the Biden Administration
+- [14:04.199] but you know they didn't do anything
+- [14:05.639] they didn't know what the hell they were
+- [14:06.639] doing so this should have been done by
+- [14:08.240] the Biden Administration this should
+- [14:10.040] have never happened because October 7th
+- [14:12.120] would have never happened if I were
+- [14:13.800] president zero chance of happening you
+- [14:15.800] wouldn't have had that whole mess where
+- [14:18.320] the Middle East got blown up and you
+- [14:19.600] wouldn't have had Ukraine and
+- [14:21.399] Russia fighting that would have never
+- [14:24.240] happened and by the way we're making
+- [14:26.279] good progress there I think I really
+- [14:27.920] think we're making some very good
+- [14:29.720] progress Mr President you said you said
+- [14:31.959] before that the US would buy Gaza and
+- [14:34.600] today you just said we're not going to
+- [14:36.120] buy Gaza we're not going to have to buy
+- [14:37.800] we're going to we're going to have Gaza
+- [14:39.920] we don't have to buy there's nothing to
+- [14:42.040] buy uh we will have Gaza what does that
+- [14:45.000] no reason to buy there is nothing to buy
+- [14:47.720] it's Gaza it's it's a war torn area
+- [14:50.759] we're going to take it we're going to
+- [14:52.480] hold it we're going to cherish it we're
+- [14:54.880] going to get it going eventually where a
+- [14:58.839] lot lot of jobs are going to be created
+- [15:00.320] for the people in the Middle East it's
+- [15:02.000] it's going to be for the people in the
+- [15:03.240] Middle East but I think it could be a
+- [15:04.680] diamond it could be an absolute uh
+- [15:07.279] tremendous asset for the Middle East and
+- [15:09.920] you're going to have peace it's going to
+- [15:11.000] bring peace in the Middle East Gaza the
+- [15:13.040] way it is right now every 10 years
+- [15:15.320] you're going to have the same thing
+- [15:16.519] happening I've watched it so long all
+- [15:18.880] the death and destruction of Gaza the
+- [15:21.560] civilization's been wiped out in Gaza no
+- [15:24.800] it's going to be a a tremendous thing
+- [15:26.720] it's uh it's fronting on the SE
+- [15:30.160] it's going to be a great Economic
+- [15:31.560] Development job it's going to put people
+- [15:33.040] to work a lot of people to work and
+- [15:35.079] those people are all going to be from
+- [15:36.279] the Middle East
+- [15:38.399] just just to follow up with one on that
+- [15:40.800] for King Abdullah can you clarify again
+- [15:43.240] sir how do you feel about the US taking
+- [15:46.160] Gaza as the president said well again
+- [15:48.839] this is something that uh we as Arabs
+- [15:51.560] will be um um coming to um to the United
+- [15:54.560] States was something that we're going to
+- [15:56.040] talk about later um to discuss all these
+- [15:58.360] options and Mr President take it under
+- [16:00.519] what Authority it it is sovereignty
+- [16:02.240] under the US Authority and Mr President
+- [16:04.360] would you seek to personally develop
+- [16:05.959] property in Gaza off no no I've had a
+- [16:09.199] great career in real
+- [16:11.639] estate you know when you've done what
+- [16:13.440] I've done in the last uh number of years
+- [16:16.360] including the four years that uh we
+- [16:19.160] should have been doing something else
+- [16:20.519] frankly because people see that now for
+- [16:22.519] sure but uh when you've done what I've
+- [16:26.399] done you can just do more good for
+- [16:28.759] people people when you're president when
+- [16:31.120] you're President we can do things this
+- [16:33.199] this is all things that should have been
+- [16:35.000] done but actually things that shouldn't
+- [16:36.880] have had to be done Gaza absolutely it
+- [16:39.839] would have been it would have been so
+- [16:41.839] great if the Biden Administration would
+- [16:43.519] have started this but actually in all
+- [16:45.959] fairness to them uh it was uh they
+- [16:50.120] should have never let it happen it did
+- [16:52.160] happen and because of the fact that they
+- [16:54.000] let this happen this catastrophe of
+- [16:56.279] October 7th something like this becomes
+- [16:59.759] practical and very real meaning the
+- [17:01.759] development and and all of the things
+- [17:03.759] that I've talked about with respect to
+- [17:05.640] the Gaza Strip uh if you didn't have the
+- [17:09.360] October 7th catastrophe and it was a
+- [17:11.600] horrible catastrophe then probably you
+- [17:14.079] wouldn't be talking about that but the
+- [17:17.000] the only thing I can say is uh this is
+- [17:19.520] going to bring stability and peace to
+- [17:21.199] the Middle East and ultimately when it's
+- [17:24.439] developed which will be in quite a while
+- [17:26.880] from now is we want to let things calm
+- [17:29.919] down but when it's developed it's going
+- [17:31.720] to bring tremendous numbers of jobs to
+- [17:34.039] the Middle East in including the people
+- [17:36.080] of your
+- [17:37.559] country what if it does not bring peace
+- [17:40.000] to the Middle East there are many
+- [17:41.480] Palestinians even though you say that
+- [17:43.039] everything is going to be beautiful
+- [17:44.240] everything is going to be lovely they're
+- [17:45.320] not going to want to go back they're
+- [17:46.520] going to be people who want to go back
+- [17:48.200] and feel like that it is their right to
+- [17:49.760] do that you haven't said will there be
+- [17:51.520] any type of repercussions or anything to
+- [17:53.200] happen we don't think that's going to
+- [17:54.520] happen we think it's going to we think
+- [17:56.000] people are going to be very happy
+- [17:57.280] thrilled a lot of those people that
+- [17:58.960] talking about are going to end up maybe
+- [18:00.559] living there and maybe working there but
+- [18:02.880] it'll be in a different form uh we have
+- [18:06.240] had tremendous support for this project
+- [18:09.240] and we think the biggest asset of the
+- [18:12.000] project it's going to bring peace
+- [18:13.480] ultimately to the Middle East Mr
+- [18:15.320] President one last question go ahead
+- [18:16.640] behind you you've asked enough Mr
+- [18:18.600] President one one of your promises on
+- [18:21.159] the campaign trade is to bring peace to
+- [18:23.159] the Middle East it was a a promise to
+- [18:25.559] your voter Arab voters here the Arab
+- [18:28.280] voters in the United States oppose this
+- [18:31.360] what do you say to them well you know if
+- [18:32.960] you look at uh Michigan where we have a
+- [18:35.039] large Arab population as you know I was
+- [18:37.720] just telling the king that we won as you
+- [18:41.000] know I won the Arab population now when
+- [18:42.960] I started off I wasn't leading and when
+- [18:44.919] I finished uh a few months later we
+- [18:47.640] started campaigning in Michigan and when
+- [18:50.440] I finished uh we won it by a tremendous
+- [18:53.880] amount by 30 points uh so my
+- [18:58.120] relationship with the Arab population
+- [19:00.039] has been fantastic and my relationship
+- [19:02.720] with the Middle East is very good very
+- [19:04.440] good with all the countries just about
+- [19:05.960] all the countries let's see I would say
+- [19:08.679] all the countries and they all want to
+- [19:11.400] do something and they want to see peace
+- [19:12.960] in the Middle East all the stories you
+- [19:14.520] hear about the Middle East not really
+- [19:16.640] wanting peace that they want war they
+- [19:19.360] want this they want to go a certain
+- [19:21.200] place let me tell you those stories are
+- [19:22.799] false they want to have peace I know
+- [19:24.600] them all very well they want to have
+- [19:26.200] peace they want to have a good life like
+- [19:28.480] other other people and we'll bring this
+- [19:31.080] will be a big factor in bringing peace
+- [19:33.600] to the Middle East thank you very much
+- [19:35.120] everyone all right guys thank you guys

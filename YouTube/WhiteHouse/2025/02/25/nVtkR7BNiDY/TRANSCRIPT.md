@@ -1,0 +1,193 @@
+<!-- source: https://www.youtube.com/watch?v=nVtkR7BNiDY -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: nVtkR7BNiDY -->
+<!-- date_published: 2025-02-25T20:59:17+00:00 -->
+<!-- date_accessed: 2026-06-02T02:53:25.542023+00:00 -->
+
+# Transcript: Vice President JD Vance Swears In Secretary of the Army
+
+- [00:00.080] afternoon everyone and thank you all for
+- [00:01.480] being here I'm Senator Ted Bud from
+- [00:04.480] North Carolina and it's absolutely my
+- [00:07.279] honor and privilege to be here to
+- [00:09.800] welcome and offer congratulations to my
+- [00:11.799] friend and fellow North Carolinian on
+- [00:13.719] being sworn in today as Secretary of the
+- [00:16.640] army I want to give a a special thank
+- [00:19.600] you to Dan Driscoll's family his wife Dr
+- [00:23.599] Cassie Driscoll and uh their two
+- [00:26.000] children Daniel Jr and Lyla uh for
+- [00:29.359] sharing uh their dad their husband with
+- [00:32.320] the rest of the country also I don't
+- [00:34.559] know if they're either back behind us or
+- [00:36.480] in this room here but the grandparents
+- [00:38.719] who I know have been quite busy for the
+- [00:40.840] last six months so we want to thank them
+- [00:43.480] as well I have the um I know that uh Dan
+- [00:47.199] has the distinct honor of also being a
+- [00:49.280] classmate of our vice president and uh
+- [00:52.719] they both have served our country in
+- [00:54.760] uniform and for that we are forever
+- [00:57.320] grateful um Dan we're GR ful for your
+- [01:00.920] service to our country and we know that
+- [01:02.960] you're going to make us proud in your
+- [01:04.680] new role as Secretary of the army so
+- [01:07.680] please welcome the vice president and
+- [01:10.080] this new secretary of the army and his
+- [01:12.840] family
+- [01:30.640] great everybody please be seated um so
+- [01:33.159] we're going to do a little swearing in
+- [01:34.280] here to make this official and I thought
+- [01:36.720] so sometimes when you do the swearing in
+- [01:39.360] you actually do them formally beforehand
+- [01:43.720] and then you actually do the one on
+- [01:44.960] camera just in case you screw something
+- [01:46.479] up in front of the cameras it still
+- [01:48.320] counts we have not done that with Dan so
+- [01:50.520] number one that puts him under a lot of
+- [01:52.680] pressure he actually has to say the
+- [01:53.920] words correctly and and number two that
+- [01:56.240] gives me an opportunity Dan this is the
+- [01:57.799] last minute here anything uh you know
+- [02:00.399] anything you can promise me to ensure
+- [02:02.039] that we swear you and properly because
+- [02:03.680] the Senate's done its job and now it's
+- [02:05.719] time for me to do mine but let me just
+- [02:07.680] say a couple of words here uh first of
+- [02:09.679] all of course I want to thank the
+- [02:10.800] president for nominating a very very
+- [02:13.080] great Army veteran a family servant a
+- [02:17.120] guy whose grandfather father and now
+- [02:19.800] himself has served in the United States
+- [02:21.280] Army to be our secretary of the army if
+- [02:23.440] you look at our recruiting numbers just
+- [02:24.760] in the last month you see a massive
+- [02:26.400] increase in the number of people who
+- [02:28.120] have decided to volunteer here and list
+- [02:31.319] and sign up for the United States Army
+- [02:32.920] because I think that under the Trump
+- [02:34.239] Administration under secretary Heth and
+- [02:36.680] now under secretary Driscoll we have
+- [02:39.280] people proud to join the United States
+- [02:41.519] military again thank God for that
+- [02:43.319] because we need good people in our Armed
+- [02:44.879] Forces we need great people in the
+- [02:46.920] United States Army we have a lot of
+- [02:49.000] great people but of course the future
+- [02:50.720] really matters and I'm proud that under
+- [02:52.920] President Trump's leadership we have
+- [02:54.400] turned what was a recruiting shortfall
+- [02:56.959] into I think a recruiting Boon because
+- [02:59.599] people people are proud to serve the
+- [03:01.080] United States military as they should be
+- [03:03.640] uh I want to say something about Dan and
+- [03:05.120] his his wonderful family so Dan has has
+- [03:07.000] been a dear friend of mine for a long
+- [03:08.560] time his beautiful wife Cassie who's
+- [03:10.760] also an incredible physician and and two
+- [03:13.280] beautiful kids who are the I think the
+- [03:15.080] most well behaved kids I've ever seen of
+- [03:17.720] a secretary nominee you guys do a really
+- [03:19.959] good job you actually listen to your
+- [03:22.040] parents which is amazing and I think it
+- [03:23.599] speaks well if Dan can get how do Daniel
+- [03:26.680] you're eight okay Lyla Hower you
+- [03:30.400] you're six if you can get an eight and a
+- [03:31.840] six-year-old to listen to you then I
+- [03:33.720] think you can sure as hell be the
+- [03:34.920] secretary of the army because these guys
+- [03:37.040] are a lot tall tougher than than a lot
+- [03:38.840] of the soldiers that Dan will now lead
+- [03:41.040] but we're we're proud of him he's a man
+- [03:43.120] of integrity he's a man of character
+- [03:45.519] he's a man of great leadership and I
+- [03:47.280] think that he will bring the Army to a
+- [03:49.239] place where we can be proud of it where
+- [03:51.920] we can have meritorious service rewarded
+- [03:55.000] and commended in the United States Army
+- [03:57.720] and where we make sure that we're
+- [03:59.079] promoting the best and brightest we're
+- [04:01.040] enlisting the best and brightest and
+- [04:02.840] when God forbid we have to send the best
+- [04:05.319] and brightest to America's Wars we do it
+- [04:07.239] with confidence with Effectiveness we do
+- [04:09.480] the job and then we bring everybody home
+- [04:11.480] safely that is what we need to do in the
+- [04:13.760] United States Army I want to thank
+- [04:15.360] Senator Bud uh Senator uh we have a lot
+- [04:18.079] of senators here Senator Brett Senator
+- [04:20.239] McCormick and and of course senator erns
+- [04:22.520] for their great leadership and helping
+- [04:23.960] Shephard Dan's confirmation through
+- [04:26.120] we've had some tough confirmations we've
+- [04:27.960] had some easier confirmations and Dan
+- [04:30.360] has been on the easier side and I think
+- [04:32.280] that is great Testament both to his
+- [04:34.240] character and Leadership but also to the
+- [04:36.320] United States Senate and what they're
+- [04:38.039] able to do so with that I will turn our
+- [04:40.560] secretary designate into a secretary by
+- [04:43.080] administering the oath of office so Dan
+- [04:45.840] if you would please raise your right
+- [04:48.039] hand and repeat after me I Daniel
+- [04:50.840] Driscoll do solemnly swear I Daniel
+- [04:53.160] Driscoll do Solly swear that I will
+- [04:55.160] support and defend the Constitution of
+- [04:56.720] the United States that I will support
+- [04:58.560] and defend the contitution of the United
+- [05:00.320] States against all enemies foreign and
+- [05:02.199] domestic against all enemies foreign and
+- [05:04.479] domestic that I will bear true faith and
+- [05:06.320] allegiance to the same that I will bear
+- [05:08.240] true faith and allegiance to the same
+- [05:10.039] that I take this obligation freely that
+- [05:11.919] I take this obligation freely without
+- [05:13.840] any mental reservation without any
+- [05:15.960] mental reservation or purpose of evasion
+- [05:18.520] or purpose of evasion and that I will
+- [05:20.680] well and faithfully and that I will well
+- [05:22.840] and Faithfully discharge the duties of
+- [05:25.120] the office on which I am about to enter
+- [05:27.440] discharge the duties of the office of
+- [05:29.440] which on which I'm about to enter so
+- [05:31.080] help you God so help me God
+- [05:32.280] congratulations Mr secretary
+- [05:44.000] [Applause]
+- [05:52.660] [Applause]
+- [06:03.479] thank
+- [06:05.840] you uh they gave us five minutes total
+- [06:08.520] for all of this so this is going to be
+- [06:10.039] very fast uh it is a privilege to stand
+- [06:12.440] before you today as the 26th Secretary
+- [06:14.800] of the United States Army uh I first
+- [06:16.680] want to thank the president of the
+- [06:18.039] United States for his confidence and his
+- [06:19.840] trust uh next I am forever grateful to
+- [06:22.759] the vice president and second lady uh
+- [06:24.960] this friendship has been the adventure
+- [06:26.479] of a lifetime I cannot imagine where it
+- [06:28.319] goes from here uh to Cassie Daniel lla
+- [06:31.479] both sets of our parents my brother
+- [06:33.479] thank you for everything couldn't have
+- [06:34.639] done it without you um to everyone I met
+- [06:36.840] on the campaign Trail uh it is
+- [06:38.919] incredible how quickly we went from
+- [06:40.680] strangers to friends Arthur thank you
+- [06:42.759] for pushing so hard to get this through
+- [06:45.120] um and then uh just the last thing my
+- [06:47.759] commitment to this role as the vice
+- [06:49.759] president mentioned uh is rooted in my
+- [06:52.319] family's long lineage of military
+- [06:54.000] history we are a family that is grateful
+- [06:56.400] to have had the privilege of wearing the
+- [06:57.800] United States Army uniform uh and we're
+- [07:00.080] going to fight hard for it uh as
+- [07:02.039] secretary I will honor the Army's 250th
+- [07:04.759] Year Legacy of service and sacrifice and
+- [07:08.199] I will stay focused on my mission and
+- [07:10.160] shoulder my share of the task as I know
+- [07:11.800] our soldiers will do thank you for being
+- [07:13.520] here today I'm grateful for all of you
+- [07:15.440] great
+- [07:24.350] [Applause]

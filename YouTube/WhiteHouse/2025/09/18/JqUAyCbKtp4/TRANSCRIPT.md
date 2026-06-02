@@ -1,0 +1,468 @@
+<!-- source: https://www.youtube.com/watch?v=JqUAyCbKtp4 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: JqUAyCbKtp4 -->
+<!-- date_published: 2025-09-18T19:46:21+00:00 -->
+<!-- date_accessed: 2026-06-02T01:15:18.093932+00:00 -->
+
+# Transcript: President Trump Gaggles with the Press on Air Force One, Sep. 18, 2025
+
+- [00:02.720] The President: Well, I hope you had a good time, everybody.
+- [00:04.640] We had a really good day and a half.
+- [00:08.100] Very intensive. Any questions?
+- [00:10.950] The Press: What was the best part about it?
+- [00:13.630] The President: I think being with King Charles,
+- [00:15.870] he's a wonderful guy. Got to know him very well.
+- [00:18.970] I knew him before, but now I know him a lot better.
+- [00:24.010] The artwork.
+- [00:25.380] I saw more paintings than any human being has ever seen,
+- [00:29.280] and statues, but they treated us great.
+- [00:31.990] They treated our country great.
+- [00:34.270] And that, you know, I view that as being really respect
+- [00:37.870] for our country the way they did it.
+- [00:39.650] Because last night was beautiful.
+- [00:41.990] And, you had the biggest business people
+- [00:43.900] in the world there.
+- [00:45.100] That was respect for our county. Yeah.
+- [00:47.130] The Press: Mr. President,
+- [00:51.020] have you had conversations with Secretary Rubio
+- [00:53.480] or any of your military leaders
+- [00:55.400] about possible regime change in Venezuela?
+- [00:58.350] The President: No, I haven't.
+- [00:59.570] The Press: Have you had any discussions about plans
+- [01:00.940] or how to make it happen?
+- [01:02.140] The President: No, haven't
+- [01:03.360] The Press: You mentioned in your remarks
+- [01:04.580] at the press conference something about Bagram
+- [01:06.590] and bringing it back to the U.S.
+- [01:07.870] The President: Bagram, I'd like to get Bagram back.
+- [01:09.770] The Press: Do you know how you plan to do that, sir?
+- [01:13.150] The President: They need a lot from us,
+- [01:15.560] and I'd like to get it back. It should have never been given.
+- [01:18.090] Bagram should have been given -- the air base.
+- [01:22.440] There was gross incompetence to give that up.
+- [01:24.850] You know, that's one of the most powerful bases in the world
+- [01:27.200] in terms of runway strength and length.
+- [01:31.070] The strength and the length. You can land anything on there.
+- [01:34.120] You can land a planet on top of it.
+- [01:36.550] Can you imagine they gave it up for nothing?
+- [01:38.300] Just, oh, let's leave.
+- [01:40.090] And it's an hour away from where they make their missiles, China.
+- [01:43.750] The Press: It's been a month since you're meeting with Putin.
+- [01:46.570] Is it time to call for a ceasefire?
+- [01:47.990] The President: Say it louder.
+- [01:49.190] The Press: It's been month, since you've been meeting
+- [01:50.910] with President Putin. Is it a time for a (inaudible)?
+- [01:52.780] The President: Doesn't feel like it,
+- [01:54.270] but at the right time if I have to do it,
+- [01:57.300] it'll be harsh.
+- [01:58.540] The Press: (inaudible)
+- [02:00.270] something you said earlier this week,
+- [02:01.850] you said, Mr. President, regarding Antifa,
+- [02:05.570] regarding what you posted --.
+- [02:07.840] The President: Who are you with?
+- [02:09.600] The Press: NPR, sir. When -- regarding --
+- [02:18.060] The President: Are they still here?
+- [02:19.540] Oh good, congratulations.
+- [02:23.030] The Press: Regarding designating them a terrorist organization,
+- [02:26.050] when they don't have defined leadership or membership,
+- [02:29.340] how do you target them? Antifa.
+- [02:32.690] The President: We're going to find out, right?
+- [02:34.270] We're going to see.
+- [02:35.710] People have been talking about it for a long time.
+- [02:37.680] We're going to see.
+- [02:38.890] Did they have anything to do with your network?
+- [02:41.100] Antifa? But we're going to find out.
+- [02:44.650] The Press: Mr. President, you said earlier this week
+- [02:46.680] that the women who yelled at you,
+- [02:48.710] who were protesting when you were at Joe's Stone Crab,
+- [02:51.710] should be in jail. Do you actually think that
+- [02:53.960] that is an offense that deserves jail time?
+- [02:55.880] The President: How they got in there,
+- [02:57.160] but certainly I thought it was very inappropriate,
+- [03:00.410] and they said things that were very,
+- [03:02.270] and it was a question of when you take a look
+- [03:05.000] at the way they acted, the way they behaved,
+- [03:07.930] yeah, I think they were a threat.
+- [03:09.590] Do you think they deserve jail time?
+- [03:12.890] The Press: I think they're a nasty organization.
+- [03:14.830] The President: Go ahead.
+- [03:16.140] The Press: Well, I don't know. What should Congress focus on?
+- [03:19.540] What are your top priorities with Congress?
+- [03:22.930] The President: We're going to finish the wars.
+- [03:24.410] Couple of the going, as you know.
+- [03:25.790] You look at Gaza, you look at Russia, Ukraine.
+- [03:29.950] We're working on that, and I'm working with Congress on it,
+- [03:32.430] but I think we'll get it. You know, we did do seven.
+- [03:35.930] We actually did more than seven,
+- [03:38.360] which people don't like to talk about.
+- [03:41.870] But I'd say that and the economy.
+- [03:43.500] Always the economy, especially bringing down the oil further.
+- [03:47.510] If we get the oil down the wars -- that war ends.
+- [03:50.500] The Press: Here's a subject
+- [03:51.820] that I don't think a lot of people talk about.
+- [03:53.520] I've been talking to a lot American truck drivers
+- [03:56.320] in the last couple weeks,
+- [03:58.360] and I'm asking them what their biggest concern is.
+- [04:00.890] They tell me some of these foreign truck drivers,
+- [04:03.680] they come to schools here in America,
+- [04:05.840] Utah and California to be specific.
+- [04:08.550] They get fast tracks in the system.
+- [04:10.430] A lot of them don't speak English,
+- [04:11.750] which I know you did an EO about speaking English.
+- [04:14.520] But they're causing a dangerous situation on the road,
+- [04:17.160] that's what they're telling me.
+- [04:18.430] I don't know what we can do about it.
+- [04:19.680] The President: I don't like it. I see the one,
+- [04:20.990] you know, he had the accident, couldn't read a sign,
+- [04:22.790] didn't know what was happening.
+- [04:24.560] Yeah, no, I'm not in favor of that at all.
+- [04:27.240] Gotta speak English.
+- [04:28.680] The Press: Mr. President, Zohran Mamdani
+- [04:30.560] that he would arrest Benjamin Netanyahu
+- [04:33.200] if he comes to New York City because of the ICC warrant.
+- [04:36.730] Would you intervene if that came up?
+- [04:39.310] The President: Yeah. It's inappropriate.
+- [04:42.440] The Press: We asked (inaudible)
+- [04:44.650] viewers the questions they would like to ask of you
+- [04:47.290] and the Prime Minister today. The main question was,
+- [04:50.110] would you please swap jobs with him?
+- [04:52.940] And the second question behind that was really,
+- [04:56.590] why are we in the UK moving towards Europe
+- [04:59.550] when Europe is failing and America is flying?
+- [05:03.540] The President: Well, look, I think the U.K.
+- [05:06.570] Has a tremendous asset known as the North Sea,
+- [05:10.270] and it's loaded up with it. You know, they like to say,
+- [05:12.330] well, it's really diminished. It's not.
+- [05:14.180] And there are lots of areas out there that have been found.
+- [05:16.420] Look at Norway. You know it's the same kind of a thing.
+- [05:19.190] They've become so rich, and for U.
+- [05:22.500] K. or other parts of Europe to take --
+- [05:24.390] I mean, especially U.K., to buy oil for Norway,
+- [05:27.890] and they haven't, but they don't want to do it.
+- [05:30.380] If they would drill in the North Sea,
+- [05:31.930] if they would let them,
+- [05:33.130] you know, they've made it impossible for people.
+- [05:36.530] It's a tremendous asset, and it's tremendously valuable.
+- [05:41.260] And there's a lot of oil left.
+- [05:42.530] They've been drilling there for a long time,
+- [05:43.810] but there's lot of oil,
+- [05:45.100] and there's a lot oil out there that hasn't been found yet.
+- [05:47.710] And with new drilling techniques,
+- [05:50.060] when they think a well is closed,
+- [05:53.310] with the new drilling technique,
+- [05:54.710] you can drill for another 50 years.
+- [05:56.670] It's crazy. It's such a fabulous asset.
+- [06:00.330] And instead, they're putting these stupid windmills
+- [06:02.400] all over the place.
+- [06:03.690] Every time you put up a windmill,
+- [06:05.310] it costs the country millions of dollars a year
+- [06:08.650] to have that horrible thing turn.
+- [06:12.080] It's ugly, it's bad for the environment, it kills the birds.
+- [06:16.310] And beyond that, it costs a fortune.
+- [06:19.610] And you know, you should make money with energy.
+- [06:21.890] You shouldn't lose money. With windmils, you lose,
+- [06:24.670] including those massive solar fields.
+- [06:27.330] You take up all the farmland.
+- [06:29.440] And you know, they're black plastic from China.
+- [06:32.850] You ever see what happens to a bird
+- [06:34.310] when the bird's land, they get fried?
+- [06:36.590] Because it's hot. So it's, you don't need
+- [06:40.390] (inaudible).
+- [06:41.730] You know a bird lands on it, it's over.
+- [06:47.150] (inaudible) lunatics. Go ahead.
+- [06:52.040] The Press: I was going to ask, last week in the Oval Office,
+- [06:54.080] I asked you about if Ilhan Omar should be censored.
+- [06:57.530] Congress censored her
+- [06:58.790] and I just want to get your reaction to that.
+- [07:00.730] The President: They did censor her?
+- [07:02.670] The Press: They did.
+- [07:05.030] The President: When did this happen?
+- [07:06.690] The Press: It was yesterday.
+- [07:08.470] The President: Yeah, good. I think she's terrible.
+- [07:10.750] I think should be impeached. I think she's terrible.
+- [07:14.950] Is she originally from Somalia?
+- [07:16.930] The Press: Yes, sir.
+- [07:18.240] The President: So, how are they doing ?
+- [07:19.850] How's their government? Do they have a president?
+- [07:22.650] Do they a council? Do they have anything?
+- [07:25.010] Do they police? I love these people.
+- [07:27.360] They come from a place with nothing.
+- [07:30.240] Nothing. No anything.
+- [07:32.240] And then they tell us how to run our country.
+- [07:34.390] No, I think if she got impeached, that's even better.
+- [07:41.540] They impeached me twice for nothing.
+- [07:44.420] And they impeached me knowing the Republicans are on my side,
+- [07:47.090] so they knew it was just -- that they impeach me.
+- [07:50.040] She should be impeached and it should happen fast.
+- [07:54.530] What she says is out of line. Yeah, go ahead, anybody.
+- [07:59.510] The Press: Mr. President, are you going to ask Rendon Carr
+- [08:02.210] to weigh in on other late night hosts
+- [08:05.090] that you have asked that should be off the air?
+- [08:07.430] The President: (inaudible)
+- [08:08.630] hosts is on network television, there is a licensing.
+- [08:12.890] I'll give you an example.
+- [08:14.090] I read someplace that the networks
+- [08:16.760] were 97 percent against me.
+- [08:18.530] I got 97 percent negative. And yet, I won it easily.
+- [08:22.810] I won all seven swing states. The popular one won everything.
+- [08:28.030] If they're 97 percent against,
+- [08:30.780] they give me only bad publicity, or press.
+- [08:34.660] I mean, if they're getting a license,
+- [08:37.050] I would think maybe their license should be taken away.
+- [08:40.850] It will be up to Brendan Carr.
+- [08:42.670] I think Brendan Carr is outstanding.
+- [08:44.400] He's a patriot. He loves our country,
+- [08:46.620] and he's a tough guy. So we'll have to see.
+- [08:49.420] The Press: (inaudible) free speech issue?
+- [08:50.730] The President: But you think about this?
+- [08:52.550] 97 percent of the stories are opposed to me,
+- [08:55.830] and yet I win easily the election.
+- [08:58.320] It's pretty amazing when you think of it.
+- [09:00.140] That shows they have no credibility.
+- [09:03.490] The Press: I was just going to agree with you.
+- [09:04.970] I mean, could you use that same logic with news?
+- [09:08.560] The President: In some of the old days,
+- [09:09.810] I remember in the old days, and every four or five years,
+- [09:12.930] a network would reapply for its license.
+- [09:16.130] And the license is free.
+- [09:17.950] You know, they get this valuable thing for free,
+- [09:21.040] and they'd reapply it for a license.
+- [09:23.230] And if they did something wrong,
+- [09:24.460] well, I beat George Stephanopoulos.
+- [09:27.350] Slopidopoulous, I call him, George Slopido.
+- [09:30.230] He had to pay me $15 million for what he said.
+- [09:33.370] I beat CBS for much more money than that,
+- [09:36.560] including advertising and other things.
+- [09:38.320] That's much more money.
+- [09:39.880] Because they totally changed the answer that Kamala gave.
+- [09:45.000] What a question. I mean, they didn't change it.
+- [09:47.690] They took it out and put a different answer in,
+- [09:50.910] and they didn't want to go to court with that.
+- [09:52.450] That's a tough one to go the court with.
+- [09:55.520] So, no, I think that if you remember years ago,
+- [09:58.920] I remember, as a kid, they would file --
+- [10:02.090] it was a big deal. Every four or five years.
+- [10:04.060] And I don't know. You don't hold me exact.
+- [10:06.340] But it was like four or five years,
+- [10:07.720] they'd have to file for a license extension.
+- [10:10.550] I don't hear about that. The only one that I've heard
+- [10:12.740] even bring it up is Brendan Carr.
+- [10:14.840] I think Brendan Carr is doing a great job,
+- [10:17.340] and I think he's a great patriot.
+- [10:20.540] The Press: What do you think about the fact
+- [10:21.950] that you attend an event in England
+- [10:23.660] that's a state visit, spectacular
+- [10:26.310] and yet the Mayor of London can't be there.
+- [10:30.520] The President: Oh, I didn't want him there.
+- [10:31.760] I asked that he not be there. I don't want the --
+- [10:33.890] I think the mayor of London, Khan,
+- [10:36.830] is among the worst mayors in the world.
+- [10:40.340] And we have some bad ones, if you look at Chicago,
+- [10:43.920] if you're looking --
+- [10:45.180] but I think he's the equivalent of the mayor of Chicago.
+- [10:48.830] I think he's done a terrible job.
+- [10:50.490] Crime in London is through the roof.
+- [10:52.650] The mayor of London, Khan, Mayor Khan,
+- [10:55.490] has done a terrible job,
+- [10:56.790] and on immigration, he's a disaster.
+- [10:59.610] No, I asked that he not be there.
+- [11:01.760] He wanted to be there, as I understand.
+- [11:03.430] I didn't want him.
+- [11:05.150] I've not liked him for a long time.
+- [11:06.940] I just think, you know,
+- [11:08.330] I have a certain pride in London and UK.
+- [11:12.370] My mother was born in Scotland, as you know.
+- [11:15.790] And when I see Mayor Khan do a bad job,
+- [11:19.250] the stabbings and the dirt and the filth,
+- [11:23.340] it's not the same. No, I didn't wanted that.
+- [11:26.070] The Press: The Prime Minister said to you,
+- [11:28.460] when I asked about, are we a Christian country,
+- [11:31.390] his answer was that he was christened,
+- [11:34.300] but he's quoted in newspapers --.
+- [11:35.560] The President: Who -- who was?
+- [11:36.800] The Press: The Prime Minister said that I was christened,
+- [11:40.550] he said today, this afternoon, as though that's explained
+- [11:43.760] whether we were a Christian country.
+- [11:45.280] He's actually been quoted as saying,
+- [11:48.050] two years ago saying he was an atheist,
+- [11:49.720] he's a committed atheist.
+- [11:51.030] Is he the kind of guy that says something
+- [11:53.770] when you're there and then --
+- [11:55.910] The President: Look, I think he's a very nice man,
+- [11:58.020] I really do, and his wife is -- and we (inaudible)
+- [12:01.540] for a day and a half. The thing I most disagree,
+- [12:04.750] I guess I disagree with him on two things.
+- [12:06.650] Immigration, which is very rough for the UK, very rough.
+- [12:12.930] And energy. As I said, the North Sea,
+- [12:17.750] if I had that, I'd make a fortune with that.
+- [12:21.690] Look at Norway's accounts, look at the cash Norway has.
+- [12:25.580] And they have the same thing we're talking about.
+- [12:28.420] I don't even know if they have as much.
+- [12:30.800] But that's a tremendous asset. So those two things.
+- [12:35.040] But I mean, I get along with him.
+- [12:38.410] I think he's a really fine person.
+- [12:40.420] The Press: You've got the feeling today
+- [12:41.710] that business is keen to invest in the UK,
+- [12:44.390] because it doesn't feel like that when you live there.
+- [12:47.660] The President: Well, we made a deal with the U.K.,
+- [12:48.990] and some of those companies have made a deal with U.
+- [12:52.080] K., but there's always strings to the U.S. I mean, I help them.
+- [12:57.850] I want to help them, I want them to be strong as a country.
+- [13:00.540] I think it's important that the UK be strong.
+- [13:03.510] And we're so strong financially
+- [13:06.430] that we can get people to do other things.
+- [13:09.610] The Press: Mr. President, (inaudible)
+- [13:11.120] talk to you about Ukraine.
+- [13:13.060] Did the Prime Minister talk to you about Ukraine?
+- [13:15.300] He indicated he did.
+- [13:16.900] What were his arguments from what you said?
+- [13:18.660] The President: He's really a little bit embarrassed that
+- [13:21.310] (inaudible) that I caught Europe,
+- [13:25.810] NATO countries, EU countries, you can call it either way,
+- [13:30.060] because they're very similar,
+- [13:31.330] but that I caught them buying oil from Russia.
+- [13:34.500] And he said, that's not good.
+- [13:35.850] I mean, I appreciated that he said that.
+- [13:39.010] He said, that's not good. How about that?
+- [13:42.110] We're supposed to do all this stuff,
+- [13:43.840] and they're buying oil for Russia.
+- [13:46.110] That's not good, do you agree?
+- [13:48.690] That's about pretty much all we can do.
+- [13:51.620] (inaudible)
+- [13:52.870] but he also agrees they have to stop buying oil from Russia.
+- [13:55.210] The Press: Do you think that they would also be willing
+- [13:56.800] to do sanctions,
+- [13:58.020] that he would be willing to do sanctions?
+- [13:59.370] The President: He would do sanctions, yes.
+- [14:02.000] And he's not one of the culprits in terms of the oil.
+- [14:07.120] The Press: Governor Josh Shapiro said
+- [14:08.470] that your administration is cherry-picking violence
+- [14:10.940] that is okay and violence that's not okay.
+- [14:13.300] What is your response to that?
+- [14:15.330] The President: It's just violence,
+- [14:16.530] and it's violence that you don't have to have.
+- [14:18.430] Look, in D.C.,
+- [14:19.940] we took one of the most dangerous cities in the world.
+- [14:24.350] And you can walk down, you can take your husband,
+- [14:27.180] your boyfriend, your girlfriend, whoever you want to take,
+- [14:30.420] you can take them out to dinner tonight at D.
+- [14:32.440] C. And you're going to be safe.
+- [14:34.290] It's really safe. We did a great job.
+- [14:36.830] We're going do the same job in Memphis,
+- [14:39.000] and we're going into Chicago.
+- [14:40.870] And I told you, the head of the Union Pacific,
+- [14:43.070] who's a great gentleman, a great businessman.
+- [14:45.710] Started as a low-level railroadee.
+- [14:49.300] He calls himself a railroader. It's a cool story.
+- [14:51.800] Forty-five years later,
+- [14:53.050] he's the chairman of the Union Pacific.
+- [14:55.420] He said, sir, you have to save Chicago.
+- [14:57.340] It's great city. You can't let it go.
+- [14:59.810] And when he said that, I said,
+- [15:01.180] I don't really have time to wait a couple of months.
+- [15:04.910] Last weekend, they lost 11 people were murdered,
+- [15:08.890] and 28 people were shot.
+- [15:11.710] That's not shot at. That means actually hit.
+- [15:14.760] A hundred were shot at and missed.
+- [15:18.390] That's what I call dangerous.
+- [15:20.580] And Pritzker is going out and saying,
+- [15:23.090] we've got crime under control. Now, it went down a little bit
+- [15:26.080] because for four months, five months ago,
+- [15:27.930] I put the FBI there, and they've done a good job.
+- [15:30.420] But that's limited what they can do.
+- [15:32.890] What you really need is our big, strong soldiers
+- [15:37.270] to get them into shape.
+- [15:38.910] We're not going to get -- we're not letting Chicago fail.
+- [15:42.220] And we're going to get started in Memphis.
+- [15:44.630] We'll be very successful, just like we were in D.C.
+- [15:47.840] And we're going to have to stay in D.C.
+- [15:49.780] for a while because, you know, you leave,
+- [15:52.370] people have a tendency to come back.
+- [15:54.140] Now, remember, we took 1,500 people out of there,
+- [15:57.500] pretty permanently out of that.
+- [15:59.380] We took career criminals, really bad murderers and other things.
+- [16:05.330] We took them out of D.C. They're not coming back.
+- [16:08.730] You don't take them, if they come back,
+- [16:10.120] you're just wasting your time.
+- [16:11.950] So we took them out, and they're not coming back.
+- [16:13.800] We brought many of them back to the country
+- [16:15.850] from which they came.
+- [16:17.200] What Biden did to our country is not even --
+- [16:20.340] it's not believable.
+- [16:21.580] And to me, that's worse than the inflation he caused.
+- [16:24.200] It's worse what he did to out country
+- [16:26.760] by allowing 25 million people -- which is a real number --
+- [16:31.120] to come in, many of whom should never be here,
+- [16:33.940] by emptying jails into our country
+- [16:35.940] and emptying mental institutions into our countries.
+- [16:39.780] What Biden and his people,
+- [16:41.140] because I don't even think it was him.
+- [16:42.480] I think he didn't know what was happening.
+- [16:44.450] But what that radical left group of people
+- [16:47.270] did to our country will never be forgotten.
+- [16:50.270] Okay, have a good trip, everybody.
+- [16:52.340] The Press: One more, just one last question.
+- [16:55.580] Who would you like to see replace Kimmel on late night?
+- [16:57.610] The President: A lot of people, anybody could replace him.
+- [17:00.390] Guy had no talent.
+- [17:02.110] Kimmel had, look, he was fired. He had no talent.
+- [17:05.760] He's a whack job, but he had no talent.
+- [17:08.770] More importantly than talent that he had,
+- [17:10.320] because a lot of have no talent, they get ratings.
+- [17:13.300] But he had to ratings.
+- [17:16.220] His ratings were worse than Colbert, I think.
+- [17:19.050] They got rid of Colbert which was a good thing to do.
+- [17:21.400] And look, that's something that should be talked about
+- [17:26.210] for licensing too.
+- [17:28.150] When you have a network, and you have evening shows,
+- [17:30.830] and all they do is hit Trump.
+- [17:33.570] That's all they do. If you go back --
+- [17:36.820] I guess they haven't had a conservative on in years,
+- [17:39.160] or something, somebody said -- but when you go, take a look.
+- [17:43.830] All they do is hit Trump. They're licensed.
+- [17:47.270] They're not allowed to do that.
+- [17:48.630] They're an arm of the Democrat Party.
+- [17:50.930] Thank you, everybody. Fly safely.
+- [17:54.560] You know why I say that? Because I'm on the flight.
+- [17:57.790] Otherwise I wouldn't care.
+- [17:59.000] The Press: Can we just have one word on how beautiful
+- [18:02.290] all the women looked last night.
+- [18:03.950] Caroline, and your wife, and (inaudible).
+- [18:06.630] The President: Well, I'm not allowed to say that politically,
+- [18:09.330] because it could be the end of my career.
+- [18:10.980] The Press: We'll give you permission to say it.
+- [18:12.320] The President: However, I'll say it anyway.
+- [18:14.310] The women looked beautiful. You look beautiful.
+- [18:16.820] The women looked really beautiful.
+- [18:19.960] You're right, our superstar over here, right?
+- [18:22.850] That's Karoline. Has she done a good job?
+- [18:26.080] Everybody was great.
+- [18:27.360] Even the men looked beautiful, okay?
+- [18:29.770] It's hard not to look beautiful in that room.
+- [18:32.000] That was one of the coolest rooms.
+- [18:33.860] That room was built for a table.
+- [18:36.380] But the table had to carry 200 people.
+- [18:38.290] You know, it was like -- . The Press: What did you eat?
+- [18:39.790] The President: Huh? The Press: What did you eat?
+- [18:41.020] The President: I don't know.
+- [18:42.300] Whatever the hell they served, I don't know.
+- [18:43.900] Whatever they served I had to.
+- [18:47.530] The Press: Did Melania enjoy her time with Princess Kate today?
+- [18:49.330] The President: She thought she was great.
+- [18:50.600] I did, too. I sat with her last night.
+- [18:53.480] Melania went with her today. She thought was great.
+- [18:56.860] Very wonderful person. She went through a lot, too.
+- [19:01.170] But hopefully that's all gone.
+- [19:02.680] You know, that's -- she was great.
+- [19:05.640] William is wonderful. I've known him from before.
+- [19:09.210] And I knew Charles as a prince, and I now know him as a king,
+- [19:12.510] and he's doing very well.
+- [19:14.200] It was a great -- it was a lovely trip.
+- [19:15.900] And I thought the press was really nice.
+- [19:18.260] It was beautiful. I watched a little bit last night.
+- [19:24.450] It looks so beautiful, like from a different age, right?
+- [19:28.320] Not an age of trouble.
+- [19:30.070] But we're getting rid of the trouble.
+- [19:31.590] Thank you very much, everybody. Have a good flight. Thank you.
+- [19:34.410] Thank you.

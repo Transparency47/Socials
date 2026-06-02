@@ -1,0 +1,900 @@
+<!-- source: https://www.youtube.com/watch?v=HJmhMMAlURc -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: HJmhMMAlURc -->
+<!-- date_published: 2025-08-28T19:17:10+00:00 -->
+<!-- date_accessed: 2026-06-02T02:45:08.452258+00:00 -->
+
+# Transcript: Vice President JD Vance Delivers Remarks at Mid-City Steel
+
+- [37:00.500] ♪ (Rock Music Playing) ♪
+- [37:34.880] The Vice President: Thank you. Thank you all.
+- [37:36.090] We've got -- we love you all.
+- [37:38.790] Thank you all, Wisconsin. It's great to be here again.
+- [37:41.630] Great looking crowd here. Thank you all.
+- [37:44.610] The best looking group of welders and steel men and women
+- [37:47.260] I've seen in my entire life, I think.
+- [37:49.140] This is a sharp crew.
+- [37:50.960] Now, everybody behind me,
+- [37:53.060] I was told, volunteered to be there.
+- [37:56.090] And so you guys have to clap and cheer at everything that I say.
+- [38:00.190] And if not, we're going to have to kick you
+- [38:01.860] the hell out of here.
+- [38:03.080] And a couple of people, a couple of them actually,
+- [38:06.120] and I'm not going to call them out by name,
+- [38:07.930] but they were selected because they're some of the hardest
+- [38:10.330] working and best working people in this facility.
+- [38:14.020] And we just want to say we're proud of you guys,
+- [38:15.760] proud of what you do,
+- [38:17.000] and proud that the tradition of Wisconsin
+- [38:19.150] craftsmanship lives on in this great facility right here today.
+- [38:31.340] Now, before we get started here
+- [38:32.970] and I would talk about the big, beautiful bill,
+- [38:34.730] I want to give a few notes of appreciation and gratitude.
+- [38:38.450] So, first of all,
+- [38:39.740] I think this is probably the third or fourth time
+- [38:41.670] I've been to La Crosse, Wisconsin.
+- [38:42.950] I came here a lot during the campaign.
+- [38:45.040] It was always great to be here.
+- [38:46.340] And I joked that you all would get sick of me,
+- [38:48.530] but I would come back as Vice President of the United States.
+- [38:50.690] And I'm proud that I got to keep that promise.
+- [38:52.800] Thanks to you.
+- [39:00.560] So I want to thank Paul Bagneski.
+- [39:04.400] Paul, thank you so much.
+- [39:05.680] I got an A-minus maybe on that pronunciation.
+- [39:10.380] He is the President and CEO of this incredible facility.
+- [39:13.560] We're so thankful to be here. I want to thank Jake Kosciel
+- [39:18.630] and the rest of the Tough Job team
+- [39:20.600] for giving us such a warm welcome here in Wisconsin.
+- [39:24.930] I also want to thank, and you heard Doug Burgum,
+- [39:27.740] our great Secretary of the Interior.
+- [39:29.140] How good of a job is Doug Burgum
+- [39:30.530] doing as Secretary of the Interior?
+- [39:32.510] Doug, thank you.
+- [39:37.520] Doug is doing a great job. You heard him give a shout-out,
+- [39:40.190] and I'm going to give another shout-out
+- [39:41.630] to the great Representative Derrick Van Orden.
+- [39:44.680] Thank you, Derrick. Please stand up.
+- [39:47.410] Give it up for this guy. He works harder.
+- [39:51.840] He works harder than anybody in Congress.
+- [39:53.570] He works so hard that he lost most of his hair,
+- [39:56.510] in fact, over his time in Congress.
+- [39:58.020] I'm sorry about that.
+- [39:59.250] I had to poke a little fun at my good friend Derrick.
+- [40:02.040] But, you know, there are so many people
+- [40:04.330] who just show up in Washington. They go along to get along.
+- [40:06.930] They cast a vote or don't, but don't really do much else.
+- [40:10.110] Derrick is fighting every single day
+- [40:12.090] for the people of this district.
+- [40:13.950] You should be proud of him because I certainly am.
+- [40:16.340] Thank you, Derrick.
+- [40:22.700] And I guess we've got the senior class from Luther High School.
+- [40:25.190] Where are all the Luther High School students?
+- [40:26.750] Where are you all at? Thank you all.
+- [40:33.070] Now, have you all started school yet or played hooky today?
+- [40:36.190] You have. Okay, good.
+- [40:37.480] Well, I'm glad the Vice President coming to town
+- [40:39.450] got you guys out of school a little bit.
+- [40:41.390] But let's talk about the future
+- [40:43.620] because these kids are the future.
+- [40:45.310] We want to make sure that they have
+- [40:46.830] a prosperous American future to grow up in.
+- [40:48.970] And let me take you back a little bit
+- [40:50.760] to where I grew up in Middletown, Ohio,
+- [40:52.500] southwestern Ohio, where my papaw,
+- [40:55.030] and the reason I love the welders in particular,
+- [40:56.920] is my papaw for 42 years was a union welder
+- [41:00.190] at a place called Armco Steel.
+- [41:02.620] And when I was growing up, Armco Steel had shed about
+- [41:06.560] 80 percent of the workforce that it had employed
+- [41:09.820] when my papaw was working there during its heyday.
+- [41:12.790] And unfortunately, it was one of the lucky ones
+- [41:15.110] because a lot of the steel mills
+- [41:16.330] lost about 80 percent of their workforce.
+- [41:17.980] A lot of the steel mills didn't exist at all.
+- [41:20.390] And I think that what happened is that for those of us
+- [41:22.960] who grew up in those factory towns,
+- [41:25.050] we were so used to seeing those proud, big, beautiful factories,
+- [41:29.080] seeing the night sky lit up with that furnace.
+- [41:31.730] We were proud of what our parents
+- [41:33.470] and our grandparents made every single day.
+- [41:35.760] And of course, they were proud to earn the kind of a job
+- [41:38.190] that enabled them to provide us a good life.
+- [41:40.220] And what happened?
+- [41:41.470] Thanks to a generation of failed politicians
+- [41:44.090] and stupid decisions,
+- [41:45.690] those factories closed down one by one by one.
+- [41:48.660] And many of those proud towns that made us who we are,
+- [41:51.880] ladies and gentlemen, those proud towns became ghost towns.
+- [41:55.610] Well, not anymore.
+- [41:56.860] What the President of the United States
+- [41:58.310] was elected on a promise to do
+- [42:00.450] was to bring back American manufacturing,
+- [42:03.590] to bring back American craftsmanship,
+- [42:05.840] and that is exactly what President Donald Trump
+- [42:07.930] is doing every single day in Washington.
+- [42:16.780] How nice is it to have a President who,
+- [42:18.860] instead of rewarding companies for shipping your jobs overseas,
+- [42:22.820] rewards companies for building factories right here
+- [42:25.960] in the United States of America.
+- [42:32.720] How nice is it to have a President of the United States
+- [42:35.430] who, instead of raising your taxes,
+- [42:37.760] is cutting your taxes by historic margins
+- [42:40.710] every single day as we just did.
+- [42:46.150] For years, American leaders would ask you to work overtime,
+- [42:50.210] would ask you to spend even more time away from your family,
+- [42:53.460] and every hour that you spent at the job,
+- [42:55.660] they would reach further and further into your pocket.
+- [42:58.340] How nice is it to have a President of the United States
+- [43:00.670] who cut taxes on overtime,
+- [43:02.820] because we believe that if you spend an extra hour at work,
+- [43:06.070] the government ought to keep its hands
+- [43:07.520] the hell out of your pocket. Is that right?
+- [43:16.340] We know about 5 percent,
+- [43:17.630] about 1 in 20 Wisconsin workers rely on tips
+- [43:21.410] to bring home the bacon for themselves and their families.
+- [43:24.150] How nice is it to have a President of the United States
+- [43:26.500] and Republican majorities in Congress
+- [43:28.790] that cut taxes on tips instead of forcing our waitresses
+- [43:32.780] and service professionals to deal with the IRS.
+- [43:35.920] We ought to make it easier for folks to get by,
+- [43:38.520] which is exactly what we did when we cut taxes on tips,
+- [43:41.570] and Wisconsin families are going to be the beneficiaries.
+- [43:50.450] What the Working Families Tax Cuts did
+- [43:52.710] is very simple, ladies and gentlemen.
+- [43:54.490] It let you keep more money in your pocket.
+- [43:57.020] It rewarded you for building a business
+- [43:59.400] or working at a business right here
+- [44:01.160] in the United States of America.
+- [44:03.100] It makes it easy for you to take home
+- [44:05.760] more of your hard-earned pay, and it makes it easier.
+- [44:08.530] If you're an American manufacturer
+- [44:10.060] or an American business,
+- [44:11.450] it makes it easier for you to build your facility
+- [44:14.900] or expand your facility right here
+- [44:17.140] in the United States of America.
+- [44:18.920] I happen to believe that it's the dumbest decision we made
+- [44:22.040] as a country to reward foreign companies
+- [44:25.670] with putting stuff overseas
+- [44:27.420] instead of right here in places like Wisconsin.
+- [44:30.790] Well, now we have a different president
+- [44:33.040] with a different attitude.
+- [44:34.400] If you're building in the United States of America,
+- [44:37.150] if you're working in the United States of America,
+- [44:39.810] if you're trying to earn a decent living
+- [44:41.610] right here at home,
+- [44:42.850] we are going to fight for you every single day.
+- [44:45.170] But if you build crap overseas
+- [44:46.890] and try to undercut the wages of American workers,
+- [44:49.850] you're going to pay a big fat tariff
+- [44:51.480] before you bring it back in to the United States of America.
+- [45:00.700] Now, I was talking with a Fox News host earlier,
+- [45:02.730] and I'm going to embarrass him a little bit.
+- [45:04.240] I'm going to make him stand up and be recognized.
+- [45:06.840] You guys know Will Kane? Will?
+- [45:11.750] A lot of us watch his show. He's doing a good job.
+- [45:16.780] You know, what I told Will earlier
+- [45:18.470] is that all these problems are interconnected.
+- [45:20.590] Why is it that we allowed these Mexican drug cartels
+- [45:24.160] to bring this poisonous fentanyl into our communities?
+- [45:26.930] Why is it that so many people lost hope
+- [45:29.460] and started taking that fentanyl?
+- [45:31.210] Why is it that we had a government that seemed
+- [45:33.800] to care more about illegal immigrants
+- [45:35.960] than they did about their own citizens?
+- [45:37.690] It's all connected.
+- [45:39.100] Because when they shift your job overseas
+- [45:41.240] in the last administration
+- [45:42.850] or administrations that came before it,
+- [45:45.490] what they also did at the same time
+- [45:47.400] is they allowed those cartels to come into our country
+- [45:50.210] and take advantage of our communities.
+- [45:52.870] So what the working class family's tax cut does is,
+- [45:56.560] yes, it gives you more take-home pay.
+- [45:58.580] Yes, it cuts taxes on overtime. Yes, it cuts taxes on tips.
+- [46:02.950] But it also gives our incredible law enforcement
+- [46:05.640] over $100 billion to get those drug cartels
+- [46:08.880] the hell out of our country once and for all.
+- [46:18.470] It's very simple.
+- [46:19.940] Donald Trump's Republican Party
+- [46:21.330] wants very simple things for this country.
+- [46:23.460] We want you to be able to earn a good living in your community.
+- [46:26.290] We want you to be able to walk down a city street
+- [46:28.810] in broad daylight without getting mugged.
+- [46:31.200] We want you to be able to take your family out to a nice meal
+- [46:34.110] wherever you want to without the fear of violence from criminals,
+- [46:38.310] whether they're domestic criminals
+- [46:39.990] or international drug cartels.
+- [46:42.200] If you work hard every single day,
+- [46:44.190] you ought to take as much of your hard-earned
+- [46:46.130] pay home as possible.
+- [46:47.650] And if you want to raise your children
+- [46:50.560] in security and comfort,
+- [46:51.870] you ought to send them to a school
+- [46:53.220] that gives them a good education instead of an indoctrination.
+- [46:56.130] These are very simple things, ladies and gentlemen,
+- [46:58.660] and all we needed was better leadership in Washington
+- [47:01.650] to deliver it.
+- [47:08.550] Now, Representative Van Orden will tell you this,
+- [47:10.720] but if you didn't know,
+- [47:12.490] it turned out that we didn't get a single Democrat vote
+- [47:15.990] for cutting taxes on tips, cutting taxes on overtime,
+- [47:19.230] or increasing the child tax credit.
+- [47:21.080] Not a single Democrat in the House or the Senate
+- [47:24.520] could actually deign to vote
+- [47:27.370] for giving you more of your hard-earned money.
+- [47:29.490] And we've got to ask ourselves why that is,
+- [47:31.430] because as much as I am proud of what we've accomplished,
+- [47:34.310] it would honestly be a little bit easier,
+- [47:35.800] wouldn't it, Derek,
+- [47:37.020] if the Democrats actually worked with us
+- [47:39.630] instead of fighting us every single step of the way.
+- [47:42.050] And you're going to see this.
+- [47:43.350] We're a little early for campaign season,
+- [47:45.820] but in a couple months or maybe about a year,
+- [47:48.860] you're going to start seeing television advertisements,
+- [47:51.700] and you're going to start seeing Democrats
+- [47:53.330] lying about what's in these working families tax cuts,
+- [47:55.790] and I'm going to tell you
+- [47:57.080] exactly what they're going to say.
+- [47:59.000] They're going to tell you that this bill,
+- [48:01.990] which gives you more of your hard-earned money,
+- [48:04.020] that they opposed it not because they want to raise your taxes,
+- [48:07.170] and they do, but because they're worried about your health care.
+- [48:11.400] They are so worried about your health care, in fact,
+- [48:13.760] that they want to give more
+- [48:15.060] and more of your health care to illegal immigrants.
+- [48:17.350] And that's exactly why they voted against this bill.
+- [48:20.270] I know we have this beautiful high school class back there,
+- [48:23.540] and I'll give you, just from a vice president
+- [48:25.810] to the high school seniors,
+- [48:27.440] I'll give you guys just a little bit of relationship advice
+- [48:30.550] from a man who's been happily married for 11 years.
+- [48:33.340] Find yourself somebody who loves you
+- [48:36.180] as much as National Democrats
+- [48:39.080] love giving health care benefits to illegal aliens.
+- [48:42.890] That's my advice for you.
+- [48:45.550] Because it is, as far as I can tell,
+- [48:53.450] the reason why the National Democratic Party exists.
+- [48:55.840] Do you know that this bill
+- [48:57.400] makes tens of billions of dollars in investments
+- [49:00.980] in our rural health care infrastructure,
+- [49:02.870] which was fallen apart under the last administration?
+- [49:05.980] This legislation guarantees that hard-working Americans
+- [49:09.500] are going to have access to their Social
+- [49:11.460] Security, Medicare, and Medicaid benefits.
+- [49:14.060] What this bill refuses to do,
+- [49:16.360] and what Republicans absolutely refuse to do,
+- [49:19.380] is to give your hard-earned benefits
+- [49:22.300] to people who don't have the legal
+- [49:23.920] right to be in this country to begin with.
+- [49:25.860] It is very simple.
+- [49:33.830] And if you want to protect the people's benefits,
+- [49:36.260] if you want to protect rural health care,
+- [49:38.030] if you want to make sure that
+- [49:39.530] whether you live in a big city or a small town,
+- [49:41.970] you have the ability to go and see a doctor,
+- [49:44.420] and that is exactly what we want to do,
+- [49:46.600] then the first thing you ought to be doing
+- [49:48.590] is making sure that the people who get federal health
+- [49:51.950] care benefits actually have
+- [49:53.910] the right to be in this country in the first place.
+- [49:56.650] That is the first and most important step.
+- [50:04.370] And that's what this legislation did,
+- [50:06.300] so don't believe the lies and don't believe the attacks.
+- [50:09.270] What we are doing with this legislation
+- [50:11.630] is giving you a tax cut
+- [50:13.310] and trying to rebuild the health care infrastructure
+- [50:16.050] of this country
+- [50:17.250] that got decimated under Joe Biden's leadership.
+- [50:19.990] But what we are also doing, in order to preserve
+- [50:22.850] the benefits that you've paid into for your entire lives,
+- [50:25.970] is making sure those benefits
+- [50:27.480] only go to our fellow American citizens
+- [50:30.850] and not to people who ought to go back to their home country
+- [50:33.910] because they're here in this country illegally.
+- [50:36.250] It's very simple.
+- [50:38.030] And think about this.
+- [50:40.430] Think about the math, ladies and gentlemen.
+- [50:42.630] You cannot have these health care benefits
+- [50:46.190] if you allow tens of millions of people into this country
+- [50:49.770] who have no legal right to be here
+- [50:51.500] and give them those benefits. We were on the freight train
+- [50:56.280] to bankruptcy under Joe Biden's leadership
+- [50:59.330] because we had a Democratic Party
+- [51:01.230] that didn't care enough about this country
+- [51:03.710] to actually enforce our borders, and it's that simple.
+- [51:06.740] And so when I see the Democrats, I've got to be honest with you,
+- [51:09.180] it makes me a little bit angry.
+- [51:10.470] When I see Democrats fighting against cutting your taxes
+- [51:13.510] and saying it's about health care,
+- [51:15.110] it's not about health care for you,
+- [51:17.060] it's about health care for illegal aliens,
+- [51:19.180] and we happen to believe in a different principle.
+- [51:21.710] You ought to keep more of your hard-earned money,
+- [51:23.640] that if you work overtime, you ought to be rewarded for it,
+- [51:27.100] and that when you pay into the federal system,
+- [51:30.640] you receive those benefits
+- [51:32.300] and not anybody who didn't pay into them to begin with.
+- [51:37.080] So, let me say just a couple more things
+- [51:44.040] and then I'll hit the road,
+- [51:45.480] but maybe I'll take some questions.
+- [51:46.860] Should we take some questions from the fake news,
+- [51:48.520] ladies and gentlemen?
+- [51:49.750] Would that be fun? Okay, we can do that too.
+- [51:52.350] I want to focus on the local Wisconsin reporters first
+- [51:55.710] because I know that they're not fake news, right?
+- [51:58.230] We got good local reporters here in Wisconsin?
+- [52:01.600] I don't know. Mixed reviews based on the crowd here.
+- [52:04.250] But let me just say a couple more things.
+- [52:06.570] So this business, this manufacturing facility,
+- [52:11.140] I think represents the future of American craftsmanship.
+- [52:14.480] And I was talking to the CEO and to Jake earlier about this,
+- [52:18.650] but you know there's this attitude
+- [52:20.810] that some people have that manufacturing,
+- [52:22.850] it's the jobs of the past, it's the industry of the past,
+- [52:26.060] that it's dirty, that it's not innovative.
+- [52:29.300] I challenge any journalist to walk around
+- [52:33.000] this facility for 10 minutes and not realize that this is
+- [52:36.210] one of the most innovative companies in America
+- [52:39.170] and this is the future of American industry,
+- [52:42.390] the future of American innovation,
+- [52:44.090] and the future of American manufacturing.
+- [52:46.440] They're using artificial intelligence in this facility.
+- [52:50.370] They're using robotics in this facility.
+- [52:53.440] They're doing things that frankly were not
+- [52:55.610] even possible 20 years ago and they're doing them
+- [52:58.760] in order to build a great American future.
+- [53:01.670] We are practically a stone's throw away
+- [53:03.880] from a beautiful new bridge.
+- [53:05.640] A bridge that is being built with American-made
+- [53:09.090] steel from this manufacturing facility
+- [53:12.660] because we have great American craftsmen
+- [53:15.900] right here in Wisconsin and we ought to fight for them.
+- [53:28.320] And I know the people out in the crowd,
+- [53:30.000] the people standing behind me,
+- [53:31.740] there are stories of proud work being done every single day.
+- [53:35.960] There are stories of a good wage being earned
+- [53:38.420] that allows these folks to support their families.
+- [53:41.550] There's stories of products that exist in the United States
+- [53:45.930] of America that we need, that we absolutely rely on,
+- [53:50.240] that are made right here with American workers
+- [53:53.180] and American hands.
+- [53:54.750] That makes me so proud to be your Vice President,
+- [53:57.770] to get to stand here,
+- [53:59.010] to get to see a little bit of it,
+- [54:00.240] to take a little tour,
+- [54:01.490] to recognize that the American future
+- [54:05.750] that our children deserve,
+- [54:07.290] that the American future that our children rely on
+- [54:10.520] is going to be built by and for American workers
+- [54:14.550] and you guys are the proudest American workers
+- [54:17.300] in that tradition. So God bless you and thank you.
+- [54:26.870] And these guys, they're proud of what they do.
+- [54:29.240] They're doing something amazing.
+- [54:30.600] They're doing something that can't be done
+- [54:32.020] almost anywhere else in the world.
+- [54:34.090] They're earning a good wage in the process.
+- [54:36.980] This is what makes America great.
+- [54:39.720] And I love my Papaw.
+- [54:40.990] I said he was a union welder for 42 years.
+- [54:43.490] He was a proud man. He was a hard-working man.
+- [54:46.250] But my Papaw, before he died, he used to tell me that,
+- [54:49.680] you know, he didn't know that American manufacturing
+- [54:52.310] was going to be as strong in the future
+- [54:54.040] as it was in his time. And again, I love my Papaw,
+- [54:57.100] but I think that's the wrong attitude.
+- [54:58.950] American manufacturing
+- [55:00.780] must be as strong in the future
+- [55:03.150] or America's future will not exist without it.
+- [55:06.160] Do you think that our kids are going to have a future
+- [55:08.610] if we rely on foreign countries to make everything that we need?
+- [55:12.560] Do you think we're going to have a future if the pharmaceuticals
+- [55:15.440] that we put into the bodies of our children
+- [55:17.550] are made by a foreign adversary? Do you think we have a future
+- [55:20.880] if we can't even drive over a bridge
+- [55:22.990] without asking permission from some foreign country?
+- [55:25.920] That is no way to build a future.
+- [55:27.680] The way to build a future is with American workers
+- [55:30.880] and I'm proud that in Wisconsin that's exactly what we're doing.
+- [55:33.340] So, God bless you all.
+- [55:42.760] And I want to say just one final thing
+- [55:44.940] and I'm going to end this on a somber note.
+- [55:46.740] We've had some fun here, but I'm very mindful of the fact
+- [55:50.270] that we're just a couple of minutes
+- [55:52.560] away from the Minnesota border.
+- [55:54.520] And of course we have this terrible, terrible school
+- [55:56.590] shooting yesterday in Minneapolis.
+- [56:00.760] And I imagine like a lot of you all,
+- [56:03.110] it hits pretty close to home, very personally,
+- [56:05.560] because though you may not know anybody who's affected by it,
+- [56:07.940] I think a lot of us know people who have been taking their kids
+- [56:11.490] in the last couple of weeks to their first day of school.
+- [56:14.340] And in fact, my son, my little five-year-old,
+- [56:16.680] I love him so much
+- [56:17.950] and if you're watching, buddy, daddy loves you.
+- [56:21.680] He started his first day of kindergarten just two days ago.
+- [56:25.310] And again, we're very proud of him
+- [56:27.380] and we love him very much,
+- [56:28.620] but I know that there are a lot of families
+- [56:30.730] who were in their first week of school
+- [56:32.600] just outside of Minneapolis and that was pierced,
+- [56:36.550] that incredibly pure and wonderful moment
+- [56:39.360] was pierced by a very vicious and a very evil person.
+- [56:43.620] And so I just want to say a couple of things.
+- [56:45.810] The first thing that I want to say is,
+- [56:48.720] remember, we're an American family
+- [56:51.660] and the people who lost children,
+- [56:55.050] they are your fellow Americans.
+- [56:57.100] And those children who lost their lives
+- [56:59.120] and lost their future, they are your fellow citizens.
+- [57:03.540] So think about them and say a prayer for them.
+- [57:06.500] And remember that they are as much us
+- [57:09.610] as our neighbors right here
+- [57:11.690] in this wonderful community in Wisconsin.
+- [57:14.050] And the thing that they need most of all is they need
+- [57:17.130] their fellow Americans to reach out and care about them
+- [57:19.540] and I know that every single one of us is going to do that.
+- [57:22.180] That's the first thing that I wanted to say.
+- [57:24.350] The second thing that I wanted to say is,
+- [57:27.550] when I first heard the news,
+- [57:29.120] I was worried that the death toll
+- [57:31.470] was going to be higher
+- [57:32.720] based on what the media reports were saying.
+- [57:34.870] And right now, there are still a couple of kids,
+- [57:38.530] some of whom in very critical condition,
+- [57:40.840] who may yet survive this.
+- [57:44.280] And I think they would appreciate your prayers
+- [57:46.120] and their families would appreciate your prayers as well.
+- [57:48.170] So if you are the praying type,
+- [57:49.940] I'd ask you to say a prayer tonight
+- [57:52.100] for those kids that are still recovering,
+- [57:54.420] that they may recover fully and go on to live a full life,
+- [57:57.820] the life that was deprived from a couple of their classmates.
+- [58:01.180] And, you know, the stories,
+- [58:03.110] I'd encourage you to read some of the stories
+- [58:05.530] about what happened yesterday, about the violence,
+- [58:08.330] about the fact that you had ten-year-old kids
+- [58:10.500] laying over their friends to look after them
+- [58:13.240] and to try to protect them.
+- [58:14.990] And while yesterday was an unspeakable tragedy,
+- [58:18.710] I'd ask you to remember that we also saw the very best
+- [58:21.710] of the United States of America.
+- [58:23.250] And to every person who protected a friend,
+- [58:26.740] to every first responder,
+- [58:28.100] to every paramedic who made it so the death toll wasn't higher,
+- [58:31.420] we love you, we're proud of you,
+- [58:33.600] and we'll never forget the great American spirit
+- [58:36.190] that you showed yesterday.
+- [58:47.140] And on that note, there's going to be time for politics
+- [58:53.300] and there's going to be a time to figure out
+- [58:55.610] how to prevent this stuff from happening,
+- [58:57.830] how to make these shootings less common in our country.
+- [59:01.030] And I'm not going to speak about that now,
+- [59:02.610] but I would encourage you, the First Lady, Melania,
+- [59:05.520] who really has a very big heart for children,
+- [59:08.480] obviously as a mother herself,
+- [59:10.260] she put out a statement earlier today
+- [59:12.280] that I think is really worth taking a look at,
+- [59:14.250] because this happens too much in our country.
+- [59:16.800] And if you look, we really do have,
+- [59:18.470] I think, a mental health crisis in the United States of America.
+- [59:21.720] We take way more psychiatric medication
+- [59:23.900] than any other nation on earth, and I think it's time for us
+- [59:26.360] to start asking some very hard questions
+- [59:28.990] about the root causes of this violence.
+- [59:31.180] And I'm going to be part of that,
+- [59:32.460] and the First Lady and the President
+- [59:33.720] are going to be part of that,
+- [59:34.920] but that's going to be an American conversation
+- [59:36.710] that we're going to have together.
+- [59:38.200] But before we have that conversation,
+- [59:39.630] if you are the praying type,
+- [59:40.840] I would ask you to join me in prayer.
+- [59:42.080] I'm just going to say a prayer for the two little kids
+- [59:44.450] who lost their lives yesterday.
+- [59:45.960] And this is a prayer we say a lot in my church,
+- [59:48.450] and I've always found it very meaningful.
+- [59:49.910] It's very short, but eternal rest grant unto them,
+- [59:54.480] O Lord, and let perpetual light shine upon them.
+- [59:59.750] May the souls of all the faithful departed,
+- [01:00:02.190] through the mercy of God, rest in peace.
+- [01:00:04.980] Amen.
+- [01:00:06.660] Thank you all.
+- [01:00:07.950] Now with that, I will take some questions from the reporters,
+- [01:00:10.640] but again, thank you all for having me,
+- [01:00:12.450] and thank you all for indulging that moment.
+- [01:00:14.870] I think it's important for our fellow Americans
+- [01:00:16.630] to know that we're reaching our arms around them,
+- [01:00:18.220] and we love them,
+- [01:00:19.440] and you guys gave me the opportunity to do that,
+- [01:00:20.950] and so I'm grateful for it. God bless you. Questions?
+- [01:00:30.720] The Press: I'm curious.
+- [01:00:31.960] A lot of investments in the steel industry in this nation,
+- [01:00:34.450] especially the signing of the Nippon and U.S.
+- [01:00:37.370] Steel merger in Pennsylvania, a lot of those investments
+- [01:00:40.560] seem to be going to the Rust Belt
+- [01:00:42.750] and major corporations there.
+- [01:00:44.590] Can you point to something in your policy
+- [01:00:46.220] that will help small businesses like this and others
+- [01:00:48.740] that are maybe outside of the conventional areas
+- [01:00:51.110] for the Rust Belt?
+- [01:00:52.630] The Vice President: Yeah, so first of all,
+- [01:00:54.600] by ensuring that facilities like this
+- [01:00:57.800] have access to great American-made steel,
+- [01:01:00.200] we make sure they're never going to get cut off,
+- [01:01:02.530] and I talked to the CEO about this earlier.
+- [01:01:04.740] We make sure that they're always going to have the supplies
+- [01:01:06.710] necessary to do the business that they need to do,
+- [01:01:09.250] and that's a very important thing,
+- [01:01:10.450] because as we learned during the COVID pandemic,
+- [01:01:13.060] when you rely on foreign countries
+- [01:01:14.730] to make your critical supply,
+- [01:01:16.500] sometimes those foreign countries don't work.
+- [01:01:18.370] You can't depend on them.
+- [01:01:19.610] We can depend on our fellow Americans,
+- [01:01:21.400] and that's why it's so important,
+- [01:01:23.110] big corporation and small,
+- [01:01:24.510] to bring this stuff back to the United States,
+- [01:01:26.380] but you asked what is going to help this small business.
+- [01:01:29.380] Well, first of all, the workers here,
+- [01:01:31.300] when they work an overtime shift,
+- [01:01:32.820] are not going to have to pay taxes
+- [01:01:34.770] on those overtime hours. That's going to help the workers
+- [01:01:38.370] and consequently the business right here in this facility,
+- [01:01:42.320] but also you heard Secretary Burgum
+- [01:01:43.880] talk about this earlier.
+- [01:01:45.260] When a plant like this makes a big investment,
+- [01:01:48.650] we want to make that pay in the tax code.
+- [01:01:50.480] We want to penalize them for investing in American workers
+- [01:01:53.990] and American production,
+- [01:01:55.420] and the working families tax cut, you know what it does?
+- [01:01:58.670] It completely accelerates depreciation,
+- [01:02:01.340] so that when they make a big investment,
+- [01:02:02.960] when they buy a big amount,
+- [01:02:04.200] when they buy a big new facility,
+- [01:02:06.070] or they buy a big new piece of equipment,
+- [01:02:08.070] they can immediately benefit from that in the tax code,
+- [01:02:11.290] and it's such a reversal from what we've had
+- [01:02:13.160] in this country for 40, 50 years,
+- [01:02:15.130] where we would penalize companies in the tax code
+- [01:02:17.950] for building and making in the United States of America.
+- [01:02:20.330] Under President Trump's leadership,
+- [01:02:21.910] we're rewarding companies in the tax code for building
+- [01:02:24.760] and making right here at home.
+- [01:02:27.590] Next question.
+- [01:02:32.960] The Press: Good afternoon.
+- [01:02:36.210] As you know, the President this week
+- [01:02:37.840] signed an executive order around the National Guard,
+- [01:02:40.980] and so I'm curious
+- [01:02:42.270] if you can give us some more detail on that,
+- [01:02:44.780] wanting the National Guard members
+- [01:02:46.350] to be available for rapid mobilization
+- [01:02:49.220] and establish a quick reaction force.
+- [01:02:52.900] My question would be, would that quick reaction force
+- [01:02:54.960] be deployed to help with day-to-day police work,
+- [01:02:58.380] and would a governor, like the governor of Wisconsin,
+- [01:03:01.860] have the option to say no to any deployment nationwide?
+- [01:03:06.750] The Vice President: Let me say a few things about this.
+- [01:03:08.310] First of all, the principle at stake here is very simple.
+- [01:03:11.700] Americans ought to feel safe on American streets.
+- [01:03:22.410] How many of us have crossed to the other side of the street
+- [01:03:25.070] because there's a person on the street corner
+- [01:03:27.230] yelling and screaming at our kids or at our family?
+- [01:03:29.590] How many people have felt scared to walk down an American,
+- [01:03:33.620] the street of an American neighborhood in daylight
+- [01:03:35.740] or at night
+- [01:03:36.980] because those streets are considered no-go zones?
+- [01:03:41.160] How ridiculous is it that we ever let there
+- [01:03:43.940] be no-go zones on streets paid for by American taxpayers?
+- [01:03:48.100] You bought those streets.
+- [01:03:49.430] You ought to be able to enjoy them as American citizens.
+- [01:03:52.570] It's very, very simple.
+- [01:03:54.000] So that is the principle at stake here.
+- [01:03:55.680] And in Washington DC, let's step back a little bit,
+- [01:03:58.620] Washington DC got to a point
+- [01:04:00.610] where it was having a murder more than every other day.
+- [01:04:04.090] The national capital of the most powerful nation
+- [01:04:06.730] in the history of the world had a murder every other day,
+- [01:04:10.710] carjackings, armed robberies
+- [01:04:12.640] that rival literal third-world countries,
+- [01:04:15.080] and the president of the United States said,
+- [01:04:16.720] “this is America's city and enough is enough”
+- [01:04:19.340] and he deployed the National Guard to fix it.
+- [01:04:21.470] Now that was the right decision at the time,
+- [01:04:24.330] but I don't know how anybody can look at the results
+- [01:04:26.240] over the last 14 days and say anything other
+- [01:04:28.970] than thank God Donald Trump did what he did.
+- [01:04:31.190] Because armed robberies, carjackings,
+- [01:04:33.490] murders are down between 40 to 90 percent.
+- [01:04:37.450] Even the very Democratic mayor of DC said yesterday
+- [01:04:41.160] that she was grateful for the additional police presence
+- [01:04:43.770] because it made it possible for people, Americans,
+- [01:04:46.740] black, white, rich, and poor,
+- [01:04:49.950] to enjoy the nation's capital again.
+- [01:04:53.120] And that's what I want.
+- [01:04:54.500] All of you, Washington DC is your town.
+- [01:04:57.410] You literally built it with your tax dollars.
+- [01:04:59.830] You should be able to come
+- [01:05:01.160] and go to one of these beautiful museums
+- [01:05:03.020] or see one of these incredible monuments
+- [01:05:04.910] without fear that you're going to get mugged.
+- [01:05:06.750] And that's what we have changed in just a short period of time.
+- [01:05:09.450] You asked the Wisconsin-specific question.
+- [01:05:12.040] What the president has said is that very simply
+- [01:05:15.200] we want governors and mayors to ask for the help.
+- [01:05:19.760] The president of the United States
+- [01:05:21.080] is not going out there forcing this on anybody,
+- [01:05:24.040] though we do think that we have the legal
+- [01:05:25.760] right to clean up America's streets if we want to.
+- [01:05:28.260] But what the president has said is very simply is,
+- [01:05:30.220] why don't you invite us in?
+- [01:05:31.850] Is Milwaukee a super safe city right now?
+- [01:05:36.000] It's had some crime problems. It's a beautiful city.
+- [01:05:38.910] There are a lot of beautiful, incredible, hard-working people
+- [01:05:41.360] who live there, but let's be honest,
+- [01:05:42.720] Milwaukee has had some crime problems.
+- [01:05:44.770] So have other parts of our community.
+- [01:05:46.200] Chicago, I know we're not too far from Chicago,
+- [01:05:48.620] Chicago's had a lot of crime problems.
+- [01:05:50.650] Why is it that you have mayors and governors
+- [01:05:53.580] who are angrier about Donald Trump offering
+- [01:05:56.310] to help them than they are about the fact
+- [01:05:58.340] that their own residents
+- [01:05:59.590] are being carjacked and murdered in the streets?
+- [01:06:01.910] It doesn't make an ounce of sense.
+- [01:06:11.820] And the last point that I'll make about this, sir,
+- [01:06:14.050] is, and I actually, I'm going to violate the advice
+- [01:06:17.460] I gave to the president of the United States yesterday,
+- [01:06:19.260] because we were having lunch yesterday
+- [01:06:21.400] and the president said,
+- [01:06:22.790] “J.D., I don't know how I did it.
+- [01:06:24.960] I have actually got the Democrats
+- [01:06:26.370] to come out in defense of crime.”
+- [01:06:28.320] And it is the craziest,
+- [01:06:29.840] if Donald Trump came out tomorrow
+- [01:06:31.270] and said he really likes puppies,
+- [01:06:33.020] you would have AOC come out and say puppies are terrible.
+- [01:06:36.320] If Donald Trump, who has reduced murders,
+- [01:06:40.520] carjackings, and armed robberies in 14 days in Washington, D.C.,
+- [01:06:44.400] and now you have National Democrats coming out and saying,
+- [01:06:47.250] oh, we love murders and carjackings and armed robberies,
+- [01:06:50.410] why won't Democrats just use some common sense.
+- [01:06:53.660] We're going to disagree about stuff from time to time.
+- [01:06:55.870] I'm sure Democrats want higher taxes and I want lower taxes.
+- [01:06:59.050] We may disagree about some foreign policy issues,
+- [01:07:01.400] but on this basic principle that murdering people,
+- [01:07:05.170] armed robberies, carjackings are bad,
+- [01:07:08.080] wouldn't it be nice if the Democrats
+- [01:07:09.540] just worked a little across the aisle for once?
+- [01:07:13.810] Next question.
+- [01:07:18.210] The Press: Thank you, Mr. Vice President.
+- [01:07:19.420] Matt Smith, WISN-TV in Milwaukee.
+- [01:07:22.210] To what you just said, Milwaukee's mayor the other day
+- [01:07:24.650] said absolutely not to any talk of National Guard troops.
+- [01:07:28.610] Would the administration consider ever coming into a city
+- [01:07:31.080] like Milwaukee?
+- [01:07:32.290] The Vice President: Well, again,
+- [01:07:33.510] we want to be invited into Milwaukee.
+- [01:07:35.270] We want to help people.
+- [01:07:36.500] We want to help our fellow citizens.
+- [01:07:37.940] And we think that if you look at the crime rates,
+- [01:07:39.720] if you look at the murders in Milwaukee,
+- [01:07:41.640] if you look at certain neighborhoods
+- [01:07:43.350] where people are afraid to go out
+- [01:07:45.570] even in the middle of the day,
+- [01:07:47.220] we would love to come and help the people of Milwaukee.
+- [01:07:49.920] But the President of the United States
+- [01:07:51.240] has said he wants to be asked.
+- [01:07:53.550] And that has been his consistent line
+- [01:07:55.430] from the very beginning that we have an incredible
+- [01:07:58.380] law enforcement capability in the United States.
+- [01:08:00.720] You know what's crazy about crime
+- [01:08:02.400] is most of the violent crime is committed
+- [01:08:04.980] by a very small number of people.
+- [01:08:07.260] When we talk about a violent crime problem,
+- [01:08:09.580] we're not talking about thousands upon
+- [01:08:11.220] thousands of people in Milwaukee.
+- [01:08:12.850] We're talking about a few hundred people
+- [01:08:14.460] who probably commit 90 percent of the violent crime.
+- [01:08:17.440] We would love to come in
+- [01:08:19.150] and help lock up those violent criminals.
+- [01:08:21.330] I hope the mayor of Milwaukee gets some common sense
+- [01:08:23.630] and actually fights for her residents for a change
+- [01:08:26.230] or his residents for a change
+- [01:08:27.690] because we would love to actually help cut down
+- [01:08:30.580] on the crime in this community. Thank you.
+- [01:08:38.770] The Press: Good afternoon.
+- [01:08:40.050] Anthony DeBruzzi, Spectrum News, Wisconsin.
+- [01:08:42.310] Sticking with Milwaukee, but a little different.
+- [01:08:44.520] Yesterday, Governor Tony Evers requested a disaster
+- [01:08:47.020] declaration from President Trump after the historic flooding
+- [01:08:50.040] that we've seen in the Milwaukee area.
+- [01:08:52.020] So can Wisconsinites count on the administration
+- [01:08:54.710] for financial help through this?
+- [01:08:56.510] The Vice President: So obviously, look,
+- [01:08:57.730] we want to help people.
+- [01:08:58.980] We want to help our fellow citizens.
+- [01:09:00.440] And I know that Wisconsin has suffered some serious problems.
+- [01:09:03.090] I have not talked to the President of the United States.
+- [01:09:04.890] I'm not even sure that he's aware
+- [01:09:06.800] yet that the governor has issued that disaster declaration.
+- [01:09:09.620] But I will take that back to Washington, D.C.
+- [01:09:11.300] and make sure we respond to it promptly.
+- [01:09:13.250] Thank you, sir.
+- [01:09:18.720] The Press: Hi, Mr. Vice President.
+- [01:09:20.000] Daniel Gomez, WEAU in Eau Claire, Wisconsin.
+- [01:09:23.350] So I see that you've been touring around the country
+- [01:09:25.810] visiting congressional battleground districts.
+- [01:09:29.740] No different here. Wisconsin's third.
+- [01:09:31.920] You're here also garnering up
+- [01:09:33.760] some support for Derek Van Orden.
+- [01:09:35.560] So my question here is, can we expect you again next year
+- [01:09:38.390] when we actually get to the midterm elections?
+- [01:09:40.450] And will you also address other issues
+- [01:09:42.400] in Wisconsin's third district,
+- [01:09:44.180] which include agriculture, child care, health care
+- [01:09:47.570] and all these other things that impact rural, hardworking,
+- [01:09:50.340] working class Wisconsinites here?
+- [01:09:51.740] The Vice President: Of course.
+- [01:09:53.010] Well, do you all want to have me back next year?
+- [01:09:54.640] Is that OK? All right.
+- [01:10:01.400] So long as the people of the third district will have me,
+- [01:10:03.270] yes, I will keep on coming back
+- [01:10:04.590] and keep on talking about the issues that matter.
+- [01:10:06.660] You asked about agriculture,
+- [01:10:07.980] I think rural health care and also child care.
+- [01:10:10.020] Look, if you look at the Working Families Tax Cut,
+- [01:10:12.650] there's a lot there for agriculture. There's a lot.
+- [01:10:15.100] For example, if you buy a new tractor,
+- [01:10:17.420] you buy a new piece of farm equipment,
+- [01:10:20.030] wouldn't it be nice if you were rewarded in the tax code
+- [01:10:22.240] instead of penalized in the tax code?
+- [01:10:23.580] Well, now thanks to the Working Families Tax
+- [01:10:25.510] Cut, you are going to be rewarded,
+- [01:10:26.920] which is why the farmers were really big
+- [01:10:29.160] and supportive and behind the legislation.
+- [01:10:31.320] We had such great support
+- [01:10:32.710] from our farming community in Wisconsin
+- [01:10:34.720] and all over the country for this legislation,
+- [01:10:36.340] I think in part because it does a lot for our farmers.
+- [01:10:38.920] You asked about health care.
+- [01:10:40.230] Look, rural health care in this country is in bad shape.
+- [01:10:43.500] It was left in bad shape by the previous administration.
+- [01:10:46.460] And this legislation, the Working Families Tax Cut,
+- [01:10:49.350] has got tens of billions of dollars
+- [01:10:52.210] to shore up our rural health care system.
+- [01:10:54.380] It is so unusual to hear Democrats
+- [01:10:56.540] say this is going to be bad for health care
+- [01:10:58.690] when we're spending billions of dollars to try to fix
+- [01:11:01.580] some of the rural health care problems in our country.
+- [01:11:03.380] And by the way, has anybody been awake for the last four years?
+- [01:11:06.660] Any of these National Democrats?
+- [01:11:08.280] How was the rural health care system doing under Joe Biden
+- [01:11:11.550] when you had hospitals and clinics
+- [01:11:13.360] closing at a record and alarming rate?
+- [01:11:16.230] We're trying to fix that.
+- [01:11:17.580] We want people to be able to access the health care,
+- [01:11:19.980] but we want American citizens to be able to access health care.
+- [01:11:24.560] And that's what makes us different
+- [01:11:25.880] from the National Democrat Party.
+- [01:11:33.320] And I'll take maybe a couple more questions,
+- [01:11:35.230] then we're going to hit the road.
+- [01:11:36.530] The Press: Hi, thank you so much for taking questions for us.
+- [01:11:38.290] My name is Laura Schulte.
+- [01:11:39.570] I'm a reporter with the Milwaukee Journal Sentinel.
+- [01:11:42.010] You've talked a little bit about the disaster declaration,
+- [01:11:45.020] but I'm wondering how long will Milwaukee have to wait
+- [01:11:48.270] for a disaster declaration from President Trump?
+- [01:11:50.610] The Vice President: Well, if I understood
+- [01:11:51.920] the question correctly,
+- [01:11:53.170] and this is the first time that I'm hearing about it,
+- [01:11:55.020] we got the request from the governor yesterday.
+- [01:11:56.920] Is that right? Okay.
+- [01:11:59.120] So, I mean, it's very possible
+- [01:12:02.000] that that request has not even made it to the President's desk.
+- [01:12:04.400] I mean, these things sometimes take more than 12 hours
+- [01:12:06.700] before they get to the President's desk.
+- [01:12:08.130] So what I can promise you is now that I'm aware of it,
+- [01:12:10.910] we're going to take a look at it.
+- [01:12:12.200] We're going to make sure that it gets the review
+- [01:12:13.780] that it requires. And look, we love Wisconsin.
+- [01:12:17.200] We love all of our American citizens.
+- [01:12:19.770] People are struggling. We recognize that,
+- [01:12:21.670] and we want to figure out ways to help them. Thank you.
+- [01:12:23.750] The Press: Thank you.
+- [01:12:30.220] Mr. Vice President, Adam Roberts, NewsRadio WTMJ,
+- [01:12:33.290] also out of Milwaukee.
+- [01:12:34.490] A follow-up to that question as well.
+- [01:12:36.780] I know that you still have time to make this decision,
+- [01:12:40.400] but can you explain why President Trump or yourself
+- [01:12:42.830] did not tour the southeast Wisconsin area like
+- [01:12:45.900] was done in Texas after their historic flooding?
+- [01:12:48.760] The Vice President: Yeah, I can give you a very simple answer
+- [01:12:51.350] to that question is,
+- [01:12:52.760] if you remember the Texas flooding,
+- [01:12:54.520] the President did not show up
+- [01:12:56.460] until he felt like he could provide comfort
+- [01:12:59.530] and aid to some of the grieving families,
+- [01:13:01.940] but not actually be a huge distraction for law enforcement.
+- [01:13:04.860] I mean, look, it is a reality of the world
+- [01:13:06.830] that when the President or the Vice President
+- [01:13:08.370] of the United States show up,
+- [01:13:09.830] there are a lot of Secret Service,
+- [01:13:11.250] there's a lot of local law enforcement.
+- [01:13:13.350] And I remember explicitly being in the Oval Office
+- [01:13:15.440] talking with the President about this.
+- [01:13:16.950] He said, “I really want to go to Texas,
+- [01:13:18.750] and I really want to visit with these grieving families,
+- [01:13:21.820] but we can't do it until the local law enforcement
+- [01:13:24.210] says we can support this
+- [01:13:26.030] without affecting the recovery and other efforts.”
+- [01:13:28.730] So, we would love to visit, we would love to talk to people,
+- [01:13:32.570] but some of this depends on,
+- [01:13:34.750] we talk with local law enforcement,
+- [01:13:36.630] and we don't just want to show up for a photo op,
+- [01:13:38.410] we want to show up and actually help,
+- [01:13:40.100] and that's what the President of the United States is focused on.
+- [01:13:42.340] Thank you, sir.
+- [01:13:43.720] And I'll do one more question before we hit the road.
+- [01:13:47.880] The Press: Jeff Mordock, The Washington Times.
+- [01:13:51.350] So, there are plenty of people,
+- [01:13:52.610] there are scores of people still in jail
+- [01:13:54.820] that have been pardoned under President Biden's auto pens.
+- [01:13:58.670] Do you think they should be released from prison?
+- [01:14:01.720] The Vice President: Well, I think that
+- [01:14:03.220] there's something weird about this auto pen,
+- [01:14:05.270] which is that you have a guy
+- [01:14:06.800] who even some of his own staff members
+- [01:14:08.470] said did not have the mental faculty
+- [01:14:11.630] to be President of the United States, okay?
+- [01:14:13.940] While at the same time,
+- [01:14:15.740] he allegedly signed a bunch of pardons,
+- [01:14:17.860] which we now know were signed by the auto pen,
+- [01:14:19.970] I think it raises a very difficult question
+- [01:14:21.660] about whether those pardons were actually legitimate
+- [01:14:23.500] in the first place.
+- [01:14:24.890] I mean, think about this. How can you sign a pardon,
+- [01:14:29.660] how can you engage in presidential conduct
+- [01:14:31.760] that's binding if your own staff members are saying,
+- [01:14:34.330] “well, this guy wasn't exactly fit to be
+- [01:14:36.680] the President of the United States?”
+- [01:14:37.980] So, look, I'll let the courts figure this out.
+- [01:14:39.880] As the President of the United States has said,
+- [01:14:41.320] President Trump, we always follow the court orders
+- [01:14:43.770] and we always try to work with the courts,
+- [01:14:45.400] but I think the American people,
+- [01:14:46.600] far more than whether this pardon is thrown out
+- [01:14:49.460] or that pardon is thrown out by the court,
+- [01:14:51.330] let's step back and ask ourselves
+- [01:14:53.610] how is it that the American media
+- [01:14:56.310] and senior members of the Democratic Party
+- [01:14:58.220] conspired to hide us from the fact
+- [01:15:03.200] that the President of the United States
+- [01:15:04.730] wasn't fit to do the job?
+- [01:15:06.540] This is about more than politics.
+- [01:15:08.780] This is about more than policy disagreements.
+- [01:15:11.450] This is about if you get a phone call at 3
+- [01:15:14.850] a.m. and there's a national security emergency,
+- [01:15:17.980] does the person who's answering the phone
+- [01:15:20.210] have the mental ability to do the job?
+- [01:15:23.940] And if the answer is no, then all of us,
+- [01:15:26.360] Democrat, Republican, and Independent,
+- [01:15:28.380] have been defrauded, and I think the Biden presidency
+- [01:15:31.070] is a big, fat example of the American media
+- [01:15:34.220] defrauding the American people.
+- [01:15:49.330] So on that note, I just want to thank you all again
+- [01:15:51.250] for having us, and just remember,
+- [01:15:53.400] we are every single day in Washington, D.C.,
+- [01:15:56.540] we are fighting for you.
+- [01:15:58.110] We're fighting for your jobs, we're fighting for your wages,
+- [01:16:00.780] we're fighting for low taxes for you and your families,
+- [01:16:03.660] we're fighting for rural health care.
+- [01:16:05.370] We believe that the most important thing
+- [01:16:08.240] the President of the United States can do
+- [01:16:10.530] is put the interests of Americans first.
+- [01:16:13.790] That is what we have done for seven months,
+- [01:16:15.620] and we'll keep on doing it for the next three and a half years.
+- [01:16:18.030] God bless you all, thank you for having me.
+- [01:16:20.110] ♪ (Country Music Playing) ♪

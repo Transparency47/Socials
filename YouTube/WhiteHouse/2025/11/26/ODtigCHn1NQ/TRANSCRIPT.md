@@ -1,0 +1,286 @@
+<!-- source: https://www.youtube.com/watch?v=ODtigCHn1NQ -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: ODtigCHn1NQ -->
+<!-- date_published: 2025-11-26T00:40:29+00:00 -->
+<!-- date_accessed: 2026-06-02T01:09:39.981907+00:00 -->
+
+# Transcript: President Trump Gaggles with Press on Air Force One, Nov. 25, 2025
+
+- [00:00.050] The Press: Hello, Mr. President.
+- [00:01.320] The President: Okay. Hello, everybody. How are you?
+- [00:03.460] (inaudible) know you.
+- [00:05.800] What would you like to know today?
+- [00:07.370] The Press: Could you start off by telling us the latest
+- [00:10.160] with Russia and Ukraine?
+- [00:12.430] Are you expecting Zelensky to come visit you?
+- [00:14.120] The President: We're having good --
+- [00:15.410] I don't know. He'd like to come
+- [00:16.870] but I think we should get a deal done first.
+- [00:19.660] We're having good talks.
+- [00:22.320] Started with Russia. Having some talks with Russia.
+- [00:26.750] Ukraine is doing well, I think they're pretty happy about it.
+- [00:29.660] They'd like to see it end.
+- [00:31.350] And we won't know for a little while but we'll --
+- [00:33.960] we're making progress. We settled eight wars,
+- [00:38.830] and I thought this would be one of the easier ones
+- [00:40.870] because of my relationship with President Putin.
+- [00:43.960] But this is probably one of the more difficult ones.
+- [00:46.520] There's a lot of hatred.
+- [00:48.050] The Press: (inaudible) could you tell us a bit more?
+- [00:54.550] The President: Well it's just standard things but people
+- [00:57.380] are starting to realize it's a good deal for both parties if --
+- [00:59.990] they got to stop the war. They're losing a lot of people,
+- [01:02.610] a lot of soldiers, mostly soldiers.
+- [01:04.990] The Press: That 28 day plan that was originally leaked.
+- [01:07.580] There was portions of that and said that
+- [01:08.970] (inaudible).
+- [01:10.170] The President: That was an original proposal
+- [01:11.920] and then from there we went back and forth.
+- [01:14.880] The Press: So when it comes to (inaudible)
+- [01:16.660] land to Russia, is that still one that's being
+- [01:18.560] (inaudible) has that changed?
+- [01:19.950] The President: Well, they're talking about going land
+- [01:21.570] both ways and trying to clean up a border.
+- [01:24.610] You know, you can't go through the middle of a house,
+- [01:26.380] you can't go through the middle of a highway.
+- [01:29.020] So they're trying to work something.
+- [01:31.110] It's a complicated process. It doesn't go that quickly.
+- [01:33.770] The Press: What about the security guarantees and --
+- [01:38.710] The President: We're working that out with Europe.
+- [01:40.720] Europe will be largely involved in that.
+- [01:42.530] We're working that out with Europe.
+- [01:44.410] Europe really wants to see it end if possible.
+- [01:47.530] The Press: There were a lot of Republicans
+- [01:48.790] who felt that the first plan, the first
+- [01:50.100] (inaudible)
+- [01:51.300] point plan was too favorable to Russia? Have you changed that?
+- [01:54.510] The President: Well, that was just a map.
+- [01:56.000] All that was is a map.
+- [01:57.220] That was not a plan, it was a concept.
+- [02:00.520] And from there they're taking each one of the 28 points,
+- [02:04.320] and then you get down to 22 points.
+- [02:06.100] A lot of them were solved.
+- [02:07.990] And actually very favorably solved.
+- [02:09.680] So we'll see how -- we'll see what happens.
+- [02:11.500] The Press: Do you think do you think that Russia --
+- [02:13.150] that Ukraine was being asked
+- [02:14.750] to give too much land back to Russia?
+- [02:16.600] I know at one point you said
+- [02:17.960] they shouldn't have to get any back.
+- [02:19.220] The President: It's really up -- Look, the way it's going,
+- [02:22.480] if you look, it's just moving in one direction.
+- [02:25.520] So eventually that's land that over the next couple of months
+- [02:28.860] might be gotten by Russia anyway.
+- [02:31.830] So do you want to fight and lose another fifty,
+- [02:34.500] sixty thousand people?
+- [02:36.630] Or do you want to do something now?
+- [02:38.850] In some cases the land is going in the other direction.
+- [02:41.430] So they're negotiating, they're trying to get it done.
+- [02:45.780] You want to have a border, you can't have a border
+- [02:47.540] that goes through a highway
+- [02:49.350] or a border that goes through the middle of a town,
+- [02:52.080] so that doesn't work.
+- [02:53.730] So it's a long -- it's a long, complicated process.
+- [02:57.540] Very sad because so many people have been killed.
+- [02:59.930] The Press: What's the next step?
+- [03:01.300] The President: They're going to keep talking,
+- [03:02.560] they're talking to Russia now.
+- [03:04.470] Steve Witkoff is going over, maybe with Jared,
+- [03:06.960] I'm not sure about Jared going,
+- [03:09.060] but he's involved in the process, smart guy,
+- [03:11.350] and they're going to be meeting with President Putin,
+- [03:15.450] I believe next week in Moscow.
+- [03:16.720] The Press: Next week in Moscow?
+- [03:17.960] The President: I think so, yes.
+- [03:19.250] The Press: What kind of concessions are the Russians
+- [03:21.420] going to have to make?
+- [03:23.000] The President: Well, they're making concessions.
+- [03:24.280] They're big concession is they stop fighting
+- [03:26.830] and they don't take any more land.
+- [03:28.910] Again, it's a war that would have never happened
+- [03:30.770] if I was president.
+- [03:32.000] This was not anything that was going to happen.
+- [03:34.640] This happened because of stupidity.
+- [03:37.440] It's too bad.
+- [03:38.710] The Press: Mr. President, (inaudible)
+- [03:39.920] is going to Russia next week,
+- [03:42.550] does that mean that Thanksgiving deadline
+- [03:44.340] doesn't stand anymore for Ukraine
+- [03:45.560] (inaudible)?
+- [03:46.790] The President: We're going to see what happens.
+- [03:48.020] They set up a date and the date is going to be
+- [03:50.060] sometime in the very near future.
+- [03:52.310] The Press: (inaudible) deadline?
+- [03:53.650] The President: I don't have a deadline.
+- [03:54.870] I just -- you know what the deadline for me is?
+- [03:57.370] When it's over.
+- [03:59.370] And I think everybody's tired of fighting at this moment.
+- [04:01.740] They're losing -- they're losing too many people.
+- [04:04.370] The Press: Have you heard that audio that Bloomberg
+- [04:07.130] has of Witkoff coaching the Russians
+- [04:10.190] on how to appeal to you?
+- [04:12.090] The President: Well I haven't heard it.
+- [04:13.390] No, but that's a standard thing.
+- [04:15.150] Look, because he's got to sell this to Ukraine.
+- [04:17.590] He's got to sell Ukraine to Russia.
+- [04:19.270] That's what he -- that's what a deal maker does.
+- [04:21.900] He's got to say, look, they want this,
+- [04:24.060] you've got to convince them of this.
+- [04:25.660] You know, that's a very standard form of negotiation.
+- [04:28.970] I haven't heard it, but I heard it was standard negotiation.
+- [04:33.110] And I would imagine he's saying the same thing to Ukraine.
+- [04:37.040] Because each party has to give and take.
+- [04:39.630] The Press: So you don't worry that he's too pro-Russian.
+- [04:43.420] The President: No, I think look, this war could go on for years
+- [04:47.860] and Russia's got a lot more people.
+- [04:51.140] A lot more soldiers, you know.
+- [04:53.160] So I think if Ukraine can make a deal, it's a good thing.
+- [04:56.980] I think it's great for both.
+- [04:58.330] Frankly I think it's great for both.
+- [05:00.760] But Ukraine's got a, you know, a much smaller --
+- [05:03.750] it's a much smaller group of people.
+- [05:06.090] And they've lost a lot of people,
+- [05:07.560] Russia's lost a lot of people,
+- [05:09.110] but Russia has a much bigger pool of people.
+- [05:12.110] The Press: Mr. President,
+- [05:13.500] are you planning to unveil a healthcare plan anytime soon
+- [05:15.490] and what does (inaudible)?
+- [05:16.700] The President: Well we're looking
+- [05:17.970] at different alternatives. I mean I like my plan the best.
+- [05:21.190] Don't give any money to the insurance companies,
+- [05:23.330] give it to the people directly,
+- [05:24.760] let 'em go out and buy their own health care plan.
+- [05:27.510] No, we're looking at that if that can work.
+- [05:29.370] We're looking at that. That's sort of taken off.
+- [05:32.180] That's what I like.
+- [05:33.500] Don't give the money to the insurance companies.
+- [05:36.440] They go out, they go out and buy their own plan.
+- [05:39.460] You give the money to the people.
+- [05:40.900] I like it the best.
+- [05:42.250] The Press: Are you planning to extend those subsidies?
+- [05:44.690] The President: I'd rather not.
+- [05:46.620] Somebody said I want to extend them for two years.
+- [05:48.610] I don't want to extend them for two years.
+- [05:50.350] I'd rather not extend them at all.
+- [05:52.970] And maybe if some kind of an extension
+- [05:54.890] maybe necessary to get something else done.
+- [05:58.050] Because the unaffordable care act has been a disaster.
+- [06:01.030] It's a disaster.
+- [06:02.340] And I said it was when it first got put in.
+- [06:05.130] Unfortunately we lost a couple of Republican votes
+- [06:07.600] and the Democrats voted for it. It's a Democrat plan.
+- [06:11.930] And the premiums are going up, and it's the Democrats' fault.
+- [06:16.990] But you know, they are negotiating with me.
+- [06:18.760] It's very interesting. They want to see something happen.
+- [06:20.680] The Press: Who are you talking to on the Democrat side?
+- [06:22.150] The President: I can't tell you who,
+- [06:23.350] but we have a lot of Democrats want this plan to happen.
+- [06:26.390] They would love to see the money go to the people
+- [06:29.100] and the people go out and get their own health care.
+- [06:31.740] And there would be nothing like it.
+- [06:32.990] The Press: Are you planning
+- [06:34.740] to replace Kash Patel as FBI director?
+- [06:36.630] The President: No, he's doing a good job. Kash Patel?
+- [06:39.120] No, he's doing a great job, I think.
+- [06:40.680] The Press: This week we saw those cases against James Comey
+- [06:44.250] and Letitia James tossed out.
+- [06:46.420] Do you still have faith in Lindsay Halligan as --
+- [06:48.880] The President: She's great. I think she's great.
+- [06:50.810] They got out on a technicality,
+- [06:52.400] and you'll see what happens from here on.
+- [06:54.820] But if you look at the actual charges,
+- [06:59.470] I think anybody that looks at it very fairly would say,
+- [07:01.750] boy, are they guilty.
+- [07:03.460] So let's see what happens over the next week.
+- [07:05.350] You know, they the court didn't say you couldn't bring the case,
+- [07:08.400] re-bring the case, or appeal the case.
+- [07:11.120] So they have a lot of options.
+- [07:13.060] They're going to call the shot. I'm not calling the shot.
+- [07:15.660] But Lindsay's a very talented lawyer, actually.
+- [07:18.280] The Press: Mr. President, on Venezuela, sir,
+- [07:20.150] are you planning any talks
+- [07:21.530] (inaudible)?
+- [07:22.730] The President: I might talk to them.
+- [07:24.230] We'll see, but we're discussing that with their --
+- [07:28.900] with the different staffs, but we might talk --
+- [07:31.000] on Venezuela.
+- [07:32.270] The Press: (inaudible)the US this week did, of course,
+- [07:35.730] name him the leader of a foreign terrorist organization,
+- [07:38.260] so why do we want to talk to him?
+- [07:41.170] The President: Say it again.
+- [07:42.390] The Press: Maduro, the U.S. designated him the leader
+- [07:45.680] of this foreign terrorist organization,
+- [07:47.930] why do you want to talk to him if he's the leader of --
+- [07:49.730] The President: If we can save lives,
+- [07:50.940] if we can do things the easy way, that's fine.
+- [07:53.630] And if we have to do it the hard way, that's fine too.
+- [07:55.740] The Press: Mr. President, (inaudible)
+- [07:58.550] The President: I'm not going to tell you what the goal is.
+- [08:00.010] You should probably know what the goal is.
+- [08:01.700] But they've caused a lot of problems.
+- [08:04.820] And they've sent millions of people into our country.
+- [08:08.030] I mean they were probably the biggest abuser
+- [08:11.470] with Tren de Aragua and all the others that they sent in,
+- [08:14.910] the drug dealers and drug lords,
+- [08:17.410] people that they sent in, the jailbirds.
+- [08:19.330] They opened their jails and prisons
+- [08:21.640] and dumped them into the United States
+- [08:23.800] and we're not happy about it.
+- [08:27.640] The Press: (inaudible)
+- [08:29.360] any reaction to Mayor Bowser
+- [08:30.920] announcing she's not running for re election in D.C.?
+- [08:33.030] The President: Well I got along with her very well.
+- [08:34.570] I liked her. We worked together.
+- [08:36.530] D.C. is now a safe community. It's a great community.
+- [08:39.450] You people know it better than I do because you live there.
+- [08:42.720] But D.C. is now safe. The restaurants are booming,
+- [08:46.260] the place is booming, we have no crime.
+- [08:49.080] And we did that all in a period of three or four weeks
+- [08:51.350] and then made it better and better and better.
+- [08:53.930] And now we're setting new records.
+- [08:55.300] I mean literally it's as safe as there
+- [08:57.570] is anywhere in the country now.
+- [08:59.090] And if you go back a year, it was a very unsafe place.
+- [09:02.770] Before I got here, D.C. was a very unsafe --
+- [09:05.990] and it's our capital. We have to make it safe.
+- [09:09.280] We're doing really well in Memphis, Tennessee,
+- [09:12.220] and we're doing well in other places.
+- [09:13.910] The one that is really troubling is what's happening in Chicago.
+- [09:18.970] The crime, it's a -- it's a potentially great city again,
+- [09:22.590] but the governor's totally lost control
+- [09:24.860] as we had the young lady burned.
+- [09:27.030] It's where you had a lot of killings
+- [09:28.330] over the last very short period of time.
+- [09:30.090] Killings.
+- [09:31.300] The governor has totally lost control of the state
+- [09:33.610] and the mayor is grossly incompetent.
+- [09:35.610] The Press: How was your call
+- [09:36.870] with the Japanese Prime Minister?
+- [09:38.170] The President: Great. I had a great talk.
+- [09:39.790] I have a very good relationship with her.
+- [09:42.560] I also had a very good talk with President Xi of China
+- [09:46.770] and I think that part of the world is doing fine.
+- [09:49.120] The Press: Can you tell us about the content of your talks?
+- [09:52.880] The President: Mostly trade.
+- [09:55.620] I spoke to President Xi about a lot of things but trade
+- [09:59.670] and buying our farm products and he said he agreed with me.
+- [10:03.170] He's going to --
+- [10:04.460] I think he's going to very much surprise you on the upside.
+- [10:06.840] I think he's going to -- I asked him
+- [10:08.340] I'd like you to buy it a little faster.
+- [10:10.380] I'd like you to buy more
+- [10:11.610] and he's more or less agreed to do that.
+- [10:14.250] I think we will be pleasantly surprised
+- [10:16.940] by the actions of President Xi.
+- [10:19.440] I have a good relationship, great relationship with him.
+- [10:22.280] I like him, he likes me.
+- [10:23.560] I'm going to be going there in April.
+- [10:25.540] I guess you'll all be going with me,
+- [10:26.970] but I'm going to be going to China in April.
+- [10:29.440] With Japan, likewise, I just came back from Japan,
+- [10:31.890] and we have a great relationship.
+- [10:34.570] The new Prime Minister, myself,
+- [10:36.390] she's very smart, she's very strong,
+- [10:39.240] and she's going to be a great leader.
+- [10:40.820] Thank you very much, everybody.

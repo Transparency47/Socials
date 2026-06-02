@@ -1,0 +1,893 @@
+<!-- source: https://www.youtube.com/watch?v=BuUR3qZgEYY -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: BuUR3qZgEYY -->
+<!-- date_published: 2025-10-28T11:26:56+00:00 -->
+<!-- date_accessed: 2026-06-02T02:42:35.817665+00:00 -->
+
+# Transcript: President Trump Delivers Remarks at a Dinner with Business Leaders
+
+- [00:00.160] Ambassador Glass: Thank you. Wow, this room really is full.
+- [00:03.410] Thank you, good evening, everyone,
+- [00:05.810] and a very warm welcome on this truly very special occasion.
+- [00:10.480] This is, in so many ways,
+- [00:12.040] a celebration of the United States and Japan alliance.
+- [00:15.770] And the power and the potential of that partnership
+- [00:18.920] is sitting in this room. We added up the market cap,
+- [00:22.700] and it's over $8 trillion sitting in the room.
+- [00:26.660] And around these tables, we have the very best
+- [00:28.800] American and Japanese economic might.
+- [00:32.220] And it is your company's innovation,
+- [00:34.510] your expertise and vision harnessed by President Trump
+- [00:38.650] that is taking our remarkable partnership to new heights.
+- [00:42.840] It was an honor to be part of two
+- [00:44.240] of the President's election campaigns.
+- [00:47.570] And it's -- to be able to witness
+- [00:50.360] during those his tireless energy and his love of country.
+- [00:54.480] And it is a privilege of a lifetime to serve him
+- [00:56.910] and the American people at such a significant moment.
+- [01:00.310] Since Inauguration Day this year,
+- [01:02.040] the President has shown once again
+- [01:04.120] that he is the greatest deal-maker,
+- [01:06.750] he is greatest peacemaker,
+- [01:09.150] and he is world's greatest leader.
+- [01:11.730] And it my deep honor to welcome to the stage
+- [01:14.150] the 47th President of the United States,
+- [01:17.160] Donald J. Trump.
+- [01:20.520] (applause)
+- [01:47.500] The President: Well, thank you.
+- [01:49.060] That was a nice -- wasn't that a nice introduction?
+- [01:51.810] Wow, I want to use that elsewhere, on occasion.
+- [01:56.140] And you know what, sit down.
+- [01:57.790] You're just all happy because the stock market
+- [02:00.050] hit an all-time high today, which it did.
+- [02:03.870] You made a lot of money. You're making a lot money.
+- [02:06.840] But I congratulate you.
+- [02:08.170] It really is just an amazing room of people.
+- [02:10.580] Tremendously successful, great businessmen.
+- [02:14.010] Beyond business, really.
+- [02:15.370] Most of you are really beyond business.
+- [02:17.120] So it's an honor to be with you.
+- [02:19.130] We had a long day, a long couple of days.
+- [02:22.700] We were in Malaysia.
+- [02:24.520] We're celebrating a great end to a war that could have happened.
+- [02:29.160] It was a big deal. I won't bore you with the facts,
+- [02:32.580] but we ended eight wars in eight months.
+- [02:36.220] And I think there's another one coming.
+- [02:38.480] I thought the one coming was a lot easier than the Middle East.
+- [02:41.550] We did great with the Middle Eastern.
+- [02:43.310] But with Russia, I thought that was going to be
+- [02:45.910] an easy one, Ukraine, Russia,
+- [02:48.220] because of the relationship with President Putin.
+- [02:50.580] But that didn't work out too well so far, but it will.
+- [02:53.520] We'll get it done, too, but it'll be number nine.
+- [02:57.240] I think that's just about it.
+- [02:59.610] Anyone starts, I think, generally speaking, I'll end it.
+- [03:01.970] Otherwise, a lot of people die, and we don't like that.
+- [03:06.120] But I want to thank our outstanding ambassador,
+- [03:08.660] George Glass, who you just heard from.
+- [03:11.420] Thank you, George.
+- [03:12.880] (applause)
+- [03:15.520] And his wife, Mary. Mary, thank you very much.
+- [03:17.650] Great, great job.
+- [03:18.900] This is such a great group of people that you put together.
+- [03:22.720] I'll be meeting with President Xi the day after tomorrow.
+- [03:26.460] I'm going to a wonderful place
+- [03:29.810] where I think a lot of you may be going.
+- [03:32.200] We're going to be meeting tomorrow
+- [03:35.220] at a very fantastic meeting. Who's going tomorrow?
+- [03:38.400] Is anybody going that I know in this room?
+- [03:40.320] I think, a lot. Tim, are you going?
+- [03:41.830] Maybe? You're not. You mean you came here for this?
+- [03:45.110] And you're just going back just like that, huh?
+- [03:48.340] But we'll be going to South Korea,
+- [03:49.880] and then on the following day,
+- [03:51.800] a meeting with President Xi, as you probably heard.
+- [03:54.820] I'd be surprised if anybody didn't hear.
+- [03:56.450] That's a big meeting,
+- [03:57.650] and I think it's going to work out very well, actually.
+- [03:59.690] I think that's going be great for everybody.
+- [04:03.000] But I also want to recognize people
+- [04:05.100] that have been doing a fantastic job.
+- [04:07.730] Our Cabinet, we have a lot of members here tonight.
+- [04:10.040] Secretary of State Marco Rubio.
+- [04:12.380] Where are you, Marco? Stand up, Marco.
+- [04:14.770] (applause)
+- [04:19.250] Thank you. Great job. Doing a great job.
+- [04:21.460] They're all doing a great job. Secretary of War.
+- [04:25.240] You know, it used to be Secretary of Defense,
+- [04:27.280] Secretary of War, Pete Hegseth.
+- [04:30.540] (applause)
+- [04:31.860] Thank you, Pete.
+- [04:35.890] You know, we used to be Secretary of War.
+- [04:37.880] It used to the Department of War.
+- [04:40.880] And then we became politically correct.
+- [04:43.050] We won World War I, we won World War II,
+- [04:45.980] we went everything in between and everything in front of it.
+- [04:50.330] And then would win wars, but would leave after we won.
+- [04:53.170] We'd go into wars that we shouldn't have been in.
+- [04:54.890] But then we'd just leave.
+- [04:56.160] We'd bomb the hell out of somebody and would leave.
+- [04:58.620] And I said, you know what, what do you think of that idea?
+- [05:01.190] Pete said, I like it.
+- [05:03.430] I said, boy, that didn't take long.
+- [05:05.760] Right, Pete? But he's doing a great job.
+- [05:08.110] He's doing great job on the border, too.
+- [05:09.790] You see what's happening. And we had drugs coming in.
+- [05:13.500] A lot of them coming in by sea.
+- [05:14.820] There aren't too many coming in by sea anymore.
+- [05:17.450] They've decided to take a pass.
+- [05:18.940] I don't know if you've seen what's happening,
+- [05:20.550] but it's really been amazing what's been happening
+- [05:24.250] in terms of our border.
+- [05:25.560] We have a border that's totally closed.
+- [05:27.070] We used to have a border that was totally open.
+- [05:29.680] We took in 25 million people.
+- [05:31.660] Many of them should never have been there.
+- [05:34.130] And they came from prisons, jails.
+- [05:37.450] They came from mental institutions, insane asylums.
+- [05:42.760] Some people say, how come you mention both?
+- [05:44.620] I say, well, the insane asylum
+- [05:46.090] is a mental institution on steroids,
+- [05:49.230] and it's beyond the mental institution.
+- [05:52.100] But we took them both, and we took drug dealers.
+- [05:55.010] We took everybody. What a disgrace.
+- [05:57.460] What a disgraceful job they did, the previous administration.
+- [06:00.560] And I wouldn't normally say that.
+- [06:02.710] But what they did to our country was incredible.
+- [06:04.820] And now, you know, we had a country that was a dead country.
+- [06:08.870] Everybody, so many of the leaders that I've met,
+- [06:11.710] King of Saudi Arabia told me, very, they all said,
+- [06:14.600] essentially, we thought your country was dead.
+- [06:16.460] One year ago, we thought you country was death.
+- [06:19.620] Now it's the hottest country anywhere in the world,
+- [06:21.510] like by far.
+- [06:22.740] I mean, we have some leaders here,
+- [06:24.020] so I don't want to insult anybody.
+- [06:25.340] We have the hottest country in the country in the the world.
+- [06:27.930] So I just want to thank some of these people.
+- [06:30.110] Scott Bessett, you're doing a great job,
+- [06:31.920] Secretary of Treasury.
+- [06:33.880] Thank you, Scott. Thank you, Scott.
+- [06:36.430] (applause)
+- [06:38.150] How good is he on television?
+- [06:39.670] You know, he soothes the markets.
+- [06:41.350] I don't soothe the market.
+- [06:42.680] I sometimes disturb the markets, he sues the markets he goes,
+- [06:47.390] I said, Scott, go in and clean it all up for me, Scott.
+- [06:51.310] And he goes in, bup, bub, bub, bub.
+- [06:53.820] And he's really terrific. He's done a great job.
+- [06:56.260] And I'm thinking about him for the Fed.
+- [06:59.970] See, now the cameras are going, breaking news,
+- [07:02.170] but he won't take the job. He likes being Treasury.
+- [07:04.860] So we're not thinking about him really, oh yeah.
+- [07:07.170] But he's -- we're very proud of the job you're doing.
+- [07:10.000] Secretary of Commerce Howard Lutnick.
+- [07:12.870] Thank you, Howard.
+- [07:15.050] (applause)
+- [07:21.060] We just did, I guess it's about $518 billion in the other room.
+- [07:24.980] We were a little bit short of $500 billion,
+- [07:27.090] and then we had a couple of people that just announced,
+- [07:29.960] including Toyota, $10 billion, going to open new car plants
+- [07:35.570] throughout the United States, a lot of them.
+- [07:37.600] And it's great, because of the tariffs,
+- [07:40.710] and because of November 5th election, I think both.
+- [07:43.780] But the tariffs have been tremendously helpful
+- [07:45.730] in terms of national security,
+- [07:47.100] the national security for our country,
+- [07:49.520] and a lot of the --
+- [07:51.100] Aa lot of the wars that I stopped were because of tariffs.
+- [07:54.590] And, frankly, I did a great service to the world,
+- [07:57.430] but because of tariffs, because of trade.
+- [07:59.950] If you look at India and Pakistan,
+- [08:03.390] they were going at it. Seven planes were shot down.
+- [08:06.140] Seven brand-new, beautiful planes were shut down,
+- [08:10.110] and they were going at it, two big nuclear powers.
+- [08:12.430] And I said to Prime Minister Modi,
+- [08:14.980] and I said the Prime Minister
+- [08:16.650] (inaudible), a very nice man, a very good man,
+- [08:18.600] and the Field Marshal over in Pakistan.
+- [08:22.050] I said, look, we're not going to do any trade
+- [08:23.780] if you're going to be fighting. No, no, no.
+- [08:25.200] One thing has nothing to do with the other.
+- [08:26.810] I said it has a lot to do with the other, two nuclear powers.
+- [08:30.710] We get that nuclear dust all over the place.
+- [08:33.140] All of you are affected, right?
+- [08:35.140] Then we said, no we're not doing any deals if you going to fight.
+- [08:39.470] And within about 24 hours, that was the end of that.
+- [08:42.480] It was amazing, actually.
+- [08:44.240] And we've done numerous like that.
+- [08:46.320] I would say trade is responsible for 70 percent of the fact
+- [08:49.680] that we didn't have a war spike. Using our heads,
+- [08:52.370] because they want to trade with the United States,
+- [08:54.110] but I said, we're not going to trade
+- [08:55.450] if you're going to go to war.
+- [08:57.000] And it's amazing how quickly they were able to make deals.
+- [08:59.400] And, you know, they would have been fighting for 10 years,
+- [09:01.170] killing millions of people, numerous of them.
+- [09:04.830] So we're very happy about that.
+- [09:06.340] But I also want to say that U.S. Trade Representative
+- [09:11.160] Jamieson Greer, like, he's really fit.
+- [09:13.790] Where is he? He leaves everybody happy.
+- [09:16.210] (applause)
+- [09:19.900] Because everybody, you know,
+- [09:21.480] they have such confidence in them.
+- [09:22.870] Even the other side.
+- [09:24.080] I mean, you have to have both sides have confidence,
+- [09:26.010] especially when it comes to trade between countries.
+- [09:28.640] But Jamieson, you're doing a great job.
+- [09:30.320] Thank you very much. Really appreciate it.
+- [09:32.970] (applause)
+- [09:36.410] And we had a phenomenal day here in Japan
+- [09:39.420] with a momentous trade deal.
+- [09:41.460] We made a big, big, beautiful trade deal for both countries.
+- [09:45.670] In fact, to the best of my knowledge,
+- [09:48.060] I think Japan also had their best stock market day ever.
+- [09:52.410] So your new prime minister is doing very well.
+- [09:55.630] First female, first woman prime minister.
+- [09:58.850] And I said, you already hit the highest stock price
+- [10:01.350] you've ever hit. So she's very happy.
+- [10:03.510] And we spent the whole day together.
+- [10:04.970] It was beautiful. And she's great.
+- [10:07.030] We went out to the USS George Washington.
+- [10:11.270] The USS George Washington, it was really great.
+- [10:17.730] The sailors and a lot of others.
+- [10:19.700] We had a lot people, a lot military people were there,
+- [10:21.730] but boy, there was some scene. It was incredible.
+- [10:24.540] You wouldn't believe that a ship could hold that many people.
+- [10:27.820] But I just want to say that she is a delight,
+- [10:31.910] and I think she's going to be a great.
+- [10:33.810] Prime Minister, I really do.
+- [10:35.080] I got to know her pretty well in a short period of time.
+- [10:37.980] She was a very good friend and ally of Shinzo Abe,
+- [10:41.090] who is a friend of mine,
+- [10:42.350] one of my best friends in terms of this world,
+- [10:44.660] the world of nations.
+- [10:46.940] And he was a great man and he got,
+- [10:49.480] unfortunately what happened to him was sad, very sad.
+- [10:53.990] But he was great leader and we miss him very much.
+- [11:00.290] But a fantastic tribute to the U.S.-Japanese alliance
+- [11:04.410] aboard that ship today,
+- [11:06.120] USS, think of it, USS George Washington.
+- [11:08.960] It's the only ship that just doesn't come back
+- [11:11.490] to the United States.
+- [11:12.780] It stays here, and it's very proud.
+- [11:15.140] This is our largest military contingent.
+- [11:18.010] Pete, I think, like 66,000 soldiers, Navy and others.
+- [11:23.600] So this was a fantastic day.
+- [11:25.830] The level of excitement and enthusiasm. It's so easy.
+- [11:28.670] People say, how do you speak in front of that many people
+- [11:30.790] and enjoy it?
+- [11:32.000] When you have so much love, there's such love.
+- [11:35.240] There was such love on that ship.
+- [11:36.760] It's really easy to do.
+- [11:38.590] They don't understand that. It's easy to.
+- [11:41.420] But tonight, I'm more confident than ever that the friendship
+- [11:44.070] between the United States and Japan is strong,
+- [11:46.960] as strong as it can be.
+- [11:48.840] And it's thriving, it's prosperous, and it'll soon be.
+- [11:52.370] I think, greater than ever before.
+- [11:53.950] And we had four great years.
+- [11:55.230] You know, we had the greatest economy
+- [11:56.530] in the history of our country,
+- [11:58.090] but we're blowing it away this time,
+- [12:00.000] to be honest with you. We're blowing it.
+- [12:01.370] That was -- we had 4 great years, as you know.
+- [12:04.720] We had the one-year deduction.
+- [12:07.150] I call it the one year little deduction.
+- [12:08.760] Like, you can deduct every single thing.
+- [12:10.680] And nobody ever thought that was possible.
+- [12:12.360] That beats 38 years, right?
+- [12:14.810] But now we did it for a period of 10 years
+- [12:17.110] instead of a period one year. It's much stronger.
+- [12:20.560] It's -- and you can -- deduct structures.
+- [12:23.310] And for the people you have no tax on tips,
+- [12:27.830] no tax social security. Think of it.
+- [12:30.150] No tax on overtime for your workers
+- [12:32.740] and it really covers everything. The Great, Big Beautiful bill.
+- [12:37.120] We got everything done. I said let's get it all done.
+- [12:39.500] A lot of people want to do it little small pieces
+- [12:42.390] like nine of them, twelve of them.
+- [12:44.620] I said put it all into one bill
+- [12:46.220] and if we get it done we're done for four years.
+- [12:48.220] We don't need anything more from Congress
+- [12:50.050] in terms of that, right, Scott?
+- [12:51.870] We got it all done. It was a little risky.
+- [12:54.660] But because if we didn't get it done, I don't know.
+- [12:56.820] Who knows what would happen with these radical left lunatics
+- [12:59.900] that we have to deal with.
+- [13:01.670] But we got it done and now we're set.
+- [13:05.040] And you're set, the investment in this country is set.
+- [13:08.160] You have all that you want.
+- [13:10.090] The people in this room are the living embodiment
+- [13:13.880] of the U.S.-Japanese economic partnership
+- [13:17.180] that, together, we're taking to even greater heights.
+- [13:20.660] It will, I think, never be like it is now,
+- [13:22.940] but it'll get even better if that's possible.
+- [13:25.120] I especially want to thank Japanese company SoftBank.
+- [13:29.960] I think Masa is here. Where's Masa?
+- [13:32.770] I played golf with this guy last week.
+- [13:34.710] He sank every putt, every put.
+- [13:37.220] We played with Bryson DeChambeau.
+- [13:38.930] We had a great match and a great Gary Player.
+- [13:41.550] Gary Player is 90 years old and he shot 70.
+- [13:44.260] Is that right?
+- [13:48.120] That's right, we won the tournament.
+- [13:50.610] We had 36 teams, and we won that tournament.
+- [13:52.850] We didn't cheat, either, you know?
+- [13:55.170] A lot of those teams cheated, because I know how they play,
+- [13:57.470] and they did not shoot those scores.
+- [13:59.880] But I think we got -- well,
+- [14:01.580] it helped to have Bryson hitting a ball 400 yards,
+- [14:03.960] you know, it's always nice to have.
+- [14:05.740] I said, I'll take Bryson on our team.
+- [14:08.090] But we had a great time, and you played great,
+- [14:10.630] and you putted very well, and I appreciate it,
+- [14:12.700] because I now have an extra trophy on my desk,
+- [14:14.980] and I like that. Yes, please.
+- [14:17.490] Audience Member: (inaudible)
+- [14:20.540] The President: That's right.
+- [14:21.850] Four Eagles. We made four Eagles.
+- [14:23.550] And, no, I seriously mean it. Every time he stood over a putt.
+- [14:27.650] I'm not saying it's going to happen every time,
+- [14:29.440] but it happened this time.
+- [14:31.160] And he's bing, bing, and we didn't have to putt
+- [14:34.250] because we're playing best ball.
+- [14:35.490] So we didn't have to put. So thank you very much, Masa.
+- [14:38.760] That's better than all the deals you made.
+- [14:40.510] That made him feel better than all the deal he's made.
+- [14:43.680] Thank you. It's great to be here.
+- [14:45.100] We'll do it again.
+- [14:46.520] But I also want to thank Toyota for that great --
+- [14:50.480] it's not a contribution, it's an investment.
+- [14:53.570] We're having investments in our country greater
+- [14:56.360] than ever before.
+- [14:57.640] Greater than any country has ever had, actually.
+- [14:59.810] We'll talk about that.
+- [15:01.670] And I also want to thank the people from Carrier
+- [15:04.060] here someplace. Where's Carrier?
+- [15:05.870] They were here. Just thank you. Thank you very much.
+- [15:09.310] They made a big contribution also to the White House fund.
+- [15:13.380] We're redoing lots of things in the White house.
+- [15:16.730] We're bringing it up to -- to the way it should be,
+- [15:20.480] and you probably heard, I don't know if anybody heard
+- [15:22.570] about we're building a little ballroom over there.
+- [15:26.080] People are loving it, now they're loving it.
+- [15:27.950] Took them a little while to understand what was going on.
+- [15:30.210] But now, we actually got an editorial
+- [15:32.590] from the Washington Post and from the New York Times
+- [15:34.920] saying, you got to build that ballroom.
+- [15:37.570] I almost, I couldn't believe it when that happened.
+- [15:39.800] Look, they're back there right now.
+- [15:41.200] They can't believe I'm saying good things about them.
+- [15:43.810] But it's been great. But I want to thank Carrier.
+- [15:46.500] They make great air conditioning,
+- [15:48.080] heating, and things, and they were very generous.
+- [15:51.070] It's really fantastic what they did.
+- [15:53.420] And with the help of many of you here tonight, almost all of you,
+- [15:56.960] the only people that haven't done anything,
+- [15:58.510] snuck into the room
+- [15:59.740] because I think you're all here because of what you've done.
+- [16:03.510] And so if there's anybody that hasn't done anything,
+- [16:05.760] please raise your hand
+- [16:07.110] and we'll throw you the hell out of here, okay?
+- [16:10.730] But Japan is already America's sixth-largest trading partner.
+- [16:14.100] And I think, as of today, that's gone up probably two notches
+- [16:18.450] and the number-one source of foreign direct investment.
+- [16:23.320] And so they're very happy
+- [16:24.650] because, you know, as goes our market,
+- [16:27.140] so many countries, they invest in the United States,
+- [16:29.420] but we've never had anything quite like what's happening.
+- [16:32.550] And I it's going to get better. I can say it now.
+- [16:36.560] So we have over 17 trillion dollars of investment
+- [16:40.030] in eight months.
+- [16:41.440] And I think by the time we go to the 12-month period,
+- [16:45.120] we'll have over 20 or 21 trillion dollars invested,
+- [16:49.030] or to be invested, very importantly.
+- [16:51.510] I mean, money's coming in,
+- [16:52.890] and a lot of its commitments that are incredible.
+- [16:55.660] Tim Cook is doing, I think,
+- [16:57.220] like 600 or 650 billion dollars, right?
+- [17:01.500] Think of it. You've done more than the entire group here.
+- [17:04.470] We raised $518 billion,
+- [17:07.480] and there's one man sitting here at $650.
+- [17:11.200] But good. And everything is --
+- [17:12.410] they're treating you great, right?
+- [17:14.140] We give them fast permits. We give everybody fast permits,
+- [17:16.960] no more waiting 20 years before you get rejected.
+- [17:20.170] You know, they used to have a process.
+- [17:21.890] I know a couple of people.
+- [17:24.090] They started a process when they were young men.
+- [17:27.530] Now they're old men, and they got rejected.
+- [17:29.190] Can you imagine?
+- [17:30.420] They devoted their whole life to getting a couple of permits.
+- [17:33.510] One of the things I did that's really helping AI,
+- [17:36.070] because of the massive amount of electricity
+- [17:38.380] that they need, is I said,
+- [17:40.310] you build your own power plant if you'd like.
+- [17:43.140] So far, everybody said we like. At first, they weren't doing it.
+- [17:48.550] I said, I wonder why. Because they didn't believe me.
+- [17:51.240] They didn't believed they were actually getting this.
+- [17:53.710] You know, we have a grid that's, like, a lot of grids, it's old.
+- [17:57.980] And nobody ever said that we're going to be doubling.
+- [18:00.560] You have to double or triple the amount of electricity
+- [18:03.600] that we currently have,
+- [18:04.830] as an example, in the United States.
+- [18:06.720] You have triple it. But double it at a minimum,
+- [18:09.750] but really triple it in order to take care of just AI.
+- [18:13.100] Can you believe this? More than double what we have currently.
+- [18:17.440] So, for all of that, we have to more than double it.
+- [18:21.050] And I said, well, that's not,
+- [18:22.670] you know, something you can do from the grid.
+- [18:26.160] I mean, how would you do that?
+- [18:27.440] You have an old grid, and it's doing okay.
+- [18:30.580] We're fixing it, but you can't do that.
+- [18:33.130] And I came up with the idea that you're building a plant.
+- [18:35.480] It's spending $50 billion to build a plant,
+- [18:37.710] and I said you can build your own electric generating sources.
+- [18:42.890] And, honestly, some of the people in this room,
+- [18:45.800] they're building electric generators
+- [18:48.910] that are so far beyond anything that's ever been built before.
+- [18:53.880] They're using all different types of fuel.
+- [18:56.710] They're using nuclear, they're using oil and gas,
+- [18:58.910] they're use coal as a backup. Coal is a great backup.
+- [19:02.740] If something happens, you can put it aside,
+- [19:04.840] and if you ever need it, you could use it.
+- [19:07.380] But it's a great thing.
+- [19:10.930] And we're getting you very fast approvals.
+- [19:12.850] Lee Zeldin is doing a fantastic job.
+- [19:15.440] We're giving you fast approvals.
+- [19:16.720] You don't have to wait, you know, nine years.
+- [19:19.550] You're waiting a matter of weeks,
+- [19:21.040] literally a matter weeks.
+- [19:22.810] You're coming in with the best engineers in the world.
+- [19:24.830] You know what you're doing. And so, as you build your plant,
+- [19:27.810] you're sort of in the utility business,
+- [19:30.010] like Con Edison in New York.
+- [19:31.550] You're building your own electric.
+- [19:34.110] And you can build it as much as you want.
+- [19:36.360] And if you have any leftover, you send it.
+- [19:38.310] You sell it into the grid.
+- [19:40.340] So our grid picks up a lot of electric
+- [19:43.490] without really us doing anything.
+- [19:44.970] You talk about private sector, that's the ultimate,
+- [19:47.210] but everybody loves it.
+- [19:49.060] And they're coming, honestly, I mean,
+- [19:50.960] somebody that understands that better than information,
+- [19:54.460] which is what the other part makes.
+- [19:56.710] You're going to make a lot money with information.
+- [19:59.780] And, but somebody that really does understand
+- [20:02.420] the generation of electricity,
+- [20:05.310] the kind of plants that are being built are unbelievable.
+- [20:09.700] They're far beyond anything being built in terms
+- [20:13.800] of your regular utility companies,
+- [20:15.760] which, you know, it's sort of an older business.
+- [20:18.300] So I congratulate you.
+- [20:19.530] But the beauty is that you start building immediately.
+- [20:22.060] Tim, you don't have to wait, you know.
+- [20:24.450] Well, if we went by the grid, 10, 12, 15 years.
+- [20:27.290] But the permits are fast and you open
+- [20:30.310] as soon as you have your plants or your combination of plants.
+- [20:33.650] Some are building it on top.
+- [20:35.410] Some are building it to the side,
+- [20:36.830] some are building separate buildings,
+- [20:38.220] some are building in one building.
+- [20:40.560] And I love the idea.
+- [20:41.880] But literally, it took them a while to really,
+- [20:44.450] they thought I was kidding. It was so good.
+- [20:47.220] They said, no, no. He's kidding. I said, I'm not kidding.
+- [20:51.530] That's why we're leading China,
+- [20:52.830] we're leading everybody in this race.
+- [20:54.540] So we're with you all the way and you're going to,
+- [20:57.610] I hope everyone's going to do great
+- [20:58.990] and make a tremendous amount of money
+- [21:00.710] and create a lot of jobs under the historic trade deal
+- [21:04.340] with the Prime Minister that is signed today
+- [21:07.050] and private sector agreements that were signed moments ago
+- [21:10.360] will be increasing our commerce very, very much further.
+- [21:15.740] Japan is going to be investing $550 billion
+- [21:19.460] into the United States
+- [21:20.760] and it's an amazing thing and they're happy
+- [21:23.530] and they are going to love it. It's going to really good.
+- [21:27.030] It's going to be great for everybody.
+- [21:29.940] But building up and allied, industrial base.
+- [21:32.920] And, you know, one of the things that makes me so happy
+- [21:34.990] is they'll be taking some of our product.
+- [21:38.450] Japan has -- a tip,
+- [21:39.700] I don't think I'm saying anything that's very secret.
+- [21:42.270] They've been typically slightly closed as a country.
+- [21:44.640] It was not easy to come in, but they're taking some our cars
+- [21:49.440] and some of a lot of our different things, rice,
+- [21:53.580] which is actually a big deal,
+- [21:55.060] because, as you know they wouldn't do that.
+- [21:57.550] And they're taken corn. And they're taking the Ford 150
+- [22:01.900] right here, the big thing, some of our cars.
+- [22:04.750] So it's really a great thing. It's going to be great for them.
+- [22:06.730] It's going to be great everybody.
+- [22:08.850] But we're doing semiconductors together,
+- [22:11.670] critical minerals, shipbuilding.
+- [22:13.240] We're starting shipbuilding together.
+- [22:15.210] And they do it pretty well with shipbuilding,
+- [22:16.850] they're number three.
+- [22:18.090] They're going to be coming over to the United States
+- [22:19.970] and building ships in some of the yards.
+- [22:21.680] We have some great yards.
+- [22:23.090] You know, the United State was number one during World War II,
+- [22:25.990] number one in the world in shipbuilding by far.
+- [22:28.630] We would produce a ship a day, can you believe it?
+- [22:30.790] A ship a day, you know, freighters and this and that,
+- [22:32.870] but some big ones too, some great warships.
+- [22:36.660] And we just let that, our leadership,
+- [22:39.850] the person standing right where I am numerous years ago,
+- [22:43.780] a number of them, they just let it slip.
+- [22:46.870] And so we're going to be very heavy into the shipbuilding
+- [22:50.780] in a very pretty short period of time.
+- [22:52.320] It takes a while to get that one going,
+- [22:53.850] but to think that we were number one in the world.
+- [22:56.890] And now we're, you know,
+- [22:58.140] we basically don't make very many ships anymore.
+- [23:01.950] We do beautiful Coast Guard cutters,
+- [23:03.820] we do beautiful smaller ships like destroyers, etc.
+- [23:08.170] But we don't, essentially,
+- [23:09.770] we don t really do what we should be doing.
+- [23:11.920] We will be doing that pretty soon.
+- [23:14.070] But the deals will create jobs and opportunity,
+- [23:16.210] wealth, tremendous wealth and security for both sides
+- [23:20.020] and for both sides of the Pacific
+- [23:22.030] and make our cherished bond
+- [23:25.820] between the two countries even better.
+- [23:28.200] And we've got so many wonderful deals,
+- [23:29.960] but this is one that people have been very, very interested in.
+- [23:33.300] They really waited for this day,
+- [23:36.100] and I found it to be an amazing day.
+- [23:38.650] Not an easy day. I think we've gone to about nine stops.
+- [23:43.710] You think Biden could have done this?
+- [23:45.200] I don't think so. You think so?
+- [23:46.960] I've been walking back and forth.
+- [23:48.420] Sir, we're going over here. It's just a quarter of a mile.
+- [23:51.310] Walking would be fine, sir. Oh, thanks a lot.
+- [23:55.550] But we had a lot of stops today,
+- [23:57.820] from early in the morning until now.
+- [23:59.520] But this is one that I was thrilled,
+- [24:00.930] because I see the list of people.
+- [24:02.410] This is really a who's who, this list.
+- [24:04.600] I was reading it, I don't get that impressed with things.
+- [24:06.990] I'd say, wow, that's really pretty amazing.
+- [24:10.160] But I'm thrilled that so many Japanese investors recognize
+- [24:13.740] that people from all over the planet
+- [24:16.440] are now discovering that the United States is hot,
+- [24:20.630] and it's also a place where you can really do business.
+- [24:23.030] Getting the approval is just -- is so great.
+- [24:25.550] You know, in my first term, we had an LNG plan, two of them.
+- [24:29.770] They were under approval.
+- [24:31.290] One was 14 years and one was 16 years.
+- [24:34.590] And actually, one of them was a big Japanese investor group,
+- [24:38.440] and they couldn't get their approvals.
+- [24:40.170] It was never going to happen. I come in.
+- [24:41.650] I didn't know anything about it, but I came in. I heard about it.
+- [24:45.080] And so they were 14 years, I think in 16 years,
+- [24:48.730] and they were just about -- they gave up, essentially.
+- [24:52.030] And I got one done in one day.
+- [24:54.470] And the other one, it took me -- I didn't do as well --
+- [24:57.690] took me three days to get it done.
+- [24:59.710] And they were under construction in less than a week.
+- [25:02.740] And they're up now, and they're doing phenomenally well.
+- [25:05.080] You know, in Louisiana, actually.
+- [25:07.180] Two of them right on the coast.
+- [25:09.440] And people said, how do you do that?
+- [25:10.820] I said, I have no idea, but I get things done.
+- [25:13.860] There's no better place on Earth to invest and grow your business
+- [25:17.140] than the United States and a lot of the environmental nonsense.
+- [25:19.940] And I'm a big environmentalist, in a sense.
+- [25:21.680] Like, I want clean air. I want clear water.
+- [25:24.410] But we're going to make it great for our workers and our economy.
+- [25:29.300] We're not going to take, honestly, what I say five years,
+- [25:34.350] much longer than five years to do things.
+- [25:37.190] I actually said to some of our people,
+- [25:39.980] I said, look, you have, on big plants,
+- [25:43.080] you have two weeks on oil and gas to get the approvals.
+- [25:46.180] And if you go nuclear, three weeks for nuclear.
+- [25:49.140] You know, nuclear, with Westinghouse's here today,
+- [25:51.720] they've done great. They've really -- I mean,
+- [25:55.040] they've had a difficult problem a few years ago.
+- [25:57.940] They have become very hot, Westinghouse,
+- [26:00.690] and they're doing a lot of work in the United States.
+- [26:02.640] We're doing lot of nuclear now.
+- [26:04.080] Nuclear now is safe, and it's inexpensive.
+- [26:07.020] It's really, it's great energy now.
+- [26:09.000] I was not -- I was with nuclear,
+- [26:11.740] but I didn't love certain aspects of it.
+- [26:13.910] Today it's so different,
+- [26:15.160] and really is a safe, great way to go.
+- [26:18.490] A lot of people are going that way.
+- [26:20.700] But one year ago, the United States was really --
+- [26:23.560] you'd never get your permits.
+- [26:25.580] You'd wait years and years and year.
+- [26:28.640] And honestly, if you had another, like Kamala,
+- [26:31.230] I don't know where the hell she came from,
+- [26:32.870] but if you had Kamala (inaudible)
+- [26:35.130] Against Biden, I went up by 29 points,
+- [26:37.180] all of a sudden they take him out.
+- [26:38.610] It's like a fighter. He's losing the fight,
+- [26:41.030] they replace him in the middle of the fight.
+- [26:42.560] They gave me a new one, they gave me Kamala.
+- [26:44.300] I went from Joe to Kamala but if she got in,
+- [26:48.040] I don't think there'd be nobody in this room.
+- [26:50.390] You wouldn't be doing anything, You'd be elsewhere doing things.
+- [26:53.970] And it wouldn't be the same. But you have a great partner
+- [26:58.690] now in the United States getting you started.
+- [27:01.180] And you will have everything done very, very quickly.
+- [27:04.170] Record time, as fast, I think much faster than maybe
+- [27:07.460] any other country other than China.
+- [27:09.920] Because in China, you have good system also.
+- [27:12.550] You have a system where President Xi
+- [27:14.030] can approve it immediately. So that's even faster.
+- [27:17.270] He doesn't have to wait two weeks.
+- [27:18.850] I have to two weeks, but. You do go quickly there,
+- [27:23.050] but we have a lot of advantages, as you know.
+- [27:25.310] Since the election,
+- [27:27.220] we've secured all of that money coming in,
+- [27:29.010] and we have lot more money coming.
+- [27:30.810] And again, I mentioned SoftBank, but Jira, JCB, Toyota,
+- [27:37.920] Mitsubishi, Hitachi, Honda, they're all coming into this.
+- [27:43.470] We have a lot of car plants opening up because of tariffs.
+- [27:45.830] They don't want to pay tariffs, and they come in.
+- [27:48.790] And frankly, Japan is sponsoring many of them because
+- [27:52.480] that way you don't have to pay the tariffs without the tariffs
+- [27:54.820] I mean tariffs are about national security
+- [27:57.880] And we're making a lot of money.
+- [27:59.180] We're going to pay start paying down debt very soon.
+- [28:02.720] We have a lot debt because we, honestly,
+- [28:06.540] we didn't know what the hell we were doing as a country.
+- [28:09.970] GDP growth in the second quarter was an amazing almost 4%.
+- [28:15.290] Nobody thought they thought it was going to be 2%.
+- [28:17.250] They had no idea. Just announced 4%, almost 4%.
+- [28:21.090] And then the next quarter, I don't know,
+- [28:23.080] I think it can go much higher. I think when we kick in,
+- [28:27.210] when these plants start to open, we're building many of them.
+- [28:30.730] And a lot of them are car plants,
+- [28:32.270] but, you know, you keep hearing about the AI
+- [28:34.350] and that's obviously the biggest thing right now,
+- [28:37.140] and nobody's doing like we're,
+- [28:38.410] but we have a lot other plants coming in,
+- [28:40.290] but a lot car plants are coming in.
+- [28:41.840] They're coming in from other countries.
+- [28:44.330] And next quarter
+- [28:45.680] I think you're going to see maybe 4%, maybe more.
+- [28:50.870] When these plants start opening up,
+- [28:52.710] you're going to see numbers that are going to be shocking.
+- [28:55.420] Energy prices are down, gasoline are down.
+- [28:58.640] Groceries are down except for the beef,
+- [29:01.700] which I'll get down to.
+- [29:04.190] Our ranchers were, for 25 years, they did poorly.
+- [29:09.660] And I put tariffs on some. It was just too much.
+- [29:12.340] They couldn't compete. They were going out of business
+- [29:14.670] and maybe they're doing too good now.
+- [29:19.100] But we want them to do well.
+- [29:20.580] But we have to get the beef prices down.
+- [29:22.930] So that's, you know, it's an easy problem to solve.
+- [29:25.280] But we'll always take care of our ranchers, too.
+- [29:27.100] And they were with me 100 percent.
+- [29:28.440] They've been with me from the beginning.
+- [29:29.840] You know, we had an election that was too big to rig.
+- [29:32.650] We had to get it.
+- [29:34.340] We -- I would constantly say, too big to rig --
+- [29:36.650] don't believe polls that were way up.
+- [29:38.480] Just, you got to go and vote. You know when the polls
+- [29:40.420] are too high, people say, let's go to a movie
+- [29:43.020] and we'll go home and watch our president win.
+- [29:45.760] But I said, you just got to go
+- [29:47.170] because we have a very corrupt election process.
+- [29:51.570] And you need that. You need borders.
+- [29:53.060] And you need a fair press.
+- [29:55.000] And the press is slightly better.
+- [29:56.600] I'd say, you know, slightly. But it'll get better.
+- [30:00.140] I think it's getting better and better
+- [30:01.480] because otherwise they're going to lose all credibility
+- [30:03.580] and nobody's going to be watching or listening to them.
+- [30:07.150] But you need strong borders and you need good voting.
+- [30:10.980] And we're getting them both much better.
+- [30:13.700] The mortgage rates, except for the fact
+- [30:15.230] that we have an incompetent head of the Fed.
+- [30:17.350] I think he's incompetent. Or a bad guy, you know.
+- [30:20.800] But despite that, mortgage rates are down.
+- [30:22.790] Who could believe that? We have an anti-person.
+- [30:26.210] I call him too-late. He's always too late,
+- [30:29.250] he's been too late and Jerome too-late Powell.
+- [30:35.130] So somebody gave me a bad reference on him.
+- [30:37.160] I put him in based on some guy that turned out to be not so hot
+- [30:43.410] and we got a bad Fed guy
+- [30:45.030] but he'll be out of there a few months
+- [30:46.900] and we'll be right back.
+- [30:49.000] Get somebody new, I guess, Scott.
+- [30:50.600] You have a long list of people that want it.
+- [30:53.140] If anybody has any suggestions, because we really do, we have,
+- [30:57.390] you know, all the people that are being talked to.
+- [31:00.290] If you have a suggestion, just shout it out.
+- [31:03.350] Just shout it. Mark, do you have any suggestion?
+- [31:06.040] Mark has some pretty good suggestions.
+- [31:08.370] You put me on the cover of Time Magazine.
+- [31:10.170] That was a nice picture. Thank you very much for that.
+- [31:13.380] That was very good. It was a very nice story, too.
+- [31:15.120] Thank you, very much. I've been on the cover almost 50 times,
+- [31:20.080] but Mark, I can only use 17 of them.
+- [31:22.770] You know, meaning the rest of them aren't so good.
+- [31:24.680] Seventeen are great. This one was very good. I pray.
+- [31:28.400] This is going up. Now I have 18. Thank you very much.
+- [31:32.250] I'll see you in a little while. But mortgage rates are down,
+- [31:37.620] and we're rapidly building the greatest economy.
+- [31:42.920] I think in history, I mean, look, bad things can happen.
+- [31:45.630] You know, we were doing great.
+- [31:47.450] And even after COVID, we had the best four years.
+- [31:50.290] But all of a sudden, COVID, things happen.
+- [31:54.110] Things happen. I hope things don't happen here.
+- [31:57.130] But we were doing numbers like nobody
+- [31:59.750] had ever seen before, not as good as we're doing now.
+- [32:02.810] And then all of the sudden, we started hearing about people
+- [32:05.650] dying in different places of the world,
+- [32:09.850] China and other places. And we have a COVID.
+- [32:14.830] We have pandemic, all of a sudden,
+- [32:16.540] and, you know, things like that happen.
+- [32:18.380] But hopefully, that won't happen in this case, in this term.
+- [32:23.800] But we did a good job in handling it.
+- [32:25.720] We made more machinery and everything else.
+- [32:29.890] We did great with the therapeutics, Regeneron,
+- [32:33.370] and we did the vaccine.
+- [32:35.670] We had the vaccine approved in nine months.
+- [32:37.560] And there are many people that say
+- [32:40.170] that we saved 50 million lives worldwide.
+- [32:43.070] Not everybody agrees with that,
+- [32:44.350] but a lot of people say we saved 50 million lives.
+- [32:49.570] You know, in World War II, I guess we lost close to 100.
+- [32:52.340] People don't know that it was so bad, the Spanish flu,
+- [32:54.830] that it actually ended the war.
+- [32:56.150] That was what stopped the First World War.
+- [33:00.080] But we were on our way to really terrible numbers.
+- [33:03.470] We had, obviously, so many million people die.
+- [33:06.350] That was a terrible thing, but things happen and things
+- [33:10.030] that you wouldn't think of. Who would have thought pandemic?
+- [33:12.460] I thought there was like an ancient problem.
+- [33:14.380] It wasn't a modern day problem.
+- [33:16.940] But a lot of people did a great job there.
+- [33:19.570] And we ended up with the four years.
+- [33:22.220] We actually ended up when I left with a stock market price
+- [33:25.730] that was higher than it was before the pandemic came in.
+- [33:29.810] Who will think that was even possible?
+- [33:31.460] Because we were rocking and rolling.
+- [33:33.060] And then that happened and we ended up higher,
+- [33:34.890] the stock market was higher than it was.
+- [33:37.710] Just prior to hearing about this horrible plague.
+- [33:41.560] So, just as importantly,
+- [33:42.830] we've implemented the largest regulation cuts
+- [33:46.330] in the history of our country, even larger than we had.
+- [33:49.450] We had the biggest, by four times,
+- [33:51.210] the biggest regulation cuts, in history, on my first term.
+- [33:55.340] And we're going to be doing that.
+- [33:57.070] And we are cutting, as you know, if we add one regulation,
+- [34:00.810] one new regulation, you have to cut eight or ten.
+- [34:03.970] Eight to ten.
+- [34:05.670] So, you add one it's okay, and you cut 10,
+- [34:10.240] and we started at 8, and now we're 10,
+- [34:12.290] including massive reductions in the red tape
+- [34:15.060] for the infrastructure and the rapid approvals, et cetera.
+- [34:18.580] But this includes the upcoming liquefied
+- [34:20.720] natural gas pipeline in Alaska, which we have well underway,
+- [34:25.200] to export vast amounts of American energy.
+- [34:27.370] And Japan is one of the big customers, by the way.
+- [34:30.460] And you know the slogan, our slogan,
+- [34:32.650] and have fantastic people.
+- [34:34.220] Chris Wright is phenomenal. Doug Burgum. Doug is fantastic.
+- [34:38.520] Those two guys, they're like a partnership.
+- [34:40.300] They're unbelievable.
+- [34:41.730] I'm sure you're dealing with them very successfully.
+- [34:45.220] But our motto is drill, baby, drill.
+- [34:47.170] That's a little different than people that say you can't,
+- [34:49.990] you know, drive energy through the roof.
+- [34:51.800] And I think you're going to see $2 gasoline pretty soon.
+- [34:55.040] And that's like bigger than a tax cut.
+- [34:56.630] That's the equivalent of something bigger than a tax cut.
+- [35:00.010] So support of Japanese companies like SoftBank,
+- [35:03.320] we're pursuing a very.
+- [35:05.630] National policy to keep the United States
+- [35:08.140] the world's leader in artificial intelligence.
+- [35:10.810] We have some of the greatest
+- [35:12.940] in artificial intelligence right here.
+- [35:15.340] They were the ones that showed me some things.
+- [35:17.130] I said, you got to be kidding. It's fantastic.
+- [35:20.710] My uncle was a great professor at MIT,
+- [35:23.240] and he was always ahead of the game.
+- [35:24.700] He was a smart guy. He has a distinction of being at MIT
+- [35:28.780] the longest serving professor
+- [35:30.260] in the history of MIT, Dr. John Trump,
+- [35:33.600] and he was always ahead of the game.
+- [35:35.780] And when I see some of the things that are happening,
+- [35:37.680] you guys are really ahead of the game.
+- [35:40.310] We're speeding construction of AI infrastructure
+- [35:43.400] and bringing production of the critical chips
+- [35:47.110] and semiconductors back on shore.
+- [35:49.140] And I want to congratulate Jensen
+- [35:51.630] because he's been really amazing.
+- [35:53.730] He's an amazing guy, brilliant guy.
+- [35:56.630] I'm seeing him tomorrow. 11 days ago, NVIDIA and TSMC
+- [36:01.360] announced that they have produced, they're very fast.
+- [36:04.860] First rate, state-of-the-art, the Blackwell.
+- [36:07.010] It's like, I don't know, people say 10 years advanced,
+- [36:11.250] who knows, but a lot.
+- [36:13.450] And it's entirely made in the USA,
+- [36:16.170] as you know, TSMC is,
+- [36:18.680] and Nvidia are spending hundreds of billions of dollars
+- [36:22.460] now in the United States.
+- [36:24.680] And many other chip makers are, too.
+- [36:27.960] It's incredible, actually, to see what's happened
+- [36:30.040] in literally a period of,
+- [36:32.620] now it's a little bit less than nine months.
+- [36:35.460] Don't forget, we had to celebrate for a couple of weeks,
+- [36:38.240] so I have to sort of deduct.
+- [36:39.600] Once we won, we celebrated, and we shouldn't have done that.
+- [36:42.480] We should have started immediately,
+- [36:43.970] not wasted eight days. But we really didn't.
+- [36:48.670] America is, once again, a manufacturing nation
+- [36:52.240] and something that we haven't talked about for a long time.
+- [36:57.280] Japan has been with us all the way.
+- [36:59.510] And it's amazing that we had a little conflict with Japan.
+- [37:03.170] You may have heard about it.
+- [37:05.100] And that after such a horrible thing,
+- [37:09.720] yet the two nations are the closest friends
+- [37:12.580] and partners that you can be,
+- [37:14.890] and based on a shared commitment to freedom,
+- [37:16.930] democracy, security, prosperity, civilization,
+- [37:20.930] and just basic human achievement.
+- [37:22.730] It's amazing, actually.
+- [37:24.440] As some of you may know, this very residence
+- [37:27.100] was once the home to the great General Douglas MacArthur.
+- [37:30.680] I don't know if you ever heard. He was supposed to be --
+- [37:32.480] he graduated number one in his class at West Point.
+- [37:35.110] But they say that he was the single greatest student
+- [37:37.430] in the history of West Point.
+- [37:38.690] Now, I don't know how they go about doing that.
+- [37:40.270] You know, I could see number one for the year.
+- [37:42.750] I could see number one for graduating.
+- [37:44.310] But they said he was a greatest student.
+- [37:46.120] He was a great intellect.
+- [37:47.340] A lot of people don't now that about General Douglas MacArthur.
+- [37:50.860] The moment that the peace was signed 80 years ago,
+- [37:55.470] that very brilliant man said about building a friendship
+- [37:59.250] between our two countries that has grown and deepened.
+- [38:02.240] And he actually wrote the Constitution here.
+- [38:05.680] And he did it all by himself.
+- [38:07.730] He was an intellect, and instilled the Constitution.
+- [38:12.410] Our partnership has been
+- [38:13.720] an extraordinary blessing to the world.
+- [38:15.770] If you look at what's happened and what's come out of it,
+- [38:18.260] I think a lot more is going to come out of it
+- [38:19.920] than even in the past.
+- [38:21.870] And I look forward to expanding it even further.
+- [38:23.790] We will do that.
+- [38:25.000] And I'm so happy to have gotten to know your new Prime Minister.
+- [38:29.840] I think she's going to go down as great.
+- [38:31.460] He was a real friend and ally of one of,
+- [38:35.570] as I told you, a great man.
+- [38:38.870] Shinzo Abe, he was really a great man.
+- [38:40.950] He was a great Prime Minister. She was an absolute ally,
+- [38:45.120] and he would have been very happy
+- [38:46.950] if he knew that she was very heavily supported
+- [38:51.690] and ultimately winning for Prime Minister,
+- [38:55.570] so she's going to do -- I think she's going to a great job.
+- [38:57.690] She's got all of our support.
+- [38:59.470] But I want to thank everybody for being here.
+- [39:01.250] You're an amazing group of people.
+- [39:02.850] It's -- I mean, each one of you has a story
+- [39:05.430] like really no other. And it's an honor to be here.
+- [39:09.350] We traveled long and far. It's a long flight.
+- [39:12.460] Going to Malaysia, then say, let's stop over.
+- [39:15.380] Let's stop, but we wanted to be here for this
+- [39:17.710] because it's very special. And keep up the good work.
+- [39:21.100] And remember that you have a great friend and ally.
+- [39:24.970] And if you can't get Scott and Howard
+- [39:27.030] and all of our people, Marco, to get it done, call me,
+- [39:30.700] and I'll override them if I have to.
+- [39:32.460] I will override them.
+- [39:33.920] But I want to thank you all very much.
+- [39:35.370] And I want thank my cabinet for doing a great job.
+- [39:37.460] Thank you. Thank you very much.
+- [39:40.320] (applause)

@@ -1,0 +1,917 @@
+<!-- source: https://www.youtube.com/watch?v=EKHlDnl2tQg -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: EKHlDnl2tQg -->
+<!-- date_published: 2025-08-08T20:43:28+00:00 -->
+<!-- date_accessed: 2026-06-02T02:46:04.378264+00:00 -->
+
+# Transcript: President Trump Participates in a Trilateral Signing with Armenia and Azerbaijan
+
+- [00:06.390] Announcer: Ladies and gentlemen,
+- [00:07.690] the President of the United States
+- [00:09.680] accompanied by the President of the Republic of Azerbaijan
+- [00:13.050] and the Prime Minister of the Republic of Armenia.
+- [00:16.940] ♪ (Hail the Chief) ♪
+- [00:37.285] (applause)
+- [00:41.180] The President: Thank you very much, everybody.
+- [00:42.800] Thank you very much. It's a great honor.
+- [00:49.970] It's a long time, 35 years.
+- [00:58.620] They fought, and now they're friends,
+- [01:01.020] and they're going to be friends for a long time.
+- [01:04.150] But it's a big, beautiful honor
+- [01:07.320] to welcome everyone to the White House
+- [01:10.450] for this very historic peace summit
+- [01:12.570] between Armenia and Azerbaijan.
+- [01:15.960] It's really a great thrill for me.
+- [01:20.000] I love seeing good people get together,
+- [01:22.530] and that's what you have here, two great leaders.
+- [01:25.320] I want to congratulate these two visionary people,
+- [01:29.000] Prime Minister Pashinyan and President Aliyev,
+- [01:36.390] for coming to Washington to sign
+- [01:38.180] this momentous joint declaration.
+- [01:40.550] It's a tremendously important document,
+- [01:44.580] and it's been a long time in coming.
+- [01:46.930] They were explaining before that so many times
+- [01:49.360] they thought they could get there.
+- [01:50.780] It never happened. Just never happened.
+- [01:53.440] I also want to thank Secretary of State Marco Rubio,
+- [01:56.680] Special Envoy Steve Whitkoff,
+- [01:59.170] and their teams at the State Department.
+- [02:01.650] And I see that we have Chris Wright outside,
+- [02:05.040] and Senator Steve Daines sitting right here.
+- [02:08.110] Thank you, Chris. Thank you very much.
+- [02:09.640] And, Steve, thank you very much.
+- [02:11.660] We have some other wonderful dignitaries,
+- [02:13.520] including the dignitaries from your country.
+- [02:17.270] But they provided tremendous diplomatic assistance.
+- [02:22.790] And Marco, congratulations. It's a big -- it's a big thing.
+- [02:26.380] Keep going. You've got many jobs.
+- [02:29.320] And then, of course, you would say Steve was quite influential.
+- [02:32.760] I call him Henry Kissinger, who doesn't leak.
+- [02:38.770] For more than 35 years,
+- [02:40.180] Armenia and Azerbaijan have fought a bitter conflict
+- [02:44.330] that resulted in tremendous suffering for both nations.
+- [02:48.200] They suffered gravely for so many years.
+- [02:51.020] Many tried to find a resolution, including the European Union.
+- [02:55.510] The Russians worked very hard on it.
+- [02:57.500] Never happened. Sleepy Joe Biden tried,
+- [03:00.830] but you know what happened there.
+- [03:02.040] He tried for probably 12 minutes and it didn't work out.
+- [03:06.720] And many other countries tried, and they were unsuccessful.
+- [03:09.510] But with this accord,
+- [03:11.560] we've finally succeeded in making peace,
+- [03:14.590] and we just left the Oval Office
+- [03:16.310] where we signed voluminous documents
+- [03:19.570] and very important elements to the agreement.
+- [03:23.550] The country of Armenia and Azerbaijan
+- [03:29.050] are committing to stop all fighting forever,
+- [03:32.160] open up commerce, travel, and diplomatic relations,
+- [03:35.070] and respect each other's sovereignty
+- [03:36.730] and territorial integrity, so importantly.
+- [03:41.490] And I just spent a lot of time with these two men.
+- [03:43.290] I think they're going to have a great relationship,
+- [03:44.870] if you want to know the truth.
+- [03:46.920] They didn't see each other that much, but they probably will.
+- [03:49.860] I think they're going to have --
+- [03:51.110] I think you two are going to have a great --
+- [03:53.070] a great relationship. I have no doubt.
+- [03:55.230] And if you don't, call me and I'll straighten it out, okay?
+- [03:59.330] Very importantly, we have also resolved the key issue
+- [04:01.930] that foiled previous negotiations.
+- [04:04.680] This declaration establishes what they are calling --
+- [04:09.010] a great honor for me. I didn't ask for this --
+- [04:11.400] the Trump Route for International Peace
+- [04:14.010] and Prosperity,
+- [04:15.600] which is a special transit area that will allow Azerbaijan
+- [04:20.360] to get full access to its territory of Nakhchivan
+- [04:25.670] while fully respecting Armenia's sovereignty.
+- [04:29.630] So they're going to be able to really live and work together,
+- [04:33.320] and it's amazing.
+- [04:35.370] So that's a very important territory,
+- [04:37.730] I guess, a very special territory to you and to you.
+- [04:41.040] And now they work it together.
+- [04:42.460] Armenia is also creating an exclusive partnership
+- [04:45.300] with the United States to develop this corridor,
+- [04:48.270] which could extend for up to 99 years.
+- [04:51.660] And then they promised in 99 years they'll extend it, right?
+- [04:54.710] You'll promise.
+- [04:56.140] But we anticipate significant infrastructure
+- [04:58.410] development by American companies.
+- [05:00.350] They're very anxious to go in to these two countries.
+- [05:03.700] And they're going to spend a lot of money --
+- [05:06.160] a lot of money -- which will economically benefit
+- [05:08.910] all three of our nations. This is incredibly positive news
+- [05:11.960] for the future of the entire region.
+- [05:14.110] And it's a very important region, as you know.
+- [05:16.920] Additionally, the U.S. is signing a bilateral agreement
+- [05:20.590] with both countries to expand cooperation
+- [05:23.260] in energy trade and technology, including AI.
+- [05:26.570] And in terms of energy,
+- [05:28.520] Chris is here representing our country,
+- [05:30.670] and there's nobody better than Chris Wright.
+- [05:34.000] And, Chris, I understand it's a very fertile --
+- [05:36.490] it's a very fertile area.
+- [05:38.150] So I appreciate everything you've done.
+- [05:40.320] You've done amazingly well.
+- [05:41.870] We've got -- we've got the gasoline prices
+- [05:44.380] coming way down from where they were.
+- [05:46.860] And it's really been something to watch.
+- [05:50.650] We are drilling like we haven't drilled in many years.
+- [05:54.810] I guess I could say ever before. And we just -- we just started.
+- [05:58.540] We're also lifting restrictions on defense cooperation
+- [06:01.860] between Azerbaijan and the United States of America.
+- [06:06.560] The President -- that's a big deal, unless --
+- [06:09.180] is that important to you?
+- [06:10.520] I think so. That was pretty good.
+- [06:12.840] That's -- they're very happy about that.
+- [06:14.930] So am I.
+- [06:16.140] As President, my highest aspiration
+- [06:18.150] is to bring peace and stability to the world.
+- [06:20.970] Today's signing follows our success with India and Pakistan.
+- [06:25.240] They were going at it. They were going at it big.
+- [06:28.140] And they were great --
+- [06:29.750] two great leaders that came together
+- [06:33.340] just prior to what would have been a tremendous conflict,
+- [06:35.990] as you know -- a nuclear conflict, probably.
+- [06:38.970] Also, the Congo and Rwanda.
+- [06:41.850] Now, that was one which was going on for 31 years.
+- [06:44.380] You have them beat.
+- [06:45.760] Thirty-five years, you have them beat.
+- [06:47.960] But that was going on for 31 years,
+- [06:49.920] and we have it all done. And people are very happy.
+- [06:53.640] That was a rough one. It was nasty.
+- [06:56.380] Seven million people that they know of died.
+- [06:59.780] Also, just recently, Thailand and Cambodia.
+- [07:03.490] That was one that was just starting.
+- [07:05.200] Two thousand people were dead on the border.
+- [07:08.030] But it was just starting.
+- [07:09.930] And I was talking to one of the two nations on trade,
+- [07:13.150] and I said, I'm not going to sign a trade deal
+- [07:14.910] if you guys are going to fight. And I got the other one.
+- [07:17.190] And again, great leadership -- Thailand and Cambodia.
+- [07:20.600] And before it got started,
+- [07:23.450] beyond that first couple of days, we stopped the war.
+- [07:26.820] And they've had wars periodically,
+- [07:29.130] much as you two have had long-term wars.
+- [07:32.350] And we got it stopped. And we -- the two -- again,
+- [07:36.840] I find, in all cases, they're great leaders.
+- [07:39.540] If they didn't agree,
+- [07:40.800] I would say they're lousy leaders, to be honest with you.
+- [07:43.060] But they did agree. And so, Thailand and Cambodia.
+- [07:46.640] Serbia and Kosovo.
+- [07:47.930] We got something stopped that was ready to start.
+- [07:49.980] We didn't like that one. We didn't like it at all.
+- [07:52.830] And we got -- saved a lot of lives.
+- [07:55.650] And numerous others.
+- [07:57.200] In addition, as you know,
+- [07:58.430] we took out the nuclear capability of Iran.
+- [08:01.960] And to use a term that people tried to dispute
+- [08:06.000] without any knowledge, it was obliterated.
+- [08:08.860] That's been confirmed by the Atomic Energy Commission's --
+- [08:12.960] everybody that saw it -- totally obliterated.
+- [08:14.580] They might try again,
+- [08:15.820] but they're going to have to try a new site, because they are --
+- [08:18.630] and I want to just say our military --
+- [08:20.060] we have the greatest military in the world.
+- [08:22.430] We have the greatest equipment in military manufacturing
+- [08:25.970] anywhere in the world, nobody even close.
+- [08:28.400] And that sort of proved it.
+- [08:29.730] So getting rid of that threat from the Middle East
+- [08:33.580] was very big. And I think a lot of people
+- [08:35.220] are going to be joining right now the Abraham Accords.
+- [08:37.680] It's going to be very important.
+- [08:39.100] So hopefully we're going to have many more successes.
+- [08:41.910] I hope we're not going to have too many more in this field,
+- [08:44.880] because hopefully we're not going to be
+- [08:46.950] seeing too many more wars. But we just --
+- [08:48.950] I came in, and this whole world was on fire.
+- [08:52.130] All these things were sort of happening.
+- [08:53.710] We've only been here for six months.
+- [08:55.880] The world was on fire.
+- [08:57.130] We took care of just about every fire.
+- [09:00.060] And we're working on another one that you're reporting
+- [09:02.930] on very strongly with Russia, Ukraine.
+- [09:06.810] And we'll have some more information for you
+- [09:09.500] a little bit later.
+- [09:10.970] But I want to ask these two very special people --
+- [09:14.410] again, I've gotten to know them. They're very special people.
+- [09:16.570] And I think they have the potential
+- [09:18.500] to have a great personal relationship,
+- [09:20.320] which is always good, but also a great just relationship.
+- [09:25.110] And if I might, may I ask you to say a few words, sir?
+- [09:30.350] President Aliyev: Thank you very much, Mr. President.
+- [09:31.990] First of all, thank you for the invitation.
+- [09:34.460] It's a big honor to be invited by the President
+- [09:38.050] of the United States for this historic event.
+- [09:42.320] Actually, we are writing a new history
+- [09:44.990] in bilateral interstate relationship
+- [09:47.620] between the United States and Azerbaijan.
+- [09:50.320] We are starting the path towards a strategic partnership.
+- [09:55.210] The chapter on strategic partnership
+- [09:57.500] will be elaborated within several months.
+- [10:01.380] And that is a historic achievement for Azerbaijan,
+- [10:04.970] because to be in the format of strategic partnership
+- [10:08.410] with the greatest country of the world
+- [10:11.820] is a great opportunity and also a very big responsibility.
+- [10:16.940] And this strategic partnership format embraces
+- [10:20.870] so many important areas --
+- [10:23.330] mutual investment, trade, energy, connectivity,
+- [10:27.380] transit, AI, defense sales, counterterrorism.
+- [10:33.280] So all these areas where we had and hopefully will have
+- [10:38.560] very active cooperation in the future.
+- [10:40.960] So it opens a lot of opportunities for Azerbaijan
+- [10:44.180] to continue its possible development,
+- [10:46.400] to diversify its economy,
+- [10:49.290] to keep unemployment low as it is today,
+- [10:53.250] and to look to the future with great optimism.
+- [10:57.730] Also, I'm very grateful to Mr. President
+- [10:59.820] that he today lifted the restrictions
+- [11:02.690] which been imposed on Azerbaijan back in 1992.
+- [11:06.940] Just only one year
+- [11:08.910] after Azerbaijan restored its independence,
+- [11:11.340] these restrictions have been imposed on us.
+- [11:15.180] So after 33 years,
+- [11:17.410] these restrictions have been lifted just today.
+- [11:22.660] So really, it's a day which will be remembered
+- [11:26.450] by the people of Azerbaijan with a feeling of pride
+- [11:30.380] and gratitude to President Trump for his attitude to Azerbaijan,
+- [11:35.290] for his vision for not only for our region --
+- [11:40.920] we were exchanging views today,
+- [11:42.480] and I said that within several months
+- [11:44.360] he managed to put an end to conflicts in Asia, in Africa,
+- [11:48.890] and now in Southern Caucasus --
+- [11:50.900] what we could not achieve for more than 30 years.
+- [11:54.160] We had to sacrifice lives.
+- [11:55.890] We had to fight two very bad wars with a lot of casualties.
+- [12:02.780] And if not for President Trump and his team,
+- [12:05.870] and our great friend Mr. Witkoff and his team, probably today
+- [12:11.160] Armenia-Azerbaijan would have been again
+- [12:13.160] in this endless process of negotiations.
+- [12:17.140] So really, it's a historic day.
+- [12:19.620] We are today establishing peace in the Caucasus,
+- [12:23.890] which will open great opportunities
+- [12:25.940] not only for our region.
+- [12:27.920] And as President Trump correctly mentioned,
+- [12:30.700] the Trump route for international peace
+- [12:33.090] and prosperity,
+- [12:34.510] which will create new connectivity lines,
+- [12:38.170] which will lift the walls,
+- [12:41.140] and which will create connectivity opportunities
+- [12:44.840] for so many countries with investments,
+- [12:47.730] with prosperity, with stability --
+- [12:50.330] you know, Azerbaijan and Armenia,
+- [12:52.370] we became independent at the same time
+- [12:55.140] as a result of the collapse of the Soviet Union.
+- [12:57.640] But at that time already, we were at war.
+- [13:00.990] So we lost a lot of years just being preoccupied
+- [13:05.720] with wars and occupation and bloodshed.
+- [13:10.090] So today, historic day, also because we bring peace.
+- [13:14.100] President Trump brings peace to Caucasus,
+- [13:17.610] and we are grateful for that.
+- [13:19.770] And I'm sure that Armenia and Azerbaijan
+- [13:23.420] will find courage and responsibility to reconcile,
+- [13:28.980] and also the people will reconcile.
+- [13:31.200] We will turn the page of standoff, confrontation,
+- [13:34.930] and bloodshed,
+- [13:36.380] and provide bright and safe future for our children.
+- [13:39.360] So I'm very happy,
+- [13:42.470] because today we are writing the great new history.
+- [13:46.000] And once again, Mr. President,
+- [13:47.460] thank you for all what you are doing for us,
+- [13:50.230] for our region, and for the whole world.
+- [13:53.110] Thank you. Thank you very much. Thank you.
+- [13:55.270] The President: All right.
+- [14:02.700] Great leaders, how long have you been in the leadership position?
+- [14:08.030] President Aliyev: Twenty- two years.
+- [14:09.230] The President: Twenty-two years. That's pretty good.
+- [14:10.740] That means he's tough and smart,
+- [14:13.270] and it's an amazing part of the world.
+- [14:15.890] Congratulations. Thank you.
+- [14:17.280] What a great honor to be involved.
+- [14:18.620] Thank you. Thank you very much. Please.
+- [14:22.530] Prime Minister Pashinyan: Thank you,
+- [14:23.780] Mr. President, ladies and gentlemen.
+- [14:26.050] Today we have reached a significant milestone
+- [14:30.080] in Armenia-Azerbaijan relations.
+- [14:33.120] We're laying a foundation to write a better story
+- [14:36.760] than the one we had in the past.
+- [14:40.350] This breakthrough would simply not have been possible
+- [14:44.920] without President Trump's personal engagement
+- [14:48.490] and his resolute commitment to peace in our region.
+- [14:53.740] The initial link of peace agreement
+- [14:56.580] will pave the way to end the decades of conflict
+- [15:00.820] between our countries and open a new era
+- [15:04.880] based on the full respect for the sovereignty
+- [15:08.410] and territorial integrity of each other.
+- [15:12.440] Today's sign, today's declarations,
+- [15:16.990] which President Trump personally will sign as well as witness,
+- [15:25.380] gives confidence and assurance
+- [15:27.960] that we are opening a chapter of peace,
+- [15:30.860] prosperity, security,
+- [15:32.920] and economic cooperation in the South Caucasus.
+- [15:37.280] In this context, allow me to highlight the agreement
+- [15:41.460] on opening transport communications in the region
+- [15:45.420] based on the principles of sovereignty,
+- [15:48.220] territorial integrity, and jurisdiction.
+- [15:51.180] I'm particularly thrilled that together with the U.S.,
+- [15:54.740] Armenia will work to bring to life
+- [15:57.420] the TRIP Trump route for peace and prosperity,
+- [16:02.020] a connectivity project that will unlock the entire region.
+- [16:06.810] TRIP will unlock strategic economic opportunities
+- [16:10.570] that will create long-term benefits.
+- [16:14.130] It will promote infrastructure investment,
+- [16:17.760] enhance regional connectivity, and strengthen U.S. leadership
+- [16:24.840] as a champion of conflict resolution.
+- [16:28.380] I want to thank President Trump and his team
+- [16:31.720] for brokering this game-changing outcome
+- [16:34.580] between Armenia and Azerbaijan.
+- [16:36.860] This is a great deal we've achieved today.
+- [16:39.950] This is a success for our countries
+- [16:42.730] and for our region, and a success for the world,
+- [16:47.250] because a more peaceful region means a safer world.
+- [16:51.810] This is peace through strength in a neutral.
+- [16:56.310] Mr. President, today's great achievement
+- [17:00.470] is yet another testimony to your global leadership
+- [17:04.550] and your legacy as a statesman
+- [17:07.280] and a peacemaker on the world stage.
+- [17:11.610] Bringing peace requires vision,
+- [17:15.790] political courage, and determination.
+- [17:19.090] But what is most important
+- [17:21.380] is that it requires faith in the cause.
+- [17:26.480] As it is said in the Holy Bible, “blessed are the peacemakers,
+- [17:32.150] for they will be called children of God.”
+- [17:35.840] May God enlighten this way.
+- [17:38.600] Thank you, and my congratulations to all of us,
+- [17:43.040] President Aliyev, to you, to all of us colleagues
+- [17:48.150] from Azerbaijan, Armenia, United States,
+- [17:51.540] and all the people of our region,
+- [17:56.210] all the people of our countries,
+- [17:58.410] and my congratulations to the world,
+- [18:02.190] because, as I said,
+- [18:03.890] it will definitely make the world a better place.
+- [18:09.200] Thank you.
+- [18:17.080] Male Speaker: The President of the United States,
+- [18:18.930] the President of the Republic of Azerbaijan,
+- [18:21.270] and the Prime Minister of the Republic of Armenia
+- [18:23.730] will now sign a joint declaration
+- [18:25.480] on the outcomes of the Trump Route
+- [18:26.900] for International Peace and Prosperity Summit.
+- [18:29.580] They will sign three copies in English.
+- [18:31.560] The President of the United States signs
+- [18:33.660] as a witness to the President of the Republic of Azerbaijan
+- [18:36.630] and the Prime Minister of the Republic of Armenia,
+- [18:39.020] affirming their path to peace, stability, and prosperity.
+- [18:42.620] We kindly ask that all guests remain seated
+- [18:44.850] for the signing of the documents.
+- [19:34.760] The President: That is so great, and we'll hold up --
+- [19:37.000] how about holding up that document, all right?
+- [19:58.060] Well, thank you. This is really a big day,
+- [19:59.980] and we have some other big announcements.
+- [20:01.670] But I didn't want to make them
+- [20:02.920] because I don't want to do anything that could even,
+- [20:05.700] in a little way, overshadow what's taking place today.
+- [20:08.150] Thirty-five years of death and hatred,
+- [20:11.370] and now it's going to be love and respect
+- [20:14.050] and success together.
+- [20:16.140] And I didn't really want to do anything that would,
+- [20:19.530] in any way, overshadow it.
+- [20:20.850] I don't think it can be overshadowed.
+- [20:22.770] When you're at war, and so many people have suffered,
+- [20:25.120] and so many people have been killed,
+- [20:27.210] and now you're going to have great peace.
+- [20:28.870] And I look forward to that corridor,
+- [20:30.290] because that corridor sounds --
+- [20:31.510] I'm going to have to get over there.
+- [20:33.070] I'll bring Senator Daines with me,
+- [20:35.480] and we're going to have to get over there, Steve.
+- [20:37.430] So -- but this is a really great achievement.
+- [20:41.000] And I congratulate you, you two incredible leaders.
+- [20:45.080] You're going to go down in history.
+- [20:46.980] And I've read the whole thing about how long it took,
+- [20:50.490] and you thought you were there, and people let you down.
+- [20:53.730] And sometimes you probably let people down.
+- [20:56.070] Maybe. I don't know how it works,
+- [20:57.560] but that's the way it usually does.
+- [20:58.890] But this is something that is very, very special.
+- [21:02.010] So I don't want to get in the way of it at all.
+- [21:04.460] But we'll take a few questions, maybe at least slightly related.
+- [21:08.610] But we have some other things to announce later on in the day.
+- [21:11.810] Peter, please.
+- [21:13.200] The Press: Related, just because
+- [21:14.440] you mentioned the elusive peace in Ukraine,
+- [21:18.020] who is holding up this Ukraine ceasefire summit?
+- [21:22.110] Is it Putin, or is it Zelensky?
+- [21:24.660] The President: Well, I think it's --
+- [21:26.080] that one is -- as you know,
+- [21:27.340] we've been working on a lot of these deals.
+- [21:30.030] We've closed every single one of them all throughout the world,
+- [21:33.030] and that's the last of them.
+- [21:35.180] And they're losing, Peter, about 6,000,
+- [21:38.320] maybe even 7,000 soldiers every single week.
+- [21:42.710] Russia, as you know,
+- [21:44.030] lost almost 25,000 over the last month and a half.
+- [21:47.190] And Ukraine lost just a small number, a few --
+- [21:52.340] a lot of people are dying.
+- [21:54.820] And I think we're getting very close.
+- [21:56.360] And we're going to be announcing later on --
+- [21:58.320] we're going to have a meeting with Russia.
+- [22:02.030] We'll start off with Russia, and we'll announce a location.
+- [22:05.440] I think the location will be a very popular one
+- [22:09.330] for a lot of reasons.
+- [22:11.020] But we'll be announcing that a little bit later.
+- [22:12.620] I just don't want to do it now
+- [22:13.840] because of the importance of what we just did.
+- [22:16.520] Yes, please. Go ahead.
+- [22:17.840] The Press: Just a follow-up.
+- [22:19.060] Are you surprised that Zelensky hasn't figured out by now,
+- [22:22.440] in years of war, how to deal with you
+- [22:26.040] and to deal with Putin without needing permission
+- [22:29.150] to make concessions from his parliament
+- [22:31.660] or from a national referendum?
+- [22:32.890] The President: Well, he's going out and getting what he needs.
+- [22:36.050] You know, he's not authorized to do certain things.
+- [22:38.670] I said, well, you're going to have to get it fast
+- [22:41.710] because, you know, we're getting very close to a deal.
+- [22:43.980] And he's doing that.
+- [22:45.230] And he's working with the European nations.
+- [22:47.040] And they're terrific people, terrific leaders --
+- [22:49.090] NATO. And as you know, I became very friendly with them.
+- [22:52.180] They agreed to go from 2 percent to 5 percent.
+- [22:55.110] Two percent that they didn't pay to 5 percent
+- [22:57.140] that they've already paid. That's trillions of dollars.
+- [23:00.140] So, you know, we're working together very closely.
+- [23:02.730] But no, in all fairness to President Zelensky,
+- [23:07.010] he's getting everything he needs to --
+- [23:10.120] assuming we get something done.
+- [23:12.250] But I'll be meeting very shortly with President Putin.
+- [23:16.320] It would have been sooner,
+- [23:17.700] but I guess there's security arrangements
+- [23:19.620] that, unfortunately, people have to make.
+- [23:22.300] Otherwise, I'd do it much quicker. He would, too.
+- [23:25.360] He'd like to meet as soon as possible.
+- [23:27.420] I agree with it.
+- [23:28.640] But we'll be announcing that very shortly.
+- [23:30.590] Okay? And location. Yeah, please. Please.
+- [23:35.690] The Press: Mr. President, with this meeting with Putin,
+- [23:38.510] is this Russia's last chance to achieve peace?
+- [23:41.760] And do you expect Ukraine
+- [23:43.040] to make any type of territorial concession?
+- [23:44.630] The President: Yeah.
+- [23:45.860] I don't like using the term “last chance.”
+- [23:47.550] Look, it's -- you know, look, this is a --
+- [23:50.770] two very, very smart people. They've been going at it for --
+- [23:54.330] and their predecessor is also very smart.
+- [23:56.880] They've been going at it for 35 years. It's tough.
+- [23:59.450] And, you know, when those guns start going off,
+- [24:01.490] it's awfully tough to get them to stop.
+- [24:04.300] It really does. It's a war that should have never happened.
+- [24:06.490] It would have never happened if I were President.
+- [24:08.250] There was no reason for it.
+- [24:09.940] So many people are killed. So much cultural destruction.
+- [24:13.940] You look at those magnificent towers --
+- [24:16.540] the most beautiful in the world.
+- [24:17.890] You know, the spires were considered
+- [24:19.470] the most beautiful in the world.
+- [24:20.750] They're all -- they're all in a million pieces,
+- [24:23.480] laying on the ground, all obliterated,
+- [24:25.840] knocked into a million pieces.
+- [24:28.060] So sad. But millions of people have died
+- [24:33.130] and very, very much set in their ways.
+- [24:37.200] A lot of people were set in their ways.
+- [24:39.500] But I think we're getting close.
+- [24:40.860] I mean, this was not my war. This was Biden's war.
+- [24:44.240] But the European Union has been great.
+- [24:46.520] As you know, they're purchasing equipment from us.
+- [24:48.670] They're spending -- they have a lot of money,
+- [24:50.930] and they're spending a lot of money on buying equipment.
+- [24:53.200] We're not spending money.
+- [24:54.420] We're -- but we are supplying them equipment.
+- [24:56.440] They're paying for it.
+- [24:57.800] And I think -- you know, I think that a lot of things
+- [25:01.290] happened recently that would make this go forward.
+- [25:05.020] I'm not going to mention anything
+- [25:07.000] having to do with India, but maybe that had an impact.
+- [25:09.450] But what really had an impact was NATO has stepped up
+- [25:13.780] in terms of their spending on buying military equipment.
+- [25:18.090] You know, we're in for -- probably,
+- [25:20.710] through Biden and his people -- $350 billion.
+- [25:24.380] Three hundred and fifty billion dollars?
+- [25:26.520] When they hear these numbers, you're saying,
+- [25:27.990] that's a lot of money.
+- [25:29.580] Three hundred and fifty billion dollars,
+- [25:31.630] the United States has spent on that.
+- [25:33.460] It should have spent nothing
+- [25:34.660] because it should have never happened --
+- [25:35.930] would have never happened.
+- [25:37.200] And Europe is in for over $100 billion, which is --
+- [25:41.210] it should be the opposite, if we were in for anything.
+- [25:44.800] But it should be the opposite.
+- [25:46.130] And I will say that Europe has --
+- [25:50.150] Europe wants to see peace.
+- [25:51.520] The European leaders want to see peace.
+- [25:53.820] President Putin, I believe, wants to see peace.
+- [25:56.820] And Zelensky wants to see peace.
+- [25:59.300] Now, President Zelensky has to get all of his --
+- [26:04.170] everything he needs,
+- [26:05.450] because he's going to have to get ready to sign something.
+- [26:07.920] And I think he is working hard to get that done.
+- [26:12.080] The Press: (inaudible)
+- [26:14.630] Well, you're looking at territory
+- [26:16.520] that's been fought over
+- [26:18.010] for three and a half years with --
+- [26:19.870] you know, a lot of Russians have died,
+- [26:21.320] a lot of Ukrainians have died. So we're looking at that.
+- [26:24.610] But we're actually looking to get some back
+- [26:27.650] and some swapping. It's complicated.
+- [26:30.670] It's actually nothing easy. It's very complicated.
+- [26:33.890] But we're going to get some back.
+- [26:35.890] We're going to get some switched.
+- [26:39.730] There'll be some swapping of territories,
+- [26:42.770] to the betterment of both.
+- [26:45.510] But we'll be talking about that either later or tomorrow
+- [26:47.970] or whatever. Yeah, please. Say it.
+- [26:51.640] The Press: If I could ask a question of your guests
+- [26:52.980] and also of you.
+- [26:54.200] The President: Yeah.
+- [26:55.480] The Press: Of the guests, will the Armenians
+- [26:57.050] from Nagorno-Karabakh be allowed to return?
+- [26:59.390] And also, do you have any thoughts on the talk
+- [27:01.810] about President Trump winning the Nobel Peace Prize?
+- [27:04.800] And for President Trump,
+- [27:06.850] you're working on resolving two other major conflicts in Gaza.
+- [27:10.440] You've spoke of resettling the Gazans.
+- [27:12.670] The country of Somaliland has expressed potential interest
+- [27:15.610] if you were to diplomatically recognize their independence.
+- [27:18.480] Are you inclined to do so?
+- [27:19.800] And also, did President Putin present an award to Mr. Witkoff
+- [27:24.400] during their recent visit?
+- [27:26.260] The President: He likes Mr. Witkoff,
+- [27:27.580] I can tell you that. That's true. Please, go ahead.
+- [27:34.490] President Pashinyan: I think President Trump deserved
+- [27:40.120] to have Nobel Peace Prize,
+- [27:43.590] and we will defend that and we will promote for that,
+- [27:50.490] and that's obvious. And today's event, I think,
+- [27:55.980] is a very bright expression of that,
+- [28:00.830] and hopefully, you will invite us.
+- [28:06.320] The President: Front row, you'll be front row.
+- [28:07.520] President Pashinyan: Yeah.
+- [28:08.720] The President: Thank you very much.
+- [28:10.040] President Pashinyan: We are in favor.
+- [28:11.330] The President: Thank you.
+- [28:12.570] President Pashinyan: Thank you.
+- [28:14.200] President Aliyev: Can I have a suggestion?
+- [28:15.530] The President: Yes.
+- [28:16.770] President Aliyev: So maybe we agree
+- [28:18.050] with Prime Minister Pashinyan
+- [28:19.740] to send a joint appeal to the Nobel Committee
+- [28:23.440] to award President Trump with the Nobel Peace Prize
+- [28:26.610] because from the leaders of the countries
+- [28:37.090] which were at war for more than three decades,
+- [28:40.140] having this historic signature here, it really means a lot.
+- [28:46.040] This is tangible result of President Trump's leadership,
+- [28:50.610] and no one could have achieved that.
+- [28:52.730] There have been many presidents here since beginning of 90s,
+- [28:58.800] and the so-called Minsk process, which, by the way,
+- [29:03.070] today we put an end to with my Armenian colleague,
+- [29:06.840] started in 1992.
+- [29:09.090] So negotiation under the auspices of OSCE
+- [29:13.110] continued for more than three decades without any result.
+- [29:18.150] So who, if not President Trump, deserves the Nobel Peace Prize?
+- [29:22.050] I don't want to go into the history
+- [29:25.130] of some very strange decisions of the Nobel Peace Committee
+- [29:29.680] to award the prize for someone who didn't do anything at all.
+- [29:34.670] But President Trump, in six months, did a miracle.
+- [29:38.490] So I think that my Armenian colleague will support it,
+- [29:42.090] and judging by the reaction of the audience,
+- [29:45.370] I think as soon as we come back,
+- [29:47.160] we will agree to issue a joint letter.
+- [29:51.170] And hopefully, and I also join when President is awarded,
+- [29:55.330] we hope that he will invite us to the ceremony.
+- [29:58.410] The President: You certainly will be.
+- [29:59.680] Thank you very much. Do we have draft to sign now?
+- [30:05.550] Well, we'll see what happens.
+- [30:08.810] Thank you very much. It's very nice.
+- [30:12.680] We're looking into that right now.
+- [30:13.990] Good question, actually, and another complex one,
+- [30:16.890] as you know, but we're working on that right now.
+- [30:19.810] Somaliland. Thank you so much.
+- [30:22.280] The Press: I wanted to ask you,
+- [30:23.480] have you spoken to Russian President Putin yet?
+- [30:26.320] And would you go to Russia? Ukraine?
+- [30:28.570] And what exactly would you say to him?
+- [30:29.940] The President: We'll be announcing the location
+- [30:31.560] in maybe a little while, and I think he'll be very happy.
+- [30:37.050] We'll see what happens, right? All we can do is do our best.
+- [30:41.070] We've been working on this one for a long time.
+- [30:42.800] This is a very complicated one also.
+- [30:44.600] This was extremely complicated, but we made it less complicated,
+- [30:49.580] and we had two very brilliant people on my right and my left.
+- [30:53.230] They understood what was at stake.
+- [30:55.550] I think if it didn't get done now,
+- [30:57.170] it might have never gotten done.
+- [30:59.250] So this is the same, very similar with Ukraine.
+- [31:01.950] It became more and more complicated as time went on.
+- [31:04.340] It was simple at the beginning. It wasn't going to happen,
+- [31:07.660] but it became more and more complicated.
+- [31:09.550] But I think we're getting close.
+- [31:10.870] Yes, ma'am. Yes, go ahead, please.
+- [31:15.080] The Press: Could the location for the summit be Italy?
+- [31:23.880] The President: I will give it to you very soon.
+- [31:25.170] I just, honestly, I don't want to do anything.
+- [31:27.440] These guys, I don't want to do anything where that's like,
+- [31:31.100] because this is a bigger story than a location.
+- [31:33.980] A location is good.
+- [31:35.620] I'm a real estate person. I know about location.
+- [31:38.110] But this, there's nothing to compete with this
+- [31:40.910] in terms of what we're doing today.
+- [31:44.720] It's just such a great achievement for these two.
+- [31:48.160] Really they'll go down as great leaders for what they did.
+- [31:50.380] I put them together, but what they have been able,
+- [31:53.820] and I don't want to do anything. So we'll talk about it later.
+- [31:56.700] Today. Today. We'll give you a location today.
+- [32:01.120] The Press: You were talking about sending military forces
+- [32:03.240] to fight against the drug cartels in Latin America.
+- [32:06.260] Do you think it's worth sending our forces,
+- [32:08.900] our U.S. forces there to take this on?
+- [32:10.810] The President: Cartels where?
+- [32:13.030] The Press: Central Latin America.
+- [32:14.630] The President: Latin America's got a lot of cartels,
+- [32:16.760] and they've got a lot of drugs flowing.
+- [32:18.330] So, you know, we want to protect our country.
+- [32:21.210] We have to protect our country.
+- [32:22.550] We haven't been doing it for four years,
+- [32:25.250] and we love this country like they love their countries.
+- [32:28.440] We have to protect our country.
+- [32:30.470] So, you know, we're playing a tough game,
+- [32:33.310] but we'll have more to say about that soon.
+- [32:35.920] The Press: Mr. President,
+- [32:37.150] I'm Salah from Azerbaijan News Agency Report.
+- [32:39.830] So we are grateful to be here.
+- [32:41.670] It's a today you host a truly historic meeting.
+- [32:45.560] As a person who values diplomacy and global interaction,
+- [32:48.640] do you consider the possibility to visiting Azerbaijan?
+- [32:51.550] Actually, you mentioned Azerbaijan and Armenia
+- [32:54.020] after this meeting. What? What?
+- [32:56.690] To visit our countries, do you consider to visit one?
+- [33:00.980] Which one do I consider better?
+- [33:03.250] The President: Both. Yes. Both. Both. Both.
+- [33:05.340] Oh, I think if I ever said that, that you would say,
+- [33:08.310] this guy couldn't have solved the problem.
+- [33:10.170] You know what? I consider them both great. OK?
+- [33:13.440] And you know what? They're going to be even greater.
+- [33:15.280] But and they're very different in many ways,
+- [33:17.780] but they have a lot in common.
+- [33:19.510] But they're both great, as far as I'm concerned.
+- [33:21.310] Yeah, please. It's an interesting question, right?
+- [33:23.990] That would have been a hell of an answer if I said,
+- [33:25.670] well, I think I think I like this one or that one.
+- [33:29.230] We don't do that. Go ahead, please.
+- [33:33.010] The Press: Mr. President, first of all,
+- [33:34.630] thank you for bringing peace to South Caucasus,
+- [33:38.020] something that no one has been able to achieve in 35 years.
+- [33:42.790] Thank you. That's number one.
+- [33:44.120] We also noticed that you think highly of the commitments
+- [33:47.440] that the sides have taken on and assumed.
+- [33:50.900] However, considering the long history of conflict
+- [33:53.970] and the fact that this is not a legally binding document,
+- [33:57.230] will there be consequences
+- [33:58.840] if at some point one of the sides takes a step back?
+- [34:03.850] The President: I don't think it's going to happen.
+- [34:05.230] I think it's going to be very good.
+- [34:07.480] And I told them I gave him a personal commitment.
+- [34:09.370] If there's you know,
+- [34:10.580] there's always little problems here and there.
+- [34:13.370] Right. The big ones have been solved.
+- [34:14.740] These are the giant ones have been solved.
+- [34:16.840] But if there's conflict,
+- [34:18.080] they both know they're going to call me
+- [34:19.330] and we're going to get it straight now.
+- [34:20.530] They're not going to have a problem.
+- [34:21.780] Where are you from?
+- [34:22.990] The Press: Armenia.
+- [34:24.200] The President: Okay, good. Very good.
+- [34:25.440] I was I was wondering it was a very unusual question,
+- [34:28.650] but it's not unusual considering you're from Armenia.
+- [34:31.300] If there's a problem, we will get it worked out.
+- [34:33.140] I told them both. Don't let the problem last.
+- [34:36.390] We get it early and we'll we'll get it.
+- [34:38.490] We'll get it solved.
+- [34:39.760] Good reporter you have over there.
+- [34:43.100] President Aliyev: Okay. First of all,
+- [34:48.810] I'd like to say that today we initialed the peace deal,
+- [34:54.510] which was in the process of negotiations for quite a while.
+- [34:59.280] The fact that it is initial here
+- [35:02.260] in the capital number one of the world,
+- [35:05.350] in the office number one of the world
+- [35:08.340] and in front of the great president of United States
+- [35:12.720] means that there should be no doubts
+- [35:14.990] and no suspicious that any of the sides would step back
+- [35:19.050] if some of if any of us,
+- [35:21.410] Prime Minister Pashinyan or myself
+- [35:23.610] had in mind to step back, we wouldn't have come here.
+- [35:26.790] So you can be absolutely sure,
+- [35:28.780] as well as Azerbaijani community,
+- [35:30.980] that what has happened today will result in peace,
+- [35:35.460] long lasting peace, eternal peace in the Caucasus.
+- [35:39.820] Prime Minister Pashinyan: That's a very nice.
+- [35:41.200] I'm sorry. I'm sorry. Fully agree and nothing to it.
+- [35:49.370] The President: That's a very nice two statements
+- [35:50.960] and that's a beautiful, beautifully stated statement.
+- [35:55.760] Let's go a couple of more. Yeah, please.
+- [35:59.210] The Press: The South Caucasus have pinned
+- [36:01.040] the blame on your predecessor, Joe Biden,
+- [36:03.580] and the Secretary of State Antony Blinken
+- [36:05.660] for obstacles in America's bilateral relations
+- [36:09.890] with Azerbaijan and peace in that part of the world.
+- [36:12.370] How important is it to you
+- [36:13.970] to elevate your your country's partnership
+- [36:17.320] and your administration's partnership with Azerbaijan,
+- [36:19.670] with Armenia?
+- [36:20.910] And how important is this for your legacy?
+- [36:23.510] The President: Well, to me, it's very important.
+- [36:24.850] But it's you know, I just I know the history of what was going on
+- [36:28.440] because I do a lot of reading and they've been vicious.
+- [36:32.510] You know, they've had a very contentious relationship
+- [36:35.520] for a long time. It's I mean, it's war.
+- [36:37.500] Most of the time was war.
+- [36:39.580] And so to get it done, they're great people.
+- [36:42.420] I know a lot of people from Armenia.
+- [36:45.040] I know a lot of people from both countries
+- [36:47.320] and they're incredible people.
+- [36:49.550] And it shouldn't happen. What has happened?
+- [36:52.040] I wish we could have been here sooner.
+- [36:54.330] You know, if the election were different,
+- [36:56.760] I'm going to be nice to them.
+- [36:57.980] I'm not going to be controversial
+- [36:59.230] and say the election was rigged.
+- [37:00.550] I would have had this thing solved four years sooner.
+- [37:03.230] But the truth is, it's right if the election weren't rigged,
+- [37:06.850] I would have been here four years sooner.
+- [37:08.220] We would have signed the same agreement four years sooner.
+- [37:11.110] But it didn't happen.
+- [37:12.360] And the Biden administration did really very little,
+- [37:15.820] actually nothing to get it done.
+- [37:18.730] But they did nothing to get really anything done.
+- [37:21.330] It was very this country was in very serious shape.
+- [37:24.530] The President: And I say it over and over again.
+- [37:25.990] I met all the leaders of NATO.
+- [37:27.650] I met I went, as you know, the Middle East.
+- [37:30.220] I was with the Kingdom, Saudi Arabia,
+- [37:32.110] the leaders of great countries, Qatar and UAE
+- [37:38.600] and others in the Middle East.
+- [37:40.500] And everyone essentially said the same thing.
+- [37:43.280] We had a dead country one year ago.
+- [37:46.110] We had a dead country. Our country was dying.
+- [37:49.020] And now we have the hottest country anywhere in the world.
+- [37:51.000] It's not even close.
+- [37:52.250] We have the hottest country in the world.
+- [37:54.960] And it's an honor to use that,
+- [37:57.640] if you call it power or respect or whatever it is,
+- [38:00.000] to settle wars like we have right here
+- [38:03.310] to my left and my right.
+- [38:04.520] And these two guys are very smart.
+- [38:06.290] I got to know them and they're very smart.
+- [38:07.920] They're not going to I don't think
+- [38:09.140] they're going to ever have to bother with me.
+- [38:10.700] And they may call me just to bug me a little bit.
+- [38:13.520] Let me put them to a test and they'll call
+- [38:15.480] because they like to call me.
+- [38:17.000] But they're not going to have any problem.
+- [38:18.520] We have a very comprehensive agreement.
+- [38:20.500] It's a peace agreement.
+- [38:22.180] And this isn't ceasefire. This isn't will hold up.
+- [38:25.130] This is a peace agreement. And they're going to end up
+- [38:28.010] doing a lot of business with each other.
+- [38:29.420] They're going to do a lot of business with the United States.
+- [38:31.650] And I'm going to always remember,
+- [38:33.810] at least during the time that I'm here,
+- [38:36.570] I'm going to remember how smart they were, how good they were.
+- [38:39.500] And when it comes to trade and other things,
+- [38:41.320] we're going to always go 100 percent out.
+- [38:44.820] We'll go out of our way to make sure it comes out good for them.
+- [38:47.550] They did an amazingly good thing and a very brave thing.
+- [38:52.660] It's a very complicated part of the world they come from,
+- [38:55.550] very tough part of the world.
+- [38:56.830] It's a tough, tough, but smart part of the world.
+- [39:00.870] Smart, tough people and great wealth,
+- [39:04.030] you know, great energy wealth.
+- [39:05.330] I was talking to Chris and he was saying,
+- [39:07.650] in terms of wealth, it's enormous wealth.
+- [39:11.410] But wealth doesn't often solve problems, takes other things.
+- [39:16.260] But they were they're amazing, two amazing leaders,
+- [39:20.170] and it's an honor to be associated with them.
+- [39:23.300] The Press: How about we'll do one more, please.
+- [39:25.750] Your gut instincts have always done well in terms of business
+- [39:30.100] and in terms of politics.
+- [39:32.040] What does your gut tell you as it relates
+- [39:34.190] to the possibility of an event like this in the next few weeks,
+- [39:38.820] the next few months in which you have President Putin
+- [39:41.540] on one side and President Zelensky on your other side?
+- [39:44.930] The President: I think my instinct really tells me
+- [39:47.430] that we have a shot at it, okay?
+- [39:49.250] And you'll find that out later on and maybe even today.
+- [39:52.710] But we have a shot at it. Look, it's got to be solved.
+- [39:56.630] You know, we're not losing people.
+- [39:59.250] A lot of people say, why are you bothering?
+- [40:01.350] We're not losing people.
+- [40:02.620] We were spending hundreds of billions of dollars.
+- [40:05.400] Now we're spending nothing. We're spending no money.
+- [40:08.670] I guess we're making money because, you know,
+- [40:11.980] we have the best military equipment in the world.
+- [40:14.190] We're bringing it to NATO.
+- [40:16.530] But you're losing thousands of people a week,
+- [40:21.030] Russians and Ukrainians, mostly soldiers.
+- [40:24.810] But, you know, missiles are lobbed into cities and towns,
+- [40:27.710] Kiev, lots of places.
+- [40:29.650] You've been reading the same stories that I've been reading.
+- [40:32.560] And we got to get it solved.
+- [40:36.390] The Press: The Norwegian Nobel Committee
+- [40:38.410] will make their announcement
+- [40:39.690] as it relates to this year's Nobel Peace Prize on October
+- [40:43.850] the 10th, Friday, October the 10th.
+- [40:45.950] Is that date circled on your calendar, Mr. President?
+- [40:48.610] The President: I can't say.
+- [40:49.940] I mean, a lot of people say, you know, no matter what I did,
+- [40:52.660] because, you know, I'm of a certain persuasion,
+- [40:56.390] no matter what I do, they won't give it.
+- [40:59.370] And I'm not politicking for it. I have a lot of people that are.
+- [41:02.950] I know. I mean, I read the same things as you do.
+- [41:07.000] But it would be a great honor, certainly.
+- [41:09.000] But I would never politic. I'm not doing it for that.
+- [41:12.520] I'm doing it because I really, number one,
+- [41:15.800] I want to save lives.
+- [41:17.120] That's why I'm involved so much with Ukraine and Russia,
+- [41:19.790] saving lives of Russians and Ukrainians.
+- [41:22.350] I'm not American lives.
+- [41:23.710] Now, I would say this.
+- [41:25.250] That war could have escalated into something much worse.
+- [41:28.160] That could have been a world war.
+- [41:30.420] I think if we didn't come, Ukraine,
+- [41:32.850] Russia would have ended up being a world war.
+- [41:36.310] And I stopped that. That stopped.
+- [41:39.350] Now, the only question is, when is it going to be settled?
+- [41:42.340] And it could be very soon. But when is it going to be?
+- [41:44.650] But that would have been a world war
+- [41:46.070] if I didn't come along with a very talented group of people
+- [41:49.720] sitting largely right here.
+- [41:51.160] But there are others not in the room that are very talented.
+- [41:54.710] I think Russia, Ukraine would have had
+- [41:56.260] a very, very high degree.
+- [41:59.520] I think even probably would have ended up being in a world war.
+- [42:03.920] I don't think people talk about that now
+- [42:05.330] because they don't see it anymore.
+- [42:06.550] But we brought it down a long way.
+- [42:10.730] But that was getting to a point --
+- [42:11.960] when I first came in, I said, wow, this thing is really bad.
+- [42:15.430] And it could have gone --
+- [42:16.680] it could have escalated to a level
+- [42:18.380] that you people would have been very unhappy with.
+- [42:25.090] The Press: Your predecessor, Mr. President,
+- [42:26.730] President Ronald Reagan, had a phrase
+- [42:28.790] as it relates to dealing with the then Soviet Union
+- [42:32.170] and also Mikhail Gorbachev.
+- [42:33.560] The phrase was "trust, but verify."
+- [42:36.050] Do you subscribe to that same view
+- [42:38.090] as it relates to Mr. Putin and Russia?
+- [42:39.970] The President: Well, I do relating to everybody.
+- [42:42.350] I mean, not just President Putin,
+- [42:44.990] but also people and leaders that I deal with.
+- [42:48.200] Look, I'm dealing with trade
+- [42:50.020] and some of the worst deals we made,
+- [42:51.900] some of the worst trade deals we have.
+- [42:54.220] I talk about friend and foe, right?
+- [42:56.440] Friend and foe. Two interesting words.
+- [42:59.180] Some of our worst trade deals were not with the foe.
+- [43:01.810] They were with the friends.
+- [43:03.390] Our friends were just killing us on trade.
+- [43:06.290] Not anymore. Not anymore.
+- [43:09.810] We're making -- you know, we're taking in
+- [43:12.770] trillions of dollars, and we're respected.
+- [43:15.650] And we're settling, you know, through trade.
+- [43:17.680] Even a little bit here, less here than on some.
+- [43:20.740] But through trade, I got things settled.
+- [43:23.620] With India-Pakistan,
+- [43:24.950] I think it was trade more than any other reason.
+- [43:27.550] That's how I got involved.
+- [43:28.880] I said, you know, I don't want to be dealing with countries
+- [43:31.440] that are trying to blow up themselves and maybe the world.
+- [43:34.150] You know, they're nuclear nations. That was a big one.
+- [43:36.630] Getting that one settled, I think you'd agree,
+- [43:39.330] that was a big one. And they were going at it --
+- [43:41.550] you know, they were shooting airplanes out of the sky.
+- [43:43.670] You know, they -- five or six planes
+- [43:46.050] got shot down in their last little skirmish,
+- [43:48.990] and then it was going to escalate from there,
+- [43:50.750] and that could have gotten to be very, very bad.
+- [43:52.770] Now, I want to save a lot of lives.
+- [43:54.640] I love saving lives. That's what it's about.
+- [43:56.660] You know, when you save lives,
+- [43:58.230] you really end up having a peaceful world.
+- [44:00.720] Usually, that ends up pretty well.
+- [44:02.310] I want to thank everybody, but in particular,
+- [44:04.350] these two great leaders for having the courage
+- [44:06.890] to do what they did today,
+- [44:08.360] and they're going to go down in the history books.
+- [44:10.760] And it's a great honor to be involved. Thank you very much.
+- [44:14.760] (applause)
+- [44:21.320] The President: Thank you.

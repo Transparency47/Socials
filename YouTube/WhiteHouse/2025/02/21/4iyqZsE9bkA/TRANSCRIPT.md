@@ -1,0 +1,1610 @@
+<!-- source: https://www.youtube.com/watch?v=4iyqZsE9bkA -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 4iyqZsE9bkA -->
+<!-- date_published: 2025-02-21T22:52:18+00:00 -->
+<!-- date_accessed: 2026-06-02T01:29:34.927912+00:00 -->
+
+# Transcript: President Trump Delivers Remarks at the Governors Working Session
+
+- [00:03.320] The President: Lovely. Well, we're in a very good mood.
+- [00:08.480] We just had the highest poll numbers I've ever had, ever.
+- [00:17.190] And actually a record for a Republican.
+- [00:20.430] Now, I don't know about have they checked the Democrats too,
+- [00:23.880] but we have a record so far for Republican,
+- [00:26.010] now it's four weeks. We have a lot of weeks to go.
+- [00:28.810] We want to finish that way, right.
+- [00:30.800] But I just want to thank everybody
+- [00:32.280] because you've been really amazing.
+- [00:34.410] The job you've done has been incredible
+- [00:36.690] in terms of this four-week period,
+- [00:38.200] it's been a very somewhat historic four weeks
+- [00:40.950] and we have a couple of things in the works.
+- [00:44.310] We're negotiating with Russia, Ukraine,
+- [00:46.270] trying to get that horrible situation over with.
+- [00:49.160] It's terrible. It's just so terrible.
+- [00:53.040] I see pictures that you fortunately don't get to see.
+- [00:56.160] You don't want to see them, and that is a killing field.
+- [01:00.390] They have young soldiers being killed thousands a week
+- [01:04.050] and we got to get it over with.
+- [01:06.020] It's bad for Russia and it's bad for Ukraine
+- [01:08.790] and it's bad for us on a humanitarian basis.
+- [01:12.150] I've had very good talks with Putin
+- [01:13.860] and I've had not such good talks with Ukraine.
+- [01:17.700] They don't have any cards, but they play it tough.
+- [01:21.780] But we're not going to let this continue.
+- [01:24.240] This war is terrible.
+- [01:26.520] It would've never happened if I were President,
+- [01:29.800] but it did happen, so I got stuck with it
+- [01:32.160] and the whole world is stuck with it.
+- [01:34.600] And right now you have a country that has its cities,
+- [01:37.920] they look like demolition sites, those beautiful towers,
+- [01:41.280] those thousand-year-old golden domes
+- [01:43.380] that were so beautiful, the most beautiful in the world,
+- [01:45.710] they say, they're all in smithereens.
+- [01:48.960] Millions of people are killed.
+- [01:50.320] I think far more people than anyone understands,
+- [01:53.640] and we have people that better get to the table, get it ended.
+- [01:59.470] Should have never happened. It would've never happened.
+- [02:02.580] But I'm delighted to welcome America's governors
+- [02:06.430] to the White House. You're amazing people.
+- [02:08.800] Even the Democrats are amazing people, some of you.
+- [02:12.440] And we've worked together,
+- [02:13.750] actually we work very well together.
+- [02:15.890] I can't think of anybody.
+- [02:17.170] There's one or two, that it doesn't work out so well,
+- [02:20.000] but that's sort of normal. But I do want to welcome you
+- [02:24.640] and I want to let you know that anything I can do,
+- [02:26.670] I'm here, I'm here for you and we can do a lot.
+- [02:31.380] I do want say that I left a great place North Carolina
+- [02:37.830] and we're really working hard there, since I've been in.
+- [02:42.810] For four weeks, we've done more than they did
+- [02:45.250] in all of the period of time. And FEMA was a disaster.
+- [02:50.440] FEMA wasn't there. They didn't do the job
+- [02:53.790] and it was a terrible, terrible situation.
+- [02:56.620] I've never seen anything like it.
+- [02:59.010] And then they actually,
+- [03:00.730] when they did get their very small group,
+- [03:03.250] they chose anybody with an American flag
+- [03:05.810] or the name Trump on the front of the house.
+- [03:08.200] They would sort of skip that house very nicely
+- [03:11.230] and it was just a disaster.
+- [03:13.340] And we've done it the other way and we're working with
+- [03:17.600] a very, very nice person that we've had good relationships.
+- [03:22.690] The newly elected Democrat governor who's here,
+- [03:26.890] I assume, is he? Okay, thank you very much.
+- [03:29.840] We're working well together, very well together,
+- [03:32.450] and we're not using FEMA so much,
+- [03:33.850] but it doesn't matter as long as we get the job done.
+- [03:36.190] But the people that becoming very happy.
+- [03:39.400] So I want to thank you very much.
+- [03:40.750] Great job. But we are, and I'm of the opinion,
+- [03:45.340] I understand FEMA very well.
+- [03:46.910] We had a good situation with FEMA,
+- [03:48.460] but it was a very expensive thing to do.
+- [03:50.670] And I really believe when there's a natural disaster,
+- [03:53.140] a hurricane, a tornado or whatever it may be,
+- [03:56.920] you're a very capable people.
+- [03:58.530] It's called you fix it. You take care of it yourselves.
+- [04:01.460] You don't have to call some faraway state
+- [04:04.100] and have people planed in from areas that they have no idea.
+- [04:09.510] They come in from Alaska to help you in Florida.
+- [04:12.810] They say, "Well, this is hot here."
+- [04:15.210] By the time they figure it out, everything would've been fixed.
+- [04:19.080] It's not a good situation. It's very expensive.
+- [04:21.890] You spend at least twice as much.
+- [04:24.860] They don't negotiate.
+- [04:26.140] They go out and hire local contractors
+- [04:28.000] and they have no idea who they are.
+- [04:30.050] And I'd rather have my governor from South Carolina, Henry,
+- [04:35.400] I'd rather have Ron. From Florida, I'd rather have,
+- [04:39.700] I could name just about everybody in this room.
+- [04:42.820] I'd rather have you do it.
+- [04:44.320] You'll save a lot of money and we'll send the bill.
+- [04:47.750] The bills we'll pay, I think far less.
+- [04:51.540] We have to have, you have a little bit of skin in the game,
+- [04:55.660] otherwise those bills will be much higher
+- [04:57.630] than they're supposed to be, especially with a couple of you
+- [05:00.560] in this room who I know very well,
+- [05:01.810] get bills that you wouldn't believe, record setters.
+- [05:05.210] So I think 70, 25 with the government,
+- [05:08.520] the federal government paying 75.
+- [05:11.320] And we'll go right through to the, I think go right through
+- [05:16.130] probably the go through Commerce,
+- [05:18.120] maybe go through Marco,
+- [05:19.780] 'cause Marco's very good with money.
+- [05:21.990] I don't think I'm going to give them
+- [05:23.390] to the environmental gentleman, Lee Zeldin here,
+- [05:25.680] 'cause Lee's going to say,
+- [05:26.910] "What's this all about? They gave me this too."
+- [05:28.910] You have found some big stuff, by the way, some big fraud.
+- [05:33.440] As he said, this one's not even explainable.
+- [05:35.460] We're talking about billions of dollars.
+- [05:37.040] So great job, Lee. Really, it's sad,
+- [05:40.170] but it's a great job you've done in a very short period of time.
+- [05:43.050] But I think Marco or Scott or Howard,
+- [05:48.720] wherever Howard may be, we want to congratulate him.
+- [05:51.810] He did a great… It was a great session.
+- [05:54.350] He got no Democrat votes.
+- [05:55.840] He's been a Democrat all his life
+- [05:57.370] and he got no Democrat votes.
+- [05:58.580] They all called him to apologize and honestly that shouldn't be,
+- [06:02.840] but he got approved yesterday.
+- [06:05.570] But today I'm delighted to welcome America's governors
+- [06:07.920] to the White House
+- [06:09.160] and I've known many of you for a long, long time,
+- [06:11.830] and this week we're forging even stronger bonds of cooperation
+- [06:15.480] to better serve the American people.
+- [06:18.670] I also want to thank the members of my Cabinet
+- [06:21.190] who have joined us for this meeting
+- [06:24.220] and they have gone right off the bat.
+- [06:27.720] And I also want to thank Senator Thune
+- [06:31.530] because I'm hearing we set a record on approvals
+- [06:34.510] and I was screaming.
+- [06:35.740] I thought it was going so slowly and we have a record,
+- [06:39.850] so I apologize to anybody I screamed at.
+- [06:45.120] But no, it was announced this morning.
+- [06:46.730] I think we had a record for the number of positions,
+- [06:49.140] so that's great. And they're great people.
+- [06:52.030] So I'll begin by introducing Secretary of State, Marco Rubio.
+- [06:57.600] He scares me because he got 99 votes.
+- [07:01.200] So that's either unbelievably good,
+- [07:03.760] 'cause he's an incredible diplomat and
+- [07:05.390] therefore he Secretary of State and you couldn't have picked,
+- [07:07.760] or I'm a little nervous about you Marco.
+- [07:12.380] And the only vote he didn't get was our vice president
+- [07:15.080] who couldn't vote because he had just left.
+- [07:18.030] So that's a… You got 100%, but it really says something.
+- [07:21.180] I think it says working together.
+- [07:23.310] It's an amazing tribute, I think.
+- [07:27.200] I'll let you know about it in about two years, everybody.
+- [07:31.860] Marco's been great and he is been in some big meetings
+- [07:35.130] with people at the highest level of states that we would say,
+- [07:41.220] states, meaning other countries,
+- [07:44.700] that we would've said wouldn't have dealt so well,
+- [07:46.530] but they're dealing very well.
+- [07:47.750] You have a great group of people
+- [07:49.120] with Steve Witkoff and Michael Waltz,
+- [07:52.340] and we're making amazing progress.
+- [07:54.790] I mean, we've made more progress on that situation,
+- [07:57.340] which is Ukraine, than they have in three years.
+- [08:01.270] Again, so sad that it began,
+- [08:02.760] but we're also working very hard in the Middle East.
+- [08:05.360] Another one that wouldn't have happened.
+- [08:06.970] We would never have had.
+- [08:08.170] You wouldn't have had October 7th, they had no money.
+- [08:11.170] Iran was broke.
+- [08:13.090] We had sanctions up on Iran that nobody's ever seen before.
+- [08:16.740] They were literally broke
+- [08:17.990] and they were not giving any money to Hezbollah, to Hamas.
+- [08:23.780] And how about Hamas yesterday with the babies?
+- [08:25.720] How about that? We're going to take that.
+- [08:27.940] We're going to continue to take that?
+- [08:29.870] I don't think so.
+- [08:32.500] But I want to just thank you, Marco,
+- [08:33.910] for doing a great job. And, Scott, you also.
+- [08:36.590] Scott went all the way to Ukraine.
+- [08:39.890] I said, "Don't do it. That's why they have telephones."
+- [08:42.510] But he look, it's always better to meet in person,
+- [08:45.850] but I just didn't feel that it was good and it was dangerous.
+- [08:50.700] You saw things on that train ride that you didn't like.
+- [08:52.820] I understand. It's a pretty dangerous ride.
+- [08:55.020] The long ride, how long was that?
+- [08:56.360] Mr. Bessent: 10 hours.
+- [08:57.620] The President: 10-hour ride, that's after you get there.
+- [09:00.610] And a very dangerous journey. But he wanted to do it.
+- [09:03.540] He's a patriot. He wanted to do it.
+- [09:04.870] It's better to do it than it is with a telephone.
+- [09:06.770] Always better.
+- [09:08.010] I always say much better to meet in person,
+- [09:09.840] but that was dangerous. I didn't like…
+- [09:11.930] I like him, therefore I didn't want him to do it.
+- [09:14.460] If I didn't like him, I would've suggested he do it.
+- [09:16.980] In fact, I'd say, "Go back today and let's give it another shot."
+- [09:23.020] But I hear that they're going to agree pretty much with what…
+- [09:25.960] But that's not the big thing.
+- [09:28.110] The big thing is getting it done and we'll get it done.
+- [09:33.680] Also, somebody who's been so popular
+- [09:36.290] right from the beginning, very, very little opposition,
+- [09:39.760] but she's fantastic.
+- [09:41.000] She was the Attorney General of Florida for eight years.
+- [09:44.040] Highly respected and just an amazing person,
+- [09:47.600] amazing leader and woman. Pam Bondi.
+- [09:50.980] Good. Pam. How's it going? Good. You got enough work?
+- [09:56.070] You got a lot of work over there.
+- [09:57.910] I'll tell you, man.
+- [09:59.560] She's going to be unbelievable. I don't even think about it.
+- [10:02.740] Interior secretary, Doug Burgum and Doug,
+- [10:06.320] I don't know if Doug's here, he was last night.
+- [10:08.530] Oh, good. You just disappear right into the woodwork.
+- [10:12.720] Doug is a man who made a lot of money actually,
+- [10:14.950] but in technology, sold to Microsoft
+- [10:17.770] [inaudible 00:10:15]
+- [10:19.060] and decided he wanted to do a Trump thing,
+- [10:21.180] and he did, and he won easily.
+- [10:24.110] Then he became a great governor of North Dakota, really good,
+- [10:30.050] and he was all of a sudden
+- [10:32.330] thrown into the oil business, right.
+- [10:33.930] And he took that to a level that nobody ever thought possible.
+- [10:37.660] The job you've done there has been amazing.
+- [10:39.810] And I watched
+- [10:41.080] [inaudible 00:10:39] then I said, "I like that guy."
+- [10:43.330] He was one of the few that didn't hit me.
+- [10:46.060] He was after my position,
+- [10:48.260] but he never said anything bad about me.
+- [10:49.880] I said, "Okay, that's one checklist that we have good."
+- [10:53.720] It's one of the ones, but he was an amazing governor
+- [10:57.820] and he really became an expert on energy.
+- [10:59.970] And when I was with him,
+- [11:02.910] I realized I wanted him someplace.
+- [11:04.360] I didn't know exactly where,
+- [11:05.600] but I thought it would be the Department of Energy,
+- [11:07.560] I kept talking, because the state has done so well,
+- [11:10.610] and I said, "Look, I want you to just hold it
+- [11:14.730] and I want to put you there."
+- [11:16.280] He said, "Sir, I have somebody much better than me on energy."
+- [11:18.700] "Who?" "Chris Wright."
+- [11:20.400] I said, "Who the hell is Chris Wright?"
+- [11:23.050] Is Chris here? I don't even know.
+- [11:25.000] Is Chris here? Hello, Chris.
+- [11:26.710] Boy, am I giving him some buildups,
+- [11:28.150] I did the same thing last night.
+- [11:29.520] But he's the top guy in the whole,
+- [11:32.200] they say on the on the planet for energy
+- [11:35.730] in all forms of energy, even clean, beautiful coal
+- [11:39.600] that we're going to be using like Germany does now,
+- [11:42.140] they're opening up a plant a week.
+- [11:44.350] And they're opening up in China more than,
+- [11:47.690] somebody told me two plants a week,
+- [11:49.440] but we're supposed to use the wind,
+- [11:51.170] which doesn't work, doesn't work from a practical standpoint,
+- [11:54.390] but I just want to welcome you
+- [11:56.010] 'cause you had the greatest, man, when he said…
+- [11:58.450] You're probably the only man 'cause I know, Doug.
+- [12:00.440] He's got a big ego and you're the only man,
+- [12:04.150] I've actually heard him say something.
+- [12:05.960] He said, he's so much better than me on energy.
+- [12:08.050] He's better than anybody. And so we made a move
+- [12:10.810] and you gave up a tremendous position to do this
+- [12:14.250] and we want to thank you, but we have to get going
+- [12:18.010] because when we bring the energy costs down,
+- [12:20.490] we have more energy than anybody in the world.
+- [12:22.540] We just didn't use it. Can you imagine?
+- [12:24.680] Biden set us up in Venezuela instead of taking
+- [12:26.550] [inaudible]
+- [12:27.750] so that we go to Venezuela where then have very heavy stuff
+- [12:32.630] and we have the best stuff in the world.
+- [12:34.180] We have more liquid gold
+- [12:35.450] and it's really great liquid gold too.
+- [12:37.220] We have more under our feet than anybody else.
+- [12:39.700] But we went to Venezuela to buy oil
+- [12:42.160] instead of taking it from our own land
+- [12:44.620] and drilling a little hole in the ground
+- [12:48.030] about how big is that hole, about a foot?
+- [12:50.330] Mr. Bessent: Taller. [inaudible].
+- [12:51.590] The President: About a foot, yeah.
+- [12:53.520] We draw a little tiny hole and we could have taken it
+- [12:56.580] instead of all of the problems.
+- [12:58.380] And then we've made Venezuela strong again.
+- [13:01.890] They've given them a lot of money.
+- [13:03.640] They never thought they were going to have so much money
+- [13:05.450] and all the people are leaving.
+- [13:06.660] So you're going to have one guy sitting there
+- [13:09.040] with a lot of oil under his feet.
+- [13:11.390] That's not a good situation.
+- [13:13.120] But we're having talks about that whole mess.
+- [13:15.770] What a mess. That was another one that was done.
+- [13:18.040] He was ready to quit. He was going to be out.
+- [13:20.680] Marco, you know that better than anybody.
+- [13:22.300] Marco has been very staunch against what took place there.
+- [13:26.250] And we're going to have that in any form we wanted it,
+- [13:30.290] but Biden made them strong.
+- [13:32.620] It was the worst administration in history.
+- [13:35.180] And I say that with a lot of Democrats,
+- [13:37.350] but I think you believe it too.
+- [13:38.910] You can't say it, but you believe it.
+- [13:40.960] But I just want to thank you.
+- [13:42.320] And if you get those prices down,
+- [13:43.940] that's what caused inflation, the energy.
+- [13:45.740] I mean, the spending, but I think even more so the energy.
+- [13:49.600] The energy went up, they stopped the oil leases,
+- [13:51.790] they stopped a lot of things that we were doing,
+- [13:53.680] and then they went back
+- [13:54.920] to what we were doing as much as they could
+- [13:56.560] 'cause the prices were going through the roof.
+- [13:58.190] Remember that initial surge?
+- [13:59.530] It was brutal. And they went back.
+- [14:02.010] They let any rig that we had up just drill,
+- [14:07.420] and they ended up doing similar numbers.
+- [14:11.190] But we wouldn't have been at those numbers.
+- [14:12.830] We would've been double or triple those numbers.
+- [14:15.020] Those were from years ago. But energy caused our problem.
+- [14:19.070] But I just want to thank you for recommending him.
+- [14:21.870] And what we've done is he's the head of Department of Energy.
+- [14:25.600] He's Department of Interior.
+- [14:28.190] And it's really screwy because the Department of the Interior
+- [14:31.400] has all the energy other than some nuclear energy
+- [14:35.100] that you're in charge of. But here's all the energy,
+- [14:37.930] here's all the land, all the great places, best…
+- [14:41.240] We have more than any other country in the world.
+- [14:42.870] And he's in charge of it.
+- [14:44.150] The problem is he can't drill and he drills,
+- [14:47.190] but he has no land. So what do we do?
+- [14:49.350] We said, "I have an idea. Let's merge them."
+- [14:51.970] So we merge them, intellectually.
+- [14:54.200] I don't know if we did it legally,
+- [14:55.530] but we did it intellectually.
+- [14:57.610] So now he gives up the land and he gives up the drillers.
+- [15:00.400] And you're going crazy, right.
+- [15:02.490] You're going wild and you'll do it beautifully,
+- [15:04.380] environmentally well, Lee, will make sure,
+- [15:07.070] but we have a lot of things. But we had a merge.
+- [15:10.460] I always wondered, why doesn't the energy department do more?
+- [15:14.540] And they did do more 'cause they don't have any energy.
+- [15:16.690] It's the craziest thing I've ever seen.
+- [15:18.250] We'll probably have to make maybe even a change in that,
+- [15:21.170] somehow merge them or do something
+- [15:23.130] 'cause it's pretty tremendous
+- [15:25.700] what you're going to be able to do.
+- [15:27.870] Agricultural Secretary, Brooke Rollins, who's so fantastic,
+- [15:32.410] and she's been at the head of so many different things
+- [15:35.440] and loyal from the beginning.
+- [15:37.490] She even opened up when we had a rather shocking defeat.
+- [15:42.860] She opened up a, we call it an institute.
+- [15:47.200] I've never seen anybody raise money like her.
+- [15:48.940] She raised hundreds of millions of dollars
+- [15:51.800] on this fabulous thing.
+- [15:53.960] But I said, "Look, we want to win another race
+- [15:56.170] because I think it's really important to win twice."
+- [15:59.660] And I won three times if you think about it.
+- [16:02.400] But only the Republican smile
+- [16:04.410] when I say it happens to be true.
+- [16:06.350] But Brooke has been amazing.
+- [16:08.700] And it was really tough because this last election,
+- [16:12.730] I go to a person, they say,
+- [16:14.190] "Sir, I just gave you $10 million."
+- [16:16.250] "Oh, where did you give it to?" "I gave it to Brooke."
+- [16:19.080] "You gave it to Brooke, she's spending it on policy.
+- [16:21.860] We don't have to worry about policy.
+- [16:23.120] We have to worry about getting elected, right."
+- [16:25.610] But Brooke is fantastic and she's done such a good job
+- [16:28.220] and she's Make America Great Again,
+- [16:31.210] top of the line, right. And what I didn't know,
+- [16:35.040] and as soon as I found out I said,
+- [16:36.640] that's that, she studied. That's what she studied.
+- [16:38.960] Agriculture. She knows everything about it.
+- [16:42.160] And she's going to be a fantastic secretary.
+- [16:44.290] And you'll do something with the eggs
+- [16:47.020] 'cause I'm hearing so much about eggs.
+- [16:48.420] You'll figure it out. You got to figure something out fast.
+- [16:51.310] But we inherited all of the problems.
+- [16:53.790] At some point, a few months down the road,
+- [16:56.640] we won't be able to say it's so much us.
+- [16:59.410] But the big things really, we can blame other people
+- [17:04.430] to allow criminals into our country
+- [17:06.220] at levels that nobody's ever seen before,
+- [17:08.240] to allow people from jails to have…
+- [17:11.310] Countries from all over the world
+- [17:12.870] be allowed to empty jails into an open border.
+- [17:15.890] They emptied jails and prisons, mental institutions,
+- [17:21.750] insane asylum, gang members, drug lords,
+- [17:24.270] drug people, people on drugs, people that are very sick,
+- [17:29.500] they allow them to come into our country
+- [17:31.990] totally unchecked, unvetted.
+- [17:34.370] And right now we have a great gentleman, Tom Homan,
+- [17:37.330] who's doing an unbelievable job,
+- [17:38.790] and Kristi Noem, they're doing a great job.
+- [17:42.730] But it's something we should have never had to be done.
+- [17:47.580] And you see the levels of crime that…
+- [17:49.430] These are serious. They make our criminals look nice.
+- [17:53.000] I'll tell you, that's the only thing we get out of it.
+- [17:54.910] Our criminals are very nice people by comparison.
+- [17:57.210] These are seriously tough people.
+- [18:01.910] The various gangs, whether it's MS-13 or the Venezuelan gangs,
+- [18:07.220] nobody's ever seen toughness like this.
+- [18:10.700] Secretary of Health and Human Services.
+- [18:14.790] Nobody knows this particular gentleman.
+- [18:17.070] He sailed right through. I thought he'd get a lot of…
+- [18:20.500] I said, "Well, he's going to get a lot of Democrat votes. Ron."
+- [18:22.820] I said, "He's going to be an easy one, right."
+- [18:24.640] I told Ron DeSantis, I said, "This one's going to be so easy.
+- [18:27.860] He's going to get all those Democrat votes. I don't know."
+- [18:30.520] Thank goodness for the Republicans, right.
+- [18:32.440] Robert F. Kennedy. And where is Bobby?
+- [18:36.330] Where is Bobby? So congratulations.
+- [18:39.160] Was that as easy as you thought? Just quit?
+- [18:41.410] Well, in the end, they all voted for him.
+- [18:43.790] He did pretty well. You got through.
+- [18:46.130] But we have one stat that I quote, the autism stat,
+- [18:51.530] and you hear different numbers, but it's thousands.
+- [18:55.120] They say between 10 and 20,000.
+- [18:57.220] So if you go back 15 years ago, we had like nobody.
+- [19:04.210] It was one in 20,000.
+- [19:07.750] Now we have one in 34, is that right?
+- [19:11.050] 34. So 34 or 36 kids have autism.
+- [19:17.480] And if you go back, I guess 18 years whenever that was done,
+- [19:22.900] it was one in 20,000.
+- [19:25.280] So we've gone from 20,000 to 34, 36.
+- [19:30.970] That's unbelievable. So there's something wrong.
+- [19:35.560] There's something wrong. We've done something wrong.
+- [19:39.380] There's something, you're going to figure it out.
+- [19:41.440] Maybe it's a spray that we spray
+- [19:43.680] all over the place that nobody else does.
+- [19:45.780] Other countries don't.
+- [19:48.850] The Pennsylvania Dutch, they don't do anything
+- [19:52.150] and they're amazingly healthy and he understands.
+- [19:55.950] He's working with Dr. Oz, who's a really smart guy.
+- [19:58.220] I know him very well.
+- [19:59.470] And those two guys are going to figure it out.
+- [20:01.750] They're also going to figure out why in the United States
+- [20:05.220] we pay $1,300 for a drug, one that we were talking about,
+- [20:10.640] and in London they pay, literally they pay $200,
+- [20:16.020] even less, $88 I heard in one case yesterday.
+- [20:19.530] They pay $88, we pay 1,300 for the exact same drug
+- [20:23.440] from the exact same factory,
+- [20:25.090] from the same plant where it's made.
+- [20:29.340] We got to figure that out.
+- [20:31.270] So I hope you focus really a lot on the cost too,
+- [20:33.920] because Americans are being screwed and it's no good.
+- [20:39.330] They're not going to put up with it.
+- [20:41.540] Secretary of Housing and Urban Development,
+- [20:43.500] another one I know very well,
+- [20:44.790] he's going to be fantastic, Scott Turner.
+- [20:46.850] So Scott, congratulations. Man, oh man, you are something.
+- [20:50.960] He got up and we had a great meeting yesterday, right?
+- [20:55.050] He got up and spoke. He's a good speaker that one.
+- [20:58.720] And everybody loves you. Everybody knows you, great guy.
+- [21:03.120] You're going to do fantastic.
+- [21:04.400] Well, he got a good recommendation from Ben Carson.
+- [21:07.400] Once Ben Carson recommended you,
+- [21:08.950] I said, "All right, that's okay."
+- [21:10.380] We love Ben Carson. Nobody like Ben.
+- [21:13.370] Secretary of Energy, I introduced, Chris Wright,
+- [21:15.890] and Secretary of Veterans Affairs, Doug Collins.
+- [21:19.320] I know Doug so well. Oh, where's Doug? Where's Doug?
+- [21:23.100] That voice during the Mueller hearings, that beautiful voice.
+- [21:27.060] Do you know… Remember the catastrophe that…
+- [21:29.360] Every Democrat remembers this when Mueller went to testify.
+- [21:33.410] This was not a good situation. That's where it all ended, Pam.
+- [21:37.470] When he didn't know anything about anything
+- [21:39.160] and Doug had said,
+- [21:40.450] "You don't know what we're talking about, do you?"
+- [21:43.530] "No." This was not a good day for them,
+- [21:46.710] but it was a good day for justice
+- [21:48.750] I can tell you that, for fair justice.
+- [21:51.930] EPA Administrator, Lee Zeldin. He ran for governor of New York.
+- [21:56.820] In theory, you have no chance, but actually he almost won.
+- [22:02.680] It was a fantastic run, amazing run.
+- [22:05.930] And he's very smart. He was a Congressman.
+- [22:08.160] He was fantastic on the hoax, the various hoaxes.
+- [22:13.240] I had a lot of hoaxes.
+- [22:14.480] So many I don't want to name them.
+- [22:15.830] Well, we don't have enough time. But he was always very strong.
+- [22:18.930] Great lawyer, tremendous lawyer,
+- [22:21.500] and also a big believer in the environment
+- [22:25.410] and keeping it good and clean and healthy.
+- [22:28.600] And I just want to thank you for the job.
+- [22:30.620] And the only thing I ask is that you go speedily
+- [22:33.010] because a lot of people use the whole process,
+- [22:36.210] the environmental impact process to delay projects.
+- [22:39.230] We just want them to go quickly.
+- [22:41.190] And you can get the same answer in a matter of months
+- [22:45.050] as opposed to a matter of years I feel so strongly,
+- [22:47.160] because people are coming in
+- [22:48.450] with tremendous amounts of money.
+- [22:51.160] I have been spoken to by every…
+- [22:53.710] Yesterday I had Tim Cook in the office from Apple.
+- [22:57.330] He's investing hundreds of billions of dollars.
+- [23:00.700] I don't know, I hope he's announced it.
+- [23:02.590] Hope I didn't announce this, but what the hell?
+- [23:05.700] All I do is tell the truth. That's what he told me.
+- [23:08.780] Now he has to do it, right? So it's good.
+- [23:11.010] But he's investing hundreds of billions of dollars,
+- [23:13.030] and others too.
+- [23:14.240] We're going to have lot of chipmakers coming in,
+- [23:16.670] a lot of automakers coming in.
+- [23:18.130] They stopped two plants in Mexico.
+- [23:19.740] They were under construction, starting construction.
+- [23:22.120] They just stopped them.
+- [23:23.360] They're going to build here instead
+- [23:24.700] because they don't want to pay the tariffs.
+- [23:26.380] The tariffs are amazing. It's good.
+- [23:29.880] I said it's… I got myself in a lot of trouble, I said, "
+- [23:33.100] It's my favorite word in the dictionary, the word tariff.
+- [23:36.510] It's such a beautiful word." And the fake news killed me.
+- [23:40.000] They said, "What about love? What about God?
+- [23:43.540] What about family?" And I said, "I'm in trouble."
+- [23:47.480] I said, "So now it's my fourth favorite word I say."
+- [23:51.120] Love God, family.
+- [23:52.320] A couple of others I could add in there too,
+- [23:55.030] but it's my fourth favorite word.
+- [23:58.030] And OMB Director, Russell Vought.
+- [24:02.520] Thank you, Russell. You're going to be incredible.
+- [24:04.960] I know he took some hits,
+- [24:08.450] but I know how good he is, how honest he is,
+- [24:11.150] and he's fantastic with the numbers.
+- [24:13.050] And you're seeing these numbers coming out with the theft
+- [24:16.540] and it's tremendous fraud, wasted abuse,
+- [24:20.960] and all three of them.
+- [24:22.450] But I think the fraud is really the biggest.
+- [24:24.220] I think you're going to see it.
+- [24:25.430] You come out as soon as you can I think with your numbers
+- [24:29.060] because they're not explainable.
+- [24:31.180] They're not explainable. So I just…
+- [24:35.140] Russell do a great job. That's all.
+- [24:37.390] SBA Administrator Small Business.
+- [24:39.470] Now, small business is really big business.
+- [24:41.710] It's actually one of the biggest banks in the world.
+- [24:43.550] It sounds a little bit like, oh, small little business.
+- [24:47.360] It is a massive, it is one big sucker, right?
+- [24:51.450] And Kelly Loeffler's here, so she's going to be incredible.
+- [24:55.780] And she's got an incredible husband, Jeff,
+- [24:57.520] who's one of the most important people in the world of finance.
+- [25:01.510] And he knows.
+- [25:04.370] He owns a thing called the New York Stock Exchange,
+- [25:06.310] so that's not so bad. And you have natural experience,
+- [25:10.680] but I think you're going to do great.
+- [25:12.670] And there's a lot of fraud in there from the past
+- [25:15.610] with all the money that was handed out.
+- [25:17.220] It was billions and billions of dollars.
+- [25:19.400] Director of National Intelligence, Tulsi Gabbard.
+- [25:22.770] Where's Tulsi? Is she here?
+- [25:24.180] Hi, Tulsi. I haven't really seen you.
+- [25:27.270] Good luck. Do well. Have fun. We built a building.
+- [25:32.280] The building costs like $ 12 billion to build.
+- [25:35.210] It's loaded up with intelligence.
+- [25:36.760] Lots of luck figuring it out, right?
+- [25:39.070] Good. She was treated pretty rough for a person
+- [25:43.520] that's an incredible patriot. We've all known that.
+- [25:45.630] So it's nice that you're sitting with Bobby
+- [25:48.220] because you two, you went through a lot,
+- [25:50.780] but you know what? You're going to be stars.
+- [25:53.300] And over the past month our new administration
+- [25:55.870] has taken unrelenting action
+- [25:58.910] to fix every single disaster that we inherited
+- [26:02.050] and we inherited a lot of them. The border being I think,
+- [26:05.220] actually I think it's the most difficult one of all.
+- [26:07.680] The rest we can get fixed, including foreign countries
+- [26:10.880] that are doing things that they shouldn't be doing.
+- [26:12.890] And one of the reasons that we won the election by so much
+- [26:16.550] because we won it in…
+- [26:18.680] Everywhere we won the popular vote.
+- [26:21.070] We won the seven swing states, all seven by a lot.
+- [26:26.790] And we won by millions of votes the popular.
+- [26:28.470] It's always hard.
+- [26:29.680] I guess it hasn't happened in a couple of decades
+- [26:32.800] for a Republican to win the popular vote.
+- [26:35.210] I think that's changing so rapidly.
+- [26:37.170] But we had another thing that was pretty amazing.
+- [26:40.490] We had of the 3,000 counties,
+- [26:43.310] we won 2,500 of them and the Democrats won 500.
+- [26:50.840] It's a lot. They've never seen anything like it.
+- [26:55.170] Actually, you would've thought
+- [26:57.040] that the numbers would even be much higher.
+- [26:58.800] When you win 2,500 counties to 500 counties,
+- [27:05.030] when you look at the map, you've all seen the map,
+- [27:06.800] the one that got certified and came out just recently,
+- [27:10.450] it's like almost totally red.
+- [27:12.860] And it's my honor. We're going to just work it out.
+- [27:17.130] But we've really become the party of common sense
+- [27:19.210] and I think it's important.
+- [27:20.440] I think it's important for the Democrats common sense too.
+- [27:22.810] We're going to deal with you
+- [27:24.550] and we're going to deal on a common sense basis.
+- [27:26.560] And I know a lot of you agree with a lot of the things.
+- [27:30.260] I don't know,
+- [27:31.470] sometimes you're not allowed to say it unfortunately,
+- [27:33.520] but I think we'll be all better off if everybody says.
+- [27:36.850] That includes Republicans saying the right things.
+- [27:39.610] So on day one, I declared a national emergency
+- [27:42.070] on our southern border to stop the invasion of our country
+- [27:46.510] because we were being invaded, millions and millions of people.
+- [27:50.350] I figured 21 million people
+- [27:51.960] and of that two or three million were criminals.
+- [27:56.140] And many of them were people that countries didn't want.
+- [27:58.710] They would put them in these massive, large caravans.
+- [28:04.040] I came up with that name a long time ago.
+- [28:05.830] That's what it is. It's a caravan.
+- [28:08.080] And these are people many cases they might not be criminals,
+- [28:10.870] but they're people that the country didn't want.
+- [28:12.590] They didn't work. They needed help all the time
+- [28:16.450] or they needed assistance or whatever.
+- [28:20.150] Our country's got a lot of people in it right now
+- [28:23.270] and we're going to make sure that everybody's treated fairly,
+- [28:27.120] but we got to change it.
+- [28:28.710] It's the most difficult problem, I think.
+- [28:32.050] Additionally, the heroes of ICE
+- [28:33.930] have been really hunting down the really bad ones.
+- [28:37.530] And we are going… They're incredible people ICE.
+- [28:40.740] They were being shunned by Biden.
+- [28:42.830] They were being mocked. And let me tell you,
+- [28:45.490] these are tough, tough men and women, but they're tough.
+- [28:49.880] They'll see like a MS-13 band of thugs out on Long Island
+- [28:53.630] and they'll bring up the paddy wagons.
+- [28:57.740] They get in and they'll say, "No."
+- [28:59.120] One of them, two of them killed two young girls in Long Island.
+- [29:05.430] For some reason they like Long Island.
+- [29:07.590] MS-13 loves Long Island.
+- [29:09.470] I don't know what that's all about.
+- [29:11.730] But two young girls walking to school,
+- [29:13.910] 16 years old, in the morning,
+- [29:17.590] they were accosted by a group of MS-13 thugs.
+- [29:22.320] And they don't use guns as much.
+- [29:24.600] They use knives, they like using knives.
+- [29:26.260] And they cut them up, cut them into pieces
+- [29:29.490] and left them and killed them,
+- [29:32.520] cut them up into pieces, little pieces.
+- [29:34.800] And they use knives because it's more painful.
+- [29:39.300] And ICE went in. They have no fear of these guys.
+- [29:41.740] They went in and they just knocked the hell out of them.
+- [29:44.010] And they'll go into a pack.
+- [29:47.150] They call it a pack, not like a political PAC.
+- [29:50.630] Political PACs are slightly nicer.
+- [29:53.140] But a pack of these MS-13 people or Tren de Aragua,
+- [29:58.140] people from Venezuela, and they'll just walk in.
+- [30:02.930] All you'll see is fists going for five minutes.
+- [30:06.830] And then you'll see these guys walk out
+- [30:08.330] and they got them between their legs
+- [30:10.340] and they're bringing them,
+- [30:11.800] getting them the hell out of the country.
+- [30:13.870] These are rough people that we have to deal with.
+- [30:16.270] But ICE is incredible. Border patrol is incredible.
+- [30:18.840] Law enforcement, the people in law enforcement,
+- [30:21.170] we make their jobs so difficult
+- [30:22.580] by allowing people like this into our country.
+- [30:25.520] We just shouldn't do it.
+- [30:27.280] So I've just designated the group from Venezuela,
+- [30:32.770] Tren de Aragua, as a foreign terrorist organization.
+- [30:37.470] I mean, in Colorado they went and,
+- [30:41.040] and other places they literally take over.
+- [30:43.540] They're like me, they're in the real estate business.
+- [30:45.260] They take over real estate. And they literally take it over.
+- [30:48.830] They just claim it and they tell tenants to get the hell out.
+- [30:51.800] And if you don't get out.
+- [30:53.090] They had one case where a guy called the cops
+- [30:55.910] and they went in. "You call the cops?" "Yes."
+- [30:58.410] And they cut off his fingers.
+- [30:59.730] He says, "You don't call them anymore.
+- [31:01.090] You cut off the other fingers on your other hand."
+- [31:03.910] These are not nice people.
+- [31:05.680] But federal, state, and local cooperation
+- [31:08.520] has to be the backbone of border security.
+- [31:10.950] So I hope as governors, I know all the Republicans
+- [31:14.340] are very much in tune with Tom Homan and Kristi and everybody,
+- [31:18.200] but I hope everybody, because ultimately you want
+- [31:21.100] to get the criminals out of your state.
+- [31:22.590] And we're focusing on the really bad ones.
+- [31:26.550] We have 11,088 people that we know of that are murderers,
+- [31:33.060] that are actually murderers.
+- [31:34.650] And I can't imagine anybody wanting them in their state,
+- [31:40.080] whether you're a Republican or whether you're a Democrat
+- [31:42.770] or whatever you may be.
+- [31:44.050] I mean, many of them murdered more than one person,
+- [31:49.570] some murdered more than five people,
+- [31:52.100] and they're in our country. They let them out of jails.
+- [31:53.910] These were convicted people and they let them out of jails
+- [31:57.200] because it's very expensive to have somebody in jail
+- [31:59.280] for a lifetime or whatever it might be.
+- [32:01.550] And they brought them in here.
+- [32:02.870] The American people expect every city and state
+- [32:05.590] to fully honor ICE detainer requests, and we hope they can,
+- [32:10.640] and to ensure the safe transfer of criminal aliens
+- [32:13.070] into federal custody
+- [32:14.360] for immediate removal from our country.
+- [32:17.720] Many of the countries said,
+- [32:18.950] "We're not ever going to let her back."
+- [32:20.220] Under the Biden administration,
+- [32:21.610] I remember it's Venezuela, he's a tough guy,
+- [32:25.250] and others, they said, "We're not letting them back.
+- [32:28.390] They're out of here and you'll never bring them back.
+- [32:30.470] They're not coming into this country."
+- [32:31.970] And Biden said, "
+- [32:33.460] Well, we can't bring them back. They won't take them."
+- [32:35.550] Well, we took them. And every single country now,
+- [32:38.960] you saw it with Colombia, you saw it with Venezuela.
+- [32:41.320] In fact, they actually offered to send planes to pick them up
+- [32:44.830] and they'll pick them up so that we don't have to go
+- [32:46.480] through the expense of sending a plane.
+- [32:48.040] Is that correct, Marco?
+- [32:49.530] Even Marco couldn't believe that one.
+- [32:51.560] But they literally are sending planes to pick up these people
+- [32:56.380] and they're rough people and they're picking them up
+- [32:58.490] and they're putting them in the planes.
+- [33:00.600] There's no excuse for any state
+- [33:02.250] attempting to aid and abet dangerous criminals,
+- [33:05.460] killers, drug dealers, really bad people
+- [33:10.690] who are violating federal law
+- [33:12.450] and violating the law by being in our country.
+- [33:15.240] To combat inflation, I declared a national energy emergency.
+- [33:20.930] And we had to do that.
+- [33:22.340] One of the things we've done is by doing that,
+- [33:25.290] we can go very quickly.
+- [33:27.620] A lot of companies are coming in,
+- [33:28.980] but they need tremendous electricity,
+- [33:31.850] amounts of electricity. Who would've thought, Doug?
+- [33:35.030] But they need more electricity for AI
+- [33:38.750] than we have right now in the country.
+- [33:40.820] In other words, we have X,
+- [33:42.140] we have electricity now for the whole country.
+- [33:45.000] They need that just for that one industry.
+- [33:48.440] So they're coming in with…
+- [33:49.990] And we're going to be leading. We're now leading on that.
+- [33:52.520] We've really opened it up and I hope it's good.
+- [33:56.360] But we opened it up and we're leading China by a lot.
+- [34:00.970] But China's giving them tremendous electricity
+- [34:03.070] because they do whatever they want to do.
+- [34:04.570] But we're working with Lee. And I've told these people,
+- [34:07.590] they're going to spend hundreds of billions,
+- [34:10.100] trillions of dollars actually.
+- [34:12.210] So I need double the energy that we have right now
+- [34:14.510] and even more than that from what I'm understanding,
+- [34:16.750] which is hard to believe.
+- [34:18.040] In other words, take every car, everything, every building,
+- [34:21.900] we need, whatever it is, a hundred percent of the energy,
+- [34:24.460] we need that amount just to be in the number one position.
+- [34:29.420] And we need really more than that to really dominate,
+- [34:32.630] which I think we'll be dominating.
+- [34:34.130] But I told them and they can't believe it.
+- [34:36.480] I said, "We're going to get you quick approvals.
+- [34:38.070] Then you're going to build your own electric plant
+- [34:40.020] so that you're going to create your own electricity
+- [34:41.930] when you build your plant, which will be massive."
+- [34:45.120] These are massive plants.
+- [34:46.910] But when you build your plant, we're going to let them build
+- [34:48.920] an electric-generating plant where they build like a utility.
+- [34:51.940] In other words, instead of using Con Edison
+- [34:54.590] like we have in New York,
+- [34:55.940] hello governor, nice to see you back there.
+- [35:00.090] And we do have Con Edison
+- [35:01.370] and they don't do a bad job actually,
+- [35:03.110] but they could be a little cheaper with the price perhaps.
+- [35:06.280] But they don't do bad.
+- [35:08.260] But we build our own utility. They can have their own utility.
+- [35:11.640] If they have any extra, they can put it onto the grid,
+- [35:13.800] but this way they're not subject to a bad grid
+- [35:16.360] or a dangerous grid
+- [35:17.570] or a grid that gets taken out by bombs or war or anything else.
+- [35:22.210] So they actually couldn't believe it.
+- [35:24.750] They said, "You think you could get that approved?"
+- [35:27.700] "Yeah, I'll get that approved very quickly."
+- [35:30.150] They couldn't believe it and they're so happy
+- [35:32.660] and they're going to do some in Virginia, some big ones.
+- [35:35.980] But we're going to go and this way it's really a self-service.
+- [35:39.780] They just have this massive building
+- [35:42.600] with a large electric-generating facility
+- [35:47.250] that'll be powered by natural gas mostly.
+- [35:52.240] Some will use coal, some will use nuclear, clean coal.
+- [35:56.630] I only say clean coal, but some will use nuclear.
+- [36:01.300] They have their right to do it.
+- [36:02.600] None will use wind because wind doesn't work.
+- [36:05.430] It's just terrible
+- [36:07.390] how an environmental person can like wind.
+- [36:09.530] It kills the birds. It's very expensive.
+- [36:11.390] It's seven, eight times more expensive
+- [36:14.000] than other forms of energy.
+- [36:16.770] Every wind turbine in the country
+- [36:18.520] that goes up needs massive subsidies.
+- [36:21.060] It's really the only energy that needs subsidy, essentially.
+- [36:23.510] The solar is doing okay. So it's the only one.
+- [36:26.460] But to combat inflation,
+- [36:27.800] I declared that national energy emergency,
+- [36:31.200] and we're going to unleash the liquid gold under our feet
+- [36:34.260] to bring the prices way down. That's going to happen.
+- [36:37.500] And again, we're going to have a big part
+- [36:40.890] of that's going to be natural gas,
+- [36:42.090] which is very, very clean, and clean coal.
+- [36:46.680] We're going to do as many forms of energy as we can
+- [36:50.540] and it's going to be something I think everybody knows,
+- [36:53.770] and you're going to call me or anybody else
+- [36:56.210] if you have difficulty or problems,
+- [36:58.490] but you're going to have levels of business
+- [37:00.880] being brought to this country that you've never seen before.
+- [37:04.750] The tariffs are bringing them more than anything else.
+- [37:07.200] The country's bringing them, but the tariffs are bringing.
+- [37:09.380] They hadn't been here
+- [37:11.020] and we're creating tremendous tax incentives.
+- [37:13.730] But the biggest incentive is they don't want
+- [37:15.280] to pay 100% tariff or 200% or whatever it may be.
+- [37:21.110] And as you know, we're going to be announcing tariffs on cars
+- [37:24.310] from foreign countries of 25%.
+- [37:26.620] That'll be done in probably April 2nd.
+- [37:29.070] I was going to do it April 1st,
+- [37:30.280] but I said, "I don't like that date."
+- [37:32.580] It's going to cost a lot of money to wait one day.
+- [37:35.170] I don't know. What do I do there, Pam?
+- [37:36.740] Maybe I'll, should I do it just April 1st?
+- [37:40.280] Costs a lot of money that extra day, Marco.
+- [37:42.560] You figure what that costs. Let's do it April 2nd, right?
+- [37:45.840] I just don't want to take the abuse.
+- [37:48.280] We created the new Department of Government Efficiency,
+- [37:51.260] which you may have heard about, DOGE, which is now waging war
+- [37:56.070] on government waste, fraud, and abuse.
+- [37:58.150] And we begun the largest deregulation of industries
+- [38:04.750] and other things.
+- [38:06.130] It's proper deregulation that has ever done.
+- [38:08.540] I lead the way.
+- [38:09.780] On my first four years, we did more deregulation
+- [38:13.450] than any other president in history.
+- [38:17.220] And I brought a little list along that I thought
+- [38:19.940] I'd just read some of the places when you mention DOGE,
+- [38:24.070] some of the places that this money has gone,
+- [38:28.100] and these are the ones that I feel I could read.
+- [38:30.040] There are some that are so nasty and dirty and horrible
+- [38:33.930] that I don't want to really read them
+- [38:35.240] because I assume they have television on,
+- [38:38.720] guarantee they do.
+- [38:41.400] I let the press in today because we have nothing to hide.
+- [38:43.910] It's much better.
+- [38:45.120] They said, "Do you want to let the press in?"
+- [38:46.470] I said, "Why not?" You think Biden would do that?
+- [38:48.710] I don't think so.
+- [38:50.600] $520 million was given for a consultant to do ESG,
+- [38:56.690] that's environmental, social,
+- [38:58.980] and governance investments in Africa, 520 million.
+- [39:02.300] $25 million to promote biodiversity, conservation,
+- [39:07.250] and social responsibility behavior
+- [39:09.840] in the country of Colombia, 25 million.
+- [39:13.390] $40 million to improve
+- [39:15.010] the social and economic inclusion of sedentary migrants.
+- [39:20.390] They have no place in particular they were thinking of.
+- [39:22.910] There is no location.
+- [39:24.450] The money was sent out, but they have no idea where it's going.
+- [39:27.270] $42 million for social and behavior changes in Uganda.
+- [39:31.340] And $10 million for Mozambique medical male circumcision,
+- [39:36.550] people that want to be or have to be circumcised in Mozambique.
+- [39:40.870] $14 million for improving public procurement in Serbia.
+- [39:45.550] $486 million to consortium for elections
+- [39:49.610] and political process strengthening,
+- [39:52.810] which $22 million was for inclusive participatory
+- [39:58.320] political process in Moldova.
+- [40:01.440] And $21 million going -- my friend,
+- [40:05.500] Prime Minister Modi in India, for voter turnout.
+- [40:09.940] We're giving $21 million for voter turnout in India.
+- [40:12.240] What about us?
+- [40:13.510] I want voter turnout too, Governor.
+- [40:16.420] $29 million to strengthen the political landscape
+- [40:19.380] in Bangladesh.
+- [40:21.220] Went to a firm that nobody ever heard of.
+- [40:23.190] Got $29 million.
+- [40:25.250] They got a check. Can you imagine?
+- [40:26.860] You have a little firm, you get $10,000 here,
+- [40:29.310] $10,000 there,
+- [40:31.770] and then we get $29 million from the United States government.
+- [40:35.320] They had two people working in that firm. Two people.
+- [40:38.050] I think they're very happy, they're very rich.
+- [40:40.860] They'll be on the cover of a very good business magazine
+- [40:43.460] pretty soon for being great scammers.
+- [40:47.140] $20 million for fiscal federalism
+- [40:50.510] and $19 million for biodiversity in Nepal and $47 million
+- [40:55.880] also for improving learning outcomes in Asia.
+- [40:59.950] Asia. Asia got a lot of money.
+- [41:02.400] $50 million plus another $50 million for condoms for Hamas.
+- [41:08.110] They gave $50 million, it worked out so well,
+- [41:10.170] they gave another $50 million a little bit later.
+- [41:12.780] Condoms, $100 million for Hamas.
+- [41:16.930] We're also uncovering outrageous incompetence and fraud
+- [41:20.530] in the social security.
+- [41:21.780] I read this last night, so Governor,
+- [41:24.140] you're going to be bored hearing this,
+- [41:25.730] but you'll never get bored
+- [41:27.480] because it's not possible to even believe it.
+- [41:30.510] If you live a hundred years, it's a long time.
+- [41:32.910] But let's assume that they had millions and millions of people
+- [41:35.510] living because they have like 10 million people
+- [41:38.250] in the social security living. But let's go over a hundred.
+- [41:43.080] Now you're more than a hundred years old.
+- [41:45.920] We have 4.7 million social security numbers,
+- [41:50.920] people from the age of 100 to 109.
+- [41:54.250] So if you're 100 to 109, we have 4.7 million people
+- [41:59.160] on our social security rolls, right?
+- [42:02.710] That's a lot of people.
+- [42:06.110] I knew one guy was 100, the great Lenny Litwin,
+- [42:09.700] he was a builder in Manhattan. He lived to 103.
+- [42:12.300] You knew him. He was one of the greatest builders.
+- [42:14.390] He was so happy.
+- [42:16.130] The reason he lived, he loved building.
+- [42:17.830] He'd built a building a year. Never had a problem.
+- [42:21.360] You knew Lenny Litwin, I would think Governor.
+- [42:23.250] He was a great guy and got along with everybody.
+- [42:25.910] He got along with Democrats, Republicans,
+- [42:27.680] everybody loved Lenny.
+- [42:28.920] When he died, it was a bad day for New York, I'll tell you.
+- [42:33.480] He was a great guy, but he lived to 103, 104
+- [42:35.750] because he just loved his business.
+- [42:37.240] He was designing a new building at 103,
+- [42:39.890] and that was the end of it.
+- [42:41.150] He didn't quite get the design finished.
+- [42:46.170] We had 3.6 million people aged 110,
+- [42:49.500] substantially older than good old Lenny.
+- [42:52.860] From 110 to 119, you have 3.6.
+- [42:55.270] These are the people on the rolls.
+- [42:57.970] Now we're looking to see whether or not they've been paid
+- [42:59.820] because if they've been paid,
+- [43:01.100] then you're just using those numbers to take out the money,
+- [43:05.310] all the money that's paid to those people.
+- [43:06.880] 3.47 million people from the age of 120 to a 129.
+- [43:13.360] 3.9 million people, age 130 to 139,
+- [43:17.300] 3.5 million people age 140 years old to 149 years old.
+- [43:22.800] I think this is the case for Pam.
+- [43:24.980] I think I might give you this, Pam, just you can have it.
+- [43:27.420] In fact, I will.
+- [43:28.880] 1.3 million from age 150.
+- [43:32.360] There's 1.3 million people they're saying are alive
+- [43:36.330] and receiving social security.
+- [43:39.410] Now, that's the only thing we're checking.
+- [43:41.090] Are they receiving it because if they're receiving it,
+- [43:43.100] that makes it much worse.
+- [43:44.690] If they're not receiving it, that just makes it incompetent.
+- [43:47.010] They shouldn't be on the rolls. The only thing good about this
+- [43:49.650] is that when we take all these people off the rolls,
+- [43:52.640] and we have tremendous fraud underneath people
+- [43:55.100] that are 80 and 60 and 50 and everything else,
+- [43:58.600] but this is really incredible.
+- [44:00.980] 1.3 million from 150 to 159
+- [44:04.580] and over 130,000 people are on the rolls of social security
+- [44:10.130] over the age of 160 years old.
+- [44:13.370] Including 1,039 people between the ages of 220 and 229.
+- [44:19.780] So we have, think of that.
+- [44:22.310] We have 1,039 people who are 220 years old to 229.
+- [44:29.420] We have one person at 240 years old.
+- [44:32.930] Here's the beauty of them all,
+- [44:34.270] we have one person at 360 which is strange
+- [44:37.900] because the country is 250.
+- [44:41.990] Been there a 110 years older than the country.
+- [44:45.060] Here Pam, you better take a look at this.
+- [44:48.970] That's much better for you than for me.
+- [44:51.170] Now the question is, are they getting paid
+- [44:53.050] because somebody maybe is getting paid?
+- [44:55.330] Yeah, I have a feeling you… I said, what a convenient thing.
+- [44:59.030] This is so nice.
+- [45:00.690] We created this department, DOGE,
+- [45:05.900] and the kind of numbers are incredible.
+- [45:09.620] It could be $500 billion dollars,
+- [45:11.730] but it could be a trillion dollars.
+- [45:13.100] It could be even a trillion-five.
+- [45:14.420] We're going to find out.
+- [45:15.620] I mean, I'm actually going with Elon,
+- [45:18.930] and Elon is doing a really good job.
+- [45:20.930] I said, who are these people that travel with you?
+- [45:23.030] We call them the Dogers. I said, what are they?
+- [45:26.220] He said, they're generally young people
+- [45:27.760] with extremely high IQs who are very good with computers
+- [45:32.000] because you have to be good with computers.
+- [45:33.670] When one of these scammers talks
+- [45:35.840] and tries to tell them why it's perfect,
+- [45:40.340] they say, no, no, it doesn't work that way.
+- [45:42.360] It's very hard to talk them out of something when they have you.
+- [45:45.950] We're actually going to Fort Knox
+- [45:47.270] because I want to see, do we have the gold?
+- [45:49.620] Do we still have whatever it is, tons of gold?
+- [45:54.110] Wouldn't that be disappointing if Fort Knox,
+- [45:56.930] you grew up hearing in about Fort Knox,
+- [45:58.690] you can't get in, you can't even see it.
+- [46:01.390] Nobody sees it. You go there and the place is dry.
+- [46:04.910] Would that be terrible? There's another one.
+- [46:07.490] Maybe you should go with us to that one,
+- [46:09.590] but we're going to go in there pretty soon.
+- [46:12.440] They're going to open the doors to Fort Knox.
+- [46:14.090] If any governor would like to go with us,
+- [46:16.090] do you want to go with us on that one, Ron?
+- [46:17.930] That could be good. It could be interesting.
+- [46:19.770] Can you imagine if we open it up in this no gold?
+- [46:22.410] I think there will be.
+- [46:24.270] For one reason, it's really heavy.
+- [46:26.640] You steal a bar of gold, you got to be strong.
+- [46:28.920] It's not like other things, but we're looking at everything.
+- [46:32.780] We have the largest deregulation campaign in history,
+- [46:37.340] and we are, again, I did more than anybody,
+- [46:39.750] but this blows it away.
+- [46:41.620] For one, every time we put in a new regulation,
+- [46:45.890] we're not allowed to put it in
+- [46:47.220] unless we terminate 10 old regulations so it's 1 in 10.
+- [46:51.850] We did one in seven in my last administration.
+- [46:55.840] The problem is some of them were put back, foolishly put back.
+- [46:58.980] There was no reason for them.
+- [47:00.690] If you truly want a turbocharged economy, you have to do that,
+- [47:04.740] and you have to get rid of the regulations.
+- [47:06.340] I think one of the reasons we were, I mean, before COVID,
+- [47:09.590] and we did a great job with COVID and getting,
+- [47:11.930] it was a hell of a thing for all of us, everybody here.
+- [47:14.830] Some countries will actually never recover
+- [47:18.520] for what they went through.
+- [47:20.520] We ended up giving back, when we turned over the reins,
+- [47:25.350] the stock market was higher than just previous to COVID
+- [47:28.520] coming in, which was an amazing achievement.
+- [47:33.380] Just prior to that, I will never forget,
+- [47:35.910] I was sitting down with two consultants.
+- [47:38.380] The two great pollsters.
+- [47:40.610] They said, sir, this economy is so good.
+- [47:43.570] We are the greatest economy in the history of the world.
+- [47:45.980] We were doubling up China. I was also charging China
+- [47:50.110] hundreds of billions of dollars in tariffs,
+- [47:52.840] which no president charged them anything,
+- [47:55.240] but they were killing us. We were beating everybody.
+- [47:59.390] Everybody said that in 2018, China was going to overtake us
+- [48:03.780] as the biggest economy in the world.
+- [48:06.560] By the time I got finished,
+- [48:07.800] we were so much bigger than China and we still are now.
+- [48:11.220] Another four years like just passed,
+- [48:15.510] you will have China being much bigger than you.
+- [48:17.510] There's no reason, if we have a smart president,
+- [48:19.950] there's no way that they should ever be able to catch us.
+- [48:23.770] The pollsters said to me, sir,
+- [48:27.160] if Abraham Lincoln and George Washington
+- [48:29.050] came back from the dead
+- [48:30.250] and they ran as president and vice president,
+- [48:32.870] they'd never be able to beat you.
+- [48:35.100] I said, thank you very much. The next day I go into my office
+- [48:37.720] and a group of scientists are sitting.
+- [48:39.620] They said, sir, we'd like to tell you,
+- [48:41.110] there's something very bad happening in China.
+- [48:43.080] There's dead bodies all over the place.
+- [48:45.430] That's the first time
+- [48:46.710] I heard the word pandemic in a long time.
+- [48:50.760] That's where it started and where they were?
+- [48:52.830] All around the Wuhan lab. That's why from day one
+- [48:57.020] I was saying, they had little slits like this.
+- [49:00.630] You saw them from the air, from space.
+- [49:07.330] They were just little slits, but they were body bags.
+- [49:09.350] They were black body bags all over, so many,
+- [49:12.710] and that's where it came from.
+- [49:14.980] One other thing, just before we leave,
+- [49:18.040] I think you should do this.
+- [49:21.100] For safety and security and for the good of our nation,
+- [49:25.400] you should do it anyway regardless,
+- [49:26.890] even if it costs 10 times more,
+- [49:28.400] but it actually costs you just a tiny fraction.
+- [49:32.170] If you went to paper ballots and you're voting,
+- [49:35.380] and I would hope that every Republican would.
+- [49:38.630] It costs exactly 8% of what the machines cost.
+- [49:42.300] These machines, they've got something going,
+- [49:44.380] they get business, it's amazing.
+- [49:48.420] Paper ballots and paper's very sophisticated today.
+- [49:51.000] Paper, it's called watermark.
+- [49:53.280] It's impossible to copy, impossible to cheat.
+- [49:57.130] It's actually hard to believe
+- [49:58.700] that a piece of paper is highly sophisticated,
+- [50:01.980] but it's watermark and it's amazing
+- [50:05.320] actually when you see it, you can't cheat.
+- [50:08.260] If you went to paper ballots and same-day voting
+- [50:12.170] and if you went to a voter ID
+- [50:15.300] and also one other thing, you want proof of citizenship.
+- [50:18.220] Those four things, proof of citizenship,
+- [50:20.330] voter ID, paper ballots, one-day voting
+- [50:23.270] and if you went to two-day voting or three-day voting,
+- [50:25.320] but some of these states, you've had 64 days.
+- [50:28.230] California just finished up just a short while ago.
+- [50:34.140] They were voting a week and a half ago.
+- [50:37.750] They're trying to finish him up.
+- [50:40.530] Other states too, they were weeks after the election.
+- [50:43.080] I mean, if that were a close election,
+- [50:44.560] you'd have to wait for weeks and weeks and weeks.
+- [50:46.810] You guys finished fast. Brian, thank you for your help.
+- [50:50.010] We did very well in Georgia. That was very nice.
+- [50:54.600] Some of these states, if you had a close election,
+- [50:56.510] you wouldn't know who won and then once that happens,
+- [50:59.320] and you really never know who won.
+- [51:01.980] You would save tens of millions of dollars.
+- [51:05.590] Forgetting about right, wrong and security, safety,
+- [51:10.460] our country, our constitution, and all of these.
+- [51:12.740] Number one, you'd have a much safer election.
+- [51:14.340] Number two, you'd know
+- [51:16.940] the results of your election by 10 o'clock.
+- [51:19.330] Everybody, it's a beautiful system.
+- [51:21.060] It's boxes of 5,000, boom, boom
+- [51:24.550] and you can go and examine each box.
+- [51:26.460] It's so simple and so good.
+- [51:30.720] I did ask Elon,
+- [51:32.010] because he knows more about computers than anybody I know.
+- [51:34.360] I said, what do you think of the voting system?
+- [51:36.650] He said, computers are not meant for voting.
+- [51:40.140] It's just not a good, it's too many transactions
+- [51:43.000] taking place too quickly.
+- [51:46.140] It's just not, he said, honestly,
+- [51:48.080] and I've gone to the best people,
+- [51:50.060] the smartest computer minds from MIT, from others.
+- [51:53.490] My uncle was a professor for 41 years at MIT
+- [51:57.340] and a brilliant guy.
+- [51:58.850] I got to know a lot of the people up there.
+- [52:02.810] They will tell you that the most secure way
+- [52:05.070] that you can secure the election,
+- [52:07.410] and probably the fastest way
+- [52:09.060] because there can be very little hanky-panky, is paper ballots.
+- [52:13.440] Can you believe it?
+- [52:14.720] I hope Sarah, that certainly the Republican governors,
+- [52:19.780] but if you want to save a lot of money,
+- [52:21.910] you go to paper ballots,
+- [52:23.200] it'll cost you 8% of what the costs are now
+- [52:26.730] and that's based on a good deal for machines.
+- [52:30.390] Then when you go through the days and weeks
+- [52:32.830] and months of waiting, France had mail-in ballots.
+- [52:36.880] Anytime you have mail-in ballots,
+- [52:38.180] you're going to have fraud. Without question.
+- [52:42.310] France had it and they went back to paper ballots
+- [52:45.770] and I saw their election
+- [52:47.090] and their election was over at nine o'clock
+- [52:49.130] and their numbers came in at 10:05.
+- [52:52.770] There were no complaints.
+- [52:54.030] There was no, they had a winner, they had a loser.
+- [52:56.030] 39 million votes and it was done.
+- [52:59.320] We're one of the only people that has now mail-in voting.
+- [53:03.230] One of the only countries that has mail-in voting.
+- [53:06.660] Remember Jimmy Carter when he did a commission,
+- [53:09.790] and I think they had Scoop Jackson,
+- [53:11.140] they had some, at the time, big senators.
+- [53:14.800] Their conclusion was, if you have mail-in voting,
+- [53:17.200] you're going to have massive fraud.
+- [53:19.750] We had it in New York with the Congressional race.
+- [53:21.780] Remember the Congressional race where it took them forever.
+- [53:25.110] Like six months later, they declared, who was it,
+- [53:28.170] Jerry Nadler or somebody.
+- [53:30.000] They declared him the winner six months later.
+- [53:33.340] It was somebody, oh no, it was the woman, the congressman.
+- [53:37.760] I won't mention her name, but she won, but she didn't win.
+- [53:45.650] It was really very sad to see that whole thing.
+- [53:48.280] Democrat, that was a Democrat and a Democrat,
+- [53:50.820] that was a primary, but they had the mail-in voting.
+- [53:54.780] It's just a disaster. It's very, very expensive.
+- [53:58.400] If you want to save money, if you really believe
+- [54:02.600] that the computers work, which they don't,
+- [54:04.770] but if you want to save a lot of money,
+- [54:06.210] all you have to do is go to paper ballots
+- [54:07.900] and you'll be cutting it down
+- [54:10.190] by millions and millions of dollars.
+- [54:14.910] America will take off like a rocket ship.
+- [54:17.710] You're going to see things that's so great
+- [54:19.310] for the governors and Democrat governors are going to have,
+- [54:24.030] you're going to get the benefit of this.
+- [54:25.950] You're going to be opening up plants
+- [54:27.380] and you're going to be, I hope we have enough people.
+- [54:30.100] We're going to let, and we want people to come into our country,
+- [54:32.430] by the way, I do, but they have to come in legally.
+- [54:35.100] We need people in the country,
+- [54:36.500] but they have to come in legally.
+- [54:37.850] Two weeks ago, I signed an executive order banning men
+- [54:42.300] from playing in women's sports.
+- [54:45.280] Many Democrats are fighting me on that.
+- [54:47.260] I hope you continue because you'll never win another race.
+- [54:50.920] It's just crazy.
+- [54:52.740] If you look at what happened with the boxing,
+- [54:54.450] if you look at what happened with the weightlifting numbers,
+- [54:56.730] where a record that hadn't been broken for 19 years
+- [55:01.640] got shattered.
+- [55:03.200] They put up an eighth of an ounce here,
+- [55:04.970] an eighth of an ounce,
+- [55:06.170] and it's 218 pounds or whatever, a lot.
+- [55:12.010] Hadn't been broken in 19 years.
+- [55:13.690] Then guy walks up,
+- [55:16.280] who transitioned, he transitioned
+- [55:19.810] and he knocked out that record by about a hundred pounds.
+- [55:23.090] That will be a record, not going to be broken again in a long…
+- [55:26.190] So we put a ban on it to protect women.
+- [55:30.940] I mean the women, if you watch the Olympics,
+- [55:33.920] you had two transitioned people
+- [55:35.880] that were fighting in the women's boxing,
+- [55:37.570] they have women's boxing category.
+- [55:39.210] If you saw that, it was brutal.
+- [55:42.370] What happened, the Italian woman was a really good boxer.
+- [55:46.910] After one punch, she said, no, no, no more, no more.
+- [55:50.210] I've never been hit. It was a left.
+- [55:51.580] It was not even, it was just a left jab.
+- [55:54.380] She got hit so hard she said, I can't do it.
+- [55:57.460] They forced her to go out. No, go out.
+- [55:59.110] Go out again. You'll do it. Goes out again, gets hit again.
+- [56:02.440] No, no, that's it. She didn't want to die and it's crazy.
+- [56:08.780] The NCAA has complied, immediately by the way.
+- [56:12.020] That's good. I understand Maine, is Maine here?
+- [56:15.570] The governor of Maine?
+- [56:17.270] Ms. Mills: I'm here.
+- [56:18.480] The President: Are you not going to comply with it?
+- [56:20.590] Ms. Mills: I'm complying with state and federal laws.
+- [56:23.000] The President: Well, we are the federal law.
+- [56:25.370] Well, you better do it. You better do it
+- [56:26.950] because you're not going to get any federal funding
+- [56:28.760] at all if you don't. By the way, your population,
+- [56:31.060] even though it's somewhat liberal,
+- [56:32.400] although I did very well there,
+- [56:34.170] your population doesn't want men playing in women's sports.
+- [56:38.030] So you better comply
+- [56:39.740] because otherwise you're not getting any federal funding.
+- [56:42.320] Ms. Mills: See you in court.
+- [56:43.640] The President: Every state, good, I'll see you in court.
+- [56:45.490] I look forward to that. That should be a real easy one.
+- [56:49.600] And enjoy your life after governor
+- [56:51.100] because I don't think you'll be in elected politics.
+- [56:53.840] Every state has a responsibility to comply with Title IX.
+- [56:58.090] They have an obligation, a legal obligation,
+- [57:01.060] and we'll be enforcing aggressively
+- [57:02.990] and we're going to be protecting our citizens.
+- [57:05.450] We're going to protect.
+- [57:07.420] Just to end, this administration has been fighting
+- [57:10.930] for parents' rights and universal school choice.
+- [57:15.810] We want to do something
+- [57:17.050] that I think many people in this room want
+- [57:19.490] and even if you don't, I think you do want it,
+- [57:21.150] but you might not be able to say it.
+- [57:22.470] We want to move the schools back to the states
+- [57:24.410] so that Iowa and South Carolina and Georgia
+- [57:29.600] and all the states can run your own school system.
+- [57:32.980] You'll do a fantastic job, Kim. You're going to do great.
+- [57:36.390] I use your example
+- [57:37.670] because you're so much into the education.
+- [57:40.980] Done a great job with school choice
+- [57:42.590] and you'll do your school choice.
+- [57:43.820] That'll be the easy thing. But we want to get it back.
+- [57:46.700] They take it away.
+- [57:48.050] Just some stats.
+- [57:50.050] At last, it's usually we're 38, 39, or 40 out of 40.
+- [57:53.260] They take the 40 I guess biggest, most important,
+- [57:56.130] whatever it might be, but 40 countries.
+- [57:59.880] We were 38, 38, 39,
+- [58:02.610] and congratulations but two months ago,
+- [58:04.820] three months ago, we hit number 40
+- [58:06.390] so we were last in terms of education in the world.
+- [58:11.460] We were first in another category,
+- [58:13.800] though we were first in cost per pupil so we spend much more.
+- [58:18.530] And by the way, second wasn't even close.
+- [58:20.960] So you have Norway, Sweden, Denmark, Finland, China.
+- [58:27.470] There goes the big country theory, right?
+- [58:29.780] They have 1.4, they're rated number five.
+- [58:33.070] That's a little bit scary, isn't it?
+- [58:35.400] But they're all rated well,
+- [58:37.460] spend much less per pupil than we do.
+- [58:40.480] We spend the most per pupil and we're rated less.
+- [58:42.350] Think of that.
+- [58:43.570] Can anything be worse than that Sarah, huh?
+- [58:46.080] So what happens is we are going to make a very strong
+- [58:49.520] push on closing up the Department of Education.
+- [58:54.800] We'll have one person sitting there just to make sure
+- [58:56.970] that they're teaching English,
+- [58:59.340] reading, writing, and arithmetic, okay?
+- [59:02.200] Just that's all. The rest of it is up to the governors.
+- [59:04.670] We have great governors, really smart people.
+- [59:07.700] Brian, I think you'd love to have it in Georgia
+- [59:09.630] 'cause you could do a great job.
+- [59:11.250] You're being told Ron would love it.
+- [59:13.650] Ron's sitting there saying, "Oh, give me the education."
+- [59:16.080] You're being told by people in Washington
+- [59:17.920] that don't know much about your state
+- [59:19.410] and maybe don't like your state, maybe don't like you,
+- [59:21.670] maybe don't like your pupils about what they should be doing.
+- [59:26.410] I'll tell you what. We will compete.
+- [59:27.980] Many of our states, I figure 35 of them,
+- [59:30.810] we're going to have 35 great ones,
+- [59:32.260] we're going to have five that are okay,
+- [59:34.780] then we'll have another five that are blah,
+- [59:37.070] and then we're going to have four or five not so good.
+- [59:40.790] But in a place like New York, we could take it as an example,
+- [59:44.910] Westchester County, you go
+- [59:46.680] Westchester, Suffolk, you go out in
+- [59:49.180] Long Island, you do upstate
+- [59:51.070] New York, you break it up into quadrants, Manhattan.
+- [59:55.010] But I think you could do a great job.
+- [59:58.490] I think the states will do a fantastic job.
+- [01:00:01.220] And we send the money directly to the states.
+- [01:00:03.250] And we're not looking even for the cuts,
+- [01:00:06.000] but you'll spend a lot less money.
+- [01:00:07.830] You're going to spend a lot less money.
+- [01:00:09.810] As somebody that's spent a lot of time in Washington
+- [01:00:12.060] over the last number of years,
+- [01:00:14.380] it seems like every building is the Department of Education,
+- [01:00:16.870] but I'm saying, "What do these people do? What do they do?"
+- [01:00:20.130] But if we could send education back,
+- [01:00:22.330] and Linda, as you know, is going through the process right now,
+- [01:00:25.940] and I think she's doing really well,
+- [01:00:27.490] she's great, Linda McMahon.
+- [01:00:29.940] And I said, "Linda, you're trying.
+- [01:00:31.340] I really want you to do a great job,
+- [01:00:34.550] but you're really only doing a great job
+- [01:00:36.790] if you have no job by the time we finish.
+- [01:00:39.980] You have to create no job for yourself,
+- [01:00:41.620] because we want this to go back to the states."
+- [01:00:43.460] And she agrees.
+- [01:00:44.900] And if we can do that, I think it's going to be
+- [01:00:47.410] one of the most important things we can do.
+- [01:00:49.190] So the governors, the people in this room,
+- [01:00:51.290] Democrat, Republican,
+- [01:00:53.050] will run their own school system,
+- [01:00:55.400] and we'll back them 100%, and we'll pay like we do now.
+- [01:00:58.900] But I think we'll end up having to pay probably half.
+- [01:01:03.260] But that's not the reason I'm doing it.
+- [01:01:04.910] I'm doing it 'cause we give really bad education.
+- [01:01:07.550] And as far as the teachers' union, I love teachers.
+- [01:01:10.990] And I imagine unions might form in some of these places,
+- [01:01:14.060] and if they do, that's fine. You'll deal with it.
+- [01:01:16.620] So this isn't against unions. It's 'cause I won unions.
+- [01:01:19.650] I won the Teamsters.
+- [01:01:21.220] When you win the Teamsters, that's serious.
+- [01:01:23.780] But I put in a person as Secretary of Labor
+- [01:01:28.540] who, I really did it because the unions treated me so well.
+- [01:01:32.720] The autoworkers. I mean, so many of the unions,
+- [01:01:36.980] the firefighters, the police unions,
+- [01:01:39.160] I got like 98% of the vote.
+- [01:01:41.140] We're looking for the other 2%. Nobody can find them.
+- [01:01:45.700] I grew up in New York, which was union territory.
+- [01:01:49.170] But we want to be able to have great education.
+- [01:01:52.340] If we don't have education in this country,
+- [01:01:54.130] this country is going to go down.
+- [01:01:55.610] When you hear China is rated number four and five every year.
+- [01:01:59.700] And they're a serious competitor.
+- [01:02:04.510] So I want to thank you all.
+- [01:02:05.880] And I do want to say again, call me at any time.
+- [01:02:09.910] I will take your call.
+- [01:02:11.700] If you're a Democrat, I will put you ahead of the Republican.
+- [01:02:14.780] If I have a Democrat or Republican call,
+- [01:02:17.030] I will put the Democrat first. Okay? I promise.
+- [01:02:20.310] And probably, sort of promise, right?
+- [01:02:23.200] No, I will. We'll take good care of the people in this room.
+- [01:02:26.510] And it's an honor to be with you.
+- [01:02:27.800] You're very, very smart people.
+- [01:02:31.200] To do what you do, to get elected, it's a tough business.
+- [01:02:36.390] But if you could take back education,
+- [01:02:39.530] and if we could do some of the things
+- [01:02:40.970] that we just laid out very easily in this plan.
+- [01:02:44.780] And you have a federal government
+- [01:02:46.180] that's behind you all the way.
+- [01:02:48.950] All the way. We'll be sending help.
+- [01:02:50.480] As an example, if we do get rid of FEMA,
+- [01:02:52.200] which we should, very expensive, doesn't work.
+- [01:02:54.770] But we'll be sending federal help in.
+- [01:02:56.640] And if you have a big hurricane or a tornado
+- [01:02:58.960] or all of the things that I've been watching,
+- [01:03:01.570] and you'll be taken care of much,
+- [01:03:03.570] much better than you're taken care of now.
+- [01:03:05.240] You have to wait around for these people to come,
+- [01:03:07.110] and they come so late. But the worst example
+- [01:03:09.580] was what you had to go through in North Carolina.
+- [01:03:12.040] What happened there was a terrible thing.
+- [01:03:15.130] So congratulations on your victories,
+- [01:03:17.830] and you're going to have many more victories.
+- [01:03:19.830] And I'm here for you.
+- [01:03:21.650] If you want to ask a couple of questions,
+- [01:03:23.300] you could, if you'd like to.
+- [01:03:26.030] Yes, please.
+- [01:03:27.240] The Press: Thank you, Mr. President.
+- [01:03:28.510] So I think we share a sentiment about disaster response
+- [01:03:32.140] and how we can make it better. We've all had disasters.
+- [01:03:34.500] We usually love to see the President.
+- [01:03:35.970] After a disaster that's never fun.
+- [01:03:38.380] We have fires, other people have floods, hurricanes.
+- [01:03:41.040] We want to be a part of helping
+- [01:03:43.340] to make a federal emergency response work.
+- [01:03:46.110] Changing FEMA so to not put in square pegs in round holes.
+- [01:03:49.120] So involve our group, because we're the ones
+- [01:03:50.800] on the other end of it and saying,
+- [01:03:52.130] "Oh my God, why are they coming with this when we need that,"
+- [01:03:53.840] 'cause we're ready to help.
+- [01:03:55.040] The President: Good. Thank you very much.
+- [01:03:56.250] That's very nice. I agree.
+- [01:03:57.760] Yes, please.
+- [01:03:58.970] The Press: Mr. President, thank you for welcoming us.
+- [01:04:02.310] As we go through the process
+- [01:04:03.780] of putting in your priorities as President,
+- [01:04:07.130] would you give us an opportunity to speak with you
+- [01:04:10.000] about, say, return on investment?
+- [01:04:11.630] The President: Sure.
+- [01:04:12.850] The Press: Before we go, for example,
+- [01:04:14.610] into, we've heard and we all wait the decisions you make
+- [01:04:19.840] and the Secretary will make.
+- [01:04:21.380] But for instance, on Medicaid or Medicare.
+- [01:04:23.100] The President: Sure.
+- [01:04:24.340] The Press: If cuts are proposed,
+- [01:04:26.240] perhaps give us an opportunity as Governors
+- [01:04:27.860] to prove to you that we can make these programs worthwhile.
+- [01:04:29.820] That might help us in our work.
+- [01:04:31.020] The President: I love that.
+- [01:04:32.240] I think it's great, Bobby. I think it's great.
+- [01:04:34.050] One of the things we're really focused on
+- [01:04:35.610] is bringing down the costs.
+- [01:04:37.720] And we haven't been treated very fairly,
+- [01:04:39.670] especially over the last four years.
+- [01:04:41.910] And as you know, we had transparency,
+- [01:04:43.590] which is one of the biggest things that could have happened.
+- [01:04:46.490] And Biden, for whatever reason, terminated that.
+- [01:04:48.870] That would have brought down the costs tremendously.
+- [01:04:50.750] But we'd love to have your ideas on any of them,
+- [01:04:53.530] Medicare, Medicaid, any of it.
+- [01:04:56.160] And we will, if those ideas are good,
+- [01:04:57.880] you probably have better ideas than anybody as Governors.
+- [01:05:00.710] So we would love that. Thank you.
+- [01:05:05.990] The Press: On that issue of health care,
+- [01:05:07.270] we've talked about it before,
+- [01:05:09.300] if we reform the health care industry,
+- [01:05:11.740] if you try to do that in the first administration
+- [01:05:14.790] and they try to fight it back every step of the way,
+- [01:05:17.960] we all deal with high health care
+- [01:05:19.900] cost in government and the private sector.
+- [01:05:23.690] And if we reduce that, 20% of our GDP,
+- [01:05:27.250] down to 10 to 12,
+- [01:05:28.920] you can pay for a lot of things in government
+- [01:05:31.520] that we can't currently do it.
+- [01:05:33.220] We need to get the industry in line
+- [01:05:34.860] to help us do it as well.
+- [01:05:36.800] The President: Well, you're a good example of it.
+- [01:05:38.160] And in your state, they've done a good job.
+- [01:05:41.300] But you're going to get those numbers down even lower.
+- [01:05:44.170] I know that. That's something very strong for you.
+- [01:05:47.460] And as you have ideas,
+- [01:05:48.660] I'd love you to pass them along to the other Governors here.
+- [01:05:51.950] But there are some states that have done a really,
+- [01:05:53.650] really good job with that.
+- [01:05:54.900] And we are totally open to suggestions. Right?
+- [01:05:57.780] Thank you. Yes, Henry.
+- [01:06:03.040] The Press: Mr. President, thank you for having us here.
+- [01:06:05.120] It's the de minimis rule in tariffs.
+- [01:06:08.250] We've got the amount that is self-declared now is $800.
+- [01:06:13.310] If you've a package,
+- [01:06:14.770] you say you've a package coming from wherever,
+- [01:06:16.740] it's under $800, it's not inspected.
+- [01:06:20.140] There's no tariff on it. Problem is,
+- [01:06:22.390] there are a lot of things coming in that are over that.
+- [01:06:24.320] The President: That's right.
+- [01:06:25.610] And we're not doing that anymore.
+- [01:06:27.030] The Press: And also, there's fentanyl coming in,
+- [01:06:29.190] I think, to all of these states. That's the real problem.
+- [01:06:32.230] And I think that everyone is sharing that.
+- [01:06:36.060] The President: Thank you, Henry.
+- [01:06:38.040] I had a deal with President Xi just prior to leaving office,
+- [01:06:45.260] but before the election,
+- [01:06:47.090] that President Xi was going to give the maximum penalty
+- [01:06:50.280] to anybody sending fentanyl into the United States.
+- [01:06:53.000] His maximum penalty is death. If you notice that every country
+- [01:06:59.330] that has the death penalty has no drug problem.
+- [01:07:02.390] They execute drug dealers. And when you think about it,
+- [01:07:08.430] it's very humane because every drug dealer,
+- [01:07:10.620] on average, they say, kills at least 500 people,
+- [01:07:13.730] not to mention the damage they do to so many others.
+- [01:07:16.600] But they kill large numbers of people.
+- [01:07:20.420] China, Singapore, actually there are quite a few, many in Asia,
+- [01:07:25.730] where they have the death penalty.
+- [01:07:27.160] There's no drug problem whatsoever.
+- [01:07:28.760] They come to our country because we have a much softer policy.
+- [01:07:33.930] We give them a slap on the wrist and say kill a lot of people.
+- [01:07:37.230] So, we are going to,
+- [01:07:39.710] I mean, I don't know if our country is ready for it.
+- [01:07:42.180] I am ready for it.
+- [01:07:43.470] The death penalty if you deal drugs,
+- [01:07:45.350] you have to set out guidelines
+- [01:07:47.280] like fairly large numbers, et cetera.
+- [01:07:49.440] But you'll have it go down very greatly.
+- [01:07:53.580] One of the things we're going to do
+- [01:07:56.030] is we're going to do an advertising campaign,
+- [01:07:57.960] they're working on it right now,
+- [01:07:59.210] and that's saying how bad drugs are for you.
+- [01:08:01.110] I was speaking actually to the president of Mexico saying,
+- [01:08:03.660] "You can't send the people through your country."
+- [01:08:06.990] And I said, "You know, you're not a big drug-taking nation.
+- [01:08:12.170] You send us plenty of drugs, but the people aren't drug-taking."
+- [01:08:17.700] And she said, "Yes, we're not a consumer nation."
+- [01:08:19.910] That was a very interesting term.
+- [01:08:21.950] And I said, "So why aren't you?
+- [01:08:23.400] What are the reasons? Why is it?"
+- [01:08:25.020] It's true, Mexico, they don't have a lot of drug problems
+- [01:08:27.450] in terms of taking the drugs. He said, "Well, two things."
+- [01:08:30.720] And a lot of you could do the second thing.
+- [01:08:32.870] He said, "We have very strong family values."
+- [01:08:35.090] I said, "But so do we."
+- [01:08:36.340] I mean, I see people, they die of a drug overdose,
+- [01:08:40.650] the daughter, the son, the mother and father
+- [01:08:42.360] will never be the same, never be the same.
+- [01:08:44.580] Their life is ruined. Their life is over.
+- [01:08:47.410] I've seen it so much.
+- [01:08:48.960] So we have strong family values also,
+- [01:08:51.480] family members and relationships,
+- [01:08:53.720] just as strong as Mexico.
+- [01:08:55.280] "What's the other?"
+- [01:08:56.490] "Well, we spend a lot of money on advertising,
+- [01:08:58.360] saying how bad drugs are for you."
+- [01:09:00.020] And I said, "Oh."
+- [01:09:02.250] I never learned anything on phone calls.
+- [01:09:03.850] This time I learned something.
+- [01:09:05.180] I said, "You know, I never thought of that."
+- [01:09:07.020] Because we set up, like, committees.
+- [01:09:10.400] And you can't have the death penalty, I guess.
+- [01:09:13.390] But someday somebody is going to get sick of it and do it,
+- [01:09:16.120] and you won't have any drug problem in this country.
+- [01:09:20.250] And you can do it on an individual state basis
+- [01:09:22.460] for the governors in the room that want to do it.
+- [01:09:24.280] But you will not have a drug problem in your state
+- [01:09:26.260] if you did it.
+- [01:09:27.500] But I will say this.
+- [01:09:29.460] We have a situation where we have now
+- [01:09:33.910] hired a couple of the best agencies,
+- [01:09:37.600] and we're going to spend about $100 million,
+- [01:09:39.340] maybe $200 million on advertising,
+- [01:09:41.500] saying that when you take certain drugs,
+- [01:09:44.380] a drug, fentanyl, et cetera, et cetera,
+- [01:09:46.250] it destroys your skin, it destroys your teeth,
+- [01:09:48.440] it destroys your brain, it destroys everything.
+- [01:09:51.160] And really horrible commercials.
+- [01:09:53.780] I mean, I've seen the first of them,
+- [01:09:55.530] and they are brutal. They are brutal.
+- [01:09:58.460] And when some young kid is sitting down
+- [01:10:01.900] watching this commercial a couple of times,
+- [01:10:03.650] I really don't think they're going to be taking drugs.
+- [01:10:05.640] So I think that this is, I mean, this is a big statement,
+- [01:10:08.320] but I think we can drop it 50%, five O by doing this.
+- [01:10:12.740] And I give her credit.
+- [01:10:14.010] She was talking to me about it, telling me about it.
+- [01:10:16.830] But I knew immediately, as soon as she said it,
+- [01:10:18.710] it was not … She didn't have to say any more.
+- [01:10:21.030] She went on to tell me different things,
+- [01:10:22.470] but it was just the concept of it.
+- [01:10:25.080] And I think states can do that, too.
+- [01:10:26.640] If you do commercials talking about how horrible it is,
+- [01:10:31.100] drugs, I mean, what it does, you look at their skin.
+- [01:10:34.870] It gets eroded. Their teeth are … You can tell.
+- [01:10:39.700] I mean, you can see a person that takes a lot of drugs,
+- [01:10:43.950] especially fentanyl and some of the others,
+- [01:10:45.930] the bad ones, the real bad ones, some of them, the heroin.
+- [01:10:49.090] It's unbelievable what it does to people.
+- [01:10:51.300] And we're going to put very, very strong ads.
+- [01:10:53.440] And now that I'm thinking about it,
+- [01:10:55.430] I think you should put on strong ads, too.
+- [01:10:57.820] Really strong ads.
+- [01:10:59.060] I think it's an unbelievable thing. We'll all do it.
+- [01:11:01.520] We're going to do it on a national basis.
+- [01:11:03.140] But you can do it individually on an individual basis.
+- [01:11:06.760] And you can also, look, I think,
+- [01:11:09.220] you'll have to get rulings on this,
+- [01:11:10.530] but your states have the right to go death penalty
+- [01:11:13.180] also for drug dealers.
+- [01:11:16.530] But only do that if you want to get rid of drugs,
+- [01:11:18.440] because if you don't do that, it's a little tough.
+- [01:11:21.190] But I think the advertising will have a huge …
+- [01:11:23.960] I think we can get it down by 50, five O percent.
+- [01:11:26.270] We set up … We did great. We got it down 18%.
+- [01:11:29.260] I said, "That's not a lot, though."
+- [01:11:31.050] Everybody was giving us credit. "Oh, 18."
+- [01:11:33.910] And 18%, to me, we set up committees with the First Lady
+- [01:11:38.530] of the United States on a blue-ribbon committee.
+- [01:11:41.800] But they didn't know too much about El Chapo
+- [01:11:44.600] and the various people that we're talking about.
+- [01:11:47.570] It's a smart group of people.
+- [01:11:50.200] But I'll tell you what,
+- [01:11:51.490] the advertising could be unbelievable.
+- [01:11:53.560] And I hope the states do it.
+- [01:11:54.950] You're not talking about a lot of money.
+- [01:11:56.270] You're talking about peanuts, actually.
+- [01:11:58.370] I mean, with $50 million, you could just cover the state.
+- [01:12:03.010] And if you did that, and I'm going to do it,
+- [01:12:05.130] I think we can get drugs way down.
+- [01:12:06.470] I think we can get it down by 50% when you see it.
+- [01:12:08.900] I've seen some of the ads, it's …
+- [01:12:11.300] Man, if a person looks at the ads that I saw,
+- [01:12:14.930] they're not going to be taking drugs.
+- [01:12:16.440] So, good question.
+- [01:12:17.660] Thank you, Henry, very much.
+- [01:12:18.860] How about we'll do one more? Yes, please.
+- [01:12:20.930] The Press: Thank you so much for having us.
+- [01:12:22.210] The President: Thank you.
+- [01:12:23.440] The Press: As we talk as governors,
+- [01:12:25.060] we implement a lot of the social welfare programs.
+- [01:12:28.060] Whether it's Medicaid or job training or rental assistance,
+- [01:12:32.670] each one has different requirements that create cliffs
+- [01:12:36.940] and benefits that make it hard for people to recover.
+- [01:12:41.170] Things as simple as work requirements
+- [01:12:43.980] for able-bodied adults.
+- [01:12:45.750] If we could synchronize across TANF, Medicaid,
+- [01:12:51.140] all these other programs, let's make it a trampoline
+- [01:12:56.510] to get people back on their feet instead of a hammock they climb-
+- [01:12:59.300] The President: I think it's great.
+- [01:13:00.700] I think if you could get together and work together,
+- [01:13:03.390] you'd bring down costs just on that basis.
+- [01:13:05.720] I think it would be really great.
+- [01:13:08.700] Did you want? Go ahead, please.
+- [01:13:10.530] The Press: Mr. President, I wanted to say thank you.
+- [01:13:13.610] It's one or two words a lot of times we don't say.
+- [01:13:15.720] Thank you for your extraordinary leadership,
+- [01:13:17.890] your courage, all that you do.
+- [01:13:20.170] And just so you know, even in the state of Nebraska,
+- [01:13:23.130] you're inspiring Nebraskans
+- [01:13:25.050] to get comfortable being uncomfortable,
+- [01:13:27.290] to stand up for what we believe in,
+- [01:13:29.540] create family, hard work, the American dream,
+- [01:13:32.460] stand up and talk about common sense.
+- [01:13:34.310] So, we're incredibly grateful.
+- [01:13:35.830] The President: Thank you, Governor. Thank you very much.
+- [01:13:37.490] I appreciate it.
+- [01:13:38.920] Thank you. Thank you very much, everybody.
+- [01:13:40.870] Thank you. Thank you.

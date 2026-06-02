@@ -1,0 +1,1198 @@
+<!-- source: https://www.youtube.com/watch?v=S9MXdLYgYkE -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: S9MXdLYgYkE -->
+<!-- date_published: 2026-03-16T21:05:54+00:00 -->
+<!-- date_accessed: 2026-06-02T02:36:36.021225+00:00 -->
+
+# Transcript: President Trump and Vice President JD Vance Participate in Signing Time, Mar. 16, 2026
+
+- [00:04.500] The President: Thank you very much everybody. Appreciate it.
+- [00:06.280] This is a very big thing that we're doing.
+- [00:09.240] It's about fraud, having to do with all the fraud
+- [00:11.480] that's taking place in our country.
+- [00:13.030] We have two people that are extremely brilliant
+- [00:15.780] and just very talented
+- [00:17.970] and they're going to be put in charge.
+- [00:19.780] But I'd like to ask, Will, if you would,
+- [00:21.810] to give a little description of what we're signing,
+- [00:24.110] the executive order, and then I'll ask JD to speak.
+- [00:27.390] Will Scharf: Yes, sir.
+- [00:28.590] As you stated in your State of the Union address,
+- [00:30.860] in light of widespread revelations of fraud
+- [00:34.630] in federally funded programs
+- [00:36.330] in states like Minnesota and California,
+- [00:39.200] this executive order in front of you
+- [00:41.460] will establish a new task force aimed at rooting out that fraud,
+- [00:45.670] returning potentially billions or tens of billions
+- [00:48.100] or even hundreds of billions of dollars
+- [00:49.640] to the American taxpayer.
+- [00:51.300] This task force will be chaired by the vice president.
+- [00:55.280] The vice chairman will be the head of the FTC,
+- [00:57.740] Andrew Ferguson, who's with us here as well today.
+- [01:00.550] But this is going to launch a whole of government approach
+- [01:03.740] to rooting out the very serious problem of fraud
+- [01:07.250] in federally funded programs around the country.
+- [01:09.940] The President: As an example, you've been seeing it
+- [01:12.560] and seeing it pretty big in Minnesota, $19 billion.
+- [01:16.850] But that's only for one little aspect of the fraud.
+- [01:20.320] It's $19 billion and California, as they say,
+- [01:23.290] is 10 times worse and other states are 10.
+- [01:26.390] And this is not a Republican Democrat thing.
+- [01:30.860] This is wherever it's taking place.
+- [01:33.300] It seems that it's usually in blue states.
+- [01:37.110] If it's in a red state, we're going there too.
+- [01:40.170] But it seems that it's heavily, heavily, heavily Democrat,
+- [01:43.700] and what they've done is so sad.
+- [01:46.890] When you look at the Minnesota scam,
+- [01:49.790] a lot of it has to do with Somalia.
+- [01:52.160] Nobody's calling out anybody, but a lot of it has to do,
+- [01:54.900] but it's Somalia and plenty of others.
+- [01:57.670] And I believe the governor is complicit.
+- [02:01.540] I believe Ilhan Omar is complicit.
+- [02:05.410] I believe that your attorney general is complicit,
+- [02:09.350] and if they are, you're going to hopefully find out about it
+- [02:11.770] and you're going to have to do what you have to do.
+- [02:15.690] If we found half of the fraud
+- [02:18.190] that's taking place in this country,
+- [02:20.820] and I think you have a chance of doing that,
+- [02:23.310] we would have much more than a balanced budget.
+- [02:25.690] That's the kind of numbers you're talking about.
+- [02:27.820] The theft is incredible.
+- [02:29.660] And I think JD will make, and Andrew will make,
+- [02:33.260] a charge later on that local states
+- [02:37.250] should handle nursing homes and all of these things
+- [02:40.580] that the federal government shouldn't be involved in.
+- [02:43.790] It's too big.
+- [02:45.040] The federal government should handle military
+- [02:47.410] and a couple of other things.
+- [02:49.250] But when it comes to nursing homes,
+- [02:51.190] you saw where a young gentleman was going around
+- [02:54.510] and knocking on doors and none of the nursing homes existed.
+- [02:57.580] None of the nurseries existed. The money that's being paid out
+- [03:02.320] and the federal government pays for it.
+- [03:04.840] When you see all these people coming in illegally into
+- [03:07.230] our country, many criminals, many drug dealers, murders.
+- [03:11.140] 11,888 murderers.
+- [03:14.670] And you look at California and more and more come in,
+- [03:19.400] and yet they never had money, and yet they pay them.
+- [03:22.320] You know why they're paying?
+- [03:23.610] Because the federal government is charged with paying.
+- [03:25.920] We're not paying them anymore. And I said that.
+- [03:28.540] So these two really smart guys are going to be --
+- [03:33.120] I think it's going to -- Hopefully, it's going to be JD.
+- [03:35.200] This will not be like a Kamala
+- [03:37.890] where she was put in charge of the court
+- [03:40.420] and she never went there, JD, right? You promise?
+- [03:42.160] The Vice President: I promise, sir.
+- [03:43.400] The President: Remember Kamala was put in jail.
+- [03:44.700] She was the border czar. She never went to the border.
+- [03:46.720] She never called any of the great border patrol.
+- [03:49.290] The border patrol testified.
+- [03:50.490] We never spoke to her in four years.
+- [03:53.080] That was a disaster, but this is a different group of people.
+- [03:57.250] I think maybe before JD,
+- [03:58.620] I'll ask Stephen Miller say a few words too, please.
+- [04:01.680] Stephen Miller: Thank you, Mr. President.
+- [04:03.220] Well, under President Trump's leadership,
+- [04:04.950] as we've seen, the illegal flow across the southern border
+- [04:08.880] was stopped completely.
+- [04:10.080] But what we found since President Trump came into office
+- [04:12.930] is that the Democrats have set up the system
+- [04:15.490] to funnel hundreds of billions
+- [04:16.890] and ultimately trillions of dollars
+- [04:19.090] to migrants that are in our country,
+- [04:20.750] oftentimes from places like Somalia.
+- [04:23.310] So as an example, ICE recently asked a group
+- [04:27.990] of illegal immigrants that were in detention
+- [04:30.170] whether or not they were receiving Medicaid.
+- [04:32.620] Half of them raised their hands and volunteered
+- [04:35.480] that they were on Medicaid. Just volunteered that.
+- [04:38.280] These aren't the ones who are hiding it.
+- [04:40.540] They also asked legal aliens how they paid their medical bills,
+- [04:43.160] and they said that if they don't have Medicaid,
+- [04:45.880] they go to hospitals, they get free care there
+- [04:48.170] and they bill it to the taxpayers.
+- [04:49.820] So they aren't paying for any of their own healthcare
+- [04:51.560] in this country. This is one example.
+- [04:53.470] And we've seen this over and over and over again.
+- [04:55.010] So under President Trump's leadership,
+- [04:56.960] and then of course with JD and the head of the FTC,
+- [05:00.260] Andrew Ferguson,
+- [05:01.520] we are going to see the first ever effort in American history
+- [05:05.010] to reclaim the ultimately trillions of dollars
+- [05:07.610] that were stolen from taxpayers.
+- [05:08.920] I believe, and I know President Trump believes,
+- [05:11.070] that when this theft is exposed,
+- [05:12.540] we will see that if all of it were stopped,
+- [05:14.980] it would be enough to balance the budget.
+- [05:17.360] The extraction of wealth from American taxpayers
+- [05:20.180] to people who don't belong here
+- [05:22.080] is the primary cause of the national debt
+- [05:24.780] and this is the first ever effort to shut that down.
+- [05:26.570] Thank you, Mr. President.
+- [05:27.780] The President: First ever.
+- [05:29.050] And everyone knows they've been cheating for years.
+- [05:31.920] It's the first ever, and it's got to be stopped.
+- [05:35.210] I mean, it's got to be stopped. Think of it.
+- [05:37.650] Somalia is a third world, maybe a fourth world nation,
+- [05:41.520] one of the worst, one of the most dangerous.
+- [05:43.360] They don't have anything. They don't have councils.
+- [05:45.950] They don't have government. They don't have police.
+- [05:48.610] They shoot each other all over the place.
+- [05:50.720] They come here and they steal $19 billion?
+- [05:53.920] It's crazy. And Ilhan Omar, I hope this is part of it,
+- [05:59.270] but she married her brother supposedly.
+- [06:02.150] I mean, there's a lot of documentation
+- [06:03.920] that means she's here illegally and she's a Congresswoman.
+- [06:07.280] And I hope you're going to be looking at that
+- [06:08.870] or somebody is all right
+- [06:10.560] because she's one of the ringleaders here.
+- [06:12.990] She's bad news. Really bad news. She's so bad for our country.
+- [06:16.940] Anyway, JD, please say a few words.
+- [06:19.570] The Vice President: Yes, sir. Well, thank you, Mr. President.
+- [06:21.020] This is a very important whole of government approach
+- [06:23.410] to tackle the fraud problem. And let me just tell one story.
+- [06:26.440] One of the things that even before this executive order
+- [06:28.850] was signed that we were able to stop
+- [06:31.230] under the president's leadership
+- [06:32.430] is we saw evidence that in Minneapolis,
+- [06:35.870] there were Somalis, primarily illegal immigrants
+- [06:38.780] who were defrauding a Medicaid program
+- [06:40.860] that was meant to go to autistic children.
+- [06:43.070] So they were taking children who were supposed to get benefits
+- [06:46.530] and they were claiming that their kids
+- [06:48.190] were actually autistic even though they weren't.
+- [06:50.490] And what did this mean? This meant two things.
+- [06:52.220] Number one, you had a lot of people
+- [06:53.780] getting rich off of the fraud
+- [06:55.290] while American citizens got poor.
+- [06:57.200] And the second thing that it meant
+- [06:58.490] is that you had autistic kids in Minneapolis,
+- [07:00.990] in suburban Minneapolis
+- [07:02.610] who weren't getting benefits they needed
+- [07:04.310] because Somali fraudsters
+- [07:05.730] were literally stealing out of their pocket.
+- [07:07.920] It's got to stop.
+- [07:09.140] And unfortunately, that kind of fraud is one example
+- [07:12.720] of probably hundreds just within the state of Minneapolis,
+- [07:16.450] and then it's repeated and replayed
+- [07:18.300] all over the United States of America.
+- [07:20.550] When we first started talking about this problem,
+- [07:22.190] the president made it very clear
+- [07:23.500] he wanted us to take the fraud problem
+- [07:25.220] seriously because nobody had until he was president.
+- [07:28.520] We started to figure out one big hole that existed
+- [07:31.940] is that the agencies of the government
+- [07:33.490] weren't actually talking to each other.
+- [07:35.100] So Treasury would have evidence of financial fraud,
+- [07:37.590] but wasn't talking to the Department of Justice about it.
+- [07:39.930] Health and Human Services had evidence of Medicaid fraud,
+- [07:42.600] but wasn't talking to the Department of Treasury about it.
+- [07:44.840] So what this executive order does is force the entire
+- [07:48.260] apparatus of the federal government to do two things.
+- [07:51.100] Stop the fraud in the American taxpayer
+- [07:53.040] and make sure that the benefits that ought by right
+- [07:55.820] go to American citizens,
+- [07:57.290] go to American citizens and not to fraudsters.
+- [07:59.860] Andrew Ferguson will be the vice chair
+- [08:01.840] and is going to do a great job.
+- [08:03.460] If you're curious, what's the difference
+- [08:04.870] between the vice chair and the chair?
+- [08:06.780] The vice chair is going to do all the work
+- [08:08.420] and I'm going to take all the credit.
+- [08:09.680] Andrew.
+- [08:11.550] Andrew Ferguson: Yeah.
+- [08:12.770] Look, millions and millions of Americans
+- [08:15.380] pay into these programs every day
+- [08:17.450] and they expect to get something out of it.
+- [08:19.320] And this fraud is just siphoning money
+- [08:21.830] that millions of Americans pay to fund their hospitals,
+- [08:24.960] to fund their daycare centers into completely fake businesses.
+- [08:29.220] It isn't just unfair to all of us
+- [08:30.760] as taxpayers who pay for all of this.
+- [08:32.590] It's particularly unfair to the Americans
+- [08:34.060] who need this the most and watch this money leave their hospital,
+- [08:37.940] leave their school system and go out to fraud.
+- [08:40.250] And that is why this effort is so important.
+- [08:42.120] And I think, we've just begun really looking at this,
+- [08:44.350] but I think that one of the things we're going to find
+- [08:46.130] is that in a lot of these agencies,
+- [08:48.030] the previous administration was pretty lax
+- [08:50.370] about existing anti-fraud controls
+- [08:52.480] and we're going to expose that too.
+- [08:54.650] The President: I would take the word pretty out.
+- [08:57.600] I would change it with unbelievably lax.
+- [09:01.910] It's not even lax. Lax isn't a good enough word.
+- [09:06.780] The previous administration was fraudulent, okay?
+- [09:10.340] And I think that's what you're going to find also.
+- [09:11.950] And we worked so hard, like most favored nations drug prices.
+- [09:17.190] For years, people have wanted.
+- [09:19.000] We paid the highest drug prices anywhere in the world by far.
+- [09:22.550] By five times, six times, 10 times,
+- [09:26.210] more than London would be paying and New York,
+- [09:28.790] more than any city in Europe was paying than our cities.
+- [09:34.320] We would have a pill that would sell
+- [09:36.100] for $10 in Munich in Germany would sell for $10
+- [09:41.460] and in New York it would be $130 or whatever.
+- [09:44.640] And we worked so hard and we pulled it off.
+- [09:47.890] It's called most favored nations.
+- [09:49.900] So now we went from by far the most expensive drugs
+- [09:54.060] anywhere in the world, prescription drugs,
+- [09:56.390] to the least expensive,
+- [09:59.180] and I had to get all the nations to agree.
+- [10:01.150] And I don't want to bore you with how I did it, but I did it.
+- [10:04.290] Everyone said it was impossible to do it,
+- [10:06.020] including the drug companies, and we did it.
+- [10:08.790] And we worked so hard on it,
+- [10:10.860] and we're going to save so much money for the people.
+- [10:13.570] Your drug prices are going to be dropping at levels never even --
+- [10:16.540] By 50, 60, 70, 80% in some cases.
+- [10:19.700] But you work so hard
+- [10:21.970] and then you see them stealing $19 billion.
+- [10:25.200] It's like in one pocket out the other.
+- [10:28.350] And I think Andrew and JD,
+- [10:31.320] I think they've maybe one of the most important jobs.
+- [10:35.710] It could be one of the most important things
+- [10:37.290] that we're signing
+- [10:38.530] because I really believe that they have an opportunity
+- [10:43.010] to do something so good for our country.
+- [10:46.340] People talk about balancing budgets.
+- [10:48.080] You can't balance a budget when people are stealing $19 billion
+- [10:53.280] and nobody's ever heard of anything like it.
+- [10:56.910] I guess in the same state, you went autism
+- [10:59.940] where four or five years ago, they spent one million
+- [11:04.180] and now it's almost 400 million in just a few years.
+- [11:09.040] Well, autism didn't go up like that.
+- [11:13.740] And even the one million was probably a fraud,
+- [11:16.520] but it went from one million to almost 400 million
+- [11:19.910] in just a few years.
+- [11:21.510] These are crooked people.
+- [11:23.030] They basically said everybody in the state had autism.
+- [11:26.350] These are crooked, horrible people.
+- [11:29.600] And I was elected on, with JD, make America great again.
+- [11:36.660] And we can't have this stuff happening.
+- [11:40.560] We have to be respected. And they laugh.
+- [11:43.000] So I'm going to sign this. We'll take some questions,
+- [11:44.850] but let me sign this first before I --
+- [11:47.780] I don't forget, let's see. Before I decide not to. Okay?
+- [11:51.060] The Vice President: Yes, sir.
+- [11:52.410] The President: I don't forget not to,
+- [11:53.620] but maybe I'll decide not to. I would decide not to.
+- [11:56.770] If I didn't think they could do the job,
+- [11:59.120] I would decide not to, but that'll be a terrible thing.
+- [12:02.200] I think they're going to find numbers.
+- [12:03.770] Andrew, I think you're going to find numbers
+- [12:06.090] that are far higher than you even think.
+- [12:09.470] Andrew came to us. He said, "Sir."
+- [12:12.110] He's read the stories about Minnesota.
+- [12:14.180] We know California is many times worse,
+- [12:17.530] but Minnesota's terrible. They're all terrible.
+- [12:20.400] Those cities are terrible. New York is terrible.
+- [12:23.800] What's going on in Chicago,
+- [12:25.100] Illinois with that slob of a governor is terrible.
+- [12:28.620] And the kind of money we're talking about
+- [12:31.110] is just country changing. It's country changing money.
+- [12:36.790] It's having a deficit to having a really profitable country
+- [12:42.100] where you can lower your taxes substantially for people.
+- [12:45.430] And I think you have an opportunity to do it.
+- [12:47.960] And I think you two guys are the right guy.
+- [12:50.260] If you guys can't do it, got a problem
+- [12:53.810] because nobody else will be able to do it.
+- [12:55.990] The Vice President: Yes, sir.
+- [12:57.620] The President: So I'll sign and then
+- [12:59.790] we'll take some nice questions from our wonderful media.
+- [13:12.670] Okay.
+- [13:14.250] (applause)
+- [13:19.750] Here you go. Very important. That's a big deal.
+- [13:24.090] We've been working on this very long.
+- [13:26.410] See it, right, Will? Yes, sir.
+- [13:29.120] The President: Andrew, do you have a question?
+- [13:30.990] The Press: Yes, Mr. President.
+- [13:32.920] You said during your State of the Union
+- [13:34.870] that this type of fraud, the corruption,
+- [13:37.360] is the type of thing that can shred the fabric of a nation.
+- [13:40.880] Why do you suppose then that leaders of recent memory
+- [13:43.730] haven't looked at the systemic amount of fraud
+- [13:45.420] that's been taking place?
+- [13:46.760] The President: Because they're crooked.
+- [13:48.280] Because they're crooked. They make money.
+- [13:51.710] They gain power. They use it for power.
+- [13:54.480] Like with the Somalians, they vote in a block, 100%.
+- [13:58.530] They make a deal with the Somalians.
+- [13:59.930] They all vote because they're on a gravy train.
+- [14:06.030] It's money first, power second.
+- [14:09.010] A lot of people say power first, no.
+- [14:10.910] It's money first, power second.
+- [14:16.620] People come over from Somali, they have no money
+- [14:18.780] and now they're buying Mercedes-Benz cars.
+- [14:23.110] More cash goes out of the Minnesota airport
+- [14:25.750] than any other place in the world or something.
+- [14:28.810] We're going to find it.
+- [14:30.030] And Minnesota's really bad. The governor's corrupt.
+- [14:32.440] The attorney general's totally corrupt.
+- [14:34.310] Just like the New York State attorney general,
+- [14:36.150] Letitia James. She's a highly-corrupt person.
+- [14:40.300] Bragg, the DA is a corrupt person.
+- [14:42.880] They're all corrupt. These are corrupt people
+- [14:46.830] and we got too many of them in our country.
+- [14:50.020] And we have to expose them and we have to catch them.
+- [14:53.980] And if these two guys can't -- These are high-IQ people.
+- [14:58.220] I've always liked high IQ. These are high-IQ people.
+- [15:02.970] If they don't do it, we're going to go a long way, fellas,
+- [15:08.040] to find somebody else that's going --
+- [15:09.900] We have no choice.
+- [15:11.400] Honestly, and they may not do a good job.
+- [15:14.090] If they don't do a good job -- no, no. It's possible.
+- [15:18.870] If they don't do a good job, the country's in trouble.
+- [15:21.610] Yes, go ahead.
+- [15:22.840] The Press: Thank you, sir. Two questions for you.
+- [15:24.150] The President: And I think they're going to do a great job.
+- [15:25.510] Go ahead.
+- [15:26.730] The Press: First, Mr. Vice President,
+- [15:27.960] Democrats are already calling you the Fraud Tzar.
+- [15:30.770] What's your reaction to that title? And then, second-
+- [15:32.620] The President: Good title. I like it.
+- [15:33.910] The Press: And then, second,
+- [15:35.120] given your past skepticism of foreign interventionism,
+- [15:39.670] are you completely onboard with the current war on Iran?
+- [15:43.530] The Vice President: So, I like Fraud Tzar.
+- [15:44.900] It's certainly what we're going to do.
+- [15:46.310] And look, we have to do it.
+- [15:47.540] As the president said, this is a problem
+- [15:49.100] that has festered in this country for far too long
+- [15:51.640] and far too few people
+- [15:52.940] have actually wanted to do anything about it.
+- [15:54.730] That's what makes this administration different
+- [15:56.960] is that we actually tackle the problems
+- [15:58.380] the American people have been confronting.
+- [16:00.100] So, I'm very happy about it.
+- [16:02.550] And I know what you're trying to do, Phil.
+- [16:04.680] You're trying to drive a wedge
+- [16:06.100] between members of the administration,
+- [16:08.770] between me and the president.
+- [16:10.240] What the president said consistently,
+- [16:11.980] going back to 2015, and I agreed with him,
+- [16:14.410] is that Iran should not have a nuclear weapon.
+- [16:16.680] We have taken this military action
+- [16:18.130] under the president's leadership.
+- [16:19.610] I think all of us, whether you're a Democrat or Republican,
+- [16:22.440] should pray for a success and pray
+- [16:23.920] for the safety of our troops.
+- [16:25.350] That's the approach that I've taken.
+- [16:26.620] Make it as successful as possible.
+- [16:28.830] The Press: So, there's no hesitation
+- [16:30.810] given your past statements with the current operation?
+- [16:33.730] The Vice President: What do you mean
+- [16:34.930] there's no hesitation with my past statements?
+- [16:37.380] The Press: Given your skepticism of foreign interventailisim,
+- [16:39.280] your (inaudible)
+- [16:40.510] on the global war on terror previously?
+- [16:42.170] The Vice President: Well, I think
+- [16:43.440] one big difference, Phil,
+- [16:44.680] is that we have a smart president,
+- [16:46.010] whereas in the past we've had dumb presidents,
+- [16:47.860] and I trust President Trump to get the job done,
+- [16:50.230] to do a good job for the American people
+- [16:51.760] and to make sure that the mistakes of the past
+- [16:53.060] aren't repeated. Absolutely.
+- [16:54.320] The Press: Thank you, sir.
+- [16:55.590] The President: So, JD's been great.
+- [16:56.850] But here's the simple thing, I don't want wars.
+- [17:00.190] I want wars less than almost anybody.
+- [17:03.160] Peace through strength. But you know what?
+- [17:06.300] I've watched Iran for a long time.
+- [17:08.950] I've called them out 20 years ago
+- [17:10.520] when I was a civilian that liked watching the world.
+- [17:15.080] And they're violent, vicious people, the leadership.
+- [17:17.860] Violent, vicious people.
+- [17:20.200] They killed 32,000 protestors over the last three weeks.
+- [17:24.060] They put out a memo two days ago saying, "If you protest,
+- [17:28.240] we will shoot you and kill you in the streets."
+- [17:31.520] And somebody said, "Oh, there's not that many protests."
+- [17:35.070] Well, first of all,
+- [17:36.380] there are bombs going off all over the place.
+- [17:38.110] But even if there weren't, who's going to do that?
+- [17:40.980] Who's going to do it?
+- [17:42.290] They don't have any guns and the other ones
+- [17:43.890] have latest inline machine gun
+- [17:46.460] and every form of gun you can have.
+- [17:49.340] They shoot them right through the middle of the head.
+- [17:51.850] They're violent people.
+- [17:53.470] If they had a nuclear weapon, they would use it.
+- [17:56.580] And sometimes they'll have some of the people
+- [17:58.370] that feel very strongly, like I do about wars.
+- [18:02.550] And I say, "Do you think Iran is violent
+- [18:05.810] and do you think their people are violent?"
+- [18:08.310] "Yes." leadership.
+- [18:10.070] "Do you think they should have a nuclear weapon?"
+- [18:13.260] Which is massive power. I don't even want to discuss
+- [18:16.960] how powerful because it's depressing.
+- [18:20.150] And they said, "No, they shouldn't have.
+- [18:23.000] Definitely they shouldn't have."
+- [18:24.450] And I said, "And you don't want to fight war?"
+- [18:26.850] "No, no, we don't want to fight war."
+- [18:28.850] So, these are naive people that frankly are stupid.
+- [18:33.480] If you believe that Iran should have a nuclear weapon,
+- [18:37.770] there's something wrong with you
+- [18:39.090] because they would use it within --
+- [18:40.790] The only question is within one hour
+- [18:43.200] if they get it or one day, they will use it
+- [18:46.080] and they will blow up the entire Middle East, not just Israel.
+- [18:50.090] They'll start with Israel, but there will blow up --
+- [18:51.890] And you got to see that when they unexpectedly
+- [18:54.950] started sending missiles to every country
+- [18:57.070] within 1,000 miles of them.
+- [19:00.340] I mean, they're blowing up countries that were neighbors,
+- [19:05.400] not necessarily -- Some friends.
+- [19:07.040] They were actually were blowing up some friends.
+- [19:09.310] They were blowing up the people that handled their accounts.
+- [19:12.960] They're sending thousands of missiles into countries
+- [19:16.080] that didn't expect to be in the war
+- [19:18.580] because they wanted to take over the Middle East.
+- [19:21.190] And if I didn't terminate Barack Hussein Obama's
+- [19:24.590] horrible Iran nuclear deal,
+- [19:27.250] which I did in my first term, one of the dumbest deals,
+- [19:30.760] perhaps the dumbest deal because of the danger involved,
+- [19:34.070] you would have had them have a nuclear weapon three years ago,
+- [19:36.370] maybe four years ago.
+- [19:37.610] They would have used it, blown up the Middle East
+- [19:39.490] and they would have then come after us.
+- [19:41.690] And if these gorgeous B-2 bombers --
+- [19:44.430] Give me that bomber, Andrew.
+- [19:45.870] Let me just hug that little sucker.
+- [19:47.690] Give me that bomber over there. Thank you.
+- [19:50.140] He knew immediately which one. This looks small,
+- [19:52.630] but in-person, it's very big because it's the only plane
+- [19:56.180] capable of carrying a 200,000-pound bomb.
+- [19:59.660] So, I don't know how they do it
+- [20:01.930] because it's very sleek and nice,
+- [20:03.330] but it carries a lot of weapons and there's a lot of bombs.
+- [20:06.370] But had I not sent this incredible machine,
+- [20:13.550] times numerous others,
+- [20:15.700] to hit Iran at midnight with no moon,
+- [20:21.620] dead dark, every single bomb was dropped right down the chute
+- [20:26.680] that it was supposed to hit.
+- [20:28.160] How they do it, who knows? No other country can do it.
+- [20:32.620] No other country has our military or even close.
+- [20:35.370] And I think we've probably proven that
+- [20:37.780] with Venezuela and now with --
+- [20:39.630] Because we have done a number on Iran.
+- [20:41.540] But if I didn't do that, if I didn't decimate,
+- [20:45.350] I call it their nuclear dust,
+- [20:47.610] they would have had a nuclear weapon
+- [20:50.250] within one month after that bombing took place,
+- [20:53.470] and they would have used it on first Israel
+- [20:55.850] and then the Middle East.
+- [20:57.550] And you know that because all of those missiles
+- [20:59.850] that were launched against their neighbors were set long ago,
+- [21:05.150] long before they knew they would be using them this quickly.
+- [21:08.430] Had we not done this, you would have had a nuclear war
+- [21:12.930] that would have evolved into World War III
+- [21:15.250] and more important,
+- [21:16.590] this is a war that there would have been nothing left.
+- [21:20.460] So, we've done a great thing.
+- [21:23.130] The people that say it's okay for a very sick ideology,
+- [21:29.990] a very sick country in terms of its leadership,
+- [21:32.490] very good people, great people, but the people that say that,
+- [21:40.040] they're either evil or they're stupid.
+- [21:42.670] So, if you believe that Iran should not have
+- [21:46.130] a nuclear weapon, they should not have it,
+- [21:48.720] then you have to absolutely love what I've done
+- [21:51.480] because in two weeks, we have decimated them.
+- [21:55.020] They have no navy, they have no air force,
+- [21:58.130] they have no anti-aircraft weapons,
+- [22:01.070] they have no leadership. The leadership is gone,
+- [22:04.000] but then they set up a new leadership
+- [22:05.640] to go and name a new leader and that leadership is gone.
+- [22:09.550] And now, they think maybe the son is gone.
+- [22:12.770] They're all gone.
+- [22:14.000] My biggest problem is I have no idea who we're talking to
+- [22:16.910] because nobody ever heard of any of these people.
+- [22:18.930] They're all dead. But we did a job for the world,
+- [22:23.010] not a job for us, for the whole world.
+- [22:25.800] We took the worst country in 50 years,
+- [22:30.380] and maybe longer, from the ideological standpoint,
+- [22:34.080] a country that wanted to blow up the world,
+- [22:36.130] a country that is sick, sick, and it has a religious fervor.
+- [22:42.410] And when you add religion --
+- [22:45.280] People don't realize more people died in religious wars
+- [22:48.210] than every other war put together,
+- [22:50.950] and that's what you would have had here
+- [22:53.150] and it was a terrible thing. I'm very proud of what we did.
+- [22:56.630] And I think JD understands better than most,
+- [23:00.910] if you give Iran a nuclear weapon,
+- [23:04.410] at least a very substantial part of the world would be blown up,
+- [23:08.460] and it'll be used almost immediately.
+- [23:10.290] Yes.
+- [23:11.500] You don't mind if I keep this here, do you?
+- [23:13.860] Isn't that a beautiful thing?
+- [23:15.360] I used to look at it, and I said,
+- [23:17.470] "It's a piece of art, but how can it be effective?"
+- [23:20.940] It's so stealth.
+- [23:22.360] Think of it, Peter, 1:00 in the morning it flies in
+- [23:27.000] and they say, "Sir, they're in Iranian airspace."
+- [23:30.060] And I say, "Ooh."
+- [23:31.330] And I'm watching it from the situation room
+- [23:34.190] with a couple of other very smart people,
+- [23:37.570] including some good generals, real generals,
+- [23:39.630] not television generals.
+- [23:41.430] And all of a sudden you see that dive, they start diving
+- [23:46.890] and you see them 30,000, 20,000.
+- [23:50.620] Boy, I said, "That was a lot -- They went down fast to aim it."
+- [23:55.100] And they know they're coming and they're smart
+- [23:59.960] and they never saw them and they're firing a little bit,
+- [24:02.540] but they don't know what they're firing at
+- [24:04.210] because they can't see a thing.
+- [24:06.290] And then, you hear the biggest explosions
+- [24:08.720] that anybody's ever heard. Those are the biggest bombs.
+- [24:12.510] Outside of nuclear, those are the biggest bombs,
+- [24:15.560] and you say what technology we have.
+- [24:17.600] What a great country.
+- [24:19.880] Largely, I built it during my first term. I built it.
+- [24:23.160] I didn't know I'd have to use it this much in my second term,
+- [24:27.220] but we had an incompetent president,
+- [24:29.270] we had an incompetent administration,
+- [24:32.170] and if that group of people in any form,
+- [24:34.540] whether it's Kamala, him,
+- [24:35.900] it doesn't matter, would have had another four years,
+- [24:38.230] we would have had no country left. Yeah, please.
+- [24:39.880] The Press: Thank you, Mr. President.
+- [24:41.090] You say you're doing a job for the rest of the world.
+- [24:42.910] In your conversations with your counterparts,
+- [24:45.560] are they thanking you?
+- [24:46.780] What are their conversations like when you talk
+- [24:48.630] about this military conflict that's taking place in Iran?
+- [24:52.040] The President: Well, they should be thanking me
+- [24:53.540] because many of them get 90% --
+- [24:56.140] China, as an example, should be thanking us,
+- [24:58.280] but I don't expect a thank you, but they should be thanking us.
+- [25:01.890] Japan gets 95%, China, 91%. Many of the countries,
+- [25:08.220] South Korea gets a tremendous percentage of their oil
+- [25:12.990] and therefore their energy from the Straits
+- [25:17.930] or as they call it, the Strait.
+- [25:20.570] And they should be not only thanking us,
+- [25:24.540] they should be helping us.
+- [25:25.930] What does surprise me is that they're not eager to help.
+- [25:30.070] There are a couple, we'll be announcing some names too.
+- [25:32.350] There are some that really were right upfront.
+- [25:35.870] I would announce the name now other
+- [25:37.480] than maybe they'd prefer it not be announced
+- [25:40.030] for whatever reason.
+- [25:41.310] I will say this, it's a lot easier to get people today
+- [25:45.270] than it was two weeks ago.
+- [25:47.010] Two weeks ago, before we obliterated their country,
+- [25:51.760] before we took out --
+- [25:53.200] Because they're down to about 8% of their missiles,
+- [25:57.660] they're down to a small portion of their drones,
+- [26:00.870] and we've demolished many of their factories
+- [26:03.470] where they make the missiles and the drones
+- [26:05.120] and the rest are all following.
+- [26:07.910] Our military has been amazing. We hit Kharg Island,
+- [26:11.070] took out every single thing in Kharg Island,
+- [26:13.280] except one thing, we left the pipes
+- [26:15.310] because if we take out the pipes,
+- [26:16.800] takes a long time to build them.
+- [26:18.100] And at some point, something's going to happen
+- [26:21.600] that's positive with respect to those pipes.
+- [26:24.100] But there are some countries that greatly disappointed me
+- [26:29.750] and I'm the one that got them to pay from 2% to 5% of GDP, NATO.
+- [26:36.370] And I get along great with those countries in NATO,
+- [26:38.490] but I always said,
+- [26:39.730] "The problem with NATO is we'll always be there for them,
+- [26:42.870] but they'll never be there for us."
+- [26:44.360] And when I hear the UK, which was considered
+- [26:49.750] the Rolls-Royce of allies, wouldn't you say?
+- [26:52.160] They were the oldest and they were going to be there.
+- [26:56.060] And I say, "It would be really helpful
+- [26:57.450] if you'd send over a couple of ships
+- [26:59.780] and if you have some mine sweepers,"
+- [27:01.420] which they do, "it'd be very helpful."
+- [27:03.980] And the prime minister is a nice man,
+- [27:06.320] I think he's a very nice guy.
+- [27:07.660] He says, "Well, I'd like to ask my team."
+- [27:10.930] I said, "You don't have to worry about a team.
+- [27:12.480] You don't have a team.
+- [27:13.700] You're the prime minister. You can make a decision."
+- [27:16.420] "Well, I have to speak to my people." I said,"
+- [27:18.010] You don't have to speak to anybody."
+- [27:19.940] So, it was very disappointing.
+- [27:21.300] And then, after we obliterated them,
+- [27:24.590] it destroyed their military, their whole thing,
+- [27:28.610] and it became a much safer zone, he said,
+- [27:33.220] "We're going to send over two aircraft carriers."
+- [27:35.360] I said, "I don't want them anymore.
+- [27:37.510] I don't want them after we win. I want them before we start.
+- [27:40.970] I don't need your aircraft carriers
+- [27:42.460] after we've already won."
+- [27:44.440] So, those things are very disappointing.
+- [27:46.830] And you have to remember, we have 45,000 troops in Japan.
+- [27:52.910] We have 45,000 troops in South Korea.
+- [27:55.190] We have 50,000 troops in Germany.
+- [27:59.370] We defend all these countries,
+- [28:01.510] and then do you have any mind sweepers?
+- [28:05.130] And they say,
+- [28:06.380] "Well, would it be possible for us not to get involved?"
+- [28:10.070] I've been saying it for a long time,
+- [28:12.220] "This is the greatest thing to come out of this."
+- [28:15.270] We spend trillions and trillions of dollars on NATO
+- [28:17.890] to defend other countries.
+- [28:19.920] And I always said, "But if it ever comes time to defend us,
+- [28:22.930] they're not going to be there." Many of them would not be there.
+- [28:27.520] And we're going to have to start
+- [28:29.720] thinking more wisely in this country.
+- [28:32.080] Some have been very good. One or two have been great.
+- [28:35.380] I'll tell you who the great ones are at the right time.
+- [28:38.010] But there have been some that were right up there, Peter.
+- [28:40.520] They were right up there. They wanted to do it so much.
+- [28:42.290] Go ahead, Peter.
+- [28:43.490] The Press: Thank you.
+- [28:44.710] You were talking about Iran a couple times today
+- [28:46.580] and what they did after Epic Fury began.
+- [28:49.390] You said they hit Qatar, Saudi Arabia,
+- [28:51.430] UAE, Bahrain, Kuwait.
+- [28:52.770] Nobody expected that. We were shocked.
+- [28:55.370] Are you surprised that nobody briefed you ahead of time
+- [28:57.850] that that might be their retaliation?
+- [29:00.190] The President: Nobody. No.
+- [29:01.800] The greatest experts, nobody thought they were going to hit.
+- [29:04.370] They were -- I wouldn't say friendly countries.
+- [29:05.970] They were neutral. They lived with them for years.
+- [29:09.470] Peter, they were going to take over the Middle East.
+- [29:11.410] They were going to knock out Israel
+- [29:12.770] with their nuclear weapon.
+- [29:14.200] But after we knocked out their nuclear potential weapon,
+- [29:20.700] they started building missiles,
+- [29:22.810] thousands and thousands of missiles.
+- [29:25.500] And they were going to do it with missiles
+- [29:27.650] while they developed -- These are sick people.
+- [29:30.300] While they developed nuclear,
+- [29:31.810] somehow they were going to start on a different site
+- [29:33.720] because that site was -- You saw the site, the mountain.
+- [29:36.890] They were going to go into a certain area,
+- [29:38.730] which we know exactly where it is,
+- [29:40.920] and they were going to do that.
+- [29:44.330] It's incredible what we've done.
+- [29:46.240] I'll tell you, the job we've done --
+- [29:48.940] If I didn't terminate Barack Hussein
+- [29:51.130] Obama's Iran nuclear deal, you would right now --
+- [29:55.850] Well, Israel would be gone. It would be incinerated,
+- [29:59.490] and probably the Middle East likewise.
+- [30:01.930] And remember, they have all of those missiles.
+- [30:05.010] And I heard they were sending missiles to UAE.
+- [30:09.470] I said, "That's strange. UAE is like the banker for Iran.
+- [30:14.230] They're like the banker." Qatar, they're neighbors.
+- [30:18.360] They got along okay. Saudi Arabia -- All of a sudden,
+- [30:23.140] Kuwait. Kuwait is getting hit. Bahrain is getting --
+- [30:27.930] All these countries are getting hit.
+- [30:30.350] There was no expert that would say that was going to happen.
+- [30:32.920] It's not a question of like, "Gee, should you have known?"
+- [30:35.670] And if we did known, big deal.
+- [30:37.470] I mean, we have to do what we have to do.
+- [30:40.890] But we hit them so hard like nobody's ever been hit.
+- [30:44.140] We hit them very hard.
+- [30:45.960] And we've extinguished most of their missiles.
+- [30:49.250] We've extinguished most of their drones.
+- [30:51.780] We've extinguished most of the places
+- [30:54.560] where the missiles and the drones are built.
+- [30:57.300] We've fully extinguished two layers of leadership
+- [31:01.090] and probably a third, if you believe some story.
+- [31:07.330] We only have one thing to have a little choke point
+- [31:10.080] and they've used it very well for years, but it doesn't work.
+- [31:13.710] But I think this, if some of these countries
+- [31:18.300] that we've been good to for years,
+- [31:19.970] and maybe more important than that,
+- [31:21.720] some of these countries that get 90%
+- [31:23.990] and 95% of their energy from Hormuz, the strait --
+- [31:31.420] Hormuz, famous, wonderful, beautiful place,
+- [31:35.630] but you wouldn't want to be necessarily
+- [31:37.460] sailing a boat there right now.
+- [31:38.690] The Press: I would not.
+- [31:39.930] The President: You know why?
+- [31:41.180] Not because of them, because of us.
+- [31:43.170] Because we've taken out their entire navy.
+- [31:45.920] We've taken out every one of their drones.
+- [31:47.790] They call it a drone layer, a mine layer.
+- [31:51.360] There's specific boats that are meant to put mines on.
+- [31:54.770] How would you like to have a nation that has 22 boats,
+- [31:59.180] where their soul function --
+- [32:01.450] They're very different looking boats.
+- [32:02.730] You wouldn't want one for your family.
+- [32:04.180] They're not pretty.
+- [32:05.470] Their soul function is to lift a mine into the water
+- [32:09.230] and drop it a certain number of feet down.
+- [32:12.180] But they had 22 of them. We've taken out all of them.
+- [32:14.770] But you can probably drop them off other boats.
+- [32:19.160] By the way, we don't know
+- [32:20.440] that any mines have even been dropped,
+- [32:22.540] but the thought that they would scares people
+- [32:25.120] that have billion dollar ships.
+- [32:27.680] Yeah? Please.
+- [32:28.950] The Press: Thank you, President Trump.
+- [32:30.300] The President: Thank you.
+- [32:31.540] The Press: I'd like to ask the vice president about his
+- [32:33.080] (inaudible)
+- [32:34.300] possible fraud in California and New York,
+- [32:36.610] of course, about Minnesota.
+- [32:37.840] President Trump, first if I could I ask you,
+- [32:39.470] you said earlier today that the new supreme leader, Mojtaba,
+- [32:43.470] may be -- You don't know if he's dead or alive.
+- [32:46.050] There were a couple interesting reports about him today.
+- [32:49.060] There's one report that he just narrowly escaped death
+- [32:51.330] in the first air strikes by stepping out into his garden.
+- [32:54.040] There's another report that he may actually be gay
+- [32:56.450] despite leading a (inaudible)
+- [32:58.430] that hates gay people. How do you determine what's true
+- [33:01.920] and do you have an assessment of this?
+- [33:04.600] The President: So far, nobody knows.
+- [33:05.900] If you look at his father, he used to give talks a lot,
+- [33:09.880] talking about death to America.
+- [33:11.420] He'd say "Death to America" all the time.
+- [33:13.780] When they say "Death to America",
+- [33:15.450] you should believe them because that's what they would have --
+- [33:17.950] If they had a nuclear weapon, they would have used it,
+- [33:20.220] but they never had the chance.
+- [33:21.530] I never gave them the chance to use it.
+- [33:23.700] And other presidents should have done --
+- [33:26.820] I spoke to one of the former presidents who I actually like.
+- [33:30.350] I actually speak to some, I do like some people, be shocking.
+- [33:35.570] And he said, "I wish I did what you did."
+- [33:38.310] Could have done it. Other presidents --
+- [33:41.440] Somebody should have done it. 47 years this went on.
+- [33:44.920] They call Iran the bully of the Middle East
+- [33:47.530] and you could have never had the Abraham Accords.
+- [33:49.780] You could never have had peace in the Middle East.
+- [33:51.680] Now, you're going to have peace.
+- [33:53.080] You could never do it with the dark cloud of a nuclear Iran.
+- [33:58.000] But Iran is a shell of itself. It's no longer a bully.
+- [34:01.410] It's the one that gets bullied. It's a bully that got beat up.
+- [34:03.840] We beat the crap out of them and they deserve that.
+- [34:08.970] When you see a soldier walking down the street
+- [34:11.860] without his arms or being helped down the street
+- [34:14.940] because he's got no legs or his face
+- [34:17.600] is blown to smithereens with no legs and no arms,
+- [34:20.630] those two, no legs, no arms,
+- [34:23.220] and a face that got wracked, that was done by roadside bombs.
+- [34:28.330] That's the favorite weapon of Soleimani,
+- [34:32.140] who I killed in my first administration.
+- [34:36.400] General Soleimani, had I not killed him --
+- [34:39.010] That was the beginning of their downfall,
+- [34:41.070] because had he not gone, it's possible
+- [34:44.560] that we would not be this far advanced in destroying Iran
+- [34:47.600] because he was a really good general.
+- [34:49.070] He was a vicious, horrible man, but he was a brilliant general,
+- [34:53.560] and he was looking to knock out
+- [34:54.980] five of our military bases at one time.
+- [34:57.310] And the man that died with him was the same,
+- [35:00.600] his counterpart in Iraq.
+- [35:03.110] They were working together and they got hit real hard.
+- [35:07.960] And if that didn't happen, we would have had a problem.
+- [35:09.860] But maybe more importantly than that,
+- [35:14.080] he was really the mastermind behind it.
+- [35:16.850] And they never found somebody to replace him
+- [35:19.190] in terms of the genius.
+- [35:21.490] I knocked him out, and that was a big step knocking him out.
+- [35:24.830] But if we didn't get rid of the Obama deal --
+- [35:28.170] I terminated it,
+- [35:29.540] against the wishes of my then secretary of state --
+- [35:32.590] He was no Marco --
+- [35:34.340] against the wishes of a lot of people at the time.
+- [35:37.890] You remember that, Peter? A lot of people.
+- [35:40.590] Remember that, Steven? You remember?
+- [35:42.090] The Press: Oh, yes.
+- [35:43.320] The President: They were all (inaudible)
+- [35:44.580] this is not --" That deal was a disaster.
+- [35:47.370] That was a road to a nuclear weapon.
+- [35:49.390] They would have had it three years ago,
+- [35:51.820] and it would have been used,
+- [35:56.220] I would say, two to three years ago.
+- [36:00.520] And it would have been used in the Middle East.
+- [36:02.190] And by the way, after they were finished that,
+- [36:05.210] they were coming over here.
+- [36:06.600] They never got a chance to do it.
+- [36:07.910] The Press: Mr. President, I just want to ask you
+- [36:09.140] about something very interesting that you've said twice today,
+- [36:11.320] that you talked to another former president
+- [36:13.020] about the Iran strikes.
+- [36:14.320] The President: I did.
+- [36:15.540] The Press: Was it George W. Bush?
+- [36:16.790] The President: No.
+- [36:18.030] The Press: Was it Bill Clinton?
+- [36:19.400] The President: I don't want to say.
+- [36:22.410] I don't want to say, because a member of a party --
+- [36:29.610] they have Trump Derangement Syndrome, all,
+- [36:33.370] but it's somebody that happens to like me
+- [36:35.730] and I like that person, who's a smart person,
+- [36:39.160] but that person said, "I wish I did it."
+- [36:43.670] Okay? But I don't want to get into who.
+- [36:45.660] I don't want to get him into trouble.
+- [36:46.940] Maybe, hey, you know what?
+- [36:49.810] I think you probably know. It's interesting.
+- [36:53.140] And maybe he'd be proud. I could even ask him that,
+- [36:55.580] "Would you like me to reveal your name to Peter at Fox?"
+- [37:00.280] At least you have high ratings.
+- [37:02.620] Your ratings are through the roof, Peter.
+- [37:04.040] The Press: Thank you for noticing.
+- [37:05.330] The President: Congratulations.
+- [37:06.610] The Press: Can I ask you another question about the war?
+- [37:08.750] The President: Yeah.
+- [37:09.970] The Press: If Iran, as you said,
+- [37:11.350] totally obliterated, got the missiles,
+- [37:13.470] got the first two rounds of leadership, air force gone,
+- [37:16.850] navy gone, can we wrap this war up this week?
+- [37:20.810] The President: Yeah, sure, we can.
+- [37:22.290] The Press: Will we?
+- [37:23.780] The President: I don't think so, but it'll be soon.
+- [37:25.430] Won't be long.
+- [37:26.800] And we're going to have a much safer world
+- [37:28.460] when it's wrapped up. It'll be wrapped up soon.
+- [37:31.840] We're going to have a much safer world.
+- [37:34.900] I had an obligation to do this. I called it an excursion.
+- [37:40.020] I don't want to make this journey.
+- [37:41.950] We had the highest stock market in history.
+- [37:44.680] We had low gas prices. Everything was good.
+- [37:47.150] And I know exactly, I know what --
+- [37:48.530] You're going to do it and people
+- [37:49.920] are going to raise the price of oil,
+- [37:51.810] (inaudible). But I know that.
+- [37:54.220] But that's a very small thing
+- [37:55.460] compared to allowing them to have --
+- [37:57.960] You want to see a stock market go down?
+- [38:00.490] Start letting them hit you with nukes.
+- [38:05.560] I said it this morning. I think it's a very small price to pay.
+- [38:11.030] Frankly, I thought it was going to go down much more,
+- [38:12.920] if you want to know the truth.
+- [38:14.130] I assumed that it was going to go down much more,
+- [38:16.380] only because people don't understand to a large --
+- [38:19.620] It's a big chess game at a very high level.
+- [38:22.340] It's very high-level chess, the highest,
+- [38:25.120] and I'm dealing with very smart players.
+- [38:26.870] These are smart people.
+- [38:29.120] When you deal with some of these people,
+- [38:31.750] you're dealing with high-level intellect, very high IQ people.
+- [38:39.170] These are not Jasmine Crockett and her group.
+- [38:42.230] These are smart people.
+- [38:43.520] These are really smart people and violent people
+- [38:45.620] and vicious people and some very nice people.
+- [38:48.380] And some are very nice, but violent. They turn violent.
+- [38:51.790] But you know what?
+- [38:53.020] If I didn't do what I did, we would have been hit.
+- [38:58.440] Number one, very important,
+- [39:00.930] was the termination of Obama's horrible deal.
+- [39:04.320] And number two, this beautiful plane
+- [39:06.690] hitting them eight months ago,
+- [39:08.960] whenever it was, and taking out their nuclear capacity,
+- [39:12.260] that totally threw them for a loop.
+- [39:18.120] At either time, five years ago or seven months ago,
+- [39:23.720] if they had that bomb,
+- [39:25.350] that bomb would have been used almost immediately.
+- [39:27.470] The Press: Mr. President,
+- [39:28.760] two questions on domestic policy,
+- [39:31.010] bringing closer to home.
+- [39:32.230] First of all, the SAVE America Act,
+- [39:33.750] what are you expecting this week
+- [39:35.030] when this vote takes place in the US Senate?
+- [39:36.970] Will the vice president's vote be necessary?
+- [39:38.680] The President: I think it's imperative that it gets done.
+- [39:40.960] I'm not sure it is.
+- [39:44.620] The Democrats have horrible policy.
+- [39:48.530] It's just incredible.
+- [39:50.910] But they stick together. It's the one thing they do.
+- [39:54.210] Their Supreme Court members stick together.
+- [39:56.510] Those appointed by a Democrat stick together.
+- [40:01.060] If Barack Hussein Obama appoints a member of the Supreme Court,
+- [40:05.640] that member never goes against him,
+- [40:08.680] and they're proud about it.
+- [40:10.190] They say, "I don't give a damn if it's good or bad.
+- [40:14.480] That man appointed me and I'm never going to let him down."
+- [40:17.090] I don't say that's right, wrong. I just say they stick together.
+- [40:21.210] Republicans go the opposite way. If Donald Trump appointed me,
+- [40:25.810] I'm going to show the world that I can be totally just
+- [40:31.270] and I can be independent of Donald Trump.
+- [40:35.400] He's not controlling me.
+- [40:38.080] And I don't want to control them.
+- [40:40.280] I just want to have smart decisions.
+- [40:41.880] They gave us a decision on tariffs the other day
+- [40:46.130] that won't change tariffs. I can do it a different way.
+- [40:48.760] I always knew I could do it a different way.
+- [40:50.430] This was a little quicker, a little easier,
+- [40:52.000] a little better. But they gave it a decision
+- [40:55.850] that could cost this country $500 billion to pay people back,
+- [41:02.100] because now I have to start the tariffs all over again.
+- [41:04.350] Very simple.
+- [41:05.940] And what happens with the money I've already collected?
+- [41:08.930] Why didn't they say, starting from now go the other way?
+- [41:14.290] $500 billion perhaps. It's so sad.
+- [41:20.180] But one thing about the Democrats,
+- [41:22.630] they stick together like glue.
+- [41:25.880] They impeached me twice for absolutely no reason,
+- [41:30.560] unanimously.
+- [41:31.780] Fortunately, the Republicans stuck together.
+- [41:35.240] And it was something. It was pretty wild.
+- [41:38.850] But the Democrats have horrible policy,
+- [41:41.780] transgender for everybody, open borders,
+- [41:45.600] men playing in women's sports.
+- [41:49.060] But the one thing they do have is they stick together,
+- [41:51.310] no matter how bad the policy --
+- [41:52.990] It's embarrassing to watch them try to defend it.
+- [41:58.570] As a Republican, in a way, We are saying,
+- [42:00.730] "Thank goodness they have bad policy
+- [42:02.190] because you'd never beat them."
+- [42:04.140] We have something in there now, the Save America Act.
+- [42:08.100] Voter ID with a picture, right? That's a 99% issue.
+- [42:13.930] Even among Democrats, Democrats poll at 89% on that.
+- [42:18.830] And then they have proof of citizenship,
+- [42:21.880] and then they have no mail-in ballots.
+- [42:23.580] No mail-in ballots. We have no mail-in.
+- [42:26.780] You go to California, they send out like 38 million ballots.
+- [42:31.280] Some Democrats get seven, eight ballots.
+- [42:34.500] Republicans are a lot of times calling in,
+- [42:37.060] "Where's my ballot? Where's my ballot?"
+- [42:39.200] They're lucky to get one.
+- [42:41.910] Jimmy Carter, probably the greatest thing he ever did.
+- [42:45.390] I thought he was a nice man,
+- [42:46.650] not a great president to put it mildly.
+- [42:49.150] How did his attack work out in Iran?
+- [42:50.620] Not too good.
+- [42:51.840] I think ours is slightly better, wouldn't you say?
+- [42:53.740] But Jimmy Carter, the one thing he did
+- [42:55.340] after he left with Scoop Jackson and some others,
+- [42:58.140] they formed a very elite council.
+- [43:01.720] A committee that came out and said very strongly,
+- [43:06.400] "No mail-in ballots because if you have --"
+- [43:08.460] We're the only country in the world
+- [43:09.920] that has mail-in ballots like we do.
+- [43:12.370] The only country in the whole world.
+- [43:13.740] People have tried it.
+- [43:15.120] France tried it and they went away.
+- [43:17.890] They're now doing paper ballots, watermark paper,
+- [43:20.860] which very hard to cheat.
+- [43:22.720] So when you look at what happens with this country,
+- [43:27.610] we really have to fix it. That'll be very popular.
+- [43:30.500] The other thing we put in there, just as best of,
+- [43:33.360] I call it the best of Trump.
+- [43:35.750] We have the three things I just said, right?
+- [43:39.120] But then I added on no men playing in women's sports.
+- [43:42.350] And I edited no trans-gender surgery,
+- [43:46.990] the mutilation of our children.
+- [43:49.390] We have no mutilation of our children.
+- [43:52.540] No transgender.
+- [43:55.030] I think they say that's an 80% issue.
+- [43:58.850] I think there are 99% issues, but whether they're 80% or 99 --
+- [44:03.760] The problem is we have a couple of Republicans,
+- [44:06.830] they shouldn't be allowed. They're horrible people
+- [44:11.520] and they're willing to vote against anything.
+- [44:15.520] And we have all the Democrats who vote against it.
+- [44:18.550] So I think it hurts the Democrats to vote against it,
+- [44:22.320] because I'm going to instruct all the Republicans to say that
+- [44:28.030] so-and-so that they're running against voted
+- [44:30.240] against the saving of our children
+- [44:33.120] from transgender mutilation, right?
+- [44:35.510] That's pretty unpopular. They want men in women's sports.
+- [44:39.580] That's pretty unpopular.
+- [44:41.420] They want voter ID, but the Democrats don't.
+- [44:44.700] Everybody wants voter ID.
+- [44:46.170] Everybody wants proof of citizenship.
+- [44:48.720] And most people don't want mail-in voting
+- [44:50.300] because they know it's a fraud. Touches too many hands.
+- [44:53.860] I mean, the postman gets it, this one gets it, that one.
+- [44:57.400] So these are all issues that are in the 90s to 100.
+- [45:02.880] I would say some are virtually 100%.
+- [45:05.560] And the interesting thing is they're that way,
+- [45:07.140] not only with the Republican.
+- [45:08.350] I'm not talking about leadership, I'm talking about --
+- [45:11.350] They're that way also, most importantly with the people.
+- [45:13.990] The people of our country want voter ID.
+- [45:16.540] The people of our country want proof of citizenship.
+- [45:19.410] And that includes 88%, 89% of Democrats.
+- [45:25.540] And I think the Republicans, Eric Schmidt,
+- [45:29.610] Rick Scott, Tim Scott.
+- [45:33.670] I speak to so many of them. They all want it.
+- [45:38.370] I hope John Thune can get it across the line. He's trying.
+- [45:42.580] I mean, he told me this morning I spoke to him, he's trying.
+- [45:47.830] I think it'll be a very, very bad thing
+- [45:50.740] for our country if they don't.
+- [45:52.310] We're just asking for basic things.
+- [45:54.680] Think of it. You can't have voter ID.
+- [45:58.430] Do you know in California,
+- [46:00.510] if you ask a person to show their identification,
+- [46:04.550] they have the right to put you in jail.
+- [46:05.990] If you're an official and you say,
+- [46:08.420] "May I please see your identification?"
+- [46:10.450] You're subject to going to jail. That's how crazy it's gotten.
+- [46:14.420] With a low IQ person,
+- [46:15.890] because Gavin Newsom has admitted
+- [46:18.910] that he has learning disabilities.
+- [46:22.080] Honestly, I'm all for people with learning disabilities,
+- [46:24.640] but not for my president, I don't want --
+- [46:27.150] I think a president should not have learning disabilities.
+- [46:29.890] Okay?
+- [46:31.120] And I know it's highly controversial
+- [46:33.190] to say such a horrible thing.
+- [46:35.190] The President of the United States, Gavin Newsom,
+- [46:38.370] admitted that he has learning disabilities, dyslexia.
+- [46:44.180] Everything about him is dumb.
+- [46:46.710] But then he looked at the audience and said,
+- [46:49.480] "But I'm smarter than you,"
+- [46:51.620] or something like that, that was pretty stupid.
+- [46:53.970] So now on top of everything else, I call him a racist
+- [46:56.940] because it happened to be a black audience.
+- [46:58.940] I will tell you this, I think it was the worst interview
+- [47:02.110] I've ever seen of any human being in my life.
+- [47:04.270] Okay. Anybody else have any questions?
+- [47:06.000] The Press: (inaudible)
+- [47:07.200] Iran, will it be necessary to use
+- [47:11.660] even a limited ground force
+- [47:13.460] to secure whatever nuclear material remains in Iran?
+- [47:17.490] It is part of that threat.
+- [47:19.090] And secondly, have you made a decision?
+- [47:20.770] The President: You mean to go in and get it?
+- [47:22.280] The Press: Yes, sir.
+- [47:23.560] The President: Why would I tell you a thing like that?
+- [47:26.550] You know I can't stand reporters.
+- [47:28.370] "Sir, will you attack Kharg Island?
+- [47:32.260] Will you occupy Kharg?" They asked me these questions.
+- [47:36.310] And I don't want to be mean, but they're stupid questions.
+- [47:40.120] If any president answered those questions,
+- [47:42.280] they shouldn't be president.
+- [47:43.780] The Press: And secondly, sir,
+- [47:45.000] do you still plan to travel to Beijing at the end of this --
+- [47:49.160] The President: I don't know. We're working on that right now.
+- [47:51.680] We're speaking to China.
+- [47:53.250] I'd love to, but because of the war, I want to be here.
+- [47:56.810] I have to be here, I feel.
+- [47:59.770] And so we've requested that we delay it a month or so.
+- [48:04.280] And I'm looking forward to being with them.
+- [48:05.780] We have a very good relationship,
+- [48:08.010] but because of the war -- There's no tricks to it either.
+- [48:10.760] It's just, it's not like, "Oh gee, I'm waiting."
+- [48:13.890] It's very simple. We got a war going on.
+- [48:17.300] I think it's important that I be here.
+- [48:20.350] So it could be that we delay it a little bit.
+- [48:23.200] Not much (inaudible) Cuba.
+- [48:27.390] The Press: Is Cuba, whatever you do with the military there,
+- [48:29.800] seems like something.
+- [48:31.280] Will that look more like Iran or Venezuela?
+- [48:34.340] The President: Can't tell you that.
+- [48:36.320] I can tell you that they're talking to us.
+- [48:38.920] It's a failed nation. They have no money.
+- [48:41.720] They have no oil. They have no nothing.
+- [48:43.990] They have nice land. They have nice landscape.
+- [48:48.050] It's a beautiful island. I think they have great people.
+- [48:51.250] I know so many people from Cuba that were treated terribly
+- [48:54.000] and they're over here and they became rich.
+- [48:56.340] They're very entrepreneurial people, very smart.
+- [48:58.550] And there are a lot from Florida especially.
+- [49:00.230] There's so many people.
+- [49:02.420] A friend of mine started over with nothing.
+- [49:04.910] He's now the largest owner of gas stations
+- [49:07.160] in the country and stuff. I mean, Cuban.
+- [49:09.980] I also know I was just with a fantastic person
+- [49:17.330] who's Cuban and made a fortune in sugar.
+- [49:20.820] Fanjul Family, right?
+- [49:22.960] And this family wants to go back to Cuba to visit it.
+- [49:29.290] They haven't been back in like 50 years or something.
+- [49:31.470] They largely come from Cuba and we'll see what happens.
+- [49:37.790] They were asking me about that.
+- [49:39.280] They want to go back, not only Fanjul,
+- [49:43.270] a lot of Cubans have said,
+- [49:44.580] "Oh boy, would they love to go back?"
+- [49:46.450] I think Cuba, I don't know, in its own way,
+- [49:48.340] if tourism and everything else, it's a beautiful island.
+- [49:51.430] Great weather.
+- [49:52.830] They're not in a hurricane zone, which is nice for a change.
+- [49:56.220] They won't be asking us for money for hurricanes every week.
+- [49:59.590] But I think Cuba see in the end --
+- [50:02.190] All my life I've been hearing
+- [50:03.420] about the United States and Cuba.
+- [50:05.940] When will the United States do it?
+- [50:08.590] I do believe I'll be the honor
+- [50:10.110] of having the honor of taking Cuba.
+- [50:15.240] That'd be good. That's a big honor.
+- [50:16.770] The Press: Taking Cuba.
+- [50:17.990] The President: Taking Cuba in some form, yeah.
+- [50:19.670] Taking Cuba. I mean, whether I free it, take it.
+- [50:24.170] Think I could do anything I want with it,
+- [50:25.680] you want to know the truth.
+- [50:26.950] They're a very weakened nation right now.
+- [50:30.500] They were for a long time. Very violent leaders.
+- [50:35.640] Castro was a very violent leader.
+- [50:37.340] His brother is a very violent leader.
+- [50:39.950] Extremely violent. That's how they governed.
+- [50:43.140] They governed with violence,
+- [50:44.850] but a lot of people would like to go back.
+- [50:47.190] Okay, one more question.
+- [50:48.590] The Press: Quick question on fraud for Vice President Vance.
+- [50:50.840] Mr. Vice President,
+- [50:52.060] you announced a couple of weeks ago
+- [50:53.530] in the EEOB that the administration
+- [50:55.180] would be halting Medicaid payments to Minnesota
+- [50:57.850] until the state decided to take pervasive steps
+- [51:00.000] to root out fraud.
+- [51:01.260] Do you have an update to that specific situation?
+- [51:04.260] Do you think that that could be a model moving forward
+- [51:07.490] for the task force for states that won't cooperate?
+- [51:09.860] The Vice President: So I don't have an update there.
+- [51:11.190] Dr. Oz is looking to it,
+- [51:12.430] trying to work with the authorities in Minnesota
+- [51:14.510] to try to figure that situation out.
+- [51:16.320] But yeah, I mean, I think there are two obvious tools
+- [51:18.470] that we have to stop the fraud
+- [51:20.000] that's happening against the American people.
+- [51:22.290] One is that when we see evidence of fraud,
+- [51:24.150] we stop the payments. Pretty simple, right?
+- [51:25.780] We know that the American people are being defrauded.
+- [51:28.150] Let's try to stop the payments
+- [51:29.380] and ensure that whoever's making these payments
+- [51:31.560] is actually complying with some basic due diligence,
+- [51:34.320] and making sure the payments are going to the right place.
+- [51:36.450] I think the second tool, of course, we have,
+- [51:38.220] as the president mentioned,
+- [51:39.450] is we have law enforcement options.
+- [51:40.730] We know that some of this fraud is just bad.
+- [51:44.370] Some of it's criminal.
+- [51:45.680] We know that people are intentionally
+- [51:47.760] trying to defraud the American people.
+- [51:49.350] It's not just in Minnesota, it's all across the country.
+- [51:51.750] The President: 99% is criminal.
+- [51:53.420] The Vice President: Yes, sir. So this is one of the reasons
+- [51:55.840] why DOJ is such an important part of this,
+- [51:58.170] is because we have to make sure
+- [51:59.940] that where we see criminal conduct,
+- [52:01.210] we actually prosecute it.
+- [52:02.850] And the president's talked about this a lot in the past.
+- [52:04.640] I don't need to repeat it.
+- [52:05.900] But it's worth noting that so many times
+- [52:08.690] when we find people engaged in really, really bad conduct,
+- [52:13.560] the local judge or the local grand jury tries to stop it.
+- [52:16.950] One of the cool things about what we're doing
+- [52:19.130] is we're trying to take some innovative steps
+- [52:20.680] to ensure that when we find criminal fraud,
+- [52:22.400] we can actually prosecute it all the way to the end.
+- [52:26.010] The President: She wanted one question.
+- [52:27.310] She's over here and you guys are over there.
+- [52:30.470] Where's your main camera? Is it this one?
+- [52:32.910] Which one is the main camera?
+- [52:35.020] Okay, good. Nice center, good. I thought it was that one.
+- [52:37.900] The Press: Thanks, Mr. President.
+- [52:39.360] Mary Margaret with Daily Wire, not CNN.
+- [52:41.590] We just wanted to ask about DHS, still not funded.
+- [52:44.390] But we reported earlier today
+- [52:45.840] that 80% of the primary task force that focuses
+- [52:49.050] on investigating terrorism is working without pay.
+- [52:51.680] So should that impact Democrats decisions to --
+- [52:54.140] The President: The Democrats aren't paying, the Democrats --
+- [52:56.310] We have a deal. They just said, "We're not going to pay.
+- [52:59.020] We're not going to do anything," and it's terrible.
+- [53:01.950] The Democrats are terrible. It'd be nice to get along,
+- [53:06.620] but for years this has been going on, not just with me.
+- [53:10.380] For years it's been going on.
+- [53:11.790] Different ideology, but also different tactics.
+- [53:16.200] Here we are, we're fighting big battles
+- [53:18.880] with a very tough enemy, and winning nicely.
+- [53:23.080] And we're not allowed to have security in our country.
+- [53:26.030] It's crazy. The Democrats don't want to pay.
+- [53:29.090] These are bad people.
+- [53:30.320] These are not people that love our country,
+- [53:32.030] I can tell you that. They're very sick people.
+- [53:34.630] Thank you very much, everybody.

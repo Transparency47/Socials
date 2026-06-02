@@ -1,0 +1,235 @@
+<!-- source: https://www.youtube.com/watch?v=5Hgnt_r-IvI -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 5Hgnt_r-IvI -->
+<!-- date_published: 2025-10-13T15:20:59+00:00 -->
+<!-- date_accessed: 2026-06-02T01:13:16.062904+00:00 -->
+
+# Transcript: The Story of America: To Provide a Navy
+
+- [00:00.800] (mix of famous American history quotes)
+- [00:39.963] John Phelan: The American colony stood at the brink
+- [00:42.108] of revolution.
+- [00:44.377] On land, our founding fathers had already
+- [00:46.579] established Continental Army and entrusted its
+- [00:49.482] command to General George Washington.
+- [00:52.018] But they soon came to a sobering realization.
+- [00:55.088] Their war for independence could not be won by land alone.
+- [00:58.792] Several delegates of the Continental Congress
+- [01:00.894] understood that control of the seas was critical to
+- [01:03.963] breaking free from the grip of British tyranny.
+- [01:06.900] But not all delegates agreed.
+- [01:08.635] On October 3rd, 1775, when the Rhode Island
+- [01:12.705] delegation proposed the creation of a naval force
+- [01:15.475] supported by all 13 colonies.
+- [01:18.645] Maryland delegate Samuel Chase called it the
+- [01:21.314] maddest idea in the world.
+- [01:23.550] The objections were rooted in pragmatism, cost, lack
+- [01:27.821] of capacity, and fear of the far superior British
+- [01:31.424] Royal Navy, proven by their 200-year victory
+- [01:34.494] spree over the waves.
+- [01:36.596] The assured retribution from the tyrant King
+- [01:38.865] George fueled congressional trepidation.
+- [01:41.234] With Washington's support, the Continental Congress
+- [01:44.671] chose resolve over fear.
+- [01:47.774] On October 13, 1775, it was authorized the
+- [01:51.544] outfitting of two armed vessels to intercept
+- [01:54.247] British supply ships for much needed gunpowder,
+- [01:57.584] weapons, and other critical materials.
+- [02:00.386] From that authorization, the United States Navy was born.
+- [02:03.656] Not from vast resources or naval supremacy, but from
+- [02:08.695] the bold determination of a young nation fighting
+- [02:11.764] for freedom.
+- [02:13.032] They knew that the New Republic could not defend
+- [02:16.903] its shores by the strength of an army alone.
+- [02:20.006] On November 5th, Essek Hopkins was selected as
+- [02:22.809] Commander-in-Chief and the first commissioned officer
+- [02:25.545] in the United States Navy.
+- [02:26.746] On November 25th, Congress authorized Continental
+- [02:30.483] Navy vessels to attack any British warship or
+- [02:33.653] transport.
+- [02:35.021] On November 28th, the Second Continental
+- [02:37.524] Congress released rules and regulations for the
+- [02:41.261] Navy of the United Colonies, drafted by John Adams.
+- [02:44.731] On December 3, the colonies converted a
+- [02:47.033] purchased merchant ship to a 24-gun frigate.
+- [02:50.803] That ship would be renamed the Alfred and became the
+- [02:54.173] first ship commissioned in the Continental Navy with
+- [02:56.676] the flag raised by Lieutenant John Paul Jones.
+- [03:00.780] And on December 11, Congress authorized the
+- [03:03.449] construction of 13 frigates to be built in
+- [03:06.185] seven different ports in the colonies.
+- [03:09.255] Despite these efforts to jumpstart a naval force,
+- [03:11.658] it was a slow beginning.
+- [03:14.193] One cannot build a navy overnight.
+- [03:16.796] With little to no existing infrastructure or
+- [03:19.365] experience in building warships, there are
+- [03:21.668] extensive delays and massive cost overruns.
+- [03:24.704] To get as many ships in the water in the fastest
+- [03:28.575] time possible, the colonies turn to the
+- [03:31.177] practice of privateering.
+- [03:34.314] Privateering refers to a force of privately owned
+- [03:37.116] and operated ships armed and commissioned by
+- [03:40.119] government to attack enemy merchant shipping
+- [03:42.789] during wartime.
+- [03:43.923] Whatever spoils captured, ships, cargo, weapons,
+- [03:49.596] food, would be sold back to the government with a
+- [03:52.665] certain percentage of the revenue going
+- [03:54.334] back to privateers.
+- [03:55.501] It would prove very lucrative to the
+- [03:57.904] privateers, and it would prove helpful to the colonies.
+- [04:01.407] By the end of the war, privateers commandeered
+- [04:03.776] about 600 British merchant ships, with much of the
+- [04:06.779] spoils directed to the war effort.
+- [04:10.550] By 1776, our Navy was proving consequential.
+- [04:14.687] On March 3rd, a six ship American naval force,
+- [04:18.124] along with 200 Marines from the recently
+- [04:20.526] established Continental Marine Corps raided New
+- [04:23.096] Providence and the Bahamas.
+- [04:26.466] Famously known as the Raid on Nassau, it was our Navy
+- [04:29.602] Marine Corps team's first successful amphibious
+- [04:32.171] assault, capturing Fort Montague and much needed
+- [04:35.441] military supplies.
+- [04:37.110] 85 cannons, 15 mortars, and 10,000
+- [04:40.613] rounds of ammunition.
+- [04:41.614] On April 7th, the converted 16-gun
+- [04:47.020] Brigantine Lexington under Captain John Barry, the
+- [04:50.690] first captain placed in command of an American
+- [04:53.092] warship, commissioned for service under the
+- [04:55.395] Continental flag, defeated the HMS Edward, the first
+- [04:59.365] British warship captured by the Continent Navy.
+- [05:02.502] On October 11th, an American naval force under
+- [05:05.571] General Benedict Arnold engaged a much superior
+- [05:08.241] force in the Battle of Valcour Island on Lake
+- [05:11.010] Champlain.
+- [05:11.944] In what is generally regarded as one of the
+- [05:13.613] first naval battles of the American Revolutionary
+- [05:16.082] War, and one of first fought by the
+- [05:18.184] Continental Navy.
+- [05:19.118] Though an overall defeat, the American defense of
+- [05:22.922] Lake Champlain stalled British plans to reach the
+- [05:25.858] upper Hudson River Valley, and delayed the British
+- [05:28.528] invasion of New York by a year.
+- [05:31.064] More importantly, it allowed the Continent Army
+- [05:33.299] time to gather the forces necessary to defeat the
+- [05:36.602] British at the Battle of Saratoga in October of
+- [05:39.439] 1777 in what is considered the turning point of the
+- [05:43.209] American Revolutionary War.
+- [05:46.379] While the loss had tremendous impact on the
+- [05:48.214] British, it was altogether more important
+- [05:50.583] for the colonies.
+- [05:51.984] Victory had convinced France to lend their navy
+- [05:54.454] to our cause, which at the time was one of the most
+- [05:57.123] formidable naval powers in the world.
+- [05:59.492] The Franco-American alliance was ratified by
+- [06:02.295] Congress on June 6th, 1778.
+- [06:05.364] With the French entry into the war, General
+- [06:08.935] Washington quickly recognized the French Navy
+- [06:12.071] would be critical to victory.
+- [06:13.106] Britain's ability to move large forces by sea had
+- [06:17.376] resulted in the capture of New York City in 1776 and
+- [06:21.414] Philadelphia in 1777.
+- [06:24.183] As Washington would later say in 1780, in any
+- [06:27.587] operation and under all circumstances, a decisive
+- [06:31.357] naval superiority is to be considered as a
+- [06:34.127] fundamental principle and the basis upon which every
+- [06:37.296] hope of success must ultimately depend.
+- [06:41.701] His words were prophetic.
+- [06:42.902] On September 5th, 1781, 24 French ships under the
+- [06:50.076] command of Comte de Grasse faced off against 19
+- [06:53.312] British ships under command of Sir Thomas
+- [06:55.848] Graves, near the mouth of the Chesapeake River in
+- [06:59.085] what is known as the Battle of the
+- [07:00.419] Virginia Capes.
+- [07:01.988] French naval forces defeated the British fleet
+- [07:04.357] in an hours-long naval battle, leaving the French
+- [07:07.660] in control of the chesapeak and trapping
+- [07:09.862] 8,500 troops under British
+- [07:12.131] General Cornwallis at Yorktown.
+- [07:14.367] It was one that sealed the outcome of the war.
+- [07:17.870] Because of the effective French blockade, General
+- [07:20.206] Cornwallis was unable to be resupplied or extracted
+- [07:24.143] by sea by the British Navy.
+- [07:26.345] The British would soon be surrounded by land as well
+- [07:29.015] as with a combined American and French army
+- [07:31.951] traveling from New York.
+- [07:33.152] It was a coordinated land-Navy action that
+- [07:36.622] Washington had been trying to execute since 1778.
+- [07:43.629] Was one that convinced Cornwallis to surrender at
+- [07:46.165] Yorktown and convinced much of the British
+- [07:48.501] population and Parliament that the war could not be won.
+- [07:53.639] On September 3rd, 1783, the British signed the
+- [07:57.210] Treaty of Paris and officially surrendered,
+- [08:00.279] formally recognizing the United States as a free,
+- [08:03.516] sovereign, and independent nation.
+- [08:05.418] But independence came with a price.
+- [08:07.887] The war left our young republic deeply in debt,
+- [08:12.091] and in the aftermath of the war, what remained of
+- [08:14.694] the Continental Navy was sold off.
+- [08:16.796] The last ship sold was the Frigate Alliance in the
+- [08:19.298] summer of 1785.
+- [08:20.733] There was also a growing sentiment that whatever
+- [08:23.836] the money the colonies did have should not be spent
+- [08:26.939] on sustaining a Navy.
+- [08:28.875] That sentiment did not last.
+- [08:31.210] They would quickly learn that the only thing more
+- [08:33.246] expensive than having a Navy is not having one.
+- [08:37.049] With their newfound independence
+- [08:38.484] came new challenges.
+- [08:40.186] American merchants no longer sailed under the
+- [08:42.321] protection of British warships, and our commerce
+- [08:45.124] quickly became vulnerable on the world seas.
+- [08:48.327] Nowhere was this threat more evident than the
+- [08:50.329] Mediterranean, where the Barbary pirates of North
+- [08:53.232] Africa preyed on American shipping, seizing cargo
+- [08:57.003] and enslaving hundreds of our sailors.
+- [08:59.639] Without an American Navy, we were defenseless.
+- [09:02.541] Action needed to be taken.
+- [09:05.611] After years of paying costly tribute, President
+- [09:08.147] Washington in Congress passed the Naval Act of
+- [09:10.850] 1794, authorizing the construction of the Navy's
+- [09:14.654] six brigades, the USS United States, USS
+- [09:19.091] Constellation, USS Constitution, USS
+- [09:24.463] Chesapeake, USS Congress, and USS President.
+- [09:33.139] This act marked the rebirth of the United
+- [09:35.141] States Navy, and these ships would play a
+- [09:37.410] significant role in securing victory in the
+- [09:43.149] quasi-war with France.
+- [09:45.952] The first Barbary War, War of 1812.
+- [09:52.458] And the second Barbary War.
+- [09:57.129] The Navy's earliest years were far from easy, but
+- [10:01.133] far more successful than they may have appeared.
+- [10:04.036] The Continental Navy, supported by privateers,
+- [10:06.973] not only disrupted British reinforcements, but also
+- [10:09.942] shook the foundations of
+- [10:11.377] Britain's trade-dependent economy.
+- [10:13.212] From the beginning, it was clear, sea power was
+- [10:16.849] essential to securing our independence.
+- [10:18.951] Perhaps most important, American officers and
+- [10:22.421] sailors demonstrated extraordinary valor, even
+- [10:25.858] in the face of overwhelming odds.
+- [10:28.060] A characteristic that would permeate the U.S.
+- [10:30.463] Navy even into the darkest days of World War II and
+- [10:33.466] to today.
+- [10:36.002] Alfred Thayer Mahon once wrote, "Whoever rules the
+- [10:41.207] waves, rules the world." An adage is true today as
+- [10:44.877] it was throughout the history of our great
+- [10:46.579] country.
+- [10:47.246] It has also confirmed a belief I personally
+- [10:50.983] espouse, that to be a superpower, you must
+- [10:53.786] be a sea power.
+- [10:55.721] As Secretary of the Navy, I'm profoundly grateful to
+- [10:58.391] every individual who has served and to every sailor
+- [11:00.926] and marine who has stood to watch past and present
+- [11:03.963] in defense of our republic.
+- [11:05.531] Let us honor the legacy of those who came before us.
+- [11:08.701] Let us reflect on the enduring spirit that began
+- [11:11.437] in 1775, because that spirit, one forged in
+- [11:15.775] honor, courage, and commitment, remains in all
+- [11:18.944] of us today.
+- [11:19.645] Thank you for joining me today to celebrate our
+- [11:22.014] shared heritage.
+- [11:23.349] May God bless you, the Navy Marine Corps team,
+- [11:26.352] and the United States of America.
+- [11:28.287] ♪ (dramatic music) ♪
+- [11:55.580] ♪ (somber music) ♪

@@ -1,0 +1,238 @@
+<!-- source: https://www.youtube.com/watch?v=Lt-pBSqgtZE -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: Lt-pBSqgtZE -->
+<!-- date_published: 2026-05-26T23:19:07+00:00 -->
+<!-- date_accessed: 2026-06-02T00:58:57.709939+00:00 -->
+
+# Transcript: The Story of America: George Washington
+
+- [00:04.000] (mix of famous American history quotes)
+- [00:39.600] Matthew Spalding: First in war, first in peace, and
+- [00:42.017] first in the hearts of his countrymen.
+- [00:44.980] Light Horse Harry Lee's words from the
+- [00:46.952] official eulogy of George Washington were once famous.
+- [00:50.680] Nowadays, we usually think of Washington
+- [00:52.910] as the granite figure on Mount Rushmore
+- [00:56.140] or Gilbert Stewart's famous
+- [00:57.751] painting, solemn and distant.
+- [01:00.360] But the time of the American Revolution
+- [01:02.601] 43 year old George Washington
+- [01:04.230] was in the prime of his life.
+- [01:06.880] Battle tested, strong and vigorous.
+- [01:10.520] At six foot two inches, it was a natural leader of men.
+- [01:16.640] Washington did not write the
+- [01:18.601] Declaration of Independence or the Constitution
+- [01:20.310] or the Federalist Papers.
+- [01:22.140] Yet his defiant, inspiring and commanding
+- [01:25.661] writings far outweigh those of his contemporaries.
+- [01:30.820] As a military general, he
+- [01:32.829] lost more battles than he won.
+- [01:36.260] Yet Washington fearlessly led an untrained
+- [01:39.410] army to defeat the greatest
+- [01:41.358] military power in the world.
+- [01:44.820] If the Declaration of Independence was
+- [01:47.090] an expression of the American mind,
+- [01:49.280] as Jefferson called it,
+- [01:51.460] George Washington was its embodiment.
+- [01:55.220] He brought the Revolution's principles to
+- [01:57.591] life, and in doing so brought this country
+- [02:00.021] into being, this was the man who founded America.
+- [02:13.820] George Washington was born on
+- [02:16.623] February 22, 1732 near Pope's Creek in
+- [02:18.848] Westmoreland County, Virginia.
+- [02:21.840] The first of six children of
+- [02:23.774] Augustine and Mary Ball, Washington.
+- [02:29.520] What he learned came mostly from
+- [02:31.722] self-study and practical experience.
+- [02:35.280] He knew the Bible and Shakespeare.
+- [02:37.350] read Seneca and Cicero and studied history
+- [02:40.141] in the political writings of the day.
+- [02:43.460] As a young man, Washington was a surveyor
+- [02:45.950] and traveled extensively in the area west
+- [02:48.441] of the Appalachian Mountains.
+- [02:50.900] He wanted to join the British
+- [02:52.758] Navy, but his mother objected.
+- [02:55.680] At the age of 21, Washington sought
+- [02:58.208] a commission and was appointed by the
+- [03:00.881] British as a major in the militia.
+- [03:04.680] Later, as a lieutenant colonel, his
+- [03:07.086] regiment was sent to the Ohio Valley
+- [03:09.561] to challenge a French incursion.
+- [03:12.820] The resultant skirmishes marked the
+- [03:15.373] opening of the French and Indian War.
+- [03:18.720] Since he could advance no further in
+- [03:21.034] British ranks, being a colonial subject,
+- [03:24.140] Washington resigned his commission and
+- [03:27.122] instead volunteered as an aid to General
+- [03:30.261] Edward Braddock, who led a British
+- [03:33.241] expedition to expel the French from
+- [03:36.661] Port (inaudible).
+- [03:38.500] When they were ambushed, and Braddock
+- [03:41.018] was mortally wounded, it was Washington,
+- [03:44.560] with two horses shot from under him and
+- [03:46.812] his clothes pierced by four musket balls,
+- [03:49.900] who rallied the panic troops and formed a
+- [03:52.542] rear guard, allowing the remaining force to retreat.
+- [03:57.140] After that, he was appointed colonel
+- [03:59.300] of the Provincial Virginia Regiment,
+- [04:01.980] which made him the highest ranking
+- [04:04.121] American military officer in the colony.
+- [04:09.310] In 1758, Washington was elected a
+- [04:11.155] member of the House of Burgesses.
+- [04:14.040] The next year he married the young widow,
+- [04:16.480] Martha Custis, who would be his wife the next 40 years.
+- [04:21.260] And they established their home at Mount Vernon.
+- [04:25.460] He served as a vestriment in
+- [04:27.022] their nearby Anglican parish.
+- [04:30.440] Washington had inherited slaves and more
+- [04:33.196] came with his marriage, but he eventually
+- [04:36.070] opposed slavery, wished to see its
+- [04:38.840] abolition, and in his will, upon Martha's
+- [04:42.430] death, freed his slaves.
+- [04:45.765] As the colonial crisis heated up,
+- [04:47.986] Washington sponsored a series of
+- [04:50.141] resolutions denying the right of the
+- [04:52.348] British Parliament to tax the colonists.
+- [04:55.580] And along with George Mason, introduced
+- [04:58.625] the Fairfax Resolves, which closed
+- [05:01.281] Virginia's trade with England.
+- [05:04.660] In 1774, Washington was elected as a
+- [05:07.170] Virginia delegate to the Continental
+- [05:09.681] Congress in Philadelphia.
+- [05:12.860] After election in Concord, Washington
+- [05:15.539] urged Congress to prepare for war.
+- [05:19.140] He attended sessions in his uniform
+- [05:21.910] to show that he was deadly serious.
+- [05:27.190] When Congress recognized the militia forces
+- [05:29.651] around Boston as a Continental Army,
+- [05:32.240] there was really no question
+- [05:34.010] would be selected to command them.
+- [05:36.161] General Washington left Philadelphia,
+- [05:39.435] just as news broke, of the Battle of Bunker Hill.
+- [05:50.980] Once outside Boston, he immediately set
+- [05:53.843] out to force the British to battle or to
+- [05:57.380] leave, which they did after Washington
+- [06:00.064] had cannons placed on Dorchester Heights,
+- [06:03.640] threatening the British ships in Boston's harbor.
+- [06:06.700] And, anticipating the British would attack
+- [06:09.640] New York next, he swiftly moved his army there.
+- [06:14.780] It is often argued that Washington
+- [06:16.811] followed a Fabian strategy, modeled after
+- [06:19.261] the Roman General, who defeated a superior
+- [06:21.855] enemy through a war of skirmishes and attrition.
+- [06:25.280] But Washington was also a bold general,
+- [06:28.154] and the opportunity presented itself.
+- [06:32.640] After retreating across New Jersey, for
+- [06:35.345] instance, Washington executed a daring
+- [06:37.981] attack by crossing the icy Delaware River
+- [06:41.998] on December 26, 1776, with 2,000 men to
+- [06:45.821] attack Hessian mercenaries occupying Trenton.
+- [06:50.340] Washington then led his outnumbered
+- [06:52.459] Continental Army against British
+- [06:54.422] forces near Princeton, New Jersey.
+- [06:57.280] And his men wavered in the battle,
+- [06:59.560] Washington loaded the front lines.
+- [07:02.520] Well within range of British muskets,
+- [07:05.270] to rally them in a counterattack
+- [07:07.696] that secured the victory.
+- [07:10.420] Those two battles, Trenton and Princeton,
+- [07:13.482] changed the momentum of the whole war.
+- [07:18.320] Washington's greatest strategic operation,
+- [07:21.340] culminated in the last great
+- [07:23.482] battle of the American Revolution.
+- [07:27.020] The victory at Saratoga had induced the
+- [07:29.630] French to form a military alliance with
+- [07:32.241] the Americans, and that created a new opportunity.
+- [07:37.060] In 1781, Washington initially planned to
+- [07:40.270] attack British forces in New York City,
+- [07:44.240] but quickly saw a chance to seal a march on the enemy.
+- [07:49.240] He spread misinformation, forged
+- [07:51.699] documents, and kept watchfires burning
+- [07:54.621] while he secretly led 8,000 troops over 400 miles.
+- [08:00.620] From New York, to trap Lieutenant
+- [08:02.701] General Charles Cornwallis at Yorktown, Virginia.
+- [08:09.870] Washington coordinated movements with
+- [08:12.148] both the French Army and Navy to prevent
+- [08:14.611] British naval reinforcement or evacuation,
+- [08:18.254] and orchestrated the formal siege that
+- [08:21.551] forced Cornwallis to surrender his entire army.
+- [08:27.030] That victory shattered British
+- [08:29.358] resolve to continue the war.
+- [08:32.910] Washington's greatest act, as General,
+- [08:35.814] occurred after Yorktown, but
+- [08:38.374] before the peace treaty of 1783.
+- [08:43.170] The Continental Army had not been paid
+- [08:45.937] consistently for years due to Congress's
+- [08:48.851] financial struggles, and the officers
+- [08:51.431] were frustrated by Congress's seeming
+- [08:54.057] ingratitude for their service.
+- [08:56.770] Some proposed drastic action, refusing to
+- [09:00.120] disband, or even marching on
+- [09:02.441] Philadelphia to threaten Congress.
+- [09:06.650] Washington called a general meeting,
+- [09:09.397] and then showed up unexpectedly
+- [09:11.811] to speak to his officers.
+- [09:14.910] He denounced the Munis talk as
+- [09:17.010] subversive, appealing to their patriotism,
+- [09:21.130] and recalling the last words of the
+- [09:24.363] declaration to your own sacred honor.
+- [09:28.550] Then, pulling out a pair of glasses to
+- [09:30.992] read a letter from Congress, he said,
+- [09:33.420] "Gentlemen, you will permit me to put on my spectacles,
+- [09:38.470] for I have grown not only gray, but
+- [09:41.677] almost blind in the service of my country.
+- [09:44.791] The conspiracy immediately collapsed.
+- [09:55.950] Later that year, Washington's circular
+- [09:58.195] address to the states set off a series of
+- [10:00.501] events, which culminated in the
+- [10:02.561] Constitutional Convention of 1787.
+- [10:05.680] Washington was elected its president.
+- [10:07.201] He assured future president James Monroe
+- [10:10.022] reminded another future president,
+- [10:12.680] Thomas Jefferson,
+- [10:14.220] his influence carried this government.
+- [10:18.040] Is it any wonder that Washington was
+- [10:20.551] unanimously elected to the first
+- [10:22.877] President of the United States?
+- [10:25.100] The arc of Washington's statemanship was complete.
+- [10:29.180] He had led his people from revolution
+- [10:32.168] through war to a constitutional republic.
+- [10:35.980] Twice during the revolution, Washington
+- [10:38.729] was granted absolute power by Congress to
+- [10:41.621] do whatever was necessary for the cause.
+- [10:45.780] Twice, he gave that power back.
+- [10:50.220] When one of his colonels proposed that
+- [10:52.927] Washington be made a king, he
+- [10:54.994] rejected the idea in utter disgust.
+- [11:00.400] After the war, Washington
+- [11:01.960] resigned his military commission.
+- [11:04.320] After two terms as president, he resigned that too.
+- [11:10.000] The French Revolution ended in violence.
+- [11:12.540] The guillotine and the wars of Napoleon.
+- [11:16.020] That the American Revolution did not
+- [11:18.386] was largely because of Washington,
+- [11:21.420] who sought an independent
+- [11:22.876] nation of self-governing people.
+- [11:25.300] Living freely to use his favorite biblical
+- [11:28.809] metaphor under their own vine and fig tree.
+- [11:32.341] The moderation and virtue of a single
+- [11:36.261] character, Jefferson later reflected,
+- [11:41.040] probably prevented this revolution from being closed
+- [11:44.840] as most others have been, by a subversion
+- [11:48.584] of that liberty, it was intended to establish.
+- [11:53.920] When he resigned for the last time,
+- [11:56.300] Washington left his beloved country
+- [11:58.681] enduring advice in his farewell address.
+- [12:01.141] Uphold the constitution, be vigilant
+- [12:03.942] in protecting the liberty of all,
+- [12:06.680] guard the nation's independence, and
+- [12:09.497] above all, maintain the civic and
+- [12:12.081] moral character necessary for self-governing.
+- [12:16.160] George Washington is Potter Potryon,
+- [12:18.963] the father of our country, but
+- [12:21.348] he never had children of his own.
+- [12:24.640] We are his children.
+- [12:27.260] Together, we must live up to this inheritance.
+- [12:30.281] Especially now, our nation's 250th birthday.
+- [12:37.221] ♪ (soft orchestral music) ♪

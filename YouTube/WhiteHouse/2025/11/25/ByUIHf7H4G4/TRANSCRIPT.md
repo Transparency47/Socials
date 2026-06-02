@@ -1,0 +1,400 @@
+<!-- source: https://www.youtube.com/watch?v=ByUIHf7H4G4 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: ByUIHf7H4G4 -->
+<!-- date_published: 2025-11-25T17:29:04+00:00 -->
+<!-- date_accessed: 2026-06-02T02:41:08.073136+00:00 -->
+
+# Transcript: President Trump and The First Lady Participate in the Thanksgiving Turkey Pardoning
+
+- [00:04.310] Announcer: Ladies and gentlemen, the President
+- [00:06.340] of the United States and First Lady Melania Trump.
+- [00:09.610] ♪ (Hail to the Chief) ♪
+- [00:45.710] The President: Thank you very much,
+- [00:46.990] and I hope you like our new beautiful patio
+- [00:50.270] with matching stone to the White House.
+- [00:52.200] If this were grass today, you'd be sinking into the mud
+- [00:55.190] like they've done for many years.
+- [00:57.100] You would be very unhappy. Please.
+- [00:59.030] Thank you very much. This was a big day.
+- [01:02.730] It's a pardon day for a very important beast.
+- [01:09.320] On behalf of the First Lady and the entire Trump family,
+- [01:12.190] I want to wish all Americans a very, very happy Thanksgiving.
+- [01:16.170] It's a great time of the year and our country's doing
+- [01:18.760] really well economically like we've never done before.
+- [01:22.750] Today we continue a time-honored American tradition.
+- [01:29.370] Well, that's a well-trained turkey.
+- [01:32.040] See how happy he is.
+- [01:34.410] In a few moments, I will grant a full absolute
+- [01:37.210] and unconditional presidential pardon
+- [01:40.580] to two handsome Thanksgiving turkeys.
+- [01:43.400] And this is their lucky day. This is a lucky day for them.
+- [01:46.920] But before going any further,
+- [01:48.770] I want to make an important announcement
+- [01:50.510] because you remember last year after a thorough
+- [01:54.170] and very rigorous investigation by Pam Bondi
+- [01:59.160] and all of the people at Department of Justice,
+- [02:02.730] the FBI, the CIA, the White House Counsel's Office,
+- [02:07.180] and the department of everything.
+- [02:09.850] We have a department of everything.
+- [02:11.270] You know what that is?
+- [02:12.500] I think it's called the White House.
+- [02:15.600] Into a terrible situation caused by a man named Sleepy Joe Biden.
+- [02:21.080] He used an autopen last year for the turkey's pardon.
+- [02:25.440] So I have the official duty to determine,
+- [02:28.860] and I have determined that last year's turkey pardons
+- [02:31.390] are totally invalid,
+- [02:34.920] as are the pardons of about every other person
+- [02:37.990] that was pardoned other than, where's Hunter?
+- [02:42.960] No, Hunter's was good.
+- [02:44.170] That was the one pardon, Pam, that was good, right?
+- [02:46.240] The rest of them are all invalid.
+- [02:47.780] I don't know what the hell you're going to do about that,
+- [02:49.420] but now we're going to take a little of the joking,
+- [02:52.010] that is a mess.
+- [02:53.800] But they're hereby null and void.
+- [02:56.550] The turkeys known as Peach and Blossom last year
+- [02:59.990] having been located
+- [03:01.650] and they were on their way to be processed,
+- [03:03.740] in other words, to be killed.
+- [03:05.730] But I've stopped that journey
+- [03:08.060] and I am officially pardoning them
+- [03:11.080] and they will not be served for Thanksgiving dinner.
+- [03:15.470] We saved them in the nick of time.
+- [03:17.080] This one has plenty of time,
+- [03:18.360] but they were saved in the nick of time.
+- [03:21.310] We're thrilled to be joined today by Vice President JD
+- [03:24.270] Vance, Second Lady, Usha Vance, their daughter Mirabel,
+- [03:29.300] and along with Attorney General, Pam Bondi,
+- [03:31.870] Secretaries, Marco Rubio, Scott Bessent, Pete Hegseth,
+- [03:36.630] Brooke Rollins, Howard Lutnick, Linda McMahon,
+- [03:40.250] Scott Turner Administrator, Lee Zeldin,
+- [03:43.010] who's done a great job.
+- [03:45.470] A nuclear power plant gets approved in less than a week.
+- [03:48.650] Okay, I'm only kidding, but pretty close to that.
+- [03:51.940] And we have more. Where's Lee? Stand up, Lee.
+- [03:54.830] One of my great superstars, thank you.
+- [04:01.040] Used to take 20 years before you got rejected
+- [04:03.440] when you put in an application.
+- [04:04.890] Now we're doing them in a matter of weeks, right,
+- [04:07.290] and that's why we have the biggest plants
+- [04:09.480] anywhere in the world.
+- [04:10.830] We're leading in AI, we're leading in everything.
+- [04:13.000] Our auto plants are pouring back into our country.
+- [04:15.790] Wait till you see the jobs coming with them.
+- [04:18.540] But many of them are under construction,
+- [04:20.690] but Lee's done a great job of getting those approvals.
+- [04:22.880] I appreciate it very much.
+- [04:24.940] FBI Director Kash Patel has been very busy,
+- [04:27.660] doing a great job also. Thank you, Kash.
+- [04:30.450] Along with members of -- see, you got a following, Kash.
+- [04:35.930] Along with members of Congress and in particular
+- [04:38.740] I want to mention Jason Smith and David Rosier.
+- [04:43.540] Where are those two guys?
+- [04:44.780] Come on. Stand up. What good people.
+- [04:48.890] Jason knows more about the tax code
+- [04:50.640] than any living human being.
+- [04:52.240] Knows so much, we don't even want to hear about it, right.
+- [04:54.960] Too complicated.
+- [04:56.210] You're going to make it a simpler code.
+- [04:58.740] But we did in the great Big Beautiful Bill,
+- [05:01.680] it was just passed.
+- [05:03.260] Your imprints all over that, and it's amazing.
+- [05:06.080] The biggest tax cuts in the history of our country
+- [05:08.760] for middle-income people.
+- [05:10.570] The biggest tax cuts in the history of our country
+- [05:13.800] for middle-income people
+- [05:15.330] and the biggest jobs bill ever passed
+- [05:19.880] and nobody thought we could get that one done.
+- [05:21.720] I'm glad. We actually put four years,
+- [05:24.320] actually probably eight or 10 years,
+- [05:25.900] but we put four years' worth of material
+- [05:29.120] into One great Big Beautiful Bill.
+- [05:31.690] So that worked out very well
+- [05:33.040] and I want to thank everybody for working on it.
+- [05:34.850] JD, that was a great bill.
+- [05:37.790] We were going to do it in small bills.
+- [05:39.100] We're going to have 18 bills and do it along the process.
+- [05:42.520] I'm glad, Scott, that we got it done
+- [05:45.190] because dealing with these Democrats,
+- [05:46.830] I think that was our one shot,
+- [05:49.280] but we have it all in One great Big Beautiful Bill.
+- [05:51.720] Thanks as well to the Chairman
+- [05:53.390] of the National Turkey Federation
+- [05:55.700] and the CEO of Butterball. That's a big deal, Jay Jandrain.
+- [06:00.900] Where's Jay?
+- [06:02.290] Thank you. Stand up Jay. Thank you very much.
+- [06:07.700] Along with his wife, Leslie and their three children
+- [06:10.420] as well as the farmer who raised these two magnificent birds.
+- [06:14.600] Travis Pittman and Wayne County, North Carolina.
+- [06:18.430] I won Wayne County by a lot.
+- [06:19.980] That means you had to vote for Trump.
+- [06:21.410] I think I won by 92 percent.
+- [06:24.030] I like Wayne County. They're doing all right, right.
+- [06:27.200] And this is like a record-setting turkey
+- [06:29.130] that's going to be saved. The turkeys being part today
+- [06:32.610] go by the names of Gobble and Waddle.
+- [06:35.390] When I first saw their pictures, I thought we should send them --
+- [06:39.420] well, I shouldn't say this.
+- [06:42.430] I was going to call them Chuck and Nancy,
+- [06:45.760] but then I realized I would be pardoning them.
+- [06:47.680] I would never pardon those two people.
+- [06:51.080] I wouldn't pardon them.
+- [06:52.280] I wouldn't care what Melania had told me.
+- [06:54.640] "Darling, I think it would be a nice thing to do."
+- [06:56.320] I won't do it, darling.
+- [06:58.730] These are two of the largest turkeys
+- [07:00.540] ever presented to an American president.
+- [07:02.760] Over 50 pounds each.
+- [07:04.230] It's the largest we've ever had. And those are big turkeys.
+- [07:07.500] Are they as good as the normal-sized turkey?
+- [07:10.120] Better or as good?
+- [07:12.140] Do they tend to be a little fatty maybe?
+- [07:14.910] No, he said no. He knows the turkey business.
+- [07:17.690] Anyway, despite their size,
+- [07:19.310] Secretary Kennedy has formally certified
+- [07:22.410] that these are the first-ever MAHA turkeys.
+- [07:25.810] I don't know if I agree with that.
+- [07:27.090] These are MAHA.
+- [07:29.040] In other words, they could be fat, but they're still MAHA.
+- [07:32.340] They've been fattened on a steady diet of grass beef
+- [07:36.760] to allow the smoothies and all of the other things
+- [07:39.560] that they've been eating for this occasion.
+- [07:41.410] This was a really big occasion,
+- [07:44.040] but they've eaten every fattening food that you can eat.
+- [07:47.740] We work like -- We wanted to really make them special.
+- [07:50.880] And they really are. They're like record-setting.
+- [07:52.960] I've never seen a turkey that big before.
+- [07:55.260] Are they violent at all? Will they attack as I walk over?
+- [07:58.560] 'Cause if they will, I'll stay right up here.
+- [08:01.260] But as you know, we're a tough on crime administration.
+- [08:04.940] We are tough on crime.
+- [08:06.470] Our border had zero people coming in
+- [08:09.250] for the last seven months, right.
+- [08:10.960] Zero. I mean, even I find that hard to believe to be.
+- [08:14.480] They had millions and millions of people
+- [08:16.460] pouring into our border from prisons,
+- [08:19.290] from mental institutions, gang members, drug dealers,
+- [08:23.150] they poured in into our country like we were stupid people.
+- [08:27.050] We're not stupid people anymore, but nobody's ever seen anything.
+- [08:32.100] The job that they've done on the --
+- [08:33.760] Tom Holman, Kristi Noem, the whole group,
+- [08:36.830] the job they've done on the border
+- [08:38.090] is almost like a miracle. We have --
+- [08:40.480] And the people that make these statistics that said zero,
+- [08:44.300] they've said zero for the last seven months.
+- [08:47.030] I can't --
+- [08:48.230] It has to be like a few people got it, but they say zero.
+- [08:51.550] And they're radical left Democrats who do the scoring.
+- [08:54.620] So I can't imagine they did that for us.
+- [08:57.100] The truth is we have no people
+- [08:59.470] coming into our country illegally.
+- [09:02.540] It's an amazing statistic and I'm very proud of it.
+- [09:05.780] And we have the most people
+- [09:08.210] working in the United States today
+- [09:10.940] by far that we ever had in the history of our country.
+- [09:13.720] So those are all good numbers.
+- [09:18.440] But instead of pardon, some of my more enthusiastic staffers
+- [09:21.960] were already drafting the paperwork to ship Gobble
+- [09:24.640] and Waddle straight to the terrorist confinement center
+- [09:28.140] in El Salvador.
+- [09:30.450] And even those birds don't want to be there.
+- [09:32.480] You know what I mean? It was a tough --
+- [09:34.510] I'd like to thank the president of that country.
+- [09:36.360] They do a rather efficient job.
+- [09:40.500] It's going to be the largest prison in history.
+- [09:42.320] I've never seen anything like it.
+- [09:43.630] And a lot of people are behaving on our streets now.
+- [09:47.100] Washington D.C. is a safe, it's considered a safe zone.
+- [09:51.210] This was one of our most unsafe places
+- [09:54.230] anywhere in the United States.
+- [09:55.710] It is now considered a totally safe city.
+- [09:59.230] I won't tell you about murders. We were having murders
+- [10:01.670] like a lot of murders on a weekly basis.
+- [10:05.170] We haven't had a murder in six months.
+- [10:07.740] And it doesn't sound good even to say that,
+- [10:09.920] we haven't had a murder in six months.
+- [10:11.400] But when you were averaging one and even sometimes two a week
+- [10:17.920] and you haven't had one in six months,
+- [10:20.000] you can walk with your family down the middle of any street,
+- [10:23.570] go to a restaurant, you won't get in.
+- [10:26.110] They're opening new restaurants all over
+- [10:28.930] and it's really been a beautiful thing to see.
+- [10:31.840] So Washington D.C. is now a totally safe city.
+- [10:36.180] And a year ago it was a crime criminal mess.
+- [10:40.520] We removed, Pam, 1,700 people, career criminals
+- [10:44.440] and people that came to this city from Venezuela
+- [10:49.540] and many other places.
+- [10:50.790] They were let out of prisons and they came here.
+- [10:52.700] They were Tren de Aragua, a lot of Tren de Aragua,
+- [10:55.870] that's from Venezuela.
+- [10:57.720] And we got them all the hell out of our country.
+- [10:59.610] Or they're in prisons now.
+- [11:02.160] And you can walk down any street in Washington
+- [11:04.580] and you're going to be just fine.
+- [11:05.800] And I want to thank the National Guard.
+- [11:08.040] I want to thank Pete Hegseth,
+- [11:09.480] the job you've done here is incredible.
+- [11:11.630] And I hear you having the same kind of success in Memphis,
+- [11:14.130] Tennessee, where you had an even worse situation.
+- [11:17.660] And Memphis crime is down 64 percent in three weeks,
+- [11:21.610] and by the time you have four or five weeks,
+- [11:23.460] you're going to have it down
+- [11:24.880] almost where there won't be crime.
+- [11:27.190] And we could do that in Chicago, by the way,
+- [11:29.620] if they would let us,
+- [11:31.390] if the mayor who's a low-IQ person,
+- [11:34.760] but he should understand this. This is a very serious thing.
+- [11:38.790] You saw all the crime that took place last night,
+- [11:41.090] the night before, the woman with a burning,
+- [11:44.290] they burned the woman.
+- [11:46.180] They'll be talking about that now.
+- [11:47.470] They burned this beautiful woman riding in a train.
+- [11:52.710] A man was arrested 72 times, 72 times.
+- [11:57.870] Think of that. And they'll let him out again.
+- [12:01.200] The liberal judges will let him out again.
+- [12:04.280] But we're ready to go.
+- [12:06.470] You know, we've been moving toward Chicago.
+- [12:09.830] We have a governor that thinks it's wonderful
+- [12:11.940] that only like seven people were killed this week,
+- [12:15.830] but we are moving toward doing. If crime gets --
+- [12:20.460] It's horrible what's happening in Chicago.
+- [12:22.530] We could make Chicago a safe city
+- [12:26.910] in a period of four weeks. In a period of eight weeks,
+- [12:31.320] nine weeks, 10 weeks, it would be totally safe.
+- [12:34.040] And the people of Chicago want us to go there.
+- [12:36.980] And if you look at the crime that's taken place in Chicago
+- [12:40.640] in the last two weeks, just take a look.
+- [12:42.520] It's on the front page of every newspaper.
+- [12:45.950] It's out of control.
+- [12:47.460] The mayor is incompetent and the governor is a big fat slob.
+- [12:54.850] He ought to invite us in, say, "Please make Chicago safe."
+- [13:01.370] We're going to lose a great city if we don't do it quickly.
+- [13:03.850] Make Chicago --
+- [13:05.270] We'll do the same thing as we did in D.C.,
+- [13:08.080] the same thing as we did everywhere we've gone.
+- [13:11.120] It's become almost instantly safe
+- [13:14.050] and I want to do it in Chicago.
+- [13:16.370] So Governor Pritzker, if you're listening,
+- [13:19.320] let's get your act together. Invite us in.
+- [13:21.750] We're going to make your place so safe.
+- [13:23.360] You're not going to have these crimes
+- [13:24.740] that are making the newspapers and the front page of every
+- [13:27.880] newspaper and television story, news story.
+- [13:31.790] We'll make Chicago a safe place very quickly.
+- [13:36.540] I looked at the various cases granting mercy,
+- [13:39.740] discovering the terrible trauma that everyone's going through.
+- [13:45.290] And I had a little bit of a Pritzker joke.
+- [13:48.380] I was going to talk about Pritzker inside,
+- [13:50.930] but when I talk about Pritzker, I get angry
+- [13:53.050] because he's not letting us do the job,
+- [13:55.370] so I'm not going to tell my Pritzker joke.
+- [13:57.200] They have a very cute little joke, you know?
+- [13:59.760] Some speechwriter wrote some joke about his weight,
+- [14:04.010] but I would never want to talk about his weight.
+- [14:05.760] I don't talk about people being fat.
+- [14:08.720] I refuse to talk about the fact that he's a fat slob.
+- [14:11.700] I don't mention it.
+- [14:13.540] On a more serious note,
+- [14:14.900] as we gather around the dinner table --
+- [14:17.170] I'd like to lose a few pounds too, by the way.
+- [14:21.020] And I'm not going to lose it on Thanksgiving,
+- [14:22.710] I can tell you that,
+- [14:24.360] because I'm going to have a Turkey,
+- [14:25.880] but it's not going to be that one.
+- [14:27.980] I hope all Americans will have the chance
+- [14:30.160] to enjoy the fellowship of family and friends
+- [14:32.960] and renew our faith in God's providence.
+- [14:37.130] One year ago, we were a dead country, one year ago.
+- [14:41.860] The king of Saudi Arabia said it to me.
+- [14:44.630] He said it to me actually four months ago
+- [14:46.530] when I was in Saudi Arabia, Qatar, UAE.
+- [14:50.260] He said, "You know, one year ago,
+- [14:52.440] the United States was a dead country
+- [14:55.430] and now you've got the hottest country anywhere in the world."
+- [14:58.290] They do. We're the hottest country.
+- [15:00.590] We have $18 trillion being invested as of now.
+- [15:04.730] We're not even close to being one year.
+- [15:07.330] The most ever was $2 trillion for a certain country
+- [15:10.180] I won't name during the last administration.
+- [15:14.530] In four years, they had less than $1 trillion
+- [15:17.500] being invested in the country.
+- [15:20.130] In nine months, we have over $18 trillion.
+- [15:23.940] It's a number that nobody has ever even thought possible,
+- [15:29.530] and that's in building plants and building so many things,
+- [15:32.560] investments in our country.
+- [15:33.780] Nobody's ever seen anything like it.
+- [15:36.630] But we have more people working. We have more people praying.
+- [15:41.910] The churches are coming back.
+- [15:43.280] I don't know if you've been reading that story,
+- [15:44.920] but religion is coming back to America.
+- [15:47.120] Some people say, "Oh, why would you mention that?"
+- [15:49.340] To me, that's a big deal.
+- [15:51.410] And this Thanksgiving we're also making incredible strides
+- [15:55.600] to make America affordable again.
+- [15:57.310] Walmart announced that the cost of their standard
+- [16:00.240] Thanksgiving meal
+- [16:01.500] is 25 percent lower than just one year ago.
+- [16:04.100] That's a big deal.
+- [16:05.460] According to the USDA, the price of Thanksgiving,
+- [16:08.840] Turkey is down 33 percent from its Biden-year highs.
+- [16:13.500] Potatoes are down 13 percent.
+- [16:15.390] Ham is down 15 percent compared to last Thanksgiving.
+- [16:19.450] So we are down to a level that we haven't seen in a long time.
+- [16:24.050] Egg prices are down 86 percent since March,
+- [16:27.520] and gasoline will soon be hovering around $2 a gallon.
+- [16:32.070] Under our leadership, we passed the largest tax cuts in history,
+- [16:35.690] the largest spending cuts in history,
+- [16:37.970] the largest regulation cuts in history,
+- [16:40.620] and we have fully secured our southern border.
+- [16:43.300] I've also ended eight wars in nine months,
+- [16:47.590] and we're working on that final war.
+- [16:49.150] It's not easy, but I don't know,
+- [16:50.780] I think we're going to get there.
+- [16:52.750] 25,000 soldiers, Ukraine, Russia, in the last month,
+- [16:56.650] 25,000 soldiers have died.
+- [17:00.030] So I think we're getting very close to a deal.
+- [17:02.740] We'll find out. I thought that one would've been gone quicker.
+- [17:07.100] We did eight. I thought that would've been an easier one,
+- [17:09.180] but I think we're making progress.
+- [17:10.920] In less than one year, we've accomplished more
+- [17:13.870] than most other administrations
+- [17:16.140] have accomplished in eight years.
+- [17:18.310] And this is a very special Thanksgiving.
+- [17:21.230] We thank God for as many blessings
+- [17:23.890] and the great success that this country
+- [17:26.050] has seen in the short period of time.
+- [17:28.290] We draw strength from the love of family and friends,
+- [17:31.140] and we express our undying gratitude for the men
+- [17:34.700] and the women of the United States Armed Forces.
+- [17:37.450] We love them.
+- [17:38.790] We pray that peace and prosperity
+- [17:40.670] will continue to bless our land,
+- [17:43.540] and together, we'll really just keep this great drive
+- [17:47.110] going to Make America Great Again.
+- [17:50.050] MAGA, I think it's the greatest expression
+- [17:52.060] in the history of politics. Make America Great Again.
+- [17:55.630] So once again, Melania,
+- [17:56.900] thank you for doing such a great job
+- [17:58.960] and being such a great first lady.
+- [18:01.160] And now let's go and give Gobble, Waddle --
+- [18:04.620] Waddle, by the way, is missing in action, but that's okay.
+- [18:06.980] We'll pretend Waddle is here --
+- [18:09.310] the gift that they've been waiting for.
+- [18:12.180] And I'll move over and I will just say very nicely,
+- [18:15.780] Gobble, you're pardoned.
+- [18:16.990] Come on, let's say it in front of Gobble.
+- [18:18.980] Thank you very much, everybody.
+- [18:21.980] (applause)
+- [18:33.275] (inaudible)
+- [18:52.120] The President: Looks like a rather violent bird.
+- [18:56.330] Anyway, are you ready?
+- [18:58.760] Gobble, I just want to tell you, it is very important,
+- [19:02.320] you are hereby unconditionally pardoned.
+- [19:07.360] (applause)
+- [19:14.690] Beautiful, that's very beautiful. The bird is nice.
+- [19:19.120] Who'd want to harm this beautiful bird?
+- [19:21.880] That's great, that's great. Thank you very much.
+- [19:23.990] Fantastic job. Thank you very much.
+- [19:26.710] Thank you very much, everybody.
+- [19:30.740] ♪ (Orchestral "God Bless America") ♪

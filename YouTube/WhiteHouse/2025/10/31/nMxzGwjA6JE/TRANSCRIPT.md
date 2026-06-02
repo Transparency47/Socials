@@ -1,0 +1,195 @@
+<!-- source: https://www.youtube.com/watch?v=nMxzGwjA6JE -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: nMxzGwjA6JE -->
+<!-- date_published: 2025-10-31T17:10:35+00:00 -->
+<!-- date_accessed: 2026-06-02T01:11:25.065515+00:00 -->
+
+# Transcript: President Trump Gaggles with Press on Air Force One, Oct. 31, 2025
+
+- [00:00.000] Good morning, Mr. President.
+- [00:01.600] Hi, how are you? Yeah, so we're heading
+- [00:03.920] down to Florida.
+- [00:05.920] I have a lot of meetings there and
+- [00:09.240] lunches, meetings, a lot of things
+- [00:11.440] having to do with the economics of
+- [00:13.640] America. We took in approximately $3
+- [00:16.520] trillion over the last few days from
+- [00:18.960] the trips that we made.
+- [00:21.040] They were unbelievable.
+- [00:24.080] The deal with China is going to be
+- [00:25.440] wonderful. It's going to be
+- [00:26.880] long-lasting.
+- [00:28.640] I got
+- [00:29.840] along with President Xi very well as you
+- [00:31.840] saw. You were there. Many of you were
+- [00:33.400] there.
+- [00:34.720] And I think it's great. I think it's
+- [00:36.320] great. I think it's really good. Are you
+- [00:38.280] Are you sad? Are you okay? I'm sorry.
+- [00:39.800] I'm not getting any audio for this
+- [00:41.400] one. Okay, we'll just get it right. All
+- [00:42.960] right, we have enough, sir. Okay.
+- [00:47.440] So, the trip was fantastic. We took in
+- [00:50.800] over
+- [00:51.880] $3 trillion really in profit, if you
+- [00:54.480] want to define it that way. You see the
+- [00:56.520] farmers are very happy.
+- [00:59.040] They I think it's 25 million tons,
+- [01:02.640] but it's
+- [01:03.720] numbers that they've never seen before
+- [01:06.320] in terms of the soybeans, in terms of
+- [01:08.280] other things.
+- [01:09.640] Uh we have uh
+- [01:11.520] numbers coming to our farmers that the
+- [01:13.080] farmers have never seen before from
+- [01:14.640] China.
+- [01:15.800] Our farmers are very happy. I I
+- [01:17.480] suggested that they go out and buy
+- [01:19.520] uh larger tractors and more land.
+- [01:22.000] Okay? You want larger tractors and more
+- [01:24.320] land because nobody's ever seen anything
+- [01:26.040] like it.
+- [01:27.360] Uh
+- [01:28.600] I've given China greater incentives to
+- [01:31.800] hold down the fentanyl, get rid of it
+- [01:33.600] ideally. You know, a lot of people don't
+- [01:35.120] know it's used as an anesthesia. It's
+- [01:37.320] used as a lot of things.
+- [01:38.920] A lot of good things happen, but
+- [01:40.240] unfortunately, when it's developed a
+- [01:42.240] certain way, a lot of bad things happen.
+- [01:44.800] Because a lot of people would say,
+- [01:45.800] "Well, why is it made?" It's made for a
+- [01:47.640] lot of good purposes, but it also has
+- [01:49.840] some very bad purposes when you design
+- [01:51.880] it a certain way and people can take it
+- [01:53.560] and design it.
+- [01:55.040] So, China's working very hard on that. I
+- [01:56.880] really believe that and they have an
+- [01:58.360] incentive. I'd love to get rid of
+- [02:00.720] extra 10%. I put a 20% penalty on that.
+- [02:03.960] I had a great conversation about it with
+- [02:06.480] President Xi yesterday and I'd love to
+- [02:09.280] get rid of the other. As soon as we see
+- [02:10.800] that, we'll get rid of the other 10%.
+- [02:13.440] Uh
+- [02:14.080] other than that, we haven't cut the
+- [02:15.240] tariffs at all with China.
+- [02:17.280] But we're going to have a great
+- [02:18.120] relationship with them, I think, for a
+- [02:19.520] long period of time. If we have a smart
+- [02:21.400] president, we'll have a great
+- [02:22.480] relationship.
+- [02:23.760] If we don't have a smart president,
+- [02:25.480] which is
+- [02:26.480] also a very strong possibility, then we
+- [02:28.560] won't have a great relationship. But uh
+- [02:30.680] China is
+- [02:32.360] The meeting with China was incredible.
+- [02:33.760] The meeting with Japan incredible.
+- [02:36.640] And the meeting with South Korea,
+- [02:37.880] likewise, incredible, all of them. And
+- [02:40.640] trillions of dollars are coming back to
+- [02:42.400] our country because of those meetings.
+- [02:44.800] And we have others planned with other
+- [02:46.240] countries, but those are big ones. And
+- [02:47.760] the meeting with China was one that
+- [02:49.600] everybody wanted. Uh the meeting with
+- [02:52.040] the new Prime Minister was fantastic of
+- [02:55.080] Japan.
+- [02:56.360] Could not have gone better. We worked
+- [02:58.160] out our deal. And South Korea, you saw
+- [03:00.160] the way we were treated. Our country's
+- [03:01.920] respected again. When they treat me with
+- [03:04.200] that kind of respect, they're treating
+- [03:05.560] our country with that kind of respect,
+- [03:07.160] which is much more important.
+- [03:08.880] And our country's respected again. Do
+- [03:10.720] you have any questions? Mr. President,
+- [03:12.520] we're about to take off.
+- [03:14.000] We're about to go. Mr. President, there
+- [03:14.680] are reports that you are considering
+- [03:16.240] strikes within Venezuela. Is that true?
+- [03:18.520] No. Have you made a decision on that?
+- [03:20.080] No, it's not true. Mr. President, on the
+- [03:21.880] nuclear strikes uh sorry, the nuclear
+- [03:23.600] tests
+- [03:25.480] Um
+- [03:26.400] are you talking about literally resuming
+- [03:28.440] underground nuclear detonation tests?
+- [03:31.480] You'll find out very soon, but we're
+- [03:32.760] going to do some testing. Yeah, other
+- [03:34.240] countries do it. If they're going to do
+- [03:35.960] it, we're going to do it. But can you
+- [03:37.200] clarify when you'd be able to resume?
+- [03:38.560] I'm not going to say yet. I mean, I know
+- [03:39.920] exactly what we're doing, where we're
+- [03:41.320] doing it, but other countries are doing
+- [03:43.240] it. If other countries do it, we do it.
+- [03:45.400] Mr. President, on the FBI reporting that
+- [03:47.960] possible that terrorist attack in
+- [03:49.360] Michigan that was set to happen over the
+- [03:50.840] weekend, Halloween weekend, the FBI was
+- [03:53.000] >> catching people before they ever start.
+- [03:54.720] Yeah. Mr. President, your response to
+- [03:56.320] Victor Orban saying he asked for an
+- [03:58.440] exemption from US sanctions on Russian
+- [04:00.560] oil?
+- [04:01.760] He has asked for an exemption. We
+- [04:03.240] haven't
+- [04:04.120] granted one, but he has asked. Victor's
+- [04:06.400] a friend of mine. He's asked for an
+- [04:07.600] exemption. What else?
+- [04:09.880] Um Mr. President, um I'm going to ask
+- [04:11.960] you Yeah, please. Um what did you talk
+- [04:13.920] with What did you talk about with Prime
+- [04:15.520] Minister Trudeau? Are you and Canada
+- [04:17.600] going to be resuming negotiations? No,
+- [04:19.680] but I have a very good relationship. I
+- [04:22.000] like him a lot. But you know what they
+- [04:23.960] did was wrong. He was very nice. He
+- [04:25.520] apologized for what they did with the
+- [04:27.120] commercial. Cuz it was a false
+- [04:29.040] commercial, you know, it's the exact
+- [04:30.480] opposite. Ronald Reagan loved tariffs.
+- [04:33.360] And they tried to make it look the other
+- [04:34.920] way. And he did apologize and I
+- [04:36.440] appreciated it. We had a great dinner,
+- [04:38.960] you know, with other countries as you
+- [04:40.320] know.
+- [04:41.440] And I think we have a very good
+- [04:42.920] relationship personally. I think that uh
+- [04:46.320] what they did was wrong, but he
+- [04:47.400] apologized. On the SNAP benefits that
+- [04:49.800] are to expire tomorrow, folks are
+- [04:51.480] talking about putting a lot about canned
+- [04:52.760] goods and non-perishable trigger
+- [04:54.280] triggers. Is there a possibility, like
+- [04:56.320] you did with the military, moving around
+- [04:57.680] funds? Is there a possibility to do
+- [04:58.920] that? Well, there always is, but all the
+- [05:00.160] Democrats have to do is say, "Let's go."
+- [05:01.960] I mean, you know, they're not to do
+- [05:03.120] anything. They're not to agree. All they
+- [05:04.360] have to do is say, "The government is
+- [05:06.440] open."
+- [05:07.680] And we only need five Democrats, but
+- [05:09.480] they're you know, they've become a
+- [05:10.600] radical left party. They really have
+- [05:12.600] They've become a very radical left
+- [05:15.120] partner.
+- [05:16.600] And they've lost their minds. They've
+- [05:18.280] lost their minds. All they have to do is
+- [05:19.600] say, "The government is open." And
+- [05:21.560] that's the end of it. And you know,
+- [05:23.640] largely, when you talk about SNAP,
+- [05:25.320] you're talking about largely Democrats,
+- [05:27.320] but
+- [05:28.240] Mr. President, I want to help everybody.
+- [05:29.680] I want to help Democrats and
+- [05:31.000] Republicans, but when you're talking
+- [05:32.920] about SNAP, if you look, it's largely
+- [05:34.840] Democrats. They're hurting their own
+- [05:36.080] people. Thank you very much, everybody.
+- [05:38.560] Thank you, Mr. President.

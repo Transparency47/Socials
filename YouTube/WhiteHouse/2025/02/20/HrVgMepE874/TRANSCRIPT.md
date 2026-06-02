@@ -1,0 +1,1203 @@
+<!-- source: https://www.youtube.com/watch?v=HrVgMepE874 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: HrVgMepE874 -->
+<!-- date_published: 2025-02-20T19:01:58+00:00 -->
+<!-- date_accessed: 2026-06-02T02:53:37.593488+00:00 -->
+
+# Transcript: Press Secretary Karoline Leavitt Briefs Members of the Media, Feb. 20, 2025
+
+- [00:04.350] Ms. Leavitt: Hello. Good afternoon, everybody.
+- [00:07.520] I brought some heavy hitters in here with me today.
+- [00:10.570] Today marks one month of President Trump’s
+- [00:13.170] return to the Oval Office,
+- [00:15.160] and there is no denying this administration is off
+- [00:18.070] to a historic start.
+- [00:20.150] The President has already signed 73 executive orders.
+- [00:23.840] That is more than double the number signed by Joe Biden
+- [00:27.260] and more than quadruple the number signed
+- [00:29.580] by Barack Obama over the same period.
+- [00:33.000] These executive orders have ended burdensome regulations;
+- [00:36.360] sealed the border; unleashed our domestic energy sector;
+- [00:40.400] eliminated divisive DEI from our federal government;
+- [00:43.760] stopped the weaponization of government;
+- [00:45.960] cut waste, fraud, and abuse;
+- [00:48.040] reinstituted “America First” trade and foreign policies;
+- [00:51.640] and ultimately restored common sense.
+- [00:54.590] The President also signed the Laken Riley Act
+- [00:56.930] into law, which ensures ICE will detain illegal aliens
+- [01:00.400] arrested or charged with theft or violence.
+- [01:04.020] As of today, the Senate has already confirmed
+- [01:06.410] 18 Cabinet-level nominees, which is more than at this point
+- [01:10.320] under the Obama administration in 2009
+- [01:13.310] and more than double the pace
+- [01:14.760] of the Biden administration in 2021.
+- [01:17.940] And today, we expect Kash Patel to be confirmed
+- [01:20.600] as the next director of the FBI.
+- [01:23.220] We are proud to announce that the president
+- [01:25.270] will host his first official Cabinet meeting here
+- [01:27.950] at the White House next Wednesday, February 26th.
+- [01:32.010] In just four weeks,
+- [01:33.290] President Trump has already hosted the leaders of Israel,
+- [01:36.100] Japan, Jordan, and India.
+- [01:38.720] And next Monday, the President will host France’s President,
+- [01:41.680] Emmanuel Macron, and on Thursday,
+- [01:43.990] the UK Prime Minister, Keir Starmer,
+- [01:46.190] will visit the White House as well.
+- [01:49.060] As you all know, over the past month,
+- [01:51.060] the President has taken questions from the press --
+- [01:53.410] all of you -- nearly every single day,
+- [01:56.430] sometimes on multiple different occasions in the same day,
+- [01:59.830] on any topic any of you wish to talk about.
+- [02:03.210] President Trump set the tone on this approach immediately
+- [02:06.050] when he took more than 12 times the questions
+- [02:08.730] in his first few hours in office as Joe Biden
+- [02:12.090] did in his entire first week.
+- [02:14.750] Yesterday, we hosted a local media row
+- [02:17.010] here at the White House with television
+- [02:18.820] and radio stations from across the country
+- [02:21.500] that reached up to 60 million viewers and listeners.
+- [02:25.970] In our ongoing pursuit of transparency,
+- [02:28.220] on this one-month celebration,
+- [02:30.600] I am thrilled to bring three of my colleagues
+- [02:32.630] and our policy experts here at the White House
+- [02:34.960] to further recap this incredible first month
+- [02:37.110] of accomplishments in greater detail.
+- [02:39.680] We have Deputy Chief of Staff for Policy
+- [02:41.820] and Homeland Security Advisor Stephen Miller;
+- [02:44.290] the Director of the National Economic Council, Kevin Hassett;
+- [02:47.580] and our National Security Advisor, Mike Waltz.
+- [02:50.270] I will hand it over to them.
+- [02:51.620] They will deliver brief remarks on the accomplishments
+- [02:54.100] of this administration in the first month,
+- [02:56.270] and then we will open it up to Q and A.
+- [02:58.300] When we open up the Q and A portion, I do ask,
+- [03:00.620] for the sake of efficiency in this room,
+- [03:02.470] that you direct your question to the principal
+- [03:04.480] you seek an answer from.
+- [03:05.890] And I will call on you in this room.
+- [03:07.820] But first I will let them roll through their remarks.
+- [03:10.490] And first up, I’ll turn it over to Stephen Miller.
+- [03:15.130] Mr. Miller: Thank you. It’s great to be back.
+- [03:18.480] And I want to just thank you all for joining today
+- [03:20.920] our one-month celebration of the most historic opening
+- [03:24.590] to a presidency in American history.
+- [03:27.480] No president comes close to what Donald Trump has achieved over
+- [03:30.670] just the last 30 days.
+- [03:33.720] He has packed eight years of transformative action
+- [03:37.930] restoring this nation, restoring our laws,
+- [03:40.850] restoring fairness, restoring economic opportunity,
+- [03:43.710] restoring national security in just one month.
+- [03:46.960] No one in this country has ever seen anything like it.
+- [03:50.380] And when you look at the consequentiality
+- [03:53.400] and the significance and the transformative nature
+- [03:55.920] of the actions he’s taking, it truly defies description.
+- [03:59.890] For example, in just one area, this nation has been plagued
+- [04:03.030] and crippled by illegal discrimination:
+- [04:05.510] diversity, equity, and inclusion policies.
+- [04:07.890] It strangled our economy. It has undermined public safety.
+- [04:11.040] It has made every aspect of life more difficult,
+- [04:13.560] more painful, and less safe.
+- [04:16.170] He has ended all DEI across the federal government.
+- [04:20.730] He has terminated all federal workers
+- [04:22.670] involved in promulgating these unlawful policies.
+- [04:25.320] He has ended diversity, equity, and inclusion
+- [04:28.330] in all federal contracting. He has restored merit
+- [04:31.740] as the cornerstone of all federal policy;
+- [04:35.310] restored the full, fair, impartial enforcement
+- [04:38.180] of our federal civil rights laws
+- [04:40.070] for the first time in generations;
+- [04:42.750] and he has cracked down on individuals
+- [04:45.350] across this government
+- [04:46.590] and nonprofits who have engaged in illegal racial discrimination
+- [04:50.060] against the American people.
+- [04:51.770] This includes making clear to every educational institution
+- [04:56.050] in this country
+- [04:57.530] that ending diversity, equity, and inclusion,
+- [04:59.870] ending unlawful race discrimination
+- [05:01.790] is a precondition of receiving federal funds.
+- [05:05.230] He has also saved women’s sports
+- [05:08.070] by ending the participation of men in women’s sports.
+- [05:11.810] He has ended radical gender ideology
+- [05:14.430] across the entire federal government,
+- [05:16.480] and he’s pressured the private sector
+- [05:18.490] to also end and combat radical gender ideology.
+- [05:21.770] He’s reestablished the scientific and biological truth
+- [05:25.100] that there are only two sexes in this country --
+- [05:27.330] male and female --
+- [05:29.330] that those are biologically based determinations.
+- [05:32.150] They are not based and can never be based on gender identity.
+- [05:35.540] That includes rooting out of the Department of Defense
+- [05:38.640] all DEI policies, all critical race theory,
+- [05:41.350] all gender madness, and once again having a military
+- [05:44.690] that is focused solely and exclusively
+- [05:46.490] on readiness, preparedness, and lethality.
+- [05:49.980] As I’m sure Kevin will talk about more, of course,
+- [05:51.700] he has undertaken a historic cost-cutting effort
+- [05:54.510] across the federal government,
+- [05:55.810] launching the first-ever Department
+- [05:57.760] of Government Efficiency, uncovering corruption on a scale
+- [06:01.230] that we never thought imaginable,
+- [06:03.230] terminating every single federal worker that we --
+- [06:05.790] that we have found to be engaged in the corruption and theft
+- [06:08.990] and the waste of taxpayer dollars,
+- [06:10.950] and already saving $50 billion in a single year,
+- [06:14.430] which over a 10-year period would be $500 billion.
+- [06:19.740] Just think about how vast and enormous that sum is.
+- [06:22.820] Of course, as you all know,
+- [06:24.590] he has renamed the Gulf of Mexico
+- [06:26.570] to its correct and proper name: the Gulf of America.
+- [06:28.920] He has renamed Mount Denali into Mount McKinley,
+- [06:31.580] part of a historic effort to restore patriotism
+- [06:34.410] and national pride all across this land.
+- [06:37.460] He has ended the weaponization of the federal government,
+- [06:40.360] restored the Department of Justice
+- [06:41.880] to its true mission of combating threats to this nation
+- [06:45.000] and keeping the American people safe.
+- [06:47.620] He has ended all federal censorship of free speech.
+- [06:52.070] This has been one of the greatest crises
+- [06:53.900] that has plagued this nation. Years and years and years,
+- [06:56.980] the federal government violating the First Amendment
+- [06:59.990] to take away Americans’ right of free speech --
+- [07:02.490] President Trump has ended that.
+- [07:04.480] And he has demanded that all federal workers,
+- [07:07.370] all law enforcement cease any effort to intimidate
+- [07:10.780] the rights of Americans or to police their speech.
+- [07:14.140] He has also restored the death penalty
+- [07:16.930] at the Department of Justice,
+- [07:18.620] including for illegal aliens who commit murder,
+- [07:20.900] including for those who murder cops,
+- [07:22.860] and including for all of those who threaten Americans
+- [07:25.720] with heinous acts of violence.
+- [07:28.530] The death penalty is back. Law and order is back.
+- [07:31.890] The streets are being made safe once again.
+- [07:35.090] On the public health front,
+- [07:36.820] he has launched the nation’s first-ever commission --
+- [07:39.320] the MAHA Commission -- Make America Healthy Again,
+- [07:42.020] following the historic confirmation of RFK Jr.,
+- [07:45.920] to finally uncover the true root
+- [07:48.180] causes of the public health crisis in this country,
+- [07:51.290] the childhood disease epidemic in this country,
+- [07:54.370] the spiraling rates of pediatric cancer
+- [07:57.290] and devastating childhood sickness.
+- [08:00.480] He has finally created a situation
+- [08:03.500] where the federal heal- -- health agencies in this country
+- [08:06.040] will be focused on preventing disease,
+- [08:08.700] on keeping children from getting sick in the first place,
+- [08:12.130] not sentencing them to a lifetime in
+- [08:14.090] and out of hospitals, suffering needlessly,
+- [08:16.550] when we can find ways to prevent this epidemic of illness.
+- [08:20.490] Then, of course, on homeland security.
+- [08:23.100] Today, it is officially the law of the land
+- [08:27.750] at the conclusion of the congressional notification
+- [08:29.670] process that six Mexican cartels and two transnational gangs --
+- [08:34.780] Tren de Aragua, or TDA, and MS-13 --
+- [08:38.220] so eight organizations in total --
+- [08:40.540] are now formally designated as foreign terrorist organizations,
+- [08:44.520] which means that every single member of those organizations
+- [08:47.620] who operates on U.S. soil is now,
+- [08:49.760] as a legal matter, a terrorist,
+- [08:51.830] and they will be treated as terrorists.
+- [08:55.000] This is a sea change in U.S. policy.
+- [08:57.450] And this means the Department of Justice
+- [08:59.150] and the Department of Homeland Security,
+- [09:01.060] along with the rest of U.S. law enforcement
+- [09:03.180] and the Department of Defense,
+- [09:04.830] are now operating in a legal reality
+- [09:07.140] where these cartels are recognized as terrorists,
+- [09:10.950] and there will be a whole-of-government effort
+- [09:13.000] to remove these terrorists from our soil
+- [09:15.920] and to degrade their ability to threaten
+- [09:17.930] or undermine any American security
+- [09:20.330] or sovereignty interests.
+- [09:22.330] Border crossings since the day he took office
+- [09:25.160] are down 95 percent. I think it’s almost impossible
+- [09:30.380] to even describe the scale and scope of that achievement.
+- [09:33.410] President Trump, within days of taking office,
+- [09:37.380] cut border crossings 95 percent.
+- [09:41.810] And those few who have dared to cross
+- [09:44.610] are being either prosecuted or deported.
+- [09:47.730] They’re either facing significant jail time
+- [09:50.090] for trafficking, smuggling, harboring, aiding, impeding,
+- [09:54.540] or they’re being immediately removed from our soil.
+- [09:56.630] Either way, at the end of the process, they are going home.
+- [10:00.210] He has reimplemented Remain in Mexico,
+- [10:02.750] and he has obtained historic cooperation
+- [10:04.760] from foreign countries all around the world
+- [10:06.950] in accepting their deportees back.
+- [10:09.340] And he has used the United States military
+- [10:11.510] to fully seal the southern border
+- [10:13.470] with a historic deployment of both active duty
+- [10:17.120] and National Guard troops,
+- [10:19.130] resumed the building of infrastructure.
+- [10:20.810] He has opened up Guantanamo Bay, and he’s using military aircraft
+- [10:24.360] to carry out deportations all across this country.
+- [10:27.060] And ICE is joining with ATF, DEA, and FBI
+- [10:30.330] to carry out the largest deportation operation
+- [10:33.270] in American history.
+- [10:34.530] The criminals are going home. The border is sealed shut.
+- [10:37.650] America is safe, sovereign, proud, and free.
+- [10:40.200] We are a nation that everyone in the world understands
+- [10:43.100] all across this planet: You do not come here illegally.
+- [10:46.190] You will not get in. You will go to jail.
+- [10:48.290] You will go home. You will not succeed.
+- [10:50.920] This is the biggest and most successful change
+- [10:53.650] in any area of law enforcement that this nation has ever seen,
+- [10:58.250] and he did it in under one month.
+- [11:00.950] Thank you.
+- [11:02.180] Mr. Hassett: Should I go?
+- [11:03.410] Ms. Leavitt: Yes, yes.
+- [11:06.120] Mr. Hassett: Well, thank you, Karoline.
+- [11:07.980] Thank you, Stephen.
+- [11:09.200] You know, one of the things
+- [11:10.430] that President Trump cares most about is job creation.
+- [11:13.040] And it was about seven years ago
+- [11:14.760] I had the honor of joining you in this room for the first time,
+- [11:17.770] and it looks like we’ve created
+- [11:19.170] a lot more jobs in the last month.
+- [11:20.790] Look at how many people are here.
+- [11:22.110] I -- my estimate is about 180 but -- but I didn’t count.
+- [11:25.550] So, thank you. It’s really an honor to be back here.
+- [11:28.320] I think that I just want to go over a few things
+- [11:31.000] and then hand it off to Mike.
+- [11:32.680] The first thing is that the President has told us
+- [11:34.480] to prioritize fighting inflation,
+- [11:36.720] and he had to do that because, as you know,
+- [11:38.780] President Biden let inflation get completely out of control.
+- [11:42.020] And he did it with policies that made no sense.
+- [11:45.690] They made no sense.
+- [11:46.950] You know, a lot of times, you people say to us --
+- [11:49.140] our friends, the journalists --
+- [11:50.350] you know, “Why are you doing that?”
+- [11:51.950] But -- but, you know, I like to think,
+- [11:53.640] “Why did they do that?
+- [11:55.200] Why did they spend so much money and then --
+- [11:57.740] why did the Fed print so much money
+- [11:59.140] so that we had inflation as high as we’ve ever seen
+- [12:01.170] since Jimmy Carter? So, why did they do that?”
+- [12:03.090] So, we’re addressing inflation.
+- [12:04.910] We didn’t have to address it in the first term,
+- [12:06.710] because it was always in the 1s, almost always.
+- [12:08.610] But we’re going to get it back there.
+- [12:09.910] And how are we doing it?
+- [12:11.120] Well, we’re doing it with a plan that President Trump and I
+- [12:14.110] and others have talked about in the Oval that involves,
+- [12:16.990] like, every level of fighting inflation.
+- [12:19.630] First, the macroeconomic level. We’re cutting spending.
+- [12:21.930] We’re cutting spending in negotiations
+- [12:23.770] with people on the Hill.
+- [12:25.060] We’re cutting spending with the advice
+- [12:27.250] of our IT consultant, Elon Musk.
+- [12:30.240] And then we’re also looking into supply-side things,
+- [12:33.830] like restoring Trump’s tax cuts,
+- [12:36.570] maybe even expensing new factories
+- [12:39.030] so that there is an explosion of supply.
+- [12:40.800] If you have an explosion of supply
+- [12:42.400] and a reduction in government demand,
+- [12:44.900] then inflation goes way down.
+- [12:46.710] And then, one of the things that you want to say is
+- [12:48.820] “Well, when are you going to see it?”
+- [12:50.240] Well, the first thing that you’ll see
+- [12:52.070] when the markets believe
+- [12:53.820] that we’re going to get inflation under control
+- [12:55.920] is that the 10-year Treasury rate goes down,
+- [12:58.300] because that’s how they think about future expected inflation.
+- [13:01.500] And so, we’re still going to see some memory
+- [13:03.050] of Biden’s inflation.
+- [13:04.330] It’s not going to go away in a month.
+- [13:06.060] But the 10-year Treasury before the last Consumer Price Index
+- [13:08.690] had dropped about 40 basis points.
+- [13:10.750] Forty basis points because markets were optimistic
+- [13:13.240] about our ability to fight inflation.
+- [13:16.220] Forty basis points is kind of not a fun thing to say.
+- [13:18.310] I -- economists talk that way. I apologize.
+- [13:20.190] But the way to think about it is,
+- [13:21.570] for a typical mortgage,
+- [13:22.770] if that affects the mortgage rate,
+- [13:24.290] then it’s going to save a typical family
+- [13:25.640] buying a house about a thousand bucks a year,
+- [13:28.350] and that’s just in our first month.
+- [13:29.660] Okay.
+- [13:30.890] The second thing we’ve done is we’ve had a lot of trade talks.
+- [13:33.170] In fact, I was just meeting a minister from Mexico
+- [13:36.130] with Howard Lutnick just a couple of hours ago.
+- [13:38.880] And we’re talking about reciprocal trade,
+- [13:41.970] and we’re also talking about the fentanyl crisis.
+- [13:44.250] And so, reciprocal trade is about our government
+- [13:47.170] treating other governments the way they treat us.
+- [13:49.940] We want trade to be fair.
+- [13:51.820] It turns out that Americans have been disadvantaged
+- [13:53.880] by foreign governments over and over,
+- [13:55.750] and President Trump wants it to stop.
+- [13:57.760] And the fact that struck me as most noticeable,
+- [14:01.550] when I started to look at what President Trump
+- [14:03.320] was asking us to do, is that last year --
+- [14:07.120] last year -- we have data -- U.S. companies paid $370 billion
+- [14:10.990] in taxes to foreign governments -- $370 billion.
+- [14:14.610] Last year, foreign multinationals
+- [14:17.540] paid us $57 billion in taxes.
+- [14:20.300] We have one quarter of world GDP.
+- [14:22.390] They have three quarters of world GDP.
+- [14:24.370] And we’re paying $370. They’re paying $57.
+- [14:26.910] This is not reciprocal.
+- [14:28.540] We’re going to try -- or we’re going to fix it.
+- [14:31.480] The other thing that we’ve done is we’ve had
+- [14:32.990] an all-of-the-above energy approach
+- [14:35.840] that’s led by Doug Burgum and Chris
+- [14:38.480] and a really large team -- EPA --
+- [14:41.410] and we’ve already made so many actions
+- [14:44.560] that are going to affect the price of energy
+- [14:46.980] and lower inflation.
+- [14:48.240] We’ve opened up 625 million acres to energy exploration.
+- [14:51.810] We’ve cut 50 years of red tape
+- [14:55.180] that makes it so you can’t have permits.
+- [14:57.470] And we’ve even made it so that when you go home,
+- [15:00.020] if you get a new one,
+- [15:01.310] then you can take a shower or flush a toilet
+- [15:04.540] or read under a light bulb. We’re doing that too.
+- [15:08.290] So -- so, finally, let’s just think about,
+- [15:10.910] like, the facts that we can see right now
+- [15:14.440] that we think are awesome. So, guess what?
+- [15:17.410] Small-business optimism is -- has go- --
+- [15:20.200] gone up by the most ever since President Trump came in.
+- [15:24.870] ISM, which is the measure of what’s going on
+- [15:26.760] in manufacturing,
+- [15:28.160] it’s expanding again for the first time in years.
+- [15:32.460] CEO confidence is the highest it’s been in years.
+- [15:37.520] And the reason -- the reason people are thinking this is
+- [15:40.130] that our policies give people cause for optimism.
+- [15:43.810] And then I want to reiterate what Stephen Miller said,
+- [15:46.590] because it’s so important --
+- [15:47.840] and it’s so important for financial markets
+- [15:49.320] to start to digest this --
+- [15:50.780] that if, say, the Treasury secretary or the --
+- [15:54.750] any Cabinet secretary, with Elon Musk,
+- [15:57.620] is able to find some savings -- say, $100 billion --
+- [16:01.210] well, in CBO land,
+- [16:02.790] that’s actually, like, about 10 times that
+- [16:06.040] or maybe 12 times that over a 10-year window.
+- [16:08.840] And so, when you’re thinking about the negotiations
+- [16:11.100] right now over reconciliation and thinking about,
+- [16:13.050] well, $4 trillion, $5 trillion,
+- [16:15.030] well, those numbers, in terms of the savings,
+- [16:17.390] are going to end up being small
+- [16:19.120] because of all the waste that we’re finding.
+- [16:21.010] And so, we’re incredibly optimistic
+- [16:22.390] about the future of inflation and the future of our economy.
+- [16:25.530] And we’re optimistic
+- [16:26.740] because we’re making so much progress so far,
+- [16:28.690] and we already see it in market prices.
+- [16:30.410] And, with that, I’ll hand it off to Mike.
+- [16:31.700] MR. WALTZ: All right. Thanks, Kevin.
+- [16:34.950] Well, good afternoon.
+- [16:38.670] What a month and what a sea change in our --
+- [16:41.810] in our foreign policy.
+- [16:43.140] In addition to what we’re doing on the border
+- [16:45.540] and restoring American sovereignty,
+- [16:47.680] in addition to what we’re doing in our economy
+- [16:52.390] and the job creation and the inflation reduction,
+- [16:55.450] we are bringing the world back
+- [16:57.290] to where it was at the end of President Trump’s first term,
+- [16:59.750] which is a world of peace, prosperity, and --
+- [17:03.590] and looking forward and getting us out of the chaos
+- [17:06.840] that we’ve just seen over the last four years.
+- [17:09.310] So, over the last month, just to name a few,
+- [17:14.400] I had the honor of sitting in the Oval Office
+- [17:18.500] as President Trump spoke with President Putin
+- [17:22.350] and then immediately spoke with President Zelenskyy,
+- [17:25.640] and both of them said only President Trump
+- [17:29.430] could bring both sides to the table,
+- [17:30.920] and only President Trump could stop the horrific fighting
+- [17:34.690] that has been going on now for the better part of four years
+- [17:39.510] and that only President Trump
+- [17:40.930] could drive the world back to peace.
+- [17:43.080] Both of those leaders said that in back-to-back calls.
+- [17:46.900] And, of course, we just had our historic talks
+- [17:50.680] mediated by our --
+- [17:53.190] our good friends and partners, Saudi Arabia --
+- [17:55.800] we give great thanks to Crown Prince Mohammed
+- [17:58.500] bin Salman for hosting --
+- [18:00.830] and sat down for the first time in years with the Russians
+- [18:06.300] and talked about a path forward with peace.
+- [18:08.920] On top of that and one of the things that led to that
+- [18:11.800] was a tremendous co- -- confidence-building measure
+- [18:14.470] that we had with the release of Marc Fogel.
+- [18:16.830] I’ll remind everyone, the last time
+- [18:18.760] that we had an American released from the Russians,
+- [18:23.690] either we gave up a deadly spy;
+- [18:26.340] pressured our allies to give up a lethal killer;
+- [18:29.600] or we released, under the Biden administration,
+- [18:32.730] the world’s most notorious arms dealer,
+- [18:34.860] Viktor Bout, who, by the way, had one of his main clients
+- [18:38.360] for arms the cartels in -- in Mexico and Central America.
+- [18:43.220] We gave up none of that.
+- [18:44.830] This was released as a confidence-building measure,
+- [18:47.060] working with our great Middle East Envoy,
+- [18:50.200] Steve Witkoff, and our secretary of State
+- [18:53.600] as a first step towards opening these talks
+- [18:56.460] and then moving forward towards peace.
+- [18:58.960] On top of that, we’ve secured, just in a month,
+- [19:01.980] the return of a dozen -- 12 --
+- [19:05.620] American hostages from Russia, from Bulgaria, from Venezuela,
+- [19:11.000] the Taliban, and Hamas.
+- [19:12.880] Excuse me, that’s from Belarus, not Bulgaria.
+- [19:16.030] We also had -- for the first time in quite some time,
+- [19:22.270] we took out a senior leader of ISIS,
+- [19:25.150] an international financier and recruiter
+- [19:28.330] that the military had been trying to take out
+- [19:30.720] for quite some time and --
+- [19:33.720] and wasn’t able to do so, frankly,
+- [19:35.660] because of a bureaucratic approval process.
+- [19:38.530] President Trump said, “Take him out.”
+- [19:40.750] And that ISIS financier and leader
+- [19:43.470] is no longer on this Earth.
+- [19:45.560] We’ve also taken action
+- [19:48.070] to eliminate other terrorist organizations
+- [19:50.560] in the Middle East. We drove --
+- [19:52.670] before the President was even in office,
+- [19:55.340] he started talking consequences for people
+- [19:58.060] that would hold Americans.
+- [19:59.870] Heretofore, there’s been nothing but upside.
+- [20:01.950] You take an American, you get some better deal.
+- [20:04.510] You take another one, maybe you get a better deal.
+- [20:07.010] No more. There is now nothing but downside
+- [20:09.770] for taking Americans illegally,
+- [20:12.020] either as hostages or illegal detainees.
+- [20:14.810] And when President Trump sent a very clear message
+- [20:17.760] across the Middle East, but particularly to Hamas,
+- [20:19.910] that there would be all hell to pay,
+- [20:21.710] we suddenly saw a breakthrough.
+- [20:23.790] And now we just saw the release of yet
+- [20:27.380] another group of hostages. There have been dozens now,
+- [20:30.720] including two Americans that we’ve seen once again
+- [20:34.300] reunited with their families.
+- [20:36.710] As part of the talks with King Abdullah,
+- [20:40.130] he offered -- and --
+- [20:41.910] and I think the entire world has graciously accepted --
+- [20:45.680] to take 2,000 sick children, cancer patients,
+- [20:50.670] and others out of Gaza.
+- [20:52.780] As a humanitarian -- as a humanitarian gesture,
+- [20:57.200] 2,000 Gazans will come out of that hellhole that it is,
+- [21:02.910] that wasteland that Gaza is right now,
+- [21:05.460] with unexploded ordnance,
+- [21:07.340] with debris everywhere, with no sewage, with no water.
+- [21:11.410] And -- and President Trump has --
+- [21:13.350] has put forward a plan to deal with the practical reality
+- [21:16.740] that is 1.8 million Gazans now -- now truly suffering.
+- [21:22.640] And then, you know,
+- [21:23.950] just to bring it back to our own hemisphere,
+- [21:26.520] we’ve seen literally, in the last month --
+- [21:29.600] after years of national security experts,
+- [21:33.010] the generals in charge,
+- [21:34.380] and others testifying and ringing the alarm bells about --
+- [21:39.200] about the Chinese Communist Party’s presence
+- [21:41.780] in our own hemisphere,
+- [21:43.550] particularly in the Panama Canal,
+- [21:45.220] we’re seeing the leadership of Panama step away
+- [21:48.700] from the Belt and Road program,
+- [21:50.400] move away from China and back towards the United States,
+- [21:54.210] and even enter into talks and --
+- [21:57.840] and other negotiations about addressing the ports
+- [22:00.800] on either side of the canal.
+- [22:03.380] And then, finally, last but not least,
+- [22:06.060] we’ve had four world leaders in the White House,
+- [22:09.490] in the Oval Office.
+- [22:10.720] We’ve had the prime minister of Japan,
+- [22:12.370] the prime minister of India, the king of -- of Jordan,
+- [22:16.470] and, of course, the prime minister of Israel
+- [22:18.880] just in the last four weeks. And next week,
+- [22:21.140] we’ll have the Prime Minister of the United Kingdom
+- [22:24.160] and we’ll have the president of France, Macron.
+- [22:27.940] So, President Trump is on what we call Trump warp speed.
+- [22:33.130] We are all -- we are all honored to be really serving under --
+- [22:38.580] under his leadership and his vision.
+- [22:41.270] And truly, you know, when we all say --
+- [22:44.070] and the President himself say --
+- [22:45.740] says, he is a president of peace.
+- [22:48.130] He is a president focused on restoring stability.
+- [22:51.550] I think the entire world saw what the world would look like
+- [22:55.490] without strong American leadership
+- [22:57.360] in the last four years.
+- [22:59.150] And it’s truly been an honor to get us back
+- [23:01.470] to where we were and back on track
+- [23:04.500] under President Trump’s leadership.
+- [23:06.050] Ms. Leavitt: Thank you, Mike.
+- [23:07.320] MR. WALTZ: Mm-hmm.
+- [23:08.560] Ms. Leavitt: Thank you. Thank you, everybody.
+- [23:10.230] I’m sure you’re very eager to ask questions
+- [23:11.850] of these very smart people
+- [23:14.020] working very hard on behalf of the president.
+- [23:16.550] We do have somebody in our new media seat today.
+- [23:19.310] We have John Stoll, who is the head of news at X.
+- [23:22.950] As you all know -- you’re all on X --
+- [23:24.610] it’s home to hundreds of millions of users,
+- [23:26.920] a large contingent of independent journalists
+- [23:29.460] and news organizations across geographies
+- [23:32.170] and political spectrums.
+- [23:34.160] And at the same time, X remains the go-to platform
+- [23:37.020] for many legacy news outlets. And I know, as I mentioned,
+- [23:40.250] many of the reporters in this room
+- [23:41.740] use X to attract eyeballs to your work.
+- [23:44.490] Prior to joining X, John spent two decades in journalism,
+- [23:48.170] including several years as an editor
+- [23:49.810] at The Wall Street Journal.
+- [23:51.310] We are excited to have him in the briefing room today.
+- [23:53.720] John, we’ll let you kick it off. And as I said at the top,
+- [23:56.090] please direct your question to the individual up here
+- [23:59.190] who you’d like an answer from.
+- [24:00.890] John, why don’t you begin.
+- [24:02.200] The Press: All right. Thank you very much.
+- [24:03.450] I am sitting in for a thriving ecosystem of journalists,
+- [24:07.220] independent and -- and emerging news organizations
+- [24:10.330] who do depend on X for publicity,
+- [24:14.500] for a business model.
+- [24:15.710] And so, I look forward to seeing many of them
+- [24:17.960] in this seat in months and years to come.
+- [24:19.970] I also thank you, Karoline,
+- [24:21.190] for opening this seat up to new media.
+- [24:24.090] It -- it really is a testament not only to your open-mindedness
+- [24:28.650] but also to innovation that you’d actually think about,
+- [24:31.680] you know, folks that are not traditionally credentialed
+- [24:34.020] to be in this room to be in this room
+- [24:35.470] and to not only have a question but also to witness --
+- [24:38.820] you know, this is at a very important intersection of power
+- [24:42.910] and the free press.
+- [24:44.740] And so, just the ability to witness this and --
+- [24:47.610] and be part of it, it brings everybody’s game up.
+- [24:49.720] So, thank you for that.
+- [24:51.280] I think this is for Mike Waltz. My question is about Ukraine.
+- [24:54.700] MR. WALTZ: Sure.
+- [24:56.700] The Press: For about more than 10 years,
+- [24:58.110] I’ve been fascinated, like all --
+- [24:59.420] like many, with what’s going on.
+- [25:01.560] I was in Northern Europe working out of the Baltics
+- [25:06.200] when Crimea was annexed and was -- a lot --
+- [25:10.000] a lot of this came on Twitter.
+- [25:11.980] The platform used to be known as Twitter.
+- [25:14.530] Was -- a lot of European leaders would --
+- [25:17.400] would talk about their disappointment and --
+- [25:19.180] and solidarity with Ukraine,
+- [25:21.000] but when it came to actually doing something,
+- [25:22.700] it felt like they were passing a hot potato
+- [25:24.500] and sent it over the Atlantic.
+- [25:27.540] I wonder how much of what we’re seeing right now
+- [25:30.370] out of the administration and President Trump
+- [25:32.380] is a call to Europe and the European leaders
+- [25:34.560] and allies that we’ve traditionally had to pick up
+- [25:36.710] that hot potato and --
+- [25:37.980] and start doing something a little bit more concrete
+- [25:40.420] to win and preserve the peace in Ukraine.
+- [25:43.340] The second question I have is -- it -- it’s related --
+- [25:46.600] is there’s been some --
+- [25:48.460] a lot of speculation that President Trump
+- [25:51.380] and the administration might be manipulated by Pre- --
+- [25:53.680] by Vladimir Putin.
+- [25:54.890] I wonder if you can just talk a little bit
+- [25:56.440] about the administration’s posture --
+- [25:58.200] MR. WALTZ: Yeah.
+- [25:59.430] The Press: -- and your confidence
+- [26:00.670] in the competence of this administration to d- --
+- [26:02.360] go toe to toe with Vladimir Putin.
+- [26:03.820] MR. WALTZ: Well, if there’s an- --
+- [26:05.030] I’ll take the l- -- second question first.
+- [26:06.540] If there’s anybody in this world that can go toe to toe
+- [26:10.020] with Putin, that could go toe to toe with Xi,
+- [26:12.460] that could go toe to toe with Kim Jong
+- [26:14.050] Un -- and we could keep going down the list --
+- [26:17.430] it’s Donald J. Trump. He is the dealmaker in chief.
+- [26:20.650] There is no question that he is the commander in chief.
+- [26:23.860] And I, for one -- and I think all Americans
+- [26:26.580] and around the world should have no doubt about his ability
+- [26:32.050] to not only handle Putin
+- [26:33.370] but to handle the complexity of driving this war to an end.
+- [26:38.760] And then on your first piece on Europe,
+- [26:40.920] I’ll take you back to 2014. You’re right.
+- [26:43.110] There was a lot of hand-wringing in Europe
+- [26:45.090] and not a lot of action.
+- [26:46.320] There was also a lot of hand-wringing here in Washington
+- [26:49.170] under the Obama administration and not a lot of action.
+- [26:51.950] They literally threw blankets at the problem.
+- [26:54.540] And so, I’ll remind everyone that Putin had,
+- [26:58.360] you know, some type of conflict, invasion,
+- [27:00.650] or issue with their neighbor under President Bush,
+- [27:03.660] with Georgia; under President Obama,
+- [27:06.180] with Ukraine in 2014; not under President Trump, 45;
+- [27:10.400] and again with President Biden in 2022.
+- [27:13.870] The war should have been deterred.
+- [27:15.310] The war should have never happened,
+- [27:16.520] and I have no doubt it would not have happened
+- [27:18.380] under President Trump and will stop under President --
+- [27:21.780] President Trump again.
+- [27:23.160] But I just want to push back on this notion
+- [27:25.050] of our European allies not being consulted
+- [27:27.400] as we’ve entered into this process.
+- [27:30.050] I already mentioned the immediate phone
+- [27:31.670] call President Trump made to President Zelenskyy.
+- [27:34.690] He has talked to President Macron of France
+- [27:37.360] repeatedly last week.
+- [27:38.910] President Macron convened European leaders
+- [27:41.800] and then is coming here on Monday.
+- [27:44.300] Prime Minister Starmer is coming next Thursday.
+- [27:47.950] We’ve also --
+- [27:49.180] I’ve talked to every one of my national security --
+- [27:53.250] national security advisor counterparts across --
+- [27:57.330] across the spectrum in Europe.
+- [27:58.970] I’ve talked to Secretary-General Rutte,
+- [28:01.550] the -- the leader of NATO, the secretary-general of NATO.
+- [28:04.690] We have repeatedly -- oh, by the way,
+- [28:07.100] we had half our Cabinet -- seven Cabinet officials,
+- [28:09.520] including the vice president,
+- [28:10.940] at the Munich Security Conference,
+- [28:13.160] all engaging, all listening,
+- [28:15.110] and all making sure our allies were heard.
+- [28:17.110] However, we’ve also made it clear for years --
+- [28:22.060] decades, even --
+- [28:23.770] that it is unacceptable that the United States
+- [28:26.490] and the United States taxpayer continues to bear the burden
+- [28:30.220] not only of the cost of the war in Ukraine
+- [28:33.370] but of the defense of -- of Europe.
+- [28:34.960] We fully support our NATO Allies.
+- [28:37.270] We fully support the Article 5 commitment.
+- [28:41.620] But it’s time for our European allies to step up.
+- [28:44.140] And one of the things that Secretary-General Rutte
+- [28:46.140] said on our call
+- [28:47.510] was this last couple of weeks have been a real wake-up call.
+- [28:50.470] And I asked him,
+- [28:51.830] “What have you been missing the last couple of years?”
+- [28:54.330] The fact that we are going to enter
+- [28:56.220] into a NATO summit this June with a third of our NATO
+- [29:00.000] Allies still not meeting the 2 percent minimum,
+- [29:04.090] a commitment they made a decade ago --
+- [29:07.200] literally a decade ago -- with a war on their doorstep --
+- [29:10.920] the largest war that they’re all extremely concerned about --
+- [29:14.670] but yet it’s “Well, somebody else needs to pay.
+- [29:18.800] We’ve got other domestic priorities.”
+- [29:20.180] It’s unacceptable.
+- [29:21.410] President Trump has made that clear.
+- [29:23.300] And the minimum needs to be met.
+- [29:24.890] We need to be at 100 percent in --
+- [29:26.380] this June at the NATO summit.
+- [29:28.130] And then let’s talk about exceeding it, which what --
+- [29:30.630] is what President Trump has been talking about,
+- [29:32.370] with 5 percent of GDP.
+- [29:34.340] Europe needs to step up for their own defense as a partner.
+- [29:37.420] And we can be friends and allies
+- [29:39.150] and have those tough conversations.
+- [29:40.880] Ms. Leavitt: Great. Peter.
+- [29:42.130] The Press: Thank you, Karoline.
+- [29:43.330] I have a Ukraine one and a DOGE one.
+- [29:44.890] Who can talk DOGE?
+- [29:46.350] Ms. Leavitt: Stephen, go ahead.
+- [29:50.260] The Press: Well, so -- so, Stephen,
+- [29:51.500] we’re hearing about these DOGE dividend checks
+- [29:54.090] that would be 20 percent back to taxpayers,
+- [29:56.210] 20 percent to pay down the debt.
+- [29:58.460] Sixty percent is left. Who gets that?
+- [30:01.340] Mr. Miller: Well, the way that it works is
+- [30:02.860] when you achieve savings,
+- [30:04.830] you can either return it to taxpayers,
+- [30:06.850] you can return it to our debtors,
+- [30:09.600] or it can be cycled into next year’s budget,
+- [30:13.050] and then it just lowers the overall baseline for next year.
+- [30:15.420] So, in other words, you can just transfer it
+- [30:17.010] into the next fiscal window
+- [30:18.350] and then lower the overall spending level.
+- [30:20.450] And that means that you can achieve a permanent savings
+- [30:22.450] that way, and that reduces the deficit.
+- [30:24.340] The Press: And when is it that people might see those checks?
+- [30:26.520] Mr. Miller: Well, this is all going to be worked on
+- [30:27.870] through the reconciliation process with Congress
+- [30:30.580] that’s going underway right now, as you’ve seen.
+- [30:32.940] The Senate is moving a bill. The House is moving a bill.
+- [30:35.170] The president has great confidence in both chambers
+- [30:37.370] to deliver on his priorities.
+- [30:39.060] I would just take this opportunity to note
+- [30:41.440] that President Trump has made a historic commitment
+- [30:44.140] to the working class of this country
+- [30:45.900] to fight for a major tax relief and major price relief.
+- [30:50.030] And cutting spending, as DOGE is doing,
+- [30:52.040] and cutting taxes is the key to delivering
+- [30:54.390] on both of those promises. And President Trump
+- [30:56.450] is resolutely committed to doing both.
+- [30:57.860] The Press: Thank you. And on Ukraine.
+- [30:59.140] I guess, this is for Mike.
+- [31:00.380] MR. WALTZ: Sure.
+- [31:01.620] The Press: After the president’s post
+- [31:02.850] on Truth Social yesterday, need to know:
+- [31:06.000] Who does he think is more responsible
+- [31:07.740] for the Russian invasion of Ukraine, Putin or Zelenskyy?
+- [31:12.520] MR. WALTZ: Well, look, his -- his goal, Peter,
+- [31:14.710] is to bring this war to an end, period.
+- [31:18.380] And there has been ongoing fighting on both sides.
+- [31:22.470] It is World War I-style trench warfare.
+- [31:26.560] His frustration with President Zelenskyy is --
+- [31:29.680] that you’ve heard -- is multifold.
+- [31:31.210] One, there needs to be a deep appreciation
+- [31:35.200] for what the American people, what the American taxpayer,
+- [31:37.880] what President Trump did in --
+- [31:40.680] in his first term, and what we’ve done since.
+- [31:43.770] So, some of the rhetoric coming out of Kyiv,
+- [31:45.800] frankly, and -- and insults to President Trump
+- [31:49.100] were unacceptable. Number one.
+- [31:50.340] Number two, our own secretary of Treasury personally
+- [31:53.980] made the trip to offer the Ukrainians what is --
+- [31:58.160] can only be described as a historic opportunity --
+- [32:01.870] that is for America to coinvest with Ukraine in their minerals,
+- [32:05.780] in their resources, to truly grow the pie.
+- [32:09.310] So, case in point, there’s a foundry
+- [32:12.060] that processes aluminum in Ukraine.
+- [32:14.380] It’s -- it’s been damaged.
+- [32:15.750] It’s not at its current capacity.
+- [32:17.660] If that is restored,
+- [32:19.740] it would account for America’s entire imports of aluminum
+- [32:23.970] for an entire year -- that one foundry.
+- [32:26.530] There are tremendous resources there.
+- [32:29.070] Not only is that long-term security for Ukraine,
+- [32:32.190] not only do we help them grow the pie with investments,
+- [32:35.560] but, you know, we do have an obligation
+- [32:37.730] to the American taxpayer in helping them recoup
+- [32:41.230] the hundreds of billions that ha- -- that have occurred.
+- [32:44.750] So, you know, rather than enter --
+- [32:46.920] enter into some constructive conversations
+- [32:49.860] about what that deal should be going forward,
+- [32:53.630] we got a lot of rhetoric in the media that was --
+- [32:56.120] that was incredibly unfortunate.
+- [32:57.840] And I could just tell you, Peter, you know, as a veteran,
+- [33:01.730] as somebody who’s been in combat, this war is horrific.
+- [33:05.380] And I think we’ve lost sight of that,
+- [33:07.930] of the literally thousands of people that are dying a day,
+- [33:12.270] families that are going without the next generation.
+- [33:15.250] And I find it kind of, you know, frankly, ridiculous.
+- [33:18.820] So many people in Washington that were just demanding,
+- [33:21.830] pounding the table for a ceasefire in Gaza
+- [33:24.940] are suddenly aghast that the president would demand one
+- [33:27.940] and both sides come to the table when it talks to --
+- [33:31.870] when it comes to Ukraine,
+- [33:33.560] a war that has been arguably far greater in --
+- [33:38.750] in scope and scale and far more dangerous
+- [33:41.410] in terms of global escalation to U.S. security.
+- [33:44.420] The Press: And I do have one for Karoline.
+- [33:45.960] Ms. Leavitt: Sure.
+- [33:47.230] The Press: Does President Trump have a bet with Trudeau
+- [33:50.260] about this USA-Canada hockey game tonight?
+- [33:52.400] (Laughter.)
+- [33:53.630] And when there is a big hockey game on,
+- [33:55.670] is the president watching for the goals or for the fights?
+- [33:59.660] Ms. Leavitt: (Laughs.) Probably both.
+- [34:01.200] I think he’s watching for the United States to win tonight.
+- [34:03.790] I know he talked to the USA hockey team this morning.
+- [34:07.510] He talked to the players after their morning practice,
+- [34:10.130] around 10 o’clock.
+- [34:11.520] And I also spoke to some folks from that team after.
+- [34:14.270] They were jubilant over President Trump’s comments
+- [34:16.460] to the team.
+- [34:17.710] I believe they’re going to put out a video of that call.
+- [34:20.290] So, he looks forward to watching the game tonight,
+- [34:22.360] and we look forward to the United States
+- [34:23.980] beating our soon-to-be 51st state, Canada.
+- [34:25.860] (Laughter.)
+- [34:27.140] Bloomberg, go ahead.
+- [34:28.520] The Press: My question is for Mike Waltz.
+- [34:29.880] Can you give us a readout of Kellogg’s meeting
+- [34:32.210] with Zelenskyy that just wrapped up?
+- [34:33.780] And, in particular, Zelenskyy publicly
+- [34:36.030] rejected this deal about the rare earth minerals.
+- [34:38.870] Where -- where does that stand?
+- [34:40.800] MR. WALTZ: Well, we’re going to continue to have --
+- [34:43.040] he needs to come back to the table,
+- [34:44.460] and we’re going to continue to have discussions
+- [34:46.150] about where that deal is going.
+- [34:48.830] Again, we have an obligation to the taxpayer.
+- [34:50.920] I think this is an opportunity.
+- [34:52.280] The president thinks this is an opportunity
+- [34:54.020] for Ukraine going forward. There can be, in my view,
+- [34:58.060] nothing better for Ukraine’s future
+- [35:01.230] and for their security than -- than to have the United States
+- [35:05.690] invested in their prosperity long-term.
+- [35:08.480] And then a key piece of this has also been security guarantees.
+- [35:12.240] Look, the -- the reality that we’re talking about here is:
+- [35:17.070] Is it in Ukraine’s interest? Is it in Europe’s interest?
+- [35:21.250] It certainly isn’t in Russia’s interest
+- [35:23.360] or in the American people’s interest for this war
+- [35:26.140] to grind on forever and ever and ever.
+- [35:29.930] So, a key part of his conversation
+- [35:32.050] was helping President Zelenskyy understand
+- [35:35.150] this war needs to come to an end.
+- [35:36.750] This kind of open-ended mantra
+- [35:39.180] that we’ve had under the Biden administration, that’s over.
+- [35:42.530] And I think a lot of people
+- [35:44.090] are having a hard time accepting that.
+- [35:45.940] And then the other piece is there’s been discussions
+- [35:48.010] from Prime Minister Starmer and also President Macron
+- [35:52.620] about European-led security guarantees.
+- [35:55.200] We welcome that.
+- [35:56.460] We’ve been asking Europe to step up
+- [35:58.660] and secure its own prosperity, safety, and security.
+- [36:02.460] So, we certainly welcome that.
+- [36:04.040] And we certainly welcome more European assistance.
+- [36:06.950] As I told my counterparts,
+- [36:08.720] “Come to the table with more, if --
+- [36:11.400] if you want a bigger seat at the table.”
+- [36:13.980] And we’ve been asking for that for quite some time.
+- [36:16.550] The Press: And has Russia pushed for sanctions
+- [36:18.240] in your talks with them?
+- [36:19.690] And have you consulted with international partners
+- [36:21.590] and allies about potentially rolling back sanctions
+- [36:24.740] in these negotiations to end the war?
+- [36:26.030] MR. WALTZ: Those -- the talks with --
+- [36:28.280] with our Russian counterparts --
+- [36:29.620] both with my counterpart, the national security advisor;
+- [36:32.260] Secretary Rubio’s counterpart, the Foreign Minister,
+- [36:36.190] Foreign Minister Lavrov -- you know, it --
+- [36:38.680] it really were -- was quite broad,
+- [36:42.290] focused on what is the goals for our broader relationship,
+- [36:47.250] but very clear that the fighting has to stop
+- [36:50.240] to get to any of those brighter goals.
+- [36:51.990] And as a first step, we’re just going to do
+- [36:53.930] some commonsense things, like restore the --
+- [36:56.810] the ability of both of our embassies to function.
+- [37:00.190] And, again, you know, this is -- this was common sense.
+- [37:03.790] In -- in foreign policy world,
+- [37:05.540] they call it “shuttle diplomacy.”
+- [37:08.080] We have to talk to both sides
+- [37:10.220] in order to get to both sides to the table,
+- [37:12.720] and both sides have said only President Trump could do that.
+- [37:15.780] Ms. Leavitt: Diana. The Press: Thank you.
+- [37:17.060] And my question is for Mike Waltz.
+- [37:18.300] (Laughter.)
+- [37:19.500] MR. WALTZ: All right.
+- [37:21.260] The Press: The president has called Zelenskyy a dictator.
+- [37:23.810] Does he view Putin as a dictator?
+- [37:26.880] And does he want Zelenskyy out of power?
+- [37:29.880] I know he’s called for elections.
+- [37:32.210] And then, thirdly, the head of the Defense Committee
+- [37:34.950] in Ukraine’s parliament just has claimed that the U.S.
+- [37:38.320] has stopped selling weapons to Ukraine.
+- [37:40.430] Is that true?
+- [37:41.950] MR. WALTZ: Well, most of our weapons
+- [37:43.680] that have gone to Ukraine
+- [37:44.970] have been part of a drawdown authority,
+- [37:46.610] where we’ve literally taken them out of our stocks
+- [37:49.730] and then, eventually, through appropriations,
+- [37:51.890] started buying them again to refill our stocks.
+- [37:55.370] I’ll, you know, just state that there has been a lag
+- [37:58.350] in a lot of that process. So, many of our stocks,
+- [38:00.580] as we look at our operations around the world,
+- [38:03.820] are becoming more depleted.
+- [38:05.630] That’s one of the reasons many people
+- [38:07.680] have had a lot of concern about:
+- [38:09.860] When does this end? How much is it going to take?
+- [38:12.190] How many lives will be lost?
+- [38:13.830] How much will we be -- how much will we spend?
+- [38:16.550] As a member of Congress,
+- [38:17.980] we repeatedly asked the Biden administration those questions,
+- [38:20.630] and we never got a satisfactory answer.
+- [38:24.690] Look, President Trump is obviously very frustrated
+- [38:28.280] right now
+- [38:29.540] with President Zelenskyy -- the fact that --
+- [38:32.500] that he hasn’t come to the table,
+- [38:35.590] that he hasn’t been willing to take this opportunity
+- [38:38.830] that we have offered.
+- [38:40.180] I think he eventually will get to that point,
+- [38:43.430] and I hope so very quickly.
+- [38:45.320] But President Trump is --
+- [38:46.570] as we made clear to our Russian counterparts,
+- [38:49.000] and I want to make clear today --
+- [38:50.760] he’s focused on stopping the fighting and moving forward.
+- [38:54.050] And we could argue all day long
+- [38:55.640] about what’s happened in the past.
+- [38:57.090] Ms. Leavitt: Reagan.
+- [38:58.330] The Press: Thanks. I have a question for Stephen --
+- [38:59.530] (Cross-talk.)
+- [39:00.030] The Press: -- and a question for Mike.
+- [39:01.270] Ms. Leavitt: Excuse me, I just called on Reagan.
+- [39:02.530] Reagan, go ahead.
+- [39:03.770] The Press: I have a question for Stephen and a question for Mike.
+- [39:05.150] Ms. Leavitt: Sure.
+- [39:06.390] The Press: Stephen, I can start with you.
+- [39:07.600] There have been reports -- Mr. Miller: Thank you.
+- [39:09.270] The Press: -- that Trump is unhappy
+- [39:10.750] with the rate of deportations and he wants them to be higher.
+- [39:14.040] Is the president happy with the rate of deportations,
+- [39:16.820] and are there any plans to speed up the process?
+- [39:18.930] Mr. Miller: Well, first of all,
+- [39:20.320] we all appreciate the encouragement from the media
+- [39:23.030] to deport as many illegal aliens as humanly possible.
+- [39:25.550] So, thank you.
+- [39:26.770] And I will promise you that the full might
+- [39:30.040] of the Department of Homeland Security,
+- [39:31.790] the Department of Justice, the Department of Defense,
+- [39:34.670] and every element and instrument of national power
+- [39:37.500] will be used to remove,
+- [39:39.510] with speed, all criminal illegals
+- [39:42.420] from the soil of the United States of America,
+- [39:44.910] to enforce final removal orders,
+- [39:46.940] and to ensure that this country is for American citizens
+- [39:50.170] and those who legally belong in this country.
+- [39:52.730] We inherited an ICE that was completely shuttered.
+- [39:55.700] We inherited a Department of Homeland Security
+- [39:57.860] whose sole mission was to resettle illegal aliens
+- [40:00.990] within the United States of America.
+- [40:02.900] In 30 days, the president sealed the border shut,
+- [40:06.370] declared the cartels to be terrorist organizations,
+- [40:09.930] has increased ICE deportations to levels not seen in decades,
+- [40:14.240] and we are shortly on the verge of achieving a pace
+- [40:16.830] and speed of deportations this country has never before seen.
+- [40:19.740] Thank you.
+- [40:21.080] The Press: And Mike. MR. WALTZ: Mm-hmm.
+- [40:22.390] The Press: There have been reports
+- [40:23.630] that there’s some underground opposition
+- [40:25.620] to Trump’s pick for Undersecretary of Defense
+- [40:28.090] for Policy, Elbridge Colby.
+- [40:30.420] Have you or anyone from the administration
+- [40:32.440] been personally lobbying senators
+- [40:34.620] to support Elbridge Colby?
+- [40:38.090] MR. WALTZ: Look, I’ve worked with Bridge Co- --
+- [40:40.510] Colby in the past. He has the president’s full support
+- [40:45.240] to be the Undersecretary of policy,
+- [40:46.940] which will be a critical policy arm for Secretary Hegseth
+- [40:50.050] going forward that will implement
+- [40:51.900] a lot of these policies.
+- [40:53.730] And -- and really, that’s -- that’s been the extent of it.
+- [40:56.460] I think there’s been a lot of kind of, you know, breathless --
+- [41:00.440] I don’t know -- back-and-forth in the --
+- [41:03.260] in the press, but we’re full speed ahead
+- [41:05.840] to get the president’s team in place
+- [41:08.000] so we can implement his America First policy.
+- [41:09.710] Ms. Leavitt: Thank you.
+- [41:10.950] Mike has spoken pretty extensively.
+- [41:12.530] Does anybody have questions for Stephen or for Mr. Hassett?
+- [41:14.580] The Press: I do.
+- [41:15.820] Ms. Leavitt: Nobody wants to talk about the economy?
+- [41:17.200] (Laughter.) (Cross-talk.)
+- [41:18.470] Ms. Leavitt: Sure. The Press: IRS.
+- [41:19.670] Ms. Leavitt: IRS. Okay. Go ahead.
+- [41:20.900] The Press: And this would be for either one of you.
+- [41:22.540] So, we have reported, several other outlets
+- [41:25.520] have reported that about 3,500 people are due to be --
+- [41:31.090] lose their jobs at the IRS by the end of the week.
+- [41:33.760] If the goal of these spending cuts
+- [41:35.940] across the federal government has been to reduce the debt,
+- [41:39.230] why impose some of the deepest cuts we’ve seen
+- [41:41.370] so far at the agency responsible for raising revenue
+- [41:44.260] for the federal government?
+- [41:45.560] Mr. Hassett: Well, I think our objective is to make sure
+- [41:47.070] that the employees that we pay
+- [41:49.550] are being productive and effective.
+- [41:51.260] And there are many, many --
+- [41:53.820] more than 100,000 people working to collect taxes,
+- [41:56.800] and not all of them are fully occupied.
+- [41:58.480] And the Treasury secretary is studying the matter
+- [42:01.350] and feels like 3,500 is a small number
+- [42:04.420] and probably can get bigger,
+- [42:05.670] especially as we improve the IT at the IRS.
+- [42:09.160] And so -- so, I think that it’s absolutely something
+- [42:11.350] that is on the table for good reasons.
+- [42:12.970] And the point is that -- don’t just talk about the IRS.
+- [42:15.600] Talk about all of government, that there are so many places --
+- [42:18.860] I live in D.C.; you maybe live in D.C.
+- [42:20.670] -- where you never -- there -- nobody --
+- [42:21.980] nobody is going into the buildings.
+- [42:23.570] People aren’t commuting because nobody is doing their job.
+- [42:25.790] We look back and we see that there are all these people
+- [42:27.480] doing two jobs while they’re getting a government payroll --
+- [42:29.420] on the payroll.
+- [42:30.660] So, the point is, we’re fixing that,
+- [42:32.360] and the IRS is a small part of that picture.
+- [42:34.500] The Press: So, you’re saying that everybody
+- [42:35.820] who’s being let go was doing a bad job?
+- [42:39.450] Mr. Hassett: I’m saying that we’re studying every agency
+- [42:42.090] and deciding who to let go and why,
+- [42:43.820] and we’re doing so very rationally
+- [42:45.530] with a lot of support from analysis.
+- [42:48.230] The Press: Because we’re being told by a lot of people
+- [42:50.000] who have been let go at other agencies
+- [42:52.230] that they were told they were being dismissed
+- [42:54.450] because of poor performance, when, in some cases,
+- [42:57.120] they haven’t even had a performance review yet
+- [42:59.000] because they’ve only been on the job a couple of months.
+- [43:01.250] Mr. Hassett: Yeah, I’ve never seen a person
+- [43:02.450] who was laid off for poor performance say
+- [43:05.510] that they were performing poorly.
+- [43:07.000] (Laughter.) Okay?
+- [43:08.350] The Press: Karoline.
+- [43:09.580] Ms. Leavitt: Good point. Sure, Kaitlan.
+- [43:10.810] The Press: I have a question. I’ll start with you,
+- [43:12.060] Kevin Hassett. Thank you for being here.
+- [43:13.470] And then I’ve got a question for Mr. Waltz.
+- [43:15.630] On these potential checks that you might send out from DOGE,
+- [43:18.290] is there a concern, as you’re thinking through this,
+- [43:20.280] that they could be inflationary?
+- [43:22.350] Mr. Hassett: Oh, absolutely not, because imagine
+- [43:24.380] if we don’t spend government money
+- [43:26.490] and we give it back to people, then the --
+- [43:28.430] you know, if they spend it all, then you’re even.
+- [43:30.160] But they’re probably going to save a lot of it,
+- [43:31.560] in which case, you’re reducing inflation.
+- [43:32.880] The Press: Okay. So, you’re not --
+- [43:34.160] Mr. Hassett: And also, when the government spends a lot,
+- [43:35.390] that’s what creates inflation. We learned that from Joe Biden.
+- [43:37.590] And so, if we reduce government spending,
+- [43:39.030] then that’s -- you know, reduces inflation.
+- [43:41.140] And if you give people money,
+- [43:42.620] then they’re going to save a bunch of it.
+- [43:43.940] And -- and when they save it,
+- [43:45.230] then that also reduces demand and reduces inflation.
+- [43:47.170] The Press: Okay. So, you’re not worried about it.
+- [43:48.550] Mr. Hassett: No, I’m not. The Press: And, Mr. Waltz,
+- [43:49.790] to follow up on Peter’s question,
+- [43:51.080] you wrote in an op-ed in the fall of 2023 that, quote,
+- [43:53.750] “Putin is to blame, certainly, like al Qaeda
+- [43:55.410] was to blame for 9/11.”
+- [43:56.640] MR. WALTZ: Mm-hmm.
+- [43:57.850] The Press: Do you still feel that way now,
+- [43:59.070] or do you share the president’s assessment,
+- [44:01.180] as he says Ukraine is to blame for the start of this war?
+- [44:03.520] MR. WALTZ: Well, it shouldn’t surprise you
+- [44:04.800] that I share the president’s assessment
+- [44:07.200] on all kinds of issues.
+- [44:08.810] What I wrote as a Member of Congress is --
+- [44:11.130] was as a former Member of Congress.
+- [44:12.920] Look, what I share the president’s assessment on
+- [44:15.770] is that the war has to end. And what comes with that?
+- [44:19.850] What comes with that should be, at some point, elections.
+- [44:23.460] What comes with that should be peace.
+- [44:25.510] What comes with that is prosperity
+- [44:27.100] that we’ve just offered in this natural resources
+- [44:30.100] and economic partnership arrangement:
+- [44:32.890] an end to the killing and European security
+- [44:36.960] and security for the world.
+- [44:38.560] The President is not only determined to do that in Europe,
+- [44:42.050] he’s determined to do it in the Middle East.
+- [44:44.470] And just a few months ago,
+- [44:46.150] we had an administration that had tried for 15 months,
+- [44:50.090] week after week, sitting with you here,
+- [44:52.110] and couldn’t get us to a ceasefire,
+- [44:53.730] couldn’t get our hostages out. Now we’re at that point.
+- [44:56.760] We’re back to the maximum pressure on Iran.
+- [44:59.640] And we will -- we have just begun,
+- [45:02.370] and we will drive towards a ceasefire
+- [45:04.810] and all of those other steps. I’m not going to pre-negotiate
+- [45:07.330] or get ahead of the sequencing of all of that.
+- [45:10.610] It’s a very delicate situation.
+- [45:12.460] But this is a president of peace.
+- [45:14.150] And who here would argue against peace?
+- [45:15.720] The Press: Okay.
+- [45:16.920] So, you do share that assessment.
+- [45:18.120] And can I follow up. In 2017 --
+- [45:19.330] Ms. Leavitt: No. Go ahead, Jordan.
+- [45:19.890] The Press: -- then- President Trump --
+- [45:20.680] Ms. Leavitt: Go ahead, Jordan.
+- [45:21.090] The Press: Can I just follow up really quickly?
+- [45:21.970] The Press: Thank you. So --
+- [45:22.360] Ms. Leavitt: You just had two questions, Kaitlan.
+- [45:23.180] The Press: May I -- can I just --
+- [45:23.660] Ms. Leavitt: Jordan, go ahead.
+- [45:24.060] The Press: Mr. -- Mr. Hassett -- Ms. Leavitt: Thank you.
+- [45:25.030] The Press: I have an important follow-up for Mike Waltz.
+- [45:26.270] Ms. Leavitt: Jordan, go ahead. Go ahead.
+- [45:27.510] The Press: So, Mr. Hassett,
+- [45:28.730] you were speaking about tariff revenue,
+- [45:30.750] and you also addressed a question about the R- -- IRS.
+- [45:33.870] President Trump has spoken
+- [45:35.150] about replacing income tax with tariff revenue,
+- [45:38.460] especially with all this waste, fraud, and abuse
+- [45:40.380] that we’re seeing cut. Is that a possibility?
+- [45:42.460] Mr. Hassett: Absolutely.
+- [45:43.780] And, in fact, if you think about the China tariff revenue
+- [45:47.060] that we’re estimating is coming in from the 10 percent
+- [45:50.390] that we just added, plus the de minimis thing,
+- [45:53.870] that it’s between $500 billion
+- [45:55.400] and a trillion dollars over 10 years, is our estimate.
+- [45:58.790] And that’s something that is outside of the reductions
+- [46:01.190] that markets are seeing through the negotiations up on the Hill.
+- [46:04.590] And so, we expect that the tariff revenue
+- [46:06.680] is actually going to make it much easier
+- [46:08.070] for Republicans to pass a bill,
+- [46:09.430] and that was the President’s plan all along.
+- [46:10.880] Thank you.
+- [46:12.100] The Press: And I -- I have a question
+- [46:13.310] for Stephen Miller about DOGE. So, you -- you spoke about DOGE.
+- [46:17.890] You said roughly $50 billion is set to be cut in a year
+- [46:22.880] of waste, fraud, and abuse by unelected bureaucrats.
+- [46:26.200] We’re hearing this ironic narrative
+- [46:27.630] from the President’s critics and the left-wing media
+- [46:30.020] that Elon Musk is an unelected bureaucrat,
+- [46:32.810] and he’s doing all this terrible stuff.
+- [46:34.640] Isn’t one of DOGE’s objectives to get --
+- [46:38.070] get rid of the federal bureaucracy, the --
+- [46:39.740] the deep state?
+- [46:40.950] And also, who was running the White House
+- [46:43.340] when Joe Biden was in office -- Mr. Miller: (Laughs.)
+- [46:44.860] The Press: -- because I don’t know a single person
+- [46:46.230] who believes it was Joe Biden?
+- [46:47.470] Mr. Miller: Yes.
+- [46:48.670] You’re -- you’re tempting me to say -- (laughs)
+- [46:51.240] -- some very harsh things about some of our media friends.
+- [46:54.610] The -- yes, it is true that many of the people in this room,
+- [46:58.060] for four years, failed to cover the fact
+- [47:00.280] that Joe Biden was mentally incompetent
+- [47:04.100] and was not running the country.
+- [47:06.040] It is also true that many people in this room
+- [47:08.670] who have used this talking point
+- [47:10.400] that Elon is not elected fail to understand how government works.
+- [47:14.790] So, I’m glad for the opportunity for a brief civics lesson.
+- [47:18.030] A president is elected by the whole American people.
+- [47:20.520] He’s the only official in the entire government
+- [47:23.500] that is elected by the entire nation.
+- [47:25.790] Right? Judges are appointed.
+- [47:27.920] Members of Congress are elected at the district or state level.
+- [47:29.930] Just one man.
+- [47:31.160] And the Constitution, Article Two, has a clause,
+- [47:33.690] known as the vesting clause, and it says,
+- [47:35.230] “The executive power shall be vested in a president,”
+- [47:38.520] singular. The whole will of democracy
+- [47:42.020] is imbued into the elected president.
+- [47:44.920] That president then appoints staff to then impose
+- [47:48.370] that democratic will onto the government.
+- [47:51.580] The threat to democracy -- indeed,
+- [47:53.260] the existential threat to democracy --
+- [47:55.480] is the unelected bureaucracy of lifetime,
+- [47:58.350] tenured civil servants who believe they answer to no one,
+- [48:02.170] who believe they can do whatever they want without consequence,
+- [48:05.150] who believe they can set their own agenda
+- [48:07.410] no matter what Americans vote for.
+- [48:09.180] So, Americans vote for radical FBI reform,
+- [48:11.960] and FBI agents say they don’t want to change.
+- [48:14.000] Or Americans vote for radical reform in our energy policies,
+- [48:16.850] but EPA bureaucrats say they don’t want to change.
+- [48:19.480] Or Americans vote to end DEI -- racist DEI policies,
+- [48:23.980] and lawyers in the Department of Justice
+- [48:25.740] say they don’t want to change.
+- [48:27.540] What President Trump is doing
+- [48:29.710] is he is removing federal bureaucrats
+- [48:32.740] who are defying democracy
+- [48:34.830] by failing to implement his lawful orders,
+- [48:38.450] which are the will of the whole American people.
+- [48:41.040] Thank you.
+- [48:42.270] The Press: Thanks, Stephen. Can I follow up?
+- [48:43.590] The Press: Karoline.
+- [48:43.930] Ms. Leavitt: Thank you very much, everybody.
+- [48:45.140] I’m looking at the clock.
+- [48:46.380] We’ve almost had an hour of time.
+- [48:47.600] (Cross-talk.)
+- [48:48.100] LEAVITT: I know a couple of these individuals
+- [48:49.680] have a meeting to get to at 2:00 p.m.
+- [48:51.240] So, you’re welcome to follow up with my team
+- [48:53.800] for further questions. We’re going to let these guys
+- [48:56.090] get back to running the United States government.
+- [48:58.400] And we will see you all later.
+- [48:59.700] President Trump will be speaking at 3 o’clock
+- [49:01.300] at the Black History Month reception.
+- [49:02.540] So, thank you. It’s good to see you.
+- [49:03.770] We’ll see you in a bit. Thanks.
+- [49:05.050] The Press: Are you going to
+- [49:06.300] the Black History Month reception, Mr. Miller?
+- [49:07.720] The Press: Stephen, on the fraud.
+- [49:08.970] Should we expect indictments?
+- [49:10.170] The Press: What is your reaction to Mitch McConnell’s retirement?
+- [49:11.460] The Press: Are there indictments coming for all the fraud
+- [49:12.680] we’ve found?
+- [49:13.120] Mr. Miller: I’d love to follow up with you.
+- [49:14.330] Just set up a time with Karoline.
+- [49:15.560] The Press: Okay. Thank you.

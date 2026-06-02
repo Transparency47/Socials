@@ -1,0 +1,790 @@
+<!-- source: https://www.youtube.com/watch?v=VMbwTw8gyj4 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: VMbwTw8gyj4 -->
+<!-- date_published: 2025-05-15T16:37:00+00:00 -->
+<!-- date_accessed: 2026-06-02T02:50:01.628249+00:00 -->
+
+# Transcript: Vice President JD Vance Delivers Remarks at the Annual National Peace Officers’ Memorial Service
+
+- [00:06.780] [Music]
+- [00:10.800] At the
+- [00:12.120] twilight
+- [00:16.199] last stripes and bright
+- [00:20.600] stars through the
+- [00:23.880] perilous
+- [00:25.880] fight over the empire
+- [00:29.070] [Music]
+- [00:31.000] We were
+- [00:33.150] [Music]
+- [00:37.239] together and the
+- [00:39.120] [Music]
+- [00:41.719] rock the
+- [00:45.160] bursting in
+- [00:47.559] air gave proof through the
+- [00:53.079] night that our flag was still there.
+- [00:59.680] Oh, say does that star
+- [01:06.760] spangled yet
+- [01:11.400] wave or the
+- [01:13.799] land of the
+- [01:17.400] free and the
+- [01:20.119] home of
+- [01:22.840] the
+- [01:26.680] brave colors. Right shoulder
+- [01:31.479] hose. Ready. Cut. Colors. Honor guard.
+- [01:42.600] Order. Ready. Cut. Har.
+- [01:55.610] [Music]
+- [01:57.200] Ladies and gentlemen, please welcome the
+- [01:59.600] vice president of the United States, JD
+- [02:01.920] Vance, and the second lady, Usha Vance.
+- [02:05.439] Colors, honor guard,
+- [02:08.280] ahead. Colors, right
+- [02:13.239] shoulder, ready, cut, colors, honor
+- [02:16.480] guard, raise it.
+- [03:00.239] All right.
+- [03:25.640] colors. Right
+- [03:29.720] shoulder. Ready. Cut. Colors. Honor
+- [03:33.440] guard. Order
+- [03:38.030] [Applause]
+- [03:39.920] with the effective elements. Ready,
+- [03:45.959] face. Rick Schneider, chaplain of the
+- [03:48.319] National Fraternal Order of Police, will
+- [03:49.760] now deliver an
+- [03:58.040] invocation. Honor guard colors. Parade
+- [04:01.280] rest.
+- [04:07.120] With these words of prayer, let us now
+- [04:09.720] rise and raise our eyes and our hearts
+- [04:12.799] to
+- [04:14.360] heaven. Father God, we invite you into
+- [04:18.000] this time of remembrance, reflection,
+- [04:20.880] and
+- [04:22.040] recommittal. Father, the hour has come.
+- [04:26.160] We thank you for receiving the souls of
+- [04:28.320] the ones we honor today. May your son
+- [04:31.680] whom you glorified through the ultimate
+- [04:34.440] sacrifice be glorified here too amongst
+- [04:37.360] these sons and sisters of
+- [04:40.520] sacrifice whose names we gather before
+- [04:43.440] this altar of supreme
+- [04:46.199] sacrifice as you gave them authority to
+- [04:49.040] uphold your commandments and to protect
+- [04:52.400] the rights that come only from you.
+- [04:55.280] Grant these your faithful fallen with
+- [04:58.400] eternal life that you have given him
+- [05:01.360] whom you have sent as our prince of
+- [05:04.919] peace. May you, Lord, the one true God,
+- [05:08.880] be glorified here on earth, even in this
+- [05:12.199] moment and especially in this place. As
+- [05:16.639] our nation pauses, we stand alongside
+- [05:20.000] our vice president of the United States
+- [05:22.320] of America and we declare these makers
+- [05:25.840] and protectors of peace have finished
+- [05:28.800] their work which you gave them to do.
+- [05:32.960] They were obedient to your call. So now,
+- [05:36.400] Lord, bless them and their families with
+- [05:38.639] your peace which surpasses all
+- [05:40.919] understanding and with your glory which
+- [05:43.440] came before the world was. May you now
+- [05:46.880] manifest your name before us in your
+- [05:49.280] return for all those given out of this
+- [05:52.240] world. They were yours. They were given
+- [05:55.600] in your name. And they kept your word by
+- [05:59.440] showing a love no greater than this than
+- [06:01.600] one who would lay down their life for a
+- [06:04.400] friend. Yes, the grass we walk upon
+- [06:07.199] today will surely wither and the flowers
+- [06:10.240] we place today will surely fade. But
+- [06:13.680] your word, God, stands forever and ever.
+- [06:18.240] Yes, we pray all of this in the name of
+- [06:20.240] the father, son, and holy spirit. Yes, I
+- [06:23.120] pray in the name of Jesus our Christ.
+- [06:26.560] Amen.
+- [06:32.160] Please be seated.
+- [06:42.560] Good afternoon. My name is Patrick Yo
+- [06:45.360] and I have the honor of serving as
+- [06:46.800] national president of Fraternal Alter
+- [06:48.479] Police. On behalf of our National Board
+- [06:50.639] of Trustees and our more than 380,000
+- [06:52.800] members nationwide, I want to extend a
+- [06:55.199] heartfelt welcome to our survivors, law
+- [06:57.919] enforcement families, fellow officers,
+- [07:00.560] and distinguished guests that have
+- [07:01.919] joined us here today for the 44th annual
+- [07:04.160] National Peace Officers Memorial
+- [07:05.720] Service. Also want to acknowledge those
+- [07:08.000] that are watching across the country on
+- [07:09.520] YouTube live and on C-SPAN. And thank
+- [07:11.919] you for taking time to honor our fallen
+- [07:14.319] with us. This service began in 1982 by a
+- [07:18.160] small group of people of meeting meaning
+- [07:20.160] who met and had a meaningful gathering
+- [07:22.400] not far from here at Senate Park to my
+- [07:24.680] right. There were law enforcement
+- [07:26.720] supporters. There were survivors. There
+- [07:28.319] were paternal order police members and
+- [07:30.000] there were boy scout troops that stopped
+- [07:31.520] by and became part of that. There were a
+- [07:34.639] total of about a hundred people that
+- [07:36.080] participated in that state memorial
+- [07:37.599] service. Today it stands as a solemn
+- [07:40.160] cornerstone of what we now know is
+- [07:42.639] police week. It's a time where tens of
+- [07:44.720] thousands come to the nation's capital
+- [07:47.280] and honor the fallen and their families
+- [07:49.759] that are left behind.
+- [07:52.000] As we gather here on the west front of
+- [07:53.599] the United States capital, we do so to
+- [07:55.680] ensure that the sacrifice of our fallen
+- [07:58.160] brothers and sisters is never forgotten.
+- [08:00.400] At this time, I would like to to
+- [08:02.400] introduce the distinguished guests that
+- [08:04.400] have joined us here on the stage.
+- [08:06.319] Beginning in my far right, please
+- [08:08.400] welcome the Senate Sergeant-at-Arms
+- [08:09.840] Jennifer Hemingway and Lorie Sharp Day,
+- [08:12.240] chairman of the National Law Enforcement
+- [08:13.680] Officers Memorial Fund, Thomas Austin,
+- [08:16.800] the Architect of the United States
+- [08:18.240] Capital, and a national president of the
+- [08:20.639] concerns of police survivors, Connie
+- [08:23.240] Moyer. Two of our most steadfast allies,
+- [08:26.080] the general president of International
+- [08:28.080] Association of Firefighters, Ed Kelly,
+- [08:30.080] and the president of International
+- [08:31.440] Association of Chiefs of Police, Ken
+- [08:32.880] Walker, are also here with us today.
+- [08:35.599] Ryan Burchnell is here with representing
+- [08:38.159] FirstNet built by AT&T which is a major
+- [08:40.479] sponsor of of the Fraternal Order Police
+- [08:42.399] and this event. Please welcome Mike
+- [08:45.720] Patella, acting director of the United
+- [08:48.080] States Marshall Service and William
+- [08:50.160] Mcool, special agent in charge of Secret
+- [08:53.040] Service Washington DC field office.
+- [08:56.320] I want to thank the chief of our host
+- [08:58.160] agency, Chief Don Tom Major of the
+- [09:00.800] United States Capital Police for all he
+- [09:02.880] and his agency do every year for this
+- [09:04.959] memorial service. And chief, thank you
+- [09:06.880] for being here and thank you. Thank you
+- [09:08.560] for your years of service and we wish
+- [09:09.920] you the very well, very best in your
+- [09:12.920] retirement. Glenda Layman, national
+- [09:15.120] president of Fraternal Water Police
+- [09:16.399] Auxiliary is here and she will be
+- [09:18.480] welcoming you in moments in a few
+- [09:21.360] moments. Turning now to my far left,
+- [09:23.680] please welcome the House
+- [09:24.560] Sergeant-at-Arms, William McFarland, and
+- [09:26.480] acting director of COP's office, Corey
+- [09:29.399] Randolph. We're grateful to have with us
+- [09:31.680] Mike Wagers of Axon, one of our
+- [09:33.839] steadfast corporate sports sponsors.
+- [09:36.160] It's good to have you here again, Mike.
+- [09:38.640] Please welcome acting DEA administrator
+- [09:41.360] Robert Murphy, and Tom Lion, acting
+- [09:44.399] director of the United States
+- [09:45.519] Immigration and Customs Enforcement.
+- [09:48.480] We also want to welcome US borders are
+- [09:51.360] Tom
+- [09:52.360] Holman as well as our friend FBI
+- [09:55.040] Director Cash
+- [09:56.360] Patel. We're also proud to have with us
+- [09:58.959] our nation's top cop, US Attorney
+- [10:01.360] General Pam Bondi. We're grateful for
+- [10:03.120] her leadership and for being here with
+- [10:04.720] us today. And finally, it is our
+- [10:07.519] privilege to have with us our nation's
+- [10:09.680] second lady Vance and our keynote
+- [10:12.160] speaker J. D. Vance, Vice President of
+- [10:13.680] the United States, of who I'll introduce
+- [10:15.839] shortly.
+- [10:17.920] Thank you all for for
+- [10:19.959] attending. Vice President Vance, General
+- [10:22.519] Bondi, distinguished guests, members of
+- [10:24.800] Congress, law enforcement leaders,
+- [10:26.720] survivors, and f and friends. Thank you
+- [10:29.519] for joining us today as we honor the
+- [10:30.959] courage in the memory of our fallen
+- [10:32.959] heroes who gave their last full measure
+- [10:34.800] in the service of others. Each year we
+- [10:37.519] gather on this sacred ground to reflect,
+- [10:39.760] to grieve, and to celebrate the lives of
+- [10:41.920] those who answered the call to serve,
+- [10:43.839] knowing full well that that might one
+- [10:46.959] day asked be save be asked to give
+- [10:49.760] everything in the defense of their
+- [10:51.480] communities. Law enforcement is not a
+- [10:53.600] simple job. It's a calling. It's a hard
+- [10:56.399] purpose. It's a choice to stand between
+- [10:58.800] good and evil, between danger and
+- [11:00.959] safety, and between order and chaos. Our
+- [11:03.920] brothers and sisters we remember today
+- [11:05.519] made that choice willingly. They wore a
+- [11:07.839] badge not for recognition or reward, but
+- [11:10.000] because they believed in something
+- [11:11.279] greater than themselves. They believed
+- [11:13.120] in justice, in duty, in service. They
+- [11:16.880] kissed their loved ones goodbye, not
+- [11:18.399] knowing if they would return home at the
+- [11:19.920] end of their shifts, and far too many
+- [11:21.680] did not. We gather here not only to
+- [11:24.320] mourn their loss, but to ensure that
+- [11:26.079] their names, their stories, and their
+- [11:28.160] sacrifice is never forgotten. They're
+- [11:30.720] not statistics. They're not headlines.
+- [11:32.880] They are mothers and fathers, sons,
+- [11:34.720] daughters, husbands, wives, partners,
+- [11:36.959] and friends. And behind each name,
+- [11:39.360] etched in stone, sits a white chair.
+- [11:42.640] These white chairs before us represent
+- [11:44.399] far more than just a place to sit. They
+- [11:46.720] represent families forever changed,
+- [11:48.880] dreams interrupted, empty seats at
+- [11:51.120] dinner tables, and milestones that will
+- [11:53.040] be missed. To our survivors, your
+- [11:55.920] strength inspires us. Your grief humbles
+- [11:58.480] us and your presence here today reminds
+- [12:00.560] us all that the sacrifice of this
+- [12:02.480] profession is never made alone. You
+- [12:05.600] carry a burden that no one should bear.
+- [12:08.079] But you also carry forward forward a
+- [12:10.399] legacy of those we honor by sharing
+- [12:12.639] their stories by living with courage and
+- [12:15.680] by reminding the world who your loved
+- [12:17.920] ones are and what they stood for. Today
+- [12:20.800] and every day we are with you for we
+- [12:23.440] never let our surviving families walk
+- [12:25.240] alone. As officers, we know the risk,
+- [12:28.560] but we lace up our boots each day with
+- [12:30.800] the same resolve to protect, to serve,
+- [12:33.360] and to defend. And while the job takes
+- [12:36.320] much from us, we find purpose in knowing
+- [12:38.560] that we're making our community safer
+- [12:40.320] and our nation stronger. Let us continue
+- [12:42.880] to live lives worthy of the sacrifice
+- [12:44.639] made by our fallen. Let us let us serve
+- [12:47.839] with integrity, love with intention, and
+- [12:50.800] never take each other for granted. As we
+- [12:53.440] remember these brave men and women, let
+- [12:55.360] their legacy be the light that guides
+- [12:57.040] our path forward. Let their sacrifice
+- [12:59.279] not be in vain, but the foundation upon
+- [13:01.760] which we build a safer and more united
+- [13:04.160] future. May God bless our fallen heroes.
+- [13:07.200] May he comfort their families, and may
+- [13:09.040] he continue to watch over the men and
+- [13:10.560] women law enforcement who stand in line
+- [13:12.720] each and every day. Thank you. I now ask
+- [13:15.920] Glendon, president, president of the
+- [13:17.839] National Fraternal Order Police
+- [13:18.959] Auxiliary, to welcome you to this
+- [13:20.399] memorial service.
+- [13:26.800] Good
+- [13:27.959] afternoon, Vice President
+- [13:31.639] Vance, esteemed guest, brothers and
+- [13:34.560] sisters of law enforcement, and families
+- [13:36.959] and friends of our fallen heroes.
+- [13:39.360] Welcome to the Fraternal Order of Police
+- [13:41.519] 44th annual Peace Officers Memorial
+- [13:43.920] Service. We gather with heavy hearts to
+- [13:47.360] honor the memory of our brothers and
+- [13:48.959] sisters, our heroes, but most
+- [13:51.880] importantly your loved ones who
+- [13:54.560] dedicated their lives to protect and
+- [13:56.720] serve their communities and who made the
+- [13:59.360] ultimate sacrifice in the line of
+- [14:01.560] duty. In 1962, President John F. Kennedy
+- [14:04.959] proclaimed May 15th as National Peace
+- [14:06.880] Officers Memorial Day and the week which
+- [14:09.199] in it falls as National Police Week. And
+- [14:12.320] every year during the month of May,
+- [14:14.000] cities and towns across this country
+- [14:15.839] celebrate National Police Week by
+- [14:17.600] hosting memorial services, tributes, and
+- [14:20.880] many other events that honor those law
+- [14:23.199] enforcement officers that lay down their
+- [14:25.440] lives to show support for the brave men
+- [14:28.079] and women still serving. And each year,
+- [14:30.880] thousands of law enforcement and their
+- [14:32.560] families travel here to Washington, DC,
+- [14:35.680] where we gather on the west lawn of the
+- [14:37.760] United States Capitol along with the
+- [14:39.839] leaders of our country and the leaders
+- [14:41.839] of law enforcement. And for those few
+- [14:44.560] short hours, our country's paws to pay
+- [14:48.160] tribute and to honor the memory and the
+- [14:50.720] sacrifice of those brave officers.
+- [14:54.000] The 232 brave law enforcement officers
+- [14:57.040] whose names will be read today are
+- [14:59.639] heroes. Heroes because they, like
+- [15:02.000] thousands of other law enforcement
+- [15:03.680] officers, were dedicated to the safety
+- [15:06.079] of others. Each day they put on a
+- [15:08.639] uniform and they pinned on a badge. And
+- [15:10.800] they left their homes and your homes and
+- [15:14.000] your families to protect our homes and
+- [15:16.480] our families, not knowing the challenges
+- [15:18.880] that they might face, not knowing what
+- [15:21.199] that next call may bring. Each of these
+- [15:24.240] brave souls answered a call greater than
+- [15:26.760] themselves. And in their service came
+- [15:29.199] great sacrifice. They sacrificed their
+- [15:32.240] safety for ours. We also recognize that
+- [15:36.079] you bear great s sacrifice. Those
+- [15:39.040] forever plans, those important
+- [15:41.720] milestones, those everyday moments that
+- [15:44.079] will be missed. While no words or
+- [15:46.480] actions may truly express our sorrow or
+- [15:48.880] lessen the sadness or easen your lessen
+- [15:52.000] the sense of your loss, know that we do
+- [15:54.639] grieve with you. The void that they
+- [15:57.120] leave behind is
+- [15:58.680] immeasurable. But so is the impact that
+- [16:01.279] they had on the countless lives they
+- [16:03.920] touched hearts and their legacy lives on
+- [16:06.720] in the lives that they protected and in
+- [16:09.199] the towns and the communities that they
+- [16:11.120] served.
+- [16:12.800] They showed us that being a hero is not
+- [16:14.800] about superhuman strength or superhuman
+- [16:18.079] feet.
+- [16:19.600] Being a hero is showing up every day and
+- [16:22.079] being ready to make a difference. These
+- [16:24.800] heroes made a difference. They made our
+- [16:27.440] world a little
+- [16:28.839] safer. I am humbled to stand before you
+- [16:31.360] today along with thousands of other law
+- [16:33.040] enforcement officers from across the
+- [16:34.759] country. Not only to acknowledge these
+- [16:36.959] heroes, but also to support you.
+- [16:39.920] There are things that death cannot
+- [16:41.800] touch. Your love for your officer, your
+- [16:45.199] memory for your officer, those things
+- [16:47.759] will live on
+- [16:49.000] forever. Know that your loved ones have
+- [16:51.120] left a mark on our country and our
+- [16:52.639] hearts and your loved ones sacrifice
+- [16:54.800] will never be forgotten. Be assured that
+- [16:57.519] the men and women of the Fraternal Order
+- [16:59.120] of Police and the Fraternal Order of
+- [17:01.199] Police Auxiliary are here to support you
+- [17:03.600] and we hope that today's service will
+- [17:05.520] bring you comfort. On behalf of the law
+- [17:08.240] enforcement families everywhere, we
+- [17:09.919] extend our heartfelt condolences and to
+- [17:12.720] our fallen. We honor you. We remember
+- [17:15.760] you and your legacy will endure forever
+- [17:18.240] in our hearts. To those who continue to
+- [17:20.880] serve, we support you. We thank you for
+- [17:23.360] your unwavering commitment to our
+- [17:25.120] safety. And we will continue to pray for
+- [17:27.439] your safety.
+- [17:29.919] To the families and the friends and the
+- [17:32.760] co-workers here today, know that the
+- [17:35.679] members of the Fraternal Order of Police
+- [17:37.640] Auxiliary extend our unending support.
+- [17:40.799] We pledge to never let you walk alone.
+- [17:43.280] May God bless you and keep
+- [17:52.600] you. President Donald Trump wanted to be
+- [17:55.440] with us today, but his responsibilities
+- [17:57.120] have taken him overseas. He has however
+- [17:59.440] recorded video tribute and like to play
+- [18:01.600] that now.
+- [18:05.840] A very special hello to all of the law
+- [18:08.480] enforcement heroes, family members, and
+- [18:10.799] friends of our police who have come to
+- [18:13.360] the nation's capital this week to honor
+- [18:15.440] our brave men and women in blue. Every
+- [18:17.840] day, countless thousands of courageous
+- [18:20.240] officers, sheriffs, sheriffs, deputies,
+- [18:22.320] troopers, and federal agents risk their
+- [18:24.960] lives to protect our communities and
+- [18:27.120] keep America safe. They stand firm in
+- [18:30.080] the face of crisis and faithfully pursue
+- [18:32.640] justice. They are the thin blue line and
+- [18:36.320] it really is very special. It has to do
+- [18:38.720] with a thing called civilization and
+- [18:40.840] chaos. And we love them. We respect them
+- [18:43.919] and we salute them and we thank them for
+- [18:46.720] their incredible big beautiful hearts.
+- [18:49.520] Today on Peace Officers Memorial Day, we
+- [18:52.240] especially honor those who have made the
+- [18:54.480] supreme sacrifice in defense of our
+- [18:56.760] laws. Last year, 147 officers gave their
+- [19:01.039] lives in the line of duty. That some
+- [19:03.360] high number so terrible, so terrible.
+- [19:07.039] They were some of the great and very
+- [19:08.880] best among us. We cherish their memories
+- [19:11.360] and we wrap our arms around the
+- [19:13.919] beautiful families that they left
+- [19:15.640] behind. We will honor their sacrifice
+- [19:18.799] for all time and their loved ones will
+- [19:21.120] always have our infinite gratitude and
+- [19:23.480] unyielding support. On my first day in
+- [19:26.480] office, I signed an executive order
+- [19:28.400] directing Department of Justice to seek
+- [19:30.960] the death penalty for any criminal who
+- [19:33.200] murders a police officer. And it was my
+- [19:36.320] wonderful honor to do it. I want every
+- [19:39.039] law enforcement officer across the
+- [19:40.880] country to know that you have a
+- [19:42.720] president who will always have your
+- [19:45.280] back. So, thank you once again for what
+- [19:48.640] you do for our country. You are our
+- [19:50.559] great people. Great, great people. God
+- [19:53.840] bless our police officers and God bless
+- [19:56.559] America.
+- [20:04.400] President Trump asked that I share with
+- [20:06.160] you that tonight at nightfall, the White
+- [20:08.880] House will be illuminated in blue in
+- [20:10.480] honor of our
+- [20:16.919] fallen. On this solemn day of
+- [20:19.160] remembrance, it's an honor to welcome
+- [20:21.360] our keynote speaker, J. D. Vance, Vice
+- [20:23.440] President of the United States. During
+- [20:25.360] his time in the United States Senate and
+- [20:27.520] now as the Vice President of the United
+- [20:29.280] States, he has been a relentless
+- [20:30.880] advocate for the men and women who wear
+- [20:32.480] a badge. Please join me in welcoming the
+- [20:34.720] Vice President of the United States, J.
+- [20:36.400] D.
+- [20:49.320] Vance. Thank
+- [20:52.840] you. Thank you all. Please. I know it's
+- [20:55.840] uh I know it's a warm day in Washington,
+- [20:58.240] but we could have got a lot worse
+- [20:59.679] weather in midday in Washington DC. So,
+- [21:02.480] we're honored to have you. We're
+- [21:04.000] honored. I'm honored personally to be
+- [21:06.240] able to join you today. And I know from
+- [21:08.880] the entire Trump administration, the
+- [21:10.799] president who we heard earlier is
+- [21:12.480] overseas to this great team behind us.
+- [21:15.120] We are proud to stand behind the men and
+- [21:17.600] women in blue and we will keep on doing
+- [21:19.520] it every day for the next three and a
+- [21:21.120] half years. God bless you.
+- [21:27.919] Now, I want to express my gratitude to
+- [21:30.480] all of this services organizers,
+- [21:32.559] including, of course, the president of
+- [21:34.799] the Fraternal Order of Police, Patrick
+- [21:36.880] Yos, and its executive director, Jim
+- [21:39.520] Pasco. Thank you guys.
+- [21:45.440] I want to thank Glenda Layman, president
+- [21:47.280] of the National FOP Auxili Auxiliary
+- [21:49.760] Board. Thank you, Linda. And the work
+- [21:52.159] that you all do that everyone here does
+- [21:54.960] to advocate on behalf of men and women
+- [21:57.360] in blue around our country is vital. You
+- [22:01.360] fight for law enforcement officers and
+- [22:03.600] their families. You help foster warm
+- [22:06.640] relations between the communities that
+- [22:09.600] law enforcement serves and the police
+- [22:11.840] officers who wear the badge. And most
+- [22:14.480] importantly, you make sure our great
+- [22:16.640] officers get the dignity and respect
+- [22:19.360] they deserve, including from people in
+- [22:22.240] power. You hold the people in this
+- [22:24.480] building account to account, and you
+- [22:26.960] make sure they stand up for the men and
+- [22:28.400] women in blue. Thank you.
+- [22:35.440] Now, one of our administration's
+- [22:37.039] greatest goals is to give the American
+- [22:39.679] people a renewed sense of ownership over
+- [22:43.679] their own country, ownership over their
+- [22:46.880] homes, over their neighborhoods, and
+- [22:49.360] over their city streets. But none of
+- [22:51.840] that would be possible if we don't have
+- [22:54.320] a functional system of law or the means
+- [22:57.360] to enforce it. Law is the root of
+- [23:01.200] ordered liberty in the United States. It
+- [23:03.360] is the foundation of a peaceful society.
+- [23:06.880] A nation of laws gives certainty to its
+- [23:10.280] citizens. It enables them to participate
+- [23:13.200] in civic life, to work and raise
+- [23:16.080] families, to build a business, all with
+- [23:18.720] the assurance that they have a
+- [23:21.039] consistent and dependable legal system
+- [23:23.679] that will keep them safe as they work
+- [23:26.080] every day to realize their dreams.
+- [23:28.880] But a society that fails to enforce its
+- [23:32.240] own rules or that chooses to do so
+- [23:35.320] haphazardly can make no such promises to
+- [23:38.080] its people. And over the last few years,
+- [23:41.280] too many Americans saw exactly what that
+- [23:43.840] looks like. City blocks in flames,
+- [23:47.440] storefront windows shattered. Countless
+- [23:50.640] citizens made victims to random crime
+- [23:53.840] and mob violence. In America, we honor
+- [23:58.240] the men and women who recognize the
+- [24:00.880] value of a peaceful, orderly society and
+- [24:04.640] who have chosen to devote their lives to
+- [24:07.280] preserving, as the president said, that
+- [24:10.000] fragile barrier between civilization and
+- [24:13.559] chaos. And today, of course, we mourn
+- [24:16.799] those who made the ultimate sacrifice in
+- [24:20.159] the line of that duty.
+- [24:22.640] These men and women chose their careers
+- [24:24.960] not for enrichment or
+- [24:27.400] self-exaltation. And as you all know,
+- [24:29.440] not because it pays better than every
+- [24:30.960] job on earth, but for the unshakable
+- [24:33.520] belief that we have a civilization that
+- [24:35.919] is worth defending. They woke up each
+- [24:39.120] and every morning. They put on their
+- [24:41.120] uniforms. They said goodbye to their
+- [24:43.120] loved ones. And they stepped into the
+- [24:45.880] unknown. They ran toward danger when
+- [24:48.960] others would flee. They didn't hesitate.
+- [24:52.880] They didn't waver. They stood tall when
+- [24:56.000] others could not. Those officers upheld
+- [24:59.840] the rule of law. They fought for that
+- [25:02.559] line between civilization and chaos so
+- [25:06.000] that freedom could remain more than a
+- [25:08.159] promise. It could be the reality of
+- [25:10.559] daytoday life in this country, the
+- [25:13.039] foundation of our prosperity and the
+- [25:15.200] foundation of American greatness.
+- [25:18.400] And we gather today, all of us, in debt
+- [25:21.120] to these fallen officers, united in
+- [25:23.440] grief and united in
+- [25:25.880] gratitude. We mourn their
+- [25:28.279] sacrifice, their
+- [25:30.120] heroism, their courage and compulsion to
+- [25:33.039] protect, which extended well beyond
+- [25:35.360] their loved ones and across the entire
+- [25:37.960] communities they served.
+- [25:40.720] But above all, today we mourn the actual
+- [25:44.039] officers, the individual men and women
+- [25:47.760] who have been taken from us far too
+- [25:50.200] soon. We mourn officers like David Lee,
+- [25:53.760] an 18-year veteran of the St. Louis
+- [25:56.240] Metropolitan Police Department. Last
+- [25:59.240] September, Officer Lee was responding to
+- [26:01.919] a single car crash on Interstate 70, a
+- [26:04.720] highway I've driven a number of times.
+- [26:07.440] As he was retrieving traffic cones from
+- [26:09.440] his own vehicle, an illegal immigrant,
+- [26:12.400] speeding, and under the influence of
+- [26:14.360] alcohol, lost control of his car and
+- [26:17.360] struck Officer Lee. He was critically
+- [26:20.080] injured and passed away during
+- [26:22.600] surgery. He died as he lived, serving
+- [26:26.720] others tirelessly without fail. And he
+- [26:30.400] left behind a grieving wife and two
+- [26:32.799] beautiful children.
+- [26:34.720] We mourn officers like Fernando Escada,
+- [26:38.240] a deputy sheriff who had served the
+- [26:39.919] Houston area with the Harris County
+- [26:41.919] Sheriff's Office for 5 years now. After
+- [26:44.799] his department launched a manhunt
+- [26:46.720] against a suspect thought to have
+- [26:48.320] violently assaulted a nearby clerk,
+- [26:50.880] Deputy Escada sprang into action. His
+- [26:54.960] fellow detectives were able to narrow
+- [26:56.559] down an area of interest for the
+- [26:58.320] suspect's getaway vehicle. But unable to
+- [27:00.880] find the car, they ended up dropping the
+- [27:03.279] search. Yet, Deputy Escada returned to
+- [27:06.799] the spot and was able to make a positive
+- [27:09.039] ID on the vehicle. As he reported the
+- [27:11.919] news to his fellow fellow deputies, he
+- [27:14.640] was killed in a cowardly ambush attack.
+- [27:18.640] Deputy Escada was 28 years old. His life
+- [27:23.360] unfairly taken in his prime. but his
+- [27:26.159] funeral last July, as so many of you
+- [27:28.000] know, brought over a thousand community
+- [27:30.400] members to honor and respect that great
+- [27:33.039] fallen
+- [27:34.039] hero. And finally, we mourn officers
+- [27:38.000] like Hamilton County Special Deputy
+- [27:40.080] Sheriff Larry Henderson. Now, I realize
+- [27:42.799] this case occurred not in 2024, but more
+- [27:45.840] recently, not even two weeks ago, in
+- [27:47.520] fact. But the story hits especially
+- [27:49.679] close to home, because I am, of course,
+- [27:52.480] a person who calls Cincinnati my home.
+- [27:55.279] Deputy Henderson was an exemplary public
+- [27:57.279] servant to southwestern Ohio, the part
+- [27:59.760] of the country that made me who I am. He
+- [28:02.720] dedicated 33 years of his life to
+- [28:04.960] protecting the people of Hamilton
+- [28:06.480] County, Ohio. But even after having
+- [28:09.520] retired recently from the force, Deputy
+- [28:12.080] Henderson continued to step up and serve
+- [28:14.559] his community. While directing traffic
+- [28:17.039] near the University of Cincinnati during
+- [28:19.279] a commencement event, he was attacked
+- [28:21.760] and killed by a man he'd never even met.
+- [28:25.440] A man who we now know targeted Deputy
+- [28:28.720] Henderson simply because he was an
+- [28:31.120] officer of the law.
+- [28:33.279] Deputy Henderson devoted his career to
+- [28:35.840] protecting the lives of complete
+- [28:37.880] strangers only to have a complete
+- [28:40.399] stranger take his own. And it's a story
+- [28:43.120] all of you know too well and happens too
+- [28:45.600] often in our country. Now that case is
+- [28:48.480] now in the courts where I pray his
+- [28:50.880] family gets the swift justice that it
+- [28:53.120] deserves. But all of us here today pray
+- [28:56.480] for Deputy Henderson, Deputy Escada, for
+- [29:00.559] Officer Lee, and for the many other
+- [29:02.799] peace officers we recognize and honor
+- [29:05.360] here today. Their sacrifice was not in
+- [29:09.120] vain, but in the furtherance of the most
+- [29:11.679] noble ideals and most critical mission
+- [29:14.559] of our nation. They lay down their lives
+- [29:17.919] to defend safe homes, peaceful
+- [29:20.480] neighborhoods, and the quiet order that
+- [29:22.880] gives structure and decency to our great
+- [29:26.000] American society. And today, we pray as
+- [29:29.520] well for the families, the friends, and
+- [29:32.240] the other loved ones of every one of
+- [29:34.720] these officers, mourning even today
+- [29:37.200] people who were taken from us far too
+- [29:40.200] soon. Behind each of those officers
+- [29:42.840] badges was a beating heart. a family
+- [29:46.559] waiting to hear how the day went. A home
+- [29:49.600] left emptier and quieter and sadder than
+- [29:53.279] it should be. And I want to speak
+- [29:56.279] directly to all of those personally
+- [29:58.720] mourning here today. Your loss is our
+- [30:02.480] nation's loss. Your grief is our grief.
+- [30:07.679] Your heartbreak is our heartbreak. You
+- [30:11.039] all feel their absence with a depth and
+- [30:13.200] level of pain of course that I can't
+- [30:14.880] possibly begin to comprehend. But I'm
+- [30:18.159] here today to tell you that our
+- [30:19.840] administration and I believe the whole
+- [30:22.720] of the American community stands with
+- [30:25.200] you both as fellow citizens but also as
+- [30:29.240] beneficiaries of the ultimate sacrifice
+- [30:31.840] laid down by your loved ones. We love
+- [30:33.760] you and we're grateful to
+- [30:35.799] you. Their names will never be
+- [30:38.960] forgotten.
+- [30:40.240] nor will their heroic act of service
+- [30:42.320] which inspire our nation and fill us
+- [30:45.679] with great
+- [30:46.919] purpose. I hope you know how deeply our
+- [30:50.360] administration from President Trump on
+- [30:52.880] down care about them and care about you.
+- [30:57.200] Backing our nation's fallen officers as
+- [30:59.520] well as their families has been a
+- [31:01.760] consistent priority the president's
+- [31:04.159] whole life from when he was a real
+- [31:05.600] estate developer in New York to now when
+- [31:07.760] he's the president of the United States.
+- [31:10.399] The president and all of us, we love
+- [31:12.159] you. We care about you and we will do
+- [31:15.120] everything in our power to help you.
+- [31:18.159] It's why last month he took executive
+- [31:20.480] action to defend our nation's law
+- [31:22.080] enforcement officers, including by
+- [31:24.520] creating strong new legal protections
+- [31:27.200] and directing federal resources to
+- [31:29.279] improve training and pay. It's why our
+- [31:32.720] great attorney general here, the
+- [31:34.799] Department of Justice, is working even
+- [31:37.440] today with punishing state and local
+- [31:40.440] jurisdictions that restrict our peace
+- [31:43.039] officers ability to do their jobs and
+- [31:45.840] with pursuing the death penalty for
+- [31:47.760] criminals who murder our cops.
+- [31:59.840] And finally, it's why the president
+- [32:02.240] cares so deeply about the crisis we
+- [32:05.200] inherited at the border, about stopping
+- [32:07.760] the violent criminals, the cartels, and
+- [32:10.880] the culture of lawlessness that were
+- [32:13.519] allowed to pervade our nation for far
+- [32:15.760] too many years. And while we're talking
+- [32:19.039] about policy, I want to be clear about
+- [32:21.679] one last thing. The Trump administration
+- [32:25.039] has zero tolerance for anyone who
+- [32:28.240] threatens to defund, abolish, or
+- [32:31.200] otherwise diminish our law enforcement
+- [32:33.360] heroes.
+- [32:43.360] And I know that none of us here like
+- [32:46.279] crime, but last year in November, I
+- [32:50.080] think the American people killed the
+- [32:52.559] defund the police movement, and they
+- [32:55.200] used Donald J. Trump as the murder
+- [32:57.200] weapon. It is gone from this country,
+- [32:58.880] and we're never going to let it come
+- [33:00.000] back.
+- [33:08.480] And just as President Trump and the
+- [33:10.399] administration are filled with strong
+- [33:12.080] leaders, we have no tolerance for
+- [33:14.320] weak-willed municipal leaders who allow
+- [33:16.799] petty crime to take root all over our
+- [33:19.480] communities. We have no tolerance for
+- [33:22.240] people who defy our immigration laws or
+- [33:24.720] surrender entire blocks of their own
+- [33:26.799] cities to Antifa and other ridiculous
+- [33:29.919] organizations. And perhaps worst of them
+- [33:32.720] all, we have no tolerance for far-left
+- [33:36.120] prosecutors boosted in their elections
+- [33:38.399] by farway billionaires who come into
+- [33:41.039] office and simply decline to take action
+- [33:43.600] against criminals. We are going to fight
+- [33:45.919] against crime. We're going to fight
+- [33:47.440] against criminals. And we are going to
+- [33:49.039] empower all of you to do your jobs every
+- [33:51.519] single
+- [33:55.880] day.
+- [34:00.679] Over the past four years, too much of
+- [34:04.159] our country was subjected to a giant
+- [34:06.799] radical experiment about what happens
+- [34:09.359] when you stop enforcing the law. And
+- [34:12.000] it's our peace officers. It's all of
+- [34:13.760] you. It's your families and our sacred
+- [34:16.240] fallen loved ones who bore the brunt of
+- [34:18.240] it. But that ended on January the 20th,
+- [34:21.760] 2025.
+- [34:23.359] This administration will never
+- [34:25.200] disparrage or degrade our police
+- [34:27.679] officers and particularly not the memory
+- [34:30.480] of those who died defending our society.
+- [34:34.079] That is our promise, our sacred
+- [34:36.359] obligation to never forget, to never
+- [34:40.159] allow the sacrifice of our fallen
+- [34:41.919] officers to be met with silence or allow
+- [34:44.879] their courage to be met with
+- [34:46.520] indifference. Because what our fallen
+- [34:48.639] heroes gave us was not just safety. It
+- [34:51.919] was stability, dignity, the freedom to
+- [34:55.200] live our lives knowing we were safe.
+- [34:57.359] Knowing that somebody was watching out
+- [34:59.359] for us and for our children. And while
+- [35:01.760] these officers watch has ended, the
+- [35:04.520] responsibility they carried now falls on
+- [35:07.920] all of us.
+- [35:09.839] We honor them not only in eulogy, not
+- [35:12.800] just with words, but in action. And how
+- [35:15.920] we raise our children, how we stand up
+- [35:18.240] for our communities, and how fiercely we
+- [35:20.800] defend the values that they died
+- [35:24.160] fighting for. To the next generation,
+- [35:27.680] let the example of these fallen heroes
+- [35:29.920] be a lesson. That freedom is not
+- [35:32.520] inherited, it is upheld. And that a
+- [35:35.680] civilization's peace is not inevitable.
+- [35:38.480] It is earned and it is kept by those who
+- [35:42.079] are willing to protect it. May God bless
+- [35:45.119] the law enforcement officers who gave
+- [35:47.359] their lives for their nation and the
+- [35:49.359] values we hold dear. May God provide
+- [35:52.560] comfort and grace to those of us left
+- [35:55.520] grieving in their absence. And may he
+- [35:58.400] continue to bless all of us, those in
+- [36:00.720] blue and all Americans across our
+- [36:03.200] country. And let us
+- [36:05.880] continually be true to the sacrifice
+- [36:09.760] that all of our officers in blue made
+- [36:12.160] and continue to make every single day.
+- [36:15.119] Thank you all. God bless America. It's
+- [36:17.599] an honor to be with you and I'm glad to
+- [36:19.280] be here.
+- [36:55.119] Nobody.

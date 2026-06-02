@@ -1,0 +1,137 @@
+<!-- source: https://www.youtube.com/watch?v=n4m2stWuAEc -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: n4m2stWuAEc -->
+<!-- date_published: 2025-09-23T21:25:01+00:00 -->
+<!-- date_accessed: 2026-06-02T01:14:38.752167+00:00 -->
+
+# Transcript: President Trump has a Pull-Aside with the President of Uzbekistan
+
+- [00:00.480] Well, thank you very much. It's a great
+- [00:02.000] honor to be with the president of
+- [00:04.000] Usuzbekiststan.
+- [00:05.600] Uh he's highly respected. Been there for
+- [00:07.600] a long time, many years, right? About
+- [00:10.160] like 15 or 16. That's a long time. And
+- [00:13.360] the only reason you can be at a country
+- [00:15.920] that long is when you're very smart and
+- [00:18.000] very competent. So, uh I just want to
+- [00:21.199] thank you very much for being with us.
+- [00:22.960] You know, he made a big purchase of a
+- [00:24.720] lot of different American products,
+- [00:26.640] different they've got plenty of money.
+- [00:28.800] They've got plenty of oil and plenty of
+- [00:30.560] money. Oil usually usually goes along
+- [00:33.280] with the money, but they've uh they've
+- [00:35.840] been they've done very well as a country
+- [00:37.920] and he has been a really great leader
+- [00:40.320] and it's an honor to be with you again.
+- [00:42.559] Thank you very much. Thank you. Please.
+- [00:45.360] >> Thank you.
+- [01:20.320] conflict. Conflict
+- [01:54.079] Thank you very much, Mr. President. It
+- [01:55.920] is my great pleasure to be here and I
+- [01:57.360] would like to congratulate you with the
+- [01:59.439] brilliant presentation today, the speech
+- [02:01.680] of yours today. Well, you were able to
+- [02:03.840] cover all the points of importance today
+- [02:06.560] and I'd like to congratulate you that
+- [02:08.879] you are really a person who can hold his
+- [02:11.920] word. So, you act, you say something and
+- [02:14.480] then you act. Of course, you promised
+- [02:16.560] that we will have a meeting today and
+- [02:18.800] we're now having it. So, thank you for
+- [02:21.200] that. Besides, you were able to stop
+- [02:23.920] seven conflicts all over the world and
+- [02:26.160] we know that one of them is uh very
+- [02:28.959] close in our region and it's aerban and
+- [02:32.239] armenian war. So, thank you for that as
+- [02:34.319] well and um you are a great inspiration
+- [02:36.879] for us and everything that we were able
+- [02:38.560] to agreed upon is being implemented
+- [02:41.280] already. Thank you very much for this
+- [02:43.120] dialogue and we will be continuously
+- [02:45.440] working together on the program that we
+- [02:47.360] were able to sign up for.
+- [02:49.360] Well, thank you very much. And you know,
+- [02:50.800] the president is speaking in about five
+- [02:52.800] minutes. He's supposed to be up there
+- [02:54.640] and I want to watch him, but the
+- [02:56.319] president is speaking in approximately
+- [02:58.239] five minutes. So, maybe we'll take a
+- [03:00.160] little quick question if you'd like and
+- [03:02.239] uh we'll do one nice and fast, but uh
+- [03:05.120] it's been a real honor to be with you
+- [03:07.440] and then I want you to rush out and make
+- [03:09.200] a great speech.
+- [03:11.200] >> Mr. President, Ryan Ruth, the man who
+- [03:13.200] tried to assassinate you convicted and
+- [03:15.760] loyalty, what is your response? Well, I
+- [03:18.159] I'm very appreciative of the justice
+- [03:20.800] that was given and the way it was
+- [03:22.640] handled by Pam Bondi and Todd Blanch and
+- [03:25.519] everybody that uh it's been and their
+- [03:27.760] team of people. It was really well
+- [03:30.799] handled and it's very important. You
+- [03:32.239] can't let things like that happen.
+- [03:33.680] Nothing to do with me, but a president
+- [03:36.480] or even a person. You can't allow that
+- [03:38.640] to happen. And so, justice was served
+- [03:41.519] and uh we'll see what happens. But I
+- [03:44.400] very much appreciate the judge and jury
+- [03:47.040] and everybody on that. It was so
+- [03:48.560] professionally handled and uh it's great
+- [03:50.959] honor. Great honor.
+- [03:53.200] >> You're meeting with Muslim and Arab
+- [03:54.720] leaders this afternoon.
+- [03:56.159] >> I am close with Gaza. Is that is that
+- [03:59.280] can you tell us a little bit about that?
+- [04:00.400] >> That's going to be a big meeting. It's a
+- [04:01.840] very important meeting. But right now I
+- [04:04.000] have an important meeting too because he
+- [04:05.599] purchas purchased billions of dollars
+- [04:07.760] worth of our equipment and we do make
+- [04:09.920] the best equipment in the world. So,
+- [04:12.000] we're going to make sure it's perfect
+- [04:13.200] for you. Are there any additional
+- [04:16.479] signing with with
+- [04:18.160] >> Well, we are we're talking about a
+- [04:19.919] couple of very big ones. He's already
+- [04:21.840] done some big ones today over the last
+- [04:23.759] few days, but uh we're going to have a
+- [04:26.479] very good We've had a good relationship
+- [04:28.400] and he and I have met before and the
+- [04:31.680] relationship is really great. He's a
+- [04:33.680] highly respected man and leader.
+- [04:37.919] >> Let me see.
+- [04:40.450] [Music]
+- [04:46.880] 105 billion.
+- [04:48.479] >> 105 billion. That's not bad. That's
+- [04:51.520] worth a fiveminute meeting, right? You
+- [04:53.199] agree?
+- [04:55.919] >> Look at look at all the nice look
+- [04:59.040] tractors. Also, it's $105 billion.
+- [05:03.040] >> Wow.
+- [05:04.880] In uh 2018 through 24, he did 19.4.
+- [05:09.039] before
+- [05:10.560] and uh now he's doing $105 billion worth
+- [05:14.400] of purchases. That's really a great
+- [05:15.840] honor.
+- [05:17.039] >> You know, I met him think it was less.
+- [05:19.759] Anything over a billion I do. So when
+- [05:23.520] you go 105 billion, I'll meet here I'll
+- [05:25.759] meet him 15 or 20 times. That's really
+- [05:28.560] great. You go up and make your great
+- [05:30.479] speech.
+- [05:32.639] It's great honor to be. Thank you so
+- [05:34.800] much. Amen.
+- [05:41.919] >> You have to visit, please.
+- [05:43.360] >> I love that. Well, I'm going to think
+- [05:44.400] about doing that.
+- [05:47.600] Really run a great operation, a great
+- [05:50.240] group of people, very smart country, and
+- [05:53.199] they've done really well, and I
+- [05:54.400] appreciate your purchase from America.
+- [05:57.120] Thank you. We'll be there for you. Thank
+- [05:59.280] you very much. Please.
+- [06:04.479] Thank you very much. Great question.

@@ -1,0 +1,478 @@
+<!-- source: https://www.youtube.com/watch?v=OE2NtBhozT4 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: OE2NtBhozT4 -->
+<!-- date_published: 2026-01-29T22:54:51+00:00 -->
+<!-- date_accessed: 2026-06-02T02:38:29.042926+00:00 -->
+
+# Transcript: President Trump Makes an Announcement, Jan. 29, 2026
+
+- [00:06.010] The President: Well, thank you very much, everybody.
+- [00:09.400] It's been a little busy day, right?
+- [00:11.800] We had a good -- a good morning
+- [00:13.690] and now we're having a good evening.
+- [00:14.980] And we're going to a premiere in a little while,
+- [00:18.990] but there's nothing more important
+- [00:20.220] than what we're doing right now, in my opinion.
+- [00:23.870] Today, I'm signing a historic executive
+- [00:26.360] order to combat the scourge of addiction and substance abuse.
+- [00:30.710] A big deal in this country and every --
+- [00:32.460] probably in every country.
+- [00:34.720] We're calling it the Great American Recovery Initiative.
+- [00:39.260] I'm grateful to be joined by co-chairs
+- [00:41.620] of the sweeping new effort,
+- [00:42.820] Secretary of Health and Human Services,
+- [00:44.820] Robert F Kennedy Jr.,
+- [00:46.860] and senior advisor to the White House Great American
+- [00:49.610] Recovery Initiative, Kathryn Burgum.
+- [00:53.450] Thank you both very much.
+- [00:55.480] Thank you both very much. Thank you, Kathryn.
+- [00:57.220] Kathryn Burgum: Thank you, sir. Thank you, sir.
+- [00:58.520] The President: Thank you. Where's Bobby?
+- [00:59.720] Bobby? Hello, Bobby. Come here and give me your hand.
+- [01:01.720] I love Bobby. You're doing a great job, Kathryn.
+- [01:05.240] All right, do we think so?
+- [01:06.680] Who's doing a better job, him or your husband?
+- [01:08.680] Maybe -- the husband, though he's doing a good job.
+- [01:12.590] Kathryn Burgum: I'm just getting started, sir.
+- [01:13.910] The President: They're both doing very well.
+- [01:15.140] And now, you're going to do better than both of them.
+- [01:17.530] Thanks as well to Attorney General Pam Bondi,
+- [01:20.830] Secretary Doug Burgum, Secretary Scott
+- [01:23.760] Turner, Secretary Doug Collins, Special Envoy Steve Witkoff,
+- [01:28.600] who's got some pretty good news, chief of staff,
+- [01:31.640] Susie Wiles, FDA commissioner, Dr. Marty
+- [01:34.440] Makary, NIH Director, Dr. Jay Bhattacharya.
+- [01:38.850] Oh, I've gotten good at that, Jay.
+- [01:40.220] Jay Bhattacharya: You are so good at that, sir.
+- [01:41.730] The President: Administrator of the Centers for Medicare and --
+- [01:45.020] Medicare and Medicaid Services, Dr. Mehmet Oz,
+- [01:49.550] who's doing a fantastic job.
+- [01:51.520] And Director of the Office of National Drug Control Policy,
+- [01:55.280] Sara Carter.
+- [01:56.650] I also want to introduce a great friend of mine
+- [01:59.590] who happened to be here,
+- [02:00.840] and he's very much committed to this.
+- [02:03.860] He knows how important it is for our country.
+- [02:05.880] He's built a tremendous American company.
+- [02:11.160] It's called WeatherTech. I guess you've seen the ads.
+- [02:13.270] I've seen the ads. I think they're great ads.
+- [02:15.220] But more importantly, it's a great product.
+- [02:17.640] David MacNeil.
+- [02:18.970] David, congratulations on what you've done.
+- [02:20.720] It's incredible.
+- [02:21.980] David MacNeil: Thank you, Mr. President.
+- [02:23.250] The President: Thank you, really great.
+- [02:24.490] And the President of WeatherTech, Ryan Granger.
+- [02:28.120] Ryan, congratulations, what a great job.
+- [02:31.330] They built an American company
+- [02:32.930] and it's a thriving company, too, so, with a great product.
+- [02:37.270] Ryan Granger: It's great to be here in America.
+- [02:38.910] The President: You know, when I was in the private sector,
+- [02:40.330] I'd always buy the floor mats,
+- [02:41.590] but now that I'm in the -- now that I'm President,
+- [02:43.920] I no longer have to buy floor mats,
+- [02:45.530] but you made a great floor mat, and you still do.
+- [02:48.580] And lots of other things.
+- [02:50.610] Many of those with me today
+- [02:52.450] have personally known the heartache of a loved one
+- [02:55.650] taken by drug or alcohol addiction.
+- [02:57.750] I do, just like millions of American families.
+- [03:01.110] Every year we lose an estimated 300,000 people
+- [03:03.970] to drug and alcohol abuse.
+- [03:06.010] And the real number is probably much, much higher than that.
+- [03:09.880] Thankfully drug overdose deaths
+- [03:11.880] plummeted by 21 percent in the last year.
+- [03:14.470] We're working very hard on it.
+- [03:16.780] We've closed the southern border,
+- [03:19.030] seized over 47 million fentanyl pills
+- [03:21.850] and 10,000 pounds of fentanyl powder.
+- [03:24.020] That's a record.
+- [03:25.360] And I have formally designated doctor --
+- [03:30.360] and I'll tell you what, we have a group of doctors,
+- [03:33.910] some of them behind me who have just been incredible,
+- [03:37.260] and they've really wanted this designated the drug cartels
+- [03:40.600] as foreign terrorist organizations.
+- [03:43.250] And for some reason, they didn't want to do that
+- [03:45.020] until we came along.
+- [03:46.220] But they are indeed foreign terrorist organizations.
+- [03:49.610] With our action in the Gulf of America,
+- [03:53.240] that sounds so nice when I hear the Gulf of America,
+- [03:56.590] drugs entering our country by sea are down 97 percent.
+- [04:00.830] So when you see the boats being hit,
+- [04:03.550] those boats kill on average 25,000 people a boat.
+- [04:08.010] So that's 25,000, I would assume mostly American lives,
+- [04:11.610] but lives are being saved.
+- [04:13.770] Now, we're taking a bold action to help Americans
+- [04:16.440] struggling with all forms of addiction
+- [04:18.500] so they can get the help and the support
+- [04:20.930] that they need to free themselves
+- [04:22.700] from the horrible burden of dependency.
+- [04:25.720] The Great American Recovery Initiative
+- [04:27.710] will bring together federal, state, local
+- [04:29.840] and private sector resources to support addiction, recovery,
+- [04:34.380] treatment and prevention, and it will help mobilize
+- [04:37.850] the full resources and authority of the federal government
+- [04:40.900] to help stop this tremendous plague.
+- [04:43.340] And I'd now like to invite Secretary Kennedy to start
+- [04:46.660] and then Kathryn Burgum.
+- [04:48.020] And then I'll sign the order which I've just signed
+- [04:51.400] and want to make sure the signature was good.
+- [04:54.360] Took my time. And we -- let me just see.
+- [04:57.520] Pretty good, not -- ah, it's pretty good.
+- [05:01.120] Let's give it a ten, Okay? For Kathryn.
+- [05:04.680] But I'd like Bobby to say a few words, then Kathryn.
+- [05:07.410] Thank you very much, everybody. Please.
+- [05:09.080] Secretary Kennedy: Mr. President,
+- [05:10.320] thank you for your leadership for signing an executive order
+- [05:13.050] that tells the truth about one of the greatest challenges
+- [05:16.020] that our country faces.
+- [05:18.300] Addiction is not a moral failure.
+- [05:20.420] It is a disease. It's chronic. It's treatable.
+- [05:24.210] And for too long, our nation has responded with fragmentation,
+- [05:27.520] with stigmatization and silence
+- [05:31.020] instead of science, compassion and coordination.
+- [05:35.120] Today, President Trump changes that
+- [05:37.110] with the Great American Recovery Initiative,
+- [05:39.220] we finally bring the full strength
+- [05:40.920] of the federal government together across health care,
+- [05:44.170] law enforcement, housing, labor, faith communities
+- [05:48.620] and the private sector to save lives,
+- [05:51.430] restore families and rebuild communities
+- [05:53.900] that addiction has hollowed out.
+- [05:56.360] Nearly 50 million Americans
+- [05:58.050] suffer from substance use disorder,
+- [06:00.590] many never receive treatment,
+- [06:02.830] even more don't believe that help is possible.
+- [06:06.360] That is not because recovery doesn't work.
+- [06:08.510] It's because our systems have failed to reach the people
+- [06:11.350] where they are early enough long enough and with dignity.
+- [06:15.710] This initiative fixes that.
+- [06:18.270] We will align federal programs
+- [06:20.090] instead of letting them operate in silos.
+- [06:23.010] We will set clear, measurable goals
+- [06:24.910] and report honestly to the American people.
+- [06:28.130] We will use evidence based care, modern science
+- [06:31.050] and continuous support just as we do for heart disease,
+- [06:34.710] diabetes and other chronic illnesses.
+- [06:37.930] We will focus on prevention before addiction takes hold.
+- [06:41.460] We will intervene early.
+- [06:44.080] We will expand access to treatment
+- [06:46.040] that leads to real long term recovery.
+- [06:49.530] And we will support reentry because recovery does not end
+- [06:53.000] when treatment ends.
+- [06:54.810] It succeeds when people return to their families,
+- [06:57.300] their jobs and their communities with purpose and with hope.
+- [07:01.240] As co-chair of this initiative, alongside of Kathryn Burgum,
+- [07:05.740] whose leadership and commitment strengthens this work,
+- [07:08.590] I pledge urgency, accountability and honesty.
+- [07:12.230] Kathryn and I share the experience
+- [07:15.480] of having been addicted and long term recovery.
+- [07:19.470] Almost everybody in this room
+- [07:21.290] and almost everybody in our country
+- [07:22.890] has been touched by addiction.
+- [07:25.220] Steve Witkoff, who was here, had an extraordinary son,
+- [07:28.690] Andrew, who was a superstar boy,
+- [07:31.620] a straight-A student, an athlete and --
+- [07:36.080] and a -- and a wonderful leader and lost that son to addiction.
+- [07:42.310] President Trump has talked about his own family's struggle
+- [07:46.680] with addiction. All of us are touched.
+- [07:49.320] If it touches these people, it can hurt every American.
+- [07:54.290] And President Trump has often talked about with compassion
+- [07:58.420] about the families who lose children to this disease,
+- [08:01.610] 100,000 children a year, until recently.
+- [08:04.110] Now it's about 76,000.
+- [08:07.100] Those families are devastated forever.
+- [08:09.910] And the cost to our country, not only in dollars
+- [08:13.180] but in just the malaise and the despair
+- [08:16.400] that it imposes is incalculable.
+- [08:19.670] We are going to listen to states, localities,
+- [08:22.440] frontline providers and tribal nations.
+- [08:25.480] We will partner with communities and faith based organizations.
+- [08:29.750] We will work with employers, clinicians and recovery leaders
+- [08:33.020] who know what works on the ground.
+- [08:35.370] President Trump has already acted
+- [08:37.290] decisively securing the border against deadly drugs,
+- [08:41.150] signing the Halt Fentanyl Act,
+- [08:43.250] strengthening treatment programs,
+- [08:45.890] expanding access to naloxone and medication assisted treatments
+- [08:50.730] and investing billions in prevention and recovery.
+- [08:54.000] This executive order builds on that record and accelerates it.
+- [08:59.270] Recovery is not a side issue.
+- [09:01.440] It's an economic issue, a workforce issue,
+- [09:04.920] a family issue, a national security issue.
+- [09:08.280] When Americans recover, communities grow stronger
+- [09:11.270] and families heal, children thrive.
+- [09:14.560] And when we confront addiction with courage
+- [09:16.620] instead of complacency,
+- [09:17.940] we reclaim the promise of our country.
+- [09:20.890] This initiative is about life, it's about responsibility
+- [09:24.340] and it's about building a great American recovery together.
+- [09:29.000] With this executive order and with major announcements
+- [09:32.410] that I will announce next week, we are taking decisive action
+- [09:37.110] to make America healthy again. Thank you.
+- [09:39.480] The President: Thank you, Bobby, and great job,
+- [09:41.200] and you're doing a fantastic job.
+- [09:45.390] He's doing a fantastic. And I saw his wife yesterday
+- [09:48.760] and she confirmed that he's doing a fantastic job.
+- [09:51.030] So she's on your side and know that. She's great.
+- [09:53.930] And I also want to thank you for being here.
+- [09:55.820] We appreciate it. Kathryn, please go ahead.
+- [09:57.790] Kathryn Burgum: Thank you, Mr. President.
+- [09:59.140] The President: Thank you.
+- [10:00.380] Kathryn Burgum: Thank you so much.
+- [10:01.650] Your leadership today relative to this announcement
+- [10:04.690] about the Great American Recovery
+- [10:06.210] and is a gift to all Americans
+- [10:08.560] who are suffering from the brain disease of addiction.
+- [10:11.780] I also want to thank First Lady Melania Trump
+- [10:15.140] for her leadership during the -- your first --
+- [10:17.500] your first administration and now
+- [10:19.540] for the work she's doing championing youth and children,
+- [10:23.190] especially related to foster care
+- [10:25.470] where early trauma and instability
+- [10:27.130] are often consequences of the disease of addiction.
+- [10:30.390] Addictions touched this administration in real
+- [10:32.490] and profound ways. President Trump,
+- [10:34.740] you have openly spoke about your brother Fred,
+- [10:37.920] who struggled with addiction, shaped your life
+- [10:40.620] and your understanding of this disease.
+- [10:42.940] And Susie Wiles carries the lived experience of her father,
+- [10:46.470] the late, great Pat Summerall,
+- [10:48.340] whose recovery journey became a source of hope for millions.
+- [10:52.350] Vice President Vance has shared his story
+- [10:54.450] of his mother's battle and recovery.
+- [10:57.260] And as Secretary Kennedy just said,
+- [10:59.170] he brings his own lived experience.
+- [11:01.360] Proof that recovery is not theoretical.
+- [11:03.980] It is possible.
+- [11:05.780] These stories matter because they are not isolated.
+- [11:08.680] They reflect the reality of the over 190 million Americans,
+- [11:14.180] that's half our nation,
+- [11:16.430] who are impacted in some way by the disease of addiction.
+- [11:20.640] And I am one of them.
+- [11:22.550] I started drinking in high school
+- [11:24.590] and I was a blackout drinker from the start.
+- [11:27.200] For 20 years I struggled, relapsing constantly,
+- [11:31.960] constantly starting over,
+- [11:34.190] constantly trying to stay sober and failing.
+- [11:37.500] Now I reach a point where I truly did not believe
+- [11:39.440] there was one single reason for me to keep living
+- [11:42.030] and I was suicidal at the end of my drinking.
+- [11:45.320] One day I was out walking alone,
+- [11:47.460] I didn't have faith, I wasn't religious,
+- [11:50.120] but something in me said I should ask for help.
+- [11:53.920] Into and out loud to no one, because it was just me,
+- [11:56.980] I said I don't know if anyone is there, but I need help.
+- [12:01.600] And that was the day I became sober.
+- [12:04.840] 15 years later, I found myself
+- [12:06.850] somehow standing in front of people
+- [12:08.740] as First Lady of North Dakota thanks to him.
+- [12:12.780] But I was asking people to share their stories
+- [12:15.290] openly about addiction
+- [12:16.600] so we could eliminate the shame and stigma,
+- [12:18.750] so more people would reach out for help
+- [12:20.850] and more lives could be saved. And today, I'm standing here
+- [12:24.390] in this incredibly beautiful Oval Office.
+- [12:28.030] And if not for the grace of God,
+- [12:29.400] I would not be alive today with over 23 years in recovery.
+- [12:38.480] That's why I'm here.
+- [12:39.710] And my message is simple, never give up hope for recovery.
+- [12:42.740] Mr. President, I also want to thank you
+- [12:44.240] for allowing me to stand here with you today.
+- [12:46.950] I was in this building in 2017 when the administration
+- [12:50.300] announced the national response to the opioid crisis.
+- [12:53.530] And nearly a decade later, the crisis remains.
+- [12:55.870] And in many ways it has grown worse,
+- [12:58.540] not because we lacked compassion,
+- [13:00.320] not because we lack effort, but because we never fully
+- [13:03.380] aligned our system with the truth.
+- [13:05.850] Addiction is not a moral failure.
+- [13:07.800] It is not a character flaw.
+- [13:09.220] And it's not simply a behavioral issue.
+- [13:11.800] Addiction is a lifelong chronic relapsing medical disease
+- [13:15.570] as real as diabetes, cancer and heart disease.
+- [13:20.300] And when we fail to treat it as such,
+- [13:21.910] we don't treat the disease,
+- [13:23.750] and we pay mightily for the consequences.
+- [13:27.120] Emergency rooms, jails, foster care, overdose deaths
+- [13:31.510] and broken families.
+- [13:34.410] The Great American Recovery changes that.
+- [13:37.480] This initiative represents a fundamental shift
+- [13:39.580] from reaction to prevention,
+- [13:41.140] from fragmentation to coordination,
+- [13:43.730] from stigma to science,
+- [13:45.040] from short term fixes to long term recovery.
+- [13:47.700] And for the first time,
+- [13:48.940] we're aligning federal leadership across health,
+- [13:51.560] justice, labor, housing, veterans, social services,
+- [13:54.970] the faith office and education
+- [13:57.090] around one single shared truth.
+- [14:01.340] When addiction is treated early and correctly,
+- [14:03.840] people recover and families heal.
+- [14:07.430] Addiction is a generational disease.
+- [14:09.570] And if we don't treat it properly,
+- [14:11.330] it repeats from parent to child, from community to community.
+- [14:16.640] And when we treat it like a lifelong condition, that --
+- [14:19.610] the condition that it is, we stop that cycle.
+- [14:24.060] We save lives, we restore families,
+- [14:26.100] we rebuild communities, we return people to dignity,
+- [14:29.330] purpose and productivity.
+- [14:31.940] Mr. President, thank you for seeing this moment clearly.
+- [14:35.800] With your leadership and the Great American Recovery
+- [14:38.690] Initiative, we're establishing a new framework
+- [14:41.370] and a new national response to the disease of addiction,
+- [14:44.550] including treatment and care
+- [14:46.090] that parallels other chronic diseases.
+- [14:49.300] With this framework and treatment,
+- [14:51.590] recovery is not the exception, it is the expectation.
+- [14:55.830] (applause)
+- [14:57.170] The President: Thank you, Kathryn.
+- [15:05.120] You know, I saw them riding horses in a video
+- [15:09.170] and they said who is that?
+- [15:10.480] I was talking about her, not him.
+- [15:13.230] I explained it. I said I'm going to hire him
+- [15:16.080] because anybody has somebody like you to be with,
+- [15:20.010] it's an amazing tribute.
+- [15:21.980] And it's a great couple, amazing couple.
+- [15:24.520] And she's very much a part of his big success.
+- [15:27.090] He was a fantastic success, as you know,
+- [15:30.530] having been one of the most successful businesspeople.
+- [15:33.040] And I saw him campaigning a great governor,
+- [15:36.600] two term governor.
+- [15:38.930] He was did a fantastic job in North Dakota.
+- [15:43.340] And he's done a great job.
+- [15:45.200] And I'll tell you what, Kathryn's a very big part of it.
+- [15:47.980] I see it. It's just really one of the fantastic couples.
+- [15:50.980] So I appreciate it.
+- [15:52.280] What a beautiful job you've just done.
+- [15:54.600] And I'm going to give this to you,
+- [15:56.010] and you can figure out what you're going to do with
+- [15:58.360] Bobby, you know. But let's have a good picture
+- [16:02.540] of the two of them and everyone else.
+- [16:03.900] And I'd like to ask Steve Witkoff
+- [16:05.310] also to say a couple of words when we're finished
+- [16:07.790] because he has a very special person
+- [16:12.180] who I knew very well, an incredible person.
+- [16:15.950] So if you don't mind, Steve,
+- [16:17.270] I'll ask you to do that in just a second. All right?
+- [16:20.310] Please, Bobby.
+- [16:28.860] Okay, thank you very much.
+- [16:34.880] The President: Steve, please.
+- [16:38.250] Steve Witkoff: The President is doing the same thing to me now
+- [16:42.100] that he did to me in 2017. Do you remember Kathryn?
+- [16:45.060] Kathryn Burgum: Yeah, we were sitting next to each other.
+- [16:47.720] Steve Witkoff: So I want to tell the story about this.
+- [16:51.330] So I came to the opioid, um, conference.
+- [16:55.410] And the President did not know I was coming
+- [16:57.020] because I was invited by the First Lady.
+- [16:59.700] And he leaned over and saw me in the aisle,
+- [17:02.130] and he looked at me and he said Steve
+- [17:04.270] and then he realized why I was there
+- [17:06.750] because I had lost my son, Andrew.
+- [17:09.210] And the President was an incredible friend
+- [17:11.490] when I lost him.
+- [17:12.730] He -- I lived in his building at 502 Park Avenue.
+- [17:16.850] And I remember when him and the First lady came,
+- [17:18.700] and I talked about this all the time.
+- [17:21.110] And so he took my hand
+- [17:23.590] and he said to me come on up to the stage
+- [17:26.060] and tell the world about your boy, Andrew.
+- [17:28.900] And of course, that was, um, you know,
+- [17:32.100] something that was really meaningful to me,
+- [17:33.970] but um, and I got through it.
+- [17:37.140] And I talk about it all the time.
+- [17:38.420] I talked about it on the campaign trail and so forth.
+- [17:40.780] He is a very special man. And he's begun and led the fight
+- [17:45.020] against opioid addiction and alcoholism.
+- [17:48.580] And Kathryn, I feel like we sort of bonded from that --
+- [17:51.720] from that day.
+- [17:53.060] And it's just my blessing to work for you, sir.
+- [17:57.490] The President: There's a special guy.
+- [18:04.190] He and a group of people, Jared helped and others helped, Steve.
+- [18:08.450] Peace in the Middle East. And we're there.
+- [18:10.230] A couple of little flames,
+- [18:11.670] but they're very little by comparison
+- [18:13.380] and they'll go out quickly. They're already going out.
+- [18:16.890] And he's now trying very hard
+- [18:18.470] to settle up with Russia and Ukraine.
+- [18:21.680] And I think a lot of progress is being made there,
+- [18:24.370] and I am told that Russia is not doing any shooting
+- [18:28.390] for a period of time during this horrendously cold weather.
+- [18:31.910] Steve Witkoff: Because of you. Because of you.
+- [18:33.270] The President: Well. So we asked President Putin
+- [18:37.200] if they could stop the shooting for a week.
+- [18:40.500] They're getting -- they're being hit
+- [18:41.950] with proportionately the kind of coal that we're being hit.
+- [18:45.860] It's much colder in Ukraine to start off with,
+- [18:48.520] but it's really cold now.
+- [18:49.950] And he agreed to do that. We appreciated that very much.
+- [18:53.380] It's a nasty war. It's a nasty, nasty war.
+- [18:57.730] Would anybody else have anything to say?
+- [18:59.680] I can say that I am extremely late,
+- [19:02.530] but that's okay, don't worry about me.
+- [19:05.020] Would else have anything to say?
+- [19:06.770] Doug, you're doing a fantastic job,
+- [19:08.160] and we appreciate it. Doug Collins: Thank you.
+- [19:09.390] The President: And Marty,
+- [19:11.260] you are really something special.
+- [19:12.830] Everyone's talking about you. Every time --
+- [19:14.500] if I don't mention Marty, Bobby always mentions him, so.
+- [19:20.030] We have a great team. Jay, great. Marty, great.
+- [19:23.830] Do you guys want to say something?
+- [19:25.300] Marty Makary: Thank you. Thank you.
+- [19:26.860] Well, historically, with addiction,
+- [19:29.420] the entire society has always been reactionary.
+- [19:32.860] And that's been the story of health care.
+- [19:34.980] But at the FDA, we are looking into incredible
+- [19:38.180] cutting edge therapeutics.
+- [19:39.780] And we are being proactive giving them vouchers
+- [19:42.470] when we see something that's promising
+- [19:43.820] to get an approval as quick as weeks
+- [19:47.130] in an era of a 10 to 12 year approval time.
+- [19:49.970] And the ultimate therapeutic is community,
+- [19:53.130] houses of worship, um, addressing loneliness.
+- [19:56.490] And so that's part of the MAHA agenda, thanks to Bobby.
+- [19:58.410] So, thank you, Mr. President.
+- [19:59.620] The President: Thank you very much.
+- [20:00.880] Appreciate it. Thank you. Jay?
+- [20:02.150] Jay Bhattacharya: Mr. President, in 2018,
+- [20:03.990] you launched the HEAL Initiative,
+- [20:06.920] Helping to End Addiction Long-term at the NIH.
+- [20:10.070] It's paid through. It's yielded fruit.
+- [20:12.550] It -- they are -- the ingenuity of small business
+- [20:15.390] has developed products that can deal with pain without opioids.
+- [20:21.410] The -- he naloxone, which saves lives.
+- [20:25.190] That was the fruit of NIH.
+- [20:27.210] And the kinds of investments that are your administration
+- [20:30.390] that you've made starting from 20 --
+- [20:31.980] from the first Trump term to now will continue to pay dividends.
+- [20:36.650] The kind of research that --
+- [20:37.980] that that the NIH is doing is help turn the tide,
+- [20:43.910] make people's lives so much better restore families,
+- [20:47.280] um, all of the addiction that -- that we've seen,
+- [20:50.170] the 80,000 deaths we saw the huge spike in -- in --
+- [20:54.830] in addiction deaths, you know, during the first Biden term
+- [20:57.640] was going to be a thing of the past and it --
+- [20:59.530] and I'm so proud you for this.
+- [21:00.780] The President: And part of some great things happening, right?
+- [21:02.430] Jay Bhattacharya: Yeah.
+- [21:03.640] The President: Marty, great, really great things happening,
+- [21:06.510] I hear, and some pretty big announcements
+- [21:08.820] over a short period of time, right?
+- [21:10.930] Marty Makary: Yeah. Moving drugs over the counter,
+- [21:12.610] so you don't need a prescription.
+- [21:14.000] The President: Is that right?
+- [21:15.220] Marty Makary: Naloxone, which treats opioid,
+- [21:16.800] is one of those drugs.
+- [21:18.670] And we're being proactive with synthetic 70H,
+- [21:21.900] a new opioid that's showing up.
+- [21:24.140] And we're working with the DOJ on addressing that
+- [21:27.110] because chemists are coming up with new opioids
+- [21:30.450] faster than the government has been able to keep up.
+- [21:32.720] We're going proactive on these new chemicals.
+- [21:34.980] The President: That's great. No, I hear fantastic things.
+- [21:38.040] Thank you all very much. We really appreciate it a lot.
+- [21:40.500] Thank you. Oz, you're doing a fantastic job.
+- [21:43.550] Thank you all very much. I appreciate it.
+- [21:47.040] Thank you. Please, thank you.

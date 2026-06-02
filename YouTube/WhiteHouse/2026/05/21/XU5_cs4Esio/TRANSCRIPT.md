@@ -1,0 +1,1124 @@
+<!-- source: https://www.youtube.com/watch?v=XU5-cs4Esio -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: XU5-cs4Esio -->
+<!-- date_published: 2026-05-21T16:41:06+00:00 -->
+<!-- date_accessed: 2026-06-02T02:33:30.971261+00:00 -->
+
+# Transcript: President Trump Participates in an Announcement with the Administrator of the EPA
+
+- [00:07.780] The President: Okay, thank you very much.
+- [00:09.430] It's a great honor. We have tremendous people behind me;
+- [00:12.810] you'll be hearing about that in a minute.
+- [00:15.330] Today is my honor to be discussing
+- [00:20.230] the taking of a very historic action
+- [00:23.500] to substantially lower costs for consumers,
+- [00:25.970] protect hundreds of thousands of jobs,
+- [00:28.050] and save Americans well over $2 billion a year
+- [00:32.400] by officially terminating the Biden administration's
+- [00:35.130] ridiculous regulations imposing costly requirements
+- [00:39.050] on refrigerators and air conditioners.
+- [00:42.730] It's ridiculous, unnecessary and costly,
+- [00:47.510] and actually makes the machinery worse.
+- [00:50.470] I want to thank EPA Administrator Lee Zeldin,
+- [00:53.340] Senators Jon Husted -- John, thank you.
+- [00:56.110] I heard you did very well in your race I hear,
+- [00:58.570] that's what the word.
+- [01:00.140] And Ashley, I know you're doing very well also,
+- [01:02.340] Ashley Moody, Florida, great.
+- [01:05.100] As well as Representatives Stephanie Bice,
+- [01:07.900] Zach Nunn and Craig Goldman, thank you all.
+- [01:10.600] Thank you. Thank you all; you look good.
+- [01:14.130] We're joined by Kroger CEO --
+- [01:17.260] that's a big one, Kroger, that's a big --
+- [01:19.460] I see those stores all over the place.
+- [01:22.440] Greg Foran -- where's Greg.
+- [01:24.480] Greg, very good. You look like Central Casting.
+- [01:29.600] Just like you're supposed to look.
+- [01:32.000] Fareway Stores CEO, Reynolds Cramer.
+- [01:34.740] Reynolds Cramer: Right here, Mr. President.
+- [01:37.310] The President: Hello, Reynolds.
+- [01:38.640] Maybe I won't look around every time.
+- [01:40.980] Y-Not Stop CEO and co-owner, Ann Gauthier.
+- [01:45.660] Ann, (Inaudible) because it's Ann I'm going to --
+- [01:51.240] Columbiana Foods co-owner Ron Graff, Senior.
+- [01:57.800] Hello, Ron.
+- [02:00.790] Niemann Foods President, Richard Niemann.
+- [02:05.400] Hi, Richard. Piggy -- that's a (Inaudible)
+- [02:10.030] Piggly Wiggly franchise owner, and that's a big company, too.
+- [02:14.340] It's a cute name. Kevin McDaniel.
+- [02:17.070] Where's Kevin? How is that name playing?
+- [02:19.650] Good. Piggly Wiggly, I've heard that, actually.
+- [02:23.600] That's great.
+- [02:24.840] Franchise owner Kevin -- so, you met Kevin.
+- [02:28.150] Food Fresh owner Michael Gay, Food Fresh.
+- [02:32.060] Hi, Michael. How are you, Michael.
+- [02:34.620] And this is a representative group
+- [02:36.730] of very large-scale retailers. Under the Biden administration,
+- [02:42.040] the so-called technology transition rule,
+- [02:46.210] which was crazy, forced companies
+- [02:48.520] to adopt specific high-cost refrigerants,
+- [02:51.470] massively driving up the price of transporting
+- [02:55.610] and storing refrigerants and various goods.
+- [03:00.430] Many grocery stores and restaurants had no choice
+- [03:03.040] but to replace their refrigerators entirely.
+- [03:05.360] They went out of business, half of them.
+- [03:07.620] And these costs rose; Americans faced higher grocery prices
+- [03:10.840] and reduced access to critical medical supplies.
+- [03:14.350] It was a very catastrophic thing that they did.
+- [03:19.450] At the same time, this rule also drove up the cost of living
+- [03:22.590] by forcing consumers to purchase higher
+- [03:25.120] cost residential air conditioning units.
+- [03:27.960] They cost -- they went up very substantially in cost
+- [03:30.920] and also they were going to be obsolete very quickly.
+- [03:35.220] It created national security risks by adding additional
+- [03:38.160] hurdles to the already complicated process
+- [03:41.050] of manufacturing semiconductors. So, it was a mess.
+- [03:45.500] Likewise, the so-called emissions
+- [03:47.340] rule imposed crippling leak repair requirements
+- [03:50.590] on virtually all existing large scale refrigeration systems,
+- [03:54.900] hurting consumers and small businesses,
+- [03:57.060] making it almost impossible for many small businesses
+- [04:01.350] to even buy inferior before it -- inferior equipment.
+- [04:06.430] And this is all across the country.
+- [04:07.960] The higher costs threatened thousands of jobs
+- [04:10.270] and was passed on in the form of higher prices and higher taxes.
+- [04:15.780] Today's reforms will deliver significant financial relief,
+- [04:18.930] saving American families and businesses
+- [04:21.050] more than $2.4 billion -- think of that -- each year.
+- [04:25.920] Thanks to today's reforms,
+- [04:27.550] the American people have lower grocery prices,
+- [04:30.030] cheaper transportation of goods, lower costs of air conditioning
+- [04:34.510] at no detriment at all to our country.
+- [04:38.090] Zero. Including environmental detriment.
+- [04:41.860] My administration's historic deregulatory agenda
+- [04:45.380] has already saved our country an estimated $1.2 trillion,
+- [04:48.840] and it's been done over a relatively short period of time,
+- [04:53.400] $1.2 trillion with a T. We're committed to fixing the --
+- [04:59.140] and really completely ending Biden's
+- [05:01.490] disastrous regulatory policies and delivering financial relief
+- [05:05.640] to each and every American, which is what we're doing.
+- [05:08.700] This was a tremendous burden, a tremendous cost,
+- [05:11.800] these people had to live with it,
+- [05:14.190] not only refrigerants, but a lot more.
+- [05:16.300] And it was making the equipment unaffordable.
+- [05:19.130] And the actual benefit was nothing,
+- [05:22.100] it just made it worse, made life worse,
+- [05:24.290] and it made it worse and it drove up costs tremendously.
+- [05:27.960] So, now I'd like to ask administrator Lee Zeldin,
+- [05:31.050] who's absolutely fantastic.
+- [05:33.100] He's doing an incredible job. We're proud of you, Lee.
+- [05:36.190] Really, the job you're doing is incredible,
+- [05:38.040] followed by Greg, Kevin and Michael.
+- [05:40.560] Is that OK? Lee, go ahead, please.
+- [05:43.020] Lee Zeldin: Well, thank you, Mr. President.
+- [05:44.250] As you know, many Americans were expressing a lot of frustration
+- [05:50.570] and anger of this rushed, frantic, reckless sprint
+- [05:55.140] by the Biden administration to phase out reliable equipment
+- [06:00.090] for grocery stores, for restaurants and for homes.
+- [06:04.020] And the consequences, well, they've been devastating.
+- [06:07.780] And once again, the Trump administration
+- [06:09.280] is answering the call,
+- [06:10.490] which will lower the cost of living
+- [06:12.150] for hardworking American families.
+- [06:14.620] Now look at this chart to your far right.
+- [06:16.740] Today's actions are saving over $2.4 billion
+- [06:22.540] for American families.
+- [06:24.520] It's safeguarding 350,000 jobs. Just in supermarkets alone,
+- [06:30.560] we're going to see a savings of $800 million,
+- [06:33.290] which Americans will be able to see
+- [06:35.330] when they go and buy their food.
+- [06:37.740] The Biden EPA face planted
+- [06:39.810] when trying to jam through their restrictions.
+- [06:44.090] Americans who wanted to be able to fix their equipment
+- [06:48.040] were instead being required
+- [06:49.760] to buy far more costly new equipment,
+- [06:52.910] and that just doesn't make any sense.
+- [06:55.630] Refrigeration trucks were being handed impossible restrictions
+- [07:00.200] to meet.
+- [07:01.420] And once again, here we are in the Oval Office,
+- [07:03.210] President Trump is righting another wrong.
+- [07:06.220] At the Trump EPA, we are proudly implementing
+- [07:08.700] President Trump's agenda every single day
+- [07:11.180] and delivering for the American people.
+- [07:14.960] The President: Thank you very much.
+- [07:16.520] Thank you. Please.
+- [07:18.440] Greg Foran: Thank you, Mr. President.
+- [07:19.880] And thank you, Lee.
+- [07:21.120] Look, on behalf of the Kroger Company,
+- [07:23.380] and we operate about 2,700 supermarkets,
+- [07:28.030] an orderly transition of equipment
+- [07:30.500] reduces both capital costs and operating costs.
+- [07:34.370] And at the end of the day, that's good for consumers
+- [07:37.850] because we're able to take that
+- [07:39.670] and put that into lowering prices,
+- [07:42.450] which is the key objective that we have in our business.
+- [07:45.410] So, thank you very much.
+- [07:47.770] The President: And you were able to save a lot of money
+- [07:49.420] and put it elsewhere by not having to do this ridiculous --
+- [07:53.120] Greg Foran: Exactly. So, it allows us,
+- [07:55.360] instead of having to outlay more capital
+- [07:58.910] at a faster rate and more operating costs,
+- [08:01.560] to change that equipment.
+- [08:03.460] The President: Which would replace a refrigerator
+- [08:05.010] that's working perfectly, right?
+- [08:06.590] Greg Foran: Yeah. So, that allows us --
+- [08:08.830] obviously these things have a have a lifespan,
+- [08:11.680] but an orderly transition allows us to move through that
+- [08:15.380] in a way which keeps the price of groceries down.
+- [08:18.970] And that's something that we're desperately focusing on,
+- [08:22.050] Mr. President.
+- [08:23.310] The President: Great. Thank you very much. Next.
+- [08:29.190] Kevin McDaniel: My name is Kevin McDaniel.
+- [08:30.830] We operate 14 Piggly
+- [08:32.270] Wiggly stores in North Florida, Alabama, and Georgia.
+- [08:37.360] On behalf of NGA, the Piggly Wiggly family,
+- [08:41.490] which operates -- has about 250 stores in the southeast,
+- [08:45.270] we want to thank President Trump
+- [08:46.580] for rolling this terrible Biden legislation back
+- [08:51.200] because, without it,
+- [08:52.440] there would've been a lot of independents out of business.
+- [08:55.300] And what people don't realize is it's just not
+- [08:56.890] a refrigerant change; it was an equipment change.
+- [09:00.700] And those equipment per store, you take a store,
+- [09:02.680] our stores run from 25,000 to 50,000 square feet.
+- [09:07.190] You could look for $800,000 to $1.5 million per store
+- [09:10.500] to do a change out. That would have done --
+- [09:13.010] The President: And new equipment would not be as good
+- [09:14.530] as the old equipment.
+- [09:15.790] Kevin McDaniel: No, absolutely not.
+- [09:17.050] The President: It would be inferior equipment
+- [09:18.610] because you weren't able to use a refrigerant.
+- [09:21.680] Kevin McDaniel: It was thrown together too fast,
+- [09:23.290] the technology isn't there yet. It's just way too fast,
+- [09:25.970] that's the problem. Good idea, but it's terrible.
+- [09:29.890] So, you would have had all these independents
+- [09:31.580] go out of business --
+- [09:33.230] you'd have independents out of business,
+- [09:34.760] and you would have seen grocery prices soar.
+- [09:36.770] That's what would have happened if this would have went through.
+- [09:38.820] President Trump, thank you very much.
+- [09:40.140] On behalf of every independent in the United States,
+- [09:42.480] we cannot thank you enough for what you've done for us.
+- [09:44.500] Thank you so much.
+- [09:46.220] The President: I mean, just the bottom line is,
+- [09:48.870] so you have great equipment that works incredibly,
+- [09:51.870] takes care of your meats and foods
+- [09:54.400] and everything else, beautiful refrigeration systems.
+- [09:57.450] Take it out and replace it with stuff that barely works,
+- [10:02.370] costs a fortune and it's no good.
+- [10:05.980] Think of it.
+- [10:07.250] And everyone's going to go bankrupt
+- [10:08.900] because the equipment is much more expensive
+- [10:10.790] on top of everything else.
+- [10:12.410] So, the big thing now, we've got to get rid of the law
+- [10:14.230] that was signed quite a while ago
+- [10:17.320] and we have to get rid of that
+- [10:18.640] because, ultimately, we want to make it permanent.
+- [10:21.860] There's no negative impact by having a good system,
+- [10:25.730] but there's a tremendous impact --
+- [10:27.110] I think it's going to be bad because a lot of people
+- [10:29.020] said the other stuff doesn't even --
+- [10:31.100] it doesn't cool your product. It's so crazy. Please.
+- [10:35.960] Michael Gay: Michael Gay. I have a single store,
+- [10:37.870] Food Fresh, in Claxton, Georgia.
+- [10:39.660] And exactly -- I mean, to echo everyone up here,
+- [10:43.590] these refrigeration costs,
+- [10:45.060] I'm the only store in a county of 10,000.
+- [10:47.970] I literally two years ago put in equipment
+- [10:50.100] that should have about 20 more years of useful life.
+- [10:52.810] And to replace literally every single piece of equipment
+- [10:55.050] in our store would have been unbelievably cost prohibitive.
+- [10:59.370] Driving up costs as we fight every day
+- [11:01.260] to try to keep them as low as we can.
+- [11:03.060] And if that cost gets too high,
+- [11:05.930] especially attached to a regulation,
+- [11:08.170] do you have independent stores closed in neighborhoods that,
+- [11:11.070] once I go away, you've created a food desert.
+- [11:13.960] So, it's very beneficial that this happened today.
+- [11:16.730] It's much more complicated than anyone thinks.
+- [11:19.450] And to try to rush this through was just the wrong way to go.
+- [11:22.770] So, we're very appreciative of you today.
+- [11:24.910] The President: I have one grocer who's a friend of mine,
+- [11:26.410] he's pretty big.
+- [11:27.620] And he said, I'm going to go ahead of the schedule.
+- [11:30.950] And he actually replaced a lot of his equipment.
+- [11:33.500] He called me up, he said, this crap doesn't work;
+- [11:36.110] it doesn't cool the food. So you know about that, right?
+- [11:40.730] What a shame. OK.
+- [11:42.810] Would anybody -- Kevin, would you like to say something?
+- [11:44.850] Kevin Hassett: Yeah, I'd just like to say, sir,
+- [11:46.130] that this is part of your overall deregulatory agenda.
+- [11:49.100] And the big number, $1.2 trillion is the savings so far.
+- [11:54.540] But we're going to be hitting that every year.
+- [11:56.630] Uh, and we're rolling back stuff that --
+- [11:58.640] every -- everywhere we look,
+- [11:59.950] there's stuff that's as awful as this,
+- [12:02.290] and I think that really one of the leaders has been Lee,
+- [12:05.750] because the EPA has been a holdup for so many years.
+- [12:08.490] But Lee is just out there saving Americans money.
+- [12:11.310] And right now, again, if you look at that number,
+- [12:13.050] it's $14,000 per family that's been saved
+- [12:16.070] and reduced costs because of deregulatory.
+- [12:17.920] The President: Do we agree that Lee is an MVP candidate?
+- [12:22.830] MVP. No, he's done a great job and he sees what's good
+- [12:27.120] and he's a big environmentalist.
+- [12:28.610] I mean, he wants to make sure everything is good,
+- [12:30.610] but he also sees stupid things like this.
+- [12:35.220] Senator, would you like to speak to this?
+- [12:37.140] Jon Husted: Well, Mr. President,
+- [12:38.340] I would like to thank you for this,
+- [12:39.570] because this hits our goal of trying to keep prices low
+- [12:42.140] for working families in America, the cost of food.
+- [12:45.170] I have the Graff family here right behind you.
+- [12:47.470] They operate three grocery stores in Columbiana County.
+- [12:50.600] They had already upgraded their refrigeration systems
+- [12:53.170] a few years ago.
+- [12:54.430] This was going to cost them millions of more dollars
+- [12:57.610] in Columbiana County, which is not an affluent county.
+- [13:00.130] It has a grocery store in East Liverpool, Ohio,
+- [13:02.840] which is the hometown of the late,
+- [13:04.510] great Lou Holtz and --
+- [13:06.200] and these people, not only would it raise food costs,
+- [13:10.040] but it might force them to shut a grocery store down
+- [13:12.150] so that the town didn't even have a grocery store.
+- [13:14.500] So you're saving -- you're saving money
+- [13:17.920] for working families and grocery prices.
+- [13:19.950] You're also saving grocery stores,
+- [13:21.500] so that we don't have food deserts
+- [13:22.820] in rural places across our country.
+- [13:24.520] The President: Yeah, yeah. That's what we're doing.
+- [13:25.760] Ashley Moody: Mr. President, I think it is so important
+- [13:28.090] that the people see what you choose
+- [13:29.740] to hang right by your desk,
+- [13:31.070] which is the Declaration of Independence,
+- [13:32.580] which is a reminder that government, at its core,
+- [13:35.290] is supposed to function in a way that allows people
+- [13:38.010] the opportunity to pursue happiness,
+- [13:40.010] and not work against them by coming up with regulations
+- [13:43.220] that just make it harder to live, more expensive to live.
+- [13:47.050] And from day one,
+- [13:48.610] I remember standing with you with this same crew of folks.
+- [13:51.690] From day one, you have been digging into
+- [13:53.650] all of these regulations
+- [13:55.930] that are issued with no thought to how they affect real people,
+- [13:59.930] and real small businesses and businesses
+- [14:02.310] trying to step up and provide jobs
+- [14:05.260] and lift up their communities.
+- [14:06.480] Thank you for that.
+- [14:07.690] Thank you for getting back to the core
+- [14:08.940] of what government is supposed to be,
+- [14:10.240] and that is working in the interests of the people.
+- [14:12.840] The President: Thank you. Thank you very much. Good job.
+- [14:15.190] Thank you, everybody.
+- [14:16.850] So any questions, please? Go ahead.
+- [14:19.480] The Press: Thank you, Mr. President.
+- [14:21.270] How much do you expect that this will save the average
+- [14:23.550] American family every week on groceries?
+- [14:26.100] And do you expect this change to help Republicans --
+- [14:28.120] The President: They're very, very substantial,
+- [14:29.550] are going to be a big saving.
+- [14:30.820] I could -- uh, we're breaking it down.
+- [14:32.700] In fact, numbers are coming out this afternoon sometime,
+- [14:35.380] but the average family will save a lot of money
+- [14:37.720] and you're going to have stores --
+- [14:38.990] you know, nobody actually thought of it
+- [14:41.780] until it was mentioned this morning.
+- [14:43.100] You will have stores closing down in areas
+- [14:45.460] where they're not going to have a store anymore.
+- [14:48.600] And you really are being forced to spend money --
+- [14:52.230] much more money on much more expensive equipment
+- [14:55.410] that really doesn't work.
+- [14:58.300] Uh, this friend of mine is a very savvy guy
+- [15:01.550] and, you know, big league stuff.
+- [15:03.610] And he put some in because he wanted to see
+- [15:05.460] and he said, the stuff doesn't work.
+- [15:06.810] It doesn't cool the food properly.
+- [15:09.010] That's why they call the thing that we're talking about
+- [15:11.590] a refrigerant for a reason. It's a refrigerant.
+- [15:15.220] So that's it. Please. Thank you very much.
+- [15:17.410] The Press: Yeah. Thanks, Mr. -- President Trump.
+- [15:19.020] Are there any assurances from the grocery chains
+- [15:21.860] that they'll pass these savings down to consumers?
+- [15:25.050] The President: Well, let's ask Kroeger about that.
+- [15:26.630] Come on. That's a very good question.
+- [15:28.710] You have the -- you have the biggest right here.
+- [15:30.900] Greg Foran: Yeah. We're actually
+- [15:33.240] right in the middle of doing that at the moment.
+- [15:35.230] So we're concerned about the cost of living.
+- [15:38.550] It makes a big difference when you get your pricing right
+- [15:41.280] and we certainly are interested in ensuring
+- [15:44.710] that all our customers right across the country
+- [15:47.650] are paying the right price.
+- [15:50.030] The President: You know, if it were the right thing to do,
+- [15:51.940] if it would be, you know, bad for the environment,
+- [15:54.550] what they had or anything -- I'm all for it.
+- [15:57.010] I'm all for that stuff but when you're forced
+- [15:59.420] to put in very inferior equipment,
+- [16:02.060] that's not going to work,
+- [16:03.340] you're going to be wasting a lot of food product
+- [16:05.580] because it doesn't cool the food properly.
+- [16:08.700] And it's actually a bad thing and it's --
+- [16:11.630] the bad thing is more expensive than what they already have.
+- [16:15.450] And in many cases, they just put it in.
+- [16:17.280] You know, they just put in the other apparatus that --
+- [16:21.590] and a lot of people have said
+- [16:23.690] they've spent money recently to do it
+- [16:26.760] and then this rule came up out of nowhere,
+- [16:29.280] and the stuff they just put in, they have to change.
+- [16:32.430] I'd be all for changing if it -- you know, if it was good.
+- [16:35.120] Even if it was a little bit good.
+- [16:37.240] But this is actually bad.
+- [16:38.530] The Press: Yeah, but you don't have
+- [16:39.890] any environmental concerns though, with this --
+- [16:41.710] The President: No, there is no environmental concern
+- [16:43.500] and Lee covered that really well.
+- [16:44.990] There's no environmental concern.
+- [16:46.870] It's not going to have any impact on the environment.
+- [16:50.130] The Press: Mr. President, with many Americans
+- [16:51.880] concerned about affordability ahead of the midterms,
+- [16:54.680] there is some backlash among Senate Republicans
+- [16:57.050] to some of the other priorities,
+- [16:58.960] the ballroom and the anti-weaponization fund.
+- [17:01.560] You clearly still have a stronghold
+- [17:03.160] in the Republican party your candidates did very well
+- [17:05.530] this week during the primaries. But are you losing control --
+- [17:08.400] The President: My candidates did well.
+- [17:09.810] Not all candidates did well.
+- [17:11.160] The Press: But are you losing control of the Senate, sir?
+- [17:14.320] Are you losing control of the Senate, Senate Republicans?
+- [17:16.850] The President: I don't know. I really don't know.
+- [17:18.560] I can tell you, I only do what's right.
+- [17:21.170] Um, I don't need money for the ballroom.
+- [17:23.180] You know, I'm making a gift of the ballroom.
+- [17:25.130] This is the biggest misreporting that I've ever seen.
+- [17:28.920] The ballroom is being built -- it will cost --
+- [17:31.670] it was going to be $200 million.
+- [17:33.020] I've doubled the size of it because we need it
+- [17:34.810] and it's being done in conjunction with the military
+- [17:36.980] and with the --
+- [17:38.940] very much in conjunction with the military and Secret Service.
+- [17:42.910] We're on time, on budget. It's going beautifully.
+- [17:46.220] Have all the money I need.
+- [17:48.140] We're making a gift to the United States.
+- [17:51.010] They came along and they said, we want to make it the House,
+- [17:54.930] the White House overall more secure,
+- [17:58.500] and I understand that.
+- [17:59.830] Not for me, because I'll be gone.
+- [18:01.220] You know, I'll be gone and you'll have somebody else in
+- [18:03.380] for hopefully hundreds of years.
+- [18:06.670] But that's what they're doing it for.
+- [18:08.710] The ballroom is paid for. It's a gift.
+- [18:10.510] I mean, I want to make it clear, because so many people say,
+- [18:13.570] I thought you were giving this away and all of a sudden,
+- [18:15.990] the money that they're spending is for security having to do
+- [18:18.420] maybe around the ballroom and other parts of the house.
+- [18:21.730] But this is not for the ballroom.
+- [18:23.930] The ballroom is being -- a tremendous amount
+- [18:27.920] of what's being done with respect to the ballroom
+- [18:30.160] is for national security, including, as an example,
+- [18:33.280] a drone port on top of -- which was top secret
+- [18:37.260] until litigation made it less than top secret.
+- [18:41.170] But we have a drone port.
+- [18:42.740] We have -- we have also we have the glass
+- [18:44.910] that's four inches thick, bulletproof glass.
+- [18:47.720] We have bulletproof walls. We have things --
+- [18:49.700] you need a place like this.
+- [18:51.350] But this is being made as a gift from me
+- [18:53.430] and other people that are great patriots,
+- [18:56.190] that spent a lot of money.
+- [18:57.490] We're building what will be the finest ballroom
+- [18:59.560] anywhere in the world.
+- [19:01.410] Uh, if they want to spend money on securing the White House,
+- [19:06.400] I think it would be very, very much a good expenditure.
+- [19:09.290] But the ballroom is being built.
+- [19:10.870] The Press: What if Congress doesn't sign off
+- [19:12.320] on the security money, sir?
+- [19:14.530] Then the White House won't be a very secure place.
+- [19:17.630] Then regarding Cuba, there was an aircraft carrier
+- [19:20.350] that just arrived there,
+- [19:21.840] um, just this week, the Nimitz aircraft carrier.
+- [19:25.470] Are you sending that there to intimidate the Cuban government?
+- [19:27.740] The President: No, not at all.
+- [19:29.070] The Cuba -- look, it's a failed country.
+- [19:31.230] Everybody knows it They don't have electricity.
+- [19:33.540] They don't have money.
+- [19:34.850] They don't have really anything they don't have food.
+- [19:37.560] And we're going to help them along
+- [19:39.080] and we're going to help them because the people --
+- [19:41.280] because, number one, I want to help them,
+- [19:43.010] you know, on a humanitarian basis.
+- [19:45.080] But we have the Cuban American population,
+- [19:48.080] much of it living in Miami, in Florida.
+- [19:50.590] That's a great group of people, amazing group of people,
+- [19:53.570] industrious, just, they're great Americans.
+- [19:57.040] They've wanted this to happen.
+- [19:58.440] They want to go back to their country.
+- [19:59.700] They want to help their country.
+- [20:00.930] I hope they're going to stay here,
+- [20:02.190] but they want to go back.
+- [20:03.470] They want to invest in their country and, you know,
+- [20:05.940] see if they can bring it back uh,.
+- [20:08.340] Other presidents have looked at this for 50,
+- [20:11.290] 60 years, doing something,
+- [20:12.730] and it looks like I'll be the one that does it.
+- [20:15.450] So -- and would be happy to do it.
+- [20:16.890] We want to open it up to Cuban Americans
+- [20:19.300] where they can go back and help.
+- [20:21.280] The Press: Mr. President, (Inaudible)
+- [20:22.780] released a report this morning,
+- [20:24.290] their report on the last election
+- [20:26.040] on why you won and Democrats lost.
+- [20:28.100] One thing that it mentions is how they fail to reach
+- [20:30.640] middle America, southern Americans.
+- [20:33.150] Do you think they've learned lessons from that election?
+- [20:35.930] And have you seen that report?
+- [20:37.290] The President: I think the elections are so rigged,
+- [20:39.000] and we have to do something about it,
+- [20:40.830] and we're going to do something about it.
+- [20:42.910] But we cannot continue to have --
+- [20:44.340] and frankly, the Senate and the House,
+- [20:46.320] they ought to get together
+- [20:47.600] and they ought to pass the Save America Act
+- [20:49.380] so that you have voter ID,
+- [20:51.590] and it's so important you have proof of citizenship.
+- [20:54.280] A little thing like proof of citizenship.
+- [20:57.540] And also, mail in voting, which is so crooked.
+- [21:00.350] So in Maryland, as you probably saw, they had 500 --
+- [21:04.040] 500,000 mail in votes that were corrupt.
+- [21:07.470] They were corrupt. They said the printer made a mistake.
+- [21:09.500] Don't believe that.
+- [21:10.930] And they got caught with 500,000 mail
+- [21:13.880] in ballots that were corrupt.
+- [21:15.440] We've got to stop it.
+- [21:16.640] We have a country that has a very corrupt --
+- [21:19.120] we have more corrupt elections than third-world countries have,
+- [21:24.230] and we ought to get smart, pass the SAVE America Act.
+- [21:27.040] That will be a long way.
+- [21:28.410] You have voter ID -- voter identification.
+- [21:31.270] The Democrats don't want to pass --
+- [21:33.330] now, I'll tell you what the Democrat voters
+- [21:35.040] do want to pass, 87 percent,
+- [21:37.490] but the Democrat politicians don't want to pass.
+- [21:40.180] And the reason is they'd never be elected again,
+- [21:43.380] because with their policy of open borders,
+- [21:46.170] transgender for everyone,
+- [21:47.920] I call it transgender mutilation of your children for everybody.
+- [21:52.970] Men playing in women's sports, all of the stuff that they do,
+- [21:55.910] high taxes, they want to tax high.
+- [21:58.430] They voted in favor of high taxes.
+- [22:01.010] They voted against a tax cut.
+- [22:03.380] They voted in favor of men playing in women's sports.
+- [22:07.070] I don't know what these people are thinking.
+- [22:08.560] The only way they can win is to cheat
+- [22:10.720] and that's what they want to do.
+- [22:12.210] And we ought to pass the SAVE America Act.
+- [22:13.540] Yeah, please.
+- [22:14.760] The Press: Yes, Mr. President, I have two questions for you.
+- [22:16.520] One of them which you love, first about the ballroom
+- [22:19.590] and the second about Iran. Um, first, I'm curious,
+- [22:22.700] what is the stone that you're going to be using?
+- [22:24.580] And I asked that for a reason
+- [22:25.860] because I live in Stafford County
+- [22:27.080] and you know a lot about history and stuff like that.
+- [22:28.570] The President: Yeah.
+- [22:29.840] The Press: So, you know, the stone that was quarried
+- [22:31.440] for the Capitol and the White House
+- [22:32.770] is from Stafford County.
+- [22:33.970] They still have quarries so hint-hint down there.
+- [22:37.120] The President: We're marbles and granite.
+- [22:38.870] Mostly marbles and granite.
+- [22:40.240] The Press: All right. Excellent. And then my second question is,
+- [22:42.350] the vice president mentioned the other day
+- [22:44.380] there will be accommodations --
+- [22:45.800] that you were willing to make accommodations
+- [22:47.240] with the Iranian deal.
+- [22:48.670] Um, could you kind of expand on those possible accommodations?
+- [22:51.660] Does that include --
+- [22:52.890] The President: When you say accommodation, of what?
+- [22:54.460] The Press: Accommodations, he's talking about accommodations
+- [22:56.350] as far as making a deal,
+- [22:57.610] making a deal going.
+- [22:58.840] Is that -- would that include the proxies?
+- [23:00.710] The President: Right now we're negotiating and we'll see.
+- [23:03.940] But either -- we're going to get it one way or the other.
+- [23:05.750] They're not going to have a nuclear weapon.
+- [23:07.120] You know, when people hear it,
+- [23:08.880] because oftentimes they won't put up
+- [23:10.520] the second part of the sentence, having to do with --
+- [23:13.330] I'll say, this is more important than anything
+- [23:16.000] that we have to talk about.
+- [23:17.580] And usually, they'll cut it off, the fake news.
+- [23:20.050] I say, because this is the nuclearization of a country,
+- [23:26.390] that some people would say is somewhat crazy,
+- [23:29.830] and we cannot let Iran have a nuclear weapon.
+- [23:32.150] That's all it is. We can't let it.
+- [23:34.070] You will have a nuclear war in the Middle East,
+- [23:38.010] and that war will come here, that war will go to Europe.
+- [23:41.470] We cannot let that happen, and it won't happen.
+- [23:43.110] It's not going to happen.
+- [23:44.350] That's more important than anything else.
+- [23:45.790] We can't -- I can think of nothing that's more important
+- [23:49.320] than the fact that we cannot let Iran have a nuclear weapon.
+- [23:52.110] And we won't. Yeah, Jeff.
+- [23:53.910] The Press: Following up on that, sir,
+- [23:55.190] Iran is negotiating with Oman
+- [23:57.410] to set up a formalization of charging tolls
+- [24:00.200] on the Strait of Hormuz. Is that acceptable to you?
+- [24:02.710] The President: Well, we're looking at it.
+- [24:03.980] We hear about it. They've negotiated
+- [24:06.280] they've had a relationship with them before, and we'll see.
+- [24:10.750] We have total control of the Strait of Hormuz,
+- [24:13.920] as you know, with our blockade.
+- [24:15.820] The blockade has been 100 percent effective
+- [24:17.490] nobody's been able to get through.
+- [24:18.800] It's like a steel wall.
+- [24:20.030] It's our navy.
+- [24:21.360] We have the greatest military anywhere in the world.
+- [24:23.610] We wiped out their navy. We wiped out their air --
+- [24:27.160] I think they're down to about I would say we knocked out
+- [24:30.840] 85 percent of their missile capacity.
+- [24:33.740] It's very hard for them now to build missiles to build drones.
+- [24:39.680] We have great drone technology, anti-drone technology now,
+- [24:43.390] that, frankly, we didn't have even two months ago.
+- [24:45.920] We have unbelievable drone technology, both --
+- [24:49.060] both for making them and also for knocking them down.
+- [24:52.660] But look, we're going to either make sure
+- [24:54.900] they don't have a nuclear weapon
+- [24:56.610] or we're going to have to do something very drastic.
+- [24:58.890] And the people of the country,
+- [25:01.250] I believe when it's put to the people of our country,
+- [25:04.040] they will all agree that we cannot let
+- [25:06.260] Iran have a nuclear weapon.
+- [25:07.550] Yes.
+- [25:08.890] The Press: Just let me -- just one follow-up on that.
+- [25:10.420] How do you want things to end up
+- [25:11.640] with the Strait of Hormuz, though?
+- [25:12.880] Would you like them to have control of that?
+- [25:14.400] The President: We want it open, we want it free.
+- [25:16.100] We don't want tolls. Uh, it's international.
+- [25:19.230] It's an international waterway. They're not charging tolls.
+- [25:22.760] Uh, right now, they are losing $500 million a day,
+- [25:26.000] is what it's projected.
+- [25:27.290] I don't know, it sounds like a lot of money,
+- [25:28.790] but whether it's 500 or 200 or 300,
+- [25:31.740] they're losing a lot of money.
+- [25:33.450] There hasn't been a ship that's been able to get through
+- [25:35.980] without our approval.
+- [25:37.780] And the Navy has done an amazing job.
+- [25:40.540] And no ship is going to Iran, as you know.
+- [25:44.690] No ship is going to or out of Iran without our approval.
+- [25:47.880] The Press: Can they keep their highly enriched uranium?
+- [25:50.320] The President: No, no we get the highly enriched.
+- [25:52.940] We will get it. We don't need it we don't want it.
+- [25:56.140] We'll probably destroy it after we get it,
+- [25:58.270] but we're not going to let them have it. OK?
+- [26:00.560] The Press: Mr. President, I have two questions,
+- [26:01.800] first on deregulation and second, on the Supreme Court.
+- [26:05.120] You coming from business, you've seen the effects
+- [26:08.110] of unnecessary red tape in business.
+- [26:10.920] Do you believe that given the amount of deregulatory actions
+- [26:14.510] taken along with this, the endangerment finding,
+- [26:16.380] the (Inaudible)
+- [26:17.620] standards, tax cuts and tariffs,
+- [26:19.570] do you believe that you've made the United States
+- [26:21.390] the most pro-business,
+- [26:23.060] pro-investment country in the world?
+- [26:24.940] The President: Yeah. Thank you very much for that question,
+- [26:26.850] because we are. We are --
+- [26:28.510] for every one new regulation that we add,
+- [26:31.390] we're getting rid of 20 to 30 to 40.
+- [26:34.050] And now it's actually at even a number --
+- [26:35.940] in my first term,
+- [26:37.870] for every regulation that was added,
+- [26:40.150] we got rid of a minimum of 10.
+- [26:42.720] And I understand, Lee, that it was up --
+- [26:44.510] it's up to 43 or 44 right now.
+- [26:47.440] So if we add a regulation, we get rid of 43, 44.
+- [26:51.840] We're making it a much more pro-business pro-people.
+- [26:56.340] Uh, you know, regulations are very costly for the people.
+- [26:58.970] They're bad for everybody.
+- [27:00.220] They're bad for jobs, bad for every --
+- [27:02.150] and we have, as of today,
+- [27:03.360] we have more people working in the United States
+- [27:05.490] than at any time in the history of our country.
+- [27:07.300] It's a -- to me, it's one of my favorite stats.
+- [27:10.210] But we have more people today working in the United States
+- [27:12.990] than at any time in the history
+- [27:14.350] and this is with the Iran conflict.
+- [27:17.360] That will end soon, very soon.
+- [27:19.630] And when it ends, your gasoline prices
+- [27:21.570] will go down lower than they were before.
+- [27:24.100] You know, I left Iowa a few months ago
+- [27:26.930] and gasoline was at $1.85 a gallon.
+- [27:30.890] And we'll be hitting numbers like that again soon.
+- [27:34.230] We'll be hitting them in a much nicer way, by the way.
+- [27:37.920] We will be hitting them and we will have a country
+- [27:39.740] that will not have a nuclear weapon.
+- [27:40.960] Yeah, Daniel.
+- [27:42.160] The Press: So why has so why has today's executive --
+- [27:45.270] On the Supreme Court, sir, we're still waiting for the decision
+- [27:47.580] on birthright citizenship.
+- [27:49.370] You've attended the oral arguments of that.
+- [27:51.250] Can you just explain what's at stake with that decision, sir?
+- [27:54.170] The President: It's a big decision
+- [27:55.370] that we're waiting for from the Supreme Court.
+- [27:58.890] We had a terrible tariff decision.
+- [28:00.900] They cost -- they cost our country a fortune.
+- [28:03.780] They said, do it a different way.
+- [28:05.630] We're doing it a different way
+- [28:06.830] but we're going to most likely have to pay back $149 billion.
+- [28:11.680] All they had to do is put a little sentence in there,
+- [28:13.520] half a sentence,
+- [28:14.740] saying that any monies paid don't have to be paid back.
+- [28:18.240] You know, you're talking about the people, in many cases,
+- [28:20.390] that hate our country, give them back money.
+- [28:23.090] It was a terrible decision and it's not going to affect
+- [28:27.310] because we do the tariffs a different way.
+- [28:29.220] The tariffs are what's bringing in all of this money.
+- [28:32.860] It's really made our country rich, modernly rich.
+- [28:36.780] Now we have another one coming up,
+- [28:38.280] which is birthright citizenship.
+- [28:40.970] And we're the only country in the world that has it.
+- [28:44.430] You step into our country
+- [28:45.670] and you're all of a sudden a citizen.
+- [28:47.200] You come in a certain way --
+- [28:48.440] this was not meant for Chinese billionaires
+- [28:52.570] to have their children become citizens of our country.
+- [28:56.160] This was meant for other -- rich people, poor people,
+- [28:59.770] this was meant for the babies of slaves.
+- [29:03.690] This was signed during -- right after the Civil War.
+- [29:06.830] You look at the dates, the dates alone, immediately after.
+- [29:10.340] This was having to do with the babies of slaves
+- [29:14.820] and people have used it. And if this is allowed to stand,
+- [29:18.370] it will be a disaster economically for our country
+- [29:21.950] and you'll have 25 percent of the people
+- [29:24.380] coming into our country
+- [29:25.850] coming in through birthright citizenship
+- [29:29.180] and we won't have any control.
+- [29:31.250] This decision by the Supreme Court is a very big one.
+- [29:34.820] They'll probably rule against me
+- [29:36.480] because they seem to like doing that.
+- [29:38.500] Uh, you know,
+- [29:39.770] frankly I'm not happy with some of the decisions.
+- [29:43.840] Look at NIL. Look what they've done.
+- [29:45.630] Look what --
+- [29:46.870] look what the courts have done to college sports.
+- [29:49.630] They're destroying college sports.
+- [29:51.290] They're destroying universities.
+- [29:53.530] But birthright citizen is a big deal.
+- [29:56.450] And literally, if that's allowed to stand --
+- [30:00.410] and again, this was a civil war --
+- [30:02.510] this was right after the Civil War
+- [30:04.930] and it has to do with the babies of slaves.
+- [30:07.270] It doesn't have to do with the babies of very rich people
+- [30:10.790] coming into the country.
+- [30:12.890] One of them came in with 57 children,
+- [30:15.730] OK, 57 children. They're using the system,
+- [30:19.280] and it's usually people that hate our country,
+- [30:21.130] if you want to know the truth.
+- [30:23.040] Birthright citizen is done by no other country,
+- [30:27.570] no other country in the world, the way we're doing it.
+- [30:32.510] It's -- it's -- we're a laughing stock.
+- [30:36.040] And if the Supreme Court approves that decision,
+- [30:38.920] they have done a great disservice
+- [30:40.880] to the United States of America,
+- [30:42.480] just like they did a great disservice
+- [30:44.540] by costing us $149 billion
+- [30:48.000] on tariffs by saying, do it a different way.
+- [30:51.150] Get the same result, do it a different way.
+- [30:53.950] We should have won that decision.
+- [30:55.420] We had a very strong very powerful dissent.
+- [30:58.000] We had three dissents.
+- [30:59.490] So it wasn't like a unanimous decision by any means.
+- [31:02.330] We had very powerful dissents. When you read that dissent,
+- [31:05.330] people that read that dissent say,
+- [31:06.840] you really should have won this case.
+- [31:08.180] We should have won that case on tariffs.
+- [31:10.650] That case cost our country $149 million.
+- [31:13.590] It goes to people that hate our country.
+- [31:16.800] So now we have another one coming up,
+- [31:18.980] birthright citizenship. It would be a disgrace.
+- [31:23.260] It would be a disgrace if the Supreme Court
+- [31:26.360] of the United States allows that to happen.
+- [31:30.680] Remember what I said --
+- [31:32.010] 20 to 25 percent of the people coming into our country
+- [31:36.220] will come in through birthright citizenship.
+- [31:38.860] They'll become citizens through birthright citizenship,
+- [31:43.290] and it will cost us numbers that are --
+- [31:47.340] I don't even think they're doable.
+- [31:49.560] And it's all up to a couple of people,
+- [31:52.110] and I hope they do what's right.
+- [31:53.760] Birthright citizenship is a disgrace, the fact that --
+- [31:57.630] look at the people that are bringing the suit.
+- [32:00.280] Study the people that are bringing the suit.
+- [32:02.110] These are not people that love our country,
+- [32:03.910] I can tell you that.
+- [32:05.110] The Press: Mr. President,
+- [32:06.330] why has today's executive order on AI been postponed?
+- [32:09.780] The President: Because I didn't like certain aspects of it,
+- [32:12.720] I postponed it. I think it gets in the way of --
+- [32:16.480] we're leading China, we're leading everybody.
+- [32:18.620] And I don't want to do anything that's going to get
+- [32:20.520] in the way of that lead. We have a very substantial --
+- [32:23.800] on AI, it's causing tremendous good
+- [32:27.940] and it's also bringing in a lot of jobs,
+- [32:30.190] tremendous numbers of jobs.
+- [32:32.000] Again, we have more people working right now
+- [32:33.720] than we've ever had.
+- [32:35.820] I really thought that could have been a blocker
+- [32:37.680] and I want to make sure that it's not.
+- [32:41.930] The Press: With President Xi last week,
+- [32:43.250] did you discuss AI safeguards?
+- [32:47.400] In China last week with President Xi,
+- [32:48.910] did you discuss AI safeguards?
+- [32:50.490] The President: Yes. I did.
+- [32:51.730] I discussed it and he acknowledges
+- [32:55.120] how well we're doing. We're doing well. He's doing --
+- [32:57.260] it's the two of us, the two countries are fighting for it.
+- [33:00.470] Other countries are way behind; way, way behind.
+- [33:04.490] They're fighting for it, they want it, everybody wants it
+- [33:06.680] but they're way behind.
+- [33:08.000] But I didn't want to do it. I postponed that meeting.
+- [33:10.340] It was a press conference -- it was a signing, actually,
+- [33:13.220] because I didn't like what I was seeing.
+- [33:14.780] The Press: Mr. President, a few moments ago,
+- [33:16.350] the Commission of Fine Arts approved your design,
+- [33:18.650] the design for your arch.
+- [33:20.470] Do you think you need Congressional approval for it?
+- [33:22.910] The President: I finally get good news from --
+- [33:26.010] what was the vote? Do you know what the vote was?
+- [33:28.260] What was the vote?
+- [33:29.650] The Press: I'm just seeing the headline here.
+- [33:31.500] I don't have the exact quote.
+- [33:32.790] The President: So, we're building what's called
+- [33:34.080] a triumphal arch
+- [33:35.570] right opposite the Arlington Memorial Bridge,
+- [33:38.440] right by Arlington Cemetery. It's beautiful.
+- [33:41.100] The Arc de Triomphe would be the one
+- [33:42.640] that you would probably know in Paris.
+- [33:45.010] It's one of the most beautiful.
+- [33:46.360] It's a very similar size, slightly larger.
+- [33:49.010] We're doing -- we have to do slightly larger.
+- [33:50.860] It doesn't have to be a lot larger,
+- [33:52.880] otherwise you'd all be disappointed in me.
+- [33:55.580] But it's even far more beautiful.
+- [33:57.360] And I think that the Arc de Triomphe is beautiful;
+- [33:59.690] it's a couple of hundred years old,
+- [34:01.460] but I think it's beautiful.
+- [34:03.290] And some arcs go back over a thousand years,
+- [34:07.280] and it's called a triumphal arch.
+- [34:09.350] It's usually done for victories in war and things,
+- [34:13.770] 59 of them in the world and some are really beautiful.
+- [34:17.390] And we're the only major --
+- [34:19.550] Washington DC, which should be number one.
+- [34:22.880] We're the only important and major city
+- [34:25.120] that doesn't have one. We don't have a triumphal arch.
+- [34:27.490] So, it was meant to be built for many years.
+- [34:31.110] The circle going up to the bridge, it was --
+- [34:33.600] people pass that circle,
+- [34:34.870] they say, why isn't something built here?
+- [34:37.300] And so, that's very good.
+- [34:39.260] We just got approval from Fine Arts.
+- [34:40.640] That's fantastic.
+- [34:41.860] The Press: But you need Congress to sign off on it.
+- [34:43.970] The President: No, we don't. No, no, we're doing it,
+- [34:46.740] the land is owned by secretary -- by the Interior Department.
+- [34:50.460] We don't need anything from Congress.
+- [34:52.490] The Press: Are you attending your son's wedding this weekend,
+- [34:55.720] by the way?
+- [34:57.390] The President: He'd like me to go.
+- [34:58.900] But it's going to be just a small, little private affair,
+- [35:01.220] and I'm going to try and make it I'm.
+- [35:03.430] I'm in the midst --
+- [35:04.710] I said, you know, this is not good timing for me.
+- [35:07.310] I have a thing called Iran and other things.
+- [35:11.200] That's one I can't win on. If I do attend, I get killed.
+- [35:15.800] If I don't attend, I get killed --
+- [35:17.580] by the fake news of course I'm talking about.
+- [35:19.680] No, but he's got a very --
+- [35:23.680] a person who I've known for a long time,
+- [35:25.710] and hopefully they're going to have a great marriage.
+- [35:28.250] The Press: Mr. President, actually to add to the arc,
+- [35:30.940] I just actually passed by it on my way here,
+- [35:33.110] saw the pink flags and there's just geese
+- [35:35.560] that are there all the time. So, it's perfect.
+- [35:37.620] How long will that take? And also, I have to say --
+- [35:39.560] I have to pass along something for my mother
+- [35:41.150] because she drove in with me. She was amazed by all the people
+- [35:44.750] she was seeing on the streets here in DC.
+- [35:46.370] She doesn't get in here as much.
+- [35:47.630] The President: DC is hot again.
+- [35:49.030] The Press: But she was noticing how clean and beautiful it was,
+- [35:51.130] so I'm passing it along.
+- [35:52.330] The President: Right. Well, that's the way I do, clean.
+- [35:54.110] Take a look outside, we had a broken --
+- [35:57.050] we had a broken path, it was so terrible,
+- [35:59.810] coming into the White House. It was slate.
+- [36:02.280] Slate is a roofing material; it's not a walking material.
+- [36:04.770] But the slate was all broken and chipped and terrible,
+- [36:07.980] and I put down a new granite floor
+- [36:09.670] and paid for it myself, by the way.
+- [36:11.940] But I put down a nice new granite floor,
+- [36:13.540] it looks beautiful.
+- [36:14.760] It's actually getting rave reviews.
+- [36:16.330] It's beautiful --
+- [36:17.940] terrible having people walking up to the White House
+- [36:20.310] and they're walking over broken tiles and broken floors.
+- [36:23.520] So now, we just finished, it's going to be finished
+- [36:26.420] when the moldings are put on. But you might take a look at it,
+- [36:29.850] I don't know if you've seen it, but it's beautiful.
+- [36:31.740] Very beautiful.
+- [36:33.030] Other things we're doing while you're at it, we fixed --
+- [36:36.120] we have 31 fountains in Washington.
+- [36:41.300] Of the 31, not one worked. Now we have 21 working,
+- [36:45.540] and the others are going to be fixed and people are calling
+- [36:47.950] and saying, it's amazing what's happened, the fountains.
+- [36:51.140] And they're working top level.
+- [36:52.740] And my most exciting is the reflecting pool
+- [36:56.320] between the Washington Monument and the --
+- [37:00.500] the Washington Monument, Lincoln Memorial.
+- [37:03.540] It's 2,500 feet long by almost 200 feet wide.
+- [37:08.960] It's a massive structure if you think of it.
+- [37:11.260] It's taller than the tallest building in the world.
+- [37:13.890] If you sat the building down,
+- [37:15.950] the tallest building in the world
+- [37:17.330] would not reach the end of it, it's a very big thing.
+- [37:20.660] It hasn't worked properly since it was built in 1922.
+- [37:25.300] Presidents Obama and Biden spent hundreds of millions of dollars
+- [37:28.870] trying to fix it, they didn't.
+- [37:30.220] Of course, they couldn't do that, they didn't fix it,
+- [37:32.570] it was a mess so mostly they turned it off --
+- [37:36.070] collecting garbage, it looked horrible.
+- [37:38.500] And we are very close to getting it finished.
+- [37:40.730] And when it's finished, it'll be beautiful.
+- [37:42.400] It'll be blue water, dark blue, we call it American Flag Blue
+- [37:46.930] because that's the name of the color that we chose.
+- [37:50.100] American flag blue -- can't do better than that.
+- [37:52.980] It's a rich dark blue and it'll be,
+- [37:56.510] I think, very reflective, very, very good, big project,
+- [38:02.220] I decided to do a much bigger job.
+- [38:04.220] I was going to just get it open, but I said, let's do it right,
+- [38:07.370] let's get it open and let's have it be good.
+- [38:09.010] Because President Obama,
+- [38:11.450] President Biden spent hundreds of millions of dollars,
+- [38:14.640] much more than $100 million, but hundreds of millions.
+- [38:17.180] It never worked. In fact, when they finished it,
+- [38:21.040] it was much worse than it was before.
+- [38:23.020] It leaked at a higher level.
+- [38:25.310] They would have to fill it up every single day with water,
+- [38:28.000] the whole thing was ridiculous, so they ended up turning it off
+- [38:31.070] and it became like a garbage dump.
+- [38:33.580] Well, it's pretty close to finished.
+- [38:37.040] So, they were going to --
+- [38:38.440] they had estimates of $350 million to fix it.
+- [38:42.210] I'll be doing it for a tiny fraction of that.
+- [38:46.970] A bigger job than -- I originally thought I'd do it
+- [38:49.580] for $2 million or $3 million, just do a base.
+- [38:52.100] But now we're fixing up the exterior of it we're doing.
+- [38:54.570] So, we'll probably be in it for less than $20 million.
+- [38:57.970] And the estimate was going to be using a different method, 350.
+- [39:03.320] It was going to take four years, $350 million.
+- [39:08.730] I'll be doing it in basically a couple of months
+- [39:11.530] for less than $20 million.
+- [39:14.920] That includes all of the exterior base,
+- [39:16.670] which I never included in my original numbers.
+- [39:20.250] When I went there last week, I saw the exterior
+- [39:23.290] was in very bad shape as well as the interior.
+- [39:25.510] So, I said we're going to fix that too, the stone.
+- [39:28.270] It's going to be beautiful.
+- [39:29.490] When that's done, you might see it.
+- [39:30.900] It's probably three-quarters done.
+- [39:33.550] We have rain delays; we get a lot of delays.
+- [39:35.670] But that will be something special.
+- [39:40.490] The reflecting pool in front of the Lincoln
+- [39:43.390] and Washington monuments,
+- [39:46.660] I think it's going to be incredible.
+- [39:48.600] It's largely done, if you want to go see it,
+- [39:50.380] you can see it before we put the water in.
+- [39:53.160] The key is to have it done before July 4th;
+- [39:55.740] we want to see if we can have it done before July 4th.
+- [39:58.250] But we have about 20 or 21 of the water features
+- [40:04.760] in Washington open.
+- [40:06.400] And I can say top of the line,
+- [40:10.240] they look better than they did the day they were built.
+- [40:12.320] Some of them have been closed for 25, 30 years;
+- [40:15.210] there's been no water for 25 or 30 years
+- [40:18.320] and they're really beautiful.
+- [40:19.540] Some of the fountains are as beautiful as I've ever seen,
+- [40:22.790] and you probably see them.
+- [40:25.500] And in addition to that, you brought up something --
+- [40:27.850] Washington, DC, is now a safe city.
+- [40:31.220] We had a city that was one of the most unsafe cities
+- [40:35.220] anywhere in the country,
+- [40:36.760] and now it's considered a very safe city.
+- [40:38.610] Restaurants are opening. Restaurants were closing;
+- [40:41.890] you couldn't go to a restaurant;
+- [40:43.950] the restaurants were closing all over
+- [40:45.930] because of the danger from -- during the Biden administration.
+- [40:51.060] Now you have restaurants opening, it's thriving
+- [40:53.390] and it was very nice that you said that.
+- [40:55.550] I like this reporter. No, it's nice.
+- [41:00.290] We have a vibrant city again; people are going out.
+- [41:03.260] I have a lot of people in the White House.
+- [41:04.800] Every time I see somebody, they thank me
+- [41:06.550] and I know immediately why.
+- [41:08.330] They thank me for making the city safe.
+- [41:10.120] They walk to work now; before that,
+- [41:13.380] they'd take Uber or something,
+- [41:14.830] and they were -- they felt unsafe even in Uber.
+- [41:17.970] You know, we moved over 5,000 people out of the city,
+- [41:21.710] career criminals that came in through the open borders
+- [41:24.700] and other reasons, and we moved over 5,000.
+- [41:28.200] And interesting statistic is that 2 percent of the population
+- [41:34.610] creates 91 percent of the crime. And the reason I like that
+- [41:40.020] is that you can handle 2 percent of the population.
+- [41:42.380] The President: Mr. Kroeger,
+- [41:43.620] I see you have stores in Washington,
+- [41:46.010] you see a big difference?
+- [41:47.370] Greg Foran: We do.
+- [41:48.620] The President: Boy, you said the right thing.
+- [41:49.850] Can you imagine? That would have been the end of Kroeger.
+- [41:54.080] All right, OK, we'll do we'll do one or two more, please.
+- [41:58.290] The Press: Do you think Democrats are genuine
+- [42:00.260] in their focus on affordability,
+- [42:01.850] especially after they delivered 40-year high inflation
+- [42:04.380] last time they were in power?
+- [42:05.740] And then -- or do you think they're using it
+- [42:08.730] or focusing on it as a means to try and win midterms
+- [42:11.360] and begin the impeachment process?
+- [42:12.670] The President: Yeah, the second.
+- [42:13.870] Look, the Democrats had the highest inflation
+- [42:16.440] in the history of our country,
+- [42:17.810] 48 years they say, but the history of our country.
+- [42:21.480] They had the highest inflation that we've ever had.
+- [42:24.710] When I inherited it, I inherited very high prices.
+- [42:28.640] And from day one they said affordability,
+- [42:32.450] affordability, a word because they're good at that.
+- [42:35.080] They're good at words but I'm good at words, too.
+- [42:37.670] But they hit me with affordability,
+- [42:39.100] I'd just gotten there. They hit me with eggs.
+- [42:42.130] We had a news conference on my third day
+- [42:45.090] and they said, egg prices are through the roof.
+- [42:48.000] I said, I just got here, tell me about eggs.
+- [42:49.880] And we got the prices down, way down,
+- [42:52.610] actually lower than it was four years before.
+- [42:55.640] But we've gotten everything. The thing that we have now,
+- [42:58.210] the only thing that's really of great concern, two things --
+- [43:02.690] beef is coming down and the reason
+- [43:05.260] is they put restrictions on beef under the Biden administration,
+- [43:08.450] and it takes a while to settle that.
+- [43:11.060] But prices are down.
+- [43:12.540] But the big thing is, of course, energy.
+- [43:15.100] We had the energy way down,
+- [43:17.210] but I had to do a journey to Iran.
+- [43:18.970] I had to say, you know, we just hit the best markets.
+- [43:21.610] By the way, the stock market today
+- [43:23.750] is at the highest it's ever been and we've had 59 of them,
+- [43:27.640] 59 days out of a very short period of time
+- [43:30.830] where the stock market hit all-time highs.
+- [43:32.910] So, we have an all-time high stock market.
+- [43:36.010] We have all-time high job numbers.
+- [43:38.240] We have 401(k)s just hit the highest number
+- [43:40.620] they've ever been. So, many of you have 401(k)s,
+- [43:44.260] that means you're richer than you've ever been.
+- [43:46.410] And we're doing really well.
+- [43:47.740] But they came up with this word, affordability,
+- [43:52.010] but it's them that caused the problem.
+- [43:55.360] And they use that word -- Senator, Senator,
+- [43:58.360] they used that word right from the beginning.
+- [44:00.550] I was in one day and I heard somebody on television
+- [44:04.290] say affordability,
+- [44:07.170] and I inherited this mess from them.
+- [44:09.800] But we've got it in great shape. The country is doing well;
+- [44:13.230] we're respected all over the world.
+- [44:14.960] This country is respected; we're the hottest country.
+- [44:17.070] We were a dead country two years ago
+- [44:19.820] and now we're the hottest country anywhere in the world.
+- [44:21.990] So, I think most of you appreciate that,
+- [44:25.210] some of you don't. Yeah, please.
+- [44:26.860] The Press: (Inaudible) Washington Times.
+- [44:29.170] If the Supreme Court doesn't rule in your favor
+- [44:31.310] on birthright citizenship, are there any other avenues
+- [44:34.040] that your administration has explored to remedy this?
+- [44:36.620] And did -- you talked with President Xi
+- [44:39.770] about Chinese foreign nationals
+- [44:42.030] taking advantage of birth tourism
+- [44:44.450] here in this country and how he could perhaps --
+- [44:46.280] The President: Well, that's a great question, no.
+- [44:47.660] If the Supreme Court hurts our country by ruling against us
+- [44:52.900] on birthright citizenship, that would be just --
+- [44:55.850] between that and tariffs, what damage they've done,
+- [44:59.550] what damage they've done. Again, they could have said,
+- [45:04.730] which they said do the tariffs a different way.
+- [45:07.720] But they could have said the money taken in,
+- [45:10.290] hundreds of billions of dollars,
+- [45:13.420] $149 billion we have to pay back.
+- [45:16.480] Kevin understands that better than anybody.
+- [45:18.450] All they had to do is say any money taken in --
+- [45:21.370] because they agree you could do it a different way.
+- [45:23.880] Any money -- this is a better way
+- [45:26.350] but the other way is a very secure way,
+- [45:28.900] and maybe in many ways it's a stronger way.
+- [45:31.280] They could have said any money taken in thus far
+- [45:35.260] does not have to be paid back to,
+- [45:37.520] in many cases, the enemy, people that don't like our country --
+- [45:40.920] or it was a half a sentence.
+- [45:43.170] The Supreme Court could have saved us $149 billion
+- [45:48.090] with a half a sentence, but they chose not to do that.
+- [45:51.290] Now they have a ruling, which is a much bigger ruling,
+- [45:54.110] actually, birthright citizenship.
+- [45:57.080] The cost -- forgetting about the fact that it's wrong,
+- [46:01.030] the cost of birthright citizenship
+- [46:03.360] is barely not affordable by our country.
+- [46:06.950] It's going to cost hundreds of billions of dollars
+- [46:11.210] and it's in their hands, what can I tell you?
+- [46:13.350] It's a commonsense ruling, it's common sense.
+- [46:16.560] It was about -- it was exact timing,
+- [46:19.830] and it's about the babies of slaves.
+- [46:23.160] Thank you for that question.
+- [46:26.030] The Press: Thank you, Mr. President.
+- [46:27.270] So, do you think if Democrats
+- [46:28.630] were to take control of Congress again,
+- [46:30.340] they would immediately begin the impeachment process?
+- [46:32.470] The President: I think if Democrats took control
+- [46:34.640] of the Congress, I think that --
+- [46:37.620] and let's say, took control of the country,
+- [46:40.950] I think that this country is finished.
+- [46:43.220] These people are sick.
+- [46:44.900] They suffer from Trump derangement syndrome.
+- [46:47.140] But really, they have bad policy,
+- [46:50.320] they have horrible policy. They cheat on elections.
+- [46:52.600] They get elected by cheating on elections.
+- [46:54.920] But you would have two states added,
+- [46:57.890] they'll terminate the filibuster immediately,
+- [46:59.970] Republicans should do that,
+- [47:01.850] they'll terminate the filibuster.
+- [47:03.280] You'll have Washington, DC,
+- [47:05.670] and you'll have Puerto Rico as a state,
+- [47:08.300] which will be a disaster,
+- [47:10.450] which would be four Senate seats,
+- [47:13.080] tremendous numbers of Electoral College votes.
+- [47:20.040] You will have -- that's really bad,
+- [47:23.420] but you will have the destruction of our country.
+- [47:25.230] They want to go to 21 Supreme Court judges;
+- [47:27.460] that's their perfect number.
+- [47:28.810] They talk about 13 but they want to go to 21 --
+- [47:33.550] 21 Supreme Court judges. If they get in power,
+- [47:39.280] I think this country would be maybe finished.
+- [47:42.740] If I didn't win the election -- I'll say this --
+- [47:45.320] we've become the hottest country anywhere in the world.
+- [47:48.490] We were a dead country two years ago.
+- [47:51.510] If I didn't win this election, we would have been a country
+- [47:54.630] that was essentially -- would have been --
+- [47:57.530] I don't even know that we would have been a country any longer.
+- [48:00.380] They were destroying our country;
+- [48:01.740] they were letting hundreds of thousands;
+- [48:03.540] millions of people pour through our southern border.
+- [48:08.160] Criminals, people from jails, people from mental institutions,
+- [48:13.590] drug dealers and drug addicts. They were sending everybody --
+- [48:17.730] countries were sending everybody
+- [48:19.330] that they didn't want by the millions, 25 million people.
+- [48:24.500] If I didn't win this election,
+- [48:26.170] I believe our country would have been finished.
+- [48:28.360] Thank you very much, everybody. Thank you.

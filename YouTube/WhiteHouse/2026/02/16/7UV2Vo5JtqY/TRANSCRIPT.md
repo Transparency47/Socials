@@ -1,0 +1,182 @@
+<!-- source: https://www.youtube.com/watch?v=7UV2Vo5JtqY -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 7UV2Vo5JtqY -->
+<!-- date_published: 2026-02-16T22:04:02+00:00 -->
+<!-- date_accessed: 2026-06-02T01:05:20.303147+00:00 -->
+
+# Transcript: The Story of America: Forgotten Heroes of the American Revolution
+
+- [00:04.500] (mix of famous American history quotes)
+- [00:38.800] Scott Turner: Nearly 250 years ago,
+- [00:41.340] 56 men signed their name to a document
+- [00:44.350] that sparked a revolution in political thought
+- [00:47.050] and changed the course of history.
+- [00:50.340] They declared to the world that all men are created equal,
+- [00:53.540] that they are endowed by their Creator
+- [00:55.480] with certain unalienable rights,
+- [00:57.760] that among these are life, liberty,
+- [01:00.090] and the pursuit of happiness.
+- [01:02.820] In the 250 years since those immortal words
+- [01:05.530] were delivered to King George III Americans of all backgrounds
+- [01:09.600] have risked their lives, fortunes, and sacred honor
+- [01:12.950] to fulfill the promise of the declaration.
+- [01:16.510] Unfortunately, in recent years,
+- [01:18.160] some have sought to spread the falsehood
+- [01:20.770] that the practice of slavery made America's founding
+- [01:23.280] principles irredeemably flawed. No doubt slavery is evil.
+- [01:27.650] No circumstance justifies treating
+- [01:29.530] human beings as commodities to be sold
+- [01:31.760] and subjected to indescribable cruelties.
+- [01:34.870] As the Bible teaches,
+- [01:36.430] every person is made in the image and likeness of God.
+- [01:39.670] Galatians 3.28 says,
+- [01:41.290] "There is neither Jew nor Greek, slave nor free.
+- [01:46.220] For you are all one in Christ Jesus."
+- [01:50.500] Unity in Christ transcends all earthly divisions,
+- [01:54.210] for we are all workmanship created
+- [01:56.300] in Christ Jesus for good works.
+- [01:59.330] Many of the founders did not fully live up
+- [02:01.610] to the biblical principles of freedom.
+- [02:04.030] But the words of the Declaration of Independence
+- [02:06.360] set in motion a chain of events
+- [02:08.800] that ultimately set slavery on a path to extinction.
+- [02:14.480] Our story is a redemption story.
+- [02:16.830] What makes us the greatest country in the world
+- [02:18.910] is that we overcome flaws and work through conflicts
+- [02:22.370] together as one nation under God.
+- [02:27.500] From the very beginning,
+- [02:28.780] heroes of all backgrounds risked their lives
+- [02:31.400] to secure American independence 250 years ago.
+- [02:36.120] Thousands of African Americans enslaved and freed,
+- [02:39.400] fought in the revolution.
+- [02:41.050] They did not wait to be liberated by others,
+- [02:43.750] but they seized their claim to liberty
+- [02:45.920] upon the anvil of revolution. Their names are less well known,
+- [02:50.750] but their courage was no less valued.
+- [02:53.570] Today I would like to tell you the stories
+- [02:55.900] of just a few of these brave,
+- [02:57.580] forgotten heroes who helped win the freedoms we hold today.
+- [03:03.160] On April 18th, 1775, the night of Paul Revere's ride
+- [03:07.400] in the eve of the first shots of the Revolutionary War,
+- [03:10.720] Prince Estabrook, a slave of Lexington's Estabrook family,
+- [03:14.970] was summoned to join the local militia
+- [03:17.410] under the command of Captain John Parker at Lexington.
+- [03:21.440] Though not a free man,
+- [03:22.990] Estabrook marched into battle alongside his master's own son,
+- [03:27.190] struck by a musket ball in his left shoulder.
+- [03:30.220] He became the first African-American
+- [03:32.100] to suffer wounds for our young republic.
+- [03:34.930] He returned to battle after recovery,
+- [03:37.440] standing guard at Bunker Hill
+- [03:39.500] and serving for eight years in the fight for independence.
+- [03:43.260] At the war's end, Estabrook was finally free.
+- [03:46.810] In the Southern campaigns, James Armistead Lafayette
+- [03:50.770] performed deeds worthy of the ancients.
+- [03:54.750] With the revolution broken to open fire,
+- [03:56.760] the Virginian slave obtained the permission of his master
+- [04:00.620] to enlist under the Marquis de Lafayette.
+- [04:03.720] A slave turned double agent,
+- [04:05.970] Armistead infiltrated British camps
+- [04:08.560] by posing as a runaway slave,
+- [04:10.760] gathering intelligence from the army of General Cornwallis.
+- [04:14.690] Given his deep knowledge of Virginia,
+- [04:17.210] Armistead quickly infiltrated the British army
+- [04:19.560] and passed critical military plans and information
+- [04:22.840] to the Marquis de Lafayette.
+- [04:26.640] Thanks in no small measure to Armistead's efforts,
+- [04:29.810] the Battle of Yorktown was a resounding victory
+- [04:32.770] for the Continental Army,
+- [04:34.410] making it the last major battle of the Revolutionary War.
+- [04:38.580] Though initially denied emancipation,
+- [04:41.070] he was freed through the personal advocacy
+- [04:44.470] of the Marquis de Lafayette.
+- [04:47.360] The reunion during Lafeyette's 1824 American tour,
+- [04:52.000] when they embrace as brothers in arms
+- [04:54.200] arguably remains one of the most poignant scenes
+- [04:58.080] in revolutionary history.
+- [05:03.840] In the literary salons of Boston,
+- [05:06.430] Phillis Wheatley emerged as the most prominent
+- [05:08.650] wordsmith of the revolution,
+- [05:10.720] sold into the African slave trade as a child
+- [05:13.460] before making the harrowing journey to Boston.
+- [05:16.560] Phillis was educated by her masters in subjects
+- [05:19.030] ranging from the Bible, classics, literature,
+- [05:22.820] history, astronomy, and geography.
+- [05:25.930] By age 12, Phillis began publishing her own verse.
+- [05:29.220] She later became the first African American
+- [05:31.460] to release her own book of poetry.
+- [05:34.090] And gained her emancipation from the yoke of slavery.
+- [05:38.350] Wheatley's works included a recollection of her journey
+- [05:41.060] from Africa to America,
+- [05:43.120] a poem praised in General Washington
+- [05:45.170] and verse that wove classical learning with Christian hope,
+- [05:49.120] stirring the conscience of patriots
+- [05:50.780] as she reminded them of their ideals.
+- [05:53.800] Wielding the pen as her sword, Wheatly held freedom's cause.
+- [05:58.610] "In every human breast," she wrote,
+- [06:01.310] "God has implanted a principle, which we call love of freedom."
+- [06:06.320] While Phillis Wheatley advanced liberty through her poetry,
+- [06:10.080] other African-American heroes did so from behind the pulpit.
+- [06:14.250] One such American was Lemuel Haynes,
+- [06:16.720] a preacher, a minute man, and a firebrand for freedom.
+- [06:20.800] He became the first African-
+- [06:22.130] American ordained minister in our republic,
+- [06:24.930] abandoned by his enslaved father and Scottish mother
+- [06:27.860] shortly after he was born in 1753.
+- [06:31.430] Haynes grew up as the indentured servant of Deacon David Rose,
+- [06:35.620] under whose roof he developed a passion for teaching the Bible
+- [06:39.270] when his indentured service expired at the age of 21.
+- [06:43.110] He enlisted in the local Massachusetts militia.
+- [06:46.380] In May of 1775, Haynes and the Green Mountain Boys
+- [06:50.250] surprised the British soldiers and captured Fort Ticonderoga,
+- [06:54.170] securing a strategic pathway to the north,
+- [06:56.840] a wealth of artillery, and a glimmer of hope
+- [07:00.010] for the discouraged Continental Army.
+- [07:02.240] After his service, Haynes became a full-time preacher
+- [07:05.360] and spread the gospel for nearly 30 years.
+- [07:08.510] In his sermons, Hayne denounced slavery as a sin
+- [07:11.770] that defied the heart of God Almighty
+- [07:14.160] and professed that America would never be free
+- [07:17.100] until it ended the practice of slavery.
+- [07:22.280] Patriots like Prince Estabrook, James Armistead Lafayette,
+- [07:26.560] Phillis Wheatley, and Lemuel Haynes
+- [07:28.910] are just a few of the thousands of African-Americans
+- [07:31.440] who risked their lives for our independence.
+- [07:34.950] But one question we all can ponder is why?
+- [07:39.770] Why did these brave patriots make such valiant sacrifices
+- [07:43.030] to secure freedom and sovereignty
+- [07:45.900] when they had not been afforded their own?
+- [07:48.950] The answer lies at the very heart
+- [07:50.660] of who we are as Americans.
+- [07:53.290] The Declaration of Independence, the very charter of our nation,
+- [07:57.140] laid out America's foundational principles.
+- [08:00.480] The self-evident truths expressed in the Declaration
+- [08:03.560] are the words that unite us as citizens
+- [08:05.670] and define our inheritance,
+- [08:07.590] as one people united under one great American flag.
+- [08:12.800] At first, America did not fully live up to the ideals
+- [08:15.870] expressed in The Declaration,
+- [08:17.990] but the spirit of 1776 declared to the world the eternal truths
+- [08:22.470] that ultimately toppled the evil of slavery
+- [08:25.400] and recognize the rights of all Americans,
+- [08:27.760] regardless of background or skin or color.
+- [08:35.260] Our nation's story is not a black story.
+- [08:38.050] It's not a white story. It is an American story.
+- [08:42.620] This is the promise of the Declaration of Independence.
+- [08:46.040] This is our story.
+- [08:48.020] And these brave men and women are forefathers
+- [08:51.120] who bestowed a righteous and honorable legacy upon us all.
+- [08:55.960] As we approach 250 glorious years of American independence,
+- [09:00.390] we remember the wisdom, courage, and the unwavering perseverance
+- [09:04.650] of every hero who breathed life into our Republic.
+- [09:08.690] Our liberty was paid for by the sacrifice of generations
+- [09:12.710] so that we could live as free men and women
+- [09:15.290] in the greatest nation the world has ever known.
+- [09:19.670] Today it is our duty to preserve this sacred inheritance
+- [09:25.220] and ensure that the eternal principles
+- [09:27.050] of the Declaration remain alive
+- [09:28.960] and flourish for our children, grandchildren,
+- [09:32.110] and every future generation of American citizens.
+- [09:37.170] ♪ (dramatic orchestral music) ♪
+- [10:03.970] ♪ (soft orchestral music) ♪

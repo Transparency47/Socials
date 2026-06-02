@@ -1,0 +1,324 @@
+<!-- source: https://www.youtube.com/watch?v=wMMI59BmzuA -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: wMMI59BmzuA -->
+<!-- date_published: 2025-11-13T19:36:20+00:00 -->
+<!-- date_accessed: 2026-06-02T02:41:36.528689+00:00 -->
+
+# Transcript: President Trump and the First Lady Participate in an Executive Order Signing
+
+- [00:14.010] Announcer: Ladies and gentlemen,
+- [00:15.060] the President of the United States and First Lady Melania Trump.
+- [00:19.890] ♪ (Hail to the Chief) ♪
+- [00:45.500] (applause)
+- [00:51.930] The First Lady: Good afternoon.
+- [00:53.500] (applause)
+- [00:58.490] Welcome to the White House.
+- [01:01.510] It is truly inspiring to see everyone gather here together,
+- [01:06.060] united in support of this remarkable initiative
+- [01:09.430] and community.
+- [01:11.320] As I stand here and observe the audience,
+- [01:14.320] I recognize the vital importance of each one of you
+- [01:20.290] to this mission, to our future generations.
+- [01:25.700] In particular, I would like to thank the cabinet secretaries,
+- [01:29.700] Congress members, scholarship donors,
+- [01:32.990] and various organizations for their unending advocacy.
+- [01:39.620] A special thank you to my husband
+- [01:42.050] for his enduring commitment to fostering the future.
+- [01:46.720] The President has prioritized America's foster care children,
+- [01:51.200] and shortly, he will sign
+- [01:53.080] our Fostering the Future Executive Order.
+- [01:58.030] Too many people from foster care community
+- [02:01.230] end up homeless in danger on America's streets.
+- [02:07.070] It was 2021 when I developed the idea
+- [02:10.830] to establish an impactful platform
+- [02:14.440] with an important mission,
+- [02:16.720] to provide individuals from the foster care committee
+- [02:20.450] the ability to secure an entry-level job position,
+- [02:25.730] and in turn financial independence.
+- [02:30.530] Fostering the Future, a Be Best initiative,
+- [02:33.760] provides individuals from the foster care community
+- [02:37.570] with technology-based scholarships
+- [02:40.340] to attend colleges and universities throughout America.
+- [02:46.380] Fostering The Future sets these individuals
+- [02:49.200] on their career paths, but more significantly,
+- [02:53.390] it equips each scholarship recipient
+- [02:56.490] with the fundamental foundation of knowledge
+- [03:00.390] that will endure throughout their lifetimes.
+- [03:05.130] Permanency for those who embody the fleeting.
+- [03:11.050] I applaud the American universities
+- [03:13.320] that have joined my mission,
+- [03:15.260] institutions like Vanderbilt University,
+- [03:18.660] University of Miami, and Villanova University.
+- [03:23.560] Following graduation, scholarship recipients
+- [03:26.450] from my program
+- [03:27.890] are prepared to enter the workforce
+- [03:30.780] and ultimately become leading executives.
+- [03:35.750] Predictably, they will manage thousands of employees
+- [03:39.340] and generate significant value for American communities
+- [03:43.750] through job creation,
+- [03:45.430] access to health care, food security,
+- [03:48.540] and other societal benefits.
+- [03:53.970] This executive order, fostering the future for American children
+- [03:58.980] and families, gives me tremendous pride.
+- [04:03.200] It is both empathetic and strategic.
+- [04:07.630] It will certainly be impactful.
+- [04:11.280] It aims to establish a comprehensive network
+- [04:14.430] connecting federal departments and agencies,
+- [04:18.630] private sectors businesses, higher learning institutions
+- [04:23.760] and charitable organizations. This will create new educational
+- [04:28.860] and employment opportunities country-wide.
+- [04:33.250] Our faith-based organizations
+- [04:35.490] will continue playing a vital and consequential role.
+- [04:41.750] My hope, of course, is that this level
+- [04:44.160] of coordinated collaboration will sustain.
+- [04:48.010] But today, I call on leadership
+- [04:50.620] from these various organizations,
+- [04:53.250] including the private sector, to join my effort.
+- [04:57.420] Rise above the ease of inaction. I predict this small spark today
+- [05:05.010] will ignite a profound and lasting nationwide movement.
+- [05:09.410] Our united resolve will foster a thriving future
+- [05:13.690] filled with compassion and innovation.
+- [05:17.940] Together, we will illuminate the pathway
+- [05:21.780] for today's foster children to become tomorrow's builders.
+- [05:27.080] And tomorrow's builders
+- [05:29.010] will foster the future of America's legacy.
+- [05:32.850] Thank you.
+- [05:33.900] (applause)
+- [05:51.330] It is my pleasure to introduce my husband,
+- [05:54.700] the President of the United States,
+- [05:57.110] Donald J. Trump.
+- [05:59.760] (applause)
+- [06:13.900] The President: I think it's very good,
+- [06:15.460] especially for someone that speaks five languages, at least.
+- [06:20.890] I think that's pretty amazing. I couldn't do it.
+- [06:24.010] I couldn't do it, dear God. Well, thank you, Melania.
+- [06:28.570] And our country is truly blessed to have this magnificent
+- [06:32.050] and very caring First Lady. They love her.
+- [06:34.730] Every time I get up and make a speech,
+- [06:36.730] they say, we want our First Lady,
+- [06:38.330] I say, what the hell? I'm not good enough? I'm no-
+- [06:41.470] But thank you very much. Great job.
+- [06:43.250] And it's great the work you do in so many ways.
+- [06:46.180] This afternoon, I'm delighted to sign a historic executive
+- [06:49.340] order building on the fostering the future
+- [06:52.550] initiative to make America's foster care system
+- [06:55.020] better, fairer, and more effective than ever before.
+- [06:58.330] And it has been effective,
+- [06:59.660] but it's moving in a very strong direction.
+- [07:03.730] All of this has been made possible by Malani's incredible
+- [07:06.770] devotion to America's youth. He spends a lot of time on it.
+- [07:11.340] Loves it, and along with our great
+- [07:14.550] Usha, you spend so much time, and what a combination.
+- [07:18.440] First lady, second lady, what a combination.
+- [07:22.100] Thank you. They do a great job.
+- [07:25.990] The two of them are amazing women.
+- [07:28.190] I want to thank Vice President J.D. Vance and Lucia.
+- [07:32.360] Thank you very much. Vice President.
+- [07:34.170] Stand up, Vice President,
+- [07:36.420] and he did a he did a big thing today
+- [07:39.930] as you're going to be on television tonight
+- [07:41.530] with the legendary Sean Hannity. So everybody has to watch.
+- [07:44.970] I'm sure CNN loves this advertisement, but he will be.
+- [07:48.850] I heard it was a great interview and Secretary's Scott Besant.
+- [07:53.270] Scott, thank you very much.
+- [07:58.460] An extremely non-controversial secretary,
+- [08:01.670] Robert F. Kennedy Jr. But he's right. But he is right.
+- [08:08.810] And Scott Turner, thank you very much.
+- [08:10.930] Doing a great job at health.
+- [08:14.810] And thanks, as well, to Senator John Husted,
+- [08:18.630] and Representatives Jason Smith,
+- [08:20.840] Darren LaHood, Zach Nunn, and David Schweiker.
+- [08:24.200] Thank you all for being here. Thank you, fellas. Great group.
+- [08:28.800] We're also joined by countless distinguished leaders
+- [08:31.760] in the child welfare advocacy ministry
+- [08:34.680] and charitable foundations,
+- [08:36.070] as well as so many wonderful young people
+- [08:38.130] who have experienced foster care.
+- [08:40.780] And use their voices to champion needed reforms.
+- [08:43.710] And I want to thank everybody for being here.
+- [08:45.440] It's an amazing day at the White House.
+- [08:47.420] Thank you very much.
+- [08:54.230] And right behind me, by the way, in about two years from now,
+- [08:59.100] we'll use a much bigger room
+- [09:00.450] because we had to turn away a lot of people.
+- [09:02.950] And it'll be right here. This will be the entrance.
+- [09:05.160] That's a knockout panel. It's called a knock-out.
+- [09:07.070] It looks pretty nice right now,
+- [09:08.440] but it's going to look a lot better in a little while.
+- [09:11.310] And we're going to go from this room into a room
+- [09:13.340] that seats a few more people, and it's going to be beautiful.
+- [09:17.370] But I just noticed I happened to be standing here, Peter,
+- [09:20.040] and I thought I'd and might as well get you shot right now.
+- [09:23.560] A nice, beautiful shot at the future entrance
+- [09:26.870] to something that's really become very popular,
+- [09:28.550] the ballroom.
+- [09:29.750] They've wanted it for 150 years, and they're getting it.
+- [09:32.990] And they're going to be the best anywhere in the world.
+- [09:36.600] Each year, more than 15,000 young people age
+- [09:40.640] out of the foster care system, and unfortunately,
+- [09:43.670] too many struggle to become self-sufficient.
+- [09:47.040] The order I will sign in a few moments
+- [09:49.730] will provide vital new resources to help young people transition
+- [09:54.860] out of the foster care system
+- [09:56.720] and live a very happy and a very successful life.
+- [09:59.130] Very, very successful.
+- [10:01.010] With this order, I'm directing the heads
+- [10:02.810] of the key federal departments and agencies
+- [10:05.290] to establish a Fostering the Future program in coordination
+- [10:10.240] with our wonderful First Lady's office.
+- [10:12.270] They're coordinating, and they've already been
+- [10:14.360] coordinating for quite some time.
+- [10:16.380] I think it's -- I hear it's going really well.
+- [10:18.630] You're going to have some --
+- [10:20.300] when she gets involved in things, it works.
+- [10:22.130] I can tell you that. Under this major new initiative,
+- [10:25.530] great American companies and institutions
+- [10:27.970] will be signing a pledge to invest in teaching,
+- [10:30.330] training, and mentoring America's youth
+- [10:33.060] who are transitioning out of the foster care system.
+- [10:37.360] This will help provide jobs, education,
+- [10:39.840] and personal development opportunities
+- [10:41.820] to fantastic young people who truly need --
+- [10:44.720] and deserve them, and they're going to get them.
+- [10:47.380] A terrific example of the impact these programs can have
+- [10:52.270] is Eric Alvarez from Omaha, Nebraska, who is with us today.
+- [10:57.610] Where's Eric? Where is he? Stand up. Good-looking guy.
+- [11:05.470] Good-looking guy.
+- [11:08.360] Eric and his siblings were placed in foster care
+- [11:10.820] for the year when he was nine.
+- [11:13.280] He entered the child welfare system again when he was 15,
+- [11:16.570] and today he credits a mentoring and mentorship
+- [11:19.620] and work experience program for foster youth
+- [11:22.300] with helping him to finish high school
+- [11:24.640] and start his adult life.
+- [11:26.250] And he did really well in high school, by the way.
+- [11:28.380] Really a great student.
+- [11:30.750] But he starts life on the right foot.
+- [11:32.270] Right? Wouldn't you say?
+- [11:33.510] I mean, I think you better say yes,
+- [11:34.860] otherwise I'm in big trouble.
+- [11:36.590] Otherwise, I'm all by myself up here, Eric.
+- [11:39.010] That would be good. I hear you're doing incredibly.
+- [11:41.680] Now, after graduating from the University of Nebraska
+- [11:44.530] and interning for Congressman Don Bacon,
+- [11:48.310] Eric is pursuing a master's degree
+- [11:50.480] at the George Washington University,
+- [11:52.590] and he is a cadet in the Air Force ROTC.
+- [11:56.990] Who'll be commissioned as an officer upon graduation.
+- [11:59.680] And, Eric, I just want to say, great job.
+- [12:01.590] You've really been outstanding. And I think that's probably
+- [12:04.580] why you were chosen out of so many people.
+- [12:06.630] You've done a fantastic job. Congratulations.
+- [12:17.300] The new initiative we're establishing will also create
+- [12:20.400] an opportunity for foster youth to take full responsibility
+- [12:24.130] of the federal tax credit scholarship program
+- [12:26.840] established by the one big, beautiful bill.
+- [12:31.260] So many things, tax cuts and regulation cuts, so many things.
+- [12:35.440] The biggest ever passed in the history of our country.
+- [12:38.960] I call it the great big, big beautiful bill,
+- [12:41.460] I changed the name a little bit to make even more sublime.
+- [12:45.850] But it is -- there's so many things in there for everybody.
+- [12:48.950] The biggest -- we had a choice.
+- [12:50.360] We could have done it in nine different bills
+- [12:52.190] or tried for the one,
+- [12:53.680] and everybody said, no, let's do it in 9.
+- [12:56.330] It'll be easier. Actually, it wouldn't have gotten done.
+- [12:58.720] And JD and I and Scott and all of us got together,
+- [13:01.850] and we said, let' give it a shot,
+- [13:03.610] and we got it passed. And it was an amazing thing,
+- [13:06.310] but it's going to help a lot of people.
+- [13:07.630] There's never been anything like it.
+- [13:09.360] In one bill, there's never -- anything close.
+- [13:12.470] And when you see what's going on with the Democrats,
+- [13:14.280] we're lucky we got it passed,
+- [13:15.490] because we don't have to do anything.
+- [13:17.160] All we have to is implement it now,
+- [13:19.030] and we'll be implementing it all over the place.
+- [13:21.970] If you think about it, no tax on tips, right?
+- [13:26.480] No tax on Social Security.
+- [13:28.660] All of the different things. No tax over time.
+- [13:31.330] You get deductions if you buy a car.
+- [13:33.600] You take an interest rate deduction,
+- [13:35.290] an interest deduction against your income tax.
+- [13:37.990] It's never happened. And nothing like this
+- [13:39.510] is really ever been approved to this extent.
+- [13:43.400] And so it is one great, big, beautiful bill.
+- [13:46.470] But using the tax credit,
+- [13:47.760] we'll expand occupational training, education,
+- [13:50.500] and financial literacy programs for the foster youth
+- [13:53.120] and make it possible for more of them
+- [13:55.140] to attend the school of their choice.
+- [13:57.640] Choice is a great word for a lot of reasons,
+- [14:00.180] but it's a great thing with education.
+- [14:02.540] And we'll also create the new
+- [14:03.940] Fostering the Future online platform
+- [14:06.180] to help young people find access and really get great housing,
+- [14:11.400] very, very important and beautiful housing,
+- [14:13.650] healthcare, and other resources available to foster youth,
+- [14:16.530] and those transitioning out of foster care.
+- [14:19.850] We think that's going to happen with many, many people,
+- [14:22.330] many more than you have right now.
+- [14:23.780] Under the Trump administration,
+- [14:25.870] we believe that every American child
+- [14:27.620] deserves a safe and loving home,
+- [14:29.790] and we're determined to support the amazing families
+- [14:32.450] who help make that happen.
+- [14:34.360] And we have some of those families in the room today,
+- [14:36.380] and I just want to thank you all for being in the White House.
+- [14:38.490] There is no place like this.
+- [14:40.600] And we want to thank you very much for being here.
+- [14:42.880] Great families. Thank you very. Faith-based, thank you.
+- [14:53.010] Faith-based nonprofits
+- [14:54.510] are the nation's most trusted institutions,
+- [14:56.950] interacting with the foster care system
+- [14:59.150] and practicing Christians and more,
+- [15:02.370] think of it as more than twice as likely foster care.
+- [15:05.320] They'll adopt the general population.
+- [15:07.520] They adopt to it so easily. When they get out,
+- [15:09.980] they adopt to it just like it's become second nature.
+- [15:14.070] It's amazing.
+- [15:15.490] Yet radical left policies in states nationwide
+- [15:18.150] make it much harder,
+- [15:19.680] not easier, for those families to open up their homes.
+- [15:23.030] But we're working on that.
+- [15:24.860] We're dealing with the radical left.
+- [15:26.190] It's not easy, but we're winning and we're winning big.
+- [15:29.240] That's why, with the order that we're doing today,
+- [15:32.410] we're taking the ridiculous woke policies that discriminate
+- [15:36.470] against Christians and families of faith.
+- [15:39.460] As President, I will always stand by us.
+- [15:42.400] We will stand by our country
+- [15:43.910] and we will stand for religious liberty.
+- [15:46.400] So important. We stand for religious Liberty.
+- [15:50.350] The Bible tells us. Thank you.
+- [15:57.830] The Bible tells us that one of the measures of any society
+- [16:01.030] is how it cares for vulnerable children and orphans.
+- [16:04.500] So important, and it's so big in the Bible.
+- [16:06.970] So, as we make America great again,
+- [16:09.210] we are going to protect American children and foster care,
+- [16:13.070] and we're going to ensure that they will never,
+- [16:15.770] ever be forgotten.
+- [16:17.110] These children will never be forgotten,
+- [16:18.770] and they're going grow up to be unbelievable,
+- [16:21.020] strong, smart, wealthy, productive citizens.
+- [16:24.950] So, once more, I want to thank Melania,
+- [16:27.380] for the great job she does.
+- [16:29.460] Not here only, just as First Lady.
+- [16:32.260] She's a great First Lady,
+- [16:33.940] and I want to thank you very much, honey,
+- [16:35.350] and the Forster families and leaders here today.
+- [16:38.800] You're very special people.
+- [16:40.530] And we're going to work together,
+- [16:41.820] and we're going to have some absolutely incredible results.
+- [16:45.230] Thank you all for being here. Thank you very much. Thank you.
+- [16:49.580] (applause)
+- [17:13.540] Are you ready, everybody?
+- [17:15.250] This is it. Too late to change after.
+- [17:18.720] Should we sign it? I think, right?
+- [17:22.010] Suzy, do we sign this? Good.
+- [17:30.980] I'm going to ask the First Lady to sign it also.
+- [17:34.050] Honey, sign it right there. Okay?
+- [17:46.990] Okay, honey.
+- [17:53.250] (applause)
+- [18:16.560] ♪ (orchestral "God Bless America) ♪

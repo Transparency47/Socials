@@ -1,0 +1,120 @@
+<!-- source: https://www.youtube.com/watch?v=Yjpocon6sm0 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: Yjpocon6sm0 -->
+<!-- date_published: 2025-09-23T17:48:29+00:00 -->
+<!-- date_accessed: 2026-06-02T01:14:43.770267+00:00 -->
+
+# Transcript: President Trump has a Pull-Aside with the President of the European Commission
+
+- [00:01.040] Well, thank you very much. It's a great
+- [00:02.560] honor to be with a very powerful, very
+- [00:04.720] smart woman and a friend of mine, become
+- [00:06.480] a friend of mine. She does a fantastic
+- [00:09.920] job running lots of different nations
+- [00:12.400] and uh Ursula, thank you very much for
+- [00:14.320] being with us. Thank you.
+- [00:15.360] >> Thank you. Thank you for having me here
+- [00:17.760] and very much looking forward to our
+- [00:19.439] conversation. I think it will be mainly
+- [00:21.199] around Ukraine,
+- [00:22.480] >> right,
+- [00:22.880] >> the missing children and certainly uh
+- [00:25.760] the new hybrid threats we are
+- [00:27.760] experiencing in Europe. So, thank you
+- [00:29.840] very much for making the time.
+- [00:31.679] >> Well, thank you very much and we will
+- [00:33.200] we'll have a very good conversation. Uh,
+- [00:35.520] any questions, please?
+- [00:36.719] >> How soon do you think um, Madam
+- [00:39.760] President, how soon do you think that
+- [00:41.680] Europe can stop buying Russian oil and
+- [00:44.640] gas food like President Trump has asked
+- [00:46.719] for?
+- [00:47.039] >> Yeah, President Trump is absolutely
+- [00:48.480] right. We're on it. We have reduced
+- [00:50.960] already massively the gas supply from
+- [00:53.039] Russia. uh completely gotten out of
+- [00:55.680] Russian coal and massively also reduced
+- [00:58.640] the oil supply, but there's still some
+- [01:00.640] coming to the European continent. So,
+- [01:02.640] what we do now, we put sanctions out uh
+- [01:06.560] to those um ports where, for example, LG
+- [01:10.000] is coming from Russia. Um and we want to
+- [01:13.040] put tariffs on oil supplies that are
+- [01:15.680] still coming to the European Union. So,
+- [01:18.240] we are really getting um after the last
+- [01:20.400] bits of oil and gas coming from Russia
+- [01:22.960] to the European Union, we want to get
+- [01:24.479] rid of it.
+- [01:25.200] >> When do you think you'll be able to do
+- [01:26.240] that? You've previously said 2027 and
+- [01:28.240] you're looking at a quicker timeline.
+- [01:29.680] >> We want to be out earlier. Absolutely.
+- [01:31.680] So, um till the end of the year, we have
+- [01:33.840] the phasing out. We have now the
+- [01:35.360] sanctions on the table proposed. Member
+- [01:37.600] states have to agree. Um but we have to
+- [01:40.159] be faster. Um because every payment is
+- [01:42.799] filling Putin's watches. This cannot be.
+- [01:45.680] >> Mr. President, Nice to see you. During
+- [01:48.960] your speech to the general assembly, you
+- [01:50.640] talked about the UN not reaching its
+- [01:52.159] potential. Do you see any kind of
+- [01:54.000] consequence if they don't step up and do
+- [01:56.079] what they should on a number of issues?
+- [01:58.399] >> Well, they've never really reached, not
+- [02:00.000] just now, they've never reached their
+- [02:01.600] potential. The UN could be unbelievable
+- [02:05.040] with certain people running it. And uh
+- [02:08.479] no, it's never reached the potential.
+- [02:10.080] Look, I I put out seven wars if you
+- [02:12.720] think about it. And I'm not the UN, but
+- [02:14.400] and I wasn't helped by the UN. I was
+- [02:16.800] never even given a phone call. But you
+- [02:19.200] have a list of the wars and these were
+- [02:20.640] wars that were pretty much unstoppable.
+- [02:22.560] These were wars that were not going to
+- [02:24.080] be settled. One was 31 years, one was 32
+- [02:27.599] years, one was 35 years and altogether a
+- [02:31.760] total of seven. Two were starting and I
+- [02:35.200] was never called by the UN. I was never
+- [02:37.040] like uh can I didn't even think about it
+- [02:39.120] frankly until after we did it. I never
+- [02:41.040] gave it a lot of thought and then uh
+- [02:44.000] recently I started thinking you know we
+- [02:45.920] were never helped by the UN and the UN
+- [02:48.400] has tremendous potential tremendous
+- [02:50.879] potential. It's going to hopefully put
+- [02:53.599] out the wars themselves. I mean someday
+- [02:55.360] it's going to do what I've been doing
+- [02:57.840] and they should be able to do it. Thank
+- [02:59.440] you for that question. I appreciate
+- [03:01.599] >> Yeah. Given what you just said, what
+- [03:03.920] structural changes would you like to see
+- [03:05.360] in the UN and what role do you think it
+- [03:07.360] could play in peacekeeping, for example,
+- [03:08.879] going forward given given what you just
+- [03:10.400] said?
+- [03:10.640] >> Well, it's a fantastic role in
+- [03:12.159] peacekeeping. It should be great. I
+- [03:13.840] mean, we shouldn't have any wars if the
+- [03:15.360] UN's really doing its job. I know they
+- [03:17.280] were involved originally with Russia,
+- [03:19.440] Ukraine, and that didn't get done
+- [03:21.360] because that was the time to stop it.
+- [03:23.440] But uh no it's a it's f I I always say
+- [03:26.959] about the UN fantastic potential but
+- [03:30.239] it's all about the people. You know you
+- [03:32.879] can have a wonderful concept but if you
+- [03:34.720] don't have the people uh the UN has
+- [03:37.360] never lived up to its potential but I'm
+- [03:40.480] the example of it. We do all these wars
+- [03:42.720] and we weren't helped by the UN. We
+- [03:44.720] weren't hurt by them but we weren't
+- [03:46.080] helped. They didn't do anything and
+- [03:48.000] they're supposed to be solving these
+- [03:50.000] problems. Thank you very much everybody.
+- [03:52.959] A lot of meetings. We have a lot of
+- [03:54.480] meetings to go.
+- [03:57.920] >> Thank you.

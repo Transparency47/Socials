@@ -1,0 +1,1239 @@
+<!-- source: https://www.youtube.com/watch?v=rB9gbCxb_K0 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: rB9gbCxb_K0 -->
+<!-- date_published: 2025-08-22T18:01:42+00:00 -->
+<!-- date_accessed: 2026-06-02T02:45:23.588898+00:00 -->
+
+# Transcript: President Trump Makes an Announcement, Aug. 22, 2025
+
+- [14:10.260] The President: Thank you very much,
+- [14:11.540] we have a very big announcement to make today.
+- [14:14.440] You all know Gianni, he came all the way from Italy,
+- [14:17.890] the beautiful country of Italy to be with us.
+- [14:21.090] He just got off the plane and he’s a hardworking guy,
+- [14:24.510] does a phenomenal job with FIFA, nobody like him.
+- [14:28.100] I’m delighted to welcome FIFA President Gianni Infantino
+- [14:32.640] back to the White House for a major announcement
+- [14:34.830] about one of the most anticipated competitions
+- [14:37.980] in all of sports, the 2026, and this is a big deal,
+- [14:42.900] I’ll tell you, I was so happy to get it, the 2026
+- [14:46.190] FIFA World Cup.
+- [14:48.140] That’s going to be the World Cup as we know it, it’s the biggest,
+- [14:51.610] probably the biggest event in sports,
+- [14:53.200] I guess, Gianni, right?
+- [14:54.920] On December 5th of this year, the 2026 FIFA World Cup
+- [14:58.250] draw will take place at the Kennedy Center,
+- [15:00.510] some people refer to it as the Trump-Kennedy Center,
+- [15:03.680] but we’re not prepared to do that quite yet,
+- [15:05.320] maybe in a week or so,
+- [15:07.350] but right here in Washington, D.C.
+- [15:09.140] It’s a tremendous honor to bring the global event
+- [15:11.870] and this incredible group of people
+- [15:14.100] and these unbelievable athletes, the best athletes in the world,
+- [15:17.110] to the cultural center of our nation’s capital,
+- [15:20.480] just left the Kennedy Center.
+- [15:21.870] We’re spending a lot of money
+- [15:23.530] wisely on making it really beautiful,
+- [15:25.810] it’s going to be beautiful again,
+- [15:27.380] it’s like Washington, D.C.
+- [15:29.690] We had, by the way, in Washington, D.C.,
+- [15:32.360] we have the lowest crime numbers they’ve had in years,
+- [15:36.390] zero, it sounds like it’s a horrible thing to say,
+- [15:38.920] but I might as well say it, zero murders in the last week
+- [15:43.530] since we’ve done this, that’s the first time in memory
+- [15:46.440] that that’s happened, if you can believe it,
+- [15:48.180] how pathetic that is to have to even say it.
+- [15:51.000] And I’m tired of listening to these people say
+- [15:53.080] how safe it was before we got here,
+- [15:54.830] it was unsafe, it was horrible,
+- [15:57.510] and Mayor Bowser better get her act straight
+- [15:59.310] or she won’t be mayor very long,
+- [16:00.710] because we’ll take it over with the federal government,
+- [16:03.130] run it like it’s supposed to be run.
+- [16:05.550] The numbers were horrible,
+- [16:07.470] it was a crime infested rat hole,
+- [16:11.220] and they do have a lot of rats, we’re getting rid of them too,
+- [16:14.090] and we’ve made a lot of progress,
+- [16:15.670] and it was extremely unsafe, and now it’s extremely safe,
+- [16:20.260] we had virtually no crime, the number was down 87 percent,
+- [16:24.780] and I’m trying to figure out where was the 13 percent,
+- [16:27.030] because I don’t think it existed.
+- [16:29.560] The National Guard has been unbelievable,
+- [16:32.740] and they’re working with the police,
+- [16:34.610] and they have some very good people in there,
+- [16:36.070] they have some people that shouldn’t be police, actually,
+- [16:38.890] but they have some great people there, and Washington, D.C.
+- [16:43.210] is a whole different place, and Gianni,
+- [16:45.360] I’m sure you’ll be happy to hear that too, actually,
+- [16:47.960] but it’s a whole different place, people are excited again,
+- [16:50.430] they’re going out to restaurants again.
+- [16:53.120] That was the other thing I saw numbers,
+- [16:55.080] that restaurant business is down in the last week,
+- [16:57.580] I know, restaurant business, you can’t get into a restaurant,
+- [17:00.900] just really lying people,
+- [17:03.310] and that’s why people don’t understand how bad
+- [17:05.560] and how dishonest the press is.
+- [17:08.400] I saw one poll that had us at 19 percent favorable
+- [17:13.230] on what we’re doing with Washington,
+- [17:14.750] then I saw another one that says it’s 94 percent favorable,
+- [17:18.600] and I can tell you that 94 percent is correct,
+- [17:21.260] the others are fake, just fake news,
+- [17:23.360] they got to get their act together,
+- [17:24.820] so bad for our country, so sick, actually.
+- [17:27.810] So Washington, D.C. is really doing unbelievably well,
+- [17:31.410] and the Kennedy Center that we’re fixing,
+- [17:33.700] I was just there all morning with the contractors,
+- [17:35.820] we’re making it, it’s going to be unbelievable,
+- [17:38.350] it’s got great bones, but it needs a lot of work.
+- [17:41.770] The World Cup draw will set up the group stage
+- [17:44.580] with competition,
+- [17:45.830] 48 teams will play in 104 games across 16 North American cities,
+- [17:50.730] from Seattle to Vancouver to Atlanta to Miami,
+- [17:53.870] it’s going to be so exciting for our country.
+- [17:56.860] The 2026 FIFA World Cup
+- [17:59.230] will be one of the largest and most complex events,
+- [18:02.360] this will be one of the greatest events,
+- [18:04.480] in a way it’s like Gianni said it better,
+- [18:06.190] it’s like having many Super Bowls in a short period of time,
+- [18:09.760] because each one of these games essentially is a Super Bowl,
+- [18:13.020] some of them are bigger than Super Bowls actually,
+- [18:15.800] but they’re essentially,
+- [18:17.020] each one of these games is like a Super Bowl.
+- [18:18.900] The 2026 FIFA World Cup will be the largest,
+- [18:23.410] most complex set of events in sports history,
+- [18:26.840] and the Kennedy Center will give it a phenomenal kickoff,
+- [18:30.220] and we’ll be involved,
+- [18:31.430] and they’ll be working over there
+- [18:32.730] for quite a bit of time,
+- [18:34.280] we have it all set that they can stay there for the big events,
+- [18:36.810] the big press conferences and everything else,
+- [18:39.100] and they’ll be in a very safe capital,
+- [18:40.840] that’ll be nice, you don’t have to worry about walking down
+- [18:42.820] the street, Gianni, okay? But you can handle yourself.
+- [18:47.710] Already, FIFA is projecting 6 million loyal fans
+- [18:50.540] will attend the World Cup events next year,
+- [18:52.530] and 6 billion more are going to be watching back home,
+- [18:54.990] and they think the 6 billion number
+- [18:57.230] is going to be actually a low number,
+- [18:59.310] and this will drive more than 30 billion dollars
+- [19:01.650] into the U.S. economy,
+- [19:02.940] and create 185,000 American jobs in a short period of time.
+- [19:08.750] No sporting event attracts more attention,
+- [19:10.700] more fans, more viewers, or more revenue than the FIFA World Cup,
+- [19:14.960] and again, I’ll just say, it’s the World Cup,
+- [19:17.090] and it’s the biggest thing there is in sports,
+- [19:19.310] and we have it, and I got it in my first administration,
+- [19:22.470] and I was really somewhat devastated,
+- [19:24.380] as devastated as I can be,
+- [19:25.870] I don’t have time to get too devastated.
+- [19:28.780] I was very happy today, as you saw,
+- [19:30.770] the group that does this,
+- [19:33.350] the government group, radical left group,
+- [19:35.180] announced that Trump was right,
+- [19:37.650] took in 4 trillion dollars worth of tariffs,
+- [19:41.050] that the 4 trillion dollars are going to reduce the deficit
+- [19:43.590] by numbers far greater than they ever expected or heard of,
+- [19:46.880] and by the way, the stock market went up 1,000 points.
+- [19:50.460] That was as of 10 minutes ago,
+- [19:51.840] I can’t tell you what happened, a lot of things happened,
+- [19:54.330] but the stock market’s up almost 1,000 points,
+- [19:58.770] and it’s basically on the news that the release
+- [20:01.810] that just came out from government
+- [20:04.020] that the tariffs that everybody was talking about,
+- [20:08.620] that the whole world respects us for,
+- [20:10.700] because of what we did,
+- [20:12.570] the tariffs are going to be at 4 trillion dollars,
+- [20:14.770] they’re going to reduce the deficit by 4 trillion dollars.
+- [20:17.580] Mr. Vice President, what do you think?
+- [20:19.020] VICE PRESIDENT: That’s pretty good, sir.
+- [20:20.260] The President: Too bad it’s not 5, right?
+- [20:21.500] VICE PRESIDENT: That’s right.
+- [20:22.740] The President: It’s had a huge impact,
+- [20:24.010] and the stock market is way up.
+- [20:26.890] But this will drive more than 30 billion dollars in U.S. economy
+- [20:30.080] and create 185,000 American jobs.
+- [20:32.340] No sporting event attracts more attention
+- [20:34.600] or more fans or anything else,
+- [20:35.960] and I just look forward to the draw,
+- [20:37.900] so we’re going to have the draw, essentially,
+- [20:40.060] Gianni, at the Kennedy Center,
+- [20:43.000] and by that time, it’ll be in even better shape,
+- [20:44.760] we’re working on it,
+- [20:45.990] it’ll take, it’s about a year project to make it,
+- [20:49.050] it’ll be great, it’ll be fantastic.
+- [20:50.920] You see the way this is looking, look, nice?
+- [20:53.980] I can’t tell you how much that gold cost, a lot of money.
+- [20:57.190] There’s nothing like gold, and there’s nothing like solid gold,
+- [20:59.850] but this beautiful office needed it,
+- [21:03.480] it had to be representative, when we took it over,
+- [21:05.520] it was dirty, not clean.
+- [21:07.990] I immediately changed the chair
+- [21:09.510] and had this beautiful desk renovated,
+- [21:12.750] brought out by the White House.
+- [21:14.940] People that do this, they did a great job,
+- [21:17.540] we have a craftsman who’s great,
+- [21:19.630] but this was not appropriate for the Oval Office,
+- [21:21.950] what I took over,
+- [21:23.310] and now, if you look at all those paintings,
+- [21:25.100] you’re allowed to turn back,
+- [21:26.750] all of these are great presidents,
+- [21:28.270] and they were all in the vaults, they were in vaults for,
+- [21:31.020] in some cases, much more than a hundred years,
+- [21:34.780] and now they’re proudly hanging on the Oval Office walls,
+- [21:38.100] and I can’t imagine anybody changing it,
+- [21:40.040] but they were buried in vaults for over a hundred years,
+- [21:43.500] many of them.
+- [21:44.720] So it’s very exciting, people come in,
+- [21:46.490] they really love it, they love what we’re doing here,
+- [21:49.090] they love what we’re doing in D.C.,
+- [21:50.590] and they love what we’re doing,
+- [21:51.850] most importantly, in the country, in the world.
+- [21:53.990] I’d like to ask Gianni to say a few words,
+- [21:56.020] he’s the head of the whole thing,
+- [21:57.230] he’s been there for a long time,
+- [21:59.860] probably the most respected man in sports,
+- [22:02.130] he’s amazing, actually, works very hard,
+- [22:05.490] and he’s got the biggest event in
+- [22:07.850] the world coming right here to the United States,
+- [22:10.180] and a little, we did a little for Canada,
+- [22:12.920] we did a little for Mexico, we thought,
+- [22:14.410] well, see, I’m a good citizen,
+- [22:16.070] I said, let them have a little piece,
+- [22:18.050] so we gave a little to Canada, see how nice they are,
+- [22:20.410] and we gave a little bit to Mexico,
+- [22:23.320] and Gianni, please say a few words.
+- [22:25.460] Gianni Infantino: Thank you, thank you, thank you,
+- [22:26.950] President, great honor for me to be here with you today,
+- [22:32.570] President, Vice President, Excellencies,
+- [22:35.450] fantastic to announce what you said,
+- [22:39.430] which is the final draw of the FIFA World Cup
+- [22:43.340] on the 5th of December, here, in the capital,
+- [22:48.200] in the Kennedy Center in Washington, D.C.,
+- [22:50.250] at 12 noon sharp,
+- [22:51.500] it will be broadcast live all over the world,
+- [22:54.270] one billion viewers will watch it,
+- [22:57.350] and it will determine, of course, the match schedule,
+- [23:00.310] the match schedule which 48 participating teams will play,
+- [23:04.820] you said it, 104 matches in one month, 104 Super Bowls,
+- [23:09.030] it’s not just the biggest, the greatest event,
+- [23:12.860] not just a sports event,
+- [23:14.150] it’s a social event as well, with a lot of emotion,
+- [23:16.520] we are uniting the world, Mr. President,
+- [23:18.470] uniting the world here in America,
+- [23:21.770] and we are very proud of that, and those teams,
+- [23:24.690] those national teams who will come here to participate
+- [23:28.030] in this draw with their coaches, with their presidents,
+- [23:30.970] they will all be proud to be part of writing this history,
+- [23:35.820] and that’s why we brought as well this,
+- [23:38.640] which is the winner’s trophy,
+- [23:42.600] it is the trophy that the winner of the FIFA World Cup wins,
+- [23:47.340] only the FIFA presidents, presidents of countries,
+- [23:52.830] and then those who win can touch it,
+- [23:55.590] because it’s for winners only, and since you are a winner,
+- [23:58.790] of course, you can as well touch it.
+- [24:01.850] The President: It’s pretty heavy, is the winner trophy.
+- [24:03.820] The last one who lifted that is Leo Messi.
+- [24:06.750] Leo Messi of Argentina.
+- [24:08.810] And here it is in the Oval Office in the White House.
+- [24:13.170] Can I keep it? What do you think?
+- [24:15.160] Gianni Infantino: Well, you can keep it in the wall, Governor.
+- [24:17.760] We’re not giving it back.
+- [24:19.400] The President: That’s serious.
+- [24:20.620] It fits well, it’s very well on the wall right over there.
+- [24:23.260] Let’s put it back below the edge.
+- [24:24.900] It fits well here. That’s beautiful.
+- [24:26.360] Yeah, you’re right.
+- [24:27.640] Until we have to give it to the next winner.
+- [24:29.110] That’s fine. That’s a beautiful piece of gold, I would say.
+- [24:33.530] That’s beautiful. Yeah.
+- [24:34.990] So, six billion Euros for the World Cup,
+- [24:38.180] six million coming to the matches,
+- [24:41.750] 30 billion economic impact, 185,000 jobs.
+- [24:47.820] This will be absolutely fantastic.
+- [24:50.830] The biggest event ever.
+- [24:53.290] And everything will start here in Washington,
+- [24:56.120] D.C. at the Kennedy Center, or the Trump Kennedy Center.
+- [24:59.190] You see that?
+- [25:00.430] It will be called on the 5th of September at noon sharp.
+- [25:04.950] 5th of December, noon sharp.
+- [25:07.960] Then, if I may --
+- [25:09.270] Will they be doing most of the draws,
+- [25:11.800] all of the draws at the Kennedy?
+- [25:13.600] Well, how are you going to do that?
+- [25:14.910] Gianni Infantino: Yes, we’ll do that at the Kennedy Center.
+- [25:16.970] We’ll do all the other meetings around it
+- [25:18.630] with the coaches, with the broadcasters,
+- [25:21.080] everything at the Kennedy Center.
+- [25:22.910] The whole World Cup starts, and everyone will be happy
+- [25:26.490] because everyone has qualified for the World Cup,
+- [25:29.570] and they didn’t yet play a game,
+- [25:31.040] so they didn’t lose yet the game.
+- [25:32.860] So, they all think they can become world champions, right?
+- [25:35.160] They’ll all be happy. Exactly.
+- [25:37.610] The President: Now -- By the way, an example.
+- [25:39.630] Supposing we had, a week ago,
+- [25:41.590] when everybody was being killed and mugged and everything else,
+- [25:44.080] despite the phony numbers that were given out,
+- [25:46.050] that it was getting better.
+- [25:47.270] Brian, do you believe it was getting better or getting worse?
+- [25:49.920] Male Speaker: Oh, the crime was getting worse.
+- [25:51.380] I mean, I was robbed.
+- [25:53.340] The President: Where? How did the other guy come out?
+- [25:56.740] Male Speaker: He came out with our drink case.
+- [25:58.680] The President: That was your drink case?
+- [26:01.300] Robber 1, Brian 0. Can you imagine, you do this,
+- [26:04.530] and then you start hearing
+- [26:06.050] that they had a 20-year reduction of crime.
+- [26:10.340] It’s worse, it was worse during the Biden administration
+- [26:13.720] than anybody’s ever imagined possible.
+- [26:17.060] And I guarantee you, he wouldn’t be here
+- [26:19.440] if those numbers continued.
+- [26:21.890] But now we have total safety, we have total security.
+- [26:23.970] And for the border, in three months, zero people.
+- [26:27.990] These are done by liberal people that do these checks.
+- [26:32.300] Zero people came through our border in the last 90 days.
+- [26:35.320] Can you believe it? Zero.
+- [26:36.900] Last year, we had millions of people coming in.
+- [26:39.720] And they came in from the wrong locations.
+- [26:44.880] They came in a lot of people that shouldn’t be here.
+- [26:47.480] So now, when we have this event in December,
+- [26:49.060] it’s going to be very safe.
+- [26:50.310] Gianni, you can walk down the street with your beautiful wife.
+- [26:53.260] You can take her to dinner, if you can get a reservation,
+- [26:55.510] which I doubt. They’re all full of the restaurants.
+- [26:57.610] I know. They’re all full. I heard that too.
+- [27:01.050] The restaurants aren’t too --
+- [27:02.840] The restaurants, since we are doing this, are doing great.
+- [27:06.050] And many new restaurants are going to open,
+- [27:07.600] because as you know, many closed.
+- [27:09.340] Many restaurants closed, because the crime was so bad.
+- [27:12.990] This will be one of the safest places anywhere on earth.
+- [27:15.910] So, you know, I really am honored
+- [27:18.260] that the National Guard has done such an incredible job
+- [27:21.640] working with the police.
+- [27:23.440] And we haven’t had to bring in the regular military,
+- [27:27.940] which we’re willing to do. We have to.
+- [27:30.370] And after we do this, we’ll go to another location,
+- [27:33.940] and we’ll make it safe also.
+- [27:35.150] We’re going to make our country very safe.
+- [27:36.720] We’re going to make our cities very, very safe.
+- [27:39.180] Chicago’s a mess.
+- [27:40.420] You have an incompetent mayor, grossly incompetent.
+- [27:43.750] And we’ll straighten that one out probably next.
+- [27:45.960] That’ll be our next one after this.
+- [27:48.570] And it won’t even be tough.
+- [27:50.840] And the people in Chicago, Mr. Vice President,
+- [27:54.270] are screaming for us to come.
+- [27:56.040] They’re wearing red hats, just like this one.
+- [27:58.830] But they’re wearing red hats. African-American ladies,
+- [28:03.210] beautiful ladies, they’re saying,
+- [28:04.620] “Please, President Trump, come to Chicago. Please.”
+- [28:09.130] I did great with the black vote, as you know.
+- [28:11.410] And they want something to happen.
+- [28:13.860] So I think Chicago will be our next,
+- [28:15.750] and then we’ll help with New York,
+- [28:18.600] and we’re going to help with Boston.
+- [28:20.270] I think, really, I think a lot of --
+- [28:22.280] and a lot of these people that you see on television,
+- [28:25.250] they are -- including the people in this audience --
+- [28:27.160] they’ll say bad things about me,
+- [28:29.060] and then they’ll say, “Thank God he’s here,”
+- [28:30.990] because half of them got mugged,
+- [28:32.960] and they don’t want to get mugged again.
+- [28:34.570] But they’re -- you know, they work for a lot of --
+- [28:36.650] they work for stupid people that are radical left,
+- [28:40.310] and they’re made to do things
+- [28:41.590] and say things that they don’t want to be saying.
+- [28:43.790] But the people right here are all happy
+- [28:45.310] because you’re not going to be mugged in Washington,
+- [28:47.730] D.C., anymore.
+- [28:49.380] I just want to say, Gianni’s been my friend
+- [28:51.090] for a long time. He’s an incredible guy.
+- [28:52.950] And we will lay out the red carpet.
+- [28:56.140] Andrew, you’re going to be fantastic.
+- [28:57.810] Rick is going to be --
+- [28:59.100] everything Rick ever touched is -- has always worked out.
+- [29:02.380] And he’s working with me on the Kennedy Center.
+- [29:04.740] And his very good friend
+- [29:06.000] was an actor on Broadway for five years, right?
+- [29:08.250] And I assume he’s helping us a little bit, correct?
+- [29:10.740] Male Speaker: Yes.
+- [29:11.970] The President: And, Andrew, you’re all excited about it?
+- [29:14.260] Absolutely. This is -- Would you like to say something?
+- [29:16.110] Andrew Giuliani: This is a great opportunity, Mr. President,
+- [29:18.060] to show off the first 250 years of the United States of America,
+- [29:23.060] the greatness, and the hope and promise of the next 250 years.
+- [29:26.910] When you think this World Cup is going to be over,
+- [29:29.490] our 250th birthday, Mr. President,
+- [29:32.530] your leadership, obviously, with FIFA leading the way.
+- [29:36.380] This is the largest sporting event
+- [29:38.690] in the history of the world under the Trump administration.
+- [29:42.370] So, very excited.
+- [29:43.630] The President: I just want to say one thing.
+- [29:44.850] Andrew Giuliani -- so, his father is Rudy,
+- [29:47.300] the greatest mayor in the history of New York,
+- [29:49.670] I think by far.
+- [29:51.640] He was -- he took a ravaged city,
+- [29:53.740] a city that was really under siege.
+- [29:55.890] Probably most people thought it wasn’t going to survive.
+- [29:57.790] He turned it around. He was a great, great mayor.
+- [30:01.280] And then they treated him very, very unfairly.
+- [30:05.100] You go back and tell your father all of the things
+- [30:07.260] that have come out over the last couple of months,
+- [30:09.210] through Tulsi and through all of the people --
+- [30:12.400] Kash, everybody --
+- [30:14.610] they’ve proven your father 100 percent correct.
+- [30:16.750] His father was treated so unfairly.
+- [30:18.820] Your father has been 100 percent correct.
+- [30:22.010] And tell him we all love him, okay?
+- [30:23.360] Andrew Giuliani: Thank you, Mr. President.
+- [30:24.700] It’s been amazing.
+- [30:25.980] The President: What he had to go through
+- [30:27.730] was very, very unfair. Nasty.
+- [30:30.680] These are bad people.
+- [30:32.430] Mr. Vice President, would you like to say something?
+- [30:34.360] The Vice President: Well, sure, Mr. President.
+- [30:35.570] Thank you, and thanks, Gianni, for being here.
+- [30:37.270] We’re very thrilled about the World Cup.
+- [30:38.810] Just to echo something the President said
+- [30:40.570] about crime in Washington, D.C.,
+- [30:42.830] this is the national capital
+- [30:44.550] of the greatest nation in the world.
+- [30:46.600] And we had murder rates just a few weeks ago
+- [30:48.750] that rivaled some of the worst third-world cities anywhere,
+- [30:52.480] even in very, very poor regions of the world.
+- [30:55.350] Why did we accept that? Why did we allow it to happen?
+- [30:58.090] We allowed it to happen because we had broken leadership
+- [31:00.380] in Washington, D.C.,
+- [31:01.840] and, unfortunately, sitting behind the Resolute Desk.
+- [31:03.700] What we have shown in just under two weeks
+- [31:06.940] of taking law enforcement seriously
+- [31:08.710] is that the American people can have their streets back
+- [31:11.500] if their leadership is willing to put
+- [31:13.130] in the time and the resources.
+- [31:14.340] So, Mr. President, you showed in Washington, D.C.,
+- [31:17.340] that we can have safe streets again.
+- [31:19.330] We’ve just got to have the political willpower
+- [31:21.840] to focus on the bad guys
+- [31:23.590] and to give the American people back their communities.
+- [31:25.910] We are focused on doing that.
+- [31:27.530] Thanks to the President’s leadership. Thank you.
+- [31:30.120] The President: And that’s a really very small percentage.
+- [31:32.000] It’s 2 percent, 3 percent. But that 2 percent and 3 percent
+- [31:36.480] wreaks just havoc throughout a community.
+- [31:40.450] People are petrified.
+- [31:41.700] And I noticed a couple of the women in the back
+- [31:43.440] are shaking their head, yes, yes, yes.
+- [31:45.950] I won’t report who you are
+- [31:47.190] because you’ll end up losing your jobs.
+- [31:48.730] But it’s true. It’s amazing.
+- [31:53.310] And the police, and you look at the D.C. National Guard.
+- [32:00.140] I saw pictures of them last night getting off vans and all.
+- [32:03.910] And I saw some bad ones running.
+- [32:05.250] But they’re not running so much anymore.
+- [32:06.540] They’re not there. They’re just not even --
+- [32:08.500] they’re not even trying. You’re totally safe.
+- [32:10.500] Now, there’ll be something happening sometime.
+- [32:12.430] I don’t know. Maybe it won’t be for a long time.
+- [32:14.480] But this was -- every night,
+- [32:17.120] we’d get reports of people being mugged and kidnapped.
+- [32:20.590] There’s one woman on television last night.
+- [32:22.720] She had a badly busted-up nose. And she said,
+- [32:25.930] “Well, I like our streets the way they used to be.”
+- [32:28.870] And she thinks it’s going to happen, like, by doing nothing.
+- [32:32.410] And they said, “What happened to your nose?”
+- [32:34.340] She got slugged by a guy walking down the street.
+- [32:37.070] Slugged. Her nose will never be the same, I guarantee you,
+- [32:39.960] unless it takes a pretty good turn.
+- [32:43.130] She wasn’t really for us. But she sort of said,
+- [32:46.130] “Well, maybe something has to happen.”
+- [32:47.640] Before this happened to me, she got whacked.
+- [32:50.610] And I don’t think she’ll ever be the same.
+- [32:53.140] She was -- she almost became -- she was a half-a-Trump fan,
+- [32:56.470] a woman that would have never finished on that.
+- [32:58.980] But she was -- she was hit hard.
+- [33:00.970] It’s not going to happen anymore.
+- [33:02.200] Not going to happen anymore.
+- [33:03.490] But then we’re going to beautify the city, too.
+- [33:05.720] That’s where I was today at Kennedy Center.
+- [33:08.420] We’re going to beautify the city like it has it.
+- [33:11.120] And we’re working with Clark Construction,
+- [33:13.050] the biggest construction company in Chicago.
+- [33:16.260] And -- in Chicago and Washington.
+- [33:20.050] And the head of Clark is great.
+- [33:22.180] He’s all over the world, actually.
+- [33:23.830] But Washington, I would say, is their home.
+- [33:25.690] That’s where they do the best work, the biggest work.
+- [33:28.610] And they’re doing a --
+- [33:30.580] they’ve been doing a fantastic job.
+- [33:32.170] So you’re going to have a fantastic, clean,
+- [33:34.830] beautiful place.
+- [33:36.070] It’s going to be better than it ever was before.
+- [33:37.790] Literally better than it ever was before.
+- [33:39.380] We’ll get it done very quickly. And I want to thank Clark,
+- [33:42.470] because they’re doing a lot of work
+- [33:45.030] in a lot of different locations.
+- [33:46.450] But they’ve been fantastically getting us the right contractors
+- [33:49.950] and the people that can really do the job right.
+- [33:52.130] And, Gianni, did you want to say something?
+- [33:53.490] Gianni Infantino: Yes. One more thing,
+- [33:54.740] because, as you rightly say,
+- [33:56.160] you know, with security and beautifying cities
+- [33:59.950] and the whole country, we want --
+- [34:02.560] people to come and enjoy and have fun
+- [34:05.090] and that’s why this is not just the most iconic trophy
+- [34:08.890] in the world of sport
+- [34:10.090] but we start on the 10th of September
+- [34:13.640] the sale of tickets for the FIFA World Cup.
+- [34:17.820] And we have the first ticket here for the final for you,
+- [34:25.220] it’s of course row 1 seat 1 is ticket number 4547,
+- [34:31.460] and it’s for the final in New York New Jersey,
+- [34:35.640] so you have your ticket already for the final.
+- [34:37.710] All the others 10th of September start getting your tickets.
+- [34:41.510] That’s beautiful yeah six and a half seven million tickets,
+- [34:44.870] fans will enjoy with your security here
+- [34:46.930] would be fantastic.
+- [34:48.210] The President: You’re going to do record business I think.
+- [34:50.090] Kristi would you like to say something
+- [34:51.510] Kristi Noem: Mr. President,
+- [34:52.730] millions of people will come to this country
+- [34:54.540] and we’ll make sure they get their travel
+- [34:56.180] documents their visas that they want to come here
+- [34:58.890] and spend their money and enjoy the sporting event.
+- [35:01.290] It’ll be the largest event in the world
+- [35:03.350] and so you’re reminding me of something
+- [35:04.860] that my dad used to say all the time
+- [35:06.920] when I was growing up he would say Kristi,
+- [35:09.850] your kids need to look like you respect yourself
+- [35:12.230] before anybody’s going to respect you,
+- [35:14.490] and in this country when people look at our streets
+- [35:17.220] when they look at our capital
+- [35:18.590] you’re bringing respect back to the city.
+- [35:21.180] And people will respect our country more
+- [35:22.930] because it’s safe, it’s clean, it’s beautiful,
+- [35:25.650] and what you’re doing is transforming this nation
+- [35:28.360] by making sure that our laws are upheld
+- [35:30.050] and millions of people are going to come
+- [35:31.870] and be able to enjoy it next year.
+- [35:33.280] And I’m excited about that. Thank you for doing that.
+- [35:35.250] The President: Well our country is respected again
+- [35:37.930] and a year ago, we had a dead country.
+- [35:40.250] I’m telling you it was a dead country,
+- [35:41.680] it was a country that had lost its way.
+- [35:44.520] It was a country that was going to fail look even today
+- [35:47.500] where they say four trillion dollars
+- [35:49.140] in reductions of deficits, and this was totally unexpected.
+- [35:54.660] I mean I don’t know where they’ve been the people
+- [35:56.710] that do this stuff but it’s --
+- [35:59.060] I want to thank Kristi for another reason.
+- [36:00.550] I said to her two weeks ago I said Kristi, do me a favor.
+- [36:03.310] I built hundreds of miles of wall.
+- [36:06.070] I built the same wall that the Border Patrol asked me to build.
+- [36:09.930] It wasn’t my first choice,
+- [36:11.170] I wanted to do concrete plank and everything nice.
+- [36:14.130] You wouldn’t have been able to see through it.
+- [36:16.040] So I had Border Patrol and they tested everything else,
+- [36:18.730] then we gave them steel wall
+- [36:20.550] high-grade steel very hard to cut.
+- [36:23.080] So we gave inside that is 9,000 pound concrete
+- [36:26.120] which is a very tough concrete inside that
+- [36:28.520] is rebar a big fat piece of rebar.
+- [36:31.540] So you have all different materials that are very hard
+- [36:34.330] to cut you need different instruments to cut each one.
+- [36:37.620] And I said Kristi, we got to get a coat of paint on it,
+- [36:41.470] and I didn’t know she was listening.
+- [36:44.040] But I said we got to get a coat of paint
+- [36:46.280] and it should be black because black makes the steel very hot,
+- [36:50.370] it’s untouchable, you could fry an egg on it.
+- [36:53.020] And if you got a good black flat paint it would look beautiful,
+- [36:56.810] it will preserve it from rust and that was it.
+- [37:00.210] And I gave it to her along with 30 other things,
+- [37:02.240] and she’s done such a good job on the border
+- [37:03.970] with Tom Homan and the group. Tom Homan’s a fantastic guy,
+- [37:07.980] what the job he does and the way they work together.
+- [37:10.890] So I turn on last night and I see Kristi’s painting the wall
+- [37:15.800] and it looked beautiful by the way
+- [37:17.290] when that paint went over there.
+- [37:18.560] And it’s hot. It’s hot. If it’s white it’s not hot.
+- [37:23.230] If it’s black it’s going to be very hard to climb that sucker.
+- [37:26.860] It’s not going to be easy but it’s black
+- [37:30.410] and a high-quality black you know it’s really look good.
+- [37:32.850] Is that going to be a two coat job or one coat?
+- [37:34.610] Kristi Noem: No, just one coat.
+- [37:35.860] We used the paint you told me to buy.
+- [37:38.600] The two coat will take place in three years from now.
+- [37:42.490] But it looks beautiful but thank you very much
+- [37:44.290] I didn’t know you were listening.
+- [37:45.710] We talked about seven different subjects
+- [37:48.140] and all of a sudden I see you’re out there painting
+- [37:49.890] with a lot of painters and everything else
+- [37:51.410] but it was it was a beautiful thing to see.
+- [37:54.190] Would you like to say something?
+- [37:55.540] You’ve been such a big part of this. Please.
+- [37:57.330] Male Speaker: Mr. President,
+- [37:58.630] delighted to be here today for this announcement
+- [38:00.910] but we’re also looking forward to having you at the finals.
+- [38:03.590] On July 19th in New York. We’re going to be there.
+- [38:06.840] A lot of people are going to be there.
+- [38:10.140] The President: I’d like to thank you all.
+- [38:11.620] Do you have any questions?
+- [38:13.880] It’s going to be a big event at the Kennedy Center.
+- [38:15.690] The Press: Do you have time to take part in it?
+- [38:17.590] Will you have a part to play on the soccer pitch?
+- [38:21.430] The President: I might play.
+- [38:28.690] I see the money that these soccer players are making.
+- [38:31.040] I may try and play. I’m a very good athlete.
+- [38:33.920] My son is a very good athlete and he’s a good soccer player.
+- [38:37.680] He’s on the tall side for soccer.
+- [38:39.830] He’s 6’9″. That’s pretty tall.
+- [38:43.310] He’s on the tall side but he’s good.
+- [38:47.050] I may put on shorts. I’m extremely good in shorts.
+- [38:50.490] Enjoy the play. It’s going to be a lot of fun.
+- [38:54.140] The Press: Many foreigners who want to come to attend
+- [38:57.890] the event are concerned about the visa situation.
+- [39:01.660] Can you reassure them?
+- [39:02.940] The President: They’re going to have a very easy time
+- [39:04.480] getting in.
+- [39:05.710] Certain countries are going to be very, very easy
+- [39:07.990] and other countries are going to be obviously
+- [39:09.650] a little bit more difficult.
+- [39:10.960] Would you like to explain that question?
+- [39:12.480] Kristi Noem: Absolutely. We have a process set up
+- [39:14.630] that we’ll be implementing on getting visas approved.
+- [39:18.680] Everybody will be thoroughly vetted
+- [39:19.980] but they’ll be welcome to this country.
+- [39:21.490] It’ll happen quickly and we’re excited for them to come.
+- [39:24.520] I would hope that around the world people know
+- [39:27.240] that the United States is excited
+- [39:29.100] to bring their family here to enjoy this event.
+- [39:32.610] Male Speaker: America welcomes the world.
+- [39:34.720] I can relate from the collaboration that we have.
+- [39:40.250] The President: I just sent a picture from somebody
+- [39:42.010] that wants to be there very badly.
+- [39:45.240] He’s been very respectful of me and of our country
+- [39:47.770] but not so respectful of others. I’m going to sign this for him.
+- [39:53.500] I was sent one and I thought you would like to see it.
+- [39:56.540] It’s a man named Vladimir Putin
+- [39:59.480] who I believe will be coming depending on what happens.
+- [40:02.930] He may be coming and he may not depending on what happens.
+- [40:05.170] We have a lot of things
+- [40:06.540] happening over the next couple of weeks.
+- [40:09.140] But I thought it was a nice picture of him.
+- [40:12.700] Okay of me but nice of him.
+- [40:15.260] So that was very nice that it was sent to me.
+- [40:17.660] Okay.
+- [40:19.220] The Press: Mr. President.
+- [40:20.450] Can you talk to Vladimir Putin about the fact that yesterday
+- [40:23.900] a big U.S. factory was hit in a Russian airstrike in Ukraine?
+- [40:28.050] What’s your reaction to that?
+- [40:29.570] The President: I’m not happy about it.
+- [40:31.270] And I’m not happy about anything having to do with that war.
+- [40:33.570] I said I settled seven wars
+- [40:35.900] and actually if you think about three wars
+- [40:38.670] add three more so it would be ten.
+- [40:41.180] I thought this would be in the middle of the pack
+- [40:44.590] in terms of difficulty.
+- [40:46.230] Now I’m not happy about anything about that war.
+- [40:49.320] Nothing. Not happy at all. We’ll see what happens.
+- [40:52.470] I think over the next two weeks
+- [40:54.450] we’re going to find out which way it’s going to go.
+- [40:57.570] And I better be very happy.
+- [41:01.430] The Press: Mr. President. I just made a very good call
+- [41:03.830] with Prime Minister Carney of Canada yesterday morning.
+- [41:08.010] Actually Canada is taking away some retaliatory tariffs.
+- [41:11.330] He’s removing his tariffs. Exactly.
+- [41:13.190] The President: He’s removing his retaliatory tariffs
+- [41:15.120] which I thought was nice.
+- [41:16.370] And we’re going to have another call soon.
+- [41:17.960] We had a very good call.
+- [41:19.180] They’re getting closer and towards -- I like them.
+- [41:22.110] You know, look. I’m fighting for the United States.
+- [41:25.650] Canada and Mexico take a lot of our business over the years,
+- [41:28.610] over 25, 30 years.
+- [41:30.490] Especially during the Biden years.
+- [41:32.180] They took a lot of our business.
+- [41:33.410] And it’s basically all coming back into the United States now.
+- [41:36.940] We’re hot as a pistol. And it’s coming back.
+- [41:38.670] And because of tariffs and the incentives we give,
+- [41:41.170] it’s coming back.
+- [41:42.380] And it’s impossible, I think, for another country to stop it.
+- [41:46.380] And we are working on something.
+- [41:48.940] We want to be very good to Canada.
+- [41:51.250] I like Carney a lot. I think he’s a good person.
+- [41:55.050] And we had a very good talk yesterday.
+- [41:56.880] So I think it’ll be good.
+- [41:58.230] The Press: Mr. President.
+- [41:59.450] You talked about the search of Ambassador Bolton’s home.
+- [42:03.040] The Vice President recently did an interview
+- [42:04.790] saying that it’s about classified documents,
+- [42:07.300] but that there’s also broad concern about him.
+- [42:10.030] What are the concerns?
+- [42:11.450] The President: Well, I haven’t spoken to Pam and the group yet,
+- [42:13.740] but I will be. I saw that just like everybody else.
+- [42:17.620] I try and stay out of that stuff.
+- [42:18.920] I’m allowed to be.
+- [42:20.160] And I’m Chief Law Enforcement Officer, believe it or not.
+- [42:23.140] I don’t like to go around saying that, but I am.
+- [42:24.970] That’s the position.
+- [42:26.790] But I purposely don’t want to really get involved in it.
+- [42:29.780] I’m not a fan of John Bolton.
+- [42:31.120] I thought he was a sleazebag, actually.
+- [42:33.300] And he suffers major Trump derangement syndrome,
+- [42:37.150] but so do a lot of people,
+- [42:38.370] and they’re not being affected by anything we do.
+- [42:41.800] I don’t know anything about it.
+- [42:43.050] I just saw that. I’ll find out about it.
+- [42:46.040] But if you believe the news, which I do,
+- [42:50.700] I guess his house was raided today.
+- [42:52.410] But my house was raided also for Mar-a-Lago.
+- [42:55.250] They went through everything they could,
+- [42:56.800] including my young son’s room and my wife’s area.
+- [43:01.180] They went through her drawers, as the expression goes.
+- [43:04.860] They went through everything you can imagine.
+- [43:07.790] And when she came back, she looked.
+- [43:09.070] She said, she’s very neat. She’s meticulous.
+- [43:12.220] And she looked, and she said,
+- [43:14.240] “ooh, this wasn’t the way that she had it.”
+- [43:19.340] So I know the feeling. It’s not a good feeling.
+- [43:21.150] Thank you.
+- [43:22.380] The Press: Mr. President, how long will you give Putin?
+- [43:25.950] The President: A couple of weeks.
+- [43:27.240] We’re going to figure it out.
+- [43:28.850] The Press: Do you think you’ll have to intervene at some point?
+- [43:30.510] The President: Look, it takes two to tango.
+- [43:31.760] You understand that.
+- [43:32.980] I wanted to have a meeting with those two.
+- [43:34.640] I could have been at the meeting,
+- [43:36.000] but I know a lot of people think
+- [43:37.280] that nothing’s going to come out of that meeting.
+- [43:40.010] You have to be there. Maybe that’s true.
+- [43:41.880] Maybe it’s not. But we’re going to see.
+- [43:43.930] In the meantime, people continue to die.
+- [43:47.010] I solved seven of them where they were in wars
+- [43:50.420] for 31, 35, and 37 years.
+- [43:53.090] We had three of them that were for more than 30 years,
+- [43:56.420] and I got them solved.
+- [43:58.440] And we solved one that could have been a nuclear war
+- [44:00.990] with India and Pakistan.
+- [44:03.090] That was getting ready to be a nuclear war.
+- [44:04.810] I solved them all.
+- [44:06.420] And this one, I thought we would have had it done by now,
+- [44:10.540] but it’s more difficult.
+- [44:12.140] There’s a lot of anger, a lot of hatred.
+- [44:13.680] There’s a tremendous amount of hatred there.
+- [44:15.940] But we’ll see what happens.
+- [44:17.230] I think in two weeks we’ll know which way I’m going,
+- [44:21.400] because I’m going to go one way or the other,
+- [44:23.860] and I’ll learn which way I’m going.
+- [44:26.800] The Press: I’ve got two questions for you,
+- [44:28.020] one on FIFA, the other one on D.C.
+- [44:31.510] You talk about the economic impact
+- [44:33.360] that people will have in these cities,
+- [44:35.150] and what’s your message to the mayors
+- [44:37.070] to get their cities prepared,
+- [44:38.470] not only for the beautification process,
+- [44:40.070] but also the safety aspect?
+- [44:41.910] The President: Well, Los Angeles is an example.
+- [44:43.320] You know, it’s poorly run.
+- [44:44.590] We have a mayor there that can’t even get permits
+- [44:46.480] to the people that lost their houses.
+- [44:49.010] Lee Zeldin got every permit.
+- [44:51.230] The hardest permit is the federal permit.
+- [44:53.580] Within 20 days, every single permit
+- [44:55.980] was there for the people to build their houses.
+- [44:58.130] But people are writing us,
+- [44:59.860] and they’re saying they won’t give us --
+- [45:01.420] The mayor is incompetent. The governor’s incompetent.
+- [45:05.480] You know, Gavin -- I know Gavin very well.
+- [45:07.050] He’s an incompetent guy with a good line of bullshit.
+- [45:10.380] And he doesn’t get the job done.
+- [45:12.860] And frankly, those people want to build their houses.
+- [45:16.470] It’s terrible. They could have been built.
+- [45:18.130] Some of them could have been built already.
+- [45:20.510] But think of it, the federal government
+- [45:22.120] that has the most complex part --
+- [45:24.930] It’s the most complex environmental thing to do.
+- [45:28.480] We got it -- Everybody had it within 30 days.
+- [45:32.500] And they’re not even close to getting their permits.
+- [45:35.160] And now they’re talking about taking some of those sites
+- [45:37.670] and building low-income housing on them.
+- [45:39.650] These are high-end neighborhoods.
+- [45:41.410] And I’m all for low-income housing.
+- [45:43.470] I built a lot of low-income housing.
+- [45:45.050] I know all about 236.
+- [45:47.710] I know every program that there is in the government.
+- [45:49.730] I used every one of them. I know more about low-income
+- [45:51.850] housing than probably almost anybody.
+- [45:55.330] And it’s great. It’s fine. It’s wonderful.
+- [45:57.520] But you don’t build it in Pacific Palisades.
+- [46:01.620] You don’t build it there.
+- [46:03.200] And you don’t build it in the other areas that burned down.
+- [46:05.480] So --
+- [46:53.190] The Press: My second question is on crime prevention.
+- [46:55.430] Would you be open to expanding the national concealed
+- [46:58.700] carry to apply to D.C. like it does in other states like Texas?
+- [47:02.860] The President: Yeah.
+- [47:04.080] Well, they have it in some states,
+- [47:05.510] and they feel strongly about it. As you know, I’m in favor of it.
+- [47:10.280] People have to protect themselves.
+- [47:11.550] I’m a Second Amendment person, very simply.
+- [47:14.180] People have to be able to protect themselves.
+- [47:16.670] Especially like in Washington, you walk down the street,
+- [47:19.020] a guy comes up and slugs you,
+- [47:20.510] and he’s got a pistol in his hand.
+- [47:23.100] You could be tough. You could be in great shape.
+- [47:25.300] You could be a powerful person.
+- [47:27.970] Or you could be a guy that weighs 100 pounds
+- [47:29.940] with a gun in your hand. And I’ll bet on the guy
+- [47:32.720] with the gun 100 percent of the time, right?
+- [47:35.210] And so you need protection.
+- [47:36.410] So I’m a Second Amendment person all the way.
+- [47:37.950] Yeah, please.
+- [47:39.150] The Press: President Trump said this morning
+- [47:40.360] that you’re working with Congress
+- [47:41.640] to get $2 billion to help clean up D.C.
+- [47:44.120] Have you had any conversations with Mike Johnson and John Thune
+- [47:46.510] about where they’re going to get that money from?
+- [47:48.140] The President: Which money?
+- [47:49.430] The Press: You said this morning that you’re going to
+- [47:50.670] get $2 billion from Congress to help clean up D.C.
+- [47:52.480] The President: Yeah. I’ve spoken to Mike Johnson.
+- [47:53.840] I’ve spoken to John Thune, the Senate House.
+- [47:58.140] And I think it’s going to be very easy to get.
+- [48:02.130] It’s going to be not a lot of money.
+- [48:03.910] I wouldn’t even know where to spend
+- [48:05.300] the number that you mentioned.
+- [48:06.550] But it’s going to be money to beautify the city.
+- [48:10.320] They’re ready. Everybody wants to save D.C.
+- [48:13.430] In one way, it’s the easiest.
+- [48:15.470] The violence was more than any other city
+- [48:17.380] in the country, actually, by far.
+- [48:19.660] It may have been more than any other city in the world,
+- [48:22.250] if you could think.
+- [48:23.500] And, you know, we looked at some of the worst cities
+- [48:25.130] in the world. It was worse.
+- [48:26.380] And that’s why it angers me to see the mayor
+- [48:29.420] saying about how they have it on this side.
+- [48:31.380] Not on this side. It was worse than ever.
+- [48:34.100] Yeah, we have no problem getting that money.
+- [48:35.760] That money will come out of Congress.
+- [48:37.000] I think it will be even bipartisan.
+- [48:39.090] I mean, I would imagine Democrats
+- [48:40.590] would vote for that one.
+- [48:41.870] The Press: Is the plan to get it
+- [48:43.070] before the September 30th deadline on the Hill?
+- [48:46.070] The President: Well, I don’t know
+- [48:47.460] if there is a deadline, either deadline,
+- [48:49.150] because if I declare a national emergency,
+- [48:52.070] which this was, that ends the deadline.
+- [48:55.720] So, I mean, I keep seeing about a 30-day deadline
+- [48:58.230] of which we have 22 days left or something.
+- [49:00.270] But if I think we’re in great shape here, that’s one thing.
+- [49:04.100] But if I don’t, I’m going to just say
+- [49:05.790] it’s a national emergency.
+- [49:07.890] And if I have a national emergency,
+- [49:09.610] I can keep the troops there as long as I want.
+- [49:12.540] If people are not going to want to have the troops,
+- [49:14.220] in 30 days, you know, it’s one thing to get them out.
+- [49:17.390] It’s another thing to keep them out for a long period of time.
+- [49:21.260] You’ve got to train people. You can’t do this.
+- [49:23.590] You can’t bop people over the head.
+- [49:25.600] And a lot of those people are in courts right now,
+- [49:27.310] going to court.
+- [49:28.510] They’re going to go to jail for a long time.
+- [49:30.810] So that’s going to take more than 30 days.
+- [49:33.210] But if I have to, I’ll declare a national emergency,
+- [49:36.300] which I don’t think I’ll have to do.
+- [49:37.880] The Press: Mr. President, if you can spend two weeks,
+- [49:40.080] you’ll know whether you go or not.
+- [49:41.360] The President: Yeah, I think I’ll know.
+- [49:42.600] I think I’ll know the attitude of Russia
+- [49:45.450] and, frankly, of Ukraine. It takes two.
+- [49:47.210] The Press: What are the two ways you can go
+- [49:48.580] at the end of two weeks, then?
+- [49:50.170] The President: Well, then I’m going to make a decision
+- [49:51.440] as to what we do.
+- [49:53.360] And it’s going to be a very important decision.
+- [49:57.290] And that’s whether or not it’s massive sanctions
+- [49:59.820] or massive tariffs or both.
+- [50:03.620] Or do we do nothing and say it’s your fight?
+- [50:06.630] Look, I would have never been in this war if I were president.
+- [50:09.590] You wouldn’t have. You would have had this war.
+- [50:11.300] It was never going to happen.
+- [50:13.020] This was caused by stupid people that fought.
+- [50:18.370] And, you know, people say, well, how do we know?
+- [50:20.410] Because for four years, it was never even a subject.
+- [50:23.270] And Vladimir knew. And you see his picture right here.
+- [50:26.350] It was nice that he said, but Vladimir knew very strongly.
+- [50:31.980] We wouldn’t have stood for it. It wouldn’t have happened.
+- [50:35.400] A hundred percent wouldn’t have happened.
+- [50:37.020] But it did happen.
+- [50:38.370] And now they’re losing from five to seven young kids.
+- [50:41.680] Think of it. You’re a parent and your son is leaving.
+- [50:44.040] He’s Russian or he’s Ukrainian.
+- [50:46.280] And he’s leaving and they’re waving him by.
+- [50:48.210] Nice, beautiful kid. Nice crew cut. All set.
+- [50:52.480] He wants to be a soldier. And he goes there.
+- [50:55.550] First week, he has his head blown off.
+- [50:59.090] And he’s no different than you people, me.
+- [51:02.190] And it doesn’t matter where.
+- [51:03.660] I mean, I saw I solved a problem in the Congo that was vicious.
+- [51:09.690] Rwanda and the Congo, the Republic of the Congo.
+- [51:13.440] And they were fighting for 31 years.
+- [51:15.700] And it was machetes.
+- [51:17.580] People were getting their heads chopped off.
+- [51:20.020] I was going over 31 years. I got it solved. You saw it.
+- [51:22.600] They came to the White House and we signed an agreement.
+- [51:24.630] It was amazing.
+- [51:25.910] People can’t believe we got it done.
+- [51:28.500] I love to stop killing. I really do.
+- [51:31.840] People thought it would be just the opposite.
+- [51:33.910] Hillary Clinton said, “Oh, he’ll get us into a war.”
+- [51:36.090] No, I’m getting everybody else out of wars.
+- [51:38.360] The Press: Do you think it’s a real possibility
+- [51:39.860] then that he’d do nothing
+- [51:43.100] if Putin doesn’t come to the table for a ceasefire?
+- [51:45.780] The President: I’ll see who’s fault it is.
+- [51:46.990] If there are reasons why, I’ll understand that.
+- [51:50.440] I know exactly what I’m doing.
+- [51:53.080] We’re going to see whether or not they have a meeting.
+- [51:55.010] That’ll be interesting to see.
+- [51:56.290] And if they don’t, why didn’t they have a meeting?
+- [51:57.830] Because I told them to have a meeting.
+- [51:59.810] But I’ll know in two weeks what I’m going to do.
+- [52:02.010] Pretty good idea.
+- [52:03.340] The Press: The House Department is also sending
+- [52:05.390] some of the Epstein files over
+- [52:07.610] to the House Oversight Committee today.
+- [52:10.130] Are you in support of them releasing all of them?
+- [52:12.260] The President: I’m in support of keeping it open.
+- [52:13.920] People shouldn’t be hurt,
+- [52:15.160] but I’m in support of keeping it totally open.
+- [52:16.690] I couldn’t care less.
+- [52:17.920] You’ve got a lot of people that could be mentioned
+- [52:20.220] in those files that don’t deserve to be people,
+- [52:23.110] because he knew everybody in Palm Beach.
+- [52:24.800] I don’t know anything about that,
+- [52:26.100] but I have said to Pam and everybody else,
+- [52:27.810] give them everything you can give them,
+- [52:29.530] because it’s a Democrat hoax. It’s just a hoax.
+- [52:32.400] The whole Epstein thing is a Democrat hoax.
+- [52:35.120] So we had the greatest six months,
+- [52:36.850] seven months in the history of the presidency,
+- [52:39.500] and the Democrats don’t know what to do,
+- [52:41.160] so they keep bringing up that stuff.
+- [52:43.120] But it affected them. Bill Clinton was on his plane
+- [52:47.970] and went to the island supposedly 28 times.
+- [52:50.790] I don’t want to bring that up, frankly.
+- [52:53.480] You have Larry whatever his name is,
+- [52:55.580] Summers, the head of Harvard,
+- [52:57.390] who was Jeffrey Epstein’s best friend.
+- [52:59.450] Nobody ever talks about that.
+- [53:01.530] But I don’t want to hurt Larry Summers,
+- [53:03.410] but he was best friends with Jeffrey Epstein.
+- [53:05.540] No, this is a Democratic hoax to try and get the significance
+- [53:11.610] of what we’ve done over the past seven months.
+- [53:14.610] Nobody’s ever seen anything like it.
+- [53:16.030] They say it’s number one in history, what we’ve done,
+- [53:18.740] including stopping seven wars. I mean, just include that.
+- [53:22.640] And now you look at the stock market today.
+- [53:25.010] It’s way up to start off with from where I took it.
+- [53:28.380] And this market was going to crash.
+- [53:29.860] If Joe Biden or Kamala were president,
+- [53:32.170] this market, we would have had a crash like in 1929.
+- [53:35.550] You’re not going to have that.
+- [53:36.930] It’s only a question of how high is it going to go?
+- [53:38.910] You know, I had the strongest economy
+- [53:40.680] in the history of our country.
+- [53:43.170] And despite COVID, we have the strongest economy
+- [53:46.330] in the history of our country.
+- [53:48.400] And we’re going to blow it away this time.
+- [53:50.270] I was always good at making a lot of money.
+- [53:52.460] And whether it was for myself
+- [53:54.140] or whether I like doing it this way better.
+- [53:56.200] I mean, I like making it for the country.
+- [53:58.420] Our country has been ripped off by friend and foe,
+- [54:01.270] nations all over the world, ripped off.
+- [54:03.110] And the friends have been much worse than the foes,
+- [54:05.630] for the most part. And they’re not ripping us off.
+- [54:09.300] We just signed a deal with the European Union.
+- [54:11.190] They’re paying us essentially $950 billion,
+- [54:14.950] like a signing fee.
+- [54:16.190] They’re going to buy $750 billion worth of energy.
+- [54:19.130] They weren’t buying much of our energy there.
+- [54:22.370] And they’re very smart in doing it.
+- [54:24.290] And as you know, Ursula was here a couple of days ago,
+- [54:27.080] having to do with the people, the leaders that we had agreed.
+- [54:30.410] People said they’d never seen anything like it.
+- [54:32.260] Well, we had the leaders of Europe right here
+- [54:34.800] in the Oval Office.
+- [54:36.510] And she’s so happy that she has an agreement.
+- [54:39.000] But people aren’t ripping us anymore.
+- [54:41.960] We’re run by -- This country is run by smart people now.
+- [54:45.700] The Press: Mr. President, I have two questions.
+- [54:48.120] One is about himself. You have been reported
+- [54:50.400] that you’re considering taking a stake in himself.
+- [54:52.330] Can you talk about that? About the 10 percent?
+- [54:53.810] The President: About the 10 percent.
+- [54:55.030] Yeah, I met a man who was a very nice man,
+- [54:56.870] and I called for his removal
+- [54:58.230] because I saw something by a man named Tom Cotton,
+- [55:01.720] a senator from Arkansas.
+- [55:03.270] He’s a great guy, a friend of mine,
+- [55:05.030] a supporter of mine, a big supporter.
+- [55:06.390] I’m a supporter of his too.
+- [55:07.970] And he wrote a pretty nasty story about the head of Intel.
+- [55:12.900] And I said, well, if that’s right, he should resign.
+- [55:15.330] And he came in. He saw me. We talked for a while.
+- [55:18.640] I liked him a lot. I thought he was very good.
+- [55:20.930] I thought he was somewhat a victim.
+- [55:22.630] But, you know, nobody’s a total victim, I guess.
+- [55:25.210] And I said, “You know what?
+- [55:28.470] I think the United States should be given 10 percent of Intel.”
+- [55:33.420] And he said, “I would consider that.”
+- [55:36.860] I said, “Well, I’d like you to do that
+- [55:38.500] because Intel has been left behind,”
+- [55:41.930] as you know, compared to Jensen and some of our friends,
+- [55:47.210] NVIDIA, some of the people and the people in --
+- [55:50.760] Because Intel should have never been --
+- [55:52.320] Intel was the biggest,
+- [55:54.360] most powerful chip company in the world.
+- [55:58.120] And then they started leaving.
+- [56:01.990] And they started going to foreign countries,
+- [56:03.890] in particular Taiwan.
+- [56:05.860] And if we had a president that would have said,
+- [56:07.690] “OK, you can go to Taiwan,
+- [56:08.990] but we’re going to put a 100 percent tariff
+- [56:10.800] or 200 percent or 300 percent or 500 percent tariff.
+- [56:14.400] Anybody that sells into the United States has to pay.”
+- [56:16.880] They wouldn’t have left.
+- [56:18.190] They would have never left and we wouldn’t have.
+- [56:19.820] So, in the meantime, we have people that were, in some cases,
+- [56:23.080] good politicians that weren’t good on trade.
+- [56:25.300] I loved that man, but he was not good on trade.
+- [56:28.220] I totally disagree.
+- [56:29.550] He allowed the car industry to be taken out of this country.
+- [56:33.060] We lost 50 percent of our car industry.
+- [56:35.660] But that’s all coming back. It’s all coming back.
+- [56:37.620] But if somebody would have said that with Intel,
+- [56:40.910] we’d be a giant right now.
+- [56:42.850] Now, with that, they’ve had some bad management over the years
+- [56:45.990] and they got lost. And I said,
+- [56:47.810] “I think you should pay us 10 percent of your company”
+- [56:50.720] and they said, “Yes,” that’s about 10 billion dollars.
+- [56:54.200] I don’t get it. This comes to the United States of America.
+- [56:58.050] And I said, “I think it would be good
+- [56:59.610] having the United States as your partner.”
+- [57:01.410] He agreed and they’ve agreed to do it.
+- [57:02.840] And I think it’s a great deal for them.
+- [57:04.570] And I think it’s a great deal.
+- [57:05.880] He walked in wanting to keep his job
+- [57:09.210] and he ended up giving us 10 billion dollars
+- [57:11.090] for the United States. So we picked up 10 billion
+- [57:14.100] and we do a lot of deals like that.
+- [57:15.540] I’ll do more of them.
+- [57:16.750] If somebody has like we have restrictive covenants
+- [57:19.730] with Jensen, we have it’s NVIDIA.
+- [57:24.870] And to unrestrict the covenant.
+- [57:27.390] Nothing to do with losing our powers or military or anything
+- [57:32.050] because that I wouldn’t do. But there are things you can do
+- [57:35.110] that don’t affect us that actually help us.
+- [57:38.670] And if we’re going to give somebody a free
+- [57:41.380] out a restricted covenant,
+- [57:43.190] we have a strong restrictive covenant on certain industries.
+- [57:46.770] And I will absolutely give somebody a opening
+- [57:51.000] or a restrict to do a lot of business,
+- [57:52.700] which is good for us,
+- [57:53.940] as long as it doesn’t hurt us in a security or military way.
+- [57:58.060] And if I do that, I think the country should be paid
+- [58:00.420] because anybody else I have it in real estate
+- [58:02.460] where I’ll have a deal with somebody
+- [58:04.340] and I’ll have them restrictive covenant.
+- [58:06.530] Then they’ll come back and they’ll say,
+- [58:08.090] “I’d love to be able to build over here,
+- [58:10.080] but I’m not allowed to because you have me covered.
+- [58:12.560] You have me restricted.” I said,
+- [58:14.560] “I’ll let you build over there, but pay me a lot of money.”
+- [58:18.210] No different. But the country never did it
+- [58:21.090] because the country was run by foolish people.
+- [58:26.560] The Press: You said Chicago might be bad.
+- [58:31.110] Have there been concrete steps
+- [58:32.550] that the administration has taken to do that?
+- [58:34.110] Or what other cities have done that?
+- [58:35.360] The President: I haven’t spoken to them.
+- [58:36.580] He’s grossly incompetent. I haven’t spoken to them.
+- [58:38.430] When we’re ready, we’ll go in
+- [58:39.670] and we’ll straighten out Chicago, just like we did D.C.
+- [58:43.070] Chicago is very dangerous, great place.
+- [58:45.110] I built great stuff there.
+- [58:46.700] I have the most beautiful building in Chicago, I think.
+- [58:49.440] But I hate to see what’s happened to Chicago.
+- [58:51.680] Chicago was our greatest city, actually.
+- [58:54.680] Bob Tisch, a great friend of mine, passed away.
+- [58:57.040] He used to own the Giants, very successful Lowe’s.
+- [59:00.710] He said Chicago,
+- [59:02.360] I think they had their main office in Chicago.
+- [59:04.170] He said Chicago and San Francisco,
+- [59:06.060] the two greatest cities in the world.
+- [59:08.260] Now you look at what the Democrats have done
+- [59:09.980] to San Francisco. They’ve destroyed it.
+- [59:12.120] I own a big chunk of the Bank of America
+- [59:14.520] building in San Francisco.
+- [59:17.120] It’s just different. We can clean that up, too.
+- [59:19.410] We’ll clean that one up, too.
+- [59:21.500] If everything works out,
+- [59:23.990] and we’ve already had calls from other cities, quiet calls.
+- [59:27.220] Calls from Democrats, “We’d love you to come here,”
+- [59:30.630] because they’ve lost control of themselves.
+- [59:32.280] I’m not going to say it,
+- [59:33.650] because I don’t want them to lose their elections.
+- [59:36.130] But we’ve had calls from Democrats
+- [59:38.100] and calls from people, generally.
+- [59:40.310] “We’d love you to come here.
+- [59:42.070] This will straighten out the problem.”
+- [59:48.530] The Press: In Israel, the families of hostages
+- [59:51.710] are opposed to the reoccupying of Gaza.
+- [59:53.550] Why is the U.S. doing that?
+- [59:54.910] The President: Well, not all of them.
+- [59:56.200] And you have to understand,
+- [59:57.440] I’m the one that got all of the hostages out.
+- [59:59.140] You got a lot of people out.
+- [01:00:00.380] If it wasn’t for me, they wouldn’t be out.
+- [01:00:02.890] I worked with Bibi, and I worked with Steve Whitaker.
+- [01:00:06.110] But if it wasn’t for me,
+- [01:00:07.320] you would have all these hostages
+- [01:00:08.740] would most likely be dead right now, every one of them.
+- [01:00:11.200] So they all come up here.
+- [01:00:13.330] They all come in groups of 10, 12, 13, and many of them,
+- [01:00:18.420] and I’ve gotten to know a lot of them.
+- [01:00:19.930] They’re great people.
+- [01:00:21.150] What they had to go through is incredible.
+- [01:00:23.010] So now they have 20, but the 20 is actually probably not 20,
+- [01:00:25.870] because a couple maybe aren’t around any longer.
+- [01:00:28.580] It’s a terrible thing.
+- [01:00:30.230] No, I don’t like it anymore.
+- [01:00:32.160] I said, you know, when you get down to 20,
+- [01:00:35.370] they’re not going to make deals anymore, and they didn’t.
+- [01:00:37.390] And then I put out a statement, as you know,
+- [01:00:38.990] that was a tough statement, go in and get them.
+- [01:00:41.820] And they said, “We’ll give you 10, we’ll give you 10.”
+- [01:00:43.720] I don’t know what Israel’s doing,
+- [01:00:45.000] but they were willing now immediately to give us
+- [01:00:47.130] another 10.
+- [01:00:49.330] The situation has to end.
+- [01:00:51.610] It’s extortion, and it has to end.
+- [01:00:54.180] And we’ll see what happens.
+- [01:00:55.630] I actually think they’re safer in many ways if you went in
+- [01:00:58.060] and you really went in fast and you did it.
+- [01:01:00.910] And people can’t forget October 7th, remember that.
+- [01:01:03.070] I’m friendly
+- [01:01:04.300] The President: with all groups. I won the Arab vote in Michigan.
+- [01:01:07.720] I did so great with the Arab vote, remember?
+- [01:01:09.620] I started off at zero. I ended up winning.
+- [01:01:12.290] I wouldn’t say the candidate was the greatest,
+- [01:01:14.040] but I would have won against anybody.
+- [01:01:15.840] They’re great people.
+- [01:01:17.240] But we have to do things properly.
+- [01:01:20.350] And, you know, I’m very proud to say I got the hostages out.
+- [01:01:23.630] You have hundreds of people that are living now because of me.
+- [01:01:28.180] And now we have that final little group of people.
+- [01:01:30.570] And Hamas knows that if they give them,
+- [01:01:32.900] that’s probably the end of their lives.
+- [01:01:35.230] So it’s not easy to get.
+- [01:01:37.300] And I know if you’re a parent, you just don’t care.
+- [01:01:40.410] You want, I want my baby back. They want their babies back.
+- [01:01:42.980] They want their kids back. And I understand that.
+- [01:01:45.760] But I got them out and did a good job.
+- [01:01:48.180] And we’re doing everything we can to get the hostages out.
+- [01:01:52.380] Thank you all very much. Thank you very much.
+- [01:02:00.900] Well, we called him too late for a reason.
+- [01:02:03.040] He should have caught him a year ago. He’s too late.
+- [01:02:06.970] You know, we have a stock market
+- [01:02:08.310] that’s up a thousand points today.
+- [01:02:10.600] I better be careful because I go out there and I’ll see.
+- [01:02:12.880] It’s down a thousand, right?
+- [01:02:14.460] But it’s up a thousand points when I came in here.
+- [01:02:17.250] We have a country that markets the hottest it’s ever been.
+- [01:02:20.270] The country is better than it’s ever been.
+- [01:02:22.020] The President: We have a military
+- [01:02:23.250] that I rebuilt largely in my first term.
+- [01:02:25.210] We had a great, successful first term,
+- [01:02:27.570] but this is going to be even better.
+- [01:02:29.350] But we rebuilt it.
+- [01:02:30.560] We gave a lot of it away to Afghanistan,
+- [01:02:32.810] but relatively small compared to the overall.
+- [01:02:35.010] But I think it was the most embarrassing day and period
+- [01:02:38.910] in the history of our country
+- [01:02:40.400] that they allowed those 13 wonderful people.
+- [01:02:43.640] But it’s really hundreds of people were killed.
+- [01:02:45.840] And they don’t talk about the 48
+- [01:02:47.310] that was so severely wounded with no legs, no arms.
+- [01:02:51.070] Nobody ever mentions them except me.
+- [01:02:53.530] But that was the worst day, the most.
+- [01:02:56.210] It just showed how incompetent. Frankly, if that didn’t happen,
+- [01:02:58.960] I really believe that you might not have
+- [01:03:00.470] had the problem with Russia.
+- [01:03:01.850] I think Putin was sitting there watching these stupid people
+- [01:03:04.690] running our country and said, this is the time to invade.
+- [01:03:09.420] You know, this is the time.
+- [01:03:10.690] And then Biden made the statement,
+- [01:03:11.990] “Well, he can do a small incursion.”
+- [01:03:14.500] When he said that, it was off to the races, right?
+- [01:03:17.310] When he said he can do a small incursion.
+- [01:03:19.720] Remember that? I was surprised he knew the word incursion.
+- [01:03:22.590] I didn’t think he had that good of a vocabulary.
+- [01:03:25.210] The President: I want to thank everybody.
+- [01:03:27.000] It’s very important to me
+- [01:03:28.560] and to everybody up here, the World Cup.
+- [01:03:30.830] And Gianni has been so incredible.
+- [01:03:32.690] I mean, he’s really a great leader.
+- [01:03:34.220] I mean, to think, I said, “Gianni, do it by phone.
+- [01:03:35.850] You don’t have to come.”
+- [01:03:37.140] No, he said, “I’ll come. I’ll come.”
+- [01:03:38.660] And he flew all night long to be here
+- [01:03:40.220] and listen to this about how great we’re doing in D.C.
+- [01:03:43.590] But he’s a fantastic leader.
+- [01:03:45.680] And this will be your most successful World Cup ever.
+- [01:03:49.560] Thank you. It’s been a miracle.
+- [01:03:51.910] The Press: Can he win it, Mr. President?
+- [01:03:54.010] The President: I don’t know.
+- [01:03:56.880] I watched some of those teams go.
+- [01:03:58.880] Did they go down that field? I don’t know.
+- [01:04:01.870] But let me ask you, what chance does America have of winning?
+- [01:04:07.160] Male Speaker: Well, the home team
+- [01:04:08.440] always has a good chance to win.
+- [01:04:09.830] It depends on -- It’s a good difference.
+- [01:04:12.940] No, but -- We have a chance. Of course.
+- [01:04:15.410] The President: Of course you have a chance.
+- [01:04:16.920] The Press: It will barely go into the games, Mr. President?
+- [01:04:19.400] The President: I’d love to have him.
+- [01:04:20.770] He’d love to. He’s very tall.
+- [01:04:24.950] Maybe we could make him a goalie.
+- [01:04:27.190] Goalies are very tall now, right?
+- [01:04:28.800] Goalies are very tall.
+- [01:04:30.300] Well, he’d be a perfect goalie. 100 percent.
+- [01:04:32.180] At his height, he’ll be a great goalie.
+- [01:04:33.710] Exactly. So we’ll put him with the Americans.
+- [01:04:35.870] The Press: No, but do the Americans
+- [01:04:37.070] have a chance of, like, getting into the quarterfinal?
+- [01:04:40.070] Male Speaker: Yes, definitely.
+- [01:04:41.370] No, the quarterfinal, definitely.
+- [01:04:42.720] But then, you know, the tournament goes on
+- [01:04:45.290] with the public 250 years of the United States.
+- [01:04:47.750] Let's not forget. They will all feel energized about that.
+- [01:04:51.440] The President: You know, it’s amazing.
+- [01:04:52.710] The talent is really great when you watch these things.
+- [01:04:55.060] I went to the game two weeks ago,
+- [01:04:58.060] and it was a big upset.
+- [01:04:59.280] But you look at these people, the way they pass it.
+- [01:05:02.730] It’s amazing. Really amazing. It’s a great art, right?
+- [01:05:05.750] It’s great talent. You know the expression –
+- [01:05:10.610] What?
+- [01:05:11.930] The Press: (inaudible)
+- [01:05:13.130] The President: I don’t know. It's up to him. He’s the boss.
+- [01:05:15.020] Gianni Inafantino: That’s an interesting proposal.
+- [01:05:16.710] The President: He’s the boss. Well it’s going to be great.
+- [01:05:19.490] I think the American team is going to do well.
+- [01:05:21.040] I mean, I hear it’s a very good team.
+- [01:05:22.580] Good luck, everybody. Thank you.

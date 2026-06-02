@@ -1,0 +1,175 @@
+<!-- source: https://www.youtube.com/watch?v=z6R-N-23XME -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: z6R-N-23XME -->
+<!-- date_published: 2025-06-15T02:01:30+00:00 -->
+<!-- date_accessed: 2026-06-02T01:24:16.997636+00:00 -->
+
+# Transcript: President Donald Trump's Full Remarks at the 250th Anniversary of the US Army Grand Military Parade
+
+- [00:14.400] Heat. Heat.
+- [00:32.719] Thank you very much everybody and thank
+- [00:34.640] you to Vice President Vance and thank
+- [00:38.079] you to our wonderful first lady and
+- [00:41.120] above all thank you to the greatest,
+- [00:43.680] fiercest and bravest fighting force ever
+- [00:46.640] to stride the face of this earth, the
+- [00:50.239] United States Army. Thank you very much.
+- [00:57.920] Because the army keeps us free. You make
+- [01:00.960] us strong. And tonight, you have made
+- [01:03.920] all Americans very proud. They're
+- [01:06.880] watching from all over the world.
+- [01:08.640] Actually, made them all very proud.
+- [01:11.840] Every other country celebrates their
+- [01:13.680] victories. It's about time. America did,
+- [01:17.759] too. That's what we're doing tonight.
+- [01:23.439] And watching this magnificent display,
+- [01:26.560] our souls are filled with gratitude for
+- [01:29.600] every generation of warriors who have
+- [01:31.600] worn the uniform all the way back to the
+- [01:34.479] very beginning. So to every veteran
+- [01:37.280] across our land and right here in our
+- [01:40.159] nation's capital, including six
+- [01:42.799] recipients of the Congressional Medal of
+- [01:45.119] Honor, we love you. We honor you. and we
+- [01:48.000] salute your noble service to our flag
+- [01:51.360] and to our country. As we celebrate
+- [01:54.560] tonight, we also think of the hundreds
+- [01:57.439] of thousands of Army soldiers who have
+- [02:00.320] made the supreme sacrifice for our
+- [02:02.719] nation and selflessly laid down their
+- [02:05.680] lives in every war from the revolution
+- [02:08.399] to the war on terror. To the gold star
+- [02:12.080] families with us today, the courage of
+- [02:14.800] your heroes is the bedrock on which our
+- [02:18.239] entire nation stands. We thank you. Yes,
+- [02:22.400] we thank you. Today, we commemorate an
+- [02:26.239] event that did not just change American
+- [02:28.480] history, but change the history of the
+- [02:31.520] entire world. With the creation of
+- [02:34.319] America's army on June 14th, 1775,
+- [02:40.080] liberty got its shield and the freedom
+- [02:43.360] got its sword. Those first army patriots
+- [02:46.879] in the American Revolution fought
+- [02:48.879] against a fearsome enemy and impossible
+- [02:52.080] arts. But they were armed with a
+- [02:54.480] righteous cause. They were led by an
+- [02:57.360] indomitable commander, a truly great
+- [03:00.400] man,
+- [03:02.159] General George Washington, and they were
+- [03:05.040] united by an eternal creed.
+- [03:08.879] Their motto is victory or death. Over
+- [03:12.400] the past two and a half centuries, our
+- [03:14.319] warriors have shown unrivaled valor on
+- [03:16.879] fields of battle around the globe. With
+- [03:20.080] the frostbitten feet and bloody fist,
+- [03:23.120] they have marched into the flames and
+- [03:25.680] fury of combat, charged up mountains,
+- [03:28.720] stormed beaches, waited through torrents
+- [03:31.200] of gunfire, and leapt into skies thick
+- [03:34.640] with smoke and shrapnel.
+- [03:37.840] The US Army has driven bayonets into the
+- [03:40.640] heart of sinister empires,
+- [03:43.599] crushed the ambitions of evil tyrants
+- [03:47.280] beneath the threads of American tanks.
+- [03:49.840] It's done so well. It's done so much.
+- [03:52.400] And sent the devil himself flying into
+- [03:55.760] full retreat. Time and again, America's
+- [03:58.879] enemies have learned that if you
+- [04:00.799] threaten the American people, our
+- [04:02.879] soldiers are coming for you. Your defeat
+- [04:05.920] will be certain. Your demise will be
+- [04:08.080] final and your downfall will be total
+- [04:11.680] and complete
+- [04:19.600] because our soldiers never give up,
+- [04:22.240] never surrender and never ever quit.
+- [04:25.600] They fight fight fight and they win win
+- [04:28.320] win.
+- [04:32.400] And that's why no institution in history
+- [04:36.080] has entered more names into the roster
+- [04:39.440] of American heroes than the US Army, the
+- [04:43.120] Congressional Medal of Honor, more than
+- [04:45.680] anyone or anything. There was mad
+- [04:50.000] Anthony Wayne asked by George Washington
+- [04:52.800] to lead a daring midnight raid up the
+- [04:55.040] cliffs of Stony Point with unloaded
+- [04:58.479] musketss and only their bayonets to
+- [05:00.639] fight the red coats. Madthony replied,
+- [05:04.320] "Is the order, sir, and I will storm
+- [05:07.759] into hell for you."
+- [05:13.840] Then there was the Civil War general
+- [05:16.880] John Coors shot in the face in combat.
+- [05:21.600] He fired off a message to his commander.
+- [05:24.639] I am short a cheekbone and one ear, but
+- [05:28.639] I am able to whip the hell out of all of
+- [05:30.960] them. He stayed on the front lines, it
+- [05:34.080] seemed forever.
+- [05:36.080] In World War II, there was the
+- [05:38.320] greatraton Abrams, besieged on all sides
+- [05:42.240] by the Nazis at the Battle of the Bulge.
+- [05:46.160] He boldly proclaimed, "They've got us
+- [05:48.479] surrounded again, the poor bastards.
+- [05:52.479] This is the fighting spirit and
+- [05:54.400] unyielding force of the US Army.
+- [05:58.400] It has never changed and it will never
+- [06:01.280] ever change because there is no earthly
+- [06:04.240] force more powerful than the brave heart
+- [06:07.600] of a US infantryman or an army ranger
+- [06:11.840] paratrooper or green beret. They are the
+- [06:14.479] best. They are the finest. From Bunker
+- [06:17.199] Hill to San Juan Hill, from Gettysburg
+- [06:20.560] to Guad Canal, from Yorktown to Shiloh,
+- [06:24.160] and from the trenches of the Argon to
+- [06:26.800] the mountains of Afghanistan,
+- [06:29.919] the Army has forged a legacy of
+- [06:32.880] unmatched courage, untold sacrifice, and
+- [06:35.759] unequaled
+- [06:37.280] and undying glory. Our soldiers have
+- [06:40.479] poured out their blood by the bucket
+- [06:42.880] full on Missionary Ridge and Heartbreak
+- [06:46.880] Ridge on the sands of Sicily, Normandy,
+- [06:50.560] and the Philippines and on the dusty
+- [06:53.199] streets of Daang,
+- [06:55.680] Baghdad, and Fallujah. Thanks to their
+- [06:58.800] extraordinary service and devotion, 250
+- [07:01.919] years later, America stands tall.
+- [07:05.039] America stands proud and America stands
+- [07:08.800] free. We're the hottest country in the
+- [07:11.680] world right now. And our country will
+- [07:14.479] soon be greater and stronger than ever
+- [07:16.960] before.
+- [07:18.720] Down through history, we've been blessed
+- [07:20.960] beyond words by this valiant legion of
+- [07:23.280] Army warriors and patriots, heroes and
+- [07:26.080] legends. And tonight we affirm with
+- [07:28.960] unwavering certainty that in the years
+- [07:31.840] ahead and in every generation hence,
+- [07:35.280] whenever duty calls and whatever danger
+- [07:37.919] comes, the American soldier will be
+- [07:42.160] there.
+- [07:48.000] No matter the risk, no matter the
+- [07:50.400] obstacles, our warriors will charge into
+- [07:53.520] battle. They will plunge into the
+- [07:56.240] crucible of fire and they will seize the
+- [07:59.039] crown of victory because the United
+- [08:01.599] States of America will always have the
+- [08:03.919] grace of almighty God and the iron will
+- [08:07.280] of the United States Army.
+- [08:09.759] Congratulations to everybody. We love
+- [08:12.240] our country. We've never done better.
+- [08:15.199] Thank you. God bless you. God bless the
+- [08:17.680] Army and God bless America.
+- [08:24.800] And now I'd like to ask
+- [08:27.919] our great first lady to join me at the
+- [08:30.560] podium. Thank you very much everybody.
+- [08:33.580] [Applause]
+- [08:48.160] Thank you.
+- [08:56.800] [Applause]
+- [09:10.560] Mr. President, on behalf of the United
+- [09:13.360] States Army, the Army Golden Knights, I
+- [09:16.080] would like to present to you this flag,
+- [09:17.839] which was flown over our nation's
+- [09:19.760] capital in freef fall during the Army's
+- [09:22.399] 250th birthday celebration.
+- [09:26.550] [Applause]
+- [09:42.340] [Applause]

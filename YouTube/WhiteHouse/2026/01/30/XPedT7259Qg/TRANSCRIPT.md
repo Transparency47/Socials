@@ -1,0 +1,133 @@
+<!-- source: https://www.youtube.com/watch?v=XPedT7259Qg -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: XPedT7259Qg -->
+<!-- date_published: 2026-01-30T13:19:43+00:00 -->
+<!-- date_accessed: 2026-06-02T01:06:09.143597+00:00 -->
+
+# Transcript: President Trump and the First Lady Attend a Screening of the Film Melania
+
+- [00:01.280] Thank you.
+- [00:04.080] Good evening.
+- [00:06.240] This is a very special evening,
+- [00:10.080] an incredible historic moment.
+- [00:14.719] It's an honor to be in Washington DC
+- [00:18.080] among so many friends. A beautiful room
+- [00:21.760] filled with a great energy, intellect,
+- [00:24.960] and love.
+- [00:27.279] Connectivity through advanced technology
+- [00:31.039] is changing our world. We are closer
+- [00:34.800] than ever because we are connected.
+- [00:39.680] Over live stream, our friends are able
+- [00:44.399] to join us here in DC from satellite
+- [00:48.399] theaters across the nation.
+- [00:52.480] So, here is a warm welcome to my guests
+- [00:56.559] in New York City.
+- [00:58.950] [cheering]
+- [00:59.605] [applause]
+- [01:01.840] Hello, Boston,
+- [01:04.479] Philadelphia,
+- [01:06.240] Miami, Orlando, and everyone in Palm
+- [01:10.080] Beach.
+- [01:12.050] [cheering and applause]
+- [01:13.840] It's a pleasure to be with the great
+- [01:16.000] people of Texas
+- [01:18.560] in Austin, Dallas, and Houston.
+- [01:22.530] [cheering] To everyone joining us in the
+- [01:25.200] motor city, Detroit.
+- [01:29.280] Hello, LA, [cheering] OC,
+- [01:32.799] San Francisco, and San Diego.
+- [01:37.040] I'm sure everyone in Nashville is having
+- [01:39.759] a lovely time already.
+- [01:41.526] >> [cheering]
+- [01:42.880] >> Welcome Kansas City, Phoenix, Arizona,
+- [01:46.240] Denver, Salt Lake, and Chicago,
+- [01:49.386] [cheering]
+- [01:50.079] Las Vegas.
+- [01:52.720] My film is about to begin.
+- [01:56.000] Hello, America.
+- [01:59.211] [cheering and applause]
+- [02:04.079] Stories endure. They make us more human.
+- [02:09.280] Stories embolden individuals,
+- [02:12.319] inspire legendary achievements, and
+- [02:15.520] build empires.
+- [02:17.840] They define who leads. It is, however,
+- [02:22.400] the untold story which carries the great
+- [02:25.200] significant.
+- [02:27.280] I alter the story you're about to
+- [02:29.520] experience with purpose.
+- [02:32.400] the shum of laughter, the tenderness of
+- [02:36.400] transparency
+- [02:37.920] and determination to break new ground.
+- [02:42.480] Some have called this a documentary. It
+- [02:46.160] is not. My film is a very deliberate act
+- [02:49.920] of authorship
+- [02:52.080] inviting you to witness events and
+- [02:54.879] emotions through a window of rich
+- [02:58.080] imagery.
+- [02:59.920] It is a created experience that offers
+- [03:03.280] perspectives,
+- [03:04.800] insights, and moments that only few have
+- [03:08.239] seen. Here, honor, pride, and truth are
+- [03:14.000] revealed. Not true narration, but
+- [03:17.040] through genuine discovery.
+- [03:19.840] It is purposeful storytelling.
+- [03:23.360] You are part of this journey now. Our
+- [03:26.480] story will live on for generations,
+- [03:30.159] forever.
+- [03:32.799] Creating a film and launching a global
+- [03:35.840] marketing campaign
+- [03:37.840] is not easy fixed.
+- [03:40.959] I'm fortunate to be surrounded by a
+- [03:44.000] visionary team.
+- [03:46.239] First, I would like to thank my husband,
+- [03:49.840] America's director,
+- [03:55.147] >> [applause]
+- [03:59.040] >> Donald [cheering] Trump.
+- [04:02.352] [applause]
+- [04:08.902] [applause]
+- [04:13.487] [cheering and applause]
+- [04:18.880] Thank you for providing our family with
+- [04:21.680] a life filled with experiences that only
+- [04:26.000] one could imagine. To my son Baron, my
+- [04:29.840] sister Eness, my father Victor Knaus,
+- [04:33.360] and my mother who is watching down from
+- [04:35.759] heaven. Your love, [applause]
+- [04:43.759] your love is the powerful force that
+- [04:46.800] propels me forward.
+- [04:49.840] Amazon's team has been inspired from day
+- [04:53.199] one, and they continue to work around
+- [04:55.919] the clock to bring Melania to families
+- [04:59.199] across the globe.
+- [05:01.680] I applaud your team's dedication to
+- [05:04.639] great film making.
+- [05:07.120] Brett Ratner, my director, [cheering]
+- [05:11.600] has used his superior talent. [cheering]
+- [05:15.058] [applause]
+- [05:18.400] Has used his superior talent to redefine
+- [05:21.039] the John genre of the documentary.
+- [05:24.639] He shaped a film with courage and care,
+- [05:28.639] one which will continue with
+- [05:31.120] generations.
+- [05:33.280] You capture our history.
+- [05:36.960] Fernando Sulchin, my producer.
+- [05:39.948] [applause and cheering]
+- [05:42.960] This movie carries such an intention and
+- [05:45.759] heart. Congratulations. Your work on
+- [05:48.880] Melania will continue to resonate beyond
+- [05:51.680] tonight.
+- [05:53.120] Mark Beckman. [cheering]
+- [05:56.979] [applause]
+- [05:57.600] >> I remember the moment we shaped this
+- [06:00.080] groundbreaking idea. Over the years, our
+- [06:03.280] collaboration has produced a remarkable
+- [06:06.160] body of work, and this achievement
+- [06:08.720] stands as a defining milestone among
+- [06:12.240] them. And finally, to everyone else here
+- [06:16.960] and in theaters across the country on
+- [06:20.400] this historic evening, I cherish you.
+- [06:24.240] It's an honor to be together for the
+- [06:27.039] world premiere of Melania. Enjoy.
+- [06:31.039] [cheering]
+- [06:31.759] Thank you.
+- [06:33.659] [applause]

@@ -1,0 +1,260 @@
+<!-- source: https://www.youtube.com/watch?v=sA_YEKh4mVQ -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: sA_YEKh4mVQ -->
+<!-- date_published: 2025-07-04T21:56:26+00:00 -->
+<!-- date_accessed: 2026-06-02T01:21:21.943924+00:00 -->
+
+# Transcript: President Trump Gaggles with Press at Joint Base Andrews, July 04, 2025
+
+- [00:01.439] Hello everybody. Hello, Mr. President.
+- [00:04.240] So, we had a great time in Iowa. Very
+- [00:07.600] successful. A lot of people, I think
+- [00:09.840] they enjoyed it, but it's been a great
+- [00:12.320] state for me. We won it all three times
+- [00:15.519] and uh very special. Tomorrow is going
+- [00:17.920] to be great. We're going to have the B2s
+- [00:20.160] flying and we have Christie, the whole
+- [00:22.160] group, including a lot of great
+- [00:24.720] congressmen.
+- [00:26.400] We have everybody. We have Doug Bergam.
+- [00:30.000] You have any questions? Brook Rollins,
+- [00:32.000] agriculture, you have any questions, let
+- [00:33.840] us know. But we all had a great time in
+- [00:36.480] Iowa. Mr. President, has Hamas agreed to
+- [00:38.879] the latest framework for a ceasefire and
+- [00:40.800] hostage deal? Uh, we'll see what
+- [00:43.040] happens. We're going to know over the
+- [00:44.320] next 24 hours. Mr. President, you had
+- [00:46.960] the best border numbers in the month of
+- [00:49.200] June in the country's history. Now, with
+- [00:51.200] the one big beautiful bill being signed
+- [00:52.800] by you, you've set the bar so high when
+- [00:55.199] it comes to border security. What is the
+- [00:57.440] expectation moving forward, sir? I love
+- [01:00.000] this guy. Oh, I love him. He's like my
+- [01:03.680] favorite person. Uh, well, we just want
+- [01:07.600] to see if we can keep going up. We have
+- [01:09.840] had We had great numbers. I appreciate
+- [01:11.439] you saying we have had, but we just want
+- [01:13.680] to keep them going up, right? That's
+- [01:15.280] right. That's all we can do. Mr.
+- [01:17.040] President, you talked about farmers and
+- [01:19.119] trying to uh give them some beef. Uh,
+- [01:22.159] can you can you talk a little bit more
+- [01:23.439] specifically about you like Yeah, I'll
+- [01:26.720] let I'll let my agricultural genius talk
+- [01:29.840] about it. Thank you, sir. Yes, we have
+- [01:32.079] been hard at work. The president gave a
+- [01:33.759] directive that the farmers needed to
+- [01:36.079] make sure they could farm and and uh do
+- [01:38.799] their harvest and milk their cows. So,
+- [01:41.360] Stephen Miller, myself, the top team in
+- [01:43.439] the White House has been working on
+- [01:44.960] including Secretary Gnome, including
+- [01:47.040] Secretary Chavez Derimer on the H2A
+- [01:50.399] streamline, the current visa system that
+- [01:52.320] allows seasonal workers in. So, we are
+- [01:54.560] hard at work. We've already made some
+- [01:56.000] changes. We're going to make it cheaper,
+- [01:57.840] more efficient, and more effective for
+- [01:59.920] those farmers. We will have a 100% legal
+- [02:02.719] workforce very, very soon. Thanks to
+- [02:05.360] President Trump's leadership, Mr.
+- [02:06.719] President, good answer, right,
+- [02:10.160] Mr. President? Yes. We're 10 days away
+- [02:12.400] from the anniversary of your
+- [02:13.680] assassination attempt. Do you know any
+- [02:16.160] more now about the assassination attempt
+- [02:19.280] that than you do then? Well, the FBI was
+- [02:21.920] in the other day with a lot of people,
+- [02:24.560] including the attorney general, who's
+- [02:26.480] doing a great job, Pam Bondi. Uh, and
+- [02:29.599] uh, I'm very satisfied. They gave me a
+- [02:32.560] complete presentation. I was very
+- [02:34.400] satisfied. There's a report that you
+- [02:36.560] held a secret meeting today with a Saudi
+- [02:39.200] official. Are you any closer on uh,
+- [02:41.760] expanding the Abraham Accords? Any any
+- [02:43.680] news from that? Yeah, we are. It's one
+- [02:45.120] of the things we talked about, the
+- [02:46.480] Abraham Accords. Now that Iran has been
+- [02:49.200] taken out in terms of a nuclear threat
+- [02:51.760] and they have been completely taken out
+- [02:53.760] at least for a very long time, uh I
+- [02:56.480] think a lot of people are going to be
+- [02:57.680] joining the Abraham Accords. You have
+- [03:00.000] four great countries already, but we're
+- [03:01.599] going to have a lot of people I think
+- [03:02.800] joining the Abraham. Mr. President,
+- [03:05.040] yeah, some polls have shown the big
+- [03:07.360] beautiful bill to not be very popular.
+- [03:09.760] I'm wondering how confident are you in
+- [03:12.640] being able to sell it to the American
+- [03:14.560] people? I think it's very popular. Uh it
+- [03:17.440] does many things but one of them is the
+- [03:19.599] biggest tax cuts in our country's
+- [03:22.080] history and that alone makes it very
+- [03:24.879] popular. The only poll that was done was
+- [03:27.680] a uh Democrat poll and the last two of
+- [03:31.120] the little bit controversial things but
+- [03:32.959] good things for the country. Uh the tax
+- [03:35.360] cuts alone. So it's the largest tax cut
+- [03:38.080] in the history of our country and that
+- [03:40.319] alone makes it very very popular. Mr.
+- [03:42.799] President, can you talk a little bit
+- [03:44.000] about your expectations for the
+- [03:45.840] celebration next year? Obviously, a bit
+- [03:47.840] of a preview tonight. You talked about
+- [03:49.680] the Patriot Games. You highlighted a
+- [03:51.680] possible UFC title fight at the White
+- [03:53.680] House. What are your expectations for
+- [03:55.680] the celebration next year? I think it's
+- [03:57.280] going to be a great celebration. It's
+- [03:58.959] going to be as big a celebration as
+- [04:01.360] we've ever had. And remember, we have
+- [04:03.120] the World Cup and we have the Olympics
+- [04:05.360] also. So, we have that plus we have 250.
+- [04:08.879] Uh I think it's going to be a a wild
+- [04:11.599] time. It's going to be a great time for
+- [04:13.200] this country. It's going to be the
+- [04:14.400] golden age. Thank you. What's next uh
+- [04:17.519] for for Russia and Ukraine? Are you
+- [04:19.840] still speaking? Are you speaking to
+- [04:21.040] Sinsky tomorrow? And and what are you
+- [04:22.800] hoping? I'm speaking to President
+- [04:24.720] Zullinski tomorrow early in the morning
+- [04:27.680] and you I'm very disappointed with the
+- [04:30.400] conversation I had today with President
+- [04:32.400] Putin because I don't think he's there.
+- [04:35.199] I don't think he's there and I'm very
+- [04:37.600] disappointed. Well, and it's not I'm
+- [04:39.840] just saying I don't think he's looking
+- [04:43.199] to stop and that's too bad. This is
+- [04:45.680] Biden. This isn't me. This is Biden's
+- [04:47.759] war. It wouldn't have happened if I were
+- [04:50.320] president. Uh it wouldn't have happened.
+- [04:53.280] So, you know, I I in one way I had to
+- [04:55.520] get too involved because it's Biden's
+- [04:57.280] war and I got stuck in the middle of it
+- [05:00.639] just like I did with immigration and a
+- [05:02.560] lot of other things that they screwed
+- [05:04.479] up. But I was not happy with the
+- [05:06.880] conversation though. Mr. President, a
+- [05:09.039] couple weeks ago you said that you were
+- [05:10.639] on the cusp of a historic settlement
+- [05:12.720] with Harvard University. What's changed
+- [05:14.800] since then? Do you think you're closer
+- [05:16.320] to an agreement or do you think Colia
+- [05:18.000] No, nothing. I think we're going to
+- [05:19.039] probably settle with Harvard. We're
+- [05:21.199] going to probably settle with Colombia.
+- [05:23.039] They want to settle very badly. How
+- [05:25.680] much? There's no rush. A lot of money.
+- [05:28.479] Mr. President, I wanted to ask you about
+- [05:30.560] one of the words you used during your
+- [05:32.240] speech. Shillocks. that's widely viewed
+- [05:34.560] as an anti-semitic phrase. Do you intend
+- [05:37.520] for that word to be used that way? No,
+- [05:39.280] I've never heard it that way. To me,
+- [05:40.800] Sherlock is somebody that's a a money
+- [05:43.520] lender at high rates. I've never heard
+- [05:45.919] it that way. You view it differently
+- [05:47.520] than me. I've never heard that.
+- [05:52.320] Go ahead. Anything else? President, what
+- [05:53.919] do you make of the deal uh that your
+- [05:55.840] lawyers struck uh with CBS's parenting
+- [05:58.720] company? Um, can you talk uh talk about
+- [06:01.600] that? And have you had any conversations
+- [06:03.440] with uh Larry Ellison about expectations
+- [06:06.319] you might have for Sky Dance and PSAs
+- [06:09.360] that they would run should they take
+- [06:10.720] over Paramount? Well, Larry Ellison's a
+- [06:12.800] friend of mine. He's a great guy. I
+- [06:14.400] think he's the buyer, but we did a deal
+- [06:17.440] for about $16 million plus 16 million or
+- [06:21.680] maybe more than that in advertising. So,
+- [06:24.400] it's a combination of 16 plus 16 plus.
+- [06:27.520] So, it's like 32 to maybe $35 million. I
+- [06:31.280] think that what they did, what they This
+- [06:34.000] is nothing to do with Larry Ellison. I
+- [06:36.080] think he's going to run CBS really well,
+- [06:38.400] and I think he's making a good deal to
+- [06:40.080] buy it. I think he's great. He's got a
+- [06:41.919] son who's a fantastic young man, too.
+- [06:45.360] Uh, but, uh, what they did was
+- [06:48.160] incredible. They took an answer from
+- [06:50.560] Kamala just before the day before the
+- [06:54.000] election and it was a horrible answer
+- [06:56.880] and they took the answer out in its
+- [06:58.720] entirety and they put another answer in
+- [07:01.280] a different answer that was a different
+- [07:03.680] part of the interview because the answer
+- [07:05.520] she gave was so bad it was like election
+- [07:08.240] threatening and I have never I've seen
+- [07:10.880] it all but I've never seen that. Nobody
+- [07:13.120] has and we understand that was done in
+- [07:15.039] other locations also with respect to
+- [07:17.759] answers. But think of it one of the most
+- [07:21.280] important question maybe the most
+- [07:22.880] important question. She gave a horrible
+- [07:25.120] answer to it. So they took an answer
+- [07:27.520] from another part of the interview and
+- [07:29.840] they inserted it. Nobody's ever seen
+- [07:32.479] that before. So I think they made a wise
+- [07:35.280] decision to settle. And is that 16
+- [07:37.520] million for the ads? Is that part of uh
+- [07:40.639] contingency for your administration to
+- [07:42.639] approve the merger or the the sale of
+- [07:44.880] the company? No, this has nothing to do
+- [07:46.400] with that. It has to this is totally
+- [07:48.080] separate. This was when I was running.
+- [07:50.639] This had nothing to do with what was
+- [07:52.319] taking place in government. This is when
+- [07:54.400] I was running. This was the essentially
+- [07:57.199] the night before the election and they
+- [07:59.919] did this and we thought it was
+- [08:01.599] despicable actually.
+- [08:05.440] for countries that don't get a letter
+- [08:07.759] right away and that you haven't made a
+- [08:09.440] deal. We're going to start sending
+- [08:10.800] letters out to various countries
+- [08:14.080] starting tomorrow. We'll probably have
+- [08:16.879] 10 or 12 go out tomorrow and over the
+- [08:20.080] next few days. I think by the 9th
+- [08:22.400] they'll be fully covered and they'll
+- [08:24.960] range in value from maybe 60 or 70%
+- [08:29.360] tariffs to
+- [08:31.759] 10 and 20% tariffs. Uh but they're going
+- [08:35.039] to be starting to go out sometime
+- [08:37.279] tomorrow. We've done the final form and
+- [08:40.000] it's basically going to explain what the
+- [08:42.000] countries are going to be paying in
+- [08:43.279] tariffs and it's uh very important. It's
+- [08:47.279] a lot of money for the country but we're
+- [08:48.959] giving them a bargain because if I went
+- [08:51.440] by the true deficits or by other uh ways
+- [08:55.680] of measuring it could be a lot more. We
+- [08:58.160] I we don't want to I don't want to
+- [09:00.399] stretch it too much. We want to keep it
+- [09:02.000] pretty reasonable. Mr. President, and I
+- [09:03.920] think it's actually I think it's very
+- [09:05.360] recent. Mr. President, what countries
+- [09:07.200] will you be sending those letters to
+- [09:08.959] first? Uh, we're going to be sending to
+- [09:11.360] Well, you're going to see tomorrow. I'd
+- [09:12.399] rather give it tomorrow, but we have
+- [09:14.160] probably 12, 10 to 12 tomorrow. And then
+- [09:17.360] after that, we'll be sending 10 or 12 a
+- [09:19.839] day. And as we get along, as we get to
+- [09:22.560] the smaller countries, uh, we're pretty
+- [09:24.800] much going to keep the tariffs the same.
+- [09:26.720] Are there any countries that will have a
+- [09:28.399] little flexibility with that deadline?
+- [09:31.839] Not really.
+- [09:32.959] They'll they'll start to pay on August
+- [09:34.800] 1st. The money will start to come into
+- [09:37.440] the United States on August 1st. Okay.
+- [09:40.640] In pretty much all cases. Thank you very
+- [09:43.120] much, everybody. Thank you. Thank you,
+- [09:44.880] sir. Thank you very much.

@@ -1,0 +1,164 @@
+<!-- source: https://www.youtube.com/watch?v=HVMo1k3aBt0 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: HVMo1k3aBt0 -->
+<!-- date_published: 2026-01-21T19:49:26+00:00 -->
+<!-- date_accessed: 2026-06-02T01:06:41.591134+00:00 -->
+
+# Transcript: President Trump Participates in a Pull Aside with the Secretary General of NATO
+
+- [00:00.240] It's an honor today with you and I thank
+- [00:02.159] the media for being here. We've taken
+- [00:04.799] long trips and this was a long one, but
+- [00:08.559] it's been uh working very well. We're
+- [00:10.400] having tremendous meetings with heads of
+- [00:12.480] state with people of very big
+- [00:14.799] consequence having to do with war and
+- [00:16.560] peace, which is why we're here. And I
+- [00:19.119] just want to thank the secretary general
+- [00:21.760] for being with us. We have a few things
+- [00:24.160] to discuss. It was a meeting I actually
+- [00:26.960] look very forward to. He's doing a
+- [00:28.720] fantastic job. We've been friends. We
+- [00:31.199] lifted GDP from 2% to 5% together. That
+- [00:35.040] was done jointly.
+- [00:36.160] >> Yeah.
+- [00:36.800] >> And it worked out really very well and
+- [00:39.520] we appreciate it, Mark. So, we'll be
+- [00:41.040] talking about various things. We'll be
+- [00:42.559] talking about Greenland. I imagine it
+- [00:44.960] may come up in our discussion and uh but
+- [00:48.640] I think the trip has been amazing so
+- [00:50.399] far. It's been amazing. As you know,
+- [00:52.320] we're staying and tomorrow we're doing
+- [00:53.920] something else having to do with the
+- [00:56.399] border peace. We're getting tremendous
+- [00:58.480] uh acceptance of that. It's going to be
+- [01:01.280] great. So, we'll see how that all works
+- [01:02.879] out, but we're doing that tomorrow. So,
+- [01:05.199] thank you very much, media. Thank you
+- [01:06.560] very much. And Mark, would you
+- [01:07.760] >> Yeah. Just briefly, what I just wanted
+- [01:09.520] to say again, as I did this morning when
+- [01:11.040] I was in a panel, I want to thank you
+- [01:12.479] again for what you did since coming in
+- [01:15.119] in January. Trump 47
+- [01:18.400] basically getting the Europeans and
+- [01:20.159] Canada to really step up and that led to
+- [01:22.000] the enormous success we had in the hey
+- [01:23.680] the 5% which is crucial to defend
+- [01:26.799] ourselves and to also equalize with what
+- [01:29.119] the US is paying this was a problem
+- [01:30.720] already there since Eisenhower I always
+- [01:33.119] tell the Europeans you're completely
+- [01:34.400] committed to NATO but there is also one
+- [01:36.560] irritant and that is this factor that
+- [01:39.119] the Europeans were not paying the same
+- [01:40.640] as US was paying and we solved it and
+- [01:42.799] this is crucial also because we need the
+- [01:44.560] money to protect ourselves There's one
+- [01:46.399] thing I heard you say yesterday and
+- [01:47.840] today. You were not absolutely sure that
+- [01:50.000] the Europeans would come to the rescue
+- [01:52.079] of the US if you will be attacked. Let
+- [01:54.240] me tell you, they will. And they did in
+- [01:57.040] Afghanistan. As you know, for every
+- [01:59.520] American
+- [02:01.040] who paid the ultimate for every two
+- [02:02.960] Americans who paid the ultimate price,
+- [02:05.280] there was one soldier from another NATO
+- [02:07.439] country who did not come back to his
+- [02:09.360] family from the Netherlands, from
+- [02:10.800] Denmark, particularly from other
+- [02:12.400] countries. So you can be assured
+- [02:14.480] absolutely if ever US will be under
+- [02:16.959] attack, your allies will be with you.
+- [02:19.360] Absolutely. There's absolute guarantee.
+- [02:21.040] I really want to tell you this because
+- [02:22.319] this is important. It pains me if you
+- [02:24.400] think it is not. And under your
+- [02:26.160] leadership, this alliance is stronger
+- [02:27.760] than ever.
+- [02:28.959] >> Thank you very much. It's great
+- [02:30.400] compliment. Any questions?
+- [02:32.720] >> Mr. President, the Danish foreign
+- [02:34.640] minister rejected your call to negotiate
+- [02:37.040] on Greenland. What What will
+- [02:38.959] >> I didn't call him.
+- [02:40.560] >> No, sorry. the pre the the Danish
+- [02:43.280] foreign minister rejected what you said
+- [02:45.200] in your speech that you were hoping to
+- [02:46.959] negotiate to acquire agreement
+- [02:49.040] essentially saying that this is not
+- [02:51.040] something that they are willing to
+- [02:52.239] discuss. So what will those negotiations
+- [02:54.480] >> Well, they didn't tell me that. So when
+- [02:56.000] they tell me cuz I don't like getting it
+- [02:58.080] secondhand. If he wants to tell me he'll
+- [02:59.680] tell me that in my face.
+- [03:00.879] >> And when will you be discussing this?
+- [03:02.640] >> I have no idea.
+- [03:03.519] >> When you said you would
+- [03:04.400] >> I'll be discussing it with this man
+- [03:05.840] right here.
+- [03:06.640] >> Mr. President,
+- [03:07.440] >> he's frankly more important.
+- [03:08.720] >> Mr. President, when you said you would
+- [03:10.239] remember if Denmark did not agree to a
+- [03:13.760] deal on Greenland, what did you mean?
+- [03:15.920] What are the consequences?
+- [03:16.800] >> You'll have to figure that out for
+- [03:18.000] yourself. You're a smart guy.
+- [03:19.440] >> Mr. President, do you see a price for
+- [03:21.280] Greenland that's reasonable?
+- [03:23.120] >> I could see that you
+- [03:24.480] >> like what would how would you calculate
+- [03:25.920] that?
+- [03:26.159] >> I could see that, but there's a bigger
+- [03:27.599] price and that's the price of uh the
+- [03:30.159] price of safety and security and
+- [03:32.000] national security and international
+- [03:33.840] security having to do with many of your
+- [03:35.519] countries. That's really the price and
+- [03:37.760] that's the big price. And as you know,
+- [03:40.319] we're doing the Golden Dome. It's going
+- [03:42.000] to be very expensive and it's better if
+- [03:44.560] we have Greenland than it is without.
+- [03:47.120] It's going to be safer. It's going to be
+- [03:48.560] stronger. It's going to be better for
+- [03:49.840] Europe. And it's going to be better for
+- [03:51.120] us. And uh so we'll see what happens
+- [03:55.680] question.
+- [03:56.080] >> What is it? Reassuring to hear the NATO
+- [03:58.159] secretary general say NATO will defend
+- [04:00.159] the United States if it comes under
+- [04:01.680] attack.
+- [04:03.920] Well, I hope that uh that's true. I
+- [04:06.560] mean, he's he's a good man. He's never
+- [04:08.720] lied to me before. You know, we've had a
+- [04:10.400] good relationship and he made that
+- [04:11.680] statement that's nice. I mean, I just,
+- [04:13.840] you know, when I see what's happening
+- [04:15.120] with Greenland, I I wondered because I
+- [04:16.959] want Greenland for security. I don't
+- [04:18.959] want it for anything else. We have so
+- [04:20.959] much rare earth, we don't know what to
+- [04:22.720] do with it. Uh we don't need it for
+- [04:25.120] anything else. And in terms of
+- [04:27.520] Greenland, you know, you have to go 25
+- [04:29.199] ft down through ice to get it. It's not
+- [04:31.440] it's not something that a lot of people
+- [04:32.960] are going to do or want to do. No, this
+- [04:35.360] is security we're talking about. And I
+- [04:37.759] can say one thing about Mark. He wants
+- [04:39.280] security and he wants security for all
+- [04:40.800] of us. I think it's we're a member of
+- [04:42.720] NATO. He wants security for NATO and
+- [04:45.440] beyond. So when he says that, Steve, I
+- [04:48.800] think it's, you know, it's very nice.
+- [04:50.560] Okay. Thank you very much, everybody.
+- [04:52.400] >> Thank you, press. Thank you, press.
+- [04:53.680] >> Thank you.
+- [04:54.400] >> Thank you, press. Thank you, press.
+- [04:55.680] Let's go. Let's go. Start moving. Thank
+- [04:57.280] you.

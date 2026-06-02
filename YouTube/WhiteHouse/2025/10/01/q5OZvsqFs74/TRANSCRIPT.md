@@ -1,0 +1,1123 @@
+<!-- source: https://www.youtube.com/watch?v=q5OZvsqFs74 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: q5OZvsqFs74 -->
+<!-- date_published: 2025-10-01T18:05:23+00:00 -->
+<!-- date_accessed: 2026-06-02T02:44:06.354882+00:00 -->
+
+# Transcript: Press Secretary Karoline Leavitt Briefs Members of the Media, Oct. 1, 2025
+
+- [00:06.700] Karoline Leavitt: Good afternoon, everyone.
+- [00:07.960] The Press: Good afternoon.
+- [00:09.180] Karoline Leavitt: Packed house here today,
+- [00:10.400] and I have a very special guest with us,
+- [00:12.290] the Vice President of the United States.
+- [00:14.440] He'll deliver some remarks and take some questions.
+- [00:17.010] First, I just want to share remarks of my own.
+- [00:19.520] Democrats in Congress have officially shut down
+- [00:23.070] the United States government.
+- [00:24.750] House Republicans passed a nonpartisan clean piece
+- [00:27.500] of legislation
+- [00:28.790] to extend current government funding until November 21st,
+- [00:33.420] but nearly every single Democrat senator voted against this bill.
+- [00:37.930] To be clear, this was the exact same bill
+- [00:40.470] that Democrats approved six short months ago in March,
+- [00:43.890] just adjusted for inflation.
+- [00:45.890] This is the same kind of clean funding bill
+- [00:48.150] that Democrats passed 13 separate times
+- [00:51.390] when they held the majority
+- [00:53.250] during Joe Biden's administration.
+- [00:55.440] So the American people woke up this morning
+- [00:57.720] and asked the obvious question,
+- [00:59.840] why is the government shut down right now?
+- [01:02.690] The answer is pure partisan politics
+- [01:04.950] being played by the Democrat Party.
+- [01:07.150] The Democrats shut down the government
+- [01:08.940] because President Trump and the Republicans
+- [01:11.180] will not force American taxpayers to pay
+- [01:13.680] for free healthcare for illegal aliens.
+- [01:16.520] America is $37 trillion in debt.
+- [01:19.590] We cannot afford to provide taxpayer-funded free healthcare
+- [01:23.210] to illegals who broke the law to enter our country.
+- [01:26.850] To put this all into perspective,
+- [01:28.780] the Democrats refuse to keep the government open
+- [01:31.280] over healthcare to illegal aliens,
+- [01:33.560] and now have jeopardized critical healthcare programs
+- [01:37.050] for American citizens instead.
+- [01:39.220] The Women, Infants, and Children program,
+- [01:41.510] community health center funding, Medicare treatment options,
+- [01:44.690] and other health programs are now all at risk
+- [01:48.030] because of the Democrats rejecting the clean CR.
+- [01:51.300] The most vulnerable in our country are being punished
+- [01:54.210] because the Democrats want to prioritize illegals
+- [01:57.060] over American citizens,
+- [01:58.890] and if Democrats actually cared about healthcare,
+- [02:01.250] they would applaud the actions taken by President Trump.
+- [02:04.410] Just yesterday in the Oval Office,
+- [02:07.010] he took a bold and massively popular action
+- [02:10.040] to improve our healthcare system.
+- [02:12.320] He announced the first agreement
+- [02:13.860] with a major pharmaceutical company,
+- [02:15.700] Pfizer, to lower drug costs for Americans.
+- [02:19.070] This is a historical achievement
+- [02:20.990] long sought by past Democrat presidents
+- [02:23.790] that only President Trump was able to get done.
+- [02:27.240] Also yesterday, while the Democrats were whining
+- [02:29.780] about healthcare for illegal aliens,
+- [02:31.990] President Trump signed a powerful executive
+- [02:34.400] order to supercharge American AI innovation
+- [02:37.670] and unlock cures for pediatric cancer patients
+- [02:41.100] in the United States.
+- [02:42.580] While President Trump took action to lower drug prices
+- [02:45.560] and improve the lives
+- [02:47.140] and the care of American children with cancer,
+- [02:49.990] again, Democrats are fighting to give healthcare benefits
+- [02:53.450] to illegal aliens.
+- [02:54.830] The Trump administration is fully committed
+- [02:57.010] to lowering healthcare costs and advancing policies
+- [02:59.570] that will save American lives.
+- [03:01.370] But right now, we need to keep the government open and funded,
+- [03:05.390] and individuals and organizations
+- [03:07.320] across the political spectrum across the country agree
+- [03:10.890] with the Trump administration and Republicans.
+- [03:13.510] The labor union leader, the Teamsters, Sean O'Brien,
+- [03:16.690] sent a very blunt message to Democrats
+- [03:18.730] over their destructive antics.
+- [03:20.540] He said, "American workers are not bargaining chips.
+- [03:23.510] Senators need to stop screwing around
+- [03:25.580] and pass the House-passed, clean, short-term funding bill."
+- [03:29.140] The U.S. Chamber of Commerce,
+- [03:30.560] the world's largest business organization,
+- [03:33.400] called to immediately pass the Republican clean CR,
+- [03:36.600] saying, "Shutdowns are harmful to the economy,
+- [03:39.550] the American people, and our national security."
+- [03:42.330] And even Democrat Senators Cortez Masto
+- [03:44.940] and Fetterman acknowledged
+- [03:46.360] that their party is betraying the American people
+- [03:49.340] with this costly and chaotic Democrat shutdown.
+- [03:52.540] Enough is enough.
+- [03:53.800] Democrats need to stop sabotaging our country
+- [03:56.260] and holding the American people hostage in the country.
+- [03:58.980] Democrats need to do their jobs.
+- [04:01.030] The American people want the government reopened,
+- [04:03.360] and this is proven in a New York Times poll
+- [04:06.470] showing that two in three Americans
+- [04:08.620] say the government should not be shut down by the Democrats,
+- [04:11.730] even if their absurd demands are not met.
+- [04:14.840] The President and Republicans are working very hard
+- [04:17.560] to reopen the federal government.
+- [04:18.850] The Vice President here has been crucial in this effort.
+- [04:21.720] We encourage all Americans across the country,
+- [04:24.220] call your Democrat senators
+- [04:26.020] and encourage them to reopen the government.
+- [04:28.030] That's what President Trump and the Vice President want to do.
+- [04:30.690] And with that, I will turn it over
+- [04:31.990] to our great Vice President, JD Vance.
+- [04:34.040] The Vice President: Great. Well, thank you, Karoline,
+- [04:36.410] and good afternoon to everybody and good afternoon
+- [04:38.560] to everybody who's watching at home.
+- [04:40.260] It's a tough act to follow,
+- [04:41.500] but let me just say a few things,
+- [04:42.710] then I'll take a few questions.
+- [04:43.950] Number one, Democrats say that they care a lot
+- [04:46.660] about lowering healthcare costs,
+- [04:48.610] and yet when the President took historic action
+- [04:51.040] to work with the drug companies
+- [04:53.060] to lower prescription drug prices,
+- [04:54.670] the Democrats did nothing to help us.
+- [04:56.270] In fact, we would've loved to have the Democrats helping us,
+- [04:58.970] but they didn't. They talk about doing something.
+- [05:01.100] They don't actually do the hard work of making it happen.
+- [05:04.010] What they have done instead is to shut down the government
+- [05:06.060] because we won't give billions of dollars
+- [05:08.380] to healthcare funding for illegal aliens.
+- [05:10.120] That is what has actually happened.
+- [05:11.740] To the American people who are watching,
+- [05:13.300] the reason your government is shut down at this very minute
+- [05:16.090] is because, despite the fact that the overwhelming majority
+- [05:19.560] of congressional Republicans
+- [05:20.950] and even a few moderate Democrats
+- [05:22.860] supported opening the government,
+- [05:24.660] the Chuck Schumer-AOC wing of the Democratic Party
+- [05:27.440] shut down the government because they said to us,
+- [05:29.870] "We will open the government,
+- [05:31.200] but only if you give billions of dollars of funding
+- [05:33.990] for healthcare for illegal aliens."
+- [05:36.030] That's a ridiculous proposition.
+- [05:38.130] Let me say two other quick things,
+- [05:39.850] and then again, I'll take some questions.
+- [05:41.430] Number one, we all understand that Democrats and Republicans
+- [05:44.790] have policy disagreements. Democrats want to do things.
+- [05:47.580] Look, when Chuck Schumer and Hakeem Jeffries
+- [05:49.680] were in here a couple of days ago,
+- [05:51.270] they made some suggestions that the President
+- [05:53.060] was more than happy to say,
+- [05:54.720] "Yes, let's sit down and talk about
+- [05:56.660] how we can solve the healthcare crisis
+- [05:58.810] that we inherited from the Biden administration."
+- [06:00.960] But it's one thing to say that we should solve
+- [06:02.920] the healthcare crisis for Americans.
+- [06:04.920] It's another thing to say
+- [06:06.440] that we're going to shut down the government
+- [06:08.000] unless we give the Democrats every single thing
+- [06:10.500] that they want, which as Karoline says,
+- [06:12.680] includes giving billions of dollars of taxpayer
+- [06:15.120] funding for healthcare for illegal migrants.
+- [06:17.700] That's ridiculous. You don't have policy disagreements
+- [06:21.180] that serve as the basis for a government shutdown.
+- [06:23.570] Let's have the conversation
+- [06:24.950] about how to fix American healthcare,
+- [06:26.750] about how to make healthcare more accessible.
+- [06:28.660] As the President showed, he's more than willing to act
+- [06:31.180] on behalf of the American people for this very reason.
+- [06:34.850] What you don't do is say,
+- [06:36.610] "Unless you do exactly what we want to do
+- [06:39.410] as congressional Democrats, we're taking it hostage,"
+- [06:42.140] and the hostage, it turns out, is critical essential services
+- [06:45.350] that the American people need.
+- [06:46.920] Karoline talked about some of it.
+- [06:48.320] Let me talk about some more.
+- [06:49.730] Our troops are not getting paid starting today
+- [06:52.780] because of the Chuck Schumer wing of the Democratic Party.
+- [06:55.830] We have people who require food assistance,
+- [06:59.700] low-income Americans who require food assistance,
+- [07:02.270] who will not get it
+- [07:03.530] unless we reopen the government thanks to Chuck Schumer
+- [07:06.370] and his wing of the Democratic Party.
+- [07:08.640] We have flood insurance as we start hurricane season
+- [07:11.860] in the southeastern part of our country.
+- [07:13.660] That flood insurance is going to disappear
+- [07:15.690] because of Chuck Schumer
+- [07:17.620] and the far left of the Democratic Party.
+- [07:19.740] We need to reopen the government.
+- [07:21.340] Let's fix America's problems,
+- [07:22.850] let's work together to solve them,
+- [07:24.430] but let's reopen the government
+- [07:26.120] before we have our negotiation about healthcare policy.
+- [07:29.910] That's what the American people demand,
+- [07:31.490] and that's certainly what the President
+- [07:32.820] of the United States wants.
+- [07:34.100] Let me make one final point.
+- [07:35.580] I think a lot of Americans are asking themselves,
+- [07:37.580] "Why did this happen?
+- [07:38.800] Why did the Democrats shut down the government despite,"
+- [07:40.690] as Karoline said,
+- [07:41.890] "voting on the exact same piece of legislation six months ago?"
+- [07:45.430] And there are a lot of different spins that we can put on it,
+- [07:47.640] a lot of different answers that we could give, all of them true.
+- [07:50.050] One answer I already gave
+- [07:51.550] is that they want to give healthcare benefits
+- [07:53.210] to illegal aliens. That is true.
+- [07:55.080] They gave us legislative text that would've undone us
+- [07:59.180] cutting off healthcare benefits for illegal aliens.
+- [08:01.630] That's one of the things that they asked for.
+- [08:03.660] But the reality here, and let's be honest about the politics,
+- [08:06.530] is that Chuck Schumer is terrified she's going
+- [08:09.030] to get a primary challenge from Alexandria Ocasio-Cortez.
+- [08:12.860] The reason why the American people's government is shut down
+- [08:16.760] is because Chuck Schumer
+- [08:18.270] is listening to the far-left radicals in his own party
+- [08:21.150] because he is terrified of a primary challenge.
+- [08:23.320] So I'd invite Chuck Schumer to join the moderate Democrats
+- [08:26.400] and 52 Senate Republicans, do the right thing,
+- [08:29.610] open up the people's government,
+- [08:31.140] and then let's fix healthcare policy for the American people.
+- [08:33.510] Questions?
+- [08:34.750] The Press: Mr. Vice President?
+- [08:35.990] The Vice President: That's a lot. Matt Boyle?
+- [08:37.810] The Press: Okay. Mr. Vice President,
+- [08:39.530] there's two key Democrat lies I would like to get your take on
+- [08:43.170] and see if you can address.
+- [08:44.420] The first is that you're seeing a number of top Democrat leaders
+- [08:47.550] from Kamala Harris to Chuck Schumer to Hakeem Jeffries claim
+- [08:50.740] that it is a Republican shutdown caused by Trump.
+- [08:53.880] The second is that they're out there now
+- [08:55.720] claiming that they don't want to give healthcare
+- [08:58.910] to illegal aliens.
+- [09:00.520] Can you address both of those lies from the Democrat Party?
+- [09:02.730] The Vice President: Yeah, so on the point
+- [09:03.930] that it's a Republican shutdown,
+- [09:05.770] look, it's obviously a Democratic shutdown.
+- [09:07.530] Just look at the vote totals in the House,
+- [09:09.190] look at the vote totals in the Senate,
+- [09:10.460] and look at the President of the United States's
+- [09:11.960] own action and conduct throughout this crisis.
+- [09:14.980] Nearly every single House Republican
+- [09:17.200] voted to open the government, Matt.
+- [09:19.040] Nearly every single Senate Republican voted
+- [09:21.840] to open the government last night,
+- [09:23.630] and even, to their credit, a few moderate Democrats
+- [09:26.310] voted to open the government. That's not a Republican shutdown
+- [09:29.410] when nearly every single Senate Democrat votes to shut it down,
+- [09:32.700] and every Republican voted to open it up.
+- [09:34.520] It's just obviously not true.
+- [09:35.910] Now, you can disagree about a number of things,
+- [09:38.780] but you can't disagree about the obvious fact
+- [09:41.220] that Republicans voted to open the government.
+- [09:43.610] The President stands ready to sign
+- [09:45.050] that opening of the government.
+- [09:46.360] We just need a few more Democrats to join us
+- [09:48.320] in that effort to open the government.
+- [09:49.810] Your final question about illegal alien benefits,
+- [09:52.740] look, the text is very clear, and I even saw,
+- [09:55.910] I think it was George Stephanopoulos
+- [09:57.400] in an interview with Mike Johnson did a fact-check
+- [09:59.880] that was totally rooted in baseless claims.
+- [10:02.730] It was basically Democrat propaganda.
+- [10:04.950] If you look at the legislative texts that they gave us,
+- [10:08.120] they tried to turn on two separate provisions
+- [10:11.190] that would give healthcare benefits to illegal aliens.
+- [10:13.470] Number one, if you're an American citizen,
+- [10:15.630] you've been to a hospital in the last few years,
+- [10:17.570] you probably noticed that wait times are especially large,
+- [10:20.320] and very often somebody who's there in the emergency room
+- [10:22.910] waiting is an illegal alien,
+- [10:24.520] very often a person who can't even speak English.
+- [10:26.970] Why do those people get healthcare benefits at hospitals
+- [10:31.220] paid for by American citizens?
+- [10:32.790] The answer is a decision made by the Biden administration
+- [10:35.900] that the Trump administration
+- [10:37.100] working with congressional Republicans undid.
+- [10:39.860] We turned off that money spigot to healthcare
+- [10:42.080] funding for illegal aliens.
+- [10:43.520] The Democrats, in their legislative texts,
+- [10:45.470] want to turn it back on. That's one thing.
+- [10:47.490] The second thing, Matt,
+- [10:48.790] is we all know that there are various ways
+- [10:51.690] in which the Biden administration waved away
+- [10:55.350] illegal immigration status.
+- [10:56.820] They gave parolees, they gave asylum claims to people
+- [10:59.780] who weren't really claiming asylum,
+- [11:01.680] and when they waved the magic wand of amnesty
+- [11:04.480] giving millions of people legal status
+- [11:07.750] even though they were in the country illegally.
+- [11:09.950] They also gave those people access to healthcare benefits.
+- [11:13.330] So what the Democrats are engaging in
+- [11:14.880] is a sleight of hand. They're saying, no, no, no.
+- [11:17.100] Those weren't illegal aliens
+- [11:18.310] who were getting healthcare benefits,
+- [11:19.790] even though everybody, excuse me,
+- [11:21.930] knows they were in the country illegally.
+- [11:24.630] It's a lie told by the Democrats that they're not trying to give
+- [11:27.460] healthcare benefits to illegal aliens.
+- [11:29.190] It's a lie that is obviously untrue
+- [11:31.700] if you just look at the text that they gave us.
+- [11:33.930] And all you have to do is understand
+- [11:35.940] that this is about who benefits.
+- [11:38.710] We think the American people's government
+- [11:40.660] ought to benefit American citizens.
+- [11:42.520] The Democrats are willing to shut it down
+- [11:44.010] to benefit illegal aliens.
+- [11:45.390] The contrast couldn't be more clear. Peter.
+- [11:48.210] The Press: Thank you, Vice President Vance.
+- [11:50.630] The big hold up is, of course,
+- [11:52.520] that you guys say illegal immigrants
+- [11:56.560] are getting taxpayer-funded healthcare.
+- [11:58.160] Democrats say you're lying.
+- [11:59.860] That makes it feel like it could be a really long shutdown.
+- [12:03.000] Is this going to be a long shutdown?
+- [12:04.670] The Vice President: I don't know.
+- [12:06.000] I can't predict what congressional Democrats
+- [12:08.220] are going to do, Peter, but I actually don't think
+- [12:09.780] it's going to be that long of a shutdown.
+- [12:11.390] This is a pure guess from the Vice President
+- [12:13.110] of the United States,
+- [12:14.350] because I think you already saw some evidence
+- [12:16.820] that moderate Democrats are cracking a little bit.
+- [12:18.910] They understand the fundamental illogic of this.
+- [12:21.820] Look, for years, every single one of us,
+- [12:24.500] we can remember Barack Obama on the White House lawn.
+- [12:27.840] We can remember Chuck Schumer.
+- [12:29.070] We can remember Nancy Pelosi for years,
+- [12:32.270] in Chuck Schumer's case for literally decades.
+- [12:34.620] We've heard them say you don't shut the government
+- [12:37.250] down over policy disagreement. Okay?
+- [12:39.230] Republicans think this thing about healthcare,
+- [12:40.920] that thing about healthcare.
+- [12:42.160] Democrats think this thing about immigration.
+- [12:43.930] Republicans disagree. Whatever those disagreements are,
+- [12:47.140] you don't shut down the government over it.
+- [12:49.020] For the first time since the Democrats have been in politics,
+- [12:52.410] they're now saying that unless we get every policy item
+- [12:56.170] that we demand,
+- [12:57.460] we're going to shut down the people's government.
+- [12:59.080] They're trying to take a hostage and we're not going to let them.
+- [13:01.590] The Press: And the administration announced today
+- [13:02.870] that $18 billion bound for New York transportation projects
+- [13:06.220] is going to be frozen so it can't go to DEI programs there.
+- [13:10.050] But the timing of this, does announcing that today mean
+- [13:13.440] that you guys are going to squeeze
+- [13:14.980] Chuck Schumer's home state until he blinks?
+- [13:18.410] The Vice President: Look, I haven't talked to Russ
+- [13:19.760] about this morning,
+- [13:21.000] but look, I'm sure that Russ is heartbroken
+- [13:22.990] about the fact that he's unable to give certain things
+- [13:26.940] to certain constituencies.
+- [13:29.170] We want to do everything that we can to help the American people.
+- [13:32.230] But when the Democrats shut down the government,
+- [13:34.450] we have to actually do a little triage
+- [13:36.880] to make sure the most critical
+- [13:38.830] and most essential services are provided.
+- [13:40.770] The government does a lot of things.
+- [13:42.280] Of course, Republicans think that the federal government
+- [13:44.220] probably does too much,
+- [13:45.630] but there are a lot of critical things
+- [13:46.940] the federal government does that absolutely all of us
+- [13:49.220] would agree, need to do. Our troops need to get paid.
+- [13:52.150] Our air traffic controllers need to make sure
+- [13:53.870] that people are flying safely and on time.
+- [13:56.940] We need low-income people to be able to access the food services
+- [14:00.150] that are provided by the federal government.
+- [14:01.840] There are critical things that need to be saved.
+- [14:04.320] We're going to do everything
+- [14:05.600] that we can over the coming weeks,
+- [14:08.050] if the shutdown lasts that long, to ensure that people get
+- [14:11.030] the essential services that they need,
+- [14:12.850] despite the fact that Chuck Schumer
+- [14:14.560] has shut down the federal government.
+- [14:16.240] It's not going to be perfect
+- [14:17.740] because we are in a government shutdown.
+- [14:19.770] We are going to have to lay some people off
+- [14:21.910] if the shutdown continues. We don't like that.
+- [14:24.270] We don't necessarily want to do it,
+- [14:25.810] but we're going to do what we have to keep
+- [14:27.210] the American People's essential services continuing to run.
+- [14:30.830] The Press: Thank you, Mr. Vice President,
+- [14:32.680] and thank you for being here.
+- [14:34.360] Yesterday, President Trump said, as a result of the shutdown,
+- [14:37.410] we'll be laying off a lot of people
+- [14:39.060] that are going to be very effected.
+- [14:40.990] And the Democrats, they are going to be Democrats.
+- [14:44.720] Has the administration asked agencies
+- [14:47.360] to target federal workers who they believe to be Democrats
+- [14:50.680] in these reductions of forces, workforce?
+- [14:52.860] The Vice President: We're not targeting federal agencies
+- [14:54.640] based on politics.
+- [14:55.900] We're targeting the people's government
+- [14:57.750] so that as much of possible of the essential services
+- [15:00.990] can continue to function.
+- [15:02.280] That is the question the President has asked
+- [15:04.330] the entire government
+- [15:05.630] is fundamentally, okay, we're in a shutdown.
+- [15:08.010] That causes some problems. The troops aren't getting paid.
+- [15:10.160] There's nothing that we can do about that
+- [15:11.600] while the government is shut down.
+- [15:13.070] But there are essential services that we want to make sure
+- [15:15.580] as much as possible, they still continue to function.
+- [15:18.770] That is the principle that's driving us forward
+- [15:20.750] during the shutdown.
+- [15:22.040] It's going to continue to be the principle
+- [15:23.910] that drives us forward. But let's be honest,
+- [15:25.920] if this thing drags on for another few days,
+- [15:27.910] or God forbid another few weeks,
+- [15:29.550] we are going to have to lay people off.
+- [15:31.100] We're going to have to save money in some places
+- [15:33.600] so that essential services don't get turned off in other places.
+- [15:36.810] That is the reality of the government shutdown
+- [15:38.740] that Chuck Schumer and the Democrats have foisted
+- [15:40.280] upon the administration. Phil.
+- [15:41.520] The Press: So what did he mean
+- [15:42.750] by they're going to be Democrats?
+- [15:44.000] He said they're going to be Democrats.
+- [15:45.490] The Press: You've laid out a lot of the pain and problems
+- [15:48.550] that would come with a Democratic shutdown,
+- [15:50.710] and yet in the Oval Office yesterday,
+- [15:52.750] the President said that a lot of good could come from a shutdown.
+- [15:56.240] So square that circle, which is it,
+- [15:59.150] a Democratic-caused crisis
+- [16:01.390] or a Republican opportunity for reform?
+- [16:03.080] The Vice President: Well, I think all the President
+- [16:04.420] is saying, Phil, is that he wants to make sure
+- [16:06.070] the American people's government functions as well as it can,
+- [16:09.140] despite the fact that we're in a shutdown.
+- [16:11.250] We're going to have to make things work,
+- [16:12.620] and that means that we're going to have to triage
+- [16:14.150] some certain things.
+- [16:15.380] That means certain people are going to have to get laid off.
+- [16:17.550] And we're going to try to make sure
+- [16:18.770] that the American people suffer
+- [16:20.180] as little as possible from the shutdown.
+- [16:22.360] That's what the President is saying is that,
+- [16:24.060] yes, this is a bad thing.
+- [16:25.710] Obviously the President is trying to reopen the government,
+- [16:27.930] but we're going to make things work as well as we possibly
+- [16:30.140] can given the constraints that we have.
+- [16:32.140] The Press: And then on those policy differences
+- [16:33.710] for the discussion
+- [16:34.910] and the negotiations to come later.
+- [16:36.750] During the Biden administration, Democrats twice voted to expand
+- [16:40.580] these Affordable Care Act tax credits,
+- [16:43.550] but those were supposed to be temporary
+- [16:45.410] and they were slated to expire at the end of the year.
+- [16:48.630] As you sort of crack the door open to negotiation
+- [16:51.510] at a later date,
+- [16:53.150] would the party that ran on defunding Obamacare
+- [16:56.780] really negotiate about potentially expanding Obamacare?
+- [17:01.020] The Vice President: Well Phil, what we've said to the Democrats
+- [17:03.260] is that we're willing to have a conversation
+- [17:05.030] about how to ensure that Americans continue
+- [17:06.920] to have access to healthcare.
+- [17:08.760] And frankly, they should have access
+- [17:10.450] to better healthcare at a lower cost.
+- [17:12.010] We inherited a mess of a healthcare system
+- [17:14.380] from the Biden administration.
+- [17:15.760] It's why the President has worked so hard
+- [17:17.980] on the most favored nation status for prescription drugs.
+- [17:21.020] It's why we care so much
+- [17:22.280] about lowering the cost of prescriptions
+- [17:24.130] and why we're doing everything else.
+- [17:25.580] We're willing to have that conversation.
+- [17:27.220] But I think it's important to bracket
+- [17:29.200] the healthcare policy conversation,
+- [17:31.650] because it's separate from the government shutdown.
+- [17:33.970] We think that we can open the government
+- [17:35.740] and then have the conversation about
+- [17:37.460] what best healthcare policy
+- [17:39.180] to fit the needs of the American people.
+- [17:41.060] That's all we're trying to do.
+- [17:42.490] That's all we're trying to accomplish.
+- [17:43.990] We've got to reopen the government first.
+- [17:45.570] Now, Karoline, I don't know how you do this,
+- [17:47.560] how you actually choose people,
+- [17:48.760] because I don't know 90% of the names in here.
+- [17:50.990] Is it just who's the best dressed?
+- [17:53.550] Okay. I really like your shirt. Go ahead.
+- [17:55.960] The Press: Thank you.
+- [17:57.190] Mr. Vice President. You are president of the Senate.
+- [18:00.160] Can you talk about what you're doing,
+- [18:01.630] what the administration is doing
+- [18:02.980] to try to get other Senate Democrats
+- [18:05.120] to vote to open the government?
+- [18:06.610] The Vice President: Yeah. We're talking to a number
+- [18:07.850] of our colleagues, democratic and republican in the Senate.
+- [18:10.230] I talked to a number of them last night.
+- [18:11.630] The President, of course is talking to them as well.
+- [18:13.450] I think there really are two categories of demands
+- [18:16.530] that I've seen privately from congressional Democrats.
+- [18:19.360] I think on the one hand,
+- [18:20.560] those who are negotiating in good faith are saying,
+- [18:22.470] look, we just want to make sure
+- [18:24.120] that we're able to have a conversation
+- [18:25.690] with the administration about some of the critical needs
+- [18:28.960] that we see that need to get fixed over the next few months.
+- [18:32.050] We recognize it's kind of absurd,
+- [18:33.600] and a lot of them will admit in private
+- [18:35.030] that it's kind of absurd to shut down the people's government
+- [18:37.530] over these disagreements,
+- [18:38.820] but just agree to negotiate with us
+- [18:41.170] in good faith on these issues,
+- [18:43.310] and of course, we're having that conversation with them.
+- [18:45.640] Then there's another category,
+- [18:47.160] people who say give us everything we want
+- [18:49.280] or we're going to keep the government shut down.
+- [18:50.990] We just write those people off
+- [18:52.510] because they're not negotiating in good faith.
+- [18:54.590] And frankly, we don't need them.
+- [18:55.970] We've already got three more Democrats last night
+- [18:58.980] than I thought we would get,
+- [19:00.300] and I think it's because they recognize
+- [19:01.690] the illogic of the position
+- [19:02.990] of taking the entire American economy hostage
+- [19:06.090] because they don't get their policy priorities.
+- [19:08.380] So three moderate Democrats joined 52 Republicans
+- [19:10.770] last night.
+- [19:12.040] We need five more in order to reopen the government,
+- [19:14.350] and that's really where we're going to focus
+- [19:16.010] is how to get those five additional Democrats.
+- [19:19.470] The Press: Thanks, Mr. Vice President.
+- [19:20.710] First of two questions.
+- [19:21.990] Are there plans to meet democratic leaders
+- [19:25.610] again in the coming days?
+- [19:26.930] Or are you planning on plucking off senators one by one?
+- [19:30.000] The Vice President: So that's the whole question?
+- [19:31.350] The Press: No, I got a second part.
+- [19:32.700] The Vice President: Okay.
+- [19:33.930] Go ahead and ask the second question.
+- [19:35.200] The Press: So the President's been posting some images
+- [19:36.960] of Leader Jeffries and Senator Schumer recently.
+- [19:39.870] The Vice President: I saw.
+- [19:41.160] The Press: You've said that you're interested in good faith
+- [19:43.220] negotiations with these leaders, but what message does that send?
+- [19:46.220] Is it helpful to post pictures of Leader Jeffries in a sombrero
+- [19:49.840] if you're trying to have good faith talks with him?
+- [19:51.760] The Vice President: Oh, I think it's funny.
+- [19:53.410] The President's joking and we're having a good time.
+- [19:55.870] You can negotiate in good faith while also poking a little bit
+- [19:58.300] of at some of the absurdities of the Democrats positions,
+- [20:01.550] and even poking some fun
+- [20:03.630] at the absurdity of the Democrats themselves.
+- [20:05.470] I mean, I'll tell Hakeem Jeffries right now.
+- [20:07.540] I make this solemn promise to you
+- [20:09.490] that if you help us reopen the government,
+- [20:11.150] the Sombrero memes will stop.
+- [20:12.900] And I've talked to the President of the United States about that.
+- [20:15.780] Now, to your first question, are we negotiating one-on-one?
+- [20:18.330] Are we negotiating in groups?
+- [20:19.660] Look, I will go to the US Capitol right now
+- [20:22.020] and meet with Chuck Schumer or any Senate Democrat
+- [20:24.880] if it helps us reopen the government.
+- [20:27.510] Most of the conversations, in my experience,
+- [20:29.110] at least, have been one-off. We're also, of course,
+- [20:31.030] relying on some of our Senate Republican colleagues
+- [20:33.120] who have good relationships across the aisle.
+- [20:35.260] We're going to do whatever we have to do is the answer,
+- [20:37.640] and I think it's tough to predict
+- [20:39.030] what shape this negotiation
+- [20:40.350] is going to take over the next few months,
+- [20:42.140] but I feel good about the fact that Democrats already realize
+- [20:45.890] privately the fundamental irrationality of their position.
+- [20:49.470] I hope that they're going to publicly acknowledge it
+- [20:51.490] and reopen the government. The guy in the back. Yeah.
+- [20:54.420] The Press: Thank you, Mr. Vice President.
+- [20:55.980] You responded to a post on X of Chuck Schumer
+- [20:58.690] on the House floor back in 1996,
+- [21:01.110] railing against illegal immigrants
+- [21:02.660] receiving taxpayer- funded benefits.
+- [21:05.060] You said, "Chuck Schumer once recognized
+- [21:06.720] that it was disastrous to give illegal aliens
+- [21:08.590] rewards for breaking the law.
+- [21:10.290] Now he wants to shut down the government
+- [21:11.930] unless we reward illegal aliens for breaking the law."
+- [21:15.030] Why has Chuck Schumer changed his stance?
+- [21:17.590] The Vice President: That's a good question.
+- [21:19.170] Actually, it's a very tough question.
+- [21:20.540] Asking me to get in the head of Chuck Schumer
+- [21:22.100] is not a place I particularly want to be,
+- [21:24.510] but my basic read on it is that the entire Democratic Party,
+- [21:29.810] the political leadership, not every Democrat nationwide,
+- [21:32.680] but the political leadership of their party
+- [21:34.780] has got it into their heads that the only way to be compassionate
+- [21:38.300] is to be compassionate to illegal aliens
+- [21:40.150] rather than American citizens.
+- [21:41.380] If you go back to what Bill Clinton was saying,
+- [21:43.570] even Barack Obama in some cases,
+- [21:45.320] what he was saying about illegal immigration 10,
+- [21:47.600] 15, 20 years ago, you would put them on the MAGA
+- [21:50.610] right based purely on their rhetoric
+- [21:52.240] around illegal immigration.
+- [21:53.530] So I don't know why they've gone so far to the left.
+- [21:56.210] I think it's bad for the country.
+- [21:57.560] I think it's bad for them politically.
+- [21:59.390] But our principle, all I can do is speak for the President
+- [22:02.400] that I serve, and the country (inaudible)
+- [22:03.910] the administration that I serve right now,
+- [22:05.910] we believe that the American people's government exists
+- [22:09.210] for the American people,
+- [22:10.700] that means the people who have the legal right to be here.
+- [22:13.510] That's why we're fighting to reopen the government.
+- [22:15.680] Unfortunately, the Democrats are fighting to shut it down
+- [22:17.930] for the benefit of illegal aliens.
+- [22:19.530] I'll take a couple more. Then I'll let Karoline...
+- [22:22.280] I'll go back to my day job so Caroline can go back to hers.
+- [22:25.380] All right, yes?
+- [22:26.610] The Press: Thank you, Mr. Vice President.
+- [22:28.330] Just going back to the sombrero,
+- [22:30.690] you said that the President is joking,
+- [22:32.240] but Hakeem Jeffries says that these memes were racist.
+- [22:35.130] What's your response to that?
+- [22:36.470] And just if I may briefly go off topic,
+- [22:39.000] Secretary Hegseth yesterday made an edict
+- [22:41.340] about no more beardos in the military.
+- [22:43.300] Just wondered what --
+- [22:44.690] The Vice President: Sorry, what did he say?
+- [22:46.240] The Press: No more beardos.
+- [22:47.880] The Press: Beards.
+- [22:49.190] The Press: Sorry, that's my accent.
+- [22:50.450] I just wondered your response to that.
+- [22:52.440] The Vice President: I didn't see that particular comment.
+- [22:54.040] I thought Pete gave a hell of a speech
+- [22:55.760] and a speech that really is just oriented around
+- [22:58.350] returning the American military to the very high standards
+- [23:00.830] that it has had for virtually its entire history
+- [23:04.330] until Joe Biden came along and decided to lower standards.
+- [23:07.270] I think it was bad for our military,
+- [23:08.870] and it was bad for our troops.
+- [23:10.830] When I was a young United States Marine,
+- [23:12.570] I did not have a beard. I'm now the Vice President,
+- [23:14.910] so I get to do what I want to do.
+- [23:17.220] I think Pete's trying to re-implement high standards,
+- [23:19.370] and that's a very good thing.
+- [23:20.600] On the sombrero thing,
+- [23:22.050] Hakeem Jeffries said it was racist.
+- [23:23.920] I know that he said that,
+- [23:25.340] and I honestly don't even know what that means.
+- [23:29.080] Is he a Mexican American
+- [23:30.840] that is offended by having a sombrero meme?
+- [23:34.090] I saw one of the major TV stations put the meme up
+- [23:38.190] and then say this is AI generated,
+- [23:40.370] and he had curly animated mustache too.
+- [23:43.440] Do the American people, do you really not realize...?
+- [23:45.990] The American people recognize that he did not
+- [23:47.950] actually come to the White House wearing a sombrero
+- [23:50.820] and a black curly animation mustache.
+- [23:53.600] Give the country a little bit of credit.
+- [23:55.200] We're all trying to do a very important job
+- [23:56.840] for the American people.
+- [23:58.100] The President of the United States
+- [23:59.350] likes to have a little bit of fun when he is doing it,
+- [24:01.140] and I think that's okay. I'll take one more question.
+- [24:03.840] The Press: Mr. Vice President, in every previous shutdown,
+- [24:06.530] workers have been furloughed, not laid off.
+- [24:08.520] So why does the President want to fire some workers
+- [24:10.560] and not just furlough them?
+- [24:11.840] Why is this shutdown any different?
+- [24:13.140] The Vice President: Well, first of all,
+- [24:14.350] we haven't made any final decisions
+- [24:15.580] about what we're going to do with certain workers.
+- [24:17.110] What we're saying is that we might have
+- [24:18.680] to take extraordinary steps.
+- [24:20.050] Especially the longer this goes on,
+- [24:22.110] we're going to have to take extraordinary measures
+- [24:24.160] to ensure the people's government operates, again,
+- [24:26.530] not perfectly because it's not going to operate
+- [24:28.310] perfectly in the midst of a shutdown,
+- [24:30.300] but operate as well as it possibly can.
+- [24:32.440] I think that the Democrats, if they're so worried
+- [24:35.570] about the effect this is having on the American people,
+- [24:37.530] and they should be,
+- [24:38.760] what they should do is reopen the government,
+- [24:40.550] not complain about how we respond
+- [24:43.300] to the fact that Chuck Schumer and the Democrats
+- [24:44.850] have shut down the government in the first place.
+- [24:46.440] Thank you, all. Karoline. Thank you, thank you.
+- [24:49.820] See you, guys.
+- [24:51.660] Karoline Leavitt: All right, guys.
+- [24:52.870] Well, let's let the fun continue.
+- [24:54.660] The Vice President's a very busy man,
+- [24:56.490] and I'm happy to take some more questions.
+- [24:57.930] I know there's more news today. Aside from the shutdown,
+- [25:00.620] we can focus on the shutdown if you want,
+- [25:02.210] but let's go ahead. Kate, why don't you start?
+- [25:04.200] The Press: The President talked about doing things
+- [25:05.830] that he said were irreversible during the shutdown,
+- [25:08.480] cutting vast numbers of people, he said, and cutting programs.
+- [25:11.220] Can you specify what exactly he was referring to,
+- [25:13.370] what's on the table and what's going to be cut?
+- [25:14.950] Karoline Leavitt: Look, I think the Vice President
+- [25:16.170] just referred to this in some of the answers
+- [25:18.800] that he gave regarding the layoffs.
+- [25:20.850] There are unfortunate consequences
+- [25:23.350] to a government shutdown. The federal government
+- [25:25.820] is not receiving any cash at the moment.
+- [25:27.570] So the Office of Management and Budget
+- [25:29.460] has been tasked with looking over the receipts
+- [25:32.250] and looking over the budget of the entire federal bureaucracy
+- [25:35.580] and, as the vice President said,
+- [25:37.040] determining what needs to continue to go out the door
+- [25:39.960] and what can we continue to keep running
+- [25:41.880] and what unfortunately is going to have to come to an end.
+- [25:44.290] So those decisions are being made.
+- [25:45.980] Unfortunately, layoffs are very likely,
+- [25:47.590] as the Vice President just said, going to be a part of that.
+- [25:49.390] The Press: (inaudible)
+- [25:50.590] had any direct response from Hamas from the peace proposal
+- [25:54.460] that was laid out?
+- [25:55.660] The President said he would give three or four days,
+- [25:57.830] but is there a hard deadline now?
+- [25:59.130] What are the next steps here?
+- [26:00.340] Karoline Leavitt: I will reiterate
+- [26:01.560] what the President of the United States said,
+- [26:03.390] three or four days.
+- [26:04.700] I can tell you that there are some very sensitive discussions
+- [26:07.620] that are taking place,
+- [26:08.840] but I certainly don't want to get ahead
+- [26:10.670] of any announcement at this podium.
+- [26:12.670] I'm going to let Special Envoy Witkoff
+- [26:15.230] and the President of United States handle that.
+- [26:18.870] The Press: Thank you, Karoline. Two questions.
+- [26:20.170] First of all, following up on that,
+- [26:21.450] the President said yesterday,
+- [26:22.670] I believe, within three or four days
+- [26:23.990] he wanted to hear an answer from Hamas.
+- [26:25.590] Is he still sticking by that timeline?
+- [26:27.130] Karoline Leavitt: Yes, as I just confirmed.
+- [26:28.410] The Press: Then a second question is a comment
+- [26:30.420] that's gotten a lot of global attention.
+- [26:33.240] Senator Dick Durbin, he was set to receive
+- [26:37.040] a Lifetime Achievement award from the Catholic Church.
+- [26:39.750] He's since declined accepting it
+- [26:41.270] because there has been some controversy.
+- [26:43.370] Pope Leo commented on this. He said that, "Someone who says,
+- [26:48.040] 'I'm against abortion, but I'm in agreement
+- [26:50.700] with the inhumane treatment
+- [26:52.020] of immigrants in the United States,'
+- [26:54.290] I don't know if that's pro-life."
+- [26:56.090] You've been very open about your Catholic faith.
+- [26:58.390] How do you respond to that?
+- [26:59.600] Karoline Leavitt: I would reject there
+- [27:00.810] is inhumane treatment of illegal immigrants
+- [27:02.450] in the United States under this administration.
+- [27:04.640] There was however significant inhumane treatment
+- [27:07.930] of illegal immigrants in the previous administration
+- [27:10.270] as they were being trafficked and raped and beaten,
+- [27:12.850] and in many cases,
+- [27:14.110] killed over our United States southern border.
+- [27:17.240] You also look at the inhumane treatment
+- [27:18.880] at the hands of some of these illegal immigrants
+- [27:20.900] that took place under the previous administration as well.
+- [27:24.900] Laken Riley comes to mind, a beautiful American citizen
+- [27:27.730] who was killed at the hands of an illegal immigrant.
+- [27:30.040] So this administration is trying to enforce our nation's laws
+- [27:35.060] in the most humane way possible.
+- [27:37.950] We're upholding the law, and we're doing that
+- [27:39.580] on behalf of the people of our country who live here.
+- [27:44.910] The Press: Thanks a lot, Karoline.
+- [27:46.310] What is the level of concern that the administration
+- [27:48.910] has regarding a protracted government shutdown
+- [27:52.010] in terms of its impact on the US economy
+- [27:54.870] and also its impact on small businesses as well?
+- [27:58.110] Karoline Leavitt: Well, look, this government shutdown
+- [28:00.640] is no doubt going to impact everyday Americans,
+- [28:03.900] and it is the fault of the Democrats
+- [28:05.360] that we are in this position.
+- [28:06.810] I know I relayed some programs that will be impacted.
+- [28:10.070] The Vice President did as well.
+- [28:11.440] But I just want to make sure the American public understand
+- [28:15.210] what the Democrats have done to our government and our country.
+- [28:18.670] 1.3 million active duty troops will work now without pay.
+- [28:22.810] Critical food assistance for low-income women,
+- [28:25.160] infants, and children will now lapse.
+- [28:27.440] No new mothers or children are allowed to join
+- [28:30.180] this critical program because of the Democrat's decision
+- [28:33.670] to shut down the government.
+- [28:34.990] Telehealth services for seniors and in-home treatment options
+- [28:38.130] for Medicare patients will now come to an end.
+- [28:40.830] Nearly 50,000 members of the United States Coast Guard
+- [28:44.180] are going to have to work unpaid.
+- [28:46.000] Over 13,000 air traffic controllers
+- [28:48.380] will work without pay as well as TSA agents
+- [28:52.430] which will very likely create flight disruptions.
+- [28:55.540] And pay will now stop for over 150,000
+- [28:58.760] federal law enforcement officers.
+- [29:00.330] These are not just numbers and statistics.
+- [29:02.450] These are real Americans who have families at home.
+- [29:05.370] I saw some Democrat members today
+- [29:08.210] saying they're still going to accept their paychecks
+- [29:10.090] because they have three kids at home
+- [29:11.680] and they have mouths to feed.
+- [29:12.970] Well, so do these federal workers who those same Democrats
+- [29:16.200] just voted to shut down the government
+- [29:17.840] and turn off their pay.
+- [29:19.080] We believe that's very unfair, and it's why the administration
+- [29:21.860] wants to see the government reopened.
+- [29:23.970] The Press: GDP growth fell by about half a percentage point
+- [29:27.800] during the last government shutdown,
+- [29:29.430] during the President's first term.
+- [29:31.440] Are you expecting a similar type of impact on GDP growth
+- [29:34.970] related to this potential protracted government shutdown?
+- [29:38.710] Karoline Leavitt: Well, look, I think it's dependent upon
+- [29:40.240] how long this shutdown continues.
+- [29:41.770] So it's dependent on how long it takes Democrats
+- [29:45.510] to muster up the coverage,
+- [29:46.800] five of them to vote in the best interest of our country,
+- [29:51.230] our citizens, and our economy. Eamon.
+- [29:55.000] The Press: Thank you, Karoline. Yesterday, your administration
+- [29:57.220] took a 5% stake in Lithium Americas
+- [30:00.300] and a stake in the mine that they're working on,
+- [30:02.030] and you've taken stakes in other companies
+- [30:03.930] and revenue streams from other companies.
+- [30:05.350] Can you articulate the broader principle here?
+- [30:07.560] When does the administration see it
+- [30:09.100] as appropriate to demand equity stakes
+- [30:11.920] or revenue streams from American companies,
+- [30:14.590] and what other companies are you going to be
+- [30:16.360] demanding those from?
+- [30:17.780] Karoline Leavitt: Well, look, this is a creative solution
+- [30:20.210] by the President of the United States
+- [30:21.870] to tackle our nation's crippling debt crisis.
+- [30:24.340] As I said earlier, we are $37 trillion,
+- [30:27.450] trillion with a T, in debt.
+- [30:29.840] Not only is the President effectively utilizing tariffs
+- [30:32.810] to bring in massive amounts of revenue,
+- [30:34.740] and there's billions of dollars coming in every month.
+- [30:37.250] I know you know that, Eamon,
+- [30:38.550] because you cover it on CNBC quite well.
+- [30:41.130] So the President is focused on,
+- [30:43.100] how can the United States government make more money?
+- [30:45.370] How can we make our country wealthy and rich again?
+- [30:48.580] Cutting some of these unique,
+- [30:50.040] creative deals with companies around the world
+- [30:52.690] and here at home is just one way
+- [30:54.200] the President is seeking to do that.
+- [30:56.100] I know the Department of Energy just announced this new deal.
+- [30:58.660] It's another great deal for the American people
+- [31:00.290] and our government. Sure, go ahead.
+- [31:03.350] The Press: Lisa Cook, the Supreme Court said today
+- [31:05.250] that she's going to be allowed to stay
+- [31:07.050] at the Federal Reserve Board until oral arguments in January.
+- [31:10.260] Does the President have any personal reaction to that?
+- [31:12.210] This has been something he's been very intent on.
+- [31:14.560] Karoline Leavitt: Look, we have respect for the Supreme Court,
+- [31:16.300] but they're going to hear the actual case
+- [31:18.210] and make a determination on the legal argument in January.
+- [31:22.080] We look forward to that because we maintain
+- [31:24.340] that she was fired well
+- [31:25.630] within the President's legal authority to do so.
+- [31:28.140] She was removed from the Board, and we look forward to that case
+- [31:30.980] being fully played out at the Supreme Court.
+- [31:33.300] Reagan.
+- [31:34.520] The Press: Karoline, I have one for you on E.J. Antoni
+- [31:36.340] and one on the shutdown.
+- [31:37.580] Karoline Leavitt: Sure.
+- [31:38.810] The Press: CNN reported that Collins and Murkowski
+- [31:40.700] declined to meet with E.J. Antoni,
+- [31:42.980] raising concerns that his nomination was in trouble.
+- [31:45.340] I'm wondering what message Collins and Murkowski
+- [31:48.180] are sending to the White House by not meeting the President's
+- [31:51.140] (inaudible)?
+- [31:52.410] Karoline Leavitt: Well, look, E.J Antoni remains
+- [31:54.730] a great ally of the President and our team.
+- [31:57.990] It became clear unfortunately
+- [31:59.860] that he was not going to have the votes,
+- [32:01.350] and so we will be announcing a replacement nominee very soon.
+- [32:04.960] The Press: On the shutdown,
+- [32:06.970] I'm just wondering how soon you could see cuts
+- [32:09.100] to the federal workplace and if there's a specific agency
+- [32:12.430] that will experience most cuts or be focused
+- [32:13.990] (inaudible)?
+- [32:15.190] Karoline Leavitt: Unfortunately, because the Democrats
+- [32:16.650] shut down the government,
+- [32:18.010] the President has directed his cabinet
+- [32:20.150] and the Office of Management and Budget
+- [32:21.520] is working with agencies across the board
+- [32:24.370] to identify where cuts can be made.
+- [32:26.580] We believe that layoffs are imminent.
+- [32:28.210] They are unfortunately a consequence
+- [32:30.750] of this government shutdown. Ed.
+- [32:32.550] The Press: Thanks, Karoline.
+- [32:33.820] You talk about the layoffs being imminent.
+- [32:35.680] Is there a percentage then of reduction
+- [32:37.770] that the White House is looking for of workforce?
+- [32:40.750] Karoline Leavitt: I don't have a specific percentage for you.
+- [32:42.670] The Press: Can I ask, what about China, if I could?
+- [32:44.710] China has not made one soybean purchase this year
+- [32:47.600] in the United States. I talked to a farmer yesterday
+- [32:50.270] who has about a thousand acres in Iowa
+- [32:52.130] and said this is just killing her.
+- [32:53.810] Now, the President has been talking to President Xi.
+- [32:56.640] Could China not buying agriculture affect
+- [32:59.590] a possible meeting with the President?
+- [33:01.170] Would he not meet with Xi
+- [33:02.410] because China has refused to buy soybeans from the US.
+- [33:04.830] Karoline Leavitt: Well look,
+- [33:06.110] I don't want to speak for the President
+- [33:07.520] and make a determination on that from this podium,
+- [33:10.220] but what I can tell you is that supporting America's farmers
+- [33:13.260] and doing what's best for them
+- [33:14.760] is at the top of the President's priority list,
+- [33:16.660] and it's at the top of the list
+- [33:18.010] for this administration right now.
+- [33:19.250] There have been several very high-level meetings
+- [33:22.000] on this very topic. We want to help our farmers
+- [33:25.050] and we're exploring the best ways to do that,
+- [33:27.210] and I would anticipate there
+- [33:28.540] will be more to come on that very soon.
+- [33:29.840] The Press: You can send a message
+- [33:31.060] to the Chinese president.
+- [33:32.430] Karoline Leavitt: Look, I just shared that message.
+- [33:34.440] The President wants what's best for America's farmers.
+- [33:37.890] Sean.
+- [33:39.230] The Press: Hey Karoline. Two things to ask you about.
+- [33:41.120] Karoline Leavitt: Sure.
+- [33:42.360] The Press: First thing I want to ask about this video
+- [33:44.480] that the President posted the other day,
+- [33:46.250] it was an AI deepfake of himself
+- [33:48.390] talking about something called med beds.
+- [33:50.350] What was he trying to communicate to the public there
+- [33:52.260] and why did he delete it?
+- [33:53.480] Karoline Leavitt: I think the President saw the video
+- [33:55.320] and posted it and then took it down,
+- [33:58.000] and he has the right to do that. It's his social media.
+- [34:00.060] He's incredibly transparent as you all know.
+- [34:02.750] You hear from him directly on social media.
+- [34:04.490] He likes to share memes, he likes to share videos.
+- [34:06.850] He likes to repost things that he sees
+- [34:08.920] other people post on social media as well,
+- [34:10.760] and I think it's quite refreshing
+- [34:11.980] that we have a president
+- [34:13.250] who is so open and honest directly himself,
+- [34:15.730] many a times untrue that you are hearing
+- [34:17.390] directly from the President of the United States.
+- [34:19.120] The Press: And second thing, how did the White House decide
+- [34:21.300] that it is appropriate for Jared Kushner
+- [34:23.420] to be working on matters that involve Qatar,
+- [34:25.900] the UAE, Saudi Arabia,
+- [34:28.290] three countries that combined have given him
+- [34:30.250] more than $2.5 billion for his investment firm?
+- [34:33.920] Karoline Leavitt: I think it's frankly despicable
+- [34:37.000] that you're trying to suggest
+- [34:38.220] that it's inappropriate for Jared Kushner,
+- [34:40.380] who is widely respected around the world
+- [34:43.240] and has great trust in relationships
+- [34:45.250] with these critical partners in these countries to strike
+- [34:48.050] a 20 point comprehensive detailed peace plan
+- [34:51.430] that no other administration would ever be able to achieve,
+- [34:55.040] and so Jared is donating his energy
+- [34:57.290] and his time to our government,
+- [34:59.530] to the President of the United States to secure world peace,
+- [35:02.930] and that is a very noble thing, and this is a peace plan
+- [35:05.820] that has not just been accepted by Israel,
+- [35:07.940] but it has been applauded by Muslim and Arab countries
+- [35:10.860] around the world that has been applauded
+- [35:13.330] by European leaders around the world.
+- [35:15.500] Virtually everyone in the world is supportive of this plan
+- [35:19.150] that Jared Kushner offered his time
+- [35:21.430] to help put together alongside our special Envoy Witkoff,
+- [35:24.360] the Vice President,
+- [35:25.630] the President of the United States, Secretary Rubio,
+- [35:28.040] and the President's entire national security team.
+- [35:30.070] We are very proud of that plan and we hope Hamas will accept it
+- [35:33.480] because it will lead to a more peaceful
+- [35:35.090] and prosperous Middle East.
+- [35:37.860] The Press: I have two questions.
+- [35:39.500] One, we're talking a lot about these layoffs and hypotheticals,
+- [35:41.650] but speaker Johnson earlier today
+- [35:43.410] said that there is a proposal from the White House
+- [35:46.000] that House Republicans are expected
+- [35:47.760] to hear this afternoon about these mass layoffs.
+- [35:51.100] Can you tell us what is in that proposal?
+- [35:52.920] What agencies, what programs, what jobs?
+- [35:55.460] Karoline Leavitt: What he's referring to is a proposal
+- [35:57.520] that our office of management and budget director Russ Vought
+- [36:00.550] is going to be proposing to the House Republican conference.
+- [36:03.150] He's going to kind of walk them
+- [36:04.570] through what this unfortunately is going to look like
+- [36:07.660] so they can discuss it with their constituents back home
+- [36:10.290] in their respective districts.
+- [36:11.600] So I don't want to get ahead
+- [36:12.810] of the Office of Management and Budget,
+- [36:14.750] but I'm sure you'll be hearing more about that very soon.
+- [36:17.940] We have to put a plan in place. It would be irresponsible of us
+- [36:21.680] not to take a look at each and every agency
+- [36:23.780] and get an understanding of what we're going to
+- [36:25.850] have to do moving forward to do the best
+- [36:29.440] we can in the midst of this government shutdown.
+- [36:33.090] The Press: Thanks, Karoline. Just on that point though,
+- [36:35.600] Roosevelt told house members according to our notice
+- [36:38.420] reporting, that rifts would happen in two days.
+- [36:42.060] Already we know that some have been sitting out
+- [36:43.960] from the US patent office.
+- [36:46.010] So I wonder, one, this administration continues to say
+- [36:50.090] that they don't want to lay people off,
+- [36:51.430] but obviously there is a plan to lay people off.
+- [36:53.550] So what is your message to those people who are getting laid off?
+- [36:56.090] And then if the government reopens,
+- [36:58.310] will those rifts reverse? Are they not permanent?
+- [37:00.790] If the government opens specifically,
+- [37:02.150] it reopens pretty quickly.
+- [37:03.520] Karoline Leavitt: Well, sometimes you have to do things
+- [37:04.850] you don't want to do
+- [37:06.070] and it's because the Democrats have put us into this position.
+- [37:08.840] If the Democrats did not vote to shut down the government,
+- [37:11.300] we would not be standing up here talking about layoffs today.
+- [37:13.970] We'd be talking about all the other news stories
+- [37:15.860] going on in the world in our country.
+- [37:17.520] We'd be talking about all of the great things
+- [37:19.500] that this administration is doing to uplift
+- [37:21.310] Americans across the country,
+- [37:22.510] but unfortunately, the Vice President of the United States
+- [37:25.650] and I have to come out here today
+- [37:27.080] to talk about a government shutdown
+- [37:29.110] that the Democrats put us in this position.
+- [37:31.650] Joey, go ahead.
+- [37:32.930] The Press: I'm just trying to clarify the timing
+- [37:35.680] of these potential layoffs to federal workers.
+- [37:38.230] You said imminent,
+- [37:39.630] the Vice President seemed to say in a couple of days,
+- [37:41.870] it looks like Russ Vought maybe said in two days,
+- [37:44.980] when would these layoffs begin?
+- [37:48.700] Karoline Leavitt: Two days imminent, very soon.
+- [37:50.610] You will expect more announcements right now.
+- [37:53.310] The Press: Is it just not clear or are you waiting?
+- [37:55.340] Karoline Leavitt: No, it's not unclear.
+- [37:56.590] All of those things are very synonymous with one another.
+- [37:59.950] These rifts are unfortunately
+- [38:01.250] going to have to happen very soon.
+- [38:03.590] Dasha, go ahead.
+- [38:06.940] The Press: We've been talking about the Affordable Care Act,
+- [38:10.520] enhanced premium tax credits
+- [38:12.410] and sort of the politics of it all, right?
+- [38:14.310] But this is a very real tangible impact
+- [38:17.540] that American people will feel.
+- [38:19.610] The Kaiser Family Foundation says that with the ACA
+- [38:22.600] enhanced premium tax credits, without them,
+- [38:24.860] premiums will go up 114% on average.
+- [38:28.420] 19 million of the 24 million people who rely on the coverage
+- [38:31.920] are in states that President Trump won.
+- [38:34.490] Is he concerned what will happen to those families
+- [38:36.860] if this tax credit expires? And aside from the shutdown,
+- [38:39.990] is there a plan to keep those premiums down?
+- [38:42.640] Karoline Leavitt: Look, as the Vice President just said,
+- [38:44.470] we are more than happy to have this conversation.
+- [38:47.110] The President and the Vice President and this team
+- [38:49.410] are more than happy to have that conversation with Republicans
+- [38:53.230] and Democrats on Capitol Hill, but it cannot happen right now.
+- [38:56.730] Right now, we need to reopen the United States Federal Government
+- [38:59.960] because people are going without pay.
+- [39:02.110] You have thousands of federal workers
+- [39:04.060] who have to show up to work and not get paid,
+- [39:06.250] and that's an unfortunate situation
+- [39:08.150] the Democrats have put us in.
+- [39:09.580] Then we can discuss this very important issue of healthcare
+- [39:13.030] that the President absolutely wants to fix.
+- [39:15.380] As I mentioned yesterday,
+- [39:17.380] but those premiums do not expire until the end of the year.
+- [39:21.410] It's October 1st right now,
+- [39:22.820] and so we have a few months to have that conversation
+- [39:25.320] and it's irresponsible of the Democrat party
+- [39:27.470] to try to convince the American people
+- [39:29.160] that that conversation has to happen right now.
+- [39:31.090] No, what needs to happen right now
+- [39:32.810] is the reopening of the United States federal governments,
+- [39:35.730] and then this administration will be happy
+- [39:37.670] to work with Democrats
+- [39:38.870] in good faith to come to a policy determination,
+- [39:41.500] but one red line the government has already made clear,
+- [39:43.750] this administration has already made clear.
+- [39:45.730] This administration is never going to support taxpayer-funded
+- [39:49.460] benefits going to illegal aliens,
+- [39:51.460] and we think it's despicable
+- [39:52.750] that that was one of the first proposals
+- [39:55.490] that Democrats put in their funding proposal and their CR.
+- [39:59.810] The Republican CR was a clean CR
+- [40:01.790] that would keep the government open.
+- [40:03.050] Democrats have voted for it 13 times in the past.
+- [40:05.630] The Democrats put this poison pill in there,
+- [40:07.540] this partisan pill. Why?
+- [40:09.190] Because they are beholden to the far-left radicals
+- [40:12.890] in their party,
+- [40:14.180] and you already see three moderate Democrats
+- [40:16.160] having the courage to say,
+- [40:17.440] "No, we need to keep the government open
+- [40:19.600] and then we can have these conversations
+- [40:21.480] about health care." Mary.
+- [40:23.550] The Press: I just want to circle back
+- [40:25.080] to some of the Vice Presidents that Ocasio-Cortez
+- [40:27.330] and actually surprised it didn't come up sooner.
+- [40:29.630] So if Schumer is catering to the demands of Ocasio-Cortez,
+- [40:33.140] can you share whether the White House views
+- [40:35.020] this as cracks in Schumer's leadership?
+- [40:37.120] And would the Vice President be open to meeting
+- [40:39.520] with someone like her
+- [40:40.750] if she is assuming this role in the Democratic Party?
+- [40:43.850] Karoline Leavitt: I'll let the Vice President
+- [40:45.160] speak on that himself.
+- [40:46.540] I think that certainly Senator Schumer was not expecting
+- [40:49.760] three moderates to break with him last night.
+- [40:52.400] In fact, last night you heard Senator Schumer
+- [40:54.310] say he can't guarantee that he will be able
+- [40:57.630] to hold his caucus together,
+- [40:59.060] and so again, we encourage Democrats
+- [41:01.640] to have the courage to do the right thing,
+- [41:03.920] do what you have done 13 times previously,
+- [41:07.110] and vote for this clean continuing resolution
+- [41:09.760] to keep the government funded.
+- [41:11.460] As for what the Trump administration
+- [41:13.400] and President Trump is going to do,
+- [41:14.990] we'll continue to be very public
+- [41:17.830] that we want the government to be open,
+- [41:19.380] and as the Vice President said, we'll continue to work
+- [41:21.980] in good faith with anyone on Capitol Hill
+- [41:23.980] who wants to do right by the American people.
+- [41:26.450] Thank you all so much. We'll see you later.
+- [41:28.340] The Press: Thank you Karoline.

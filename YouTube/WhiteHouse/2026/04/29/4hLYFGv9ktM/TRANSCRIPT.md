@@ -1,0 +1,552 @@
+<!-- source: https://www.youtube.com/watch?v=4hLYFGv9ktM -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 4hLYFGv9ktM -->
+<!-- date_published: 2026-04-29T18:37:57+00:00 -->
+<!-- date_accessed: 2026-06-02T02:34:39.862937+00:00 -->
+
+# Transcript: President Trump Participates in a Greeting with Artemis II Astronauts
+
+- [00:08.460] The President: Well, thank you very much.
+- [00:09.680] We have some people that have captivated
+- [00:12.810] the attention of the whole world,
+- [00:15.090] not just our country, the whole world, and they're very brave.
+- [00:18.190] And that was a not a rocket under them,
+- [00:20.000] I never saw anything like that we were talking about it.
+- [00:24.350] I don't know how they do it; I wouldn't want to do it.
+- [00:27.360] But it takes people like this to make our country great.
+- [00:31.580] And again, I've never seen anything --
+- [00:34.880] everybody I knew, they wanted to see the launch,
+- [00:37.860] and they especially wanted to see a successful landing.
+- [00:41.390] And, Jared, I want to congratulate you.
+- [00:42.940] What you've done at NASA. I made a great choice.
+- [00:48.970] And if you have any questions for any of us, feel free to ask.
+- [00:54.430] But we're very proud of these people,
+- [00:55.970] they have unbelievable courage, unbelievable.
+- [00:58.770] A lot of other things, too, by the way.
+- [01:00.530] To get in there, you have to be very smart,
+- [01:02.950] have to do a lot of things physically good.
+- [01:05.560] So, I would have had no trouble making it,
+- [01:07.270] I'm physically very, very good. Maybe a little bit of a problem,
+- [01:11.250] I don't know, Jared, we'll have to try it sometime.
+- [01:13.720] Is a president allowed to go up in one of these missions?
+- [01:16.760] Jared Isaacman: We can get working on that, Mr. President.
+- [01:18.420] The President: We'd have no problem, right?
+- [01:19.640] Jared Isaacman: We can launch more rockets -- the opportunity.
+- [01:21.910] We'll have to try it. Congratulations very much.
+- [01:24.890] And by the way, the families are over here, beautiful families.
+- [01:27.500] And they're in the Oval Office and they walked in they said,
+- [01:31.080] wow, the Oval Office.
+- [01:33.130] Everybody likes the Oval Office. So, any questions, please.
+- [01:36.120] The Press: Mr. President. Thank you, Mr. President.
+- [01:39.000] First of all, it's a great honor to meet all of you.
+- [01:40.630] Congratulations and welcome to the White House.
+- [01:44.870] I've had the privilege of interviewing Gene Cernan,
+- [01:46.980] the last man to walk on the moon.
+- [01:49.750] Is that what you would like to do?
+- [01:51.010] And, Mr. President,
+- [01:52.250] do you think that will happen during your second term?
+- [01:54.790] The President: Well, we have a shot at it.
+- [01:56.090] I mean, we don't like to say definitely,
+- [01:58.190] because then you say, oh, we failed, we failed.
+- [02:00.020] Because we were --
+- [02:01.230] I think we could say we're ahead of schedule.
+- [02:03.770] So, we have a good shot.
+- [02:05.660] We've authorized it and I think with this team and with --
+- [02:10.470] Jared's done such an amazing job at NASA.
+- [02:13.110] I think we have a good shot, right? We'll see.
+- [02:15.070] Jared Isaacman: Yes, Mr. President,
+- [02:16.290] we have an achievable plan now back to the moon.
+- [02:18.660] And we're back in the business
+- [02:20.130] of launching moon rockets with frequency.
+- [02:21.970] So, we just send Artemis II around the moon;
+- [02:24.120] we're going to launch Artemis III in 2027.
+- [02:26.830] We'll protect for up for two opportunities in 2028
+- [02:29.300] to return astronauts to the surface of the moon.
+- [02:31.820] The President: I like space.
+- [02:33.120] You know, I started Space Force, as you very well know,
+- [02:35.970] it's been very, very important. And they tried to kill it.
+- [02:39.190] And actually, the military would not let
+- [02:41.290] the Biden administration kill it.
+- [02:42.920] They wanted to kill it and it's going to turn out
+- [02:45.710] to be one of our most important things.
+- [02:47.490] I think it will turn out to be
+- [02:48.870] one of the most important things they did.
+- [02:50.400] But we got involved with NASA bringing it back.
+- [02:54.470] And I was saying,
+- [02:55.740] when I first looked at some of your facilities,
+- [02:58.090] they had grass growing on the runways, right,
+- [03:00.160] in between the cracks of the asphalt.
+- [03:03.790] But not anymore, it's really strong.
+- [03:06.830] And you know what they do?
+- [03:08.070] One of the things they do that's so important
+- [03:09.890] is for our military, military offense and defense.
+- [03:14.230] And a lot of people say, well, is it worth it?
+- [03:17.030] It's really worth it because what's happened militarily --
+- [03:19.650] you see what we're doing militarily.
+- [03:21.540] A lot of that comes from space,
+- [03:24.000] So, it's been pretty great. Good question. Yeah.
+- [03:26.530] The Press: Thank you, Mr. President.
+- [03:27.780] I have two questions for you.
+- [03:28.980] First, on topic of space, do you have an update
+- [03:30.970] on the UFO files and what might be --
+- [03:32.700] when we're going to be seeing those?
+- [03:34.010] The President: Well, I think we're going to be releasing
+- [03:36.020] as much as we can in the near future.
+- [03:39.110] For some reason, and I guess it's just a reason
+- [03:42.630] that's been in the minds of people for a long time,
+- [03:45.760] and that is such -- they want to find out about UFOs
+- [03:49.480] and anything having to do with UFO or related material.
+- [03:53.580] And we're going to be releasing a lot of things that we have.
+- [03:56.610] And I think some of it's going to be
+- [03:57.910] very interesting to people.
+- [03:59.460] I've interviewed people, my first term primarily,
+- [04:02.710] but I interviewed some pilots, very solid people,
+- [04:07.650] and they said they saw things that you wouldn't believe.
+- [04:09.930] So, you're going to be reading about it. Yes.
+- [04:12.400] The Press: Sir, you spoke to Vladimir Putin
+- [04:13.870] not too long ago. Did you talk to him about --
+- [04:15.570] The President: I did today.
+- [04:16.790] The Press: Did you talk to him about progress in the space area
+- [04:19.960] and what else did you talk to him about?
+- [04:21.590] The President: I didn't talk about space, Bill.
+- [04:22.910] I talked about Ukraine and I talked a little bit about Iran.
+- [04:29.320] I talked about a few different subjects,
+- [04:31.350] mostly about Ukraine.
+- [04:33.030] And we had a very good conversation.
+- [04:34.450] I think we're going to come up
+- [04:35.720] with a solution relatively quickly, I hope.
+- [04:38.290] The Press: What does he want?
+- [04:39.610] The President: I think he'd like to see a solution;
+- [04:41.410] I can tell you and that's good.
+- [04:43.510] The Press: What involvement does he want to have
+- [04:44.970] in the Iran situation?
+- [04:48.590] The President: He told me he'd like to be involved
+- [04:50.060] with the enrichment if he can help us get it.
+- [04:53.480] I said, I'd much rather have you be involved
+- [04:55.640] with ending the war with Ukraine.
+- [04:58.270] To me, that would be more important.
+- [04:59.840] Because we're going to have that --
+- [05:02.250] look, we're not going to let Iran have a nuclear weapon.
+- [05:06.580] And we've knocked out their Navy,
+- [05:09.310] we've knocked out their Air Force,
+- [05:10.910] we've knocked out their anti-aircraft
+- [05:14.230] everything apparatus, everything they have.
+- [05:16.440] Their radar, they have very little left.
+- [05:19.260] And they have some missiles, a small percentage,
+- [05:22.560] they have a small percentage of missile making facilities.
+- [05:26.160] We knocked out about 80 percent of them.
+- [05:28.210] The rest could come very quickly if we don't make a deal.
+- [05:31.500] They're not going to have a nuclear weapon.
+- [05:34.130] They know it and just about everybody else does,
+- [05:37.750] and so we talked about that a little bit.
+- [05:40.450] He doesn't want to see them have a nuclear weapon either.
+- [05:42.730] But I had a long talk with President Putin.
+- [05:45.170] I suggested a little bit of a cease fire,
+- [05:47.560] and I think he might do that.
+- [05:48.870] He might announce something having to do with that.
+- [05:50.810] Did he announce it yet?
+- [05:52.020] The Press: No, but I was wondering,
+- [05:53.380] I was just going to ask you about it.
+- [05:54.660] The President: No, I asked him about,
+- [05:56.400] even if it's a little cease fire,
+- [05:58.080] there's so many people being killed it's so ridiculous.
+- [06:01.670] The Press: Mr. President,
+- [06:02.920] in light of today's Supreme Court
+- [06:05.010] ruling on the Voting Rights Act,
+- [06:06.650] do you want Republican states in the South
+- [06:09.120] to look at redrawing Congressional districts
+- [06:10.850] before the midterms?
+- [06:12.110] The President: (Inaudible)
+- [06:13.310] tell me, when did the ruling come out?
+- [06:14.560] I've been with the astronauts; I've been with contractors
+- [06:18.780] because we're trying to get the ballroom
+- [06:20.480] built ahead of schedule. It's right on schedule --
+- [06:23.920] it's ahead of schedule now, I want to keep it that way.
+- [06:26.670] And I was also with -- commissioning some people,
+- [06:30.370] but one of -- David Warrington's son,
+- [06:33.420] I don't know, you know, David, everybody knows David.
+- [06:35.430] He's got this incredible son.
+- [06:36.840] So, he was just sworn in, so we had other things.
+- [06:40.020] Tell me about what happened.
+- [06:42.400] The Press: Well, some think that the ruling could create
+- [06:44.470] more Republican
+- [06:45.700] held Congressional seats in the South.
+- [06:47.020] The President: That's good.
+- [06:48.310] That's the kind of ruling I like.
+- [06:49.790] The Press: Would you want them to pursue that?
+- [06:51.040] The President: (Inaudible) that happen?
+- [06:52.370] The Press: Well, the Supreme Court ruled on it
+- [06:53.570] this morning.
+- [06:54.810] The President: Really? Is that right?
+- [06:56.050] Tell me about the ruling. This is CNN, fake news.
+- [06:59.050] The Press: On your call with President Putin today,
+- [07:00.680] do you think the war in Iran ends first
+- [07:02.630] or the war in Ukraine?
+- [07:04.760] The President: Well, we talked about --
+- [07:06.050] more about the war in Ukraine, but he would like to be of help.
+- [07:10.840] And I said before you help me, I want to end your war.
+- [07:13.910] So, we had a good talk. I've known him a long time.
+- [07:16.690] I think he was ready to make a deal a while ago.
+- [07:18.800] I think some people made it difficult for him
+- [07:21.670] to make a deal,
+- [07:23.150] but we talked more about Ukraine.
+- [07:24.990] The Press: But which war do you think ends first?
+- [07:29.750] The President: That's an interesting question.
+- [07:31.350] Coming from you, that's very interesting.
+- [07:33.090] Which war would end first?
+- [07:34.360] I don't know; maybe they're on a similar timetable.
+- [07:37.180] I think Ukraine, militarily they're defeated, OK?
+- [07:41.160] You wouldn't know that by reading the fake news.
+- [07:42.870] But militarily, look, their Navy --
+- [07:45.760] so, they had 159 ships.
+- [07:48.210] Every ship is right now underwater.
+- [07:50.250] Typically, that's pretty good. What do you think, Jared?
+- [07:52.270] Jared Isaacman: I think it's great.
+- [07:53.500] The President: I mean, it's going to be hard for them
+- [07:54.900] to make a naval comeback, OK?
+- [07:56.900] Now they have an Air Force, every one of their planes
+- [08:00.440] has been shot down or has been decimated.
+- [08:04.080] They have missiles, about 82 percent are gone.
+- [08:08.450] And they have drones, and most of them are gone.
+- [08:11.650] Most of the factories are mostly gone.
+- [08:14.060] And we have tremendous anti-drone equipment
+- [08:16.850] now between lasers and that new, very special machine gun
+- [08:22.060] that knocks them out of the air like flies.
+- [08:24.050] And we use bullets instead of million-dollar missiles
+- [08:28.100] to knock out a $30,000 drone.
+- [08:31.000] So, I would say Jared would tell me that,
+- [08:34.060] with everything you just heard,
+- [08:35.640] typically we're in pretty good shape.
+- [08:37.870] And in addition, their economy is crashing,
+- [08:42.950] as you know, their money, they call it their money,
+- [08:46.390] they don't have a name for it. Their money is valueless.
+- [08:50.500] They've got inflation that nobody's ever seen before.
+- [08:54.230] Other than that, I think they're doing quite well.
+- [08:56.130] If you read The New York Times,
+- [08:57.580] you'd say you'd say they're doing wonderfully
+- [08:59.920] because it's fake news.
+- [09:01.230] Or if you watch CNN, I mean, you cover it all the time.
+- [09:04.050] You think they're doing well.
+- [09:05.410] You think they're doing well where they have no Navy,
+- [09:08.440] no Air Force, no anti-aircraft apparatus --
+- [09:11.040] other than what they may have put there --
+- [09:13.810] they may have brought in some light stuff
+- [09:16.200] during the ceasefire, and we know exactly where it is,
+- [09:20.010] so it will be knocked out within the first 15 minutes.
+- [09:27.730] The Press: Thank you very much, Mr. President.
+- [09:29.220] I have to go back to the Supreme Court
+- [09:30.460] ruling on the Voting Rights Act.
+- [09:31.670] I know you said you haven't seen it.
+- [09:32.920] The President: When did it come out, just now?
+- [09:34.220] The Press: No, it came out this morning,
+- [09:35.890] but basically very much narrows the Voting Rights Act.
+- [09:38.260] The President: Would you consider it a win for --
+- [09:39.530] The Press: A win for Republicans?
+- [09:40.740] The President: I love it. This is very good.
+- [09:43.400] We can end this conversation. I want to read it. Wow.
+- [09:46.590] The Press: My question for you, Mr. President,
+- [09:48.090] is that some Republican governors have not responded
+- [09:51.550] in terms of what they're going to do,
+- [09:53.070] I guess early voting, for example, in Louisiana.
+- [09:55.010] The President: Republican governors?
+- [09:56.210] The Press: Republican governors.
+- [09:57.450] The President: What about it?
+- [09:58.670] The Press: Early voting begins Saturday there, for instance.
+- [10:01.960] Should they redraw the map in the next couple of weeks?
+- [10:04.140] The President: I would. I mean, it depends.
+- [10:05.350] I mean, some states don't need to redraw and some do.
+- [10:08.730] I mean, I know what the concept of the rule,
+- [10:11.110] I just haven't seen the result.
+- [10:14.090] Yeah, I would say generally I would think
+- [10:16.070] that they would want to do it.
+- [10:17.860] Some are great and some, you know,
+- [10:19.930] didn't make much difference.
+- [10:21.210] Yeah, I would say they wouldn't do that they have time to do it.
+- [10:23.980] Yeah, please?
+- [10:25.260] The Press: Thank you, Mr. President.
+- [10:26.530] I want to ask you, there's a lot of drama
+- [10:28.540] on the House floor today several bills were stalled
+- [10:31.770] and a rule took two hours to pass today
+- [10:33.440] and there's still some tension over the Farm Bill.
+- [10:35.380] Do you think that you need to get more involved
+- [10:37.100] legislatively on Capitol Hill?
+- [10:38.620] The President: Well, we want the Farm Bill.
+- [10:40.320] The Democrats don't. We want -- we want security, OK.
+- [10:46.660] We need security. We want security.
+- [10:48.730] The Democrats don't think we need security
+- [10:50.650] they actually do but they have --
+- [10:52.990] they suffer greatly from Trump derangement syndrome
+- [10:57.800] like at levels that nobody's ever seen.
+- [10:59.320] They're sick people.
+- [11:00.560] There's something wrong with them.
+- [11:02.100] They don't want to pay anybody for security.
+- [11:04.200] They don't like ICE.
+- [11:05.480] They don't like Border Patrol people.
+- [11:07.530] They don't like the people that keep us safe.
+- [11:09.660] You know, when they ran this,
+- [11:11.520] they let 25 million people into our country
+- [11:13.950] and many of those people were from prisons
+- [11:16.360] they were from mental institutions,
+- [11:18.310] drug dealers, murderers.
+- [11:19.870] 11,888 murderers, half of whom committed more than one --
+- [11:25.200] they -- more than one murder.
+- [11:27.360] They think that was fine.
+- [11:29.600] I happen to like law enforcement.
+- [11:32.460] They essentially want to defund law enforcement
+- [11:36.210] and I don't think the public's
+- [11:37.570] going to let them get away with it.
+- [11:39.360] You know, we got it all approved in the great,
+- [11:40.970] big, beautiful bill.
+- [11:42.470] And they want to renegotiate we don't like that. Yeah?
+- [11:44.620] The Press: Mr. President,
+- [11:46.760] the king's speech that he made to Congress,
+- [11:48.550] he spoke strongly, forcefully about the necessity
+- [11:52.280] for a strong NATO alliance.
+- [11:54.190] He also spoke about the necessity
+- [11:56.350] to continue to support Ukraine.
+- [11:58.280] Did his speech in any way change your thinking
+- [12:00.890] on either of those issues?
+- [12:02.210] The President: Well, you have to understand,
+- [12:03.450] my thinking is, I think, exactly correct
+- [12:06.250] but I was very disappointed with the fact
+- [12:09.410] that when we called on them to give us a little hand,
+- [12:12.480] we didn't need it.
+- [12:13.690] I actually did it just to see whether or not they'd be there.
+- [12:16.060] When we called on NATO to give us a hand with Ukraine
+- [12:18.900] and -- and in particular the most recent, you know, we --
+- [12:22.910] we asked them to do certain things on Ukraine
+- [12:26.470] and we also wanted them to do things with Iran
+- [12:29.870] and on Ukraine they're very much involved,
+- [12:32.900] but they didn't do things the way we would like to see.
+- [12:35.330] You know, it's been going on for a long time
+- [12:37.500] and on Iran they weren't there,
+- [12:41.550] as you know you know it better than anybody they weren't there.
+- [12:45.320] Uh, the king is fantastic. We spent a lot of time together.
+- [12:48.590] We had a lot of talk.
+- [12:49.830] We talked about this also and he loves his country,
+- [12:54.910] and he's a great king, and he's a great friend of mine
+- [12:58.530] and I think if he were doing that,
+- [13:00.230] if that were up to him,
+- [13:01.580] he would have probably helped us with Iran.
+- [13:04.820] He would have done -- he would have followed the suggestions
+- [13:07.430] we made with respect to Ukraine
+- [13:09.660] because, you know, we have some disagreements on Ukraine
+- [13:12.770] and not having to do with NATO so much as European countries.
+- [13:17.670] But no, he -- he, you know, he's coming back tomorrow.
+- [13:23.150] We had an incredible evening last night,
+- [13:25.020] and he's leaving tomorrow he's going to come back
+- [13:27.930] and see us before he leaves and, you know,
+- [13:30.320] but I think he's a phenomenal representative for his country
+- [13:34.350] I think the people in the United Kingdom
+- [13:36.670] should be proud I love this speech yesterday.
+- [13:39.130] I watched it. I loved the speech last night.
+- [13:41.990] Um, I don't know about my speech.
+- [13:44.280] I thought my speech was OK too, but I thought he was --
+- [13:48.160] I think he's an unbelievable king
+- [13:51.150] and by the way, an unbelievable queen.
+- [13:54.320] They are a great couple.
+- [13:55.620] The Press: We were talking about how busy you were this morning.
+- [13:59.160] James Comey was in court. He self-surrendered
+- [14:01.220] and he's now in charge a second time.
+- [14:03.120] This time over a social media post with seashells
+- [14:05.880] that said 86 47.
+- [14:07.790] Do you really think that he was endangering your life
+- [14:09.880] or threatening your life with that?
+- [14:11.160] The President: Well, if anybody knows anything about crime,
+- [14:15.170] they know 86.
+- [14:16.770] You know what 86? It's a mob term for kill him.
+- [14:20.220] You know, you ever see the movies?
+- [14:22.160] 86 the mobster says to one of his wonderful associates.
+- [14:26.840] 86 him. That means kill him.
+- [14:29.620] It's -- I think of it as a mob term.
+- [14:32.340] People think of it as something having to do with disappearing,
+- [14:35.780] but the mob uses that term to say
+- [14:38.520] when they want to kill somebody, they say, 86 the son of a gun.
+- [14:44.180] I'm trying to keep the language nice and clear
+- [14:46.810] they don't use that term son of a gun they use another term,
+- [14:50.080] but that's a mob term for killing. Yeah?
+- [14:52.140] The Press: But do you really think your life is in danger?
+- [14:53.940] The President: Probably, I don't know.
+- [14:55.140] You know, based on -- based on what I'm seeing out there, yeah.
+- [14:58.060] They the people like Comey have created tremendous danger,
+- [15:03.320] I think, for politicians and others.
+- [15:06.510] You know, Comey is a dirty cop. He's a very dirty cop.
+- [15:10.710] He cheated on the elections.
+- [15:12.500] He tried to help Hillary Clinton as you know.
+- [15:15.390] He dismissed a lot of things
+- [15:16.770] that he should have proceeded with.
+- [15:19.050] I wasn't involved, but he should have proceeded with.
+- [15:21.830] Now, he's a dirty cop he's a crooked man. Yeah?
+- [15:23.740] The Press: Mr. President,
+- [15:25.040] you just described a disagreement
+- [15:26.550] between the US and Keir Starmer on support for Iran.
+- [15:29.620] Did your visit with the king smooth that over
+- [15:31.880] (Inaudible) any more?
+- [15:33.160] The President: My visit with the king really was just --
+- [15:35.850] it was extraordinary.
+- [15:37.140] I mean, he's an extraordinary man,
+- [15:38.930] he's an extraordinary person
+- [15:41.520] and it helps that from the standpoint that,
+- [15:45.260] you know, when you like the king of a country so much,
+- [15:47.450] it probably helps your relationship
+- [15:51.440] with the prime minister.
+- [15:52.930] But, you know, in that case, the prime minister,
+- [15:55.260] I said, do you want to send a little help?
+- [15:57.860] He said, no, we'll send it after you win the war.
+- [15:59.990] I said, that's not good -- that's not good.
+- [16:02.240] What do you think of that, Jared?
+- [16:03.560] Sending help after we win the war?
+- [16:05.270] I don't know, something -- something that bothers me.
+- [16:08.160] I don't want to get you guys involved,
+- [16:09.600] but I can imagine what you're thinking.
+- [16:13.230] The Press: The United Arab Emirates, the UAE,
+- [16:15.000] they pulled out of OPEC. What do you think about that?
+- [16:16.960] The President: Yeah. It's great.
+- [16:18.170] I mean, I think it's great I know him very well, Mohammed,
+- [16:22.170] and very smart and he probably maybe wants to go his own way.
+- [16:27.960] That's a good thing.
+- [16:29.230] I think ultimately it's a good thing
+- [16:31.230] for getting the price of gas down,
+- [16:34.560] getting oil down, getting everything down
+- [16:37.080] they have it all he's a great leader actually.
+- [16:40.210] So no, I'm OK they're having some problems in OPEC.
+- [16:45.170] The Press: Mr. Kevin Warsh passed a hurdle today
+- [16:49.320] the Senate Banking Committee
+- [16:51.460] confirmed his nomination to the Senate floor.
+- [16:54.480] He'll be on the Fed in mid-May.
+- [16:57.080] Is it your expectation that he can persuade
+- [16:59.340] the other Fed governors to lower interest rates
+- [17:01.750] because he (inaudible).
+- [17:03.030] The President: I mean, they should
+- [17:04.470] because it's a good time to lower them.
+- [17:06.290] We're the most prime country anywhere in the world.
+- [17:09.230] We're right now having investments made in our country
+- [17:12.850] at a level that nobody's ever seen.
+- [17:14.320] No other country has ever seen it.
+- [17:16.230] Tens of billions of dollars are being invested factories,
+- [17:19.840] auto plants, AI.
+- [17:21.330] I mean, not just AI. Because AI is new.
+- [17:24.120] We're leading China by a lot in AI, as you know.
+- [17:27.480] I'm letting them build their own electric plants.
+- [17:29.380] They're building them otherwise you could never do it --
+- [17:31.080] it was a concept that I came up with.
+- [17:32.710] I'm very proud of it.
+- [17:34.250] And by the way, they're building electric plants
+- [17:36.690] that people in the utility industry have never seen before.
+- [17:39.970] They're saying, man, that's incredible.
+- [17:42.730] So they're building these massive buildings
+- [17:44.520] that cost billions of dollars,
+- [17:45.970] and they're building their own electric plants.
+- [17:48.250] They're not taking from a source or the old grid,
+- [17:51.380] you know, an old grid that wouldn't be able to do it.
+- [17:54.240] No, we're leading with everything
+- [17:55.900] but in the history of our beautiful world,
+- [17:59.450] there's never been a country that has so much money
+- [18:01.710] being invested in it as us
+- [18:04.180] and tremendous number of auto plants by the way.
+- [18:06.680] The auto plants are coming out of Canada, Mexico,
+- [18:10.070] Japan, South Korea, Germany,
+- [18:12.560] they're all coming to the United States.
+- [18:14.450] And the reason is I have a very smart tariff policy
+- [18:17.680] we got we were taken advantage of for years
+- [18:20.160] we were being ripped off by other countries for years
+- [18:23.040] and those days are over. Yeah?
+- [18:24.540] The Press: Mr. President, regarding Iran.
+- [18:26.290] How long are you prepared to maintain the blockade?
+- [18:28.930] Could that go several more months?
+- [18:30.740] The President: Well, the blockade is genius, OK?
+- [18:33.880] The blockade has been 100 percent foolproof.
+- [18:36.310] It shows how good our Navy is, I can tell you that.
+- [18:38.590] Nobody's going to play games.
+- [18:40.640] We have the greatest military in the world,
+- [18:42.470] and I built much of it during my first term,
+- [18:45.090] and we've been building it since
+- [18:46.550] and the greatest anywhere in the world, nobody even close.
+- [18:50.040] And you see that every -- whether it's Venezuela, which --
+- [18:55.240] and they have a good military in Venezuela,
+- [18:57.420] but it was over in one day.
+- [18:58.740] It was actually over in about 48 minutes.
+- [19:01.750] Uh, Iran, the same thing.
+- [19:03.750] I mean, militarily, we've wiped them out.
+- [19:05.480] They have no military left. Their -- their -- it's all --
+- [19:08.460] the Navy's at the bottom of the sea.
+- [19:10.170] The Air Force is never going to fly again.
+- [19:13.940] Uh, we've -- we've got an amazing military.
+- [19:16.640] Now we -- now they have to cry uncle.
+- [19:19.300] That's all they have to do. Just say we give up --
+- [19:23.060] we give up but their economy is really in trouble
+- [19:27.130] so it's a -- it's a -- it's a dead economy.
+- [19:29.470] The Press: So the Operation Fury and the blockade
+- [19:33.010] get Iran to nuclear talks fast enough
+- [19:35.380] or do you think another wave of strikes will be necessary?
+- [19:37.380] The President: I don't know it depends.
+- [19:38.650] We have talks we're having talks with them now
+- [19:40.540] and we're not flying anymore with 18-hour flights
+- [19:43.620] every time we want to see a piece of paper.
+- [19:45.380] We're doing it telephonically and it's very nice.
+- [19:49.440] I make a call or I have my people make a call
+- [19:53.460] and you know the answer. I always like face-to-face.
+- [19:57.260] You know, I consider it better.
+- [19:59.130] But when you have to fly 18 hours every time
+- [20:01.460] you want to have a meeting
+- [20:02.930] and you know what the meeting is all about.
+- [20:05.520] And you know, they're going to give you a piece of paper
+- [20:08.270] that you don't like before you even leave.
+- [20:10.120] It's ridiculous. They've come a long way.
+- [20:13.540] The question is whether or not they're going to go far enough.
+- [20:15.860] So at this moment, they will never be a deal
+- [20:20.040] unless they agree that there will be no nuclear weapons.
+- [20:25.170] Yeah, go ahead, please.
+- [20:26.410] The Press: Are you considering
+- [20:27.860] relocating NASA's headquarters out of DC?
+- [20:30.180] States like Florida, Texas and Ohio have expressed interest.
+- [20:34.310] The President: You're going to have to say it differently.
+- [20:36.090] The Press: Sorry. Are you considering
+- [20:37.870] relocating NASA's headquarters out of DC once the lease is up?
+- [20:42.000] States like Texas, Ohio and Florida --
+- [20:44.200] The President: Well, the best man to tell you
+- [20:45.410] that is the man standing right over here.
+- [20:47.200] You heard that question with those beautiful ears of yours?
+- [20:50.770] He's got great hearing,
+- [20:51.980] you know, he's got super hearing.
+- [20:54.030] Jared Isaacman: Trick of the trade, sir.
+- [20:56.280] The President: What's the answer to that?
+- [20:57.560] Jared Isaacman: I think the answer to that
+- [20:58.770] is we have a number --
+- [21:00.140] we have 10 amazing centers around the country
+- [21:01.830] that all kinds of bubble up to contribute
+- [21:03.420] to the mission we're able to undertake, like Artemis II.
+- [21:05.630] I think in terms of the headquarters,
+- [21:06.900] we have a lot of people very interested in our mission.
+- [21:09.740] So, being here in DC gives us the opportunity
+- [21:11.750] to kind of interact from all our stakeholders,
+- [21:13.270] make sure we make the right decisions for the nation.
+- [21:15.660] The President: Yeah, DC is an advantage, I guess, for you.
+- [21:18.030] He's got to go around, he's got to see some Senators,
+- [21:20.510] make sure they keep going, right?
+- [21:21.870] Jared Isaacman: Yes, Mr. President.
+- [21:23.070] The President: Probably staying around is not so bad.
+- [21:25.050] And importantly, Washington,
+- [21:28.010] DC is now one of the safest cities in the country.
+- [21:31.480] When I came here a little more than a year ago,
+- [21:35.070] it was a very unsafe city.
+- [21:36.620] And now, maybe even more importantly than that,
+- [21:39.380] we have the hottest country anywhere in the world.
+- [21:41.310] And you helped make it hot.
+- [21:43.410] You helped make it hot.
+- [21:44.940] When a year and a half ago, and I say it a lot,
+- [21:48.060] the King of Saudi Arabia, but others also.
+- [21:49.990] The King of Saudi Arabia said, Mr. President,
+- [21:54.130] a year and a half ago, a year ago,
+- [21:56.800] we thought you had a dead country.
+- [21:58.330] We thought the United States was a dead country,
+- [22:00.880] and now you have the hottest country anywhere in the world,
+- [22:04.790] and we do.
+- [22:06.020] And believe it or not, I mean, when everybody in the world
+- [22:09.510] was watching that incredible performance by NASA,
+- [22:12.170] these incredible people behind me --
+- [22:14.500] where they get the bravery, I have no idea.
+- [22:17.460] But you're a big part of it, you really are.
+- [22:19.550] We have the hottest country in the world.
+- [22:20.950] Thank you very much, everybody.

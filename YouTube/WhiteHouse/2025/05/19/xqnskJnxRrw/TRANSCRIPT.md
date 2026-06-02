@@ -1,0 +1,743 @@
+<!-- source: https://www.youtube.com/watch?v=xqnskJnxRrw -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: xqnskJnxRrw -->
+<!-- date_published: 2025-05-19T21:30:18+00:00 -->
+<!-- date_accessed: 2026-06-02T02:49:49.660782+00:00 -->
+
+# Transcript: President Trump Participates in a Law Enforcement Event, May 19, 2025
+
+- [00:00.600] The President: Thank you very much everybody.
+- [00:02.460] It's a real honor to welcome all of you to
+- [00:05.349] the White House, the famous Oval Office.
+- [00:08.840] And we award the first ever Medals of
+- [00:11.736] Sacrifice to three heroic law enforcement
+- [00:14.985] officers from Palm Beach County, Florida.
+- [00:19.060] I went to the service.
+- [00:22.360] It was crazy.
+- [00:23.200] It was just horrible.
+- [00:25.000] Earlier today, Congressman Brian Mast,
+- [00:27.290] who is right here, introduced a bill to
+- [00:29.641] ensure this new medal will be awarded
+- [00:31.724] to any law enforcement officer or
+- [00:33.572] first responder who gives his or
+- [00:35.632] her life in the line of duty.
+- [00:38.660] I also want to recognize Laura and Eric
+- [00:41.819] Trump for their work to make this medal
+- [00:45.120] a reality. Thank you, Laura and thank you, Eric.
+- [00:47.520] Appreciate it very much.
+- [00:49.720] Thanks as well to Attorney General
+- [00:51.181] Pam Bondi who's with us.
+- [00:53.540] Pam, thank you very much.
+- [00:54.560] Appreciate it.
+- [00:55.580] So busy.
+- [00:56.830] She's so busy, but she wouldn't miss it.
+- [00:59.040] Secret service director.
+- [00:59.801] Sean Curran, Sean, wherever you may be.
+- [01:03.320] Hi, Sean.
+- [01:05.180] Congressman Byron Donalds, state
+- [01:07.933] representative, Meg Weinberger,
+- [01:11.360] and Dan Newland.
+- [01:12.360] Thank you. Thank you, Dan.
+- [01:13.100] Thank you, everybody.
+- [01:14.380] Thank you, Byron.
+- [01:15.160] Thank you, everyone.
+- [01:16.140] Really great that you're here.
+- [01:18.360] I also want to express our
+- [01:20.431] gratitude to Major Paul Vrchota.
+- [01:23.390] Where is Paul?
+- [01:24.800] Thank you, Paul.
+- [01:27.080] Captain Ryan Mugridge.
+- [01:29.570] Thank you, Captain.
+- [01:31.420] Lieutenant Shandon Hood.
+- [01:34.020] Thank you, Shandon.
+- [01:35.220] Sergeant Scott Yoder.
+- [01:37.860] Thank you very much.
+- [01:39.240] Deputy Sheriff Christopher Farron.
+- [01:43.000] Thank you very much, Christopher.
+- [01:45.180] And Deputy Sheriff Chris Cameron.
+- [01:48.340] Thank you very much.
+- [01:49.540] Thank you.
+- [01:50.780] And all of the Palm Beach Sheriff's Office.
+- [01:53.680] We have many people here
+- [01:55.192] representing that incredible office.
+- [01:57.620] I know it very well.
+- [01:58.581] Very special
+- [01:59.420] thanks, as well, to Alexander Arnault
+- [02:02.892] who's a tremendous person with his father who --
+- [02:08.961] they own Tiffany.
+- [02:10.540] And they really devoted a tremendous
+- [02:13.102] time and effort to helping us
+- [02:15.127] design this beautiful medal.
+- [02:18.345] And thank you very much, Alex.
+- [02:19.501] And I appreciate that you came.
+- [02:20.895] Came all the way from France.
+- [02:23.080] And the incredible team at Tiffany
+- [02:24.704] and Company in Tiffany is doing great.
+- [02:27.540] He's a -- he's a fantastic leader.
+- [02:30.040] You know all about the
+- [02:32.040] fantastic, the great Arnaultfamily.
+- [02:36.340] And the fact that you came for this
+- [02:38.164] is a very meaningful, actually.
+- [02:40.010] It's really incredible.
+- [02:42.180] But for crafting this beautiful medal,
+- [02:43.729] and I know he looked at it and he worked on it.
+- [02:45.760] He had his best people working
+- [02:47.511] on it and people are loving it.
+- [02:49.321] And this will go on for a long time.
+- [02:51.260] You'll be making that medal for a long time.
+- [02:53.620] Unfortunately, in one way it's very sad.
+- [02:56.981] but we properly respect the
+- [02:59.113] ones that have lost their lives.
+- [03:01.740] Today, we also remember three remarkable
+- [03:04.697] heroes who will become the
+- [03:06.610] medals first ever recipients.
+- [03:08.850] It's a big honor.
+- [03:11.600] Corporal Louise Piers Jr. Deputy Sheriff
+- [03:15.551] Ralph Bush, Waller Jr. and
+- [03:18.004] Deputy Sheriff Ignacio Dan Diaz.
+- [03:22.300] And thank you very much.
+- [03:23.320] You represented by family members who are --
+- [03:27.410] I was there with them.
+- [03:28.780] They were -- that was devastation.
+- [03:30.240] They were devastated.
+- [03:32.020] We're profoundly grateful to
+- [03:34.202] be joined by their loved ones.
+- [03:37.040] Corporal Paez former wife, Doris.
+- [03:39.940] Thank you, Doris, for being with us.
+- [03:41.801] Thank you very much.
+- [03:42.840] Thank you.
+- [03:44.980] And his son, Cameron.
+- [03:46.740] Good looking son, too.
+- [03:49.320] Deputy Waller's wife, Denise.
+- [03:51.940] Thank you, Denise very much.
+- [03:54.120] And Deputy Diaz's daughter, Alexandria.
+- [03:57.020] Thank you.
+- [03:58.040] Thank you very much.
+- [03:59.820] I want to thank you all.
+- [04:01.100] And the three officers we
+- [04:02.425] recognize today were close friends.
+- [04:04.320] They were really close friends and colleagues.
+- [04:06.480] And together they dedicated their lives to
+- [04:08.900] protecting the people of Palm
+- [04:10.580] Beach County and well beyond.
+- [04:13.060] And they were beloved by everyone and
+- [04:15.475] respected by all, really, really top of the line people.
+- [04:19.140] Countless times when I was
+- [04:20.811] in Florida, they proudly saved.
+- [04:23.360] And they saved a lot of lives.
+- [04:25.181] They were going around saving a lot of lives.
+- [04:27.720] Their reputation was incredible.
+- [04:29.400] They served in motorcades for
+- [04:31.839] presidents called presidential motorcades.
+- [04:35.180] A very dangerous job, actually.
+- [04:36.741] And I was deeply honored to attend
+- [04:38.923] their memorial service last year.
+- [04:41.440] In a horrific accident in November, the
+- [04:43.831] three officers were working to restart
+- [04:46.161] one of their motorcycles on the shoulder
+- [04:49.461] of a road when they were struck
+- [04:52.006] by a SUV struck dead center.
+- [04:55.340] And all three perished.
+- [04:56.201] from their injuries.
+- [04:59.580] Essentially, they perished immediately.
+- [05:01.660] This was a terrible tragedy.
+- [05:04.490] It shook the entire Palm Beach community,
+- [05:06.906] like very, very few events I've ever seen.
+- [05:10.100] All of Florida mourned their loss.
+- [05:11.680] And today our entire nation joins in
+- [05:13.840] honoring these three incredible patriots taken from us.
+- [05:18.140] Much too soon, much, much too soon.
+- [05:21.160] To Doris, Cameron, Denise, Alexandria,
+- [05:23.582] and to all of those who love these brave men,
+- [05:26.700] we are deeply sorry for your loss.
+- [05:28.840] And eternally grateful for their sacrifice.
+- [05:31.425] Their great, great sacrifice.
+- [05:34.310] Just respected by everybody.
+- [05:36.660] We'll never forget their legacy.
+- [05:37.961] And we will never forget the debt
+- [05:40.285] we owe all of these great law enforcement
+- [05:42.843] heroes who have given their lives to keep
+- [05:45.401] our community safe and make America strong again.
+- [05:47.960] We have so many unbelievable
+- [05:49.715] people in the police department.
+- [05:52.240] And other departments.
+- [05:52.940] First responders, firemen,
+- [05:55.245] a lot of brave, incredible people.
+- [05:58.300] And I'd now like to ask my son,
+- [06:00.790] Eric Trump, to say a few words,
+- [06:03.420] followed by Congressman Brian Mast.
+- [06:05.920] And Alexander Arnoh is going to be giving out the medals.
+- [06:09.440] And then I'll present the Medals of Sacrifice.
+- [06:12.380] Thank you very much, everybody.
+- [06:13.640] Thank you for being here, too.
+- [06:14.860] Thank you.
+- [06:19.590] Eric Trump: Mr. President, thank you very much.
+- [06:22.320] My father and I attended that funeral that day.
+- [06:24.921] and I can't tell you how moving that experience was.
+- [06:28.000] And one simple question was asked,
+- [06:30.626] why is there no medal, medal of valor,
+- [06:33.860] medal of sacrifice that commemorates law
+- [06:36.017] enforcement officers, first responders,
+- [06:38.660] who had fallen in line of duty.
+- [06:40.640] And Congressman Mast, he was there with me that day.
+- [06:43.340] He was with my father.
+- [06:44.120] And we said, we're going to take care of this problem.
+- [06:46.240] We're getting involved.
+- [06:47.365] And the first call that was made was to
+- [06:49.147] the great Arno family who owns Tiffany's.
+- [06:51.170] And they said, without hesitation,
+- [06:52.885] that they'd be honored to design something
+- [06:55.050] absolutely beautiful.
+- [06:56.620] That's a tribute to these incredible
+- [06:58.485] officers, these incredible EMS responders.
+- [07:01.480] And here we are, roughly six months later,
+- [07:03.475] with something that's truly beautiful.
+- [07:05.980] I want to thank the Tiffany's family.
+- [07:08.475] The Arno family
+- [07:09.720] for all the work they put into it, in
+- [07:11.170] their entire team, I can tell you
+- [07:12.418] this has been a nonstop effort.
+- [07:14.940] I want to thank the Congressman,
+- [07:16.195] without the Congressman and his
+- [07:17.386] staff, we would not be here today.
+- [07:19.730] I want to thank the President
+- [07:20.891] for allowing us to do this.
+- [07:22.080] This is such an important mission.
+- [07:23.710] This medal is going to be given for
+- [07:25.685] hundreds and hundreds of years to come.
+- [07:28.240] And last but not least, I want to send on
+- [07:29.959] behalf of this entire nation, on behalf of
+- [07:31.795] our entire family, the incredible families
+- [07:34.706] of the Palm Beach Sheriff's office
+- [07:37.116] and your incredible families.
+- [07:39.880] They made the ultimate sacrifice and know
+- [07:42.320] that we all appreciate their dedication.
+- [07:45.100] Many of us knew them, have met them.
+- [07:47.550] And we love them very much.
+- [07:48.965] And I'm sure they're missed.
+- [07:50.580] But today, hopefully, this is a great tribute to them.
+- [07:53.580] And I know, because of our wonderful
+- [07:55.222] President that this medal will be
+- [07:56.738] given now for many years to come.
+- [07:58.380] Thank you very much.
+- [08:03.360] Congressman Mast: I would just start by thanking all
+- [08:04.895] of our law enforcement officers.
+- [08:06.900] The job is always dangerous.
+- [08:09.040] And you do it still every single day.
+- [08:12.090] And I would thank the families,
+- [08:14.835] because the job is a reminder of is often deadly.
+- [08:20.380] And I would thank you, Mr. President,
+- [08:22.120] because for the first time in our nation's
+- [08:25.890] history, you're willing to say to all
+- [08:28.086] of our first responders, all of our law
+- [08:30.425] enforcement, all of our firefighters,
+- [08:32.798] we're going to recognize that sacrifice
+- [08:35.500] from the office of the presidency
+- [08:37.284] for each and every one of them.
+- [08:39.650] And that's never taken place before that recognition.
+- [08:42.920] That it's a job that's always
+- [08:44.795] dangerous and often deadly.
+- [08:46.840] And there's a debt that can never be repaid.
+- [08:50.440] But you're willing to recognize that debt.
+- [08:52.440] So thank you, Mr. President, for recognizing the debt.
+- [08:59.310] Alexander Arnault: Mr. President, Congressman, thank you
+- [09:01.958] very much for involving Tiffany in this process.
+- [09:05.890] We're very honored for having made these medals.
+- [09:09.310] Tiffany is a jeweler as everyone knows
+- [09:11.333] it, but also a maker of American heritage.
+- [09:14.390] We were making the medal of honor
+- [09:16.011] in the 19th and early 20th century.
+- [09:18.590] And it's only natural that we followed
+- [09:21.194] with this heritage just as we work on
+- [09:23.731] other very important American heirlumes.
+- [09:26.590] This medal was made in Providence,
+- [09:28.760] Rhode Island, in our largest factory in the U.S.,
+- [09:31.776] out of silver, plated in
+- [09:33.987] 24-carat gold, just like the ceiling of
+- [09:37.120] this office, and represents the
+- [09:39.490] coat of arms of the United States.
+- [09:42.430] Mr. President, thank you very much.
+- [09:50.160] Male Speaker: First to be brief, to the families,
+- [09:52.800] we are so sorry for your sacrifice.
+- [09:56.860] But your officer from your family
+- [09:58.597] represented not just Palm Beach County,
+- [10:00.750] but the United States with honor.
+- [10:02.430] Mr. President, thank you for allowing
+- [10:04.037] us to go forward to my colleague, Congressman Mast.
+- [10:06.430] Thank you for your leadership.
+- [10:07.870] We will always honor first responders
+- [10:09.500] in the United States of America.
+- [10:33.610] The President: Can we ask the
+- [10:35.347] families to step forward, please?
+- [10:37.770] (inaudible) would you like to help us?
+- [11:58.520] Female Speaker: I would like to thank you very much for
+- [12:01.711] honoring my husband and his brothers
+- [12:04.831] and for what you do for the country.
+- [12:09.140] Making this so very special for them and
+- [12:11.320] for all the people to come; it's a club
+- [12:13.750] you never want to be in.
+- [12:15.320] but you honor them and it just means the world.
+- [12:20.140] Thank you.
+- [12:20.861] Thank you very much.
+- [12:22.681] The President: Thank you very much.
+- [12:32.681] (inaudible converstation)
+- [12:41.140] Male Speaker: I viewed my dad as Superman,
+- [12:45.036] someone my whole life you look up to.
+- [12:49.480] He's an amazing guy and it's horrible that this happened.
+- [12:55.040] To all three families.
+- [12:59.040] But I'm glad that something was done about
+- [13:01.499] it and we got represented and
+- [13:03.243] everyone in the future will be.
+- [13:05.360] So thank you.
+- [13:06.001] The President: Thank you very much.
+- [13:07.961] He'd be very proud of you.
+- [13:49.961] (inaudible)
+- [13:59.170] Would you like to say anything
+- [14:00.980] to us on behalf of (inaudible)?
+- [14:03.510] (inaudible) tough thing to do.
+- [14:11.530] Male Speaker: Mr. President, on behalf of Sheriff Rick
+- [14:13.203] Bradshaw and every member of the Palm
+- [14:14.751] Beach County Sheriff's Office we can't
+- [14:16.409] thank you enough for taking the lead on
+- [14:18.111] this and recognizing the extreme
+- [14:21.051] sacrifice of our three brothers.
+- [14:25.060] Words really can't express
+- [14:26.490] how thankful we are.
+- [14:27.650] The President: Thank you very much.
+- [14:29.890] And we have a fourth and we're
+- [14:31.551] going to give this to you.
+- [14:34.110] Hopefully it's maybe never going to be given out.
+- [14:37.110] So we'll give it to Sheriff Bradshaw
+- [14:38.809] who's an incredible sheriff.
+- [14:40.710] And you've done an amazing job and we'll have it
+- [14:44.310] if should something happen.
+- [14:46.410] And that's right here.
+- [14:48.630] And I hope it never has to be given out.
+- [14:54.030] Thank you very much.
+- [14:56.550] Thank you very much.
+- [14:58.810] Well, thank you.
+- [14:59.570] Do you have any questions for what you just saw?
+- [15:03.850] So important.
+- [15:04.750] I mean, people have talked about it for years.
+- [15:06.410] I want to thank Brian Mast for what he's done.
+- [15:09.450] Congressman.
+- [15:10.010] He's been unbelievable.
+- [15:12.830] He's a great representative.
+- [15:15.970] And he worked --
+- [15:16.971] he worked hard.
+- [15:17.870] He wanted to do it right.
+- [15:19.351] And we wanted to go -- somehow
+- [15:21.850] we could get him them pretty easily in one way.
+- [15:24.830] But we wouldn't get him done by Tiffany.
+- [15:27.470] And the fact that they Arnault family
+- [15:29.482] stepped up was absolutely incredible.
+- [15:32.780] It means more when you get a name like that.
+- [15:35.380] I think it means something extra.
+- [15:38.230] But these were incredible people and
+- [15:39.991] they're looking down on you right now.
+- [15:41.930] And they're very, very proud.
+- [15:43.070] Very, very proud of all of you.
+- [15:46.110] It's too bad.
+- [15:48.100] We had to be doing this.
+- [15:50.540] But I was there with you that day.
+- [15:51.891] That was a rough day.
+- [15:53.920] Thank you very much.
+- [15:55.970] Do you have any questions?
+- [15:58.290] Yeah.
+- [15:59.520] The Press: Do you have plans to give this award
+- [16:02.232] to any other family's posthumously?
+- [16:05.030] (inaudible) same poistion having made this sacrifice (inaudible)
+- [16:10.480] The President: Having to do from a previous, we're
+- [16:12.625] looking at the possibility of that.
+- [16:16.210] You had a lot of people.
+- [16:17.091] A lot of people die in the line
+- [16:18.940] of duty when you think of it.
+- [16:21.230] And we figured it was time to start.
+- [16:22.930] We haven't had the situation arise.
+- [16:25.390] This was a terrible situation.
+- [16:26.590] We haven't had it arise yet.
+- [16:28.850] But we're looking at going back a little
+- [16:31.299] bit and see what we can do about that, strongly.
+- [16:37.790] The Press: On your call with President Putin today,
+- [16:39.933] you've mentioned that the Pope would like
+- [16:42.131] to take a role potentially in mediating these talks.
+- [16:45.130] Does that mean that the U.S.
+- [16:46.170] is taking a step back from --
+- [16:48.711] No, I think it would be great to have it at the Vatican.
+- [16:51.070] Maybe it would have some extra significance.
+- [16:54.390] And I saw that it was discussed yesterday.
+- [16:56.590] So I thought --
+- [16:57.585] And people told me that they'd be honored to do it.
+- [16:59.920] I would imagine they would be.
+- [17:01.920] And so, no, I think it would be maybe helpful.
+- [17:05.370] This tremendous bitterness, anger.
+- [17:08.830] And I think maybe that could help some of that anger.
+- [17:11.390] So having it at the Vatican would
+- [17:13.959] be -- in Rome would be a very --
+- [17:16.550] I think it would be a great idea.
+- [17:17.770] Thank you.
+- [17:19.585] The Press: Mr. President, as you know, as you know,
+- [17:22.788] two and a half months ago, Ukraine,
+- [17:25.690] President Zelensky agreed to that
+- [17:27.695] 30-day cease-fire that's been
+- [17:29.213] on the table all of that time.
+- [17:31.850] What was the extent of your conversation
+- [17:34.179] with President Putin today about having
+- [17:36.451] him agree to that same 30-day
+- [17:38.382] cease-fire proposal that you, Mr.
+- [17:40.375] President, put on the table?
+- [17:42.330] The President: Well, what we've done, and very strongly,
+- [17:44.289] is we said, let's get this thing on.
+- [17:46.011] You know, I had many of the leaders of
+- [17:48.823] European nations on the line
+- [17:51.003] with me right after the call.
+- [17:53.590] And we have to get that thing solved.
+- [17:56.110] Five thousand young people
+- [17:58.228] every single week on average.
+- [18:01.110] And I've seen satellite pictures.
+- [18:03.050] You don't want to see these pictures.
+- [18:05.605] We'll have to see what happens.
+- [18:07.390] This was not my war.
+- [18:08.490] This is not a war that would have
+- [18:09.792] happened if I were President.
+- [18:10.960] This is not my war.
+- [18:13.580] I'm just here to try and help.
+- [18:16.070] We've spent hundreds of
+- [18:17.935] billions of dollars on this war.
+- [18:20.830] And yet that's not, frankly, we made much
+- [18:24.643] more than that just in four days in the Middle East.
+- [18:30.070] It's a lot of money, but it's -- we do much.
+- [18:32.390] This is about thousands of
+- [18:34.242] people dying every single week.
+- [18:36.451] Five thousand, six thousand
+- [18:38.378] people dying every single week.
+- [18:41.290] And just like you have the relatives
+- [18:43.792] here, wives, and children, and everything,
+- [18:46.711] you have, you know, these soldiers, they
+- [18:49.443] say goodbye in Ukraine and in Russia.
+- [18:52.710] And then their parents never see them
+- [18:54.524] again, except maybe in pictures of horrible scenes.
+- [18:56.930] Because I've seen some scenes.
+- [18:58.260] I've never seen anything like it.
+- [18:59.790] So we're going to see if we can get it taken care.
+- [19:02.450] The Press: So our thanks to the members of law
+- [19:03.898] enforcement who are here, and then
+- [19:05.412] our condolences to the families.
+- [19:06.970] We're very sorry for your loss.
+- [19:09.130] Mr. President, on Ukraine and on your call
+- [19:10.994] today that you have with President Putin,
+- [19:12.771] that last week that you thought
+- [19:14.011] nothing was going to happen.
+- [19:15.190] No advances would be made until
+- [19:16.511] you and Putin got together.
+- [19:18.160] Do you still feel that way?
+- [19:19.130] The President: I think something's going to happen.
+- [19:22.530] It's a very --
+- [19:24.495] Big egos involved.
+- [19:25.731] I'll tell you.
+- [19:27.070] Big egos involved.
+- [19:28.170] But I think something's going to happen.
+- [19:30.130] And if it doesn't, I'd just back away
+- [19:31.716] and they're going to have to keep going.
+- [19:34.090] Again, this was a European situation.
+- [19:38.110] It should have remained a European situation.
+- [19:40.370] It should have remained.
+- [19:41.510] But we have, because the past
+- [19:43.416] administration felt very strongly
+- [19:45.676] that we should be involved.
+- [19:47.680] And we got involved much more than Europe
+- [19:49.922] did in terms of the money and
+- [19:51.606] all of the things that we gave.
+- [19:52.771] We gave massive amounts, I think,
+- [19:54.777] record-setting amounts given to a foreign.
+- [19:57.470] There's never been anything like this.
+- [19:59.430] Both weaponry and money.
+- [20:02.270] And Europe gave a lot also, but they
+- [20:03.787] didn't give anywhere near what we gave.
+- [20:05.431] We gave probably almost three times the amount.
+- [20:09.830] And it's just a shame.
+- [20:11.510] The whole thing is a shame.
+- [20:13.290] The level of death is just a shame, yeah?
+- [20:16.240] The Press: Did you ask President Putin to meet with you?
+- [20:18.730] The President: About what?
+- [20:19.771] The Press: About Ukraine.
+- [20:20.910] The President: Of course, I did.
+- [20:22.010] I talked to him about it.
+- [20:22.990] I said, when are we going to end this, Vladimir?
+- [20:24.930] I had known for a long time now.
+- [20:27.030] I said, when are we going to end this bloodshed?
+- [20:29.320] This bloodbath?
+- [20:30.850] It's a bloodbath.
+- [20:33.910] And I do believe he wants to end it.
+- [20:36.000] You know, when I made the call,
+- [20:37.240] I told the people, last night,
+- [20:38.500] I spoke to the heads of the different countries.
+- [20:41.610] Germany and Finland, we had Italy, as
+- [20:45.067] you know, and the UK was on the line today.
+- [20:49.385] And a couple of others, and then
+- [20:51.441] they were in turn calling everyone.
+- [20:54.130] Ursula was there from the European Union.
+- [20:57.230] She was terrific.
+- [20:59.250] And we spoke for a long time about it.
+- [21:04.360] And they got a problem.
+- [21:05.370] It's a big, big problem.
+- [21:07.670] It's a terrible war.
+- [21:09.440] It's a very hard to extradite themselves
+- [21:12.805] away from what's taken place over there.
+- [21:17.230] The amount of anger, the amount
+- [21:18.615] of hate, and the amount of death.
+- [21:20.370] It's very hard, very tough situation.
+- [21:22.390] But I said to him, we've got to get going.
+- [21:25.170] And I did say also, if I thought that
+- [21:27.588] you couldn't do it, I'd step away.
+- [21:30.420] Because what are you going to do?
+- [21:31.970] We don't have boots on the ground.
+- [21:33.031] We wouldn't have boots on the ground.
+- [21:35.030] But we do have a big stake.
+- [21:38.120] And the financial amount that was put up is just crazy.
+- [21:42.070] It's crazy.
+- [21:42.670] This isn't for us.
+- [21:44.430] This is for somebody else.
+- [21:45.980] The amount of money that we put up is record setting.
+- [21:49.890] It's never been anything like this.
+- [21:51.610] And that includes weapons.
+- [21:53.250] It's never been anything like this. Yeah, please?
+- [21:55.500] The Press: Mr. President, on the medal, how far back
+- [21:57.785] do you intend to look to consider for the recipients?
+- [22:00.990] And then on your call today, if Putin ultimately
+- [22:03.709] proves to be the obstacle to the cease fire,
+- [22:06.390] is further arming the Ukraine
+- [22:07.591] on the table at that point?
+- [22:09.030] The President: Well, we'll look.
+- [22:09.770] I mean, we're going to look.
+- [22:10.391] I hope that I like to think positively, frankly.
+- [22:13.290] I just can't believe that they allow this to continue.
+- [22:16.370] This would have never happened if I were President.
+- [22:18.190] And most people admit that.
+- [22:19.890] And it didn't happen for four years.
+- [22:22.370] And October 7th would have never happened either.
+- [22:26.180] That's the attack on Israel.
+- [22:27.230] That would have never happened.
+- [22:29.310] So sad -- a lot of things wouldn't have happened.
+- [22:31.630] But so sad to see it.
+- [22:33.130] Now, I think that there's a good
+- [22:35.285] chance we can get this done.
+- [22:37.770] I believe Putin wants to do it.
+- [22:38.931] Now, if I thought Putin didn't want.
+- [22:40.322] .. I mean, that's what I do.
+- [22:41.410] My whole life is like deals.
+- [22:43.470] One big deal.
+- [22:44.690] And if I thought that President Putin
+- [22:47.044] did not want to get this over with,
+- [22:50.115] I wouldn't even be talking about it.
+- [22:51.751] Because I'd just pull out.
+- [22:54.290] The Press: What did you hear that give you confidence
+- [22:56.314] that he does want peace versus buying time?
+- [22:59.790] The President: I think he's had enough.
+- [23:02.230] I think he's had enough.
+- [23:03.110] There's been a long time.
+- [23:04.011] This has been going on for more than three years.
+- [23:07.730] When you think, correct?
+- [23:08.570] It's been going on for a long time.
+- [23:09.850] Yeah, please.
+- [23:10.830] The Press: Thank you, Mr. President.
+- [23:12.930] When you implored him to stop previously,
+- [23:15.541] (inaudible) stop on social media,
+- [23:18.550] And he didn't.
+- [23:19.110] And he just continued.
+- [23:19.970] I'm curious.
+- [23:20.650] Did you bring that up with
+- [23:21.955] him in your phone call today?
+- [23:24.630] Sorry.
+- [23:25.430] You previously on the Truth Social,
+- [23:27.180] implored President Putin to stop.
+- [23:28.930] You wrote Vladimir stop.
+- [23:30.360] And he didn't stop quite the contrary.
+- [23:31.980] I'm curious.
+- [23:32.990] Did you bring that up on your call with him today?
+- [23:36.050] The President: No, I didn't bring that up.
+- [23:37.430] But I did say it's time.
+- [23:39.270] You got to stop this thing.
+- [23:41.190] And I believe he wants to stop.
+- [23:42.630] Look, I would be -- I think very able
+- [23:44.811] to tell whether or not he wanted to or what.
+- [23:47.251] I thought there was a very good chance,
+- [23:49.878] like 50-50 chance, that he would say,
+- [23:53.290] I want to take the whole thing.
+- [23:54.780] I didn't know what he was going to say.
+- [23:57.150] And then they have a different kind of a problem.
+- [23:59.550] But I believe he wants to stop.
+- [24:02.450] The Press: Just now, about backing away or walking
+- [24:04.530] away, if it looks like it's going
+- [24:06.335] to be an intractable problem.
+- [24:07.730] Do you have a red line in your head
+- [24:09.529] of what would cause you to back away?
+- [24:11.510] The President: Yeah, in my head, but not
+- [24:12.510] something I'm going to announce.
+- [24:13.990] But yeah, definitely in my head, I do.
+- [24:16.391] Because this isn't our war.
+- [24:17.551] This is not my war.
+- [24:19.450] This is not the war.
+- [24:20.670] I mean, we got ourselves entangled in
+- [24:22.300] something that we shouldn't have been involved in.
+- [24:25.070] And we would have been a lot better off.
+- [24:26.690] And maybe the whole thing would have been better off.
+- [24:28.511] Because it can't be much worse.
+- [24:30.470] It's a real mess.
+- [24:31.560] It's a death trap.
+- [24:32.960] So I think that, yeah, I would
+- [24:35.446] say I do have a certain line.
+- [24:38.470] But I don't want to say what that line is,
+- [24:40.416] because I think it makes the negotiation
+- [24:42.271] even more difficult than it is.
+- [24:44.150] Yes, please.
+- [24:44.770] The Press: Thank you all for your sacrifice.
+- [24:47.490] I'm so sorry for your loss.
+- [24:49.270] You mentioned the (inaudible) back you
+- [24:51.186] want to see end in Ukraine.
+- [24:53.715] You mentioned that you believe Putin
+- [24:56.386] wants peace, but he just attacked Ukraine yesterday.
+- [25:00.170] So what makes you think that he wants peace?
+- [25:01.810] The President: He's in a war; nobody said don't.
+- [25:05.530] They're fighting.
+- [25:06.590] They're attacking.
+- [25:07.290] They're attacking each other.
+- [25:09.340] And people are dying all the time.
+- [25:11.030] He's in a war.
+- [25:11.930] He's fighting a war.
+- [25:12.850] Nobody said he was going to stop.
+- [25:14.470] I think it's terrible.
+- [25:16.130] I think it's terrible.
+- [25:18.540] The Press: (inaudible)
+- [25:22.161] and then ask about reconciliation?
+- [25:24.150] Why haven't you increased the sanctions on Russia yet?
+- [25:28.430] The President: Well, because I think there's a
+- [25:29.699] chance of getting something done.
+- [25:31.450] And if you do that, you can also make it much worse.
+- [25:34.990] But there could be a time when that's going to happen.
+- [25:39.710] The Press: (inaudible)
+- [25:43.500] Biden being diagnosed with cancer?
+- [25:45.050] Are you going to call your predecessor?
+- [25:48.130] The President: I think it's very sad, actually.
+- [25:50.970] I'm surprised that it wasn't, you know,
+- [25:53.604] the public wasn't notified a long time ago.
+- [25:56.590] Because to get to stage nine, that's a long time.
+- [25:59.390] I just had my physical.
+- [26:00.850] You saw that.
+- [26:01.331] You saw the results of that particular test.
+- [26:03.420] I think that test is standard to
+- [26:06.174] pretty much anybody getting a physical, good physical.
+- [26:11.390] We had the doctors at the White House and
+- [26:13.390] over at Walter Reed, which is a fantastic hospital.
+- [26:16.031] I do it.
+- [26:17.250] I did a very complete physical,
+- [26:18.773] including cognitive tests.
+- [26:20.190] I'm proud to announce.
+- [26:21.030] I aced it.
+- [26:22.010] Got them all.
+- [26:22.311] I got them all right.
+- [26:23.910] You're proud of me?
+- [26:24.710] Yes.
+- [26:24.891] Your husband would be proud of
+- [26:26.091] me for getting them all right?
+- [26:27.430] It's a little risky, but I didn't get them all right.
+- [26:29.110] These people would be after me.
+- [26:30.290] It would be not a good situation.
+- [26:32.630] But I think, frankly, anybody running for
+- [26:35.131] president should take a cognitive test.
+- [26:37.511] They say it's unconstitutional, but
+- [26:39.334] I would say in that particular case,
+- [26:41.211] having a cognitive test wouldn't be so bad.
+- [26:46.060] But when you take tests, medical as
+- [26:49.685] a male, that test is very standard.
+- [26:53.840] I don't know if it's given to
+- [26:55.119] everybody, but it's given just about.
+- [26:57.150] And it takes a long time to get to that situation.
+- [27:00.270] Now, I think to get to a stage nine,
+- [27:03.034] I think that if you take a look,
+- [27:05.690] it's the same doctor that said
+- [27:07.755] that Joe was cognitively fine.
+- [27:10.120] There was nothing wrong with him.
+- [27:11.620] Well, he said, if it's the same doctor,
+- [27:13.636] he said there was nothing wrong there.
+- [27:15.760] And that's being proven to be a sad situation.
+- [27:19.480] And the auto pen is becoming a very big deal.
+- [27:21.820] You know, the auto pen is becoming a big
+- [27:23.469] deal because it seems like that maybe was
+- [27:25.161] the president whoever operated the auto pen.
+- [27:27.950] But when they say that that was not good, they also --
+- [27:31.041] You know, you have to look and you have to
+- [27:33.267] say that the test was not so good either.
+- [27:35.441] In other words, there are things going
+- [27:37.335] on that the public wasn't informed.
+- [27:39.280] And I think somebody is going
+- [27:40.312] to have to speak to his doctor.
+- [27:41.440] If it's the same, or even if it's two
+- [27:44.241] separate doctors, why wasn't the cognitive ability --
+- [27:48.740] why wasn't that discussed?
+- [27:51.120] And I think the doctor said he's just
+- [27:53.369] fine and it's turned out that's not so.
+- [27:55.940] It's very dangerous.
+- [27:57.050] Look, this is no longer politically correct.
+- [27:58.821] This is dangerous for our country.
+- [28:00.240] Look at the mess where you're talking
+- [28:01.816] about all these questions on Ukraine and
+- [28:03.620] Russia that would have never happened.
+- [28:05.421] As an example, if I were president,
+- [28:06.821] it would have never happened.
+- [28:08.080] The other thing is you have to
+- [28:09.809] say, why did it take so long?
+- [28:11.900] I mean, when you -- This takes a long time, can take
+- [28:15.357] years to get to this level of danger.
+- [28:18.300] So it's a -- look
+- [28:19.350] it's a very, very sad situation.
+- [28:20.940] And I feel very badly about it.
+- [28:25.310] And I think people should try and find out
+- [28:26.990] what happened because I'll tell you the --
+- [28:29.000] I don't know if it had anything
+- [28:30.238] to do with the hospital.
+- [28:31.220] Walter Reed is really good.
+- [28:33.060] There's some of the best doctors I've ever seen.
+- [28:34.961] I don't even know if they were involved.
+- [28:37.510] But a doctor was involved in each case.
+- [28:39.980] Maybe it was the same doctor.
+- [28:42.500] And somebody is not telling the facts.
+- [28:45.060] That's a big problem.
+- [28:46.900] That's a big problem.
+- [28:48.400] The Press: (inaudible)
+- [28:50.700] it says that Ukrainians are ready for a ceasefire.
+- [28:52.520] They're ready for peace negotiations.
+- [28:54.460] In your mind, is Ukraine
+- [28:56.068] doing enough to get this together?
+- [28:58.160] The President: I'd rather tell you in about two weeks from now.
+- [29:01.550] Because I can't say yes or no.
+- [29:03.241] I think --
+- [29:05.150] Look, he's a strong person.
+- [29:08.260] Zelensky's a strong guy.
+- [29:09.960] And he's not the easiest person to deal with.
+- [29:14.080] But I think that he wants to stop.
+- [29:18.760] He's --
+- [29:20.050] It's a very bad --
+- [29:22.040] It's a very bad thing that's happening over there.
+- [29:24.020] I think he wants to stop.
+- [29:25.480] But I could answer that question better
+- [29:27.144] in two weeks or four weeks from now.
+- [29:28.700] I hope the answer is that he wants to get it solved.
+- [29:31.840] I want to thank everybody very much.
+- [29:33.680] And on behalf of the United States of
+- [29:36.185] America, we greatly honor your family and your friends.
+- [29:40.080] And everybody that had to suffer so much.
+- [29:43.020] But you have some three great
+- [29:44.601] men that are looking down on you.
+- [29:47.100] And they're very proud right now.
+- [29:48.680] They're very proud.
+- [29:49.360] This is the Oval Office.
+- [29:52.640] And they're a big part of it now.
+- [29:53.960] They're a part of the Oval Office, the White House.
+- [29:56.460] And thank you all very much.
+- [29:58.020] Thank you.
+- [29:58.510] Thank you, Sheriff.
+- [29:59.600] Thank you very much, everybody.
+- [30:00.841] Thank you.
+- [30:02.684] (applause)

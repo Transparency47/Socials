@@ -1,0 +1,658 @@
+<!-- source: https://www.youtube.com/watch?v=lW7J_pDS584 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: lW7J_pDS584 -->
+<!-- date_published: 2025-02-06T16:11:53+00:00 -->
+<!-- date_accessed: 2026-06-02T01:30:35.339320+00:00 -->
+
+# Transcript: President Trump Delivers Remarks at the National Prayer Breakfast at the U.S. Capitol Building
+
+- [00:01.130] [Music]
+- [00:19.270] [Applause]
+- [00:38.240] Thank you very much. This is very
+- [00:40.000] beautiful, I must say.
+- [00:42.080] This is a beautiful place.
+- [00:45.560] And our country is starting to do very
+- [00:47.360] well again.
+- [00:49.160] It's happening fast.
+- [00:51.160] A little faster than people thought.
+- [00:54.320] Thank you, especially to Senator
+- [00:57.040] Marshall,
+- [00:58.520] for the beautiful introduction.
+- [01:00.640] Appreciate it very much. Thank you.
+- [01:03.600] Great Senator you are.
+- [01:06.480] I also want to thank a friend and a man
+- [01:08.520] of profound faith and tremendous
+- [01:11.320] patriotism, who's also become a great
+- [01:13.400] friend.
+- [01:14.960] Uh you become much friendlier when you
+- [01:17.200] have a majority of two or three or four.
+- [01:20.680] Could even be five pretty soon.
+- [01:23.640] But for a little while it was one.
+- [01:26.240] And that's Mike Johnson, Speaker. Thank
+- [01:28.240] you very much, Mike. Very much.
+- [01:30.750] [Music]
+- [01:35.280] And thanks as well to somebody who's
+- [01:37.920] doing a fantastic
+- [01:39.920] job,
+- [01:41.280] Senator Thune. Thank you very much,
+- [01:43.400] Senator.
+- [01:44.880] It's not easy.
+- [01:47.240] It's not easy.
+- [01:48.920] It's uh really great. And Leader
+- [01:51.160] Scalise,
+- [01:52.600] Steve, wherever you may be. I know I I
+- [01:54.600] think you're here someplace. There he
+- [01:56.760] is. A brave guy, too. Brave guy. I
+- [01:59.080] always say it.
+- [02:00.720] And Senator Chuck Schumer, Chuck, thank
+- [02:04.120] you very much.
+- [02:05.520] Thank you.
+- [02:07.480] Uh
+- [02:08.399] Senator Hassan,
+- [02:10.920] thank you very much.
+- [02:12.480] Thank you. Very nice to see you.
+- [02:14.640] Congressman Jeffries,
+- [02:18.160] thank you.
+- [02:19.800] And uh many other very distinguished
+- [02:22.800] leaders in the room. It's great.
+- [02:25.120] Great group of people.
+- [02:27.520] If we If we could ever come together, it
+- [02:30.000] would be unbelievable.
+- [02:32.480] It may not happen, but uh it should, and
+- [02:36.160] maybe it will. From the earliest days of
+- [02:38.400] our republic, faith in God has always
+- [02:41.000] been the ultimate source of the strength
+- [02:43.680] that beats in the hearts of our nation.
+- [02:47.400] We have to bring religion back.
+- [02:50.400] We have to bring it back much stronger.
+- [02:52.360] It's one of the biggest problems that
+- [02:54.080] we've had over the last fairly long
+- [02:56.760] period of time.
+- [02:59.120] We have to bring it back. Thomas
+- [03:00.520] Jefferson himself
+- [03:03.000] once attended Sunday services held in
+- [03:05.280] the old house chamber on the very ground
+- [03:07.840] where I stand today.
+- [03:10.280] So, there could be nothing more
+- [03:11.760] beautiful than for us to gather in this
+- [03:14.360] majestic place. It is majestic, and
+- [03:17.320] reaffirm that America is and will always
+- [03:20.360] be
+- [03:21.360] one nation under God.
+- [03:24.720] At every stage of the American story,
+- [03:27.200] our country has drawn hope and courage
+- [03:29.800] and inspiration from our
+- [03:32.280] trust in the almighty.
+- [03:35.160] Deep in the soul of every patriot is the
+- [03:37.240] knowledge that God has a special plan
+- [03:39.720] and a glorious mission
+- [03:42.040] for America.
+- [03:44.280] And that plan is
+- [03:46.000] going to happen. It's going to happen. I
+- [03:47.720] hope it happens sooner rather than
+- [03:49.840] later. It's going to happen.
+- [03:51.920] And it's his hand that guides us
+- [03:54.840] every single step of the way.
+- [03:58.120] And all of you
+- [04:00.800] and the things we have to do
+- [04:03.200] is to see the defining role that faith
+- [04:05.680] and prayer have played in the life of
+- [04:07.640] our nation.
+- [04:09.320] And you just have to look at this
+- [04:11.080] building, and you can look at each
+- [04:12.400] other.
+- [04:14.480] You can really look at each other. It's
+- [04:16.320] defined
+- [04:17.920] almost everyone in this room. I think
+- [04:20.000] faith has been very strong with the
+- [04:21.519] people in this room. Just steps away
+- [04:23.880] from here in the Hall of Columns is the
+- [04:27.000] statue of John Winthrop,
+- [04:29.720] who famously proclaimed that America
+- [04:31.800] would stand as a city upon a hill,
+- [04:35.080] a light to all nations,
+- [04:37.920] with the eyes of all people upon us.
+- [04:41.560] Today, almost 400 years after that
+- [04:43.560] famous sermon,
+- [04:45.040] we see that with the Lord's help, the
+- [04:47.280] city stands taller and shines brighter
+- [04:50.800] than ever before, or at least it soon
+- [04:53.840] will.
+- [04:55.960] In that same hall, we also find the
+- [04:57.800] statue of the great Roger Williams, who
+- [05:00.880] founded the state of Rhode Island,
+- [05:03.440] named its capital city Providence,
+- [05:06.560] and built the first Baptist
+- [05:08.920] church in America.
+- [05:11.240] It's Williams that we have to thank for
+- [05:14.040] making religious liberty part of the
+- [05:17.400] bedrock of American life.
+- [05:19.680] And today, we must
+- [05:21.720] protect the fundamental freedom with
+- [05:24.000] absolute devotion.
+- [05:26.320] We must stand strong,
+- [05:29.440] just like generations of Americans have
+- [05:31.560] done on the battlefields all around the
+- [05:33.640] world.
+- [05:34.840] Feet away from the magnificent rotunda,
+- [05:38.320] another statue watches over visitors
+- [05:42.000] to the capital.
+- [05:43.320] George Washington, the founder
+- [05:45.680] of our country, often called for
+- [05:47.960] Americans to join together in prayer,
+- [05:50.600] very often.
+- [05:52.320] And more than two centuries later, this
+- [05:54.600] morning,
+- [05:55.760] we heed President Washington's wisdom
+- [05:58.040] and
+- [05:58.880] follow in his mighty footsteps. He was a
+- [06:01.160] strong
+- [06:02.400] man and of great
+- [06:04.680] religious strength.
+- [06:06.760] The stories of legends like Washington,
+- [06:08.960] Winthrop, and Williams remind us that
+- [06:11.080] without faith in God, there would be no
+- [06:14.200] American story.
+- [06:16.400] Every citizen should be proud of this
+- [06:18.640] exceptional heritage. We have an
+- [06:20.720] unbelievable
+- [06:22.480] heritage, and we have to use that and
+- [06:25.920] make life better for everyone.
+- [06:29.080] That's why as we approach the 20 5th *
+- [06:33.240] 10
+- [06:34.640] anniversary. Think of that, 250
+- [06:38.560] 250 years we'll be celebrating next year
+- [06:42.320] of our country's founding.
+- [06:45.160] I have signed an executive order to
+- [06:47.680] resume the process of creating a new
+- [06:49.960] national park full of statues of the
+- [06:52.120] greatest Americans who ever lived.
+- [06:55.360] We're going to be honoring our heroes,
+- [06:58.240] honoring the greatest
+- [07:00.400] people
+- [07:01.880] from our country. We're not going to be
+- [07:03.360] tearing down, we're going to be building
+- [07:05.000] up.
+- [07:07.000] It will be called the National Garden of
+- [07:09.960] American Heroes.
+- [07:12.200] Some of you will be on
+- [07:14.520] that
+- [07:16.040] soon-to-be hallowed ground. Some of you.
+- [07:18.480] Let's see, I can pick a few of you right
+- [07:20.240] now by looking.
+- [07:22.000] This
+- [07:23.120] There's a couple of you right now I can
+- [07:24.800] see.
+- [07:26.200] Let's Let's see.
+- [07:30.840] It's the President's sole opinion.
+- [07:37.480] And I've given myself a 25-year period.
+- [07:42.000] And then somebody else. By that time
+- [07:43.560] it'll be very, very built up.
+- [07:46.200] Now,
+- [07:46.920] it's uh it will be something very
+- [07:48.960] special, and I hope that Congress will
+- [07:51.400] fully fund this wonderfully unifying
+- [07:53.920] project at the first possible
+- [07:56.600] opportunity. It's not
+- [07:58.600] going to be a lot of money. It's going
+- [08:00.120] to be very important, however,
+- [08:02.640] so that more of our people can be
+- [08:04.480] inspired by the faith and courage of
+- [08:06.680] patriots like those who we honor in
+- [08:08.920] these halls.
+- [08:10.360] One of the incredible Americans whose
+- [08:12.760] memory my order will celebrate is also
+- [08:15.640] recognized with a statue
+- [08:18.160] in the capital representing the great
+- [08:19.960] state of North Carolina.
+- [08:22.480] And that's a man known who everybody
+- [08:24.200] loved, Reverend Billy Graham.
+- [08:27.840] He was something. My father used to take
+- [08:29.880] me to
+- [08:31.080] watch the crusades. He would take me to
+- [08:34.039] Yankee Stadium. I remember it so well.
+- [08:36.880] I remember it more than I remember any
+- [08:38.680] Yankee game, and I've seen a lot of
+- [08:40.200] Yankee games. Can you believe it?
+- [08:42.560] And Billy didn't have a bat, so you
+- [08:44.400] know, it's just pretty good. It was
+- [08:46.760] amazing. He'd have 60 or 70,000 people,
+- [08:50.840] and they loved him. They loved him. I
+- [08:52.920] saw him
+- [08:54.320] with Franklin. I don't I don't know if
+- [08:55.840] Franklin's here. I just don't know, but
+- [08:57.960] I've gotten to know Franklin. He's done
+- [08:59.200] a great job
+- [09:00.680] with uh helping
+- [09:02.760] on tragedies and problems like in North
+- [09:05.080] Carolina, California. He's always the
+- [09:07.400] first one there. Work he does is His
+- [09:09.680] father's very proud of him. I can tell
+- [09:11.240] you that.
+- [09:12.360] But uh
+- [09:14.120] Billy Graham was very special.
+- [09:16.600] One floor below us, Reverend Graham's
+- [09:19.560] statue stands with an open Bible.
+- [09:22.400] The page turned to a letter from the
+- [09:24.800] Apostle Paul, which reads, "Let us not
+- [09:27.240] grow weary of doing good,
+- [09:30.120] for in due season, we will reap
+- [09:33.320] if we do not give up. Never give up.
+- [09:35.720] Never, ever give up. You can't.
+- [09:38.520] How about me? If I would have given up,
+- [09:40.040] I would not be here right now. Who the
+- [09:41.560] hell knows where I'd be.
+- [09:43.560] It might not be a good place.
+- [09:46.560] If it was up to the Democrats, it would
+- [09:48.200] not be a good place at all.
+- [09:51.280] Never, ever give up. There could be
+- [09:54.160] no better message for the leaders
+- [09:56.240] gathered here, and you are real leaders.
+- [09:59.160] And we must never give up and
+- [10:01.200] we must
+- [10:02.760] never grow tired. We must never grow
+- [10:04.840] weary.
+- [10:06.200] And we always must practice good.
+- [10:09.480] As you know, last week only a few miles
+- [10:11.840] from here, our nation witnessed a
+- [10:13.680] terrible tragedy when 67 people were
+- [10:16.560] killed in a horrible accident near
+- [10:18.440] Reagan Airport.
+- [10:20.120] As one nation, we take solace in the
+- [10:22.200] knowledge that their journey that night
+- [10:24.120] did not end
+- [10:25.760] in the icy waters of the Potomac, but in
+- [10:27.920] the warm embrace
+- [10:29.680] of a very loving God.
+- [10:32.160] None of us knows exactly when our time
+- [10:34.440] on Earth
+- [10:35.800] will be over. You never know.
+- [10:38.400] A truth I confronted
+- [10:41.120] a few short months ago
+- [10:44.520] when
+- [10:45.880] there was an incident that wasn't
+- [10:49.080] it was not fun.
+- [10:50.920] It was not a good thing.
+- [10:53.400] But God was watching me. The chances of
+- [10:56.560] me being here
+- [10:58.520] my sons are shooters, they're really
+- [10:59.960] good shooters, Don and Eric.
+- [11:02.760] And they said the chances of missing
+- [11:04.480] from that range with that gun are
+- [11:07.400] but Don equated it to a 1-ft putt.
+- [11:10.960] That's pretty bad. 2 ft I can see
+- [11:12.880] missing.
+- [11:14.120] But 1 ft you can't miss.
+- [11:16.560] It was the equivalent of a 1-ft putt is
+- [11:18.640] what he told me. He said fact he gained
+- [11:22.440] some religion. He gained he went up 25%.
+- [11:27.120] And
+- [11:29.000] if you know him, that's a lot.
+- [11:32.839] But he said there had to be somebody
+- [11:34.520] that saved you and I think I know who it
+- [11:36.320] is and he looked up and I said, "Whoa,
+- [11:38.080] Don, that's come you've come a long
+- [11:39.839] way."
+- [11:41.760] He's a good guy, but they could my two
+- [11:44.520] sons just
+- [11:45.720] really couldn't believe it.
+- [11:47.320] Had I not turned that right turn just at
+- [11:49.480] that time and the audience 55,000 people
+- [11:52.480] standing this way, there were just a few
+- [11:54.560] people in the back on the bleachers.
+- [11:57.000] There was nobody over there
+- [11:58.920] except for
+- [12:00.600] my all-time favorite chart in history.
+- [12:03.800] A chart on immigration. Immigration
+- [12:05.880] saved my life, see? So, we're going to
+- [12:07.760] be good for immigration, okay?
+- [12:10.520] But had I not made that turn, boom.
+- [12:13.200] Had it and quickly.
+- [12:15.120] It was almost as though a deer bolted.
+- [12:16.920] You know, they say the only way you miss
+- [12:19.360] when you're a good shot is if it bolts.
+- [12:20.960] I bolted. I turned to the right to look
+- [12:22.839] at the chart and I said, "Whoa, what was
+- [12:24.480] that?" What was that?
+- [12:27.400] So, you never know, but the God
+- [12:30.280] did that. I mean, it had to be. The
+- [12:32.040] chances of turning, there's no reason to
+- [12:33.800] turn to the right. You know, the chart
+- [12:35.800] is rarely brought down. I brought it
+- [12:37.640] down maybe 20%
+- [12:39.960] and 20% of the time.
+- [12:42.640] And it's never on my right, it's always
+- [12:45.040] on my left. And it's always at the end
+- [12:46.920] of the speech, never at the beginning of
+- [12:48.360] the speech.
+- [12:50.240] And if I was a little more than
+- [12:52.320] that 90° angle
+- [12:54.760] it would be no good. And if I was a
+- [12:56.080] little less, it would be no good. Had to
+- [12:57.240] be perfect. Thing went right along the
+- [13:00.080] edge.
+- [13:02.160] It didn't affect my hair, can you
+- [13:03.920] believe that?
+- [13:08.200] Might have touched it, but not where it
+- [13:09.600] counts.
+- [13:10.839] Not not the skin part.
+- [13:13.680] But it's you know, honestly, it's very
+- [13:15.400] it changed it changed something in me. I
+- [13:17.440] feel
+- [13:18.600] I feel even stronger. I believed in God,
+- [13:20.760] but I feel I feel
+- [13:23.160] much more strongly about it. Something
+- [13:25.000] happened. So, thank you.
+- [13:29.640] Thank you.
+- [13:30.210] [Music]
+- [13:34.120] But that event like the tragedy last
+- [13:36.000] week should remind us all that we have
+- [13:38.120] to make the most out of every
+- [13:41.000] single day that we have. Who would think
+- [13:43.640] that
+- [13:44.960] you're in space and two things collide.
+- [13:48.640] The odds of that happening are so small
+- [13:50.560] even
+- [13:51.800] without proper control.
+- [13:53.800] We should have had the proper control.
+- [13:56.240] We should have had better equipment. We
+- [13:58.320] don't, we have obsolete equipment.
+- [14:00.960] They were understaffed for whatever
+- [14:03.520] reason. I guess the helicopter was high
+- [14:06.880] and we'll find out exactly what
+- [14:08.760] happened. But the odds, even if you had
+- [14:10.360] nothing, if you had nobody
+- [14:12.280] the odds of that happening are extremely
+- [14:14.160] small. It's like did you ever see you go
+- [14:15.839] to a driving range in golf and you're
+- [14:17.480] hitting balls, hundreds of balls,
+- [14:19.680] thousands of hours
+- [14:22.360] I never see a ball hit another ball.
+- [14:25.000] Balls going up all over the place, you
+- [14:26.360] never see them hit.
+- [14:28.160] It was amazing that that could happen.
+- [14:31.480] There was a lot of mistakes made
+- [14:33.880] and it should have never happened, but
+- [14:37.880] regardless of that, it's amazing that it
+- [14:39.680] happened.
+- [14:40.920] And I think that's going to be used for
+- [14:42.440] good. I think what is going to happen is
+- [14:45.040] we're all going to sit down and do a
+- [14:46.560] great
+- [14:47.800] computerized
+- [14:49.560] system for our control towers.
+- [14:52.440] Brand new, not pieced together obsolete
+- [14:55.079] like it is land-based.
+- [14:57.280] Trying to hook up a land-based system to
+- [14:59.360] a satellite system.
+- [15:01.600] And the first thing that some experts
+- [15:03.440] told me when this happened is you can't
+- [15:05.880] hook up land to satellites and you can't
+- [15:07.760] hook up satellites to land. It doesn't
+- [15:09.600] work.
+- [15:10.760] We spent billions and billions of
+- [15:12.480] dollars trying to renovate an old broken
+- [15:14.640] system instead of just saying cut it
+- [15:16.600] loose
+- [15:17.959] and let's spend less money and build a
+- [15:20.120] great system.
+- [15:22.120] Done by
+- [15:23.560] two or three companies, very good
+- [15:25.400] companies, specialists, that's all it
+- [15:27.040] is.
+- [15:28.360] They used 39 companies.
+- [15:31.520] That means that 39 different hookups
+- [15:33.360] have to happen.
+- [15:34.800] And I don't know how many people of
+- [15:37.160] are of you are good in terms of all of
+- [15:39.959] the kind of things necessary for that
+- [15:42.079] and it's very complex stuff.
+- [15:44.320] But when you have 39 different companies
+- [15:46.800] working on hooking up
+- [15:48.520] different cities at different people,
+- [15:50.600] you need one company
+- [15:52.360] with one set of equipment.
+- [15:54.640] And there are some
+- [15:56.760] some countries that have unbelievable
+- [16:00.880] air controller systems.
+- [16:03.240] And they
+- [16:04.680] would have bells would have gone off
+- [16:06.760] when that helicopter literally even hit
+- [16:08.839] the same height because it traveled a
+- [16:10.360] long distance before it hit. It was just
+- [16:12.360] like just wouldn't stop. It was
+- [16:14.680] you know, follow the line.
+- [16:16.600] But bells and whistles would have gone
+- [16:18.160] off. They have them where actually
+- [16:20.760] actually can virtually turn the thing
+- [16:22.600] around. They it would have just never
+- [16:24.360] happened if we had the right equipment.
+- [16:27.120] And one of the things that's going to be
+- [16:28.360] I'm going to be speaking to John and to
+- [16:30.200] Mike and to Chuck and to everybody. We
+- [16:32.600] have to get together and just
+- [16:34.920] as a single bill just pass where we get
+- [16:37.079] the the best control system.
+- [16:39.480] When I land in my plane
+- [16:42.120] privately, I use a system from another
+- [16:44.040] country
+- [16:45.360] because my captain tells me, "I'm
+- [16:47.360] landing in New York and I'm using a
+- [16:48.800] system." I won't tell you what country,
+- [16:50.360] but I use a system from another country
+- [16:53.040] because the captain says this thing is
+- [16:54.680] so bad, it's so obsolete. And we can't
+- [16:57.560] have that. So, we're going to have the
+- [16:58.520] best system.
+- [16:59.880] And
+- [17:01.760] a lot of money, but it's not that much
+- [17:03.280] money.
+- [17:04.720] And it'll happen fast and it'll be done
+- [17:06.520] by total professionals and when it's
+- [17:08.560] done, you're not going to have
+- [17:09.480] accidents. It's just not they're not
+- [17:11.839] they're virtually not possible to have.
+- [17:14.600] Each of us is blessed with a precious
+- [17:16.880] chance to help lead America to renew
+- [17:20.199] to renew our pledges of faith and
+- [17:23.120] everything else and bring us to new
+- [17:25.160] heights and create a future of promise
+- [17:27.199] for our people and for ourselves.
+- [17:29.560] You know, we have the most important
+- [17:31.080] people in the country in the true sense
+- [17:32.720] here because you're the ones that are
+- [17:33.840] going to make the decision. You
+- [17:35.840] you're the ones that are
+- [17:37.560] leading us into so many different
+- [17:40.280] things, whether it's the right air
+- [17:42.000] control system or the right size
+- [17:43.960] military or
+- [17:45.840] what to do and what not to do. Most
+- [17:47.679] important people.
+- [17:49.760] And
+- [17:51.640] many of you are very religious. I know
+- [17:53.400] so many of you very religious.
+- [17:55.920] I just think that our country's been so
+- [17:58.080] badly hurt.
+- [17:59.640] We're very hurt by what COVID
+- [18:03.000] did to
+- [18:04.320] religion. It really hurt it badly.
+- [18:06.679] People couldn't go to church for a long
+- [18:08.400] period of time.
+- [18:10.360] Um even going outside, they were given a
+- [18:12.840] hard time and I'm not blaming anybody
+- [18:14.720] for that, but but it was very hard to
+- [18:17.080] gather, so they started using computers
+- [18:20.000] if that.
+- [18:21.480] And when they come back, it's just, you
+- [18:23.720] know, a whole new experience they have
+- [18:25.840] to get used to, but it is starting to
+- [18:28.080] come back.
+- [18:29.400] We had a fantastic
+- [18:31.400] thing happen yesterday.
+- [18:33.360] The Army had the best recruitment
+- [18:36.400] recruitment numbers that they've had
+- [18:39.040] in more than 15 years. They think it
+- [18:41.000] could be 25 years actually. They're
+- [18:42.760] going to probably put that out, but more
+- [18:44.760] than 15 years.
+- [18:46.919] Just now.
+- [18:50.760] And we were worried about it. We were
+- [18:52.320] talking about it numerous times at we
+- [18:55.200] don't have people joining our military
+- [18:57.600] services. So, we don't have people
+- [18:59.320] joining our police force. We have to
+- [19:00.840] cherish our police.
+- [19:02.800] It's so dangerous. You open a car and
+- [19:05.200] somebody starts shooting.
+- [19:06.919] They have blackened windows. You don't
+- [19:08.320] even have any idea who
+- [19:10.120] who's in the car. Often times they have
+- [19:11.720] the dark windows.
+- [19:13.440] Which you're not in theory supposed to
+- [19:15.000] have, but they have them. The door opens
+- [19:17.120] and a gun is pointed at your face and
+- [19:20.080] you can't do a thing about it. It's just
+- [19:22.760] nothing you're going to do about it.
+- [19:25.320] Your friends will take them out.
+- [19:27.560] This happened so many times, but you
+- [19:29.520] just it's so such a dangerous thing. We
+- [19:31.520] have to cherish these people.
+- [19:33.880] So, today we join our hearts and prayers
+- [19:36.679] and
+- [19:39.000] recommitting to putting our country
+- [19:40.960] first. We have to put our country first.
+- [19:44.200] Making America stronger and greater and
+- [19:46.240] more exceptional
+- [19:48.000] than ever before and we have to make
+- [19:50.560] religion a much more important factor
+- [19:53.040] now. We have to make it an important
+- [19:54.960] factor. If we do that,
+- [19:57.120] it's going to be our job is just going
+- [19:58.520] to be much easier. It unifies people. It
+- [20:00.800] brings people together. Democrats are
+- [20:02.680] going to be able to have lunch again and
+- [20:04.440] dinner with Republicans. And I remember
+- [20:06.960] just as growing up, I'd see,
+- [20:09.000] you know, I revered senators and
+- [20:11.440] congressmen. It was something very
+- [20:13.080] special, but they were out to dinner
+- [20:15.720] all the time. We had a
+- [20:18.360] an old congressman, maybe some of Si
+- [20:20.880] Halpern from Queens.
+- [20:24.080] And he was a friend of my father.
+- [20:26.680] But he'd have dinner with He was a
+- [20:28.480] Democrat. Would he'd have
+- [20:30.480] dinner with Republicans. And he'd be out
+- [20:32.440] it wouldn't even make a difference.
+- [20:33.920] Today, it's like
+- [20:36.120] uh
+- [20:36.920] it's like shocking.
+- [20:39.200] And it shouldn't be. You have to get
+- [20:40.640] together. We really have to get
+- [20:42.040] together. We all know what's right and
+- [20:43.720] what's wrong. And
+- [20:45.080] uh
+- [20:46.240] there's going to be compromise on both
+- [20:48.000] sides. But we have to just do the right
+- [20:49.760] thing. And we have to get together. You
+- [20:51.240] did You did it with Marco Rubio.
+- [20:53.960] And he got everybody who's 99 votes. And
+- [20:57.440] the only vote was our VP who
+- [21:00.920] who maybe we should have been there just
+- [21:02.480] to make it 100. But I think I would have
+- [21:04.640] been angered if it was 100. That might
+- [21:06.320] be a step too far, right?
+- [21:09.000] But no, it was great to see a vote. Pam
+- [21:11.240] Bondi had support from Democrats and
+- [21:14.640] some of the others had some
+- [21:16.760] pretty good support. So, you know, it's
+- [21:19.360] it's doable.
+- [21:20.960] Uh
+- [21:21.760] we had a recent bill having to do with a
+- [21:23.800] very beautiful young lady who was killed
+- [21:25.760] from Georgia.
+- [21:27.760] And uh
+- [21:29.680] that bill was very bipartisan. It was
+- [21:31.560] very beautiful thing to watch, actually.
+- [21:34.440] And uh so, I think we just have to if if
+- [21:36.800] possible,
+- [21:38.400] we have to unify. Uh
+- [21:40.720] there's big division. I mean, some
+- [21:42.000] people want an open border and some
+- [21:43.640] people want a closed border. We want it
+- [21:45.840] closed and they want it open. And that's
+- [21:48.160] a big difference.
+- [21:50.600] How do you solve that problem? It's a
+- [21:52.280] big difference.
+- [21:54.040] Some people want men in women's sports
+- [21:56.480] and some people don't. And I I was with
+- [21:58.520] somebody yesterday who was so upset that
+- [22:01.120] the bill was signed where men cannot
+- [22:03.640] participate in women's sports. And I
+- [22:05.679] said,
+- [22:06.800] he's a very smart guy.
+- [22:09.560] Went to a great school. Was a great
+- [22:11.920] student.
+- [22:13.640] And he actually feels, you know, that
+- [22:16.640] that should happen. Men should be able
+- [22:18.360] to play, meaning transition
+- [22:21.320] into women's sports.
+- [22:24.120] And you talk to him and
+- [22:26.120] he says, "You know, I I don't understand
+- [22:28.040] it. I I think it
+- [22:29.679] I don't understand how the problem ever
+- [22:31.560] got started in the first place."
+- [22:33.800] It just seems so simple.
+- [22:36.240] But he he's a good person and just
+- [22:39.000] believes it. He just believes it. Not
+- [22:40.960] going to be easy to convince him
+- [22:42.440] otherwise.
+- [22:43.640] So, where is a middle ground? It's just
+- [22:45.400] hard to have a middle ground. If there's
+- [22:47.160] two ways, I mean, you can either do it
+- [22:48.720] or you can't.
+- [22:50.280] But I think a lot of good things are
+- [22:52.240] going to happen. You know, a lot of
+- [22:53.679] people might be surprised to hear me say
+- [22:55.560] that of all people, but I think a lot of
+- [22:58.000] good things are going to happen because
+- [22:59.440] our country's
+- [23:00.960] got some
+- [23:02.320] big headaches, but we have tremendous
+- [23:03.760] spirit right now. The spirit is as high
+- [23:06.320] as it's been. It was up 49 points
+- [23:09.720] this morning. 49 points. That's a That's
+- [23:12.520] It's never been It's the biggest
+- [23:13.720] increase
+- [23:15.000] in the history of whatever the poll was.
+- [23:18.000] So, the spirit is there. That's a big
+- [23:19.679] factor. That's probably the hardest
+- [23:21.240] thing to get back, to be honest. The
+- [23:22.600] rest is easy.
+- [23:24.640] The rest is easy. So, I want to just
+- [23:26.480] thank you all. I want to congratulate a
+- [23:28.080] lot of the new members. I see so many of
+- [23:30.000] you that ran great races, David.
+- [23:34.320] That was a That was a great race. But so
+- [23:36.920] many that ran great races. And uh on
+- [23:39.440] both sides, you ran some incredible
+- [23:41.720] races. So, it's good to be with you.
+- [23:44.440] And uh God bless everybody. We want to
+- [23:47.960] come together and
+- [23:50.080] the happiest
+- [23:51.840] person, the the the element, the
+- [23:54.720] everything that's going to be happy.
+- [23:56.360] People of religion are going to be happy
+- [23:58.880] again.
+- [24:00.280] And I I really believe you can't be
+- [24:03.440] happy
+- [24:04.880] without religion, without that belief. I
+- [24:06.880] really believe it. I just don't see how
+- [24:08.400] you can be.
+- [24:10.480] So, let's bring religion back. Let's
+- [24:13.440] bring God back into our lives. Thank you
+- [24:16.040] all very much. Thank you very much.
+- [24:17.800] Great honor. Thank you.
+- [24:20.860] [Music]

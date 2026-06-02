@@ -1,0 +1,475 @@
+<!-- source: https://www.youtube.com/watch?v=Bo8bMllxsDg -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: Bo8bMllxsDg -->
+<!-- date_published: 2025-11-05T13:46:56+00:00 -->
+<!-- date_accessed: 2026-06-02T02:42:06.451756+00:00 -->
+
+# Transcript: President Trump Delivers Remarks at Breakfast with Republican Senators
+
+- [00:10.170] Announcer: Ladies and gentlemen, the President of United States.
+- [00:15.170] (applause)
+- [00:42.860] The President: Thank you. Thank you very much.
+- [00:44.740] That was quite a formal entrance.
+- [00:46.270] I thought we were just going to sit down and talk a little bit.
+- [00:49.770] We'd talk about exactly one year ago
+- [00:51.770] we had that big, beautiful victory.
+- [00:54.210] Exactly one year.
+- [00:59.010] And last night, it was not expected to be a victory.
+- [01:02.260] It was very Democrat areas,
+- [01:03.490] but I don't think it was good for Republicans.
+- [01:05.650] I don't think it was good.
+- [01:06.900] I'm not sure it was good for anybody,
+- [01:08.840] but we had an interesting evening and we learned a lot,
+- [01:13.050] and we're going to talk about that.
+- [01:14.360] And I'll say a few remarks,
+- [01:15.750] and then after that I'll ask the press to leave.
+- [01:18.230] The press has been very nice to us the last couple of months.
+- [01:22.590] They were great to us in terms of the foreign visits
+- [01:25.340] with China, Japan, South Korea, Malaysia,
+- [01:29.290] and they were actually terrific. So I want to thank you for that.
+- [01:32.540] I'm sure you'll get back to your normal ways soon,
+- [01:36.610] but we did a great job over in China,
+- [01:39.140] and we've done a great job in turning off wars.
+- [01:41.290] We stopped eight wars, eight wars,
+- [01:43.930] and we have one to go, as you probably know,
+- [01:46.130] and that'll get stopped also.
+- [01:47.940] But we've done a great job,
+- [01:49.200] so it's really been an honor to do it,
+- [01:53.560] and I did it with many of the people in this room.
+- [01:56.150] Every one of you I know and every one of you I like.
+- [01:58.700] I like our leaders, I like everybody,
+- [02:01.590] but I thought we'd have a discussion
+- [02:03.070] after the press leaves about what last night represented
+- [02:08.380] and what we should do about it,
+- [02:10.350] and also about the shutdown and how that relates to last night.
+- [02:14.310] I think if you read the pollsters,
+- [02:17.800] the shutdown was a big factor negative for the Republicans,
+- [02:21.760] and that was a big factor.
+- [02:23.090] And they say that I wasn't on the ballot
+- [02:24.950] was the biggest factor, but I don't know about that,
+- [02:28.320] but I was honored that they said that.
+- [02:31.270] And I just want to thank everybody for being here,
+- [02:34.030] and a very special thanks to Vice President JD Vance,
+- [02:36.810] who's doing a terrific job. JD, thank you very much.
+- [02:45.570] As well as the senate leadership team
+- [02:47.720] that has been working very hard.
+- [02:50.850] I will tell you, nobody's working any harder
+- [02:53.920] representing the American people,
+- [02:55.320] including Senator John Thune. John, thank you. Great job.
+- [03:04.600] Senator John Barrasso.
+- [03:06.070] John, thank you very much. Senator Tom Cotton,
+- [03:11.000] wherever you may be, Tom, thank you.
+- [03:13.740] Thank you, Tom. Thank you.
+- [03:17.350] Senator Shelley Moore Capito, who's been very involved.
+- [03:20.590] Thank you Shelley.
+- [03:23.000] Senator James Lankford, one of my favorite states,
+- [03:26.480] 77 out of 77. I always say 77 out of 77.
+- [03:32.570] Reagan was 56. That was the record.
+- [03:34.640] We got every one of them. Thank you, James.
+- [03:37.720] And a fantastic friend of mine, and an incredible advocate
+- [03:41.610] during the election a year ago, Tim Scott.
+- [03:43.690] Thank you, Tim.
+- [03:48.410] So as you know, we are in the midst
+- [03:50.840] of a disastrous Democrat-created government shutdown.
+- [03:53.910] And it is Democrat-created, but I don't think
+- [03:55.990] they're getting really the blame that they should.
+- [03:58.320] That's now officially the longest shutdown
+- [04:00.600] in American history.
+- [04:02.390] The Democrat radicals and the Senate
+- [04:05.300] have shown zero interest in reopening the government,
+- [04:08.460] and I don't think they'll act so soon.
+- [04:10.780] A lot of people disagree.
+- [04:12.050] I've been saying for the last 30 days,
+- [04:14.870] we've had four or five different points,
+- [04:16.770] "Yes, sir. They're going to get it right now,
+- [04:18.830] we should have it done in a day."
+- [04:20.460] I've heard that about four times.
+- [04:21.740] I heard it after Kings, they said I was a king.
+- [04:24.880] And I heard it after Kings.
+- [04:26.200] I heard it after a couple of other moments in time
+- [04:29.860] and I said, "No, I don't believe so."
+- [04:31.260] And now I heard it's after the election, I don't believe so.
+- [04:35.750] I think they're kamikaze pilots. I just got back from Japan.
+- [04:38.580] I talked about the kamikaze pilots.
+- [04:40.940] I think these guys are kamikaze.
+- [04:42.410] They'll take down the country if they have to.
+- [04:44.200] So I don't think so.
+- [04:45.440] Millions of Americans are going to be without SNAP benefits,
+- [04:49.380] and I will say about SNAP benefits.
+- [04:51.720] So when I was president, we had $7 billion worth.
+- [04:54.700] And now, they have many times that
+- [04:57.010] because these benefits were given to anybody that asked,
+- [05:00.330] and they're up to, I hear just many times, 47 billion.
+- [05:06.410] So it wasn't the purpose of SNAP.
+- [05:09.000] It was for people that really had problems,
+- [05:11.350] down and out, people that really had problems.
+- [05:14.400] But during Biden, they gave it to anybody that wanted it.
+- [05:17.300] I think it's something you have to talk about
+- [05:18.980] because the numbers are incredible.
+- [05:21.670] But countless public servants are now not being paid,
+- [05:25.030] and the air traffic control system
+- [05:26.670] is under increasing strain.
+- [05:29.280] We must get the government back open soon,
+- [05:31.540] and really, immediately we have to get it up.
+- [05:34.010] We have the hottest economy we've ever had
+- [05:36.910] and it's affecting the stock market now a little bit,
+- [05:39.850] but the stock market as of Friday,
+- [05:42.330] has hit many record highs during the last nine months, many.
+- [05:47.830] And it will again. This is just the beginning,
+- [05:50.270] because when these plants that are being built
+- [05:51.970] right now start opening up,
+- [05:53.890] we've never had anything like this.
+- [05:55.420] It's a boom. There's a construction right now,
+- [05:57.520] but that's going to be bigger than that.
+- [05:59.500] That's going to be an economic boom as soon as they open up,
+- [06:03.340] and it's going to be something special.
+- [06:05.230] We have car companies coming in.
+- [06:07.620] When I was in Japan, Toyota, Mr. Toyota,
+- [06:09.990] I said, "What's your name?" "Toyota."
+- [06:12.400] I said, "Oh, you're rich."
+- [06:15.800] I said, "How much of the company do you own?" "92.1 percent."
+- [06:19.930] I said, "I'm glad you said the one," he wants to be.
+- [06:22.910] I said, "You're a rich guy."
+- [06:24.750] And he said, "I'm investing $10 billion in the US,"
+- [06:29.050] and you know who I'm talking about. Right?
+- [06:31.450] You introduced me, Mr. senator. You introduced me originally
+- [06:36.000] when you were the ambassador to Japan.
+- [06:38.280] He's still good. He's still strong,
+- [06:39.590] but he had no interest in investing in this country.
+- [06:42.850] Now, he's investing 10 billion
+- [06:44.380] as of one week ago in building new plants.
+- [06:47.080] We have auto plants coming in incredibly,
+- [06:48.800] but we have AI and all of them.
+- [06:51.200] And we can't be extorted to give $1.5 trillion
+- [06:57.080] to people that came into the country illegally.
+- [06:58.920] Many from prisons, many drug dealers,
+- [07:01.850] a lot of people came in from mental institutions.
+- [07:06.310] They want to give a lot of money
+- [07:07.550] to the people that came in illegally.
+- [07:09.000] We have to get them out. No country can sustain that.
+- [07:12.100] That's like an attack on our country, and no country --
+- [07:14.610] These are not going to be productive people.
+- [07:16.330] These are going to be anti-productive people.
+- [07:18.920] And we can all have big hearts,
+- [07:20.730] I have a bigger heart than anybody,
+- [07:21.960] but we can't let that happen.
+- [07:24.210] It's time for Republicans to do what they have to do
+- [07:26.530] and that's terminate the filibuster.
+- [07:27.970] It's the only way you can do it.
+- [07:30.020] And if you don't terminate the filibuster,
+- [07:31.610] you'll be in bad shape. We won't pass any legislation.
+- [07:35.410] There'll be no legislation passed for three
+- [07:37.060] and a quarter --
+- [07:38.320] We have three and a quarter years, so that's a long time.
+- [07:41.220] But when they can't do an extension --
+- [07:43.200] And John, I think they've done an extension every single time
+- [07:45.790] they've ever been asked forever.
+- [07:47.890] This is the first time they haven't done an extension.
+- [07:49.880] Extensions are supposed to be easy,
+- [07:51.470] but if they won't do an extension,
+- [07:52.820] they won't do any bill, even a simple bill.
+- [07:55.360] And we should do our own bills.
+- [07:56.600] We should get out, we should do our own bills,
+- [07:59.160] we should open up. We should start tonight with,
+- [08:02.730] "The country's open, congratulations."
+- [08:04.590] Then we should pass voter ID.
+- [08:08.150] We should pass no mail-in voting.
+- [08:09.900] We should pass all the things that we wanted to pass,
+- [08:11.980] make our election secure and safe
+- [08:13.530] because California is a disaster.
+- [08:16.280] Many of the states are disasters.
+- [08:18.310] But can you imagine when they vote
+- [08:19.730] almost unanimously against voter ID.
+- [08:22.850] All we want is voter ID.
+- [08:24.520] You go to a grocery store, you have to give ID.
+- [08:26.970] You go to a gas station, you give ID,
+- [08:29.350] but for voting, they want no voter ID.
+- [08:31.430] It's only for one reason, because they cheat.
+- [08:33.850] We would pass that in 15 minutes.
+- [08:36.650] If you don't get it, you'll never pass that.
+- [08:38.710] You'll never talk about mail-in ballots.
+- [08:41.130] Mail-in ballots make it automatically corrupt.
+- [08:43.330] If you have mail-in ballots, automatically it's correct.
+- [08:45.710] Even Jimmy Carter, they had the Carter Commission
+- [08:48.400] after he got out of office
+- [08:49.740] and he had a group of very distinguished people,
+- [08:51.830] Democrats and Republicans, and they passed --
+- [08:54.830] They recommended things take place.
+- [08:56.620] It was a long time ago,
+- [08:58.360] and they said about mail-in ballots,
+- [09:00.110] "If there is mail-in ballots,
+- [09:01.550] there will definitely be corruption
+- [09:03.020] because they pass through too many hands."
+- [09:06.140] You go into vote and they want your card.
+- [09:08.220] Even me, I went into Palm Beach, you go into vote,
+- [09:11.040] they want your card, you're this, you're that.
+- [09:13.430] They say, "I'm sorry to do this, sir,
+- [09:14.710] but I have to look at your identification."
+- [09:16.650] I said, "That's all right. I love that."
+- [09:19.730] But you're really not going to get away with much.
+- [09:22.370] It was very, very professional, very good,
+- [09:24.720] the way it's supposed to be.
+- [09:26.370] But these people don't want that.
+- [09:28.260] They have legislation in California
+- [09:30.890] where it's illegal to ask somebody for voter ID.
+- [09:34.930] If you ask somebody for voter ID,
+- [09:37.520] if you're an official and you say,
+- [09:38.980] "I'd like to see your voter ID," they can arrest you.
+- [09:42.770] Okay? They can arrest you,
+- [09:45.210] because they want to cheat and they get away with it,
+- [09:47.940] and the Republicans let them get away with it,
+- [09:49.950] and we won't do that if we have the filibuster.
+- [09:52.690] So we're going to talk about that a little bit
+- [09:55.610] and we're going to see if we can sway,
+- [09:57.770] because I know we have a lot of --
+- [09:59.660] Not a lot. I'd say half feel this way,
+- [10:01.610] maybe a little bit less than half,
+- [10:04.010] and it's time to have a really good talk.
+- [10:06.600] If I thought that they weren't going to pass the filibuster,
+- [10:09.380] I wouldn't even bring it up.
+- [10:10.660] They're going to pass it within the first hour.
+- [10:13.550] If they take power, and it's more likely
+- [10:16.130] that they take power if we don't do it,
+- [10:17.730] because we're not going to be passing any legislation,
+- [10:19.640] not going to approve anything.
+- [10:20.850] We're going to go three and a quarter years.
+- [10:22.210] There won't be one bill that we're going to pass,
+- [10:24.810] because the easiest thing to pass
+- [10:26.290] is exactly right now what they won't pass.
+- [10:29.650] And they'll do that and they'll wreak havoc,
+- [10:31.820] but let's assume they get in.
+- [10:33.370] They're doing it anyway, so it wouldn't matter.
+- [10:35.730] They're doing it anyway.
+- [10:37.370] And I have a case where I have great US attorneys
+- [10:40.140] that can't be approved because of the blue slips.
+- [10:41.770] The blue slips,
+- [10:43.010] I think you should terminate blue slips, too.
+- [10:45.130] It's a mental termination because it's really a custom.
+- [10:48.370] But if you have a Democrat senator or two, two is bad,
+- [10:53.270] but it doesn't make any difference.
+- [10:54.590] If you have one senator who a negative letter
+- [10:56.670] on some great US attorney.
+- [10:58.360] We had it in Manhattan Southern District, Jay Clayton,
+- [11:01.610] one of the most respected lawyers
+- [11:03.990] in the whole country by far,
+- [11:05.580] one of the most respected, and couldn't get approved.
+- [11:10.380] The courts approved him. The courts couldn't believe it.
+- [11:12.410] They did it instantly.
+- [11:14.680] He went to the best schools, got the best marks,
+- [11:16.940] top of his class, everything was perfect.
+- [11:19.530] He led the perfect light. Went to Sullivan & Cromwell,
+- [11:23.090] almost immediately became the head of Sullivan & Cromwell,
+- [11:26.180] the most prestigious law firm,
+- [11:28.730] I would say in the country just about.
+- [11:31.660] Whether it's Sullivan or two or three, I could name,
+- [11:33.730] but Sullivan, I would say really maybe number one.
+- [11:37.040] He was the head of Sullivan & Cromwell for like 20 years.
+- [11:40.320] He went to the SEC was flawless. He did it for me.
+- [11:43.180] He was the SEC chairman. He was flawless.
+- [11:47.210] Then he went to Apollo where he was the chairman of Apollo
+- [11:52.500] and was flawless. Everything went good.
+- [11:54.640] The stock went through the roof and everything.
+- [11:56.260] I asked him to go to the Southern District
+- [11:58.800] and he said, "I'll do what you'd like to do, sir."
+- [12:00.710] This is a very high-quality person,
+- [12:02.750] but he couldn't get approval from Schumer.
+- [12:05.960] Schumer didn't approve him.
+- [12:07.610] The best student, the best schools, everything.
+- [12:09.790] He's like flawless. And the courts actually said,
+- [12:13.820] "You're not approving Jay Clayton?"
+- [12:15.970] Right, Lindsey? You heard this.
+- [12:17.360] The courts actually interceded and they approved him,
+- [12:21.100] but that's an unusual guy.
+- [12:22.940] We have other people that are really good,
+- [12:24.550] but people don't know how good, top students, top colleges,
+- [12:30.050] and they're US attorneys and they won't be approved.
+- [12:33.830] They're not going to be approved.
+- [12:35.350] We have one in Los Angeles who's phenomenal,
+- [12:38.180] but the senators, the Democrats are, again, they're kamikazes.
+- [12:43.500] The Democrats are not going to approve him.
+- [12:46.020] Blue slips are a disaster,
+- [12:47.810] so the only people I can get approved are Democrats.
+- [12:50.590] I was told that by the Democrats,
+- [12:52.060] "We'll only approve Democrats."
+- [12:54.160] I said, "Really? Is that right? Not going to work that way.
+- [12:56.720] Not going to work that way with me."
+- [12:58.770] But the blue slips are a total disaster.
+- [13:01.810] I have 10 people right now that are doing a phenomenal job,
+- [13:06.340] and they will be out of office pretty soon.
+- [13:08.380] They've got another two, three weeks, a couple of them,
+- [13:10.290] and then they're going to have to leave.
+- [13:12.720] And it's actually a blight on their record
+- [13:15.170] because nobody knows why they left,
+- [13:17.130] but it looks like they served eight weeks
+- [13:19.780] and then they had to leave,
+- [13:21.010] but they're not going to get the approval
+- [13:22.620] because the Democrat radical-left
+- [13:25.460] lunatic senators are saying, "We're not going to approve you,
+- [13:30.580] and if we're not going to approve you" --
+- [13:32.210] I had actually one Republican who got two great letters,
+- [13:35.220] but it turned out that he was a rhino,
+- [13:38.130] but that was a nice term for him.
+- [13:40.070] Now, he got two letters of approval,
+- [13:42.790] and when I said two Democrats approved him,
+- [13:44.690] I had to fire him because I figured
+- [13:46.070] if two Democrats approved him --
+- [13:47.700] They wrote the most beautiful letters.
+- [13:49.090] I found out, "Man, this is strange,"
+- [13:52.030] and he was no good. I fired him.
+- [13:55.470] He was really not much of a Republican.
+- [13:57.280] The recommendation of that one
+- [13:58.710] wasn't such a good recommendation.
+- [14:00.400] Someday, I'll tell you who recommended him,
+- [14:01.920] but it wasn't exactly the best.
+- [14:03.890] But when I saw the two senators from Virginia
+- [14:08.290] gave him glowing marks, Tim, I said, "Let me see this."
+- [14:12.090] I read the most beautiful letters I've ever seen
+- [14:14.920] and I called him up,
+- [14:16.470] I said, "Sorry, you're fired. Get the hell out of here."
+- [14:19.830] But it's a horrible thing. Blue slips is a horrible thing,
+- [14:22.760] because I have the right to pick judges
+- [14:24.600] and I have the right to pick US attorneys,
+- [14:27.360] and this takes away the right from me,
+- [14:29.450] and I think we're going to go to court on it
+- [14:31.070] and we'll see what happens in court.
+- [14:33.410] But it takes away the right of the president
+- [14:37.340] to pick people to serve on the court
+- [14:39.960] and to serve as US attorneys, which is very important.
+- [14:43.210] But the biggest thing is the filibuster.
+- [14:45.680] We have to get the country going.
+- [14:47.700] We will pass legislation at levels you've never seen before
+- [14:51.640] and it'll be impossible to beat us.
+- [14:53.270] By the way, if they do, they're going to do it anyway,
+- [14:56.840] and they are going to immediately do the filibuster.
+- [14:59.090] And when they do the filibuster, they're going to pack the court.
+- [15:02.040] They at least five justices. Now I hear it's up to five.
+- [15:06.120] I actually heard up to seven and up to nine.
+- [15:09.650] They want new judges, they want to pack the court,
+- [15:12.140] and they will do it first day.
+- [15:14.520] Maybe the week, maybe they'll slow it down
+- [15:17.780] because there's no reason to rush,
+- [15:19.720] but they'll do it first week, they'll vote on this.
+- [15:22.280] And I have friends over there that are Democrats very --
+- [15:25.160] I'm close to a lot of people,
+- [15:28.050] and I asked them about that because some people say,
+- [15:30.150] "Well, maybe they won't do that."
+- [15:31.660] They destroyed the career of Manchin and Sinema
+- [15:35.010] and they got them out there.
+- [15:36.220] We're the only objectors. Nobody else is going to object.
+- [15:38.520] They're going to do it the first day.
+- [15:40.140] They're going to pack the court. They're going to make D.C.
+- [15:43.460] a state and they're going to make Puerto Rico a state.
+- [15:46.720] So now, they pick up two states. They pick up four senators.
+- [15:50.390] Okay. You think you have problems.
+- [15:52.540] They're going to do all of the things,
+- [15:54.090] they're going to pick up electoral votes.
+- [15:56.330] It's going to be a very, very bad situation.
+- [15:59.010] And it's done. It's done. As soon as they attain power.
+- [16:02.240] Now, if we do what I'm saying,
+- [16:04.510] they'll most likely never attain power,
+- [16:06.520] because we will have passed every single thing
+- [16:09.500] that you can imagine that it's good
+- [16:11.790] and all good for the country, and there'll be no reason to it.
+- [16:14.960] If we don't do that, people will say,
+- [16:18.290] "They're not doing much and they're in power."
+- [16:21.090] So the good news is we did the Great Big Beautiful Bill,
+- [16:24.110] and it's the greatest thing we could have done.
+- [16:26.440] And the smartest thing with John and our Speaker of the House,
+- [16:31.140] who's so good, Mike, Mike Johnson,
+- [16:34.130] we did all in one bill.
+- [16:36.950] If we didn't, John, it would be a problem
+- [16:38.590] because we would've gotten a small piece passed.
+- [16:40.920] A lot of people wanted to do that,
+- [16:42.170] a lot of people in the room wanted to do that.
+- [16:43.570] They went along with me and John and everybody,
+- [16:46.650] and we got this thing passed.
+- [16:48.910] Honestly, it's four years worth of goodies,
+- [16:51.820] and no tax on tips, no tax on social security, no tax on --
+- [16:56.690] Think of it, no tax on overtime. It's an unbelievable tax
+- [17:00.770] cut for the workers and for business,
+- [17:03.300] where business is going to create jobs, and we are.
+- [17:05.420] We're creating jobs at levels that nobody's ever seen before.
+- [17:08.150] All these things are good.
+- [17:09.400] We have to be able to get the word out.
+- [17:10.990] If we don't get the word out, we're making a very big mistake.
+- [17:14.180] So I have this long, beautiful and very boring speech.
+- [17:16.400] I won't bother reading it,
+- [17:19.320] 'cause we can just start talking.
+- [17:20.730] And I think it's very important, we have to get the country open,
+- [17:24.250] and the way we're going to do it this afternoon
+- [17:26.170] is to terminate the filibuster.
+- [17:28.730] And it's possible you're not going to do that,
+- [17:30.470] and I'm going to go by your wishes.
+- [17:31.670] You're very smart people. We're good friends.
+- [17:34.330] But I think it's a tremendous mistake, really.
+- [17:36.320] It would be a tragic mistake, actually.
+- [17:39.220] It's time. It's time.
+- [17:41.410] If I thought they weren't going to approve,
+- [17:43.820] I'd sort of be with you.
+- [17:45.150] I'd be fine. I'd be neutral to with you.
+- [17:48.110] But knowing that they're going to pass it
+- [17:49.780] as soon as they get any semblance of control,
+- [17:53.000] they'll pass it first thing,
+- [17:54.510] then it's like we have to do it first.
+- [17:56.240] And we have two years, and we will end up with two,
+- [17:59.330] three years and we'll have this country so perfect.
+- [18:02.860] We will have passed more legislation than any congress
+- [18:05.860] and any group of senators or a group of congressmen,
+- [18:10.280] and we will get it through.
+- [18:11.940] They'll send it to us, we'll send it to them.
+- [18:14.190] It'll be a beautiful machine.
+- [18:16.500] Otherwise, we're just going to sit around and argue
+- [18:19.130] with these people all day long, and they're highly unrealistic.
+- [18:22.960] Highly unrealistic.
+- [18:24.220] Many of them are radical left subversives, frankly.
+- [18:29.310] So, I want to thank everybody, and we're going to talk.
+- [18:31.990] And I want to thank the press for treating us
+- [18:34.510] so really well for that foreign trip.
+- [18:37.220] We had just an amazing meeting. Don't forget, two months ago
+- [18:41.710] it looked like the whole world was in trouble over rare earth,
+- [18:45.210] and that's no longer even a subject of people talk about.
+- [18:48.120] It was all worked out very quickly.
+- [18:50.010] Without tariffs, I couldn't have done it.
+- [18:52.440] I put a 100 percent tariff on China.
+- [18:54.460] As soon as I heard it, within 20 minutes,
+- [18:56.100] I put a 100 percent tariff on China,
+- [18:59.850] on President Xi, who's really a friend of mine.
+- [19:02.120] As much as he could be a friend, he's a tough man.
+- [19:04.620] He's a tough man, smart man, actually, very smart.
+- [19:08.610] The press doesn't like it when I call him very smart.
+- [19:11.110] They think I'm not supposed to call him smart,
+- [19:12.970] but at least 1.4 billion people, without question.
+- [19:17.040] In fact, during the meeting we were there,
+- [19:19.300] a couple of you were there and some of you saw it.
+- [19:23.090] So he's here and he's got about six people on each side,
+- [19:26.480] and every one of those people was standing like this.
+- [19:30.010] They were in attention.
+- [19:31.790] And I made a comment to one of them and I got no response.
+- [19:35.040] I said, "Are you going to answer me?" I got no response.
+- [19:38.040] And President Xi didn't let him have any --
+- [19:40.290] So, if there's any question, I said,
+- [19:42.630] "I want my cabinet to behave like that."
+- [19:45.640] I'm demanding that my cabinet --
+- [19:46.880] I want them sitting up like that,
+- [19:48.280] Tim, just nice and straight. I never saw a posture like that.
+- [19:50.990] I've never seen men so scared in their lives.
+- [19:54.750] They have the equivalent of a vice president.
+- [19:58.910] I said, "Are you going to answer my question?"
+- [20:01.480] And he doesn't move.
+- [20:02.700] I said, "What's wrong with this guy?"
+- [20:03.930] "I will answer all questions." Why don't you behave like that?
+- [20:07.780] JD doesn't behave like that. JD butts into conversations.
+- [20:12.870] I want to have that for at least a couple of days, okay, JD?
+- [20:16.780] We'll keep you long-term,
+- [20:18.630] but a couple of days of that would be very, very nice.
+- [20:22.930] Okay, I want to thank you, and we'll talk a little bit.
+- [20:25.330] And I see they set me up with a podium.
+- [20:28.390] I thought I'd just be sitting, but it's probably easier.
+- [20:31.060] I want to thank you all very much.
+- [20:32.430] Thank you to the press, and you can go
+- [20:33.960] and we'll speak to you later. Thank you.
+- [20:35.290] I'm going to Miami to make a speech today at a big group,
+- [20:39.150] and we have a nice big crowd. And we'll see you there,
+- [20:41.610] a lot of you are traveling down with me.
+- [20:43.040] Thank you very much.

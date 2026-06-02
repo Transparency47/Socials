@@ -1,0 +1,1104 @@
+<!-- source: https://www.youtube.com/watch?v=E9KW7xNK02E -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: E9KW7xNK02E -->
+<!-- date_published: 2025-06-03T17:58:22+00:00 -->
+<!-- date_accessed: 2026-06-02T02:48:59.586585+00:00 -->
+
+# Transcript: Press Secretary Karoline Leavitt Briefs Members of the Media, June 3, 2025
+
+- [00:07.980] Karoline Leavitt: Good afternoon, everybody.
+- [00:10.060] How are you? Good. Good to see all of you.
+- [00:13.480] I want to start by addressing the horrific act
+- [00:16.530] that took place on Sunday in Boulder, Colorado.
+- [00:19.860] President Trump and the entire administration's hearts
+- [00:22.390] go out to the victims
+- [00:23.660] and they are in our prayers during this unimaginable time.
+- [00:27.060] According to reporting from Fox News,
+- [00:28.860] the alleged attacker admitted in an interview
+- [00:31.300] that he wanted to kill all Zionist people
+- [00:34.130] and had been planning the attack for over a year
+- [00:37.020] and would do it again if he could.
+- [00:39.260] This monster used a makeshift flamethrower
+- [00:41.820] and Molotov cocktails to light Jewish Americans on fire
+- [00:45.680] in an attempt to burn them alive.
+- [00:48.360] The victims at the incident location in Boulder
+- [00:50.420] were there to rally in support of Israeli hostages
+- [00:52.870] who remain in Hamas captivity.
+- [00:54.980] Twelve were injured, including a Holocaust survivor.
+- [00:58.800] This is pure evil.
+- [01:00.280] The Department of Justice has already filed
+- [01:02.180] federal hate crime charges against the alleged perpetrator
+- [01:05.290] and he will be held accountable
+- [01:06.580] to the fullest extent of the law.
+- [01:08.240] The Boulder Attack and Immigration Policy
+- [01:09.860] This tragedy is a sobering reminder of the consequences
+- [01:13.030] of the Biden administration's failed policies.
+- [01:15.970] According to the Department of Homeland Security,
+- [01:18.340] the Boulder suspect is an Egyptian national
+- [01:20.650] who was in the United States illegally.
+- [01:23.230] He entered the U.S. during the Biden administration
+- [01:25.860] in August 2022 on a B-2 visa until it expired.
+- [01:30.110] Upon the visa expiration, he overstayed,
+- [01:32.810] filed an asylum claim
+- [01:34.080] and was given a work authorization
+- [01:35.680] by the Biden administration.
+- [01:37.770] Instead of deporting this heinous individual,
+- [01:40.510] Joe Biden's administration allowed him to stay
+- [01:42.870] in our country and to work.
+- [01:44.850] President Trump sounded the alarm
+- [01:46.480] over these reckless Biden policies for years
+- [01:48.960] because this is the predictable result
+- [01:51.090] of letting anti-American radicals
+- [01:53.010] and illegal immigrants pour into our country.
+- [01:56.290] Immigration security is national security
+- [01:59.670] and that's why the Trump administration,
+- [02:01.700] at the direction of our great president,
+- [02:03.460] has secured our border,
+- [02:04.840] strengthened our immigration system
+- [02:06.420] and has taken immediate steps to protect the United States
+- [02:09.450] from foreign terrorists and other public safety threats.
+- [02:12.450] President Trump acted swiftly upon taking office
+- [02:15.060] to reform our visa issuance process
+- [02:17.670] to ensure that dangerous aliens
+- [02:19.430] who are intent on harming Americans
+- [02:21.750] or our national security interests
+- [02:23.440] are no longer admitted into our country.
+- [02:26.920] Under the Trump administration,
+- [02:28.260] aliens will only be admitted into the United States
+- [02:30.750] through the legal process and only if they do not bear
+- [02:34.050] hostile attitudes towards our citizens,
+- [02:36.890] our culture, our government, our institutions,
+- [02:39.930] or most importantly, our founding principles.
+- [02:42.720] Under President Trump, the United States has zero tolerance
+- [02:45.560] for foreign visitors who support terrorism.
+- [02:49.060] Violators of U.S. law, including international students,
+- [02:51.990] will continue to face visa
+- [02:53.560] denial or revocation and deportation.
+- [02:57.010] And illegal alien criminals will continue to be arrested
+- [02:59.640] and deported from our country.
+- [03:02.060] On that note, ICE and federal law enforcement partners
+- [03:05.030] just wrapped up a month-long surge operation
+- [03:07.490] arresting nearly 1,500 illegal aliens
+- [03:10.030] in the Commonwealth of Massachusetts.
+- [03:12.470] During the enhanced operation, dubbed Operation Patriot,
+- [03:15.740] ICE Boston and other federal law enforcement personnel
+- [03:18.430] focused on transnational organized crime, gangs,
+- [03:21.650] and dangerous illegal alien offenders throughout Mass.
+- [03:25.060] More than half of the nearly 1,500 illegals
+- [03:27.410] arrested had significant criminal convictions or charges
+- [03:30.370] pending against them.
+- [03:31.940] Here are just some of the violent illegal aliens
+- [03:34.010] who were removed from communities in Massachusetts
+- [03:36.780] during Operation Patriot:
+- [03:39.070] A Salvadorian national with active Interpol
+- [03:41.570] red notice for aggravated homicide.
+- [03:44.250] A Guatemalan national, a registered sex
+- [03:46.700] offender who had pending criminal charges in Boston
+- [03:49.610] for five counts of indecent assault and battery
+- [03:52.120] on a person 14 or over.
+- [03:55.260] A Honduran national who was last arrested for rape,
+- [03:59.000] indecent assault, and battery of a person 14 or over.
+- [04:03.100] A Colombian national charged with kidnapping,
+- [04:05.690] aggravated rape, and indecent assault and battery
+- [04:08.290] on a person 14 or over.
+- [04:10.960] A Guatemalan national who was convicted of murder in Boston.
+- [04:15.060] Also, a Brazilian national who was charged
+- [04:17.610] with aggravated rape of a child
+- [04:19.030] by force in possession of child pornography.
+- [04:21.810] Again, these are people who are living
+- [04:23.780] in the Commonwealth of Massachusetts.
+- [04:26.000] And lastly, a Salvadorian national
+- [04:28.080] whose criminal history includes charges
+- [04:30.450] of aggravated rape of a child by force.
+- [04:33.930] I don't think anybody in this room
+- [04:35.460] wants these types of heinous criminals in your communities.
+- [04:38.980] And it's thanks to this administration
+- [04:40.400] that they are being removed from our country.
+- [04:43.130] When Democrat-run jurisdictions release violent
+- [04:45.380] illegal alien criminals back into communities
+- [04:47.610] after making arrests instead of turning them
+- [04:49.580] over to federal immigration enforcement like they should,
+- [04:52.730] those Democrats are putting law-abiding Americans at risk.
+- [04:56.410] And these insane policies force law enforcement officials
+- [04:59.090] to make much more difficult arrests that put their lives,
+- [05:02.350] our law enforcement lives, in jeopardy.
+- [05:04.840] President Trump is incredibly grateful
+- [05:06.660] for our heroic officers on the front lines
+- [05:09.060] getting these violent illegal alien invaders
+- [05:11.590] out of our communities.
+- [05:13.180] Law and order is back in America under President Trump.
+- [05:16.870] And on that same note, there are new crime statistics
+- [05:20.830] that show crime is plummeting.
+- [05:23.030] In fact, Politico summed it up like this:
+- [05:26.710] Murder rates are tumbling across the U.S. in 2025.
+- [05:30.560] Dead stats are down at least 20 percent over last year.
+- [05:34.620] And we could be on course for the lowest number on record.
+- [05:38.620] With President Trump in charge,
+- [05:40.280] the days of criminals being put over victims are over.
+- [05:43.760] On the topic of immigration, the Washington Post just ran
+- [05:47.600] one of the most ridiculous headlines ever,
+- [05:50.290] even by their standards.
+- [05:51.520] And on my very first briefing several months ago,
+- [05:54.620] I said I would hold anyone accountable in this room.
+- [05:57.410] The Washington Post actually had this headline,
+- [05:59.540] "The mysterious drop in fentanyl seizures
+- [06:02.630] on the U.S.-Mexico border." How is this mysterious?
+- [06:06.150] There is no mystery about why there is a decrease in fentanyl
+- [06:09.620] coming into the United States.
+- [06:11.330] This administration's strong border policies
+- [06:13.520] are the reason there has been a decrease
+- [06:15.330] in fentanyl trafficking.
+- [06:16.550] His strengthened relationship with Mexican President Shinbon
+- [06:20.820] and all of the measures he has been taking
+- [06:22.600] to deter illegal human and drug trafficking
+- [06:25.720] at our United States southern border
+- [06:27.190] is the reason for plummeting fentanyl seizures
+- [06:30.540] at the U.S. border.
+- [06:31.770] There is nothing mysterious about that,
+- [06:33.460] and we'd like to see the Washington Post
+- [06:35.390] update their headline accordingly.
+- [06:37.420] This is clearly trying to intentionally manipulate
+- [06:40.290] the minds of Americans,
+- [06:42.180] and I think the American people understand
+- [06:43.920] why there's been a fentanyl drop.
+- [06:45.710] In our office, we responded to this inquiry,
+- [06:48.130] we provided a whole host of the reasons
+- [06:50.690] that fentanyl seizures at the southern border have dropped,
+- [06:52.990] and the Washington Post refused to run them.
+- [06:55.040] That's despicable.
+- [06:56.640] In other news, positive economic reports continue to flood in.
+- [06:59.900] Inflation dropped to 2.1 percent in April.
+- [07:02.720] Personal income increased 0.8 percent in April.
+- [07:05.790] So inflation is down and wages are up.
+- [07:07.910] That's almost triple the expectations
+- [07:10.480] and against the doubts of nearly everyone in this room.
+- [07:13.220] And we also saw the largest monthly decline
+- [07:15.270] in the trade deficit on record
+- [07:16.820] as a result of President Trump's very powerful tariffs.
+- [07:20.240] Lastly, the price of eggs has dropped more than 61 percent
+- [07:24.030] since President Trump took office in January.
+- [07:26.320] I remember my very first briefing,
+- [07:27.890] I was asked about the cost of eggs.
+- [07:29.920] The reporter tried to insinuate
+- [07:31.240] it was this administration's fault,
+- [07:32.810] even though he'd only been here for a few days or weeks.
+- [07:36.290] It was a result of the previous administration's
+- [07:38.570] terrible policies, and in record time,
+- [07:40.420] this president has fixed that problem
+- [07:42.050] that he inherited from Joe Biden,
+- [07:44.070] and now egg prices have dropped 61 percent
+- [07:47.210] since this president took office.
+- [07:49.010] There's a lot of good news,
+- [07:50.280] and I'm sure you have a lot of questions, so let's get to them.
+- [07:52.850] We have Just the News in our new media seat today, Amanda Head.
+- [07:56.700] Thank you for being with us. Why don't you kick us off?
+- [07:58.680] The Press: Sure. Thank you so much.
+- [08:00.250] There is a disturbing trend of anti-Semitism
+- [08:02.910] turning into terrorism, of course, the Boulder,
+- [08:05.210] Colorado incidents that you just mentioned,
+- [08:07.620] the two Israeli embassy staffers who were murdered,
+- [08:10.790] Pennsylvania governor's mansion with the Jewish governor
+- [08:12.950] inside getting set on fire.
+- [08:15.030] Does the president consider this domestic terrorism,
+- [08:17.840] and as such, are there official alerts to law enforcement,
+- [08:21.170] BOLOs, task forces, things like that?
+- [08:23.680] Karoline Leavitt: The president has made it very clear,
+- [08:25.180] as he said in his statement yesterday,
+- [08:26.910] that yes, these anti-Semitic acts of violence
+- [08:31.060] do qualify as terrorism,
+- [08:32.790] and he does not want to see terrorism or violence
+- [08:35.260] of any form taking place in the United States of America,
+- [08:38.570] and as for specifically anti-Semitic terrorism
+- [08:41.120] and anti-Semitic acts of violence
+- [08:43.150] and those that are targeting Jewish Americans,
+- [08:45.120] this administration has done more to combat that violence
+- [08:48.280] than any administration in history,
+- [08:50.410] and one incident is one too many,
+- [08:52.010] and I think, frankly,
+- [08:53.220] that's something the previous administration
+- [08:55.170] was not willing to say.
+- [08:56.690] This president will stand up for Americans of all religions,
+- [08:59.600] of all faiths, of all creeds,
+- [09:01.660] and we will continue to look at policy measures
+- [09:05.300] and actions that we can take,
+- [09:06.660] in addition to the actions that have already been taken
+- [09:08.920] to curb this anti-Semitic violence,
+- [09:10.570] and to Jewish Americans at home, across the country,
+- [09:13.930] this president has your back.
+- [09:16.510] The Press: On another issue, back in February,
+- [09:18.770] Secretary Kennedy created a commission
+- [09:20.720] to re-examine the childhood vaccine schedule,
+- [09:23.850] but there are still states outstanding,
+- [09:25.420] like California, Connecticut, Maine,
+- [09:27.110] that are not allowing any religious exemptions for kids
+- [09:30.070] not only to go to school,
+- [09:31.340] but to participate in sports and extracurricular activities.
+- [09:34.660] Would the president want to see religious exemptions
+- [09:37.530] allowed across all 50 states, and how do you enforce that,
+- [09:41.450] especially with states like California,
+- [09:43.060] that are already defying the president
+- [09:44.800] on the men and women's sports agenda?
+- [09:46.240] Karoline Leavitt: Generally speaking,
+- [09:47.470] I know the president supports religious exemptions
+- [09:49.720] for families when it comes to vaccinations.
+- [09:52.180] As for the instances in those specific states,
+- [09:55.200] I'll have the administration and the White House look into it
+- [09:57.710] and see what executive action,
+- [09:59.400] if any, we can take on that front.
+- [10:01.100] Thank you.
+- [10:03.160] The Press: Good afternoon. We're now in hurricane season,
+- [10:06.980] and obviously there is great concern every year
+- [10:11.180] about the potential for that.
+- [10:12.580] Can you speak to how the president is planning
+- [10:16.070] to have the level of support, should it be needed,
+- [10:21.520] to be as it has been with a reduction in the workforce,
+- [10:24.430] and is he still comfortable with Administrator Richardson,
+- [10:27.540] who had talked, whether joking or not,
+- [10:29.670] about not being aware of a hurricane season
+- [10:31.840] for this country?
+- [10:33.050] What is the president's level of briefings
+- [10:35.730] on what may be required?
+- [10:37.360] If you could give us kind of an overall update on that.
+- [10:39.140] Karoline Leavitt: Sure.
+- [10:40.360] Well, of course, we know that we are into hurricane season now,
+- [10:43.470] and I know FEMA is taking this seriously,
+- [10:47.300] contrary to some of the reporting we have seen
+- [10:49.700] based on jokes that were made and leaks from meetings.
+- [10:53.010] But Secretary Kristi Noem
+- [10:54.610] and the FEMA leadership are all over this.
+- [10:57.010] They are committed to ensuring that federal resources
+- [10:59.320] and tax dollars are there for Americans in need,
+- [11:02.260] and the president continues to review requests
+- [11:04.310] for emergency aid and carefully considering them.
+- [11:07.220] However, this president has made it clear
+- [11:09.080] we're not going to enable states to make bad decisions
+- [11:11.770] with federal tax dollars
+- [11:13.010] and then have the federal government later
+- [11:14.590] have to bail these states out.
+- [11:16.500] We want to see states be responsible
+- [11:19.090] with their tax dollars to do as much as they possibly can,
+- [11:21.690] and then the president will deeply
+- [11:23.490] and thoughtfully consider any requests for federal aid
+- [11:27.090] that come to his desk.
+- [11:29.000] And I think some of the media reporting we've seen on this
+- [11:31.680] is, frankly, sloppy and irresponsible.
+- [11:34.020] There are serious people who are taking this issue seriously,
+- [11:37.810] starting with the president himself, who, as you know,
+- [11:39.980] on his first domestic trip back in office,
+- [11:42.330] visited both North Carolina and California,
+- [11:45.900] both of which were, of course, hit by natural disasters
+- [11:48.780] when he wasn't even president.
+- [11:50.010] But he took ownership of that and visited those places
+- [11:52.740] and those people immediately.
+- [11:54.270] The Press: Thank you, Karoline.
+- [11:55.490] Reuters was reporting that there is a letter
+- [12:08.380] that is meant to be sent to other countries
+- [12:11.320] which would give these countries a deadline of Wednesday
+- [12:14.740] to produce their best offer on the trade matter.
+- [12:18.520] Why does the administration feel the need to send this letter?
+- [12:21.770] And I have one more follow-up on trade.
+- [12:23.190] Karoline Leavitt: I can confirm the merits
+- [12:24.560] and the content of the letter.
+- [12:26.260] USTR sent this letter to all of our trading partners
+- [12:29.110] just to give them a friendly reminder
+- [12:31.170] that the deadline is coming up. And they are in talks,
+- [12:34.890] Ambassador Greer, Secretary Bessent,
+- [12:36.500] Secretary Lutnick are in talks with many of our key
+- [12:39.010] trading partners around the globe,
+- [12:40.540] as you know, Brian, I know the Wall Street Journal
+- [12:42.490] has covered this quite heavily.
+- [12:44.380] And they continue to be engaged in those discussions.
+- [12:47.220] And this letter was simply to remind these countries
+- [12:49.960] that the deadline is approaching
+- [12:51.190] and the President expects good deals
+- [12:52.740] and we are on track for that, I will emphasize.
+- [12:55.220] The Press: On the trade side, though,
+- [12:56.570] the deal with the United Kingdom,
+- [12:58.110] there was this idea of a reprieve on the auto tariffs.
+- [13:02.310] Is the President looking to do another similar deal
+- [13:05.790] on the sector-by-sector reduction tariffs?
+- [13:08.830] Or is this more going to be deals related
+- [13:10.880] to the reciprocal tariffs that were announced months ago?
+- [13:14.090] Karoline Leavitt: Well, as I've said previously
+- [13:15.330] from the podium
+- [13:16.560] and the President has discussed as well,
+- [13:18.060] each country has unique advantages,
+- [13:20.370] unique challenges to it based on their markets
+- [13:22.800] and what they export to us and what we export to them.
+- [13:25.080] And so that's why the President smartly advised his trade team
+- [13:29.140] to engage in tailor-made deal-making.
+- [13:31.850] And we saw that with the United Kingdom
+- [13:34.140] and we will see that with other countries as well.
+- [13:38.040] The Press: Does the President support the Senate
+- [13:39.580] moving forward with the bill
+- [13:40.990] imposing heavy sanctions on Russia?
+- [13:43.100] Karoline Leavitt: Look, the President has spoken
+- [13:44.520] about his position on sanctions on Russia.
+- [13:46.890] He has smartly kept this as a tool in his toolbox
+- [13:48.950] if necessary.
+- [13:50.300] But I think the Senate and everyone on Capitol Hill
+- [13:53.050] respects the President as the Commander-in-Chief for a reason.
+- [13:56.280] And as you know, Russia and Ukraine
+- [13:57.770] engaged in direct talks yesterday.
+- [13:59.620] That was at the encouragement of this President
+- [14:02.100] when he spoke to both leaders of both countries
+- [14:04.960] via phone just a couple of weeks ago.
+- [14:07.450] And so I would just like to remind everybody
+- [14:10.460] how far we have come in just four months.
+- [14:12.620] I mean, it was inconceivable last year at this time
+- [14:15.570] for Russia and Ukraine to be engaged in direct talks.
+- [14:18.680] And it's because of the President's insistence
+- [14:20.650] and determination to get this war to an end
+- [14:23.090] that these countries sat down yesterday.
+- [14:24.920] So he's willing to use sanctions if he needs them.
+- [14:27.430] And the Senate and Capitol Hill understand
+- [14:30.400] that the President is the Commander-in-Chief
+- [14:31.890] and he's leading United States foreign policy as he should.
+- [14:34.850] The Press: And on Iran, the President said that the U.S.
+- [14:36.830] would not allow for any uranium enrichment.
+- [14:39.740] The proposal offered to the Iranians
+- [14:42.380] reportedly allows for low levels of enrichment.
+- [14:44.820] Can you explain that discrepancy?
+- [14:46.560] Karoline Leavitt: I'm not going to comment
+- [14:47.760] on alleged details of the report.
+- [14:49.830] We're not going to negotiate through the media
+- [14:51.900] out of respect for these ongoing discussions
+- [14:54.620] and negotiations that Special Envoy Witkoff is leading.
+- [14:57.460] The President made his position very clear
+- [14:59.880] on True Social last night.
+- [15:01.230] In fact, it couldn't be any more clear.
+- [15:03.470] And I would reiterate that's his position.
+- [15:05.620] Special Envoy Whitkoff sent a very detailed
+- [15:08.320] and acceptable proposal to the Iranian regime
+- [15:10.190] that the President hopes they will accept.
+- [15:11.780] And if not, they will face grave consequences,
+- [15:15.120] as the President himself has reiterated.
+- [15:18.710] The Press: A couple of things if I may.
+- [15:21.490] Firstly, can you confirm whether or not President Trump
+- [15:24.010] is going to be going to the NATO summit
+- [15:25.620] in The Hague later this month?
+- [15:26.900] Karoline Leavitt: I can confirm
+- [15:28.100] he will be going to the NATO summit, yes.
+- [15:29.510] The Press: Great, thanks.
+- [15:30.730] Another question on the Netherlands in fact.
+- [15:33.000] Just wondering if you have any reaction
+- [15:34.560] to the collapse of the Dutch government there
+- [15:37.440] after the anti-EU
+- [15:39.180] and anti-Islam leader Geert Wilders,
+- [15:41.250] who's been described as a Dutch Trump,
+- [15:43.450] pulled out of the government there.
+- [15:45.060] Karoline Leavitt: I don't have a comment on that,
+- [15:46.310] but certainly we should and we will
+- [15:48.270] and we will get you one, okay?
+- [15:51.190] The Press: Thanks, Karoline.
+- [15:52.500] I wanted to ask, a couple days ago
+- [15:54.080] the President announced
+- [15:55.460] that he was withdrawing the nomination of Jared Isaacman
+- [15:59.140] to lead NASA,
+- [16:01.360] citing a thorough review of prior associations.
+- [16:03.510] I wondered why did this review happen
+- [16:05.380] just now after the nominee was so far into the process?
+- [16:09.190] And can you explain the President's thinking
+- [16:10.680] on who he might choose?
+- [16:11.920] Karoline Leavitt: The President reserves the right
+- [16:13.210] to nominate individuals to key administration posts.
+- [16:15.820] He also reserves the right to remove those individuals
+- [16:18.590] if he chooses, just like he reserves the right
+- [16:20.640] to fire anybody in the executive branch that he wants.
+- [16:23.230] And so a new replacement for NASA
+- [16:24.990] will be announced very soon, as the President himself said.
+- [16:26.820] The Press: Was there something in particular that came up
+- [16:28.150] that caused the President concern with this nomination?
+- [16:31.500] Karoline Leavitt: The President wants to ensure
+- [16:32.840] that all of his nominees are aligned fully
+- [16:35.610] with the America First mission of this administration.
+- [16:38.170] And again, he will be announcing a replacement very soon.
+- [16:41.000] The Press: Thank you, Karoline.
+- [16:42.220] Karoline Leavitt: You're welcome.
+- [16:43.450] I can't see you all the way back there. Sorry.
+- [16:44.910] The Press: There you go. So it's been just about a month
+- [16:46.870] since Prime Minister Starmer and President Trump
+- [16:49.820] announced that the U.S. and U.K. had reached a trade deal,
+- [17:00.920] or at least a framework for a deal.
+- [17:02.210] Now there are at least some conservative MPs in London
+- [17:03.780] who are complaining that Parliament has not
+- [17:05.010] yet seen the text of any deal. So I'd like to ask you
+- [17:18.120] from this side of the pond, is there a text
+- [17:29.590] The Press: There's most definitely text with this deal.
+- [17:31.900] There is language that this side has seen.
+- [17:34.100] You'll have to ask the U.K.
+- [17:35.560] Parliament why they haven't seen it from their own government.
+- [17:37.820] I obviously can't answer that question.
+- [17:39.770] The Press: Karoline, one more on Ukraine, please.
+- [17:41.890] Karoline Leavitt: Sure, go ahead.
+- [17:43.150] The Press: On Ukraine, it's been a couple of days
+- [17:46.420] since Ukraine made that audacious drone
+- [17:49.050] strike on Russian airfields.
+- [17:51.650] The President hasn't said a word about it,
+- [17:54.360] and usually he's not shy about making his thoughts
+- [17:58.080] known on the war or any other subject.
+- [18:06.670] What have you heard from him on this audacious drone strike?
+- [18:11.180] Is he surprised?
+- [18:12.500] He said that Zelensky didn't have the cards
+- [18:15.160] when they met in the Oval Office a few months back.
+- [18:19.650] Does Zelensky possibly have some cards
+- [18:22.170] that the President hadn't known about?
+- [18:25.010] Karoline Leavitt: Look, the President's thinking
+- [18:26.360] on the Russia-Ukraine war as it stands,
+- [18:28.680] I spoke to him about it just this morning,
+- [18:30.720] is he remains positive at the progress that we've seen.
+- [18:33.690] Again, he urged both leaders to sit down
+- [18:35.750] and talk directly with one another, and they did that.
+- [18:38.510] Russia handed over a memorandum of peace
+- [18:41.460] or a peace plan or a suggestion of one,
+- [18:43.440] I understand, to the Ukrainian side.
+- [18:45.300] They also agreed upon the exchange of prisoners
+- [18:47.640] or hostages from each other's countries.
+- [18:49.460] So he remains positive about the progress that we're seeing,
+- [18:52.810] but he also is a realist,
+- [18:54.850] and he realizes these are two countries that are at war
+- [18:57.230] and have been for a long time
+- [18:58.500] because of his predecessor's weakness and incompetence.
+- [19:01.660] So he's working hard to solve this conflict,
+- [19:03.810] and that's where his mind is right now on it.
+- [19:05.400] Jonathan, go ahead.
+- [19:06.640] The Press: Thank you.
+- [19:07.870] Same topic, just to put a finer point on it.
+- [19:09.520] Does President Trump approve of Ukraine's decision
+- [19:12.910] to strike nuclear-capable bombers in Russia?
+- [19:16.340] Karoline Leavitt: I would like to let the President
+- [19:17.710] speak on that himself. And just to follow up,
+- [19:23.010] the President does not want to see this war prolonged.
+- [19:25.460] He wants the fighting to stop, he wants people to stop dying,
+- [19:28.460] and he wants this to be solved at the negotiating table.
+- [19:31.600] The reason he is so deeply involved
+- [19:34.430] and has spent so much time and effort on this war
+- [19:37.040] is because he hates to see people dying.
+- [19:39.330] Again, these are not Americans that are being killed.
+- [19:41.140] These are Russians and these are Ukrainians.
+- [19:42.720] This is a war very far away.
+- [19:44.450] But this President truly cares about peace,
+- [19:47.010] and that's what he wants to see.
+- [19:48.330] The Press: What is President Trump
+- [19:49.590] doing to ensure that a similar internal drone attack
+- [19:54.480] doesn't happen here in the U.S.,
+- [19:56.620] given this was done at pretty low cost, very stealthily?
+- [20:01.010] You know, it obviously raises questions
+- [20:02.730] about our own security,
+- [20:03.960] particularly for U.S. aircraft here.
+- [20:05.650] Karoline Leavitt: It absolutely does.
+- [20:06.900] And that's why the President nominated Secretary Hegseth
+- [20:09.790] and has approved some of the changes
+- [20:12.370] that have been made at the Pentagon to ensure
+- [20:14.190] that we have the most lethal fighting force in the world,
+- [20:16.980] and that the United States military is the best,
+- [20:19.160] the biggest.
+- [20:20.400] That's why he wants the one big, beautiful bill to be passed,
+- [20:22.970] because it increases our defense spending.
+- [20:25.110] It's why he also launched the announcement of the Golden Dome,
+- [20:27.590] to prevent from missile strikes and attacks in the future.
+- [20:30.360] And the President has a full understanding,
+- [20:32.540] I can tell you, because I've spoken to him about it,
+- [20:34.410] about the future of warfare
+- [20:35.760] and how drones are a big part of that.
+- [20:37.730] And I will not get ahead of our policy team,
+- [20:40.240] but I think you can expect to see some executive action
+- [20:42.520] on that front in the very near future.
+- [20:44.680] Kaitlin?
+- [20:45.880] The Press: Two questions for you as well.
+- [20:47.100] On the big, beautiful bill, you said recently that it is,
+- [20:49.230] quote, blatantly wrong to say that it adds to the deficit.
+- [20:52.360] You essentially said that an estimate
+- [20:53.690] from the Congressional Budget Office
+- [20:54.980] and other scorekeepers you believe are wrong.
+- [20:57.490] But Republicans like Ron Johnson and Rand Paul disagree.
+- [21:00.710] They are saying that it will add to the deficit.
+- [21:02.410] That is their concern. Is the White House's position
+- [21:05.010] that those two Republican senators
+- [21:06.540] are, quote, blatantly wrong?
+- [21:07.940] Karoline Leavitt: It is. Those senators, it's not news
+- [21:10.420] that they disagree with this President on policy.
+- [21:12.960] And the President has vocally called them out for it,
+- [21:15.560] and for their not having their facts together.
+- [21:18.490] I would add the Congressional Budget Office
+- [21:20.620] has been historically wrong.
+- [21:22.470] In fact, they predicted the Trump tax
+- [21:24.160] cuts from the President's first term in 2017.
+- [21:28.060] Their prediction was wrong by half a trillion dollars.
+- [21:31.310] Those tax cuts had nearly a half trillion dollars more revenue
+- [21:35.460] than the Congressional Budget Office scored.
+- [21:37.240] And I would also point out,
+- [21:38.480] I don't think many people know this,
+- [21:39.780] there hasn't been a single staffer
+- [21:42.520] in the entire Congressional Budget Office
+- [21:44.720] that has contributed to a Republican since the year 2000.
+- [21:48.520] But guess what? There have been many staffers
+- [21:50.630] within the Congressional Budget Office
+- [21:52.090] who have contributed to Democrat candidates
+- [21:54.120] and politicians every single cycle since.
+- [21:56.840] So unfortunately, this is an institution in our country
+- [22:00.090] that has become partisan and political.
+- [22:02.190] And we are very confident
+- [22:03.470] in our own economic analyses of this bill.
+- [22:06.390] There is $1.6 trillion in savings.
+- [22:09.120] And our Office of Management and Budget Director,
+- [22:11.270] Russ Fott, is a fiscal hawk. He is well known in this city
+- [22:14.320] for being a well-respected fiscal hawk.
+- [22:16.680] He has tools at his disposal to produce even more savings.
+- [22:20.930] And as you know, the White House will be sending our rescissions
+- [22:23.760] package to Capitol Hill today.
+- [22:25.560] The Press: And on immigration,
+- [22:26.830] the other day the Homeland Security Secretary said,
+- [22:29.650] and I'm quoting her now,
+- [22:30.870] that an illegal alien threatened to assassinate
+- [22:33.600] President Trump and highlighted in his arrest
+- [22:35.950] a man has now admitted to framing him,
+- [22:37.900] saying that he wrote the letter that the DHS Secretary Christine
+- [22:40.830] Noem posted online.
+- [22:42.350] Last I checked before I came to the room,
+- [22:44.280] that post was still up from DHS.
+- [22:46.360] Does the White House expect them to issue
+- [22:48.190] a clarification or a correction on that front?
+- [22:50.040] Karoline Leavitt: We can ask the Department of Homeland Security
+- [22:51.550] and get back to you. Jeff?
+- [22:53.320] The Press: Karoline, is the United States
+- [22:54.800] putting pressure on China
+- [22:56.070] to release its hold on rare earths
+- [22:58.690] that are hurting car companies and technology companies
+- [23:01.550] now that require that for their products?
+- [23:04.980] And is that pressure working?
+- [23:07.280] Karoline Leavitt: Well, I can assure you
+- [23:08.660] that the administration
+- [23:10.030] is actively monitoring China's compliance
+- [23:12.300] with the Geneva trade agreement.
+- [23:14.190] I know the United States, on our end,
+- [23:16.130] we have complied with the terms that we set.
+- [23:18.780] And our administration officials continue to be engaged
+- [23:22.180] in correspondence with their Chinese counterparts.
+- [23:24.760] And as you all know, and I know there's a lot of interest in it,
+- [23:27.450] there will be a leader to leader talk very soon.
+- [23:29.870] And when that happens, as always, we will let you know.
+- [23:32.740] The Press: Also, Asia, does the White House have a reaction
+- [23:35.400] to the results of the election in Korea?
+- [23:39.410] Karoline Leavitt: Yes, we do.
+- [23:40.630] In fact, let me find it here for you.
+- [23:44.040] It should be somewhere in here.
+- [23:50.070] We do not, but I will get you one, Jeff.
+- [23:53.180] The Press: Thanks, Karoline. Two questions on trade.
+- [23:55.040] Is this letter that was sent to trading partners a sign
+- [23:57.580] that the president isn't satisfied
+- [23:59.270] with the pace of these negotiations?
+- [24:00.850] Is he trying to light a fire under these talks now?
+- [24:02.900] Karoline Leavitt: Well, look, the president
+- [24:04.150] has been very direct to our trading partners
+- [24:06.070] in his conversations with foreign leaders
+- [24:08.440] directly that they need to cut deals
+- [24:10.400] with the United States of America.
+- [24:12.110] The tariff agenda of this president,
+- [24:14.200] he believes very strongly in it.
+- [24:15.910] And as you've all seen, he's unafraid to use tariffs
+- [24:18.720] to protect our industries and protect our workers.
+- [24:21.320] But he wants to see these tailor-made deals be signed.
+- [24:24.250] And I will tell you, of course,
+- [24:26.110] I never want to be the one negotiating with the press
+- [24:28.990] about these internal discussions and deliberations.
+- [24:31.220] But our team, who is deeply involved in this,
+- [24:34.570] sees these deals moving in the right direction.
+- [24:36.470] In fact, Ambassador Greer is in Paris right now meeting
+- [24:38.950] with many of our trading partners.
+- [24:40.380] The Press: We should still expect this flurry of deals
+- [24:42.040] in the next 36 days.
+- [24:43.250] And the plan is still for those full tariffs
+- [24:44.920] to go back into effect on July 9th?
+- [24:46.560] Karoline Leavitt: The plan is for the announcement
+- [24:48.080] of these deals to be made very, very soon.
+- [24:49.520] Yes.
+- [24:50.730] The Press: Sure. Thank you, Karoline.
+- [24:52.820] Karoline Leavitt: You're welcome.
+- [24:54.440] The Press: So Governor Whitmer confirmed that
+- [24:55.980] she spoke with President Trump about the possibility
+- [24:59.000] of pardoning the plotters against her kidnapping case.
+- [25:03.440] She didn't give us an idea
+- [25:05.160] of what the president's reaction was about.
+- [25:07.130] Do you have any information about what he said?
+- [25:09.750] Karoline Leavitt: Well, I won't reveal
+- [25:11.000] the president's private discussion
+- [25:12.470] unless he gives me liberty to.
+- [25:13.950] But I will reiterate what he said publicly
+- [25:16.290] when he was asked by one of the journalists in this room
+- [25:18.450] in the Oval Office a couple of weeks ago about the pardons.
+- [25:21.540] He said it's something he would look at.
+- [25:23.530] Nothing more, nothing less.
+- [25:30.690] The Press: When it comes to the leader-to-leader coalition
+- [25:32.650] with China this week,
+- [25:33.850] what is the president's expectation of this call?
+- [25:36.050] Is he looking for concrete outcomes out of this?
+- [25:39.140] Or is he looking for kind of warm relations
+- [25:43.660] as these trade talks are ongoing?
+- [25:45.200] Karoline Leavitt: Well, President Trump and President Xi
+- [25:46.760] have shared a respectful relationship
+- [25:49.010] throughout the years.
+- [25:50.300] And again, I won't get ahead of the president on that call.
+- [25:54.190] But as always, after, you'll hear directly from the president
+- [25:57.410] or from myself or someone else here at the White House.
+- [26:00.120] The Press: Karoline, thank you.
+- [26:01.590] I want to get back to the anti-Semitic behavior
+- [26:03.730] that's been going on on college campuses,
+- [26:05.400] as well as recently in Colorado. The president, as you know,
+- [26:09.700] has the White House Faith Office,
+- [26:11.220] the Religious Liberty Commission,
+- [26:12.560] as well as the Anti-Task Force on anti-Christian bias,
+- [26:16.780] which includes anti-Semitism.
+- [26:19.100] From a whole-of-government perspective,
+- [26:20.980] and the president's already mentioned
+- [26:22.520] how he hates these kinds of acts that have been going on,
+- [26:26.220] can these entities and these agencies work together
+- [26:27.920] with the president to put out a proactive campaign
+- [26:31.690] to help people stop the hate?
+- [26:35.100] Karoline Leavitt: I think the president himself
+- [26:36.640] has been leading on this, Kelly,
+- [26:38.000] and has been incredibly clear in his rhetoric
+- [26:40.850] that he is not going to tolerate such hate or behavior
+- [26:44.060] in the United States of America.
+- [26:45.610] And you will see that rhetoric being followed up by action
+- [26:48.910] from the Department of Justice,
+- [26:50.210] who is seeking to prosecute these cases
+- [26:52.840] to the fullest extent of the law.
+- [26:54.320] And I know the attorney general
+- [26:56.100] and the FBI director were very quick to call
+- [26:58.840] this what it was, targeted terrorism.
+- [27:00.770] And there was some, I think, criticism from the media
+- [27:04.090] and at least pundits I saw on television saying,
+- [27:06.620] are they too quick to jump here? No.
+- [27:08.680] They see the facts and they reveal those
+- [27:11.800] to the American people and they're transparent.
+- [27:14.220] And I think, frankly, that's a breath of fresh air
+- [27:16.000] from what we experienced in the previous administration.
+- [27:18.330] The Press: Are there programs that they can put in place
+- [27:21.080] to campaign against this kind of violence
+- [27:24.140] to actually take the whole approach and say,
+- [27:26.430] we want to get ahead of you?
+- [27:27.970] If you're thinking it, don't do it.
+- [27:30.020] And if you're going to do it,
+- [27:31.930] sit down and talk to someone within the faith office,
+- [27:35.370] within the Religious Liberty Commission,
+- [27:37.200] as well as the task force.
+- [27:38.450] Karoline Leavitt: Yeah, surely.
+- [27:39.700] It's a good idea and I'll pass it along to them.
+- [27:42.960] The Press: Thank you, Karoline.
+- [27:44.250] When you look at these last minute
+- [27:45.990] Biden pardons, the big ones, Biden siblings,
+- [27:49.890] Fauci, January 6th committee.
+- [27:52.210] Most of the big ones have the same very neat signature.
+- [27:56.610] We would expect that probably to be the auto pen.
+- [27:59.040] There is one that looks different. It looks authentic.
+- [28:03.830] In fact, if you look at the last name,
+- [28:05.350] it almost looks like the president
+- [28:06.690] was having a hard time spelling his last name there.
+- [28:09.320] Is this White House of the opinion
+- [28:11.540] that the only pardon that would count
+- [28:14.420] is one that the president signed himself?
+- [28:17.080] Karoline Leavitt: Very interesting.
+- [28:18.310] Very interesting props.
+- [28:19.590] If you want to bring them to my office later
+- [28:21.280] so I can take a closer look, I would like to do that.
+- [28:24.750] The president is making a good point
+- [28:27.120] when he discusses the usage of the auto pen.
+- [28:29.590] Who was running the country for the past four years?
+- [28:32.580] Perhaps those documents were signed with the auto pen,
+- [28:35.320] something that I believe the Department of Justice
+- [28:38.350] is looking into. As you saw,
+- [28:39.830] Ed Martin made an announcement at the Department of Justice
+- [28:42.060] this morning to launch an investigation
+- [28:44.270] because the American people deserve answers.
+- [28:46.970] The Press: Is there any concern that this president,
+- [28:49.830] who won the election on a promise
+- [28:51.170] to fix the economy and close the border,
+- [28:53.410] that focusing and scrutinizing these
+- [28:56.510] Biden pardons is looking into the past
+- [28:58.990] instead of looking forward?
+- [29:00.340] Karoline Leavitt: I think in comparison
+- [29:01.550] to the amount of time this president has spent
+- [29:03.610] on securing the border, on fixing our economy,
+- [29:06.470] I just read out for you
+- [29:07.760] an entire list of accomplishments,
+- [29:09.450] economic accomplishments. Look at the border numbers.
+- [29:12.140] Look at the time and effort he's divulged
+- [29:14.250] into solving the global conflicts abroad.
+- [29:15.960] It pales in comparison,
+- [29:17.180] but it still nevertheless is a very important issue.
+- [29:20.470] It was a huge issue
+- [29:21.780] that sent the president back to this White House.
+- [29:23.570] The Americans saw with their own eyes
+- [29:25.800] a mentally incompetent president,
+- [29:27.150] and they want answers for that,
+- [29:28.360] and the president believes they should have.
+- [29:29.810] The Press: Something that just dropped, Karoline,
+- [29:31.540] how mad do you think President Trump is going to be
+- [29:33.720] when he finds out that Elon Musk said,
+- [29:35.770] "I'm sorry, but I just can't stand it anymore.
+- [29:37.620] This massive, outrageous, court-filled congressional
+- [29:40.180] spending bill is a disgusting abomination.
+- [29:43.270] Shame on those who voted for it.
+- [29:44.790] You know you did wrong. You know it."
+- [29:47.300] Karoline Leavitt: Look, the president already knows
+- [29:48.860] where Elon Musk stood on this bill.
+- [29:50.400] It doesn't change the president's opinion.
+- [29:51.930] This is one big, beautiful bill, and he's sticking to it.
+- [29:57.010] The Press: The National Security Council was reorganized,
+- [29:59.130] or some staffing changes were made,
+- [30:01.770] the Friday before Memorial Day.
+- [30:04.110] I'm hoping you can explain sort of the new structure,
+- [30:07.670] what the structure is of the National Security Council,
+- [30:09.630] what the goal is in terms of staffing levels.
+- [30:13.370] You know, what is the new National Security Council mode?
+- [30:17.500] Karoline Leavitt: Well, as with everything,
+- [30:19.060] this White House, it is a top-down approach.
+- [30:22.090] The president is here. He is present.
+- [30:24.010] He's not an auto pen like the previous president was.
+- [30:27.180] He's very much involved in literally every policy
+- [30:30.360] discussion and decision that takes place.
+- [30:33.040] And we felt it was best to reorganize
+- [30:35.820] the National Security Council
+- [30:37.210] to respond to that top-down approach
+- [30:39.930] that we have here in this White House
+- [30:42.060] and to streamline the efficiency and the effectiveness
+- [30:44.710] of the National Security Council.
+- [30:46.350] And I would add that Secretary of State Rubio
+- [30:48.870] and now National Security Advisor Rubio
+- [30:50.650] is doing a tremendous job
+- [30:52.860] at leading the National Security Council.
+- [30:54.880] He knows the president.
+- [30:56.220] He understands where the president is on these issues.
+- [30:59.040] He's great to work with here at the White House.
+- [31:00.980] I can tell you that.
+- [31:02.190] I appreciate seeing him a lot more in the building.
+- [31:05.100] And he and the president
+- [31:06.420] and the entire National Security Council,
+- [31:08.120] who's made up of great patriots who love this country,
+- [31:11.000] are doing a tremendous job
+- [31:12.340] on the many conflicts around the world
+- [31:14.640] that this administration inherited.
+- [31:18.790] The Press: Is there a goal for the staffing level,
+- [31:20.500] like a number of people who would be
+- [31:22.000] in this National Security Council?
+- [31:23.260] Karoline Leavitt: We just want the National Security Council
+- [31:25.700] to be as efficient as possible.
+- [31:27.060] And if staffing needs are necessary,
+- [31:30.190] I'm sure Secretary Rubio
+- [31:31.520] would not mind hiring people if necessary.
+- [31:33.770] But again, we've been working with them day in and day out,
+- [31:36.690] and they're chugging along and doing great work.
+- [31:40.000] The Press: Thank you, Karoline. Two questions, if I can.
+- [31:42.400] When Trump got involved himself
+- [31:44.460] in the presidential election in Poland
+- [31:46.920] by supporting conservative candidates who ultimately won,
+- [31:51.200] what does it mean for the future U.S.-Polish relations?
+- [31:55.210] What's likely to change?
+- [31:58.430] Karoline Leavitt: Well, I believe the president
+- [32:01.550] is obviously pleased to see the result
+- [32:03.190] of the Polish elections. He met with Karol Nawrocki,
+- [32:06.780] if I'm pronouncing that correctly.
+- [32:08.910] The Press: Nawrocki.
+- [32:10.300] Karoline Leavitt: Nawrocki. OK, thank you.
+- [32:11.720] I appreciate your insight on that.
+- [32:14.110] He met with him at the White House,
+- [32:15.390] and he told him, you're going to win
+- [32:16.800] because you support common sense.
+- [32:18.480] And he supported strong borders in Poland.
+- [32:20.630] He supported an end to the woke,
+- [32:23.300] radical DEI stuff that we've seen,
+- [32:25.100] not just here in the United States,
+- [32:26.570] but really take over Europe and, frankly, the whole world.
+- [32:28.890] He was very outspoken about that.
+- [32:30.890] And I was reading the reports about how the Polish people
+- [32:33.520] felt about this man, and they felt like
+- [32:34.940] he was putting the needs of Poland first.
+- [32:37.250] And that's a very refreshing feeling,
+- [32:39.150] one that we know very well here in the United States of America.
+- [32:41.670] So, as you know, the United States and Poland
+- [32:44.270] have always had a very deep and strong relationship, friendship.
+- [32:47.270] They're a great ally. And I know the president
+- [32:49.250] continues to look forward to working with them.
+- [32:50.750] The Press: We have one more on Ukrainian
+- [32:54.080] drone attack on Russia.
+- [32:56.120] Was President Trump informed in advance by Ukraine
+- [33:00.810] that the attack is coming?
+- [33:02.350] Karoline Leavitt: He was not.
+- [33:03.650] The Press: Karoline.
+- [33:04.930] I want to go back to the issue of anti-Christian bias,
+- [33:09.210] as well as the issue of anti-Semitic issues.
+- [33:12.290] Senator Grassley just put out a report
+- [33:15.600] saying that the files, FBI files,
+- [33:17.880] that show that the Catholic group targeting was way more
+- [33:22.020] The Press: (inaudible)
+- [33:23.220] prevalent within the FBI during the Biden era
+- [33:25.850] than was previously shown,
+- [33:28.560] as far as former FBI Director Christopher Wray
+- [33:32.830] was putting out there during congressional testimony.
+- [33:36.530] Can you discuss here what President Trump
+- [33:40.990] would like to see in terms of consequences within the FBI,
+- [33:44.370] as far as those who were involved?
+- [33:46.580] Also, the second question, if the DOJ finds
+- [33:50.510] that the auto pen was used by President Biden,
+- [33:55.360] should those actions that were used with the auto pen,
+- [33:57.670] should they be null and void?
+- [33:58.960] Karoline Leavitt: I'm not going to get ahead
+- [34:00.220] of the Department of Justice's investigation
+- [34:03.130] into the usage of the auto pen.
+- [34:06.420] Again, the question is not, was the auto pen used?
+- [34:09.380] It's whether or not the President of the United States
+- [34:11.620] knew it was being used,
+- [34:13.120] and if not, who was using it in his name,
+- [34:16.330] which is clearly illegal behavior.
+- [34:20.230] The Press: Thanks, Karoline.
+- [34:21.730] One on foreign policy, one domestic, if I can.
+- [34:23.900] Karoline Leavitt: Sure.
+- [34:25.650] The Press: Just speaking to the President's Truth Social
+- [34:27.570] post about Iran recently,
+- [34:30.830] saying that there will be no uranium enrichment,
+- [34:33.230] is he saying that that's a red line for him, or no?
+- [34:35.640] Karoline Leavitt: I already answered this question,
+- [34:37.010] and the President's been very clear
+- [34:38.330] about where he stands on that.
+- [34:39.550] The Press: Okay, and then on domestic,
+- [34:41.260] there is a report that Laura Loomer met
+- [34:43.240] with the Vice President today.
+- [34:45.140] Can you speak to her relationship
+- [34:46.910] with the administration,
+- [34:48.250] and if she's informally advising in any way?
+- [34:52.190] Karoline Leavitt: She is not.
+- [34:53.570] I know she met with the Vice President.
+- [34:55.270] As for what was discussed in that meeting,
+- [34:56.870] I would defer you to his team.
+- [34:58.080] The Press: Thanks, Karoline.
+- [34:59.280] I have one question on anti-Semitism,
+- [35:00.660] one question on China.
+- [35:01.910] So for years, radical leftists and Islamists have been calling
+- [35:04.550] to so-called globalize the intifada.
+- [35:07.290] Do you believe this is a call for violence against Jews,
+- [35:09.740] and do you think these attacks on Jews around our country
+- [35:11.690] is what globalizing the intifada looks like?
+- [35:14.350] Karoline Leavitt: I don't want to speak
+- [35:15.570] to the merits of those claims
+- [35:16.830] without looking into them, but as I said,
+- [35:18.690] any violence against Jewish Americans
+- [35:20.410] will be prosecuted to the fullest extent of the law.
+- [35:22.740] The Press: Also, Secretary of State Rubio
+- [35:24.030] made an announcement
+- [35:25.230] saying he'll be revoking visas of certain Chinese students,
+- [35:28.010] including those with connections to the Chinese Communist Party.
+- [35:31.670] Does that include sons and daughters of politicians,
+- [35:34.580] presidents, and chairmen?
+- [35:36.250] Karoline Leavitt: Again, Secretary of State Rubio
+- [35:37.830] has the right to revoke visas,
+- [35:40.110] and he made the announcement that the State Department
+- [35:42.730] will begin to aggressively revoke
+- [35:45.070] those visas of Chinese students who are in our country,
+- [35:48.370] namely those with Chinese Communist Party ties,
+- [35:51.350] or those who could be a threat to our national security
+- [35:53.920] and the interests of the United States.
+- [35:58.470] The Press: Thank you. There are now reports
+- [35:59.900] that Israeli forces are firing on Palestinians
+- [36:03.170] trying to get aid from the Gaza Humanitarian Foundation.
+- [36:06.640] Up to 20 people, according to the Red Cross,
+- [36:09.030] have arrived to the hospital that they've set up
+- [36:11.890] with gunshot wounds, have died from them.
+- [36:15.300] Is this administration aware of these,
+- [36:17.440] and, I mean, what is being done to address this situation?
+- [36:20.460] Karoline Leavitt: The administration
+- [36:21.700] is aware of those reports,
+- [36:23.120] and we are currently looking into the veracity of them,
+- [36:25.840] because, unfortunately, unlike some in the media,
+- [36:29.770] we don't take the word of Hamas with total truth.
+- [36:33.630] We like to look into it when they speak,
+- [36:35.940] unlike the BBC, who had multiple headlines.
+- [36:39.930] They wrote, Israeli tank kills 26,
+- [36:42.910] Israeli tank kills 21, Israeli gunfire kills 31,
+- [36:46.610] Red Cross says 21 people were killed in an aid incident,
+- [36:49.440] and then, oh, wait.
+- [36:50.760] They had to correct and take down their entire story,
+- [36:54.150] saying, we reviewed the footage
+- [36:55.360] and couldn't find any evidence of anything.
+- [36:57.680] Oh, okay. So, we're going to look into reports
+- [37:00.370] before we confirm them from this podium,
+- [37:01.960] or before we take action,
+- [37:03.190] and I suggest that journalists who actually care about truth
+- [37:06.530] do the same to reduce the amount of misinformation
+- [37:09.700] that's going around the globe on this front.
+- [37:11.240] The Press: Can you talk about the change
+- [37:12.460] in the leadership of the organization?
+- [37:14.300] What does that mean going forward,
+- [37:15.610] and why so early on is this happening?
+- [37:18.610] Karoline Leavitt: What organization?
+- [37:19.830] The Press: Why the humanitarian foundation?
+- [37:21.650] Karoline Leavitt: Well, look, this was a creative idea
+- [37:23.490] that the president called for, to get aid into the region.
+- [37:27.020] These people were desperate and starving,
+- [37:29.470] and the president didn't like seeing imagery of that,
+- [37:31.630] and he wanted to ensure that aid was brought in
+- [37:34.580] with the approval of Israel, for understandable reasons.
+- [37:37.580] We will never forget the brutal attack on October 7th,
+- [37:40.890] and, again, this is something that the previous administration
+- [37:43.250] was unwilling to put the time and effort into doing.
+- [37:46.720] The Press: Thanks a lot, Karoline.
+- [37:47.980] I want to bring it back
+- [37:49.190] to the way you began your briefing,
+- [37:50.640] talking about the president's mass deportation program
+- [37:54.400] and his priorities.
+- [37:56.290] 40% of crop farm workers in the U.S. are undocumented,
+- [38:00.850] and that's according to the agriculture department.
+- [38:03.460] Do they have a carve-out in terms
+- [38:05.300] of the president's mass deportation program?
+- [38:07.890] Karoline Leavitt: The president and the Trump administration
+- [38:10.000] have been very clear.
+- [38:11.290] If you are in the country illegally,
+- [38:13.190] you are subject to deportation.
+- [38:15.000] The Press: Is there any concern that,
+- [38:17.720] given that large number, if that number is correct,
+- [38:20.280] 40% of crop farm workers being undocumented,
+- [38:23.720] that that could impact the food supply here in America
+- [38:27.690] if those individuals that obviously help pick crops
+- [38:30.760] all across the country are deported en masse?
+- [38:34.650] Karoline Leavitt: Again, this administration is focused
+- [38:37.460] on deporting individuals who are in our country illegally.
+- [38:40.560] It's something we have to do.
+- [38:42.280] We cannot allow the previous administration's invasion
+- [38:45.620] of our country of illegal immigrants to continue.
+- [38:48.700] We just can't have it.
+- [38:50.010] And this is a law and order president.
+- [38:51.630] As for our farmers and their concerns,
+- [38:53.710] they have a president who has their backs
+- [38:55.710] and listens to their concerns and hears them,
+- [38:58.350] but we also have a legal pathway to come to this country
+- [39:01.440] and work specifically for agricultural work.
+- [39:04.300] So there's a legal way to do it,
+- [39:06.130] and we encourage that legal pathway,
+- [39:09.290] and we're currently working on strengthening
+- [39:11.300] our legal immigration system for that reason.
+- [39:14.350] The Press: Thank you, Karoline.
+- [39:15.580] I just wanted to follow up on your statement last week
+- [39:18.540] regarding the Maha report.
+- [39:21.110] You said that there was, you said,
+- [39:23.140] I understand there were some formatting issues
+- [39:25.000] with the Maha report that are being addressed,
+- [39:27.370] and that report will be updated.
+- [39:30.060] We also understand that since that,
+- [39:32.250] there have been some citations that came about,
+- [39:34.560] there's citations of studies that either did not exist
+- [39:37.420] or did not back up the report's conclusions.
+- [39:40.360] So when you were referring to formatting errors,
+- [39:43.590] is that what you're talking about, or was it,
+- [39:46.420] so could you just explain that?
+- [39:48.470] Karoline Leavitt: Yep, that's what I was talking about.
+- [39:49.930] There were formatting errors, and those errors were updated
+- [39:53.120] by the proper policy components here at the White House,
+- [39:55.980] and a new report was issued.
+- [39:57.330] So exactly what I said took place.
+- [40:00.050] The Press: Good to see you.
+- [40:01.660] Karoline Leavitt: Good to see you.
+- [40:02.870] The Press: Congresswoman Mary Miller
+- [40:04.380] suggested that changing Pride Month to Family Month.
+- [40:07.190] I would personally like to see maybe a Nuclear Family Month.
+- [40:09.540] Some people are saying, let's get a Veterans Month.
+- [40:12.050] Does the president have any plans on making a proclamation,
+- [40:14.230] or is it just going to be June this year?
+- [40:16.290] Karoline Leavitt: Well, there are no plans
+- [40:17.520] for a proclamation for the month of June,
+- [40:19.720] but I can tell you this president is very proud
+- [40:22.020] to be a president for all Americans,
+- [40:24.500] regardless of race, religion, or creed.
+- [40:28.680] The Press: Thank you, Karoline.
+- [40:32.640] Colorado passed insured protections
+- [40:34.780] for illegals one month
+- [40:36.300] before the terrorist attack this weekend. Two questions.
+- [40:40.400] Why did the DHS remove the sanctuary cities list
+- [40:43.180] that it had published, which was ordered by the president?
+- [40:46.490] And then what is the administration going to do
+- [40:48.290] to further crack down on sanctuary jurisdictions
+- [40:51.290] to prevent attacks like what happened in Colorado?
+- [40:53.040] Karoline Leavitt: Sure.
+- [40:54.300] The Department of Homeland Security
+- [40:55.680] will be issuing a new list of sanctuary cities,
+- [40:58.850] an accurate list of sanctuary cities.
+- [41:00.850] As for what we're doing to crack down,
+- [41:02.630] the president has signed various executive orders
+- [41:05.570] and has directed the attorney general to prosecute state
+- [41:10.650] and local officials who are not complying
+- [41:12.680] with federal immigration authorities,
+- [41:14.780] and most importantly, federal immigration law.
+- [41:23.010] The Press: So does the president take calls from foreign leaders
+- [41:26.470] on the tariffs on steel and aluminum?
+- [41:29.870] Does he still intend to double them tomorrow morning?
+- [41:32.600] Karoline Leavitt: The president will be signing
+- [41:33.900] that executive order today, and steel and aluminum tariffs
+- [41:36.510] will be going to 50%. Yes.
+- [41:37.710] The Press: So no way he's going to change,
+- [41:38.910] or he's going to be suspended?
+- [41:40.170] Karoline Leavitt: He made that announcement in Pennsylvania,
+- [41:41.880] and he plans to deliver on that promise to Pennsylvanians.
+- [41:48.850] The Press: Thank you, Karoline.
+- [41:50.130] So a Chinese foreign ministry spokesperson today
+- [41:51.990] said that the U.S. imposed harmful measures
+- [41:54.490] like new chip controls
+- [41:55.760] and pledging to revoke Chinese student visas.
+- [41:58.450] So are the Chinese the victims in this trade back and forth?
+- [42:01.690] Karoline Leavitt: Look, I don't think anyone is the victim.
+- [42:03.430] These are two strong countries, and as I said,
+- [42:05.830] the president has a good relationship
+- [42:08.730] with China's president and leader,
+- [42:11.140] and that discussion will take place later this week.
+- [42:12.920] The Press: And what other authorities is the president
+- [42:14.570] looking at for tariffs should the decision in the appeals
+- [42:18.350] court not go his direction?
+- [42:19.570] Karoline Leavitt: Well, right now,
+- [42:20.820] his tariffs remain in effect.
+- [42:22.200] We spoke at length in my briefing last week
+- [42:24.620] about that decision that came down
+- [42:26.900] from the international trade court,
+- [42:28.810] which has been put on pause
+- [42:30.520] because the president absolutely does have
+- [42:32.400] the authority to implement tariffs
+- [42:33.870] and to declare a national emergency
+- [42:35.910] for our crippling trade deficit. He could always have the power
+- [42:39.900] to use Section 202 or Section 301
+- [42:42.030] as well to impose tariffs if he deems necessary,
+- [42:44.990] especially Section 202 tariffs, which are sectoral, as you know,
+- [42:48.280] to protect our critical supply chains here at home.
+- [42:50.670] The Press: Thanks, Karoline.
+- [42:51.890] Karoline Leavitt: You're welcome.
+- [42:53.090] The Press: You've got U.S. business leaders
+- [42:54.340] begging for certainty.
+- [42:55.810] So why did the president suddenly decide to hike tariffs
+- [43:00.300] on steel and aluminum again?
+- [43:02.450] Karoline Leavitt: You also have U.S. business leaders
+- [43:03.930] begging to meet with this president
+- [43:05.790] and begging to come to the White House to talk to him
+- [43:09.670] because they know that he is a negotiator-in-chief,
+- [43:12.600] that he's making good deals on behalf of the American worker
+- [43:15.670] and the steel worker,
+- [43:17.070] in particular when it comes to the steel and aluminum tariffs,
+- [43:20.050] which he discussed in his speech at length at Pennsylvania
+- [43:23.060] and the need for them.
+- [43:24.350] And I would just add,
+- [43:25.580] I was at that speech on Friday with the president,
+- [43:28.200] and there were 2,000 steel workers
+- [43:30.390] and their families in the room,
+- [43:32.380] many of them wearing their hard hats.
+- [43:34.280] I spoke to one backstage
+- [43:35.610] who said this is the greatest thing
+- [43:37.000] that has happened for that community
+- [43:38.610] in Pittsburgh, Pennsylvania, in 60 years,
+- [43:41.480] because this is a president who doesn't just talk the talk.
+- [43:44.180] He walks the walk, too,
+- [43:45.770] and he's delivering on his promises to bolster
+- [43:48.500] our steel and aluminum industries in this country
+- [43:50.660] and to protect those jobs, if not for this president.
+- [43:53.330] That steel plant in Pittsburgh, Pennsylvania,
+- [43:55.490] would have closed. Those jobs would have been lost.
+- [43:58.900] And the president saved that company,
+- [44:00.610] he saved those jobs, and he's saving that community.
+- [44:02.700] And that's the intention of the steel tariffs,
+- [44:04.260] which he will sign later this afternoon.
+- [44:06.080] Thank you very much, everyone. We'll see you later.

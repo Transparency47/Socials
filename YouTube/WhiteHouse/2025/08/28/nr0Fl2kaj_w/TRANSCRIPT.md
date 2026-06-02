@@ -1,0 +1,748 @@
+<!-- source: https://www.youtube.com/watch?v=nr0Fl2kaj_w -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: nr0Fl2kaj_w -->
+<!-- date_published: 2025-08-28T17:46:39+00:00 -->
+<!-- date_accessed: 2026-06-02T02:45:11.380482+00:00 -->
+
+# Transcript: Press Secretary Karoline Leavitt Briefs Members of the Media, Aug. 28, 2025
+
+- [00:00.520] Karoline Leavitt: Good afternoon.
+- [00:02.360] Good to see all of you.
+- [00:04.370] I want to begin today's briefing by addressing
+- [00:07.280] the horrific shooting that took place yesterday
+- [00:10.260] at the Annunciation Catholic Church
+- [00:12.510] in Minneapolis, Minnesota,
+- [00:14.640] where a deranged shooter opened fire during morning mass,
+- [00:19.180] killing an innocent eight-year-old and 10-year old.
+- [00:22.510] 14 other children and three adults
+- [00:24.680] were also injured during this horrible tragedy.
+- [00:28.230] This was the first morning mass of the school year
+- [00:31.000] for these beautiful, innocent children,
+- [00:34.050] and this sacred religious service
+- [00:35.680] was desecrated by an evil monster.
+- [00:38.920] We are all eternally grateful
+- [00:40.920] to the heroic law enforcement officers
+- [00:43.300] and first responders whose courage and swift response
+- [00:46.660] aided all of those impacted by this horrible tragedy.
+- [00:50.420] As Director Kash Patel confirmed yesterday,
+- [00:53.220] the FBI is currently investigating this shooting
+- [00:56.370] as an act of domestic terrorism
+- [00:58.820] and a hate crime targeting Catholics.
+- [01:01.590] President Trump signed a proclamation yesterday
+- [01:04.400] following his call with the Governor
+- [01:06.510] of Minnesota Tim Walz,
+- [01:08.190] acknowledging the victims and their families,
+- [01:10.490] and directing flags to be flown at half-mast.
+- [01:14.080] President Trump and the First Lady
+- [01:15.780] encouraged the entire nation to join all of us
+- [01:18.610] in praying for the victims and their families
+- [01:21.160] as they face unimaginable grief and loss.
+- [01:24.830] The White House and the FBI will continue to provide
+- [01:27.150] further updates as they become available.
+- [01:30.270] I also have a quick scheduling announcement for you today.
+- [01:32.980] The President will travel to New York City on September
+- [01:35.590] 22nd to address the United Nations General Assembly
+- [01:39.160] on Tuesday, September 23rd. On another matter,
+- [01:43.390] as Americans make their Labor Day weekend travel plans,
+- [01:46.590] they will be able to enjoy five-year low gas prices
+- [01:49.930] thanks to President Trump
+- [01:51.140] fully unleashing American energy dominance.
+- [01:54.650] President Trump ended Joe Biden's green news scam policies
+- [01:57.540] and is delivering on his promise
+- [01:59.610] to make America affordable again.
+- [02:01.870] These savings at the pump are giving everyday
+- [02:03.960] American families more room in their budgets
+- [02:06.140] at the end of each month,
+- [02:07.540] which is the exact opposite of what we saw
+- [02:10.320] under the previous administration.
+- [02:12.520] And as we commemorate Labor Day this year,
+- [02:14.950] we finally have a President who fights and delivers
+- [02:17.770] for the American worker every single day.
+- [02:20.410] President Trump believes that American workers
+- [02:22.430] are the heart and soul of our economy.
+- [02:24.850] And our national identity, which is why he's championed
+- [02:27.850] an agenda that puts them first always.
+- [02:30.530] For decades, the hardworking men and women of our country
+- [02:33.330] who built the greatest nation in world history
+- [02:36.130] were sold out by selfish, greedy, short-sighted globalists
+- [02:39.530] who put our country on a path to economic and cultural ruin.
+- [02:43.560] They hollowed out our factories and towns
+- [02:45.450] and betrayed the American working class
+- [02:47.260] by shipping jobs overseas and importing millions
+- [02:50.390] of low-wage migrants to replace American workers.
+- [02:54.070] Under President Trump, this national disgrace is over.
+- [02:57.220] American workers are, once again,
+- [02:59.450] being put at the center of national trade policy,
+- [03:02.490] and the dignity of American labor is being defended.
+- [03:06.010] As a result, President Trump has already brought in nearly
+- [03:08.630] $10 trillion in new private and foreign investments
+- [03:12.880] so that the top businesses in the world
+- [03:14.930] can create high-paying jobs in America
+- [03:17.390] and hire American workers to fill them.
+- [03:20.020] In fact, since President Trump took office,
+- [03:22.360] the economy has added more than half a million new jobs
+- [03:25.970] to the workforce.
+- [03:27.230] In a stark reversal from the Biden administration,
+- [03:30.090] all of that job creation has been driven
+- [03:32.410] by private sector growth,
+- [03:34.210] and all employment gains have gone to native-born Americans.
+- [03:38.140] Wages for blue-collar workers are now rising
+- [03:40.410] at the fastest rate in the past 60 years.
+- [03:44.090] And the average American worker has already seen a $500 wage
+- [03:47.720] increase this year alone. Thanks to the largest middle tax
+- [03:51.330] cuts ever signed into law by President Trump,
+- [03:53.730] with no tax on tips, no tax on overtime,
+- [03:56.130] no taxes on Social Security, Americans in all 50 states
+- [03:59.990] will keep more of their hard-earned money.
+- [04:02.620] The average American taxpayer
+- [04:04.130] will see a tax cut of nearly $4,000
+- [04:06.970] because of these pro-growth provisions,
+- [04:09.180] according to analysis from the Nonpartisan Tax Foundation.
+- [04:12.530] In other news,
+- [04:13.740] President Trump continues to deliver on his promise
+- [04:16.260] to restore law order to our nation's capital.
+- [04:19.560] Since President Trump's intervention,
+- [04:21.160] there have been more than 1,283 arrests
+- [04:25.290] right here in the District of Columbia.
+- [04:27.750] Total crime in D.C. Is down 19 percent,
+- [04:30.810] and violent crime is down 30 percent.
+- [04:33.730] Car jackings in the district are down 67 percent.
+- [04:37.460] Homicides are down 57 percent. Robberies are down 40 percent.
+- [04:42.510] Motor vehicle thefts are down 32 percent.
+- [04:45.520] Assaults with dangerous weapons are down 23 percent.
+- [04:48.960] And property crime is down 18 percent.
+- [04:51.870] These numbers prove the President's bold actions
+- [04:54.410] to make D.C. Safe and beautiful again
+- [04:56.820] are working, just like he said they would.
+- [04:59.690] And that's why on Monday,
+- [05:01.020] the President took additional action
+- [05:03.110] to sign an executive order taking steps
+- [05:05.250] to ensure that cashless bail in Washington,
+- [05:07.950] D.C., is eliminated.
+- [05:09.600] For too long, D.C.'s reckless cashless-bail policies
+- [05:12.540] have allowed dangerous criminals to be quickly released.
+- [05:15.690] Which endangers everyone who lives in
+- [05:17.740] and visits our wonderful capital.
+- [05:19.980] No cash bail has also foolishly forced law enforcement
+- [05:22.930] to repeatedly arrest the same offenders over and over again,
+- [05:26.930] only for them to be released back into our nation's capital.
+- [05:30.340] This is the definition of insanity,
+- [05:32.410] and the President is seeking to end it.
+- [05:34.710] He also signed a separate executive order
+- [05:36.750] addressing the crime emergency in D.C.
+- [05:38.710] By destructing the National Park Service
+- [05:41.120] to hire additional United States Park
+- [05:43.250] Polo park police officers to support public safety,
+- [05:47.290] and directing the U.S. Attorney's
+- [05:48.990] Office for D.C. To hire additional prosecutors
+- [05:52.660] to focus solely on violence and property crimes.
+- [05:56.380] So while liberal Democrats across the country
+- [05:58.570] continue to double down on their failed,
+- [06:01.030] soft-on-crime approach,
+- [06:03.040] the American people, including local D.C.
+- [06:05.440] Leadership, business owners and residents are rallying behind
+- [06:09.090] President Trump's crime crackdown.
+- [06:11.800] According to new polling, 81 percent of Americans say
+- [06:15.180] crime is a major problem in large cities
+- [06:18.560] across the country,
+- [06:19.960] and a clear majority of Americans
+- [06:21.640] believe the President's actions are justified
+- [06:24.230] and necessary to reduce crime in these cities.
+- [06:28.010] Indu Bhatia, who runs a liquor store
+- [06:30.170] a half mile from the White House
+- [06:32.140] here just down the street, is one of those Americans
+- [06:34.840] who are grateful for President Trump's public safety push.
+- [06:38.210] Indu recently told the New York Post.
+- [06:40.450] That her store was robbed so many times
+- [06:43.230] that they had to spend exorbitant sums of money
+- [06:45.800] on security, jeopardizing her family's financial future.
+- [06:50.000] But thanks to President Trump's strong action,
+- [06:52.680] Indu said, quote, all of my employees,
+- [06:55.330] including me, we feel much safer
+- [06:57.710] and even our customers feel really happy
+- [07:00.440] when they walk into our store.
+- [07:02.570] And just yesterday, Washington, D.C. Mayor Muriel
+- [07:05.150] Bowser credited President Trump for urging
+- [07:07.940] federal law enforcement personnel.
+- [07:09.900] And said neighborhoods, quote, feel and are much safer.
+- [07:14.400] We thank Mayor Bowser for her cooperation
+- [07:16.650] and her willingness to help us make
+- [07:18.580] D.C. Safe and beautiful.
+- [07:20.690] This entire effort has vindicated
+- [07:22.610] what President Trump and law
+- [07:24.170] and order advocates have been saying for years,
+- [07:26.280] and this is our message to Americans
+- [07:28.180] in Democrat-run cities nationwide.
+- [07:30.670] Decline is a choice.
+- [07:32.380] You don't have to live in constant fear of being robbed,
+- [07:35.480] raped, or murdered. Your leaders are lying to you
+- [07:38.800] and they have been failing you for decades.
+- [07:41.230] The President Trump approach of upholding law and order
+- [07:44.350] by letting our brave men and women in blue
+- [07:46.630] actually do their jobs to aggressively fight crime works.
+- [07:51.030] In just a few weeks, President Trump
+- [07:52.820] has done more for DC residents than Democrats did in 50 years.
+- [07:57.220] And this can be replicated in other crime-ridden cities
+- [07:59.730] across the nation. As President Trump said,
+- [08:02.470] all of these elected officials in charge
+- [08:04.400] have to do is pick up phone.
+- [08:06.160] And ask for the President and the federal government's help.
+- [08:09.170] President Trump doesn't care if they are a Republican
+- [08:11.690] or a Democrat leader. He wants Americans to be safe
+- [08:14.980] and for every law-abiding American citizen
+- [08:17.920] across the country to be able to thrive in their city
+- [08:21.060] and in their community. With that, I'll take questions.
+- [08:24.120] Here in our new media seat today,
+- [08:25.390] we have social media influencer, content creator, Brandon Tatum.
+- [08:29.130] Brandon, thank you so much for joining us today.
+- [08:30.860] Why don't you kick us off?
+- [08:32.250] The Press: Karoline, thank you so much for having me.
+- [08:33.720] I really appreciate it.
+- [08:34.950] And on behalf of everybody that followed me,
+- [08:36.550] the millions of people that followed me,
+- [08:38.040] I want to say thank you for making this sacrifice
+- [08:40.690] and dealing with some of the most disingenuous people
+- [08:43.170] on planet Earth at times. I have two questions.
+- [08:46.740] The first question is associated with the shooting
+- [08:49.180] that occurred the other day. And I want ask the question of,
+- [08:53.350] we know that it's not a gun thing.
+- [08:56.380] Any rational person knows it's a not a good thing.
+- [08:58.870] We know it's mental health issue.
+- [09:01.380] So I want to know from you what is President Trump
+- [09:04.440] and the White House going to do to address mental health issues
+- [09:07.150] around the country associated with these shootings.
+- [09:09.300] And the second thing is Chicago.
+- [09:11.220] You know, anybody with a connected brain stem
+- [09:14.990] knows that Chicago's crime is out of control.
+- [09:17.780] And young black men are getting killed,
+- [09:20.040] laying dead in the middle of the streets
+- [09:21.510] every single day in Chicago.
+- [09:23.400] No president has addressed any of these issues.
+- [09:26.350] And so what is the White House going to do
+- [09:28.580] to address issues in their capacity
+- [09:31.190] to deal with the conflict and violence in Chicago?
+- [09:34.420] Karoline Leavitt: Well, to your first question
+- [09:35.820] about this shooting in Minnesota
+- [09:37.170] right now, the administration is focused
+- [09:39.700] on helping the people of Minnesota.
+- [09:41.410] It's been less than a day, of course,
+- [09:43.550] since this tragedy happened.
+- [09:44.950] We have federal law enforcement on the ground
+- [09:47.160] assisting local law enforcement. This investigation is ongoing.
+- [09:50.590] There's still a lot of facts to understand
+- [09:52.790] about these circumstances,
+- [09:55.000] and so we're going to continue to do that.
+- [09:57.050] As for Chicago and cracking down on crime.
+- [10:00.070] It is a priority of this administration
+- [10:02.120] to ensure that American cities are safe again.
+- [10:04.230] And I'm so glad that you brought up the crime in Chicago
+- [10:07.310] because we've been seeing the governor
+- [10:08.860] of Illinois parading out there
+- [10:11.040] saying that there's nothing wrong with Chicago.
+- [10:13.830] It's a great place to live. There's no crime there.
+- [10:16.020] He doesn't need President Trump's help.
+- [10:17.630] Well, I think the residents of Chicago beg to differ
+- [10:20.330] and the statistics beg to differ.
+- [10:21.920] And I'll just share a few of you,
+- [10:23.540] a few, of those statistics
+- [10:24.790] with all of you for 13 consecutive years.
+- [10:27.950] Chicago has had the most murders of any US city.
+- [10:32.530] This is J.B. Pritzker's legacy, by the way.
+- [10:35.350] For seven consecutive years,
+- [10:36.760] Chicago has the highest murder rate among US cities
+- [10:40.520] with more than one million people.
+- [10:42.600] In 2024, just last year, Chicago's murder rate per capita
+- [10:46.100] was three times higher than Los Angeles
+- [10:48.830] and nearly five times higher than New York City.
+- [10:51.470] That's more than double the murder rate in Islamabad
+- [10:54.190] and nearly 15 times more. Than Delhi.
+- [10:56.650] Out of Chicago's 147,899 reported crimes this year.
+- [11:02.790] That's how many crimes have been reported in Chicago
+- [11:04.880] since January 1st.
+- [11:06.440] There have only been arrests in 16 percent of them.
+- [11:09.670] These numbers are unacceptable.
+- [11:11.560] There has been more illegal guns recovered in Chicago
+- [11:13.820] than in New York City and Los Angeles combined.
+- [11:16.100] The number of reported motor vehicle thefts last year
+- [11:18.920] was more than double the number in 2021.
+- [11:21.620] And Chicago has also, just like D.C.,
+- [11:23.700] come under scrutiny over discrepancies
+- [11:25.740] and its homicide data reporting.
+- [11:27.360] So as bad as these numbers are, perhaps they are even worse.
+- [11:31.060] And this is Governor Pritzker's legacy.
+- [11:33.070] He should put politics aside.
+- [11:34.650] He should pick up the phone and call this president
+- [11:36.940] who would be more than happy to do right
+- [11:38.970] by law-abiding American residents
+- [11:41.080] in the city of Chicago, and we hope that he will.
+- [11:43.440] Gabe, and thanks for being here, Brandon.
+- [11:47.110] The Press: First, on the firing of the CDC director,
+- [11:49.730] first, who will replace her,
+- [11:51.240] and then also overnight the White House said
+- [11:54.210] that she did not align with the President's agenda.
+- [11:57.390] Dr. Menard's attorneys say that she refused
+- [11:59.690] to rubber stamp unscientific reckless directives
+- [12:02.500] and fired dedicated health experts.
+- [12:04.580] What specifically did she do wrong?
+- [12:06.400] Karoline Leavitt: Look, what I will say about this individual
+- [12:08.320] is that her lawyer's statement
+- [12:10.340] made it abundantly clear themselves
+- [12:12.040] that she was not aligned with the President's mission
+- [12:14.060] to make America healthy again.
+- [12:16.070] And the secretary asked her to resign.
+- [12:18.730] She said she would, and then she said she wouldn't,
+- [12:20.650] so the President fired her, which he has every right to do.
+- [12:23.500] It was President Trump
+- [12:24.750] who was overwhelmingly re-elected on November 5th.
+- [12:27.780] This woman has never received a vote in her life,
+- [12:29.870] and the President has the authority to fire
+- [12:31.980] those who are not aligned with his mission.
+- [12:33.850] A new replacement will be announced
+- [12:35.320] by either the President or the Secretary very soon.
+- [12:38.090] And the President and Secretary Kennedy
+- [12:40.040] are committed to restoring trust and transparency and credibility
+- [12:43.460] to the CDC by ensuring their leadership
+- [12:45.990] and their decisions are more public-facing,
+- [12:48.250] more accountable, strengthening our public health system,
+- [12:51.300] and restoring it to its core mission
+- [12:53.420] of protecting Americans from communicable diseases,
+- [12:57.090] investing in innovation to prevent, detect,
+- [12:59.200] and respond to future threats.
+- [13:00.880] That's the mission of the CDC and we're going to make sure
+- [13:03.100] that folks that are in positions of leadership
+- [13:06.040] there are aligned with that mission.
+- [13:07.580] The Press: And then briefly on another topic,
+- [13:09.040] Alligator Alcatraz.
+- [13:10.260] Last week, a judge on an environmental concerns lawsuit
+- [13:14.610] said that the administration has 60 days to wind
+- [13:16.930] down operations that our state officials did.
+- [13:18.920] Now, the administration has not been shy
+- [13:21.070] in fighting back against what it calls activist judges,
+- [13:23.970] but why is it backing down this time?
+- [13:26.260] Karoline Leavitt: We're not backing down.
+- [13:27.530] We've always said that we are going to continue
+- [13:29.480] to fight in the court of law for what's right
+- [13:31.830] because we know that what this administration is doing
+- [13:34.700] with respect to all policy
+- [13:36.420] But also immigration policy is on the above the books
+- [13:39.620] and we're abiding by our nation's immigration laws
+- [13:41.920] And we think it's despicable that an activist judge
+- [13:44.790] has inserted themselves in this migrant detention facility
+- [13:48.420] to the point where DHS is now having to
+- [13:50.750] Relocate these illegal immigrants
+- [13:52.620] to other detention facilities around the country
+- [13:55.260] That is an unnecessary burden
+- [13:57.210] on the Department of Homeland Security
+- [13:58.840] and these agents who should be removing
+- [14:02.740] these criminals from our community.
+- [14:04.450] That's what the American people elected this president to do.
+- [14:06.610] So we've always maintained, Gabe,
+- [14:08.240] we're going to comply with court orders,
+- [14:09.720] but we're also going to fight back on them
+- [14:11.020] on the merits of the law.
+- [14:12.580] And DHS is in compliance while we disagree with this decision
+- [14:15.780] and we'll continue to fight it in court.
+- [14:18.350] Let's go to – go ahead.
+- [14:21.110] The Press: Thanks so much.
+- [14:22.340] So just following up on the CDC firing,
+- [14:26.480] are you anticipating other changes there at CDC
+- [14:31.140] in addition to that firing,
+- [14:32.600] and is the administration going through
+- [14:34.520] in a very sort of organized fashion,
+- [14:36.730] is there a task force that's going through high level
+- [14:40.100] appointees to see who is or isn't aligned with the mission.
+- [14:43.880] Like, should we expect more?
+- [14:46.590] Karoline Leavitt: Not to my knowledge,
+- [14:47.810] I understand there were a few other individuals
+- [14:50.120] who resigned after the firing of Ms. Monarez.
+- [14:53.100] One of those individuals wrote in his departure statement
+- [14:56.470] that he identifies pregnant women as pregnant people.
+- [15:00.650] So that's not someone who we want
+- [15:02.140] in this administration anyway.
+- [15:03.460] So if people are not aligned with the President's vision
+- [15:06.010] and the Secretary's vision to make our country healthy again,
+- [15:09.160] then we will gladly show them the door.
+- [15:10.930] Karoline, can I just go to the back?
+- [15:13.860] I'll go behind you, Andrew. Go ahead.
+- [15:17.650] The Press: The military deployment that President Trump
+- [15:19.300] has sent to the Caribbean Sea
+- [15:20.770] close to the shores with Venezuela is massive.
+- [15:23.410] It's much more than is needed
+- [15:25.040] to simply counter narcotics operations.
+- [15:27.660] Is President Trump considering launching
+- [15:29.350] military strikes to military installments facilities
+- [15:33.210] in Venezuelan soil?
+- [15:35.030] Karoline Leavitt: I won't get ahead of the President
+- [15:36.370] with respect
+- [15:37.610] to any military action or questions about that ever.
+- [15:41.290] But what I will tell you is that many Caribbean nations
+- [15:44.370] and many nations in the region have applauded
+- [15:47.090] the administration's counter drug operations and efforts.
+- [15:50.760] And the President is prepared to use
+- [15:52.490] every element of American power
+- [15:54.570] to stop drugs from flooding into our country
+- [15:57.470] and to bring those responsible to justice.
+- [15:59.670] And as I've said from this podium before,
+- [16:01.420] the Maduro regime is not the legitimate government
+- [16:03.850] of Venezuela. It is a narco-terror cartel.
+- [16:07.170] Maduro is not a legitimate president.
+- [16:08.910] He is a fugitive head of this drug cartel,
+- [16:11.370] he has been indicted in the United States
+- [16:13.640] for trafficking drugs into our country,
+- [16:15.620] and it is the utmost responsibility of this president
+- [16:18.660] and this administration to prevent the illicit flow
+- [16:21.750] of drugs into out country and to protect citizens
+- [16:25.030] from those deadly poisons. Reagan.
+- [16:27.520] The Press: Thanks, Karoline. I have two questions for you.
+- [16:29.790] Democrats, including former White House
+- [16:31.670] Press Secretary Jen Psaki and Minneapolis Mayor
+- [16:34.500] Jacob Rea, attacked Rea and pushed gun control
+- [16:37.530] in the aftermath of yesterday's shooting.
+- [16:40.010] What's the White House's response to their comments?
+- [16:42.150] Karoline Leavitt: Yes, I saw
+- [16:43.460] the comments of my predecessor, Ms. Psaki.
+- [16:46.460] And frankly, I think they're incredibly insensitive
+- [16:50.950] and disrespectful to the tens of millions of Americans of faith
+- [16:55.060] across this country who believe in the power of prayer,
+- [16:58.370] who believe that prayer works,
+- [16:59.860] and who believe in a time of mourning like this,
+- [17:02.910] when beautiful young children were killed
+- [17:04.710] while praying in a church, it's utterly disrespectful
+- [17:10.220] to deride the power of prayer in this country.
+- [17:15.140] And it's disrespectful to the millions of Americans of faith.
+- [17:18.250] And I would encourage Ms. Psaki
+- [17:20.970] to pray for these families themselves
+- [17:23.050] who need it right now more than ever.
+- [17:25.380] The Press: (inadubile) believe that this element
+- [17:33.980] needs to be investigated in the shooting?
+- [17:35.800] Karoline Leavitt: All of the elements
+- [17:37.040] are being investigated in the shooting, absolutely,
+- [17:40.190] which is why part of the reason the FBI director came out
+- [17:42.880] and immediately confirmed that facet of the investigation.
+- [17:46.220] John.
+- [17:47.440] The Press: Thanks a lot, Karoline.
+- [17:48.650] Two questions on two separate issues.
+- [17:50.720] First of all, the drone and missile
+- [17:52.750] strikes that took place overnight in Ukraine.
+- [17:56.730] General Keith Kellogg, the President's special envoy,
+- [18:01.200] has described these attacks as egregious.
+- [18:04.800] Do you agree with that description,
+- [18:06.840] and do you view President Putin
+- [18:08.710] as an impediment to getting peace
+- [18:11.180] between these two countries?
+- [18:12.620] Karoline Leavitt: Well, it's not about if I agree,
+- [18:13.890] it is about what the President thinks
+- [18:15.320] and I know what the President thanks
+- [18:16.660] because I talked to him about this.
+- [18:17.870] He was not happy about this news,
+- [18:20.070] but he was also not surprised.
+- [18:22.090] These are two countries that have been at war
+- [18:23.820] for a very long time.
+- [18:25.060] Russia launched this attack on Kiev and likewise,
+- [18:28.050] Ukraine recently dealt a blow to Russia's oil refineries.
+- [18:31.540] They have taken out, as a matter of fact,
+- [18:33.360] 20 percent of Russia's oil refinery capacity
+- [18:36.810] over the course of their attacks throughout the month of August.
+- [18:40.200] So the President is continuing to watch this intently,
+- [18:42.970] and this killing, unfortunately,
+- [18:44.750] will continue as long as the war continues,
+- [18:46.820] which is why the President wants it to end.
+- [18:49.550] And that's why he's worked harder
+- [18:51.140] than anyone to end this war,
+- [18:53.150] which would have never started if he were President.
+- [18:55.010] But perhaps both sides of this war
+- [18:57.750] are not ready to end it themselves.
+- [18:59.240] The President wants to end,
+- [19:00.510] but the leaders of these two countries need it to
+- [19:02.710] and want it to end must want it to as well.
+- [19:05.310] And I think the President will make
+- [19:06.820] some additional statements on this later.
+- [19:08.320] The Press: My second question has --
+- [19:12.160] it has to do with the President's intention
+- [19:13.980] to remove Lisa Cook as a member of the Federal Reserve Board.
+- [19:18.560] He is going or acting upon allegations that have been made
+- [19:23.640] by Trump administration official Bill Holti.
+- [19:27.340] These are just allegations.
+- [19:28.860] She hasn't been convicted yet of any crime.
+- [19:30.830] Is the administration opposed to allowing Ms. Cook
+- [19:34.740] to have process to challenge
+- [19:37.410] what has been alleged against her.
+- [19:39.780] Karoline Leavitt: I believe she is challenging it.
+- [19:41.190] I believe that she just filed a lawsuit today
+- [19:43.100] and Mr. Pulte has deferred those allegations
+- [19:45.570] over to the Department of Justice to investigate them.
+- [19:48.530] What I will say is that you had these mortgage receipts
+- [19:53.020] very clearly shown to the President
+- [19:55.270] and he has the cause that he needs to fire this individual.
+- [19:58.710] He laid it out in the letter that he provided to her
+- [20:00.970] and to the public as well.
+- [20:02.350] And so we'll continue to fight this battle.
+- [20:03.830] Carrie.
+- [20:05.050] The Press: Hi, Karoline. So the President just announced
+- [20:07.970] that he wants to have a convention
+- [20:09.800] right before the midterms next year.
+- [20:11.960] The DNC has countered that they too want
+- [20:14.810] to have a convention right for the midterm as well.
+- [20:18.190] What's the White House's response to that?
+- [20:20.040] And can you give us just a little bit of a hint
+- [20:22.190] or a tease here as to how the President
+- [20:24.800] envisions a convention for the Midterms?
+- [20:28.260] Karoline Leavitt: Look, the President put out
+- [20:29.500] a statement on this earlier today.
+- [20:30.900] I'll let him speak further on the plans that he envisions.
+- [20:34.140] But I think he's very proud of the accomplishments
+- [20:36.950] and the achievements of his administration as he should be.
+- [20:39.910] The most secure border in United States history,
+- [20:42.520] a crackdown on crime here in our nation's capital,
+- [20:45.730] an attack or a reversal of the attack
+- [20:47.910] on our energy industry from the previous administration,
+- [20:50.840] as I just pointed out to you, gas prices today, this Labor Day
+- [20:54.250] are the lowest they've been since Labor Day in 2020.
+- [20:57.270] Our economy is bringing in millions,
+- [20:59.260] trillions of dollars in revenue from all over the world again.
+- [21:01.830] So there is so much for Republicans
+- [21:03.900] and for the President and for Americans
+- [21:06.020] across the country to be proud of.
+- [21:07.390] And I think the President wants to see that celebrated.
+- [21:09.340] But for any further details on this as they come,
+- [21:11.730] we'll provide you with them. Iris..
+- [21:14.110] The Press: Thank you, Karoline. Questions on the shooting.
+- [21:16.540] What's the administration's message
+- [21:17.850] to some concerned parents across the country
+- [21:20.450] who might be now worried about their kids' safety,
+- [21:23.220] like the latest incident?
+- [21:25.490] Karoline Leavitt: Completely and totally understand
+- [21:28.020] the concerns of parents across the country.
+- [21:31.440] This tragedy is heartbreaking.
+- [21:33.820] As a parent myself, there are no words to describe
+- [21:36.970] just the heartbreak that these families must be enduring,
+- [21:40.920] which is why the President and the First Lady
+- [21:42.650] have encouraged everyone to continue to pray
+- [21:46.370] for these families and these victims.
+- [21:48.940] And it's why this administration is focused
+- [21:51.520] on removing public safety threats from our communities.
+- [21:54.720] And in fact, I can share with all of you
+- [21:56.650] that last night in Washington, D.C.,
+- [21:58.880] when arrests were being made,
+- [22:00.180] there was an arrest of a juvenile right here in D.C.
+- [22:02.720] In Ward 7 for threats to kidnap and injure,
+- [22:06.000] receiving stolen property,
+- [22:07.310] possession of a large capacity feeding device,
+- [22:09.820] unlawful possession of firearms and ammunition.
+- [22:12.740] A search warrant was executed, seven firearms were recovered,
+- [22:16.260] and the juvenile was arrested after an investigation
+- [22:18.750] was initiated based on social media posts
+- [22:21.450] allegedly threatening violence towards a school.
+- [22:24.230] So this was a juvenile who was a risk to not just himself
+- [22:28.910] but the community here in Washington
+- [22:30.440] and he was removed from the community last night
+- [22:33.320] because of the law enforcement efforts of this administration
+- [22:35.600] and I would also point to the statement
+- [22:37.760] of our wonderful First Lady that she released yesterday.
+- [22:40.620] She wrote, the tragic mass killing in Minnesota
+- [22:42.950] illuminates the need for preemptive intervention
+- [22:45.570] in identifying school shooters.
+- [22:47.330] Early warning signs are often evident.
+- [22:49.300] With many individuals exhibiting concerning behaviors
+- [22:51.880] and making violent threats online prior to their actions.
+- [22:55.140] We encourage all Americans, as the old saying goes,
+- [22:57.560] if you see something, say something.
+- [22:59.060] If you see warning signs or threats,
+- [23:00.980] report it to law enforcement.
+- [23:02.330] This administration, federal law enforcement,
+- [23:04.710] will take those reports and those threats seriously.
+- [23:06.910] They will be treated as a law enforcement emergency,
+- [23:09.610] and we will act accordingly.
+- [23:11.200] The Press: First lady's statement,
+- [23:12.660] would the administration consider ramping up resources
+- [23:15.130] on these fronts to parents and schools across the country
+- [23:18.280] to help them look into these signs
+- [23:19.860] and prevent more tragedies?
+- [23:21.220] Karoline Leavitt: It's a very fair question, Iris.
+- [23:22.940] As for any potential future policy decisions
+- [23:25.530] or funding questions,
+- [23:26.840] it's just been over 24 hours since this tragedy occurred.
+- [23:30.370] Right now, we're focused on the FBI
+- [23:32.380] and their investigation and covering all the facts.
+- [23:34.910] And we'll leave those very important policy
+- [23:36.830] discussions to another day. Go ahead. Megan.
+- [23:41.900] The Press: I had a question
+- [23:43.340] about the Lisa Cooke lawsuit that you mentioned.
+- [23:45.550] Does the President plan to wait until that lawsuit is resolved?
+- [23:51.310] Karoline Leavitt: I will leave that to the President
+- [23:52.760] to make that decision in that announcement himself.
+- [23:55.150] Brian.
+- [24:01.810] The Press: I'm curious,
+- [24:03.390] if administration officials are pushing back
+- [24:06.710] on the President's agenda, privately, publicly, however,
+- [24:09.630] should they fear to lose their jobs going forward?
+- [24:13.990] Karoline Leavitt: Look, I think if you're doing your job well,
+- [24:16.500] and if you are executing on the vision
+- [24:18.680] and the promises that the President made to the public
+- [24:21.330] who elected him back to this office,
+- [24:23.740] then you should have no fear about your job.
+- [24:25.630] Just do your job, that's what this President wants to see.
+- [24:28.460] He wants to people solving problems,
+- [24:30.460] he wants to the people who have the privilege
+- [24:33.690] of serving the American taxpayer and the federal government
+- [24:36.070] abiding by the wishes of the American taxpayers
+- [24:39.150] who overwhelmingly reelected him.
+- [24:41.560] In this cabinet to make America great again,
+- [24:44.370] or in this case, make America healthy again.
+- [24:46.780] The Press: The Intel deal where the U.S.
+- [24:48.570] got a stake in that company,
+- [24:51.710] there's two things I want to ask about that.
+- [24:53.400] The first is,
+- [24:54.600] what did the US get back in return for that deal?
+- [24:58.230] And the second thing is, what are the future plans
+- [25:00.890] for giving any form of money to another company?
+- [25:04.320] It could be through the CHIPSs Act like this deal
+- [25:06.380] or some other form of funds.
+- [25:08.040] What are the plans there by this White House administration?
+- [25:09.960] Karoline Leavitt: Look, as you know, Brian, very well,
+- [25:11.410] because you cover it often,
+- [25:12.720] the Intel deal is still being ironed out
+- [25:14.550] by the Department of Commerce.
+- [25:15.950] The T's are still being crossed, the I's are being dotted,
+- [25:20.180] it's very much still under discussion.
+- [25:22.580] But the President's thinking I can share with you
+- [25:24.620] is certainly to ensure that the United States government
+- [25:28.240] is making our country wealthy again
+- [25:31.580] and is benefiting from some of these deals.
+- [25:34.780] And it's a creative solution.
+- [25:36.330] I know it's outside the box thinking, which is uncommon.
+- [25:39.660] In this city, but it's something that he proposed
+- [25:42.510] and something that the Secretary of Commerce
+- [25:44.200] is working on putting into action.
+- [25:45.960] The Press: Thanks, Karoline.
+- [25:47.190] I have a couple questions on the shooting yesterday.
+- [25:49.820] The first one, this is the second shooting
+- [25:52.340] involving a trans-identifying shooter
+- [25:54.240] who specifically targeted Christians and Catholic kids.
+- [25:58.520] What kind of consequences
+- [25:59.890] do the gender-affirming therapists, doctors,
+- [26:02.310] or even the parents of these shooters face
+- [26:04.630] after these types of shootings?
+- [26:06.390] Karoline Leavitt: Well, as for the parents
+- [26:07.760] and potential therapists in this case, again,
+- [26:09.770] all of that is still currently being investigated by the FBI.
+- [26:13.810] I know the Secretary of Health and Human Services
+- [26:15.900] this morning said that HHS is investigating
+- [26:19.510] perhaps links between some of these drugs
+- [26:21.780] and these prescription drugs
+- [26:23.170] that some of these minors may be taking
+- [26:25.370] and an increase in violence.
+- [26:27.490] And obviously we have mental health problems in this country
+- [26:31.000] that this administration and Secretary Kennedy
+- [26:32.850] will continue to speak out about
+- [26:34.870] and the work that we're doing to solve it.
+- [26:36.420] The Press: Thank you, and just to follow up,
+- [26:37.710] I've seen a lot of calls for action among these lawmakers
+- [26:40.590] saying that we shouldn't just be crying.
+- [26:42.070] One that I've seen on the right, actually,
+- [26:43.920] calls for the FBI to institute a new class
+- [26:46.340] of domestic terrorism that involves trans ideology.
+- [26:48.680] Is that something that the administration would support?
+- [26:51.130] Karoline Leavitt: I would have to check
+- [26:52.370] with the appropriate people on that.
+- [26:56.020] The Press: Thank you, Karoline.
+- [26:57.370] We saw some new revised economic data come out today
+- [26:59.860] showing the U.S. economy moving 3.3 percent clip,
+- [27:02.530] largely surp-buoyed by a surge of Capex.
+- [27:05.120] What's the White House reaction to this?
+- [27:06.680] And is this sort of the President's vision
+- [27:08.880] beginning to come to life after the bill is passed in July?
+- [27:12.190] Karoline Leavitt: Yes, I mean, look, we did say that
+- [27:14.070] once the big, beautiful bill was signed into law,
+- [27:16.610] we're going to see the effects
+- [27:18.450] of this massive pro-growth piece of legislation.
+- [27:21.880] As I laid out for you as we head into the Labor Day weekend,
+- [27:25.010] there's many positive economic indicators
+- [27:27.140] that the American people can be hopeful about.
+- [27:29.410] But don't forget, we are reversing four years of reckless
+- [27:34.070] spending from the previous administration
+- [27:36.180] of slamming regulations
+- [27:38.130] down the throats of American business owners
+- [27:40.400] and consumers across the country.
+- [27:42.130] But the administration is working very hard
+- [27:43.700] to unravel all of that
+- [27:45.250] and to ensure that small business owners
+- [27:47.210] and workers are thriving
+- [27:49.270] and that they have more money in their own pockets to spend.
+- [27:52.440] Thank you.
+- [27:53.810] The Press: Thank you so much, Karoline.
+- [27:55.670] Back on the CDC, there was reporting
+- [27:57.420] that some of the initial problems
+- [27:59.100] between RFK and the CDC director stemmed from miscommunications
+- [28:04.180] or differences on vaccine policies.
+- [28:05.750] So I wonder if you could just say
+- [28:07.120] whether or not the President believes
+- [28:09.070] that the COVID vaccine should be available to
+- [28:11.520] and covered by insurance for all Americans,
+- [28:14.340] regardless of age and preexisting conditions.
+- [28:17.590] Karoline Leavitt: What I will tell you
+- [28:18.840] is that the FDA recently revoked
+- [28:21.410] the emergency youth authorizations
+- [28:23.040] for three COVID vaccinations
+- [28:24.650] while simultaneously greenlighting
+- [28:26.340] four new COVID-19 vaccines with 2025 and 2026 formulas.
+- [28:31.340] The reason for the revocation
+- [28:32.940] of that emergency youth authorization
+- [28:34.580] is because obviously the COVID pandemic
+- [28:36.640] and the public health emergency is over.
+- [28:38.780] But just to correct the record,
+- [28:40.010] because there's been a lot of misinformation
+- [28:41.550] on the FDA's decision
+- [28:42.770] does not affect the availability of COVID vaccines.
+- [28:45.960] For Americans who want them. We believe in individual choice.
+- [28:49.250] That's a promise both the President
+- [28:50.720] and the Secretary have made,
+- [28:52.130] and it's a promised they have now delivered on.
+- [28:58.790] The Press: I wonder if you could answer
+- [29:00.270] why the President hasn't acknowledged the shooting
+- [29:03.400] at CDC headquarters that took place earlier in August
+- [29:06.700] where a police officer was killed
+- [29:09.090] and it was reported that the motivation for the shooting
+- [29:12.580] was somebody who was really unhappy
+- [29:15.570] with the effects of the COVID vaccine.
+- [29:17.660] Karoline Leavitt: We absolutely were very much aware
+- [29:19.180] of that shooting.
+- [29:20.380] The Secretary of Health and Human Services
+- [29:22.140] put out a statement immediately. He was in touch with the CDC,
+- [29:25.190] and he actually traveled to Georgia to assess the situation
+- [29:28.580] and to mourn with the people who work in that building there.
+- [29:33.060] So, go ahead.
+- [29:36.550] The Press: With respect to Labor Day,
+- [29:37.810] one of the most underrepresented groups
+- [29:39.500] right now are police officers.
+- [29:40.770] 30,000 police officers short in America right now.
+- [29:43.980] To Brandon's question, 1,300 short in Chicago,
+- [29:46.900] 3,000 short in New York,
+- [29:49.100] 500 short here in Washington, D.C.
+- [29:51.120] What can the White House, what can the President
+- [29:52.930] do to help recruitment of police officers
+- [29:55.130] who have done well with the military and border patrol?
+- [29:57.100] What can be done to be more police officers
+- [29:58.730] on the streets of America?
+- [30:00.020] Karoline Leavitt: Well, the President
+- [30:01.220] has certainly been very successful
+- [30:02.560] in recruiting federal law enforcement.
+- [30:04.800] If you look at the ICE recruitment campaign
+- [30:06.710] that was led by he and our Secretary of Homeland Security,
+- [30:09.830] we've seen more than I believe 130,000 applicants to join ICE,
+- [30:13.710] which is just amazing.
+- [30:15.400] There's more applicants now than there are jobs to fill,
+- [30:17.970] and we're very grateful for that.
+- [30:19.350] Clearly, Americans want to serve their communities.
+- [30:21.650] They just need a leader who encourages them to do so.
+- [30:24.200] So maybe Governor Pritzer should spend less time
+- [30:26.910] demonizing the police, more time trying to recruit more police.
+- [30:30.330] And more time trying to call the President of the United States
+- [30:32.600] to get crime in his city under control.
+- [30:34.800] The President wants to allow law enforcement,
+- [30:38.040] whether it's state, local, federal, to do their jobs,
+- [30:41.740] to arrest criminals, to put them behind bars,
+- [30:44.440] and to remove public safety threats
+- [30:45.840] from American communities.
+- [30:47.260] He'll continue to do that. Thank you, guys.

@@ -1,0 +1,826 @@
+<!-- source: https://www.youtube.com/watch?v=NKl2dpLylK0 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: NKl2dpLylK0 -->
+<!-- date_published: 2025-06-26T17:44:07+00:00 -->
+<!-- date_accessed: 2026-06-02T02:47:56.872649+00:00 -->
+
+# Transcript: Press Secretary Karoline Leavitt Briefs Members of the Media, June 26, 2025
+
+- [00:11.130] Karoline Leavitt: Good afternoon, everybody.
+- [00:12.420] Good to see all of you.
+- [00:14.870] With President Trump as Commander-in-Chief,
+- [00:17.350] the world is a much safer place.
+- [00:20.060] After decades in which past presidents coddled
+- [00:22.820] and enabled the world's leading state sponsor of terrorism,
+- [00:26.550] President Trump finally ended the immediate threat
+- [00:29.640] of a nuclear Iranian regime.
+- [00:32.350] Following President Trump's command,
+- [00:34.010] the most powerful military in the history
+- [00:36.300] of the world executed massive precision
+- [00:39.330] strikes on three of the Iranian regime's key nuclear facilities.
+- [00:44.390] The objective of Operation Midnight Hammer
+- [00:46.700] was to destroy the regime's nuclear enrichment capacity
+- [00:50.250] and stop the grave nuclear threat
+- [00:51.950] posed to the United States, Israel,
+- [00:54.610] and the rest of the free world.
+- [00:56.450] The mission, which will go down in the history books,
+- [00:59.480] was an overwhelming success.
+- [01:01.900] Secretary of Defense Pete Hegseth
+- [01:03.740] and the Chairman of the Joint Chiefs of Staff Dan Razin Canie
+- [01:07.080] covered the operation in great detail
+- [01:09.160] at their briefing this morning at the Pentagon,
+- [01:11.510] and I encourage every American to watch it.
+- [01:14.670] As President Trump has said repeatedly,
+- [01:16.920] the United States of America has the greatest, fiercest,
+- [01:20.510] and bravest armed forces ever to stride the face of this Earth,
+- [01:24.700] and we couldn't be more grateful
+- [01:26.170] and proud of our nation's warriors.
+- [01:29.210] The Iranian regime was weeks away
+- [01:31.320] from being able to produce a nuclear weapon
+- [01:33.510] that would threaten the entire world before President Trump
+- [01:37.100] took this decisive action on Saturday night
+- [01:39.330] to obliterate their nuclear capabilities.
+- [01:42.410] The contrast in leadership could not be more clear.
+- [01:45.450] Barack Obama and Joe Biden sent pallets of cash,
+- [01:48.810] American taxpayer dollars,
+- [01:50.790] in a failed attempt to buy the Iranian regime's compliance
+- [01:53.840] with a weak and ineffective deal.
+- [01:56.590] President Trump sent a fleet of American warplanes
+- [01:59.760] to destroy Iran's ability to produce a nuclear weapon.
+- [02:03.560] The United States and the entire world are safer
+- [02:06.330] because of this president's decisiveness.
+- [02:08.910] Despite agenda-driven leaks by the fake news media
+- [02:12.460] aimed at undermining this incredible accomplishment
+- [02:14.960] achieved by President Trump and our brave fighter pilots,
+- [02:18.360] there is broad consensus emerging already
+- [02:21.040] that Iran's nuclear capabilities were indeed destroyed.
+- [02:25.270] The United State, Israel, the United Nations,
+- [02:27.960] and even Iran all agree,
+- [02:29.980] they can no longer build a nuclear weapon.
+- [02:32.840] So why did the President immediately turn to obliterating
+- [02:37.630] after the Iranian nuclear threat?
+- [02:39.640] Securing peace.
+- [02:41.080] Within 48 hours of the devastating strike,
+- [02:43.910] President Trump and his team brokered a historic ceasefire
+- [02:47.140] between Israel and Iran and officially ended the 12-day war.
+- [02:51.960] The Middle East is now shifting away from chaos and bloodshed
+- [02:55.320] and moving toward the beginning stages
+- [02:57.430] of a new era of peace and stability
+- [03:00.470] that President Trump has long called on them to achieve.
+- [03:03.630] This was unthinkable at this time last week,
+- [03:06.540] and this is what peace through strength looks like.
+- [03:09.190] Under President Trump,
+- [03:10.590] America will relentlessly advance our interests
+- [03:13.090] without being dragged into endless wars.
+- [03:15.920] His fearless leadership guarantees America
+- [03:18.250] is once again respected across the world.
+- [03:20.920] Just look at what he was able to accomplish at the NATO
+- [03:23.120] summit in the Netherlands. Many of you were there.
+- [03:26.290] Our allies agreed to invest 5 percent
+- [03:28.800] of their GDP annually in defense
+- [03:30.850] because President Trump demanded it.
+- [03:33.190] This will be the most significant reinforcement
+- [03:35.600] of NATO's collective defense
+- [03:36.990] in the history of the NATO alliance.
+- [03:39.720] And as a result, the United States of America
+- [03:42.090] will carry less of the burden
+- [03:43.630] and our NATO allies will be stronger than ever before.
+- [03:47.290] As NATO Secretary General Ruta put it, for too long,
+- [03:50.750] one ally, the United States, and our taxpayers, I may add.
+- [03:54.650] Carried too much of the burden of that commitment.
+- [03:57.280] And that changes today.
+- [03:58.830] President Trump made this change possible.
+- [04:01.800] We will produce trillions more for our common defense
+- [04:05.050] to make us stronger and fairer
+- [04:06.610] by equalizing spending between America and our allies.
+- [04:10.540] This is the Trump effect. This is what the President met
+- [04:13.870] when he declared that America is back.
+- [04:17.170] Now, back here at home,
+- [04:18.370] Americans are paying much cheaper prices
+- [04:20.330] for gasoline this summer, as both the Wall Street Journal
+- [04:22.650] and the New York Times pointed out today.
+- [04:24.930] Here's how the Wall Street Journal put it.
+- [04:26.720] Hitting the road this summer
+- [04:28.010] won't bring as much of a big hit to your wallet.
+- [04:30.340] The national average for a gallon of regular gasoline
+- [04:33.010] is about 23 cents cheaper than this time last year.
+- [04:36.560] Analysts say plentiful supply
+- [04:38.330] is expected to keep prices down in the coming months.
+- [04:41.670] These are the cheapest gas prices
+- [04:43.290] at this point of the summer since 2021.
+- [04:47.310] And despite all the doom casting from liberal pundits,
+- [04:51.600] oil prices on Tuesday
+- [04:52.930] were lower than before the Israel-Iran conflict began.
+- [04:57.170] As President Trump continues to unleash American energy,
+- [04:59.920] our country will have even more efficient,
+- [05:02.240] reliable and affordable energy
+- [05:04.850] to protect our national security and fuel our people.
+- [05:08.960] Later this afternoon, here at the White House,
+- [05:10.910] the President will host a One Big Beautiful event
+- [05:13.980] in the East Room to rally Republicans
+- [05:16.090] to get the One Big Beautiful bill across the finish line.
+- [05:19.560] At that event, he will be joined by everyday Americans
+- [05:22.070] from across the country who will massively benefit
+- [05:24.870] from the common sense policies and provisions within this bill.
+- [05:28.720] This is the largest tax cut for working in middle class
+- [05:31.570] Americans in history, and it's going to put more money
+- [05:34.360] into the pockets of hardworking Americans.
+- [05:37.900] Families will see an average increase in take home
+- [05:40.080] pay of more than $10,000 per year.
+- [05:43.100] Americans earning between $30,000 and $80,000 per year
+- [05:47.240] will see a 15% tax cut. Overtime and tipped workers
+- [05:51.660] will save thousands of dollars annually,
+- [05:54.030] and our amazing seniors
+- [05:55.420] will receive historic financial relief
+- [05:57.730] by reducing the tax burden on their Social Security benefits.
+- [06:01.720] Simply put, this bill is going to unlock
+- [06:04.620] the golden age of America,
+- [06:06.670] and we look forward to continuing to work
+- [06:08.480] with the Senate and the House
+- [06:09.800] to see this bill on the President's desk
+- [06:11.620] for signature by Independence Day.
+- [06:14.280] Here in our new media seat today,
+- [06:15.670] we have Colin Anderson with the Washington Free Beacon
+- [06:18.090] who will kick off our question and answer.
+- [06:20.050] Colin, go ahead.
+- [06:21.250] The Press: Thank you, Karoline. We reported yesterday
+- [06:23.090] on a briefing from the Israeli Defense Minister
+- [06:25.390] in which she said the U.S. And Israel
+- [06:26.990] are working together to monitor any attempts from Iran
+- [06:29.890] to rebuild their nuclear program,
+- [06:31.600] and also that if Iran was to do so, the U S.
+- [06:33.690] and Israel would work together to once again
+- [06:35.280] destroy that nuclear program.
+- [06:36.780] Does that align with the President's thinking?
+- [06:38.550] Karoline Leavitt: Look, the President,
+- [06:39.750] as I said in those opening remarks, Colin,
+- [06:41.570] and thanks for being with us today,
+- [06:43.780] views the Middle East on its way to peace and prosperity.
+- [06:47.280] And the President used strength on Saturday night.
+- [06:50.020] The whole world saw that the United States
+- [06:51.860] is indeed the most lethal fighting force in the world
+- [06:54.740] with those precision strikes on Saturday evening.
+- [06:57.900] But the President wants peace, he always has.
+- [07:00.020] And right now we're on a diplomatic path with Iran.
+- [07:02.920] The president and his team, namely Special Envoy Witkoff,
+- [07:06.740] continue to be in communication with the Iranians,
+- [07:09.380] and especially our Gulf and Arab partners in the region,
+- [07:12.630] to come to an agreement with Iran.
+- [07:15.010] As for our alliance with the State of Israel
+- [07:17.760] and that friendship and that partnership
+- [07:19.300] between the United States and the State of Israel,
+- [07:21.400] I would argue it has never been stronger.
+- [07:23.440] And we see a new era in which perhaps
+- [07:25.830] some of these Gulf and Arab
+- [07:27.170] states can sign on to the Abraham Accords.
+- [07:29.260] That was one of the President's
+- [07:30.970] most signature accomplishments in his first term,
+- [07:33.200] and he'd like to see more of those countries sign
+- [07:35.050] on in this second term.
+- [07:36.640] And so we look forward to sustaining a long
+- [07:40.730] and durable peace in the region. And the President wants to do
+- [07:43.630] that through a diplomatic solution,
+- [07:45.530] but as he proved on Saturday night,
+- [07:47.320] he's not afraid to use strength if we need to do it.
+- [07:51.130] The Press: Thanks, Karoline.
+- [07:52.510] The President mentioned in a Truth Social post
+- [07:54.580] that no enriched uranium was moved from Fordow.
+- [07:58.610] What about the other two sites, Isfahan and Napanzen?
+- [08:01.600] How can the President be so sure that no uranium was moving?
+- [08:05.090] Karoline Leavitt: Well, what I can assure you is that
+- [08:07.230] the United States
+- [08:08.450] and our intelligence agencies and Director Ratcliffe
+- [08:11.990] and the President's entire national security team
+- [08:13.990] were obviously watching these sites very closely in the weeks
+- [08:17.030] and the days leading up to the attack on Saturday,
+- [08:19.290] which, I will add, was one of the most secretive
+- [08:21.630] and successful operations in United States
+- [08:24.220] I think many of you in this room would agree with that,
+- [08:26.380] because none of you knew about the strike on Saturday
+- [08:28.920] until it took place. So we were watching closely.
+- [08:31.830] And there was no indication to the United States
+- [08:33.900] that any of that enriched uranium
+- [08:35.280] was moved prior to the strike.
+- [08:36.560] The Press: From any of the sites?
+- [08:37.820] Karoline Leavitt: Correct.
+- [08:39.060] The Press: And then one more thing, Karoline.
+- [08:41.190] Next week, the President mentioned
+- [08:42.620] that there will be talks with Iran.
+- [08:43.900] (inaudible)
+- [08:45.280] any details and Iran has not confirmed them.
+- [08:47.770] Can you share any details about any potential talks next week?
+- [08:50.100] Karoline Leavitt: We don't have anything scheduled as of now,
+- [08:52.250] but I spoke to our Special Envoy Witkoff
+- [08:54.370] at length this morning, and I can assure all of you
+- [08:56.690] we continue to be in close communication with the Iranians
+- [08:59.930] and through our intermediaries as well, namely the Qataris,
+- [09:03.630] who have been an incredible ally and partner
+- [09:05.690] throughout this entire effort. And as I said,
+- [09:08.040] this administration is always focused on diplomacy and peace,
+- [09:11.290] and we want to ensure we can get to a place where Iran agrees
+- [09:14.160] to a non-enrichment civil nuclear program.
+- [09:18.050] And there are many other requests
+- [09:19.620] that the United States has.
+- [09:20.860] Those details continue to really,
+- [09:23.000] they're just starting.
+- [09:24.250] Of course, the operation was just on Saturday night,
+- [09:27.250] but we are in touch. And if there is a meeting,
+- [09:29.460] we will let you know, as we always do.
+- [09:31.600] The Press: Thanks, Karoline, (inaudible)
+- [09:32.920] two, one on trade.
+- [09:34.560] On the July deadline that's coming up for the trade deals,
+- [09:37.600] is that deadline still hard and fast for the President,
+- [09:40.330] or is he now considering even coming to trade deals
+- [09:43.460] after that deadline?
+- [09:44.820] And where is he on that going forward?
+- [09:46.960] Karoline Leavitt: I think the President has been asked
+- [09:48.310] this quite a few times by many of you in the media.
+- [09:50.410] I've heard him answer it at press conferences
+- [09:51.940] and at gaggles.
+- [09:53.180] He just spoke about it on Air Force One.
+- [09:55.250] The deadline is not critical.
+- [09:57.020] The president can simply provide these countries with a deal
+- [10:00.790] if they refuse to make us one by the deadline,
+- [10:03.170] and that means the President can pick a reciprocal tariff rate
+- [10:06.590] that he believes is advantageous for the United States
+- [10:09.570] and for the American worker.
+- [10:11.460] And he will continue to do that. But as for the deals,
+- [10:13.890] our United States trade ambassador, Jamison Greer.
+- [10:16.660] I speak to him frequently. He's working very hard,
+- [10:19.430] and he has had very good and productive discussions
+- [10:22.160] with many of our key trading partners.
+- [10:23.860] The Press: On the One, Big, Beautiful bill,
+- [10:25.420] there's conversations on the Hill
+- [10:26.810] right now about the Medicaid cuts.
+- [10:29.060] I'm curious, if the final bill
+- [10:32.490] that the President's been talking about comes to him
+- [10:34.300] and it has Medicaid cuts in it, will he sign it
+- [10:37.170] or would he rather just Congress do away with those cuts?
+- [10:40.230] Karoline Leavitt: I think our friends
+- [10:41.430] in both the Senate and the House
+- [10:42.730] know exactly where the President stands on Medicaid.
+- [10:45.250] He wants to get rid of the waste, fraud, and abuse,
+- [10:48.290] and they are working to do that in the Senate right now.
+- [10:51.680] The Press: Follow-up on that, on the Big Beautiful Bill,
+- [10:53.950] is there enough time for Congress
+- [10:55.850] to work through the issues it needs to work through?
+- [10:58.330] I'm saying does the President need to move back his deadline
+- [11:00.560] a little bit?
+- [11:01.760] Karoline Leavitt: We expect that bill to be
+- [11:02.970] on the President's desk for signature by July 4th.
+- [11:05.740] I know that there was a ruling
+- [11:07.540] by the Senate parliamentarian this morning.
+- [11:10.190] Look, this is part of the process.
+- [11:11.820] This is part the inner workings of the United States Senate.
+- [11:14.850] But the President is adamant
+- [11:16.150] about seeing this bill on his desk
+- [11:17.630] here at the White House by Independence Day.
+- [11:19.280] The Press: Then on Isreal,
+- [11:20.480] is there a date set for the prime minister
+- [11:22.440] to visit the White House yet? Is he coming in a couple weeks?
+- [11:24.620] Karoline Leavitt: There isn't a date,
+- [11:25.900] but the prime minster has expressed interest
+- [11:28.260] in coming to the White House
+- [11:29.550] to meet with the President and come to Washington.
+- [11:31.310] The president is obviously very open to that,
+- [11:34.070] but we don't have a date.
+- [11:35.460] When we do we'll let you all know.
+- [11:38.300] The Press: The president suggested he was open
+- [11:39.980] to sending more Patriot air defense missiles to Ukraine.
+- [11:44.100] Is that going to happen and were there any other assurances
+- [11:46.660] that he made directly to Zelensky when they met?
+- [11:48.870] Karoline Leavitt: I'll let the President speak on that.
+- [11:50.460] That was a private conversation
+- [11:51.870] between he and President Zelensky.
+- [11:53.840] But the meeting was a good meeting,
+- [11:55.440] and it was a meeting towards progress.
+- [11:57.410] And the President, as he's said,
+- [11:58.950] repeatedly wants to see this war come to an end,
+- [12:01.140] but I'll have him speak on that specific.
+- [12:02.650] The Press: And Witkoff yesterday
+- [12:03.850] suggested that there would be more countries
+- [12:05.620] signing on to the Abraham Accords.
+- [12:08.490] What's the timeline on that, and which countries specifically
+- [12:11.310] is the administration looking to have sign on?
+- [12:13.020] Karoline Leavitt: Well, the President is certainly
+- [12:14.230] hopeful that more countries in the region
+- [12:16.130] will sign on to the Abraham Accords.
+- [12:17.630] Again, we want to see a long, withstanding, and durable peace
+- [12:21.390] in the Middle East, and that's the way to do it.
+- [12:23.850] And when the President met with the new President of Syria,
+- [12:26.250] that was one of the requests that he made for Syria
+- [12:28.880] to sign on to the Abram Accords. I don't have a timeline for you,
+- [12:31.430] but this administration wants to see that happen,
+- [12:33.410] and our partners in the Region should know that. Rachel?
+- [12:35.310] The Press: Thanks so much.
+- [12:36.550] Just to follow back up on the meeting
+- [12:37.840] that the President mentioned about wanting to have
+- [12:39.590] this meeting with the Iranians next week.
+- [12:41.500] Clearly there's a willingness here from the administration
+- [12:43.710] to want to meet with Iranian officials.
+- [12:46.000] What is the holdup here in trying to schedule it?
+- [12:47.920] Are you experiencing any resistance from the Iranians?
+- [12:50.840] Karoline Leavitt: No. Have some patience.
+- [12:52.050] We just had this strike on Saturday night.
+- [12:53.810] The president secured a ceasefire.
+- [12:55.200] A lot has happened in the last week.
+- [12:57.000] He was just in the Netherlands.
+- [12:58.240] Now he's back home to have a big event
+- [13:00.280] this afternoon on the One Big Beautiful Bill
+- [13:02.130] and get our domestic priorities across the finish line.
+- [13:04.450] So we'll get there.
+- [13:05.950] And like I said, we're in constant communication.
+- [13:08.470] The Press: The goal of the meeting,
+- [13:09.700] the President mentioned yesterday
+- [13:11.030] that it may not be necessary
+- [13:12.280] to have an agreement with the Iranians.
+- [13:15.250] What is the purpose? What would be the goal of this meeting?
+- [13:17.470] Karoline Leavitt: Again, to continue moving forward
+- [13:19.280] towards a longstanding peace in the Middle East.
+- [13:24.610] The Press: The President had some harsh words
+- [13:26.100] for both Israel and Iran on Tuesday,
+- [13:28.180] as he was departing from the NATO summit
+- [13:30.050] after they both violated the ceasefire, he said.
+- [13:33.140] What's your response to Americans
+- [13:35.160] who are worried the peace isn't going to last
+- [13:37.340] and think that Israel is trying to plunge us
+- [13:39.810] into another endless war on their behalf?
+- [13:41.970] Karoline Leavitt: I think the fact that the President
+- [13:43.490] was able to successfully negotiate a ceasefire
+- [13:46.050] when nobody thought that was possible.
+- [13:48.240] It was a surprise to everyone in this room.
+- [13:50.030] It was surprise to the world, but the President got it done
+- [13:53.030] because he wants to see peace in this world.
+- [13:55.680] He does not want the United States
+- [13:57.100] to be dragged into these conflicts.
+- [13:58.670] Again, he's not afraid to use strength if he has to,
+- [14:00.900] but, the President has already proven
+- [14:02.570] he can put America first
+- [14:04.350] and deliver on peace at the same time.
+- [14:06.320] They're not mutually exclusive goals.
+- [14:08.330] The Press: And then one more. You know, after Carrie Lake,
+- [14:10.760] she testified in the House Foreign Affairs Committee
+- [14:14.200] on the ways for an abuse and the rot, really,
+- [14:17.780] in Voice of America and USAGF.
+- [14:20.050] The president called for Congress to kill it.
+- [14:23.130] What does that look like,
+- [14:24.370] and is the President willing to sign an executive order?
+- [14:28.760] Karoline Leavitt: I believe that action would have
+- [14:30.770] to be legislative through Congress,
+- [14:33.200] and the President directed Congress
+- [14:35.270] to get that done in his Truth Social post yesterday.
+- [14:37.880] If there is any executive action that can be taken
+- [14:41.220] to cut some of the waste, fraud, and abuse,
+- [14:42.920] or do away with the program entirely,
+- [14:44.940] I'm sure our great Deputy Chief of Staff Stephen
+- [14:47.080] Miller is already looking into it,
+- [14:48.600] and if it can be done,
+- [14:49.840] it will be done here at the White House.
+- [14:51.210] But Congress should act as well.
+- [14:54.880] To the back. Go ahead. Yes.
+- [14:59.720] To the back and then Carrie I'll come to you.
+- [15:01.510] The Press: The administration said that the CIA report
+- [15:04.340] was low confidence intel.
+- [15:06.010] Can you share what other assessments
+- [15:07.620] are currently underway to get to the bottom
+- [15:09.730] of just how effective these strikes were?
+- [15:11.530] Karoline Leavitt: Yes.
+- [15:12.850] Well, I can assure you what the CIA director said,
+- [15:15.480] that when we look at the entirety of the intelligence
+- [15:18.460] that we have to this date,
+- [15:20.480] it concludes that these strikes on Iranians,
+- [15:23.770] the Iranian nuclear facilities, were absolutely successful.
+- [15:27.030] It was a total obliteration, as the President said,
+- [15:29.620] and not only does our own intelligence say that,
+- [15:32.040] but also the Iranian foreign minister has said that.
+- [15:35.900] We saw Israel conclude the same thing
+- [15:37.860] based on their own intelligence.
+- [15:39.150] We also had the United Nations say that as well.
+- [15:42.170] I think the only other time the United Nations,
+- [15:44.020] Israel, Iran,
+- [15:45.240] and the United States has agreed on something
+- [15:46.880] is that the sky is blue,
+- [15:48.940] but they all agree that Iran's nuclear facilities
+- [15:51.730] were completely demolished.
+- [15:53.460] And I would just like to reemphasize you mentioned
+- [15:56.350] this was a low-confidence,
+- [15:58.200] preliminary intelligence assessment,
+- [16:00.790] and entirety of that assessment was not leaked to the media.
+- [16:04.430] Only tidbits of that were leaked to CNN.
+- [16:07.420] And we have seen this playbook run before,
+- [16:09.960] where you have people in the intelligence community
+- [16:12.520] or perhaps on Capitol Hill, we don't know,
+- [16:14.720] but I believe the FBI is investigating to find out
+- [16:17.450] who that leaker was because it's illegal
+- [16:20.050] and they should be held accountable for that,
+- [16:22.210] leaked bits and pieces of an intel assessment
+- [16:24.460] to push a false narrative.
+- [16:26.060] And it's to the same reporter, I will add,
+- [16:28.410] Natasha Bertrand of CNN, who has done this in the past.
+- [16:31.910] In 2020, it was Natasha Bertran
+- [16:34.470] who had 51 intelligence analysts falsely lie to her,
+- [16:37.860] but she still put it on paper for some reason
+- [16:40.350] that the Hunter Biden laptop story
+- [16:41.900] was Russian disinformation.
+- [16:43.690] We all know that's not true, right?
+- [16:45.180] We can all agree on that now.
+- [16:46.390] That was a lie from the intelligence community.
+- [16:48.800] Also in 2020, this same reporter,
+- [16:51.000] Natasha Bertrand,
+- [16:52.320] wrote that a top intel agency ruled out the man-made lab
+- [16:56.330] leak theory of the coronavirus origins.
+- [16:59.000] Again, the President was right about that.
+- [17:01.120] This reporter wrote a lie from the Intelligence community
+- [17:04.180] to seek a narrative she wanted to prove.
+- [17:06.300] And guess what? We now know that is the truth.
+- [17:08.580] Also in 2024.
+- [17:10.610] Bertrand pushed the suckers and losers hoax,
+- [17:12.900] she also pushed the fine people hoax
+- [17:15.760] which was taking the President's words purposely out of context.
+- [17:19.730] And then last October, and I believe this is notable,
+- [17:22.510] Natasha Bertrand published an article in Politico
+- [17:25.300] from the intelligence agency.
+- [17:27.630] She said that John Ratcliffe was speaking
+- [17:29.630] without any evidence when he said Iran was attempting
+- [17:32.950] to undermine President Trump's presidential campaign.
+- [17:36.280] And then we, of course, found out that was absolutely true.
+- [17:38.950] In fact, the Biden administration
+- [17:40.670] declassed an intel report
+- [17:42.500] which said they had high confidence
+- [17:44.600] that Iran had done exactly what Ratcliffe alleged.
+- [17:47.340] They did run an influence campaign
+- [17:49.270] to hurt President Trump's candidacy.
+- [17:50.890] In fact we know the Iranians tried
+- [17:52.710] to take President Trumps life. And so this is a reporter
+- [17:55.800] who has been unfortunately used by people
+- [17:58.460] who dislike Donald Trump in this government
+- [18:00.830] to push fake and false narratives.
+- [18:02.870] She should be ashamed of herself.
+- [18:04.570] And that's not what reporting is.
+- [18:06.330] Journalism is trying to find the facts and the truth,
+- [18:08.780] and this week we saw this same reporter
+- [18:10.830] being used to push a fake narrative
+- [18:12.670] to try to undermine the President of the United States
+- [18:15.120] and, more importantly, the brave fighter pilots
+- [18:17.450] who conducted one of the most successful operations
+- [18:19.720] in United States history,
+- [18:21.170] and I think the American people fully know
+- [18:23.210] that this operation was a complete and total success.
+- [18:27.150] The Press: Thank you, Karoline.
+- [18:28.470] The Miami Herald recently published a story
+- [18:31.210] saying the Trump administration
+- [18:32.580] was targeting migrant foster children.
+- [18:35.200] The Trump administration has denounced this as false.
+- [18:38.080] Could you clarify the Trump administration's position
+- [18:40.690] on protecting migrant children,
+- [18:42.470] particularly the 300,000 lost under the Biden administration?
+- [18:45.220] Karoline Leavitt: Yes, I saw
+- [18:46.510] that Miami Herald article yesterday
+- [18:48.640] and I was aghast at the headline.
+- [18:51.020] It's egregious to accuse this administration
+- [18:54.840] of trying to target foster children.
+- [18:57.490] That is not at all what is happening
+- [18:59.020] at the Department of Homeland Security.
+- [19:00.840] And I learned that the Department Of Homeland Security
+- [19:02.840] actually tried to work in good faith
+- [19:04.640] with this reporter to get this story right,
+- [19:07.070] to explain that this administration
+- [19:09.430] is trying to protect foster children,
+- [19:11.380] we are trying to keep children out of harm's
+- [19:14.100] even if that means their parents are not law-abiding citizens,
+- [19:19.010] we want to protect children,
+- [19:20.270] unlike the previous administration,
+- [19:22.250] which allowed children to be trafficked and raped
+- [19:25.770] and in some cases killed because of the open border policies.
+- [19:29.610] Unfortunately, the Miami Herald just completely
+- [19:32.170] degraded themselves with this report,
+- [19:34.060] despite having a full list of facts
+- [19:35.890] from the Department of Homeland Security.
+- [19:37.280] It's another example of fake news.
+- [19:39.540] And the May border numbers speak for themselves.
+- [19:42.140] Not a single illegal alien was allowed into this country
+- [19:45.430] because of this administration's border policies
+- [19:47.380] in the month of May.
+- [19:48.610] That means not a single child was allowed into this county,
+- [19:52.580] possibly with human smugglers or human traffickers.
+- [19:55.860] And we know that was happening at the rate of thousands
+- [19:58.910] and thousands of children every single month
+- [20:01.310] in the previous administration for four years.
+- [20:03.970] And you didn't see any reporting of that from the Miami Herald,
+- [20:07.200] But now they're trying to accuse this administration.
+- [20:09.480] And we tried to give them the facts
+- [20:10.900] and they refused to report them.
+- [20:12.170] So thank you for bringing that report to light.
+- [20:14.630] Isha, you're usually on the Hill.
+- [20:18.020] The Press: I'm here today.
+- [20:20.100] I know you're looking for this leaker.
+- [20:21.490] Is it your belief, I know you said earlier you're not sure
+- [20:24.570] if it's on Capitol Hill or at the Pentagon,
+- [20:26.820] but is it your believe that it might be at --
+- [20:30.550] in Capitol Hill
+- [20:31.790] and how confident are you that you'll find this leeker?
+- [20:34.580] Karoline Leavitt: Well, I'm not personally
+- [20:35.840] looking for the leaker. The FBI is looking for a leaker,
+- [20:38.420] so you'll have to ask them in the Department of Justice
+- [20:42.130] in terms of this investigation.
+- [20:44.190] But leaking top secret classified intelligence
+- [20:48.180] is a crime,
+- [20:49.420] and people need to be held accountable for that crime.
+- [20:51.450] The Press: Can I just ask you about
+- [20:52.690] how you're going to be limiting
+- [20:53.930] Intel to Congress? What would you say to lawmakers
+- [20:55.940] who say they have oversight privileges,
+- [20:57.430] they need this information?
+- [20:58.670] Karoline Leavitt: This administration
+- [20:59.910] wants to ensure that classified intelligence
+- [21:02.200] is not ending up in irresponsible hands
+- [21:04.670] and that people who have the privilege of viewing
+- [21:07.630] this top-secret classified information
+- [21:10.080] are being responsible with it. And unfortunately, clearly,
+- [21:13.200] someone who had their hands on this,
+- [21:14.960] and it was a very few people,
+- [21:16.740] a very few number of people in our government
+- [21:19.770] who saw this report, that person was irresponsible with it
+- [21:24.040] and we need to get to the bottom of it and
+- [21:25.560] We need to strengthen that process
+- [21:27.630] to protect our national security and protect the American public.
+- [21:32.340] The Press: Thank you, Karoline.
+- [21:33.620] You just laid out a lot of different stories
+- [21:35.780] about disinformation that Natasha Bertrand
+- [21:40.520] pushed during her time at Politico and at CNN.
+- [21:43.550] Why would any member of the Trump administration
+- [21:46.240] leak anything to her?
+- [21:48.840] Karoline Leavitt: Again, as I just said,
+- [21:50.100] we're investigating who that leaker was.
+- [21:52.010] It could have been someone in the intelligence community,
+- [21:54.000] or it could have been someone on Capitol Hill
+- [21:55.590] who had access to this document.
+- [21:57.590] We are -- the FBI is searching for that person.
+- [22:00.200] Go ahead.
+- [22:01.400] The Press: Thanks Karoline --
+- [22:02.600] Karoline Leavitt: And clearly it was done
+- [22:04.130] to undermine the President to answer your question.
+- [22:06.280] The Press: And I'm sorry I really wanted to follow up
+- [22:08.120] on that really quickly. Before the strikes on Iran,
+- [22:10.900] we saw a number of other leaks about Tulsi Gabbard,
+- [22:13.260] the Vice President Vance.
+- [22:14.850] Is there an effort to divide the President's team
+- [22:17.220] when it comes to these leaks and which reporters they choose?
+- [22:19.880] Karoline Leavitt: I do believe
+- [22:21.160] there's an effort on the outside of this building
+- [22:23.270] to try to divide the President's team on the inside
+- [22:25.520] and sometimes you have to look at these headlines and laugh
+- [22:27.760] because I've been in meetings where I know
+- [22:29.940] these things are absolutely not true
+- [22:31.610] and again we do our best here, I believe,
+- [22:33.450] to try and push back and correct the record with all of you
+- [22:36.140] but there is fake reporting
+- [22:37.510] that's just the reality of this country, unfortunately,
+- [22:40.890] but I can assure you the President team is strong
+- [22:43.020] especially the national security team.
+- [22:45.160] Everyone is very proud of the President,
+- [22:47.680] of our Commander in Chief and of our military
+- [22:49.810] for the successful operation
+- [22:51.040] that took place on Saturday night.
+- [22:52.520] The Press: The President was obviously very pleased
+- [22:55.010] with getting his NATO allies to increase defense spending.
+- [22:58.390] He's made the same demands of Asia-Pacific
+- [23:01.820] allies of the United States, including Australia,
+- [23:05.170] where I'm from. How does the NATO result impact
+- [23:09.490] negotiations with Asia-Pacific allies?
+- [23:11.980] Does it, for say, strengthen the President's resolve to say,
+- [23:14.900] well, you know, our NATO allies have done it,
+- [23:17.320] now you need to do it too?
+- [23:18.680] Karoline Leavitt: Yeah, I mean, look,
+- [23:19.900] if our allies in Europe and our NATO allies can do it,
+- [23:22.430] I think our allies and our friends
+- [23:24.040] in the Asia-Pacific region can do as well.
+- [23:26.720] But as for our specific relations in those discussions,
+- [23:29.080] I'll let the President speak on those.
+- [23:30.470] The Press: Can I just ask as well,
+- [23:31.740] when he had to leave the G7 early,
+- [23:33.850] he missed out on a number of bilateral meetings
+- [23:35.980] that were scheduled with other world leaders,
+- [23:37.730] including the Prime Minister of Australia.
+- [23:40.350] Obviously, President Zelensky, he's managed to meet since then.
+- [23:43.820] But are there plans afoot to make up for those meetings
+- [23:47.460] with the world leaders that he missed out on?
+- [23:49.080] Karoline Leavitt: Yeah, I think many of those world leaders
+- [23:50.870] understood the situation happening in the Middle East
+- [23:53.850] and the urgency and the need for the President
+- [23:55.810] to get back to Washington to monitor that situation.
+- [23:59.100] And obviously, that was the right call,
+- [24:01.410] considering the success of not only the operation
+- [24:03.890] on Saturday night, but also the ceasefire
+- [24:06.990] that the President has since brokered on behalf of not
+- [24:10.340] just our country, but the entire world, frankly.
+- [24:13.230] But he has made up a couple of those meetings
+- [24:15.660] and he has had direct phone calls with some of those leaders
+- [24:18.510] he was supposed to meet with as well. Not all.
+- [24:21.320] The Press: Yeah, thanks Karoline.
+- [24:22.570] So to clarify on trade, so what happens to the countries
+- [24:26.220] other than China on July 9th?
+- [24:28.240] Karoline Leavitt: That's a decision
+- [24:29.490] for the President to make and I will let him make it.
+- [24:31.350] The Press: Okay, and secondly.
+- [24:32.570] So now that oil is just about upper $60 a barrel,
+- [24:36.440] when's the administration going to start
+- [24:38.020] refilling the strategic petroleum reserves?
+- [24:40.240] Karoline Leavitt: That's, again, a decision for the President
+- [24:42.050] to make and our Secretary of Energy.
+- [24:43.870] There's no imminent plans to do that, from what I understand.
+- [24:48.080] But as you have seen with the plummeting of oil prices
+- [24:50.810] in this country,
+- [24:52.070] it's because this President and our Department of Energy
+- [24:55.250] have really tapped into our resources here
+- [24:57.410] and we have an increase of supply,
+- [24:59.060] unlike the previous administration
+- [25:00.930] that totally hampered our domestic energy efforts,
+- [25:03.480] but totally robbed
+- [25:04.680] and drained our strategic petroleum reserves.
+- [25:07.620] When the time is right,
+- [25:08.910] the President will make that decision,
+- [25:10.220] but right now we are utilizing the resources
+- [25:12.650] that God blessed us with right here in our country
+- [25:15.090] to produce energy for our people.
+- [25:18.190] The Press: On the One Big, Beautiful Bill.
+- [25:19.610] Does the President believe the parliamentarian of the Senate
+- [25:21.420] should be removed?
+- [25:22.640] Karoline Leavitt: I haven't spoken to him about that,
+- [25:23.960] and I'll let him speak on it, however, again,
+- [25:26.350] he knows this is part of the process
+- [25:28.110] and the inner workings of the Senate,
+- [25:29.760] and he wants to see this bill done.
+- [25:31.030] And he remains very much engaged in these conversations
+- [25:34.560] and in this process with lawmakers
+- [25:36.260] in both the Senate and the House side,
+- [25:37.730] and the whole White House does as well.
+- [25:39.790] In the back. Yes, Libby.
+- [25:41.200] The Press: Earlier today the President
+- [25:42.470] stated that these photos out of Fordow
+- [25:45.260] that were showing nuclear materials being removed,
+- [25:47.640] suspected of showing that, were just concrete workers.
+- [25:52.350] What intelligence is that based upon?
+- [25:54.160] Karoline Leavitt: Look, the President shared
+- [25:55.410] that statement with all of you,
+- [25:56.670] and I already answered the question
+- [25:58.270] about whether uranium was moved prior to the strike,
+- [26:01.200] and the answer is no.
+- [26:02.640] The Press: Is there a chance the DIA report
+- [26:04.370] becomes public at any point?
+- [26:06.630] Karoline Leavitt: I don't think this administration
+- [26:07.930] is going to get into the habit
+- [26:09.220] of sharing classified top secret information.
+- [26:13.720] Those classifications exist for a reason
+- [26:15.970] and I wish everyone who had the privilege
+- [26:17.970] of looking at these documents would respect that.
+- [26:20.510] The Press: Thank you, Karoline.
+- [26:21.840] You've been emphatic about the President's expectations
+- [26:23.970] for the One Big, Beautiful Bill that hit that July 4th deadline.
+- [26:26.960] You had a big meeting on Capitol Hill
+- [26:28.200] yesterday with the Republican Study Committee.
+- [26:30.290] Did you walk away from that meeting
+- [26:32.000] pleased with what you heard?
+- [26:33.330] Did it bolster your confidence that Congress is able
+- [26:35.810] to meet the expectation of the President?
+- [26:37.590] Karoline Leavitt: Yes, I did.
+- [26:38.820] The camaraderie at the Republican Study Committee
+- [26:41.110] was great.
+- [26:42.330] Members, you know, expressed, you know,
+- [26:45.810] their feelings about the bill.
+- [26:47.400] But as we saw, the bill passed through the House,
+- [26:50.440] despite many people believing it could not.
+- [26:53.020] So the House is ready to receive this bill back from the Senate
+- [26:56.170] so they can pass it and bring it to the President's desk.
+- [26:58.490] So it was a great meeting.
+- [26:59.760] And Republicans are very unified.
+- [27:01.740] And we also talked about the mayoral race in New York City.
+- [27:05.110] And how the victory of the Democratic primary candidate
+- [27:08.050] really shows how far left and unhinged the Democrat party
+- [27:11.150] has become.
+- [27:12.380] And Republicans truly are on the right side
+- [27:14.580] of every issue in this country.
+- [27:16.940] We are on side of no men and women's sports,
+- [27:19.480] on the side of low taxes, secure borders,
+- [27:21.640] so that was the topic of discussion.
+- [27:23.540] And the unity was strong, and the camaraderie was high,
+- [27:26.870] and I know everyone looks forward to being here
+- [27:29.270] at the White House for the bill signing next week.
+- [27:32.140] The Press: Thanks, Karoline.
+- [27:33.380] The Supreme Court ruled this morning that South Carolina
+- [27:36.420] is allowed to deem Planned Parenthood
+- [27:39.680] as not a qualified health care provider
+- [27:42.190] and that will block it from receiving Medicaid funds.
+- [27:45.780] Does the White House have a statement on that ruling
+- [27:48.420] and would the President support a stand-alone bill from Congress
+- [27:51.760] to defund Planned Parenthood at a federal level
+- [27:54.670] rather than let each state determine it?
+- [27:56.850] Karoline Leavitt: I'll let the President speak
+- [27:59.090] on that legislative priority,
+- [28:00.450] but as for the Supreme Court ruling,
+- [28:02.040] the President has always maintained that Americans
+- [28:04.560] should not be forced to violate their conscience
+- [28:06.820] and their religious liberty
+- [28:08.110] by having their tax dollars fund abortions,
+- [28:10.410] and we're glad the Supreme court
+- [28:11.970] ruled on that side today or yesterday.
+- [28:14.010] The Press: And then on Iran,
+- [28:15.710] but on a domestic matter, in January,
+- [28:17.960] President Trump revoked security details
+- [28:19.920] for several former administrations,
+- [28:21.700] including Mike Pompeo, Mark Milley, and Jon Bolton.
+- [28:25.600] Given the heightened tensions with Iran right now,
+- [28:27.890] is he considering restoring those security details?
+- [28:30.720] Karoline Leavitt: That's not under consideration right now.
+- [28:33.480] The Press: If I could follow up on trade,
+- [28:34.760] and then I have a question about the bill as well.
+- [28:37.020] Are you saying at this point that there's no plans to extend
+- [28:40.140] that July 8th and July 9th deadline,
+- [28:43.000] especially with everything that's been going on from Iran
+- [28:45.860] to the tax bill on Capitol Hill?
+- [28:48.520] Is that under consideration at all at this
+- [28:50.280] Karoline Leavitt: Perhaps it could be extended,
+- [28:51.600] but that's a decision for the President to make.
+- [28:53.810] The Press: And as far as the bill itself goes,
+- [28:55.590] since the President has been back,
+- [28:57.450] what has he been doing beyond the event
+- [28:58.840] that he's having later today to try and get
+- [29:00.230] (inaudible)
+- [29:01.430] senators on board? Is he making phone calls, twisting arms?
+- [29:03.690] Is he having some people over to the White House?
+- [29:05.320] Can you tell us more about that effort?
+- [29:06.670] Karoline Leavitt: There have been meetings
+- [29:07.910] at the White House this week. I saw some senators rolling out
+- [29:10.300] of the Oval Office the other day,
+- [29:11.950] and the President remains on the phones
+- [29:13.930] talking to his friends in the Senate when necessary,
+- [29:17.330] and when they call, he picks up the phone.
+- [29:19.190] And I think that's why they greatly trust
+- [29:20.660] and respect his leadership.
+- [29:22.400] And we're having that big event later this afternoon at 4:00.
+- [29:25.140] I would encourage you all to tune in.
+- [29:26.680] We're going to have some great everyday Americans
+- [29:28.670] who are in attendance.
+- [29:29.900] We'll have some tipped delivery drivers.
+- [29:32.530] I think we're going have a barber
+- [29:33.850] from the great state of Arkansas here in attendance
+- [29:36.740] We're going to have some law enforcement officers,
+- [29:38.560] some border patrol agents,
+- [29:39.800] and Tom Homan will be speaking as well.
+- [29:41.400] So the point of this event is to show the American people
+- [29:45.390] how this bill works for them
+- [29:46.640] and how there are provisions in this bill
+- [29:48.570] that will change their lives.
+- [29:49.880] The Press: Can you tell us which Senators
+- [29:51.130] you saw rolling out of the Oval Office?
+- [29:52.510] Karoline Leavitt: I'll let the President speak on that
+- [29:53.770] if he wishes.
+- [29:55.040] I don't share details about his private meetings
+- [29:56.900] without his permission. Emily, go ahead.
+- [29:59.560] The Press: Today the Justice Department announced it
+- [30:01.060] was opening an investigation into employment discrimination
+- [30:03.960] at the University of California,
+- [30:05.880] alleging they had race- and sex-based quotas.
+- [30:08.680] Federal law bars hiring somebody based on their race or sex,
+- [30:11.880] but do you also object to universities working harder
+- [30:14.720] to make sure they have a diverse group of candidates to consider,
+- [30:18.070] and do you expect
+- [30:19.320] more investigations like this from DOJ?
+- [30:21.150] Karoline Leavitt: I have not seen that investigation
+- [30:22.670] from the Department of Justice,
+- [30:23.980] but I can certainly check in. What I can tell you,
+- [30:26.320] it's the position of this President
+- [30:28.630] that we want to restore a merit-based society
+- [30:31.320] and culture in the United States of America
+- [30:33.470] where people are not hired, nor are they promoted
+- [30:35.810] based on their color of their skin or their gender.
+- [30:38.850] The President wants people to be hired in the workforce
+- [30:41.730] because of their merit and their skill,
+- [30:43.580] and I think most Americans agree with that.
+- [30:45.160] I'll take one more.
+- [30:46.400] Carrie, because I promised you earlier.
+- [30:48.770] The Press: So the Ayatollah Khomeini came out and said
+- [30:50.620] that Iran will, quote, never surrender to the U.S.
+- [30:53.580] That being said, what remains to do with a possible response
+- [30:56.700] is from Iranian proxies in the region
+- [30:59.150] and even in the U.S.?
+- [31:01.700] Karoline Leavitt: We saw the Ayatollah's video,
+- [31:03.580] and when you have a totalitarian regime,
+- [31:06.340] you have to save face.
+- [31:07.630] I think any common-sense, open-minded person
+- [31:10.500] knows the truth about the precision
+- [31:12.400] strikes on Saturday night. They were wildly successful,
+- [31:16.000] and it's what led to the ceasefire agreement
+- [31:18.340] between Israel and Iran,
+- [31:19.550] which the President is very grateful for.
+- [31:22.190] And the United States of America
+- [31:24.280] remains prepared to defend our assets
+- [31:26.660] and our personnel in the region.
+- [31:28.680] And, again, I would just emphasize
+- [31:30.290] the success of the strike
+- [31:31.640] that took place on Saturday night in the world
+- [31:33.900] is a safer place because of it.
+- [31:35.450] Thanks, guys, for coming today,
+- [31:36.750] and you'll see the President at 4:00.
+- [31:38.710] The Press: Thanks, Karoline.

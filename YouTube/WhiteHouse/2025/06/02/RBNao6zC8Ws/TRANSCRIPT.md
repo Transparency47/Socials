@@ -1,0 +1,671 @@
+<!-- source: https://www.youtube.com/watch?v=RBNao6zC8Ws -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: RBNao6zC8Ws -->
+<!-- date_published: 2025-06-02T21:38:51+00:00 -->
+<!-- date_accessed: 2026-06-02T01:25:02.688703+00:00 -->
+
+# Transcript: President Trump Participates in a Memorial Day Tribute at Arlington National Cemetery
+
+- [00:02.001] Announcer: The Armed Forces Honor Guard
+- [00:03.503] and the United States Army Band are formed
+- [00:05.905] and waiting as the President moves to the Tomb
+- [00:08.007] of the Unknown Soldier to place the wreath.
+- [00:09.976] Ladies and gentlemen,
+- [00:11.211] please stand for the playing of the National Anthem,
+- [00:13.680] the wreathe laying, Taps,
+- [00:15.548] and while the President observes a moment of silence.
+- [01:04.731] (military drill commands)
+- [01:16.209] ♪ (Star Spangled Banner) ♪
+- [02:33.686] (military drill commands)
+- [03:11.658] Announcer: The reef is now being placed by the President.
+- [04:14.587] (drum rolls)
+- [04:42.215] ♪ (Taps) ♪
+- [05:41.874] (military drill commands)
+- [05:58.858] Announcer: The President has paused
+- [06:00.159] for a moment of silence.
+- [06:02.995] (silence)
+- [06:15.708] Announcer: Please be seated.
+- [06:57.016] Ladies and gentlemen,
+- [06:58.417] please stand for the arrival of the official party
+- [07:01.754] and remain standing for the invocation
+- [07:04.490] and the national anthem.
+- [07:36.455] Ladies and gentlemen, the 45th and the 47th
+- [07:39.959] President of the United States, Donald J. Trump,
+- [07:43.663] accompanied by the Vice President,
+- [07:45.765] the Secretary of Defense,
+- [07:47.767] and the Chairman of the Joint Chiefs of Staff.
+- [07:51.904] ♪ (Hail to the Chief) ♪
+- [08:11.591] (cheers and applause)
+- [08:30.843] Ladies and gentlemen, Chaplain Colonel James D. Key
+- [08:34.513] Command Chaplain,
+- [08:36.082] Joint Task Force National Capital Region,
+- [08:38.784] in the U.S. Army Military District of Washington.
+- [08:43.656] Chaplain Key: Let us pray.
+- [08:46.025] Dear God, as we gather here on Memorial Day
+- [08:49.328] at Arlington National Cemetery, we pause to remember and honor
+- [08:54.033] those who made the ultimate sacrifice
+- [08:57.069] in service to our great nation.
+- [08:59.972] Today, our hearts overflow with deep appreciation
+- [09:03.910] for the men and women who selflessly placed themselves
+- [09:07.780] in harm's way to safeguard the freedoms we hold so dear.
+- [09:13.252] Their courage, both seen and unseen,
+- [09:16.188] have shaped the fabric of our nation's history.
+- [09:20.426] With each step they took, they paved the way for a future
+- [09:24.130] defined by liberty and opportunity.
+- [09:28.034] And so, dear God, if you will allow us on this day,
+- [09:33.439] allow our heart to be full of gratitude,
+- [09:37.376] a gratitude that will echo through the heavens
+- [09:40.646] Chorus of adoration that spans generations.
+- [09:44.684] Grant us the wisdom
+- [09:45.885] to not only recognize their commitment to service,
+- [09:49.455] but give us the capacity to live lives worthy of their efforts.
+- [09:56.128] And finally, dear God,
+- [09:58.030] may we find a certain level of solace and peace
+- [10:03.269] in the knowledge that their precious memory
+- [10:07.173] lives on in the hearts and minds of all Americans.
+- [10:12.778] For it is in your mighty and holy name we pray
+- [10:16.382] and we all say together amen and amen
+- [10:23.556] Announcer: Please remain standing and join
+- [10:25.891] the United States Marine Band and Staff Sergeant Hannah
+- [10:29.662] Davis in the singing of our national anthem.
+- [10:39.572] ♪ (Singing "Star Spangled Banner) ♪
+- [12:01.720] (applause)
+- [12:10.429] Announcer: Please be seated.
+- [12:14.500] Ladies and gentlemen, General Dan Kane.
+- [12:26.178] General Kane: Well, good morning, Mr. President,
+- [12:29.381] Mr. Vice President, Secretary Hegseth,
+- [12:32.952] Department of Defense leaders, my fellow Joint Chiefs of Staff,
+- [12:37.123] distinguished guests, veterans, fellow Americans,
+- [12:40.693] and most importantly, Gold Star families, welcome.
+- [12:45.831] Welcome to this most hallowed ground on this most special day.
+- [12:51.137] We gather here today under thankfully non-rainy skies
+- [12:54.807] that stretch over a free nation
+- [12:57.343] and among these beautiful white marble headstones
+- [13:01.514] in this special place that represents brave men and women
+- [13:05.384] who gave us the gift of a perfect example,
+- [13:09.054] the gift selfless sacrifice for something greater
+- [13:13.259] than themselves.
+- [13:15.294] Since the founding of our great nation,
+- [13:18.230] over 1 million of our sons, daughters, fathers,
+- [13:22.535] mothers, husbands, wives, brothers and sisters
+- [13:28.274] have donned the cloth of our nation and never come home.
+- [13:33.445] Every one of them believed that defending our great nation
+- [13:37.850] when duty calls is a righteous and worthy cause,
+- [13:43.722] and they were right, it is.
+- [13:46.759] Their perfect example brings us back
+- [13:49.895] to places etched in our warfighter memories,
+- [13:53.132] places with names like Valley Forge, Gettysburg,
+- [13:58.270] Normandy, Inchon, Coast, and Fallujah.
+- [14:04.009] We're also reminded of the many places we've never heard of,
+- [14:08.447] on and under the sea, on land and in the air,
+- [14:13.018] where incredible acts of valor and sacrifice
+- [14:16.822] were followed by a knock on a door.
+- [14:21.126] It is in those families left to carry on whose loss
+- [14:25.764] forever lives on in their hearts and in their memories,
+- [14:28.567] but also in the sustaining pride of being an American Gold Star
+- [14:34.073] family that we find incredible courage and strength.
+- [14:39.578] Families with last names like Sather, Duthman, Gilbert,
+- [14:45.985] Brown, Barber, Henderson, Zembiak, Jones,
+- [14:49.955] Wheeler, Kent, and so many others,
+- [14:56.395] like Horton (phonetic).
+- [14:58.197] It's in the lives of the fallen and their families
+- [15:00.666] that we're left by a standard to live by,
+- [15:03.769] a charge for us all to keep,
+- [15:06.138] a charge to carry the torch forward with duty,
+- [15:09.475] courage, and love of country.
+- [15:12.344] Their legacy is entrusted to us, the living.
+- [15:15.648] It is our responsibility to carry that weight
+- [15:19.118] and to live in a way worthy of their sacrifice
+- [15:23.088] and to never forget what they did for us.
+- [15:26.725] General George Patton once said it best on a day like today
+- [15:30.496] when he said, we should thank God that such men lived.
+- [15:35.501] I know I sure do.
+- [15:37.436] Mr. President, Mr. Vice President,
+- [15:40.072] Mr. Secretary, ladies and gentlemen,
+- [15:41.874] thank you for being here on this Memorial Day
+- [15:44.977] to honor those we lost in the service of our nation
+- [15:48.480] and their families who carry on so bravely.
+- [15:52.151] May we never forget our fallen and their families,
+- [15:56.288] may we never forget our deployed forces and their families.
+- [16:00.626] And it is now my sincere honor and privilege
+- [16:03.362] to introduce the 29th Secretary of Defense,
+- [16:06.999] a combat veteran himself
+- [16:08.534] who's knelt before battlefield crosses,
+- [16:11.837] who's seen up close the courage
+- [16:14.673] and sacrifice we're here to honor today
+- [16:17.776] and who never ever forgets that the gifts given here
+- [16:21.714] are in defense of our great nation.
+- [16:24.683] Ladies and gentlemen, the Honorable Pete Hegseth.
+- [16:29.088] (applause)
+- [16:46.305] Secretary Hegseth: President Trump,
+- [16:48.207] Vice President Vance, Chairman Cain,
+- [16:51.210] Gold Star families, ladies and gentlemen,
+- [16:54.012] thank you for joining us today to remember our fallen warriors.
+- [16:58.684] We gather here to honor our very best gone in their youth.
+- [17:04.990] To properly do so, we understand who they are
+- [17:07.793] and what they fought for. It is our simple duty to them.
+- [17:14.166] Throughout time, civilizations have honored the powerful,
+- [17:17.336] the well-connected, and the well born.
+- [17:19.671] Emperors and kings have built magnificent shrines
+- [17:23.175] to their own royal greatness.
+- [17:26.145] Yet in America, with our great experiment in self-government,
+- [17:30.215] it is fitting that the most honored
+- [17:32.151] and closely guarded tomb in the land
+- [17:34.920] is that of an anonymous soldier, of an unknown rank.
+- [17:41.827] When the first unknown soldier was selected for burial in 1921,
+- [17:45.964] he laid in state at the Capitol Rotunda.
+- [17:48.801] Frongs of Americans paid their respects.
+- [17:53.338] When the tomb was dedicated on November 11th, Veterans Day,
+- [17:57.309] the unknown received the medal.
+- [18:01.480] It's a uniquely American tradition
+- [18:03.348] that we honor anonymous sacrifice
+- [18:06.251] above worldly greatness.
+- [18:09.121] While we don't know the unknown's identity, race,
+- [18:11.657] or creed, we know his story.
+- [18:15.360] It's the story of every soldier, every warrior.
+- [18:20.199] It's a simple story, as old as war.
+- [18:25.070] A young man with hopes and dreams
+- [18:26.905] and loves who's called by his country
+- [18:28.907] leaves behind his hometown
+- [18:31.076] His parents, his siblings, his sweetheart,
+- [18:35.180] all that he knows to go fight a war
+- [18:37.950] that ye may or may not understand.
+- [18:42.654] He's called to go through hell and back, to sleep in a trench,
+- [18:46.525] to eat out of a tin cup or on the hood of a Humvee,
+- [18:50.362] to pray as bullets and bombs thunder around him,
+- [18:54.800] to fear for the bullet.
+- [18:57.636] Or the mortar or the IED or the RPG with his name on it.
+- [19:04.943] He does it willingly and stoically
+- [19:08.213] because he loves his country,
+- [19:10.415] his brothers-in-arms and his family.
+- [19:12.518] This is the story of the unknown,
+- [19:15.721] the story of the fallen soldier
+- [19:17.322] who we have gathered today to honor.
+- [19:19.958] It is the story of the American warrior.
+- [19:24.129] He answered the call, fought, and died for this republic,
+- [19:28.901] the ultimate sacrifice of a free people.
+- [19:31.837] You see, the American soldier fights
+- [19:33.672] not because he hates what's in front of him,
+- [19:37.776] but because he loves what's behind him.
+- [19:41.747] We honor his selfless sacrifice, his courage, his duty,
+- [19:46.885] and his love. As Jesus taught his disciples,
+- [19:50.522] greater love hath no man than this,
+- [19:52.391] that a man lay down his life. For his friends.
+- [19:57.663] This love is a gift given freely.
+- [20:00.299] And yet this gift comes with responsibility to those living.
+- [20:04.403] We owe a duty to those who have fallen in war.
+- [20:07.039] They have paid a debt we can never repay.
+- [20:09.708] And for that, we owe gratitude and remembrance.
+- [20:15.347] We owe at least this to remember their sacrifice
+- [20:19.451] and honor their memory, year after year.
+- [20:22.421] After year, salute after salute,
+- [20:24.923] ceremony after ceremony, parade after parade,
+- [20:28.260] prayer after prayer, that by our remembrance
+- [20:32.397] we keep lit the eternal flame of their heroic deeds
+- [20:36.468] in defense of our nation. And we owe eternal vigilance.
+- [20:43.041] Eternal vigilance, the price of freedom.
+- [20:45.310] These men died for something.
+- [20:47.245] The hope of a free secure and peaceful republic.
+- [20:50.515] That is our inheritance and we must steward it
+- [20:54.386] and hand it down to our kids and our grandkids.
+- [20:58.457] We must live worthy of it. These men dreamt of a future
+- [21:04.696] in which their children would not fear of attack.
+- [21:07.332] No enemy could threaten their peace.
+- [21:09.134] No war could require them to take up arms.
+- [21:12.638] The duty we owe these men is peace,
+- [21:15.874] which only can be achieved. Through strength.
+- [21:19.611] And because we strive for peace, we must prepare for war.
+- [21:26.018] That's the job of the Chairman and I
+- [21:27.586] and so many others at the Defense Department.
+- [21:29.488] Each and every day, we will never,
+- [21:32.824] on behalf of those who've given so much,
+- [21:35.694] we'll never be complacent. We owe these men nothing less.
+- [21:42.968] Our lives, our fortunes, and our sacred honor.
+- [21:48.006] So on this Memorial Day,
+- [21:49.341] in honor of the unknown soldiers and the known,
+- [21:53.645] let us rededicate ourselves to God and country.
+- [21:59.584] To our great Republic 249 years on,
+- [22:02.254] we stand on the shoulders of great men
+- [22:06.625] and on the shoulder of those great men in those graves
+- [22:09.294] and may we live worthy.
+- [22:15.233] God bless our warriors and may God bless our fallen.
+- [22:19.004] And amen.
+- [22:21.006] (applause)
+- [22:33.819] Announcer: Ladies and gentlemen, the United States Marine Band
+- [22:37.222] with the United States Navy Band Sea Chanters
+- [22:40.459] will now perform "This Land Is Your Land."
+- [23:11.323] ♪ ("This Land is Your Land") ♪
+- [26:46.938] (applause)
+- [26:58.116] Announcer: Ladies and gentlemen, Vice President J.D. Vance.
+- [27:03.288] (applause)
+- [27:13.298] The Vice President: Well, thank you, everyone.
+- [27:14.966] Thank you to that incredible choir and band.
+- [27:17.535] And thanks to General Cain and Secretary Hegseth
+- [27:20.572] for your powerful words. Thank you, most importantly,
+- [27:23.775] for everything that you do for our nation's warfighters.
+- [27:26.544] And for those who have given their lives to this country,
+- [27:30.448] we remember you today.
+- [27:32.083] And certainly to our Gold Star families,
+- [27:35.887] we're so thrilled and so grateful
+- [27:38.323] to have you with us in attendance.
+- [27:41.426] This is a sacred place.
+- [27:43.428] An eternal resting spot for our nation's sons and daughters.
+- [27:49.534] We gather in solemn commemoration of their sacrifice
+- [27:54.873] and the sacrifice made by all those
+- [27:57.242] who gave up their lives in service to our beloved country.
+- [28:01.880] In 1915, President Woodrow Wilson laid the cornerstone
+- [28:06.651] of the Memorial Amphitheater we gather in today.
+- [28:11.056] Now buried within it was a copper box,
+- [28:14.292] which contained mementos of profound significance
+- [28:17.429] to the amphitheater's designers into our entire country.
+- [28:21.199] There were four things, an American flag, a Bible,
+- [28:26.071] a copy of our Declaration of Independence,
+- [28:28.773] and a copy the U.S. Constitution.
+- [28:32.110] In the objects they chose to dedicate to posterity,
+- [28:35.613] those Americans remind us of the values
+- [28:38.116] we hold timeless and dear as a nation and as a people.
+- [28:42.987] But those values didn't spring
+- [28:44.823] from any stonework or time capsule.
+- [28:48.193] They were lived out day after day
+- [28:51.763] by the people buried in this hallowed cemetery.
+- [28:56.101] Each life honored here in Arlington
+- [28:59.170] was once full of the ordinary moments and quiet dreams,
+- [29:04.509] of early sunrises, of good days and bad days,
+- [29:09.347] of celebrations and disappointments.
+- [29:12.851] They stood not apart from us,
+- [29:15.920] but among us, ordinary men and women
+- [29:18.823] who chose to shoulder an impossible burden.
+- [29:23.561] And when we consider what they gave to us,
+- [29:25.663] it's common, of course, to focus on their deaths,
+- [29:30.101] on the courage to give in that moment
+- [29:32.470] what very few are willing or able to sacrifice.
+- [29:37.375] But the real tragedy of the loss is not in a single moment
+- [29:41.412] of suffering as our Gold Star families know well,
+- [29:44.782] but in all the future moments they and their families lost.
+- [29:48.720] Every moment between their sacrifice on the battlefield
+- [29:54.225] and what would have been a natural death.
+- [29:57.328] Because we know they sacrifice not just their physical life,
+- [30:01.666] they sacrifice the moments that make that life worthwhile.
+- [30:06.504] They sacrifice a child's embrace.
+- [30:09.474] They sacrificed walking their daughter
+- [30:11.676] down the aisle of seeing their husband or wife
+- [30:14.746] after a big promotion of sharing a meal
+- [30:17.649] with the family at Thanksgiving. For my fellow Americans,
+- [30:21.853] especially those watching on television,
+- [30:24.322] consider the sum of all the moments that make a good life.
+- [30:29.961] And now appreciate that countless strangers,
+- [30:32.864] people most of you never met,
+- [30:35.033] they gave up those moments in their own life
+- [30:38.403] so that we could enjoy them in hours,
+- [30:41.839] and that is what Memorial Day is all about.
+- [30:45.777] I once heard a Marine Corps Colonel
+- [30:47.412] that I served with, he said this in 2005,
+- [30:50.381] not long after a very tough deployment to Iraq.
+- [30:53.785] He said this about his fallen men,
+- [30:57.021] that they were the best looking, they were kindest,
+- [31:00.425] they were smartest, they most devoted.
+- [31:04.429] They were the very best of us. To them, we owe everything.
+- [31:11.569] And today, in the peace they bequeathed to us, we honor them.
+- [31:16.774] As the Book of Wisdom tells us, but the righteous one,
+- [31:20.612] though he die early, shall be at rest.
+- [31:23.815] For the age that is honorable
+- [31:26.251] comes not with the passing of time,
+- [31:28.953] nor can it be measured in terms of years.
+- [31:33.391] They lay down their lives for Americans
+- [31:35.293] they would never meet, for generations yet unborn,
+- [31:39.564] for a nation that would not exist
+- [31:43.134] absent their incredible courage.
+- [31:46.504] Now we know their families in particular have given so much,
+- [31:49.974] and in particular I want to speak to the Gold Star families,
+- [31:53.244] to the families who have lost a son,
+- [31:55.680] a daughter, a husband or a wife,
+- [31:57.315] to every child here who misses your dad or your mom.
+- [32:01.586] Know that your loved one to us is a hero.
+- [32:05.757] And though we cannot know your pain
+- [32:08.793] Please know that I speak for the entire nation
+- [32:11.396] when I say that we are grateful to them
+- [32:14.599] and to you for a debt none of us can possibly repay.
+- [32:20.204] Now all of us will honor the fallen
+- [32:22.073] and their families in our own way
+- [32:24.776] but allow me to suggest two ways of honoring their sacrifice,
+- [32:27.979] two ways that I try to honor their sacrifice every day.
+- [32:32.383] First, we ought to commit ourselves
+- [32:35.853] and expect our leaders to treat the lives of our troops
+- [32:40.358] as the most precious resource. The very best way.
+- [32:47.198] (applause)
+- [32:54.839] The very best way to honor the fallen is
+- [32:57.742] to only ask the next generation
+- [33:00.011] to make the ultimate sacrifice when they absolutely must.
+- [33:05.016] We must be cautious in sending our people to war.
+- [33:10.288] The second way that I try to honor
+- [33:13.958] the fallen is commit ourselves
+- [33:16.427] to being worthy of their sacrifice.
+- [33:20.298] If you're a husband, be the best husband you can be.
+- [33:22.667] If you're a mom, be the best mom.
+- [33:24.736] That you can be, if you're a citizen,
+- [33:27.105] be the very best citizen that you can be.
+- [33:29.907] Because together, let us build a better country,
+- [33:33.444] a more perfect union
+- [33:34.645] and strive to be the kind of nation worthy of the sacrifice
+- [33:39.884] of the people that we honor today.
+- [33:41.886] On this Memorial Day,
+- [33:43.488] let's remember that we have been given a great gift,
+- [33:46.457] often by people none of us ever met.
+- [33:49.394] Let us cherish that gift and make ourselves worthy of it.
+- [33:54.198] May God bless those who gave that gift,
+- [33:56.934] and may he bless the country they sacrificed for.
+- [34:00.304] Thank you.
+- [34:02.373] (applause)
+- [34:16.287] And now, without further ado,
+- [34:18.156] let me please introduce your president,
+- [34:21.526] the people's president, the president who knows
+- [34:25.329] what these men and women, what they sacrifice for,
+- [34:29.567] and who honors them every single day in the job
+- [34:31.636] that he does, President Trump.
+- [34:33.871] (applause)
+- [34:50.455] The President: Thank you very much.
+- [34:51.789] Thank you. Thank you very much.
+- [34:56.093] Very special place and a very special day.
+- [35:01.532] Thank you to Vice President Vance.
+- [35:04.035] Doing a terrific job. Thanks also to a man
+- [35:06.671] who has devoted his life to service members and veterans.
+- [35:10.775] Secretary of Defense Pete Hegseth
+- [35:13.744] is doing really well.
+- [35:15.146] He went through a lot, didn't he?
+- [35:17.181] But he's doing really well. He's a tough cookie.
+- [35:19.550] That's what we want. He's a tough cookie.
+- [35:27.992] And we're grateful to be joined, as well, by Chairman Kaine,
+- [35:32.029] a terrific military person.
+- [35:36.267] Members of the Cabinet, members of Congress,
+- [35:38.402] members of the United States Armed
+- [35:40.404] Forces, veterans, and many other distinguished guests,
+- [35:45.376] we gather today to honor the incredible service members
+- [35:50.748] who rest in glory in this cemetery and grounds
+- [35:54.719] around the world and in
+- [35:56.420] A thousand lonely places known only to God.
+- [36:00.424] In every hour of peril, in every moment of crisis,
+- [36:03.194] American warriors have left behind the blessings of home
+- [36:07.164] and family to answer their nation's call.
+- [36:11.102] They've offered all that they had within them
+- [36:14.272] and given their last breaths to each and every one of us
+- [36:18.609] that we might live safe and breathe free.
+- [36:24.115] This morning, we pay tribute to their immortal deeds.
+- [36:28.152] We share in the sorrow of their beloved families.
+- [36:31.589] And as one nation, we give thanks for the ultimate gift
+- [36:35.259] they have so selflessly given to all of us.
+- [36:39.363] These warriors, and that's what they are,
+- [36:41.098] as great, great warriors picked up their mantle
+- [36:44.402] of duty and service. Knowing that to live for others
+- [36:48.105] meant always that they might die for others.
+- [36:51.642] They knew that. They asked nothing for it.
+- [36:55.012] They gave everything.
+- [36:56.714] And we owe them everything and much, much more.
+- [37:04.021] Each of the servicemembers who have made the supreme sacrifice
+- [37:09.193] for our nation has also left an unfillable void
+- [37:13.798] and an unbreakable silence in the lives
+- [37:16.367] of all who love them. For the families of the fallen,
+- [37:21.672] you feel the absence of your heroes
+- [37:23.975] every day in the family.
+- [37:26.677] These are great families. These are wonderful families.
+- [37:30.047] In the familiar laugh no longer heard, the empty space.
+- [37:34.285] Sunday dinner, or the want of a hug or a pat on the back
+- [37:38.789] that will never come again.
+- [37:42.226] Every Gold Star family fights a battle long
+- [37:44.829] after the victory is won.
+- [37:46.163] And today, we lift you up and we hold you high.
+- [37:52.103] Thank you. Thank you, thank you for giving America
+- [37:54.639] the brightest light in your lives.
+- [37:56.741] It's what you've done.
+- [37:58.809] We will never, ever forget our fallen heroes,
+- [38:01.412] and we will never. Forget our debt to you.
+- [38:06.150] This Memorial Day is especially significant
+- [38:08.886] as we commemorate 250 years
+- [38:12.423] since the first American patriots
+- [38:14.358] fell on the field of battle. Two and a half centuries ago,
+- [38:19.463] at Lexington Green, Concord Bridge, Bunker Hill,
+- [38:24.502] brave minute men and humble farm boys
+- [38:26.871] became the first to give their lives
+- [38:28.773] for a nation that did not yet. Have a name.
+- [38:34.278] With their deaths, men like John Brown,
+- [38:36.781] 23, Samuel Hadley, 28, and Abner Hausner, 21,
+- [38:44.822] ignited the flame of liberty that now lights the inspires,
+- [38:51.228] everybody, and the entire world.
+- [38:55.332] Those young men could never have known
+- [38:57.935] what their sacrifice would mean to us, but we No
+- [39:02.540] What we owe to them, their valor gave us the freest, greatest,
+- [39:07.578] and most noble republic ever to exist
+- [39:09.980] on the face of the Earth. A republic
+- [39:12.550] that I am fixing after a long and hard four years.
+- [39:16.687] That was a hard four years we went through.
+- [39:27.565] Who would let that happen?
+- [39:30.267] People pouring through our borders unchecked,
+- [39:34.672] people doing things that are indescribable
+- [39:38.943] and not for today to discuss.
+- [39:42.213] But the republic that is now doing so very well,
+- [39:45.716] we're doing so well right now, considering the circumstances,
+- [39:50.287] and we'll do record-setting better.
+- [39:52.890] With time, we will do better
+- [39:54.525] than we've ever done as a nation,
+- [39:56.460] better than ever before. I promise you that.
+- [40:06.937] In every generation since, at Trenton and Yorktown,
+- [40:10.441] at Vicksburg and Shiloh,
+- [40:13.744] and in faraway places with names like Chateau, Terere, Anzio,
+- [40:20.584] Iwo Jima, Quezon, Kandahar, really just a few chosen names,
+- [40:29.393] and these are names that have become so important
+- [40:32.429] on the altar of freedom.
+- [40:35.232] They plunged into the crucible of battle,
+- [40:37.868] stormed into fires of hell,
+- [40:40.704] charged into the valley of death,
+- [40:43.607] and rose into the arms of angels.
+- [40:47.511] The sacrifice that they made was not merely for a single battle,
+- [40:50.848] a long-ago victory,
+- [40:52.149] or a fleeting triumph decades or centuries past.
+- [40:57.254] Their sacrifice was for today, tomorrow,
+- [41:01.025] and every morning thereafter. Every child that lives in peace,
+- [41:05.629] every home that is filled with joy and love,
+- [41:08.766] every day the Republic stands is only possible
+- [41:12.102] because of those who did what had to be done when duty called.
+- [41:17.474] And the cost was everything to them and to their families.
+- [41:23.514] Our debt to them is eternal,
+- [41:26.183] and it does not diminish with time.
+- [41:28.686] It only grows and grows and grows with each passing year.
+- [41:33.657] The greatest monument to their courage
+- [41:35.726] is not carved in marble or cast in bronze.
+- [41:39.263] It's all around us, an American nation, 325 million strong,
+- [41:45.035] which will soon be greater than it has ever been before.
+- [41:49.940] It will be.
+- [41:51.842] And so today, we uphold the memory of our heroes
+- [41:56.513] as people have done since ancient times
+- [41:59.750] by telling their stories and exalting their names.
+- [42:03.854] Senior Master Sergeant Elroy Harworth
+- [42:07.391] was a young, beautiful man from Earhart, Minnesota,
+- [42:12.596] when he enlisted in the Air Force
+- [42:14.565] and was sent to Vietnam.
+- [42:17.134] Fifty-nine years ago this very week,
+- [42:20.037] Elroy and his crewmates climbed into the dark skies over Da Nang
+- [42:26.777] on a classified mission known as Operation Carolina moon.
+- [42:31.949] Their aim was to blow up a key enemy bridge.
+- [42:35.786] And while other crews had tried and failed,
+- [42:38.022] they were determined to try and get it done
+- [42:41.258] in the face of extreme danger, and they knew how bad it was.
+- [42:45.696] As their C-130 closed in on its target
+- [42:49.233] and Elroy jockeyed his 5,000 pounds of explosives
+- [42:53.237] into position,
+- [42:54.905] the aircraft came under unbelievably intense fire.
+- [42:59.777] They had never seen anything like it.
+- [43:02.346] Try as they might, they were hit as the plane swung low
+- [43:06.450] and they went down deep in enemy territory.
+- [43:10.020] Elroy was just 24 years old when he gave his life for America,
+- [43:14.858] leaving behind a beautiful young wife
+- [43:17.995] who was seven months pregnant.
+- [43:20.698] That meant Elroy would never know
+- [43:22.866] the joy of meeting his son Troy or seeing him grow,
+- [43:26.837] and he would never have the pride
+- [43:28.305] to watch his son following his father's footsteps
+- [43:32.509] and served two decades in the U.S. Army.
+- [43:37.281] Sergeant First Class Troy Harworth is with us today,
+- [43:42.086] joined by his wife, Sonya, and their son, John.
+- [43:45.289] The grandson, Elroy, never got to hold.
+- [43:49.093] Thank you, Troy, and thank you, John,
+- [43:50.995] and, above all, thank you Elroy. Thank you very much.
+- [43:55.899] Please, stand up. Thank you. Wherever you may be.
+- [44:04.408] Thank you very much. Great family.
+- [44:12.016] Corporal Ryan McGee of Fredericksburg, Virginia,
+- [44:15.352] knew from the time he saw the towers fall on 9-11
+- [44:19.189] that he wanted to be an Army Ranger.
+- [44:22.760] He was an American guy, all American.
+- [44:25.763] He was a tough guy. He was at the top of everything.
+- [44:29.433] In high school, he was captain of the football team
+- [44:32.302] and was voted friendliest and most charming by his peers.
+- [44:37.508] Ryan joined the Army soon after graduation,
+- [44:40.010] and after three tours in Afghanistan,
+- [44:42.112] he deployed to Iraq. He and his unit were tasked
+- [44:46.383] with hunting down a weapon facilitator
+- [44:50.621] and a suicide bomber cell near Baghdad,
+- [44:53.157] a vicious, vicious cell, killing many, many people.
+- [44:57.694] Sixteen years ago this month,
+- [44:59.263] they engaged the enemy in a firefight,
+- [45:02.433] and Ryan was mortally wounded.
+- [45:05.202] He gave his life at 21 years old,
+- [45:07.371] and today he rests until the end of time in the famed
+- [45:10.874] Section 60 here at Arlington,
+- [45:14.044] where we have buried our honored dead from the war on terror.
+- [45:18.682] We are joined today by Ryan's mom, Sherry.
+- [45:21.552] And, Shery, all of America shares in your grief,
+- [45:25.155] and more importantly, we share in your pride
+- [45:27.224] and your wonderful son.
+- [45:29.226] And thank you so much for being here, Sheri.
+- [45:32.496] Please, Sher.
+- [45:43.107] Thank you, Sherry. Thank you very much.
+- [45:48.245] On behalf of everyone.
+- [45:51.548] Crowd is so big, she's hard to find.
+- [45:53.250] Once I saw her, she really stands out.
+- [45:56.186] Thank you, Sherry, very much. Senior Chief Petty Officer
+- [46:00.457] Shannon Kent grew up in Pine Plains, New York,
+- [46:04.695] before enlisting in the Navy in 2003.
+- [46:08.332] And she quickly became one of the rising stars.
+- [46:10.601] She was an absolute winner as a linguist,
+- [46:14.104] translator, and cryptologic technician.
+- [46:19.443] Shannon worked alongside elite special force units,
+- [46:23.013] like Delta Force and Navy
+- [46:24.581] SEALs, to help them capture and kill terrorists.
+- [46:28.685] She was among the first women ever to do it,
+- [46:30.821] and she did it better than anyone.
+- [46:33.557] In January 2019, Shannon was on her fifth combat deployment,
+- [46:38.428] embedded with a team hunting
+- [46:40.097] ISIS terrorists through the streets of Syria
+- [46:44.268] when a suicide bomber detonated his weapon-killing.
+- [46:48.305] Senior Chief Kent,
+- [46:50.174] and three other wonderful, beautiful Americans.
+- [46:55.345] She left behind her husband, Joe,
+- [46:57.047] and their two sons, 3-year-old Colt and 18-month-old baby Josh.
+- [47:03.487] Today, Shannon rests in peace on these grounds
+- [47:06.056] alongside her comrades.
+- [47:08.425] To her boys, Colt, and Josh, who are here this morning,
+- [47:12.162] now aged 9 and 7, let me say your mom was a hero.
+- [47:18.101] And her love, her strength,
+- [47:19.469] and her spirit are always with us and always be with you.
+- [47:23.574] She loved her boys. To Joe, the boys,
+- [47:28.579] Shannon's parents, Mary and Stephen,
+- [47:31.682] and her sister, Mariah, Shannon's name will live forever
+- [47:35.619] in the chronicles of true American patriots.
+- [47:38.055] I just want to thank you and thank you so much
+- [47:40.490] for being here in honor of your magnificent family member.
+- [47:45.562] Stories like Shannon's, Ryan's,
+- [47:47.497] and Elroy's remind us of the real meaning of the day.
+- [47:50.567] And I want to just say, please stand up wherever you may be.
+- [47:54.004] The boys, I want see those boys. Where are you?
+- [48:36.613] Yeah, good-looking guys.
+- [48:39.149] Thank you very much for being here.
+- [48:41.485] All of you, thank you so much.
+- [48:43.453] We should never forget, even for a moment,
+- [48:45.355] that freedom is a gift of the highest cost,
+- [48:47.891] and peace is won at the most precious price.
+- [48:51.895] These extraordinary American heroes in there,
+- [48:54.831] immense and ultimate sacrifices they offer.
+- [48:58.969] Only the faintest glimpse at the infinite grace
+- [49:02.039] we have received from all who laid down their lives
+- [49:05.676] We're American.
+- [49:06.977] Over the past 250 years, we're going to have a big,
+- [49:10.647] big celebration, as you know, 250 years.
+- [49:15.452] In some ways, I'm glad I missed that second term where it was,
+- [49:18.855] because I wouldn't be your President
+- [49:23.827] for that most important of all.
+- [49:25.629] In addition, we have the World Cup
+- [49:27.264] and we have the Olympics.
+- [49:28.865] Can you imagine? I missed those four years.
+- [49:31.134] And now, look what I have. I have everything.
+- [49:34.538] Amazing the way things work out.
+- [49:42.145] God did that, I believe that too.
+- [49:49.152] I did it.
+- [49:54.591] You know, I got the World Cup and I got the Olympics.
+- [49:58.962] The 250 years was not mine. I'd like to take credit for it.
+- [50:02.366] But I got to the Olympics,
+- [50:03.667] I got the world cup when I was president.
+- [50:06.136] And I said, boy, it's too bad.
+- [50:07.504] I won't be president then. And look what happened.
+- [50:10.040] I turned out, and we're going to have a great time.
+- [50:12.542] We're going to have a great celebration.
+- [50:14.111] But most important of all is the 250th anniversary.
+- [50:17.581] That blows everything away, including the World Cup
+- [50:20.384] and including the Olympics as far as I'm concerned.
+- [50:23.653] In any corner of this cemetery,
+- [50:25.288] at any resting place for our war dead,
+- [50:27.858] anywhere on Earth, you'll find untold stories of equal heroism
+- [50:32.662] and heartbreak, unmatched patriotism and devotion
+- [50:36.833] and acts of selflessness and courage.
+- [50:39.870] So enormous, they defy comprehension.
+- [50:43.140] Most people can't even imagine it.
+- [50:45.776] Great poets have written that it's love
+- [50:48.545] which moves the sun and the stars.
+- [50:50.447] But here on the sacred soil, right where we are,
+- [50:54.951] we're reminded that it is love
+- [50:56.820] which moves the course of history
+- [50:58.488] and moves it always toward freedom, always.
+- [51:02.526] From Bunker Hill, to Bastogne, to Cantonese, to Coral Sea,
+- [51:07.697] from Gettysburg, to Guadalcanal, and Concord to Kabul.
+- [51:13.970] America's best and America's bravest have fought, bled,
+- [51:17.207] and died so that we could pick up the torch of liberty,
+- [51:21.411] raise it high, high, high, and carry it onward
+- [51:25.015] to places they could never have dreamed of before.
+- [51:29.052] Today, we honor their memory.
+- [51:30.987] We remember their gallantry. Just revere.
+- [51:35.759] In the highest sense, we just revere their incredible legacy.
+- [51:41.698] We salute them in their eternal and everlasting glory.
+- [51:45.535] And we continue our relentless pursuit of America's destiny
+- [51:49.773] as we make our nation stronger,
+- [51:52.142] prouder, freer, and greater than ever before.
+- [51:57.047] May God bless our fallen heroes.
+- [52:00.417] May God bless our Gold Star families.
+- [52:03.954] And may God bless the United States of America.
+- [52:07.457] Thank you very much, everybody. Great honor. Thank you.
+- [52:10.393] (applause)
+- [52:35.785] Announcer: Ladies and gentlemen,
+- [52:37.220] please remain standing for the playing of Taps
+- [52:40.524] and the Benediction.
+- [52:55.405] ♪ (Taps) ♪
+- [53:48.491] Chaplain Key: Let us pray.
+- [53:52.028] Dear God, as we prepare to leave this place,
+- [53:54.464] but not your presence, may we never forget the fallen
+- [53:59.536] nor take for granted the liberties
+- [54:01.638] and that they secured for us long ago.
+- [54:05.508] Help us to continue to honor their lives
+- [54:07.611] through our words and actions,
+- [54:11.915] carrying their spirit forward with love and kindness.
+- [54:17.988] And dear God,
+- [54:19.623] now Please, if you will, go in front of us to guide us.
+- [54:25.095] Be behind us, Lord, to catch us.
+- [54:29.032] And please, please stay around us to sustain us now,
+- [54:36.873] henceforth, and forevermore. It is in your name we pray
+- [54:42.746] and all say together on this Memorial Day, amen and amen.
+- [54:49.719] (applause)
+- [55:01.431] Announcer: Please remain standing
+- [55:03.266] for the singing of God Bless America,
+- [55:06.269] performed by the United States Marine Band
+- [55:09.105] and the United States Navy Band Sea Chanters.
+- [55:33.663] ♪ ("God Bless America") ♪
+- [57:10.360] (applause)
+- [57:18.601] Announcer: Ladies and gentlemen, please remain in place
+- [57:21.971] as the official party departs and the colors are retired.
+- [57:41.558] ♪ (patriotic band music) ♪

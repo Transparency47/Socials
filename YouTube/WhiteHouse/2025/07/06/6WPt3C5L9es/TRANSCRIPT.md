@@ -1,0 +1,118 @@
+<!-- source: https://www.youtube.com/watch?v=6WPt3C5L9es -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 6WPt3C5L9es -->
+<!-- date_published: 2025-07-06T01:10:07+00:00 -->
+<!-- date_accessed: 2026-06-02T01:21:13.943452+00:00 -->
+
+# Transcript: Reviving the Warrior Spirit: Secretary of Defense Pete Hegseth on Service, Sacrifice & Strength
+
+- [00:00.400] Military service changed my life. Uh it
+- [00:03.360] taught me about what it means to be
+- [00:05.040] selfless, what it means to fight
+- [00:07.680] alongside your fellow Americans for
+- [00:10.080] them. Um to be laser focused on a
+- [00:12.719] mission. And um it's the greatest thing
+- [00:16.880] I could have done with with that period
+- [00:18.640] of time in my life where I could be
+- [00:20.000] doing a lot of other things. In every
+- [00:22.240] generation, you have to ask yourself the
+- [00:24.240] question, if not me, then who's it going
+- [00:26.720] to be? If not this generation, then
+- [00:29.119] what? We're passing the buck to the next
+- [00:30.960] generation. And so my challenge to this
+- [00:33.600] generation is, are you ready to step up?
+- [00:36.559] Are you ready to take the lead? Because
+- [00:38.800] generations before you, all the way back
+- [00:40.559] to the revolution, stood up for a
+- [00:42.800] principle, stood up for country, stood
+- [00:44.960] up for freedom, stood up against
+- [00:46.559] tyranny. And then they didn't just talk
+- [00:48.640] about it. Soldiers, warriors, and others
+- [00:51.039] step up and grab a rifle. They should
+- [00:52.879] actually do something about it. They say
+- [00:54.879] you have to come through me if you want
+- [00:57.199] to take our freedom. You have to come
+- [00:58.640] through me. They did it then and they've
+- [01:01.520] done it in every successive generation.
+- [01:03.359] And are you able to step up to that
+- [01:05.119] task? Do you understand purposedriven
+- [01:07.840] life? Do you understand principles
+- [01:09.439] larger than yourself? That our rights
+- [01:10.720] are endowed by a creator from
+- [01:12.400] government. You don't have freedom
+- [01:15.040] without those willing to defend it. Part
+- [01:17.920] of the reason you should serve today is
+- [01:19.680] that we're getting back to basics. And
+- [01:22.159] one of those basics is the warrior
+- [01:24.159] ethos. And we're not doing the
+- [01:26.240] politically correct, social justice,
+- [01:29.360] ideological stuff that previous
+- [01:31.280] administrations did. This is the back to
+- [01:33.680] basics of readiness, of accountability,
+- [01:36.799] of standards, of lethality, and of war
+- [01:39.840] fighting. With President Trump at the
+- [01:42.079] helm, it's we're going to have your
+- [01:44.079] back. We will have your back when we ask
+- [01:46.399] you to do difficult things. You will be
+- [01:48.000] equipped with the best equipment in the
+- [01:49.680] world. You will be given a clear and
+- [01:51.439] narrow mission that's focused on our
+- [01:53.680] country and our country's interests. To
+- [01:56.079] be strong, to be tough, to be selfless,
+- [01:59.040] to be courageous, to be determined. Uh
+- [02:02.079] those are principles of the warrior
+- [02:03.520] ethos to finish the fight. We need that
+- [02:06.479] instilled in the veins of our warrior
+- [02:09.360] class of Americans who are willing to do
+- [02:12.080] really tough, really difficult things.
+- [02:14.480] And not because they're going to get a
+- [02:15.760] medal for it or they're going to be
+- [02:17.440] famous because of it, but it's because
+- [02:19.440] of the integrity and honor and duty that
+- [02:21.200] they have inside them that makes them a
+- [02:23.120] warrior. You see, the world looked at
+- [02:24.800] Joe Biden and felt like they could take
+- [02:26.319] advantage of America. We were chumps. We
+- [02:28.480] were weak. We were woke. We were focused
+- [02:30.160] on other things. They look at President
+- [02:31.840] Trump and they say, "This is a guy who's
+- [02:33.840] serious, substantive. He's rebuilding
+- [02:35.599] the military, and I don't want to mess
+- [02:36.800] with him because if I go sideways on
+- [02:39.840] America, I might just get the business
+- [02:41.920] end." So the revival of the American
+- [02:44.080] spirit you see most directly in the
+- [02:46.160] revival of recruiting numbers. I mean it
+- [02:48.080] was in the tank under Joe Biden and now
+- [02:50.000] it's at historic highs. Tell me what
+- [02:51.760] changed. What changed is President
+- [02:53.519] Trump. What changed is belief in
+- [02:55.280] America. What changed is the military
+- [02:57.280] knows he has their back. The spirit is
+- [02:59.760] back and you feel it. You feel it in the
+- [03:01.840] ranks. I get a chance to go see our
+- [03:03.360] troops. They're excited. They're proud
+- [03:05.120] to wear the uniform. It means a little
+- [03:07.280] more to them uh knowing uh the kind of
+- [03:10.480] leadership that they have. And that
+- [03:12.159] spirit obviously culminates at the 4th
+- [03:14.319] of July on Independence Day when we all
+- [03:16.800] celebrate our country. That's the kind
+- [03:18.879] of spirit that President Trump has
+- [03:20.400] revived. This we will defend. That's the
+- [03:22.800] motto uh of the Army. He's revived that
+- [03:25.760] spirit. There's no such thing as over
+- [03:27.519] the top in the 4th of July. When you
+- [03:29.440] consider what those men did 249 years
+- [03:33.280] ago in signing that declaration, they
+- [03:35.840] were signing their own death warrant.
+- [03:37.519] Yet we don't have this blessing without
+- [03:40.319] them. So buy more fireworks, make them
+- [03:43.200] bigger, buy more hot dogs, spend more
+- [03:45.920] time, celebrate the 4th of July, do it
+- [03:48.080] big because we are blessed to live in
+- [03:50.159] this country right now. I'm Pete Hexth.
+- [03:53.599] I'm the Secretary of Defense and may God
+- [03:55.680] bless our military and God bless our
+- [03:58.080] country.

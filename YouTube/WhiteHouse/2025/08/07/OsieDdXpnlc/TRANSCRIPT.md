@@ -1,0 +1,204 @@
+<!-- source: https://www.youtube.com/watch?v=OsieDdXpnlc -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: OsieDdXpnlc -->
+<!-- date_published: 2025-08-07T22:18:08+00:00 -->
+<!-- date_accessed: 2026-06-02T01:18:06.667137+00:00 -->
+
+# Transcript: President Trump Makes an Economic Announcement, Aug. 7, 2025
+
+- [00:00.480] Well, thank you very much everybody.
+- [00:02.240] We're going to have just a quick session
+- [00:04.480] with Steve Moore. Everybody knows Steve
+- [00:06.879] Moore with the Heritage Foundation.
+- [00:08.800] Highly respected, one of the most highly
+- [00:11.599] respected economists and uh people that
+- [00:14.559] watch your money and know more about
+- [00:16.240] your money and your life than probably
+- [00:17.840] anybody I can think of. Uh and I want to
+- [00:20.800] thank Steve for being here. I saw this
+- [00:23.519] today. They came out. what he puts out
+- [00:25.760] gets a lot of coverage and I saw some of
+- [00:28.480] them and then he had a couple of others
+- [00:30.720] and I'd like to ask Steve maybe to
+- [00:34.000] discuss a few of these numbers that were
+- [00:36.320] just released. I mean literally just
+- [00:38.000] released and then we're going over and
+- [00:40.800] we're going to do purple heart. Uh we
+- [00:43.280] have some incredible brave people that I
+- [00:46.320] look forward to. So we're going to do
+- [00:47.600] that right after this. Uh Steve, could
+- [00:49.680] you say a few words about the various
+- [00:51.520] charts?
+- [00:52.000] >> Thank you, Mr. President. So, uh, I
+- [00:54.239] called the president because I had some
+- [00:55.920] very good news from some new data that
+- [00:57.920] we've been able to, uh, put together
+- [01:00.079] that no one has ever, uh, seen before.
+- [01:02.239] And I'll just very quickly go through
+- [01:03.600] these. So, I was telling the president
+- [01:05.760] that he did the right thing in calling
+- [01:07.840] for a new head of the Bureau of Labor
+- [01:09.520] Statistics because this shows that over
+- [01:11.520] the last uh, two years of the Biden
+- [01:13.840] administration, the BLS overestimated
+- [01:16.479] job creation by 1.5 million jobs. That's
+- [01:19.840] a Mr. President, that's a gigantic
+- [01:21.759] error. And uh I I don't know if she's
+- [01:24.240] I'm not
+- [01:24.560] >> It might not have been an error. That's
+- [01:25.840] the bad part. It was an error. It would
+- [01:28.080] be one thing. I don't think it's an
+- [01:29.200] error. I think they did it purposely.
+- [01:31.119] >> Whether that you may well be right, but
+- [01:33.280] even if it wasn't purposefully, it's
+- [01:35.040] incompetence.
+- [01:35.759] >> Right. Okay. So 1.5 million uh jobs uh
+- [01:39.280] overestimated. We have access to the um
+- [01:44.479] we have access to the uh some data that
+- [01:47.360] no one else does on what has happened
+- [01:49.280] month by month with median household
+- [01:51.280] income. This is based on unpublished
+- [01:53.040] Census Bureau data. It will be released
+- [01:55.200] sometime in the next six months, but we
+- [01:56.960] get an advanced look at it. And so I was
+- [01:58.960] telling the president in his first five
+- [02:00.719] months in office, starting in January
+- [02:03.119] through the end of June, uh the average
+- [02:05.759] median household income adjusted for
+- [02:07.920] inflation for uh the average family in
+- [02:10.239] America is already up $1,174.
+- [02:13.360] That's a huge
+- [02:14.400] >> incredible number. Just came out.
+- [02:16.640] >> Just just came out. So that's a giant
+- [02:18.800] game. And if I would have said this,
+- [02:20.400] nobody would have believed it. There's
+- [02:21.680] your
+- [02:22.080] >> There's your number.
+- [02:24.959] >> We're doing well. So the next one
+- [02:27.680] compares, we finally have the 2024 data
+- [02:31.120] on what happened with real family income
+- [02:33.360] in the United States. And so what I did
+- [02:35.840] was I compared the record and Donald
+- [02:37.760] Trump's first term with the Joe Biden
+- [02:40.319] first term. And you can see that um by
+- [02:43.200] the way, this these dotted lines here,
+- [02:44.800] Mr. President, that's CO. So, if it had
+- [02:47.440] not been for CO, these numbers would
+- [02:48.959] have been substantially better. But even
+- [02:50.959] taking account uh President Trump's last
+- [02:53.040] year in 2020,
+- [02:55.519] we saw uh a $6,400
+- [02:58.640] re real after inflation gain in income
+- [03:01.040] for the average family. Um and that
+- [03:03.519] compares with with Joe Biden, which was
+- [03:06.159] uh a measly $551.
+- [03:08.560] So, Mr. President, you g you gain 10
+- [03:10.480] times more income for the average family
+- [03:12.560] than Joe Biden. It's because of your
+- [03:14.159] policies. And that's taken into
+- [03:17.120] consideration co
+- [03:19.200] >> which a lot of times you don't have to
+- [03:21.360] do that but I'm very glad you did over
+- [03:24.480] >> almost 8,000 until
+- [03:25.680] >> look at that number.
+- [03:26.560] >> Yeah.
+- [03:27.280] >> Okay.
+- [03:30.640] So uh then we looked at you know which
+- [03:34.319] families did the best and we have data
+- [03:37.280] from the census bureau that shows uh by
+- [03:39.760] income uh percentage. So the 25th
+- [03:42.959] percentile is the lowest income, 75th
+- [03:45.280] percentile is the highest income. And
+- [03:47.040] what I find fascinating about this, Mr.
+- [03:48.959] President, is every income group did
+- [03:52.159] better. The red is uh President Trump,
+- [03:54.480] the blue is President Biden. Every
+- [03:56.799] single income group did better under uh
+- [04:00.000] President Trump. But what's really
+- [04:01.840] amazing is look what happened under
+- [04:03.439] Biden. The lowest income group lost
+- [04:08.000] income under Biden. were poor four years
+- [04:10.239] after President uh Biden's presidency.
+- [04:12.799] No reign virtually whatsoever for the
+- [04:14.640] middle class and the rich was the only
+- [04:16.880] group that did better under Biden, which
+- [04:18.959] is ironic because the Biden keeps saying
+- [04:21.199] he was trying to get rid of income
+- [04:23.360] inequality. He made income inequality
+- [04:25.199] worse, not better. It was President
+- [04:26.720] Trump that reduced income inequality.
+- [04:28.400] >> These numbers just came out, by the way.
+- [04:30.160] Yeah. And then finally,
+- [04:34.320] um these are the numbers just in in I
+- [04:36.479] just showed you the percentage terms.
+- [04:39.680] Uh Mr. President, these are the numbers
+- [04:41.440] in dollar terms. So, uh even the lowest
+- [04:44.080] income, uh 25th% gained about $4,000 in
+- [04:47.840] income. That's a lot for a for a lower
+- [04:49.759] income family. $6,400 for the middle
+- [04:52.800] class and almost 10,000 for the richest.
+- [04:55.440] So you can see every income group did
+- [04:57.199] better under Trump than Biden by a wide
+- [04:59.919] margin. That's the story.
+- [05:01.600] >> I think when you look at them, they're
+- [05:03.040] all something. But this one chart really
+- [05:06.160] says it better than anything. If you
+- [05:08.000] look at this, this is great. But this
+- [05:10.560] chart is pretty amazing right here.
+- [05:20.960] All new numbers.
+- [05:25.520] Okay. So, we're going to go now over to
+- [05:29.919] East Room and we're going to celebrate
+- [05:31.759] some very brave people with the Purple
+- [05:34.560] Hearts. Yeah, please.
+- [05:35.600] >> Mr. President, um just to follow up on
+- [05:38.080] the India uh tariffs. Uh do you expect
+- [05:41.120] increased trade negotiations, you know,
+- [05:43.360] uh since you've announced the 50%
+- [05:45.039] tariff?
+- [05:45.520] >> No, not until we get it. Regal,
+- [05:47.520] >> Mr. President, Mr. question. Does your
+- [05:49.520] deadline for Vladimir Putin agreeing to
+- [05:51.759] a ceasefire still stand tomorrow or is
+- [05:53.600] that fluid now that talks
+- [05:56.080] >> is is your deadline still standing for
+- [05:57.919] Vladimir Putin to agree to a ceasefire
+- [05:59.759] tomorrow or is that fluid now?
+- [06:01.120] >> It's going to be up to him and
+- [06:02.800] >> we're going to we're going to see what
+- [06:03.840] he has to say. It's going to be up to
+- [06:05.360] him. Very disappointed. Yeah.
+- [06:07.039] >> Do you have to meet with does Putin have
+- [06:09.280] to meet with Zilinski in order and
+- [06:11.360] before you and Putin have to meet or
+- [06:14.319] >> No. Are you willing to That's actually
+- [06:16.639] important because the president
+- [06:18.000] President Putin said this morning he was
+- [06:19.440] pretty dismissive of this idea of
+- [06:20.880] meeting with President President Putin
+- [06:23.039] was
+- [06:23.440] >> I don't know. I didn't hear
+- [06:24.400] >> you to meet with him. He doesn't have to
+- [06:25.919] agree to meet with Zinsky. Is that what
+- [06:27.440] you're saying?
+- [06:28.080] >> No, he doesn't. No.
+- [06:29.600] >> So, when do you think that meeting
+- [06:30.560] >> they would like to meet with me and I'll
+- [06:32.400] do whatever I can to stop the killing.
+- [06:34.240] So, uh last month they lost uh 14,000
+- [06:38.960] people killed. last month. Every week is
+- [06:42.880] four or five thousand people. Uh so I
+- [06:45.919] don't like uh long waits. I think it's a
+- [06:49.039] shame. And they're mostly soldiers.
+- [06:50.880] They're Ukrainian and Russian soldiers
+- [06:52.639] and some people from the cities where
+- [06:55.199] you know missiles are lobbed in. And
+- [06:56.639] you'll lose 35 40 people a night which
+- [07:00.319] is terrible. But no, mostly it's
+- [07:02.240] soldiers. Uh and you're talking about on
+- [07:06.400] average 20,000 a month. 20,000 people
+- [07:09.520] are dying a month. young generally young
+- [07:12.319] people soldiers. Uh we're gonna speaking
+- [07:14.639] about soldiers. We'll see you over for
+- [07:16.560] purple.
+- [07:17.759] >> Thank you. Thank you.

@@ -1,0 +1,31 @@
+# YouTube / WhiteHouse / 2025-05-19
+
+- Posts: 9
+
+- [22:35 UTC - “As Commander in Chief, I will always do and fulfill my duty to you.”](9AZWMGUPOWs/)
+  - Source: https://www.youtube.com/watch?v=9AZWMGUPOWs
+  - [00:00.240] The real strength of our military - [00:02.960] doesn't come from its fighter jets. It - [00:04.960] really comes from our people. That's - [00:07.919] you. Comes fro...
+- [21:34 UTC - President Trump and First Lady Melania sign the Take It Down Act into law in the Rose Garden](Pl571KWOq3w/)
+  - Source: https://www.youtube.com/watch?v=Pl571KWOq3w
+  - [00:10.080] Okay, honey. Are you signing something? - [00:11.759] You want to sign - [00:13.080] it? Come on. Sign it - [00:15.800] anyway. She deserves to sign it. - [00:19.840]...
+- [21:30 UTC - President Trump Participates in a Law Enforcement Event, May 19, 2025](xqnskJnxRrw/)
+  - Source: https://www.youtube.com/watch?v=xqnskJnxRrw
+  - [00:00.600] The President: Thank you very much everybody. - [00:02.460] It's a real honor to welcome all of you to - [00:05.349] the White House, the famous Oval Office. - [00:08...
+- [21:21 UTC - POTUS Awards the First Ever Medals of Sacrifice ❤️🇺🇸](pPG0TAM05HI/)
+  - Source: https://www.youtube.com/watch?v=pPG0TAM05HI
+  - [00:00.080] Then we award the first ever medals of - [00:03.319] sacrifice to three heroic law - [00:05.600] enforcement officers from Palm Beach - [00:07.839] County, - [00:08.8...
+- [19:34 UTC - President Trump and the First Lady Participate in a Bill Signing, May 19, 2025](pI1BDZdzGsw/)
+  - Source: https://www.youtube.com/watch?v=pI1BDZdzGsw
+  - [00:06.040] Announcer: Ladies and gentlemen, the President of the United States - [00:09.591] and First Lady Melania Trump. - [00:15.040] ♪(patriotic music playing)♪ - [00:51.700...
+- [15:22 UTC - PressSec: "I can summarize POTUS' foreign policy agenda with two words: America First."](hm_1z2ii5y4/)
+  - Source: https://www.youtube.com/watch?v=hm_1z2ii5y4
+  - [00:00.080] Well, I think I can um summarize the - [00:02.800] president's foreign policy agenda with - [00:04.880] two words, America first. And that means - [00:07.120] putting...
+- [13:45 UTC - Press Secretary Karoline Leavitt Briefs Members of the Media, May 19, 2025](Zh3hOaioCWc/)
+  - Source: https://www.youtube.com/watch?v=Zh3hOaioCWc
+  - [00:00.000] Karoline Leavitt: Good morning everybody. - [00:02.535] Thank you for joining us early today. - [00:04.404] We have a very busy day so we want to kick - [00:06.740] o...
+- [13:00 UTC - No Tax On Overtime: "Huge Advantage to Law Enforcement Across the Country"](DwkG0Dg7s8g/)
+  - Source: https://www.youtube.com/watch?v=DwkG0Dg7s8g
+  - [00:00.080] no tax on overtime. It would be a a huge - [00:02.560] advantage to uh law enforcement across - [00:05.279] the country. We work sometimes 100 plus - [00:07.759] hour...
+- [13:00 UTC - No Tax On Overtime: "Huge Advantage to Law Enforcement Across the Country"](P_z6SCXlZF8/)
+  - Source: https://www.youtube.com/watch?v=P-z6SCXlZF8
+  - [00:00.080] No tax on overtime, it would be a a huge  advantage to law enforcement across the country. - [00:05.840] We work sometimes hundred plus hours a pay period. - [00:09.9...

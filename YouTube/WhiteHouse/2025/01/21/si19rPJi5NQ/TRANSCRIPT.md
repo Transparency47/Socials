@@ -1,0 +1,1157 @@
+<!-- source: https://www.youtube.com/watch?v=si19rPJi5NQ -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: si19rPJi5NQ -->
+<!-- date_published: 2025-01-21T01:35:37+00:00 -->
+<!-- date_accessed: 2026-06-02T02:54:56.792948+00:00 -->
+
+# Transcript: President Donald J. Trump Signs Executive Orders on Day One of Administration
+
+- [00:06.640] yes sir first we have a list Pardons and
+- [00:09.519] commutations relating to events that
+- [00:11.200] occurred on January 6
+- [00:13.240] 2021 okay and how many people this I
+- [00:16.440] think this order will apply to
+- [00:17.600] approximately 1500 people sir so this is
+- [00:21.199] January 6th and these are the
+- [00:24.320] hostages approximately 1,500 for a
+- [00:28.000] pardon yes full par
+- [00:32.800] full pardon or commutation full
+- [00:36.040] pardon we have about six commutations in
+- [00:39.360] there where we're doing further
+- [00:42.079] research nice to see you
+- [00:50.640] again so this is a big
+- [00:54.280] one anything you want to explain about
+- [00:56.960] this we we hope they get them we hope
+- [00:58.719] they come out tonight
+- [01:01.320] frankly they're expecting
+- [01:06.040] it approximately 1500 people six six
+- [01:10.400] commutations there any Cas you
+- [01:13.560] not we're looking at different things
+- [01:16.840] but the commutations would be the ones
+- [01:18.880] that we'll take a look and maybe it'll
+- [01:20.880] say that way or it'll go to in a full
+- [01:24.000] part and the order does require the
+- [01:25.759] Bureau of Prisons to act immediately on
+- [01:27.720] receipt of the Pardons and commutation
+- [01:29.960] orders sir this is a an ex why don't we
+- [01:32.600] get that down so they can get them going
+- [01:34.560] right now yes sir yep absolutely this is
+- [01:37.320] a proclamation uh guaranteeing the
+- [01:39.399] state's protection against Invasion
+- [01:41.079] based on the current crisis at the
+- [01:42.520] southern border it invokes various
+- [01:44.640] executive powers relating to the ongoing
+- [01:46.600] Invasion at the southern
+- [01:55.360] border Mr President what makes you
+- [01:57.799] confident that those are not going to be
+- [01:59.520] blocked
+- [02:00.399] cour I don't think they will I don't
+- [02:02.799] think they can be they're very straight
+- [02:05.000] up why don't you take that and go over
+- [02:07.320] here could you get him over here not on
+- [02:09.080] the side angle do you mind just go right
+- [02:12.319] over here with your friends okay sir
+- [02:15.360] this is an executive order uh realigning
+- [02:17.720] the United States Refugee admission
+- [02:19.599] program uh to better align uh with
+- [02:22.480] American principles and American
+- [02:23.879] interest
+- [02:44.480] okay thank you
+- [02:46.440] sir this next executive
+- [02:49.120] order um is about protecting America
+- [02:52.680] from foreign terrorists and other
+- [02:54.239] National Security and Public Safety
+- [02:56.080] threats again crisis at the border uh
+- [02:58.760] but it goes beyond that implicates other
+- [03:00.879] executive powers as
+- [03:09.680] well president Trump if the cartels are
+- [03:12.840] now going to be seen as foreign Terror
+- [03:14.840] organizations would you think about
+- [03:16.480] ordering US Special Forces into me to
+- [03:20.080] take them out Could
+- [03:21.959] Happen stranger things have
+- [03:26.680] happened that was actually that would
+- [03:29.280] accept V say it how how will you make
+- [03:32.760] sure that Muro will accept Venezuela
+- [03:35.239] well we're going to see on Venezuela
+- [03:36.799] we're looking at Venezuela very strongly
+- [03:40.480] it's a a country I know very well for a
+- [03:43.439] lot of reasons and it's it was a great
+- [03:46.080] country 20 years ago and now it's a mess
+- [03:48.280] right sir can we expect ice raids
+- [03:50.959] starting tomorrow in major cities what
+- [03:53.439] does that me can we expect ice raids uh
+- [03:56.599] in major cities I don't want to say when
+- [03:58.840] but it's going to happen
+- [04:00.519] has to happen or we're not going to have
+- [04:01.920] a country left this is actually an
+- [04:03.920] executive order designating the cartels
+- [04:06.040] and other organizations to be foreign
+- [04:08.319] terrorist
+- [04:09.439] organizations that's a big one yes
+- [04:13.519] sir people have wanted to do this for
+- [04:18.720] years so they are now designated as
+- [04:21.600] terrorist organizations
+- [04:23.880] foreign and uh Mexico probably doesn't
+- [04:28.120] want that but we have have to do what's
+- [04:31.600] right they're killing our people they're
+- [04:34.560] killing 250 300,000 American people a
+- [04:38.440] year not 100 like has been reported for
+- [04:42.639] 15 years it's probably
+- [04:45.280] 300,000 this is just say Mexico doesn't
+- [04:48.160] want that how are you going to deal with
+- [04:50.479] this I don't know you'll have to ask
+- [04:52.800] them sir this is an executive order
+- [04:54.720] entitled protecting the American people
+- [04:56.360] against Invasion which again deals with
+- [04:58.160] the southern border and the
+- [04:59.120] unprecedented admission of illegal uh
+- [05:01.720] illegal aliens across the southern
+- [05:08.639] border what do you see the biggest
+- [05:10.880] national security threat to the US Mr
+- [05:14.199] President what's going to be your
+- [05:15.960] priority on foreign policy say what's
+- [05:18.440] going to be your priority on foreign
+- [05:20.360] policy what you see is the Bigg foreign
+- [05:22.600] policy is a big statement I mean my PR
+- [05:25.199] priority on foreign policy it's going to
+- [05:26.960] keep it's going to be to keep America
+- [05:29.319] safe
+- [05:30.199] very simple it's a big question though
+- [05:33.160] that's a very big question who is going
+- [05:34.440] to be the first foreign leader that you
+- [05:36.120] plan to meet or who would call tomorrow
+- [05:39.160] I've already been meeting people I've
+- [05:40.720] been meeting them I've been talking to
+- [05:42.360] them he's a I I met with prime minister
+- [05:47.240] Trudeau like all Governor Trudeau I met
+- [05:50.800] with numerous foreign leaders goad sir
+- [05:54.680] what might be your
+- [05:56.440] first this next order relates to the
+- [05:58.840] definition Birthright citizenship under
+- [06:00.720] the 14th Amendment of the United States
+- [06:02.840] that's a good one
+- [06:04.479] Birthright that's a big one what about
+- [06:07.280] that one in the court that one is lik
+- [06:10.000] could
+- [06:10.800] be they think we have good ground but
+- [06:13.479] you could be right I mean you'll find
+- [06:16.160] out it's ridiculous we're the only
+- [06:19.039] country in the world that does this with
+- [06:21.680] Birthright as you
+- [06:23.080] know and it's just absolutely ridiculous
+- [06:26.599] but you know we'll see we think it we
+- [06:28.720] have very good ground
+- [06:30.800] sir people have wanted to do this for
+- [06:33.520] decades sir this is a proclamation
+- [06:35.800] declaring a national emergency at the
+- [06:37.919] southern border of the United
+- [06:39.520] States that's a big one a lot of big
+- [06:42.080] ones huh you know what that
+- [06:46.599] means president Trump did President
+- [06:48.880] Biden leave you a
+- [06:50.880] letter he may
+- [06:53.319] have right don't they leave it in the
+- [06:56.919] desk I don't know
+- [07:00.800] oh what's in there thank you Peter it
+- [07:03.080] could have been years before we
+- [07:05.560] found wow thank you can say on the
+- [07:09.400] outside maybe we should all read it
+- [07:11.560] together let's read it well maybe I'll
+- [07:13.759] read it first and then make that deter
+- [07:15.800] that sounds great Peter thank you very
+- [07:18.720] much I may not have seen this for months
+- [07:20.759] happy to help with the the passing of
+- [07:23.199] the tourch I did I left him one in the
+- [07:26.360] desk so I gu what what are you talking
+- [07:29.080] about
+- [07:33.319] unification of our
+- [07:35.479] country you know I didn't know that he
+- [07:38.720] gave a pardon to his family because he
+- [07:41.800] did it during my speech he didn't tell
+- [07:44.280] you in the no he didn't tell me no no he
+- [07:46.599] did it they released it during my speech
+- [07:48.919] I mean during my speech so all I could
+- [07:51.720] do was say excuse me I'd like to come
+- [07:54.000] back and speak some more so no we were
+- [07:57.120] surprised by that it's presid it's bad
+- [08:00.120] precedent obviously what are you
+- [08:02.199] thinking on on Mexico given these
+- [08:04.960] actions you're signing On the Border
+- [08:06.759] well we're thinking in terms of 25% on
+- [08:09.800] Mexico and Canada because they're
+- [08:12.199] allowing uh vast numbers of people
+- [08:15.240] Canada's very bad abuser also vast
+- [08:17.800] numbers of people to come in and
+- [08:19.240] Fentanyl to come in when do you think
+- [08:21.759] you would enact I think February
+- [08:24.400] 1 not of that I think I think we'll do
+- [08:26.919] it February 1 25% sir sir on each on
+- [08:31.159] each this is an executive order taking a
+- [08:33.599] large number of executive actions to
+- [08:35.479] secure our Southern border
+- [08:37.719] okay SS
+- [08:42.959] reasonable president Trump we remember
+- [08:46.200] four years ago Barack Obama had told you
+- [08:48.399] that the top threat to the country was
+- [08:49.640] going to be North Korea did Joe Biden
+- [08:51.360] tell you what you think is the top
+- [08:52.720] threat to the country no no why not I
+- [08:55.959] think we have a lot of them right now we
+- [08:58.680] really I think we have have a lot I
+- [09:00.040] think North Korea turned out to be good
+- [09:02.600] I I was very friendly with him he liked
+- [09:04.440] me I liked him we got along very
+- [09:06.920] well they thought that was a tremendous
+- [09:09.560] threat now he is a nuclear power but we
+- [09:13.320] we got along I think he'll be happy to
+- [09:15.720] see him coming back and I think he has
+- [09:18.760] tremendous condo capability he's got a
+- [09:21.399] lot of Shoreline thank you sir are we
+- [09:23.800] going to work with countries from South
+- [09:25.600] America to coordinate on immigration
+- [09:29.600] about who about immigration General this
+- [09:32.720] is an executive order s I'm fine with
+- [09:35.720] legal immigration I like it we need
+- [09:38.320] people and I'm absolutely fine with it
+- [09:42.560] we want to have it we need it because
+- [09:44.360] we're going to have a lot of companies
+- [09:45.720] coming in to avoid tariffs you know if
+- [09:48.720] you uh don't want tariffs all you have
+- [09:51.160] to do is build your plant in the US so
+- [09:52.959] we're going to have a lot of workers
+- [09:54.040] coming in but we have to have legal
+- [09:56.959] immigration you have you have a date in
+- [09:58.880] mind for you want to put in on the China
+- [10:00.839] tariffs that you which one
+- [10:04.360] um% no you're talking about which say it
+- [10:08.320] again the China China tariffs the tars
+- [10:12.160] well you as you know I put on large
+- [10:14.600] tariffs on China and they've really been
+- [10:16.360] forced to leave them and if we didn't
+- [10:18.320] leave them you wouldn't have one steel
+- [10:19.720] mill that's open in this country because
+- [10:21.640] they were dumping massive amounts of
+- [10:23.200] Steel we've taken in hundreds of
+- [10:25.320] billions of dollars from China because
+- [10:27.360] and they were unable to terminate the
+- [10:30.279] tariffs I put on China because it was
+- [10:32.839] too much money and the budgets didn't
+- [10:35.120] work and other reasons to um no I mean
+- [10:38.680] we're going to have meetings and calls
+- [10:41.079] with President she I spoke to president
+- [10:42.880] XI last week as you know did you know
+- [10:45.560] that I have very good phone call long
+- [10:49.440] with NATO this moment are youning toet
+- [10:51.360] your NATO all no NATO has to pay more
+- [10:53.720] money NATO has to pay
+- [10:56.160] 5% we are um we're in the Ukraine war by
+- [11:01.079] $200 billion dollar more than NATO it's
+- [11:03.519] ridiculous because U it affects them a
+- [11:06.440] lot more we have an ocean in
+- [11:08.320] between and we're we've spent $200
+- [11:11.120] billion dollar more on Ukraine than NATO
+- [11:13.399] has
+- [11:14.079] spent and they've got to equalize did
+- [11:16.839] you talk about did you talk to she about
+- [11:19.839] the Ukraine war yeah because China and
+- [11:22.680] Brazil together has a proposal to bring
+- [11:25.160] uh Russia and Ukraine to talk that's
+- [11:28.120] good that's um I'm ready when are you
+- [11:31.040] going to talk with the Brazilian how did
+- [11:32.800] Brazil get involved Brazil this is a new
+- [11:35.440] one when are you going to talk to are
+- [11:37.560] you from Brazil I'm from Brazil Ah
+- [11:40.200] that's why they're involved I guess when
+- [11:42.120] are you going to talk with the Brazilian
+- [11:43.560] president how do you see our
+- [11:44.839] relationship with Latin America and
+- [11:47.639] Brazil great should be great they need
+- [11:51.720] us much more than we need them we don't
+- [11:54.560] need them they need us Everybody Needs
+- [11:58.240] Us sounds like you will not receive an
+- [12:00.880] additional China tff necessarily
+- [12:03.200] depending on how talks go with President
+- [12:05.160] she is that
+- [12:06.440] correct what does that Define that well
+- [12:10.120] asking you the campaign 10% or as
+- [12:14.079] because of fentol right so I'm asking
+- [12:16.760] that's only because of fentol there are
+- [12:18.279] other things too add and a very big
+- [12:20.720] thing is the Panama
+- [12:22.600] Canal China controls the Panama Canal
+- [12:25.399] what's that all about they're not
+- [12:27.720] supposed to be Jimmy Carter gave it
+- [12:30.399] which was a terrible mistake a terrible
+- [12:32.959] mistake uh he didn't do it he didn't
+- [12:35.279] give it to China he gave it to Panama
+- [12:38.040] and China controls the Panama Canal so
+- [12:40.519] are China and we're not going to allow
+- [12:42.199] that to happen are they still on the
+- [12:44.040] table or is that we're not no we're not
+- [12:45.839] going to allow that to
+- [12:47.320] happen thank you sir what can we expect
+- [12:49.880] of the countries in NATO that spend the
+- [12:51.959] least amount of money like Spain France
+- [12:54.839] below the 5% Spain is very low
+- [12:59.240] are they a bricks
+- [13:00.680] Nation what they're a bricks Nation
+- [13:03.639] Spain you know what a bricks nation is
+- [13:07.000] you'll figure it out but uh and if the
+- [13:10.959] brics nations want to do that that's
+- [13:13.160] okay but we're going to put at least a
+- [13:15.800] 100% tariff on the business they do with
+- [13:18.560] the United States you know what the
+- [13:19.880] bricks is right you guys know you know
+- [13:22.639] what I'm saying right you know what I'm
+- [13:25.760] saying so it's not even a threat in fact
+- [13:29.160] since I made that statement Biden said
+- [13:31.519] well they have us over a barrel I said
+- [13:33.279] no we have them over a
+- [13:35.199] barrel and uh there's no way they're
+- [13:37.959] going to be able to do that this is an
+- [13:39.440] ex 100% TS those countries like
+- [13:43.720] Spain as a bricks Nation yes they'll
+- [13:47.079] have 100% tariff if they so much as even
+- [13:50.120] think about doing what they thought can
+- [13:52.079] you explain how which which and
+- [13:53.720] therefore they'll give it up immediately
+- [13:55.440] so will China give it up Sir this is
+- [13:57.360] about reforming the system of Hing in
+- [14:00.079] federal government to ensure that Merit
+- [14:02.160] is the load star of hiring decisions as
+- [14:04.519] part the Supreme Court other matters yes
+- [14:06.480] sir Mr President here's a big deal Merit
+- [14:09.880] our country is going to be based on
+- [14:12.440] Merit again can you can you believe it
+- [14:15.680] Mr President say end the Russ Ukraine
+- [14:18.959] war stand right now well this is only
+- [14:22.560] half a day I have another half a day
+- [14:25.360] left we'll see we want to get it done
+- [14:27.519] this is an order creating and imple pres
+- [14:29.279] ing the department of governmental
+- [14:30.560] efficiency known as Doge okay that's a
+- [14:32.920] big one is Elon Musk going to get a West
+- [14:36.320] office no U he's getting an office for
+- [14:40.519] about 20 people that were hiring to make
+- [14:43.360] sure that these get
+- [14:45.079] implemented we have a problem in this
+- [14:48.279] country you sign an executive order it
+- [14:50.000] doesn't get done for six months as an
+- [14:52.560] example when we allow the J six hostages
+- [14:56.320] to go
+- [14:57.399] out uh it might not be approved in under
+- [15:01.199] the old days by for two weeks 3 weeks 6
+- [15:04.959] months you know they had a good ruling
+- [15:07.199] from the Supreme Court and it's like
+- [15:09.120] nothing happened that ruling was 6
+- [15:11.440] months ago you know that and it was like
+- [15:14.360] they didn't have a ruling they've been
+- [15:16.160] treated very unfair the judges have been
+- [15:18.680] absolutely brutal the prosecutors have
+- [15:20.920] been brutal nobody's ever treated people
+- [15:23.480] in this country like that Mr President
+- [15:25.680] are you commuting the sentences of
+- [15:27.240] anyone who assaulted the police offic on
+- [15:29.319] January 6 well we're looking at two
+- [15:32.000] police officers actually that Washington
+- [15:35.000] police officer who went after an a legal
+- [15:37.959] and things happened and they ended up
+- [15:39.519] putting them in
+- [15:40.920] jail uh they got fiveyear jail sentences
+- [15:43.600] you know the case and we're looking at
+- [15:47.319] that in order to give them a
+- [15:50.560] uh we got to give them a break but is
+- [15:53.120] the PCY in your actions today for any
+- [15:55.800] well it would be a part that would be a
+- [15:57.120] part the one I'm talking about be a
+- [15:59.480] party should there be punishment for the
+- [16:01.759] people who assaulted law enforcement
+- [16:03.399] officers that day well I will say this
+- [16:05.759] they've been in jail for a long time
+- [16:07.880] already I see murderers in this country
+- [16:10.399] get two years one year and maybe no time
+- [16:13.160] so they've already been in jail for a
+- [16:14.600] long time these people have been
+- [16:17.360] destroyed what they've done to these
+- [16:19.399] people is
+- [16:20.600] outrageous there's rarely been anything
+- [16:23.000] like it in history in the history of our
+- [16:25.680] country and even people that were
+- [16:29.680] aggressive and in many cases I believe
+- [16:32.079] they happen to be outside agitators but
+- [16:34.199] you know what do I know right but I
+- [16:36.959] think they were I think they were
+- [16:37.920] outside agitat there were outside
+- [16:39.839] agitators involved and obviously the FBI
+- [16:43.279] was
+- [16:44.360] involved
+- [16:46.079] because Ry admitted the FBI was involved
+- [16:49.199] didn't he say 23 people indirectly or
+- [16:52.399] directly were involved and it was in 26
+- [16:54.959] that's a lot of
+- [16:56.199] people now we have um
+- [16:59.519] we're going to take care these people
+- [17:01.399] have been treated so badly it's never
+- [17:03.079] happened before what happened in Seattle
+- [17:05.360] where they took over a big portion of
+- [17:06.880] the city what happened in uh Portland
+- [17:10.880] where they burn down the city every day
+- [17:13.559] and people die nothing happened to
+- [17:16.559] anybody but they go after these people
+- [17:19.880] violently I mean they're still going
+- [17:21.880] after brand new people they found
+- [17:23.880] somebody else with a picture there's
+- [17:25.720] never been anything like this and you
+- [17:27.959] know it's almost a
+- [17:29.480] 100% think of this almost 100% of the
+- [17:32.919] people are
+- [17:34.160] convicted
+- [17:36.120] 100% it's Washington
+- [17:38.760] DC people go into a trial and they say
+- [17:41.919] oh I have a wonderful lawyer and I
+- [17:43.520] didn't do anything wrong and they end up
+- [17:46.400] in shackles almost immediately and
+- [17:49.320] jail now we're not going to let it
+- [17:51.600] happen how about you have some interest
+- [17:54.200] in buying it but is there any other
+- [17:56.440] option that would satisfy you about what
+- [17:59.640] Greenland instead of buying it Finland
+- [18:02.000] Greenland Greenland Greenland is a
+- [18:04.679] wonderful place we need it for
+- [18:07.000] International
+- [18:08.720] Security and I'm sure that Denmark
+- [18:11.960] will come along I think you know it's
+- [18:14.320] costing them a lot of money to maintain
+- [18:15.919] it to keep it the people of Greenland
+- [18:18.919] are not happy with Denmark as you know I
+- [18:21.679] think they're happy with us we had
+- [18:23.799] Representatives my son and
+- [18:25.120] representatives went up there two weeks
+- [18:26.919] ago and they like us
+- [18:29.400] so we'll see what happens but Greenland
+- [18:31.000] is necessary not for us it's necessary
+- [18:33.679] for International
+- [18:35.760] Security you have Russian boats all over
+- [18:38.000] the place you have China boats all over
+- [18:39.880] the place
+- [18:41.880] warships and they can't maintain
+- [18:45.919] it who did you plan to meet President
+- [18:49.000] Putin sir I I'll be meeting with
+- [18:51.720] President Putin when do you think I
+- [18:53.559] don't know I can't it's being said you
+- [18:54.799] know what your first trip forp might be
+- [18:57.200] sir so first foreign
+- [19:00.400] trip typically has been with
+- [19:03.280] UK but we did it I did it with Saudi
+- [19:06.159] Arabia last time because they agreed to
+- [19:07.760] buy $450 billion worth of our product I
+- [19:10.480] said I'll do it but you have to buy
+- [19:13.240] American product and they agreed to do
+- [19:15.440] that they bought 450 billion it was the
+- [19:18.720] least reported story I've ever been
+- [19:20.520] involved in and now where are you plan
+- [19:22.120] to go now well I don't know if Saudi
+- [19:24.720] Arabia wanted to buy another 450 or 500
+- [19:27.640] well up it for all the
+- [19:29.559] Mr President you say you were going to
+- [19:31.240] end the war first day how do you plan to
+- [19:34.159] end the Ukraine war well we're going to
+- [19:35.840] try and get it done as quickly as
+- [19:37.520] possible do you want to push Israel and
+- [19:39.679] it should have never started you know
+- [19:41.120] the war with Ukraine and Russia should
+- [19:42.919] have never started it would have never
+- [19:45.320] started if I were president will you
+- [19:47.280] push Israel and Saudi Arabia to
+- [19:49.240] normalize
+- [19:50.679] relations I don't think I have to push
+- [19:52.559] him I think it's going to happen but
+- [19:54.240] maybe not quite yet but it'll they'll
+- [19:56.480] end up being in the uh in the Accords
+- [19:59.960] the Abraham Accords president Trump I
+- [20:02.440] think Saudi Arabia will end up being in
+- [20:05.280] the Abraham Accords this year could be
+- [20:07.840] but you so not a very long way oh look
+- [20:11.039] at that it says ticktock my my my what
+- [20:14.159] is that all about first we have Alaska
+- [20:16.240] sir this is an executive order relating
+- [20:18.280] to unleashing Alaska's potential as an
+- [20:20.600] energy reservoir for the entire nation
+- [20:22.440] and what about nir I believe that would
+- [20:25.159] be included in aspect of the order so
+- [20:26.919] we're opening up nir
+- [20:29.400] on the Tik Tok piece president Trump you
+- [20:31.520] and your members of your team now used
+- [20:33.960] to warn about the dangers of Tik Tok
+- [20:36.200] spying on Americans what changed that
+- [20:39.039] you're not worried about that anymore
+- [20:40.880] well it depends on the deal I mean I may
+- [20:43.400] not do the deal or I may do the deal Tik
+- [20:45.440] Tock is
+- [20:47.559] worthless worthless if I don't approve
+- [20:50.000] it it has to close I learned that from
+- [20:52.679] the people that own it if it if I don't
+- [20:55.960] do the deal it's worthless worth nothing
+- [20:59.039] if I do the deal it's worth maybe a
+- [21:00.559] trillion dollars a trillion so if I do
+- [21:03.520] the deal for the I'm talking about doing
+- [21:05.559] it for the United States if I do the
+- [21:07.240] deal for the United States then I think
+- [21:10.039] we should get half the ti to in other
+- [21:12.360] words wait I think the US should be
+- [21:14.960] entitled to get half of Tik Tock and
+- [21:17.919] congratulations Tik Tock has a good
+- [21:20.159] partner and that would be worth you know
+- [21:24.200] could be $500 billion dollar or
+- [21:26.240] something it's crazy the numbers are
+- [21:27.840] crazy but it's worthless if I don't if
+- [21:30.520] the president doesn't sign then it's
+- [21:33.279] worthless if the president does sign
+- [21:35.679] it's worth maybe a trillion dollars so I
+- [21:39.320] think uh like a joint venture I think we
+- [21:42.400] would have a joint venture with the
+- [21:44.600] people from Tik Tock we'll see what
+- [21:46.080] happens I mean that's one of many ideas
+- [21:48.640] I've
+- [21:49.640] had he say he's open to that idea who
+- [21:53.080] the CEO Tik Tok is around oh I think he'
+- [21:55.760] probably like it because he's got
+- [21:58.240] nothing
+- [22:00.080] they really have nothing it it's passed
+- [22:02.640] in Congress it gives the president the
+- [22:04.480] right to make it make a deal or to close
+- [22:07.720] it and we have 90 days to make that
+- [22:10.880] decision but I could see making a deal
+- [22:13.640] with the US gets 50% of tick Tok polies
+- [22:18.039] it a little bit or a lot depends on them
+- [22:22.880] but remember they make telephones in
+- [22:24.640] China they make uh all sorts of things
+- [22:26.919] in China nobody ever complains about
+- [22:28.559] about that here they're complaining
+- [22:29.760] about
+- [22:31.520] this there so many different products
+- [22:33.720] made in China nobody ever complained
+- [22:35.400] about the only one they complain about
+- [22:36.760] is Tik Tock and Tik Tok is largely young
+- [22:39.960] people I guess I have a warm spot for
+- [22:41.679] Tik Tok that I didn't have originally
+- [22:43.520] but you I went on Tik Tok and I won
+- [22:46.919] young people by 36%
+- [22:49.679] Peter and Republicans typically don't do
+- [22:52.640] too well with young people but it's a
+- [22:54.720] different Republican party would the US
+- [22:56.960] government buy portion of Tik Tok then
+- [22:59.120] or how would it get that 50% no you you
+- [23:01.960] take 50% of Tik Tock for the approval
+- [23:05.799] that Tik Tock could continue in business
+- [23:08.120] and they'd have a great partner the US
+- [23:09.679] would be their partner but the US
+- [23:12.039] essentially would be paid for doing that
+- [23:14.520] half of the value of Tik Tok would there
+- [23:16.600] be a private sector owner as well could
+- [23:18.480] be could be a lot tell you what every
+- [23:21.159] rich person has called me about Tik Tok
+- [23:24.200] you wanted to blog Tik Tok why did it
+- [23:26.240] change your mind because I got to use it
+- [23:29.720] and remember Tik Tok is largely about
+- [23:32.679] kids young kids if China is going to get
+- [23:34.840] information about young kids I don't
+- [23:36.679] know I think I think to be honest I
+- [23:39.880] think we have bigger problems than that
+- [23:42.200] but but you know when you take a look at
+- [23:43.600] telephones that are made in China and
+- [23:45.279] all the other things that are made in
+- [23:46.799] China military equipment made in
+- [23:49.760] China um Tik Tock I think Tik Tock is
+- [23:54.200] not their biggest problem but there's
+- [23:56.760] Big Value in Tik Tok if it gets approved
+- [23:58.919] if it doesn't get approved there's no
+- [24:00.200] value so if we create that value why
+- [24:02.840] aren't we entitled to like
+- [24:05.280] [Music]
+- [24:07.120] half does Biden ever do news conferences
+- [24:10.080] like this how many news conferences
+- [24:12.600] Peter has he done like this none
+- [24:16.360] zero and it would be zero for the next
+- [24:19.960] Infinity for Infinity it would be zero
+- [24:22.640] Mr pres is musk going to help implement
+- [24:26.600] the executive orders I think you
+- [24:27.960] mentioned
+- [24:30.000] impl he's Elon is very busy sending
+- [24:33.000] rocket ships up to various places with
+- [24:35.640] lots of satellites are what is your
+- [24:37.399] reaction to the confirmation of marubio
+- [24:39.360] and what does it mean for Latin America
+- [24:41.320] which
+- [24:42.919] one
+- [24:45.000] marcoo you said m m Marco mbio yeah he's
+- [24:50.240] uh I think he's great I think Marco's
+- [24:52.919] doing a fantastic job I think he's going
+- [24:54.600] to get a lot of votes I think he's going
+- [24:56.720] to be at 90% or something I mean I'm
+- [24:58.760] hearing very good people know him they
+- [25:00.480] know him in the Senate they know he's
+- [25:01.760] good he's doing a good job I don't know
+- [25:03.520] I can't tell you I don't know what's
+- [25:04.679] going to happen with that he's got he's
+- [25:07.559] got some very strong ideas in the mark
+- [25:11.799] you did you sign it to co yeah yes that
+- [25:14.960] was just Marco R
+- [25:17.039] ideas still changing Venezuela changeing
+- [25:20.200] power are you still committed with
+- [25:21.600] Maduro leaving power in venezuel well
+- [25:23.080] we're going to find out about that too
+- [25:24.919] because we're going to probably stop
+- [25:26.399] buying oil from Venezuela we don't need
+- [25:28.080] the oil another embargo like the first
+- [25:30.320] term well it could be but we don't want
+- [25:31.600] to buy we don't have to buy their oil we
+- [25:33.440] have plenty of oil for ourselves so
+- [25:35.399] president Trump that'll change Venezuela
+- [25:37.399] quite a bit president Trump there was a
+- [25:39.120] lot of concern about this during the
+- [25:40.919] campaign a question that only works
+- [25:42.880] today are you a dictator on day no
+- [25:47.880] no I can't imagine even be being called
+- [25:50.880] that no I believe in the sanctity of the
+- [25:53.720] vote the Democrats didn't because they
+- [25:56.159] cheated like dogs but I believe in the
+- [25:58.600] sanctity and this was too big to rig
+- [26:00.440] this last election was just too big to
+- [26:02.480] rig Mr President really the opposite
+- [26:05.799] when do you plan to speak to President
+- [26:07.279] Putin could be very soon and and you
+- [26:10.440] talked a bit about Ukraine and Russia
+- [26:12.240] but how long do you think it would take
+- [26:14.720] to end that conflict and I have to speak
+- [26:18.520] to President Putin we're going to have
+- [26:19.840] to find out he's not he can't be
+- [26:21.279] thrilled he's not doing so well I mean
+- [26:23.559] he's grinding it out but most people
+- [26:25.360] thought that war would have been over in
+- [26:26.799] about one week and now you're into three
+- [26:29.520] years right so he can't be he can't be
+- [26:32.640] thrilled it's not making him look very
+- [26:35.080] good now eventually you know I mean it's
+- [26:37.320] a big machine so things will happen but
+- [26:41.039] uh I think it'd be very well off to end
+- [26:43.840] that war we have numbers that almost a
+- [26:47.679] million Russian soldiers have been
+- [26:49.480] killed about 700,000 Ukrainian soldiers
+- [26:53.039] are
+- [26:54.039] killed Russia's bigger they have more
+- [26:56.200] soldiers to lose but that's no way to
+- [26:59.720] run a country what did your Tik Tok
+- [27:02.200] order to you Mr President just gave me
+- [27:04.840] the right to sell it or close it
+- [27:07.559] essentially with Tik Tok I have the
+- [27:08.960] right to either sell it or close
+- [27:11.960] it and we'll make that determination and
+- [27:15.200] we may have to get an approval from
+- [27:16.760] China too I'm not sure but I'm sure
+- [27:19.080] they'll approve
+- [27:20.520] it and if they don't approve it it would
+- [27:23.279] be somewhat of a hostile act I think but
+- [27:26.080] it's good for China if it gets approved
+- [27:29.240] you you're not guaranteeing that Tik Tok
+- [27:31.120] will be around after 90 days no but it
+- [27:34.399] it could very well be it makes sense for
+- [27:37.000] it to be because it's got tremendous
+- [27:40.200] value but if we create the value by
+- [27:43.039] approving you know in other words that
+- [27:45.000] approval gives a tremendous value if
+- [27:47.480] that's the case then we should be
+- [27:48.600] entitled to 50% as a country you you
+- [27:52.200] haven't heard that one before right
+- [27:53.640] that's called the joint venture and um
+- [27:57.760] nobody ever thought that way before your
+- [28:00.200] part well I don't I think it's I think
+- [28:02.320] you have a lot of people that would be
+- [28:03.760] interested in Tik Tock with the United
+- [28:05.679] States as a partner Mr President what
+- [28:08.440] was it like walking into the overal
+- [28:10.360] office this evening oh what a great
+- [28:13.159] feeling one of the better feelings I've
+- [28:15.600] ever had do you like this town better
+- [28:18.320] now than in
+- [28:20.559] 2017 well we're very experienced
+- [28:23.640] now you would say nobody's ever had
+- [28:26.120] experience like I have I've dealt with
+- [28:29.360] some very good people I've dealt with
+- [28:30.960] some very bad people and I know who the
+- [28:32.640] bad ones are and the good ones are you
+- [28:34.159] know don't forget I was very successful
+- [28:37.000] in primarily the real estate
+- [28:39.159] business and um people used to say who's
+- [28:43.480] worse a politician or a vicious real
+- [28:46.519] estate developer and I know always say
+- [28:49.559] you know the real estate developer is
+- [28:51.080] far worse but after about three months
+- [28:53.760] and getting to know scum like Adam
+- [28:56.159] Schiff and other people like that I said
+- [28:58.720] no actually real estate people are quite
+- [29:01.000] nice by
+- [29:02.159] comparison you said you plan to speak
+- [29:04.760] with President Putin soon what about
+- [29:06.279] President zinski and what's your message
+- [29:07.919] yeah I I would but he's told me he wants
+- [29:10.240] to make a deal he zilinsky wants to make
+- [29:13.600] a
+- [29:14.799] deal I don't know Putin does he might
+- [29:17.200] not I don't know he should make a deal I
+- [29:20.960] think he's destroying
+- [29:22.559] Russia by not making a deal I think
+- [29:25.720] Russia's going to be in big trouble you
+- [29:28.799] take a look at their economy you take a
+- [29:30.360] look at the inflation in
+- [29:31.960] Russia so I I would I would hope I got
+- [29:34.960] along with him great and you know I
+- [29:38.399] would hope he wants to make a deal Mr
+- [29:40.320] President are you keeping us sanctions
+- [29:41.760] on Russia until he makes a deal well
+- [29:44.640] sanctions or tariffs I think the word
+- [29:46.440] tariff is much better because it keeps
+- [29:47.919] your dollar stronger I think tariffs are
+- [29:50.600] more effective I I use sanctions on Iran
+- [29:52.799] Iran Iran was broke when I left office
+- [29:56.240] Iran was broke they had no money for
+- [29:58.720] Hamas or Hezbollah none they were flat
+- [30:03.399] broke and October 7th would have never
+- [30:06.880] happened and I think you all know that
+- [30:09.240] it would have never happened they had no
+- [30:11.039] money now they're rich but you know
+- [30:14.120] they're weakened in a different way I
+- [30:15.760] would say that uh the one attack by
+- [30:20.279] Israel really set them
+- [30:22.960] back it really set them back the pages
+- [30:26.240] the pages and others you know the attack
+- [30:28.440] on air defense was a that was a bad
+- [30:31.080] attack for what what are you signing now
+- [30:34.039] sir it's an executive order relating to
+- [30:35.960] reforms to the federal Workforce
+- [30:37.720] including to the senior executive
+- [30:40.320] service we're getting rid of all of the
+- [30:43.519] cancer I call it cancer the cancer
+- [30:46.320] caused by the Biden
+- [30:49.399] Administration how confident are you Mr
+- [30:51.760] pres then then you can keep the
+- [30:53.120] ceasefire in and conclude
+- [30:56.240] the I'm not it's not our war it's their
+- [30:59.000] War but apologize I'm not confident but
+- [31:01.360] I think they're very weakened on the
+- [31:02.639] other
+- [31:03.720] side support boy I looked at a picture
+- [31:07.240] of Gaza Gaza is is like a massive
+- [31:10.240] demolition site that place is it's
+- [31:13.360] really
+- [31:14.519] uh got to be rebuilt in a different way
+- [31:17.519] do you plan to help rebuilding Gaza I
+- [31:20.240] might you know Gaza is interesting it's
+- [31:22.639] a phenomenal location on the
+- [31:26.399] sea the best way weather you know
+- [31:28.720] everything's good it's like some
+- [31:31.440] beautiful things could be done with it
+- [31:33.120] but it's very interesting but some
+- [31:36.960] fantastic things could be done with Gaza
+- [31:39.840] how do you see the future in governance
+- [31:41.960] for
+- [31:43.039] Gaza well it depends I can't imagine you
+- [31:45.760] could have Well you certainly can't have
+- [31:48.440] the people that were there most of them
+- [31:49.880] are dead by the way right most of them
+- [31:52.200] are dead but they didn't exactly run it
+- [31:56.080] well run vicious L and
+- [31:59.200] badly you can't have that Mr President
+- [32:02.440] on Tik Tok sir will you pause any
+- [32:05.000] decision on
+- [32:06.480] chins know what the resolution on Tik to
+- [32:10.760] will
+- [32:11.559] be if China didn't approve it we could
+- [32:14.120] put tariffs on China don't
+- [32:17.320] forget China charges us tariffs and we
+- [32:20.200] charge them very little except for what
+- [32:22.039] I did I put a lot of we took in hundreds
+- [32:24.320] of billions of dollars but until I came
+- [32:26.840] along China never paid 10 cents to this
+- [32:29.679] country they ripped us off and they
+- [32:31.200] never paid anything but like if we
+- [32:34.639] wanted to make a deal with Tik talk and
+- [32:36.279] it was a good
+- [32:37.480] deal and China wouldn't approve it then
+- [32:41.600] I think ultimately they'd approve it
+- [32:43.880] because we put tariffs on China maybe I
+- [32:46.120] I'm not saying I would but you certainly
+- [32:48.000] could do that and if we said well if
+- [32:51.360] you're not going to approve it then
+- [32:53.480] that's a certain hostility and we'll put
+- [32:55.760] tariffs of 25 30 40 50 % to even
+- [32:59.880] 100% And if we did that I think they'd
+- [33:02.120] approve it president Trump you've seen
+- [33:04.880] the other living presidents a couple
+- [33:06.919] times in the last few months if you ever
+- [33:08.960] had to call on one of them for advice
+- [33:11.240] about I's going on which one would you
+- [33:13.399] call it's an interesting well I thought
+- [33:15.720] Bill Clinton was a very good
+- [33:17.760] politician I don't think he was used
+- [33:19.919] properly I think they disrespected him
+- [33:22.559] when Hillary was running he came back
+- [33:25.039] and he said you know you better get up
+- [33:26.639] to Michigan and Wisconsin you remember
+- [33:28.919] that
+- [33:29.720] Peter every house has a trump sign on it
+- [33:33.519] and they all laughed at it because the
+- [33:35.240] Republicans hadn't won Michigan and
+- [33:37.600] Wisconsin for decades long time and they
+- [33:42.679] all laugh at Bill
+- [33:44.120] Linton like the hell does he
+- [33:47.440] know and he turned out to be right
+- [33:49.720] because I won both of them and then we
+- [33:51.240] just won both in this election too we
+- [33:53.080] won Wisconsin and Michigan and every
+- [33:55.799] other swing state we won all the swing
+- [33:57.440] States
+- [33:58.799] all seven they talked about seven swing
+- [34:00.760] States we wanton them all so but I I
+- [34:04.440] Bill Clinton was he had a
+- [34:06.240] great political sense I think you looked
+- [34:09.359] like you were having a good conversation
+- [34:10.879] with President Obama at president
+- [34:13.639] I and you'd like to know what
+- [34:16.560] I everybody wants everybody wants to
+- [34:19.879] know and I wouldn't want to but we were
+- [34:22.599] having some crazy conversation how about
+- [34:26.040] why are you asking a question like that
+- [34:28.320] you don't I don't think you want to know
+- [34:30.440] you might you just you might be insulted
+- [34:32.960] it's an executive order relating to
+- [34:34.440] holding former government account
+- [34:36.200] government officials accountable for
+- [34:37.720] unlawful disclosure of sensitive
+- [34:39.240] information this next one sir is a
+- [34:41.159] declaration of a national Energy
+- [34:43.720] emergency so you also that's a big one
+- [34:47.200] you know what that allows you to do that
+- [34:49.480] means you can do whatever you have to do
+- [34:51.720] to get out of that problem and we do
+- [34:53.399] have that kind of an
+- [34:55.679] emergency president Trump
+- [34:58.599] at some point will you use your powers
+- [35:00.560] of the presidency to tell Americans who
+- [35:03.280] are concerned about
+- [35:05.839] drones weeks ago ex can you tell us now
+- [35:09.640] in fact I'd like to know because I just
+- [35:11.400] got here what do you think I got I just
+- [35:14.760] came here I've been here for what 15
+- [35:17.119] minutes now do people listening because
+- [35:18.960] this is going out loud and I got to read
+- [35:20.240] this letter too because of you I found
+- [35:22.160] this letter I can read it B it's
+- [35:24.839] interesting yeah I know you would your
+- [35:28.119] father would too but is it anything is
+- [35:31.960] anything that makes worried no I think
+- [35:33.560] it's I think it's ter I I would like to
+- [35:35.440] find out what it is and tell the people
+- [35:37.960] and can you commit to some kind of in
+- [35:39.400] fact I'd like to do that could we find
+- [35:40.800] out what that was
+- [35:42.560] Susie okay yeah what don't we find out
+- [35:45.560] immediately I mean I can't imagine it's
+- [35:48.839] an enemy or there would have been you
+- [35:50.480] know people would have gotten blown up
+- [35:51.880] all of them maybe they were testing
+- [35:53.359] things I don't know why they wouldn't
+- [35:54.920] have said what it was
+- [35:57.800] had a lot of them flying over Bedminster
+- [35:59.680] which is
+- [36:00.920] interesting and with the events today
+- [36:03.800] and yesterday was everything moved
+- [36:05.200] inside just for cold weather or was
+- [36:07.040] there some kind of security concern no
+- [36:08.839] no no no security because they had
+- [36:11.440] everything shut down to drones you know
+- [36:13.000] you can shut that down pretty easily if
+- [36:14.599] you're sophisticate they very
+- [36:15.720] sophisticated these people uh no it was
+- [36:19.359] just called weather and we made a good
+- [36:20.800] move because first of all I thought it
+- [36:23.240] was incredible in the capital
+- [36:25.560] today you know why I liked it cuz I got
+- [36:27.880] great reviews on that speech I got great
+- [36:30.079] reviews can you believe it they actually
+- [36:31.720] were fair this is maybe the fake news is
+- [36:34.480] changing unleashing energy prodction
+- [36:36.839] unleashing energy
+- [36:38.880] production um but I thought it was uh I
+- [36:43.000] think having it in the capital is great
+- [36:45.599] obviously you you can take care of the
+- [36:47.800] people you have to take care of the city
+- [36:49.800] was
+- [36:51.280] booming and if we would have done it
+- [36:53.200] outside people would have been hurt
+- [36:54.560] because it was really cold you know it
+- [36:57.040] was like looks
+- [36:58.680] sunny but when you stood outside for 10
+- [37:01.400] minutes people were running back in it
+- [37:03.040] was really cold and really windy the
+- [37:05.680] wind brings it down a
+- [37:07.560] lot so we made the right decision you
+- [37:10.160] couldn't have stayed I don't think you
+- [37:11.240] could have had it out you you know how
+- [37:12.720] cold it was today it was uh people went
+- [37:16.920] out for a little while just to test it
+- [37:18.800] they couldn't stay out more than 10
+- [37:20.200] minutes they all came back in so we
+- [37:22.240] would have had a disaster if we did that
+- [37:23.920] and people would have been hurt
+- [37:28.280] is that related to the Hun bid situation
+- [37:31.040] which one the one on unlawful
+- [37:33.440] disclosures by federal officials is that
+- [37:36.160] no I think it's just more General than
+- [37:38.040] that it's not Hunter
+- [37:40.319] Biden
+- [37:41.960] um I was I was
+- [37:44.920] surprised that President
+- [37:47.960] Biden would go and paron his whole
+- [37:52.160] family because that makes him look very
+- [37:53.680] guilty you know I could have pardoned my
+- [37:55.359] family I could have pardoned myself my
+- [37:57.920] family I said if I do that it's going to
+- [38:00.040] make me look very guilty I don't think
+- [38:01.440] I'd be sitting here frankly if I did
+- [38:03.240] that I don't think I'd be sitting here
+- [38:04.599] right now because I would have um would
+- [38:08.480] have shown that you're
+- [38:10.240] guilty but by pardoning his brother or
+- [38:12.880] brothers by pardoning all of those
+- [38:15.119] people that he pardon by pardoning
+- [38:16.800] pardoning j6 the unselect committee they
+- [38:20.599] destroyed all of the documents they
+- [38:24.200] deleted all of the information there's
+- [38:26.720] no information
+- [38:28.560] and a lot of the information pertains to
+- [38:30.480] Nancy Pelosi because she was given 100 I
+- [38:34.160] mean you know this it's on tape with her
+- [38:37.880] daughter Nancy Pelosi was responsible
+- [38:40.680] for not taking advantage of uh 10,000
+- [38:44.560] soldiers or 1,000 you wouldn't have need
+- [38:46.920] you could have used 400 it was a
+- [38:49.440] relatively small crowd it wasn't the
+- [38:51.880] crowd that was at the mall it was a
+- [38:53.319] small crowd so uh I was I I was a little
+- [38:58.440] bit surprised that he did it CU it makes
+- [39:00.640] him look guilty I mean he's going to
+- [39:02.240] have to live with that now with that
+- [39:03.440] being said it's unbelievable precedent
+- [39:07.560] it creates for a
+- [39:09.400] president but the the president is
+- [39:12.920] unbelievable now maybe every president
+- [39:14.960] that leaves office they're going to
+- [39:16.119] Pardon every pres they ever met so they
+- [39:18.760] don't have some lunatic like deranged
+- [39:20.960] Jack Smith who's a total lunatic by the
+- [39:24.240] way not a smart guy either he's a
+- [39:26.359] dummy but we beat the hell out of
+- [39:29.200] them and I helped my reputation do you
+- [39:32.319] think you'd have to do the same thing at
+- [39:33.800] the end of this well I guess now I have
+- [39:36.119] presedent to do it I don't I wouldn't
+- [39:38.319] want to do that no I think it makes you
+- [39:39.960] look very guilty I think it makes Biden
+- [39:42.599] look very bad very weak and very
+- [39:45.839] guilty
+- [39:47.400] and I mean he part he pardoned everybody
+- [39:50.680] how about this j6 committee how do you
+- [39:52.599] why is he pardoning them the reason is
+- [39:55.960] because if you delete and
+- [39:59.079] Destroy documentation everything they
+- [40:02.560] have nothing because they were guilty as
+- [40:05.560] hell they rigged it it was a Rigg deal
+- [40:09.520] and when you do that they look very bad
+- [40:12.359] but um I was a little surprised he did
+- [40:15.359] it Liz Janie I mean she's a
+- [40:17.920] lunatic and uh she lost by the greatest
+- [40:21.359] margin in the history of a politician
+- [40:24.520] running for congress like 40 points
+- [40:28.200] the reason it was the greatest is
+- [40:30.000] because anybody losing that badly is
+- [40:31.760] going to drop out but she's a nut job
+- [40:34.599] she doesn't drop out you know she just
+- [40:36.200] keeps chugging forward and she lost by
+- [40:38.680] almost 40 points that's the biggest
+- [40:40.720] number anybody's ever lost by but why
+- [40:44.359] would Biden do that he pardoned her and
+- [40:47.760] pardoned everybody the reason is that
+- [40:50.160] they destroy documents and if you're
+- [40:53.200] even in a civil case which this wouldn't
+- [40:56.000] be
+- [40:57.599] I mean people go to jail for a long time
+- [40:59.400] for doing that what's this one that's
+- [41:02.520] unleashing American Energy sir relates
+- [41:05.400] to easing permitting processes and other
+- [41:07.240] regulatory systems to ensure that we can
+- [41:09.760] produce uh energy efficiently to drive
+- [41:11.720] the American economy forward president
+- [41:14.200] Trump looking around the office we
+- [41:16.200] noticed some changes from the way that
+- [41:17.880] Biden had it set up can you confirm that
+- [41:20.560] you have added back we
+- [41:24.839] di I think this we
+- [41:28.720] first of all I just got here so my
+- [41:30.960] people came in they have extraordinary
+- [41:33.240] decorator sents right let we just see
+- [41:35.839] some of the pictures that's a good one I
+- [41:38.520] could live with him I could live with
+- [41:41.160] George Washington I can tell you I can
+- [41:43.839] live with Thomas Jefferson I can live
+- [41:45.560] with most of them they took a very safe
+- [41:48.359] route they didn't have they don't have
+- [41:50.240] any bad ones up there withdrawing from
+- [41:52.680] is this withdrawing from the World
+- [41:54.240] Health Organization sir o that's a big
+- [41:56.720] one
+- [41:58.319] so we paid $500 million to World Health
+- [42:01.720] when I was here and I terminated it
+- [42:04.480] China with 1.4 billion people we have
+- [42:08.800] 350 depend we have nobody knows what we
+- [42:11.280] have because so many people came in
+- [42:12.720] illegally but let's say we have
+- [42:16.200] 325 they had 1.4 billion they were
+- [42:19.760] paying 39 million we were paying 500
+- [42:22.559] million seemed a little unfair to me so
+- [42:26.359] that wasn't the reason but I dropped out
+- [42:28.920] they offered me to come back for 39
+- [42:31.280] million in theory it should be less than
+- [42:33.000] that but you
+- [42:34.200] know uh and when Biden came back they
+- [42:37.800] came back for 500 million he knew that
+- [42:40.480] you could have come back for 39 million
+- [42:44.119] they wanted us back so badly so we'll
+- [42:46.119] see what
+- [42:47.480] happens Mr President pretty sad though
+- [42:49.800] think of it China pays 39 million and we
+- [42:54.040] pay 500 million and China's
+- [42:57.800] a bigger country Mr President you spoke
+- [43:00.440] about inflation today in your remarks
+- [43:03.119] what actions are you taking today that
+- [43:05.599] will have a direct impact for Americans
+- [43:08.160] on their everyday cost to bring the cost
+- [43:10.599] down the biggest thing and factor for
+- [43:13.160] inflation is energy they screwed up my
+- [43:16.359] energy
+- [43:17.559] policy and then they went back to it you
+- [43:19.960] know they they heard it really badly and
+- [43:23.000] then they went back to it and they
+- [43:24.240] started drilling more but by that time
+- [43:25.920] it was too late
+- [43:27.680] um many of these things that we're
+- [43:29.520] signing and that Doug beram is going to
+- [43:32.160] be signing and Chris Wright who's
+- [43:33.920] phenomenal you know energy Department of
+- [43:36.400] energy we're going to be taking a lot
+- [43:38.880] we're going to make a lot of money from
+- [43:40.160] energy we have a we are more than
+- [43:41.880] anybody else we're going to make a lot
+- [43:43.040] of money from energy we're going to make
+- [43:44.319] a lot of money from tariffs you know
+- [43:46.119] European Union charges us they have a
+- [43:48.160] vat tax of 20% but it's really much
+- [43:51.319] higher than that and that's the
+- [43:53.720] equivalent almost the equivalent of a
+- [43:55.880] tariff and and uh they're tough they're
+- [44:00.119] very tough they don't take our cars they
+- [44:03.200] don't take our farm product they don't
+- [44:04.880] take almost anything and yet we take
+- [44:08.000] their cars we take their Farm product we
+- [44:11.119] take a lot from them so you know we have
+- [44:12.920] like a $300 billion deficit with the
+- [44:15.200] European Union so we'll straighten that
+- [44:17.440] out with either tariffs or they have to
+- [44:19.119] buy our oil the one thing they can do
+- [44:21.640] our oil and gas the one thing they can
+- [44:23.839] do to catch up quickly by our oil and
+- [44:26.680] gas
+- [44:27.760] will you travel and they should do that
+- [44:29.079] will you travel to China this year yeah
+- [44:31.119] it could be you I've had the
+- [44:36.079] invite talking about the European Union
+- [44:38.640] and the the tariffs like what do you
+- [44:40.800] mean when you say that a European Union
+- [44:43.000] think he's part of
+- [44:45.040] bricks that it what bricks he said brick
+- [44:48.119] Oh bricks no I was talking about bricks
+- [44:49.720] bricks is six nations I think it's Seven
+- [44:52.359] Nations and they were looking to do a
+- [44:54.680] number in the United States and if they
+- [44:56.559] do that
+- [44:59.079] they won't be happy about what's going
+- [45:00.520] to happen to them are you still
+- [45:03.079] considering a universal tari Mr
+- [45:05.280] President of all countries I may yeah
+- [45:07.359] but we're not ready for that yet we may
+- [45:09.720] we may put it rrap it Mr because
+- [45:13.440] essentially all countries take advantage
+- [45:15.440] of the
+- [45:16.640] us we don't we don't make any good deals
+- [45:19.079] in the US it's amazing in a way that we
+- [45:22.119] exist we don't make good deals we don't
+- [45:24.119] have any good
+- [45:25.200] deals we have a we have a deficit with
+- [45:27.920] almost not all there are a couple I
+- [45:29.640] won't tell you their names because I
+- [45:31.839] don't want them to find out about it
+- [45:33.359] because they'll feel stupid but there
+- [45:35.119] are a couple of countries that um there
+- [45:38.079] are a couple of countries that actually
+- [45:41.200] don't make money with us but I don't
+- [45:44.119] want to let you know because they'll
+- [45:46.240] immediately change that but we're going
+- [45:48.720] to we're going to do I tell you we have
+- [45:51.599] our country has an amazing economic
+- [45:53.839] future everybody believe in that what
+- [45:55.720] kind of universal did well You' put a
+- [45:58.359] universal tariff on anybody doing
+- [46:00.599] business in the United States because
+- [46:02.920] they're coming in and they're stealing
+- [46:04.160] our wealth they're stealing our jobs
+- [46:05.800] they're stealing our companies they're
+- [46:07.440] hurting our companies so you put a you
+- [46:11.119] put a tariff on to keep them from doing
+- [46:14.240] ITR your a whole buch of billion
+- [46:22.319] today well he was he had a lot of guys
+- [46:26.359] and then they found out that he didn't
+- [46:27.960] know what the hell he was talking about
+- [46:29.319] and I think they deserted him they
+- [46:32.079] deserted him those same
+- [46:35.000] guys look I don't make pretense to Smart
+- [46:37.760] guys but there are a lot of smart people
+- [46:39.760] around but they did desert him they were
+- [46:41.280] all with him every one of them now
+- [46:42.920] they're all with me I don't know it's
+- [46:45.280] not going to get anything from me I
+- [46:46.720] don't need money but uh I do want the
+- [46:49.720] nation to do well and there smart people
+- [46:51.640] and they have you know they create a lot
+- [46:53.400] of
+- [46:54.280] jobs and if they don't do it China's
+- [46:56.400] going to do you know what they've done
+- [46:58.599] is they've taken Industries and they've
+- [47:01.200] taken it away they outsmarted
+- [47:04.359] China and you know we sort of like that
+- [47:07.559] it's okay they've done a great job a lot
+- [47:09.559] of them it's not all of them protecting
+- [47:11.280] women from radical gender
+- [47:13.359] ideologies Mr President going back to
+- [47:16.000] the World Health Organization you were
+- [47:17.800] the president during Co don't you see
+- [47:20.559] the importance of organization like that
+- [47:22.359] to coordinate a Global Response in sure
+- [47:25.680] I do but not when you're being ripped
+- [47:27.839] off like we are by the World Health
+- [47:30.240] World Health ripped us
+- [47:32.599] off everybody rips off the United States
+- [47:35.839] and that's it it's not going to happen
+- [47:38.200] anymore thank you very much everybody
+- [47:40.359] all right guys let's go

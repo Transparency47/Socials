@@ -1,0 +1,199 @@
+<!-- source: https://www.youtube.com/watch?v=OoJz89reApM -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: OoJz89reApM -->
+<!-- date_published: 2025-06-12T23:30:40+00:00 -->
+<!-- date_accessed: 2026-06-02T02:48:31.405943+00:00 -->
+
+# Transcript: President Trump and the First Lady Participate in the Congressional Picnic
+
+- [00:02.090] [Music]
+- [00:08.320] Ladies and gentlemen, the President of
+- [00:10.480] the United States and First Lady Melania
+- [00:13.040] Trump.
+- [00:33.040] Well, thank you very much. This is a
+- [00:34.800] beautiful day. It's a little warm, but
+- [00:36.559] that's the way we like it. And this is a
+- [00:40.000] beautiful Republicans and beautiful
+- [00:42.160] Democrats. We have them both. And it's
+- [00:44.800] nice to mention them in the same breath,
+- [00:46.879] frankly. And I'm delighted to welcome
+- [00:49.120] all of the members of the House and
+- [00:50.879] Senate and your beautiful families. a
+- [00:53.440] great honor to have you at the White
+- [00:55.120] House and to the annual White House
+- [00:58.160] congressional picnic. Long time it's
+- [01:00.559] been going on. I want to thank our
+- [01:02.960] magnificent first lady for putting
+- [01:05.040] together this wonderful evening.
+- [01:07.680] [Applause]
+- [01:12.960] There are too many friends, frankly, to
+- [01:15.040] mention all of them. We have so many of
+- [01:17.520] our congressmen and we have some
+- [01:19.520] senators in here. I have to tell you,
+- [01:21.200] they snuck in. But that's okay. They
+- [01:24.640] they wanted to be here. But I just want
+- [01:27.439] to thank all of you. And I want to in
+- [01:30.240] particular thank Speaker Mike Johnson.
+- [01:32.640] He's doing an incredible job.
+- [01:35.510] [Applause]
+- [01:35.740] [Music]
+- [01:38.079] And all of our other colleagues on both
+- [01:40.400] sides of the aisle for your service to
+- [01:42.159] America. That's what it is. It's service
+- [01:43.920] to America. For more than half a
+- [01:46.320] century, the White House congressional
+- [01:48.560] picnic has served as a special night for
+- [01:51.439] Republicans and Democrats to put
+- [01:54.000] politics aside, if that's possible. Is
+- [01:56.159] that possible? I think so. Right. For at
+- [01:58.159] least about an hour and come together
+- [02:01.439] with our families and give thanks and
+- [02:03.520] privilege to all of those people. And I
+- [02:06.719] want to really in particular thank all
+- [02:08.720] of the people that so beautifully serve
+- [02:11.120] our country. And that's what exactly
+- [02:12.800] what you're doing. Everyone here works
+- [02:15.040] incredibly hard and your loved ones uh
+- [02:18.080] they make just these tremendous
+- [02:20.319] sacrifices, enormous sacrifices,
+- [02:22.800] frankly. And I want to thank you all.
+- [02:24.959] The exceptional dedication to our
+- [02:27.280] country is unparalleled.
+- [02:29.599] We're gathered at a truly exciting time
+- [02:31.760] for our nation. The USA is now the
+- [02:34.319] hottest country in the world. They just
+- [02:36.319] came back from the Middle East and the
+- [02:38.560] king of Saudi Arabia and Qatar. We have
+- [02:42.239] a great leader of Qatar as you probably
+- [02:44.800] know and UAE all leaders great leaders
+- [02:48.560] frankly and they all said the same thing
+- [02:50.480] they started off they said America is
+- [02:53.120] the hottest country anywhere in the
+- [02:54.959] world and it is and if you think about
+- [02:57.120] it seven or eight months ago we were
+- [02:58.959] cold as ice we weren't hot and we were a
+- [03:02.000] laughingstock and now we're hot as can
+- [03:04.560] be they all respect us we actually came
+- [03:06.959] home you'll be happy to hear $5.1
+- [03:08.959] trillion we brought back with us from
+- [03:11.519] the Middle East. So, that's a
+- [03:14.159] that's an all-time record by far. But
+- [03:17.280] the USA is now uh really on a path
+- [03:20.239] that's I believe unparalleled. Trillions
+- [03:22.800] of dollars of investment are pouring in.
+- [03:25.280] Incomes are soaring. Grocery prices are
+- [03:27.519] way down. Gasoline prices are way down.
+- [03:30.720] Energy prices are down. Mortgage rates
+- [03:32.959] are down. And inflation is down. Other
+- [03:35.680] than that, how are you doing? Right.
+- [03:37.840] They've been talking to me. Do you think
+- [03:39.120] you can get prices down? We did it every
+- [03:42.159] single one of them. And uh last month we
+- [03:45.440] cut the trade deficit. You saw that two
+- [03:47.360] days ago was just announced. The trade
+- [03:49.680] deficit was cut in exactly half. And
+- [03:52.879] that was all done in a period of four
+- [03:54.640] months.
+- [03:56.879] So we've reduced the number of illegal
+- [03:58.879] border crosses. And you know that
+- [04:00.879] because you look at the numbers and
+- [04:02.799] 99.999%
+- [04:06.159] last month it was three people got
+- [04:08.000] across. Three. So, I did a good job in
+- [04:11.040] 2016, but we did an even better job
+- [04:14.400] right now. And uh it's been amazing. We
+- [04:17.840] have to get a little cooperation for
+- [04:20.079] some people, but a lot of bad people
+- [04:22.320] were led into our country. We're getting
+- [04:23.919] them out. And we're getting them out
+- [04:25.280] fast. And I think you know that they
+- [04:27.520] came from jails, prisons, they came from
+- [04:30.080] mental institutions, gang members. We're
+- [04:33.120] getting them out very fast. You're going
+- [04:34.720] to be very happy when you see the
+- [04:36.400] results. the recent months, we've even
+- [04:39.520] come together as a bipartisan basis and
+- [04:42.479] on a bipartisan basis with the help of
+- [04:45.680] our great first lady to pass the Take It
+- [04:47.840] Down Act protecting our youth from
+- [04:50.479] exploitation. And I want to thank you,
+- [04:52.560] Melania, and thank you everybody out
+- [04:54.400] there.
+- [04:57.600] When I saw that bill passed bipartisan,
+- [04:59.759] I said, you know, I think you're going
+- [05:00.880] to take my job, Melania. You'll get a
+- [05:02.720] little bip we don't get so much
+- [05:04.320] bipartisan. So, she didn't know why. She
+- [05:07.120] said, "Why is that?" I said, "There is
+- [05:09.199] no reason for it." But you did it.
+- [05:11.520] Congratulations. That's a great job.
+- [05:15.759] But as a result of these many other
+- [05:18.000] historic wins for the American people, a
+- [05:20.800] majority of Americans now believe our
+- [05:22.880] country is on the right track. For the
+- [05:25.199] first time in over 28 years, according
+- [05:27.520] to a very prestigious poll, 28 years, it
+- [05:30.800] has not been. And this is the first time
+- [05:33.199] in 28 years, and it'll only get better
+- [05:35.840] when the Senate passes the one big,
+- [05:38.639] beautiful bill, and Congress sends it to
+- [05:40.800] my desk on the 4th of July. We're
+- [05:43.120] shooting for the 4th of July. I think
+- [05:45.840] it's going to be the most important
+- [05:47.280] piece of legislation that our country
+- [05:49.199] has passed in many, many years. On
+- [05:51.680] Saturday, we're coming together to
+- [05:53.360] celebrate the 250th anniversary of the
+- [05:56.240] United States Army with a grand parade,
+- [05:59.120] a parade, a military parade that I don't
+- [06:01.919] think we've ever seen the likes of what
+- [06:03.520] you're going to see. I hope the
+- [06:05.199] weather's okay. But actually, if it's
+- [06:06.800] not, that brings you good luck. That's
+- [06:08.960] okay, too. It doesn't matter. It doesn't
+- [06:10.720] affect the tanks at all. It doesn't
+- [06:12.319] affect the soldiers. They're used to it.
+- [06:14.800] They're tough, smart. Next year when
+- [06:17.520] we're all together again, we will be
+- [06:19.680] celebrating the 250th anniversary of the
+- [06:23.600] American founding. We founded our
+- [06:26.240] country. They founded our our great
+- [06:28.800] people, our great past founders have
+- [06:32.160] done a fantastic job and we'll be
+- [06:34.080] cheering on Team USA in the World Cup.
+- [06:36.880] So, we have the World Cup coming, we
+- [06:39.280] have the Olympics coming, and maybe most
+- [06:41.840] importantly, we're going to celebrate a
+- [06:43.600] whole year 250th anniversary. you know,
+- [06:46.800] uh, the army is exactly one year older
+- [06:49.039] than the country. So, that was
+- [06:51.120] interesting. We did a speech yesterday
+- [06:53.120] at Fort Bragg and it was really
+- [06:56.000] something the display that they put on.
+- [06:58.000] I truly believe the great times are
+- [06:59.759] ahead for America. So, once again, I
+- [07:02.479] want to thank all of you. I want to
+- [07:04.080] thank every single person in this group,
+- [07:06.639] Democrat, Republican, or a couple of
+- [07:09.199] independents out there. They say they're
+- [07:11.520] independent, but they're not that
+- [07:12.880] independent. But I wanna I want to thank
+- [07:15.680] everybody in the audience for being very
+- [07:18.400] special. I know every one of you and
+- [07:21.120] some by reputation and some by just
+- [07:23.280] knowing them and you're fantastic people
+- [07:26.000] and you have great families and without
+- [07:27.919] the families it wouldn't work for you at
+- [07:29.680] all. So I just want to thank you very
+- [07:31.680] much for being here. Have a great night.
+- [07:33.360] We're going to have plenty of fun. Have
+- [07:35.280] a really fantastic night and nobody's
+- [07:38.080] going to be cold tonight. You're going
+- [07:39.440] to be very warm tonight because it's a
+- [07:41.520] little on the hot side. But just enjoy
+- [07:43.280] yourself and again really happy birthday
+- [07:45.840] to a truly great country. Thank you very
+- [07:48.960] much. Thank you. Thank you.
+- [07:55.460] [Music]
+- [08:17.280] Oh my god.

@@ -1,0 +1,220 @@
+<!-- source: https://www.youtube.com/watch?v=UEdSH6rku2g -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: UEdSH6rku2g -->
+<!-- date_published: 2025-09-21T03:18:14+00:00 -->
+<!-- date_accessed: 2026-06-02T01:15:07.031301+00:00 -->
+
+# Transcript: Cabinet Members Remember Charlie Kirk
+
+- [00:00.719] Charlie Kirk was a great Christian man,
+- [00:04.720] an incredible patriot, a visionary
+- [00:07.120] leader, and a kind human being.
+- [00:14.400] He started out as the leader of a
+- [00:16.400] political movement
+- [00:18.320] uh and he ended as the leader of a
+- [00:21.760] Christian movement, a revival. I think
+- [00:25.680] through eternity be remembered as our
+- [00:27.680] generation's maybe greatest evangelist.
+- [00:30.800] >> I was in touch with Charlie just about
+- [00:32.880] every single day going back many many
+- [00:35.440] years. The last time heard from him was
+- [00:38.079] the day before he was assassinated. The
+- [00:40.239] most fitting description I've heard of
+- [00:41.760] Charlie Kirk over the course of these
+- [00:43.920] last several days has been the
+- [00:46.160] description of calling him one of one.
+- [00:48.239] There was only one Charlie Kirk.
+- [00:50.160] >> I met him during the transition. I was
+- [00:52.559] actually quite nervous. You know, you
+- [00:54.559] don't you don't I don't get starruck
+- [00:56.079] very often, but he was one that I I knew
+- [00:58.640] about and and the impact that he had.
+- [01:00.559] And so when I met him, he was sitting at
+- [01:02.559] this he's so tall and he was at a little
+- [01:04.640] small desk and I was like, I don't think
+- [01:06.159] that desk quite fits you.
+- [01:07.760] >> Big giant tall guy uh walks in, you
+- [01:11.520] know, full of energy. Uh just enthusiasm
+- [01:14.799] and passion.
+- [01:16.880] The first time I met Charlie was in July
+- [01:19.840] of 2021 and I did his podcast and I
+- [01:22.560] think both of us approached each other
+- [01:24.880] with some trepidation because we came
+- [01:27.360] from such different
+- [01:30.560] uh let's say uh constellations and
+- [01:33.520] presumptions
+- [01:35.360] and world views. Um but after that after
+- [01:38.960] my first meeting with Charlie we became
+- [01:41.759] fast friends. I knew Charlie from almost
+- [01:44.640] the beginning of his efforts and he
+- [01:48.960] said, "We are going to do something with
+- [01:51.360] young people that no one says can be
+- [01:53.680] done." No matter where the political
+- [01:55.920] curve was, Republicans in, Republicans
+- [01:58.320] out, Trump in, Trump out, Charlie was
+- [02:01.200] always building.
+- [02:06.080] [Music]
+- [02:08.879] I was really struck by the massive
+- [02:12.319] crowds of people who would turn out to
+- [02:15.120] these uh campus events for him, to talk
+- [02:17.680] to him, to have the chance to see him in
+- [02:20.000] action. Uh the energy was electric and
+- [02:23.280] palpable and it was just so cool to be
+- [02:26.080] in an environment where people were
+- [02:28.480] gathering together uh really to
+- [02:30.879] celebrate free speech uh and to engage
+- [02:34.000] in that dialogue and that debate that
+- [02:36.800] really Charlie did uniquely period but
+- [02:40.239] also Charlie certainly did better than
+- [02:42.000] anyone else. Charlie was showing up
+- [02:44.800] challenging other people to come and to
+- [02:47.920] debate him on ideas uh to be able to
+- [02:50.720] engage substantively.
+- [02:52.400] >> His mission was to exercise our First
+- [02:55.760] Amendment rights, celebrate and defend
+- [02:57.920] free speech even if it's speech that you
+- [03:00.800] don't like or that you disagree with.
+- [03:03.280] I'd tell Charlie, "I'm too old to
+- [03:05.519] participate in Turning Point." And he
+- [03:07.280] would say, "No, you're not. You're there
+- [03:09.200] to mentor young women." and he cared so
+- [03:12.480] much about everyone mentoring younger
+- [03:16.080] people in the next generation.
+- [03:18.480] >> Charlie was an institution, right? And
+- [03:20.959] we all know who he is and he has a
+- [03:22.560] meaning to people my age um and older a
+- [03:26.239] little bit younger.
+- [03:27.280] >> What was key about Charlie was that he
+- [03:30.480] was a really good judge of character and
+- [03:32.879] a really good judge of people.
+- [03:34.560] >> I want to be remembered for for courage
+- [03:36.799] for my faith. That that would be the
+- [03:39.040] most important thing. most important
+- [03:40.239] thing is my faith in my life.
+- [03:41.519] >> The work he was doing really reminded me
+- [03:43.840] of Matthew uh chapter 9 when they say
+- [03:47.200] that the harvest is plentiful but the
+- [03:49.280] workers are few. But Charlie was in the
+- [03:52.159] vineyard every day making sure that the
+- [03:55.280] workers were plentiful to meet the
+- [03:57.519] moment.
+- [03:58.400] >> But you saw this unique transition where
+- [04:01.519] he started to talk about his faith,
+- [04:03.280] talked about God.
+- [04:04.879] >> Charlie did get bolder and bolder in his
+- [04:06.640] faith over time. uh frankly encouraging
+- [04:10.080] a lot of others including myself to do
+- [04:12.319] the same. And I had a chance to talk to
+- [04:14.640] him about this a little bit o over the
+- [04:16.160] years. You look at the problems, the
+- [04:18.079] societal problems, the cultural problems
+- [04:20.479] and trying to fix them simply at the
+- [04:23.120] political level won't get it done.
+- [04:25.440] >> If you don't have faith, if you don't
+- [04:27.360] have relationship with God, if you don't
+- [04:29.440] start a family, the true things that
+- [04:31.040] give you joy, you don't have anything in
+- [04:33.440] life. Charlie exemplified what it meant
+- [04:36.240] to have a personal relationship with
+- [04:38.160] Christ. He exemplified what it meant to
+- [04:41.040] live life to the fullest. All the
+- [04:43.520] conversations about politics are
+- [04:45.919] ultimately futile if we don't know that
+- [04:49.040] there is a God and it's not us. When you
+- [04:51.360] understand that the the things of of the
+- [04:53.600] political world which are important,
+- [04:55.680] they all become secondary because you
+- [04:58.240] realize the battlefield is not of this
+- [05:00.080] world. It's not a political battlefield.
+- [05:01.680] It's a spiritual battlefield. Tax rates
+- [05:04.080] are great and limited government's
+- [05:06.800] wonderful, but if you want to affect the
+- [05:09.440] human heart, if you want to affect the
+- [05:11.440] human life, again, that's not politics.
+- [05:14.479] This is humanity. Andrew Breitbart
+- [05:16.560] famously said, "Politics is downstream
+- [05:18.639] of culture." And if you want to add to
+- [05:21.039] that, um maybe Charlie Kirk taught us
+- [05:23.280] that culture is downstream of our faith.
+- [05:26.080] And so, yes, culture is more important
+- [05:28.240] than politics, but faith is what defines
+- [05:31.600] uh what kind of culture we live in. And
+- [05:33.039] Charlie understood that and he lived it.
+- [05:36.000] >> My current belief, and I think it's the
+- [05:38.400] right way of looking, is I'm far more
+- [05:40.080] interested in what God wants of me than
+- [05:42.400] what I want from God.
+- [05:43.759] >> One word to describe Charlie Kirk, I
+- [05:46.160] look at him and think how powerful he
+- [05:49.039] is. So, if I could think of one word,
+- [05:52.240] um, I think it's powerful.
+- [05:54.160] >> Ethical, faithful, passion. Charlie
+- [05:58.160] lived with passion.
+- [05:59.120] >> To ascribe one word for Charlie, it
+- [06:01.280] would be he was a force. Personal.
+- [06:05.039] >> He's a man of courage.
+- [06:06.479] >> He was resilient in his faith. He was
+- [06:08.479] resilient in his conviction. He was
+- [06:10.479] resilient in his knowledge of the word
+- [06:12.319] of God, his uh love for the country, his
+- [06:15.680] knowledge of being a patriot. Charlie
+- [06:18.160] was a a man of honor, of character,
+- [06:22.880] love for God, and of course, love for
+- [06:26.800] his family. And that's what I believe
+- [06:29.039] he'll always be known for.
+- [06:35.680] >> What a Charlie I would say on this side
+- [06:37.759] of eternity. Thank you for answering the
+- [06:40.319] call. Uh and as a believer, I will see
+- [06:43.280] him again. I think for for many of us in
+- [06:45.440] this country, we'll know we'll see him
+- [06:46.720] again. But I want to say thank you.
+- [06:48.560] Thank you for what you've done for so
+- [06:50.160] many of our young people.
+- [06:51.440] >> Well, first of all, I would just express
+- [06:53.120] enormous gratitude.
+- [06:54.800] >> What you allowed God to unleash in our
+- [06:56.960] country. You were a really, really
+- [06:58.880] important vessel. You ran hard.
+- [07:02.479] Uh, and it's hard to even talk about his
+- [07:06.080] name in the past tense still. It's
+- [07:08.160] difficult to articulate the depth of
+- [07:10.080] gratitude that we should all hold for
+- [07:12.319] for Charlie Kirk. Charlie would not want
+- [07:15.360] anyone to be silenced by that bullet
+- [07:20.160] that stole him from us. I feel like uh
+- [07:24.400] the message that that the world is
+- [07:26.560] sending to Charlie Kirk right now uh is
+- [07:29.360] that his his sacrifice certainly wasn't
+- [07:32.400] for not. I have the greatest respect for
+- [07:35.039] you, Charlie. You lived your dreams. You
+- [07:38.880] lived your morals. You lived your
+- [07:41.039] passion. You lived your objectives. You
+- [07:43.759] didn't hold anything back. You left
+- [07:45.840] nothing on the table. You brought it
+- [07:48.560] all. You always brought it all and you
+- [07:51.039] always brought it out there. And uh and
+- [07:54.000] I love you for it.
+- [07:56.080] >> Thank you for the inspiration, Charlie.
+- [07:58.240] Thank you for making yourself a
+- [08:00.240] template, a paradigm
+- [08:02.879] of strength and moral courage. And
+- [08:05.120] you've given us an example to follow.
+- [08:08.319] >> I would say thank you. Thank you. Thank
+- [08:10.080] you for being a great American. Thank
+- [08:11.759] you for your service. Thank you for your
+- [08:13.440] faith. Thank you for being an example of
+- [08:15.680] how you treat and talk about your own
+- [08:17.520] wife, how you talk about your own kids.
+- [08:20.400] Um, I think we are in need of great
+- [08:22.639] examples in America. And Charlie, you
+- [08:24.560] have been a great example.
+- [08:26.240] >> We know that Charlie is now in the arms
+- [08:28.960] and the loving embrace
+- [08:31.120] of Jesus Christ who he dedicated his
+- [08:34.479] life to. And in that knowledge,
+- [08:38.159] we too can rest in God's love.
+- [08:44.399] He started a group called Turning Point.
+- [08:46.640] And it turns out he was the turning
+- [08:48.080] point. And God had a higher purpose, an
+- [08:50.640] even greater purpose.

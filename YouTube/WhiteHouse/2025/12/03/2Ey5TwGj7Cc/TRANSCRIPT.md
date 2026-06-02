@@ -1,0 +1,1417 @@
+<!-- source: https://www.youtube.com/watch?v=2Ey5TwGj7Cc -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 2Ey5TwGj7Cc -->
+<!-- date_published: 2025-12-03T21:30:24+00:00 -->
+<!-- date_accessed: 2026-06-02T02:40:50.318138+00:00 -->
+
+# Transcript: President Trump Makes an Announcement, Dec. 3, 2025
+
+- [00:02.330] The President: Hello everybody. Thank you very much.
+- [00:04.620] You all set?
+- [00:08.530] Well, we're talking about CAFE standards,
+- [00:10.510] a very big deal, very important.
+- [00:12.350] Today, my administration has taken historic action
+- [00:14.880] to lower costs for American consumers,
+- [00:17.600] protect American auto jobs
+- [00:19.280] and make buying a car much more affordable
+- [00:22.110] for countless American families and also safer.
+- [00:25.740] We're officially terminating Joe Biden's ridiculously
+- [00:28.530] burdensome horrible, actually, CAFE standards
+- [00:31.730] that imposed expensive restrictions
+- [00:33.940] and all sorts of problems.
+- [00:36.730] It gave all sorts of problems to automakers.
+- [00:40.070] And we're not only talking about here,
+- [00:41.360] we're talking about outside of our country
+- [00:43.700] because nobody could do it.
+- [00:44.950] Nobody wanted to do it and it was ridiculous, very expensive.
+- [00:49.560] It put tremendous upward pressure on car prices.
+- [00:53.590] Combined with the insane electric vehicle mandate,
+- [00:56.910] Biden's burdensome regulations helped cause the price of cars
+- [01:00.270] to soar more than 25 percent.
+- [01:02.860] And in one case, they went up 18 percent in one year.
+- [01:06.750] Today, we're taking one more step to kill the green new scam.
+- [01:09.880] It's part of the greatest scam probably well,
+- [01:12.680] other than Russia, Russia, Russia,
+- [01:14.110] and a few others I could name.
+- [01:16.080] The greatest scam in American history, the green new scam.
+- [01:19.680] And it's a quest to end the gasoline powered car.
+- [01:23.280] This is what they wanted to do,
+- [01:24.650] even though we have more gasoline
+- [01:26.120] than any other country by far.
+- [01:28.260] And people want the gasoline car.
+- [01:29.660] They want everything. They want electric.
+- [01:31.530] They want to have lots of alternatives,
+- [01:34.580] but they do want the gasoline car.
+- [01:36.530] Right now, it's leading away by a lot.
+- [01:41.680] The car business is a very interesting business,
+- [01:43.760] but we want to keep it that way.
+- [01:45.710] I want to thank Transportation Secretary Sean Duffy,
+- [01:49.310] Deputy Transportation Secretary Steven Bradbury,
+- [01:53.340] as well as CEO of Ford, Jim Farley.
+- [01:56.120] Jim, where is Jim?
+- [01:57.320] Let's see. Hi, Jim.
+- [01:58.810] Congratulations. You're doing a great job.
+- [02:01.570] CEO of Stellantis, Antonio Filosa.
+- [02:05.940] Thank you very much, Antonio.
+- [02:07.180] Antonio Filosa: Thank you very much.
+- [02:08.690] The President: Chairman of the National Automobile
+- [02:11.030] Dealers Association, Tom Castriota.
+- [02:14.610] Thank you very much, Tom. Great to have you.
+- [02:16.260] And manager of General Motors, Orion plant, John Urbanic.
+- [02:21.450] John Urbanic: Yes, sir. Thank you, sir.
+- [02:22.940] The President: Great to have you guys here.
+- [02:24.320] And you're going to say a few words in a minute
+- [02:26.390] about how ridiculous this was, but we've just freed you up,
+- [02:30.530] so you're going to have a good day,
+- [02:32.300] and have a good number of years.
+- [02:33.630] Thanks as well to Senator Shelley Moore Capito,
+- [02:36.590] Ted Cruz, Kevin Cramer,
+- [02:38.200] Marsha Blackburn, Eric Schmidt and Bernie Mareno,
+- [02:41.960] as well as representatives Sam Graves, Vern Buchanan,
+- [02:45.800] Mike Kelly, Roger Williams, Lisa McLean and Troy Balderson.
+- [02:50.190] All great people. These are great people.
+- [02:52.060] And I know there's a lot of support
+- [02:54.230] along beyond the people that are here.
+- [02:55.900] We had tremendous support on this.
+- [02:58.290] From day one I've been taking action
+- [03:00.060] to make buying a car more affordable.
+- [03:01.760] I signed an executive order to end the unfair,
+- [03:04.670] expensive electric vehicle mandate.
+- [03:07.480] As you know, we had to have an electric car
+- [03:10.050] within a very short period of time,
+- [03:11.850] even though there was no way of charging them
+- [03:13.800] and lots of other things.
+- [03:15.050] It would have cost $5 trillion to build the charging plants.
+- [03:19.680] And as you know, in certain parts of the Midwest,
+- [03:22.320] they spent to build nine chargers,
+- [03:25.460] they spent $8 billion,
+- [03:27.900] so that wasn't working out too well.
+- [03:29.510] That was done before me, by the way.
+- [03:30.930] I wouldn't have let it go forward.
+- [03:33.440] We're canceling the EPAs observed,
+- [03:35.540] Tailpipe Emission Standards,
+- [03:37.150] one of the most important things that --
+- [03:39.680] I've never had a group of people come to me more powerfully
+- [03:46.120] and really just devastated that they had to do it.
+- [03:48.830] It was killing them, than the automobile manufacturers,
+- [03:52.400] the Tailpipe Emission Standards.
+- [03:55.280] And I can tell you, your people at Ford
+- [03:57.000] were coming to me all the time and they were saying like, "
+- [04:00.360] Please, it doesn't do anything and it's killing us.
+- [04:04.790] And it's driving the cost through the roof."
+- [04:06.480] And we revoked Biden's emissions waiver for California
+- [04:09.430] so that California communists
+- [04:12.920] could not regulate the automobile industry
+- [04:15.360] and ruin the entire nation of automobiles.
+- [04:18.410] And they were doing that too.
+- [04:20.290] But we have that now under control also with your governor
+- [04:24.240] who's got much more than he can control.
+- [04:27.390] Now under the new rules being issued today by Secretary Duffy,
+- [04:30.830] the Department of Transportation,
+- [04:32.370] will rescind the Biden fuel economy prices.
+- [04:37.130] And I hate to say that because they were really not economy,
+- [04:41.320] they were anti-economy.
+- [04:43.940] They were horrible what they were doing to the costs
+- [04:47.130] and actually making the car much worse.
+- [04:49.910] But these policies forced automakers to build cars
+- [04:53.690] using expensive technologies that drove up costs,
+- [04:56.490] drove up prices, and made the car much worse.
+- [04:59.900] The action is expected to save the typical consumer
+- [05:02.780] at least $1,000 off the price of a new car,
+- [05:06.090] and we think substantially more than that.
+- [05:08.670] Under the Trump administration $70 billion
+- [05:11.840] are now being invested in the American auto industry.
+- [05:15.660] Ford has announced it will invest $5 billion
+- [05:18.440] across its Kentucky and Michigan plants.
+- [05:19.820] Is that a correct statement?
+- [05:21.030] Jim Farley: That's right.
+- [05:22.270] The President: That's a lot, five billion. You could do more.
+- [05:27.200] Creating at least 4,000 new jobs.
+- [05:29.430] Stellantis announced that they'll invest $13 billion
+- [05:32.540] to expand its US-based manufacturing
+- [05:35.310] by more than 50 percent
+- [05:36.770] and open new manufacturing facilities across the country.
+- [05:40.300] And I think a big part of that is also the tariffs.
+- [05:43.410] Because of tariffs, they're coming in,
+- [05:46.270] not only the automobile industry,
+- [05:48.480] AI, we're leading China and AI. We're leading everybody in AI.
+- [05:51.870] We're leading everybody in everything.
+- [05:53.930] We have the hottest country right now.
+- [05:55.400] I will tell you, a lot of political people behind me,
+- [05:58.080] great political people, very successful political people,
+- [06:02.550] we have the hottest country anywhere in the world.
+- [06:06.020] One year ago we had a dead country,
+- [06:08.410] and now we have the hottest country anywhere in the world.
+- [06:10.870] And it started from November 5th,
+- [06:12.660] but it also started when we did the tariffs,
+- [06:15.310] and we've had tremendous support on the tariffs.
+- [06:17.300] It's bringing in trillions of dollars of wealth.
+- [06:20.870] It's bringing in national security,
+- [06:23.350] and I've stopped eight wars.
+- [06:25.440] And of the eight wars, five of them have been
+- [06:27.670] because of tariffs and trades, so they're very important.
+- [06:31.530] And General Motors plans to invest $4 billion
+- [06:34.610] as it brings its manufacturing
+- [06:36.230] back to the United States from Mexico
+- [06:39.020] after falling by 5 percent under Biden.
+- [06:41.500] US auto production has surged by 10 percent so far this year.
+- [06:46.020] I won the Auto Workers vote,
+- [06:48.480] but now even the head of the Auto Workers said,
+- [06:50.380] "Trump is the greatest President we've ever seen."
+- [06:53.360] And he happens to be right about that.
+- [06:57.640] But we're protecting our auto workers
+- [06:59.560] and we're making it easier for every family
+- [07:02.430] to afford high quality cars.
+- [07:03.910] In other words, we're bringing automobiles back
+- [07:06.810] and the manufacturing of automobiles
+- [07:08.450] back into this country.
+- [07:09.710] We lost 52 percent over the years,
+- [07:12.650] 52 percent of our automobile manufacturer.
+- [07:15.170] You see it, closed factories all over the place.
+- [07:17.780] Now they're all opening up.
+- [07:19.760] In most cases, they're being knocked down and new ones
+- [07:23.040] are being built in their place.
+- [07:24.380] And a big beneficiary is the state of Michigan,
+- [07:27.740] but South Carolina --
+- [07:29.010] Even states that didn't really do too much
+- [07:30.950] with the automobiles, they're opening up plants.
+- [07:32.950] It's been amazing.
+- [07:34.830] Between automobile plants, AI plants and plants
+- [07:38.080] of really every other type, including chips,
+- [07:42.840] we're going to have a big percentage
+- [07:44.470] of the chip market very soon, not because of the CHIPS Act,
+- [07:48.040] which was horrible and ridiculous
+- [07:49.680] where we just gave these companies billions
+- [07:52.020] and billions of dollars and they just kept the money,
+- [07:55.360] but because of what we did with tariffs.
+- [07:57.870] They have to build here
+- [07:59.150] otherwise they're going to have to pay tariffs.
+- [08:00.570] They won't be able to do business in the United States.
+- [08:02.900] And we are going to have a big percentage of the chip industry.
+- [08:07.480] As of about a year ago, two years ago, we had none,
+- [08:10.900] and now we're going to have a very big percentage
+- [08:12.650] when it all finishes out.
+- [08:14.340] I'd like to ask Secretary Duffy to speak, and then Mr. Farley,
+- [08:19.500] and then Filosa and Urbanic and Castriota,
+- [08:24.860] and also we're going to ask
+- [08:26.060] some of our political leaders to speak,
+- [08:27.760] because let me tell you, they went out of their way.
+- [08:29.850] This was not easy. And people were brainwashed.
+- [08:34.020] This is a green new scam,
+- [08:36.960] and people were paying too much for a car
+- [08:39.110] that didn't work as well.
+- [08:40.850] And now they're going to have a great car
+- [08:42.360] that's going to be environmentally friendly,
+- [08:43.930] but it's going to cost you a lot less,
+- [08:45.810] and it's going to work great.
+- [08:47.150] All of the nonsense is being taken out of the cars.
+- [08:51.270] Secretary Duffy, could you say a few words?
+- [08:52.820] Secretary Duffy: Thank you, Mr. President.
+- [08:54.060] Yesterday at the cabinet meeting,
+- [08:55.280] the president was talking about affordability,
+- [08:57.590] and the way that Democrats talk about affordability is a lie.
+- [09:01.290] Today is a perfect example of that,
+- [09:02.860] so these CAFE standards used what was contrary to the law,
+- [09:07.310] the Congress set a rule
+- [09:08.590] that says you have to look at combustion engines.
+- [09:11.020] Biden and Buttigieg actually did an analysis using Igieg,
+- [09:14.940] I'm sorry. Buttigieg used EVs and hybrids
+- [09:19.460] to come up with a 62 mile an hour per gallon standard,
+- [09:23.710] which the car companies will tell you
+- [09:25.800] is completely unattainable,
+- [09:27.580] so they spent a lot of money on technology
+- [09:29.820] trying to meet the unattainable standard,
+- [09:31.650] driving up the cost of a car, number one.
+- [09:33.710] And then number two,
+- [09:35.060] if they couldn't meet the unattainable standard,
+- [09:37.360] they had to trade for carbon,
+- [09:40.230] costing billions of dollars and again,
+- [09:41.930] driving up the price of the car.
+- [09:43.490] Mr. President, what Democrats were doing
+- [09:45.420] were not making cars more affordable,
+- [09:47.560] they're making them less affordable.
+- [09:49.450] The consequence of that is going to be that more Americans
+- [09:52.500] can afford to buy a new car,
+- [09:54.600] which means they're going to be safer on the roads
+- [09:56.700] because of all the great new technology
+- [09:58.410] we have that save lives,
+- [10:00.290] so we'll have less death on American roads.
+- [10:03.000] These rules are going to allow the automakers
+- [10:05.200] to make vehicles that Americans want to purchase,
+- [10:08.760] not vehicles that Joe Biden and Buttigieg
+- [10:12.220] wants them to build, which is important.
+- [10:16.300] But also this is important for American jobs.
+- [10:18.320] The more cars we sell, the more jobs we have in this country.
+- [10:21.320] And so this is jobs, this is freedom,
+- [10:23.880] and this is common sense, Mr. President,
+- [10:25.410] so thank you for your leadership.
+- [10:27.070] And I appreciate what the Senate did with the Big Beautiful Bill
+- [10:29.600] and what we've done here today, so thank you, Mr. President.
+- [10:31.410] The President: Thank you very much.
+- [10:32.650] The Big Beautiful Bill it's something, it's amazing.
+- [10:35.720] Wait until the people see the benefits and the lower taxes
+- [10:38.190] that they're going to have lower regulations?
+- [10:41.360] How about Ford?
+- [10:42.710] Jim Farley: Mr. President and Secretary,
+- [10:45.240] all the important lawmakers here,
+- [10:46.890] competitors, today is a victory of common sense
+- [10:50.460] and affordability. We're very proud of Ford
+- [10:53.250] to be the number one auto producer in our country.
+- [10:56.850] 80 percent of the vehicles we sell here,
+- [10:58.930] we make in our country.
+- [11:00.660] And we never left, unlike many of our competitors.
+- [11:04.860] We're the number one exporter
+- [11:06.440] and we have the most auto factory workers.
+- [11:10.950] And this CAFE standard that is aligned with customer demand
+- [11:15.660] is the right move for a lot of reasons.
+- [11:19.490] We were number two last year in EV sales.
+- [11:21.770] We were number three in hybrid
+- [11:23.730] and we're the leading brand for combustion.
+- [11:26.090] We believe that people should be able to make a choice,
+- [11:28.330] as you said, Mr. President.
+- [11:30.460] And we will invest more in affordable vehicles.
+- [11:33.820] This allows us to invest in affordable vehicles
+- [11:38.240] made in the US, which we will take the lead on
+- [11:41.400] and will allow us to make vehicles more affordable,
+- [11:44.550] so thank you for making this step for all of you.
+- [11:46.800] The President: Thank you very much.
+- [11:48.010] One of the other things we're doing,
+- [11:49.340] it's separate from this meeting,
+- [11:50.540] but I think everybody here would agree with it,
+- [11:53.750] if you go to Japan where I just left,
+- [11:56.170] and if you go to South Korea and Malaysia
+- [11:59.490] and other countries, they have a very small car,
+- [12:04.310] sort of like the Beetle used to be with the Volkswagen.
+- [12:07.410] They're very small, they're really cute.
+- [12:09.990] And I said, "How would that do in this country?"
+- [12:11.710] And everyone seems to think good,
+- [12:12.910] but you're not allowed to build them.
+- [12:14.800] And I've authorized the secretary
+- [12:16.530] to immediately approve the production of those cars
+- [12:19.470] so you'll be able to buy -- They really are.
+- [12:22.310] They're actually, some of them are really beautiful actually.
+- [12:25.970] If you take a look, Honda,
+- [12:29.930] some of the Japanese companies do a beautiful job,
+- [12:34.000] but we're not allowed to make them in this country,
+- [12:36.140] and I think you're going to do very well with those cars,
+- [12:38.430] so we're going to approve those cars.
+- [12:39.870] Secretary Duffy: We are going to approve them.
+- [12:41.100] The President: Would you like to say something about that?
+- [12:42.580] Secretary Duffy: No, just that he never stops working,
+- [12:44.690] so even when he's on Asian time,
+- [12:46.430] he's calling me at midnight in the States,
+- [12:49.360] but he gave me the directive to clear the regulations on this
+- [12:52.650] to which we have.
+- [12:54.030] And so if Toyota or any other company
+- [12:57.340] wants to make smaller, more affordable cars,
+- [12:59.580] fuel efficient, we have cleared the deck
+- [13:01.740] so they can make them in America and sell them in America.
+- [13:04.700] The President: They're really nice and less expensive
+- [13:08.340] and it really gives people a chance have a car,
+- [13:11.330] have a brand new car as opposed to a car
+- [13:13.330] that maybe isn't so great.
+- [13:15.120] And so new car companies start thinking about that.
+- [13:18.280] I think it's going to be a tremendous market.
+- [13:21.360] Please, would you like to say something?
+- [13:23.170] Antonio Filosa: Thank you, Mr. President.
+- [13:24.400] It's a great day for us at Stellantis today
+- [13:27.800] because it's there where we see CAFE regulation reconciled
+- [13:31.520] with real customers demand.
+- [13:34.050] That's why at Stellantis, we decided to invest to Jeep,
+- [13:37.490] Ram, Dodge, and Chrysler,
+- [13:39.470] $13 billion in the next four years,
+- [13:42.830] increasing production by 50 percent,
+- [13:45.610] delivering it to the market five new vehicles
+- [13:48.240] and creating 5,000 additional jobs.
+- [13:50.520] That's because we believe in what you, Secretary Duffy,
+- [13:54.230] and all your team is doing in this country.
+- [13:56.600] We believe in growth.
+- [13:57.850] We are ready to invest even more,
+- [13:59.720] so thank you very much. Thank you so much to support
+- [14:01.460] this great news of the cute cars,
+- [14:03.590] which you are very interested into.
+- [14:05.460] And we are very looking forward to work with Secretary Duffy,
+- [14:08.270] your team in the future for the next steps.
+- [14:09.700] Thank you very much.
+- [14:10.950] The President: Well, get ready for those cars
+- [14:12.280] because we've already cleared the way.
+- [14:13.570] You can start right away.
+- [14:14.800] Antonio Filosa: We will.
+- [14:16.080] Thank you very much, Mr. President.
+- [14:17.320] The President: Thank you very much. Please.
+- [14:20.440] John Urbanic: Mr. President, thank you so much for having me.
+- [14:23.280] We support your leadership for this issue
+- [14:25.950] that is so important to the auto industry.
+- [14:28.260] I'm here representing the hardworking men
+- [14:30.580] and women of Orion Assembly in Michigan.
+- [14:34.050] The facility, our manufacturing facility there
+- [14:36.370] is currently going through a retool
+- [14:38.300] so that we can build additional US manufactured pickup trucks
+- [14:42.120] and full size sport utilities for our customers,
+- [14:44.530] and we're so excited about that. And thank you for your support.
+- [14:47.940] Secretary Duffy, thank you as well.
+- [14:50.310] The President: And this is largely coming in
+- [14:51.680] because of the tariff situation.
+- [14:54.350] We're taking in trillions of dollars actually, trillions,
+- [14:57.820] and we have so many other advantages,
+- [15:00.240] but these great companies are coming back
+- [15:03.200] to the United States. They left the United States.
+- [15:05.550] If somebody was sitting behind this desk
+- [15:07.220] that knew what they were doing, that wouldn't have happened.
+- [15:08.900] They would have said, "Well, you can sell your car here,
+- [15:11.280] but we're going to put 100 percent tariff
+- [15:12.910] and you would have never had the auto industry leave."
+- [15:16.000] Again, we lost more than 50 percent of our auto industry
+- [15:19.510] and now it's all coming back
+- [15:20.840] and I think it's coming back ultimately,
+- [15:22.880] it's going to be bigger.
+- [15:24.200] I believe it's going to be bigger than it was
+- [15:25.880] before actually,
+- [15:27.410] but it's an honor to have you here and please,
+- [15:30.210] would you like to say something? Thank you very much.
+- [15:31.930] Tom Castriota: Mr. President, Tom Castriota, sir,
+- [15:33.300] I'm the Chairman of National Automobile Dealers
+- [15:36.170] and represent 18,000 dealers in the country,
+- [15:39.160] along with 3,000 heavy duty truck dealers.
+- [15:42.000] And the actions that you've done as the president
+- [15:44.540] and your administration
+- [15:45.820] is definitely going to save our customers money.
+- [15:48.700] And you made your promises that let the consumer buy
+- [15:51.560] what they want, sir, and you deliver on that.
+- [15:53.380] And the other thing that you delivered
+- [15:55.530] was your promise in the Big Beautiful Bill,
+- [15:59.000] the tax deduction on loans that had gone away some years back.
+- [16:02.050] And now that makes it affordable for our buyers
+- [16:05.110] that can save money through that loan of the tax,
+- [16:08.040] anywhere from several hundred to several thousand.
+- [16:09.930] So again, sir, on behalf of all the dealers and our customers,
+- [16:13.590] we appreciate what you and your administrator have done,
+- [16:15.740] and of course our legislative support as well, Mr. President.
+- [16:18.800] The President: Thank you. That's very nice.
+- [16:20.130] And I'm glad you brought that up.
+- [16:21.460] We're allowing people to deduct.
+- [16:24.000] So if you go out and buy a car, and this is for middle income,
+- [16:28.720] but for lower income, no matter what,
+- [16:32.730] they never really had deductions.
+- [16:34.580] Rich people like deductions, but middle income people
+- [16:37.270] were never really afforded deductions,
+- [16:39.000] which is very unfair. You borrow money to buy a car,
+- [16:42.360] you're allowed to deduct the interest from your income tax.
+- [16:45.720] And I think that's going to be one of the most,
+- [16:48.560] in terms of your industry, I think it's going to be
+- [16:50.620] the biggest thing that we're talking about,
+- [16:52.000] maybe even bigger than CAFE standards.
+- [16:55.320] People are going to be able to borrow money, deduct it.
+- [16:57.470] So it's going to cost them essentially half
+- [16:59.600] and they'll be --
+- [17:00.870] Tom Castriota: It'll help. Yes, sir.
+- [17:02.110] The President: I think it's going to be
+- [17:03.350] a tremendous factory.
+- [17:04.610] They've never had a chance to do that before.
+- [17:06.920] And that's all done. That's all in the great Big Beautiful Bill.
+- [17:10.030] So it's really terrific.
+- [17:12.150] I'd like to ask a couple of our political leaders to say,
+- [17:15.030] because you guys have done an amazing job.
+- [17:18.450] This was something that was going to be very tough.
+- [17:21.270] We had to fight lunatics to get it done,
+- [17:24.950] and they had no answers.
+- [17:26.210] You just present them with the facts and they just say, "
+- [17:29.960] Well, we're just not going to vote for it."
+- [17:31.440] They couldn't talk about it, but they didn't want to vote.
+- [17:34.110] I see Mike Kelly, my friend back there,
+- [17:35.800] has been with me from day one, right.
+- [17:37.900] What do you have to say, Mike?
+- [17:39.240] Mike Kelly: Well, you know what, I think you hit the key,
+- [17:40.880] everybody's talking about the same thing. In America-
+- [17:42.500] The President: (inaudible)
+- [17:43.700] look at the way they like each other.
+- [17:47.210] There's no hatred between these two guys.
+- [17:48.970] Mike Kelly: No. As long as I beat his price we're friends.
+- [17:51.430] You hit the nail on the head.
+- [17:52.770] The American people have always been able
+- [17:54.240] to choose what they want to buy.
+- [17:55.960] They don't want to be taken out of a market by people
+- [17:58.070] who quite frankly don't even drive their own car and saying,
+- [18:00.770] "This is the way you've got to go going into the future."
+- [18:02.850] And say, "Well, you may say that,
+- [18:04.380] but you're not in the market. You have no idea."
+- [18:06.070] And I know the business work, at the end of the day,
+- [18:08.830] if you were there with me on sales, Mr. President,
+- [18:11.300] other than price,
+- [18:12.570] what's keeping you from taking the car home today?
+- [18:14.650] It's always price.
+- [18:16.290] And the fact that we can build a car that's affordable,
+- [18:19.470] that people want to buy, that's the key to it.
+- [18:21.860] What you've done is unlock the most ridiculous statute
+- [18:25.340] that ever came in with CAFE. It wasn't done by the Congress.
+- [18:28.090] It was done by President Obama after the courts failed on it.
+- [18:31.700] So thank you for doing what you're doing.
+- [18:33.570] You're making America great again
+- [18:34.960] in every single way. Thank you.
+- [18:36.170] The President: Thank you.
+- [18:37.390] It's going to be so big for the auto manufacturers.
+- [18:40.430] People aren't even going to believe the impact this has.
+- [18:43.440] Mike used to come to my rallies all the time
+- [18:46.350] and we'd have a rally.
+- [18:47.550] It was like zero degrees. It was freezing everywhere.
+- [18:50.320] And he'd sit there without a shirt on.
+- [18:54.100] And I didn't need that. I didn't say it was pretty,
+- [18:57.840] but he would sit there in the cold
+- [19:00.520] and he didn't mind it at all.
+- [19:01.840] I said, "That's one tough cookie, right?"
+- [19:03.250] Mike Kelly: You lit it up.
+- [19:04.460] We didn't need any heat. You were there.
+- [19:05.680] The President: Yeah. We had a good time.
+- [19:06.910] We had a lot of great rallies, right.
+- [19:08.150] Mike Kelly: We did. We did, sir.
+- [19:09.370] The President: Pennsylvania. Please, Mr. Congressman.
+- [19:11.790] Male Speaker: Thank you, Mr. President.
+- [19:13.340] I represent the dealer bomb.
+- [19:14.940] I'm a dealer and we've got some other dealers in here,
+- [19:17.030] but this is huge for the dealer body, the local car dealer.
+- [19:20.970] We're going to be able to sell what the customer wants,
+- [19:22.780] the manufacturer's going to make what the customer wants.
+- [19:25.530] We've got all kinds of options through the Big Bill.
+- [19:28.840] It's going to enable people, as we talked about,
+- [19:30.410] to deduct payments and so forth. As we say in the business,
+- [19:33.400] it's never been cheaper than they are today, Mr. President.
+- [19:36.090] And it's going to be a great opportunity for the dealer body
+- [19:38.350] to sell what consumers want.
+- [19:40.230] And 99 percent of the businesses in America
+- [19:42.680] are small businesses.
+- [19:43.900] Many are car dealers employ a lot of people.
+- [19:46.300] It's going to be a great year for us.
+- [19:47.840] We appreciate your leadership and from a retail standpoint,
+- [19:52.160] we appreciate the manufacturers going to step up
+- [19:54.520] and build cars that customers want and that we want to sell.
+- [19:57.290] So thank you very much. It makes a great country.
+- [19:59.860] The President: He's also a very brave congressman
+- [20:01.780] because he was there on the baseball field
+- [20:03.610] that horrible day with Steve Scalise and some other people.
+- [20:07.270] He was hit, but he took it very well.
+- [20:11.460] He took it very well, you're my pal.
+- [20:13.700] Great job. Great job. Appreciate it.
+- [20:15.820] Kevin, could you say a few words of wisdom?
+- [20:18.280] One of the really smart economic forecasters,
+- [20:21.420] I will tell you, beyond an economist,
+- [20:23.800] he's a real forecaster, please.
+- [20:25.210] Male Speaker: Sir, I think
+- [20:26.460] that there's a massive macroeconomic benefit
+- [20:29.080] to what we're doing today.
+- [20:30.580] And the way to think about it is,
+- [20:31.850] that the car that has the best gas mileage
+- [20:34.640] that you can buy that has only gasoline is a Honda
+- [20:37.820] that gets about 36 miles per gallon.
+- [20:40.140] Joe Biden wanted to make every car on average be above 50.
+- [20:44.510] So there's no car made in the US
+- [20:46.510] that you would be able to sell two years from now,
+- [20:49.170] three years from now under that rule,
+- [20:51.130] because what he wanted to do
+- [20:52.500] was make everybody have an electric car, as you know.
+- [20:55.330] But here's the thing, that if everybody had an electric car,
+- [20:58.840] then nobody would be buying gasoline anymore,
+- [21:01.620] and they'd have to take all the miles that they travel
+- [21:04.800] and put it on the grid.
+- [21:06.110] And so we would have to increase the production of electricity
+- [21:08.880] in the US by 25 percent
+- [21:11.000] over the next couple of years if they had their way.
+- [21:13.390] And so you've really stopped at a massive disruption
+- [21:16.090] for the economy with this. So thank you, sir.
+- [21:18.830] The President: And that wasn't the main reason,
+- [21:20.050] and yet it certainly is a main reason.
+- [21:22.350] You wouldn't have been able to do it even if you wanted.
+- [21:24.770] It's just so crazy.
+- [21:25.970] That was the mandate which we ended.
+- [21:28.990] Troy, would you like to say something?
+- [21:31.330] Male Speaker: Great honor. Thank you.
+- [21:32.850] My family was a former dealer, 48 years, Chrysler Dodge dealer.
+- [21:37.250] And then I got in the political world, sir.
+- [21:39.850] I had more fun in the dealership world,
+- [21:41.400] but I miss it,
+- [21:44.070] but I still play a big role in automobiles and grateful.
+- [21:47.570] I remember under President Obama
+- [21:49.950] when the CAFE standards changed as Mike
+- [21:51.890] brought up and going through those challenging times
+- [21:54.860] as a Chrysler dealer before Stellantis came along,
+- [21:57.400] it was Daimler before you guys got it.
+- [21:59.370] So thank you very much for being here and making these changes.
+- [22:02.850] And as you said, that interest on the car loan piece was big.
+- [22:06.190] And I know that Bernie led the charge on that in the Senate
+- [22:09.300] and getting into One Big Beautiful Bill.
+- [22:11.400] That really is a big deal and people need to understand
+- [22:13.400] how big a deal that is.
+- [22:14.610] The President: They're doing a great job.
+- [22:15.860] And by the way, we had a great victory last night
+- [22:18.250] (inaudible). Matt Van Epps is going to be
+- [22:22.830] great.He's going to be a great congressman.
+- [22:24.940] I think so, really. Like us, right?
+- [22:26.800] Troy: Yeah, he like us.
+- [22:28.610] The President: One of my early endorsements, right.
+- [22:30.480] Troy: Yes, sir.
+- [22:31.800] The President: Can we talk about it?
+- [22:33.640] Right there is a man.
+- [22:34.980] Come here, let me say hello to you. Please, go ahead.
+- [22:40.160] Male Speaker: Thank you, Mr. President,
+- [22:41.360] for your leadership but the thing I've admired most,
+- [22:43.740] you've been in business,
+- [22:44.960] you've been in the battles over the years
+- [22:46.950] and you're helping us lead us out.
+- [22:48.380] Most people that are up here have no idea
+- [22:49.940] about business or small business makes a big difference, one is.
+- [22:54.330] Number two is, I would just say in terms of the tax stuff
+- [22:57.320] we're talking about, one of the things that get missed,
+- [22:59.540] and I'm in Florida, Sarasota region,
+- [23:03.000] is the ability to deduct.
+- [23:05.980] Most people have a small business,
+- [23:07.460] they'll have a loan business, they'll have this,
+- [23:08.880] that, they buy a new or used truck.
+- [23:10.910] They can take that deduction.
+- [23:12.470] Let's say they're in a 20 percent tax bracket,
+- [23:14.690] but the vehicle's 60 grand.
+- [23:16.990] They can take 20 percent of the 60 grand,
+- [23:18.780] get a $12,000 write-off.
+- [23:20.460] They can pay their payments for the first year.
+- [23:22.600] That's a powerful tool we don't talk about.
+- [23:24.670] I don't know why, but at the end of the day,
+- [23:26.910] because of what you've put in place, full expensing,
+- [23:30.310] that's the tool they would use.
+- [23:32.240] And you could just think about all the people in Florida,
+- [23:34.750] just general places.
+- [23:36.410] They're buying old vans or new vans.
+- [23:38.080] They're buying trucks, mainly trucks,
+- [23:40.610] and they're getting a deduction.
+- [23:41.990] They don't even have a payment for a year.
+- [23:43.490] So one of the best things for Florida
+- [23:44.770] (inaudible) --
+- [23:45.770] The President: One of the biggest things
+- [23:46.990] in the bill, expenses.
+- [23:48.230] Male Speaker: Yeah, expensing is a powerful tool.
+- [23:49.980] They can write the whole asset off the first year,
+- [23:52.710] take that deduction, put 12,000 in their pocket on a 20,000.
+- [23:56.690] Let me mention one other thing.
+- [23:58.210] They got into the e-vehicles, electric cars.
+- [24:01.600] And I'm talking to dealers and coming in
+- [24:03.710] and coming and talk to me
+- [24:05.050] and basically they couldn't sell one.
+- [24:07.990] They couldn't give one away.
+- [24:09.670] And when these companies, or they got in
+- [24:12.680] because of whatever political pressure
+- [24:14.310] under Biden administration,
+- [24:15.820] and they end up realizing that they got no market.
+- [24:19.730] The guy says, "The car's been sitting there a year.
+- [24:21.700] I can't get rid of it."
+- [24:22.910] So they don't understand the market,
+- [24:25.530] the people who produce the vehicles,
+- [24:27.860] and that's made a big difference in your leadership.
+- [24:29.840] But thanks for what you're doing here today.
+- [24:31.480] It's big. It's huge. It'll make a big difference.
+- [24:34.610] $12,000 on a $60,000 vehicle upfront day one.
+- [24:39.200] The President: Thank you. Thank you very much.
+- [24:40.490] We're just talking about something that's interesting.
+- [24:44.690] Ford would make, and I don't want to speak for Ford
+- [24:47.450] because we have one of the top people here.
+- [24:50.350] Jim Farley: Mr. President is fine
+- [24:51.610] if you want to talk about Ford.
+- [24:55.750] The President: Ford would make numerous electric cars
+- [24:58.130] in order to sell one Ford- 150,
+- [25:01.460] because they'd make all their money with a 150
+- [25:04.200] and they were willing to lose money on building two
+- [25:07.090] or three electric cars
+- [25:09.100] that they couldn't sell in order to make some money on the 150
+- [25:12.940] 'cause the 150 is a monster. I'll tell you what.
+- [25:16.550] No matter where you go they love that Ford-150.
+- [25:20.530] But isn't it a ridiculous model when you have to build two
+- [25:23.570] or three cars that you know you're not going to be selling
+- [25:26.560] or not be selling for much in order to really do something
+- [25:30.290] that you should have the right to do,
+- [25:31.800] which is make a car that you want to make
+- [25:33.590] and that the market wants, right?
+- [25:34.870] Jim Farley: Yeah.
+- [25:36.160] The President: So congratulations on the 150.
+- [25:37.370] Jim Farley: Thank you.
+- [25:38.600] Best-selling vehicle in the United States.
+- [25:40.240] Great to be here.
+- [25:43.060] The President: Now it's -- now it's only going to do --
+- [25:45.960] No, but it really is. It's amazing.
+- [25:47.510] It's an amazing brand.
+- [25:48.800] Jim Farley: There was a lot of (inaudible) things done here.
+- [25:50.670] The President: What would you like to say?
+- [25:51.870] Male Speaker: Yeah.
+- [25:53.130] Thank you, Mr. President and Secretary Duffy
+- [25:54.960] and all of us. One of the last times I was here
+- [25:57.670] is when you signed the electric vehicle
+- [26:00.720] CRA Congressional Review Act that all of us participated in.
+- [26:04.130] The beginning of really making common sense
+- [26:06.000] because it was going to impact 17 other states
+- [26:08.710] and really a large part of our economy.
+- [26:10.990] This is about affordability here.
+- [26:12.740] I'm just going to say one thing.
+- [26:14.830] Well, maybe I already said one thing,
+- [26:16.160] so now I'm going to say two things.
+- [26:17.870] When we talk about a car and auto,
+- [26:20.170] we sort of talk about just, "Oh, we need a car."
+- [26:23.010] Do you know what a car does for a family?
+- [26:25.560] You can take your children to school,
+- [26:26.940] you can go to the store, you can visit your mother,
+- [26:29.120] you can go to church, you can have a job,
+- [26:31.950] you have the flexibility that you need.
+- [26:34.030] A car for an American family
+- [26:36.710] is about a roadway to prosperity.
+- [26:38.290] The President: Big deal.
+- [26:39.610] Male Speaker: It's a big deal.
+- [26:41.400] And so by making them more affordable,
+- [26:43.260] making them more choice driven by what families want and need,
+- [26:47.160] today is a great day for the American family.
+- [26:49.620] The President: (inaudible) say?
+- [26:52.480] Male Speaker: Well, thank you,
+- [26:53.700] Mr. President and Secretary Duffy
+- [26:56.610] and to my colleagues that are here.
+- [26:59.140] In Tennessee, we make great automobiles
+- [27:02.890] and we have a fantastic workforce.
+- [27:06.300] And whether you're GM or Ford,
+- [27:09.130] with their new investment in Tennessee,
+- [27:12.230] our Nissan or VW or Toyota with the engine plant,
+- [27:16.770] what you see is the components
+- [27:19.450] that are necessary to build these cars
+- [27:22.500] and removing these standards and making cars more affordable
+- [27:27.950] does mean that more people will purchase them,
+- [27:30.450] but it also means we're going to have to make more cars
+- [27:35.530] to meet that demand.
+- [27:36.850] And for Tennessee, that is a great thing.
+- [27:39.710] The President: So I'm just sitting here
+- [27:41.110] and I'm thinking like
+- [27:42.970] we have the biggest auto manufacturers in the world.
+- [27:46.890] They're talking about investing billions and --
+- [27:48.930] They're investing it as we speak,
+- [27:50.590] but billions and billions of dollars in our country.
+- [27:53.790] Thank you very much. And they're here.
+- [27:56.530] They're not like, "Well, maybe we'll do it."
+- [27:58.730] They're doing it because of tariffs and they're doing it
+- [28:01.820] because of maybe they like the president
+- [28:04.360] and we're doing things like this for them,
+- [28:06.810] which frankly, no matter who you are, this should be done.
+- [28:10.660] And we're doing things like deductibility of interest
+- [28:13.380] when you borrow money to buy a car,
+- [28:16.740] you're allowed to deduct it from your income tax.
+- [28:19.180] That is a massive tax cut for people
+- [28:22.730] that probably are going to be trying to buy that car anyway.
+- [28:25.910] And I really think that that interest factor
+- [28:28.330] is going to be one of the biggest things.
+- [28:30.540] I was proud of that 'cause I thought of it
+- [28:32.130] and it seems so simple.
+- [28:33.970] Other people are allowed big interest.
+- [28:35.840] If you're a rich person,
+- [28:37.370] you're allowed to have big interest deductions
+- [28:39.300] for different things you do.
+- [28:40.910] But if you're a middle income person has to buy a car,
+- [28:43.600] you were never entitled to anything.
+- [28:46.370] And now you're getting a full interest deduction on the loan.
+- [28:50.350] And I think that's going to have one of the biggest impacts.
+- [28:52.680] But we're here with companies that are investing
+- [28:56.940] tens of billions of dollars in our country.
+- [28:59.350] As we speak, it's not going to be in two years or three years.
+- [29:03.420] A lot of it's because of the expensing provision in the bill
+- [29:06.190] and the Big Beautiful Bill,
+- [29:08.110] but a miracle is happening in our country.
+- [29:11.800] It's a miracle. This is just the auto industry,
+- [29:15.470] but we have other industries where it's the same thing.
+- [29:18.660] They're building all over our country and something,
+- [29:22.220] this is a revolution that's happening.
+- [29:24.900] It's a business revolution, it's a jobs revolution,
+- [29:29.120] it's a car revolution.
+- [29:30.530] We're bringing back the car industry
+- [29:32.230] that was stolen from us because we have people
+- [29:34.820] that didn't know what they were doing sitting at this desk
+- [29:37.460] and they put the wrong people in
+- [29:39.310] because they weren't advised properly.
+- [29:41.940] And this is really an incredible thing that's happening.
+- [29:46.080] Go ahead, (inaudible).
+- [29:47.500] Male Speaker: Well, thank you, Mr. President.
+- [29:48.900] And I think in many respects,
+- [29:51.150] pretty much everything that could be said has been,
+- [29:53.040] except that I think what Kevin talks about
+- [29:56.310] in terms of the cascading economic opportunity
+- [29:58.890] from this one single event
+- [30:00.110] Male Speaker That is just the tip of the iceberg.
+- [30:02.210] When you think of all the rules and regulations
+- [30:04.350] that you have repealed,
+- [30:05.580] I think it's more important, frankly, than the tax cuts.
+- [30:08.280] However, in the Working Family Tax Cuts Act,
+- [30:12.420] remember we made permanent
+- [30:13.620] a lot of really good policy from the first
+- [30:15.790] Trump era, not the least of which for small businesses,
+- [30:18.810] is bonus depreciation.
+- [30:20.590] The opportunity to depreciate the year that you purchase
+- [30:24.480] an F-150 for your small business or a large truck for your farm.
+- [30:30.890] I just think we're going to roll into 2026
+- [30:33.230] and we're going to see an escalation
+- [30:34.740] of economic opportunity,
+- [30:36.030] the lengths of which I probably have never seen.
+- [30:37.820] The President: I think nobody's ever seen it.
+- [30:39.390] Nobody in the world because there's never been 18
+- [30:42.620] or whatever it ends up being.
+- [30:45.240] In 10 months, we have $18 trillion being invested.
+- [30:48.040] We never had $1 trillion being invested.
+- [30:50.740] And Biden had much less than that.
+- [30:52.850] Think of it. He had less than a trillion over four years.
+- [30:57.870] We have $18 trillion in 10 months,
+- [31:01.900] and it's actually as of nine months.
+- [31:04.070] So there's never been anything. Eric?
+- [31:06.220] Eric: Mr. President, thank you.
+- [31:08.190] And on behalf of the people of the great
+- [31:09.810] State of Missouri, who we actually make things
+- [31:13.800] from F-15s to F-47s now, thanks to you.
+- [31:18.120] We'll be building the F-47, and the F-150s.
+- [31:20.840] And those are real jobs. And we make things in Missouri.
+- [31:24.430] This is going to go a long way, I think,
+- [31:26.060] for making things more affordable for normal people.
+- [31:28.220] Nothing could be more American than driving a car on a highway.
+- [31:30.800] And this is going to make that more accessible for more people.
+- [31:32.740] So thanks for your leadership.
+- [31:33.940] The President: The State's doing a great job.
+- [31:35.180] Eric: Yeah. Well, they love you, too.
+- [31:36.380] The President: It's a great place.
+- [31:37.580] Thank you, please.
+- [31:39.250] Male Speaker: Thank you, Mr. President.
+- [31:40.530] I'm going to talk to you
+- [31:41.740] just a minute from a rural perspective,
+- [31:43.540] because these cafe standards were absolutely unworkable.
+- [31:47.330] In rural Missouri,
+- [31:48.900] we need vehicles that are practical and affordable
+- [31:51.280] and can haul for our small businesses, for agriculture.
+- [31:54.330] And it just simply didn't work.
+- [31:56.830] Those cafe standards didn't work.
+- [31:58.420] So I applaud you and Secretary Duffy,
+- [32:00.280] for your hard work
+- [32:01.480] and what you're doing on behalf of rural America.
+- [32:05.290] The President: Well, it was keeping a lot of manufacturers
+- [32:07.430] out of our country, too.
+- [32:08.770] They said, "We're not going to -- are you crazy?"
+- [32:10.860] They thought -- outside manufacturers thought
+- [32:13.660] we were absolutely insane with all of the different things
+- [32:17.930] that were just made up nonsense. It was like, made up.
+- [32:20.840] It was really made up by people that hate our country,
+- [32:23.180] I really believe.
+- [32:24.430] Does anybody else have anything to say?
+- [32:25.970] Male Speaker: I'd say about two quick things.
+- [32:27.320] The President: Oh, no. (inaudible).
+- [32:28.760] Male Speaker: Two quick things I think are really important.
+- [32:31.250] So the person who sat behind this desk
+- [32:33.110] before you gave $7,500 in subsidies
+- [32:37.510] to multimillionaires who are leasing electric Rolls Royces,
+- [32:41.620] electric Porsches, electric Lamborghinis,
+- [32:44.220] were getting $7,500 from a taxpayer.
+- [32:47.050] And these Democrats sit on this floor
+- [32:48.410] and say that Republicans are for millionaires and billionaires.
+- [32:51.510] We are the opposite of giving $7,500 to multi-billionaires,
+- [32:55.560] so these foreign electric vehicles.
+- [32:57.470] Number two, because of your policies,
+- [33:00.070] at the beginning of the year,
+- [33:01.440] 51 percent of the cars sold in America
+- [33:04.450] were made in America, 51 percent,
+- [33:06.220] before you got sworn in.
+- [33:07.620] Last month, that number was 57 percent.
+- [33:11.360] We moved it six points,
+- [33:13.020] which nobody thought would be possible in four years.
+- [33:15.810] We did it in 10 months. That's something that maybe
+- [33:17.940] the news should cover a little bit more.
+- [33:19.590] And we've driven down the price of automobiles.
+- [33:22.190] The car prices for consumers are down before you did this.
+- [33:25.490] The President: Just about everything is down.
+- [33:27.780] You know, this whole thing is, they use the word affordability.
+- [33:31.590] It's a Democrat hoax.
+- [33:33.040] They're the ones that drove the prices up.
+- [33:35.460] And all they do is say affordability.
+- [33:37.960] And you're supposed to say, "Oh, that means they had low prices."
+- [33:40.870] No. We inherited the worst inflation
+- [33:43.980] in the history of our country.
+- [33:45.700] They say 48 years, but let's say that's history.
+- [33:48.460] I don't believe that.
+- [33:50.450] Biden had, because of his stupid ways
+- [33:52.870] and between his energy policies and his spending policies,
+- [33:56.700] we had the worst inflation in the history of our country
+- [33:59.740] and now our prices are coming down
+- [34:01.480] and they're coming down for cars and they're coming down --
+- [34:04.210] I mean, did you hear yesterday when Chris Wright from energy,
+- [34:07.620] the head of energy in our country said,
+- [34:10.190] "There are now parts of our country -- Parts --"
+- [34:12.590] It's all happening. $1.99 for gasoline, a gallon.
+- [34:19.160] And we have it at $2.50, $2.60. It was at $5.00.
+- [34:24.660] And that's bigger than any tax
+- [34:26.760] cut we could give for the average family.
+- [34:29.740] That's considered bigger than any tax cut.
+- [34:32.040] So the word affordability, when they mention it --
+- [34:35.240] You ever watch him? It's all about --
+- [34:37.670] I saw the young lady that lost last night.
+- [34:39.840] She lost by a lot more than they thought.
+- [34:42.860] And we have a great new candidate in Congress.
+- [34:47.160] Really great, Matt Van Epps. But I saw last night, she said,
+- [34:50.730] "It's all about affordability, all about --"
+- [34:53.030] They never talk about the specifics.
+- [34:55.830] Everything was through the roof. Eggs, when I took over,
+- [34:58.790] eggs were four times higher than they ever were.
+- [35:00.840] We got the prices down to the lowest level.
+- [35:04.240] I mean, amazing.
+- [35:05.710] But you got to watch, they're great con people.
+- [35:10.110] It's like the Inflation Reduction Act.
+- [35:13.360] And after they got it approved,
+- [35:14.870] because everybody said inflation reduction,
+- [35:17.550] they admitted it had nothing to do with reducing inflation.
+- [35:21.580] It's a con junk.
+- [35:23.130] I think affordability is the greatest conjunct.
+- [35:25.660] They look at you and they say, "Affordability."
+- [35:29.000] They don't say anything else.
+- [35:30.350] Everyone says, "Oh, their prices were so low."
+- [35:32.950] No, they had the worst inflation.
+- [35:35.980] We had the highest prices we ever had
+- [35:39.070] and now they're all coming down, including beef is coming down.
+- [35:42.330] Beef was up there a little bit. Our ranchers did well,
+- [35:46.360] but we got to make them do a little bit less well, perhaps.
+- [35:48.950] But the beef is now coming down. Coffee is now coming down.
+- [35:52.340] It's all coming down and it's a beautiful thing to see.
+- [35:55.920] But remember this, when they use the word affordability,
+- [35:59.500] they just say -- They never say anything else.
+- [36:02.430] This election's about affordability,
+- [36:04.090] and then they go onto the next subject.
+- [36:06.140] It's a con job.
+- [36:07.990] They caused the highest prices, the history of our country,
+- [36:12.890] the worst inflation in the history of our country,
+- [36:16.710] and we're getting those prices down
+- [36:19.190] and they're coming down rapidly,
+- [36:21.190] and you'll see those results very soon.
+- [36:23.710] Anybody else want to say a few words?
+- [36:25.650] Oh, Ted. Ted.
+- [36:28.420] Senator Cruz: I'm easy to miss.
+- [36:30.820] The President: It's very rare that I would miss you.
+- [36:32.840] Go ahead.
+- [36:34.050] Senator Cruz: Well, Mr. President,
+- [36:35.290] I want to congratulate you on behalf of everyone here
+- [36:37.570] for the leadership that you're showing.
+- [36:39.570] And this is a victory today for consumers.
+- [36:41.900] This is a victory for affordability.
+- [36:43.930] Your critics like to say the word affordability
+- [36:45.970] under Joe Biden and the Democrats.
+- [36:47.840] They put mandate after mandate
+- [36:49.550] after mandate on cars and trucks,
+- [36:51.270] and they drove the price up thousands
+- [36:53.460] and thousands of dollars.
+- [36:55.050] And with the actions you're taking today,
+- [36:56.830] and you put on top of that, the one big, beautiful bill.
+- [36:59.860] Most of the senators here on the Senate Commerce Committee,
+- [37:02.010] and on the Commerce Committee,
+- [37:03.220] we worked together to zero out the cafe standards.
+- [37:06.380] We wrote that into the law that the cafe standards went to zero.
+- [37:10.230] What does that mean?
+- [37:11.460] It means you can now, as a consumer,
+- [37:13.290] buy the car you want.
+- [37:14.850] It also means people's lives will be safer
+- [37:18.010] because what these regulations did is they forced cars
+- [37:21.730] to be more expensive and made of plastic instead of steel
+- [37:25.380] because you had to make them lighter
+- [37:26.630] to comply with these standards
+- [37:27.880] so you'd get in a wreck and people would die.
+- [37:30.400] The result of what you're doing,
+- [37:31.660] you're literally saving people's lives and you're making it
+- [37:34.930] where families can afford to get a new car.
+- [37:37.650] These actions will drop the cost of cars
+- [37:39.890] and trucks thousands of dollars.
+- [37:41.800] That makes a real difference. And I'll make one final point.
+- [37:44.840] About half the members here are car dealers.
+- [37:46.930] And I will say my good friend, Roger Williams out in the lobby,
+- [37:50.520] he tried to sell me a car, which didn't surprise me,
+- [37:53.910] but I just want to give props to Mike Kelly.
+- [37:56.640] He showed he was savvier because he tried to sell you a car
+- [37:59.020] and you can afford a much nicer car than I can.
+- [38:01.640] So well done, Mike Roger,
+- [38:02.910] you just went to the wrong customer.
+- [38:04.850] Mike Roger: I was $100 cheaper.
+- [38:07.440] The President: The thing that Ted just said,
+- [38:08.800] it's true, plastic instead of steel, thinking that.
+- [38:12.920] And people died because of that.
+- [38:15.350] The plastic was plastic in an auto accident
+- [38:18.380] and it broke up and people were shattered
+- [38:21.070] because of that crazy deal.
+- [38:23.630] But that's a really good point. Go ahead.
+- [38:25.830] Senator Cruz: And Mr. President, I'll tell you,
+- [38:27.290] the Senate Commerce Committee on January 14th,
+- [38:29.870] we're going to have a hearing
+- [38:31.390] with all of the big three there and Tesla.
+- [38:33.570] And the entire hearing is going to focus on how your leadership
+- [38:37.420] has reduced the burdens on car makers.
+- [38:39.780] That's lowering costs, that's giving consumers more choices,
+- [38:43.150] and it's producing more jobs in America.
+- [38:45.330] And it's highlighting that's a real record of success.
+- [38:47.610] The President: Yeah. Well, really, it's an honor.
+- [38:49.400] And they were going by California.
+- [38:51.550] We had like two different countries, California
+- [38:55.190] and 15 that followed California,
+- [38:57.050] because you had 15 states follow California.
+- [38:59.500] And the rules from California were just like everything else.
+- [39:01.830] That's why people are leaving.
+- [39:03.120] That's why it's such a mess. It's got such --
+- [39:06.170] There's a state with such unbelievable potential,
+- [39:09.780] but what they did with the car industry is incredible.
+- [39:11.960] And that was --
+- [39:13.170] The car companies didn't know what to do
+- [39:14.640] because they had two standards
+- [39:15.890] and you can't build two different cars
+- [39:17.360] for the same country.
+- [39:19.330] And what we're doing today is very big.
+- [39:21.110] Would anybody like to say something?
+- [39:22.980] Would you like to say something, my friend?
+- [39:24.740] Brian: I just want to say thank you.
+- [39:26.310] Thank you.
+- [39:32.320] The President: Brian? And we love you, Brian.
+- [39:36.780] Brian: Oh, I love you too, Mr. President.
+- [39:39.380] The President: He's a good man.
+- [39:40.600] Brian: Well, I appreciate that.
+- [39:42.400] The Press: I've always said you've tackled the three
+- [39:44.540] Ms, mortgage, munchkins, and marriage.
+- [39:47.520] You've solidified all of those.
+- [39:49.450] I'll add motor vehicles to that now.
+- [39:52.350] My question, I got one about consumer confidence.
+- [39:54.810] We just came off on the record
+- [39:56.240] high Black Friday of 9.1 percent.
+- [39:59.330] The President: Record high. Highest ever,
+- [40:00.740] biggest amount ever purchased in one day.
+- [40:03.060] The Press: Which I think counters this narrative
+- [40:05.540] of affordability
+- [40:06.800] because apparently, the Americans are spending money.
+- [40:09.120] So I want to see, how do you view that
+- [40:11.130] for a consumer confidence being so high going into Christmas
+- [40:14.570] and going into next year?
+- [40:15.950] And I do have one for the auto group after you.
+- [40:18.140] The President: I just think that we have
+- [40:19.490] tremendous confidence in the country.
+- [40:21.760] One of the things in terms of confidence,
+- [40:24.390] if you go back a year and a half, it's amazing.
+- [40:27.190] We're like into 10 months already,
+- [40:28.800] but you go back a little bit before the election,
+- [40:30.740] because after November 5th, it started changing rapidly,
+- [40:33.340] even though we weren't running it until January 20th.
+- [40:36.380] But when you look back
+- [40:37.890] and you look at the enlistment of soldiers,
+- [40:41.550] people that wanted to join the military,
+- [40:46.170] the Army, Navy, Air Force, Marines, Coast Guard,
+- [40:50.640] it's like booming. It's all -- Space Force.
+- [40:53.640] But we had a very, very --
+- [40:56.400] We had the worst recruitment in the history of our country.
+- [41:01.270] A year later, we have the greatest recruitment
+- [41:05.130] in the history. You can't even get in.
+- [41:07.410] Getting in is like getting into a top college
+- [41:09.560] that you couldn't get in.
+- [41:11.080] People want to be in the service now,
+- [41:13.560] and that includes the police and firemen, and other things.
+- [41:16.450] You couldn't hire police,
+- [41:17.730] you couldn't hire anybody in the Army or the Navy.
+- [41:20.810] You couldn't get people in.
+- [41:22.830] And we now have gone from that to record recruitment,
+- [41:27.050] and we're getting high quality people,
+- [41:29.050] amazing people wanting to be in the military.
+- [41:32.130] They have spirit now.
+- [41:33.790] Call it what you want, but that's part of it.
+- [41:35.580] But they have great spirit now. So it's a great thing.
+- [41:38.050] Go ahead, ask your second question.
+- [41:39.400] The Press: Okay. My second question,
+- [41:40.620] I've got a lot of close family friends
+- [41:42.490] in the automotive business, own dealerships
+- [41:44.510] all across Southern California.
+- [41:46.100] They sent me a question to ask you.
+- [41:48.220] There's a thing called a mileage blocker
+- [41:51.320] that is installed on vehicles. It's a type of a computer chip
+- [41:54.680] which alters the actual mileage driven on the vehicle
+- [41:58.420] so that when you have a leased vehicle that's turned in,
+- [42:01.750] they're losing thousands of dollars.
+- [42:03.470] They've got to go chase down these manufacturers.
+- [42:05.610] What can we do to track down these manufacturers
+- [42:09.450] of this illegal computer chip
+- [42:10.850] that's really hurting automotive industry?
+- [42:12.480] The President: Have you heard about this?
+- [42:13.700] The Press: Yes, sir. They're getting built in China
+- [42:15.200] and most of them are coming out of Great Britain, sir.
+- [42:18.540] They're being distributed through China to distributors,
+- [42:21.750] selling them online through Great Britain.
+- [42:23.500] Yes, sir.
+- [42:24.720] The President: That's not so good.
+- [42:25.920] What do you think? The Press: Don't look at that.
+- [42:28.320] The President: Bernie, do you know anything about
+- [42:30.560] Bernie: It works on older vehicles
+- [42:32.010] and obviously, we got to do a better job of
+- [42:33.960] (inaudible) at the border.
+- [42:35.240] The President: I think it's something --
+- [42:36.490] I've never heard of it. Very good. We never heard of it.
+- [42:39.490] That's pretty good.
+- [42:41.670] The Press: Mr. President, you released video
+- [42:43.650] of that first boat strike on September 2nd,
+- [42:46.730] but not the second video.
+- [42:48.390] Will you release video of that strike
+- [42:50.750] so that the American people
+- [42:52.070] can see for themselves what happened?
+- [42:53.330] The President: I don't know what they have,
+- [42:54.570] but whatever they have, we'd certainly released.
+- [42:56.220] No problem. We stopped --
+- [42:58.260] Every boat we knock out, we save 25,000 American lives.
+- [43:03.400] And if you look at our numbers,
+- [43:07.060] the drugs coming in through sea are down 91 percent.
+- [43:11.790] I'm surprised there's 9 percent.
+- [43:14.650] I don't know who's doing the 9 percent,
+- [43:17.000] but it's down 91 percent
+- [43:18.300] and we're going to start very soon on land
+- [43:19.980] and I'm sure you're thrilled to hear that.
+- [43:22.870] The Press: On Ukraine, Steve Witkoff and Jared Kushner
+- [43:25.480] were there last night with Vladimir Putin.
+- [43:27.470] Can you give us an update about those talks?
+- [43:29.150] It sounds from what the Kremlin is saying,
+- [43:30.850] that they're not going to compromise.
+- [43:32.130] Can you tell us what you've-
+- [43:33.360] The President: I don't know what the Kremlin's doing.
+- [43:34.860] I can tell you that they had a reasonably good meeting
+- [43:37.480] with President Putin. We're going to find out.
+- [43:39.890] It's a war that should have never been started.
+- [43:42.070] It's a war if I were President --
+- [43:43.530] We had a rigged election.
+- [43:44.810] If I were President, that war would have never happened.
+- [43:47.350] It's a terrible thing,
+- [43:48.710] but I thought they had a very good meeting yesterday
+- [43:50.580] with President Putin. We'll see what happens.
+- [43:55.130] When I was in this office and I talked to you about no cards,
+- [43:58.840] I said, "You have no cards." That was the time to settle.
+- [44:02.110] I thought that would have been a much better time to settle,
+- [44:04.860] but their wisdom decided not to do that.
+- [44:07.330] They have a lot of things against them right now.
+- [44:09.710] But you have President Putin had a very good meeting
+- [44:13.920] yesterday with Jared Kushner and with Steve Witkoff.
+- [44:17.350] What comes out of that meeting?
+- [44:18.710] I can't tell you because it does take two to tango.
+- [44:21.630] Ukraine, I think we have something
+- [44:24.740] pretty well worked out with them.
+- [44:26.140] They're very satisfied considering,
+- [44:28.750] but the sad part is if I were President,
+- [44:31.490] no war would have ever happened.
+- [44:32.780] They would have had 100 percent of their territory,
+- [44:34.670] nothing would have happened. It's a very sad situation.
+- [44:38.120] So think of this.
+- [44:39.840] Last month, 27,000 soldiers, that's like you take a stadium,
+- [44:47.120] a football stadium, not an arena,
+- [44:50.320] and you cut it in half, 27,000 people died,
+- [44:55.530] mostly young soldiers died last month, in one month.
+- [45:01.680] And that's the only reason I'm involved.
+- [45:03.450] We're not spending any money in the world.
+- [45:04.880] We're selling to NATO.
+- [45:07.130] We're not being ripped off like we were under Biden.
+- [45:09.190] Biden was handing everybody everything we had,
+- [45:13.090] giving them all the missiles,
+- [45:14.330] everything they wanted, free, no charge.
+- [45:16.520] So just, he had no idea what he was doing.
+- [45:19.120] They're paying top dollar, full price for everything.
+- [45:23.130] Goes to NATO and then NATO distributes it.
+- [45:25.640] NATO pays us. So with that, it's not money.
+- [45:29.830] I think I can speak for everyone behind here.
+- [45:32.600] The politicians I know
+- [45:34.470] and the auto manufacturers are good people.
+- [45:38.380] They don't want to see 27,000 people die
+- [45:40.750] for no reason whatsoever.
+- [45:42.340] And that's the only reason I'm trying to help.
+- [45:44.100] Yeah, please.
+- [45:45.300] The Press: Mr. President, Fisher of Venezuela
+- [45:46.570] for a second.
+- [45:48.070] Have you checked back with President Maduro?
+- [45:49.970] Is your pressure campaign working?
+- [45:51.200] Is he thinking -- How's he responding today?
+- [45:52.970] The President: You tell me, is it working?
+- [45:54.200] It's not pressure campaign.
+- [45:55.400] It's much beyond that, I think, but I spoke to him briefly,
+- [45:59.510] just told him a couple of things.
+- [46:01.730] We'll see what happens with that.
+- [46:03.370] Venezuela sends us drugs,
+- [46:05.110] but Venezuela sends us people that they shouldn't be sending.
+- [46:09.690] They emptied their prisons into our country.
+- [46:12.420] They sent us killers, murderers,
+- [46:14.080] they sent us drug dealers at the highest level.
+- [46:18.720] They sent us gang members.
+- [46:20.100] They sent us people from their mental institutions.
+- [46:22.630] They emptied their mental institutions into our country.
+- [46:28.200] And so did other countries because we had stupid people
+- [46:32.240] running this country, really stupid people.
+- [46:34.650] And I think probably had some stupid ones
+- [46:36.730] and yet some smart ones, but they were bad people too.
+- [46:39.550] Because not all of them were stupid.
+- [46:41.580] You can't cheat on elections like they did and be stupid.
+- [46:45.710] Okay.
+- [46:47.770] The Press: Did you talk to him the second time
+- [46:49.080] or just that one time?
+- [46:50.320] The President: What's that?
+- [46:51.530] Fisher: To Maduro, did you speak to him again?
+- [46:52.970] The President: No, I didn't.
+- [46:54.580] The Press: When you spoke with Mr. Witkoff
+- [46:56.730] and with Mr. Kushner-
+- [46:58.010] The President: Last night. The Press: -- last night,
+- [46:59.250] did they give you the sense that President Putin
+- [47:01.780] still wants to end the war, still wants to make peace?
+- [47:04.690] The President: He would like to end the war.
+- [47:06.530] That was their impression. Now, whether or not-
+- [47:08.870] The Press: Do you believe?
+- [47:11.490] The President: That was their impression.
+- [47:12.800] Their impression was that he would like to see the war ended.
+- [47:16.190] I think it'd like to get back to dealing a more normal life.
+- [47:19.870] I think it'd like to be trading
+- [47:21.080] with the United States of America,
+- [47:22.720] frankly, instead of losing thousands of soldiers a week.
+- [47:27.530] But their impression was very strongly
+- [47:30.270] that they'd like to make a deal. We'll see what happens.
+- [47:32.020] The Press: Mr. President, in the boat strikes,
+- [47:33.570] if it is found that survivors were actually killed
+- [47:36.490] while clinging onto that boat,
+- [47:38.430] should Secretary Hegseth, Admiral Bradley,
+- [47:40.810] or others be punished?
+- [47:42.300] The President: I think you're going to find that this is war,
+- [47:44.730] that these people were killing our people
+- [47:47.120] by the millions, actually. If you look over a few years.
+- [47:50.690] I think last year we lost close to 300,000 people were killed.
+- [47:54.720] That's not mentioning all the families.
+- [47:56.710] Have you seen what happens with the families
+- [47:58.590] of not only the people killed,
+- [48:00.040] the people that are trying to get their son
+- [48:02.360] or their daughter off of this poison that they've been fed?
+- [48:05.630] I think you're going to find that
+- [48:07.030] there's a very receptive ear
+- [48:09.900] to doing exactly what they're doing,
+- [48:11.620] taking out those boats.
+- [48:12.820] And very soon we're going to start doing it on land too,
+- [48:16.050] because we know every route, we know every house.
+- [48:18.400] We know where they manufacture this crap.
+- [48:21.030] We know where they put it all together.
+- [48:23.300] And I think you're going to see it very soon on land also.
+- [48:25.240] Yeah, please.
+- [48:26.460] The Press: So to be clear, you support the decision
+- [48:28.420] to kill survivors after the initial occurrence?
+- [48:30.800] The President: I support the decision
+- [48:32.060] to knock out the boats.
+- [48:33.390] And whoever's piloting those boats, most of them are gone.
+- [48:38.320] But whoever are piloting those boats,
+- [48:40.580] they're guilty of trying to kill people in our country.
+- [48:42.610] Yeah, please.
+- [48:43.820] The Press: The House Judiciary Committee
+- [48:45.110] has subpoenaed Jack Smith to ask about his investigation of you.
+- [48:48.910] I wondered for a deposition,
+- [48:51.230] I wondered if you'd prefer to see that as a hearing
+- [48:53.370] so that the American public can see the questions
+- [48:55.340] and the responses more easily.
+- [48:56.840] The President: I'd rather see it probably at a hearing.
+- [48:59.190] Look, Jack Smith is a thug. He's a failed prosecutor.
+- [49:05.910] He's a bad man. He's an evil man.
+- [49:08.060] He heard a lot of people. Forget about me.
+- [49:11.530] I do this stuff, but I got indicted many times
+- [49:15.360] by a guy that they were dismissed.
+- [49:19.880] He's a bad guy. He's a sick man.
+- [49:21.970] There's something wrong with him actually.
+- [49:23.430] I think Jack Smith is a sick man.
+- [49:25.310] There's something really wrong with him.
+- [49:26.940] I'd rather see him testify publicly
+- [49:28.770] because there's no way he can answer the questions.
+- [49:30.920] But Biden knew this was going along.
+- [49:32.640] Kamala knew it was going along.
+- [49:35.330] And there's a lot of things happening right now
+- [49:38.610] that they don't like.
+- [49:40.270] One of the things is the autopen.
+- [49:43.140] Everything he signed almost with the exception
+- [49:45.320] of the pardon of his wonderful son, Hunter,
+- [49:48.730] just about everything he signed was not signed by him.
+- [49:52.020] He had no knowledge of it. He didn't know what it was.
+- [49:54.890] People sitting around the beautiful resolute desk
+- [49:57.180] knew exactly what it was.
+- [49:58.460] And those people are guilty, in my opinion, of a major crime.
+- [50:03.720] Everything that was signed by that autopen,
+- [50:07.500] the man operating the autopen,
+- [50:09.200] and I'm sure there were more than one,
+- [50:10.570] because I think some of the people
+- [50:11.800] can operate it themselves.
+- [50:13.010] Some of the high level people operate it themselves.
+- [50:15.530] They would just go in and sign his name
+- [50:19.100] with an autopen onto very important documents,
+- [50:21.650] not only pardons, but policy, maybe cafe standards. Okay?
+- [50:26.210] As an example, who signed cafe?
+- [50:28.220] If you ask Biden, what's a cafe standard?
+- [50:30.600] He would have absolutely no idea.
+- [50:33.650] He'd say, "Where is the cafe located?"
+- [50:36.780] The guy didn't know anything.
+- [50:37.990] Look, that just shows you what a rigged election can be,
+- [50:40.980] but you understand what I'm saying.
+- [50:42.680] Thank you.
+- [50:44.960] The Press: You've had conversations with-
+- [50:46.290] The President: I did with Jensen.
+- [50:47.560] The Press: Right.
+- [50:48.790] The President: Smart man.
+- [50:50.010] The Press: In your conversations with him,
+- [50:51.660] have you given a sense of where you are with export controls
+- [50:55.610] and the types of chips that NVIDIA can give to China?
+- [50:58.530] The President: Sure. He knows very well.
+- [51:01.010] He's done an amazing job. NVIDIA, very good. Yeah.
+- [51:03.740] The Press: Mr. President, when do you expect
+- [51:06.470] for phase two of the Gaza piece now to be implemented?
+- [51:09.070] And do you think-
+- [51:10.350] The President: Well, it's going along well.
+- [51:12.190] They had a problem today, I understand,
+- [51:14.410] with a bomb that went off and hurt some people pretty badly.
+- [51:19.700] Probably killed some people.
+- [51:20.970] They're telling me it just happened.
+- [51:22.920] But it's going under --
+- [51:24.620] We have peace in the Middle East.
+- [51:25.830] People don't realize that we have tremendous support.
+- [51:28.040] 59 countries, there's tremendous support,
+- [51:32.000] but phase two's moving along.
+- [51:34.370] Yeah. It's going to happen pretty soon.
+- [51:35.960] The Press: Mr. President. Mr. President.
+- [51:37.740] Did you speak with House Republican leadership
+- [51:39.620] about your decision to pardon Congressman Henry Cuellar?
+- [51:42.240] And are you concerned that you made a vulnerable Democrat
+- [51:45.540] perhaps less vulnerable with that decision?
+- [51:48.550] The President: It didn't matter. He's a respected person.
+- [51:52.540] He was treated very badly because he said that people
+- [51:55.590] should not be allowed to pour into our country.
+- [51:58.690] And he was right. He didn't like open borders.
+- [52:01.430] He was on the border.
+- [52:02.720] He represents a very respected man.
+- [52:06.730] He represents the people on the border
+- [52:09.680] and he saw what was happening.
+- [52:11.690] And as soon as he made that statement,
+- [52:13.270] I then said, "I'll bet he gets indicted."
+- [52:16.570] And that's what happened. I put out my truth from that.
+- [52:19.670] Well, I did a truth. Wonderful truth. We love truth.
+- [52:23.180] But what happened is he got indicted for speaking the truth
+- [52:29.300] and his wife got indicted, Imelda.
+- [52:32.080] And that's sort of a first.
+- [52:34.300] Usually they leave the wives alone, right?
+- [52:35.840] Don't they, Congressman? Male Speaker: Yeah.
+- [52:37.070] The President: Typically, they indict somebody.
+- [52:38.330] Male Speaker: They do.
+- [52:39.560] The President: Put them in jail for the rest of his life,
+- [52:40.990] but the wife can just sit home and cry,
+- [52:42.600] or she'll find a new man.
+- [52:43.810] A lot of times they find a new man, makes them much happier.
+- [52:47.290] In fact, a lot of times they like that man
+- [52:49.300] better than the one that's in jail. Go ahead.
+- [52:51.090] The Press: Mr. President, thank you.
+- [52:52.710] The mayor of Minneapolis, Jacob Frey,
+- [52:54.940] has saying that he's actually proud
+- [52:56.440] to have the largest Somali community
+- [52:58.180] in the country and his police chief --
+- [52:59.530] The President: Well, then he's a fool.
+- [53:00.780] The Press: Well, his police chief is also saying --
+- [53:02.100] The President: I wouldn't be proud
+- [53:03.300] to have the largest Somalian -- Look at their nation.
+- [53:05.780] Look how bad their nation is. It's not even a nation.
+- [53:07.860] It's just people walking around killing each other.
+- [53:11.620] Look, these Somalians have taken billions of dollars
+- [53:15.710] out of our country.
+- [53:17.090] They've taken billions and billions of dollars.
+- [53:19.750] They have a representative, Ilhan Omar,
+- [53:22.880] who they say married her brother.
+- [53:26.950] That's a fraud. She tries to deny it now,
+- [53:29.760] but you can't really deny it because it just happened.
+- [53:33.300] She shouldn't be allowed to be a Congresswoman,
+- [53:35.280] and I'm sure people are looking at that.
+- [53:37.470] And she should be thrown the hell out of our country.
+- [53:40.060] And most of those people but they have destroyed Minnesota.
+- [53:43.360] Okay? Minnesota, you have an incompetent governor.
+- [53:45.340] You have a crooked government.
+- [53:46.570] He's crooked as hell, but he's incompetent.
+- [53:50.520] Waltz, he should be ashamed that beautiful land,
+- [53:54.870] that beautiful state. It's a hell hole right now.
+- [53:58.620] And the Somalians should be out of here.
+- [54:01.820] They've destroyed our country.
+- [54:03.660] And all they do is complain, complain, complain.
+- [54:06.650] You have her. She's always talking about,
+- [54:08.740] "The Constitution provides me with --"
+- [54:14.050] Go back to your own country and figure out your constitution.
+- [54:17.230] All she does is complain about this country.
+- [54:19.370] Without this country, she would not be in very good shape.
+- [54:21.830] She probably wouldn't be alive right now.
+- [54:24.030] So Somali is considered by many to be
+- [54:27.390] the worst country on earth.
+- [54:29.510] I don't know. I haven't been there.
+- [54:31.500] I won't be there anytime soon, I hope.
+- [54:34.760] But what Somalia,
+- [54:37.610] what the Somalian people have done to Minnesota
+- [54:41.170] is not even believable. It's not even believable.
+- [54:46.260] And a lot of it starts with the governor.
+- [54:49.350] A lot of it starts with Barack Hussein Obama
+- [54:52.440] because that's when people started coming in.
+- [54:56.110] And you have to have people come in that
+- [54:59.500] are going to love our country, cherish our country.
+- [55:02.350] They want to kiss our country goodnight.
+- [55:04.760] They talk about our country.
+- [55:06.220] We want them to pray for our country.
+- [55:08.720] This is not the people living in Minnesota.
+- [55:11.040] And she's a disaster. She should not be --
+- [55:13.330] And her friend shouldn't be allowed.
+- [55:14.770] Frankly, they shouldn't even be allowed to be Congress people.
+- [55:17.770] Okay? They shouldn't even be allowed to be Congress people
+- [55:21.170] because they don't represent the interests of our country.
+- [55:23.730] Anybody else?
+- [55:26.860] The Press: The automakers spent billions
+- [55:28.590] on meeting the Biden EV rules.
+- [55:31.280] Should they be able to recoup that somehow, given the change?
+- [55:34.060] And there's a question about the violation.
+- [55:35.910] The President: No. Void it. No. I'm not letting them recoup.
+- [55:39.780] They're going to do just fine. You know how they recoup?
+- [55:42.970] From this point forward, they'll do very well.
+- [55:45.260] The Press: Can you also talk about the USMCA
+- [55:46.730] and what you're thinking about renegotiating that
+- [55:49.230] with the automakers?
+- [55:50.500] The President: Well, that's just an ongoing thing.
+- [55:54.700] It expires in about a year and we'll either let it expire
+- [55:58.770] or we'll maybe work out another deal with Mexico and Canada.
+- [56:01.710] But look, Mexico and Canada
+- [56:05.760] have taken advantage of the United States,
+- [56:07.900] like just about every other country, in all fairness.
+- [56:09.910] It's not them. I'm not blaming them.
+- [56:12.500] But every country,
+- [56:13.780] because we had stupid people running our country.
+- [56:15.820] We had a lot of stupid people running.
+- [56:18.650] That's why we have $38 trillion in debt.
+- [56:21.750] But the beautiful thing about the tariffs
+- [56:23.450] is we'll start paying off that debt.
+- [56:24.960] The money coming in, they're finding money in our country now
+- [56:27.940] that they never knew existed.
+- [56:29.710] The other day, $30 billion. Where did it come from?
+- [56:32.240] I said, "Why don't you check the tariff shelf?"
+- [56:36.150] They said, "Sir, that tariff hasn't started yet.
+- [56:38.860] It doesn't start till January."
+- [56:40.780] I said, "No, it started two months ago."
+- [56:43.110] They call back, "Sir, you're right.
+- [56:45.010] It was from tariffs."
+- [56:46.520] No, we have a whole different country.
+- [56:48.610] I hope the Supreme Court, I pray that the Supreme Court
+- [56:53.930] understands the importance of the sensible --
+- [56:59.000] Really, I mean, this would be country-threatening
+- [57:03.510] if something happened with regards to that.
+- [57:05.770] The people that brought that case are bad people.
+- [57:07.740] They're very bad people. They hate our country.
+- [57:10.800] They represent foreign countries, including China.
+- [57:15.740] And China's paying us a lot of money now on tariffs,
+- [57:18.310] but they represent people
+- [57:20.380] that really don't like our country much.
+- [57:21.980] And I know some of them and they're scum.
+- [57:23.640] In my opinion, they're scum. They're absolute scum.
+- [57:28.050] And they're not suing for any good reason.
+- [57:32.160] They're just suing to see if they could stop it
+- [57:33.820] because they make money if this country does badly.
+- [57:38.720] But we're taking in trillions of dollars.
+- [57:42.030] We're stopping wars.
+- [57:43.670] We have great national security because of tariffs.
+- [57:46.940] And then to think that we have to even go and justify this.
+- [57:51.920] The reason a lot of these people, I can tell you this,
+- [57:55.080] maybe we would've had the political people.
+- [57:56.730] We wouldn't have these people without tariffs.
+- [57:58.730] The people that are up here from Stellantis
+- [58:01.200] and Ford and General Motors,
+- [58:03.110] great companies, including this gentleman,
+- [58:05.390] they wouldn't be here today if we didn't have tariffs.
+- [58:09.250] They'd be building their plants in Mexico and other places.
+- [58:12.930] They're leaving Mexico and they're leaving Canada.
+- [58:15.980] They're leaving because they ripped off our country.
+- [58:18.460] They took our businesses away from us.
+- [58:20.780] And now because of tariffs, they're all coming back.
+- [58:23.030] So it's a great thing. Thank you very much, everybody.

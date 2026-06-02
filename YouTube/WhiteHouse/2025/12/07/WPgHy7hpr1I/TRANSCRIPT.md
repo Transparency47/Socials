@@ -1,0 +1,871 @@
+<!-- source: https://www.youtube.com/watch?v=WPgHy7hpr1I -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: WPgHy7hpr1I -->
+<!-- date_published: 2025-12-07T01:35:16+00:00 -->
+<!-- date_accessed: 2026-06-02T02:40:35.340250+00:00 -->
+
+# Transcript: President Trump Attends the State Department Kennedy Center Honors Medal Presentation Dinner
+
+- [00:00.810] The President: Thank you very much, everybody.
+- [00:02.220] Thank you. What a great group this is.
+- [00:05.610] Your team is doing very well, Bob.
+- [00:08.560] Good quarterback. Good coach, it always helps.
+- [00:11.710] Having a good coach and a good quarterback
+- [00:13.340] is a very good thing, historically.
+- [00:17.110] I want to thank Secretary Marco Rubio,
+- [00:20.300] who's my friend and a very talented man
+- [00:23.450] who works very hard and his wonderful wife,
+- [00:26.310] Jeanette, for hosting us this evening as we --
+- [00:31.250] thank you, Jeanette.
+- [00:32.700] Great job.
+- [00:35.250] As we celebrate the 2025 Kennedy Center's honorees,
+- [00:40.560] and they are great honorees.
+- [00:43.170] Sylvester Stallone. There he is, look at him.
+- [00:54.980] He got stuck in traffic, but he made it.
+- [00:56.940] He wasn't going to miss this under any --
+- [00:59.600] we heard he was walking up.
+- [01:01.440] I said, "Okay, now we can start."
+- [01:03.730] You look great. Thank you both very much, Jennifer.
+- [01:06.470] Thank you very much. George Strait.
+- [01:12.750] Thank you, George. King of Country. That's great.
+- [01:22.270] Gloria Gaynor. Where?
+- [01:31.840] Fantastic, yeah. You look so well.
+- [01:33.840] Thank you very much, Gloria. The legendary Michael Crawford.
+- [01:48.050] Thank you, Michael.
+- [01:49.510] Thank you, Michael. That's some job.
+- [01:52.080] Thank you very much, Mrs. Crawford,
+- [01:54.260] for being here with your two beautiful daughters.
+- [01:57.160] Really an honor to have you.
+- [01:58.400] I've, I, I don't want to say how many times
+- [02:00.850] I've seen you in Phantom.
+- [02:03.590] But, you know, when you have a great artist,
+- [02:05.340] it's true with paintings,
+- [02:06.540] it's true with music, it's true with dance.
+- [02:09.490] Every time you see it, it gets better.
+- [02:11.500] And you see things you've never seen before,
+- [02:13.400] but I've seen you many times,
+- [02:14.670] and there's never been anybody like you.
+- [02:16.920] Thank you very much, Michael. Congratulations.
+- [02:23.640] And the truly legendary rock band, Kiss.
+- [02:29.320] Thank you, fellas. Thank you.
+- [02:37.220] That's great. Thank you very much.
+- [02:38.630] And this is really much really, look at it, pure talent,
+- [02:43.810] a lot of talent as has ever been assembled under one roof.
+- [02:47.710] We've done something that they've never done before,
+- [02:50.610] and I'll be doing something that hasn't been done before.
+- [02:53.480] The President of the United States is hosting,
+- [02:55.960] at the request of a certain television network.
+- [03:04.960] And I'm doing it because I feel it's very important
+- [03:07.100] that we all get out and do something,
+- [03:08.640] and if that can make a difference, that's tremendous.
+- [03:11.270] But we have such wonderful people,
+- [03:12.730] and I don't mind doing it.
+- [03:14.920] But these are some of the greatest of all time,
+- [03:16.910] and congratulations to all of you,
+- [03:18.930] and thank you very much to Tiffany and Company.
+- [03:21.660] The they've really done a beautiful job with the medals.
+- [03:26.280] And I want to thank your beautiful families.
+- [03:28.020] Every one of you,
+- [03:29.280] you brought large numbers of your families here,
+- [03:32.750] and we appreciate that.
+- [03:34.710] And they appreciate you, I can tell you.
+- [03:37.660] A very special thanks, as well,
+- [03:39.130] to our terrific Kennedy Center Board of Trustees,
+- [03:41.790] along with Executive Director Rick Grenell.
+- [03:45.000] The Board of Trustees has been amazing.
+- [03:47.480] Uh, it's, I, it's got to be the hottest board,
+- [03:49.670] or, I don't know, the Supreme Court is a pretty heart.
+- [03:53.010] I always say the Supreme Court, the US Senate,
+- [03:56.860] the NFL Owners Committee, I think that's pretty good, too.
+- [04:00.490] But I think the Board of the Kennedy Senator
+- [04:02.290] is turning out to be,
+- [04:03.530] we have so many people that want to get on.
+- [04:06.200] I have so many enemies now
+- [04:07.590] because they want to be on the board,
+- [04:08.910] and I'm sort of saying you can't have it.
+- [04:12.240] Can't, can't get anymore.
+- [04:14.920] But, Rick, you've been fantastic.
+- [04:16.640] And Ambassador Sergio Gor, who's now going to India.
+- [04:22.300] Good luck. We may have, may never see you again.
+- [04:27.890] 1.5 billion people. Think of that. 1.5 billion.
+- [04:32.900] Can you handle that, Sergio? Huh?
+- [04:35.210] I think you can. You can handle anything.
+- [04:38.130] But you're going to be dealing with a very special leader,
+- [04:40.490] as you know, a friend of mine.
+- [04:41.780] And you're going to do very well.
+- [04:43.900] He's very happy that you're going to be the ambassador,
+- [04:45.810] so good luck.
+- [04:47.040] You're going to be making your journey in two weeks.
+- [04:48.760] Good luck. I may never see him again.
+- [04:51.950] It's very sad.
+- [04:54.880] Also, I want to thank Secretaries Howard Lutnick,
+- [04:59.340] Doug Burgum, FCC Chairman, Brendan Carr,
+- [05:04.120] my daughter, Tiffany, and her wonderful husband, Michael,
+- [05:07.320] and so many other distinguished guests.
+- [05:09.160] We have so many people here, senators.
+- [05:10.840] We have other Secretaries,
+- [05:13.940] and I'm just seeing some of you in the crowd.
+- [05:16.410] You are a good-looking crowd.
+- [05:18.840] I also want to thank everyone here tonight
+- [05:20.950] who's so generously supported our effort to restore
+- [05:24.370] and revitalize the Kennedy Center.
+- [05:26.670] It was in rough shape to a lesser extent,
+- [05:30.210] but the White House was in rough shape.
+- [05:31.780] You know, we're bringing the White House back room by room.
+- [05:34.940] And they sort of laugh when they say,
+- [05:38.200] "Well, the Lincoln bedroom, we had to fix it up."
+- [05:40.770] It wasn't looking too good, but we fixed it up,
+- [05:44.450] leaving it the way it was, but fixed up.
+- [05:46.260] It's in tippy top shape.
+- [05:48.210] You know, I always used to say, "Tippy.
+- [05:50.130] It's got to be tippy top."
+- [05:51.960] But you had a lot of other presidents
+- [05:53.570] that weren't into that. I am. I've always been into it.
+- [05:57.020] The Oval Office has reached a new level.
+- [05:58.940] The cabinet room, everyone wants to see the cabinet room
+- [06:01.550] and it's so beautiful now.
+- [06:03.240] We took some of the paintings that were downstairs in vaults.
+- [06:05.730] They have big vaults.
+- [06:07.120] They have 2,000 paintings, over 2,000.
+- [06:09.240] We have great curators, seven of them.
+- [06:12.150] And they love the place.
+- [06:13.410] Some of them have been there for 40 years,
+- [06:14.950] and if they don't like you,
+- [06:16.210] you don't get the painting you want.
+- [06:18.780] You don't get the Declaration of Independence
+- [06:20.700] brought up into the Oval Office.
+- [06:22.130] A couple of other presidents suffered without it
+- [06:23.930] because they said,
+- [06:25.180] "I'm not going to be able to do it."
+- [06:27.530] But they they've been great.
+- [06:29.540] But we have tremendous artwork being brought up
+- [06:33.300] and has been brought up from the wall.
+- [06:35.380] So it was sitting for a hundred years,
+- [06:37.480] 150 years downstairs under the White House,
+- [06:41.030] and now we have it on walls throughout the building.
+- [06:43.990] And those walls, before we put them up,
+- [06:46.170] we make sure those walls are in perfect shape.
+- [06:48.790] I say, "You got to make sure these walls are up
+- [06:51.030] before you do anything." And we've done a lot of work.
+- [06:54.030] We've redone great marble floors that were beat to hell.
+- [06:59.140] We've done not good floors that were out of one
+- [07:03.480] by one boxes from certain stores that are not very good.
+- [07:07.370] They're not -- they shouldn't be there.
+- [07:09.230] Those floors should not have been there.
+- [07:11.390] Uh, we've replaced them with uh,
+- [07:13.800] the most beautiful marble statuary marble.
+- [07:16.290] They call it in Italy, statuario.
+- [07:18.970] Great white and black marble that forms
+- [07:21.770] Greece and big parts of Italy.
+- [07:24.460] And Italy during a time when Italy was extremely strong
+- [07:28.750] and Greece, when Greece was Greece,
+- [07:31.380] and they they had that,
+- [07:32.770] and we now have that in the White House
+- [07:34.410] replacing one by one tiles that were not good.
+- [07:38.680] But we've fixed the White House
+- [07:39.920] and we've fixed the Kennedy Center.
+- [07:41.970] The Kennedy Center has some work to be done.
+- [07:45.920] We've worked very hard on it, actually.
+- [07:47.440] I spent a lot of time there with contractors.
+- [07:49.490] I mean, I go around. I, I have two jobs.
+- [07:52.170] I have a construction job, which gives me,
+- [07:53.910] which is really like relaxation for me
+- [07:55.830] because I've been doing it all my life.
+- [07:57.950] But we're fixing the Kennedy.
+- [07:59.310] I said, "Yeah, you need a new roof."
+- [08:01.680] They said, "Sir, there's a lot of water coming down."
+- [08:03.740] You know, they didn't know you need a new roof.
+- [08:06.210] It's been there for like 45, 50 years
+- [08:09.500] and we're doing everything.
+- [08:10.990] We're doing brand new air conditioning.
+- [08:13.950] Uh, Carrier has been so incredible.
+- [08:15.570] They made a donation, a big donation on the ballroom.
+- [08:18.930] We were bidding out the ballroom and Carrier came along
+- [08:22.110] and they said,
+- [08:23.730] "Uh, sir, we'd like to contribute the air
+- [08:25.730] conditioning for the ballroom." It was like $17 million.
+- [08:29.520] It's a lot of air conditioning and heating.
+- [08:32.150] And a great steel company came along and said,
+- [08:35.890] "Sir, would like to contribute the steel."
+- [08:39.130] Uh, it's a big steel.
+- [08:40.410] That's a big account.
+- [08:41.890] And we had Caterpillar Tractor come along and said,
+- [08:45.420] "Sir, we'd like to contribute all of the tractors,
+- [08:47.910] all of the excavation equipment,
+- [08:49.510] and all of the lifts and generators
+- [08:51.670] and everything else you have in the ballroom,
+- [08:53.420] because it's got a lot of very complex equipment
+- [08:55.490] that you wouldn't think of."
+- [08:57.090] So I want to thank Caterpillar and others.
+- [08:59.390] Others are going to be made public,
+- [09:01.260] but they've they've really been very gracious
+- [09:04.470] and we're having the same thing happen at the Kennedy Center.
+- [09:07.730] They view it as a very important thing
+- [09:09.530] and we have marble experts,
+- [09:11.500] some of the greatest marble people and anywhere in the world
+- [09:14.190] and they're taking this marble that was in such bad shape
+- [09:17.240] that everyone said, "We have to rip it down.
+- [09:18.830] We have to take it down."
+- [09:20.050] No, the marble is great. Big, beautiful slabs.
+- [09:22.370] You don't get them like that anymore.
+- [09:23.860] It's very hard.
+- [09:25.320] Giant, they call them the giant slabs.
+- [09:26.870] They don't make them. But with tender loving care,
+- [09:31.010] and I always say, "Remember, if you take 1/100th of an inch
+- [09:34.130] off the top of the marble, you have brand new marble."
+- [09:36.620] People don't know that.
+- [09:38.140] They see the marble and they say,
+- [09:39.340] "Oh, the marble's stained or the marble's gone."
+- [09:42.380] I say, "No, no. If you go just a little bit,
+- [09:44.610] if you take just a little bit of that skin off
+- [09:49.860] and you get it down, you g- -- it's called grinding.
+- [09:52.040] You grind it down just a hundredth of an inch.
+- [09:54.340] You have a brand new slab of marble
+- [09:56.820] and you've saved a little money
+- [09:58.310] to put it marble, like millions of --"
+- [10:00.300] Uh, the marble job was going to cost $59 million.
+- [10:03.940] They thought we had to take all the marble off the building
+- [10:06.820] and replace the marble with new marble.
+- [10:09.320] It was going to cost 59 to --
+- [10:11.470] we had prices from 59 to 75 million.
+- [10:14.660] I think I'm going to spend a million bucks,
+- [10:16.150] have it made beautiful. And what you replace it
+- [10:19.520] with was not nearly as good as what we already have.
+- [10:21.990] So it's sort of, I don't know,
+- [10:23.210] I like to tell you those little construction
+- [10:25.040] because we talk politics all the time
+- [10:26.620] and I like politics too.
+- [10:28.820] I said somebody to somebody the other day,
+- [10:30.700] "Am I a better politician
+- [10:32.760] or construction real estate person?"
+- [10:35.880] And they didn't know how to answer that question.
+- [10:38.810] I'm not sure how to answer it either,
+- [10:40.230] if you want to know the truth,
+- [10:41.460] but I actually get great relaxation
+- [10:43.160] out of fixing the White House and fixing the Kennedy Center.
+- [10:47.340] And it takes a little time, but not really,
+- [10:49.680] because it's time that some people want to rest.
+- [10:52.290] I don't really want to rest, I want to do things.
+- [10:54.290] And to me, it relaxes me.
+- [10:55.920] It's almost like, it's really almost better than resting.
+- [10:59.560] And we're bringing these places, these places
+- [11:02.140] of great distinction. We're bringing them back,
+- [11:03.930] and the Kennedy Center is going to be incredible.
+- [11:06.180] Within 10 months, I mean, you're going to see,
+- [11:09.180] we've already done tremendous amounts of work,
+- [11:11.030] but within 10 months, you're going to see something
+- [11:13.120] that you really be amazed at.
+- [11:15.340] You know, one of the things with the Kennedy Center,
+- [11:17.060] because this is really honoring that tonight,
+- [11:20.560] but the sound is great,
+- [11:22.470] and if you don't have good sound, Lincoln,
+- [11:24.350] I don't want to say anything bad about Lincoln Center,
+- [11:26.450] but they've had a lot of problems
+- [11:27.720] over the years with sound.
+- [11:29.020] A lot of you, some of you on that board, you're here tonight.
+- [11:32.260] There's very distinguished board also.
+- [11:34.780] But as you know, they have, at Lincoln Center,
+- [11:36.760] they have the same problem
+- [11:37.980] and they've rebuilt one of their great buildings
+- [11:41.730] because the sound was always bad and they can't get it right.
+- [11:45.780] They can't get it right.
+- [11:47.030] It's a very hard thing to do. There's a little luck to that,
+- [11:49.760] you know, you have to be a little bit lucky.
+- [11:51.870] And some of the greatest opera houses in the world in Europe
+- [11:56.780] were built 200 years ago, 300 years ago
+- [11:59.940] and they had no sound engineers in those days,
+- [12:02.180] but they did have a lot of marble and stone.
+- [12:05.160] And marble and stone make from, make really for great sound.
+- [12:09.240] I see we have Gloria, we have KISS,
+- [12:11.160] we have George Strait, we have -- think of it.
+- [12:14.060] We have the great Michael Crawford,
+- [12:15.780] and they know what I'm talking about probably better
+- [12:17.740] than anybody else in the whole world.
+- [12:20.250] But it's sound is a big deal.
+- [12:23.110] And if you don't have it in a building,
+- [12:24.570] you pretty much never have it. They rebuild it.
+- [12:26.760] They spend millions and millions of dollars.
+- [12:29.100] They take it apart. They put up new walls,
+- [12:31.720] they put up new seats, they put up new everything,
+- [12:33.720] and they open it up, and it's a disaster.
+- [12:36.780] And the one thing with Kennedy Center, they have great sound.
+- [12:39.530] They've always been known to have great sound.
+- [12:42.070] And we're putting up large slabs of mar,
+- [12:45.540] marble in couple of the great halls.
+- [12:49.390] And it's already, we did some testing,
+- [12:51.640] it's made it as good as it is, it's made it even better.
+- [12:54.560] Marble can do that. So we've reviewed,
+- [12:58.670] we reviewed every, everything you have to review
+- [13:02.400] and reversed the decline of this cherished institution
+- [13:06.430] and the Kennedy Center was really boy,
+- [13:10.950] the money they spent over the years.
+- [13:12.520] They spent so much money
+- [13:13.740] and you couldn't see where the money was spent.
+- [13:15.760] We're still trying to find out where did they spend
+- [13:17.560] all that money,
+- [13:19.060] but they didn't know what they were doing and it's a shame.
+- [13:21.950] And we almost lost that building.
+- [13:23.460] That building was very closed, structurally
+- [13:25.240] and every other way. We've totally reversed it
+- [13:27.620] and now it's, it's going to be in great shape
+- [13:29.300] for another, literally for 100 years.
+- [13:31.500] It's going to be in great shape.
+- [13:32.980] It's going to be in better shape than ever before.
+- [13:35.850] So we've done a real job.
+- [13:37.620] We've secured historic funding for the Kennedy Center
+- [13:41.320] and we got that in the great Big Beautiful Bill.
+- [13:44.150] That's the, a bill that everybody said
+- [13:46.430] was impossible to get passed.
+- [13:47.880] They said, "You can't do it. It's too big."
+- [13:50.230] It was supposed to be 17 bills.
+- [13:52.510] I said, "Let's put it in one
+- [13:53.750] because the Democrats are absolutely crazy."
+- [13:55.910] And I have some Democrat friends here, but they're crazy.
+- [13:59.810] And they might've approved a couple of them,
+- [14:01.440] but most of them they wouldn't.
+- [14:02.650] I said, "If we put it all in one,
+- [14:04.590] there's something for everybody."
+- [14:06.610] And we got it approved with a pretty small majority.
+- [14:09.250] We had the majority, but pretty small majority
+- [14:11.150] we got it approved. And we got some support.
+- [14:13.120] We got a little support from some of the rational Democrats.
+- [14:17.120] But one of the things we were able to do is help,
+- [14:20.260] help very much the Kennedy Center.
+- [14:21.700] We got so many other things, our largest tax cuts in history.
+- [14:25.300] No tax on, think of this, tips, no for the, for the workers,
+- [14:30.570] no tax on tips, no tax on social security
+- [14:33.520] for our great seniors, no tax on overtime.
+- [14:36.100] Nobody thought that was possible.
+- [14:38.070] You're allowed if you buy a car,
+- [14:39.290] these people don't know about buying cars
+- [14:41.540] 'cause you buy cars, probably you're not going out
+- [14:43.660] to borrow a lot of money, the group in this room.
+- [14:46.050] But you know what, middle income people,
+- [14:48.240] they never had this before. If you go out and borrow money,
+- [14:50.470] which almost everyone does to buy a car,
+- [14:53.890] you're now allowed to deduct
+- [14:55.100] the interest for income tax purposes.
+- [14:57.090] Never happened before. It's a great thing.
+- [14:59.300] We have so many things in the great Big Beautiful bill,
+- [15:02.540] but one of the things we have is
+- [15:03.790] we're going to rebuild our city, Washington, DC.
+- [15:07.910] We now have one of the safest cities in the country.
+- [15:10.110] It was a horror show when I came here.
+- [15:12.440] A year and a half ago, this city was so dangerous.
+- [15:14.780] A year ago was so dangerous. We've been there 10 months
+- [15:17.180] and now we're setting records for safety.
+- [15:20.080] We've had virtually no crime. We had terrorism two weeks ago,
+- [15:25.630] week and a half ago, horrible terrorism,
+- [15:28.400] but it sounds like we were doing so well that the terrorists felt
+- [15:33.480] they didn't want to see us do very well,
+- [15:35.190] but we have right now the safest capital.
+- [15:38.200] We have a safer capital as anywhere in the world,
+- [15:40.650] and we had one of the most unsafe capitals in the world.
+- [15:43.600] Thank you.
+- [15:48.290] And I walked through the White House, and I'll see,
+- [15:50.410] especially young women say, "Sir, thank you very much."
+- [15:53.260] And I know immediately what they're saying.
+- [15:54.790] They're not thanking me for the eight wars that we've stopped.
+- [15:58.310] They're not thanking me for even the tax cuts
+- [16:00.570] or any of the other things we've done.
+- [16:02.060] They're thanking me because
+- [16:03.350] they can actually walk to the White House,
+- [16:04.740] they feel safe now in the city, and they are --
+- [16:07.220] and I want to thank our National Guard,
+- [16:08.710] they've been unbelievable.
+- [16:09.940] The National Guard has been great.
+- [16:16.990] And Kristi and Tom Homan
+- [16:18.480] and all the people that work so hard on that.
+- [16:20.360] And as you probably notice, we just went into New Orleans
+- [16:23.740] and we went into Memphis, Tennessee.
+- [16:26.000] We went in in a light way because we have a lot
+- [16:28.100] of opposition there with these people.
+- [16:29.920] They, they want to have crime.
+- [16:31.340] I mean, it's the craziest thing, Chicago.
+- [16:33.590] But we've brought down crime in just giving it a little,
+- [16:36.090] a little dose of what we do really well.
+- [16:38.960] Uh, but we'll at some point just go in
+- [16:41.820] and do it exactly the way we want.
+- [16:43.480] We won't have any crime
+- [16:44.700] and we'll have very little crime in Chicago, almost none.
+- [16:47.660] We'll stop it everywhere. We do stop it everywhere.
+- [16:50.130] And some -- we had a governor,
+- [16:52.240] a very good governor from Louisiana,
+- [16:54.870] Jeff Landry just called and he said,
+- [16:56.670] "Please do me a favor.
+- [16:57.980] Would you send the troops into New Orleans?
+- [17:02.420] It's really gotten bad." And I said, "We'll do it."
+- [17:04.990] We just sent them in and within about three days,
+- [17:07.590] everyone said it's like a different place.
+- [17:10.140] And he's a smart governor. And then some of the governors,
+- [17:12.700] you'd be surprised at some of the ones that are calling,
+- [17:14.630] but we're stopping crime.
+- [17:15.880] I never, I said we were going to win,
+- [17:17.360] during the campaign, we're going to stop crime.
+- [17:19.080] Nobody knew we were going to stop it to this extent.
+- [17:21.160] Nobody knew we were going to have a border,
+- [17:23.770] where in six months,
+- [17:25.040] not one person came into our country illegally.
+- [17:28.150] Think of that.
+- [17:34.340] So we went from the worst border where millions and millions,
+- [17:37.520] 25 million people over the course of the four years,
+- [17:40.870] came into our country, many from prisons and gang members,
+- [17:45.040] drug dealers, mental institutions.
+- [17:48.120] They came into our country.
+- [17:49.550] Getting them out, have to get them out.
+- [17:51.760] Murderers, we have 11,888 murderers.
+- [17:54.860] Many of them are now either out or in jail
+- [17:59.290] because they'll murder again.
+- [18:00.990] Uh, more than 50 percent of those people
+- [18:03.360] murdered more than one person.
+- [18:05.550] But we took a, we took a very strong stand
+- [18:08.300] and people are really liking it.
+- [18:10.330] And by the way, drugs coming into our country by sea,
+- [18:13.530] down 94 percent. Okay?
+- [18:16.440] Down 94 percent.
+- [18:20.480] And I'm trying to figure out who the other 6 percent
+- [18:23.040] is because frankly, I think they are the most,
+- [18:25.580] they got to be the bravest people.
+- [18:27.960] Who are the 6 percent that are still trying to come in?
+- [18:30.650] But down 94 percent.
+- [18:33.140] And we're going to start that same process on land
+- [18:36.590] because we know every route.
+- [18:37.820] We know every house. We know where they live.
+- [18:40.080] We know everything about them.
+- [18:41.700] They killed 300,000 people last year.
+- [18:44.590] And that's like a war.
+- [18:46.000] That's like a terrible war. Not going to let it happen.
+- [18:48.640] So we're doing a job that nobody else could do,
+- [18:51.900] but we're building this institution
+- [18:54.770] back to what it should be
+- [18:56.020] and the nation's premier venue for the arts.
+- [18:58.640] And we're going to see that because DC is now a safe place.
+- [19:01.260] People want to be here. The restaurants are opening.
+- [19:03.880] You know, if you go back a year,
+- [19:05.480] nobody wanted to go to restaurants.
+- [19:07.210] They lost 40 percent of their restaurants, they closed.
+- [19:10.270] They had no business.
+- [19:11.830] And the restaurants that were open
+- [19:13.190] were doing no business. And people felt safe,
+- [19:15.340] unsafe, even sitting, waiting for a meal.
+- [19:19.070] People would come in and do bad things.
+- [19:22.200] We don't have that anymore. And now restaurants are open.
+- [19:24.980] You can't even get into a restaurant
+- [19:26.490] now in Washington DC. It's a beautiful thing to watch.
+- [19:30.010] And we're showcasing our country.
+- [19:31.850] And we're always going to have it
+- [19:33.340] because the, the capital of the United States of America
+- [19:38.110] has to be a safe and beautiful place, and we're fixing it.
+- [19:41.250] We're fixing the roads.
+- [19:42.960] We're removing the graffiti.
+- [19:44.860] One of the most beautiful marble you've ever seen.
+- [19:46.960] We're removing granite.
+- [19:48.920] I like granite better on the outside
+- [19:50.850] because it's real easy, but the marble is very porous.
+- [19:55.010] Uh, during the Biden administration,
+- [19:56.890] they sprayed a lot of red paint on a lot of white marble.
+- [20:00.170] And you still see it, you know?
+- [20:01.590] They worked real hard to get it off,
+- [20:03.100] but it goes down deep.
+- [20:04.650] It's a disgrace what they were allowed to do.
+- [20:07.480] It was also a disgrace that they allowed millions of people
+- [20:10.190] into our country illegally and people
+- [20:11.820] that were not people that we want to have.
+- [20:14.760] They weren't people that could love our country.
+- [20:16.490] We want people coming into our country
+- [20:18.650] that can love our country.
+- [20:21.040] So the generosity,
+- [20:28.160] the generosity of so many outstanding donors,
+- [20:31.000] and Rick mentioned some of them, but we've had so many people
+- [20:34.140] that just are so generous, it's been really incredible.
+- [20:37.140] And as you know, this is America's 250th anniversary.
+- [20:42.150] So we have all of these people, and next year, but next year's
+- [20:45.020] right around the corner, and that's going to be big.
+- [20:47.570] Then we have the World Cup coming,
+- [20:48.990] and we have the Olympics coming.
+- [20:51.610] And, you know, I got the Olympics,
+- [20:53.030] and I got the World Cup.
+- [20:54.230] I cannot take credit for getting 250 years.
+- [20:56.470] That was just, we sort of lucked out.
+- [20:58.610] I tried to do that, but it didn't work.
+- [21:01.370] It lucked out, but the 250 is going to be incredible.
+- [21:04.460] In fact, we're having, on June 14th, we're having a fight.
+- [21:08.620] All of the greatest champions in the world, the UFC fight,
+- [21:12.090] they're building an arena in front of the White House,
+- [21:13.920] if you can believe it. Then the, the like 6,000 seats,
+- [21:22.100] and then they're going to build it for the fight.
+- [21:24.270] They're going to have the greatest champions
+- [21:25.770] of the world coming,
+- [21:26.980] and they're going to have over 100,000 people out.
+- [21:29.010] They're putting screens all over certain parts of Washington
+- [21:31.760] so everyone can see it.
+- [21:32.990] I don't think there'll be anything like it.
+- [21:34.310] It'll be on a Sunday night, June 14th.
+- [21:36.920] Uh, Flag Day happens to be my birthday,
+- [21:38.580] but I didn't do it for that reason.
+- [21:39.940] Just, it actually --Sir, we like the June 14th date.
+- [21:43.040] I said, "You know, it's my birthday."
+- [21:44.510] They didn't know it, but they picked it.
+- [21:46.710] But it's I'll take a little heat on that, but it's not that.
+- [21:50.400] But I will tell you, that's going to be some.
+- [21:51.870] Everyone's asking me for tickets for the UFC,
+- [21:54.280] but it's going to be great.
+- [21:55.540] They're going to have the greatest champions in the world
+- [21:57.190] all fighting that night.
+- [21:58.400] The great Dana White does a great job
+- [22:00.370] and he wanted to do it.
+- [22:01.610] And the, the White House will be the background of the fight.
+- [22:04.540] There'll never be anything like this.
+- [22:06.200] There has never been,
+- [22:07.410] and there never will be anything like that.
+- [22:10.560] But a few hours ago, I had the tremendous privilege
+- [22:13.730] of presenting the 2025 Kennedy Center honorees
+- [22:17.080] with their medallions,
+- [22:18.520] their beautiful medallions from Tiffany,
+- [22:21.030] right in the Oval Office.
+- [22:22.800] And we thought we'd do it here.
+- [22:24.170] We thought we'd do it at different places
+- [22:25.820] and maybe pick the one that we liked the best.
+- [22:28.580] And we said, "No, that hit so well."
+- [22:30.360] And the Oval Office, right, Michael?
+- [22:32.150] The Oval Office, he said it,
+- [22:33.950] "I've never seen anything like this.
+- [22:35.310] There's something about the Oval Office that's special.
+- [22:38.730] It's really just special."
+- [22:40.200] Even in its poorer state, it was still the Oval Office,
+- [22:43.890] and we appreciate it, and we have great respect.
+- [22:46.800] So many things happened in the Oval Office.
+- [22:49.490] And they got to see the beautiful cabinet room,
+- [22:52.040] which we've brought back to life like it should be.
+- [22:55.880] Beautiful, it's a beautiful room,
+- [22:58.430] and it's really a beautiful room once again.
+- [23:00.390] Actually, more beautiful than it ever was.
+- [23:02.310] It was never like this.
+- [23:03.970] But the American people are proud of our country.
+- [23:06.560] We're proud of our beautiful White House
+- [23:08.400] and we're proud of our beautiful Kennedy Center.
+- [23:11.130] And now you have it at the top, top of the line.
+- [23:14.750] The lives they've led,
+- [23:16.880] these wonderful people that are here tonight,
+- [23:19.330] the legacies that they've forged to become integral part
+- [23:22.980] of American's priceless cultural heritage.
+- [23:25.420] All of the people that we honor tonight
+- [23:27.960] are such beautiful words.
+- [23:30.470] I mean, you're, you're priceless.
+- [23:32.790] It's a cultural heritage that you've created,
+- [23:35.920] each of you in a very different way.
+- [23:37.370] Most of you in a very different form
+- [23:39.700] catering to different people, frankly.
+- [23:42.860] But you add it up and it's 100 percent of our population.
+- [23:46.450] Each of them has given us treasures
+- [23:49.040] that will be passed down to every future generation.
+- [23:53.090] And I don't think you even appreciate what you've done.
+- [23:55.210] I don't think you've really appreciate your greatness.
+- [23:58.510] Decades and even centuries from now,
+- [24:00.990] people will still watch
+- [24:02.310] and admire the films of Sylvester Stallone.
+- [24:06.510] There's nobody else can do those films.
+- [24:10.570] Nobody can do it.
+- [24:17.180] You know, he started Rocky,
+- [24:18.520] he had no money at all, and he had nothing.
+- [24:22.410] He had a car that barely couldn't, you know,
+- [24:24.410] he left New York.
+- [24:26.180] I think a place called Brooklyn, right, Sly?
+- [24:28.180] Brooklyn? Good place.
+- [24:29.530] A lot of good people come out of Brooklyn.
+- [24:31.120] But he got that car to just get him there
+- [24:33.900] and he stayed in his car and he slept
+- [24:35.610] and he wrote this script called Rocky,
+- [24:39.760] along with about 20,000 other people.
+- [24:41.880] Everybody writes a boxing script, right?
+- [24:43.790] But for some reason, they loved it.
+- [24:46.570] And Sly didn't have 10 cents, had nothing.
+- [24:50.570] And they offered him, like, a lot of money.
+- [24:52.680] They offered him, I think, a half a million,
+- [24:55.630] some number that he never even thought was even possible.
+- [24:59.710] And he said, "No, I don't want it.
+- [25:00.910] I want to make sure that you're casting
+- [25:02.560] the right person to play the role."
+- [25:05.470] And they said, "Well, we have stars."
+- [25:07.020] And they brought in stars.
+- [25:09.280] But the stars didn't have good bodies.
+- [25:12.430] They were flabby. They were not really boxers.
+- [25:14.660] And Sly would look at some of these guys, big names.
+- [25:17.040] He was intimidated in one way,
+- [25:18.620] but then the other way, he said, "That guy can't play the role."
+- [25:21.490] And we won't say the names of the people,
+- [25:23.300] but they're really top actors.
+- [25:25.420] And for some reason, here's a guy
+- [25:27.030] that had no contacts, know anything,
+- [25:28.770] but they loved, this one studio in particular, loved the script.
+- [25:33.350] And they were going crazy over it.
+- [25:34.650] And they brought in the top people
+- [25:37.160] and Sly said, "Let me see you box."
+- [25:39.800] And they just have a guy and --
+- [25:41.690] He said, "He can't play the role."
+- [25:46.060] He had a lot of flab around the upper chest area.
+- [25:49.280] It's supposed to be solid like a rock.
+- [25:52.180] And then they brought in another one, another one, another one.
+- [25:56.060] Then finally, they looked at Sly
+- [25:57.510] and they said, "Oh, man, you're in good shape.
+- [26:00.600] You think you could play the role?"
+- [26:01.950] He said, "I'll play the role.
+- [26:03.180] I'm not going to let somebody else play it."
+- [26:05.120] And he was actually willing.
+- [26:06.380] He, he thought they'd have somebody, but he said,
+- [26:09.160] "That's not a boxer. That's not a fighter.
+- [26:11.280] These are good movie stars.
+- [26:13.300] Keep their shirt on, but they're good movie stars."
+- [26:16.220] But they're not fighters, right?
+- [26:17.580] And he took that role, and the rest is history.
+- [26:21.650] The rest is history.
+- [26:27.540] But think of it, how many people would turn down,
+- [26:29.850] you know, a tremendous, enough money.
+- [26:31.630] He probably thought he could live for the rest of his life.
+- [26:33.570] He probably could have if he had to.
+- [26:35.560] But who would turn down that kind of money?
+- [26:37.120] And he did it. He didn't want to have anything to do with it.
+- [26:39.820] He wanted it to be right.
+- [26:41.310] And who would then think of it as,
+- [26:43.420] isn't it just about the largest grossing movie?
+- [26:45.920] It's like, there's never been anything like it.
+- [26:47.780] Rocky, the whole Rocky series. It's been incredible.
+- [26:50.450] And then you had a little thing called Rambo.
+- [26:52.310] I loved Rambo, Sly. I'll tell you. I loved Rambo.
+- [26:55.880] I got to watch Rambo one time.
+- [26:57.600] I said, "I wonder what this is all about."
+- [26:59.360] I went to a movie theater a long time ago
+- [27:01.320] when I used to go to movie theaters.
+- [27:02.590] I'd like to go again. I loved them.
+- [27:04.290] I loved the popcorn. And it was Rambo.
+- [27:07.310] I knew nothing about it, but I liked Sly.
+- [27:10.000] So I said, "Let's go see it."
+- [27:11.390] After about four minutes, I said, "This movie is great."
+- [27:15.000] Yeah, Rambo, I think Rambo gave Rocky a little run too,
+- [27:17.780] if you want to know truth. Loved it. We loved all of them.
+- [27:20.990] But really a legend.
+- [27:22.830] And each of the people that are being honored,
+- [27:25.320] they're treasures that really will be passed down
+- [27:28.960] to future generations.
+- [27:30.550] Decades and centuries from now,
+- [27:33.250] people are going to be looking at your work.
+- [27:36.000] They're going to be seeing every one of you.
+- [27:37.700] Your work is so incredible.
+- [27:40.060] And they'll be thrilling to the performances of Sly
+- [27:44.280] and the performances, it's all on tape,
+- [27:46.630] of the great Michael Crawford and Phantom.
+- [27:49.940] It's all on tape. You know, thank goodness for tape,
+- [27:53.070] because if you couldn't see him, if you, if you would miss that,
+- [27:58.300] if you wouldn't see Michael Crawford,
+- [28:00.590] the way he moved, the voice was magnificent,
+- [28:03.340] but the way he moved and the hands, the whole thing,
+- [28:06.420] it's just, there'll never be anything like it.
+- [28:09.080] But we have it on tape from every different angle.
+- [28:11.910] So guess what? You're lucky.
+- [28:14.480] There are a lot of great people that never, they've never,
+- [28:18.650] they've never been preserved that way,
+- [28:20.200] but you've been preserved.
+- [28:21.440] And people are going to be looking.
+- [28:23.180] People are going to be watching that
+- [28:24.640] and comparing in other plays
+- [28:27.400] and in other, other forms and other venues.
+- [28:30.220] They're going to be looking and comparing others to you.
+- [28:32.330] And I don't think they're ever going to find anybody like you,
+- [28:34.120] Michael, okay?
+- [28:35.410] I know something about that business.
+- [28:36.920] I don't think they'll find anybody like you.
+- [28:39.810] The look, the movement, the whole deal,
+- [28:41.920] and then the voice, right? The voice, that beautiful voice.
+- [28:45.810] And they'll still know the unforgettable songs
+- [28:49.130] of George and Gloria and Paul, Gene, Peter,
+- [28:53.530] and the late great Ace Frehley
+- [28:56.270] who's represented by his daughter.
+- [28:57.860] And she was crying like so she was crying.
+- [29:01.290] And all that meant to me is one thing.
+- [29:02.690] She loved her father, right? She loved her father.
+- [29:13.940] And the guys loved him.
+- [29:15.430] You know, that band has stuck together for a long time.
+- [29:17.670] I've known a lot of bands and they don't last too long.
+- [29:20.990] They, they're gone much
+- [29:22.550] to the detriment of themselves, actually.
+- [29:25.270] But these guys get along and I was watching
+- [29:27.810] I love to watch people.
+- [29:29.590] And I was watching them and they really respect each other
+- [29:32.090] and they like each other. I just congratulate you.
+- [29:34.070] What a job. What a job you've done.
+- [29:36.210] What a great job. Thank you all. I've known Gene for a long time
+- [29:39.780] and I've known the others for shorter periods of time,
+- [29:42.570] but they're real talent.
+- [29:44.270] And tonight they're really appreciated.
+- [29:46.170] The world has seen it and the world is now watching.
+- [29:48.340] They're watching.
+- [29:49.540] The whole world is watching this.
+- [29:51.650] So thank you very much on the fill em sets,
+- [29:54.850] Broadway stages,
+- [29:56.100] and in sold out arenas around the globe
+- [29:58.490] these exceptional individuals have spent their lives
+- [30:01.150] making the most of their incredible God-given talents.
+- [30:04.610] They have talent. They have talent.
+- [30:07.340] The great Gary Player, he hits shots.
+- [30:09.080] He's 90 years old. He still plays good.
+- [30:11.770] Shot a 70 with me the other day. He's 90.
+- [30:14.500] We're playing pretty far back too.
+- [30:16.020] He's incredible. You think Biden could do that?
+- [30:19.350] I don't think so. Can't, can't lift the club.
+- [30:23.110] But Gary was demonstrating shots and one guy
+- [30:26.500] was having a very hard time, couldn't get out of a sand trap.
+- [30:29.100] Gary's known as the greatest sand player, number one ever.
+- [30:32.570] He got down in the US opens. Two US opens back to back.
+- [30:36.140] He got down 69 out of 71 times. I would say that's good.
+- [30:39.650] Even if you don't know anything about golf,
+- [30:41.240] you'd have to say that's good.
+- [30:43.030] But he got down and this poor man that I was with,
+- [30:45.820] who was, he was blessed with talent, but not golf talent.
+- [30:49.890] And he cannot get out of a trap. It was sad to watch.
+- [30:52.540] And, and Gary says, "You don't understand. Just --"
+- [30:56.020] And he dropped five balls, ping, ping, ping, ping, ping.
+- [30:59.920] Every ball right next to the hole, this guy, oh.
+- [31:03.420] And he tried it, he hit the ball a foot.
+- [31:06.830] He hit the next one over the green, like by 50 yards.
+- [31:09.400] The whole thing was a disaster.
+- [31:10.650] He said, "Well, here's the problem.
+- [31:12.780] I've got talent and you don't."
+- [31:14.660] And that's, and that's what that's true about you.
+- [31:17.830] You have talent.
+- [31:19.070] These five groups and people, they have great talent.
+- [31:23.050] And if you don't have talent, to be honest with you,
+- [31:26.010] there's not a damn thing you can do.
+- [31:27.560] You can get a little better.
+- [31:29.260] But if you don't have talent,
+- [31:31.220] there's not a damn thing you can do about it.
+- [31:33.340] All you can do is try and find something else
+- [31:35.410] where you do have talent.
+- [31:37.420] But I just want to thank that, you know, you shared these gifts
+- [31:41.360] because you're really sharing a great gift with the world
+- [31:44.040] and maybe tonight more
+- [31:45.240] so than any time in your career you've shared tonight
+- [31:49.100] because tonight the whole world is focused on you.
+- [31:52.140] I want to celebrate all of this together and tomorrow
+- [31:55.770] we pay tribute to them magnificently
+- [31:59.920] and they're going to see something really special
+- [32:01.880] and it's so great to have this at the Kennedy Center.
+- [32:04.010] I want to thank as you know, FIFA for the award they gave me,
+- [32:08.680] but more importantly for choosing the Kennedy Center.
+- [32:10.900] That was, we had over a billion people
+- [32:12.700] watching the they were choosing the teams,
+- [32:16.210] which team is playing the next team.
+- [32:18.020] And you can imagine the thrill.
+- [32:20.970] But Johnny, who's the, who's the commissioner,
+- [32:26.150] he's a fantastic guy. And I guess you have to say
+- [32:28.950] he's like the biggest guy in sports, Bob.
+- [32:31.310] He's big.
+- [32:32.600] He's got, he's, he's saying we have 58 Super Bowls.
+- [32:35.240] I don't know if that's true, but let's say we have a few of them.
+- [32:38.570] But they have a lot of, a lot of matches
+- [32:40.640] and it's all taking place here. You know, don't forget, when I,
+- [32:43.990] I made that deal during my first term
+- [32:46.620] and then I made the deal for the Olympics.
+- [32:48.790] And I said, "Man, it's so bad
+- [32:50.640] because they were made six years away."
+- [32:53.230] So I said, "I won't be president."
+- [32:56.180] And then I got screwed and I said -- --
+- [32:59.270] I said, "Let's do it again." And I did it again.
+- [33:01.200] We did great the second time, unbelievable. We won by a lot.
+- [33:05.120] But the third time, we won by 10 million votes.
+- [33:11.230] But it was a COVID year, a lot of things happened and,
+- [33:13.610] and, you know, crooked, a very crooked election,
+- [33:15.730] a lot of crooked people.
+- [33:17.280] But I said, "We got to do it again.
+- [33:19.400] That's why we never give up."
+- [33:20.710] These people have never given up. They don't give up.
+- [33:22.910] Bob Kraft never gave up. Did you ever give up, Bob?
+- [33:25.070] I don't think so. Bob Kraft, have you ever given up, Bob?
+- [33:29.600] Look at him. He had a lousy team last year.
+- [33:31.760] He didn't know what to do.
+- [33:33.420] And now he ends up, he's leading the NFL again.
+- [33:36.490] I'm sure your other owners are extremely happy
+- [33:38.480] for you though, Bob, right?
+- [33:39.950] They're thrilled. They're just thrilled.
+- [33:42.190] But no, people don't give up.
+- [33:44.330] The, the real winners need the talent, but don't ever give up.
+- [33:48.770] But as chairman of the Kennedy Center,
+- [33:50.860] as President of the United States,
+- [33:52.890] and as a true fan of each of these incredible celebrities,
+- [33:58.420] but great performers, much more than a celebrity,
+- [34:01.010] you're much more than a celebrity,
+- [34:03.100] it gives me tremendous pleasure to congratulate them once again
+- [34:07.450] and say thank you for your incredible career.
+- [34:10.470] Thank you for gracing us with this wisdom
+- [34:13.130] and this genius that you have.
+- [34:14.480] That's what it is. Every one of them.
+- [34:17.080] And the First Lady, who you saw yesterday
+- [34:19.900] and you're going to see again tomorrow,
+- [34:21.450] we're going to be having a good time.
+- [34:23.810] Uh, she congratulates everybody.
+- [34:25.820] She's focused on Christmas decorations at the White House,
+- [34:29.270] where she's done a great job.
+- [34:30.510] And actually, the press has treated us very good.
+- [34:33.260] The first year, the trees were white and beautiful,
+- [34:37.110] and the media said, "Why white?"
+- [34:41.470] So I said, "Listen, do something that's more --" (Inaudible)
+- [34:43.510] So the next year we did green.
+- [34:45.820] And they said, "Why aren't you doing white?
+- [34:48.180] We like the white better." The next year we did red.
+- [34:50.410] We got killed with the red.
+- [34:53.090] But so we went through four years of that stuff.
+- [34:56.200] Nobody does it better.
+- [34:57.870] And this year, it's just so good that they actually said
+- [35:00.860] the White House looks phenomenal,
+- [35:02.610] when you add up all of the other things that we've done to it.
+- [35:05.510] You know, um, I tell people, for the first four years,
+- [35:09.860] I was the hunted.
+- [35:11.470] So I didn't have a lot of time to fix up the floors,
+- [35:14.580] to redo the Lincoln bathroom. I took a little heat.
+- [35:17.880] It was the worst job, it was done in many years ago.
+- [35:22.270] It was done during actually the Truman administration
+- [35:24.770] with very cheap green tile. That was in Lincoln.
+- [35:28.340] Now we have it done in beautiful,
+- [35:29.960] beautiful Paradisio marble.
+- [35:32.450] It's all book matched and so beautiful.
+- [35:34.840] But, and people said, "Oh, why is he wasting time?"
+- [35:37.490] That's not wasting time. That's saving our heritage,
+- [35:39.600] you know, many, many things like that.
+- [35:41.480] It's saving the heritage of this country,
+- [35:44.500] and it's so, and it's so important.
+- [35:48.410] But I'm just going to leave you with the fact
+- [35:53.130] that this is a very brilliant
+- [35:54.980] and very important group of people
+- [35:57.270] that are in this room tonight.
+- [35:58.730] A lot of people wanted to be here
+- [36:00.100] and we, the ballroom's very small, Marco.
+- [36:03.440] I mean, this is like -- You know what this is?
+- [36:05.310] About one tenth this is section A of what's being built.
+- [36:11.600] This is like a little corner. But it is beautiful.
+- [36:15.090] And I, and I have to say this,
+- [36:17.720] Marco Rubio is a great Secretary of State.
+- [36:26.120] And, and I think he's going to go down
+- [36:39.230] as, you know, look, we've had some good ones,
+- [36:41.210] we've had some bad ones too, real bad ones.
+- [36:43.420] We've had some real dummies and some real brilliant great ones.
+- [36:47.110] I think Marco, if we keep going like this,
+- [36:49.780] he's going to go down as the greatest Secretary of State
+- [36:52.400] in the history of our country.
+- [36:53.720] So Marco, thank you very much. Thank you very much.
+- [36:58.860] And, and I just want to thank everybody.
+- [37:02.870] It's a very special journey that we're on.
+- [37:06.100] It's a beautiful journey,
+- [37:07.670] and we're beautifying our country.
+- [37:10.110] We're strengthening our country.
+- [37:12.340] We're respected again as a country.
+- [37:13.920] We're so respected now, like never before.
+- [37:16.920] And whether it's Europe, Japan, I mean, every one of them,
+- [37:20.550] they have tremendous respect.
+- [37:21.780] They used to laugh at us not long ago.
+- [37:24.860] A year and a half ago, they were laughing at us,
+- [37:26.720] and they're not laughing anymore.
+- [37:27.970] They respect us like they've never done before.
+- [37:30.650] Thank you very much, everybody, for being here.
+- [37:32.410] It's a great honor to have you. Thank you very much.
+- [37:35.009] (applause)
+- [37:43.009] ♪ ("Y.M.C.A." by the Village People) ♪

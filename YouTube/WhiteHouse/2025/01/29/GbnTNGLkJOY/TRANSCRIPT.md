@@ -1,0 +1,605 @@
+<!-- source: https://www.youtube.com/watch?v=GbnTNGLkJOY -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: GbnTNGLkJOY -->
+<!-- date_published: 2025-01-29T19:53:07+00:00 -->
+<!-- date_accessed: 2026-06-02T02:54:27.159332+00:00 -->
+
+# Transcript: President Trump Signs the Laken Riley Act
+
+- [00:44.740] The President: … weeks since even before the election,
+- [00:48.250] we've been making extraordinary progress.
+- [00:51.550] The American people gave us a clear mandate
+- [00:54.020] to save our country,
+- [00:55.710] and we won all seven swing states by large margins.
+- [00:59.980] Historic.
+- [01:01.200] Very importantly, we won the popular vote by millions
+- [01:05.310] and millions of votes.
+- [01:07.150] Also, all 50 states, as you know,
+- [01:09.460] shifted toward the Republican Party,
+- [01:11.510] and that's never happened before.
+- [01:13.150] All 50, every single one of them.
+- [01:16.170] In our first week in office, we set records,
+- [01:18.700] taking over 350 executive actions.
+- [01:22.590] That's not been done before.
+- [01:24.940] And it has reportedly been the single
+- [01:27.040] most effective opening week of any presidency in history,
+- [01:32.340] and we want to keep it that way. We want to keep it going.
+- [01:40.700] We want to keep it going.
+- [01:42.270] We've broken from decades of failed Washington policies
+- [01:46.300] and restored common sense and sanity to our government.
+- [01:50.430] We've unleashed American energy
+- [01:52.170] and we've already achieved record low illegal immigration.
+- [01:55.750] And you see, nobody tried to get in,
+- [01:59.080] and that's what we've been waiting for for a long time,
+- [02:01.810] and gotten woke ideologies out of our government
+- [02:04.910] and out of our military.
+- [02:07.030] The water has now begun flowing in California,
+- [02:09.690] as we continue to increase the flow in coming days.
+- [02:14.070] Nobody's seen anything like that,
+- [02:15.520] and I've also taken strong action
+- [02:17.270] to regain control of the Washington bureaucracy.
+- [02:21.400] Just for clarification purposes,
+- [02:24.520] because it was incorrectly reported yesterday,
+- [02:27.180] we have informed the federal workforce,
+- [02:29.890] which they've looked to do for many years,
+- [02:32.420] that if they're working for the federal government,
+- [02:34.540] they must show up to the office on time and on schedule.
+- [02:38.750] We don't want them…
+- [02:46.340] We don't want them to work from home,
+- [02:48.080] because as everyone knows,
+- [02:49.650] most of the time they're not working,
+- [02:52.310] they're not very productive,
+- [02:54.630] and it's unfair to the millions of people in the United States
+- [02:58.780] who are in fact working hard from job sites
+- [03:01.920] and not from their home.
+- [03:03.790] As federal employees, they must meet a high standard.
+- [03:07.000] They're representing our government,
+- [03:08.770] they're representing our country.
+- [03:11.060] If they don't agree by February 6th to show up back
+- [03:14.160] to work in their office, they will be terminated
+- [03:17.740] and we will therefore be down scaling our government,
+- [03:20.570] which is something that the last 10 presidents
+- [03:24.100] have tried very hard to do, but failed.
+- [03:27.390] Most of the people we're talking about
+- [03:29.130] have not been going to their federal offices
+- [03:31.630] in many, many years, from even before COVID,
+- [03:35.630] but they have nevertheless been paid.
+- [03:38.040] Some have worked, some haven't worked,
+- [03:40.330] and most of the studies say
+- [03:43.140] that some have just gone through the motions.
+- [03:46.890] We may ask these people to prove
+- [03:49.070] that they didn't have another job
+- [03:50.720] during their so-called employment
+- [03:53.470] with the United States of America,
+- [03:55.190] because if they did, that would be unlawful.
+- [03:57.790] As you understand, a lot of people are getting paychecks,
+- [04:00.960] but they're actually working other jobs,
+- [04:02.630] so they'll have to prove that to us, that they weren't.
+- [04:05.210] In any event, we're requiring them to show up to work
+- [04:08.980] or be terminated.
+- [04:10.990] We think a very substantial number of people
+- [04:13.250] will not show up to work, and therefore our government
+- [04:15.660] will get smaller and more efficient,
+- [04:18.140] and that's what we've been looking to do for many,
+- [04:19.920] many decades, frankly.
+- [04:26.600] Thank you.
+- [04:27.920] In addition, there was a short-term pause
+- [04:30.890] or funding freeze on certain discretionary
+- [04:34.380] spending payments such as government grants,
+- [04:37.800] only for us to quickly look at the scams, dishonesty, waste,
+- [04:41.780] and abuse that's taken place in our government for too long.
+- [04:45.890] As was explicitly stated,
+- [04:48.100] this in no way affected social security, Medicare, Medicaid,
+- [04:52.320] or other entitlements that Americans depend on.
+- [04:56.460] I've made abundantly clear from the very first day
+- [04:59.760] that I ran from office,
+- [05:01.090] that was a long time ago now, that's 2015.
+- [05:05.510] If you think about it, I announced in 2015
+- [05:08.450] and we won in 2016. We did very well in 2020,
+- [05:12.880] but we did really well just recently.
+- [05:15.600] And I'm restating right now to correct any confusion
+- [05:19.090] that the media has purposely and somehow
+- [05:22.300] for whatever reason created, social security, Medicare,
+- [05:25.470] Medicaid have not been affected
+- [05:27.770] by any action we're taking in any way, shape or form.
+- [05:31.070] We are merely looking at parts of the big bureaucracy
+- [05:36.050] where there has been tremendous waste and fraud and abuse.
+- [05:40.840] In that process, we identified
+- [05:42.740] and stopped $50 million being sent to Gaza
+- [05:47.840] to buy condoms for Hamas. 50 million.
+- [05:52.860] And do you know what's happened to them?
+- [05:54.930] They've used them as a method of making bombs.
+- [05:58.370] How about that?
+- [05:59.980] We stopped an attempt to make an illicit payment
+- [06:02.650] for illegal alien resettlement.
+- [06:05.400] We canceled $181 million in DEI training contracts.
+- [06:10.380] This is just for the training of people in DEI,
+- [06:13.520] which has been terminated and completely terminated.
+- [06:16.570] And we paused 1.7 billion in unauthorized payments
+- [06:21.350] to foreign organizations,
+- [06:22.790] including stopping more than $40 million
+- [06:26.420] that was on its way out the door
+- [06:28.520] to the very corrupt World Health Organization,
+- [06:33.200] which has not done its job and not done it properly.
+- [06:43.300] We also blocked $45 million for diversity scholarships in Burma.
+- [06:48.900] 45. That's a lot of money for diversity scholarships in Burma.
+- [06:54.390] You can imagine where that money went.
+- [06:57.060] These were the types of payments,
+- [06:58.880] and many others. I could stand here all day
+- [07:00.710] and tell you things that we found.
+- [07:02.630] And we have to find them quickly,
+- [07:03.890] because we want the money to flow to proper places.
+- [07:07.460] But these were the payments and types of payments
+- [07:09.560] affected by the temporary freeze,
+- [07:11.410] and the American people strongly support these efforts.
+- [07:14.030] I talked about it during the campaign,
+- [07:16.340] and they voted for us in record numbers.
+- [07:19.190] Every single day we're now putting America first
+- [07:22.280] and fighting to get the most out of every single tax dollar
+- [07:26.700] for our great citizens.
+- [07:28.660] We've gathered this afternoon to take another historic action.
+- [07:34.670] However, in a few moments, the Laken Riley Act
+- [07:40.250] will become the very first bill that I proudly sign into law
+- [07:44.240] as the 47th president of United States.
+- [07:59.510] Laken was a brilliant and beautiful 22 year old
+- [08:03.260] nursing student from Georgia, the best in her class.
+- [08:06.890] She was always the best. They would say, Laken,
+- [08:10.700] how do you do this and what do you do?
+- [08:12.620] They were always asking her questions.
+- [08:14.210] She was respected by everybody, even her teachers.
+- [08:17.020] They respected her so much.
+- [08:18.650] From the time she was in first grade,
+- [08:21.710] Laken knew she wanted to spend her time caring for others.
+- [08:25.540] That's what she did. To her friends and classmates,
+- [08:28.370] she was a light of warmth and kindness in every single room.
+- [08:32.940] To her parents and family, she was everything in the world.
+- [08:37.110] They've had a miserable period of time.
+- [08:40.880] Just after 9:00 AM last February 22nd,
+- [08:44.160] Laken went out for a jog
+- [08:46.310] on the campus of the University of Georgia,
+- [08:48.570] but she was just never returned. She never came back, did she?
+- [08:53.990] Parents are here, sister, all of her relatives.
+- [08:58.630] While on her run, Laken was attacked,
+- [09:01.640] viciously assaulted, beaten, brutalized,
+- [09:04.150] and murdered by an illegal alien gang member
+- [09:07.280] who was set loose into our country
+- [09:09.030] by the last administration.
+- [09:11.520] We are deeply honored to be joined today
+- [09:13.690] by Laken's parents, Allison and John,
+- [09:15.950] and her sister Lauren. Thank you very much. Thank you.
+- [09:25.830] So sorry. We were together right after that happened,
+- [09:31.830] and it's a tremendous tribute to your daughter,
+- [09:36.650] what's taking place today. That's all I can say.
+- [09:39.060] But so sad we have to be doing it at all.
+- [09:42.170] Thank you very much for being here.
+- [09:44.780] To Laken's family, we will keep Laken's memory alive
+- [09:47.890] in our hearts forever, everyone's hearts.
+- [09:51.860] With today's action,
+- [09:53.740] her name will also live forever in the laws of our country.
+- [09:57.070] And this is a very important law.
+- [09:58.740] This is something that has brought Democrats
+- [10:01.890] and Republicans together.
+- [10:03.210] That's not easy to do. Laken did it. Laken did it.
+- [10:07.230] America will never ever forget Laken Hope Reilly.
+- [10:11.970] The vicious criminal who murdered precious Laken
+- [10:14.530] was an illegal alien member
+- [10:16.180] of the barbaric Venezuelan prison gang,
+- [10:19.620] known as Tren de Aragua.
+- [10:22.550] He trespassed across our southern border in 2022
+- [10:27.670] and was apprehended by border patrol,
+- [10:29.810] but under the cruel policies of the last administration,
+- [10:33.310] instead of being deported as he should've been,
+- [10:35.750] he was released into the United States
+- [10:39.570] as were millions of other people,
+- [10:42.790] many of them very dangerous people.
+- [10:45.800] And you see what we're doing.
+- [10:47.150] We're getting them the hell out of here.
+- [10:56.880] He was soon arrested again in New York City
+- [11:00.250] on charges of endangering a child.
+- [11:03.380] But because of New York City's deadly sanctuary policies
+- [11:07.160] as we have in California and many other places,
+- [11:10.120] which we're ending, we're going to end them.
+- [11:12.620] He was released again to reoffend.
+- [11:15.850] The Biden administration then provided
+- [11:17.810] this illegal alien criminal
+- [11:19.460] with a free taxpayer funded flight from New York to Georgia
+- [11:23.720] where he was arrested yet again,
+- [11:25.980] constantly, this time for stealing from a Walmart
+- [11:28.940] along with his gang member brother who was a bad one,
+- [11:33.650] only after being released a third time,
+- [11:35.710] but the US law enforcement did this called blooded criminal
+- [11:39.090] go out in that fateful morning
+- [11:41.820] hunting for women on whom to pray.
+- [11:44.990] That's what he did. He hunted. He hunted. It was like a hunter.
+- [11:48.340] And we're going to show him who the hunter is.
+- [11:52.010] This horrific atrocity
+- [11:53.410] should never have been allowed to happen.
+- [11:55.610] And as president, I'm fighting every single day
+- [11:57.890] to ensure that such a tragedy never happens again.
+- [12:01.340] We don't want this to happen.
+- [12:09.030] And under the law, thank you, under the law I'm signing today,
+- [12:12.440] the Department of Homeland Security
+- [12:14.210] will be required to detain all illegal aliens
+- [12:18.520] who have been arrested for theft, burglary,
+- [12:22.210] larceny, shoplifting, assaulting a police officer, murder,
+- [12:27.170] or any crime that results in death or serious injury.
+- [12:30.380] In addition, for the first time ever,
+- [12:32.150] this act gives state governments the ability
+- [12:34.940] to sue the federal government for immediate injunctive relief
+- [12:38.400] if any future administration ever again
+- [12:41.250] refuses to enforce
+- [12:42.600] the immigration laws of the United States
+- [12:44.860] like happened for four long years.
+- [12:54.150] And that was happening for four long years, frightful years.
+- [12:59.810] Amazing.
+- [13:01.020] You'd say, how can people do this?
+- [13:03.070] How can they allow this to happen?
+- [13:04.560] How can they allow criminals to pour into our country
+- [13:07.530] and then try and defend it?
+- [13:09.050] And they're still trying to defend it, but they can't.
+- [13:12.340] That's why I'm here instead of somebody else, actually.
+- [13:14.810] It's the biggest reason.
+- [13:16.040] I believe it's the single biggest reason.
+- [13:17.740] Inflation was horrible.
+- [13:19.380] Many things were horrible during that administration.
+- [13:22.370] When you look at what took place in Afghanistan,
+- [13:25.000] the way they got out, not that they got out,
+- [13:27.020] but the way, so many things were horrible.
+- [13:29.720] But to me, this was the worst of all.
+- [13:33.010] It's a landmark law that we're doing today.
+- [13:35.620] It's going to save countless innocent American lives.
+- [13:40.010] I want to thank every house
+- [13:41.780] Republican, every Senate Republican,
+- [13:44.000] as well as the 12 Senate Democrats
+- [13:46.780] and the 48 House Democrats
+- [13:48.840] who voted to pass this vitally important bill
+- [13:51.650] and many of them are with us today,
+- [13:53.280] and I really do appreciate it.
+- [13:54.720] And I very much especially appreciate
+- [13:57.240] the bipartisan support, the Democrats,
+- [14:00.780] a big percentage of them came through
+- [14:02.470] and plenty of them wanted to.
+- [14:03.750] They probably felt they couldn't,
+- [14:05.260] but they really wanted to. That they don't understand
+- [14:08.380] that that would've made them a lot more popular,
+- [14:11.260] would've made them a lot better with their people.
+- [14:14.760] The ones that didn't, they're going to be sorry
+- [14:18.320] because the people are not going to forget
+- [14:20.460] that they wouldn't sign.
+- [14:21.680] This is a perfect incredible tribute
+- [14:24.470] to an unbelievable young lady.
+- [14:27.940] We're joined today by many great supporters
+- [14:30.700] of our new strong border policies,
+- [14:32.860] and they are indeed strong, including Vice President Vance.
+- [14:37.580] Thank you, JD.
+- [14:39.510] Secretary Scott Bessent who just got approved,
+- [14:42.120] by the way. Where is Scott? He just got approved.
+- [14:45.240] Scott, I'm very impressed. Got a lot of Democrat votes.
+- [14:50.640] He got a lot of Democrat votes. That's great.
+- [14:52.980] I don't know, is that a good thing or a bad thing?
+- [14:55.410] I'll have to think about that.
+- [14:57.660] Secretary of Homeland Security who's going to be fantastic.
+- [15:01.050] I know her so well and I know it's probably not complimentary
+- [15:05.160] because she is a woman, but she is tough.
+- [15:08.240] Where is she? Where is Kristi?
+- [15:10.480] Kristi. Kristi. Great. Stand up please.
+- [15:13.240] You have such an important job to do.
+- [15:21.430] Really great. Thank you very much.
+- [15:22.950] And don't let that look fool you.
+- [15:24.690] That look, she's tough and she cannot stand
+- [15:30.100] that she's having to sit here and even listen to this today.
+- [15:33.640] Another one who's done a job like nobody
+- [15:37.230] that I've seen in a long time, Tom Homan.
+- [15:39.270] He's my friend, but he is something special.
+- [15:43.070] Something special.
+- [15:50.140] And Tom and Kristi, the numbers are unbelievable.
+- [15:52.410] What's happened? It's just shut down.
+- [15:54.480] Nobody thought that was even possible.
+- [15:56.000] It's just shut down.
+- [15:57.210] They showed an area that a year ago had thousands
+- [16:00.600] and thousands of people rushing into our country
+- [16:03.630] and today there was nobody there.
+- [16:05.690] It was like beautiful sight.
+- [16:08.730] And also, Senate Majority Whip john Barrasso.
+- [16:11.800] Great guy. Great guy. Thank you, John.
+- [16:17.860] I also want to thank the bill's sponsor, Senator Katie Britt.
+- [16:21.680] Katie. Thank you, Katie. And Congressman Mike Collins.
+- [16:28.100] And Mike, you were fantastic from Georgia.
+- [16:35.210] He loves this state and he took this very personally.
+- [16:37.400] So thank you very much, Mike.
+- [16:39.810] As well as Senate Judiciary Committee
+- [16:41.890] Chairman Chuck Grassley. Chuck is here someplace.
+- [16:46.210] Chuck, thank you very much. You look great.
+- [16:50.500] And House Judiciary Committee Chairman Jim Jordan,
+- [16:54.020] who's a special guy, a special man.
+- [16:58.040] And House Homeland Security Committee Chairman Mark Green.
+- [17:01.890] Thank you very much. Thank you, Mark.
+- [17:05.120] And we have many other congressmen and senators,
+- [17:07.220] but I'm not going to introduce
+- [17:08.630] because this is about your daughter.
+- [17:10.890] This is about something that's so important
+- [17:12.960] and we're going to just go along.
+- [17:15.720] Thank you also, we have to say, Bert Jones is in the room
+- [17:18.930] and Bert is your lieutenant governor
+- [17:21.040] and he was on this like you would believe.
+- [17:24.110] Thank you very much. I see you sitting there.
+- [17:26.020] Thank you very much.
+- [17:29.830] So we have state local officials.
+- [17:31.890] We have law enforcement organizations.
+- [17:33.980] We have everybody.
+- [17:35.240] Most of them are in the room or represented in the room,
+- [17:38.180] and they're incredible people.
+- [17:39.560] And I've never seen them come together
+- [17:41.560] like they have for this.
+- [17:42.840] I've done many of these, not of this kind,
+- [17:45.500] but different bills, different passages,
+- [17:47.450] having to do with many different things,
+- [17:49.320] from Homeland Security to inner security to taxes,
+- [17:54.740] to 50 different items.
+- [17:56.750] I've never seen such support as you have today
+- [18:01.430] and as your great daughter has today.
+- [18:03.550] So I've never seen anything like it,
+- [18:04.980] and we have to thank your daughter for that
+- [18:08.520] because she's going to save a lot of lives.
+- [18:10.740] She's going to be responsible for saving a lot of lives.
+- [18:14.430] So I'd like to just say to the angel families,
+- [18:19.920] I've been with them and they've been with me from 2015
+- [18:23.200] when I first got this crazy idea in my head to run for president
+- [18:27.240] because we can do better as a country.
+- [18:29.030] I want to thank so many of the people that are here
+- [18:32.030] that have been the angel moms, and we call them angel moms,
+- [18:35.730] but they're angel families, fathers and sons and daughters,
+- [18:39.720] but they've suffered tremendously like you have
+- [18:43.180] for no reason whatsoever. I want to thank Alexis Nungaray,
+- [18:47.970] the mother of 12-year-old Jocelyn Nungaray
+- [18:51.280] murdered last summer by two illegal alien gang members
+- [18:54.040] released into the United States by Joe Biden's
+- [18:56.920] open-border, stupid policies. And thank you very much, Alexis.
+- [19:01.540] I want to thank you very much. We had an amazing trip
+- [19:05.220] and it was really special to meet you and your family.
+- [19:09.060] Appreciate it very much.
+- [19:11.070] So sad we have to be here, frankly.
+- [19:13.850] And Jocelyn, as you know, is in our hearts as she was then.
+- [19:16.740] It was an amazing day. We had a great day,
+- [19:19.780] but it was a day of celebration of somebody
+- [19:22.010] that unfortunately won't be with us.
+- [19:24.620] But she is with us now, you know that.
+- [19:27.110] Here also is Patty Morin,
+- [19:28.900] the mother of Rachel Morin killed two years ago
+- [19:31.580] by an illegal alien who was led into our country
+- [19:34.340] by the last administration's ridiculous,
+- [19:37.160] weak policies, open border.
+- [19:39.270] Can you imagine?
+- [19:40.540] When I heard open border, I said, oh, that's terrible.
+- [19:42.880] They're going to release their prisons all over the world.
+- [19:45.800] They're going to release their prisons into our country.
+- [19:47.890] That's exactly what happened.
+- [19:50.020] Patty is joined by Rachel's brother,
+- [19:52.280] Michael, Rachel's daughter, Clementine and sister-in-law.
+- [19:55.460] Shannon, thank you all for being here.
+- [19:58.210] We appreciate it very much. Thank you very much. Thank you.
+- [20:02.170] With us as well as the loving family of Kayla Hamilton,
+- [20:05.870] a 20-year-old girl murdered in July 2022
+- [20:09.580] by the MS-13 illegal alien gang member who is violent, vicious.
+- [20:14.410] And they knew it and they didn't do anything about it.
+- [20:16.760] And I want to thank you too Kayla's mother, Tammy,
+- [20:20.000] and her grandmother Kathy and her stepfather, Jeremiah,
+- [20:25.020] very much.
+- [20:26.620] And finally, I want to thank others
+- [20:29.710] who have also suffered this horrible scourge
+- [20:34.440] that goes on with young people being killed
+- [20:37.080] and other people too,
+- [20:38.370] but largely young people being killed.
+- [20:41.830] Thank you to Scott Root the father of Sarah Root,
+- [20:44.860] killed at 21 years of age.
+- [20:48.450] Think of that, 21 by an illegal alien.
+- [20:50.580] Shouldn't have been in our country,
+- [20:52.050] would've never been in our country if we were here.
+- [20:55.870] What a sad thing.
+- [20:57.170] To each of these Angel families, we love you
+- [20:59.900] and we stand in awe of your courage and your strength.
+- [21:02.750] It's the toughest thing anybody has to go through.
+- [21:05.580] Many of the Angel families here today
+- [21:07.310] were betrayed by the last administration
+- [21:09.810] and with this heartless and foolish
+- [21:13.500] and really very, very arrogant and very, very dumb policies.
+- [21:21.090] Policies that aren't even believable
+- [21:23.180] when you talk about common sense.
+- [21:25.190] I say we're a party of common sense,
+- [21:26.930] but the Democrats also they have plenty of common sense
+- [21:30.190] and that's why so many are here today.
+- [21:32.700] And so many supported what we were doing
+- [21:34.270] in the very government
+- [21:35.920] that was supposed to protect their daughters,
+- [21:38.170] instead opened our borders
+- [21:39.780] and transported the world's most dangerous criminals
+- [21:42.360] straight into their communities. They came from prisons and jails
+- [21:46.410] and insane asylums and mental institutions
+- [21:49.170] from all over the world, not just South America.
+- [21:51.550] People think South America, they come from all over the world.
+- [21:55.360] They come from every continent.
+- [21:57.690] And they came here by plane and they were loaded onto buses
+- [22:00.880] and they were driven right up to our border,
+- [22:02.890] and they drove right through the border
+- [22:04.780] and nobody even said a word to them.
+- [22:07.190] And in those buses and those cars and those trucks
+- [22:10.010] were some of the meanest criminals anywhere in the world.
+- [22:13.770] As of last September, 425,
+- [22:16.440] 000 illegal alien criminals were roaming free,
+- [22:19.620] including 13,099 convicted illegal alien murderers
+- [22:24.800] of which about almost 50% killed more than one person.
+- [22:28.330] And they were roaming all over the country,
+- [22:30.180] in our farms, in our cities. Under the Trump administration,
+- [22:34.570] we're moving with urgency and speed
+- [22:36.430] to get these vicious and violent criminals
+- [22:38.660] the hell out of our country.
+- [22:40.500] And to restore law and order to our suburbs,
+- [22:42.830] our cities, and our towns.
+- [22:44.090] And we're going to do it with Tom and with Christie
+- [22:46.560] and with all of the people that are working so hard on this.
+- [22:49.790] This week compared to a comparable time a year ago,
+- [22:53.220] think of this, the number of illegal border crossings
+- [22:56.100] has already fallen by more than 100%.
+- [22:59.610] And because the election was coming,
+- [23:02.500] they started getting a little bit tougher on the border.
+- [23:04.730] They tried to follow our policies
+- [23:07.080] and they did much better, but it still was horrible.
+- [23:10.150] The numbers were still horrible. So that's 100% over those.
+- [23:13.150] They only did it because of the election.
+- [23:14.730] So they knew what they were doing was wrong.
+- [23:18.710] And those who do cross the border,
+- [23:22.640] and you're seeing that every time,
+- [23:24.380] all you have to do is turn on your television set
+- [23:26.650] or pick up a newspaper, read any form of new media
+- [23:31.050] because we have a lot of new media today fortunately,
+- [23:34.100] that's letting the word get out.
+- [23:35.590] But they're watching these people be captured
+- [23:38.500] and removed from our country.
+- [23:39.970] ICE arrests have risen by 15 times in just a short period.
+- [23:46.210] And over the past eight days,
+- [23:47.690] the heroes of ICE and Border Patrol,
+- [23:50.290] we can never forget Border Patrol.
+- [23:51.910] Those people have gotten to know so many of them.
+- [23:55.190] Our border czar, as you remember,
+- [23:56.620] never went to the border and never made a phone call.
+- [23:58.740] She was the border czar, she never made one phone call.
+- [24:01.960] They went to the heads of border,
+- [24:03.860] they went to the heads of ICE, did you ever get a call?
+- [24:05.850] No. And she admitted she never made one call,
+- [24:08.550] but she was the border czar.
+- [24:10.480] And that's exactly what our border was all about.
+- [24:12.600] The heroes of ICE have arrested thousands
+- [24:15.410] and thousands of illegal alien criminals,
+- [24:17.580] including hundreds of gang members, traffickers,
+- [24:20.230] child predators, terrorists, and murderers.
+- [24:23.630] For the first time in history we're loading dangerous
+- [24:26.290] and illegal aliens into military aircraft
+- [24:29.410] and flying them back to the places from which they came.
+- [24:32.760] You probably read about Colombia two days ago.
+- [24:35.250] They said, "No, we're not taking them."
+- [24:36.780] I said, "You're going to take them.
+- [24:39.590] You're going to like it too."
+- [24:49.080] They talked about we're not going to take people
+- [24:51.010] that are in shackles.
+- [24:52.250] I said, "Well, but the people that are in shackles
+- [24:54.430] are murderers. They're drug lords.
+- [24:56.810] They're rapists. They're very tough people."
+- [25:00.450] They make our criminals look like very nice people.
+- [25:02.970] That's about the only thing that comes out of this.
+- [25:04.960] And I said, "Could you imagine you're a pilot on the plane
+- [25:07.790] and you have your co-pilot and you're sitting there
+- [25:09.640] and you have 150 people, no shackles
+- [25:13.850] and they like to murder people.
+- [25:16.480] This would not be a good flight."
+- [25:19.650] So actually, Columbia apologized to us profusely within an hour
+- [25:25.480] based on something I said,
+- [25:27.150] meaning you're going to pay tariffs
+- [25:29.490] like nobody's ever paid tariffs before.
+- [25:31.490] But they actually wanted to terminate his position.
+- [25:37.150] Their essentially Congress met
+- [25:39.770] and they were very angry with them,
+- [25:41.740] but they actually said they were going to send
+- [25:43.670] the presidential plane to pick up these criminals
+- [25:46.430] and to bring them because they didn't want to inconvenience us
+- [25:49.780] or have us do a second flight.
+- [25:51.300] And that's what they did. And I appreciate it.
+- [25:53.940] And I do appreciate the people of Columbia are wonderful people
+- [25:57.060] and the representatives really acted well.
+- [25:59.190] And I appreciated they took back that tough talk.
+- [26:02.080] But we may have tough talk from others,
+- [26:04.240] but it's not going to mean anything.
+- [26:06.000] They're going to all take them back
+- [26:07.370] and they're going to like it too.
+- [26:10.680] They're going to like it.
+- [26:12.030] Today, I am also signing an executive order
+- [26:14.660] to instruct the Departments of Defense and Homeland Security
+- [26:18.620] to begin preparing the 30,000 person
+- [26:21.090] migrant facility at Guantanamo Bay.
+- [26:23.190] Most people don't even know about it.
+- [26:25.750] We have 30,000 beds in Guantanamo
+- [26:30.300] to detain the worst criminal,
+- [26:31.760] illegal aliens threatening the American people.
+- [26:33.940] Some of them are so bad
+- [26:35.170] we don't even trust the countries to hold them
+- [26:37.810] because we don't want them coming back.
+- [26:39.260] So we're going to send them out to Guantanamo.
+- [26:41.850] This will double our capacity immediately.
+- [26:44.910] And that's a tough place to get out of.
+- [26:49.430] Today's signings bring us one step closer
+- [26:51.550] to eradicating the scourge of migrant crime in our communities
+- [26:55.200] once and for all. And it was just an unforced era
+- [27:00.190] that we even have to be doing this.
+- [27:01.730] Now we need Congress to provide full funding for the complete
+- [27:05.840] and total restoration of our sovereign borders,
+- [27:08.630] as well as financial support to remove record numbers
+- [27:11.990] of illegal aliens.
+- [27:13.640] And these are illegal alien killers,
+- [27:16.490] criminals at levels that nobody's ever seen before.
+- [27:20.330] And you would've known that
+- [27:21.570] and you were there when I said it.
+- [27:23.550] I said, everybody that's bad is going to be thrown.
+- [27:26.260] If you look at Venezuela, Venezuela's crime is down 77%
+- [27:31.940] because they've taken their gang members, their prisoners,
+- [27:34.800] their drug dealers, their drug lords,
+- [27:38.050] they've shipped them all into the United States.
+- [27:40.230] Many other countries their crime is way down
+- [27:42.480] and our crime is not doing going well,
+- [27:46.150] but we're going to have it do really well very soon,
+- [27:48.210] and we're shipping all these people back
+- [27:49.930] where they came from.
+- [27:51.480] And now before I sign the Laken Riley
+- [27:53.690] Act into law, I would like to ask
+- [27:55.960] Laken's really incredible mother
+- [27:58.350] I've gotten to know, a very sad day
+- [28:00.680] I got to know her.
+- [28:02.840] But this is an amazing tribute to an amazing young person.
+- [28:06.690] And if you could come up, Allyson, and say a few words,
+- [28:09.730] that would be great. Thank you very much.
+- [28:18.690] Ms. Riley: Thank you. Thank you, President Trump.
+- [28:27.490] The President: You're welcome.
+- [28:29.950] Ms. Riley: We would like to thank Senator Katie Britt
+- [28:32.760] for her diligent bipartisan work
+- [28:35.090] to get this bill through the Senate.
+- [28:37.270] We'd also like to thank Congressman Mike Collins
+- [28:40.030] for his unwavering passion and for leading
+- [28:43.280] on the Laken Riley Act from the start.
+- [28:47.290] Our family will forever be grateful
+- [28:49.020] for the prayers of the people across our nation
+- [28:51.810] and for helping to get this legislation into law.
+- [28:55.340] We also want to thank President Trump
+- [28:57.750] for the promises he made to us.
+- [29:00.030] He said he would secure our borders
+- [29:02.030] and that he would never forget about Laken.
+- [29:06.340] And he hasn't. He's a man of his word,
+- [29:09.590] and we trust that he will fight for the American people.
+- [29:15.570] Most importantly, I want to thank our Lord
+- [29:17.320] and Savior Jesus Christ, because without His sacrifices,
+- [29:21.840] Laken's story would've ended on that horrific day
+- [29:24.250] that she was taken from us.
+- [29:26.630] But because of Him, we can continue living
+- [29:28.690] knowing that we will see Laken again.
+- [29:35.200] There's no amount of change
+- [29:36.410] that will ever bring back our precious Laken.
+- [29:39.690] Our hope moving forward is that her life saves lives.
+- [29:44.610] We're so thankful that her passion for helping others
+- [29:48.140] and her legacy for doing good in the name of Jesus Christ
+- [29:50.910] will carry on. Thank you.
+- [29:53.130] The President: Great job. Thank you. Brave girl.
+- [30:06.730] Why don't you stay right here.
+- [30:17.550] I sign this in honor of Laken Riley.
+- [30:24.550] Come on up here, some of the people
+- [30:26.370] that we love that have been so instrumental.
+- [30:29.780] Okay.
+- [30:44.620] Here we go.
+- [31:06.310] Thank you.
+- [31:07.510] The Press: Mr. President, government funding.
+- [31:09.000] Can you take a quick question on government funding to pause?
+- [31:12.350] The President: I don't think this is appropriate time.
+- [31:13.890] Yeah. The Press: Okay.
+- [31:15.090] The President: I respect that,
+- [31:16.300] but I don't think it's appropriate.
+- [31:18.300] I can just tell you, government is doing very well
+- [31:20.990] and we're cutting way back.
+- [31:22.240] But this is not the appropriate time. Thank you.
+- [31:25.310] Thank you very much.

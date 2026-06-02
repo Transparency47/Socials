@@ -1,0 +1,176 @@
+<!-- source: https://www.youtube.com/watch?v=5WDyfwE1imc -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 5WDyfwE1imc -->
+<!-- date_published: 2025-10-28T11:42:10+00:00 -->
+<!-- date_accessed: 2026-06-02T01:11:59.085722+00:00 -->
+
+# Transcript: President Trump Participates in a Deal Signing
+
+- [00:00.180] Announcer: Ladies and gentlemen, please welcome the 45th and 47th
+- [00:04.170] President of the United States, Donald J. Trump,
+- [00:07.540] accompanied by the United State's Ambassador to Japan
+- [00:10.340] and the United States Secretary of Commerce.
+- [00:14.500] (applause)
+- [00:37.630] Secretary Lutnick: Well, welcome everybody.
+- [00:40.840] I'm incredibly proud to announce that this evening
+- [00:44.570] we're going to be signing $490 billion of investment.
+- [00:57.550] So I'm sorry I let you down. I didn't get to 500 billion.
+- [01:00.530] I came a little short, but we'll get there.
+- [01:04.090] Anyway, so these deals are driven
+- [01:07.070] by the Japanese Strategic Investment Initiative,
+- [01:10.870] which was created by your tariff policy
+- [01:14.800] and by your historic trade agreement with Japan.
+- [01:17.670] So that was the underlying reason
+- [01:21.930] that we were able to get all these deals done today.
+- [01:25.890] So the commitments ensure the economic and national security
+- [01:28.860] of the United States of America.
+- [01:30.600] We're going to be developing energy.
+- [01:32.410] We're going to be developing nuclear, semiconductors,
+- [01:35.630] and strengthening the entire domestic supply chain.
+- [01:38.740] So I'd like to kick it off, right?
+- [01:41.130] And the first company I'd like to announce is Westinghouse,
+- [01:45.160] which will invest up to $100 billion
+- [01:48.770] in nuclear reactors to restore U.S. energy dominance.
+- [01:52.270] And we have the co-signers is bruce Flad,
+- [01:54.730] who's the chairman and CEO of Brookfield Asset Management,
+- [01:57.640] so come on up. Here you go.
+- [02:18.400] (applause)
+- [02:24.460] We're starting with the big deals.
+- [02:25.920] Then we have GE Vernova, also $100 billion
+- [02:30.790] by using nuclear, the construction of SMRs,
+- [02:34.530] and also large-scale power equipment,
+- [02:36.930] such as gas turbines, steam turbines, and generators.
+- [02:40.840] And we have Scott Strazic, CEO of GE Vernova.
+- [02:46.710] (applause)
+- [03:08.525] (applause)
+- [03:11.890] Secretary Lutnick: Next we have Bechtel is doing up
+- [03:15.120] to $25 billion in construction and engineering services
+- [03:19.230] to build these large-scale power
+- [03:21.360] all across the United States of America and Brendan Bechtell
+- [03:24.480] please come on up.
+- [03:43.890] (applause)
+- [03:49.450] Secretary Lutnick: Next up is Kiwit, also $25 billion
+- [03:52.610] in engineering, procurement, and construction services.
+- [03:55.740] Thomas Shelby, come on up, the group president.
+- [04:02.970] (applause)
+- [04:18.970] (applause)
+- [04:21.370] Secretary Lutnick: Next up, someone we know really well.
+- [04:23.930] Masa-san from SoftBank is going to provide $25 billion
+- [04:29.070] of engineering, development, specification, design,
+- [04:31.850] procurement of large-scale power infrastructure in America.
+- [04:37.070] (applause)
+- [04:52.970] (applause)
+- [04:59.270] Secretary Lutnick: Next we have Toshiba,
+- [05:00.980] also up to $25 billion
+- [05:03.290] in U.S. Electrical power modules and transformer.
+- [05:07.990] (applause)
+- [05:27.970] Secretary Lutnick: Enter One up to $25 billion
+- [05:30.440] in large-scale base load power infrastructure.
+- [05:34.460] And this is Wadi Habush.
+- [05:37.880] (applause)
+- [05:53.880] (applause)
+- [05:59.000] Secretary Lutnick: Next we have the Carrier Corporation.
+- [06:01.370] Will build up to $20 billion in thermal cooling systems
+- [06:05.070] and solutions, chillers, air handlers,
+- [06:07.840] and coolant distribution for our power infrastructure.
+- [06:11.720] And with us today is Michael Georges.
+- [06:15.800] (applause)
+- [06:38.800] (applause)
+- [06:41.870] Secretary Lutnick: Now we have Kinder Morgan,
+- [06:43.660] the great pipeline company in America,
+- [06:45.810] is providing up to $7 billion in natural gas transmission
+- [06:49.950] and other power infrastructure.
+- [06:51.410] And we have Kimberly Dang, who's the CEO, with us today.
+- [06:56.000] (applause)
+- [07:06.000] (applause)
+- [07:13.190] Secretary Lutnick: Now this is all moving to AI infrastructure.
+- [07:15.560] Next we have Mitsubishi Electric,
+- [07:17.490] which will build up to $30 billion
+- [07:19.590] in power station systems.
+- [07:21.070] You've got generators, transmission, and equipment,
+- [07:23.860] all for data centers. Keiai OKeiyuma.
+- [07:30.440] (applause)
+- [07:45.725] (applause)
+- [07:50.560] Secretary Lutnick: Next up TDK will build $25 billion
+- [07:53.630] in electronic components and power modules
+- [07:55.830] that are essential for the AI infrastructure,
+- [07:58.610] Noburo Saito.
+- [08:02.340] (applause)
+- [08:21.525] (applause)
+- [08:26.260] Secretary Lutnick: Next up is Fujikura.
+- [08:27.710] We know them, of course,
+- [08:28.980] for making great shafts in golf clubs.
+- [08:31.710] But they also have the best cabling
+- [08:35.180] in the world for AI systems. And they're going to be bringing
+- [08:37.750] that critical optical fiber cables
+- [08:40.150] for the internet to America.
+- [08:42.790] Naoki Okada, who's the president and CEO of Fujikuro.
+- [08:47.970] (applause)
+- [09:01.285] (applause)
+- [09:06.100] Secretary Lutnick: Next, we have Hitachi,
+- [09:07.800] but Hitachi hasn't decided how big they want to be yet,
+- [09:10.880] so they're thinking about it.
+- [09:12.640] But all they have to do is throw in an extra 10
+- [09:17.020] and we'll get there. Tokahashi Tokaona.
+- [09:24.520] (applause)
+- [09:36.975] (applause)
+- [09:40.930] Murata Manufacturing will provide $15 billion
+- [09:44.150] in advanced electronic components.
+- [09:46.780] Norio Nakajima is the president of Murata manufacturing company.
+- [09:52.700] (applause)
+- [10:08.935] (applause)
+- [10:12.720] And lastly, rounding out our $490 billion,
+- [10:15.450] Panasonic will provide $15 billion
+- [10:17.720] to supply energy storage systems
+- [10:20.080] with electronic components, Yuki Kusumi.
+- [10:25.110] (applause)
+- [10:42.855] (applause)
+- [10:50.150] Secretary Lutnick: Not everyone who committed
+- [10:51.710] was able to be here tonight,
+- [10:52.930] but we had one of the most extraordinary groups of people
+- [10:56.310] who've committed to back your tariff moves
+- [10:59.600] and your historic trade deal
+- [11:01.810] to bring amazing infrastructure to America.
+- [11:05.120] And they're all really, really grateful
+- [11:07.120] to be here for you, Mr. President.
+- [11:08.770] The President: I think we just heard that Toyota
+- [11:11.460] is going to be contributing $10 billion
+- [11:14.320] building auto plants throughout the United States,
+- [11:18.500] and they are doing it, I think,
+- [11:20.290] because of the November 5th election
+- [11:22.570] and because of tariffs,
+- [11:24.500] and I was just authorized to make that statement.
+- [11:27.730] And we have another company
+- [11:29.040] that's going to be contributing at least $10 billion,
+- [11:31.370] and I'll give you that name later.
+- [11:32.900] We'll keep it a little bit.
+- [11:34.130] They wanted to do it very quietly,
+- [11:36.100] and that's okay with me. It could be quiet or not quiet.
+- [11:39.610] It's still about, I think, $18 billion.
+- [11:43.080] You're very close to that --.
+- [11:45.460] Secretary Lutnick: 518.
+- [11:46.710] The President: You think about it.
+- [11:48.110] So thank you all very much, great honor.
+- [11:50.780] You're great business people, my friends,
+- [11:53.810] almost all of you are friends and we appreciate it.
+- [11:56.690] And our country will not let you down.
+- [11:59.070] You know, we hit a new high today,
+- [12:00.520] the stock market in history,
+- [12:03.220] and I think we've hit 48 highs since I've been there.
+- [12:05.830] I've only been there nine months,
+- [12:07.740] and we've had 48 highs, so it's really great.
+- [12:10.640] Forty-eight highs and we solved nine wars.
+- [12:12.730] No, eight wars, and another one coming.
+- [12:15.320] I think Russia-Ukraine is coming.
+- [12:17.360] I thought that was going to be the easy one.
+- [12:19.790] We did the Middle East, but we didn't do that.
+- [12:21.480] But we'll get it done.
+- [12:22.980] But it's really a very good feeling to do that,
+- [12:25.370] but we really appreciate it. And you have great companies.
+- [12:28.860] You're phenomenal businesspeople
+- [12:31.140] and beyond businesspeople, honestly.
+- [12:32.850] But thank you all very much.
+- [12:34.220] We appreciate it, and we won't let you down.
+- [12:35.990] Thank you.
+- [12:38.090] (applause)

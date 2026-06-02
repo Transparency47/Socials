@@ -1,0 +1,946 @@
+<!-- source: https://www.youtube.com/watch?v=Ll2R6vKFd_c -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: Ll2R6vKFd_c -->
+<!-- date_published: 2026-02-23T16:31:53+00:00 -->
+<!-- date_accessed: 2026-06-02T02:37:31.142859+00:00 -->
+
+# Transcript: President Trump Participates in Angel Families Remembrance Ceremony
+
+- [00:01.750] Announcer: Ladies and gentlemen,
+- [00:03.060] the President of the United States,
+- [00:04.900] Donald J. Trump.
+- [00:07.660] ♪ (Hail to the Chief) ♪
+- [00:27.430] The President: Thank you very much.
+- [00:29.060] It's a big day, very important day for me.
+- [00:31.980] It should be important for everybody, including the media,
+- [00:36.930] but they don't really cover it fairly.
+- [00:39.380] I will tell you that. It's shocking.
+- [00:41.880] Please, sit down. Thank you.
+- [00:45.330] We're gathered here today for a truly solemn occasion.
+- [00:50.960] Throughout this hall, I am joined by heart-broken Americans
+- [00:56.570] who have lost parents, siblings, children, grandchildren
+- [01:01.780] and treasured loved ones
+- [01:03.390] to the scourge of illegal immigration
+- [01:08.470] let in by the past administration,
+- [01:11.650] millions and millions of people from jails,
+- [01:15.410] millions and millions of people from countries
+- [01:18.000] that we don't want to know about, drug dealers, murderers.
+- [01:23.760] 11,888 murderers were allowed into our country
+- [01:30.360] by the Biden administration.
+- [01:33.220] These are the angel families that we love,
+- [01:37.120] that for decades our government betrayed
+- [01:40.470] and our media totally ignored. And I've seen it.
+- [01:43.700] When I first got involved with the angel families,
+- [01:46.380] I had a meeting.
+- [01:47.630] It was so sad and they got up and spoke
+- [01:50.500] and the media literally just turned off the cameras.
+- [01:52.800] They didn't want to hear them. It was the most --
+- [01:54.360] it was my first glimpse as to what was happening.
+- [01:56.510] These are sick people that cover stories like that,
+- [02:00.630] or that don't cover them, which is worse.
+- [02:03.600] Everyone in this room not only suffered an infinite loss.
+- [02:07.650] They were the victims of politicians
+- [02:10.140] who put the comfort of foreign criminals
+- [02:12.850] before the safety of American citizens and American patriots.
+- [02:17.030] Their stories were censored and suppressed
+- [02:20.830] like maybe almost never before
+- [02:24.640] so that the politicians could open our borders
+- [02:27.050] and allow our nation to be invaded.
+- [02:29.920] If we didn't win the election,
+- [02:32.740] our nation would right now be destroyed.
+- [02:36.090] But under the Trump administration,
+- [02:37.840] their suffering is forgotten no longer.
+- [02:43.520] In just a few moments, I officially sign a proclamation
+- [02:46.630] that I've been waiting to sign for a long time,
+- [02:50.550] including my first administration.
+- [02:53.780] There were so many different legal roadblocks,
+- [02:55.820] it was incredible, but we got it done.
+- [02:58.630] And I'm doing it today.
+- [02:59.890] February 22nd is going to be National Angel Family Day,
+- [03:08.150] very important, so many incredible family
+- [03:11.580] members and friends, parents and children.
+- [03:17.020] On February 22nd, two years ago,
+- [03:19.260] a brilliant 22 year old nursing student named Laken
+- [03:24.060] Hope Riley went out for a run on a college campus in Georgia.
+- [03:30.950] Laken was viciously attacked brutally beaten
+- [03:34.290] and murdered by an illegal alien gang member,
+- [03:38.040] who the last administration heartlessly
+- [03:41.520] released into our country.
+- [03:44.930] No problems, let them in. They let in everybody.
+- [03:49.100] They didn't check anybody. They let in everybody.
+- [03:51.400] Among the first bills I signed into law
+- [03:54.660] after taking office last year was the Laken Riley
+- [03:57.430] Act, so proud of it, to ensure illegal alien criminals
+- [04:01.080] are rapidly removed from the United States of America,
+- [04:04.440] if that's OK with the media.
+- [04:07.350] That bill has already been really playing a big role
+- [04:12.760] in the life of our country,
+- [04:14.490] and it's resulted in over 21,000 illegal alien arrests, 21,000.
+- [04:26.890] We're joined this morning by Laken's parents,
+- [04:29.080] who I have gotten to know. These are incredible people.
+- [04:33.590] And I want to ask Laken's mother, Allyson,
+- [04:35.710] to please come forward and say a few words.
+- [04:39.360] Please. Hi, Allyson. Hi, sweetheart.
+- [04:52.700] Allyson Philips: Well, this is unexpected,
+- [04:53.920] but, um, I think that, um,
+- [05:02.000] a lot of people feel like that President Trump
+- [05:08.190] is maybe different than the version
+- [05:10.750] I've gotten to know and I just can't thank you enough.
+- [05:17.340] You have said from the beginning,
+- [05:19.390] literally the day after this happened,
+- [05:23.180] that you would not forget about Laken.
+- [05:26.490] You weren't president at that time and you have not forgotten.
+- [05:33.860] You have fought a fight that most people would not want
+- [05:39.040] to have to fight. Most people wouldn't.
+- [05:41.750] They would just say it's just easier not to do this.
+- [05:43.970] And President Trump has -- you are doing a thankless job
+- [05:51.060] that most people just wouldn't do
+- [05:55.250] and I just can't thank you enough.
+- [05:59.520] There are just not enough words to say,
+- [06:03.380] because if you've lived the nightmare that we have lived,
+- [06:06.300] you understand the importance of the job
+- [06:08.210] that he's doing in securing our nation
+- [06:10.820] and fighting for our families,
+- [06:14.460] because this could be any family.
+- [06:16.440] This happened to my family.
+- [06:17.900] This could be any one of your families.
+- [06:20.730] And Laken was the most responsible, hard-working,
+- [06:28.980] kind, selfless, beautiful, Christian and she --
+- [06:39.910] she wasn't somebody that put herself in bad positions.
+- [06:42.830] She didn't make bad choices. She was just a good girl.
+- [06:48.730] And she just wanted to go for a run that morning
+- [06:52.920] after she'd gotten up at 4:00 the morning before
+- [06:56.350] to decorate her roommate's door for her birthday.
+- [07:05.720] And she did everything for everyone else.
+- [07:10.120] She expected nothing in return.
+- [07:12.520] She just wanted to be a good friend
+- [07:14.500] and a good sister and a good daughter
+- [07:18.920] and a hard-working nurse, she was working so hard for.
+- [07:23.490] And I'm beyond blessed and thankful
+- [07:27.500] that you're honoring not just Laken,
+- [07:31.310] because she's one in a ton of people
+- [07:34.590] that have suffered at the hands of illegal immigrants.
+- [07:38.000] She's not the only one and so thank you
+- [07:40.710] for honoring all of them, not just Laken,
+- [07:43.700] and we're just beyond grateful.
+- [07:52.080] Thank you.
+- [08:05.540] The President: Thank you very much.
+- [08:07.090] Amazing, Allyson, you have to go through this.
+- [08:11.490] Doesn't get that much easier, does it, right, even with time?
+- [08:14.320] It's been a while now and it doesn't get that much easier.
+- [08:17.450] But I want to thank you for your incredible courage.
+- [08:19.530] We're all -- we're all courageous in a sense.
+- [08:22.850] Everybody in this room is courageous
+- [08:25.290] in we're willing to tell the story
+- [08:26.800] and that I don't know why the news doesn't want to hear it.
+- [08:30.710] The Democrats don't want to hear it, the radical left.
+- [08:32.750] They don't want to hear it. What's not to hear?
+- [08:35.620] We want to stop murderers and criminals
+- [08:37.780] from coming into our country.
+- [08:40.110] I watched the mayor of Minneapolis.
+- [08:43.350] I watch these people saying, we want to protect murderers.
+- [08:46.760] I don't get it. It's something sick, they're sick.
+- [08:49.470] You can't have a country like that.
+- [08:51.590] So we appreciate the bravery of everybody
+- [08:54.060] in this room, actually.
+- [08:56.450] And Kristi, I want to thank you
+- [08:58.000] and I want to thank Tom in particular, for we have --
+- [09:02.510] we have a border that's 100 percent closed now, 100 percent.
+- [09:12.790] So Laken's story is even more tragic
+- [09:15.070] because her death was completely preventable.
+- [09:19.370] It shouldn't have happened. I should never have been here.
+- [09:24.550] Not only should her killer not have been released
+- [09:28.240] into our country in the first place,
+- [09:30.200] but he was released a second time
+- [09:33.020] after being arrested in New York City.
+- [09:37.070] Here today is a great gentleman,
+- [09:40.450] the police officer who arrested that illegal alien,
+- [09:44.160] only to watch him be set free to kill.
+- [09:48.610] I mean, he was arrested and they let him go free.
+- [09:52.130] They knew he was trouble, big trouble.
+- [09:54.380] Many of them are like that.
+- [09:55.700] They release them knowing it's going to kill again,
+- [10:01.580] but they released him and set him free to kill Laken.
+- [10:08.090] So I'd like to have Ethan Curreri come up, please.
+- [10:12.530] He's a great, highly respected police officer.
+- [10:15.360] And you can explain what happened come on up.
+- [10:19.070] Thank you, Ethan. Thank you.
+- [10:26.320] Ethan Curreri: Mr. President, it's an honor to be here today
+- [10:28.690] and it's an honor to be speaking with you guys.
+- [10:31.790] My name is Ethan Curreri.
+- [10:33.550] I'm a police officer in Palm Beach County, Florida
+- [10:36.010] and a former New York City police officer.
+- [10:38.730] While serving the New York City Police Department,
+- [10:40.630] I personally arrested Jose Ibarra
+- [10:42.420] for endangering the welfare of a child.
+- [10:45.030] A few months later, I saw his face again in the news
+- [10:47.900] after he viciously, murdered Laken Riley.
+- [10:51.230] I did my job; I put him in custody.
+- [10:54.180] The system failed, no detainer, no accountability,
+- [10:58.520] no deportation and an innocent American life was taken.
+- [11:03.990] If you enter our country illegally,
+- [11:05.810] there will be consequences under this administration.
+- [11:09.470] The American citizens must always come first.
+- [11:12.960] To Laken Riley's family, your loss should have never happened.
+- [11:16.890] We owe it to you and every American family
+- [11:19.780] to enforce our laws,
+- [11:21.140] secure our border and protect innocent lives.
+- [11:24.540] Mr. President, thank you so much for having me here today
+- [11:27.530] and thank you for all you've done for our country.
+- [11:29.730] Thank you.
+- [11:32.040] The President: Thank you. Great job. Thank you very much.
+- [11:38.960] I notice you left New York to come to Florida.
+- [11:43.920] That's -- in a way, it's too bad, right,
+- [11:45.830] but you couldn't -- you couldn't take it anymore.
+- [11:49.780] They don't let you do your job.
+- [11:52.600] But thank you very much, Ethan, a great --
+- [11:55.620] great, highly respected person.
+- [11:58.350] Have to do a little check-in before I introduce people.
+- [12:00.470] Otherwise, I get in trouble. Sometimes I introduce people
+- [12:03.940] and they say, sir, did you know this or that?
+- [12:06.400] But you checked out very, very well.
+- [12:08.720] Wow. Stories like Laken's are one more reason
+- [12:13.240] why my administration will do everything in our power
+- [12:15.740] to end the scourge of sanctuary cities once and for all.
+- [12:19.760] They protect criminals.
+- [12:20.980] Why does -- why do people fight?
+- [12:23.220] They protect criminals with a vengeance.
+- [12:25.890] They fight for these criminals like murderers.
+- [12:28.750] They're protecting murderers. They fight for them so hard.
+- [12:32.270] I can't -- there's something wrong with them.
+- [12:35.790] We're joined today by so many angel families
+- [12:40.420] who are grieving a terrible loss.
+- [12:42.030] They've gone through hell.
+- [12:44.410] Steve Ronnebeck was the father of 21 year old
+- [12:49.140] Grant Ronnebeck, beautiful,
+- [12:52.360] a beautiful guy who was shot and murdered by an illegal alien
+- [12:56.270] while he was working behind the counter
+- [12:58.230] of a convenience store in Arizona.
+- [13:00.040] He was working behind the counter.
+- [13:02.730] Steve would you please -- please come forward.
+- [13:07.780] We'll talk about your boy.
+- [13:12.430] Thank you very much.
+- [13:13.670] Steve Ronnebeck: Thank you, Mr. President.
+- [13:14.900] Good to see you. You know, I spent some time
+- [13:18.240] with President Trump in his first election.
+- [13:21.480] President Trump talked about
+- [13:22.810] Grant even before he was elected in 2016.
+- [13:28.000] And finally, um, we had hope.
+- [13:32.910] We had hope that that it was going to end.
+- [13:36.120] Um, I was just talking to Secretary Noem,
+- [13:39.410] that we all sat around a table one day
+- [13:45.180] during one of our visits to Washington.
+- [13:47.620] And again, the word preventable came up.
+- [13:51.310] All these deaths at the hands
+- [13:53.040] of illegal immigrants are preventable.
+- [13:57.170] They could have been stopped. We could have done so much more.
+- [14:00.890] And unfortunately, at the hands of an election that we question,
+- [14:08.740] somebody took their foot off the brakes
+- [14:12.010] and put their foot on the accelerator
+- [14:14.740] to let these people into our country.
+- [14:16.850] And it wasn't just regular people.
+- [14:20.330] It was criminals, it was murderers, killers, rapists.
+- [14:24.600] And now, now today, we are finally going to see
+- [14:30.880] that somebody is going to remember all of our loved ones.
+- [14:34.110] They're going to remember the names
+- [14:36.080] and they're going to remember what we've all been through.
+- [14:38.980] Thank you, Mr. President.
+- [14:48.320] The President: And think of it --
+- [14:49.640] I'm not talking politics, I'm just talking life.
+- [14:53.800] If that election, if it wasn't rigged,
+- [14:55.490] it was a rigged election by millions and millions of votes,
+- [14:58.810] a guy that never left his basement.
+- [15:00.370] It was all run by crooked people.
+- [15:03.140] COVID was a little bit of a shield.
+- [15:05.550] We had a lot of things going on,
+- [15:08.610] but it was rigged by millions of votes.
+- [15:10.180] We did great in that election. If that election wasn't rigged,
+- [15:15.150] every single one of the people in this room
+- [15:19.760] right now would not be here.
+- [15:21.870] You'd be home with your son, daughter, family.
+- [15:26.830] We had a strong border.
+- [15:28.090] You know, we solved it, twice, Tom. We solved it.
+- [15:31.580] At 2016, the border was bad, nothing like it was this time.
+- [15:35.090] It was like beautiful compared to this time.
+- [15:37.670] This was legendary -- in the history of the world,
+- [15:40.270] has never been a border like this
+- [15:41.500] where millions of people poured in,
+- [15:43.410] at least 25 million people.
+- [15:46.240] And many of them were the wrong people, many.
+- [15:49.770] You know, when countries fill up the caravans,
+- [15:53.020] they don't fill them up with their finest.
+- [15:57.360] I wouldn't. And I would do exactly what they did.
+- [16:00.150] If the United States would be willing
+- [16:01.760] to take all of our criminals and people,
+- [16:03.820] or people that don't work, but they are smart people.
+- [16:07.540] I got to know most of those leaders.
+- [16:09.160] I know them. I said, what are you doing?
+- [16:10.460] They said, look, it was a totally open border.
+- [16:13.130] They saved hundreds of millions of dollars
+- [16:16.810] and they gave it to us and we've done a great job.
+- [16:19.500] Tom Homan, Kristi Noem, our people have been incredible,
+- [16:24.180] the job they've done. And they take nothing but abuse,
+- [16:28.010] but, you know, they're sort of pretty hardened to that,
+- [16:30.790] I think, because they know they're doing the right thing.
+- [16:34.670] It just amazes me that there's not more support out there.
+- [16:38.650] It's just -- we actually have a silent support.
+- [16:41.750] I think it's silent.
+- [16:43.010] I think it's a -- that's how I won.
+- [16:44.510] I got probably 85 million votes. They say 78 million, 79 million.
+- [16:50.750] They cheated in this election too.
+- [16:52.110] It was just too big to rig, too big to rig.
+- [16:56.080] But they cheated like hell.
+- [16:59.160] They can't win on policy, men in women sports.
+- [17:03.680] We have a new one though, voter ID.
+- [17:06.200] I think that's as crazy as -- they won't approve voter ID.
+- [17:11.760] They won't approve proof of citizenship.
+- [17:14.810] They won't approve no mail-in ballots,
+- [17:18.020] even though they know it's crooked as hell,
+- [17:20.550] where the ballots are sent to, in many cases, Democrats.
+- [17:25.790] Republicans don't get theirs
+- [17:27.170] and they're calling frantically to get their ballot.
+- [17:29.760] A Democrat will get three, four, five, six and even seven ballots
+- [17:34.220] and then we're supposed to win.
+- [17:35.810] That's what they're good at. They're professional cheaters.
+- [17:40.660] But we wouldn't be here right now.
+- [17:41.880] I'm just thinking as we -- as we're going through,
+- [17:43.630] because we've suffered through it together.
+- [17:46.050] I suffer for the country. I mean, it's --
+- [17:51.060] the people I've gotten to know,
+- [17:52.410] the mothers and fathers, mostly mothers and fathers,
+- [17:55.980] husbands in some cases, wives in some cases,
+- [17:58.510] but mostly mothers and fathers, what they have to go through.
+- [18:02.380] Also with us is Marie Vega, the mother of Javier Vega Jr.,
+- [18:08.760] a retired US Marine and Border Patrol agent,
+- [18:11.740] so respected, who was murdered in front of his family
+- [18:15.910] by two illegal aliens, bad ones, really bad ones,
+- [18:20.140] people you could look at them and you could say trouble,
+- [18:24.460] trying to steal his family's trucks.
+- [18:27.660] They wanted -- he wanted to take everything the family had,
+- [18:31.630] but the trucks in particular. Marie, please come forward.
+- [18:35.800] Thank you, darling. Thank you.
+- [18:42.380] Marie Vega: Thank you.
+- [18:45.410] President Trump, on behalf of my family and I,
+- [18:48.720] thank you for hosting this beautiful remembrance
+- [18:51.940] in honor of our loved ones who were killed by illegal aliens.
+- [18:57.060] As you said, August the 3rd, 2014,
+- [18:59.630] my husband Javier, my son, Marine and Border Patrol agent,
+- [19:03.300] Javier "Harvey" Vega, his wife, two of his sons and a friend
+- [19:09.080] and I were fishing in Santa Monica, Texas.
+- [19:12.920] Within minutes of settling in,
+- [19:14.830] we were ambushed by two illegal aliens with many priors.
+- [19:20.480] Without warning,
+- [19:21.690] they jumped out of their stolen vehicle with guns
+- [19:26.090] that were not supposed to be in their possession
+- [19:29.450] in an attempt to steal two four-wheel-drive vehicles.
+- [19:34.920] While trying to defend us,
+- [19:40.990] Harvey was shot in the chest and killed.
+- [19:45.740] My husband, Javier Senior, was shot in the back.
+- [19:49.870] Remember you all,
+- [19:51.280] children were there fishing with their friends,
+- [19:55.270] and they just kept shooting.
+- [19:57.110] You could hear the bullets just whizzing past you.
+- [20:03.190] Javier Senior returned fire with this weapon
+- [20:06.590] and I grabbed the AR that Harvey had attempted to defend us with,
+- [20:12.980] and I returned fire as well.
+- [20:15.660] Had we not fired back,
+- [20:17.860] they would have killed everyone there,
+- [20:19.780] including the children, so that there wouldn't be any witnesses.
+- [20:26.230] And they killed an amazing man,
+- [20:28.660] a loving and honorable dad and husband.
+- [20:34.920] Thank God we have you in office.
+- [20:37.760] Without you, America and the world
+- [20:39.750] would not know the consequences of open borders.
+- [20:45.150] Thank you for restoring law and order.
+- [20:48.130] Thank you for acknowledging us, the angel families.
+- [20:52.440] Every day, I think of you and the heavy weight of a nation
+- [20:56.450] that you carry with you.
+- [20:58.150] I can't imagine what it must be like to wake up every morning,
+- [21:03.890] work so diligently amid attacks and resistance from the left,
+- [21:09.730] to deal with the craziness, the fraud and the swamp.
+- [21:14.440] But you get it done day in and day out,
+- [21:17.650] all while finding solutions to making America great again.
+- [21:22.460] You absolutely amaze me.
+- [21:25.540] Please know that we see it and we,
+- [21:28.800] the masses, your constituents, are behind you, 100 percent.
+- [21:34.290] When you were elected the first time
+- [21:36.900] for the first term as president, I remember saying to my boss,
+- [21:40.990] this is exactly what this country needed, a businessman.
+- [21:46.370] You did an outstanding job then
+- [21:48.620] and although you were cheated out of the second term --
+- [21:51.700] by the way, you won that election as well and we know it.
+- [21:56.890] I knew the third term was going to be epic
+- [22:00.610] and here we are, MAGA. Before I end this,
+- [22:04.810] I have to share a sweet story with you about my daddy.
+- [22:09.080] He absolutely hated the way people treated you
+- [22:12.090] and attacked you.
+- [22:13.810] On your third run for office, he said to me, mijita,
+- [22:17.530] which means my little daughter in Spanish,
+- [22:21.110] can you check to see if I'm up-to-date
+- [22:23.290] and still registered to vote,
+- [22:25.620] we need to make sure President Trump gets into office.
+- [22:30.100] I said, of course, daddy.
+- [22:33.130] And I did and I checked and he was registered to vote.
+- [22:36.930] We lost a great man April the 3rd of 2025,
+- [22:41.580] and that would be my daddy.
+- [22:43.490] The President: Again, thank you for everything.
+- [22:46.020] Thank you for backing Border Patrol and ICE
+- [22:48.680] and backing these families.
+- [22:50.760] Thank you so much. Thank you, darling.
+- [22:54.180] Marie Vega: I love you.
+- [23:00.410] The President: So beautiful.
+- [23:02.640] You know, I was thinking as you were saying
+- [23:07.530] that running again for a third time after having gone
+- [23:12.270] through what we went through the second time,
+- [23:13.910] which was so horrible, so much cheating, so much --
+- [23:18.590] so much deception and viciousness.
+- [23:22.650] And you could see what they were going to do.
+- [23:25.270] And I'm here now and it's a much more powerful term
+- [23:27.920] than my second term would be and -- much more powerful.
+- [23:32.140] And one of the reasons is everybody sees
+- [23:34.020] how bad they were. And I had to go through,
+- [23:37.120] and I still do, fake stories, fake polls.
+- [23:39.970] And I had polls for the election that showed
+- [23:42.900] I was going to get swamped and I won in a landslide.
+- [23:45.240] They were fake polls, because polls are tough.
+- [23:47.920] You know, when you get a fake poll.
+- [23:49.400] I get them today.
+- [23:50.630] I saw one today that I'm at 40 percent, 40 percent.
+- [23:54.550] I'm not a 40 percent. I'm at much higher than that.
+- [23:58.020] I mean, I'd love to run against anybody.
+- [24:00.390] The real polls say, you kill everybody,
+- [24:02.750] it wouldn't even be close,
+- [24:04.350] but you go through the fake polls,
+- [24:06.260] you go through the fake stories.
+- [24:08.600] And I said, you know, it was good
+- [24:10.610] because this is really a much more powerful term
+- [24:14.380] than I would have had if I had run
+- [24:16.040] because it was just one of those things.
+- [24:18.710] There would be nothing to compare it to.
+- [24:21.070] And now they compare it to Biden
+- [24:24.130] and that horrible, horrible administration.
+- [24:26.800] And I mean it, it is more powerful.
+- [24:28.710] Our military is much more powerful.
+- [24:30.430] We rebuilt it mostly in the first term,
+- [24:32.310] then they gave away a chunk of it.
+- [24:34.620] And as much as it was, it's very small relatively, Tom,
+- [24:38.280] but we gave it to the Taliban, just walked out.
+- [24:40.970] We could have taken it with us. They said, oh,
+- [24:42.580] I think it's cheaper to leave the planes.
+- [24:44.610] Just put a little jet fuel
+- [24:45.880] and fly it to a neighbor or fly it right home.
+- [24:48.670] Sir, I think it's cheaper. I think we'll save money
+- [24:51.390] by leaving $150 million jet on the runway.
+- [24:54.870] These people are crazy.
+- [24:57.460] But I said, and I've said to a lot of people,
+- [25:00.710] it's much better what happened.
+- [25:02.490] But not for you people, it's not.
+- [25:04.680] And then I go back and say, but I wish it didn't
+- [25:06.670] because every one of your loved ones would be alive today.
+- [25:11.300] Everyone in this room. I think every --
+- [25:12.690] maybe there's one where could have
+- [25:14.370] sneaked through during our term, but I don't think so.
+- [25:17.450] We had a very tough border. We had -- you know,
+- [25:19.300] we solved it in 2016 and we had a very strong border.
+- [25:22.850] I would say nothing is as strong as --
+- [25:25.880] as what we have now, but -- but we had a very strong border.
+- [25:28.640] We had a good border. We had a sane border. It was sane.
+- [25:32.340] And I say I like this much better, much more respect.
+- [25:40.480] You know, you read about all these crazy shooters,
+- [25:44.070] but they only go after consequential presidents.
+- [25:46.530] They don't go after non-consequential presidents.
+- [25:49.120] You know, if you take a look, Abraham Lincoln, some big one.
+- [25:54.720] John Kennedy, in a certain way, was very consequential.
+- [25:57.470] He represented something very important.
+- [26:00.160] He was there for 1,000 days, as you know, the book,
+- [26:02.570] A Thousand Days. But he was consequential.
+- [26:05.570] It was a glamor.
+- [26:07.180] There was something good for our country, right?
+- [26:10.510] But they consequential and, uh -- I was told that.
+- [26:15.360] I saw that.
+- [26:16.680] The other day, they said they only go after consequential.
+- [26:20.100] So maybe I want to be a little bit less consequential.
+- [26:22.110] Can we hold it back a little bit, please, Tom?
+- [26:24.470] Can we just like nice and easy?
+- [26:26.780] Let's be a normal president for a little while,
+- [26:29.180] because we had the greatest first term,
+- [26:30.730] I think of any president in history.
+- [26:32.340] A lot of people have said that.
+- [26:33.610] Even radical left people have said that.
+- [26:37.000] And so it's, you know -- but the one problem is that --
+- [26:41.060] and every time I say it, I go back to the one thing.
+- [26:44.030] I said, but we wouldn't have had 25 million people
+- [26:47.260] allowed to come into our country
+- [26:48.630] totally unchecked, totally unvetted.
+- [26:51.610] And those are the people that destroyed your lives.
+- [26:56.400] They destroyed your lives. They wouldn't be there.
+- [26:58.400] So I always say I like it better,
+- [27:00.340] but there's one thing I don't like better
+- [27:02.610] and that's what they did.
+- [27:04.300] Because I think that's the single biggest problem.
+- [27:06.210] You know, he gave us inflation,
+- [27:07.460] highest inflation we've ever had.
+- [27:09.350] I solved that. Right now, inflation is at a low --
+- [27:12.170] very low number.
+- [27:13.790] How about gasoline? I was in Iowa, $1.85 a gallon.
+- [27:17.720] You know, I solved that. I did a great job with that.
+- [27:20.130] Prices are coming way down and I'll get them down further.
+- [27:23.000] But you know -- no matter -- by the way,
+- [27:26.040] if I came up with a cure for cancer,
+- [27:30.400] they would say, he should have done it years ago.
+- [27:33.390] There is not a thing I can do
+- [27:34.910] where these people are going to give me credit.
+- [27:36.630] And that's okay because we won in a landslide,
+- [27:38.570] so the people understand. People understand.
+- [27:42.190] But the one thing that I regret about the election
+- [27:45.010] and the process,
+- [27:46.300] because it's a much bigger, more important --
+- [27:48.490] you look at what we're doing throughout the world,
+- [27:50.440] we're respected like we've never been before.
+- [27:53.380] But the one thing that I can't do anything about
+- [27:57.840] is that he allowed 25 million people,
+- [28:00.990] many of these murderers, drug lords, criminals,
+- [28:04.020] people from mental institutions --
+- [28:05.740] they emptied their mental institutions,
+- [28:07.690] Tom, is that right, all over the world,
+- [28:09.810] not just in South America.
+- [28:12.220] They emptied their jails,
+- [28:14.110] many of them from all over the world.
+- [28:16.130] Why? Why? Why would we do this. And they walked in.
+- [28:19.260] Nobody even asked for, like, do you have an identification,
+- [28:23.660] do you have an ID? It's so crazy.
+- [28:28.760] You know, the mayor of New York, and he's a very nice person.
+- [28:31.700] I met him, but he's -- his ideology is not --
+- [28:33.770] not too good.
+- [28:35.420] But we're having a massive snowstorm right now.
+- [28:39.460] And I heard that he's asked people to come out
+- [28:43.880] and help shovel the snow. OK.
+- [28:47.180] So you get a shovel and you start shoveling, right?
+- [28:49.550] What the hell, you're not going to help too much,
+- [28:51.260] but you can help.
+- [28:52.500] And -- hello, darling, how are you?
+- [28:54.680] No, right behind you, look.
+- [28:58.880] Are you okay? Yes, you. Are you okay? Are you okay?
+- [29:02.100] Patty Morin: I'm (inaudible) very well.
+- [29:03.440] I just want to give you a hug when this is all over.
+- [29:05.470] The President: Good, good. Are your eyes okay?
+- [29:10.510] I gave her money to get her eyes fixed,
+- [29:12.580] a lot of money to get her eyes fixed.
+- [29:14.710] That doctor ripped me off, but that's okay.
+- [29:18.760] And when do you go?
+- [29:20.630] Patty Morin: Wednesday, I go (inaudible)
+- [29:22.300] postponed because they said the grief caused me
+- [29:26.380] to have two heart attacks.
+- [29:27.990] The President: Well, you get them done.
+- [29:29.190] It's a pretty -- it's an operation but it's a --
+- [29:32.300] it's -- it's 100 percent. You know, it's great.
+- [29:35.040] Patty Morin: It's Wednesday.
+- [29:36.250] The President: Good.
+- [29:37.470] You're going to have 20/20 vision.
+- [29:40.460] She's almost blind, cataracts.
+- [29:42.010] She's almost blind and with one operation,
+- [29:45.810] that will take a very short period of time.
+- [29:47.730] Hope you have a good doctor.
+- [29:50.030] He's an expensive -- he's an expensive doctor,
+- [29:52.430] top of the line, right?
+- [29:53.830] But you know what, you're going to have 20/20 vision,
+- [29:56.590] because I noticed you're wearing glasses.
+- [29:58.200] I saw you yesterday on television wearing glasses
+- [30:00.390] and I said, wow.
+- [30:01.710] But anyway -- but you know, speaking of your family,
+- [30:05.930] it would be a lot different right now
+- [30:07.340] except for the election.
+- [30:08.630] So I always say, it's too bad that happened.
+- [30:13.970] And if I had it to do again,
+- [30:15.400] despite the tremendous job we're doing now
+- [30:18.640] I wish it could have been the other way
+- [30:20.230] because we wouldn't even be having this meeting right now.
+- [30:22.600] There'd be nobody. I wouldn't have gotten to know you,
+- [30:25.680] but it's gotten to know you under very bad circumstances.
+- [30:28.280] Right? The worst circumstances. So one of those things.
+- [30:35.360] But the thing I can't understand
+- [30:37.150] is why the press isn't more supportive.
+- [30:41.640] They're so dishonest, the stories, the polls.
+- [30:45.120] They polled you, they say, oh, the angel moms.
+- [30:48.480] I think the angel moms are the finest people I've met.
+- [30:50.700] I mean the angel moms and families and dads,
+- [30:54.450] but these are unbelievable people.
+- [30:56.020] What's to be -- why are they so angry with angel moms?
+- [31:00.650] They had their child killed, stories that are so horrible
+- [31:03.690] I'm not going to mention,
+- [31:04.900] a couple of people are in the room,
+- [31:07.000] what they did with the child after they murdered the child.
+- [31:10.200] It's not even -- and these people are actually
+- [31:13.520] on the side of the criminal.
+- [31:14.790] I don't get it, Tom.
+- [31:16.310] Someday you're going to explain it to me,
+- [31:19.020] but I don't think you can either.
+- [31:21.170] It's crazy.
+- [31:22.830] Laura Wilkerson is another American mom
+- [31:27.880] whose 18 year old son, Joshua --
+- [31:31.110] Joshua was horribly beaten, tortured and murdered
+- [31:34.150] by an illegal alien who went totally crazy.
+- [31:38.530] And he just went to school. And I'd like to ask Laura
+- [31:44.210] to come up and say a few words about Joshua.
+- [31:48.300] Please.
+- [31:49.520] Hi, another one of my friends, one of my original friends,
+- [31:54.100] right? (inaudible)
+- [31:55.790] Laura Wilkerson: Yeah. Thank you (inaudible)
+- [31:57.010] thank you. Thank you so much for having me today.
+- [32:00.790] My name is Laura Wilkerson,
+- [32:03.450] and I want to thank everybody for their help
+- [32:05.330] in gathering us here,
+- [32:06.560] the American Border Story and the White House
+- [32:09.680] and all of your helpers. I thank you for that.
+- [32:14.440] I met a man about 11 years ago, who was running for office.
+- [32:19.960] And he sat with us a couple of days
+- [32:24.140] and he watched as the tears rolled down my face,
+- [32:27.630] as I told him the story of how our youngest son, Joshua,
+- [32:31.600] was brutally beaten, tortured,
+- [32:35.130] strangled to death and his body set on fire.
+- [32:41.250] The man next to me was President Trump.
+- [32:45.040] He never ever looked away from my pain.
+- [32:48.880] He looked me straight in the eye and he said,
+- [32:51.620] I will never forget the story of your sweet son
+- [32:56.940] and I will never give up fighting
+- [32:59.640] for the American family.
+- [33:02.290] I looked at him and I believed him.
+- [33:05.250] And here we are these years later
+- [33:07.090] and you can tell all of the work he's done.
+- [33:08.990] He's never missed a day of fighting
+- [33:11.550] for the American family.
+- [33:13.620] I don't know if I've ever met a man
+- [33:14.970] who is more interested in this country
+- [33:16.620] and running his country and getting it back in shape.
+- [33:19.450] And I'm so grateful for what he does every single day.
+- [33:24.120] I can't even pretend to understand
+- [33:27.120] the spiritual battles that swirl
+- [33:30.060] around the office of the presidency
+- [33:33.020] and the man who owns that office.
+- [33:35.980] I would ask that God breathe a fresh breath of air
+- [33:39.450] through this administration so that he can calm that --
+- [33:44.410] those spiritual battles and allow our president
+- [33:47.340] to continue to do the hard work.
+- [33:50.590] Jesus works on my family every day,
+- [33:52.590] still healing us today.
+- [33:54.650] And I am just so incredibly grateful
+- [33:57.710] for the man who's in office, who never quits.
+- [34:00.730] He is sidelined so many times, but we know the man,
+- [34:04.710] Jesus, who can take care of that and we pray today, in his name,
+- [34:09.450] that he will sweep through this country
+- [34:11.530] and make it right again.
+- [34:12.920] Thank you so much for having me.
+- [34:14.680] The President: Thank you. That was beautiful.
+- [34:22.970] Well, I just want to thank you. That's amazing.
+- [34:25.170] The words are so beautiful, so beautiful.
+- [34:29.800] I get introduced often and I'm getting introduced by people,
+- [34:33.200] in many cases, they hate me
+- [34:35.840] and they don't give me nice introductions like that.
+- [34:38.820] But all we're doing is the right thing.
+- [34:40.240] It's sort of simple, right?
+- [34:41.820] It's sort of simple. And but not simple for you.
+- [34:46.500] And that's when I was running, actually. That was before I won.
+- [34:49.410] You know, I didn't know if I was going to win or not.
+- [34:51.280] I was running against 17 politicians. You knew.
+- [34:54.370] Laura Wilkerson: I knew.
+- [34:55.760] The President: That's nice.
+- [34:57.240] But no, I never -- I never forgot that.
+- [35:01.510] Jody Jones is a loving brother,
+- [35:05.220] whose cherished sibling Rocky was killed
+- [35:07.670] by an illegal alien monster, monster, a real monster,
+- [35:11.580] who went on a deranged crime spree
+- [35:13.430] after being released from prison
+- [35:14.930] as part of a California sanctuary city policy.
+- [35:21.960] Thank you very much, appreciate it.
+- [35:31.300] Jody Jones: Well, I have the speech,
+- [35:32.540] but I'm not going to give it.
+- [35:36.110] What I'm going to tell you is from my heart.
+- [35:38.700] I want to thank my Lord and Savior Jesus Christ,
+- [35:42.010] first of all, before I do anything.
+- [35:44.290] I want to thank the American Border Story
+- [35:47.060] and I absolutely want to thank President Donald J. Trump.
+- [35:52.150] Thank you, sir, for putting America first
+- [35:54.470] and putting these angel families first
+- [35:56.200] and letting everybody know their stories,
+- [35:58.530] because we matter.
+- [36:01.110] Thank you, sir. My brother, Rocky Jones,
+- [36:04.130] was murdered by a criminal illegal, alien.
+- [36:07.510] He was simply at the wrong place at the wrong time.
+- [36:09.290] This man was arrested, released and within 24 hours,
+- [36:14.640] he went on a shooting spree in central California.
+- [36:16.750] And unfortunately, my brother was in the wrong place
+- [36:19.070] at the wrong time.
+- [36:20.410] This man shot my brother eight times at point-blank range.
+- [36:25.600] I pray that no other family has to go through that.
+- [36:28.000] Unfortunately, they will.
+- [36:30.950] And just know -- President Trump,
+- [36:33.250] I want you to know,
+- [36:35.460] no matter what the fake media says about you,
+- [36:39.080] the American people love you
+- [36:40.810] and we will support you all the time because we love you.
+- [36:50.220] I'm sick and tired of hearing these Democratic politicians
+- [36:53.730] stand up on these podiums and say how sorry they are
+- [36:56.950] for seeing these criminal illegal aliens
+- [36:59.110] being ripped apart from their families.
+- [37:01.210] What about us? What about the American family?
+- [37:05.020] What about us? We mean something too,
+- [37:10.290] and this man right here understands it.
+- [37:15.370] I was listening to Grandma Cook
+- [37:18.410] and she said thank you to President Trump.
+- [37:23.660] And I love that lady. I don't even know her.
+- [37:26.430] I just heard her, she -- just --
+- [37:27.770] I just got the fire inside of me.
+- [37:29.250] I'm like, wow, that's an American.
+- [37:32.070] I love America.
+- [37:33.310] I want you guys to understand this, American --
+- [37:37.810] Americans are not racist.
+- [37:41.460] We're not xenophobic because we want a safe America
+- [37:45.080] and we want to put Americans first.
+- [37:47.240] This man's not racist because he wants to put Americans first.
+- [37:51.710] Are you kidding me?
+- [37:54.540] I know you guys hear it all the time, but we are not.
+- [37:58.530] And I'm going to tell you something,
+- [38:01.170] I love America, I love Donald Trump,
+- [38:05.730] I love my family and by gosh, I love America.
+- [38:12.230] Thank you very much, Donald Trump.
+- [38:14.290] President Trump, you are the man.
+- [38:17.970] You are the man. I want to say this --
+- [38:24.480] I'm going to end here. I want to say this.
+- [38:27.290] I love my country. God bless you.
+- [38:31.240] God bless Donald Trump and God bless America.
+- [38:34.180] Thank you.
+- [38:41.620] The President: Beautiful.
+- [38:44.300] Thank you very much. It's incredible.
+- [38:49.270] I want to now introduce somebody that I got to know pretty well.
+- [38:53.400] We just had a little discussion, wonderful mothers, Patty Morin,
+- [38:58.850] who lost her beautiful daughter, Rachel;
+- [39:02.940] and Tammy Nobles, who lost her daughter, Kayla.
+- [39:07.350] Your daughters would be unbelievably proud,
+- [39:10.650] and they are as they look down.
+- [39:11.920] I'm sure they're looking down and they'd be very proud of you
+- [39:15.770] and they're thanking you right now for your courage.
+- [39:17.610] You've gone through a lot. I know you.
+- [39:20.810] And I just have to recognize some of the families.
+- [39:24.600] I mean, the families that are here this morning,
+- [39:27.140] I know many of them, not all of them.
+- [39:30.300] And you know, it grows at a pretty strong level,
+- [39:32.140] nothing like it was in the past.
+- [39:33.590] You remember when during the campaign,
+- [39:35.430] Biden would say -- and then I guess Kamala,
+- [39:38.070] it's the same thing, same ideology,
+- [39:40.390] same level of intelligence, I think.
+- [39:43.300] But she would say, and he would say,
+- [39:45.890] no, no, it's wonderful to have the people
+- [39:49.200] come in to our country, these are fine people,
+- [39:51.950] these are nice people and they don't commit crime.
+- [39:55.140] And I called Tom Homan and I said,
+- [39:56.550] what's the story on that,
+- [39:57.780] because I think they're really violent.
+- [40:00.500] And Tom would say, these are the most violent people
+- [40:02.530] in the world that are coming in.
+- [40:03.730] These make our -- I remember you said,
+- [40:05.640] these make our criminals look like choirboys.
+- [40:09.470] And you know what, you were right.
+- [40:11.540] You were right.
+- [40:13.720] But I want to thank those two people
+- [40:17.110] because of what they went through
+- [40:18.560] and I want to recognize all of the families here
+- [40:21.740] this morning who have lost loved ones.
+- [40:24.180] It's a lot of families.
+- [40:26.020] Thousands are not here and they're feeling
+- [40:29.780] just the way you do, sad, and continue to fight.
+- [40:36.710] You know, they say time helps, but I've seen some people
+- [40:39.980] and the time is not helping that much.
+- [40:43.320] Time, they say, it heals all wounds, but it's not.
+- [40:49.210] Do you feel better now or the same?
+- [40:51.660] You know, you got to feel a little bit better.
+- [40:53.220] You got to (inaudible)
+- [40:54.460] but it's -- it's not like the phrase, wonderful phrase,
+- [40:57.840] time heals, like everything's -- Excuse me?
+- [41:00.540] Unidentified: Good that you're here.
+- [41:01.780] The President: Yeah. Yeah, I know.
+- [41:03.940] We'll continue to fight, though,
+- [41:05.220] and we'll stop this horrible situation
+- [41:08.830] and we have stopped a lot of it. A big thing, you know,
+- [41:11.680] you saw that murders are down for the most --
+- [41:14.670] in 125 years, before my father. My father was born in 1905,
+- [41:19.850] five years before my father was born.
+- [41:21.590] My father was great.
+- [41:23.660] But so in 1900, 125 years, the murders the lowest rate,
+- [41:29.980] you know why, because I closed the borders
+- [41:31.650] and we got a lot of people out.
+- [41:32.890] It's not just closing. We got a lot of people out.
+- [41:34.730] Washington, D.C. is now a safe place.
+- [41:39.450] We don't want to close the borders with them in here.
+- [41:41.740] We got a lot of them out and we got many of the worst ones out.
+- [41:45.010] Go for them first, but I want to conclude
+- [41:47.940] by reading part of a letter I received earlier this year
+- [41:51.440] from two heartbroken grandparents
+- [41:54.250] who will never again see their 8-year-old granddaughter
+- [41:57.650] after an illegal alien ran her over with his truck, purposely.
+- [42:02.660] They wrote to me, we are hurting so badly
+- [42:04.990] and now know that the hurting in our family will never go away.
+- [42:08.870] It never ever will go away. We're not seeking notoriety.
+- [42:13.820] We don't care about press coverage,
+- [42:16.580] but we do want our girl to be remembered.
+- [42:20.010] We want people to actually know how preventable this murder was.
+- [42:26.750] And lastly, we want the American government
+- [42:29.250] to be accountable to its citizens.
+- [42:33.960] True. They should be accountable for what they did.
+- [42:38.460] That's my administration.
+- [42:40.880] And I will tell you, fighting -- and we're fighting so hard.
+- [42:44.680] All of them, everybody together is fighting.
+- [42:47.630] We're putting American citizens first.
+- [42:49.490] We're defending American lives
+- [42:53.430] and we're fighting for every angel family.
+- [42:55.730] Angel families are beautiful families.
+- [42:58.740] They're beautiful families.
+- [43:01.440] That was my first -- early on, when we first met,
+- [43:03.890] that was my first --
+- [43:05.180] I didn't know about angel families.
+- [43:06.590] You know, I never did this before, right?
+- [43:09.080] I was building buildings and things.
+- [43:11.780] But I said, I can't believe it, my first meeting,
+- [43:17.340] they were so angry at -- the press,
+- [43:19.750] at a mom who lost her daughter so violently, right?
+- [43:23.980] You might have been there, the first meeting.
+- [43:25.670] I said, this is strange, what's going on?
+- [43:29.270] It was anger from the fake news.
+- [43:34.120] But the angel families, I realized very early on,
+- [43:37.150] I never changed. I could see how you'd changed.
+- [43:39.990] You know, you have to go through this stuff, but never changed.
+- [43:44.840] I thought they were among the greatest people I've ever met.
+- [43:47.520] I've met the heads of countries. A lot of them aren't so nice,
+- [43:50.310] but, you know, they do have some power.
+- [43:53.770] Uh, and we've done very well with all of those people.
+- [43:57.950] But among the finest people I've ever met
+- [43:59.850] are the people in this room and people --
+- [44:01.500] many people outside of this room.
+- [44:03.030] I know many, many more than just in the room,
+- [44:06.380] but we restored our border and that's now totally secure.
+- [44:10.410] And our country is at the safest level
+- [44:13.260] it's been in many, many years.
+- [44:15.800] How could anyone possibly say we want open borders,
+- [44:18.520] knowing especially --
+- [44:19.770] let's say you did that because you --
+- [44:22.470] you're foolish or stupid or something and you did it.
+- [44:25.590] But after a couple of weeks, you're going to know
+- [44:27.300] that the people coming here, if you're running a country,
+- [44:30.630] you want to send your bad people out.
+- [44:32.200] That was the way I looked at it. I didn't know anything about it.
+- [44:35.250] I ran for office. But I have a lot of sense
+- [44:39.320] and I said, well, open border is no good
+- [44:40.790] because if I'm running the country nearby
+- [44:42.780] or far away -- I had no idea how far away.
+- [44:44.650] They came from the Congo in Africa.
+- [44:46.720] They came from all over, not just South America.
+- [44:48.780] Congo let vast numbers, hundreds and hundreds
+- [44:52.400] and probably thousands of people out of jail.
+- [44:55.650] They brought them through Mexico
+- [44:57.060] and they dropped them into our country.
+- [44:59.340] But you would say that common sense well,
+- [45:01.890] and I said it right from almost the first day I said,
+- [45:03.810] how could you have an open border,
+- [45:05.120] all the countries are going to be dropping
+- [45:06.570] their prisoners into us,
+- [45:07.860] and that's exactly what happened,
+- [45:09.440] and mental patients and others.
+- [45:12.220] So we have a country that's now doing well.
+- [45:15.710] We have the greatest economy we've ever had.
+- [45:18.180] We have the most activity we've ever had.
+- [45:20.490] I'm making a speech tomorrow night
+- [45:21.940] and you'll be hearing me say that.
+- [45:23.970] I mean it's going to be a long speech
+- [45:26.230] because we have so much to talk about.
+- [45:29.920] But Americans like Laken and Grant and Harvey and Joshua,
+- [45:34.930] Rocky, Rachel Kayla, these are great people
+- [45:38.900] and we're never going to forget them.
+- [45:40.470] I'll never forget them. I don't know how long I'll be around.
+- [45:43.120] I've got a lot of people gunning for me, don't I, huh?
+- [45:47.880] But I will -- I will not forget them.
+- [45:50.740] I'm never going to forget them.
+- [45:52.690] And I just think you're among the most brave people.
+- [45:56.320] I meet a lot of brave people.
+- [45:57.680] I meet warriors, I give out Congressional Medals of Honor,
+- [46:00.150] where people recommend --
+- [46:01.920] like these two in front of me are so wonderful,
+- [46:04.120] but they recommend and I meet the greatest people.
+- [46:06.300] But this is a group of people that for whatever reason,
+- [46:09.440] I just feel maybe the warmest about.
+- [46:13.060] So at least you have one friend.
+- [46:15.820] And we don't understand why you don't have many
+- [46:17.870] and maybe you will, I don't know.
+- [46:19.940] So I'm going to go sign the proclamation
+- [46:23.110] and then we're going to sit in the audience.
+- [46:24.980] I'm going to sit with you
+- [46:26.200] for the reading of the victims' names.
+- [46:29.370] And I'll then depart to a song sung by --
+- [46:34.120] sung by our incredible,
+- [46:35.680] Female Speaker: talented military,
+- [46:37.070] Amazing Grace. Okay? Sound good?
+- [46:39.870] Now, we could have some of the families come up,
+- [46:42.040] some of people come up. You know who you are.
+- [46:43.950] And come -- you can stand around me.
+- [46:46.210] I don't use an auto pen, so you can watch me actually sign it.
+- [46:59.630] We'll do this the right way.
+- [47:02.860] I want to give coins to the family, okay?
+- [47:05.740] Speaker 7: I had one for you,
+- [47:07.030] and I couldn't bring anything inside.
+- [47:08.950] Female Speaker: I know Secret Service,
+- [47:10.240] well, you'll get it to me.
+- [47:12.810] Speaker 7: (inaudible)
+- [47:22.100] Female Speaker: Okay, you ready, Emma?
+- [47:23.440] We're going to sign this, okay?
+- [47:35.130] Okay, that's a good one. That's a good one.
+- [47:39.420] (applause)
+- [47:55.060] Thank you very much.
+- [47:56.300] Female Speaker: Thank you.
+- [47:59.260] The President: You can hold that.
+- [48:00.470] At least for a little while before --.
+- [48:02.700] Female Speaker: I'm not taking it.
+- [48:04.770] The President: So let's do this candle lighting
+- [48:07.570] and it's very beautiful.
+- [48:18.990] ♪ (soft orchestral music) ♪
+- [48:51.020] Male Speaker: We will now light a candle in honor of the victims
+- [48:53.520] and in solidarity with their families.
+- [48:55.670] Following the lighting of the candle,
+- [48:57.140] the names of the victim will be read aloud
+- [48:58.850] so that their memory may be honored.
+- [49:24.250] Female Speaker: Katie Abraham. Chad Icetroop.
+- [49:32.750] Austin Babcock. Megan Elizabeth Ida Baas.
+- [49:43.250] Jessie Byrd. Liam Cantu.
+- [49:50.620] Michael Clayton. Gail Clayton.
+- [49:58.400] Sander Cohen. Pierce Corcoran.
+- [50:06.550] Ronald De Silva. Jackson Davis.
+- [50:14.800] Christopher James DeLeon.
+- [50:19.970] Joseph DiTomasso. Marshal Dova.
+- [50:28.050] Brady English, Shaylee Estes.
+- [50:37.390] Lacey Marie Ferguson.
+- [50:42.510] Maura Garrity Tristan Gray.
+- [50:51.520] Kayla Hamilton. Erin Joshua Hampton.
+- [51:00.590] Brady Hiling. Susan Hine.
+- [51:08.980] Haley Helgeson.
+- [51:13.400] Kyler Holbein. Gregory Hamala.
+- [51:22.440] Gabriel Kaleshi Isiguso, Jr. Rocky Paul Jones.
+- [51:33.500] Shane Jones.
+- [51:37.740] Stephanie Kaufman. Haley King.
+- [51:46.780] Amy Courtling. Ryan White.
+- [51:55.110] Brian Maas. Robert Mopen.
+- [52:04.190] Lizbeth Medina. Brandon Mendoza.
+- [52:12.630] Brandon Michael. Dominic Montoya.
+- [52:21.020] Jonathan Moody Jr. Ruben Morphin.
+- [52:29.730] Rachel Morin.
+- [52:33.880] Krisha Odette. Nicolay Osokin.
+- [52:42.060] Rocco Pitrow, Lakin Reilly.
+- [52:49.850] Grant Ranevec. Matthew Russell.
+- [52:58.500] Kayla Santiago. Danielle Nicky Shermok.
+- [53:08.500] Fred Schlosser. Tierra Stansberry.
+- [53:16.300] Kate Steinle. Joseph story.
+- [53:23.940] Timmy Tarnowski. Brian Terry.
+- [53:31.850] Anya Varfala-Mayev, Javier Vega, Jr.,
+- [53:40.210] Joshua Aaron Wilkerson.
+- [53:44.940] Carlos Wolf, Joseph Zhang Jr.
+- [54:10.600] ♪ (Choir singing "Amazing Grace") ♪
+- [56:35.413] (applause)
+- [56:46.413] (no audio)

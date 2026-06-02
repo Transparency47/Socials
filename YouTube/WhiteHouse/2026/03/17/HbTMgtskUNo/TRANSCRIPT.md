@@ -1,0 +1,963 @@
+<!-- source: https://www.youtube.com/watch?v=HbTMgtskUNo -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: HbTMgtskUNo -->
+<!-- date_published: 2026-03-17T16:37:32+00:00 -->
+<!-- date_accessed: 2026-06-02T02:36:33.415240+00:00 -->
+
+# Transcript: President Trump Participates in a Bilateral Meeting, Mar. 17, 2026
+
+- [00:15.190] The President: Well, thank you very much.
+- [00:16.480] It's a great honor to have Taoiseach Martin from Ireland
+- [00:21.600] and somebody that we know, we get along with.
+- [00:24.460] We've had a very good relationship and we continue
+- [00:27.990] and we're going to have some big discussions today
+- [00:31.310] concerning trade, concerning lots of different subjects.
+- [00:35.370] We have a tremendous trade relationship with Ireland,
+- [00:39.570] and we'll keep it that way.
+- [00:41.450] I think it's going to be expanded very greatly.
+- [00:44.480] Probably they want to talk a little bit about tariffs,
+- [00:46.710] but I won't mention that. You know, I won't bring that up.
+- [00:50.460] But you might want to be discussing that a little bit.
+- [00:53.280] But it's an honor to have you
+- [00:54.590] and thank you very much for being here. Thank you.
+- [00:56.770] Micheál Martin: And may I thank you, President,
+- [00:58.090] for facilitating this visit.
+- [01:00.910] Um, and in what is for us probably one of the most
+- [01:05.380] important weeks in the United States.
+- [01:06.910] And, in many ways, you're affirming the tremendous bonds
+- [01:10.340] between Ireland and the United States
+- [01:11.640] that go back to the very foundation of this republic.
+- [01:14.320] And 35 million people in this country,
+- [01:18.380] um, claim Irish descent and Irish heritage.
+- [01:21.730] And I spent the first two days in Philadelphia.
+- [01:25.350] Going back really into the heart of that history
+- [01:27.520] and, um, the fact that three Irish people,
+- [01:31.210] born in the island of Ireland,
+- [01:32.510] signed the Declaration of Independence.
+- [01:34.420] It was printed by an Irishman, John Dunlap,
+- [01:36.760] and disseminated across the colonies.
+- [01:39.700] Um, and Charles Thompson, who we discussed earlier.
+- [01:42.250] The President: Right. He designed the bald eagle --
+- [01:44.090] the seal of the US. That's right.
+- [01:45.730] Micheál Martin: So in many ways our connection is foundational.
+- [01:48.590] It's historic.
+- [01:50.030] And the Irish helped to build America.
+- [01:51.920] We're very proud of that connection.
+- [01:53.860] And we think you hosting us here in the White House
+- [01:56.260] is affirmation to all the Irish-Americans out there
+- [01:59.170] and to our diaspora in this country
+- [02:01.710] for what they've contributed to America.
+- [02:06.060] And that's very much through the prism, this year,
+- [02:08.980] America 250. It's a very exciting year.
+- [02:11.260] We're discovering new things.
+- [02:12.630] I mean, even a guy from my own city,
+- [02:15.400] a guy called Stephen Moylan, who was (Inaudible)
+- [02:17.540] to come to Washington. He's regarded as the guy
+- [02:20.850] who came up with the phrase the United States of America
+- [02:24.080] first written record. And it's in New York in the --
+- [02:26.620] in the museum and (Inaudible)
+- [02:28.760] that's the nature, the history of those bonds.
+- [02:33.520] The President: Well, you told me something before that
+- [02:35.120] was maybe the most interesting of all.
+- [02:37.450] How many presidents are in some way
+- [02:41.960] related through blood with Ireland?
+- [02:45.260] Micheál Martin: Twenty-three.
+- [02:46.510] The President: Can you believe it?
+- [02:47.520] Micheál Martin: Twenty-three Irish presidents.
+- [02:48.760] The President: They're great politicians.
+- [02:50.070] The Irish are great politicians. Micheál Martin: Absolutely.
+- [02:51.470] The President: No, but think of it,
+- [02:52.670] 23 are in some form,
+- [02:54.920] and many of them have gone to Ireland.
+- [02:58.050] Micheál Martin: Absolutely.
+- [02:59.360] The President: Grant?
+- [03:00.560] Micheál Martin: Grant went to Ireland after his presidency.
+- [03:02.260] The President: Right.
+- [03:03.550] Micheál Martin: I was saying earlier, Ronald Reagan's visit
+- [03:06.560] was an extraordinary one,
+- [03:09.130] in a place called Ballyporeen in County Tipperary.
+- [03:12.440] And, of course, John F. Kennedy.
+- [03:15.010] His grandfather was Irish came back, I think early '63.
+- [03:21.500] That's a very memorable visit
+- [03:22.750] because of what the tragedy that happened subsequently.
+- [03:25.310] The President: That's right.
+- [03:26.550] Micheál Martin: The assassination,
+- [03:27.910] which touched people in Ireland very deeply.
+- [03:30.110] And so the Kennedy family --
+- [03:31.350] The President: They're very popular.
+- [03:32.590] Micheál Martin: Kennedy family has strong --
+- [03:34.170] resonates with Ireland.
+- [03:35.820] The President: Well, we like the family too.
+- [03:37.210] Micheál Martin: Yeah.
+- [03:38.450] The President: One person in particular,
+- [03:40.330] one very non-controversial person.
+- [03:42.170] Micheál Martin: I know that. Yeah.
+- [03:43.700] The President: But no, he's doing a very good job.
+- [03:45.150] He really is.
+- [03:46.370] But we have more I think people here, by far,
+- [03:49.990] than you have in Ireland, that -- Irish decent.
+- [03:52.520] Micheál Martin: Absolutely. Yeah.
+- [03:53.770] The President: We have -- so you have quite a few,
+- [03:55.300] but we have a lot.
+- [03:56.590] Micheál Martin: You have a lot more than we have. Yeah.
+- [03:58.180] The President: It's pretty amazing, by a lot.
+- [03:59.750] Micheál Martin: Absolutely.
+- [04:00.950] The President: Anyway, thank you very much.
+- [04:02.270] It's a great honor. Micheál Martin: Thank you.
+- [04:03.580] The President: And any questions, please.
+- [04:06.320] The Press: (Inaudible)
+- [04:09.070] visit Ireland in September and will you stay at Doonbeg?
+- [04:11.830] The President: Well, I'm having -- it's a great thing.
+- [04:14.140] My son and my family we have a great --
+- [04:18.510] a great golf complex in Ireland,
+- [04:20.200] one of the best in the world, called Doonbeg.
+- [04:22.320] It's in Doonbeg. And it's been amazing.
+- [04:25.180] And Rory McIlroy loves it. They all love it.
+- [04:28.260] Great golfers. You have a tremendous golf tradition.
+- [04:30.990] And it was chosen for the Irish Open,
+- [04:34.340] which is a big deal. That's a big event.
+- [04:36.120] Micheál Martin: Absolutely, looking forward to it.
+- [04:37.650] The President: Everybody wants me to be there.
+- [04:38.890] You just said, I hope you're going to go.
+- [04:40.200] Micheál Martin: I did.
+- [04:41.430] The President: And we're going to try.
+- [04:42.660] We are going to try, but -- it would be an honor.
+- [04:44.340] But it was a great honor to be chosen.
+- [04:45.900] They only choose the best courses in the world for the --
+- [04:49.140] you know, for the big opens.
+- [04:50.670] That's one of the big ones, the Irish Open.
+- [04:52.450] It's really become one of
+- [04:53.660] the most important tournaments in the world.
+- [04:55.370] It's going to do -- Micheál Martin: (Inaudible)
+- [04:56.650] The President: I think it's going to be
+- [04:57.870] a fantastic success.
+- [04:59.120] Micheál Martin: Be a great success.
+- [05:01.680] Yeah.
+- [05:02.890] The President: (Inaudible) very hard course, though.
+- [05:04.460] The Press: Mr. President?
+- [05:07.550] What progress have you made, Mr. President,
+- [05:09.830] in getting America's allies to assist the US
+- [05:12.360] in escorting those oil tankers through the Strait of Hormuz?
+- [05:15.150] The President: Well, we don't need too much help
+- [05:16.640] and we don't need any help actually.
+- [05:18.230] In fact, we just put out a notice.
+- [05:19.780] I was watching over the last couple of weeks
+- [05:23.390] and all of our NATO allies
+- [05:26.430] were very much in favor of what we did.
+- [05:28.340] They thought it was very important.
+- [05:30.130] We were just discussing it, actually, very important
+- [05:33.060] that we take out the nuclear threat from Iran.
+- [05:36.800] And we've done that very strongly and very powerfully.
+- [05:39.760] We've wiped out their Navy,
+- [05:41.320] wiped out their military in every aspect.
+- [05:44.690] Their air force is now decimated.
+- [05:46.640] They have no air force, no Navy, they have no radar.
+- [05:50.770] Their radar is entirely gone.
+- [05:52.720] Their anti-aircraft machinery is gone.
+- [05:55.170] Everything is gone.
+- [05:56.400] Their leaders are gone.
+- [05:57.640] I guess one of the -- their top person was a --
+- [06:00.370] they say, a lot of people say their actual top
+- [06:02.380] was killed yesterday, along with somebody else that --
+- [06:07.950] who was responsible for the killing.
+- [06:10.440] The man that was responsible for the killing of 32,000 people
+- [06:13.790] over the last two weeks.
+- [06:15.450] He was in charge of the killing of protesters.
+- [06:18.460] It's an evil group.
+- [06:19.720] I mean, they killed much more than 32,000 people.
+- [06:23.140] And the man who was responsible for that
+- [06:24.910] was also killed yesterday.
+- [06:27.930] And all of the NATO allies agreed with us.
+- [06:31.960] And -- but they don't want to -- you know,
+- [06:33.650] despite the fact that we helped them so much,
+- [06:35.630] we have thousands of soldiers in different countries
+- [06:39.160] all over the world
+- [06:40.780] and they don't want to help us, which is amazing.
+- [06:44.820] I mean, amazing. And I didn't do a full court press
+- [06:48.810] because I think if I did, they probably would be --
+- [06:50.970] but we don't -- we don't need help.
+- [06:53.140] You know, we've -- that war is --
+- [06:55.640] has been long prosecuted
+- [06:57.470] as far as I'm concerned, almost from day one.
+- [07:00.130] We knocked out many of these things.
+- [07:01.650] We knocked out the Navy essentially in a couple of days.
+- [07:05.000] But I was surprised to see that NATO, while they agree
+- [07:08.940] that it was a very important thing to do, they agreed fully.
+- [07:11.500] Nobody said, oh, you shouldn't do it.
+- [07:14.530] They would have had a nuclear weapon within one month
+- [07:17.810] of when we had the B-2 bombers bombed
+- [07:20.170] the nuclear potential, the -- I call it the nuclear dust.
+- [07:25.200] So I think NATO's making a very foolish mistake.
+- [07:30.070] And I've long said that, you know,
+- [07:32.000] I wonder whether or not NATO would ever be there for us.
+- [07:35.950] So this is a -- this was a great test
+- [07:38.300] because we don't need them, but they should have been there.
+- [07:40.470] The other thing is, and I think, you know,
+- [07:43.580] very important we didn't have to be there for Ukraine.
+- [07:48.620] You know, Biden chose to spend hundreds of billions of dollars
+- [07:52.120] on Ukraine.
+- [07:54.190] And I guess the head of Germany just made a statement
+- [07:59.510] that well they weren't involved
+- [08:02.220] and they have nothing to do with the war.
+- [08:03.740] But at the same time, they think we did a great thing
+- [08:06.430] by knocking them out. Nobody wants to have --
+- [08:10.470] nobody wants to have Iran or anybody,
+- [08:12.010] but nobody wants to have Iran with a nuclear --
+- [08:13.830] because these people are crazy.
+- [08:15.490] They're absolutely crazy and they're vicious, violent.
+- [08:18.580] I mean, they killed -- think of it, they killed,
+- [08:20.570] now I hear it's about 41,000 people.
+- [08:22.920] They put out a notice two days ago,
+- [08:24.930] anybody that protests will be immediately shot and killed.
+- [08:28.770] That's pretty tough stuff.
+- [08:30.540] So everyone agrees with us but they don't want to help.
+- [08:33.360] And we -- you know, we as the United States
+- [08:35.510] have to remember that
+- [08:36.770] because we think it's pretty shocking.
+- [08:38.520] Yes, please.
+- [08:40.620] The Press: French President Macron has just said
+- [08:42.540] in the last hour that he will never join a task force
+- [08:46.650] in the Strait of Hormuz until hostilities finish.
+- [08:48.660] Yet yesterday, you said --
+- [08:49.890] The President: Who said that? Who said --
+- [08:51.110] The Press: President Macron of France.
+- [08:52.520] What's your reaction to that, sir?
+- [08:54.070] The President: Well, he'll be out of office very soon,
+- [08:55.770] so we'll have to see. You know, I don't know.
+- [08:57.900] The Press: Mr. President? President Trump, on Doonbeg,
+- [09:03.380] you're building an extension to it at the moment.
+- [09:05.060] The President: Yeah, we are.
+- [09:06.350] The Press: But there's been an objection put in
+- [09:07.810] and it's been held back at the moment due to small snails.
+- [09:12.390] What -- are you disappointed about that?
+- [09:14.530] Micheál Martin: What kind of question
+- [09:15.860] (Inaudible)
+- [09:17.080] The President: I have not heard that. No.
+- [09:18.690] I mean, the course -- the course was built
+- [09:24.590] and has been operated very successfully.
+- [09:26.430] Somebody's objecting -- an environmental group
+- [09:29.280] is objecting to small snails at Doonbeg?
+- [09:31.200] The Press: Yeah.
+- [09:32.420] The President: I don't know. It doesn't sound
+- [09:33.670] like the biggest problem I've ever had.
+- [09:35.120] The Press: Mr. President, how close --
+- [09:37.350] how close is US to announce a coalition
+- [09:39.460] of willing to secure the Strait of Hormuz,
+- [09:41.880] which countries are joining and which countries have --
+- [09:44.720] The President: Well, we've had great support
+- [09:46.090] from the Middle East.
+- [09:48.810] Qatar has been great. UAE has been absolutely great.
+- [09:54.380] Saudi Arabia has been terrific. Bahrain has been very good.
+- [09:57.850] The Middle Eastern countries
+- [09:59.190] have been very strong in their support.
+- [10:01.260] And of course, Israel has been our partner.
+- [10:04.990] Israel's been very, very strong, along with us.
+- [10:08.520] It's been a very strong collaboration.
+- [10:11.620] I was -- I was against Iran long
+- [10:13.960] before I even thought about Israel being against Iran.
+- [10:17.990] I was -- if you look back, many years ago,
+- [10:21.620] I talked about Iran was a big threat to this country,
+- [10:25.240] to this world of ours, and turned out to be --
+- [10:29.490] I was -- I was right.
+- [10:30.730] In fact I said you have to attack Kharg --
+- [10:34.850] Kharg Island.
+- [10:36.090] You have to attack them, years ago when they were acting up.
+- [10:38.550] They've been acting up for 37, 47, I guess now 48 years.
+- [10:44.890] For 48 years, they've been bad players, vicious players
+- [10:49.430] and you can't let them have a nuclear weapon.
+- [10:51.260] If they got a nuclear weapon,
+- [10:52.520] I would say they would have used it
+- [10:53.780] within 24 hours after having it.
+- [10:56.400] And they would have had it if we didn't bomb them out
+- [10:58.880] from that great raid with the B-2 bombers
+- [11:01.960] eight months ago or so. You would have had a nuclear war
+- [11:07.140] in the Middle East and maybe beyond.
+- [11:08.670] I think it would have hit Europe, maybe not Ireland,
+- [11:11.620] but it would have hit Europe.
+- [11:12.890] I think you would have been a nice piece of it.
+- [11:14.830] It all gets you.
+- [11:16.090] It's big enough that you would have been affected.
+- [11:17.850] They would have hit Europe eventually.
+- [11:21.940] The Press: Mr. President,
+- [11:23.200] your director of National Counterterrorism,
+- [11:25.660] Joe Kent, he just resigned today.
+- [11:27.670] He said he can't support your conflict with Iran.
+- [11:30.370] What's your reaction to that? And did you talk to him?
+- [11:32.220] The President: Well, I read his statement.
+- [11:33.490] I always thought he was a nice guy,
+- [11:34.730] but I always thought he was weak on security,
+- [11:37.590] very weak on security. I didn't know him well,
+- [11:41.430] but I thought he seemed like a pretty nice guy.
+- [11:45.630] But when I read a statement,
+- [11:46.990] I realized that it's a good thing that he's out
+- [11:50.270] because he said that Iran was not a threat.
+- [11:53.870] Iran was a threat.
+- [11:55.450] Every country realized what a threat Iran was.
+- [11:57.830] The question is whether or not
+- [11:59.230] they wanted to do something about it.
+- [12:01.610] And many people, many of the greatest military scholars
+- [12:04.570] are saying for years
+- [12:05.840] that presidents should have taken out Iran
+- [12:08.160] because they wanted a nuclear weapon.
+- [12:10.090] They were -- if we didn't do the attack,
+- [12:12.670] or if, I'll go a step further,
+- [12:14.690] if I didn't terminate the Iran nuclear deal given to us,
+- [12:18.290] one of the worst deals ever made by Barack Hussein Obama.
+- [12:21.590] Remember, when they sent Boeing 757s
+- [12:24.260] over there loaded with cash, hundreds of millions of dollars.
+- [12:28.810] You would have been very happy. This was a wonderful --
+- [12:31.880] they said hundreds of million -- people forget that.
+- [12:34.720] Does anybody remember? Right?
+- [12:37.130] You remember, hundreds of millions of dollars
+- [12:40.330] in a Boeing 757.
+- [12:42.100] I think they had two of them, loaded.
+- [12:43.950] They took the seats out and they put cash.
+- [12:47.070] And it was so much that there wasn't a bank in Virginia,
+- [12:50.050] Maryland or DC that had any money left.
+- [12:53.310] They stripped them of all their money,
+- [12:54.940] put it into planes,
+- [12:56.210] sent it to Iran, almost as ransom.
+- [13:00.370] That's not going to happen with Trump.
+- [13:02.480] And nobody ever did anything about it.
+- [13:04.730] Nobody ever said anything.
+- [13:06.300] Can you imagine if I did that?
+- [13:08.280] So they've been a threat for a long time.
+- [13:10.800] But they've really been a threat if I didn't terminate
+- [13:14.510] Obama's horrible deal that he made,
+- [13:16.810] the Iran nuclear deal, you would have had a nuclear war
+- [13:21.830] four years ago, you would have had --
+- [13:24.160] you would have had nuclear holocaust,
+- [13:26.550] and you would have had it again if we didn't bomb the site.
+- [13:29.570] So, when somebody is working with us
+- [13:33.000] that says they didn't think Iran was a threat.
+- [13:37.180] We don't want those people because --
+- [13:38.900] and there are some people, I guess, that would say that,
+- [13:41.000] but they're not smart people or they're not savvy people.
+- [13:44.450] Iran was a tremendous threat,
+- [13:46.710] and virtually every NATO nation --
+- [13:48.730] and this is the thing; if they told me
+- [13:50.490] it wasn't a threat
+- [13:52.110] and therefore, they don't want to help.
+- [13:53.850] But when they say it was a threat
+- [13:56.140] and it was a major threat, every one of them --
+- [13:59.130] I think every one of them,
+- [14:00.420] I don't know of one that said they're not a threat.
+- [14:03.220] But when they say it was a threat,
+- [14:05.630] but we're not going to help, I think they're very foolish.
+- [14:09.570] You know, it's interesting.
+- [14:10.880] It's interesting because I could say this,
+- [14:13.360] that what's happening in Ukraine --
+- [14:16.970] we're probably in there for $400 billion.
+- [14:19.770] We don't spend any money anymore;
+- [14:21.250] they buy it from us and they pay full price.
+- [14:23.370] But Biden gave them between $350 billion
+- [14:27.030] and $400 billion of equipment and cash --
+- [14:30.250] someday, they'll have to find out about the cash.
+- [14:33.710] And you could say that wasn't a threat.
+- [14:36.410] You know, we're helping them.
+- [14:38.290] So, we helped them and they didn't help us.
+- [14:41.700] And I think that's a very bad thing for NATO.
+- [14:45.760] The Press: Are there any repercussions for NATO
+- [14:48.000] and are you still going to China?
+- [14:50.570] The President: Well, yeah, we're --
+- [14:51.800] on China, it's a little different story.
+- [14:54.820] We're resetting the meeting and it looks like
+- [14:57.540] it'll take place in about five weeks.
+- [14:59.180] We're working with China; they were fine with it.
+- [15:02.670] We're going to -- I look forward to seeing President Xi;
+- [15:05.730] he looks forward to seeing me, I think,
+- [15:07.860] but I do look forward to seeing him.
+- [15:09.710] We have a good relationship with China.
+- [15:12.130] China actually has become economically for us,
+- [15:16.380] very good, very good,
+- [15:17.870] as you know, it's much different than it was in the past.
+- [15:20.950] And we have a very good working relationship with China.
+- [15:23.920] So, we're making it in about five or six weeks.
+- [15:31.760] The Press: NATO for not supporting you on this,
+- [15:33.800] any repercussions?
+- [15:35.080] The President: Well, no, I just think
+- [15:36.280] that it's not good for a partnership
+- [15:38.760] when they say what you're doing is a great thing,
+- [15:41.070] but we're not going to help.
+- [15:43.240] To say what you did is a great thing,
+- [15:46.900] but we're not going to help.
+- [15:50.920] The Press: In Iran, because the Iranian regime
+- [15:52.490] has told Sky News,
+- [15:53.780] if you put boots on the ground in Iran,
+- [15:55.790] it will be another Vietnam. Are you afraid of that?
+- [15:58.410] The President: No, I'm not afraid of --
+- [16:00.000] I'm really not afraid of anything.
+- [16:03.660] The Press: Mr. President,
+- [16:06.220] are you rethinking the United States' relationship
+- [16:09.250] with NATO, possibly getting out?
+- [16:11.870] The President: Well, I'm disappointed in NATO,
+- [16:13.530] that we spend trillions of dollars on NATO.
+- [16:16.650] Think of it, trillions over the years,
+- [16:18.740] many trillions of dollars.
+- [16:20.940] It's one of the reasons we have deficits
+- [16:23.220] and we help other countries. And when they don't help us,
+- [16:26.700] I mean it's certainly something that we should think about.
+- [16:31.080] I don't need Congress for that decision,
+- [16:33.160] as you probably know, I can make that decision myself.
+- [16:35.690] I'd work with some very smart people.
+- [16:39.030] And I'd always deal with Congress anyway,
+- [16:40.850] but I don't need Congress for that decision.
+- [16:42.850] But when you say rethink, I'm not --
+- [16:47.330] I have nothing currently in mind.
+- [16:49.280] But I will say that I'm not exactly thrilled
+- [16:52.540] when we help them with Ukraine.
+- [16:55.310] Look, Ukraine would have been over in one day
+- [16:57.080] if we didn't help.
+- [16:58.310] Frankly, Ukraine would have been over in the first day,
+- [17:00.480] they had the best equipment in the world.
+- [17:02.040] It was our equipment given by Sleepy Joe Biden.
+- [17:06.250] No charge, no charge. Hundreds of billions of dollars
+- [17:09.830] of the best equipment in the world, no charge.
+- [17:13.580] I will say that I'm not happy about it.
+- [17:19.400] The Press: Two questions, one on Iran and one on Cuba.
+- [17:22.720] Is Iran now a bigger foreign policy
+- [17:25.210] priority for you than China?
+- [17:27.590] And on Cuba, the Cuban government --
+- [17:29.660] The President: Iran is just a military operation to me.
+- [17:32.650] Iran is something that was essentially largely over
+- [17:37.800] in two or three days,
+- [17:39.850] because the Navy was wiped out almost immediately.
+- [17:42.240] The Air Force came next; the anti-aircraft came next.
+- [17:47.500] I mean, we're flying over Iran,
+- [17:49.690] we could take out their electric capacity in one hour.
+- [17:53.610] We have all the --
+- [17:54.890] there's nothing they can do right now
+- [17:56.370] because everything is knocked out.
+- [17:58.650] They have no -- again, no radar, no anti-aircraft.
+- [18:02.240] They have nothing.
+- [18:03.550] And we don't -- and it was a decision I made,
+- [18:08.050] we discussed it, Pete, Marco, JD,
+- [18:11.390] all of us, Chris, we discussed it.
+- [18:14.360] We could knock out their electricity
+- [18:16.230] in a matter of minutes if we wanted to,
+- [18:19.240] There's nothing they can do about it.
+- [18:20.940] We could knock out their oil in Kharg Island.
+- [18:23.420] The only thing we didn't take down was the oil
+- [18:25.020] because if we knock out --
+- [18:26.250] I call them the pipes, very complex.
+- [18:29.120] But if you do that, it'll take them forever to rebuild,
+- [18:32.800] meaning whoever, and hopefully it's a sane group of people.
+- [18:38.180] But whoever it is that's going to be running that
+- [18:40.620] and we're going to try to get people
+- [18:42.870] that are going to run it well.
+- [18:44.160] And you know, it's going to be a prosperous, wonderful place.
+- [18:47.670] It used to be, you know, if you go back,
+- [18:49.370] it used to be a very -- the people are great,
+- [18:51.410] the people are smart and energetic,
+- [18:53.420] and it used to be very successful.
+- [18:55.970] Now it's a country run by fear,
+- [18:58.110] it's a country where they tell protesters don't go outside
+- [19:01.310] because if you do, we're going to kill you.
+- [19:09.580] Well, Cuba right now is in very bad shape.
+- [19:12.860] They're talking to Marco
+- [19:15.300] and we'll be doing something with Cuba very soon.
+- [19:20.150] We're really focused on this, but we're dealing with Cuba.
+- [19:24.050] Marco, do you want to say a couple of words about it?
+- [19:26.200] Secretary Rubio: Yeah, I mean Cuba has an economy
+- [19:27.440] that doesn't work
+- [19:28.730] and a political and governmental system that can't fix it.
+- [19:31.070] So, they have to change dramatically.
+- [19:32.400] What they announced yesterday is not dramatic enough,
+- [19:34.390] it's not going to fix it.
+- [19:35.840] So, they've got some big decisions to make over there.
+- [19:38.300] The Press: But Secretary Rubio, do you support --
+- [19:40.340] and I know this is up to Congress,
+- [19:41.590] but do you support easing the Cuban -- the trade embargo
+- [19:45.290] If you get more cooperation from Havana?
+- [19:47.760] Secretary Rubio: Well, I'm not going to discuss
+- [19:49.020] what we would talk about or not.
+- [19:50.230] Suffice it to say that the embargo is tied
+- [19:51.920] to political change on the island.
+- [19:53.290] The law has been -- the embargo is codified and --
+- [19:56.500] but the bottom line is their economy doesn't work.
+- [19:58.380] It's a nonfunctional economy; it's an economy
+- [20:00.340] that has survived for 40 -- that revolution.
+- [20:03.560] It's not even a revolution that thing they have
+- [20:06.030] has survived on subsidies from the Soviet Union
+- [20:07.920] and now from Venezuela.
+- [20:09.160] They don't get subsidies anymore,
+- [20:10.380] so they're in a lot of trouble.
+- [20:11.600] And the people in charge -- they don't know how to fix it.
+- [20:14.350] So, they have to get new people in charge. That's what happened.
+- [20:16.250] The President: And the relationship we have
+- [20:17.460] with Venezuela has been --
+- [20:20.050] I think you can almost say incredible.
+- [20:21.520] It's been really good.
+- [20:22.850] It's been good for Venezuela, and it's been good for us.
+- [20:25.230] And I congratulate the Venezuelan baseball team
+- [20:28.500] because that was a big -- that was a big win,
+- [20:30.930] and I guess they play another game tonight in the finals.
+- [20:34.050] And I said a lot of good things have happened
+- [20:36.140] to Venezuela lately.
+- [20:37.470] This is the first time they've ever been in the finals,
+- [20:40.190] and it was pretty exciting.
+- [20:43.600] The Press: Iran is just a military operation to you,
+- [20:45.970] but do you not have a day after plan?
+- [20:48.180] And if so, what is your day after plan for Iran?
+- [20:50.420] The President: Well, we have a lot.
+- [20:51.690] Look, if we left right now,
+- [20:55.240] it would take 10 years for them to rebuild.
+- [20:58.580] But we're not ready to leave yet,
+- [21:00.240] but we'll be leaving in the near future.
+- [21:03.280] We'll be leaving in pretty much the very near future.
+- [21:06.570] But right now, they've been decimated from every standpoint.
+- [21:11.520] And again, we've had great support from countries
+- [21:15.460] in the Middle East, great support,
+- [21:17.350] but we've had no support from --
+- [21:19.070] essentially no support from NATO.
+- [21:24.720] The Press: What about your relationship with London?
+- [21:26.680] Has it been damaged by the fact
+- [21:28.080] that Keir Starmer isn't supporting you in this war?
+- [21:30.630] And has your opinion of Keir Starmer changed because of this?
+- [21:33.880] The President: Well, he hasn't been supportive
+- [21:35.210] and I think it's a big mistake.
+- [21:36.820] You know, they make a lot of money on trade
+- [21:39.270] with the United States. I went out of my way --
+- [21:43.050] as you know, they couldn't make a deal with Biden
+- [21:48.030] because they had no real administration
+- [21:49.930] to make a deal, Biden.
+- [21:51.640] But we made a deal. We made a good deal for them.
+- [21:53.640] And frankly, probably wasn't appreciated.
+- [21:57.610] I do look forward to seeing the king he's going to --
+- [22:01.960] he's going to be coming, as you know, very shortly.
+- [22:04.000] But no, I was disappointed because Keir was willing
+- [22:08.440] to send two aircraft carriers after we won,
+- [22:11.820] because essentially there's no threat
+- [22:13.870] for the aircraft carriers right now.
+- [22:16.950] And I said no, no, we want things sent before the war,
+- [22:20.090] not after the war is won.
+- [22:21.880] So, yeah, I'm disappointed with Keir.
+- [22:23.910] I like him; I think he's a nice man,
+- [22:25.450] but I'm disappointed.
+- [22:30.500] You see that man right there? You know who that is?
+- [22:34.020] That's the late great Winston Churchill.
+- [22:36.870] And Barack Hussein Obama did not want his bust in his office.
+- [22:41.210] Did you know that?
+- [22:42.640] And Barack Hussein Obama sent that bust back to England,
+- [22:46.950] he didn't -- they didn't want it.
+- [22:49.030] And when I came in, I was asked if I wanted,
+- [22:51.810] I said absolutely, I want it and I put it right there.
+- [22:54.480] Winston Churchill.
+- [22:56.080] And unfortunately, Keir is not Winston Churchill.
+- [23:07.630] No, no, hold it, hold it, hold it.
+- [23:11.130] Micheál Martin: Could I just make a number of points?
+- [23:12.680] First of all, I think notwithstanding
+- [23:14.400] what has happened,
+- [23:15.620] the transatlantic relationship between Europe and the US
+- [23:17.970] is very, very important on a number of fronts.
+- [23:20.880] And I think we've had issues over the last year, to --
+- [23:22.920] we settled them.
+- [23:24.210] And I think many of these leaders engaged with you,
+- [23:26.850] particularly on trade initiatives.
+- [23:28.270] Remember all the fuss last year,
+- [23:29.670] but we got a landing zone between Europe and the US
+- [23:32.780] and I think we can get a landing zone again.
+- [23:36.090] And I think -- I just met with Keir Starmer last week,
+- [23:39.020] the British-Irish relationship is a very important one.
+- [23:42.590] Churchill was a great wartime leader,
+- [23:44.730] although in Ireland, there was kind of a different perspective
+- [23:47.180] in terms of our own war of independence and so on.
+- [23:50.040] He created his own bit of difficulties for us,
+- [23:52.270] but that said, he was a great wartime hero.
+- [23:54.420] Keir Starmer has done a lot
+- [23:55.710] to reset the Irish-British relationship.
+- [23:57.920] I just want to put that on the record.
+- [24:00.570] But I do believe that he's a very earnest, sound person,
+- [24:05.170] who I think you have a capacity to get on with
+- [24:07.150] and you've got on with him before.
+- [24:08.750] And you've got on with other European leaders as well.
+- [24:10.340] The President: That's right.
+- [24:11.620] Micheál Martin: And I think you have that capacity again,
+- [24:13.090] and I think everyone accepts --
+- [24:15.200] I mean, you cannot have a rogue state with a nuclear weapon
+- [24:18.340] or the capacity for nuclear weapon.
+- [24:20.720] Iran was a sponsor of terrorism.
+- [24:22.930] We sanctioned Iran, all European countries did as a terrorist --
+- [24:26.540] and the IRGC in particular as a terrorist organization.
+- [24:29.530] They sponsored Hamas.
+- [24:30.790] They sponsored Hezbollah, the Houthis.
+- [24:33.390] They created mayhem, and most malign force in the Middle East.
+- [24:37.910] The Irish position has always been, ultimately,
+- [24:40.000] can we resolve this to -- you know, can we get peace?
+- [24:43.160] And obviously, there's preconditions
+- [24:44.480] before you get to that situation.
+- [24:46.220] We had our own conflict.
+- [24:48.160] Which went on for 30 years and we learned a lot from that,
+- [24:52.190] in terms of how to try and bring about peace.
+- [24:54.040] And I think -- I've listened to you in terms,
+- [24:56.680] if you're correct,
+- [24:57.920] I mean, our hearts go out to the Iranian people
+- [25:00.710] who have been repressed and suppressed for so many --
+- [25:04.380] so many years, culminating in that savage murder of thousands
+- [25:09.290] and thousands of Iranians some months ago.
+- [25:12.590] No one -- just --
+- [25:13.830] no one was in a position to do anything about that.
+- [25:17.560] Um, and I think -- and likewise with Ukraine,
+- [25:20.510] I mean the Russians did invade Ukraine,
+- [25:24.700] have attacked civilian infrastructure
+- [25:26.370] and so on like that.
+- [25:27.600] And for the people of Ukraine who just want peace
+- [25:29.890] and an opportunity to live, I think there is --
+- [25:33.050] I think we have to continue to work to see,
+- [25:35.510] can we bring peace different regime
+- [25:38.440] to Iran where Iranians can live in peace again.
+- [25:40.910] And the people in the Middle East can live in peace.
+- [25:42.600] And you're doing your bit there in terms of the work in Gaza
+- [25:45.570] and so on like that.
+- [25:46.850] And I think that's what we -- that's what we want,
+- [25:48.480] is a peaceful resolution of conflict.
+- [25:51.140] That's where we come from as a small nation.
+- [25:53.000] We've been peacekeepers all our lives, um,
+- [25:55.530] and we're the longest serving nation in terms of provision
+- [25:58.530] of peacekeeping forces in the world as it turns out.
+- [26:01.740] But we -- we think, ultimately all conflicts come to an end
+- [26:05.570] and I think we have to try and work towards that end.
+- [26:09.440] And I'm sure European leaders
+- [26:10.990] and the US administration will engage, um,
+- [26:14.320] and hopefully we can get a landing zone somewhere.
+- [26:18.630] The President: Well, I mean, the only thing --
+- [26:21.160] and I agree with everything he said,
+- [26:22.740] but we helped with Ukraine.
+- [26:25.210] Micheál Martin: Yes.
+- [26:26.460] The President: And they don't help with Iran.
+- [26:29.150] And they all acknowledge
+- [26:30.380] that Iran can't have a nuclear weapon.
+- [26:32.770] You, yourself say, you know, these were --
+- [26:34.960] these are horrendous people.
+- [26:37.220] These are the worst people going back to Hitler,
+- [26:41.970] right, going back to Hitler. These are the worst people.
+- [26:44.510] That's a long time ago. And there's been nothing close.
+- [26:48.490] Every problem, every so many deaths,
+- [26:51.910] 90 percent of the people that got blown up by landmines,
+- [26:54.960] the landmines, they loved them.
+- [26:56.360] You know, Soleimani, we killed him.
+- [26:58.810] If we didn't, it might be a different story
+- [27:00.360] because he was a horrible person.
+- [27:01.930] But he was a very powerful person and leader,
+- [27:04.670] and smart, but we killed him.
+- [27:07.050] If we didn't, I think you'd have -- I did.
+- [27:09.120] But I think we'd have maybe a different situation.
+- [27:11.670] It wouldn't have been so easy as it has been,
+- [27:13.590] because it has been very easy.
+- [27:15.430] You know, it's all of their military is there,
+- [27:18.580] but you can always have somebody drop a mine in the water.
+- [27:21.780] It's like terrorism.
+- [27:24.470] And then you have the people
+- [27:25.810] that own the billion dollar ships
+- [27:27.160] saying, well, let's not move that ship yet because we want --
+- [27:30.470] so we thought that Europe would help that
+- [27:32.000] because they do have some minesweepers,
+- [27:34.500] but it's amazing that, you know, they all said,
+- [27:37.780] what a great job -- they would call me,
+- [27:39.980] congratulating us on the great job
+- [27:41.750] we did with respect to Iran,
+- [27:43.200] and we knocked the hell out of them.
+- [27:45.650] They're no longer the bully of the Middle East.
+- [27:47.280] They were known as the bully of the Middle East
+- [27:48.980] and they're not the bully anymore.
+- [27:51.060] But you would have thought they would have said,
+- [27:54.150] we'd love to send a couple of minesweepers.
+- [27:56.520] It's not a big deal. It doesn't cost very much money.
+- [27:59.210] But they didn't do that. So you know, it's --
+- [28:03.230] I think it's very unfair to the United States,
+- [28:05.250] not to me, but to the United States.
+- [28:07.370] Go ahead, please.
+- [28:08.660] The Press: Keir Starmer isn't making --
+- [28:10.160] The President: She's a fantastic reporter, by the way.
+- [28:11.610] Go ahead.
+- [28:12.810] The Press: Thank you.
+- [28:14.040] The Prime Minister isn't making the case to the British public
+- [28:17.330] as to why he should be supporting you.
+- [28:19.430] Could you do that now, talk to the UK,
+- [28:22.090] to GB News viewers about why
+- [28:23.870] it's in their interest that we help you?
+- [28:26.720] The President: Well, because we have
+- [28:28.010] a tremendous long-term relationship with the UK.
+- [28:32.100] I mean, people would say it's the best.
+- [28:35.000] I don't want to get into that,
+- [28:36.210] but we've had it was the longest,
+- [28:38.840] the oldest, should be the best,
+- [28:41.110] always was the best until Keir came along.
+- [28:43.380] And now -- and I like him, he's a nice man.
+- [28:45.550] He says everything beautiful.
+- [28:46.880] He's a very nice man with a beautiful family.
+- [28:50.180] Everything's perfect. But he -- he doesn't produce.
+- [28:53.490] And I think it's very inexpensive.
+- [28:56.780] I just said, you don't have to send me aircraft carrier,
+- [28:59.060] send me a couple of minesweepers.
+- [29:00.510] We don't need your aircraft carriers.
+- [29:01.970] But even the aircraft carriers,
+- [29:03.670] he would only send them after we essentially won.
+- [29:06.550] I mean he's sending them when there are no planes left,
+- [29:09.400] when the missiles are down to eight percent.
+- [29:12.230] They have like eight percent of the missiles.
+- [29:14.010] The rest we demolish the missiles and the factories,
+- [29:17.130] largely the factories are going, even as we speak.
+- [29:19.580] They just hit another factory. They may have a lot of --
+- [29:22.390] they have a lot of missile factories.
+- [29:23.720] They have a lot of drone factories and so he's, you know,
+- [29:27.490] wants to send them when we don't need them.
+- [29:29.710] But we'd like to have minesweepers
+- [29:30.940] because just in case --
+- [29:32.150] we don't know that there are any mines down
+- [29:33.590] because we wiped out I think 24.
+- [29:36.480] They actually have -- think of this, for a country,
+- [29:39.330] they have 24 boats that do nothing
+- [29:41.260] but put mines in the water.
+- [29:43.290] This doesn't sound like a great country,
+- [29:46.060] this doesn't sound like a friendly country,
+- [29:47.650] but we killed all of those boats.
+- [29:49.640] They're at the bottom of the sea.
+- [29:51.520] But so we don't even know if there are any mines there.
+- [29:53.790] But if there are, you know, we'd like to have a little help
+- [29:57.190] in finding them, most -- probably most importantly would.
+- [29:59.970] The Press: Would you like a change in Prime Minister?
+- [30:01.590] Do you have confidence in Keir Starmer,
+- [30:03.190] or would you prefer to deal (Inaudible)
+- [30:04.620] The President: Well, it's not for me, it's really --
+- [30:06.540] it's really for the people of the UK to have confidence in --
+- [30:10.640] But I mean, I've been very critical of Keir
+- [30:13.800] and I did it in a friendly way.
+- [30:15.260] I said, if you don't change your energy thing
+- [30:17.840] and get away from windmills and go back to oil and gas,
+- [30:22.730] and -- you know, you own -- you have something that's --
+- [30:26.610] no other country has, very few countries have anything like it,
+- [30:29.490] the North Sea.
+- [30:30.750] You have some of the greatest oil and oil deposits
+- [30:35.670] in the entire world, the North Sea.
+- [30:39.500] They don't use it. You buy a lot of your oil from Norway.
+- [30:44.400] You know where they get their oil, from the North Sea,
+- [30:47.230] and you pay a very big price.
+- [30:48.910] So why are you paying a lot of money?
+- [30:50.440] And I tell them, and they --
+- [30:51.680] you have the better part of the North Sea.
+- [30:53.430] So why aren't they taking the oil from the North Sea?
+- [30:55.620] Why are they buying oil from Norway?
+- [30:57.910] But they have windmills all over the country,
+- [30:59.670] destroying those gorgeous Scottish fields
+- [31:01.960] and those beautiful fields all over, windmills,
+- [31:04.790] which don't work.
+- [31:06.450] They're tremendously expensive. And the best testament to that
+- [31:11.440] is the windmills are made in China,
+- [31:13.650] but China doesn't use them. You know what China uses, coal.
+- [31:17.900] They're building 58 coal-fired plants right now
+- [31:20.380] and that's up to them.
+- [31:22.150] But these foolish countries that are buying windmills,
+- [31:25.340] putting them out of business,
+- [31:26.650] I'm proudly telling you that we're going to try
+- [31:29.600] and have no windmills built in the United States during my
+- [31:32.940] (Inaudible)
+- [31:35.390] They're very bad -- they're very bad environmentally.
+- [31:38.230] They kill the birds. They're unsightly.
+- [31:40.110] They make a lot of noise. And for some reason,
+- [31:43.440] the environmentalists love windmills. OK?
+- [31:48.800] The Press: You say Kier Starmer is a very nice man.
+- [31:50.180] Mr. President, you said he's a nice man.
+- [31:51.450] (Inaudible)
+- [31:52.650] The President: I think he's a -- I think he's a nice man,
+- [31:54.470] but I disagree with him on two things,
+- [31:56.500] primarily immigration.
+- [31:58.060] His immigration policy is a disaster
+- [32:00.870] and his energy policy is a disaster.
+- [32:03.590] And they are about the biggest policies you can have.
+- [32:06.670] He's -- you've allowed millions and millions
+- [32:09.900] and millions of people to come into your country
+- [32:12.230] that shouldn't be there.
+- [32:13.490] And by the way, that's all over Europe.
+- [32:16.270] Europe is a different place, it's a different place.
+- [32:19.060] And, you know, I originate --
+- [32:22.170] to put it nicely, I originate, many of us do, from Europe.
+- [32:28.120] I love Europe. I spent a lot of time in Europe.
+- [32:32.260] It's a different place.
+- [32:33.810] Bad -- bad things have happened to Europe, very bad things.
+- [32:37.300] And you better do something about immigration
+- [32:39.730] and you better do something about energy
+- [32:42.030] or you won't have a Europe.
+- [32:45.400] The Press: What's your time frame, Mr. President,
+- [32:47.010] for when cargo ships can safely go through the Strait of Hormuz?
+- [32:50.160] The President: It won't be -- I don't believe too long.
+- [32:52.220] We're knocking the hell out of the coast.
+- [32:53.820] It's basically the coast, and the water
+- [32:57.060] and it won't be too long. And the Middle Eastern states,
+- [33:02.710] including Israel, by the way, who has been terrific,
+- [33:05.700] the Middle Eastern states have been helping us a lot.
+- [33:13.220] Go ahead. You. Please.
+- [33:14.470] The Press: Mr. President, on fuel prices,
+- [33:16.500] what do you have to say to the people in Ireland
+- [33:18.310] who are paying those prices because of your war on Iran.
+- [33:21.060] The President: Well, I think the people in Ireland
+- [33:22.470] are very happy that I'm getting rid of --
+- [33:24.760] I have a lot of friends from Ireland.
+- [33:26.300] They're very happy that I'm getting rid of a nuclear power,
+- [33:29.350] a nuclear terrorist.
+- [33:31.680] And as soon as that war is over, which will be soon,
+- [33:34.660] your prices are going to drop like a rock, you watch.
+- [33:39.000] I've been very -- I've been very good at predicting.
+- [33:41.350] In the back.
+- [33:43.480] The Press: Mr. President, what do you think
+- [33:44.720] about our president's comments that your actions on Iran
+- [33:47.590] are breaking international law?
+- [33:49.760] The President: Say it?
+- [33:51.000] The Press: What do you think about our president's comments?
+- [33:52.630] The President: Can you speak --
+- [33:53.890] you're speaking right into your phone.
+- [33:58.380] The Press: Mr. President,
+- [33:59.670] how do you respond to the increasing attacks
+- [34:01.470] by the Iraqi militia groups against the US embassy
+- [34:04.570] and consulate in Kurdistan region?
+- [34:06.050] The President: Do you want to answer that, JD?
+- [34:08.690] Do you want to?
+- [34:10.080] The Vice President: Yeah, well, Marco,
+- [34:11.310] obviously the Secretary of State,
+- [34:12.570] has control over the embassy.
+- [34:14.240] Look, there have been a lot of militia attacks
+- [34:15.780] against our base or our embassy in Iran.
+- [34:18.980] I think Marco's done a good job
+- [34:20.480] of limiting the number of people who are at that embassy
+- [34:22.990] so we can provide essential functions
+- [34:24.450] but also protect our people.
+- [34:25.750] But it goes to show there are a lot of terrorists
+- [34:27.490] in that region of the world,
+- [34:28.690] and we've got to eliminate when we find them.
+- [34:30.520] The President: And you can't give them nuclear weapons.
+- [34:33.740] You can give them rifles, you can give them guns,
+- [34:35.940] you can't give them nuclear weapons.
+- [34:37.740] I think we agree very strongly on that.
+- [34:39.360] The Press: What's the latest on the immigration point?
+- [34:40.930] The President: Yes, excuse me.
+- [34:42.200] Micheál Martin: Just first of all,
+- [34:43.400] I would say that Europe is still a very good place to live in,
+- [34:45.890] just to let you know.
+- [34:47.140] The President: I'm glad to hear that.
+- [34:50.190] Micheál Martin: And our view is you have to have robust
+- [34:52.020] and fair rules around migration.
+- [34:53.710] But on the other hand, a lot of people --
+- [34:55.540] within the European Union, we have free mobility of people.
+- [34:58.690] And in Ireland, our population is growing
+- [35:00.600] but in a very positive way. Our economy is going well
+- [35:03.780] because we're attracting a lot of people from Europe
+- [35:05.810] and beyond into work legally and validly in our country.
+- [35:09.570] In fact, I'd love if we could develop a legal pathway
+- [35:12.120] between the US and Ireland into the future
+- [35:13.780] because of our history and so on like that,
+- [35:15.650] that we could have a legal pathway.
+- [35:18.000] Because where no one is in favor of illegal migration
+- [35:22.180] and so forth.
+- [35:23.400] So, you have to have robust rules for that.
+- [35:26.530] But fundamentally I think sometimes Europe
+- [35:28.960] gets characterized
+- [35:30.240] wrongly in terms of it being overrun or whatever like that.
+- [35:34.560] It's much more robust now,
+- [35:36.290] it's a much more stronger mechanism
+- [35:38.600] in place to facilitate legal migration.
+- [35:42.150] And I think it's important that our understanding is there.
+- [35:46.350] We need more economic growth in Europe.
+- [35:48.930] It doesn't have the same focus on innovation
+- [35:50.840] as you do here in the US.
+- [35:53.190] We discussed that earlier with the vice president
+- [35:55.060] in terms of technology, in terms of AI.
+- [35:57.410] We need to pivot more to innovation
+- [36:00.190] as opposed to regulation and I think investing in people.
+- [36:05.770] And that's the key to, I think, our collective future.
+- [36:08.550] We do learn lessons; we are doing things and thinking of
+- [36:12.840] (inaudible).
+- [36:14.040] The Press: The president has said that your war
+- [36:18.200] against Iran is illegal,
+- [36:19.800] it's an attack on international law.
+- [36:21.330] The President: Who said that?
+- [36:22.610] The Press: The Irish president.
+- [36:24.520] The President: Look, he's lucky I exist, that's all I can say.
+- [36:30.410] Because if you're going to allow countries
+- [36:32.490] that are sick and demented,
+- [36:34.980] and they are demented, to have nuclear weapons --
+- [36:38.430] everybody in the whole world should be very thankful.
+- [36:40.910] And I'm disappointed in NATO, very disappointed.
+- [36:43.820] I'm disappointed in a couple of other countries too.
+- [36:46.790] But they should be very thankful
+- [36:50.120] that this group of people feels the way we do.
+- [36:53.130] Because if a country like Iran was allowed to have
+- [36:56.750] the power of a nuclear weapon, if we didn't stop them --
+- [36:59.420] I stopped them twice. I stopped them my first term
+- [37:02.920] when I terminated the Iran nuclear deal,
+- [37:04.830] which was Barack Obama's deal.
+- [37:07.230] It was one of the -- maybe the worst deal I've ever seen.
+- [37:09.930] It gave everything to Iran
+- [37:12.240] including billions of dollars in green cash.
+- [37:14.560] I don't mean cash; I mean green cash flown over by airplanes.
+- [37:19.650] I can't to this day believe that was allowed to happen.
+- [37:23.740] And come to think of it,
+- [37:25.350] it would be a good thing for somebody to look at.
+- [37:27.880] Does the president have the power
+- [37:29.110] to hand hundreds of millions of dollars of cash to terrorists?
+- [37:33.330] But it began with that and I terminated that deal.
+- [37:35.910] If I didn't terminate that deal, we might not be here right now.
+- [37:38.950] If I didn't terminate that deal,
+- [37:41.920] an unbelievable nuclear holocaust
+- [37:44.570] would have taken place. And then I did it a second time
+- [37:47.700] when we hit him with the B-2 bombers
+- [37:49.440] and we totally obliterated their potential nuclear weapon
+- [37:54.400] that they would have had in less than one month.
+- [37:57.400] They think two weeks, but in less than one month
+- [38:00.280] and it would have been --
+- [38:01.530] I believe it would have been a much different world
+- [38:03.340] than it is right now.
+- [38:05.480] We have to go -- we're going to a lunch,
+- [38:07.140] so maybe we'll take one more nice question.
+- [38:11.650] The Press: Can I ask you how you're doing
+- [38:12.860] with your legal case against the BBC
+- [38:15.250] and their fake news documentary?
+- [38:17.520] The President: Well, the BBC was incredible.
+- [38:21.010] What they did is they had me speaking something I never said,
+- [38:27.550] and I've never seen anything quite like it.
+- [38:29.110] You know, CBS had that; we had the situation on 60 Minutes --
+- [38:33.860] not the current owners; the past owners,
+- [38:35.650] the current owners I think are good, Ellison.
+- [38:38.170] But BBC took it a step further.
+- [38:41.490] They actually had -- they put words in my mouth,
+- [38:44.180] and they said I said some pretty bad things,
+- [38:46.810] and I didn't say them, it was AI generated.
+- [38:51.060] And I said I never said that. In fact, some of my people said,
+- [38:53.960] wow, that was pretty bad stuff you said.
+- [38:55.590] I said what did I say?
+- [38:56.790] You know, I'm pretty good at this stuff.
+- [38:58.480] I mean, if you can go through years of these press conferences
+- [39:02.580] and you're a popular president of the United States
+- [39:05.380] that won in a landslide, that won all seven swing states
+- [39:09.260] that got record numbers of votes.
+- [39:12.310] I mean, so I guess I'm OK at this stuff.
+- [39:15.970] I said I never said that.
+- [39:17.540] And then we found out it was AI generated,
+- [39:20.360] and they admit they made a mistake, BBC.
+- [39:24.590] But I watched them this morning for some crazy reason
+- [39:27.350] and it was so inaccurate.
+- [39:28.670] Their reporting of the war was unbelievable.
+- [39:31.690] We have decimated that country, and if you watch BBC,
+- [39:35.940] it's almost like they're fighting us to a draw.
+- [39:39.670] They're not fighting us to a draw.
+- [39:41.810] It was very inaccurate news. It was fake news.
+- [39:45.490] So, I'm very proud of the term fake news
+- [39:47.950] because it was my term, I came up with it.
+- [39:51.560] But it's no longer accurate.
+- [39:52.940] It really is. It's corrupt, fraudulent news.
+- [39:56.040] It really is -- it's fraudulent.
+- [39:57.360] It's not just fake, it's beyond fake.
+- [39:59.850] It's really criminal what they do.
+- [40:01.640] But I watched BBC this morning,
+- [40:03.190] and I don't know much about BBC other than what took place,
+- [40:06.330] because people were calling me
+- [40:07.910] saying that was a terrible thing you said.
+- [40:10.090] I said what did I say. And I said I never said that.
+- [40:12.440] And when we checked it, you agree,
+- [40:14.910] they agree, it was somehow generated,
+- [40:18.450] I guess, by AI or something with me saying unbelievable.
+- [40:22.840] So, we brought a lawsuit against them.
+- [40:24.690] They admit they're guilty, but we'll see how it comes out.
+- [40:29.970] Thank you. I like that question.
+- [40:32.830] I like that question. Thank you very much.
+- [40:34.720] We'll see you later. Thank you.

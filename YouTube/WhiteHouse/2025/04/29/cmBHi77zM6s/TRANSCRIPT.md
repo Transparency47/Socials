@@ -1,0 +1,599 @@
+<!-- source: https://www.youtube.com/watch?v=cmBHi77zM6s -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: cmBHi77zM6s -->
+<!-- date_published: 2025-04-29T16:43:08+00:00 -->
+<!-- date_accessed: 2026-06-02T02:51:10.500487+00:00 -->
+
+# Transcript: Press Secretary Karoline Leavitt Briefs Members of the New Media, Apr. 29, 2025
+
+- [00:00.960] Good afternoon
+- [00:02.600] everybody. Thank you so much for coming.
+- [00:05.440] This is our second official influencer
+- [00:08.080] briefing here at the White House in the
+- [00:10.240] beautiful South Court auditorium. And as
+- [00:12.639] you can tell in the White House, we are
+- [00:14.639] fully embracing new media. Trust in the
+- [00:17.840] mass media has fallen to record lows.
+- [00:20.160] Tens of millions of Americans are
+- [00:21.840] turning elsewhere to get their news and
+- [00:24.320] their information. That's why we've
+- [00:26.400] welcomed in openly independent
+- [00:28.640] journalists, podcasters, social media
+- [00:30.960] influencers, content creators, and we
+- [00:33.360] will continue to do so. President Trump
+- [00:35.840] and our White House also believe
+- [00:37.520] strongly in the First Amendment, which
+- [00:39.360] is why our team has restored the press
+- [00:41.280] passes of hundreds of journalists whose
+- [00:43.600] passes were wrongly revoked by the Biden
+- [00:46.239] administration. So, thank you all so
+- [00:48.079] much for coming today for your interest
+- [00:50.000] in covering the historic achievements of
+- [00:52.160] President Trump's first 100 days. And
+- [00:54.719] today officially marks a 100 days of
+- [00:57.360] promises made and kept by President
+- [00:59.840] Trump. Our primary focus is how
+- [01:02.079] President Trump is in the process of
+- [01:03.680] rebuilding the war world's greatest
+- [01:06.240] economy just like he did in his first
+- [01:08.560] term. President Trump has created
+- [01:12.520] 345,000 jobs since taking office in
+- [01:15.640] January. Last month's job report, we saw
+- [01:18.400] 100,000 more jobs than economists
+- [01:20.560] predicted. It was the fourth highest
+- [01:22.720] month for private payroll growth in the
+- [01:24.880] past two years. 9,000 manufacturing jobs
+- [01:28.320] have been created and added to the
+- [01:29.840] economy already since January. And
+- [01:32.079] that's in comparison to the 6,000
+- [01:34.079] manufacturing jobs that were lost per
+- [01:36.560] month in the final two years of the
+- [01:38.479] Biden administration. So each month we
+- [01:40.960] were losing 6,000 manufacturing jobs
+- [01:42.960] under President Trump. In just a 100
+- [01:44.960] days, we've added 9,000. Uh the US
+- [01:48.079] unemployment rate remains at historic
+- [01:50.000] lows. The labor force participation rate
+- [01:52.159] for those without a high school diploma
+- [01:54.240] is up. Good news for workingclass
+- [01:56.479] American families. And the veteran
+- [01:58.560] unemployment rate is down as well uh to
+- [02:01.680] 3.8% in March. When it we came into
+- [02:04.320] office, it was 4.2%.
+- [02:06.640] Remote work among federal employees has
+- [02:08.879] fallen over 16 percentage points from
+- [02:11.440] March last year to March this year,
+- [02:13.920] showcasing the success of President
+- [02:15.760] Trump's initiative to bring federal
+- [02:18.080] workers back to the office. We know
+- [02:21.120] middle-class Americans, hardworking
+- [02:22.879] people, they have to show up to the
+- [02:24.239] office every day. We expect bureaucrats
+- [02:26.319] and government workers to do the same,
+- [02:28.319] especially when they are living off of
+- [02:29.840] the taxpayers's dime. If you want to
+- [02:31.760] work on behalf of the American taxpayer,
+- [02:33.920] you should show up to work in person.
+- [02:36.000] Thanks to President Trump, Americans are
+- [02:37.760] seeing the first price relief in years.
+- [02:40.319] The last inflation report showed the
+- [02:42.160] first consumer price decline in years, a
+- [02:44.080] decrease in energy prices, and real
+- [02:46.400] average hourly wage growth. President
+- [02:48.879] Trump is delivering on his promises to
+- [02:50.879] lower costs for American families and
+- [02:52.640] businesses, prescription drug prices are
+- [02:54.959] down. Last month's drop in prescription
+- [02:56.879] drugs prices was the largest ever
+- [02:58.800] recorded. And thanks to President Trump
+- [03:00.959] ending Joe Biden's reckless war on
+- [03:02.720] American energy, gasoline prices and
+- [03:05.200] energy prices are down as well. The cost
+- [03:07.680] of wholesale eggs has decreased more
+- [03:09.920] than 50%. The B uh the President Trump
+- [03:13.360] inherited a complete mess from the Biden
+- [03:16.319] administration who totally botched their
+- [03:18.319] response to the bird flu. They were
+- [03:20.159] killing chickens. They were killing our
+- [03:22.080] chicken supply in this country which led
+- [03:23.760] to an increase in egg prices. and the
+- [03:26.239] president and secretary Rollins did an
+- [03:28.319] incredible job attacking that on day
+- [03:31.040] one. On the deregulation deregulation
+- [03:33.760] front, President Trump is launching the
+- [03:35.599] largest deregulation campaign in
+- [03:37.360] American history. He has blocked all of
+- [03:39.760] the unfinalized Biden era rules, which
+- [03:42.480] has saved us more than $180 billion
+- [03:46.159] already. He's launched a bold multi-
+- [03:49.040] agency effort to roll back existing
+- [03:51.040] federal regulations that drive up the
+- [03:52.879] cost of living on hardworking families.
+- [03:55.200] That has yielded more than 70 755
+- [03:58.879] billion in total savings as well. And as
+- [04:01.439] you all know, investments from companies
+- [04:03.599] around the world continue to pour into
+- [04:06.080] this country. Every morning we wake up
+- [04:08.159] to a new headline with a new company
+- [04:10.319] from a different country announcing
+- [04:12.319] major investments in our country. What
+- [04:15.040] does that mean for people in your
+- [04:17.040] communities across the the nation? It
+- [04:19.359] means jobs. It means Americans going to
+- [04:21.919] work. It means Americans providing for
+- [04:23.919] their families, for their childrens,
+- [04:25.440] living living the American dream. And
+- [04:27.919] that's what those investments will do.
+- [04:29.840] It's truly the golden age of America.
+- [04:33.040] And that's why the president is working
+- [04:34.880] so hard to leverage good trade deals
+- [04:36.800] around the world. He knows America is
+- [04:38.560] the best place in the world to do
+- [04:40.400] business. He is using our leverage um to
+- [04:43.360] negotiate good deals with countries
+- [04:45.120] around the world to onshore
+- [04:46.880] manufacturing jobs here to revitalize
+- [04:49.600] our middle class and our manufacturing
+- [04:51.440] industry and also to protect our
+- [04:53.520] national security. I don't think any
+- [04:55.440] American agrees it's good that China
+- [04:58.080] currently um supplies and produces our
+- [05:00.960] chips, our pharmaceuticals and our
+- [05:02.880] critical industries. We want the United
+- [05:04.800] those things built in the United States
+- [05:06.160] of America. And President Trump is the
+- [05:08.320] first president in modern times to
+- [05:10.800] actually do something about that. So
+- [05:13.520] with that said, today is 100 days. There
+- [05:15.840] have been so many achievements not just
+- [05:17.680] on the economic front uh and the
+- [05:19.680] president continues to work very hard on
+- [05:21.600] tax cuts as well um and on negotiating
+- [05:24.880] those trade deals. But look at the
+- [05:26.240] success at the southern border, which we
+- [05:28.000] talked a lot about yesterday with our
+- [05:29.919] borders are Tom Hman, Secretary Christy
+- [05:32.080] Nome, uh Steven Miller here at the White
+- [05:34.400] House, all of whom are doing a
+- [05:35.759] tremendous job and have created at the
+- [05:38.000] president's direction the most secure
+- [05:39.680] border in American history. We have a
+- [05:41.759] mass deportation campaign of illegal
+- [05:43.680] aliens underway. We are removing heinous
+- [05:46.560] criminals from your communities across
+- [05:48.400] the country every single day. We are
+- [05:50.560] making America safe again. And if you
+- [05:52.720] look abroad on the world stage, the
+- [05:54.400] president is really using his peace
+- [05:56.160] through strength foreign policy approach
+- [05:58.240] once again. Um to the rest of the world
+- [06:00.639] knows that America is back. I know Joe
+- [06:02.960] Biden used to say that, but we're
+- [06:04.479] stealing it from him because it's
+- [06:05.840] actually true. Now with President Trump
+- [06:08.000] in the Oval Office, the world is a safer
+- [06:10.560] place and will continue to be. So thanks
+- [06:12.960] for coming to the influencer briefing. I
+- [06:14.479] look forward to taking your questions.
+- [06:15.600] And Deborah, why don't you kick us off?
+- [06:17.199] So congratulations on 100 incredible
+- [06:19.360] days. And over the first 100 days, the
+- [06:21.520] majority of policies that we've seen
+- [06:22.960] from the Trump administration have been
+- [06:24.560] either targeted at foreign affairs such
+- [06:26.240] as bringing the American hostages home
+- [06:28.240] or attempting to end the war between
+- [06:29.919] Ukraine and Russia or in long-term goals
+- [06:32.080] such as cover cutting government
+- [06:33.440] spending with Doge. What policies can we
+- [06:35.680] expect to see rolled out over the next
+- [06:37.120] few months that Americans will directly
+- [06:39.039] feel the effects of in order to secure
+- [06:40.960] the 2026 midterms for the Republican
+- [06:43.039] party and keep his approval rating
+- [06:44.880] historically high? Yeah, the first
+- [06:46.639] answer that comes to mind, Deborah, is
+- [06:48.080] definitely tax cuts. The president is
+- [06:50.080] working closely with Congress as we
+- [06:51.840] speak. He met with leadership from both
+- [06:53.840] chambers. The administration met with
+- [06:55.280] leadership from both chambers yesterday
+- [06:57.280] to talk about how we can quickly pass
+- [06:59.440] the largest tax cuts in American
+- [07:01.039] history. And the president promised on
+- [07:03.199] the campaign trail he wanted no tax on
+- [07:05.280] tips, no tax on social security for our
+- [07:07.919] hardworking seniors, no tax on overtime
+- [07:10.400] pay. He intends to keep those promises
+- [07:12.800] and he needs Congress's help to do so.
+- [07:14.720] That's why he's working closely with
+- [07:16.080] them. But you look at, again, I talked
+- [07:18.000] about the leverage the president uses to
+- [07:20.000] negotiate good trade deals around the
+- [07:22.000] world, but he uses that leverage right
+- [07:24.000] here in Washington as well on Capitol
+- [07:25.840] Hill. He has great relationships with
+- [07:27.919] leaders on both chambers. Um, and we are
+- [07:30.319] confident that we can pass a massive tax
+- [07:32.880] bill which will directly lead to more
+- [07:34.880] money in people's pockets right away.
+- [07:38.160] Sure. Go ahead. Yeah. So, the president
+- [07:40.639] has really wanted to end the war in
+- [07:43.120] Ukraine for a long time now and has been
+- [07:45.360] working on that in the first hundred
+- [07:46.880] days. We've seen um President Zalinski
+- [07:49.120] come here as well as the president
+- [07:50.960] meeting with President Zalinski uh just
+- [07:53.199] in the last couple of days. I'm
+- [07:54.879] wondering where those talks stand and if
+- [07:56.960] the president is optimistic that that
+- [07:58.639] that conflict is going to wrap up
+- [08:00.479] shortly. The president is optimistic yet
+- [08:03.520] realistic about the incredibly
+- [08:06.000] complicated and unfortunate situation
+- [08:08.319] happening uh with Ukraine and Russia.
+- [08:12.000] First of all, this is Biden's war. It
+- [08:14.160] would have never started if President
+- [08:15.759] Trump were in office. U there is a
+- [08:18.879] reason that Putin um did not invade
+- [08:21.680] Ukraine when President Trump was in the
+- [08:23.120] oval office. And it's because again pres
+- [08:25.120] President Trump leveraged the the power
+- [08:27.599] of the United States to warn Putin not
+- [08:29.680] to do it. And the president has spoken
+- [08:31.199] about that in those direct warnings to
+- [08:33.440] the Kremlin that he gave in his first
+- [08:35.440] term. Then we had a mentally incompetent
+- [08:37.519] president in Joe Biden who didn't even
+- [08:39.680] know what day it is, never mind knew how
+- [08:41.519] to prevent war and the entire world took
+- [08:44.640] advantage of that and took advantage of
+- [08:47.040] America's lackluster leadership abroad.
+- [08:49.920] And so we've had this this terrible war.
+- [08:52.800] The president talks about it all the
+- [08:54.320] time. He's briefed on it constantly.
+- [08:56.640] There are men dying on the front lines
+- [08:58.480] of this. an entire generation is being
+- [09:00.880] wiped out and enough is enough. The
+- [09:03.519] president has made it very clear he
+- [09:04.959] wants to see this end at the negotiating
+- [09:07.120] table, not on the battlefield. He has
+- [09:09.519] spoken directly to both sides of this
+- [09:11.600] war. He most recently met with President
+- [09:13.360] Zalinsky at the Vatican when he attended
+- [09:16.080] the funeral of Pope Francis and he
+- [09:18.720] remains optimistic that both sides will
+- [09:21.040] come together to negotiate peace. there
+- [09:22.880] are a lot of complexities on both sides
+- [09:25.040] of this war. But um and he so he's
+- [09:27.360] realistic about that. But he is
+- [09:29.279] optimistic that we are moving in the
+- [09:30.800] right direction. And if you just take a
+- [09:32.720] step back and look at where we are now,
+- [09:35.040] where you have concessions from both
+- [09:37.279] sides publicly where you have ceasefire
+- [09:39.519] proposals from both sides. President's
+- [09:41.360] made it clear he wants a permanent
+- [09:42.640] ceasefire first, but you actually have
+- [09:44.640] the United States talking to Russia. You
+- [09:46.240] have the United States talking to the
+- [09:47.600] Ukrainians on a daily basis,
+- [09:49.519] communicating with both sides. Look at
+- [09:52.160] that compared to where we were when we
+- [09:54.160] came into office where neither side was
+- [09:56.800] talking. There was just one approach to
+- [09:59.680] ending this war. No one was really
+- [10:01.600] talking about and peace deal. We were
+- [10:03.600] just talking about continuing to send
+- [10:05.760] blank checks um to continue funding the
+- [10:08.240] fighting and the killing. This war has
+- [10:09.680] been a meat grinder. Young men are
+- [10:11.680] dying. Women and children are dying as a
+- [10:14.480] collateral result of the military
+- [10:16.399] conflict. And the president wants to see
+- [10:17.920] it end as quickly and soon as possible.
+- [10:20.720] And I can tell you watching firsthand,
+- [10:22.720] he has exuded a tremendous amount of
+- [10:24.880] effort um into this war. He's getting
+- [10:27.600] frustrated with the amount of effort
+- [10:29.120] this has taken and he's made that clear
+- [10:30.720] to both sides. But he remains optimistic
+- [10:32.880] that we can get this done. Brendan, um I
+- [10:36.160] was wondering if you'd indulge me in a
+- [10:37.680] quick uh round of Trump trolling or
+- [10:39.440] Trump truthing. Sure, let's do it. Okay,
+- [10:41.600] good. Rapid fire. Greenland joining
+- [10:43.680] America. Uh definitely Trump truthing.
+- [10:47.920] Canada becoming a 51st state. Trump
+- [10:49.839] truthing all the way. And the Canadians
+- [10:52.160] would benefit greatly. Let me tell you
+- [10:53.760] that. Eliminating the IRS. Uh I think
+- [10:57.360] that is an optimistic goal. And the
+- [11:00.640] president, so I would say we're on the
+- [11:02.880] side of truth thing there for sure. And
+- [11:04.959] the president again wants to see tax
+- [11:06.640] cuts and he wants to see this massive
+- [11:08.320] revenue that we can gain from tariffs as
+- [11:10.560] well, which will create the external
+- [11:12.720] revenue service. So that's a definitive
+- [11:14.560] goal for sure. And most importantly,
+- [11:17.040] Trump 2028.
+- [11:20.399] Trump trolling. Although the hats are
+- [11:22.880] flying off the shelves,
+- [11:25.560] yes, Link, go ahead. So, one thing I've
+- [11:28.240] noticed in the first 100 days is that
+- [11:29.760] the White House is crawling with kids.
+- [11:32.000] You have a young, beautiful baby boy.
+- [11:34.000] There are babies everywhere. There's so
+- [11:35.519] many young folks on staff who have kids.
+- [11:37.680] But the last four years under Joe Biden,
+- [11:39.360] parents were really stressed and
+- [11:40.720] ravaged. They had to take on two or
+- [11:42.399] three extra jobs. Depression rates were
+- [11:44.399] up. Suicide rates were up. You're a very
+- [11:46.640] high-profile young mother who seems to
+- [11:48.800] juggle and balance it all beautifully.
+- [11:50.959] What advice do you have to young parents
+- [11:52.399] out there who are starting their
+- [11:53.519] careers, having kids, building families,
+- [11:55.440] and trying to find that balance so
+- [11:57.040] desperately? Yeah. Well, it's a great
+- [11:58.959] question and first to the heart of your
+- [12:01.040] premise. It's true. The president has
+- [12:03.040] empowered not just me as a young mother
+- [12:05.440] in this role, but there are so many new
+- [12:08.000] moms and dads on our senior staff in the
+- [12:11.040] West Wing, but also across the entire
+- [12:13.440] administration. There are working moms
+- [12:15.519] and dads who um are uh owing the our
+- [12:19.680] country public service for President
+- [12:21.920] Trump while raising young families. And
+- [12:24.320] the president really empowers us to do
+- [12:25.920] that and I commend him for that. He
+- [12:27.440] doesn't get enough credit for it. But as
+- [12:29.600] for the president is implementing
+- [12:31.600] policies every day to uplift young
+- [12:34.000] families and young people. He talked so
+- [12:36.320] much about young people and talked
+- [12:37.600] directly to young people so much on the
+- [12:39.440] campaign trail. It really, I think,
+- [12:41.279] inspires him when he u is around young
+- [12:43.920] people in a young audience. And he wants
+- [12:46.480] to restore the American dream for the
+- [12:48.399] next generation. Not just our generation
+- [12:50.880] of young folks, but our children and our
+- [12:53.040] grandchildren. What does that look like?
+- [12:55.040] Home ownership, the ability to afford a
+- [12:58.079] home, to live and to have a good paying
+- [13:00.880] job. That's part of this effort to
+- [13:02.720] onshore jobs because you have an entire
+- [13:05.120] generation going to these uh incredibly
+- [13:08.000] expensive and liberal higher education
+- [13:10.800] universities coming out saddled with
+- [13:13.040] debt and then unable to get a good
+- [13:14.880] paying job. The president wants to put
+- [13:16.320] an end to that so that young people can
+- [13:18.480] provide for their families and truly
+- [13:20.079] live the American dream. So to young
+- [13:22.240] people around the country, the president
+- [13:24.000] hears you, he sees you, he loves you,
+- [13:26.079] and he wants to uplift you. and all of
+- [13:28.160] the policies he's implementing every day
+- [13:30.079] are to provide a more prosperous and
+- [13:32.880] safe uh and free America for future
+- [13:35.880] generations. You're welcome. Sure.
+- [13:39.279] Nice to meet you. Thank you so much for
+- [13:41.120] the time. Um tacking off of Link's
+- [13:43.680] question about young people. One of the
+- [13:45.279] most pressing challenges for Gen Z right
+- [13:47.600] now is the lack of home ownership. As of
+- [13:49.680] 2025, believe is the median age is 38
+- [13:52.560] years old of first-time home buyers,
+- [13:54.079] which is, you know, a hindrance to
+- [13:55.680] starting families for a lot of people.
+- [13:57.519] How does the Trump administration plan
+- [13:58.959] on tackling this in the next four years?
+- [14:01.120] It's a major issue, as you mentioned,
+- [14:03.519] that's directly impacting young people
+- [14:05.519] and young families, and the president
+- [14:07.839] is, I think, tackling it headon already.
+- [14:10.480] The reason that homes have become so
+- [14:13.040] unaffordable is because of the massive
+- [14:15.199] inflation crisis caused by the previous
+- [14:17.839] administration. Not just the cost of a
+- [14:19.519] home, but everything that goes into
+- [14:21.279] building a new home went up and through
+- [14:22.959] the roof, right? We also saw mortgage
+- [14:24.720] rates reach incredible highs under the
+- [14:27.120] previous administration. So, a few
+- [14:29.040] things. The president wants to bring
+- [14:30.720] down the cost of living, which he is
+- [14:32.240] already doing as I mentioned in my
+- [14:34.160] opening remarks, which will um increase
+- [14:36.800] our supply of homes across the country.
+- [14:38.880] But he also wants to bring down mortgage
+- [14:40.399] rates and interest rates to make it
+- [14:42.079] easier for young people and all people
+- [14:44.720] to borrow money, to take out those
+- [14:46.320] loans, to buy your first home. And so we
+- [14:48.959] got to increase the supply, bring down
+- [14:50.720] costs, and bring down interest rates and
+- [14:52.399] mortgage rates. And by the way, those
+- [14:54.000] are all things the president
+- [14:55.360] successfully did in his first term. When
+- [14:57.600] he left office, inflation was a record
+- [14:59.839] low, 1.4%. Interest rates, mortgage
+- [15:03.040] rates also hit record lows in his first
+- [15:05.040] term. So, this is a proven economic
+- [15:07.360] formula that works. It takes time to get
+- [15:10.079] there. We are in the process of the
+- [15:12.000] golden age. The president and the admin
+- [15:14.160] are slashing regulation every day,
+- [15:16.240] cutting red tape, cutting costs. Um, and
+- [15:19.120] we need again Congress to pass those tax
+- [15:21.040] cuts to put more money back in people's
+- [15:22.639] pockets so they have greater purchasing
+- [15:24.480] power as well. You're welcome. Sure.
+- [15:26.959] Hey, Teresa with Independent Women and
+- [15:29.199] W. Oh, great. We love uh working with
+- [15:32.240] the administration to really tout
+- [15:33.680] policies that work for families and work
+- [15:35.360] for small businesses in this country.
+- [15:37.120] Next week is small business week and I
+- [15:38.880] know that the SBA will be, you know,
+- [15:40.480] championing all the small businesses,
+- [15:42.399] the millions in this country, almost
+- [15:44.160] half of which are womenowned. Um but I'd
+- [15:46.480] love to find out what the president
+- [15:47.680] feels about independent contractors who
+- [15:49.920] are not typical W2 employees, not
+- [15:52.560] nineto-ive workers, but who hang their
+- [15:54.399] own shingle. You know, they're 1099
+- [15:56.160] workers. We saw the Biden administration
+- [15:58.320] really try to crack down on that small
+- [16:00.720] business entrepreneurial spirit and
+- [16:02.800] we're hopeful that the administration
+- [16:04.480] would overturn what the Biden
+- [16:06.079] administration did and maybe even work
+- [16:07.600] with Congress to pass some lasting
+- [16:09.360] changes, codify some lasting changes
+- [16:11.600] that would protect, you know, your
+- [16:13.279] ability to be self-employed, your
+- [16:14.800] ability to be a small business owner.
+- [16:16.480] Well, the president is a businessman at
+- [16:18.639] heart himself, right? He's a a real
+- [16:20.480] estate developer and I think that's a
+- [16:22.959] large reason the American people elected
+- [16:25.120] him the first time and the second time
+- [16:27.680] because they trust in him and small
+- [16:30.560] businesses are the backbone of our
+- [16:32.320] American economy. I come from a small
+- [16:34.240] business family myself. Um and the
+- [16:36.480] president knows what small business
+- [16:38.000] families need and independent
+- [16:39.199] contractors need, entrepreneurs need.
+- [16:41.040] You need less government in the way. You
+- [16:42.800] need less regulation. You need low
+- [16:44.720] energy costs, low taxes, a low cost of
+- [16:47.519] living, a low cost of goods. And that's
+- [16:49.600] exactly what the president is focused on
+- [16:51.360] doing while simultaneously effectively
+- [16:54.480] leveraging tariffs to protect our middle
+- [16:56.800] class and our working class and our
+- [16:58.880] manufacturing base. You look at our auto
+- [17:01.040] industry. Think about Michigan. It used
+- [17:02.880] to be the the the heartland of the auto
+- [17:05.839] industry of the world. It was the auto
+- [17:07.839] capital of the world. And unfortunately,
+- [17:09.919] so many of those jobs have gone
+- [17:11.520] overseas. And so the president wants to
+- [17:14.079] protect good paying jobs here at home
+- [17:16.079] and unleash the might of our economy for
+- [17:18.640] small business owners and that removes
+- [17:20.640] uh that includes removing red tape and
+- [17:22.880] cutting taxes. Um and as for independent
+- [17:26.319] contractors and what the president would
+- [17:27.839] hope to do with Congress, we'll
+- [17:29.039] definitely check back in on that um and
+- [17:30.799] get you an answer because it's an
+- [17:32.240] important question. Welcome. Sure. Hi
+- [17:34.799] Will the National Pulse. Um you kind of
+- [17:37.280] gave us an overview of of negotiations
+- [17:39.280] between Ukraine and Russia 100 days in.
+- [17:41.679] What would the next steps look like
+- [17:43.120] though if we don't reach an agreement by
+- [17:44.720] say this summer? And also, can you give
+- [17:46.799] us an update on the rare earth minerals
+- [17:48.559] deal with Ukraine? And is there any kind
+- [17:50.320] of response from the administration to
+- [17:51.919] Greenlandic uh foreign minister uh
+- [17:54.240] Vivian Mozfeld um some her comments
+- [17:56.559] about maybe seeking aid with China?
+- [17:59.039] Sure. Uh to your first question about
+- [18:01.200] the critical minerals deal, the
+- [18:02.559] president is confident that will sign
+- [18:04.160] that will be signed. Ukraine needs to
+- [18:06.000] sign it. They should sign it. Uh it's
+- [18:08.000] not just good for the United States to
+- [18:09.600] recoup the billions of tax dollars we've
+- [18:11.919] spent and onshore some of those critical
+- [18:14.480] minerals, but certainly it's good for
+- [18:16.160] the Ukrainian people when this war is
+- [18:17.919] over to rebuild their country. It's an
+- [18:19.679] economic partnership between the United
+- [18:21.840] States and Ukraine. That's what the
+- [18:23.039] president envisions and he wants Ukraine
+- [18:24.960] to sign that deal. He's confident that
+- [18:26.400] they will. As for what it would look
+- [18:28.480] like later down the road, I don't want
+- [18:29.840] to get ahead of the president obviously,
+- [18:32.080] but again, I will reiterate he's
+- [18:34.080] increasingly grown frustrated um in in
+- [18:37.120] the amount of time you our secretary of
+- [18:39.360] state uh recently said, you know,
+- [18:41.520] there's not much more time or effort the
+- [18:43.200] United States has to give um to this
+- [18:45.440] effort. And so we need both sides to
+- [18:47.120] come to the table to negotiate. As for
+- [18:49.679] Greenland, it's I hadn't seen those
+- [18:51.520] comments. Um if true, I'm sure they are.
+- [18:54.000] Certainly an interesting strategy to
+- [18:55.440] cozy up to communist China. Greenland
+- [18:57.760] needs the United States of America. We
+- [18:59.440] subsidize their national security and
+- [19:01.200] their defense. Um, and the president has
+- [19:03.679] rightfully pointed out the great
+- [19:05.679] strategic importance that Greenland
+- [19:07.760] serves for not just our national
+- [19:09.360] security and economic interests, but for
+- [19:11.520] our country and for the world as a
+- [19:13.039] whole. We can't allow Chinese or Russian
+- [19:15.600] influence to um continue to infiltrate
+- [19:19.280] uh places like Greenland or the Panama
+- [19:21.360] Canal. I may add into the back. Can you
+- [19:24.400] talk about the importance of a stock
+- [19:25.919] market all-time high specifically in
+- [19:28.640] relation to the midterms and seems like
+- [19:30.880] a lot of folks uh when Trump was
+- [19:32.400] elected, they thought that stock market
+- [19:34.240] goes up, he really cares about that. He
+- [19:35.919] uses it as a measurement of the economy.
+- [19:37.600] It's gone down, but still up, you know,
+- [19:39.200] over the last 12 months or so. So, how
+- [19:41.039] much of that is playing into some of the
+- [19:42.320] economic policy decisions? I think the
+- [19:44.400] president has spoken on this. He said
+- [19:46.559] the stock market gets yepy, but he
+- [19:48.320] doesn't get yepy. He trusts in his
+- [19:50.559] economic agenda and formula obviously
+- [19:53.280] and you know, Wall Street made out very
+- [19:55.280] well in President Trump's first term.
+- [19:57.120] President Trump also wants to look out
+- [19:58.559] for Main Street and do what's best for
+- [20:01.280] both. So I think the president right now
+- [20:03.440] his main focus what drives him to make
+- [20:06.000] decisions is what's best for the
+- [20:08.000] workingclass Americans, for the American
+- [20:10.240] worker, for the small business owner,
+- [20:12.160] for American families. And he's trying
+- [20:14.160] to correct the wrongs of the last
+- [20:16.480] several decades, not just the last four
+- [20:18.240] years with the economic and inflation
+- [20:20.480] nightmare caused by the Biden
+- [20:22.160] administration, but of the unfair trade
+- [20:24.400] practices that have ripped off our
+- [20:25.679] country for a very long time. So look,
+- [20:27.679] the stock market goes up, it goes down,
+- [20:29.600] but President Trump has a goal. He has a
+- [20:31.600] vision and he's remaining very much
+- [20:33.679] committed to that. So, thank you so much
+- [20:36.159] everybody for joining today. We're
+- [20:37.840] heading off to Michigan tonight for a
+- [20:39.360] big rally. So, I am sure we'll see all
+- [20:42.159] of your amazing creative content uh on
+- [20:45.600] social media later. It's going to be a
+- [20:47.520] great speech and maybe you'll get a
+- [20:49.039] Trump dance, too. So, um thank you so
+- [20:51.280] much for coming today. It's a pleasure
+- [20:52.559] to have you here. Thank you.

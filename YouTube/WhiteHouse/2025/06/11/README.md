@@ -1,0 +1,31 @@
+# YouTube / WhiteHouse / 2025-06-11
+
+- Posts: 9
+
+- [21:31 UTC - President Donald J. Trump Visits Fort Bragg](cmzt5xJW4kc/)
+  - Source: https://www.youtube.com/watch?v=cmzt5xJW4kc
+  - [00:01.040] The life of a soldier is not just a job, - [00:04.560] it's a calling and a sacred tradition  passed down from father to son, - [00:09.680] brother to sister, - [00:1...
+- [21:09 UTC - Press Sec: ‘There Have Been 330 Illegal Aliens That Have Been Arrested as Part of These Riots in LA"](pS_OPPMzqho/)
+  - Source: https://www.youtube.com/watch?v=pS_OPPMzqho
+  - [00:00.080] Since June 6th, there have been 330 - [00:03.439] illegal aliens that have been arrested - [00:05.200] as part of these riots in Los Angeles. - [00:07.839] 113 of tho...
+- [20:30 UTC - The National Association of Home Builders (NAHB) Endorses the One Big Beautiful Bill](ONr0hZFB_NI/)
+  - Source: https://www.youtube.com/watch?v=ONr0hZFB-NI
+  - [00:00.080] My name is Eddie Martin. I'm a builder - [00:02.240] from Austin, Texas. My name is Will - [00:04.240] Cooper Jr. Uh I'm an affordable housing - [00:06.879] developer...
+- [20:30 UTC - The National Association of Home Builders (NAHB) Endorses the One Big Beautiful Bill](ZanBAAjh7_A/)
+  - Source: https://www.youtube.com/watch?v=ZanBAAjh7_A
+  - [00:00.080] My name is Eddie Martin. - [00:01.440] I'm a builder from Austin, Texas. - [00:03.520] My name is Will Cooper Jr. - [00:05.760] I'm an affordable housing  developer f...
+- [19:44 UTC - Third-World Insurrection Riots on American Soil](O3joiYg6J2E/)
+  - Source: https://www.youtube.com/watch?v=O3joiYg6J2E
+  - [00:00.080] A fourth day of rallies and protests  on the streets of Los Angeles. - [00:09.040] It was a peaceful rally. - [00:10.560] What is going on right now is also peaceful....
+- [19:43 UTC - Third-World Insurrection Riots on American Soil](XjeR2bOgFHA/)
+  - Source: https://www.youtube.com/watch?v=XjeR2bOgFHA
+  - [00:00.080] A fourth day of rallies and protests on - [00:02.639] the streets of Los Angeles. - [00:09.040] It was a peaceful rally. What is going - [00:11.120] on right now is a...
+- [17:42 UTC - Press Secretary Karoline Leavitt Briefs Members of the Media, June 11, 2025](z_ZBVqBjqtM/)
+  - Source: https://www.youtube.com/watch?v=z_ZBVqBjqtM
+  - [00:04.118] Karoline Leavitt: How are you? - [00:06.531] Good to see you all. - [00:08.930] What we have seen transpire in - [00:11.391] Los Angeles, California in recent days is...
+- [15:18 UTC - AG Pam Bondi: "If Gavin Newsom isn't going to protect them [Californians], we are."](Dxzq4B4H0LQ/)
+  - Source: https://www.youtube.com/watch?v=Dxzq4B4H0LQ
+  - [00:00.080] Well, Lawrence, evidently Gavin Newsome - [00:02.080] has not been out to the scene. He has - [00:03.600] not turned on the television set to see - [00:05.759] the in...
+- [15:04 UTC - For yet another month, inflation is lower than expected as prices for Americans continue to fall.](q9BuxX_zAYA/)
+  - Source: https://www.youtube.com/watch?v=q9BuxX-zAYA
+  - [00:00.240] There's no way to look at these numbers - [00:01.600] and say they're not welcome news. I - [00:03.040] mean, a downside surprise to core core - [00:05.040] goods is...

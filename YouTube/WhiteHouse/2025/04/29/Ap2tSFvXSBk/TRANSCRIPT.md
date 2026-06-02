@@ -1,0 +1,450 @@
+<!-- source: https://www.youtube.com/watch?v=Ap2tSFvXSBk -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: Ap2tSFvXSBk -->
+<!-- date_published: 2025-04-29T20:51:49+00:00 -->
+<!-- date_accessed: 2026-06-02T02:51:07.441385+00:00 -->
+
+# Transcript: President Trump Delivers Remarks to the Michigan National Guard
+
+- [00:10.080] Ladies and gentlemen, please welcome the
+- [00:12.000] 45th and 47th President of the United
+- [00:14.880] States, Donald J.
+- [00:23.530] [Music]
+- [00:28.359] Trump.
+- [00:32.009] [Music]
+- [00:42.280] Heat. Heat.
+- [00:44.870] [Music]
+- [00:59.820] [Applause]
+- [01:17.500] [Applause]
+- [01:35.360] Well, I guess they think we're going to
+- [01:36.960] save this place. And you know what?
+- [01:39.280] They're right. 100% right. We're going
+- [01:41.600] to save it and make it better, actually.
+- [01:44.000] So, at ease, everybody at ease. Enjoy
+- [01:46.479] yourself. Sit down if you can. If those
+- [01:48.799] are chairs. Yeah, they are in a sense.
+- [01:52.240] Thank you very much. It's an honor to be
+- [01:55.840] back in the great state of Michigan. And
+- [01:58.719] as you know, we had big victory in
+- [02:00.840] Michigan. And uh I won't forget it. And
+- [02:04.159] I'm not forgetting it. And I'm honored
+- [02:06.960] to be here at Selfridge Air National
+- [02:10.080] Guard Base with the men and women of the
+- [02:13.520] 127th Wing of the Michigan Air National
+- [02:18.239] Guard. Thank you very much for being
+- [02:19.680] here. This is great. is a great honor
+- [02:22.000] and a great honor for me. We've had such
+- [02:23.840] success in Michigan. I want to thank the
+- [02:27.920] Secretary of Defense Pete Hegsath who's
+- [02:31.040] doing a really great job. The Houthis
+- [02:32.800] will tell you that he's doing a very
+- [02:35.440] good job. Major General Paul Rogers and
+- [02:38.080] Brigadier General Daniel Kramer of the
+- [02:40.879] Michigan National Guard.
+- [02:43.519] Commander of the 127th Wing, Brigadier
+- [02:47.760] General Matthew Bronco. Thank you very
+- [02:50.959] much. Deputy Commander, Colonel David
+- [02:55.400] Spear, wherever you may be, David,
+- [02:58.000] where's David? Huh? Hello. Hello. Hello,
+- [03:02.080] David. Where where the hell are you,
+- [03:05.560] David? Oh, hello, David. Thank you very
+- [03:08.599] much. He's like the quiet type, right?
+- [03:12.000] But but a killer, I
+- [03:14.519] hear. Command Chief Master Sergeant
+- [03:17.200] Bruce Hedrickk.
+- [03:19.640] Bruce. Hello, Bruce. Thank you very
+- [03:22.400] much, Bruce. Thank you, Bruce. Great
+- [03:25.800] job. For decades, uh, they've been
+- [03:29.760] trying to save this facility. I didn't
+- [03:32.400] realize that. I thought it was just
+- [03:33.760] recently because I heard about it
+- [03:35.440] recently from some people, including
+- [03:37.280] your governor, who has, uh, done a very
+- [03:40.000] good job. She came to see me. That's the
+- [03:43.120] reason she came to see me, by the way,
+- [03:44.640] to save
+- [03:45.799] Selfridge. And uh she was very effective
+- [03:49.360] along with some of the other politicians
+- [03:52.959] and some of the military people. They
+- [03:54.879] love this place. They love that what it
+- [03:56.560] stands for, all the victories they've
+- [03:59.200] had here over the years. So, I want to
+- [04:01.519] thank Governor Gretchen Whitmer for
+- [04:03.439] bringing it also to our attention very
+- [04:05.280] strongly.
+- [04:12.680] [Applause]
+- [04:15.439] And you know, I'm not supposed to do
+- [04:16.880] that. She's a Democrat. They say, "Don't
+- [04:18.799] do that. Don't have her here." I said,
+- [04:20.160] "No, she's going to be here. She's done
+- [04:21.840] a a very good job, frankly, and she's uh
+- [04:24.880] she was very much involved with with the
+- [04:27.360] Republicans. They worked together on
+- [04:28.960] saving it, and it was not easy. So, I
+- [04:32.000] want to thank you very much, Gretchen.
+- [04:33.440] Good job. Thank you."
+- [04:35.759] Michigan House Speaker Matt Hall worked
+- [04:38.080] with Gretchen and everybody else. Thank
+- [04:39.919] you, Matt. Great job you're doing, too.
+- [04:42.720] John James, as you know, is uh right now
+- [04:46.560] working on the great big beautiful deal.
+- [04:48.880] I said, "Do me a favor, John. Just stay
+- [04:50.639] back there and let's get your vote.
+- [04:52.479] Let's not worry about this today." Uh
+- [04:55.040] but John was fantastic as were all of
+- [04:58.240] the other representatives that you have
+- [05:00.800] that are right now in Congress working
+- [05:02.720] very very very hard actually and
+- [05:06.240] Michigan Senate Republican Leader Eric
+- [05:08.600] Nesbbit. Thank you very much, Eric.
+- [05:10.960] Thank you very much. Great job. Done a
+- [05:13.120] great job. But I want to thank all of
+- [05:15.600] the people that uh I just mentioned, but
+- [05:18.639] in particular the the you know when I
+- [05:20.560] look at the House members, they have
+- [05:22.080] been uh calling me all the
+- [05:25.400] time. We got to get it done. And they
+- [05:28.240] worked along with Gretchen and some
+- [05:30.120] others. And uh you're going to be very
+- [05:32.720] happy with what I have to say right now.
+- [05:35.520] I also want to thank Michigan's
+- [05:37.039] tremendous
+- [05:38.039] Republican delegation, the whole
+- [05:40.880] delegation, the whole state, because
+- [05:43.600] they're back in Washington and they're
+- [05:46.080] uh helping our congressmen and they're
+- [05:49.120] helping us get the votes that we need
+- [05:50.639] because I think uh if we get it, we have
+- [05:53.360] the biggest tax cut in history. And if
+- [05:56.400] we don't get it, you have the biggest
+- [05:57.600] tax increase. And for that, I will blame
+- [06:00.400] the Democrats because we probably won't
+- [06:02.160] get any votes from Democrats. Only not
+- [06:04.400] for any reason other than we're dem
+- [06:06.720] we're Republicans and the Democrats tend
+- [06:09.360] not to vote anytime we vote. It's the
+- [06:11.280] whole thing is so crazy. But it'll be
+- [06:14.560] the biggest tax increase in history if
+- [06:16.479] we don't get it. And uh that's why the
+- [06:19.600] Republicans can do it, but they have to
+- [06:21.360] stick together. And I think they are,
+- [06:22.720] from what I understand, really sticking
+- [06:24.400] together. I want to thank also uh
+- [06:27.280] Speaker of the House Mike Johnson and
+- [06:30.479] John Thun leader John Thun. They have
+- [06:33.120] been working together and with the
+- [06:35.440] senators and the Congress men and women
+- [06:37.919] and I think they've got something that's
+- [06:39.919] really it's big league and it's it's
+- [06:42.319] very important. Biggest the biggest bill
+- [06:45.280] ever if we get it done and I think we
+- [06:47.600] will. For decades, Selfridge Air
+- [06:49.840] National Guard base, has stood as a
+- [06:51.759] crucial pillar of North American air
+- [06:54.000] defense, just 20 miles north of Detroit,
+- [06:57.520] where you're going to have a lot of car
+- [06:58.800] factories opening very soon, by the way,
+- [07:00.720] I might add, with access to the largest
+- [07:03.599] military airspace complex east of the
+- [07:05.759] Mississippi. Selfridge is tightly
+- [07:07.759] integrated with the National Allain War
+- [07:11.039] Fighting Center. This airfield saw its
+- [07:14.319] first military takeoff all the way back
+- [07:16.520] in
+- [07:18.280] 1917. Can you believe that? Wow.
+- [07:20.960] Wouldn't that have been a shame to close
+- [07:23.280] this great history for something else
+- [07:25.360] that wouldn't be as good? The Tuskegee
+- [07:28.800] airmen trained here during World War II
+- [07:31.039] and generations of Michigan patriots
+- [07:33.199] have served here with great distinction.
+- [07:36.560] Unfortunately, that proud legacy was put
+- [07:38.800] at risk by the retirement of the key
+- [07:41.039] aircraft based here, in particular the
+- [07:44.000] A10 Thunderbolt 2 Warthog, who which I
+- [07:47.759] hear is an incredible plane. I hear is
+- [07:50.720] an incredible plane. It's too bad. It's
+- [07:53.280] long time it's been up there. I said,
+- [07:55.840] why don't we save it? I actually said
+- [07:57.759] that last time, and we did save it. I
+- [08:00.160] said that in my last term, and we did
+- [08:02.000] save it, but now it's coming. It's
+- [08:03.919] coming to an end. But I hear the Warthog
+- [08:06.560] is incredible and we have uh support
+- [08:10.240] aircraft and also the KC
+- [08:14.120] 135 Strata
+- [08:16.120] tankers. In recent years, many in
+- [08:18.639] Michigan have feared for the future of
+- [08:20.639] the base. They've been calling
+- [08:22.919] everybody, but the only one that
+- [08:24.960] mattered was Trump. They called Trump
+- [08:27.360] and we got it done. Which represents
+- [08:31.080] 850 million dollars in economic impact
+- [08:34.399] across the state of Michigan and
+- [08:37.760] probably it could be much more than that
+- [08:39.599] as we expand it out and creates
+- [08:42.560] thousands and thousands of good and
+- [08:44.560] important jobs both in the military and
+- [08:47.680] civilian jobs. So Gretchen, that's a big
+- [08:50.160] uh that's a big economic you're not
+- [08:52.240] going to have too many economic
+- [08:53.440] development jobs like that. It's great.
+- [08:56.160] But today, I've come in person to lay to
+- [08:59.440] rest any doubts about Selfridg's future
+- [09:02.240] and the vital role it'll play in our
+- [09:04.240] national defense. As commander-in-chief,
+- [09:07.279] I'm proud to announce that very soon we
+- [09:10.480] will replace the retiring A10 Warthogs
+- [09:13.440] with 21 brand new F-15 EX Eagle 2
+- [09:17.200] fighter jets, the best in the world,
+- [09:19.760] fresh off the line.
+- [09:26.760] [Applause]
+- [09:34.959] Brand
+- [09:44.519] new. And they have an expression. You
+- [09:46.880] know what that means? Fresh off the
+- [09:48.399] line. That means they are brand new.
+- [09:50.080] They've never been anywhere. this is
+- [09:51.440] where they're going to be for a long
+- [09:52.720] time. And I saw one of them flew over my
+- [09:55.760] head and I said, "What the hell is that?
+- [09:58.720] That plane has serious power." So, this
+- [10:01.600] is the best there is anywhere in the
+- [10:03.200] world, the F-15 EX Eagle 2. This will
+- [10:07.680] keep Selfridge at the cutting edge of
+- [10:10.560] Northern American air power. My
+- [10:14.160] administration will also continue with
+- [10:16.079] plans to replace the outgoing
+- [10:19.399] KC135s and KC46 Pegasus aircraft to
+- [10:23.440] continue that important refueling
+- [10:25.000] mission. And they'll be re restocked
+- [10:27.680] with brand new
+- [10:29.320] top-of-the-line refuelers. For
+- [10:31.760] generations, the men and women of
+- [10:33.600] Selfridge have always been here and
+- [10:36.240] they've always been for us. Whether
+- [10:37.680] you're Republican or you're Democrat,
+- [10:39.360] they've always been for us. They've been
+- [10:40.720] for America. And under the Trump
+- [10:42.880] administration, we're going to be there
+- [10:44.640] for you. The previous administration was
+- [10:47.839] willing to surrender Air National Guard
+- [10:49.839] fighter units across the country by
+- [10:51.680] retiring aircraft that were not being
+- [10:54.480] replaced. We are replacing. But under
+- [10:57.440] the Trump administration, we're
+- [10:59.040] correcting that injustice. And that
+- [11:00.880] starts right here in Michigan, where we
+- [11:03.440] have a big commitment to Michigan and to
+- [11:05.279] the state, even beyond this. This is an
+- [11:08.000] exciting time for the United States
+- [11:10.079] military. Since November, enlistment
+- [11:12.640] numbers for every branch of the armed
+- [11:14.640] forces have surged. Recruitment is now
+- [11:17.279] the highest it's been in
+- [11:19.720] 39 years. Now, if you remember that, you
+- [11:23.279] better hold on to those jobs or somebody
+- [11:25.200] will take them. Somebody will take those
+- [11:28.079] jobs so fast. Hold on to those jobs.
+- [11:31.279] Don't leave that job. Who would have
+- [11:32.720] thought? Because prior to November 5th,
+- [11:35.360] which is election day, I was hearing
+- [11:37.920] that recruitment was so bad. It was so
+- [11:40.399] impossible. It was hard to get people.
+- [11:42.959] And this goes not only for the armed
+- [11:44.800] forces, for the police, for firemen.
+- [11:47.200] People are proud of our country again.
+- [11:49.360] Big difference. But we had the worst
+- [11:51.920] numbers that we've ever had virtually.
+- [11:54.000] We couldn't get anybody. And now we're
+- [11:56.240] overstocked. We have waiting lists of
+- [11:58.320] people wanting to sign up and be with
+- [12:00.240] the military. They're proud of our
+- [12:01.600] country again. And I'll be supporting a
+- [12:04.720] record- setting $1 trillion investment
+- [12:07.120] in our national defense. We're going to
+- [12:08.800] go $1 trillion dollars, the largest in
+- [12:10.959] the world, largest ever in our country,
+- [12:14.240] but no other country's invested that
+- [12:16.399] much. We have a $1 trillion budget for
+- [12:19.760] military this year, and we have
+- [12:22.320] tremendous plans, including increasing
+- [12:25.279] the scope of Selfridge. And I recently
+- [12:28.480] signed an order to begin construction of
+- [12:30.639] the Golden Dome Missile Defense Shield
+- [12:32.560] to protect our homeland from missile
+- [12:34.639] attack. We're going to call it the
+- [12:35.920] Golden Dome. We had the Iron Dome, but
+- [12:38.560] somehow Gretchen, Golden Dome sounds
+- [12:40.959] better to me. I don't know. Maybe it's
+- [12:43.680] not. What do you like better? Golden
+- [12:45.680] Dome or Iron Dome? What do you like
+- [12:47.279] better? Golden. Let's have a vote.
+- [12:49.120] Golden Dome. Oh, no. I think we're in
+- [12:52.040] trouble.
+- [12:57.240] Oh, how about the Iron Dome? Good. Keep
+- [13:01.200] it nice. Good. Because we made all the
+- [13:03.600] changes already. It'll be a little bit
+- [13:05.160] uh even the renderings look very golden
+- [13:08.000] and look beautiful. No, it's going to be
+- [13:09.760] incredible. The latest and the greatest.
+- [13:11.360] A lot of it's going to be made in
+- [13:12.639] Michigan. A lot of it is going to be
+- [13:14.160] made. The Golden Dome, you know, other
+- [13:16.720] countries have it. In particular, Israel
+- [13:18.639] has it and uh we have a much more
+- [13:21.519] advanced and theirs is very good. We
+- [13:23.200] helped do it. We did it. But we have an
+- [13:26.320] advanced version now that really is uh
+- [13:28.560] incredible what it does. It it we had a
+- [13:31.680] a case study of 169 out of 169. Every
+- [13:37.040] one of them just shut down. And uh I
+- [13:40.160] think we're entitled to it, don't you? I
+- [13:41.680] think we're entitled to it as a country.
+- [13:44.000] America's military will soon be stronger
+- [13:46.079] and more powerful than ever before. And
+- [13:47.920] Selfridge Air National Guard Base will
+- [13:50.320] remain at the center of the action. And
+- [13:53.760] I just want to say we're building some
+- [13:55.360] of the greatest submarines and various
+- [13:58.639] other ships, but submarines in
+- [14:01.040] particular. We have a monopoly on great
+- [14:03.440] submarines. We're building the greatest
+- [14:05.040] in the world. Most powerful machine ever
+- [14:07.000] built. And uh we're doing some things
+- [14:09.600] that are just uh incredible. In one way,
+- [14:12.560] you hate to do it, but in another way,
+- [14:14.240] you really have no choice. And we're
+- [14:16.639] fighting very hard on the China front
+- [14:19.199] and the Russia front with Ukraine and
+- [14:21.920] what's happening in the Middle East and
+- [14:23.440] a lot of good things. You're going to be
+- [14:24.560] hearing a lot of good things. It's uh a
+- [14:27.760] shame. When I left office not so long
+- [14:30.800] ago, we had no wars. We defeated ISIS in
+- [14:33.760] three weeks. It was supposed to take
+- [14:35.920] five years. They told me, "Sir, it's
+- [14:37.440] going to take about five years. We did
+- [14:38.959] it in three weeks." Raisin Kane, he's
+- [14:40.959] now your your top, you know, he's your
+- [14:44.360] top your top person. He's the head of
+- [14:47.120] the joint chiefs. And I did that because
+- [14:50.079] he was the one. He said, "Sir, we can do
+- [14:51.839] it in three weeks." I said, "Three
+- [14:53.600] weeks?" They told me, "Five years." "No,
+- [14:56.240] sir, you can do it in three weeks, sir."
+- [14:59.519] And I said, "Let's see if you can do
+- [15:01.120] it." And he did it. He had a little time
+- [15:02.639] left over, actually. And ISIS was gone.
+- [15:06.000] Totally defeated. And he's the man we
+- [15:08.639] wanted. That's a man I said if I do this
+- [15:10.399] again, I'm going to put that guy in
+- [15:11.920] charge because he did things that nobody
+- [15:13.760] else was able to do. And nobody else
+- [15:16.240] even thought it or even suggested. So,
+- [15:19.360] very proud to have him head up the whole
+- [15:22.880] military operation along with Pete and
+- [15:25.440] some other great people. So, I just want
+- [15:28.000] to say that uh Michigan, it's been my
+- [15:30.800] great honor to be here. I've had
+- [15:32.240] tremendous success in Michigan. Not all
+- [15:34.639] Republicans have, but I have. And uh not
+- [15:38.000] just this time either. We had tremendous
+- [15:40.079] we did tremendously well in 2020 and we
+- [15:43.360] did incredibly well in 2016. In 2016
+- [15:46.560] they said it couldn't be won. You know
+- [15:49.199] it couldn't be won but we won and we won
+- [15:50.959] by a lot. So it's a special place and I
+- [15:53.920] don't forget I don't forget my friends
+- [15:55.680] and Michigan's been my friend and I want
+- [15:58.240] to just thank everybody here. I want to
+- [15:59.759] congratulate you actually because a lot
+- [16:01.680] of people wanted this to happen to their
+- [16:04.560] neck of the woods but it's happening for
+- [16:06.880] you. So congratulations and God bless
+- [16:09.680] you all. God bless our military and God
+- [16:11.759] bless America. Thank you very much.
+- [16:13.519] Congratulations everybody.
+- [16:15.519] Congratulations.
+- [16:19.580] [Applause]
+- [16:33.830] [Music]
+- [16:34.450] [Applause]
+- [16:39.360] only because the commander-in-chief
+- [16:40.800] invited
+- [16:41.720] me. Mr. President, thank you for
+- [16:43.920] restoring the warrior ethos inside our
+- [16:46.199] formations, for rebuilding our military,
+- [16:48.639] reestablishing deterrence around the
+- [16:50.240] world, and making Americans proud to
+- [16:52.160] wear the uniform. That recruiting surge
+- [16:54.720] we're seeing right now is because they
+- [16:56.720] know they have a commander-in-chief that
+- [16:58.959] has their back. That's my message to
+- [17:01.120] these men and women every single place
+- [17:02.639] we go. All I ever wanted when I was in
+- [17:05.280] combat was to know that my commander had
+- [17:07.600] my back, no matter what. And with Donald
+- [17:10.400] J. Trump, that commander has your back.
+- [17:13.280] And that means something to the men and
+- [17:14.880] women of America. And that's why we're
+- [17:16.559] seeing a record surge in recruiting.
+- [17:18.480] That's why we're locking down our
+- [17:19.679] southern border. That's why our enemies
+- [17:21.520] know we mean business. Because we have a
+- [17:23.600] commander and chief that has our back.
+- [17:25.760] And he has the back of this base as
+- [17:28.000] well. God bless you all. Thank you.
+- [17:34.460] [Applause]
+- [17:43.039] Well, I hadn't planned to speak, but I
+- [17:45.200] on behalf of all the military men and
+- [17:47.760] women who serve our country and serve so
+- [17:51.120] honorably on behalf of the state of
+- [17:52.559] Michigan, I am really damn happy we're
+- [17:55.039] here to celebrate this recapitalization
+- [17:57.360] at Selfridge. It's crucial for the
+- [17:59.360] Michigan economy. It's crucial for the
+- [18:00.880] men and women here, for our homeland
+- [18:03.039] security, and our future. So, thank you.
+- [18:05.760] I'm so so grateful that this
+- [18:08.480] announcement was made today and I
+- [18:10.160] appreciate all the work. Thank you.
+- [18:18.100] [Applause]
+- [18:20.559] Well, thank you. Thank you, Mr.
+- [18:22.240] President. Uh it's because of your
+- [18:24.320] leadership this is happening. No one
+- [18:26.720] else could save Selfridge. We've tried
+- [18:28.960] for decades. It took you, Mr. President.
+- [18:32.000] This is why the people of Michigan
+- [18:33.760] elected you, sir. You have not
+- [18:35.919] forgetting us. This is the first time in
+- [18:38.880] decades where we can all say Selfridge
+- [18:41.600] is winning. We are winning because of
+- [18:43.679] you, President Trump. And I know all of
+- [18:45.679] these troops here will not let you down
+- [18:47.440] with this new fighter mission, which
+- [18:49.360] will keep Selfridge Air National Guard
+- [18:51.679] Base thriving for the next 30 to 40
+- [18:53.919] years. Thank you, Mr. President, for
+- [18:56.000] remembering us and keeping your
+- [18:57.840] commitment when we saw you in Washington
+- [18:59.520] a few weeks ago. Thank you, sir.
+- [19:04.200] [Applause]
+- [19:11.679] Well, Mr. President, thank you for
+- [19:13.840] coming to Mcome County. Thank you for
+- [19:15.600] coming to Michigan. And thank you for
+- [19:18.039] providing another important service of
+- [19:21.600] the
+- [19:22.440] F-15X. This means that these folks are
+- [19:25.280] going to be continuing on the mission
+- [19:26.720] for America for the coming decades.
+- [19:29.280] Because of your leadership, America's
+- [19:31.679] back again. Mcome's back again.
+- [19:34.480] Michigan's back again. And Selfridge
+- [19:36.480] will be leading the way. Thank you, Mr.
+- [19:38.080] President, for showing that leadership.
+- [19:40.190] [Applause]
+- [19:55.040] [Music]
+- [19:56.480] [Applause]
+- [19:59.300] [Music]
+- [19:59.660] [Applause]
+- [20:01.000] [Music]

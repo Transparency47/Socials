@@ -1,0 +1,1332 @@
+<!-- source: https://www.youtube.com/watch?v=gz-qMp6p8SY -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: gz-qMp6p8SY -->
+<!-- date_published: 2025-09-22T01:16:08+00:00 -->
+<!-- date_accessed: 2026-06-02T01:15:00.162981+00:00 -->
+
+# Transcript: President Trump Participates in the Memorial Service for Charlie Kirk
+
+- [00:00.040] Male Speaker: Ladies and gentlemen,
+- [00:01.350] the Vice President of the United States of America, J.D. Vance.
+- [00:04.890] (cheers and applause)
+- [00:26.180] The Vice President: Thank you.
+- [00:27.610] Thank you all so much, you know --
+- [00:30.660] (cheers and applause)
+- [01:00.600] You know, I can't help but think that they tried
+- [01:04.990] to silence my friend, Charlie Kirk.
+- [01:07.680] They tried to silent our dear friend, Charlie Kirk.
+- [01:11.590] And today, tonight, we speak with Charlie
+- [01:16.090] and for Charlie louder than ever.
+- [01:20.200] (applause)
+- [01:27.570] The evil murderer who took Charlie from us
+- [01:31.040] expected us to have a funeral today,
+- [01:33.980] and instead, my friends, we have had a revival
+- [01:37.390] in celebration of Charlie Kirk and of his Lord Jesus Christ.
+- [01:42.880] (applause)
+- [01:48.960] We gather here in this stadium,
+- [01:52.790] in the hot Arizona sun shielded in a great shining city
+- [01:57.920] our fathers raised out of the desert.
+- [02:01.930] And from this desert, Charlie Kirk built a movement.
+- [02:07.510] He transformed the face of conservatism in our own time,
+- [02:11.730] and in doing so he changed course of American history.
+- [02:17.140] To rising generations across this country,
+- [02:20.640] Charlie exemplified kindness, courage,
+- [02:24.320] and a commitment to open debate.
+- [02:27.230] And he was a great debater, and we loved him for it.
+- [02:30.730] But Charlie loved debate not because he excelled at it,
+- [02:34.190] but because it was the vehicle
+- [02:35.850] for bringing the light of truth to dark places.
+- [02:39.750] And Charlie Kirk brought many truths in his life.
+- [02:48.910] Charlie brought the truth
+- [02:51.030] that young people deserve a stake in the future
+- [02:53.970] and that they deserve to have a voice.
+- [02:57.900] He brought the true that marriage and family
+- [03:01.430] were the highest callings,
+- [03:02.690] far more important than any job or educational credential.
+- [03:06.910] He brought that truth that our nation would fade
+- [03:12.590] unless it brought order to its neighborhoods
+- [03:15.860] and prosperity to its people.
+- [03:18.610] He brought the truth that life was precious,
+- [03:22.080] and we must fight to protect it at all stages and at all times.
+- [03:28.060] (applause)
+- [03:34.350] But most of all, Charlie brought the truth
+- [03:38.150] that Jesus Christ was the King of Kings
+- [03:40.610] and that all truth flowed from this first
+- [03:43.260] and most important one.
+- [03:45.610] (applause)
+- [03:51.700] But Charlie, he did so much more than tell the truth.
+- [03:55.170] He lived it.
+- [03:56.420] Charlie understood that the best evangelization
+- [03:59.120] was not in what you said, but in how you lived your life.
+- [04:03.580] And in this city, he lived his life well.
+- [04:06.100] He raised a wonderful family.
+- [04:09.400] He had a beautiful wife, two beloved children,
+- [04:12.720] and a loving and godly home.
+- [04:15.150] In this, he showed us the importance of family.
+- [04:18.640] He lived three decades, he had on this earth.
+- [04:21.590] With a sense of Christian virtue that would make any man,
+- [04:25.350] any person proud.
+- [04:26.930] And in this, he showed the importance of following God.
+- [04:31.160] He was a kind-hearted man, a hardworking person,
+- [04:34.950] and any parent would be proud to have him as a son.
+- [04:38.600] In this, He showed the virtue of industriousness.
+- [04:42.970] He was present and loving as any child
+- [04:46.320] would hope of his or her father, and in this.
+- [04:49.440] He showed the importance of strong Christian fatherhood.
+- [05:01.580] He was fearless, and he was bold,
+- [05:03.570] as any follower would hope would be true of a leader.
+- [05:08.100] And in this, he showed all of us how to carry on after his death.
+- [05:13.870] You know, Charlie Kirk, he loved history.
+- [05:15.630] He devoured the ideas that formed the foundation
+- [05:19.500] of our civilization.
+- [05:21.470] He stood for a tradition that Socrates established
+- [05:24.940] 2,500 years ago, to question, to search, and to teach.
+- [05:32.370] He was Athens and Jerusalem,
+- [05:35.030] the city of reason and the city God in one person.
+- [05:40.050] But if he loved those places, they were not his home.
+- [05:44.840] America was his home and he was willing to die for it.
+- [05:56.960] You know, Charlie, he loved this country
+- [05:59.210] with a contagious intensity.
+- [06:01.600] Anybody who talked to him knew it and felt it.
+- [06:04.760] He knew that America was a beautiful place
+- [06:07.130] and we had these incredible ideas,
+- [06:09.370] but he also knew that our country was a covenant
+- [06:12.740] between the generations past, present, and future.
+- [06:16.710] He believed this country's best days were not behind us,
+- [06:20.440] but ahead of us.
+- [06:21.690] But he knew those better days would have to be earned.
+- [06:24.470] They would have to be worked for.
+- [06:26.180] We would have to sacrifice and work and tell the truth.
+- [06:30.320] He knew that America wouldn't be saved
+- [06:32.550] just by pulling together seminars
+- [06:34.730] or talking about the right kind of books
+- [06:36.680] in front of the right kind of people.
+- [06:38.970] The movement which he created demanded more.
+- [06:43.760] It demanded courage, it demanded hard work,
+- [06:47.070] it demanded building,
+- [06:48.420] and it demanded leaders and my friends and Charlie Kirk,
+- [06:51.870] we found a great American leader.
+- [07:02.760] Now our whole administration is here,
+- [07:05.180] but not just because we love Charlie as a friend,
+- [07:07.530] even though we did,
+- [07:08.940] but because we know we wouldn't be here without him.
+- [07:12.920] Charlie built an organization
+- [07:17.090] that reshaped the balance of our politics.
+- [07:21.430] Turning Point brought millions of young people
+- [07:24.420] into conversation with one another,
+- [07:26.780] brought millions of people into advocacy.
+- [07:29.050] He asked of us not just that we talk about saving our country,
+- [07:33.180] but that we actually go and do it, and we do it together.
+- [07:46.290] But even as Charlie built on a grand scale,
+- [07:48.730] his greatness was never only in his ambition.
+- [07:52.810] It was measured in the everyday moments as well,
+- [07:55.510] in the way that he treated ordinary people
+- [07:58.660] each and every single day.
+- [08:01.500] You know, you learn a lot about someone
+- [08:04.230] by how they treat others when the cameras aren't on.
+- [08:08.570] Charlie treated staffers as well
+- [08:10.830] as he treated the President of the United States.
+- [08:14.530] When I was just a guy polling at nothing in my Senate race
+- [08:17.750] back in 2021, Charlie helped me.
+- [08:21.240] Not because I was a future vice president,
+- [08:23.520] but because I a dear friend.
+- [08:27.000] I saw just a couple of months ago when a White House
+- [08:29.300] staffer struggled with the weight of his job
+- [08:32.280] and the responsibilities of new fatherhood.
+- [08:35.330] Charlie stopped what he was doing
+- [08:38.110] in the hallways of the West Wing
+- [08:40.090] and said a prayer for that staffer.
+- [08:43.020] Because Charlie believed that we were all children of God,
+- [08:46.310] he treated everyone with grace.
+- [08:49.340] And that is perhaps the enduring legacy of Charlie Kirk.
+- [08:53.250] You know, I was telling somebody backstage
+- [08:58.760] that I always felt a little uncomfortable
+- [09:00.950] talking about my faith in public as much as I loved the Lord
+- [09:04.750] and as much it was an important part of my life.
+- [09:08.210] I have talked more about Jesus Christ in the past two weeks.
+- [09:12.470] Than I have my entire time in public life.
+- [09:36.740] And that is an undeniable legacy of the great Charlie Kirk.
+- [09:41.360] You know, he loved God. And because he loved god,
+- [09:45.730] he wanted to understand God's creation
+- [09:48.560] and the men and women made in his image.
+- [09:52.650] Now much has been said over the last week
+- [09:55.300] about Charlie's ability to approach any topic,
+- [09:59.110] any person in good faith,
+- [10:00.800] an achievement that was only possible
+- [10:03.460] because Charlie knew that we were all children of God.
+- [10:09.170] He knew deep down the truth of scripture,
+- [10:12.910] and from that confidence, everything else flowed.
+- [10:15.770] That unshakable belief in the gospel
+- [10:19.080] led him to see differences in opinion,
+- [10:21.770] not as battlefields to conquer,
+- [10:24.250] but as way stations in the pursuit of truth.
+- [10:29.000] He knew it was right to love others,
+- [10:31.590] your neighbor, your interlocutor, your enemy.
+- [10:36.690] But he also understood his duty
+- [10:38.230] to say what is right and what is wrong,
+- [10:41.470] to distinguish what is false from what is true.
+- [10:55.410] Charlie was slain, doing what he loved,
+- [10:58.750] telling the truth, proclaiming his faith,
+- [11:02.340] building out a dream, and now he's gone.
+- [11:06.360] And our hearts feel so empty because he's been taken from us.
+- [11:10.730] He's been taking from his parents and from his sister.
+- [11:14.310] He's being taken from our darling Erika
+- [11:17.360] and their beautiful children. And Erika,
+- [11:19.750] I know I speak for this entire auditorium when I say.
+- [11:23.680] That we love you and we will never stop standing by your side
+- [11:27.970] just as Charlie did.
+- [11:30.640] (applause)
+- [11:40.900] He was taken from us by those who despise the virtues
+- [11:47.530] that actually made our civilization great
+- [11:51.500] to begin with.
+- [11:53.030] Dialog, truth-seeking, family, and faith.
+- [11:58.850] In the wake of his death,
+- [12:00.090] we have seen some of the very worst parts of humanity.
+- [12:05.980] We have watched people slander him.
+- [12:09.370] We have watched people justify his murder
+- [12:12.350] and celebrate his death.
+- [12:16.100] I know that this makes you angry just as it has made me angry,
+- [12:20.910] but it is easy in these moments
+- [12:22.560] to see only the worst of our fellow man.
+- [12:27.350] I found myself wishing that I could pick up the phone
+- [12:31.740] and talk to my friend
+- [12:33.710] and ask him for his advice and his counsel,
+- [12:37.310] to ask him how to respond to such hate
+- [12:40.370] and the souls from which that hate springs.
+- [12:44.390] But I can't call my friend.
+- [12:46.580] Because he was murdered for speaking the truth.
+- [12:49.950] I can only guess at what he might say
+- [12:53.290] and what he would encourage me to do.
+- [12:56.420] And here's what I think. I think he would encouraged me
+- [13:00.350] to be honest that evil still walks among us.
+- [13:04.980] Not to ignore it for the sake of a fake kumbaya moment,
+- [13:09.470] but to address it head on
+- [13:11.500] and honestly as the sickness that it is.
+- [13:24.110] But I also think he would encourage me,
+- [13:26.910] he would all of us to focus on the good.
+- [13:30.980] He would encourage us to remember
+- [13:32.830] that for every hateful voice celebrating his murder,
+- [13:36.370] there are a thousand people mourning it
+- [13:38.640] and fighting for his legacy every single day.
+- [13:42.780] (applause)
+- [13:50.450] He would tell me to pray, I'm certain of it.
+- [13:54.290] He would me to tell me pray for my friends,
+- [13:56.680] but also for my enemies.
+- [13:59.750] He would say me to put on the full armor of God
+- [14:03.210] and get back to work.
+- [14:14.290] He would tell us to commit ourselves to telling the truth
+- [14:18.340] and to fight for that truth each and every single day.
+- [14:23.360] He would us to talk about God's love
+- [14:26.280] and the fact that that love applied everybody
+- [14:29.910] across the whole human family.
+- [14:33.870] Charlie suffered a terrible fate, my friends.
+- [14:37.340] We all know it. We all saw it.
+- [14:40.460] But think it is not the worst It is better to face a gunman
+- [14:47.270] than to live your life afraid to speak the truth.
+- [15:00.170] It is better to be persecuted for your faith
+- [15:03.000] than to deny the kingship of Christ.
+- [15:06.160] (applause)
+- [15:12.320] It is better to die a young man in this world
+- [15:15.790] than to sell your soul for an easy life
+- [15:17.960] with no purpose, no risk, no love, and no truth.
+- [15:22.840] (applause)
+- [15:29.210] Christ told us in the Gospel of John,
+- [15:31.250] I have said these things to you that in me you may have peace.
+- [15:36.690] In the world, you will have tribulation.
+- [15:40.020] But take heart, I have overcome the world.
+- [15:52.080] Charlie took heart, and now we must do the same.
+- [15:58.480] I've seen so many of you say,
+- [15:59.930] so many on social media talk about for Charlie,
+- [16:04.610] we must this for Charlie.
+- [16:06.340] For Charlie, we will speak the truth every single day.
+- [16:19.080] For Charlie, we will rebuild
+- [16:21.330] this United States of America to greatness.
+- [16:30.000] For Charlie, we will never shrink, we will never cower,
+- [16:33.500] and we will never falter,
+- [16:35.050] even when staring down the barrel of a gun.
+- [16:39.290] (applause)
+- [16:45.480] For Charlie, we will remember that it is better
+- [16:48.730] to stand on our feet defending the United States of America
+- [16:52.940] and defending the truth than it is to die on our knees.
+- [17:03.490] My friends for Charlie, we must remember
+- [17:06.410] that he is a hero to the United States of America
+- [17:09.470] and he is the martyr for the Christian faith.
+- [17:12.430] May our Heavenly Father give us the courage
+- [17:14.850] to live as Charlie lived.
+- [17:17.330] That is what we must do for Charlie.
+- [17:20.390] You ran a good race, my friend. I love you.
+- [17:23.280] We've got it from here. Thank you.
+- [17:25.690] (applause)
+- [17:55.490] ♪ (music playing) ♪
+- [22:07.900] Male Speaker: Please give a warm welcome to Mrs. Erika Kirk.
+- [22:11.900] (cheer and applause)
+- [23:08.510] ♪ (soft music playing) ♪ (cheering and applause)
+- [24:05.620] Erika Kirk: Hello?
+- [24:09.110] God bless all of you for coming here
+- [24:13.140] from all over the world to honor and celebrate my Charlie.
+- [24:32.720] Just a few miles from here,
+- [24:35.950] two years ago at AmericaFest 2023,
+- [24:41.230] Charlie delivered a speech on stage for our TPUSA faith event.
+- [24:48.110] Charlie loves speaking off the cuff.
+- [24:50.610] He's very good at that. Without a script.
+- [24:54.500] So I personally didn't know what he was going to say.
+- [25:00.130] And what he chose to speak about that day
+- [25:02.120] was his submission to the will of God.
+- [25:08.200] He quoted one of his favorite Bible verses,
+- [25:10.460] Isaiah chapter six, verse eight.
+- [25:14.330] Here I am, Lord. Send me.
+- [25:22.130] After Charlie finished, I met him backstage
+- [25:25.700] and I spoke to him and I'll never forget this.
+- [25:28.260] I said, Charlie, baby,
+- [25:31.020] please talk to me next time before you say that statement.
+- [25:36.820] Because when you say something like that,
+- [25:40.250] there is so much power in that verse.
+- [25:45.180] When you say, here I am, Lord, use me.
+- [25:52.150] God will take you up on that, and he did with Charlie.
+- [26:11.760] Eleven days ago,
+- [26:14.340] God accepted that total surrender from my husband
+- [26:18.780] and then called him to his side.
+- [26:22.590] More than anything Charlie wanted to do,
+- [26:24.990] not his will, but God's will.
+- [26:28.160] And over these past 11 days, through all the pain,
+- [26:34.590] never before have I found as much comfort as I now do.
+- [26:41.360] In the words of our Lord's prayer, thy will be done.
+- [26:58.700] God's love was revealed to me on the very day
+- [27:02.760] my husband was murdered.
+- [27:06.010] On the afternoon of September 10th,
+- [27:09.200] I arrived at a Utah hospital to do the unthinkable,
+- [27:13.610] to look directly at my husband's murdered body.
+- [27:20.330] I saw the wound that ended his life.
+- [27:25.280] I felt everything you would expect to feel.
+- [27:30.090] I felt shock. I felt horror
+- [27:35.710] and a level of heartache that I didn't even know existed.
+- [27:45.450] But there was something else too.
+- [27:49.740] Even in death, I could see the man that I love.
+- [27:57.370] I saw the one single gray hair on the side of his head,
+- [28:04.220] which I never told him about. Now he knows.
+- [28:08.290] Sorry, baby, telling you now, but never told them.
+- [28:11.840] Didn't want to. I also saw this.
+- [28:19.010] I also on his lips the faintest smile.
+- [28:26.420] And that told me something important.
+- [28:30.900] It revealed to me a great mercy from God in this tragedy.
+- [28:37.570] When I saw that, it told me that Charlie didn't suffer.
+- [28:44.090] Even the doctor told me. It was something so instant
+- [28:48.530] that even if Charlie had been shot
+- [28:51.630] in the operating room itself, nothing could have been done.
+- [28:58.050] There was no fame, there was no fear, no agony.
+- [29:03.440] One moment, Charlie was doing what he loved.
+- [29:07.420] Arguing and debating on campus. Fighting for the gospel.
+- [29:17.060] In front of a big crowd, and then he blinked.
+- [29:25.370] And saw his savior in paradise.
+- [29:29.160] (applause)
+- [29:41.110] And all the heavenly mysteries were revealed to him.
+- [29:47.050] God's love continued to be revealed to me
+- [29:50.860] in the days that followed.
+- [29:55.570] The next day on the tarmac in Air Force Two.
+- [30:02.480] I confronted Usha Vance, precious woman.
+- [30:09.040] I held her hand and I told her honestly,
+- [30:11.570] I do not know how I'm going to get through this.
+- [30:18.670] She told me something.
+- [30:22.390] She said, you know when you're on an airplane with your kids,
+- [30:28.520] and it's the last 15 minutes of the flight,
+- [30:32.200] things are crazy, kids are not cooperating,
+- [30:34.810] tours are flying everywhere and everyone's screaming,
+- [30:38.350] and you think to yourself,
+- [30:40.230] I cannot wait for this flight to land.
+- [30:43.240] And it's 15 minutes before you land.
+- [30:48.770] And she told me, you will get through these 15 minutes
+- [30:54.390] and the next 15 minutes after that.
+- [30:58.600] Usha, I don't think you realized it then,
+- [31:02.250] but those words were exactly what I needed to hear.
+- [31:07.570] But most of all, God's mercy and God's love
+- [31:09.980] have been revealed to me these past 10 days.
+- [31:14.450] After Charlie's assassination, we didn't see violence.
+- [31:20.220] We didn't see rioting.
+- [31:35.540] We didn't see revolution.
+- [31:39.070] Instead, we saw what my husband always prayed
+- [31:42.430] he would see in this country. We saw revival.
+- [32:00.020] This past week we saw people open a Bible
+- [32:02.420] for the first time in a decade.
+- [32:05.460] We saw people pray for the first time since they were children.
+- [32:10.050] We saw people go to a church service
+- [32:12.050] for the first time in their entire lives.
+- [32:25.810] Charlie liked to journal and I say this
+- [32:29.530] because he did it to remember important moments
+- [32:32.950] and that affected him.
+- [32:36.520] And one of the things he wrote in his journal was this.
+- [32:43.690] Every time you make a decision, it puts a mark on your soul.
+- [32:52.550] To those of you out there who just made that decision.
+- [32:59.420] And took the first step toward a spiritual life.
+- [33:03.610] I say thank you and welcome.
+- [33:15.380] One day I hope you look back and realize
+- [33:18.320] it was the most important decision of your life
+- [33:21.600] because it is.
+- [33:24.990] All of you, all of you who are already believers,
+- [33:30.940] it is your job to shepherd these people.
+- [33:35.050] Do not take that lightly. Water the seed of their faith.
+- [33:42.390] Protect it and help it grow.
+- [33:47.920] Every day as Charlie rode into the office,
+- [33:52.560] he would go through his contact list.
+- [33:54.960] And I know there's many of you who were impacted by this.
+- [33:58.880] He would go to his contact lists
+- [34:00.530] and send Bible verses for the day.
+- [34:04.610] He knew that faith was a habit.
+- [34:07.840] The more you live it, the more it grows.
+- [34:12.110] But know this, too.
+- [34:15.680] The seed has only just been planted.
+- [34:20.030] The enemy will tempt you the most in a time like this one.
+- [34:26.410] God will always be there for you,
+- [34:28.130] but you must choose to mark your soul again
+- [34:33.800] and again in the direction of Christ.
+- [34:45.960] Pray again, read the Bible again,
+- [34:50.120] go to church next Sunday, and the Sunday after that,
+- [34:54.530] and break free from the temptations
+- [34:56.470] and shackles of this world.
+- [34:59.750] (applause)
+- [35:08.470] Being a follower of Christ is not easy.
+- [35:12.240] It's not supposed to be.
+- [35:15.540] Jesus said, if anyone would come after me,
+- [35:18.200] let him deny himself, take up his cross and follow me.
+- [35:24.870] He said he would be persecuted, he said we would be prosecuted,
+- [35:28.430] and Charlie knew that and happily carried his cross
+- [35:32.180] all the way to the end. And I want all of you to know.
+- [35:40.460] While Charlie died far too early,
+- [35:44.190] he was also ready to die.
+- [35:47.800] There was nothing, nothing he was putting off.
+- [35:52.070] There was that was too hard or too painful
+- [35:55.090] or nothing that he just felt like he didn't wanna do it.
+- [36:00.690] He left this world without regrets.
+- [36:05.360] He did 100 percent of what he could every day.
+- [36:09.780] But I want you to know something.
+- [36:13.910] Charlie died with incomplete work,
+- [36:18.340] but not with unfinished business.
+- [36:32.020] But I will miss him.
+- [36:37.550] I will miss him so much
+- [36:39.440] because our marriage and our family were beautiful.
+- [36:53.090] The greatest cause in Charlie's life
+- [36:54.790] was trying to revive the American family.
+- [36:58.920] When he spoke to young people,
+- [37:00.330] he was always eager to tell them about God's vision for marriage,
+- [37:06.010] and how if they could just dare to live it out,
+- [37:10.620] it would enrich every part of their life
+- [37:12.910] in the same way that it enriched ours.
+- [37:17.220] And someone once asked me how Charlie and I
+- [37:22.400] that we kept our marriage so strong
+- [37:25.440] when he was busy traveling.
+- [37:30.160] And our little secret. It was love notes.
+- [37:38.060] Every Saturday, Charlie wrote one for me
+- [37:41.440] and he never missed a Saturday. And in every single one of them,
+- [37:48.450] he'd tell me what his highlight was for the week,
+- [37:52.820] how grateful he was for me and our babies.
+- [37:57.580] And always at the end, he would always end it
+- [38:01.650] with asking the most beautiful question.
+- [38:07.120] He'd always end it by asking,
+- [38:08.620] please let me know how I can better serve you as a husband.
+- [38:15.160] Charlie perfectly understood God's role
+- [38:18.790] for a Christian husband,
+- [38:22.000] a man who leads so that they can serve.
+- [38:41.000] To all the men watching around the world,
+- [38:44.820] accept Charlie's challenge and embrace true manhood.
+- [38:53.170] Be strong and courageous for your families.
+- [38:59.530] Love your wives and lead them.
+- [39:04.890] Love your children and protect them.
+- [39:09.430] Be the spiritual head of your home.
+- [39:15.750] But please be a leader worth following.
+- [39:20.460] Your wife.
+- [39:29.590] Your wife is not your servant. Your wife is not your employee.
+- [39:38.510] Your wife is not your slave.
+- [39:42.180] She is your helper. You are not rivals.
+- [39:47.770] You are one flesh working together for the glory of God.
+- [40:05.230] I was Charlie's confidant. I was his vault.
+- [40:11.890] His closest and most trusted advisor, his best friend.
+- [40:17.790] I poured into him and loved him so deeply, empowered him,
+- [40:23.920] because his love for me drove me to be a better wife.
+- [40:28.850] Every day he honored me and I prayed
+- [40:31.160] that I could be the wife
+- [40:32.470] that God needed me to be for my husband.
+- [40:37.020] Women, I have a challenge for you too. Be virtuous.
+- [40:44.740] Our strength is found in God's design for our role.
+- [40:49.720] We are the guardians.
+- [40:52.310] We are encouragers. We are preservers.
+- [40:58.750] Guard your heart, everything you do flows from it.
+- [41:05.420] And if you're a mother, please recognize
+- [41:08.870] that is the single most important ministry you have.
+- [41:15.540] (applause)
+- [41:24.760] In our home, because Charlie traveled a lot,
+- [41:28.120] we tried to travel with him where we could.
+- [41:32.550] But I made sure that when Charlie returned from work,
+- [41:36.560] it was his sacred landing place,
+- [41:40.100] away from the worries of the world.
+- [41:47.030] I didn't make him feel guilty
+- [41:50.440] for being away too long or too much.
+- [41:54.880] Or getting home too late.
+- [41:56.200] I always told him, home is here for you,
+- [41:59.250] and it'll be ready for you.
+- [42:02.300] And I made it into this place where he wanted to be
+- [42:06.010] as soon as possible when he was on the road.
+- [42:11.950] There was no keeping score between us.
+- [42:16.900] We were a team.
+- [42:19.710] Working together for the same mission.
+- [42:24.450] I never wanted to be the one
+- [42:25.710] standing between Charlie and the task
+- [42:27.820] that God prepared for him. Had set for him,
+- [42:35.500] and I knew Charlie would always do his best
+- [42:37.450] to help me with the same.
+- [42:42.220] My marriage with Charlie was the best thing
+- [42:44.000] that ever happened to me. And I know it was the best thing
+- [42:47.210] that ever happened to him as well.
+- [42:50.150] He wanted everyone to experience that joy.
+- [42:54.320] And that's what's so beautiful about God's design for marriage
+- [42:59.110] is that everyone can.
+- [43:03.720] And I could talk endlessly about it,
+- [43:05.270] and years to come I will.
+- [43:08.620] But Charlie's mission above all was aimed directly at those
+- [43:14.080] who aren't married. He named his organization well.
+- [43:20.530] He knew things were not right with America,
+- [43:22.510] and especially with young people.
+- [43:25.610] And they needed a new direction.
+- [43:29.500] Charlie passionately wanted to reach
+- [43:32.810] and save the lost boys of the West.
+- [43:37.050] The young men who feel like they have no direction,
+- [43:40.550] no purpose, no faith, and no reason to live.
+- [43:45.800] The men wasting their lives on distractions,
+- [43:48.380] and the men consumed with resentment, anger, and hate.
+- [43:54.240] Charlie wanted to help them.
+- [43:58.040] He wanted them to have a home with Turning Point USA.
+- [44:02.430] And when he went onto campus,
+- [44:04.440] he was looking to show them a better path.
+- [44:08.500] And a better life that was right there for the taking.
+- [44:13.220] He wanted to show them that.
+- [44:20.360] My husband, Charlie.
+- [44:24.400] He wanted to save young men,
+- [44:31.290] just like the one who took his life.
+- [44:50.900] That young -- that young man. On the cross, our Savior said.
+- [45:03.660] Father forgive them, for they not know what they do.
+- [45:14.630] That man. I forgive him.
+- [46:07.280] I forgive him because it was what Christ did
+- [46:11.930] and is what Charlie would do. The answer to hate is not hate.
+- [46:20.120] The answer we know from the gospel is love and always love.
+- [46:25.430] Love for our enemies and love for those who persecute us.
+- [46:34.540] The world needs Turning Point USA.
+- [46:38.390] It needs a group that will point young people
+- [46:41.310] away from the path of misery and sin.
+- [46:45.800] It needs something that will lead people away from hell
+- [46:48.380] in this world and in the next. It needs young people
+- [46:52.850] pointed in the direction of truth and beauty.
+- [46:58.650] And so I promise you today,
+- [47:00.400] every part of our work will become greater.
+- [47:04.440] I am tremendously honored to be the new CEO
+- [47:09.080] of Turning Point USA.
+- [47:11.820] (applause)
+- [47:28.700] I do not take that lightly.
+- [47:31.660] Charlie and I were united in purpose.
+- [47:34.510] His passion was my passion,
+- [47:36.770] and now his mission is my mission.
+- [47:40.090] Everything that Turning Point USA
+- [47:41.810] built through Charlie's vision and hard work,
+- [47:45.100] we will make 10 times greater through the power of his memory.
+- [47:50.340] Chapters will grow.
+- [47:53.120] Thousands of new ones will be created.
+- [47:56.720] TPUSA faith.
+- [47:58.630] Will add thousands of new pastors and congregations.
+- [48:10.570] And yes, campus events will continue.
+- [48:13.970] And we will continue to hold debates and dialog.
+- [48:18.320] (applause)
+- [48:25.810] The First Amendment of our Constitution
+- [48:28.320] is the most human amendment.
+- [48:32.610] We are naturally talking beings, naturally believing beings,
+- [48:40.170] and the First Amendment protects our right to do both.
+- [48:45.230] No assassin will ever stop us
+- [48:47.160] for standing up to defend those rights.
+- [48:59.070] Because when you stop the conversation,
+- [49:03.510] when you stopped the dialog. This is what happens.
+- [49:11.420] When we lose the ability and the willingness to communicate,
+- [49:17.120] we get violence. And as I stand here now
+- [49:26.230] and look at this beautiful photo of my husband
+- [49:30.630] in front of me hanging in the stadium.
+- [49:35.470] Think of my husband 13 years ago.
+- [49:38.490] I hadn't met him yet. He was 18 years old.
+- [49:44.820] A man barely out of high school,
+- [49:47.680] running around the halls of the RNC
+- [49:50.770] without a dollar in his pocket
+- [49:52.120] and a single contact in his phone.
+- [49:57.190] People who saw him said that he didn't know what he was doing,
+- [50:01.430] but he did. He did know what was he doing.
+- [50:07.420] He knew exactly what he was doing.
+- [50:12.660] He was going to change the world and he did.
+- [50:18.030] Charlie's life was a turning point for this country.
+- [50:21.490] It was a miracle.
+- [50:24.510] Let that miracle of Charlie's life
+- [50:28.630] be your turning point as well.
+- [50:32.390] Choose prayer. Choose courage.
+- [50:38.960] Choose beauty, choose adventure.
+- [50:45.340] Choose family, choose a life of faith.
+- [50:51.700] Most importantly, choose Christ.
+- [51:10.850] I love you, Charlie baby. And I will make you proud.
+- [51:19.620] God bless you all and God bless America.
+- [51:22.380] (applause)
+- [52:25.220] ♪ (patriotic music playing) ♪
+- [52:46.250] Male Speaker: Please welcome to the stage the 45th and 47th
+- [52:49.220] President of the United States, Donald J. Trump.
+- [52:54.750] ♪ (singing of "God Bless the U.S.A." ♪
+- [56:10.670] (cheers and applause)
+- [56:26.970] The President: Well, I want to thank you very much, Lee.
+- [56:30.250] You've been there from the beginning with us, Lee,
+- [56:32.200] and we appreciate it.
+- [56:34.230] Nobody can sing that song like Lee Greenwood.
+- [56:37.440] Thank you very Lee, very much for being here.
+- [56:40.210] (applause)
+- [56:43.360] And his voice has not changed, you know?
+- [56:46.380] Pretty amazing. And a special thank you to Erika,
+- [56:52.090] because today America is a nation in grief,
+- [56:56.260] a nation of shock, and a nation and mourning.
+- [57:01.410] Less than two weeks ago, our country was robbed
+- [57:03.880] of one of the brightest lights of our times,
+- [57:08.300] a giant of his generation, and above all,
+- [57:11.100] a devoted husband, father, son, Christian, and patriot.
+- [57:17.310] Charles James Kirk was heinously murdered
+- [57:22.830] by a radicalized, cold-blooded monster
+- [57:25.330] for speaking the truth that was in his heart.
+- [57:30.600] He was violently killed because he spoke for freedom
+- [57:33.850] and justice, for God and country,
+- [57:37.110] for reason and for common sense.
+- [57:41.100] He was assassinated because he lived bravely.
+- [57:44.990] He led boldly, and he argued brilliantly without apology.
+- [57:51.760] He did what was right for our nation.
+- [57:56.030] And so, on that terrible day, September 10th, 2025,
+- [58:00.090] our greatest evangelist
+- [58:03.480] for American liberty became immortal.
+- [58:07.260] He's a martyr now for American freedom.
+- [58:12.450] I know I speak for everyone here today
+- [58:14.630] when I say that none of us will ever forget Charlie Kirk,
+- [58:20.660] and neither now will history.
+- [58:23.880] (applause)
+- [58:32.010] Because while Charlie has been reunited
+- [58:35.510] with his Creator in heaven,
+- [58:37.750] his voice on earth will echo through the generations,
+- [58:42.540] and his name will live forever in the eternal chronicle
+- [58:46.530] of America's greatest patriots. He will live forever.
+- [58:51.860] To Charlie's incredible and beautiful widow, Erika,
+- [58:57.890] we know the weight of this monumental loss
+- [59:00.120] is almost unbearable.
+- [59:02.840] But even in the midst of heartache,
+- [59:04.940] pain too great to even fathom,
+- [59:09.330] you have somehow found the strength and deep faith
+- [59:12.780] to be a comfort to millions and millions of people.
+- [59:17.130] And thank you very much, Erika. Thank you very much.
+- [59:21.620] (applause)
+- [59:28.900] Today, an entire nation wraps its loving arms
+- [59:31.520] around you and beautiful children.
+- [59:34.320] We share in your immense and overwhelming sorrow,
+- [59:38.190] and we vow that we will do everything we can
+- [59:41.130] to ensure that your children grow up in a land
+- [59:43.610] where their father is honored
+- [59:45.960] and revered as a great American hero.
+- [59:49.190] That's what he is.
+- [01:00:00.380] And to the entire Kirk family,
+- [01:00:02.470] we know that no words can ever be enough
+- [01:00:04.980] to fill the void he leaves behind.
+- [01:00:07.930] That's a void that just can't be filled.
+- [01:00:10.980] But I hope the extraordinary outpouring of emotion
+- [01:00:14.890] over these past 11 days has comforted you
+- [01:00:17.480] with the knowledge that your son brought more good and love
+- [01:00:20.150] into this world in his 31 short years than most people,
+- [01:00:24.920] even very, very successful people can bring in a lifetime.
+- [01:00:30.990] (applause)
+- [01:00:36.660] Charlie Kirk loved America with everything he had.
+- [01:00:40.060] And as we can see so clearly today,
+- [01:00:42.410] America loved Charlie Kirk.
+- [01:00:46.500] (applause)
+- [01:00:54.290] And he could always draw a big crowd.
+- [01:00:57.930] Look at this today. Look at what's going on.
+- [01:01:00.640] This is a big crowd.
+- [01:01:02.830] (applause)
+- [01:01:07.610] Here today, we have the Vice President of the United States,
+- [01:01:11.930] J.D. Vance.
+- [01:01:13.400] We have the Speaker of the U.S. House
+- [01:01:15.660] of Representatives, Mike Johnson.
+- [01:01:18.590] We have countless members of the United States Senate.
+- [01:01:21.570] And I'm sorry I'm not going to introduce you,
+- [01:01:23.690] but I'll be up here. They're all over the place.
+- [01:01:27.210] And likewise, the House of Representatives,
+- [01:01:29.570] they're all over this big stadium.
+- [01:01:33.370] This is not an arena. This is a stadium.
+- [01:01:36.620] Our great cabinet and the stadium packed
+- [01:01:39.930] with rafters of people,
+- [01:01:43.640] not to mention the one across the street
+- [01:01:47.460] that also has tens of thousands of people.
+- [01:01:51.770] And they're watching us on screen right now.
+- [01:01:54.450] (applause)
+- [01:01:59.160] And I'm sorry we couldn't get you in.
+- [01:02:01.950] If anybody would like to give up your seat,
+- [01:02:03.770] please walk across the street.
+- [01:02:07.730] But this is like an old-time revival, isn't it?
+- [01:02:11.310] An old- time revival.
+- [01:02:13.320] (applause)
+- [01:02:18.160] For millions of Americans, especially young people,
+- [01:02:22.130] it is agonizing and unthinkable to say goodbye to a patriot
+- [01:02:26.200] whose heart still had so much to give.
+- [01:02:28.730] It's so much. Raised in the suburbs of Chicago,
+- [01:02:33.790] Charlie was filled with the patriotic spirit from his youth,
+- [01:02:37.060] and he was an All-American in everything he did.
+- [01:02:40.530] And one of the last things he said to me is,
+- [01:02:43.450] please, sir, save Chicago. We're going to do that.
+- [01:02:47.820] We're going to save Chicago from horrible crime.
+- [01:02:50.880] (applause)
+- [01:02:56.680] In high school, he was the quarterback of the football team
+- [01:03:01.290] and the captain of the basketball team.
+- [01:03:02.990] He was a good athlete.
+- [01:03:04.200] A lot of people don't know that about Charlie.
+- [01:03:07.300] He was an Eagle Scout who spent his school lunch breaks
+- [01:03:10.290] listening to another champion for liberty,
+- [01:03:14.410] somebody that he greatly admired, Rush Limbaugh.
+- [01:03:19.130] (applause)
+- [01:03:25.230] But what was even more important to Charlie
+- [01:03:27.420] than politics and service
+- [01:03:29.330] was the choice he made in the fifth grade,
+- [01:03:32.170] which he called the most important decision of his life
+- [01:03:35.360] to become a Christian and a follower of his Savior,
+- [01:03:40.470] Jesus Christ.
+- [01:03:43.030] (applause)
+- [01:03:49.130] Inspired by faith and his love of freedom,
+- [01:03:52.670] Charlie did something remarkable when he was just 18 years old,
+- [01:03:57.510] on the advice of a mentor who told him
+- [01:03:59.950] to put off going to college because he was doing so well.
+- [01:04:03.850] He devoted his life to converting young people
+- [01:04:06.840] to the conservative cause.
+- [01:04:09.540] How did he do? Take a look. How did do?
+- [01:04:12.320] (applause)
+- [01:04:17.540] In 2012, two days after graduating high school,
+- [01:04:21.330] and with just $1,800 in his pocket,
+- [01:04:24.700] the young man from Illinois,
+- [01:04:27.170] who no one had ever heard of, started an organization
+- [01:04:31.160] whose grand ambitions were captured in its name,
+- [01:04:35.580] Turning Point USA. Great name.
+- [01:04:43.090] And I have a feeling it's going to be bigger
+- [01:04:45.150] and better than ever before. Does that make sense?
+- [01:04:47.870] It's going be bigger and better than ever before.
+- [01:04:51.450] Look at what's happening.
+- [01:04:53.260] (applause)
+- [01:04:57.430] Twelve years ago, Charlie walked onto his first college campus,
+- [01:05:01.340] the very liberal University of Wisconsin at Madison.
+- [01:05:06.340] He set up a card table and put up a sign
+- [01:05:08.680] with three words, big government sucks.
+- [01:05:12.590] Can you believe that? That's Charlie.
+- [01:05:15.550] That day, Charlie talked to every student
+- [01:05:17.950] who approached him,
+- [01:05:19.750] most of whom were probably quite a bit older than he was.
+- [01:05:24.980] Finally, after many hours,
+- [01:05:26.240] he found the first ever Turning Point chapter leader.
+- [01:05:31.310] His first year out of high school,
+- [01:05:32.630] Charlie traveled 300 days raising money
+- [01:05:35.390] and taking his message to campuses all over the country.
+- [01:05:40.590] He lived out of his parents' basement,
+- [01:05:44.310] and they actually loved having him there.
+- [01:05:45.950] They loved -- they loved Charlie.
+- [01:05:48.360] Everybody loved Charlie,
+- [01:05:50.550] and on the couches of friends and supporters --
+- [01:05:54.500] he lived off couches for two years, three years,
+- [01:05:58.880] then life started getting a little bit different.
+- [01:06:02.540] But he was always the same.
+- [01:06:04.220] For five years, he refused to take a paycheck.
+- [01:06:06.730] But day after day, he worked from 5 a.m.
+- [01:06:10.570] In the morning until 11 p.m., in the evening, always.
+- [01:06:16.330] His staff remembers that he wore Walmart jeans
+- [01:06:19.410] and T-shirts from the Goodwill Store.
+- [01:06:23.050] Remember the Goodwill store.
+- [01:06:25.900] It wasn't easy, but Charlie wasn't in it for money at all.
+- [01:06:29.760] Never has been. Money was never his thing.
+- [01:06:32.940] He was always in it the mission.
+- [01:06:36.690] As you like to say, even back then,
+- [01:06:39.140] we have a country to save. We did just what he did.
+- [01:06:43.640] Called me all the time. Sir, we a country to save.
+- [01:06:47.400] I said, Charlie, thanks very much for telling me that.
+- [01:06:50.190] I appreciate it.
+- [01:06:52.560] Charlie volunteered for my 2016 campaign
+- [01:06:55.780] and traveled the nation with my son, Don.
+- [01:07:02.810] I got to know him very well and saw immediately
+- [01:07:06.260] that Charlie was actually a master builder,
+- [01:07:10.400] master builder of people.
+- [01:07:12.790] It was Charlie who first started organizing young
+- [01:07:15.390] black conservatives hungry for support and leadership.
+- [01:07:19.780] It was Charlie who stood up for persecuted Christians
+- [01:07:23.410] and Jews on college campuses.
+- [01:07:26.060] It was Charlie who helped bring online censorship,
+- [01:07:29.680] free speech, and cancel culture
+- [01:07:32.040] to the four of our political debate.
+- [01:07:35.210] He was right up there with me.
+- [01:07:37.800] It was Charlie who helped unite MAGA.
+- [01:07:41.520] And you know what M-A-H-A is?
+- [01:07:44.770] That's right, make America healthy again.
+- [01:07:48.780] And tomorrow, we're going to have
+- [01:07:50.150] one of the biggest announcement,
+- [01:07:53.360] really medically, I think, in the history of our country.
+- [01:07:56.730] We're going be doing it with Bobby and Oz
+- [01:08:00.700] and all of the professionals.
+- [01:08:02.840] I think you're going to find it to be amazing.
+- [01:08:07.090] I think we found an answer to autism.
+- [01:08:10.280] How about that? Autism.
+- [01:08:11.850] Tomorrow, we're going be talking in the Oval Office
+- [01:08:16.270] in the White House about autism,
+- [01:08:21.980] how it happens so we won't let it happen anymore,
+- [01:08:26.870] and how to get at least somewhat better when you have it
+- [01:08:32.990] so that parents can help their child,
+- [01:08:35.200] their beautiful child. That's a big one.
+- [01:08:37.970] I've been bugging everybody over there.
+- [01:08:43.550] Get the answer to that. You know, twenty years ago,
+- [01:08:50.990] 1 in 10,000 were born with autism.
+- [01:08:56.750] Twenty years, the most recent survey says 1 in 12.
+- [01:09:04.450] How bad is that?
+- [01:09:06.530] That's for young boys, baby boys, but also girls.
+- [01:09:12.150] A little bit better.
+- [01:09:13.790] It's about 1 in 20, but we can't --
+- [01:09:16.950] there's obviously there was something really wrong.
+- [01:09:20.220] We think we know what that is.
+- [01:09:21.880] It's going to be -- I think it's going to be
+- [01:09:24.200] one of the most important news conferences
+- [01:09:26.380] I'll ever have. And I look so forward to it.
+- [01:09:29.710] (applause)
+- [01:09:35.890] And, you know, who else looked forward to it?
+- [01:09:37.640] Because he knew I'd tell him a little bit about
+- [01:09:39.480] what was going on. It was Charlie.
+- [01:09:41.700] He would have been front row center, believe me.
+- [01:09:44.500] We'll be missing him tomorrow.
+- [01:09:46.140] It was such a big deal for him, too.
+- [01:09:49.030] He brought together Donald Trump, Bobby Kennedy,
+- [01:09:54.680] right here in the great state of Arizona one year ago.
+- [01:09:58.870] Remember that? What a night. What a day that was.
+- [01:10:02.830] (applause)
+- [01:10:05.580] And it was Charlie who was among the first to speak to me
+- [01:10:08.570] about a man from Ohio by the name of J.D. Vance.
+- [01:10:13.850] Have you ever heard of him? He's doing a good job.
+- [01:10:17.680] (applause)
+- [01:10:22.050] But Charlie would often call me,
+- [01:10:25.380] sometimes the night before a big event,
+- [01:10:28.930] the other side of the country. And he'd ask me and say,
+- [01:10:34.780] do you think you could come and speak at the event?
+- [01:10:37.570] The following day, right?
+- [01:10:39.130] I'd say, Charlie, give me a break.
+- [01:10:40.710] I'm the President of the United States.
+- [01:10:44.380] You want me to travel four hours by plane?
+- [01:10:47.180] And, you know, sometimes I did it.
+- [01:10:49.660] He was a very good guy. He was very convincing guy.
+- [01:10:53.320] He didn't stop, but he would ask for things like that.
+- [01:10:55.610] Sir, could you be tomorrow in California?
+- [01:10:58.940] I said, Charlie, give me a break, please.
+- [01:11:02.550] He just wouldn't stop. And he succeeded.
+- [01:11:06.020] But I almost always went
+- [01:11:07.420] because you never wanted to let Charlie down.
+- [01:11:12.170] He worked so hard. You just didn't want to let him down.
+- [01:11:14.580] I felt guilty. He'd make me feel very guilty.
+- [01:11:18.820] As President, many people asked me for things,
+- [01:11:21.420] but Charlie was one of the few
+- [01:11:23.270] who always gave more than he took.
+- [01:11:26.250] He was a giver, much more than a taker.
+- [01:11:29.410] (applause)
+- [01:11:35.550] And no matter how big Charlie became,
+- [01:11:37.960] no one was too small for him to notice.
+- [01:11:40.310] He was good to everybody. It didn't matter.
+- [01:11:44.010] Several years ago, a fourth grader asked Charlie
+- [01:11:46.480] to appear on his podcast, which was probably only watched
+- [01:11:50.600] by the parents of that fourth graded.
+- [01:11:53.590] And Charlie, who was actually pretty hot at the time,
+- [01:11:56.790] to be honest, he agreed, and the boy asked for advice.
+- [01:12:02.190] As Charlie replied, the left -- the left.
+- [01:12:06.100] I call it the radical left.
+- [01:12:07.660] I call sometimes the radical-left lunatics.
+- [01:12:12.530] But Charlie didn't say that. He called it the left.
+- [01:12:16.530] He was probably right, but I can't help it.
+- [01:12:20.870] I can't.
+- [01:12:25.970] So he said the left, radical left lunatics,
+- [01:12:28.760] may have all the money in the world,
+- [01:12:31.620] but they can never outwork me.
+- [01:12:34.380] I will wake up as early as I need to about himself.
+- [01:12:37.590] I will stay up as late as I needed to,
+- [01:12:39.590] and I will never stop fighting for our country.
+- [01:12:43.150] And he did this until his dying breath.
+- [01:12:45.750] That's what he was doing. That's what he was doing.
+- [01:12:49.730] Think of it. Wow. What a horrible moment.
+- [01:12:56.350] I was in the Oval Office when I heard.
+- [01:12:58.280] They came in, and I -- it was like a surreal experience.
+- [01:13:01.280] A terrible, terrible --
+- [01:13:02.590] I had some very big people in the Oval Office.
+- [01:13:06.500] And I was -- in the midst of a very important conversation
+- [01:13:09.660] for our country, big people -- the biggest --
+- [01:13:13.440] and I said, you have to leave now.
+- [01:13:15.840] When they told me that,
+- [01:13:17.060] they told in front of a group of very powerful people,
+- [01:13:20.850] I said you have to leave right now, please.
+- [01:13:23.290] Right now. You have to leave. Go.
+- [01:13:28.820] By his own determination and skill,
+- [01:13:31.220] Charlie Kirk built Turning Point from his humble beginnings,
+- [01:13:36.190] the beginnings that nobody believed
+- [01:13:37.700] could ever end up something like this,
+- [01:13:40.150] into a great movement and a juggernaut of American politics.
+- [01:13:43.620] And, you know, we have a massive stadium loaded up with people,
+- [01:13:46.280] but he got tremendous crowds
+- [01:13:49.410] before he had this kind of horrible news
+- [01:13:53.010] and before we had to hear what happened so terribly.
+- [01:13:56.820] He delivered more than 250 speeches a year
+- [01:13:59.570] at over 200 colleges and universities.
+- [01:14:04.290] And that was at a time when it was not really vogue
+- [01:14:10.910] to go to colleges and universities
+- [01:14:13.290] if you were a conservative. It really took great courage.
+- [01:14:18.060] And we used to talk, and I said, you know,
+- [01:14:19.680] I think they're much more conservative than we know.
+- [01:14:21.500] And he agreed,
+- [01:14:22.790] but it just wasn't something that was happening
+- [01:14:25.140] because the radical left do very bad things,
+- [01:14:28.250] very dangerous things.
+- [01:14:30.380] But Charlie set up chapters on 2,200 campuses
+- [01:14:33.920] and spoke at more than 1,000 churches.
+- [01:14:40.140] He launched a podcast and radio show
+- [01:14:42.300] that grew to an audience of 1 million Americans a day,
+- [01:14:45.790] one of the bigger shows on radio.
+- [01:14:51.490] Charlie didn't just bring young people into the movement.
+- [01:14:55.610] All of a sudden, it started to grow by leaps and bounds.
+- [01:14:58.270] By 2024, we won more young people
+- [01:15:01.470] than any Republican candidate in the history of our country,
+- [01:15:04.420] including, for the first time, a majority of males under 30.
+- [01:15:09.510] Can you believe it?
+- [01:15:11.290] (applause)
+- [01:15:14.540] Remember when Republican presidential candidates
+- [01:15:17.220] would get 4 percent?
+- [01:15:20.200] No, we did, unbelievably, with young people.
+- [01:15:22.940] And he was a big, big factor.
+- [01:15:25.990] Unbelievable. But he made me work for it.
+- [01:15:28.830] Sir, you have to make a speech here.
+- [01:15:30.150] You have to a speech there. But we did it, and we won,
+- [01:15:34.470] and our country is doing unbelievably well now.
+- [01:15:38.770] We had a country that was dead one year ago.
+- [01:15:43.070] And now we have the hottest country anywhere in the world.
+- [01:15:46.560] And Charlie helped us make it that.
+- [01:15:51.780] One of the great people.
+- [01:15:53.570] (applause)
+- [01:15:55.890] But through it all, the core of Charlie's message
+- [01:15:59.720] and his basic method never changed.
+- [01:16:01.780] It never really changed. He stayed the same person also.
+- [01:16:05.290] At every campus event, Charlie asked the people
+- [01:16:07.710] who disagreed with him to come forward.
+- [01:16:09.940] And instead of silencing them,
+- [01:16:12.230] he handed them a microphone and let them speak.
+- [01:16:16.690] And he'd convinced so many of them.
+- [01:16:18.130] It was a pretty amazing thing to watch, actually.
+- [01:16:21.370] Shortly before Charlie arrived on campus,
+- [01:16:23.730] the day he was assassinated,
+- [01:16:25.400] a staff member texted him that there were many critics
+- [01:16:28.820] and students who were opposed to his views
+- [01:16:31.540] and rather strenuously in the crowd.
+- [01:16:34.210] And that actually made him feel good
+- [01:16:36.640] because he wanted to convince them he understood.
+- [01:16:40.120] He really did. He understood what was right.
+- [01:16:42.080] And he was right about that.
+- [01:16:44.360] A lot of it was based on common sense, by the way.
+- [01:16:47.960] Charlie wrote back to the staff member.
+- [01:16:51.980] Saying, I'm not here to fight them.
+- [01:16:54.180] I want to know them and love them,
+- [01:16:57.270] and I want to reach them and try
+- [01:16:59.390] and lead them into a great way of life in our country.
+- [01:17:04.030] In that private moment on his dying day,
+- [01:17:06.910] we find everything we need to know
+- [01:17:09.440] about who Charlie Kirk truly was.
+- [01:17:11.960] He was a missionary with a noble spirit
+- [01:17:15.310] and a great, great purpose.
+- [01:17:17.660] He did not hate his opponents. He wanted the best for them.
+- [01:17:22.680] That's where I disagreed with Charlie.
+- [01:17:25.430] I hate my opponent.
+- [01:17:28.030] And I don't want the best for them.
+- [01:17:29.630] I'm sorry. I am sorry, Erika.
+- [01:17:33.080] But now Erika can talk to me and the whole group,
+- [01:17:35.530] and maybe they can convince me that that's not right,
+- [01:17:37.900] but I can't stand my opponent.
+- [01:17:43.530] Charlie's angry. Looking down, he's angry at me now.
+- [01:17:47.620] He wasn't interested in demonizing anyone.
+- [01:17:50.170] He was interested in persuading everyone to the ideas
+- [01:17:55.420] and principles he believed were good, right, and true.
+- [01:17:59.730] Before each appearance, he prayed these words,
+- [01:18:03.490] God, use me for your will.
+- [01:18:06.050] Always said the same thing. Use me for Your will.
+- [01:18:09.710] (applause)
+- [01:18:14.510] And that is exactly what God did.
+- [01:18:17.200] When you think that's exactly what he did,
+- [01:18:20.110] the more success Charlie had,
+- [01:18:21.760] and he was getting more and more successful,
+- [01:18:25.180] the more dangerous his mission became.
+- [01:18:28.160] On campuses all over the country,
+- [01:18:29.890] his quest for open dialog was met with menacing hate.
+- [01:18:35.800] There were bomb threats, pulled fire alarms,
+- [01:18:39.720] and countless rage-filled radicals
+- [01:18:41.730] who tried to shout him down.
+- [01:18:43.430] You know, it's nasty. I used to say, Charlie,
+- [01:18:46.270] this is nasty stuff you're doing.
+- [01:18:48.950] At one event, police had to build barricades
+- [01:18:52.380] to protect students from an angry mob of thugs.
+- [01:18:56.940] Many of these people, by the way,
+- [01:18:58.250] are paid a lot of money to do this.
+- [01:18:59.850] They're agitators. They're paid agitators.
+- [01:19:01.900] Remember that?
+- [01:19:03.440] When you see they all have the same beautifully printed sign,
+- [01:19:07.310] every sign is identical.
+- [01:19:08.620] Comes out of a top-level print shop.
+- [01:19:11.760] That's not the signs that are made in somebody's basement.
+- [01:19:15.000] Those are paid for by very bad people,
+- [01:19:18.020] and hopefully we're going to be finding out,
+- [01:19:19.930] through the DOJ, who those people are.
+- [01:19:22.530] (applause)
+- [01:19:27.720] At another college, ANTIFA terrorists shattered windows,
+- [01:19:31.910] threw rocks, and tried to storm the building
+- [01:19:34.310] where Charlie was speaking. It was a really bad one.
+- [01:19:38.540] Often, dozens of police officers
+- [01:19:40.390] were needed to prevent left-wing violence.
+- [01:19:43.980] And the violence comes largely from the left.
+- [01:19:47.810] You don't hear that from too many people, do you?
+- [01:19:50.630] And virtually every day, for years,
+- [01:19:53.820] Before he was murdered,
+- [01:19:55.380] Charlie received these horrible death threats.
+- [01:19:59.180] People don't know. I used to talk to him about it.
+- [01:20:01.260] He said, I got some threats.
+- [01:20:03.420] He always felt that when they actually made the threat,
+- [01:20:06.890] they were not the ones to worry about.
+- [01:20:08.630] The ones to worried about were the ones
+- [01:20:10.290] that don't make the threats.
+- [01:20:12.920] And I think you know what I mean.
+- [01:20:14.900] He knew the risks, but he and I shared a certain motto,
+- [01:20:19.120] never back down and never, ever surrender.
+- [01:20:21.240] Just don't surrender. Never back down.
+- [01:20:23.090] He believed in it so strongly. So strongly.
+- [01:20:27.270] And he's right. He's totally -- he's totally right.
+- [01:20:30.930] The radicals and their allies in the media,
+- [01:20:35.220] sometimes referred to, as my son said,
+- [01:20:37.660] the fake news media,
+- [01:20:39.910] tried to silence Charlie for a simple reason,
+- [01:20:44.350] because he was winning, and he was running big.
+- [01:20:46.940] He was taking over college campuses --
+- [01:20:49.560] colleges that had, in theory, only very liberal,
+- [01:20:53.990] or as they like to say, progressive.
+- [01:20:55.490] I call them liberal.
+- [01:20:57.070] What they like to call themselves,
+- [01:20:58.540] because such a beautiful word, progressive.
+- [01:21:00.260] They're the opposite of progressive,
+- [01:21:01.700] if you think about it. But they were really nasty,
+- [01:21:06.540] and he would go into these colleges.
+- [01:21:08.190] All of a sudden, within two years, three years,
+- [01:21:10.130] they turned into bastions of conservatism.
+- [01:21:12.620] It was really quite amazing to see.
+- [01:21:15.940] They lied about him because they did
+- [01:21:17.930] not want you to listen to him or to learn from him
+- [01:21:21.110] because what he was talking about
+- [01:21:23.490] and even preaching made so much sense.
+- [01:21:26.290] Everywhere he went he won the debates,
+- [01:21:28.850] he won the hearts, he won the minds,
+- [01:21:30.540] and yes, he won the elections for people.
+- [01:21:32.420] He helped us, he helped other people.
+- [01:21:34.990] We won the biggest election in the history of our country,
+- [01:21:37.260] I believe.
+- [01:21:38.890] (applause)
+- [01:21:45.070] Charlie Kirk was, without a doubt,
+- [01:21:47.420] among the most influential figures
+- [01:21:49.340] in the most important election in the history of our country.
+- [01:21:53.220] The election of, oh, that beautiful day,
+- [01:21:55.530] November 5th, 2024.
+- [01:21:58.050] Do you remember that day? It was nine months ago.
+- [01:22:01.220] (applause)
+- [01:22:03.260] What a day that was.
+- [01:22:08.090] I mean, we had a pretty good day in the first one.
+- [01:22:11.500] And I must tell you, on the second one,
+- [01:22:13.400] we had a phenomenal day.
+- [01:22:15.840] But a lot of bad things happened,
+- [01:22:18.930] and now that's not even questioned.
+- [01:22:21.340] They cheated like dogs, but we got them back, didn't we?
+- [01:22:26.060] Got them back.
+- [01:22:27.390] (applause)
+- [01:22:29.860] But we owe Charlie a profound and eternal debt of gratitude.
+- [01:22:34.320] Now, just like Charlie and Erika made Turning Point hot,
+- [01:22:40.230] we are looking at a country
+- [01:22:42.480] that has the chance to attain a level like never before.
+- [01:22:48.330] Tariffs are making us rich again,
+- [01:22:50.320] richer than anybody ever thought was possible.
+- [01:22:54.720] And the only one challenging them are people
+- [01:22:57.550] that hate our country or foreign countries
+- [01:22:59.620] that are paying a price,
+- [01:23:00.930] because they did the same thing to us for years.
+- [01:23:03.470] They took advantage of us, but we're making money.
+- [01:23:08.940] We're becoming richer and richer,
+- [01:23:12.380] and we're taking care of our people better
+- [01:23:14.490] and better when we do that.
+- [01:23:15.720] And we can take care of other countries better and better,
+- [01:23:18.250] but we're doing unbelievably well.
+- [01:23:20.910] The tariffs have really been a hold.
+- [01:23:22.560] The election was big.
+- [01:23:24.720] But the tariffs, because of the election, came in.
+- [01:23:27.040] And remember, other nations do that to us.
+- [01:23:30.140] And Charlie understood that. He saw the money.
+- [01:23:32.770] He saw what was coming into our country.
+- [01:23:34.610] And we can use that for Medicare, Medicaid,
+- [01:23:37.390] Social Security,
+- [01:23:39.010] all of these things that we fight so hard for.
+- [01:23:41.670] And that's exactly what's happening.
+- [01:23:44.460] The numbers are incredible.
+- [01:23:46.220] When the news finally came out on election night last November
+- [01:23:50.150] that the race was officially won,
+- [01:23:52.760] came out pretty early in the night.
+- [01:23:56.130] Charlie was live on camera.
+- [01:23:58.760] In that moment, he was overcome with emotion.
+- [01:24:00.990] I've never seen him like this. He was so happy.
+- [01:24:04.020] For a long while, he said nothing.
+- [01:24:05.830] His eyes were filled with tears.
+- [01:24:07.400] And then he buried his face in his hands,
+- [01:24:11.130] and he started crying.
+- [01:24:12.420] That wasn't the Charlie I knew, but in thinking about it,
+- [01:24:16.020] it actually was the Charlie I knew
+- [01:24:17.720] because he had a tremendous heart.
+- [01:24:19.470] He just wanted what was good for our country,
+- [01:24:21.430] and he saw us going in such a horrible direction.
+- [01:24:25.110] Lovingly, Erika -- and this was so beautiful.
+- [01:24:28.520] Erika put a MAGA hat on to cover his bowed head.
+- [01:24:33.620] I like that very much. MAGA, we love.
+- [01:24:35.980] Does everybody love MAGA? Make America great again.
+- [01:24:39.420] (applause)
+- [01:24:44.570] When Joe Biden used to get up, remember the speeches?
+- [01:24:47.740] We will stop MAGA. We will Stop MAGA.
+- [01:24:51.620] You know, he could barely get the words out.
+- [01:24:53.650] We will stop -- I said, can somebody inform him
+- [01:24:56.620] that MAGA means Make America Great Again?
+- [01:24:59.910] How do you say you're going to stop it?
+- [01:25:03.150] And Charlie understood that.
+- [01:25:04.370] When Charlie finally looked up and spoke,
+- [01:25:06.540] he smiled through the watery eyes
+- [01:25:08.390] and simply said, I am humbled by God's grace.
+- [01:25:13.180] That was his statement that night.
+- [01:25:14.730] I was watching him. I was very impressed, actually.
+- [01:25:20.010] It showed he had a big heart.
+- [01:25:22.020] Every single American should take a long,
+- [01:25:24.420] hard look at the twisted soul and dark spirit of anyone
+- [01:25:28.760] who would want to kill a young man as good as Charlie,
+- [01:25:33.540] to kill anybody, but to kill a man like this.
+- [01:25:36.250] He didn't deserve this.
+- [01:25:37.900] He didn't deserve this, our country didn't deserve this
+- [01:25:40.310] and anyone who make excuses for it
+- [01:25:44.230] are just out of their mind.
+- [01:25:48.010] Charlie's murder was not just an attack
+- [01:25:50.320] on one man or one movement.
+- [01:25:53.170] It was an attack on our entire nation.
+- [01:25:56.950] That was a horrible attack on the United States of America.
+- [01:26:01.690] It was assault on our most sacred liberties
+- [01:26:04.210] and God-given rights. The gun was pointed at him,
+- [01:26:07.670] but the bullet was aimed at all of us.
+- [01:26:09.690] That bullet was aimed at every one of us.
+- [01:26:12.660] Indeed, Charlie was killed for expressing the very ideas
+- [01:26:15.960] that virtually everyone in this arena
+- [01:26:17.890] and most other places throughout our country deeply believed in.
+- [01:26:24.140] But the assassin failed in his quest
+- [01:26:26.080] because Charlie's message has not been silenced.
+- [01:26:28.900] It now is bigger and better and stronger than ever before,
+- [01:26:34.860] and it's not even close.
+- [01:26:36.870] (applause)
+- [01:26:40.710] And it's rare that such a thing happens,
+- [01:26:42.800] but Charlie is bigger today than he was,
+- [01:26:46.000] think about it, just two weeks ago.
+- [01:26:48.740] He's bigger today than he is two weeks.
+- [01:26:51.060] Now, that may not help his friends and loved ones,
+- [01:26:54.640] of which there are so many.
+- [01:26:56.660] It may not helped Erika and those beautiful children
+- [01:27:00.630] who have to suffer so horribly through this moment,
+- [01:27:03.270] but they know it's true.
+- [01:27:05.650] He's bigger now than ever before, and he's eternal.
+- [01:27:10.480] He's eternal.
+- [01:27:12.190] And I just want to say we love him.
+- [01:27:14.300] And he's looking down at us right now,
+- [01:27:16.280] and he's saying, wow, that's a great crowd.
+- [01:27:20.290] He's saying that's great crowd.
+- [01:27:22.550] (applause)
+- [01:27:27.220] And it's a great crowd of patriots.
+- [01:27:30.870] But that's why I will soon award
+- [01:27:32.710] Charlie the nation's highest civilian honor,
+- [01:27:36.800] the Presidential Medal of Freedom.
+- [01:27:39.300] It's the highest civilian honor.
+- [01:27:43.070] (applause)
+- [01:27:54.020] And we will do the ceremony at our beautiful White House
+- [01:27:57.210] in a very safe Washington, D.C.,
+- [01:28:01.370] a place that Charlie truly revered.
+- [01:28:04.640] You know, we stopped the crime in Washington.
+- [01:28:06.670] It took 12 days. Now you can go to restaurants.
+- [01:28:11.010] You can walk down the middle of the street with your wife.
+- [01:28:14.660] You can have your wife walk alone down the street.
+- [01:28:17.500] She's going to be in good shape. What a difference.
+- [01:28:21.320] What a difference good management really makes.
+- [01:28:24.580] It's -- I'm so proud of that, Washington, D.C.
+- [01:28:27.190] You know, it was one of the worst in the nation --
+- [01:28:28.940] in the world.
+- [01:28:30.790] And now it's considered a very safe city.
+- [01:28:34.240] And it's also -- I passed it yesterday.
+- [01:28:36.330] I went through it. And the lawns are good.
+- [01:28:40.140] It's like a different place. It's, like, the tents are gone.
+- [01:28:43.980] The threats are gone, the gangs aren't there.
+- [01:28:48.310] We got rid of -- you know, we took out
+- [01:28:49.750] 1,500 career criminals -- 1, 500.
+- [01:28:53.250] If you have three career criminals,
+- [01:28:54.940] that can make a big difference.
+- [01:28:57.370] But I'm so proud of Washington, D.C.,
+- [01:28:59.770] and now we're going into Memphis,
+- [01:29:02.180] and we'll get that one straightened out fast.
+- [01:29:04.230] And then we're goin' into some others,
+- [01:29:05.840] but we're going to go to Chicago,
+- [01:29:08.410] and we're gon' have Charlie very much in mind
+- [01:29:10.780] when we go into Chicago.
+- [01:29:12.740] And we'll that one straightened out.
+- [01:29:14.330] You have an incompetent governor who, he thinks it's okay
+- [01:29:18.100] when 11 people get murdered over the weekend.
+- [01:29:21.540] He thinks you don't have any crime.
+- [01:29:23.010] When 11 people get murdered and 28 people get shot,
+- [01:29:27.850] he says he's got crime -- no, they don't it under control,
+- [01:29:31.780] but we'll have it under very quickly.
+- [01:29:33.850] So we're going to be doing that.
+- [01:29:35.760] And Charlie loved what we were doing.
+- [01:29:37.320] He was so proud of what happened.
+- [01:29:38.690] He was there to see it.
+- [01:29:40.120] So proud of happened in Washington, D.C.
+- [01:29:43.160] As you know,
+- [01:29:44.440] the depraved assassin who planned and executed.
+- [01:29:48.720] Charlie's killing has been arrested and charged
+- [01:29:51.580] with capital murder.
+- [01:29:53.560] God willing, he will receive the full and ultimate punishment
+- [01:29:56.870] for his horrific crime. It's a terrible thing.
+- [01:30:02.800] Because you can't let that happen.
+- [01:30:05.450] You can't that happen to a country.
+- [01:30:09.960] The Department of Justice is also investigating networks
+- [01:30:13.840] of radical left maniacs who fund organized fuel
+- [01:30:17.980] and perpetrate political violence.
+- [01:30:20.020] And we think we know who many of them are.
+- [01:30:24.330] But law enforcement can only be the beginning of our response
+- [01:30:28.340] to Charlie's murder.
+- [01:30:30.990] Over the last 11 days, we have heard stories of commentators,
+- [01:30:36.120] influencers, and others in our society
+- [01:30:38.370] who greeted his assassination with sick approval,
+- [01:30:42.460] excuses, or even jubilation.
+- [01:30:45.030] You've heard that? So have I. I couldn't believe it.
+- [01:30:48.020] Some of the very same people who spent the last eight years
+- [01:30:51.020] trying to sit in moral judgment of anyone
+- [01:30:53.370] who disagreed with them about politics
+- [01:30:55.760] suddenly started cheering for a murder.
+- [01:31:00.200] Incredible. You know the names.
+- [01:31:03.070] They're major losers, by the way.
+- [01:31:06.120] They'll be -- that will be proven out
+- [01:31:08.990] in a short period of time.
+- [01:31:11.060] Some of the very people who call you a hater
+- [01:31:13.280] for using the wrong pronoun were filled with glee
+- [01:31:17.250] at the killing of a father with two beautiful young children.
+- [01:31:22.190] And the same commentators who, this week, are screaming fascism
+- [01:31:26.610] over a canceled late-night TV show
+- [01:31:28.800] where the anchor had no talent and no ratings.
+- [01:31:34.820] Last week, we're implying that Charlie Kirk
+- [01:31:37.980] deserved what happened to him.
+- [01:31:41.610] No side in American politics has a monopoly on disturbed
+- [01:31:45.530] or misguided people.
+- [01:31:47.830] But there's one part of our political community
+- [01:31:50.110] which believes they have a monopoly on truth, goodness,
+- [01:31:53.140] and virtue, and concludes they have also a monopoly
+- [01:31:56.910] on power, thought, and speech.
+- [01:31:58.570] Well, that's not happening anymore.
+- [01:32:00.660] We've turned that corner very quickly.
+- [01:32:03.210] Tragically, atrocities of this kind and the kind
+- [01:32:07.170] that we saw in Utah, of all places,
+- [01:32:09.160] are the eventual consequence of that kind of thinking.
+- [01:32:13.690] If speech is violence, then some are bound to conclude
+- [01:32:17.610] that violence is justified to stop speech.
+- [01:32:21.060] And we're not going to let that be justified.
+- [01:32:23.280] The tradition of reason and open debate
+- [01:32:26.200] that Charlie practiced is not a pillar of our democracy.
+- [01:32:30.340] In many ways, it's the basis of our entire society.
+- [01:32:35.710] It's the right inheritance of every free American,
+- [01:32:39.070] the greatest legacy of the Enlightenment,
+- [01:32:41.780] and among the most treasured achievements of civilization.
+- [01:32:46.580] We will defend it at all costs, and we will carry forward
+- [01:32:49.580] the torch of liberty that Charlie Kirk held,
+- [01:32:52.510] so proud and so high.
+- [01:32:54.210] He was so proud, and he did hold that torch high.
+- [01:32:58.510] We will never, ever let it fail. We will never let it fail,
+- [01:33:03.910] but we're going to raise it higher than ever before.
+- [01:33:07.860] It's going to be raised,
+- [01:33:09.150] and this is the beginning, perhaps.
+- [01:33:11.680] It should be no surprise that Charlie,
+- [01:33:13.350] who spent his life speaking with the critics of these traditions,
+- [01:33:16.430] ultimately became convinced that we needed
+- [01:33:19.490] not just a political realignment
+- [01:33:21.380] but also a spiritual reawakening. We did.
+- [01:33:25.380] And we have to bring back religion to America,
+- [01:33:28.050] because without borders, law and order,
+- [01:33:30.150] and religion, you really don't have a country anymore.
+- [01:33:33.420] We want religion brought back to America,
+- [01:33:38.110] we want to bring God back into our beautiful
+- [01:33:40.710] USA like never before. We want God back.
+- [01:33:44.650] (applause)
+- [01:33:49.480] Charlie would have been so pleased to hear his friends
+- [01:33:52.110] and colleagues today giving testimony
+- [01:33:54.460] and giving glory to God.
+- [01:33:58.490] Within minutes of the gunshot in Utah,
+- [01:34:01.440] millions of Americans, young and old,
+- [01:34:03.420] heard the news and dropped to their knees and started praying.
+- [01:34:07.550] Even many who rarely pray to ask God for a miracle.
+- [01:34:10.400] Please, God, save Charlie.
+- [01:34:13.160] But although Charlie's time with us on Earth has ended.
+- [01:34:17.550] Those prayers for a miracle have already been answered.
+- [01:34:21.400] Look at what's happening. Look at what's happening.
+- [01:34:25.000] In the days since Charlie's death we have seen
+- [01:34:27.900] how his legacy has touched so many millions around the world.
+- [01:34:33.310] In Calgary, Canada, thousands gathered at City Hall
+- [01:34:36.550] to sing the American national anthem
+- [01:34:39.420] and raise up posters with the name Charlie Kirk.
+- [01:34:44.730] In Seoul, South Korea,
+- [01:34:46.010] crowds gathered to wave American flags and shout,
+- [01:34:50.250] We are for Charlie Kirk.
+- [01:34:53.570] His memory has been honored in the streets of Berlin,
+- [01:34:56.580] Warsaw, Vienna, Sydney,
+- [01:34:58.140] Madrid, London, Tel Aviv, and all over the world.
+- [01:35:05.120] So beautiful to watch.
+- [01:35:10.090] A man as far away as rural Australia texted a pastor,
+- [01:35:13.790] I'm going to come to church tomorrow
+- [01:35:16.350] for the first time ever. The pastor asked, why is that?
+- [01:35:20.460] The man replied, because of Charlie Kirk.
+- [01:35:23.250] Can you imagine? The lesson of Charlie's life
+- [01:35:26.780] is that you should never underestimate
+- [01:35:28.970] what one person can do with a good heart,
+- [01:35:32.900] a righteous cause, a cheerful spirit,
+- [01:35:36.490] and the will to fight, fight, fight!
+- [01:35:40.170] Have to fight.
+- [01:35:41.420] (applause)
+- [01:35:45.210] We're saving our country.
+- [01:35:47.870] And Charlie is a big factor, such a big factor.
+- [01:35:50.540] Charlie Kirk started with only an idea
+- [01:35:53.110] to change minds on college campuses.
+- [01:35:56.530] And instead, he ended up with a far greater achievement,
+- [01:36:00.290] changing history. He changed history.
+- [01:36:04.200] Today, Charlie Kirk rests in glory in heaven
+- [01:36:08.300] for all eternity.
+- [01:36:10.390] He has gone from speaking on campuses in Wisconsin
+- [01:36:13.630] to kneeling at the throne of God,
+- [01:36:15.850] where he is right now.
+- [01:36:22.290] We grieve for the friend and leader that we have lost,
+- [01:36:28.510] but we go forward strengthened by his faith
+- [01:36:30.870] and bolstered by his courage and inspired by his example
+- [01:36:34.310] to defend the country he lived for,
+- [01:36:38.880] for the freedoms he died for
+- [01:36:40.640] and the values in which he so deeply believed.
+- [01:36:43.220] He believed in values that we should all believe in.
+- [01:36:47.590] Charlie created something very special
+- [01:36:49.740] It's called Turning Point USA.
+- [01:36:52.190] And under the leadership and love of Erika,
+- [01:36:55.600] it will become bigger and better and stronger than ever before.
+- [01:37:06.630] So, Charlie, we all want to thank you.
+- [01:37:09.430] We want to say a very loud God bless you, Charlie.
+- [01:37:12.980] God bless for what you've done. It's incredible.
+- [01:37:17.440] And God bless Erika and the children.
+- [01:37:19.770] God bless the United States of America.
+- [01:37:23.160] And could I ask Erika, please come out?
+- [01:37:25.970] Erika? Please come out. Thank you.
+- [01:37:28.470] (applause)
+- [01:37:39.470] ♪ (singing of "America the Beautiful) ♪
+- [01:38:30.480] Thank you very much, everybody. Thank you very much.
+- [01:38:33.160] And good luck. God be with you. Thank you.
+- [01:38:37.240] (applause)
+- [01:38:46.000] ♪ (singing of "America the Beautiful) ♪

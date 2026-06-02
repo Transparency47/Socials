@@ -1,0 +1,1475 @@
+<!-- source: https://www.youtube.com/watch?v=n29ZsD4C0HE -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: n29ZsD4C0HE -->
+<!-- date_published: 2026-05-05T20:05:27+00:00 -->
+<!-- date_accessed: 2026-06-02T02:34:18.056855+00:00 -->
+
+# Transcript: Secretary of State Marco Rubio Briefs Members of the Media, May 5, 2026
+
+- [00:02.210] Secretary Rubio: Hello.
+- [00:04.210] Thank you, guys, for having me today.
+- [00:06.020] I'll be filling in for Karoline today, obviously.
+- [00:08.690] So, I'll have a brief remarks here
+- [00:11.880] and then we'll get to your questions.
+- [00:14.770] As you know, over the weekend,
+- [00:16.020] the president announced this Project Freedom
+- [00:18.510] and the goal of it is to, frankly,
+- [00:19.850] if you want to talk about it,
+- [00:21.050] it's to rescue like almost 23,000 civilians
+- [00:24.020] from 87 different countries
+- [00:25.330] that are trapped inside of the --
+- [00:27.470] of the Gulf and left for dead, in the Persian Gulf,
+- [00:31.580] by this Iranian regime.
+- [00:33.240] You know, for more than two months now,
+- [00:34.680] these innocent sailors and commercial crew members
+- [00:37.150] have been stranded out at sea
+- [00:39.040] because Iran is conducting something
+- [00:40.460] that's not just criminal. It's criminal for sure,
+- [00:42.480] but it's desperate and destructive,
+- [00:43.980] this blockade of the Straits of Hormuz
+- [00:46.290] nations from around the world,
+- [00:47.560] the overwhelming majority of whom are not even engaged
+- [00:50.140] in any military hostilities,
+- [00:52.110] are now at risk not just of losing their cargo,
+- [00:55.560] but the lives of their own citizens
+- [00:57.450] because of this blockade.
+- [00:58.940] These ships -- you know,
+- [01:00.170] you don't leave a ship out there for this long.
+- [01:01.690] You start running out of food,
+- [01:02.970] you start running out of potable water,
+- [01:04.500] essential supplies, and they're at the mercy of this piracy,
+- [01:08.140] what it is, it's piracy.
+- [01:09.800] And -- and not only that, but some of them have seen,
+- [01:12.790] you know, been open fire on
+- [01:14.260] and rained down senseless attacks on --
+- [01:16.640] on several civilian ships already.
+- [01:19.020] So, frankly, the way to put it, these are innocent bystanders.
+- [01:21.650] These are countries that -- and ships and so forth
+- [01:24.270] that have nothing to do with any of this,
+- [01:25.910] and nonetheless are being caught in the middle of it.
+- [01:27.540] And being held hostage merely because Iran could do that,
+- [01:30.750] just because of a --
+- [01:32.360] just as the regime brutally slaughtered
+- [01:34.220] tens of thousands of their own citizens for the --
+- [01:37.210] for the crime of peaceful protest,
+- [01:39.070] because they're unhappy with the quality of life
+- [01:40.830] or the lack of quality of life in Iran today.
+- [01:43.100] And so they're sitting ducks.
+- [01:44.360] They're isolated, they're starving,
+- [01:45.680] they're vulnerable and --
+- [01:47.530] and at least 10 sailors have already died as a result,
+- [01:49.970] of the civilian sailors.
+- [01:51.840] So already, many nations privately and some publicly
+- [01:54.380] have asked the United States to --
+- [01:55.630] to help free their ships and to restore freedom
+- [01:57.710] of navigation in the Straits of Hormuz
+- [01:59.510] and this critical artery of global trade.
+- [02:01.880] And so President Trump, as he always does,
+- [02:03.770] stepped up and answered the calls for their help,
+- [02:06.610] and he's directed the United States military to guide
+- [02:08.930] these stranded ships to safety, to provide a protective bubble
+- [02:11.890] under which they can operate and move product
+- [02:14.910] and get themselves out of there and out of harm's way.
+- [02:17.390] And this is the first step towards reopening the strait
+- [02:19.650] and bringing this regime's last ditch act of economic arson,
+- [02:24.260] bringing that to a close.
+- [02:26.100] Only -- we're doing it not only because we were asked,
+- [02:28.340] but because we're the only ones who can.
+- [02:30.150] We -- only we have the power
+- [02:31.510] to sort of take the steps that we've taken now.
+- [02:34.090] Under this president, under President Trump,
+- [02:35.780] the United States will help our friends.
+- [02:37.980] We're going to stand up to rogue regimes like the one in Tehran,
+- [02:41.960] and we're going to be unashamed to use our power
+- [02:44.960] and our abilities to project military power
+- [02:47.250] in the service of our national interests, above all else.
+- [02:50.630] Now, what's really important for you to report
+- [02:52.310] and for everyone to understand is,
+- [02:53.550] this is not an offensive operation,
+- [02:55.270] this is a defensive operation.
+- [02:56.940] And what that means is very simple, there's no shooting
+- [02:59.690] unless we're shot at first. OK? We're not attacking them.
+- [03:02.750] We're not -- but if they're attacking us,
+- [03:04.530] so they're attacking a ship, you need to respond to that.
+- [03:07.410] You're not going to let some fast boat
+- [03:08.920] come up on a ship and shoot it up.
+- [03:10.650] We're going to respond to it, and we've been successful at it.
+- [03:12.770] I don't know what the exact number is,
+- [03:14.160] but I know a number of those fast boats
+- [03:15.680] have now been targeted and will continue to be
+- [03:17.880] if they pose a threat to our forces.
+- [03:19.340] We'll shoot down drones, we'll shoot down missiles,
+- [03:21.440] but it's defensive in nature. This is defensive.
+- [03:24.290] So if you hear stories about attacks and launching
+- [03:26.500] of firing back and forth, it's not back and forth.
+- [03:29.280] We are only responding if attacked first.
+- [03:31.230] This is a defensive operation
+- [03:33.190] and that's what's occurring here.
+- [03:35.110] Just about the importance of the straits for a moment,
+- [03:37.040] this is approximately a quarter of the world's oil trade,
+- [03:39.620] along with significant volumes of fuel and fertilizer
+- [03:42.760] that operate through the Straits of Hormuz.
+- [03:44.690] The -- the Iranian regime cannot be allowed to dictate
+- [03:47.750] who uses this vital waterway.
+- [03:49.890] I don't think this is also being reported enough.
+- [03:52.030] Maybe you are reporting. I don't read everyone.
+- [03:53.460] I don't know -- many damn outlets here.
+- [03:54.850] I don't know who you all are, but --
+- [03:56.310] I mean, I know who some of you are,
+- [03:57.590] but I don't know who all of you are.
+- [03:59.380] But I will say this about it, um,
+- [04:01.800] this is an international waterway.
+- [04:04.090] This is an international waterway
+- [04:05.810] and international law is very clear.
+- [04:07.200] And I love it because everybody always talks
+- [04:08.490] about international law in this. International law in this
+- [04:10.620] is very clear international waterways,
+- [04:12.710] no country can control them.
+- [04:14.690] There is no international law that allows you to say,
+- [04:16.990] I'm going to put mines in an international body of water,
+- [04:19.350] and I'm going to blow up ships that don't listen to us
+- [04:21.560] and try to go through.
+- [04:22.780] That's what Iran is doing. This is a criminal act,
+- [04:25.730] and someone needs to do something about it.
+- [04:27.280] Something needs to be done.
+- [04:28.570] It's completely illegal, completely illegitimate
+- [04:30.850] and completely unacceptable.
+- [04:32.440] And that's why the United States' military
+- [04:34.050] is guiding stranded commercial ships safely through the strait,
+- [04:37.530] and is working to restore freedom of navigation
+- [04:39.570] and putting an end to these efforts to glow --
+- [04:41.470] to hold the global economy hostage.
+- [04:43.530] So far, as a proof of concept and as a proof of function,
+- [04:47.730] two US flag merchant ships have successfully
+- [04:49.830] transferred the Strait of Hormuz
+- [04:51.110] in the first stages of this project,
+- [04:53.320] and they're now safely on their way.
+- [04:55.310] The US military is deploying the necessary assets
+- [04:57.990] to extend this defensive umbrella
+- [04:59.950] over commercial shipping.
+- [05:01.660] But there should be no mistake,
+- [05:03.550] and as I said this already, this is a defensive operation.
+- [05:05.790] I want to reiterate that point. This is important to understand.
+- [05:08.880] If no shots are fired at these ships
+- [05:10.780] and no shots are fired at us. We're not firing shots,
+- [05:13.510] but if we're fired on, we will respond
+- [05:15.200] and we will respond with lethal efficiency.
+- [05:17.930] The assets supporting this project, by the way,
+- [05:19.870] include guided missile destroyers, over 100 land-
+- [05:22.710] and sea-based aircraft, multi-domain unmanned platforms,
+- [05:26.610] and 15,000 of the finest military service
+- [05:29.370] members on the planet.
+- [05:31.190] These forces have already destroyed,
+- [05:32.600] as I told you earlier, I thought it was six,
+- [05:34.260] it's seven Iranian fast boats
+- [05:35.880] that failed to heed our warnings.
+- [05:38.210] And by fast boats we're talking about,
+- [05:39.740] you know, some of these things look like Boston whalers.
+- [05:41.890] OK, so these are not like Navy ships,
+- [05:43.730] but nonetheless, they come fast at these boats,
+- [05:45.650] try to swarm them, try to harm them.
+- [05:47.090] We're not going to let that happen,
+- [05:48.320] so seven of them now sit at the bottom of the sea,
+- [05:50.900] along with, by the way, the rest of Iran's Navy;
+- [05:52.910] that's where you can find their Navy today.
+- [05:54.920] And we're going to continue to systematically clear
+- [05:56.840] this passageway through the straits
+- [05:58.620] to restore freedom of navigation.
+- [06:00.940] Now, while this project steadily progresses,
+- [06:03.500] Operation Epic Fury -- Economic Fury, I'm sorry --
+- [06:06.960] continues to impose maximum pressure on the Iranian regime
+- [06:10.780] and what remains of their already frail economy.
+- [06:13.850] Today, inflation in Iran is 70 percent
+- [06:17.310] and their currency is in total and complete freefall.
+- [06:20.180] US sanctions enforcement is stepping up,
+- [06:22.060] it's moving in lockstep with the naval blockade
+- [06:24.660] to degrade Iran's capacity to generate,
+- [06:27.450] to move and repatriate revenue.
+- [06:29.840] It directly targets the regime's primary revenue lifelines.
+- [06:33.830] The blockade alone is costing Iran as much
+- [06:36.280] as $500 million a day in lost revenue.
+- [06:40.860] 90 percent of total Iranian trade has been halted,
+- [06:43.690] causing permanent damage to Iran's oil infrastructure,
+- [06:46.320] as well as are forced to shut in.
+- [06:48.480] Again, all of this is in response to their piracy.
+- [06:51.830] OK, it cannot be that you have these straits
+- [06:54.260] and they blow up any ship that moves,
+- [06:55.700] and the only ships that get to go through were theirs.
+- [06:57.360] You can't have a situation
+- [06:58.570] in which the straits are close to everyone else,
+- [07:00.420] but they benefit from the piracy, that can't happen.
+- [07:03.030] That's why the blockade is in place,
+- [07:04.600] and that's why these sanctions are crippling them.
+- [07:06.840] Any foreign financial -- and by the way,
+- [07:09.000] Treasury is now identifying
+- [07:10.980] and cutting off every dollar of revenue
+- [07:12.560] that's flowing to this regime.
+- [07:13.820] And so, look, any foreign financial institution
+- [07:16.150] or commercial actor that enables Iran's sanctions evasion
+- [07:19.140] is going to face secondary sanctions exposure
+- [07:22.080] and a loss of access to the US financial system.
+- [07:25.290] As President Trump has said, and the facts clearly bear out,
+- [07:28.310] the United States of America holds all the cards.
+- [07:31.210] There is no scenario here in which,
+- [07:33.830] if they decide to join a ladder of escalation,
+- [07:36.140] they wind up getting the last say.
+- [07:37.880] But our preference is for these straits to be opened
+- [07:41.100] to the way they're supposed to be open,
+- [07:42.840] back to the way it was, anyone can use it,
+- [07:45.160] no mines in the water, nobody paying tolls.
+- [07:47.890] That's what we have to get back to and that's the goal here.
+- [07:50.300] Every day the conflict continues however,
+- [07:52.000] our leverage on Iran will continue to increase
+- [07:54.440] and their position will continue to weaken,
+- [07:56.640] especially as the blockade really begins to bite
+- [07:58.780] in conjunction with the sanctions.
+- [08:00.520] So, look, the time has come for Iran to make a sensible choice.
+- [08:03.690] And it's not easy for them to do that, obviously,
+- [08:05.440] because they have a fracture in their own leadership system.
+- [08:08.030] And apart from that, I mean,
+- [08:09.860] the top people in that government
+- [08:11.240] are to say the least, you know, they're insane in the brain.
+- [08:16.890] And so, we need to address that and it's difficult
+- [08:19.300] because it's hard to get past that in their system.
+- [08:21.270] But it's important for them to make a sensible choice
+- [08:23.500] and the one that's right for their people.
+- [08:25.210] The president, our president, has proven time and again
+- [08:27.570] that his preference is peace.
+- [08:29.440] But Iran must accept the reality of this situation
+- [08:32.340] and come to the negotiation table
+- [08:34.320] and accept terms that are good for them,
+- [08:35.900] but ultimately good for the world.
+- [08:37.240] The diplomatic path -- there's a real diplomatic path.
+- [08:39.720] I'm not always going to be one,
+- [08:40.950] but if there's a real diplomatic path
+- [08:42.260] and we continue to explore it,
+- [08:43.980] Steve and Jared are working on that very hard.
+- [08:45.970] If there is one there, it could be one that leads them
+- [08:48.200] to reconstruction, to prosperity and to stability,
+- [08:51.220] and to not posing a threat to the world.
+- [08:53.300] The alternative is growing isolation, economic collapse,
+- [08:56.440] and ultimately total defeat.
+- [08:58.530] I know what the right choice is for Iran.
+- [09:00.180] I hope that the people over there
+- [09:01.570] making decisions will make the right one.
+- [09:03.290] The last point I would make,
+- [09:04.530] and it really is important for them to understand this,
+- [09:06.400] is they really shouldn't test the will of the United States,
+- [09:09.310] at least not under President Donald Trump.
+- [09:11.420] He has proven time and again
+- [09:13.010] that he will back up what he says.
+- [09:14.750] And if they test him, ultimately, they will lose --
+- [09:17.280] the hard way, the easy way, the long way,
+- [09:19.160] the short way they will lose.
+- [09:20.870] And with that, it's time for your questions.
+- [09:23.720] So, Catherine, why don't we start with you first?
+- [09:25.550] The Press: Hi.
+- [09:26.770] Catherine Herridge, I'm an independent journalist.
+- [09:28.960] Secretary Rubio, have you seen any recent indications
+- [09:32.340] that Iran is willing to give up its nuclear weapons program
+- [09:35.700] that is credible, verifiable,
+- [09:37.370] and that would lead to an immediate de-escalation?
+- [09:40.390] Secretary Rubio: Well, look,
+- [09:42.610] this is a long-standing problem for them, right?
+- [09:44.350] I mean, they have wanted --
+- [09:45.550] they have always said they don't want a nuclear weapon,
+- [09:47.430] that's because they've always said that,
+- [09:48.700] they just don't mean it. And why do you say,
+- [09:50.170] well, how do you know they don't mean it?
+- [09:51.520] Well, we don't mean it because they're doing all the things
+- [09:53.790] and historically have tried to do all the things that you do
+- [09:56.450] if you want a nuclear weapons program.
+- [09:57.920] For example, they innovate and try to innovate
+- [10:00.220] long-range delivery missiles that now, in some cases,
+- [10:03.210] are capable of reaching much of Europe.
+- [10:06.430] They build these large underground centrifuges
+- [10:09.050] for enrichment activity. There are countries in the world
+- [10:12.000] that are involved in the enrichment business,
+- [10:13.700] but these guys do it in mountains
+- [10:15.490] and in caves and in hiding.
+- [10:17.270] They've always had secret components
+- [10:19.080] of their nuclear program undisclosed to the world.
+- [10:21.530] And we know for a fact that they retain highly enriched uranium
+- [10:24.710] at 60 percent, that they did so,
+- [10:27.390] and that has no civilian use, none whatsoever.
+- [10:30.640] So, they have an opportunity here to agree to something
+- [10:33.180] that will make it clear that they're not interested in nu --
+- [10:35.700] one thing is to say, we don't want a nuclear weapon,
+- [10:37.650] and another thing is to do the things
+- [10:38.850] that prove you don't want a nuclear weapon.
+- [10:40.210] By the way, if what Iran wants is a civilian nuclear program
+- [10:43.900] for power plants and stuff like that,
+- [10:45.570] there are a lot of countries in the world that have that,
+- [10:47.570] and they don't enrich,
+- [10:49.090] they import the enriched material.
+- [10:51.950] You know, they could have that if that's what they wanted,
+- [10:53.800] but they're not acting like that's what they wanted.
+- [10:55.380] They're acting like they want a military nuclear program.
+- [10:59.050] That's unacceptable.
+- [11:00.250] So, that's the process we're engaged in now, to create --
+- [11:03.330] that's the object of this diplomacy,
+- [11:05.640] is to come up with some level of understanding
+- [11:07.530] about what are the topics that they've agreed to negotiate on.
+- [11:10.430] We don't have to have the actual agreement written out.
+- [11:12.180] And one day this is highly complex and highly technical.
+- [11:14.880] But we have to have a diplomatic solution
+- [11:16.840] that is very clear about the topics
+- [11:19.340] that they are willing to negotiate on,
+- [11:20.950] and the extent and the concessions
+- [11:22.210] they're willing to make at the front end
+- [11:23.570] in order to make those talks worthwhile.
+- [11:25.220] That's what Steve and Jarrett
+- [11:26.450] and the whole team is working on,
+- [11:27.970] and I hope to have good news on it.
+- [11:29.280] That's the outcome we would prefer.
+- [11:31.170] That's the outcome we would have preferred a year ago.
+- [11:33.470] That's the outcome I think most of us
+- [11:34.790] would have preferred a long time ago.
+- [11:36.680] But that's not the option they've given us,
+- [11:38.200] given their activity. All right, can I --
+- [11:40.350] there's no way I can figure out who to call on.
+- [11:41.990] I'm just going to press right in the middle.
+- [11:43.340] Right there, you right there? Yeah, in the back row.
+- [11:47.760] I'll go to you next. All right, go ahead.
+- [11:51.020] The Press: Thank you, Secretary Rubio.
+- [11:52.250] Going right, welcome to the White House.
+- [11:53.830] Secretary Rubio: What's that?
+- [11:55.050] The Press: Are you talking to me, sir?
+- [11:56.270] Secretary Rubio: Yeah, to you. Yes, sir.
+- [11:57.520] The Press: Thank you. I have two questions
+- [11:58.980] on two separate issues that come under --
+- [12:00.990] Secretary Rubio: Do they get two questions for these?
+- [12:02.610] There's a lot of people in here.
+- [12:03.930] The Press: It's all under your umbrella.
+- [12:05.310] Secretary Rubio: All right. Well, you can ask me
+- [12:06.820] two questions, I'll give you one answer.
+- [12:08.360] The Press: Thank you very much.
+- [12:09.590] Secretary Rubio: And I'll pick the one I like better.
+- [12:10.970] The Press: Thank you, Mr. Secretary.
+- [12:12.370] The first has to do with the blockade.
+- [12:14.340] There are lawmakers from both parties
+- [12:16.180] who claim the blockade is an act of war.
+- [12:19.840] What do you say to that?
+- [12:21.180] And my second question has to do with the fuel embargo of Cuba.
+- [12:26.390] How long, Mr. Secretary, will that last?
+- [12:28.120] Secretary Rubio: OK, two things.
+- [12:29.360] All right, good, I'll answer both your questions
+- [12:30.870] because I like the second one, too.
+- [12:32.370] The first one on the blockade,
+- [12:33.680] and so why do we have a blockade?
+- [12:35.060] We have a blockade because they shut down the straits.
+- [12:37.900] So, I don't know which members of Congress you're talking to,
+- [12:39.800] but here's what I would ask them.
+- [12:41.090] I would ask everybody here, it's very simple --
+- [12:43.190] these guys have shut down the Straits of Hormuz.
+- [12:44.990] This is what Iran is saying,
+- [12:46.250] we will shut down the Straits, no one can go through.
+- [12:48.800] No country in the world can go through
+- [12:50.160] unless we allow you to go through
+- [12:51.600] and you have to pay us, but our ships can go through,
+- [12:54.410] meaning the Iranian ships, as much as they want.
+- [12:56.560] That's crazy, who would agree to that?
+- [12:58.260] So, how are we going to have a situation
+- [12:59.620] where they get to close the straits to everybody,
+- [13:01.670] and the only people who are allowed to go through there
+- [13:03.420] are 100 percent without paying anything are the Iranians?
+- [13:06.230] If you do that, they'll keep the Straits closed forever.
+- [13:08.990] They're trying to make this some new normal.
+- [13:10.910] OK, under no circumstances can we ever allow them
+- [13:13.270] to normalize the fact that they get to blow up commercial ships
+- [13:16.550] and put mines in the water. So, the response to that
+- [13:19.080] is we're going to blockade your ships.
+- [13:20.750] If everyone's ships are not getting out,
+- [13:22.430] your ships are not getting out either.
+- [13:24.180] That's not an act of war; that's a defensive measure.
+- [13:26.070] It's a counter to what they have decided to do.
+- [13:28.510] You know what is an act of war? Putting mines in the water.
+- [13:31.360] Why don't the members of Congress,
+- [13:32.760] whoever it is who's complaining about it,
+- [13:34.300] they should be all over that.
+- [13:35.520] These guys put mines in the water.
+- [13:37.700] Mining in the water is illegal, period,
+- [13:40.260] under any circumstances and they've done it.
+- [13:42.730] This is crazy stuff, but this is what they've done.
+- [13:44.870] On Cuba -- oil blockade on Cuba.
+- [13:47.950] There's no oil blockade on Cuba per se.
+- [13:49.920] Here's what's happening with Cuba, OK?
+- [13:51.330] Cuba used to get free oil from Venezuela,
+- [13:53.650] used to give them a bunch of free oil.
+- [13:55.330] They would take like 60 percent of that oil
+- [13:57.260] and resell it for cash.
+- [13:58.520] It wouldn't even go to benefit the people.
+- [14:00.360] So, the only blockade that's happened
+- [14:01.730] is the Cubans have decided --
+- [14:03.170] I mean, the Venezuelans have decided
+- [14:04.370] we're not giving you free oil anymore.
+- [14:06.280] And you can only imagine nowadays,
+- [14:07.770] the way oil prices are, no one's giving away free oil,
+- [14:10.550] much less to a failed regime.
+- [14:12.200] So, the problem of Cuba is worse, OK?
+- [14:14.980] Their economic model doesn't work, doesn't work,
+- [14:18.180] and the people who are in charge can't fix it.
+- [14:20.320] And the reason that they can't fix it is not just
+- [14:21.920] because they're communists, that's bad enough,
+- [14:23.400] but they're incompetent communists.
+- [14:25.370] The only thing worse than a communist is an incompetent one.
+- [14:27.750] And that's what --
+- [14:29.090] so, incompetent communists run that country.
+- [14:30.570] They don't know how to fix it, they really don't.
+- [14:32.240] And we have, 90 miles from our shores,
+- [14:33.950] a failed state that also happens to be friendly territory
+- [14:36.850] for some of our adversaries.
+- [14:38.300] So, it's an unacceptable status quo,
+- [14:40.390] and we'll be addressing it, but not today.
+- [14:42.110] OK, all right, let's go to the front, right there.
+- [14:45.430] The Press: Secretary Rubio,
+- [14:46.720] you are going to the Vatican to meet with the Pope.
+- [14:48.810] Is this an attempt to smooth things over with the Pope,
+- [14:52.990] given the rhetoric between President Trump and Pope Leo?
+- [14:54.870] Secretary Rubio: No, I mean, it's a trip
+- [14:56.080] we had planned from before,
+- [14:57.340] and obviously we had some stuff that happened.
+- [14:58.890] And no, look, there's a lot to talk about with the Vatican.
+- [15:01.290] I'll give you one example.
+- [15:02.490] The Pope just returned from a trip to Africa,
+- [15:04.520] where the church is growing very vibrantly,
+- [15:06.440] and we have shared concerns about religious freedom --
+- [15:09.030] religious freedom in different parts of the world.
+- [15:12.080] We'd love to talk to them about that.
+- [15:14.150] The topic of Cuba, you know,
+- [15:15.390] we gave Cuba $6 million of humanitarian aid,
+- [15:17.910] but obviously they won't let us distribute it.
+- [15:19.450] We distributed it through the church.
+- [15:21.130] We'd like to do more.
+- [15:22.410] Uh, we were willing to give more humanitarian aid to Cuba,
+- [15:24.980] by the way, distribute it through the church
+- [15:26.500] but the Cuban regime has to allow us to do it.
+- [15:28.320] They won't allow us to give their own people
+- [15:30.360] more humanitarian aid,
+- [15:31.750] and we're willing to do it through the church.
+- [15:33.160] So there's a lot to talk about.
+- [15:34.420] The Press: And the president recently said
+- [15:35.910] that the Pope is endangering a lot of Catholics
+- [15:38.860] as a result of his rhetoric around the Iran war.
+- [15:40.910] Is that a sentiment you agree with?
+- [15:42.260] Secretary Rubio: Well, I don't think
+- [15:43.470] that's an accurate description of what he said.
+- [15:44.710] I think what the president basically said
+- [15:46.070] is that Iran can't have a nuclear weapon
+- [15:47.630] because they would use it against places
+- [15:49.180] that have a lot of Catholics and Christians
+- [15:50.590] and others for that matter.
+- [15:51.800] It goes back to the central point --
+- [15:53.090] I think the president, without trying to speak for him,
+- [15:55.180] but I think I can characterize it this way.
+- [15:57.670] He doesn't understand why anybody --
+- [15:59.360] leave aside the Pope. The president and I,
+- [16:01.880] for that matter, I think most people --
+- [16:03.210] I cannot understand why anyone would think
+- [16:05.240] that it's a good idea for Iran to ever have a nuclear weapon.
+- [16:08.070] Look what they're doing with the straits right now.
+- [16:09.730] They're holding the whole world hostage.
+- [16:11.420] They have these sailors, you know, on commercial ships
+- [16:13.770] that are going to starve to death out.
+- [16:15.280] There they don't care. They don't care that
+- [16:17.180] this is melting down the economies around the world,
+- [16:20.020] even of their own allies.
+- [16:21.580] This is what they're doing with the straits;
+- [16:23.070] what do you think they would do if they had a nuclear weapon?
+- [16:25.370] They would hold the world hostage
+- [16:26.640] with that nuclear weapon. That's what they would do.
+- [16:28.570] They would do exactly to the world with a nuclear weapon
+- [16:30.540] what they're doing now with the straits.
+- [16:32.150] And I think the president's point is how anyone can not see
+- [16:34.810] that as an unacceptable outcome
+- [16:36.370] and an unacceptable risk is beyond him.
+- [16:38.560] It's puzzling and someone has to do something about it.
+- [16:41.390] The difference between this president
+- [16:42.710] and like the six presidents that preceded him,
+- [16:44.800] were that he's the only one
+- [16:46.000] that's actually been willing to do something about it.
+- [16:47.630] Everyone says Iran can't have a nuclear weapon,
+- [16:49.450] but you got to do something about it at some point,
+- [16:51.560] and he's been willing to address that threat.
+- [16:53.470] And that's what he promised he would do when he got elected,
+- [16:55.270] by the way, is address threats like this.
+- [16:58.660] Right there. Yeah, you.
+- [17:00.150] I wish I knew your names, guys. I apologize.
+- [17:01.770] The Press: Thank you, Mr. Secretary.
+- [17:03.000] Secretary Rubio: Can you put name tags on?
+- [17:05.360] That would help. OK.
+- [17:06.560] Who are you with? Who are you with?
+- [17:08.560] The Press: I'm with (Inaudible) I'm with Media Network.
+- [17:10.090] Secretary Rubio: OK.
+- [17:11.440] The Press: Mr. Secretary, the president has said multiple
+- [17:13.520] times that weapons were provided to the Kurdish group
+- [17:15.920] is to pass on the Iranian people.
+- [17:18.030] However, Kurdish political parties
+- [17:19.520] and the regional government
+- [17:20.970] says they have not received such weapons,
+- [17:23.130] even some claim these weapons remain in the US base
+- [17:25.840] in the region.
+- [17:27.080] Can you clarify who those weapons were given to
+- [17:30.010] and whether you intend to retrieve them
+- [17:32.070] or still want to pass to the Iranian people?
+- [17:34.460] Secretary Rubio: Yeah, look, ultimately,
+- [17:35.660] what the president is expressing,
+- [17:36.990] and I think has repeatedly,
+- [17:38.200] is he wished the Iranian people had --
+- [17:39.780] you know, look, he's heartbroken by these images.
+- [17:42.170] You think about it, you're an Iranian, OK?
+- [17:44.000] You're unhappy that your economy doesn't work for you.
+- [17:46.440] You don't have freedom.
+- [17:47.680] You don't have an opportunity to express yourself.
+- [17:49.710] You know, you've got friends that have been shot in the head
+- [17:51.550] because they're out protesting.
+- [17:53.260] And he just -- it's heartbreaking to him to see
+- [17:55.340] that these people are abused in this way
+- [17:56.940] and have no measures to take against their own government
+- [17:59.050] as a result of it. By the way, this goes back,
+- [18:01.110] if you guys remember the protests in 2009,
+- [18:03.320] where they slaughtered people in the street.
+- [18:05.490] This is a vicious regime, guys. OK?
+- [18:07.850] These are people that hang people from cranes
+- [18:09.860] in the town square so everyone can see.
+- [18:11.850] They continue these executions of people and have done --
+- [18:14.880] continue to do so for --
+- [18:16.090] for over a decade and a half now.
+- [18:18.080] And so I think what the president is expressing
+- [18:20.090] is the desire that he wishes the Iranian people
+- [18:23.380] had an ability to fight back against some of these things
+- [18:25.300] that are happening to them.
+- [18:26.560] And I would view that as distinct and separate
+- [18:28.980] from the specifics of this operation
+- [18:30.960] that was ongoing before it concluded,
+- [18:33.190] and certainly different from the operation that's going on now.
+- [18:36.040] Right there in the -- no, right there in the blue.
+- [18:40.560] No, no, no. Right behind you. Not Colombia. Right there.
+- [18:43.190] Yes, ma'am. The Press: Thank you.
+- [18:44.480] Mr. Secretary, thank you so much.
+- [18:46.100] On Lebanon, are we in a ceasefire or less fire?
+- [18:49.850] And the second question, do you think you would be able
+- [18:54.110] to achieve an agreement between Lebanon and Israel
+- [18:57.940] without risking a civil war in Lebanon?
+- [19:00.060] What are you doing to risk -- what are you doing to --
+- [19:02.580] Secretary Rubio: No, I got it. I got the gist of your question.
+- [19:04.280] So look, here's the challenge with Lebanon, OK?
+- [19:07.240] There's no problem between the Lebanese government
+- [19:08.930] and the Israeli government.
+- [19:10.170] Israel doesn't claim any land in Lebanon belongs to them.
+- [19:12.890] And by and large, I think a peace deal between
+- [19:15.050] Lebanon and Israel is eminently achievable and should be.
+- [19:18.070] GThe problem with Israel
+- [19:19.460] and Lebanon is not Israel or Lebanon, it's Hezbollah.
+- [19:22.220] Hezbollah operates from inside of Lebanese territory.
+- [19:25.050] They terrorize and attack Israelis,
+- [19:27.610] but they also are inflicting tremendous damage
+- [19:29.150] on the Lebanese people.
+- [19:30.410] The reason why Lebanon gets attacked by Israel
+- [19:33.240] is because of Hezbollah,
+- [19:34.640] because Hezbollah is hiding in some house,
+- [19:36.520] launching rockets against Israelis, and then they get hit.
+- [19:39.310] So what you're seeing now is Israeli responses
+- [19:42.420] to either attacks or perceived threats.
+- [19:44.230] And this is going to be -- this is not new.
+- [19:45.960] This has been going on for a very long time.
+- [19:47.690] What is our hope?
+- [19:48.910] Our hope is to engage the Lebanese and Israeli
+- [19:51.280] governments under our mediation at the table to achieve this,
+- [19:55.620] and that is having Lebanese armed forces
+- [19:58.520] and Lebanese government, not just with the willingness,
+- [20:00.450] but with the capability to begin to challenge Hezbollah
+- [20:03.690] and disarm them,
+- [20:04.980] because the Lebanese people are also victims of Hezbollah.
+- [20:08.270] And by the way, on the topic of Hezbollah and Lebanon,
+- [20:10.980] who is behind Hezbollah?
+- [20:12.540] Why do they exist? They're an agent of Iran.
+- [20:15.040] If you go through that Middle East
+- [20:16.290] and you identify every problem,
+- [20:17.680] Hamas, Hezbollah, to some extent,
+- [20:19.390] the Houthis, obviously, and others,
+- [20:21.470] behind every one of these groups is Tehran.
+- [20:24.420] So apart from the nuclear weapons,
+- [20:25.750] apart from all these other things,
+- [20:27.050] these guys are behind all the bad actors.
+- [20:28.890] Hezbollah is a -- is a wing.
+- [20:30.460] It's an extension of Iranian desire
+- [20:32.700] to destabilize the region.
+- [20:33.930] So we're very committed to this process.
+- [20:35.240] It's not going to be easy.
+- [20:36.490] You're asking me a complex question.
+- [20:37.760] You know this has been going on for a very long time.
+- [20:39.570] It's not going to be easy.
+- [20:40.810] We're going to do everything we can to make sure
+- [20:42.310] that both sides continue to talk,
+- [20:43.950] so that progress can be made
+- [20:45.730] on some sort of permanent cease fire
+- [20:48.100] that isn't constantly spoiled by Hezbollah
+- [20:50.570] and by Hezbollah violence. Right in the middle.
+- [20:52.890] The Press: Thank you, sir.
+- [20:54.100] Secretary Rubio: I'm just -- I'm winging it, guys.
+- [20:55.300] OK? Right there. Yes, sir.
+- [20:56.510] The Press: You mentioned the two US ships
+- [20:57.880] that safely crossed the Strait of Hormuz.
+- [20:59.940] Are other ships being told
+- [21:01.280] it's safer to get back to regular levels,
+- [21:03.470] or are we still going to see limits in place
+- [21:05.190] for the foreseeable future?
+- [21:06.450] Secretary Rubio: Well, for obvious reasons,
+- [21:07.680] I'm not going to broadcast who we're talking to
+- [21:09.210] or who we're telling them to move.
+- [21:10.460] I mean, we want these operations to be safe and I think as --
+- [21:13.160] as it unfolds and ships get through,
+- [21:14.650] we'll make those announcements after the fact,
+- [21:16.620] just for operational security purposes.
+- [21:18.630] But the goal here is pretty simple,
+- [21:20.140] establish a zone of transit that is protected by a bubble,
+- [21:23.970] the United States, both naval and air assets,
+- [21:26.510] and then allow ships who want to move,
+- [21:28.320] to move through there and get to market
+- [21:30.000] to begin to increase confidence in the ability to do so.
+- [21:32.810] That doesn't happen in 12 hours.
+- [21:34.150] It takes time to set up that bubble and gain that confidence,
+- [21:36.790] but that's the goal. We have been in touch.
+- [21:38.250] We've been in touch, I don't know,
+- [21:39.540] with a bunch of different liners about moving,
+- [21:43.190] and we're hoping to continue to improve the security situation
+- [21:46.440] and we'll start to see some of that movement.
+- [21:48.220] And we'll announce it as it happens after the fact.
+- [21:50.100] We're not going to be like broadcasting, hey,
+- [21:51.720] tomorrow at 12:00, ship X is going to be coming through,
+- [21:53.880] for obvious reasons, because that degrades the security.
+- [21:56.360] But we feel confident
+- [21:57.600] we're going to be able to achieve that.
+- [21:58.860] Look, it's not going to solve the whole straits problem.
+- [22:00.590] It's going to solve a lot of it,
+- [22:01.950] but it's important to challenge what Iran is doing now.
+- [22:05.040] Guys, again, I want to -- if you take anything away today,
+- [22:07.630] and I can't tell you what to write, but we --
+- [22:09.640] Iran cannot be allowed to normalize
+- [22:11.210] this control of the straits.
+- [22:12.500] It's completely unlawful, illegal.
+- [22:14.700] Uh, it's outrageous.
+- [22:16.270] And every country in the world should be joining us
+- [22:18.040] in condemning it and doing something about it
+- [22:19.750] but the United States has stepped up
+- [22:21.100] and is trying to do something about it.
+- [22:23.030] Right there (Inaudible)
+- [22:24.250] The Press: Regarding Colombia, Mr. Secretary,
+- [22:25.630] we've had several tourists --
+- [22:26.850] Secretary Rubio: Hold on. I'm sorry.
+- [22:28.070] We'll see if I get to Colombia today.
+- [22:29.310] Go ahead. You guys have an election.
+- [22:30.550] Why don't you wait till after the election?
+- [22:31.750] Go ahead. Yes, sir.
+- [22:32.960] The Press: (Inaudible) with Daily Mail.
+- [22:34.170] I was curious about your meeting with SOUTHCOM earlier.
+- [22:36.280] There was a picture, a map of Cuba behind you
+- [22:39.140] what did you discuss with SOUTHCOM about Cuba?
+- [22:41.420] And do you have any updates on --
+- [22:42.650] Secretary Rubio: Oh, I'm not going to tell you
+- [22:43.930] what I discussed with SOUTHCOM.
+- [22:45.670] The Press: But it had to do something with Cuba --
+- [22:47.100] Secretary Rubio: No, I was -- well, I mean,
+- [22:48.300] Cuba's in SOUTHCOM, you know? It's the closest part.
+- [22:50.470] And so the second point, I was there --
+- [22:52.430] our ambassadors were in from the whole Western Hemisphere.
+- [22:54.980] I was addressing them, you know,
+- [22:56.460] meeting the general who just took command of SOUTHCOM
+- [22:58.540] and there happened to be a map of Cuba.
+- [22:59.920] And I said, it'd be good
+- [23:01.120] if we took a picture in front of that map,
+- [23:02.510] because it's like the closest thing in SOUTHCOM
+- [23:04.190] to the United States, so there it is.
+- [23:06.320] Um, we have maps of other countries, but -- but -- huh?
+- [23:10.400] The Press: What about Greenland? Any update on Greenland?
+- [23:12.530] Secretary Rubio: No, they didn't have that map there.
+- [23:14.010] They only had (inaudible).
+- [23:17.340] In the red. Right there, in the red.
+- [23:18.830] The Press: In the red. OK.
+- [23:20.060] Christina Telemundo, Mr. Secretary.
+- [23:21.340] Can I ask you in Spanish, or can I ask in --
+- [23:22.800] Secretary Rubio: Yeah, you can answer in Spanish.
+- [23:24.060] You can ask me.
+- [23:25.260] They'll have to translate for them, what you ask me.
+- [23:26.640] The Press: Well, I'll say it in English.
+- [23:27.900] Secretary Rubio: OK.
+- [23:28.020] The Press: And if you can answer in both languages.
+- [23:29.810] Secretary Rubio: Today, I take a web page
+- [23:32.150] of the State Department,
+- [23:33.440] and there's still a $25 million bounty on Diosdado Cabello,
+- [23:37.220] the secretary of interior,
+- [23:39.140] for drug trafficking and narcoterrorism.
+- [23:42.160] I was wondering if that has been put on hold
+- [23:44.330] or if you're negotiating with President Delcy Rodriguez
+- [23:47.580] to turn him over?
+- [23:49.670] Yeah, I don't have any updates for you on that.
+- [23:51.230] The website is what it is and that's where it stands.
+- [23:53.240] That policy hasn't changed.
+- [23:54.760] But, guys, I mean, let's be mature here a little bit.
+- [23:56.660] I'm not going to tell you about what we're talking about
+- [23:58.390] with the leader of these countries.
+- [23:59.660] The Press: El departamento de estado sigue
+- [24:01.300] considerando a diosdado Cabello un arco terrorista
+- [24:04.690] y un narcotraficantes como dicen
+- [24:06.580] la página del departamento de estado.
+- [24:08.570] Secretary Rubio: La política de Estados Unidos
+- [24:09.850] en este tema no ha cambiado
+- [24:11.050] y cuando cambio te dejaremos saber.
+- [24:12.740] The politics of the United States --
+- [24:14.210] the policy of the United States on that topic hasn't changed.
+- [24:16.160] You know, when it does, obviously, we'll inform you,
+- [24:17.960] but I don't have any news for you on that today.
+- [24:20.400] Right there in the green. I'll get to you guys.
+- [24:23.620] Are you guys all the TV people?
+- [24:26.650] All right. Go ahead. I'm sorry. Go.
+- [24:27.970] Unidentified: (Inaudible) help.
+- [24:29.210] Secretary Rubio: I'm learning. I -- they gave me a little map.
+- [24:30.560] I don't know where I put it, of the people here.
+- [24:32.430] Some of you had, like, red Xs.
+- [24:33.680] I'm kidding. No, that's not true. Go ahead.
+- [24:36.120] The Press: Thank you, Mr. Secretary.
+- [24:37.360] The average price of gas in the country right now is $4.50.
+- [24:39.800] Secretary Rubio: Yeah.
+- [24:41.090] The Press: Do you have a thought on how long Americans
+- [24:43.660] are supposed to kind of accept this?
+- [24:45.150] Do you think it will affect
+- [24:46.390] Republicans' majorities in the midterms?
+- [24:47.760] Secretary Rubio: Well, I don't --
+- [24:48.970] I'm not going to speculate on the politics of it.
+- [24:50.560] You can tell, I mean, look,
+- [24:51.760] it's obviously being driven by global events.
+- [24:54.100] That -- that was true during the Russia Ukraine war as well,
+- [24:56.330] where you saw that come up.
+- [24:57.580] It's one -- look, we don't benefit from the straits
+- [24:59.270] as much as other countries.
+- [25:00.500] I don't know if you've seen what the gas prices are like
+- [25:02.300] in other parts of the world that are really suffering big time.
+- [25:05.220] Um, so we're very fortunate that the United States,
+- [25:07.140] I believe right now is like the world's
+- [25:08.580] largest net exporter of oil
+- [25:10.660] and natural gas as a result, not because of this work,
+- [25:12.640] but because we have this capacity.
+- [25:14.000] So, we've been insulated to some degree;
+- [25:15.520] we're obviously still vulnerable to some extent
+- [25:17.420] to global prices and so. But in the end,
+- [25:20.030] I mean, we're more insulated than other countries,
+- [25:21.630] even though that's not welcome news to Americans
+- [25:23.620] that are paying more at the pump, no doubt about it.
+- [25:26.790] And it certainly is one of the circumstances of it.
+- [25:28.510] There are people that were predicting
+- [25:29.800] it would be much higher at this point,
+- [25:31.100] but we're not taking that for granted.
+- [25:32.650] Suffice it to say that this is -- think about it this way --
+- [25:35.810] everybody needs to think about it this way.
+- [25:37.480] If Iran had a nuclear weapon
+- [25:39.550] and they decided to close the Straits
+- [25:41.000] and make our gas prices like $9 a gallon or $8 a gallon,
+- [25:44.280] we wouldn't be able to do anything about it
+- [25:45.710] because they have a nuclear weapon.
+- [25:48.130] A nuclear armed Iran could do whatever the hell
+- [25:50.230] they want with the Straits,
+- [25:51.500] and there's nothing anyone would be able to do about it.
+- [25:54.500] And that's one of the many reasons,
+- [25:56.040] apart from like the massive loss of life in a nuclear strike,
+- [25:59.170] why Iran can never have a nuclear weapon.
+- [26:01.390] I mean, so this is an example of if they had a nuclear weapon,
+- [26:03.730] they closed the Straits and they would tell the world,
+- [26:05.470] what are you going to do about it?
+- [26:06.740] We have a nuclear weapon; we can attack you with it.
+- [26:08.920] That's the world none of us want to leave behind.
+- [26:10.640] It won't happen under this president's watch,
+- [26:12.500] but some future president and future Americans
+- [26:14.810] will have to deal with this.
+- [26:16.090] So, it's just one more example of why these guys
+- [26:17.850] can never be allowed to have a nuclear weapon.
+- [26:21.470] Right there in the black, right? Yes, ma'am.
+- [26:25.990] Right there, you -- oh, you both are wearing black, she's closer.
+- [26:29.230] No, you don't have black; you have blue on.
+- [26:30.830] I'm colorblind, but I know blue and black.
+- [26:32.580] Right there, yes, ma'am.
+- [26:33.820] No, no, you -- the first one I called on.
+- [26:35.310] The Press: Thank you.
+- [26:36.510] Secretary Rubio: Thank you. This is chaos, guys. Go ahead.
+- [26:39.610] The Press: Welcome to the White House.
+- [26:41.450] You've long been a leading voice on human rights in China.
+- [26:44.470] And so, including religious persecution
+- [26:46.430] and forced organ harvesting.
+- [26:47.710] So, President Trump prepares to meet Xi Jinping next week.
+- [26:51.340] Do you expect human rights concerns
+- [26:52.950] to be on the table or (inaudible).
+- [26:54.190] Secretary Rubio: Well, we always raise those issues
+- [26:55.400] and they remain true.
+- [26:56.640] And I think we've proven in some cases
+- [26:58.120] it's most effective to raise them in the appropriate setting.
+- [27:00.330] But we always raise those issues that are important to us,
+- [27:02.160] among -- with others, of course.
+- [27:03.650] But those issues remain prominent in our view
+- [27:05.740] and in our conversation about these things.
+- [27:08.520] And we'll continue to raise them in the appropriate forums.
+- [27:11.570] All right, let's get to the front,
+- [27:13.120] these guys are going to get mad. Go ahead, I'm sorry.
+- [27:14.920] The Press: Thank you.
+- [27:16.130] (Inaudible), the Associated Press.
+- [27:17.480] You mentioned earlier that some countries
+- [27:19.090] have privately and publicly
+- [27:20.310] indicated their willingness to help with Project Freedom.
+- [27:22.370] Can you say how many have reached out to the US
+- [27:25.550] with the offers of help and what kind of capabilities?
+- [27:27.710] Secretary Rubio: Well, I mean --
+- [27:29.020] thank you for your question, that's a good question.
+- [27:30.620] I mean, multiple countries have said
+- [27:32.280] we've got to do something about it and fix it.
+- [27:33.920] The Press: Is it like dozens or single digits or more than 100.
+- [27:36.590] Secretary Rubio: I don't know, I don't put a number on it.
+- [27:38.080] I would just tell you that --
+- [27:39.320] here's what I would say about it.
+- [27:40.900] The capabilities is the issue, OK?
+- [27:42.610] A lot of countries would love to do something about it,
+- [27:44.540] they don't have a Navy, right?
+- [27:45.980] Or they can't get there in time or they can't --
+- [27:47.600] others are less --
+- [27:49.110] that some unfortunately that do have a Navy are saying,
+- [27:51.770] oh, we'll be involved, but we'll be involved after it's over.
+- [27:54.200] Well, after it's over, it's kind of like it doesn't make sense.
+- [27:57.790] So, we'd like to have it now.
+- [27:59.630] There may be some utility in a post closure mission,
+- [28:04.250] I'm not downplaying that, but I think that's been the challenge.
+- [28:07.140] But there are other ways they can help,
+- [28:08.560] unique ways that they can help.
+- [28:10.020] And I don't want to get into who these countries
+- [28:11.530] are for obvious reasons,
+- [28:12.870] because they are prepared to help us in certain ways,
+- [28:15.530] but maybe don't want that publicly disclosed
+- [28:17.630] for no other reason than it impacted foreign policy,
+- [28:19.880] it could have some domestic ramifications.
+- [28:21.870] But ultimately, I don't want to mislead you.
+- [28:23.980] The primary responsibility for this Project Freedom
+- [28:26.320] is on the United States,
+- [28:27.610] because we're the only country that can project power
+- [28:29.470] in that part of the world the way we're doing now.
+- [28:31.300] We're the only ones that can do it,
+- [28:32.770] and we're going to do it as a favor to the world.
+- [28:34.750] Understand this -- this is a favor to the world
+- [28:37.390] because it's their ships that are stranded,
+- [28:39.100] it's their fuel supplies that are stranded.
+- [28:40.510] By the way, it's their humanitarian --
+- [28:42.090] there's humanitarian aid destined for different countries
+- [28:44.680] in the world that's stranded in the Persian Gulf right now.
+- [28:47.770] It's the fertilizer that they need for their food
+- [28:50.250] and crops that's stranded in the Persian,
+- [28:51.800] not our fertilizer, their fertilizer.
+- [28:53.580] So, we want to be helpful
+- [28:54.870] and that's why the president stepped forward,
+- [28:56.450] because we're the only ones that can.
+- [28:57.780] Frankly, we're the only ones that can.
+- [29:00.580] The Press: Mr. Secretary, on the rising oil and gas prices,
+- [29:02.960] the president has said that this is a small price to pay
+- [29:05.030] for getting rid of a nuclear weapon.
+- [29:06.800] But 10 weeks in, are we any closer
+- [29:08.970] to getting rid of Iran's nuclear material?
+- [29:10.590] Secretary Rubio: Yeah, but look,
+- [29:11.820] here's the way to think about Iran,
+- [29:13.480] and this is what I described at the very beginning of this.
+- [29:15.540] What was Iran's plan?
+- [29:16.760] You have to understand what their plan was.
+- [29:18.310] Their plan was they were going to build this conventional
+- [29:20.080] shield where they would have so many thousands of missiles
+- [29:22.140] and drones and rockets that they couldn't be attacked.
+- [29:25.060] And behind that conventional shield
+- [29:26.620] that they were trying to build, they would then break out
+- [29:28.770] and do whatever they wanted with their nuclear program.
+- [29:30.870] They no longer have that conventional shield, OK?
+- [29:32.850] We told you guys from the very beginning,
+- [29:35.360] and we're very consistent in this messaging,
+- [29:37.590] the operation that has concluded was going to destroy their Navy.
+- [29:40.900] They have no Navy left, they don't, not a Navy.
+- [29:43.080] They have small boats and Boston whalers,
+- [29:44.690] but they don't have a Navy left. They don't have an Air Force.
+- [29:47.480] I challenge you, when is the last time you read or heard
+- [29:49.790] about an Iranian jet flying anywhere?
+- [29:51.910] They don't have an Air Force.
+- [29:53.470] Their missile launching capability
+- [29:55.270] has been substantially degraded.
+- [29:56.850] And their industrial base, their defense industrial base,
+- [29:59.400] has been severely, severely damaged.
+- [30:01.410] So, their ability to build a shield behind
+- [30:03.910] which they could hide their nuclear program was wiped out.
+- [30:06.950] That's a very substantial achievement
+- [30:08.750] and that was the purpose of this operation from day one.
+- [30:10.690] The Press: But if you don't take their nuclear material
+- [30:12.150] in order for this war to end.
+- [30:13.380] Secretary Rubio: Well, that's one of the topics
+- [30:14.600] that needs to be discussed. I don't know about --
+- [30:16.530] I think you're linking it. The operation is over.
+- [30:19.470] Epic Fury, the president notified Congress,
+- [30:21.750] we're done with that stage of it, OK?
+- [30:23.280] We're now on to this project of freedom.
+- [30:25.460] As far as the negotiation is concerned,
+- [30:27.290] I think the president's been clear
+- [30:28.710] that part of the negotiation process
+- [30:30.340] has to be not just the enrichment,
+- [30:32.200] but what happens to this material
+- [30:33.600] that's buried deep somewhere that they still have access to
+- [30:36.840] if they ever wanted to dig it out,
+- [30:38.230] that has to be addressed.
+- [30:39.440] And that's being addressed in the negotiation.
+- [30:41.530] I'm not going to go further
+- [30:42.730] on what progress has been made on that topic,
+- [30:44.490] because I don't want to endanger the negotiations.
+- [30:46.180] But suffice it to say that the president
+- [30:48.080] and this entire team is aware of the centrality of that question,
+- [30:51.490] and that will have to be addressed one way or the other.
+- [30:55.160] Right there. Right there yes, yes, thank you.
+- [30:58.220] The Press: Thank you, Mr. Secretary.
+- [30:59.520] I have another two-part question for you.
+- [31:01.160] Secretary Rubio: OK.
+- [31:02.360] The Press: First, are you taking part in those negotiations
+- [31:04.750] that you just detailed there?
+- [31:06.060] And then secondly, President Trump has made it clear
+- [31:08.670] that the US doesn't rely on the Strait of Hormuz.
+- [31:11.800] So, why should Americans even care about Project Freedom
+- [31:15.730] and these shipping tankers going through?
+- [31:18.570] Secretary Rubio: Well, I think on the second point
+- [31:19.890] is the one I want to address first,
+- [31:21.180] and that is why should Americans care
+- [31:22.530] and why it matters to us?
+- [31:23.910] Because ultimately these things have an impact
+- [31:25.560] on the global economy, which ultimately has an impact
+- [31:27.720] on our economy in the long term, that's number one.
+- [31:30.030] Number two, because if we live in a world
+- [31:32.490] where a rogue state like this Iranian regime
+- [31:35.450] is allowed to claim, as a new normal,
+- [31:37.600] control over an international shipping lane,
+- [31:39.640] it will not be long before you see
+- [31:41.110] that happen in multiple shipping lanes around the world.
+- [31:43.670] I can identify for you six or seven --
+- [31:46.200] six or seven vital shipping lanes around the world
+- [31:49.610] that some countries can decide, guess what?
+- [31:51.510] If Iran was able to do it, we're going to do it too.
+- [31:53.810] We're now going to start charging tolls,
+- [31:55.670] and it'll get closer and closer to us.
+- [31:57.080] That's unacceptable. We cannot live in a world --
+- [31:59.470] there's a lot of time and energy been invested behind the idea
+- [32:02.930] that international waters are free for the free flow of goods.
+- [32:05.730] The stuff we make in this country and export
+- [32:08.090] has to go through international shipping lanes.
+- [32:10.060] And for us to live in a world where a country can decide now
+- [32:13.170] we own the international shipping lane
+- [32:15.070] and you have to pay us if you want to use it,
+- [32:16.840] that is a normal that we will never be able to accept
+- [32:18.910] and that's what the Iranians are trying to get us to do.
+- [32:20.860] So, we're doing two things about it,
+- [32:22.120] and we haven't talked about the second one enough.
+- [32:24.270] The second thing we're doing is we're going to the UN.
+- [32:26.370] Everybody loves the UN, right?
+- [32:27.760] We're trying to go to the UN and we're saying, OK,
+- [32:29.880] countries of the world condemn this,
+- [32:32.020] say that it is wrong for you to put mines there,
+- [32:34.690] it is wrong for you to shoot at commercial vessels.
+- [32:37.900] Guys, that's what we're talking about here.
+- [32:39.570] These guys are bombing commercial vessels.
+- [32:41.360] They're not bombing naval vessels;
+- [32:42.610] they're bombing commercial tankers.
+- [32:45.180] It's just outrageous.
+- [32:46.640] That needs to stop and it needs to end.
+- [32:49.470] And if he doesn't, then the world should be diplomatically
+- [32:51.750] and economically isolating Iran as well.
+- [32:53.690] But if we live in a world
+- [32:54.980] where global shipping lanes can be taken over by countries,
+- [32:57.460] that will have a direct impact on Americans
+- [32:59.180] in the short and the long term,
+- [33:00.670] and we can't let it start by Iran doing it.
+- [33:03.630] And we're the only ones that can do anything about it.
+- [33:05.720] All right.
+- [33:06.960] Right there in the green, go ahead, go ahead, yes.
+- [33:11.660] The Press: Mr. Secretary,
+- [33:12.870] does the president intend to press
+- [33:14.750] Beijing on its Taiwan policy when he visits China next week?
+- [33:18.120] Secretary Rubio: I'm sure Taiwan will be a topic of conversation;
+- [33:20.110] it always is. As you know, we understand --
+- [33:23.260] the Chinese understand our position on that topic,
+- [33:25.230] we understand theirs.
+- [33:26.580] And I think both parties, again, without getting ahead of myself
+- [33:29.630] of what will happen in the talks,
+- [33:30.960] but I think both countries understand
+- [33:33.890] that it is neither one of our interests
+- [33:35.310] to see anything destabilize
+- [33:36.640] happen in that part of the world.
+- [33:38.200] We don't need any destabilizing events to occur
+- [33:41.050] with regards to Taiwan or anywhere in the Indo-Pacific.
+- [33:43.780] And I think that's to the mutual benefit
+- [33:45.480] of both the United States and the Chinese.
+- [33:50.770] The Press: Cara Castronuova from Lindell TV.
+- [33:52.230] Thank you for taking my question today.
+- [33:54.370] How does the State Department --
+- [33:55.620] Secretary Rubio: What happened? Why is everybody giggling?
+- [33:56.930] What happened?
+- [33:58.170] Oh, I'm sorry. Are they mean to you too?
+- [34:00.000] The Press: No, they're not mean.
+- [34:01.260] Secretary Rubio: Oh, OK. I'm sorry, go ahead.
+- [34:02.500] The Press: I don't think they are.
+- [34:03.740] I hope not, but I'm Cara from Lindell TV
+- [34:05.230] and nice to ask you a question today, sir.
+- [34:07.720] How does the State Department
+- [34:09.110] interpret the president's recent remarks
+- [34:10.950] when he said, quote, the Iranian people need to have guns
+- [34:13.740] and I think they are getting some guns, end quote?
+- [34:15.690] What did he mean?
+- [34:16.890] And do those comments relate to any ongoing
+- [34:18.970] or potential US actions like supplying those weapons?
+- [34:21.130] Secretary Rubio: Well, I think it goes back to the question
+- [34:22.550] I was asked a moment ago.
+- [34:23.820] I think the president thinks it's heartbreaking
+- [34:25.470] that the Iranian people are abused
+- [34:27.200] by this regime the way they are.
+- [34:28.840] In the end, I mean, this regime is not --
+- [34:30.490] guys, I know I've said this.
+- [34:31.890] I think I said this in my hearing
+- [34:33.230] before the Senate when I got confirmed.
+- [34:35.230] I don't know of any country in the world
+- [34:36.650] where there's a bigger difference between the people
+- [34:39.150] and the people who run the country, OK.
+- [34:40.840] This country is run by radical Shia clerics,
+- [34:43.890] and that's not what Iran and the Iranian people are.
+- [34:46.080] Now, they may be Shia,
+- [34:47.310] but they're not radicals and they're not clerics.
+- [34:48.960] And they just want a normal life and a regular life.
+- [34:51.220] And in many ways, it's a very cosmopolitan country
+- [34:53.750] with an incredible history, incredible history,
+- [34:56.310] an incredible legacy and the like.
+- [34:58.010] So, there's this huge divide between the people of Iran
+- [35:01.250] whom we sympathize with and who the president sympathize with,
+- [35:03.870] because they're the ones suffering.
+- [35:05.350] Look, the world is a victim of Iran, OK?
+- [35:07.110] The world is a victim of Iran because they're terrorists,
+- [35:09.100] because of what they're doing now in the straits.
+- [35:11.290] But the people of Iran are daily victims of the regime,
+- [35:13.970] and the president has deep sympathy
+- [35:15.290] for what they're going through.
+- [35:16.540] And I think he's just expressing that sympathy
+- [35:18.660] and that frustration that they don't have
+- [35:20.200] the ability to do more,
+- [35:21.460] to get rid of this regime that has crushed this country
+- [35:25.070] and isolated it from the world, which is a country
+- [35:26.880] that shouldn't be isolated from the world
+- [35:28.310] because its people are phenomenal.
+- [35:34.060] I wish I had like a dice. Go ahead. Yeah.
+- [35:37.440] No, no, no, no, no, no, right there,
+- [35:38.860] because I'm going to Italy.
+- [35:40.060] (Points and calls on reporter
+- [35:41.270] in Italian) OK.
+- [35:42.470] He's Italian. I know him.
+- [35:43.670] He used to cover Capitol Hill. You're Italian, right?
+- [35:45.540] The Press: Yes, I did, for many years.
+- [35:46.740] Secretary Rubio: For many years. OK.
+- [35:48.240] The Press: (Inaudible) thank you, Mr. Secretary.
+- [35:49.950] So I have two short questions for you.
+- [35:51.670] Secretary Rubio: Oh, damn, two questions.
+- [35:53.270] (Inaudible) people.
+- [35:54.550] The Press: First, as you --
+- [35:55.780] first, as you head to the Vatican and Italy,
+- [35:57.700] how do you view the Pope's global role
+- [35:59.880] amid current geopolitical shift
+- [36:02.390] and what are your objectives in Italy?
+- [36:04.750] Is this trip tied to recent remarks
+- [36:06.600] by the president suggesting Italy
+- [36:08.440] has not been supportive as expected?
+- [36:10.660] and the second one is about the Hezbollah and Lebanon.
+- [36:14.180] On a recent interview on Fox News, um, you had some --
+- [36:17.440] you raised some concern about stronger
+- [36:19.180] vetting within the Lebanese armed forces.
+- [36:21.860] Um, can you what do you make?
+- [36:23.180] Can you can you elaborate a little bit?
+- [36:24.490] Secretary Rubio: Yeah.
+- [36:25.730] I've answered the first one about the Vatican.
+- [36:27.100] Look, I mean, the Pope is obviously the vicar of Christ,
+- [36:29.080] is a Roman Catholic.
+- [36:30.340] You know, but he's also the head of --
+- [36:32.640] of a nation state, for -- you know,
+- [36:34.740] and it's an organization that has a presence
+- [36:37.310] in over 100-something countries around the world.
+- [36:39.730] And we engage with the Vatican quite a bit
+- [36:41.410] because they're present in many different places.
+- [36:43.070] I've already outlined to you two examples.
+- [36:44.920] We worked with the Catholic Church
+- [36:46.190] on the distribution of humanitarian aid in Cuba.
+- [36:48.580] We share with the Catholic Church
+- [36:50.020] a concern about the destruction of religious liberty,
+- [36:52.890] the persecution of Christian minorities.
+- [36:55.170] And also, you know, the challenges
+- [36:56.790] that are being faced by Christians in Africa,
+- [36:58.420] where the where the Pope just recently visited.
+- [37:00.880] So we have a lot to talk about with them,
+- [37:02.570] and I engage with them quite a bit on that front.
+- [37:05.140] So the trip is -- is really not tied to anything,
+- [37:08.460] other than the fact that it would be normal for us
+- [37:10.310] to engage with them and other secretary of states
+- [37:12.020] have done that in the past.
+- [37:13.410] On the second point about Lebanon,
+- [37:14.800] also a question that was asked earlier, and --
+- [37:17.250] What was the Italian part?
+- [37:18.540] The Press: About the expectation that the president --
+- [37:20.220] Secretary Rubio: Oh, no, look, I mean,
+- [37:21.560] the Italians have been involved there
+- [37:23.080] for some time in training the police
+- [37:24.280] and in training their forces,
+- [37:25.530] so I would love to hear their input on it.
+- [37:27.130] And in the way -- look,
+- [37:28.380] we welcome everybody's help eventually.
+- [37:30.110] What has to happen in Lebanon, what everybody wants to see is
+- [37:32.840] that you have a Lebanese government
+- [37:34.410] with the capability to go after Hezbollah
+- [37:36.870] and take Hezbollah apart.
+- [37:38.410] There shouldn't be --
+- [37:39.890] like, there shouldn't be a Hezbollah and a government.
+- [37:41.960] There should be a government;
+- [37:43.340] everyone should fold underneath it.
+- [37:44.800] And if we do that, then there'll be peace
+- [37:46.150] between Israel and Lebanon but we have -- but -- hold on.
+- [37:48.520] But we have to build the capacity of the Lebanese
+- [37:50.270] to do it and I think
+- [37:51.560] Italy could be helpful in that, in that regard.
+- [37:53.670] All right. Did I call on you already?
+- [37:57.460] You already got a question, in the green?
+- [37:59.880] Did I call on you already?
+- [38:01.230] The Press: No.
+- [38:02.440] Secretary Rubio: OK. All right. Go ahead.
+- [38:04.100] The Press: You mentioned the UN resolution
+- [38:05.570] that you announced today. Secretary Rubio: Yes.
+- [38:06.860] The Press: Can you talk about what the goal is
+- [38:08.180] with that resolution?
+- [38:09.380] And there was a similar one last month
+- [38:10.970] that was vetoed by China and Russia.
+- [38:13.480] You spoke to the Russian foreign minister.
+- [38:14.960] Do you have an assurance that Russia will be on board
+- [38:16.540] with this now (Inaudible)
+- [38:17.740] Well, we don't know. I don't know.
+- [38:19.010] Yeah, look, I mean, everyone would want
+- [38:20.250] to see this vetoed again
+- [38:21.480] and then we've made some slight adjustments to the language,
+- [38:23.300] but I don't know if it'll avoid a veto or not.
+- [38:25.000] But the language isn't very complicated
+- [38:27.030] and I think it's a real test for the UN,
+- [38:29.000] right, as a function --
+- [38:30.370] as something that functions that can solve global problems.
+- [38:34.420] What is the purpose of the UN?
+- [38:35.640] The UN was supposed to be a place
+- [38:37.010] where you could peacefully resolve global conflict.
+- [38:39.850] Right now, you have a country who is unlawfully,
+- [38:42.320] criminally and illegally taking possession
+- [38:44.870] of an international waterway
+- [38:46.160] and blowing up commercial vessels
+- [38:47.930] and putting mines in the water.
+- [38:49.660] I don't know if people appreciate
+- [38:51.090] how outrageous this is,
+- [38:52.810] how unacceptable it is that any country would fire
+- [38:55.400] and try to sink commercial vessels,
+- [38:57.660] or put mines in the water.
+- [38:58.980] Both of these things are illegal.
+- [39:00.490] And so we're going to take it to the UN.
+- [39:02.010] We're going to give it another chance to be a forum
+- [39:04.270] in which we're not even asking people
+- [39:05.660] to commit troops to the region
+- [39:07.050] and help blow up the Iranian boats.
+- [39:08.800] All we're asking them to do is to condemn it,
+- [39:10.650] to call on Iran to stop blowing ships,
+- [39:13.270] to remove these mines,
+- [39:15.800] and to allow humanitarian relief to come through,
+- [39:17.760] because there's humanitarian aid that's trapped.
+- [39:19.340] That's it. This is a very modest request.
+- [39:21.740] And if you're telling me that the international community
+- [39:24.730] and hundreds of countries cannot rally behind that,
+- [39:27.400] then I don't know what the utility of the UN system is,
+- [39:29.640] if it can't even solve something as straightforward as that.
+- [39:32.220] And I think to both the Chinese and the Russians,
+- [39:34.020] I would argue and have argued
+- [39:35.470] that it is in their interest for that resolution to pass
+- [39:38.570] and for pressure to be brought on Iran,
+- [39:40.180] because it is in their interest
+- [39:41.460] not to see international waterways,
+- [39:43.020] including the Straits of Hormuz,
+- [39:44.600] be closed down and cause economic chaos
+- [39:47.030] to dozens and dozens of countries around the world.
+- [39:50.170] OK. Back -- back row, yellow tie.
+- [39:53.850] Back -- yeah, sir. Yeah, yeah.
+- [39:55.220] The Press: Thank you. Mr. Secretary,
+- [39:57.180] (Inaudible) CBN News.
+- [39:58.570] You've had a deep faith for God and country.
+- [40:01.800] At the end of the day, with all that you
+- [40:03.050] (Inaudible)
+- [40:04.250] Secretary Rubio: I like this question, keep going.
+- [40:05.470] The Press: You've been extremely busy --
+- [40:06.730] Secretary Rubio: Go ahead, I'm sorry.
+- [40:07.930] The Press: As we all know. I got to ask you,
+- [40:09.630] what is your hope for America at a time such as this?
+- [40:13.630] Secretary Rubio: My hope for America,
+- [40:14.830] it's the same it's always been.
+- [40:16.040] The Press: How do you personally deal with that?
+- [40:17.640] Secretary Rubio: Yeah. Look, I mean,
+- [40:18.880] my hope for America is what it's always been.
+- [40:20.330] I think it's the hope I hope we all share.
+- [40:22.180] We want it to continue to be the place
+- [40:23.660] where anyone from anywhere can achieve anything,
+- [40:26.280] where you're not limited by the circumstances of your birth,
+- [40:28.940] by the color of your skin, by your ethnicity.
+- [40:30.770] But frankly, it's a place where you are able
+- [40:32.500] to overcome challenges and achieve your full potential.
+- [40:35.060] I think that should be the goal
+- [40:36.320] of every country in the world, frankly.
+- [40:37.640] But I think in the US, we're not perfect,
+- [40:39.680] our history is not one of perfection,
+- [40:41.280] but it's still better than anybody else's history.
+- [40:43.340] And ours is a story of perpetual improvement.
+- [40:45.790] Each generation has left the next generation of Americans
+- [40:48.490] freer, more prosperous, safer and that is our goal as well,
+- [40:51.900] but it is a unique and exceptional country.
+- [40:53.540] And as we come upon this 250 year anniversary,
+- [40:56.260] I think we have a lot to learn and be proud of in our history.
+- [40:58.900] It is one of perpetual and continuous improvement,
+- [41:01.630] where each generation has done its part
+- [41:03.290] to bring us closer to fulfilling the vision
+- [41:05.110] that the founders of this country had upon its founding.
+- [41:07.390] So thank you.
+- [41:08.930] All right. I have time for two more questions. Crazy.
+- [41:18.040] All right. Right there, in the pink.
+- [41:19.510] No, no, no, you, right there.
+- [41:20.870] No, that -- no, the one right next to you, in the pink.
+- [41:23.320] No, no, no, no, no, the pink. I'm sorry, but I pointed at her.
+- [41:26.510] I need to get a laser pointer and just go.
+- [41:28.630] Not you, in the pink jacket, the lady right there.
+- [41:30.460] Thank you.
+- [41:31.670] The Press: Thank you very much, Mr. Secretary.
+- [41:33.060] I have a question on Iran China relations.
+- [41:35.710] Secretary Rubio: OK.
+- [41:36.970] The Press: What's your reaction to Iranian foreign minister
+- [41:39.230] visit to China?
+- [41:40.540] Also, Beijing instructed its firms to ignore US sanctions.
+- [41:46.060] Uh, could you also address that?
+- [41:47.580] Well, I'll direct you to Treasury on that front.
+- [41:49.650] There are options that we have. If you ignore our sanctions,
+- [41:51.640] you're going to face secondary sanctions
+- [41:53.320] and I don't have an announcement for you on that today,
+- [41:55.410] but we don't do these things, you know, for symbolic purposes.
+- [41:58.730] On the first point about the visit, it's fine.
+- [42:01.380] I hope the Chinese tell him what he needs to be told
+- [42:03.220] and that is, that what you were doing in the straits
+- [42:05.250] is causing you to be globally isolated,
+- [42:06.910] you're the bad guy in this.
+- [42:08.150] You -- you guys should not be blowing up ships,
+- [42:10.190] you should not be putting mines,
+- [42:11.750] you should not be holding hostage the global --
+- [42:14.310] trying to hold hostage the global economy.
+- [42:16.370] I hope the Chinese bring, whether it's done privately,
+- [42:18.290] but I hope it's done directly,
+- [42:19.500] that that's the message they deliver to them.
+- [42:21.220] As I outlined earlier today,
+- [42:23.070] China is an export-driven economy. OK?
+- [42:25.430] I'm not here to speak on behalf
+- [42:26.850] of what's in the best interest of China, but it's obvious.
+- [42:29.190] China is an export-driven economy.
+- [42:31.150] That means they depend on other countries to buy from them.
+- [42:34.240] Well, you can't buy from them if you can't ship it there,
+- [42:36.360] and you can't buy from them
+- [42:37.580] if your economy is being destroyed by what Iran is doing.
+- [42:40.720] So it isn't Iran -- it is in China's interest
+- [42:43.310] that Iran stop closing the straits.
+- [42:45.160] It's harming China as well.
+- [42:46.710] The gentleman in the red tie. Right there.
+- [42:49.620] No, that's -- you. Yes. I'm sorry, what's your name?
+- [42:54.210] The Press: Liz (Inaudible) with PBS News.
+- [42:55.550] Secretary Rubio: Liz. OK.
+- [42:56.760] The Press: Another question about the China
+- [42:58.150] Iran relationship.
+- [42:59.390] You said at the beginning of your comments at the top
+- [43:01.590] that every single financial situation will be targeted.
+- [43:05.130] Does that include Chinese banks? Would the president sanction --
+- [43:07.780] Secretary Rubio: We're going to enforce our sanctions.
+- [43:09.240] I don't have an -- I don't have an announcement for you.
+- [43:11.260] That will have to come from Treasury.
+- [43:12.620] But we have sanctions in place and sanctions
+- [43:14.660] don't mean anything unless,
+- [43:15.930] you know, you're going to do something about them.
+- [43:17.520] So I think that's been clear. I think that, you know,
+- [43:20.920] Treasury will follow up with any specific announcements.
+- [43:23.360] Suffice it to say, we're serious about our sanctions.
+- [43:26.100] A cost needs to be imposed on Iran for what they are doing,
+- [43:28.870] otherwise, if they get away with this, guys,
+- [43:30.970] if they get away with being -- pulling this thing off
+- [43:32.960] without paying a price for it and backing down,
+- [43:34.800] you're going to see multiple places around the world
+- [43:36.720] where other countries are going to be tempted to do the same.
+- [43:39.070] This is unacceptable. Again, I want to reiterate the point.
+- [43:42.340] We keep arguing back and forth about the war and the shooting
+- [43:44.410] and this and that or the other.
+- [43:45.640] These guys have shot -- are shut down an international waterway.
+- [43:48.870] The Straits of Hormuz do not belong to Iran.
+- [43:51.220] They don't have a right to shut it down
+- [43:53.090] and blow up ships and lay mines, and that's what they've done.
+- [43:56.630] That needs to be addressed, otherwise --
+- [43:58.280] and it cannot be normalized.
+- [43:59.480] Under no circumstances can we live in a world where we accept,
+- [44:02.120] OK, this is normal, you have to coordinate with Iran,
+- [44:04.430] you have to pay them a toll
+- [44:05.780] in order to go through the Straits of Hormuz.
+- [44:07.450] Not only is that unacceptable in the Straits,
+- [44:09.560] you're creating a precedent that could be repeated in multiple
+- [44:11.840] other places around the world.
+- [44:13.140] The whole world should join us in this condemnation,
+- [44:15.080] and the whole world should join us
+- [44:16.400] in doing something about it, by the way.
+- [44:17.720] It shouldn't just be us. We're hoping to get countries.
+- [44:19.440] We're going to give them a chance
+- [44:20.700] to do something about it at the United Nations.
+- [44:22.490] All right. This is my last question.
+- [44:29.200] All right, that lady in the -- right there, in the white.
+- [44:33.440] The Press: Thank you, Mr. Secretary.
+- [44:38.300] Secretary Rubio: Well --
+- [44:39.530] OK. Hold on. Stop, stop, stop. Go ahead.
+- [44:41.330] OK. I'll do two more and then I got to go.
+- [44:42.830] You, in the black.
+- [44:44.030] Yeah, go ahead. Iran has shown what?
+- [44:45.380] The Press: Sophia with Politico.
+- [44:46.620] Secretary Rubio: OK.
+- [44:47.850] The Press: Iran has shown that it's been able to withstand
+- [44:50.020] a lot of pressure and yesterday, President Trump has said
+- [44:53.530] that they may run out of oil storage in two weeks.
+- [44:56.660] Do you believe that that will be the thing
+- [44:58.400] that gets them to the table to give up their nuclear ambitions?
+- [45:01.990] And if not, what will be that thing?
+- [45:03.550] Secretary Rubio: Well, look, they're suffering
+- [45:04.800] devastating damage to their economy.
+- [45:06.080] You're right, but it's not that
+- [45:07.280] they're able to withstand pressures,
+- [45:08.560] it's that they don't care that their people are suffering.
+- [45:10.370] You understand, right?
+- [45:11.660] There's a difference between we can withstand pressure
+- [45:13.630] and we actually don't care.
+- [45:15.310] Now, I think there are people in their system
+- [45:17.060] that care more than others.
+- [45:18.660] Some of the elected people that you see,
+- [45:20.180] some of the people you see on television with suits on,
+- [45:23.210] those guys care because they know at the end of the day,
+- [45:25.090] they have to live in the reality.
+- [45:26.490] And then you have an element of their government,
+- [45:28.410] the clerical, the clerics, the IRGC types,
+- [45:31.120] who probably are more immune to that and care less.
+- [45:33.530] They're more interested in regime survival at all costs.
+- [45:36.100] But ultimately, the pressure points are what they are.
+- [45:38.280] The Press: Are they more divided now than they were before?
+- [45:40.770] Because the administration has said that the Iranian regime
+- [45:43.640] is divided, making it very challenging.
+- [45:45.060] Secretary Rubio: Well, it's been challenging to deal with them
+- [45:46.450] diplomatically
+- [45:47.660] because, for example, an offer will be made,
+- [45:49.270] and then it takes five or six days to get a response
+- [45:51.380] because you have to get it through the whole system,
+- [45:53.210] they have to find the supreme leader,
+- [45:54.520] wherever he hides, they've got to get him to sign off
+- [45:56.520] and that's their system.
+- [45:57.730] Their system has always been multi-layered in this way.
+- [46:00.040] It's obviously become more complex
+- [46:01.550] because of the damage they suffered during the war.
+- [46:04.160] But look, suffice it to say, Iran has to pay a price.
+- [46:06.360] They're not going to change their position
+- [46:07.800] out of the kindness of their heart.
+- [46:09.500] There has to be a pressure point on them
+- [46:11.290] that causes them to realize
+- [46:12.580] they cannot continue to close the Straits
+- [46:14.780] or they face crushing economic consequences.
+- [46:18.060] But also global diplomatic isolation,
+- [46:22.430] which they have proven in the past to be susceptible to.
+- [46:24.780] But you're right, they have a high pain threshold,
+- [46:26.440] but they don't have an unlimited pain threshold, nobody does.
+- [46:28.630] All right, this has to be the last question. Go ahead.
+- [46:32.380] The Press: Thank you, Mr. Secretary.
+- [46:34.030] Many people want to know what is your DJ name?
+- [46:36.720] Secretary Rubio: My DJ name?
+- [46:38.080] The Press: Your DJ name.
+- [46:39.930] Secretary Rubio: You're not ready for my DJ name.
+- [46:43.950] The Press: On the war, if the fighting were to resume,
+- [46:46.780] because you've said that Operation Epic Fury
+- [46:48.630] is over, the president also said
+- [46:50.680] that the US would bomb them off the face of the earth
+- [46:52.900] if they tried to go after US ships.
+- [46:54.250] So, if the fighting resumes,
+- [46:55.640] are you saying that it would resume under Project Freedom?
+- [46:59.290] And I ask as it relates to the War Powers Act.
+- [47:02.210] Secretary Rubio: Yeah, look, Operation
+- [47:04.970] Epic Fury is concluded.
+- [47:06.610] We achieved the objectives of that operation.
+- [47:08.830] I'm not going to -- we're not cheering
+- [47:11.420] for an additional situation to occur;
+- [47:13.990] we would prefer the path of peace.
+- [47:15.790] What the president would prefer is a deal.
+- [47:17.640] He would prefer to sit down,
+- [47:18.910] work out a memorandum of understanding
+- [47:20.510] for future negotiations that touches on all the key topics
+- [47:22.870] that have to be addressed, a full opening of the Strait
+- [47:25.120] so the world can get back to normal.
+- [47:27.070] And he preferred that be negotiated through the route
+- [47:28.930] that Steve and Jared have been working
+- [47:30.240] and that all of us have been supporting.
+- [47:32.100] That's the route he prefers.
+- [47:33.660] That is, so far, not the route that Iran has chosen.
+- [47:36.150] And so, the result has been that the United States
+- [47:37.980] has to do something about the fact
+- [47:39.370] that we're the only nation on earth
+- [47:40.650] that can do anything to open up a lane
+- [47:42.720] within the Straits of Hormuz, to get product
+- [47:44.730] and to rescue these people that are trapped in there.
+- [47:46.930] And that's what we're undergoing now.
+- [47:48.380] What that may lead to in the future is speculative.
+- [47:50.380] I'm not going to speculate about what it would take
+- [47:51.930] or what it would do.
+- [47:53.160] But look, the message to Iran, these guys are facing --
+- [47:56.550] they are facing real catastrophic destruction
+- [47:59.440] to their economy, generational destruction
+- [48:01.320] to their economy, generational destruction
+- [48:03.240] to the wealth of their country imposed on themselves
+- [48:05.560] by the actions that they're taking.
+- [48:07.300] They should check themselves before they wreck themselves
+- [48:09.110] in the direction that they're going.
+- [48:10.680] The Press: Does the White House believe
+- [48:11.930] that these votes coming up in Congress are a moot point then?
+- [48:15.060] Secretary Rubio: Look, guys, I love talking about this topic,
+- [48:16.870] this is about the War Powers Act, OK?
+- [48:18.310] I love it. I was hoping somebody would ask.
+- [48:20.140] All right, hold on, hold on, no, no, you don't let me answer.
+- [48:22.470] I've got to answer the question, OK?
+- [48:24.680] And I love it, I'll tell you why I love it,
+- [48:26.380] because even as a Senator, I said something.
+- [48:28.960] The War Powers Act is unconstitutional, 100 percent.
+- [48:31.940] Now, this is not the position of me,
+- [48:33.560] it's not the position of the president United States now.
+- [48:35.850] This is the position of every single president
+- [48:38.170] that has occupied this position since the day that law passed.
+- [48:41.010] It's completely unconstitutional.
+- [48:42.540] Now, we comply with it in terms of like notification,
+- [48:45.040] because we want to preserve good relations
+- [48:46.710] with Congress, right, and we do that.
+- [48:48.330] But even as a Senator,
+- [48:49.530] I would say that the War Powers Act
+- [48:50.970] is 100 percent unconstitutional.
+- [48:53.300] And look, I know some of you, whatever you want to say,
+- [48:55.510] but this is not this president's position;
+- [48:57.720] that has been the position
+- [48:59.070] of every single presidential administration
+- [49:01.770] since the day that law passed. It's an infringement
+- [49:03.610] on the president's constitutional powers.
+- [49:05.580] We don't acknowledge the law as constitutional;
+- [49:07.720] nonetheless, we comply with elements of it
+- [49:09.730] for purposes of maintaining good relations with Congress
+- [49:13.620] and we want them to be involved, and we want them to be informed.
+- [49:15.820] I have gone on Capitol Hill, I don't know,
+- [49:17.240] four times this year for all Senators
+- [49:19.480] and all House members and Intel Committee
+- [49:20.940] and Gang of Eight.
+- [49:22.230] We want them to be involved in this.
+- [49:24.230] But I want to be clear on the point
+- [49:25.460] of the War Powers Act, it's unconstitutional.
+- [49:27.460] And every president and every administration
+- [49:30.310] has taken that position.
+- [49:31.580] All right, guys, I gave you 50 minutes.
+- [49:33.490] Thank you. Thank you, guys.

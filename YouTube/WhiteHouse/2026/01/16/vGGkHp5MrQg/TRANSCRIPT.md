@@ -1,0 +1,101 @@
+<!-- source: https://www.youtube.com/watch?v=vGGkHp5MrQg -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: vGGkHp5MrQg -->
+<!-- date_published: 2026-01-16T17:55:58+00:00 -->
+<!-- date_accessed: 2026-06-02T01:07:19.127882+00:00 -->
+
+# Transcript: CURIOSITY FOR INTELLECTUAL FREEDOM - First Lady Melania Trump
+
+- [00:01.120] Thank you, Mr. Yuan. Zoom's leadership
+- [00:04.240] in the tech ad space is unmatched.
+- [00:08.240] Your support directly advances my
+- [00:10.559] mission to prepare America's next
+- [00:13.040] generation to use AI to enhance their
+- [00:16.800] education and ultimately their careers.
+- [00:21.359] Indeed, this is an incredible time. We
+- [00:25.840] are living in the age of imagination.
+- [00:29.599] The age of imagination is a new era
+- [00:33.280] powered by artificial intelligence where
+- [00:36.640] one's curiosity can be satisfied almost
+- [00:40.399] magically in seconds.
+- [00:44.000] You are fortunate to have the capability
+- [00:47.840] to fulfill your dreams through the power
+- [00:51.120] of learning with AI serving as the
+- [00:55.120] primary engine for creative exploration.
+- [00:59.760] History remind us that curiosity is the
+- [01:03.840] driving force behind every great
+- [01:06.640] achievement.
+- [01:08.560] The world's greatest minds, our writers,
+- [01:12.400] architects, scientists, and painters all
+- [01:16.880] had endless interest about human nature.
+- [01:20.799] And they all question that which was yet
+- [01:23.600] to be answered.
+- [01:26.240] Are you ready to produce your own movie?
+- [01:29.680] Do you want to build the next dress to
+- [01:32.000] impress empire? Have you ever wondered
+- [01:35.600] how to became the next master artist?
+- [01:39.680] Create your own song.
+- [01:42.799] Every giant at some point in time
+- [01:46.640] questions the status quo.
+- [01:49.840] Their singular vision pushes humanity in
+- [01:52.960] a new direction.
+- [01:55.119] Artificial intelligence is changing
+- [01:57.920] today's world and your curiosity should
+- [02:01.439] serve as a driving force.
+- [02:04.799] For the first time in history, the young
+- [02:07.759] girl dreaming of becoming a fashion
+- [02:10.160] designer and the young boy who wants to
+- [02:13.280] stand up his school animated superhero
+- [02:16.160] series can do so from their own home.
+- [02:20.640] Artificial intelligence provides all the
+- [02:23.360] tools needed to implement your creative
+- [02:26.800] vision. Today
+- [02:29.360] you can develop movie characters,
+- [02:32.160] scripts, fashion, music, art, the entire
+- [02:36.959] ecosystem,
+- [02:38.640] all with AI.
+- [02:41.760] But what do you need to start?
+- [02:44.879] You need to harness your imagination.
+- [02:48.480] In the new era, the most powerful skill
+- [02:51.840] is knowing what to ask, why it matters,
+- [02:56.400] and how to think behi beyond beyond the
+- [03:00.080] worst answer.
+- [03:02.480] I encourage you to be stubbornly
+- [03:04.720] curious, think outside the box and
+- [03:08.239] question everything.
+- [03:11.040] Creators must stretch their minds to
+- [03:13.599] think differently.
+- [03:15.680] The world of possibility is endless and
+- [03:19.519] AI is extending the conceptual in ways
+- [03:23.840] never dreamed of before.
+- [03:28.080] In the past, memorization unlock
+- [03:31.040] opportunity.
+- [03:32.720] Today, your curiosity will open new
+- [03:35.840] doors to meaning, innovation, and
+- [03:39.280] leadership.
+- [03:41.599] But what but we must remember although
+- [03:45.360] artificial intelligence
+- [03:47.760] can generate images and information
+- [03:51.440] only humans can generate meaning and
+- [03:55.280] purpose.
+- [03:57.599] Deep thinking, patience and staying
+- [04:01.040] curious are where purpose begins.
+- [04:05.439] Today I urge you to take action.
+- [04:09.760] Use AI to unlock new parts of your
+- [04:12.879] imagination.
+- [04:14.799] Lead with your ideas. Stay sharp. But
+- [04:19.199] remember, never surrender your thinking
+- [04:23.199] to AI.
+- [04:25.520] Choose to let your imagination drive
+- [04:27.759] your intellectual progress.
+- [04:30.639] But never use AI as a quick solution.
+- [04:35.360] Be intellectually honest with yourself.
+- [04:38.880] Use AI as a tool, but do not let it
+- [04:42.639] replace your personal intelligence.
+- [04:46.639] Pursue understanding with passion like
+- [04:49.919] no generation before.
+- [04:52.720] Make an impact. Knowledge is power.
+- [04:57.040] Nobody can take it away from you. Good
+- [05:00.560] luck and I wish you a successful year
+- [05:04.080] ahead.

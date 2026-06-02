@@ -1,0 +1,846 @@
+<!-- source: https://www.youtube.com/watch?v=J6SK7lotKZQ -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: J6SK7lotKZQ -->
+<!-- date_published: 2025-08-06T21:54:02+00:00 -->
+<!-- date_accessed: 2026-06-02T02:46:10.415307+00:00 -->
+
+# Transcript: President Trump Makes an Announcement, Aug. 6, 2025
+
+- [00:04.210] The President: Thank you very much.
+- [00:08.210] You know this gentleman,
+- [00:10.050] one of the truly great legends of our time in my book.
+- [00:15.310] Before we begin, I’d like to say a few words
+- [00:17.400] about the shooting at Fort Stewart in Georgia.
+- [00:21.490] As you know, five people were seriously wounded
+- [00:23.580] and two very, very seriously hurt around 11:00 this morning.
+- [00:28.740] The shooter is now in custody
+- [00:31.140] and the Army Criminal Investigation Division
+- [00:34.230] is on site to ensure that the perpetrator of this atrocity,
+- [00:38.060] which is exactly what it is,
+- [00:39.530] will be prosecuted to the fullest extent of the law.
+- [00:43.480] The entire nation is praying for the victims and their families,
+- [00:48.410] and hopefully they’ll fully recover,
+- [00:51.150] and we can put this chapter behind,
+- [00:54.640] but we’re not going to forget what happened.
+- [00:56.570] We’re going to take very good care of this person
+- [01:00.270] that did this horrible person.
+- [01:02.860] This afternoon, we’re pleased to welcome
+- [01:04.860] to the White House one of the great
+- [01:07.490] and most esteemed business leaders and geniuses
+- [01:10.300] and innovators anywhere in the world,
+- [01:12.570] Apple CEO Tim Cook. It’s an amazing job.
+- [01:16.440] Thanks as well to Secretary of the Treasury Scott Besant
+- [01:20.900] and Secretary of Commerce, Howard Lutnick
+- [01:23.560] for being here, wherever you may be.
+- [01:25.710] Oh, there you are. Hello, fellas. I missed you.
+- [01:29.000] Today, Apple is announcing
+- [01:30.410] that it will invest $600 billion.
+- [01:34.110] That’s with a B.
+- [01:35.920] In the United States over the next four years,
+- [01:38.090] that’s $100 billion
+- [01:40.340] more than they were originally going to invest.
+- [01:44.360] And this is the largest investment
+- [01:45.900] Apple has ever made in America and anywhere else.
+- [01:50.250] And it’s just an honor to have you, as you know,
+- [01:52.440] Apple’s been an investor in other countries a little bit.
+- [01:54.830] I won’t say which ones, but a couple.
+- [01:57.500] And they’re coming, they’re coming home $600 billion.
+- [02:02.900] It’s the biggest there is.
+- [02:05.440] The company is also unveiling
+- [02:06.880] its ambitious new American manufacturing program,
+- [02:09.600] which will bring factories and assembly lines
+- [02:11.870] across our country, all roaring to life areas
+- [02:15.220] that were not doing so well or doing very well.
+- [02:17.460] We have about $17 trillion coming into the United States,
+- [02:22.070] which is more than ever before. That’s never even come close.
+- [02:26.130] There’s never been anything like it.
+- [02:27.960] Even you, that’s even a lot of money for you.
+- [02:30.560] But we have commitments of more than $17 trillion
+- [02:35.050] that was there a couple of weeks ago.
+- [02:37.610] These investments will directly create
+- [02:40.190] more than 20,000 brand new American jobs
+- [02:42.730] and many thousands more at the Apple suppliers like
+- [02:45.810] Corning, Broadcom, Texas Instruments
+- [02:49.060] and Samsung will all deal in that world.
+- [02:53.540] As part of this historic commitment,
+- [02:55.070] Apple will massively increase
+- [02:56.560] spending on its domestic supply chain for the iPhone
+- [03:00.130] and will build the largest
+- [03:01.500] and most sophisticated smart glass production line
+- [03:04.840] in the world in Harrodsburg, Kentucky,
+- [03:09.150] which is a great actually, I did very well there.
+- [03:11.610] I like it because I see I did very well there.
+- [03:14.460] I did very well in Kentucky, but it’s a great place.
+- [03:16.760] You’re going to be very happy.
+- [03:17.960] I thought maybe while we’re up, I’ll interrupt my own speech by,
+- [03:22.510] you might show them a little bit about the product
+- [03:25.020] that you’re going to be doing in Kentucky, Tim.
+- [03:26.820] Tim Cook: Absolutely. Do you mind if I step up?
+- [03:28.100] The President: Yes, please.
+- [03:29.990] Tim Cook: This [inaudible] was made here in the U.S., California.
+- [03:34.490] And this glass comes off the Corning
+- [03:38.150] wand engraved for President Trump.
+- [03:42.340] It’s a unique unit of wand.
+- [03:45.230] It was designed by a U.S. Marine Corps corporal,
+- [03:49.580] a former one that works at Apple now.
+- [03:53.230] Designed it for you.
+- [03:55.080] And the base comes from Utah.
+- [04:00.230] And it's 24 karat gold
+- [04:03.580] and it sits --
+- [04:05.470] I’ll take the liberty of setting it up.
+- [04:07.890] The President: Wow.
+- [04:14.230] Well, there we go.
+- [04:19.570] Congratulations, Mr. President. Thank you very much.
+- [04:21.290] It’s fantastic. Wow. The great people of Kentucky.
+- [04:26.130] You’re going to find it a great place to do business, too.
+- [04:28.890] It’s fantastic. Isn’t that nice?
+- [04:30.940] We’re doing these things now in the United States.
+- [04:41.480] I’m sure
+- [05:08.350] you’re going to find it
+- [05:14.630] a great place to do business.
+- [05:23.360] Thank you.
+- [05:29.290] This is about the most comprehensive piece
+- [05:33.430] of legislation ever passed.
+- [05:34.980] It’s going to mean unbelievable numbers of jobs and no jobs.
+- [05:40.530] Think of this, whether it’s tips or overtime or Social Security.
+- [05:45.410] No tax on tips, no tax on Social Security,
+- [05:49.920] no tax on overtime. And just a small bit.
+- [05:55.050] For apple and other businesses,
+- [05:56.740] we’re talking about the deductions
+- [05:58.320] and all of the things.
+- [05:59.530] Especially for people that go out and buy a car,
+- [06:02.130] first time it’s ever been done.
+- [06:03.590] We talk about deductions for companies,
+- [06:05.950] but they’re going to be able to deduct interest
+- [06:08.600] when they borrow money to buy a car if it’s made in America,
+- [06:13.190] has to be made in America. So it is amazing.
+- [06:16.570] One of the reasons I think I can say
+- [06:18.020] that Apple is coming here is the legislation
+- [06:20.630] we just passed with this kind of investment.
+- [06:24.280] Apple will also open other facilities,
+- [06:28.370] rare earth magnets from Texas and build,
+- [06:31.620] I love that you’re doing this. I love that. I love that.
+- [06:35.600] And build a brand new rare earth recycling line in Mountain
+- [06:38.890] Pass, California. I know that area.
+- [06:42.160] That’s where they have a lot of truly rare earth.
+- [06:44.850] That’s fantastic. I love that.
+- [06:47.150] And Apple will help develop and manufacture semiconductors
+- [06:50.330] and semiconductor equipment in Texas,
+- [06:52.540] Utah, Arizona and New York.
+- [06:55.840] For years, Americans have watched
+- [06:57.430] as many of our leading tech giants
+- [06:59.180] built their factories overseas
+- [07:00.710] and exported American jobs abroad.
+- [07:03.750] But under the Trump administration,
+- [07:05.410] we’re doing everything possible
+- [07:07.050] to make this the best place on earth
+- [07:08.750] to build a factory or grow businesses.
+- [07:11.300] I’m allowing them to build electric producing plants
+- [07:15.330] with their factory
+- [07:16.580] because otherwise they’d have to hook into the grid.
+- [07:18.690] And I think it’s one of the biggest things we’ve done
+- [07:20.940] where you can build, Tim, your own electricity.
+- [07:26.560] You become your own electric manufacturer.
+- [07:30.130] And that goes along with the plant.
+- [07:31.690] So you become a utility.
+- [07:33.310] So congratulations. Now you’re in the utility.
+- [07:36.150] I hope they don’t value your company based on utility.
+- [07:39.630] But that’s OK. You’re going to make you’re going to be
+- [07:41.930] making your own electricity.
+- [07:44.070] And as you probably know, for much of this
+- [07:46.180] and much of many of the things that we’re doing,
+- [07:48.040] especially the A.I.,
+- [07:49.940] they would actually double the electricity
+- [07:53.890] that the country now produces for everything.
+- [07:56.700] So it’s massive electric
+- [07:58.100] and they’re going to be able to make their own
+- [07:59.640] and they’re getting very fast approvals.
+- [08:01.300] Lee Zeldin is doing a fantastic job,
+- [08:03.370] including with a 100 percent
+- [08:05.950] expensing on the One Big Beautiful Bill.
+- [08:10.280] In return, we’re asking our businesses to invest in America
+- [08:14.150] and they’re coming in at levels that we’ve never seen before.
+- [08:16.480] So I don’t know when it shows up,
+- [08:18.930] but there are a lot of factories
+- [08:20.650] and a lot of plants that are either under construction
+- [08:23.620] or soon will be starting construction.
+- [08:25.290] So can’t tell you exactly when, but I want to be around in
+- [08:30.620] about a year from now and two years from now,
+- [08:33.070] because we’re going to see an explosion,
+- [08:35.550] I think, like this country has never seen before. Never.
+- [08:39.370] Today’s announcement is one of the largest commitments
+- [08:41.880] in what has become among the greatest investment booms
+- [08:45.270] in our nation’s history.
+- [08:46.610] And we’ve got the hottest country anywhere in the world.
+- [08:49.370] And I told you the story that and Tim, I’ll tell you,
+- [08:53.110] but I went to the Middle East and I was with Qatar.
+- [08:57.610] I was with UAE and the king of Saudi Arabia, all great leaders.
+- [09:02.900] And then I went to NATO and saw many great leaders.
+- [09:05.650] And we just finished that about four weeks ago.
+- [09:08.380] Everyone, virtually everyone, said, in effect,
+- [09:11.880] that we were a dead country.
+- [09:14.760] One year ago, America, this was a dead country.
+- [09:17.650] We were dying. We were dead.
+- [09:19.950] And now you’ve got the hottest country anywhere in the world.
+- [09:23.080] This would have never happened except for certain people.
+- [09:27.030] Thank you very much. I appreciate it.
+- [09:29.610] NVIDIA is investing 500 billion to go along with Apple,
+- [09:35.060] 600 billion, 600 billion.
+- [09:37.860] Micron, great company, is investing 200 billion.
+- [09:41.050] IBM is investing more than 150 billion.
+- [09:44.760] SoftBank is investing substantially
+- [09:48.180] more than 100 billion.
+- [09:49.500] TSMC is investing 200 billion. Johnson and Johnson, 55 billion.
+- [09:55.030] And Merck, Stellantis and General Motors
+- [09:58.000] are putting many, many billions in.
+- [09:59.790] They haven’t determined the final number.
+- [10:01.940] And many other countries are investing
+- [10:03.620] tens of billions of dollars
+- [10:05.020] that I’m not going to give you the whole list
+- [10:07.730] because the list is too long to read.
+- [10:10.360] But it’s hundreds of billions and even trillions.
+- [10:13.520] I mean, it’s trillions of dollars
+- [10:14.930] that’s being invested right now.
+- [10:16.770] Last week, it was announced that our economy grew
+- [10:19.400] at 3 percent in the second quarter.
+- [10:21.920] And consumer confidence is surging.
+- [10:23.920] Blue-collar wages are rising rapidly.
+- [10:26.520] Costs are way down.
+- [10:27.770] You know, I listened to these horrendous frauds on CNN
+- [10:32.880] and various other fake news networks.
+- [10:36.740] And they said costs are up.
+- [10:37.990] No, no, costs are down. Gasoline is down.
+- [10:42.530] It’s going to soon, I believe, be less than $2 a gallon.
+- [10:45.940] It’s around $2.40 right now,
+- [10:48.630] many places other than in California,
+- [10:50.470] where they tax you out of business and a couple of others.
+- [10:53.930] But gasoline is way down.
+- [10:57.030] The price of groceries are down. How about eggs?
+- [11:00.120] When I first came here, my first week,
+- [11:03.790] the press hit me very hard on eggs.
+- [11:05.900] Eggs had quadrupled or something.
+- [11:08.270] I said, “I didn’t know about it. Give me a chance.
+- [11:10.930] I’ve just been here for four days.”
+- [11:12.900] Well, eggs are down. Everything’s down.
+- [11:15.060] Price is down. The only thing that’s up is stock prices.
+- [11:18.160] That’s really up. And that’s through the roof.
+- [11:21.050] The stock market has been hitting all-time records,
+- [11:24.190] all-time highs.
+- [11:26.080] Last week, it was announced that our economy grew at levels
+- [11:30.550] that we haven’t seen in a long time.
+- [11:32.330] But the real levels of growth
+- [11:34.150] are going to be judged in a year from now,
+- [11:35.990] when you start seeing some of these incredible plans,
+- [11:38.610] because we have car plants opening.
+- [11:40.260] They’re coming in from Canada, from Mexico,
+- [11:42.740] and from all over the world. And they’re coming in
+- [11:45.610] because they like the way the election worked out,
+- [11:47.730] but they also like the fact that they don’t want to pay tariffs.
+- [11:50.870] And the tariffs, I think, will be taken --
+- [11:53.850] well, we’re taking in hundreds of billions
+- [11:55.560] of dollars in tariffs.
+- [11:57.210] I won’t be so specific, other than to say --
+- [11:59.240] because we don’t even know what the final number is.
+- [12:01.090] We just made a deal, as you know, with the EU,
+- [12:03.860] where they’re paying hundreds of billions of dollars,
+- [12:07.310] Japan paying hundreds of billions of dollars,
+- [12:10.240] and numerous other countries
+- [12:11.530] paying hundreds of billions of dollars.
+- [12:13.490] And we’re not even completed there.
+- [12:16.480] And as you know, they found $25 billion.
+- [12:19.660] Three weeks ago, they said,
+- [12:21.210] “We have a surplus of $25 billion.”
+- [12:24.230] And they said, “Where did this come from?”
+- [12:25.670] As they checked the tariffs, and they checked, they said,
+- [12:27.640] “You’re right, that’s where it came from.”
+- [12:29.050] And we’ve really just started. This is just in its infancy.
+- [12:33.850] So we have a great country.
+- [12:35.660] We have a country that is going to be very rich.
+- [12:38.900] It’s a country that we’re very proud of,
+- [12:41.940] but it’s going to be very rich.
+- [12:43.720] And it’s companies like Apple, they’re coming home.
+- [12:47.520] They’re all coming home.
+- [12:49.310] And we want them to come home. They have to come home.
+- [12:52.180] We’re going to treat them really well.
+- [12:53.900] We’re going to be putting a very large tariff
+- [12:57.360] on chips and semiconductors.
+- [13:00.650] But the good news for companies like Apple is,
+- [13:03.640] if you’re building in the United States
+- [13:06.570] or have committed to build, without question committed
+- [13:09.220] to build in the United States, there will be no charge.
+- [13:12.710] In other words, we’re not going to be charging.
+- [13:15.240] So a lot of countries, a lot of companies are leaving various
+- [13:19.250] other places than they’re coming to the United States.
+- [13:21.830] So in other words, we’ll be putting a tariff
+- [13:24.540] on approximately 100 percent on chips and semiconductors.
+- [13:29.550] But if you’re building in the United States of America,
+- [13:34.100] there’s no charge, even though you’re building
+- [13:36.570] and you’re not producing yet in terms of the big numbers of jobs
+- [13:40.500] and all of the things that you’re building.
+- [13:43.130] If you’re building, there will be no charge.
+- [13:44.910] So I just want everyone to know that.
+- [13:46.440] And I didn’t even tell you that inside.
+- [13:48.710] We discussed the concept, but I didn’t.
+- [13:51.590] So it’s a big factor.
+- [13:53.230] So 100 percent tariff on all chips and semiconductors
+- [13:57.810] coming into the United States.
+- [13:59.980] But if you’ve made a commitment to build
+- [14:01.660] or if you’re in the process of building,
+- [14:03.150] as many are, there is no tariff.
+- [14:07.630] If for some reason you say you’re building
+- [14:09.200] and you don’t build,
+- [14:10.400] then we go back and get we add it up.
+- [14:13.800] It accumulates and we charge you at a later date.
+- [14:17.800] You have to pay. And that’s a guarantee.
+- [14:20.190] So that’s a big statement.
+- [14:22.720] And I think the chip companies are all coming back home.
+- [14:26.220] They’re all coming back.
+- [14:27.440] You know, we started with Intel and gradually Intel
+- [14:31.360] was just taken over the over the calls.
+- [14:34.500] They were taken to the cleaners, frankly,
+- [14:37.060] and moved to other places, in particular Taiwan.
+- [14:41.090] But I think a lot of those companies are coming back
+- [14:44.670] and they’re coming back very rapidly.
+- [14:46.170] So that’s a big statement. One hundred percent tariff.
+- [14:49.370] I want to thank you very much. Tim, would you like to say
+- [14:51.350] a few words about your company, please?
+- [14:57.280] Tim Cook: Good afternoon, everyone.
+- [14:59.060] Mr. President, thank you very much for having me here today.
+- [15:02.990] You’ve been a great advocate for American innovation
+- [15:05.700] and manufacturing,
+- [15:06.910] and I’m grateful for your leadership and your commitment.
+- [15:10.880] That’s a commitment we share at Apple
+- [15:13.060] because American innovation is central to everything we do.
+- [15:17.110] Our products are designed here, we’re hiring and growing here,
+- [15:21.010] and we support 450,000 jobs
+- [15:24.080] with thousands of suppliers and partners in all 50 states.
+- [15:28.800] Earlier this year,
+- [15:30.700] we made our largest ever spending commitment,
+- [15:33.730] $500 billion to the U.S. over the next four years.
+- [15:37.900] That’s already yielding results.
+- [15:40.070] Earlier this year, we broke ground
+- [15:41.640] on a new factory in Houston to make advanced AI servers.
+- [15:45.160] And just last month, the very first test unit
+- [15:48.090] rolled off that factory’s line, proudly made in America.
+- [15:53.430] President Trump shared some kind words about that work,
+- [15:57.120] but he also asked us to think
+- [15:59.320] about what more we could commit to doing.
+- [16:02.070] And Mr. President, we took that challenge very seriously.
+- [16:05.910] I’m glad to be here with you today,
+- [16:07.850] and I’m very proud to say that today we’re committing
+- [16:11.250] an additional $100 billion to the United States,
+- [16:14.820] bringing our total U.S. investment to $600 billion
+- [16:18.290] over the next four years.
+- [16:20.380] As a part of this,
+- [16:21.600] we’re launching Apple’s American Manufacturing Program.
+- [16:25.790] It will spur even more production right here
+- [16:28.600] in America.
+- [16:30.090] We’re critical components used in Apple products
+- [16:32.910] all around the world. And we’re thrilled to announce
+- [16:36.340] that we’ve already signed new agreements
+- [16:38.380] with 10 companies across America to do just that.
+- [16:43.410] First with today’s announcements,
+- [16:44.880] I’m proud to say that Apple is leading the creation
+- [16:48.350] of an end-to-end silicon supply chain
+- [16:51.760] right here in America, from design to equipment,
+- [16:55.640] to wafer production, to fabrication, to packaging.
+- [17:00.340] In Texas, we’re working with manufacturers
+- [17:02.520] like Texas Instruments,
+- [17:03.900] Global Wafers America, and Applied Materials.
+- [17:07.870] We’re working with Amcor in Arizona and Broadcom
+- [17:10.870] and Global Foundries in New York.
+- [17:13.540] Thanks to President Trump’s vision
+- [17:15.640] and with his help in his first term,
+- [17:18.190] we also led the way to bring TSMC to Arizona
+- [17:22.070] by committing to be their first and largest customer.
+- [17:26.740] Today, they’re producing tens of millions of chips for Apple
+- [17:31.070] using one of the most advanced process technologies
+- [17:34.230] in America today.
+- [17:36.500] We’re going to keep working with our suppliers to move
+- [17:38.980] even more of this incredibly advanced work to America.
+- [17:42.850] And this year alone, American manufacturers are on track
+- [17:47.790] to make 19 billion chips for Apple
+- [17:50.920] in 24 factories across 12 different states.
+- [17:55.810] Second, we’re committed to buying American-made
+- [17:59.110] advanced rare earth magnets developed by MP Materials,
+- [18:03.560] which will become part of Apple’s devices
+- [18:05.850] shipped around the world.
+- [18:08.270] MP is the only fully integrated rare earth producer
+- [18:11.950] in the United States.
+- [18:13.440] And with this partnership, they’ll be significantly
+- [18:16.320] expanding their flagship facility in Fort Worth, Texas.
+- [18:20.350] We’re also thrilled to work together
+- [18:22.220] on a cutting-edge rare-earth recycling line
+- [18:25.950] in Mountain Pass, California.
+- [18:29.130] And third, in Kentucky,
+- [18:31.220] we’ve worked with our partners at Corning
+- [18:33.230] to build the world’s largest
+- [18:34.730] and most advanced smartphone glass production line.
+- [18:38.210] And I’m pleased to announce that very soon,
+- [18:41.260] this is for the first time ever, every single new iPhone
+- [18:45.830] and every single new Apple Watch sold anywhere in the world
+- [18:50.710] will contain cover glass made in Kentucky.
+- [18:54.550] In addition to the American manufacturing program,
+- [18:57.190] we’re also significantly growing our investments in AI,
+- [19:01.080] including expanding data center capacity in North Carolina,
+- [19:04.900] in Nevada, in Iowa, in Arizona, and Oregon.
+- [19:09.330] So we’re going to keep making investments
+- [19:11.420] right here in America.
+- [19:12.980] We’re going to keep hiring in America.
+- [19:15.500] And we’re going to keep building technologies
+- [19:17.600] at the heart of our products right here in America,
+- [19:21.670] because we’re a proud American company
+- [19:24.230] and we believe deeply in the promise of this great nation.
+- [19:28.150] Thank you all. And thank you, President Trump,
+- [19:31.530] for putting American innovation
+- [19:33.520] and American jobs front and center.
+- [19:35.960] Thank you, sir.
+- [19:37.290] The President: Thank you. Thank you. What a job he’s done.
+- [19:42.000] What a job. Incredible. I want to thank you very much.
+- [19:45.280] And thank you, J.D., for helping along.
+- [19:48.360] Good job. Really good job. Any questions, please?
+- [19:51.760] The Press: Mr. President?
+- [19:53.100] You’ve been on the campaign trail to bring forth
+- [19:55.320] a manufacturing renaissance. You just mentioned $17 trillion
+- [20:00.300] in your first seven months or so.
+- [20:02.050] Can you talk about how an investment like this,
+- [20:04.140] all the other ones that you laid out,
+- [20:05.670] will positively impact the millions of Americans
+- [20:08.350] that trusted you with their vote?
+- [20:10.100] The President: Thank you very much.
+- [20:11.860] It changes our country.
+- [20:13.640] I mean, our country is a very different country
+- [20:16.010] than it was six months ago.
+- [20:18.800] And people like Tim are coming. We had Micron in yesterday.
+- [20:23.240] We had all of the big, great companies that you read about.
+- [20:27.070] You don't know about, but you read about many of them
+- [20:29.640] were making products outside of our country,
+- [20:32.300] foolishly we lost them.
+- [20:33.590] If we had the right person sitting in that seat,
+- [20:35.470] that would have never happened 20 and 30 years ago.
+- [20:38.570] When you look at the chip business,
+- [20:39.880] it would have never left our shores.
+- [20:42.250] We had 100 percent of chips originally,
+- [20:44.150] and then we slowly got taken down to nothing.
+- [20:48.750] We have the biggest chip companies to both of them,
+- [20:52.370] but we have the biggest in the world coming in.
+- [20:54.320] They're going to Arizona and beyond.
+- [20:57.590] And we're going have, in a short period of time,
+- [20:59.880] we'll be up to almost 50 percent of the chips
+- [21:02.030] from starting in nothing, and that's something.
+- [21:05.590] But we have greatest companies in the --
+- [21:07.310] coming into our country,
+- [21:08.590] and that means jobs, and it means wealth.
+- [21:11.100] And wealth means security for our people.
+- [21:13.910] Brian. The Press: Yes, sir.
+- [21:15.110] Congratulations on this investment from President Trump.
+- [21:18.430] Here’s a great example of putting America first.
+- [21:23.010] What does the labor force
+- [21:24.310] look like to fill these jobs that you have?
+- [21:26.400] Do we have enough skilled American workers to fill these?
+- [21:29.990] The President: Well, we do have a lot of workers,
+- [21:31.330] and we have a lot of workers
+- [21:32.540] that hadn’t been looking for work
+- [21:33.960] because they were disincentivized, frankly.
+- [21:37.510] And people like Tim have tremendous schools
+- [21:41.080] and training centers that they build,
+- [21:42.550] along with a lot of their big plants
+- [21:44.110] where they train people on whether it’s class,
+- [21:47.860] like in Kentucky, or computers, or whatever they might be doing.
+- [21:52.320] It’s a complex world, and they train people,
+- [21:54.350] and they do a great job. So it’s a whole new workforce.
+- [21:59.230] Now, we have a lot of them in energy
+- [22:01.350] because, you know, they’ve always liked energy.
+- [22:04.090] As you know, coal has opened up and opened up big.
+- [22:07.070] We brought it back and brought it back in a very large way.
+- [22:10.570] You know, China’s right now building 58 coal-fired plants,
+- [22:13.760] 58 big ones.
+- [22:15.560] And here we were saying, “we don’t take coal.”
+- [22:17.570] We have more coal than anybody else in the world.
+- [22:19.550] We have more oil and gas than anybody else in the world.
+- [22:23.170] But we have tremendous energy jobs,
+- [22:25.170] and the energy, as you know, we’re booming with energy.
+- [22:28.560] And that’s why the gasoline prices are down.
+- [22:30.280] Our costs are down.
+- [22:31.510] I just hope when they watch these shows,
+- [22:34.100] I watch this, I won’t use names
+- [22:36.410] because I just make them better known.
+- [22:38.590] Nobody knows who they are.
+- [22:40.220] But I watch this group of people on CNN,
+- [22:43.270] and MSDNC, too, the same thing, where they say,
+- [22:46.740] “well, costs have gone up.”
+- [22:48.410] Costs haven’t gone up. They’ve gone down.
+- [22:50.940] I’m telling you, the thing that’s gone up is stock,
+- [22:53.180] stock prices, and success of our country.
+- [22:56.670] Our country is really, really doing well, successful.
+- [23:00.750] The Press: Yes, Mr. President,
+- [23:02.630] have Putin and Zelensky agreed to a summit yet?
+- [23:05.640] And where and when would that be?
+- [23:07.350] The President: Well, there’s a very good prospect
+- [23:09.860] that they will. And we haven’t determined where,
+- [23:12.910] but we had some very good talks with President Putin today.
+- [23:17.400] There’s a very good chance that we could be ending the round,
+- [23:22.120] ending the end of that road.
+- [23:23.730] That road was long and continues to be long,
+- [23:27.780] but there’s a good chance
+- [23:29.020] that there will be a meeting very soon.
+- [23:30.360] The Press: How close do you think you are to a deal?
+- [23:31.610] The President: Excuse me?
+- [23:32.840] The Press: How close do you think you are
+- [23:34.080] to some kind of deal?
+- [23:35.370] The President: Well, look, I don’t want to say.
+- [23:36.680] I’ve been disappointed before with this one.
+- [23:39.390] You know, we’ve solved five wars,
+- [23:42.040] plus add to that Iran,
+- [23:44.380] where we wiped out their nuclear capacity for weapons.
+- [23:48.090] They would have had a weapon within two months, maybe less.
+- [23:51.240] And that was totally obliterated.
+- [23:53.130] Turned out it was a total obliteration.
+- [23:56.630] And the pilots and the people that did that job, really,
+- [24:00.440] we have the greatest armed forces in the world,
+- [24:04.080] but that was really something.
+- [24:05.600] In fact, there’s a model of the plane right there.
+- [24:09.390] Now, you got to bring that up, Susie. We have to see that.
+- [24:12.940] Look at this. This was just given to me.
+- [24:16.580] You know, we ordered brand-new B-2 bombers.
+- [24:22.140] This is a plane that, over a period of 36 hours
+- [24:28.030] of constant flying -- look at this.
+- [24:29.930] This is the brand-new one they just ordered.
+- [24:31.730] Similar, but actually quite different.
+- [24:34.130] It’s new and enhanced. It’s an amazing machine.
+- [24:38.110] It went 36 hours.
+- [24:40.880] We had 52 tankers up in the air loading up our planes
+- [24:44.750] because this was surrounded by F-22s and F-35s.
+- [24:48.630] And it was flawless, Tim.
+- [24:50.260] Even you would say it was flawless, Dave.
+- [24:52.580] And every one of those bombs hit their target.
+- [24:55.540] And then we had tomahawks shot in
+- [24:57.770] from a submarine 300 miles away.
+- [25:01.150] And they hit every single tomahawk hit its target.
+- [25:04.360] It was amazing.
+- [25:05.940] And that was a big threat. That was a nuclear threat.
+- [25:10.450] And here’s the new one that we just ordered.
+- [25:13.600] A large number of them. I’ll put it up.
+- [25:18.860] The Press: Mr. President, what was the breakthrough today?
+- [25:22.070] Did Vladimir Putin make some kind of concession
+- [25:24.540] that he hasn’t been willing to make before?
+- [25:26.560] The President: I don’t call it a breakthrough.
+- [25:27.850] I mean, we’ve been working on this a long time.
+- [25:29.790] There are thousands of young people dying,
+- [25:32.890] mostly soldiers, but also,
+- [25:34.310] you know, missiles being hit into Kiev and other places.
+- [25:38.210] But in terms of soldiers,
+- [25:39.840] I think Russia’s lost over 20,000
+- [25:41.910] since the beginning of the year. 20,000.
+- [25:44.470] And I guess the estimate for Ukraine is about 9,000.
+- [25:49.180] It’s a terrible situation. We want to get it stopped.
+- [25:53.420] You know, we don’t have American soldiers there,
+- [25:56.530] but I feel I have an obligation to get it stopped.
+- [25:58.610] This was not my war.
+- [25:59.820] This war would have never started, not even a chance.
+- [26:02.370] And it didn’t start for four years.
+- [26:04.580] It went four years, and it didn’t start.
+- [26:07.200] But this is Biden’s war. This was on his watch.
+- [26:12.630] And, you know, it’s funny.
+- [26:13.910] We had no land was taken from Trump.
+- [26:16.610] It was taken from Bush. It was taken from Biden.
+- [26:19.740] The whole thing would take from Biden.
+- [26:21.780] It weren’t for us.
+- [26:23.610] But it was, and it was taken by Obama.
+- [26:27.110] Take a look at what was taken
+- [26:29.180] with all of the land that was taken.
+- [26:31.290] Nothing was taken by Russia from us.
+- [26:33.200] Not one ounce of land was taken.
+- [26:36.090] I’m here to get the thing over with.
+- [26:38.620] It would have never started if I were president,
+- [26:40.900] and we’re here to get it stopped and get the death stopped.
+- [26:44.190] The Press: Yeah, please.
+- [26:45.470] I never asked you if you would know if he was acting wrong.
+- [26:50.170] What makes you most confident that he is or is he not?
+- [26:54.050] The President: Can’t answer the question yet.
+- [26:55.420] I’ll tell you in a matter of weeks, maybe less.
+- [26:58.860] But we’ve made a lot of progress.
+- [27:00.520] And as you know, we put a 50 percent tariff on India on oil.
+- [27:04.400] They’re the second largest. They’re very close to China
+- [27:06.740] in terms of the purchase of oil from Russia.
+- [27:11.070] But so I don’t know if that had anything to do with it,
+- [27:13.440] but we’ve had very productive talks today.
+- [27:15.870] The Press: President Trump, on federalizing D.C.,
+- [27:17.890] are you considering taking over the D.C. police?
+- [27:20.570] Is that an option on the table?
+- [27:21.830] The President: We’re considering it, yeah,
+- [27:23.120] because the crime is ridiculous.
+- [27:26.870] I could show you a chart comparing D.C.
+- [27:29.030] to other locations,
+- [27:30.280] and you’re not going to want to see what it looks like.
+- [27:33.130] It was just up on television, actually, they were showing it.
+- [27:36.300] Now, we want to have a great, safe capital,
+- [27:38.980] and we’re going to have it.
+- [27:40.360] And that includes cleanliness, and it includes other things.
+- [27:43.050] We have a capital that’s very unsafe.
+- [27:46.000] You know, we just almost lost a young man, beautiful,
+- [27:49.260] handsome guy that got the hell
+- [27:51.600] knocked out of him the night before last.
+- [27:55.340] And I’m going to call him now.
+- [27:58.560] We wanted to give him a little recovery time.
+- [28:01.530] We just put a call into him.
+- [28:02.750] They’re calling back in a little while,
+- [28:04.010] but he went through a bad situation,
+- [28:08.840] to put it mildly, and there’s too much of it.
+- [28:11.330] We’re going to do something about it.
+- [28:13.630] So whether you call it federalized or what,
+- [28:16.520] and that also includes the graffiti that you see,
+- [28:19.910] the papers all over the place, the roads that are in bad shape,
+- [28:23.410] the medians that are falling down,
+- [28:25.140] the median in between roads that’s falling down.
+- [28:28.180] We’re going to beautify the city.
+- [28:29.520] We’re going to make it beautiful.
+- [28:31.420] And what a shame, the rate of crime,
+- [28:35.900] the rate of muggings, killings, and everything else.
+- [28:38.380] We’re not going to let it.
+- [28:39.920] And that includes bringing in the National Guard,
+- [28:42.020] maybe very quickly too.
+- [28:43.670] And do you want Congress to look at overturning
+- [28:46.290] the D.C. Home Rule Act? We’re going to look at that.
+- [28:49.450] In fact, the lawyers are already studying it.
+- [28:52.200] We have to run D.C.
+- [28:53.830] This has to be the best run place in the country,
+- [28:56.940] not the worst run place in the country.
+- [28:59.620] And it has so much potential.
+- [29:01.780] And we’re going to take care of it.
+- [29:03.700] You’re going to be safe walking down the streets.
+- [29:06.760] You’re not going to get mugged.
+- [29:08.030] The Press: Mr. President, if you do reach a deal
+- [29:10.090] with Ukraine and Russia,
+- [29:11.530] would you drop the additional tariffs on India?
+- [29:14.190] The President: Well, we’ll determine that later.
+- [29:15.620] But right now, they’re paying a 50 percent tariff.
+- [29:18.540] Okay? Yeah, please.
+- [29:21.660] The Press: One for Mr. Cook as well.
+- [29:23.020] The President: Yeah, please, sure.
+- [29:25.080] The Press: The President wants a Made in the USA iPhone.
+- [29:28.410] What are the chances that he can actually make that happen?
+- [29:31.330] Tim Cook: Well, if you look at the bulk of it,
+- [29:33.560] we’re doing a lot of the semiconductors here.
+- [29:36.480] We’re doing the glass here. We’re doing the Face ID here.
+- [29:40.100] So there’s a ton of it.
+- [29:41.760] And we’re doing these for products
+- [29:44.300] sold elsewhere in the world.
+- [29:46.960] And so there’s a lot of content in there from the United States.
+- [29:49.480] The Press: But what about the whole thing?
+- [29:50.720] We’re very proud of it.
+- [29:52.240] Can you make the whole thing here?
+- [29:54.410] Tim Cook: And just the final assembly that you’re focused on.
+- [29:57.600] And that will be elsewhere for a while.
+- [30:01.370] The President: He makes many of the components here.
+- [30:03.820] And we’ve been talking about it.
+- [30:05.790] The final assembly is set up at other places
+- [30:08.220] and it’s been there for a long time
+- [30:10.110] so in terms of the cost at all
+- [30:11.540] but I think we may incentivize him enough
+- [30:14.700] that one day he’ll be bringing that
+- [30:16.820] but he brings most of the stuff look
+- [30:18.910] he’s not making this kind of an investment
+- [30:20.950] anywhere in the world not even close he’s coming back I mean
+- [30:24.050] Apple’s coming back to America
+- [30:31.750] The Press: Indian officials have said
+- [30:33.010] that there are other countries
+- [30:34.700] that are buying Russian oil like China for instance.
+- [30:38.860] Why are you singling India out for these additional things?
+- [30:41.800] The President: It’s only been eight hours
+- [30:44.370] so let’s see what happens over the next
+- [30:46.450] you’re going to see a lot more you’re going to see a lot more
+- [30:50.440] you’re going to see so much secondary sanctions yes ma’am.
+- [30:54.180] The Press: You were the driving force
+- [30:55.430] behind Operation Warp Speed,
+- [30:57.700] these mRNA vaccines that are the gold standard.
+- [31:01.120] Now your health secretary is pulling back
+- [31:03.960] all the funding for research.
+- [31:05.430] He’s saying that the risks outweigh the benefits
+- [31:08.450] which puts him at odds with the entire medical community
+- [31:11.470] and with you. What is going on?
+- [31:13.350] The President: Research on what? Into mRNA vaccines.
+- [31:15.760] Well we’re going to look at that we’re talking about it
+- [31:17.850] and they’re doing a very good job
+- [31:19.440] and you know that is a pass.
+- [31:22.180] Operation Warp Speed was whether you’re Republican or Democrat
+- [31:26.760] considered one of the most incredible things
+- [31:29.070] ever done in this country.
+- [31:31.090] The efficiency, the way it was done,
+- [31:34.940] the distribution everything about it was it’s been amazing,
+- [31:39.930] but you know that was now a long time ago
+- [31:43.600] and we’re on to other things,
+- [31:45.080] but we are speaking about it we have meetings about it tomorrow.
+- [31:49.120] Actually tomorrow at 12:00 and we’ll determine.
+- [31:52.410] We’re looking for other answers to other problems
+- [31:55.530] to other sicknesses and diseases
+- [31:57.440] and I think we’re doing really well.
+- [31:58.890] Yes ma’am.
+- [32:00.130] The Press: Thank you, Mr. President.
+- [32:01.500] You said many times that you want to stop wars
+- [32:04.200] in the Middle East. Now Prime Minister Netanyahu
+- [32:06.970] is contemplating re-occupying Gaza entirely.
+- [32:09.940] Does he define you sir or are you giving him a green light?
+- [32:12.900] The President: Well we have stopped wars in the Middle East
+- [32:14.770] by stopping Iran from having a nuclear weapon
+- [32:18.120] and they are you know they can say
+- [32:21.430] they’re going to start all over again
+- [32:23.110] but that’s a very dangerous thing for them to do
+- [32:25.880] because we’ll be back as soon as they start we’ll be back
+- [32:29.220] and I think they understand that it’s just words
+- [32:32.140] but no we stopped a lot of wars in the Middle East.
+- [32:36.030] If you think about what we did with Iran.
+- [32:37.730] Iran was the perpetrator of hate, a very evil place
+- [32:42.430] and I think it’s going to be a lot different
+- [32:44.610] in the coming years.
+- [32:47.990] The Press: On the India penalty, do you have any similar plans
+- [32:51.990] to enact more tariffs on China as it relates to their purchase?
+- [32:55.200] The President: Could happen. Could happen.
+- [32:56.530] Depends on how we do. Could happen.
+- [32:59.140] The Press: I’ve got an entertainment-based
+- [33:00.500] question for you.
+- [33:01.740] A few weeks ago Stephen Colbert announced
+- [33:03.550] that he was leaving his job. Howard Stern announced
+- [33:07.770] that he and Sirius XM radio are parting ways.
+- [33:11.400] Do you think the hate Trump business model
+- [33:14.240] that’s been in the entertainment business
+- [33:16.320] is going out of business
+- [33:18.230] because it’s not popular to the American people?
+- [33:20.440] The President: Well it hasn’t worked,
+- [33:21.670] and it hasn’t worked really for a long time,
+- [33:23.680] and I would say pretty much from the beginning.
+- [33:26.100] Colbert has no talent. I mean I could take anybody here
+- [33:29.140] I could go outside in the beautiful streets
+- [33:31.820] and pick a couple of people that do just as well or better.
+- [33:34.550] They get higher ratings than he did.
+- [33:36.040] He’s got no talent. Fallon has no talent.
+- [33:38.760] Kimmel has no talent. They’re next.
+- [33:40.280] They’re going to be going.
+- [33:41.510] I hear they’re going to be going.
+- [33:43.000] I don’t know but I would imagine
+- [33:44.230] because Colbert has better ratings than Kimmel or Fallon.
+- [33:48.560] You know that.
+- [33:50.240] Howard Stern is a name I haven’t heard.
+- [33:51.900] I used to do his show. We used to have fun,
+- [33:54.200] but I haven’t heard that name in a long time.
+- [33:55.780] What happened? He got terminated?
+- [33:57.580] They’re going to separate ways?
+- [33:59.020] I think what they’re offering salary wise is real low.
+- [34:02.530] You know when he went down? When he went down?
+- [34:07.320] Before when he endorsed Hillary Clinton he lost his audience.
+- [34:11.440] People said give me a break.
+- [34:13.180] He went down when he endorsed Hillary Clinton.
+- [34:16.130] The Press: Mr. President have you started
+- [34:18.320] interviewing candidates yet?
+- [34:19.800] The President: Yeah.
+- [34:21.000] We’ve started the interviewing process.
+- [34:24.130] Scott and I and Howard, a lot of people.
+- [34:27.520] J.D., we’re all -- we have some great candidates.
+- [34:31.160] It’s probably down to three. He doesn’t want the job.
+- [34:35.720] He said do you like this job better?
+- [34:37.360] Yes sir.
+- [34:38.560] I mean he was the candidate but I don’t think he’ll take it.
+- [34:43.700] I really don’t think he’d take it actually.
+- [34:45.190] The Press: Are there any candidates
+- [34:46.400] from Wall Street Mr. President?
+- [34:47.830] The President: Yeah.
+- [34:49.050] Essentially, we’re all from Wall Street aren’t we?
+- [34:51.290] You know when you get right down to it.
+- [34:52.900] The term Wall Street. Yeah please.
+- [34:54.470] The Press: You made your tax cuts permanent.
+- [34:56.330] You mentioned that the tariffs
+- [34:57.600] are bringing in a ton of external revenue.
+- [35:00.130] You’ve opened up markets.
+- [35:01.450] EU, Japan, South Korea, many others.
+- [35:04.410] American goods that we’ve never seen before.
+- [35:06.440] How much growth can we expect in the economy now
+- [35:09.390] that this model of yours is sort of beginning to really take off?
+- [35:12.480] The President: Well I think the growth
+- [35:13.690] is going to be unprecedented.
+- [35:15.550] I think we’re going to have growth that’s unbelievable.
+- [35:17.660] Now remember we’re building and just starting to build
+- [35:20.020] a lot of these incredible plants.
+- [35:22.560] We talked about the electric facilities that we’re building.
+- [35:26.130] The generating plants, electric generating plants are massive
+- [35:30.180] and they’re going to be great.
+- [35:31.470] And they’re going to sell excess electricity into our grid.
+- [35:34.250] So we’re going to be having
+- [35:35.520] much more electricity than we ever had.
+- [35:37.440] And those plants are going to be taken care of individually.
+- [35:40.370] I know Tim is building one in one of his big factories.
+- [35:43.490] But especially for AI because it needs so much electricity.
+- [35:46.990] So I appreciate the question very much
+- [35:49.860] and I think the growth is going to be unprecedented.
+- [35:54.210] The Press: Mr. President, have you spoken to Andrew Cuomo?
+- [35:58.500] The President: I haven’t. No I haven’t.
+- [35:59.970] The Press: Mr. President, have you been briefed
+- [36:01.540] on what Ghislaine Maxwell told Todd Blanche?
+- [36:04.410] The President: No I haven’t. I have not. I don’t know.
+- [36:07.630] I know Todd is a very respected person
+- [36:09.590] all over the country.
+- [36:11.130] All over the world legally still.
+- [36:12.730] I don’t know. Yeah, please go ahead.
+- [36:15.590] The Press: Will the new government be temporary?
+- [36:19.130] The President: We’re probably going to go with a temp
+- [36:21.360] and then a permanent, I think. So the temp is going to be named
+- [36:27.140] I’d say over the next two, three days.
+- [36:28.950] And then we’re going to go permanent.
+- [36:30.320] The Press: Are the two Kevins the leading contenders
+- [36:32.190] for the permanent spot for the chair?
+- [36:34.600] The President: Well, the two Kevins?
+- [36:36.450] The two Kevins are absolutely. They’re both very good.
+- [36:40.670] The two Kevins are very good.
+- [36:41.950] The Press: Mr. President, is the White House events
+- [36:43.790] hosting a gathering this evening
+- [36:45.370] to talk about how to respond to the FC situation?
+- [36:47.910] The President: Is he working on what?
+- [36:49.150] The Press: Is he hosting some kind of gathering
+- [36:50.790] of top advisors this evening
+- [36:52.760] to talk about how to respond to the FC situation?
+- [36:55.480] The President: I don’t know. I could ask you that question.
+- [36:58.430] I don’t know of it, but I think… Here’s the man right here.
+- [37:02.030] I saw it reported today and it’s completely fake news.
+- [37:05.640] We’re not meeting to talk about the FC situation.
+- [37:08.690] And I think the reporter who reported it needs
+- [37:10.940] to get better sources.
+- [37:13.050] Look, the whole thing is a hoax. It’s put out by the Democrats
+- [37:16.570] because we’ve had the most successful six months
+- [37:19.070] in the history of our country.
+- [37:28.010] Yeah, please.
+- [37:29.360] The Press: A new Gallup poll says that Elon Musk
+- [37:32.060] is the most unpopular public figure in the country right now.
+- [37:36.000] I’m wondering, do you miss having him
+- [37:37.990] around the White House or is that poll accurate?
+- [37:41.140] The President: I don’t know if the poll is accurate.
+- [37:42.540] I think he’s a good person. I think he had a bad moment.
+- [37:45.100] Really bad moment.
+- [37:47.070] But he’s a good person. I believe that.
+- [37:49.690] The Press: President Trump, are you keeping
+- [37:51.110] that 10-to-12-day deadline?
+- [37:53.120] China is a potential secondary sanction for Russian oil.
+- [37:57.370] Then having that sanction rather or not hinges
+- [37:59.980] on what’s going on.
+- [38:01.260] The President: It may happen. I mean, I don’t know.
+- [38:02.890] I can’t tell you yet, but we did it with India.
+- [38:07.520] We’re doing it probably with a couple of others.
+- [38:10.240] One of them could be China, yes.
+- [38:11.880] The Press: Are you keeping that 10-to-12-day deadline
+- [38:14.550] that you have given Russia after today’s talks?
+- [38:16.380] The President: Yeah, we’re pretty much
+- [38:17.600] getting close to it right now.
+- [38:18.960] But we’re having very serious talks right
+- [38:20.730] now about getting out of Ukraine,
+- [38:23.620] getting it settled, getting it ended.
+- [38:25.870] Should have never started. Would have never started.
+- [38:28.570] If I were president, I would have never started.
+- [38:31.180] I want to thank Tim Cook.
+- [38:32.570] He’s a great, great man, a visionary, a businessman.
+- [38:36.370] Just about every quality you can have other than athleticism.
+- [38:39.360] I don’t know. I’m looking at him.
+- [38:40.660] I’m looking at him. I’m not.
+- [38:42.140] I’m not 100 percent sure about you.
+- [38:43.830] You’re a good athlete. I’ll bet you’re pretty good.
+- [38:46.100] I think he’s good at everything.
+- [38:47.310] But I want to thank you very much, Tim.
+- [38:49.290] Congratulations. Thank you all very much.

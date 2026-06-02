@@ -1,0 +1,785 @@
+<!-- source: https://www.youtube.com/watch?v=us7F6jsRpmA -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: us7F6jsRpmA -->
+<!-- date_published: 2025-04-17T21:01:54+00:00 -->
+<!-- date_accessed: 2026-06-02T01:27:48.090524+00:00 -->
+
+# Transcript: President Trump Participates in a Bilateral Meeting with the Prime Minister of Italy, Apr. 17, 2025
+
+- [00:00.400] Thank you very much everybody. And I've
+- [00:02.000] been briefed on the Florida State
+- [00:04.240] University
+- [00:06.359] Tallahassee active shooting. I guess
+- [00:08.639] it's an active shooter. Uh fully brief
+- [00:12.559] briefed as to where we are right now.
+- [00:14.639] It's a shame. It's a horrible thing.
+- [00:16.960] Horrible that things like this take
+- [00:19.320] place and we'll have more to say about
+- [00:21.920] it later. In the meantime, it's an honor
+- [00:24.880] to have the prime minister of Italy with
+- [00:27.840] us, Prime Minister Maloney, who's uh
+- [00:31.119] doing a fantastic job. I would say that
+- [00:33.360] she has taken Europe by storm and highly
+- [00:37.120] respected. Everybody loves her and
+- [00:39.760] respects her and I can't say that about
+- [00:41.600] many people. And uh she's become a
+- [00:44.960] friend and we really have a great
+- [00:47.680] relationship uh between Italy and
+- [00:50.399] ourselves. and we talked about trade. We
+- [00:53.199] talked about many many things during our
+- [00:56.320] lunchon and
+- [00:57.960] uh she'll be saying a few words but
+- [01:00.399] she's a very special person and it's
+- [01:02.160] nice to have you with us. Thank you very
+- [01:03.840] much. Thank you very much Mr. President.
+- [01:06.720] Thank you for your warm welcome. Thank
+- [01:09.760] you for this occasion which is aimed to
+- [01:12.240] strengthen our relation, our friendship
+- [01:14.640] that comes from very far. You know,
+- [01:16.799] today is April 17 and April 17 marks the
+- [01:21.200] anniversary of the uh agreement that
+- [01:24.240] allowed Christopher Columbbo to make his
+- [01:26.880] trip. And I say to remember our ancient
+- [01:30.960] our ties, but also to remind that we
+- [01:34.880] both share another fight which is the
+- [01:37.200] fight against the uh war and ADI
+- [01:41.520] ideology that would like to erase our
+- [01:43.880] history. And as I know that uh we share
+- [01:47.360] lots of uh things on uh tackling illegal
+- [01:51.000] migration uh on uh uh fighting against
+- [01:54.640] synthetic drugs. You know, Italy has
+- [01:56.399] been one of the nation that made a plan
+- [01:59.600] against fentinel, for example, but we
+- [02:02.799] have been talking about many uh
+- [02:05.840] bilateral uh topics and things that we
+- [02:08.239] can do together, right? About uh
+- [02:11.360] defense, about economic uh uh about
+- [02:15.520] economy, about space, about
+- [02:18.360] energy. Uh Italy will have to increase
+- [02:21.840] it uh its uh LNG imports.
+- [02:26.000] uh and also nuclear that we are trying
+- [02:28.480] to develop. I think there can be ways to
+- [02:31.280] work together and the Italian
+- [02:34.319] enterprises will
+- [02:36.959] uh invest as they've been doing for many
+- [02:40.720] years as you know in the next years I
+- [02:43.599] think around 10 billions. Uh that shows
+- [02:46.160] how interconnected our economies are and
+- [02:49.440] that's very important Mr. president.
+- [02:51.200] It's not only about Italy, it's about uh
+- [02:54.400] the entire Europe. The exchange between
+- [02:56.720] us is uh uh is a very big one. uh uh
+- [03:02.360] investments uh trade uh it's a topic
+- [03:05.680] that we are discussing in this week but
+- [03:08.720] at the end of the day look somebody
+- [03:10.319] calls me I was saying it before such a
+- [03:12.959] western nationalism I don't know if it
+- [03:14.959] is the right word but I I know that when
+- [03:17.920] I speak about west mainly I don't speak
+- [03:20.080] about a geographical space I speak about
+- [03:22.560] a
+- [03:23.319] civilization and I want to make that
+- [03:25.519] civilization stronger so I think even if
+- [03:28.239] we have some problems Okay. Uh between
+- [03:31.519] the two shores of the Atlantan take it
+- [03:33.519] as the time that we try to sit down and
+- [03:36.959] and find solutions. So I want to thank
+- [03:39.360] President Trump for uh having accepted
+- [03:42.239] an invitation to pay an official visit
+- [03:44.400] to Rome in the in the near future and
+- [03:46.959] consider a possibility in that occasion
+- [03:49.120] to meet also with Europe. Uh the goal
+- [03:52.799] for me is to make the West great again.
+- [03:55.440] Okay. And I think we can do it together.
+- [03:57.519] we can uh and and uh uh we will keep on
+- [04:01.360] work on on that. I I'm I'm going to
+- [04:03.519] close. I want to say only I'm proud of
+- [04:05.760] sitting here as prime minister of an
+- [04:07.599] Italy that today
+- [04:09.840] uh as very good uh as a very good
+- [04:13.519] situation despite the difficulties a
+- [04:15.439] stable country reliable country 1
+- [04:18.479] million more jobs in the last two years
+- [04:21.359] and a half. Great. Uh inflation is going
+- [04:24.080] down. So you forgive me if I promote a
+- [04:27.600] bit my country but you're a businessman
+- [04:29.600] and you understand me. So migration
+- [04:32.400] flows going down 60%. So we are trying
+- [04:35.520] to do our best but I think we can do it
+- [04:37.360] even better together. Also on Ukraine I
+- [04:39.680] will close uh together we've been
+- [04:41.440] defending the freedom of Ukraine.
+- [04:42.800] Together we can build a just and lasting
+- [04:44.639] peace. We support your efforts Donald.
+- [04:47.280] Good. Thank you. Thank you very much.
+- [04:48.960] And I think we're doing well in that
+- [04:51.040] effort, but we want to get it done. And
+- [04:53.280] we'll see if we can. We want to save on
+- [04:56.240] average, think of it, every week 2,500
+- [04:59.120] people are being killed. Mostly
+- [05:00.560] soldiers, Russian, Ukrainian soldiers.
+- [05:03.360] And if we can save those lives, that'll
+- [05:05.600] be a very good thing. And so we'll see
+- [05:07.360] what we can do. And I think we're
+- [05:08.960] getting close, but we'll we'll let you
+- [05:11.199] know very soon. And you've been very
+- [05:12.560] helpful. I appreciate it. Thank you. Any
+- [05:14.880] questions?
+- [05:16.120] Mr. Russia, Mr. President, how much
+- [05:19.520] longer does Vladimir Putin have to
+- [05:22.800] respond to your ceasefire proposal
+- [05:25.039] before you put secondary terrorists or
+- [05:27.600] sanctions on Russia? We'll see what that
+- [05:30.320] will be. Uh we're going to be hearing
+- [05:32.080] from them uh this week uh very shortly
+- [05:36.240] actually and we'll see. But we want it
+- [05:38.960] to stop. We want the death and the
+- [05:41.039] killing to stop.
+- [05:43.360] on Jerome Pow. On Jerome Powell, you
+- [05:45.440] said that the termination of Jerome
+- [05:46.880] Powell cannot come fast enough. He says
+- [05:49.039] he won't leave even even if you ask him
+- [05:50.880] to. Oh, he'll leave. If I ask him to,
+- [05:53.199] he'll be out of there. But do you
+- [05:54.400] believe I don't think he's trying to do
+- [05:56.960] that? I don't think he's doing the job.
+- [05:59.199] He's uh too late. Always too late. A
+- [06:01.919] little slow. And I'm not happy with him.
+- [06:05.680] Uh I let him know it. And uh oh, if I
+- [06:10.319] want him out, he'll be out of there real
+- [06:11.840] fast. Believe me. Yeah. Go ahead. Go
+- [06:14.720] ahead, please. Question. Are you trying
+- [06:16.960] to remove him, Mr. President? Yeah.
+- [06:18.479] Question, Mr. Judge Boseberg uh in a
+- [06:22.880] case against your your administration
+- [06:24.880] said the Constitution does not tolerate
+- [06:26.400] willful disobedience of judicial order.
+- [06:29.039] Do you agree with that statement? Well,
+- [06:30.560] you're going to have to speak to the
+- [06:31.440] lawyers. We have great lawyers. Uh, I
+- [06:34.160] can tell you this. We're doing a
+- [06:35.600] fantastic job of getting criminals out
+- [06:37.600] of this country who Biden allowed into
+- [06:39.919] the country. Hundreds of thousands of
+- [06:42.720] criminals, murderers, and drug dealers.
+- [06:46.319] And I was elected because of the fact, I
+- [06:49.759] would say maybe that was the number one
+- [06:51.199] fact for a lot of reasons, the economy,
+- [06:53.039] a lot of things. But one of the primary
+- [06:55.280] reasons I was elected is because I said
+- [06:57.680] I'm going to get the criminals that he
+- [06:59.199] allowed to come into our country so
+- [07:00.880] stupidly through open borders. I'm going
+- [07:03.759] to get them out and I got a lot of
+- [07:07.440] votes. Record setting numbers of votes
+- [07:09.520] as you know. We want everything. The
+- [07:11.039] popular vote, all seven swing states, we
+- [07:13.840] want everything. And uh that's what the
+- [07:16.479] public wanted. That's what I'm doing.
+- [07:18.479] But you'll have to speak to the lawyers
+- [07:20.000] because it's up to them.
+- [07:22.479] the proposal from France. What do you
+- [07:24.639] think of the proposal from France and UK
+- [07:26.560] of a peace mission um in Ukraine with
+- [07:30.080] soldiers? And do you think that Italy
+- [07:31.520] should take harmony?
+- [07:33.919] Well, I think Italy will have to make
+- [07:35.360] that determination. But peace missions
+- [07:37.840] are always good with me. I'm okay with
+- [07:39.599] peace missions. Yeah, please. Mr.
+- [07:41.599] President, have you discussed what areas
+- [07:43.280] of cooperation have discussed with the
+- [07:45.599] prime minister Italy and the United
+- [07:47.840] States of Europe and the United States
+- [07:49.840] and on China? We discussed it very
+- [07:51.919] briefly. No, we're doing very well with
+- [07:54.080] negotiations, I think, with all
+- [07:55.960] countries and uh Scott could uh tell you
+- [07:59.759] a little bit, but we are doing very
+- [08:01.280] well. We have a lot of countries that
+- [08:03.520] want to make a deal. Frankly, they want
+- [08:05.360] to make deals more than I do. Go ahead,
+- [08:07.280] Scott. Would you say something? Yeah,
+- [08:08.960] we've got a process in place. We're
+- [08:10.639] working on the the big 15 economies
+- [08:13.840] first. We had a fantastic meeting with
+- [08:16.479] Japan yesterday. I believe there have
+- [08:18.800] been calls with the EU already and then
+- [08:21.599] we have South Korea coming in next week
+- [08:24.080] and I believe India is also uh talking
+- [08:28.639] that's moving very quickly
+- [08:33.599] Ukraine sir President Zilinski has said
+- [08:36.000] he has evidence that China is supplying
+- [08:38.240] weaponry or ammunition uh to Russia. Do
+- [08:41.519] you have any evidence along those lines?
+- [08:43.120] And also he said we could see a minerals
+- [08:45.040] deal signed this week. Well, we have a
+- [08:47.279] minerals deal which I guess is going to
+- [08:48.959] be signed on Thursday. Scott, next
+- [08:50.880] Thursday soon. And uh I assume they're
+- [08:54.640] going to live up to the deal. So, we'll
+- [08:56.160] see. But, uh we have a deal on that. Uh
+- [09:00.000] no, I have no comment on that. I have no
+- [09:01.920] idea. That's his statement, not mine.
+- [09:04.560] Mr.
+- [09:05.720] President, you waved off the Israeli
+- [09:08.080] attack on Iranian nuclear facilities.
+- [09:10.560] Can you comment on that? Is that
+- [09:11.600] accurate?
+- [09:13.200] And they say the attack is what? That
+- [09:15.120] you waved off an Israeli plan to attack
+- [09:17.760] Iranian nuclear facilities. Uh I
+- [09:20.160] wouldn't say waved off. I'm not in a
+- [09:22.160] rush to do it because I think that Iran
+- [09:24.720] has a chance to have a great country and
+- [09:27.680] uh to live happily without death and I'd
+- [09:31.120] like to see that. That's my first
+- [09:32.560] option. Uh if there's a second option,
+- [09:36.399] uh I think it would be very bad for
+- [09:38.760] Iran and I think Iran is wanting to
+- [09:43.000] talk. I hope they're wanting to talk.
+- [09:45.360] It's going to be very good for them if
+- [09:46.800] they do. And I'd like to see Iran be
+- [09:49.360] thrive in the future, do fantastically
+- [09:52.240] well. I know the Iranian people, they're
+- [09:54.720] incredible people. Always have been very
+- [09:57.279] smart, very energetic, very successful
+- [09:59.600] people. And I don't want to do anything
+- [10:03.360] that's going to hurt anybody. I really
+- [10:05.200] don't. But uh Iran can't have a nuclear
+- [10:07.920] weapon. It's, you know, pretty simple.
+- [10:09.920] It's really simple. We're not looking to
+- [10:12.560] take their industry. We're not looking
+- [10:15.120] to take their land. We're not all we're
+- [10:17.920] saying is we you can't have a nuclear
+- [10:19.640] weapon. The deal that was made, the deal
+- [10:22.880] that was made with Obama, that deal
+- [10:25.360] would have expired already. It was a
+- [10:26.959] terrible deal. It was a It was would
+- [10:28.800] have expired. And that gave them a clear
+- [10:31.920] path to a nuclear weapon. I wouldn't
+- [10:33.839] have accepted. That's why I terminated
+- [10:35.519] the deal. Number one, it was way too
+- [10:37.040] short. You know, when countries are
+- [10:39.519] involved, you don't make short-term
+- [10:41.519] deals. These are countries with long
+- [10:43.560] lives. And uh I terminated that. And it
+- [10:47.680] was a great termination because it
+- [10:49.519] didn't allow us to do anything. Once it
+- [10:51.279] terminated, you know what the deal was?
+- [10:52.800] It was a terrible deal. Really, one of
+- [10:55.600] many terrible deals made by the US. Uh
+- [10:58.720] but no, I want uh I'd like to see Iran
+- [11:02.279] thrive and they can do that I think very
+- [11:05.519] easily or they can do it the other way
+- [11:08.240] and the other way is not going to be
+- [11:09.360] good for them. It's going to be really
+- [11:10.959] bad for them.
+- [11:16.399] CEO going to China met with trade
+- [11:18.240] officials there. Well, Jensen's an
+- [11:20.720] amazing guy. He's become a friend of
+- [11:22.480] mine and I don't know, he's a person
+- [11:26.160] that's very proud of our country. He
+- [11:27.600] loves our country. I'm not worried about
+- [11:29.040] Jensen at all. Mr. President, we're
+- [11:32.680] holding Joe in contempt. Will you take
+- [11:36.000] steps to return Kilmar Ago Garcia to the
+- [11:39.040] United States and put him in front of a
+- [11:40.560] judge? Well, I'm not involved in it. I'm
+- [11:42.880] going to respond that by saying you'll
+- [11:45.279] have to speak to the lawyers, the DOJ.
+- [11:48.320] I've heard many things about him and uh
+- [11:51.920] we'll have to find out what the truth
+- [11:54.640] is. But I will say this, you know, we're
+- [11:59.200] we were inundated by millions of people,
+- [12:01.680] many millions of people during the Biden
+- [12:03.519] administration. They say 21
+- [12:05.720] million. And a big percentage of those
+- [12:09.200] are criminals, serious criminals. I'm
+- [12:11.279] not saying just criminal because they
+- [12:12.720] came into the border illegally. I'm
+- [12:15.120] saying they're criminals at the highest
+- [12:17.440] level, murderers. Many of those people
+- [12:19.920] murdered more than one person and
+- [12:22.000] they're on the
+- [12:23.000] loose. And I was elected to get rid of
+- [12:25.760] those criminals to get them out of our
+- [12:27.480] country or to put them away, but to get
+- [12:29.839] them out of our country. And I don't see
+- [12:32.800] how judges can take that authority away
+- [12:35.200] from a president. We've done an amazing
+- [12:37.200] job. Tom Hman, Christine Nome, the We
+- [12:40.720] have done an amazing job. Nobody can
+- [12:42.480] believe the job we've done. Far greater
+- [12:44.880] than what I said. I mean, I got elected
+- [12:46.560] on that, but we've done much better. We
+- [12:48.160] have right now 99% border. It's a 99%.
+- [12:52.079] Nobody thought that would even be part.
+- [12:53.600] Nobody's coming through our border
+- [12:55.720] practically. Uh two weeks ago we had
+- [12:58.079] nine people come through all for medical
+- [13:00.000] reasons. We allowed them. We brought
+- [13:01.440] them through because one had a heart
+- [13:03.519] attack, one had something else. Uh all
+- [13:06.399] for medical reasons. We have a great
+- [13:08.880] border. We had a great border four years
+- [13:10.760] ago, but we have a border now that's
+- [13:13.440] even tighter. And we did that in a
+- [13:15.200] matter of weeks.
+- [13:17.200] And uh no, we have to we we need we need
+- [13:21.600] to get murderers and drug dealers and
+- [13:24.160] people that were in jail for horrible
+- [13:26.560] you know they released
+- [13:28.680] jails Georgia from all over the world
+- [13:31.279] and released them not just South America
+- [13:33.680] all over the world the Congo and Africa
+- [13:36.639] many many people come from the Congo I
+- [13:38.480] don't know what that is but they came
+- [13:40.240] from the Congo and all over the world
+- [13:43.120] they came in opened their jails
+- [13:45.560] Venezuela pract practically all of their
+- [13:47.600] prisoners released into our country. We
+- [13:49.440] took them because we had an incompetent
+- [13:52.200] administration called the Biden
+- [13:55.240] administration. And to think what
+- [13:57.279] they've done to our country and I was
+- [14:00.000] elected to straighten that out and I'm
+- [14:02.639] doing that. But we have activist judges
+- [14:05.680] that don't want murderers to be sent out
+- [14:08.720] of our country. They don't want killers
+- [14:10.880] and drug dealers and drug lords and
+- [14:13.360] people from mental institutions. They
+- [14:15.440] want them to stay in our country. I
+- [14:16.959] guess I don't know. Maybe that's the
+- [14:18.880] liberal way or as they call it nowadays
+- [14:21.120] the progressive way. But I don't think
+- [14:23.920] it's the way that our country believes
+- [14:25.440] and that's why I won in a landslide.
+- [14:30.959] Back on. Mr. President, you did say that
+- [14:33.120] you were confident these deals will be
+- [14:34.639] done, but you also said that you're in
+- [14:35.920] no rush. Americans are seeing prices
+- [14:37.839] rise. They're seeing it on their bills.
+- [14:39.680] How long can they expect that pain to
+- [14:42.560] last? So, uh, they've already seen it
+- [14:45.600] get much better because if you were
+- [14:48.079] truthful, which you're not, you know, I
+- [14:49.760] know you very well, uh, you have
+- [14:52.519] gasoline that hit a $1.98 yesterday in a
+- [14:56.720] couple of states. You have gasoline's
+- [14:58.959] way down. The price of oil has dropped
+- [15:01.639] substantially. Uh, the price of
+- [15:04.000] groceries are substantially down. The,
+- [15:07.360] uh, the price of eggs, you know, when I
+- [15:09.600] came in, I they hit me with eggs. I just
+- [15:12.480] got there. I was here for one week and
+- [15:14.160] they started screaming at me. Eggs have
+- [15:15.839] gone through the roof. I said, 'I just
+- [15:17.600] got here. I was there for seven days and
+- [15:20.000] I hear that eggs have gone through the
+- [15:22.240] roof before I got there. And they were
+- [15:24.480] screaming at me. The press, the fake
+- [15:26.320] news like you, you're fake. And the fake
+- [15:28.639] news is screaming at me like about eggs.
+- [15:31.760] I said, "I've only been here. I just
+- [15:33.600] This is my seventh day." And they were
+- [15:36.160] right. They went up 87% and you couldn't
+- [15:38.639] get them. They said, "You won't have
+- [15:39.760] eggs for Easter," which is coming up.
+- [15:41.920] Happy Easter, everybody. You won't have
+- [15:44.000] eggs for Easter. And we did an
+- [15:46.399] unbelievable job. And now eggs are all
+- [15:48.639] over the place. And the price went down
+- [15:51.480] 92%. And our commissioner of
+- [15:53.880] agriculture, Brooke, has done a uh
+- [15:57.440] fantastic job. Did really done a
+- [15:59.360] fantastic job. So prices haven't gone
+- [16:01.279] up. The only thing that's gone up
+- [16:02.720] actually is uh interest rates because we
+- [16:05.360] have a Federal Reserve chairman that is
+- [16:08.000] playing politics. Uh somebody that I've
+- [16:10.959] never been very fond of actually, but uh
+- [16:13.759] he's playing politics. Interest rates
+- [16:16.320] should be down now. They should be
+- [16:17.759] coming down. Uh in Europe, as you know,
+- [16:20.320] they reduced them, I guess, seven times.
+- [16:23.279] It looks like they're going to reduce
+- [16:24.399] them again and again and again. But our
+- [16:26.880] guy wants to play cute. But
+- [16:29.880] uh interest rates are pretty much even.
+- [16:33.040] Maybe they went up just a slight bit,
+- [16:34.639] but that's the only thing. But that's
+- [16:35.920] because of the Federal Reserve because
+- [16:38.560] they're not very smart people.
+- [16:43.440] Go ahead. Yes, sir. Please. Go ahead.
+- [16:46.000] Please nominating him.
+- [16:49.639] Uh look, in the first four years, we had
+- [16:53.120] the greatest economy in the history of
+- [16:54.720] our country. Stock market went up 88
+- [16:56.880] points. Uh, I think he's terrible, but I
+- [17:00.399] can't complain because we had the most
+- [17:02.079] successful administration economically
+- [17:04.000] in the history of our country. Uh, I
+- [17:06.640] think we're going to do even better this
+- [17:08.160] time because you will see that the
+- [17:11.120] numbers that were taken in are
+- [17:12.480] astronomical. We're taking in tremendous
+- [17:14.720] amounts of money with the tariffs. We
+- [17:16.959] were treated very unfairly on trade and
+- [17:20.880] countries are get having a hard time
+- [17:22.559] getting used to the fact that they can't
+- [17:24.079] do that to us anymore because we have a
+- [17:26.319] real president. We have a president that
+- [17:28.760] understands what it's all about. We had
+- [17:31.280] presidents that in some
+- [17:33.240] cases were smart, but they didn't
+- [17:35.919] understand business or they didn't like
+- [17:37.679] business or, you know, it wasn't like a
+- [17:39.640] priority. And then you had like the last
+- [17:41.919] administration, the only thing they were
+- [17:43.520] good at was cheating in elections.
+- [17:45.120] That's about all they could do. They
+- [17:46.320] couldn't do anything. They were useless.
+- [17:47.600] They were incompetent. Worst
+- [17:49.039] administration in the history of our
+- [17:51.280] country. Worse than Jimmy Carter. Jimmy
+- [17:53.440] Carter died a happy man. You know why?
+- [17:56.799] because he wasn't the worst president.
+- [17:59.120] Joe Biden
+- [18:00.360] was. So, uh, I think you're going to see
+- [18:03.840] some fantastic numbers when this all
+- [18:06.000] happens. It's happening now. I mean,
+- [18:07.679] everybody wants to make a deal. And if
+- [18:09.280] they don't want to make a deal, we'll
+- [18:10.880] make the deal for them because that's
+- [18:12.640] what's going to happen. We'll just say
+- [18:14.960] this is what it is. But we want to
+- [18:16.559] listen to everybody. And I
+- [18:18.280] I
+- [18:19.799] think I think I can I think I can say
+- [18:23.200] for Scott and the other people that are
+- [18:25.039] working on it that uh we're listening
+- [18:28.000] and uh we're going to be very fair to
+- [18:30.559] people. But you know, we're the one that
+- [18:32.240] really sets the deal and that's what
+- [18:34.400] we'll be
+- [18:36.520] doing. Go ahead, please.
+- [18:40.520] Question our prime minister. Oh, you
+- [18:43.280] have a great prime minister. You're so
+- [18:44.880] lucky. Yes.
+- [18:46.640] Oh yes, that's right. Okay. I'm not sure
+- [18:48.960] that what
+- [19:05.980] [Music]
+- [19:42.520] Vista.chech.
+- [20:05.799] Uh, I I that sounded absolut That was so
+- [20:10.799] beautiful. What the hell?
+- [20:13.200] What did she say? Please. No, I mean it
+- [20:16.240] sounded great. It was about It was
+- [20:18.160] beautifully presented, but maybe I could
+- [20:22.400] hear what you said.
+- [20:25.360] Go ahead.
+- [20:28.159] Hold it. Hold it. Have some respect,
+- [20:29.760] please. Thank you. No, no, wait. I want
+- [20:33.679] to hear what she said.
+- [20:36.400] Go ahead.
+- [20:37.320] Yeah, President Prime Minister Malone
+- [20:40.080] was asked whether what she thinks about
+- [20:41.840] the fact that President Trump holds
+- [20:45.039] Zilinski responsible for the the war in
+- [20:48.640] Ukraine. And Prime Minister Maloney
+- [20:51.520] answered
+- [20:52.600] well actually we um we have a um no and
+- [20:59.440] and and also if you talked about the
+- [21:01.960] military spending how and the raising of
+- [21:04.799] the military spending and the fact and
+- [21:07.760] the first thing president prime minister
+- [21:09.840] Moroni said is that no actually we
+- [21:12.559] didn't talk about the raise of military
+- [21:14.480] spending. Of course, Italy will keep uh
+- [21:16.640] its commitments with 2% and then we will
+- [21:19.840] see because we are absolutely aware of
+- [21:21.760] the fact that it is very important to uh
+- [21:24.960] to Well, I will do that. Defense is very
+- [21:26.799] important. Wait, wait, wait. I will do
+- [21:27.919] that. They've been asking if we raise if
+- [21:30.240] we decided another percentage about the
+- [21:33.840] this defense expendit spendings and I
+- [21:36.240] said yes NATO and I said that Italy is
+- [21:39.280] uh reaching the 2% as it it was already
+- [21:42.640] decided. We didn't speak about a spe spe
+- [21:45.360] spe spe spe spe spe spe spe spe spe spe
+- [21:45.360] spe spe spe spe spe spe spe spe spe spe
+- [21:45.440] spe spe spe spe spe spe spe spe spe spe
+- [21:45.440] spe spe spe spe spe spe spe spe specific
+- [21:46.320] other percentage but we are aware of the
+- [21:48.559] fact that defense is important uh for
+- [21:51.679] the future and we see what also the the
+- [21:53.919] work that we are trying to do at the
+- [21:55.520] European level
+- [21:57.600] and I don't hold I don't hold Zalinski
+- [22:00.320] responsible but uh I'm not exactly
+- [22:04.480] thrilled with the fact that that war
+- [22:06.480] started. That was a war that would have
+- [22:08.159] never started if I were president. You'd
+- [22:10.880] have millions of people living right now
+- [22:12.640] that are dead. You'd have cities that
+- [22:14.720] would be open and thriving and they'd
+- [22:16.400] have their beautiful turrets. Those
+- [22:18.240] turrets are the most beautiful in the
+- [22:19.919] world, but they're not with us any
+- [22:21.919] longer. They're smashed to smitherreens
+- [22:25.120] laying on the ground in a million pieces
+- [22:27.520] getting hit by rockets, bombs, and
+- [22:30.039] bullets. And uh so I'm not happy with
+- [22:33.240] him and I'm not happy with anybody
+- [22:35.840] involved. I think it's a war. I know
+- [22:38.000] it's a war. It didn't happen for four
+- [22:39.840] years. is it was never close to
+- [22:41.039] happening. It was never even a thought.
+- [22:43.360] And I spoke to President Putin about it
+- [22:45.360] a lot. It was the apple of his eye, but
+- [22:47.039] there's no way he would have ever gone
+- [22:48.400] in if I were president. Now I'm trying
+- [22:50.720] to get him to stop. Uh because, as you
+- [22:54.240] know, Russia's a lot bigger. It's a
+- [22:57.760] bigger military force. And if you're
+- [23:01.600] smart, you don't go involved and get
+- [23:04.080] involved in wars that uh you can blame
+- [23:07.440] the man that was sitting in this seat,
+- [23:09.600] Biden. He didn't know what the hell was
+- [23:11.360] going on. But I can guarantee you that
+- [23:13.760] and everybody agrees to it. If I were
+- [23:15.600] president, that war would have never
+- [23:17.039] taken place. I'm not blaming him. But
+- [23:19.679] what I am saying is that uh I wouldn't
+- [23:22.240] say he's done the greatest job. Okay?
+- [23:24.960] I'm not a big fan. I really am. I'm not
+- [23:27.120] a big fan.
+- [23:32.510] [Music]
+- [23:34.640] Go ahead. Go
+- [23:41.720] ahead. Mr.
+- [23:43.799] President, are you sure about the
+- [23:46.159] definition of parasite European? Would
+- [23:48.960] you say again that European parasites?
+- [23:52.000] Never said would you say again? Have you
+- [23:54.640] Have you said that Europeans are
+- [23:56.240] parasites? Yeah. Have you seen it? No, I
+- [23:58.960] haven't said I don't know what I don't
+- [24:00.559] even know what you're talking about.
+- [24:03.360] Go ahead, please. Go ahead.
+- [24:07.280] No, no, wait. Wait. Next. Next. Next.
+- [24:10.080] Go. Thank you. Prime Minister Millie
+- [24:12.320] just said um we want to make uh Europe
+- [24:15.520] great again. And we want to do it
+- [24:16.880] together.
+- [24:18.400] West. Did you I guess that's that's what
+- [24:20.960] you said. Uh Mr. Prime Minister. Um how
+- [24:23.760] are you going to do that? and are you
+- [24:25.440] looking to do it to counter China who is
+- [24:28.799] really trying to gather influence
+- [24:32.159] against the United States with the help
+- [24:34.320] of this? I hope that Europe is going to
+- [24:37.039] be great again. Europe has gone through
+- [24:38.640] a lot of problems and a lot of it's
+- [24:40.559] having to do with immigration and I'm
+- [24:43.120] not a big fan of Europe uh and what
+- [24:45.039] they've done with immigration at all and
+- [24:48.000] uh I think they got to get smart because
+- [24:50.799] uh Europe is being very badly hurt by
+- [24:52.960] what they've done with immigration. Now,
+- [24:54.640] I'll say this that the prime minister
+- [24:56.720] has taken a very tough stand on uh
+- [24:59.960] immigration and I commented to her
+- [25:02.400] before. I I said I wish more people
+- [25:04.240] would be like you having to do with that
+- [25:05.919] subject, but uh they're not. Uh Europe
+- [25:09.360] is very important to me. Europe is very
+- [25:11.760] important to the world. I want Europe to
+- [25:13.440] do very well. I think they have to get a
+- [25:15.520] lot smarter on immigration. But we are
+- [25:18.400] we are beginning do it doing it. You've
+- [25:20.559] seen you've all seen how the the
+- [25:22.559] policies of the European Union in the
+- [25:24.320] last let's say two and a half years have
+- [25:26.720] been changing. Okay. At the beginning we
+- [25:28.640] were talking only about how we were
+- [25:31.440] redistributing illegal migrants coming
+- [25:33.760] to Italy. Now we are talking mainly
+- [25:36.240] about how to stop illegal migration work
+- [25:39.200] with the uh countries of origin and
+- [25:41.360] transit and to return people. uh uh the
+- [25:44.159] com the European Commission just did the
+- [25:46.080] new uh rules about uh repatriations and
+- [25:49.760] things like that. So things are changing
+- [25:52.320] thanks also to the uh example that Italy
+- [25:54.960] brought in in lowering lowering the
+- [25:57.440] rates of illegal migration. So they uh
+- [26:01.440] we are working now together. So I'm I'm
+- [26:03.760] optimistic on that.
+- [26:07.080] Good. Go ahead. Go ahead. I'd like to
+- [26:11.440] ask I would like to ask President
+- [26:13.039] Maloney if you have discussed the option
+- [26:15.200] of starting with Italy communications
+- [26:18.559] and President Trump um if you want to
+- [26:21.360] see the Google company broken up
+- [26:24.400] the Google what the Google company what
+- [26:26.960] about Google business
+- [26:30.320] go ahead please oh well we didn't
+- [26:32.480] discuss about about Starlink uh we we've
+- [26:35.760] been discussing about uh defense space
+- [26:38.559] uh There are we will work together also
+- [26:41.200] in the Mars missions. Uh so there are
+- [26:44.480] big big uh things to do together but we
+- [26:46.960] didn't discuss it.
+- [26:53.360] The prime minister that changed your
+- [26:54.960] mind potentially about tariffs and what
+- [26:56.880] you plan to do going forward. Is there
+- [26:58.400] anything the prime minister said to you
+- [26:59.840] that changed your perspective? No.
+- [27:01.200] Tariffs are making us rich. We were uh
+- [27:04.799] losing a lot of money under Biden.
+- [27:07.279] Trillions of dollars. trillions on
+- [27:09.960] trade. And now that's that whole tide
+- [27:13.039] has turned. We're making a lot of money.
+- [27:15.679] We're taking in a lot of money. Don't
+- [27:16.880] forget, we're taking in 25% on cars, 25%
+- [27:20.640] on steel, 25% on aluminum, 10%
+- [27:24.279] baseline. Uh we put penalties on China
+- [27:27.120] for sending us fentinol. We put
+- [27:29.279] penalties on Mexico and Canada, 25% for
+- [27:33.600] for uh allowing fentanyl and allowing
+- [27:37.200] the borders to be weak. Uh no, we're
+- [27:40.080] taking in billions and billions of
+- [27:41.679] dollars while I sit here and talk to
+- [27:44.440] you. And uh we didn't do we didn't take
+- [27:47.120] in anything before other than the
+- [27:48.640] tariffs that I put on previous to Biden,
+- [27:51.200] which were the tariffs I put on China
+- [27:53.039] where we took in up until this point
+- [27:55.279] probably $700 billion.
+- [27:58.000] They were Trump tariffs. He tried to
+- [27:59.840] weaken them. He did everything he could.
+- [28:02.480] You know, he got paid money by China,
+- [28:04.080] right? Family got paid money. He did.
+- [28:07.200] And uh so I don't know, maybe that was
+- [28:09.600] the reason or maybe it wasn't. But he
+- [28:11.840] tried to weaken them, but he couldn't
+- [28:13.120] because it was so much money that his
+- [28:15.159] budgets, you know, they couldn't stand
+- [28:17.520] not doing it. But I took in in the up
+- [28:22.640] till this point my tariffs on China.
+- [28:25.760] Nobody ever took in 10 cents from China.
+- [28:27.840] No other president took in 10 cents. I
+- [28:29.760] took in more than $700 billion from
+- [28:32.720] China. So, we're uh we're doing very
+- [28:35.919] well. I mean, our our country is doing
+- [28:37.760] very well. They had a bad report today
+- [28:40.559] from one of the uh healthc care
+- [28:42.480] companies that had an impact on the
+- [28:44.720] stock market. But this isn't about that.
+- [28:47.120] This is really we're building a base.
+- [28:48.960] We're building a country like no other.
+- [28:51.200] And again, I had the I had the strongest
+- [28:53.120] economy in the history of our country by
+- [28:55.120] far. History of any country probably,
+- [28:57.200] but the history of our country in four
+- [28:59.080] years. And I think this has a chance to
+- [29:01.600] be much better.
+- [29:07.840] Will that be signed here at the White
+- [29:09.279] House with Ukraine on Thursday? Will
+- [29:11.200] President be coming here for that? I
+- [29:12.960] don't know exactly. I'm going to leave
+- [29:14.159] that to Scott. What do you think? Where
+- [29:15.919] would it be signed and when? Yeah, we're
+- [29:18.080] still working on the details. We're
+- [29:19.440] shooting for around April 26th. Is there
+- [29:21.840] any more details that you could tell us
+- [29:23.039] about what's in that deal and how it
+- [29:24.320] came together?
+- [29:26.080] It it's substantially what we'd agreed
+- [29:28.880] on previously. When the uh president was
+- [29:31.840] here, we had a memorandum of
+- [29:33.760] understanding. We went straight to the
+- [29:35.760] big deal and the uh I think it's an
+- [29:38.559] 80page agreement and that's what will be
+- [29:40.480] signed. President Trump
+- [29:44.360] on can you clarify on rate cuts? Do you
+- [29:47.279] intend to seek Powell's firing if he
+- [29:50.159] doesn't change his stance on rate cuts
+- [29:52.559] or is that is that on the table or is it
+- [29:54.240] on Well, I think he should do the rate
+- [29:55.919] cuts because I think uh if Europe has
+- [29:58.960] done it, it puts us at a disadvantage to
+- [30:01.120] Europe. I mean, he plays right into
+- [30:03.039] their hands. So, I think he should do
+- [30:05.279] the rate cuts. We don't have really
+- [30:06.799] inflation now. I just said the major
+- [30:09.840] things are going down. Oil is great. Oil
+- [30:13.279] is way ahead of schedule and that's
+- [30:15.520] because of our policies. But oil is down
+- [30:18.080] into the uh $60 $65 range now per
+- [30:22.200] barrel. Uh and I told you in certain
+- [30:25.200] states we have less than $2 for
+- [30:27.640] gasoline. And uh food is down. Groceries
+- [30:32.159] as we call it are down. Uh other than
+- [30:36.320] interest rates, everything's down.
+- [30:37.760] Interest rates are pretty flat. They're
+- [30:39.520] not. It's not that they're up, but we
+- [30:41.520] should be better than flat. We should,
+- [30:43.279] if he would lower the interest rate, I
+- [30:45.120] think it would have a good impact on
+- [30:46.799] that, too. But the costs are down. We
+- [30:49.760] have very little inflation. I would say
+- [30:51.279] we have essentially no inflation. Hard
+- [30:53.039] to have inflation when oil goes down and
+- [30:55.360] oil goes down. When when uh Biden came
+- [30:57.919] in, oil went through the roof. That's
+- [31:00.000] what caused our problem. That and his
+- [31:02.559] very dumb spending. But, uh, when the
+- [31:05.679] oil prices go down, and they have gone
+- [31:07.520] down a lot. We've gotten it down really
+- [31:10.159] good. We've opened it up and we've
+- [31:11.679] gotten them down. And that means that,
+- [31:14.000] uh, people driving cars are going to be
+- [31:15.679] paying $2 and $2.50 instead of
+- [31:19.399] $4.50. And, you know, even at the end,
+- [31:22.320] they tried they tried just for the
+- [31:24.080] purpose of the election to get it down,
+- [31:26.320] but they had really lost that sucker.
+- [31:29.200] That was really, it was not good. But uh
+- [31:33.200] if they had won, oil right now would be
+- [31:35.200] at $7 or $8 because of their policy. And
+- [31:39.120] we're going to be at about $2, could be
+- [31:41.919] even a little bit less than that. And
+- [31:43.600] you're starting to see it. So I don't
+- [31:45.679] know how you can have inflation when oil
+- [31:47.360] is has come down quite a bit. And and uh
+- [31:52.640] I would say the Fed really owes it to
+- [31:54.720] the American people to get interest
+- [31:56.320] rates down. That's the only thing he's
+- [31:57.760] good for. And he would have an effect on
+- [32:00.320] that if he if he if he lowered him. And
+- [32:03.360] I think at some point he will. He's
+- [32:05.279] going to have a lot of political
+- [32:06.399] pressure. You know, they are uh
+- [32:08.720] political also. And I think there's a
+- [32:10.960] lot of political pressure for him to
+- [32:12.399] lower interest rates. Okay.
+- [32:18.399] Yeah. Go ahead. Sorry. Please. Do you
+- [32:20.720] think that Italy can be your best ally
+- [32:22.480] in Europe? And also, do you have a
+- [32:24.000] notice when you walk into the commands?
+- [32:26.320] Only if the prime minister remains the
+- [32:29.200] prime minister can it be our best. She's
+- [32:32.159] she's doing no she's doing a great job
+- [32:34.320] and yeah certainly one of our great
+- [32:36.960] allies not just in Europe anywhere.
+- [32:39.919] She's a fantastic person and doing a
+- [32:43.039] great job and our relationship is is
+- [32:46.000] great and we have a lot of Italians in
+- [32:48.320] this country I tell you and they like
+- [32:50.159] Trump and they voted for
+- [32:52.120] Trump. Anyway, thank you very much
+- [32:54.480] everybody. Thank
+- [32:56.200] you. Thank you.

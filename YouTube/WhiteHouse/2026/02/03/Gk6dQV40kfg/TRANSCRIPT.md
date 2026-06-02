@@ -1,0 +1,840 @@
+<!-- source: https://www.youtube.com/watch?v=Gk6dQV40kfg -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: Gk6dQV40kfg -->
+<!-- date_published: 2026-02-03T22:01:59+00:00 -->
+<!-- date_accessed: 2026-06-02T02:38:20.480895+00:00 -->
+
+# Transcript: President Trump Participates in a Bill Signing, Feb. 3, 2026
+
+- [00:13.130] The President: Okay, thank you very much.
+- [00:14.700] It's a very important day. We have a lot of important days,
+- [00:18.380] but I'm thrilled to sign the Consolidated Appropriations
+- [00:23.450] Act to immediately reopen the federal government
+- [00:26.300] and fund the vast majority of operations
+- [00:28.700] through the rest of the fiscal year.
+- [00:31.820] I want to thank, and I have a list here
+- [00:34.170] because the list is growing all the time.
+- [00:36.360] Everybody wants to be a part of this.
+- [00:39.250] I think I'm going to read the names
+- [00:40.700] and I think you deserve to have your names read.
+- [00:43.440] And if I don't read any,
+- [00:45.100] just raise your hand and let's have it.
+- [00:47.170] But I have to start with Speaker Mike Johnson
+- [00:49.710] who's done an incredible job,
+- [00:52.040] done really an incredible job and we appreciate it.
+- [00:55.250] Tom Cole, Ronny Jackson, Buddy Carter, Stephanie Bice,
+- [01:01.220] Ken Calvert, John Carter, David Joyce, Steve Womack.
+- [01:05.760] And on Steve Womack, I just -- Where's Steve? Where's Steve?
+- [01:09.290] Steve Womack: Right behind you, Mr. President.
+- [01:10.660] The President: Come here, Steve.
+- [01:11.880] I want to just say he had a rough --
+- [01:14.290] That's a rough week or so, right?
+- [01:18.250] Incredible wife who passed away, but she was an incredible woman
+- [01:23.660] and everybody knows that everybody up here.
+- [01:25.530] So we just -- we're with you all the way.
+- [01:26.860] Steve Womack: Thank you, Mr. President. We're grateful.
+- [01:28.190] The President: I'm glad you could be here.
+- [01:29.450] Steve Womack: Grateful for you.
+- [01:30.660] The President: I understand.
+- [01:32.350] That's a rough deal he went through.
+- [01:34.630] He had a good marriage.
+- [01:35.910] A good marriage is better than a bad marriage,
+- [01:39.350] but it makes it a little bit tougher
+- [01:40.840] when something like that happens.
+- [01:43.770] Robert Aderholt?
+- [01:45.440] Robert Aderholt: Right here. Thank you.
+- [01:46.690] The President: Susan Collins. Hi, Susan.
+- [01:48.600] All right, you're doing good. Cindy Hyde-Smith.
+- [01:52.960] Cindy, well, you always do good, Cindy.
+- [01:56.140] Hi, Bill. Lindsey Graham who's way up in the polls.
+- [02:00.600] Lindsey, what's going on with you?
+- [02:01.950] You're so high, I don't think --
+- [02:03.170] Lindsey Graham: It has a lot to do with you,
+- [02:04.400] don't forget that.
+- [02:05.870] The President: Well, has the opponent dropped out yet?
+- [02:08.270] Has your Democrat opponent dropped out?
+- [02:09.900] Lindsey Graham: You couldn't stop
+- [02:11.110] (inaudible) going.
+- [02:12.320] The President: Mario Diaz-Balart?
+- [02:13.820] Mario Diaz-Balart: Yes, sir.
+- [02:15.030] The President: Thank you, Mario. Katie Britt?
+- [02:16.760] Katie Britt: Yes, sir.
+- [02:18.140] The President: Hi, Katie. What a job you're doing.
+- [02:20.940] John Barrasso, he knows more about healthcare
+- [02:24.230] than any human being on Earth, I think, when I need somebody.
+- [02:27.920] John is a great person too.
+- [02:29.340] Shelly Moore Capito. Thank you, Shelly, very much.
+- [02:33.820] Hal Duncan, Associate Director of the Legislative Affairs.
+- [02:38.680] Thank you, Hal. Great job.
+- [02:39.980] And Susan Ross-Avison and Betsy McConnell,
+- [02:43.800] they were really instrumental and they really worked hard.
+- [02:46.620] So I want to thank you all. Anybody I didn't mention?
+- [02:49.700] Oh, boy. That'd be nice because it's a little embarrassing
+- [02:53.700] when they stick their hand up. I think they'd just be quiet.
+- [02:56.930] It's probably easier, but I'm glad we got you in
+- [03:00.670] because you really have worked hard.
+- [03:02.090] This bill is a great victory for the American people.
+- [03:05.280] Instead of a bloated and wasteful omnibus monstrosity
+- [03:09.740] full of special interest handouts,
+- [03:12.490] we've succeeded in passing a fiscally responsible package
+- [03:16.690] that actually cuts wasteful federal spending
+- [03:20.090] while supporting critical programs
+- [03:21.860] for the safety, security,
+- [03:23.110] and prosperity of the American people.
+- [03:25.940] And this group of people behind me and others,
+- [03:30.240] a lot of votes,
+- [03:31.690] and hey really have done a fantastic job
+- [03:33.800] because closing the country, we had a five point,
+- [03:37.940] it looks like 5.6 and it could have been seven.
+- [03:41.790] We lost a point and a half because of a 42-day shutdown
+- [03:45.800] and that's the least of it. But we would have been at seven.
+- [03:48.830] Can you believe it? Seven GDP.
+- [03:50.400] Nobody ever heard of a seven GDP.
+- [03:53.590] So I'm glad we got this done
+- [03:55.070] because this would be another point
+- [03:56.300] that I have for something or maybe worse.
+- [03:58.700] The bill officially ends all taxpayer subsidies
+- [04:01.640] for radical far left woke programming on NPR and PBS,
+- [04:07.860] just a waste of money. It slashes nearly $10 billion
+- [04:12.040] in wasteful foreign aid spending,
+- [04:14.550] giving money to countries that don't need it,
+- [04:17.880] they have plenty of money, and we ended that.
+- [04:21.510] That was so important, $10 billion. Think of it.
+- [04:25.590] It continues the closure of USAID
+- [04:28.470] and creates a brand-new America First Opportunity Fund.
+- [04:32.210] We're responsibly providing foreign assistance to nations
+- [04:36.300] where it actually serves American interest.
+- [04:39.730] So we have nations that do help us
+- [04:41.570] and it serves our interest
+- [04:43.640] and we have something to help them out with.
+- [04:45.660] This bill also cuts funding to abusive
+- [04:48.990] and weaponize IRS programs.
+- [04:51.760] I was a victim of that too. You probably read that.
+- [04:54.710] Did you read that recently, right?
+- [04:56.850] I was, I guess, the ultimate victim
+- [04:59.540] that were used to harass American taxpayers.
+- [05:02.330] It bills on the Republican Rescissions Package
+- [05:05.510] passed last summer, which saved Americans billions
+- [05:08.610] and billions of dollars. It fully funds our military,
+- [05:11.940] includes a well-deserved pay raise
+- [05:14.090] for all American service members and makes historic investments
+- [05:18.690] in the American shipbuilding industry,
+- [05:21.820] which is great. We're really starting
+- [05:23.690] to do something incredible with shipbuilding.
+- [05:26.330] And I don't know if you saw that the United States of America
+- [05:31.170] for the first time in over 30 years beat Japan.
+- [05:35.650] We love Japan, great country, but their power and steel
+- [05:40.280] making that we produced more steel this year than Japan.
+- [05:45.440] Think of that.
+- [05:46.720] More steel than Japan and Japan is a powerhouse of that
+- [05:50.770] and we were pretty much dead when it came to steel.
+- [05:54.710] So what do you think of that?
+- [05:56.820] To me, when I heard that, we did more than Japan.
+- [06:00.540] It continues to fund deportation flights
+- [06:04.850] that are removing dangerous illegal aliens from our country,
+- [06:08.130] it continues historically successful efforts
+- [06:11.190] to reduce crime in our nation's capital.
+- [06:13.330] We have a very safe city right now.
+- [06:15.890] We have a city that is like a different world
+- [06:18.340] from what it was a year and a half ago.
+- [06:21.220] When you couldn't walk down a street
+- [06:22.740] without being hurt very badly,
+- [06:26.230] I want to say that in a nice way.
+- [06:29.040] Washington DC is a safe city.
+- [06:31.690] And Memphis, by the way, crime is down 77 percent.
+- [06:35.790] And in New Orleans, I don't know if you heard these numbers,
+- [06:40.030] but in New Orleans, we started three weeks ago,
+- [06:43.160] four weeks ago, max and crime is down 68 percent.
+- [06:47.130] It's going to be down to practically nothing
+- [06:48.970] within the next month. Pretty amazing.
+- [06:52.080] But it all helped cut the number of murders in DC by 80 percent
+- [06:57.960] and we have numbers coming up.
+- [07:00.390] Newer numbers were down 97 percent in murders.
+- [07:04.140] A horrible thing to even be talking about, murders in DC,
+- [07:07.570] but a lot of people were being killed in Washington DC,
+- [07:11.900] if you can believe it,
+- [07:13.290] and now we have a very safe, very --
+- [07:16.530] I don't know if there's any such thing as crime free,
+- [07:19.600] but pretty close in January compared to 12 months ago,
+- [07:24.150] so we have close to 90,
+- [07:26.660] 95 percent down crime in Washington DC.
+- [07:31.100] It allows all of you people to walk to the White House
+- [07:34.610] instead of getting into an Uber and getting mugged
+- [07:37.620] even as the Uber progresses, okay?
+- [07:40.700] And it continues funding for the Department of Homeland Security
+- [07:44.150] until later in the year.
+- [07:45.850] And finally, I am extremely pleased to announce
+- [07:48.920] that this bill includes a newly designated,
+- [07:51.920] oh, wow, movie star,
+- [07:55.210] Melania Trump Foster Youth To Independence Initiative.
+- [07:59.390] So she really loves the children,
+- [08:01.930] and she's had a tremendous success.
+- [08:04.190] So it's the number one documentary in 19 years.
+- [08:07.510] Can you believe this?
+- [08:09.690] What do I get out of it?
+- [08:11.980] Nothing out of it.
+- [08:13.900] So I had a top model, now I have a top movie star,
+- [08:16.950] but we have a great First Lady.
+- [08:18.230] She loves children, and she had a tremendous vote on this
+- [08:21.540] and I want to just say Melania Trump Foster
+- [08:24.830] Youth To Independence
+- [08:26.360] Initiative within the Department of Housing
+- [08:28.410] and Urban Development,
+- [08:29.610] which will support America's foster youth
+- [08:32.040] and provide them critical resources
+- [08:34.290] as they age out of the foster care system.
+- [08:37.950] And the First Lady loves children,
+- [08:39.660] and she's been very much involved with children
+- [08:43.510] and helping them out and making them better.
+- [08:45.660] That's what she wants to do, wants to help them,
+- [08:48.170] and she wants to make them better
+- [08:49.450] and she does a great job of it.
+- [08:50.870] She's respected, and her movie got really incredible reviews.
+- [08:58.250] We're all proud of her, actually. It's amazing.
+- [09:00.600] Not easy to do that. Not easy to do it.
+- [09:03.590] I just want to thank everybody for being here.
+- [09:05.690] If you would have some questions,
+- [09:08.150] I might just ask before you do that --
+- [09:11.170] These are all outstanding politicians, the top.
+- [09:14.370] In my opinion, the top in the whole world,
+- [09:16.840] but that's one of those things
+- [09:18.420] I like to build it up a little bit, but they are.
+- [09:20.200] They're the top politicians, they're the top political minds.
+- [09:23.810] And if you have any statement,
+- [09:25.920] does anybody have a statement that you'd like to make?
+- [09:28.420] We'll start on the left side. Anybody? How about Mr. Speaker?
+- [09:32.010] Speaker Johnson: Well, this is a big thing, Mr. President.
+- [09:33.570] Thank you for your leadership
+- [09:34.790] and helping us steward this through.
+- [09:36.630] For a long time, we wanted to get back
+- [09:38.030] to regular order in the appropriations process
+- [09:40.570] and you're standing up here with the best appropriators
+- [09:43.450] in the business and have served in many years.
+- [09:46.350] And we've forced the muscle memory back.
+- [09:48.310] We're getting back to that regular order process.
+- [09:50.540] 12 separate appropriations bills.
+- [09:52.510] We've gotten them to your desk and this is a big thing.
+- [09:55.030] It seems like a small thing, but it's a big thing.
+- [09:56.830] And we're spending less money year over year
+- [09:59.010] and with all the innovations and things that you said there,
+- [10:01.300] this is good for the country.
+- [10:02.530] And America is back. The hat is appropriate.
+- [10:04.620] the right slogan.
+- [10:05.820] The President: There is a new hat,
+- [10:07.030] we just came out, America is back.
+- [10:09.640] Look CNN's thrilled. Look at her. She's never smiles.
+- [10:12.400] I never see her smile. Someday I'll see her smile.
+- [10:16.100] Unidentified: Could I mention
+- [10:17.350] that there's significant healthcare reform in this bill?
+- [10:19.870] PBM reform, something that you have been working on
+- [10:22.740] and we appreciate and applaud your efforts,
+- [10:25.410] bringing drug prices down for citizens here in America.
+- [10:29.110] Not only that, but we extended telehealth
+- [10:32.370] and also we are addressing maternal mortality in this bill.
+- [10:37.200] Rural healthcare has been a big part of your focus
+- [10:40.170] and we appreciate that.
+- [10:41.460] The President: Thank you very much.
+- [10:42.690] Thank you, buddy.
+- [10:43.910] A very big thing I think for all of us
+- [10:45.320] is most favored nations on drug pricing.
+- [10:49.610] For 30 years they've been talking about it,
+- [10:51.310] more than that.
+- [10:52.510] And it's basically we now will take --
+- [10:56.090] Prescription drugs will come down to the lowest price
+- [10:58.720] anywhere in the world,
+- [11:00.400] so if a country is selling a pill for $10
+- [11:04.190] and we're selling it for $130,
+- [11:06.590] which is not much of an exaggeration at all,
+- [11:10.640] we were paying the highest drug prices anywhere in the world,
+- [11:13.360] now we'll be paying tied with the lowest price.
+- [11:16.400] It's most favored nations.
+- [11:17.700] We will have the lowest price anywhere in the world,
+- [11:21.140] so a pill that was for $130 will be down to $20.
+- [11:27.730] You can make a case that that's 800, 900 percent,
+- [11:30.910] or like the press likes to hear, it's about 80 percent.
+- [11:35.200] But we're going to get reductions
+- [11:36.820] like nobody's ever seen.
+- [11:38.240] And frankly, the Republican Party
+- [11:40.730] should be able to win the midterms on that alone.
+- [11:42.810] That's the biggest thing there is.
+- [11:45.070] Most favored nations.
+- [11:46.330] We're going to be bringing the price of drugs down.
+- [11:49.620] In my first term, I got it down one eighth of 1 percent
+- [11:53.400] and I was so proud because it's the first time in 28 years
+- [11:56.650] that drug prices came down.
+- [11:58.670] And now we're talking about bringing it down by 80,
+- [12:03.650] 90, 75, 68.
+- [12:07.490] I have numbers in the back that nobody can believe,
+- [12:09.790] most favored nations.
+- [12:11.200] And remember, the Republicans did that.
+- [12:13.080] The Democrats did not do that. Republicans did it.
+- [12:16.500] And that's going to have a huge impact also on healthcare
+- [12:18.910] because medicine, I mean, it's a big chunk of healthcare.
+- [12:22.950] And if you're bringing something down from $100
+- [12:28.120] down to $20, $18,
+- [12:31.200] because we were subsidizing the entire world.
+- [12:34.960] And frankly, I had to get the countries to go along with it,
+- [12:37.640] and I had to threaten tariffs against them
+- [12:39.630] if they didn't approve.
+- [12:41.000] And the healthcare companies who weren't easy either,
+- [12:44.220] but they said it doesn't matter
+- [12:45.560] because they'll never get the countries
+- [12:47.610] because they didn't really want to do it.
+- [12:49.510] And I got the countries. I got every one of them.
+- [12:52.080] And really, people can't even believe it.
+- [12:56.100] But for the people standing behind me,
+- [12:59.430] if you use that alone, you should win.
+- [13:02.230] We should win the elections coming up.
+- [13:05.300] Anybody else? How about on this side?
+- [13:07.300] Unidentified: You mentioned the IRS, Mr. President.
+- [13:09.520] Their behavior has been atrocious.
+- [13:11.560] If you think about leaking your tax returns,
+- [13:14.090] the tax returns of others, never any accountability.
+- [13:16.440] I must have questioned Janet Yellen four times,
+- [13:18.470] five times under oath about this and never an answer.
+- [13:21.910] We stripped $10 billion from the IRS
+- [13:25.180] in this bill that you just signed.
+- [13:26.890] And today I launched an investigation with my staff
+- [13:30.020] on all of these contractors that are associated with the ones
+- [13:33.250] that allowed your information to be put out.
+- [13:35.120] These contractors that hire activists to come in
+- [13:37.970] and do their work,
+- [13:39.240] these corporations here in America
+- [13:40.720] that bring activists in to do their work,
+- [13:44.060] that's going to come to an end.
+- [13:46.020] The President: They did leak my tax returns. It was terrible.
+- [13:48.620] The good news is I paid a hell of a lot of tax.
+- [13:51.860] I paid tens of millions of dollars.
+- [13:53.830] I said, "Where are my accountants?
+- [13:55.770] I want to talk to my accountant."
+- [13:58.210] But they did. They leaked my tax return.
+- [13:59.870] They didn't do it in a nice way.
+- [14:01.200] They tried to get something out of it.
+- [14:03.320] No, they're bad people.
+- [14:04.520] Unidentified: Accountability's coming though.
+- [14:05.750] You think about the phone companies
+- [14:07.430] that leaked our telephone records, several of us here.
+- [14:10.780] Verizon leaked my telephone records.
+- [14:13.160] You think about what's happened across the country.
+- [14:16.080] This is going to come to an end.
+- [14:17.360] The President: We should have voter ID, by the way.
+- [14:18.910] We should have a lot of the things
+- [14:20.330] that I think everybody wants to see.
+- [14:22.630] Who would not want voter ID?
+- [14:24.730] Only somebody that wants to cheat.
+- [14:26.420] Think of it.
+- [14:27.650] We don't have voter ID and the Democrats don't want it.
+- [14:31.530] And the reason they don't want it
+- [14:32.730] is because they want to cheat,
+- [14:33.990] because there's no reason in the world --
+- [14:36.550] And I love that debate, Lindsay.
+- [14:38.720] I love saying, "Well, why don't you want voter ID?"
+- [14:42.380] And you watch them say, "I don't know. I just can't-"
+- [14:46.630] I know. It's a terrible thing. Anyway, anybody else? Please.
+- [14:50.830] Unidentified: You said you wanted to make America
+- [14:52.930] safer and more prosperous, and we have done it.
+- [14:56.400] Prosperity means more money in people's pockets.
+- [14:58.390] And they notice that every time they go to fill up with gas,
+- [15:00.920] and they're going to know it when they get their tax returns
+- [15:03.230] that this year are going to be at least a thousand dollars,
+- [15:05.390] if not more, greater than it's been in the past.
+- [15:07.840] And that's a result of the work
+- [15:09.220] that you've done with this whole group.
+- [15:11.560] And in terms of America being safer,
+- [15:13.660] a number of us were at the border two weeks ago.
+- [15:16.000] The border is secure. No one is coming across,
+- [15:18.720] not the 10,000 we saw every day with Joe Biden.
+- [15:21.570] And the American people still in overwhelming numbers,
+- [15:24.410] Republicans, Democrats, and Independents
+- [15:26.480] all say illegal immigrant criminals need to be deported.
+- [15:30.170] And Mr. President, you're doing that.
+- [15:33.440] The President: And no tax on tips.
+- [15:35.620] No tax on social security. No taxes -- think of it.
+- [15:41.350] And that was all the Great Big Beautiful Bill.
+- [15:43.270] I call it the Great Big Beautiful Bill.
+- [15:44.950] To me, that's what it is.
+- [15:46.170] And people are starting to realize it now.
+- [15:48.900] They're starting to see it.
+- [15:50.630] A tax deduction on your --
+- [15:52.280] If you buy a car, if it's made in America,
+- [15:55.290] only if it's made in America.
+- [15:56.510] The rest we don't care about so much.
+- [15:58.050] But you buy a car, you get an interest deduction,
+- [16:01.190] you borrow money, you get an interest tax deduction.
+- [16:03.450] And that is, you take interest, you deduct it against your tax.
+- [16:09.470] To me, that's unbelievable for the people,
+- [16:12.140] unbelievable for our car companies, which is jobs.
+- [16:14.230] Anybody else only?
+- [16:15.490] Unidentified: Mr. President, the biggest part of this bill
+- [16:17.790] is our national security. And I thank you.
+- [16:19.430] The men and women who served this country
+- [16:20.920] are grateful to you.
+- [16:22.200] And we gave them a pay raise.
+- [16:23.790] We're building more ships, as you said, planes, missiles.
+- [16:28.060] We need to defend this country and you're doing a great job
+- [16:29.960] in leading us in the right direction.
+- [16:31.170] The President: Thank you very much.
+- [16:32.370] Katie, go ahead. You were going to say something.
+- [16:33.990] Unidentified: Yeah. No, Mr. President,
+- [16:35.530] this is just unprecedented leadership.
+- [16:37.440] The fact that you got everyone to come together
+- [16:39.700] and actually get these bills across the finish line.
+- [16:41.850] You heard it from the speaker,
+- [16:43.160] but that hasn't happened in a long time.
+- [16:45.200] 96 percent of the government being funded,
+- [16:48.000] your priorities put in place, Mr. President,
+- [16:50.340] so that we can make the country safer,
+- [16:52.330] we can make it more prosperous.
+- [16:54.090] And not only can we make America great again,
+- [16:56.060] but we can tell people now America is back.
+- [16:58.510] The President: It's a great --
+- [16:59.780] We'll never forget MAGA, and we're all with MAGA,
+- [17:02.360] but I thought this was very appropriate, right?
+- [17:05.220] Speaker Johnson: Love it. I love it. It says everything.
+- [17:06.920] The President: Cindy Hyde, come on. Say something.
+- [17:09.110] Cindy Hyde: Well, there's a little hospital in here,
+- [17:11.230] a rural hospital in Meadville,
+- [17:12.950] Mississippi called Franklin County Hospital.
+- [17:16.120] It would have closed the end of this month
+- [17:18.770] without this bill. Thank you.
+- [17:20.900] Thank you from everybody in Mississippi,
+- [17:22.910] especially Franklin County.
+- [17:24.380] The President: And we've covered the rural very well.
+- [17:26.610] Nobody ever thought it was possible
+- [17:28.110] because we had a lot of opposition from the Democrats,
+- [17:30.980] as you know, but nobody thought it was possible.
+- [17:34.100] That's great. How about it? Anybody back there, Tom?
+- [17:36.910] Unidentified: That's the best budget
+- [17:38.390] for Native Americans ever, Mr. President.
+- [17:42.310] The President: Thank you.
+- [17:43.630] We'll sign it then if you would have some questions
+- [17:45.760] of anybody up here.
+- [17:46.980] Unidentified: Let me just piggyback.
+- [17:48.570] This rural America is taken care of in this bill.
+- [17:52.830] As Cindy says, so thank you from all America,
+- [17:56.060] but especially rural America.
+- [17:58.440] The President: Thank you.
+- [18:09.870] So I probably won't hold this up.
+- [18:12.510] And I think holding up one little page
+- [18:14.220] doesn't do it justice,
+- [18:15.420] (inaudible)
+- [18:16.660] in there, it's a lot of stuff, but it's signed.
+- [18:18.900] (applause)
+- [18:20.250] The Press: Thank you.
+- [18:28.330] On a Iran, are the negotiations still happening this week?
+- [18:31.850] Where will they be?
+- [18:33.110] And what do you need to hear from Iran?
+- [18:34.420] The President: They're all over, but they are negotiating.
+- [18:36.400] They'd like to do something,
+- [18:37.750] and we'll see if something is going to be done.
+- [18:40.690] They had a chance to do something a while ago
+- [18:44.080] and it didn't work out and we did Midnight Hammer.
+- [18:47.680] I don't think they want that happening again,
+- [18:49.470] but they would like to negotiate.
+- [18:51.720] We are negotiating with them right now, yes.
+- [18:53.770] The Press: Where will the meeting be?
+- [18:55.470] It seems --
+- [18:56.690] The President: I can't tell you that.
+- [18:59.190] There really is more than one meeting. Yep.
+- [19:01.100] The Press: Mr. President, how was your meeting
+- [19:02.830] with the Gustavo Petro earlier today?
+- [19:04.620] And did you come to any agreement
+- [19:05.880] on counter narcotic efforts?
+- [19:07.120] The President: Yeah, we did.
+- [19:08.410] We worked on it and we got along very well.
+- [19:10.830] He and I weren't exactly the best of friends,
+- [19:12.680] but I wasn't insulted 'cause I never met him.
+- [19:14.770] I didn't know him at all.
+- [19:16.890] And we got along very well,
+- [19:18.490] and we are, we're working on that.
+- [19:20.050] We're working on some other things too, including sanctions.
+- [19:23.680] And we had a very good meeting.
+- [19:25.700] The Press: So you (inaudible)?
+- [19:26.940] The President: I thought he was terrific.
+- [19:28.220] He was very good. We got along great.
+- [19:30.160] The Press: Mr. President, can you give us any update
+- [19:32.250] on how the talks were going for potential changes
+- [19:34.530] to the Department of Homeland Security?
+- [19:36.490] Have you agreed to any specifics?
+- [19:38.130] The President: None. Well, we have a secure border.
+- [19:41.490] In fact, we have nine months now
+- [19:43.790] where nobody has come into our country illegally.
+- [19:47.120] Now, I don't know if I can believe that,
+- [19:49.370] 'cause you go from 25 million people to nobody,
+- [19:52.030] but the Democrats do that.
+- [19:53.750] They're leaning left, the people that do that report.
+- [19:57.170] And for nine months they have said nobody has come into our --
+- [20:00.420] It is a strong, great border.
+- [20:02.830] We do have people coming into our country,
+- [20:04.530] but they're all coming in legally.
+- [20:08.110] You take a look at that and look at what was going on a year
+- [20:11.350] and a half ago on our border,
+- [20:12.990] where criminals were coming in, drug dealers were coming in,
+- [20:16.920] people from mental institutions were coming in.
+- [20:20.950] They say the worst, I don't even know if I like the term,
+- [20:23.270] but the worst of the worst was coming into our country.
+- [20:26.110] And now, we have virtually no --
+- [20:28.830] Our country, it's beautiful to see.
+- [20:32.170] Even if you go down, some of you,
+- [20:33.890] I think, were down there a couple of weeks ago
+- [20:36.000] and you couldn't believe it. Right?
+- [20:37.440] 'Cause you were there two years ago.
+- [20:41.040] And 10,000 a day. Now, you didn't even see anybody.
+- [20:44.130] Nobody comes up.
+- [20:45.390] We're saving lives because nobody comes up.
+- [20:47.460] They have to come through the jungles
+- [20:48.890] and they're dying of all sorts of problems, including murder.
+- [20:53.210] And we have nobody coming in
+- [20:55.500] and we're getting people out, we're getting --
+- [20:57.820] We have 11, 888 murderers who came into our country.
+- [21:03.170] We're getting them out, we're getting them out fast.
+- [21:05.790] And the only place where there's a little bit of a problem --
+- [21:09.100] And I will tell you this, Minnesota,
+- [21:11.350] they're crime, because of us,
+- [21:12.890] because we've taken out thousands of criminals,
+- [21:15.540] their crime is down. Not because of anybody else,
+- [21:17.720] it's because of us, their crime is down.
+- [21:21.360] But all over the country, wherever we're involved,
+- [21:24.390] we're getting criminals out of our country.
+- [21:26.360] And the crime rate now is the lowest it's been since 1900.
+- [21:30.440] That's 125 years.
+- [21:33.850] And that's despite the fact with an open border stupid policy,
+- [21:39.010] 25 million people, in my opinion,
+- [21:41.590] came into our country. And many of those people
+- [21:43.810] should not have been allowed to come into our country.
+- [21:46.940] The Press: So Ukraine, Mr. President.
+- [21:48.400] Yesterday you were talking about how Vladimir Putin
+- [21:51.050] to a pause during the cold weather.
+- [21:53.860] Overnight, those attacks have started up again.
+- [21:55.460] The President: I know. It was Sunday.
+- [21:57.160] It was Sunday to Sunday, and it opened up
+- [22:00.480] and he hit them hard last night.
+- [22:02.770] No, he agreed, he kept his word on that.
+- [22:05.870] It's a lot. We'll take anything
+- [22:09.290] because it's really, really cold over there.
+- [22:12.780] But it was on Sunday and he went from Sunday to Sunday.
+- [22:16.220] The Press: Are you disappointed he didn't go further or --
+- [22:17.950] The President: Yeah, I want him to end the war.
+- [22:21.420] I spoke to him. I want him to end the war.
+- [22:23.550] The Press: Mr. President, what exactly did you mean
+- [22:26.890] when you said that you should nationalize elections?
+- [22:29.190] And which 15 states are you talking about?
+- [22:30.690] The President: I want to see elections be honest.
+- [22:32.450] And if a state can't run an election,
+- [22:34.710] I think the people behind me should do something about it,
+- [22:37.670] 'cause if you think about it, a state is an agent
+- [22:40.200] for the federal government in elections.
+- [22:41.840] I don't know why the federal government
+- [22:43.480] doesn't do them anyway.
+- [22:44.950] But when you see some of these states
+- [22:46.580] about how horribly they run their elections,
+- [22:49.350] what a disgrace it is, I think the federal government --
+- [22:52.680] When you see crooked elections, and we had plenty of them --
+- [22:55.720] And by the way, we had them last time,
+- [22:58.040] but go to 2020 and look at the facts
+- [22:59.960] that are coming out, rigged, crooked elections.
+- [23:04.630] Take a look at Detroit, take a look at Pennsylvania,
+- [23:07.450] take a look at Philadelphia, you go take a look at Atlanta,
+- [23:11.090] look at some of the places
+- [23:12.290] that horrible corruption on elections,
+- [23:15.570] and the federal government should not allow that.
+- [23:17.940] The federal government should get involved.
+- [23:20.840] These are agents of the federal government to count the votes.
+- [23:24.390] If they can't count the votes legally and honestly,
+- [23:28.020] then somebody else should take over.
+- [23:29.490] The Press: But the Constitution says that should be states
+- [23:30.960] that administer elections, Mr. President.
+- [23:32.190] That's what the Constitution says.
+- [23:33.480] The President: Yeah, you know what?
+- [23:34.770] They can administer the election,
+- [23:36.080] but they have to do it honestly.
+- [23:38.660] The Press: Are you open to negotiating on warrants
+- [23:41.070] when it comes to ICE?
+- [23:42.330] This is an ask from Senator Schumer.
+- [23:44.330] The President: Meaning?
+- [23:45.550] The Press: Requiring search warrants for ICE
+- [23:47.870] and an immigration official.
+- [23:49.160] The President: I haven't even thought of it.
+- [23:51.000] I'm not thinking about search warrants.
+- [23:53.390] Lindsey Graham is going to answer that.
+- [23:55.000] Senator Graham: Yeah. No, makes no sense.
+- [23:57.960] If we have to get a search warrant
+- [24:00.570] to get 15 million people out,
+- [24:03.060] Schumer's telling me he doesn't want them out.
+- [24:05.160] It's the most ridiculous idea.
+- [24:07.060] They do have some good ideas, I think.
+- [24:09.840] But I've got a better idea. It's your idea.
+- [24:12.400] End sanctuary cities.
+- [24:14.060] On immigration, I know what I'm talking about.
+- [24:16.410] I've got the scars to prove it. They're playing.
+- [24:19.030] Y'all are playing like Biden didn't exist.
+- [24:21.840] Y'all won't tell the American people about Laken Riley.
+- [24:25.560] It's a one-sided debate.
+- [24:26.780] For four years, our border was obliterated.
+- [24:30.340] They let them come in by the tens of millions
+- [24:32.780] and they want to go back that way.
+- [24:34.150] We're not going.
+- [24:35.490] So Mr. President, stick to your guns.
+- [24:38.530] If you got reforms that make ICE better,
+- [24:42.510] more professional, talk to me.
+- [24:45.120] But you should embrace what I'm suggesting.
+- [24:48.140] As long as 12 states have sanctuary policy,
+- [24:51.320] they'll keep coming.
+- [24:52.610] Unfortunately, you won't be president forever.
+- [24:55.420] These magnets of illegal immigration have to go.
+- [24:58.750] There is no upside to sanctuary city,
+- [25:01.090] unless you're a complete radical nut job.
+- [25:03.680] The cops hate it, fraud around sanctuary cities,
+- [25:07.030] and you're going to get more illegal immigration.
+- [25:08.680] We don't have to debate.
+- [25:10.310] I've been trying to solve this problem,
+- [25:13.130] but what the Democrats are doing
+- [25:15.280] is they're not getting to the underlying problem.
+- [25:17.320] It's not Stephen Miller. It's not Kristi Noem.
+- [25:19.730] It's not me, it's not you.
+- [25:21.210] It's policies that have been on the books that don't work.
+- [25:25.710] So, if you want to debate on how to solve this problem,
+- [25:28.830] show up next week.
+- [25:30.540] I'm going to take President Trump's idea
+- [25:32.840] that it's time to end the insane policy of sanctuary cities.
+- [25:36.690] We're going to take it the floor and we're going to vote,
+- [25:39.550] and people in November are going to get to see
+- [25:41.990] who they trust to keep the border secure,
+- [25:44.940] Schumer or Trump. I'm with Trump.
+- [25:48.910] The President: And by the way,
+- [25:50.200] I hope you're going to press that very hard.
+- [25:51.820] And the other thing-
+- [25:53.040] Senator Graham: I think I might.
+- [25:54.820] The President: Well, we are with you.
+- [25:56.020] I think everybody's with you.
+- [25:57.550] It's a sanctuary for criminals. That's who it is.
+- [26:00.870] They could make our lives so much easier.
+- [26:03.000] All they have to do is hand over their criminals,
+- [26:05.290] hand over people that came into our country
+- [26:07.610] illegally that are murderers, that came out of jails,
+- [26:10.670] that came out of mental institutions,
+- [26:12.620] that are drug dealers.
+- [26:15.060] I can't believe in Minnesota that they want to have murderers
+- [26:18.410] walking all over the streets.
+- [26:19.670] I just don't believe it. Maybe somebody says it's good --
+- [26:22.690] I don't think it's good politics.
+- [26:24.030] I think it's really bad.
+- [26:25.440] The other thing we can't lose sight of
+- [26:28.690] is you probably have in Minnesota,
+- [26:31.610] and it's worse in some places like California,
+- [26:35.740] $19 billion in fraud.
+- [26:41.150] We're very deep into that investigation,
+- [26:44.230] but we're not going to forget that.
+- [26:45.640] A lot of people think that a lot of this nonsense that's going on
+- [26:48.610] is to try and hide what's going on with respect to the fraud.
+- [26:53.870] They have at least $19 billion. You hearing nine.
+- [26:58.720] Now, I'm hearing it's 19 and it's probably much more.
+- [27:02.300] So, they talk about incompetence,
+- [27:05.940] I think it's not incompetence, I think it's just pure fraud.
+- [27:08.870] These are dishonest people, they're bad people,
+- [27:12.950] I think they hate our country,
+- [27:14.820] and we're going to get to the bottom of it.
+- [27:16.870] But don't let this hide the fact that you have tremendous fraud.
+- [27:21.150] And if we find the fraud in this country,
+- [27:23.370] you'll have a balanced budget without even cutting anything.
+- [27:27.170] You'll literally have a balanced budget.
+- [27:28.740] Yeah, please.
+- [27:29.980] The Press: (inaudible)
+- [27:31.200] are we planning to work with President Petro
+- [27:33.580] to fight guerrilla groups and terrorist organizations
+- [27:36.320] in Venezuela?
+- [27:37.560] The President: Well, they want me to do that.
+- [27:38.950] And we will. We're getting along very well in Venezuela
+- [27:42.030] with the leadership. Very, very well.
+- [27:45.830] We took in 50 million barrels of oil,
+- [27:49.220] it's right now heading to Houston.
+- [27:51.530] And we're getting along very well with them.
+- [27:53.430] But we're going to work with them, yes.
+- [27:54.710] The Press: Mr. President, 12 months ago
+- [27:56.170] you had in your office here,
+- [27:57.490] Peter Mandelson, the British ambassador,
+- [27:59.520] you were shaking hands with him over a trade deal.
+- [28:02.190] He's today been forced to resign from the House of Lords,
+- [28:05.590] the upper house of the British Parliament,
+- [28:07.390] over his links to Jeffrey Epstein.
+- [28:09.390] Just wondered if you had any reaction to that
+- [28:11.390] since obviously he was here before?
+- [28:12.810] The President: I didn't know about it.
+- [28:14.640] But I really don't know too much about it.
+- [28:16.380] I know who he is. It's too bad, it's too bad.
+- [28:19.900] Speaking of Epstein, I will say this,
+- [28:22.920] a reporter named Wolff and Epstein conspired,
+- [28:27.820] this just came out yesterday
+- [28:29.060] in the millions of pages of documents,
+- [28:31.110] how crazy this is, conspired against me
+- [28:35.110] in order to fight like hell
+- [28:36.600] to make sure I lose the election.
+- [28:38.050] That's the only thing that was mentioned about me.
+- [28:42.320] Now, about Democrats, some really bad stuff.
+- [28:45.430] But about me, that Wolff, whoever Wolff is,
+- [28:49.550] he wrote a book, a couple of books,
+- [28:52.160] and Epstein conspired against me.
+- [28:54.050] Did you know that, Mr. Senator? Did you know that?
+- [28:55.450] Unidentified: I did know that.
+- [28:56.670] I didn't know it before the report I mean.
+- [28:57.870] The President: They conspired against me
+- [28:59.090] so I'd lose the election or worse.
+- [29:01.660] So that takes care of Epstein as far as Trump is concerned.
+- [29:05.120] But you got a lot of Democrats out there
+- [29:07.020] that are very much involved with Epstein.
+- [29:10.120] But I'll be honest with you,
+- [29:11.530] you got to get back to running the country too.
+- [29:13.880] Millions and millions -- every week.
+- [29:16.210] When Epstein was alive, nobody cared about him.
+- [29:18.820] When he's dead, they care about him.
+- [29:20.740] But it's really a Democrat problem,
+- [29:22.760] it's not a Republican, it's a Democrat problem.
+- [29:25.220] The only problem Republicans have is that we have to get back
+- [29:28.450] to, number one, running our country.
+- [29:30.730] And then number two, very importantly,
+- [29:32.350] letting the public know what a great job we're doing.
+- [29:35.060] We have the greatest economy in the history of the world.
+- [29:39.460] We have $18 trillion being spent.
+- [29:42.930] The record was three trillion many years ago,
+- [29:46.000] not by us, by another country. I won't say the country.
+- [29:48.670] Yeah, please.
+- [29:51.180] The Press: Have you been briefed on Savannah Guthrie's
+- [29:54.060] mom missing in Arizona?
+- [29:55.520] The President: I think it's terrible.
+- [29:57.120] The Press: Would you commit to more federal agents
+- [29:58.840] helping out on the search or anything like that?
+- [30:00.560] The President: Sure I would. I'm going to call her later on.
+- [30:01.990] I think it's a terrible thing.
+- [30:03.230] I always got along very good with Savannah.
+- [30:06.280] Very unusual situation, but we're going to find out.
+- [30:08.870] Yeah, what do you want?
+- [30:10.070] The Press: On the Epstein files, you talk about Democrats
+- [30:11.740] who are in there, Elon Musk was also in there,
+- [30:13.460] and so was your Commerce Secretary, Howard Lutnick,
+- [30:15.500] and correspondence that he had with him.
+- [30:17.380] Did you read those new files that were published
+- [30:19.090] by the Department of Justice?
+- [30:20.310] The President: No, I didn't, I have a lot of things
+- [30:21.770] I'm doing, a lot of things I'm doing.
+- [30:24.070] I don't know. You mentioned two names,
+- [30:26.830] I'm sure they're fine, I'm sure they're fine.
+- [30:29.070] Otherwise there would have been major headlines.
+- [30:30.940] The Press: A lot of women who are survivors of Epstein's
+- [30:33.860] are unhappy with those redactions that came out,
+- [30:35.770] some of them, entire witness interviews
+- [30:37.160] are totally blacked out.
+- [30:38.420] Do you think that they should be more transparent?
+- [30:39.860] The President: Well, they're also unhappy with the fact
+- [30:41.070] that they thought they released too much.
+- [30:42.420] I heard that. And you tell me something else.
+- [30:47.080] I think it's really time for the country
+- [30:48.610] to get onto something else really.
+- [30:50.360] And now that nothing came out about me,
+- [30:53.470] other than it was a conspiracy against me literally,
+- [30:57.010] by Epstein and other people.
+- [30:59.380] But I think it's time now for the country
+- [31:01.560] to maybe get onto something else, like healthcare-
+- [31:03.490] The Press: But what would you say to people
+- [31:04.730] who feel they haven't got any justice, Mr. President?
+- [31:06.800] The President: -- something that people care about.
+- [31:08.280] What did you say? Go ahead CNN. You are so bad.
+- [31:09.840] The Press: What would you say to the survivors
+- [31:11.260] who feel like they haven't gotten justice?
+- [31:12.670] The President: You are the worst reporter.
+- [31:14.660] CNN has no ratings because of people like you.
+- [31:17.620] She's a young woman, I don't think I've ever seen you smile,
+- [31:20.670] I've known you for 10 years,
+- [31:22.200] I don't think I've ever seen a smile on your face.
+- [31:23.710] The Press: Well, I'm asking you
+- [31:25.050] about survivors of Jeffrey Epstein --
+- [31:26.290] The President: You know why you're not smiling?
+- [31:27.580] Because you know you're not telling the truth.
+- [31:29.750] And you're a very dishonest organization.
+- [31:32.730] And they should be ashamed of you.
+- [31:34.190] Okay, go ahead please.
+- [31:35.410] The Press: These are survivors of a sexual abuser --
+- [31:36.720] The Press: (inaudible)
+- [31:37.920] healthcare, and the bill that was just passed
+- [31:40.390] does not include your healthcare savings account.
+- [31:42.390] So this is a question for you
+- [31:43.620] and maybe for Mr. Speaker as well.
+- [31:44.840] The President: I'm so proud of the healthcare savings accounts
+- [31:48.240] because it's going to happen.
+- [31:49.820] And hopefully instead of insurance --
+- [31:51.640] And I hope this happens and I hope you guys can do it.
+- [31:54.690] Let the insurance companies not do quite as well.
+- [31:59.930] They're going up 15, 16, 17, 100 percent. Think of it.
+- [32:03.670] The money should be paid directly to the people.
+- [32:07.660] Trillions of dollars goes out.
+- [32:09.690] The money should go to the people,
+- [32:11.000] they should buy their own healthcare.
+- [32:12.320] It can be in a healthcare account, savings account,
+- [32:16.380] any account you want to make.
+- [32:17.890] The money should go to the people,
+- [32:19.590] the people should buy their own healthcare.
+- [32:22.020] And they're going to save a lot of money
+- [32:23.590] and they're going to have much better healthcare.
+- [32:25.210] And it's very simple.
+- [32:26.420] The problem is the Democrats
+- [32:28.210] are owned by those insurance companies.
+- [32:30.970] They're owned lock, stock and barrel.
+- [32:33.570] And the Democrats will never vote on it because --
+- [32:37.790] The Republicans should get that through.
+- [32:40.370] And you know how you get it through?
+- [32:41.860] The filibuster. Get rid of the filibuster and start voting.
+- [32:44.520] Yes.
+- [32:45.720] The Press: Mr. President,
+- [32:47.100] today we heard that Clinton set deposition dates to testify
+- [32:50.510] before the House Oversight Committee.
+- [32:52.040] Any reaction to that and related to the Epstein-
+- [32:54.150] The President: I think it's a shame to be honest.
+- [32:57.220] I always liked him.
+- [32:58.520] Her, yeah, whatever. She's a very capable woman.
+- [33:01.820] She was better in debating than some of the other people
+- [33:04.750] I will tell you that. She was smarter. Smart woman.
+- [33:07.700] I hate to see it in many ways. I hate to see it.
+- [33:10.720] But then I look at me. They went after me like --
+- [33:14.800] they wanted me to go to jail for the rest of my life.
+- [33:17.530] Then it turned out I was innocent. Very innocent.
+- [33:20.980] I had a friend that said, a very smart friend,
+- [33:23.370] he's a very wealthy man,
+- [33:25.230] knows the life, streetwise guy, he said,
+- [33:28.810] "You have to be the most honest person anywhere in the world
+- [33:31.930] because there's never been anybody
+- [33:33.490] who's been examined up and down."
+- [33:35.440] I have hundreds of thousands of pages of documents,
+- [33:38.650] millions of pages, millions of pages.
+- [33:42.070] With all of that, they found absolutely nothing wrong.
+- [33:44.700] Remember, "His tax returns, oh, his tax returns."
+- [33:47.840] They fought for years and years.
+- [33:50.750] And then the Supreme Court, I was surprised,
+- [33:53.310] they ruled I had to give my tax returns.
+- [33:54.940] I'm the only one that had to ever do that.
+- [33:57.320] I had to give my tax returns. I gave them my tax returns.
+- [34:00.560] They hired the best accounting firms in the world.
+- [34:04.900] They found nothing.
+- [34:06.530] And this friend of mine said,
+- [34:07.850] "You have to be the most honest person in the world."
+- [34:10.880] He actually said, "I," mean referring to him,
+- [34:15.300] "I'm a pretty honest guy,
+- [34:16.560] but I could have never withstood that."
+- [34:19.390] They've gone through millions and millions of pages
+- [34:21.840] and here I sit winning an election in a landslide,
+- [34:25.860] winning the popular vote, winning all seven swing states,
+- [34:29.760] winning 86 percent of the counties in the United States.
+- [34:33.400] That's why those maps that you see are all red.
+- [34:36.280] And so they tried to put me in jail.
+- [34:39.560] And I shouldn't feel this way,
+- [34:41.360] but I feel badly that they have to go through that.
+- [34:46.080] But then I say, but they did far worse than me,
+- [34:49.350] they wanted to put me in jail, think of it.
+- [34:51.320] I was a very good -- We had a great first term.
+- [34:53.810] Rebuilt the military, biggest tax cuts ever,
+- [34:56.030] biggest regulation cuts ever. But I will say this,
+- [35:01.380] I think I can say, what do you think, Lindsey?
+- [35:03.540] My second term is blowing my first term away.
+- [35:06.900] And my first term was really good.
+- [35:09.030] The Press: Reagan plus.
+- [35:10.800] The President: Reagan plus, yeah.
+- [35:12.210] Well, whatever. Thank you very much, everybody.

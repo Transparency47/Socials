@@ -1,0 +1,535 @@
+<!-- source: https://www.youtube.com/watch?v=RfIaJSdDnN0 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: RfIaJSdDnN0 -->
+<!-- date_published: 2026-01-12T01:38:05+00:00 -->
+<!-- date_accessed: 2026-06-02T01:07:40.376684+00:00 -->
+
+# Transcript: President Trump Gaggles with Press on Air Force One, Jan. 11, 2026
+
+- [00:00.570] The President: What a nice grouping this is.
+- [00:03.410] This is really nice. Look at this.
+- [00:05.690] Any -- it's going to be very rough in about 10 minutes,
+- [00:08.170] so we'll have to go a little bit quickly.
+- [00:09.810] They just said very, very rough.
+- [00:14.150] The Press: Sir, on Iran, have they crossed your red line
+- [00:16.250] yet to a trigger response?
+- [00:17.760] The President: They're starting to, it looks like,
+- [00:19.130] and there seem to be some people killed
+- [00:21.770] that aren't supposed to be killed.
+- [00:23.530] These are violent, if you call them leaders,
+- [00:26.690] I don't know if they're leaders or just they,
+- [00:28.600] they rule through violence.
+- [00:30.840] But we're looking at it very seriously.
+- [00:32.600] The military's looking at it.
+- [00:34.890] And we're looking at some very strong options.
+- [00:38.130] We'll make a determination.
+- [00:39.700] The Press: Which options have you been briefed on?
+- [00:41.730] Are you meeting with senior officials?
+- [00:43.390] Are you meeting with your (inaudible)
+- [00:45.130] The President: Am I going to really,
+- [00:46.500] are you asking me to say what will I do?
+- [00:48.440] Where will we attack? When?
+- [00:50.540] And at what angle will we attack from?
+- [00:52.490] Who are you with?
+- [00:53.800] The Press: I'm, I'm with this U.S. White House TV pool.
+- [00:56.630] I'm wondering, are you being briefed on options?
+- [00:58.510] The President: What network are you with?
+- [00:59.760] The Press: I'm with CNN, sir.
+- [01:01.550] The President: Why don't you just say I'm with CNN?
+- [01:04.010] She says, "I'm with the White House pool."
+- [01:06.720] The Press: Yeah.
+- [01:07.960] The President: And I say, "What --"
+- [01:09.390] You're with CNN. You're with -- The Press: I'm with CNN.
+- [01:11.160] The President: You're with fake news.
+- [01:12.730] 'Cause CNN is fake news. Go ahead.
+- [01:14.840] Give me -- give me a question.
+- [01:16.190] The Press: Can I ask how you're balancing
+- [01:17.860] and how you're deciding your response,
+- [01:19.400] the balance between helping protestors
+- [01:22.160] versus hindering them?
+- [01:23.430] 'Cause I imagine that's a delicate balance to strike.
+- [01:25.750] The President: I mean, some of the protestors
+- [01:27.470] were killed through the stampeding.
+- [01:29.770] I mean, you know, there's so many of them.
+- [01:32.080] And some were shot. We're getting a full report.
+- [01:34.390] I'm getting an hourly report
+- [01:36.460] and we're going to make a determination.
+- [01:41.350] The Press: Sir, the son of the disposed Shah,
+- [01:44.160] the son of the disposed Shah and some military leaders
+- [01:46.780] are encouraging you to take action in Iran.
+- [01:49.560] Are you, are, is that a serious option and
+- [01:51.030] (inaudible)
+- [01:52.230] The President: People have been shot
+- [01:53.650] and we're looking at it. Yeah, please.
+- [01:55.600] The Press: Are you going to go to Venezuela
+- [01:56.850] or is Secretary Rubio going to go to Venezuela anytime soon?
+- [01:59.780] The President: At some point, yeah. We're doing well.
+- [02:01.940] Venezuela is really working out well.
+- [02:03.780] We're working along really well with the leadership
+- [02:06.810] and we'll see how it all works out.
+- [02:08.520] The Press: Sir, how did your meeting with Delcy go?
+- [02:11.350] The President: At some point, I'll meet.
+- [02:12.550] Yeah. She's been very good. Look.
+- [02:14.900] She asked us, can we take 50 million barrels of oil?
+- [02:18.790] And I said, "Yes, we can."
+- [02:20.030] It's four billion, 4.2 billion dollars.
+- [02:23.760] And it's on its way right now to the United States.
+- [02:28.630] The Press: When will you meet with -- with Machado this week?
+- [02:31.230] The President: I'm looking for something to grab here.
+- [02:33.700] Because it's, it's getting, it's going to get rough,
+- [02:36.350] and I don't seem to be in a very,
+- [02:37.700] I think you did this to me. You put me in a position
+- [02:41.280] where there's absolutely nothing to grab.
+- [02:45.340] So I'm looking for something to grab,
+- [02:46.930] and it's not going to be Karoline.
+- [02:48.170] The Press: Mr. President, have any oil companies
+- [02:50.110] made commitments to you, sir?
+- [02:53.090] Have any oil companies made commitments to the United States
+- [02:55.140] after your meeting on Friday, sir?
+- [02:56.440] The President: Yeah.
+- [02:57.640] The Press: Which has, have Exxon --
+- [02:59.030] The President: No, I don't want to say,
+- [03:00.260] no, I didn't like Exxon's response.
+- [03:02.870] I, you know, we have so many that want
+- [03:04.280] and I'd probably be inclined to keep Exxon out.
+- [03:07.840] I didn't like their response.
+- [03:09.750] They're, they're playing too cute.
+- [03:11.980] The Press: So what, what backstops
+- [03:13.210] or guarantees have you, have you told the oil companies
+- [03:16.140] that you're willing to provide?
+- [03:17.650] The President: Guarantees that they're going to be safe,
+- [03:19.970] that there's going to be no problem,
+- [03:22.000] and there won't be. There's not going to be a problem.
+- [03:23.990] They had problems in the past
+- [03:25.420] because they didn't have Trump as a president.
+- [03:28.020] They had stupid people.
+- [03:33.640] The Press: What kind of deal are you looking for from Cuba?
+- [03:36.040] What kind of deal are you looking for from Cuba?
+- [03:38.020] The President: You're going to find out pretty soon.
+- [03:40.930] We're talking to Cuba, and you'll find out pretty soon.
+- [03:43.840] And one of the things I want taken care of,
+- [03:46.160] and one of the groups I want taken care of
+- [03:47.880] are the people that came from Cuba,
+- [03:50.110] that were forced out or left under duress,
+- [03:53.410] and they're great citizens of the United States right now.
+- [03:57.730] You have a lot of people forced out of Cuba unfairly,
+- [03:59.980] so we're going to take care, most importantly right now,
+- [04:02.550] we're going to take care of the people that came from Cuba
+- [04:05.320] that are American citizens or in our country.
+- [04:08.950] The Press: Do you plan to, to seize any oil tankers
+- [04:11.290] that are headed to Cuba?
+- [04:14.190] The President: Well, we have a lot of oil people
+- [04:15.430] really interested.
+- [04:16.670] You saw that the other day, and that was just a small group
+- [04:18.980] because the room in the White House,
+- [04:20.810] we needed, we need the ballroom, actually.
+- [04:23.140] We could have filled up the ballroom practically.
+- [04:25.650] We have so many people that want to go in for oil.
+- [04:28.710] So you saw great, some great companies.
+- [04:31.800] The Press: Are you going to set Starlink to Iran, sir,
+- [04:34.280] to help the people in the ground
+- [04:36.390] with the internet blackout for 70, more than 72 hours?
+- [04:38.660] The President: We're going to be talking about that.
+- [04:40.350] We may get the internet going, if that's possible.
+- [04:42.180] The Press: Are you talking to Musk about it?
+- [04:43.380] The President: We may speak to Elon 'cause as you know,
+- [04:46.110] he's very good at that kind of thing.
+- [04:47.640] He's got a very good company, so we may speak to Elon Musk.
+- [04:51.920] And in fact, I'm going to call him
+- [04:53.970] as soon as I'm finished with you.
+- [04:56.170] The Press: Just quickly, Iran said
+- [04:57.480] that they would consider military and commercial bases
+- [05:01.390] as legitimate targets if you struck.
+- [05:03.030] Are you concerned about --
+- [05:04.310] The President: Well, if they do that.
+- [05:05.530] We'll consider things targets they wouldn't,
+- [05:07.280] that they wouldn't believe.
+- [05:08.760] If they do that, we will hit them at levels
+- [05:11.390] that they've never been hit
+- [05:12.660] before they won't even believe it.
+- [05:15.750] I have options that are so strong.
+- [05:17.920] So, I mean, if they did that it'll be met
+- [05:20.690] with a very, very powerful force.
+- [05:23.420] The Press: Do you think Iran takes your threats seriously?
+- [05:25.000] The President: I think so. The Press: Yeah?
+- [05:26.220] The President: Don't you think so, CNN?
+- [05:27.940] Don't you think so?
+- [05:29.290] Wouldn't you say that they probably do at this point?
+- [05:32.710] After going through it for years with me -- being hit.
+- [05:36.490] Soleimani, Al Baghdadi, the Iran nuclear threat wiped out,
+- [05:41.650] don't you think, and then you just had Venezuela.
+- [05:44.830] Don't you think, she says, CNN,
+- [05:47.380] "Do you think they take your threat seriously?"
+- [05:49.430] Wouldn't you say they do after all of the things we've done?
+- [05:52.510] What a stupid question. Go ahead.
+- [05:55.170] The Press: Are you coordinating with allies
+- [05:56.950] on the response to Iran?
+- [05:58.400] The President: Yeah.
+- [05:59.630] The Press: Mr. President, when will you meet
+- [06:01.030] with Maria Corina Machado this week?
+- [06:03.440] The President: I don't know.
+- [06:04.650] I hear Tuesday or Wednesday. I look forward to that.
+- [06:07.230] The Press: Have you named your board of peace for Gaza yet?
+- [06:10.110] Where do those plans stand?
+- [06:11.370] The President: We have a board of peace that's being formed,
+- [06:13.220] but essentially it's the most important leaders
+- [06:17.120] of the most important nations.
+- [06:20.020] All nations, but the most important.
+- [06:22.340] You take the most important leaders and nations,
+- [06:25.500] that's who the board of peace is going to be.
+- [06:27.180] Everybody wants to be on it.
+- [06:29.650] The Press: Sir, one group taking your threat
+- [06:30.870] seriously as a group,
+- [06:32.080] why are they not taking your threats --
+- [06:33.330] The President: Who are you with? The Press: The New York Post.
+- [06:34.630] The President: I like the New York Post.
+- [06:36.810] The New York Post treats me semi-fairly. So go ahead.
+- [06:41.690] The Press: One group taking your threats
+- [06:43.300] very seriously is Greenland.
+- [06:45.500] Are you still thinking of military action there
+- [06:47.700] or is anything that can --
+- [06:48.930] The President: What, what? Where? Military --
+- [06:50.340] The Press: Greenland.
+- [06:51.600] Is there anything they can offer you for a deal?
+- [06:53.160] The President: Yeah.
+- [06:54.430] If we don't take Greenland, Russia or China will.
+- [06:57.440] And I'm not letting that happen. If we don't take Greenland,
+- [07:01.170] Russia or China will take Greenland,
+- [07:03.120] and I am not going to let that happen.
+- [07:04.500] The Press: Is there any deal
+- [07:05.720] they can offer you either like --
+- [07:06.990] The President: Yeah, sure.
+- [07:08.190] I've looked if I make a deal with them. It's easier.
+- [07:11.390] But one way or the other, we're going to have Greenland.
+- [07:14.020] The Press: Are you okay if that compromises NATO?
+- [07:17.230] If NATO effectively ceases to exist --
+- [07:19.610] The President: Oh, and I've done a great job.
+- [07:21.030] I'm the one that saved NATO.
+- [07:22.270] I'm the one that got them to pay five points,
+- [07:24.990] five percent of GDP.
+- [07:26.320] The Press: But the, no, but -- The President: Wait a minute.
+- [07:27.920] It was two, two percent and they didn't pay.
+- [07:30.060] Now they're paying 5 percent. I'm the one that saved NATO.
+- [07:33.200] You wouldn't have NATO if I weren't president.
+- [07:35.830] The Press: Would you pull the US out of NATO?
+- [07:37.410] Would you consider doing that?
+- [07:39.170] The President: Well, maybe NATO would be upset if I did it.
+- [07:41.760] Maybe NATO would, would save a lot of money.
+- [07:44.450] But I like NATO.
+- [07:46.360] I just wonder whether or not if we needed NATO,
+- [07:48.660] would they be there for us? I'm not sure they would.
+- [07:51.370] You know, we spend a lot of money on NATO.
+- [07:53.880] And I'm not sure they would.
+- [07:55.700] Now, what's happened is as you know,
+- [07:57.820] Sleepy Joe Biden gave $350 billion to Ukraine
+- [08:02.550] and got nothing for it. I got rare earth back.
+- [08:05.310] I got, I think value back far greater than that,
+- [08:08.770] but, and that's what he should have done.
+- [08:11.190] Now, if you look at what's going on with respect to NATO,
+- [08:14.000] we have a very good relationship.
+- [08:15.700] Five percent GDP and they pay us.
+- [08:18.500] We send them military equipment
+- [08:20.490] and they pay us back the full cost of the equipment.
+- [08:23.660] The war is, we make money with the war,
+- [08:25.790] but I don't even want to talk about that.
+- [08:28.040] I want to save the lives.
+- [08:29.480] They're Russian and Ukrainian lives.
+- [08:32.300] I want to save the lives.
+- [08:33.670] That's the only reason I'm doing it.
+- [08:35.330] This is Biden's war. Should have never happened.
+- [08:37.850] Would have never happened if I were president.
+- [08:39.640] This is Biden's war. It's not Trump's war.
+- [08:41.730] All I can do is stop it.
+- [08:43.670] And I think we're making progress towards stopping it.
+- [08:46.550] Which would be number nine and a quarter.
+- [08:48.650] You know what the quarter is, right? Right?
+- [08:51.820] Thailand and Cambodia went at it again,
+- [08:55.770] but I got it stopped very quick.
+- [08:58.250] I consider that one quarter of a war.
+- [09:01.420] The Press: Have you made a tangible offer to Greenland yet?
+- [09:03.900] Have you made an actual operative deadline?
+- [09:05.610] The President: Well, I haven't done that,
+- [09:06.820] but Greenland should make the deal
+- [09:08.310] because Greenland does not want to see Russia or China
+- [09:11.330] take over. They don't go there.
+- [09:13.380] It's very far away from Greenland.
+- [09:15.910] And Greenland basically, their defense is two dog sleds.
+- [09:18.970] Do you know that? You know what their defense is?
+- [09:21.660] Two dogs sleds.
+- [09:23.440] In the meantime, you have Russian destroyers
+- [09:26.440] and submarines
+- [09:27.640] and China destroyers and submarines all over the place.
+- [09:32.080] We're not going to let that happen.
+- [09:34.450] And if it affects NATO then it affects NATO,
+- [09:36.460] but, you know, they need us much more than we need them.
+- [09:38.960] I will tell you that right now.
+- [09:40.350] The Press: Mr. President,
+- [09:41.560] are you going to increase our military bases?
+- [09:42.920] The President: That's a war that should have never happened
+- [09:44.660] with Ukraine.
+- [09:45.880] The Press: The UK and Germany are discussing plans
+- [09:48.620] for a joint NATO mission
+- [09:50.510] to protect Arctic security in Greenland.
+- [09:52.880] Does that change your calculus at all in terms of acquiring?
+- [09:55.580] The President: Look. No.
+- [09:56.900] We're talking about acquiring, not leasing,
+- [09:59.550] not having it short term. We're talking about acquiring.
+- [10:03.030] And, and if we don't do it, Russia or China will,
+- [10:06.990] and that's not going to happen when I'm president.
+- [10:08.710] The Press: Are you going to increase
+- [10:10.040] the amount of military bases on Greenland in the meantime?
+- [10:11.690] The President: Well, we have bases on Greenland.
+- [10:13.070] Yeah.
+- [10:14.360] The Press: Are you going to make -- do more?
+- [10:15.590] The President: We can put a lot of soldiers there right now
+- [10:17.400] if I want, but you need more than that.
+- [10:20.000] You need ownership.
+- [10:21.260] You really have -- you really need title,
+- [10:23.090] as they say in the real estate position.
+- [10:24.490] The Press: On Minneapolis.
+- [10:25.920] Your administration has advocated for absolute immunity
+- [10:28.960] for the ICE officer who shot Renee Good.
+- [10:33.660] How do you define absolute immunity?
+- [10:35.120] What does that mean?
+- [10:36.350] The President: Everyone's seen it.
+- [10:37.550] And a woman who's very violent.
+- [10:39.280] She's a, you know, very radical person.
+- [10:41.320] Very sad what happened. Her friend was very radical,
+- [10:44.640] you know, go and drive, drive and, and --
+- [10:46.120] The Press: But for the officer, absolute immunity,
+- [10:47.600] how would you define that?
+- [10:49.680] The President: Well, I'm going to let the people define it.
+- [10:51.350] But immunity, you know what immunity knows is,
+- [10:54.290] means as well as I do.
+- [10:55.540] The Press: So that officer should be back on the force?
+- [10:56.780] The President: But, you know, people can't be treating
+- [10:58.060] law enforcement that way.
+- [10:59.260] Whether it's ICE, or Border Patrol,
+- [11:01.350] or our police and men and women. You can't, you can't do that.
+- [11:05.150] We have, you know, the, the law enforcement in our country
+- [11:08.390] is doing really well,
+- [11:09.660] despite the fact that Sleepy Joe Biden
+- [11:12.250] allowed people to pour through an open border.
+- [11:15.240] Crime stats just came out.
+- [11:16.560] We have the best crime stats on record
+- [11:19.740] despite all the criminals he allowed into our country.
+- [11:22.400] We've gotten a lot of them out.
+- [11:24.230] We have to respect our law enforcement.
+- [11:26.860] At a very minimum, that woman was very,
+- [11:30.650] very disrespectful to law enforcement.
+- [11:33.840] And you heard the same noises.
+- [11:35.250] You saw the same crunch that I saw.
+- [11:37.950] You can't do that with law enforcement,
+- [11:39.550] whether it's police, or ICE,
+- [11:41.380] or Border Patrol, or anybody else.
+- [11:45.830] The Press: Mr. President, you --
+- [11:47.280] well, just to clarify on the absolute immunity,
+- [11:49.340] do you believe ICE officers should have absolute immunity?
+- [11:52.980] The President: (inaudible)
+- [11:57.410] -- generally speaking, I mean, these people have been harassed.
+- [12:00.450] They're threatened every day. They had vans out playing
+- [12:03.850] so they couldn't sleep at the hotel.
+- [12:05.370] I, I see what they're doing to them.
+- [12:07.310] They're threatening them constantly.
+- [12:09.250] And all they're doing is doing what I got elected on.
+- [12:12.960] We had millions of people that came into our country
+- [12:16.850] that are horrible people that shouldn't be in our country.
+- [12:20.230] They're murderers. They're drug dealers.
+- [12:22.430] They're people from mental institutions.
+- [12:24.330] They're the criminally insane. They're people from prisons.
+- [12:28.340] They were allowed to come into our country
+- [12:30.630] because Biden was a stupid person
+- [12:33.410] and the people surrounding him, very smart, very vicious,
+- [12:37.800] but they have no common sense and they're radicalized people.
+- [12:40.500] They're radical left people.
+- [12:41.790] Not radical right. They're radical left people.
+- [12:44.960] And all they're doing is what I campaigned on.
+- [12:47.920] I won in a landslide. We won all seven swing states.
+- [12:51.490] We won the popular vote. We won the districts.
+- [12:53.860] We won everything. We won the counties.
+- [12:56.570] We won the counties by 79 percent, I believe.
+- [13:01.230] I campaigned on the great border,
+- [13:03.850] and now we have a great border.
+- [13:05.900] But Biden let 25 million people come into this country,
+- [13:09.550] and many of those people are criminals,
+- [13:11.830] including 11,888 murderers. And we want them out.
+- [13:18.100] And I won on that. Now, people don't talk about it
+- [13:20.530] because the border is so, so secure.
+- [13:22.560] Nobody wants to talk about it anymore.
+- [13:24.700] The border was one of the reasons I won the election.
+- [13:28.160] I've done such a good job on it,
+- [13:30.080] but nobody wants to talk about it anymore.
+- [13:32.050] The border is totally secure.
+- [13:34.430] And now the crime stats just came out,
+- [13:37.610] and they're the best numbers since they were taken,
+- [13:40.750] and that's like 50 years ago. We have the best crime numbers,
+- [13:44.520] despite the fact that a lot of criminals
+- [13:46.620] were allowed into our country.
+- [13:48.540] We have to respect our law enforcement.
+- [13:51.170] The Press: Sir, do you believe that deadly force was necessary
+- [13:53.350] after watching all the footage of the (inaudible)
+- [13:55.250] that passed? What's your assessment there?
+- [13:57.280] The President: It was highly disrespectful
+- [13:59.260] of law enforcement. The woman and her friend
+- [14:02.640] were highly disrespectful of law enforcement.
+- [14:05.420] You saw that. They were harassing them.
+- [14:07.750] We were following for, for days and for hours.
+- [14:11.820] And I think, frankly, they're professional agitators.
+- [14:16.000] And I'd like to find out, and we are going to find out
+- [14:18.300] who's paying for it with their brand new signs
+- [14:21.310] and all the different things.
+- [14:22.610] But these are professional agitators.
+- [14:24.480] And law enforcement should not be in a position
+- [14:28.330] where they have to put up with this stuff.
+- [14:30.910] What that woman and what her friend
+- [14:33.370] and what their other friends were doing to law enforcement,
+- [14:37.330] not just ICE, law enforcement is outrageous.
+- [14:39.920] The Press: Mr. President,
+- [14:41.160] can you tell us about your trip to Detroit on Tuesday?
+- [14:45.850] The President: I'm going to be making a trip to Detroit
+- [14:48.370] to talk about our unbelievable amount of factories
+- [14:52.080] that are opening up all over the country,
+- [14:54.210] many of which are car factories and car plants.
+- [14:57.310] We have manufacturing plants opening up at levels
+- [14:59.920] that nobody's ever seen before because of tariffs.
+- [15:03.830] Uh, if we didn't have tariffs, you wouldn't have them opening,
+- [15:07.800] although they were very happy with the November 5th election.
+- [15:11.290] But we have, from Canada, they're coming, from Mexico,
+- [15:14.340] they're coming, from Germany,
+- [15:15.630] from Japan, from all over Europe,
+- [15:17.850] and from Japan, other places, and from China.
+- [15:21.770] They're opening up car factories,
+- [15:24.700] car manufacturing plants,
+- [15:26.990] at levels that we've never seen before.
+- [15:29.400] So I'm going to Detroit because they're going to be
+- [15:32.230] opening up plants in Detroit or redoing plants,
+- [15:34.910] but they're really ripping down old plants and building new.
+- [15:38.600] We are going to be, we're the hottest country
+- [15:40.620] right now anywhere in the world.
+- [15:41.930] I mean, think of it.
+- [15:43.240] A year and a half ago, we were a dead country
+- [15:45.890] and now we're the hottest country anywhere in the world.
+- [15:48.770] The Press: Mr. President,
+- [15:50.280] the House passed a three year extension of the ACA.
+- [15:52.130] It's in the Senate. If it passed the Senate,
+- [15:55.240] would you veto it or allow it to --
+- [15:56.790] The President: I might. Yeah. I might.
+- [15:58.280] The Press: Sir, do you have any information
+- [15:59.690] about the suspicious object that was found
+- [16:01.820] at Palm Beach International Airport before takeoff?
+- [16:04.290] The President: No. I know nothing about it.
+- [16:05.710] The Press: Okay. And back on Iran,
+- [16:06.950] the Ayatollah said that he thinks
+- [16:09.690] that the protestors are trying to quote,
+- [16:11.290] "please you." Do you see it that way?
+- [16:12.870] What's your message to the Iranian people right now?
+- [16:15.050] The President: I don't know that they're trying to please me.
+- [16:16.630] They named a boulevard after me, but that's pretty pleasing.
+- [16:19.760] But I don't think they're trying to plea- --
+- [16:21.430] I think they just want peace. They want to have freedom.
+- [16:24.760] The protestors are after freedom.
+- [16:27.140] Uh, Iran has not allowed freedom for a long time.
+- [16:29.770] And the protests, I don't think they're trying to plea- --
+- [16:31.810] to appease me. They're trying to get somebody to help them.
+- [16:36.000] They're under siege.
+- [16:37.560] And now it looks like they're being shot,
+- [16:39.180] which is a very bad thing.
+- [16:40.850] The Press: Is the administration in contact
+- [16:43.020] with Iranian opposition leaders --
+- [16:46.960] The President: Yeah.
+- [16:48.290] The Press: What's the message to them?
+- [16:49.530] The President: Yeah.
+- [16:51.240] You're going to find out pretty soon.
+- [16:54.300] Yeah, go ahead. Yeah. With a, with the beautiful red hair.
+- [16:56.890] The Press: Thank you. I appreciate that.
+- [16:59.100] The premiere of Melania. Have you seen the movie yet
+- [17:01.110] and what are your thoughts on it?
+- [17:02.360] The President: I've seen pieces of it.
+- [17:03.590] It's incredible. I tell you.
+- [17:06.120] I think it's going to do very, you know, she did a book.
+- [17:08.700] And the book was a big number one bestseller.
+- [17:10.880] And this is a movie,
+- [17:13.550] and it seems to be captivating a lot of people's attention.
+- [17:16.940] It's very good.
+- [17:18.520] The Press: (inaudible) Trump Kennedy Center?
+- [17:19.770] The President: Because here we go again,
+- [17:21.090] yeah, it's going to be doing the premiere
+- [17:23.400] at the Trump Kennedy Center. Yeah. It'd be very exciting.
+- [17:26.810] It's, it's a very hard ticket, I can tell you.
+- [17:29.570] Everybody, Wayne Gretzky and his wife, Janet,
+- [17:32.110] beautiful wife, great wife, they said last night,
+- [17:35.210] "Gee, I want to go to --"
+- [17:36.460] A lot of -- everybody wants tickets to the premier.
+- [17:41.510] I think it's going to be great.
+- [17:42.770] The Press: Mr. President, is there any timing
+- [17:44.440] on the mortgage bond purchases you announced last week?
+- [17:46.440] The President: On the what? Mortgage?
+- [17:47.650] The Press: Mortgage bond purchase,
+- [17:48.940] purchases by Fannie Mae and Freddie Mac?
+- [17:50.250] The President: No, they're already doing it.
+- [17:51.460] They've started.
+- [17:52.670] The Press: They're already doing it?
+- [17:53.880] The President: Yeah, they started the process.
+- [17:55.860] And it's having a great impact.
+- [17:57.220] Interest rates are falling ra- -- very rapidly.
+- [18:00.500] Not only for that reason, for other reasons too,
+- [18:02.700] but interest rates are falling very rapidly.
+- [18:07.160] With no help from the Fed,
+- [18:09.190] because we have a total stiff at the Fed.
+- [18:11.110] The Press: Do you have any, can I ask you, um,
+- [18:12.780] the announcement on the cap on credit card interest rates
+- [18:16.060] that you put out on Friday,
+- [18:18.170] what happens if the credit card companies
+- [18:20.100] don't comply by the January date you set?
+- [18:21.690] The President: Well, then they,
+- [18:22.900] then they're in violation of the law.
+- [18:25.110] The Press: Do you have Congressional support --
+- [18:26.490] The President: Very severe things.
+- [18:27.760] No, I want a cap on credit card interest rates
+- [18:31.980] because, you know, some of them are 28, almost 30 percent.
+- [18:35.730] And that, people don't know they're paying 30 percent.
+- [18:39.200] The people out there, you know, they're working
+- [18:40.910] and they have no idea that they're paying 30 percent.
+- [18:44.020] No way. We're putting a one year cap at 10 percent and that's it.
+- [18:48.070] They know it.
+- [18:49.330] And they really, they've really abused the public.
+- [18:51.580] The credit card companies have totally abused,
+- [18:53.670] I'm not going to let it happen.
+- [18:55.020] The Press: Do you sense a willingness from Iran
+- [18:57.140] to engage diplomatically with you
+- [18:59.240] or perhaps negotiate on nuclear, with their nuclear program?
+- [19:01.900] The President: With Iran?
+- [19:03.100] The Press: Yeah, do you think they want to engage
+- [19:04.450] diplomatically with you?
+- [19:05.690] The President: They do. They called --
+- [19:07.450] The Press: They called you? The President: Yes, they did.
+- [19:08.750] The Press: Is it still an option?
+- [19:09.960] Is it still an option?
+- [19:11.190] The President: Iran called to negotiate.
+- [19:12.430] The Press: Yesterday?
+- [19:13.680] The President: Yesterday.
+- [19:14.880] The leaders of Iran called, they want to negotiate.
+- [19:17.240] I think they're tired of being beat up by the United States.
+- [19:19.900] The Press: Can you share any details about that call?
+- [19:21.670] The President: Iran wants to negotiate, yes.
+- [19:24.530] The Press: Negotiate what?
+- [19:25.840] The President: We may meet with them.
+- [19:27.050] I mean, it's, a meeting is being set up,
+- [19:30.170] but we may have to act
+- [19:33.320] because of what's happening before the meeting.
+- [19:35.850] But a meeting is being set up.
+- [19:37.740] Iran called. They want to negotiate.
+- [19:39.620] Thank you very much, everybody. Be careful, a lot of bumps.
+- [19:43.500] The Press: What's your plan for East Potomac?
+- [19:44.930] Are you going to renovate the golf course?
+- [19:46.340] The President: Yeah, we're going to make it
+- [19:47.540] a beautiful world-class US Open caliber course
+- [19:50.730] that ideally we're going to have major tournaments
+- [19:52.770] there and everything else.
+- [19:53.970] It's going to bring a lot of business into Washington.
+- [19:56.350] By the way, the crime stats just came out on Washington, DC.
+- [20:00.430] There is virtually no crime.
+- [20:03.600] It's gone from tremendous crime, murder, and everything else.
+- [20:07.770] There's virtually no crime in Washington, D.C.
+- [20:10.830] Thank you, President Trump. Thank you very much, everybody.

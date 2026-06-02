@@ -1,0 +1,208 @@
+<!-- source: https://www.youtube.com/watch?v=0_0E-C96Q4Q -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 0_0E-C96Q4Q -->
+<!-- date_published: 2026-05-10T14:14:51+00:00 -->
+<!-- date_accessed: 2026-06-02T01:00:07.484286+00:00 -->
+
+# Transcript: Mother's Day Message From the Trump Administration
+
+- [00:00.000] It's a very special day because It's
+- [00:02.600] Mother's Day. And [music] And Who are
+- [00:05.960] you? Okay, well, can we start over? That
+- [00:07.800] was [laughter] just not very good.
+- [00:09.360] This is [music] Lily,
+- [00:11.160] uh my beautiful daughter, the youngest
+- [00:13.920] of four. There is nothing I ever wanted
+- [00:16.480] to be any more than to be a mom. [music]
+- [00:18.600] So, I am the mother of two.
+- [00:21.000] I have a king's family. I have a prince
+- [00:22.560] and a princess. I have the son [music]
+- [00:23.880] and a daughter and six grandchildren. My
+- [00:26.480] name is Rachel Campos-Duffy. My husband
+- [00:28.520] is the Secretary of Transportation and
+- [00:31.120] we have nine kids. [music] As soon as
+- [00:32.840] President Trump formed his cabinet, my
+- [00:34.480] husband was part of it. I knew this was
+- [00:36.680] going [music] to be the most
+- [00:37.920] family-friendly administration in
+- [00:40.080] American history because you have 15
+- [00:41.760] cabinet members with almost 70 kids. The
+- [00:44.840] families [music] are huge in this
+- [00:46.920] cabinet. And so, this is the cabinet and
+- [00:49.760] a president [music] who cares about the
+- [00:52.160] future, who cares about making sure that
+- [00:55.240] the nuclear family becomes the most
+- [00:57.800] important [music] unit in our society.
+- [01:00.280] Yeah, we have three kids right now. We
+- [01:01.960] have a fourth child who's due in July.
+- [01:04.360] And one of the most exciting thing
+- [01:05.500] [music] about having kids is just seeing
+- [01:07.320] how different they are. Each one has a
+- [01:09.240] different personality. [music] There are
+- [01:10.720] different things that inspire them. I'm
+- [01:13.080] Jennifer Henseth. My husband [music] is
+- [01:14.880] Pete Henseth, Secretary of War. And we
+- [01:17.160] have seven kids. At one point, we had
+- [01:19.240] seven under seven.
+- [01:21.160] I don't really remember that period.
+- [01:22.680] It's a blur. And I have pictures and
+- [01:24.500] [music] I wonder, how did we do it? And
+- [01:26.600] the truth is, you just do it because it
+- [01:28.520] is so fulfilling.
+- [01:29.735] >> [music]
+- [01:30.040] >> It teaches you
+- [01:32.160] everything. You have patience, [music]
+- [01:35.040] um
+- [01:36.560] patience and patience.
+- [01:38.560] And just love and joy. It's it's really
+- [01:41.480] incredible and I feel so fortunate to
+- [01:43.491] >> [music]
+- [01:43.840] >> to be a mom. I had a wonderful mom. She
+- [01:46.560] had six children. I'm the [music] fourth
+- [01:48.520] of six kids. I'm Tara Sandering. My
+- [01:51.440] husband is Keith Sandering, the Acting
+- [01:54.120] Secretary of Labor. We have two little
+- [01:57.120] boys, a 4-year-old and a 1-year-old.
+- [01:59.866] [music] They bring us so much joy in our
+- [02:02.640] lives.
+- [02:03.960] As a mom, there's [music] a lot of
+- [02:04.920] things that have surprised me. One is
+- [02:08.360] the spiritual capacity of my children.
+- [02:10.640] Little kids, very, very little kids have
+- [02:12.966] [music] capacity to understand God
+- [02:15.560] almost better than we as adults.
+- [02:17.551] >> [music]
+- [02:17.760] >> And that's also a really great lesson
+- [02:20.040] for me as a mom to go, "Look, you do
+- [02:22.120] everything you can, but ultimately
+- [02:24.720] these kids [music] belong to God." I
+- [02:26.800] have loved watching my babies being born
+- [02:29.959] and being with my children as they have
+- [02:32.080] grown. [music] And now as they're
+- [02:33.560] adults, they are not only still so
+- [02:36.520] precious and dear [music] to me, but
+- [02:37.840] they are also two of my very best
+- [02:40.200] friends. There's nothing I enjoy anymore
+- [02:42.441] [music] than to have an outing or to be
+- [02:43.920] with my children. It's the greatest
+- [02:46.680] privilege of [music] my life. There are
+- [02:48.880] so many exciting things that happen in
+- [02:50.400] life, but there is nothing more exciting
+- [02:52.266] [music]
+- [02:53.040] than getting to see the world through
+- [02:54.320] the eyes of kids as they're growing up.
+- [02:56.880] Everything is just more exciting with my
+- [02:58.640] children around. And everything [music]
+- [03:00.880] is is more meaningful. There's virtually
+- [03:03.800] nothing that I do in a given day that
+- [03:06.400] means [music] as much as seeing them
+- [03:08.360] learn something new, seeing them grow
+- [03:10.080] into being a better person, helping
+- [03:12.120] shape a future [music]
+- [03:13.160] where they will be able to do the same
+- [03:14.760] things that I'm doing today. It is an
+- [03:16.760] all-encompassing job. You're
+- [03:19.320] the chef, [music] you're the nurse,
+- [03:20.959] you're the teacher,
+- [03:22.400] you're everything. My favorite part
+- [03:24.239] about being a mom A mom is watching my
+- [03:26.160] kids. If I could, [music] my favorite
+- [03:28.560] spot would be a perch somewhere in the
+- [03:30.519] room watching them play [music]
+- [03:32.440] together, learn together, experience
+- [03:35.640] life. For me, motherhood is by [music]
+- [03:39.000] far the best job I've ever had, the most
+- [03:42.360] important job I've ever had times a
+- [03:44.667] [music] billion. I want to give a
+- [03:46.280] special shout out to my mom, a single
+- [03:49.360] mom who raised my sisters [music] and me
+- [03:51.400] all by herself in rural Texas. We really
+- [03:55.200] struggled financially, but never ever
+- [03:58.120] struggled [music]
+- [03:59.120] with love and support. And it's really
+- [04:02.440] my mom, the reason that I'm here, who
+- [04:04.920] inspired [music]
+- [04:05.560] me and my sisters to dream bigger than
+- [04:07.560] we ever thought imaginable.
+- [04:09.560] I've done a lot of things in my life,
+- [04:10.920] but there is nothing [music]
+- [04:12.200] that I've done professionally that comes
+- [04:14.680] even remotely close to the pride [music]
+- [04:17.560] I feel in being a mom to my nine
+- [04:19.799] children.
+- [04:21.000] It can be very tempting
+- [04:23.720] to
+- [04:24.623] >> [music]
+- [04:25.160] >> think that kids are a burden
+- [04:27.680] or will take some part of you away,
+- [04:30.800] um make you unable to do the things
+- [04:33.138] [music] you wanted to do. It just
+- [04:34.840] couldn't be further from the truth. They
+- [04:36.240] enhance everything. Kids enhance [music]
+- [04:38.520] every part of your life. So, if young
+- [04:41.520] people are out there and wondering,
+- [04:43.280] "Should I have [music] kids? Should I
+- [04:44.320] not have kids? How will it affect
+- [04:46.400] everything I'm doing?" It will only make
+- [04:47.960] it better, [music] I promise. I think
+- [04:49.560] President Trump is the greatest
+- [04:51.120] president we've ever had
+- [04:52.788] >> [music]
+- [04:52.800] >> for moms. You know, not just the Trump
+- [04:55.600] accounts, but the working families tax
+- [04:57.760] cuts. I am reminded of all of the
+- [05:00.320] incredible [music] work by this
+- [05:02.120] administration to support families, to
+- [05:04.720] support moms. But one of the incredible
+- [05:07.080] things that this president [music] has
+- [05:08.320] done in our administration is the Trump
+- [05:10.480] accounts. And the idea that you [music]
+- [05:13.200] have a government that supports the
+- [05:15.400] family and supports having children and
+- [05:17.440] supports real American family values
+- [05:20.919] that are grounded in scripture [music]
+- [05:23.200] back to the very beginning of time.
+- [05:25.919] When I was [snorts] with the president
+- [05:27.160] and he signed his first, you know,
+- [05:28.880] presidential fitness certificate and
+- [05:30.778] [music] we had lots of children at the
+- [05:32.480] White House. It is so incredibly
+- [05:34.440] important
+- [05:35.363] >> [music]
+- [05:35.720] >> as we nurture our children through life
+- [05:38.360] that we really pay attention [music]
+- [05:40.560] as mothers do, I believe always, but
+- [05:43.600] this emphasis now on their health of
+- [05:46.240] eating [music] properly and of exercise
+- [05:48.320] and fitness. We need to have a healthy
+- [05:50.800] mind and a healthy body.
+- [05:52.393] >> [music]
+- [05:52.560] >> This Mother's Day, we celebrate mothers
+- [05:54.680] across America.
+- [05:56.760] And we thank President Trump for opening
+- [05:58.800] up IVF access, [music] so more women can
+- [06:01.880] become mothers. And I'm grateful to
+- [06:04.240] President Trump for the executive order
+- [06:06.360] creating the Great American Recovery
+- [06:08.360] Initiative focused [music] on the
+- [06:10.200] chronic disease of addiction and people
+- [06:12.720] struggling with addiction [music] and
+- [06:14.600] people in recovery from addiction.
+- [06:17.000] I love how President Trump and this
+- [06:18.880] administration has brought the focus
+- [06:20.720] back to the family. [music] I'm from a
+- [06:22.800] family of six kids, my husband's from
+- [06:24.880] four. We only had two, but I love seeing
+- [06:28.360] the focus [music] of
+- [06:30.520] family first. And to all you moms out
+- [06:33.080] there, happy Mother's Day. For the
+- [06:34.760] hardest working job in the world, happy
+- [06:36.840] Mother's [music] Day.
+- [06:38.040] Happy Mother's Day. Have a very special
+- [06:40.560] and wonderful day.
+- [06:42.360] I'm so grateful [music] and blessed to
+- [06:43.680] have such an amazing mom by my side, and
+- [06:46.760] I just wanted to say happy Mother's Day
+- [06:48.440] to all the incredible mothers out there.
+- [06:51.560] That was perfect.

@@ -1,0 +1,114 @@
+<!-- source: https://www.youtube.com/watch?v=po3kIThzQ6k -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: po3kIThzQ6k -->
+<!-- date_published: 2025-10-30T03:00:52+00:00 -->
+<!-- date_accessed: 2026-06-02T01:11:46.050856+00:00 -->
+
+# Transcript: President Trump Participates in a Bilateral Meeting with President Xi
+
+- [00:00.920] Well, thank you very much. It's a great
+- [00:02.400] honor to be with a friend of mine really
+- [00:04.680] for a long time now, if you think about
+- [00:06.440] it.
+- [00:07.520] The
+- [00:08.520] very, very distinguished and respected
+- [00:12.000] president of China.
+- [00:14.040] And we will be having
+- [00:16.400] some discussions. I think we've already
+- [00:18.440] agreed to a lot of things and uh we'll
+- [00:20.600] agree to some more right now.
+- [00:22.840] Uh but uh President Xi is a great leader
+- [00:26.040] of a great country.
+- [00:27.760] And I think we're going to have a
+- [00:28.760] fantastic relationship
+- [00:31.400] for a long period of time. And it's an
+- [00:33.200] honor to have you with us. Thank you
+- [00:34.560] very much.
+- [00:36.960] Thank you.
+- [00:44.800] President Trump, it is a great pleasure
+- [00:47.440] for me as well to meet you.
+- [00:51.880] And it feels very warm seeing you again
+- [00:54.320] because it's been many years.
+- [00:59.040] Since your re-election,
+- [01:01.480] we have spoken on the phone three times,
+- [01:04.360] exchanged several letters,
+- [01:08.240] and stayed in close contact.
+- [01:12.560] And our joint guidance
+- [01:14.440] relations have remained stable on the
+- [01:16.240] whole.
+- [01:19.440] Given our different national conditions,
+- [01:21.880] we do not always see eye to eye with
+- [01:24.240] each other.
+- [01:25.640] And it is
+- [01:26.960] normal
+- [01:28.920] for the two leading economies of the
+- [01:30.520] world to have frictions now and then.
+- [01:35.840] And in the face of winds, waves, and
+- [01:38.200] challenges,
+- [01:39.720] you and I,
+- [01:41.200] at the helm of China-US relations,
+- [01:43.640] should stay the right course
+- [01:46.640] and ensure the steady sailing forward of
+- [01:48.720] the giant ship of China-US relations.
+- [01:51.640] I always believe that China's
+- [01:53.000] development
+- [01:55.200] goes hand in hand with your vision to
+- [01:58.160] make America great again.
+- [02:01.360] Our two countries are fully able to help
+- [02:03.320] each other succeed and prosper together.
+- [02:06.680] Over the years, I have stated in public
+- [02:08.679] many times
+- [02:10.240] that China and the United States should
+- [02:12.480] be partners and friends.
+- [02:14.560] This is what history has taught us
+- [02:17.280] and what reality nee- demands.
+- [02:22.120] A few days ago, in a latest round of
+- [02:24.120] consultation,
+- [02:26.960] our two economic and trade teams reached
+- [02:29.440] a basic consensus on addressing our
+- [02:31.080] respective concerns and made encouraging
+- [02:33.480] progress.
+- [02:34.640] This provided the necessary conditions
+- [02:36.480] for our meeting today.
+- [02:38.600] Mr. President, I'm ready to continue
+- [02:41.400] working with you
+- [02:42.880] to build a solid foundation for China-US
+- [02:44.960] relations
+- [02:46.680] and create
+- [02:48.320] a sound atmosphere for the development
+- [02:50.200] of both countries.
+- [02:52.160] Mr. President, you care a lot about
+- [02:54.640] world peace.
+- [02:56.880] And you're very enthusiastic about
+- [02:59.000] settling various regional hotspot
+- [03:00.840] issues.
+- [03:03.560] I appreciate your great contribution to
+- [03:05.560] the recent conclusion of the Gaza
+- [03:07.040] ceasefire agreement.
+- [03:08.880] During your visit to Malaysia, you
+- [03:10.280] witnessed the signing of the joint
+- [03:12.080] declaration on peace along the
+- [03:13.560] Cambodia-Thailand
+- [03:15.200] border,
+- [03:17.680] to which
+- [03:19.240] you had provided input.
+- [03:21.760] China's been helping our own way
+- [03:24.680] Cambodia and Thailand properly settle
+- [03:26.720] their border disputes.
+- [03:29.080] And we've also been
+- [03:31.520] promoting peace talks to resolve other
+- [03:33.600] hotspot issues. The world today is
+- [03:35.840] confronted with many tough problems.
+- [03:37.840] China and the US can jointly shoulder
+- [03:39.680] our responsibility as major countries
+- [03:42.280] and work together to accomplish more
+- [03:48.600] great and concrete things for the good
+- [03:50.560] of our two countries and the whole
+- [03:51.880] world. I look forward to exchanging
+- [03:54.960] views with you
+- [03:56.800] on questions important for two countries
+- [03:59.120] and world. Thank you.
+- [04:01.200] Thank you. Thank you very much.
+- [04:03.600] It's great to have you all. Thank you
+- [04:04.800] very much.

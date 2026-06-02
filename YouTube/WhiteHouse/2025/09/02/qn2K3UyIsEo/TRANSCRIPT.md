@@ -1,0 +1,1181 @@
+<!-- source: https://www.youtube.com/watch?v=qn2K3UyIsEo -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: qn2K3UyIsEo -->
+<!-- date_published: 2025-09-02T19:41:14+00:00 -->
+<!-- date_accessed: 2026-06-02T02:45:05.555922+00:00 -->
+
+# Transcript: President Trump Makes an Announcement, Sep. 2, 2025
+
+- [00:03.303] The President: -- very much, it's a very important day
+- [00:05.705] and important announcement with great friends of mine.
+- [00:08.241] I think I can say this group is every one of them, I rate it 10.
+- [00:14.247] I can't always say that even if they're Republicans,
+- [00:16.916] and these are Republicans, great Republicans.
+- [00:19.085] I want to thank you all for being here
+- [00:21.354] for this important announcement, seven years in the making.
+- [00:24.457] As you know, this has been going on for a long period of time.
+- [00:27.961] And I am thrilled to report
+- [00:29.596] that the U.S. Space Command Headquarters
+- [00:32.899] will move to the beautiful locale
+- [00:37.804] of a place called Huntsville, Alabama,
+- [00:41.241] forever to be known from this point forward as Rocket City.
+- [00:46.212] Okay? So Huntsville, Alabama, we love Alabama.
+- [00:50.250] I only won it by about 47 points,
+- [00:53.420] I don't think that influenced my decision though, right?
+- [00:55.789] That didn't, right?
+- [00:57.624] But we had a lot of competition for this,
+- [01:00.360] and Alabama is getting it, Huntsville in particular.
+- [01:03.730] So congratulations everybody. Katie, congratulations.
+- [01:08.034] This will result in more than 30,000 Alabama jobs
+- [01:11.171] and probably much more than that,
+- [01:12.806] and hundreds of millions of dollars of investment.
+- [01:15.175] And that's billions because it can't be millions,
+- [01:17.210] it's billions and billions of dollars.
+- [01:19.412] Most importantly, this decision will help America defend
+- [01:22.315] and dominate the high frontier, as they call it.
+- [01:25.718] I want to thank Secretary Pete Hegseth,
+- [01:28.922] he's doing a fantastic job.
+- [01:30.490] And Secretary of the Air Force, Troy Meink.
+- [01:33.793] Troy, thank you very much. Great job you're doing, Troy.
+- [01:37.764] This is such a big deal,
+- [01:39.632] this is one that everybody wanted to know.
+- [01:41.468] What are you doing?
+- [01:42.735] I also want to thank Senators Katie Britt,
+- [01:45.238] and I want to give my condolences, your grandmother --
+- [01:49.075] her grandmother just passed away.
+- [01:50.310] She was 100, right?
+- [01:52.779] Well, and she was very proud of you.
+- [01:55.114] Very, very proud of you, so thank you, Katie.
+- [01:57.016] Katie Britt: Wonderful woman.
+- [01:58.284] The President: She must have been to produce you indirectly.
+- [02:01.421] I can tell you she had a be.
+- [02:03.456] Tommy Tuberville, who's a great coach.
+- [02:06.359] And I won't say anything about what happened
+- [02:09.762] with Alabama football this weekend.
+- [02:12.398] But you're not used to that, right? You're not used to that.
+- [02:15.502] Male Speaker: Speaker: Auburn won.
+- [02:16.736] The President: But Tommy --
+- [02:18.137] Auburn won, that's right. They did, so you're happy.
+- [02:22.475] Tommy's been a great senator as you know,
+- [02:24.811] and a fantastic guy all around. He was also a tremendous coach.
+- [02:29.916] House Armed Services Committee Chair Mike Rogers.
+- [02:32.652] Thank you, Mike. Where is Mike?
+- [02:35.088] Mike, thank you very much, you're doing great, Mike.
+- [02:38.024] Representatives Barry Moore, all great friends.
+- [02:40.493] Robert Aderholt, Gary Palmer, and Dale Strong,
+- [02:43.596] thank you all very much, fellas. We appreciate it.
+- [02:46.499] In my first term, we created
+- [02:49.836] and I created a thing called Space Force.
+- [02:52.572] So important we were losing the race
+- [02:55.875] in space very badly to China and to Russia.
+- [02:59.712] And now we're far and away number one in space,
+- [03:03.349] and re-establish SPACECOM with a mission
+- [03:07.287] to protect American space assets
+- [03:09.322] and detect any threat to our homeland.
+- [03:12.492] We initially selected Huntsville for the SPACECOM headquarters,
+- [03:15.895] yet those plans were wrongfully obstructed
+- [03:19.198] by the Biden administration.
+- [03:21.568] And as you know they moved them to a different locale.
+- [03:25.238] And today we're moving forward with what we want to do
+- [03:28.174] in the place that we want to have this.
+- [03:29.909] And this will be there for, hopefully, hundreds of years.
+- [03:33.279] That's where it's going to be.
+- [03:35.715] I will say I want to thank Colorado.
+- [03:38.785] The problem I have with Colorado,
+- [03:40.486] one of the big problems, they do mail-in voting.
+- [03:42.555] They went to all mail-in voting,
+- [03:44.824] so they have automatically crooked elections,
+- [03:47.594] and we can't have that.
+- [03:48.828] When a state is for mail-in voting,
+- [03:51.264] that means they want dishonest elections
+- [03:53.032] because that's what that means.
+- [03:54.867] So that played a big factor also.
+- [03:58.004] In Huntsville, SPACECOM will play a key role
+- [04:01.074] in building the Golden Dome,
+- [04:02.508] as you know that's going to be a big thing.
+- [04:04.277] Everybody wants to be a participant in it.
+- [04:07.246] Missile Defense Shield,
+- [04:08.414] we're going to be having a Golden Dome
+- [04:11.217] the likes of which nobody's ever seen before,
+- [04:14.120] the finest, the best.
+- [04:15.388] And by the way, Canada called they want to be a part of it,
+- [04:17.991] and that'll be great.
+- [04:19.225] But Canada wants very much to be included in that,
+- [04:22.695] then we're going to work something out with them I hope.
+- [04:25.298] It will also ensure that our technological capabilities
+- [04:29.202] of which we're way ahead of anybody else's,
+- [04:32.238] nobody close, remain unmatched long into the future.
+- [04:35.642] So I'd like to ask Secretary Hegseth to say a few words.
+- [04:39.479] He was very much a part of it.
+- [04:41.180] And really everybody behind me was,
+- [04:42.949] every one of these people would call me and lobby me.
+- [04:45.618] I said, "Katie, I don't want to talk to you anymore.
+- [04:48.354] I know, I know what you want."
+- [04:50.456] She said, "That's right, sir, that's what I want."
+- [04:52.992] And they got their way.
+- [04:54.494] So I just want to congratulate, these are really special people.
+- [04:58.698] They're politicians in many ways,
+- [05:00.466] but they're great patriots,
+- [05:01.734] I think even more so than politicians.
+- [05:03.703] So they fought very hard to get it,
+- [05:05.672] and it's an honor to give it to Huntsville.
+- [05:08.741] Pete, say a few words please.
+- [05:12.912] Secretary Hegseth: Thank you. Mr. President.
+- [05:14.681] As usual, right place, right time, for the right reason.
+- [05:19.252] In your first administration,
+- [05:20.586] you established the Space Force at a time
+- [05:22.155] when we knew we had to be looking to that domain of space.
+- [05:25.091] You also re-established SPACECOM
+- [05:26.926] to ensure that priority was put in place.
+- [05:29.562] And you, through the Air Force,
+- [05:31.497] independently identified that Huntsville,
+- [05:33.032] Alabama was the right place to put it.
+- [05:35.234] For other reasons, in the next administration under Biden,
+- [05:38.304] they decided to move it somewhere else.
+- [05:39.839] Well, during that time the DOD Inspector General,
+- [05:43.676] the Government Affairs Office, they did their own assessments.
+- [05:46.112] And where did they say SPACECOM should go?
+- [05:48.448] Huntsville, Alabama.
+- [05:49.716] So what you're doing today, Mr. President,
+- [05:51.384] is restoring it to precisely where it should be based
+- [05:54.053] on what the Space Force, the Air Force,
+- [05:56.723] your leadership believes will give us strategic advantage
+- [05:59.659] in the future, that is Huntsville, Alabama.
+- [06:02.695] We are way ahead in space,
+- [06:04.564] but this will ensure we stay leaps and bounds ahead
+- [06:07.066] because that's the most important domain.
+- [06:09.202] Whoever controls the skies will control the future of warfare.
+- [06:12.338] And Mr. President, today you're ensuring that happens.
+- [06:14.207] Thank you.
+- [06:15.441] The President: Thank you very much.
+- [06:16.876] Katie, would you like to say something?
+- [06:19.779] Katie Britt: Mr. President,
+- [06:21.047] we are grateful for your leadership on this,
+- [06:23.716] and restoring Space Command to its rightful home
+- [06:26.619] in Huntsville, Alabama.
+- [06:28.087] This delegation has worked together both chambers,
+- [06:31.691] both parties, to make sure that Huntsville was the place
+- [06:35.161] that Space Command called Home.
+- [06:37.230] As was mentioned, obviously the Biden administration
+- [06:39.665] chose to make this political. What we want to do
+- [06:42.034] is put the safety and security of Americans first.
+- [06:45.505] We want to make sure that our war fighter is put first,
+- [06:48.975] and we want to make sure that America continues to lead.
+- [06:51.277] And today, Mr. president, you've allowed that to happen.
+- [06:53.613] Thank you.
+- [06:54.847] The President: Thank you very much.
+- [06:56.215] Tommy, please.
+- [06:57.517] Tommy Tuberville: Yeah, thank you.
+- [06:58.751] Thank you, Mr. President.
+- [06:59.986] This is a great day for our country,
+- [07:01.254] not just for our state of Alabama.
+- [07:05.224] We need help in our military, we need to catch up.
+- [07:10.563] And as Secretary Hegseth said, we're not behind in space,
+- [07:16.636] but we know where we're at, and we need to expound on that.
+- [07:20.439] Now, this move will save the taxpayers $480 million.
+- [07:27.747] It's not going to cost more, it's going to cut $480 million.
+- [07:31.584] We have the plans intact, it'll be behind a secure wall
+- [07:35.555] in Huntsville, Alabama, Redstone Arsenal.
+- [07:37.757] We have 40,000 people there, we have the FBI there,
+- [07:40.459] we have missile defense there, we have NASA,
+- [07:43.129] blue Origin, and SpaceX.
+- [07:46.799] It is the perfect place for Space Command.
+- [07:49.202] I would tell you today,
+- [07:50.536] and again I've spoke with the president
+- [07:52.104] for the last three or four years about this,
+- [07:54.240] of I thought it needed to go somewhere else,
+- [07:55.875] because I understand the security of our country,
+- [07:58.544] I'd be for that.
+- [07:59.745] But the best place for Space Command is Huntsville,
+- [08:03.082] Alabama because what we have
+- [08:05.184] and what it means to this country
+- [08:07.386] is going to be so important.
+- [08:08.754] So thank you, Mr. President for this.
+- [08:10.590] And we look forward to building a huge Space Command,
+- [08:13.826] and having the Donald J.
+- [08:15.361] Trump Space Command Center in Huntsville, Alabama.
+- [08:18.364] (applause)
+- [08:24.203] The Vice President: Sure. Well, Mr. President, thank you.
+- [08:26.138] I'll be very brief here.
+- [08:27.707] I lobbied the president, hard to put it in Ohio,
+- [08:30.376] but he said these people behind us,
+- [08:31.811] these Alabamas are just too powerful and too persuasive.
+- [08:34.981] And so it's in Alabama, but as Tommy said,
+- [08:37.283] this is exactly the right place
+- [08:38.484] for Space Force and Space Command.
+- [08:40.453] I think Americans ought to appreciate it,
+- [08:41.888] and ought to appreciate the fact
+- [08:43.823] that you can't win the battle of the future
+- [08:46.259] unless you control the skies.
+- [08:48.027] The cybersecurity, the communications,
+- [08:50.596] the entire infrastructure of the battle
+- [08:53.032] in the 21st century will be in space.
+- [08:54.901] So it was a visionary move in the first administration
+- [08:57.570] for the President to set up Space Force.
+- [08:59.505] And I think an equally visionary move
+- [09:00.873] to make sure that Space Force is right
+- [09:02.108] where it should be in Huntsville, Alabama.
+- [09:03.409] Thank you, sir.
+- [09:04.610] The President: Thank you very much.
+- [09:05.845] Gentlemen, anybody want to say anything?
+- [09:07.546] Would you like to say?
+- [09:08.748] Dale Strong: Mr. President, another promise made,
+- [09:11.417] another promise kept.
+- [09:13.152] You think about it, Redstone Arsenal
+- [09:15.087] is critical to national security.
+- [09:16.656] The president said, when you were the 45th president,
+- [09:19.725] "Let's do what's right for national security."
+- [09:21.894] And today, that's exactly what we're doing.
+- [09:24.196] It's not because of this or that,
+- [09:26.065] it's because it's right for national security.
+- [09:28.734] You think of the 21 categories that were evaluated
+- [09:31.070] to determine what was best for national security,
+- [09:34.273] all indicators pointed back to Huntsville,
+- [09:36.742] Alabama and Redstone Arsenal.
+- [09:39.011] We have the right people at the right place at the right time.
+- [09:42.214] Mr. President, on behalf of the people
+- [09:44.050] of the 5th Congressional District,
+- [09:45.551] and all of Alabama, thank you for keeping your word.
+- [09:48.554] The President: Thank you. Thank you very much. Anybody?
+- [09:51.257] Robert Aderholt: Let me just say, Mr. President,
+- [09:53.659] I want to say thank you. And thank you for doing this
+- [09:56.696] because it was the right thing to do.
+- [10:00.333] When they looked at all the numbers,
+- [10:02.735] Huntsville was the place to go.
+- [10:04.403] And like you say, it was unfortunately pulled out,
+- [10:07.406] but you made it right.
+- [10:08.674] So I want to just say thank you again for a grateful nation.
+- [10:12.078] And to the state of Alabama, we're very grateful.
+- [10:13.879] Thank you, and God bless.
+- [10:15.214] The President: Thank you very much.
+- [10:16.415] Robert Aderholt: Thank you.
+- [10:16.682] The President: Thank you very much.
+- [10:17.883] Male Speaker: Mike do you want to say --
+- [10:19.085] The President: Please, go ahead.
+- [10:21.020] Gary Palmer: Thank you, Mr. President.
+- [10:22.888] Throughout history, militaries has always understood
+- [10:25.324] that whoever could hold the high ground, held the advantage.
+- [10:28.694] Space is the ultimate high ground.
+- [10:30.896] And what we're doing with moving the Space Command to Huntsville
+- [10:33.866] is absolutely critical
+- [10:35.101] to our maintaining dominance in that sphere.
+- [10:38.137] And it goes hand in hand with what we're trying to do
+- [10:40.039] with the Golden Dome and missile defense.
+- [10:41.974] To defend against anyone else who tries to enter that sphere.
+- [10:44.710] So thank you Mr. President.
+- [10:45.945] The President: Thank you very much.
+- [10:47.546] Please, go ahead.
+- [10:48.814] Male Speaker: Thank you, Mr. president.
+- [10:50.049] And obviously national defense is a huge issue.
+- [10:52.551] And when you look at the scores, Alabama was number one.
+- [10:54.887] And for political reasons, it was moved out of our state.
+- [10:57.089] But Mr. President, thank you for making priorities
+- [10:59.592] the defense and the war fighter, and the safety of this nation.
+- [11:01.994] And in the Big Beautiful Bill that Golden Dome
+- [11:04.063] will be built in Huntsville, Alabama,
+- [11:05.798] and we're grateful for that. Thank you.
+- [11:10.836] Mike Rogers: Listen, as Chairman of the Armed Services Committee,
+- [11:13.305] I care very much about what's most important
+- [11:15.574] for our national security.
+- [11:17.610] And the president held a nationwide competition
+- [11:21.280] to determine where we should have this command.
+- [11:24.417] If y'all remember at the end of that competition
+- [11:26.752] where Alabama came in first,
+- [11:28.287] there was a lot of complaints from the other states
+- [11:30.556] who did not place well.
+- [11:32.591] He said, "We'll do it over with new criteria
+- [11:35.027] to accommodate your concerns."
+- [11:37.096] Alabama came in first in that second competition.
+- [11:40.800] His Secretary of the Air Force reviewed the results,
+- [11:43.169] said it was fair,
+- [11:44.437] and the president named Huntsville.
+- [11:46.739] It was the Biden administration
+- [11:49.008] that decided to make it political,
+- [11:51.077] even though his own secretary of the Air Force
+- [11:53.846] said it was a fair competition and it should be in Huntsville.
+- [11:57.183] So I want you to know, I appreciate this president
+- [11:59.652] standing up and being strong
+- [12:00.953] and saying he's going to make this right
+- [12:02.221] and put it where it rightfully belongs,
+- [12:03.689] that's Huntsville, Alabama.
+- [12:05.291] The President: Thank you very much, good job.
+- [12:08.727] So thank you all very much.
+- [12:10.729] You are going to leave me alone now,
+- [12:12.364] you're not going to call me anymore
+- [12:13.732] and talk about this subject, right?
+- [12:15.367] You promise? They'll start something else.
+- [12:19.872] But I just want to congratulate you, it's a very big deal.
+- [12:22.842] When you come out and when you leave the room,
+- [12:24.844] you'll see that we just, over the last few minutes,
+- [12:28.581] literally shot out a boat, a drug-carrying boat,
+- [12:33.552] a lot of drugs in that boat. And you'll be seeing that,
+- [12:36.989] and you'll be reading about that.
+- [12:39.024] It just happened moments ago.
+- [12:40.860] And our great general head of the Joint Chiefs of Staff,
+- [12:46.098] who has been so incredible,
+- [12:49.034] including what took place in Iran,
+- [12:52.204] knocking out potential nuclear power for long time to come.
+- [12:57.576] I think within a month they would've had it
+- [12:59.345] if we didn't do what we did,
+- [13:01.213] but he gave us a little bit of a briefing.
+- [13:04.850] And you'll see.
+- [13:06.085] And there's more where that came from.
+- [13:08.554] We have a lot of drugs pouring into our country,
+- [13:10.723] coming in for a long time, and these came out of Venezuela,
+- [13:15.494] and coming out very heavily from Venezuela.
+- [13:17.663] A lot of things are coming out of Venezuela.
+- [13:19.465] So we took it out and you'll get to see that
+- [13:24.436] after this meeting is over.
+- [13:26.472] Do you have any questions please?
+- [13:28.040] The Press: Mr. President? The President: Yeah, please.
+- [13:29.375] The Press: Thank you, Mr. President.
+- [13:30.576] Senator Tuberville talked about the cost savings
+- [13:33.679] associated with this announcement.
+- [13:35.981] Can you talk about the strategic benefits
+- [13:39.251] by having Space Force Command headquartered in Huntsville?
+- [13:42.454] The President: Well, it just works
+- [13:43.722] because we have so much else there.
+- [13:45.925] And having a central, you could call it a central command,
+- [13:48.761] but it really is a command station.
+- [13:50.763] Also even locationally, where it is.
+- [13:53.065] And when you think about flying distances,
+- [13:56.669] if you can save a half an hour,
+- [13:58.070] as fast as some of these planes go and things go,
+- [14:00.539] and even the rockets go,
+- [14:02.341] if you can save by having the best location.
+- [14:04.376] So we went out, as you know, to experts,
+- [14:07.846] and we had four different groups of experts,
+- [14:11.183] they all said this was the best location.
+- [14:13.886] I also loved it from the standpoint,
+- [14:15.487] I know the people of Alabama,
+- [14:16.789] they are great people, work hard,
+- [14:19.024] and there's no games and they're very proud of it.
+- [14:21.493] And I would say they fought harder for it
+- [14:23.229] than anybody else, also.
+- [14:24.496] A lot of states, five states, really wanted it,
+- [14:27.666] but they wanted it more.
+- [14:29.134] And I kid you not when I say that these people,
+- [14:33.105] they spoke to me a lot.
+- [14:35.241] That's all they wanted to talk about.
+- [14:36.775] They didn't want to talk about the weather,
+- [14:38.844] they only wanted to talk about moving to this location,
+- [14:42.314] moving to Alabama, Huntsville in particular.
+- [14:44.416] So we're honored to do it.
+- [14:46.218] They really wanted it badly and they got it. Peter.
+- [14:48.487] The Press: President Trump, something completely different,
+- [14:50.856] but a big viral social media trend over the weekend.
+- [14:54.660] How did you find out over the weekend that you were dead?
+- [14:58.163] Did you see that?
+- [14:59.398] The President: No.
+- [15:00.633] The Press: People didn't see you for a couple of days.
+- [15:01.934] 1.3 million user engagements
+- [15:04.036] as of Saturday morning about your demise.
+- [15:07.206] The President: Really? I didn't see that.
+- [15:09.074] I have heard, it's sort of crazy,
+- [15:11.076] but last week I did numerous news conferences,
+- [15:14.013] all successful, they went very well,
+- [15:15.881] like this is going very well.
+- [15:17.950] And then I didn't do any for two days and they said,
+- [15:21.320] "There must be something wrong with him."
+- [15:23.555] Biden wouldn't do them for months, you wouldn't see him.
+- [15:26.458] And nobody ever said there was ever anything wrong with him,
+- [15:29.028] and we know he wasn't in the greatest of shape.
+- [15:31.730] No, I heard that. I get reports. Now, you knew I did an interview
+- [15:35.834] that lasted for about an hour and a half with somebody,
+- [15:38.537] and everybody saw, that was on one of your competitors.
+- [15:42.574] I did numerous shows, and also did a number of truths,
+- [15:47.112] long truths, I think pretty poignant truths.
+- [15:50.049] No, I was very active over the weekend.
+- [15:51.650] They also knew I went out to visit some people at the club
+- [15:55.654] that I own pretty nearby, on the Potomac River.
+- [16:00.092] No, I've been very active actually over the weekend.
+- [16:02.127] I didn't hear that one, that's pretty serious stuff.
+- [16:04.096] The Press: Fake news. I'm glad it's fake.
+- [16:05.331] The President: Well, it's fake news. It's so fake.
+- [16:08.200] That's why the media has so little credibility.
+- [16:12.705] I knew they were saying, "Is he okay?"
+- [16:15.774] "How's he feeling?" "What's wrong?" I just left.
+- [16:19.478] And it's also a longer weekend, it's Labor Day weekend,
+- [16:22.881] so I would say a lot of people --
+- [16:24.483] No, I was very active this Labor Day.
+- [16:26.618] I had heard that, but I didn't hear it to that extent.
+- [16:28.587] Go ahead, Peter.
+- [16:29.888] The Press: And something else. We know that this country
+- [16:31.457] has a huge problem with school shootings.
+- [16:33.726] You've said that you were open to sending the National Guard
+- [16:36.395] pretty much anywhere. Would you ever consider
+- [16:38.997] sending an armed National Guardsman to every school?
+- [16:43.469] The President: Well, we have a big problem
+- [16:44.670] with school shooting,
+- [16:46.705] but we also have thousands and thousands of schools
+- [16:50.776] that run perfectly.
+- [16:52.544] They talk about you can do things construction-wise,
+- [16:55.414] and I think nobody knows more about construction than me.
+- [17:01.453] You can build the construction doors,
+- [17:02.921] you can build what they call safety doors,
+- [17:05.424] where they lock on the outside, the inside and every place else.
+- [17:09.061] But if one of these lunatics happens to get through,
+- [17:12.631] then the police can't get in.
+- [17:14.366] Then they're looking for keys all over the place,
+- [17:16.802] a lot of disadvantages.
+- [17:20.572] And you're spending billions and billions of dollars
+- [17:23.742] and actually making it safer, in some way,
+- [17:25.544] for some of these lunatics that we're dealing with.
+- [17:27.546] But I don't think so. I've thrown out the concept.
+- [17:32.785] We have great teachers that love our children.
+- [17:34.787] The parents love the children. Teachers love the children too.
+- [17:38.390] And if you took a small percentage of those teachers
+- [17:40.826] that were in the military,
+- [17:42.394] that were distinguished in the military,
+- [17:44.263] that were in the National Guard, et cetera, et cetera,
+- [17:46.565] and you let them carry,
+- [17:49.601] that's something that a lot of people like.
+- [17:51.470] I sort of liked it, it'd have to be studied.
+- [17:54.273] But they're trained, they know about weapons.
+- [17:58.944] You can't do it with every teacher,
+- [18:00.512] because most teachers don't know.
+- [18:02.681] But I always thought that would be an alternative.
+- [18:06.118] But we've had a lot of instances.
+- [18:10.923] Other countries have also,
+- [18:12.257] they have different kinds of problems than we have,
+- [18:14.660] but there's something going on, something going on,
+- [18:19.031] and it's a bad thing. Yes, please.
+- [18:21.733] The Press: Have you spoken with President Putin
+- [18:23.335] in the past week?
+- [18:24.937] Have you spoken with President Putin?
+- [18:26.271] The President: Yeah, I don't want to --
+- [18:28.474] I have learned things that will be very interesting,
+- [18:31.810] I think in the next few days you'll find out.
+- [18:33.579] The Press: Will there be any consequences
+- [18:35.280] if there isn't some type of announcement of a meeting
+- [18:37.483] with President Putin and President Zelenskyy?
+- [18:39.084] The President: Yeah, there will be.
+- [18:40.285] The Press: And what would those consequences be?
+- [18:41.553] The President: We're going to see what happens.
+- [18:42.788] We're going to see what they do and what happens.
+- [18:44.289] I'm watching it very closely. Last week they lost 7,000,
+- [18:47.726] between the two countries, 7,313 soldiers,
+- [18:52.364] to be somewhat exact, for no reason whatsoever.
+- [18:58.036] And they're Russian and they're Ukrainian,
+- [18:59.771] but they're soldiers. I want to see it end, yeah.
+- [19:02.541] The Press: Mr. President, have you decided
+- [19:03.976] you're definitely going to send National Guard troops
+- [19:06.278] to Chicago?
+- [19:08.514] The President: I didn't say when,
+- [19:09.715] but the answer is, look, Chicago's very interesting,
+- [19:13.185] because I watch Pritzker get up and say about,
+- [19:15.521] "We don't need help, we're safe."
+- [19:17.055] But two weeks ago they had 6 people murdered
+- [19:23.028] and they had 24 people hit by bullets.
+- [19:27.099] Last week, as you know, it was 7 people,
+- [19:29.001] 24 people hit, and 7 people died.
+- [19:32.938] And then over the last two days, that was the crown jewel,
+- [19:38.443] they had, I guess, 9 killed, 9 or 10 killed,
+- [19:42.114] and 50 hit with bullets.
+- [19:44.483] And you have this governor get up, who's a terrible governor,
+- [19:48.987] he and Gavin Newscombe would be probably the two worst
+- [19:52.424] and most naive, they're naive.
+- [19:55.360] Either they're naive or they're very untruthful,
+- [19:58.030] and he'll say, "We don't want any protection, we don't need."
+- [20:02.367] So in the last three weeks he's lost almost 20 people, killed.
+- [20:07.139] There's no place in the world,
+- [20:10.242] including you can go to Afghanistan,
+- [20:12.611] you can go to places that you would think of,
+- [20:15.447] they don't even come close to this.
+- [20:17.482] Chicago is a hellhole right now.
+- [20:19.518] Baltimore is a hellhole right now.
+- [20:22.955] Parts of Los Angeles are terrible.
+- [20:24.756] If we didn't put out the fires, and I mean the other fires,
+- [20:28.060] the bullet fires, they didn't do a good job with,
+- [20:31.263] they should have had the water coming down, like I said.
+- [20:33.699] We had to release the water, we had to go in and release
+- [20:36.101] the water to L.A., it's so badly run.
+- [20:38.704] But if I didn't send the National Guard into Los Angeles
+- [20:43.375] I would be making an announcement today,
+- [20:45.344] I'd be talking about Huntsville,
+- [20:47.179] and I'd simultaneously be saying,
+- [20:49.047] "By the way, the Olympics is not coming to Los Angeles."
+- [20:51.617] The Press: (inaudible)
+- [20:52.818] The President: If didn't do that --
+- [20:54.953] And even the sheriff, the top law enforcement person
+- [20:58.256] in Los Angeles said, "
+- [21:00.826] We could not have handled it without them."
+- [21:03.362] So that's what he said.
+- [21:04.563] The Press: Have you made your mind up on Chicago though?
+- [21:06.965] The President: Well, we're going in.
+- [21:08.266] I didn't say when, we're going in.
+- [21:10.702] Look, I have an obligation, this isn't a political thing.
+- [21:14.306] I have an obligation.
+- [21:15.574] When 20 people are killed over the last two
+- [21:19.144] and a half weeks and 75 are shot with bullets.
+- [21:24.883] So let me tell you a little story about a place called D.C.,
+- [21:28.820] District of Columbia, right here where we are,
+- [21:31.657] it's now a safe zone. We have no crime.
+- [21:35.627] It's in such great shape you can go
+- [21:37.829] and actually walk with your children,
+- [21:40.098] your wife, your husband,
+- [21:41.400] you can walk right down the middle of the street,
+- [21:43.235] you're not going to be shot, Peter.
+- [21:45.003] You're safe.
+- [21:46.538] Everyone likes you anyway, they probably wouldn't do it.
+- [21:50.075] But it's so dangerous.
+- [21:51.443] And there are people in this audience,
+- [21:53.845] you've suffered greatly.
+- [21:55.847] There are people in this audience
+- [21:57.115] that have been mugged and hurt badly
+- [21:59.818] and they don't want to talk about it.
+- [22:01.653] Maybe you were very brave in talking about it,
+- [22:03.488] you made quite an impression on a lot of people,
+- [22:05.057] I appreciate it.
+- [22:06.324] The Press: Thank you, Mr. President.
+- [22:07.526] The President: But there were other people in this room
+- [22:08.894] that have been hurt very badly
+- [22:10.462] just walking down the street in D.C.
+- [22:12.898] Washington D.C. is a safe zone right now, it's a safe city.
+- [22:18.036] The restaurants are open, they're booming,
+- [22:20.872] you can't get a restaurant.
+- [22:22.240] New restaurants are announcing that they're going to be open.
+- [22:25.744] This took place in 12 days, now it's 15 days.
+- [22:28.380] But three days ago it became what's known as a safe zone.
+- [22:31.917] It's a safe city.
+- [22:33.585] And this city was really bad, really, really bad.
+- [22:36.855] We took 1,600 people out, hardcore criminals
+- [22:40.692] that will not be coming back anytime soon,
+- [22:44.096] and we're very proud of it.
+- [22:47.332] To have our nation's capital lose every week,
+- [22:51.870] it was many years where every single week somebody was killed,
+- [22:57.075] for many, many, many consecutive weeks,
+- [23:00.479] this went on for years.
+- [23:02.681] And then last week it was announced
+- [23:05.317] that nobody was killed last week.
+- [23:07.652] And I made that announcement in front
+- [23:09.154] of a very distinguished leader of a country.
+- [23:11.857] And I'm saying proudly, "Ladies and gentlemen,
+- [23:15.293] nobody was killed in Washington D.C. this week."
+- [23:17.596] He looked at me like, "What's that all about?"
+- [23:21.666] I say, "Yeah, we have a little bit of a crime problem."
+- [23:24.236] And we don't have a crime problem in Washington anymore.
+- [23:26.705] And the mayor has been very helpful,
+- [23:28.707] and the police commissioner has been very helpful,
+- [23:31.243] and it's been a great team.
+- [23:32.644] And I would love to have Governor Pritzker call me,
+- [23:36.848] I'd gain respect for him, and say, "We do have a problem
+- [23:39.918] and we'd love you to send in the troops,"
+- [23:42.354] because you know what?
+- [23:43.755] The people, they have to be protected.
+- [23:45.690] I saw today on one of your networks,
+- [23:48.193] not a friendly network, really the opposite,
+- [23:52.397] I would say, very unfriendly network,
+- [23:54.533] and they interviewed about 12 people on this morning,
+- [23:59.671] most of them were African-American,
+- [24:01.973] who were Black, and they were saying,
+- [24:05.043] "Please, please let the President send in,"
+- [24:08.380] these were people from Chicago,
+- [24:10.515] "Please, we need help. We need help.
+- [24:13.018] We can't walk outside. We're petrified."
+- [24:15.554] If the governor of Illinois would call up,
+- [24:18.924] call me up, I would love to do it.
+- [24:20.892] Now we're going to do it anyway, we have the right to do it,
+- [24:24.729] because I have an obligation to protect this country.
+- [24:27.699] And that includes Baltimore.
+- [24:29.034] I saw where Governor Moore was asking me
+- [24:32.871] to take a walk down the street of Baltimore.
+- [24:34.773] Well, Baltimore is a very unsafe place,
+- [24:37.375] it's rated number four in the city,
+- [24:38.944] one of worst,
+- [24:40.245] one of the most unsafe places anywhere in the world.
+- [24:43.515] But we took care.
+- [24:44.850] This was a beautiful thing that happened in Washington
+- [24:47.118] because we showed that it could be done.
+- [24:49.421] And this wasn't just sending big strong guys,
+- [24:51.957] and they are big and they are strong,
+- [24:54.759] we had a great decision from the Supreme Court
+- [24:57.762] that had to do with talent,
+- [25:00.899] it had to do with you are put down based on merit,
+- [25:07.239] you can hire based on merit.
+- [25:09.608] So merit for a soldier, for a policeman, is strong,
+- [25:14.145] physically fit, having a certain ability,
+- [25:18.583] not a person that is woke and got the job through woke
+- [25:23.154] but wasn't strong enough to lift a gun out of the holster,
+- [25:26.157] et cetera, et cetera.
+- [25:27.359] Now, I looked at the police, as you know,
+- [25:29.494] last week I went over,
+- [25:30.695] we had a meeting with that had to be 300 people
+- [25:33.632] and they were all very impressive-looking.
+- [25:35.634] And when the bad guys see them they're not going to do a thing.
+- [25:39.504] And so I'm very proud of Washington,
+- [25:41.406] it serves as a template
+- [25:43.241] and we're going to do it elsewhere.
+- [25:44.776] But Chicago is certainly going to be high.
+- [25:47.545] I would love to have him call,
+- [25:50.048] I would love the Governor of Illinois,
+- [25:52.384] I'd be honored to take his call. All he has to do is say,
+- [25:55.820] "Sir, we need help. It's out of control."
+- [25:57.822] And everyone knows it is, he's not kidding anyone.
+- [26:00.825] I would love to have, I would say Governor Moore call,
+- [26:04.996] because I watched him over the weekend
+- [26:06.431] trying to explain that Baltimore,
+- [26:09.534] what they need is housing. No, they don't need housing.
+- [26:12.304] They need to get rid of the criminals.
+- [26:13.905] These are hardcore criminals.
+- [26:16.341] We took many people off the streets of Washington.
+- [26:19.744] D.C., they're hardcore.
+- [26:22.213] They're not going to be good in 10 years,
+- [26:24.683] in 20 years, in two years, they're going to be criminals.
+- [26:27.886] They were born to be criminals, frankly.
+- [26:30.455] They were born to be criminals, and they're tough and mean,
+- [26:34.025] and they'll cut your throat
+- [26:35.493] and they won't even think about it the next day.
+- [26:37.629] They won't even remember that they did it.
+- [26:40.198] And we're not going to have those people.
+- [26:41.900] Washington D.C. is now a safe zone.
+- [26:45.437] It's a safe place, and you can walk,
+- [26:47.539] Katie, you can walk right down the street with,
+- [26:50.208] by the way, one of the biggest human beings
+- [26:51.943] I've ever seen, which is her husband.
+- [26:54.245] He was a football player for like 11 years in the NFL.
+- [26:56.815] He's a big person,
+- [26:58.416] but big doesn't mean anything when they have guns
+- [27:01.052] and when they have knives and everything else that they have.
+- [27:03.955] But you can walk right down the street
+- [27:05.557] even by yourself and you're totally safe.
+- [27:07.425] Washington D.C is a great thing. Yes, ma'am please.
+- [27:09.728] The Press: Mr. President,
+- [27:11.096] as you are calling on democratic leaders
+- [27:12.864] across the country to work with you on crime,
+- [27:15.633] do you see your efforts here in D.C.,
+- [27:17.035] including, for example, working with Mayor Bowser here
+- [27:19.604] as a model for being more bipartisanship in matters
+- [27:23.274] not only with crime, but also issues that matter
+- [27:25.543] to everyday American people's lives.
+- [27:27.379] The President: So Mayor Bowser's has been great.
+- [27:29.547] She could have taken the thing "Oh well,
+- [27:31.449] and then after I clean it up, they'll take credit for it."
+- [27:33.818] You know what they do is they take credit.
+- [27:35.286] Like we cleaned up Los Angeles. We did a great job there,
+- [27:39.557] and it was overwhelming what was going on.
+- [27:43.194] And again, the police chief made a statement
+- [27:45.830] that we could not have done.
+- [27:47.632] There's no way they could handle it.
+- [27:49.134] You saw what was happening out there.
+- [27:50.435] It was going to be a disaster. We stopped it cold.
+- [27:53.204] If we didn't do that, would've been a very sad day.
+- [27:56.841] And remember, we have the Olympics,
+- [27:58.610] we have the World Cup, we have all these things coming
+- [28:01.112] and we have 250, all of these things coming.
+- [28:04.315] But I watched Newsom get up and say, he's doing a great --
+- [28:06.985] He's not. We're the ones that did it,
+- [28:08.520] and that's okay, whatever it takes.
+- [28:10.021] But the main thing is, but he got up and said,
+- [28:12.457] "We did it."
+- [28:13.725] Well, he didn't want us there, and he's going to need us again
+- [28:17.295] because it's starting to form again.
+- [28:18.897] I see it. It's starting to form again.
+- [28:21.633] We have to maintain, it's like maintenance on an airplane.
+- [28:24.602] You can buy it, but you have to maintain it.
+- [28:27.238] And if you don't maintain it,
+- [28:28.706] good plane becomes very unsafe very quickly.
+- [28:31.943] So it's an honor to do it.
+- [28:35.814] A lot of presidents wouldn't do what I'm doing.
+- [28:37.582] I don't need this heat.
+- [28:38.817] But when I watched television last night
+- [28:41.319] and I'm watching the news
+- [28:42.620] and I see that nine people were killed in Chicago
+- [28:46.791] and 54 were badly wounded with bullets,
+- [28:52.430] I say, that's not this country. We have to do something.
+- [28:56.000] And I do say this, I say this very much.
+- [28:58.336] I'm not speaking to anybody but them right now.
+- [29:00.772] I would love to receive calls from governors and mayors
+- [29:04.075] saying they need help. We'll help them.
+- [29:05.777] We have a lot of people. We have a great force.
+- [29:07.412] We have a great military force.
+- [29:10.448] Pete will tell you that when I was running for office,
+- [29:14.352] and this was a big headline,
+- [29:15.653] I think probably got me a couple of votes,
+- [29:18.723] but you couldn't sign people in the military.
+- [29:21.059] Nobody wanted to join the military, the Army,
+- [29:23.895] Air Force, the Navy, Marines,
+- [29:28.133] Space Force, Coast Guard --we never forget Coast Guard
+- [29:30.835] because they've done such a great job, never.
+- [29:33.304] But nobody wanted to join any of them.
+- [29:35.507] We were way below what we wanted.
+- [29:38.076] Every single one.
+- [29:39.344] The closest was the Marines, whatever that is.
+- [29:41.846] You'll explain that to me. But the closest was the Marines.
+- [29:44.215] But every service was way down, way down.
+- [29:47.986] And then I got elected,
+- [29:49.287] and our country's the hottest country
+- [29:51.156] anywhere in the world right now.
+- [29:52.724] Everybody's talking about the USA,
+- [29:55.193] they're talking about the job that we're doing.
+- [29:56.861] Everybody. We're the best economy.
+- [29:58.963] We have a very, very important decision
+- [30:01.866] being made by the Supreme Court
+- [30:03.401] because our country is the richest,
+- [30:06.070] the strongest, the most powerful.
+- [30:07.705] But if for some reason some liberal court,
+- [30:10.642] I'm talking about the court that just ruled
+- [30:12.310] where even an Obama judge voted in favor of us,
+- [30:14.846] which I gave him a compliment yesterday, as you know.
+- [30:17.482] I said, that took great courage. But it's a liberal court
+- [30:21.452] and it's going up to the Supreme Court
+- [30:24.055] who I think have been incredible people.
+- [30:26.758] I think they've made very wise decisions.
+- [30:29.861] But the tariff question, because without the tariffs
+- [30:33.965] as country's in serious, serious trouble.
+- [30:36.935] We've taken in almost $17 trillion of investment
+- [30:40.004] is coming in.
+- [30:41.306] Most of it has come in because of tariffs.
+- [30:43.875] And if for some reason
+- [30:46.544] somebody wanted to be politically correct --
+- [30:48.613] I actually think it's unpolitically correct.
+- [30:50.615] I think politically correct is to approve it
+- [30:52.984] because there's nothing so popular
+- [30:55.019] as what's happened to our country.
+- [30:56.254] Our country is doing so well.
+- [30:59.224] But we had a liberal court gave us a very shocking ruling.
+- [31:03.361] And that ruling is basically saying
+- [31:05.530] that the trillions of dollars
+- [31:07.232] that are pouring into our country,
+- [31:09.968] putting us in a position like no country
+- [31:12.003] is anywhere in the world,
+- [31:14.072] that they'd like to see us that take it away.
+- [31:16.608] By the way, a lot of the people behind that lawsuit,
+- [31:18.977] that particular --
+- [31:20.211] Are from foreign countries. I might add.
+- [31:26.050] The Press: There's a video that is circulating online
+- [31:27.986] now of the White House
+- [31:30.054] where a window is open to the residence upstairs
+- [31:33.524] and somebody is throwing a big bag out the window.
+- [31:35.827] Have you seen this?
+- [31:37.195] The President: No. That's probably AI generated.
+- [31:40.565] So actually you can't open the windows.
+- [31:43.034] You know why?
+- [31:44.335] They're all heavily armored and bulletproof.
+- [31:47.038] The Press: So that's a fake video?
+- [31:48.306] The President: Well, it's got to be,
+- [31:49.507] because I know every window up there.
+- [31:51.776] The last place I'd be doing it is that
+- [31:53.711] because there's cameras all over the place, right?
+- [31:55.680] Including yours.
+- [31:56.914] No, but every window, I've never seen a window that's,
+- [32:00.618] in fact, my wife was complaining about it the other day.
+- [32:03.087] She said, "Love to have a little fresh air come in."
+- [32:05.757] But you can't. They're bulletproof,
+- [32:07.659] and number one, they're sealed.
+- [32:10.662] And number two, each window weighs about 600 pounds.
+- [32:13.831] You have to be pretty strong to open them up.
+- [32:15.733] No, that has to be -- Where was the window?
+- [32:17.502] Let me see.
+- [32:23.808] The Press: Maybe from the renovations.
+- [32:28.079] The President: Which is the window?
+- [32:29.380] The Press: It looks like this is on the 15th street side,
+- [32:32.216] I think. So right here.
+- [32:35.386] The President: Yeah. Those windows are sealed.
+- [32:37.221] Those windows are all, they're all sealed.
+- [32:38.656] You can't open them.
+- [32:41.726] The Press: You were saying regarding the federal --
+- [32:43.194] The President: It's the kind of thing they do.
+- [32:44.629] And one of the problems we have with AI, it's both good and bad.
+- [32:47.965] If something happens really bad, just blame AI.
+- [32:50.902] But also they create things. It works both ways.
+- [32:54.372] If something happens, it's really bad,
+- [32:56.074] maybe I'll have to just blame AI.
+- [32:58.142] But there's truth to it because I see so many phony things.
+- [33:00.712] I saw something as I was growing up
+- [33:03.381] from the time I was a baby till now.
+- [33:05.783] I said, "Who did that?" It was AI generated.
+- [33:10.054] So it's a little bit scary to be honest with you.
+- [33:13.224] But those windows are all very heavily sealed.
+- [33:16.361] The Press: Mr. President, I'd follow up
+- [33:17.929] with what you were saying regarding that federal appellate
+- [33:20.031] court that ruled against you and your administration
+- [33:21.866] as it relates to your-
+- [33:23.134] The President: Well, they ruled against our country, the court.
+- [33:26.003] And they ruled against us before.
+- [33:27.305] It's a very liberal court.
+- [33:28.539] The Press: You called it highly partisan in your --
+- [33:29.807] The President: Well, it certainly is.
+- [33:31.075] It certainly is.
+- [33:32.276] The Press: And in fact, it was along ideological lines,
+- [33:33.544] seven to four.
+- [33:34.746] The President: Well, except that we actually
+- [33:36.013] got one of the Obama judges
+- [33:38.216] that was appointed by President Obama,
+- [33:40.551] voted in favor of the tariffs
+- [33:42.587] because he felt it was imperative for our country
+- [33:45.490] to thrive and survive even.
+- [33:48.926] And I gave him credit. I said, "You know what?
+- [33:50.828] That took a lot of courage for him to do it."
+- [33:52.363] Because you don't see that often.
+- [33:53.664] The Press: So my question is, I imagine,
+- [33:56.033] I suspect you're going to appeal
+- [33:58.069] that all the way to the Supreme Court.
+- [33:59.570] The President: Well, we already have. Yeah.
+- [34:00.805] In fact, we're doing something else.
+- [34:02.173] We're going to be going to the Supreme Court,
+- [34:04.142] we think tomorrow, because we need an early decision.
+- [34:07.245] I mean, look, the financial fabric of our country,
+- [34:10.748] we're a rich, incredible country right now, and we're able to --
+- [34:15.086] Other countries used tariffs on us for years,
+- [34:18.055] and we never did.
+- [34:19.924] I did a lot during my first term,
+- [34:21.993] but then we had COVID and we had to focus on other things.
+- [34:25.029] You couldn't be tariffing, Italy, Spain, France,
+- [34:28.099] as they were dying by the thousands and millions.
+- [34:32.236] But we did with China.
+- [34:33.805] And China paid us billions and billions of dollars.
+- [34:36.841] And I started the process,
+- [34:38.142] but then I had to end it a little bit because of COVID.
+- [34:40.178] We focused on that.
+- [34:41.946] But no, it's a very important decision.
+- [34:45.650] And frankly, if they make the wrong decision,
+- [34:49.487] it would be a devastation for our country.
+- [34:52.056] We've taken in trillions of dollars,
+- [34:55.393] and by the way, all these countries signed agreements
+- [34:57.995] as an example.
+- [34:59.664] They're all happy. Everybody's happy.
+- [35:01.999] But some whack job put in a lawsuit.
+- [35:05.503] It went before a very liberal court,
+- [35:08.239] and the liberal court ruled seven to four
+- [35:13.644] with one of the most liberal of them all voting in our favor
+- [35:17.148] because they're patriots.
+- [35:18.683] I think I give tremendous credit to that judge,
+- [35:21.986] and now it's going to the Supreme Court.
+- [35:23.454] Now we're going to be asking for early admittance.
+- [35:26.557] We're going tomorrow, and we're going to ask for expedited,
+- [35:30.228] an expedited ruling.
+- [35:31.496] Because when you look at the stock market's down today,
+- [35:35.533] the stock market's down because of that.
+- [35:37.468] Because the stock market needs the tariffs.
+- [35:39.470] They want the tariffs.
+- [35:41.239] If you look at AI, all of that money
+- [35:45.209] that's going to be invested,
+- [35:46.544] trillions, and trillions of dollars,
+- [35:48.045] the biggest thing, bigger than the internet,
+- [35:50.615] I suspect, it's the internet plus three
+- [35:52.583] or four other things combined,
+- [35:55.219] we are leading very substantially with AI.
+- [35:59.290] We're leading because of tariffs.
+- [36:00.925] We're leading because of talent,
+- [36:02.260] and this is where they'd like to be.
+- [36:03.594] But without the tariffs, we wouldn't have a chance
+- [36:05.663] because we wouldn't be able to protect those investments
+- [36:08.199] of the companies coming in. So if you took away tariffs,
+- [36:13.704] we could end up being a third-world country.
+- [36:17.942] That's how big the rule is.
+- [36:19.243] So we're asking for an expedited ruling.
+- [36:23.614] The Press: As a backstop to that President,
+- [36:25.283] you have a Republican-controlled Congress,
+- [36:27.184] you control the House, you control the Senate.
+- [36:29.186] The President: But we don't have 60 votes.
+- [36:31.222] We don't have 60 votes. I'd love to do that.
+- [36:33.224] Oh, if we had 60 senators,
+- [36:35.560] if we got the 60 votes, we would get them.
+- [36:38.095] But we need 60 votes and we need a certain number in the House.
+- [36:44.669] I think we'd get -- I don't know.
+- [36:45.870] We have about five of them here.
+- [36:47.071] Would everybody agree with me on tariffs?
+- [36:48.339] The Press: Yes.
+- [36:49.574] The President: Without tariffs we're a different country.
+- [36:51.108] We have taken in so much money,
+- [36:53.711] and here's the thing, we signed a deal with Japan.
+- [36:57.114] They're paying us hundreds of billions of dollars.
+- [37:00.051] We signed a deal with South Korea.
+- [37:01.452] We signed a deal with the European Union.
+- [37:03.854] We signed a deal with Europe.
+- [37:07.792] And those countries are paying us $950 billion
+- [37:11.963] and they're happy about it. They're okay.
+- [37:14.065] As one of them said,
+- [37:15.366] it's amazing that we got away with it so long.
+- [37:18.736] One of my friends, a leader of one of the countries,
+- [37:21.839] and they're fine with it. They all signed.
+- [37:24.709] If that ruling ever went against us,
+- [37:27.745] I guess we'd have to give back hundreds of billions.
+- [37:32.049] We would have to give trillions
+- [37:34.352] and trillions of dollars back to countries
+- [37:37.254] that have been ripping us off for the last 35 years,
+- [37:41.025] and I can't imagine it happening.
+- [37:43.728] On a legal basis, they have no legal basis whatsoever,
+- [37:47.465] but on a common-sense basis, it would destroy America.
+- [37:51.869] The Press: You talked about controlling the sky.
+- [37:54.639] On Sunday, the satellite signal of Ursula
+- [37:57.808] von der Leyen's plane was (inaudible).
+- [37:59.243] The President: With Ursula.
+- [38:00.745] Well, she had an interesting event.
+- [38:02.313] She's a tremendous woman,
+- [38:05.816] and so what are you asking me about her?
+- [38:07.385] The Press: NATO is concerned about it.
+- [38:08.586] (inaudible)-
+- [38:09.787] The President: True, NATO is concerned about it.
+- [38:11.188] Well, nobody knows where it came from,
+- [38:12.623] but they did take away her ability to use her phone.
+- [38:16.727] Sometimes that's a good thing.
+- [38:19.897] Sometimes that could happen to me.
+- [38:21.232] I'd be very happy.
+- [38:24.101] The Press: Are you considering the tariffs on India
+- [38:25.803] from 50 percent?
+- [38:27.071] The President: What does that mean?
+- [38:28.305] The Press: Are you considering taking away
+- [38:29.807] some of the tariffs that you've imposed on India you had posted?
+- [38:32.877] The President: No. We get along with India very well,
+- [38:34.645] but India has, you have to understand,
+- [38:37.014] for many years it was a one-sided relationship.
+- [38:39.684] Only now since I came along,
+- [38:41.152] and because of the power that we have with tariffs,
+- [38:44.121] India was charging us tremendous tariffs,
+- [38:46.457] about the highest in the world.
+- [38:47.792] They were about the highest in the world, number one.
+- [38:50.561] And we therefore weren't doing much business with India,
+- [38:53.831] but they were doing business with us
+- [38:55.166] because we weren't charging them.
+- [38:56.500] Foolishly, we weren't charging them.
+- [38:58.936] So they would send
+- [39:00.204] In massive everything they made,
+- [39:02.239] they'd send it in, pour it into our country,
+- [39:05.076] therefore it wouldn't be made here, which is a negative,
+- [39:08.312] but we would not send in anything
+- [39:10.614] because they were charging us 100 percent tariffs.
+- [39:13.017] And I'll give you an example. Harley-Davidson.
+- [39:16.454] Harley-Davidson couldn't sell into India.
+- [39:18.355] There was a 200 percent tariff on a motorcycle.
+- [39:21.258] So what happens?
+- [39:22.526] Harley-Davidson went to India and built a motorcycle plant
+- [39:27.631] and now they don't have to pay tariffs.
+- [39:28.966] Same thing as us.
+- [39:30.167] So what we're doing is literally thousands of companies
+- [39:34.905] are coming into the U.S. Car companies, A.I.,
+- [39:38.576] but more traditionally car companies.
+- [39:40.544] We have so many car company factories under construction
+- [39:43.581] or being designed right now,
+- [39:46.217] and they're coming from China, they're coming from Mexico,
+- [39:49.420] I must tell you, and they're coming from Canada,
+- [39:51.322] a lot of them coming from Canada,
+- [39:53.491] but they're coming into our country
+- [39:54.959] because they want to build here
+- [39:56.727] and they want to build here for two reasons.
+- [39:58.229] Number one, they'd like to be here,
+- [39:59.463] and number two, the tariffs are protecting them,
+- [40:02.333] and number three, they want to avoid paying tariffs
+- [40:05.469] when they build their cars here,
+- [40:07.071] they don't have any tariffs to pay.
+- [40:09.140] When you build here, you don't have any tariffs.
+- [40:12.343] Go ahead, (inaudible).
+- [40:13.544] The Press: In light of the Minnesota
+- [40:14.779] shooting last week,
+- [40:15.980] the Department of Homeland Security
+- [40:17.314] is now awarding more than $100 million
+- [40:19.450] to hundreds of faith organizations across the country
+- [40:22.586] to help them ramp up security.
+- [40:24.722] Was your vision for further protecting religious liberty
+- [40:27.424] across the country
+- [40:28.726] amid incidents of threats and violence?
+- [40:30.194] The President: So religious liberty is so important
+- [40:32.429] and we're talking about every religion now,
+- [40:35.800] and we're doing things on that that nobody else has ever done,
+- [40:38.435] and we're going to be announcing,
+- [40:39.737] we're going to be having a big announcement
+- [40:41.772] in about two weeks on that question.
+- [40:43.007] Yeah, please.
+- [40:44.241] The Press: On Space Command, sir,
+- [40:45.776] are you concerned that people may not be willing
+- [40:48.179] to relocate from Colorado to Alabama?
+- [40:50.581] The President: No, I'm not worried.
+- [40:51.816] It'll get somebody else.
+- [40:53.050] The Press: Did Colorado --
+- [40:54.285] The President: The problem with Colorado
+- [40:55.519] is they have a very corrupt voting system.
+- [40:59.323] Look, I have so many friends in Colorado.
+- [41:02.259] Anytime you have mail-in voting, you have corrupt elections.
+- [41:05.196] Very simple. It's very simple.
+- [41:07.331] Even Jimmy Carter set it with his commission.
+- [41:09.200] They set up a commission with him and Scoop Jackson
+- [41:11.802] and some people, highly regarded people,
+- [41:14.872] and they said the one thing,
+- [41:16.173] the finding was if you have mail-in voting,
+- [41:18.609] you will have corrupt elections.
+- [41:19.877] Well, your radical left governor decided
+- [41:25.082] that he was going to have all mail-in voting in Colorado.
+- [41:28.219] Once you have all mail-in voting,
+- [41:30.321] and for whatever reason, the Democrats cheat
+- [41:34.024] and they cheat like they're not stupid.
+- [41:36.994] That's the only thing. They're no good on policy,
+- [41:39.597] they're no good on management, they're no good at government,
+- [41:42.433] but they're great at cheating and they stick together, too.
+- [41:45.402] I give them credit for sticking together. Please.
+- [41:48.105] The Press: Obviously this is a big win for national security
+- [41:50.341] moving this to Alabama. We all can agree with that.
+- [41:53.310] Is there any idea the economic impact
+- [41:55.346] this has on the state and on that local area?
+- [41:58.048] The President: Katie, do you want to answer that?
+- [41:59.717] Katie Britt: Look, this is -- this is going to be tremendous.
+- [42:04.622] The state of Alabama, what we've seen through this process
+- [42:07.691] is the worst of Washington.
+- [42:09.326] We've seen politics get in the way
+- [42:11.629] of what is best for the war fighter,
+- [42:13.130] what's best for national security,
+- [42:15.032] and the state of Alabama
+- [42:16.233] is about to show the country the best among us.
+- [42:20.004] So we know that economic impact is going to be tremendous there.
+- [42:22.306] At Redstone Arsenal,
+- [42:23.507] we're proud to house everything from the FBI,
+- [42:30.080] to headquarters there for material command,
+- [42:34.285] to a number of things.
+- [42:35.653] We obviously have NASA with Marshall Space Flight Center,
+- [42:38.923] and so this naturally fits within.
+- [42:40.824] When you look at the decision matrix
+- [42:42.393] that they placed in front of us, that's why we ranked so high
+- [42:46.163] is because we have the resources necessary
+- [42:48.265] and the ability to build out quickly
+- [42:50.434] to meet the needs in front of us.
+- [42:51.969] As far as economic impact, it would be tremendous.
+- [42:54.271] Does anybody have an exact number?
+- [42:55.606] Male Speaker: 1,600 jobs.
+- [42:57.308] Katie Britt: 1600 jobs.
+- [42:58.642] Male Speaker: 3,000 spinoff.
+- [42:59.843] Katie Britt: With 3000 spinoff.
+- [43:01.078] Look at this, this is teamwork right here.
+- [43:03.347] So we are really proud and the people of Alabama
+- [43:05.716] are ready to get to work.
+- [43:07.251] The Press: And I've got a question
+- [43:08.519] if you could just for a second, Mr. President?
+- [43:10.054] The President: Yeah, please.
+- [43:11.255] The Press: Owning a home and going about the American dream
+- [43:13.891] seems like it's out of touch for a lot of Americans.
+- [43:15.926] Just recently, you pushed out a statement
+- [43:18.162] about addressing an emergency housing situation.
+- [43:20.230] The President: That's right. We're thinking about doing that.
+- [43:21.732] The Press: Can you just --
+- [43:22.933] The President: Well, we need a little help from the Fed.
+- [43:24.535] We have a man named Jerome Too Late Powell,
+- [43:28.138] you probably heard of him.
+- [43:29.440] He's too late, he's way too late.
+- [43:31.608] And the economy is so strong that it's pushing through that.
+- [43:35.279] Normally it would've been much tougher,
+- [43:37.348] but we're doing so well that we're pushing through it,
+- [43:40.084] but it makes it very hard for people to get mortgages
+- [43:43.153] because Too Late is Too Late. Very simple.
+- [43:45.756] He's too late and probably political, whatever.
+- [43:49.326] He wasn't too late before the election.
+- [43:50.928] Before the election, he was cutting rates, right?
+- [43:53.163] Because he was hoping that I guess
+- [43:54.631] Biden would get in or that Kamala would,
+- [43:57.368] he was a big Biden guy. Explain that one.
+- [44:00.904] And then he was a Kamala person, but he was hoping,
+- [44:03.374] I guess, she'd win, I guess.
+- [44:05.576] I don't know. It didn't work out too well,
+- [44:07.644] but yeah, we need a very serious cut.
+- [44:12.649] I think that if you look back many decades ago,
+- [44:16.253] the United States was always the lowest,
+- [44:17.755] even if they were doing badly, the United States was,
+- [44:20.657] because without the United States,
+- [44:22.359] everything in the world would die.
+- [44:24.094] It's true. It's so powerful. It's so big,
+- [44:26.497] and I made it really big in the first four years.
+- [44:30.934] Then it started to degenerate
+- [44:32.970] with what this Biden administration did,
+- [44:35.606] but we built it up to a level
+- [44:37.041] that I never thought we could be at this quickly.
+- [44:39.676] We're the hottest, we're the best,
+- [44:41.011] we're the best financially. The money coming in is so big
+- [44:43.380] because of tariffs and other things,
+- [44:44.915] but because of tariffs.
+- [44:46.116] Tariff gets us even those other things.
+- [44:48.986] Plus it gets us great negotiating.
+- [44:50.554] I settled seven wars and numerous of those wars
+- [44:54.591] were because of trade and numerous of the trade deals
+- [44:57.694] that I made were because of tariffs.
+- [44:59.663] It gives you a great negotiating ability.
+- [45:01.799] If that ability were taken away from us by a liberal court
+- [45:05.702] acting on, essentially, foreign nations
+- [45:08.906] asking to get help from the United States government
+- [45:12.609] when they've been doing this to us for 40 years.
+- [45:17.347] That's why we have $38 trillion in debt.
+- [45:21.018] We won't have it for long if they allow us to do
+- [45:25.923] what everybody knows we should be able to do.
+- [45:27.891] Yeah, please.
+- [45:29.093] The Press: Mr. President, another Biden-era action
+- [45:31.228] that you're now reversing
+- [45:32.429] is that you signed a deal last week
+- [45:33.931] to make federal buildings adopt
+- [45:36.066] and embrace classical architecture styles again.
+- [45:39.136] Can you talk to us about why you do that
+- [45:40.938] and also what's your vision?
+- [45:42.206] The President: Well, we want to see beautiful buildings.
+- [45:44.174] Now it's in the eye of the beholder.
+- [45:46.310] I've seen architecture reviews over the years.
+- [45:49.346] I'm an expert at it.
+- [45:50.581] I've gotten a lot of great reviews,
+- [45:52.649] but I've seen buildings that I didn't think were
+- [45:54.885] very good, get great reviews,
+- [45:56.253] and I've seen great buildings get bad reviews,
+- [45:59.289] but it's just a standard. We want to have a good standard.
+- [46:01.725] We're building something here.
+- [46:03.093] For 150 years, they wanted a ballroom at the White House.
+- [46:05.696] We're doing something at the highest level
+- [46:07.364] using great architects and all, and it's very exciting.
+- [46:12.002] But we have a lot of interesting things
+- [46:13.737] happening architecturally in D.C.,
+- [46:16.440] and D.C.'s like a different place.
+- [46:18.008] And even the contractor said, "Sir, we walked down today.
+- [46:21.545] We feel like much safer. It's like a different place."
+- [46:25.616] Washington D.C. is great.
+- [46:27.217] Now we're going to also beautify it.
+- [46:29.520] We're going to put a topping on the road
+- [46:31.021] so we're not going to rip them apart
+- [46:32.356] and take four years to build a road
+- [46:34.158] that was exactly the same by the time you build it.
+- [46:37.294] But we're going to put toppings.
+- [46:38.662] We're going to put new medians in.
+- [46:40.063] We're going to get the graffiti off.
+- [46:41.431] We're going to put tiles up in the tunnels
+- [46:43.367] where the tiles are missing.
+- [46:45.035] We'll do the whole tunnel instead of a little area
+- [46:47.337] where you see new tiles,
+- [46:48.872] old tiles that never looked too good, but they could use it.
+- [46:51.675] They've been up for 50 years. They've served their duty.
+- [46:55.312] But we're going to make this within
+- [46:58.582] about a 20-mile radius from the White House.
+- [47:02.352] We're going to have this place and span.
+- [47:05.322] It's going to be crime-free,
+- [47:06.723] and it's going to be spic and span.
+- [47:09.159] You'll be proud of Washington again.
+- [47:10.694] Go ahead, please,
+- [47:11.895] The Press: Sir, China's having a massive military parade
+- [47:13.964] that President Putin and Kim Jong
+- [47:15.299] Un will be attending.
+- [47:16.500] Do you interpret that as a challenge to the U.S.?
+- [47:17.801] The President: No.
+- [47:19.002] The Press: I know you're not concerned at all
+- [47:20.270] about those countries. The President: No.
+- [47:21.505] The Press: (inaudible) come counterweight?
+- [47:22.940] The President: Not at all. China needs us and I have
+- [47:25.375] a very good relationship with President Xi, as you know,
+- [47:28.779] but China needs us much more than we need them.
+- [47:32.115] No, I don't see that at all. No.
+- [47:35.485] And I had actually a very good meeting
+- [47:36.987] with President Putin a couple of weeks ago.
+- [47:38.622] We'll see if anything comes out of it.
+- [47:40.023] If it doesn't, we'll take a different stance.
+- [47:42.593] The Press: (inaudible)
+- [47:43.794] march today in California ruled that your deployment
+- [47:47.264] of National Guard troops to Los Angeles was illegal.
+- [47:49.967] Do you have any response, reaction to that?
+- [47:51.668] The President: Well, it was a radical left judge,
+- [47:54.271] but very importantly, what did you not tell me
+- [47:57.241] in that question or statement that you made?
+- [48:00.043] Pretty much of a statement, I think.
+- [48:01.378] The Press: Well, I was asking for your response.
+- [48:02.679] The President: No, no.
+- [48:03.947] You didn't say what the judge said, though.
+- [48:06.750] The judge said, "But you can leave the 300 people
+- [48:09.353] that you already have in place.
+- [48:11.755] They can continue to be in place. That's all we need."
+- [48:14.524] But why didn't you put that as part of your statement?
+- [48:16.660] Because the judge, the same judge ruled exactly as you said,
+- [48:20.931] except the judge said that you could leave the 300 people
+- [48:24.901] that you already have in place. They can stay, they can remain,
+- [48:28.205] they can do what they have to do.
+- [48:30.340] Thank you very much, everybody. We appreciate it.
+- [48:32.809] Thank you. Thank you. Thank --

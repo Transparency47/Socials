@@ -1,0 +1,231 @@
+<!-- source: https://www.youtube.com/watch?v=gG9148Ljrco -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: gG9148Ljrco -->
+<!-- date_published: 2025-06-24T14:08:52+00:00 -->
+<!-- date_accessed: 2026-06-02T01:23:27.744003+00:00 -->
+
+# Transcript: President Trump Gaggles with the Press on Air Force One, June 24, 2025
+
+- [00:00.640] Sir, hello everybody.
+- [00:03.439] How are you?
+- [00:06.080] How are you? We have breaking news.
+- [00:08.639] Everything good. Israel, as you know,
+- [00:10.320] turned back. They didn't do that raid
+- [00:11.920] this morning. Fortunately, that was a
+- [00:14.320] big thing. Appreciate it. They had a lot
+- [00:17.279] of planes going and they were going to
+- [00:18.640] do something and they they didn't do it.
+- [00:20.720] We're happy about that. Very happy about
+- [00:23.199] that. So, the ceasefire is very much in
+- [00:25.359] effect and I think we're going to keep
+- [00:27.519] it there for a long time. Did you speak
+- [00:29.439] to pres to Prime Minister Netanyahu
+- [00:31.359] about that? I did. What did you tell
+- [00:32.960] them? Said you got to turn back the
+- [00:34.719] planes. They were going to go because uh
+- [00:37.680] look, they hit him very hard after we
+- [00:39.280] made the deal yesterday. They were
+- [00:41.440] entitled to, but nobody thought that
+- [00:42.960] would have happened. But they hit him
+- [00:44.160] very hard and that shouldn't have
+- [00:46.239] happened. And then, as you know, Iran
+- [00:48.719] hit them very hard last night because of
+- [00:50.640] that. I don't think they would have
+- [00:52.559] except for the first hard hit. And uh I
+- [00:56.000] guess a missile was launched a couple of
+- [00:57.840] minutes afterwards which went nowhere.
+- [01:00.559] Hit nothing. And there was going to be a
+- [01:02.879] retaliation this morning by Israel and
+- [01:06.159] uh I said you got to call back the
+- [01:08.000] planes. It's enough. It's enough. And uh
+- [01:10.640] they did which I respect very greatly.
+- [01:13.840] So nobody was killed. That was a that
+- [01:16.240] was the sorry but they had a lot of
+- [01:18.479] planes going in the wrong direction. You
+- [01:20.159] know that right? Do you want any
+- [01:21.759] consequences for Israel or Iran for
+- [01:23.759] breaking? do anything? No, they didn't
+- [01:25.360] do anything. They would have if they I
+- [01:28.159] put out a statement on truth and they
+- [01:31.040] didn't do anything. Sir, how are you
+- [01:32.799] confident that this might not happen
+- [01:34.240] again? Say in a couple weeks that tired
+- [01:37.680] of it. I think they don't want it to
+- [01:39.759] happen again. Uh and Iran's not going to
+- [01:42.960] have a nuclear weapon by the way. I
+- [01:45.119] think it's the last thing on their mind
+- [01:46.640] right now. Mr. President, did Iran make
+- [01:49.280] any commitments yesterday about uranium
+- [01:51.600] enrichment? What? about uranium
+- [01:53.759] enrichment and they're not going to have
+- [01:55.439] enrichment and they're not going to have
+- [01:56.799] a nuclear weapon and they know that
+- [01:58.719] they're going to get on to being a great
+- [02:01.119] trading nation. You know, they're very
+- [02:02.560] good traders and they're going to be a
+- [02:04.880] great trading nation and they have a lot
+- [02:06.799] of oil. They're going to do well.
+- [02:08.800] They're not uh they're not going to have
+- [02:10.800] a nuclear weapon. So, did they did they
+- [02:12.480] promise? Last thing on Iran's mind right
+- [02:14.239] now is nuclear weapons.
+- [02:17.280] Can you clarify what you meant when you
+- [02:18.879] mentioned regime change in your truth
+- [02:20.879] social post the other night? which
+- [02:22.720] regime change. Do you want to see regime
+- [02:25.280] change in Iran? No. If there was, there
+- [02:27.760] was. But no, I don't want I'd like to
+- [02:30.080] see everything calm down as quickly as
+- [02:32.160] possible. Uh, regime change takes chaos,
+- [02:36.319] and ideally, we don't want to see so
+- [02:38.080] much chaos. So, we'll see how it does.
+- [02:40.160] You know, the Iranians are very good
+- [02:41.680] traders, very good business people, and
+- [02:44.400] they got a lot of oil. They they should
+- [02:46.160] be fine. They they should be able to
+- [02:47.840] rebuild and do a good job. They're never
+- [02:50.080] going to have nuclear, but other than
+- [02:51.519] that, they should do a great job, which
+- [02:53.440] is exactly where I I've been saying for
+- [02:55.440] years, you cannot let Iran have a
+- [02:57.599] nuclear weapon, but we're going to be
+- [03:00.640] with Where's Marco? I think Marco's here
+- [03:02.800] someplace. You know, our great secretary
+- [03:05.120] of state, but we cannot let them have a
+- [03:07.920] nuclear weapon. They won't have a
+- [03:09.040] nuclear weapon. And I will tell you, the
+- [03:11.200] last thing on their minds is nuclear
+- [03:13.280] weapons. They don't even want to think
+- [03:15.440] about nuclear. And our B2 pilots made
+- [03:18.239] this all possible. They had a
+- [03:19.760] magnificent hit in the dark of night
+- [03:22.800] with no moon, no light, no nothing. They
+- [03:25.840] hit the target perfectly. Wiped it out.
+- [03:28.800] And uh the press is very disrespectful.
+- [03:31.200] I saw CNN fake news going, "Well, maybe
+- [03:34.560] it wasn't a perfect hit. It was
+- [03:36.159] perfect." They said, "Maybe it it did
+- [03:38.319] destroy it." We agree it did destroy it,
+- [03:40.319] but maybe it could have destroyed it
+- [03:42.319] more. No, no, it couldn't destroyed it
+- [03:44.080] more. Everyone hit And it's very
+- [03:46.640] disrespectful to those great geniuses
+- [03:48.879] and patriots that flew those planes
+- [03:51.120] through tremendous danger. So CNN and MS
+- [03:54.640] DNC are disgrace and so are the others.
+- [03:57.519] I mean, they're pretty much all in
+- [03:58.959] disgrace, but uh it's uh it's an amazing
+- [04:03.200] period of time. Now we're going to NATO
+- [04:06.000] and we'll get a new set of problems.
+- [04:08.720] We'll solve a new set of problems. Do
+- [04:10.879] you think you'll meet with Zilinski when
+- [04:12.319] you're there? Yeah, probably. I'll see
+- [04:14.400] him. Yeah. What would you say to him?
+- [04:16.400] Say, "How you doing?" Uh, it's a tough
+- [04:20.479] He's in a tough situation. Should have
+- [04:22.320] never been there. Sir, you said a couple
+- [04:24.080] days ago that you didn't think the US
+- [04:25.680] should have to agree to the 5% increase
+- [04:28.560] in GDP on defense. No. Do you want I was
+- [04:32.639] the one that said that's what they
+- [04:34.160] should be paying as you know. Uh, no. I
+- [04:36.720] I should do something. And And they're
+- [04:38.479] having a problem with Spain.
+- [04:41.120] There always a problem with Spain
+- [04:42.960] because Spain's not agreeing which is
+- [04:44.479] very unfair to the rest of them frankly.
+- [04:46.160] So we won't the US won't be increasing
+- [04:47.919] our GDP to 5%. We should pay what
+- [04:50.400] everyone else you know they're in
+- [04:51.680] Europe. We're not you know a lot of that
+- [04:53.600] money goes to rebuilding their bridges
+- [04:55.600] their roads. So it can take heavy
+- [04:57.600] equipment and you know we don't have any
+- [05:00.320] roads in Europe. We don't have any
+- [05:01.759] bridges in Europe. So no it wouldn't be
+- [05:04.080] quite the same thing for us but we're
+- [05:06.160] with them. Are you still committed to
+- [05:07.600] article five of NATO? uh depends on your
+- [05:10.800] definition. There's numerous definitions
+- [05:12.800] of article 5. You know that, right? But
+- [05:15.520] I'm committed to uh being their friends.
+- [05:18.639] You know, I become friends with many of
+- [05:20.160] those leaders and I'm committed to
+- [05:22.240] helping them. What do you want the role
+- [05:23.840] of NATO to be going forward once these
+- [05:26.400] other countries are spending more? By
+- [05:28.320] having a unified system, I think we're
+- [05:30.960] going to have stronger peace, better
+- [05:33.120] peace, and I think we have that. You
+- [05:35.759] know, when I went to NATO, they were
+- [05:37.280] broke. When I first started this whole
+- [05:39.600] thing, seems like a long time ago, nine
+- [05:42.639] years, right? But uh they were broke. I
+- [05:45.280] knew it immediately. I said, "You guys
+- [05:46.720] are broke. They weren't paying their
+- [05:48.639] dues." Seven of the 28 countries at the
+- [05:51.680] time was 28 were paying their dues, but
+- [05:54.320] they weren't paying very much. NATO is
+- [05:56.000] broke. And I said, "You're going to have
+- [05:57.840] to pay." And we did a whole thing and
+- [05:59.520] now they're they're paying a lot. Then I
+- [06:01.520] said, "You're going to have to lift lift
+- [06:02.720] it to 4% or 5%." And 5% is better. They
+- [06:06.880] just I guess they're voting on that
+- [06:08.479] today, but they're going to be lifting
+- [06:10.400] it to 5%. That's good. It gives them
+- [06:12.400] much more power. Mr. President, if
+- [06:14.639] there's language in the final summit
+- [06:16.319] declaration about aggression by Russia,
+- [06:19.039] would you be okay with that kind of
+- [06:20.400] language? Well, I'll have to take a look
+- [06:22.080] at it, but uh you know, I'd like to see
+- [06:25.120] a deal with Russia. As you know,
+- [06:27.440] Vladimir called me up. He said, "Can I
+- [06:29.280] help you with Iran?" I said, "No, I
+- [06:30.880] don't need help with Iran. I need help
+- [06:32.160] with you." And uh I hope we're going to
+- [06:34.880] be getting a deal done with Russia. It's
+- [06:37.759] a shame. 6,000 soldiers died last week.
+- [06:41.199] More 6,500 soldiers died last week.
+- [06:44.800] Russia, Ukraine, a war that never would
+- [06:46.800] have happened if I was president. So
+- [06:48.800] enjoy your flight. Ask you one more
+- [06:50.800] followup in your comments just now about
+- [06:53.120] Article 5. That will probably make some
+- [06:55.600] people in Europe concerned. Can you
+- [06:57.680] clarify what you mean? Are you still
+- [06:59.759] committed to mutual defense? Uh, I'm
+- [07:02.080] committed to saving lives. I'm committed
+- [07:04.960] to life and safety. And I'm going to
+- [07:07.680] give you an exact definition when I get
+- [07:09.440] there. I just don't want to do it on the
+- [07:10.960] back of an airplane. Okay. And one other
+- [07:13.440] question on energy. What's your take on
+- [07:15.840] the oil price situation right now? And
+- [07:17.599] are you concerned? Right. I love it. It
+- [07:19.120] dropped almost $10 yesterday. I put out
+- [07:21.919] a statement. Get it down because a lot
+- [07:24.960] of people aren't able to do things when
+- [07:26.960] the energy goes down. Going to have a
+- [07:29.120] lot less conflict. So, it came down and
+- [07:31.520] our energy department is doing a great
+- [07:33.440] job. We're uh we're drilling like we've
+- [07:37.919] never drilled before. We're keeping it
+- [07:39.440] down. We're going to keep it down until
+- [07:40.800] all these wars are settled. Thank you
+- [07:42.720] very much, everybody. I'll see you.
+- [07:44.319] Iranian sleeper cells in the United
+- [07:46.160] States. Biden led a lot of super. Biden
+- [07:49.599] was an incompetent president. Had no
+- [07:51.520] idea what he was doing. He hardly ever
+- [07:54.479] signed a document. Other people signed
+- [07:56.400] documents for him with the auto pen. It
+- [07:59.360] was gross incompetence and among
+- [08:01.599] everything else, he let a lot of
+- [08:02.960] supercells in, many from Iran,
+- [08:06.479] but hopefully we'll take care of them.
+- [08:08.720] What Biden did to this country should
+- [08:10.720] never be forgotten. Do you think you'll
+- [08:12.720] get the Nobel Peace Prize now, sir?

@@ -1,0 +1,1110 @@
+<!-- source: https://www.youtube.com/watch?v=fUPfjG_b0e8 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: fUPfjG_b0e8 -->
+<!-- date_published: 2025-12-16T18:27:23+00:00 -->
+<!-- date_accessed: 2026-06-02T01:08:32.737534+00:00 -->
+
+# Transcript: Vice President JD Vance Delivers Remarks in Alburtis, Pennsylvania
+
+- [00:01.240] Ryan McKenzie: What a welcome. Good morning, Lehigh Valley.
+- [00:05.110] (cheers and applause)
+- [00:08.660] It is such a pleasure to be here
+- [00:11.320] as your United States Congressman.
+- [00:14.390] (applause)
+- [00:17.730] I'm Ryan McKenzie and I was born
+- [00:19.710] and raised in this local community
+- [00:21.970] and then I'm raising my family here
+- [00:24.390] and I have to tell you,
+- [00:25.720] it was exciting to land at AB on Air Force Two
+- [00:29.760] with our Vice President J.D. Vance.
+- [00:33.290] (applause)
+- [00:38.210] We get to tell him about the Lehigh Valley.
+- [00:41.350] We get to tell him of our rich history
+- [00:44.160] and our people in this region
+- [00:46.210] that have known resilience over the years.
+- [00:49.540] They have built our nation's skylines.
+- [00:52.630] They power our economy.
+- [00:54.700] And they deliver innovations for the future.
+- [00:58.040] But for decades, we've also been on the front lines
+- [01:01.300] of Washington's failures.
+- [01:03.470] Think back to where we were at the end
+- [01:06.130] of the last administration. The people had just gone
+- [01:09.450] through the highest inflation in history.
+- [01:12.930] We saw rents in Allentown and Bethlehem surge by 40 percent.
+- [01:19.150] Gas prices in our area reached over $5 a gallon,
+- [01:23.100] and household debt skyrocketed.
+- [01:26.220] Failed economic policies, a war on American energy,
+- [01:30.680] wide open borders,
+- [01:32.360] and America last foreign policy from the Biden Administration.
+- [01:37.560] It was all taking a toll on our community
+- [01:40.780] and the working people right here in the Lehigh Valley.
+- [01:44.030] President Trump and J.D.
+- [01:45.580] Vance walked into an Oval Office in January
+- [01:48.530] to find one of the worst messes in American history.
+- [01:52.460] But we understood the mission.
+- [01:54.580] You sent us to Washington to do the hard things.
+- [01:58.690] Fix the damage, and deliver for the working people of America.
+- [02:10.600] So we got to work.
+- [02:12.320] We had a border that was wide open
+- [02:14.200] with over 10 million people coming through illegally
+- [02:18.010] during the Biden administration. Massive amounts of drugs,
+- [02:21.530] human trafficking, gun smuggling.
+- [02:24.600] People said it couldn't be fixed.
+- [02:26.900] Well, this administration has brought illegal border crossings
+- [02:31.180] to the lowest level on record
+- [02:33.710] and we in Congress backed them up with funding to do that.
+- [02:42.350] We had conflicts spreading all across the world.
+- [02:45.740] We were humiliated in Afghanistan,
+- [02:48.370] and our nation and our reputation on the world stage
+- [02:52.020] was one of retreat. But under this administration,
+- [02:55.960] we've done what America does best, lead.
+- [02:59.200] We established a peace plan for the Middle East
+- [03:01.750] when everybody said that was not going to be possible.
+- [03:05.400] We got tough on our enemies,
+- [03:07.010] and we've restored American leadership.
+- [03:10.030] To back up the administration's work.
+- [03:12.650] We just passed a new defense budget
+- [03:15.600] that delivers funding to modernize our military,
+- [03:19.060] rebuild our strength,
+- [03:20.560] and give our service members the pay raise that they deserve.
+- [03:31.610] We also had an economy where energy costs
+- [03:35.150] were hitting families hard,
+- [03:37.150] with gas prices soaring and our nation going hat in hand
+- [03:41.070] to dictatorships around the world for oil.
+- [03:44.050] We were told the only way to get out of that situation
+- [03:47.920] was by making sure that we banned gas cars,
+- [03:51.200] that we had ridiculous cap-and-tack schemes
+- [03:54.440] like the one that Governor Shapiro
+- [03:56.990] was pushing here in Pennsylvania
+- [03:59.010] that would have driven up our energy costs significantly.
+- [04:03.800] They also tried to fool us and tell us
+- [04:06.470] that these things were called the Inflation Reduction Act.
+- [04:11.650] We know that was another failure,
+- [04:14.650] but this administration, the Trump administration,
+- [04:17.670] has unleashed American energy production like never before,
+- [04:21.360] achieving record highs in oil and natural gas output,
+- [04:24.930] driving down gas prices nationwide,
+- [04:27.750] and restoring our position as the world's top energy producer.
+- [04:37.690] Again, we in Congress are backing them up
+- [04:39.940] by reducing permit times and slashing red tape.
+- [04:43.280] Now let's recap. During the last 11 months,
+- [04:46.910] with this Congress and this administration working together,
+- [04:50.700] we have now been able to secure the border,
+- [04:52.890] have a stronger nation, a safer world,
+- [04:55.530] and energy revolution that is going to bring down costs
+- [04:58.790] for everyday Americans. It's incredible.
+- [05:05.470] On issue after issue,
+- [05:07.630] the administration has delivered on its promises
+- [05:10.500] in a way that no administration has done in memory.
+- [05:13.930] And we're pushing ahead with our plans
+- [05:15.770] to build an economy where prices are more affordable,
+- [05:18.930] wages are higher, and working families can thrive.
+- [05:22.680] When seniors said they were struggling,
+- [05:24.750] after four years of Bidenomics,
+- [05:26.860] we delivered new $6,000 bonus deduction,
+- [05:30.890] eliminating taxes on Social Security
+- [05:33.180] for 88 percent of seniors.
+- [05:41.520] With renters and homeowners struggling
+- [05:43.830] because of high prices,
+- [05:45.480] we have worked to stabilize our economy,
+- [05:47.730] which means interest rates come down,
+- [05:49.930] and we also passed what is the largest investment
+- [05:53.400] in housing affordability in decades,
+- [05:55.320] which will pave the way for over a million new,
+- [05:59.030] high-quality, affordable housing units right here in America.
+- [06:07.300] When tipped workers said they wanted
+- [06:09.340] to keep more of the money they earned,
+- [06:11.300] and when overtime workers said that they didn't want
+- [06:13.770] to get punished by the IRS for 60-hour work weeks,
+- [06:17.990] we passed sweeping tax relief on tips and overtime.
+- [06:27.350] And when I said that working families needed relief,
+- [06:31.520] and the cost of raising a family was out of control,
+- [06:34.430] we got to work.
+- [06:35.810] I introduced legislation during my second month in office
+- [06:39.330] that would raise the child tax credit.
+- [06:41.950] And you know what? We went it out and did it.
+- [06:44.480] Permanently raising the child-tax credit from $1,000
+- [06:48.060] to $2,200 indexed with inflation so that families can grow
+- [06:52.970] and survive right here in our community.
+- [07:00.150] Add on top of that new savings accounts for children
+- [07:03.630] that are funded with $1,000
+- [07:05.450] and you see how we are investing in the future.
+- [07:08.330] When every American said they needed more tax relief,
+- [07:11.880] we stopped the Democrats' push
+- [07:13.950] for the largest increase in history,
+- [07:16.630] and instead cut taxes for every single American.
+- [07:26.630] This is what happens when you have a Congress
+- [07:29.860] and an administration that puts America first.
+- [07:33.370] When we put workers, families, and small businesses first,
+- [07:37.560] we know that we can succeed.
+- [07:39.350] This is the alternative to the last administration
+- [07:42.680] that was America last, funding their special interests
+- [07:46.160] and making sure that nobody could actually get ahead.
+- [07:49.660] As we continue this work, we will make sure
+- [07:52.840] that the real results Americans deserve –
+- [07:55.440] higher wages, more domestic investment,
+- [07:57.740] and greater affordability – are delivered every single day.
+- [08:07.640] Now there is more work to be done,
+- [08:09.340] there is no doubt that it takes a long time to roll back
+- [08:12.920] all the failures of Bidenomics.
+- [08:15.260] But we aren't going to quit until the job is done,
+- [08:17.790] and we're going to get it done
+- [08:19.480] because we have a president, a vice president,
+- [08:22.720] and a Congress that is putting America first
+- [08:26.110] and the American people first.
+- [08:32.400] I just want to say again, in closing,
+- [08:35.040] what an honor and a privilege
+- [08:37.090] it is to represent the Lehigh Valley, my home community.
+- [08:41.150] You have given so much to me over the years,
+- [08:44.040] and I look forward to giving back to you
+- [08:46.400] every single day that I'm in office.
+- [08:48.600] Thank you again for being here. Merry Christmas, everybody.
+- [08:52.300] God bless, and God bless the United States of America.
+- [08:55.830] (applause)
+- [08:58.790] Male Speaker: Ladies and gentlemen,
+- [09:00.080] please welcome the Secretary of Labor,
+- [09:01.910] Lori Chavez-DeRemer.
+- [09:05.350] ♪ (soft music playing) ♪
+- [09:19.410] Lori Chavez-DeRemer: Good morning, everyone.
+- [09:21.020] Good morning, Lehigh Valley. Good morning, Pennsylvania.
+- [09:24.640] It's an honor to be with you here
+- [09:27.360] and with the Vice President right here at Uline.
+- [09:31.240] As your 30th Secretary of Labor,
+- [09:34.280] I get to work alongside some incredible people,
+- [09:37.290] including your dedicated Congressman, Ryan McKenzie.
+- [09:41.130] Let's give him another hand. Nice job.
+- [09:44.110] (applause)
+- [09:47.600] I just want to say Ryan you're doing an excellent job.
+- [09:51.540] I know that you are fighting tirelessly
+- [09:54.330] to support the president's pro-worker agenda
+- [09:57.640] and I cannot thank you enough for that.
+- [10:00.360] You know I actually kicked off my 50 state tour America at Work
+- [10:05.260] listening right here in Pennsylvania earlier this year
+- [10:08.910] as we started with the backbone of American manufacturing
+- [10:13.590] for a simple reason. It's important to the president
+- [10:17.090] to build the golden age of the American industry.
+- [10:20.610] And that starts by hearing how your actions
+- [10:23.710] and our actions are impacted daily in Washington, D.C.,
+- [10:28.050] and how it affects your lives right here at home.
+- [10:32.090] President Trump and Vice President Vance understand
+- [10:34.970] that too.
+- [10:36.240] They trusted me in this role because I promised to listen
+- [10:40.090] to the voices of the forgotten working class.
+- [10:44.340] I've hit 36 states, and what I'm hearing from coast to coast
+- [10:48.220] is a fresh sense of optimism.
+- [10:51.390] People are taking pride in their work again,
+- [10:54.030] and pride in this country,
+- [10:56.100] because they know we have a strong,
+- [10:58.420] America first leaders back in the White House
+- [11:01.260] who finally have their backs. And common sense.
+- [11:12.080] Thanks to President Trump and the common sense,
+- [11:15.310] did you write my speech
+- [11:18.280] and the common sense policies of this administration,
+- [11:21.670] the golden age of America is on the horizon.
+- [11:24.870] Under Biden, workers lost over $2,900
+- [11:29.000] in purchasing power as inflation rose faster than wages,
+- [11:32.900] but under Trump, inflation is coming down
+- [11:35.670] and real wages are back on track to increase by nearly $1,200
+- [11:40.410] after his first. Full year in office.
+- [11:43.590] Trump's deregulatory efforts are saving $180 billion
+- [11:47.000] or $2,100 per family of four.
+- [11:50.250] And let's not forget the largest tax cut in American history.
+- [11:54.700] I was a former member of Congress and I
+- [11:56.760] can tell you that was the biggest piece of legislation
+- [11:58.990] they will probably ever vote on in this lifetime.
+- [12:01.840] And it's for the support of the working family,
+- [12:04.160] the no tax on over time and Social Security
+- [12:07.780] and thanks to the working family tax cuts
+- [12:10.490] A family of four in the state of Pennsylvania will see $7,000
+- [12:14.970] to $11,000 more in take-home pay.
+- [12:18.390] That is their money that they earned,
+- [12:20.410] and it should stay in their pockets.
+- [12:26.960] We're reversing Biden's cost of living disaster
+- [12:29.640] that hurt so many working families.
+- [12:31.930] Dropping of drug prices,
+- [12:33.420] gas prices at the lowest in four years.
+- [12:36.370] Jobs are coming back online
+- [12:38.540] and people are finally getting off the sideline.
+- [12:41.860] The labor participation rate is going up.
+- [12:45.500] We want more people to be looking for jobs
+- [12:48.390] and in the workforce.
+- [12:49.820] We just received the jobs numbers this morning.
+- [12:52.310] A positive 64,000 jobs were added under this administration.
+- [13:01.780] Here's a number to note that I think is very important,
+- [13:04.780] and I want you to remember this.
+- [13:06.050] And at your next rally, I want to you to go say this.
+- [13:08.680] Under President Trump,
+- [13:10.310] 687,000 jobs have been in the private sector
+- [13:16.180] and have gone to Native-born Americans.
+- [13:24.890] We have a master negotiator in the Oval Office.
+- [13:27.950] That shouldn't be a surprise to any of you
+- [13:30.110] who is putting America interests
+- [13:31.710] first by striking the new trade deals to restore the U.S.
+- [13:35.790] As the world's manufacturing superpower.
+- [13:39.120] More than $18 trillion have been committed
+- [13:41.930] as investments into this country
+- [13:44.070] to hire thousands of new Americans and thousands of jobs.
+- [13:48.400] Made in America is back. U. S.
+- [13:50.460] Exports are up 6 percent over the last year
+- [13:53.400] and the trade deficit. Continues to shrink.
+- [13:58.730] President Trump is leveling the playing field
+- [14:03.310] for American workers,
+- [14:04.640] manufacturers, creating an economy that works for you,
+- [14:07.790] not against you.
+- [14:09.610] I can tell you, at the Labor Department,
+- [14:11.650] we remain laser-focused on putting American workers first.
+- [14:15.750] Under President Trump, all job gains, as I mentioned,
+- [14:19.010] have gone to American-born workers.
+- [14:22.000] Employed today, more today,
+- [14:23.920] 2.5 million American workers more than when he took office.
+- [14:28.410] The Department of Labor is investing in skills training
+- [14:31.210] and educational pathways
+- [14:32.610] to help the workers get their foot in the door
+- [14:35.290] without that needy four-year degree.
+- [14:39.400] Not everyone will receive a four- year degree,
+- [14:42.130] and that is pride back in America.
+- [14:43.950] My dad was a teamster.
+- [14:45.270] I know what it was like to work hard.
+- [14:47.170] I know it's like to build something with your hands,
+- [14:50.360] and that's what America needs.
+- [14:51.730] They need to know that it's okay to make a six-figure income.
+- [14:55.590] With a trade school, be a tradesman or woman,
+- [14:57.900] be a craftsman.
+- [14:59.110] That's what we want here in America.
+- [15:06.960] You all know that the future of this country
+- [15:09.230] won't be forged in the halls of these woke universities.
+- [15:12.190] It'll be at the hands of the skilled worker.
+- [15:14.700] We recently awarded, thank you,
+- [15:17.250] we recently awarded $86 million in industry skills funds
+- [15:21.720] to prepare the American worker
+- [15:23.180] for those in-demand jobs of the future.
+- [15:26.240] President Trump set a goal. I talk about this all the time.
+- [15:29.380] One million active apprentices across this country.
+- [15:32.500] And since he has taken office,
+- [15:34.380] we have registered more than 300,000 new active apprentices
+- [15:39.090] and registered over 2,400 new programs
+- [15:42.460] at the Department of Labor.
+- [15:49.820] You know, I partnered with Secretary McMahon
+- [15:51.890] to help administer the CTE programs
+- [15:54.580] and create a streamlined federal education and workforce system.
+- [15:59.480] Nearly 70 percent of fourth and eighth graders
+- [16:01.960] are not proficient in reading.
+- [16:04.340] The current top-down structure is failing our kids,
+- [16:07.390] and so we're going to dismantle the bureaucracy in Washington,
+- [16:10.060] D.C.,
+- [16:11.270] and give the autonomy to the states and send those dollars.
+- [16:15.330] So that we can have a direct line
+- [16:17.090] for the in-market demands of what the jobs are
+- [16:19.870] and having the skilled workforce and draw the line from A to B.
+- [16:23.300] It's that simple. Get these workers in the workforce.
+- [16:26.100] It's what they want each and every day.
+- [16:28.170] And we're bridging that gap for those labor market shortages
+- [16:31.660] so that you can have mortgage paying jobs.
+- [16:36.680] Listen, as I wrap up here, I wanna emphasize to all of you,
+- [16:39.920] it's an honor to defend your shot at the American dream.
+- [16:44.490] No matter your background, the industry,
+- [16:46.820] President Trump's Department of Labor has your back.
+- [16:50.330] And that's why you are so special to me,
+- [16:52.700] and it's special to be here today,
+- [16:54.660] getting to see thriving family-owned businesses
+- [16:57.430] like Uline that started from the ground up.
+- [17:00.190] That's the American dream right here.
+- [17:02.860] And I'd like to now introduce who embodies that dream.
+- [17:06.890] He serves the American people
+- [17:08.480] with a deep understanding of what hard-working men
+- [17:11.480] and in this country are up against.
+- [17:14.400] And what they are capable of.
+- [17:16.530] He embodies the same tireless work ethic
+- [17:19.980] that built our great nation.
+- [17:22.020] He and the second lady share that with their children
+- [17:24.750] and in turn share that with America's children.
+- [17:27.820] Our vice president knows that the true heartbeat of America
+- [17:30.890] isn't in Washington, DC.
+- [17:33.570] It's right here with you. He's doing an incredible job
+- [17:37.380] to help revive our manufacturing sector
+- [17:39.760] and ignite our economy. And it's an honor.
+- [17:43.260] To work with him to put you, the American worker, first.
+- [17:47.660] Please join me in welcoming the Vice President
+- [17:52.170] of the United States, Mr. J.D. Vance.
+- [17:57.150] ♪ (rock music playing) ♪
+- [18:26.300] The Vice President: Thank you, thank you.
+- [18:28.530] Wow. It is great to be here in Pennsylvania.
+- [18:31.130] It's a good day.
+- [18:33.490] Anytime you get out of Washington, D.C.
+- [18:36.010] And I got to tell you, I want to --
+- [18:38.130] I want to go to the bar and drink
+- [18:39.330] whatever these guys over here are drinking
+- [18:40.760] because they are having a good time.
+- [18:43.740] They're having a good time.
+- [18:45.040] I want to thank a few people before I get started here.
+- [18:48.480] First of all, I'm so honored to be joined
+- [18:51.210] by our wonderful Second Lady, Usha Vance,
+- [18:53.230] my lovely wife, Usha.
+- [18:54.880] (applause)
+- [19:00.720] I want to thank our great Secretary of Labor,
+- [19:02.640] Lori Chavez-DeRemer, who's doing an amazing job,
+- [19:05.530] and she's focused on something that I think is,
+- [19:08.430] is very much close to the heart of our great workers
+- [19:11.730] here in Pennsylvania, which is just very simple idea
+- [19:15.620] that you ought to be able to raise a family
+- [19:17.940] and earn a good wage even if you don't go to college.
+- [19:21.780] We don't want to force everybody to go to college.
+- [19:24.080] We want to empower people who want to work
+- [19:26.110] with their hands to earn a good wage and do a good job,
+- [19:29.290] and she's fighting for that every single day.
+- [19:30.750] Lori's doing a great job.
+- [19:37.820] We have got our great Congressman, Ryan Mackenzie.
+- [19:40.410] Ryan, please stand up and say hello to everybody.
+- [19:42.550] Ryan is doing a good job in Washington.
+- [19:47.920] He's got a great heart for the people of this district.
+- [19:50.200] He's only been in town for a couple of years,
+- [19:52.420] maybe only a year now, right? That you've been in Congress.
+- [19:55.320] And you see it every, all the time,
+- [19:57.500] you see it with Democrats and Republicans.
+- [19:59.230] Sometimes people go to Washington
+- [20:01.370] and forget who they serve, not Ryan Mackenzie.
+- [20:04.060] You are very lucky in Pennsylvania
+- [20:05.920] to have one of the good ones,
+- [20:07.390] and Ryan is helping us every single day
+- [20:09.750] fight for American workers.
+- [20:17.460] I, I believe, young man, shouldn't you be in school?
+- [20:24.370] We got to, we have a great young patriot over here.
+- [20:26.370] You ought to come up and take a photo afterwards,
+- [20:28.050] but I also want to give a shout out to Treasurer Stacy Garrity.
+- [20:32.760] Stacy, thanks for everything that you do,
+- [20:34.330] and thanks for being here today. Where is she?
+- [20:38.280] There we go. And of course, finally,
+- [20:43.520] to all the employees and the management,
+- [20:45.270] the good people of ULINE for making it possible to be here,
+- [20:48.390] this is a massive facility,
+- [20:50.580] and I think that it speaks to what's going on
+- [20:53.640] in the United States of America under the past 10 months
+- [20:57.010] of Donald J. Trump's presidential leadership.
+- [21:04.870] Under this president, my friends,
+- [21:06.710] we are building again.
+- [21:08.480] We are investing in the United States of America again.
+- [21:11.240] You heard our Secretary of Labor talk about it.
+- [21:13.630] 61,000 jobs added in the month of November, and that's not all.
+- [21:18.730] We saw private sector wage growth grow
+- [21:21.660] at a rate of 4.2 percent. You know what that means?
+- [21:25.050] That means we're seeing the fastest
+- [21:26.920] private sector wage growth
+- [21:28.380] that we have seen in this country in many, many years.
+- [21:32.070] And we're doing it by having a president
+- [21:34.370] and an administration
+- [21:35.690] that believes in you and fights for you.
+- [21:38.580] That is what we're trying to do every single day.
+- [21:46.810] Now, I will say as excited as I was to be here this morning,
+- [21:49.990] I remember when I got off the airplane and it is cold.
+- [21:55.600] And, you know like a good gentleman,
+- [21:58.180] I let my wife come down the steps first,
+- [22:00.080] and then I get to the bottom of the steps.
+- [22:01.480] There's a bunch of firefighters from,
+- [22:03.420] from the great Lehigh Valley
+- [22:04.750] who want to take a photo with me,
+- [22:06.180] and obviously I love our firefighters.
+- [22:07.820] I'm happy to take a photo. Now, here's the problem.
+- [22:10.670] To the right of me is all these media cameras
+- [22:13.860] probably broadcasting my every moment on national television.
+- [22:16.940] Some of the fake news gathered with us here today.
+- [22:22.720] And to the left of me,
+- [22:24.160] and to the left of me is these great firefighters,
+- [22:26.270] and there before me is a sheet of black ice.
+- [22:31.220] And I think to myself,
+- [22:32.490] "If I walk over to those guys and take this photo,
+- [22:35.810] I am going to bust my, you know what."
+- [22:37.210] I'm not going to say it
+- [22:38.430] because we have this very bright young man here.
+- [22:40.150] I don't want to give it, I don't want to teach you any bad words.
+- [22:42.670] I don't want your mom and dad to be mad at me.
+- [22:45.000] So I do what any self-respecting man
+- [22:46.800] would do in a situation like that.
+- [22:48.780] I send my wife to go and take a photo with the firefighters.
+- [22:53.790] No, I didn't. I actually didn't.
+- [22:55.440] I did, I did, I did it the right way,
+- [22:57.210] but I did do sort of the Biden slow shuffle to get over there.
+- [23:01.700] I did not want these national cameras
+- [23:03.830] to catch me doing anything, you know,
+- [23:06.540] because if I, if I fell, if I wiped out on that runway,
+- [23:10.670] you all know that would be national news for the next week.
+- [23:14.140] Now, Joe Biden could fall walking up the steps
+- [23:16.230] in broad daylight and 80 degree weather.
+- [23:17.760] Nobody would mind it,
+- [23:19.020] but if me or the President do anything like that,
+- [23:20.960] it's going to be plastered all over the news.
+- [23:23.440] But now we're here. We've made it.
+- [23:25.400] We have not wiped out and we're here to talk about
+- [23:27.680] America's economic comeback. And, and ladies and gentlemen,
+- [23:30.510] we needed an economic comeback in the United States of America.
+- [23:33.990] We needed it.
+- [23:40.230] When we talk about all the wage growth,
+- [23:41.900] when we talk about all the people
+- [23:43.550] who are coming into the United States
+- [23:45.740] to invest in the American worker,
+- [23:48.140] we've got real money, real jobs, and real opportunity.
+- [23:52.910] What that means for the state of Pennsylvania is that
+- [23:55.420] in just the last 11 months, we're creating 60,000 good
+- [24:00.580] paying jobs for Pennsylvania families,
+- [24:03.020] and we're bringing in, just in this one Commonwealth,
+- [24:05.910] $100 billion of new investment into this great place.
+- [24:10.830] That is real opportunity for the American people.
+- [24:13.890] That is real wage growth for the American people.
+- [24:21.090] And look, I grew up in a community.
+- [24:23.300] I was raised by my grandmother in a community
+- [24:26.190] where when I was growing up, the factories were closing down.
+- [24:30.030] And those good paying jobs,
+- [24:31.290] they weren't coming into our communities.
+- [24:32.990] They were getting shipped overseas
+- [24:34.340] by politicians in Washington, D.C.
+- [24:37.170] The President of the United States
+- [24:38.860] has set this entire administration
+- [24:41.010] on a different course.
+- [24:42.310] We're sick of rewarding companies
+- [24:44.250] that ship jobs overseas.
+- [24:45.700] We're going to reward companies that build right here in America
+- [24:48.740] and give Americans good wages to do it.
+- [24:56.050] And you already see it, my friends.
+- [24:57.830] You already see it in some of the numbers that we're seeing.
+- [25:00.710] When I, when I, when I talk about
+- [25:02.260] what we are most proud of, I'd probably start with
+- [25:04.440] what we've been able to do at the southern border.
+- [25:06.170] And I'd -- and I'll talk,
+- [25:07.400] we'll talk about that in a second.
+- [25:08.980] But right after that is if you go to the Biden administration,
+- [25:13.290] the average American family lost $3,000
+- [25:17.360] of take home pay through the terrible inflation
+- [25:20.040] of the Biden administration.
+- [25:21.400] In just 10 months of the Trump administration,
+- [25:24.650] the average American family has gained
+- [25:26.620] about $1,000 of take home pay.
+- [25:29.530] Now that, that difference could not be starker.
+- [25:35.110] When Joe Biden was president for four years,
+- [25:37.510] he took $3,000 out of your pocket.
+- [25:40.240] And in just 10 months of the President's leadership,
+- [25:43.520] we have put $1,000 back in your pocket.
+- [25:46.320] That's what that means.
+- [25:48.040] And that's, and that's just the beginning, my friends.
+- [25:53.660] That is just the beginning.
+- [25:55.530] Because if you look at what we're doing every single day,
+- [25:59.190] you're going to have, and if, and if, if, if I,
+- [26:01.170] if this doesn't turn out to be true,
+- [26:02.980] I'll come back here and you can all tell me I'm wrong.
+- [26:05.680] But I'm telling you, it's going to be true.
+- [26:07.290] You're going to have, middle class Americans,
+- [26:10.110] middle class Pennsylvanians,
+- [26:11.850] some of the best tax season in 2026 that you've ever had.
+- [26:16.420] Because if you look at no taxes on overtime, no taxes on tips,
+- [26:26.130] when we talk about no taxes on your auto loans,
+- [26:29.370] if you buy an American-made car.
+- [26:31.750] Now, those are political words.
+- [26:33.080] I'm sure you've heard them on TV.
+- [26:34.450] But starting with tax season in just a couple of weeks,
+- [26:37.370] you're going to see that in your tax refund.
+- [26:40.030] That's what that means.
+- [26:41.290] More money in your pocket because you've got a president
+- [26:43.890] and a Congress that are fighting for you for a change.
+- [26:46.280] And that's exactly what it should be.
+- [26:54.140] And I got to say, I, I'm a little surprised.
+- [26:57.050] I'm a little surprised by when the Democrats
+- [27:00.160] talk all the time about affordability.
+- [27:05.620] Democrats say, "You know, things aren't affordable.
+- [27:08.230] Thing, this isn't affordable. This has gotten more expensive.
+- [27:11.410] Drugs have gotten more expensive.
+- [27:12.630] Housing's gotten more expensive."
+- [27:14.380] And you know what?
+- [27:15.730] They're right, and it was because of them.
+- [27:19.060] It ain't that hard.
+- [27:20.600] If you go back to the four years of the Biden administration,
+- [27:23.500] why did housing get so expensive?
+- [27:26.460] Double in price during the Biden administration?
+- [27:28.990] It's because Joe Biden let in 20 million illegal immigrants
+- [27:33.150] who took homes that ought by right go to American citizens
+- [27:36.710] and to the people of this great state.
+- [27:43.370] When we talk about why did healthcare get so unaffordable
+- [27:46.510] during the Biden administration,
+- [27:48.150] it's because Joe Biden allowed prescription drug companies
+- [27:52.110] to take advantage of this country.
+- [27:54.800] You know, Europeans were paying way less for prescription drugs
+- [27:58.400] than our American citizens. It took Donald J. Trump
+- [28:01.510] to haul those pharmaceutical executives
+- [28:03.360] into the Oval Office and say, "No more.
+- [28:05.330] Europe's going to pay more for drugs
+- [28:07.270] and America's going to pay less for drugs
+- [28:09.340] because we got to fight for the American people for a change."
+- [28:16.970] Why have rents gone down for four consecutive months?
+- [28:19.890] And I know they're still too high,
+- [28:21.380] but why have rents gone down for four consecutive months?
+- [28:24.130] Because we've s- --
+- [28:25.330] we're starting to get those illegal aliens
+- [28:27.960] out of the United States of America,
+- [28:29.940] those criminals, those gang members,
+- [28:31.760] those people who are taking homes
+- [28:33.600] that ought by right go to the people in this room
+- [28:36.070] and your children and your grandchildren.
+- [28:38.340] It's simple economics. If you have fewer people,
+- [28:41.980] fewer illegal aliens trying to buy homes,
+- [28:44.400] that means American citizens
+- [28:45.740] are going to finally be able to afford a home again.
+- [28:48.580] It's very, very simple economics.
+- [28:50.590] When you ask, "Why is it that we have trillions of dollars
+- [28:54.920] of new investment coming into the United States of America?"
+- [28:57.790] because we finally got a president who says,
+- [29:00.290] "If you're going to build in America,
+- [29:02.030] if you're going to invest in America,
+- [29:03.720] we're going to make it easy for you."
+- [29:05.240] But if you're not going to build anything in America,
+- [29:07.110] if you're going to try to ship an American job overseas,
+- [29:09.850] then we're going to penalize you for doing something overseas
+- [29:13.510] that you ought to do in the United States of America.
+- [29:15.880] That's why we've got so much money coming in.
+- [29:23.500] So if you look at every single affordability crisis
+- [29:27.400] that we talk about in the United States of America today,
+- [29:30.340] it's because we inherited a nightmare
+- [29:33.600] of an economy from Joe Biden.
+- [29:35.360] The highest peacetime debt and deficits
+- [29:37.890] in the history of the United States of America,
+- [29:40.440] that blows the door off inflation.
+- [29:42.550] The highest energy prices in the history
+- [29:45.170] of the United States of America.
+- [29:46.750] We're in one of the great energy regions in the entire world,
+- [29:50.950] not just in America, in the entire world.
+- [29:53.240] You know why energy prices are lower?
+- [29:55.180] You know why gas prices have come down so much?
+- [29:57.730] Because we finally got an American president
+- [30:00.170] who wants to invest in American energy
+- [30:02.630] and American workers instead of green energy boondoggles
+- [30:06.650] that are produced overseas.
+- [30:09.890] Cute. So on all these things, my point, ladies and gentlemen,
+- [30:16.800] is that we are making progress.
+- [30:18.860] And I never forget where I come from.
+- [30:20.790] I never forget who I serve and I know
+- [30:23.520] that there is so much more progress to be made.
+- [30:25.660] I, I remember my grandmother in times
+- [30:27.470] like this of the holidays, of course,
+- [30:29.500] I think a lot of us remember the loved ones that we've lost.
+- [30:31.670] I remember my dear mamaw, that's what I called her.
+- [30:34.330] And I was in a particularly hard math class in high school.
+- [30:38.580] And she said, "What do you need to do well in this class?"
+- [30:41.340] My grades weren't so good. And she went out,
+- [30:43.180] even though she could not afford even the essentials in life,
+- [30:46.800] she went out and got me a calculator,
+- [30:48.400] a very expensive calculator
+- [30:50.170] so that I could do well in this math class.
+- [30:52.310] I remember what it feels like for American families
+- [30:56.350] when you have the government take $3,000 out of your pocket
+- [30:59.970] through higher taxes and higher inflation.
+- [31:02.150] I know what it's like for a woman
+- [31:04.340] who's trying to support a grandson,
+- [31:06.310] but can't afford her prescription drugs
+- [31:08.300] because pharmaceutical companies are taking advantage
+- [31:10.680] of the United States of America.
+- [31:12.530] I remember what it's like when you have to choose
+- [31:16.090] between putting food on the table
+- [31:17.970] or getting the prescription that you need to stay healthy.
+- [31:20.910] And that is not a life that Donald Trump
+- [31:23.250] or I want for the citizens
+- [31:25.220] in the greatest country in the world.
+- [31:27.130] We want you, we want you to be able to afford
+- [31:36.670] the things that you have to give your kids
+- [31:39.120] and your grandkids a good life.
+- [31:41.200] We want you to check your credit card statement
+- [31:42.910] and for that to be an annoyance, something you got to do rather
+- [31:46.130] than something that causes a lot of stress and anxiety.
+- [31:49.570] We don't want a single parent or grandparent
+- [31:52.720] to have to look at their checking account
+- [31:54.440] and decide whether they're going to buy food
+- [31:56.850] or whether they're going to buy medicine this month.
+- [31:59.110] We are fighting for you every single day.
+- [32:01.570] And I don't want you to think for one second
+- [32:04.170] that because Joe Biden gave us the worst economy
+- [32:06.620] in the world that we forget it.
+- [32:08.000] No, we know. We know exactly what we're left with.
+- [32:10.920] We know exactly the consequences that it's caused for
+- [32:14.040] so many of our great families all across Pennsylvania.
+- [32:16.860] And I promise you, there is no person more impatient
+- [32:20.410] to solve the affordability crisis than Donald J. Trump,
+- [32:23.650] the President of the United States.
+- [32:31.390] You know, I hear these guys,
+- [32:32.680] I hear these Democrats talk about this
+- [32:35.140] as if you were going to fix these problems in a single day.
+- [32:38.080] It reminds me of probably the third day in the Oval Office
+- [32:41.590] where eggs had gotten so expensive
+- [32:44.000] under the Biden administration.
+- [32:45.380] And you look, I'm the Vice President of the United States.
+- [32:47.760] I'm a very blessed man,
+- [32:49.200] but we have three little kids who eat a lot of eggs.
+- [32:51.500] And so I know the price of a dozen eggs.
+- [32:53.390] So the price of eggs got really high
+- [32:55.410] during the Biden administration.
+- [32:56.840] It was the third day in the White House,
+- [32:59.550] and some reporter said,
+- [33:00.760] "What are you doing about the price of eggs?
+- [33:02.290] Haven't you seen there are so expensive?"
+- [33:04.980] And the President's like, "Lady, we've been here for three days."
+- [33:08.260] It takes a little bit of time to fix something
+- [33:10.440] that was so fundamentally broken.
+- [33:11.970] And so when I hear the Democrats
+- [33:14.000] talk about the affordability crisis that they created,
+- [33:17.020] it's a little bit like, you know,
+- [33:18.450] Charles Manson criticizing violent crime.
+- [33:21.120] Look in the mirror, my friend.
+- [33:22.830] You are the cause of the problem and Donald J.
+- [33:25.150] Trump's administration is the solution
+- [33:27.680] to the problem that you created.
+- [33:35.580] I say one more thing here,
+- [33:37.570] and then I want to take some questions from the reporters
+- [33:39.410] and then we'll have to hit the road.
+- [33:40.670] But, you know, this, this,
+- [33:41.970] this is such an amazing time to be in Pennsylvania.
+- [33:44.700] As much as I complain about the cold, and I do,
+- [33:48.470] as much as I almost busted my rear end on the tarmac today,
+- [33:52.000] I love being in the great state of Pennsylvania
+- [33:55.300] during this time of year. I love Christmastime.
+- [34:01.530] I love the beautiful trees.
+- [34:02.850] I love the snow, snow on the hill. I just --
+- [34:04.740] I love everything about this state this time of year.
+- [34:07.060] It reminds me a lot of my home state of Ohio
+- [34:09.880] for reasons that you all know well.
+- [34:11.210] But here's, here's the thing. During this Christmastime,
+- [34:14.420] I, I think that we got to remember that we have a lot
+- [34:17.350] in the United States of America to be grateful for,
+- [34:20.140] and I am at the very top of the list of people
+- [34:23.000] who have a lot to be grateful for.
+- [34:24.230] I'm very grateful to my beautiful wife
+- [34:26.460] and our, our healthy kids.
+- [34:33.530] I'm very grateful to have this job,
+- [34:35.380] for the trust that all of you have put in me.
+- [34:37.920] I'm very grateful that we have a President of the United States
+- [34:40.630] who would literally take a bullet for this country,
+- [34:42.540] and in fact, actually did.
+- [34:49.990] But I just ask all of you
+- [34:51.700] to count your blessings this holiday season,
+- [34:53.730] because there is a lot good out there.
+- [34:56.580] There's a lot that we're still work, working to fix,
+- [34:58.380] but I just wanted to say
+- [34:59.590] from the President of the United States,
+- [35:00.830] from the entire administration, my friends in Pennsylvania,
+- [35:03.870] merry Christmas to you.
+- [35:05.140] I hope your families have a happy New Year.
+- [35:09.090] Thank you.
+- [35:16.920] All right. Thank you all. Please sit down. Sit down.
+- [35:20.690] We're not done yet.
+- [35:21.970] We're not done yet, please. All right.
+- [35:24.070] We're going to take a few questions from the reporters,
+- [35:26.900] and we're going to start
+- [35:28.140] with the most egregious of the fake news.
+- [35:30.170] Is that right, Luke? No.
+- [35:31.640] We're going to start with the local reporters
+- [35:33.230] who have some integrity.
+- [35:34.470] So let's start with our local cameramen,
+- [35:36.660] and then we'll move on to the fake news if we have some time.
+- [35:39.320] Sir, or ma'am.
+- [35:41.750] The Press: Hi, I'm Jackson White from WITF in Harrisburg.
+- [35:43.940] The Vice President: Hey, Jackson. How you doing?
+- [35:45.220] The Press: I'm good.
+- [35:46.450] So many Americans are still reporting
+- [35:48.360] that they're experiencing high costs of groceries
+- [35:50.470] and other living expenses,
+- [35:51.960] how does the administration plan to lower those costs
+- [35:54.160] and how long might that take for them
+- [35:55.590] to experience those lower costs?
+- [35:58.970] The Vice President: Well, it's --
+- [36:01.010] Jackson, I, as I said earlier,
+- [36:03.060] I think the best way to understand
+- [36:04.760] this is if the American people had $3,000
+- [36:08.190] taken out of their pocket,
+- [36:09.540] it's going to take a little bit of time
+- [36:10.920] for they really feel like
+- [36:12.160] that money's been put back in their pocket.
+- [36:13.750] That just takes a lot of time. It's a lot of work.
+- [36:16.020] And I think that the best to do it is on the one hand,
+- [36:17.800] you've got to lower cost.
+- [36:19.000] That's why we're lowering regulations on American energy
+- [36:22.840] to get gas and groceries down.
+- [36:25.010] Now, how does energy connect to groceries?
+- [36:27.760] Because if the truck that takes the groceries
+- [36:30.280] to the grocery store is paying out the wazoo for diesel fuel,
+- [36:34.040] then that means every American's
+- [36:35.380] going to be paying more at the grocery.
+- [36:37.210] If the farmers who actually grow our food
+- [36:39.640] are paying way too much for fuel and fertilizer,
+- [36:42.560] that means American citizens
+- [36:43.850] are not going to be able to afford their groceries.
+- [36:46.080] So if we lower the price of energy,
+- [36:48.250] we lower price of groceries, we lower prices of gasoline,
+- [36:51.940] and importantly, we bring good jobs back into this country
+- [36:55.360] so that wages go up.
+- [36:56.970] That's how you give people a shot
+- [36:59.030] at the American dream again. That is our job.
+- [37:02.120] That is what we ran on. That is we promised to do.
+- [37:04.780] And after 11 months, again, the average American family
+- [37:08.300] is $1,000 richer than they were 11 months ago.
+- [37:11.410] Now, if you had $3,000 taken out of your pocket
+- [37:14.340] by the Biden administration,
+- [37:15.760] of course you're still struggling to get by.
+- [37:17.910] Rome was not built in a day,
+- [37:19.690] but we are committed every single day
+- [37:22.230] to making every single American
+- [37:23.970] who works hard and played by the rules
+- [37:25.800] We want them to get a little bit richer every single day,
+- [37:28.840] and we do believe that if we keep on
+- [37:30.550] making the right decisions,
+- [37:32.120] we keep on investing in the United States of America,
+- [37:34.860] we are going to find that the American citizens
+- [37:37.330] can afford a good life in their country again.
+- [37:40.220] That's our obligation, and that's what we're trying to do.
+- [37:50.070] The Press: Good morning, Mr. Vice President.
+- [37:51.870] My name is Thomas Shortell.
+- [37:53.280] I'm a reporter with Lehigh Valley Public Media.
+- [37:56.250] Congressman Ryan McKenzie and a number of other battleground
+- [37:59.830] Republicans have been pushing to have tax
+- [38:02.850] credit extensions on the ACA.
+- [38:05.430] I was curious what your thoughts were on their efforts.
+- [38:08.750] Is that something that the administration is behind?
+- [38:12.100] The Vice President: So first of all,
+- [38:13.350] just on health care costs,
+- [38:14.580] if you look at some of the worst health care costs
+- [38:16.570] for American citizens,
+- [38:17.800] the biggest drivers of increased health care cost,
+- [38:20.640] it is the cost of prescription drugs.
+- [38:22.970] It simply got way too high and it got too high
+- [38:26.090] because we allowed other countries
+- [38:27.360] to take advantage of it.
+- [38:28.580] I'm talking about the same exact drug that would cost $300
+- [38:33.220] in Great Britain or $250 in France
+- [38:36.180] would cost an American $5,000 or $10,000.
+- [38:39.850] We were subsidizing the entire world's prescription drugs
+- [38:44.100] and no president had the courage to put a stop to it.
+- [38:47.480] And Ryan McKenzie has been very supportive on this,
+- [38:50.200] nobody had the encourage to put a stop to it
+- [38:52.790] until Donald J. Trump said no.
+- [38:55.020] We are done getting fleeced on pharmaceuticals,
+- [38:57.530] Europe has to pay up
+- [38:58.850] so that our great American citizens can pay less.
+- [39:01.980] That's the most important thing that we've done.
+- [39:08.040] Now you are right that the health insurance market,
+- [39:10.660] the health insurance system is totally broken.
+- [39:12.770] It's been broken for 15 years, and we're working with Congress,
+- [39:16.830] both Democrats and Republicans, to come up with a solution.
+- [39:20.020] You talked about premium support.
+- [39:22.000] We think that everything should be on the table,
+- [39:24.680] but Democrats and Republican, they've got to work together
+- [39:27.080] and put something on the President's desk to sign.
+- [39:29.750] Now I will tell you, we've been involved
+- [39:31.610] in probably 10 different health care bills.
+- [39:33.950] You know, we've been talking to Ryan about it,
+- [39:35.680] we've talking to my friend Bernie Marino
+- [39:37.090] from the state of Ohio,
+- [39:38.330] we've not talking to Susan Collins about it.
+- [39:40.350] We've even talking to a few of the reasonable Democrats
+- [39:43.780] who are putting ideas out there,
+- [39:45.650] but Congress has got to get us something
+- [39:47.790] to lower the cost of health insurance for American citizens.
+- [39:50.800] The Obamacare system was broken. Donald J. Trump wants to fix it,
+- [39:54.840] but Congress's got to step up here.
+- [40:03.300] Speaker 8: Mr. Vice President, thanks for taking my question.
+- [40:05.330] I'm Hannah Brandt from NewsNation.
+- [40:07.640] As I'm sure you know, recent polling shows
+- [40:10.170] most Americans don't approve
+- [40:12.240] of how the Trump administration is handling the economy.
+- [40:14.770] I hear what you're saying,
+- [40:15.990] that it's going to take time to fix things,
+- [40:18.870] but the political reality is that the midterms are next year.
+- [40:22.320] Are you worried that affordability
+- [40:24.930] is a political liability for your administration
+- [40:27.140] and for Republicans?
+- [40:28.360] The Vice President: Look, I'm not worried
+- [40:29.580] about the politics because I believe fundamentally
+- [40:31.790] in the wisdom of the American people.
+- [40:33.740] When we go out there and we tell our story
+- [40:36.940] that gasoline and energy got way too high
+- [40:39.420] under Joe Biden's administration,
+- [40:41.270] but we've lowered the cost of energy,
+- [40:43.330] the American people will understand that.
+- [40:45.430] The American people know that.
+- [40:46.910] When we go out there and talk about the fact
+- [40:48.950] that the affordability crisis that happened
+- [40:51.170] under Joe Biden's administration
+- [40:53.020] made a lot of Americans poor and work,
+- [40:55.020] working every single day to put money back in their pocket,
+- [40:58.230] I think the American people will understand and agree with that.
+- [41:00.700] Of course, they're going to be the ones
+- [41:02.200] who make the final decision,
+- [41:03.700] but I feel very confident that if we keep wages high,
+- [41:06.990] we keep energy prices low,
+- [41:08.830] we keep on chipping away at the affordability crisis
+- [41:11.670] created by Joe Biden's administration, yes.
+- [41:14.610] I believe the American people are going to reward us
+- [41:17.080] because their Amer- -- the American people are smart.
+- [41:19.650] They know Rome wasn't built in a day.
+- [41:21.570] They know what Joe Bri- --
+- [41:22.770] Biden broke is not going to get fixed in a week.
+- [41:25.480] We got to stay with it.
+- [41:26.850] We got to keep on working on bringing good jobs and money
+- [41:29.420] back into the United States of America
+- [41:31.340] and that will, it already has paid
+- [41:33.770] major dividends for the American people.
+- [41:35.990] It's going to pay a lot more in the year to come.
+- [41:38.190] Thank you.
+- [41:45.400] The Press: Thank you, Mr. Vice President.
+- [41:46.720] This is Elizabeth Mitchell from The Daily Signal.
+- [41:49.260] The healthcare bill released Friday by the GOP
+- [41:53.020] doesn't include health savings accounts.
+- [41:55.370] Are you comfortable with that, and would you like to see
+- [41:57.880] the GOP use the special reconciliation process
+- [42:01.560] to address healthcare costs
+- [42:02.930] and other affordability concerns?
+- [42:04.450] The Vice President: Well, one of the things
+- [42:05.690] the President has said
+- [42:06.910] is we have the weirdest health insurance system in the world,
+- [42:11.020] where we tax money from all these great Americans out here,
+- [42:14.740] and then we give boatloads of money
+- [42:16.890] to the insurance companies.
+- [42:18.410] Why don't we give that money to the American people
+- [42:20.800] and let them buy insurance that works for them
+- [42:23.470] and their families?
+- [42:27.000] I mean, if, if you look at insurance company profits,
+- [42:30.540] they have been skyrocketing ever since Obamacare was passed.
+- [42:34.390] The insurance companies have done very well under Obamacare.
+- [42:37.430] You know how, who hasn't done well
+- [42:38.950] under the Obamacare system of given boatloads of money
+- [42:41.600] to the American people? All of you.
+- [42:43.080] (Audience member calls out "That's right.")
+- [42:44.480] That's what's broken about this system.
+- [42:46.100] It's good for insurance companies and bad for Americans.
+- [42:49.270] We are trying to get to a healthcare policy
+- [42:51.540] that's good for Americans. We don't care.
+- [42:53.620] We don't, if, if the insurance companies do well, great.
+- [42:56.140] If they do poorly, that's their problem.
+- [42:58.370] We are here to fight for the American worker
+- [43:00.420] and make health insurance affordable for them.
+- [43:02.600] So we're going to keep on working at it.
+- [43:04.220] You mentioned one piece of legislation.
+- [43:05.910] I've probably read a dozen different pieces of legislation
+- [43:09.170] that are floating out there.
+- [43:10.400] Again, it's, it's going to come to the point
+- [43:13.180] where Republicans and Democrats
+- [43:15.030] have to figure out what can be passed together.
+- [43:17.960] Of course, the President is going to drive
+- [43:19.800] a lot of that process.
+- [43:21.260] We're still reviewing some of these legislative texts
+- [43:23.030] as they come up.
+- [43:24.320] We believe that we can solve this problem.
+- [43:26.550] But again, the nature of our system,
+- [43:28.290] we're going to work with Congress
+- [43:29.520] to make sure we get something that's good
+- [43:30.800] for the American people through the Congress.
+- [43:32.640] Thank you.
+- [43:38.410] The Press: Thank you, Mr. Vice President.
+- [43:39.950] This is Irie Sentner from Politico.
+- [43:42.750] President Trump last week gave his economy a grade of A+,
+- [43:45.840] plus, plus, plus.
+- [43:47.800] What grade would you give the economy today?
+- [43:50.260] The Vice President: A plus, plus, plus.
+- [43:57.180] Look, I --
+- [43:58.750] (Audience chants "USA")
+- [44:05.160] The Vice President: Here, here, look, here.
+- [44:08.070] Here's the simple fact of the matter.
+- [44:10.260] Again, you have to understand all of this stuff in context.
+- [44:14.830] What, you have to ask yourself, what has the Trump economy
+- [44:17.510] been able to build over the past 10 or 11 months,
+- [44:20.580] given what we inherited from the Biden administration?
+- [44:23.080] Ladies and gentlemen, we had the worst inflation crisis
+- [44:26.090] in 50 years in the United States of America under Joe Biden.
+- [44:29.980] We had the worst trade deficit in the history
+- [44:32.750] of the United States under Joe Biden.
+- [44:34.920] We had debt and deficits,
+- [44:37.160] the highest in the history of American peacetime in 250 years.
+- [44:42.050] What we have been able to do, higher wages, lower inflation,
+- [44:46.190] a massive amount of investment and money
+- [44:48.230] coming into the United States of America,
+- [44:50.280] that stuff is incredible,
+- [44:52.580] and that is something to be proud of.
+- [44:54.470] What I will say is that given how bad things got
+- [44:57.480] under the Biden administration,
+- [44:59.020] we are going to keep on working every single day
+- [45:01.310] to make sure that Americans
+- [45:03.050] feel the benefits of the Trump economy.
+- [45:05.920] I am certain that we, again, we've already seen
+- [45:08.570] great benefits for the American people.
+- [45:10.480] But we got a lot of rebuilding to do over the next three years,
+- [45:13.140] and the President is committed
+- [45:14.460] more than anybody to making sure that we do it.
+- [45:23.080] The Press: Hi there, Vice President J.D. Vance.
+- [45:24.660] This is Rob Manch with 69 News, WFMZ.
+- [45:27.670] The jobs report you mentioned this morning,
+- [45:29.650] you said 60,000 jobs were added in November.
+- [45:32.450] However, it also said 100,000 jobs were lost in October,
+- [45:35.790] and the unemployment rate currently stands at 4.6 percent,
+- [45:38.590] which is the highest since the pandemic.
+- [45:40.710] So my question is, how do you inspire companies to hire people
+- [45:44.340] if people don't have jobs,
+- [45:45.640] income taxes tax cuts aren't going to help them?
+- [45:49.510] The Vice President: Well, first of all the idea
+- [45:51.430] that income tax cuts don't help is ridiculous.
+- [45:53.800] If more people have more money to spend in their pocket,
+- [45:56.040] that's good for businesses, it's good for families,
+- [45:58.000] it's good for everybody.
+- [45:59.360] It's one of the ways why we do this.
+- [46:03.100] When you talk about 100,000 jobs,
+- [46:05.140] you're talking about government sector jobs, and that is,
+- [46:14.490] that is in a lot of ways the entire story
+- [46:17.760] of what we're trying to do under President's Trump's leadership.
+- [46:21.520] We want to fire bureaucrats
+- [46:23.220] and hire these great Americans out here.
+- [46:25.450] That's what we're trying to do.
+- [46:31.120] Now, you mentioned this is an important point.
+- [46:32.730] You mentioned the unemployment rate ticking up to 4.6 percent.
+- [46:36.170] I think is a very, very important point.
+- [46:38.500] Because you know what that means?
+- [46:40.440] What you, what that data shows, and you got to get in the weeds
+- [46:43.750] a little bit, the unemployment rate
+- [46:45.720] only counts the people who are looking for work.
+- [46:48.280] So let's say you dropped out of work two years ago,
+- [46:51.930] you haven't been searching for a job.
+- [46:53.430] Well, you're unemployed, but you're not counted
+- [46:55.990] in the official unemployment statistics.
+- [46:58.370] What you're seeing as wages go up,
+- [47:01.160] as more investment comes into our country,
+- [47:03.510] is that people who weren't looking for work
+- [47:05.990] under Biden's administration,
+- [47:07.390] are getting out there and looking for work
+- [47:09.060] in the Trump administration.
+- [47:10.420] That's exactly what we want.
+- [47:12.260] We want to get people off the sidelines
+- [47:14.060] and give them a good job with good pay,
+- [47:17.070] and we're seeing a lot of evidence
+- [47:18.790] that that is happening under President Trump's leadership.
+- [47:26.630] We'll take, we'll take one more question.
+- [47:28.450] The Press: Mr. Vice President.
+- [47:29.720] Jacob Bogage from the Washington Post.
+- [47:30.930] It's good to see you.
+- [47:32.170] The Vice President: Good to see you too.
+- [47:33.410] The Press: Merry Christmas.
+- [47:34.650] The Vice President: Thank you. Same to you.
+- [47:35.980] The Press: Unfortunately, I have to ask
+- [47:37.270] a bit of an off-topic question from affordability
+- [47:39.290] because news events do intervene.
+- [47:41.530] And that is the interviews that White House Chief of Staff,
+- [47:43.830] Susie Wiles, gave to Vanity Fair,
+- [47:46.320] in which she's quoted as referring to you
+- [47:49.060] as, excuse, and again, not my words, sir,
+- [47:51.700] but "a conspiracy theorist of a decade"
+- [47:54.640] and described your transformation from someone
+- [47:59.520] who once opposed President Trump to now his vice president
+- [48:02.960] as an act of political expediency.
+- [48:04.900] And I'd like to give you the chance to respond to that, sir.
+- [48:07.500] The Vice President: Well, first of all,
+- [48:10.730] if Susie, as, like,
+- [48:13.350] I'll, I'll trust, I'll trust what you said.
+- [48:15.050] I haven't looked at the article. I of course have heard about it.
+- [48:17.660] But conspiracy theorist,
+- [48:20.480] sometimes I am a conspiracy theorist,
+- [48:22.340] but I only believe in the conspiracy theories
+- [48:23.960] that are true. And, and by the way,
+- [48:32.440] Susie and I have joked in private
+- [48:34.270] and in public about that for a long time.
+- [48:36.070] For example, I believed in the crazy conspiracy theory
+- [48:39.620] back in 2020
+- [48:41.180] that it was stupid to mask three-year-olds
+- [48:43.800] at the height of the COVID pandemic,
+- [48:45.710] that we should actually let them develop some language skills.
+- [48:50.640] You know, I believed in this crazy conspiracy theory
+- [48:52.960] that the media and the government
+- [48:54.960] were covering up the fact
+- [48:56.270] that Joe Biden was clearly unable to do the job.
+- [49:05.850] And I believed in the conspiracy theory
+- [49:07.730] that Joe Biden was trying
+- [49:09.050] to throw his political opponents in jail
+- [49:11.100] rather than win an argument against his political opponent.
+- [49:13.640] So at least on some of these conspiracy theories,
+- [49:20.340] it turns out that a conspiracy theory
+- [49:22.250] is just something that was true six months
+- [49:24.060] before the media admitted it.
+- [49:25.490] And that's, that's my understanding.
+- [49:29.940] Now, look, I do want to say something about Susie though,
+- [49:33.070] because again, having not read this article,
+- [49:35.830] Susie is a person I've come to know very, very well.
+- [49:38.900] And, you know, a lot of you probably under, ask yourself,
+- [49:42.100] "What is it like behind the scenes?
+- [49:43.620] What's going on actually behind the scenes
+- [49:45.420] of the Trump administration?" And I, I'll tell you,
+- [49:48.090] the President is exactly in private who he is in public.
+- [49:51.300] Like I'll tell you a little story.
+- [49:53.200] A few, maybe, actually a week or so ago,
+- [49:56.740] I walk into the Oval Office and Marco
+- [49:58.420] and I are sitting there talking with the President
+- [50:00.180] about something. He says, "Stop."
+- [50:01.910] And he looks at our shoes and says,
+- [50:03.620] "You guys have terrible shoes."
+- [50:07.040] So he goes and gets a shoe catalog.
+- [50:09.270] Now remember, this is the Christmas season,
+- [50:10.830] so the President's got some holiday cheer.
+- [50:13.230] He goes and gets a shoe catalog and gets his favorite shoes
+- [50:16.120] and orders like four pairs of shoes for me
+- [50:19.880] and four pairs of shoes for Marco
+- [50:21.550] because he's like, "You know, we need our vice president,
+- [50:23.280] our Secretary of State to look their very best."
+- [50:25.810] And, you know, then we went back to talking about whatever major,
+- [50:28.880] you know, international issue we were talking about.
+- [50:32.010] Again, he is exactly in private who he is in public.
+- [50:35.400] That's not true of most people in Washington, D.C.
+- [50:37.980] It's not. And I've seen so many people
+- [50:40.830] who will say one thing to the President's face,
+- [50:43.080] Democrats and Republicans,
+- [50:44.540] and then we'll do the exact opposite behind the scenes.
+- [50:46.330] You know why I really –
+- [50:47.630] (Audience member calls out "Traitor")
+- [50:48.840] You know what they are.
+- [50:50.130] And you know why I really love Susie Wiles?
+- [50:52.260] Because Susie is who she is in the President's presence.
+- [50:57.350] She's the same exact person when the President isn't around.
+- [51:00.810] I've never seen Susie Wiles say something to the President
+- [51:05.550] and then go and counteract him or subvert
+- [51:09.000] his will behind the scenes.
+- [51:10.900] And that's what you wanted a staffer.
+- [51:12.460] Because as much as I love Susie,
+- [51:14.350] the American people didn't elect any staffer.
+- [51:17.210] They elected the President of the United States.
+- [51:19.830] And what you want, and what you want in a staffer
+- [51:26.550] is a person who understands they are there
+- [51:28.700] to effectuate the will of the American people,
+- [51:31.770] and they're there to follow the orders of the duly
+- [51:34.790] elected commander-in-chief of the United States.
+- [51:37.700] And Susie Wiles, we have our disagreements,
+- [51:40.590] we agree on much more than we disagree,
+- [51:42.720] but I've never seen her be disloyal
+- [51:44.880] to the President of the United States,
+- [51:46.330] and that makes her the best White House chief of staff
+- [51:48.750] that I think the President could ask for.
+- [51:56.930] And the last thing I'll say is if any of us have learned
+- [51:59.260] a lesson from that Vanity Fair article,
+- [52:02.590] I hope that the lesson is we should be giving
+- [52:04.900] fewer interviews to mainstream media outlets.
+- [52:11.630] So with that, with that lesson internalized,
+- [52:14.590] I'm going to stop taking questions and just leave you,
+- [52:17.300] leave you with one final note.
+- [52:19.130] And, and again, it's just a note of gratitude.
+- [52:21.590] This is the coolest job I've ever had.
+- [52:23.920] Agree with us or disagree with us,
+- [52:26.330] I'm sure that every single person in this room
+- [52:30.070] made something happen to get me to this job.
+- [52:32.650] You went out there and voted,
+- [52:33.970] maybe you persuaded one of your relatives to vote,
+- [52:36.330] maybe even volunteered or knocked on doors
+- [52:38.390] or made phone calls for us.
+- [52:40.050] I will never forget that my job every single day is to make it
+- [52:45.260] so that you guys can have a safe and prosperous life
+- [52:48.920] in this country that all of us love. We –
+- [52:50.810] (Audience member calls out "Thank you.")
+- [52:52.190] The Vice President: Thank you. Thank you.
+- [52:55.370] We inherited a mess, ladies and gentlemen.
+- [52:57.270] I'm not going to sugarcoat it.
+- [52:58.560] We inherited a mess, but I think that in 11 months,
+- [53:01.910] we have made great progress to making this a safer,
+- [53:05.430] a more secure, and a more prosperous nation.
+- [53:08.850] Let's work for the next three years to do
+- [53:10.810] even more great work for the American people,
+- [53:13.270] and let's rebuild this country together.
+- [53:15.200] God bless you all. Merry Christmas.

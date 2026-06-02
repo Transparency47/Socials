@@ -1,0 +1,805 @@
+<!-- source: https://www.youtube.com/watch?v=ShRYdYTtIx8 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: ShRYdYTtIx8 -->
+<!-- date_published: 2025-01-30T17:00:14+00:00 -->
+<!-- date_accessed: 2026-06-02T02:54:20.770021+00:00 -->
+
+# Transcript: President Trump Holds Press Briefing on Aviation Disaster
+
+- [00:00.080] The Press: President, welcome.
+- [00:01.310] The President: Thank you very much.
+- [00:03.580] Thank you. I'd like to request a moment of silence
+- [00:07.210] for the victims and their families.
+- [00:10.050] Please.
+- [00:31.830] Thank you very much.
+- [00:38.860] I speak to you this morning
+- [00:40.210] in an hour of anguish for our nation.
+- [00:44.720] Just before 9:00 PM last night,
+- [00:47.190] an American Airlines regional jet
+- [00:49.110] carrying 60 passengers and four crew collided
+- [00:52.660] with an army Blackhawk helicopter
+- [00:54.770] carrying three military service members
+- [00:56.780] over the Potomac River in Washington,
+- [00:58.820] DC while on final approach to Reagan National Airport.
+- [01:04.300] Both aircraft crashed instantly and were immediately submerged
+- [01:08.130] into the icy waters of the Potomac.
+- [01:10.950] Real tragedy.
+- [01:12.760] The massive search and rescue mission
+- [01:14.450] was underway throughout the night,
+- [01:16.960] leveraging every asset at our disposal.
+- [01:19.350] And I have to say, the local state, federal military,
+- [01:23.840] including the United States Coast Guard in particular,
+- [01:26.540] they've done a phenomenal job.
+- [01:29.220] So quick, so fast, it was mobilized immediately.
+- [01:34.550] The work has now shifted to a recovery mission.
+- [01:39.650] Sadly, there are no survivors.
+- [01:43.270] This was a dark and excruciating night
+- [01:45.290] in our nation's capital and in our nation's history
+- [01:49.370] and a tragedy of terrible proportions.
+- [01:52.800] As one nation, we grieve for every precious soul
+- [01:56.850] that has been taken from us so suddenly,
+- [02:00.330] and we are a country of really, we are in mourning.
+- [02:04.920] This is really shaking a lot of people,
+- [02:07.740] including people very sadly,
+- [02:09.200] from other nations who were on the flight.
+- [02:12.660] For the family members back in Wichita, Kansas,
+- [02:15.260] here in Washington,
+- [02:16.490] DC and throughout the United States and in Russia.
+- [02:21.060] We have a Russia contingent of very talented people
+- [02:24.640] unfortunately were on that plane,
+- [02:26.440] very, very, very sorry about that,
+- [02:28.760] whose loved ones were aboard the passenger jet.
+- [02:31.940] We can only begin to imagine the agony that you are all feeling.
+- [02:36.710] Nothing worse.
+- [02:38.490] On behalf of the First Lady,
+- [02:39.850] myself and 340 million Americans,
+- [02:42.340] our friends are shattered alongside yours
+- [02:44.490] and our prayers are with you now and in the days to come.
+- [02:48.910] We'll be working very, very diligently in the days to come.
+- [02:51.840] We're here for you to wipe away the tears
+- [02:54.710] and to offer you our devotion, our love and our support.
+- [02:58.190] It's great support. In moments like this,
+- [03:00.950] the differences between Americans fade
+- [03:04.020] to nothing compared to the bonds of affection and loyalty
+- [03:07.310] that unite us all,
+- [03:08.980] both as Americans and even as nations.
+- [03:12.140] We are one family, and today we are all heartbroken.
+- [03:15.970] We're all searching for answers.
+- [03:19.360] That icy, icy Potomac.
+- [03:21.550] It was a cold, cold night, cold water.
+- [03:26.610] We're all overcome with the grief.
+- [03:28.480] For many who have so tragically perished,
+- [03:31.050] who will no longer be with us.
+- [03:33.350] Together, we take solace in the knowledge
+- [03:35.210] that their journey ended not in the cold waters of the Potomac,
+- [03:38.640] but in the warm embrace of a loving God.
+- [03:42.050] We do not know what led to this crash,
+- [03:44.900] but we have some very strong opinions and ideas,
+- [03:48.030] and I think we'll probably state those opinions now
+- [03:51.010] because over the years
+- [03:52.300] I've watched as things like this happen
+- [03:54.280] and they say, "Well, we're always investigating."
+- [03:56.600] And then the investigation,
+- [03:57.930] three years later, they announce it.
+- [03:59.400] "We think we have some pretty good ideas."
+- [04:02.670] But we'll find out how this disaster occurred
+- [04:04.830] and will ensure that nothing like this ever happens again.
+- [04:09.670] The FAA and the NTSB
+- [04:11.970] and the US military will be carrying out
+- [04:14.020] a systematic and comprehensive investigation.
+- [04:17.340] Our new Secretary of Transportation, Sean Duffy,
+- [04:21.340] his second day on the job when that happened,
+- [04:27.170] it's a rough one, will be working tirelessly.
+- [04:30.110] He's a great gentleman. The whole group is.
+- [04:32.450] These are great people and they are working tirelessly
+- [04:36.070] to figure out exactly what happened.
+- [04:39.310] We will state certain opinions, however.
+- [04:41.190] I'm also immediately appointing an acting Commissioner
+- [04:45.160] to the FAA, Christopher Rochelieu,
+- [04:48.290] a twenty-two-year veteran of the agency, highly respected.
+- [04:53.290] Christopher, thank you very much.
+- [04:54.710] Appreciate it.
+- [04:56.230] We must have only the highest standards
+- [04:57.990] for those who work in our aviation system.
+- [05:00.140] I changed the Obama standards from very mediocre
+- [05:04.860] at best to extraordinary.
+- [05:07.210] You remember that. Only the highest aptitude,
+- [05:12.020] they have to be the highest intellect
+- [05:15.300] and psychologically superior people
+- [05:18.230] were allowed to qualify for air traffic controllers.
+- [05:22.400] That was not so prior to getting there.
+- [05:25.670] When I arrived in 2016, I made that change very early on
+- [05:30.140] because I always felt this was a job that --
+- [05:32.370] and other jobs too-
+- [05:33.610] but this was a job that had to be superior intelligence
+- [05:37.330] and we didn't really have that and we had it.
+- [05:41.810] And then when I left office and Biden took over,
+- [05:45.620] he changed them back to lower than ever before.
+- [05:51.460] I put safety first, Obama Biden and the Democrats
+- [05:54.690] put policy first and they put politics at a level
+- [06:00.110] that nobody's ever seen because this was the lowest level.
+- [06:05.410] Their policy was horrible and their politics was even worse.
+- [06:10.640] So as you know, last week long before the crash,
+- [06:13.090] I signed an executive order
+- [06:14.500] restoring our highest standards for air traffic controllers
+- [06:18.600] and other important jobs throughout the country.
+- [06:20.520] So it was very interesting.
+- [06:22.280] About a week ago, almost upon entering office,
+- [06:28.310] I signed something last week, that was an executive order,
+- [06:33.310] very powerful on restoring the highest standards
+- [06:35.400] of air traffic controllers and others, by the way.
+- [06:39.690] Then my administration will set the highest possible bar
+- [06:42.520] for aviation safety.
+- [06:43.820] We have to have our smartest people.
+- [06:46.240] It doesn't matter what they look like,
+- [06:48.660] how they speak, who they are.
+- [06:50.160] It matters - intellect, talent. The word talent.
+- [06:53.920] You have to be talented, naturally talented geniuses.
+- [06:58.470] You can't have regular people doing that job.
+- [07:00.450] They won't be able to do it.
+- [07:02.770] But we'll restore faith in American air travel.
+- [07:05.130] I'll have more to say about that.
+- [07:07.180] I do want to point out that various articles
+- [07:11.390] that appeared prior to my entering office, and here's one.
+- [07:17.260] The FAA's diversity push includes focus on hiring people
+- [07:21.140] with severe intellectual and psychiatric disabilities.
+- [07:27.110] That is amazing.
+- [07:28.640] And then it says, FAA says, people with severe disabilities
+- [07:32.410] are most underrepresented segment of the workforce
+- [07:35.950] and they want them in and they want them .
+- [07:38.490] They can be air traffic controllers.
+- [07:40.430] I don't think so. This was in January 14th,
+- [07:44.960] so that was a week before I entered office.
+- [07:48.440] They put a big push to put diversity
+- [07:51.840] into the FAA's program.
+- [07:54.670] Then another article,
+- [07:57.420] the Federal Aviation Administration, --.
+- [07:59.280] This was before I got to office. Recently. Second term.
+- [08:05.730] The FAA is actively recruiting workers
+- [08:08.590] who suffer severe intellectual disabilities,
+- [08:12.690] psychiatric problems,
+- [08:14.060] and other mental and physical conditions
+- [08:15.990] under a diversity and inclusion hiring initiative
+- [08:18.790] spelled out on the agency's website.
+- [08:21.740] Can you imagine? These are people that are …
+- [08:26.090] I mean actually their lives are shortened
+- [08:28.460] because of the stress that they have.
+- [08:32.690] Brilliant people have to be in those positions
+- [08:35.830] and their lives are actually shortened,
+- [08:37.550] very substantially shortened because of the stress.
+- [08:40.350] Where you have many, many planes coming into one target
+- [08:44.080] and you need a very special talent
+- [08:47.360] and a very special genius to be able to do it.
+- [08:50.550] Targeted disabilities are those disabilities
+- [08:52.970] at the federal government as a matter of policy,
+- [08:55.370] as identified for special emphasis in recruitment
+- [08:58.260] and hiring, the FAA's website states.
+- [09:01.500] They include hearing, vision, missing extremities,
+- [09:06.140] partial paralysis, complete paralysis, epilepsy,
+- [09:09.560] severe intellectual disability, psychiatric disability
+- [09:13.760] and dwarfism
+- [09:15.020] all qualify for the position of a controller of airplanes
+- [09:21.910] pouring into our country, pouring into a little spot,
+- [09:25.160] a little dot on the map, a little runway.
+- [09:29.420] The initiative is part of the FAA's Diversity
+- [09:32.400] and inclusion hiring plan. Think of that.
+- [09:34.410] The initiative is part of the FAA's Diversity
+- [09:38.250] and Inclusion hiring plan,
+- [09:39.700] which says diversity is integral to achieving FAA's mission
+- [09:43.870] of ensuring safe and efficient travel.
+- [09:45.870] I don't think so. I don't think so.
+- [09:47.500] I think it's just the opposite. The FAA website shows
+- [09:52.130] that the agency's guidance on diversity hiring
+- [09:55.080] were last updated on March 23rd of '22.
+- [09:58.580] They wanted to make it even more.
+- [10:00.950] And then I came in and I assume maybe this is the reason,
+- [10:05.230] the FAA, which is overseen by Secretary Pete Buttigieg,
+- [10:11.330] a real winner. That's the guy's a real winner.
+- [10:13.000] Do you know how badly everything's run
+- [10:14.630] since he's run this Department of Transportation?
+- [10:17.780] He's a disaster. He was a disaster as a mayor.
+- [10:22.160] He ran his city into the ground and he's a disaster now.
+- [10:26.170] He's just got a good line of bullshit.
+- [10:29.590] The Department of Transportation,
+- [10:31.970] his government agency charged with regulating civil aviation
+- [10:35.680] while he runs it, 45,000 people
+- [10:38.540] and he is run it right into the ground with his diversity.
+- [10:42.410] So I had to say that it's terrible.
+- [10:46.360] Then it's a group within the FAA,
+- [10:48.960] another story determined that the workforce was too white.
+- [10:53.600] That they had concerted efforts
+- [10:55.530] to get the administration to change that
+- [10:59.940] and to change it immediately.
+- [11:02.520] This was in the Obama administration
+- [11:04.650] just prior to my getting there.
+- [11:07.350] And we took care of African Americans, Hispanic Americans.
+- [11:11.170] We took care of everybody at levels
+- [11:13.290] that nobody's ever seen before. It's one of the reasons I won.
+- [11:16.820] But they actually came out with a directive, too white.
+- [11:20.300] And we want the people that are competent.
+- [11:24.470] But now we mourn and we pray
+- [11:26.150] and would like to ask all Americans to join me
+- [11:29.350] in a moment of silence as we ask God
+- [11:31.350] to watch over those who have lost their lives
+- [11:33.480] and bring comfort to the loved ones.
+- [11:36.720] And I just want to say, God bless everyone in this room.
+- [11:40.440] This has been a terrible, very short period of time.
+- [11:45.800] We'll get to the bottom of it.
+- [11:47.890] So we all saw the same thing. We've seen it many times.
+- [11:51.270] I've had the honor of hearing tapes.
+- [11:55.660] Tapes are scary, very scary tapes.
+- [12:00.520] You had a airliner coming in, American Airlines.
+- [12:05.720] He was doing everything right. He was on track.
+- [12:08.350] He was the same track as everybody else.
+- [12:10.240] They came in, it's probably the same track
+- [12:12.210] as they've had for 25 years or more.
+- [12:15.050] He's coming in the path and, for some reason,
+- [12:20.160] you had a helicopter that was at the same height,
+- [12:25.740] obviously when they hit, but pretty much the same height
+- [12:29.380] and going at an angle that was unbelievably bad
+- [12:34.480] when the air traffic controller said, "Do you see?"
+- [12:38.710] He was talking about do you see him?
+- [12:41.240] But there was very little time left when that was stated.
+- [12:44.470] And then also he said, "Follow him in."
+- [12:46.930] And then almost immediately after that,
+- [12:50.960] seconds after that, there was the crash that took place.
+- [12:54.480] Well, you follow him in, that means like everything's fine.
+- [12:57.130] Follow him in.
+- [13:00.740] You had a pilot problem from the standpoint of the helicopter,
+- [13:06.450] I mean, because it was visual. It was a very clear night.
+- [13:10.630] It was cold, but clear and clear as you could be.
+- [13:14.820] The American Airlines plane had lights blazing.
+- [13:19.770] They had all of their landing lights on.
+- [13:22.070] I could see it from the Kennedy Center tape.
+- [13:24.240] We had a tape up on the Kennedy Center.
+- [13:27.000] That seems to be the primary.
+- [13:28.230] That's why I'm sure we'll see other tapes,
+- [13:29.650] because it's such an area where there are a lot of cameras,
+- [13:33.480] a lot of cameras looking up into the air, into space.
+- [13:37.900] So we'll probably see many other shots of it
+- [13:39.900] before too much time goes by.
+- [13:42.690] But we had a situation where you had a helicopter
+- [13:48.760] that had the ability to stop. I have helicopters.
+- [13:51.560] You can stop a helicopter very quickly.
+- [13:54.440] It had the ability to go up or down.
+- [13:56.540] It had the ability to turn and the turn it made
+- [14:01.170] was not the correct turn, obviously,
+- [14:05.030] and it did somewhat the opposite of what it was told.
+- [14:08.920] We don't know that that would've been the difference
+- [14:10.820] because the timing was so tight. It was so little.
+- [14:15.150] There was so little time to think.
+- [14:17.540] But what you did have is you had vision.
+- [14:20.520] The helicopter had vision of the plane
+- [14:23.510] because you had vision of it all the way, perfect vision of it,
+- [14:26.200] all the way from, at Kennedy Center
+- [14:28.780] where the tape was taken
+- [14:31.270] and, for some reason, there weren't adjustments made.
+- [14:34.420] Again, you could have slowed down
+- [14:36.290] the helicopter substantially.
+- [14:37.750] You could have stopped the helicopter.
+- [14:39.050] You could have gone up. You could have gone down.
+- [14:40.850] You could have gone straight up, straight down.
+- [14:42.330] You could have turned,
+- [14:43.620] you could have done a million different maneuvers.
+- [14:46.510] For some reason, it just kept going
+- [14:51.240] and then made a slight turn at the very end
+- [14:55.540] and, by that time, it was too late.
+- [14:59.510] They shouldn't have been at the same height
+- [15:02.020] because if it was at the same height,
+- [15:03.800] you could have gone under it or over it and nobody realized,
+- [15:08.210] or they didn't say that it's at the same height.
+- [15:11.050] At the same height, it still wouldn't have been great,
+- [15:13.530] but you would've missed it by quite a bit.
+- [15:15.190] It could have been a thousand feet higher,
+- [15:17.080] it could have been 200 feet lower,
+- [15:19.470] but it was exactly at the same height
+- [15:21.090] and somebody should've been able to point that out.
+- [15:23.780] So all of this is going to be studied,
+- [15:25.590] but it just seems to me from,
+- [15:28.830] a couple of words that I like to use,
+- [15:30.160] the words common sense, some really bad things happened
+- [15:36.920] and some things happened that shouldn't have happened.
+- [15:40.420] So you had a helicopter going in identical direction.
+- [15:45.290] You had a helicopter that was at the exact same height
+- [15:48.360] as somebody going in essentially the opposite direction.
+- [15:52.220] You had a plane that was following a track,
+- [15:54.020] which is a track that every other plane followed
+- [15:57.360] and I don't imagine, I know I've heard today
+- [16:00.400] that they might've been following the preceding plane,
+- [16:02.630] which was pretty close,
+- [16:03.900] but not that close, the preceding plane.
+- [16:06.760] But you wouldn't have even been able to see that
+- [16:08.570] because of the direction that the helicopter was coming in at.
+- [16:11.370] So you had a confluence of bad decisions that were made
+- [16:18.540] and you have people that lost their lives,
+- [16:22.920] violently lost their lives.
+- [16:26.610] We're going to take a few questions.
+- [16:28.050] I'd like to ask our new Secretary of Transportation
+- [16:31.560] to say a few words, Sean Duffy, great gentleman, just started.
+- [16:35.770] It's not your fault, and I know you agree with me
+- [16:39.690] very strongly on intellect and even psychological well-
+- [16:44.030] being of the air traffic control.
+- [16:46.180] It's such an important position,
+- [16:48.120] and I think I can't emphasize stronger. I changed it.
+- [16:52.520] When I first ran in 2016, I changed it.
+- [16:55.940] We had the highest standard that you could have,
+- [16:58.920] and then they changed it back, that was Biden,
+- [17:03.570] to a standard you just… I read it to you.
+- [17:05.800] That was from one of your papers.
+- [17:08.240] One of the people in this room actually wrote that.
+- [17:12.120] And then I changed it back a few days ago
+- [17:15.650] and, unfortunately, that was…
+- [17:20.780] We'll see. We don't know that necessarily
+- [17:23.070] it's even the controller's fault.
+- [17:24.920] But one thing we do know, there was a lot of vision
+- [17:27.070] and people should've been able to see that
+- [17:30.030] at what point do you stop? At what point do you say,
+- [17:32.030] "Wow, that plane's getting a little bit close?"
+- [17:34.330] So this is a tragedy that should not have happened. Please.
+- [17:40.950] Mr. Duffy: Thank you, Mr. President.
+- [17:42.190] And I would just note the President's leadership
+- [17:45.570] has been remarkable during this crisis.
+- [17:48.190] We have had a whole of government response,
+- [17:50.750] local, state, federal,
+- [17:52.990] and when you see that kind of cooperation,
+- [17:56.530] it begins with the leadership in this body.
+- [17:59.080] So thank you for that, Mr. President.
+- [18:00.470] You make our jobs a lot easier.
+- [18:03.770] You made an important point that when we deal with safety,
+- [18:08.430] we can only accept the best
+- [18:10.380] and the brightest in positions of safety
+- [18:13.440] that impact the lives of our loved ones, our family members.
+- [18:17.310] And I think you make a really important point on that,
+- [18:19.180] Mr. President.
+- [18:20.380] That is the motto of your presidency,
+- [18:22.540] the best and the brightest,
+- [18:24.050] the most intelligent coming into these spaces.
+- [18:26.780] I want to take a moment and extend my condolences
+- [18:29.960] to the families of the loved ones.
+- [18:32.500] We commit to them that we are going to get
+- [18:35.360] to the bottom of this investigation,
+- [18:37.950] not in three years, not in four years,
+- [18:39.650] but as quickly as possible with the NTSB who is here today,
+- [18:43.280] as well as the FAA.
+- [18:45.220] What happened yesterday shouldn't have happened.
+- [18:48.270] It should not have happened.
+- [18:50.120] And when Americans take off in airplanes,
+- [18:52.870] they should expect to land at their destination.
+- [18:56.420] That didn't happen yesterday. That's unacceptable.
+- [18:59.760] And so we will not accept excuses.
+- [19:02.630] We will not accept passing the buck.
+- [19:06.940] We are going to take responsibility
+- [19:09.200] at the Department of Transportation and the FAA
+- [19:11.660] to make sure we have the reforms
+- [19:13.340] that have been dictated by President Trump in place
+- [19:16.450] to make sure that these mistakes do not happen again.
+- [19:19.150] And again, I want to thank you
+- [19:20.370] for your leadership, Mr. President-
+- [19:21.610] The President: Thank you.
+- [19:22.820] Mr. Duffy: … and I appreciate the confidence you placed in me.
+- [19:25.470] Thank you.
+- [19:26.760] The President: Thank you very much.
+- [19:28.570] Pete, would you like to say something?
+- [19:33.570] The Press: Well, thank you, Mr. President.
+- [19:35.260] Again, I want to echo what the transportation secretary
+- [19:37.660] said about your leadership.
+- [19:39.210] From the moment we found out about this,
+- [19:41.320] we were in contact with the White House
+- [19:42.670] trying to determine exactly what happened.
+- [19:45.280] I would echo it as well. No excuses.
+- [19:46.850] We're going to get to the bottom of this.
+- [19:50.350] We, first and foremost, from the Defense Department,
+- [19:52.290] want to pass our condolences to the 64 souls
+- [19:55.910] and their families that were affected by this.
+- [19:59.100] Never should happen.
+- [20:00.840] And certainly the three service members,
+- [20:02.300] the three soldiers, a young captain, staff sergeant,
+- [20:06.860] and the CW-II, Chief Warrant Officer
+- [20:09.000] on a routine annual retraining of night flights
+- [20:12.700] on a standard corridor
+- [20:14.670] for a continuity of government mission.
+- [20:18.360] The military does dangerous things.
+- [20:19.840] It does routine things on a regular basis.
+- [20:22.840] Tragically, last night a mistake was made,
+- [20:25.410] and I think the president is right.
+- [20:27.540] There was some sort of an elevation issue
+- [20:30.920] that we have immediately begun
+- [20:32.280] investigating at the DOD and Army level.
+- [20:34.930] Army CID is on the ground investigating.
+- [20:37.620] Top-tier aviation assets inside the DOD are investigating, sir,
+- [20:42.110] to get to the bottom of it so that it does not happen again
+- [20:44.890] because it's absolutely unacceptable.
+- [20:46.400] But I want to echo what the transportation secretary
+- [20:49.130] and you, Mr. President,
+- [20:50.370] said because it pertains to the DOD as well.
+- [20:54.060] We will have the best and brightest
+- [20:55.800] in every position possible. As you said in your inaugural,
+- [20:59.020] it is colorblind and merit-based.
+- [21:02.760] The best leaders possible,
+- [21:04.440] whether it's flying Black Hawks and flying airplanes,
+- [21:07.360] leading platoons or in government.
+- [21:09.980] The era of DEI is gone at the Defense Department
+- [21:14.590] and we need the best and brightest,
+- [21:16.030] whether it's in our air traffic control
+- [21:18.430] or whether it's in our generals
+- [21:20.110] or whether it's throughout government.
+- [21:21.670] So thank you for your leadership and courage on that, sir,
+- [21:24.130] and we'll stand by you on it. Thank you.
+- [21:25.560] The President: Thank you very much. JD, please?
+- [21:31.390] The Vice President: Well, thank you, Mr. President,
+- [21:32.620] for your leadership.
+- [21:33.860] I just want to reemphasize something the president said
+- [21:35.820] and you've heard from the secretary
+- [21:37.170] of transportation and of defense.
+- [21:38.730] There really was a whole-of-government response.
+- [21:40.400] We were all on the phone,
+- [21:41.660] we were all communicating yesterday
+- [21:42.890] trying to get to the bottom of this immediately,
+- [21:45.030] but also try to communicate with the American people
+- [21:47.610] about what happened.
+- [21:48.890] Something the president said
+- [21:50.120] that I think bears reemphasizing,
+- [21:52.640] which is that when you don't have the best standards
+- [21:55.380] in who you're hiring, it means, on the one hand,
+- [21:58.150] you're not getting the best people in government,
+- [22:00.040] but on the other hand,
+- [22:01.280] it puts stresses on the people who are already there.
+- [22:04.260] And I think that is a core part
+- [22:06.040] of what President Trump is going to bring
+- [22:07.780] and has already brought to Washington,
+- [22:09.640] DC is we want to hire the best people
+- [22:12.240] because we want the best people at air traffic control
+- [22:14.550] and we want to make sure we have enough people
+- [22:16.420] at air traffic control
+- [22:17.680] who are actually competent to do the job.
+- [22:19.820] If you go back to just some of the headlines
+- [22:21.410] over the past 10 years,
+- [22:22.810] you have many hundreds of people suing the government
+- [22:25.680] because they would like to be air traffic controllers,
+- [22:27.490] but they were turned away
+- [22:28.710] because of the color of their skin.
+- [22:30.350] That policy ends under Donald Trump's leadership
+- [22:32.800] because safety is the first priority
+- [22:34.160] of our aviation industry.
+- [22:35.550] Thank you, Mr. President.
+- [22:36.770] The President: Thank you. Thank you, JD.
+- [22:37.980] The Press: Mr. President. Mr. President.
+- [22:39.210] Mr. President.
+- [22:40.430] The Press: Mr. President, on DEI and the claims that you've made,
+- [22:42.370] are you saying this crash was somehow caused
+- [22:45.370] and the result of diversity hiring?
+- [22:47.280] And what evidence have you seen to support these claims?
+- [22:50.330] The President: It just could have been.
+- [22:51.650] We have a high standard,
+- [22:52.860] we've had a much higher standard than anybody else,
+- [22:56.260] and there are things where you have to go by brainpower,
+- [22:59.030] you have to go by psychological quality
+- [23:03.630] and psychological quality
+- [23:05.190] is a very important element of it.
+- [23:06.900] These are various, very powerful tests
+- [23:09.090] that we put to use and they were terminated by Biden,
+- [23:12.070] and Biden went by a standard that's the exact opposite.
+- [23:15.060] So we don't know.
+- [23:16.450] But we do know that you had two planes at the same level.
+- [23:19.530] You had a helicopter and a plane.
+- [23:21.470] That shouldn't have happened. And we'll see.
+- [23:23.830] We're going to look into that and we're going to see.
+- [23:25.740] But certainly for an air traffic controller,
+- [23:29.660] we want the brightest, the smartest, the sharpest.
+- [23:32.120] We want somebody that's psychologically superior
+- [23:35.770] and that's what we're going to have. Yeah.
+- [23:37.260] The Press: Mr. President.
+- [23:38.500] Mr. President. Mr. President.
+- [23:39.730] The President: Yeah, please, go ahead.
+- [23:40.960] The Press: Mr. President, you mentioned at the top
+- [23:42.280] of the briefing
+- [23:43.480] that there were several Russian nationals on the flight.
+- [23:45.840] The President: Yes.
+- [23:47.080] The Press: Will the US government be willing
+- [23:49.500] to facilitate
+- [23:51.060] the transfer of their remains considering the fact-
+- [23:53.200] The President: Yes, we will.
+- [23:54.420] The Press: … there is no direct air travel
+- [23:55.800] between the two countries?
+- [23:57.030] The President: We've already been in contact with Russia,
+- [23:59.130] and the answer is yes, we will facilitate. Yes.
+- [24:01.490] The Press: Mr. President.
+- [24:02.840] Mr. President. Mr. President.
+- [24:04.070] The President: Please go ahead.
+- [24:05.310] The Press: Thank you, Mr. President.
+- [24:08.010] The situation in the Democratic Republic of the Congo
+- [24:10.940] is getting worse.
+- [24:12.200] Even though President Joao Lourenco
+- [24:13.950] has been mediating the conflict between Rwanda
+- [24:17.700] and the Democratic Republic of the Congo
+- [24:19.090] because he wants to bring peace and stability,
+- [24:22.010] the situation is really bad right now.
+- [24:24.160] I want to hear from this president
+- [24:25.840] if you have any plan in the future
+- [24:27.330] to bring peace in the Democratic Republic-
+- [24:28.790] The President: Well, you're asked to me
+- [24:30.070] a question about Rwanda
+- [24:31.290] and it is a very serious problem, I agree,
+- [24:33.010] but I don't think it's appropriate
+- [24:34.290] right now to talk about it.
+- [24:35.540] But it is a very serious problem.
+- [24:36.820] The Press: Mr. President.
+- [24:38.040] Mr. President. Mr. President.
+- [24:39.290] We don't yet know the names of the 67 people who were killed,
+- [24:41.920] and you are blaming Democrats
+- [24:43.750] and DEI policies and air traffic control,
+- [24:46.230] and seemingly the member of the US military
+- [24:48.450] who was flying that Black Hawk helicopter.
+- [24:50.000] Don't you think you're getting ahead
+- [24:51.300] of the investigation right now?
+- [24:52.550] The President: No, I don't think so at all.
+- [24:53.750] I don't think… What are the names of the people?
+- [24:55.540] You mean the names of the people that are on the plane?
+- [24:58.920] You think that's going to make a difference? They are-
+- [25:00.740] The Press: [inaudible 00:38:47] for their family
+- [25:02.060] [inaudible 00:38:48] any media-
+- [25:03.280] The President: They are a group of people
+- [25:04.480] that have lost their lives. If you want a list of the names
+- [25:06.460] we can give you that, we'll be giving that very soon.
+- [25:08.590] We're in coordination with American Airlines.
+- [25:10.920] We're in coordination very strongly, obviously,
+- [25:13.150] with the military.
+- [25:14.490] But I think that's not a very smart question.
+- [25:17.050] I'm surprised coming from you. Please.
+- [25:20.560] The Press: Thank you President Trump,
+- [25:21.840] thank you for being here. Based on your analysis so far,
+- [25:24.780] do you have a sense of who was at fault?
+- [25:27.200] If it was the plane, the helicopter,
+- [25:29.240] air traffic control, and can you assure people
+- [25:31.210] that it is safe to fly in and out of D.C.?
+- [25:33.930] The President: Well, I've given you the analysis
+- [25:35.450] and the analysis was, it was based on vision.
+- [25:41.080] You had a lot of people that saw what was happening.
+- [25:43.540] You had some people that knew what was happening.
+- [25:46.920] There was some warnings,
+- [25:48.120] but the warnings were given very, very late.
+- [25:50.160] Those warnings were given very late.
+- [25:51.680] It was almost as they were given,
+- [25:53.740] a few seconds later there was a crash.
+- [25:56.430] It should have been brought up earlier.
+- [25:59.550] But the people in the helicopter should have seen
+- [26:04.080] where they were going.
+- [26:05.750] I can't imagine people with 20 20 vision
+- [26:10.240] not seeing what's happening up there.
+- [26:14.710] Again, they shouldn't have been at the same height.
+- [26:17.320] You're going in reverse directions
+- [26:19.530] or sideway directions.
+- [26:21.840] Obviously you want to be at different heights.
+- [26:23.880] I see it all the time when I'm flying.
+- [26:25.840] You have planes going on the opposite.
+- [26:27.250] They're always lower, we're higher or so
+- [26:30.920] if somehow there's a screw-up,
+- [26:33.880] there's not going to be a tragedy.
+- [26:35.110] It'll be close, but there's never going to be a tragedy
+- [26:37.830] if you're at a different elevation.
+- [26:39.640] For whatever reason, they were at the same elevation.
+- [26:42.710] And also from the American Airlines standard,
+- [26:45.680] he's along the track that every plane is along.
+- [26:49.830] You say, what was the helicopter doing in that track?
+- [26:53.410] It's very sad, but visually,
+- [26:55.760] somebody should have been able to see
+- [26:57.370] and taken that helicopter out of play
+- [27:00.350] and they should have been at a different height.
+- [27:03.780] The Press: Thank you, sir.
+- [27:05.010] You mentioned the Russians that were on board that plane.
+- [27:08.210] What other nationalities were on board that passenger jet?
+- [27:10.270] The President: There were a couple of others.
+- [27:11.470] We're going to be announcing it in about an hour.
+- [27:13.230] We have some very specific information.
+- [27:17.020] We're calling the countries. We've spoken to most of them,
+- [27:19.330] but there were some other countries represented.
+- [27:21.530] The Press: Mr. President.
+- [27:22.770] The Press: Have you spoken to President Putin?
+- [27:24.180] The President: I have not. No.
+- [27:25.550] The Press: Mr. President.
+- [27:26.880] The President: Not about this.
+- [27:28.080] The Press: Mr President, question if I may?
+- [27:29.290] On your executive order, you've already issued
+- [27:30.760] an executive order you say will restore aviation safety.
+- [27:32.860] The President: Right.
+- [27:34.080] The Press: This crash happened after that.
+- [27:36.090] Was the executive order successful
+- [27:37.600] and what more do you need to change to keep people safe?
+- [27:39.860] The President: Well, we issued it three days ago
+- [27:42.210] and we were in the process of making those changes.
+- [27:45.720] This is something that should have been done a long time ago.
+- [27:50.000] Actually, my original order should have never been changed
+- [27:52.950] and I think maybe you wouldn't have had this problem.
+- [27:54.970] Maybe. The Press: Mr. President.
+- [27:56.570] The President: Please go ahead.
+- [27:57.780] The Press: Yes, thank you.
+- [27:58.990] We see everyday life that's very often those diversity hires
+- [28:03.480] cause sometimes issues as you just mentioned.
+- [28:06.980] So what plan do you have? Are we going to see some fire?
+- [28:10.640] Are you going to fire some of those diversity
+- [28:12.870] hire in the federal government? What plan do you have?
+- [28:16.000] The President: I would say the answer is yes.
+- [28:17.240] If we find that people aren't mentally competent.
+- [28:21.070] You see the language.
+- [28:22.290] The language is put out by them, and if you see that,
+- [28:27.060] I'm not going to bore you by reading it again,
+- [28:29.130] but these are not people
+- [28:30.620] that should be doing this particular job.
+- [28:32.880] They'd be very good for certain jobs,
+- [28:34.440] but not people that should be doing this particular job.
+- [28:37.200] The Press: Mr. President.
+- [28:39.150] The Press: Mr. President, you have today
+- [28:42.120] blamed the diversity elements,
+- [28:43.750] but then told us that you weren't sure
+- [28:47.010] that the controllers made any mistake.
+- [28:49.460] You then said perhaps the helicopter pilots
+- [28:52.660] were the ones who made the mistake.
+- [28:54.780] The President: Yeah. It's all under investigation.
+- [28:56.330] The Press: I understand that.
+- [28:57.550] That's why I'm trying to figure out
+- [28:59.350] how you can come to the conclusion right now
+- [29:01.360] that diversity had something to do with this crash.
+- [29:04.100] The President: Because I have common sense
+- [29:06.830] and unfortunately a lot of people don't.
+- [29:10.650] We want brilliant people doing this.
+- [29:12.280] This is a major chess game at the highest level.
+- [29:15.770] When you have 60 planes coming in during a short period of time
+- [29:20.130] and they're all coming in different directions
+- [29:22.320] and you're dealing with very high-level computer work
+- [29:27.040] and very complex computers.
+- [29:29.180] And one of the other things I will tell you
+- [29:30.830] is that the systems that were built,
+- [29:33.730] I was going to rebuild the entire system
+- [29:36.470] and then we had an election
+- [29:37.700] that didn't turn out the way it should have,
+- [29:40.060] but they didn't build the systems properly.
+- [29:42.680] They spent a lot of money renovating a system,
+- [29:45.160] spending much more money than they would've spent
+- [29:47.580] if they bought a new system for air traffic controllers,
+- [29:50.050] meaning the computerized systems.
+- [29:52.800] There are certain companies that do a very good job.
+- [29:55.340] They didn't use those companies.
+- [29:56.590] They used companies that should not have been doing it.
+- [30:00.730] I think it's very important to understand that for some jobs,
+- [30:04.030] and not only this but air traffic controllers,
+- [30:06.870] they have to be at the highest level of genius.
+- [30:10.820] The Press: Mr. President.
+- [30:12.800] The Press: I want to ask you about the ice skaters
+- [30:14.200] in a moment
+- [30:15.430] because the U.S. Ice Skating committee was affected,
+- [30:17.090] but first, if I can, the cited FAA tax that you read is real,
+- [30:20.750] but the implications that this policy is new
+- [30:22.760] or that it stems from efforts that began under President Biden
+- [30:25.520] nor the transportation secretary Pete Buttigieg
+- [30:28.120] is demonstrably false. It's been on the FAA's website-
+- [30:30.010] The President: Who said that, you?
+- [30:31.220] The Press: No, it's on the website, the FAA's website.
+- [30:33.030] It was there in 2013. It was there for the entirety-
+- [30:35.000] The President: Take a look. What I read-
+- [30:36.230] The Press: It was there for the entirety
+- [30:37.440] of your administration too. The President: Nice and easy.
+- [30:38.640] The Press: So my question is why didn't you change the policy
+- [30:40.550] during your first administration?
+- [30:41.840] The President: I did change it.
+- [30:43.060] I changed the Obama policy and we had a very good policy
+- [30:46.390] and then Biden came in and he changed it
+- [30:48.850] and then when I came in two days,
+- [30:50.890] three days ago, I signed a new order
+- [30:52.850] bringing it to the highest level of intelligence. Okay.
+- [30:55.260] The Press: It was on the website.
+- [30:56.550] The Press: Mr. President. The President: Please.
+- [30:57.750] The Press: Respectfully, it was on the website.
+- [30:59.020] The President: Quiet. Quiet.
+- [31:00.440] The Press: Welcome back to the, I'm sorry.
+- [31:02.390] The Press: You mentioned that a vision
+- [31:03.960] was probably the problem that was an issue in this crash.
+- [31:08.190] There's been some reports that one of the pilots
+- [31:10.310] in the helicopter may be using night vision equipment.
+- [31:12.340] Was there any-
+- [31:13.580] The President: I heard that. We don't know.
+- [31:14.940] We're going to know that pretty soon.
+- [31:17.160] It may change your view plan if you do have the night vision,
+- [31:20.720] so it's very possible that could have happened.
+- [31:24.470] That would be maybe a reason
+- [31:25.890] why you wouldn't actually see as well as on a clear night,
+- [31:29.460] you can see sometimes better without it.
+- [31:31.390] The Press: Mr. President.
+- [31:32.960] The President: Have a couple of more.
+- [31:34.950] The Press: Mr. President, is it helpful
+- [31:36.440] to have your Secretary of Transportation confirmed
+- [31:38.690] and does this intensify your interest
+- [31:40.450] in getting other nominees confirmed quickly?
+- [31:42.580] The President: What?
+- [31:43.870] The Press: Is it helpful to have your Secretary
+- [31:45.200] of transportation confirmed
+- [31:46.950] and does this intensify your interest
+- [31:48.580] in getting other nominees confirmed quickly as well?
+- [31:50.570] The President: Well, sure. We want fast confirmations
+- [31:52.780] and the Democrats, as you know,
+- [31:54.900] are doing everything they can to delay them.
+- [31:56.910] They've taken too long.
+- [32:00.010] We're struggling to get very good people
+- [32:02.370] that everybody knows they're going to be confirmed,
+- [32:04.840] but we're struggling to get them out faster.
+- [32:07.940] We want them out faster. It's a good question actually.
+- [32:12.120] We've been pushing Sean,
+- [32:13.380] everyone knows Sean for a long time.
+- [32:15.920] He got many, many Democrat votes,
+- [32:17.490] but they want to take as long as they can.
+- [32:19.860] They ask questions like some of the questions
+- [32:22.130] that Peter would ask,
+- [32:24.070] that were totally irrelevant and not very good questions,
+- [32:26.950] but they want to just keep it going.
+- [32:28.430] They want to keep it going as long as possible.
+- [32:30.440] I was very honored actually that you got so many Democrat votes.
+- [32:34.260] That was really good. That was really good.
+- [32:39.070] The Press: Mr. President.
+- [32:40.800] The Press: When are you planning to meet with the families?
+- [32:43.750] And second question.
+- [32:45.040] Is it your impression that little training
+- [32:47.700] that was done during that time?
+- [32:48.900] The President: That what?
+- [32:50.120] The Press: The training that the helicopter was involved in,
+- [32:53.100] is it anything you can tell us about that?
+- [32:54.560] The President: You don't know. These are the things
+- [32:55.880] that will come up with the investigation.
+- [32:57.700] You don't know, but the helicopter obviously
+- [32:59.880] was in the wrong place at the wrong time
+- [33:02.900] and a tragedy occurred. Please.
+- [33:05.160] The Press: Mr. President.
+- [33:06.400] The Press: I've got a question about-
+- [33:07.610] The President: No, go ahead, please.
+- [33:08.870] The Press: Thank you, Mr. President.
+- [33:10.400] You've been critical of the current regulations
+- [33:13.820] and you've called for big reforms at FAA.
+- [33:17.320] I'm curious, sir-
+- [33:18.550] The President: Well, I made the reforms actually.
+- [33:19.880] The Press: What is your message-
+- [33:21.110] The President: Three days ago I made the reforms.
+- [33:22.380] The Press: Yes, sir. What is your message
+- [33:23.600] then to the American public in the weeks and months ahead?
+- [33:25.510] Should they feel hesitant to fly?
+- [33:28.890] And if you could clarify perhaps something
+- [33:31.470] that the defense secretary said
+- [33:32.930] when he said that this helicopter
+- [33:34.510] went on a continuity of government mission?
+- [33:38.090] The President: I don't know what that refers to,
+- [33:40.870] but they were practicing. They do that.
+- [33:44.300] They call it practicing
+- [33:47.010] and that's something that should be done.
+- [33:50.210] It's only continuity in the sense
+- [33:51.790] that we want to have very good people
+- [33:53.350] and that has to be in continuity and that's what they refer to,
+- [33:57.970] but it was basically practice
+- [34:00.000] and it was a practice that worked out very, very badly.
+- [34:05.700] The Press: Mr. President. Mr. President.
+- [34:08.730] The Press: On his question. The first question,
+- [34:11.120] should people be hesitant to fly right now?
+- [34:13.310] The President: No, not at all. I've not hesitate to fly.
+- [34:16.590] This is something that it's been many years
+- [34:19.400] that something like this has happened
+- [34:21.700] and the collision is just something
+- [34:25.560] that we don't expect ever to happen again.
+- [34:28.070] We are going to have the highest level people,
+- [34:31.260] we've already hired some of the people
+- [34:33.360] that you've already hired for that position.
+- [34:35.350] Long before we knew about this, long before,
+- [34:37.930] from the time I came in,
+- [34:39.270] we started going out and getting the best people
+- [34:41.830] because I said it's not appropriate what they're doing.
+- [34:45.430] I think it's a tremendous mistake.
+- [34:48.150] They like to do things and they like to take them too far,
+- [34:50.510] and this is sometimes what ends up happening.
+- [34:52.440] Now with that, I'm not blaming the controller.
+- [34:56.550] I'm saying there are things that you could question
+- [34:58.840] like the height of the helicopter
+- [35:00.520] and the height of the plane being at the same level
+- [35:02.360] and going in opposite directions.
+- [35:03.810] It's not a positive, but no, we are already hiring people.
+- [35:07.960] No, flying is very safe.
+- [35:09.640] We have the safest flying anywhere in the world
+- [35:11.650] and we'll keep it that way.
+- [35:12.950] Thank you all very much. Thank you very much.
+- [35:17.000] The Press: Mr. President.
+- [35:23.420] Mr. President.

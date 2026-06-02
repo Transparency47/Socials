@@ -1,0 +1,469 @@
+<!-- source: https://www.youtube.com/watch?v=JNPXvF2DFz4 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: JNPXvF2DFz4 -->
+<!-- date_published: 2025-10-20T04:20:23+00:00 -->
+<!-- date_accessed: 2026-06-02T01:12:46.633948+00:00 -->
+
+# Transcript: President Trump Gaggles with Press on Air Force One, Oct. 19, 2025
+
+- [00:00.050] The President: Okay, we had a good weekend.
+- [00:03.270] We accomplished a lot. Really, a very lot.
+- [00:07.260] You probably just saw the piece on Steve and Jared.
+- [00:10.770] Very good. 60 Minutes. Any questions?
+- [00:13.710] You want to give me a little room here (inaudible).
+- [00:16.360] The Press: Just following up on the 60 Minutes story.
+- [00:20.070] What's your reactions to Israel's strikes on Gaza?
+- [00:22.370] The President: We're going to have to see what's happening.
+- [00:25.980] We want to make sure
+- [00:27.240] that it's going to be very peaceful with Hamas.
+- [00:29.710] As you know, they've been quite rambunctious.
+- [00:33.400] They've been doing some shooting
+- [00:35.750] and we think maybe the leadership isn't involved,
+- [00:38.430] maybe some rebels within.
+- [00:42.000] Either way, it's going to be handled properly.
+- [00:45.160] Going to handled toughly but properly.
+- [00:47.330] The Press: Is the ceasefire still in place?
+- [00:48.660] The President: Yeah, it is.
+- [00:50.880] The Press: Mr. President, on Colombia, Senator Graham --.
+- [00:53.800] The President: The country of Columbia.
+- [00:55.150] The Press: The country of Columbia.
+- [00:56.420] Senator Graham (inaudible)
+- [00:57.630] that you'd be including tariffs on the country
+- [01:00.400] either today or tomorrow. Can you give any details
+- [01:04.240] as to how much those tariffs might be or what we can expect?
+- [01:07.280] The President: I read his statement
+- [01:08.490] and (inaudible).
+- [01:09.720] I was with him today, we were working today,
+- [01:11.410] and I read his statement and it's correct, yes.
+- [01:13.760] The Press: But how much (inaudible)?
+- [01:16.390] The President: I'll let you know tomorrow.
+- [01:17.640] The Press: Tomorrow it will be announced?
+- [01:18.920] The President: Yeah.
+- [01:20.190] The Press: Jay Jones has repeatedly said that (inaudible)
+- [01:22.340] in Virginia that he --
+- [01:23.610] The President: Who said what?
+- [01:24.870] The Press: Jay Jones in Virginia.
+- [01:26.230] The President: Jay Jones. You mean the one that wanted
+- [01:27.700] to kill somebody's children and kill somebody?
+- [01:30.420] You mean, the animal that wanted to kill somebody
+- [01:33.550] who should not be allowed to be running for that office?
+- [01:35.740] The Press: Yeah, he said he can't wait to see you in court.
+- [01:37.230] I'm wondering if you have a response
+- [01:39.150] and if you're considering getting involved in that race.
+- [01:41.500] The President: What does he say?
+- [01:42.730] The Press: He said in the debate on Thursday night
+- [01:45.240] that he can't wait to sue your administration
+- [01:47.230] and see you in court.
+- [01:48.440] The President: No, he's a third-rate intellect.
+- [01:51.690] He's a guy -- I've never seen anyone say what he said.
+- [01:56.410] That he wanted to kill his opponent's children.
+- [01:58.300] He wanted to kill his opponent.
+- [02:00.810] No, I can't imagine anybody voting for Jay Jones.
+- [02:03.650] Look, you would think he's totally discredited.
+- [02:07.540] I would think he wouldn't even be allowed to do that.
+- [02:09.360] Anybody would be put in prison for what he said.
+- [02:12.520] So he can join the long list of attorney generals
+- [02:16.300] that have been suing and losing.
+- [02:18.170] But the people of this country want law,
+- [02:19.970] they want order. They want safety.
+- [02:21.580] They don't want to be mugged or raped or shot.
+- [02:25.660] And that's what we provide. We have tremendous numbers also.
+- [02:29.910] You see the crime numbers are coming way down.
+- [02:32.520] Then you take a look a look at a place like Washington, D.C.
+- [02:35.150] which is now one of the safest cities in the country.
+- [02:37.930] It was one of the worst cities, most dangerous cities.
+- [02:40.930] We moved out 1,700 career criminals
+- [02:44.580] and people that came here through Biden
+- [02:46.600] and his open border policy.
+- [02:49.390] And Washington, D.C. is now one of the saftest cites
+- [02:52.600] and Memphis is doing fantastically also.
+- [02:55.180] We went in there a week ago – and this is a bumpy flight.
+- [02:59.190] I better say that otherwise they'll say
+- [03:00.530] what's wrong with the President. It's a bumpy flight.
+- [03:03.680] But Memphis is doing really well.
+- [03:05.870] I think that Chicago will do very well.
+- [03:08.300] We're going to go into San Francisco at some point
+- [03:10.370] in the not-too-distant future, make that a great city again.
+- [03:14.070] It can only be a great city if it doesn't have crime.
+- [03:17.150] If it has crime it can't be a great city.
+- [03:18.820] The Press: A question on Columbia,
+- [03:20.210] are you concerned that if aid is cut to Colombia,
+- [03:23.380] it would undermine Colombia's fight against drugs.
+- [03:25.230] A lot of USAID (inaudible).
+- [03:26.430] The President: They don't have a fight against drugs.
+- [03:28.210] The make drugs. They refine drugs.
+- [03:31.050] They make cocaine, they have cocaine factories.
+- [03:33.960] They have no fight against drugs.
+- [03:35.240] And I'm stopping all payments to Columbia
+- [03:38.010] because they don't have anything to do
+- [03:39.310] with their fight against drugs.
+- [03:41.490] In fact, even when they had better presidents
+- [03:43.760] than they have right now, they were --
+- [03:46.680] that's how they're making a lot of money, drugs.
+- [03:49.050] I used to complain about it when they had a very nice president.
+- [03:52.200] But he wasn’t doing it. It was a talk.
+- [03:56.140] They are a drug manufacturing machine, Columbia.
+- [04:00.290] And we're not going to be part of it.
+- [04:01.640] So we're going to drop all money that we're giving to them.
+- [04:05.020] It has nothing to do with them stopping drug production.
+- [04:08.950] And you look at the fields.
+- [04:10.230] The fields are loaded up with drugs,
+- [04:12.620] and they refine the drugs,
+- [04:13.840] and they make tremendous amounts of cocaine
+- [04:16.610] and they send it all over the world
+- [04:18.180] and they destroy families. No, Columbia is out of control
+- [04:21.210] and now they have the worst president they've ever had.
+- [04:23.790] He's a lunatic who's got a lot of problems, mental problems.
+- [04:26.670] The Press: One more question from Colombia.
+- [04:28.260] The Colombian president says that U.S. killed
+- [04:30.550] an innocent Colombian fisherman in one of the strikes.
+- [04:33.290] The President: He said that when we shot down a submarine
+- [04:36.130] that they were just fishing.
+- [04:37.560] This is a submarine, this was a submarine that was meant,
+- [04:40.370] by the way this was the submarine
+- [04:42.060] that was meant for one reason and made for one reason,
+- [04:44.950] to carry massive amounts of drugs.
+- [04:46.450] The Press: He agrees with that,
+- [04:47.740] but that's not the right strike that he's talking about,
+- [04:49.350] he's not talking about a previous strike.
+- [04:50.860] The Press: Mr. President, on the shutdown,
+- [04:52.130] do you want to see the premium tax credits
+- [04:54.360] extended if the Democrats vote to reopen the government?
+- [04:56.910] The President: Let me just tell you
+- [04:58.130] that there will be no money
+- [05:00.140] given toward their crazy escalation
+- [05:03.270] of giving money to illegal aliens
+- [05:05.270] that came into the country totally illegally.
+- [05:08.880] I mean, they came in illegally.
+- [05:10.550] They want to spend 1.5 trillion, with a T, trillion dollars,
+- [05:15.260] giving it to people that came in to the country illegally.
+- [05:17.430] They shouldn't have come in.
+- [05:18.720] In fact, one of the reasons they came was to get this money.
+- [05:21.990] And California is a big culprit.
+- [05:23.670] I mean, California, they're out of control.
+- [05:25.710] And we're not going to pay California
+- [05:27.290] all of that money that they're giving away illegally.
+- [05:29.790] That's another thing. Between California and Colombia,
+- [05:32.990] there's not that much difference.
+- [05:34.400] We're not going to be making those payments.
+- [05:36.000] The Press: Just a follow up to that, sorry,
+- [05:37.450] a July survey by –
+- [05:38.700] The President: Who you with, please?
+- [05:39.940] The Press: The Washington Post.
+- [05:41.370] A July survey by your pollster Tony Fabrizio
+- [05:46.270] found that 72 percent of voters across political parties
+- [05:50.970] like the ACA tax credits.
+- [05:52.770] Are worried that you might get blamed
+- [05:54.120] if you don't help get those through?
+- [05:55.810] The President: Well, we want to have great healthcare,
+- [05:57.470] so we'll do whatever we can do to have great healthcare.
+- [06:00.290] But the Democrats want to destroy all healthcare
+- [06:02.990] because they want to give 1.5 trillion dollars of this money
+- [06:07.090] and they want additional money to go to people
+- [06:09.310] that came into our country illegally.
+- [06:10.880] Many of them are from prisons and mental institutions
+- [06:13.600] and we're not going to destroy our healthcare
+- [06:15.990] for the Democrats.
+- [06:17.220] The Press: Mr. President, there were reports,
+- [06:18.770] and you even mentioned that there was a phone call
+- [06:22.440] with Prime Minister Modi and that Modi had said
+- [06:26.330] his country would stop purchases of Russian oil,
+- [06:30.610] but India said that they were not aware, so --
+- [06:33.390] The President: Well, then they're going to just keep
+- [06:34.890] paying a lot of tariffs if they said that,
+- [06:36.920] but I don't believe they said that.
+- [06:38.400] No, I spoke with Prime Minister Modi of India,
+- [06:41.510] and he said he's not going to be doing the Russian oil thing.
+- [06:45.070] The Press: But why would they say,
+- [06:46.370] why would India say that they're not going to?
+- [06:48.360] The President: I don't know, but if they want to say that,
+- [06:50.040] then they'll just continue to make massive tariffs.
+- [06:53.190] And they don't want to do that.
+- [06:54.430] The Press: Following up on Friday
+- [06:56.050] you said you had a cordial meeting with President Zelensky.
+- [07:00.850] During that meeting, did you tell him
+- [07:02.440] he needed to cede all of the Donbass region to Russia?
+- [07:06.320] The President: No, we never discussed it.
+- [07:07.730] We think that what they should do
+- [07:09.620] is just stop at the lines where they are on the battle lines.
+- [07:12.340] You have a battle line right now.
+- [07:13.790] The rest is very tough to negotiate.
+- [07:15.940] If you're going to say you take this, we take that.
+- [07:17.640] You know, there's so many different permutations.
+- [07:20.110] So what I say is they should stop right now
+- [07:22.130] at the battle line.
+- [07:23.510] Go home, stop killing people, and be done.
+- [07:25.790] The Press: What do you think should happen
+- [07:27.170] with the Donbass region?
+- [07:28.870] The President: Let it be cut the way it is.
+- [07:30.400] It's cut up right now, I think 78 percent of the land
+- [07:33.940] is already taken by Russia.
+- [07:37.130] You leave it the way it is right now.
+- [07:38.820] They can they can negotiate something later
+- [07:41.280] on down the line,
+- [07:42.540] but I said cut and stop in the battle and go home.
+- [07:45.310] Stop fighting, stop killing people.
+- [07:47.360] The Press: What do you think of Mamdani's photo
+- [07:49.190] with the '93 World Trade Center
+- [07:52.510] (inaudible)?
+- [07:53.710] The President: Yeah, no, it's a shame.
+- [07:55.570] Look, the Mamdani thing is a --
+- [07:59.100] it's a disaster waiting to happen.
+- [08:00.880] We can't have a communist in charge of a great,
+- [08:04.100] supposedly free enterprise, kind of a representative city.
+- [08:08.350] So I think it's -- if you have a Communist mayor,
+- [08:11.680] I think that's going to be very tough,
+- [08:13.240] for him and for the city.
+- [08:14.470] The Press: Do you think he should have posted
+- [08:16.250] something like this so close to the election?
+- [08:17.950] The President: Oh, I think it's a shame
+- [08:19.190] that that particular man
+- [08:20.780] is endorsing him and very friendly with him.
+- [08:23.040] You can see it as a relationship.
+- [08:25.330] He blew up the World Trade Center, right?
+- [08:27.170] Didn't the man you're talking about blow up
+- [08:29.580] the World Trade Center? And he's friends with Mamdani?
+- [08:32.600] The Press: Mr. President, speaking with New York City,
+- [08:34.200] you've talked about the Hudson River Tunnel,
+- [08:36.230] the construction project,
+- [08:37.720] so you stand that the funding has been terminated,
+- [08:40.720] but, you know, folks in New York have said
+- [08:42.710] that it's not terminated so where does that stand?
+- [08:44.780] The President: Well as of now it's terminated.
+- [08:46.510] And that's up to me. And as of now, it's terminated.
+- [08:49.270] And it's terminated because the Democrats are so foolish
+- [08:53.120] what they've done to the country.
+- [08:54.320] I mean, we have the hottest country in the world.
+- [08:56.190] There's no country even close. And they just want to do this.
+- [08:59.260] You know, there's nothing for them to do.
+- [09:00.910] All they have to do is just say let everything continue.
+- [09:04.300] And I will say a lot of Democrats want this to get over.
+- [09:06.980] The Press: So the administration right now is not to
+- [09:09.270] (inaudible) funding.
+- [09:10.520] The President: Right now there is no funding,
+- [09:12.030] because it's up to me.
+- [09:13.270] The Press: What is your response to the protest?
+- [09:14.520] The President: Who are you with?
+- [09:15.730] The Press: I'm with the AP.
+- [09:16.940] The President: With AP?
+- [09:18.180] The Press: What's your response to the weekend over the weekend
+- [09:20.160] (inaudible)?
+- [09:21.380] The President: I think it's a joke.
+- [09:22.660] I looked at the people.
+- [09:23.860] They're not representative of this country.
+- [09:26.240] And I looked at all the brand new signs.
+- [09:28.020] I guess it was paid for by Soros and other radical left lunatics.
+- [09:33.130] It looks like it was. I'm checking it out.
+- [09:36.120] The demonstrations were very small, very ineffective.
+- [09:39.660] And the people who were whacked out,
+- [09:41.070] when you look at those people,
+- [09:42.290] those are not representative of the people of our country.
+- [09:46.930] And by the way, I'm not a king. I'm not a king,
+- [09:49.730] I work my ass off to make our country great,
+- [09:51.920] that's all it is. I'm not a king at all.
+- [09:55.020] The Press: Besides San Francisco,
+- [09:56.220] are there other cities you're actively looking at
+- [09:58.150] for the National Guard right now?
+- [09:59.750] The President: Yeah, what about it?
+- [10:01.150] The Press: I'm just wondering if you care to care
+- [10:02.610] to comment on that.
+- [10:04.250] The President: Well, we've used the National Guard
+- [10:05.780] to be very successful in Memphis.
+- [10:07.520] You can see the numbers there falling like rocks.
+- [10:11.020] Washington, D.C., Chicago is getting better,
+- [10:13.830] even though we're going through a lot.
+- [10:16.450] You know, we're trying to do it in a very nice way.
+- [10:19.200] I'm allowed, as you know, as President,
+- [10:21.680] like 50 percent of the Presidents
+- [10:23.590] have used the Insurrection Act. You can use that.
+- [10:26.790] Everybody agrees you're allowed to use that,
+- [10:28.480] and there's no more court cases, there's not more anything.
+- [10:31.490] We're trying to do it in a nicer manner.
+- [10:34.190] But we can always use the Insurrection Act if we want.
+- [10:37.670] You take a look, in the past, someone, in particular,
+- [10:41.740] President used it 28 times
+- [10:43.620] during the course of a presidency.
+- [10:45.660] So we're allowed to do that.
+- [10:46.900] We thought we could do it in a very nice way.
+- [10:49.110] All we want to do is have safe cities.
+- [10:50.810] We're not looking for anything that would be spectacular
+- [10:54.030] other than crime-free. It becomes spectacular.
+- [10:56.970] We want to have great crime- free cities.
+- [11:00.510] So I'd be allowed to use them. I wanted the Insurrection Act.
+- [11:03.360] And then all of this nonsense would go away.
+- [11:04.900] You have the absolute right.
+- [11:06.190] It's the strongest power a president has.
+- [11:08.750] And you have the absolutely right to do it.
+- [11:10.750] We wanted to go this route,
+- [11:12.130] but we get sued every time you look at somebody.
+- [11:15.660] You look at someone the wrong way,
+- [11:16.980] and you end up getting sued. We just want no crime.
+- [11:19.730] We want to have crime-free cities.
+- [11:21.340] That's not a big --
+- [11:22.800] I mean, it's pretty common sense, I think.
+- [11:24.820] But that's all I want is crime- free cities.
+- [11:28.030] I campaigned on it.
+- [11:30.090] It's become, I think, even more successful than we thought
+- [11:33.250] because of the tremendous success
+- [11:34.740] that we had, literally, in 12 days in Washington, D.C.,
+- [11:38.670] and it continues.
+- [11:40.300] Washington, D.C., we're so proud of it.
+- [11:42.130] People are eating in their restaurants.
+- [11:43.600] Restaurants are opening.
+- [11:45.220] All the stores and restaurants were closing.
+- [11:46.970] You couldn't walk down the street
+- [11:48.330] without being mugged, or worse. And now it's a safe city.
+- [11:51.460] I mean, it's considered a very safe city.
+- [11:53.240] And it's safe because we took 1,700 people out of there
+- [11:57.160] and brought them back to where they came from, yeah.
+- [11:59.110] The Press: You said you're going to South Korea,
+- [12:00.410] and that's to meet with China.
+- [12:01.610] The President: I am, that's right.
+- [12:02.820] The Press: Can you tell us more about your goals
+- [12:04.150] for your trip to Asia, where else you may be going?
+- [12:06.030] The President: We have a
+- [12:07.230] – I have very good relationship with President Xi of China.
+- [12:10.540] We're having disputes and things.
+- [12:12.230] They're paying us a lot of money,
+- [12:13.470] a tremendous amount of money in tariffs.
+- [12:15.800] And they'd probably like to have it be less,
+- [12:17.750] and we'll work on that.
+- [12:19.360] But they have to give us some things, too.
+- [12:21.630] Right now China's paying a tremendous amount of money
+- [12:24.670] in tariffs, like they've never paid before.
+- [12:26.780] You know, they paid a lot during my first administration,
+- [12:29.730] my first term.
+- [12:31.430] Now they're paying an unbelievable amount of money
+- [12:33.450] to the United States.
+- [12:34.650] They probably can't pay that much.
+- [12:37.380] And I'm okay with that. We can lower that.
+- [12:39.020] But they have to do things for us too.
+- [12:40.670] It's no longer a one-way street.
+- [12:42.120] The Press: What would you lower it to?
+- [12:43.370] The President: It depends.
+- [12:44.780] We're about to see what they want.
+- [12:46.680] One of the penalties we have,
+- [12:47.890] and because they're sending in fentanyl we have a 20 percent --
+- [12:51.310] as you know, a 20 percent tariff on that,
+- [12:53.830] but they'd be paying about a 157 percent tariff,
+- [12:56.900] which is record setting type tariff.
+- [13:00.250] I don't want them to do that. I want to help China.
+- [13:02.470] I don’t want to hurt China.
+- [13:04.480] But they have to give us things too.
+- [13:06.210] The Press: Sticking with China, Mr. President,
+- [13:07.460] on soybeans, are you confident that you'll --
+- [13:09.200] The President: I want them to buy soybeans.
+- [13:10.730] One of the things I want is China is going to buy soy beans.
+- [13:13.660] I want China to stop with the fentanyl.
+- [13:16.220] Very, you know, normal things.
+- [13:18.460] I don't want them play the rare earth game with us.
+- [13:20.430] The Press: You want them to,
+- [13:21.760] but do you think they will make a deal on soybeans?
+- [13:23.480] The President: I do believe, yeah,
+- [13:24.680] because otherwise I'm not going to make a deal.
+- [13:26.300] No, I want them to buy.
+- [13:27.790] Our farmers have been boycotted by China as a negotiating point.
+- [13:31.920] I don't want that. Our farmers are great,
+- [13:34.140] and in particular, our soybean farmers.
+- [13:36.450] And I want to start buying soybeans at least
+- [13:40.050] in the amount that they were buying before.
+- [13:42.430] And I believe they'll be able to do that.
+- [13:44.100] The Press: But, sticking with soybeans and Argentina,
+- [13:46.640] you're, you know, you are looking to that deal
+- [13:49.230] with Argentina (inaudible).
+- [13:50.860] The President: With respect to beef?
+- [13:53.010] The Press: Are we accepting a beef deal?
+- [13:55.000] The President: I assume you're talking about beef, yeah,
+- [13:56.830] to get beef prices down.
+- [13:58.090] The only price we have that's high is beef,
+- [13:59.970] and we'll get that down.
+- [14:01.170] No, one of the things we're thinking about doing
+- [14:02.930] is beef from Argentina.
+- [14:05.350] The Press: My question is what do you have to say
+- [14:06.780] to U.S. farmers who feel that the deal
+- [14:09.580] is benefiting Argentina more than it is them
+- [14:12.090] as they are a top-ranking country?
+- [14:13.520] The President: Argentina is fighting
+- [14:14.720] for its life, young lady,
+- [14:16.210] you don't know anything about it.
+- [14:17.780] They're fighting for their life, nothing is benefiting Argentina.
+- [14:20.530] They're fighting for their life.
+- [14:22.140] Do you understand what that means?
+- [14:23.790] They have no money, they have no anything,
+- [14:25.600] they're fighting so hard to survive.
+- [14:27.760] If I can help them survive in a free world,
+- [14:30.420] I happen to like the president of Argentina.
+- [14:33.180] I think he's trying to do the best he can,
+- [14:35.570] but don't make it sound like they're doing great.
+- [14:37.210] They are dying, all right? They're dying.
+- [14:40.180] The Press: What do you mean by beef tail, sir?
+- [14:42.350] The President: We would buy some beef from Argentina.
+- [14:45.160] If we do that, that will bring our beef prices down.
+- [14:47.500] Because our groceries are down, our energy prices are down.
+- [14:50.550] I think we're going to have $2 gasoline pretty soon.
+- [14:52.720] We're getting close. And everything's down.
+- [14:55.600] The one thing that's kept up is beef.
+- [14:57.260] And if we buy some beef,
+- [14:58.690] I'm not talking about that much from Argentina,
+- [15:01.010] it would help Argentina,
+- [15:02.320] which we consider a very good country,
+- [15:04.880] a very good ally.
+- [15:07.450] Way so low, I must tell you, if you take a look now,
+- [15:09.720] South America's turning, the South American countries
+- [15:12.800] are starting to turn very much toward us.
+- [15:15.670] They're getting away from socialism,
+- [15:17.350] and you can go right down the pack.
+- [15:19.550] But they are, they are starting to turn, it's pretty amazing.
+- [15:22.380] The Press: Let me ask you about Israel again.
+- [15:24.850] Do you feel that Israel was justified
+- [15:26.510] with striking when it did?
+- [15:28.050] The President: Striking where?
+- [15:29.290] The Press: In Gaza, today and overnight.
+- [15:31.380] The President: I'd have to get back to you on that.
+- [15:32.760] I'd have to get back.
+- [15:33.970] The Press: What is the next step?
+- [15:35.180] The President: Because we're going to be determined.
+- [15:36.460] You know, all of that is under consideration right now.
+- [15:38.430] It's under review.
+- [15:39.720] The Press: Mr. President, on Harvard –
+- [15:40.940] The President: Who you with?
+- [15:42.180] The Press: I'm with the Washington Post.
+- [15:43.410] The President: That's what I thought.
+- [15:44.930] The Press: On Harvard, you said the other week
+- [15:46.440] that you had reached a deal,
+- [15:47.730] but we haven't heard anything. What's the hold up?
+- [15:49.650] The President: Well, we reached a concept of a deal,
+- [15:51.070] but it's pretty complicated because under this deal,
+- [15:53.300] it would be $500 million that could open up trade schools.
+- [15:56.130] And I love the idea of trade, and trade schools like Harvard,
+- [15:58.890] so, you know, they get into like a vocational-type school.
+- [16:02.700] And the one problem with it, it's very complicated.
+- [16:06.320] You know, when do they start?
+- [16:07.640] How do they start? Who do they use?
+- [16:09.530] You know there's a thousand different things,
+- [16:12.010] and we may just charge them a fine, big fine, $500,000,000.
+- [16:17.140] And they won't do it again,
+- [16:18.390] and if they do we'll have to just charge them another fine.
+- [16:20.640] The Press: You haven't weighed in
+- [16:21.860] on the Virginia gubernatorial race
+- [16:23.570] that's in a few weeks. Do you plan to endorse
+- [16:25.290] (inaudible) governor? W
+- [16:26.540] The President: Well, I think the Republican candidate
+- [16:28.320] is very good and I think she should win
+- [16:30.820] because the Democrat candidates in disaster.
+- [16:33.780] So I haven't been too much involved in Virginia.
+- [16:36.250] I love the state. I did very well in the state,
+- [16:38.770] but I will tell you I think
+- [16:39.990] a Republican candidate is excellent,
+- [16:41.940] and I think he Democrat candidate is a disaster.
+- [16:45.940] I mean, I watched her in the debate,
+- [16:47.300] she couldn't answer the most basic question.
+- [16:50.270] And you know a big thing with that race
+- [16:52.210] and also the race in New Jersey is going to be energy.
+- [16:55.050] Both of the Democrats are going to drive the energy prices
+- [16:58.870] through the roof, through the roof.
+- [17:01.530] Your energy is going to double and triple.
+- [17:04.320] If the Republican gets elected,
+- [17:06.100] your energy is going to be coming down by 70, 80 percent.
+- [17:09.440] Thank you very much, everybody. Vote Republican.

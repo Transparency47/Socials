@@ -1,0 +1,40 @@
+# YouTube / WhiteHouse / 2026-03-27
+
+- Posts: 12
+
+- [22:55 UTC - President Trump Delivers Remarks at the Future Investment Initiative](19b7cuFkXPE/)
+  - Source: https://www.youtube.com/watch?v=19b7cuFkXPE
+  - [00:04.930] Richard Attias: It's my great honor, - [00:06.740] on behalf of the FII Institute, - [00:09.250] to welcome back a leader who continues to shape - [00:13.490] the glo...
+- [22:38 UTC - President Trump Gaggles with Press Upon Arrival in Miami, FL, Mar. 27, 2026](y3_DaufqcdM/)
+  - Source: https://www.youtube.com/watch?v=y3_DaufqcdM
+  - [00:04.440] I feel so badly. He's uh - [00:07.160] He's got - [00:08.600] some difficulty. There was an accident, - [00:10.640] and that's all I know. - [00:12.480] Very close fr...
+- [22:14 UTC - Over the past 27 days, the U.S. armed forces have been annihilating Iran's military capacity.](kw9vZE0arIo/)
+  - Source: https://www.youtube.com/watch?v=kw9vZE0arIo
+  - [00:00.000] As president of the United States, I - [00:01.920] would never allow the world's number one - [00:03.760] state sponsor of terror to obtain a - [00:05.760] nuclear we...
+- [17:46 UTC - President Donald J. Trump Saved the American Farmer](vaGnEYy1H18/)
+  - Source: https://www.youtube.com/watch?v=vaGnEYy1H18
+  - [00:00.000] Trump saw tax code crushing family farms - [00:03.960] and eroding rural economies. - [00:06.800] So, Trump saved the farmer. - [00:11.000] He saw unfair trade practi...
+- [17:23 UTC - No one stands with the farmers of America like President Trump. 🚜🌾](ymEe_mxG2YQ/)
+  - Source: https://www.youtube.com/watch?v=ymEe_mxG2YQ
+  - [00:01.000] For four disastrous years before I took - [00:03.240] office, Sleepy Joe Biden and the - [00:05.240] Democrats in Congress - [00:07.400] crushed America's farmers wit...
+- [17:22 UTC - President Trump Delivers Remarks to Farmers](IyKAzbxybog/)
+  - Source: https://www.youtube.com/watch?v=IyKAzbxybog
+  - [00:12.870] Announcer: Ladies and gentlemen, - [00:14.110] the President of the United States, - [00:16.070] Donald J. Trump. - [00:17.770] ♪ (Hail to the Chief) ♪ - [01:02.750]...
+- [16:36 UTC - Generational farmers and ranchers thank President Trump](541ZjS3R_ts/)
+  - Source: https://www.youtube.com/watch?v=541ZjS3R_ts
+  - [00:00.000] My family's been in business in northern - [00:01.800] Nevada since the late 1800s. - [00:04.440] I'd like to thank President Trump for - [00:06.320] picking the righ...
+- [15:41 UTC - Farmers & ranchers from across the country gather at the White House to celebrate U.S. agriculture](GkLcwSYq6zQ/)
+  - Source: https://www.youtube.com/watch?v=GkLcwSYq6zQ
+  - [00:00.000] Hi, my name is Shad Sullivan, fifth - [00:02.160] generation American cattle rancher from - [00:04.320] North Texas and Southeast Colorado. Just - [00:07.040] want to...
+- [15:00 UTC - 🇺🇸 LAUNCHED: The White House App](p4cnRoWW1Yw/)
+  - Source: https://www.youtube.com/watch?v=p4cnRoWW1Yw
+  - [00:00.000] There's been a lot of launches lately. - [00:05.960] Relax. This one's an app. Track the - [00:08.640] latest news, live streams, and - [00:10.480] everything White H...
+- [14:59 UTC - 🇺🇸 LAUNCHED: The White House App](i97qzALKCf4/)
+  - Source: https://www.youtube.com/watch?v=i97qzALKCf4
+  - [00:00.000] There's been a lot of launches lately. - [00:05.920] Relax. This one's an app. Track the - [00:08.640] latest news, live streams, and - [00:10.480] everything White H...
+- [14:22 UTC - Vice President JD Vance Participates in a Task Force Meeting to Eliminate Fraud](g8mO3yZfKVc/)
+  - Source: https://www.youtube.com/watch?v=g8mO3yZfKVc
+  - [00:11.020] The Vice President: Good morning, everybody - [00:12.910] Steve, you there. OK. Great. - [00:16.400] Well, it's good to see everybody. - [00:19.090] Hell, we have hal...
+- [00:05 UTC - All thanks to the radical left Democrats](GQkUMTvavh4/)
+  - Source: https://www.youtube.com/watch?v=GQkUMTvavh4
+  - [00:00.000] May I have your attention, please? Due - [00:02.480] to Democrats, we are currently - [00:04.200] experiencing much longer than usual TSA - [00:06.760] wait times and...

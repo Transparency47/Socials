@@ -1,0 +1,690 @@
+<!-- source: https://www.youtube.com/watch?v=jLgk7WImT5g -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: jLgk7WImT5g -->
+<!-- date_published: 2025-07-16T16:22:34+00:00 -->
+<!-- date_accessed: 2026-06-02T02:47:00.976427+00:00 -->
+
+# Transcript: President Trump Participates in a Bilateral Meeting with the Crown Prince and PM of Bahrain
+
+- [00:00.340] The President: Well, it's a great honor
+- [00:01.670] to have the Prime Minister and the Crown Prince of Bahrain.
+- [00:07.070] That's a fancy two titles, I want to tell you.
+- [00:09.470] I don't know if I'd rather be
+- [00:10.800] the Prime Minister or the Crown Prince.
+- [00:12.270] I think I'd take the Crown Prince.
+- [00:14.510] And very importantly, your son, your beautiful son,
+- [00:18.110] who has a great reputation. You know that.
+- [00:20.510] Great reputation as a smart, hard-working guy.
+- [00:23.990] So it's good to say hello to you.
+- [00:25.650] Congratulations.
+- [00:27.710] We've had a tremendous relationship,
+- [00:30.110] I have personally with Bahrain over the years
+- [00:33.710] and it has been a fantastic ally.
+- [00:37.470] And anything they needed we helped them
+- [00:39.750] and anything we needed they helped us.
+- [00:42.740] And we're going to be talking about a lot of different things,
+- [00:44.940] including the most perfect military maneuver
+- [00:49.530] that anybody's seen probably in 50 years,
+- [00:51.930] which took place a few weeks ago in Iran,
+- [00:54.700] knocked out their entire potential nuclear capacity
+- [00:59.800] and it was obliterated. I used that term.
+- [01:03.170] They said, well maybe that's too much.
+- [01:04.670] I said, no. It turned out it was more than obliterated.
+- [01:08.020] They can't go back.
+- [01:09.590] And we're just really going to talk
+- [01:13.200] about some things including trade.
+- [01:14.780] We're going to be discussing trade,
+- [01:16.100] we do a lot of trading with Bahrain.
+- [01:19.000] And we're going to have lunch after this,
+- [01:21.640] but we'll take some questions.
+- [01:23.240] First, I'd like to ask the Crown Prince
+- [01:26.260] to say a couple of words.
+- [01:27.810] And he also has a father who's living and well
+- [01:32.770] and doing fantastically as I understand it.
+- [01:34.840] Crown Prince: He is.
+- [01:36.120] The President: And somebody who's respected all over
+- [01:37.720] the Middle East and all over the world.
+- [01:39.280] And thank you very much for being here.
+- [01:40.820] Crown Prince: Thank you, Mr. President.
+- [01:42.390] Thank you one and all.
+- [01:43.840] It is indeed a great honor to be here on this fine morning
+- [01:47.590] to put into action the relationship
+- [01:53.180] that exists between our two countries.
+- [01:54.970] We will be discussing security issues,
+- [01:56.900] we'll be discussing trade and investment,
+- [01:59.160] which is very important.
+- [02:00.580] We're very happy to be announcing $17 billion
+- [02:03.700] worth of deals that are coming to the United States.
+- [02:08.060] And this is real. This isn't --
+- [02:09.850] These aren't fake deals.
+- [02:11.150] These are real deals.
+- [02:12.360] The President: They don't have to borrow the money.
+- [02:13.610] Crown Prince: We don't have to borrow it, it's coming in.
+- [02:16.050] And it only builds upon a legacy that we're very proud of.
+- [02:19.770] We have had a relationship in the civil side
+- [02:23.880] between our two countries since 1893
+- [02:26.550] and formally since 1948.
+- [02:28.880] So may it long continue and we look forward to many,
+- [02:32.440] many more years of productive partnership.
+- [02:34.470] Thank you, Mr. President. You honor us.
+- [02:37.120] The President: We will have that indeed, many good years.
+- [02:39.380] And I'd say right now is your top year
+- [02:41.830] and we appreciate the investment.
+- [02:44.310] It's a great -- We left as you know, Saudi Arabia.
+- [02:47.930] We were just there, Saudi Arabia and Qatar was so great.
+- [02:52.960] Qatar was great.
+- [02:54.170] We had the UAE and we had a couple of other visits,
+- [02:57.540] but all great places and we left with $5.1 trillion of investment
+- [03:03.590] and they all want to be investing in the United States.
+- [03:08.500] I think we have over $16 trillion of investment
+- [03:11.660] coming in, which is a record,
+- [03:14.400] and we're only a little bit into the year.
+- [03:17.720] And let's say the first two months,
+- [03:19.020] I sort of took it easy
+- [03:20.890] because we had to fix up the Oval Office.
+- [03:23.210] I had to devote my time to fixing it up.
+- [03:25.700] But now we had to fix up our country.
+- [03:28.720] I think everyone is saying
+- [03:29.990] we have the hottest country now anywhere in the world.
+- [03:31.820] We were dead a year ago. We are a dead country
+- [03:35.410] and now we have the hottest country anywhere in the world.
+- [03:40.270] Crown Prince: Thank you. Mr. President.
+- [03:41.810] The Press: (inaudible)
+- [03:46.010] developments in Syria at the moment.
+- [03:47.490] The President: Well, I can't comment.
+- [03:48.700] I think I'll ask Marco to say a few words on Syria.
+- [03:51.290] Secretary Rubio: Yeah, it's complicated.
+- [03:52.500] Obviously these are historic long-time rivalries
+- [03:55.390] between different groups in the southwest of Syria,
+- [03:58.750] Bedouins, the Druze community,
+- [04:00.910] and it led to an unfortunate situation
+- [04:03.510] and a misunderstanding it looks like,
+- [04:04.990] between the Israeli side and the Syrian side.
+- [04:07.480] So we've been engaged with them all morning long
+- [04:10.110] and all night long with both sides.
+- [04:12.290] And we think we're on our way towards a real de-escalation
+- [04:16.210] and then hopefully get back on track
+- [04:18.270] in helping Syria build the country
+- [04:20.010] and arriving at a situation there
+- [04:22.250] in the Middle East that's far more stable.
+- [04:23.650] So in the next few hours we hope to see some real progress
+- [04:26.980] to end what you've been seeing over the last couple hours.
+- [04:29.280] The Press: Mr. President, Jerome Powell,
+- [04:33.280] do you have plans or have you're back considering
+- [04:36.390] firing Jerome Powell and what's your justification
+- [04:39.610] you're thinking about this to do this?
+- [04:41.040] The President: Well, he's too late.
+- [04:42.310] He's always been too late, hence his nickname too late.
+- [04:46.300] He should have cut interest rates a long time ago.
+- [04:49.190] Europe has cut them 10 times in the short period of time
+- [04:52.000] and we cut him none.
+- [04:54.260] The only time he cut them was just before the election
+- [04:56.290] to try and help Kamala or Biden, whoever the hell it was,
+- [05:01.090] because nobody really knew. Obviously that didn't work,
+- [05:04.940] but he tried to cut them for the Democrats, Kamala.
+- [05:10.470] How did that work out?
+- [05:11.690] You'll tell me it didn't work out too well, did it?
+- [05:15.800] I think he does a terrible job.
+- [05:17.130] He's costing us a lot of money and we fight through it.
+- [05:21.970] The country's become so successful
+- [05:23.860] that it doesn't have a big impact,
+- [05:25.780] but it does hurt people wanting to get a mortgage.
+- [05:30.230] People want to buy a house. He's a terrible Fed chair.
+- [05:34.980] I was surprised he was appointed.
+- [05:36.970] I was surprised, frankly,
+- [05:38.220] that Biden put him in and extended him, but they did.
+- [05:44.330] So no, we're not planning on doing anything.
+- [05:47.080] We're very concerned.
+- [05:48.660] He's doing a little renovation for 2.5 billion of the Fed,
+- [05:53.990] building a renovation,
+- [05:56.080] and they have a close-to $900 million cost overrun.
+- [06:01.060] And it's a shame. But the biggest cost overrun
+- [06:03.110] is the cost overrun for interest rates
+- [06:05.430] because we should be paying three points lower
+- [06:08.320] and we would save a trillion dollars a year
+- [06:10.300] in interest if that were the case.
+- [06:11.940] And all it is the stroke of a pen.
+- [06:14.380] And that goes for his board too,
+- [06:15.860] because his board is not doing the job
+- [06:17.900] because they should try and rein this guy in.
+- [06:20.630] So he is doing a lousy job.
+- [06:21.830] But no, I'm not talking about that.
+- [06:23.730] Fortunately we get to make a change in the next,
+- [06:26.880] what, eight months or so.
+- [06:28.930] And we'll pick somebody that's good
+- [06:31.370] and we'll pick somebody, I just want a fair job.
+- [06:33.940] We want to see lower interest rates.
+- [06:35.560] Our country deserves it. We're making a lot of money.
+- [06:38.640] We're doing great as a country. We have no inflation.
+- [06:42.180] Record stock market. Record business.
+- [06:44.510] Record everything. Everything's a record now.
+- [06:46.980] We had the worst inflation in history under Biden
+- [06:51.350] and now we have almost no inflation.
+- [06:54.560] We've done a great job
+- [06:56.090] and we should have the interest rates cut.
+- [06:58.350] The Press: So you're saying the other day
+- [06:59.790] that Scott Bessent,
+- [07:01.010] you're so happy with him at Treasury,
+- [07:02.670] that he's not your top option to replace Jerome Powell,
+- [07:05.230] whenever that may be,
+- [07:06.440] whenever you decide what you want to do with him?
+- [07:09.380] The President: Scott's doing a very good job now.
+- [07:10.840] I'm very happy with Scott. (inaudible)-
+- [07:12.190] The Press: Is Kevin Hassett on the top of your list?
+- [07:14.190] The President: Kevin's somebody we'd consider, yeah.
+- [07:16.040] Kevin is fantastic too.
+- [07:18.470] We have a lot of good people for that job.
+- [07:20.790] It's not a tough job, to be honest.
+- [07:23.420] Assuming you're smart, it's not a tough job.
+- [07:25.790] If you're dummy, then I guess it's a tough job.
+- [07:29.060] But it might be one of the easiest jobs I've ever seen.
+- [07:32.640] And now on top of it, he's building a close
+- [07:34.760] to $3 billion little nest egg for himself.
+- [07:38.570] He's not doing the right job.
+- [07:41.520] We should be saving a trillion dollars
+- [07:43.260] a year on interest when he talks about cost.
+- [07:45.540] We should be saving,
+- [07:46.770] think of it, a trillion dollars a year.
+- [07:48.360] Add that with the tariffs and everything else.
+- [07:51.030] But he just doesn't want -- He's a knucklehead.
+- [07:54.900] But we'll see how -- He's listening to this
+- [07:58.720] and going, that's a strange conversation.
+- [08:01.280] But we like to say it like it is.
+- [08:05.340] But we have a lot of people that want that job very badly.
+- [08:08.760] And I'm only interested in low-interest people, frankly.
+- [08:13.480] Because you don't need --
+- [08:15.100] So they had the 71 different economists and people that,
+- [08:19.260] the experts that they picked about a month ago,
+- [08:23.030] I was the only one along with one person
+- [08:25.610] from maybe the Wharton School of Finance,
+- [08:29.130] the two of us got it right.
+- [08:31.170] 69 people, including Powell got it wrong.
+- [08:34.580] And he wants to hire thousands of new people
+- [08:36.610] to help him decide where we're going in the future.
+- [08:41.470] It only takes one good mind.
+- [08:42.950] It doesn't take 5,000 good minds.
+- [08:45.750] So they're expanding the Fed. It's the dumbest thing
+- [08:48.010] I've heard of, but you know, it's very autonomous.
+- [08:51.390] The Press: Just a follow up on that, sir.
+- [08:54.590] Is (inaudible)
+- [08:55.790] are you completely ruling out the idea of firing Jerome
+- [08:59.350] Powell?
+- [09:00.960] The President: I don't rule out anything,
+- [09:02.460] but I think it's highly unlikely unless he has to leave fraud.
+- [09:06.520] I mean, it's possible.
+- [09:07.730] There's fraud involved with the 2.5,
+- [09:11.440] $2.7 billion renovation.
+- [09:13.900] It's a renovation, how do you spend $2.7 billion
+- [09:18.980] and he didn't have proper clearance, et cetera, et cetera.
+- [09:21.330] So you know that's going on.
+- [09:22.560] So there could be something to that.
+- [09:25.670] But I think he's not doing a good job.
+- [09:27.530] He's got a very easy job to do.
+- [09:28.930] You know what he has to do? Lower interest rates.
+- [09:30.760] The Press: (inaudible)
+- [09:31.960] have you drafted a letter, Mr. President,
+- [09:35.500] (inaudible)
+- [09:36.890] decide that you are going to fire him.
+- [09:38.270] Have you drafted a letter?
+- [09:39.500] The President: No, I haven't drafted a letter.
+- [09:40.760] The Press: So you didn't show a letter
+- [09:41.990] to Republican lawmakers last night?
+- [09:43.690] The President: No. I talked about the concept of firing him.
+- [09:45.650] I said, what do you think?
+- [09:47.150] Almost every one of them said I should.
+- [09:50.140] But I'm more conservative than they are.
+- [09:56.290] We talked about it.
+- [09:57.580] In fact, we had 11 of the 12 people here
+- [10:01.620] yesterday for a very big bill having to do with crypto,
+- [10:05.770] et cetera, and other things.
+- [10:08.530] And all of the votes are going with us, every single vote.
+- [10:12.770] But during the conversation when we were talking about it,
+- [10:16.170] I asked, what would you do about that?
+- [10:17.790] They all said would fire him.
+- [10:21.620] The Press: Thank you for taking the question, sir.
+- [10:23.170] You were in Pennsylvania yesterday.
+- [10:24.490] You unveiled $92 billion worth of investments.
+- [10:27.750] One of those jumped out though $15 billion in Homer City
+- [10:30.870] to build the largest national gas power plant ever.
+- [10:34.420] I was at the rally where you told Homer City residents
+- [10:37.180] that you would not forget them
+- [10:38.450] when the biggest coal plant in Pennsylvania closed down.
+- [10:41.090] You delivered for them yesterday.
+- [10:42.610] What message do you have for those residents?
+- [10:44.030] The President: Well, I'm happy. Homer City,
+- [10:46.230] I was there and I said, I'm going to produce something.
+- [10:48.410] I don't know what,
+- [10:49.710] because they had shut down this massive coal plant,
+- [10:52.390] one of the biggest in the country,
+- [10:54.540] and it was just purchased by the gentleman
+- [10:56.830] that you met yesterday.
+- [10:58.060] A very substantial man. I don't know if he's as --
+- [11:01.660] Maybe not as substantial as you, I'm not sure.
+- [11:04.620] But he's pretty substantial. You know who I'm talking about.
+- [11:07.550] And they're going to spend billions of dollars
+- [11:11.510] on rebuilding it
+- [11:12.870] and it's going to be the largest plant of its kind in the world,
+- [11:17.110] I believe actually in the world. And it's going to be great.
+- [11:20.190] So we really fulfilled that promise to Homer City,
+- [11:23.450] but it's to Pennsylvania, basically.
+- [11:26.170] I won Pennsylvania and very conclusively won Pennsylvania,
+- [11:30.500] so I owe them a big debt of gratitude.
+- [11:33.940] But thank you for bringing that up.
+- [11:35.760] We raised it's actually going over 100,
+- [11:40.180] so it'll be over $100 billion to be invested in Pennsylvania.
+- [11:44.110] It was Pennsylvania energy project.
+- [11:46.930] Everybody was there, Larry Fink was there.
+- [11:49.820] I mean everybody was there. And done a great job.
+- [11:53.210] The Senator did a great job. We were very proud.
+- [11:57.240] That was a great meeting yesterday.
+- [11:58.550] Thank you very much.
+- [12:00.000] The Press: (inaudible)
+- [12:02.190] for each of you. So for the Crown Prince,
+- [12:07.170] are you planning on taking any of the Patriot missiles
+- [12:12.080] that you're going to receive from the United States
+- [12:14.160] and divert those to help Ukraine?
+- [12:17.210] Crown Prince: We have no current plans
+- [12:18.510] as we have an operational requirement inside Bahrain
+- [12:20.840] to keep them there for the present time.
+- [12:23.020] The President: He's got plenty of them too.
+- [12:24.840] The Press: And Mr. President, the Fentanyl bill --
+- [12:26.980] Crown Prince: They're wonderful. They're wonderful pieces of kit.
+- [12:28.900] The President: They work very well.
+- [12:30.120] Crown Prince: American technology is the best.
+- [12:31.440] The President: Yep.
+- [12:32.670] The Press: On the Fentanyl bill that you're signing --
+- [12:34.080] The President: That's maybe the most important part of this.
+- [12:37.460] This choice of everything.
+- [12:38.880] And we make the best military equipment by far in the world.
+- [12:42.080] Crown Prince: Bar none.
+- [12:43.320] The President: There's nothing close, right?
+- [12:44.770] Crown Prince: Bar none. The President: Yeah, thank you.
+- [12:46.170] The Press: Now on the fentanyl bill
+- [12:47.390] that you're signing today,
+- [12:48.590] do you hope that that's going to restart
+- [12:50.630] law enforcement cooperation with China
+- [12:52.310] on getting the fentanyl?
+- [12:53.530] The President: Yeah, I think China has been helping out.
+- [12:57.650] It's been a terrible situation for many years with fentanyl,
+- [13:00.690] but since I came here, we're talking to them
+- [13:03.200] and they're making big steps.
+- [13:06.940] They're also, as you know, being penalized.
+- [13:08.740] You know that, right?
+- [13:10.060] They're being penalized with tariffs
+- [13:11.450] because of the fentanyl, but they want to do something.
+- [13:16.260] We'll see what happens.
+- [13:21.860] The Press: Thank you, Mr. President.
+- [13:23.140] An American from Tampa was beaten to death.
+- [13:26.770] He was killed by Israeli settlers in the West Bank.
+- [13:29.330] His family has been calling on you
+- [13:31.810] to help prosecute his killers.
+- [13:34.320] Are you going to do that? An American from Tampa?
+- [13:37.300] The President: Yeah. Your first sentence is really --
+- [13:39.820] Go ahead.
+- [13:41.080] The Press: An American citizen from Tampa, Florida,
+- [13:44.140] has been killed in the West Bank.
+- [13:46.140] His family has been asking you to prosecute him.
+- [13:48.770] Are you going to help find this guy?
+- [13:50.220] Secretary Rubio: Yeah.
+- [13:51.460] Well, so first of all, if you've seen yesterday,
+- [13:53.160] Ambassador Huckabee has asked the Israelis
+- [13:54.960] to conduct an investigation.
+- [13:56.250] We want to get all the information
+- [13:57.460] about who was involved.
+- [13:58.810] We protect all American citizens anywhere in the world,
+- [14:00.990] especially if they're unjustly murdered or killed.
+- [14:04.100] So we're gathering more information,
+- [14:05.830] but I hope you saw yesterday, Ambassador Huckabee in Israel
+- [14:08.530] asked the Israelis authorities
+- [14:09.970] to produce an investigation and concrete information
+- [14:13.250] about who was responsible for his murder.
+- [14:15.560] The President: They're reporting that tomorrow.
+- [14:16.800] We have a meeting on it.
+- [14:18.000] They're going to be reporting that to me.
+- [14:19.690] Yeah.
+- [14:20.930] The Press: Do you think that the Gulf area now is more secure
+- [14:25.180] and do you believe that a negotiation with Iran
+- [14:27.640] is necessary at this stage?
+- [14:29.970] Crown Prince: Well, I definitely believe
+- [14:31.240] that the volatility of the situation has been reduced
+- [14:36.030] and we didn't know where it was going to go on the Sunday.
+- [14:39.640] We were very glad when we found out on the Monday.
+- [14:41.690] Let me put it that way.
+- [14:43.190] And should the Iranians want to negotiate,
+- [14:45.420] I believe the ball is in the court.
+- [14:48.090] That is the true reality of where we stand today.
+- [14:50.790] They are the ones that stand to benefit from a negotiation.
+- [14:54.380] The President: And they do.
+- [14:55.590] They want negotiate. They want to negotiate badly.
+- [15:00.760] We're in no rush because we said we could have made a deal.
+- [15:06.520] They should have made a deal,
+- [15:08.570] and then we bombed the hell out of there, various places.
+- [15:11.160] We're in no rush.
+- [15:12.410] But if they want to negotiate, we're here. Yeah?
+- [15:15.340] The Press: Mr. President, Mr. President.
+- [15:16.680] I know you want to move past all this intrigue
+- [15:18.450] over the Epstein files, but I do want to ask you
+- [15:20.170] to clarify something you said this morning.
+- [15:21.700] You said this was all a hoax. Has your attorney general-
+- [15:23.200] The President: It's a big hoax.
+- [15:24.460] The Press: -- told you this was a hoax?
+- [15:25.700] What evidence have you seen of that?
+- [15:26.910] The President: It's not the attorney general.
+- [15:28.120] No, I know it's a hoax. It started by Democrats.
+- [15:31.100] It's been run by the Democrats for four years.
+- [15:33.410] You had Christopher Wray
+- [15:34.760] and these characters and Comey before him.
+- [15:37.510] And it's a bad group. It started actually --
+- [15:40.970] Look at the Steele dossier that turned out to be a total hoax.
+- [15:44.360] The 51 agents, the so-called intelligence agents.
+- [15:47.890] It was a hoax. It's all been a big hoax.
+- [15:50.800] It's perpetrated by the Democrats
+- [15:52.670] and some stupid Republicans and foolish Republicans
+- [15:56.090] fall into the net,
+- [15:57.790] and so they try and do the Democrat's work.
+- [16:01.110] The Democrats are good for nothing other than these hoaxes.
+- [16:03.830] They're bad for policy,
+- [16:05.840] they're bad for picking candidates that can get elected.
+- [16:09.800] Like in New York, we have a communist running.
+- [16:13.130] He may get elected too, actually.
+- [16:14.540] But he'll destroy the city.
+- [16:17.350] No, no. I call it the Epstein hoax.
+- [16:19.990] Takes a lot of time and effort.
+- [16:21.330] Instead of talking about the great achievements we've had.
+- [16:24.620] A great gentleman, yesterday, as you know, went on CNBC
+- [16:28.460] and he made the statement that Trump may go down
+- [16:30.470] as the greatest president of all in the United States.
+- [16:34.540] And instead of talking about the things we've achieved.
+- [16:37.090] We've had tremendous achievement.
+- [16:39.770] They're wasting their time with a guy
+- [16:42.870] who obviously had some very serious problems
+- [16:46.130] who died three, four years ago.
+- [16:49.620] I'd rather talk about the success
+- [16:51.320] we have with the economy, the best we've ever had,
+- [16:54.270] and all of the things we've done,
+- [16:55.700] including the Middle East. You see it.
+- [16:58.610] Instead, they want to talk about the Epstein hoax.
+- [17:01.150] And the sad part is it's people
+- [17:04.150] that are really doing the Democrat's work.
+- [17:08.030] They're stupid people. Yeah, go ahead.
+- [17:11.330] The Press: Mr. President.
+- [17:12.710] There's lots of reports coming into this meeting
+- [17:15.810] that you planned on firing Fed Chair Jerome Powell.
+- [17:18.030] Market's reaction? The President: Right.
+- [17:19.230] Those are reports, but they're not true.
+- [17:20.820] The Press: So what would be useful to know,
+- [17:22.290] are you committed to picking someone from the outside.
+- [17:24.320] Are you going to interview individuals
+- [17:25.720] that are on the board?
+- [17:26.960] The President: So many people that want that job.
+- [17:28.890] I have people that I've known a long time,
+- [17:30.380] they're calling me begging for the job.
+- [17:33.810] You know what you need there?
+- [17:35.070] A smart person with common sense.
+- [17:36.780] But you need a very smart person for that job.
+- [17:39.200] I think it's one of the easiest jobs in government.
+- [17:42.180] You show up once a month and you make a statement
+- [17:44.180] about where the economy is going,
+- [17:46.380] and we're going to raise or lower interest rates.
+- [17:48.050] The Press: You have to deliver a job though.
+- [17:49.270] The President: It's probably the easiest job I've ever seen.
+- [17:51.970] That's why I'm trying to figure why does he want to expand
+- [17:54.640] and add more people.
+- [17:55.960] He's going to add more economists
+- [17:57.230] to tell him what to do.
+- [17:58.470] But the economists -- I was right.
+- [17:59.980] All the economists were wrong. They admitted it this morning.
+- [18:04.700] Quiet, quiet, quiet. Go ahead.
+- [18:07.120] The Press: You mentioned fraud in an earlier answer.
+- [18:10.540] Are you saying you want to investigate the Fed Chair
+- [18:12.840] for fraud related to this renovation?
+- [18:14.240] The President: Well, I think
+- [18:15.450] he's already under investigation.
+- [18:17.370] He spent far more money than he was supposed to on rebuilding.
+- [18:21.830] I didn't see him as being the kind of guy
+- [18:23.660] that would want to have parks, rooftop parks
+- [18:26.460] and everything else on top of buildings.
+- [18:28.060] But who wants to spend that money for the Fed?
+- [18:32.600] The Fed is supposed to sit there
+- [18:33.940] and say where interest rates are going
+- [18:35.520] and a couple of other very easy things to do.
+- [18:38.450] And he spent two and a half billion dollars.
+- [18:40.410] I think he's got some problems.
+- [18:47.010] The Press: Thank you, sir.
+- [18:48.220] You also recorded a monthly surplus in the month of June.
+- [18:51.940] The President: 25 billion dollars, 40 billion.
+- [18:54.380] The Press: A ton of money. With these new tariff rates
+- [18:56.640] coming into effect on August 1st,
+- [18:58.420] be bringing in even more tariff revenue.
+- [19:00.560] Specifically, how much revenue do you think
+- [19:02.770] we can consistently bring in from these tariffs
+- [19:05.130] and how big of a game changer is this,
+- [19:06.890] not only for the economy, but also fiscal responsibility?
+- [19:08.870] The President: Well, we're going to be bringing in --
+- [19:10.270] Already we've brought in over a hundred billion dollars.
+- [19:14.060] We'll be bringing in hundreds of billions of dollars.
+- [19:18.050] And the tariffs really haven't kicked in that much
+- [19:20.200] other than automobiles and steel.
+- [19:24.190] August 1st is a big day.
+- [19:26.110] August 1st is when very substantial money
+- [19:28.970] comes into our country.
+- [19:31.180] We've made deals with a lot of great places,
+- [19:34.380] but we had one yesterday that was announced.
+- [19:37.450] We have another one coming up maybe with India.
+- [19:39.860] I don't know. We're in negotiation.
+- [19:42.780] When I send out a letter, that's a deal.
+- [19:44.480] In other words, that's a deal.
+- [19:45.780] They don't want to ever say that,
+- [19:47.080] "Oh, how many deals have you made?"
+- [19:49.540] The best deal we can make is to send out a letter
+- [19:52.510] and the letter says that you'll pay 30 percent,
+- [19:55.040] 35 percent, 25 percent, 20 percent.
+- [19:58.200] In one case, 50 percent. Brazil.
+- [20:01.000] And because what they're doing to their former president
+- [20:04.030] is disgraceful. I know the former president.
+- [20:07.640] He fought like hell for the people of Brazil.
+- [20:09.600] That I can tell you.
+- [20:11.240] And I believe he's an honest man.
+- [20:13.030] I think what they're doing to him is terrible.
+- [20:15.520] So yeah, we have some pretty good deals to announce,
+- [20:20.670] but every time we send out a letter, that's the deal.
+- [20:23.300] The big one really is going to be on the 150 countries
+- [20:28.900] that we're really not negotiating with.
+- [20:30.590] And they're smaller. We don't do much business with them.
+- [20:33.200] Because you have a lot of countries.
+- [20:34.710] You have over 200 countries and a lot of people don't know this.
+- [20:38.330] But we'll have well over 150 countries
+- [20:42.340] that we're just going to send a notice of payment out
+- [20:46.520] and the notice of payment is going to say what the tariff --
+- [20:48.700] And it's all going to be the same
+- [20:51.130] for everyone for that group.
+- [20:55.140] They're not big countries
+- [20:56.390] and they don't do that much business.
+- [20:57.820] It's not like the ones
+- [20:59.020] that we've agreed with, like China, like Japan,
+- [21:04.060] where we're negotiating with them.
+- [21:05.650] But I think probably we'll live by the letter with Japan.
+- [21:10.680] We're very close to a deal with India when they open it up.
+- [21:13.010] Indonesia yesterday was -- It wasn't an open country.
+- [21:17.160] Now it is.
+- [21:18.410] And they have tremendous copper, quality copper,
+- [21:22.080] and probably the most copper.
+- [21:24.350] And we made a deal with Indonesia.
+- [21:26.150] We pay no tariff, zero,
+- [21:28.920] and we have total access to trade.
+- [21:32.480] That's a phenomenal deal for our companies.
+- [21:36.110] And we've agreed with them as you know, on 19 percent.
+- [21:38.880] They pay 19 percent. And it's a good deal for them,
+- [21:42.340] it's a good deal for us in that case.
+- [21:44.160] But we have a number of them coming up.
+- [21:46.590] But overall, we're doing well
+- [21:49.720] and we're taking in a lot of money, a lot of money.
+- [21:53.620] We have the number one --
+- [21:54.840] We have the most oil of any country in the world,
+- [21:56.770] even more than them, which is hard to believe.
+- [21:59.790] But we have a little larger piece of land.
+- [22:01.540] Crown Prince: You do, sir.
+- [22:02.770] The President: But we're number one in the world in oil
+- [22:06.540] and we're drilling.
+- [22:07.920] And today it hit $64 a barrel, which is great.
+- [22:12.880] And that will help stop wars
+- [22:15.400] actually if you want to know the truth.
+- [22:16.900] It's going to help stop wars
+- [22:18.460] and we hope to get it down a little bit more.
+- [22:20.430] But we have oil down to $2, $2.25, $2.50 in numerous states.
+- [22:25.990] We hit one at a dollar 98 a gallon.
+- [22:30.450] And that's a great thing.
+- [22:31.770] That's one of the reasons that inflation is in check.
+- [22:34.980] When you can do that, you stop inflation.
+- [22:36.970] What Biden did is he ended our policies, went to his policies.
+- [22:41.160] He didn't have a policy.
+- [22:42.630] Some lunatic around the desk had a policy.
+- [22:45.460] Whoever operated the auto pen had a policy,
+- [22:49.070] which is by the way, I think the biggest scandal.
+- [22:51.740] That's the scandal they should be talking about,
+- [22:53.760] not Jeffrey Epstein.
+- [22:56.830] The scandal you should be talking about is the auto pen
+- [23:00.530] because I think it's the biggest scandal,
+- [23:03.550] one of them in American history.
+- [23:07.850] So the economy is doing really well and people are seeing it.
+- [23:13.120] Yeah.
+- [23:15.900] The Press: Will you ask Attorney General Pam Bondi
+- [23:18.050] to release more documents
+- [23:19.260] to finally put this controversy to bed?
+- [23:21.010] The President: Yeah, whatever is credible, she can release.
+- [23:23.740] If a document is credible,
+- [23:25.250] if a document's there that is credible,
+- [23:28.020] she can release. I think it's good.
+- [23:29.810] The Press: Have you talked to her about it?
+- [23:31.340] The President: But it's just a subject.
+- [23:33.930] He's dead. He's gone. And all it is the Republicans.
+- [23:39.520] Certain Republicans got duped by the Democrats
+- [23:42.040] and they're following a Democrat playbook
+- [23:45.040] and no different than Russia, Russia, Russia
+- [23:47.310] and all the other hoaxes.
+- [23:49.900] They're started by the Democrats and some Republicans.
+- [23:53.830] In this case I was surprised. But they got duped.
+- [24:01.700] The Press: Have you talked about it
+- [24:03.030] with her the last few days?
+- [24:04.250] The Press: First of all,
+- [24:05.450] a number of your high-ranking officials,
+- [24:07.350] whether there's been your FBI director or Pam Bondi,
+- [24:10.580] they have made some inconsistent statements in the past.
+- [24:12.640] You've had-
+- [24:13.900] The President: Well, I don't know.
+- [24:15.130] I can't speak about him, but I can say that Pam Bondi,
+- [24:18.180] I really think that she's done very good.
+- [24:20.770] She says I gave you all the credible information,
+- [24:24.690] and if she finds any more credible information,
+- [24:26.870] she'll give that too.
+- [24:28.110] What more can she do than that? Honestly, what more can she do?
+- [24:31.120] The Press: Have you talked about it?
+- [24:32.360] The President: And we do have bigger problems.
+- [24:34.130] We have problems with millions of illegal people
+- [24:37.620] that came in here and their killers and murderers.
+- [24:39.800] We have 11,888 murderers
+- [24:43.110] that were allowed into our country by Biden,
+- [24:45.560] sleepy Joe Biden, stupid Joe Biden.
+- [24:48.240] He allowed him into our country.
+- [24:49.620] And you know what? We got to do something about it.
+- [24:51.360] She's got a lot of things she's working on
+- [24:53.610] and it's very sad that somebody can just get waylaid,
+- [24:58.820] just get waylaid.
+- [25:00.040] But I think she's doing a great job.
+- [25:03.490] The Press: In your two sessions this morning,
+- [25:08.050] you mentioned past supporters
+- [25:09.770] when you were talking about the Epstein issue.
+- [25:12.500] Does that mean that you are effectively disowning
+- [25:14.400] any supporters who are now (inaudible)?
+- [25:15.680] The President: I lost a lot of faith in certain people.
+- [25:17.470] Yeah. Because they got duped by the Democrats.
+- [25:21.010] The Democrats are good for nothing.
+- [25:22.600] They've done a terrible job.
+- [25:24.690] They almost destroyed our country.
+- [25:26.600] If I didn't get elected,
+- [25:27.870] all these numbers you're hearing about,
+- [25:29.430] they found $25 billion and another 25 is coming in
+- [25:33.390] and hundreds of billions of dollars
+- [25:35.030] is pouring into our country.
+- [25:36.640] And we just got the biggest tax cut in history.
+- [25:38.820] We just got the biggest regulation cuts in history.
+- [25:42.450] There'll be no tax on tips.
+- [25:43.780] There'll be no tax on social security.
+- [25:46.300] There'll be no tax on overtime.
+- [25:48.300] There'll be no tax on so many other things.
+- [25:50.910] You're allowed to deduct your interest from a car payment.
+- [25:53.590] That's never happened before. You borrow interest.
+- [25:56.500] You borrow money to buy a car if the car is made in America.
+- [26:01.250] And by the way, factories are being built all over America,
+- [26:04.410] car factories, AI factories.
+- [26:06.770] But you get a deduction on your interest.
+- [26:08.610] Nobody ever thought of that before.
+- [26:09.980] It never happened before.
+- [26:11.740] And these are the things that they should be talking about.
+- [26:14.860] The Big Beautiful Bill is one of the greatest pieces
+- [26:18.590] of legislation ever in this country.
+- [26:21.400] And the Democrats have nothing to combat it.
+- [26:24.940] So they say, "Oh, it's death, death."
+- [26:28.540] Oh, that's good.
+- [26:30.190] And then they give it to the fake news,
+- [26:31.670] which is you and a few others.
+- [26:33.580] And the fake news talks about the bill is death.
+- [26:36.210] The bill is actually life.
+- [26:37.990] The bill is life and it saves our country.
+- [26:40.120] This bill is incredible. Look at the results already.
+- [26:43.710] So we have $16 trillion being invested in our country.
+- [26:48.390] And this great gentleman and his family
+- [26:50.110] just came in with another billions of dollars.
+- [26:53.960] And if he didn't like the country,
+- [26:56.660] if he didn't like where we were going --
+- [26:58.470] He's very smart.
+- [26:59.700] He'd come, maybe he'd come, maybe he wouldn't even come.
+- [27:02.430] I think maybe you wouldn't even come.
+- [27:03.690] You would save your time. But it's one of those things.
+- [27:06.580] But if he didn't like where this country was,
+- [27:09.330] he wouldn't be investing billions of dollars
+- [27:11.310] in this country. But think of it, $16 trillion
+- [27:14.810] more than has ever been even contemplated before.
+- [27:18.570] And we haven't even started yet.
+- [27:20.630] So that's what I want to talk about.
+- [27:22.470] I want to talk about the success.
+- [27:24.640] And the Democrats have nothing to show for what they do.
+- [27:27.860] They almost destroyed.
+- [27:29.130] They allowed 25 million people to come into our country.
+- [27:34.390] Gang members, jailbirds from all over the world,
+- [27:38.320] not South America, from all over the world.
+- [27:40.290] They allowed them to come into our country
+- [27:42.520] from mental institutions and insane asylums.
+- [27:45.300] Just walk right through.
+- [27:47.020] They couldn't come into your country.
+- [27:48.720] They couldn't come into any country in the world
+- [27:51.080] except our country.
+- [27:52.750] And they came in from the worst places, gang members,
+- [27:57.180] drug dealers, they all came in --
+- [28:00.330] Turn it off, please. They all came in.
+- [28:03.380] And I'm doing something about it.
+- [28:06.590] We have it under check right now.
+- [28:08.980] We got rid of a lot of the murderers already.
+- [28:11.030] Some of them we put in our prisons
+- [28:12.750] because they are so bad we don't want to take a chance
+- [28:15.330] in putting them in a foreign prison
+- [28:16.730] and ave them come back.
+- [28:18.440] But we've done a great job. Our country is in great shape.
+- [28:22.620] We literally have the hottest country
+- [28:25.260] anywhere in the world right now.
+- [28:27.450] And it's true what the king said,
+- [28:29.450] what a lot of people said. We were a dead country.
+- [28:32.820] One year ago, we were a dead country.
+- [28:36.440] We were laughed at all over the world.
+- [28:38.790] We had Afghanistan. We've had horrible embarrassment,
+- [28:43.440] most embarrassing moment in the history of our country.
+- [28:46.800] Look what happened with Russia and Ukraine.
+- [28:48.750] That should have never happened.
+- [28:50.720] Look what happened with Israel. That would've never happened.
+- [28:53.130] Hamas had no money. Iran had no money.
+- [28:56.540] There was no money to do an attack like that.
+- [28:59.110] All these things that happened that wouldn't have happened
+- [29:01.250] if you had good leadership.
+- [29:02.730] And that's what you should be talking about.
+- [29:04.330] Thank you very much.

@@ -1,0 +1,215 @@
+<!-- source: https://www.youtube.com/watch?v=NId6ftqVJ1A -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: NId6ftqVJ1A -->
+<!-- date_published: 2025-02-06T17:31:25+00:00 -->
+<!-- date_accessed: 2026-06-02T01:30:29.943679+00:00 -->
+
+# Transcript: President Trump Swears In Pam Bondi as the U.S. Attorney General
+
+- [00:00.440] Hello everybody. This is a great honor
+- [00:03.720] and a real privilege. I'm thrilled to be
+- [00:06.040] here today
+- [00:07.560] with our nation's next incredible and
+- [00:09.520] she will be incredible Attorney General
+- [00:12.000] of the United States,
+- [00:13.760] Pam Bondi. And I want to congratulate
+- [00:16.400] Pam. She's worked hard so hard and
+- [00:19.080] uh unbelievably fair and unbelievably
+- [00:22.520] good at law enforcement. I just want to
+- [00:25.920] congratulate you. Very special person.
+- [00:33.560] AND I'D ALSO LIKE TO thank uh Justice
+- [00:37.040] Clarence Thomas and his incredible wife,
+- [00:39.200] who's here someplace. There she is.
+- [00:41.240] Incredible, highly respected wife, too,
+- [00:43.080] I will say. I I remember um
+- [00:45.960] a couple of years ago, a little bit more
+- [00:47.920] than that, during uh
+- [00:49.880] uh toward the end of my first term,
+- [00:52.360] I was introducing a lot of people at a
+- [00:54.600] big event, about 5,000 people,
+- [00:57.960] in your biggest ballroom, you know what
+- [00:59.840] that is, and they were getting a nice
+- [01:02.960] smattering of applause. They were very
+- [01:04.720] important people. And then I
+- [01:06.640] introduced Justice Clarence Thomas. The
+- [01:09.160] place went crazy. And it was then that I
+- [01:12.200] realized that you are a very popular guy
+- [01:15.000] and respected guy. So, thank you for
+- [01:17.080] being here. It's an honor and a great
+- [01:18.800] honor for Pam. Thank you very much.
+- [01:20.440] Thank you.
+- [01:22.360] Pam was a career prosecutor for nearly
+- [01:26.080] 20 years and was one of the toughest and
+- [01:29.280] smartest, and best, and most successful
+- [01:31.320] Attorney Generals in the history of
+- [01:32.920] Florida. And I think I put it out this
+- [01:35.320] morning. I think she's going to end up
+- [01:36.560] going down as the most successful, or
+- [01:38.200] certainly one of the most successful
+- [01:40.360] Attorney Generals that uh
+- [01:42.680] this country has ever had. I really
+- [01:44.760] believe that. I know I know her well. A
+- [01:47.560] lot of people in Florida, if you're in
+- [01:48.800] Florida, you know her well, and it was
+- [01:50.960] all good. There was never a problem. No
+- [01:53.360] problem. As a prosecutor, she locked up
+- [01:56.400] drug dealers and gang members and human
+- [01:59.040] traffickers and was waging war all the
+- [02:01.760] time on the pill mills, they called
+- [02:03.720] them, that fueled the deadly opioid
+- [02:05.600] crisis. And she did better than anybody
+- [02:08.160] else. There was nobody like her in the
+- [02:09.840] country. She also won over $50 billion
+- [02:13.200] in lawsuits for the victims of financial
+- [02:15.400] fraud and devastating Deepwater Horizon
+- [02:18.400] oil spill, which was brutal. And she was
+- [02:21.000] the leader of that whole deal, getting
+- [02:23.320] that people taken care of. As Attorney
+- [02:25.480] General of the United States, Pam has a
+- [02:27.960] historic and urgently needed task ahead
+- [02:30.400] of her.
+- [02:31.400] And probably there's never been a time
+- [02:33.160] Clarence said so more important than
+- [02:34.920] right now. We went through 4 years of
+- [02:36.960] not such good not such good work in many
+- [02:39.560] ways, not just not just with the
+- [02:41.840] president, at other levels also, with
+- [02:43.840] the president, obviously. She's going to
+- [02:46.560] restore fair, equal, and impartial
+- [02:48.600] justice and restore the constitutional
+- [02:50.880] rule of law in America.
+- [02:53.600] She will lead the Democrats uh you know
+- [02:56.280] where they're going to Well, she's going
+- [02:57.720] to lead them right down, but I think
+- [02:59.320] she's going to be as impartial as you
+- [03:00.800] can possibly be. I know I'm supposed to
+- [03:02.960] say she's going to be totally impartial
+- [03:05.200] with respect to Democrats, and I think
+- [03:07.480] she will be as impartial as a person can
+- [03:09.680] be. I'm not sure if there's a
+- [03:11.240] possibility of totally, but she's going
+- [03:13.160] to be as total as you can get, Johnny,
+- [03:15.160] right?
+- [03:16.200] But she's going to be fair and she'll
+- [03:18.320] lead the Department of Justice in
+- [03:20.080] crushing violent crime, demolishing the
+- [03:23.080] gangs, which are all over the place. If
+- [03:25.520] you look at New York, if you look at
+- [03:27.120] Chicago, if you look at Los Angeles,
+- [03:29.880] which is half burned down,
+- [03:31.200] unfortunately, because they didn't have
+- [03:33.080] the water and they didn't have what they
+- [03:35.000] were supposed to have. Destroying the
+- [03:37.040] terrorist cartels is going to be a very
+- [03:39.480] big priority for Pam, and that leads to
+- [03:41.880] crime, and that leads to a lot of drugs.
+- [03:43.560] So, she's going to take care of it, and
+- [03:44.880] she'll stop the invasion of our country
+- [03:46.680] and get fentanyl off our streets, and
+- [03:49.080] we're going to be working with her very
+- [03:50.400] closely. Kristi Noem and
+- [03:52.560] Tom Homan and all of the people are
+- [03:54.400] going to be working very closely with
+- [03:55.920] Pam. She's going to end the
+- [03:57.840] weaponization of federal law enforcement
+- [04:00.080] and restore honesty and integrity at the
+- [04:02.120] DOJ and the FBI, and she's going to be
+- [04:04.680] working with Cash, and she's going to be
+- [04:06.360] working with a lot of other people that
+- [04:07.880] you've been reading about, writing about
+- [04:10.080] over the last
+- [04:11.480] few weeks. The role of Attorney General
+- [04:14.000] comes with immense responsibility, but I
+- [04:16.359] have absolute confidence that Pam
+- [04:19.000] will fulfill her duties with honor and
+- [04:21.400] courage and strength and fairness. She's
+- [04:23.120] going to be fair. She's going to be very
+- [04:24.680] fair. And now I'd like to invite Justice
+- [04:27.480] Thomas to administer the oath of office,
+- [04:30.440] and thank you all for being here. It's a
+- [04:32.040] great very important day, I believe, in
+- [04:34.680] our country's history. Thank you very
+- [04:36.520] much.
+- [04:52.360] I do solemnly swear I, Pamela Bondi, do
+- [04:55.880] solemnly swear that I will support and
+- [04:58.840] defend the Constitution of the United
+- [05:01.360] States that I will support and defend
+- [05:03.880] the Constitution of the United States
+- [05:06.560] against all enemies, foreign and
+- [05:09.160] domestic
+- [05:09.920] against all enemies, foreign and
+- [05:11.880] domestic that I will bear true faith and
+- [05:15.520] allegiance to the same that I will bear
+- [05:18.160] true faith and allegiance to the same
+- [05:21.320] that I take this obligation freely that
+- [05:24.080] I take this obligation freely without
+- [05:26.880] any mental reservation without any
+- [05:29.760] mental reservation or purpose of evasion
+- [05:33.200] or purpose of evasion and that I will
+- [05:36.600] well and faithfully and that I will well
+- [05:39.520] and faithfully discharge the duties of
+- [05:42.520] the office on which I am about to enter
+- [05:45.200] discharge the duties of the office on
+- [05:48.240] which I am about to enter so help me God
+- [05:51.360] so help me God Congratulations.
+- [06:06.720] AND BEFORE PAM SAYS, I just want to
+- [06:09.640] introduce her very, very handsome
+- [06:11.480] husband. I hate being around him. He
+- [06:13.000] looks too good, and he's been a
+- [06:15.120] tremendous factor with Pam, and just a
+- [06:18.200] beautiful relationship. Who's here? And
+- [06:21.280] mother, look how good you look, huh?
+- [06:23.760] Look how good. So, I just wanted to
+- [06:25.280] introduce them, and Pam,
+- [06:27.280] have fun, please.
+- [06:28.880] YOU.
+- [06:35.760] THANK YOU, PRESIDENT TRUMP. I'VE KNOWN
+- [06:37.480] YOU FOR MANY, many years, and I will not
+- [06:40.160] let you down. I am truly honored um
+- [06:43.920] honored that you have asked me to take
+- [06:46.440] on this role, and I will make you proud,
+- [06:48.600] and I will make this country proud.
+- [06:51.080] And I just want to thank um all of my
+- [06:53.640] friends who are here today, my dear
+- [06:55.920] friends and my family, my mom, my
+- [06:58.600] husband, my pastor Aaron Burke is here.
+- [07:01.960] Um
+- [07:02.560] so many of my good friends and my
+- [07:04.640] colleagues. So, thank you all um
+- [07:08.080] so much, and I will restore integrity to
+- [07:11.880] the Justice Department, and I will fight
+- [07:14.640] violent crime throughout this country
+- [07:17.080] and throughout this world and make
+- [07:18.840] America safe again. Thank you.
+- [07:35.160] THANK YOU VERY MUCH, EVERYBODY. THANK
+- [07:36.840] YOU. MR. PRESIDENT, Clarence Thomas is
+- [07:38.600] here. Can we ask about your Gaza
+- [07:39.880] proposal? A lot of people are talking
+- [07:41.200] about obviously Gaza attention.
+- [07:42.800] Everybody loves it, but this is just not
+- [07:44.920] the right time. But we'll maybe do
+- [07:46.480] something later. This is a very
+- [07:48.560] important, and in my opinion, solemn
+- [07:50.480] occasion. So, I don't Mr. President, can
+- [07:51.960] we talk about other other subjects.
+- [07:53.920] Mr. President, What is your top
+- [07:55.560] priority?
+- [07:56.040] What is your top priority, Madam
+- [07:57.960] Attorney General, for this new position
+- [08:00.800] that you've now been sworn into? Well, I
+- [08:02.440] can just say very simply, for me,
+- [08:04.400] overall, very simple. Make America great
+- [08:07.480] again. That's what we're going to do.
+- [08:08.680] We're going to make America great again.
+- [08:10.720] And she's going to take crime out of the
+- [08:12.120] system. As much as anybody can do that,
+- [08:14.840] she's going to do it.
+- [08:16.480] We're going to make America safe again.
+- [08:19.040] Mr. President, All right, guys. Mr.
+- [08:20.400] President, All right, guys.
+- [08:21.840] Thank you. All right, guys. Thank you.
+- [08:23.240] All right, guys.
+- [08:24.560] Hey, guys, let's go. Thank you very
+- [08:25.840] much. Let's go. Thank you, guys. Come
+- [08:26.880] on. Thank you very much.

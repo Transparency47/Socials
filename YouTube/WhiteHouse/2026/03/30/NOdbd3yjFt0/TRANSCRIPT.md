@@ -1,0 +1,518 @@
+<!-- source: https://www.youtube.com/watch?v=NOdbd3yjFt0 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: NOdbd3yjFt0 -->
+<!-- date_published: 2026-03-30T01:47:25+00:00 -->
+<!-- date_accessed: 2026-06-02T01:02:31.758839+00:00 -->
+
+# Transcript: President Trump Gaggles with Press on Air Force One En Route Joint Base Andrews, Mar. 29, 2026
+
+- [00:00.270] The President: Hello everybody.
+- [00:01.510] The Press: Good afternoon, Mr. President.
+- [00:03.080] The President: So we we've had very good negotiations today
+- [00:05.970] with Iran.
+- [00:07.800] Getting a lot of the things that we,
+- [00:09.320] they should have given us a long time ago.
+- [00:11.390] We'll see how it works out.
+- [00:12.620] But they're very good. Moving along very nicely.
+- [00:15.750] And they've destroyed a lot of additional targets today.
+- [00:18.540] The Navy's gone. The Air Force is gone.
+- [00:20.090] We know that.
+- [00:21.390] But we destroyed many, many targets today.
+- [00:23.550] It was a big day.
+- [00:24.780] And we are negotiating with them directly and indirectly.
+- [00:29.240] We have emissaries, but we also are dealing directly.
+- [00:32.870] And as you know, they've agreed to send eight boats
+- [00:37.800] two days ago,
+- [00:39.010] and then they added another two, so it was 10 boats.
+- [00:43.200] And now today they gave us as a tribute,
+- [00:48.100] I don't know, I can't define it exactly,
+- [00:50.070] but they gave us, I think out of a sign of respect,
+- [00:53.940] (Inaudible) boats of oil.
+- [00:55.770] Big, big boats of oil, going through the Hormuz Strait.
+- [01:01.070] And that's taking place starting tomorrow morning.
+- [01:04.790] Over the next couple of days, a lot of boats.
+- [01:08.870] And I would only say that we're doing extremely well
+- [01:13.640] in that negotiation,
+- [01:15.310] but you never know with Iran because we negotiate with them
+- [01:19.240] and then we always have to blow them up.
+- [01:21.380] Whether it's the B2 bombers or just terminating,
+- [01:24.120] as an example,
+- [01:25.410] the Iran nuclear deal done by Barack Hussein Obama,
+- [01:29.270] probably the worst deal we've ever done as a country,
+- [01:31.460] one of the dumbest deals we've ever done.
+- [01:33.890] But I terminated, fortunately,
+- [01:35.390] otherwise right now, they'd have a nuclear weapon.
+- [01:38.590] And we did the attack with the B2 bombers,
+- [01:40.470] and we stopped them from having nuclear.
+- [01:42.010] And now we had to blow them up again.
+- [01:45.920] And we will probably,
+- [01:48.360] I, I think we'll make a deal with them, pretty sure.
+- [01:51.820] But it's possible we won't.
+- [01:54.250] But we've had regime change, if you look already,
+- [01:56.930] because the one regime was decimated, destroyed.
+- [02:01.130] They're all dead. The next regime is mostly dead.
+- [02:06.080] And the third regime, we're dealing with different people
+- [02:08.300] than anybody's dealt with before.
+- [02:09.820] It's a whole different group of people.
+- [02:12.170] So I would consider that regime change.
+- [02:14.380] And frankly, they've been very reasonable.
+- [02:17.670] So I think we've had regime change.
+- [02:19.100] I mean, you can't do much better than that.
+- [02:21.150] The regime that was really bad,
+- [02:23.440] really evil was the first one, that was done.
+- [02:26.250] The second was appointed and they're gone.
+- [02:29.670] They're all dead,
+- [02:32.940] other than one who may have a little life, you know?
+- [02:36.720] And then they're really on the third group
+- [02:39.750] and the third group of people
+- [02:40.980] that seem to be much more reasonable.
+- [02:42.700] It, it truly is regime change.
+- [02:45.550] And, and regime change is an imperative,
+- [02:48.260] but I think we have it automatically.
+- [02:50.740] I did something today.
+- [02:53.470] We just got these in from the architect.
+- [02:55.250] A lot of people are talking about how beautiful
+- [02:58.450] the (Inaudible).
+- [02:59.810] 150 years, they've wanted to build a ballroom
+- [03:05.710] and the White House and other presidents have wanted it
+- [03:10.750] when we have dignitaries coming like President Xi of China
+- [03:14.210] or anybody else, we have very small rooms,
+- [03:17.240] they're not big enough
+- [03:19.040] to handle the kind of capacity that you need.
+- [03:20.700] And this is the same height as the White House.
+- [03:25.350] It's an incredible fitting. You see what that is, right?
+- [03:28.370] Nice? I'll tell you. Here's another view.
+- [03:33.740] This is coming from right opposite the treasury building.
+- [03:39.110] Beautiful capital, beautiful building.
+- [03:42.500] And one of the, I think it'll be the finest ballroom of its kind
+- [03:45.810] anywhere in the world.
+- [03:47.650] A lot of people are giving it really good reviews.
+- [03:49.870] Some are giving it reviews
+- [03:51.130] without even seeing the building,
+- [03:52.390] because this just came out today.
+- [03:54.340] These pictures we just made today.
+- [03:57.450] Uh, we got rid of, a long, quite a while ago,
+- [03:59.820] the stairs were on the south and side,
+- [04:03.470] and it's become really beautiful.
+- [04:05.610] But it, it matches and fits the White House.
+- [04:08.890] It's also capable of handling the inauguration.
+- [04:12.810] Uh, we have all bulletproof glass.
+- [04:15.030] Uh, we have drone-proof roofs, ceilings.
+- [04:19.390] Everything's drone-proof and bullet-proof.
+- [04:22.440] And unfortunately, we're living in an age
+- [04:24.120] where it's a good thing.
+- [04:26.030] And this is the view from the treasury, opposite the treasury.
+- [04:29.330] Let me see another one of them.
+- [04:32.020] Here's a view from the south with the porch,
+- [04:35.280] which is a porch, and it's also a fire stair,
+- [04:37.700] basically leading down to the ground.
+- [04:40.600] And that porch will be magnificent
+- [04:42.590] looking in between the columns.
+- [04:45.320] They no longer, we took the stairs out
+- [04:47.810] that were in the south side
+- [04:49.110] and really replaced them with these here.
+- [04:51.850] So you have an open porch and you have the closed porch
+- [04:54.430] under the columns overlooking the Washington Monument,
+- [04:58.190] the Jefferson Memorial, and the Lincoln Memorial/Monument.
+- [05:04.110] So that's great.
+- [05:07.030] This is a a view of the columns as they are going to be made.
+- [05:14.730] They're going to be hand carved and they're beautiful.
+- [05:17.640] Top of the line, they'll be Corinthian,
+- [05:19.260] which is considered the best, most beautiful by far.
+- [05:24.480] Okay?
+- [05:25.740] The Press: What's your timeline on this thing?
+- [05:27.210] The President: Timeline.
+- [05:28.500] We're, so we're ahead of schedule and under budget,
+- [05:32.440] and all of this money, all of the money paid is,
+- [05:35.560] are paid by myself and donors, and it's all donors.
+- [05:40.410] There's not one dime of government money
+- [05:43.420] going into the ballroom. Now the military is building a,
+- [05:47.200] a big complex under the ballroom,
+- [05:49.570] which has come out recently because of a stupid lawsuit
+- [05:53.560] that was filed, but the military's building
+- [05:56.240] a massive complex under the ballroom,
+- [06:00.150] and that's under construction and we're doing very well.
+- [06:02.220] So we're ahead of schedule. It's part of it.
+- [06:04.700] And the ballroom essentially becomes a shed
+- [06:07.280] for what's being built under the military,
+- [06:09.170] including from drones and including from any other thing.
+- [06:13.730] The glass on the windows, you see the big windows.
+- [06:18.100] The glass is extremely thick.
+- [06:20.400] It's high grade bulletproof glass.
+- [06:22.750] So all of the windows are bulletproof.
+- [06:25.990] I think the Times wrote, too, some of the windows are fake.
+- [06:28.770] We have no fake windows.
+- [06:30.450] They said, they talked about a stairway in the south.
+- [06:32.740] We don't have a stairway in the south.
+- [06:35.250] That was replaced a long time ago.
+- [06:37.330] But this is a view of it from the north.
+- [06:41.530] And that's if you see it, it fits in with the White House.
+- [06:44.050] It's almost a twin to the White House.
+- [06:47.490] It's something we just wanted to pay tribute to the White House.
+- [06:51.610] And so that fits in beautifully.
+- [06:52.990] Let me just see another one. Here's another one.
+- [06:56.130] The Press: When will the Iranian (Inaudible)
+- [06:57.410] The President: Wait, excuse me, wait.
+- [06:58.610] I thought I'd do this now because it's easier.
+- [07:00.190] I'm so busy that I don't have time to do this,
+- [07:04.360] but I'm fighting wars and other things.
+- [07:07.960] But this is very important because this is going to be
+- [07:10.860] with us for a long time and it's going to be,
+- [07:12.660] I think, it'll be the greatest ballroom anywhere in the world.
+- [07:16.210] It's this highest level.
+- [07:18.210] Same height, exact height if not higher,
+- [07:20.400] same height as the White House, exactly the same height.
+- [07:24.590] And if you look, you have the White House over here,
+- [07:26.840] you have this.
+- [07:28.130] And that's a duplicate of the wall.
+- [07:29.720] So it pays total homage to the White House,
+- [07:32.390] which is, I think, very important.
+- [07:34.410] The Press: (Inaudible) deal in Iran this upcoming week?
+- [07:36.270] The President: Say it?
+- [07:37.540] The Press: Sir, could you foresee a deal
+- [07:38.870] in Iran this upcoming week?
+- [07:40.560] The President: I do see a deal in Iran, yeah.
+- [07:42.530] Could be consumed too.
+- [07:43.790] The Press: Are you considering
+- [07:45.000] still putting boots on the ground
+- [07:46.300] and would you do that without going to Congress?
+- [07:47.910] The President: I just have lots of alternatives.
+- [07:49.350] We have tremendous numbers of ships over there.
+- [07:52.810] We don't need them all because of, you know, the power.
+- [07:55.920] Look, the, I would say we're,
+- [07:58.250] just like we're ahead of schedule in the ballroom,
+- [08:00.660] in a much bigger way,
+- [08:01.900] we're ahead of schedule with Iran.
+- [08:04.450] We're weeks ahead of schedule.
+- [08:06.860] If you would have said that in three days
+- [08:08.590] we were going to knock out 158 ships, their entire Navy,
+- [08:12.500] which we did, we knocked out their entire Air Force,
+- [08:15.490] we knocked out most of their missiles,
+- [08:17.270] that's why you see missile attacks
+- [08:18.870] when they're down to, they're sputtering.
+- [08:21.970] And we have a group, it's really a new regime.
+- [08:25.610] It's a new group of people,
+- [08:27.810] people that we've never dealt with before,
+- [08:30.530] that are acting very reasonable. It is truly regime change.
+- [08:34.130] The Press: Is Khamenei's son still alive, sir?
+- [08:35.820] Is he a part of these conversations?
+- [08:37.230] The President: We think he may be with,
+- [08:38.450] nobody's heard about him. I mean, he's he may be alive,
+- [08:41.900] but he's obviously very seriously in trouble.
+- [08:45.790] He's seriously wounded.
+- [08:47.400] The Press: You, you had offered that 15-point plan to Iran.
+- [08:50.450] Did they ever come back with with a response?
+- [08:52.140] The President: They came back on the 15-point.
+- [08:53.350] The Press: What did, what did they say?
+- [08:54.590] The President: They gave us most of the points.
+- [08:55.990] Why wouldn't they?
+- [08:57.220] The Press: And you, you, you, you make it sound like
+- [08:59.500] they've made some concessions. Can you identify those?
+- [09:02.340] The President: Well, they're agreeing with us on,
+- [09:03.650] on the plan.
+- [09:04.890] I mean, we asked for 15 things, and for the most part,
+- [09:07.880] we're going to be asking for a couple of other things.
+- [09:10.820] And just to prove that they're serious,
+- [09:12.390] they gave us all these boats.
+- [09:13.620] When I talked about four days ago,
+- [09:15.060] a present, I said, "They gave me a present,"
+- [09:17.630] but I didn't think I was at liberty to say what it was.
+- [09:21.380] What it was was eight plus two.
+- [09:23.160] It's 10 massive boat loads of oil.
+- [09:27.020] And today they gave us another present.
+- [09:28.930] They gave us 20 boat loads of war
+- [09:30.390] and that starts being shipped tomorrow.
+- [09:32.310] We're having very good meetings, both directly and indirectly,
+- [09:35.490] and I think we're getting a lot of very important points.
+- [09:37.560] The Press: Sir, were you caught off guard
+- [09:38.850] when the Senate passed the DHS Funding Bill?
+- [09:41.190] The President: It's a shame.
+- [09:42.430] They should really just go to a filibuster.
+- [09:44.270] They should terminate the filibuster.
+- [09:46.550] And they should vote. That's what I think.
+- [09:48.160] Look, I think the Senate is playing,
+- [09:52.220] it's playing it too soft.
+- [09:54.220] The Republicans are wonderful people,
+- [09:57.080] but we're dealing with very sick individuals.
+- [09:59.720] The Democrats are sick. There's something wrong.
+- [10:01.780] They're like terrorists and we have to protect our country.
+- [10:05.170] We have to to protect our border.
+- [10:07.260] We have to protect our wall.
+- [10:08.460] It was up to them, they'd open up the wall.
+- [10:11.090] They'd let millions of people pour into our country again,
+- [10:13.630] and we've all been through that.
+- [10:14.930] And I don't care if you're liberal or you're conservative,
+- [10:18.150] what we have now is we have a beautiful, closed border.
+- [10:21.660] We're getting murderers out of our country
+- [10:23.340] that Biden let in,
+- [10:24.570] the administration, the Democrats.
+- [10:26.760] We're getting the drug lords out of our country.
+- [10:28.650] We're bringing them back to other countries
+- [10:30.710] where they came from, from all over the world.
+- [10:33.690] We have great crime numbers despite the fact
+- [10:35.770] that they let in 25 million people,
+- [10:38.390] and we're focused on the bad ones.
+- [10:39.840] I mean, the, the ones that came in,
+- [10:42.120] that's, we'll work on something,
+- [10:43.620] but we have to get the killers out.
+- [10:45.360] We have to get the drug dealers out.
+- [10:47.500] We have to get the criminally insane.
+- [10:49.170] We have people that are criminally insane.
+- [10:50.920] They are unbelievably violent people
+- [10:54.870] that come out of insane asylums.
+- [10:56.870] The Democrats want them protected.
+- [10:59.110] I want them out. They have to be out.
+- [11:00.540] The Press: Did you sign a DHS deal without ICE --
+- [11:01.750] The President: You can't have a country if they're here.
+- [11:03.400] The Press: Did you sign a DHS deal without ICE funding in it?
+- [11:06.870] The President: ICE is vital to the wellbeing of our country.
+- [11:11.970] ICE is, first of all, they're great patriots,
+- [11:15.100] but they are physically and mentally very strong people.
+- [11:18.850] And they are able to protect us
+- [11:20.930] from the animals that have been sent in,
+- [11:23.630] allowed to be sent in by the Biden administration
+- [11:26.940] where your people, jails, jails were prisons from Venezuela,
+- [11:32.610] from the Congo, from all over the world,
+- [11:34.740] every, from every continent,
+- [11:37.160] they were allowed to come into our country,
+- [11:39.800] totally unchecked, totally unvetted.
+- [11:42.660] You can't have a soft, weak, sad person deal with this.
+- [11:49.390] You need strong people.
+- [11:50.960] Now, they love our country. They're very brave.
+- [11:54.420] They're very strong, like some of these guys.
+- [11:57.840] But you have to have these people removed
+- [12:00.740] or you don't have a country.
+- [12:02.340] So we had the best crime numbers that we've had.
+- [12:05.840] Murder numbers, the best in 125 years.
+- [12:08.660] Think of it. Since the year 1900,
+- [12:11.020] before my father was born by a lot,
+- [12:13.830] we have the best crime numbers,
+- [12:15.530] and we're going to keep it that way,
+- [12:17.030] and that's despite the fact that so many criminals
+- [12:19.300] were allowed into our country.
+- [12:21.710] So we need ICE, we need Border Patrol.
+- [12:24.740] Uh, the last thing you people want to see
+- [12:26.580] is our country overrun again by criminals,
+- [12:28.830] and that's not going to happen.
+- [12:30.240] We're not going to let that.
+- [12:31.640] And by the way, our country doesn't want that.
+- [12:33.370] The Press: Mr. President, some Republicans,
+- [12:34.890] including Senator Mike Lee,
+- [12:36.130] say reconciliation won't work to pass the SAVE America Act
+- [12:39.370] because it's not budget-related. What's your response to that?
+- [12:41.640] The President: Well, they say, and they'll have to,
+- [12:43.270] the parliamentarians are going to have
+- [12:44.820] to make a decision on that.
+- [12:47.010] But I, again, I say end the filibuster,
+- [12:50.670] terminate the filibuster, just vote,
+- [12:53.230] and you'll get everything you want.
+- [12:54.460] You get all five things.
+- [12:55.680] We have voter ID, we have proof of citizenship.
+- [12:59.770] It's so important.
+- [13:00.990] Mail-in ballots have to be stopped,
+- [13:02.900] with exceptions for the military, for sick people,
+- [13:05.340] people that are sick, people disabled.
+- [13:09.060] For people that are traveling,
+- [13:10.460] if you're traveling, you can vote.
+- [13:12.710] But other than that, mail-in ballots
+- [13:14.370] are inherently dishonest.
+- [13:15.660] Jimmy Carter, in his Carter Commission,
+- [13:17.650] said you can't have mail-in ballots.
+- [13:19.550] We're the only country in the world
+- [13:22.090] that has mail-in ballots.
+- [13:24.320] We're the only country in the world that has, you know,
+- [13:27.570] we have a big case becoming in the S- --
+- [13:30.140] Supreme Court that had to do with the,
+- [13:34.530] the babies of slaves after the Civil War.
+- [13:38.940] And instead of that, it's being used as a way for rich countries
+- [13:42.860] and thousands and thousands of people from China coming in
+- [13:47.020] and getting citizenship for people within their family.
+- [13:50.490] This is not what they meant when they did that.
+- [13:53.450] So that's a big decision coming up.
+- [13:56.870] But if you look at it and you look at what we've done here,
+- [13:59.660] we have five points.
+- [14:00.880] We don't want men playing in women's sports.
+- [14:03.130] The Democrats do.
+- [14:05.050] Uh, we don't want transgender mutilization of our children.
+- [14:09.530] The Democrats are just fine with it.
+- [14:11.660] They could, they could, you could do every child
+- [14:13.500] in America, they'd be very happy.
+- [14:15.490] We don't want the mutilization of our children,
+- [14:19.550] this transgender, and we're not going to have it.
+- [14:21.990] So we want to go into those things five points.
+- [14:25.110] And with the filibuster termination,
+- [14:27.390] you could vote them all in.
+- [14:28.670] The Republicans would have to vote.
+- [14:30.250] The Press: Mr. President, Leader Thune told me
+- [14:31.800] that they do not have the votes to terminate the filibuster.
+- [14:33.690] How will you get around that?
+- [14:35.050] The President: I know, but, but that's part
+- [14:36.280] of being a leader, you have to get the votes.
+- [14:37.550] The Press: Do you have confidence in Leader Thune?
+- [14:38.790] The President: I mean, I like him so much.
+- [14:40.000] He's a -- he's a high-quality person.
+- [14:43.310] And he told me the same thing, "We don't have the votes."
+- [14:45.190] Well, he's only a couple of votes short.
+- [14:46.640] But that's what being a leader is,
+- [14:48.900] you have to get the votes. You have to get the votes.
+- [14:52.080] And those people will not be able to withstand the onslaught
+- [14:56.050] because Republicans and the country wants it.
+- [14:58.600] You know, it's polling at 87%, voter ID.
+- [15:02.490] Think of it. We're talking about SAVE America,
+- [15:05.100] and it's not SAVE Act, it's SAVE America Act
+- [15:06.960] because it's saving America.
+- [15:08.230] SAVE Act, nobody knows what it's saving.
+- [15:09.940] It's the SAVE America Act. And you have to have it.
+- [15:14.590] You have to have it. The SAVE America Act, voter ID,
+- [15:17.630] all of these things, proof of citizenship,
+- [15:20.910] it's an 87% issue with all voters, including Democrats.
+- [15:25.510] The only ones that don't want it are Schumer
+- [15:28.330] and these corrupt Democrat leaders
+- [15:30.830] because it will not give them the ability
+- [15:33.320] to cheat in an election.
+- [15:35.500] Look, why wouldn't you want voter ID?
+- [15:37.560] There's not a reason in the world
+- [15:38.990] you wouldn't want it except to cheat.
+- [15:41.110] And if they don't cheat, their policy is so bad,
+- [15:42.980] they'll never win another election.
+- [15:44.210] The Press: Mr. President,
+- [15:45.430] Friday you mentioned that Cuba will be next.
+- [15:47.160] What did you mean by that exactly?
+- [15:48.410] The President: Who will be next?
+- [15:49.620] The Press: Cuba.
+- [15:50.830] The President: Yeah, Cuba's going to be next.
+- [15:52.060] Cuba's going to be -- The Press: In what way?
+- [15:53.590] The President: Cuba's a mess, it's a failing country,
+- [15:56.120] and they're going to be next.
+- [15:57.470] Within a short period of time, it's going to fail,
+- [16:00.330] and we will be there to help it out.
+- [16:03.710] We'll be there to help our great Cuban Americans
+- [16:06.560] out who were thrown out of Cuba.
+- [16:07.860] In many cases, their family members were mutilated
+- [16:11.530] and killed by Castro.
+- [16:13.610] Now, Cuba's going to be next, yeah. Say it.
+- [16:18.040] The Press: Are you considering withdrawing Casey Means
+- [16:20.050] for Surgeon General and nominating someone else?
+- [16:22.270] The President: Well, we're looking
+- [16:23.560] at a lot of different things,
+- [16:25.650] and I don't know how she's doing in the nomination process.
+- [16:31.420] I'm more focused on Iran.
+- [16:33.770] But you know, something like that would be possible.
+- [16:37.420] We probably, certainly have a lot of,
+- [16:38.710] we have a lot of great candidates for that.
+- [16:40.980] The Press: Do you still have confidence
+- [16:42.230] in Tulsi Gabbard, sir?
+- [16:43.810] The President: Yeah, sure I do. Sure.
+- [16:45.420] I mean, she's a little bit different
+- [16:46.900] in her thought process than me,
+- [16:48.280] but that doesn't make somebody not available to serve.
+- [16:52.290] The Press: Is she on the same page as you?
+- [16:53.570] The President: I would say, I would say
+- [16:54.890] that I'm very strong on the fact
+- [16:56.900] that I don't want Iran to have a nuclear weapon,
+- [17:00.750] because if they had a nuclear weapon,
+- [17:02.170] they'd use it immediately.
+- [17:03.400] I think she's probably a little bit softer on that issue,
+- [17:05.660] but that's okay. Some people are.
+- [17:07.630] Most people aren't. Most people are saying,
+- [17:09.450] "Thank you very much for doing what you did."
+- [17:12.570] They are decimated right now.
+- [17:14.700] They're going to give up nuclear weapons.
+- [17:16.350] They're going to give us the nuclear dust.
+- [17:18.650] They're going to do everything that we want to do.
+- [17:20.660] And you know what? They're going to go on
+- [17:22.220] and maybe have a great a great country again.
+- [17:26.610] But if they don't do that,
+- [17:28.090] they're not going to have a country.
+- [17:29.850] They're not even going to have a country.
+- [17:31.490] So she's softer on that issue,
+- [17:33.790] but I have other people, not too many.
+- [17:35.780] That's an issue that we've had great support.
+- [17:37.950] You saw the CNN poll where Trump with MAGA,
+- [17:41.050] and I think MAGA's most of the Republican Party,
+- [17:43.940] is 100% approval.
+- [17:45.830] In fact, the young gentleman that does the poll is very good,
+- [17:50.040] actually, because he's honest.
+- [17:52.180] He said, "I've never seen 100% before."
+- [17:53.970] I'm 100% in the CNN poll, which just came out.
+- [17:57.090] Thank you very much, everybody.
+- [17:58.450] The Press: No, no. One, one more thing on Cuba.
+- [18:00.110] There's a report that the U.S.
+- [18:01.580] is going to let a Russian oil tanker go to Cuba.
+- [18:03.440] Is that true?
+- [18:04.780] The President: Well, we have a tanker out there.
+- [18:06.010] We don't mind having somebody get a boatload
+- [18:08.700] because they need, they have to survive.
+- [18:10.880] The Press: So that, that report is true as far as you know or?
+- [18:13.040] The President: Well, I would say,
+- [18:14.290] I told them,
+- [18:15.680] if a country wants to send some oil into Cuba right now,
+- [18:19.080] I have no problem with it.
+- [18:20.300] The Press: Do you worry that that helps Vladimir Putin?
+- [18:21.770] The President: Whether it's, whether it's Russia or not.
+- [18:22.970] What? The Press: Do you worry
+- [18:24.170] that that helps Vladimir Putin though?
+- [18:25.560] The President: Doesn't help him.
+- [18:26.800] He loses one boat load of oil, that's all it is.
+- [18:29.390] It's fine. If he wants to do that,
+- [18:31.460] and if other countries want to do it, doesn't bother me much.
+- [18:34.700] It's not going to have an impact.
+- [18:36.920] Cuba's finished. They have a bad regime.
+- [18:39.680] They have very bad and corrupt leadership.
+- [18:42.400] And whether or not they get a boat of oil,
+- [18:44.240] it's not going to matter. I'd, I'd prefer letting it in,
+- [18:47.740] whether it's Russia or anybody else,
+- [18:49.520] because the people need heat and cooling
+- [18:52.840] and all of the other things that you need.
+- [18:54.430] Go ahead.
+- [18:55.650] The Press: No. The issue of the Strait of Hormuz
+- [18:57.730] and Iran control of it and, and charging tolls,
+- [19:00.900] what do you think about that or what, what --
+- [19:02.490] The President: Well, I have to find out if it's true.
+- [19:03.810] I mean, you know, they're going to do whatever they have to do.
+- [19:06.920] We could close that up at two minutes.
+- [19:09.180] We could close that up so fast, your head would spin.
+- [19:12.310] The Press: Do you want to see Gulf countries
+- [19:13.910] that are being attacked by Iran to start to fight back?
+- [19:17.000] The President: They are fighting back.
+- [19:18.490] Saudi Arabia's fighting back hard.
+- [19:20.990] Qatar is fighting back.
+- [19:23.350] UAE is fighting back. Kuwait's fighting back.
+- [19:26.690] Bahrain's fighting back. They're all fighting back.
+- [19:28.730] Actually, they were surprised to be hit.
+- [19:30.350] I was very surprised they got hit.
+- [19:32.880] And once they got hit, they started fighting very well.
+- [19:35.860] We're very strong communications with all of those countries
+- [19:39.270] and they've all been fighting. They're 100% on our side.
+- [19:41.090] The Press: Mr. President,
+- [19:42.320] how long can you pay TSA workers for?
+- [19:43.580] (Inaudible)
+- [19:44.780] how long can you pay TSA workers from the One Big Beautiful Bill?
+- [19:47.540] The President: Well, we're going to pay them for
+- [19:48.930] as long as we have to. And I will tell you,
+- [19:50.870] the ICE workers have been amazing.
+- [19:53.290] And that's helping people with their bags.
+- [19:56.020] It's very interesting.
+- [19:57.280] We put ICE there and ICE got a very unfair press.
+- [20:00.490] They're doing an amazing job
+- [20:01.970] getting hardened criminals, murderers.
+- [20:03.360] 11,888 murderers were allowed to come
+- [20:07.930] into our country through Biden, and ICE has been amazing.
+- [20:11.260] Now, we said,
+- [20:12.620] "Give us a little hand during this period of time,"
+- [20:14.590] because this is caused by Democrat terrorists.
+- [20:17.230] These people are sick.
+- [20:18.460] They don't care about our country.
+- [20:19.900] They don't care about people. But what it's all about really
+- [20:22.640] is they want to have open borders
+- [20:24.080] and they want to have criminals come into our country
+- [20:25.990] so they can get more votes
+- [20:27.680] because they're losing votes fast.
+- [20:29.190] Look at how I did with the Hispanic population,
+- [20:32.140] and now I'm doing even better with the Hispanic population.
+- [20:36.020] And that's bad for them. They always had it.
+- [20:37.720] Now they don't have it anymore.
+- [20:39.550] Uh, these are people that want our country to fail,
+- [20:41.540] and the, and the voters see that.
+- [20:43.010] Thank you very much, everyone.

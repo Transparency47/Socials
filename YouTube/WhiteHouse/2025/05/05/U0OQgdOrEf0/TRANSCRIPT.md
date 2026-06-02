@@ -1,0 +1,328 @@
+<!-- source: https://www.youtube.com/watch?v=U0OQgdOrEf0 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: U0OQgdOrEf0 -->
+<!-- date_published: 2025-05-05T01:16:07+00:00 -->
+<!-- date_accessed: 2026-06-02T01:26:46.866260+00:00 -->
+
+# Transcript: President Trump Gaggles with the Press on Air Force One, May 04, 2025
+
+- [00:00.560] Hello everybody. Good evening, sir. Nice
+- [00:03.360] plane. Everyone having good time. We'll
+- [00:05.520] be back in Washington soon.
+- [00:08.639] We have a lot of good news to report and
+- [00:11.040] uh you'll be hearing about it. Probably
+- [00:12.719] not now, but you'll be hearing about it.
+- [00:15.599] We've had some good things coming out of
+- [00:18.080] the many war zones that were created by
+- [00:20.240] Biden and the group of incompetent
+- [00:22.519] people. But I think we have some pretty
+- [00:24.640] good news. So, talk about that later or
+- [00:27.400] tomorrow. Any questions? Any plans to
+- [00:30.800] speak with President Xi this week? No.
+- [00:33.920] No plans to speak to him, but China and
+- [00:36.559] our people are talking about different
+- [00:38.320] things. Yeah. Why did he assign so that
+- [00:41.840] his position as a national security
+- [00:43.440] adviser? I actually think it's a uh
+- [00:46.480] higher position. I want to know that. I
+- [00:48.960] think it's an upgrade. Think moving him
+- [00:51.280] there's an upgrade. Mr. Monday, during
+- [00:53.760] the News Nation town hall, you said that
+- [00:56.480] you didn't make any mistakes in your
+- [00:58.000] personal days. Was a friend of mine as
+- [01:01.199] your national security advisor? No, it's
+- [01:03.520] irrelevant. It's not a mistake or not a
+- [01:05.519] mistake. It's not a big deal. He's he
+- [01:08.400] was fine and and uh where he is, he'll
+- [01:11.280] do a good job. I don't consider that I
+- [01:14.960] didn't lose confidence in him. Why did I
+- [01:17.520] lose confidence? He's going to the
+- [01:19.360] United Nations represent to me. I think
+- [01:21.280] it's personally if I had a choice for
+- [01:23.840] myself of doing it, I'd rather have that
+- [01:25.520] job than the other. Did he resign on his
+- [01:27.840] own or did you He didn't resign. Resign.
+- [01:31.759] I just moved him. There was no
+- [01:33.079] resignation. You people are so bad. Mr.
+- [01:35.600] President, you know, you're trying to
+- [01:36.720] make a big deal out of something. That's
+- [01:38.560] You are so bad. That's why nobody
+- [01:40.880] watches you anymore. Who are you with,
+- [01:43.119] Mr. President? Who are you with?
+- [01:45.920] You're with who? First. I didn't know
+- [01:48.320] there was such a thing.
+- [01:50.560] Any trade deals coming this week? Uh, it
+- [01:52.960] could very well be. Can you tell us more
+- [01:55.040] about that? Nobody
+- [01:56.840] understands. We're negotiating with many
+- [01:59.479] countries, but at the end of this, I'll
+- [02:01.759] set my own deals because I set the deal.
+- [02:03.920] They don't set the deal. I send the
+- [02:05.360] deal. They've been ripping us off for
+- [02:07.280] years. I set the deal. Sir, every
+- [02:10.239] country almost without fail, friend and
+- [02:13.120] foe, has been ripping us off for years.
+- [02:15.440] So, we're meeting with almost all of
+- [02:17.200] them, including China, and at the end,
+- [02:20.239] I'm setting the deal. They keep saying,
+- [02:23.200] "What are you going to This is not like
+- [02:24.800] a big deal that's going to be signed. In
+- [02:26.560] some cases, we'll sign, but we don't
+- [02:28.319] have to have I'm going to be setting the
+- [02:30.239] deal. I'll be setting a tariff. You keep
+- [02:32.560] asking the same question. When will you
+- [02:35.160] agree? It's up to me. It's not up to
+- [02:37.760] them. It's up to me." Now they don't
+- [02:39.519] have to deal with us, which is okay cuz
+- [02:41.680] we lost under Biden. We're losing $5
+- [02:44.239] billion a day. Think of it. $5 billion a
+- [02:48.360] day. Now we're not dealing with China at
+- [02:51.200] all because the tariffs so high that
+- [02:53.360] they basically can't deal. And because
+- [02:56.400] of that, we're saving up billions of
+- [02:58.640] dollars. You know, but just and I'm not
+- [03:01.440] saying this to be a wise guy with you,
+- [03:03.120] to be mean. I want to be mean to you.
+- [03:04.800] You're, you know, good professional.
+- [03:07.440] But you do keep asking me that same
+- [03:10.040] question. It's not like we're going to
+- [03:12.159] sit down in an ivory room and we're
+- [03:14.000] going to just He's going to say there'll
+- [03:15.920] be some of that. Very little. I see a
+- [03:18.959] lot of it. At some point in the next two
+- [03:22.400] weeks or 3 weeks, I'm going to be
+- [03:24.080] setting the deal. I'm going to say that
+- [03:26.560] such and such a country has had a
+- [03:29.200] tremendous trade surplus surplus their
+- [03:32.159] way with us. They've taken advantage of
+- [03:34.799] us in various ways. And uh we fully
+- [03:38.239] understand what they were doing. We we
+- [03:40.000] were being led by people that were not
+- [03:42.480] very smart. They were able to be taken
+- [03:44.319] advantage of, but I can't be taken
+- [03:45.760] advantage of. So at some at a certain
+- [03:47.680] point, I'll be just setting a certain
+- [03:50.319] tariff
+- [03:56.200] number in Africa. There's a waiver in
+- [03:59.599] place, but people are saying to my
+- [04:01.439] colleagues that they're still not
+- [04:02.879] getting medicines and UNID. Well, that
+- [04:05.439] shouldn't be happening. But the other
+- [04:06.720] thing uh other countries should be
+- [04:08.799] helping us with that and I'm a big fan
+- [04:11.840] of getting that solved but you know
+- [04:14.720] we're the only country where are the
+- [04:16.079] other where is France where is Germany
+- [04:18.239] where are these other countries nobody
+- [04:20.320] does anything but the United States and
+- [04:22.560] we spend you know billions and billions
+- [04:24.560] of dollars so they should be helping
+- [04:26.880] also but as you know we did a waiver you
+- [04:29.280] know that right well I can't help that
+- [04:32.240] because if we did a waiver then you have
+- [04:34.320] to get your people to act properly in
+- [04:36.880] the waiver. But I do ask, why are we the
+- [04:39.680] only country doing it? Mr. President,
+- [04:42.560] what's your timeline on the rest of your
+- [04:44.080] judicial nominations and what's your
+- [04:45.759] criteria when you're moving? What's your
+- [04:47.520] nominations? The future judicial
+- [04:49.360] nominations for the federal judge
+- [04:50.720] positions. Well, we're putting them in
+- [04:52.240] rapidly. We're trying to get very good
+- [04:54.000] ones. I mean, we need judges that are
+- [04:56.320] not going to be demanding trials for
+- [04:58.240] every single illegal immigrant. We have
+- [05:00.639] millions of people that have come in
+- [05:02.800] here illegally and we can't have a trial
+- [05:05.440] for every single person. That would be
+- [05:07.199] millions of trials. The people elected
+- [05:10.160] me in a landslide with every single We
+- [05:13.120] won every swing state. We won everything
+- [05:14.880] there is to win by big numbers. Not only
+- [05:18.000] swing state, we won the popular vote by
+- [05:19.840] millions of votes. They elected me. This
+- [05:22.639] was the number one issue. But now we
+- [05:24.240] have judges that are radicalized and
+- [05:27.199] they're crazy because they want us to
+- [05:29.919] have, if you believe this, they want us
+- [05:32.320] to have a trial for every person that
+- [05:34.400] came in illegally into our country. So
+- [05:36.720] they come into our country illegally and
+- [05:39.039] then we're supposed to take weeks, I
+- [05:40.800] guess, and months to have a trial on
+- [05:43.039] every criminal. And we have murderers
+- [05:44.560] all over the country. I don't think the
+- [05:46.720] Supreme Court will stand for that. I
+- [05:48.479] can't believe it because you know what?
+- [05:49.840] If they do, we're not going to have a
+- [05:51.039] country.
+- [05:52.880] Go ahead. How will you make sure that
+- [05:54.080] the judges that you appoint are
+- [05:55.280] different than that? All you can do is
+- [05:56.960] do the best you can. You know, you you
+- [05:59.440] try and appoint the best people to being
+- [06:01.440] judges or anything else that you
+- [06:03.080] appoint. But so far, you know, we've
+- [06:05.199] been very disappointed with the
+- [06:06.800] decisions that come out and mostly from
+- [06:09.280] the people appointed by others than me.
+- [06:12.639] But it's just so hard to believe that
+- [06:15.280] you have a murderer. many, you know, we
+- [06:17.680] have
+- [06:19.160] 11,888 or whatever the number is, but we
+- [06:22.479] have thousands of murderers in this
+- [06:24.240] country. We're getting them out. And
+- [06:26.639] they say, "We don't want them out. We
+- [06:28.319] want them to stay in our country until
+- [06:29.840] they have a trial." Trials take years.
+- [06:33.520] They take years. It's so crazy. We won't
+- [06:36.479] have a country left. We can't have that
+- [06:38.160] happen.
+- [06:42.160] Who you with? Wall Street Journal.
+- [06:43.919] That's right. Well, you you people treat
+- [06:45.520] us so badly. Wall Street Journal has
+- [06:47.759] truly gone to hell. Go ahead. A rotten
+- [06:50.160] newspaper. Yeah. What I said, it's a
+- [06:52.880] rotten newspaper.
+- [06:55.759] Are there any updates under
+- [06:59.360] uh I wouldn't tell the Wall Street
+- [07:00.800] Journal because they'd be wasting my
+- [07:02.319] time. Uh there are talks, but I I don't
+- [07:04.639] want to talk to the Wall Street Journal.
+- [07:06.000] But look, Wall Street Journal is China
+- [07:09.080] oriented and they're really bad for this
+- [07:11.599] country. You say you want a deal. You
+- [07:13.759] say you want a fair deal with China.
+- [07:15.440] What does a fair deal look like that you
+- [07:17.759] want them to Well, you know, I want a
+- [07:19.199] fair deal with China, but China's been
+- [07:20.720] ripping us off for many years. So maybe
+- [07:22.479] something should be thought about, you
+- [07:24.680] know, a little bit of retribution.
+- [07:27.919] China's been ripping us off for many
+- [07:29.840] years. Ever since they started. To me, I
+- [07:32.319] think it was the worst thing that
+- [07:33.360] Richard Nixon ever did. And it was a
+- [07:36.240] Nixon, you know, he's the one that got
+- [07:37.599] it started and they've taken advantage
+- [07:39.759] of numbers. No, Mexico's president is
+- [07:43.520] claiming that you send US troops into
+- [07:46.479] Mexico and she said that she didn't want
+- [07:48.639] them in Mexico. Is that true? Can you
+- [07:50.400] tell us about those? So, Mexico is
+- [07:52.240] saying that I offered to send US troops
+- [07:55.199] into Mexico to take care of the cartel.
+- [07:57.440] She wants to know, is that true? Do you
+- [08:00.000] think I'm going to answer that question?
+- [08:02.000] That's why I'm asking. We'll see. I will
+- [08:04.000] answer it. It's true.
+- [08:06.960] do that because they should be they are
+- [08:10.639] horrible people that have been killing
+- [08:12.319] people left and right that have been
+- [08:15.039] they've made a fortune on selling drugs
+- [08:16.960] and destroying our people. We lost
+- [08:18.800] 300,000 people last year to fentinol and
+- [08:22.000] drugs. Uh they're bad news. Yeah, that's
+- [08:24.720] true. If Mexico wanted help with the
+- [08:27.039] cartels, we would be honored to go in
+- [08:28.879] and do it. I told her that. I would be
+- [08:31.280] honored to go in and do it. The cartels
+- [08:33.440] are trying to destroy our country.
+- [08:35.519] They're evil. And you know, we had
+- [08:37.680] 300,000 people die last year from
+- [08:40.240] fentinol and all of that. We had
+- [08:42.240] hundreds we had millions of people
+- [08:43.919] brought into this country that shouldn't
+- [08:46.080] be here. The cartels brought him in. So
+- [08:48.800] if she said that I offered to do that,
+- [08:50.560] she's 100%. But are you disappointed
+- [08:52.480] that she denied that request that she
+- [08:54.399] doesn't want? Well, she's so afraid of
+- [08:55.920] the cartel, she can't walk. So, you
+- [08:57.760] know, that's the reason. And I think
+- [08:59.279] she's a lovely woman, but the president
+- [09:01.920] of Mexico is a lovely woman, but she is
+- [09:05.279] so afraid of the cartels that she can't
+- [09:07.120] even think straight. Sir, on Friday, you
+- [09:09.200] told Mr. Walker that maybe a little girl
+- [09:12.320] was supposed to read 35 novels, maybe.
+- [09:15.040] Oh, let's let's what All I'm saying is
+- [09:19.200] that a that you don't that a uh young
+- [09:22.800] lady, a 10year-old girl, 9year-old girl,
+- [09:26.240] a 15y old girl doesn't need
+- [09:29.320] $37. She could be very happy with two or
+- [09:32.320] three or four or five. I would I
+- [09:34.720] wouldn't Let's not waste a lot of time
+- [09:36.240] on a stupid question. What else?
+- [09:42.160] calling each
+- [09:43.480] road heading to Governor Los Angeles.
+- [09:47.600] Well, if that I don't know about it, but
+- [09:49.040] I'm honored if that's the case. If
+- [09:50.959] they're going to name a road after me,
+- [09:52.959] if that's the case, uh I'm honored.
+- [09:54.959] Thank you very much.
+- [09:57.760] Consider to be your permanent national
+- [09:59.440] security. Well, I have a lot of people
+- [10:01.440] that want the job. I can tell you it's
+- [10:04.480] uh I mean you know a lot of people say
+- [10:06.800] it really works in with what Marco is
+- [10:09.080] doing but uh we have a lot of people I'm
+- [10:12.080] going to be naming somebody but we we'll
+- [10:14.240] make
+- [10:15.920] uh I would say within six months
+- [10:20.079] he would do the job permanently but I
+- [10:21.839] don't I think it's you know it's an
+- [10:23.680] appropriate job. Are you considering
+- [10:25.200] Stephen Miller Are you considering
+- [10:27.440] Stephen Miller Steven Miller is at the
+- [10:30.000] top of the totem pole. I mean, I think
+- [10:31.600] he sort of indirectly already has that
+- [10:34.000] job, you understand, because he has a
+- [10:36.959] lot to say about a lot of things. He's a
+- [10:40.000] very valued uh person in the
+- [10:42.320] administration. Stephen, we reached 100
+- [10:44.880] days. What do you see as your main
+- [10:46.560] agenda items for the next 100? I think
+- [10:48.240] we have the greatest 100 days in the
+- [10:50.160] history of our country for an
+- [10:51.839] administration. I think we've done more.
+- [10:54.320] We've gotten rid of woke. We're
+- [10:55.920] strengthening up our military. Think of
+- [10:57.920] it. Six months ago, we had the worst uh
+- [11:02.959] numbers in the history of our military
+- [11:04.959] for joining up joining our military and
+- [11:07.320] police. Now we have the best numbers
+- [11:09.920] we've ever had. You just think of that.
+- [11:12.480] It's not even possible. Inflation's
+- [11:15.040] down. Uh all costs are down. Everything
+- [11:18.560] is down other than, as Tristan said, the
+- [11:22.720] uh thing that you carry the babies
+- [11:24.720] around in, but that's up 3%. Uh energy
+- [11:28.480] is down, gasoline's down. Uh nobody's
+- [11:32.480] ever seen anything far ahead of
+- [11:33.920] schedule. So people that were paying a
+- [11:36.160] lot for groceries, they're paying a lot
+- [11:38.200] less. And interest rates are even down.
+- [11:40.959] You know, we have a very stubborn Fed,
+- [11:42.640] but in I mean Fed's lower, but you know,
+- [11:45.760] that's okay. But interest rates are
+- [11:47.760] down. Mortgage rates are down and pretty
+- [11:49.800] amazing. So we've done I think I don't
+- [11:52.399] think there's ever been a better opening
+- [11:54.959] 100 days. We have a lot of fake polls
+- [11:56.480] where they interview Democrats, not
+- [11:58.160] Republicans, but uh meaning more
+- [12:00.519] Democrats. I had a pollster that said to
+- [12:02.800] me, a legitimate pollster, John
+- [12:04.320] McLaclin, top person. He said he's never
+- [12:07.279] seen polls that were so fake before
+- [12:09.600] where they overweight the
+- [12:12.440] Democrats. And I only bring that up
+- [12:14.800] because I think it's something that
+- [12:15.920] should be said. It's it's a shame how
+- [12:18.399] dishonest the media is. The media is
+- [12:20.320] corrupt and they're dishonest and
+- [12:22.079] they're so bad for our country. Thank
+- [12:24.000] you very much everybody.

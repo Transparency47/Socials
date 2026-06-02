@@ -1,0 +1,43 @@
+# YouTube / WhiteHouse / 2025-09-23
+
+- Posts: 13
+
+- [22:55 UTC - President Trump Participates in a Multilateral Meeting](0gWwSz_3oas/)
+  - Source: https://www.youtube.com/watch?v=0gWwSz_3oas
+  - [00:00.640] So, this is going to be a very important - [00:02.240] meeting. It's going to be a meeting with - [00:04.400] great leaders from a very important part - [00:07.759] o...
+- [21:51 UTC - America's best days are still ahead - just like Charlie always said. ❤️](WuyBOENloZo/)
+  - Source: https://www.youtube.com/watch?v=WuyBOENloZo
+  - [00:00.080] Massive crowds gathering to honor and - [00:01.920] pay their respects to Turning Point USA - [00:04.080] founder Charlie Kirk. - [00:05.600] >> The memorial drawing...
+- [21:25 UTC - President Trump has a Pull-Aside with the President of France](cuuQRs4O2NQ/)
+  - Source: https://www.youtube.com/watch?v=cuuQRs4O2NQ
+  - [00:00.160] Well, thank you very much everybody. - [00:01.600] It's a great honor to be with a friend - [00:04.080] of mine, Emanuel Mcronone, President of - [00:06.640] France....
+- [21:25 UTC - President Trump has a Pull-Aside with the President of Uzbekistan](n4m2stWuAEc/)
+  - Source: https://www.youtube.com/watch?v=n4m2stWuAEc
+  - [00:00.480] Well, thank you very much. It's a great - [00:02.000] honor to be with the president of - [00:04.000] Usuzbekiststan. - [00:05.600] Uh he's highly respected. Been the...
+- [19:04 UTC - President Trump Participates in a Bilateral Meeting with the President of Ukraine](IRV9DQUUnpM/)
+  - Source: https://www.youtube.com/watch?v=IRV9DQUUnpM
+  - [00:00.480] We've had an interesting day. I think a - [00:02.080] very productive day and we're now - [00:05.279] meeting with we're going to start a - [00:06.799] meeting with t...
+- [17:48 UTC - President Trump has a Pull-Aside with the President of the European Commission](Yjpocon6sm0/)
+  - Source: https://www.youtube.com/watch?v=Yjpocon6sm0
+  - [00:01.040] Well, thank you very much. It's a great - [00:02.560] honor to be with a very powerful, very - [00:04.720] smart woman and a friend of mine, become - [00:06.480] a fr...
+- [17:48 UTC - President Trump has a Pull-Aside with the President of the Argentine Republic](dCErnGOnxPI/)
+  - Source: https://www.youtube.com/watch?v=dCErnGOnxPI
+  - [00:00.320] Well, thank you very much everybody. We - [00:02.800] have a lot of meetings scheduled, but I - [00:04.799] wanted to meet with the president of - [00:07.520] Argenti...
+- [16:35 UTC - President Trump Participates in a Bilateral Meeting with the Secretary-General of the United Nations](a8LcMWQVJys/)
+  - Source: https://www.youtube.com/watch?v=a8LcMWQVJys
+  - [00:03.679] I will repeat what I said. - [00:06.799] You - [00:06.960] >> go ahead. - [00:08.800] Very nice. I love that. - [00:10.559] >> Now I I want to say that you are very -...
+- [15:10 UTC - President Trump Delivers Remarks to the United Nations General Assembly](fpD_GViQe_A/)
+  - Source: https://www.youtube.com/watch?v=fpD_GViQe_A
+  - [00:04.871] (applause) - [00:19.919] The President: Thank you very much. - [00:22.222] Very much appreciate it. - [00:29.262] And I don't mind making this speech without a - [00:...
+- [14:40 UTC - President Trump at UNGA: "This is indeed the Golden Age of America."](16LNUUlXhrs/)
+  - Source: https://www.youtube.com/watch?v=16LNUUlXhrs
+  - [00:00.000] America is blessed with the strongest - [00:02.159] economy, the strongest borders, the - [00:05.359] strongest military, the strongest - [00:07.120] friendships, and...
+- [13:56 UTC - FLASHBACK: UNGA 2019](SvklQPSMUGA/)
+  - Source: https://www.youtube.com/watch?v=SvklQPSMUGA
+  - [00:00.000] Americans know that in a world where - [00:02.879] others seek conquest and domination, - [00:06.319] our nation must be strong in wealth, in - [00:09.599] might, and...
+- [13:49 UTC - President Trump at UNGA in 2018: "In America we believe in the majesty of freedom" 🇺🇲️🦅](ErLdmAvdvX4/)
+  - Source: https://www.youtube.com/watch?v=ErLdmAvdvX4
+  - [00:00.080] The United States is committed to making - [00:02.159] the United Nations more effective - [00:06.319] and accountable. We must pursue peace - [00:08.720] without fea...
+- [13:48 UTC - President Trump at UNGA 2017: "As President of the United States, I will ALWAYS put America FIRST."](sOvKdOf8JMo/)
+  - Source: https://www.youtube.com/watch?v=sOvKdOf8JMo
+  - [00:00.080] The success of the United Nations - [00:02.240] depends upon the independent strength of - [00:05.440] its members in America. We do not seek - [00:07.839] to impose...

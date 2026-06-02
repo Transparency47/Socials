@@ -1,0 +1,123 @@
+<!-- source: https://www.youtube.com/watch?v=_ia2D8i64Wg -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: _ia2D8i64Wg -->
+<!-- date_published: 2026-03-12T01:28:15+00:00 -->
+<!-- date_accessed: 2026-06-02T01:03:49.703843+00:00 -->
+
+# Transcript: President Trump Gaggles with Press at Joint Base Andrews, Mar. 11, 2026
+
+- [00:00.720] Okay, thank you very much. I think it
+- [00:02.160] was a great trip.
+- [00:03.760] And we have very good news on the war
+- [00:06.040] front, namely they are
+- [00:09.040] absolutely being destroyed. Iran is
+- [00:11.760] being absolutely
+- [00:13.640] decimated. That's all I can say.
+- [00:16.160] President Trump, what have you heard
+- [00:17.760] about this bulletin that some law
+- [00:19.720] enforcements have done a possible Iran
+- [00:22.200] revenge plot in California where there
+- [00:25.200] would be some kind of a boat offshore
+- [00:26.960] launching drones towards the
+- [00:29.400] >> big enough to be investigated, but you
+- [00:30.600] have a lot of things happening.
+- [00:32.520] And all we can do is take them as they
+- [00:34.640] come.
+- [00:35.680] The war itself is being prosecuted
+- [00:38.320] as well as anybody has ever seen. And
+- [00:40.320] this is other countries telling me too.
+- [00:42.480] Big countries, powerful countries. They
+- [00:44.160] said they've never seen anything like
+- [00:46.160] it.
+- [00:47.000] And they also agree with what I'm doing.
+- [00:48.720] They say it's it's
+- [00:50.320] an evil country and it's been for 47
+- [00:52.920] years that way. And if they try to hit
+- [00:55.000] us back, have you been briefed about how
+- [00:57.760] many Iran sleeper cells there could be
+- [01:00.600] inside the US right now?
+- [01:02.440] >> I have been and a lot of people came in
+- [01:04.160] through Biden with this stupid open
+- [01:05.840] border.
+- [01:07.040] But we know where most of them are.
+- [01:09.440] We've got our eye on all of them, I
+- [01:11.280] think. Is it dozens? They came in
+- [01:14.880] through the open border policies of
+- [01:17.920] sleepy Joe Biden.
+- [01:19.880] One of the worst the worst president in
+- [01:22.280] the history of our country.
+- [01:24.160] And we've got our eyes on all of them.
+- [01:26.240] But the war itself is being
+- [01:28.520] prosecuted at a level nobody's seen
+- [01:30.600] before.
+- [01:31.560] It's pretty It's pretty amazing to
+- [01:33.120] watch. Can you give us a timeline on
+- [01:34.640] when you're planning to tap the
+- [01:36.120] strategic petroleum reserve? A timeline
+- [01:38.160] of when that could happen?
+- [01:39.280] >> We're going to be doing it very quickly.
+- [01:41.640] And then we'll fill it up. We'll fill up
+- [01:43.240] our reserves. You know, if you remember,
+- [01:45.640] I filled them up. And then I had a deal
+- [01:47.840] to go at the highest level, a level
+- [01:50.880] that's never been.
+- [01:52.280] And Schumer and the Democrats for $25.
+- [01:55.720] And it was turned down. You remember
+- [01:57.440] that, Peter. Almost before your time,
+- [01:59.600] but not quite. But it was
+- [02:02.000] we had a deal at $25.
+- [02:04.200] Think of that. $25 a barrel
+- [02:07.160] and the Democrats turned it down. We
+- [02:08.640] were going to fill we were going to tap
+- [02:09.920] it out like it's never been, but they
+- [02:12.120] turned that down and now it's
+- [02:14.320] uh
+- [02:15.280] a lot higher. Mr. President, are you
+- [02:17.000] considering having the US Treasury
+- [02:19.280] Department buy oil futures as a means to
+- [02:21.840] keep the oil prices down or bring the
+- [02:24.120] oil prices up?
+- [02:24.600] >> keep it very good shape. You see what's
+- [02:26.320] happening.
+- [02:27.680] They are
+- [02:29.080] pretty much at the end of the line.
+- [02:30.400] Doesn't mean we're going to end it
+- [02:31.400] immediately, but they they are they've
+- [02:33.480] got no navy, they've got no air force,
+- [02:35.480] they've got no anti-air traffic
+- [02:38.920] anything. They've no systems of control.
+- [02:42.160] Which is riding free range over that
+- [02:44.760] country.
+- [02:45.920] And now we're going to look very
+- [02:46.959] strongly at the straits. The straits are
+- [02:50.040] in great shape. We've knocked out all of
+- [02:52.080] their boats.
+- [02:53.400] They have some missiles, but not very
+- [02:55.240] many. I think we're in very good we're
+- [02:57.480] in very good shape. The main thing is we
+- [02:59.720] have to win this thing win it quickly,
+- [03:01.560] but win it.
+- [03:03.000] And there are many people I'm just
+- [03:04.320] watching some of the news.
+- [03:07.200] Most people say it's already been won.
+- [03:09.320] It's just a question of when. When do we
+- [03:11.680] stop? We don't want to let it regrow
+- [03:14.560] and ideally would like to see somebody
+- [03:16.280] in there that knows what they're doing.
+- [03:17.840] In other words, they could build a
+- [03:18.920] country.
+- [03:20.320] Now, one other thing. We can hit
+- [03:22.720] sections of Tehran and other places
+- [03:25.880] that
+- [03:27.320] if you do it, it'll be almost impossible
+- [03:30.000] for them to rebuild their country.
+- [03:32.400] And we don't want that.
+- [03:33.959] But we can hit electric
+- [03:36.080] we could take apart their electric
+- [03:37.720] capacity within 1 hour
+- [03:40.560] and it would take them 25 years to
+- [03:42.760] rebuild it.
+- [03:43.959] So, ideally we're not going to be doing
+- [03:45.280] that. Thank you very much, everybody.
+- [03:47.080] >> Thanks for the question.

@@ -1,0 +1,240 @@
+<!-- source: https://www.youtube.com/watch?v=vKACFmuNFyY -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: vKACFmuNFyY -->
+<!-- date_published: 2026-03-19T23:41:10+00:00 -->
+<!-- date_accessed: 2026-06-02T02:36:22.403480+00:00 -->
+
+# Transcript: President Trump Participates in a Dinner with the Prime Minister of Japan
+
+- [00:13.690] Announcer: Ladies and gentlemen,
+- [00:15.000] the President of the United States
+- [00:16.950] and the Prime Minister of Japan.
+- [00:20.250] ♪ (Hail to the Chief) ♪
+- [00:41.110] (applause)
+- [01:01.520] The President: Thank you very much, everybody.
+- [01:02.910] Please.
+- [01:04.150] We have a very special person with us tonight,
+- [01:07.240] an amazing person.
+- [01:09.480] Tonight, I'm delighted to welcome a great friend
+- [01:13.440] and partner for her very first visit to the White House.
+- [01:17.100] We've become very close,
+- [01:18.750] so close that I endorsed her for her election.
+- [01:21.690] And she did well.
+- [01:22.900] She got the greatest, the highest number ever gotten
+- [01:26.370] by somebody running for the highest position in Japan.
+- [01:30.440] Beating out a lot of our friends,
+- [01:31.960] and it's a tremendous tribute.
+- [01:34.910] And that's our really amazing friend,
+- [01:37.930] the Japanese Prime Minister,
+- [01:39.740] who's going to speak in just a few minutes.
+- [01:42.010] But we're very honored to have you with us tonight.
+- [01:45.220] Thank you.
+- [01:47.400] (applause)
+- [01:56.225] (speaking Japanese)
+- [02:10.150] The President: And I want to congratulate
+- [02:11.560] the Prime Minister
+- [02:12.850] on that unbelievable all-over-the-world
+- [02:15.440] that we're talking about of that victory
+- [02:17.820] and last month's election winning by numbers that,
+- [02:21.290] as I said, nobody's ever seen in Japan before.
+- [02:25.520] (speaking Japanese)
+- [02:33.710] The President: And this was not only
+- [02:35.020] an amazing political achievement,
+- [02:36.810] it was a resounding declaration of strength
+- [02:39.660] and confidence, national spirit
+- [02:42.250] and resolve straight from the Japanese people
+- [02:45.380] who love you.
+- [02:48.100] (speaking Japanese)
+- [03:05.800] The President: And the Prime Minister's visit
+- [03:07.440] comes as we're just days away
+- [03:09.230] from the most beautiful season here in Washington,
+- [03:12.220] which, by the way, is a crime-free city,
+- [03:15.470] just about.
+- [03:16.820] And we're doing a -- we're very proud of that.
+- [03:19.140] We have done a great job, and it's a very safe place
+- [03:22.610] that people are coming to in record numbers.
+- [03:25.000] And the blooming of the Japanese cherry blossom trees
+- [03:28.540] is something very special. For more than a century,
+- [03:32.080] this magnificent explosion of pink and white
+- [03:35.050] has graced America's capital. I mean, it's been something
+- [03:38.970] that really represents Washington so well
+- [03:41.200] as a living symbol of the cherished friendships
+- [03:43.870] between two of our world's most extraordinary nations.
+- [03:48.630] (speaking Japanese)
+- [04:24.810] The President: And this year, we're honored to receive
+- [04:26.780] an additional 250 cherry trees.
+- [04:29.220] And they're very big, beautiful trees
+- [04:31.690] from the great people of Japan
+- [04:33.350] in recognition of America's 250th anniversary.
+- [04:38.010] And they will remind every future generation
+- [04:40.860] of our timeless bond.
+- [04:42.560] And they'll be planted near and around the Washington monument.
+- [04:46.690] And it's going to be something very special.
+- [04:49.380] They've already started the planting.
+- [04:50.840] But it's 250 beautiful specimen.
+- [04:55.090] Trees and we'll get you over here.
+- [04:57.260] We'll check them out after they're planted.
+- [04:58.980] We will get you
+- [05:01.000] (speaking Japanese)
+- [05:25.390] The President: Americans and Japanese
+- [05:26.790] come from opposite sides of the globe,
+- [05:29.490] but since the earliest days of commerce
+- [05:31.590] between our two countries, we've always recognized
+- [05:34.240] that despite obvious differences,
+- [05:35.900] we share a great deal in common.
+- [05:39.980] (speaking Japanese)
+- [05:53.400] The President: Both of our civilizations
+- [05:55.130] have been defined and propelled by proud cultures
+- [05:58.110] deeply committed to excellence, hard work,
+- [06:00.850] and pushing the frontiers of what is possible.
+- [06:03.930] That's why in every field,
+- [06:05.230] human endeavors from so many different
+- [06:09.580] sides of the planet from medicine to music,
+- [06:12.560] from art to engineering,
+- [06:14.200] you find that Americans and Japanese are leading the way,
+- [06:17.970] always leading the ways.
+- [06:20.830] (speaking Japanese)
+- [06:45.340] The President: These shared traits and values
+- [06:47.100] have transcended every trial, history,
+- [06:49.820] and you look no matter where you go,
+- [06:51.990] you see this and ultimately made our nations
+- [06:55.200] into strong allies and very close friends.
+- [06:58.210] Our partnership has made both the United States and Japan
+- [07:01.210] stronger, freer, and more successful
+- [07:03.500] than virtually any other nation on the planet.
+- [07:07.750] And under the leadership of the Prime Minister and myself,
+- [07:10.710] I know we will soon make.
+- [07:12.480] That partnership even stronger and better than ever before.
+- [07:16.380] We have that relationship,
+- [07:18.020] and actually it started quite a while ago.
+- [07:21.950] (speaking Japanese)
+- [07:48.480] The President: On my visit to Tokyo last year,
+- [07:50.640] we reached a historic trade deal
+- [07:52.520] that will increase our cooperation
+- [07:55.060] on everything from energy to semiconductors
+- [07:58.250] and shipbuilding and pharmaceuticals.
+- [08:00.590] It was a big one, one of the biggest deals ever made.
+- [08:03.660] The United States is also encouraged
+- [08:05.570] to see the steps the Prime Minister
+- [08:07.320] is taking to expand our country's commitment
+- [08:09.550] to its own security and defense
+- [08:11.990] and buying a lot of our defense equipment,
+- [08:15.110] I'm happy to tell you.
+- [08:17.840] (speaking Japanese)
+- [08:49.130] The President: So just to close up
+- [08:50.920] with the commitment of the leaders
+- [08:53.300] and the biggest leaders in the country,
+- [08:55.720] some of the most successful people in the country
+- [08:58.080] politically and business-wise,
+- [09:00.640] and all of the partners in the room,
+- [09:02.470] the United States and Japan can be an unstoppable force
+- [09:06.020] for freedom, security, and progress for our countries
+- [09:08.930] and for the entire world to look up to.
+- [09:12.050] So let us stand together with the strength and dignity,
+- [09:14.550] purpose.
+- [09:15.840] Let us keep our people safe, our nations prospering,
+- [09:18.980] and our alliance flourishing for many, many generations to come.
+- [09:23.690] And with that, I'd just like to thank the Prime Minister.
+- [09:27.030] This is a spectacular woman,
+- [09:29.480] and it's an honor to have you with us at the White House.
+- [09:32.870] Thank you.
+- [09:34.920] (applause)
+- [09:44.505] (speaking Japanese)
+- [10:24.990] Interpreter: The Honorable President
+- [10:26.780] Donald J. Trump,
+- [10:28.180] distinguished guests, ladies and gentlemen,
+- [10:30.990] I would like to take this opportunity
+- [10:32.900] to express my deepest gratitude
+- [10:34.950] for hosting such a beautiful dinner for me
+- [10:37.960] and my delegation.
+- [10:40.500] (speaking Japanese)
+- [10:46.440] Interpreter: Donald, thank you very much for your warm feelings
+- [10:49.800] toward Japan and your friendship.
+- [10:53.460] (speaking Japanese)
+- [10:59.560] Interpreter: So tonight, I would like to start off
+- [11:02.050] by extending my sincere congratulations
+- [11:05.050] on two important anniversaries.
+- [11:09.290] (speaking Japanese)
+- [11:19.030] Interpreter: The first one is a birthday celebration.
+- [11:21.740] Donald, tomorrow is the birthday of your son, Mr. Barron Trump.
+- [11:27.240] And I know he has grown up so much into a very tall,
+- [11:31.680] good-looking gentleman.
+- [11:34.530] (applause)
+- [11:43.150] Interpreter: Donald it is very clear where he got it,
+- [11:46.400] of course, from his parents. There's no doubt about it.
+- [11:50.690] (applause)
+- [11:55.570] Interpreter: So Donald, if I may ask you,
+- [11:58.060] please convey my sincere happy birthday wishes to him.
+- [12:03.560] (speaking Japanese)
+- [12:27.060] Interpreter: The second one is the 250th anniversary
+- [12:30.170] of the United States, as you mentioned.
+- [12:33.230] The United States has long been an icon of freedom
+- [12:37.070] and democracy in the world,
+- [12:38.780] and this year, the United State is marking a historic milestone.
+- [12:44.080] And on behalf of the government and the people of Japan,
+- [12:47.650] I would like to extend my deepest congratulations
+- [12:50.450] to you and the American people.
+- [12:53.890] (speaking Japanese)
+- [13:06.940] Interpreter: And I understand that in August this year,
+- [13:09.590] at Donald's suggestion, IndyCar Race,
+- [13:12.430] Freedom 250 Grand Prix will be held here in Washington, D.C.
+- [13:17.950] (speaking Japanese)
+- [13:24.100] Interpreter: This race will bring roaring
+- [13:26.250] Chevrolet and Honda engines to the National Mall.
+- [13:30.980] (speaking Japanese)
+- [13:42.010] Interpreter: In addition, Japan's NTT Group
+- [13:44.470] has been a title sponsor of the IndyCar series.
+- [13:48.590] As you see, Indy Car Race is a perfect, perfect example
+- [13:53.140] of the friendship between Japan and the United States.
+- [13:56.610] (speaking Japanese)
+- [13:59.720] Interpreter: So I do hope that you have a huge success
+- [14:03.490] at this racing event.
+- [14:06.380] (speaking Japanese)
+- [14:16.300] Interpreter: Speaking of our friendship,
+- [14:18.230] here in Washington, D.C.,
+- [14:20.030] Japanese sakura, or cherry trees,
+- [14:22.940] have long been letting us know the arrival of spring,
+- [14:26.720] and also it has been a symbol of the history
+- [14:30.230] of Japan-U.S. friendship.
+- [14:33.640] (speaking Japanese)
+- [14:42.580] Interpreter: And this is also something
+- [14:43.880] that Donald already mentioned, but I would like to reiterate.
+- [14:47.050] This year, Japan extends a gift of additional 250 cherry trees
+- [14:52.890] to Washington, D.C. to celebrate America 250.
+- [14:58.160] (speaking Japanese)
+- [15:11.130] Interpreter: Actually, my original plan
+- [15:12.830] was to bring so many cherry flowers
+- [15:15.530] and directly hand it to you, Donald.
+- [15:17.720] But unfortunately, because of th very strict quarantine measures
+- [15:21.760] that I couldn't make this happen.
+- [15:25.910] (speaking Japanese)
+- [15:36.900] Interpreter: A stronger Japan and a stronger America,
+- [15:41.160] a more prosperous Japan and then more prosperous America.
+- [15:45.490] I am very confident that Donald and I
+- [15:48.460] are the best buddies to realize this shared goal.
+- [15:53.500] (speaking Japanese)
+- [16:09.520] Interpreter: Late Prime Minister Shinzo Abe,
+- [16:11.970] who was Donald's dear friend and also my dear friend too,
+- [16:15.590] eloquently said one phrase here in Washington D.C.
+- [16:19.070] upon his visit. And as I stand here today,
+- [16:23.250] I would like to repeat what he said
+- [16:25.840] with greater pride and confidence.
+- [16:29.120] Prime Minister Takaichi: Japan is back.
+- [16:31.960] (applause)
+- [16:41.550] (speaking Japanese)
+- [16:50.640] Interpreter: Japan once again
+- [16:51.900] will lead the innovation in the world
+- [16:54.530] and the new Japan stands ready to play
+- [16:57.340] an even greater role for world peace.
+- [17:01.540] (speaking Japanese)
+- [17:09.350] Interpreter: Japan will continue to walk on such path,
+- [17:12.820] together with Donald and together
+- [17:15.060] with the American people.
+- [17:17.760] (speaking Japanese)
+- [17:26.330] Interpreter: Let us together create a new chapter
+- [17:28.490] in the history of Japan-U.S. alliance,
+- [17:31.290] a chapter filled with hope and strength.
+- [17:34.490] Thank you very much.
+- [17:36.790] (applause)
+- [17:52.745] ♪ (soft orchestral music) ♪

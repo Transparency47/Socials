@@ -1,0 +1,204 @@
+<!-- source: https://www.youtube.com/watch?v=zUX3vt21lV8 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: zUX3vt21lV8 -->
+<!-- date_published: 2025-01-21T14:30:44+00:00 -->
+<!-- date_accessed: 2026-06-02T02:54:53.585834+00:00 -->
+
+# Transcript: Vice President JD Vance Swears In Marco Rubio as United States Secretary of State
+
+- [00:04.680] well good morning everybody how we doing
+- [00:06.919] uh I want to give a special welcome to
+- [00:09.440] Senator Rubio's family uh especially his
+- [00:12.280] four beautiful kids and his wife thank
+- [00:15.120] you guys for being here it's a great
+- [00:16.640] occasion I will say that it's pretty
+- [00:18.800] hard to top being sworn in as vice
+- [00:21.600] president and then the Buckeyes win the
+- [00:23.279] national championship the very same day
+- [00:25.320] but this is a hell of a start uh to a
+- [00:27.240] run because Marco is one of my favorite
+- [00:30.039] people in Washington and you know he's
+- [00:33.360] he's he's a son of Cuban immigrants to
+- [00:36.120] this country he grew up in very humble
+- [00:37.960] beginnings but he has an incredibly deep
+- [00:40.200] love of our nation uh he is a bipartisan
+- [00:43.760] Solutions Seeker a guy who can actually
+- [00:46.079] get things done but a conservative of
+- [00:48.399] great principle and great vision and I
+- [00:51.079] think more than almost any potty that
+- [00:52.960] I've met in Washington the last few
+- [00:54.840] years Senator Rubio I think understands
+- [00:57.280] the distinctive priorities of President
+- [00:59.640] Trump
+- [01:00.440] and why it represents such a significant
+- [01:02.640] and frankly important and needed
+- [01:04.519] departure from a generation of failed
+- [01:07.479] foreign policy Senator Rubio will be the
+- [01:10.040] Chief Diplomat of the United States of
+- [01:12.520] America but he will remain a friend I'm
+- [01:15.119] proud to know him and I'm proud to do
+- [01:16.759] this so Senator Rubio thank
+- [01:19.200] you
+- [01:22.870] [Applause]
+- [01:25.680] um I also of course want to thank
+- [01:27.840] president Trump for nominating Senator
+- [01:29.320] Rubio and giving me a first easy
+- [01:30.799] swearing in this the first time I've
+- [01:32.280] ever SW sworn in an official in the
+- [01:34.479] United States government and I want to
+- [01:36.240] thank Senator Jim Rish and his family
+- [01:38.399] for making this easy you guys got this
+- [01:40.280] done and got it done very quickly 99 to
+- [01:42.880] Z right I think even I wouldn't have got
+- [01:45.520] close to 99 to Zer so Senator Rubio it's
+- [01:48.280] a great Testament to your your your
+- [01:49.799] career of service and this is a new
+- [01:51.640] chapter man but I think you're going to
+- [01:52.799] do great so great so I think that we're
+- [01:55.360] going to administer the oath and then
+- [01:57.079] Senator you'll say a few words is that
+- [01:59.000] right let's do it
+- [02:01.439] okay so please raise your right hand
+- [02:04.079] repeat after me I Marco Rubio I Marco
+- [02:07.520] Rubio do solemnly swear do solemnly
+- [02:09.640] swear that I will support and defend
+- [02:11.720] that I will support and defend the
+- [02:13.400] Constitution of the United States the
+- [02:15.400] Constitution of the United States
+- [02:17.080] against all enemies against all enemies
+- [02:19.040] foreign and domestic foreign and
+- [02:20.720] domestic that I will bear true faith and
+- [02:22.800] allegiance to the same that I will bear
+- [02:24.800] true faith and allegiance to the same
+- [02:26.400] that I take this obligation freely that
+- [02:28.280] I take this obligation freely without
+- [02:30.480] any mental reservation or purpose of
+- [02:32.599] evasion without any mental reservation
+- [02:34.560] or purpose of evasion and that I will
+- [02:36.599] well and Faithfully discharge and that I
+- [02:38.640] will well and Faithfully discharge the
+- [02:40.440] duties of the office on which I'm about
+- [02:42.159] to enter the duties of the office of
+- [02:43.879] which I'm about to enter so help you God
+- [02:45.480] so help me go congratulations Mr
+- [02:49.190] [Applause]
+- [02:56.080] secretary thank you Mr vice president
+- [02:58.280] for making time it's been a busy
+- [03:00.599] 72 hours um and
+- [03:03.319] uh maybe longer but the 96 hours I guess
+- [03:06.599] but um first I want to thank Janette my
+- [03:08.879] wife who has been so supportive it's as
+- [03:11.159] uh the vice president knows well it's
+- [03:12.560] impossible to do any of these jobs we do
+- [03:14.360] here including the Senate but now in
+- [03:15.840] this new role uh without the support of
+- [03:18.080] our family and and particularly of our
+- [03:20.080] spouses and so uh thank you for being
+- [03:22.720] supportive every step of the way I would
+- [03:24.200] not stand here before you today without
+- [03:25.920] that I'm also thrilled and grateful that
+- [03:28.319] all four of my children are here that
+- [03:29.560] the most important Legacy any of us will
+- [03:31.519] leave behind the most important job I'll
+- [03:33.159] ever have is that of a father and a
+- [03:35.239] husband and I'm honored that they are
+- [03:37.040] able to join us Amanda my oldest danela
+- [03:40.640] uh my second Anthony our third and then
+- [03:44.000] Dominic um I'm very happy they're able
+- [03:46.239] to see this today I also want to thank
+- [03:47.799] my colleagues Senator R and Miss Rish
+- [03:49.640] for joining us um he did a great job
+- [03:52.079] managing the committee which uh brought
+- [03:54.000] us here to this point but he's also been
+- [03:56.560] uh one of my closest friends in my time
+- [03:58.280] in the US Senate in fact we
+- [04:00.560] by reason of chance certainly not by
+- [04:03.319] Design we wound up basically being first
+- [04:05.159] and second behind one another on
+- [04:06.560] seniority in every committee so we even
+- [04:09.079] sat next to each other on the floor so
+- [04:11.079] uh people thought it was a plot it was
+- [04:12.680] not by Design and uh but it's one of the
+- [04:15.400] most special relationships I've
+- [04:16.840] established and obviously it's an honor
+- [04:18.079] to be with the vice president who um I
+- [04:20.479] think is going to be phenomenal as one
+- [04:22.160] someone I knew and admired and actually
+- [04:24.040] relied on for policy ideas before he was
+- [04:26.120] even elected to the Senate and now will
+- [04:28.479] do an extraordinary job and uh for the
+- [04:30.880] president I can't think of a of a better
+- [04:32.560] voice for for the world and for the
+- [04:34.000] president's policies uh as far as the
+- [04:36.440] task ahead the the it's you know
+- [04:39.240] president Trump was elected to keep
+- [04:40.759] promises and he's going to keep those
+- [04:42.440] promises and his primary promise when it
+- [04:44.800] comes to foreign policy is that the
+- [04:46.440] priority of the United States Department
+- [04:48.320] of State will be the United States it
+- [04:51.039] will be furthering the national interest
+- [04:52.600] of this country and he's given us a very
+- [04:54.600] clear mandate president Trump's made it
+- [04:56.160] very clear everything we do and I this
+- [04:58.639] is true in government but especially at
+- [05:00.160] the Department of State everything we do
+- [05:02.320] must be justified by the answer to one
+- [05:04.120] of three questions does it make us
+- [05:05.680] stronger does it make us safer and
+- [05:08.000] doesn't make us more prosperous if it
+- [05:10.199] doesn't do one of those three things we
+- [05:11.720] will not do it and and so uh that is the
+- [05:14.759] goal and that is the task and that is
+- [05:16.360] the promise that he was elected to keep
+- [05:17.919] and that is the promise he will keep and
+- [05:19.400] we will help him keep it's a
+- [05:21.160] transformational moment the United
+- [05:22.919] States I think is now uh as president
+- [05:25.720] Trump pointed out last night and I
+- [05:26.960] believe deeply we are headed into a new
+- [05:28.840] era that I think will make the world a
+- [05:30.240] safer place we have a president who
+- [05:31.840] yesterday president Trump made clear in
+- [05:34.080] his inaugural speech that one of the
+- [05:36.319] primary goals of American foreign
+- [05:37.800] policies is the promotion of Peace of
+- [05:40.400] course peace through strength peace and
+- [05:42.240] always without uh abandoning our values
+- [05:44.919] but I think it's extraordinary that it's
+- [05:46.800] something that needs to be said and
+- [05:47.960] hasn't been said enough in recent memory
+- [05:50.160] and we look forward to being a key part
+- [05:52.560] of helping the president achieve his
+- [05:54.600] agenda that he has a clear mandate to
+- [05:56.280] keep if I may take the liberty for just
+- [05:58.600] 15 seconds uh to say something in
+- [06:00.479] Spanish because I know a lot of people
+- [06:01.960] back home would be very proud and I want
+- [06:03.800] to make sure I acknowledge that
+- [06:30.080] pres
+- [06:32.360] Trump I just said I saved a bu of money
+- [06:34.759] by switching to Geico that's what I said
+- [06:41.280] so uh and I I want to end by by thanking
+- [06:45.160] almighty God and our my Lord and Savior
+- [06:47.919] Jesus Christ uh that is truly the
+- [06:50.440] singular purpose of our lives uh it's
+- [06:52.599] most important priority it's the only
+- [06:54.120] thing that will matter when we take our
+- [06:55.440] last breath on this Earth but this is an
+- [06:57.520] extraordinary opportunity would not have
+- [06:58.960] been possible with go God's blessings
+- [07:00.599] I'm honored and I'm privileged uh
+- [07:03.560] cognizant of responsibility and I want
+- [07:05.039] to thank president Trump for his
+- [07:06.240] confidence we will work hard every
+- [07:08.039] second of the day to help him achieve
+- [07:10.080] the agenda the American people have
+- [07:11.520] given him to achieve thank you thanks
+- [07:13.440] for being a part of this today God bless
+- [07:15.280] all of you thank you thank you
+- [07:18.180] [Applause]
+- [07:24.400] Mr by thank you we'll talk more soon
+- [07:29.800] what change
+- [07:32.520] sir sir

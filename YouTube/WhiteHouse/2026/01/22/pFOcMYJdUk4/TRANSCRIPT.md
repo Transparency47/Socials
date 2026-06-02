@@ -1,0 +1,1024 @@
+<!-- source: https://www.youtube.com/watch?v=pFOcMYJdUk4 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: pFOcMYJdUk4 -->
+<!-- date_published: 2026-01-22T16:52:14+00:00 -->
+<!-- date_accessed: 2026-06-02T01:06:39.019619+00:00 -->
+
+# Transcript: Vice President JD Vance Delivers Remarks in Toledo, Ohio, Jan. 22, 2026
+
+- [00:00.650] Male Speaker: Ladies and gentlemen,
+- [00:01.970] please welcome Kelly Lefler, United States
+- [00:05.460] Administrator of the Small Business Administration.
+- [00:10.140] (applause)
+- [00:19.760] Administrator Lefler: Well, thank you, Toledo.
+- [00:21.160] It is great to be in the Buckeye State.
+- [00:23.410] I feel your warmth.
+- [00:24.660] Thank you so much for being here at Midwest Terminals.
+- [00:28.210] I am always so thankful when I get to travel
+- [00:31.080] with our great Vice President, JD Vance,
+- [00:33.550] especially when it means he's coming home to Ohio.
+- [00:37.470] What I'm most excited about, however,
+- [00:39.430] is the chance to stand with you to celebrate year
+- [00:43.640] one of the America First comeback.
+- [00:47.370] And let me be clear, this milestone is all about you.
+- [00:51.660] You are the hardworking Americans
+- [00:53.780] who get the job done every single day.
+- [00:56.490] You are rebuilding this nation brick by brick.
+- [01:00.390] And you are the ones that endured four
+- [01:02.720] long years of Bidenomics.
+- [01:05.390] And you proudly put Donald J. Trump
+- [01:10.330] back into the White House.
+- [01:16.200] Now, I can tell you firsthand, President Trump,
+- [01:18.730] Vice President JD Vance have not slowed down for one minute
+- [01:22.050] and neither has their cabinet. The reason we all work so hard
+- [01:26.650] is because we're inspired by patriots like you.
+- [01:30.520] We know that you make this country great.
+- [01:32.980] And for me, I think of my family back home,
+- [01:35.930] five generation farm family
+- [01:37.730] with a small trucking company on the plains of Illinois.
+- [01:40.900] I know the blood, the sweat, the tears,
+- [01:43.450] the prayers, the dreams realized.
+- [01:47.130] That's the America we grew up in,
+- [01:49.860] where grit, not government,
+- [01:52.670] determined the opportunities that you had.
+- [01:56.220] And this administration is working with urgency
+- [01:58.910] because of it. We're working with resolve.
+- [02:01.830] And we are working unapologetically
+- [02:04.870] to make America great again.
+- [02:11.210] And you know what we're doing, you've seen it,
+- [02:12.910] we're cleaning up massive fraud, massive government waste
+- [02:17.080] that sent millions of dollars to Somalia
+- [02:20.550] and the open borders that created chaos
+- [02:23.730] and imported crime to your cities and towns.
+- [02:27.130] And now after four disastrous years,
+- [02:29.850] it only took President Trump one year to start fixing it.
+- [02:33.830] He didn't break it, but he is fixing it,
+- [02:36.790] he restored America's, yeah, let's give him a hand, yeah.
+- [02:41.110] (applause)
+- [02:44.220] Now you've seen him, he's restored
+- [02:45.800] our strength and dignity on a world stage,
+- [02:48.080] he ended the globalist trade deals
+- [02:50.060] that shipped our jobs out of his country,
+- [02:53.050] and he brought back American energy dominance
+- [02:55.900] and American industry.
+- [02:58.300] He proudly defends faith every day
+- [03:00.910] and stands against the radical transgender
+- [03:03.410] and DEI ideologies.
+- [03:06.040] And now the mainstream media and the liberal elites,
+- [03:08.520] they said it couldn't be done,
+- [03:09.960] we had to accept managed decline.
+- [03:13.250] Well, they were dead wrong.
+- [03:14.950] All we needed was a new president.
+- [03:22.160] Now. You can see it. It's coming.
+- [03:24.590] The America First comeback is real
+- [03:26.490] and it's starting right here in great cities like Toledo.
+- [03:30.330] Core inflation just reached its lowest level in five years.
+- [03:33.920] Wages and take-home pay are up.
+- [03:36.260] Fair trade is bringing back American industry
+- [03:40.250] and with about 700,000 jobs in their first year,
+- [03:44.570] due to $18 trillion of investment
+- [03:46.800] that's going to come into America,
+- [03:48.670] we've never seen anything like it.
+- [03:50.990] And the working-family tax cuts will put thousands of dollars
+- [03:55.390] back in working-families bank accounts starting this year
+- [03:59.210] because President Trump and JD
+- [04:01.300] Vance are fighting courageously for you every single day.
+- [04:06.200] Not the special interests,
+- [04:07.840] not the Washington bureaucrats and the coastal elites.
+- [04:11.440] But for workers, for our main streets, for families,
+- [04:14.880] and there is no one who knows better everyday Americans
+- [04:19.650] than Vice President JD Vance.
+- [04:21.740] You know his story, you know his humble beginnings in Kentucky
+- [04:25.190] and right here in Ohio,
+- [04:26.930] but now he stands in the Oval Office
+- [04:29.050] as the second most powerful man in the entire world.
+- [04:34.020] Probably the universe. Uh...
+- [04:36.730] He's also the coolest vice president
+- [04:38.610] we've ever had in American history.
+- [04:41.530] (applause)
+- [04:45.880] But what's really amazing, he's a man of deep faith.
+- [04:48.870] He's husband to our beautiful second lady, Usha Vance.
+- [04:52.710] And he's soon to be the father of four amazing children.
+- [04:57.380] So congratulations, Vice President Vance,
+- [05:02.860] he and President Trump do it all for you,
+- [05:05.340] for hardworking Americans.
+- [05:06.890] And it's why he's come back home today,
+- [05:09.630] because he's standing proudly with you
+- [05:11.940] to restore the American dream for generations to come.
+- [05:16.260] Please welcome the 50th and the greatest Vice President
+- [05:19.220] of the United States, JD Vance.
+- [05:22.360] (applause)
+- [05:30.570] ♪ (rock music playing) ♪
+- [05:51.398] The Vice President: Well, thank you.
+- [05:53.580] It is -- I've got to say, it's great to be back in Toledo,
+- [05:56.410] but it is cold.
+- [05:59.070] I got a little tour of the facility
+- [06:01.350] just before I came on stage,
+- [06:02.650] actually while Kelly was speaking.
+- [06:04.170] And thank you, Kelly Loeffler, our great SBA administrator.
+- [06:07.140] She's doing a great job, we're proud of her,
+- [06:09.460] but I think I'm still shivering from the tour I got outside.
+- [06:13.780] You guys are a hell of a lot tougher than I am
+- [06:15.730] to be able to manage this cold every single day.
+- [06:17.670] And I can't wait for the mainstream media stories today
+- [06:20.910] that the vice president is suffering from unnamed tremors.
+- [06:27.140] And what I'm suffering from is Toledo in January.
+- [06:29.900] It is cold up here.
+- [06:33.240] I will say that when I was flying in here,
+- [06:36.390] sometimes when you're vice president,
+- [06:38.450] you travel over the country, you travel over the world
+- [06:41.060] and you're not always sure exactly where you're going.
+- [06:43.140] I was very excited to be back in Toledo today,
+- [06:45.230] but for a brief second, I forgot where I was coming.
+- [06:47.380] I opened the window and I thought the president
+- [06:49.520] had sent me to Greenland.
+- [06:56.730] Which is going well, by the way, which is going well.
+- [06:59.290] But let me give a few shout outs here -- besides Kelly Loeffler,
+- [07:01.880] I want to thank a few people who are here.
+- [07:03.810] In the front row here, we have our great United States Senator
+- [07:07.090] for the state of Ohio, Jon Husted, my replacement.
+- [07:09.890] And he's doing a great job. He's helped us a great deal.
+- [07:15.390] We have the next governor of the state of Ohio,
+- [07:18.010] Vivek Ramaswamy. Vivek? Give it up for Vivek.
+- [07:24.820] I believe we have a new running mate, Rob McColley.
+- [07:27.850] Rob, where are you there?
+- [07:29.280] Hey, Rob, good to see you, man. Thank you for being here.
+- [07:32.710] And I see our great Secretary of State, Frank Larose.
+- [07:34.940] Thank you, Frank.
+- [07:36.150] Now Rob, I'll give you advice as the number two.
+- [07:39.420] Here's my advice. What you need to do when you're governor
+- [07:42.600] or when your lieutenant governor and Vivek is governor,
+- [07:44.480] because you guys are going to win,
+- [07:46.240] and Jon Husted is going to win in November.
+- [07:47.700] We've got to make sure that happens, right.
+- [07:48.920] You guys are going to get out there
+- [07:50.180] and make sure these guys win.
+- [07:53.900] We're going to be with you every step of the way.
+- [07:55.480] But when Rob is lieutenant governor,
+- [07:57.080] the secret to being a successful number two
+- [07:59.680] is to take credit for every single good thing
+- [08:02.930] the administration does.
+- [08:05.660] And when anybody criticizes the administration,
+- [08:08.490] you can step back and say that was not me,
+- [08:10.330] that was number one.
+- [08:11.570] That is how -- that is how you be
+- [08:13.680] a successful lieutenant governor for the state of Ohio.
+- [08:16.750] That's my approach as vice president of United States.
+- [08:18.840] And I see my dear friend, Jay Edwards,
+- [08:21.070] who's running for treasurer. Jay, it's good to see you, man,
+- [08:22.990] thanks for everything that you've done for our state
+- [08:25.070] and our country.
+- [08:28.800] Now I'm headed from here to Minneapolis
+- [08:31.550] where we're going to talk with some of our ICE agents,
+- [08:34.000] talk with local officials about how we can turn down the chaos.
+- [08:37.560] And my simple piece of advice to them is going to be, look,
+- [08:40.310] if you want to turn down the chaos in Minneapolis,
+- [08:42.920] stop fighting immigration enforcement
+- [08:45.380] and accept that we have to have a border in this country.
+- [08:47.370] It's not that hard.
+- [08:53.150] If you look all across our country,
+- [08:55.160] what's happened in Minneapolis
+- [08:56.540] is happening almost nowhere else in the United States of America,
+- [09:00.150] and that's because, whether it's in Texas or Tennessee,
+- [09:03.240] it's in red states,
+- [09:04.520] it's in blue cities even within our country.
+- [09:08.210] Most people are cooperating with the simple principle
+- [09:11.100] that we ought to be able to enforce our immigration laws
+- [09:13.780] and get illegal criminals
+- [09:15.040] the hell out of the United States of America.
+- [09:16.780] It's really not that complicated.
+- [09:18.940] But in a few distinct cities, you see this craziness
+- [09:22.460] because the far left has decided
+- [09:25.090] that the United States of America
+- [09:26.410] shouldn't have a border anymore.
+- [09:27.690] And they are willing to fight and penalize and dox
+- [09:31.490] and even assault our law enforcement officers
+- [09:34.010] in order to fight for the basic principle
+- [09:36.500] that anybody ought to be able
+- [09:37.890] to come into the United States of America.
+- [09:39.460] Well, I'll tell you right now,
+- [09:40.750] the Trump administration, we reject that.
+- [09:43.160] We are going to get illegal criminals out of our country,
+- [09:45.750] and we're not going to let a few left-wing radicals stop us.
+- [09:55.310] But I'm here in Toledo
+- [09:56.570] to talk about the great American comeback
+- [09:59.120] and that is what I believe we are one year in.
+- [10:01.840] We are one year in to raising wages for workers
+- [10:05.020] instead of declining wages for workers.
+- [10:07.500] We're one year in to $18 trillion of new investment
+- [10:11.670] for the United States of America
+- [10:13.540] instead of investment going to every other country
+- [10:16.330] but the United States of America.
+- [10:18.220] We're one year in to getting illegal aliens
+- [10:20.800] out of our country
+- [10:22.110] so that American homes can go to American citizens,
+- [10:25.410] which is exactly where they ought to go.
+- [10:27.700] And we are one year in to seeing lower inflation
+- [10:31.260] and bigger paychecks
+- [10:32.580] and more opportunity for the American worker.
+- [10:34.910] Ladies and gentlemen, I think that we are on the cusp
+- [10:37.900] of the greatest economic year
+- [10:39.720] in the history of the United States of America
+- [10:42.050] because we're doing something new for a change.
+- [10:44.490] We're investing in you.
+- [10:45.900] We're investing in American workers,
+- [10:47.720] we're investing in American businesses,
+- [10:49.570] and we're saying to everybody
+- [10:51.680] that the United States is open for business,
+- [10:54.210] but only if you invest in our great American people
+- [10:58.180] and our great American businesses.
+- [11:00.250] We are done with the old approach of shipping
+- [11:03.300] American jobs overseas and investing in everybody else.
+- [11:07.370] We're back to investing in the American worker
+- [11:10.890] and we're not going to stop fighting for you
+- [11:13.010] until we return America to the true golden age
+- [11:16.350] of great American prosperity.
+- [11:24.860] Now even a year in,
+- [11:26.470] we've already seen incredible success
+- [11:28.850] from the Trump administration's economic policies.
+- [11:31.540] The IRS says that this is going to be the biggest tax
+- [11:35.130] refund year in the history of the United States of America.
+- [11:39.210] And I know there are a lot of far-left Democrats
+- [11:41.260] like Marcy Kaptur who don't like it
+- [11:43.830] when the government gives you back your hard-earned money.
+- [11:46.970] But the Trump administration believes that you earned it,
+- [11:50.280] you ought to keep it and we ought to keep our hands
+- [11:52.280] the hell out of your pocket in Washington DC.
+- [12:00.110] So, why are we going to have the biggest tax year,
+- [12:03.250] the biggest refund year
+- [12:04.960] in the history of the United States of America?
+- [12:07.340] It's because the president,
+- [12:08.720] working with the Republican Congress, got no taxes on tips.
+- [12:12.240] It's because we got no taxes on overtime.
+- [12:14.770] It's because we got no taxes on Social Security.
+- [12:17.680] Three promises that we ran on,
+- [12:19.710] three promises the president of the United States kept
+- [12:22.350] and, because of it, every single person in this room
+- [12:25.810] and every single person in the state of Ohio
+- [12:27.990] is going to benefit from it.
+- [12:29.430] That's what we said we were going to do.
+- [12:31.460] We are going to end the green energy scam
+- [12:33.950] and invest in American energy workers and we did it.
+- [12:42.980] We're going to reward companies for investing
+- [12:45.400] in the United States of America and penalize companies
+- [12:48.300] for trying to invest in Communist China
+- [12:51.050] and places all over the world.
+- [12:52.780] We said we were going to do it and we did it.
+- [12:55.170] And because of it, we're starting to see
+- [12:57.130] the benefits for American workers every single day.
+- [13:01.310] We have the lowest inflation that we've had --
+- [13:04.310] well, since the last Trump administration.
+- [13:07.170] We have rising wages for American workers.
+- [13:09.730] You know that under the Biden administration --
+- [13:12.340] those terrible, terrible times --
+- [13:14.020] under the Biden administration,
+- [13:15.370] you lost an average of $3,000 over that four years
+- [13:20.800] because inflation was out of control and wages
+- [13:23.630] were stagnant for our country.
+- [13:25.320] You know, under the first year of the Trump administration,
+- [13:28.500] you've already gained over $1,300 in real wage gains.
+- [13:33.020] And my friends, we are just getting started
+- [13:35.630] because what the president of the United States
+- [13:37.610] says every single day
+- [13:39.300] is we are not done fighting for the American worker
+- [13:42.520] until we get everything back that
+- [13:44.670] the Biden-Harris administration took away and more beyond that.
+- [13:48.260] I don't want you to just struggle to get by --
+- [13:51.220] I don't want you to worry about paying your credit card bill
+- [13:54.280] or your medical benefits.
+- [13:55.800] I don't want you to think, do I buy prescription drugs,
+- [13:58.900] or do I buy food.
+- [14:01.140] That is the legacy of the Democratic Congress
+- [14:03.890] under the Biden-Harris administration
+- [14:05.910] and it's something we can't go back to.
+- [14:08.110] A lot of you know my story.
+- [14:10.260] I mean, this is my home. You all --
+- [14:12.180] well, you voted for me, at least most of you did.
+- [14:18.600] So, actually in this room
+- [14:23.450] I probably got about 100 percent of the vote.
+- [14:25.350] I think I see a few people
+- [14:26.550] who weren't old enough to vote for me in 2022.
+- [14:30.030] But look, you know my story, you know the fact
+- [14:33.740] that I grew up in a family -- I was raised by a grandmother
+- [14:36.490] who would look at her credit card statement every single day
+- [14:39.400] and wonder what can we afford.
+- [14:41.260] Can I buy my medicine this month or do I need to focus on food?
+- [14:45.280] Can we take a little bit extra maybe
+- [14:47.550] and buy those pills that she needed
+- [14:49.640] in order to stay healthy and keep our family afloat?
+- [14:52.890] These are the decisions that way too many families
+- [14:55.990] had to take under the Biden administration.
+- [14:58.180] And under the Trump administration
+- [14:59.990] we want better for you.
+- [15:01.820] And we're fighting better for you every single day.
+- [15:04.520] We want you to have enough prosperity to, yes,
+- [15:07.280] buy the things that you need;
+- [15:08.560] to yes, buy those medications and put food on the table.
+- [15:11.390] But maybe to take a little vacation because,
+- [15:13.860] if you work hard every single day,
+- [15:15.990] you ought to be able to enjoy the fruits of your labor.
+- [15:19.510] Maybe you want to buy something extra for your kids,
+- [15:23.040] maybe you want to do something that you couldn't do
+- [15:25.370] when you were a kid,
+- [15:26.600] because that is the promise of the American dream,
+- [15:29.240] that we leave the next generation
+- [15:30.910] a little bit better off
+- [15:32.310] than the generation that came before.
+- [15:34.500] And what we had under the Biden-Harris administration
+- [15:37.820] is lower price --
+- [15:39.540] excuse me, lower wages, we had higher prices,
+- [15:43.170] we had more people struggling to get by
+- [15:45.260] and more people who gave up on the essentials
+- [15:48.050] instead of buying the things that they needed to buy.
+- [15:51.200] What we have under the Trump administration
+- [15:53.050] is a totally different approach. And what we're trying to do,
+- [15:56.830] and what we've already done a lot over the last year,
+- [15:59.630] is made you wealthier, has made your communities safer,
+- [16:03.580] has gotten those illegal aliens
+- [16:05.240] out of the United States of America
+- [16:06.830] and is trying to rebuild that all important American dream.
+- [16:10.900] So, I have a very simple question. Do we --
+- [16:14.020] one year into this great American recovery,
+- [16:16.580] do we want to go back to the failed policies
+- [16:19.250] of the Biden-Harris administration?
+- [16:22.300] No, we don't.
+- [16:23.500] So, let's keep doubling down on American prosperity.
+- [16:26.390] Let's keep doubling down on the American worker,
+- [16:28.880] and let's tell Marcy Kaptur
+- [16:30.630] and the rest of the crazy Congressional Democrats
+- [16:33.950] that we are not going back,
+- [16:35.430] we are going forward to a brighter future
+- [16:37.460] for every single one of our citizens.
+- [16:45.750] You know, there are things the media doesn't talk about
+- [16:48.220] that I think are so important to highlight
+- [16:49.970] because they show real progress for the American people.
+- [16:53.390] Did you know that for four years
+- [16:55.140] under the Biden-Harris administration,
+- [16:57.140] Americans paid the highest prescription drug costs
+- [17:00.450] anywhere in the world?
+- [17:01.810] And we did it because we had an administration
+- [17:04.120] that refused to go to Big Pharma and say this is ridiculous
+- [17:07.670] that you're charging one-tenth the price in England
+- [17:11.080] or in France that you are in the United States of America.
+- [17:14.250] So, what did the president do?
+- [17:15.740] One of the first things President Trump did
+- [17:17.590] is he hauled these pharmaceutical executives
+- [17:19.670] into the Oval Office.
+- [17:21.010] He wasn't getting any help from Congress,
+- [17:22.910] though we certainly would have appreciated Marcy Kaptur
+- [17:26.410] helping us lower prescription drug costs,
+- [17:28.280] but we weren't getting that help.
+- [17:29.650] So, what did he do?
+- [17:30.920] He brought the pharma executives into the Oval Office,
+- [17:33.080] and he said you are done forcing Americans
+- [17:36.070] to pay more for prescription drugs
+- [17:37.760] than any other country anywhere in the world.
+- [17:40.290] And so, now, thanks to the president's leadership
+- [17:42.840] and thanks to the support of our Congressional allies,
+- [17:45.350] like Jon Husted, we have prescription drug costs
+- [17:48.240] coming down in this country for the very first time,
+- [17:51.060] whether it's antibiotics or whether it's cancer drugs,
+- [17:54.160] whether it's the most advanced therapeutics
+- [17:56.760] that exist anywhere in the world,
+- [17:58.780] Americans are seeing lower costs.
+- [18:01.520] And they're going to keep on seeing lower costs
+- [18:03.830] because the President of the United States
+- [18:05.820] had the courage to fight for you
+- [18:08.110] rather than international pharmaceutical companies.
+- [18:17.090] Now the media doesn't talk about that
+- [18:18.690] because, of course, it makes us look good.
+- [18:20.800] But these are the victories that depend on having smart,
+- [18:24.790] wise leadership in Washington DC.
+- [18:26.780] You know, another thing the media doesn't talk about
+- [18:28.900] is that under four years of the Biden administration,
+- [18:31.070] the average cost of a home in the United States of America
+- [18:34.490] nearly doubled.
+- [18:35.820] And in certain jurisdictions
+- [18:37.080] it actually got way worse than that.
+- [18:39.090] There are certain places where the cost of a home in four years
+- [18:42.710] went up by 200 percent.
+- [18:45.920] What's happened over the last five months,
+- [18:48.030] rents have gone down over the past five months.
+- [18:50.730] And so, though there's still a lot of work left to do,
+- [18:53.700] we're finally seeing more Americans being interested,
+- [18:57.580] especially our young families,
+- [18:59.340] being interested in buying a home for the first time.
+- [19:02.250] We're seeing those rents come down.
+- [19:04.200] We're seeing the cost of housing flatten out a little bit.
+- [19:07.040] And one of the biggest reasons is because on the one hand
+- [19:10.370] we lowered the regulatory burdens
+- [19:11.980] to build houses in this country,
+- [19:13.810] while on the other hand we got illegal aliens
+- [19:16.290] out of the United States of America
+- [19:17.910] who are taking American homes.
+- [19:19.750] That is how you lower prices, focus on American workers
+- [19:23.130] and invest in American home building.
+- [19:25.430] You don't give all of our homes to illegal aliens.
+- [19:28.180] That is the legacy, the Biden-Harris administration.
+- [19:35.690] But on all these things,
+- [19:37.140] we know there is still so much work to do,
+- [19:39.390] and this is something I want you to hear.
+- [19:41.410] The Democrats talk a lot about the affordability crisis
+- [19:44.550] in the United States of America.
+- [19:46.310] And yes, there is an affordability crisis,
+- [19:48.930] one created by Joe Biden's policies.
+- [19:51.990] You don't turn the Titanic around overnight;
+- [19:54.980] it takes time to fix what was broken.
+- [19:57.910] I said earlier that the average American has seen $1,300
+- [20:02.290] of real increase in their wages just in the past year.
+- [20:06.410] Well, with Joe Biden, they saw a $3,000 decrease.
+- [20:10.690] Now on the one hand, I am proud of that.
+- [20:13.100] I'm proud of the fact that you're $1,300 richer
+- [20:16.550] than you were just a year ago.
+- [20:17.830] But you know what really pisses me off?
+- [20:20.420] That compared to when Donald Trump left office
+- [20:23.410] after his first term, you're still about $2,000 poorer
+- [20:27.620] because that's what happened under the Biden administration.
+- [20:31.280] They did so much damage that it's going to take us time
+- [20:34.690] to rebuild the great American prosperity
+- [20:37.170] that we had at the end of the first Trump administration.
+- [20:40.190] But what I'm telling you is that we are committed to doing it.
+- [20:42.740] As much as the media focuses on distractions every single day,
+- [20:46.690] in the Oval Office, the president looks at us
+- [20:48.550] and says why haven't we done more.
+- [20:50.880] Let's do more -- do more he'll tell us, person by person,
+- [20:54.980] from the Secretary of Commerce to the Secretary of the Treasury
+- [20:58.330] to our SBA administrator
+- [20:59.730] to the vice president of the United States,
+- [21:01.800] fight every single day
+- [21:03.420] for better home prices for Americans,
+- [21:05.530] for lower prescription drug prices,
+- [21:07.500] and, of course, for rising wages.
+- [21:09.700] That is what we're going to do.
+- [21:11.590] That is what we have done and that is what we promise
+- [21:15.330] will be the legacy of the second Trump administration,
+- [21:18.660] more prosperity for you.
+- [21:27.490] Now I want to take a few questions from the media,
+- [21:29.410] but before I do, I just want to close with this thought.
+- [21:31.790] So, growing up in Middletown, Ohio,
+- [21:34.660] which is pretty much due south on I-75,
+- [21:37.720] a lot of you probably spent time in Middletown
+- [21:40.680] in the same way that growing up,
+- [21:41.950] I spent a fair amount of time in Toledo.
+- [21:44.440] The story of towns like Toledo,
+- [21:46.350] the story of towns like Middletown
+- [21:48.220] when I was growing up was one of decline.
+- [21:51.510] It was a story of factories closing down,
+- [21:54.640] of good people losing their jobs,
+- [21:56.880] of families that were fracturing under the financial stress
+- [22:00.650] that sometimes comes when people lose that access to a good job.
+- [22:05.600] That is not the future that we should expect for our children.
+- [22:09.890] We should demand better from our leaders
+- [22:11.940] and that's exactly
+- [22:13.210] what the Trump administration is promising.
+- [22:15.540] Not a story where you open up the morning paper
+- [22:18.620] or you turn on the TV
+- [22:19.890] and you see a factory that's closed down,
+- [22:21.950] but you see a new factory that's being built.
+- [22:24.810] Not a story where your neighbor lost their job,
+- [22:27.610] but a story where your neighbor gets a new and better job
+- [22:31.350] because of what is being built right here in towns like Toledo.
+- [22:35.130] Not communities that are unsafe where you get mugged
+- [22:39.250] or murdered walking down the street,
+- [22:41.230] but where every single person, rich or poor, black or white,
+- [22:45.150] can enjoy their God given right to public safety
+- [22:48.390] in their own community
+- [22:49.640] because we're fighting for law enforcement
+- [22:51.800] as opposed to against law enforcement
+- [22:53.920] like the last administration.
+- [23:01.500] I want the grandmothers, like my grandmother,
+- [23:03.870] who are raising grandkids
+- [23:05.150] they weren't necessarily planning to raise.
+- [23:07.080] I want them to not have to choose
+- [23:09.000] between putting food on the table
+- [23:10.690] or buying their medicine.
+- [23:12.400] That is the future that we're fighting for,
+- [23:14.830] and that is what the Democrats in DC
+- [23:18.350] have fought against every single day of this administration.
+- [23:21.670] Now I don't want to say all Democrats,
+- [23:23.510] because my Mamaw, the woman who raised me,
+- [23:25.970] was one of those Blue Dog Democrats.
+- [23:27.680] She was socially conservative, she was patriotic,
+- [23:30.390] but she was a Democrat. And I know that in Toledo,
+- [23:33.540] there are a lot of those Democrats still today.
+- [23:37.180] But I've got to tell you, in Washington DC,
+- [23:39.800] those Democrats do not exist.
+- [23:42.230] They disappeared from Washington DC.
+- [23:44.550] They care more in Washington about using this country
+- [23:48.640] as one big fraud scheme
+- [23:50.520] than they do about fighting for your prosperity.
+- [23:53.520] And that's why we cannot reward these people come November.
+- [23:57.770] What are they actually fighting for?
+- [23:59.620] Well, we know what they're fighting against.
+- [24:01.730] They hate Donald Trump obsessively,
+- [24:04.100] and they talk about it every single day.
+- [24:06.440] They want men to play in women's sports, which is crazy.
+- [24:10.910] But even aside from it's crazy,
+- [24:12.510] why the hell are you talking about that
+- [24:14.260] Instead of figuring out how to fight for the American people.
+- [24:17.660] They want the Somali fraud ring in Minneapolis,
+- [24:20.730] and frankly in other states too, to continue.
+- [24:24.130] While a lot of Americans can't afford the cost of childcare,
+- [24:27.590] they want to take the very programs
+- [24:29.790] that we use to make childcare more affordable
+- [24:32.750] and give them to fraudsters
+- [24:34.780] who are illegally in our country to begin with.
+- [24:37.550] These are not politicians who care about you.
+- [24:41.060] They care about keeping the fraud going.
+- [24:43.400] And the question in November is very fundamental.
+- [24:46.510] It's going to be, do we reward the people like Jon Husted,
+- [24:50.360] who cut your taxes, who fights for lower housing costs,
+- [24:53.730] who fights for lower prescription drug costs?
+- [24:56.160] Or do we reward the crazy far-left Democrats
+- [25:00.090] who think that America
+- [25:01.480] is one big get rich scheme for fraudsters?
+- [25:05.430] That's it. That's simply the question.
+- [25:08.320] So, I'm asking you, are we going to fight for the people
+- [25:11.670] who are fighting for the American dream?
+- [25:20.060] Are we going to send a message to the far-left radicals
+- [25:23.070] that this country belongs to American citizens,
+- [25:25.550] not to illegal aliens?
+- [25:31.510] Are we going to fight for the American dream
+- [25:33.460] for people like my grandmother
+- [25:35.000] and people like your children every single day?
+- [25:41.100] So, let's remember what we're fighting for this November.
+- [25:43.990] It's to have political leadership in this country
+- [25:47.920] that fights for the American people,
+- [25:49.800] that fights for the American dream.
+- [25:51.820] Don't forget it, my friends, let's work hard,
+- [25:54.190] let's elect these great candidates to higher office
+- [25:56.620] because that's the only way we are going to send a message
+- [25:59.430] to the Democrats that this country belongs to Americans
+- [26:02.980] and that the American dream belongs to the citizens
+- [26:05.490] who built this nation.
+- [26:06.750] God bless you and thank you for having me.
+- [26:09.900] (Audience chants "JD")
+- [26:23.150] Now, I appreciate that.
+- [26:25.250] But I'm going to take a few questions from the reporters
+- [26:27.070] and then we're going to hit the road.
+- [26:28.580] The Press: Mr. Vice President, John Kasich
+- [26:30.020] from news five in Cleveland.
+- [26:32.310] President Trump outlined the framework of a future deal
+- [26:35.770] with -- on Greenland yesterday.
+- [26:38.080] NATO this morning, however, said the secretary general
+- [26:40.700] did not propose any compromise on sovereignty.
+- [26:44.170] What's your understanding of what is in this plan?
+- [26:46.690] And would you stand for something
+- [26:48.040] that did not include ownership
+- [26:50.560] even beyond where the bases are located?
+- [26:53.080] The Vice President: So, John, it's --
+- [26:54.350] first of all, it's good to see you again.
+- [26:55.860] John is -- and this is going to ruin his reputation
+- [26:58.860] among his liberal media peers.
+- [27:00.530] But John is one of my favorite journalists
+- [27:02.230] in the state of Ohio.
+- [27:03.430] He's a great TV journalist from Cleveland.
+- [27:05.500] And I used to joke with John that if he ran for high office,
+- [27:09.340] maybe back in 2012, 2013,
+- [27:12.030] he would have won because his name
+- [27:13.770] is almost exactly the same as John Kasich.
+- [27:17.420] And that if he ran in 2024,
+- [27:18.690] he would have got his ass kicked.
+- [27:21.400] So, it's amazing how things change, John.
+- [27:24.670] But I see you're still doing great things.
+- [27:26.270] On Greenland, first of all,
+- [27:27.480] we're here to talk about the great American comeback,
+- [27:29.900] and that's what the president is focused on.
+- [27:31.440] That's why the president went to Davos, you know why?
+- [27:33.780] Because he wants more investment from all over the world
+- [27:36.110] in the United States of America.
+- [27:37.820] You'll hear this number thrown out,
+- [27:39.650] $18 trillion of new investment. You know what that means?
+- [27:43.130] That means new factories, that means new plants,
+- [27:45.580] that means new oil refineries and new energy facilities
+- [27:49.480] in the United States of America.
+- [27:51.210] Because for so long our government had the policy
+- [27:54.650] that we were going to invest in other countries.
+- [27:56.360] No, no, no, we want other countries to invest right here
+- [27:58.770] in the United States of America
+- [28:00.430] and that's why the president went to Davos,
+- [28:02.240] to say that America is open for business.
+- [28:05.410] But America is open for business
+- [28:06.770] so long as you're building right here in Toledo
+- [28:09.190] and all across our great country, that is the message.
+- [28:12.300] Now on Greenland, simple fact is Greenland matters
+- [28:15.590] to American national security
+- [28:17.220] because our entire missile defense
+- [28:19.540] relies on security in the Arctic.
+- [28:21.500] This is something -- the media who is obsessed with Greenland,
+- [28:24.040] Greenland, Greenland,
+- [28:25.260] they completely forget why Greenland matters.
+- [28:27.650] What if, God forbid,
+- [28:28.850] I'm not saying it's going to happen anytime soon,
+- [28:31.070] but what if a foreign country launched a missile
+- [28:33.260] at the United States of America?
+- [28:35.050] We would need control over the Arctic
+- [28:37.370] in order to shoot that missile down.
+- [28:39.200] Our entire missile defense system
+- [28:42.130] depends on that Arctic security.
+- [28:43.890] Meanwhile, the Chinese and the Russians,
+- [28:45.840] and even the Danes who control Greenland,
+- [28:48.590] admit that they want to control that facility,
+- [28:50.900] they want to control that island, that landmass.
+- [28:53.130] That would make us weaker,
+- [28:54.450] that would make our country more endangered.
+- [28:56.260] That would mean that if the president is negotiating
+- [28:58.790] with a foreign leader, he would have less leverage
+- [29:01.230] because they would be able to realistically threaten
+- [29:04.090] the sovereignty
+- [29:05.310] and the territorial safety of the United States of America.
+- [29:08.480] We're not going to let that happen.
+- [29:09.980] The negotiations with NATO are going fine.
+- [29:12.340] I believe, having seen this for the past year,
+- [29:15.070] that when the president sets his mind
+- [29:16.690] to accomplish something in negotiation, he accomplishes it.
+- [29:20.020] And fundamentally, NATO and the Danes and everybody else
+- [29:23.650] have to recognize the simple fact
+- [29:25.550] that this matters not just to American security
+- [29:28.540] but to world security.
+- [29:29.920] So, we're going to keep on trying to make sure
+- [29:31.320] that we secure that landmass
+- [29:33.400] so that we can protect the American people,
+- [29:35.390] as we've done and will continue to do.
+- [29:37.300] Thank you.
+- [29:42.630] Whoever's next, the lights are very bright, so I can't see.
+- [29:45.330] But whoever's got the microphone,
+- [29:46.890] just shout out a question.
+- [29:48.160] The Press: Mr. Vice President, Henry Gomez, NBC News.
+- [29:51.280] President Trump this week said that ICE has made some mistakes.
+- [29:54.880] I'm curious what steps the administration
+- [29:57.070] is taking to rectify those.
+- [29:59.130] And do you think your presence in Minneapolis today
+- [30:01.720] will calm the tensions there?
+- [30:03.980] The Vice President: Well, certainly one of my goals
+- [30:05.200] is to calm the tensions, to talk to people,
+- [30:07.020] to try to understand what we can do better.
+- [30:09.260] When the president says that there are --
+- [30:11.210] that mistakes have been made. My thought on that is that,
+- [30:14.390] well, of course there have been mistakes made
+- [30:16.030] because you're always going to have mistakes
+- [30:18.190] made in law enforcement.
+- [30:20.520] I mean, we all know this.
+- [30:21.770] Probably every single person in this room
+- [30:23.400] knows a police officer.
+- [30:24.940] 99 percent of our police officers,
+- [30:26.610] probably more than that, are doing everything right.
+- [30:28.670] Some people are going to make mistakes.
+- [30:30.200] That's the nature of law enforcement.
+- [30:32.090] But the number one way where we could lower
+- [30:34.250] the mistakes that are happening,
+- [30:35.560] at least with our immigration enforcement,
+- [30:37.740] is to have local jurisdictions that are cooperating with us.
+- [30:41.040] There are some very basic things
+- [30:43.230] that would make Minneapolis look like --
+- [30:45.930] Memphis, Tennessee, a blue city where you do not have this chaos
+- [30:50.020] in immigration enforcement because the local police
+- [30:52.910] and the local authorities are cooperating with us.
+- [30:55.300] So, when you look at Memphis,
+- [30:56.590] Tennessee or Austin, Texas or any other community
+- [31:00.190] virtually across the United States of America
+- [31:02.480] and you don't see the same level of chaos in Minneapolis,
+- [31:05.930] the natural conclusion
+- [31:07.580] is that it's not what ICE is doing in Minneapolis,
+- [31:09.880] it's what Minneapolis authorities are doing
+- [31:12.400] to prevent ICE from doing their jobs
+- [31:14.390] and that's exactly what's happening.
+- [31:19.060] So, let me give you just a couple
+- [31:21.810] of very real-world examples
+- [31:23.220] of some of the problems that we face.
+- [31:24.420] So, let's say you have a sex offender.
+- [31:26.530] We've arrested a number of sex offender illegal aliens
+- [31:30.340] in Minneapolis just in the last couple of months.
+- [31:33.130] But that person, because they're an illegal alien,
+- [31:35.060] we don't know where they live.
+- [31:36.330] We don't know their address.
+- [31:37.920] If local authorities were cooperating with us,
+- [31:40.420] it would be easier to send in ICE agents
+- [31:42.470] to the person's house to arrest them,
+- [31:44.930] to have local law enforcement
+- [31:46.440] protecting our immigration officers.
+- [31:48.390] They throw the sex offender in the back of a car,
+- [31:50.660] deport that person, throw them in jail, whatever,
+- [31:53.810] and then they go home safely to their families.
+- [31:55.380] That's not what's happening.
+- [31:56.800] What's happening instead is that the Minneapolis authorities
+- [31:59.610] are refusing to tell us where that sex offender lives.
+- [32:02.910] Why are they protecting sex offenders?
+- [32:05.000] That's anybody's guess, but it's crazy.
+- [32:07.740] Meanwhile, the local police are being told by the mayor,
+- [32:10.950] don't help them. So, if there are protests
+- [32:13.920] and there are people trying to not just protest
+- [32:16.650] but interfere with what ICE is doing,
+- [32:18.810] we don't have the support of local law enforcement
+- [32:20.750] to keep the peace.
+- [32:21.970] So, when I talk about lowering the temperature,
+- [32:23.820] those are the two things
+- [32:25.080] that we want those local authorities to do,
+- [32:27.490] help us find sex offenders and get them out of their community.
+- [32:30.350] And again, this is bonkers. Think about this --
+- [32:33.670] if you've got a neighbor who's a sex offender
+- [32:35.610] and somebody wants to go and take that person away,
+- [32:37.990] I'm going to raise my hand and say, yes, please,
+- [32:40.300] get that person away from my children.
+- [32:42.250] What is wrong with Minneapolis authorities?
+- [32:44.880] They so hate the idea of enforcing immigration laws
+- [32:48.660] that they're telling their people
+- [32:51.090] not to get sex offenders out of their community.
+- [32:53.830] It's crazy and it's why we see so much chaos in Minneapolis,
+- [32:57.620] but not elsewhere.
+- [33:02.650] The Press: Shaun Hegarty, sir, 13 Action News here in Toledo.
+- [33:05.760] In the city itself,
+- [33:07.050] affordable housing is a real problem,
+- [33:09.220] supply is low, rents are going up.
+- [33:11.700] What specifically can your administration
+- [33:13.810] do to increase the supply and get people,
+- [33:16.550] especially in the city of Toledo,
+- [33:18.260] into long-term, stable, good housing?
+- [33:19.820] The Vice President: So, we're working
+- [33:21.110] on a number of things on this front.
+- [33:22.410] First of all, one of the things,
+- [33:23.610] the president just announced a couple of weeks ago
+- [33:25.630] that, again, hasn't gotten a lot of media attention,
+- [33:27.590] but I think is very important, is that he said
+- [33:30.050] we want American homes to go to American citizens.
+- [33:33.280] That means no illegal aliens buying American homes.
+- [33:36.090] It means no mortgages going to people who have no legal
+- [33:39.270] right to be in this country.
+- [33:40.860] But it also means that we're going to stop large
+- [33:43.490] institutional investors from buying up American homes.
+- [33:46.130] That was a major announcement from the president
+- [33:48.610] and we're working on that now. And you see this all the time.
+- [33:53.310] You see this massive, beautiful new subdivision
+- [33:56.000] where every single person there is renting
+- [33:58.620] because that subdivision was bought up
+- [34:00.920] by a massive institutional investor.
+- [34:03.060] That investor, by the way,
+- [34:04.920] is very often paying a lower price
+- [34:07.010] for their debt than an American citizen.
+- [34:09.360] So, we give these people special rules,
+- [34:11.590] we give them cheaper access to money,
+- [34:13.610] and then we let them buy homes
+- [34:15.380] that ought by right go to American families.
+- [34:17.550] That is one of the main reasons why we believe homes
+- [34:19.930] have gotten unaffordable in this country.
+- [34:21.500] So, again,
+- [34:22.710] the last administration did nothing about it.
+- [34:24.770] We're going to do something about it.
+- [34:26.090] We've already started. Here's another thing.
+- [34:28.360] If you look at the 20 biggest metros
+- [34:32.230] in the United States of America,
+- [34:34.130] the 14 with the most illegal aliens
+- [34:37.060] have seen the biggest decrease
+- [34:38.920] over the past year in rent prices.
+- [34:41.300] Now why is that?
+- [34:42.660] Again, if you get people out of the country
+- [34:45.250] who are taking up homes
+- [34:46.590] that ought to go to American citizens,
+- [34:48.440] that's going to put downward pressure on prices.
+- [34:50.770] That's going to make it easier for young American families
+- [34:53.910] to afford to buy a home.
+- [34:55.460] There are three exceptions to that,
+- [34:57.140] three places where you've seen rents increase
+- [35:00.540] as opposed to decrease.
+- [35:01.930] And every single one of those places are sanctuary cities.
+- [35:05.620] So, in addition to causing chaos,
+- [35:07.950] being a sanctuary city makes your communities less safe,
+- [35:11.450] and it also makes housing less affordable.
+- [35:13.620] It is very simple --
+- [35:15.370] enforcing immigration law lowers prices for Americans
+- [35:19.370] and makes our community safer. It's a no brainer.
+- [35:22.360] So, we'd encourage local authorities to continue
+- [35:24.940] to collaborate and work with us instead of fighting against us.
+- [35:28.470] Next question?
+- [35:30.890] The Press: Good morning, Mr. Vice President.
+- [35:32.500] Thank you so much, Kyle Mazza freelancing for
+- [35:34.810] (Inaudible) agency today.
+- [35:36.140] Ukrainian President Volodymyr Zelenskyy
+- [35:38.080] announced at today's summit for the World Economic Forum
+- [35:40.910] that Ukraine, Russia
+- [35:42.230] and the US will hold their first trilateral talks Friday
+- [35:45.470] and Saturday the 23rd and 24th, in the United Arab Emirates.
+- [35:49.080] Seeing what your reaction is to that -- about those talks,
+- [35:52.110] and in Minneapolis, sir, the attacks on law enforcement,
+- [35:55.290] the attacks on ICE, what is your message
+- [35:57.930] to the law enforcement community at this time
+- [36:00.190] when they look for the Trump and the Vance administration
+- [36:03.280] to calm their nerves, to ease their burdens?
+- [36:06.720] Families are reacting to this as well.
+- [36:08.890] So, as you stand there on that stage today,
+- [36:10.940] how does that make you feel?
+- [36:12.170] The Vice President: Well, you know,
+- [36:13.390] one of the things that we want to do
+- [36:14.880] is send a message to our local law enforcement,
+- [36:17.010] to our federal law enforcement that we stand with them.
+- [36:19.000] And we're not going to abandon them.
+- [36:20.350] We're not going to do what the last administration did,
+- [36:22.500] which is throw them under the bus
+- [36:24.000] to appease a bunch of left-wing radicals.
+- [36:26.340] We're actually going to fight for them because I believe --
+- [36:29.290] Look, I continue to be fundamentally optimistic
+- [36:35.910] about our country.
+- [36:37.290] I think that whether you're a Democrat or Republican
+- [36:39.280] or an Independent, most people in this country
+- [36:42.460] fundamentally still support law enforcement.
+- [36:44.780] They love what people do to keep them safe;
+- [36:47.520] they recognize it's dangerous.
+- [36:49.700] But what happened in the Democratic Party
+- [36:51.400] over the last few years is they allowed
+- [36:53.320] a very small band of left-wing crazies to drive the agenda.
+- [36:57.060] And that makes our cops and our federal law enforcement
+- [36:59.040] feel less safe.
+- [37:00.240] It makes it feel like their government
+- [37:01.700] doesn't have their back. Well, I promise them,
+- [37:03.620] every single police officer in this country
+- [37:05.860] and every single federal law enforcement officer
+- [37:07.620] in this country, we have your back
+- [37:09.600] and that's one of the messages
+- [37:11.010] I'm trying to send by going to Minneapolis
+- [37:13.810] and talking to our ICE officers there.
+- [37:15.430] So, that's number one.
+- [37:16.980] Number two, you talk about attacks on law enforcement.
+- [37:20.560] It is insane.
+- [37:22.240] I understand, look, I'm biased, obviously,
+- [37:24.970] I think the Trump-Vance administration
+- [37:26.530] has got the right approach to immigration.
+- [37:28.130] I think it's insane to let tens of millions of people flood
+- [37:31.830] across your country,
+- [37:33.100] many of them with violent criminal records,
+- [37:34.930] and then to say you're not allowed to do anything
+- [37:37.780] to get those people out of your country.
+- [37:39.370] That's crazy to me, fine.
+- [37:40.930] If you disagree, if you think that we ought to let sex
+- [37:43.140] offenders be in your community,
+- [37:44.660] even if they're illegal aliens, fine, make that argument.
+- [37:47.840] But make that argument at the ballot box,
+- [37:49.910] write an op ed in the newspaper,
+- [37:51.860] argue about it on social media, don't go to the streets
+- [37:56.070] and start assaulting federal law enforcement officers
+- [37:58.950] because you disagree with the policies of our administration.
+- [38:02.030] It's cowardly bullshit, and it's got to stop.
+- [38:11.700] And here's the -- excuse my language to all the kids there.
+- [38:14.910] I'm sorry, got a little fired up.
+- [38:17.400] I was raised by a woman who cussed a lot,
+- [38:19.030] so sometimes I do too.
+- [38:20.950] My wife is on me. We're working on it.
+- [38:24.380] But here here's the final point about this.
+- [38:27.330] People who assault federal law enforcement
+- [38:29.920] or local law enforcement will be shown no quarter.
+- [38:33.740] I just -- probably five minutes before I got on stage,
+- [38:38.540] I got a message from our great attorney general Pam Bondi.
+- [38:41.560] Do you know what Pam said to me?
+- [38:43.560] That they finally arrested the ringleader
+- [38:48.190] of those church protests in Minneapolis.
+- [39:00.080] So, here's the thing.
+- [39:09.410] Again, you don't have to agree with my immigration policies,
+- [39:12.770] but if you want to protest
+- [39:14.130] by going to an innocent church service on a Sunday,
+- [39:17.240] you see these images, they're scaring little kids
+- [39:19.950] who are there to worship God on a Sunday morning.
+- [39:23.080] Those people are going to be sent to prison
+- [39:25.480] so long as we have the power to do.
+- [39:28.220] We're going to do everything we can to enforce the law.
+- [39:30.370] Whether you're protesting at a church,
+- [39:32.420] which is a violation of federal law,
+- [39:34.290] or you're assaulting a law enforcement officer,
+- [39:36.540] which again is a violation of federal law,
+- [39:39.010] there are going to be consequences.
+- [39:40.420] There already have been consequences
+- [39:42.180] and there are going to be a lot more to come.
+- [39:43.710] So, my message is if you're thinking about
+- [39:45.680] assaulting a law enforcement, don't,
+- [39:47.680] because we're going to lock you up if you do.
+- [39:49.820] Now, you asked about Zelenskyy and Russia and Ukraine.
+- [39:52.940] Look, the president, he talks about this all the time,
+- [39:57.170] this has been the hardest war to solve.
+- [39:59.450] Of the eight wars that the president has solved,
+- [40:01.480] he thought this would be the easiest,
+- [40:02.920] it's ended up being the hardest.
+- [40:04.410] The fact that they're sitting down and talking is progress
+- [40:07.240] and I think we've made a lot of progress here.
+- [40:09.040] Look, you've got two people who really hate each other.
+- [40:11.800] The president of United States' attitude is quite simple,
+- [40:14.390] and I happen to think that it's exactly right.
+- [40:16.550] Peace is what is in the best interest
+- [40:18.460] of the United States of America.
+- [40:20.130] We want commerce between those two countries.
+- [40:22.570] We want Europe to be less focused on war
+- [40:24.810] and more focused on investing in the United States of America.
+- [40:28.380] And the best way to do that
+- [40:29.890] is to get that war to a peaceful resolution.
+- [40:32.230] We're going to keep on working on it.
+- [40:33.750] I've been disappointed in the past
+- [40:35.820] where I thought we were close to a peace deal.
+- [40:37.610] So, I'm not going to predict that anything is going to happen
+- [40:40.030] in the next couple of weeks.
+- [40:41.510] I know under the president's leadership,
+- [40:43.060] we've made great progress
+- [40:44.320] and we're going to keep on making progress
+- [40:46.130] so we can stop the killing and get back
+- [40:49.050] to actually building things all over the world,
+- [40:52.000] as opposed to people killing each other
+- [40:54.210] and tearing things down.
+- [40:56.660] And I'll take and I'll take one more question.
+- [41:00.630] The Press: Thank you, Mr. Vice President.
+- [41:01.840] This is Mary Margaret Olohan with the Daily Wire.
+- [41:04.250] I know you were here in September in Minneapolis
+- [41:06.550] after an attack on a church that killed school children.
+- [41:09.690] What does it mean to you that this attack --
+- [41:11.810] another attack happened on a church last weekend?
+- [41:14.260] And do you want to see more arrests for this attack?
+- [41:17.620] The Vice President: So, Mary, yes,
+- [41:18.970] I certainly want to see more arrests
+- [41:20.340] because I've seen the videos
+- [41:21.570] and there are very clearly more people
+- [41:23.000] who have violated the law.
+- [41:24.530] Now I'll let the Department of Justice speak to that
+- [41:26.600] because, as you know, actually getting an arrest warrant
+- [41:29.730] is not a walk in the park necessarily.
+- [41:31.400] There's a legal process that we have in this country
+- [41:34.020] and rightfully so.
+- [41:35.390] But I know the Department of Justice
+- [41:36.740] continues to work on bringing every single person
+- [41:39.700] who is involved in that church protest.
+- [41:42.390] But it's not just a protest when you interrupt people
+- [41:45.550] during a worship service. That is a violation of the law.
+- [41:48.900] Just as you have the right to protest,
+- [41:50.870] they have a right to worship God as they choose.
+- [41:53.560] And when you interrupt that, that is a violation of the law.
+- [41:56.840] So, yes, I think we're going to see more prosecutions there.
+- [41:59.140] I certainly hope that we're going to see
+- [42:00.540] more prosecutions there,
+- [42:02.020] but I'll let the Department of Justice
+- [42:03.310] speak to the timeline there.
+- [42:05.070] And on that note, let me just say,
+- [42:08.730] I see a lot of people here. I see a few young people.
+- [42:12.560] I see a lot of people who work at this great factory.
+- [42:14.330] I just want you to know that you are the people
+- [42:17.650] who make the United States of America a great country.
+- [42:20.800] When I think about all the great things about our nation,
+- [42:22.990] all the great things that we've accomplished,
+- [42:24.750] the world wars that we've won,
+- [42:26.260] we've gone to the moon, we've cured diseases
+- [42:28.760] that nobody else thought could be cured.
+- [42:30.890] The foundation of that is the prosperity
+- [42:33.940] of the American working man and American working woman.
+- [42:37.460] You guys are the reason
+- [42:39.220] why we're able to do incredible things
+- [42:41.690] as the United States of America.
+- [42:43.510] We talk about our great foreign policy accomplishments,
+- [42:46.330] that starts right here in Toledo, Ohio.
+- [42:49.600] We talk about peace in the world,
+- [42:51.730] that starts right here in Toledo, Ohio.
+- [42:53.700] We talk about prosperity for the entire nation.
+- [42:58.060] That starts right here with building things
+- [43:00.430] and making things and employing good people and dignified work,
+- [43:04.710] that starts in Toledo, Ohio. The cars I see on the road
+- [43:08.420] all over the United States of America,
+- [43:10.230] many of them built right here,
+- [43:11.850] the steel that builds our bridges
+- [43:13.780] and so many of our great buildings
+- [43:16.000] happens a stone's throw away from this very facility.
+- [43:20.020] I want you to know that for too long your leadership,
+- [43:23.870] your government,
+- [43:25.150] your politicians have looked down upon you,
+- [43:27.990] have ignored you, and that's not happening anymore.
+- [43:31.080] There are so many great things I could point to,
+- [43:33.280] so many policies --
+- [43:34.530] no taxes on tips, the regulatory reform,
+- [43:37.620] the fact that we unleashed American energy.
+- [43:40.170] But every single one of those specific policy wins
+- [43:43.630] is about a simple fact, reinvesting in you and ensuring
+- [43:47.290] that your family has the same great shot
+- [43:49.400] at the American dream that I had.
+- [43:51.620] This is very personal to me.
+- [43:52.860] I don't know if you saw the announcement,
+- [43:54.230] I guess we made it yesterday or the day before,
+- [43:56.570] but our wonderful second lady is pregnant with our fourth child
+- [43:59.110] and I'm very, very happy about that.
+- [44:06.610] You know, we were debating having a fourth child
+- [44:08.750] and I said, honey, you know the new Trump accounts
+- [44:11.430] and the increased child tax credit are coming online.
+- [44:13.770] We've got to take advantage of this stuff.
+- [44:16.710] She's going to be pissed at me about that one.
+- [44:18.440] That's OK. But look, this is personal to me
+- [44:22.630] just as I know it's personal to you.
+- [44:24.040] We've got skin in the game.
+- [44:25.590] Our great governor -- governor candidate, not governor yet.
+- [44:28.250] We're getting there.
+- [44:29.520] Our great Senator, all of these great leaders,
+- [44:32.330] they love people in the state of Ohio.
+- [44:34.880] They love people in this community
+- [44:36.800] who are going to rise or fall
+- [44:38.580] based on whether leaders in Washington make wise decisions.
+- [44:42.080] I'm not saying you're going to agree
+- [44:43.350] with everything that we do, but I know in this room
+- [44:46.210] we've got a lot more agreement than disagreement.
+- [44:47.870] But what I am promising you
+- [44:49.550] is that every day for the next three years,
+- [44:51.230] as long as I'm the vice President of the United States,
+- [44:54.060] as long as Donald Trump is the President of the United States,
+- [44:56.870] we will remember that you are what makes America great
+- [45:00.400] and we'll never stop fighting for you.
+- [45:02.140] God bless you, it's good to be home. Thank you.
+- [45:04.370] (applause)

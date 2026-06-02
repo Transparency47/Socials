@@ -1,0 +1,409 @@
+<!-- source: https://www.youtube.com/watch?v=cQbWdz4SBEU -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: cQbWdz4SBEU -->
+<!-- date_published: 2025-04-07T13:41:16+00:00 -->
+<!-- date_accessed: 2026-06-02T01:28:21.406095+00:00 -->
+
+# Transcript: President Trump Gaggles with Press On Air Force One, Apr. 6, 2025
+
+- [00:00.340] [Music]
+- [00:00.719] Hello everybody. Mr. President, any
+- [00:04.160] questions? How was the mouse tournament?
+- [00:06.560] Very good because I won. It's good to
+- [00:09.920] win. You heard I won, right? I won, sir.
+- [00:13.840] Just to uh back it up. There. I won.
+- [00:18.160] What's your handicap? I like to win.
+- [00:19.760] Very low. I have a very low handicap.
+- [00:22.480] Okay, let's go. Sir, uh Chinese foreign.
+- [00:25.680] Sure. Chinese foreign ministry said uh
+- [00:28.640] that the market is spoken when asked
+- [00:30.560] about the tariffs. What do you make of
+- [00:32.559] that? The market is spoken when they
+- [00:35.200] look at the fact that we have a billion
+- [00:37.160] dollar trade deficit. When you look at
+- [00:40.879] the trade deficit that we have with
+- [00:43.360] certain countries, way over a billion
+- [00:45.680] per country, but with China it's a
+- [00:48.000] trillion dollars. And we have to solve
+- [00:50.559] our trade deficit with China. We have a
+- [00:52.480] trillion dollar trade deficit with
+- [00:54.160] China. Hundreds of billions of dollars a
+- [00:57.280] year we lose with China. And unless we
+- [00:59.520] solve that problem, I'm not going to
+- [01:01.359] make a deal. Now, I'm willing to deal
+- [01:03.199] with China, but they have to solve their
+- [01:05.439] surplus. We have a tremendous uh deficit
+- [01:08.640] problem with China. They have a surplus
+- [01:11.280] of of at least a trillion dollars a
+- [01:13.840] year. I think it's like a trillion one.
+- [01:16.960] And I want that solved. And no other
+- [01:20.240] president's taken it on. I had to take
+- [01:22.000] it on the last time that we had a rigged
+- [01:24.799] election. No other president's taking it
+- [01:27.240] on that. So, China is, you know, they
+- [01:30.320] say the market's woken. The market China
+- [01:32.880] is right now taking a big hit because
+- [01:35.520] everyone knows we're right. They have to
+- [01:38.079] pay tariffs because otherwise we have a
+- [01:40.759] surplus that they have a surplus with us
+- [01:43.680] that is not sustainable,
+- [01:46.479] Mr. President. And we're talking about a
+- [01:48.240] trillion dollars. You know that, right?
+- [01:50.240] We're not going to lose a trillion
+- [01:51.680] dollars for the privilege of buying
+- [01:53.600] pencils from China. On the idea of
+- [01:57.200] crashing the markets on purpose, there's
+- [01:59.920] been some speculation, partly because of
+- [02:02.640] the video that was posted on Truth
+- [02:04.719] Social, that there was some sort of
+- [02:06.799] deliberate effort on your part to have
+- [02:09.280] the market sell off. Can you talk about
+- [02:12.000] that? No, no, not so. But I do want to
+- [02:14.560] solve the deficit problem that we have
+- [02:17.280] with China, with the European Union, and
+- [02:19.840] other nations. And they're going to have
+- [02:21.760] to do that. And if they want to talk
+- [02:23.520] about that, I'm open to talking. But
+- [02:25.760] otherwise, why would I want to talk? And
+- [02:28.959] uh as you know because of the tariffs we
+- [02:32.239] have $7 trillion already committed to be
+- [02:35.440] invested in the United States building
+- [02:37.920] auto plants, building uh chip companies
+- [02:40.879] and all sorts of companies are coming
+- [02:43.599] into our country at levels that we've
+- [02:45.360] never seen before. Biden had nothing
+- [02:47.680] coming and he was this was a dead
+- [02:49.440] company with this was a dead country
+- [02:52.000] with Biden. He didn't know what he was
+- [02:53.680] doing and that's now been proven at
+- [02:55.360] least. This weekend, you talked to a lot
+- [02:57.920] of leaders this weekend. Can you tell
+- [02:59.680] us, sir, were there any deals made? I
+- [03:02.000] spoke to a lot of leaders, European,
+- [03:04.879] Asian, from all over the world. They're
+- [03:07.360] dying to make a deal. And I said, we're
+- [03:10.080] not going to have deficits with your
+- [03:12.120] country. We're not going to do that
+- [03:14.239] because to me, a deficit is a loss.
+- [03:17.120] We're going to have surpluses or we're
+- [03:18.879] at worst going to be breaking even. But
+- [03:22.319] China would be the worst uh in the group
+- [03:25.280] because the deficit is so big and would
+- [03:28.640] it's not sustainable. And you know I was
+- [03:31.519] elected on this. This was one of the
+- [03:33.360] biggest reasons I got elected was
+- [03:35.760] exactly because of this. And we're going
+- [03:38.159] to put tariffs. We've already put them
+- [03:39.599] on. It's not a question of we will.
+- [03:41.680] We're going to put them on. And those
+- [03:43.440] tariffs next year will make us $1
+- [03:46.560] trillion.
+- [03:48.959] In addition to the $1 trillion dollars,
+- [03:52.000] thousands of companies are going to
+- [03:53.920] relocate back into the United States. In
+- [03:56.640] North Carolina already, furniture people
+- [03:59.280] are starting to move back in. In Detroit
+- [04:02.319] and Michigan, which I want because of
+- [04:05.280] what I said, what I'm telling you, car
+- [04:07.840] companies are starting to open up in
+- [04:09.920] Indiana. A big one is under
+- [04:12.159] construction, as an example, Honda. But
+- [04:15.680] uh they're moving in like nobody's ever
+- [04:18.959] seen this
+- [04:20.199] before. So it's unsustainable for us to
+- [04:23.680] allow China to have surpluses of a
+- [04:27.120] trillion dollars. We will be taking in
+- [04:30.000] over a trillion dollars over the next
+- [04:32.560] short period of time with the tariffs
+- [04:35.120] that I've already instituted. They're
+- [04:37.840] already in place. Now what's going to
+- [04:39.280] happen with the market? I can't tell
+- [04:40.560] you. But I can tell you our country has
+- [04:43.040] gotten a lot stronger.
+- [04:45.040] And
+- [04:45.960] eventually it'll be a country like no
+- [04:48.400] other. It'll be the most dominant
+- [04:50.080] country economically in the world, which
+- [04:53.040] is what it should be. Is there a Trump
+- [04:54.880] put though? Are is there a is there pain
+- [04:57.600] in the market at some point? You're
+- [04:59.520] unwilling to tolerate this idea of a
+- [05:01.360] Trump put. Is there a threshold? I I
+- [05:03.840] think your question is sustain I think
+- [05:06.160] it's a I don't want anything to go down
+- [05:09.199] but sometimes you have to take medicine
+- [05:10.960] to fix something and we have such a a
+- [05:15.479] horrible we have been treated so badly
+- [05:18.639] by other countries because we had stupid
+- [05:21.680] leadership that allowed this to happen.
+- [05:23.759] They took our businesses. They took our
+- [05:25.919] money. They took our jobs. They moved it
+- [05:28.400] to Mexico. They moved it to Canada. They
+- [05:30.639] moved a lot of it to China. and it's not
+- [05:33.440] sustainable. We're not going to do it.
+- [05:35.039] Now we have hundreds of billions of
+- [05:37.600] dollars is pouring into our country on a
+- [05:40.320] monthly basis. It's pouring. It's
+- [05:42.000] already started because I put tariffs on
+- [05:44.479] it that eventually it's going to
+- [05:46.000] straighten out and our country will be
+- [05:47.680] solid and strong again. Musk has said he
+- [05:50.639] hopes for zero tariffs between the US
+- [05:52.560] and Europe. Is that a place you'd like
+- [05:54.160] to also get to? Well, the problem is
+- [05:55.759] that Europe has made a fortune with us.
+- [05:57.680] You know, Europe also has had a
+- [05:59.840] tremendous uh surplus with the United
+- [06:02.560] States. Europe has treated us, it's a
+- [06:05.199] little smaller, but they've treated us
+- [06:07.520] very, very badly. China has, but Europe
+- [06:10.319] has also. Europe has been very, very bad
+- [06:12.639] to us. Europe has uh taken our leaders
+- [06:16.000] for a ride. They don't take our cars.
+- [06:19.039] They don't take our food products. They
+- [06:21.280] don't take anything. And we take their
+- [06:23.680] cars, Mercedes, Volkswagen, BMW, you
+- [06:27.120] know, we take their millions of cars,
+- [06:29.280] they take no cars, they don't take our
+- [06:31.600] farm product, they don't take anything.
+- [06:33.600] Europe's treated us very badly. We put a
+- [06:35.919] big tariff on Europe. Uh they are coming
+- [06:38.240] to the table. They want to talk, but
+- [06:40.400] there's no talk unless they pay us a lot
+- [06:43.120] of money on a yearly basis. uh number
+- [06:46.000] one for present but also for past
+- [06:48.720] because they've taken a lot of our
+- [06:50.160] wealth away and we're not going to allow
+- [06:51.759] it to happen. Sir, have you talked to
+- [06:53.680] any tech leaders over the weekend about
+- [06:55.440] the tariffs? Yeah, I talked to the
+- [06:58.560] biggest in the world. I talked to the
+- [07:00.720] biggest of them all. Uh many of them,
+- [07:03.759] but I've talked to uh I would say four
+- [07:06.960] or five that are considered the biggest.
+- [07:09.280] They don't You know what they said? We
+- [07:11.599] don't blame you. Who did you talk to?
+- [07:15.199] Uh I don't want to say I I'll put it
+- [07:17.360] out. I may give it a video CEO. I have
+- [07:19.759] to find out if they mind, you know. I
+- [07:21.280] don't know if that was a confidential
+- [07:22.639] call or not, but we had five or six. Uh
+- [07:25.759] I've spoken to many countries. They all
+- [07:27.599] want to do just so you understand the
+- [07:29.039] power of what I'm doing. Every country
+- [07:31.759] is calling and being very solicitous of
+- [07:34.240] us. Very very nice. They're being very
+- [07:37.000] nice and and we have to be able to
+- [07:41.639] justify this is not sustainable. The
+- [07:44.880] United States can't lose 1.9 trillion
+- [07:48.319] dollars on trade. We can't do that and
+- [07:51.520] also spend a lot of money on NATO in
+- [07:53.919] order to protect European nations. We
+- [07:56.639] cover them with military. Then we lose
+- [07:58.879] money on trade. It's the whole thing is
+- [08:02.319] crazy. And I got elected on that basis.
+- [08:04.479] We explained it. You know, the American
+- [08:06.560] people understand it a lot better than
+- [08:08.319] the media, but the media understands it
+- [08:11.440] and much of the media writes correctly
+- [08:13.520] about it. I must
+- [08:15.319] sir, when do you when are the next set
+- [08:17.680] of talks with Russia and who will
+- [08:19.280] participate and where are we in terms of
+- [08:21.039] making progress in terms of peace? We're
+- [08:23.039] talking to Russia. We'd like them to
+- [08:24.639] stop. I don't like the bombing. The
+- [08:26.800] bombing goes on and on and every week
+- [08:29.840] people and thousands of young people are
+- [08:31.840] being killed and uh it's a horrible
+- [08:34.800] thing that should have never started
+- [08:36.240] would have never started if I were
+- [08:38.399] president 100%. On the tariffs, is it a
+- [08:41.719] negotiation with Bloomberg? Sir, is it a
+- [08:44.880] negotiation or rules of the road? Go
+- [08:47.680] ahead. Another question, please. Sir,
+- [08:50.000] about Tik Tok. She has too many
+- [08:51.839] questions. Sir, about Tik Tok. There was
+- [08:54.080] a report that there was about to be a
+- [08:55.680] deal, but China changed his mind because
+- [08:57.519] of the tariffs. I'd say it was largely
+- [08:58.880] true. The report is that we had a deal
+- [09:00.880] pretty much for Tic Tac. Not a deal, but
+- [09:02.880] pretty close. And then China changed the
+- [09:05.360] deal because of tariffs. Uh if I gave a
+- [09:08.720] little cut in tariffs, they'd approve
+- [09:10.320] that deal in 15 minutes, which shows you
+- [09:12.640] the power of tariffs, right? President
+- [09:14.560] former New Hampshire Governor Chris
+- [09:16.240] Cenounu is saying that he'll win the
+- [09:18.560] open Senate seat in New Hampshire and
+- [09:20.160] that he has no doubt you'll support him
+- [09:22.000] if he runs. Is that true? True. I told
+- [09:24.640] him he came to my office, came to the
+- [09:26.800] Oval Office and met with Chris Cenounu
+- [09:30.480] and I support him fully. I hope he runs.
+- [09:32.959] He's been very uh nice to me over the
+- [09:35.760] last year or so. But no, I hope he runs.
+- [09:39.200] I think he'll win that seat. Sir, when
+- [09:41.519] when we get into late summer, early fall
+- [09:44.640] and people are doing their back to
+- [09:45.760] school shopping, do you think they'll
+- [09:47.279] have inflation to worry about at that
+- [09:48.959] point? I there's not going to be I don't
+- [09:50.800] think inflation's going to be a big deal
+- [09:52.640] because if you look at me, I took in
+- [09:55.519] hundreds of billions of dollars. This is
+- [09:57.920] not new to me. I took in during my four
+- [10:00.800] years hundreds of billions of dollars
+- [10:02.959] from China and we also took in a lot of
+- [10:05.440] money from other countries, but in
+- [10:06.880] particular China because it was just
+- [10:09.120] getting started and there was we had no
+- [10:11.959] inflation. Who had inflation was Biden.
+- [10:14.720] Biden had the worst inflation in the
+- [10:16.480] history of our country. I had no
+- [10:18.399] inflation. We had a perfect country. We
+- [10:21.040] had no wars. I ended them all. I
+- [10:23.440] defeated ISIS. Everything was good. And
+- [10:26.880] then when this numpskull got in, as they
+- [10:29.680] really call themselves now, numskulls.
+- [10:32.160] But uh when he got in, bad things
+- [10:34.880] happened to our country, including our
+- [10:36.320] our open border. And now we're doing
+- [10:39.120] very well with, you know, we uh we have
+- [10:41.440] the best numbers on the border that
+- [10:42.959] we've ever had. Speaking of the border,
+- [10:44.800] have you talked to Attorney General Pam
+- [10:46.399] Bonnie recently about the cases going on
+- [10:48.240] with the deportations? Yeah, sure. It's
+- [10:50.240] really sad. Wouldn't you think that
+- [10:52.240] Biden allowed millions of people to come
+- [10:54.079] in and if they find one? Now, I I will
+- [10:56.880] tell you the one somebody said he's a
+- [10:59.040] member of MS13, not Trend Dear. He's a
+- [11:03.920] member of MS-13 and therefore he should
+- [11:06.720] immediately be brought back. Well, MS-13
+- [11:09.680] is just as bad as Tren dewa. So they
+- [11:12.800] say, "Oh, we made a mistake." Because
+- [11:14.399] he's not with them. He's with MS-13.
+- [11:17.680] Bring them back. Bring them back. MS-13
+- [11:20.480] is a very bad group. Sir, how concerned?
+- [11:24.000] Maybe as bad, actually. How concerned
+- [11:25.920] are you about the measles outbreak?
+- [11:27.440] There was another fatality today. And
+- [11:28.959] what else would you like to see in terms
+- [11:30.240] of the response? Well, I think they
+- [11:32.839] uh doing reports on it. It's so far a
+- [11:36.720] fairly small number of people relative
+- [11:38.480] to what we're talking about. uh
+- [11:40.720] something that people have known about
+- [11:42.959] for many many years. I mean measles has
+- [11:45.040] been you know this is not something new
+- [11:47.760] and uh we'll see what happens but
+- [11:49.880] certainly if if something if it you know
+- [11:53.120] progresses will have to take action very
+- [11:55.600] strongly. El Salvador's president said
+- [11:57.360] on exit he'd been invited to the White
+- [11:58.959] House on April 14th for a working visit
+- [12:01.440] to discuss trend on MS-13 and other ways
+- [12:04.480] we can support each other the US and El
+- [12:06.240] Salvador. I was curious if you could
+- [12:08.079] expand more on what some of these other
+- [12:09.519] ideas you have for Elsa. Oh, I think
+- [12:11.680] Yeah, I think you know you're in the way
+- [12:13.120] of that camera. By the way, am I Oh, you
+- [12:15.600] should at least say that the camera
+- [12:16.959] operator should probably say that he's
+- [12:19.360] she's shooting the back of your head,
+- [12:20.959] you know. I don't know why she doesn't
+- [12:22.959] say it. I have to say it instead.
+- [12:26.279] Uh I have great respect for him. I know
+- [12:29.760] him. Uh I've known him for a long time.
+- [12:33.200] was a young leader and was very tough on
+- [12:36.160] crime. Very, very tough on crime. And in
+- [12:39.440] their system, their prison system, they
+- [12:41.600] spend a tiny fraction of the money that
+- [12:44.240] this country spends. So, uh, but he is
+- [12:47.120] coming in. I don't know when, but he is
+- [12:48.639] coming in sometime over the next couple
+- [12:50.240] of weeks. What are you and Prime
+- [12:51.680] Minister Netanyahu going to speak about
+- [12:53.279] tomorrow? We're going to talk about
+- [12:56.320] trade and we're going to talk about the
+- [12:58.480] obvious subject. And you know what the
+- [13:00.320] obvious subject is? Do you have any news
+- [13:01.920] for us on? I'm trying to do trade just
+- [13:04.240] to keep it down. No, look. Well, there
+- [13:06.000] there's a there's a lot of things going
+- [13:07.920] on with the Middle East right now that
+- [13:10.399] have to be silenced. You know, uh we had
+- [13:13.440] no problem with the Middle East.
+- [13:14.720] Everything was done. We had no problem
+- [13:17.760] with Iran. We had no problem with
+- [13:20.120] anybody. And then you had October 7th.
+- [13:23.360] And that was all because Iran, as you
+- [13:25.360] know, was not giving money to anybody
+- [13:26.800] because they had no money. Now they have
+- [13:28.959] a lot of money. So, we'll see what
+- [13:30.240] happens. to El Salvador. The president
+- [13:32.000] there said he would be willing to take
+- [13:33.600] American citizens in the federal prison
+- [13:35.519] population. Is that one of the ideas
+- [13:36.959] you're going to be discussing? I love
+- [13:38.079] that. If we could take some of our
+- [13:40.440] 20time wise guys that push people into
+- [13:43.120] subways and that hit people over the
+- [13:44.800] back of the head and that purposely run
+- [13:46.959] people over in cars. Uh if he would take
+- [13:49.440] them, I'd be honored to give them. I
+- [13:50.959] don't know what the law says on that,
+- [13:52.320] but I can't imagine the law would say
+- [13:54.560] anything different. If they can house
+- [13:56.880] these horrible criminals for a lot less
+- [13:59.440] money than it costs us, I'm all for it.
+- [14:02.160] But I' I'd only do uh according to the
+- [14:04.320] law. But I have suggested that, you
+- [14:06.079] know, why should it stop just at people
+- [14:07.680] that cross the border illegally? Uh we
+- [14:09.839] have some horrible criminals, American
+- [14:12.959] grown and born. And if we have somebody
+- [14:16.079] that bops an old woman over the head, if
+- [14:19.920] we have somebody that uh is in jail 20
+- [14:23.199] times and goes back and shoots people
+- [14:25.600] all over the place and then has a bad
+- [14:27.600] judge or a bad prosecutor that do
+- [14:30.240] nothing about them. All they worry about
+- [14:31.680] is politics. They don't worry about
+- [14:33.120] that. I think if we could get uh El
+- [14:36.240] Salvador or somebody but to take them,
+- [14:38.959] I'd be very happy with it. But I have to
+- [14:40.560] see what the law says. Okay. What else?
+- [14:42.639] Can you say did you agree to lowering
+- [14:44.880] tariffs for any of of the countries that
+- [14:47.199] you spoke to today? So we But you
+- [14:48.800] understand, Jennifer, you have to
+- [14:49.760] understand it. We have massive surplus
+- [14:53.040] countries that we're dealing with. We
+- [14:55.600] have massive deficits. We've got to
+- [14:58.000] straighten that out because you can't
+- [14:59.839] continue to be that way. It's been that
+- [15:01.199] way for years now and it can't go on any
+- [15:04.079] longer. And we're the piggy bank. We
+- [15:06.720] have all the advantages. Forget Parkkins
+- [15:09.360] for a second. We have all the
+- [15:10.560] advantages. We're going to straighten
+- [15:11.600] out. We're going to become a wealthy
+- [15:13.279] nation again. Wealthy like never before.
+- [15:16.480] And we're not going to let other nations
+- [15:18.399] that have been ripping us off, whether
+- [15:20.000] it's China or the European Union with
+- [15:22.720] all of the European nations that have
+- [15:25.760] just made it's been like a feast. Look,
+- [15:29.360] the European Union was formed for one
+- [15:31.680] reason. You know what that was? To rip
+- [15:33.600] off the United States. So, put that in
+- [15:36.079] your bonnet. Uh, I hope you had a good
+- [15:38.720] flight. Have a good time. Thank you for
+- [15:40.240] your time, Mr. President. See you
+- [15:42.480] tomorrow.

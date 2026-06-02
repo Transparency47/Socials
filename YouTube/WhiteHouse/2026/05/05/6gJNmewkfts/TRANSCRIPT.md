@@ -1,0 +1,1046 @@
+<!-- source: https://www.youtube.com/watch?v=6gJNmewkfts -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 6gJNmewkfts -->
+<!-- date_published: 2026-05-05T22:53:34+00:00 -->
+<!-- date_accessed: 2026-06-02T02:34:15.419431+00:00 -->
+
+# Transcript: Vice President JD Vance Delivers Remarks in Des Moines, Iowa
+
+- [00:00.000] Announcer: Please welcome to introduce the Vice President
+- [00:03.010] from Iowa's 3rd Congressional District,
+- [00:05.360] United States Congressman Zach Nunn.
+- [00:09.050] (cheers and applause)
+- [00:21.670] Zach Nunn: Good deal, Iowa. That was great.
+- [00:24.910] Thank you. Thank you. Iowa, welcome.
+- [00:28.390] Hey, it is such a privilege to be here,
+- [00:30.860] but not only be here in the heart of America,
+- [00:34.490] but on the floor of a manufacturing shop.
+- [00:39.530] Right here, not only are we at Sam and Ryan's place,
+- [00:42.200] but we are at the bedrock of where manufacturing happens.
+- [00:46.410] Made in America, by Americans,
+- [00:49.710] and we're some of the best in the business doing it.
+- [00:52.240] I want to say thank you to the entire X-Guard team
+- [00:54.580] for having us out here. I want to thank you so much.
+- [01:01.450] To our incredible Attorney General,
+- [01:03.620] Brenna Byrd has been a rock star for Iowa
+- [01:05.700] and is leading the charge for America.
+- [01:09.110] I want to say thank you to our Governor, Kim Reynolds,
+- [01:13.170] and our Lieutenant Governor for sharing the charge here
+- [01:15.680] and making Iowa not only a best practice,
+- [01:17.760] but truly something the rest of the country
+- [01:19.720] wants to be a lot like.
+- [01:21.150] And to all of our elected officials
+- [01:22.500] who are helping make Iowa what it is today,
+- [01:25.910] your service is appreciated the country over.
+- [01:28.610] Thank you for your leadership team.
+- [01:37.850] But Team White, we're here tonight is to really say,
+- [01:41.120] thank you to Iowans.
+- [01:42.880] Right now, there are farmers across our state
+- [01:46.160] who are in the field.
+- [01:47.680] There are men and women working second shift
+- [01:51.070] so they can manufacture right here in America.
+- [01:55.350] And there are hundreds of thousands of Iowans
+- [01:59.020] who are doing everything right,
+- [02:01.470] not only to be able to serve their families
+- [02:04.040] and be part of our great community,
+- [02:05.990] But making sure that American greatness can continue to stay
+- [02:09.410] right where it is, here in America.
+- [02:16.380] When you look around this room,
+- [02:17.700] you're going to see on each side,
+- [02:19.350] not only what we designed here,
+- [02:21.190] X-Guard's a perfect example of this,
+- [02:23.350] but we build it here, and most important,
+- [02:25.520] we deliver the best in the world.
+- [02:27.170] And that's what we're fighting for today.
+- [02:29.640] We're working to make sure that Washington knows
+- [02:32.160] that what's made in places like Iowa,
+- [02:34.830] what's grown in places,
+- [02:36.540] like Iowa not only feed and fuel the world,
+- [02:40.020] they're a reflection of our next generation.
+- [02:42.150] And so I'm really thankful today to be able to say.
+- [02:45.180] Thank you to my wonderful wife and our incredible kids.
+- [02:47.880] You're growing the next generation of America.
+- [02:50.220] God bless you guys.
+- [02:58.910] And we're also making sure
+- [03:00.250] that those maybe on the other side of the world
+- [03:02.630] who don't play by the rules are held accountable.
+- [03:06.000] I'll be very specific here tonight.
+- [03:07.860] We stand on the floor of X-Guard,
+- [03:09.570] a company that was designed and built here in Iowa
+- [03:12.940] and has expanded all across the U.S.
+- [03:15.800] But when they're designed to help
+- [03:17.580] save these incredible tractor trailers
+- [03:19.710] you see behind me from collisions on the road,
+- [03:22.110] not only protecting drivers,
+- [03:23.840] but all of our supply chain, it was poached.
+- [03:27.430] Intellectual property stolen, and you know by who.
+- [03:32.710] Beijing taking from America, rebuilding it,
+- [03:38.080] and then dumping it right here in the United States.
+- [03:41.980] That's right.
+- [03:43.830] Not only did they want to put Sam and Ryan out of business,
+- [03:46.610] they were trying to put an American industry to bed
+- [03:48.860] so they could own that space going forward.
+- [03:51.980] I'm so proud of the work that we've done in Congress,
+- [03:54.640] but also the work of this administration.
+- [03:56.810] In holding bad actors accountable,
+- [03:59.260] in being able to fight not just for families like Sam and Ryan's
+- [04:03.190] who have built this generation after generation,
+- [04:05.500] but for every American-made industry
+- [04:08.870] who wants to see success as a result of their own hard work
+- [04:12.270] and not have an adversary steal it, cheat the system,
+- [04:15.640] and then dump on us. God bless America on this front,
+- [04:18.730] and thank you all for helping fight back against
+- [04:21.110] Chinese poaching.
+- [04:31.090] Team I was privileged to be able to join the Vice President
+- [04:33.240] just moments ago on the tarmac here at the 132nd
+- [04:36.920] Wing, an area I know very well being able to serve
+- [04:40.410] not only in the U.S. Air Force and our Iowa Air
+- [04:43.060] Guard, but as a commander and a colonel,
+- [04:45.700] but when we walked off that tarmac,
+- [04:48.540] we were joined by Gold Star families, parents, men and women
+- [04:53.680] who had given the ultimate sacrifice
+- [04:55.910] so that their son and their families
+- [04:59.110] could deploy for our freedom.
+- [05:02.270] And, challengingly, Iowa has lost a disproportionate
+- [05:04.670] number of our young service members,
+- [05:07.380] both in the Guard and our Reserve Unit.
+- [05:10.770] But in hearing from those Gold Star families,
+- [05:13.530] they knew that it was worth it.
+- [05:16.420] That when we go to bed every night,
+- [05:18.690] we're a little bit safer
+- [05:20.260] because of what their kids did for us.
+- [05:24.560] And so, Iowa, I want to say, we know that we're hurting.
+- [05:29.550] We're hurting in the loss.
+- [05:31.790] We're hurting in what we're trying to do for our families.
+- [05:34.630] And sometime that pain is acute.
+- [05:36.820] It might be the cost of filling up the minivan.
+- [05:40.030] It might the input cost that we're putting on the field.
+- [05:43.480] But we know this much is also true.
+- [05:46.110] The sacrifice that our men and women,
+- [05:48.630] standing on the front line today,
+- [05:51.000] ensure that we have a country that can be energy independent
+- [05:55.650] from places like Iran and Russia.
+- [05:58.400] A place that can be successful,
+- [06:00.240] regardless of what happens in the world.
+- [06:02.800] And their sacrifice is something
+- [06:04.280] we should be fighting for in Washington, D.C.
+- [06:07.420] A fight for our farmers, a fight for families,
+- [06:11.140] and a fight for the future of America,
+- [06:12.650] which is why I'm so glad this past week,
+- [06:14.680] because of so many of you in this room,
+- [06:16.600] I'm looking at you, Team Red Hat.
+- [06:20.470] We move forward a farm bill in a bipartisan fashion,
+- [06:25.070] but in a way that certain folks in Washington
+- [06:27.620] never wanted to see the light of day.
+- [06:29.710] And so when back-room deals in Washington happen,
+- [06:32.640] you can know that as hard as our farmers work in the field,
+- [06:35.430] we've got a team in Washington working just as hard for them.
+- [06:39.310] And I'm Iowa Nice.
+- [06:41.060] But I don't mind calling out a bad actor on occasion,
+- [06:43.960] and I know our delegation doesn't either,
+- [06:45.720] which is why not only we got the farm bill passed,
+- [06:48.680] but we're moving E-15 nationwide, year round,
+- [06:54.140] to the floor this coming week.
+- [07:03.930] Going forward, your Iowa delegation,
+- [07:05.730] and this seat in particular,
+- [07:06.990] helped move 21 of our priorities in the farm bill,
+- [07:09.180] something that's never happened in a farm bill.
+- [07:12.040] That means helping the next generation
+- [07:13.670] of young farmer be successful.
+- [07:15.940] It means laying rural broadband so all of us,
+- [07:18.570] whether you need telehealth,
+- [07:20.090] whether you have an autonomous tractor,
+- [07:22.610] or whether you're just trying to watch
+- [07:24.150] the last season of Landman,
+- [07:25.780] has high speed broadband when and where you need it.
+- [07:29.280] It also means that we're taking the next step forward
+- [07:32.130] in things that really matter, things like disaster protection,
+- [07:35.820] helping our farmers and my work in rural housing
+- [07:39.100] to make sure that every community in Iowa
+- [07:41.110] can be a success story, not just big blue cities,
+- [07:44.080] but right here in red communities like Iowa.
+- [07:53.240] And for our livestock farmers,
+- [07:54.950] we have put you first at every step in this bill.
+- [07:58.070] I'm also proud of the incredible fight that we have,
+- [08:01.180] because we've got a challenging history in Iowa
+- [08:02.980] when it comes to things like puppy mills.
+- [08:06.150] And so for a sheriff from Wayne County,
+- [08:08.580] a very good friend, when he came onto a Gingrich farm
+- [08:12.300] and saw hundreds of dogs, man's best friend,
+- [08:15.890] being treated far worse than any livestock farmer
+- [08:18.490] would ever treat their own herd.
+- [08:21.260] He called it out. And so the USDA must do more.
+- [08:25.110] Now you just heard from a great Secretary of Ag
+- [08:27.700] and Brooke Rollins has been a champion on this.
+- [08:29.900] We were able to include in this
+- [08:31.140] making sure that puppy mills in states like Iowa mirror
+- [08:34.810] what the state legislature has already done
+- [08:36.630] in ending animal torture. Let's end bad puppy mill in Iowa
+- [08:40.360] and let's make sure good breeders
+- [08:42.130] are rewarded the way they should.
+- [08:43.500] So each of us takes a best friend home.
+- [08:51.280] Now friends, I want to be very specific here.
+- [08:53.270] We've got work to do in Washington.
+- [08:54.950] You know this much is true.
+- [08:56.490] For all the good work that we're doing,
+- [08:58.280] both in the National Defense Authorization
+- [08:59.770] Act, the Farm Bill, our rural housing bill,
+- [09:02.380] there's far too many bad actors still in Washington, D.C.
+- [09:06.430] And I'm going to give you 200 million reasons
+- [09:08.110] why we got to keep fighting to clean that place up.
+- [09:11.690] Because 200 million is the amount of stock trades
+- [09:14.980] that were done by members of Congress
+- [09:17.070] just in the last year alone.
+- [09:18.840] Now it was led, of course, as you know,
+- [09:21.060] by Nancy Pelosi herself.
+- [09:22.850] And if you're watching her start portfolio
+- [09:24.940] while she's been in Congress,
+- [09:26.520] it's gone up from hundreds of thousands to tens of millions.
+- [09:30.990] No one should ever send someone to Washington
+- [09:33.670] who's more interested in taking care of themselves
+- [09:36.020] than taking care of their bosses back home.
+- [09:43.860] This is why I'm so proud to be leading the charge
+- [09:46.230] to clean up corruption in Washington, D.C.
+- [09:48.380] Not only did my family never trade stocks,
+- [09:50.950] and we never had stocks before we went into Congress,
+- [09:53.590] we're making sure that good policies,
+- [09:56.590] things like term limits,
+- [09:58.530] things like making sure outside influences
+- [10:01.520] can't buy politicians,
+- [10:03.100] and things like insider stock trading
+- [10:05.140] are ended with our effort on the Stock Act
+- [10:08.090] to make sure this does not happen again.
+- [10:19.310] So my friends, like all good ideas,
+- [10:22.500] I'm proud to say that my opponent has decided to copy
+- [10:26.360] what I was doing so well, not unlike Kamala Harris
+- [10:30.350] when she said no to no tax on tips.
+- [10:34.610] But guess what?
+- [10:35.880] We found out that no tax is a pretty good thing, haven't we?
+- [10:40.520] And Democrats have jumped on. My opponent's done the same,
+- [10:45.220] and I'm happy to have her endorsement
+- [10:46.810] of our great policies because they're working.
+- [10:49.910] But what I don't need is I don't need a lecture
+- [10:53.160] from someone who pretends to preach from the pulpit
+- [10:56.570] while at the same time
+- [10:57.900] doing things like oversee a satanic wedding,
+- [11:01.660] or tell Americans that they're too white and too racist,
+- [11:05.060] or wag their finger to say, hey, from the bully pulpit,
+- [11:09.030] most of Iowa is bigoted. I don't believe that's true.
+- [11:13.780] I still believe in the greatness of folks
+- [11:16.650] all across the spectrum.
+- [11:18.920] And yes, I'm proud to be one of the top
+- [11:20.850] 10 most bipartisan members of Congress,
+- [11:22.680] but I'm more proud that we get to lead legislation
+- [11:25.070] that delivers from Iowa.
+- [11:26.870] So whether you're a Republican, whether you are an independent,
+- [11:31.540] whether your my mother-in-law and love to vote Democratic
+- [11:34.010] as well but still put a yard sign in our yard for me,
+- [11:37.390] we are proud to fight for Iowa's best ideas
+- [11:40.710] and take those to Washington. And team, I know with your help
+- [11:44.210] we get the opportunity to do this again.
+- [11:46.690] A lot of people are going to tell you.
+- [11:48.260] This is a bellwether year.
+- [11:50.400] That Iowa third is the most vulnerable in the country,
+- [11:54.400] but I know this much is true. We've taken on harder races.
+- [11:58.650] We won in districts that were blue
+- [12:00.040] and we've won them by double digits.
+- [12:02.050] And I know in our state,
+- [12:03.540] not only with our leadership, with our friends,
+- [12:05.580] but with each of you and the good policies we've delivered,
+- [12:09.710] Iowans know we're pragmatists.
+- [12:12.500] We're hard workers, but we want results.
+- [12:15.320] And each of you in this room are going to help us
+- [12:17.020] deliver a resounding win this November.
+- [12:29.070] That team, we all know this, leadership starts at the top.
+- [12:31.770] And being a good commander,
+- [12:32.990] it is a privilege to have a wingman,
+- [12:34.740] in this case, who's a Marine. You know JD Vance.
+- [12:38.760] You've seen what he's done for our country.
+- [12:41.160] You've heard his story.
+- [12:42.840] But the compounding reality here is JD is also a dad.
+- [12:47.730] He's a great husband.
+- [12:49.580] And he's been a fighter not only for families like mine,
+- [12:52.300] Kelly and mine, but for all of us.
+- [12:54.770] And in Washington, you see that play out
+- [12:57.070] in every act that he takes. He understands what it means
+- [13:00.600] when Washington overlooks a community,
+- [13:03.170] like the community he grew up in.
+- [13:05.200] He understands what it means to be a dad who served,
+- [13:09.370] but then come home and has another mission,
+- [13:12.060] to take care of not only his family and his wife,
+- [13:14.800] but the community that gives him the opportunity.
+- [13:17.690] And he has the fight to build on the wins that we've championed.
+- [13:22.090] Good examples right here in Iowa.
+- [13:24.570] So not only is the vice president for Donald Trump
+- [13:27.420] and the wingman for the next two years.
+- [13:29.550] He's a man who's leading the charge to win this midterm.
+- [13:33.980] Because with this midterms victory,
+- [13:35.320] we get to continue to deliver
+- [13:36.550] on the greatest tax cut in American history.
+- [13:40.080] We get to deliver what Iowa has helped lead.
+- [13:44.000] But if we don't have it,
+- [13:46.050] the Democrats will take on what they've always said.
+- [13:48.640] Hakeem just said it last week
+- [13:50.020] before an assassination attempt on the president.
+- [13:52.740] He wants regime change. The Democrats are saying,
+- [13:55.900] We want the largest tax increase.
+- [13:58.790] On working class Americans.
+- [14:00.920] And Democrats across the board are putting places like Iowa,
+- [14:04.930] not only at second, but at a distant, distant 50th.
+- [14:10.000] No state should have to do that.
+- [14:12.530] Because what we've worked so hard on,
+- [14:14.500] we need to see not just for the next two years,
+- [14:17.000] but I like to say for the 10 years.
+- [14:20.180] And with that, we have a leader in JD.
+- [14:22.320] Here's what JD has done.
+- [14:24.350] JD has not only fought the tough fights,
+- [14:26.680] He's outlined what the fight should look like.
+- [14:29.080] And given us all a clear marching order
+- [14:31.430] on how we can be victorious this November.
+- [14:34.900] I believe strongly, Iowa,
+- [14:36.230] that we have the opportunity to break the mold.
+- [14:38.550] Not just in the third district,
+- [14:39.990] which has only been held two times before it's lost.
+- [14:43.380] We can break the molds this midterm
+- [14:45.450] and deliver huge wins to our elected officials in Des
+- [14:48.480] Moines, our elected official in DC,
+- [14:51.060] but more importantly, our Iowa family across the country.
+- [14:57.880] Please join me in welcoming my friend,
+- [15:00.290] a true leader, a fighter, a warrior, a dad,
+- [15:03.980] a very proud husband, and our Vice President,
+- [15:07.340] Mr. JD Vance.
+- [15:09.700] (applause)
+- [15:22.830] ♪ (rock music playing) ♪
+- [15:41.510] The Vice President: All right. Thank you.
+- [15:45.910] We love you, too. Thank you all.
+- [15:47.260] Please, please take a seat. We're going to be here.
+- [15:49.570] You gave a politician a microphone.
+- [15:51.020] We got about three hours to go,
+- [15:52.270] so I don't want anybody, no heat exhaustion.
+- [15:56.460] I want to give, first of all,
+- [15:57.780] before we really get started here,
+- [15:59.470] I've got a few, a few shout-outs here
+- [16:02.850] and a few words of gratitude.
+- [16:04.690] First of all, I have to say thank you to Congressman Nunn
+- [16:09.200] for the kind introduction. That was an ama- --
+- [16:11.170] it's probably the best introduction
+- [16:12.540] I think I've ever gotten in my life.
+- [16:14.640] But most importantly, for being a good fighter
+- [16:17.670] for the people of this district.
+- [16:19.620] Because when you send somebody to Congress,
+- [16:22.740] you're never ever going to agree
+- [16:24.880] with every single thing that they do.
+- [16:27.610] But you deserve to know
+- [16:29.450] that when they're in the halls of power,
+- [16:30.960] and especially when the cameras are off,
+- [16:33.150] they're thinking about you, about your families,
+- [16:35.690] and about your future.
+- [16:37.160] And a guy that you have serve in this district, Congressman Nunn,
+- [16:42.030] is one of those guys who does the right thing,
+- [16:44.360] not just when the cameras are on,
+- [16:45.810] but when the cameras are off, too.
+- [16:48.020] And remember, when the President of the United States
+- [16:49.740] at the State of the Union address asked everybody,
+- [16:53.170] "Please stand if you agree with the statement
+- [16:55.890] that America's government ought to be fighting
+- [16:58.290] for America citizens rather than illegal aliens,"
+- [17:01.490] Congressman Nunn was standing up and fighting for you
+- [17:04.170] and none of the Congressional Democrats
+- [17:06.360] could raise their hands.
+- [17:14.240] So along with Zach Nunn, we have got President Trump endorsed,
+- [17:18.730] and of course, endorsed by me,
+- [17:20.470] too, endorsed candidates for Congress,
+- [17:22.840] we have got Chris McGowan in the room.
+- [17:24.470] Where is Chris? Please stand up and be recognized.
+- [17:27.060] Chris, thank you for everything. I saw Chris backstage.
+- [17:35.370] He said he doesn't really have an opponent.
+- [17:37.320] And I said, "That must be nice."
+- [17:42.080] Of course, we ran against Kamala Harris
+- [17:44.340] and Tim Walz last election
+- [17:45.570] so, not all that different, but that's okay.
+- [17:48.250] That's okay. We have got Joe Mitchell in the house.
+- [17:54.570] Where is Joe? Please stand up. Joe, thank you.
+- [18:02.420] I've got to give a special note of thanks to our incredible
+- [18:05.230] Agriculture Secretary in Washington, Brooke Rollins,
+- [18:08.640] my dear friend Brooke, thank you for everything that you do.
+- [18:15.410] We've got your great Governor here in Iowa, Kim Reynolds.
+- [18:17.620] Kim, thank you so much for being here.
+- [18:23.600] We've got Iowa, Iowa GOP Chair, Jeff Kaufmann.
+- [18:26.310] Jeff, please stand up and say hello.
+- [18:27.990] Thank you, Jeff. I asked Jeff backstage,
+- [18:33.710] I said how these elections going,
+- [18:35.070] and Jeff said they're going great, so they better be.
+- [18:40.240] We have got Iowa AG,
+- [18:42.060] Brenna Bird, the great Brenda Bird.
+- [18:44.080] Brenna, thank you.
+- [18:49.070] Iowa's Secretary of State, Paul Pate.
+- [18:51.820] Thank you, Paul.
+- [18:55.800] Congressman Randy Feenstra. Randy, thank you.
+- [19:02.560] And then I want to recognize
+- [19:04.520] some of the great Iowa State lawmakers that we have.
+- [19:07.180] I will read their names here.
+- [19:08.820] We've got Senate President Amy Sinclair.
+- [19:16.240] President Pro Tem, Ken Rozenboom.
+- [19:22.320] We've got Lynn Evans with us.
+- [19:23.610] Where's Lynn? Thank you, Lynn.
+- [19:29.250] And we got Cherielynn Westridge. Where's Cherielynn at?
+- [19:34.680] She, she, she took off sick, I guess, today.
+- [19:37.970] But she's doing a great job. We're grateful to her.
+- [19:39.860] And then we got some Iowa House members, too,
+- [19:42.210] and I promise this is the last group.
+- [19:44.860] We've got Brooks Boden, or Brooke Boden.
+- [19:46.650] Where is Brooke at? Thank you, Brooke.
+- [19:52.080] We've got Heather Hora. Hey, Heather.
+- [19:59.390] We got Bill Gustoff. Bill, thank you so much.
+- [20:06.500] We got Charlie Thompson. Charlie, thank you.
+- [20:13.040] Derek Wulf, thank you for being here, Derek.
+- [20:19.480] Kevin Alons, where's Kevin?
+- [20:22.620] Okay. He's got the same cold that our other friend did.
+- [20:25.820] Steven Bradley.
+- [20:27.210] Where is Steven Bradley? Thank you, Steven.
+- [20:31.700] And finally, Mark Cisneros.
+- [20:33.380] Mark, thank you so much for your leadership
+- [20:35.090] and thanks for being here.
+- [20:40.400] Look, I'm here today to talk a little bit
+- [20:43.010] about the stakes in November of 2026,
+- [20:46.740] because I think that we have done a lot in Washington, D.C.
+- [20:49.680] to be proud of. We're going to talk about it.
+- [20:51.980] But the fundamental question for us in this election
+- [20:54.600] is actually not any specific question of, of public policy.
+- [20:58.190] It's not any particular issue.
+- [21:00.270] It's fundamentally, do you want people in Washington, D.C.
+- [21:03.960] who fight for you, who fight for the people of this district,
+- [21:07.480] or who fight for corruption and fraud?
+- [21:10.110] Because I'm 41 years old,
+- [21:12.060] and for the first time in my entire life,
+- [21:14.580] I think we have seen a major political party
+- [21:17.220] in the United States of America completely go off the rails.
+- [21:19.860] They're not just talking about different views on taxes,
+- [21:23.000] or on regulation, or on the Clean Water Act,
+- [21:25.840] as important as all those things are,
+- [21:28.150] they're talking about who does the government
+- [21:30.780] actually stand and fight for.
+- [21:33.360] When the President of the United States
+- [21:34.690] asked the entire Congress
+- [21:37.440] to stand for the simple principle
+- [21:39.450] that the people's government ought fight
+- [21:42.210] for the American people first, what did we see?
+- [21:45.850] We said -- we saw every single congressional Democrat
+- [21:49.310] sit on their hands. They didn't care about you.
+- [21:52.590] They didn't care about the people of this district.
+- [21:54.520] They didn't care about the farmers or the factory workers
+- [21:57.050] or the people who actually make this country run.
+- [22:00.360] Because now we have, in Washington DC,
+- [22:03.560] a Democrat party that is so focused on illegal immigration,
+- [22:07.790] that is so focused on people
+- [22:09.170] who don't have the legal right to be here,
+- [22:11.530] that is so focused on fraud
+- [22:13.610] because so many of their friends get rich from fraud
+- [22:16.180] that they forgot to look after you.
+- [22:18.730] And whatever your political views,
+- [22:20.480] whether you're a, a sensible Republican,
+- [22:23.380] independent, or even a sensi- -- sensible Democrat,
+- [22:25.870] because I know we got a lot of those in Iowa,
+- [22:27.580] not in Washington, DC.
+- [22:30.440] I think that you deserve to have a President of the United States
+- [22:33.850] and a Congressman, like Zack Nunn,
+- [22:36.200] who fights for you every single day,
+- [22:38.950] and that's what he's been doing.
+- [22:46.680] Now, let me just give you a very concrete example
+- [22:49.030] of what fighting for you looks like.
+- [22:51.590] This is not just, this is not abstract,
+- [22:54.100] this is not words written on a paper,
+- [22:55.710] this is real people's lives,
+- [22:57.670] and this is real dollars and cents.
+- [23:00.320] A few years ago, I talked to the owners of this factory
+- [23:04.930] who told me the great products that they were making.
+- [23:07.540] They were paying their workers a good wage.
+- [23:09.130] They were building a great business right here in Iowa.
+- [23:11.590] You know this company was started in 2009.
+- [23:14.480] The year that I graduated from college, sorry for anybody.
+- [23:18.410] Makes me kind of young. But here's the thing.
+- [23:21.700] To start a business in 2009 was a tough thing to do.
+- [23:25.780] It was the middle of the global financial crisis.
+- [23:28.470] You had to take some real risk. And what did this business find.
+- [23:31.630] After building a great business,
+- [23:33.220] after paying hundreds of people a solid wage,
+- [23:36.620] what did this business find? That foreign countries,
+- [23:39.430] in particular the People's Republic of China,
+- [23:42.160] was dumping goods,
+- [23:44.240] undercutting the wages of the workers of this factory,
+- [23:47.060] and driving this place out of business.
+- [23:49.550] They were using cheap labor, sometimes slave labor,
+- [23:53.030] to try to steal jobs
+- [23:54.730] from the hardworking people of this district
+- [23:57.120] and this factory floor. And for my entire life,
+- [24:01.060] we had presidents and politicians of both parties
+- [24:04.760] who didn't do a single thing to stop it.
+- [24:06.490] Say, "Oh, by the way, absolutely.
+- [24:08.670] Bring those cheap goods into our country.
+- [24:11.410] Bring those things that were built by hands of slaves
+- [24:14.680] rather than the s- -- the hands of our own workers."
+- [24:17.460] And of course, we knew that when they drove
+- [24:19.470] those factories out of business,
+- [24:21.670] then they'd come in and jack up the price right after.
+- [24:24.840] So what happened for 41 years?
+- [24:27.390] We all know the story. The factories closed down.
+- [24:31.080] My hometown, this is the story of my hometown
+- [24:33.480] where I grew up in a community that was proud,
+- [24:36.620] where people built things where new homes were being made.
+- [24:39.610] And by the time I graduated from high school,
+- [24:41.900] the manufacturers were laying people off.
+- [24:44.150] Those big, beautiful factories were shuttering their doors,
+- [24:47.400] and we never had a political movement
+- [24:50.090] that said, "Enough is enough,"
+- [24:52.820] until Donald J. Trump and Zack Nunn came along.
+- [25:07.030] And you know what we said?
+- [25:08.310] The Democrats, every day they will tell you
+- [25:11.020] they will fight against our policies
+- [25:12.840] to try to bring back American manufacturing.
+- [25:15.200] They will fight against our policies
+- [25:17.120] that try to fight back against those people
+- [25:19.300] who would dump that stuff into our communities.
+- [25:22.110] And you know what we say?
+- [25:23.570] We say that our tax policy ought to be pretty simple
+- [25:27.000] and that's exactly what it has been.
+- [25:28.890] If you're building right here in Iowa,
+- [25:31.310] if you're making something right here in Iowa,
+- [25:33.500] if you're working every single day right here in Iowa,
+- [25:36.430] you deserve a tax cut
+- [25:38.070] and that's exactly what we delivered with Congressman Nunn.
+- [25:48.770] But if you're a foreign country
+- [25:51.140] dumping that garbage into our country,
+- [25:53.260] if you're trying to undercut the wages of Iowa workers,
+- [25:56.090] if you're trying to steal the jobs from Iowa farmers
+- [25:59.390] and Iowa manufacturers, you know what you're going to do?
+- [26:02.000] You're going to pay a big fat tariff
+- [26:04.040] before you bring anything into our country,
+- [26:06.100] 'cause we're protecting the jobs of our workers
+- [26:08.600] and our people for a change.
+- [26:17.870] And that's all this is about.
+- [26:19.800] When you hear the Democrats attack
+- [26:22.050] the Trump administration's tax policies,
+- [26:24.550] that's what they're attacking. They're attacking the policies
+- [26:27.540] that make it harder for people to steal your jobs,
+- [26:30.210] and they're attacking the policies
+- [26:31.850] that give you more money to keep in your own pocket.
+- [26:35.400] Now, I talked to, again, the factory owners just,
+- [26:37.520] just a couple of hours ago, a couple minutes ago,
+- [26:39.450] I should say. You know what they told me?
+- [26:41.580] They told me that the working family's tax cuts,
+- [26:44.710] the tax cuts made possible by Congressman Nunn,
+- [26:47.980] that they meant that their business had a lot more money
+- [26:51.420] that they could give to workers and higher bonuses
+- [26:54.810] and higher salaries,
+- [26:56.200] that they could hire more people,
+- [26:57.870] that they could expand and create new jobs
+- [27:00.890] that didn't exist before.
+- [27:02.630] Isn't it nice to have a government
+- [27:04.760] that finally is fighting for you instead of fighting against you?
+- [27:09.500] And that's what we're trying to have in Washington, D.C.
+- [27:20.370] Now, there is so much, so much I'm proud of,
+- [27:22.580] so much that is moving in the right direction.
+- [27:24.730] Do you know when I,
+- [27:25.930] when I was going around the campaign trail in 2024,
+- [27:28.280] one of the number one things that young people said to me,
+- [27:30.930] young Americans in particular,
+- [27:32.620] is that they couldn't afford to buy a home.
+- [27:35.390] They couldn't afford their rent
+- [27:36.860] if that's what they wanted to do.
+- [27:38.480] And you know, for the first time we've seen in over five years,
+- [27:42.800] for eight months running, we have seen the costs of rent
+- [27:47.170] come down in the United States of America.
+- [27:49.200] Our young people are starting to get close.
+- [27:52.230] They're making progress.
+- [27:53.810] They're starting to get to the point
+- [27:55.250] where they could finally afford their slice
+- [27:57.010] of the American dream.
+- [27:58.220] And you know why we did that? And you know how we did it?
+- [28:01.090] It's actually not that complicated, a simple principle,
+- [28:03.870] American homes ought to belong to American families,
+- [28:07.120] not foreign investors, not foreign owners,
+- [28:09.740] and not Chinese investors who are buying up our farmland.
+- [28:21.390] Again, it's not rocket science. It's a simple principle
+- [28:24.190] that if you have a government that fights for you,
+- [28:26.810] it can make your life easier.
+- [28:28.510] It can make it easier for you to start a business
+- [28:30.800] or to work at an amazing job.
+- [28:32.690] We didn't do anything that was particularly difficult.
+- [28:37.730] We did something that was simple and common sense.
+- [28:40.900] And I think that's what defines
+- [28:42.230] the Republican Party in Washington right now
+- [28:45.630] is it's simply about common sense.
+- [28:47.870] You want to lower the cost of homes for American families?
+- [28:50.980] Here's due, here's a simple thing.
+- [28:53.050] Why don't you stop giving 30 million homes to illegal aliens?
+- [28:57.240] Why don't you seal the border
+- [28:58.570] and make sure those homes go to American families for a change?
+- [29:01.030] That's how you lower the cost of housing.
+- [29:09.400] If you want to make it easier for young American
+- [29:11.760] to start a family or to get a good job,
+- [29:14.430] stop giving jobs to foreign companies
+- [29:17.710] and stop giving jobs to foreign countries
+- [29:19.720] and protect the good,
+- [29:21.390] well-paying jobs that exist right here
+- [29:23.380] in the United States of America, and that's what we did.
+- [29:32.250] And here's the final thing.
+- [29:34.800] When we talk about standing for you,
+- [29:37.550] again, whatever your views on a specific policy,
+- [29:40.020] there is maybe no more important issue than how about
+- [29:43.090] when you pay your taxes to the federal government,
+- [29:45.470] we just had tax day just a couple of weeks ago.
+- [29:48.380] How about you have a government
+- [29:50.260] that actually takes those resources as what they are,
+- [29:53.850] your sweat, your tears, your time away from your family,
+- [29:57.830] and protects every single one of those dollars?
+- [30:00.760] And that's what we're doing by going after fraud, finally,
+- [30:04.530] in the federal government. A- -- and, and,
+- [30:13.940] and let me just give you a couple of examples.
+- [30:16.470] We had let fraud become so rampant in this country
+- [30:19.800] that people were able to get rich,
+- [30:21.710] not by creating something amazing,
+- [30:23.840] not by employing something,
+- [30:25.230] not by building something beautiful with their hands.
+- [30:27.670] They were able to get rich
+- [30:29.230] by defrauding every single person in this room.
+- [30:32.420] And they were taking money that should go to America's
+- [30:36.330] low income families, to America's elderly,
+- [30:38.950] to people who are struggling in our communities.
+- [30:41.280] They were stealing it out of their pocket
+- [30:43.130] and stealing it out of your pocket
+- [30:44.710] so they could get rich.
+- [30:45.950] Let me give you just a couple of examples.
+- [30:47.530] There was a program in suburban Minneapolis.
+- [30:50.640] It's actually a, a national program,
+- [30:52.410] but it was taken advantage of in suburban Minneapolis,
+- [30:55.210] where what we do is that we make it possible,
+- [30:58.390] the American people and their generosity
+- [31:00.620] make it possible for the parents of young children
+- [31:04.070] who are autistic to get access to afterschool services.
+- [31:08.070] And I think that's a cool thing because Americans,
+- [31:10.010] we take care of one another. But you know what happened?
+- [31:13.580] That money wasn't going to the parents of autistic children.
+- [31:18.230] That money was going to Somalian fraudsters
+- [31:20.890] because somebody figured out in the,
+- [31:23.300] in the illegal immigrant community
+- [31:25.260] that if they went around
+- [31:26.590] and said that all of the children
+- [31:29.050] in a particular household had that particular problem,
+- [31:33.270] then they could collect a lot of money
+- [31:34.730] from the federal government.
+- [31:35.940] And so what happened?
+- [31:37.180] You paid your taxes, those people got rich,
+- [31:40.060] and the families who needed those services
+- [31:42.360] never got to access those services.
+- [31:44.630] They were stolen from and you were stolen from,
+- [31:47.710] and your government didn't do a single thing about it until,
+- [31:52.610] until Donald J. Trump and Congressman Nunn came along.
+- [32:04.500] What we did is very simple.
+- [32:06.000] We went to the state of Minnesota and said,
+- [32:08.190] "We want you to audit the people
+- [32:10.380] who are getting access to these funds.
+- [32:12.640] And if you're not willing to confirm
+- [32:14.370] that the people who are getting in,
+- [32:16.550] getting these benefits actually deserve these benefits,
+- [32:20.400] then you're not getting another dime of federal money.
+- [32:22.880] We cut them off."
+- [32:24.150] And that's exactly what we got to do.
+- [32:30.770] And it, ladies and gentlemen, people have asked me, you know,
+- [32:33.070] I'm, I'm the leader of the fraud task force in Washington,
+- [32:36.560] and people have asked me, "Is that a, a hard job?"
+- [32:38.970] And I say, "Well, let me think.
+- [32:40.830] Finding fraud in the federal government,
+- [32:43.150] it's kind of like fishing in a barrel with dynamite."
+- [32:48.240] Every, every week, I get a report from the task force.
+- [32:51.050] You know, we have our weekly meeting,
+- [32:52.480] and I am shocked every single day
+- [32:54.450] by the things that we find.
+- [32:55.980] Just one of the all stars on our fraud task force
+- [32:58.920] is our great agriculture secretary, Brooke Rollins.
+- [33:01.870] And Brooke, and Brooke has found out
+- [33:08.530] that we've got 355,000 people on SNAP
+- [33:12.270] benefits receiving double benefits,
+- [33:14.390] that we've got 186,000 dead people
+- [33:18.320] getting SNAP benefits,
+- [33:20.480] 186,000 dead Americans getting food stamps right now.
+- [33:25.240] Now, I know the fake news media is going to say
+- [33:28.660] that the big headline from this speech is JD
+- [33:31.820] Vance proposes that we take away food stamps.
+- [33:35.950] That's what they're going to say.
+- [33:38.390] I actually think that we should take food stamps away
+- [33:40.780] from dead people. I am guilty of that.
+- [33:42.830] I think that's a reasonable thing.
+- [33:51.490] I also was talking to Brooke backstage and she said she said,
+- [33:54.580] "You know that there are people who are,
+- [33:56.020] who have Lamb, this is not a joke.
+- [33:57.950] There are people who have Lamborghinis
+- [33:59.300] who currently receive SNAP benefits."
+- [34:01.480] I said, "Huh, that's interesting."
+- [34:04.710] You know, I'm, I'm a pretty conservative guy,
+- [34:07.010] but I would think that, like, 95%
+- [34:09.400] of the United States of America would agree
+- [34:11.880] that if you are wealthy enough to afford a Lamborghini,
+- [34:15.470] then you are wealthy enough to not receive
+- [34:17.670] SNAP benefits from the American people.
+- [34:19.710] Is that common sense?
+- [34:26.160] And I could go down and down the list.
+- [34:28.080] We just served 22, 22 investigatory procedures,
+- [34:32.810] the Department of Justice.
+- [34:34.070] We went from discovering what happened in Minneapolis
+- [34:37.730] to serving 22, you know, subpoenas
+- [34:41.780] so that we could go after the fraud
+- [34:43.100] that's happening in Minneapolis.
+- [34:44.390] And we did that in just three months.
+- [34:46.030] And yes, ladies and gentlemen, when we find crime,
+- [34:48.850] those people are going to go to prison for defrauding you
+- [34:50.680] because that's exactly how it should be.
+- [35:00.270] Now, the last thing I want to talk about, my friends,
+- [35:02.440] is we know that under the Biden administration,
+- [35:06.520] Iowa farmers and farmers
+- [35:08.000] all over the United States of America
+- [35:10.200] were hit and they were hit hard.
+- [35:12.340] What we've done using the president's trade authorities
+- [35:16.690] and using his incredible trade policies
+- [35:19.220] is that we have doubled the export market
+- [35:21.610] for Iowa farmers in just 18 months.
+- [35:24.340] And that is an amazing thing because what happened for years
+- [35:28.680] is that people would dump their agricultural products
+- [35:31.240] into the United States of America, but said,
+- [35:33.790] "You're not allowed to sell great Iowa product overseas."
+- [35:37.620] Well, we flipped that on its head.
+- [35:39.290] We told all those countries, you're done dumping that crap
+- [35:42.160] into the United States of America,
+- [35:44.090] and if you don't want to pay a higher tariff rate,
+- [35:46.660] you better let Iowa farmers sell into your country,
+- [35:49.470] and every single one of them
+- [35:50.750] have let Iowa farmers sell into their country.
+- [35:52.890] Again, it's amazing what happens when you got a president
+- [35:56.630] and a congressman who's fighting for you
+- [35:59.080] instead of fighting against you, and that is the record
+- [36:01.970] that we've had over the past 18 months.
+- [36:22.970] So, let me, let me, let, let me just say,
+- [36:25.430] let me say a couple more things here.
+- [36:27.510] So, one, and I was flipping around in my notes here
+- [36:30.090] because I've been trying to find the name of the person
+- [36:33.110] that Zach is running against, because we're going to,
+- [36:35.440] we're going to make fun of her a little bit.
+- [36:36.870] Now, now here, here, here's the problem.
+- [36:42.490] You know, I'm sure, well, I don't know anything about her.
+- [36:45.120] What I do know is her voting record.
+- [36:46.740] I know what she has chosen to prioritize,
+- [36:49.090] and it's not you, and it's not your families,
+- [36:51.580] and it's not this district. 'Cause here's the thing.
+- [36:54.610] There, there are problems and there are challenges.
+- [36:56.440] You know, one of the things I'm proudest of
+- [36:58.390] is that under the president's leadership,
+- [37:02.210] we had American families about $1,300 richer
+- [37:06.920] from the day that he took office until today.
+- [37:09.910] That's between the work and families tax cuts,
+- [37:12.170] that's lowering the cost of rent,
+- [37:13.390] that's all that stuff combined.
+- [37:15.270] Now, that's, that's the good news.
+- [37:16.780] Let me give you the bad news.
+- [37:18.060] The honest piece of this is that under the Biden administration,
+- [37:22.420] under the Biden administration,
+- [37:23.780] the average American family lost about $3,000.
+- [37:27.090] So on the one hand, we got a great record to brag on.
+- [37:30.170] On the other hand, because of the hole
+- [37:32.320] that the Biden administration and the Democrats put us in,
+- [37:34.870] we got a lot more work to do. Okay?
+- [37:37.010] But we're, we recognize that work.
+- [37:39.120] We're excited about that work.
+- [37:40.540] That's why you sent us to Washington, D.C.
+- [37:42.290] That's why you sent Zach to Washington, D.C.
+- [37:44.640] was to work on these problems.
+- [37:46.290] We know right now that we've got a lot of Iowa farmers
+- [37:50.180] that would love to sell more E15 into the market
+- [37:53.630] and we're fighting every day to help them.
+- [38:02.140] Now, I said that.
+- [38:03.350] I did not even see the E15 crew we got over here.
+- [38:05.770] I need one of those T-shirts.
+- [38:10.620] But the congressmen has got legislation
+- [38:13.020] that's working right now
+- [38:14.320] and we're working on it every single day
+- [38:16.070] because, number one,
+- [38:17.750] we want Iowa farmers to have access to more markets,
+- [38:20.980] but number two, we want everybody,
+- [38:22.900] all of our fellow citizens across our 50 great states,
+- [38:25.950] to benefit from what's made right here in Iowa.
+- [38:28.260] That's why we're fighting for E15.
+- [38:30.700] We also know, we also know that a lot of our farmers
+- [38:34.000] are struggling with high fertilizer prices.
+- [38:36.500] I'm aware of that.
+- [38:37.880] As the President of the United States has said,
+- [38:39.920] we got a little, a little blip in the Middle East.
+- [38:42.090] We got to take care of some business
+- [38:43.590] on the foreign policy side.
+- [38:45.370] But you know what we're doing simultaneously?
+- [38:47.850] We're working with a congressman
+- [38:49.280] and we're finding ways every single day
+- [38:51.840] to make sure that you guys and the farmers of this great state
+- [38:55.710] get access to the products that they need.
+- [38:57.700] We're working on it.
+- [38:59.010] We're working on it every single day.
+- [39:01.310] Now, when I see that, when I see Iowa farmers who need
+- [39:04.240] to get that E15 to market, what is this, what is Zach,
+- [39:10.800] you're going to have to help me out with her name here.
+- [39:12.800] I lost my page here.
+- [39:14.060] Zach Nunn: Sarah Trone Garriott.
+- [39:15.330] The Vice President: Okay. All right.
+- [39:16.650] Zach Nunn: Sarah Trone Garriott.
+- [39:17.900] The Vice President: Okay, there we go.
+- [39:19.170] Sarah Trone Garriott.
+- [39:20.430] There she is. I'm on the wrong page here.
+- [39:26.600] So while Zach is fighting
+- [39:29.420] to make sure for the benefit of Iowa,
+- [39:31.610] but frankly, for the benefit of the whole country,
+- [39:33.890] that we get more E15 into the market
+- [39:36.300] all over the United States of America,
+- [39:38.870] his opponent voted to push biological males
+- [39:42.640] and girls sports as early as kindergarten.
+- [39:48.320] Okay. While he fought very hard for the working family's tax cut
+- [39:52.970] to make sure that you got to keep
+- [39:54.650] more of your hard-earned money and why you guys, in fact,
+- [39:57.950] are going to have the biggest tax refund season,
+- [40:00.530] or starting to have the biggest tax
+- [40:02.100] refund season in American history,
+- [40:04.740] he was fighting for more money in your pocket.
+- [40:06.340] She was voting against banning gender transition
+- [40:09.190] surgeries for minors.
+- [40:13.530] She was voting against schools giving parental notification
+- [40:16.340] if students start changing their pronouns.
+- [40:19.400] Now, we all hear that and we all think that's pretty crazy.
+- [40:24.440] But recognize that not everybody agrees with us.
+- [40:27.520] Here's the thing.
+- [40:28.860] Even if you don't think that's crazy,
+- [40:30.940] why is that the priority of a woman
+- [40:32.940] who wants to represent you in Washington, D.C.?
+- [40:36.720] Why, why isn't she working to increase your take-home pay?
+- [40:46.310] Why isn't she fighting for the farmers
+- [40:47.950] to get more of that E15 all over the United States of America?
+- [40:51.140] Why isn't she fighting to lower housing costs
+- [40:53.210] for the people of this district, the people of the state,
+- [40:56.160] and the people of the United States of America?
+- [40:58.550] And it goes back to the question that I asked
+- [41:00.480] at the very beginning of this discussion.
+- [41:04.140] We have two parties in Washington, D.C.,
+- [41:06.720] And I hate to say this, 'cause I was, you know,
+- [41:08.280] raised by, by blue collar union Democrats.
+- [41:11.210] My mamaw and papaw, they said that, you know, when,
+- [41:13.740] back, back when they were voting in the '80s and '90s,
+- [41:15.850] the, the man and woman who raised me,
+- [41:17.980] mamaw and papaw said, "We're for Democrats
+- [41:20.670] because Democrats are for working people."
+- [41:23.100] And I don't think that's true anymore, my friends.
+- [41:25.290] And it's a heartbreaking thing.
+- [41:26.630] It's heartbreaking for a kid who came from a union
+- [41:28.980] Democrat family to realize that Democrats these days,
+- [41:32.560] they seem to care more about gender transition
+- [41:34.950] than they do about you keeping more of your hard-earned money.
+- [41:38.360] And I, and I really do believe this,
+- [41:40.110] that there are Democrats like my mama
+- [41:41.740] and papa all over the great state of Iowa,
+- [41:43.830] but I hate to say it and I hate to break it to you,
+- [41:46.570] but there are none left in Washington, D.C.
+- [41:49.590] The Democrats in Washington, D.C.,
+- [41:51.190] they want to, they want to trade stocks,
+- [41:53.270] insider trading for money, just like Nancy Pelosi did.
+- [41:57.530] The best part, the best part of the State of the Union address
+- [42:00.600] is when the President of the United States
+- [42:02.690] called out Nancy Pelosi for stock trading,
+- [42:04.950] and I look over at her and she has got the sourest look
+- [42:08.280] I have ever seen on a human being's face.
+- [42:11.760] Turns out Nancy Pelosi likes nothing less
+- [42:14.530] than being called out for her insider stock trading.
+- [42:17.630] You know, just talking about that the State of the Union.
+- [42:20.880] You have this beautiful six-year-old girl.
+- [42:23.100] You may remember this, it was a few months ago,
+- [42:24.700] but it was a very revealing moment
+- [42:26.840] about who our respective political parties stand for
+- [42:30.300] because this little girl had been shot by an illegal alien,
+- [42:33.210] but she had survived.
+- [42:34.440] Miraculously, she was in amazing condition.
+- [42:36.670] She was a sweet, just a really cute kid.
+- [42:39.040] And, um, you know,
+- [42:40.320] I'm the father of a six-year-old boy.
+- [42:41.720] He's actually here, here with me. He's backstage.
+- [42:44.580] And this girl was so proud.
+- [42:48.700] She was proud to be there in the chamber,
+- [42:50.910] and she gives her dad a big hug,
+- [42:53.240] and the Republicans all stand and cheer,
+- [42:55.770] and the Democrats all sit on their hands.
+- [42:58.980] And, and I remember thinking to myself,
+- [43:01.910] "What is wrong with you that you cannot stand up and cheer
+- [43:05.050] for a six-year-old girl
+- [43:06.300] who survived an assassin's bullet?
+- [43:09.440] What is wrong with you that you cannot vote
+- [43:12.480] to give more money in the pockets of Iowa farmers
+- [43:15.230] and if- -- Iowa factory workers? What is wrong with you
+- [43:19.050] when you cannot stand up for the Americans who,
+- [43:22.450] some of whom literally have taken bullets
+- [43:25.120] in the United States of America,
+- [43:26.930] but you fight every single day for illegal immigrants
+- [43:29.270] who have no right to be in the United States
+- [43:31.260] in the first place.
+- [43:32.650] And what does it say about a political party
+- [43:34.910] that they have fought more against our anti-fraud efforts
+- [43:38.820] than they ever did to protect your dollars
+- [43:41.330] and to protect the benefits of the people
+- [43:43.330] who use those use those benefits?
+- [43:46.010] My friends, this is not a normal election.
+- [43:48.800] This is not a normal political environment.
+- [43:51.000] This is a contest between a party that wants
+- [43:54.220] to take all of your money and give it to illegal aliens,
+- [43:57.810] and a contest between gentlemen like Zach Nunn,
+- [44:01.800] who fight every single day for you.
+- [44:04.090] And I have a simple question here,
+- [44:05.910] which is, do you want somebody
+- [44:08.800] who votes to give your money to illegal aliens?
+- [44:12.720] Do you want somebody who votes to raise your taxes?
+- [44:16.360] Do you want somebody who supports defrauding you
+- [44:19.920] and taking money away from poor kids
+- [44:21.700] so they can give it to the fraudsters?
+- [44:24.460] Then do we want crazy far-left Democrats in Washington, D.C.?
+- [44:30.020] Here's what we do want.
+- [44:31.350] Do we want somebody who fights for you every single day?
+- [44:35.790] Do we want somebody who has put more money in your pocket?
+- [44:40.100] Do we want somebody who gives E-15
+- [44:43.600] all over the United States of America
+- [44:45.560] so Iowa farmers can profit from it?
+- [44:50.010] So what do we want? We want Congressman Zach Nunn,
+- [44:52.600] and you got to get him to Washington, D.C.
+- [45:14.710] So, so, so let me just say one, one more thing, my friends,
+- [45:18.010] and then I, I will hit the road.
+- [45:19.950] You know, like I said, I've got my,
+- [45:22.030] my six-year-old son back there. And this, the backstory of why,
+- [45:26.970] by the way, I started in Washington, D.C.
+- [45:29.090] We flew from Washington to Ohio.
+- [45:33.050] I voted in Ohio's primary today. From Ohio, that's right.
+- [45:41.180] The media asked me who I voted for, none of your business.
+- [45:45.170] Went from Ohio to Oklahoma City to do a fundraiser
+- [45:48.530] for the Republican National Committee.
+- [45:50.300] And then I came here to be with all of you this evening.
+- [45:53.170] And, you know, my, my, I can't wait to tell my wife
+- [45:57.580] when we get home that we've watched
+- [45:59.290] about nine episodes of X-Men,
+- [46:01.200] and my son has eaten four chocolate chip cookies.
+- [46:03.190] She's going to be very pleased,
+- [46:04.550] going to be very pleased with the Vice President.
+- [46:08.130] But, but here, here's, here's the thing.
+- [46:10.080] I -- it kind of just worked out. I wasn't planning this,
+- [46:13.560] but I've got my six, six-year-old
+- [46:15.690] because last week I took his little sister on a trip
+- [46:19.470] and he was feeling a little jealous
+- [46:20.790] and, you know, when he's a kindergartner,
+- [46:22.590] it's not like missing school's, no offense,
+- [46:24.530] but one day of kindergarten's
+- [46:25.840] not going to cause him any problems.
+- [46:29.030] So he came out with me today, and we've had such a good day,
+- [46:32.750] and it, it's just been an amazing thing.
+- [46:34.570] I always enjoy coming out and doing events like this,
+- [46:37.200] but to do it with your six-year-old son by your side
+- [46:39.350] is really an amazing, an amazing thing.
+- [46:41.310] But as it happened,
+- [46:43.420] when we landed here in Des Moines, um,
+- [46:47.830] or, or at the airport there in Des Moines,
+- [46:50.280] we met a couple of gold star families from Iowa.
+- [46:53.710] And a, a couple of you probably know this,
+- [46:56.500] maybe all of you know this, that in, you know,
+- [46:58.770] what's going on in the Middle East,
+- [47:00.250] this, this operation in Iran, Iowa has borne a heavier burden
+- [47:03.940] maybe than any other state in the Union.
+- [47:05.690] This, this great state has lost about half of our KIA.
+- [47:09.650] And I know that you all will join me
+- [47:11.690] in saying that we love them and we're proud of them
+- [47:13.870] and we're praying for them every single day.
+- [47:28.370] Thank you.
+- [47:39.980] But also on the tarmac, a couple of Gold Star families met me.
+- [47:43.070] A couple of families who've lost people just in the last,
+- [47:46.410] you know, nine or so months one in Iran and then,
+- [47:49.260] and then one in Syria about nine or so months ago.
+- [47:52.110] And I, I was, I was talking to them
+- [47:55.020] and one of them told me I had no idea.
+- [47:57.100] I didn't, you know, I didn't plan to,
+- [47:58.690] to see them, but they, they were here.
+- [48:00.010] And of course, I was honored to see them.
+- [48:01.360] It's an amazing thing
+- [48:02.740] as the Vice President of the United States
+- [48:04.130] to meet the parents and the families of the people
+- [48:06.130] who put on a uniform
+- [48:07.400] and sacrifice their life for this country.
+- [48:09.720] And so I'm always happy to do it,
+- [48:11.110] always honored to do it.
+- [48:12.880] But one family, and I won't use their name,
+- [48:15.220] I don't know how political they are,
+- [48:16.460] if they're political at all,
+- [48:17.670] but they told me that their son's birthday was today.
+- [48:20.950] And so I get in the car with my little six-year-old,
+- [48:25.090] you know,
+- [48:26.290] and I, and I look into those, those big eyes,
+- [48:28.100] his eyes remind me of his mother's eyes,
+- [48:30.860] and I think to myself, "What an amazing blessing
+- [48:34.290] it is to be able to be a father in the freest
+- [48:38.200] and most prosperous country
+- [48:40.010] anywhere in the history of the world."
+- [48:42.390] And, and I, I thought to myself, "What would I say?
+- [48:53.910] What would I say if this beautiful six-year-old boy
+- [49:00.300] got older and decided like his dad
+- [49:02.810] to put on the uniform of his country,
+- [49:04.110] and like so many of you here,
+- [49:05.400] decided to put on the uniform of his country."
+- [49:07.150] And I thought to myself, on the one hand,
+- [49:08.710] I'd be so proud of him.
+- [49:10.190] I'd be so proud of him, but on the other hand,
+- [49:12.460] I'd be so terrified that what happened to those two families
+- [49:15.930] would happen to this boy.
+- [49:18.240] And it hit me that every time we lose somebody,
+- [49:21.910] every time somebody goes overseas
+- [49:24.280] and sacrifices their life, every time that a person
+- [49:28.190] gives the ultimate sacrifice to the United States of America,
+- [49:31.870] we often read about it as a line on a newspaper or online,
+- [49:35.980] but there's a father and there's a mother
+- [49:38.540] and there's a grandma and aunts and uncles
+- [49:40.520] and a whole crew of people who love them the same way
+- [49:44.560] that we all love every single member of our family.
+- [49:47.670] And you take that love and you set that on one side
+- [49:51.810] and you consider the balance that all of us owe,
+- [49:55.610] because on the other side is we have to meet their sacrifice
+- [50:00.270] by carrying something forward that they can't carry forward.
+- [50:04.550] We have to make this country worthy of that sacrifice.
+- [50:08.030] You remember that movie, Saving Private Ryan?
+- [50:09.940] It's one of my favorite movies. And at the very end,
+- [50:12.710] right before one of the soldiers takes his last breath,
+- [50:15.250] he looks up and he says, "Earn this."
+- [50:17.880] And what he means is all that love,
+- [50:21.220] all that was taken away from those families,
+- [50:23.360] all that was taken away from so many of the people
+- [50:25.740] who have put on the uniform and sacrificed for this country,
+- [50:28.750] we have to earn it.
+- [50:30.840] Now, so much of that is how you live your life.
+- [50:33.360] So much of that is, you know, Congressman Zach Nunn
+- [50:35.720] being a good husband and father and his beautiful family here,
+- [50:38.850] I think what, you guys have six or seven?
+- [50:41.220] Six. She is a saint, Zach. She is a saint. Part of that is,
+- [50:46.270] is how we go to work and treat our employees and,
+- [50:48.450] and what we build and make with our hands and with our minds.
+- [50:51.080] Part of it is how we go to church
+- [50:52.890] and give back to our community,
+- [50:54.700] but part of how we earn that incredible sacrifice
+- [50:59.400] given to all of us
+- [51:01.310] is by making this country's politics and government
+- [51:05.220] worthy of the people who put on the uniform
+- [51:07.560] and will never see their loved ones again.
+- [51:10.300] And part of what we have to do, my friends,
+- [51:12.560] is every single day we have to send people to Washington.
+- [51:16.610] I'm not saying you have to agree with every single issue,
+- [51:20.360] I'm saying that you got to send people to Washington
+- [51:23.170] who wake up every single day
+- [51:25.090] and recognize that they fight for you.
+- [51:28.070] That's how we honor this sacrifice.
+- [51:30.130] That's how we make this country great again,
+- [51:32.120] and that's how we make 250 years of American history
+- [51:36.090] and American patriots proud.
+- [51:37.770] God bless you guys and thank you for having me in Iowa.
+- [51:41.400] (applause)
+- [52:04.135] ♪ (country music playing) ♪

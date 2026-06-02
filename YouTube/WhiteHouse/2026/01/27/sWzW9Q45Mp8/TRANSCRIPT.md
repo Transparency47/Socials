@@ -1,0 +1,164 @@
+<!-- source: https://www.youtube.com/watch?v=sWzW9Q45Mp8 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: sWzW9Q45Mp8 -->
+<!-- date_published: 2026-01-27T19:27:53+00:00 -->
+<!-- date_accessed: 2026-06-02T01:06:19.246052+00:00 -->
+
+# Transcript: President Trump Gaggles with Press Before Departing the White House, Jan. 27, 2026
+
+- [00:00.480] The president
+- [00:04.240] have had a great conversation with the
+- [00:07.919] highly respected president of Syria and
+- [00:11.679] all of the things having to do with
+- [00:13.280] Syria and that area worked it out very
+- [00:15.839] very well. So we very happy about it.
+- [00:19.119] Tom Hman, as you know, is in Minnesota
+- [00:21.600] now. He's meeting with the governor and
+- [00:23.760] he's meeting with the mayor, I think,
+- [00:25.199] later. And I hear that's all going very
+- [00:27.920] well. Also, I'm going to Iowa. Some of
+- [00:30.800] you are coming with me, but I'm going to
+- [00:32.559] Iowa. And uh what can I say? The economy
+- [00:36.079] is good. It's all good. Prices are
+- [00:38.480] coming way down. And we have a lot of
+- [00:41.520] very positive news.
+- [00:49.920] >> But you know, we're doing a big
+- [00:51.280] investigation. I want to see the
+- [00:53.039] investigation. I'm going to be watching
+- [00:55.280] over. What a very honorable and honest
+- [00:58.399] investigation. I have to say it myself.
+- [01:06.240] >> President
+- [01:08.560] the president of Venezuela said that he
+- [01:11.040] is done with taking orders from you.
+- [01:12.799] What do you have to say about that?
+- [01:14.320] >> Well, I don't know exactly what's going
+- [01:15.920] on there, but I haven't heard that at
+- [01:17.920] all. No, we have a very we have a very
+- [01:19.840] good relationship.
+- [01:24.159] mortgage.
+- [01:26.479] How far would you like to see mortgage
+- [01:28.240] rates drop to?
+- [01:29.680] >> I'd like to see interest rates go down.
+- [01:32.400] Everything else is going down. We have
+- [01:34.159] the energy and fuel going down. We have
+- [01:37.680] gasoline in many states now at $1.99.
+- [01:42.079] Groceries are going down. We inherited a
+- [01:44.400] mess with very, very high prices. Very,
+- [01:47.119] very high prices. And uh I will tell
+- [01:49.920] you, we've made a lot of progress. So,
+- [01:53.040] we have the groceries going down. We
+- [01:54.960] have the energy going down. We have
+- [01:57.200] gasoline going down in a record clip.
+- [01:59.920] And that's what I want to do. We're
+- [02:01.360] doing well.
+- [02:03.280] >> What do you say, Mr. President, to Alex
+- [02:05.040] Freddy's?
+- [02:06.799] >> Well, I'm looking at that whole
+- [02:08.239] situation. I love everybody. I love all
+- [02:10.560] of our people. I love his family. Uh,
+- [02:13.120] and it's a very sad situation.
+- [02:16.160] >> Thank you.
+- [02:16.560] >> Yeah, please.
+- [02:17.360] >> Are you
+- [02:19.520] right now?
+- [02:20.560] >> I have. Yeah. I think he's doing a very
+- [02:23.200] good job. I think he's doing a very good
+- [02:25.360] job. The border is totally secure. You
+- [02:27.920] know, you forget we had a border that I
+- [02:30.800] inherited where millions of people were
+- [02:33.280] coming through. Now we have a border
+- [02:35.200] where no one is coming through. They
+- [02:37.519] come into our country only legally. So
+- [02:39.920] you have to remember those things. You
+- [02:41.519] know, people forget as soon as you
+- [02:43.440] accomplish something, it goes into
+- [02:45.360] history and nobody ever wants to talk
+- [02:47.519] about it. We had a border that caused
+- [02:50.480] all of this problem. Biden caused and
+- [02:52.640] the Democrats caused this problem. They
+- [02:55.040] allowed tens of millions of people to
+- [02:57.920] come in. Many of them were murderers.
+- [02:59.760] Many were drug dealers, drug addicts,
+- [03:02.400] people from mental institutions. They
+- [03:04.319] allowed these people to violate our
+- [03:07.519] country, to come into our country. And
+- [03:09.680] that's what we're talking about. So, if
+- [03:11.920] you remember, we had a horrible border,
+- [03:14.000] the worst border we've ever had ever in
+- [03:16.800] history. People were flowing through by
+- [03:19.760] we think 25 million people, not to
+- [03:22.640] mention drugs and everything else. And
+- [03:25.360] that border is absolutely closed.
+- [03:33.440] >> What's your message to Americans right
+- [03:35.840] now after everything going on in
+- [03:37.200] Minneapolis? How can the United
+- [03:38.400] >> Well, our country is doing so well.
+- [03:40.319] Prices are coming down. The border is
+- [03:42.400] really strong. You know, if you
+- [03:44.159] remember, I probably got elected more
+- [03:46.000] than anything else on the border. We had
+- [03:48.319] a border that was open with 25 million
+- [03:50.640] people coming through with an open
+- [03:53.040] border policy, which was insane. And
+- [03:55.840] that's the one that that's the policy
+- [03:57.599] that caused the problems that we have.
+- [04:00.000] With all of that being said, with the
+- [04:01.599] outside with the uh other than I would
+- [04:05.200] say just to put it accurately, Minnesota
+- [04:08.000] and in particular Minneapolis because
+- [04:10.159] it's not all of Minnesota. Uh every city
+- [04:13.519] that we've gone to has been like
+- [04:15.439] literally crime has gone down 50, 60,
+- [04:19.359] 70, 80. In Washington, it's gone down.
+- [04:22.240] There's practically no crime. You know,
+- [04:24.240] Washington is a great example, but you
+- [04:26.720] take a look at other cities. Memphis,
+- [04:28.560] Tennessee, the crime is down 78%.
+- [04:32.800] And you know where else it's down? It's
+- [04:34.400] down in Minnesota. It's down in
+- [04:36.720] Minneapolis, and it's down very much
+- [04:39.280] because of the fact that we're there.
+- [04:41.600] We we have to we can't lose sight of the
+- [04:43.680] fact that we have to take murderers and
+- [04:46.720] drug lords and people from mental
+- [04:48.880] institutions that were dumped into our
+- [04:51.600] country through open borders of Joe of
+- [04:54.960] the Democrats of Biden and we're doing a
+- [04:57.840] great job.
+- [05:01.120] >> The other thing is Tom Hman is there
+- [05:03.759] right now. He's with the governor and
+- [05:05.280] he's with the mayor and I hear things
+- [05:07.520] are going very nicely.
+- [05:10.320] I support
+- [05:19.440] your meeting with President Putin and
+- [05:21.199] Budapest back in play. We're looking at
+- [05:24.400] some very good things happening on
+- [05:26.080] Ukraine and Russia. Very good things.
+- [05:30.000] >> Very good things are happening on
+- [05:31.440] Ukraine and Russia.
+- [05:33.680] Mr. President, where do we stand on
+- [05:35.840] Gaza? Mr.
+- [05:37.360] I think is going very well. As you know,
+- [05:39.919] we got the last uh hostage back, the
+- [05:42.960] body of the hostage, and a lot of people
+- [05:45.520] thought that was impossible. So, we got
+- [05:47.840] all of the hostages back, both living
+- [05:50.240] and dead,
+- [05:51.360] >> and I can tell you, you have parents
+- [05:52.960] that really appreciate it.
+- [05:54.080] >> What about acting as an assassin?
+- [05:57.199] >> Do you think he was acting as an
+- [05:59.120] assassin in Minneapolis?
+- [06:00.880] >> Who is that?
+- [06:01.680] >> Mr. Freddy, your deputy chief of staff.
+- [06:10.800] With that being said, you know, you
+- [06:12.400] can't have guns. You can't walk in with
+- [06:14.240] guns. You just can't.
+- [06:16.080] >> You can't. Listen, you can't walk in
+- [06:18.080] with guns. You can't do that. But, uh,
+- [06:20.319] it's it's a very unfortunate incident.
+- [06:22.800] >> What about the second?
+- [06:25.120] I will tell you,
+- [06:27.680] >> we'll work something out. We'll work
+- [06:29.520] something out.

@@ -1,0 +1,103 @@
+<!-- source: https://www.youtube.com/watch?v=WWzvHVJebd0 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: WWzvHVJebd0 -->
+<!-- date_published: 2026-02-19T22:55:33+00:00 -->
+<!-- date_accessed: 2026-06-02T01:05:13.035631+00:00 -->
+
+# Transcript: President Trump Participates in a Local Factory Tour
+
+- [00:00.400] These racks right here are what we call
+- [00:02.159] this is our biggest impact is these
+- [00:04.160] racks right here. So we buy all the
+- [00:06.640] material all the children come out of
+- [00:08.559] Chattanooga.
+- [00:10.320] So they roll it, cut it to length for
+- [00:12.320] us. We weld it up and then we ship them
+- [00:15.200] to tire distribution centers. We had
+- [00:17.840] gotten our start in the racks business
+- [00:19.600] doing tire distribution center. So an
+- [00:21.199] order of these would be about 150
+- [00:23.519] truckloads of racks. 30,000 racks. That
+- [00:26.720] >> totally goes that way.
+- [00:29.439] >> 30,000. It takes us about two shifts uh
+- [00:32.640] about four to six months depending on
+- [00:34.160] what other orders we have.
+- [00:36.079] >> That totally went away around 2015. Our
+- [00:39.840] costs were our costs were just
+- [00:42.320] unbearable.
+- [00:43.520] >> So this gentleman has a now great
+- [00:46.559] company. He was in big trouble two years
+- [00:49.600] ago and then I put on the tariffs and
+- [00:51.920] now he's going round the clock making
+- [00:54.480] the racks, making the steel, making
+- [00:56.239] everything that he makes. Uh, and it's
+- [00:59.280] just amazing what's happened that
+- [01:01.760] anybody can be complaining about
+- [01:03.440] tariffs. He just said, "I give you a big
+- [01:05.519] hug if the press wasn't out here because
+- [01:08.080] the tariffs have really been a big big
+- [01:10.560] difference."
+- [01:10.960] >> It's been a game changer. We were
+- [01:12.400] competing with China. They had taken all
+- [01:14.400] of them. They were producing racks at
+- [01:16.880] $90 a piece. Our cost alone is 150.
+- [01:20.799] >> You leveled it. The playing field's
+- [01:22.560] back.
+- [01:22.960] >> So when I came in and we did what we had
+- [01:25.200] to do to save all these businesses, uh,
+- [01:28.080] you went through the roof, right?
+- [01:29.280] >> We did. Our quotes, our orders, it we're
+- [01:32.560] so busy now, we're we don't know what to
+- [01:34.400] do. My lead time now on an order is 36
+- [01:36.960] weeks. We were at a point in time of our
+- [01:39.200] ratch.
+- [01:40.720] We were laid off. We're laying off
+- [01:42.000] workers. We were working one shift 3
+- [01:44.000] days a week begging for work. Now we're
+- [01:48.240] >> it's the attack office.
+- [01:49.920] >> It's turning.
+- [01:50.799] >> We're turning work down, which is a
+- [01:52.399] position that that nobody wants to be
+- [01:54.640] in. But it's the reality of what's
+- [01:56.560] required. Honestly, you've got thousands
+- [01:59.040] of businesses all over the country
+- [02:00.719] saying
+- [02:02.320] >> taking it away. They were ripping us
+- [02:03.920] off. Every country in the world was
+- [02:05.439] ripping us off. And to think that we
+- [02:07.439] have to be between before the Supreme
+- [02:09.440] Court on a thing like this. Here's a man
+- [02:14.000] virtually going out of business and now
+- [02:15.840] he's got a thriving business hiring
+- [02:18.319] people. Can't get enough people and it's
+- [02:21.760] all because of tariffs. I had Noardis
+- [02:24.160] come in yesterday, big drug company.
+- [02:25.680] They're building 11 factories, 11 drug
+- [02:27.920] plants for prescription drugs in the
+- [02:30.640] United States. I said, "Why are you
+- [02:32.080] doing that?" He said, "One reason,
+- [02:33.760] tariffs.
+- [02:35.280] And we have to be between the Supreme
+- [02:37.280] Court with China ccentric people suing
+- [02:40.400] us. People from China suing us. They're
+- [02:43.920] all china centric and people from
+- [02:45.840] outside of our country to get rid of
+- [02:48.560] tariffs and it's making our country rich
+- [02:51.920] and it's a disgrace that we even have to
+- [02:54.160] talk about this subject. That's like
+- [02:56.239] that's like men playing in women's
+- [02:58.000] sports. It's like uh you know the tariff
+- [03:01.680] is the greatest thing that's happened to
+- [03:03.360] this country. We're making a fortune.
+- [03:05.680] But more importantly, all of these
+- [03:07.599] factories are booming now and they were
+- [03:09.280] all dead. All right. I hope you take it
+- [03:12.080] down. I hope you show them that we have
+- [03:15.120] to be seriously that we have to be
+- [03:16.879] before the Supreme Court of the United
+- [03:18.640] States to justify tariffs which are
+- [03:21.440] making every one of these businesses
+- [03:23.120] thrive. And without them, all these
+- [03:25.760] buildings are closed like they have been
+- [03:27.920] before I got here. Thank you very much.

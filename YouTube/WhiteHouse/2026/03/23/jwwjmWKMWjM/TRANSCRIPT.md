@@ -1,0 +1,1858 @@
+<!-- source: https://www.youtube.com/watch?v=jwwjmWKMWjM -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: jwwjmWKMWjM -->
+<!-- date_published: 2026-03-23T18:17:51+00:00 -->
+<!-- date_accessed: 2026-06-02T02:36:16.717560+00:00 -->
+
+# Transcript: President Trump Participates in the Memphis Safe Task Force Roundtable
+
+- [00:08.580] Announcer: Ladies and gentlemen, the 55th and 47th
+- [00:11.640] President of the United States, Donald J. Trump.
+- [00:15.190] ♪ ("God Bless the USA" by Lee Greenwood) ♪
+- [00:48.430] (applause)
+- [01:00.720] ♪ ("God Bless the USA" by Lee Greenwood) ♪
+- [02:39.010] (applause)
+- [02:44.200] The President: Wow.
+- [02:45.560] This is a nice place with the best sound system.
+- [02:48.020] I don't know. Who did --
+- [02:49.780] it sounds like the finest opera hall anywhere in the world.
+- [02:54.960] Let's come back here more often.
+- [02:56.750] So often you have sound systems that aren't the greatest,
+- [03:00.010] and there's nothing worse,
+- [03:01.330] making a speech when nobody can hear you.
+- [03:03.690] This is beautiful and it's a great place.
+- [03:05.360] And Memphis has to like me,
+- [03:08.740] because I have a lot of friends here
+- [03:10.160] and they were not happy a year ago,
+- [03:12.050] two years ago, four years ago.
+- [03:14.900] And now, they said,
+- [03:16.710] we can't believe what's happened in terms of crime,
+- [03:20.250] in terms of what -- what's gone on and the job
+- [03:25.010] these people and some of the great people,
+- [03:27.480] many of the great people in the audience have done.
+- [03:31.230] And that's why I'm here today. In fact, we were going to cancel
+- [03:33.710] because we have a couple of events going on,
+- [03:35.650] as you probably noticed.
+- [03:37.570] So they said, oh, we'll cancel Memphis. We can --
+- [03:39.760] I said, we're not canceling Memphis for anything.
+- [03:43.450] We're not canceling.
+- [03:49.560] We're not going to cancel Memphis,
+- [03:51.320] but we do have some big things happening and very positive,
+- [03:54.800] I have to say. So before getting
+- [03:57.470] to our important discussion this morning,
+- [04:00.110] let me provide a brief update on Operation Epic Fury,
+- [04:04.530] which is a very good name, as it turns out.
+- [04:06.570] That was the name -- they showed me 20 names, sir,
+- [04:09.350] what name would you like? I didn't like any of them.
+- [04:12.240] And then I get toward the end, I said, you got to be kidding.
+- [04:14.960] What? Operation Epic Fury, I love that name.
+- [04:18.770] And it's very appropriate for what's taking place,
+- [04:21.780] if you know, in --
+- [04:23.400] in Iran, because we knocked out their Navy.
+- [04:26.680] We knocked out their air force.
+- [04:28.040] We knocked out their anti-aircraft.
+- [04:30.250] We knocked out everything, and we did it with fury.
+- [04:33.800] Actually, as I announced earlier,
+- [04:36.240] based on preliminary conversations
+- [04:38.380] between the United States and Iran over the past two days,
+- [04:42.210] I've directed the Department of War to temporarily postpone
+- [04:45.620] planned strikes against major energy
+- [04:48.720] and electricity targets in Iran.
+- [04:50.990] They have a very, very big new, actually, and very expensive,
+- [04:55.000] billions of dollars it cost to build them,
+- [04:56.890] one missile, one of our powerful ones.
+- [04:59.350] And it comes down to the ground like it was made out of dust.
+- [05:04.570] But to determine whether a broader agreement
+- [05:06.340] can be reached,
+- [05:07.580] we've had very good discussions, very, very good discussions.
+- [05:10.830] And you have to understand, I know --
+- [05:13.340] my whole life has been a negotiation,
+- [05:15.180] but with Iran, we've been negotiating for a long time
+- [05:18.950] and this time they mean business.
+- [05:21.680] And it's only because of the great job that our military did
+- [05:25.410] is the reason they mean business.
+- [05:27.300] They want to settle and we're going to get it done.
+- [05:29.520] I hope. So hopefully this will be possible,
+- [05:37.250] but no matter what,
+- [05:38.510] we'll ensure that Iran never obtains a nuclear weapon.
+- [05:41.440] They can't have a nuclear weapon.
+- [05:43.530] They would have had one if we allowed the Obama deal to stand.
+- [05:48.980] That was the Iran nuclear deal, they called it.
+- [05:50.930] They would have had one, Marsha, three --
+- [05:54.200] I'll tell you what, Martha,
+- [05:56.380] we would have nuclear weapons up there, when?
+- [05:59.600] Would you say two years ago,
+- [06:01.460] three years ago or four years ago?
+- [06:03.560] We would have been in a position that nobody wants to be in.
+- [06:07.940] We won't allow ourselves to be in that position.
+- [06:10.760] Over the past three weeks,
+- [06:12.100] the United States military and our partners
+- [06:15.140] have been decimating Iran's military capabilities
+- [06:18.130] with overwhelming firepower, skill, lethality, and force
+- [06:22.830] and we're destroying their ballistic missiles
+- [06:25.060] and drones' programs,
+- [06:26.770] with launchers down by more than 90 percent.
+- [06:30.250] We're hitting their launches at a level
+- [06:33.030] that nobody even thought of before, 90 percent.
+- [06:35.680] They can't launch them, and they don't have very many of them
+- [06:39.070] because most of them have been annihilated.
+- [06:43.340] But we've annihilated their defense industrial base,
+- [06:45.870] eliminating their Navy. We had 158 ships are down.
+- [06:49.820] I said to my people, why didn't you capture the ship?
+- [06:53.270] I said, were they good or not? They said, they were great, sir.
+- [06:56.440] So why didn't you capture it? We could have used them.
+- [06:59.060] They said, it's more fun to put them at the bottom of the sea.
+- [07:04.050] But they're not there anymore.
+- [07:05.490] So we eliminated their Navy, Pete, right?
+- [07:07.500] Secretary Hegseth: Yes, sir.
+- [07:08.700] The President: And that's gone. We eliminated their Air Force.
+- [07:10.960] We eliminated all of their air defense, everything.
+- [07:15.890] We eliminated everything there is to eliminate,
+- [07:18.160] and we eliminated them. We eliminated their leaders.
+- [07:21.710] We had -- we had the first set of leaders, they're gone.
+- [07:27.350] Then they met. 88 people met. And it's sad.
+- [07:31.200] I mean, it's sad they couldn't have made a deal.
+- [07:32.750] We could have made a deal with them a long time ago.
+- [07:35.920] Then the second set, 88 people met to pick a new leader
+- [07:40.230] and they're now extinguished. And then they're meeting again,
+- [07:43.820] but now nobody wants to be the leader.
+- [07:45.420] It's one of the few political jobs
+- [07:47.710] that nobody wants anywhere in the world.
+- [07:49.340] Nobody wants it. It's a very dangerous job.
+- [07:51.750] My job is dangerous too, but their job is worse.
+- [07:55.170] In other words, we're systematically dismantling
+- [07:57.770] the regime's ability to threaten America.
+- [08:01.120] They're not threatening us anymore.
+- [08:03.430] As commander in chief, it's my sacred responsibility
+- [08:06.400] to protect our country from all threats.
+- [08:09.300] For decades, Iran refused every opportunity
+- [08:12.130] to renounce its nuclear ambitions and in recent months,
+- [08:15.100] its own negotiators bragged to our representatives
+- [08:18.690] about having enough material to make nuclear weapons.
+- [08:22.110] And that was supposed to deter me, but it didn't deter.
+- [08:26.410] It made me more anxious,
+- [08:29.310] and it just made it much more important.
+- [08:31.680] This mission that we're all on together
+- [08:33.850] was much more important, and we did it quicker.
+- [08:37.440] Iran's missile capabilities were also growing so fast
+- [08:40.790] that it would soon have become virtually impossible
+- [08:43.210] to stop them.
+- [08:44.560] Once they have a missile, once they have --
+- [08:47.100] what they were building was incredible,
+- [08:49.060] and you got a little glimpse of it
+- [08:50.400] by the fact that when they came out,
+- [08:52.920] they started shooting all of their neighbors.
+- [08:54.600] Their neighbors weren't fighting with them.
+- [08:56.280] They were getting along OK with their neighbors.
+- [08:59.630] And I was surprised, they were -- everybody was surprised.
+- [09:02.330] And it actually worked in reverse,
+- [09:03.760] because their neighbors then turned against them.
+- [09:08.030] Now, Iran has one more opportunity
+- [09:10.540] to end its threats to America and our allies,
+- [09:14.010] and we hope they take it.
+- [09:16.030] Either way, America and the entire world
+- [09:17.830] will soon be much safer
+- [09:19.710] and will be a much more secure planet.
+- [09:24.020] In addition to all of this,
+- [09:26.410] we're working on so many different things.
+- [09:28.670] You know, our economy was fantastic.
+- [09:30.380] We had a Dow at 50,000.
+- [09:32.900] They say it couldn't happen in four years,
+- [09:35.150] it wouldn't happen during my term,
+- [09:37.360] but if I got anywhere close, it would be a great success.
+- [09:41.030] Well, in my first year, we hit 50,000.
+- [09:44.350] And with the S&P, they said -- even more difficult.
+- [09:48.600] They said it would be impossible to hit 7,000 on the S&P,
+- [09:53.940] and we hit that in our first term.
+- [09:56.940] And then, unfortunately, I came --
+- [09:58.550] I called Pete, I called General Caine,
+- [10:00.630] I called a lot of our great people.
+- [10:02.900] We have great people. And I said, let's talk.
+- [10:05.540] We got a problem in the Middle East.
+- [10:07.100] We have a country known as Iran that for 47 years
+- [10:12.130] has been just a purveyor of terror,
+- [10:15.220] and they're very close to having a nuclear weapon.
+- [10:18.260] We can keep going and get that 50,000 up to 55,000 and 60,000.
+- [10:22.750] There's no end. Or we can take a stop
+- [10:25.720] and make a little journey into the Middle East
+- [10:28.370] and eliminate a big problem.
+- [10:30.960] And Pete, I think you were the first one to speak up
+- [10:34.420] and you said, let's do it,
+- [10:35.880] because you can't let them have a nuclear weapon.
+- [10:39.460] So we are now having really good discussions.
+- [10:42.060] They started last night,
+- [10:46.290] a little bit the night before that.
+- [10:49.110] And I think they're -- you know, I think they're very good.
+- [10:53.320] They want to -- they want peace.
+- [10:56.030] They've agreed they will not have a nuclear weapon,
+- [10:58.250] you know, etc., etc., but we'll see.
+- [11:00.240] You have to get it done,
+- [11:01.530] but I would say there's a very good chance.
+- [11:04.350] And it began when I said that I won't be --
+- [11:07.540] we were planning tomorrow on shooting
+- [11:10.640] down some of their power plants and we're not going to.
+- [11:12.890] We're going to hold that up. Hopefully we won't have to do it
+- [11:16.740] and hopefully we can make a deal that's good for all of us,
+- [11:19.110] including the Middle Eastern allies
+- [11:21.550] that have been very good to us,
+- [11:23.740] including Israel, that's been a great partner in this fight.
+- [11:27.480] They've really been a good partner in the fight.
+- [11:29.310] They fought hard, but we'll see what happens.
+- [11:32.270] I think this is a very good chance
+- [11:33.570] we're going to end up in a deal. And so we're giving it five days
+- [11:37.230] and then we're going to see where that takes us.
+- [11:39.900] And I would say, at the end of this period,
+- [11:41.910] I think it could very well end up
+- [11:44.410] being a very good deal for everybody,
+- [11:47.520] as good as if we went all the way
+- [11:49.760] and just literally annihilated the place, which --
+- [11:53.050] which if we don't have to do that,
+- [11:54.810] that would be a good thing, not a bad thing.
+- [11:56.470] In addition, after the appalling lines and massive disruptions
+- [12:01.440] at major airports nationwide last weekend,
+- [12:04.710] I am again demanding that Democrats in Congress
+- [12:07.230] immediately end their disgraceful shutdown
+- [12:10.290] of the Department of Homeland Security
+- [12:12.290] and restore the full funding for airport security and the TSA.
+- [12:17.280] They are holding it up because they want to take care
+- [12:20.360] of illegal immigrants coming into our country.
+- [12:23.780] They want to take care of criminals
+- [12:25.410] that are in sanctuary cities.
+- [12:28.200] They want to take care of transgender for everybody,
+- [12:31.360] literally the mutilization of our children,
+- [12:35.030] men and women's sports, but what they don't want to do
+- [12:38.430] is give us anything to do with US citizenship
+- [12:42.430] for voting or voter ID. Can you imagine?
+- [12:46.610] We're the only country that doesn't do voter ID.
+- [12:48.900] Every country does voter ID.
+- [12:51.470] You know, brought to my attention today
+- [12:55.320] that we're the only country that doesn't --
+- [12:57.640] does mail-in voting.
+- [12:59.070] Mail-in voting means mail in cheating.
+- [13:00.810] I call it mail-in cheating
+- [13:03.120] and we got to do something about it all.
+- [13:05.050] And it's part of Homeland Security.
+- [13:07.350] And I'm suggesting strongly to the Republican Party,
+- [13:10.550] don't make any deal on anything.
+- [13:13.180] The most important thing we can have
+- [13:14.900] is what's called the SAVE America Act.
+- [13:17.670] Don't make any deal on anything unless you include voter ID
+- [13:22.780] and you have to be a citizen to vote.
+- [13:24.890] You have to show citizenship to vote, very easy to do.
+- [13:28.890] It's very insulting when they say people can't do it
+- [13:31.230] because they don't know how to do it.
+- [13:33.020] Anybody that can't do it,
+- [13:34.300] I think it's a very insulting thing to say.
+- [13:37.150] The Democrats are fully to blame
+- [13:39.210] with the struggle of the great American public
+- [13:42.620] is going through at the airports.
+- [13:44.230] They're going through a big struggle right now.
+- [13:45.950] And we just put ICE in charge,
+- [13:48.720] and they're helping TSA, the agents,
+- [13:51.480] and they're working together so far very well.
+- [13:54.780] I actually suggested that in the airports,
+- [13:57.160] they take off their masks and they did that.
+- [14:00.030] In the airports, I didn't --
+- [14:01.420] I'm a big believer in the mask because we have -- you know,
+- [14:04.640] Biden allowed hundreds of thousands of killers
+- [14:08.370] into our country.
+- [14:09.620] We're rapidly getting them out, by the way,
+- [14:12.330] but they would they would go
+- [14:15.410] after these people if they knew exactly who they were.
+- [14:17.830] But in the airports, it's different.
+- [14:19.240] I didn't like -- I didn't love the look in the airport,
+- [14:21.800] as you get off the plane.
+- [14:23.200] So I made a request and they agreed to it.
+- [14:26.700] So they're not going to be doing that.
+- [14:28.010] We would also bring out -- if we don't have enough,
+- [14:30.650] we will bring out the National Guard and --
+- [14:32.740] you know, where we need it to help out at the airports,
+- [14:36.250] but we're not going to let this happen.
+- [14:38.250] It's extortion by the Democrats.
+- [14:40.100] They're holding up money that's already been approved,
+- [14:43.230] and now they're willing to go $5 billion reduction in ICE
+- [14:47.930] in order to get the approval on a deal that they approved,
+- [14:50.290] the Great, Big, Beautiful Deal,
+- [14:51.640] which is the biggest tax cut in history,
+- [14:53.980] the biggest regulation cut in history.
+- [14:57.210] They want to renegotiate a deal that they already approved,
+- [15:01.160] and they're doing it for -- largely for a criminal element.
+- [15:06.220] So also, the Democrats are putting our country
+- [15:08.870] at great risk
+- [15:10.710] during this period of time, a period that they call a war.
+- [15:14.200] They call it a war, we call it a military operation.
+- [15:18.440] Their leaders during this time are, as -- you know, as --
+- [15:22.830] as you want to say, they're in a never-never land.
+- [15:26.980] Schumer is gone. I mean, he's a Palestinian.
+- [15:29.170] He should be fighting on the side of Palestine.
+- [15:32.590] He's actually become a Palestinian leader.
+- [15:35.490] I don't know, I've never seen a man change so much.
+- [15:38.350] He used to be pro-Israel, now he's pro-Palestine.
+- [15:40.890] I've never seen anything like it.
+- [15:42.110] And you know, he's --
+- [15:43.340] he's worried he's going to lose his next election,
+- [15:46.050] which it only depends if anybody runs against him.
+- [15:48.460] If anybody runs against him, he'll lose.
+- [15:51.260] But he's gone very wacky and very --
+- [15:54.560] they're very dangerous for our country.
+- [15:57.090] But we want all of those things.
+- [15:58.650] We have to have them. We want voter ID,
+- [16:01.070] we want proof of citizenship as part of our funding.
+- [16:04.710] We want to merge them so that we can get the
+- [16:06.370] Great, Big, Beautiful Bill in action and we can get --
+- [16:10.540] we can get the America and SAVE America --
+- [16:14.420] you know, they called it the SAVE Act,
+- [16:16.740] but nobody knew what the SAVE Act was
+- [16:18.350] so I said, you have to call it -- you have to --
+- [16:21.040] under any circumstances,
+- [16:23.100] you have to call it the SAVE America Act,
+- [16:26.800] because everybody knows what that is.
+- [16:29.940] So they want funding taken away from the ICE patriots
+- [16:33.420] who are responsible for getting rid of the criminals,
+- [16:36.600] that Sleepy Joe Biden,
+- [16:38.340] the worst president in the history of our country,
+- [16:41.320] and his gang of thugs in the White House --
+- [16:44.380] you talk about weaponization, they weaponized everybody.
+- [16:47.340] You know, when we even look -- when Pam looks at somebody,
+- [16:51.380] oh, it's weaponization.
+- [16:53.460] They've indicted me, they -- what they've done to me
+- [16:56.360] and everybody else, it's a disgrace.
+- [16:59.350] They're the weaponizers and what they've done to people,
+- [17:02.240] can never let that happen again.
+- [17:03.620] We can never let them get away with it again.
+- [17:06.460] They are the greatest weaponizers.
+- [17:09.080] Fortunately, it didn't work because here I am with you,
+- [17:13.700] so it didn't work out too well. Didn't work out too well.
+- [17:21.850] But they want to have people come into our country.
+- [17:24.120] And so many of these people are murderers, they're drug dealers,
+- [17:28.440] they're the worst criminals anywhere in the world.
+- [17:30.390] They want them in our country.
+- [17:32.260] They don't want them to come out.
+- [17:33.620] They make it almost impossible, but we get them out anyway.
+- [17:37.150] They should have never been allowed
+- [17:39.310] to enter our sacred ground.
+- [17:40.850] These people should have never --
+- [17:42.220] they came from all over the world.
+- [17:44.410] They came from all over.
+- [17:47.010] They came from the Congo in Africa.
+- [17:48.830] They came from all over South America, Asia, everywhere,
+- [17:53.130] and they were from jails and mental institutions.
+- [17:56.830] They were drug dealers.
+- [17:58.130] They were murderers, 11,888 murderers.
+- [18:03.460] In any event, the Democrats are being blamed
+- [18:05.770] by the American people for the catastrophe
+- [18:08.620] going on right now at our airports
+- [18:11.710] and at other points of transportation and beyond.
+- [18:15.180] And we want the public to know,
+- [18:17.660] we're not going to let them out of this trap
+- [18:19.210] that they created for themselves.
+- [18:21.810] And I'm suggesting very strongly that the Republicans,
+- [18:24.720] in going for the SAVE America Act,
+- [18:28.650] that you -- you weld it into exactly this,
+- [18:31.270] because voter ID is part of Homeland Security.
+- [18:36.940] Think of it, we're talking about two separate items,
+- [18:39.730] but they're really the same.
+- [18:40.930] Voter ID is part of Homeland Security.
+- [18:44.510] And citizenship, proof of citizenship
+- [18:47.080] is part of Homeland Security.
+- [18:49.660] So I think it should be welded in.
+- [18:51.360] I think it should be together.
+- [18:52.970] You should vote together, because the public has not liked
+- [18:57.250] what they've done at the airports
+- [18:58.940] and they've done it, and the public understands it.
+- [19:01.580] They've gotten wise to them.
+- [19:02.960] Republicans, do not settle with Democrats
+- [19:06.130] and let them out of this hole
+- [19:08.230] that they've buried themselves in.
+- [19:10.870] You have to take the votes in the Senate to approve --
+- [19:13.630] you need votes to approve.
+- [19:15.540] We have to get Democrat votes and at a certain point,
+- [19:18.640] if you can get rid of the filibuster,
+- [19:20.280] it would be great. It would be great.
+- [19:22.610] Get rid of the filibuster and get it all done.
+- [19:25.670] So we'll get it done. We want another thing.
+- [19:28.460] We can, or we don't have to, add those other items.
+- [19:32.760] And by the way, they say they're 80/20 items.
+- [19:35.960] They're not 80/20, they're 99/1.
+- [19:38.760] Men playing in women's sports is a 99/1.
+- [19:43.350] You look at transgender mutilization of our children,
+- [19:47.700] that's a 99/1,
+- [19:49.350] and we have that in the bill too.
+- [19:51.750] So they won't sign it, then let the people reject them.
+- [19:55.070] And what we have to do is we have to win the midterms.
+- [19:57.600] This is the most important election,
+- [19:59.610] because all of the gains that we've made,
+- [20:01.450] we built the greatest economy, the greatest military.
+- [20:04.860] I built the military in my first term,
+- [20:06.920] and we built the greatest military in the world.
+- [20:08.840] We're showing it now with Venezuela, with Iran.
+- [20:12.610] Everybody knows we have the greatest,
+- [20:14.380] most powerful military in the world,
+- [20:16.980] and we're in a position that we haven't seen.
+- [20:20.200] We're respected.
+- [20:21.480] You know, our country now is respected all over the world.
+- [20:25.770] A year and a half ago, we were a laughing stock.
+- [20:29.040] We were a laughing stock.
+- [20:30.310] The king of Saudi Arabia told me a year and a half ago,
+- [20:33.870] he said, President,
+- [20:35.750] I can't believe what's happened to America.
+- [20:39.150] One year ago, you were a laughing stock.
+- [20:41.770] Nobody thought you could ever, ever survive.
+- [20:46.010] Now you're the hottest country -- he used that expression.
+- [20:48.270] He said, now you're the hottest country anywhere in the world.
+- [20:51.070] And we are now.
+- [20:52.380] Congratulations, because we're all partners in this deal.
+- [20:55.940] You're the hottest country anywhere in the world.
+- [20:58.010] It's really amazing. So I congratulate you.
+- [21:00.900] It's a great feeling,
+- [21:02.360] because we were laughed at for four years with this guy
+- [21:05.900] that should have never been president.
+- [21:08.380] So I'm tying Homeland Security into voter identification
+- [21:12.800] with picture and proof of citizenship in order to vote.
+- [21:18.030] And those two items are the most important thing having to do
+- [21:21.510] with Homeland Security, so it's part --
+- [21:23.400] it should be part of the Homeland Security bill.
+- [21:27.270] And I'm requesting that the Republican Senators
+- [21:29.640] do that immediately. You don't have to take a vote.
+- [21:32.980] Don't worry about Easter, going home.
+- [21:35.140] In fact, make this one for Jesus.
+- [21:38.040] OK? Make this one for Jesus. That's what I tell them.
+- [21:41.770] That would be a damn good thing.
+- [21:44.110] The most important part of Homeland Security
+- [21:46.590] is voter ID and proof of citizenship.
+- [21:49.250] Nobody can vote on Homeland Security
+- [21:51.570] without voter ID or proof of citizenship
+- [21:55.050] and you can't have Homeland Security
+- [21:57.320] without voter ID or proof of citizenship.
+- [22:01.110] So we're tying them together. So now, if you don't mind,
+- [22:04.690] let's get to the reason why I'm in Memphis
+- [22:07.910] and why you're doing so well,
+- [22:09.980] because Fred Smith -- everybody know Fred Smith?
+- [22:13.000] He was a friend of mine and he created,
+- [22:16.900] from a sort of failed report at like Harvard or whatever --
+- [22:21.440] he did a business report, a concept he had,
+- [22:24.290] that was his thesis,
+- [22:25.980] a concept he had to build a company, and it was FedEx.
+- [22:30.110] So he gave this thing where he takes packages,
+- [22:32.010] he delivers them.
+- [22:33.370] Who the heck knows what he put down?
+- [22:35.870] Bottom line is they gave him a lousy mark.
+- [22:37.890] I don't know if they passed him or not,
+- [22:39.760] but they didn't give them a good mark.
+- [22:41.140] They said, this is the most ridiculous business plan
+- [22:44.160] we've ever seen.
+- [22:45.860] Fred, go back to the drawing board
+- [22:47.400] and try something else because this won't work.
+- [22:49.830] Well, he decided to go for it,
+- [22:51.970] and he built FedEx and it's an amazing story.
+- [22:54.220] And he was a very good friend of mine.
+- [22:55.780] But he would tell me that he didn't know
+- [22:57.910] what to do about Memphis.
+- [22:59.630] It was so dangerous that they would have a board meeting
+- [23:03.590] and the board members, they were demanded
+- [23:06.540] that they could not walk one block to their hotel.
+- [23:08.950] You know, the hotel I'm talking about.
+- [23:11.360] It was so dangerous. And now they tell me
+- [23:14.400] this is like an entirely different place.
+- [23:16.540] It's like Washington, DC.
+- [23:18.490] In Washington, DC, we had the same thing,
+- [23:21.980] and now it's amazing. It's such an honor, too.
+- [23:27.340] If only more governors -- your governor called
+- [23:30.800] and he said, we love it. Your mayor has been terrific.
+- [23:34.480] Your mayor has been terrific.
+- [23:36.260] But look at the results that you've got.
+- [23:38.270] Look at the results. And everybody should do it.
+- [23:44.340] You know, if I was Chicago, Pritzker, you know, guy's a --
+- [23:46.950] he's a failed governor. All he has to do is say,
+- [23:50.160] President, we're having a problem in Chicago,
+- [23:53.650] could you come in and fix it?
+- [23:54.860] We'd have it fixed in two months.
+- [23:57.650] It would be good -- it would be good in two months,
+- [24:00.420] it would be great in four months.
+- [24:02.090] You'd have almost no crime.
+- [24:03.910] But he can't do it and it just keeps going the same way.
+- [24:08.000] So that's the reason I'm here, to tell you
+- [24:10.860] how well you've done, how well we've done.
+- [24:14.030] I mean, I just came in and people greeted me, sir,
+- [24:16.900] thank you very much for what you've done.
+- [24:20.000] I said, oh, where are you from? Memphis. What did I do?
+- [24:23.120] You stopped crime.
+- [24:24.740] And your sheriffs are so thankful.
+- [24:27.340] And -- oh, you haven't seen it yet.
+- [24:29.550] You know, we've just been here a short while.
+- [24:31.100] In another two or three months,
+- [24:32.660] you're going to have, like, no crime.
+- [24:35.290] And, you know, we take these criminals --
+- [24:40.270] -- is that our handsome senator down there, Bill?
+- [24:42.950] Is that our handsome senator, Bill?
+- [24:45.690] You got both of them now, but you're going to have
+- [24:47.460] a new governor here soon, I guess, huh?
+- [24:49.320] Going to have a very new governor.
+- [24:51.730] Would you two stand up, as senators, please stand up.
+- [24:54.990] Two of the greatest people.
+- [25:00.330] Two of the greatest people. They never let me down.
+- [25:05.950] You know? Some let me down. They never let me down.
+- [25:09.140] Thank you. Last September,
+- [25:11.110] my administration launched the initiative
+- [25:14.500] modeled on DC Safe Task Force in our nation's capital,
+- [25:18.610] one of the most amazing things. I mean, I hate to say it.
+- [25:21.900] Now I can say it, but our nation's capital
+- [25:24.070] was one of the most dangerous places on earth.
+- [25:27.820] People were being killed that go in from Iowa;
+- [25:30.700] they go from Indiana to see the Washington Monument,
+- [25:34.080] and their parents would get a phone call,
+- [25:35.610] they'd been killed. And it was happening a lot.
+- [25:38.360] It was really bad. And like this -- actually,
+- [25:42.530] yours was at a level higher, to be honest with you.
+- [25:44.800] It was really bad, but it was happening a lot.
+- [25:47.510] And now you walk down Washington, it's like --
+- [25:50.340] Everybody that sees me in Washington --
+- [25:52.210] we've been doing that another couple of months longer.
+- [25:54.780] Everybody sees me in Washington,
+- [25:56.450] they say, thank you, sir, thank you.
+- [25:59.660] And I immediately know what.
+- [26:00.930] You know, they could thank me for a lot of things.
+- [26:02.990] I said, are they thanking me for the economy?
+- [26:05.560] I know immediately.
+- [26:07.480] We have people working in the White House,
+- [26:09.130] young women, they walk --
+- [26:11.430] I would say normally, beautiful, young women.
+- [26:13.610] Ever since I got elected, I don't like to say that.
+- [26:16.370] Because usually when you say a beautiful woman,
+- [26:18.830] isn't she beautiful,
+- [26:20.050] that's the end of your political career.
+- [26:21.930] So I never say that.
+- [26:23.390] But young women coming up to me
+- [26:25.300] and they're saying, sir, thank you so much.
+- [26:28.440] I know immediately what they're talking about.
+- [26:30.960] I say, how big a difference is it?
+- [26:32.640] They say, we walk to work.
+- [26:35.340] We were afraid to walk into an Uber.
+- [26:37.530] We were afraid to walk into a car.
+- [26:39.820] The car would be -- it didn't matter.
+- [26:41.810] The car was being robbed when we were in the car.
+- [26:45.000] And it was much more than being robbed.
+- [26:46.520] Being robbed was the least of it.
+- [26:48.790] And we took out over 3,000 people.
+- [26:53.350] And, you know, there's an expression
+- [26:55.480] that 90 percent of the crime
+- [26:58.400] is caused by two percent of the population.
+- [27:01.750] And when you hear that,
+- [27:02.980] you realize why we can do such a good job.
+- [27:05.560] We moved 3,000 people out, permanently out of --
+- [27:09.020] these were career criminals.
+- [27:10.660] Many of them came in through the Biden open border disaster.
+- [27:16.100] They came in. They weren't there,
+- [27:18.210] they came in, they said, we want to live in Washington,
+- [27:21.080] where they'll take good care of us,
+- [27:22.430] give us plenty of welfare. And we got them all out.
+- [27:26.310] We moved them back to their countries.
+- [27:28.390] Sometimes we put them in prison because they were so dangerous.
+- [27:31.900] We had one -- one person,
+- [27:33.250] killed four people in a short period of time.
+- [27:36.500] Many of the people, 11,888, 50 percent
+- [27:40.950] of them in our country, they came from jails.
+- [27:44.310] Other countries opened their jails
+- [27:46.430] and let them into our country
+- [27:47.810] because Biden and his great border czar,
+- [27:51.270] the border czar who never once went to the border,
+- [27:53.600] never once called Border Patrol, but his great border --
+- [27:58.920] perhaps you've heard of her, Kamala.
+- [28:00.760] Has anyone heard of Kamala? She was a border czar.
+- [28:04.210] That was like having nothing as a border czar.
+- [28:07.150] And they poured into our country,
+- [28:08.550] and they made our country very, very unsafe.
+- [28:11.460] And the job that ICE and Border Patrol have done,
+- [28:15.090] they don't get the appreciation they deserve.
+- [28:17.580] They are great American patriots.
+- [28:19.530] They're incredible people.
+- [28:26.700] So we brought together 22 federal agencies, state
+- [28:29.830] and local police,
+- [28:31.080] and 1,500 members of the incredible National Guard
+- [28:36.310] to smash the grip of the violent criminals
+- [28:38.720] on this iconic American city. The city is incredible.
+- [28:42.980] People love it so much, but they're so --
+- [28:45.580] they're just fed up. They can't -- they can't stay.
+- [28:48.140] And now they're staying.
+- [28:49.350] I had somebody backstage say, sir,
+- [28:50.830] I was ready to leave and now we're staying.
+- [28:53.620] I said, don't worry, it's going to get much better.
+- [28:55.270] It just takes a little more time.
+- [28:57.500] Like our DC efforts, the Memphis Task Force
+- [29:00.430] has been led by our director of US Marshal Services,
+- [29:04.480] Gady Serralta, who is incredible.
+- [29:06.260] Where's Gady? Gady, you are unbelievable
+- [29:09.540] and I want to thank you for the work.
+- [29:11.600] He did a job in Washington. So when I heard Memphis, I said,
+- [29:15.210] I want the same guy that did Washington, because that went --
+- [29:18.910] you're going to tell us when you get up,
+- [29:20.470] which was more difficult, all right?
+- [29:22.580] But Memphis, known all over the world
+- [29:25.180] as the home of Graceland.
+- [29:26.910] You know, I'm going to see Graceland after this,
+- [29:29.620] I think, is that right? I love Elvis. I never met Elvis.
+- [29:34.420] Everyone said, did you -- I met them all. I met Sinatra.
+- [29:37.300] I knew all of them. I never met Elvis.
+- [29:39.900] Sometimes I feel I should tell the little fib,
+- [29:41.940] said, I knew him well.
+- [29:44.020] I love Elvis, but I never met him.
+- [29:46.170] But I'm going to go see Graceland after this, I think.
+- [29:49.230] I'm sure it's not going to be a very long stay,
+- [29:51.530] but I want to see that.
+- [29:53.730] But for years prior to our involvement,
+- [29:55.840] Memphis had become known for something else,
+- [29:58.420] being the murder capital of the USA, not a good title.
+- [30:02.250] It was averaging far more than one murder per day,
+- [30:06.140] with a crime rate higher
+- [30:07.400] than Columbia, Mexico City or Baghdad.
+- [30:10.100] In the year --
+- [30:11.390] I shouldn't be saying this -- because --
+- [30:13.830] but here's the good news, it's been fixed. All right?
+- [30:16.720] I hate to say this because it's so negative.
+- [30:19.690] It's so negative.
+- [30:21.760] In the year before I took office,
+- [30:23.430] Memphis saw more than 12,500 violent assaults,
+- [30:27.790] 429 rapes and 7,600 burglaries and armed robberies.
+- [30:33.630] And I mean, it was -- and getting worse.
+- [30:36.950] This catastrophe was a result of years of local politicians,
+- [30:41.730] judges and prosecutors who sided with violent criminals
+- [30:45.480] over law-abiding citizens, basically, liberals,
+- [30:49.240] or now they like to go with the word progressives.
+- [30:52.080] You don't hear liberal. They're liberal.
+- [30:54.030] I don't like progressive because it's a beautiful word.
+- [30:56.230] You know, they use progressive because that's the only thing
+- [30:58.730] they're good at, politics, I guess.
+- [31:01.200] You know, they're bad at policy,
+- [31:04.150] because all these policies are bad,
+- [31:06.200] but the greater politics and they do stick together.
+- [31:09.210] They stick together, they're good at politics,
+- [31:12.280] but they're bad at policy
+- [31:14.220] because they can't sell open borders.
+- [31:16.860] They can't sell transgender for everyone.
+- [31:19.980] They can't sell men and women's sport.
+- [31:22.870] So they can be the greatest politicians in the world
+- [31:25.520] and that's why I'm here instead of them, I guess.
+- [31:29.070] But just as we have in DC, here in Memphis,
+- [31:31.900] we've achieved one of the largest,
+- [31:33.670] fastest declines in violent crime ever recorded.
+- [31:38.860] So that's something, right? Ever recorded.
+- [31:44.640] In fact, you're half a percentage point
+- [31:46.310] away from the record,
+- [31:47.540] so we'll catch them in the next month or two.
+- [31:49.430] All right? I think that's going to happen.
+- [31:51.380] But that includes a 60 percent drop in robberies,
+- [31:54.440] a 74 percent drop in carjacking and motor vehicle thefts.
+- [31:58.600] We have always achieved numbers that are good.
+- [32:02.510] These numbers are right in line
+- [32:04.010] to be among the best that we've done.
+- [32:05.800] And wherever we do this, we have very similar results.
+- [32:10.750] We were in New Orleans,
+- [32:12.490] where the governor called us, as you know.
+- [32:14.170] And we went to New Orleans. They just had Mardi Gras.
+- [32:16.940] They said, it's the first -- it sounds terrible,
+- [32:19.350] but it's the first Mardi Gras we've ever had
+- [32:22.850] where there was no murder.
+- [32:24.460] Can you imagine? Doesn't sound too good,
+- [32:26.760] but, you know, we're talking about the facts.
+- [32:29.700] And they said, we had the lowest crime
+- [32:31.920] that we've ever had on Mardi Gras,
+- [32:33.560] which is almost -- almost nothing.
+- [32:36.230] We went there about four months ago. We did a great job.
+- [32:39.210] So we've achieved a 70 percent reduction
+- [32:42.030] in murders from the peak in this place.
+- [32:45.810] In total, we've arrested 7,000 criminals,
+- [32:48.990] seized more than 1,100 illegal guns,
+- [32:52.530] taken more than 1,000 pounds of illicit narcotics
+- [32:56.740] and rescued more than 150 missing children,
+- [33:01.760] making their parents beyond happy.
+- [33:09.830] So I'd like you to please join me in thanking,
+- [33:14.650] I tell you, every single law enforcement hero here today.
+- [33:18.180] We have a number of them,
+- [33:20.580] a small number compared to what's doing the job,
+- [33:23.420] who helped make Memphis safe again.
+- [33:25.380] Memphis, just so you know, with all of the things we said,
+- [33:29.170] you have now developed a reputation
+- [33:31.290] as a city that's coming back stronger
+- [33:34.100] than any city in the country
+- [33:36.030] because of what's happened with crime
+- [33:38.110] and because your political leaders
+- [33:39.730] had the courage to do what they did.
+- [33:45.670] So I'd like you to also say a special welcome
+- [33:50.730] and hello to the Tennessee National Guard,
+- [33:53.800] the Memphis Police Department, ICE, CBP,
+- [33:58.180] the ATF, DEA, Homeland Security Investigations,
+- [34:02.870] the US Marshals, the Tennessee Highway Patrol,
+- [34:06.950] and all of law enforcement.
+- [34:08.660] Everybody got together and they said,
+- [34:10.950] we're going to make Memphis great again,
+- [34:13.450] and they really did. It's so good.
+- [34:15.160] But, you know, I talk about how good it is.
+- [34:18.470] We're at 75 percent. Some people say 80, 81 percent.
+- [34:22.690] That still leaves 20 percent. You're going to be down --
+- [34:25.470] in another two months, three months,
+- [34:26.900] I think, Gady, we're going to be down --
+- [34:29.120] we're going to be down to almost no --
+- [34:31.160] you're going to be an almost crime-free city.
+- [34:33.040] You're going to be so proud of it.
+- [34:34.840] People are going to stay.
+- [34:36.080] They're going to actually come back,
+- [34:37.290] because you have everything going.
+- [34:39.010] But you had that one horrible cloud over your head
+- [34:42.680] and you essentially, people know what's happening,
+- [34:46.680] but essentially in another two months,
+- [34:48.150] you're not going to have anything --
+- [34:49.350] you're going to have a crime-free --
+- [34:51.150] a virtually crime free city.
+- [34:53.370] So today, I'm pleased to announce
+- [34:55.570] that the secretary of war --
+- [34:57.720] used to be the secretary of defense.
+- [34:59.410] We made a minor change. We like the sound of it better.
+- [35:03.030] That the secretary of war just signed a directive
+- [35:05.580] to ensure that all National Guard members
+- [35:08.290] serving on this task force, as well as in DC, New Orleans,
+- [35:12.570] and our border security missions,
+- [35:14.680] will receive the same benefits as active duty troops
+- [35:19.070] because you deserve it. That's not bad.
+- [35:23.110] That's not bad.
+- [35:42.880] So before we leave, I want to thank Attorney
+- [35:45.660] General Pam Bondi, Secretary of War Pete Hegseth.
+- [35:48.850] These are great people.
+- [35:50.140] Chief of the National Guard Bureau,
+- [35:52.390] General Steven Nordhaus; FBI director, Kash
+- [35:56.690] Patel, wonderful guy, actually. You got to get to know him.
+- [36:00.940] Once you get to know him, he's a wonderful guy.
+- [36:03.380] I've known him -- I've known him too long, right?
+- [36:05.940] He's a good guy.
+- [36:07.370] DEA Administrator Terry Cole, what a job he's done.
+- [36:10.400] Acting director of ICE -- where is Terry?
+- [36:13.530] Good job, Terry. What a job, in Washington, too.
+- [36:17.140] Acting director of ICE, Todd Lyons.
+- [36:19.490] Todd, great. Thank you, Todd, good job.
+- [36:22.640] Head of the ATF, Rob Cekada.
+- [36:26.710] Rob? Thank you, Rob.
+- [36:29.630] Head of the Tennessee Highway Patrol, Colonel Matt
+- [36:32.680] Perry. Thanks, Matt.
+- [36:35.110] And head of the Tennessee National Guard,
+- [36:36.980] Major General Warner Ross. How are you?
+- [36:41.400] You look -- you guys look central casting.
+- [36:43.450] These are central casting people.
+- [36:45.430] What did you need us for? You didn't need us.
+- [36:48.010] Anyway, they had to let you do your job, right?
+- [36:50.330] They're letting you do your job now.
+- [36:52.570] Thanks as well to Tennessee Governor Bill Lee
+- [36:55.090] for the outstanding job. Thank you very much, Bill.
+- [36:58.200] We appreciated your call. Bill called me up.
+- [37:05.990] He said, we need a little help in Memphis, sir.
+- [37:08.380] Would you get over here please? He said, I have no pride,
+- [37:11.460] we just want this thing straightened out.
+- [37:13.150] Right? So thank you very much. I'm glad it worked out.
+- [37:15.660] Oh, you haven't seen -- wait till you see.
+- [37:17.520] In 90 days from now,
+- [37:19.840] you're going to see numbers that blow these off.
+- [37:21.970] You're down 70, 75 percent. You're going to see numbers
+- [37:25.390] that are you're going to be very proud of.
+- [37:28.900] Senators Bill Hagerty and Marsha Blackburn, great people.
+- [37:37.940] Great people. You have some real warriors, too,
+- [37:42.690] as your Congressmen and women, David Kustoff,
+- [37:47.220] Andy Ogles, Diana Harshbarger,
+- [37:51.640] John Rose, Matt Van Epps, and Chuck Fleischmann.
+- [37:57.620] Would you all stand up? Warriors, all, every one.
+- [38:03.920] Great -- great people. You don't get better.
+- [38:08.800] And they -- it's not the easiest --
+- [38:10.890] not the easiest job, is it? Huh?
+- [38:13.650] Speaker of the House -- you know what I like about them?
+- [38:15.580] They're not 3:00 in the morning, sir --
+- [38:17.620] I get a call from Mike Johnson,
+- [38:19.460] Speaker of the House, sir, we have a problem.
+- [38:22.530] What time is it, Mike? 3:00, sir, morning.
+- [38:25.690] We vote at 9:00. We need --
+- [38:28.180] always the same, you know, it's like eight or nine.
+- [38:30.960] Sir, could you call them for us
+- [38:32.620] and see if you can get their vote?
+- [38:34.700] Oh, 3:00. Call them up. Hey, Jim, how you doing?
+- [38:39.950] Hello, sir, I'm not there, I'm not there.
+- [38:43.900] Well, you got to get there. At 9:00, you got to vote.
+- [38:46.270] Sir, could I have a little breakfast
+- [38:48.720] so we could discuss this bill? You know, like a perfect bill,
+- [38:51.530] like, you know, voter ID or something.
+- [38:54.470] The bill -- didn't have to be too great to do it.
+- [38:57.690] He said, could we have maybe a little breakfast
+- [38:59.980] at the White House, sir?
+- [39:01.650] So -- because I could get there, but I'm just not there.
+- [39:04.970] Come on over for breakfast, Bill.
+- [39:07.770] You know, I got a lot of them, too.
+- [39:09.860] I have about nine of them.
+- [39:11.410] But these are the people we love.
+- [39:13.160] These are the people we love. So I want to thank you all.
+- [39:16.090] Speaker of the Tennessee House of Representatives --
+- [39:19.360] and I hear this guy -- I hear he's fantastic.
+- [39:21.270] Cameron Sexton. Where is he?
+- [39:23.470] I have heard such good things about you
+- [39:26.500] and you're working on a very specific bill right now.
+- [39:29.120] I know all about you. That's great.
+- [39:32.190] Let me know when it's finished.
+- [39:33.400] You know, you got to send me a copy, OK? That's great.
+- [39:36.780] Thank you, Cameron, you're doing a great job.
+- [39:39.380] Shelby County Sheriff, Floyd Bonner.
+- [39:43.630] Thank you, Floyd.
+- [39:46.200] National president of the Fraternal Order of Police --
+- [39:50.110] oh, that's a big one. He gave me his endorsement.
+- [39:53.150] Patrick Yoes. Where is Patrick? He gave me his endorsement.
+- [39:59.890] I said, well, what's your endorsement worth?
+- [40:01.820] How many members?
+- [40:03.180] He said, sir, we have 490,000 members.
+- [40:05.800] I said, that's a good endorsement.
+- [40:08.420] Patrick, do you think anybody outside of --
+- [40:11.540] within law enforcement, did anybody vote for Kamala,
+- [40:14.500] that you know of? Don't -- don't say it.
+- [40:19.490] You're going to get yourself in trouble.
+- [40:21.160] Don't say. But thank you, Pat. That's great.
+- [40:24.820] We had a -- we had an unbelievable --
+- [40:27.610] I do believe we got 98, 99 percent with law enforcement.
+- [40:31.420] And why not?
+- [40:33.130] President of the National Sheriffs Association,
+- [40:35.870] Chris West. Chris, thank you very much.
+- [40:38.910] Thank you, Chris. Stand up, Chris. Thank you.
+- [40:43.870] Why are you so far back there, Chris?
+- [40:46.930] You deserve to be in the front row.
+- [40:49.400] National president of the Federal Law Enforcement
+- [40:52.010] Officers Association, Mat Silverman, great guy too.
+- [40:56.720] All great guys, all guys we know.
+- [40:58.910] All guys -- thank you, Mat.
+- [41:01.200] They're all guys that supported me, Pam,
+- [41:03.090] every one of them.
+- [41:04.500] For years, our leaders allowed entire cities in America
+- [41:08.150] to be destroyed by crime, drugs and gang violence.
+- [41:12.350] Tolerating this violence was always a choice.
+- [41:15.010] 19 of the 20 most dangerous cities in America
+- [41:18.580] are run by Democrats.
+- [41:19.810] I'm surprised. I thought it was 20 of 20.
+- [41:22.280] I don't know why it's 19 -- I don't believe it.
+- [41:24.930] It's like -- I heard it was 25 out of 25.
+- [41:28.280] Well, I'll find out about it
+- [41:30.040] because I don't believe it's right.
+- [41:31.920] Whoever wrote that statistic is wrong.
+- [41:34.920] But under the Trump administration,
+- [41:36.610] we believe that no city or neighborhood
+- [41:38.540] should be left behind.
+- [41:40.760] In Memphis, the crime became so horrible
+- [41:43.220] that residents were made prisoners of violence
+- [41:46.260] in their own community, in their own home.
+- [41:48.750] But with the help of the great people right here at this table
+- [41:51.440] and right here, it's a whole different story right now.
+- [41:54.990] It's changing fast, and it'll be record-setting
+- [41:58.540] in a very short period of time.
+- [42:00.190] And I'll be here to celebrate it with you.
+- [42:02.830] You know, it's a very special state to me.
+- [42:04.510] I won this state, Bill,
+- [42:06.050] by numbers that nobody's ever won it before.
+- [42:08.420] We have the all-time record for votes,
+- [42:11.440] so I happen to like the state. I love Tennessee.
+- [42:14.740] Maybe someday I'll move to Tennessee.
+- [42:18.460] I might have to move here.
+- [42:20.430] No, I love it. You never know what that is.
+- [42:23.250] You know, you just have a relationship with the state.
+- [42:27.290] It's a lot safer than relationships with other things,
+- [42:30.070] I can tell you as a politician.
+- [42:32.540] But I especially want to thank Speaker Sexton,
+- [42:35.270] who's working with the task force,
+- [42:36.850] to pass model bills that will be tough on crime,
+- [42:40.850] to deliver permanent safety to the people of Memphis.
+- [42:43.560] And really, I don't know if you know,
+- [42:45.000] but they're looking at this all over the country,
+- [42:46.560] what you're doing.
+- [42:47.770] They're studying it, that's why I know your name so well.
+- [42:50.320] And all over the country, they're studying it.
+- [42:53.230] And so I hope you do a great job,
+- [42:54.790] as simple as you can
+- [42:56.000] and as complex in the sense of we want to be tough.
+- [42:59.530] We want to be strong on crime, because that's the thing.
+- [43:02.670] We want to have heart, we want to have fairness
+- [43:04.760] but we have to be tough,
+- [43:06.210] because some of these people are bad people
+- [43:08.210] that should have never been allowed to be here.
+- [43:10.950] Since I took office, we have successfully arrested
+- [43:13.650] or removed from the country over 500,000 hardline criminals.
+- [43:19.760] And under our leadership last year,
+- [43:21.370] the murder rate nationwide saw the single largest decline
+- [43:25.880] ever recorded to the lowest level in 125 years.
+- [43:30.630] That's something. That's something.
+- [43:32.910] And this is despite the fact
+- [43:34.900] that they allowed 25 million people into our country.
+- [43:39.510] Many of those people should never have been
+- [43:41.440] allowed into our country.
+- [43:43.250] So now I'd like to ask Director Gady Serralta to --
+- [43:47.640] who's really a special guy.
+- [43:49.900] And I've lived with him because of Washington, DC.
+- [43:52.410] I saw what he did. But to say a few words.
+- [43:55.070] And congratulations for what you've done
+- [43:56.750] everywhere but today,
+- [43:57.950] we're only interested in one place, Memphis, Tennessee.
+- [44:01.550] Thank you very much. Gady? Thank you.
+- [44:03.300] Gady Serralta: Thank you, Mr. President. Thank you very much.
+- [44:09.480] So good morning to you and thank you, Mr. President.
+- [44:11.900] Today we celebrate the successes of this incredible mission
+- [44:16.650] and all our federal, state,
+- [44:19.110] local and National Guard teammates who have contributed
+- [44:24.640] mightily to the Memphis Safe Task Force.
+- [44:28.700] Mr. President, it is an honor to be entrusted by you
+- [44:31.830] to lead this amazing task force
+- [44:33.600] as director of the United States Marshal Service.
+- [44:36.990] Your decisiveness in responding to state
+- [44:40.290] and local leaders' requests for federal assistance is inspiring.
+- [44:46.290] It was just over six months ago
+- [44:49.170] when you signed the Executive Order Restoring
+- [44:52.570] law and order in Memphis.
+- [44:54.820] At that point, the city of Memphis was overwhelmed
+- [44:57.430] with unprecedented levels of violent crime,
+- [45:01.040] to include some of the nation's highest per capita rates
+- [45:05.120] of murder, robbery and aggravated assaults.
+- [45:08.190] Memphis residents could not safely enjoy a walk downtown.
+- [45:14.290] Parents were fearful of their children playing outside,
+- [45:19.860] and local businesses struggled to prosper.
+- [45:25.040] The mission you gave us was clear and concise,
+- [45:28.970] crime will not prevail in Memphis, period.
+- [45:34.340] The city will not be surrendered to lawlessness.
+- [45:37.920] President Trump, thank you for your leadership.
+- [45:40.610] We had a blueprint, quickly restoring order
+- [45:42.750] and reducing violent crime, given our success with Operation
+- [45:47.550] Make DC safe and beautiful, as you mentioned.
+- [45:50.640] We began our deployment to Memphis
+- [45:52.730] and commenced operations on September 29th, 2025,
+- [45:57.060] with 20 partner agencies and 200 task force members.
+- [46:02.270] Now we partner with 33 multi-agency teams
+- [46:06.130] throughout the Memphis area.
+- [46:12.550] We have the support of over 2,700 officers
+- [46:16.480] and National Guard members
+- [46:18.480] who comprise the Memphis Safe Task Force,
+- [46:20.960] most of which are out here in the audience.
+- [46:24.750] In just over six months,
+- [46:26.290] the Memphis Safe Task Force has made over 7,342 arrests,
+- [46:31.660] this is last week's numbers,
+- [46:33.900] with charges ranging from homicide --
+- [46:37.120] there was 44 of those.
+- [46:41.000] 94 drug offenses --
+- [46:43.140] I'm sorry, 812 drug offenses and 757 gang-related offenses.
+- [46:49.620] We have seized over 1,200 illegal firearms
+- [46:53.350] and located and returned 150 missing children.
+- [46:58.640] Each of these arrests and seizures of illegal contraband
+- [47:02.660] have a ripple effect, bringing justice to victims,
+- [47:06.850] relief to communities,
+- [47:08.600] and the prevention of future offenses or deadly accidents.
+- [47:13.110] Our work, however, has not just been about arrests
+- [47:17.270] and the seizure of illegal firearms and narcotics.
+- [47:20.310] Our Tennessee National Guard partners
+- [47:22.520] have made a significant impact while serving on the task force
+- [47:26.340] by administering several life-saving doses of Narcan
+- [47:30.620] to overdose victims, chasing down
+- [47:34.010] and detaining a fleeing murder suspect on Christmas Day
+- [47:39.040] and providing immediate, life-saving medical aid
+- [47:41.200] to the occupants of a vehicle collision on I-40.
+- [47:44.350] That's just a few of the things they've done.
+- [47:47.010] Similarly, our Health and Human Services tactical med,
+- [47:51.370] we call them tac med, they're our doctors,
+- [47:55.080] their team has treated almost 500 task force officers
+- [47:59.370] and related injuries during our operations.
+- [48:04.170] The fraud cell -- the Memphis Safety Task Force fraud cell
+- [48:07.980] has been a key contributor
+- [48:09.220] in targeting federal benefits fraud,
+- [48:11.720] organized crime, and other complex fraud matters.
+- [48:14.630] The fraud cell has more than 80 open investigations,
+- [48:18.750] 33 cases active with the United States Attorney's Office.
+- [48:23.650] Their recent efforts have resulted in two indictments
+- [48:27.480] of convicted sex offenders living in housing paid
+- [48:31.170] for by Housing and Urban Development,
+- [48:34.160] and one indictment for stealing benefits
+- [48:36.590] from a Social Security beneficiary.
+- [48:39.730] I would also like to recognize the work
+- [48:42.100] of Attorney General Bondi's incredible staff
+- [48:45.620] at the Western District of Tennessee.
+- [48:49.980] Their stats tell a remarkable story as well.
+- [48:54.390] They have increased the number of defendants
+- [48:56.270] charged by 221 percent
+- [49:00.430] and the number of cases indicted by 204 percent
+- [49:04.490] when compared to the same period last year.
+- [49:08.090] I see you smiling, Mike.
+- [49:10.250] Congratulations. Without question --
+- [49:18.940] Without question, the public safety outlook in Memphis
+- [49:22.040] has improved dramatically.
+- [49:24.210] In the past six months collectively,
+- [49:25.920] our efforts have resulted in a 43 percent reduction
+- [49:29.430] in total serious crimes, 37 percent reduction in murder,
+- [49:33.400] 40 percent reduction in sexual assault,
+- [49:36.120] 56 percent reduction in robbery,
+- [49:40.270] 68 percent reduction in motor vehicle thefts,
+- [49:45.750] and the most impressive of all is a 65 percent increase
+- [49:49.400] in the solvability of the crimes that have been committed.
+- [49:53.850] These numbers are so impressive
+- [49:55.470] that it's often easy to just recite them
+- [49:59.140] without reflecting on significant positive impact
+- [50:01.840] that we have had on lives of Memphis residents.
+- [50:05.520] The city's residents and visitors
+- [50:07.350] are now more likely to venture downtown
+- [50:10.910] and our local businesses are rallying back.
+- [50:15.310] Largescale public events have shown improved safety outcomes,
+- [50:19.770] as demonstrated during the December 6th,
+- [50:21.900] 2025 Saint Jude Marathon, where 22,000 runners gathered
+- [50:29.440] without a single reported downtown burglary,
+- [50:32.480] compared to multiple incidents in the prior year.
+- [50:36.630] Perhaps the most telling of all is one of our special assistant
+- [50:40.590] United States attorneys recently reported
+- [50:42.900] that a traveling emergency doctor --
+- [50:46.690] emergency room doctor expressed his appreciation
+- [50:49.360] for all that the task force had done.
+- [50:51.990] You see, he said that in years past
+- [50:55.010] he would see three to five gunshot victims per shift,
+- [50:59.440] and now he sees an average of one gunshot victim
+- [51:03.570] every three or four shifts.
+- [51:06.230] Mr. President, the Memphis Safe Task Force
+- [51:08.550] underscores one simple truth, when federal, state
+- [51:13.010] and local agencies work together as genuine partners,
+- [51:18.950] we can reclaim even the most troubled cities.
+- [51:24.360] I am extremely grateful to you for the opportunity.
+- [51:28.260] To all our partner agencies,
+- [51:29.790] it has been an honor to work alongside you,
+- [51:33.300] and I look forward to sustaining
+- [51:34.860] and building on these partnerships
+- [51:37.510] as we continue to make Memphis safe again.
+- [51:42.390] Thank you.
+- [51:43.650] The President: Thank you, Gady, very much.
+- [51:49.530] And, Pam, I think -- thank you. What a great job.
+- [51:52.570] And I think -- you know, I see them sitting out there,
+- [51:55.130] your US attorney and your assistant US attorney.
+- [51:58.270] You do a great job. Would you please stand up?
+- [52:00.240] AG Bondi: Michael Dunavant.
+- [52:01.820] Donald Trump : Michael Dunavant. You know.
+- [52:03.890] Thank you, Michael. Thank you both.
+- [52:07.100] Great job. Thank you. Pam Bondi, please.
+- [52:10.640] AG Bondi: Thank you, President Trump.
+- [52:11.950] You know, some people choose to tolerate crime,
+- [52:15.780] but you chose law and order
+- [52:17.930] and that's why this task force worked.
+- [52:20.100] It was all of us, as Gady said, working hand-in-hand,
+- [52:23.520] with my FBI, DEA, US Marshals,
+- [52:26.330] ATF, with Kash, with Terry, with Rob, with Gady,
+- [52:32.240] not only that, with Pete, with Department of War,
+- [52:34.830] with Homeland Security, with all of my agencies
+- [52:38.280] working hand-in-hand with the National Guard.
+- [52:41.230] When you went out there, when we came to Memphis,
+- [52:43.350] you could not tell who was with what agency
+- [52:46.150] because everyone was working so well together.
+- [52:48.980] Our US attorney, Mike Dunavant, was out there.
+- [52:52.190] And not only this, everyone needs to know,
+- [52:54.630] we met with this president multiple times
+- [52:57.540] about this endeavor.
+- [52:58.870] The president knew what was going on here.
+- [53:01.070] The president cared.
+- [53:02.340] People like Alice Johnson sitting in the front row,
+- [53:04.900] who is a Memphis resident,
+- [53:06.840] she told us what a horrible crime problem there was.
+- [53:10.460] And I think the unsung hero in all of this is Stephen Miller.
+- [53:13.650] Stephen is the architect of making all of these plans work.
+- [53:18.490] Stephen, thank you. Thank you.
+- [53:23.010] And just two very brief examples.
+- [53:25.810] There was a horrible murderer, Arsenio Davis,
+- [53:28.370] who last October committed a gruesome double homicide.
+- [53:31.670] He killed his mother and dismembered another person.
+- [53:35.420] And based on this task force working hand-in-hand,
+- [53:38.560] he's off the street.
+- [53:39.920] Another example, a horrible monster
+- [53:42.310] who's charged with raping a small child.
+- [53:44.580] This task force, all of these members
+- [53:46.720] working together arrested him.
+- [53:48.830] We can give you countless examples of that.
+- [53:51.180] 770 -- over 770 gang members off the streets.
+- [53:56.290] And we know there's no normal day
+- [53:57.860] for a law enforcement officer.
+- [53:59.530] We know it's so dangerous what our law enforcement officers do.
+- [54:03.490] But know this, Donald Trump and this administration,
+- [54:06.400] we have your backs.
+- [54:08.350] Thank you all and thank you, President Trump. Thank you.
+- [54:12.710] The President: Thank you. Thank you, Pam.
+- [54:15.670] And Pete Hegseth, who has been unbelievable at what he's doing.
+- [54:19.180] There's nobody better. That was a wise choice.
+- [54:22.510] Pete, go ahead.
+- [54:23.920] Secretary Hegseth: Well, thank you, Mr. President.
+- [54:25.570] Thank you for your historic leadership
+- [54:27.920] on Operation Epic Fury.
+- [54:29.520] The success you've laid out was only possible
+- [54:31.440] because of the military you rebuilt,
+- [54:34.010] as well as the historic success here in Memphis.
+- [54:36.770] And I want to thank by --
+- [54:38.110] start by thanking every patriot in this room in law enforcement
+- [54:42.770] and the nearly 1,500 National Guard members
+- [54:45.920] for your heroic efforts in this operation.
+- [54:56.610] You are -- this is more than a task force,
+- [54:59.550] this is a statement, a statement,
+- [55:01.630] not just in this city but across the nation.
+- [55:04.780] And when I look around this table,
+- [55:06.080] I'm looking at people that we work with every day,
+- [55:08.070] governor, Kash, this team, the National Guard,
+- [55:10.610] Pam, Stephen, as was mentioned,
+- [55:12.480] Gady, the speaker, at the federal level
+- [55:15.630] and the state level, working hand-in-glove.
+- [55:18.280] It doesn't happen any other way. You see, before President Trump,
+- [55:21.650] our nation was set on a perpetual course of decline.
+- [55:25.680] Our defense industrial base had been hollowed out.
+- [55:28.290] Our military had lowered its standard,
+- [55:29.890] prioritizing equity over merit and lethality.
+- [55:34.090] And right here in cities like Memphis,
+- [55:35.790] our people were focused on enduring
+- [55:38.660] just what seemed to be the status quo of rampant,
+- [55:41.100] vicious crime.
+- [55:43.610] Well, they let their cities burn to the ground, literally,
+- [55:46.500] in the name of hallow humanitarianism, weak leaders.
+- [55:50.700] And that's what it is, it's weak leaders,
+- [55:53.020] previously provided sanctuary for hordes of dangerous,
+- [55:55.970] illegal aliens who preyed on our most vulnerable,
+- [55:59.530] soft on crime, defund the police nonsense,
+- [56:03.150] tied the hands of our brave law enforcement heroes
+- [56:06.240] while the bad guys ran wild.
+- [56:09.020] And the most basic tenets of public safety,
+- [56:10.950] the foundations of any civilized society
+- [56:13.780] were labeled as too toxic to implement.
+- [56:17.600] Well, not under President Trump.
+- [56:19.780] Such engineered chaos combined with a wide open border --
+- [56:23.180] by the way, thank you for agreeing to sign
+- [56:25.690] that declaration for the Memphis troops,
+- [56:27.900] the DC troops and the -- the troops on our border.
+- [56:31.230] They'll now be paid and get benefits,
+- [56:33.140] just like folks on active duty.
+- [56:34.510] Thank you for that, Mr. President.
+- [56:35.970] It's an important step of --
+- [56:37.240] of demonstrating how serious this mission
+- [56:39.420] is to the Department of War. It's common sense.
+- [56:42.860] And it was that same common sense
+- [56:44.130] that brought President Trump back to the White House.
+- [56:46.000] People were sick and tired of the never-ending crisis.
+- [56:49.160] And under President Trump, we will not allow depraved,
+- [56:52.700] suicidal ideologies to destroy our great cities.
+- [56:57.460] No longer will we sit idly by while illegal aliens
+- [57:00.860] and savage criminals rape, murder and poison
+- [57:04.160] the good people of this country.
+- [57:07.320] Because every American, without exception,
+- [57:09.680] is entitled to safe, clean and beautiful cities,
+- [57:13.100] cities where you can walk in peace,
+- [57:15.320] cities where law enforcement can do their job.
+- [57:18.550] And to that end, the Department of War
+- [57:20.300] stands shoulder to shoulder with state and federal partners
+- [57:23.960] so that our streets can be defended once again,
+- [57:27.530] kind of like the visual I'm looking at right here.
+- [57:29.860] I see a lot of civilian leaders and police,
+- [57:32.320] law enforcement leaders in the front.
+- [57:34.040] And who's behind you, men and women in camouflage,
+- [57:37.120] having your back every single day,
+- [57:38.720] like we do in this mission.
+- [57:39.940] So thank you for working tirelessly to protect this state
+- [57:43.500] and restore law and order.
+- [57:45.140] And the results, they speak for themselves.
+- [57:47.740] Your presence has led to a massive reduction in crime,
+- [57:50.840] a reduction the good citizens of Memphis deserve.
+- [57:53.750] So thank you, Mr. President,
+- [57:55.630] for your leadership in restoring,
+- [57:58.360] street by street, neighborhood by neighborhood,
+- [58:00.610] you are saving Memphis, Tennessee and the country,
+- [58:03.940] and we are grateful for it. Thank you, Mr. President.
+- [58:05.760] The President: Thank you very much.
+- [58:06.970] Thank you, Pete. Thank you. Mr. Governor, please.
+- [58:13.910] Bill Lee: Yes, sir.
+- [58:15.920] Welcome back to Tennessee, Mr. President,
+- [58:18.450] especially to the iconic,
+- [58:23.980] great American city that is Memphis.
+- [58:28.010] We oftentimes say Nashville's the heart of Tennessee,
+- [58:30.180] but Memphis is the soul, and --
+- [58:39.860] Great businesses here, remarkable people,
+- [58:43.390] a true rich cultural history, but a serious problem.
+- [58:49.490] And I want to tell you, even for me,
+- [58:52.510] today is a very important day, even personally.
+- [58:56.260] I'm a man who has loved this city all of my life.
+- [58:59.420] My grandparents, my -- my mom, born and raised, my family here.
+- [59:04.910] As a young kid, spent time with my cousins
+- [59:09.000] roaming the community, the -- the neighborhoods in this city.
+- [59:14.140] But sadly, for decades,
+- [59:15.510] that was not possible for children to do safely anymore.
+- [59:19.250] And to watch this great city be plagued by crime like it
+- [59:23.790] has for decades was a very tough thing for Tennesseans to do.
+- [59:30.030] But as was said earlier,
+- [59:31.320] what's happened in the last six months
+- [59:32.730] has changed that story entirely.
+- [59:36.020] And because of your leadership, Mr. President,
+- [59:38.480] putting together the Memphis Safe Task Force,
+- [59:41.260] putting these people, this leadership team in place,
+- [59:46.640] funding and making possible resources
+- [59:49.610] that have never before been made available to a city
+- [59:54.420] like has been made for Memphis.
+- [59:56.900] Because of that, because of the leadership here and these --
+- [01:00:00.000] especially these men and women of law enforcement
+- [01:00:02.400] and the National Guard, who have,
+- [01:00:04.260] in fact, gone shoulder to shoulder
+- [01:00:07.120] with not only the multiple agencies involved,
+- [01:00:10.190] but with the people of Memphis.
+- [01:00:14.260] What has happened here has created generational change
+- [01:00:17.990] and will create generational change
+- [01:00:20.200] and it could not have happened except for what's happening
+- [01:00:22.950] and what we're celebrating here today.
+- [01:00:24.890] So the people of Memphis are grateful.
+- [01:00:27.540] This governor is grateful.
+- [01:00:28.890] I thank you for the work that's happened.
+- [01:00:30.550] And we are looking to the future.
+- [01:00:33.150] We believe that great things lie ahead for this city.
+- [01:00:37.370] There's a lot of work yet to be done.
+- [01:00:39.260] The General Assembly,
+- [01:00:40.480] and we are working together with the General Assembly
+- [01:00:42.490] to create legislation that will make certain
+- [01:00:46.700] that this is a lasting effect for our city.
+- [01:00:52.130] I'm very hopeful for the -- for the men and women of Memphis
+- [01:00:55.590] that have prayed for a long time that the violence would stop,
+- [01:00:59.480] for the businesses that have held strong
+- [01:01:03.430] to create jobs and opportunity for Tennesseans.
+- [01:01:06.370] I have a lot of hope for the future.
+- [01:01:07.710] I do believe and have believed all my life
+- [01:01:09.970] that this is a great city,
+- [01:01:11.400] and now, it has it is on a trajectory of greatness
+- [01:01:16.490] beyond where it's been in the past.
+- [01:01:18.670] Thank you for that.
+- [01:01:20.060] And I will say I want to introduce Stephen Miller
+- [01:01:25.110] to speak next.
+- [01:01:27.080] There is one person who showed up here early.
+- [01:01:30.690] Actually, multiple people at this table,
+- [01:01:32.510] but he said his commitment to whatever we needed for this city
+- [01:01:39.810] and for this task force
+- [01:01:42.050] to be successful he committed that when this --
+- [01:01:45.450] when this began and it has happened.
+- [01:01:47.530] And we're not done, but the statistics speak for themselves.
+- [01:01:53.360] What Gady just read out a while ago is hard to imagine,
+- [01:01:57.600] when we first started this just six months ago,
+- [01:02:00.250] that these were going to be the results.
+- [01:02:02.660] There's more to go but we're grateful for the work.
+- [01:02:05.060] And Stephen, your -- your commitment to us
+- [01:02:07.120] Tennesseans, truly are grateful for it
+- [01:02:09.620] and your commitment to President Trump's strategy
+- [01:02:12.770] not just to make Memphis safe, not just to make
+- [01:02:15.390] Tennessee safe, but to make all of America safe again.
+- [01:02:18.560] So thank you, sir.
+- [01:02:20.740] The President: Thank you. Thank you, Bill. Stephen.
+- [01:02:25.470] Stephen Miller: Thank you.
+- [01:02:26.860] Well, first and most importantly,
+- [01:02:28.880] thank you to President Trump,
+- [01:02:30.630] whose vision and courage and determination
+- [01:02:34.470] has achieved something
+- [01:02:35.750] that if you had predicted it 15 months ago,
+- [01:02:39.100] people would have said it was impossible.
+- [01:02:41.100] If you had said 15 months ago
+- [01:02:43.660] that we would achieve the lowest national murder rate,
+- [01:02:47.050] not in five years or 10 years, or 15 or 20 or 30 or 40,
+- [01:02:52.090] but in 125 years, nobody would have believed it possible.
+- [01:02:56.890] And President Trump did exactly that and it is a miracle.
+- [01:03:04.540] The -- just think about this for a second.
+- [01:03:08.990] Under President Trump's leadership,
+- [01:03:11.220] the largest reduction in murders in American history,
+- [01:03:14.450] the largest reduction in violent crime in American history,
+- [01:03:17.790] the largest reduction in drug overdose deaths
+- [01:03:20.090] in American history,
+- [01:03:21.430] the largest reduction in fentanyl in American history,
+- [01:03:24.830] the largest reduction in illegal immigration in American history,
+- [01:03:28.350] and the largest number of criminals arrested, removed,
+- [01:03:31.730] or deported in American history, all done in one year.
+- [01:03:39.000] Right? If I would just say this,
+- [01:03:41.670] if we had an honest media in this country,
+- [01:03:44.220] the statistics I just gave you would be 24/7 on the news.
+- [01:03:47.860] Nobody could have ever predicted such an achievement
+- [01:03:50.560] would be possible.
+- [01:03:51.890] The second thing I want to thank President Trump for
+- [01:03:54.330] is assembling the greatest national security
+- [01:03:56.880] and public safety team in American history,
+- [01:03:59.400] because President Trump believes in merit and competence
+- [01:04:03.810] and people who get things done.
+- [01:04:05.090] So you look around the table
+- [01:04:06.300] of who President Trump chose for these jobs.
+- [01:04:08.670] You start with Rob or Gady or Pam or Pete, Kash,
+- [01:04:12.670] Todd, Terry, the whole entire team,
+- [01:04:16.060] what President Trump put together
+- [01:04:18.160] has never been rivaled in history.
+- [01:04:20.020] That's how you get things done.
+- [01:04:22.140] He chooses people based on their skill,
+- [01:04:24.400] their competence, their ability, their determination,
+- [01:04:27.240] their dedication and their loyalty,
+- [01:04:29.010] and you're seeing the results.
+- [01:04:30.660] So I just want to again,
+- [01:04:31.880] thank President Trump and of course,
+- [01:04:33.630] thank the governor as well,
+- [01:04:35.140] who picked up that phone, called President Trump,
+- [01:04:37.360] and said, I want you to help make Memphis safe.
+- [01:04:39.680] Although, I bet the governor would agree,
+- [01:04:41.280] you could never have imagined this safe,
+- [01:04:43.430] this quickly, this many people behind bars.
+- [01:04:46.500] And let's just remember that because of the president --
+- [01:04:49.340] because of the work that President Trump is doing,
+- [01:04:51.480] not only in Memphis, not only in Washington, DC,
+- [01:04:54.360] but all over the country, ultimately, it will save
+- [01:04:57.720] and is saving tens of thousands of American lives.
+- [01:05:01.770] It is -- I'll use that word again.
+- [01:05:03.410] What President Trump has done on border security
+- [01:05:06.120] and public safety is a national miracle
+- [01:05:10.000] that will be studied not only for generations,
+- [01:05:12.010] but for centuries to come.
+- [01:05:13.220] Thank you, President Trump.
+- [01:05:14.480] The President: Thank you, Steve.
+- [01:05:20.690] So, Kash, see if you can top that.
+- [01:05:25.080] I don't know. That's a tough one, Kash.
+- [01:05:27.510] Director Patel: That is tough.
+- [01:05:28.770] You know, Mr. President, as I look around this venue,
+- [01:05:31.490] I see and I'm reminded again
+- [01:05:33.150] why we have the greatest warriors on God's green earth,
+- [01:05:35.860] the men and women serving in uniform,
+- [01:05:37.790] the men and women serving and wearing the badge
+- [01:05:39.330] in law enforcement,
+- [01:05:40.560] our police, our sheriffs around the state of Tennessee.
+- [01:05:43.360] I'm reminded that Americans exist
+- [01:05:45.390] to protect this country day in and day out
+- [01:05:47.230] and they've done it like we've done it here.
+- [01:05:49.170] But what we didn't have was you.
+- [01:05:51.020] We didn't have a commander in chief
+- [01:05:52.410] who backed the blue, who resourced the blue,
+- [01:05:54.530] who funded the military,
+- [01:05:56.050] who did whatever it takes to safeguard every single life.
+- [01:05:59.200] And here in Memphis, Tennessee,
+- [01:06:00.880] you have put on a show for the world.
+- [01:06:02.750] You have allowed us to go out there and capture gang bangers,
+- [01:06:05.710] rapists, murderers, drug dealers at record historic levels.
+- [01:06:10.360] And for me, a first generation Indian American kid
+- [01:06:13.400] whose parents fled a genocide in East Africa,
+- [01:06:15.810] to become the ninth director of the FBI,
+- [01:06:17.410] I'm living the wildest dream you could possibly imagine, sir,
+- [01:06:20.110] but it's thanks to you.
+- [01:06:21.390] But more importantly, what I see when I look out
+- [01:06:23.290] across our great partners here in the interagency
+- [01:06:25.710] and our great legislators and our great prosecutors
+- [01:06:27.830] and our great attorney general,
+- [01:06:29.150] who has the guts to go out there and make arrests,
+- [01:06:31.200] turn them into prosecutions, and put people in prison,
+- [01:06:33.830] you are giving that dream to every single child
+- [01:06:37.160] in the state of Tennessee.
+- [01:06:38.500] You are inspiring the nation and law enforcement
+- [01:06:41.310] to come up and wear the badge
+- [01:06:42.790] and wear the colors of this country
+- [01:06:44.560] and safeguard our men and women for generations to come.
+- [01:06:47.940] This is an enduring mission, Mr. President,
+- [01:06:50.160] because you have made it enduring.
+- [01:06:52.180] It is going to go on for generations to come.
+- [01:06:54.980] They are going to try to achieve what you accomplished here,
+- [01:06:57.090] what Stephen said, in just one short year,
+- [01:06:59.140] and they're going to be doing it for decades
+- [01:07:00.850] because America was smart enough
+- [01:07:02.160] to elect you as our commander in chief.
+- [01:07:04.120] So while we're out there fighting
+- [01:07:05.680] for the dreams of our children, just know, Mr. President,
+- [01:07:08.480] how many millions of dreams like mine are going to be lived,
+- [01:07:11.850] thanks to your brilliant leadership.
+- [01:07:13.170] Mr. President, thanks for delivering America
+- [01:07:15.120] the safest, safest, safest country on God's green earth.
+- [01:07:18.650] The President: Thank you very much, Kash.
+- [01:07:21.760] Pretty good. He did pretty good. Thank you very much.
+- [01:07:28.390] Mr. Speaker, please.
+- [01:07:31.740] Cameron Sexton: Thank you, Mr. President.
+- [01:07:32.950] It's great to be here with you today.
+- [01:07:35.250] And you're in the -- obviously,
+- [01:07:37.500] we're in the hottest country, in the hottest state,
+- [01:07:40.490] and now the hottest city, thanks to you,
+- [01:07:42.140] so we appreciate your leadership in that endeavor.
+- [01:07:45.410] Um, also, it takes strong leadership,
+- [01:07:47.390] Mr. President, to do what you do.
+- [01:07:48.660] We thank you for that, and have a strong team as well.
+- [01:07:51.540] But I'd like to say that I appreciate
+- [01:07:53.090] how resolute you are in your belief and your attitude
+- [01:07:56.230] and I think that's a testament to making America first.
+- [01:08:00.400] Also, I want to thank you for delivering freedom.
+- [01:08:03.390] When we talk about crime, a lot of times we talk about normalcy,
+- [01:08:06.650] but people get used to high crime.
+- [01:08:08.820] They don't understand what low crime is.
+- [01:08:11.060] And in this city, unfortunately,
+- [01:08:12.390] it became a normal thing seeing high crime.
+- [01:08:15.940] But you deliver freedom to the residents here in Memphis,
+- [01:08:19.380] as well as Governor Lee did.
+- [01:08:21.820] And it's as little as watching a kid --
+- [01:08:23.750] or a child who said they had a bicycle in their living room,
+- [01:08:27.640] and now they're able to ride it outside.
+- [01:08:30.740] We take that for granted.
+- [01:08:32.070] We take that freedom for granted.
+- [01:08:33.440] But because of you, now here in the city of Memphis,
+- [01:08:35.940] kids can ride their bicycles outside,
+- [01:08:38.580] which they never had experienced before.
+- [01:08:41.370] And now what has happened, when you have freedom,
+- [01:08:43.740] Mr. President, you have opportunity.
+- [01:08:46.410] You now have hope, you get independence
+- [01:08:49.750] and then comes prosperity
+- [01:08:51.880] and that's what Making America Great is all about.
+- [01:08:54.780] They can be anything they want to be.
+- [01:08:56.290] It doesn't matter where you start out,
+- [01:08:58.750] you can end up wherever you want to be.
+- [01:09:00.480] And that's exactly what you're doing, Mr. President.
+- [01:09:03.360] And we can talk about crime statistics,
+- [01:09:05.350] but I want to thank you for saving hundreds of lives.
+- [01:09:08.600] And I mean by saving hundreds of lives,
+- [01:09:10.730] it's those individuals who were not shot
+- [01:09:12.580] and killed in the city of Memphis.
+- [01:09:14.470] Those are saved lives that have something else
+- [01:09:17.460] that God's going to give them to do in their life
+- [01:09:19.630] other than be a crime statistic.
+- [01:09:21.880] You -- in your short period, with your team's approach,
+- [01:09:26.420] there are 10,000 less victims in the city of Memphis.
+- [01:09:30.670] Think about that, that hundreds of lives saved,
+- [01:09:33.240] 10,000 less victims, that is an accomplishment
+- [01:09:37.350] that you have never seen in this aspect.
+- [01:09:46.750] And I appreciate your strong team, all your individuals here.
+- [01:09:50.510] Also a brilliant mind in Stephen Miller,
+- [01:09:52.420] who I've been able to work with, and we are working, as you said,
+- [01:09:56.120] on legislation, not only illegal immigration,
+- [01:09:58.100] that we're going to lead the country in,
+- [01:09:59.440] which is working its way through the General Assembly,
+- [01:10:01.730] but we're going to Soros-proof the state of Tennessee once
+- [01:10:04.750] and for all, and we're going to take on Bell.
+- [01:10:06.950] We're going to take on woke and soft on crime Das.
+- [01:10:11.060] We've already done truth and sentencing.
+- [01:10:12.490] We're working on three strike legislation,
+- [01:10:15.150] but we have a strong General Assembly
+- [01:10:16.840] that will support the governor and me
+- [01:10:18.740] and Lieutenant Governor McNally,
+- [01:10:20.140] who's a great advocate in this endeavor.
+- [01:10:22.890] And the last thing I'll say, Mr. President,
+- [01:10:25.180] is I appreciate your resolve to not allow people's words
+- [01:10:30.840] to distract you from your destiny.
+- [01:10:33.250] Stephen Miller just laid out what that destiny looked like,
+- [01:10:35.690] which is untouched in our history.
+- [01:10:38.700] Thank you for being resolute
+- [01:10:40.440] and not allowing those who want to take you down,
+- [01:10:43.520] or to cause you harm,
+- [01:10:45.800] to allow you to continue fighting forward
+- [01:10:48.740] to make America what we know it can be,
+- [01:10:51.500] as well as the city of Memphis.
+- [01:10:52.940] Thank you very much, Mr. President.
+- [01:10:54.280] The President: Thank you, Speaker. Thank you very much.
+- [01:10:55.650] Great. And now we have the ICE director, very important.
+- [01:11:03.670] He's done a fantastic job. Todd, please.
+- [01:11:05.780] Todd Lyons: First off, sir,
+- [01:11:07.050] I just want to say on behalf of every law enforcement officer,
+- [01:11:09.790] thank you for letting us do our job again.
+- [01:11:11.880] That's the key thing, the men and women in this room
+- [01:11:13.580] that wear the badge every day,
+- [01:11:15.130] we know that we have a president that has our back.
+- [01:11:17.120] So because of you, we can go out
+- [01:11:18.620] and we can make America safe again.
+- [01:11:20.690] But honestly, sir, if you just look at what we did,
+- [01:11:22.600] this is what happens
+- [01:11:23.930] when strategy actually meets execution.
+- [01:11:26.620] Um, you know, your model is delivering real results,
+- [01:11:29.710] securing communities and making neighborhoods safe.
+- [01:11:32.400] And if they -- more cities would just take the lead
+- [01:11:34.710] and have the strength and constitution like the governor
+- [01:11:37.770] does to make their major cities safe again,
+- [01:11:41.460] this is a prime example of how to do it.
+- [01:11:44.380] This is a direct reflection, sir,
+- [01:11:46.520] of the model that you put in place.
+- [01:11:48.660] This and the Homeland Security task forces
+- [01:11:50.900] that you've put into action with your executive order
+- [01:11:53.130] are really what's going to make a difference to this country.
+- [01:11:55.840] You know, one thing, and Gady brought it up,
+- [01:11:57.990] was the Memphis interagency fraud cell.
+- [01:12:00.980] That's key to your promise to the American people,
+- [01:12:03.470] that honest Americans that need that funding will get it.
+- [01:12:08.120] What we're doing is we're having a reduction in fraud
+- [01:12:11.040] when it comes to SNAP benefits, mail fraud, and Medicaid fraud.
+- [01:12:14.960] And that's key and important for true Americans
+- [01:12:17.270] that believed in you,
+- [01:12:18.490] that you're going to make a difference
+- [01:12:19.810] to make this country great again.
+- [01:12:21.920] While this wasn't an immigration-led operation, sir,
+- [01:12:24.570] we did have 619 illegal aliens arrested,
+- [01:12:27.880] seven of those which were Venezuelans
+- [01:12:30.100] that were paroled into this country are TDA gang members,
+- [01:12:33.120] one El Sol that raped a child in another Honduras male
+- [01:12:36.500] that raped several children.
+- [01:12:38.070] Because of your leadership,
+- [01:12:39.320] we were able to get these violent criminals
+- [01:12:40.690] out of our neighborhoods and serve Memphis
+- [01:12:42.740] going forward is going to be an example,
+- [01:12:44.180] as Mr. Miller said, for decades to come.
+- [01:12:45.930] So on behalf of the men and women of ICE,
+- [01:12:47.700] of Special Agents of Homeland Security,
+- [01:12:49.730] we thank you for your leadership.
+- [01:12:51.370] The President: Thank you very much, Todd.
+- [01:12:52.580] And just if I might, so you're at the front of the storm.
+- [01:12:59.960] The Democrats have caused lots of problems
+- [01:13:02.500] at the airports and all, other places too.
+- [01:13:05.730] We shouldn't be in this position,
+- [01:13:07.080] especially when we're in conflict elsewhere.
+- [01:13:10.000] But how are you doing
+- [01:13:11.220] and how is ICE doing at the airports and helping out?
+- [01:13:14.280] Todd Lyons: Oh, you know, just have the opportunity
+- [01:13:16.030] to help our other fellow officers
+- [01:13:18.620] at Department of Homeland Security,
+- [01:13:20.050] we're doing great. We're going to make sure
+- [01:13:21.380] that your promise is kept,
+- [01:13:23.180] that we're going to help those lines move,
+- [01:13:25.160] and we're going to make people safe.
+- [01:13:26.400] And no one should be nervous to go to the airport,
+- [01:13:28.330] because we're going to make sure that every traveler
+- [01:13:30.480] in spring break has a safe journey.
+- [01:13:32.540] The President: I appreciate it. Great job.
+- [01:13:33.880] You're doing a great job. Thank you very much.
+- [01:13:36.140] Rob Cekada, please. Rob?
+- [01:13:38.190] Rob Cekada: Mr. President,
+- [01:13:39.460] thank you for your assembling of the Memphis Safe Task Force.
+- [01:13:43.340] The leadership empowered ATF and all of our state
+- [01:13:45.900] and local partners to focus on the most dangerous criminals
+- [01:13:48.720] operating in Memphis.
+- [01:13:50.360] Violent repeat felons, many walking the streets
+- [01:13:53.290] despite having three, four and five felony convictions,
+- [01:13:56.900] are no longer doing so.
+- [01:13:58.490] They're no longer walking these streets
+- [01:14:00.790] without the fear of federal and state law
+- [01:14:03.210] and local and state law enforcement getting together
+- [01:14:06.390] and taking them off the streets.
+- [01:14:08.220] We focused our efforts on the most violent gang members
+- [01:14:10.990] operating in Memphis,
+- [01:14:12.360] so much so that we've decapitated the leadership
+- [01:14:15.240] of the Rich and Ruthless gang
+- [01:14:17.080] and the Vice Lord gangs operating here in Memphis.
+- [01:14:20.250] Their leadership, their membership,
+- [01:14:22.430] is currently running the streets without any sort of direction.
+- [01:14:27.990] The gang members are falling apart.
+- [01:14:30.550] They're weakened.
+- [01:14:31.920] Their ability to coordinate and commit violent crimes
+- [01:14:34.280] are broken down because of the Memphis Safe Task Force.
+- [01:14:37.530] We've also been able to identify numerous firearms
+- [01:14:40.050] trafficking task force.
+- [01:14:41.330] Some of the evidence items that you see here
+- [01:14:43.750] were recovered from violent gang members.
+- [01:14:46.400] Many of these firearms were converted
+- [01:14:48.780] from semi-automatic weapons
+- [01:14:50.170] to be able to accept machine gun conversion devices,
+- [01:14:53.870] which now allow these rifles and pistols to shoot full auto.
+- [01:14:57.830] Those weapons were used by the gang members
+- [01:14:59.630] to terrorize this community and commit numerous homicides
+- [01:15:02.690] and numerous aggravated assaults.
+- [01:15:05.130] Those networks were identified and removed from operations.
+- [01:15:08.870] One in particular was operating three 3D printing machines,
+- [01:15:13.450] making machine gun conversion devices in his house
+- [01:15:15.830] when search warrants were executed by ATF
+- [01:15:18.490] and our Memphis Safe Task Force partners.
+- [01:15:21.140] We are continually focused on preventing violent crime.
+- [01:15:24.100] In one instance, while we are out on patrol with our state
+- [01:15:26.600] and local partners, our agents responded to a shooting
+- [01:15:29.770] that had just occurred, and located a victim
+- [01:15:32.080] that sustained serious gunshot injuries.
+- [01:15:34.680] Agents were able to render first-aid on the scene
+- [01:15:38.590] and prevent that victim from bleeding out.
+- [01:15:40.790] Victim was transported to the hospital
+- [01:15:42.570] and, ultimately, survived
+- [01:15:43.910] because of the Memphis Safe Task Force being here.
+- [01:15:47.420] Our agents regularly talk to the members of the community.
+- [01:15:50.820] The community when we first arrived, was invisible fear.
+- [01:15:54.850] They were afraid to walk out of their homes to the corner store.
+- [01:15:57.640] They were afraid to sit in their front yards
+- [01:15:59.860] because of being in fear of being victimized, of a --
+- [01:16:02.810] of a drive-by shooting.
+- [01:16:05.140] Those people are now approaching our agents and our partners,
+- [01:16:08.820] thanking us every day for being out there
+- [01:16:10.560] and taking the fear away from them
+- [01:16:12.470] so they and their family members could walk their communities
+- [01:16:15.250] and sit in their front yards and talk to their neighbors
+- [01:16:18.070] without fear of being killed or shot.
+- [01:16:19.840] So thank you for your support of law enforcement
+- [01:16:22.980] and for creating the Memphis Safe Task Force.
+- [01:16:25.070] Thank you, sir.
+- [01:16:26.270] The President: Thank you, Rob, and you do a fantastic job.
+- [01:16:28.210] Thank you very much.
+- [01:16:32.570] One of the best crime fighters I know for,
+- [01:16:35.600] really from personal experience,
+- [01:16:36.890] because I've watched him more in DC than here,
+- [01:16:38.960] but I get the reports on what's happening in Memphis,
+- [01:16:42.220] and Terry Cole, please say a few words.
+- [01:16:45.360] Great job.
+- [01:16:46.590] Terry Cole: Mr. President, thank you for your leadership.
+- [01:16:49.210] It has given law enforcement the tools
+- [01:16:51.420] and the support to take
+- [01:16:53.080] this fight directly to the local street gangs
+- [01:16:56.770] but also the cartels, the designated terrorists
+- [01:17:00.420] that are killing Americans. Your leadership is attacking
+- [01:17:05.410] not only the local street gangs here,
+- [01:17:07.860] but it's attacking the cartels in Mexico.
+- [01:17:10.780] It's attacking the cartels in Venezuela.
+- [01:17:13.700] It's attacking the cartels in Colombia and Ecuador,
+- [01:17:16.820] and it's setting the example for the world
+- [01:17:18.750] to see that they are designated terrorists.
+- [01:17:22.210] They are fueling the violence in our streets.
+- [01:17:25.940] The DEA, along with our local task forces,
+- [01:17:28.250] are disrupting the supply chain,
+- [01:17:30.340] dismantling networks and saving American lives.
+- [01:17:35.180] This is America first, this is Americans first.
+- [01:17:39.290] The DEA is proud to stand along with our federal, state, tribal,
+- [01:17:43.090] and local partners here in Memphis,
+- [01:17:45.440] with our amazing military and National Guard.
+- [01:17:49.050] The work has just started, Mr. President.
+- [01:17:51.980] we will take the battle, wherever the battle leads us.
+- [01:17:54.720] But one thing can be rest assured,
+- [01:17:57.030] after you take Maduro out of Venezuela,
+- [01:18:01.080] after you take Mencho out of Mexico,
+- [01:18:04.410] after your diplomatic pressure forces the Mexicans
+- [01:18:07.150] to make a record seizure last week of 270 kilograms
+- [01:18:12.180] of fentanyl that was destined for the United States,
+- [01:18:16.180] this is truly due to your leadership.
+- [01:18:19.730] It's due to your partnership with law enforcement
+- [01:18:22.630] that enables us to do our job.
+- [01:18:24.890] A few small seizures from this task force
+- [01:18:28.440] is represented in front of you,
+- [01:18:30.500] close to 190 kilograms of cocaine,
+- [01:18:34.690] close to 50 pounds of methamphetamine.
+- [01:18:37.830] But more importantly, this task force seized enough
+- [01:18:42.860] fentanyl to kill in lethal dosages,
+- [01:18:47.730] close to 20 million Americans, 20 million Americans.
+- [01:18:54.380] In a separate case just outside of Memphis,
+- [01:18:57.210] working with our state and local law enforcement partners,
+- [01:19:00.710] we seized another 25 million lethal doses of fentanyl
+- [01:19:08.700] that was heading to our cities, heading to our streets.
+- [01:19:12.470] I will tell you, Mr. President,
+- [01:19:14.540] in my three tours here to Memphis,
+- [01:19:18.050] to put on the gun, to put on the vest
+- [01:19:20.340] and to go out in the community, I was welcomed.
+- [01:19:23.790] I was welcomed not only by an amazing Highway Patrol Colonel
+- [01:19:27.830] and his team, but I was welcomed by the community.
+- [01:19:31.350] I was invited to front porches.
+- [01:19:33.800] I was invited to an ice cream social.
+- [01:19:36.970] But that was in between the hard work
+- [01:19:38.800] of the men and women of the DEA
+- [01:19:40.110] and this task force that were conducting daily.
+- [01:19:44.160] See, personally, I served four search warrants
+- [01:19:47.260] with the amazing men and women of DEA
+- [01:19:48.910] and the Memphis Police Department
+- [01:19:50.160] at Tennessee Highway Patrol,
+- [01:19:51.730] because I believe in the mission where you lead from the front.
+- [01:19:55.140] So thank you for giving us, at the DEA,
+- [01:19:57.640] the power to do our job again.
+- [01:19:59.530] Thank you for giving us these amazing relationships
+- [01:20:02.810] with these task forces and the Homeland Security Task Force
+- [01:20:05.580] and the Memphis Task Force
+- [01:20:06.860] and the Washington, DC Task Force.
+- [01:20:09.650] There's no command we won't go out and complete, Mr. President.
+- [01:20:14.510] We're here to execute your orders.
+- [01:20:15.960] Thank you for your leadership.
+- [01:20:17.250] The President: Thank you.
+- [01:20:18.480] Terry Cole: And thank you for this amazing opportunity
+- [01:20:20.650] to make America safe again, sir. Thank you.
+- [01:20:23.440] The President: Thank you, Terry. Great job. Great.
+- [01:20:28.490] So just in finishing up,
+- [01:20:29.990] we have two great people that happen to live here.
+- [01:20:33.050] One is a business owner and a good one.
+- [01:20:35.700] And one's a good one, also, a resident.
+- [01:20:38.630] And we're going to ask you both to say a few words, please.
+- [01:20:44.280] Tim Pugh: Mr. President, thank you for saving Memphis,
+- [01:20:47.610] and thank you for asking me to share my story.
+- [01:20:49.840] My name is Tim Pugh.
+- [01:20:51.080] I'm a co-founder and president of Pugh's Earthworks
+- [01:20:53.490] and Pugh's Flowers.
+- [01:20:54.970] My brothers and I have two family-owned
+- [01:20:57.360] businesses in Memphis, and this makes --
+- [01:20:59.580] this year marks our 50th year in business
+- [01:21:02.960] since we started our American dream.
+- [01:21:05.090] My entire family, including our new grandbaby,
+- [01:21:07.380] is living and working in Memphis.
+- [01:21:09.790] We want our family to feel -- feel and be safe.
+- [01:21:13.390] We have many friends that have moved away
+- [01:21:15.090] and encouraged their children to move away
+- [01:21:17.490] because of the escalating crime.
+- [01:21:19.880] We love Memphis and call it our home
+- [01:21:21.820] and would never want to move away.
+- [01:21:23.960] The crime in Memphis has affected my businesses.
+- [01:21:26.760] We've had several delivery vans full of flowers stolen
+- [01:21:29.820] as we're at the front door of someone's house delivering,
+- [01:21:32.560] turn around and the van was gone.
+- [01:21:35.380] Um, we've had landscape equipment stolen from job sites,
+- [01:21:39.080] so now we have to lock each piece of equipment to the truck
+- [01:21:41.790] while we're working on a property.
+- [01:21:44.000] And because of multiple break-ins,
+- [01:21:45.490] including one night we had five vans
+- [01:21:48.180] with the Cadillac converter stolen on all five.
+- [01:21:52.170] Due to repeated theft, we had to install an electric fence
+- [01:21:54.740] and multiple cameras around our main store
+- [01:21:57.460] to prevent this theft.
+- [01:21:59.310] All of this adds significant financial burdens and man hours.
+- [01:22:04.270] In the spring of last year
+- [01:22:06.370] members of one of my landscape crews were robbed at gunpoint.
+- [01:22:10.890] This type of action became too normal in this city
+- [01:22:14.320] that I was raised in and honestly,
+- [01:22:16.510] I felt that we were on a path of no return.
+- [01:22:20.130] How could we continue to operate our business
+- [01:22:22.480] when theft was rampant and God forbid, lives were lost?
+- [01:22:26.870] Thankfully for you, Mr. President,
+- [01:22:29.260] we don't have to live and operate that way anymore.
+- [01:22:32.810] We have a great police force in Memphis,
+- [01:22:36.000] but they just needed reinforcements
+- [01:22:38.750] to get the crime under control.
+- [01:22:40.660] So thank you for bringing in those much
+- [01:22:42.470] needed reinforcements. Our mayor is doing a good job.
+- [01:22:46.470] Each week, he's sending out emails of the progress.
+- [01:22:50.420] And just last Friday, it was reported that crime
+- [01:22:52.810] was down well over 40 percent. Honestly, Mr. President,
+- [01:22:57.550] I feel like crime is down 100 percent,
+- [01:23:00.540] and that is because of what you've done.
+- [01:23:02.980] We want Memphis to grow and prosper,
+- [01:23:05.350] and to do that, you must have a low crime rate.
+- [01:23:08.500] People have to feel safe.
+- [01:23:10.280] That wasn't the case before, but now it is.
+- [01:23:13.650] Thank you to the task force and our city leaders
+- [01:23:16.420] for working together to make this happen.
+- [01:23:19.080] And thank you, Mr. President.
+- [01:23:20.640] Memphis owes you a lot of gratitude. Thank you.
+- [01:23:23.450] The President: Thank you very much, Tim.
+- [01:23:24.700] Thank you. Great.
+- [01:23:28.990] And your business is doing well? That's great.
+- [01:23:32.400] It's going to get better and better, you watch.
+- [01:23:34.510] Thank you very much. Dalisia?
+- [01:23:37.700] Dalisia Ballinger: Thank you so much, Mr. President.
+- [01:23:39.970] It is a complete honor to be here with you today.
+- [01:23:44.060] Thank you for saving Memphis. My name is Delicia Ballinger,
+- [01:23:49.730] and I'm a lifelong Memphian, and I'm a mother.
+- [01:23:52.950] And I wanted to speak with you today, not just as a citizen,
+- [01:23:56.190] but as a mom who's lived through what Memphis has become.
+- [01:23:59.990] I remember a different Memphis.
+- [01:24:02.340] I remember when the city felt alive,
+- [01:24:04.970] when families didn't have to think twice about safety,
+- [01:24:08.420] when kids could just go outside and just be kids.
+- [01:24:11.700] We have places to go, things to do,
+- [01:24:14.870] and a sense of pride about where we come from.
+- [01:24:18.340] But over the years, that Memphis has faded
+- [01:24:21.050] and what it was replaced with was fear.
+- [01:24:24.580] Before the Memphis Safe Task Force,
+- [01:24:26.480] I just didn't hear about crime, I lived it.
+- [01:24:29.850] I watched friends and people that I love lose their lives
+- [01:24:32.970] to the senseless violence.
+- [01:24:34.880] I've attended funerals that never should have happened.
+- [01:24:38.690] I've seen families torn apart,
+- [01:24:41.070] mothers grieving and children growing up without parents,
+- [01:24:45.240] all because of violence that felt like it would never end.
+- [01:24:49.560] And those moments stay with you.
+- [01:24:52.350] They change how you see everything.
+- [01:24:56.980] But nothing's changed more than becoming a mother,
+- [01:25:04.270] because now it wasn't just my life that I was worried about,
+- [01:25:08.800] it was my children.
+- [01:25:11.790] There were days where I wouldn't let them go outside,
+- [01:25:13.980] not because I didn't want them to,
+- [01:25:16.170] but because I was afraid what would happen if I did,
+- [01:25:19.880] in the fear of stray bullets, the sounds of gunshots at night,
+- [01:25:24.460] constantly wondering if they were truly safe.
+- [01:25:27.650] And that fear became real in a way
+- [01:25:29.920] that no mother should ever have to experience.
+- [01:25:34.970] At just five years old, I could have lost my son.
+- [01:25:42.120] There was a drive-by shooting and a random bullet
+- [01:25:45.920] came through my home in that --
+- [01:25:47.390] in that very same space where my son played.
+- [01:25:51.270] Until that day, this bullet hole is still in my wall,
+- [01:25:54.800] a permanent reminder of how close I came
+- [01:25:57.570] to losing everything.
+- [01:26:00.280] My family and I, we are good people.
+- [01:26:03.350] We work hard every day to have --
+- [01:26:06.050] to have everything that we have,
+- [01:26:08.040] only to have it taken away from us.
+- [01:26:10.820] We've experienced multiple burglaries in our home,
+- [01:26:14.140] and it wasn't just the material things that were stolen,
+- [01:26:17.340] it was our sense of security, our peace, our livelihood.
+- [01:26:22.710] And that violence just wasn't inside of our home,
+- [01:26:25.030] it was all around us.
+- [01:26:27.080] Just literally four houses down from where I live,
+- [01:26:29.810] a grandmother and her child were shot.
+- [01:26:32.770] I remember what sounded like almost 30 gunshots ring out.
+- [01:26:36.810] Yellow -- yellow tape covered the street.
+- [01:26:40.440] After that day, those neighbors never returned.
+- [01:26:44.350] Their home, now with a for sale sign,
+- [01:26:47.570] stands as a reminder of a fear so deep
+- [01:26:51.340] that they couldn't come back to the place
+- [01:26:53.300] where they almost lost their lives.
+- [01:26:55.590] And that feeling, that fear,
+- [01:26:56.970] is something that my family knows all too well.
+- [01:27:00.680] That is not how families are supposed to live.
+- [01:27:04.270] That is not how children are supposed to grow up.
+- [01:27:07.850] We've reached out for help.
+- [01:27:09.940] For years, we looked to our local leaders,
+- [01:27:11.990] hoping that something, anything will change,
+- [01:27:15.610] but nothing did and that wasn't until you,
+- [01:27:19.080] my president, stepped in. I need you to understand
+- [01:27:23.760] what that meant for families like mine
+- [01:27:26.340] because in a matter of weeks, we felt a difference.
+- [01:27:30.060] Today, I can sit out on my porch and drink tea in peace.
+- [01:27:34.550] My children can go outside and play in our backyard again.
+- [01:27:38.420] And for the first time in five years,
+- [01:27:40.930] I don't hear any gunshots in my neighborhood.
+- [01:27:43.850] It's been -- it's been almost six months
+- [01:27:56.300] and it's like a whole new world.
+- [01:27:58.930] That silence means everything to me. It means safety.
+- [01:28:03.930] It means peace.
+- [01:28:05.690] It means that I can breathe again as a mother.
+- [01:28:08.930] What years of waiting couldn't fix,
+- [01:28:11.620] you did it in just three weeks. And I'll never forget that.
+- [01:28:18.030] My family will never forget that.
+- [01:28:20.460] And what's even more powerful
+- [01:28:21.740] is that that impact did not stop there.
+- [01:28:24.550] Because of the Memphis Safe Task Force,
+- [01:28:26.860] it has sparked continued efforts right here at home,
+- [01:28:29.400] like the Make Memphis Matter Movement
+- [01:28:31.390] led by the incredible, the most awesome state
+- [01:28:34.740] Senator Brant Taylor, starting in 2023,
+- [01:28:38.090] who is putting his best foot forward every day
+- [01:28:41.510] to continue the mission to make it a safer Memphis
+- [01:28:44.370] and to hold our (Inaudible)
+- [01:28:45.790] backed DA accountable at a state level
+- [01:28:48.740] and partnering with the amazing
+- [01:28:50.340] Senators Hagerty and Blackburn on the federal level.
+- [01:28:54.540] And it's because of leadership like that,
+- [01:28:57.400] I believe that Memphis can become that place
+- [01:29:00.150] that I once remember.
+- [01:29:01.970] So from the bottom of my heart, thank you.
+- [01:29:05.500] Thank you for seeing communities like mine.
+- [01:29:08.390] Thank you for taking action.
+- [01:29:10.560] Thank you for putting Americans first,
+- [01:29:13.530] especially right here in Shelby County and Memphis,
+- [01:29:17.530] because this isn't politics for me, this is my life.
+- [01:29:22.810] This is my -- and this is for my children.
+- [01:29:24.420] In fact, President Trump, my son,
+- [01:29:26.740] my beautiful son is here today
+- [01:29:28.690] and he would like to wave and say thank you
+- [01:29:31.020] because now he's free to live a normal childhood.
+- [01:29:33.750] Braylen (ph), stand up for me, baby.
+- [01:29:36.530] (applause)
+- [01:29:45.710] And because of that change,
+- [01:29:47.900] we finally have a sense of normal again.
+- [01:29:51.120] Again, from the bottom of my heart, I --
+- [01:29:54.610] I truly don't have the words to share how much I appreciate you.
+- [01:29:58.740] Thank you so much, sir.
+- [01:30:01.010] Memphis loves you, President Trump. Thank you.
+- [01:30:03.980] The President: Thank you very much.
+- [01:30:05.330] Wow. I don't know, Delisia.
+- [01:30:09.990] I think we're going to have to give her MVP, right?
+- [01:30:12.840] MVP Delisia. That's a great job. Thank you very much.
+- [01:30:24.200] Great job. I think she has to run for office.
+- [01:30:28.940] Would you like to become a Republican?
+- [01:30:30.660] Dalisia Ballinger: I am.
+- [01:30:31.920] The President: She said, I am a Republican.
+- [01:30:33.550] I love this. Anyway, great job. Thank you very much.
+- [01:30:37.140] Appreciate it, really beautiful.
+- [01:30:38.820] So you're going to see some fantastic results.
+- [01:30:41.760] You already have, but you're going to see some numbers
+- [01:30:44.710] that are going to bring you into a level that few cities attain.
+- [01:30:48.650] I want to thank the governor.
+- [01:30:50.020] I want to thank the state.
+- [01:30:51.380] The state is just a fantastic state.
+- [01:30:54.700] The first day I stepped in it, we were leading by 30 points
+- [01:30:58.020] and it never went down.
+- [01:30:59.670] It just only went up, so it's something special.
+- [01:31:02.500] We have a bond. We have a special bond.
+- [01:31:04.360] You know, you can be a politician,
+- [01:31:06.480] but when you win something in a landslide,
+- [01:31:08.260] landslide, landslide, you have a very, very great feeling.
+- [01:31:12.540] And I want to tell you, this is a very, very successful,
+- [01:31:17.320] beautiful state and I love Tennessee.
+- [01:31:19.390] Thank you very much and congratulations to Memphis,
+- [01:31:22.270] and fantastic job. Thank you.
+- [01:31:23.980] Thank you, everybody, very much. Thank you.
+- [01:31:27.430] (applause)

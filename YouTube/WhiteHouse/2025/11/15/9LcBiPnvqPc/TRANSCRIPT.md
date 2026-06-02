@@ -1,0 +1,665 @@
+<!-- source: https://www.youtube.com/watch?v=9LcBiPnvqPc -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 9LcBiPnvqPc -->
+<!-- date_published: 2025-11-15T01:42:27+00:00 -->
+<!-- date_accessed: 2026-06-02T01:10:26.124534+00:00 -->
+
+# Transcript: President Trump Gaggles with Press on Air Force One, Nov. 14, 2025
+
+- [00:00.380] The President: Okay.
+- [00:01.320] The Press: Mr. President,
+- [00:02.650] what did Jeffrey Epstein mean in his emails
+- [00:04.970] when he said you knew about the girls?
+- [00:07.540] The President: I know nothing about that.
+- [00:08.870] They would've announced that a long time ago.
+- [00:11.060] It's really what did he mean
+- [00:12.430] when he spent all the time with Bill Clinton,
+- [00:14.890] with the president of Harvard, who, you know who that is.
+- [00:17.810] Summers, Larry Summers, whatever his name is.
+- [00:21.410] And all of the other people that he spent time with.
+- [00:24.720] Jeffrey Epstein and I had a very bad relationship for many years.
+- [00:29.280] But he also saw strength because I was president.
+- [00:32.180] So he dictated a couple of memos to himself.
+- [00:34.330] Give me a break.
+- [00:35.610] You're going to find out what did he know
+- [00:38.090] with respect to Bill Clinton,
+- [00:39.920] with respect to the head of Harvard,
+- [00:42.040] with respect to all of those people that he knew,
+- [00:45.100] including JP Morgan Chase.
+- [00:46.350] The President: Yeah, Johnny -- go ahead.
+- [00:48.590] The Press: On Venezuela, sir --
+- [00:50.430] The President: Quiet. Quiet (inaudible).
+- [00:52.540] The Press: On Venezuela, sir,
+- [00:53.780] you've had a lot of meetings on Venezuela.
+- [00:55.790] I know you can't tell us what your next steps will be,
+- [00:58.900] but could you say, have you made up your mind
+- [01:00.800] on what you'd like to do for as far as action for Venezuela?
+- [01:03.210] The President: I haven't made up my mind yet.
+- [01:04.910] I mean, I can't tell you what it would be, but I said
+- [01:06.520] (inaudible).
+- [01:07.720] The Press: What do you say to your --
+- [01:08.950] some of your supporters might not be excited
+- [01:12.000] about another foreign campaign. What would you --
+- [01:14.280] The President: We'll see what happens.
+- [01:15.510] I mean, I can't tell you what it is,
+- [01:18.150] but we've made a lot of progress with Venezuela
+- [01:21.360] in terms of stopping drugs from pouring in.
+- [01:24.150] But we have a Mexico problem. We have a Colombia problem,
+- [01:27.770] meaning Colombia, the country, we're doing very well.
+- [01:32.750] Drugs coming into our country
+- [01:34.190] are greatly slowed as you can imagine.
+- [01:36.460] The Press: On the tariff rollback, sir,
+- [01:38.040] does this signal only change on their message
+- [01:40.170] as affordability for (inaudible)?
+- [01:42.180] The President: Oh, I just want to bring down some of the foods.
+- [01:44.080] Look for the most part, the foods, when we cut back
+- [01:47.330] a little bit on those tariffs, we'll get the price down,
+- [01:49.960] but they're not competitive in this country,
+- [01:52.580] like tomatoes and bananas and things.
+- [01:55.110] We don't make them in this country.
+- [01:57.060] So there's no protection of our industries or our food products.
+- [02:01.670] So what we're going to do is we cut back,
+- [02:04.470] you'll see prices come down even lower.
+- [02:06.110] You have to understand,
+- [02:07.490] we've all suffered from the Biden prices,
+- [02:09.300] which were much higher than they are right now.
+- [02:12.420] But I'll be able to get them down even lower,
+- [02:14.490] at least a little bit lower,
+- [02:15.700] possibly in some cases, a lot lower.
+- [02:17.670] The Press: More rollbacks in the future,
+- [02:18.920] in your tariff policies.
+- [02:20.170] The President: What do you mean?
+- [02:21.380] The Press: Will there be more rollbacks in the future?
+- [02:22.850] Could you change anything else with tariffs?
+- [02:25.010] The President: I don't think it'll be necessary.
+- [02:26.290] We just had a little bit of a rollback on some foods,
+- [02:29.170] like coffee as an example,
+- [02:31.440] where the prices of coffee are a little bit high now.
+- [02:33.550] They'll be on the low side in a very short period of time.
+- [02:36.980] I'm very good at this.
+- [02:38.270] The problem is we inherited the country
+- [02:40.860] when we took over January 20th,
+- [02:43.240] where the prices were through the roof.
+- [02:45.780] So they were up 30, 40, 50 percent.
+- [02:48.120] If we got 'em down 30 percent,
+- [02:50.610] that means they're still higher than where they were.
+- [02:53.360] We had a great, we had a great four years,
+- [02:56.610] and I think this is going to be even much better.
+- [02:59.080] And in terms of affordability,
+- [03:00.630] it's not a good word for the Democrats.
+- [03:02.800] It's a good word for us
+- [03:04.120] 'cause our prices are much lower.
+- [03:05.500] The President: It will soon be much,
+- [03:06.970] much lower than they were under the Democrats.
+- [03:11.630] The Press: Mr. President,, my newspaper,
+- [03:12.900] the Telegraph has led the way in exposing --
+- [03:14.520] The President: You're with Telegraph?
+- [03:15.850] The Press: (inaudible), sir, yes.
+- [03:17.190] The President: What a job you did.
+- [03:18.440] The Press: Thank you.
+- [03:19.670] The President: What a job you did.
+- [03:21.270] Are you proud of yourselves?
+- [03:22.520] The Press: We've had a good couple of weeks.
+- [03:23.850] The President: Do you ask BBC like that?
+- [03:25.140] The Press: Well, we have good sources. We found out --
+- [03:27.790] The President: Honestly, congratulations.
+- [03:30.200] You did a great service to a lot of countries,
+- [03:33.210] a lot of great human beings, if you want to know the truth,
+- [03:36.340] that exposing what fake news is all about.
+- [03:38.940] What BBC did,
+- [03:40.990] nobody would even think a thing like that was done.
+- [03:43.040] They actually changed the words coming out of my mouth.
+- [03:46.600] The Press: Sir, the BBC has apologized
+- [03:47.910] and retracted the report,
+- [03:49.260] but they say they won't pay any compensation.
+- [03:53.270] Is that enough?
+- [03:54.470] The President: We'll sue them for anywhere
+- [03:55.880] between a billion and $5 billion probably sometime next week.
+- [03:59.740] The Press: So you're ready to take legal?
+- [04:01.110] The President: Well, I think I have to do it.
+- [04:02.690] I mean, it's, they've even admitted that they cheated.
+- [04:06.300] The Press: How's that -- The President: I mean,
+- [04:07.540] not that they couldn't have not done that.
+- [04:09.920] They cheated, they changed the words coming out of my mouth.
+- [04:13.180] That's worse than what CBS did with Kamala.
+- [04:16.160] They changed your answer,
+- [04:17.450] but at least they didn't show it you know,
+- [04:19.080] coming out of her mouth.
+- [04:20.480] The Press: Do you think it's appropriate
+- [04:21.710] the British TV viewers have to pay more than $200
+- [04:25.430] just for the right to watch television?
+- [04:27.300] Do license fee should be scrapped?
+- [04:28.660] The President: Are they doing it,
+- [04:29.910] in a place that I like a lot? The general UK, right.
+- [04:34.440] But the people of the UK are very angry
+- [04:38.040] about what happened as you can imagine,
+- [04:41.120] because it shows the BBC is fake news,
+- [04:44.550] which you and I knew that for a long time,
+- [04:46.820] but we didn't know it was this fake.
+- [04:48.590] The Press: Have you raised the issue with Sir Keir Starmer?
+- [04:51.720] The President: I have not, but I'll call him.
+- [04:53.170] I'm going to call him over the weekend.
+- [04:54.480] He actually put a call in to me. He's very -- you know, that's --
+- [04:59.460] I don't know what percentage is owed by the country,
+- [05:02.650] but regardless if it's small or large or nothing,
+- [05:05.840] I can say this.
+- [05:07.210] The UK is very, very embarrassed by BBC, what they meant.
+- [05:11.620] The Press: Mr. President, you've said that tariffs
+- [05:14.000] do not increase prices for consumers,
+- [05:16.890] but now you're lowering tariffs.
+- [05:18.300] The President: I say they may in some cases,
+- [05:20.790] but to a large extent,
+- [05:22.250] they've been warned by the country as an example.
+- [05:24.730] We have virtually no inflation and yet,
+- [05:27.420] we've taken in hundreds of millions of dollars.
+- [05:30.250] So we've taken in hundreds of billions of dollars.
+- [05:33.130] We've used tariffs to stop wars. You look at India and Pakistan.
+- [05:37.680] Look at so many wars I stopped just by saying,
+- [05:40.180] "I'm going to oppose tariffs on your country
+- [05:42.120] if you're going to have a war."
+- [05:44.200] In that case -- yeah, in that case, it was
+- [05:45.650] (inaudible)
+- [05:46.850] a war, and I stopped it by using tariffs.
+- [05:49.960] But oftentimes, and to a large extent,
+- [05:52.730] the countries themselves pick up the damp,
+- [05:56.120] the, the companies, the damp.
+- [05:58.930] And I find that based on inflation,
+- [06:01.320] we have virtually no inflation.
+- [06:03.950] When I inherited the country from sleepy Joe Biden,
+- [06:08.040] the inflation, it was the highest inflation
+- [06:10.320] in the history of our country.
+- [06:12.550] Or at least 48 years. They used 48.
+- [06:15.590] I say it was the history.
+- [06:18.070] We don't have -- we have now a low inflation.
+- [06:20.390] Going to be very soon even lower.
+- [06:22.720] But we'll get some of the prices down a little bit,
+- [06:25.780] which will bring them down to a new low.
+- [06:28.030] The Press: How much of the tariffs
+- [06:29.340] being picked up by Americans?
+- [06:31.970] The President: I think very little.
+- [06:33.240] I mean, I really think very little.
+- [06:34.870] If you look at it and when you add the trillions of dollars
+- [06:38.430] that the -- our country is making,
+- [06:41.310] when you add the fact that I'll be giving back $2,000
+- [06:44.980] or so to middle-income people, low-income people,
+- [06:48.680] everybody but the rich, we'll be giving $2,000 back,
+- [06:52.420] and you add that in.
+- [06:53.870] When you add the fact that our country is extremely rich
+- [06:56.560] and we have no wars and we're respected again.
+- [06:59.560] When you add the fact that when China was threatening to us
+- [07:02.590] in terms of rare earths,
+- [07:04.180] I was able to solve it just by putting tariffs on China,
+- [07:07.510] and we made a deal a week later.
+- [07:09.680] When you add all of the benefits,
+- [07:11.590] the single greatest thing we have right now
+- [07:14.080] is the use of tariffs, and I used them properly.
+- [07:18.320] For years they've been used against us.
+- [07:20.910] And I think, you know, whether you call them tariffs
+- [07:25.370] or anything else, if you didn't use them,
+- [07:27.440] you really would've an unguarded disaster on your hands.
+- [07:30.910] The Press: Those $2,000 payments,
+- [07:32.630] will that be inflationary? Because previously Republicans
+- [07:35.910] have said that sending money you,
+- [07:37.140] like under Biden, could slight --
+- [07:38.450] The President: (inaudible)
+- [07:39.650] this is money earned as opposed to money that was made up.
+- [07:42.340] You know, that money was made up.
+- [07:44.350] Biden gave, like, the Inflation Reduction Act,
+- [07:47.070] which did not reduce inflation, and it wasn't meant to.
+- [07:50.550] And they admitted it was a phony name.
+- [07:53.290] But they spent hundreds of billions of dollars
+- [07:56.030] on a fake deal called the Inflation Reduction Act.
+- [07:59.430] That was made up money.
+- [08:01.670] When I spent, when I pay people $2,000 each for,
+- [08:06.670] low and moderate income and middle income people,
+- [08:09.090] everybody but the rich will get this.
+- [08:11.840] That, that's not made up.
+- [08:13.050] That's real money that comes from other countries. Yeah.
+- [08:15.850] The Press: Speaking of China, since you've made the deal,
+- [08:17.880] since you struck the deal with them,
+- [08:19.250] has the Chinese agreed to actually purchase any soybeans?
+- [08:23.090] Have they locked in any soybean purchases?
+- [08:25.370] The President: They're in the process of doing it.
+- [08:26.750] We spoke to them today.
+- [08:28.210] They're in the process of doing not only a little bit,
+- [08:31.380] but they'll be doing a lot of soybean purchase.
+- [08:33.410] The Press: Do you know when? In the spring or --
+- [08:35.640] The President: It started before that, I think before.
+- [08:38.710] It started -- they'll be buying a lot of soybeans.
+- [08:40.920] But really, Jennifer, a lot of everything else.
+- [08:42.880] The Press: Can you say who you spoke with or who th --
+- [08:44.950] your team spoke with?
+- [08:46.980] The President: Top of the line, top of the --
+- [08:50.420] The Press: (inaudible) check, sir.
+- [08:51.690] How soon could Americans see those checks?
+- [08:53.480] Will that be in time for Christmas?
+- [08:54.800] How many shop week --
+- [08:56.090] The President: No, no, not for this year.
+- [08:57.340] It'll be next year sometime.
+- [08:58.590] The Press: Do you have a timeframe?
+- [08:59.880] The President: No. Sometime during the year next --
+- [09:02.550] It's a lot of money,
+- [09:03.860] but we've taken in a lot of money from tariffs.
+- [09:06.220] The tariffs allow us to give a dividend if we want to do that.
+- [09:10.290] Now, we're going to do, do a dividend,
+- [09:11.910] and we're also reducing debt.
+- [09:14.330] We have, because of Biden and others,
+- [09:18.060] we have a 37 trillion in debt.
+- [09:21.010] So we're going to be doing a dividend,
+- [09:23.040] which people will enjoy and spend and do what they want,
+- [09:26.300] but we're also going to be
+- [09:27.630] reducing debt very substantial --
+- [09:28.870] The Press: What if the Supreme Board rules against you, sir?
+- [09:30.490] Is there a guarantee --
+- [09:31.730] The President: Well, then I'll have to do something else.
+- [09:34.730] We'll have to figure something else.
+- [09:35.980] That would be a very sad day for our country. We use --
+- [09:40.250] Just today, I stopped a war. I won't go into which one,
+- [09:44.020] but you'll be able to figure it out.
+- [09:45.470] The Press: Cambodia and Thailand.
+- [09:46.710] The President: But I -- that was quick.
+- [09:48.770] Very smart. Good, thank you.
+- [09:51.040] But just today, I stopped a war by the use of tariffs.
+- [09:55.340] Oftentimes, I'm able to do that.
+- [09:57.180] And if you think of the cost of war,
+- [09:58.720] just forget about death, which is number one,
+- [10:01.730] but the death within those countries,
+- [10:03.790] but that all comes to
+- [10:05.010] (inaudible), in one form or another,
+- [10:06.230] it all comes right back to us.
+- [10:08.640] I stopped the war just today through the use of tariffs,
+- [10:11.940] the threat of tariffs.
+- [10:13.420] The President: If we didn't have that,
+- [10:14.880] other countries would use tariffs on us,
+- [10:17.350] and we would have no fair means of fighting back.
+- [10:20.250] The Press: Is that a (inaudible)
+- [10:21.520] if Cambodia and Thailand just stopped?
+- [10:23.920] The President: They're doing great.
+- [10:25.760] They were not doing great.
+- [10:26.990] And then, then, you know, they had a conflict as you know.
+- [10:31.560] And I spoke to the prime ministers of both countries,
+- [10:34.130] and they're doing great.
+- [10:35.750] I think they're going to be fine.
+- [10:37.320] The Press: Mr. President,
+- [10:38.540] what are you doing on healthcare subsidies?
+- [10:40.560] We see people's ACA premiums going up soon.
+- [10:41.950] The President: Yeah. Healthcare subsidies is a good question.
+- [10:44.300] So Obamacare, which is the Unaffordable Care Act,
+- [10:47.750] it's, it is totally unaffordable.
+- [10:49.710] We want -- you see the kind of money
+- [10:53.760] the insurance companies are making,
+- [10:55.790] hundreds of billions of dollars.
+- [10:57.950] Their stock is up over a 1,000 percent over a period --
+- [11:01.500] a relatively short period of time.
+- [11:04.060] What we're going to be doing,
+- [11:05.440] what I'm going to be recommending, not this.
+- [11:08.500] Obamacare is a disaster, far too expensive and lousy health care.
+- [11:12.570] We're going to give the money to the people
+- [11:14.830] to buy their own healthcare.
+- [11:16.780] And the kind of money that we give to the insurance companies
+- [11:19.960] is more than going to take care of it.
+- [11:22.380] People are going to be able to buy their own health insurance,
+- [11:25.410] and it's going to be great healthcare,
+- [11:27.590] and they're going to get paid by the government.
+- [11:30.260] The government will be do --
+- [11:31.610] it'll be one of the greatest deals this country's ever made.
+- [11:35.270] So we're -- Instead of giving it to insurance companies,
+- [11:38.110] big, fat, bloated insurance companies,
+- [11:41.420] we're giving the money directly to the people
+- [11:44.410] to buy their own healthcare.
+- [11:46.080] The Press: Won't Americans buy it from insurance companies?
+- [11:48.620] The President: Some may.
+- [11:49.860] I mean, they'll be negotiating prices,
+- [11:52.140] truly free enterprise. They'll be a --
+- [11:54.000] you know, you can do it through an insurance company.
+- [11:56.340] You can also buy it direct.
+- [11:57.760] You know, they have savings accounts.
+- [11:59.700] They have a lot of different ways of buying healthcare.
+- [12:02.160] The Press: I got a question.
+- [12:03.430] You asked for an investigation today,
+- [12:05.510] the people with (inaudible)
+- [12:07.050] a major democratic donor, what impact do you hope
+- [12:10.080] that that an active investigation could have on next
+- [12:11.870] (inaudible)?
+- [12:13.070] The President: And I heard they are appointing
+- [12:14.390] the U.S. attorney,
+- [12:15.610] and I hear a really good one to look into.
+- [12:17.860] I hear Southern District
+- [12:19.160] is going to be looking at Jay Clayton,
+- [12:21.480] that he's a great man, a great attorney,
+- [12:24.320] and he's a highly respected --
+- [12:25.760] one of the most respected people in the country
+- [12:28.190] in terms of law and law enforcement.
+- [12:30.900] As you know, he headed up the SEC,
+- [12:32.520] he was the head of Sullivan and Cromwell for years.
+- [12:36.770] He's one of the most respected people in the country.
+- [12:39.230] He's, been confirmed for the Southern District.
+- [12:43.190] And I heard Jay is going to be looking into it.
+- [12:45.210] Jay Clayton is a real --
+- [12:47.410] You know, he's a real legal talent
+- [12:49.260] and a very, very legitimate person.
+- [12:51.130] The Press: Do you believe that a president
+- [12:52.570] should be able to order investigations?
+- [12:53.980] The President: (inaudible)
+- [12:55.190] the chief law enforcement officer of the country.
+- [12:59.050] Not that I want to use that, but I am considered
+- [13:01.880] the chief law enforcement agent in the country.
+- [13:05.160] And I'm a, I'm allowed to do it.
+- [13:07.420] I don't want to do it. I'm not doing it.
+- [13:09.000] I had nothing to do with that choice.
+- [13:10.490] As an example that came from Pam Bondi, from the DOJ.
+- [13:15.640] But it -- Yyou can't pick a better person than Jay Clayton.
+- [13:18.860] He's truly one of the most respected people in that world.
+- [13:22.880] The Press: Have you (inaudible)
+- [13:24.130] tracking the Georgia RICO case at all,
+- [13:26.230] did you see the news on that today?
+- [13:27.640] The President: Which one?
+- [13:28.860] The Press: The Georgia case, the RICO case.
+- [13:30.180] Apparently they're continuing with the investigation into you
+- [13:33.870] and your allies, related to the 2020 election.
+- [13:35.970] Not tracking that?
+- [13:37.210] The President: You mean the Fannie Willis case?
+- [13:38.530] The Press: I think so.
+- [13:39.730] The President: I can't imagine.
+- [13:41.010] And I thought that case was over.
+- [13:42.600] I was told that case was totally over.
+- [13:44.810] The Press: Mr. President, have you
+- [13:46.220] (inaudible) a pardon for Ghislaine Maxwell?
+- [13:48.030] The President: I haven't even thought about it.
+- [13:49.510] I mean, I haven't thought about it for months.
+- [13:53.070] Maybe I haven't thought about it at all.
+- [13:54.640] You're just asking me a question.
+- [13:56.430] And I don't talk about that. I don't rule it in or out.
+- [13:58.690] I don't, I don't even think about it.
+- [14:00.560] The Press: On Epstein (inaudible)
+- [14:03.020] the congresswoman was on CBS News.
+- [14:04.530] She was talking about how the files should be released.
+- [14:07.480] We anticipate that a vote will happen in the house.
+- [14:10.220] I know that you had the, the,
+- [14:12.170] (inaudible) about the investigation today.
+- [14:14.020] The President: I don't care about it, released or not.
+- [14:15.790] What I think you should do, if you're going to do it --
+- [14:17.410] I don't care about it released or not.
+- [14:18.660] What I think you should do, if you're going to do it,
+- [14:20.480] then you have to go to Epstein's friends.
+- [14:22.420] There's Reid Hoffman, spent a lot of time with the island.
+- [14:25.680] I, I was never on his island.
+- [14:28.550] Bill Clinton went there supposedly 28 times.
+- [14:31.370] You're going to have to look into his friends
+- [14:34.310] because, you know, if they're going to do that,
+- [14:36.580] and I think the perfect guy to do it would be
+- [14:38.340] Southern District, somebody like Jay Clayton,
+- [14:40.720] I understand that's who's been assigned
+- [14:42.370] (inaudible)
+- [14:43.570] The Press: You're willing to release of more files,
+- [14:45.890] is there a timeline on this?
+- [14:47.200] The President: (inaudible) have a point?
+- [14:48.530] The Press: Does she have a point?
+- [14:49.750] The President: I know nothing about her.
+- [14:51.990] The Press: Or release the files, all the files.
+- [14:53.640] The President: Well, she can have,
+- [14:54.850] they can have whatever they want. They already do.
+- [14:57.190] I think they have 50,000 pages already.
+- [14:59.880] Look, this is a Democrat hoax,
+- [15:02.480] this is a hoax put out by the Democrat,
+- [15:05.200] and a couple of few Republicans have gone along with it
+- [15:07.870] because they're weak and ineffective.
+- [15:09.820] But this is a Democrat hoax to get away from the fact
+- [15:12.600] that they just lost the shutdown and they've lost the elections,
+- [15:16.030] they've lost the big election to me in a record number.
+- [15:19.930] They lost the popular vote. They lost the swing states.
+- [15:23.990] They lost everything.
+- [15:25.680] I think it was 312 to 220-something.
+- [15:28.580] So, this is a way of not talking about that, it's a hoax.
+- [15:33.050] This is no different than Russia, Russia, Russia,
+- [15:35.710] and it's headed up by Democrats and some very weak Republicans.
+- [15:39.510] The Press: I was just wondering
+- [15:40.810] if you have a timeline for when --
+- [15:42.460] timeline for when you might release more of those files.
+- [15:44.250] The President: Which one? Which --
+- [15:45.510] The Press: Democrats to Epstein.
+- [15:46.810] The President: Well, I don't know.
+- [15:48.030] (inaudible) about those files, I know nothing about it,
+- [15:49.840] but I understand they released like 40,000
+- [15:52.210] or 50,000 pages already.
+- [15:54.090] And nobody -- I will say this, if they had anything,
+- [16:00.150] they would've used it before the election, okay?
+- [16:03.500] We can't tell you what they put in since the election,
+- [16:06.160] but if they had anything,
+- [16:07.470] you don't think they would've used it before the election?
+- [16:09.990] They would've gladly used it before the election.
+- [16:13.440] Jennifer.
+- [16:14.720] The Press: Why were you -- why was your team
+- [16:16.630] encouraging Congresswoman Boebert,
+- [16:19.890] Congresswoman Mace to not pursue this?
+- [16:22.100] The President: Because we think it's bad to talk about it
+- [16:24.500] because it gets away from the subject
+- [16:26.510] of how well the Republicans are doing.
+- [16:28.920] We have the greatest economy, we have the largest investment
+- [16:32.350] ever made in our country's history,
+- [16:34.300] we have all of these great things happen,
+- [16:36.060] we have very little inflation, whereas he had record setting,
+- [16:39.070] the biggest inflation in history.
+- [16:41.330] All of these things are good,
+- [16:42.700] and when you talk about the Epstein hoax,
+- [16:45.130] what happens is you're not talking about
+- [16:47.370] how well we've done --
+- [16:49.450] The whole purpose behind them. They want to waste people's time
+- [16:54.090] and some of the dumber Republicans like them.
+- [16:59.880] It's mostly Democrats but --
+- [17:01.580] The Press: Are we going to see more domestic travel from you
+- [17:03.730] as you try to sell that message,
+- [17:05.050] are we going to see some rallies?
+- [17:06.460] The President: Domestic travel?
+- [17:07.760] The Press: Yeah, to sell your message.
+- [17:08.960] The President: But I'm here, I just got back from a big trip,
+- [17:11.180] a very successful trip with (inaudible),
+- [17:13.730] and with, you know, all the countries that I saw,
+- [17:16.110] many countries over there, but we stopped at Malaysia,
+- [17:19.080] Japan, South Korea, it was a phenomenal trip.
+- [17:22.290] We had a great meeting with President Xi,
+- [17:23.840] who's, you know, a great leader, great country actually,
+- [17:26.910] whether you like it or not.
+- [17:28.580] China's a great country, amazing, amazing place,
+- [17:33.040] and Japan, amazing place. We stopped at,
+- [17:36.090] tremendous countries with tremendous leaders,
+- [17:38.780] and we did really well,
+- [17:40.050] we brought back trillions of dollars
+- [17:42.400] in trade and other things.
+- [17:44.260] The Press: But someone like Marjorie Taylor Greene,
+- [17:45.900] someone like Marjorie Taylor Greene
+- [17:47.700] would say you're spending too much time overseas,
+- [17:50.140] you're not spending enough time selling your domestic --
+- [17:51.980] The President: No I said that Marjorie Taylor Greene said,
+- [17:54.020] "Oh gee, I'm spending too much time overseas.'
+- [17:56.740] So let's say I don't meet with China.
+- [17:59.130] You know what's happening right now to Georgia,
+- [18:01.750] to every other state?
+- [18:03.240] They're not working because your magnets
+- [18:06.440] and your rare earths would've kicked in
+- [18:08.490] and there wouldn't be a factory in the world that was working.
+- [18:11.400] If I didn't have a relationship overseas with China,
+- [18:14.890] with Japan, with South Korea,
+- [18:16.700] with all of them, Malaysia went to Malaysia,
+- [18:20.020] but visited many more countries than that,
+- [18:22.520] if we didn't do that, if we just stayed right here,
+- [18:25.000] you would right now have no factory anywhere in the world
+- [18:28.000] that would be working because of rare earth with China.
+- [18:31.520] Not only that, we made a deal with China,
+- [18:33.950] we've taken billions and billions of dollars.
+- [18:36.720] We made a deal with Japan, we've taken billions of dollars.
+- [18:39.560] We made a deal with South Korea,
+- [18:40.970] we're taking in billions and billions of dollars.
+- [18:44.270] If I would stay home, none of that would be happening.
+- [18:46.960] And, and by the way, I stay home 95, 98 percent of the time.
+- [18:51.740] The last thing I want to do is travel 22 hours in an airplane,
+- [18:55.210] as nice as this plane is.
+- [18:57.310] So Marjorie Taylor Greene is not any way,
+- [19:01.060] I mean, she has a very different thinking than I have.
+- [19:04.470] Something happened to her over the last period of a month
+- [19:07.900] or two where she changed I think politically.
+- [19:10.760] I think that her constituents aren't going to be happy.
+- [19:14.220] Already I have people calling me,
+- [19:15.880] they want to challenge her to race
+- [19:18.490] in her district in Georgia, and you know, that's too bad.
+- [19:22.310] She's lost a, a wonderful Conservative reputation,
+- [19:25.880] but when she says, "Don't go overseas."
+- [19:28.390] If I didn't go overseas,
+- [19:29.980] we might be in a war right now with China.
+- [19:32.130] The Press: (inaudible)
+- [19:33.380] nuclear sites testing, Sir, on nuclear testing.
+- [19:35.480] Sir, are you receiving any meetings about
+- [19:37.280] (inaudible).
+- [19:38.480] The President: We're going to do nuclear test make clear tests
+- [19:39.960] because other people test.
+- [19:41.440] We have other countries that test.
+- [19:43.510] We have more nuclear weapons than any other country.
+- [19:46.710] I'm the one that renovated them and built some,
+- [19:49.290] and I hated to do it, but I had no choice because they have it.
+- [19:52.970] We have more, Russia second, then China is a distant third,
+- [19:56.770] but within four or five years, they're going to be up with us.
+- [20:00.020] What I would like to do
+- [20:01.750] is I would like to go denuclearization.
+- [20:04.200] In other words, where we have a meeting primarily of the top
+- [20:08.620] three to cut back on nuclear weapons.
+- [20:10.790] That would be a great thing.
+- [20:12.170] The Press: How soon could a test take place though?
+- [20:13.480] The President: Pretty soon. Let's say pretty soon.
+- [20:15.190] The Press: China's (inaudible) US?
+- [20:17.350] The President: We're number one. Russia's number two.
+- [20:19.410] China's number three. They're catching up.
+- [20:22.990] They're quite a bit distant from us right now,
+- [20:25.080] but they, they'll catch us in four, five.
+- [20:27.310] And I think,
+- [20:28.700] I think the best thing would be if we denuclearize.
+- [20:32.050] The Press: Mr. President,
+- [20:33.310] could you tell us why you needed to get an MRI?
+- [20:36.480] I understand that the results were good, but what was it for?
+- [20:39.860] The President: Because it's part of my physical.
+- [20:41.860] Getting an MRI is very standard.
+- [20:43.130] Well, you think I shouldn't have it?
+- [20:44.460] Other people got it.
+- [20:45.690] The Press: (inaudible) specific part of your body.
+- [20:46.910] The President: I had an MRI. Here's what you s- -- serious.
+- [20:49.780] I had an MRI. The doctor said it was the best result
+- [20:53.880] he has ever seen as a doctor. That's it.
+- [20:57.470] But I had an MRI as part of my standard yearly or every w- --
+- [21:03.050] I think they do it every two years,
+- [21:04.600] but I have the physical every year.
+- [21:06.880] And the result was outstanding.
+- [21:11.420] I have no idea what they analyzed,
+- [21:14.160] but whatever they analyzed, they analyzed it well.
+- [21:17.610] And they said that I had as good a result as they've ever seen.
+- [21:21.510] Now the other thing I took is I took as you know,
+- [21:24.200] a, advanced, very advanced test on mental acuity.
+- [21:31.490] Because I think a president should have to do that.
+- [21:34.250] And as you probably heard, I aced it.
+- [21:36.320] I got a perfect score.
+- [21:38.000] I got the highest one, I got a perfect score.
+- [21:40.490] And the only reason I tell you that is it's one subject,
+- [21:43.750] unlike Biden and others, that you can take off your plan.
+- [21:46.690] The Press: (inaudible)
+- [21:47.890] nuclear testing. Just to be very specific.
+- [21:50.240] Are you saying you want to explode a warhead?
+- [21:53.210] The President: I don't want to tell you about that.
+- [21:54.630] But we will do nuclear testing like other countries do.
+- [21:58.160] We have more nuclear weapons than any other country,
+- [22:00.770] and we have to test.
+- [22:02.050] The Press: Republicans took a hit in the last election.
+- [22:04.570] Do you think you'll get on the road for the next election?
+- [22:06.480] The President: Oh yeah, I'll be helping people.
+- [22:07.860] Yeah.
+- [22:09.080] I'll be on the road helping people.
+- [22:10.680] Sorry, but the midterms are very important.
+- [22:13.220] And again, I think we should terminate the filibuster.
+- [22:15.570] Republicans should terminate the filibuster.
+- [22:18.220] The Democrats would do it immediately.
+- [22:20.720] If they ever got power.
+- [22:22.010] And without Manchin and Sinema, they would've done it
+- [22:24.320] (inaudible)
+- [22:25.520] The Press: (inaudible) open to endorsing someone?
+- [22:26.800] Primary Marjorie Taylor Greene given her latest statements.
+- [22:30.780] The President: Well, it depends on who runs against her.
+- [22:32.630] I mean, I'm no longer much of a fan
+- [22:34.240] because I disagree with her policy.
+- [22:36.380] When she said that, you know, going to foreign countries,
+- [22:40.210] bringing back trillions of dollars is not important.
+- [22:44.180] Do you think I want to go and be on an airplane for 20 hours?
+- [22:49.000] Some of you were with me, 22 hours to be exact travel
+- [22:52.980] and then get off and make a speech
+- [22:54.620] and get people to invest hundreds of billions of dollars
+- [22:57.720] in our country.
+- [22:59.010] I'd rather do it without having to go.
+- [23:00.770] But if you didn't go,
+- [23:02.320] you wouldn't be able to have that kind of result.
+- [23:05.290] As an example, Malaysia, if you look at Thailand,
+- [23:09.620] I stopped a war in Thailand and Cambodia.
+- [23:11.940] If I didn't go to that region,
+- [23:13.970] I probably wouldn't have been able to stop that war.
+- [23:16.700] That war would've been very costly in terms of lives,
+- [23:19.770] but even costly in terms of us.
+- [23:22.750] The Press: Are you meeting with Indiana lawmakers next week?
+- [23:24.970] Are you meeting with lawmakers from Indiana next week
+- [23:26.820] (inaudible)
+- [23:28.020] The President: Not that I know. I might be. I don't know.
+- [23:29.570] They will, I guess they're making a decision
+- [23:31.810] as to whether or not they want to gain
+- [23:34.490] for the Republican Party one or two more.
+- [23:38.260] By the way, I will say this. I heard one or two more seats.
+- [23:41.990] I heard that a big lawsuit will be taking place is,
+- [23:47.040] but will be taking place concerning the California hoax.
+- [23:50.720] Where they're trying to get five more seats.
+- [23:53.540] And California is one of the most dishonest elections ever.
+- [23:57.110] They send out tens of billions of ballots
+- [23:59.910] to people all over the place.
+- [24:02.000] Many of those people get two and three ballots
+- [24:04.490] and they come back.
+- [24:05.690] California's a disgrace on voting
+- [24:08.670] and they're doing something that is very illegal.
+- [24:11.500] The President: So we're, we have, we o-
+- [24:12.880] -- or we'll be suing California on the five seats.
+- [24:14.620] The --
+- [24:15.830] The Press: The Department of Justice will be?
+- [24:17.620] The President: The Department of Justice.
+- [24:19.040] Yes. Being headed by the Department of
+- [24:20.520] (inaudible)
+- [24:21.720] The Press: You're meeting the Saudi Crown Prince next week.
+- [24:23.660] Tell us (inaudible) The President: (inaudible)
+- [24:24.880] meeting we're honoring, Saudi Arabia, the Crown Prince,
+- [24:27.880] (inaudible)
+- [24:29.090] The Press: What are your goals in the meeting and have you
+- [24:30.360] (inaudible)
+- [24:31.560] to the sell F-35 fighter jets to the Saudi Arabia.
+- [24:34.120] Why you'd do that?
+- [24:35.380] The President: Well, they wanted to buy a lot of jets.
+- [24:38.230] We make the best jets. We make the best missiles.
+- [24:40.580] You saw that when we took out the nuclear capability of Iran.
+- [24:45.500] No, you know, for 22 years they wanted to do that.
+- [24:48.470] No president had the guts to do it.
+- [24:50.330] We did it. And Iran is a different place.
+- [24:52.620] By the way, Iran wants to negotiate a deal too.
+- [24:55.720] Everybody wants to negotiate with us now.
+- [24:58.520] If we didn't have military strength,
+- [25:00.330] if we didn't rebuild our military in my first term
+- [25:03.280] and now we continue to do it,
+- [25:05.200] Biden dissipated it by giving a chunk to, the Taliban.
+- [25:09.160] Not, not a good idea. (inaudible)
+- [25:11.300] But you know what the good news is?
+- [25:13.270] It was a lot, but relatively very little.
+- [25:16.180] The Press: So (inaudible) you're not sure yet?
+- [25:18.620] The President: I'm looking at that.
+- [25:19.850] They've asked me to look at it. They want to buy a lot of, 35.
+- [25:22.790] But they want to buy actually more than that, fighter jets.
+- [25:24.590] Yeah.
+- [25:25.810] The Press: Will the Abraham Accords
+- [25:27.210] be a part of that conversation? The President: What?
+- [25:28.900] The Press: Perhaps getting -- The Abraham Accords,
+- [25:30.360] getting Saudi Arabia to (inaudible)
+- [25:31.670] The President: The Abraham Accords will be a part.
+- [25:33.310] We're going to be discussing -- I hope that Saudi Arabia will be
+- [25:36.310] going into the Abraham Accords fairly shortly.
+- [25:40.260] We've had tremendous interest in the Abraham Accords
+- [25:43.410] since we put Iran out of business.
+- [25:47.210] Okay. Thank you much. Thank you everybody.
+- [25:49.410] The Press: Thank you very much, Mr. President.

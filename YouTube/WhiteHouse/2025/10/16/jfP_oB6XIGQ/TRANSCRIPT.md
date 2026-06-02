@@ -1,0 +1,853 @@
+<!-- source: https://www.youtube.com/watch?v=jfP_oB6XIGQ -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: jfP_oB6XIGQ -->
+<!-- date_published: 2025-10-16T01:14:38+00:00 -->
+<!-- date_accessed: 2026-06-02T01:13:01.916795+00:00 -->
+
+# Transcript: President Trump Hosts a Ballroom Dinner
+
+- [00:11.150] Announcer: Ladies and gentlemen,
+- [00:12.470] the President of the United States.
+- [00:15.820] ♪ (Hail to the Chief) ♪
+- [00:34.085] (applause)
+- [01:07.300] The President: Thank you very much, everybody.
+- [01:09.690] Thank you very much.
+- [01:10.920] It's a real honor to be with you.
+- [01:13.270] I got back from the Middle East.
+- [01:14.560] We had a really historic trip to say the least of it.
+- [01:21.060] Tremendous progress on peace in the Middle East which --
+- [01:24.160] a term that hasn't even been used in 50 years probably.
+- [01:28.960] And it's 3000 years we're playing with,
+- [01:31.450] so people thought that was something,
+- [01:34.130] and it really was incredible. We have tremendous friendships,
+- [01:39.890] and we've developed some friendships
+- [01:41.310] even over the last few days and it's going very well.
+- [01:45.320] And we got the hostages back, which was a big deal.
+- [01:49.350] (applause)
+- [01:59.180] Everybody feels that way.
+- [02:00.530] But other things are happening.
+- [02:01.860] Even today, things are happening that are very positive.
+- [02:04.160] Everyone wants to see it happen.
+- [02:06.150] Countries that didn't get along with each other
+- [02:08.170] are now seemingly in love with each other.
+- [02:10.840] Now the Middle East hasn't changed perhaps,
+- [02:12.740] but the deal will still be there.
+- [02:16.200] I think it's going to be something to remember.
+- [02:18.950] We've settled now eight wars, if you think.
+- [02:22.040] We've settled now eight.
+- [02:23.830] (applause)
+- [02:28.980] Now we have another one left.
+- [02:30.200] One of the easier ones I thought was going to be Russia.
+- [02:32.300] I thought the Russia and Ukraine would be easy.
+- [02:33.990] It would've never happened, it should have never happened.
+- [02:36.570] But a lot of people are being killed in that war.
+- [02:38.320] That was -- It's the bloodiest war since the second world war.
+- [02:43.020] I think that we'll get that one too. We'll stop it.
+- [02:46.180] You know, it's not from the U.S.
+- [02:48.180] these soldiers that are dying all over the place.
+- [02:50.840] 7,212, they say last week. Think of that, 7,212 soldiers.
+- [02:57.740] For no reason. Should have never happened.
+- [03:00.920] If the right person were here, it wouldn't have happened.
+- [03:02.900] I can guarantee you that.
+- [03:04.680] But it did happen, and we've made some good progress.
+- [03:08.410] We've interestingly made a lot of progress today
+- [03:10.470] because of what took place in the Middle East.
+- [03:13.000] Only the deep thinking business people would understand that,
+- [03:17.160] of which we have a lot of them.
+- [03:18.390] We have a lot of legends in the room tonight.
+- [03:21.460] And that's why we're here, to celebrate you
+- [03:23.880] because you've given tremendous amounts of money
+- [03:28.690] to see a ballroom built for the first time at the White House.
+- [03:32.340] The White House, for 150 years plus,
+- [03:36.270] they've wanted to have a ballroom,
+- [03:37.760] and it never happened
+- [03:39.000] because they've never had a real estate person.
+- [03:42.070] For me, I like it. For me, it's like -- I love it.
+- [03:45.050] In between China and Russia
+- [03:47.140] and everything else that we deal with,
+- [03:50.530] it's going to be a great ballroom.
+- [03:52.920] Going to be a great ballroom.
+- [03:54.630] As an example, this has really been the ballroom
+- [03:57.060] for many years, and it holds a hundred people,
+- [04:00.020] of which we have 125 today, I think.
+- [04:03.290] But you know, we have 128 and I've never seen it with 128.
+- [04:08.020] And by the way, you're going to have a little good entertainment
+- [04:10.010] from the military band right after this.
+- [04:11.970] You'll see some really talented musicians.
+- [04:14.220] They're going to do a few songs and you're going to love them.
+- [04:17.430] They're very talented people.
+- [04:20.540] So for years they've wanted to have it.
+- [04:22.700] And when they have the head of China,
+- [04:24.360] the head of any country,
+- [04:26.610] many, many of the countries came,
+- [04:29.650] they'd always put the tent out on the lawn.
+- [04:33.230] And if it was not raining,
+- [04:35.440] you'd get away with it a little bit,
+- [04:37.360] but it's still a tent. And the biggest (inaudible)
+- [04:42.290] not only political, but in many other ways too,
+- [04:46.040] and so I always said that if I pull it off again,
+- [04:51.260] we are going to build the ballroom
+- [04:52.890] and I'm going to start right at the beginning.
+- [04:54.400] And we had it designed by one of the top architects in Washington
+- [04:58.720] who's very, very respected and --
+- [05:01.340] Very, very respected actually.
+- [05:02.820] And we started the process and we have it concluded,
+- [05:06.890] and it's actually starting right behind us.
+- [05:09.780] And if you look, this is really a knockout panel.
+- [05:12.870] Should I show you? I guess maybe (inaudible)
+- [05:14.820] so you can see, you know?
+- [05:19.820] So we don't really want you to walk on there,
+- [05:22.910] but you can take a look if you want.
+- [05:24.460] (inaudible) there it is.
+- [05:25.690] Because we took out all the strength from underneath.
+- [05:29.270] We'll collapse that over the next few days.
+- [05:32.200] It's going to be demolished.
+- [05:34.660] Everything out there is coming down
+- [05:36.470] and we're replacing it
+- [05:37.730] with one of the most beautiful ballrooms that you've ever seen.
+- [05:41.090] And you have some pictures and basically it's right here.
+- [05:43.900] Here's your White House, here's the West Wing;
+- [05:46.890] and here's the east side,
+- [05:49.020] which has been tinkered with for years and years and years.
+- [05:51.860] And they had originally a very beautiful building,
+- [05:56.810] they called it the East Wing,
+- [05:58.200] but that was sort of semi knocked down
+- [06:01.090] about five times and changed and redone.
+- [06:03.680] Everything else was originally done by McKim,
+- [06:05.720] Mead & White, you know?
+- [06:10.190] So that came down and mostly it's taken down already,
+- [06:13.680] and we've started excavation.
+- [06:15.970] I'm very good at building things on time, on budget,
+- [06:18.200] and I can tell you, you're not going to see like the fed
+- [06:20.540] where they're up to $4 billion
+- [06:21.770] or something to paint some walls.
+- [06:24.480] It's the craziest thing I've ever seen.
+- [06:26.240] This guy, he's too late.
+- [06:27.920] He should have been too late with that one.
+- [06:29.580] Not done it. It would've -- It didn't need to be done.
+- [06:32.980] He could have painted the ceilings.
+- [06:34.210] They ripped down a gorgeous ceiling like this,
+- [06:36.180] and then they said,
+- [06:37.530] "Oh, we have a problem. Now we have to put one up.
+- [06:39.320] How do you do a ceiling like this?"
+- [06:41.670] And they're way over budget.
+- [06:42.940] They decided they wanted to do a basement,
+- [06:45.690] but unfortunately the basement is right next to you
+- [06:48.060] and you're right next to the Potomac.
+- [06:50.280] And when we went down, they should have stopped immediately,
+- [06:52.270] because they should have known,
+- [06:54.230] but they have a little thing called the Potomac River
+- [06:56.290] where the basement is.
+- [06:57.740] But they said, "We're going to get it done anyway."
+- [06:59.860] So you build what's called the reverse bathtub.
+- [07:02.890] And it's not that uncommon,
+- [07:04.410] but it is actually a reverse ceiling.
+- [07:07.940] The problem is nature always wins.
+- [07:09.870] I know a lot about reverse bathtubs. I've done it.
+- [07:12.820] And it's something you only do in an emergency.
+- [07:16.070] There was no reason to do it there.
+- [07:18.180] They could have actually -- If you think about it,
+- [07:19.760] they could have added three floors on top,
+- [07:21.590] but it would've cost about $2 billion less.
+- [07:23.700] So they ended up in this disaster of building
+- [07:26.610] a basement in the Potomac River and keeping the water out.
+- [07:30.940] It's very hard to do as you're pouring your concrete,
+- [07:33.920] which has to be dry, and it's been a disaster.
+- [07:37.150] And this is the same guy
+- [07:38.410] that keeps your interest rates too high.
+- [07:41.750] We should be much lower in interest.
+- [07:43.220] We're doing so well,
+- [07:44.460] but we would've been as good as that or even better.
+- [07:48.360] I don't think it's affected us much.
+- [07:49.930] You can't. We have an all-time high stock market.
+- [07:52.590] Everybody in this room is extremely happy with Trump.
+- [07:55.570] If you weren't, I would've postponed it.
+- [07:57.040] I would've said, "Let's do it some other time."
+- [07:59.800] But the stock market hits records
+- [08:02.700] almost all the time.
+- [08:04.510] Every once in a while we'll have a little situation
+- [08:07.690] come up that drives it down, but it comes right back.
+- [08:10.570] We're doing really well in trade.
+- [08:12.030] We're taking in hundreds of billions
+- [08:13.570] of dollars on the tariffs.
+- [08:15.000] The tariffs are making this country so rich,
+- [08:17.600] and they're making it powerful.
+- [08:19.710] We stopped a lot of these wars using trade. We had --
+- [08:24.590] As an example, India and Pakistan
+- [08:26.910] were going at it really hard. Seven planes were shot down.
+- [08:30.980] It was going to happen. Bad things were happening.
+- [08:33.710] And I was talking to both of them about trade,
+- [08:36.510] and I said, "How are we doing with those two?"
+- [08:38.040] "Sir, we're doing very well." I went,
+- [08:39.590] "Great. Well, we're not going to do well.
+- [08:41.000] We're not going to do a trade deal
+- [08:42.250] unless they stop the war."
+- [08:44.450] And I got them on the phone and I said,
+- [08:47.590] "Listen, we're going to put a 200 percent tariff
+- [08:50.640] on your country for any product you sell into the United States
+- [08:55.280] unless you stop this war,
+- [08:57.630] because I'm not going to be a party to it."
+- [08:59.080] You have two nuclear nations, by the way.
+- [09:01.780] "No, no, no. You can't do that."
+- [09:03.180] I say, "I can do that. Very easily I can.
+- [09:05.180] We're not going to lose millions of people from the planet."
+- [09:08.540] And frankly, that dust can blow over here too.
+- [09:10.650] It affects everything.
+- [09:11.850] It's a powerful, powerful weapon. Too powerful.
+- [09:15.680] So powerful you don't want to talk about it.
+- [09:18.280] So they said, "No, no." And I said, "Yes, yes.
+- [09:21.210] And here's the story. If you're going to go and do it,
+- [09:24.220] we're cutting off all negotiations.
+- [09:25.880] There'll be no trade with the United States of America."
+- [09:29.180] Both nations, spoke to them both.
+- [09:30.840] I like both the leaders, I like them both a lot.
+- [09:34.030] But I said, "That's the way it is."
+- [09:35.850] And I get a call the next day,
+- [09:37.200] "We have decided to de-escalate."
+- [09:39.550] I said, "I thought you would actually."
+- [09:41.780] "We have decided that we will not fight."
+- [09:46.370] I said, " Have you come to a conclusion?"
+- [09:47.950] "Yes, we're not going to do any more of this stuff."
+- [09:49.890] It's just like that. This could have been a nuclear war.
+- [09:52.080] Probably would've been.
+- [09:53.350] In fact, the Prime Minister of Pakistan came and saw me
+- [09:57.970] and he was emotional about it.
+- [10:00.740] And in front of a group of people, he said,
+- [10:02.300] "This man saved 3 million, 5 million,
+- [10:06.120] maybe an untold number of lives."
+- [10:09.510] And it was just recently that this happened, so --
+- [10:12.400] And we did numerous of them like that,
+- [10:15.170] and part of the reason we did it was
+- [10:16.660] The President: --this trade. I think of the eight,
+- [10:18.710] I would say five were because of trade,
+- [10:21.040] the power of trade, but the power of tariffs.
+- [10:23.910] Tariffs have made us a very kind nation,
+- [10:29.320] because a lot of people aren't dying.
+- [10:31.680] I use it for purposes of stopping wars.
+- [10:34.520] I love stopping wars.
+- [10:36.540] And sort of interesting, I'll be the only president--
+- [10:40.110] I don't think any president has stopped one war.
+- [10:41.940] I stopped eight wars in eight months.
+- [10:44.630] Did I get a Nobel Prize? No. Could you believe it?
+- [10:48.590] Even I said, "Man, that's an impossible one,"
+- [10:51.470] but it's all right.
+- [10:53.330] I suspect they think next year will be better,
+- [10:55.290] but I don't know. I don't think. You know what I care about?
+- [10:57.330] I saved maybe hundreds of millions of lives,
+- [11:00.150] but certainly I saved (inaudible).
+- [11:08.200] So, now we'll get back to the point on hand.
+- [11:11.160] And you're really here
+- [11:13.080] because you've contributed to this incredible
+- [11:15.690] building that people have wanted for so many years.
+- [11:18.720] And we show another building, it's an Ark.
+- [11:21.070] It's the Ark. So, that circle,
+- [11:23.970] that's Arlington Memorial Bridge, as you know.
+- [11:26.440] That's the most important one, a very important structure.
+- [11:29.770] And at the end of it, you have a circle
+- [11:32.090] that was built 150 years ago. Nobody knows really when.
+- [11:37.080] And in fact, they put a couple of columns on each side.
+- [11:39.570] So, you have two columns on one side, two columns on the other.
+- [11:44.220] But yet, in the middle, just a circle.
+- [11:46.200] And everyone in the past has said,
+- [11:48.460] "Something was supposed to be built there," and that's true.
+- [11:51.290] But a thing called the Civil War interfered.
+- [11:53.310] That's a good reason.
+- [11:54.630] I would say that would be a good reason, the great hight promo.
+- [11:59.620] The Civil War, if you said you're having a war,
+- [12:02.150] I think they have a good reason not to build.
+- [12:04.770] Again, they were building the Washington Monument,
+- [12:06.370] then they stopped.
+- [12:07.670] And you could see where they stopped,
+- [12:09.000] because the stone is a little different color
+- [12:11.530] when you get up to the middle. But anyway, they stopped here.
+- [12:15.300] And then in 1902, they were going to put
+- [12:17.780] a statue of Robert E. Lee up. Would've been okay with me.
+- [12:22.280] A lot of people wouldn't have liked it.
+- [12:24.210] Would've been okay with me.
+- [12:25.430] It would've been okay with a lot of the people in this room,
+- [12:27.500] but they didn't do that.
+- [12:29.180] And so, for years and years it sat.
+- [12:32.150] And every time somebody rides over that beautiful bridge
+- [12:34.690] going right to the Lincoln Memorial, it's so beautiful.
+- [12:39.440] They literally say, "Something's supposed to be here."
+- [12:44.710] And so, we have versions of it, sizes of it.
+- [12:49.860] And it's going to be really beautiful.
+- [12:52.240] I think it's going to be fantastic.
+- [12:53.630] There's a rendering of what it will look like.
+- [12:56.100] You have three sizes. That would be the largest one.
+- [12:59.160] This is just a model of what it would look like
+- [13:01.220] in either of the three,
+- [13:02.700] any of the three sizes, which is right here.
+- [13:05.040] I don't know if you can see it. That's Lady Liberty.
+- [13:10.470] Did you ever hear of Lady Liberty?
+- [13:13.420] On top? So, the sizes would be very different.
+- [13:18.500] And it is lengthy. And this is
+- [13:21.370] (inaudible). They did this. They didn't do that.
+- [13:27.740] So, this would be small, medium, and large.
+- [13:33.170] (inaudible)
+- [13:38.810] whichever one to look good.
+- [13:40.650] I happen to think the large ones.
+- [13:44.570] Why are you shocked to hear that?
+- [13:46.940] So, we're going to just do something for the city,
+- [13:49.860] because we're so proud of what we've done with crime.
+- [13:52.430] This is a very safe city now.
+- [13:54.420] This went from a very unsafe city where you
+- [13:56.480] were afraid to go out to dinner to a city that's extremely safe.
+- [14:00.500] The people that we have working on this,
+- [14:04.590] it's been a miracle almost. It took 12 days.
+- [14:07.960] We took out 1,700 people, brought them back
+- [14:10.750] to their countries from where they came.
+- [14:12.530] Many of them were led in through the Biden open border.
+- [14:16.320] Brilliant thing where they let people in from jails,
+- [14:18.580] from prisons, and mental institutions, insane asylum.
+- [14:23.530] That's a mental institution on steroids.
+- [14:27.090] And I mean, they were literally emptying out
+- [14:29.350] insane asylums into our country.
+- [14:31.270] This is Venezuela, but other countries also,
+- [14:33.320] not only Venezuela.
+- [14:35.200] And speaking of Venezuela, we have a lot of drugs.
+- [14:38.460] We had a lot of drugs coming in by water and that stopped.
+- [14:43.100] In fact, nobody wants to go fishing anymore.
+- [14:46.440] Nobody wants to do anywhere, anything near the water.
+- [14:50.040] They might have a beautiful boat
+- [14:51.460] and they might as well get rid of their boat,
+- [14:53.070] because they're very nervous about going on the water.
+- [14:58.110] It's been amazing.
+- [14:59.330] So, now, we were having literally a subway train
+- [15:03.610] of people and drugs coming in
+- [15:06.840] (inaudible). A lot of them coming from Venezuela.
+- [15:09.300] A lot of them come from Mexico and Colombia
+- [15:10.870] in general, all fairness.
+- [15:12.150] But we wanted to knock out one track.
+- [15:15.760] And I can tell you, we cannot find anybody anymore.
+- [15:19.170] We're looking down there, looking down there.
+- [15:21.390] There's not a boat on the entire ocean
+- [15:24.530] that we can see outside of the ocean line.
+- [15:27.010] Is it even there? I'm a little bit concerned about
+- [15:28.830] (inaudible).
+- [15:30.210] But it shows you the power, and the strength,
+- [15:33.090] and the technology of our great military.
+- [15:38.580] I rebuilt the military in my first term.
+- [15:40.490] We had a great first term. We have the best economy ever.
+- [15:43.620] We had a rebuilding of the military.
+- [15:46.580] We had the big tax cuts and the wonderful--
+- [15:50.270] all of the assets of the tax cuts,
+- [15:51.980] including the one-year depreciation.
+- [15:53.860] You write it off in one year.
+- [15:55.770] Now we have better under the Great Big Beautiful Bill,
+- [15:59.280] because we have no tips for--
+- [16:01.800] Think of this, you have no tax on tips
+- [16:04.440] and you have no tax on Social Security
+- [16:06.840] you have for your workers. You have no tax on overtime.
+- [16:09.790] It's really, I would say a middle-of-the-road bill
+- [16:13.510] from the standpoint of who is it representing.
+- [16:15.720] It's the workers. It's the biggest bill
+- [16:18.290] ever passed in the history of Congress.
+- [16:20.830] And I'm glad we did, because we don't need any more bills.
+- [16:23.020] We have everything in that one.
+- [16:24.710] Plus, we have the deductibility every single year for 10 years.
+- [16:29.580] The other one had it for one year.
+- [16:30.880] You had a rush. This year and this time you don't.
+- [16:33.390] Actually, I was in favor of Russia,
+- [16:35.500] because that's awfully good for elections,
+- [16:37.100] but it's not about elections. It's awfully good.
+- [16:40.310] So, you have deductibility,
+- [16:41.510] you have so many different things.
+- [16:42.790] We have great social programs.
+- [16:44.410] $50 billion going to rural hospitals.
+- [16:48.080] So, the Great Big Beautiful Bill,
+- [16:49.740] and we got it all in one.
+- [16:51.080] I was very happy, because we had little arguments about that.
+- [16:54.130] A lot of people wanted to do it in small chunks.
+- [16:56.170] I said, if you do it in small chunks,
+- [16:57.650] we'll never get it approved.
+- [16:59.230] You'll get some approved, but not all of it.
+- [17:00.990] And not even close. You get much less.
+- [17:02.880] I would say less than 30%.
+- [17:05.420] So, they've never done this before.
+- [17:06.910] But every single thing that I wanted for four years,
+- [17:10.040] in one bill, and we call it-- Some people call it different.
+- [17:14.220] I call it the Great Big Beautiful Bill,
+- [17:16.240] because that's what it is. And this will keep us--
+- [17:19.560] What we want to manage it now, we're going to manage it.
+- [17:21.880] All you have to do is that, but we got it all approved.
+- [17:25.130] And one of the things I thought, though, while I do,
+- [17:26.900] because it's so relaxing for me, real estate is relaxing.
+- [17:29.540] For a lot of people, real estate is a very trying business.
+- [17:33.120] I've always liked it. I've always done well with it.
+- [17:35.730] I love building things.
+- [17:38.310] And this way I can build some beautiful things.
+- [17:40.870] And this, again, has never been built.
+- [17:44.220] And we're going to start that pretty soon.
+- [17:45.930] It's going to be great.
+- [17:47.130] And then the ballroom for the White House is the thing
+- [17:50.290] that you people have really, really been very generous with.
+- [17:53.970] And we're going to build a room that's going to be able to hold
+- [17:58.530] literally the inauguration, if we want.
+- [18:01.440] All of the glass on the sides is bulletproof.
+- [18:04.810] It's 999 people it can hold.
+- [18:07.620] So, if we figure we have 125 people in here
+- [18:10.300] approximately now, which I've never seen before.
+- [18:13.000] I've always heard it's less than 100.
+- [18:15.110] But it's amazing when you have too many people,
+- [18:16.970] you can fit them in.
+- [18:18.170] You can always fit a few more people in
+- [18:20.320] and pardon the fact that you're a little tight at your table.
+- [18:22.790] That's okay. That's better than lots of room for everybody,
+- [18:26.020] because nobody shows up.
+- [18:27.970] But you've been so generous in your contributions,
+- [18:33.180] very substantial money, fully financed.
+- [18:35.580] It's fully taken care of now.
+- [18:37.730] And in fact, we'll have money left over
+- [18:39.860] and we'll use that for something.
+- [18:41.470] We'll use that probably maybe for the Ark
+- [18:43.710] or something else that will come.
+- [18:44.960] But we love to fix up Washington.
+- [18:47.120] If you went to the Oval Office,
+- [18:49.170] you'd see the Presidential Walk of Fame.
+- [18:53.240] And you've heard about it.
+- [18:54.720] And with the exception of one particular picture,
+- [18:59.180] there's no controversy.
+- [19:00.710] It's beautiful. It's a beautiful thing.
+- [19:02.420] It's this beautiful long wall that existed for--
+- [19:05.550] It's just literally a wall with half windows on top.
+- [19:08.790] And that was originally built as a swimming pool.
+- [19:12.590] Now it's where the press is on the other side of the wall.
+- [19:16.730] And it's very interesting.
+- [19:17.960] All these people over here with all their cameras,
+- [19:21.430] although they've been very respectful,
+- [19:23.000] I'll tell you what, they've been very respectful
+- [19:25.310] for what's taken place over the last week.
+- [19:27.800] So, I want to thank you.
+- [19:29.080] This is just a small little group.
+- [19:30.840] They have a big group downstairs.
+- [19:34.990] They have a lot of reporters downstairs
+- [19:36.890] wanting to be where they are.
+- [19:38.270] I don't know. I guess, are you special? This is Doug.
+- [19:42.890] He won the highest awards there is in photography,
+- [19:48.260] including Pulitzer Prizes.
+- [19:50.620] He won many Pulitzer Prizes for his great work.
+- [19:56.000] One that I wasn't so happy with.
+- [19:57.610] He had one with a bullet moving along.
+- [20:00.820] He caught the bullet.
+- [20:02.120] Can you believe this? He got another Pulitzer.
+- [20:04.910] But anyway, it's great to have you, gentlemen.
+- [20:06.460] It's really good. They have a whole group down--
+- [20:07.850] It's a big group downstairs.
+- [20:09.060] I didn't think you'd like to have that up here,
+- [20:11.260] because some of them are sort of violent towards some of you,
+- [20:15.340] but not bad. So,
+- [20:16.560] The President: So we did a design
+- [20:20.840] that is being just lauded for the ballroom,
+- [20:24.920] showed it to the top people.
+- [20:27.750] One of the things that I like the most,
+- [20:29.950] I came in and I said to the people in the building,
+- [20:32.870] so I said, "If I make it back,
+- [20:35.730] I want to build a ballroom for the country, really.
+- [20:40.730] Because this is really, they call it the people's house,
+- [20:43.000] it's the country's house.
+- [20:44.560] I want to build a ballroom. It needs it badly.
+- [20:47.600] And a ballroom that could seat six or 700 people,
+- [20:50.590] so that when you have state dinners--
+- [20:52.160] Or more, if it's possible."
+- [20:54.210] And I said, "How long would the process take?"
+- [20:56.320] Because I'm so used to zoning, and I've gotten a lot of zoning
+- [21:00.220] over the years to these two guys,
+- [21:01.790] these two geniuses, like movie stars.
+- [21:04.620] And they have a good brain, besides.
+- [21:07.000] It's pretty nice to have you guys both with us.
+- [21:10.350] I said, "How long would it take?"
+- [21:13.200] They said, "Sir, you can start tonight."
+- [21:15.190] I said, "What are you talking about?
+- [21:16.710] You have zero zoning conditions, you're the president of--"
+- [21:19.760] I said, "You've got to be kidding.
+- [21:22.010] You mean I can actually do something that I really want?"
+- [21:25.180] Because I'm used to sitting with heads
+- [21:27.810] of community boards and politicians.
+- [21:30.200] And it's fine, it's part of the beauty,
+- [21:33.270] if you want to call it that.
+- [21:34.600] Or sometimes it's not so beautiful.
+- [21:36.620] Being a real estate developer, especially in New York,
+- [21:38.790] it takes you years and years and it's heartache.
+- [21:43.390] And they say, "Well, sir, we'd like you to cut off 40 stories."
+- [21:46.800] I had one where I headed, 67 stories was approved,
+- [21:50.590] and we go to the end and I get an emergency phone call
+- [21:52.950] from the head of the board, "Certainly we see you."
+- [21:55.370] They come in, "Sir, we're going to really not be able
+- [21:57.320] to approve it.
+- [21:58.520] We want you to cut off 42 stories. Cut off."
+- [22:01.070] In other words, I'm going to lose 42 stories.
+- [22:03.060] I said, "There's no way you're doing it."
+- [22:05.120] So we fought it out for two years.
+- [22:06.390] You end up getting what you want,
+- [22:07.600] but it's a brutal process.
+- [22:08.940] Saw over here, I said, "How long will it take me, sir?
+- [22:11.490] You can start tonight. You have no approvals."
+- [22:13.960] I said, "You've got to be kidding."
+- [22:15.350] He said, "Sir, this is The White House.
+- [22:17.800] You're the President of the United States.
+- [22:20.430] You can do anything you want."
+- [22:22.590] So with that came great responsibility
+- [22:25.860] and we did something
+- [22:27.140] that was really appropriate to The White House.
+- [22:30.750] We didn't want to dwarf anything.
+- [22:33.120] We didn't want to make it so that it's inappropriate.
+- [22:36.940] And I was watching them very carefully
+- [22:38.680] and that's what we did.
+- [22:40.250] And so, we're going to have a phenomenal ballroom,
+- [22:41.960] it's going to be one of the best anywhere in the world.
+- [22:45.240] There won't be anything like it, actually.
+- [22:47.560] And it's four sides of glass, beautiful glass,
+- [22:50.550] but totally appropriate in color and in window shape
+- [22:54.620] and everything else with The White House moldings.
+- [22:57.630] So it's going to be very much in keeping with The White House.
+- [23:01.290] A new thing is you build a super modern building
+- [23:03.500] next to an old-fashioned building.
+- [23:05.700] And I think that's good, but I don't have the courage
+- [23:07.880] to do that with The White House.
+- [23:09.430] It's good for a lot of places, it's not good for here.
+- [23:13.200] So everything is very much in keeping.
+- [23:15.440] And we'll be able to have state dinners.
+- [23:17.720] We would literally not even have state dinners,
+- [23:19.660] because it's not set up.
+- [23:20.880] But for all those years they wanted it
+- [23:22.590] and now they're going to get it.
+- [23:23.990] And because of you, they're going to get it.
+- [23:25.490] And me too, we're all in this together.
+- [23:29.100] And I mean, I have so many friends
+- [23:30.780] and so many of you have been really, really generous.
+- [23:33.730] I mean, a couple of you, sitting here and saying,
+- [23:36.460] "Sir, would $25 million be appropriate?"
+- [23:38.840] I said, "I'll take it."
+- [23:41.040] It doesn't take too many 25s to get it done.
+- [23:43.910] But a lot of you have been really fantastic.
+- [23:48.960] I thank you very much. You were great.
+- [23:51.050] You were great (inaudible).
+- [23:57.010] And they just felt it was something that's really good.
+- [24:00.080] It's the preservation of something,
+- [24:03.130] there's nothing like it.
+- [24:04.350] To me, there's nothing like The White House.
+- [24:05.860] Even after I won the first night,
+- [24:07.850] I went up and I'm standing
+- [24:09.580] in the residential hallway with Melania,
+- [24:12.090] where I'm looking into the Lincoln bedroom,
+- [24:15.860] that was a surreal experience, I'm saying,
+- [24:18.490] "Do you believe this? We're in The White House
+- [24:20.740] and that's the Lincoln bedroom."
+- [24:22.160] And it takes a while to get used--
+- [24:23.810] I'm still not probably really used to it.
+- [24:26.390] It's just a special place. What can I say?
+- [24:29.860] So we have to take care of it.
+- [24:31.210] And we have little things, like at the Lincoln bedroom,
+- [24:34.790] the bathroom was done by the Truman family a long time ago,
+- [24:40.260] and it's done in a green tile and it's done in a style
+- [24:46.530] that was not exactly Abe Lincoln,
+- [24:48.950] it's a style that's not good. It's actually art deco,
+- [24:56.610] and art deco doesn't go with 1850 and civil wars
+- [25:01.320] and all of the problem.
+- [25:03.240] But what does do is statuary marble.
+- [25:04.980] So I ripped it apart and we built a bathroom.
+- [25:07.580] It's absolutely gorgeous
+- [25:09.320] and totally in keeping with that time,
+- [25:11.930] because the Lincoln bedroom is so incredible.
+- [25:14.700] For those of you that have seen it,
+- [25:16.280] we have so many different--
+- [25:17.540] Downstairs we have the palm room and they had one by one tiles
+- [25:22.330] that were put there probably 20 years ago by somebody,
+- [25:25.860] and they were broken and bad. It's embarrassing.
+- [25:28.070] And I took it out and we did a magnificent book
+- [25:31.410] matched statuary marble floor.
+- [25:34.780] We fixed the room and we put up the proper lighting
+- [25:38.280] and chandeliers and it looks-- When people walk up,
+- [25:40.390] they can't believe how beautiful it is.
+- [25:41.990] And so, we like to fix it up
+- [25:43.460] and it's a little bit of my heritage,
+- [25:45.460] fix up and clean up and make it nice.
+- [25:48.250] And we're doing that with The White House.
+- [25:50.660] So the largest room in The White House was the East Room.
+- [25:53.790] That's this room right here, by far.
+- [25:56.300] And it currently holds, let's say, as we said, 100.
+- [26:00.350] And for this reason, during major functions and events,
+- [26:03.190] administrations going back many, many decades were forced
+- [26:06.890] to severely limit the number of events they had
+- [26:10.430] and certainly limit the number of people.
+- [26:12.650] And they had some catastrophic events.
+- [26:14.880] Some of the biggest events were a tent being built on the lawn
+- [26:18.070] and the rain started.
+- [26:19.270] And for some reason, every time they put up a tent here,
+- [26:22.130] it rains, and that's not good.
+- [26:24.220] And they tended to use a lower level,
+- [26:26.890] which is, they have pretty big land here,
+- [26:29.930] but they used a lower level where the rain would just seep
+- [26:32.200] into the ballroom and it wasn't pretty.
+- [26:34.690] When you're sitting down having dinner, talking about,
+- [26:37.470] "Hello, President Xi, how have you been?
+- [26:39.490] And hello, Emmanuel from France,"
+- [26:42.830] and all the different people that we've had here.
+- [26:45.920] And you've got about four inches of water.
+- [26:50.140] Literally it's going over your shoes
+- [26:52.380] and you're trying to pretend that it's not happening,
+- [26:55.190] but it's happening.
+- [26:56.930] So we won't have that stuff anymore and it'll be great.
+- [26:59.700] We really need it. The United States
+- [27:01.220] is the greatest and most powerful nation on earth,
+- [27:03.550] and American presidents need to be able to host events
+- [27:06.730] at The White House that reflect the demands of the time
+- [27:10.370] and that can carry out the prestige
+- [27:13.180] of what we're all doing.
+- [27:14.480] I mean, we are a country that a year ago was dead.
+- [27:18.410] We were a dead country a year ago, as many of you know,
+- [27:21.690] and today we're the hottest country
+- [27:23.860] anywhere in the world by far. Everybody admits it.
+- [27:27.760] King of Saudi Arabia told me that.
+- [27:29.440] You've heard me say it, but Qatar, UAE,
+- [27:34.440] the European Union came in, every country, they said,
+- [27:37.290] "It's unbelievable what has happened with the United States.
+- [27:40.160] We're hot." And I'll tell you why.
+- [27:42.240] Had this other group of lunatics been elected,
+- [27:45.860] this country, I think you would've actually failed.
+- [27:49.510] So we went from being a country that was dead,
+- [27:53.490] a country that was really in trouble, open borders,
+- [27:56.350] everything they did wrong, men and women's sports,
+- [27:59.170] transgender for everybody.
+- [28:00.920] Every single thing they did was wrong.
+- [28:02.570] Just go the opposite and you couldn't miss.
+- [28:05.710] And we had an election that was a landslide.
+- [28:08.900] It was so big.
+- [28:10.110] We won the popular vote by a lot.
+- [28:12.260] We won all seven swing states or seven swing states, as you know.
+- [28:15.800] And if you win three or four, you do great.
+- [28:18.070] But to win seven, it's very rare that you see that happen.
+- [28:21.370] We won all seven.
+- [28:23.140] We won the electoral college by a lot.
+- [28:26.130] We were 312. Remember, they said,
+- [28:27.940] "Well, I don't know if he can get above 250."
+- [28:30.560] No, we didn't, we got 312 and it was great.
+- [28:33.420] We beat them by a lot.
+- [28:35.310] But we have another where you would call it districts,
+- [28:38.300] or you would call it-- There's a map split up,
+- [28:42.730] beautifully split up in tiny little quadrants
+- [28:45.810] and they call them districts, they call them just areas,
+- [28:49.500] and we were 2,750 to 525.
+- [28:56.200] That's why when you look at a map of the election,
+- [28:58.240] it was all red with two blue stripes
+- [29:00.010] down on one end and the other.
+- [29:02.030] And even them, I worry about, because I don't believe it.
+- [29:05.070] I don't believe it. I think we did great there.
+- [29:07.440] And so, we've had an amazing time.
+- [29:11.280] It's the most powerful nation on earth now.
+- [29:14.190] You see that.
+- [29:15.420] You see the weapons, we have the greatest weapons,
+- [29:17.490] the greatest manufacturer of weapons.
+- [29:19.970] Some of you are in that world and some of you,
+- [29:22.130] yeah, the greatest in the world.
+- [29:25.800] We have the greatest in the world.
+- [29:27.130] I wish we could make them faster.
+- [29:28.410] If you want to know the truth, everybody,
+- [29:30.650] all of our allies want them
+- [29:31.950] and they want them as quick as they can.
+- [29:33.520] And the American presidents need to be able
+- [29:35.740] to showcase our country.
+- [29:39.270] So we'll begin the historic, really historic effort to add
+- [29:44.270] the, we'll call presidential ballroom
+- [29:46.610] that'll expand the space for--
+- [29:49.170] Tens of thousands of people will be able to come
+- [29:51.890] during the course of a year, if you add it all up,
+- [29:54.690] and have the kind of space that you need.
+- [29:57.390] It's very exciting.
+- [29:58.610] To me, it's exciting as a person in real estate,
+- [30:01.850] because you'll never get a location like this again.
+- [30:03.840] Even contracts, I give out the contracts myself.
+- [30:06.340] Can you believe it?
+- [30:07.600] And we just gave out the excavation contract,
+- [30:10.640] and I guess he was in for 3.2 million.
+- [30:14.080] I said, "Can you do it for 1.5?
+- [30:16.520] The President: "Now, I can't do that, sir."
+- [30:17.830] I can't. I said, "This is once in a lifetime.
+- [30:20.870] This is the excavation of the White House grounds
+- [30:24.930] for what will be one of the best,
+- [30:26.940] most beautiful ballrooms in the world."
+- [30:28.830] "Sir, I can't, I can't."
+- [30:31.140] But I got them down to two million
+- [30:32.440] so it's not terrible. So we got to--
+- [30:35.000] And so many people were so great.
+- [30:38.250] Carrier, it's a great company, air conditioning.
+- [30:40.770] He called, he said,
+- [30:42.030] "Sir, we'd like to donate the air conditioning."
+- [30:44.780] I said, "That's a beautiful thing.
+- [30:46.260] I appreciate that," donating it to the--
+- [30:48.770] Not giving it to me, giving it to the country,
+- [30:50.760] he donated the air conditioning.
+- [30:53.640] A steel company, a great steel company,
+- [30:55.650] a great man actually, he said,
+- [30:57.660] "Sir, I'd like to donate the steel for your ballroom."
+- [31:03.080] I said, "Well that's nice."
+- [31:06.060] And I found out, how much is the steel?
+- [31:08.880] I called the contractor, "Sir, it's down for 37 million."
+- [31:12.880] I said, "This is a nice donation, right?"
+- [31:15.380] He wants the steel and he wants to make it great steel
+- [31:18.380] as opposed to garbage steel
+- [31:19.600] because they dump a lot of garbage around.
+- [31:22.480] Steel is like everything else, including human beings,
+- [31:25.980] steel could be high quality and it can be low quality.
+- [31:29.300] He wants to make sure it's high quality.
+- [31:31.420] And so many different people are donating services
+- [31:34.510] and they're donating products to the ballroom.
+- [31:37.220] It's amazing. If we keep going like this,
+- [31:39.740] I may be able to build it for nothing,
+- [31:42.120] we'll get it built for nothing.
+- [31:44.050] But we're going to be projecting a cost that's going to be,
+- [31:49.330] we're going to come in under budget.
+- [31:51.250] We started with a much smaller building and then I realized,
+- [31:54.530] I mean we have the land, let's do it right,
+- [31:56.410] and so we built a larger building
+- [31:57.960] that can really hold just about any function that we want.
+- [32:01.730] It'll be done with really exquisite taste,
+- [32:04.050] the finest designers,
+- [32:05.340] and I consider myself an important designer,
+- [32:08.480] because they come in with things that,
+- [32:10.530] they may be good designers,
+- [32:11.820] but boy, the things they can recommend are horrible.
+- [32:14.710] And we wanted classic,
+- [32:16.130] the utmost respect for the historic beauty and grandeur
+- [32:18.990] of one of the most iconic buildings anywhere in the world.
+- [32:22.390] I mean, you go to the White House and you see that picture,
+- [32:25.300] when you ride up in the drive like tonight,
+- [32:27.050] probably some of you realize, you drive up that drive
+- [32:29.250] and you're looking at that building
+- [32:30.710] all lit up and gorgeous and perfect.
+- [32:33.130] And we take good care of it too. It wasn't taking good care of.
+- [32:36.190] The Oval Office is now at a level
+- [32:38.830] that it's never seen before. We take really great care of it.
+- [32:41.730] They weren't taking good care of it for four years,
+- [32:43.750] I'll tell you that.
+- [32:45.350] This addition will be completed in the classical style
+- [32:48.520] that complements everything else around it,
+- [32:51.490] including the Treasury Department,
+- [32:53.810] which is right next to it.
+- [32:55.350] We have been working very closely
+- [32:57.390] with the incredible people of the National Park Service,
+- [33:00.510] they really are, they love this place,
+- [33:02.840] they're very proud of it,
+- [33:04.160] the architects, historians and everyone else
+- [33:07.050] and many others to ensure that the project will be beloved
+- [33:10.770] and loved for years to come, for such years to come.
+- [33:13.730] It's going to be up for a long time, I hope.
+- [33:16.690] To the cherished White House staff
+- [33:18.580] and everyone else that worked so hard,
+- [33:19.900] I want to thank you very much.
+- [33:21.120] And it's from James Monroe who added the South Portico,
+- [33:25.270] I don't know if you know that, South Portico, to Andrew Jackson
+- [33:29.050] who added the North Portico to Theodore Roosevelt
+- [33:32.670] who added the West Wing. Did you know that?
+- [33:34.380] Theodore Roosevelt, a long time ago.
+- [33:36.940] And Harry Truman, who added the Truman Balcony,
+- [33:39.180] he wanted the Truman Balcony, that's right up here.
+- [33:43.590] So you have the balcony off the residential.
+- [33:47.030] Chief executives throughout the history
+- [33:48.810] have contributed to making the White House special
+- [33:51.920] and nothing of this magnitude has been done.
+- [33:56.220] But the really big recent renovation
+- [34:02.730] was the West Wing and the Oval Office.
+- [34:06.130] And that's pretty major in terms of what it stands for.
+- [34:09.490] It's actually not big, but it's really big in another way.
+- [34:13.610] It's the biggest, I would say, in another way.
+- [34:16.530] And that was around 1900, so that's a long time ago.
+- [34:21.220] That's a long time ago.
+- [34:23.190] And this is going to be something
+- [34:24.420] that's going to make you all very proud.
+- [34:25.870] So now we have the presidential ballroom,
+- [34:28.470] we're ensuring that the people's house
+- [34:30.680] will continue to serve the American people properly
+- [34:34.280] and we can have all the people in the world come
+- [34:36.370] and they'll say, boy, what a place that is.
+- [34:38.780] But I want to thank and just leave it
+- [34:40.360] by thanking everybody in this room.
+- [34:41.850] You've been unbelievable.
+- [34:43.050] Some of you have been just incredible.
+- [34:46.330] You really felt it was very important to do this
+- [34:49.500] and it happened so quickly.
+- [34:50.800] I mean, I thought I'd have this dinner in a year from now,
+- [34:53.130] a year and a half from now,
+- [34:54.420] and we have it already because it's fully taken care of.
+- [34:59.970] And I just want to thank you all.
+- [35:01.340] You're very special people, really.
+- [35:03.440] But somehow the ballroom at the White House,
+- [35:07.370] it really hit a nerve with a lot of people.
+- [35:09.720] They wanted it. You love the country.
+- [35:11.710] This country has spirit again, this country didn't have
+- [35:13.820] a lot of spirit two years ago, three years ago, four years ago.
+- [35:18.060] It developed spirit on November 5th
+- [35:19.970] where a lot of you were with me.
+- [35:22.010] Some of you weren't, but you quickly became with me.
+- [35:25.290] It's amazing the way a victory
+- [35:26.680] can change the minds of some people.
+- [35:29.190] But most of you were with me.
+- [35:30.870] And Pepe, you were fantastic.
+- [35:33.010] He's got a little sugar business.
+- [35:34.470] He has a monopoly on the world's sugar.
+- [35:37.650] I would say that's a good business.
+- [35:39.150] I know nothing about sugar,
+- [35:40.820] but I would say a monopoly on sugar is pretty good,
+- [35:42.940] Pepe. Thank you both very much.
+- [35:45.230] Thank you darling for being, well, thank you both for--
+- [35:48.110] Yeah, that's right.
+- [35:49.390] He ends up with good real estate.
+- [35:51.270] It starts off as sugar, then all of a sudden
+- [35:53.050] he's in the middle of a city and he ends up--
+- [35:55.520] But he's been great and a supporter
+- [35:57.280] right from the beginning for years.
+- [35:58.780] And I see you sitting out there
+- [36:00.450] and I appreciate it and so many others.
+- [36:01.940] So I just want to say thank you all.
+- [36:06.490] Simply behind me so is a knockout panel.
+- [36:09.680] This panel, the next time you come here
+- [36:11.990] will be opened up and gone.
+- [36:16.020] No problem with any of the surrounding areas.
+- [36:21.500] This room will be fixed. This will be like a cocktail,
+- [36:24.650] the whole floor will be cocktails
+- [36:26.810] or pre-briefings or whatever it may be.
+- [36:29.400] Lots of different things.
+- [36:30.910] So you come in, the entire floor sets up,
+- [36:34.220] we didn't have to do any of that.
+- [36:35.590] Usually you have to do that.
+- [36:36.820] You need different rooms to go along with the ballroom.
+- [36:39.130] They're already built and they're built better
+- [36:41.110] than anybody would ever build because this is beautiful stuff.
+- [36:43.800] It doesn't get better. So we have this one,
+- [36:45.840] we have another one similar on the other side.
+- [36:48.180] And then we have various meeting rooms and rooms
+- [36:50.950] in between that are served
+- [36:52.540] for different dinners for different people.
+- [36:55.440] And all of this is utilized just the way it is.
+- [36:58.360] It'll be enhanced. It'll be even more beautiful,
+- [37:02.890] and really brought into the future
+- [37:05.270] a little bit from the standpoint of life and lifespan.
+- [37:09.340] So this will be your area, and then you get the bell, bing,
+- [37:13.490] bing, bing, and you walk into the ballroom
+- [37:16.440] and you'll have close to a thousand seats
+- [37:18.940] if you need them or much less. We have separating panels,
+- [37:22.630] so it could be less or it could be actually even more than that.
+- [37:26.390] So I think it'll be something you'll be very proud of.
+- [37:28.400] And what we're going to do is when we open up,
+- [37:31.780] you'll be among the first groups,
+- [37:33.130] maybe the first group if I still like you
+- [37:35.790] at that time, which I'm sure I will,
+- [37:38.870] but you'll be here and we'll be here,
+- [37:42.750] and you're going to be very happy.
+- [37:44.400] You're going to be very impressed when we get it done.
+- [37:46.710] So I want to thank everybody very much
+- [37:48.550] and it's so many friends in the audience.
+- [37:50.680] And I just want to thank you all.
+- [37:52.180] You're very special people.
+- [37:53.420] You love the country, you love the White House
+- [37:55.660] and what you've done is very important.
+- [37:57.610] And we'll have a little dinner and we'll ask the press to now
+- [38:01.590] go home to your wives, family. Say hello to them.
+- [38:05.210] If I don't like you, don't even bother.
+- [38:08.700] But you've been great. Thank you very much.
+- [38:10.520] And Doug, thank you very much
+- [38:11.800] and congratulations on a great career.
+- [38:14.270] Thank you. Thank you, everybody. Thank you very much.
+- [38:17.820] (applause)

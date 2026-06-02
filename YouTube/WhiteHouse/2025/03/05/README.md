@@ -1,0 +1,43 @@
+# YouTube / WhiteHouse / 2025-03-05
+
+- Posts: 13
+
+- [18:58 UTC - Press Secretary Karoline Leavitt Briefs Members of the Media, Mar. 5, 2025](mQMKP2cSdIk/)
+  - Source: https://www.youtube.com/watch?v=mQMKP2cSdIk
+  - [00:01.040] hello everybody hello how are we I - [00:05.000] apologize for my tardiness it's quite - [00:07.200] the newsy day and I was with the - [00:08.679] president talking...
+- [18:49 UTC - Jason Hartley joined President Trump at the Joint Session](8PBFq_o_p1g/)
+  - Source: https://www.youtube.com/watch?v=8PBFq_o-p1g
+  - [00:00.040] My name is Jason Hartley. - [00:01.120] I'm from Whittier, California. - [00:03.720] My story is about my dad. - [00:05.400] In 2002 to 2008, he served in the U.S. Ar...
+- [18:49 UTC - The Comperatore family joined President Trump at the Joint Session to honor Corey Comperatore](mQW382Cs_Y4/)
+  - Source: https://www.youtube.com/watch?v=mQW382Cs_Y4
+  - [00:00.040] My name is Helen Comperatore, and  I'm from Sarver, Pennsylvania. - [00:04.840] On July 13, 2024, - [00:09.120] it started out as just a regular day. - [00:12.400] Al...
+- [18:48 UTC - January Littlejohn joined President Trump at the Joint Session](T8Om5IPvqw/)
+  - Source: https://www.youtube.com/watch?v=-T8Om5IPvqw
+  - [00:00.360] My name is January Littlejohn. - [00:02.000] And at the height of COVID, our daughter  told us she no longer felt like a girl. - [00:06.040] She was thirteen at the t...
+- [18:46 UTC - D.J. Daniel joined President Trump at the Joint Session](ctdj_K1XUAo/)
+  - Source: https://www.youtube.com/watch?v=ctdj_K1XUAo
+  - [00:00.080] but you want to know the craziest part - [00:02.280] because my mom bathed me and my brothers - [00:04.680] all together and out of nowhere I locked - [00:06.839] up...
+- [18:44 UTC - Stephanie Diller joins President Trump at the Joint Session](3Fxd1TnNav4/)
+  - Source: https://www.youtube.com/watch?v=3Fxd1TnNav4
+  - [00:00.080] My name is Stephanie Diller. - [00:02.400] My husband was Jonathan Diller. - [00:04.640] He was a New York City police officer,  and he was conducting a routine traff...
+- [18:43 UTC - Roberto Ortiz joins President Trump at the Joint Session](TvaTOlPpZes/)
+  - Source: https://www.youtube.com/watch?v=TvaTOlPpZes
+  - [00:00.120] okay my name is Roberto Ortiz I'm a Bo - [00:02.120] portr agent with the westo station at - [00:05.080] Rio Grand Valley on uh January 27th we - [00:09.559] and my c...
+- [18:43 UTC - Alexis Nungaray joins President Trump at the Joint Session](Lhf13Upv_Xk/)
+  - Source: https://www.youtube.com/watch?v=Lhf13Upv_Xk
+  - [00:00.080] my name is Alexis nungay I am Joselyn - [00:03.000] n's mom Joselyn was my 12-year-old - [00:06.759] daughter she was strangled and killed - [00:09.880] and sexually...
+- [18:42 UTC - Elliston Berry joins President Trump at the Joint Session](0Gv6J5Ovyvc/)
+  - Source: https://www.youtube.com/watch?v=0Gv6J5Ovyvc
+  - [00:00.040] I'm Elliston Berry. I'm fifteen years  old. I'm from Fort Worth, Texas. - [00:04.120] I was a survivor of AI deepfakes. - [00:06.520] A classmate of mine targeted me...
+- [18:41 UTC - Haley Ferguson joins President Trump at the Joint Session](o6MkITjNZdM/)
+  - Source: https://www.youtube.com/watch?v=o6MkITjNZdM
+  - [00:00.080] My name is Haley Ferguson. - [00:01.840] I am a former foster care child  who was adopted at three years old. - [00:07.320] And I have come through many challenges  i...
+- [18:40 UTC - Jeff Denard joins President Trump at the Joint Session](j204lL8pz_o/)
+  - Source: https://www.youtube.com/watch?v=j204lL8pz-o
+  - [00:00.320] Hi. My name is Jeff Denard. - [00:02.400] I have a wife of twenty-five  years, seven beautiful children. - [00:07.480] I work for Nucor Steel—been  there about twenty...
+- [04:06 UTC - President Trump Addresses Joint Session of Congress, March 4, 2025](XkFKNkAEzQ8/)
+  - Source: https://www.youtube.com/watch?v=XkFKNkAEzQ8
+  - [17:05.420] The President: Thank you. - [17:06.650] Thank you very much, thank you very much. - [17:07.880] It's great honor, thank you very much. - [18:27.960] Speaker Johnson,...
+- [02:26 UTC - Thank you, President Trump.](HExKYBbGMxs/)
+  - Source: https://www.youtube.com/watch?v=HExKYBbGMxs
+  - [00:00.040] Dear President Trump - [00:01.000] Dear President Trump - [00:01.960] Dear President Trump - [00:03.280] Dear President - [00:04.120] President Trump - [00:04.840] Mr...

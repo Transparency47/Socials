@@ -1,0 +1,195 @@
+<!-- source: https://www.youtube.com/watch?v=_0fH4iJie8U -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: _0fH4iJie8U -->
+<!-- date_published: 2025-06-17T16:42:25+00:00 -->
+<!-- date_accessed: 2026-06-02T01:23:59.203589+00:00 -->
+
+# Transcript: The Story of America: The Battle of Bunker Hill
+
+- [00:03.500] (Blend of Famous American History Quotes)
+- [00:38.365] (intermittent cannon and gunfire)
+- [00:46.730] Walter Borneman: The spring of 1775, 250 years ago,
+- [00:52.730] was a tenuous tipping point that could have gone either way.
+- [00:58.200] After the skirmishes at Lexington and Concord,
+- [01:02.800] Massachusetts wondered if it would stand alone.
+- [01:06.350] Its legislature petitioned the Second Continental Congress
+- [01:10.650] to create a national army.
+- [01:14.360] As the army now collecting from different colonies
+- [01:17.130] is for the general defense of the right of America.
+- [01:20.060] We would beg leave to suggest
+- [01:22.140] you're taking the regulation and general direction of it.
+- [01:26.160] This was a bold step toward the unification
+- [01:29.210] of the 13 colonies into a national government.
+- [01:33.730] While it waited for an answer,
+- [01:36.100] Massachusetts appointed French and Indian war veteran,
+- [01:39.160] Artemis Ward, to command the growing assemblage
+- [01:42.210] of troops surrounding Boston.
+- [01:44.960] His loosely organized command included regiments
+- [01:47.760] led by William Prescott from Massachusetts,
+- [01:51.090] Israel Putnam from Connecticut,
+- [01:54.290] and John Stark from New Hampshire.
+- [01:57.290] With little command and control structure,
+- [02:00.030] decisions were frequently reached by consensus
+- [02:03.150] or sometimes by force of personality.
+- [02:06.140] Such was the case on whether to occupy Bunker Hill
+- [02:10.470] on the Charleston Peninsula that pointed like a dagger
+- [02:14.140] toward British-occupied Boston.
+- [02:17.340] Whoever controlled these heights controlled Boston,
+- [02:21.230] but for weeks both sides had left them unoccupied.
+- [02:25.240] Finally, General Thomas Gage,
+- [02:27.680] the British commander, decided to act.
+- [02:30.760] The British plan was to seize the hills
+- [02:33.050] at Dorchester to the south
+- [02:35.250] and then launch an assault against Bunker Hill.
+- [02:38.610] The Dorchester attack was planned
+- [02:40.420] for the morning of June 18th,
+- [02:42.450] without much concern as to what General Ward's troops
+- [02:45.920] might be doing in the interim.
+- [02:48.340] For two days before this planned attack,
+- [02:51.290] at the urging of Prescott and Putnam,
+- [02:54.170] Ward agreed to fortify the Charleston Peninsula
+- [02:57.770] and its 110-foot high point of Bunker Hill.
+- [03:01.770] Putnam, who was itching for an all-out fight with the British,
+- [03:06.100] pushed for the construction of the main fortifications
+- [03:09.530] on a slightly lower knoll closer to Boston
+- [03:13.150] that would later be called Breeds Hill.
+- [03:16.590] On the rebel side, Ward's soldiers were still less an army
+- [03:20.440] than a loose band of partisans, hardy the cause,
+- [03:23.920] as one termed it.
+- [03:25.640] Few had uniforms. Most were in everyday work clothes.
+- [03:30.200] All carried muskets brought from home.
+- [03:32.970] Some of the weapons were older
+- [03:34.690] than the men who shouldered them.
+- [03:36.900] Almost no one had bayonets.
+- [03:39.750] The crude earthworks they dug on Breed's Hill
+- [03:42.820] were relatively small, about 130 feet square.
+- [03:47.300] The main weakness was that its northern slopes
+- [03:50.080] fell gently toward the Mystic River,
+- [03:52.890] offering an avenue from which an attack
+- [03:55.540] could surround the position and cut it off.
+- [03:59.460] When the British discovered the rebel position
+- [04:01.510] on the morning of June 17th,
+- [04:03.970] General Gage postponed his Dorchester plans
+- [04:07.530] and expedited his attack against Bunker Hill.
+- [04:11.280] Cannon from Royal Navy ships in the Charles River
+- [04:14.160] and batteries atop Copse Hill in Boston
+- [04:17.010] pummeled the newly constructed rebel positions.
+- [04:21.000] And General Gage ordered General William Howell
+- [04:24.930] to attack that very afternoon.
+- [04:28.470] Watching from atop Copse Hill,
+- [04:30.500] General Gages handed his telescope to Abijah Willard,
+- [04:34.440] a loyalist who had sought safety in Boston,
+- [04:37.530] and asked if he recognized anyone
+- [04:39.620] among the rebels who might be in command.
+- [04:43.050] Willard did.
+- [04:44.340] William Prescott was a fellow soldier from the colonial wars,
+- [04:48.550] as well as his brother-in-law. Will he fight, Gage demanded?
+- [04:54.370] He could not answer for Prescott's men,
+- [04:56.590] Willard replied,
+- [04:58.070] but Prescott will fight you to the gates of hell.
+- [05:02.660] Now came the stuff of legend.
+- [05:05.430] Howe ordered 1,500 men to cross the Charles River.
+- [05:11.900] They landed unopposed on the beach below Bunker Hill.
+- [05:15.900] Prescott's men in their trenches were content to watch
+- [05:19.160] because they were short of gunpowder.
+- [05:22.180] Howe formed his troops on a rise about 100 yards inland,
+- [05:26.860] but what he saw next gave him pause.
+- [05:30.050] Colonel John Stark's 1st New Hampshire Regiment,
+- [05:34.160] about 400 men, had taken up positions behind a rail fence
+- [05:39.740] and a hastily erected stone barricade on the Mystic Beach,
+- [05:44.000] anchoring Prescott's vulnerable left flank.
+- [05:47.850] Seeing this massing of rebel troops,
+- [05:50.420] Howe sent for reinforcements. By the time they arrived,
+- [05:54.370] he had about 2,200 men in the field
+- [05:57.520] against likely half that number in the immediate vicinity.
+- [06:02.560] For one fleeting moment, the difference between Lexington
+- [06:08.130] and what was about to occur below Bunker Hill
+- [06:11.930] stood in sharp relief.
+- [06:14.630] This could not be called an accidental encounter.
+- [06:20.640] As General Howe's troops advanced toward Prescott's
+- [06:24.770] and Stark's positions,
+- [06:26.900] late on the afternoon of June 17th, 1775,
+- [06:32.280] it was clear to any observer
+- [06:35.210] that the outcome would be a pitched battle.
+- [06:39.790] As British troops advanced uphill in two long lines
+- [06:42.780] and in column against Stark's position,
+- [06:45.350] the bulk of the American line stood silent.
+- [06:48.720] Keenly aware of its limited gunpowder.
+- [06:52.240] Hold your fire, commanders reminded their men.
+- [06:55.890] The quote, most associated with the Battle of Bunker Hill,
+- [07:00.590] is don't fire until you see the whites of their eyes.
+- [07:04.570] Now, who said it? Perhaps William Prescott,
+- [07:07.800] or how often it was repeated, is uncertain.
+- [07:11.780] Another account claims that behind the stone barricade,
+- [07:15.080] John Stark admonished his men not to fire
+- [07:18.860] until they could see the enemy's white colored gators.
+- [07:23.370] Onward then, Howe's regulars came.
+- [07:26.520] At perhaps 50 yards, the command "fire" resounded
+- [07:30.620] and the entire rebel line exploded with a thunderous roar.
+- [07:35.130] The British troops staggered and fell back in disarray.
+- [07:39.070] Howe ordered them to reform and move forward again.
+- [07:43.350] Armchair strategists have faulted Howe
+- [07:46.390] for marching his troops directly up Bunker Hill,
+- [07:50.160] but this throttle maneuver was not Howe's initial intent.
+- [07:55.190] He had placed great faith in his light infantry
+- [07:59.220] to turn the left end of the rebel line
+- [08:02.100] and create havoc along it.
+- [08:04.660] After that, the heavy grenadier companies
+- [08:07.350] were to bulldoze through with fixed bayonets.
+- [08:12.270] Eleven companies of light infantry, about 350 men,
+- [08:16.500] rushed headlong
+- [08:17.760] in a column of fours against the stone barricade,
+- [08:20.920] where Stark's New Hampshire men stood three deep.
+- [08:24.680] Their first volley decimated the attacking column.
+- [08:29.230] As other companies moved forward to take his place,
+- [08:32.660] they gained no more than a few yards
+- [08:35.580] before more volleys rent the air.
+- [08:39.450] The British infantry struggled onward,
+- [08:42.830] but the New Hampshire lads stood firm as granite.
+- [08:47.530] The grenadier companies on the slope above heard
+- [08:50.310] these musket volleys without seeing the results.
+- [08:54.100] Howe indeed intended for the grenadiers
+- [08:56.310] to sweep through the rubble line and circle behind the trenches.
+- [09:00.850] But as the light infantry attack collapsed,
+- [09:04.040] the grenadiers too were thwarted by concentrated fire.
+- [09:09.360] After the second attack also failed,
+- [09:11.980] Howe ordered a third charge
+- [09:14.060] directly against the earthen fortifications.
+- [09:17.100] By now, the rebels were dangerously low on gunpowder.
+- [09:21.250] Many had withdrawn to the higher hilltop of Bunker Hill.
+- [09:26.320] Prescott was down to about 150 men.
+- [09:31.270] What ended resistance there was neither a lack of courage
+- [09:35.770] nor unstoppable British resolve,
+- [09:39.070] but rather a shortage of gunpowders.
+- [09:42.160] The remaining defenders lost their lives to British bayonets.
+- [09:48.140] By evening, the Charleston Peninsula was in British hands,
+- [09:51.890] but the rebels had fought a fighting withdrawal
+- [09:55.130] and established defensive lines.
+- [09:59.190] On the British side, there was a dazed sense of disbelief.
+- [10:03.490] The slopes were littered with red uniforms of the dead
+- [10:07.250] and dying. General Howe was in denial.
+- [10:11.420] He had won the field, but at a staggering cost.
+- [10:15.510] The battle of Bunker Hill was,
+- [10:17.960] his fellow general Henry Clinton opined, "A dear bought victory.
+- [10:23.280] Another such would have ruined us."
+- [10:26.590] After Bunkers Hill, there was no doubt that this was all out war.
+- [10:31.980] Some suggest the military importance of Bunger Hill
+- [10:34.830] is overstated.
+- [10:36.590] Yet American history has long celebrated it
+- [10:41.080] and the public recognized it with the same reverence
+- [10:44.930] accorded Yorktown, the Alamo, and Pearl Harbor.
+- [10:51.560] If one counted only control of the battlefield,
+- [10:55.470] Bunker Hill was a British victory.
+- [10:58.440] But for the rebel psyche of 1775,
+- [11:02.420] the battle was a huge morale boost.
+- [11:05.730] As the first major clash between rebel forces
+- [11:09.140] and British regulars.
+- [11:11.030] Bunker Hill showed that those who would increasingly call
+- [11:15.120] themselves Americans could hold their own.
+- [11:19.760] The American Revolution was not begun on Bunker Hill.
+- [11:24.080] It certainly was not decided at Bunkers Hill.
+- [11:27.820] But the Battle of Bunker Hill
+- [11:29.540] proved that the fight for American independence
+- [11:33.620] and a new nation was truly begun in the American Spring of 1775.
+- [11:41.470] ♪ (music playing) ♪

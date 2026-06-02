@@ -1,0 +1,866 @@
+<!-- source: https://www.youtube.com/watch?v=NC09z2oqpDg -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: NC09z2oqpDg -->
+<!-- date_published: 2025-07-31T20:58:58+00:00 -->
+<!-- date_accessed: 2026-06-02T02:46:16.228926+00:00 -->
+
+# Transcript: President Trump Signs an Executive Order, July 31, 2025
+
+- [00:07.430] The President: Nice to see you, how are you?
+- [00:16.590] We have a lot of athletic talent and great people behind me,
+- [00:22.160] and we're going to do some very important things
+- [00:24.760] for our country. Nobody knows LT, right?
+- [00:29.490] LT? Greatest ever? Lawrence Taylor. You look good.
+- [00:35.570] You could play right now, I think, LT.
+- [00:38.870] He only looked that way. Well, I'm delighted to be here
+- [00:42.250] with some of the truly great sports legends of all time,
+- [00:46.420] as we formally announced the newest members
+- [00:48.810] of the President's Council on Sports, Fitness,
+- [00:51.960] and Nutrition.
+- [00:53.960] This is an important step in our mission
+- [00:55.840] to make America healthy again.
+- [00:57.480] It's something that's very important,
+- [00:59.900] what we're doing, very important.
+- [01:01.930] Dating back to the administration
+- [01:03.760] of President Dwight D. Eisenhower,
+- [01:06.190] this council has championed the vigor and strength
+- [01:08.780] and vitality of the American people.
+- [01:11.690] Today, we continue that very proud tradition.
+- [01:14.320] This group is led by two-time major champion
+- [01:17.550] and one of the greatest players in the world,
+- [01:19.430] one of the highest ranked.
+- [01:20.670] And he just had a phenomenal open championship,
+- [01:24.220] as you probably saw, shooting one round that wasn't so good.
+- [01:28.280] And then he came back with about a 65 or something.
+- [01:30.970] He was getting a birdie on every hole.
+- [01:33.320] They were worried he might not make the cut,
+- [01:34.910] and he made the cut by about 200 strokes.
+- [01:37.770] It was pretty amazing.
+- [01:39.210] And We had a great week, actually.
+- [01:41.960] He's also the longest hitter of a golf ball,
+- [01:44.090] I think ever, but, you know, they say ever.
+- [01:47.160] I would say ever, and the longest in the world today,
+- [01:50.790] and it's Bryson DeChambeau. He's a great guy.
+- [01:53.360] I've been my friend for a long time.
+- [01:55.740] And from his storied amateur career,
+- [01:58.410] where he won the U.S. Amateur, I think once or twice.
+- [02:01.370] Did you win it?
+- [02:02.730] Bryson DeChambeau: It was once in NCAA as well.
+- [02:04.610] The President: Okay, you won a lot of other championships,
+- [02:08.810] but a U.S. Amateur champion.
+- [02:11.370] And then, as you know, he won at Wingfoot,
+- [02:14.440] won the U. S. Open, and Pinehurst, and Bryson
+- [02:18.420] has always been a phenomenal ambassador to sports
+- [02:21.170] and to golf, but generally to life, in my opinion.
+- [02:24.260] He's a smart guy and a good guy, great guy.
+- [02:26.840] Loves our country.
+- [02:28.110] We're also pleased to be joined by Secretary of Health
+- [02:31.410] and Human Services, Robert F. Kennedy, Jr.
+- [02:34.400] Bobby, you do a great job.
+- [02:35.710] He's got some big things happening,
+- [02:37.940] and he's got big statements to be made
+- [02:40.060] very shortly in terms of — over the next few months,
+- [02:43.410] in terms what they've been doing in finding answers
+- [02:46.610] to some very, very important questions.
+- [02:49.060] Secretary of Education Linda McMahon,
+- [02:51.830] who's phenomenal wherever you may be, Linda.
+- [02:54.090] Hi, Linda, what are you doing back there?
+- [02:56.740] And which — I mean, look, you've been reading about her exploits
+- [03:00.630] and the job that she's been doing,
+- [03:02.050] and we're very proud of her.
+- [03:03.880] Council Executive Director Katherine Granito.
+- [03:08.130] Thank you very much. Thank you. Great job.
+- [03:10.650] And several other new members of the Council,
+- [03:12.720] including JD is here, our fantastic
+- [03:16.140] Vice President, and Scott Besant.
+- [03:18.380] And we're making a lot of deals.
+- [03:20.460] We're making deals for trillions,
+- [03:21.880] trillions and trillions.
+- [03:23.200] Nobody has ever seen anything quite like it.
+- [03:25.000] We just made a couple of others a little while ago.
+- [03:28.400] I don't know if you'd be interested right now.
+- [03:29.960] I won't even bother telling you.
+- [03:31.170] This is about sports and about health.
+- [03:34.110] One of the best defensive players ever.
+- [03:37.400] I think probably acknowledged to be
+- [03:39.220] the greatest defensive player in the history of the NFL.
+- [03:42.170] A friend of mine for a long time.
+- [03:44.220] Too long, right, Lawrence?
+- [03:45.970] Lawrence Taylor, he's an incredible guy.
+- [03:48.830] And just been my friend a long have only had, knew him.
+- [03:52.950] Knew him forever.
+- [03:54.500] One of most accurate kickers in NFL history,
+- [03:57.260] a young guy still. He can kick it long.
+- [04:00.130] I think he's a –I guess
+- [04:02.470] he's considered the best there is in the business.
+- [04:04.430] Harrison Butker. So, Harrison, where are you, Harrison?
+- [04:09.270] Handsome guy, by the way.
+- [04:10.600] I didn't — it's usually not my thing,
+- [04:12.560] but he is a good-looking sucker.
+- [04:14.530] [laughter]
+- [04:16.080] One of the truly greatest golfers
+- [04:18.560] ever to play on the LPGA Tour.
+- [04:20.450] A lot of people say the greatest female player ever.
+- [04:23.440] And a lot of would say just one of the best players ever.
+- [04:25.820] She's phenomenal.
+- [04:27.070] I've played a lot golf with Annika Sorenstam and —
+- [04:31.140] She's amazing, just had an incredible,
+- [04:34.010] really storied career, Hall of Famer.
+- [04:35.950] By easily a Hall of Famers,
+- [04:37.440] by the way, right at the top of the list.
+- [04:39.790] So it's great to have you with us, Annika,
+- [04:41.570] and say hello to the family.
+- [04:43.350] Then she was here not so long ago with Gary Player,
+- [04:47.040] where she got the Presidential Medal of Freedom.
+- [04:48.590] And so did he.
+- [04:49.810] He's won 168 tournaments and 18 majors, nine and nine,
+- [04:54.080] and she's the same in terms of the women's game.
+- [04:59.370] But that was a great time.
+- [05:00.590] It was a great honor to give it to you.
+- [05:02.060] You really deserved it.
+- [05:03.310] It's the highest medal you can get outside
+- [05:05.030] of the Congressional Medal of Honor.
+- [05:06.450] That's the military version.
+- [05:08.620] And the other is the presidential medal,
+- [05:10.340] and you got it. So, thank you very much.
+- [05:12.880] Fourteen-time WWE world champion,
+- [05:16.290] and he's a man who you're not going to mess around with.
+- [05:20.370] Evan Bryson said, I think I'll take a pass on him, right?
+- [05:23.030] You're going to take.
+- [05:24.250] And he's another one who's been my friend for a long time.
+- [05:29.170] Really an amazing athlete, Triple H. Triple H, there he is.
+- [05:35.050] Oh, that's still very strong.
+- [05:36.320] [laughter]
+- [05:37.690] He's a strong guy. And it's great to have you.
+- [05:40.790] And you felt very strongly about this, about the council?
+- [05:42.880] Triple H: One hundred percent.
+- [05:44.130] The President: Yep.
+- [05:45.330] Well, it's a great honor to have you.
+- [05:47.270] Offensive lineman, NFL.
+- [05:48.910] Very respected, very smart. Cody Campbell.
+- [05:51.270] Thank you, Cody, very much. Thank you very much.
+- [05:54.480] In addition to the people here, we have other council members
+- [05:58.650] that want to just pay their respects.
+- [06:02.440] One of the greatest players and athletes ever.
+- [06:06.680] You could say, when you look at records,
+- [06:10.140] it's probably nothing like it.
+- [06:12.270] Tiger and Jack. This is Jack. Tiger was here not so long ago
+- [06:17.000] getting the Presidential Medal of Freedom also.
+- [06:19.850] He was a fantastic guy.
+- [06:22.570] On the council, we have Jack Nicklaus,
+- [06:24.640] and he sends his regards.
+- [06:26.020] We have Gary Player, one of the greats.
+- [06:28.980] Nelly Korda, who's a phenomenal young —
+- [06:31.840] I think you'd say great young player.
+- [06:34.900] Annika, right? She's a fantastic person, too.
+- [06:37.670] NFL icons. Tony Romo, also a great football player.
+- [06:42.540] Quarterback, also, a great golfer.
+- [06:45.110] Nick Bosa, who — you know him, he's a —
+- [06:48.870] He's a modern-day version of Lawrence.
+- [06:50.640] What do you think?
+- [06:51.870] He's pretty good, right, Lawrence?
+- [06:53.960] Pretty good.
+- [06:55.240] He is Saquon Barkley, who's on the council,
+- [06:59.430] and Tua Tagovailoa, the quarterback,
+- [07:04.690] who is really a — he's been fantastic.
+- [07:07.910] He's been — when he's not injured, he's great.
+- [07:11.020] He's got to stay healthy. But he's — and he's a great guy.
+- [07:14.840] NFL Commissioner Roger Goodell is on the commission,
+- [07:17.410] NFL Commissioner
+- [07:18.610] Gary Bettman, and the great one Wayne Gretzky is on.
+- [07:24.150] And a man who also received the Presidential Medal
+- [07:28.160] of Freedom, Mariano Rivera.
+- [07:30.590] And when I looked at his record, it was unbelievable.
+- [07:32.750] The Sandman — my wife said,
+- [07:33.990] “Why do they keep playing the Sandman when he walks in”?
+- [07:36.860] And I said, “Because he just puts the batter to sleep”.
+- [07:39.870] He was great.
+- [07:41.100] When you look at his record compared to second,
+- [07:43.970] and Raleigh Fingers was great, and he was really great.
+- [07:46.930] But when you look the record, boy, Mariano had a record.
+- [07:49.410] I've never seen anything like it.
+- [07:50.780] He was so, so high up.
+- [07:53.410] The order that I'll sign today in a few moments
+- [07:57.790] directs the council to develop strategies to improve
+- [08:00.570] America's physical fitness and renew the American spirit,
+- [08:04.870] excellence, competitiveness, and sportsmanship.
+- [08:07.970] To that end, I'm pleased to announce
+- [08:09.600] that we're officially restoring the Presidential Fitness Test
+- [08:13.650] and the Presidential fitness award.
+- [08:15.700] And it's going to be a very big thing.
+- [08:17.730] From the late 1950s until the 2013,
+- [08:21.880] graduate scholars all across our country
+- [08:24.930] competed against each other in the Presidential Fitness Test.
+- [08:28.680] And it was a big deal.
+- [08:30.270] This was a wonderful tradition and we're bringing it back.
+- [08:33.160] I think Bryson and everybody here
+- [08:35.280] wanted to see if we could bring that back.
+- [08:37.750] And it's turned out to be very, very popular to do.
+- [08:42.190] My administration is also pressing forward
+- [08:44.510] with the important reforms in sports and athletics.
+- [08:47.230] And the group behind me and the others that I mentioned
+- [08:49.880] and others that have asked to join.
+- [08:51.470] We have many great athletes have asked to join the council,
+- [08:55.220] and we're going to let some of them come in.
+- [08:57.340] But they're going also be working on college football
+- [08:59.620] in terms of what happened. It's a mess. What happened?
+- [09:06.230] What they're doing with college football.
+- [09:09.220] And the fans are upset about it.
+- [09:11.400] And players are being taken from team after team
+- [09:14.360] and being traded around like playing cards.
+- [09:17.690] And a lot of money's passing and nobody knows what's happening.
+- [09:22.800] So these people behind me are gonna be very much involved
+- [09:26.500] in figuring that whole thing out and working on it
+- [09:29.650] and trying to bring some sanity to that incredible,
+- [09:33.700] not only the football, college sports.
+- [09:36.730] Very, very bad for women. Very bad what's happening,
+- [09:39.710] because now all of a sudden there's no women
+- [09:42.050] that are able to get the money that they're talking about.
+- [09:45.560] You know, it seems to be going mostly to football,
+- [09:49.000] some basketball.
+- [09:50.650] And women's sports are being totally decimated.
+- [09:54.380] We know that, Annika, you know, with this.
+- [09:56.340] It's all going into football and some to basketball
+- [10:00.180] and everything else is being left behind.
+- [10:02.690] And women are being left behind,
+- [10:04.480] and lesser sports are being left behind.
+- [10:06.510] And the Olympics is being decimated,
+- [10:09.200] because that was like training for the Olympics.
+- [10:12.610] And now we're not going to have that many of those sports left.
+- [10:17.120] The smaller sports,
+- [10:18.450] they're almost going to be completely wiped out.
+- [10:20.510] This is crazy what's going on.
+- [10:22.720] We banned men from competing in women's sports.
+- [10:25.170] And last week, the United States Olympic and Paralympic committee
+- [10:28.810] announce that they will be complying with that order.
+- [10:31.880] So there won't be men playing in women's sports.
+- [10:35.410] That seemed like an easy one.
+- [10:36.800] They say it's an 80-20 issue during the campaign.
+- [10:39.310] I said, no, that's not 80- 20.
+- [10:40.680] That's 97-3. Maybe it's 98-2, perhaps.
+- [10:45.950] And last Thursday, we terminated third party,
+- [10:49.090] pay-for-place schemes in collegiate athletics
+- [10:52.890] and effectively saving –
+- [10:54.770] we would have saved college sports,
+- [10:56.570] but now we have to make it. We have to heal it.
+- [10:59.660] Because it's really a mess. It's a real mess.
+- [11:02.270] This council will play an important role
+- [11:04.290] in shaping these new policies and ensuring that we preserve
+- [11:07.470] the American athletic tradition for many generations to come.
+- [11:12.460] And in the years ahead, we'll have the chance
+- [11:15.080] to showcase our nation's athletic dominance
+- [11:17.600] in the world stage as we host the America 250.
+- [11:22.870] So we have America 250, and we have –
+- [11:26.250] It's going to be incredible. The Patriot Games.
+- [11:29.140] But we have the Ryder Cup, we have The President's Cup,
+- [11:32.170] we have 2026 FIFA World Cup.
+- [11:35.590] So we have World Cup here, we the 2028 Olympics.
+- [11:40.090] So when they cheated on the election
+- [11:42.270] and they picked somebody
+- [11:43.500] that wasn't supposed to be there,
+- [11:44.950] I was very upset before that because I got the Olympics
+- [11:47.880] and I got The World Cup, I was the one that did it.
+- [11:51.740] I can't say I got America 250, it just happened to be 200.
+- [11:54.780] [laughter]
+- [11:56.020] I'd like to take credit for that,
+- [11:57.310] but I don't think I'll be able to.
+- [11:58.820] But we have a big thing coming up.
+- [12:00.450] But I was very upset because I got them
+- [12:02.230] and it was skipped an election season.
+- [12:05.700] And so it took place in the next term
+- [12:08.260] after the term that we were supposed to have.
+- [12:11.600] And I was extremely angry.
+- [12:12.920] And then when I won, I said, wait a minute,
+- [12:14.530] I think I just picked up the Olympics and I
+- [12:16.260] just pick up the World Cup. So it worked out sort of cool.
+- [12:19.510] But I want to, again, thank everybody in the council.
+- [12:22.990] They want to work too.
+- [12:24.280] These are people that really – we only do it by request,
+- [12:27.980] and people, they want to work
+- [12:29.480] and they want make things better.
+- [12:30.690] And I think, I hope they can make college sports better.
+- [12:33.100] They can heal it, they can find a solution.
+- [12:34.810] It's not going to be that easy.
+- [12:36.340] But you have a lot of smart people.
+- [12:37.810] So I'd like to begin by introducing Bryson
+- [12:40.630] to say a few words, and then we'll have Triple H
+- [12:43.480] and we'll a couple of other people say something.
+- [12:45.670] And then I'm going to sign
+- [12:47.960] that good looking couple of pieces of paper,
+- [12:51.300] and it means a lot. It's going to very important.
+- [12:53.990] Council, and thank you all for being here.
+- [12:55.890] Bryson, please.
+- [12:58.300] Bryson DeChambeau: Thank you everybody for being here.
+- [12:59.730] And first off, I'd like to say thank you
+- [13:01.460] to President Trump and Vice President
+- [13:03.390] Vance for your support and this initiative and counsel.
+- [13:07.410] And to be honest, I never would have thought
+- [13:09.470] that this opportunity would have been here right at our doorstep.
+- [13:14.580] We have an opportunity at being the 70th anniversary
+- [13:18.070] of the President's Council on Sports, Fitness and Nutrition
+- [13:20.910] to literally change the fabric of kids' lives.
+- [13:24.690] And our first initiative is to bring back
+- [13:27.280] and reignite the President's Fitness Test.
+- [13:30.380] And then also reestablish some key other metrics
+- [13:33.870] on guidelines around building some communities.
+- [13:37.670] And also, again,
+- [13:38.930] with the president initiatives around college,
+- [13:42.280] we think we can help in that regard too.
+- [13:44.470] But we've got a great established council with us
+- [13:48.370] that we believe we can change the fabric
+- [13:50.280] of our communities and kids' livelihoods
+- [13:52.940] for the future generations that are to come.
+- [13:55.400] I can't thank you guys enough and looking forward
+- [13:57.010] to making massive changes in kids' lives
+- [14:00.350] and in our America's future.
+- [14:01.930] The President: Thank you. Please.
+- [14:05.730] Triple H: First of all,
+- [14:06.940] I'd like to say the same thank you to President Trump.
+- [14:09.740] Thank you for this honor. I'm humbled by it.
+- [14:12.090] I'm truly honored to be on this.
+- [14:13.980] Vice President Vance, thank you very much.
+- [14:16.080] Secretary Kennedy, truly appreciate
+- [14:19.820] all that everybody is doing for the health
+- [14:22.150] and wellness of the entire country.
+- [14:25.490] For me, since I was 14,
+- [14:28.250] this has been such an important part of my life.
+- [14:30.320] Health, fitness, sports, nutrition, all of it.
+- [14:33.480] I think learning that at a young age
+- [14:35.920] sets you up for success in life.
+- [14:37.980] And without it, you're at a lesser place for it.
+- [14:41.220] So I look forward to the opportunity to do this.
+- [14:44.510] I look for to the opportunity to help make our youth healthy,
+- [14:49.330] help get them engaged in sports
+- [14:51.600] and let them learn what it takes to be successful in life,
+- [14:54.900] so thank you very much for the honor.
+- [14:56.490] Thank you.
+- [14:59.070] The President: Bobby, please.
+- [15:02.170] Robert F. Kennedy: Thank you very much, Mr. President.
+- [15:07.700] In December of 1960, a month after he won the election,
+- [15:13.140] my uncle, who was about to be president,
+- [15:16.010] wrote an article for Sports Illustrated
+- [15:19.930] called The Soft American, and he was lamenting the fact
+- [15:22.850] that America had prided itself on its beef jerky toughness,
+- [15:28.700] and that we were losing that.
+- [15:30.070] We were falling behind Europeans.
+- [15:31.900] We were following behind other nations.
+- [15:34.580] And he was signaling with that article
+- [15:36.380] that he was going to make physical fitness
+- [15:39.620] for our kids the centerpiece of his administration.
+- [15:43.320] And I'm so grateful to President Trump
+- [15:45.970] for bringing back this tradition.
+- [15:48.560] I was talking to Paul before we went in here.
+- [15:51.650] We were part of the Council on Physical Fitness
+- [15:55.090] when we were kids.
+- [15:56.640] And you had to do sit ups, you had pull ups,
+- [15:58.720] you had do shuttle runs, you have to do one-mile runs.
+- [16:02.020] And they award it the top 15% with a patch
+- [16:08.370] and with recognition and with certificates.
+- [16:11.690] And for me, it was a huge item of pride when I was growing up.
+- [16:15.610] And we need to re-instill that spirit of competition
+- [16:21.330] and that spirit and that commitment to nutrition
+- [16:24.170] and physical fitness.
+- [16:26.050] And I'm so grateful to President Trump for your leadership
+- [16:29.260] and bringing this back for our country.
+- [16:31.210] The President: Thank you very much.
+- [16:32.420] Honor, representing the great women in sports, please.
+- [16:38.810] Annika Sorenstam: Thank you, Mr. President,
+- [16:40.060] Vice President Vance. This is truly an honor.
+- [16:43.120] I wanna thank the team behind me here
+- [16:46.460] for giving us trust to be able to do this.
+- [16:48.470] Thise sport has always been part of my life
+- [16:50.750] and the importance of living a healthy, active lifestyle
+- [16:53.700] is cannot be any more important than nowadays.
+- [16:55.580] So thank you for the trust and I can't wait to get to work
+- [16:59.540] to make a difference in kids' lives
+- [17:00.880] but also in people's lives.
+- [17:02.160] I think the time is so important.
+- [17:03.700] Obesity is the highest it's ever been.
+- [17:05.250] Mental health, as we all know. They need all to be tackled.
+- [17:08.090] So thank you for the trust and look forward
+- [17:09.700] to going to work with the team behind me.
+- [17:11.180] Appreciate it.
+- [17:12.390] The President: Thank you.
+- [17:13.940] Lawrence, you want to say a few words?
+- [17:15.600] Come on up. Come on. You know, he's a little shy,
+- [17:18.820] but once he gets going, nobody can stop him.
+- [17:21.200] [laughter]
+- [17:22.445] Lawrence Taylor: [inaudible]
+- [17:23.690] I'm just proud to be on this team.
+- [17:29.260] I don't know why.
+- [17:31.160] I don't know what we're supposed to be doing,
+- [17:34.200] but I'm here to serve, and I'm to serve you.
+- [17:37.160] OK, so I'm going to do the best I can for as long as I can.
+- [17:41.480] Thank you very much.
+- [17:42.780] The President: Nobody like him. Come on, young superstar.
+- [17:48.080] Harrison Butker: Obviously, very excited to be here.
+- [17:49.580] Thank you, Mr. President,
+- [17:50.910] for allowing me to serve on the council.
+- [17:53.600] Just excited to do my part to help make America healthy again,
+- [17:57.790] to help our youth be healthy and thrive and grow up
+- [18:01.410] and be great citizens of this country
+- [18:02.960] and be a great family members
+- [18:05.140] and contribute to this great country.
+- [18:08.320] And I think you have to be strong in mind
+- [18:10.230] and body and soul.
+- [18:11.480] So thank you so much for allowing me to be here.
+- [18:13.050] Thank you.
+- [18:14.330] The President: Thank you very much. JD?
+- [18:16.380] JD Vance: Okay. Sure. [laughs]
+- [18:18.610] [laughter]
+- [18:20.060] Well, thank you all, and thanks to the president
+- [18:22.330] for setting up this important commission.
+- [18:24.210] Thanks to all the great athletes
+- [18:25.920] for lending their credibility to it.
+- [18:27.190] I think all of us who have young kids at home
+- [18:28.720] just know that kids are healthier,
+- [18:30.190] they're happier, they do better when they're out there,
+- [18:32.560] they are being active, they playing in sports,
+- [18:34.210] they hanging out with their friends.
+- [18:35.540] I think that all of us have thought at one point
+- [18:37.290] in the last few years
+- [18:38.580] that kids spend a little too much time on their phones,
+- [18:41.280] maybe a little bit too much in front of the TV.
+- [18:43.160] We just want kids to do better.
+- [18:45.200] We want them to be healthier, we want them happier,
+- [18:47.050] and know that getting out there playing in sports
+- [18:48.850] and being active and healthy
+- [18:50.820] and physically fit is a critical part of this.
+- [18:53.090] So I'll do credit to the President
+- [18:55.090] and Secretary Kennedy's leadership.
+- [18:56.530] This is all about just making our kids better citizens,
+- [18:59.730] better people, and happier in their daily lives.
+- [19:02.070] And I think this is a great team to get it accomplished.
+- [19:03.910] Thank you, sir.
+- [19:05.140] The President: Okay, let’s sign this.
+- [19:06.440] [inaudible]. We’ll sign this. Melinda.
+- [19:13.770] She’s doing pretty well, right. It is amazing. Good job.
+- [19:31.960] Okay, we got it.
+- [19:34.260] [applause]
+- [19:40.400] Okay. Go pass them around.
+- [19:51.720] Okay, here you go.
+- [19:54.880] Okay. It is not signed with an auto-pen.
+- [19:58.390] There is no auto-pen.
+- [19:59.700] [laughter]
+- [20:00.900] We do no want auto-pens in the White House.
+- [20:04.410] Okay. Any questions, please? About the topic?
+- [20:08.150] The Press: What has sports meant to you
+- [20:11.040] and did you have a sports hero growing up?
+- [20:15.520] The President: Maybe Lawrence Taylor,
+- [20:17.150] it could be Lawrence, sorry. I know him so well.
+- [20:20.430] There are a lot of sports heroes.
+- [20:22.380] I have – it ment a lot.
+- [20:23.900] I was always a person that loved playing sports.
+- [20:26.840] I was good at sports.
+- [20:29.830] When you were really focused on sports,
+- [20:31.660] you thought about nothing else. It was nothing else outside.
+- [20:35.000] It kept you. And to an extent,
+- [20:36.650] this is one of the reasons I like golf,
+- [20:39.570] you get away for a couple of hours.
+- [20:41.810] I play quickly. And get through it.
+- [20:44.830] And for two hours, you're not thinking about
+- [20:46.710] all of the nonsense and all of — the important things, frankly.
+- [20:49.550] But it cleans your mind.
+- [20:52.060] No, I think sports is so important.
+- [20:54.350] I think what this Council is doing
+- [20:55.740] is going to be very important.
+- [20:57.730] And it gives you a little exercise,
+- [21:01.560] sometimes a lot of exercise. It's a great thing.
+- [21:04.310] It's great thing, sports are — you learn about people
+- [21:07.480] and you learn how people compete.
+- [21:11.290] Now, it doesn't mean that if somebody's not a good athlete,
+- [21:14.130] and a lot of people just are not good athletes,
+- [21:16.030] so they can't compete.
+- [21:17.780] But you learn about the people playing sports
+- [21:20.420] and playing sports with and against some.
+- [21:24.340] So, I've always loved it. It's been very important to me.
+- [21:27.120] These people are, you know, inspirations.
+- [21:29.570] These are the top people in their individual sports.
+- [21:32.480] The council itself, I mean, they have the greatest,
+- [21:34.750] some of the greatest champions for the most part.
+- [21:36.600] The greatest champions in their sport.
+- [21:38.910] So they really understand sports,
+- [21:40.530] and understanding is very important.
+- [21:42.510] Thank you for the question. Yeah, please. Please, go ahead.
+- [21:46.260] The Press: Mr. President, can you talk about your plans
+- [21:48.490] for the new ballroom that was announced today?
+- [21:51.080] The $200 million that's going to be paid for by yourself?
+- [21:52.940] The President: By me, yeah.
+- [21:54.140] The Press: Private reservations.
+- [21:55.380] The President: It's a private thing, you know,
+- [21:56.600] I'll do it and we'll probably have some donors or whatever,
+- [21:58.850] but it's about 200 million.
+- [22:00.970] So we've been planning it for a long time.
+- [22:03.280] They've wanted a ballroom at the White House
+- [22:04.960] for more than 150 years,
+- [22:07.150] but there's never been a President
+- [22:08.930] that was good at ballrooms. I'm really good.
+- [22:10.800] In fact, I looked at one that we just built
+- [22:12.390] in Turnberry in Scotland, and it's incredible.
+- [22:15.800] We're good at building. I'm good at buildings things,
+- [22:18.070] and we get it built quickly and on time,
+- [22:20.060] and it'll be beautiful. Top of the line.
+- [22:22.570] We've retained the best architects and engineers,
+- [22:26.660] everything else.
+- [22:27.960] It'll be built over on the east side,
+- [22:30.550] and it will be beautiful.
+- [22:32.570] It'll have views of the Washington Monument.
+- [22:35.190] It won't interfere with the current building.
+- [22:36.880] It won't t be. It'll near it, but not touching it,
+- [22:42.200] and pays total respect to the existing building,
+- [22:44.430] which I'm the biggest fan of.
+- [22:45.760] It's my favorite place. I love it.
+- [22:48.830] But they've wanted it.
+- [22:50.160] And, you know, when they have big events, you.
+- [22:52.570] Entertain the president of China or the president of any place,
+- [22:56.800] and you have big crowds.
+- [22:58.110] They've always had to get a tent.
+- [23:00.680] And you've probably been to some of them, Bobby.
+- [23:02.780] When it rains, it's a disaster. And the tent's 100 yards.
+- [23:06.320] That's more than a football field
+- [23:07.990] away from the main entrance.
+- [23:10.250] And people are schlopping down to the tent.
+- [23:14.210] It's not a pretty sight.
+- [23:16.220] The women with their lovely evening gowns,
+- [23:18.280] all of their hair all done,
+- [23:19.780] and they're a mess by the time they get in.
+- [23:22.060] They've always wanted to have it.
+- [23:23.270] And I said, you know, in the first term,
+- [23:26.590] I said you know if I get another shot at this,
+- [23:28.840] I'm going to do a ballroom. I was pretty busy in the first
+- [23:31.960] because I was running the country
+- [23:33.260] and I was also fighting for survival
+- [23:36.070] with all of the lunatics I had to beat.
+- [23:38.390] But it worked out.
+- [23:39.650] Obviously, it worked out very well because here we are.
+- [23:42.430] But I always said I was going to do something about the ballroom
+- [23:45.200] because they should have one. So we'll be leaving it.
+- [23:47.850] It'll be a great legacy project. And I think it'll be special.
+- [23:51.390] You saw some renderings of the initial.
+- [23:54.560] I think it'll be really beautiful.
+- [23:55.950] The Press: No government dollars at all.
+- [23:57.350] The President: No government dollars, no.
+- [23:58.730] The Press: I know you have had a busy week
+- [24:01.110] between this executive order, trade, Russia, Gaza,
+- [24:04.370] but also the family of Virginia Giuffre
+- [24:06.660] released a statement overnight in response
+- [24:08.750] to some of the comments that you made this week.
+- [24:11.010] You said that Jeffrey Epstein stole people from Mar-a-Lago.
+- [24:14.270] At the time, did you know why he was taking those young women,
+- [24:16.530] including Virginia –
+- [24:17.750] The President: No, I didn't know.
+- [24:19.030] I mean, I would figure it was ABC fake news
+- [24:21.440] that would ask that question one of the worst.
+- [24:24.160] But no, I don't know really why.
+- [24:27.080] But I said if he's taken anybody from Mar-a-Lago
+- [24:30.420] he's hiring or whatever.
+- [24:32.150] He's doing – I didn't like it and we threw him out.
+- [24:35.030] We said we don't want him, you know at the place.
+- [24:37.730] This is a story that's been known
+- [24:39.020] for many years as you know.
+- [24:42.120] But it's – I did like it that he was doing that.
+- [24:45.080] Yeah, please.
+- [24:46.390] The Press: If Canada moves forward
+- [24:47.630] with recognizing the Palestinian state –
+- [24:48.930] The President: Say it again?
+- [24:50.140] The Press: If Canada moves forward with recognizing
+- [24:51.940] the Palestinian state, is that a deal breaker?
+- [24:53.480] The President: Well, we're going to see.
+- [24:54.690] You know, I didn't like what they said,
+- [24:55.970] but, you know, that's their opinion.
+- [24:58.400] I didn't like that. Not a deal breaker.
+- [25:00.910] But we haven't spoken to Canada today.
+- [25:03.360] He's called and we'll see.
+- [25:05.830] But we have made a few deals today
+- [25:07.660] that are excellent deals for the country.
+- [25:09.550] You know we're taking in literally
+- [25:11.380] trillions of dollars for the county.
+- [25:13.450] This is making our country very rich and respected again.
+- [25:18.380] We have you know I tell these people
+- [25:20.530] and I say it as much as I have to say it.
+- [25:22.600] Every leader. I said NATO.
+- [25:24.640] And I was in the Middle East with the three great countries,
+- [25:28.120] three great leaders.
+- [25:29.710] Qatar, you know, Saudi Arabia, UAE.
+- [25:32.390] And everybody said the same thing.
+- [25:34.320] All of the NATO countries.
+- [25:36.140] Essentially, they said that we were a dead country.
+- [25:38.950] One year ago, we were dead country,
+- [25:40.430] now we're the hottest country in the world.
+- [25:42.030] Look at you people.
+- [25:43.260] We're the hardest country anywhere in the world.
+- [25:45.060] We're doing great. Yeah. Do you have a –?
+- [25:48.210] The Press: What's the holdup with the negotiations
+- [25:49.630] with Canada?
+- [25:50.860] The President: Well, they have to pay a fair rate, that's all.
+- [25:54.340] It's very simple. They have been charging very,
+- [25:57.590] very high tariffs to our farmers,
+- [26:00.240] some over 200 percent.
+- [26:03.260] And they've been treating our farmers very badly.
+- [26:05.350] They've been treating our country very badly for years.
+- [26:08.330] And look, we like Canada. I love Canada.
+- [26:11.960] I have so many friends in Canada.
+- [26:14.260] But they've been very poorly led.
+- [26:16.660] They've very, very poorly lead.
+- [26:18.130] And all we want is fairness for our country, that's all.
+- [26:21.800] You know, they want to be under the,
+- [26:24.810] as we call it, the Golden Dome. And I said, well, you know,
+- [26:28.920] you're going to have to pay for that.
+- [26:30.630] They want a lot of things from our country.
+- [26:32.320] And for years we did it.
+- [26:33.600] We basically protect them with our military.
+- [26:35.630] They spend very little money on their military, as you know.
+- [26:38.440] Not an acceptable amount of money.
+- [26:39.660] Yeah, please.
+- [26:40.970] The Press: Mr. President,
+- [26:42.170] your tariffs policy goes into effect tomorrow.
+- [26:43.750] The President: Yeah.
+- [26:44.970] The Press: As you know,
+- [26:46.180] the federal appellate court today heard oral arguments
+- [26:48.290] about whether or not you had the authority
+- [26:50.750] to unilaterally impose those tariffs.
+- [26:52.970] I'm not gonna get you to weigh in on the legal arguments,
+- [26:56.810] but you're weighing your decision to do that,
+- [26:59.750] your authority to do that,
+- [27:01.080] based on a 1977 law that's never been invoked before.
+- [27:05.300] Why didn't you invoke this?
+- [27:06.630] The President: Well, we've been winning all along, just saying.
+- [27:08.280] The Press: I just want to ask you,
+- [27:09.490] why didn't you invoke this law in your first term?
+- [27:11.990] You could have taken in billions
+- [27:14.010] upon billions of dollars in your first term,
+- [27:16.090] but you weighed it into your second term.
+- [27:17.690] The President: Yeah, because in my first term,
+- [27:18.950] I was fighting lunatics like you who were trying to do things
+- [27:23.010] incorrectly and inappropriately to a president
+- [27:25.550] that was duly elected.
+- [27:28.280] And we did do certain tariffs in the first term.
+- [27:30.530] If you look at China.
+- [27:31.920] China, we took in hundreds of billions of dollars from China.
+- [27:35.360] But when COVID came, the last thing I was going to do
+- [27:37.390] is tell France and Italy and Spain
+- [27:40.310] and a couple of other countries
+- [27:41.640] that we're going to hit you with tariffs.
+- [27:43.250] We had to fight the COVID situation when that came.
+- [27:47.030] But if you look at my first term,
+- [27:49.830] we took in hundreds of billions of dollars worth of tariffs,
+- [27:53.750] but you people didn't cover it very well.
+- [27:56.850] Yeah, please, go ahead.
+- [27:58.400] The Press: Thank you so much for presenting the forum call today.
+- [28:01.120] I'm asking you two questions. The first one,
+- [28:04.030] do you plan to re-engage diplomatically with Iran,
+- [28:07.260] go with direct talks with them,
+- [28:09.360] or are you happy with the current situation
+- [28:11.350] having no deal with Iran?
+- [28:12.740] The President: Well, Iran has been acting very badly.
+- [28:15.630] They were decimated. Their nuclear capability,
+- [28:19.350] that potential, which could have been —
+- [28:21.200] could have happened within three or four weeks,
+- [28:22.990] was decimated, it's been obliterated.
+- [28:25.790] The Atomic Energy Commission said the place is just decimated
+- [28:29.760] and now they can start again
+- [28:31.880] but they'd start in different sites because they were hit.
+- [28:34.150] I tell you what,
+- [28:35.490] the job these pilots did with their B-2 bombers,
+- [28:39.120] those unbelievable machines, they travel 36 hours.
+- [28:42.840] Without stop, and they hit every single target.
+- [28:45.990] Every bomb hit every — they went right down to the shoots.
+- [28:48.480] And then, as you know, we shot 30 rockets from submarines
+- [28:53.300] that were hundreds of miles away,
+- [28:55.320] and they had every target. So they can start again,
+- [28:58.090] but they haven't been saying the right thing.
+- [28:59.820] I will say Iran has not been saying the right thing.
+- [29:02.310] They have not been speaking nicely,
+- [29:04.490] and they should be. Yeah, please.
+- [29:06.110] The Press: [unintelligible] not lower interest rates again.
+- [29:09.590] Many people saying he’s playing politics with the futures
+- [29:11.960] of millions of Americans –
+- [29:13.190] The President: Well, he is. We call him too late.
+- [29:14.580] He's too late, it's his new nickname.
+- [29:16.350] He's a too late pal.
+- [29:17.810] He is a terrible Federal Reserve Chairman.
+- [29:21.090] Not only that, he's building a building.
+- [29:22.600] He said $2.9 billion.
+- [29:25.320] It's actually $3.1 if you include other areas
+- [29:28.250] that are essentially the same thing.
+- [29:30.360] Way over budget. Has no idea what he's doing.
+- [29:32.670] And I would say he's probably good at that
+- [29:34.840] compared to what he does with interest rates.
+- [29:36.750] But, you know, we have him there.
+- [29:39.560] It was a mistake. I put him in, and then Biden extended him.
+- [29:42.300] And Biden only extended him
+- [29:43.660] because he knew I couldn't stand him.
+- [29:45.500] And that turned out to be not a good thing for Biden.
+- [29:47.720] Although he did lower interest rates
+- [29:49.240] just prior to the election.
+- [29:50.850] Didn't work out too well for them.
+- [29:52.560] But he did low him pretty substantially
+- [29:54.960] just prior to election.
+- [29:56.220] No, he's a political hack, not very good.
+- [29:59.190] He's not a smart guy. Brian.
+- [30:00.750] The Press: Mr. President,
+- [30:01.960] sports fans have been very supportive to go back
+- [30:05.290] to the original names of Cleveland Indians,
+- [30:07.640] the Washington Redskins.
+- [30:09.170] The President: Oh, I love that. Love the sound of that.
+- [30:10.830] The Press: Well –
+- [30:12.060] The President: I do the Washington Redskins.
+- [30:13.320] I think they should do it.
+- [30:14.540] I told the mayor and I told people
+- [30:16.060] that they should bring back the name.
+- [30:18.000] If they bring back their name, you'll have a lot of excitement.
+- [30:21.420] And I mean, Cleveland Indians, how about that?
+- [30:23.730] That was an original franchise, 1903 or something, 1906,
+- [30:28.300] an original, the Cleveland Indians.
+- [30:30.300] And what do they do? They change the name from Indians.
+- [30:32.820] What's wrong with the word Indian?
+- [30:34.240] You know who is upset about it? The Indians are upset about.
+- [30:37.580] They're upset about Redskin's, too.
+- [30:40.410] So, Redskins, I guess you'd say
+- [30:41.920] it was a little bit lesser of a case,
+- [30:44.050] but people want to see the Redskins and the Indians
+- [30:46.760] want to see the Redskins back. No, I recommend it.
+- [30:49.000] I was asked that question the other day. I would
+- [30:51.650] – The Washington Redskins, it's a fabled franchise,
+- [30:55.460] and now I don't even know what the hell their last name is.
+- [30:58.490] What are they? Commanders or something?
+- [31:00.610] Is it Commanders? That's not a good name.
+- [31:03.710] The Press: [inaudible] replied sir.
+- [31:05.520] The President: Wait a minute.
+- [31:06.840] The Press: May I ask you a question.
+- [31:08.080] The President: Wait a minute, no, not you. You.
+- [31:09.850] The Press: Mr. President. Kamala Harris, as you know,
+- [31:12.260] is not running for governor of California.
+- [31:13.880] She's not going to do it.
+- [31:15.080] What do you see in her political future, sir?
+- [31:17.840] The President: Well, she can't speak.
+- [31:19.810] She can't talk. She can do an interview.
+- [31:24.740] I thought it was a very strange campaign that we had.
+- [31:29.110] But, you know, I had two of them.
+- [31:31.710] We were up by, like,
+- [31:33.390] this massive number of points on Biden, and they said,
+- [31:36.390] Let's change to Kamala. Nobody who knew who Kamala was.
+- [31:39.520] Nobody knew her last name, Harris.
+- [31:42.130] They said, We're going to get Vice President Harris.
+- [31:45.070] Everyone said, who the hell is Harris?
+- [31:46.450] They only knew her by the first name.
+- [31:48.500] But, no, I thought she was a terrible candidate.
+- [31:50.480] Look, don't forget, she didn't really get the nomination.
+- [31:54.060] I mean, that whole nomination was strange.
+- [31:55.690] She was the first one out.
+- [31:56.930] You know, she took a good amount of points with her
+- [32:00.610] when she announced, but nobody knew her.
+- [32:02.300] And once they got to know her, they —
+- [32:05.370] she dropped out very shortly after she started.
+- [32:08.380] And she started with a pretty good —
+- [32:09.760] you know, when she was, like, in second or third place.
+- [32:12.370] But I don't know, I mean she,
+- [32:16.510] I wouldn't call her a skilled politician, would you?
+- [32:20.660] The Press: She's also coming out with a book.
+- [32:21.860] Any plans you want to buy it?
+- [32:23.810] [laughter]
+- [32:25.400] The President: I don't know. Yeah, I think I'm gonna buy it.
+- [32:27.120] I'd love to see it. No. I'd know – I'd find it.
+- [32:30.910] Look I find everything in politics interesting.
+- [32:33.120] I sort of enjoy politics She wasn't a skilled person.
+- [32:36.810] You know, you have skilled politicians,
+- [32:38.470] really skilled politicians
+- [32:39.900] and then you have the some that aren't
+- [32:42.310] and she was put in a very tough position I think.
+- [32:44.680] She did have a six-week honeymoon.
+- [32:46.130] They were told me the pros said you know what?
+- [32:47.820] She's gonna have a sixth week.
+- [32:49.080] And she did she was like untouchable
+- [32:51.000] in terms of everybody thought great.
+- [32:53.460] But she didn't do any interviews or anything, which was strange.
+- [32:55.850] Not even friendly interviews with friendly reporters
+- [32:59.860] like her, right there, a really friendly reporter.
+- [33:02.510] And you know what happened?
+- [33:04.080] People said, what's wrong with her?
+- [33:05.550] Why isn't she doing? She made a mistake.
+- [33:07.660] She should have done interviews. She didn't run a great campaign,
+- [33:11.550] but we beat Biden and then we had to beat,
+- [33:13.840] nobody's beaten two, I had to be two.
+- [33:15.550] That's like – Dana White,
+- [33:17.400] the great Dana White has a fight.
+- [33:18.830] And he has a fighter
+- [33:20.060] that's getting the hell knocked out of him.
+- [33:21.410] They say, well, let's take him out and put somebody else in.
+- [33:24.100] Didn't seem fair to me at the time, but where are we?
+- [33:27.930] We're in the White House.
+- [33:29.520] So, I mean, you know, so it worked out.
+- [33:31.540] The Press: If I may, sir, I have a very serious question here.
+- [33:35.370] Russia today hit Kiev with missiles and drones.
+- [33:38.530] More than 100 people killed.
+- [33:40.080] The President: I think it's – Russia.
+- [33:41.770] I think its disgusting what they're doing.
+- [33:43.760] I think it is disgusting.
+- [33:44.990] This is Biden's war. It's not my war.
+- [33:47.140] But I said if I get in, I'll try and get the thing stopped.
+- [33:50.040] But I think what Russia's doing is very sad.
+- [33:53.690] A lot of Russians are dying. You have a lot of Russians.
+- [33:56.830] More Russian's are dying, but Russians are dying.
+- [33:59.300] Ukrainians are dying. You know, the United States
+- [34:02.680] isn't really involved in that war.
+- [34:04.230] Shouldn't be. And by the way, I made a deal with NATO
+- [34:06.240] where NATO pays us for everything that we send.
+- [34:08.900] We send them ammunition, missiles, et cetera.
+- [34:13.550] And we're not paying anything for that war,
+- [34:15.480] but I will tell you this, it should be stopped.
+- [34:18.240] It's a disgrace.
+- [34:19.500] And the ones that are dying or so –
+- [34:21.550] they're losing 7,000 now, it was 5,000.
+- [34:24.310] They're losing now 7,00 soldiers a week,
+- [34:26.730] Ukrainian soldiers and Russian soldiers.
+- [34:29.140] And they're also losing people now in the towns and cities
+- [34:31.740] because Putin's hitting them with rockets.
+- [34:33.710] No, I think it's disgraceful.
+- [34:35.700] The Press: [inaudible]
+- [34:38.280] The President: Yeah, we have about eight
+- [34:39.500] [inaudible]. Yeah, we're going to put sanctions.
+- [34:41.170] I don't know that sanctions bother him.
+- [34:43.040] You know, they know about sanctions.
+- [34:45.290] I know better than anybody about sanctions and tariffs
+- [34:47.950] and everything else.
+- [34:49.200] I don't know if that has any effect, but we're gonna do it.
+- [34:51.830] Europe is extremely upset.
+- [34:54.270] But this is a war that should have never happened.
+- [34:56.630] This is a work that wouldn't have happened
+- [34:58.110] if I were president. And this is Biden's war.
+- [35:01.000] This was a stupid war to get into.
+- [35:03.650] Should have never gotten into this war.
+- [35:06.340] The Press: [inaudible] traveling to Israel
+- [35:09.720] The President: Yeah, going to Israel.
+- [35:10.950] And then he is going to Russia, believe it or not.
+- [35:12.540] The Press: [inaudible]
+- [35:13.740] representative Marjorie Taylor Greene
+- [35:15.320] has said that what is occurring there is a genocide.
+- [35:18.110] Do you agree?
+- [35:19.450] The President: Oh, it's terrible what's occurring there, yeah.
+- [35:21.490] It's a terrible thing. People are very hungry.
+- [35:23.880] You know, the United States gave $60 million for food,
+- [35:28.360] and it's a shame because nobody —
+- [35:31.450] you know, I don't see the results of it.
+- [35:33.410] And we gave it to people that, in theory,
+- [35:35.090] are watching over it fairly closely.
+- [35:37.740] We wanted Israel to watch over it.
+- [35:39.780] Part of the problem is Hamas is taking the money,
+- [35:42.110] and they're taking the food.
+- [35:43.770] But we gave $60 million a couple of weeks ago.
+- [35:46.240] Nobody said anything about it. Nobody said thank you.
+- [35:49.600] But I didn't need to thank you.
+- [35:50.830] I just wanted the people to get fed.
+- [35:53.130] And we're helping out financially with that situation.
+- [35:56.360] It's a terrible situation.
+- [35:58.640] So, just to conclude, I want to thank everybody for being here.
+- [36:01.870] I want thank you for being there.
+- [36:03.070] This is a great group of people, and it's a good feeling.
+- [36:06.320] You know, when we were — when we first came to office,
+- [36:09.320] this country was really in trouble.
+- [36:11.590] And now we're rich as hell, and we're doing amazing things.
+- [36:14.670] And we really are.
+- [36:15.890] We're the hottest country in the world.
+- [36:17.250] And I like that. Thank you very much, everybody.
+- [36:20.030] Thank you.
+- [36:22.140] [applause]

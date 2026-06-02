@@ -1,0 +1,680 @@
+<!-- source: https://www.youtube.com/watch?v=4fLwOxHXVE0 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 4fLwOxHXVE0 -->
+<!-- date_published: 2026-01-22T23:18:36+00:00 -->
+<!-- date_accessed: 2026-06-02T01:06:33.880636+00:00 -->
+
+# Transcript: President Trump Gaggles with Press on Air Force One En Route Joint Base Andrews, Jan. 22, 2026
+
+- [00:01.070] The President: Hello, everybody. So we have a nice, calm flight.
+- [00:06.660] I think the trip was great.
+- [00:08.870] We had a lot of good response even from the fake news.
+- [00:12.100] And I think Greenland is going very well.
+- [00:15.630] It's in negotiation.
+- [00:17.710] And I think what we did today was, was great, was great.
+- [00:22.100] That's going to be a great board.
+- [00:24.150] That'll be a board, I think, like no other. Right?
+- [00:28.010] That's a board like no other. A lot of people joining.
+- [00:31.450] We just went out with the letters
+- [00:32.890] and a lot of people are joining. Now we have a flight back
+- [00:37.400] and we'll be landing in four hours and 45 minutes,
+- [00:41.650] and I'm going to be very late for dinner,
+- [00:44.420] but that'll be okay. Go ahead.
+- [00:47.690] The Press: What are some of the elements
+- [00:49.080] of the Greenland concept
+- [00:50.990] that you can tell that there was a --
+- [00:52.590] The President: It was really a negotiation, but it's infinity.
+- [00:57.190] The time limit is infinity, meaning there is no time limit.
+- [01:00.670] It's forever.
+- [01:03.560] It's, you know, you're about 99 years, 50 years.
+- [01:07.450] It's forever.
+- [01:08.930] That was discussed. We can do anything we want.
+- [01:12.070] We can do military. We can do anything we want.
+- [01:16.020] And it's being negotiated and let's see what happens.
+- [01:18.480] I think it'll be good. There's no price.
+- [01:22.040] You know, there's no purchase.
+- [01:23.610] The Press: What do the US have pockets of sovereignty over - --
+- [01:26.830] The President: A lot of, we have a lot of,
+- [01:29.120] we have a lot of great things in the deal.
+- [01:32.950] And don't forget, they're also good for Europe.
+- [01:35.970] Because, you know, when we're good, they're good.
+- [01:38.340] And if we're not good, that's not very good for them
+- [01:41.470] because we hold it all together. We're holding it all together.
+- [01:46.970] The Press: Does that actually
+- [01:48.220] give you control of land in Greenland?
+- [01:50.090] Does it give US control ownership of land?
+- [01:52.870] The President: Yeah, whatever we want, yeah.
+- [01:55.180] We're all going to work together,
+- [01:56.640] and actually NATO is going to be involved with us.
+- [01:59.420] We're going to be doing in conjunction,
+- [02:01.660] parts of it in conjunction with NATO,
+- [02:04.270] which is really the way it should be.
+- [02:06.030] We won't have any expense
+- [02:08.970] because we're not going to have expense.
+- [02:11.240] Other than building the Golden Dome.
+- [02:12.820] We're going to build the Golden Dome.
+- [02:15.500] And we'll have participation in that also.
+- [02:18.110] The cost of the Golden Dome,
+- [02:19.800] we'll have participation in that also,
+- [02:22.630] meaning with the expense of it. And it'll be like no other.
+- [02:26.310] I mean, you know, our technology is incredible.
+- [02:28.630] The Press: Has Denmark signed off on this
+- [02:30.210] or are they on board with this concept?
+- [02:32.310] Is Denmark on board with this concept?
+- [02:34.320] The President: I think everyone likes it.
+- [02:35.780] I mean, we think. I'll let you know in about two weeks.
+- [02:40.380] The Press: Have you spoken with Denmark about this plan?
+- [02:44.230] The President: The secretary general, Mark is a great guy.
+- [02:48.270] Rutte. He's a great guy, and he's spoken to everybody.
+- [02:52.630] The Press: And when you spoke with the NATO Secretary General,
+- [02:55.140] did you talk about US military presence in Greenland?
+- [02:58.950] About military presence?
+- [03:00.180] The President: We talked about everything
+- [03:01.400] and you saw him yesterday.
+- [03:02.620] He was interviewed on Bret Baier,
+- [03:04.460] and he was very happy.
+- [03:05.680] He was very convinced this is a good deal for everybody.
+- [03:09.920] The Press: How did the conversation
+- [03:11.990] go with President Zelenskyy?
+- [03:13.430] The President: We had a conversation.
+- [03:14.710] I've had numerous conversations on Ukraine.
+- [03:17.940] It'd be nice to end that war.
+- [03:19.390] We have, you know, it costs us nothing.
+- [03:20.800] We make money.
+- [03:22.040] I don't want to make money, but we make money.
+- [03:24.890] Whereas Biden spent $350 billion stupidly
+- [03:28.290] and lost a lot of money, but it's not about the money.
+- [03:31.880] It's about 25 to 30,000 soldiers upon, mostly soldiers.
+- [03:37.120] The Press: Are you --
+- [03:40.130] did you sign a security, security deal?
+- [03:43.510] Are you able to sign that?
+- [03:44.870] The President: Steve Witkoff and Jared are right now
+- [03:46.490] on the way to Moscow. So we'll see how that works out.
+- [03:50.070] I had a good meeting, but I've had,
+- [03:51.940] you know, numerous good meetings with President Zelenskyy
+- [03:54.540] and it doesn't seem to happen.
+- [03:58.290] You know, it's funny, I, I put out a 35-year war
+- [04:01.680] in a day, a 32-year war in two days.
+- [04:06.120] Another war is the worst, but it's like four days.
+- [04:09.420] And this one goes on and on forever,
+- [04:12.040] and actually they may have been more complex.
+- [04:15.220] The Press: Can you speak about that trilateral
+- [04:17.690] that the US, Russia, and Ukraine are having in Abu Dhabi?
+- [04:21.800] This weekend leads to a trilateral
+- [04:23.330] between you and Zelenskyy?
+- [04:24.690] The President: Look, it's all good.
+- [04:25.910] Anytime we meet, it's good.
+- [04:28.460] If you don't meet, nothing is going to happen.
+- [04:30.310] I mean, they, for, for the first three years, nobody met.
+- [04:34.690] Under Biden, nobody met.
+- [04:36.780] And you know one thing, if you don't meet,
+- [04:38.280] nothing is going to happen.
+- [04:39.560] So we are meeting and we'll see what happens.
+- [04:42.140] I hope -- I hope we can save a lot of lives and so --
+- [04:45.080] The Press: Mr. President,
+- [04:46.300] what kind of concessions does Vladimir --
+- [04:48.980] Mr. President, what kind of concessions
+- [04:50.900] does Vladimir Putin need to make at this point?
+- [04:54.900] The President: They'll make concessions.
+- [04:56.430] Uh everybody's making concessions to get it done.
+- [04:59.890] Uh, Europe is going to be a part of it.
+- [05:01.420] It's got to be a part of it.
+- [05:02.650] And look, it's more for Europe than for me.
+- [05:04.870] I mean, I'm doing this more for Europe than for me.
+- [05:07.720] I'm doing it to save lives, number one.
+- [05:09.920] I'm doing it secondarily for Europe.
+- [05:12.820] I'm not doing it so much for the --
+- [05:14.500] it doesn't affect us very much other than the loss of lives.
+- [05:19.640] You know, we're not affected by this deal.
+- [05:21.440] It's thousands of miles away. We're separated by an ocean,
+- [05:26.840] but I have an ability to get things done like this,
+- [05:29.530] and we'll see if I can get it done.
+- [05:31.560] I mean, we, it would never have gotten done.
+- [05:34.880] I thought Putin wanted the whole thing.
+- [05:36.580] Maybe he does when he's not going to,
+- [05:38.580] he's not going to be going there unless we don't make a deal.
+- [05:42.150] We had a good meeting today with President Zelenskyy.
+- [05:44.550] I think a very good man.
+- [05:45.990] The Press: What's the main hold up?
+- [05:47.530] What's the, what's the main hold up to getting a deal?
+- [05:51.040] The President: Main hold up is the same things
+- [05:52.740] that have been holding it up for the last year.
+- [05:56.320] Look, this is a war, this is Biden's war.
+- [05:57.890] This isn't my war.
+- [05:59.120] This is a war that should have never happened.
+- [06:02.140] But it's complex because you have metes and bounds,
+- [06:04.640] you have, you have streets, you have rivers,
+- [06:07.650] you have everything, you know, where does it end?
+- [06:09.340] So it's a little bit complicated.
+- [06:12.140] But I've had that in five of the other wars.
+- [06:15.740] You know, there are metes and bounds.
+- [06:17.190] There are, it's a location. It's boundaries.
+- [06:21.240] And I got them done fast in days and this one is just going on.
+- [06:26.390] And you know, what's happened here
+- [06:27.770] is there were times when Putin didn't want to make a deal,
+- [06:30.380] times when Zelenskyy didn't want to make a deal.
+- [06:33.790] And it was like opposite times.
+- [06:36.160] Now I think they both want to make a deal.
+- [06:38.030] We'll, we'll find out.
+- [06:39.710] The Press: Did something change that ma,
+- [06:41.360] that makes you think that Putin and Zelenskyy
+- [06:43.430] now are, are serious about it?
+- [06:44.740] The President: I don't make any predictions.
+- [06:46.240] There are no changes.
+- [06:47.470] Uh, I think that President Putin would like to make a deal.
+- [06:52.030] I think that President Zelenskyy would like to make a deal.
+- [06:56.950] The Press: What did, what is, what'd Zelenskyy say today?
+- [06:59.280] I mean, he came all the way there to meet you.
+- [07:01.420] What did he say?
+- [07:02.760] The President: He said he'd like to make a deal.
+- [07:06.550] I mean, don't know. There's not much he can say.
+- [07:09.380] People know the parameters.
+- [07:10.720] It's not like he, you know, we're, we're discussing things
+- [07:14.090] that have been discussed for six to seven months and he came
+- [07:17.880] and he said he wants to make a deal
+- [07:19.610] because I wasn't necessarily sure.
+- [07:22.130] I think he should want to make a deal.
+- [07:24.130] It's pretty tough.
+- [07:25.520] It's really tough for the people of Ukraine,
+- [07:27.610] I'll, I'll tell you this.
+- [07:29.750] What they, how they live without heat
+- [07:33.500] where it's 20 degrees below zero, you know, it's very cold.
+- [07:36.210] It's a very, that's a colder climate
+- [07:40.220] for the most part than Canada and they live without heat.
+- [07:45.310] I asked him, I mean, how do they, how do they do that?
+- [07:47.450] And he gave me an answer.
+- [07:49.720] It's pretty amazing what they do to, to live.
+- [07:53.400] It's no way to live. Yeah?
+- [07:54.720] The Press: Mr. President, back, back to Greenland.
+- [07:56.440] Can you elaborate more on just, we're trying to understand
+- [07:59.130] what exactly the concept is here.
+- [08:01.130] Is the U.S. going to actually take ownership of --
+- [08:03.460] The President: We'll have something in two weeks.
+- [08:05.680] There's a good spirit to get something done
+- [08:08.180] and we have to have a strong freedom.
+- [08:11.950] We have to have the ability to do exactly what we want to do.
+- [08:16.610] We have a great military. I built a great military.
+- [08:19.000] I did this in my first term.
+- [08:20.630] And continuation. Big continuation.
+- [08:24.560] I think what we did with the defense companies
+- [08:26.470] was very important because we need things faster.
+- [08:29.050] We have the best weapons in the world by far.
+- [08:32.030] We showed that last week with Venezuela.
+- [08:35.010] We have the best weapons in the world.
+- [08:37.310] We have to make them faster.
+- [08:39.100] The Press: How would it be any different
+- [08:40.420] than the current situation? The U.S. can --
+- [08:41.850] The President: Well, much different.
+- [08:43.060] Much more detail.
+- [08:45.490] Much more generous to the United States.
+- [08:48.150] It's a much more generous deal. It has to be.
+- [08:51.120] And we're building a golden dome and you see the way it works.
+- [08:54.500] That is so much better for us and for Europe
+- [08:58.800] to have that piece of ice covered by the golden dome.
+- [09:02.840] The Press: And you mentioned Venezuela.
+- [09:04.830] You, you've expressed uh optimism in,
+- [09:08.020] in your relationship with Delcy Rodriguez.
+- [09:10.550] Are you planning to let her stay in power?
+- [09:12.940] The President: Well, right now, they're very strong leadership.
+- [09:15.310] I mean, they're showing very strong leadership.
+- [09:17.620] I also spoke with Maria today
+- [09:19.230] and I, you know, who I like a lot.
+- [09:21.870] Uh, but Delcy's shown very strong leadership so far,
+- [09:24.720] I have to say.
+- [09:25.940] And we're moving in, you know, to the United States,
+- [09:31.600] millions of barrels of oil as we speak.
+- [09:34.920] You know that, you see it, you see what's happening.
+- [09:37.930] Uh, over 50 million barrels of oil is already moved
+- [09:40.970] or moving into the United States and much more to come.
+- [09:44.670] And we're working with them and they'll get some of that
+- [09:47.230] and we're going to get some of that.
+- [09:49.530] And it'll be divided up and our country will become richer
+- [09:53.960] and that means our taxes are going to be going down and,
+- [09:56.680] and they will do better.
+- [09:57.890] Venezuela's going to do better than they've ever done.
+- [10:02.270] Even with us, you know, taking a,
+- [10:05.620] a very fair piece of it, Venezuela will do better by far
+- [10:10.440] than they've ever done. Going to be very rich.
+- [10:13.490] And she has done a very good job.
+- [10:14.750] The Press: Mr. President,
+- [10:15.950] have you spent with Jamie Dimon since the lawsuit?
+- [10:18.960] The President: Yeah, Jamie Dimon,
+- [10:20.280] no, I haven't spoken to him. No, he, he debanked me.
+- [10:23.920] So we'll see if that means anything,
+- [10:25.610] but I think it should. You shouldn't be debanked.
+- [10:27.480] You get debanked if you don't have money or if you default.
+- [10:31.190] To have this great company and all of a sudden I was told,
+- [10:35.440] no, you can't, can't do that.
+- [10:37.440] So wrong. That's so I don't know,
+- [10:40.020] I don't know what their excuse would be.
+- [10:41.550] Maybe their excuse would be the regulators.
+- [10:43.410] I don't know. But regardless, I guess it's a good lawsuit
+- [10:49.300] because every pundit has come out and said,
+- [10:52.290] "Trump has a great lawsuit here."
+- [10:54.440] You're not allowed to do what they did.
+- [10:56.760] Jamie Dimon, what he did, he's not allowed to do that.
+- [11:00.070] The Press: Where do things stand with Iran?
+- [11:01.660] The U.S. has got sizable military - --
+- [11:03.930] The President: We're watching Iran.
+- [11:05.510] You know, we have a lot of ships
+- [11:07.940] going that direction just in case.
+- [11:09.720] We have a big flotilla going in that direction
+- [11:14.730] and we'll see what happens.
+- [11:18.190] We have a big force going toward Iran.
+- [11:21.820] Uh, I'd rather not see anything happen,
+- [11:23.540] but we're watching them very closely.
+- [11:25.800] I saw 837 hangings on Thursday.
+- [11:31.760] They would have been dead.
+- [11:33.140] Every one of them would have been hung.
+- [11:34.900] This is like from 1000 years ago.
+- [11:37.890] This is an ancient culture.
+- [11:39.640] Very smart people, by the way, but it's an ancient culture.
+- [11:43.700] 837 mostly young men were going to be hung,
+- [11:47.640] hung on Thursday, and I said, "If you hang those people,
+- [11:52.920] you're going to be hit harder than you've ever been hit.
+- [11:56.340] It will make what we did to your Iran nuclear look like peanuts."
+- [12:00.260] And an hour before this horrible thing was going to take place,
+- [12:05.360] they canceled it,
+- [12:06.810] and they, they actually said they canceled it.
+- [12:09.170] They didn't postpone it. They canceled it.
+- [12:10.960] So, that was a good sign.
+- [12:12.890] But we have a in armada, we have a massive,
+- [12:16.310] we have a massive fleet heading in that direction.
+- [12:19.680] And maybe we won't have to use it. We'll see.
+- [12:22.500] The Press: You said you'd like the Supreme Leader
+- [12:24.410] to step down or go on exile?
+- [12:26.420] The President: I don't want to say right now.
+- [12:29.820] I, I don't want to get into that.
+- [12:33.210] But they know why we're looking.
+- [12:34.620] There's a lot of killing going on.
+- [12:36.330] The Press: You said today they want to talk and --
+- [12:37.600] The President: They do.
+- [12:38.830] The Press: So if you set something up
+- [12:40.030] and they ask you to --
+- [12:41.250] The President: Yeah. I do. I would. I think that they --
+- [12:43.060] but, you know, we've talked to them a lot.
+- [12:45.210] They should have made a deal
+- [12:46.450] before we hit them with the nuclear,
+- [12:48.960] 'cause we really, that, that was a devastating hit
+- [12:52.390] that took that, that whole area's out of play.
+- [12:54.490] And if they try and do it again,
+- [12:57.210] they're going to have to go to another area.
+- [12:58.720] We'll hit them there too, just as easily, much more easily.
+- [13:01.670] So, it's very advanced.
+- [13:02.950] They were building that for 10 years.
+- [13:05.740] And they'd have to start anew, so, you know,
+- [13:08.310] there was, that was a total obliteration.
+- [13:11.880] The Press: Are you still planning to go ahead
+- [13:13.680] with those tariffs that you had mentioned in --
+- [13:16.570] on, the secondary tariffs for those affected by businesses
+- [13:20.510] in Iran, the 25 percent tariffs?
+- [13:23.830] The President: We're doing that. Yep. We're doing that.
+- [13:26.600] If you do business with Iran,
+- [13:27.870] you're going to have a tariff on 25 percent.
+- [13:29.560] The Press: And when should that go into effect?
+- [13:31.420] The President: It goes into effect very soon.
+- [13:32.680] The Press: Do you still --
+- [13:33.900] do you still think there's a possibility
+- [13:35.450] that the UK or France could join the Board of Peace?
+- [13:40.620] The President: Well, I think they're going to want to.
+- [13:43.660] But look, most countries, some countries have a prohibition
+- [13:46.450] and they're going to their legislatures
+- [13:48.210] and getting out. In most countries,
+- [13:50.710] the Prime Minister or the President can sign.
+- [13:54.310] So, a lot up to date.
+- [13:55.530] Hopefully we get, the letter only went out two days ago.
+- [13:57.680] We have almost 30 people already and very important judges.
+- [14:03.200] But there are some countries like Italy
+- [14:07.030] who told me she wants to sign, she wants to be desperately,
+- [14:10.090] but I think she has to go back to her legislative branch,
+- [14:13.880] and we have that with Poland too.
+- [14:16.370] We said we said, "We want to."
+- [14:19.650] I mean, I was the one that endorsed him.
+- [14:21.830] He's great, by the way. He's doing a great job, Karol.
+- [14:24.870] Uh, but he has to get an approval.
+- [14:26.760] Some have to get an approval.
+- [14:28.110] Some don't. Most don't, but some do.
+- [14:30.560] They have, I mean, a legal requirement to get it approved.
+- [14:33.320] The Press: Can you be chairman of the board
+- [14:34.840] if it's past your second term in office?
+- [14:37.960] The President: I have the right to be if I want.
+- [14:39.470] I mean, I'll decide. See what happens.
+- [14:41.350] But they'd like me to be
+- [14:44.770] It's, it's in theory for life, but I'm not sure I want that.
+- [14:49.120] But it's going to do great work with Gaza
+- [14:51.590] and maybe other things.
+- [14:52.840] You know, it could be beyond Gaza.
+- [14:55.070] And we'll work in terms of the united,
+- [14:56.810] eh, with, with the United Nations,
+- [14:58.500] who I've always said the United Nations
+- [15:01.040] has great potential, great potential,
+- [15:03.400] but they have not lived up to it, it.
+- [15:05.720] I mean, I say eight wars and I never spoke to them.
+- [15:09.590] You'd think I would have spoken to them a lot,
+- [15:12.250] but the United Nations has great potential.
+- [15:15.200] I think working with the Board of Peace
+- [15:16.770] is going to be a good thing for the United Nations.
+- [15:19.780] The Press: (Inaudible)
+- [15:21.000] said a couple of days ago
+- [15:22.450] that there would be something in the works
+- [15:24.490] where you could take money out of your 401(k)
+- [15:27.750] to help on purchasing a home.
+- [15:29.510] Is that something that the administration is working on?
+- [15:31.700] The President: I'm not a huge fan of it.
+- [15:32.930] Other people like it.
+- [15:35.150] They're talking about taking money out
+- [15:36.720] to put a deposit down on a home.
+- [15:40.080] And one of the reasons I don't like it
+- [15:41.680] is that their 401(k)s are doing so well.
+- [15:44.730] You know, 401(k)s are up 80, 90 percent in some cases,
+- [15:49.780] and you're talking about a lot of people.
+- [15:51.250] We're talking about very (Inaudible).
+- [15:54.070] And they're really doing, and the housing market's good,
+- [15:56.870] but the 401(k)s are doing much better than the housing market.
+- [16:00.850] I like keeping the 401(k)s in great shape.
+- [16:05.230] I like keeping the 401(k)s.
+- [16:06.620] And I'm not a huge fan of putting down a deposit.
+- [16:09.200] I'm not. I like -- I'm so happy with the way 401(k)s are doing.
+- [16:14.730] I have people telling me they're up 88 percent.
+- [16:18.690] And over the period of a year, over a full year,
+- [16:21.230] it's going to be,
+- [16:23.180] I mean, it's going to be close to 100 percent. Yes.
+- [16:25.980] The Press: Can you tell us, back,
+- [16:27.250] back to the Board of Peace, some of the countries are --
+- [16:31.020] I think the permanent members contributed a billion dollars.
+- [16:34.680] What's, is that money supposed to be for Gaza?
+- [16:36.490] The President: Some countries have already put up
+- [16:37.750] with the some of the countries
+- [16:39.910] have already put up much more than that.
+- [16:42.770] I mean, that's a lot of money,
+- [16:44.490] but it's nothing compared to the value of peace.
+- [16:47.980] Peace is so destructive for everyone,
+- [16:49.780] even countries that aren't involved.
+- [16:52.320] I mean, it's so destructive for everybody when you have wars.
+- [16:56.670] The Press: Can you tell us who your Fed pick is, sir?
+- [16:58.500] Can you tell us who your Fed pick is?
+- [17:00.990] The President: No.
+- [17:02.190] I can't, I'll, I'll be telling you soon.
+- [17:05.240] No. I have somebody that I think will be very good,
+- [17:07.390] but I'm not going to reveal it.
+- [17:08.680] The Press: Is it someone from Wall Street?
+- [17:10.460] Someone from Wall Street?
+- [17:11.670] The President: Somebody that's very respected,
+- [17:13.220] very, very well-known
+- [17:14.730] and will do I think a very good job.
+- [17:16.630] The Press: President Putin has said
+- [17:17.930] that he may use frozen Russian assets
+- [17:20.130] to pay for his entry to the Board of Peace.
+- [17:21.890] Are you inclined to let him do that?
+- [17:23.680] The President: I don't know about that.
+- [17:24.890] I mean, I've heard that. Well, who said that?
+- [17:28.490] The Press: President Putin.
+- [17:30.600] The President: Yeah, it's very interesting.
+- [17:32.630] But he said he's going to use his money.
+- [17:34.370] The Press: His frozen assets?
+- [17:35.680] The President: If he's using his money, I think that's fine.
+- [17:40.230] Yeah. You're talking about what he said this morning?
+- [17:42.110] The Press: Yeah.
+- [17:43.340] The President: He's going to join the Board of Peace
+- [17:44.800] and he's going to make a contribution
+- [17:46.710] of a billion dollars. Yeah, by using his money.
+- [17:49.410] I mean, if he's using his money, that's great.
+- [17:52.580] I think it's important to have everybody.
+- [17:54.670] The Press: Are you concerned about the investigation into
+- [17:56.700] Jay Powell making Jay Powell stay longer on, on the Fed?
+- [18:01.030] The President: No, I'm not concerned.
+- [18:02.300] We'll have to see what happens.
+- [18:04.560] He it's too late. Just always too late.
+- [18:07.730] Despite that, we have interest rates going down.
+- [18:11.120] And also he's, you know, building a small complex
+- [18:15.180] with that building and they're close,
+- [18:17.200] they're going to be close to four billion dollars.
+- [18:19.740] It's the most expensive job and it's a renovation.
+- [18:23.760] It's the most expensive job per square foot
+- [18:26.150] ever built of any kind.
+- [18:29.290] It's either gross incompetence or it's worse.
+- [18:33.620] The Press: Are you done with the --
+- [18:34.840] are you done with the interviewing people for the job?
+- [18:37.060] The President: Yeah. I'm done.
+- [18:38.290] The Press: (Inaudible)
+- [18:39.490] -- are you worried about the market reaction
+- [18:41.420] to your tariffs on Monday and Tuesday?
+- [18:43.150] The President: The market reaction's been good.
+- [18:44.540] It was up very big today.
+- [18:46.750] It was up big yesterday. It's it's where it started.
+- [18:50.950] It's very close to 15,000 on the Dow.
+- [18:54.900] And nobody thought you could be breaking 50,000
+- [18:57.320] during the first year. So we'll see what happens.
+- [18:59.510] Now, pretty much even, right? Just about even.
+- [19:03.200] The Press: Marketing came up only after you backed --
+- [19:05.290] The President: Market was up --
+- [19:06.860] as of yesterday, the market came up very nicely.
+- [19:10.110] The Press: President, on that 10 percent cap
+- [19:12.680] with credit cards,
+- [19:14.500] is that an end goal? Is that a negotiating point?
+- [19:17.490] And are you speaking with certain lawmakers?
+- [19:19.410] The President: The people, the credit card companies
+- [19:22.130] are getting 28 percent interest.
+- [19:26.410] So a guy goes out, he, they don't even know it.
+- [19:28.620] You know, these are people, regular people,
+- [19:30.510] they don't know that they're making 28 percent,
+- [19:32.690] and then it's a little bit overdue
+- [19:34.860] and they end up having to file for bankruptcy?
+- [19:37.330] We're not going to let that happen.
+- [19:39.000] So it's a one year, 10 percent cap on credit cards.
+- [19:44.350] We have to get that approved by Congress too.
+- [19:46.670] So, you know, that's not a -- that's not a no-brainer.
+- [19:50.290] It should be a no-brainer, but it's not.
+- [19:52.200] The Press: Sir, did you say
+- [19:53.440] that you spoke with Maria Machado today?
+- [19:55.390] The President: Yeah. Yeah, I called.
+- [19:56.660] The Press: Can you tell us about that conversation?
+- [19:57.940] The President: Let's just say that we have
+- [19:59.160] a very good relationship, just to say hello.
+- [20:00.640] She's a good woman. A very nice woman.
+- [20:02.870] She's been through a lot. And at the same time,
+- [20:07.110] I'll tell you, they're doing a very good job at Venezuela.
+- [20:09.420] So it's interesting. I get along with both sides.
+- [20:12.020] I get along with everybody but the media.
+- [20:14.700] You know, the fake news that I don't get along,
+- [20:16.700] but I get along with everybody else --
+- [20:17.970] The Press: So what, when will you pivot, sir, too,
+- [20:19.480] what would, at what point will you pivot in Venezuela
+- [20:21.740] to say we should have an election there?
+- [20:23.590] The President: I want to see how they do.
+- [20:24.830] First of all, they have to, you know, we have to take
+- [20:27.700] in a lot of money. We have to get that back.
+- [20:29.440] Right now they're not living well
+- [20:32.920] because of what's gone on for years.
+- [20:35.540] Years, it, really, it's years of socialism and worse.
+- [20:38.990] It's really, you know, worse than socialism.
+- [20:41.950] But we're going to start drilling very soon.
+- [20:45.450] We have the biggest companies in the world.
+- [20:47.150] We have them, and they're going to be going in.
+- [20:49.550] They're all negotiating right now.
+- [20:52.850] And we're representing the nation,
+- [20:54.520] and the nation is very thrilled by that
+- [20:56.390] because we're really good at this.
+- [20:58.680] And they'll be taking in more money than they ever have,
+- [21:01.110] but we'll be taking in a lot of money too.
+- [21:03.580] That's going to do two things.
+- [21:04.940] It's going to make the United States a lot of money.
+- [21:07.350] And it's also, I mean,
+- [21:08.600] it's going to make Venezuela a lot of money,
+- [21:10.250] but it's also going to bring down oil prices even further.
+- [21:13.530] We, you know, we have oil prices down in many cases
+- [21:17.220] to $2.30 a gallon.
+- [21:20.510] And in also numerous cases, $1.99, below $2.
+- [21:25.910] There was $4.50, $5, $3.90.
+- [21:30.870] I mean, prices are coming down very rapidly,
+- [21:33.270] including groceries, including just about everything,
+- [21:36.800] and they're starting to come down even more.
+- [21:38.430] We're getting them low. I inherited very high prices.
+- [21:41.920] You know, when they talk about affordability, they caused it.
+- [21:45.350] I inherited very high prices, and we've done a great job.
+- [21:48.590] Prices have come down a lot. And I would say led by energy.
+- [21:52.860] We're pumping more oil right now,
+- [21:54.690] we're drilling more oil than at any time
+- [21:57.840] in the history of our country by far.
+- [22:01.820] Add Venezuela to it.
+- [22:04.190] It's a tremendous part of the market.
+- [22:05.780] The Press: One more on the Fed, if you will.
+- [22:07.130] The Supreme Court seems skeptical of, of your power
+- [22:09.830] to remove Lisa Cook from that, from the board.
+- [22:11.410] The President: Well, we'll see.
+- [22:12.690] The Press: Your reaction to that?
+- [22:13.980] The President: We'll see.
+- [22:15.580] I mean, I listened to some, I read some of it,
+- [22:18.980] and I didn't get that impression other than they thought
+- [22:23.090] maybe it should have gone
+- [22:24.360] through a more normal court system.
+- [22:27.520] But nobody was saying that she's innocent.
+- [22:29.500] What they're saying is maybe it should have been
+- [22:31.140] a longer process. But, so we'll see what happens.
+- [22:35.670] The Press: Back to Iran for a second.
+- [22:37.490] We've seen wild variation
+- [22:39.130] and the numbers supposedly killed in those protests.
+- [22:42.480] Have you seen a revival estimate of --
+- [22:45.860] about how many people were killed?
+- [22:48.120] The President: Well, we, nobody knows the number.
+- [22:50.360] I mean it's, it's a lot no matter what.
+- [22:52.280] Hey, if it was one person, in this country,
+- [22:55.440] if it's one person, it's, you know, front page news.
+- [22:58.970] Uh, it's a lot of people.
+- [23:00.280] It's but, you know, there's a difference
+- [23:03.560] between a lot and 20,000 people. So we'll find out what it is.
+- [23:07.890] Look, we're going to find out exactly what it is.
+- [23:10.630] The Press: Haven't you, have you arranged a meeting
+- [23:12.550] with health insurance executives who mentioned you would have --
+- [23:14.720] The President: Yeah.
+- [23:16.100] The Press: When will that take place?
+- [23:17.320] The President: Soon. With the biggest company, yeah.
+- [23:19.540] We have, I mean, what I'd like to see
+- [23:21.180] is that the money is made not to the health insurance
+- [23:23.670] or not to the insurance companies,
+- [23:25.810] directly to the people,
+- [23:27.150] into a healthcare account, savings account.
+- [23:30.350] And the people buy their own healthcare.
+- [23:33.420] Now, the Democrats don't like that
+- [23:35.130] because they're owned by the insurance companies.
+- [23:38.300] The Democrats are owned by the insurance companies.
+- [23:41.020] Obamacare, and I said this for a long time.
+- [23:45.030] Obamacare was set up for the insurance companies.
+- [23:48.310] They made a fortune.
+- [23:49.680] 1,000 thousand points, they're going up 1,000, 1250,
+- [23:55.120] 1,359 percent. That's all the money pouring in.
+- [24:00.360] I want the money to go to, directly to the people,
+- [24:03.130] let the people buy their own healthcare.
+- [24:06.750] Now, their healthcare is going to be better
+- [24:09.940] and they'll be paying less money.
+- [24:11.340] It's going to be amazing, but we have to get the Democrats
+- [24:14.210] to support it, most likely, yeah.
+- [24:16.160] The Press: Mr. President, you're going to Iowa on Tuesday.
+- [24:18.050] What's your message there ahead of the midterm elections?
+- [24:20.560] The President: Well, straight to the farmers.
+- [24:21.850] The farmers have been great.
+- [24:23.110] I helped them out when we were going through the difficulty
+- [24:25.680] with China, which we saw.
+- [24:27.730] China's buying a lot of product right now, as you know.
+- [24:31.210] But while we had that negotiation,
+- [24:34.330] and I gave them, you know, billions of dollars,
+- [24:36.250] and they were very happy.
+- [24:37.510] You know, the farmers like Trump,
+- [24:39.250] and I like the farmers. I won their vote very s,
+- [24:42.340] oh, I won almost all aspects of a lot of,
+- [24:44.700] look at the auto workers,
+- [24:45.930] how well I did with the Jeepsters, the auto workers.
+- [24:49.210] But the farmers have been very special to me, very successful.
+- [24:53.120] All three terms. I've won it all the time.
+- [24:56.630] So I, I think they're really happy, the farmers,
+- [25:00.050] with what's happened.
+- [25:01.260] The Press: You've expressed some concern, though,
+- [25:02.970] about the midterm elections?
+- [25:05.100] The President: Oh, my only concern
+- [25:06.300] is that presidents never win.
+- [25:09.290] You know, what is it? Two times in 50 years.
+- [25:13.020] Democrat or Republican.
+- [25:14.460] Even, I mean, nobody had a better first year than I did.
+- [25:16.820] Look at, look at what we've done.
+- [25:19.120] We have the, the greatest economy in the world.
+- [25:22.380] We have the greatest investment in a country
+- [25:24.620] and history by many times.
+- [25:26.170] Nobody's ever had that. Think of it, $18 trillion.
+- [25:30.520] We have thousands of businesses being built right now.
+- [25:34.230] And they're going to be opening soon,
+- [25:35.780] and it's going to be amazing.
+- [25:37.010] Also, the Great, Big, Beautiful Bill kicks in now,
+- [25:41.910] you know, now and over the next couple of months.
+- [25:45.020] That's going to have a huge impact
+- [25:46.280] when you have no tax on tips,
+- [25:48.040] no tax on social security, no tax on overtime.
+- [25:52.480] That's going to have a huge effect.
+- [25:54.070] Also, the one-year depreciation is big for businesses.
+- [25:56.880] They're going to have to hire a lot of people.
+- [25:59.480] So I don't think there's ever been anything like it.
+- [26:01.730] I think we're going to have, we have a great country.
+- [26:04.080] We have a country back.
+- [26:05.290] We were a dead country and now we're great.
+- [26:07.230] The Press: Mr. President,
+- [26:08.450] how much travel are you going to do this year, campaign travel?
+- [26:11.240] The President: I'm going to do a lot of campaign traveling.
+- [26:13.400] I hate to tell you guys,
+- [26:14.640] but it's going to keep you employed.
+- [26:17.370] No, we're going to work hard.
+- [26:19.510] The only problem with that question is,
+- [26:21.630] for whatever reason, it's a deep down psychological reason,
+- [26:25.990] sitting presidents that won, even that won big, we won big.
+- [26:30.110] All seven swing states, a popular vote.
+- [26:33.200] Sitting presidents don't seem to do well in the midterms.
+- [26:38.270] I guess over a 50-year period, they won twice.
+- [26:41.350] So I don't know what that is. That's something down deep.
+- [26:44.580] You'd have to ask a psych --
+- [26:46.000] really a psychiatrist about that.
+- [26:48.470] But we should do great. We won the election big.
+- [26:52.470] The border is now great.
+- [26:54.590] The border's the best we've ever had.
+- [26:56.830] The border's the best there is anywhere in the world.
+- [26:59.410] Look at, look at some of the European countries,
+- [27:01.930] what happened. They wish they had our border.
+- [27:04.780] And they tell me that openly. They wish they had our border
+- [27:08.580] and they have to do something about immigration.
+- [27:11.430] The Press: Mr. President, how many times,
+- [27:13.040] how many times do you think you'll meet
+- [27:14.340] with the Chinese president this year
+- [27:15.630] (Inaudible)
+- [27:16.830] The President: I don't know, but I'm going to make a trip.
+- [27:18.260] We're going to, we have, I'm going in April.
+- [27:20.610] He'll come toward the end of the year.
+- [27:23.080] And I look forward to seeing President Xi.
+- [27:25.040] I've always had a, his wife is fantastic.
+- [27:27.530] He's a, an amazing guy.
+- [27:30.210] And I've always had a great relationship.
+- [27:32.000] Presidency Xi of China,
+- [27:33.950] always had a great relationship with him.
+- [27:35.830] It was a very strained relationship during COVID,
+- [27:39.670] but now it's an excellent relationship.
+- [27:41.240] Look, you see that.
+- [27:42.450] Look at all the farm product they're buying now.
+- [27:44.730] Soybeans are, they're buying a lot of soybeans.
+- [27:47.170] That, that makes our farmers happy,
+- [27:49.320] and that makes me happy. Thank you very much, everybody.
+- [27:51.750] The Press: Mr. President, we saw the --
+- [27:52.980] we saw the bruising on your hand.
+- [27:54.240] Are you okay? The President: Very good.
+- [27:55.460] The Press: You're good?
+- [27:56.660] The President: My hand, I clipped it on the table.
+- [28:00.140] So I put a little what do they call it?
+- [28:02.480] Cream on it, but I clipped it.
+- [28:06.040] I would say, take aspirin if you like your heart,
+- [28:10.540] but don't take aspirin
+- [28:12.050] if you don't want to have a little bruising.
+- [28:14.800] You know, if you take the big, I take the big aspirin.
+- [28:17.790] And when you take the big aspirin, they tell you,
+- [28:20.310] "You'll bruise."
+- [28:21.630] The doctor said, "You don't have to take that, sir.
+- [28:23.790] You're very healthy."
+- [28:24.990] I said, "I'm not taking any chances."
+- [28:27.860] So anyway, but then that's one of the side effects
+- [28:30.150] of taking aspirin. Thank you very much, everybody.
+- [28:32.820] Appreciate it.

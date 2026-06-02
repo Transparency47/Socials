@@ -1,0 +1,95 @@
+<!-- source: https://www.youtube.com/watch?v=NlFKWRF8K9w -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: NlFKWRF8K9w -->
+<!-- date_published: 2025-11-22T22:49:22+00:00 -->
+<!-- date_accessed: 2026-06-02T01:09:56.047252+00:00 -->
+
+# Transcript: President Trump Gaggles with Press Before Departing the White House, Nov. 22, 2025
+
+- [00:01.360] Mr. President,
+- [00:07.600] >> we're going to Andrew's Air Force base
+- [00:09.599] to do some work, especially for our
+- [00:12.559] great air force. We're doing some fix up
+- [00:15.360] of the base, which indeed we're going to
+- [00:18.160] try and reinstitute the golf courses.
+- [00:21.439] meeting with the great Jack Nicholas,
+- [00:23.359] greatest uh person, and he's involved in
+- [00:26.800] trying to bring their uh recreational
+- [00:29.760] facility back, who's a great place that
+- [00:32.399] has been destroyed over the years for
+- [00:34.160] lack of maintenance. So, we'll fix that
+- [00:35.680] up and Jack will be the architect and
+- [00:38.719] he'll design it. Two existing courses
+- [00:41.280] that are in very bad shape so we can for
+- [00:43.680] very little money fix it up for the Air
+- [00:45.440] Force base and we're looking at other
+- [00:47.680] things over at Andrew. So, we're going
+- [00:49.120] to be stopping. Won't be too long.
+- [00:51.280] We'll be stopping over there. I think
+- [00:52.640] some of you will be there. And the
+- [00:55.360] economy, as you saw, some incredible
+- [00:57.520] numbers came in. Investment in our
+- [01:00.000] country is bigger than ever before by a
+- [01:02.960] factor of two or three. And that means a
+- [01:06.080] lot of things are being built and a lot
+- [01:08.000] of plants will be opening very soon.
+- [01:12.000] >> Mr. President Senator Senator Greenator
+- [01:15.920] Green,
+- [01:17.360] >> I know that before you had a a fight
+- [01:19.439] with you in Washington, you guys were
+- [01:20.799] able to work it out.
+- [01:21.759] >> No, I get along with everybody.
+- [01:23.119] >> We see the same thing happening between
+- [01:24.479] you and
+- [01:25.119] >> Sure. Why not? I mean, I get along with
+- [01:26.720] everybody.
+- [01:31.840] >> Is this your final offer to Ukraine?
+- [01:34.799] >> No, not
+- [01:38.400] I would like to get the peace. It should
+- [01:39.840] have been It should have happened a long
+- [01:41.200] time ago.
+- [01:42.640] >> The Ukraine war with Russia should have
+- [01:44.560] never happened. If I were president, it
+- [01:46.960] never would have happened.
+- [01:48.240] >> We're trying to get it ended one way or
+- [01:50.479] the other. We have to get it ended. So,
+- [01:57.520] >> then he can continue that he can
+- [01:59.759] continue to fight his little heart out.
+- [02:01.840] Sir, do you still plan to national
+- [02:08.479] former president?
+- [02:09.920] >> So, I spoke last night to the gentleman
+- [02:13.200] you just referred to and we're going to
+- [02:15.920] be meeting I believe in the very near
+- [02:17.680] future. Sir,
+- [02:18.640] >> are you willing the president to be
+- [02:20.560] arrested today?
+- [02:22.640] >> What comment about the former Brazilian
+- [02:24.879] president being arrested today?
+- [02:26.480] >> No, I don't know anything about you.
+- [02:30.000] >> Mr. President, are you willing?
+- [02:31.920] >> I didn't. Is that what happened?
+- [02:35.519] >> That's too stupid.
+- [02:37.599] >> That's stupid.
+- [02:38.640] >> No, I just think it's too bad.
+- [02:41.680] >> The National Guard American.
+- [02:44.080] >> Do you still plan to deploy the National
+- [02:45.760] Guard in New York City?
+- [02:48.800] >> If they need it. Right now, other places
+- [02:51.200] need it more, but if they need it, we
+- [02:52.720] had a very good meeting yesterday. We
+- [02:54.160] talked about that. But if they need it,
+- [02:56.160] I would do it.
+- [02:56.800] >> Mr. Are you willing are you willing to
+- [02:59.040] force Congresswoman Taylor?
+- [03:02.000] >> Forget for what? No, we just I just
+- [03:04.400] disagreed with her philosophy. Uh she
+- [03:07.280] started backing perhaps the worst
+- [03:09.760] Republican congressman
+- [03:12.080] in our history, just this, you know,
+- [03:14.640] stupid person named Massie. And uh I
+- [03:19.360] said, "Go your own way." And once I left
+- [03:21.680] her, she resigned because she wouldn't
+- [03:23.360] have she would never have survived a
+- [03:25.280] primary. But I think she's a nice
+- [03:27.200] person. Okay. Thank you.

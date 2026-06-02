@@ -1,0 +1,890 @@
+<!-- source: https://www.youtube.com/watch?v=dCll85s5V3w -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: dCll85s5V3w -->
+<!-- date_published: 2025-03-26T23:14:32+00:00 -->
+<!-- date_accessed: 2026-06-02T01:28:57.529941+00:00 -->
+
+# Transcript: President Trump Delivers Remarks on Auto Tariffs
+
+- [00:01.760] Thank you very much. It's an honor to be
+- [00:03.919] with you today. We just celebrated
+- [00:06.319] Women's Day at the White House. It was
+- [00:08.400] fantastic. Attended by a lot of great
+- [00:10.400] women. A lot of great women. All women
+- [00:12.559] are great. So, uh, this is the beginning
+- [00:16.920] of Liberation Day in America.
+- [00:21.439] We're going to take back just some of
+- [00:23.359] the money that has been taken from us by
+- [00:28.160] people sitting behind this desk or
+- [00:29.920] another desk that's not quite as nice,
+- [00:31.840] but they have their choice of seven as
+- [00:33.920] you know. Uh and we're going to uh
+- [00:40.040] charge countries for doing business in
+- [00:43.840] our country and taking our jobs, taking
+- [00:46.079] our wealth, taking a lot of things that
+- [00:48.239] they've been taking over the years.
+- [00:49.600] They've taken so much out of our
+- [00:51.440] country, friend and foe. And frankly,
+- [00:53.840] friend has been often times much worse
+- [00:55.520] than
+- [00:56.280] foe. Uh, and this is very
+- [00:58.920] modest. What we're going to be doing is
+- [01:01.440] a 25% tariff on all cars that are not
+- [01:04.640] made in the United States. If they're
+- [01:06.159] made in the United States, there's
+- [01:07.360] absolutely no tariff. We start off with
+- [01:09.840] a 2 and a half% base which is what we
+- [01:11.920] were at and we go to
+- [01:15.240] 25% and basically as you know and as
+- [01:18.000] you've been seeing not reporting as
+- [01:19.920] accurately as it should be reported
+- [01:21.520] because it's a massive story. Uh
+- [01:24.080] business is coming back to the United
+- [01:25.920] States so that they don't have to pay
+- [01:27.520] tariffs and I think also because of
+- [01:29.360] November 5th the election they're very
+- [01:31.560] happy. Uh AI is coming back to levels
+- [01:35.600] that nobody's ever seen before. It's a
+- [01:37.600] new sort of a new business I guess when
+- [01:39.680] you think about it, but it's uh plants
+- [01:42.159] are going up all over the United States
+- [01:43.840] and many of them have already been
+- [01:45.280] started. We're getting early electricity
+- [01:48.640] uh taken care of. We're getting permits
+- [01:51.040] very quickly for them and we're going to
+- [01:53.360] make their life very happy. They're
+- [01:54.640] coming in with tens of billions of
+- [01:57.079] dollars. Individual plants will cost 10,
+- [01:59.759] 15, even 20 billion dollars. We're going
+- [02:02.479] to let them build electricity generating
+- [02:05.200] plants along with their plant and they
+- [02:08.479] can't even believe it. But and we're
+- [02:09.920] going to get them very quick permits as
+- [02:11.599] I've done always. I did that in
+- [02:13.440] Louisiana with two LNG plants. I got
+- [02:16.160] them one permit in one day after waiting
+- [02:18.400] 14 years and the other one in one week
+- [02:20.239] after waiting for 12 years. But this is
+- [02:23.680] very exciting to me. This is the
+- [02:24.959] automobile industry and this will
+- [02:27.840] continue to spur growth like uh you
+- [02:30.800] haven't seen before. Before I was
+- [02:31.920] elected, we were losing all of our
+- [02:33.360] plants. They were being built in Mexico
+- [02:35.120] and Canada and other places. Now, those
+- [02:37.599] plants largely have stopped and they're
+- [02:39.280] moving them to our country. And Indiana,
+- [02:42.879] the great state of Indiana. I love
+- [02:44.319] Indiana. Honda is building one of the
+- [02:47.120] biggest
+- [02:47.879] plants anywhere. And they've just
+- [02:51.400] started. They wouldn't have done it
+- [02:53.440] without this. In all cases, they
+- [02:56.319] wouldn't have done it without what we're
+- [02:58.400] doing. So, we'll effectively be charging
+- [03:00.959] a 25% tariff. But if you build your car
+- [03:03.840] in the United States, there is no
+- [03:05.280] tariff. And what that means is a lot of
+- [03:06.959] foreign car companies, a lot of
+- [03:08.879] companies are going to be in great shape
+- [03:10.239] because they've already built their
+- [03:11.360] plant, but their plants are
+- [03:12.959] underutilized. So, they'll be able to
+- [03:14.400] expand them inexpensively and quickly,
+- [03:17.200] but others will come into our country
+- [03:19.200] and build. And they're already looking
+- [03:21.040] for sites. Uh they're looking for mostly
+- [03:24.640] sites. They don't want to take the old
+- [03:26.400] buildings that are empty and falling
+- [03:27.840] down. and they want to build new and
+- [03:30.400] there's tremendous action. Uh there is
+- [03:32.720] likewise for other companies and
+- [03:35.040] countries like the chipm process. Your
+- [03:38.239] chip bill was a disaster done by Biden.
+- [03:41.040] All he does is give tremendous amounts
+- [03:43.760] of billions of dollars to chip companies
+- [03:46.560] that will do nothing with the money.
+- [03:49.440] They're not going to use the money here.
+- [03:51.120] They're going to just keep it. They have
+- [03:52.560] plenty of money. The one thing they have
+- [03:54.159] is they have a lot of money. In our
+- [03:56.239] case, all we're doing is saying, "You
+- [03:57.760] can't come in unless you build here."
+- [04:00.000] And the largest chip company by far is
+- [04:03.680] manufacture from Taiwan is building
+- [04:05.920] here. And it'll give us almost 40% of
+- [04:07.840] the chip market just with that. They're
+- [04:09.439] spending almost $200 billion in the
+- [04:12.640] United States to build a plant. And
+- [04:14.159] they've almost started. They'll be doing
+- [04:15.920] much of the work in Arizona. So, we have
+- [04:19.120] a lot of exciting things, but to me,
+- [04:20.639] this is one of the most exciting. Now,
+- [04:22.639] outside of one specific day, and that's
+- [04:25.280] Liberation Day, that's the real
+- [04:26.800] liberation day of America, and that's
+- [04:28.479] going to be in April 2nd, and I look
+- [04:32.400] forward to it. We'll have a little news
+- [04:34.240] conference. We'll talk about it. But
+- [04:36.240] this is very exciting. So, we're signing
+- [04:39.400] a executive order today that's going to
+- [04:42.960] lead to tremendous growth in the
+- [04:44.960] automobile industry. As you know, the
+- [04:48.240] electric mandate that we did allows you
+- [04:50.720] to buy a car now, electric or gasoline
+- [04:54.400] powered or hybrid. You can buy any car
+- [04:56.720] you want. We had it so that within a
+- [04:59.120] short period of time, you had to buy all
+- [05:00.639] electric. And the country could never
+- [05:02.479] get they could never provide the the
+- [05:05.919] money necessary to build all of those
+- [05:08.720] power plants that you would need all
+- [05:10.240] over the country. As you know, in the
+- [05:12.240] Middle West, they built eight power
+- [05:14.960] stations. That's like the size of this
+- [05:17.919] desk or smaller. And they ended up
+- [05:20.479] spending $9 billion dollar on eight. And
+- [05:23.360] of the eight, four of them didn't work.
+- [05:26.720] And we're not doing that. So, uh, you
+- [05:29.520] can buy electric or you can buy gasoline
+- [05:32.320] or you can buy hybrid or you can buy
+- [05:34.240] whatever you want to buy and that's the
+- [05:36.479] way it should be. The market's going to
+- [05:37.919] determine that and you're going to see
+- [05:40.320] prices going down, but it's going to go
+- [05:42.560] down specifically because they're going
+- [05:44.080] to buy what we're doing, incentivizing
+- [05:46.880] uh companies to and even countries, but
+- [05:50.479] companies to come into America and
+- [05:52.520] build. And we're already setting records
+- [05:55.120] for new plants. I think the new plant
+- [05:57.360] number, the tally is just within a
+- [05:59.520] period of a few weeks. It's uh it's very
+- [06:02.160] large. I want to be accurate. It's very
+- [06:03.840] large. And I'd like to ask Will just to
+- [06:06.639] come and give some of the basics and
+- [06:08.479] then I'll sign it and it's off to the
+- [06:11.600] races. I think our automobile business
+- [06:14.080] will flourish like it's never flourished
+- [06:16.000] before. Yes, please. Will. Thank you,
+- [06:18.000] sir. As you stated, we've prepared for
+- [06:19.919] your attention a proclamation imposing a
+- [06:22.280] 25% tariff on foreignmade cars and light
+- [06:26.160] trucks. This is in addition to tariffs
+- [06:28.560] that are already in place on those
+- [06:30.639] goods. Uh in addition to as you said
+- [06:33.280] spurring uh increased domestic
+- [06:35.360] manufacturer of cars and trucks, we
+- [06:37.919] expect that uh these tariffs will result
+- [06:40.639] in over a hundred billion dollars of new
+- [06:43.919] annual revenue to the United States of
+- [06:45.919] America in in tariff revenue. I think
+- [06:49.199] ultimately we could probably anywhere
+- [06:51.919] from 600 billion to a trillion dollars
+- [06:55.280] will be uh taken in over the relatively
+- [06:58.800] shortterm period. meaning uh a year from
+- [07:02.520] now uh but starting right away starting
+- [07:05.840] right away I think we'll go from 600 to
+- [07:07.840] a trillion within two years and I think
+- [07:11.680] we'll be very I mean right from the
+- [07:13.440] beginning we're going to be at a very
+- [07:14.560] high number right from the beginning and
+- [07:17.520] right from the beginning you're going to
+- [07:18.800] have a lot of construction jobs but
+- [07:20.400] you're also going to have a lot of
+- [07:21.440] automobile jobs so this is very exciting
+- [07:24.000] but it's also exciting because of what's
+- [07:26.479] happening with other aspects we're going
+- [07:28.560] to be doing tariff tariffs on
+- [07:30.280] pharmaceuticals in order to bring our
+- [07:32.919] pharmaceutical industry back. We don't
+- [07:35.039] make anything here for in terms of
+- [07:37.919] drugs, medical drugs, different types of
+- [07:40.960] drugs that you need, medicines. Uh it's
+- [07:44.319] in other countries largely made in
+- [07:46.080] China. A lot of it made in Ireland.
+- [07:48.560] Ireland was very smart. We love Ireland.
+- [07:51.440] But uh we're going to have that. We're
+- [07:53.280] going to have lumber. We're going to
+- [07:54.319] free up some of our land. and you'll be
+- [07:56.639] able to meet uh a lot of other standards
+- [07:59.039] like fire cuts. If Los Angeles had fire
+- [08:02.160] cuts, which they didn't have. That's a a
+- [08:04.639] gap of half a football field between
+- [08:07.440] areas, you wouldn't have had the fires.
+- [08:09.039] They would have been contained. Uh but
+- [08:11.360] you have fire cuts. And by the way, you
+- [08:12.879] sell that wood for a lot of money. A lot
+- [08:14.400] of lot of profit it's made from that.
+- [08:16.879] But we're going to be doing lumber.
+- [08:18.000] We're freeing up our land so that people
+- [08:19.759] can so that we don't have to use outside
+- [08:22.000] sources of lumber. Uh energy we're doing
+- [08:24.879] fantastically well at you know the
+- [08:26.639] energy prices have been coming down
+- [08:28.919] rapidly as we increase supply and we've
+- [08:31.759] already done that. We have Chris and
+- [08:33.760] Doug are doing a fantastic job on that.
+- [08:35.919] That's Department of Energy and
+- [08:37.200] Department of
+- [08:39.399] Interior and they're working together
+- [08:41.680] hand in hand because Interior has the
+- [08:43.519] land and energy has the uh ability to do
+- [08:47.040] the drilling and do what they have to
+- [08:48.720] do. Uh, our coal areas are going to be
+- [08:52.080] opened up for clean, beautiful coal.
+- [08:54.720] Germany's opening up many coal plants
+- [08:56.720] now. You know, they tried the wind and
+- [08:58.160] it didn't work. They almost went out of
+- [08:59.680] business. They almost went bankrupt.
+- [09:01.600] They tried wind, which is a disaster
+- [09:03.600] because it's too expensive and it's
+- [09:05.440] doesn't look good. Kills all the birds,
+- [09:07.200] a lot of problems. But Germany is now
+- [09:09.600] building a lot of coal plants. China bu
+- [09:11.600] is building one a one a week. Think of
+- [09:13.920] that. And they're using coal, which is
+- [09:16.160] very powerful. Well, coal is a very
+- [09:17.760] powerful energy and we're opening up our
+- [09:21.519] coal mines again and we're going to do I
+- [09:23.920] call it beautiful clean coal. The
+- [09:25.600] technology is so good now that coal can
+- [09:28.080] give you tremendous power at the same
+- [09:30.800] time it can be very clean but we're also
+- [09:33.600] obviously doing oil and gas and various
+- [09:35.920] other things. You can do pretty much
+- [09:37.440] whatever you want. We don't like the
+- [09:38.880] wind because we think it ruins the
+- [09:41.120] landscapes, the planes ruins them and
+- [09:44.640] it's got a lot of problems. It's also
+- [09:46.480] the most by far the most expensive uh
+- [09:49.279] energy. Uh it looks horrible in the
+- [09:51.760] oceans. It's dangerous in the oceans in
+- [09:54.080] terms of navigation. And if you look at
+- [09:56.480] what's happening with whales, you know,
+- [09:58.000] in one area, uh they lost two whales
+- [10:02.320] like in 20 years washed ashore. And this
+- [10:06.720] year they had 17 wash ashore. So there's
+- [10:09.760] something happened out there. There's
+- [10:11.200] something driving the whales a little
+- [10:12.640] bit loco. But they lost two in 20 years.
+- [10:15.680] and now they lost 17 in a short period
+- [10:17.760] of time. So it's something wrong out
+- [10:19.680] there. So this is very exciting. This is
+- [10:22.320] going to lead to the construction of a
+- [10:24.720] lot of a lot of plants and a lot in this
+- [10:27.440] case auto plants and you're going to
+- [10:29.760] have you're going to see numbers like
+- [10:30.959] you haven't seen both in terms of
+- [10:32.480] employment takes a little while. You're
+- [10:35.040] going to have great construction numbers
+- [10:36.560] initially and then you're going to have
+- [10:38.079] ultimately you're going to have a lot of
+- [10:39.200] people making a lot of cars. And one
+- [10:42.320] other thing, uh, we are trying, we have
+- [10:44.079] the speaker of the house with us who's
+- [10:45.519] doing a fantastic job. And where's Mike?
+- [10:49.519] And we're trying to get approved. Mike,
+- [10:51.279] thank you very much for being here, sir.
+- [10:53.120] Uh, we're trying to get approved if we
+- [10:55.120] can. Uh, if you borrow money to buy a
+- [10:58.000] car, you're allowed to deduct interest
+- [11:00.200] payments for purposes of income tax, but
+- [11:04.160] only if the car is made in America. So,
+- [11:06.000] if the car is made in America, you get a
+- [11:07.839] loan, you can deduct the interest.
+- [11:09.680] That's a big saving. A lot of people in
+- [11:12.240] in that uh part of the world in terms of
+- [11:15.519] buying cars, a lot of them don't think
+- [11:17.040] in terms of
+- [11:18.120] deductions. People that think in terms
+- [11:20.160] of deductions are very wealthy people,
+- [11:22.640] but uh people are going to start
+- [11:24.560] understanding what a good deduction is
+- [11:26.160] all about. So when you get a loan to to
+- [11:30.079] uh buy a car, and I think it's going to
+- [11:32.560] pay for itself. I don't think there's
+- [11:33.760] any cost. I think that's going to you're
+- [11:35.519] going to have so many cars built, but
+- [11:38.079] you're only going to get that deduction
+- [11:39.920] of interest if the car is made in the
+- [11:43.279] United States of America. So, I'm going
+- [11:45.600] to sign this and Mike, I hope you can
+- [11:47.360] get that because I think it's going to
+- [11:48.720] be amazing in terms of the number of
+- [11:51.440] cars that will made be made because of
+- [11:53.279] it. And I want to thank Howard Lutnik,
+- [11:55.519] our uh fabulous uh commerce chairman.
+- [11:59.839] That's what he is. He's a chairman. He's
+- [12:01.360] a very successful guy, a great guy. And
+- [12:04.320] we have a big day, Howard, coming up
+- [12:06.560] next week. Liberation be that's
+- [12:08.720] liberation day. That's going to be on
+- [12:10.079] the second and that's going to be
+- [12:11.200] reciprocal and I think people will be uh
+- [12:14.880] impressed. We're going to be we're going
+- [12:16.240] to be very fair. We're going to be very
+- [12:18.000] nice. Actually, we have not been treated
+- [12:20.160] nicely by other countries, but we're
+- [12:22.160] going to be nice. So, I think people
+- [12:23.920] will be pleasantly surprised. But uh
+- [12:26.720] it's going to make our country very rich
+- [12:29.200] because we're the piggy bank that
+- [12:30.959] everybody steals from and they've been
+- [12:33.279] doing it for many years, for decades. So
+- [12:36.079] we're not going to let it happen. So uh
+- [12:38.480] but we're going to treat people very
+- [12:39.839] nicely. We're going to treat other
+- [12:41.040] countries very very nicely and I think
+- [12:43.200] it's going to have a very positive
+- [12:44.800] effect on everybody including those
+- [12:46.639] other countries. So I'll sign this and
+- [12:49.360] uh we will see you again on April the
+- [12:52.800] 2nd. In terms of this, it's going to be
+- [12:54.959] another round and it's about making
+- [12:57.279] America great again, making it strong
+- [12:59.040] and prosperous again. Thank you very
+- [13:00.800] much. So, Mr. President, on tariffs, can
+- [13:04.000] I ask you about tariffs, Mr. President?
+- [13:05.360] On the car tariffs, how do you uh assure
+- [13:08.079] that a car coming into the country is
+- [13:09.839] fully built? Could a could an automaker
+- [13:11.760] in Germany say, "Leave the tires off a
+- [13:13.760] car?" We're going to have very strong uh
+- [13:16.760] policing, and it's pretty easy to do. If
+- [13:20.160] parts are made in America and a car
+- [13:22.880] isn't, those parts are not going to be
+- [13:24.720] taxed or tariffed. And we'll have very
+- [13:26.959] strong policing as far as that's
+- [13:28.480] concerned. For the most part, I think
+- [13:30.160] it's going to lead cars to be made in
+- [13:31.680] one location. You know, right now, a car
+- [13:34.399] would be made here, sent to Canada, sent
+- [13:36.399] to Mexico, sent all over the place. It's
+- [13:38.399] ridiculous. So, uh, this is a very
+- [13:40.959] simple system. And, uh, the beauty of
+- [13:43.839] the 25, it's one number. It's not up or
+- [13:46.639] down depending on the cost of the car.
+- [13:48.160] It's one number. And that number is
+- [13:50.320] going to be used to reduce debt greatly
+- [13:52.000] in the United States and to build
+- [13:53.680] things, reduce taxes. I mean, basically,
+- [13:57.440] I view it as uh reducing taxes and also
+- [14:00.639] reducing debt. And within a fairly short
+- [14:03.519] period of time, I think we're going to
+- [14:04.720] have a balance sheet that's going to be
+- [14:06.639] outstanding.
+- [14:08.880] Americans, how do you assure Americans
+- [14:10.720] then that this will not cause a
+- [14:12.800] long-term increase in prices? Well,
+- [14:14.639] look, uh I think we're going to have a
+- [14:16.320] market the likes of which nobody's ever
+- [14:18.079] seen before. not in this country. You
+- [14:19.680] know, we had the best market ever in my
+- [14:22.880] first term. It was the strongest market
+- [14:25.040] ever, the best economy ever. And I think
+- [14:27.920] you're going to I think this blows it
+- [14:29.600] away. But this is something that people
+- [14:31.839] have wanted to do. Presidents have
+- [14:33.360] wanted to do for a long time. A lot of
+- [14:35.120] them didn't understand it. It wasn't a
+- [14:37.360] priority for them, but foreign countries
+- [14:39.920] understood it very well, and they've
+- [14:42.880] really ripped us off at levels that
+- [14:44.959] nobody's seen before. But that's not
+- [14:46.880] going to happen. Mr. President, is this
+- [14:48.560] for today or on April 2nd? The
+- [14:50.519] auto. These auto tariffs go into effect
+- [14:52.800] today or on April 2nd. They go to effect
+- [14:55.199] on April 2nd. We're signing today. It's
+- [14:59.120] uh it goes into effect April 2nd. We
+- [15:03.040] start collecting on April 3rd.
+- [15:06.959] Tariffs that are coming in on April 2nd.
+- [15:09.120] What does that mean? Any more tariffs on
+- [15:11.279] any other sectors on April 2nd, for
+- [15:12.880] example, chips or pharmacy? Not then,
+- [15:15.040] but we will be putting a tariff on
+- [15:16.880] lumber.
+- [15:18.079] We, as you know, have a tariff already
+- [15:20.160] on steel and on aluminum of 25%. And
+- [15:23.839] we're taking in tremendous amounts of
+- [15:25.839] dollars. More importantly, our steel
+- [15:29.120] factories and aluminum factories are
+- [15:31.279] roaring. They're starting to roar.
+- [15:33.279] They're building new ones. I just heard
+- [15:34.880] from Newor, which is a big a big
+- [15:37.440] company, very big steel company, and
+- [15:38.959] they're building a massive a massive
+- [15:41.839] plant for steel that they wouldn't build
+- [15:44.079] without this. We're going to you're
+- [15:46.320] going to see you're going to see things
+- [15:47.440] that are going to be actually amazing.
+- [15:48.959] And uh I think you already have you know
+- [15:51.680] we've had some news conferences where I
+- [15:53.839] can't I can't have enough. They they
+- [15:55.360] want to do news conferences where they
+- [15:57.519] announce they're going to spend 20 30 40
+- [15:59.440] billion dollars but Apple as an example
+- [16:02.240] is spending $500 billion. Okay. Sir, on
+- [16:06.959] the signal on the on the signal chat,
+- [16:09.120] um, Senator Roger Wicker, hold one
+- [16:11.040] second. Mr. Reciprocal tariffs next
+- [16:13.759] week, will those be immediately
+- [16:15.519] effective to April 2nd on all countries
+- [16:17.120] or will you focus on the worst
+- [16:18.800] offenders? No, we're going to make it
+- [16:20.720] all countries and we're going to make it
+- [16:23.920] very lenient. I think people are going
+- [16:25.360] to be very surprised. It'll be in many
+- [16:27.839] cases less than the tariff that they've
+- [16:29.920] been charging us for decades. So, I
+- [16:32.560] think people are going to be very, very
+- [16:34.079] surprised.
+- [16:35.440] on these auto tariffs. I think I think
+- [16:37.040] they'll be pleasantly surprised. I don't
+- [16:38.480] know. I think we're trying to keep it
+- [16:40.000] somewhat conservative. And on these auto
+- [16:42.000] tariffs, we saw obviously the NASDAQ 100
+- [16:44.560] go down 2% and close as 500 down 1%.
+- [16:48.160] What are are you concerned is that
+- [16:50.120] today I didn't say that. I want to see
+- [16:52.800] the jobs. I want to see that'll all take
+- [16:54.560] care of itself. That could take care of
+- [16:55.839] itself in one day, two days, or one
+- [16:57.680] week. Are there any conditions under
+- [16:59.680] which you'd remove these auto tariffs,
+- [17:01.199] sir, or is this permanent for the rest
+- [17:03.120] of your term in office? Oh, this is
+- [17:05.199] permanent. Yeah, 100%. Yeah. Are you
+- [17:08.919] autoon advise you at all on the on these
+- [17:11.280] auto tariffs? No, because he may have a
+- [17:13.120] conflict. So, we don't talk. I've never
+- [17:14.720] talked to him. Elon's amazing. He's
+- [17:17.039] never asked me for a favor in business
+- [17:20.559] whatsoever. I'm actually a little
+- [17:22.240] surprised by it. I might do it, I might
+- [17:24.640] not do it. I do what's right. And he'd
+- [17:26.240] want me to do what's right. No, he's a
+- [17:27.839] patriot. He has never, you know, these
+- [17:30.160] are big deals we're talking about. This
+- [17:32.000] is probably nothing like this. And uh
+- [17:35.039] I've never had Elon come and say, "Would
+- [17:36.880] you do me a favor with the mandate or
+- [17:38.799] the electric mandate or anything?" He's
+- [17:41.120] never asked me for anything. Sir, also
+- [17:42.720] what's your response to Republican
+- [17:44.480] lawmakers who have said today that your
+- [17:46.240] administration should take more
+- [17:47.520] accountability and not downplay what's
+- [17:49.679] happened with the with signal that we've
+- [17:51.200] seen in these messages today? Well, I
+- [17:53.200] don't know about downplaying the press
+- [17:54.480] upplays it. I think it's all a witch
+- [17:56.080] hunt. That's all. I think it's a witch
+- [17:57.440] hunt. Uh I wasn't involved with it. I
+- [18:00.880] don't I wasn't there. But I can tell you
+- [18:02.960] the result is unbelievable because the
+- [18:04.960] Houthis are looking to do something.
+- [18:07.600] They want to know how do we stop how do
+- [18:10.320] we stop how do can we have peace? The
+- [18:12.080] Houthis want peace because they're
+- [18:14.240] getting the hell knocked out of them.
+- [18:16.080] It's been very very strong. The Houthis
+- [18:18.480] are dying for peace. They don't want
+- [18:20.799] this and they're bad. Look, they they
+- [18:23.120] were knocking ships out of the ocean.
+- [18:24.720] You know, we had in the Suez Canal, they
+- [18:27.200] only have about 20% of the ships going
+- [18:29.039] through. They have to go through a
+- [18:30.720] different way which takes weeks of
+- [18:33.320] travel and that really affects commerce.
+- [18:36.160] But uh the hoodies have been hit hard
+- [18:38.480] and they want to negotiate peace. But I
+- [18:41.520] don't think you still believe there was
+- [18:43.200] nothing classified that was shared. Say
+- [18:45.120] it. Do you still believe nothing
+- [18:46.960] classified was shared? Well, that's what
+- [18:48.880] I've heard. I don't know. I'm not sure.
+- [18:50.320] You'll have to ask the various people
+- [18:52.080] involved. I really don't know. I can
+- [18:54.799] only tell you this. You know, you don't
+- [18:56.320] want to talk about it. The Houthis have
+- [18:59.480] been horrible to the world what they've
+- [19:03.120] done. Killed a lot of people and knocked
+- [19:05.679] down a lot of ships and planes and
+- [19:07.360] anything else. You know, it's not just
+- [19:08.720] the ships. And they have been hit. They
+- [19:11.440] have been hit harder than they've ever
+- [19:12.799] been hit. And they want us to stop so
+- [19:15.720] badly. And they've got to stop. They've
+- [19:18.320] got to say no moss. But uh I can only
+- [19:21.760] say that the attacks it's, you know,
+- [19:24.080] it's attacks every day, every night.
+- [19:26.240] It's not just the one. You're talking
+- [19:27.600] about one. The attacks have been very
+- [19:30.280] successful. Uh even beyond our wildest
+- [19:33.280] expectations. We've uh we've hit them
+- [19:35.520] very hard, very successfully, and we're
+- [19:37.840] going to do it for a long time. We're
+- [19:39.039] going to keep it going for a long time.
+- [19:41.880] Republicans have asked for Senate
+- [19:43.919] Republicans have asked um said that they
+- [19:45.600] have formally asked the administration
+- [19:46.799] for an inspector's general report on the
+- [19:49.919] signal issue. Will you agree to that? I
+- [19:52.799] It doesn't bother me. I don't know. You
+- [19:54.559] know, I want to find if there's any
+- [19:56.400] mistake or if signal doesn't work. It
+- [19:59.520] could be that signal is not very good.
+- [20:01.200] You know, it's a company and maybe it's
+- [20:03.280] not very good. I think we'd rather know
+- [20:04.880] about it now. There was no harm done
+- [20:07.120] because the attack was unbelievably
+- [20:09.440] successful that night and it has been
+- [20:11.600] unbelievably successful every single
+- [20:13.840] night uh for the last four or five
+- [20:16.799] nights. So,
+- [20:19.520] and that's the thing that you should be
+- [20:20.720] talking about. This is something that
+- [20:22.480] should have been done by sleepy Joe
+- [20:24.240] Biden, but he was asleep at the wheel
+- [20:25.840] other than when it came to stealing
+- [20:27.200] money. Of course, uh Joe Biden should
+- [20:29.840] have done this attack on Yemen, which is
+- [20:32.799] basically a certain group within Yemen,
+- [20:35.120] the Houthis, and this should have been
+- [20:37.440] done by Joe Biden, and it wasn't. And
+- [20:40.960] that's caused this this world a lot of
+- [20:43.039] damage and a lot of problems. Mr.
+- [20:44.240] President is responsible. What? But he's
+- [20:46.799] also overseeing the investigation to
+- [20:48.320] find out what went wrong. Maybe who's
+- [20:50.000] responsible? Mike Waltz says that he's
+- [20:52.159] responsible. Well, yeah, Mike Waltz, I
+- [20:54.320] guess he said he claimed responsibility.
+- [20:56.240] I would imagine had nothing to do with
+- [20:57.840] anyone else. It was Mike, I guess. I
+- [20:59.600] don't know. I was told it was Mike. Uh,
+- [21:02.559] but uh again, the attacks were
+- [21:05.679] unbelievably successful and that's
+- [21:08.559] ultimately what you should be talking
+- [21:09.919] about. I think Mike did he took
+- [21:12.960] responsibility for it.
+- [21:16.720] Mr. Say it. Should Secretary Hseth
+- [21:18.960] consider his position over the signal?
+- [21:21.039] Hexath is doing a great job. He had
+- [21:22.799] nothing to do with this.
+- [21:26.559] How do you bring Hexath into it? He had
+- [21:28.320] nothing to do. Look, look, it's all a
+- [21:30.400] witch hunt. Here we are talking about
+- [21:32.799] some of the greatest business deals ever
+- [21:34.640] made. The greatest companies in the
+- [21:36.159] world are moving into the United States.
+- [21:37.919] And you want to ask about whether or not
+- [21:39.919] Signal works. I don't know that signal
+- [21:41.600] works. I think Signal could be defective
+- [21:43.520] to be honest with you. And I think
+- [21:45.440] that's what we have to because you use
+- [21:47.039] signal and we use signal and everybody
+- [21:48.880] uses signal but it could be a defective
+- [21:51.440] platform and we're gonna have to find
+- [21:52.799] that out. Mr. President, have you been
+- [21:54.400] briefed about soldiers in Lithuania?
+- [21:56.240] Have you been briefed about the soldiers
+- [21:57.600] in Lithuania who are missing? No, I
+- [22:00.480] haven't. Mr. President, have you spoken
+- [22:03.360] um sir with the big three automakers
+- [22:05.919] about these tariffs? What was their
+- [22:07.679] reaction? What was their reaction? It
+- [22:10.080] depends on whether or not they have
+- [22:11.280] factories here. I can tell you if if
+- [22:13.679] they have factories here, they're
+- [22:15.240] thrilled. If you don't have factories
+- [22:17.200] here, they're going to have to get going
+- [22:18.320] and build them because otherwise they
+- [22:19.679] have to pay tariffs. Very simple. And
+- [22:22.240] most of those have pretty big factories
+- [22:23.840] here. Like General Motors has big
+- [22:25.360] factories here. They're going to move
+- [22:27.120] their parts divisions back to the United
+- [22:29.120] States because some of them were made in
+- [22:30.720] Canada, some of them were made in Mexico
+- [22:32.960] and other places. they'll be moving
+- [22:34.960] their parts division back to the United
+- [22:36.880] States in factories where they may be at
+- [22:38.919] 60% capacity so they don't even really
+- [22:41.440] have to build too much of a factory but
+- [22:44.080] you know generally speaking if they have
+- [22:46.559] factories here plants here where they
+- [22:49.200] make their cars and equipment but they
+- [22:50.960] make their cars here they are
+- [22:53.799] thrilled with the steel industry steel
+- [22:56.640] industry is now paying a 25% tariff as
+- [22:59.120] you know I put it on last week and the
+- [23:02.000] business is roaring in the United states
+- [23:03.919] and we can't because of military. We
+- [23:05.679] can't lose the steel industry. If I
+- [23:07.760] didn't put the initial tariffs on steel
+- [23:09.679] in my first term, you wouldn't be able
+- [23:12.000] to have a military because we wouldn't
+- [23:14.000] have every steel company, every steel
+- [23:16.799] company would be bankrupt in the United
+- [23:19.679] States and every plant would be closed.
+- [23:22.320] But now they're booming and putting this
+- [23:24.400] tariff on this additional tariff for
+- [23:26.000] steel and aluminum. It it's it's making
+- [23:28.880] them thrive and it's already happened.
+- [23:31.320] Mr. a deadline for the Tik Tok sale.
+- [23:34.640] Will you extend that deadline if you
+- [23:36.000] don't have a deal? Do you support
+- [23:36.960] Oracle? Well, we we will have a form of
+- [23:39.120] a deal. Tik Tok is very popular, very
+- [23:42.320] successful, very good. Uh we're going to
+- [23:44.640] have a form of a deal, but if it's not
+- [23:46.559] finished, it's not a big deal. We'll
+- [23:47.919] just extend it. I have the right to uh
+- [23:50.480] have the deal and to extend it if I
+- [23:52.320] want. So, we'll see whether or not we
+- [23:54.640] have a deal. We have a lot of interest
+- [23:56.000] in Tik Tok. Is there a way for a US
+- [23:58.400] company to operate it and by dance to
+- [24:00.159] still have a share of the algorithm?
+- [24:01.440] Well, it'll be there are numerous ways
+- [24:03.039] you can buy Tik Tok and we will find the
+- [24:05.360] one that's best best for the country for
+- [24:07.200] our country. I'm worried about our
+- [24:09.360] country more than anything else with
+- [24:12.000] respect to Tik Tok and China is going to
+- [24:14.320] have to play a role in that possibly uh
+- [24:17.360] in the form of an approval maybe and I
+- [24:20.320] think they'll do that. Maybe I'll give
+- [24:22.400] him a little reduction in tariffs or
+- [24:24.720] something to get it done. You know,
+- [24:27.200] because every point in tariff is worth
+- [24:29.520] more money than Tik Tok if you think
+- [24:32.640] every point tariff is a much bigger
+- [24:34.320] world and Tik Tok is big, but every
+- [24:36.880] point in tariffs is worth more than Tik
+- [24:38.960] Tok. So, uh, in order to get China to do
+- [24:43.039] maybe I'd give them a reduction in, uh,
+- [24:44.960] tariffs as an example. Sounds like
+- [24:47.440] sounds like something I'd do.
+- [24:49.440] tariffs are going to be good for Tesla,
+- [24:50.799] sir. Good for who? Tesla, which makes
+- [24:54.559] Well, he makes he is a fantastic Tesla.
+- [24:57.279] Will tariffs be good? I think they may I
+- [25:00.400] it could be a net neutral or they may be
+- [25:02.240] good. He has a big plant in Texas. He
+- [25:04.640] has a big plant in California and
+- [25:07.360] anybody that has plants in the United
+- [25:09.360] States, it's going to be good for my
+- [25:10.960] opinion. Mr.
+- [25:13.159] President, education control to the
+- [25:15.360] states. How would you handle it if a
+- [25:17.120] state like California were to put in
+- [25:18.799] place education polic? You know, I
+- [25:20.240] haven't seen a mask in so long. You're
+- [25:21.919] wearing a mask. So nice of you. I
+- [25:24.159] haven't seen anybody wearing a mask in a
+- [25:26.000] long time. It's good. You feel more
+- [25:27.919] comfortable, right? Good. That's good.
+- [25:31.600] So, go ahead. Um, you said you want to
+- [25:33.840] return education control to the states.
+- [25:36.159] How would you handle it if a state like
+- [25:37.840] California were to put in place
+- [25:39.520] education policies you disagree with?
+- [25:41.440] Well, I think that California is going
+- [25:43.440] to be uh tougher because they are
+- [25:45.840] they're doing badly on everything they
+- [25:47.440] do. You know, they everything they touch
+- [25:49.120] turns bad. So, a place like California
+- [25:52.320] would be tougher for education. But what
+- [25:54.640] I would see with California is you'd
+- [25:56.320] have a Los Angeles uh department and
+- [25:58.960] you'd have Riverside, you'd have, you
+- [26:00.559] know, you'd go to various places and I
+- [26:02.799] think you'd have some great areas in
+- [26:04.320] California and then you'd have some like
+- [26:06.000] everything else. It doesn't work so
+- [26:07.440] well, but ultimately I think it would be
+- [26:09.360] very successful. I think in New York as
+- [26:11.039] an example, you'd go to Long Island,
+- [26:13.520] Westchester, you may have Nassau County,
+- [26:15.600] Queens County, you'd have you break it
+- [26:17.039] up in certain ways. So they'd have maybe
+- [26:19.360] five departments, you know, because of
+- [26:21.120] the size, they'd have five departments
+- [26:22.559] instead of one. A state like Iowa, you'd
+- [26:25.039] have one. And I mean, they're just
+- [26:27.039] chopping at the bit to get going. So
+- [26:29.360] many states are chopping at the bit to
+- [26:31.679] get education, and it's going to happen
+- [26:33.679] fast to get the education brought back
+- [26:35.760] to the states. And I mean I tell you
+- [26:38.240] what, you have 40 states in my opinion
+- [26:41.679] that would be as good as Norway, Sweden,
+- [26:44.159] Denmark,
+- [26:45.880] uh you take a look at those three are
+- [26:48.720] top among the top and they've been there
+- [26:51.520] for a long time. But I think you'll have
+- [26:53.200] a lot a lot uh Finland is very strong.
+- [26:57.679] Frankly, China is very strong. China's
+- [27:00.320] top 10 and that's something considering
+- [27:02.880] the size, you know. So it's not only a
+- [27:04.559] size thing but uh Norway, Sweden have
+- [27:08.960] been very good. Denmark has been very
+- [27:10.880] good. Uh I think you have Iowa and
+- [27:13.760] Indiana and a lot of our states will be
+- [27:15.600] equal to them. But they can't be equal
+- [27:18.080] if it's going to be run in Washington.
+- [27:19.600] We don't want that. Yeah. Today Director
+- [27:22.240] Gabard testified that any information
+- [27:24.720] that would indicate that the US or its
+- [27:26.559] allies are going to uh make an attack
+- [27:29.120] should be classified. The Secretary of
+- [27:31.440] Defense has said that the information in
+- [27:33.520] those messages was not classified. Are
+- [27:36.400] you going to ask him to review whether
+- [27:38.000] it should have been should flight times
+- [27:39.840] and sequences? Sure, I'll ask him to do
+- [27:41.600] this. Sure, I would. It would be um you
+- [27:45.440] you can view that two ways frankly.
+- [27:47.600] There's a lot of ways to answer that
+- [27:48.880] question, but I'd certainly ask him to
+- [27:50.720] take a look at Mr. President in
+- [27:53.279] hindsight should they?
+- [27:56.399] There may be a problem with the platform
+- [27:58.240] and if there's a problem with the
+- [27:59.520] platform, nobody should use it. You
+- [28:00.960] know, they could have a basic problem,
+- [28:03.279] but uh you know, I say it again, the
+- [28:06.640] attack was so successful. It was so
+- [28:08.919] lethal. Not that I'm looking for
+- [28:11.120] lethality. I wish we didn't have to do
+- [28:12.880] it at all, but they're shooting down our
+- [28:14.399] ships. They're shooting down our planes.
+- [28:16.799] And we can't allow that to happen. And
+- [28:18.399] again, this is something that should
+- [28:19.679] have been done by Biden a long time ago.
+- [28:21.760] one or two more.
+- [28:24.159] Vice president's comments that he
+- [28:25.600] doesn't like bailing out the Europeans.
+- [28:27.840] You agree with that? Well, I understand
+- [28:29.600] where he's coming from. The European
+- [28:31.679] Union has been treating us very very
+- [28:33.679] badly in terms of the VAT tax that they
+- [28:36.279] charge. They charge a tremendous VAT tax
+- [28:39.200] and uh they don't sell our cars in
+- [28:42.399] Europe. They don't sell our agriculture
+- [28:44.080] in Europe. They don't let us do very
+- [28:46.159] much. They treat us very badly. One of
+- [28:48.080] the reasons I'm putting tariffs on is
+- [28:50.320] that reason. We take millions of their
+- [28:53.039] cars. BMW, Volkswagen, Mercedes-Benz, we
+- [28:57.200] take millions and millions of their
+- [28:58.720] cars. They take none. I don't know if
+- [29:00.640] they take any of our cars. And they have
+- [29:03.120] nonmonetary tariffs where it's
+- [29:05.120] impossible for us to sell a car almost
+- [29:07.600] in Europe. And so I understand what he's
+- [29:10.480] saying. Same thing with NATO. when I got
+- [29:12.240] involved uh these mostly European
+- [29:16.159] countries as you know we had 28 at the
+- [29:18.399] time and only seven were paid and most
+- [29:22.159] of them were not paid 20 some odd
+- [29:24.960] countries were not paid or they were
+- [29:27.320] substantially less than it's supposed to
+- [29:29.440] be and the United States was was
+- [29:32.240] literally making up the difference in
+- [29:34.399] Europe and it's very unfair so I
+- [29:35.919] understand I didn't know he made that
+- [29:37.279] statement but if he did I mean I'm okay
+- [29:39.520] with it uh I complain about it all the
+- [29:42.240] time. The European Union treats us
+- [29:44.480] horribly on trade and NATO has has
+- [29:48.159] treated now I raised a lot of money for
+- [29:50.720] NATO hundreds of billions of dollars.
+- [29:52.399] You were here last week when the
+- [29:53.679] secretary general said without Trump
+- [29:55.679] there wouldn't be a NATO because I got
+- [29:58.000] them to pay money. It was unfair. The
+- [30:00.399] United States was paying 80, 90, 100%.
+- [30:02.960] Okay. You said be more lenient than a
+- [30:05.039] reciprocal next week. I think they'll be
+- [30:06.880] uh Yeah. I I think if I was if I did to
+- [30:09.600] them what they did to us, I think a lot
+- [30:12.960] of people would be very unhappy. Yeah. I
+- [30:14.799] think it'll be much more lenient. I'm
+- [30:17.440] going to be much more lenient with
+- [30:19.440] regard to the tariffs that you'll see on
+- [30:21.600] April 2nd. I'm going to be much more
+- [30:23.760] lenient than they were with us.
+- [30:27.120] They were really bad with us. I tell
+- [30:28.559] you, they've treated us badly and
+- [30:30.480] president should have stepped up. They
+- [30:32.399] should have stepped up and done
+- [30:33.520] something and they didn't do it and
+- [30:35.120] hence we have 36 trillion in debt.
+- [30:39.600] Mr. President, you've criticized Jeffrey
+- [30:41.600] Goldberg. Have you asked your national
+- [30:43.200] security adviser how he had his phone
+- [30:45.120] number in his phone? Uh, we have asked a
+- [30:48.080] lot of questions and we're going to try
+- [30:49.440] finding all those things out. No, I just
+- [30:51.440] know Goldberg is a sleback. You know,
+- [30:53.200] his magazine's terrible. He's a uh just
+- [30:57.200] a guy that I never had a lot of respect
+- [30:58.799] for.
+- [31:02.159] How far are you prepared to go on
+- [31:04.080] Greenland? You said this morning that uh
+- [31:06.399] the United States needs Greenland. We
+- [31:08.399] need Greenland for national security and
+- [31:10.640] international security. So uh we'll I
+- [31:14.320] think we'll uh go as far as we have to
+- [31:16.559] go. We need Greenland and the world
+- [31:19.279] needs us to have Greenland, including
+- [31:21.039] Denmark. Denmark has to have us have
+- [31:23.000] Greenland and you know, we'll see what
+- [31:25.919] happens. But uh if we don't have
+- [31:28.080] Greenland, we can't have great
+- [31:29.360] international security. If you look at
+- [31:31.679] the uh ships outside of Greenland,
+- [31:34.559] China, Russia, places that uh we have to
+- [31:38.960] be there. If we're not there, we can't
+- [31:40.799] have national or international security.
+- [31:43.600] So it's I view it from a security
+- [31:45.279] standpoint. We have to be there. What's
+- [31:46.880] the reason to join his wife instead of
+- [31:49.039] sending her she was going to go solo to
+- [31:50.320] the dog slavery and now he's going home
+- [31:52.640] on Friday. Who's going into the vice
+- [31:54.159] president? But was gonna go to Greenland
+- [31:56.240] on her own? I don't know. I'm not sure.
+- [31:57.600] I think uh I think you may have JD going
+- [32:01.120] actually. Yeah. I don't know. I don't
+- [32:03.600] know if they've split that up, but Usha
+- [32:05.840] is great, but I understand JD might be
+- [32:08.399] going. So, so the European Union has
+- [32:10.880] voted or or decided against Apple and
+- [32:13.519] Google during the Digital Markets Act,
+- [32:15.600] and they're the first US companies they
+- [32:17.120] targeted with that. An Apple executive
+- [32:18.960] told me they believe that's politically
+- [32:20.320] motivated because of the tariffs.
+- [32:22.559] The European Union is suing a lot of our
+- [32:24.919] companies like Apple and they have a 17
+- [32:28.559] billion dollar judgment and they're
+- [32:31.279] suing Google. They're suing Facebook.
+- [32:33.200] They're suing a lot of other companies
+- [32:35.120] and they use that money just like it's
+- [32:36.880] like a tariff. They go before judges
+- [32:39.200] that are very pro- European Union to put
+- [32:42.640] it mildly. I have that same thing here,
+- [32:44.399] but I don't think the people are going
+- [32:45.760] to stand for it. Are they using it as
+- [32:47.039] leverage? No, they're just taking
+- [32:49.200] advantage of American companies and
+- [32:51.039] we're not going to let them do it
+- [32:52.080] anymore. Okay. Thank you very much
+- [32:54.000] everybody. Thank you.

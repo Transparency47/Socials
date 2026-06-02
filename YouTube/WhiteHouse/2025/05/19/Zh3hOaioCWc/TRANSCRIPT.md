@@ -1,0 +1,869 @@
+<!-- source: https://www.youtube.com/watch?v=Zh3hOaioCWc -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: Zh3hOaioCWc -->
+<!-- date_published: 2025-05-19T13:45:21+00:00 -->
+<!-- date_accessed: 2026-06-02T02:49:55.406878+00:00 -->
+
+# Transcript: Press Secretary Karoline Leavitt Briefs Members of the Media, May 19, 2025
+
+- [00:00.000] Karoline Leavitt: Good morning everybody.
+- [00:02.535] Thank you for joining us early today.
+- [00:04.404] We have a very busy day so we want to kick
+- [00:06.740] off the week right this morning
+- [00:08.508] after a great trip last week.
+- [00:10.110] It's good to see all of you back in Washington.
+- [00:12.545] This afternoon in the Rose Garden,
+- [00:14.214] President Trump's alongside First Lady
+- [00:16.116] Melania Trump will sign the Take It Down Act into law.
+- [00:19.886] First Lady Melania Trump was instrumental
+- [00:21.888] in getting this important legislation passed.
+- [00:24.791] The Take It Down Act will protect
+- [00:26.426] victims of digital exploitation.
+- [00:28.495] Hold internet platforms accountable by
+- [00:30.830] requiring them to remove such imagery from
+- [00:33.533] their platforms and provide justice for
+- [00:36.102] victims by allowing prosecutors
+- [00:38.104] to go after those who publish
+- [00:40.740] non-consensual explicit images online.
+- [00:44.978] The First Lady met with members in the
+- [00:46.946] House and the Senate, survivors and their
+- [00:49.082] families and advocates throughout the
+- [00:51.084] process to get this bill across the finish line.
+- [00:53.987] We are grateful for the First Lady's
+- [00:55.822] hard work and dedication to this issue.
+- [00:57.991] And moving forward, she will continue to
+- [01:00.126] champion the well-being of our nation's
+- [01:02.295] children through her Be Best agenda.
+- [01:04.798] I know the President looks forward to
+- [01:06.399] signing that bill into law later this
+- [01:08.001] afternoon and we will see you all there.
+- [01:10.036] In other news, the One Big Beautiful Bill
+- [01:12.071] passed the House Budget Committee last
+- [01:14.441] night, bringing it one step closer to final passage.
+- [01:17.644] The One Big Beautiful Bill is
+- [01:19.312] perfectly named because it represents a
+- [01:21.781] once-in-a-generation opportunity to
+- [01:23.750] deliver on the Make America Great Again
+- [01:25.985] Agenda responsible for President Trump's
+- [01:28.755] landslide victory on November 5th.
+- [01:31.191] The America First policies in this bill
+- [01:33.159] are the reason why Republicans currently
+- [01:35.195] have the majority in Congress right now.
+- [01:38.031] Passing this bill is what voters sent
+- [01:40.400] Republicans to Washington to accomplish.
+- [01:43.636] And that's why it's essential that every
+- [01:46.339] Republican in the House and the Senate
+- [01:48.875] unites behind President Trump and passes
+- [01:51.478] this popular and essential legislative package.
+- [01:55.381] This bill will be the single most
+- [01:57.684] pro-small business, pro-family and
+- [02:00.053] pro-American worker legislation ever.
+- [02:03.857] This bill will give Americans the
+- [02:05.592] largest tax cuts in our nation's history.
+- [02:08.461] When Republicans pass the bill,
+- [02:10.129] Americans will be keeping more of their
+- [02:12.398] hard-earned money and taking home much bigger paychecks.
+- [02:15.602] The One Big Beautiful Bill will deliver
+- [02:17.637] some of President Trump's central campaign promises.
+- [02:21.140] No tax on tips for our hard-working
+- [02:23.042] waiters, waitresses, and service workers.
+- [02:25.879] No tax on overtime for our law enforcement
+- [02:28.481] officers, our firefighters, and all those
+- [02:30.984] who Americans who are putting in
+- [02:32.719] extra hours to make ends meet.
+- [02:34.754] And a large tax deduction on interest
+- [02:37.156] payments for Americans who
+- [02:38.825] purchase American-made cars.
+- [02:41.694] Despite desperate Democrat lies, the
+- [02:43.863] biggest beneficiary of this tax cut
+- [02:46.032] will be working-class Americans and their families.
+- [02:49.602] Americans earning between $30,000 and
+- [02:52.639] $80,000 per year will pay about 15% less
+- [02:55.942] in taxes after this legislation is passed.
+- [02:59.479] And according to a brand new paper from
+- [03:01.347] the White House Council of Economic
+- [03:03.016] Advisors, the average family with two
+- [03:05.385] children's take home pay will be up
+- [03:08.054] to $13,000 higher because of the
+- [03:10.590] increase in wages and reductions in tax obligations.
+- [03:15.028] The C.E.A.
+- [03:15.662] study also said that the average overtime
+- [03:18.364] worker receives a tax cut of roughly $2,000.
+- [03:22.502] Again, this is great news for our nurses,
+- [03:24.737] our police officers, and all those who
+- [03:26.806] work overtime to make ends meet across our country.
+- [03:30.143] Put simply, President Trump's One
+- [03:31.978] Big Beautiful Bill will be a
+- [03:33.646] boon for working-class America.
+- [03:35.648] This One Big Beautiful Bill is also pro-family.
+- [03:38.651] It will increase the child tax credit
+- [03:41.254] to $2,500 per child, establish optional
+- [03:44.023] savings account for newborn babies with a
+- [03:46.793] $1,000 credit added, and strengthen paid family leave.
+- [03:50.863] This bill also delivers historic tax
+- [03:52.899] relief to America's seniors by allowing
+- [03:55.134] middle- and low-income social security
+- [03:57.570] recipients to deduct an additional $4,000
+- [04:00.306] in payments from their taxable income.
+- [04:03.076] If Democrats get their way, and the Trump
+- [04:05.345] tax cuts are not extended, Americans will
+- [04:07.747] face a largest tax hike in history
+- [04:10.283] to the tune of $4 trillion.
+- [04:13.219] Republicans must not side with
+- [04:14.887] Democrats in helping them raise taxes.
+- [04:17.790] The One Big Beautiful Bill also provides
+- [04:19.859] critical protections of Medicaid,
+- [04:22.595] which will strengthen and preserve the
+- [04:24.163] program for decades to come through
+- [04:25.565] common-sense efforts to eliminate
+- [04:27.634] waste, fraud, and abuse.
+- [04:30.069] Medicaid will no longer be used to pay for
+- [04:32.372] barbaric gender-mutilation
+- [04:33.706] procedures on minor children.
+- [04:35.808] And the 1.4 million illegal aliens who are
+- [04:38.211] currently improperly receiving Medicaid
+- [04:40.413] benefits will be kicked off the program
+- [04:42.882] to preserve it for hardworking
+- [04:44.717] American citizens who need it.
+- [04:47.320] President Trump and Republicans are
+- [04:48.888] protecting Medicaid benefits for pregnant
+- [04:50.723] women, children, disabled individuals,
+- [04:53.026] low-income seniors and families,
+- [04:55.395] and the most vulnerable Americans in our society.
+- [04:58.598] And that's what Democrats are so angry about.
+- [05:01.668] Basic Medicaid protections that will stop
+- [05:04.037] the funding of transgender insanity and
+- [05:06.305] illegal aliens from ripping off American taxpayers.
+- [05:09.742] As you all know, over his first four
+- [05:11.477] months in office, President Trump ended
+- [05:13.513] the previous administration's open border
+- [05:15.815] crisis and secured our homeland in record
+- [05:18.151] time, all using executive authority.
+- [05:21.454] Now Congress needs to act.
+- [05:23.256] The One Big Beautiful Bill is the most
+- [05:25.458] significant investment in our nation's
+- [05:27.660] border patrol and law enforcement
+- [05:29.529] agents in our nation's history.
+- [05:31.831] The bill ensures that President Trump's
+- [05:33.733] popular and successful border
+- [05:35.168] security measures are made permanent.
+- [05:45.745] And that's why this bill gives them more
+- [05:48.081] resources to do their jobs, including a
+- [05:50.416] $10,000 much-needed bonus to ICE agents
+- [05:52.819] and Border Patrol agents over the next four years.
+- [05:56.622] To provide those brave agents with
+- [05:58.157] desperately needed reinforcements on the
+- [06:00.393] ground, the bill allows for the hiring
+- [06:02.161] of thousands of new ICE personnel,
+- [06:04.464] customs officers, and Border Patrol agents.
+- [06:06.365] These significant hirings will empower
+- [06:08.501] President Trump to continue delivering on
+- [06:10.803] his promise to carry out the largest mass
+- [06:13.206] deportation in the history of our country.
+- [06:16.075] Again, that is a promise that
+- [06:17.543] Republicans made to American voters.
+- [06:19.579] It's a promise they were elected on,
+- [06:21.147] and it's a promise for Republicans on
+- [06:22.915] Capitol Hill need to keep secure our border.
+- [06:25.852] To supplement those efforts, the bill
+- [06:28.721] funds -- will fund the completion of
+- [06:31.324] President Trump's signature border wall.
+- [06:33.593] As a result, 701 miles of primary wall,
+- [06:36.996] 900 miles of river barriers, 629 miles of
+- [06:40.566] secondary barriers, and 141 miles of
+- [06:43.102] vehicle and pedestrian barriers will be
+- [06:45.938] constructed when this bill passes,
+- [06:47.840] along with cutting-edge technology
+- [06:49.742] to secure our homeland from
+- [06:51.244] dangerous, illegal alien invaders.
+- [06:54.046] This bill also advances our national
+- [06:55.748] security and defense interests.
+- [06:57.617] By ensuring the United States military
+- [06:59.752] has the necessary resources to remain the
+- [07:02.054] strongest and most lethal fighting force in the world.
+- [07:05.892] The bill will provide resources for the
+- [07:07.593] construction of President Trump's golden
+- [07:09.362] dome to safeguard Americans from potential
+- [07:11.864] attack, give the Coast Guard resources to
+- [07:14.267] build more modernized ships, and the Air
+- [07:16.302] Force resources to acquire better planes.
+- [07:19.005] If all of those incredible things were
+- [07:21.040] not enough, the big Beautiful Bill also
+- [07:23.176] finally modernizes air traffic control
+- [07:25.778] in America, a bipartisan issue.
+- [07:28.514] The bill will allow President Trump to
+- [07:30.416] deliver on his promise to overhaul and
+- [07:32.385] update our air traffic control systems,
+- [07:34.687] to keep Americans flying as safe
+- [07:36.589] and efficiently as possible.
+- [07:38.658] The previous administration failed to act
+- [07:40.593] and do this themselves despite repeated
+- [07:42.461] warnings from the GAO, which has resulted
+- [07:44.664] in unacceptable delays at major airports
+- [07:46.799] like Newark that the Trump administration
+- [07:48.968] is working hard to address.
+- [07:50.903] When the One Big Beautiful bill passes,
+- [07:52.839] we will replace the current antiquated
+- [07:55.374] system, the FAA will enhance safety in our
+- [07:57.710] skies, reduce delays, and power the future
+- [08:00.179] of air travel in the United States.
+- [08:02.682] That's just some of what this history
+- [08:04.483] historic legislation will accomplish.
+- [08:06.752] It is absolutely essential that
+- [08:08.654] Republicans unite behind the One Big
+- [08:10.857] Beautiful Bill and deliver on President Trump's agenda.
+- [08:14.560] There is no time to waste.
+- [08:16.262] Americans gave Republicans a once in a
+- [08:18.164] generation opportunity to course correct
+- [08:20.199] our country over many wrongs over the past four years.
+- [08:23.769] And Americans are counting on Republicans
+- [08:25.805] to work as hard as President Trump is in
+- [08:27.874] this White House every day on Capitol Hill.
+- [08:29.976] Send this legislation to his desk as
+- [08:31.911] soon as possible for his signature.
+- [08:34.480] Here in our new media seat today, we
+- [08:35.882] have Liam Crossgrove, the White House
+- [08:37.316] correspondent for Zero Hedge.
+- [08:38.818] With that, Liam, please kick us off.
+- [08:40.920] The Press: Thank you, Caroline.
+- [08:41.854] So the first question is on foreign policy.
+- [08:44.223] The President has made several moves
+- [08:46.259] towards peace in multiple fronts.
+- [08:48.194] India, Pakistan, with the Houthis talking
+- [08:50.429] with Iran and talking with Putin.
+- [08:53.165] Biden didn't even talk to Putin for the
+- [08:55.001] entire span of the war, which is crazy
+- [08:56.936] considering two nuclear powers
+- [08:58.437] were engaged in a proxy war.
+- [09:00.273] So I do admire these moves by the
+- [09:01.774] current President, I'll be honest.
+- [09:04.477] However, as of today, we are still
+- [09:07.046] funding both Israel's and Ukraine's wars.
+- [09:10.583] So can Americans expect to finally be
+- [09:13.352] done financing foreign wars at some point?
+- [09:16.956] Would you consider that one of the President's goals?
+- [09:19.225] Karoline Leavitt: Well, I think I can summarize the
+- [09:21.460] President's foreign policy agenda with two
+- [09:24.730] words, America first.
+- [09:25.731] And that means putting the American
+- [09:27.500] people and the American taxpayer first.
+- [09:29.535] And that's why the President is
+- [09:31.037] moving as quickly as he possibly can.
+- [09:32.972] and working over time to end these
+- [09:35.274] conflicts in both Israel and in Gaza and
+- [09:38.110] also the Russia-Ukrain war.
+- [09:39.912] As you all know, the President will
+- [09:41.714] be speaking with Putin at 10:00.
+- [09:43.983] He plans to call President
+- [09:45.084] Zelensky when that call concludes.
+- [09:47.219] I spoke to the President about that call at 10:00.
+- [09:49.288] I don't want to get ahead of those
+- [09:50.823] very important conversations.
+- [09:52.358] But of course, you will hear directly
+- [09:54.160] from the President or me after
+- [09:55.594] those calls conclude today.
+- [09:57.396] So you can expect that.
+- [09:58.564] As for Israel and Gaza, the President
+- [10:01.133] continues to not only himself,
+- [10:03.436] but his national security team engage
+- [10:05.705] in talks on both sides of this conflict.
+- [10:08.240] The President made it very clear to
+- [10:10.109] Hamas that he wanted to see all hostages released.
+- [10:12.812] And last week, when we were flying out of
+- [10:15.014] town, there was great news on that front
+- [10:17.216] with the return of Edon Alexander,
+- [10:18.951] who was the last remaining hostage in Gaza.
+- [10:21.654] So to answer your question, the President
+- [10:23.155] is always thinking about the American
+- [10:24.557] people, the American taxpayer first.
+- [10:26.726] He wants these conflicts to end,
+- [10:28.394] not just to save money, but
+- [10:29.829] most importantly to save lives.
+- [10:31.297] The Press: Thank you.
+- [10:32.865] And my only other question for you is,
+- [10:34.867] so over the weekend, President Trump
+- [10:36.802] posted on Truth Social, a video highlighting
+- [10:38.871] what most people call the Clinton body
+- [10:40.806] count, which is the strange number of
+- [10:42.875] suicides that seem to happen in Clinton circles.
+- [10:46.479] I have a headline here from the Washington
+- [10:48.414] Post that said, Trump pedals false
+- [10:49.982] conspiracy theories tying the
+- [10:51.517] Clintons to several deaths.
+- [10:53.819] So I just wanted to highlight real quick.
+- [10:55.354] This wasn't in Trump's video, but
+- [10:56.722] this is from the Arkansas Times.
+- [10:58.491] And it's the death of Mark Middleton, who
+- [11:00.426] was a former Clinton White House aide,
+- [11:02.461] who was found dead on a Clinton foundation property.
+- [11:05.965] And I'll just quote from the Arkansas Times.
+- [11:07.967] "Middleton apparently shot himself in the
+- [11:09.869] chest with a shotgun and also hung himself
+- [11:11.904] from a tree with an extension cord."
+- [11:14.740] So I have no idea how somebody commit suicide that way.
+- [11:17.276] But if the Washington Post is here,
+- [11:18.677] maybe you can enlighten us as to
+- [11:19.979] how that was actually a suicide.
+- [11:21.680] So anyways, that's just a lead into my
+- [11:23.682] question about the most famous Clinton
+- [11:25.684] related suicide, which is that of Jeffrey Epstein.
+- [11:29.388] There's still a lot of questions around that case.
+- [11:31.757] You've released phase one of the Epstein files.
+- [11:34.593] What was missing from that is any
+- [11:35.995] connection to his ties to intelligence agencies.
+- [11:38.097] And that's really the whole story that not
+- [11:40.366] just trafficking young girls, but doing it on
+- [11:42.802] behalf of intelligence agencies.
+- [11:44.203] And even potentially as part of a
+- [11:46.272] blackmail ring with potential
+- [11:48.174] ties to the Israeli government.
+- [11:50.309] So for phase two, when can we expect it?
+- [11:53.179] Will it have information pertaining
+- [11:55.281] to those aspects of the Epstein case?
+- [11:57.416] Karoline Leavitt: I know the attorney general has
+- [11:59.018] committed to releasing those files.
+- [12:01.187] I would defer you to the Department
+- [12:02.588] of Justice on her timeline.
+- [12:03.789] But when she's made a promise
+- [12:05.057] in the past, she has kept it.
+- [12:06.826] And I'm certain that she will in this case as well.
+- [12:09.495] Rachel.
+- [12:09.595] The Press: Thanks so much Karoline.
+- [12:10.863] The President set a two week deadline for
+- [12:12.932] Ukraine and Russia to negotiate a deal.
+- [12:15.134] That time is now up.
+- [12:16.202] Does the President intend to set a new
+- [12:17.970] deadline on this call with President Putin?
+- [12:20.139] And how much longer is he willing to give these talks?
+- [12:22.041] Karoline Leavitt: Yeah, I don't want to get ahead of
+- [12:23.676] the specifics of the conversation the
+- [12:25.878] President will be having with President Putin
+- [12:27.113] in less than an hour this morning.
+- [12:29.248] But he has made clear throughout
+- [12:30.783] the entirety of this conflict.
+- [12:32.418] Since he inherited it from Joe Biden,
+- [12:34.120] don't forget this is a war that began
+- [12:36.522] because of the previous administrations
+- [12:37.957] incompetence and weakness.
+- [12:39.024] And President Trump is working very hard to fix it.
+- [12:41.393] He has made it clear to both sides that he
+- [12:43.562] wants to see a peaceful resolution and a
+- [12:45.598] cease fire as soon as possible.
+- [12:47.399] But as for specifics on a timeline,
+- [12:49.034] I won't get ahead of the President.
+- [12:51.137] The Press: And just on the goals for this call in
+- [12:53.272] particular, is the goal to get
+- [12:55.107] Putin to agree to a cease fire?
+- [12:56.942] Is the goal to lead to some sort of
+- [12:58.611] in-person negotiations with Putin and the President?
+- [13:01.080] Karoline Leavitt: Well, I think again, we'll see how the call goes.
+- [13:03.983] And the President has made it clear.
+- [13:05.284] His goal is to see a cease fire and
+- [13:06.719] to see this conflict come to an end.
+- [13:08.521] And he's grown weary and frustrated
+- [13:09.989] with both sides of the conflict.
+- [13:11.490] The President and his team have put an
+- [13:13.392] enormous amount of effort in solving this
+- [13:15.427] very complicated war that again began
+- [13:17.563] because of the last administrations weakness.
+- [13:20.332] The Press: Does he still want to meet Putin personally?
+- [13:23.035] Karoline Leavitt: I think the President would certainly be
+- [13:24.436] open to that, but let's see how this call goes today.
+- [13:26.405] The Press: What's the status of the secondary sanction package?
+- [13:29.074] The President has been talking about that.
+- [13:30.943] You haven't imposed it yet, but it's still on the table.
+- [13:33.679] Karoline Leavitt: I think everything's on the table, yes.
+- [13:35.814] And again, I won't get ahead of the
+- [13:37.049] President and any commitments or decisions.
+- [13:39.151] But certainly it's something he's
+- [13:40.486] been looking at and discussing.
+- [13:42.021] The Press: Hi, I'm going to ask you about
+- [13:43.722] the House bill, budget bill.
+- [13:45.891] So does the President agree with
+- [13:47.259] Republicans might dispel that Medicaid
+- [13:48.994] work requirements should be implemented as soon as 2026?
+- [13:53.032] Karoline Leavitt: So the President wants to preserve and
+- [13:55.768] protect Medicaid for Americans
+- [13:57.970] who this program was intended for.
+- [14:00.206] The most vulnerable in our society,
+- [14:02.107] pregnant women, low-income families,
+- [14:05.044] seniors, those who truly need these benefits.
+- [14:08.147] And it should be going to people
+- [14:10.216] who physically cannot work.
+- [14:12.484] We want to see abled-bodied Americans,
+- [14:15.120] at least working 20 hours per week,
+- [14:17.790] whether that's part-time or full-time,
+- [14:19.558] whether that's even looking for work or
+- [14:21.760] volunteering for 20 hours a week
+- [14:23.295] if they are receiving Medicaid.
+- [14:25.431] These are common-sense provisions.
+- [14:27.900] These are common-sense changes that were
+- [14:29.835] actually introduced by former
+- [14:31.237] Democrat President Clinton.
+- [14:33.038] They've been supported by every Democrat
+- [14:34.940] President since including the
+- [14:36.308] previous President Joe Biden.
+- [14:38.377] But again, these are common-sense reforms
+- [14:41.380] to ensure that those that this program was
+- [14:44.483] intended for receive those benefits.
+- [14:46.418] The Press: And just a quick follow-up.
+- [14:47.853] Is the President okay with this
+- [14:49.922] bill adding to the deficit?
+- [14:52.224] Karoline Leavitt: This bill does not add to the deficit.
+- [14:54.059] In fact, according to the Council of
+- [14:56.395] Economic Advisors, this bill will save $1.6 trillion.
+- [15:01.900] And the President absolutely understands
+- [15:04.169] and hears the concerns of fiscal
+- [15:06.005] conservatives and of Americans who
+- [15:07.640] want to get our fiscal house in order.
+- [15:09.708] That's what the intention of this bill is.
+- [15:11.644] There's $1.6 trillion worth of savings in this bill.
+- [15:14.947] That's the largest savings for any
+- [15:17.116] legislation that has ever passed Capitol
+- [15:19.718] Hill in our nation's history.
+- [15:21.820] The next bill that even comes close was $800 billion.
+- [15:24.356] That's less than half of the savings that
+- [15:26.325] we see in the One Big Beautiful Bill.
+- [15:28.627] And so the goal of this bill is to produce
+- [15:31.630] economic growth to cut taxes and to get
+- [15:34.600] our fiscal house in order.
+- [15:35.934] And this is the right step in the
+- [15:37.269] right direction towards doing that.
+- [15:39.004] And then I'll go to you.
+- [15:41.674] The Press: I want to get the President's reaction to
+- [15:44.076] Moody's downgrading the credit
+- [15:45.811] rating of the United States.
+- [15:47.680] Karoline Leavitt: Sure.
+- [15:48.180] We'll look for President talked
+- [15:49.748] about this over the weekend.
+- [15:51.317] The Secretary of Treasury also talked about it.
+- [15:53.519] When you look at the world, the world has
+- [15:55.554] confidence in the United States of
+- [15:57.256] America and our economy once again.
+- [15:59.491] The President just last week secured
+- [16:01.527] trillions of dollars in investments from
+- [16:03.796] countries in the Middle East.
+- [16:04.997] We have seen trillions of dollars of
+- [16:07.166] investments flowing into our economy
+- [16:09.435] since the President took office.
+- [16:11.003] That is because America or people around
+- [16:13.405] the world have confidence in
+- [16:15.207] the United States of America.
+- [16:16.709] And if you also just look at the raw
+- [16:18.344] economic data that we're seeing last week
+- [16:20.212] when we were out of town, inflation dropped once again.
+- [16:22.715] Oil prices are dropping.
+- [16:24.283] Gas prices are dropping.
+- [16:25.517] The President has added nearly a half
+- [16:27.453] million jobs to the American economy already.
+- [16:30.055] So there's a lot of optimism in this
+- [16:31.623] economy and the President
+- [16:32.758] disagrees with that assessment.
+- [16:33.859] The Press: I'm going to ask you one more thing if I could.
+- [16:35.728] On your Middle East trip, the United
+- [16:37.363] Arab Emirates is getting some
+- [16:38.597] of the most advanced AI chips.
+- [16:40.733] There's agreements there.
+- [16:41.900] The UAE is the newest member of BRICS.
+- [16:44.203] Is there a concern from the President that
+- [16:45.971] those chips in the technology will pass
+- [16:47.606] through to China in Russia and Iran?
+- [16:51.076] Karoline Leavitt: Part of going to the Middle East was
+- [16:52.745] to ensure that the United States --
+- [16:54.413] the part of the region, our Gulf partners
+- [16:56.582] know that the United States of America is
+- [16:58.784] there for them again and that they
+- [17:00.319] should be investing in the United States, not in China.
+- [17:03.055] And these AI agreements, particularly the
+- [17:05.524] one the Secretary of Commerce signed in
+- [17:07.926] the UAE, has security guarantees to ensure
+- [17:10.362] that China is not getting the advantage.
+- [17:12.664] But the United States is getting the
+- [17:14.433] advantage when it comes to AI
+- [17:15.801] and that the UAE and the U.S.
+- [17:17.770] are working hand-in-hand
+- [17:19.271] together to invest in this space.
+- [17:21.673] So read the agreements, there are security
+- [17:23.742] guarantees, and this was a great
+- [17:25.310] trip for the country, no doubt.
+- [17:26.979] Go ahead.
+- [17:27.446] The Press: Thanks, Karoline.
+- [17:29.014] Prime Minister Netanyahu of Israel has
+- [17:31.083] said today that Israel will take control
+- [17:33.485] of all of Gaza.
+- [17:35.621] Is that a goal that President Trump has
+- [17:37.756] comfortable with, or that he supports?
+- [17:40.325] Karoline Leavitt: I'll have to talk to the President
+- [17:41.927] about those comments as they just came,
+- [17:43.796] I believe, from the Prime Minister this
+- [17:45.564] morning and I'll let him speak on that.
+- [17:47.399] The President has made it very clear he
+- [17:49.268] wants to see this conflict in the region end.
+- [17:51.537] He wants all hostages to be released.
+- [17:53.539] He was pleased that Edon Alexander was
+- [17:56.108] returned home safely to his loving family.
+- [17:58.977] The President spoke with Edon directly
+- [18:00.879] while we were traveling to the Middle East last week.
+- [18:04.283] As for the Prime Minister's comments,
+- [18:05.984] I'll let the President himself respond to those.
+- [18:08.754] Sure.
+- [18:09.955] The Press: [inaudible] two questions.
+- [18:11.056] One, how involved is the President
+- [18:13.192] intend to be directly in talking to
+- [18:15.561] House members about the bill over the
+- [18:16.995] next couple weeks or the next week?
+- [18:18.397] Karoline Leavitt: Well, over the weekend, the President was
+- [18:20.532] in direct conversation and communication
+- [18:22.601] with the Speaker of the House.
+- [18:24.303] He's been very involved.
+- [18:25.604] He always is.
+- [18:26.405] He's willing to pick up the phone when he is asked to.
+- [18:29.775] So he'll continue to be very engaged in
+- [18:31.643] this process with both House members and
+- [18:33.679] his friends on the Senate side as well.
+- [18:35.247] And on former President Biden's cancer
+- [18:37.716] diagnosis, the President put out a very
+- [18:40.252] nice message on group social.
+- [18:42.554] Has he talked to President Biden directly?
+- [18:44.990] Does he intend to call?
+- [18:46.425] What does he intend to say directly?
+- [18:47.860] Karoline Leavitt: Not to my knowledge.
+- [18:48.861] I don't believe they have spoken, but
+- [18:50.362] I'm sure the President would be open to doing that.
+- [18:52.631] I spoke to him last night about the
+- [18:54.366] former President's cancer diagnosis.
+- [18:56.735] And the statement that he put out was the
+- [18:59.071] initial reaction he had with me on the phone as well.
+- [19:02.374] Peter.
+- [19:02.741] The Press: A follow-up on former President Biden,
+- [19:05.644] White House doctors may have missed the
+- [19:08.814] early stages of his prostate cancer.
+- [19:11.450] So is President Trump worried about the
+- [19:13.919] quality of care that Presidents get here?
+- [19:17.155] Karoline Leavitt: Not as far as President Trump is concerned.
+- [19:20.492] The White House physician we have here is phenomenal.
+- [19:23.595] And the team of physicians that take care
+- [19:25.430] of the President, particularly at Walter
+- [19:27.332] Reed Medical Center, are great.
+- [19:28.867] The President had his physical recently,
+- [19:31.136] as you know, he had perfect results.
+- [19:33.305] He's in very good shape.
+- [19:34.273] I think those of you who traveled to the
+- [19:35.974] Middle East with us last week can attest
+- [19:37.643] to the President's endurance.
+- [19:39.311] And by the way, I will add, we returned home
+- [19:42.114] from a very long, and tiring trip last week.
+- [19:45.117] And on Saturday, where was the President?
+- [19:47.419] In the Oval Office working all day.
+- [19:49.454] He doesn't stop.
+- [19:50.422] He doesn't quit.
+- [19:51.023] He's in great health and he trusts his physicians.
+- [19:53.025] The Press: Two more things.
+- [19:55.360] Putin ghosted everybody at these peace talks last week.
+- [19:58.897] Has President Trump phoned him today to try
+- [20:00.866] to figure out an end to the Ukraine war,
+- [20:03.035] does he think that Putin is a good guy or the bad guy?
+- [20:07.573] Karoline Leavitt: I'll let the President speak
+- [20:08.907] on that conversation later.
+- [20:10.576] He's made his feelings about both sides
+- [20:13.345] of this war quite clear throughout
+- [20:15.881] it he wants to see it end.
+- [20:17.115] The Press: The last one.
+- [20:18.884] What does President Trump mean when he
+- [20:21.386] says that Taylor Swift is no longer hot?
+- [20:26.024] Karoline Leavitt: Look, he is speaking about Taylor Swift's
+- [20:28.560] political views and how perhaps it has
+- [20:31.129] impacted the support of the
+- [20:32.631] American public for her work.
+- [20:41.139] And I will leave it at that.
+- [20:47.145] And Trump is doing a prostate
+- [20:48.614] cancer as part of his physical.
+- [20:50.549] Karoline Leavitt: To the best
+- [20:51.617] of my understanding, he is.
+- [20:52.951] But we can certainly check in with the
+- [20:54.353] White House physician and go back
+- [20:55.587] and look at that physical report.
+- [20:57.089] The Press: And there's one other question.
+- [20:59.925] Recently, Stephen Miller at the White
+- [21:02.327] House made some comments about considering
+- [21:05.163] suspending habeas corpus.
+- [21:07.599] And I'm curious if there's any update
+- [21:09.501] on how the White House is exploring that
+- [21:12.504] option in the President's [inaudible].
+- [21:13.939] Karoline Leavitt: I don't have any update at this time,
+- [21:15.507] but I can check in with our Deputy Chief of Staff.
+- [21:18.043] Mary Margaret, go ahead.
+- [21:19.144] The Press: Thanks, Karoline.
+- [21:20.445] Given the ongoing revelations about
+- [21:22.781] former President's mental acuity and
+- [21:25.384] how staff and media covered that up,
+- [21:27.352] especially with the release of
+- [21:28.920] this book -- on two days, I think.
+- [21:31.757] Is there any interest in further
+- [21:33.125] scrutiny of Kevin O'Connor to
+- [21:34.393] the former President's physician?
+- [21:36.762] Karoline Leavitt: I'll let the President speak on that.
+- [21:38.864] I spoke to the President again about the
+- [21:40.766] former President's health diagnosis last night.
+- [21:43.101] And he wanted to extend his warmest wishes
+- [21:45.470] to the former President and his family.
+- [21:47.639] But as for any further action, I'll
+- [21:49.808] let the President speak on that first.
+- [21:52.377] Michelle.
+- [21:52.411] The Press: Vice President Vance's meeting with Zelensky,
+- [21:54.846] can you share any more information on that?
+- [21:56.782] Karoline Leavitt: My understanding was it was a good
+- [21:58.850] meeting, a productive meeting,
+- [22:00.719] and we're grateful that the Vice President
+- [22:03.355] did it, and that he also went to the
+- [22:05.791] Pope's first mass in Rome.
+- [22:07.225] I also have an update on that.
+- [22:09.027] The Vice President passed along a letter
+- [22:11.296] to the Pope from the President and from
+- [22:13.498] the First Lady extending their warm wishes
+- [22:15.300] and inviting them to the White House as
+- [22:17.069] soon as they possibly can come.
+- [22:18.737] Michelle?
+- [22:20.305] The Press: On Iran, I think [inaudible]
+- [22:21.606] yesterday that your continued enrichment
+- [22:23.475] is a red line for the U.S., [inaudible] ministers
+- [22:27.145] that's going to continue no matter what.
+- [22:27.879] How committed is the U.S.
+- [22:28.880] to that red line?
+- [22:29.581] What's the next step for the next round of talks?
+- [22:31.316] Karoline Leavitt: We are 100 percent committed to that red line.
+- [22:34.052] The President, Special Envoy Wittkov,
+- [22:36.054] Secretary Rubio, have made that incredibly
+- [22:38.390] clear, not just to the American public,
+- [22:40.592] but also in those discussions that Special
+- [22:42.961] Envoy Wittkov has had directly with the Iranians.
+- [22:45.397] The Press: When is the next round of talks?
+- [22:46.732] Karoline Leavitt: I don't have an update for you, but we can get one.
+- [22:49.701] To the back row, go ahead.
+- [22:52.104] The Press: South Africa President says he's going
+- [22:53.839] to come to the White House to meet with
+- [22:56.174] President Trump on Wednesday.
+- [22:57.476] What are the President's expectations for that trip?
+- [23:00.278] And South African President recently
+- [23:01.880] said he believes the folks that have been
+- [23:03.548] resettled here recently are cowards running
+- [23:05.717] away from the problems in South Africa.
+- [23:07.919] Did the White House ever respond to that?
+- [23:09.588] Karoline Leavitt: So, I did see the South African
+- [23:11.022] President put out that statement.
+- [23:13.024] I want to confirm on our end with our
+- [23:14.426] Secretary of State and National Security
+- [23:15.927] Advisor, and we'll get back to you on that.
+- [23:18.096] Monica.
+- [23:18.296] The Press: Thanks, Karoline.
+- [23:19.765] You mentioned the President, the First
+- [23:21.199] Lady, are signing the historic
+- [23:22.367] Take it Down Act this afternoon.
+- [23:24.236] I'm curious to know, what are some of the
+- [23:25.837] repercussions or consequences for these
+- [23:27.472] online platforms or perpetrators
+- [23:28.940] that won't comply with the act?
+- [23:30.442] Karoline Leavitt: Well, what this bill does, it takes the
+- [23:32.277] initial step to ensure that
+- [23:33.211] prosecutors are able to take down --
+- [23:36.915] that's why it's called the Take It Down Act.
+- [23:38.984] The platforms that are allowing this
+- [23:41.153] sexually explicit content on their platform.
+- [23:43.655] So it gives them more leeway to
+- [23:45.157] go after them as they see fit.
+- [23:46.591] But as for specific repercussions, I
+- [23:48.326] would defer you to the Department of
+- [23:50.195] Justice of how they plan to implement
+- [23:52.230] this bill once it is signed later today.
+- [23:54.966] The Press: Yes, thank you.
+- [23:56.501] You said in your opening statement you
+- [23:58.603] talked about this [inaudible] baby savings account.
+- [24:01.940] Exactly.
+- [24:02.174] Exactly how would that work?
+- [24:04.009] Who would be eligible for it?
+- [24:05.477] I'm assuming women would be eligible for that.
+- [24:08.513] Karoline Leavitt: Yes.
+- [24:09.781] So, one of the provisions in the One Big
+- [24:12.017] Beautiful Bill, as I said, this is a very
+- [24:14.286] pro-family piece of legislation.
+- [24:15.987] Not only does it increase the child tax
+- [24:18.757] credit, but it also includes MAGA baby
+- [24:21.459] savings accounts for children that
+- [24:23.995] are born before January 1st, 2024.
+- [24:27.032] Under eight years old, U.S.
+- [24:29.267] citizens and have at least one parent
+- [24:31.303] with a valid social security number.
+- [24:34.239] And when this tax provision becomes law,
+- [24:36.975] the child, if the parents seek to do this,
+- [24:40.045] will be set up with a savings account.
+- [24:42.314] Essentially, it's a 401k for a newborn baby.
+- [24:45.283] And child's relatives, their parents can
+- [24:48.653] contribute up to $5,000 per year of after
+- [24:52.224] tax dollars annually to that account.
+- [24:55.227] And then later in the baby's life, at
+- [24:57.596] age 25, savings account holders can
+- [24:59.898] withdraw up to the full balance
+- [25:01.566] of the account upon reaching 30.
+- [25:03.301] The account holders can access the full
+- [25:05.370] balance of the account for any purpose desired.
+- [25:07.906] So it's a great initiative for new
+- [25:09.841] parents, new mothers, who want to set up
+- [25:12.143] the savings account for their children.
+- [25:15.380] The Press: President Trump and his top economic aides
+- [25:17.716] have repeatedly said that Americans
+- [25:19.618] will not pay the cost of tariffs.
+- [25:22.621] In fact, last week, [inaudible] said people
+- [25:24.656] have to drop the quote silly arguments
+- [25:26.691] that consumers would pay the cost.
+- [25:29.961] But over the weekend, as you know, the
+- [25:32.430] President posted that Walmart should
+- [25:34.866] eat the tariffs and not charge the value
+- [25:37.135] customer or anything, I'll be
+- [25:38.870] watching and so will your customers.
+- [25:41.740] So does he aknowledge that if companies
+- [25:44.109] don't absorb the full cost, Americans will have to pay?
+- [25:47.946] Karoline Leavitt: Well, first of all, the CEO of Walmart
+- [25:49.881] made those comments about the tariffs on
+- [25:51.950] an earnings call where CEOs, I believe,
+- [25:54.252] are legally obligated to give the most
+- [25:56.521] dire warnings in forecast to
+- [25:58.290] their investors and stakeholders.
+- [26:00.725] The reality is, as the President has
+- [26:02.627] always maintained, a Chinese producer will
+- [26:04.963] be absorbing the cost of these tariffs.
+- [26:06.765] And that is why China was so quick to
+- [26:08.667] hustle to the negotiating table
+- [26:10.302] with the United States of America.
+- [26:11.937] They need our markets.
+- [26:13.305] They need our consumers.
+- [26:14.539] And I would, again, point you to the
+- [26:16.241] inflation report that came out last week,
+- [26:18.343] showing that inflation is declining.
+- [26:20.245] In large part, because energy prices are
+- [26:22.681] dropping across the board in this country
+- [26:25.283] because of the President's robust energy
+- [26:27.752] agenda that he has taken since January 20th.
+- [26:30.655] So the President is committed to ensuring
+- [26:32.924] that prices remain low for American
+- [26:34.993] consumers, and he maintains the position
+- [26:36.928] that foreign countries will absorb these tariffs.
+- [26:39.297] The Press: What does he mean by I'll be watching to Walmart?
+- [26:42.801] Karoline Leavitt: He'll be watching, seeing
+- [26:43.868] what they're doing. Jennifer?
+- [26:44.970] The Press: On the gift plane from Qatar, three
+- [26:47.372] things: is their a timeline for the U.S.
+- [26:49.975] receiving that claim?
+- [26:51.576] Do you know how long it will take to
+- [26:53.478] retrofit the plane to Presidential standards?
+- [26:56.214] And thirdly, has the intelligence
+- [26:58.283] community security folks, have they
+- [27:00.485] weighed in on whether that plane can
+- [27:02.187] actually be security to Presidential standards?
+- [27:04.823] Karoline Leavitt: I'm glad you brought up this question
+- [27:06.791] because I was watching the American press
+- [27:08.994] spew a lot of misinformation about the
+- [27:11.396] plane donation last week when we were abroad.
+- [27:14.566] Let's be very clear.
+- [27:15.834] The government of Qatar, the Qatari
+- [27:18.436] family, has offered to donate this plane
+- [27:21.373] to the United States Air Force,
+- [27:23.408] where that donation will be accepted
+- [27:25.844] according to all legal and ethical obligations.
+- [27:29.114] It will be retrofitted to the highest of
+- [27:31.916] standards by the Department of Defense
+- [27:34.586] and the United States Air Force.
+- [27:36.254] This plane is not a personal donation
+- [27:38.089] or gift to the President of the United States.
+- [27:40.725] And everyone who wrote that last week
+- [27:42.227] should go and correct their stories
+- [27:43.762] because this is a donation to our country
+- [27:45.997] and to the United States Air Force.
+- [27:47.899] As for a timeline because it is the United
+- [27:49.968] States Air Force that is accepting the
+- [27:51.836] plane, I would defer you to them for
+- [27:53.738] specifics because the President
+- [27:55.440] frankly has nothing to do with it.
+- [27:56.975] It's the Air Force's project to take on.
+- [28:00.378] Sure.
+- [28:00.812] The Press: Thanks so much, Karoline.
+- [28:02.447] Did the President call the fiscal
+- [28:04.182] conservatives who are hesitant to vote for
+- [28:06.518] the Big Beautiful Bill and if so, what did he say?
+- [28:09.654] Karoline Leavitt: I don't reveal the President's private
+- [28:11.589] discussions unless he gives me the liberty
+- [28:13.558] too, but he has been engaged in this process.
+- [28:15.927] He spoke to the Speaker of the House and
+- [28:18.163] he will continue to make those phone
+- [28:20.165] calls if it's necessary for him.
+- [28:23.001] The Press: Thank you, Karoline.
+- [28:24.102] Karoline Leavitt: I'll go to both of you.
+- [28:24.969] Go ahead.
+- [28:25.303] The Press: Thank you.
+- [28:25.904] Any updates on Greenland?
+- [28:27.338] Will the President will be making any trips and
+- [28:29.007] do we have any details you can share with us?
+- [28:31.009] Karoline Leavitt: I don't have any future foreign
+- [28:32.677] trips to read out for you.
+- [28:34.145] We just returned home from one.
+- [28:35.613] But the President maintains the reasoning
+- [28:38.917] for Greenland's strategic purposes in the Arctic.
+- [28:42.787] And he continues to remain committed
+- [28:45.623] to the idea of obtaining Greenland in
+- [28:48.560] whatever means we can to advance our
+- [28:50.762] national security interests in the region.
+- [28:53.998] The Press: Thank you, Karoline.
+- [28:54.732] I have a question.
+- [28:55.600] Was Lebanon part of the discussion during
+- [28:57.836] the Middle East tour and did you meet
+- [29:00.038] with any Lebanese representatives?
+- [29:02.440] Karoline Leavitt: To my knowledge, the President did
+- [29:04.309] not meet with any representatives from
+- [29:06.377] Lebanon, although he did talk about the
+- [29:08.346] election that they recently had there and
+- [29:10.615] how he hopes that Lebanon can come to
+- [29:12.584] a more peaceful place in their country,
+- [29:14.652] and that we drive out Hezbollah,
+- [29:16.721] Iranian-backed Hezbollah proxies in
+- [29:18.957] Lebanon to ensure peace and prosperity
+- [29:20.758] in that country and also for the greater
+- [29:22.794] Middle Eastern region.
+- [29:23.862] And I would just add to that before I
+- [29:25.330] wrap up, because the President's
+- [29:26.598] call will begin in a few minutes.
+- [29:28.266] The President's historic tour to the
+- [29:30.368] Middle East last week truly resets our
+- [29:32.570] foreign policy agenda in that region.
+- [29:35.406] I think, actually, in fact, the
+- [29:37.442] Washington Post had a headline.
+- [29:39.544] President Trump remakes the U.S.
+- [29:41.079] foreign policy in the Middle
+- [29:42.614] East, and that's absolutely true.
+- [29:44.449] He took a courageous and bold
+- [29:46.151] step to lift sanctions on Syria.
+- [29:48.186] He strengthened our ties with our Gulf partners.
+- [29:50.722] And he put Iran into a very difficult
+- [29:53.091] position, because the United States of America is back.
+- [29:56.427] And I will summarize the President's trip
+- [29:58.429] with an anecdote that I heard directly
+- [30:00.598] from a member of one of the foreign delegations.
+- [30:02.634] I asked him how hopeful their country was
+- [30:05.203] when they learned President Trump won the election.
+- [30:08.206] And he told me, when President Trump
+- [30:10.141] won the election, it was like the
+- [30:11.876] lights turned on in a dark room.
+- [30:14.379] For the past four years to the rest
+- [30:16.080] of the world, America was dark.
+- [30:17.982] We were unresponsive.
+- [30:19.083] We did not pick up the phone.
+- [30:20.451] We did not return calls.
+- [30:21.886] All of that has changed under
+- [30:23.121] the leadership of this President.
+- [30:24.522] And I think the world saw that last week
+- [30:26.791] with this historic and wildly successful trip.
+- [30:29.661] And the work continues.
+- [30:30.962] The President will be speaking
+- [30:32.130] to President Putin at 10:00 a.m.
+- [30:33.298] and will have a readout for you after that call.
+- [30:35.300] And we'll see you in the Rose Garden at 3:00.
+- [30:37.435] Thanks, guys.

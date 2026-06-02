@@ -1,0 +1,707 @@
+<!-- source: https://www.youtube.com/watch?v=wYiS2WJLKRk -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: wYiS2WJLKRk -->
+<!-- date_published: 2025-04-30T19:04:05+00:00 -->
+<!-- date_accessed: 2026-06-02T02:51:01.106999+00:00 -->
+
+# Transcript: Press Secretary Karoline Leavitt Briefs Members of the New Media, Apr. 30, 2025
+
+- [00:07.600] Good afternoon everybody. Hello. Hello.
+- [00:10.880] It's great to see all of you. Welcome to
+- [00:12.719] our third official influencer briefing
+- [00:15.200] here at the White House in the beautiful
+- [00:17.119] South Court Auditorium. Joe Biden's
+- [00:19.199] former office that he pretended to be
+- [00:21.600] his office. Now we're using it for its
+- [00:23.279] real purposes as an auditorium. And we
+- [00:25.519] are embracing and empowering new media
+- [00:28.000] like never before. You are all a
+- [00:29.679] testament to that. We're so grateful
+- [00:31.279] that you're here today. President Trump
+- [00:33.360] is truly the most transparent and
+- [00:35.440] accessible president in American history
+- [00:37.360] and we are just following his example.
+- [00:39.600] That's a little bit why this uh press
+- [00:41.600] briefing today is tardy because the
+- [00:43.200] president was hosting a more than
+- [00:44.960] two-hour long cabinet meeting with his
+- [00:46.960] entire cabinet. Each secretary went
+- [00:49.440] around the room to talk about the
+- [00:51.440] promises they are delivering on for the
+- [00:53.920] American public and the directives they
+- [00:56.000] are executing um at the behest of the
+- [00:58.399] president of the United States. Can you
+- [01:00.160] ever remember a cabinet meeting in which
+- [01:02.640] the media were welcomed into the room to
+- [01:05.199] ask questions of the entire federal
+- [01:07.520] government? No, you can't because it
+- [01:09.360] never happened. Joe Biden was afraid to
+- [01:11.680] speak to the press because he was
+- [01:12.960] mentally incompetent in driving our
+- [01:14.880] country into the ground. But
+- [01:16.560] fortunately, President Trump has been ex
+- [01:18.720] incredibly hard at work cleaning up Joe
+- [01:21.040] Biden's messes and making our country
+- [01:23.119] great again. Yesterday marked the
+- [01:25.360] president's official 100th day in
+- [01:28.640] office. The first 100 days of President
+- [01:30.880] Trump's second term can only be summed
+- [01:32.640] up as promises made, promises kept. He
+- [01:35.680] has ushered in the most secure border in
+- [01:38.000] modern American history. And he didn't
+- [01:40.000] need a bill from Congress to do it. Do
+- [01:42.000] you all remember that? They said we
+- [01:43.439] needed a bill. We didn't need a bill. We
+- [01:45.119] just needed a new president. The border
+- [01:47.280] is now closed and the border Biden Biden
+- [01:49.840] border invasion has been halted. Illegal
+- [01:52.079] border encounters are down by
+- [01:54.360] 95%. Illegal alien godaway is one of the
+- [01:57.280] top threats to our public safety are
+- [01:59.600] down by an astounding 99.99%.
+- [02:03.759] And Fox News's Bill Malujan, who did
+- [02:05.680] exceptional reporting covering the Biden
+- [02:07.439] border crisis, was recently quoted
+- [02:09.440] saying, "If Fox were to send me down
+- [02:11.280] there right now, I would have trouble
+- [02:12.800] finding a single migrant on camera."
+- [02:15.440] That is the Trump effect. President
+- [02:17.920] Trump took on the cartels and designated
+- [02:19.920] Trend Aaragua, MS-13, and other vicious
+- [02:22.319] gangs and cartels as foreign terrorist
+- [02:24.319] organizations. under President Trump. It
+- [02:26.959] is the policy of the United States to
+- [02:28.720] ensure the total elimination of these
+- [02:30.800] brutal organizations presence in our
+- [02:33.360] country. And we are also beginning
+- [02:35.200] stages of carrying out the largest mass
+- [02:37.120] deportation in American history. We have
+- [02:39.840] already arrested more than 150,000
+- [02:42.879] illegal aliens. And you can expect those
+- [02:44.879] numbers to ratchet up in the months
+- [02:46.400] ahead. On the economy, President Trump
+- [02:48.959] is rebuilding the greatest economy in
+- [02:50.720] the world once again. Since day one, he
+- [02:53.040] has focused on defeating inflation,
+- [02:54.959] bringing down the cost of living, and
+- [02:56.560] making the United States the best place
+- [02:58.480] in the world to do business, invest,
+- [03:00.640] create jobs, and innovate. The president
+- [03:03.040] later this afternoon in the East Room of
+- [03:05.040] the White House will be uh joined by
+- [03:07.040] CEOs from around the world who have
+- [03:09.120] committed trillions of dollars in
+- [03:11.280] investments right here in the United
+- [03:13.280] States of America. I don't think the
+- [03:15.280] president is getting enough credit for
+- [03:16.879] the massive deregulation campaign that
+- [03:19.200] he has launched across the entire
+- [03:20.959] federal bureaucracy. He himself has
+- [03:23.280] signed a number of executive orders to
+- [03:25.280] unleash rapid deregulation and reduce
+- [03:27.920] the cost of living for families and for
+- [03:30.159] small businesses. And we are seeing a
+- [03:32.080] big impact of this already. His
+- [03:34.239] deregulatory actions thus far will save
+- [03:36.640] nearly $11,000 per family of four over
+- [03:40.319] the next several years. And building on
+- [03:42.879] this success, the president has
+- [03:44.319] encouraged the rapid onshoring of jobs
+- [03:47.040] to restore America as our world's
+- [03:49.519] manufacturing superpower. He is
+- [03:52.159] effectively utilizing tariffs to bring
+- [03:54.319] the entire world to the negotiating
+- [03:56.000] table, offering more favorable terms for
+- [03:58.720] our country. When all is said and done,
+- [04:01.040] America will finally have fair and
+- [04:03.280] reciprocal trade and our country will
+- [04:05.760] finally stop being ripped off. Uh, so
+- [04:08.959] far, as I mentioned, total investments
+- [04:10.879] under this administration are more than
+- [04:13.439] $5 trillion. The president has already
+- [04:16.160] created 345,000 jobs since taking office
+- [04:19.759] in January. 9,000 manufacturing jobs
+- [04:22.560] were created, compared to the 6,000
+- [04:24.800] manufacturing jobs lost per month in the
+- [04:27.600] final two years of the Biden
+- [04:29.479] administration. The labor force
+- [04:31.360] participation rate for those without a
+- [04:33.040] high school diploma is up. Inflation has
+- [04:35.120] dropped. And the price of prescription
+- [04:37.360] drugs last month was the largest drop
+- [04:40.000] ever recorded. In little more than three
+- [04:42.560] months, President Trump has America
+- [04:44.240] headed in the right direction. The good
+- [04:46.320] news is we are just getting started. We
+- [04:48.560] are very busy every single day here at
+- [04:50.639] the White House, literally working
+- [04:52.479] around the clock, seven days a week, um,
+- [04:55.040] to restore the golden age of America.
+- [04:57.360] Hundreds of promises have been made and
+- [04:59.199] kept. There is certainly more work to
+- [05:01.199] do. The best is yet to come. But we are
+- [05:03.360] very proud of the efforts the president
+- [05:04.960] has made to continue the non-traditional
+- [05:07.919] media approach that he so beautifully
+- [05:10.479] executed on the campaign trail which led
+- [05:12.240] him back to this office talking to
+- [05:14.720] podcasters, social media content
+- [05:16.479] creators, and influencers like yourself.
+- [05:18.720] And again, we're so proud to welcome you
+- [05:20.639] to the White House here today so you can
+- [05:22.720] ask questions for the whole world to
+- [05:24.160] hear. So Jack, great to see you. And why
+- [05:26.479] don't you kick us off? Caroline, thanks
+- [05:28.160] so much for having us in today and I
+- [05:29.680] appreciate the administration making
+- [05:31.919] yourself available and making it
+- [05:33.680] available to us and and all of our
+- [05:35.440] followers and I'm I understand that
+- [05:36.960] you're going to be continuing these and
+- [05:38.560] I think it's fantastic that really have
+- [05:40.720] everybody come in and be able to do
+- [05:42.080] this. One of the things that's that's
+- [05:44.320] been troubling me and has actually even
+- [05:46.000] affected me over the last 24 hours is
+- [05:48.479] the the rise of violence that we've seen
+- [05:51.199] from elements of the far left. uh
+- [05:54.560] starting with things like Luigi Majioni
+- [05:57.520] uh these support for these unhuman
+- [05:59.520] organizations like MS-13, Trenda
+- [06:01.720] Aaragua, and even of course the
+- [06:04.080] assassination attempts on President
+- [06:05.440] Trump, Thomas Matthew Krooks, and Ryan
+- [06:07.840] Ralph, as well as numerous incidents
+- [06:09.680] against uh anyone who owns a Tesla.
+- [06:12.080] Apparently, you you don't really see the
+- [06:14.360] Democrats opposing these things. You see
+- [06:17.039] them in many cases uh either either
+- [06:19.360] co-signing it or giving a wink and nod
+- [06:21.120] to it at the same time that they will be
+- [06:23.759] uh demanding that we follow due process
+- [06:25.840] for anyone who actually is a hardened
+- [06:28.720] criminal or some of the worst of the
+- [06:30.400] worst. What is the administration doing
+- [06:32.880] DOJ wise or FBI wise to combat this rise
+- [06:36.800] in violence that we're seeing? It's a
+- [06:38.720] great question, Jack, and I absolutely
+- [06:40.400] agree with the premise of your question,
+- [06:42.160] which I usually don't when I take
+- [06:43.680] questions at a podium, but certainly
+- [06:45.919] you're right. We have seen a rise in
+- [06:48.240] political violence that stems from the
+- [06:50.080] left, dating back to the Black Lives
+- [06:51.759] Matter movement, uh, which the left and
+- [06:53.759] the Democrats don't want to talk about
+- [06:55.199] much, but they burn down American
+- [06:56.800] cities. And the Joe the Biden
+- [06:58.800] administration did nothing to prosecute
+- [07:00.720] those uh who who created that violence
+- [07:03.520] oftentimes not just destroying
+- [07:04.960] businesses but also lives in communities
+- [07:07.039] as well. You look at the rise of
+- [07:09.280] violence against the president himself
+- [07:11.280] and his supporters. You had two heinous
+- [07:13.840] assassination attempts um from leftist
+- [07:16.400] lunatics um and the president is lucky
+- [07:19.440] and blessed to be here today because he
+- [07:21.360] was able to survive that political
+- [07:23.360] violence in those assassination
+- [07:24.639] attempts. Look at the recent attacks on
+- [07:26.720] Tesla, on Elon Musk's company. It's
+- [07:29.199] quite ironic because Democrats and
+- [07:31.039] leftists were the greatest fans of
+- [07:32.720] Tesla. Many Democrats drive Teslas to
+- [07:35.680] this very day. But then it's that their
+- [07:37.680] same party who is doing nothing to stop
+- [07:40.639] or condemn or discourage this violence
+- [07:43.039] from taking place. And in cases, in many
+- [07:45.520] cases, Democrat- elected officials are
+- [07:47.440] actually inciting it and encouraging it.
+- [07:49.599] Uh but that's not going to be allowed to
+- [07:51.759] happen anymore. Uh the attorney general
+- [07:53.919] was just in the cabinet room with the
+- [07:55.440] president and made it very clear to
+- [07:57.039] anyone who is inciting violence or
+- [07:59.280] participating in violence, you will be
+- [08:00.960] prosecuted to the fullest extent of the
+- [08:02.800] law. And no longer do we have a justice
+- [08:05.440] department that chooses uh prosecutions
+- [08:08.639] based on one's political affiliation. If
+- [08:11.440] you break the law, you will be held
+- [08:12.960] accountable for that. Um and I think we
+- [08:15.680] are truly restoring um a fair and equal
+- [08:18.400] justice system in this country. The
+- [08:20.319] attorney general spoke earlier about how
+- [08:22.400] there have been several cases brought
+- [08:24.080] against those who have perpetrated this
+- [08:26.160] political violence against Tesla, which
+- [08:27.840] is a great Americanmade company. Um, and
+- [08:30.639] we need to see more people on the other
+- [08:34.080] side of the aisle u stepping out to
+- [08:36.080] discourage this violence. But I don't
+- [08:37.440] think we will hold our breath. We won't
+- [08:38.800] wait for them. Um, the president is
+- [08:40.640] leading by example and I think the the
+- [08:42.880] restoration of justice we've seen at the
+- [08:44.560] DOJ under the leadership of Pam Bondi
+- [08:46.480] and Cash Patel who's doing an incredible
+- [08:48.800] job as the FBI director is a testament
+- [08:50.959] to that. Thank you, Dom. Thank you. Um,
+- [08:54.160] thank you for giving me an honor to be
+- [08:55.360] able to ask a question and provide some
+- [08:56.720] transparency for the American people.
+- [08:58.320] Speaking of, I wanted to reference the
+- [09:00.480] election integrity. A lot of people in
+- [09:02.480] America are questioning if there's any
+- [09:04.480] possibility that we could see further
+- [09:06.000] investigations for anyone that could
+- [09:07.920] have violated our election integrity
+- [09:09.360] rights. And more importantly, so is
+- [09:11.120] there any possibility for names such as
+- [09:13.120] Barack Hussein, Obama, Hillary Rodham,
+- [09:15.600] Clinton to ever just possibly get
+- [09:17.320] investigated for any of these uh, you
+- [09:19.839] know, questions from the American
+- [09:21.120] people, any of the wrongdoings they
+- [09:22.640] might have done. Well, it's refreshing
+- [09:24.480] to actually hear a question on election
+- [09:26.480] integrity because the legacy media would
+- [09:28.320] never ask such a question. They're so
+- [09:30.000] out of touch with where the American
+- [09:31.839] people are on this issue. And Americans,
+- [09:33.839] you're absolutely right, want to have
+- [09:35.600] trust in our electoral system. Without
+- [09:37.920] free and fair elections, you cannot have
+- [09:39.920] a free and fair country. And President
+- [09:42.240] Trump has absolutely been a leader on
+- [09:44.880] this effort, talking about the
+- [09:46.160] irregularities we've seen in our
+- [09:47.600] elections, holding Democrats accountable
+- [09:50.160] for allowing illegal immigrants to
+- [09:51.920] participate in our elections. And um he
+- [09:54.560] actually signed a recent executive order
+- [09:56.480] to protect the integrity of our
+- [09:57.760] elections. It will strengthen voter
+- [09:59.519] citizenship um verification laws. It
+- [10:02.080] also um directs the attorney general to
+- [10:04.399] enter information sharing agreements
+- [10:06.080] with state election officials to
+- [10:07.839] identify cases of election fraud. So
+- [10:10.240] that correspondence between the federal
+- [10:12.320] government and the attorney general with
+- [10:13.760] state and local officials has never
+- [10:15.279] happened before. It will allow the
+- [10:16.880] federal government to more easily
+- [10:18.800] identify these cases of fraud and then
+- [10:21.120] prosecute those who violate our election
+- [10:23.600] laws. And it is again appalling that any
+- [10:27.279] politician regardless of party could be
+- [10:29.519] against ensuring only American citizens
+- [10:32.560] can vote in American elections. Can
+- [10:34.959] could ever how could anyone ever be
+- [10:36.720] against ensuring Americans uh need to
+- [10:39.440] have proof of identification to
+- [10:41.440] participate in our elections? You see
+- [10:43.680] the Democrats falling over themselves
+- [10:46.240] trying to say this is somehow voter
+- [10:48.720] suppression. Absolutely not. We are
+- [10:50.640] trying to uh ensure that every American
+- [10:53.200] citizen their vote actually counts and
+- [10:55.360] is not being outweighed by fraudulent
+- [10:57.760] votes um and fraudulent ballots that we
+- [10:59.839] know have been cast in previous
+- [11:01.120] elections. So president's taking this
+- [11:02.880] very seriously. He signed an extremely
+- [11:04.640] strong executive order directing action
+- [11:06.880] from the AG and the Department of
+- [11:08.560] Homeland Security as well to clean up
+- [11:10.480] our elections and we expect Congress to
+- [11:12.399] do more on this front as well. Let's go
+- [11:14.480] over here on on that uh question. Again,
+- [11:17.120] Caroline, thank you so much for for
+- [11:18.399] hosting this. really appreciate the
+- [11:19.839] opportunity to come in here and ask
+- [11:21.600] questions of you guys and and appreciate
+- [11:23.440] the president giving us some time of
+- [11:24.800] yours as well. On the on a follow up on
+- [11:26.640] Dom's question, I still have a ton of my
+- [11:28.399] audience that is still asking questions
+- [11:30.240] about uh Hillary Roam Clinton and the
+- [11:33.120] fact that it came out that her and the
+- [11:34.800] DNC funded the steel dossier which then
+- [11:37.120] led to Crossfire Hurricane and all the
+- [11:39.920] FISA abuses that went against President
+- [11:41.680] Trump leading up to the 2020 election.
+- [11:44.240] Uh, is there you don't have to spill the
+- [11:45.839] beans, but is there something? Is there
+- [11:47.839] somebody still looking at it? We just
+- [11:49.600] want to know that it's not dead in the
+- [11:50.880] water, that Hillary's not just off
+- [11:52.959] scot-free, uh, after knowing what what
+- [11:55.200] her and the DNC did uh, leading up to
+- [11:57.279] the 2020 election. It's a great
+- [11:58.640] question. Absolutely understand and
+- [12:00.640] agree with why you're asking it, but I
+- [12:02.399] would want to let the president weigh in
+- [12:04.079] on that front. I haven't discussed it
+- [12:05.600] with him to be honest with you, but um,
+- [12:07.920] certainly we can ask them and get back
+- [12:09.760] to you.
+- [12:11.120] Eric, so Caroline, um, madam press
+- [12:13.680] secretary, uh, the over the You could
+- [12:15.519] call me Caroline. Thank you, Caroline.
+- [12:17.600] Over the weekend, the, uh, White House
+- [12:19.120] correspondents association had their
+- [12:20.959] gayla, they had their dinner, and Alex
+- [12:22.560] Thompson from now Axios prior to that.
+- [12:26.120] Politico didn't really apologize, but
+- [12:28.959] came forward and said, "We quote unquote
+- [12:30.880] missed the story of Joe Biden's demise,
+- [12:33.120] his health demise, his cognitive demise
+- [12:35.360] during during the four years." Um Jake
+- [12:38.720] Tapper has written the book since
+- [12:40.480] President Trump was elected that they
+- [12:42.480] missed the demise of Joe Biden as well.
+- [12:45.920] Fast forward to this lawsuit with CBS.
+- [12:48.320] Right. So the media, legacy media has
+- [12:51.360] not been held accountable. Will this
+- [12:53.839] lawsuit with CBS go to fruition? In
+- [12:56.480] other words, I would love to see it go
+- [12:57.680] to trial so that we can see so they can
+- [13:00.160] be held accountable. Additionally, will
+- [13:02.320] the New York Times be enjoined into that
+- [13:04.480] lawsuit because the New York Times has
+- [13:06.000] already stated that they agree with CBS?
+- [13:09.279] And Trump has said maybe we're going to
+- [13:10.560] sue the New York Times as well. And as a
+- [13:12.639] followup to all this, and it really does
+- [13:14.320] dovetail because it's not just
+- [13:16.440] leftleaning media, Trump uh Fox News,
+- [13:20.160] Fox News put out a poll. I'm a
+- [13:22.760] statistician. The poll they put out was
+- [13:25.680] wildly biased against President Trump.
+- [13:28.480] Mhm. Will will Fox sue Fox uh will Trump
+- [13:33.279] sue Fox for their methodology in Poland?
+- [13:36.800] Two great questions. Let me hit the
+- [13:38.800] first one first. Um as for CBS and the
+- [13:43.440] White House Correspondents Association
+- [13:45.360] dinner, uh it was laughable. They gave
+- [13:49.920] an award to a journalist uh for talking
+- [13:54.720] about Biden's mental incompetence. He
+- [13:57.120] wrote a story about it years after the
+- [13:59.920] American people knew that story to be
+- [14:02.440] true. Didn't take much, just two eyes
+- [14:05.440] and two ears to realize that Joe Biden
+- [14:08.240] was completely inept uh was unfit to
+- [14:12.880] serve as president of the United States.
+- [14:15.120] And nobody in the legacy media, nobody
+- [14:17.680] in this city wanted to talk about it. In
+- [14:20.320] fact, I recall being on President
+- [14:22.720] Trump's campaign and calling out Joe
+- [14:25.920] Biden's cognitive decline and we were
+- [14:28.399] accused of manufacturing deep fakes. My
+- [14:31.120] predecessor accused us for manufacturing
+- [14:34.320] deep fakes from the White House podium
+- [14:36.720] when she knew and everybody in this
+- [14:38.880] White House knew the true status of Joe
+- [14:41.760] Biden's physical and mental fitness. And
+- [14:44.480] the me mainstream media allowed that
+- [14:46.800] cover up to take place because they
+- [14:48.480] refused to dig for the truth. They tried
+- [14:50.800] to get the American people not to
+- [14:52.560] believe their own eyes. It is truly one
+- [14:55.360] of the greatest coverups and scandals in
+- [14:58.240] American history. And again, this is why
+- [15:01.120] we are welcoming independent journalists
+- [15:03.519] and and social media influencers and
+- [15:05.600] content creators into the White House
+- [15:07.120] with open arms because all of you in
+- [15:09.360] this room and many of your colleagues in
+- [15:11.440] independent journalism talked about this
+- [15:13.800] online. Nobody gave you credence as far
+- [15:16.320] as the legacy media is concerned. And
+- [15:18.240] now they host cocktail parties where
+- [15:20.480] they're applauding each other and
+- [15:21.760] patting each other on the back for
+- [15:23.600] uncovering the truth. It was years
+- [15:25.680] later. Uh and it's truly sad to see. Uh
+- [15:29.040] but again, that's why we're making
+- [15:30.320] muchneeded and long overdue changes. As
+- [15:32.320] for the lawsuit against CBS, the
+- [15:34.000] president and his legal team fully
+- [15:35.920] intend to carry this lawsuit forward.
+- [15:37.760] The president put out a very strong
+- [15:39.440] statement uh in regard to that and and
+- [15:42.079] fake news CBS this morning. Um and then
+- [15:44.959] as for the Fox News poll, president's
+- [15:48.240] right. These are fake polls. They
+- [15:49.839] overpull Democrats. They underpull
+- [15:52.399] President Trump's supporters. It's
+- [15:54.240] always been the case for media polls. uh
+- [15:56.399] they consistently underestimate
+- [15:58.399] President Trump's support amongst the
+- [16:00.160] public. That's why we don't really blink
+- [16:02.320] when we see them. To be honest with you,
+- [16:04.000] we're staying focused on the mission and
+- [16:06.160] moving forward. The president knows
+- [16:08.240] everything he's doing is exactly what he
+- [16:10.880] promised the American public he would
+- [16:12.560] do. And if you look at the key issues in
+- [16:14.480] the polling, the president is still
+- [16:15.759] ahead because Americans know he is
+- [16:17.759] delivering on them on those issues for
+- [16:19.920] them. Um and if you look at the
+- [16:22.399] methodology, you're right. Um there are
+- [16:24.320] overpolling um Democrats, underpolling
+- [16:27.240] Republicans. Uh it's a clear-cut case of
+- [16:30.560] fake polling, no doubt. If I may, uh
+- [16:33.920] also misinformation though, right? And
+- [16:36.240] maybe as detrimental to the presidency
+- [16:38.560] as what CBS has done or or the New York
+- [16:41.360] Times is doing. Yeah, no doubt about it.
+- [16:44.480] The president's spoken quite strongly
+- [16:45.839] about it and I know he's made some phone
+- [16:47.839] calls to express his his displeasure
+- [16:49.759] with it as well. Alina, go ahead. Thank
+- [16:51.839] you so much for having me here,
+- [16:53.120] especially as a legal immigrant because
+- [16:55.199] the overwhelming uh fake news that
+- [16:57.839] Hispanics don't support President Trump,
+- [16:59.519] but we do and we're very excited to have
+- [17:01.440] mass deportations because it affects our
+- [17:03.440] communities. My question is about
+- [17:05.199] immigration reform and Dhaka. During the
+- [17:07.679] first Trump administration, we saw that
+- [17:10.079] President Trump, like no other
+- [17:11.600] president, wanted to make a deal with
+- [17:13.439] the Democrats to give a pathway to
+- [17:15.360] citizenship to 1.2 million DACA
+- [17:18.240] recipients. I don't know. I haven't
+- [17:20.400] really heard anything coming out. Is
+- [17:22.240] there going to be uh is there any policy
+- [17:24.640] surrounding that uh situation and is
+- [17:27.120] there going to be immigration reform?
+- [17:28.880] Mhm. Well, first of all, thanks for
+- [17:30.880] sharing your story. and the president
+- [17:32.960] overwhelmingly won uh the vote of
+- [17:34.880] Hispanic Americans in the previous
+- [17:36.400] election and swept counties on the
+- [17:39.120] border of Texas that are predominantly
+- [17:41.039] Hispanic counties because to your very
+- [17:43.280] point, Hispanic Americans and legal
+- [17:46.160] immigrants to this country from all
+- [17:48.080] countries are so sick and tired of
+- [17:50.720] seeing were we're so sick and tired of
+- [17:52.720] seeing the mass invasion of illegal
+- [17:56.000] immigrants that was allowed to occur
+- [17:57.919] under the previous administration. And
+- [18:00.080] it was an issue the president ran on and
+- [18:02.880] he delivered on. These mass deportations
+- [18:05.039] are underway. And it is currently the
+- [18:07.440] position of this administration. We are
+- [18:09.440] focused on removing as many illegal
+- [18:12.160] alien criminals from our communities as
+- [18:14.400] possible. And not only are we doing that
+- [18:17.200] for law-abiding American citizens, but
+- [18:20.160] uh also legal immigrants, as you said,
+- [18:22.160] who who are citizens now and came here
+- [18:24.000] the right way, waited their turn, paid
+- [18:25.360] their dues. It's a slap in the face uh
+- [18:27.360] to them. And so, um, there's a lot of
+- [18:29.679] reforms that need to be made to our
+- [18:31.280] illegal immigration system. The
+- [18:32.720] president has talked about that, but our
+- [18:34.480] initial focus right now and our priority
+- [18:36.559] is cleaning up the mess that the
+- [18:38.880] previous administration left us. Um, and
+- [18:41.039] there's there's more work to do. Um, but
+- [18:43.360] a lot of progress has been made thus
+- [18:44.880] far. CJ, yeah, you know, also, thank you
+- [18:47.440] so much, Caroline, for having us here.
+- [18:49.120] You know, also on the topic of
+- [18:50.559] immigration, not only do I think, you
+- [18:52.480] know, the legal immigrant community
+- [18:54.080] welcomes what the president's doing, but
+- [18:55.600] also the black community. So, I would
+- [18:57.039] love to get your reaction to recent
+- [18:58.320] comments made by Simone Sanders who said
+- [19:00.400] that people of color would be next in
+- [19:02.320] line for deportation under this
+- [19:04.400] president. Now, that was a revelation to
+- [19:06.000] me and probably many others in the black
+- [19:07.280] community. Being a lifelong American,
+- [19:09.280] I'm not really sure where Tom Hman would
+- [19:10.720] send me other than my childhood home in
+- [19:12.400] Augusta, Georgia. But why do you think
+- [19:14.400] this fear-mongering is being directed at
+- [19:16.480] the black community over the issue of
+- [19:18.559] immigration? And do you think it's
+- [19:19.840] offensive to conflate illegal aliens who
+- [19:22.480] are rapists, traffickers, and sexual
+- [19:24.799] abusers with law-abiding citizens in the
+- [19:27.280] black community? It's absolutely insane
+- [19:29.760] and it is racist what she is saying. Uh
+- [19:32.080] the president intends on deporting
+- [19:34.640] illegal alien criminals who broke our
+- [19:36.720] nation's laws and are not only impacting
+- [19:39.840] uh communities across the country, but
+- [19:41.760] in particular communities of color in
+- [19:44.000] our inner cities. You remember the story
+- [19:46.160] out of New York City where um young
+- [19:48.480] minority children were kicked out of
+- [19:50.480] their public school to make room for
+- [19:53.120] illegal immigrants to sleep on the floor
+- [19:54.799] of their cafeteria. That is putting
+- [19:57.039] America last. Doesn't matter your race,
+- [19:59.039] your religion, or creed. If you are a
+- [20:00.880] law-abiding American citizen, President
+- [20:02.960] Trump is going to put you first. And
+- [20:04.640] shame on Simone Sanders for saying that.
+- [20:06.880] She knows better, but she's trying to
+- [20:08.480] fear people into dislike this president
+- [20:11.760] with lies. But I think uh the American
+- [20:13.919] public are much smarter than she
+- [20:15.760] believes that they are and that's why
+- [20:17.120] they reelected President Trump. Oh, go
+- [20:19.440] ahead. Hi. Hi, Caroline. So, um as the
+- [20:22.880] youngest press secretary in history who
+- [20:24.799] is a wife and a mom, you've become
+- [20:26.960] wildly popular with America First
+- [20:28.640] Patriots. Um as an 18-year-old, I can
+- [20:31.200] say you're definitely an inspiration to
+- [20:32.640] Gen Z. Uh what has been the biggest
+- [20:34.640] highlight for you in these first 100
+- [20:36.960] historic days? Thank you for asking that
+- [20:39.039] and saying that, Bo. I am Gen Z. I think
+- [20:42.000] I heard the term zelennial um because
+- [20:44.159] I'm right on the cusp of millennial in
+- [20:46.000] Jenzie and Jack is cringing at
+- [20:48.600] that. But there's been so many
+- [20:51.440] highlights. Just being here every day is
+- [20:53.440] such a blessing and an honor. And I'll
+- [20:55.760] share a quick story to that point. You
+- [20:57.840] know, the president um I'm only here
+- [21:00.000] because the president believed in me and
+- [21:02.720] um uplifted me and so many others who
+- [21:05.120] are working so hard across this
+- [21:06.400] administration. This administration is
+- [21:08.240] filled with young, vibrant people who
+- [21:11.280] come to work every day hungry and eager
+- [21:13.280] to help accomplish the president's
+- [21:15.200] goals. And I think we're seeing a real
+- [21:17.120] reawakening amongst young people across
+- [21:19.200] the country. President spoke directly to
+- [21:21.440] young people during his campaign uh
+- [21:23.919] inspiring confidence in them and
+- [21:25.600] restoring hope in the American dream.
+- [21:28.080] Basic common sense values of faith and
+- [21:30.720] family and freedom that truly do
+- [21:32.559] resonate with young people. the American
+- [21:34.799] dream of home ownership, of being able
+- [21:36.799] to afford to raise a family and to have
+- [21:39.280] children. It's a beautiful thing and I
+- [21:41.280] think the president openly talking about
+- [21:42.799] it has inspired so many young minds and
+- [21:45.520] opened up so many young hearts and uh
+- [21:48.159] I'm just so honored to be in this role.
+- [21:50.320] The president t he's wrote about it in
+- [21:52.080] his books and he's talked about it
+- [21:53.440] himself. When he was in his 20s, he was
+- [21:56.000] building buildings in Manhattan. Um, so
+- [21:58.080] certainly he believes in the strength
+- [21:59.919] and uh the ability of young Americans
+- [22:02.000] across the country like yourself here at
+- [22:04.400] the White House at just 18 years old.
+- [22:06.080] Thanks for being here into the back row.
+- [22:08.159] Thank you so much for having us here,
+- [22:09.440] Caroline. It underscores President
+- [22:11.039] Trump's transparency. Shifting focus a
+- [22:13.520] little bit to what's happening on our
+- [22:15.720] universities. President Trump has
+- [22:17.600] finally put American students over
+- [22:20.240] violent foreign nationals. And right now
+- [22:23.039] we're seeing the media whitewash the
+- [22:25.520] violence perpetrated on our college
+- [22:27.280] campuses. We see many universities
+- [22:29.679] trying to bypass President Trump's
+- [22:31.440] executive order. And my question is how
+- [22:34.880] exactly does President Trump in will
+- [22:37.280] make sure that these universities are
+- [22:39.440] being properly held accountable and
+- [22:41.120] violent foreign nationals who are taking
+- [22:43.520] over campus buildings are sent back
+- [22:45.919] home. Yeah. Well, to Jack's earlier
+- [22:48.240] question about political violence, we
+- [22:49.679] have this is another form of political
+- [22:51.200] violence we've seen stem from the left
+- [22:53.360] with the pro- Hamas movement that took
+- [22:56.960] place on college campuses and
+- [22:58.559] universities. In fact, I recall being in
+- [23:01.520] Manhattan courtroom during the Alvin
+- [23:03.280] Bragg case against President Trump in
+- [23:05.120] the midst of the campaign. And we were
+- [23:07.679] in that courthouse watching the
+- [23:09.360] television as these violent riots
+- [23:11.919] unfolded on the campus of Columbia
+- [23:13.919] University. And I remember the president
+- [23:16.159] watching the television saying, "When we
+- [23:18.400] are back, we are going to fix this. This
+- [23:20.720] is ridiculous." And immediately directed
+- [23:22.880] his campaign staff at the time to insert
+- [23:25.520] it into the speeches and to make sure
+- [23:27.200] the American public knew he was not
+- [23:29.200] going to tolerate violence on our
+- [23:30.720] nation's college campuses and the
+- [23:33.120] illegal harassment against Jewish
+- [23:35.120] American students. He has taken
+- [23:37.200] incredibly strong position on this
+- [23:38.799] already. He has brought many of these
+- [23:40.880] colleges and universities to their knees
+- [23:43.200] by threatening their federal funding in
+- [23:45.120] in a few cases cutting federal funds. If
+- [23:48.159] you violate federal law, you will not
+- [23:49.760] receive federal funds under this
+- [23:51.120] administration. It's very simple. If you
+- [23:53.200] allow the illegal harassment and
+- [23:55.280] violence against students of any race or
+- [23:58.000] religion on your campus, you will not
+- [23:59.679] receive federal funding. You are
+- [24:00.880] violating Title Six, which is federal
+- [24:03.280] law. President's made that very clear.
+- [24:05.200] And you've seen many of these colleges
+- [24:07.520] um come come to the table and admit
+- [24:10.159] their wrongdoing and apologize for it
+- [24:12.320] because they know they were wrong.
+- [24:13.919] Unfortunately, we didn't have a
+- [24:15.279] president at the time who was holding
+- [24:16.640] them accountable, who was completely
+- [24:18.480] silent as students were being targeted.
+- [24:20.720] As for the visas, same is true. The
+- [24:23.039] president and the secretary of state,
+- [24:24.320] Marco Rubio, who's doing a tremendous
+- [24:26.000] job, have taken incredibly strong action
+- [24:27.919] on this as well. and Marco Rubio as our
+- [24:31.120] Secretary of State reserves the right to
+- [24:32.960] rescend visas from foreign nationals who
+- [24:35.840] have the privilege of studying on our
+- [24:37.679] nation's colleges and universities. And
+- [24:39.840] if you engage in illegal behavior, if
+- [24:42.400] you're engaging in activity that's um
+- [24:44.640] contrary to our nation's foreign policy
+- [24:46.640] interests, then you will no longer have
+- [24:48.480] the privilege of coming and studying
+- [24:49.919] here. We're going to put American
+- [24:51.600] citizens and American students first and
+- [24:53.919] only the best and brightest should be
+- [24:55.600] allowed to come to our country and study
+- [24:57.919] at our nation's colleges and
+- [24:59.440] universities. So, um, again, such a
+- [25:01.919] pleasure to see all of you here today.
+- [25:03.600] Thank you so much for coming to the
+- [25:05.200] White House. We hope you enjoy the rest
+- [25:06.960] of this beautiful day at 1600
+- [25:08.720] Pennsylvania Avenue and thanks for all
+- [25:10.480] that you do. Take care. Thank you. Thank
+- [25:12.320] you. You

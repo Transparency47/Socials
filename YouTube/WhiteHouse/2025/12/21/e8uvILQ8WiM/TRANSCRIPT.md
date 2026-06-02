@@ -1,0 +1,526 @@
+<!-- source: https://www.youtube.com/watch?v=e8uvILQ8WiM -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: e8uvILQ8WiM -->
+<!-- date_published: 2025-12-21T19:46:13+00:00 -->
+<!-- date_accessed: 2026-06-02T02:39:50.750678+00:00 -->
+
+# Transcript: Vice President JD Vance Delivers Remarks at Turning Point USA’s America Fest
+
+- [00:04.290] Erika Kirk: Okay.
+- [00:09.600] Last year, my husband introduced to all of you our incredible
+- [00:16.770] President of the United States.
+- [00:20.410] This year, it's my blessing, AmFest, and privilege
+- [00:25.160] to be able to introduce to you our incredible
+- [00:28.260] Vice President, J.D. Vance.
+- [00:33.130] JD Vance lives the American dream
+- [00:35.050] because he wants you guys to be able to live the American dream.
+- [00:38.110] I grew up in Middletown, Ohio,
+- [00:39.830] a small town where people spoke their minds,
+- [00:42.310] built with their hands, and loved their God,
+- [00:44.330] their family, their community,
+- [00:45.710] and their country with their whole hearts.
+- [00:47.510] But it was also a place that had been cast aside
+- [00:49.960] and forgotten by America's ruling class in Washington,
+- [00:53.370] despite the closing factories
+- [00:54.940] and the growing addiction in towns like mine.
+- [00:57.440] In my life I had a guardian angel by my side.
+- [01:00.320] She was an old woman who could barely walk,
+- [01:02.200] but she was tough as nails. I called her Mamaw,
+- [01:06.050] the name we hillbillies gave to our grandmothers.
+- [01:08.520] Thanks to that Mamaw things worked out for me.
+- [01:10.650] After 9-11 I did what thousands of other young men my age did.
+- [01:14.710] I enlisted in the United States Marines.
+- [01:20.810] From Iraq to Afghanistan,
+- [01:22.880] from the financial crisis to the Great Recession,
+- [01:25.540] from open borders to stagnating wages,
+- [01:28.200] the people who govern this country
+- [01:30.360] have failed and failed again.
+- [01:33.240] That is, of course, until a guy named Donald J. Trump
+- [01:35.580] came along.
+- [01:37.200] President Trump represents America's last best hope,
+- [01:40.020] to restore what, if lost, may never be found again.
+- [01:44.330] A country where a working class boy
+- [01:46.780] born far from the halls of power can stand on this stage
+- [01:50.640] as the next vice president of the United States of America.
+- [01:57.530] For Charlie, we will speak the truth every single day.
+- [02:01.110] For Charlie we will rebuild
+- [02:03.090] this United States of America to greatness.
+- [02:05.720] We will never cower,
+- [02:06.970] even when staring down the barrel of a gun.
+- [02:09.790] For Charlie we will remember
+- [02:11.820] that it is better to stand on our feet,
+- [02:14.750] defending the United States of America
+- [02:17.160] and defending the truth than it is to die on our knees.
+- [02:21.110] May our heavenly father give us the courage
+- [02:23.560] to live as Charlie lived.
+- [02:26.000] That is what we must do for Charlie.
+- [02:28.910] Ladies and gentlemen,
+- [02:30.170] please welcome Vice President J.D. Vance.
+- [02:34.580] ♪ (rock music playing) ♪
+- [03:30.580] (cheers and applause)
+- [03:40.580] (indistinct audience chanting)
+- [03:53.520] The Vice President: How's it going Phoenix?
+- [03:55.160] (cheers and applause)
+- [03:59.770] The Vice President: It's so good to be here
+- [04:02.000] with you all on this amazing day
+- [04:03.570] to close out an amazing AmFest 2025.
+- [04:08.360] (cheers and applause)
+- [04:14.520] What an amazing crowd all of you are,
+- [04:16.730] and I have to admit,
+- [04:18.380] today solves one of the great insecurities that I have,
+- [04:22.830] because as I've watched Nicki Minaj come out
+- [04:25.690] and declare her support for the truth, for courage,
+- [04:29.280] and for wisdom, I've had this little nagging voice
+- [04:32.450] in the back of my head
+- [04:33.670] wondering whether she thinks I look like the JD Vance meme.
+- [04:40.730] And it turns out, and I confirm when she walked down the steps,
+- [04:44.350] Nicki Minaj actually knows what I really look like.
+- [04:47.510] And that is the best tribute that I could possibly imagine.
+- [04:51.410] (cheers)
+- [04:57.570] I have to start off with a note of gratitude.
+- [05:00.740] Erica, I cannot thank you enough for your strength, your grace,
+- [05:06.870] and your kind words of support for this administration
+- [05:10.030] and for me personally.
+- [05:12.320] (cheers)
+- [05:18.480] You lead an incredible movement at Turning Point,
+- [05:23.130] and I will fight alongside you and President Trump
+- [05:27.180] and every patriot in this room
+- [05:29.610] to defend the country that we so dearly love.
+- [05:32.900] (cheers)
+- [05:38.290] And when I say that I'm going to fight alongside of you,
+- [05:41.170] I mean all of you each and every one.
+- [05:44.860] President Trump did not build the greatest coalition
+- [05:47.960] in politics by running his supporters
+- [05:51.050] through endless self-defeating purity tests.
+- [05:54.910] He says, make America great again
+- [05:58.120] because every American is invited.
+- [06:07.570] We don't care if you're white or black, rich or poor,
+- [06:12.680] young or old, rural or urban, controversial
+- [06:17.630] or a little bit boring or somewhere in between.
+- [06:21.060] People of every faith come to our banner
+- [06:23.700] because they know that the America
+- [06:25.900] First movement will make their lives better
+- [06:28.680] and they also know that Democrats don't care
+- [06:30.760] about anything other than maybe transing their kids.
+- [06:37.380] So if you love America,
+- [06:39.590] if you want all of us to be richer,
+- [06:41.860] stronger, safer, and prouder, you have a home on this team.
+- [06:54.910] I didn't bring a list of conservatives
+- [06:57.010] to denounce or to deplatform,
+- [07:00.130] and I don't really care if some people out there,
+- [07:02.640] I'm sure we'll have the fake news media
+- [07:04.550] denounce me after this speech.
+- [07:06.910] But let me just say, the best way to honor Charlie
+- [07:11.750] is that none of us here should be doing something
+- [07:14.530] after Charlie's death that he himself refused to do in life.
+- [07:19.560] He invited all of us here.
+- [07:28.740] Charlie invited all of us here for a reason,
+- [07:31.550] because he believed that each of us,
+- [07:33.950] all of us, had something worth saying,
+- [07:36.790] and he trusted all of you to make your own judgment.
+- [07:42.210] And we have far more important work to do
+- [07:44.580] than canceling each other. We have got to build,
+- [07:47.780] and President Donald Trump is a builder.
+- [07:57.750] We're building a better country right now,
+- [08:00.540] and you have a rightful place in the success of your nation
+- [08:04.360] and the success of this movement.
+- [08:06.670] And we build by adding, by growing, not by tearing down.
+- [08:12.990] Charlie Kirk was a great builder, too.
+- [08:16.170] He understood that any family can have its disagreements,
+- [08:19.150] its tough conversations.
+- [08:20.820] We can learn and improve and treat one another better.
+- [08:24.560] We can love each other despite the disagreement.
+- [08:27.600] But winning demands teamwork,
+- [08:30.430] and I am honored to be on Turning Points' team.
+- [08:34.230] I'm honored to on your team, and i will stay that way.
+- [08:52.010] There's still so much important work to do, my friends.
+- [08:55.150] We're barely a year into this administration,
+- [08:58.040] not even a year, into the administration.
+- [09:00.570] But I'm so proud of the accomplishments of the president
+- [09:03.350] and the entire administration. In just a year we ended
+- [09:07.950] Joe Biden and Kamala Harris's border crisis.
+- [09:18.440] December marks seven months straight of zero releases
+- [09:23.100] at the southern border.
+- [09:30.120] More than 2.5 million illegal immigrants
+- [09:33.330] have left the United States the first time in over 50 years
+- [09:37.880] that we have had negative net migration
+- [09:40.540] and it's just the start.
+- [09:46.020] When you restore sanity at the border,
+- [09:48.000] it shows up everywhere else.
+- [09:49.950] Rent prices are dropping four months in a row
+- [09:52.610] and more native-born Americans are working than ever before.
+- [09:57.130] Kamala Harris opened the border and destroyed the economy.
+- [10:00.780] The Trump administration gave you net negative migration
+- [10:04.420] and much more job creation.
+- [10:13.120] Real wages are finally growing.
+- [10:14.830] Inflation is half of what it was under Democrats.
+- [10:18.210] Gas prices are their lowest in years.
+- [10:21.180] And we have finally made it clear that in the United States,
+- [10:24.860] we believe in hard work and merit.
+- [10:27.770] Unlike the left, we stand against treating anybody,
+- [10:31.180] and I love what Nikki said about this,
+- [10:33.410] we don't treat anybody different
+- [10:35.560] because of their race or their sex.
+- [10:38.310] So we have relegated DEI to the dustbin of history,
+- [10:42.080] which is exactly where it belongs.
+- [10:55.020] In the United States of America,
+- [10:56.730] you don't have to apologize for being white anymore.
+- [11:05.770] And if you're an Asian,
+- [11:06.990] you don't have to talk around your skin color
+- [11:09.240] when you're applying for college
+- [11:10.720] because we judge people based on who they are,
+- [11:14.180] not on ethnicity and things they can't control.
+- [11:23.500] We don't persecute you for being male,
+- [11:25.850] for being straight, for being gay, for anything.
+- [11:28.380] The only thing that we demand
+- [11:29.980] is that you be a great American patriot,
+- [11:32.850] and if you're that, you're very much on our team.
+- [11:43.500] Just consider the contrast.
+- [11:44.960] Kamala Harris used the government to censor you.
+- [11:48.660] We're using, in the Trump administration,
+- [11:50.540] the government, to protect your free speech,
+- [11:52.840] whether it's on college campuses
+- [11:54.900] or in the digital marketplace of ideas.
+- [12:02.730] Today, our military is welcoming patriots
+- [12:07.100] instead of firing them for refusing
+- [12:09.690] to accept an unlawful vaccine mandate.
+- [12:13.940] (applause)
+- [12:26.100] And to honor Charlie, but also to honor all of you,
+- [12:30.910] we're working to end the scourge of left-wing violence
+- [12:34.390] in the United States of America.
+- [12:37.980] We're going after the far-left crime networks,
+- [12:43.210] but we're also going after the monsters that fund them.
+- [12:46.650] We don't just want to go after the Antifa member
+- [12:49.250] who threw a brick at an ICE agent.
+- [12:51.260] We want to know who bought the brick
+- [12:53.030] and we're going to prosecute them too.
+- [13:06.960] We're making America healthy again
+- [13:08.960] with our great HHS Secretary, Bobby Kennedy.
+- [13:17.710] We're bringing drug prices down
+- [13:19.990] and purging our food supply of the poison
+- [13:22.800] that it built up over a generation.
+- [13:29.510] But my friends, there is so much more to be done.
+- [13:33.940] And the people saying, we need to be doing more,
+- [13:36.380] we need be doing it faster, trust me, I hear ya.
+- [13:40.440] Greatness awaits every single one of you in the America
+- [13:44.080] First movement we are building together,
+- [13:46.620] but we need your help to get there.
+- [13:49.190] Do you want more prosecutions? Yeah! Great. So do we.
+- [13:54.720] Donald Trump and I have a list of better judges
+- [13:57.590] and prosecutors to enact Swifter justice.
+- [14:00.230] So join us in the fight against the stupid
+- [14:03.120] Senate rules to stand in their way.
+- [14:13.360] Do you want faster deportations?
+- [14:19.010] So go to ICE.gov/join
+- [14:21.670] because we're building an army of patriots
+- [14:24.030] and we need good people who care about the country
+- [14:26.640] to help us secure the border and do it even faster.
+- [14:36.720] Do you want rents to keep dropping and wages
+- [14:38.890] to keep rising,
+- [14:40.100] as they have over the last few months?
+- [14:44.220] Then mobilize with us.
+- [14:46.280] Don't hand power back to the people
+- [14:48.320] who tanked the economy in the first place.
+- [14:50.990] Join the America First movement
+- [14:53.280] and you will always have a place on our great team.
+- [15:02.190] Next month will be the official one-year anniversary
+- [15:05.370] of the Trump administration,
+- [15:07.000] and I am damn proud of our record so far.
+- [15:17.790] Now the Democrats are already talking about 2028,
+- [15:22.410] and it looks like they're going to nominate a California
+- [15:25.280] liberal who's presided --
+- [15:31.850] a California liberal who's presided over rolling blackouts,
+- [15:36.330] open borders, and unchecked violent gangs.
+- [15:41.010] They're just trying to settle
+- [15:42.270] on whether it's going to be Gavin Newsom or Kamala Harris.
+- [15:47.800] And in the meantime,
+- [15:49.400] what are the Democrats offering you in the mean time?
+- [15:51.690] I gotta say, ladies and gentlemen,
+- [15:53.470] they are not sending their best. Omar Fateh
+- [15:58.400] was Ilyon Omar's candidate for mayor of Mogadishu, what?
+- [16:02.920] I mean Minneapolis. Little Freudian slip there.
+- [16:09.930] The candidate for Senate in Maine for the Democrats
+- [16:12.430] calls me a Nazi, which is rich coming from a guy
+- [16:15.610] who literally has a Nazi tattoo on his chest.
+- [16:22.250] And Jasmine Crockett. Oh, Jasmine Crocket.
+- [16:29.840] The record speaks for itself. She wants to be a senator,
+- [16:34.990] though her street girl persona is about as real as her nails.
+- [16:47.170] But ask yourself, what do all of these people have in common?
+- [16:51.250] And the unfortunate answer is they are puppets.
+- [16:54.510] They don't actually matter.
+- [16:55.940] They are cogs in a machine that wants to make you poorer,
+- [17:00.400] that wants make you less powerful,
+- [17:02.900] and wants to makes you less safe
+- [17:05.190] in the country your ancestors built.
+- [17:07.700] And while President Trump and I
+- [17:09.130] are doing everything we can to break that machine,
+- [17:12.400] the left is still there, my friends,
+- [17:14.240] and they are still very powerful.
+- [17:16.400] Don't delude yourselves.
+- [17:18.150] It's the activist groups who want to poison your kids
+- [17:21.220] with hormone replacement therapy and toxins in your water supply.
+- [17:26.040] It's corporate boardrooms pushing diversity quotas
+- [17:29.750] while whining about the fact that Donald Trump won't let them
+- [17:32.620] ship American jobs overseas anymore.
+- [17:35.150] And boo-hoo to that! It's the rogue district judges
+- [17:39.270] who issued nationwide injunctions
+- [17:41.510] every time the president lifts a finger.
+- [17:44.040] It's Soros DAs who cheered on as their cities burned.
+- [17:48.490] What unites them? They win when our country loses.
+- [17:52.170] They get rich when you get poorer.
+- [17:54.540] They hire the illegals that they bring in to take your jobs.
+- [17:58.230] They drink fine wine in the countries
+- [18:00.570] they ship your jobs to.
+- [18:02.230] They censor you because they'd rather destroy the Constitution
+- [18:06.190] than risk losing an argument. They bring in millions of voters
+- [18:10.630] because they know they can't win the argument
+- [18:13.890] with the people who are already here.
+- [18:16.280] And you know what else unites them?
+- [18:17.990] We are going to kick their ass next November
+- [18:20.310] and every year after that.
+- [18:52.870] Part of the American dream is the idea that we're all,
+- [18:57.600] every single one of us, on the same team.
+- [18:59.690] We're all part of the same American family.
+- [19:04.210] If you want to destroy that, do what Democrats have done,
+- [19:08.480] not just for the last five years,
+- [19:10.370] but for the 30 or 40.
+- [19:12.560] Make one race the enemy of another.
+- [19:15.780] Make one gender the enemy. Of the other.
+- [19:19.390] Make Americans suspect.
+- [19:21.630] Despise each other instead of loving their shared country.
+- [19:26.540] When I think about some of the most impassioned debates
+- [19:29.570] happening in our country, the nature of citizenship,
+- [19:33.250] of what it means to be an American,
+- [19:35.470] it all speaks to an obvious truth.
+- [19:38.900] Americans are hungry for identity.
+- [19:42.620] We're hungry for belonging.
+- [19:44.460] We are hungry for a sense of our place in the world.
+- [19:47.560] And it's no surprise why. For Many years.
+- [19:51.750] Our fellow Americans have been dealing
+- [19:53.980] with a globalized economy that homogenized cultures
+- [19:57.650] and hollowed out our towns.
+- [20:00.540] Academics and activists pushing race and gender politics
+- [20:04.720] down everyone's throat 24 seven.
+- [20:08.800] Big tech overlords using their internet platforms
+- [20:12.030] to censor stories that challenge
+- [20:14.770] the dominant far left narrative in our country.
+- [20:19.920] More than any time I can recount,
+- [20:22.850] people are talking about American identity
+- [20:25.220] and figuring out what it is that unites us.
+- [20:28.670] But I want to say something here.
+- [20:30.930] The only thing that has truly served
+- [20:33.770] as an anchor of the United States of America
+- [20:36.910] is that we have been,
+- [20:38.540] and by the grace of God we always will be,
+- [20:41.280] a Christian nation.
+- [21:11.760] Now, I want to be explicit because, of course,
+- [21:14.350] the fake news media will twist everything that I say.
+- [21:17.740] I'm not saying...
+- [21:21.430] Do you feel about them the same way I do?
+- [21:24.560] I'm not saying you have to be a Christian to be an American.
+- [21:28.260] I'm saying something simpler and truer.
+- [21:31.540] Christianity is America's creed.
+- [21:34.610] The shared moral language from the Revolution
+- [21:37.120] to the Civil War and beyond. Across that history,
+- [21:41.250] our country's major debates have always centered on
+- [21:44.600] how we could best as a people please God.
+- [21:49.320] That greed! Think about it.
+- [21:53.560] That creed motivated our understanding
+- [21:55.940] of natural law and rights,
+- [21:58.100] our sense of duty to one's neighbor,
+- [22:00.630] the conviction that the strong must protect the weak,
+- [22:04.130] and the belief in individual conscience.
+- [22:07.150] Even our famously American idea of religious liberty
+- [22:11.860] is a Christian concept.
+- [22:14.080] Because we're all creatures of God,
+- [22:16.720] we must respect each individual's pathway
+- [22:20.280] to that God.
+- [22:22.000] But over the last 50 years, there has been a singular focus,
+- [22:27.510] a war that has been waged on Christians and Christianity
+- [22:30.980] in the United States of America.
+- [22:33.170] And let me say, of all the wars that Donald Trump has ended,
+- [22:37.360] that is the one we're proudest of.
+- [22:47.180] For decades, the left has labored
+- [22:49.770] to push Christianity out of national life.
+- [22:52.650] They've kicked it out of the schools, out of workplace,
+- [22:55.730] out the fundamental parts of the public square.
+- [22:58.690] Freedom of religion transformed into freedom from religion.
+- [23:03.110] And in a public square devoid of God, we got a vacuum.
+- [23:07.370] And the ideas that filled that void
+- [23:10.030] preyed on the very worst of human nature,
+- [23:13.190] rather than uplifting it.
+- [23:15.670] They told us not that we were children of God,
+- [23:18.240] but children of this or that identity group.
+- [23:21.680] They replaced God's beautiful design for the family
+- [23:25.690] that men and women could rely on
+- [23:27.690] and turn to one another with the idea
+- [23:30.560] that men could turn into women so long as they brought
+- [23:33.620] the right bunch of pills from Big Pharma.
+- [23:36.470] They had all the religious fervor of a zealous convert
+- [23:42.180] without any of the grace or forgiveness.
+- [23:45.590] Of a true Christian.
+- [23:47.460] Scripture tells us, by your fruits ye shall know them.
+- [23:52.270] And we might ask, what are the fruits of these people
+- [23:55.980] and their principles?
+- [23:57.930] And the answer is a man named Tyler Robinson
+- [24:01.410] who killed my friend. Think about it.
+- [24:08.760] He has everything that the far left want from our young men.
+- [24:13.830] He rejected the conservatism and the spirituality,
+- [24:17.450] the values of a small town family.
+- [24:20.700] He moved into a small apartment.
+- [24:22.250] He became addicted to porn. He became addictive to hate.
+- [24:26.320] And he ended up sleeping with somebody who doesn't know
+- [24:28.410] whether they're a man or a woman.
+- [24:30.930] That is the nightmare scenario, but that is the scenario
+- [24:33.700] that the left has actively advertised they want.
+- [24:37.340] For American families,
+- [24:39.310] and the young men in the audience in particular,
+- [24:41.910] that is exactly why we have to fight them.
+- [24:46.850] Because the fruits of true Christianity
+- [24:49.910] are men like Charlie Kirk.
+- [25:21.820] The fruits of true Christianity are good husbands,
+- [25:26.470] patient fathers, builders of great things,
+- [25:30.510] and slayers of dragons,
+- [25:32.230] and yes, men who are willing to die for a principle
+- [25:35.940] if that's what God asked them to do.
+- [25:43.630] Because so many of us recognize
+- [25:45.400] that it is better to die a patriot than live a coward.
+- [25:58.530] I'm going to tell you something
+- [25:59.860] I haven't talked about publicly before,
+- [26:01.630] but in the days after Charlie's death,
+- [26:03.680] I struggled a great deal. I'm sure many of you did too.
+- [26:08.090] I remember watching every video of the assassination,
+- [26:11.820] looking for clues, trying to understand what happened.
+- [26:15.110] I tried to hide my friend
+- [26:17.630] and that terrible bullet hitting him,
+- [26:19.810] but I would try to look around.
+- [26:21.920] I stayed up all night for many nights in a row,
+- [26:24.350] researching every conspiracy theory,
+- [26:26.590] going down every rabbit hole. When my lovely wife,
+- [26:30.150] Usha, told me to come to bed, I told her
+- [26:31.880] I owed it to Charlie to try to uncover every stone,
+- [26:35.540] and so that's what I tried to do.
+- [26:38.760] I remember I was consumed by this fear
+- [26:42.040] that Charlie's death wouldn't just deprive
+- [26:44.160] a family of their husband or of a good father,
+- [26:47.910] but that it would deny our movement
+- [26:50.580] of a great unifier of people and a great doer of great deeds.
+- [26:56.260] It's the only time I can remember my wife ever telling me
+- [26:59.570] that she was really worried about me.
+- [27:02.130] She told me it many times.
+- [27:04.740] But what saved me was not lying to myself,
+- [27:08.230] but accepting the reality of the fight that we're in.
+- [27:12.330] Charlie's death was an immense loss, an irreplaceable loss.
+- [27:18.780] We got kicked in the teeth, my friends,
+- [27:20.560] and there's no sugarcoating it
+- [27:22.280] or pretending that it didn't happen.
+- [27:24.660] We need to accept that. And what saved me was realizing
+- [27:29.320] that the story of the Christian faith,
+- [27:31.890] like the story of these United States of America,
+- [27:35.560] is one of immense loss followed by even bigger victory.
+- [27:40.720] It's a story.
+- [27:47.530] It's a story of very dark nights followed by very bright dawns.
+- [27:53.000] What saved me was remembering the inherent goodness of God
+- [27:57.070] and that His grace overflows when we least expect it.
+- [28:02.090] Not long ago, I spent time at a Christian men's ministry,
+- [28:06.650] just a couple of weeks ago, and here's what they do.
+- [28:09.000] They take men who struggle with addiction or homelessness
+- [28:12.500] and they help them get back on their feet.
+- [28:14.270] They feed them. They clothe them.
+- [28:16.860] They give them shelter and financial advice.
+- [28:18.900] They live out the very best part of Christ's commission.
+- [28:23.980] Now afterwards, I had lunch with four of these men.
+- [28:26.500] It was a couple of white guys, a Hispanic guy, and a black man.
+- [28:30.500] They had all struggled in their unique ways.
+- [28:33.670] Some had lost contact with their family,
+- [28:36.050] some of them for a very long time.
+- [28:38.260] Others were desperate to rebuild relationships with their kids
+- [28:41.750] so that they could see them on Christmas.
+- [28:44.830] But all of them were back on their feet.
+- [28:47.190] And what saved them?
+- [28:49.250] It wasn't racial commonality or grievance.
+- [28:52.620] It wasn't some philosophical jargon.
+- [28:55.380] It wasn a DEI prep course and it wasn't a welfare check.
+- [29:00.180] It was the fact that a carpenter died 2,000 years ago
+- [29:03.790] and changed the world in the process.
+- [29:20.650] If you go to almost any food pantry in this country,
+- [29:24.580] you will find Christians feeding the poor.
+- [29:27.780] If you to go to addicts whose families
+- [29:30.030] won't even speak to them like my mom
+- [29:31.950] was at a certain point in her life,
+- [29:34.040] it's often the Christian ministries
+- [29:36.080] that stay with them at their very lowest moments.
+- [29:39.180] You'll find Christians sitting patiently beside hospice beds
+- [29:43.100] and in recovery rooms and in all the places of the world
+- [29:47.620] where people have given up on other people.
+- [29:50.920] And this is the moral truth we strive to center in our work
+- [29:55.150] in the Trump administration
+- [29:56.730] and in this great movement of ours.
+- [29:59.590] A true Christian politics,
+- [30:01.170] it cannot just be about the protection of the unborn
+- [30:04.940] or the promotion of the family
+- [30:06.730] as important as those things absolutely are.
+- [30:10.200] It must be at the heart of our full
+- [30:12.640] understanding of government. Why do we penalize?
+- [30:16.480] Corporations that ship American jobs overseas
+- [30:19.340] because we believe in the inherent dignity of human work
+- [30:23.320] and every person who works a good job in this country.
+- [30:32.040] Why have we worked, without the help of Congress,
+- [30:34.760] to restrict H-1B visas, for example,
+- [30:37.900] because we believe it is wrong for companies
+- [30:41.280] to bypass American labor
+- [30:43.270] just to go for cheaper options in the third world?
+- [30:52.700] We help older Americans in retirement,
+- [30:54.890] including by ending taxes on Social Security,
+- [30:57.990] because we believe in honoring your father and mother
+- [31:01.660] rather than shipping all of their money off to Ukraine.
+- [31:11.500] We believe in taking care of the poor,
+- [31:14.100] which is why we have Medicaid,
+- [31:16.130] so that the least among us can afford their prescriptions
+- [31:19.420] or to take their kids to see a doctor.
+- [31:21.540] And it's why we are outraged at the injustice of Tim Waltz
+- [31:25.590] allowing Somalian immigrants to defraud that program
+- [31:28.790] to the tune of billions of dollars.
+- [31:30.920] It ought to go to Americans,
+- [31:32.370] because that's who it's there for.
+- [31:44.370] Now I want to close my friends, but I know, I have heard you,
+- [31:47.790] I know that some of you are impatient
+- [31:50.270] at the pace of progress and my response to that is good.
+- [31:55.400] Be impatient.
+- [31:56.860] Use that desire for justice for your country
+- [31:59.960] as fuel to get involved in this movement
+- [32:02.830] in a bigger and better and more powerful way.
+- [32:06.140] I know some of are discouraged by the infighting
+- [32:08.760] over any number of issues. Don't be discouraged
+- [32:12.520] Wouldn't you rather lead a movement of free thinkers
+- [32:15.590] who sometimes disagree than a bunch of drones
+- [32:18.470] who take their orders from George Soros?
+- [32:28.970] And I know many of you miss our dear friend Charlie Kirk.
+- [32:32.600] So do I. I miss his optimism. I miss is energy.
+- [32:37.960] I miss the phone calls
+- [32:39.270] where we'd strategize about how to get this
+- [32:41.310] or that GOP congressman to get off their ass and do something.
+- [32:46.750] But most of all, I miss Charlie's wisdom.
+- [32:51.750] I miss this reminder that politics is not
+- [32:54.430] a dress rehearsal or a game.
+- [32:56.480] We are making decisions. That will save our country
+- [32:59.770] and give the American people a shot at their dreams again.
+- [33:04.370] If you miss Charlie Kirk,
+- [33:06.990] do you promise to fight what he died for?
+- [33:14.050] Do you promise to take the country back
+- [33:16.390] from the people who took his life?
+- [33:21.640] Do you promise
+- [33:22.900] to help defeat the radicals who cheered his death?
+- [33:30.490] Do you promise to honor his memory
+- [33:32.570] by having faith in the God he loves?
+- [33:37.690] My friends,
+- [33:39.060] commit to these things and I promise you victory.
+- [33:43.950] I promise your closed borders and safe communities.
+- [33:47.420] I promise good jobs and a dignified life.
+- [33:51.370] Only God can promise you salvation and heaven,
+- [33:54.950] but together we can fulfill the promise
+- [33:57.470] of the greatest nation in the history of the earth.
+- [33:59.970] Merry Christmas, my friends. Let's keep fighting.
+- [34:03.890] (cheers and applause)
+- [34:12.415] ♪ (rock music playing) ♪

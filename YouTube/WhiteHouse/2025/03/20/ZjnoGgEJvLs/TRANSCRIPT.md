@@ -1,0 +1,290 @@
+<!-- source: https://www.youtube.com/watch?v=ZjnoGgEJvLs -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: ZjnoGgEJvLs -->
+<!-- date_published: 2025-03-20T20:41:40+00:00 -->
+<!-- date_accessed: 2026-06-02T02:52:39.300995+00:00 -->
+
+# Transcript: President Trump Participates in an Education Event and Signs an Executive Order
+
+- [00:00.890] Announcer: -- The President of the United States.
+- [00:03.590] ("Hail to the Chief"
+- [00:22.350] instrumental plays)
+- [00:23.850] The President: Thank you very much.
+- [00:37.340] Thank you very much, everyone. And I'd like to start by saying
+- [00:42.700] that our country is doing very well.
+- [00:45.060] Things are, as you can see, doing quite well.
+- [00:48.020] Please sit down.
+- [00:50.820] Before we begin, I just want to announce
+- [00:54.460] that I signed a proclamation a few moments ago
+- [00:58.310] honoring the 250th anniversary of Patrick Henry's famous speech
+- [01:03.550] to the Second Virginia Convention,
+- [01:05.580] in which he declared very well-known, very famous words,
+- [01:10.060] "Give me liberty or give me death."
+- [01:12.030] Has anyone heard the phrase? I think most of you have.
+- [01:19.920] And moments ago, I also signed an executive order
+- [01:23.000] to dramatically increase production
+- [01:24.830] of critical minerals and rare earths.
+- [01:27.060] It's a big thing in this country.
+- [01:29.190] And as you know, we're also signing agreements
+- [01:32.240] in various locations to unlock rare earths and minerals
+- [01:37.880] and lots of other things all over the world,
+- [01:40.500] but in particular, Ukraine.
+- [01:42.790] We're doing very well with regard to Ukraine and Russia.
+- [01:46.980] And one of the things we are doing is signing
+- [01:49.310] a deal very shortly with respect to rare earths with Ukraine,
+- [01:53.680] which they have a tremendous value in rare earth,
+- [01:56.670] and we appreciate that.
+- [01:58.500] And we spoke yesterday with, as you know,
+- [02:01.440] President Putin and President Zelensky,
+- [02:04.960] and we would love to see that come to an end;
+- [02:07.180] and I think we're doing pretty well in that regard,
+- [02:09.810] so hopefully we could save thousands of people
+- [02:12.540] a week from dying. That's what it's all about.
+- [02:14.810] They're dying so unnecessarily. And I believe we'll get it done.
+- [02:20.320] We'll see what happens, but I believe we'll get it done.
+- [02:24.630] Today, we take a very historic action
+- [02:26.950] that was 45 years in the making.
+- [02:30.010] In a few moments, I will sign an executive order
+- [02:32.730] to begin eliminating the Federal Department of Education
+- [02:37.470] once and for all.
+- [02:47.650] And it sounds strange, doesn't it?
+- [02:49.620] Department of Education, we're going to eliminate it;
+- [02:52.050] and everybody knows it's right.
+- [02:54.790] And the Democrats know it's right,
+- [02:56.890] and I hope they're going to be voting for it
+- [02:58.830] because ultimately it may come before them,
+- [03:01.020] but everybody knows it's right.
+- [03:03.650] And we have to get our children educated.
+- [03:06.820] We're not doing well with the world of education
+- [03:11.500] in this country, and we haven't for a long time.
+- [03:14.180] And we're pleased to be joined today by the woman who I chose
+- [03:19.270] because she's an extraordinary person
+- [03:22.100] and hopefully she will be our last Secretary of Education,
+- [03:25.710] Linda McMahon.
+- [03:27.000] Linda, thank you. Thank you very much.
+- [03:34.330] That's another interesting statement,
+- [03:36.180] it's a very interesting opening, right?
+- [03:38.150] But it's true.
+- [03:39.430] And people…
+- [03:40.700] It's been amazing how popular this has been.
+- [03:43.420] I tell people that this is what I'm doing today,
+- [03:46.390] and they say, oh, it's about time.
+- [03:48.810] Everybody says it.
+- [03:50.020] Republicans and Democrats have said it.
+- [03:52.410] They're all saying it.
+- [03:53.680] Also with us are some terrific people.
+- [03:56.830] Governors Greg Abbott. Greg, thank you very much.
+- [04:04.400] Governor Ron DeSantis. Thank you very much, Ron.
+- [04:10.340] Mike Braun.
+- [04:11.650] Congratulations on your victory, Mike, that was a big one.
+- [04:16.690] Mike DeWine. Thank you very much, Mike.
+- [04:21.970] Jeff Landry. Jeff, thank you very much, Jeff.
+- [04:27.040] Bill Lee, thank you. Governors, all governors.
+- [04:30.310] Brad Little. Brad, thank you very much.
+- [04:33.210] Where are you, Brad? Hi, Brad.
+- [04:35.870] Jim Pillen, thank you very much, Jim.
+- [04:40.360] And Kim Reynolds.
+- [04:41.940] These are all people very interested in education.
+- [04:45.360] And I even see Dan Patrick over there,
+- [04:48.740] my friend Dan Patrick.
+- [04:49.980] We're joined also by Representatives Tim Walberg
+- [04:54.660] and Virginia Foxx, Rick Allen, Michael Rulli,
+- [05:02.480] and again, Dan Patrick. Thank you very much, Dan.
+- [05:05.310] You've been a great friend of ours.
+- [05:09.410] And State Attorneys General Ken Paxton.
+- [05:11.810] Ken, I see you there. Andrew Bailey.
+- [05:15.330] Andrew, what a job you've done.
+- [05:17.420] Andrew, you have some good cases going.
+- [05:20.230] You've done a great job. Thank you very much.
+- [05:22.750] And co-founder of Moms for Liberty, Tiffany Justice.
+- [05:26.720] She's been a hard worker. Thank you. Thank you, Tiffany.
+- [05:32.970] When President Carter
+- [05:34.220] created the Federal Education Department in 1979,
+- [05:38.490] it was opposed by members of his own cabinet
+- [05:40.960] as well as the American Federation of Teachers,
+- [05:43.970] the New York Times Editorial Board,
+- [05:46.540] and the famed Democrat Senator Daniel Patrick Moynihan.
+- [05:51.080] History has proven them right, absolutely right.
+- [05:54.940] After 45 years, the United States
+- [05:57.000] spends more money on education by far than any other country,
+- [06:01.500] and spends, likewise, by far more money per pupil
+- [06:06.240] than any country, and it's not even close;
+- [06:08.380] but yet, we rank near the bottom of the list in terms of success.
+- [06:13.800] It's an amazing stat.
+- [06:15.870] Those are two stats you don't want,
+- [06:17.230] the most money spent per pupil,
+- [06:18.820] and you're at the bottom of the list.
+- [06:20.630] And that's where we are, like it or not,
+- [06:22.760] and we've been there for a long time.
+- [06:24.990] 70% of eighth graders are not proficient
+- [06:28.070] in either reading or in math. 70%.
+- [06:32.480] 40% of fourth graders lack even basic reading skills.
+- [06:35.980] Can't read. Students in our public elementary
+- [06:39.150] and middle schools score worse in reading today
+- [06:42.560] than when the Department opened by a lot.
+- [06:47.290] In Baltimore, 40% of the high schools
+- [06:49.550] have zero students who can do basic mathematics,
+- [06:53.400] not even the very simplest of mathematics.
+- [06:56.170] I said, "Give me your definition of basic,"
+- [06:58.930] and they're talking about adding a few numbers together.
+- [07:02.740] Despite these breathtaking failures,
+- [07:04.700] the Department's discretionary budget has exploded by 600%
+- [07:10.250] in a very short period of time and employs bureaucrats
+- [07:13.820] in buildings all over Washington, D.C.
+- [07:16.400] And as a former real estate person,
+- [07:18.670] I will tell you, I ride through the streets of Washington,
+- [07:21.210] and it says Department of Education,
+- [07:23.290] Department of Education.
+- [07:25.570] I said, "How do you fill those buildings?"
+- [07:27.420] It's crazy what's happened over the years.
+- [07:30.630] I'm pleased to report that after offering these federal employees
+- [07:35.110] two generous buyout options, and they were very generous,
+- [07:38.310] and they're good people, but they were very generous,
+- [07:42.070] my administration has initiated a reduction in force
+- [07:45.200] and we're already cutting numbers
+- [07:48.500] that were really surprising to a lot,
+- [07:50.610] that we were able to do it so successfully.
+- [07:53.560] And we've cut the number of bureaucrats in half,
+- [07:56.750] 50% have taken office, which is great. Thank you.
+- [08:05.540] Under the action I'm taking today,
+- [08:07.850] a small handful of Democrats and others
+- [08:11.810] that we have employed for a long time,
+- [08:14.050] and there are some Republicans, but not too many,
+- [08:16.250] I have to be honest with you,
+- [08:18.110] but the Department's useful functions and such as,
+- [08:22.300] and they're in charge of them, Pell Grants, Title I funding,
+- [08:25.940] resources for children with disabilities
+- [08:28.250] and special needs will be fully preserved.
+- [08:32.380] They're all going to be.
+- [08:33.610] So if you look at the Pell Grants,
+- [08:35.260] supposed to be a very good program.
+- [08:37.000] Title I funding and resources for children
+- [08:40.640] with special disabilities and special needs,
+- [08:43.770] they're going to be preserved in full and redistributed
+- [08:47.710] to various other agencies and departments
+- [08:51.160] that will take very good care of them.
+- [08:52.810] And it's very important to Linda, I know,
+- [08:55.010] and it's very important to all of us.
+- [08:57.260] But beyond these core necessities,
+- [08:59.320] my administration will take all lawful steps
+- [09:01.720] to shut down the Department. We're going to shut it down
+- [09:05.190] and shut it down as quickly as possible.
+- [09:07.160] It's doing us no good.
+- [09:08.440] We want to return our students to the states
+- [09:11.540] where just some of the governors here are so happy about this.
+- [09:15.260] They want education to come back to them,
+- [09:17.990] to come back to the states,
+- [09:19.260] and they're going to do a phenomenal job.
+- [09:21.680] If you… Look, Denmark, Norway, Sweden,
+- [09:25.990] I have to tell you, I give them lot of credit.
+- [09:28.000] China's top 10. And so we can't now say
+- [09:32.100] that bigness is making it impossible to educate
+- [09:35.290] because China is very big.
+- [09:37.040] But you have countries that do a very good job in education;
+- [09:40.850] and I really believe, like some of the governors here today
+- [09:44.200] from states that run very, very well,
+- [09:46.420] including a big state like Texas,
+- [09:48.710] but states that run very well are going to have education
+- [09:52.430] that will be as good as Norway, Denmark, Sweden,
+- [09:56.040] and those top, Finland,
+- [09:57.730] those top countries that do so well with education.
+- [10:00.720] I think they'll do every bit as well.
+- [10:03.900] And what do you think about that, Governor, do you agree?
+- [10:06.600] I think so. Ron, do you agree? I think so.
+- [10:08.780] Florida, Iowa, that's right.
+- [10:13.260] I really believe that they'll be as good as any of them.
+- [10:16.520] And then you'll have some laggards,
+- [10:19.260] and we'll work with them, and we can all tell you
+- [10:21.840] who the laggards will be right now probably,
+- [10:23.960] but let's not get into that, but we'll work with them
+- [10:27.440] and we're going to make them…
+- [10:29.340] They'll do a job. I think they'll do a job.
+- [10:31.290] And they'll go to sections of the state.
+- [10:33.140] For instance, New York, you'll have a Manhattan
+- [10:36.030] and you'll have a Suffolk County,
+- [10:38.530] and you'll have a Nassau County,
+- [10:40.580] and you'll have Westchester County.
+- [10:41.920] You'll do four or five or six of them.
+- [10:43.680] You have upstate New York.
+- [10:44.880] And those counties, I think, are going to do very well;
+- [10:47.530] and I think ultimately Manhattan should do very well.
+- [10:49.840] But we'll break it down into sections,
+- [10:52.060] and I think it'll be really, really good.
+- [10:54.710] And they're going to be probably the tougher ones,
+- [10:57.490] but I think they have a chance to do really well.
+- [11:00.820] But we're going to be returning education,
+- [11:03.750] very simply, back to the states where it belongs.
+- [11:07.480] And this is a very popular thing to do,
+- [11:10.060] but much more importantly, it's a common-sense thing to do.
+- [11:13.520] And it's going to work. Absolutely, it's going to work.
+- [11:16.050] And I can tell you from dealing with the governors
+- [11:18.540] and others in the state, they want it so badly.
+- [11:22.300] They want to take their children back
+- [11:23.950] and really teach their children individually.
+- [11:28.100] Probably the costs will be half and the education
+- [11:31.700] will be maybe many, many times better.
+- [11:35.430] So we look forward to this.
+- [11:38.000] I want to just make one little personal statement.
+- [11:40.190] Teachers, to me,
+- [11:41.400] are among the most important people in this country,
+- [11:44.980] and we're going to take care of our teachers.
+- [11:47.000] And I don't care if they're in the union
+- [11:48.500] or not in the union, that doesn't matter.
+- [11:51.940] But we're going to take care of our teachers.
+- [11:53.880] And I believe the states
+- [11:56.630] will take actually better care of them
+- [11:59.560] than they are taking care of right now.
+- [12:01.770] They'll work all sorts of systems,
+- [12:03.760] and even merit systems.
+- [12:05.240] Those great teachers are going to be maybe
+- [12:07.480] a little bit better rewarded,
+- [12:08.920] or maybe that's the way it should be,
+- [12:10.260] but the states are going to make that decision.
+- [12:12.070] But we're going to love and cherish our teachers,
+- [12:15.140] along with our children,
+- [12:16.400] and they're going to work with the parents
+- [12:17.880] and they're going to work with everybody else;
+- [12:19.900] and it's going to be an amazing thing to watch,
+- [12:21.930] and it's really going to be something special.
+- [12:23.950] And, Linda, you're presiding over something
+- [12:26.220] that's so important,
+- [12:27.610] and you're going to do a fantastic job,
+- [12:29.960] just like you have your whole life.
+- [12:31.380] I know your whole life, I've been watching you.
+- [12:33.950] I've been watching you for a long time.
+- [12:35.480] She's had nothing but success. So it's tremendous to have you.
+- [12:40.120] And hopefully you won't be there too long,
+- [12:42.140] but we're going to find something else for you,
+- [12:43.880] Linda, okay?
+- [12:45.340] So this will conclude what we are talking about
+- [12:49.760] with respect to our most cherished group of people,
+- [12:54.250] and that's our children.
+- [12:55.520] We want to have our children well-educated.
+- [12:58.250] We want them to love going to school.
+- [13:00.590] We have examples of it.
+- [13:01.950] Look at those beautiful, bright-eyed faces.
+- [13:05.490] They are so smart. They're so smart.
+- [13:09.940] And with that, I am going to come down
+- [13:13.140] and we're going to sign a very important document
+- [13:15.510] and we're going to be on our way.
+- [13:16.890] People have wanted to do this for many, many years,
+- [13:19.540] for many, many decades.
+- [13:21.460] And I don't know, no president ever got around to doing it,
+- [13:24.360] but I'm getting around to doing it,
+- [13:26.020] so thank you very much.
+- [13:27.870] Good looking people here.
+- [13:48.720] Should I do this? Should I do it.
+- [13:56.490] I'm going to take this one. It was very lucky.
+- [14:05.970] I signed another document that turned out to be very good
+- [14:09.400] for the country, and I said, "Let's use that same pen."
+- [14:11.770] I don't know. Is anybody superstitious?
+- [14:13.700] Ron, are you superstitious?
+- [14:16.040] Let's use that same pen.
+- [14:30.580] Okay.
+- [14:39.560] Thank you.
+- [14:54.680] Come on up here. Will you come up?
+- [14:57.840] It's very important. You are a big factor here.
+- [15:27.540] Thank you, everybody, very much.
+- [15:29.670] ("God Bless America"
+- [16:09.180] instrumental plays)

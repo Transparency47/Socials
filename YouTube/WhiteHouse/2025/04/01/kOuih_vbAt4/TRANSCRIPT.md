@@ -1,0 +1,827 @@
+<!-- source: https://www.youtube.com/watch?v=kOuih-vbAt4 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: kOuih-vbAt4 -->
+<!-- date_published: 2025-04-01T18:16:53+00:00 -->
+<!-- date_accessed: 2026-06-02T01:28:39.605951+00:00 -->
+
+# Transcript: Press Secretary Karoline Leavitt Briefs Members of the Media, Apr. 1, 2025
+
+- [00:03.100] Ms. Leavitt: Hello, everybody.
+- [00:05.010] Good afternoon. How are we?
+- [00:06.300] The Press: Great.
+- [00:07.500] Ms. Leavitt: Good. Good to see you all.
+- [00:09.330] I want to start today by addressing the US Army soldiers
+- [00:13.180] who went missing while conducting a mission to repair
+- [00:15.790] and tow an immobilized tactical vehicle in Lithuania
+- [00:19.590] in the early hours of March 25th.
+- [00:22.290] Tragically, three soldiers were found
+- [00:24.300] deceased in Lithuania yesterday,
+- [00:27.200] and it pains me to confirm that today
+- [00:29.450] the fourth soldier was also found deceased.
+- [00:32.620] The President, the Secretary of Defense,
+- [00:34.460] and the entire White House are praying for the victims' friends
+- [00:37.800] and family during this unimaginable time.
+- [00:40.780] This is another stark reminder of the selfless sacrifice
+- [00:43.840] of our brave military men and women
+- [00:46.130] who risk their lives around the world
+- [00:47.810] every day to keep us safe.
+- [00:49.580] God bless them.
+- [00:51.080] On another note, at our southern border,
+- [00:53.360] there is more massive news.
+- [00:55.090] Southwest border crossings in March
+- [00:56.900] fell to the lowest level in American history,
+- [01:00.020] down 94% from March of last year under President Biden
+- [01:04.710] when 137,000 illegal aliens
+- [01:07.970] poured across our wide-open southern border.
+- [01:11.510] Thanks to President Trump's leadership,
+- [01:13.390] border patrol agents are now back to doing the jobs
+- [01:16.130] they signed up for--securing the border--rather than serving
+- [01:19.940] as travel agents for illegal aliens.
+- [01:22.980] The Los Angeles Times captured the Trump effect
+- [01:25.740] on the border with a recent article.
+- [01:27.790] Their headline read, "California-Mexico border,
+- [01:31.110] once overwhelmed, is now nearly empty."
+- [01:34.780] With so few migrants coming into the US,
+- [01:37.100] they wrote, "Shelters
+- [01:38.500] that once served migrants have completely closed."
+- [01:41.690] Deportations of illegal aliens
+- [01:43.520] who threaten the safety of the American people
+- [01:45.720] are also continuing at a rapid pace.
+- [01:48.620] Over the weekend, the United States military transferred
+- [01:51.500] a group of 17 violent criminals from the Tren de Aragua
+- [01:55.340] and MS 13 terrorist organizations to El Salvador.
+- [01:59.230] And an illegal alien who was released by the Biden
+- [02:01.780] Administration into our country was just arrested in Georgia
+- [02:05.850] and charged with the horrific killing of Camillia Williams,
+- [02:09.680] a mother of five and grandmother.
+- [02:12.210] The suspect has now been indicted on charges
+- [02:14.530] of malice murder, felony murder, aggravated assault,
+- [02:18.290] rape, aggravated sexual battery, and necrophilia,
+- [02:22.500] which for those who don't know,
+- [02:23.940] necrophilia is a sexual obsession with a corpse.
+- [02:28.330] This suspect was ordered to be removed in July 2023,
+- [02:33.200] but the Biden administration allowed him to stay.
+- [02:36.300] This case represents the ruthless murderers,
+- [02:39.020] rapists, and pedophiles who Joe Biden and Democrats
+- [02:42.050] let into our country over the past
+- [02:44.270] four years through our southern border.
+- [02:46.650] They should have never been here in the first place.
+- [02:49.840] Keep this in mind, the next time you see Democrats
+- [02:52.330] protesting future illegal alien removals from our country.
+- [02:56.540] President Trump is focused
+- [02:57.860] on fulfilling his greatest obligation:
+- [03:00.460] to keep the American people safe
+- [03:02.330] and to defend our country from violent invaders.
+- [03:06.070] Looking ahead to tomorrow, April 2nd,
+- [03:08.630] 2025 will go down as one of the most important days
+- [03:12.540] in modern American history.
+- [03:14.880] Our country has been one of the most open economies
+- [03:18.290] in the world, and we have the consumer base,
+- [03:20.870] hands down, the best consumer base,
+- [03:23.570] but too many foreign countries
+- [03:24.900] have their markets closed to our exports.
+- [03:28.140] This is fundamentally unfair.
+- [03:30.810] The lack of reciprocity contributes to our large
+- [03:33.730] and persistent annual trade deficit
+- [03:35.650] that's gutted our industries and hollowed out key workforces.
+- [03:39.610] But those days of America beginning tomorrow
+- [03:42.750] being ripped off, are over. American workers and businesses
+- [03:46.420] will be put first under President Trump
+- [03:49.550] just as he promised on the campaign trail.
+- [03:52.210] The president's historic action tomorrow
+- [03:54.250] will improve American competitiveness
+- [03:56.190] in every area of industry,
+- [03:58.460] reduce our massive trade deficits,
+- [04:00.920] and ultimately protect our economic and national security.
+- [04:05.090] President Trump's economic vision
+- [04:06.800] is rooted in common sense.
+- [04:09.550] America will offer companies the lowest taxes, energy costs,
+- [04:13.180] regulations
+- [04:14.420] if they make their products right here in the United States
+- [04:17.630] and hire American workers for the job.
+- [04:20.220] It's simple: if you make your product in America,
+- [04:23.110] you will pay no tariffs.
+- [04:25.940] We have already seen a number of the largest companies
+- [04:28.210] in the world respond to this economic approach.
+- [04:31.560] For example, project Stargate led by Japan-based SoftBank
+- [04:35.040] and US-based OpenAI
+- [04:36.820] and Oracle announced a $500 billion
+- [04:40.040] private investment in the United States
+- [04:42.410] artificial intelligence infrastructure.
+- [04:45.010] Apple announced a $500 billion
+- [04:47.600] investment in US manufacturing and training.
+- [04:50.570] NVIDIA announced it will invest hundreds of billions of dollars
+- [04:53.820] over the next four years in US-based manufacturing.
+- [04:57.540] And the Taiwan semiconductor manufacturing company, TSMC,
+- [05:02.460] announced a $100 billion investment in US-based chips
+- [05:06.130] and manufacturing.
+- [05:07.760] These are just a few of the investment announcements
+- [05:10.090] that have already been made,
+- [05:11.410] and it is clear that President Trump's America
+- [05:13.730] first approach is already working.
+- [05:17.260] And our new media seat today is Mark Halperin,
+- [05:19.790] the co-founder and editor-in-chief of 2WAY,
+- [05:22.420] a new live video platform that builds communities
+- [05:25.030] around interactive conversations with leaders
+- [05:27.650] and content creators from every subject area.
+- [05:30.540] Mark and his colleagues welcome all voices into discussions
+- [05:33.470] that are spirited but respectful.
+- [05:35.450] They have over 37.5 million video views,
+- [05:38.940] over 3.6 million watch time hours
+- [05:41.290] since the platform began just last year.
+- [05:44.290] This is new media in its truest sense,
+- [05:46.690] allowing the people to ask questions, make comments,
+- [05:49.270] and be an active part of engagement
+- [05:51.370] on the most important issues
+- [05:52.650] facing the country and our world.
+- [05:55.050] With that, Mark, please kick us off
+- [05:56.480] and welcome to the briefing room.
+- [05:57.790] The Press: Thank you, Karoline. Appreciate it.
+- [05:59.110] I'll ask you a question about tariffs
+- [06:00.550] and then one from one of the members
+- [06:01.790] of our community about education.
+- [06:03.270] Ms. Leavitt: Sure.
+- [06:04.510] The Press: It's perceived by some that companies
+- [06:06.340] or countries,
+- [06:07.540] if they change their policies either before tomorrow
+- [06:10.360] or after tomorrow, can have the president alter
+- [06:12.590] what he's planning for that country or that sector.
+- [06:14.790] Is that a possibility?
+- [06:15.990] And if so, what factors does the president
+- [06:17.690] consider in making those changes?
+- [06:19.980] Ms. Leavitt: Well, the ultimate change for these companies
+- [06:21.890] and these countries, Mark, will happen when they decide
+- [06:24.360] to do business in the United States of America.
+- [06:26.550] And as I just laid out, they will face no tariffs at all
+- [06:29.230] if these companies choose to invest here in the United States
+- [06:32.940] and to move their production
+- [06:34.190] and their manufacturing here to the United States as well.
+- [06:37.210] As for tomorrow, the president will be addressing
+- [06:39.240] the decades of unfair trade practices
+- [06:41.580] that have ripped our country off and American workers off.
+- [06:44.300] It has hollowed out our middle class,
+- [06:46.030] it has destroyed our heartland,
+- [06:47.690] and the president is focused on re-shifting our global economy
+- [06:51.030] to ensure that America is once again
+- [06:52.740] the manufacturing superpower of the world.
+- [06:54.690] The Press: So, if they do something today or later
+- [06:56.350] in the week that's a pledge for future activity.
+- [06:58.490] Would that be good enough potentially to alter the policy?
+- [07:01.410] Ms. Leavitt: Again, the president has been looking
+- [07:03.080] at the very unfair trade practices of the past.
+- [07:06.110] Certainly, the president is always up to take a phone call,
+- [07:09.060] always up for a good negotiation,
+- [07:11.090] but he is very much focused on fixing the wrongs of the past
+- [07:14.290] and ensuring that American workers have a fair shake.
+- [07:16.420] The Press: So, if someone calls after tomorrow and says,
+- [07:18.300] "Hey, I'm ready to make a change,"
+- [07:19.730] he'd be open to that?
+- [07:20.970] Ms. Leavitt: The president is always open to taking calls.
+- [07:22.830] The Press: Okay. A question from one of our community members,
+- [07:24.990] Katie Reeds is a schoolteacher in Wisconsin.
+- [07:27.600] She's taught K through eight in public,
+- [07:30.010] independent, private and private schools.
+- [07:31.630] And here's what she wanted me to ask you.
+- [07:34.520] She says, "I see the elimination of the Department of Education
+- [07:36.890] as an excellent first step
+- [07:38.130] in the improvement of our school system.
+- [07:40.330] Do you see any further role the federal government
+- [07:42.390] can take beyond this possibly in promoting the expansion
+- [07:45.290] of voucher programs or reducing the influence
+- [07:47.790] that teachers' unions hold over our schools?"
+- [07:50.350] Ms. Leavitt: Well, first of all,
+- [07:51.560] I want to thank Katie for her service
+- [07:53.330] to our country and our nation's children.
+- [07:56.270] Being a teacher is the most noble profession
+- [07:58.300] that we believe one can have.
+- [08:00.010] And the president said in his remarks
+- [08:02.080] when he signed the executive order
+- [08:04.000] to dismantle the Department of Education,
+- [08:05.710] that he loves our teachers.
+- [08:07.460] And in part, this order is to empower our teachers
+- [08:10.650] to have greater decision-making in the classroom.
+- [08:14.320] Nobody knows our nation's children
+- [08:16.110] and our students better than our teachers
+- [08:17.830] who are with them every single day.
+- [08:19.630] As for the federal government's role,
+- [08:20.930] to get to the heart of Katie's question,
+- [08:23.130] the president has made it clear to Linda McMahon
+- [08:25.910] that we need to find other places
+- [08:27.410] within our federal government
+- [08:28.670] for critical programs regarding education,
+- [08:31.530] Pell Grants, Title IX, lawsuits,
+- [08:34.320] et cetera, civil rights lawsuits,
+- [08:36.530] all of that are critical functions,
+- [08:38.460] special needs programs, nutrition programs,
+- [08:40.840] but there are other places throughout
+- [08:42.150] the federal bureaucracy
+- [08:43.530] where those things can happen and work.
+- [08:45.340] The Department of Education has been a very bloated bureaucracy.
+- [08:48.520] We spent trillions of dollars on this department and for what?
+- [08:51.890] Our children are worse off as far as education goes today
+- [08:55.010] than they were when this department originated.
+- [08:57.050] And that's very concerning to the president.
+- [08:58.630] The Press: The two issues she cited,
+- [08:59.860] are those the priorities for the president,
+- [09:02.550] education choice vouchers
+- [09:04.540] and diminishing the role of teachers' unions?
+- [09:08.230] Ms. Leavitt: The president is very supportive
+- [09:09.670] of both of those things,
+- [09:11.090] particularly when it comes to school choice.
+- [09:13.060] He has said that school choice is the civil rights issue
+- [09:15.690] of our time, and he wants every child,
+- [09:18.020] regardless of ZIP Code, socioeconomic status,
+- [09:20.830] how much money their parents have,
+- [09:22.120] to be able to go to the school of their choosing
+- [09:24.740] that best suits their educational needs.
+- [09:26.590] And he's going to empower state and local leaders
+- [09:28.920] to make those decisions on behalf of our nation's children.
+- [09:31.690] Thanks for being here, Mark. Jeff.
+- [09:34.560] The Press: Just changing subjects for one second.
+- [09:36.090] The administration has expressed a complete confidence
+- [09:39.400] in how all the deportation flights
+- [09:41.530] to El Salvador were conducted.
+- [09:43.990] But now that the administration has conceded
+- [09:46.800] that there was an error of one Salvadoran national,
+- [09:50.110] will there be any reviews conducted?
+- [09:52.210] And does the president express any thoughts on the one error
+- [09:56.570] that was disclosed in court last night?
+- [09:58.910] Ms. Leavitt: Well, first of all,
+- [10:00.120] the error that you are referring to was a clerical error.
+- [10:03.020] It was an administrative error.
+- [10:04.670] The administration maintains the position
+- [10:06.610] that this individual who was deported to El Salvador
+- [10:09.400] and will not be returning to our country
+- [10:11.540] was a member of the brutal and vicious MS-13 gang.
+- [10:16.030] That is fact number one.
+- [10:17.280] Fact number two, we also have credible intelligence
+- [10:20.010] proving that this individual was involved in human trafficking.
+- [10:23.490] And fact number three, this individual was a member,
+- [10:26.310] actually a leader of the brutal MS-13 gang,
+- [10:28.880] which this president has designated
+- [10:30.540] as a foreign terrorist organization.
+- [10:32.910] Fact number four is that foreign terrorists
+- [10:35.450] do not have legal protections
+- [10:36.990] in the United States of America anymore,
+- [10:39.120] and it is within the president's executive authority and power
+- [10:41.620] to deport these heinous individuals
+- [10:43.720] from American communities.
+- [10:44.930] It is a promise he campaigned on.
+- [10:46.620] It is a promise he is keeping.
+- [10:48.200] And every single person in this room
+- [10:50.310] should be grateful for that, considering especially MS-13
+- [10:53.560] is very prevalent and prominent here
+- [10:55.650] in the District of Columbia, in Maryland, and in Virginia.
+- [10:58.660] And the president, the attorney general,
+- [11:00.770] everyone who has been involved in these operations
+- [11:02.740] is focused on eradicating these criminals
+- [11:04.970] and terrorists from our communities.
+- [11:06.460] The Press: The vice president said
+- [11:07.680] he was a convicted member of MS-13.
+- [11:09.750] What evidence is there to back that up?
+- [11:12.480] Ms. Leavitt: There's a lot of evidence.
+- [11:13.730] And the Department of Homeland Security
+- [11:15.450] and ICE have that evidence, and I saw it this morning.
+- [11:17.810] Steve.
+- [11:19.110] The Press: Has the president fully made up his mind
+- [11:20.990] on the level of tariffs to impose tomorrow?
+- [11:23.160] We keep hearing about the 20% flat rate.
+- [11:25.760] Ms. Leavitt: The President said last night,
+- [11:27.120] he has made a decision and a determination.
+- [11:29.240] I was with him in the Oval Office earlier
+- [11:31.600] and he is going to announce that decision tomorrow.
+- [11:33.600] I don't want to get ahead of the president.
+- [11:35.080] This is obviously a very big day.
+- [11:36.970] He's with his trade and tariff team right now,
+- [11:39.340] perfecting it to make sure this is a perfect deal
+- [11:42.370] for the American people and the American worker.
+- [11:44.580] And you will all find out in about 24 hours from now.
+- [11:47.240] The Press: And are the car tariffs
+- [11:48.680] going to go into effect on April 3rd as scheduled?
+- [11:51.570] Ms. Leavitt: Correct. Yes, they will.
+- [11:52.810] The Press: Okay. And last thing, would you like to respond
+- [11:55.300] to the Chinese military drills around Taiwan?
+- [11:58.990] Ms. Leavitt: Yes, I would. As a matter of fact,
+- [12:01.160] the National Security Council briefed me on this this morning,
+- [12:04.160] and they said that the president is emphasizing the importance
+- [12:08.910] of maintaining peace in the Taiwan Strait,
+- [12:11.110] encouraging the peaceful resolution
+- [12:12.580] of these cross-strait issues,
+- [12:14.140] reiterating our opposition to any unilateral attempts
+- [12:17.000] to change the status quo by force or coercion.
+- [12:19.760] That is directly from the National Security Advisor
+- [12:21.820] just for you, Steve Holland of Reuters.
+- [12:23.520] Monica. The Press: Thanks, Karoline.
+- [12:24.770] The Press: Thank you so much, Karoline.
+- [12:26.310] Elon Musk this week revealed that DOGE found
+- [12:29.110] that the Biden administration issued over
+- [12:31.540] two million Social Security numbers to illegal aliens,
+- [12:34.820] found 20 million dead people
+- [12:36.650] marked as a lot in the Social Security system.
+- [12:39.410] Has the White House confirmed these numbers with Elon
+- [12:41.380] and is the White House looking into correcting this?
+- [12:43.830] Ms. Leavitt: I'm not sure about those specific numbers
+- [12:45.760] that Mr. Musk cited.
+- [12:47.440] I can tell you what the Social Security Administration
+- [12:49.840] has said themselves according to an inspector general's report
+- [12:53.270] that was conducted last year
+- [12:54.570] showing there was nearly $80 billion
+- [12:57.060] worth of fraud in this program.
+- [12:58.960] We know for a fact there are individuals
+- [13:01.000] who should not be receiving benefits
+- [13:03.690] on the Social Security rolls.
+- [13:05.050] And this administration is focused on cleaning out
+- [13:07.400] the waste, fraud and abuse in every agency,
+- [13:09.440] but particularly in Social Security
+- [13:11.560] to make it stronger for our tax-paying,
+- [13:13.820] law-abiding citizens who deserve these entitlements and programs.
+- [13:17.260] Because you did bring up DOGE,
+- [13:18.690] I do want to tout the incredible efforts
+- [13:20.980] that have been made at the Environmental Protection Agency.
+- [13:24.020] And Administrator Lee Zeldin is just doing a tremendous job.
+- [13:27.540] Just yesterday and today it will be going into effect,
+- [13:30.050] he announced that taxpayers will be saved $8 million
+- [13:33.750] in annual lease costs
+- [13:35.530] by moving staff out of the 323,000 square feet of space
+- [13:40.570] that the EPA currently occupies, which is completely unnecessary.
+- [13:45.180] Yesterday, Administrator Zeldin also announced
+- [13:47.330] he will be shutting down a museum
+- [13:49.720] that the Biden administration built to tell a selective story
+- [13:53.740] about the EPA's history and climate change.
+- [13:56.500] It was a real pat on the back to President Biden.
+- [13:59.470] And guess how much American taxpayers paid for it?
+- [14:02.350] $4 million for this museum
+- [14:05.010] that I think only a thousand visitors saw last year alone.
+- [14:08.820] And it will cost American taxpayers
+- [14:10.510] $600,000 per year to operate this museum.
+- [14:14.560] Well, it's not going to exist anymore.
+- [14:16.360] We're going to save taxpayers those critical funds.
+- [14:19.000] And Administrator Zeldin is very proud to announce that.
+- [14:22.990] And just at EPA alone and the cuts that they have made,
+- [14:27.550] they've saved taxpayers more than $22 billion
+- [14:30.980] in wasteful grants and spending. Peter.
+- [14:33.460] The Press: Thank you, Karoline.
+- [14:34.800] When the president goes down to Florida on the weekends,
+- [14:38.660] there are so many retired folks down in Florida.
+- [14:41.320] Does he ever hear from any retired Americans
+- [14:44.810] who are stressed about these wild swings in the stock market
+- [14:49.090] because of the tariff uncertainty,
+- [14:51.850] and they're sitting there on fixed income
+- [14:53.860] or living off a 401K
+- [14:55.580] and they don't know how much money is going to be left?
+- [14:59.240] Ms. Leavitt: Well, certainly they are legitimate concerns,
+- [15:01.440] and the president takes those concerns very seriously,
+- [15:04.340] and he's addressing them every single day.
+- [15:06.570] Tomorrow's announcement is to protect future generations
+- [15:10.030] of the senior citizens you mentioned.
+- [15:11.710] It's for their kids and their grandkids,
+- [15:13.730] to ensure that there are jobs here in the United States
+- [15:16.350] of America for their children to live the American dream,
+- [15:19.800] just like they presumably did.
+- [15:21.900] And as for their worries about their 401Ks,
+- [15:24.860] their social security, I just addressed social security,
+- [15:27.000] this president is always going to protect it
+- [15:29.230] for our taxpaying senior citizens.
+- [15:31.220] As for their 401Ks,
+- [15:32.470] look at what President Trump did for you in his first term.
+- [15:35.180] He is working on implementing that economic formula
+- [15:38.320] every single day by lowering inflation,
+- [15:40.530] lowering energy prices, massive deregulatory efforts,
+- [15:43.700] while simultaneously effectively implementing tariffs,
+- [15:46.430] and they'll hear more about that announcement tomorrow.
+- [15:48.220] The Press: And you said that the president right now
+- [15:50.040] is with the trade and tariff team.
+- [15:52.010] They are very confident that this is all going to work.
+- [15:55.570] But what if they're wrong?
+- [15:57.230] Ms. Leavitt: They're not going to be wrong.
+- [15:58.510] It is going to work.
+- [15:59.910] The president has a brilliant team of advisors
+- [16:02.220] who have been studying these issues for decades.
+- [16:06.120] We are focused on restoring the golden age of America
+- [16:09.000] and making America manufacturing superpower.
+- [16:11.480] And again, Peter, I would point you to the investments
+- [16:13.490] that have already trickled into this country,
+- [16:15.410] and the president hasn't even made
+- [16:16.680] his tariff announcement yet tomorrow.
+- [16:18.550] There have been billions of dollars
+- [16:20.220] in private investments from around the world
+- [16:22.350] pouring into American communities.
+- [16:24.530] What does that look like for those watching at home,
+- [16:26.590] for the people you mentioned worried
+- [16:28.270] about their own economic circumstances?
+- [16:30.670] It means more jobs in your communities,
+- [16:32.540] which means more money, more investments,
+- [16:34.650] more money in your pocket.
+- [16:36.180] That's what the president is committed to.
+- [16:37.800] And I would be remiss if I didn't mention
+- [16:39.850] the president's commitment to tax cuts,
+- [16:42.300] which we are counting on Congress to do,
+- [16:43.800] especially on social security.
+- [16:45.100] The Press: And one more.
+- [16:46.350] Ms. Leavitt: Sure.
+- [16:47.640] The Press: Are the special elections today
+- [16:49.320] a referendum on the president?
+- [16:52.220] Ms. Leavitt: First of all, as you know,
+- [16:53.490] I'm a government employee now,
+- [16:55.490] so I'm not very much allowed to comment on elections
+- [16:59.040] that are taking place. That's something to get used to,
+- [17:01.230] having just been on the campaign trail for quite some time.
+- [17:04.190] But the president is the leader of the America
+- [17:06.820] First movement and the MAGA movement,
+- [17:08.990] and that was made very clear on November the 5th
+- [17:12.010] when he received nearly 80 million votes.
+- [17:14.170] I could also say that it is the constitutional
+- [17:16.820] right of every law-abiding American in these places
+- [17:19.910] where these elections are being held to vote,
+- [17:22.660] and every American should exercise
+- [17:26.160] their constitutional rights. Sure.
+- [17:27.590] The Press: Thanks, Karoline.
+- [17:28.790] A few questions about this deportation case.
+- [17:31.290] First, I wanted to clarify something
+- [17:32.750] that you said to Jeff a few minutes ago.
+- [17:34.860] You said you'd seen evidence
+- [17:36.510] that this man was a convicted gang member.
+- [17:40.480] In what court was he convicted, and for what?
+- [17:43.890] Ms. Leavitt: This individual was an MS-13 ringleader.
+- [17:46.860] This individual was also engaged in human trafficking.
+- [17:49.930] And I'm glad you brought up this point again
+- [17:51.780] because I would like to point out that
+- [17:53.520] if you just saw the headline from the insane,
+- [17:57.070] failing Atlantic Magazine this morning,
+- [17:59.470] you would think this individual was father of the year
+- [18:02.470] living in Maryland, living a peaceful life,
+- [18:04.530] when that couldn't be further from the truth.
+- [18:06.940] They didn't even mention in the title of that article
+- [18:09.920] or even in the first paragraph
+- [18:11.390] that this individual is an illegal criminal
+- [18:13.840] who broke our nation's immigration laws,
+- [18:15.950] he is a leader in the brutal MS-13 gang,
+- [18:19.570] and he is involved in human trafficking.
+- [18:21.320] And now MS-13 is a designated foreign terrorist organization.
+- [18:24.990] Foreign terrorists have no legal protections
+- [18:26.880] in the United States of America,
+- [18:28.420] and this administration is going to continue
+- [18:30.720] to deport foreign terrorists and illegal criminals
+- [18:33.170] from our nation's interior.
+- [18:34.390] The Press: But a judge ordered
+- [18:35.600] that he should remain in this country,
+- [18:37.840] so are you saying that it is okay to ignore a judge's ruling
+- [18:41.320] if you don't like it?
+- [18:42.560] Ms. Leavitt: Who does that judge work for?
+- [18:43.920] The Press: He's an immigration judge.
+- [18:45.120] Ms. Leavitt: It was an immigration judge who works
+- [18:46.520] for the Department of Justice
+- [18:47.890] at the direction of the attorney general of the United States,
+- [18:50.400] whose name is Pam Bondi,
+- [18:51.970] who has committed to eradicating MS-13
+- [18:54.570] from our nation's interior.
+- [18:56.080] And let me tell you why we've made this commitment.
+- [18:58.050] MS-13, may I remind each and every one of you,
+- [19:00.960] is a brutal and vicious gang.
+- [19:03.410] They raped and strangled a 20-year-old autistic woman
+- [19:06.060] to death in Maryland; they hacked four people to death
+- [19:08.610] with machetes in a park on Long Island;
+- [19:10.770] they have kidnapped, sexually tortured,
+- [19:12.640] and shot a teenage girl in Texas after she insulted them,
+- [19:16.570] allegedly; killed and mutilated a 17-year-old girl in Virginia,
+- [19:20.260] stabbing him 16 times and cutting off his hands;
+- [19:24.400] they beheaded and cut out the heart of a man
+- [19:26.570] in Washington DC; they raped and murdered
+- [19:29.390] a 13-year-old girl in California;
+- [19:31.570] they sex-trafficked a slew of young girls,
+- [19:33.920] including one who was just 12 years old;
+- [19:36.380] raped an 11-year-old girl in Brooklyn
+- [19:38.350] while her brother was in the room;
+- [19:40.090] sex-trafficked a 13-year-old in Maryland and Virginia,
+- [19:43.420] miles away from this White House,
+- [19:44.960] even beating her 26 times on her backside with a baseball bat;
+- [19:48.680] pressured homeless New Yorkers
+- [19:50.050] to undergo unnecessary surgeries,
+- [19:53.800] such as spinal fusion,
+- [19:55.040] in order to bolster their fraudulent lawsuits.
+- [19:57.150] These are vicious criminals. This is a vicious gang.
+- [20:01.360] And I wish that the media would spend
+- [20:02.940] just a second of the same time you have spent
+- [20:05.710] trying to litigate each and every individual of this gang
+- [20:08.400] who has been deported from our country
+- [20:10.140] as the innocent Americans whose lives have been lost
+- [20:12.580] at the hands of these brutal criminals.
+- [20:14.440] We maintain our position and very strongly so.
+- [20:16.530] Jennifer.
+- [20:17.810] The Press: One more on the tariffs.
+- [20:19.230] Can you say what the latest thinking is on the start date?
+- [20:22.230] I know you were just in the Oval.
+- [20:24.010] Are they all going to take effect this week
+- [20:25.880] on the reciprocal tariffs?
+- [20:27.290] And whenever they start, is that enough time for companies
+- [20:30.360] and everyone involved to adjust to that start date?
+- [20:33.230] Ms. Leavitt: My understanding is that the tariff announcement
+- [20:35.190] will come tomorrow.
+- [20:36.510] They will be effective immediately.
+- [20:38.720] And the president has been teasing this
+- [20:40.330] for quite some time, as you know.
+- [20:41.600] He's talked a lot about April
+- [20:42.860] 2nd as Liberation Day in America.
+- [20:45.090] It would be taking place today, if not for April Fool's Day,
+- [20:48.190] but tomorrow will be the day,
+- [20:49.670] and he's been talking about it for a while.
+- [20:51.340] And as a result, you've seen these companies
+- [20:53.440] make commitments to investing right here in the United States.
+- [20:55.800] Jasmine.
+- [20:57.130] The Press: Thank you so much.
+- [20:58.340] I wonder, back on tariffs, what, if any, market indicators
+- [21:02.480] is the White House looking for to see
+- [21:05.040] if this tariffs plan is successful down the line?
+- [21:08.060] Ms. Leavitt: Well, look, the president has been asked
+- [21:09.590] and answered this question about the stock market
+- [21:11.440] and whether he's watching it. And I've said, and he has said,
+- [21:14.380] the market is a snapshot in time.
+- [21:15.840] Yesterday, Dow futures were up.
+- [21:17.980] There's been a lot of talk about the market,
+- [21:20.020] and it was up yesterday.
+- [21:21.830] Look, the president wants to ensure that all Americans
+- [21:24.930] make out well, particularly Main Street,
+- [21:27.180] that's the focus of these tariffs,
+- [21:28.530] but as I've said repeatedly,
+- [21:30.160] just like they were in his first term,
+- [21:33.150] Wall Street will be just fine. Shelby.
+- [21:35.010] The Press: Thanks. A bipartisan pair of senators
+- [21:37.110] sent a letter to the president today
+- [21:38.750] arguing that the recent strikes in Yemen
+- [21:41.070] are emboldening the Houthis
+- [21:42.690] and saying that Congress has not authorized war against them.
+- [21:46.200] Is the administration planning to consult with Congress
+- [21:48.590] at some point or going forward regarding the strikes,
+- [21:51.660] and any response on the letter?
+- [21:53.320] Ms. Leavitt: Well, I would
+- [21:54.580] absolutely reject Congress's claims.
+- [21:56.900] Who made those claims in Congress?
+- [21:59.180] The Press: Senator Jeff Merkley and Rand Paul.
+- [22:01.040] Ms. Leavitt: Okay.
+- [22:02.260] Well, I would absolutely reject those claims.
+- [22:04.210] These Houthi strikes have been incredibly successful.
+- [22:07.060] Last time I was at this podium,
+- [22:08.410] there were more than 100 successful strikes.
+- [22:10.640] There have now been over 200 successful
+- [22:12.840] strikes against the Houthis.
+- [22:14.320] Iran is incredibly weakened as a result of these attacks,
+- [22:17.850] and we have seen they've taken out Houthi leaders,
+- [22:20.460] they've taken out critical members
+- [22:22.450] who were launching strikes on naval ships
+- [22:24.510] and on commercial vessels, and this operation will not stop
+- [22:27.440] until the freedom of navigation in this region is restored,
+- [22:30.560] which is a critical principle.
+- [22:31.770] And this president stands behind our defense department,
+- [22:34.420] who's doing a tremendous job.
+- [22:37.060] The Press: Is the White House going to confer
+- [22:38.470] with Congress going forward on this?
+- [22:40.110] Ms. Leavitt: I would have to ask our team here
+- [22:41.500] at the White House,
+- [22:42.770] but the president is well within his authority,
+- [22:44.660] as is the secretary of defense.
+- [22:46.420] Again, these are defensive strikes.
+- [22:47.790] The Houthis have been launching attacks
+- [22:49.690] on US naval vessels and commercial ships
+- [22:52.480] for quite some time. Go ahead.
+- [22:55.930] The Press: Karoline, the pause
+- [22:57.340] on the Canadian and Mexican tariffs,
+- [22:59.280] the fentanyl tariffs, that's set to expire tomorrow,
+- [23:02.000] is the president considering extending that pause?
+- [23:04.410] Ms. Leavitt: Look, I will let the president
+- [23:05.620] speak on the specifics of the tariffs tomorrow.
+- [23:08.280] But as for fentanyl, we have seen this
+- [23:10.100] has certainly caused a national security crisis
+- [23:12.420] here in the United States.
+- [23:13.730] Fentanyl continues to be the number one killer
+- [23:16.180] of young people in this country,
+- [23:17.610] and the president is very much focused on that.
+- [23:19.720] Deanna.
+- [23:20.920] The Press: Thank you, Karoline.
+- [23:22.180] The president recently signed an executive order
+- [23:24.770] on making DC safe and beautiful.
+- [23:27.490] On the campaign trail he talked about
+- [23:29.170] making New York great again. Does he have any plans
+- [23:32.920] on establishing a similar task force?
+- [23:35.030] Has he been pressuring Governor Hochul
+- [23:36.810] in any way in his conversations about New York
+- [23:39.600] and lowering in crime.
+- [23:40.890] Ms. Leavitt: Well, he has been in correspondence
+- [23:42.800] with Governor Hochul quite a bit on the issue of crime,
+- [23:45.800] also on the issue of congestion pricing
+- [23:48.190] and so many other issues that are facing New Yorkers.
+- [23:50.720] And he wants New York to clean up their streets
+- [23:52.980] just as he does here in Washington DC.
+- [23:55.670] He also speaks to Mayor Adams as well.
+- [23:58.200] So he's engaged with state
+- [23:59.510] and local leaders across the entire country
+- [24:01.360] to ensure they're doing their part
+- [24:03.120] to help American citizens in each and every state,
+- [24:05.650] regardless of if it's a red state or a blue state.
+- [24:08.230] The Press: And then a question on Russia.
+- [24:09.970] Yesterday, the Russian government said
+- [24:11.470] that their new goal is 160,000 conscripts for the war.
+- [24:16.510] Has the President seen that number
+- [24:18.460] and does he have any response
+- [24:19.860] given his recent conversations on peace talks?
+- [24:22.170] Ms. Leavitt: Well, I can tell you
+- [24:23.460] what the President said last night,
+- [24:25.530] and that is he is frustrated with leaders
+- [24:28.430] on both sides of this war. He wants this war to end.
+- [24:31.900] There are men that are dying on both sides,
+- [24:34.840] and it's been going on for far too long.
+- [24:37.060] Our team continues to be engaged with the Russians
+- [24:39.490] as we are with the Ukrainians,
+- [24:41.250] and the President continues to be very,
+- [24:42.930] very much engaged on this topic every single day.
+- [24:45.430] The Press: Karoline, Karoline, Karoline.
+- [24:46.660] Ms. Leavitt: Sure.
+- [24:47.940] The Press: Karoline, The President,
+- [24:50.960] said over the weekend that he couldn't care less
+- [24:53.820] if prices went up on foreign cars
+- [24:56.410] because people would buy more American cars.
+- [24:58.220] There's been a consensus from a lot of economists
+- [25:00.840] that these tariffs could raise prices on other goods as well.
+- [25:04.100] Is the President comfortable with Americans on Main Street
+- [25:07.500] paying more because of these tariffs?
+- [25:09.350] Ms. Leavitt: The President is doing everything he can,
+- [25:11.180] and this entire administration is doing everything
+- [25:14.250] we can to bring down the cost of living in this country,
+- [25:17.690] an inflation mess that was fueled
+- [25:19.420] by the previous administration's reckless
+- [25:21.220] spending over burdensome regulations
+- [25:23.520] that this administration is focused
+- [25:25.130] on slashing every single day. I just read you a statistic
+- [25:28.400] just from the Environmental Aid Protective Agency alone,
+- [25:31.350] we're saving taxpayers money
+- [25:32.730] that's ultimately going to drive down inflation,
+- [25:34.690] and we're unleashing the might of our energy industry,
+- [25:37.420] which will bring down prices as well.
+- [25:39.380] To the heart of your question,
+- [25:40.760] because this is very important to the American people,
+- [25:43.430] you should trust what this President did
+- [25:45.030] for you in his first term.
+- [25:46.250] He effectively utilized tariffs while driving down inflation.
+- [25:49.360] It was a record low 1.4% when he left office,
+- [25:52.400] and he's focused on getting back to that.
+- [25:54.270] It's unfortunate the previous administration
+- [25:56.280] left us in this mess. Sure.
+- [25:59.380] The Press: Representative Anna Paulina Luna
+- [26:02.300] left the Freedom Caucus over there,
+- [26:03.960] lack of support for her bill that would allow new parents
+- [26:06.600] to proxy vote around 12 weeks around the birth of their baby.
+- [26:09.780] Does the President support that bill?
+- [26:11.250] Ms. Leavitt: I'm not sure.
+- [26:12.560] I haven't actually talked to the president about that bill,
+- [26:14.760] but I certainly can and can get a take on
+- [26:16.970] if he supports it or not.
+- [26:18.180] The Press: Thank you. And one more.
+- [26:19.380] The DC Circuit ruled last week
+- [26:24.810] that the President can fire hold over Biden
+- [26:26.870] appointees of independent agencies.
+- [26:29.000] Will this ruling empower President Trump
+- [26:31.070] to dismiss more federal employees?
+- [26:33.170] Ms. Leavitt: Well, the President has given
+- [26:35.110] the responsibility
+- [26:36.340] to his cabinet secretaries to hire and fire
+- [26:40.220] at their respective agencies, and they reserve that right.
+- [26:42.960] You saw the Secretary of Health and Human Services
+- [26:45.360] announced more layoffs today.
+- [26:47.360] This is all part of the administration's effort
+- [26:49.660] for a mass reduction in force
+- [26:51.380] in the federal bureaucracy here in Washington DC
+- [26:54.250] to save American taxpayers' money.
+- [26:56.620] As for agencies within the President's executive authority,
+- [27:01.780] the President retains that right.
+- [27:03.280] And we've seen there have been bureaucrats
+- [27:05.230] at some of these agencies
+- [27:06.940] that have been trying to act independent.
+- [27:08.530] They need to remember who they work for.
+- [27:09.980] It's the executive of the executive branch.
+- [27:12.240] You look at the United States Institute of Peace, for example,
+- [27:15.370] there was a little bit of a standoff with bureaucrats
+- [27:18.100] over there who didn't want to realize who they work for,
+- [27:20.610] and that is Donald Trump.
+- [27:22.060] And President Trump is focused on streamlining these agencies
+- [27:24.810] to save American taxpayers' money,
+- [27:27.220] and he has every right to do that.
+- [27:28.660] The Press: Karoline? Karoline?
+- [27:29.930] Ms. Leavitt: Sure, go ahead.
+- [27:31.150] The Press: Thanks, Karoline.
+- [27:32.550] In Gaza, the bodies of 15 rescuers
+- [27:35.280] have been found in their ambulances
+- [27:37.580] where they were apparently killed by Israeli forces.
+- [27:40.990] I'm just wondering if the White House
+- [27:43.040] is going to be calling on Israel to investigate that
+- [27:45.310] and to try and avoid similar casualties
+- [27:47.690] involving rescue workers in future?
+- [27:50.670] Ms. Leavitt: Well, as for the specific situation
+- [27:52.050] you just mentioned,
+- [27:53.350] I'll talk to the President about it
+- [27:54.800] and our national security team.
+- [27:56.360] What I can tell you is what I've spoken with President on,
+- [27:59.470] he very much remains committed to backing Israel.
+- [28:02.320] And it was only because of this President
+- [28:04.020] and his team's leadership
+- [28:05.260] that we had a temporary ceasefire in Gaza
+- [28:07.080] that we were able to bring many hostages home.
+- [28:09.940] And the President made it very clear to Hamas,
+- [28:12.340] you get the hostages out, all of them,
+- [28:14.090] or there will be hell to pay.
+- [28:15.450] And Hamas is certainly witnessing what it feels like
+- [28:19.250] for all hell to be paid.
+- [28:20.470] And the President supports Israel's right to defend itself.
+- [28:22.910] The Press: Progress at all on a ceasefire at the moment,
+- [28:24.800] as far as the President's concern?
+- [28:26.490] Ms. Leavitt: The President and his team
+- [28:27.750] continue to be engaged on this every single day.
+- [28:29.400] The Press: Karoline, Karoline.
+- [28:30.610] Ms. Leavitt: Sure. The Press: Thank you, Karoline.
+- [28:31.850] Ms. Leavitt: Go Ahead, [inaudible].
+- [28:33.090] The Press: So I'm just wondering related to that,
+- [28:35.100] if you have an approximate date
+- [28:37.030] for the President's first foreign trip?
+- [28:38.540] I think there was a little confusion yesterday
+- [28:40.250] about what month he was talking about,
+- [28:41.740] and then will he need a ceasefire
+- [28:45.690] to be in place or closer
+- [28:47.600] either in Gaza or in Ukraine before that takes place?
+- [28:51.100] Ms. Leavitt: The President will be heading
+- [28:52.430] to Saudi Arabia in May.
+- [28:54.290] As for specific dates and details,
+- [28:56.050] we will be reading those out to you
+- [28:57.940] as soon as we possibly can.
+- [28:59.240] I know our teams are working on the details of that trip.
+- [29:02.630] And then again, as for ceasefire,
+- [29:04.330] the President's made it clear that's what he wants to see,
+- [29:06.440] and Russia and Ukraine
+- [29:07.680] and his team continues to be engaged on it every day.
+- [29:09.630] Kelly.
+- [29:10.860] The Press: Signal, you said case closed yesterday.
+- [29:15.460] As that case was closed, do you have anything
+- [29:17.650] that you can share about what was learned,
+- [29:20.410] how this can be avoided in the future,
+- [29:22.830] any sort of findings from that investigation?
+- [29:25.280] Ms. Leavitt: The case is closed and the President
+- [29:26.760] continues to have confidence in his National Security advisor.
+- [29:28.990] Karoline? Yes, Kelly.
+- [29:30.280] The Press: Thanks, Karoline.
+- [29:31.490] Ms. Leavitt: Kelly. Sorry, Ed.
+- [29:32.700] The Press: So the President has said-
+- [29:33.910] Ms. Leavitt: And I'll come to you after.
+- [29:35.180] The Press: The President said-
+- [29:36.390] Ms. Leavitt: I'm glad you're so eager to ask a question.
+- [29:38.100] The Press: It's Liberation Day. Ms. Leavitt: Yes, it is.
+- [29:39.390] The Press: Karoline, the President has said foreign-
+- [29:40.670] Ms. Leavitt: Tomorrow. The Press: --
+- [29:41.870] countries and companies will eat the cost of tariffs.
+- [29:44.130] In his speech on Inauguration day, he said,
+- [29:46.690] "Instead of taxing our citizens to enrich other countries,
+- [29:49.800] we'll tariff and tax foreign countries
+- [29:51.570] to enrich our citizens." So then why did he have to tell
+- [29:54.380] the domestic automakers not to raise prices?
+- [29:56.960] Ms. Leavitt: Well, that was
+- [29:58.270] a private conversation that was had.
+- [29:59.880] I'm not sure if that comment was made or was not made.
+- [30:03.280] But as for what the President said
+- [30:04.830] in his Inauguration day speech, he's absolutely correct.
+- [30:07.770] A tariff will be a tax on these foreign nations,
+- [30:10.550] these foreign companies,
+- [30:11.750] and if they want to be absolved of that tariff,
+- [30:15.080] then they can come here to the United States of America
+- [30:17.100] to do business.
+- [30:18.320] Bring their jobs here. Edward, go ahead.
+- [30:20.340] The Press: Thank you.
+- [30:21.620] So Canadians have been negotiating
+- [30:23.320] with the Commerce Secretary over the trade, the tariffs.
+- [30:26.990] How many companies are mutually talking with the US to…
+- [30:30.150] Or countries are mutually talking with the US
+- [30:32.090] to lower tariffs?
+- [30:33.530] Ms. Leavitt: I don't have a specific number,
+- [30:34.780] but I can tell you there have been quite a few countries
+- [30:36.920] that have called the President
+- [30:38.280] and have called his team in discussion about these tariffs.
+- [30:41.720] But again, there's one country the President cares most about,
+- [30:44.630] and it's the United States of America
+- [30:46.080] and doing what's best for the people
+- [30:47.700] who elected him to this office to restore their jobs,
+- [30:50.070] their wealth, and their prosperity.
+- [30:51.650] I'm looking at the clock. I have a hard out today.
+- [30:53.320] The Press: What do you use [inaudible].
+- [30:54.520] Ms. Leavitt: Excuse me, I have a hard out today
+- [30:55.890] because I'm actually heading over to the State Department
+- [30:57.820] with the First Lady of the United States.
+- [31:00.090] She will be delivering remarks at one o'clock this afternoon
+- [31:02.610] at the 19th International Women of Courage Awards
+- [31:05.150] ceremony with our great Secretary of State,
+- [31:07.440] Marco Rubio that starts at one.
+- [31:09.460] This is the fifth year Mrs. Trump is participating
+- [31:12.230] and standing with brave women leaders
+- [31:13.810] who embody American values abroad.
+- [31:15.940] And the First Lady in her remarks today
+- [31:18.130] will highlight the profound connection
+- [31:19.690] between the love and courage
+- [31:21.060] that will be shown by this year's honorees.
+- [31:23.260] I encourage everybody to tune in at one o'clock
+- [31:25.850] and then we'll see you all tomorrow for Liberation Day.
+- [31:28.070] Thanks, guys.

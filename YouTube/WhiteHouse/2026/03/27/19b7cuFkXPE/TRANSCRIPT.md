@@ -1,0 +1,1619 @@
+<!-- source: https://www.youtube.com/watch?v=19b7cuFkXPE -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 19b7cuFkXPE -->
+<!-- date_published: 2026-03-27T22:55:44+00:00 -->
+<!-- date_accessed: 2026-06-02T02:35:50.778417+00:00 -->
+
+# Transcript: President Trump Delivers Remarks at the Future Investment Initiative
+
+- [00:04.930] Richard Attias: It's my great honor,
+- [00:06.740] on behalf of the FII Institute,
+- [00:09.250] to welcome back a leader who continues to shape
+- [00:13.490] the global economic and political landscape.
+- [00:18.140] For the second consecutive year at FIA Miami,
+- [00:23.210] we are privileged to host the 45th and 47th President
+- [00:29.120] of the United States of America, Donald J. Trump.
+- [00:33.610] ♪ ("God Bless the USA" by Lee Greenwood) ♪
+- [02:57.680] The President: Thank you very much.
+- [02:58.970] A lot of rich people in this audience.
+- [03:00.900] I'm looking left, right, center,
+- [03:03.310] all the way in the back, they're rich too.
+- [03:06.680] But I'm thrilled to be back with so many friends and partners,
+- [03:09.750] leaders and innovators here at the Future
+- [03:12.770] Investment Initiative.
+- [03:15.300] And it's really a great group of people,
+- [03:17.790] very smart group of people.
+- [03:19.280] They know what's happening in the world.
+- [03:21.950] It's my second address to the conference
+- [03:24.880] as president of the United States,
+- [03:26.750] and it's my honor to be here. Thank you very much.
+- [03:30.360] As you know, we're gathered at a moment of bold action,
+- [03:33.510] a historic decision to make America
+- [03:36.190] and our allies safer and stronger,
+- [03:38.950] more prosperous, more successful than ever before,
+- [03:42.170] and that's what's happening.
+- [03:44.020] Tonight, we're closer than ever to the rise of the Middle East
+- [03:50.280] that is finally free at last from Iranian terror,
+- [03:54.150] aggression and nuclear blackmail.
+- [03:56.320] That's what's happened.
+- [03:58.000] It was a nuclear blackmail for years and years,
+- [04:01.860] and beyond that. It was blackmail, period.
+- [04:04.530] Under my leadership,
+- [04:06.530] America is ending the threat posed by this radical regime,
+- [04:11.780] decimating Iran's capabilities with Operation Epic Fury,
+- [04:16.460] something that nobody's ever seen anything quite like it.
+- [04:19.940] We have the most powerful military in the world by far.
+- [04:22.530] I built it in my first term. Remember, I said $1 trillion.
+- [04:26.590] They all said, what do you mean, $1 trillion.
+- [04:28.280] $1 trillion every year, another trillion the next,
+- [04:32.590] another trillion. We have the best people.
+- [04:36.090] We have by far the best equipment.
+- [04:38.460] We have weapons that nobody's ever seen before.
+- [04:41.670] We have weapons that nobody even knows about,
+- [04:44.350] except for a few of us.
+- [04:46.300] For 47 years, Iran has been known
+- [04:48.320] as the bully of the Middle East,
+- [04:50.680] but they are not the bully any longer.
+- [04:54.140] They're on the run.
+- [05:02.420] Last June, America's armed forces
+- [05:04.460] obliterated Iran's key nuclear facilities
+- [05:08.030] in one of the most spectacular military actions of all time.
+- [05:11.540] Nobody has ever seen anything like it.
+- [05:13.810] In the dead of night, no moon, 1:00 in the morning, we went in.
+- [05:20.350] It was called Operation Midnight Hammer
+- [05:24.160] and every single one of those bombs
+- [05:27.450] hit their mark, air shafts.
+- [05:29.480] They will never build an air shaft again,
+- [05:31.100] I promise you that.
+- [05:32.930] They went right down that granite mountain
+- [05:34.920] through air shafts,
+- [05:36.730] most incredible technology you've ever seen,
+- [05:38.710] that a thing like that.
+- [05:39.970] And it was decimation. It was obliteration.
+- [05:43.560] One of the networks said, well, maybe it wasn't that bad.
+- [05:45.430] It was that bad.
+- [05:46.650] It turned out to be even more than we thought.
+- [05:51.650] But after that attack, the Iranian lunatics
+- [05:55.050] refused to cease their pursuit of nuclear weapons.
+- [05:58.080] And I have to say, before that,
+- [06:00.220] Barack Hussein Obama -- did you ever hear of him?
+- [06:02.310] Barack Hussein Obama, he had the Iran nuclear deal.
+- [06:05.660] He went to Iran. He paid him --
+- [06:07.820] remember, he sent two 757, Boeing 757 jetliners.
+- [06:13.470] They took the seats out and they piled it with cash,
+- [06:16.990] like $1.7 billion of cash.
+- [06:19.820] That's when I realized the president is very powerful.
+- [06:23.110] The presidency is a very powerful thing,
+- [06:25.750] when you can do that. I haven't done that yet.
+- [06:27.620] I haven't found a reason to do that yet,
+- [06:29.410] but that's big, $1.7 billion in cash.
+- [06:32.650] You know, there wasn't a bank in DC, Virginia or Maryland
+- [06:36.330] that had any money after that disaster.
+- [06:40.250] But they sent the cash to Iran. But more importantly, they --
+- [06:44.760] they signed an agreement, the Iran nuclear deal.
+- [06:48.040] Which if I didn't terminate it in my first term --
+- [06:50.270] I terminated it almost immediately.
+- [06:52.890] If I didn't terminate it,
+- [06:54.170] they would have had a nuclear weapon long ago,
+- [06:56.540] and they would have used it on the Middle East --
+- [06:58.200] Israel and the Middle East.
+- [07:00.050] And you know the Middle East,
+- [07:01.370] because when you look at all the missiles that got fired,
+- [07:04.640] UAE had 1,500 missiles shot at it.
+- [07:07.050] They didn't think they were going to have any.
+- [07:10.220] Saudi Arabia didn't expect to have --
+- [07:12.100] I mean, we have the most powerful Saudis.
+- [07:15.530] Oh, yes, you are so powerful.
+- [07:18.090] But Yasir, you didn't expect any missiles going to Saudi Arabia.
+- [07:21.150] They didn't expect them in Qatar.
+- [07:22.860] They didn't expect them in Kuwait, in Bahrain.
+- [07:27.200] The missiles rained down on you.
+- [07:28.830] They were going to hit you with nuclear,
+- [07:30.580] whatever they had, but we stopped it.
+- [07:33.120] We stopped it. We stopped it with him.
+- [07:35.660] And then it was a big moment also in my first administration
+- [07:39.860] when I took out Soleimani.
+- [07:41.640] And a lot of people think that might have been
+- [07:43.110] the biggest thing of all, because he was a mad genius.
+- [07:46.390] He was a vicious, horrible human being
+- [07:50.020] but he was a great general and a great leader,
+- [07:52.360] if you call --
+- [07:53.690] if you define a leader in a certain way,
+- [07:55.650] very, very powerful leader.
+- [07:58.570] In fact, he was so powerful that I really think
+- [08:00.730] that the leadership of Iran was extremely happy
+- [08:05.550] when I took him out, but they don't say that.
+- [08:07.310] But nobody's going to be asking them anymore
+- [08:09.090] because they're not here either.
+- [08:12.980] But getting the termination
+- [08:17.000] and terminating the Iran nuclear deal
+- [08:20.250] that was done by Biden and Obama --
+- [08:24.100] I would say mostly Obama.
+- [08:25.330] Actually, I don't think Biden knew where he was then, too.
+- [08:29.100] He had no idea. You said to him, the Iran nuclear -- what's that?
+- [08:33.880] But that was four years of hell
+- [08:37.220] we had with this guy as our leader, I'll tell you.
+- [08:39.850] And then we hit him with the B-2 bomber,
+- [08:41.300] so we did it twice.
+- [08:42.860] But if they would have had a nuclear weapon,
+- [08:44.530] it would have -- a whole big deal.
+- [08:45.870] And I wouldn't be here right now and probably,
+- [08:47.600] you guys wouldn't be too happy.
+- [08:49.660] You might be in an area --
+- [08:51.660] who knows where you would have been,
+- [08:53.190] but we did it twice.
+- [08:55.150] And I think -- I really believe we saved the Middle East.
+- [08:57.500] We saved not just Israel, we saved the Middle East
+- [09:01.850] and it was proven by all those rockets
+- [09:03.620] that fired down upon you. Saudi Arabia got hit a lot.
+- [09:07.710] You all got hit and nobody expected any missiles
+- [09:10.750] to be wasted.
+- [09:12.770] You would have thought they were only going at Israel.
+- [09:14.760] They weren't. As president of the United States,
+- [09:17.060] I would never allow the world's number one state sponsor
+- [09:19.940] of terror to obtain a nuclear weapon.
+- [09:21.780] I said that for a long time, and I didn't.
+- [09:25.860] To defend America and our allies over the past 27 days,
+- [09:29.510] the US armed forces, most powerful in the world,
+- [09:32.310] have been annihilating Iran's military capacity
+- [09:35.450] with force, precision, skill like the world has never seen.
+- [09:41.230] It was violence, actually, really violence.
+- [09:46.270] We're crushing Iran's -- currently, as we speak,
+- [09:48.750] I just looked, we had another big day.
+- [09:50.510] We hit them. They don't know what's happening.
+- [09:53.910] Remember this, they lied about three days ago.
+- [09:57.420] I said, yeah, we're negotiating with --
+- [09:58.950] they said, we are not negotiating.
+- [10:01.850] They're being hit so hard anybody would be negotiating.
+- [10:06.890] They are negotiating. They're begging to make a deal.
+- [10:09.590] They're begging to make a deal.
+- [10:11.000] Turned out I was right, they were negotiating,
+- [10:13.030] which they admitted two days later.
+- [10:16.030] And in order to make up for their misstatement,
+- [10:21.970] they said we're going to send you eight ships of oil
+- [10:25.900] and the following day I saw and this is two days ago
+- [10:28.580] I saw in one of the networks, very strange
+- [10:31.860] there are eight ships of oil coming out of Iran
+- [10:36.020] and then they actually said, we're going to add an extra two
+- [10:39.480] and they added an extra two so we had ten ships
+- [10:41.910] and then people realized we were actually negotiating.
+- [10:44.320] We're negotiating now and be great if we could do something,
+- [10:47.600] but they have to open it up.
+- [10:48.810] They have to open up the Strait of Trump --
+- [10:53.330] I mean, Hormuz.
+- [10:57.830] Excuse me, for -- I'm so sorry, such a terrible mistake.
+- [11:03.410] The fake news will say he accidentally said,
+- [11:05.670] now there's no accidents with me.
+- [11:08.310] Not too many.
+- [11:10.760] If there were, we'd have a major story.
+- [11:13.840] No. Well, we had that with the Gulf of Mexico.
+- [11:16.430] Remember the Gulf of Mexico?
+- [11:18.550] And one day I said, why is it the Gulf of Mexico?
+- [11:20.720] We have 92 percent of the area around it they have 8 percent,
+- [11:25.320] really less than 8 percent. But for 350 years, it was good.
+- [11:29.190] You know, they were there 100 years longer than us, Mexico.
+- [11:32.940] They're at 350. We're at 250.
+- [11:36.080] And I said I've said often -- asked myself why?
+- [11:38.770] Why do we call it the Gulf of Mexico?
+- [11:40.780] It seems like we dominate well, when I checked,
+- [11:42.570] it was more than 92 percent.
+- [11:45.580] So I announced -- I wouldn't say Mexico was thrilled,
+- [11:49.360] but I announced that from now on,
+- [11:51.590] the Gulf of Mexico is going to be called the Gulf of America.
+- [11:57.590] And it took about one hour and it was done.
+- [11:59.370] Everybody I mean, the president called me.
+- [12:02.110] She's really a nice person too. I like her a lot.
+- [12:04.680] She called up. She had the most beautiful.
+- [12:06.970] She's a very elegant woman, has a beautiful,
+- [12:08.990] beautiful voice she goes president,
+- [12:11.250] president, president, tell me this is not so.
+- [12:16.150] No, no, it's so -- so and then Google Maps --
+- [12:21.140] Maps changed it we won the court case in about one hour
+- [12:24.550] and Google Maps changed the name,
+- [12:27.760] and it's now the Gulf of America,
+- [12:29.330] which it should be, in all fairness.
+- [12:31.070] We're crushing Iran's weapons stockpiles,
+- [12:34.570] destroying their missiles and drone factories at levels
+- [12:37.710] nobody ever thought was possible,
+- [12:40.010] and turning their defense industrial base
+- [12:42.160] into nothing Iran's navy is gone.
+- [12:47.360] It's all sunk at the bottom of the gulf and elsewhere
+- [12:52.730] did you see the attack submarine that we have?
+- [12:54.600] One after one of their boats. It was called the Soleimani.
+- [12:57.740] It was the pride of their fleet but this attack submarine
+- [13:01.730] goes like 60 miles an hour. I never saw anything
+- [13:05.730] and it caught them in about two minutes
+- [13:08.650] and that was the end of the Soleimani.
+- [13:11.250] Now they're 100 percent dead. They have 22 mine droppers.
+- [13:15.310] They got mine droppers and the mine droppers.
+- [13:18.150] Twenty-two -- all 22 are gone. So I guess they can drop mines,
+- [13:21.110] but they're going to have to take them out by a rowboat
+- [13:22.830] because they don't have any boats.
+- [13:24.960] Their air force is dead totally completely dead,
+- [13:28.110] it's out of business. No planes left at all.
+- [13:31.440] Their anti-aircraft and communications capabilities
+- [13:34.620] are totally dismantled and dead and their leaders are all dead.
+- [13:40.360] Other than that, I think they're doing quite well.
+- [13:45.530] No, their leaders are dead.
+- [13:47.420] Their supreme leader is no longer supreme. He's dead.
+- [13:52.230] His son is either dead or in very bad shape
+- [13:56.480] because nobody has heard from him.
+- [13:58.430] I think he says, just keep me out of this.
+- [14:01.320] This is the only country where nobody wants to lead.
+- [14:04.960] There's nobody -- who would like to lead Iran?
+- [14:07.960] Please raise your hand.
+- [14:09.180] A big audience of distinguished --
+- [14:11.100] who would like to be our leader. Dead silence.
+- [14:14.370] Nobody wants to lead. Now we have an amazing military
+- [14:18.130] we have the greatest intelligence apparatus
+- [14:20.570] that anybody's ever seen.
+- [14:21.890] We can tell you everything that's going on.
+- [14:23.630] We know everything that's going on.
+- [14:24.980] We're achieving each and every one of the military objectives
+- [14:29.420] I laid out less than four weeks ago.
+- [14:32.460] Four weeks ago? And we're doing it really,
+- [14:37.740] I guess we're two weeks ahead of schedule.
+- [14:39.590] We're not into it very long. We wouldn't have thought
+- [14:42.040] == we would have been in we knew it was going to be easy.
+- [14:44.470] We call it a military operation.
+- [14:46.980] We don't call it a war, we call it a military operation.
+- [14:50.460] We're very disappointed, by the way, with NATO.
+- [14:52.480] They didn't come to our aid.
+- [14:55.190] I didn't try too hard, actually, you know,
+- [14:57.020] because I wanted to prove a point.
+- [14:58.440] I didn't sell -- they probably think I'm a lousy salesman.
+- [15:01.360] You know, they said I said, would you like to help us?
+- [15:04.780] To president of France, Macron. Nice guy.
+- [15:07.680] He is a nice guy, I said, Emmanuel,
+- [15:09.950] would you like to help? Yes, yes, yes.
+- [15:12.450] As soon as the war is over, we will send ships.
+- [15:14.670] I said no, no, I don't want them when the war is over.
+- [15:18.160] I want them before we start and UK our longest ally,
+- [15:22.860] you know, nobody ever thought this was possible
+- [15:26.260] they said to the prime minister. I said, Mr. Prime Minister,
+- [15:30.430] we'd like you to have two aircraft carriers.
+- [15:32.670] They're little ones they're not very good
+- [15:34.910] I know they don't go fast
+- [15:36.250] and I know they don't work very well,
+- [15:37.530] but we could probably use them
+- [15:39.060] maybe for helicopters and they said yes.
+- [15:42.920] Oh, yes, we are preparing them. I see when will they be ready?
+- [15:47.110] Maybe in a month or two oh,
+- [15:48.780] great that's wonderful I said, are you going to help us?
+- [15:51.910] Yes, yes, we're going to help you.
+- [15:53.660] When the war is finished, we will be there.
+- [15:56.910] This is NATO and I've always said
+- [15:59.260] NATO is a paper tiger and I always said we help
+- [16:03.230] NATO, but they'll never help us
+- [16:05.640] and if the big one ever happened,
+- [16:07.420] and I don't think it will,
+- [16:09.110] but if the big one ever happened,
+- [16:11.480] I guarantee you they wouldn't be there
+- [16:13.970] and we learned from that.
+- [16:15.280] And remember what I said because they made a big mistake
+- [16:18.810] they were not there.
+- [16:20.620] The chancellor of Germany. These are all friends of mine.
+- [16:22.780] Friedrich, the chancellor of Germany,
+- [16:25.340] he said, this is not our war we have nothing to do well,
+- [16:28.560] Ukraine is not our war, but we help them.
+- [16:32.150] I wouldn't have had to help
+- [16:33.430] if I were president that war would have never happened
+- [16:35.620] but we had a man who of a very low
+- [16:37.600] IQ as president, and he had no idea what the hell he was --
+- [16:40.410] I was listening to him talk
+- [16:41.710] I said, he's forcing an issue that's going to be trouble
+- [16:45.470] and it turned out to be trouble.
+- [16:47.430] Last week, 28,000 soldiers died.
+- [16:49.680] The week before that, 32,000 soldiers died.
+- [16:52.180] I think we're going to get it settled
+- [16:54.060] but it's a terrible -- it's a terrible thing.
+- [16:56.610] Worst since World War II. I settled eight wars,
+- [17:00.050] and this should have been one of the easier ones
+- [17:01.930] but the hatred between President Putin and President Zelenskyy
+- [17:06.470] is extreme, never good.
+- [17:09.150] Hatred is a bad thing when you're trying to settle a war.
+- [17:12.990] I want to thank the entire kingdom of Saudi Arabia,
+- [17:16.070] been very helpful unlike NATO. Saudi Arabia fought,
+- [17:20.840] Qatar fought, UAE fought, Bahrain fought,
+- [17:24.540] and Kuwait fought even though they shot down
+- [17:26.280] three of our planes with the finest missiles.
+- [17:31.350] We could have done without that.
+- [17:35.100] They didn't know they were our planes.
+- [17:38.140] They wasted three great patriot missiles.
+- [17:40.930] And you have to say there's nothing like these patriots.
+- [17:43.440] You know, we had an attack of 101 a few days ago.
+- [17:48.050] A hundred-and-one missiles shot at a very valuable thing
+- [17:52.520] that we had floating on the water,
+- [17:54.410] namely an aircraft carrier, the biggest in the world
+- [17:58.430] and they were shot 101 going 2,500 miles an hour
+- [18:04.420] and out of the 101 missiles shot,
+- [18:07.370] 101 missiles were shot down
+- [18:12.400] and spread out all over the city.
+- [18:14.340] Pretty amazing.
+- [18:16.640] That's called incredible technology, right, Steve?
+- [18:20.330] That's called great technology.
+- [18:21.760] Think of it 101 missiles going 2,500 miles an hour.
+- [18:25.370] You don't have a lot of time
+- [18:27.630] and these aren't necessarily weightlifting shoulders.
+- [18:30.540] These are very smart people doing that
+- [18:34.290] and I watched them, I watched their performance,
+- [18:36.720] missiles launched, missiles launched.
+- [18:38.690] It's almost like they're bored by it.
+- [18:40.030] They have like nine seconds.
+- [18:42.360] Head of FIFA, the most powerful man in sports, Gianni.
+- [18:46.380] Gianni, you you never choked, right?
+- [18:49.030] These guys can't choke but they're very smart, high IQs.
+- [18:51.870] We need high IQs. We have too many low-IQ people
+- [18:55.130] but what happened is you have to see it it's very cool.
+- [18:59.270] Missiles launched, missiles launched,
+- [19:01.420] missiles launching, they're launching, OK.
+- [19:03.900] We're ready, 101 missiles coming at them.
+- [19:08.300] All right, we have to have like,
+- [19:10.040] 11 seconds to make a determination
+- [19:13.320] and at seven seconds fire, fire, fire.
+- [19:19.250] The most unbelievable thing. Fire, poom, fire, poom.
+- [19:23.260] One at a time just knocked him out like they were nothing.
+- [19:25.680] Genius, it's like unbelievable. I mean, to think the --
+- [19:29.640] and we have the technology nobody has.
+- [19:31.380] Look at what happened in Venezuela.
+- [19:34.010] They had other equipment, not ours.
+- [19:35.950] They made the mistake of using other equipment
+- [19:37.920] didn't work too well and Venezuela
+- [19:41.450] was, you know, took 45 minutes. It was a 45 minute war
+- [19:45.370] this one's bigger this one's bigger.
+- [19:47.740] It's a bigger country a lot -- a lot more powerful.
+- [19:51.920] It's a lot more powerful but it's not powerful anymore.
+- [19:55.240] Within two days, I think the damage was done
+- [19:59.450] but now it's really done now we're just going
+- [20:01.300] after targets and again, they have no anti-aircraft.
+- [20:04.700] So we're just floating over the top
+- [20:06.210] looking for whatever we want and we're hitting it
+- [20:09.040] and we have another 3,554 targets left,
+- [20:15.240] and that'll be done pretty quickly
+- [20:16.660] and then, you know, at some point
+- [20:17.960] we're going to have to determine what we do
+- [20:20.830] but they have they've never seen anything like it.
+- [20:25.200] When we hit Venezuela --
+- [20:28.250] and, you know, that's a very strong military country.
+- [20:31.410] They have soldiers -- if you've ever been there.
+- [20:33.200] I've been there. They have a lot of soldiers
+- [20:35.150] walking around all over the place.
+- [20:36.590] Everyone's a soldier, very military kind of a place.
+- [20:40.960] And the general, there was a general,
+- [20:42.510] professional general, really good.
+- [20:45.280] And he said, we were all set for them.
+- [20:46.720] We knew there was a problem when we noticed
+- [20:48.570] at 1:00 in the morning, every 32 seconds,
+- [20:52.290] another airplane, a very fast plane,
+- [20:54.900] was coming off the deck of an aircraft carrier.
+- [20:57.980] That's actually the biggest aircraft carrier in the world.
+- [21:01.260] And every 32 seconds, vroom, vroom, vroom.
+- [21:04.530] And it was 1:00 in the morning, so we said,
+- [21:06.420] OK, I think we're in trouble.
+- [21:08.950] But they were ready for us, Johnny. And we were ready.
+- [21:12.190] He said, we were ready and then they hit us
+- [21:15.850] and they came from 17 different angles.
+- [21:18.360] They were here, they were there, they -- we ran for our lives.
+- [21:21.700] It was over. And it was over.
+- [21:26.310] And then we took this guy who was a very bad guy
+- [21:28.410] and within literally minutes,
+- [21:30.210] he was in the back of a helicopter.
+- [21:33.070] In a house that was in a big military base
+- [21:36.530] with thousands and thousands of soldiers,
+- [21:39.500] the house was all steel with steel doors, steel everything.
+- [21:43.060] They had the small steel doors, the big steel -- we had --
+- [21:45.560] we were equipped for anything, even the big, big one,
+- [21:47.560] it would have been opened within 30 seconds.
+- [21:50.310] They walked in with blowtorches.
+- [21:52.990] And within minutes, he was out of the house,
+- [21:55.530] being thrown into the helicopter, sailing away.
+- [21:58.660] And the soldiers just looked, bye, bye, enjoy your trip, sir.
+- [22:05.010] It was amazing. It was an amazing --
+- [22:06.770] but this is more amazing, what's happening now
+- [22:08.770] because we took a very strong country --
+- [22:11.360] I could see that, yes, sir the problem you would have had.
+- [22:13.510] I mean, this was not a weak country,
+- [22:15.930] this was a strong country. They had over 10,000 missiles
+- [22:18.750] that they accumulated since October 2nd, if you think,
+- [22:22.680] since since the B-2s, really since the B-2s,
+- [22:26.720] they accumulated them in a matter of months, six months.
+- [22:32.200] But they had well over 10,000. They had rocket-launchers.
+- [22:35.000] You know, rocket-launchers are more important than the rockets.
+- [22:37.880] Because you take a rocket-launcher out,
+- [22:39.640] that's the end of that.
+- [22:41.050] People think you can take those big rockets
+- [22:42.680] and throw them out your window,
+- [22:43.940] like when you were a child with the paper airplanes.
+- [22:46.150] You throw -- it doesn't work that way.
+- [22:48.150] You need those launchers and we knocked out
+- [22:49.850] 97 percent of the launchers.
+- [22:52.920] That's why you may be attacked, but you're not being attacked
+- [22:55.380] with very heavy numbers of missiles,
+- [22:58.140] like at the beginning.
+- [22:59.850] But in particular, I want to thank my friend,
+- [23:02.780] the Crown Prince Mohammed, who is a fantastic man
+- [23:08.080] and a great friend of mine and a friend of all of yours,
+- [23:11.560] I think. And he's a warrior.
+- [23:18.860] He's a warrior.
+- [23:20.230] He was not afraid of this country that, frankly,
+- [23:23.110] he should have been afraid of because they're very powerful.
+- [23:25.800] I want to thank Tamim, because Tamim is --
+- [23:29.460] these three people have been unbelievable, Tamim.
+- [23:33.350] And then UAE, Mohammed. These are three great people
+- [23:38.920] and they were under tremendous attack, unexpected attack.
+- [23:43.130] And they weren't thinking this was going to happen, nobody was.
+- [23:47.070] And they turned against them
+- [23:48.300] and really became very powerfully aligned.
+- [23:51.570] And they were with us, but they weren't with us very obliquely.
+- [23:56.640] They were with us.
+- [23:57.870] But I think that I have to acknowledge for their bravery
+- [24:01.920] because they were being hit pretty hard.
+- [24:03.670] All three of them, they were being hit pretty hard.
+- [24:07.270] The Amir, Mohammed, Mohammed.
+- [24:11.480] You had two Mohammed's and Tamim,
+- [24:15.320] and they're friends of mine.
+- [24:16.640] And also, I have to say that Bahrain and Kuwait,
+- [24:21.270] they were stand up, more so than NATO.
+- [24:25.450] I want to say more so than NATO.
+- [24:27.890] No, they were a little closer to the action than NATO,
+- [24:30.230] in all fairness, but very disappointed with NATO.
+- [24:34.590] But I wasn't disappointed with our allies
+- [24:37.500] in the Middle East and others, and others.
+- [24:40.240] We had tremendous support from countries
+- [24:42.680] that were not in the general area,
+- [24:45.220] but they were tremendously supportive.
+- [24:47.040] I think Turkey was fantastic, actually fantastic,
+- [24:51.850] and they stayed out of things that we asked them to.
+- [24:55.360] And he's -- he's a great leader. He's a great leader.
+- [24:59.910] And Indonesia was great, so many --
+- [25:03.720] We had so many great -- you know,
+- [25:05.230] you learn who your friends are, really do.
+- [25:07.350] You learn who your friends are.
+- [25:09.560] And but Indonesia, Turkey, and so many other countries,
+- [25:14.360] but the five were great, but your dear friend
+- [25:18.960] and my dear friend was -- he was all man.
+- [25:21.810] He stood up and he wasn't -- he wasn't scared.
+- [25:25.190] Maybe he was, I don't know, maybe he was,
+- [25:27.050] but he didn't show it. He was great, a great leader.
+- [25:29.860] You can be very -- Saudi Arabia can be very proud of your --
+- [25:33.440] because he's got a lot of titles.
+- [25:35.140] He's the crown prince,
+- [25:36.950] he's the prime minister, he's the future king.
+- [25:40.420] He's got about seven other titles.
+- [25:42.330] I said, you have more titles than any human being on earth.
+- [25:45.550] He's everything, and he deserves to be because he's a winner.
+- [25:49.870] So I just want to thank those people.
+- [25:55.820] So the Middle East will be transformed
+- [25:58.510] and the future of that region is never --
+- [26:01.300] I don't think it's ever looked brighter.
+- [26:02.670] You couldn't have -- you know, we did the Abraham Accords.
+- [26:04.850] I hope you're going to be getting into the Abraham Accords
+- [26:06.890] finally, Yasir.
+- [26:08.280] Will you please go back and explain it's time now?
+- [26:12.090] You know, Mohammed, say, oh, yes, as soon as we do this,
+- [26:15.650] as soon as we do that. I said, Mohammed, we did that.
+- [26:19.740] Oh, yes but we have a couple of other things.
+- [26:22.270] It's now time.
+- [26:23.880] We've now taken them out, and they are out bigly.
+- [26:26.160] We got to get into the Abraham Accords,
+- [26:28.820] and we hope all of the countries
+- [26:30.770] are going to be in the Abraham Accords.
+- [26:33.430] We have some very brave countries that did it.
+- [26:36.300] You know, years ago they went in
+- [26:38.950] and you know who they are, the four, the early four.
+- [26:42.580] And they did a great thing in doing it
+- [26:44.650] and it was great for them also economically,
+- [26:47.440] but it was a great thing that they did it.
+- [26:48.930] But I think all the Middle Eastern countries
+- [26:50.610] are going to be joining now. And in some cases,
+- [26:53.620] I would say all the Middle Eastern countries and beyond.
+- [26:56.370] You have people not in the Middle East
+- [26:58.550] that want to be members.
+- [27:00.130] You'll be seeing that soon.
+- [27:01.930] In the meantime, the conflict in Iran also makes it
+- [27:04.880] absolutely vital for the radical left Democrats in Congress
+- [27:08.620] to immediately end their dangerous shutdown
+- [27:10.960] of our Department of Homeland Security.
+- [27:13.060] You know, they want to play games.
+- [27:14.440] That's all they are. These people are lunatics.
+- [27:17.970] They sort of remind me of -- they remind me, actually,
+- [27:21.080] a little bit of Iran.
+- [27:23.660] They're deranged. They're deranged.
+- [27:25.650] They're deranged. They're deranged Democrats.
+- [27:29.860] For 42 days, they've tried to completely eliminate funding
+- [27:33.800] for the number one duty of government,
+- [27:35.690] which is keeping America safe. And they want no ICE.
+- [27:39.490] They want no Border Patrol.
+- [27:41.980] They want no protection of any kind to be given,
+- [27:44.450] reopening our borders
+- [27:45.810] and stopping all immigration enforcement in our country.
+- [27:48.580] They want to have our borders be open again.
+- [27:51.710] We opened -- we took in 25 million people.
+- [27:54.150] We've gotten a lot of them out. Tremendous numbers of people
+- [27:58.210] that should never have been here.
+- [27:59.620] Over four long years before my election,
+- [28:03.270] these same radical, lunatic Democrats
+- [28:06.290] let 25 million people pour across our borders
+- [28:09.330] like they were nothing, like they were nonexistent.
+- [28:12.680] These people were totally unvetted, unchecked,
+- [28:15.230] including murderers, drug dealers,
+- [28:17.070] gang members, vicious criminals, even the criminally insane.
+- [28:22.200] In 2024, the American people voted in a landslide
+- [28:25.400] to stop the invasion of our country.
+- [28:28.640] And I won all seven swing states by millions
+- [28:31.270] and millions of votes.
+- [28:32.490] We won the Electoral College by a massive number.
+- [28:37.570] We won the popular vote, millions in votes --
+- [28:40.380] just millions. It was -- this was a big election.
+- [28:42.980] I loved every minute of it. And for the first time --
+- [28:47.410] no Republican's done anything like this in decades,
+- [28:50.900] but for the first time, we won the counties of America.
+- [28:54.680] That's a big one, 2,700 to 525.
+- [28:57.910] 2,700 to 525, 87 percent of the vote.
+- [29:04.060] We won 87 percent of the counties.
+- [29:06.610] In other words, it was a mandate like our country
+- [29:09.520] has not seen in many decades.
+- [29:11.170] It was a mandate for an ideology,
+- [29:14.330] which is an ideology, basically, of common sense.
+- [29:17.200] We want strong borders, we want a powerful military,
+- [29:20.120] we want good education, we want to have homes for people
+- [29:23.250] and low interest rates and no inflation.
+- [29:27.800] And right now, my polls are better
+- [29:29.940] than they've ever been before. You know, I heard the other day,
+- [29:32.570] I think that he's losing the MAGA base.
+- [29:35.000] I said, really? Because of the war.
+- [29:37.210] See, I get into a war -- of course, they call it a war.
+- [29:40.300] I call it a military conflict.
+- [29:42.860] But -- there's a legal reason for that.
+- [29:45.780] But you get into a war or a military operation or conflict,
+- [29:50.790] for you, and they say my base.
+- [29:52.630] I said, no, no, MAGA is stronger than ever because
+- [29:55.470] MAGA is Make America Great again.
+- [29:57.010] But my MAGA people, which is the greatest phrase
+- [30:00.170] in the history of politics,
+- [30:01.910] it's the most important movement by far,
+- [30:03.670] probably in the history of the world.
+- [30:05.090] I mean, you know, there's never been anything like this.
+- [30:08.550] And in fact, just a few days ago,
+- [30:12.170] you have to understand,
+- [30:13.540] the fake news, right back -- oh, that's a lot of fake news.
+- [30:16.780] Yasser, you brought a lot of fake news with you.
+- [30:18.960] They must know you're going to make a speech at some point,
+- [30:21.430] because look at the --
+- [30:22.880] but what happened is the fake news was saying he may --
+- [30:27.290] they hope, you know, it's like,
+- [30:29.340] oh, we got to get rid of this guy.
+- [30:31.730] They say he may be losing his MAGA base
+- [30:36.040] and that would be maybe the end of him
+- [30:40.170] and then I happened to be watching CNN,
+- [30:42.270] which is terrible they treat me terribly.
+- [30:45.930] In fact, just a few days ago, CNN had a poll that had me
+- [30:49.030] at 100 percent of MAGA voters.
+- [30:53.370] They said they've never seen anything like that.
+- [30:55.190] Can you put that up?
+- [30:56.410] I actually said if you could put it up.
+- [30:58.120] Do you have the technology to put it up?
+- [30:59.750] Go ahead, give it a shot.
+- [31:00.990] Unidentified: You know,
+- [31:02.220] sometimes you look at the polling data
+- [31:03.730] and there are numbers that just jump off the screen at you
+- [31:06.760] and this is one of those because just take a look here.
+- [31:09.640] MAGA GOP view of Trump, approve, 100 percent, 100 percent.
+- [31:15.510] If you are a member of MAGA and the GOP,
+- [31:18.650] you approve of Donald John Trump,
+- [31:21.350] 0 percent say that they disapprove.
+- [31:24.450] You don't have to be a mathematical genius
+- [31:26.240] to know you can't go higher than 100 percent.
+- [31:28.790] He is the 1972 Miami Dolphins.
+- [31:35.150] The President: Good technology. Thank you.
+- [31:36.770] I figured you'd have good tech.
+- [31:37.980] I said, I wonder if they could put that ball up.
+- [31:39.710] We just did it two minutes ago.
+- [31:41.770] No, but I was watching this, and I'm hearing them saying,
+- [31:44.500] could he be losing the MAGA base?
+- [31:46.270] I don't think so. You know why?
+- [31:47.950] Because MAGA wants to win, number one.
+- [31:51.340] Number two, they want our country protected.
+- [31:53.130] They don't want another country out there that's hostile
+- [31:55.360] and crazy to have a nuclear weapon.
+- [31:58.430] And number three, they like us protecting certain allies,
+- [32:03.530] whether it's Israel or Saudi Arabia or Qatar
+- [32:07.150] or UAE, any of them.
+- [32:09.280] They want that MAGA wants strength
+- [32:12.380] and they want victory they want success and that's what we have.
+- [32:15.900] And we have been very, very successful.
+- [32:18.450] You know, when I went into Venezuela,
+- [32:20.320] I said, yeah, because I campaigned on the fact peace
+- [32:23.220] through strength you wouldn't have to use.
+- [32:24.700] I built this great military I said,
+- [32:26.880] you'll never have to use it,
+- [32:28.180] but sometimes you have to use it and Cuba's next, by the way,
+- [32:31.690] but pretend I didn't say that please.
+- [32:34.050] Pretend I didn't say.
+- [32:35.440] Please, please, please media, please disregard that statement
+- [32:40.820] Thank you very much. Cuba's next.
+- [32:45.060] So despite the radical-left Democrat shut down,
+- [32:49.030] we will continue to defend the sovereign borders
+- [32:51.920] of the United States of America
+- [32:53.560] and will defend our allies and your ally.
+- [32:57.500] You didn't know they were that tough, did you?
+- [32:59.620] You didn't know. They were pretty tough, Iran.
+- [33:01.840] Not tough anymore.
+- [33:03.900] Now we'll continue to deport dangerous criminal aliens
+- [33:06.830] from our country.
+- [33:08.070] Just days ago, an 18 year old girl in Chicago named Sheridan
+- [33:12.330] Gorman was gunned down by a savage criminal alien
+- [33:15.410] led in by Sleepy Joe Biden
+- [33:17.880] and released in a Democrat sanctuary city.
+- [33:20.990] He was an animal the same month,
+- [33:23.850] an 83-year-old veteran, highly-regarded person
+- [33:26.780] was shoved onto the subway tracks
+- [33:29.810] and murdered by an illegal alien
+- [33:31.550] with a long criminal history in New York City.
+- [33:34.810] These are vicious criminal thugs,
+- [33:36.910] disgusting human beings
+- [33:39.120] that Democrats have defunded our airports to protect.
+- [33:43.010] They want our airports to be defunded
+- [33:45.090] so that these people can come into our country
+- [33:47.420] not going to happen.
+- [33:48.890] We're not going to have it. That's why this week I deployed
+- [33:52.480] ICE to our airports to help reduce
+- [33:55.170] the delays people there are doing a great job,
+- [33:57.950] but they didn't want to pay them.
+- [33:59.340] The Democrats didn't want to pay them.
+- [34:01.680] And a short time ago, I also ordered emergency
+- [34:04.010] funding to resume paying the TSA agents immediately.
+- [34:07.540] They're getting paid. Democrats must stop
+- [34:10.630] their dangerous and destructive shutdown
+- [34:13.010] and reopen the Department of Homeland Security
+- [34:15.880] without delay and it's time that they start thinking properly.
+- [34:20.930] That's why they lost in such a landslide and put America first.
+- [34:25.220] It's time that they start thinking about America first
+- [34:28.510] and we're honored to be joined tonight
+- [34:30.220] by many distinguished guests from around the world,
+- [34:32.610] including FII Institute Chairman, Yasir Al-Rumayyan.
+- [34:38.830] Where are you, Yasir? Yes, sir.
+- [34:40.740] Come here stand up please.
+- [34:42.720] What a nice -- what a nice name and his son Faisal
+- [34:51.000] and by the way, I've known him really well.
+- [34:52.690] But, you know, I've never heard his last name.
+- [34:55.180] So I'm saying, who the hell is --
+- [34:56.510] yes, I know, Yasir.
+- [34:57.960] Said who the hell is that guy? But I know him by Yasir, right?
+- [35:01.740] I didn't know if it was your first name, your last name.
+- [35:03.480] All I know is he's got a lot of power all I know
+- [35:06.400] is he's got a lot of cash.
+- [35:09.640] And he's another great leader, actually.
+- [35:11.480] And he's a good friend of mine so nice to be with you
+- [35:14.460] and nice to be with your son. Son's beautiful.
+- [35:17.890] Saudi Minister of Finance Mohammed Al-Jadaan,
+- [35:21.770] thank you very much thank you very much nice to see you again.
+- [35:26.430] Good job. I mean, if you want to be a minister of finance,
+- [35:30.890] Saudi Arabia is a good place to do it right?
+- [35:34.060] You don't have any dearth -- there's no dearth of funds.
+- [35:37.070] Most places, they say, where are we going to get the money?
+- [35:39.220] How about a tax increase?
+- [35:41.520] Minister of State Mohammed Al-Sheikh.
+- [35:45.230] Mohammed, thank you very much. Great honor.
+- [35:49.740] Chairman of the Saudi Esports Federation,
+- [35:52.340] His Royal Highness Prince Faisal,
+- [35:54.990] and of course, please.
+- [35:59.500] Thank you and, of course,
+- [36:01.420] the kingdom's wonderful ambassador to the United States,
+- [36:04.760] Her Royal Highness Princess Reema, who's great.
+- [36:15.920] She's great.
+- [36:17.150] Also, I want to thank the president of Sierra
+- [36:21.170] Leone, Julius Maada Bio -- Maada Bio.
+- [36:26.350] I love that name. Thank you. It's a great honor to have you.
+- [36:31.110] And chairman of the FII Institute
+- [36:33.300] Executive Committee, Richard Attias.
+- [36:37.910] Thank you, Richard. As well as special envoy,
+- [36:43.290] I call him Henry Kissinger, who doesn't leak
+- [36:47.070] because Henry was a big leaker. Richard Nixon would beat him.
+- [36:50.580] Henry, somebody leaking on us. There's somebody leaking.
+- [36:55.350] Henry would say, well, get to the bottom --
+- [36:57.520] it was Henry that was leaking.
+- [37:00.360] That wasn't good so we have Henry Kissinger
+- [37:02.570] better than Henry Kissinger, and he doesn't leak.
+- [37:06.080] Special Envoy Steve Witkoff. Thank you, Steve.
+- [37:12.150] Doing a great job and he and Jared, Jared Kushner,
+- [37:15.530] they're like a team and boy,
+- [37:16.770] I tell you, they're a good team, high IQ. It's a high IQ team.
+- [37:20.800] You want to find your high IQ people.
+- [37:23.230] Director of the Office of Science and Technology Policy,
+- [37:27.350] Michael Kratsios, a Greek individual.
+- [37:30.520] Where's Michael?
+- [37:31.900] He was at the Greek -- a Greek event.
+- [37:33.550] Hi, Michael.
+- [37:34.800] He was at the Greek event yesterday, so I know he's Greek.
+- [37:37.800] They asked me, please, sir, would you introduce Michael?
+- [37:41.310] CMS administrator, a phenomenal man, a brilliant man.
+- [37:45.720] You know, he had a show on television
+- [37:47.170] for like 20 years that was so great.
+- [37:49.860] I was on his show he said, would you do me a favor?
+- [37:51.930] Would you go on my show?
+- [37:53.890] I said, yeah, yeah, I'll go on your show.
+- [37:56.360] It's a big show was very successful,
+- [37:58.940] and I went on his show
+- [38:00.910] and he determined that I should lose weight.
+- [38:02.740] This is what I went through.
+- [38:04.200] He said -- he said, I think you should lose weight.
+- [38:07.760] I said, I don't need you saying
+- [38:09.170] that in front of millions of people.
+- [38:10.640] You don't have to tell me that.
+- [38:12.880] But he's a great guy and I don't know
+- [38:15.540] how he ever got the job after that.
+- [38:17.320] But he's the most powerful man, actually.
+- [38:20.760] Medicine, him and Bobby, what a team.
+- [38:22.560] Bobby is great. He's great. Doctor Oz.
+- [38:25.170] You know that, Mehmet Oz.
+- [38:30.100] And they're coming up with things that are amazing,
+- [38:32.390] a little out of the box, but the out of the box guys
+- [38:35.070] are really finding things that are amazing.
+- [38:38.090] Autism that's so important to us.
+- [38:40.090] We want to find out why is it happening
+- [38:41.970] in such large numbers all over the world,
+- [38:43.830] but why is it happening in our country, all over the world?
+- [38:47.460] And you're coming up with some pretty impressive studies
+- [38:50.960] and answers.
+- [38:52.370] A really good friend of mine, the president of FIFA,
+- [38:55.260] Gianni Infantino and Gianni is great.
+- [39:02.070] You know, when I didn't get the Nobel Peace Prize --
+- [39:06.870] you got to understand, I don't care.
+- [39:09.490] Norway has lost so credible. I stopped eight wars.
+- [39:14.030] I even stopped India and Pakistan
+- [39:17.500] and they were going at it for a week.
+- [39:18.980] They had nine planes already shot down.
+- [39:20.810] They were -- they were in a war I stopped them.
+- [39:22.560] You know how I stopped them? I said, if you keep fighting,
+- [39:26.390] I'm going to put a 250 percent tariff on each one.
+- [39:29.810] No, no, no, you cannot do that. I said I'm doing it.
+- [39:33.550] All right, we won't fight anymore.
+- [39:34.980] That's how I stopped him. I used tariffs to stop --
+- [39:37.270] you ever hear of anything like that?
+- [39:39.300] There was too much for them to bear
+- [39:41.340] but they were going to be in a war.
+- [39:42.830] And the prime minister, actually a great guy.
+- [39:44.760] The Prime Minister of Pakistan said President Trump
+- [39:47.330] saved 30 to 50 million people, two nuclear countries,
+- [39:51.510] would have happened and I figured --
+- [39:54.250] I mean, if I don't get the Nobel Prize for peace,
+- [40:00.090] nobody will ever get it.
+- [40:01.700] I didn't get it. I'm not surprised.
+- [40:04.290] I didn't get it and the person that got it was shocked.
+- [40:07.400] She's a wonderful woman too, by the way and she said,
+- [40:10.660] no, no, no, I don't deserve it.
+- [40:12.260] President Trump does. Nobody deserve it.
+- [40:14.240] Nobody ever does. I stopped eight wars, Yasir.
+- [40:16.590] Do you know what that is? Eight wars.
+- [40:18.470] You didn't stop eight wars. You started eight wars, Yasir.
+- [40:22.400] I stopped eight wars, but it was a little early
+- [40:25.960] because in all fairness, it was for the year before, right?
+- [40:28.470] It was for '24.
+- [40:30.390] But still, you thought they would have made an exception,
+- [40:33.730] but they didn't do that. You watch what happens.
+- [40:37.200] But it was sort of amazing.
+- [40:39.120] So she was so nice and she actually came to the White House
+- [40:42.120] and she presented me with her award.
+- [40:44.780] She's a wonderful woman.
+- [40:46.850] But stopping wars is, I think is my --
+- [40:52.280] it's the best -- I think I do it the best.
+- [40:54.780] I stop wars that nobody thought --
+- [40:56.320] President Putin called me he said,
+- [40:57.790] I can't believe you stopped this one
+- [40:59.880] and this one, which are impossible.
+- [41:03.110] Azerbaijan was an impossible war to stop. We stopped it.
+- [41:07.720] But we also have a man who's probably good at stopping wars.
+- [41:12.800] I know he's good at being a tough guy.
+- [41:14.330] He is a tough guy.
+- [41:15.550] He's been very tough on crime and he's done a great job,
+- [41:18.120] Miami Mayor Francis Suarez, is here someplace.
+- [41:22.420] Francis, hi, how are you?
+- [41:26.190] And we have a great son, he's got the best genes,
+- [41:29.080] I think, of any human being I've ever known.
+- [41:32.090] He's my son, Don Trump. Don, he's a great guy.
+- [41:37.800] And his fiance, Bettina, good, Bettina, good.
+- [41:41.850] No, my son's got the greatest genes in history.
+- [41:46.700] I'm a big believer in genes by the way, I will tell you.
+- [41:51.110] My daughter Tiffany and her husband Michael.
+- [41:56.170] My beautiful daughter, great.
+- [41:58.230] And they have a new child, the most beautiful,
+- [42:01.820] the most beautiful guy we've seen, right?
+- [42:03.810] Blows us all away, right? He's great.
+- [42:06.870] Thank you for being here.
+- [42:08.350] And countless other business leaders.
+- [42:09.780] We have so many friends of mine here, so many business leaders,
+- [42:12.580] but we can't go on because we have a couple of moments
+- [42:14.850] more to discuss the world and the economy.
+- [42:16.960] Over the past 14 months,
+- [42:19.400] the Trump administration has achieved
+- [42:21.080] perhaps the most dramatic one-year turnaround
+- [42:23.530] of any nation in all of history.
+- [42:27.920] A short time ago, a man that we just discussed,
+- [42:31.610] the king, the future king of Saudi Arabia,
+- [42:33.720] and I also love the king of Saudi Arabia.
+- [42:35.730] What a man he is. When I was there, we bonded.
+- [42:39.330] He would grab me to get up.
+- [42:40.640] He was a little frail at the time,
+- [42:42.150] and this was a long time ago, and he's still doing well.
+- [42:44.820] And he grabbed my arm to get up when I was sitting next to him,
+- [42:48.010] and they said, that's the only time he's ever grabbed anybody.
+- [42:50.890] He would grab me all the time. And I said, I think he likes me,
+- [42:55.950] and he did like me, and he still likes me
+- [42:58.060] and he's a great man and say hello to him.
+- [42:59.830] He's a great guy, with a great son.
+- [43:02.880] But a short time ago, we were together and he looked at me
+- [43:09.930] and he said, you know, it's amazing, one year ago,
+- [43:13.340] you were a dead country.
+- [43:15.880] Now, you're the hottest country anywhere in the world.
+- [43:18.180] He didn't think this was going to happen.
+- [43:21.250] He didn't think he'd be kissing my ass.
+- [43:22.730] He really didn't.
+- [43:23.940] He thought it'd be just another American president
+- [43:27.020] that was a loser where the country was going downhill,
+- [43:31.200] but now he has to be nice to me.
+- [43:34.020] You tell him he better be nice to me.
+- [43:36.910] He's got to be. But it was really something.
+- [43:39.720] No, he said, though, he said, you know, it's amazing,
+- [43:42.530] President -- because he's a very smart and --
+- [43:46.160] but a regular kind of guy. He said, you know, it's amazing,
+- [43:48.690] President, a year ago -- in that case,
+- [43:51.950] it was a year and a half, it was six months ago,
+- [43:53.890] but a year ago, you were a dead country.
+- [43:59.070] Now, you're literally the hottest country
+- [44:01.580] anywhere in the world.
+- [44:02.950] And that was before we beat the hell out of Iran.
+- [44:06.190] You know? Now, I think he's got -- it's even better.
+- [44:08.420] I think we have to up it, but he's fantastic.
+- [44:12.880] And everything we do, we're working to make America
+- [44:15.960] the number one place on earth to do business.
+- [44:18.200] We passed the largest tax cuts in American history,
+- [44:21.850] including no tax on tips, no tax on overtime,
+- [44:24.610] no tax on Social Security for our great seniors.
+- [44:28.380] We provided 100 percent expensing and bonus depreciation
+- [44:32.360] so that anyone who wants to build a factory
+- [44:34.410] can deduct the entire cost of equipment
+- [44:37.520] and the entire factory in the first year.
+- [44:39.600] That used to take 38 years to do it.
+- [44:41.720] You had to take it
+- [44:42.950] in little drips, little drips, now it's done.
+- [44:46.560] And, you know, a lot of people remember that my first
+- [44:49.620] four years was the most successful time
+- [44:52.470] we've ever had, financially, in the history of our country.
+- [44:56.160] We had an unbelievable success, but this is much better.
+- [44:59.790] And by the way, when this war ends,
+- [45:01.220] it's going to be like a rocket ship.
+- [45:03.360] I thought we were going to go down more,
+- [45:05.460] and I thought oil prices
+- [45:06.770] were going to go up higher than they are now.
+- [45:08.480] It's not finished yet.
+- [45:10.230] I'm not saying -- it's finished, but it's not finished.
+- [45:12.670] It's got to be finished.
+- [45:14.350] And I thought that we would see a bigger drop in stock.
+- [45:18.720] Hasn't been that bad. You know, it's sort of crazy.
+- [45:22.890] I hit 50,000 on the Dow.
+- [45:26.210] People said that wouldn't be possible within four years.
+- [45:28.690] I did it in one year.
+- [45:31.120] And then we hit 7,000 on the S&P.
+- [45:34.330] People said that's even harder than hitting 50,000 on the Dow,
+- [45:38.590] and I did that in less than one year.
+- [45:40.520] Toward the end of the year,
+- [45:42.170] both of them, we broke every record.
+- [45:44.210] Every stock record, we broke. And your big beneficiaries,
+- [45:48.170] because so many of you invest in the United States.
+- [45:50.380] And keep doing it because it's going to be a rocket ship,
+- [45:53.100] you watch.
+- [45:54.660] But then I said, all right, do I have to do this?
+- [45:57.610] We have a country that's sick and demented
+- [46:01.820] and they have a nuclear weapon, or they want to have one.
+- [46:03.830] They were very close to getting --
+- [46:05.140] Remember, there were two weeks away.
+- [46:06.610] They were two weeks away. If they would have --
+- [46:08.190] if we didn't hit that, I call it the nuclear dust.
+- [46:11.970] I use the term nuclear dust.
+- [46:13.450] If we didn't knock the hell out of them,
+- [46:14.840] they would have had a nuclear weapon
+- [46:16.050] within two to four weeks and they would have used it,
+- [46:18.120] on you and on Israel and on everyone else.
+- [46:21.810] And I said, we really do have to stop
+- [46:25.680] and go on a different journey for a little while
+- [46:27.810] and take them out and then go back to life,
+- [46:30.820] and that's what we did. And we did it violently.
+- [46:34.700] We did it powerfully. We did it with the respect of the world.
+- [46:39.850] And we helped a lot of allies,
+- [46:41.610] and we learned about other allies.
+- [46:44.370] We learned that other allies weren't there.
+- [46:46.760] We didn't need them,
+- [46:48.170] but they weren't there if we did need them,
+- [46:51.550] and that's going to be very costly for them.
+- [46:53.640] The stock market has set 53 all-time record highs
+- [46:57.560] since the election, adding $9 trillion in value
+- [47:00.820] to America's savings and retirement accounts and 401-Ks.
+- [47:04.650] Everybody's benefiting by this.
+- [47:06.900] And more Americans are working today
+- [47:08.610] than at any time in the history of our country, at any time.
+- [47:11.750] To me, that's the number one stat.
+- [47:13.310] More Americans are working today by far,
+- [47:16.080] than at any time in the history of our country.
+- [47:19.210] And in 14 months, we've lifted 3.3 million Americans
+- [47:23.100] off of food stamps. That's a record.
+- [47:26.080] And Biden and his allies wrecked our country.
+- [47:31.050] They wreaked havoc on our economy,
+- [47:33.130] and they gave us the worst inflation in American history.
+- [47:37.680] Under Trump, during the last three months of 2025,
+- [47:41.290] we got core inflation down to 1.6 percent.
+- [47:45.270] And right now, the average tax refund for filers,
+- [47:48.570] because of the Great Big,
+- [47:49.800] Beautiful Bill has been close to $5,000.
+- [47:53.330] It's a lot of money for a family.
+- [47:55.810] In this -- You know, when I'm talking to Saudi Arabia
+- [47:57.730] and I'm talking about $5,000,
+- [47:59.110] they look at me, $5,000, that's like a penny.
+- [48:03.500] Right, David? That's like a penny.
+- [48:04.930] Saudi Arabia is not into $5,000, but it's Saudi Arabia.
+- [48:11.770] I just want to ask, are the Saudis impressed
+- [48:14.000] by the fact that a family has saved $5,000?
+- [48:18.060] I know -- they're looking like, what the hell is $5,000?
+- [48:21.400] Their shoes cost them more than $5,000,
+- [48:24.320] but that's the way it goes.
+- [48:25.580] We're talking about --
+- [48:27.080] we're talking about the real world.
+- [48:29.750] In his entire term, Joe Biden -- I have two terms for him,
+- [48:33.550] Crooked Joe and Sleepy Joe, and I've never --
+- [48:37.890] it's always been pretty -- you know, I do sometimes a poll,
+- [48:40.560] which is a more accurate term, sleepy or crooked,
+- [48:43.140] pretty much even. I like sleepy.
+- [48:46.160] In his entire term, sleepy Joe Biden
+- [48:48.470] got less than $1 trillion of new investment in the United States,
+- [48:53.040] a lot less.
+- [48:55.060] And in our first 11 months, 12th month is coming,
+- [48:59.830] it's going to be big, we did $18 trillion.
+- [49:03.290] Think of it, less than $1 trillion for four years.
+- [49:06.560] In 11 months, we did $18 trillion
+- [49:08.820] and we have factories being built all over the country
+- [49:11.370] at a level that's never been seen before.
+- [49:14.000] And a lot of that has to do with the fact that I allow the --
+- [49:17.580] these plants and everything to build their own electricity.
+- [49:20.380] Well, we need big electricity.
+- [49:21.900] They're all building their own electricity.
+- [49:24.020] But a lot of it has to do with the tax bill, a lot of them --
+- [49:26.210] because it's really the biggest tax reduction bill in history,
+- [49:29.290] the Great, Big, Beautiful Bill.
+- [49:31.230] And a lot of it has to do with the one year deductibility
+- [49:34.110] where they you build a plant and you take --
+- [49:36.270] the whole thing as a deduction.
+- [49:38.860] I did that in my first term also,
+- [49:41.370] but I had it for one year, now I have it for 10 years.
+- [49:45.230] So it's pretty amazing
+- [49:46.520] and it's pretty amazing what we're seeing.
+- [49:48.260] But it all started with our historic visit
+- [49:50.420] to the Kingdom of Saudi Arabia.
+- [49:52.580] My first visit was to the future king.
+- [49:56.570] And on that first foreign trip of my presidency last May,
+- [50:00.960] the crown prince announced that Saudi Arabia
+- [50:03.270] would be investing an incredible almost $1 trillion
+- [50:07.600] in the United States, which he later increased.
+- [50:11.520] As just a few examples of these new partnerships,
+- [50:16.010] Oracle will be building a $14 billion worth of cloud
+- [50:21.460] computing and AI infrastructure in the kingdom.
+- [50:24.430] I didn't know that, David.
+- [50:25.730] We have to talk to your father about that.
+- [50:27.950] Why isn't he doing it here, David?
+- [50:30.560] I'm very upset with you, but --
+- [50:34.160] and by the way, David has done a very good job.
+- [50:36.770] David Ellison, and he just had a very big win
+- [50:40.200] and your father's very proud of you
+- [50:41.660] because your father said that's a tough one
+- [50:43.670] and you got it -- you got it done.
+- [50:45.420] It's going to be a great success.
+- [50:46.630] You're going to be a great success.
+- [50:48.670] You're going to blow away your father
+- [50:50.150] and he'll be very happy about that because he loves you.
+- [50:53.500] But it's a great family, great family.
+- [50:56.780] Say hello to him. OK? You're going to have a big,
+- [50:59.360] big success with the -- the deal he made.
+- [51:02.360] Boeing is selling dozens of 737 airplanes
+- [51:06.100] in a deal valued at $4.8 billion
+- [51:08.720] and supporting approximately 20,000 US jobs.
+- [51:12.100] And during our trip,
+- [51:13.360] the United States and Saudi Arabia,
+- [51:15.870] and I must say also, Qatar. We visited, they were fantastic.
+- [51:21.740] And UAE, we visited, they were fantastic, all three of them.
+- [51:24.930] We took in a total of almost $3 trillion
+- [51:28.420] from just those three countries.
+- [51:31.500] But Saudi Arabia signed the largest defense sales agreement
+- [51:34.350] in American history,
+- [51:35.580] nearly $142 billion of the finest military equipment
+- [51:39.990] anywhere in the world.
+- [51:41.310] We make the best military equipment in the world, by far.
+- [51:45.070] Nobody's ever figured out the Patriot.
+- [51:46.790] I mean, when you can shoot down 101 out of 101,
+- [51:50.530] that's good stuff, right?
+- [51:51.820] And those suckers are traveling at 2,000 --
+- [51:54.100] Mr. Minister, 2,500 miles an hour.
+- [51:58.420] You better hope you don't have chokers
+- [51:59.940] sitting behind that desk,
+- [52:01.860] because if they're about one second late,
+- [52:03.310] that's the end of it.
+- [52:04.590] You know, you say, well, we missed them.
+- [52:06.440] They're coming.
+- [52:08.390] When I hosted the crown prince at the White House last fall,
+- [52:11.030] we officially designated the kingdom
+- [52:13.240] as a major non-NATO ally, first time.
+- [52:19.100] And for the very first time, we agreed to sell Saudi Arabia.
+- [52:22.770] perhaps the most capable fighter jet ever built, the F-35.
+- [52:28.000] The F-35 is amazing, and we sell them very sparingly.
+- [52:31.540] We don't want other people to have them.
+- [52:34.370] I'm confident that this partnership
+- [52:37.010] and so many others around the world,
+- [52:38.800] will continue to grow and thrive because under President Trump,
+- [52:42.020] America once again fights and competes for one thing,
+- [52:44.740] we fight to win.
+- [52:45.950] We fight for justice, and we fight to win.
+- [52:48.770] We don't fight to be politically correct like we did
+- [52:52.580] under other presidents,
+- [52:53.840] where we fought to just keep fighting
+- [52:55.980] and fighting and fighting.
+- [52:58.940] And, you know, when I took out ISIS, I was told by generals
+- [53:02.690] it would take four to five years.
+- [53:05.140] And I met General Razin Caine, who's our top person,
+- [53:10.640] head of the Joint Chiefs of Staff.
+- [53:12.350] I said, if I ever do this thing again, if I ever get in,
+- [53:15.140] I'm putting that guy as the head of the Joint Chiefs of Staff.
+- [53:18.530] I went to see him in Iraq and I said,
+- [53:20.180] why is it taking so long to destroy ISIS?
+- [53:22.480] We have the best weapons in the world.
+- [53:25.160] And I understood why, but I had generals --
+- [53:27.460] I call them the television generals.
+- [53:29.030] They weren't any good, Mattis, Milley, they weren't any good.
+- [53:32.660] They were lousy.
+- [53:34.020] But they said, sir, it would take about four years.
+- [53:37.650] When I went over and I met General Caine,
+- [53:39.330] I said, how long would it -- four weeks, sir.
+- [53:40.950] You'll have a lot of time left over.
+- [53:42.440] I said, wait a minute, did you say four weeks?
+- [53:45.060] Four weeks, sir. It'll take four weeks.
+- [53:47.670] You'll have a lot of time left over.
+- [53:49.100] That's our new head of the Joint Chiefs of Staff.
+- [53:52.320] And I said, how do you do that?
+- [53:54.580] Well, sir, we were only able to fight
+- [53:57.120] from this one very faraway location
+- [53:59.150] because nobody wanted to use all of our portable runways
+- [54:03.780] that we have all over the Middle East.
+- [54:05.110] We have portable runways, can you believe it?
+- [54:06.930] We have everything. But nobody wanted to use them
+- [54:09.300] because they didn't want to insult the country
+- [54:11.180] where the runway was located. I said, they wouldn't even know.
+- [54:14.290] Do you think some country's going to know
+- [54:15.870] where we have jets taking off?
+- [54:17.120] They don't know. He said, well, I agree with you, sir,
+- [54:19.710] but whether they know or not, who cares?
+- [54:22.610] He said, so we have about 17 locations
+- [54:25.070] that we could take off.
+- [54:27.130] From this one, it took eight hours to get to the destination.
+- [54:29.940] By the time we got there, we had to refuel all the time
+- [54:32.350] and we had to come back.
+- [54:34.230] He said, but we have 17 different locations, sir.
+- [54:37.790] And, sir, we're going to hit him from the left,
+- [54:39.680] we're going to hit him from the right,
+- [54:41.170] we're going to hit him from the east and the west.
+- [54:43.150] Are we going to hit him from above.
+- [54:45.380] And you can see he was getting crazy.
+- [54:48.580] And I said, what's your first name?
+- [54:51.790] He said, Razin, sir. What do you mean Razin?
+- [54:55.640] My name is Razin.
+- [54:56.930] I said, you mean your name is Razin Caine?
+- [55:01.780] And he said, yes, sir. You're the guy I'm looking for.
+- [55:05.420] I've been looking for you for four freaking years.
+- [55:09.650] I found Razin Caine.
+- [55:11.870] His first name is Dan, but his nickname is Razin.
+- [55:15.040] And I love that. I loved Razin Cain.
+- [55:17.180] And I said, if I ever get in --
+- [55:18.950] this is before I decided to even run.
+- [55:20.610] I said, if I ever run and if I win,
+- [55:22.330] that guy's going to be the head of the Joint Chiefs of Staff.
+- [55:25.290] That's exactly what happened.
+- [55:27.470] Then he was all for me and I'm all for him,
+- [55:29.310] but he's a great general.
+- [55:31.140] He's like one of these football coaches that's great.
+- [55:34.880] You know, there's some great ones, Johnny, right?
+- [55:37.650] And all they do is they sit -- their wives are complaining,
+- [55:41.560] everyone's complaining, they never --
+- [55:44.040] they don't see anybody. They just go into the room
+- [55:46.140] and they study film and tape it, then they go out and win.
+- [55:49.410] And everyone says -- and other guys are out there playing golf.
+- [55:54.190] They're not winning.
+- [55:55.510] And he's been great and Pete Hegseth
+- [55:57.760] has been amazing. He's been amazing.
+- [55:59.920] Pete has done a great job. He was born for it.
+- [56:02.080] I really believe he was born for it.
+- [56:04.140] We have a lot of great people. We have a lot.
+- [56:06.450] We had a great first four years, but the people we have now --
+- [56:11.560] you know, look, when I won, I'd never done it before.
+- [56:15.770] I ran, everyone thought I was doing it for fun.
+- [56:17.840] Even Steve Witkoff, he said, you're doing it for fun, right?
+- [56:20.230] No, I guess, I don't know.
+- [56:21.480] I didn't know what I was doing it for, maybe.
+- [56:24.040] But they all said, no, he's going to run,
+- [56:25.520] and in September,
+- [56:26.730] he's going to have a lot of fun, he'll drop out.
+- [56:28.250] Then the debates came and I did good in the debates.
+- [56:30.430] And we're knocking people off, all Senators, governors,
+- [56:33.740] mostly Senators and governors,
+- [56:35.510] all professional politicians, smart guys.
+- [56:37.650] You can't be stupid and be a Senator or governor.
+- [56:39.860] It doesn't work that way, other than Biden. He got lucky.
+- [56:42.750] He was in a room -- they locked him in a room
+- [56:45.200] and he never got to talk.
+- [56:47.610] So -- but that's a whole other story.
+- [56:50.470] But I ran and then all of a sudden,
+- [56:52.980] there were 18 people, including me.
+- [56:54.680] Then there were 15, then there were 12,
+- [56:56.960] and then there were nine.
+- [57:00.420] Then there were six, five. It was like a rocket ship, four.
+- [57:06.450] And then all of a sudden I won, but I never did it before.
+- [57:11.380] I went to Washington, I said,
+- [57:12.750] I've only been here 17 times and I've never slept over.
+- [57:15.560] I didn't know anybody.
+- [57:17.230] So I had to take recommendations from RINOs and --
+- [57:22.270] and some good people.
+- [57:23.530] I mean, they were recommendations
+- [57:25.250] and some were really good. I mean, I had some great people.
+- [57:27.440] Look, I rebuilt our entire military in the first term.
+- [57:30.890] We got the largest tax cuts in history,
+- [57:33.110] the largest regulation cuts in history in the first term.
+- [57:35.690] We did good but I didn't have the same people, generally.
+- [57:40.550] But I went home and I watched this thing closely.
+- [57:45.030] And by that time, I knew the good, the bad and the ugly.
+- [57:47.360] I knew the good ones, I knew the bad ones.
+- [57:50.410] And when I came back, I picked great people.
+- [57:53.160] We have a great -- we have an unbelievable,
+- [57:55.880] we're talking military now,
+- [57:57.200] but we have an unbelievable group
+- [57:58.800] because they got to know it. I was never in Washington.
+- [58:01.670] You know, it's hard. I never ran for class president.
+- [58:06.100] All of a sudden, ladies and gentlemen,
+- [58:09.710] your next president of the United States is Donald Trump.
+- [58:13.240] I said, really? I never did this before.
+- [58:15.790] Johnny, I said, how the hell did this happen? Right?
+- [58:19.510] But it did happen and we had a great first term
+- [58:22.960] but the second term is blowing it away,
+- [58:24.470] to be honest with you.
+- [58:25.670] It's really blowing it away.
+- [58:26.870] And when we when we decide to leave, they --
+- [58:30.720] you know, regime change, I guess we change the regime.
+- [58:33.680] The regime keeps gets -- it gets blown up every two days.
+- [58:37.980] Everybody's afraid to announce who's the head.
+- [58:39.890] We don't even know who the hell the leader is.
+- [58:42.350] So I think we have regime change already,
+- [58:44.320] but we're going to be, at some point, we'll be leaving.
+- [58:49.200] And I think you're going to see a rocket ship,
+- [58:51.780] because we won't have that dark cloud hanging over our heads.
+- [58:55.630] Steve, right? That we did before,
+- [58:57.220] which was a nuclear-armed sick country of Iran.
+- [59:03.200] Because it might have affected your country,
+- [59:05.150] Saudi Arabia and the others but --
+- [59:07.440] and it certainly affected Israel more than anybody,
+- [59:09.970] the hatred they have for Israel.
+- [59:12.530] But it also affected us because with modern day equipment,
+- [59:17.320] they can fly. And how about --
+- [59:19.150] how about the fact that they flew a missile
+- [59:20.810] 2,700 miles the other day. They didn't say they had that.
+- [59:24.910] Nobody knew they had that, went 2,700 miles,
+- [59:28.650] so we learned a lot.
+- [59:29.870] But we're determined to have the best technology,
+- [59:33.260] the brightest minds, the greatest businesses,
+- [59:35.590] and the strongest economic and security partnerships
+- [59:38.430] of any nation anywhere in the world.
+- [59:41.540] And for this reason, we're also committed to ensuring
+- [59:44.080] the United States remains number one in artificial intelligence.
+- [59:47.430] We're doing great. We're leading China by a lot.
+- [59:51.180] And I'll not allow radical left maniacs
+- [59:53.450] to sacrifice American AI leadership
+- [59:56.400] to red tape or political correctness.
+- [59:58.640] It's going good. We're doing really well.
+- [01:00:01.160] We're building factories all over America,
+- [01:00:03.400] the biggest in the world.
+- [01:00:05.200] And in America, we don't fear the future,
+- [01:00:06.910] we invent the future.
+- [01:00:08.130] We're really inventing the future.
+- [01:00:09.630] We have the most brilliant minds,
+- [01:00:12.390] and we invite all nations to join us
+- [01:00:14.420] in building the most powerful AI ecosystem on the planet.
+- [01:00:17.970] We're building more automobile plants
+- [01:00:20.630] than any time in the last 50 years.
+- [01:00:24.030] For a lot of reasons I think, number one,
+- [01:00:25.790] maybe the election but number two
+- [01:00:27.480] and a close number two is tariffs.
+- [01:00:29.680] The tariffs are driving people in from Canada, Mexico,
+- [01:00:32.800] Germany, Japan, South Korea. They're coming in.
+- [01:00:36.390] We're building auto plants all over the United States.
+- [01:00:39.730] Tens of millions. I met Mr. Toyota in Japan.
+- [01:00:44.020] I said, what's your name?
+- [01:00:45.250] He's about 92 years old, sharp as a tack.
+- [01:00:49.270] What's your name? Toyota. I said, you're rich.
+- [01:00:53.780] I said, do you have anything to do with automobiles?
+- [01:00:55.860] Yes. What do you have to do with Toyota? I own it.
+- [01:01:00.740] And I said, well, do you want to make an investment?
+- [01:01:02.690] Yes we're going to spend $10 billion --
+- [01:01:05.260] spending $10 billion right now on building five plants.
+- [01:01:10.470] Everybody is, they're all coming into America
+- [01:01:12.590] we're going to be hotter than we were 70 years ago
+- [01:01:16.540] when we dominated the automobile.
+- [01:01:18.730] We made all of the cars.
+- [01:01:20.890] My administration has also worked work tirelessly
+- [01:01:23.410] to ensure that America remains
+- [01:01:25.300] at the bleeding edge of crypto revolution
+- [01:01:29.280] was we're really doing great, and if we're not going to do it,
+- [01:01:32.330] then China is going to take it over.
+- [01:01:33.800] They want to do it.
+- [01:01:35.080] We're going to be the undisputed crypto capital
+- [01:01:38.090] and bitcoin superpower of the world.
+- [01:01:40.120] Bitcoin's very powerful it's all becoming powerful.
+- [01:01:43.370] So many people now they want to pay you in crypto.
+- [01:01:45.710] They want to pay you in bitcoin
+- [01:01:48.260] and we have to be at the top of it in all of these --
+- [01:01:53.400] call it an industry.
+- [01:01:55.220] Last year, I signed the Landmark Genius
+- [01:01:57.440] Act into law, creating a clear and simple framework
+- [01:02:00.290] for dollar-backed stablecoins
+- [01:02:03.030] and this was a historic achievement
+- [01:02:04.820] and I'll not allow Democrats and their big bank donors --
+- [01:02:09.290] although they've had a lot of support for crypto,
+- [01:02:11.200] they will say that the Democrats have been very strong on crypto.
+- [01:02:14.340] They want to see it too, which is shocking
+- [01:02:15.940] if you want to know the truth
+- [01:02:17.840] but we don't want any pointless regulations
+- [01:02:20.050] or needless restrictions.
+- [01:02:22.600] We want to have free enterprise, open.
+- [01:02:25.390] America became the world financial capital
+- [01:02:27.620] because we were the strongest and the freest nation on earth
+- [01:02:30.700] and the Trump administration's going to keep it that way.
+- [01:02:33.770] We're very open and I tell people,
+- [01:02:36.330] if you have problems, call me --
+- [01:02:38.080] call me and some of them are amazed
+- [01:02:41.740] I actually take their call and get their problem solved.
+- [01:02:45.200] For four long years, our country was pushed
+- [01:02:48.140] to the brink of destruction by radicals and thugs
+- [01:02:51.500] and stupid people who punish success, pillaged our economy,
+- [01:02:56.560] dismantled our borders, and surrendered our strength.
+- [01:03:00.200] But today, all of that is behind us.
+- [01:03:02.100] Our country is prospering again, I think, like never before.
+- [01:03:06.010] I would say, you know, it's amazing I thought I knew
+- [01:03:09.300] I'd do it, I didn't know I was going to do it
+- [01:03:11.020] I knew I had no idea it was going to be this fast,
+- [01:03:13.700] but you never know I had no idea I'd be going into Iran.
+- [01:03:17.760] I didn't think we'd have to do that
+- [01:03:19.490] but it turned out we did,
+- [01:03:20.720] because they became more and more radicalized
+- [01:03:23.190] and more and more threatening.
+- [01:03:25.150] Our economy is booming again, and America is respected again
+- [01:03:28.440] all over the world, perhaps like never before.
+- [01:03:31.570] With the help of business leaders,
+- [01:03:33.030] innovators, allies and partners like those in this room,
+- [01:03:36.320] incredible people in this room, incredible success stories,
+- [01:03:39.630] the most successful people in the world,
+- [01:03:42.320] we'll seize every opportunity, overcome every challenge,
+- [01:03:45.250] defeat every threat,
+- [01:03:47.170] and America and our allies will thrive and prosper
+- [01:03:50.040] and win like no nations have ever won before.
+- [01:03:53.370] You're going to win like you've never had before.
+- [01:03:56.070] So I want to just thank everybody very much,
+- [01:03:59.070] and I'm asked to take a few questions
+- [01:04:01.760] and unlike other politicians,
+- [01:04:04.420] they would like the question screened
+- [01:04:06.540] I don't ask for screening of the questions.
+- [01:04:08.590] You can ask me anything you want you can talk sex.
+- [01:04:12.550] You can do whatever the hell you want.
+- [01:04:16.230] I'm here for you.
+- [01:04:19.560] Whatever question you want, you can ask.
+- [01:04:21.930] So do you want to do that?
+- [01:04:23.260] Do we have some people handling this?
+- [01:04:25.080] Here he comes. Look at this man.
+- [01:04:26.960] Very powerful man coming up, ladies and gentlemen.
+- [01:04:30.140] We'll take some questions. Good.
+- [01:04:32.910] Richard Attias: Thank you thank you very much,
+- [01:04:34.260] Mr. President. Thank you so much and thank you
+- [01:04:36.620] for accepting to take five questions.
+- [01:04:38.800] We don't want to take too much of your time.
+- [01:04:41.230] So let's talk about business.
+- [01:04:43.670] In one sentence where should the world
+- [01:04:46.900] invest in America right now?
+- [01:04:49.000] The President: Say it again?
+- [01:04:50.240] Richard Attias: Where the -- where should the world
+- [01:04:52.920] invest in America right now?
+- [01:04:54.400] The President: Well, look,
+- [01:04:55.660] the one that they're going crazy about is AI.
+- [01:04:58.720] Now, sometimes you'll say, let's go the opposite
+- [01:05:00.660] because I've seen it you know, everyone goes,
+- [01:05:02.290] but AI is going crazy. AI.
+- [01:05:05.350] So my family, we made Don and the whole family --
+- [01:05:10.830] Eric is doing a good job.
+- [01:05:12.620] All of us, Ivanka. We liked real estate.
+- [01:05:15.900] When you can make money in real estate,
+- [01:05:17.520] it's a great business but I see some of these guys
+- [01:05:20.320] come into my office they're wearing a t shirt
+- [01:05:22.250] and they're 24 years old
+- [01:05:24.400] and he's got a net worth of $24 billion.
+- [01:05:26.790] I said, you got to be kidding. Off a little contraption so.
+- [01:05:32.290] But the money seems to be right now, AI.
+- [01:05:36.430] And also, if you're in school,
+- [01:05:38.410] like you're going to the Wharton School or the Stern School
+- [01:05:41.420] or any of these great schools I mean,
+- [01:05:44.500] the numbers that they're paying to go into
+- [01:05:46.820] that business is incredible,
+- [01:05:49.890] where you see people getting a $10 million bonus to sign,
+- [01:05:54.150] like baseball players or football players.
+- [01:05:56.770] We're giving you a 10 million --
+- [01:05:58.060] I mean, I hate to say it because it sounds ridiculous,
+- [01:06:00.100] but there have been some $100 million bonuses paid to sign.
+- [01:06:05.170] So I think probably if you're going to say one thing, AI
+- [01:06:08.450] and just hope that it works, right? You better hope.
+- [01:06:16.850] Richard Attias: So, Mr. President,
+- [01:06:18.470] what is the one leadership trait the world is missing right now?
+- [01:06:24.220] What is missing in leadership?
+- [01:06:25.520] The President: Well, it's winning. You got to win.
+- [01:06:27.510] You know, I've watched a lot of people, leaders,
+- [01:06:31.200] great leaders and you know, the one thing about sports
+- [01:06:33.610] is you break it down into, you know, a two-hour period
+- [01:06:36.980] something nice you don't have to wait a lifetime
+- [01:06:38.930] to find out if somebody's a winner or a loser.
+- [01:06:40.580] You got a lot of losers.
+- [01:06:41.860] Mostly losers, fortunately.
+- [01:06:44.180] It's a good thing to have a lot of losers.
+- [01:06:46.020] I always like to hang around with losers, actually,
+- [01:06:48.270] because it makes me feel better.
+- [01:06:51.690] I hate guys that are very, very successful
+- [01:06:53.690] and you have to listen to their success stories.
+- [01:06:55.600] I like people that like to listen to my success.
+- [01:06:59.990] But I find and I found this and I'm only kidding,
+- [01:07:04.490] I want to say that, sort of.
+- [01:07:07.280] But -- but I find that people that win,
+- [01:07:12.290] it's much easier to lead when you're successful and you win.
+- [01:07:15.750] You know, Vince Lombardi was a very tough person,
+- [01:07:18.540] a very tough football coach.
+- [01:07:19.820] He was sort of a violent guy, actually.
+- [01:07:22.130] I knew him, but he won and he got away with things
+- [01:07:25.360] because he won. You know, he'd say, if you win,
+- [01:07:28.560] winning helps you to become a better leader.
+- [01:07:31.720] People follow you if you win and not everybody can win.
+- [01:07:35.900] Some people win and some people don't win
+- [01:07:37.850] but when you win, it's a lot easier to lead.
+- [01:07:41.380] Richard Attias: Talking about winning, Mr. President.
+- [01:07:43.330] The world is entering in a new economic era.
+- [01:07:46.900] Who do you think are the winners
+- [01:07:48.360] and who do you think will be the losers?
+- [01:07:50.420] The President: Are you talking about as nations?
+- [01:07:52.310] Richard Attias: Yes or sectors?
+- [01:07:55.100] The President: The United States right now
+- [01:07:56.730] is the hottest country anywhere in the world by far,
+- [01:08:00.830] and we've done it very quickly because we have a good system.
+- [01:08:04.440] Now it's somewhat radicalized
+- [01:08:06.150] because the Democrats are really holding us back,
+- [01:08:08.670] and you better hope they don't get in
+- [01:08:10.080] because they'll destroy a lot of what we've built.
+- [01:08:13.150] But right now, the United States,
+- [01:08:14.910] as the king -- future king of Saudi Arabia,
+- [01:08:17.720] said, we're the hottest country anywhere in the world.
+- [01:08:21.100] I must say, I respect China greatly
+- [01:08:23.310] because it's amazing that with a system
+- [01:08:26.010] that in theory shouldn't work, you know, we go to school
+- [01:08:29.310] and we go to the best business schools,
+- [01:08:31.220] and we do well in those schools.
+- [01:08:34.020] And we read about free entrepreneurship
+- [01:08:37.420] and we read about all of these different things
+- [01:08:39.840] but you look at China, how well they do,
+- [01:08:42.270] how well they manufacture. I mean, they manufacture cars,
+- [01:08:45.710] so many that they actually have a contest
+- [01:08:47.690] for who can manufacture the least cars
+- [01:08:49.770] because they have so many cars.
+- [01:08:52.180] You have to have great respect for China
+- [01:08:54.070] for the job they do like them or not like them,
+- [01:08:57.620] you have to respect them.
+- [01:08:58.940] Richard Attias: So precisely.
+- [01:09:00.140] You will be going to China in May?
+- [01:09:02.090] The President: Yes, yes, I'll be going we had a meeting
+- [01:09:05.330] and I called up President Xi. I get along really well with him
+- [01:09:08.840] he even approved the TikTok deal.
+- [01:09:10.460] He said, I will not approve that deal to other people,
+- [01:09:13.750] not to me and I thought it was good if we could keep it going.
+- [01:09:17.750] I like it because I'm the number one person on TikTok
+- [01:09:21.140] can you believe it? I put a chart up there.
+- [01:09:22.910] Another chart. Do you want to put another chart up
+- [01:09:25.300] like we did with fake news CNN?
+- [01:09:27.380] I said -- I said, you know, let's see what happens.
+- [01:09:31.090] So we got a group of very big investors,
+- [01:09:33.710] the biggest investors, and they really wanted to buy TikTok
+- [01:09:37.220] and I did very well on TikTok and the election.
+- [01:09:39.240] I won the youth, you know, I did tremendously well with youth
+- [01:09:41.580] because of TikTok and other things,
+- [01:09:43.250] certain interviews, etc.
+- [01:09:45.140] But I did very well and I sort of developed a liking for it
+- [01:09:50.250] and I was told that it will never be approved by China.
+- [01:09:54.220] You had to get approval and I didn't really care
+- [01:09:57.600] and then it got to a point
+- [01:09:59.000] where all of these very successful people
+- [01:10:01.940] were willing to pay a lot of money for TikTok
+- [01:10:03.980] and I called up President Xi, I said, do me a favor.
+- [01:10:07.110] Will you approve this?
+- [01:10:08.700] It's good it's good for China, good for us,
+- [01:10:10.340] good for everybody would you do me a favor?
+- [01:10:12.070] I know you said it was a hard no and I said,
+- [01:10:15.020] I know you said no to everybody, but you haven't said no to me.
+- [01:10:17.830] Would you do me a favor? Would you approve it?
+- [01:10:20.550] It's good for China. It's good for us.
+- [01:10:23.160] You have a lot of big investors.
+- [01:10:24.770] They're investing in China also.
+- [01:10:26.220] They have a lot of money in China.
+- [01:10:28.410] I would appreciate it. He said, OK, I'll do it.
+- [01:10:32.960] Nice, it was very nice.
+- [01:10:35.460] And they bought TikTok and it's going to do good,
+- [01:10:39.220] and it was done with the consent of China.
+- [01:10:42.110] We get along well with China.
+- [01:10:44.110] You know, China used to take big advantage of us,
+- [01:10:46.280] but they don't take advantage of us anymore.
+- [01:10:48.060] Now we -- you know, we compete very nicely with China.
+- [01:10:51.760] We put tariffs on China. The tariffs got too high.
+- [01:10:55.430] At one point, they were up to 145 percent.
+- [01:10:58.630] You know, I was saying, no, put tariffs on that,
+- [01:11:00.370] put tariffs on for fentanyl, add 20 percent for --
+- [01:11:03.150] and then one day, I said, what's China paying now?
+- [01:11:07.520] Sir, they're paying 145 percent. I said, 145. That's crazy.
+- [01:11:12.610] I got a little carried away. So I got them down to 100.
+- [01:11:17.370] Then I took them down a little more.
+- [01:11:18.820] And I'll never forget,
+- [01:11:20.040] I took them down a little bit from 145 to 100
+- [01:11:22.980] and the fake news said, Donald Trump collapses on China.
+- [01:11:27.550] They're paying 100 percent.
+- [01:11:29.260] Nobody pays 100. So anyway, we got it down
+- [01:11:31.590] and now we have a great business relationship with China.
+- [01:11:34.310] I've always had a good relationship with President Xi,
+- [01:11:36.490] except for the COVID situation,
+- [01:11:38.520] because I wasn't thrilled about that.
+- [01:11:40.750] He wasn't thrilled either, by the way,
+- [01:11:42.290] but I wasn't thrilled.
+- [01:11:44.170] But I have great respect for him as a leader and we had a deal.
+- [01:11:46.980] We had -- I was going there
+- [01:11:49.510] and I didn't want to go during the war.
+- [01:11:51.500] I said, look, you know, we have a thing called a war,
+- [01:11:54.400] or as they would rather say, a military operation.
+- [01:11:58.490] This is for legal reasons, I say military --
+- [01:12:00.440] because as a military operation, I don't need any approvals.
+- [01:12:04.490] As a war, you're supposed to get approval from Congress,
+- [01:12:06.790] something like that.
+- [01:12:08.290] So I call it a military operation,
+- [01:12:10.690] but we have that going along and I'd like to delay it.
+- [01:12:14.320] So we delayed it a few weeks, so I'll be going very shortly.
+- [01:12:17.770] Richard Attias: Mr. President, we have few leaders here,
+- [01:12:19.610] business leaders from Africa.
+- [01:12:21.570] And of course, we have His Excellency,
+- [01:12:23.120] the president of Sierra Leone.
+- [01:12:24.350] The President: Yeah.
+- [01:12:25.580] Richard Attias: What is your vision about Africa today?
+- [01:12:27.470] The President: Well, I tell you, it's --
+- [01:12:28.950] it's got tremendous potential.
+- [01:12:31.790] Now, I've been hearing about this for a very long time,
+- [01:12:35.600] and I have a lot of friends
+- [01:12:37.110] that have bet the ranch on Africa.
+- [01:12:38.920] They're very smart. It's got tremendous earth,
+- [01:12:41.850] it's got tremendous value underground,
+- [01:12:44.280] which is a very important -- so do we, so does --
+- [01:12:46.180] I mean, we have the biggest the most oil, gas and coal
+- [01:12:49.270] and everything of any nation on earth.
+- [01:12:50.760] There's a big advantage.
+- [01:12:52.560] But Africa has tremendous value in its land
+- [01:12:55.290] and if they can unify and get together,
+- [01:12:57.980] I think it's got tremendous potential.
+- [01:12:59.540] I have a lot of very smart friends
+- [01:13:01.910] that they're putting everything into Africa.
+- [01:13:06.910] Richard Attias: What do you think, Mr. President,
+- [01:13:08.310] is today the biggest mistake
+- [01:13:10.740] that leaders are making right now?
+- [01:13:14.040] The President: Not sticking together.
+- [01:13:16.030] I think that NATO made a terrible mistake.
+- [01:13:18.890] When they wouldn't send a small amount of military armament,
+- [01:13:24.570] when they wouldn't send --
+- [01:13:26.370] just even acknowledge what we were doing for the world
+- [01:13:31.220] and taking on Iran.
+- [01:13:33.900] I never considered it very risky,
+- [01:13:36.360] but war is always risk, you know, a lot of strange
+- [01:13:40.150] happened Ð things happen in war that are very bad, but --
+- [01:13:44.200] but I didn't consider it. I know how great --
+- [01:13:47.240] we're the greatest military by far anywhere in the world.
+- [01:13:49.280] There's nobody close.
+- [01:13:50.550] I didn't think there was a big risk,
+- [01:13:51.820] but there's always surprises with war.
+- [01:13:54.980] They can be very bad surprises.
+- [01:13:56.530] I mean, wars are lost that should be won.
+- [01:13:58.360] Many wars are lost.
+- [01:13:59.840] You think a country is going to wipe somebody out
+- [01:14:02.350] and they end up getting wiped out themselves,
+- [01:14:04.260] so it's always risky.
+- [01:14:05.910] But I think a tremendous mistake was when NATO just wasn't there.
+- [01:14:11.740] They just weren't there.
+- [01:14:14.020] It's going to make a lot of money for the United States,
+- [01:14:16.690] because we spend hundreds of billions of dollars a year
+- [01:14:19.540] on NATO, hundreds -- protecting them.
+- [01:14:22.740] And we would have always been there for them.
+- [01:14:24.430] but now, based on their actions,
+- [01:14:26.670] I guess we don't have to be, do we?
+- [01:14:30.570] That sounds like a breaking story, Yasir.
+- [01:14:32.890] Is that breaking news?
+- [01:14:34.120] I think we just have breaking news, but that's the fact.
+- [01:14:36.350] I've been saying that.
+- [01:14:38.040] Why would we be there for them if they're not there for us?
+- [01:14:40.410] They weren't there for us.
+- [01:14:42.950] Richard Attias: If you had one bet on the future,
+- [01:14:45.840] what would it be?
+- [01:14:48.030] The President: That the United States will,
+- [01:14:50.220] with good leadership,
+- [01:14:53.360] remain the dominant country anywhere in the world,
+- [01:14:55.900] but you still need leadership.
+- [01:14:58.000] I mean, look at the last four years,
+- [01:14:59.350] were so bad with a bad leader.
+- [01:15:01.560] You need leadership and you know,
+- [01:15:04.300] in theory, you need to have that.
+- [01:15:05.670] You need the open, fair elections.
+- [01:15:07.410] You need a free press.
+- [01:15:08.720] We have a terrible press. We have a very corrupt media.
+- [01:15:12.190] Think of it, I got 96 negative negative stories
+- [01:15:17.540] and I won in a landslide. And you know what that means?
+- [01:15:20.090] That means that the media has no credibility.
+- [01:15:24.290] You can't get mostly bad stories, fake stories,
+- [01:15:27.120] they were fake. The polls are fake.
+- [01:15:29.220] That's why I appreciate that one poll
+- [01:15:30.890] that I saw up there at 100 percent.
+- [01:15:32.560] She's never seen 100 percent, nobody has.
+- [01:15:35.330] But you have to have a free and open media.
+- [01:15:39.240] And when a media can give you 96 to 97 percent bad stories --
+- [01:15:43.860] they write stories about it,
+- [01:15:45.150] Trump received 97 percent bad stories
+- [01:15:48.590] and I won in a landslide.
+- [01:15:50.380] And that means very simply that the media has no credibility
+- [01:15:53.410] because that can't happen.
+- [01:15:55.190] Now, I also have a voice more than most people.
+- [01:15:57.370] I can come up and talk about it
+- [01:15:58.860] and convince people without necessarily reading
+- [01:16:01.540] The New York Times, which is fake.
+- [01:16:03.010] I mean, if you read the New York Times,
+- [01:16:05.250] you would think we're doing badly against Iran.
+- [01:16:08.620] Remember, they have no Navy, wiped out.
+- [01:16:10.600] 159 ships at the bottom of the sea in three days.
+- [01:16:14.570] They have no air force, all wiped out.
+- [01:16:16.960] They have very few missiles left.
+- [01:16:18.320] Their drones are at a minimum.
+- [01:16:19.980] Their factories are gone. Their leaders are gone.
+- [01:16:22.120] The leaders are all dead. They're all dead.
+- [01:16:24.430] Nobody ever heard of the people that are left.
+- [01:16:27.300] And if you read The Times, you think we're doing poorly.
+- [01:16:30.920] It's so -- it's almost treasonous, I have to be honest.
+- [01:16:34.040] It's almost treasonous.
+- [01:16:35.630] But fortunately, we have other media
+- [01:16:37.190] that's fair and honest and honorable.
+- [01:16:39.380] And you have to go out and do some of your own talking,
+- [01:16:41.520] because nobody else will.
+- [01:16:43.220] You know the expression, I have to sell myself
+- [01:16:45.990] because nobody else will.
+- [01:16:48.440] Richard Attias: My last question,
+- [01:16:49.690] Mr. President, is the same question
+- [01:16:51.190] I asked you last year.
+- [01:16:53.730] What do you want your legacy to be?
+- [01:16:57.260] The President: Well, I'll tell you what,
+- [01:16:59.410] so I told you that I settled eight wars.
+- [01:17:02.660] That means millions and millions of people
+- [01:17:05.260] and some of those wars were going on,
+- [01:17:06.740] one was 34 years, one was 32 years,
+- [01:17:10.250] one was 29 years, one was 22 years.
+- [01:17:14.310] They were long-term wars
+- [01:17:15.510] and a lot of people being killed every year,
+- [01:17:17.070] so I've saved millions and millions of people.
+- [01:17:20.280] And I mean, I know it doesn't sound right for me to say this,
+- [01:17:23.300] but I'd love my legacy to be made as a great peacemaker,
+- [01:17:28.890] because I really believe I'm a peacemaker.
+- [01:17:30.560] It doesn't seem it right now, but I think I'm a peacemaker.
+- [01:17:33.820] OK?
+- [01:17:35.050] Richard Attias: Ladies and gentlemen,
+- [01:17:36.560] Mr. President of the United States of America,
+- [01:17:39.110] Donald J. Trump.
+- [01:17:43.730] ♪ ("YMCA" by the Village People) ♪

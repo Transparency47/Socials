@@ -1,0 +1,777 @@
+<!-- source: https://www.youtube.com/watch?v=9TgZM1Ri1hQ -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 9TgZM1Ri1hQ -->
+<!-- date_published: 2025-11-11T17:33:28+00:00 -->
+<!-- date_accessed: 2026-06-02T02:41:48.918433+00:00 -->
+
+# Transcript: President Trump and Vice President JD Vance Deliver Remarks
+
+- [00:19.440] Announcer: Distinguished guests,
+- [00:21.550] The President of the United States, accompanied by the Vice President.
+- [00:38.980] ♪ (Hail to the Chief) ♪
+- [01:00.180] Distinguished guests, please remain standing
+- [01:02.820] for the procession of our nation's colors
+- [01:05.490] and those of our veteran service organizations.
+- [01:08.870] As we march on the colors,
+- [01:10.670] the United States Army Band will play the National Emblem March.
+- [01:15.410] Please place your right hand over your heart
+- [01:18.190] or render a hand salute.
+- [01:33.850] ♪ (Patriotic Music) ♪
+- [03:30.360] Announcer: Distinguished guests,
+- [03:31.620] please remain standing for the invocation
+- [03:34.050] given by Chaplain Kimberly Willis,
+- [03:36.410] Executive Director of Chaplain Service
+- [03:38.790] for the United States Department of Veterans Affairs.
+- [03:42.460] Chaplain Willis: Good morning, let us pray.
+- [03:45.530] Eternal and ever faithful God, on this sacred morning
+- [03:49.730] beneath the quiet majesty of these marble arches,
+- [03:53.370] we gather in this hollow place to pay tribute,
+- [03:56.250] to reflect, and to recommit.
+- [03:59.110] We come before you as a grateful nation,
+- [04:01.480] mindful of those who have donned the uniform, answered the call,
+- [04:05.600] and stood in the breach on behalf of freedom.
+- [04:09.250] You, who chart the course of every life,
+- [04:11.910] know each one who answer to the distant horizon,
+- [04:15.320] to the storm-tossed sea, to the far-off watch.
+- [04:19.140] You have seen the quiet courage and the visible sacrifice,
+- [04:22.270] the sleepless nights, the lonely return, the unspoken burdens.
+- [04:26.410] You have carried the tears of family,
+- [04:28.270] the prayers of caregivers,
+- [04:30.060] and the hope of a grateful people.
+- [04:32.330] We remember those who fell,
+- [04:34.030] whose names rest beneath these stones,
+- [04:36.290] silent sentinels of our nation's promise.
+- [04:39.150] We remember, those who yet bear in body
+- [04:41.660] or spirit the cost of service.
+- [04:44.180] Grant them your healing, your strength, and your peace.
+- [04:47.710] And to families who waited, who worried,
+- [04:49.890] who bore the weight of absence,
+- [04:51.970] Extend your sustaining grace, O Comforter.
+- [04:54.910] We give thanks for the Department of Veteran Affairs
+- [04:57.550] who daily honor our nation's sacred trust.
+- [05:00.460] And we bless the veteran service organizations
+- [05:03.020] whose devotion ensures that no veteran stands alone.
+- [05:06.760] In honor of those who served, renew our covenant
+- [05:09.580] to tend the garden of democracy with vigilance and care.
+- [05:13.490] To serve with humility, to lead with integrity,
+- [05:16.170] to walk together as one people under your guiding hand.
+- [05:19.700] Underpend our labors with hope, our words with true,
+- [05:22.640] our action with compassion.
+- [05:24.810] Let freedom ring not only on the battlefield,
+- [05:27.800] but in the everyday lives of your people.
+- [05:30.900] God bless the United States of America
+- [05:33.750] that we may be true to the promise entrusted to us,
+- [05:37.350] vigilant in peace, resolute in service,
+- [05:39.750] defender of justice, and steadfast in gratitude.
+- [05:43.550] It is in your holy name we pray. Amen.
+- [05:52.930] Male Speaker: I am honored to introduce
+- [05:54.880] the 2025 National Veterans Day Observance co-host organization,
+- [06:00.400] the American Veterans, better known as AMVETS.
+- [06:04.350] The organization began in 1944
+- [06:07.270] when 18 World War II veterans met in Kansas City,
+- [06:10.810] Missouri to form the American veterans of World War Two.
+- [06:15.570] Just three years later, President Harry S.
+- [06:18.220] Truman signed Public Law 216, making AMVETS the first World
+- [06:23.600] War II veterans group chartered by Congress.
+- [06:27.120] Over the decades, its charter expanded to include
+- [06:30.540] those who served in every era, from World War Two
+- [06:34.030] to today, including members of the National Guard and Reserves.
+- [06:38.910] Today, AMVETS focuses on critical veterans issues,
+- [06:42.740] such as mental health, suicide
+- [06:44.960] Prevention and ensuring women veterans
+- [06:47.490] receive equal recognition and opportunities.
+- [06:49.820] Representing
+- [06:51.100] AMVETS today is National Commander Paul Shipley,
+- [06:54.760] a U.S. Army combat veteran who served from 2004 to 2014,
+- [07:00.520] including a deployment to Iraq.
+- [07:03.130] Commander Shipley is the first post-9-11 veteran
+- [07:06.750] and one of the youngest leaders in
+- [07:08.320] AMVET's 80 year history. Please join me in welcoming
+- [07:11.800] National Commander of AMVETS and co-host of today's ceremony,
+- [07:15.820] Mr. Paul Shipley, who will lead us in the
+- [07:18.120] Pledge of Allegiance and deliver remarks.
+- [07:21.290] Please stand for the Pledge of Allegiance.
+- [07:30.590] Paul Shipley: I pledge allegiance to the flag
+- [07:33.280] of the United States of America,
+- [07:35.840] and to the Republic for which it stands,
+- [07:38.900] one nation, under God,
+- [07:41.440] indivisible, with liberty and justice for all.
+- [08:01.500] Good morning, Mr. President,
+- [08:03.470] Mr Vice President, Secretary Collins,
+- [08:06.590] and distinguished leaders of the Veterans Service Organizations
+- [08:09.990] of the United States of America.
+- [08:13.210] Good morning and happy Veterans Day.
+- [08:17.230] Today as we gather at this hallowed ground
+- [08:20.200] at Arlington National Cemetery,
+- [08:22.480] we honor the brave men and women who have served our nation
+- [08:25.240] with unwavering courage and sacrifice.
+- [08:29.410] It is a solemn moment of remembrance.
+- [08:31.570] Unity, and a renewal of our commitment
+- [08:34.070] to those that have served.
+- [08:36.820] Today is also a special celebration of all
+- [08:39.410] who put their lives on the line
+- [08:40.790] for the United States of America.
+- [08:44.440] AMVETS has a proud history spanning over 80 years.
+- [08:48.530] Today, our top priorities remain clear.
+- [08:51.620] We work tirelessly to prevent veteran suicide
+- [08:55.380] and veteran homelessness
+- [08:57.420] because no veteran should be alone in facing these struggles.
+- [09:03.580] We promote awareness, prisoners of war,
+- [09:06.970] and missing in action issues,
+- [09:09.070] ensuring that no hero is ever forgotten.
+- [09:13.260] And we are committed to supporting veterans' families,
+- [09:16.400] help keeping them united through life's toughest challenges.
+- [09:21.560] As the host of this year's Veterans Day National Committee,
+- [09:24.850] AMVETS is honored to participate alongside dedicated
+- [09:28.080] Department of Veterans Affairs staff
+- [09:30.130] and our fellow veteran service organizations.
+- [09:33.400] Together, we organize this event to honor our fallen
+- [09:36.620] and to reaffirm our duty to those who have served.
+- [09:41.770] In the spirit of veterans serving veterans,
+- [09:44.490] I challenge each of us,
+- [09:46.680] whether here today or watching from home,
+- [09:49.660] to find ways to support our veterans,
+- [09:53.160] whether through a simple act of kindness,
+- [09:55.400] volunteering, or advocating for policies
+- [09:58.170] that make a difference. Your efforts.
+- [10:03.770] Because supporting our veterans is not just a duty,
+- [10:07.190] it's a reflection of our gratitude and respect.
+- [10:11.030] Let us remember today that their sacrifices have made
+- [10:14.800] the freedoms we enjoy possible.
+- [10:17.790] And let us pledge to continue serving,
+- [10:19.590] protecting, and honoring all who have served our nation.
+- [10:24.600] Thank you, God bless our veterans,
+- [10:27.920] and God bless America.
+- [10:37.010] It is now my humble honor to introduce the 12th Secretary
+- [10:40.220] of the Department of Veterans Affairs.
+- [10:44.120] Secretary Doug Collins is an accomplished attorney
+- [10:46.950] with more than a decade of legislative experience
+- [10:49.500] representing the people of Georgia
+- [10:51.340] in the state legislature and later
+- [10:53.260] the U.S. House of Representatives.
+- [10:55.310] As a U. S.
+- [10:56.540] Air Force Reserve chaplain, Secretary Collins
+- [10:59.420] has ministered to our country's military since 2002.
+- [11:03.570] He completed a 2008 and 2009 deployment to Iraq
+- [11:07.390] while stationed at Balot Air Base.
+- [11:10.460] Collins remains a colonel in the United States Air Force Reserve.
+- [11:14.510] And he previously served in the U.S. Navy Reserve.
+- [11:17.720] Please join me in warmly welcoming
+- [11:20.040] VA Secretary Doug Collins.
+- [11:22.720] (applause)
+- [11:28.890] Secretary Collins: Good morning, everyone, Mr. President,
+- [11:30.870] Mr. Vice President, all the VSOs,
+- [11:33.260] all of our veteran staff here today,
+- [11:35.780] and welcome you to a place in which we honor our veterans,
+- [11:39.010] those who have served.
+- [11:40.740] I tell you, it was an honor to be here,
+- [11:43.260] but it was even bigger honor just over a year ago
+- [11:45.470] when President asked me to take this job.
+- [11:48.480] And I asked him a simple question.
+- [11:49.820] I said, Mr President, what would you like me to do?
+- [11:51.880] And he looked at me with a simple phrase.
+- [11:54.280] He said, take care of our veterans.
+- [11:56.950] I tell all the rest of the cabinet.
+- [11:58.800] I've got the best job in the world
+- [12:00.540] because I get to take care of the best people in the world,
+- [12:03.810] the veterans of the United States of America.
+- [12:11.210] And this President is firmly committed
+- [12:13.450] to making sure this happens.
+- [12:14.990] The VA is a different place today
+- [12:16.610] than it was just nine months ago.
+- [12:19.260] Nine months ago, there was more of an inner reflection.
+- [12:21.200] Now it is an outer reflection.
+- [12:23.030] The only thing that matters at the VA
+- [12:24.710] is that the veteran comes first.
+- [12:27.010] All we do is not about a bureaucracy or where we're from.
+- [12:30.670] It's about the veteran who walks through our door.
+- [12:32.580] Without the veteran, we have no job.
+- [12:34.320] The VA now understands that we do nothing else
+- [12:37.140] except take care of the veteran and do things for them.
+- [12:40.650] And under that direction from the President,
+- [12:42.120] we have lowered backlogs, we've increased wait times.
+- [12:45.300] And yes, Mr. President, we get them to community
+- [12:47.780] when they want to go to the community to see those doctors.
+- [12:50.510] And that's all in just in the first nine months.
+- [12:53.320] But the best part of this
+- [12:55.230] is that there is something to understand.
+- [12:57.560] Is that Veterans Day, unlike the others we celebrate,
+- [13:00.910] is about everyday people doing extraordinary things.
+- [13:04.290] Veterans Day is about men and women
+- [13:06.310] who come from small towns, hamlets, villages and big towns.
+- [13:10.760] And they make a decision in their life
+- [13:12.390] to raise their right hand
+- [13:14.250] and say, I'm committing to something bigger than myself.
+- [13:16.780] I am stepping forward where many will not.
+- [13:19.000] I am raising my right hand in committing myself
+- [13:21.430] to service to a country.
+- [13:22.780] As I said just the other day, to make sure that our military
+- [13:27.430] is the biggest and baddest in the world.
+- [13:30.110] Our veterans make that possible.
+- [13:37.460] It comes from people all over, as I served with in Iraq.
+- [13:41.350] What I love about Veterans Day
+- [13:42.660] is it tells the story of a young girl.
+- [13:45.370] She was in her early 20s.
+- [13:46.570] I met her on the fields in a wind
+- [13:48.500] just like this in the desert of Iraq.
+- [13:51.140] She had showed up late, and I was on the night chaplain run.
+- [13:54.910] And I'd always saw everybody else,
+- [13:56.540] but I didn't recognize her.
+- [13:58.090] And I walked up to the gate and she said,
+- [14:00.120] I said, where have you been? I said I haven't seen you here.
+- [14:02.170] She said, sir, I'm a little bit late deploying with my troops.
+- [14:04.940] I said well, what was the reason?
+- [14:06.740] And I figured I said you could, you know,
+- [14:08.160] I figured why are you coming in three or four weeks later?
+- [14:09.800] She said well sir, just about two months ago,
+- [14:12.930] I had my daughter.
+- [14:15.090] And I looked at her and I said and you came anyway.
+- [14:16.820] She said you know
+- [14:18.160] you could probably got a deferment of that.
+- [14:19.810] She said no, sir. She said I'd go where my troops go.
+- [14:23.710] I go where they go.
+- [14:25.310] And she did that for the rest of the time I was there.
+- [14:27.270] We shared pictures of one growing up,
+- [14:29.730] a little one, taking first crawls and moves
+- [14:33.620] and sharing it in the night sky over Iraq.
+- [14:35.830] That is a veteran who serves
+- [14:37.960] because they want to serve others.
+- [14:40.300] I remember an A1C who was on deployment.
+- [14:42.880] He came back and he said, I am now making big money.
+- [14:47.900] He said, i can actually help my family
+- [14:50.100] and I can buy Christmas presents for those
+- [14:52.570] that didn't get any last year.
+- [14:54.490] It's about the stories of those as a young man
+- [14:57.150] and just a little bit young
+- [14:58.730] because he's in his eighties in one of our VA hospitals
+- [15:01.530] in hospice who I walked in on him just the other day
+- [15:04.810] and he was playing on the keyboard
+- [15:06.980] just a closer walk with the Veterans Day
+- [15:09.880] is about veterans that were not special necessarily
+- [15:13.250] when they came up.
+- [15:14.820] But they saw a vision and a calling
+- [15:16.570] and they said I want to be a part of our armed services.
+- [15:20.930] So when they raised their hand, they made a choice to become.
+- [15:24.790] One of our favorite in the world,
+- [15:26.630] and that is a veteran who serves this country.
+- [15:29.220] So as we come to this day of service,
+- [15:31.630] this day a happy Thanksgiving
+- [15:33.770] for people who are willing to serve,
+- [15:35.490] I would just have one word from the half of this administration,
+- [15:38.810] and I want everyone to hear it clearly,
+- [15:40.630] whether you're in the media, Congress, or anywhere else.
+- [15:44.090] I'm a little bit tired of people
+- [15:46.660] saying that veterans keep getting stuff.
+- [15:49.880] Nope, veterans do not get anything from this country.
+- [15:53.280] They have earned everything that they are getting,
+- [15:56.440] and I am committed to making sure
+- [15:58.240] they will always have that from this administration and this VA.
+- [16:02.550] And that is my promise and this President's promise to you.
+- [16:08.270] And with that, it is my honor to introduce to you a father,
+- [16:14.480] a husband, and yes, for those in the audience, a Marine.
+- [16:20.670] Oh, come on Marines, there we go.
+- [16:24.770] My Marines, they let me down on this one
+- [16:26.800] because now I get to introduce
+- [16:28.460] the great Vice President of the United States.
+- [16:31.150] It is his honor. It is His Marine.
+- [16:36.150] And I'm making him wait just a minute.
+- [16:38.330] It is Mr. Vice President.
+- [16:40.470] (applause)
+- [16:46.340] The Vice President: Well, thank you, Doug.
+- [16:47.610] You're doing a great job at the VA.
+- [16:49.400] And I want to say just a couple things.
+- [16:51.210] I've learned a couple of things from working
+- [16:54.180] so closely with the President. United States.
+- [16:56.020] The first thing is that he loves our nation's veterans
+- [16:59.180] and is committed our nation administration
+- [17:02.290] to putting our veterans first every single day.
+- [17:05.080] And the second thing I've learned
+- [17:06.340] about the President United States
+- [17:07.780] is that he really hates
+- [17:09.370] when somebody who's speaking before him goes on for too long.
+- [17:14.030] And so, with that in mind, I have prepared a very brief
+- [17:17.950] and very inspiring one-hour-and-45-minute speech
+- [17:20.950] on this beautiful Veterans Day out here in the cold.
+- [17:24.590] But let me just give three very brief messages,
+- [17:27.850] first to our nation's veterans. Thank you.
+- [17:31.180] Thank you for serving and sacrificing.
+- [17:33.310] We've all got so many good stories of people
+- [17:35.530] that we served with over the years.
+- [17:37.530] During my four years of the Marine Corps,
+- [17:39.110] I met the very best of America.
+- [17:41.530] People who are willing to put on a uniform
+- [17:43.810] and risk their lives for their entire country.
+- [17:46.910] Just yesterday morning, I met people who lost limbs,
+- [17:50.650] who lost very, very important family members,
+- [17:53.980] who lost their psychological health.
+- [17:56.920] Going out there and serving the United States of America.
+- [18:00.450] So whether you gave a little bit or whether you give a lot,
+- [18:04.530] every single person who put on the uniform of this nation
+- [18:07.870] deserves our gratitude on this day especially,
+- [18:11.310] but every day. And so from the vice President
+- [18:13.610] and the entire administration to our nation's veterans,
+- [18:16.550] thank you for your service, thank you, for your sacrifice,
+- [18:19.280] and thank you from making us proud every single day.
+- [18:27.960] The second message is to the nation's political leaders.
+- [18:31.160] I happen to believe that the most valuable resource
+- [18:34.330] that we have isn't the incredible wealth
+- [18:37.410] of natural resources of this country,
+- [18:39.460] as amazing as it is,
+- [18:40.730] the most important natural resource that we have
+- [18:44.320] is that we hundreds of thousands of young people
+- [18:47.600] every single month who sign up to put on the uniform
+- [18:51.170] and risk their lives for their fellow citizens.
+- [18:53.510] That is a resource we cannot squander.
+- [18:55.870] That's a resource we must protect.
+- [18:58.070] And so to every elected official who's here today,
+- [19:01.560] our obligation, our sacred responsibility to our veterans
+- [19:05.610] is to make sure that the American military
+- [19:08.710] is the bravest and best fighting force anywhere in the world,
+- [19:12.930] and to make sure that every time we ask our nation's military
+- [19:16.770] to go off to war.
+- [19:18.540] We give them the training. We give them the resources
+- [19:22.470] and we give them what they need to kick the enemy's rear end
+- [19:26.330] and to come back home safely and quickly.
+- [19:28.850] That is our obligation to you.
+- [19:36.080] And my third and final message to the American people,
+- [19:40.180] I'm asked all the time how to best honor our veterans.
+- [19:43.990] And this day in particular gives you an opportunity
+- [19:47.130] and it doesn't have to be difficult
+- [19:48.980] and it does have to complicated.
+- [19:50.560] If you find yourself at a restaurant this evening
+- [19:53.470] and you see somebody wearing a uniform,
+- [19:55.630] buy them a meal if you're able or buy them beer.
+- [19:58.750] If you see a veteran of our nation's armed forces,
+- [20:01.280] if you know somebody in your family,
+- [20:02.720] give them a call and say thank you.
+- [20:04.750] I heard already this morning from my mother-in-law,
+- [20:07.380] who sent me a message early California time
+- [20:10.070] and it touched my heart,
+- [20:11.330] just knowing that we have loved ones
+- [20:13.570] who recognize our service, who care about it,
+- [20:16.430] and who care enough to go out and say,
+- [20:18.430] thank you, so the American people,
+- [20:20.470] if we want to keep on ensuring that the very best
+- [20:23.270] and brightest sign up our military,
+- [20:25.370] the very best way to do it
+- [20:26.960] is to make sure that the veterans know
+- [20:29.150] that we are grateful to them.
+- [20:31.430] And so it's with great pride that I am introducing a man
+- [20:35.990] who is proud of our veterans,
+- [20:37.790] who fights every single day for the veterans,
+- [20:40.370] and who is proud to be the Commander-in-Chief
+- [20:43.230] of the United States Armed Forces,
+- [20:45.370] President Donald J. Trump.
+- [20:48.270] (applause)
+- [20:57.760] The President: Thank you, JD.
+- [21:00.690] Thank you very much to our great Vice President.
+- [21:05.410] That was a good decision I made.
+- [21:08.340] This morning, on these hallowed grounds,
+- [21:10.790] where generations of American heroes rest in eternal glory,
+- [21:16.050] we gather to fulfill the sacred duty
+- [21:18.730] of every free man and woman. On Veterans Day,
+- [21:22.740] we honor those who have who have worn the uniform,
+- [21:25.400] who have -- who have stood to watch
+- [21:29.890] and whose ranks have formed the mighty wall of flesh
+- [21:34.090] and blood, bravery and devotion
+- [21:36.600] that has defended our freedom for 250 years.
+- [21:42.270] Today, to every veteran -- we love our veterans --
+- [21:46.670] we say the words, too often left unsaid,
+- [21:51.990] thank you for your service. Thank you very much.
+- [22:00.260] And we want to also say thank you
+- [22:01.980] for carrying America's fate on your strong,
+- [22:05.630] very broad, proud shoulders.
+- [22:09.180] Each of you has earned the respect
+- [22:11.140] and the gratitude of our entire nation.
+- [22:14.340] We love you, we salute you, and we will never forget
+- [22:17.120] what you have done to keep America safe,
+- [22:19.220] sovereign, and free. Thank you very much.
+- [22:26.750] And we're also honored to be joined by a great man,
+- [22:30.910] he will go down as a great men someday,
+- [22:33.560] Speaker Mike Johnson, Speaker.
+- [22:39.700] Wherever you may be, Speaker, we love you.
+- [22:43.360] There he is, right there, good. Got a good location.
+- [22:48.690] He always gets a good location.
+- [22:51.660] And congratulations to you and to John
+- [22:54.340] and to everybody on a very big victory.
+- [22:57.060] We're opening up our country. Should have never been closed.
+- [23:02.090] Should have been closed!
+- [23:05.230] I want to thank Secretary Doug Collins,
+- [23:07.340] who's outstanding, just done a fantastic job.
+- [23:10.160] Veterans, we have a 92 percent approval rating.
+- [23:13.880] We took that up from 38 percent.
+- [23:16.620] From a certain previous administration
+- [23:18.830] that we won't mention. Also, Secretary of War.
+- [23:22.900] We like the sound of that better than the other.
+- [23:25.400] Secretary Pete Hegseth. Pete, thank you very much.
+- [23:29.950] Thank you, Pete. Great job.
+- [23:33.150] Our great Attorney General, Pam Abandi.
+- [23:36.000] Pam, thank very much, thank.
+- [23:40.110] Secretary Doug Burgum. Doug, thank, you.
+- [23:44.020] Thank you very much for being here, Doug.
+- [23:47.050] A number one energy person
+- [23:48.810] anywhere in the world acknowledged.
+- [23:50.460] I was -- I was amazed that he took the job
+- [23:53.420] and he did it without hesitation.
+- [23:55.090] What he gave up, what Doug gave up.
+- [23:56.950] What all of them gave up -- nobody would ever know.
+- [24:00.020] But Secretary Chris Wright,
+- [24:01.600] number one anywhere in the world, acknowledged.
+- [24:03.530] And drill, baby, drill, Chris, right?
+- [24:05.620] Drill, baby drill.
+- [24:06.880] The energy prices are way down, and they're going further.
+- [24:10.710] Secretary Linda McMahon.
+- [24:13.590] Education, moving education back to the states, Linda, right?
+- [24:17.890] Getting it back to states where it belongs.
+- [24:19.800] Secretary Laurie Chavez, Doremer.
+- [24:23.740] Thank you, Laurie, very much. Director Russ.
+- [24:29.400] Director, thank you. What a good job he's doing.
+- [24:31.920] Cutting, cutting, cutting. But fairly cutting.
+- [24:35.330] Director Tulsi Gabbard. Thank you, Director.
+- [24:40.410] Ambassador Jameson Greer, what a job he has done.
+- [24:43.690] We've taken in trillions of dollars in tariffs,
+- [24:46.290] and we want to keep it that way. It's been good for our country,
+- [24:51.070] I can tell you, including national security.
+- [24:53.650] General Dan Cain.
+- [24:55.650] General, thank. He's a real general.
+- [24:59.710] And congratulations on wiping out
+- [25:02.620] the nuclear capability of Iran
+- [25:05.860] in about a matter of seconds once they got there.
+- [25:09.410] They traveled a total of 37 hours.
+- [25:13.370] But once they get there, they were very quick.
+- [25:16.290] And also to many other very distinguished guests,
+- [25:19.370] we have an amazing group of people.
+- [25:20.960] I'd like to name every one of you,
+- [25:22.230] but I think a lot of people would be upset.
+- [25:24.870] It's a little cold. The pages of American history
+- [25:29.440] are filled with the tales of titans,
+- [25:31.490] icons, innovators,
+- [25:33.390] and trailblazers who built this country into the greatest,
+- [25:36.270] most ambitious,
+- [25:37.930] and most prosperous nation the world has ever seen,
+- [25:41.070] and we brought it to new levels. I'll tell you,
+- [25:42.980] we were going in the wrong direction for a period of time,
+- [25:46.540] but we've never been hotter than we are right now.
+- [25:49.330] This is the hottest country anywhere in the world.
+- [25:52.730] Yet every captain of industry, every pioneer of science,
+- [25:56.090] and every star whose brilliance has lit up,
+- [25:58.600] the lights of Broadway, all share one thing in common.
+- [26:03.140] They only had the chance to soar
+- [26:06.150] because the veterans had the courage to serve.
+- [26:09.330] They took care of those people. They took of all the stars.
+- [26:13.140] The stars that you read about wouldn't be here
+- [26:15.250] without our veterans.
+- [26:17.050] Everything we have, everything our country has achieved,
+- [26:19.690] has been purchased by the muscle, spine,
+- [26:22.540] and steel of the United States military.
+- [26:26.490] We owe it all to the fierce and noble men
+- [26:28.730] and women of the Army, the Navy, the Air Force,
+- [26:31.750] Space Force, Coast Guard, and the United State Marines.
+- [26:40.080] Is a guy. Our service members,
+- [26:43.490] our own words are the greatest possible tribute
+- [26:48.320] to their immortal valor.
+- [26:51.550] Shortly before the Battle of Bull Run,
+- [26:54.220] Major Sullivan Ballew of Rhode Island
+- [26:58.910] became a big name, didn't he? Wrote to his dear wife Sarah.
+- [27:05.820] He said, I know how great a debt we owe
+- [27:08.510] to those who went before us, he said.
+- [27:11.430] And I'm willing, perfectly willing, darling,
+- [27:13.960] to lay down all my joys of this life
+- [27:17.600] to help maintain this government and to pay that debt.
+- [27:23.120] One week later, Major Ballou did just that.
+- [27:27.450] He gave his life to save our country.
+- [27:30.070] On the night before he jumped into the dark skies
+- [27:33.140] over Normandy on D-Day, Colonel Bull Wolverton knelt
+- [27:37.490] with his men in prayer.
+- [27:38.820] Dear God, he said, we ask only this,
+- [27:41.800] that we, if we die, we must die,
+- [27:45.900] and we as men would die without complaining,
+- [27:50.020] without pleading, and safe in the feeling
+- [27:53.320] that we have done our best for what we believed was right.
+- [27:57.750] We must what is right.
+- [28:00.550] Colonel Wolverton II died for us so bravely in battle.
+- [28:05.560] Today we remember with overwhelming gratitude
+- [28:08.460] the more than one million American service members
+- [28:11.910] who have made the supreme sacrifice
+- [28:14.380] and laid down their lives for the good old USA.
+- [28:18.940] Generation after generation,
+- [28:20.770] America's warriors have left behind the comforts of home
+- [28:24.570] and family to face violence, evil and death.
+- [28:27.720] So that our families could know joy, goodness, and peace.
+- [28:32.280] We honor them so strongly.
+- [28:35.420] Our heroes have lived through unthinkable nightmares
+- [28:38.550] so we could live the American dream,
+- [28:41.430] and the American Dream is coming back again,
+- [28:44.600] stronger than ever before.
+- [28:46.920] And you'll see that as the next few years evolve.
+- [28:52.810] They have volunteered to give their last breaths to all of us.
+- [28:57.680] So that we could breathe free.
+- [29:00.750] And today we know, without any doubt in our hearts,
+- [29:03.810] that after two and a half centuries,
+- [29:05.640] America stands tall
+- [29:07.010] because America's veterans stood so strong.
+- [29:12.650] And soon our country will be stronger than ever before.
+- [29:17.640] The American veterans forge a legacy of gallantry
+- [29:20.910] and daring without parallel in human history.
+- [29:24.570] In September 2009, Army Captain William Swenson
+- [29:29.190] was driving through the Afghan mountains
+- [29:31.920] when his convoy was ambushed by over 60 Taliban insurgents.
+- [29:37.810] He and his comrades were pinned down for hours
+- [29:40.610] without artillery or air support.
+- [29:43.730] A fellow soldier was shot in the chest,
+- [29:46.200] and Captain Swenson crossed an open field
+- [29:49.020] to aid his brother-in-arms.
+- [29:51.460] People said, don't do it, Captain.
+- [29:53.140] Don't do it. He did it.
+- [29:55.230] When the terrorists closed in around them
+- [29:57.450] and demanded their surrender,
+- [29:58.760] Captain Swenson threw a grenade at the enemy
+- [30:02.550] and rallied his men to break their advance.
+- [30:05.740] He then carried the wounded soldiers hundreds of yards
+- [30:09.770] to a rescue helicopter
+- [30:11.110] before charging back three times back and forth,
+- [30:14.260] back and fourth into the fire to save the wounded
+- [30:17.990] and bring them home.
+- [30:20.900] Even after seven hours of fighting, he refused to leave.
+- [30:24.990] Any man behind retired Lieutenant Colonel
+- [30:29.050] William Swenson is here with us in Arlington
+- [30:33.540] and for his actions that day he proudly wears
+- [30:36.650] the Congressional Medal of Honor Colonel Swenson
+- [30:41.030] Thank you very much. Thank you, very much, please.
+- [30:45.240] Thank you. Thank you so much.
+- [31:03.520] The ultimate honor. Thank you.
+- [31:07.320] Another person who shows the medal
+- [31:09.900] of the American veteran is Dale Stovall.
+- [31:13.450] As an Air Force helicopter pilot in Vietnam,
+- [31:16.220] Captain Stovill was assigned to rescue
+- [31:18.650] a downed American airman deep in hostile territory.
+- [31:22.930] Despite the extreme peril, Captain
+- [31:25.070] Stoval took off in his HH-53C helicopter
+- [31:30.280] and soon came under intense fire,
+- [31:32.100] forcing him to turn back.
+- [31:34.250] But the captain refused to abandon his mission.
+- [31:36.830] The next day, he willingly plunged back into the danger
+- [31:40.530] while taking fire from all directions.
+- [31:42.800] He didn't have a chance, he felt.
+- [31:44.800] But he said, I got to do it.
+- [31:46.980] He rescued the downed American pilot
+- [31:49.290] who had been stranded on the ground for 23 days
+- [31:52.210] and brought him back home alive,
+- [31:54.230] completing the deepest rescue behind enemy lines
+- [31:57.740] in the entire Vietnam War.
+- [32:00.930] For this and 11 other harrowing rescues, he was a brave guy.
+- [32:07.600] Dale received the famous Air Force Cross
+- [32:11.060] and the Distinguished Flying
+- [32:12.670] Cross and two Silver Stars,
+- [32:14.850] making him the fourth most combat decorated
+- [32:17.970] Air Force Academy grad of all time.
+- [32:20.650] He retired as a Brigadier General
+- [32:22.650] after 31 years of service.
+- [32:24.550] General Stovall, you are a legend, please.
+- [32:28.290] Thank you, General Stavall. Thank you very much.
+- [32:37.160] Thank you. You look good, General.
+- [32:43.510] You look -- I wish I looked that good.
+- [32:47.490] You look, good. Thank you very much,
+- [32:50.470] General America's warriors never quit, never surrender.
+- [32:54.690] They fight, fight, fight, and they win, win, win.
+- [32:57.940] That's what we do. We win battles.
+- [33:00.530] As you know, today is not only
+- [33:02.160] Veterans Day, but it's my proclamation
+- [33:06.140] that we are now going to be saying and calling Victory Day!
+- [33:11.520] For World War I, Victory Day.
+- [33:14.350] You know, I was recently at an event,
+- [33:17.960] and I saw France was celebrating Victory Day, but we didn't.
+- [33:23.230] And I saw French was celebrating another Victory Day
+- [33:27.080] for World war II,
+- [33:29.110] and other countries were celebrating.
+- [33:30.730] They were all celebrating. We're the one that won the wars.
+- [33:34.270] And I said, from now on, we're going to say
+- [33:36.170] Victory Day for World World I and World War II.
+- [33:40.580] And we could do for plenty of other wars,
+- [33:42.340] but we'll start with those two.
+- [33:45.620] Maybe someday somebody else will add a couple of more
+- [33:48.160] because we won a lot of good ones.
+- [33:49.840] But when I see other countries celebrating
+- [33:52.090] Victory Day, I watch it. I watched UK. I watched Russia.
+- [33:57.880] They were celebrating Victory Day, World War II.
+- [34:01.350] And I said, we got to have a Victory Day.
+- [34:03.160] Nobody even talked about it in our country.
+- [34:05.510] But from now on, we're going to be celebrating Victory Day.
+- [34:09.410] For World War I, for World War II,
+- [34:12.470] and frankly, for everything else.
+- [34:15.210] Under the Trump administration, we're restoring the pride
+- [34:18.380] and the winning spirit of the United States military.
+- [34:21.850] That's why we have officially renamed
+- [34:24.210] the Department of Defense
+- [34:26.290] back to the original name, Department of War.
+- [34:32.150] And remember, we won World War I.
+- [34:34.760] We won World War II. We won everything in between.
+- [34:38.550] We won every thing that came before.
+- [34:42.500] And then we brilliantly decided
+- [34:44.250] to change the name of this great,
+- [34:48.730] this great thing that we all created together.
+- [34:52.880] And we became politically correct.
+- [34:54.650] We don't like being politically correct
+- [34:57.200] So we're not going to be politically correct anymore.
+- [34:59.540] From now on, when we fight a war,
+- [35:02.030] we only fight for one reason, to win.
+- [35:05.300] We fight to win." And under my leadership,
+- [35:10.320] we're also fighting for the great veterans
+- [35:12.780] who have always, always been there for us,
+- [35:17.960] and especially when we needed them and needed them most.
+- [35:21.390] In nine months, the Trump administration
+- [35:24.320] has cut the backlog of VA benefit claims in half.
+- [35:30.830] That's a big achievement,
+- [35:32.150] and Doug is going to get it down to zero.
+- [35:36.190] During the Biden administration,
+- [35:37.730] the backlog exploded like we had never seen before.
+- [35:41.860] And I'm going to eliminate 100 percent of that backlog.
+- [35:44.990] We're moving at that pace.
+- [35:46.210] And already, we've processed more than 3 million backlog
+- [35:49.700] claims the most of any year in the history of the VA.
+- [35:54.080] We've added more than one million extra service hours
+- [35:58.090] across the VA centers,
+- [35:59.600] and we've opened 20 new facilities in 13 states,
+- [36:04.210] something that people said just not possible to do.
+- [36:08.650] We also have brought back VA choice and VA accountability
+- [36:13.250] taken away by the Biden administration
+- [36:16.500] so that when you have to wait on line,
+- [36:18.240] you go out and you get yourself a doctor.
+- [36:20.300] We pay for the doctor. If you have to wait
+- [36:23.330] And the other thing is we fired thousands of people
+- [36:26.070] who didn't take care of our great veterans.
+- [36:30.490] They were sadists.
+- [36:32.080] They were sick people. They were thieves.
+- [36:34.180] They were everything you want to name.
+- [36:36.780] And we got rid of over 9,000 of them.
+- [36:39.850] And then when Biden came in, he hired them back,
+- [36:42.290] many of them, but we got to rid of them
+- [36:44.990] and I think we got a rid of him permanently.
+- [36:46.880] We replace them with people who love our veterans,
+- [36:49.310] not people who are sick people
+- [36:53.120] We're also confronting the challenge
+- [36:54.960] of veterans' homelessness.
+- [36:56.520] And earlier this year, I signed an order
+- [36:58.750] establishing the National Center for Warrior Independence
+- [37:02.480] to house up to 6,000 veterans in need,
+- [37:04.790] and we will not stop until we have ended
+- [37:06.850] the tragedy of homeless veterans.
+- [37:09.760] Once and for all, I'd see in New York
+- [37:11.760] where people that came into our country illegally --
+- [37:15.620] they came in illegally --
+- [37:17.410] would be put up in hotels, and veterans would Be sitting.
+- [37:22.570] On the sidewalk outside of that hotel
+- [37:25.720] where these other people are put in.
+- [37:27.220] And many of the people that came in were put in from prisons.
+- [37:30.810] They were murderers. They were drug dealers.
+- [37:34.430] They were people that we didn't want in our country.
+- [37:36.260] They were staying in hotels, luxury hotels,
+- [37:38.580] and our veterans were sitting on the sidewalks,
+- [37:41.700] watching them go in.
+- [37:43.410] I said, that's never going to happen
+- [37:44.760] under this administration.
+- [37:47.680] I also signed the VA Home Loan Program Reform Act.
+- [37:52.850] Because no veterans should be kicked out of their home
+- [37:56.450] for what they call a late payment.
+- [37:59.140] It's not happening.
+- [38:00.560] And I'm pleased to report that since January,
+- [38:02.690] the veterans' unemployment rate has fallen
+- [38:04.990] by more than 26 percent.
+- [38:07.920] That's amazing. Work hard on that.
+- [38:12.360] And I also want to give a very special
+- [38:14.320] thanks to all of the veteran service organizations
+- [38:16.990] that work so hard.
+- [38:18.230] They're all represented here today.
+- [38:20.950] But they work so hard on behalf of our great veterans
+- [38:23.750] and one of the heroes who reminds us of why we fight
+- [38:27.410] for those who served in uniform,
+- [38:29.290] his army major and West Point grad, Jonathan Turnbull.
+- [38:36.310] In 2019, Jonathan was conducting an operation in Syria
+- [38:41.100] when a suicide bomber approached and detonated his vest,
+- [38:44.300] leaving Jonathan gravely wounded so, so.
+- [38:49.070] Badly wounded, they thought he had no chance.
+- [38:51.930] The injuries were so severe, the doctors gave him,
+- [38:56.270] everybody, they just looked, they all cried,
+- [38:59.060] they knew him, they loved him, and they were just crying.
+- [39:01.530] They said, no chance,
+- [39:04.200] he was resuscitated three separate times,
+- [39:08.930] and he underwent 22 surgeries.
+- [39:12.900] But he refused to give up, he wanted to live.
+- [39:14.880] He loved this country, he loved his family,
+- [39:16.920] he wanted it to live, he was going through hell.
+- [39:20.630] I visited Jonathan and Walter Reed in 2020,
+- [39:23.400] remembered so well,
+- [39:24.720] and today I'm delighted to say that Jonathan is not only alive,
+- [39:29.120] he is here with us, back on his feet,
+- [39:31.960] and living a great life alongside his beautiful wife,
+- [39:36.110] Samantha, and their three incredible children, Jonathan.
+- [39:41.890] Samantha, please. God bless you.
+- [39:45.120] God bless, you. Thank you. Where are you? There he is.
+- [39:50.770] There he, beautiful. Thank you very much.
+- [39:55.470] Thank you, you're a tough guy. You're a tougher.
+- [40:01.920] Nobody could have gone through what you went through.
+- [40:04.000] He's doing good, isn't he? Huh, Samantha?
+- [40:06.330] Thank you both very much both.
+- [40:08.370] And in conclusion, from the very beginning of our country,
+- [40:12.400] our great American flag has always been shielded
+- [40:15.830] and protected by a special cast of citizen
+- [40:18.430] who has stepped forward to safeguard liberty's cause.
+- [40:23.630] When danger came, when duty called,
+- [40:27.140] when almighty God asked who had the will and the strength
+- [40:31.070] to defend the land of the free,
+- [40:32.930] each and every American veteran stood up and said,
+- [40:36.070] Here I am, send me, here I am.
+- [40:40.080] They've come from every corner of this nation,
+- [40:42.320] from the cornfields of Iowa
+- [40:44.170] to the hills and valleys of California,
+- [40:46.690] from this steel towns of Pennsylvania
+- [40:50.100] to the vast plains of Texas,
+- [40:52.590] from the banks of the mighty Mississippi
+- [40:55.150] to the five boroughs of New York City
+- [40:59.280] with selfless commitment and unyielding conviction.
+- [41:03.260] They made themselves America's ramparts
+- [41:06.470] and became the shield between our homeland
+- [41:09.280] and those who would do us harm with everything they had.
+- [41:15.690] They did one thing above all else.
+- [41:18.650] They put America first. On the decks of destroyers,
+- [41:25.220] beneath the thunder of cannon fire and the cockpits ever.
+- [41:29.520] Beautiful B-2 bombers, aren't they beautiful?
+- [41:32.500] Now we respect them so much.
+- [41:35.680] What a job they did that in an instant completely obliterated
+- [41:41.190] Iran's nuclear capability, of which we have just ordered,
+- [41:45.620] I have to say, many more of the updated versions
+- [41:48.800] of that incredible piece of art.
+- [41:55.030] They defended the American Republic,
+- [41:57.120] dispensed American justice. Crush the enemies of freedom
+- [42:01.360] and vanquish the forces of wickedness and evil.
+- [42:05.160] That's what we've been doing.
+- [42:07.170] Because of what every veteran has done today,
+- [42:09.520] the flame of liberty shines bright,
+- [42:11.590] the people of our nation sleep safe,
+- [42:14.340] the American dream surges forward,
+- [42:17.200] and our magnificent destiny
+- [42:19.200] stands more splendid and glorious than ever before.
+- [42:24.160] So I want to say thank you once again to every American.
+- [42:28.510] Veteran, you are very, very special people,
+- [42:32.530] and always in our heart.
+- [42:35.180] Thank you very much, and God bless you,
+- [42:37.400] and God bless the United States of America.
+- [42:40.130] Thank you very much. Thank you everybody. Thank you.
+- [42:44.360] (Applause)
+- [43:03.530] Announcer: Distinguished guests, please stand and join
+- [43:07.030] the United States Army Band and Chorus
+- [43:10.120] in singing God Bless America
+- [43:12.940] and remain standing as we retire the colors.
+- [43:16.160] Please place your right hand over your heart
+- [43:19.000] or render a hand salute.
+- [43:34.620] ♪ (Choir rendition of "God Bless America) ♪
+- [46:20.660] Male Speaker: Retire the colors!
+- [46:25.620] ♪ (Patriotic music) ♪
+- [48:36.210] Announcer: This concludes the 2025 National Veterans
+- [48:40.000] Day observance. Please remain at your seats
+- [48:42.630] for the departure of the official party.
+- [48:45.210] Thank you for joining us today
+- [48:46.970] to celebrate and honor all who serve.
+- [48:50.520] (Applause)
+- [49:14.280] ♪ (Patriotic Music) ♪

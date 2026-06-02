@@ -1,0 +1,879 @@
+<!-- source: https://www.youtube.com/watch?v=r5o2Y4odkoU -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: r5o2Y4odkoU -->
+<!-- date_published: 2025-01-21T02:28:26+00:00 -->
+<!-- date_accessed: 2026-06-02T01:31:15.423360+00:00 -->
+
+# Transcript: President Trump Delivers Remarks at Emancipation Hall
+
+- [00:01.439] ladies and gentlemen we are here as
+- [00:03.679] witnesses to president Trump's
+- [00:05.680] triumphant return to the White
+- [00:13.799] House right now already this morning you
+- [00:16.400] can feel it around the country we
+- [00:17.880] certainly uh felt it here in the city
+- [00:20.600] America is coming together and roaring
+- [00:22.960] back again and it begins today as the
+- [00:25.400] president just told us I I know we'd all
+- [00:27.760] rather be uh gathered together on the
+- [00:29.439] National Mall with hundreds of thousands
+- [00:31.199] of our closest friends but our
+- [00:33.239] disappointment is well overcome with our
+- [00:36.239] excitement for the future that we feel
+- [00:38.200] today we have the chance to make the
+- [00:40.520] next four years the most consequential
+- [00:42.840] period in our nation's history and a
+- [00:46.000] speaker of the house it is my great
+- [00:47.879] pleasure my great honor to introduce to
+- [00:50.520] you the man who will lead us to this new
+- [00:53.680] golden
+- [00:54.840] age the decisive winner of the Electoral
+- [00:58.840] College and the popular vote the 45th
+- [01:03.160] and the 47th and the greatest president
+- [01:05.960] of our lifetimes Donald J Trump
+- [01:27.670] [Music]
+- [01:33.500] [Music]
+- [01:38.960] [Applause]
+- [01:53.320] you
+- [01:54.730] [Applause]
+- [02:00.880] us
+- [02:02.030] [Applause]
+- [02:04.119] us
+- [02:05.640] us us
+- [02:07.790] [Music]
+- [02:15.270] [Applause]
+- [02:47.760] well thank you all so much for being
+- [02:49.400] here and was that a hell of a speech or
+- [02:51.000] what that
+- [02:51.480] [Applause]
+- [02:54.560] was that was a good way to start it off
+- [02:56.920] you know I didn't know exactly what the
+- [02:58.599] president would put in that speech and
+- [02:59.879] and I I I hope to myself that he wasn't
+- [03:02.319] going to hold back and sir you didn't
+- [03:03.799] hold back that was a hell of a way to
+- [03:05.200] start the next four years but I I just
+- [03:07.920] want to say from the bottom of my heart
+- [03:09.440] and I know I speak for the president and
+- [03:11.000] for all of us thank you thank you thank
+- [03:13.799] you for making this possible we love you
+- [03:16.280] we wouldn't be here without you and
+- [03:17.640] we're going to make America great again
+- [03:19.360] together for the next four
+- [03:27.799] years and the last the last last thing
+- [03:30.120] I'll say is you know having stood
+- [03:32.879] outside for about five minutes to wave
+- [03:35.000] goodbye to the bidens thank God we moved
+- [03:37.799] that thing indoors because it was a
+- [03:39.159] beautiful ceremony and it was cold as
+- [03:40.840] hell outside so sir the 45th and 47th
+- [03:45.159] president of the United States Donald J
+- [03:54.840] Trump no he's right I looked I said oh
+- [03:57.560] look at this beautiful sunny day
+- [04:00.599] we blew it we blew it and then I went
+- [04:03.079] outside and we were freezing you would
+- [04:05.360] have been very unhappy the sun was very
+- [04:08.040] deceptive I will tell you it is cold out
+- [04:11.120] and I'm sort of saying you know that was
+- [04:12.560] so beautiful today maybe they should do
+- [04:14.239] it there every four years does that make
+- [04:16.840] sense I don't know because you know the
+- [04:18.919] outdoor thing is really good but it gets
+- [04:20.799] a little cold around this time of the
+- [04:22.400] year as some people have noticed and a
+- [04:25.040] lot of times they suffer through it
+- [04:27.040] there was no suffering in that room it
+- [04:28.639] was 72 de it was perfect with the best
+- [04:31.160] AC the best Acoustics I think I've ever
+- [04:33.800] heard in a room this is not so bad
+- [04:36.039] either but I just want to say you're a
+- [04:39.880] younger far more beautiful audience that
+- [04:42.880] I just spoke to and I want to keep it
+- [04:46.120] off the record I want to keep that off
+- [04:49.160] the
+- [04:50.479] Record because I don't want to have all
+- [04:53.000] those big shots up there I don't want
+- [04:54.720] anything think you're more powerful than
+- [04:56.440] them you look better than them and I
+- [04:58.840] love you
+- [05:02.880] now we just had a great time we just had
+- [05:04.919] a great day uh this was amazing you know
+- [05:08.600] when you think we took a a journey I
+- [05:11.360] mentioned in the speech a lot of people
+- [05:12.919] said that was not a journey that was
+- [05:14.960] possible and uh it was indeed possible I
+- [05:17.560] didn't really know too much about what
+- [05:18.919] they were saying when they said that but
+- [05:20.919] a lot of people felt it and uh we hooked
+- [05:24.240] up with JD very early I watched JD over
+- [05:26.759] a period of time I endorsed him in Ohio
+- [05:29.840] he was a great a great Senator and uh
+- [05:33.520] very very smart the only one smarter
+- [05:35.560] than him was his wife that was I would
+- [05:38.479] have chosen her but somehow the line of
+- [05:40.840] the line of succession didn't work that
+- [05:42.840] way right but now she's great and he's
+- [05:45.560] great this is a great beautiful couple
+- [05:47.680] and uh
+- [05:49.560] unbelievable career I just said to him
+- [05:51.840] you are very upwardly mobile because he
+- [05:54.639] hasn't been doing it that long but he
+- [05:56.400] picked it up so quickly remember the
+- [05:58.160] first week was a little bit like the
+- [06:00.639] fake news was hitting him really hard
+- [06:03.319] and I said oh this may be tough but
+- [06:06.120] after that it was smooth selling for him
+- [06:08.520] he took on everybody he took on the the
+- [06:12.280] meanest I don't want to use the word
+- [06:14.280] corrupt because we're into a new system
+- [06:16.160] so let's wait till the corruption begins
+- [06:18.360] because it will but he took on some
+- [06:20.720] pretty mean people and he handled it
+- [06:23.000] well I want to also congratulate Mike
+- [06:25.080] Johnson for the job that he's doing
+- [06:32.000] see we we gave him a majority of almost
+- [06:35.479] nothing and then I said to make it
+- [06:37.599] tougher on him let me take two or three
+- [06:39.440] of the people right I said he'll only
+- [06:41.960] have to suffer with that for about three
+- [06:43.599] months how are they doing by the way are
+- [06:45.160] they is that moving along totally
+- [06:48.080] un I said do you mind if I take this one
+- [06:50.680] that one and a couple of others he
+- [06:52.880] didn't mind he can handle it no he's a
+- [06:55.000] man that's liked by everybody I've never
+- [06:56.680] met a man like this you've got two how
+- [06:58.360] many is it 2119 or 220 or something 220
+- [07:02.039] and of the 220 219 really like him I
+- [07:04.599] noticed he got one negative vote once
+- [07:06.479] about two weeks ago but I think even 220
+- [07:09.280] like them if you want to know the truth
+- [07:10.759] and that's very unusual I know a lot of
+- [07:13.039] nice guys in Congress and they have 35
+- [07:15.160] people that hate them so if you have 35
+- [07:17.680] people that hate you and you only have
+- [07:19.080] one or two or three votes you'll have
+- [07:20.720] five I think but that's that's going to
+- [07:22.759] be like you know the good news is when
+- [07:24.800] we get to that five number it's going to
+- [07:26.599] feel like a massive majority we you
+- [07:30.039] could be really nasty to a couple of
+- [07:32.120] them at least so it's going to feel like
+- [07:34.800] kiding your head on the wall and
+- [07:36.879] stopping it feels so good to stop but
+- [07:39.199] he's done a fantastic job and Steve
+- [07:41.160] scales is uh he's our hero because you
+- [07:44.440] know I was with
+- [07:48.720] him you talk about being shot I was with
+- [07:52.800] him he got some bad ones and his in
+- [07:55.520] credible wife and she uh really loves
+- [07:58.759] him you know know you never know about
+- [08:00.599] that I've been with other people they
+- [08:02.479] were doing poorly and the wife is like
+- [08:04.360] looking at a watch she can't get out of
+- [08:06.000] the hospital fast enough how's he doing
+- [08:09.440] I don't know he's all right that woman
+- [08:12.440] was a mess she was crying and crying no
+- [08:16.520] they're going to take him they're going
+- [08:17.680] to take him I told Steve when he finally
+- [08:19.960] woke up it was a while to the doctor
+- [08:22.240] told me it was the most blood they've
+- [08:24.960] ever transfused in any patient they've
+- [08:27.280] never done anything like it and here is
+- [08:29.720] the picture of strength right and he's
+- [08:31.599] been a great friend
+- [08:34.080] ofine with the family because of the
+- [08:37.120] family and what a job you did it worked
+- [08:39.880] out pretty much uh pretty much better
+- [08:42.800] than we even thought right and I did
+- [08:45.279] have a couple of things you know to say
+- [08:46.839] that were extremely
+- [08:48.480] controversial and between JD and
+- [08:51.959] Melania and anybody else that heard
+- [08:54.320] please sir it's such a beautiful
+- [08:56.839] unifying speech please sir don't say
+- [08:59.279] this these
+- [09:00.560] things I said I'm telling you it's going
+- [09:04.160] to play
+- [09:05.200] great they said you're right for this
+- [09:07.480] group of people it's going to play
+- [09:09.560] You're the only ones I heard by n but we
+- [09:11.920] had some Beauties didn't we Milani she
+- [09:13.800] said sir call me sir when she's
+- [09:18.440] angry no no I'm only kidding I better
+- [09:21.760] say I'm only kidding and the Press is
+- [09:23.200] going to pick that one up loud andly no
+- [09:26.800] but she said uh no I I I think it's it
+- [09:29.839] would be terrible it's such a nice
+- [09:31.519] speech I think it's you know it all
+- [09:33.320] depends on your delivery how was the
+- [09:35.160] delivery was it
+- [09:39.519] good but she said it's such a beautiful
+- [09:42.600] such a beautiful speech you can't put
+- [09:44.440] things in there that you were going to
+- [09:46.560] put in and I I was going to talk about
+- [09:50.040] the j6
+- [09:51.839] hostages but you'll be happy because you
+- [09:55.160] know it's action not words that count
+- [09:58.480] and you're going to see a lot action on
+- [10:00.720] the
+- [10:05.160] j6 and I was going to talk about the
+- [10:07.959] things that Joe did today with the
+- [10:10.000] aparts of people that
+- [10:12.320] were very very guilty of very bad crimes
+- [10:15.720] like the unselect committee of political
+- [10:19.839] thugs where they literally I mean what
+- [10:24.079] they did is they destroyed and deleted
+- [10:27.079] all of the information all of the
+- [10:30.079] hearings practically not a thing left
+- [10:33.360] they deleted all the information on
+- [10:35.440] Nancy Pelosi having turned down the
+- [10:37.560] offer of 10,000 soldiers you wouldn't
+- [10:39.480] have needed 10,000 you could have had
+- [10:41.320] 500 and it would have stopped because we
+- [10:44.720] may have a million people that day the
+- [10:47.519] people that were there you don't see any
+- [10:48.959] photographs but we have a lot of great
+- [10:50.720] photos but you don't see those
+- [10:52.560] photographs they don't put them in they
+- [10:53.920] show the people at the capital but I was
+- [10:56.720] talking about uh that I was going to
+- [10:59.839] talk about that they said please don't
+- [11:02.839] bring that up right now you can bring it
+- [11:04.560] up tomorrow I said how about now in
+- [11:06.399] front of the very I'll bring it up right
+- [11:10.560] now you know this little time delay is
+- [11:13.279] good because we're getting great reviews
+- [11:14.639] on the speech now watch they'll take the
+- [11:16.920] speech and say I didn't like it because
+- [11:18.760] he left there and he talked to people
+- [11:21.120] but we're giving you a little more
+- [11:22.320] information that we gave upstairs but no
+- [11:25.120] they pardoned a lot of people they
+- [11:26.839] pardoned before we even get to today
+- [11:28.880] they pardon what is it 33 murderers
+- [11:33.160] absolute murderers the worst murderers
+- [11:35.720] you know when you get to death sentence
+- [11:37.680] in the United States you have to be bad
+- [11:40.480] because they don't give it much and he
+- [11:42.880] pardoned almost everybody having a death
+- [11:45.760] sentence and if you went through the
+- [11:47.519] crimes that were committed you wouldn't
+- [11:49.959] even believe him the level of
+- [11:53.000] violence the people that were killed the
+- [11:55.560] innocence of people that were killed and
+- [11:57.320] children killed by these people and he
+- [11:58.880] pardon him for whatever reason he spared
+- [12:01.800] them and but they didn't spare the
+- [12:04.120] people that they killed and you know who
+- [12:06.279] knows what happens in the future it's
+- [12:07.880] one of the worst because a lot of times
+- [12:09.399] they let them out early after that you
+- [12:10.920] know they say you're going to be in for
+- [12:12.160] life but then all of a sudden they get
+- [12:14.279] let out for good behavior and then they
+- [12:16.959] go on a rampage it's one of those little
+- [12:19.360] things right but I was going to talk
+- [12:21.560] about that but I was really going to
+- [12:23.880] talk about the uh the level of you know
+- [12:27.600] what's going on why are we doing this
+- [12:29.320] why are
+- [12:30.120] we trying to help a guy like Millie why
+- [12:34.079] are we doing Millie he was pardoned what
+- [12:36.160] he said terrible what he said why are we
+- [12:39.600] helping some of the people why are we
+- [12:41.920] helping Liz Cheney I mean Liz Cheney is
+- [12:44.160] a disaster she's a crying lunatic and
+- [12:47.160] crying crying Adam kininger he's a super
+- [12:50.320] crying I never saw the guy not crying
+- [12:52.000] he's always crying I looked at him I
+- [12:54.600] remember years ago he was actually on my
+- [12:57.199] side and then one day you know when you
+- [12:59.360] don't want to kill people in Wars they
+- [13:00.959] turn against you Liz Janie hated the
+- [13:02.920] concept of of uh not going to war with
+- [13:06.320] everybody let's kill everybody let spend
+- [13:08.360] a lot of money on military equipment you
+- [13:10.760] know where her father works right and uh
+- [13:14.399] but what she did was incredible think of
+- [13:16.720] it they destroyed and deleted all of
+- [13:19.279] that information that went on for almost
+- [13:20.959] two years against Trump and the reason
+- [13:23.440] they did because it was all false like
+- [13:26.240] the person that said I tried to strangle
+- [13:29.519] a secret service agent that's one of the
+- [13:31.800] toughest human beings I think I've ever
+- [13:33.839] seen I actually had a friend saying
+- [13:37.279] please don't change that sir you are the
+- [13:39.199] coolest sucker in
+- [13:41.399] history remember she said I put my hands
+- [13:44.000] around his
+- [13:45.079] neck because he wouldn't go to the
+- [13:47.160] capital made up
+- [13:49.000] fiction and I was rebuffed and the guy
+- [13:52.000] on the right is a massive weightlifter
+- [13:54.560] probably stronger than me do you think
+- [13:56.279] he's stronger than me honey you know who
+- [13:57.839] I'm talking possibly stronger than me
+- [14:01.440] slightly younger than me like I won't
+- [14:03.680] say how many years because I don't want
+- [14:06.240] to talk about that but a lot of
+- [14:08.560] years but I had a friend that said why
+- [14:11.079] are you disputing that story that's the
+- [14:13.240] coolest story I've ever heard that I
+- [14:15.519] would attack a karate
+- [14:17.440] champion get slightly rebuffed and then
+- [14:20.079] throw my arms around a guy with a neck
+- [14:22.279] about this
+- [14:23.759] big even though there are bars you know
+- [14:26.079] there are bars that you can't really do
+- [14:28.160] that anyways so uh so I wanted to talk
+- [14:32.160] about that but all of that stuff got
+- [14:34.360] deleted and the reason it got deleted is
+- [14:36.480] they were all caught and Li you know
+- [14:38.000] Secret Service testified and they said
+- [14:39.880] it didn't
+- [14:41.160] happen actually the two guys were very
+- [14:43.519] embarrassed they're suffering because uh
+- [14:46.600] their friends are saying did Trump
+- [14:48.440] really do that to
+- [14:49.800] you but they gained a whole new respect
+- [14:52.480] for me but it was just make belief stuff
+- [14:55.480] and there were a lot of make belief
+- [14:56.800] stories made up so rather than suffer
+- [14:59.839] the Wrath like the story with Nancy
+- [15:01.839] Pelos I offered a 10,000 soldiers she
+- [15:04.959] knows it she admitted it on tape that
+- [15:07.360] her daughter made she's a videographer
+- [15:10.040] or whatever you call her which I'm glad
+- [15:12.759] she is so she can't be in good stad with
+- [15:15.440] Nancy but Nancy said it was my
+- [15:18.120] responsibility as she's leaving the
+- [15:20.120] capital she said it was and it was she's
+- [15:22.000] in charge of security at the capital but
+- [15:24.320] I offered them up to 10,000 soldiers
+- [15:27.720] even more one time I said more as many
+- [15:29.759] as you need but you needed 4 500 four
+- [15:32.759] five you 10,000 that'll be more than the
+- [15:35.160] number of people there by lot but we
+- [15:38.279] offered her 10,000 think of it 10,000
+- [15:41.199] soldiers in other words j6 wouldn't be
+- [15:44.120] j6 they would have been no j6 but she
+- [15:46.800] rebuffed them she didn't like it no she
+- [15:49.040] didn't like it maybe she wanted that to
+- [15:51.240] happen but she's guilty as hell and now
+- [15:55.680] we would have to go through the process
+- [15:57.440] because they destroyed all of evidence
+- [15:59.360] they deleted everything there's
+- [16:01.279] virtually nothing left the other fake
+- [16:03.800] story and so many other fake stories and
+- [16:06.600] many people came out on our side and
+- [16:09.639] those people now would got to find them
+- [16:11.839] there's nothing left so that's a
+- [16:14.040] criminal offense if that were a civil
+- [16:16.000] case it would be a criminal offense if
+- [16:18.399] that were if that happened civil where
+- [16:20.199] you did that it would be a criminal
+- [16:21.959] offense so I decided I'm not going to
+- [16:24.839] make this speech complicated I'm going
+- [16:26.800] to make it beautiful I'm going to make
+- [16:28.440] it a unifying speech and then when they
+- [16:31.440] said we have a a group of people that
+- [16:34.199] are serious Trump fans I said this is
+- [16:37.639] the time to tell those
+- [16:45.360] stories he
+- [16:48.079] know so but seriously I'd like to uh I
+- [16:52.480] think it was a tremendous success I
+- [16:54.000] think we're very lucky we put it inside
+- [16:56.480] because it is really cold we just went
+- [16:59.399] to to the helicopter out of respect
+- [17:02.680] something that's taken place for a long
+- [17:04.600] time I guess it's his old as helicopters
+- [17:08.520] you used to get into a stage coach now
+- [17:10.280] you get into a helicopter times change
+- [17:13.160] but it's pretty uh pretty old custom and
+- [17:16.959] it's a beautiful custom actually it's a
+- [17:18.720] beautiful custom I wish we could have
+- [17:20.240] had a a better relationship I wish we
+- [17:22.640] could have had a better relationship
+- [17:24.280] between Republicans and Democrats I was
+- [17:26.640] with Senator Schumer I said Chuck I I
+- [17:28.919] think it's time we all start getting
+- [17:30.559] along a little bit because it doesn't
+- [17:32.160] make sense I mean we literally never get
+- [17:34.720] a Democrat vote they never get a
+- [17:36.280] Republican vote
+- [17:38.120] almost and uh although there is a bill
+- [17:40.799] coming up very shortly that we have a
+- [17:42.559] lot of democrat votes right it's going
+- [17:44.720] to be a a very beautiful Bill we're
+- [17:48.160] going to have an a signing I would say
+- [17:49.520] within a week or so I think and it's
+- [17:51.919] going to be a very good bill you all
+- [17:54.160] know what I'm talking about so uh I just
+- [17:56.840] want to thank you all for being here you
+- [17:58.159] have been our fan hands from day one all
+- [18:00.240] look at all these people all over you
+- [18:02.400] been
+- [18:06.440] off this has
+- [18:08.720] been this has
+- [18:10.840] been a uh has there ever been anything
+- [18:14.320] like it there's never been anything like
+- [18:16.360] it this has been a movement like no
+- [18:18.120] movement ever in history for probably
+- [18:20.280] any country let alone this country you
+- [18:22.880] know if somebody's running for president
+- [18:25.480] and if they go out and they announce
+- [18:27.600] they're going to Arizona they're going
+- [18:29.400] to Nevada they're going to some place if
+- [18:32.520] you have 200 or 300 people that would be
+- [18:35.400] standard Ronald Reagan would go out I
+- [18:37.720] mean outside of the last couple of days
+- [18:39.320] where people get a little excited but
+- [18:40.679] even then you have a couple of thousand
+- [18:42.640] people but if you're going to go
+- [18:46.159] someplace any place any one of the Swing
+- [18:48.480] States any one of the other states I
+- [18:50.840] mean the how about the non- swing States
+- [18:52.600] we won Alabama by 48 points we won
+- [18:55.640] Tennessee by Massive numbers Wyoming we
+- [18:58.440] won by numbers that are nobody's ever
+- [19:01.159] seen
+- [19:03.400] numbers and you know places like
+- [19:05.559] California we did great but when they
+- [19:07.520] send out like 38 million ballots nobody
+- [19:10.039] knows where the hell they're sending
+- [19:11.440] them and then they come pouring back the
+- [19:13.240] whole thing you know they passed a law
+- [19:15.480] in California that if you work in an
+- [19:18.320] election Bureau and if you so much as
+- [19:21.120] ask for a voter ID if you say Sir ma'am
+- [19:25.000] could I please look at your voter ID
+- [19:27.080] they have the right to put you in jail
+- [19:28.400] your criminal can you believe that
+- [19:30.520] there's only one reason that happens
+- [19:32.640] they want to cheat so they had it where
+- [19:36.000] voter ID wasn't accepted but now if you
+- [19:38.840] even ask for this is seriously a bill
+- [19:41.200] that was just signed passed in in their
+- [19:44.080] legislature and it was signed and I
+- [19:48.000] think when we get things cleaned up and
+- [19:50.000] we get back to a little bit of normal
+- [19:52.120] see I'm going to ask the speaker to
+- [19:53.520] really get involved because I think we
+- [19:55.760] would have won the state of California
+- [19:57.880] because you know if you look at my
+- [19:59.720] numbers with Hispanic we're at
+- [20:01.960] 56% and we were winning we won the Texas
+- [20:04.720] border that had never been won as the
+- [20:07.960] governor said he's doing a good job the
+- [20:09.640] governor by the way of Texas but as the
+- [20:12.080] governor said it hasn't oh did I get
+- [20:17.440] lucky did I get lucky supposing I said
+- [20:21.400] you know he's not here but the governor
+- [20:23.280] of Texas has done a terrible job wow
+- [20:26.640] look at you
+- [20:28.840] you mean we couldn't get you up in the
+- [20:30.679] front bro I tell
+- [20:34.000] you supposing I said JD the governor of
+- [20:37.880] Texas he's not doing his job you heard
+- [20:41.240] what I said see I didn't know you were
+- [20:42.960] there I said he's doing he's doing a
+- [20:45.320] great job he's doing a phenomenal job
+- [20:47.240] but now you're going to have a partner
+- [20:48.520] that's going to work with you because
+- [20:50.280] you didn't have not only didn't he have
+- [20:52.159] a
+- [20:52.919] partner he had people selling the
+- [20:55.760] wall right we have a fence structure
+- [20:58.480] that that we worked on the governor
+- [21:00.039] worked on with me and I didn't love it
+- [21:02.360] to be honest with you I wanted a nice uh
+- [21:04.440] preast concrete you know 40 50 ft high
+- [21:07.720] like a beautiful could have been a
+- [21:09.840] t-shaped white shap I love construction
+- [21:13.559] I wanted that circuit to go up maybe 50
+- [21:15.720] 60 ft it would have look beautiful a
+- [21:17.520] nice y shape and they said the problem
+- [21:20.640] is Sir they climbed that like a rabbit I
+- [21:23.480] said what do you mean no way and they
+- [21:25.039] brought some of these guys out they
+- [21:27.000] climbed it like and the other thing is
+- [21:29.640] you hit it with acid and the thing will
+- [21:31.279] disintegrate you know they have things
+- [21:32.720] for concrete so they needed very
+- [21:34.880] hardened steel very special steel and
+- [21:37.320] then they needed 7,000 lb concrete
+- [21:39.480] inside that steel you know inside that
+- [21:40.960] steel and then they have a rebar that's
+- [21:43.480] the toughest uh steel made very hard to
+- [21:47.320] cut so this is why very little is cut I
+- [21:50.400] mean it's right and then they put a
+- [21:51.880] anti-climb panel on top I hated it I
+- [21:54.880] said it's so
+- [21:56.520] unattractive and and I said why would
+- [21:58.679] that work I don't believe it works and I
+- [22:00.159] went to watch it bought a patrol gave a
+- [22:02.440] display we had actually two sets of
+- [22:05.159] climbers the guys that climb up walls
+- [22:08.039] with drugs on their back I mean they got
+- [22:09.640] like 60 70 pounds of drug and they go as
+- [22:11.760] fast as you can walk they go or we have
+- [22:15.400] Mount Everest type cliners and honestly
+- [22:18.279] the drug guys were much better I
+- [22:20.120] couldn't the drug guys blew them away
+- [22:23.039] right but it's true The antil Climb
+- [22:25.320] panel they couldn't get around it they
+- [22:27.320] just couldn't when you didn't have have
+- [22:28.919] it so sometimes you sacrifice Beauty for
+- [22:33.279] efficiency and we did so we built this
+- [22:36.039] uh wall and we had we built over 500
+- [22:40.440] miles of wall that's why we had such
+- [22:42.159] good numbers the famous chart that came
+- [22:44.520] down very thankfully the chart that came
+- [22:46.360] down on my right Governor had I not
+- [22:48.840] looked over there I'm not speaking right
+- [22:50.720] now you might be speaking here you want
+- [22:52.200] to know other the TRU you JD and got a
+- [22:55.520] lot of great people in this party but uh
+- [22:57.640] it was I got very lucky but we had the
+- [22:59.240] best numbers we've ever had but I bought
+- [23:01.760] you know what happens is when you fill
+- [23:03.120] it up it's like water you fill it up now
+- [23:05.520] we have 571 miles of wall and they would
+- [23:09.039] always say you know when we renovated a
+- [23:11.919] wall so there'd be like a piece of
+- [23:14.000] plywood sitting there for 60 years or a
+- [23:18.240] 2x4 sitting for 60 years on the ground
+- [23:20.919] and
+- [23:21.880] rotting because you know and they say
+- [23:24.559] you didn't build a new wall here we're
+- [23:26.320] building 50 ft up in the air 30 ft
+- [23:29.400] sections 50t sections All Steel all
+- [23:32.039] concrete all everything and all by the
+- [23:33.880] way they don't even want me to say this
+- [23:35.640] but what the hell doesn't take that long
+- [23:37.320] time they're all wired for all of the
+- [23:39.600] equipment we put wires in everything so
+- [23:41.559] they can easily wire for all the
+- [23:43.640] different types of equipments and if
+- [23:45.400] there's a doubt we h a wire whenever we
+- [23:48.760] just look you just find the wires all
+- [23:50.400] over the place up top so we could just
+- [23:52.039] hook it up we don't have to have wires
+- [23:54.919] on the outside which wouldn't do too
+- [23:56.559] well right so anyway so
+- [23:59.039] we built an extra 200 miles of wall and
+- [24:03.480] the governor wanted to buy it he tried
+- [24:05.279] to buy it and they wouldn't sell it to
+- [24:06.840] him he wanted to put it up himself could
+- [24:08.400] have been done in 3 to four weeks 200
+- [24:10.640] more miles because when you do it now
+- [24:13.240] they just keep going further out further
+- [24:15.000] out further out getting around so we did
+- [24:17.480] an extra 200 miles and it's it was all
+- [24:21.880] bought and they announced that they're
+- [24:25.480] not going to put it up and that's when I
+- [24:27.039] realized they wanted open board ERS and
+- [24:28.799] that's what I realize that people are
+- [24:30.159] going to come pouring through the wall
+- [24:33.679] like nobody's ever seen before but
+- [24:35.679] you've seen it a lot of you are here
+- [24:37.559] because of that I made it my number one
+- [24:39.559] issue they all said inflation was the
+- [24:41.320] number one issue I said I disagree I
+- [24:43.120] think people coming into our country
+- [24:45.440] from prisons and from mental
+- [24:46.919] institutions is a bigger issue for the
+- [24:48.760] people that I know and I made it my
+- [24:50.880] number one I talked about inflation too
+- [24:52.720] but you know how many times can you say
+- [24:54.279] that an apple is doubled in cost I'd say
+- [24:57.559] it and hit it hard but then I go back to
+- [25:00.200] the fact that we don't want criminals
+- [25:02.840] coming into our country we don't want
+- [25:04.360] the Jails of every country in the world
+- [25:07.200] virtually being deposited into the
+- [25:09.760] United States and that man had a suffer
+- [25:11.640] with it and he did an unbelievable job
+- [25:14.440] I'll tell you he was a very popular
+- [25:15.919] Governor but now he's like an unbeatable
+- [25:18.279] Governor because of your border policies
+- [25:20.200] he was fantastic and he really
+- [25:25.440] was governor Abbott he a great he's a
+- [25:29.640] great man great leader and uh but it did
+- [25:32.600] make him very more did you do it you
+- [25:34.880] didn't do that for politics you did it
+- [25:36.440] because you want to do the right thing
+- [25:37.640] but I tell you it's sure as H work for
+- [25:39.159] politics too it's self-preservation
+- [25:42.360] that's right but no because the people
+- [25:44.559] are demanding it the people of Texas are
+- [25:46.480] demanding it the people are demanding it
+- [25:48.039] all over so anyway so we built it and
+- [25:52.440] they wouldn't let us use it they
+- [25:54.080] wouldn't let the governor use it and
+- [25:55.840] other Governors they wouldn't let him
+- [25:57.200] use it but he was the leader of the pack
+- [25:59.720] and uh did a great job and then we heard
+- [26:02.840] about a month ago that not only wouldn't
+- [26:05.440] they let it excuse it they were selling
+- [26:07.240] it they were going to sell it for 5
+- [26:08.679] cents and the dollar now 5 cents and the
+- [26:11.559] dollar then but today it would cost more
+- [26:13.559] than twice as much to build because we
+- [26:15.200] bought it like six years ago and it was
+- [26:18.360] just sitting on the ground and that does
+- [26:20.039] not do well for the whole thing but it
+- [26:22.480] was just sitting on the ground and I
+- [26:24.559] heard about it and I called the governor
+- [26:27.360] and I called a lot of people your
+- [26:28.799] attorney
+- [26:29.720] general and here's the story they were
+- [26:33.080] going to buy it and these are great
+- [26:34.600] business people they were going to buy
+- [26:36.559] it for 5 cents on the dollar or less and
+- [26:40.399] they were calling us up we'll sell it to
+- [26:43.480] you for 200 cents on the dollar in other
+- [26:46.679] words it will cost you twice as much so
+- [26:49.440] it's 200 cents on the
+- [26:51.279] dollar I said Can somebody explain that
+- [26:54.039] to a judge I mean how corrupt is that
+- [26:57.320] you think that say maybe we'll sell it
+- [26:59.799] to you for 20 cents 30 cents but not 200
+- [27:05.279] cents so they were going to buy
+- [27:07.279] something for 5 cents and they were
+- [27:09.880] going to sell it to us for a Fortune
+- [27:11.320] they're going to make it would be they'd
+- [27:13.159] have it down at in Fortune magazine that
+- [27:15.360] put it of the deal of the Year okay you
+- [27:18.399] buy something like that but it was so
+- [27:20.000] corrupt and so horrible and when we told
+- [27:23.279] that to the administration they didn't
+- [27:25.000] care they just kept going forward they
+- [27:26.600] couldn't care less and they kept going
+- [27:29.200] forward they knew that they were trying
+- [27:30.919] to sell it back to us they would have
+- [27:32.159] sold it back to us you would have ended
+- [27:33.600] up buying it you would have paid
+- [27:35.080] probably 50 60 C who knows but they were
+- [27:38.440] going to use it for scrap metal but then
+- [27:39.880] they made a much better deal they could
+- [27:41.320] just buy it and sell it to us for 15 20
+- [27:44.320] times what they paid 20 times think of
+- [27:46.600] it like 20 times what they paid and uh
+- [27:50.640] we wouldn't let it happen and the
+- [27:52.559] governor with his attorney general Ken
+- [27:54.679] baxton they made a fantastic uh they a
+- [27:58.480] good
+- [27:59.279] lawyer he's he's pushing around pretty
+- [28:01.720] good by people right I said you got the
+- [28:04.039] you got a great attorney general they
+- [28:05.720] should leave Malone he was with me and
+- [28:08.799] But Ken and the governor went to court
+- [28:10.919] and a judge actually became incensed and
+- [28:13.840] actually called for an investigation How
+- [28:15.679] could a thing like this happen so uh he
+- [28:18.399] stopped it so we're waiting to put that
+- [28:20.000] wall up and now that you have a new
+- [28:21.559] president that wall will go up so
+- [28:24.440] fast the governor will complain sir
+- [28:29.640] this is Greg Abbott sir please the wall
+- [28:32.440] is going up too fast please don't do
+- [28:34.720] that you know the story about winning no
+- [28:37.240] no we're going to win too much we're
+- [28:38.799] winning too much please let's St people
+- [28:40.799] always love that word we'll do this with
+- [28:42.159] the wall Governor Abbot calls sir the
+- [28:44.880] wall is going up too fast we can't take
+- [28:47.000] it we just can't take it no I think
+- [28:49.159] you'll be very happy if the wall goes up
+- [28:50.919] too fast right but we'll get that do and
+- [28:53.480] we'll work with you on that but it was a
+- [28:55.000] great decision by a great Texas judge
+- [28:57.679] right and uh it was beautiful beautiful
+- [29:00.200] to watch we he stopped them right in
+- [29:01.640] their track I mean they were literally
+- [29:03.559] loading the stuff on trucks it was
+- [29:05.440] terrible I honestly it was terrible and
+- [29:08.200] he wouldn't take it so I'm so glad I
+- [29:09.919] mentioned that they have a really good
+- [29:11.320] governor in Texas not and I swear I
+- [29:13.880] didn't know he was here I swear to you
+- [29:16.720] sounds like a setup I didn't know you
+- [29:18.559] were in I did I get lucky I said the
+- [29:21.399] right thing cuz there would have been
+- [29:23.080] moments when I wasn't so happy with him
+- [29:25.120] you know but not too many I can tell you
+- [29:27.799] that so anyway it's good to see you too
+- [29:29.519] Governor great but I just want to thank
+- [29:31.919] everybody you've been uh incredible I
+- [29:34.360] recognize so many of you it's so crazy
+- [29:36.720] but uh this has been a long journey this
+- [29:39.000] was a journey that started in 2015
+- [29:42.480] probably started 20 years before that
+- [29:44.320] people used to say you going to run for
+- [29:45.919] president you're going to run run run
+- [29:48.279] and I always said no no no I don't want
+- [29:51.159] and then one day I said let's give it a
+- [29:54.480] shot and what I talked about then was
+- [29:56.840] the Border too I think it's probably was
+- [29:58.640] the number one issue for me uh back in
+- [30:01.279] 2015 2016 I talked about the border and
+- [30:04.840] now I talked about the Border but this
+- [30:06.360] border is much worse we fixed the Border
+- [30:08.080] was totally fixed there was nothing to
+- [30:09.559] talk about in 2020 by the way that
+- [30:11.880] election was totally rigged but these
+- [30:13.600] are the that's okay it was a rigged
+- [30:17.559] election you know the only thing good
+- [30:19.600] about it it showed how bad they are
+- [30:21.480] showed how incompetent and and frankly
+- [30:24.440] historically this is a much bigger event
+- [30:26.720] if that would have gone like it should
+- [30:28.000] should have the only the bad thing about
+- [30:30.159] it is some bad things happen like a lot
+- [30:32.080] of people in our country that wouldn't
+- [30:33.480] be in our country right now so you know
+- [30:35.240] that's the that's the bad part but I
+- [30:37.760] will say that uh it started in 2015 and
+- [30:41.519] right from the beginning when we went
+- [30:43.000] went to the top that day one they
+- [30:45.760] announced Trump and Trump went to number
+- [30:47.559] one and stayed there for the whole
+- [30:49.440] primary and then we took on Hillary she
+- [30:53.760] didn't look too happy today we took on
+- [30:56.919] Hillary a very nice person but we took
+- [31:00.399] on Hillary and we defeated Hillary and
+- [31:02.960] then we uh did much better the second
+- [31:05.600] time in 2020 you know we got millions
+- [31:07.519] more votes we got millions like 10 12
+- [31:10.519] million more votes than we did the first
+- [31:12.519] time no president has ever gotten that
+- [31:15.240] many more votes I I got like n million
+- [31:17.840] more than anybody else had ever gotten
+- [31:20.080] and they said we lost and because of
+- [31:23.000] that I said to Melania what do you think
+- [31:26.760] and she said you want to do this again
+- [31:29.720] and and had I had we lost and had I
+- [31:31.760] thought we lost I wouldn't do it again
+- [31:33.279] because that's like the ultimate poll
+- [31:34.880] right but I knew how well we did and
+- [31:37.360] this time we we made it too big to rig
+- [31:39.240] it was so big they tried they tried they
+- [31:42.720] tried like a
+- [31:46.000] but they tried they tried to do it and
+- [31:50.000] around 902 they gave up last time they
+- [31:52.880] did bad things this time they just said
+- [31:56.039] you know U I don't know if you saw Mr
+- [31:57.960] speaker in Washington they had placards
+- [32:00.399] they were all set to March they thought
+- [32:02.559] it'll be closer uh a gentleman asked me
+- [32:05.559] a very respected gentleman asked me
+- [32:07.240] yesterday how come the polls were so
+- [32:09.519] wrong they showed you winning but not in
+- [32:11.919] a landslide I said because people that
+- [32:14.679] are true trumpers are so angry at the
+- [32:18.679] whole polling system and about and and
+- [32:20.799] at the writers the fake news that they
+- [32:23.360] don't want to talk to anybody so when
+- [32:24.799] you call somebody from Trump who you V
+- [32:27.919] voting for they say it's none of your
+- [32:30.919] business I'm not telling you and that
+- [32:34.080] was probably 40% of the people they
+- [32:36.039] called so they would discard that one
+- [32:39.559] and they didn't show that and then when
+- [32:42.679] the election happened you know the vote
+- [32:44.240] came and it was much different much
+- [32:45.639] higher than we're going to win but they
+- [32:47.720] thought they really thought they
+- [32:49.480] couldn't believe the one man said I mean
+- [32:50.960] it was so much higher we won all seven
+- [32:52.760] swing States we won the popular vote by
+- [32:55.720] millions of votes which is hard for a
+- [32:57.440] republic rep I'll tell you who came
+- [32:59.320] through the unions came through the Auto
+- [33:01.120] Workers were great the teamsters were
+- [33:02.760] great the firemen were great I think
+- [33:05.440] every almost every Union was great the
+- [33:07.720] only one that weren't great although
+- [33:09.960] Sean was great in uh and the teamsters
+- [33:13.240] the head of the Shan O'Brien the head of
+- [33:15.200] the teamsters was fantastic but uh
+- [33:18.440] generally speaking the head of the Union
+- [33:20.679] was against Trump but the union would be
+- [33:23.480] with us for like 80 85% look what we did
+- [33:26.960] with the aut workers in Michigan look
+- [33:28.559] what we did with the teamsters the
+- [33:30.480] teamsters were unbelievable they were a
+- [33:32.559] solid Democrat vote and they voted for
+- [33:35.240] Trump so we had a great experience this
+- [33:37.840] has been now we have to go to work and
+- [33:39.480] get it done because we have to do
+- [33:41.080] something that's going to be great we're
+- [33:42.639] going to turn our country
+- [33:44.679] around and we're going to turn it around
+- [33:47.360] fast and I think this was a better
+- [33:49.600] speech than the one I made upstairs okay
+- [33:53.200] I think this was better
+- [33:55.600] JD I think this was much better and I
+- [33:59.000] got to see my friend so Governor take
+- [34:01.760] care of yourself you call me we'll start
+- [34:04.120] working uh you know what that means with
+- [34:06.279] him he's going to be calling me tomorrow
+- [34:07.679] morning at about 6 I said how about next
+- [34:10.679] week you call me and we're going to get
+- [34:12.639] it started real fast we really help you
+- [34:14.839] a lot you've done a fantastic job
+- [34:16.599] protecting something which just it's not
+- [34:18.280] supposed to be for the states and uh
+- [34:21.520] amazing job you've done thank you very
+- [34:23.200] much and I want to thank everybody uh
+- [34:26.119] and I have a first lady who's been
+- [34:34.560] incredible I shouldn't say this I'm
+- [34:37.440] going to get hell when I say this but
+- [34:40.040] her feet are absolutely aching you know
+- [34:42.839] those
+- [34:44.679] heels and we thought we were leaving we
+- [34:47.720] were going home sir would you be able to
+- [34:51.000] go down and say hello to some of your
+- [34:53.280] other fans that are here I said oh I
+- [34:55.079] didn't know that well did you get to see
+- [34:57.880] clearly the picture I hope good that's
+- [35:00.440] good but cuz you wouldn't want to make
+- [35:02.240] the same speech again right but she said
+- [35:05.480] uh darling I love you so much but my
+- [35:07.480] feet are killing me I said honey uh let
+- [35:11.359] me just see how far does I asked the
+- [35:12.920] person oh not that long maybe four or
+- [35:15.200] 500 yards that's five football
+- [35:17.680] fields I said can you make it she said
+- [35:20.440] we're going to make it no matter what
+- [35:22.200] we're going to make it cuz we have right
+- [35:31.000] and then we went out to the helicopter
+- [35:32.800] though just part of this and said
+- [35:34.400] goodbye and it's a custom and the wind
+- [35:37.119] is blowing like crazy and with the hat
+- [35:39.240] that she's wearing she almost blew away
+- [35:41.839] we almost lost
+- [35:44.280] off she was being elevated off the
+- [35:47.599] ground she almost blew away no so we all
+- [35:50.680] appreciate it because you uh she's been
+- [35:53.319] a great first lady a beautiful and a
+- [35:55.599] great first lady and they love our first
+- [35:59.040] lady you know JD whenever I make a
+- [36:01.599] speech I see hundreds of times we love
+- [36:04.359] our first lady we love and they do and
+- [36:07.040] they should she's great so I just want
+- [36:09.000] to thank you thank you very much I just
+- [36:11.119] want to thank
+- [36:12.760] everybody and uh I felt that I said to
+- [36:16.119] JD should we give him the a
+- [36:18.960] treatment the B treatment the C the D or
+- [36:21.640] the F you know what the f is hello
+- [36:23.720] everybody thank you for being here
+- [36:25.920] bye-bye I gave you the A+ treatment
+- [36:29.280] thank you thank you all thank you
+- [36:31.560] Governor thank you all very much
+- [36:33.880] appreciate it

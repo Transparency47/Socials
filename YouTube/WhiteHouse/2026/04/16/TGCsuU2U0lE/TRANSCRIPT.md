@@ -1,0 +1,665 @@
+<!-- source: https://www.youtube.com/watch?v=TGCsuU2U0lE -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: TGCsuU2U0lE -->
+<!-- date_published: 2026-04-16T20:43:21+00:00 -->
+<!-- date_accessed: 2026-06-02T01:01:30.047737+00:00 -->
+
+# Transcript: President Trump Gaggles with Press Before Departing the White House, Apr. 16, 2026
+
+- [00:06.250] The Press: Mr. President, on the Pope
+- [00:07.700] -- the Pope criticized people who, quote, "manipulate religion
+- [00:12.690] for political or military gains."
+- [00:14.440] Do you think he's talking about you, sir?
+- [00:15.930] The President: It's very important
+- [00:17.190] that the Pope understands.
+- [00:18.760] Very, very important. It would be nice not to say it.
+- [00:22.990] Iran killed 42,000 people that were totally unarmed.
+- [00:26.400] They were protesters.
+- [00:28.400] Iran cannot have a nuclear weapon.
+- [00:30.800] If they did, every country, including Italy,
+- [00:33.700] where he's stationed, every single country
+- [00:35.830] in the world would be in trouble.
+- [00:39.020] So we're doing very well with respect to that,
+- [00:42.240] having to do with the whole situation on Iran.
+- [00:47.430] The blockade is amazing.
+- [00:48.890] It's holding up very strong, very powerfully.
+- [00:52.080] And I think we're making a lot of progress in that.
+- [00:54.870] But the Pope has to understand Iran.
+- [00:56.530] Very simple. Iran cannot have a nuclear weapon.
+- [00:59.420] The world would be in great danger.
+- [01:04.570] Mr. President, would you meet with the Pope
+- [01:06.610] to even out your differences with Catholics
+- [01:08.460] (inaudible)?
+- [01:09.700] The President: I don't think it's necessary.
+- [01:12.180] The Press: That.
+- [01:13.390] Mr. President, you spoke with Prime Minister Modi
+- [01:15.930] just a couple of days ago. What was the conversation like?
+- [01:19.390] What is it that is on the table now?
+- [01:21.140] The President: I had a very good talk with him,
+- [01:22.750] and he's a friend of mine from India.
+- [01:25.260] And he's doing great. We had a really good conversation.
+- [01:30.440] The Press: Are you considering extended the ceasefire
+- [01:32.450] with Iran?
+- [01:33.670] The President: With who?
+- [01:34.880] The Press: With Iran.
+- [01:37.370] The President: We're doing very well, I can tell you.
+- [01:39.110] Maybe it'll happen before that.
+- [01:40.460] I'm not sure it needs to be extended.
+- [01:43.190] Just so you know, Iran wants to make a deal,
+- [01:46.480] and we're dealing very nicely with them.
+- [01:49.270] We've got to have no nuclear weapons.
+- [01:51.220] And we do -- that's a big factor.
+- [01:53.750] And they're willing to do things today
+- [01:55.730] that they weren't willing to two months ago.
+- [02:01.740] The Press: Will Hezbollah stick to the ceasefire?
+- [02:04.380] Are you confident about that?
+- [02:05.760] The President: I think they will.
+- [02:07.000] I think it's going to be --
+- [02:08.230] actually, it's very exciting, because it's 48 years.
+- [02:12.000] We're going to meeting with Bibi Netanyahu, as you know,
+- [02:15.270] and the president of Lebanon.
+- [02:18.710] And I had a great talk with both of them today.
+- [02:21.100] They're going be having a ceasefire,
+- [02:24.110] and that will include Hezbollah.
+- [02:26.260] And I think -- I think it could be number 10 for me.
+- [02:30.040] The Press: Mr. President, do you have,
+- [02:34.800] do have any new regarding peace in Ukraine?
+- [02:38.170] The President: Ukraine is moving along.
+- [02:39.490] I wish they could get along, frankly.
+- [02:41.140] A lot of people are dying in Ukraine,
+- [02:43.390] we'll see what happens. There's things happening there.
+- [02:45.460] We're focused, we're focused so much right now in Iran,
+- [02:48.460] see if we can get that completed.
+- [02:53.670] And I think if you look, the stock market is good,
+- [02:56.580] the oil prices are coming down, and it's looking very good
+- [02:59.870] that we're going to make a deal with Iran,
+- [03:01.870] and it's going to be a good deal.
+- [03:03.080] It's going be a deal without nuclear weapons.
+- [03:05.390] The Press: What is the next in-person round
+- [03:10.600] of negotiations on the war in Iran?
+- [03:13.710] The President: They're all important.
+- [03:14.920] I mean, it's not a question of Iran.
+- [03:16.550] All of them are important.
+- [03:17.750] The Press: When will the next in-person --
+- [03:18.990] The President: Probably maybe over the weekend.
+- [03:23.820] Just so you understand, the blockade has been incredible.
+- [03:27.290] It's held. They're not doing any business.
+- [03:29.690] They're unable to do any business
+- [03:31.160] because of the blockade.
+- [03:32.950] And so the combination of having no Navy,
+- [03:35.720] having no Air Force, having no anti-aircraft equipment,
+- [03:38.900] they have nothing.
+- [03:40.190] Everything is gone. Including their leaders.
+- [03:42.910] Now they have a new set of leaders,
+- [03:44.880] and we find them very reasonable.
+- [03:47.280] The Press: On the 20-year minimum
+- [03:49.230] to stop enriching uranium, would you --
+- [03:51.970] The President: Well, we haven't agreed to any.
+- [03:53.410] We haven't agree to any.
+- [03:56.990] What we have is we have a statement,
+- [04:00.110] a very powerful statement that they will not have,
+- [04:03.230] beyond 20 years, that they would not have nuclear weapons.
+- [04:06.780] That's beyond. There's no 20-year limit.
+- [04:09.070] The President: (inaudible)
+- [04:16.200] The President: I think that Todd Blanch
+- [04:18.970] is doing a very good job, from what I'm seeing.
+- [04:22.230] All I can say thus far, I think Todd Blanche
+- [04:24.340] is doing a very good job.
+- [04:25.790] The Press: (inaudible)
+- [04:29.030] or would the fighting resume, Mr. President?
+- [04:32.460] The President: I would say the fighting --
+- [04:33.710] if there's no deal, fighting resumes.
+- [04:35.480] The Press: Okay, and then on gas prices,
+- [04:37.090] how much longer will Americans
+- [04:38.370] continue to see these high gas prices?
+- [04:40.130] The President: Well, they're not very high.
+- [04:41.430] If you look at what they were supposed to be in order
+- [04:43.690] to get rid of a nuclear weapon, with the danger that entails.
+- [04:47.020] So the gas prices have come down very much
+- [04:49.680] over the last three, four days.
+- [04:50.930] The Press: (inaudible) a gallon still.
+- [04:52.150] The President: I know, you know, and that's what ABC says.
+- [04:54.070] But the fact is that if you look at the stock markets up,
+- [04:58.800] everything is doing really well.
+- [05:00.770] And the big thing we have to do is we have to make sure
+- [05:03.160] that Iran does not have a nuclear weapon.
+- [05:05.070] Because if they do, you want to talk about problems,
+- [05:07.600] you'd have problems.
+- [05:08.800] So very important is that Iran does not have a nuclear weapon.
+- [05:13.270] And they've agreed to that.
+- [05:15.070] Iran's agreed to it, and they've agreed to do it very powerfully.
+- [05:19.380] They've agreed give us back the nuclear dust
+- [05:21.960] that's way underground
+- [05:23.250] because of the attack we made with the B-2 bombers.
+- [05:25.630] So we have a lot of agreement with Iran,
+- [05:28.270] and I think something's going to happen very positive.
+- [05:31.350] The Press: (inaudible) what are you waiting on?
+- [05:35.410] The President: It's a very complicated subject. It's --
+- [05:38.590] I don't think we're waiting. I think we are moving very fast.
+- [05:40.800] It could happen pretty quickly.
+- [05:42.580] The Press: (inaudible)
+- [05:48.490] blockade on the Strait of Hormuz?
+- [05:50.800] The President: The what?
+- [05:52.030] The Press: How long (inaudible)
+- [05:53.260] keep the blockade on the Strait Of Hormuz?
+- [05:55.580] The President: We're doing very well with the blockade.
+- [05:57.920] It's very routine for us. The Navy is incredible.
+- [06:01.240] And I think the blockade is doing very well.
+- [06:04.420] No ship is even thinking about entering.
+- [06:06.540] No ship going past our Navy.
+- [06:08.370] The Press: Why are you fighting with the Pope,
+- [06:10.200] and are you worried it's upsetting your
+- [06:11.570] (inaudible)?
+- [06:12.770] The President: No, no, I don't.
+- [06:14.000] I have to do what's right. The Pope has to understand that.
+- [06:17.660] Very simple. I've nothing against the Pope.
+- [06:20.000] His brother is MAGA all the way. I like his brother, Louis.
+- [06:22.390] The Press: Then why are you fighting with him?
+- [06:23.810] The President: I'm not fighting with him.
+- [06:25.200] The Pope made a statement.
+- [06:26.430] He says Iran can have a nuclear weapon.
+- [06:28.760] I say Iran cannot have a new clear weapon.
+- [06:31.210] And if the Pope looked at the 42,000 people
+- [06:34.220] that were killed over the last two or three months
+- [06:37.460] as a protester with no weapons, no nothing.
+- [06:40.580] I mean, you take a look at that.
+- [06:42.590] So I could disagree with the Pope.
+- [06:43.970] I have a right to disagree with him.
+- [06:45.680] I have the right to agree with the pope.
+- [06:48.250] The Press: What do you say to people who see that?
+- [06:50.310] Who say your criticism --
+- [06:53.260] The President: Nothing.
+- [06:54.490] I have no disagreement with the fact
+- [06:57.770] the Pope can say what he wants,
+- [06:59.550] and I want him to say what wants, but I can disagree.
+- [07:03.180] I think that Iran cannot have a nuclear weapon.
+- [07:06.310] If they do, the whole world would be at jeopardy.
+- [07:08.550] The Middle East will be blown up
+- [07:09.950] and the whole will be at Jeopardy.
+- [07:11.830] We're very close to making a deal.
+- [07:13.470] That would be a great thing.
+- [07:15.300] The Pope has to understand Iran has killed
+- [07:17.860] more than 42,000 people over the last few months.
+- [07:21.160] Think of it. Protesters without guns, without anything.
+- [07:24.950] There were totally unarmed protests.
+- [07:27.220] The Pope has to understand that.
+- [07:29.410] This is the real world. It's a nasty world.
+- [07:32.160] But as far as the Pope and saying what he wants,
+- [07:34.840] he can do that. Now, I know the Pope's brother.
+- [07:37.230] He is a big MAGA person.
+- [07:38.710] He's got MAGA all over his house.
+- [07:40.270] His name is Lewis. He's actually a great guy.
+- [07:43.310] And I'm sure the Pope is a great guy.
+- [07:44.840] I haven't met him. But I disagree with the Pope.
+- [07:47.740] If the Pope would allow Iran to have a nuclear weapon,
+- [07:52.350] you can't do that. What?
+- [08:00.260] The Press: (inaudible)
+- [08:01.610] Lebanon. I would like to ask you regarding
+- [08:03.910] (inaudible).
+- [08:05.320] The President: Yeah, it's very exciting with Lebanon.
+- [08:06.650] It's very exciting.
+- [08:07.930] I think we're gonna have a deal
+- [08:09.560] where we're going to have a meeting first time
+- [08:11.220] in 44 years.
+- [08:13.000] And Lebanon will be meeting with Israel,
+- [08:15.530] and they're probably going to do it at the White House.
+- [08:17.320] The Press: When do you think, President,
+- [08:18.710] when do you think they would --
+- [08:20.050] The President: Over the next week or two.
+- [08:21.330] The Press: Over the next week?
+- [08:22.560] And do you think this agreement can reach
+- [08:25.010] without Hezbollah agreement?
+- [08:26.320] The President: I think we will have an agreement
+- [08:27.890] between Lebanon,
+- [08:29.860] and they're going to take care of Hezbollah.
+- [08:32.420] But they're going to be working on Hezbollah right now.
+- [08:34.680] But we'll have an agreement between Israel,
+- [08:37.150] very importantly, and Lebanon.
+- [08:38.580] The Press: Will you support our Lebanese army as well?
+- [08:41.030] The President: I would. I would, yeah.
+- [08:43.210] The Press: Have they agreed to the ceasefire?
+- [08:45.460] Has Hezbollah agreed to this ceasefire.
+- [08:47.150] I mean, how do you even --
+- [08:48.400] The President: They're all agreeing
+- [08:49.660] it's a very nice little package for about a week
+- [08:53.700] and we're not going to have lots of bombs
+- [08:55.400] dropping and we are going to see
+- [08:56.740] if we can make peace between Lebanon and Israel.
+- [08:58.730] The Press: And just wondering around the Pope
+- [09:00.010] and the President,
+- [09:01.270] because there was a group of bishops
+- [09:02.670] that did put out a statement
+- [09:03.890] saying the Pope isn't merely exercising his opinions.
+- [09:05.890] He's preaching the gospel.
+- [09:07.150] I mean, what do you say to people that view this
+- [09:08.450] as a hack on the Catholic Church?
+- [09:09.650] The President: Well, I want them to preach the gospel.
+- [09:10.940] I'm all about the gospel, but I also know
+- [09:12.720] that you cannot let a certain country,
+- [09:15.820] which is a very mean-spirited country, have a nuclear weapon.
+- [09:19.330] If they did, they would use it,
+- [09:20.680] and I think they'd use it quickly,
+- [09:22.530] and they would kill many millions of people.
+- [09:24.710] So, you know, the Pope could disagree with me on that,
+- [09:27.270] but certainly we're allowed to have that.
+- [09:29.410] I'm about the Gospel.
+- [09:31.100] I'm about it as much as anybody can be.
+- [09:33.190] But I can't allow, as President of the United States of America,
+- [09:38.010] I can't allow Iran to have a nuclear weapon.
+- [09:40.150] And here's the story. They won't have.
+- [09:42.720] They've already agreed not to have. That's good news.
+- [09:45.630] And I think the Pope will be very happy.
+- [09:50.890] The Press: The Federal Reserve to wait
+- [09:52.210] and see about the Iran war before lowering interest rates.
+- [09:54.240] Do you agree with that?
+- [09:55.520] The President: No, I don't agree.
+- [09:56.760] I think we should have lower interest rates.
+- [09:58.510] The Press: (inaudible)
+- [09:59.780] going to execute four more protesters reportedly,
+- [10:02.320] including the first woman protester.
+- [10:04.210] What did you tell Iran, sir?
+- [10:05.430] The President: Tell that to the Pope.
+- [10:08.340] Tell that the to the Pope.
+- [10:10.850] That Iran is going to execute four people.
+- [10:13.030] Did you just hear that?
+- [10:14.350] Iran is going to execute four, including a woman?
+- [10:17.750] The Press: President Trump, the Lebanese loves you so much.
+- [10:20.180] The Press: Do you extend the ceasefire?
+- [10:21.600] What makes you extend (inaudible)?
+- [10:23.000] The President: I don't know if we're going to have to,
+- [10:24.280] but if we need to, I would do that.
+- [10:28.840] The Press: What are you telling the airlines
+- [10:30.160] and the oil companies about the way
+- [10:31.990] you're going to open up the Straight of Hormuz?
+- [10:33.670] The President: If you look at the oil
+- [10:34.900] and if you look at the price we're paying,
+- [10:37.260] it's about half what people thought it would be
+- [10:39.660] if you did what I had to do.
+- [10:40.910] We had to take this journey to the Middle East
+- [10:43.360] in order to get rid of a nuclear weapon.
+- [10:44.930] There would have been --
+- [10:46.140] if we didn't hit it with the B-2 bombers,
+- [10:48.040] or if I didn't kill the Barack Hussein Obama deal,
+- [10:51.100] the nuclear deal, which was a disaster,
+- [10:53.880] we would have had nuclear weapons
+- [10:55.800] exploding in the Middle Easter beyond.
+- [10:58.330] I believe I've been able to stop that.
+- [11:00.740] I think we have a very successful negotiation
+- [11:03.420] going on right now.
+- [11:05.050] And I think it'll be -- if it happens,
+- [11:07.240] it'll be announced fairly soon.
+- [11:09.270] And that'll give us free oil, free Hormuz
+- [11:13.350] Straight. Everything will be nice.
+- [11:15.490] And I your oil price will go down to lower
+- [11:17.620] than what it was before.
+- [11:19.490] And I a lot of good things will happen.
+- [11:23.030] The Press: Just for clarity,
+- [11:24.230] you're willing to extend the ceasefire if there is no deal?
+- [11:26.060] The President: Well, we'll see. I don't know that we'll have to.
+- [11:27.950] Ideally, we wouldn't but if I needed to, I would.
+- [11:29.970] The Press: The Lebanese people love you so much.
+- [11:32.560] The Lebanese people love so much,
+- [11:34.120] what's your message for them?
+- [11:35.490] And you will visit Lebanon after this?
+- [11:38.010] The President: I will do that.
+- [11:39.450] At the right time, I will certainly go there.
+- [11:41.990] The Press: (inaudible)
+- [11:45.620] bombing Ukraine. Do you think this war
+- [11:47.680] has the potential to go on for years more?
+- [11:50.430] The President: Well, it should have never started.
+- [11:52.960] If I were president, the war in Ukraine
+- [11:54.780] never would have started with Russia.
+- [11:57.060] But it's going on. Hopefully, it'll get over soon.
+- [11:59.600] The Press: (inaudible)
+- [12:00.840] last week and said she had no link to Jeffrey Epstein.
+- [12:02.400] The President: Who did?
+- [12:03.680] The Press: The First Lady Melania Trump.
+- [12:04.900] The Press: She had none.
+- [12:06.120] The Press: Why did she come out and say that?
+- [12:07.400] The President: Because the fake news was saying she did,
+- [12:09.440] and she had none. And I think that's been proven.
+- [12:12.930] It bothered her that the fake news was being fake news,
+- [12:16.340] so she just wanted to clarify.
+- [12:19.970] The President: Do you think that they are destroying the deal
+- [12:21.630] that you are trying to make?
+- [12:22.870] The President: We're going to see how it all works out.
+- [12:24.400] But they'll be working and coordinating.
+- [12:27.600] If you know, you know Lebanon, right?
+- [12:29.630] So they're working with us while we're (inaudible).
+- [12:32.000] The Press: Are you still interested
+- [12:33.300] in acquiring Iranian oil?
+- [12:34.980] The President: What?
+- [12:36.330] The Press: Are you interested in still acquiring Iranian Oil?
+- [12:39.160] The President: Well, we'll see.
+- [12:40.510] I mean, we have a very good relationship
+- [12:42.310] with Iran right now, as hard as it is to believe.
+- [12:45.600] And I think it's a combination of about four weeks of bombing
+- [12:50.340] and a very powerful blockade.
+- [12:51.940] The blockade is maybe more powerful than the bombing,
+- [12:54.960] if you want to know the truth.
+- [12:56.330] The Press: Are you going to make the Arab countries
+- [12:59.050] pay a portion of all of the costs?
+- [13:01.410] The President: I think they'll make that.
+- [13:02.640] I think we're going to make that contribution.
+- [13:05.890] I think -- I think the Arab countries
+- [13:07.560] because we've done a lot.
+- [13:08.950] I think they'd make a contribution toward the course.
+- [13:12.000] The Press: (inaudible)
+- [13:19.820] The President: Not been involved.
+- [13:21.210] The Press: (inaudible)
+- [13:24.330] without any conditions if you make a deal?
+- [13:26.290] The President: We're going to see what happens.
+- [13:27.640] But I think we're very close to making a deal with Iran.
+- [13:30.780] You'll be the first to know. But I think we have a chance.
+- [13:33.610] And if that happens, oil goes way down,
+- [13:36.590] prices go way down. Inflation goes way down,
+- [13:40.380] and you're going to have much more importantly than even that,
+- [13:43.600] you won't have nuclear holocaust.
+- [13:45.640] Thank you.
+- [13:46.900] The Press: (inaudible)
+- [13:56.090] The President: Possibly, but I think a deal
+- [13:57.540] could be reached possibly. It would be foolish not to.
+- [14:01.390] I mean, if we're close to a deal, would I extend?
+- [14:03.430] Yeah, I would do that. But we're closer to a deal.
+- [14:05.840] We're getting along very well with the new Iranian leaders.
+- [14:08.740] It really is its regime change.
+- [14:10.420] These are people that are a lot different
+- [14:13.040] than we were dealing with at the beginning.
+- [14:15.120] As you know, they're no longer around.
+- [14:16.870] They're no long with us.
+- [14:18.150] But we have a very good relationship.
+- [14:22.380] I think there's a very good chance
+- [14:23.720] that we're going to make a deal.
+- [14:24.940] Also, Israel and Lebanon, I think, there's a good chance
+- [14:27.870] that they'll make a good deal. So --
+- [14:29.970] The Press: What is your reaction
+- [14:32.320] to Russia's overnight attack on Kiev?
+- [14:34.180] They killed 20 more Ukrainians.
+- [14:35.460] The President: I think it's terrible.
+- [14:36.670] The President: Are you going to send any cabinet members
+- [14:39.860] to China before your visit?
+- [14:41.700] The President: Well, I have a great relationship,
+- [14:43.750] as you know, with President Xi,
+- [14:45.060] and I look forward to being there.
+- [14:47.000] We have a very special relationship.
+- [14:48.860] So I look for to being in China.
+- [14:53.280] The Press: Mr. President, you imposed sanctions on Rwanda
+- [14:55.490] because they keep violating the Washington Accords.
+- [14:57.360] The President: Yeah, I do.
+- [14:58.590] The Press: But President Kadam just said
+- [15:00.170] he don't care about sanctions,
+- [15:01.430] and he said he will not withdraw from Congo.
+- [15:04.460] His troop will continue in Congo.
+- [15:06.430] What is your reaction to that?
+- [15:07.800] The President: We're going to look into it very strongly,
+- [15:09.180] but they do have very big sanctions.
+- [15:12.190] The Press: There was a G20 meeting in Washington today,
+- [15:15.380] why did you invite Poland instead of South Africa?
+- [15:18.850] The President: Well, Poland is a great country.
+- [15:20.520] We like it a lot. We're friends with Poland.
+- [15:23.430] The President is doing a great job.
+- [15:25.480] So we invited him.
+- [15:29.630] The Press: I saw your true social post
+- [15:32.520] about Bruce Blakeman in New York.
+- [15:34.590] He's being denied up to seven million dollars
+- [15:37.050] of public campaign funds
+- [15:38.360] in New York by partisan Democrats.
+- [15:40.450] Have you seen that, and what's your reaction to it?
+- [15:42.630] The President: I can just tell you this.
+- [15:44.030] Bruce Blakeman is running for governor.
+- [15:46.660] He will be a great governor if he wins.
+- [15:48.420] I don't know that he wins or not, because it's New York.
+- [15:51.510] You know, people cheat on elections
+- [15:53.000] and a lot of other things.
+- [15:54.290] But Bruce Blakemen is a great, great gentleman.
+- [15:58.720] As you know, he comes from Nassau County,
+- [16:00.400] which is a Democrat area,
+- [16:01.960] and he wins by a landslide all the time.
+- [16:04.590] And if Bruce Blakeland gets in,
+- [16:06.490] your taxes are going to go way down.
+- [16:08.810] And a lot of good things are going to happen,
+- [16:10.830] including cleanliness and all of the things that you want to see.
+- [16:15.020] I know him very well. He's been a great leader,
+- [16:18.020] a great executive in Nassau County.
+- [16:21.090] Even though it's largely Democrat,
+- [16:23.340] he wins in a landslide. Everybody loves him.
+- [16:25.930] He's a very talented guy, very great politician.
+- [16:29.470] And I think he probably has a chance.
+- [16:31.580] If Bruce Blakeman gets in, your taxes are going way down.
+- [16:35.150] And you know what else is going down? Crime.
+- [16:38.910] The Press: There are these 10 missing scientists with access
+- [16:42.130] to classified stuff, nuclear material, aerospace.
+- [16:45.310] They've all gone missing or turned up dead
+- [16:47.370] in the last couple months.
+- [16:48.780] Based on what you've been briefed,
+- [16:50.750] what do you think is happening here
+- [16:52.310] and do you think that this is connected or totally random?
+- [16:55.280] The President: Well, I hope it's random,
+- [16:57.120] but we're going to know in the next week and a half.
+- [16:59.350] I just left a meeting on that subject.
+- [17:01.040] So, pretty serious stuff.
+- [17:03.180] But we're gonna be not -- hopefully -- I don't know,
+- [17:06.230] coincidence, if you -- whatever you want to call it.
+- [17:08.680] But some of them were very important people,
+- [17:11.560] and we're go to look at it over the next short period of time.
+- [17:14.260] The Press: It's impossible that some foreign adversary
+- [17:17.570] is in the United States
+- [17:18.920] (inaudible) these people up?
+- [17:20.190] The President: Well, you know, by dead-open borders,
+- [17:21.830] it wasn't very hard to get here,
+- [17:23.400] but we've gotten many of them out.
+- [17:25.280] You know, we've caught many, many people,
+- [17:27.160] many, very bad people, including thousands of murderers
+- [17:31.620] that we've taken out of our country,
+- [17:33.110] thousands of drug lords that we have taken out our country.
+- [17:36.980] Hundreds of thousands of prisoners
+- [17:38.980] that were led into the U.S.
+- [17:40.620] that we taken out of our countries.
+- [17:42.310] As far as the scientists are concerned,
+- [17:44.450] we'll probably have a pretty good answer over the next week.
+- [17:46.830] The Press: And with the peace talks in Iran,
+- [17:48.780] does it have to be a big deal all at once,
+- [17:52.010] or would you accept a little deal to start?
+- [17:55.360] The President: Well, I have a little deal,
+- [17:56.570] I can make a little deal, but I want to get it done
+- [17:59.400] and get back to keep going with low --
+- [18:02.320] you know, our pricing is doing great.
+- [18:04.180] As soon as the war is over, we're going to be lower
+- [18:06.810] than we were two or three years ago.
+- [18:08.500] So, I want get back that.
+- [18:10.420] I want -- we had to do something.
+- [18:12.150] We had to make sure that Iran never gets a nuclear weapon.
+- [18:15.670] And we're at that. They've agreed to that.
+- [18:17.750] They've totally agreed to it.
+- [18:19.020] They've agree to almost everything.
+- [18:21.070] So, maybe, if they can get to the table --
+- [18:24.250] there's a difference, they agree,
+- [18:25.460] they're going to get to table with a pen --
+- [18:28.730] we'll have that over with,
+- [18:30.160] and then we can focus on our great economy.
+- [18:32.250] And also, you know, I inherited the highest prices
+- [18:35.750] in the history of our country.
+- [18:37.170] The worst inflation in the country of our history --
+- [18:40.120] I'll get it down to a very low number.
+- [18:41.860] We had it to a low number, and it's still low.
+- [18:45.170] But the most important thing right now is to make sure
+- [18:48.740] Iran can never have a nuclear weapon.
+- [18:51.580] The Press: Would you ever go to Pakistan
+- [18:53.140] to seal the deal yourself?
+- [18:54.340] The President: I would. I would go to Pakistan, yeah.
+- [18:56.570] Pakistan has been great. They've been so good.
+- [18:58.690] Islamabad, I'll bee -- I might go. Yeah.
+- [19:01.940] If the deal is signed in Islamabad.
+- [19:04.670] I might. The field marshal has been great.
+- [19:07.650] The prime minister has been really great in Pakistan.
+- [19:11.040] So I might go. They want me.
+- [19:12.990] The Press: The First Lady last week called on Congress
+- [19:15.670] to further look into and uncover the truth
+- [19:18.070] on the Epstein files, the Epstein saga.
+- [19:21.310] Do you believe that there should be a public hearing
+- [19:23.510] for more of these Epstein survivors?
+- [19:24.950] The President: Well, I'm okay with it.
+- [19:26.160] I think we've had a lot of public hearings.
+- [19:27.740] I'm OK with it, but I understand
+- [19:29.350] that the women didn't want to go under oath.
+- [19:32.100] That's what I heard.
+- [19:33.390] That the women, the victims or whatever,
+- [19:37.300] they refused to go under oath, which was a little surprising.
+- [19:40.730] No, Melania felt strongly about it
+- [19:42.560] because she was accused of that I met her through empty,
+- [19:46.430] but it turned out to be totally false.
+- [19:47.980] It was a false (inaudible).
+- [19:51.370] The Press: Does this ceasefire also include Iraq and region?
+- [19:57.660] The President: Are we talking about the one with Lebanon?
+- [20:02.690] So, we just made a deal with Lebanon.
+- [20:04.900] As of two hours from now,
+- [20:06.770] we have a ceasefire with Israel and Lebanon,
+- [20:09.580] and that'll be great. And they'll be meeting,
+- [20:11.470] probably coming to the White House,
+- [20:13.100] over the next four or five days.
+- [20:16.670] And that'll the first time they've met in 44 years,
+- [20:20.290] which is pretty unneighborly
+- [20:21.640] when considering their neighbors.
+- [20:23.150] But there's a really good chance
+- [20:25.170] that that'll work out with Lebanon and Israel.
+- [20:28.250] I met with through the telephone with the president of Lebanon,
+- [20:33.290] who's a really good guy, highly respected, and with Bibi.
+- [20:37.000] And I think there's a chance we'll be meeting right here
+- [20:40.110] in the not too distant future.
+- [20:47.580] The Press: Israel and Lebanon have tried to make peace before.
+- [20:49.970] What's going to be the difference this time?
+- [20:51.630] The President: Me, I'm the difference.
+- [20:53.030] Big difference. Me.
+- [20:56.660] The Press: Mr. President, about taxes.
+- [20:58.380] States like Virginia, North Carolina,
+- [21:00.450] and New York, democratic states, are looking at raising taxes.
+- [21:03.850] Is that going to take away from the tax cuts?
+- [21:05.740] The President: What's happened?
+- [21:07.080] No, because, you know, no tax on tips.
+- [21:09.010] I'm going over no tax and tips today.
+- [21:11.560] That's why I'm going' to Nevada. I'm going' to Arizona.
+- [21:13.740] But this is sort of a no tax on tips.
+- [21:15.910] What's happening is people are finding out that
+- [21:18.340] in their tax returns,
+- [21:20.080] they're getting a big refund, much bigger than they thought.
+- [21:23.240] So it's no tax or tips, no taxes on Social Security,
+- [21:26.700] no tax in overtime.
+- [21:28.810] Wait, wait, wait. I think it's going to be amazing.
+- [21:32.040] But if you look at what they're doing in New York,
+- [21:34.690] in California, they're raising taxes
+- [21:37.440] and they're driving people out. It's a shame.
+- [21:40.040] The Press: Australia has just announced
+- [21:41.410] that it's increasing its defense spending to 3%.
+- [21:44.720] You've been asking for 3.5%. Are you satisfied?
+- [21:47.960] The President: We're going to see what happens,
+- [21:49.310] but on defense spending.
+- [21:51.340] Look, we built the greatest military anywhere in the world.
+- [21:54.080] There's nobody even close.
+- [21:55.340] All you have to do is take a look at the blockade.
+- [21:58.770] Nobody's ever seen anything like it.
+- [22:00.700] That blockade is the best thing to --
+- [22:03.210] and I'll tell you something,
+- [22:04.430] I think the blockage has been more powerful than the bombs.
+- [22:08.270] The bombs were powerful, and it weakened them.
+- [22:11.120] They have no Navy, they have no Air Force,
+- [22:12.840] they have know anything. They have know leaders.
+- [22:15.160] But their new leaders, the ones that have replaced them,
+- [22:18.150] It's a regime change. They are much more, I think,
+- [22:22.050] frankly, more intelligent and more moderate.
+- [22:24.300] But we have a real chance to make a deal very soon with Iran.
+- [22:32.800] The Press: On Australia, Mr. President,
+- [22:34.570] you asked for three and a half percent increase,
+- [22:36.650] like five percent you did with NATO.
+- [22:38.700] Australia has only gone to three percent.
+- [22:41.380] Are you satisfied with that decision?
+- [22:43.000] Would you consider (inaudible)?
+- [22:44.280] The President: Well, I'm not happy with Australia
+- [22:46.490] because they were not there when we asked them to be there.
+- [22:49.030] So Australia, Australia was another one.
+- [22:51.570] They were not there,
+- [22:52.910] having to do with Hormuz, the Hormoz threat.
+- [22:54.610] The Press: What do you mean by that?
+- [22:56.730] The President: I'm not happy, I am not happy.
+- [22:58.280] The Press: But why specifically?
+- [23:00.030] Do you still have a good relationship
+- [23:01.290] with the Australian Prime Minister?
+- [23:02.770] The Press: What message do you think the ceasefire
+- [23:04.420] in Lebanon sends to the UK and other European allies
+- [23:07.550] who chose not to get involved in the war?
+- [23:09.280] The President: Well, you know, we spend trillions
+- [23:12.170] and trillions of dollars on NATO.
+- [23:14.450] And when I asked them to get involved
+- [23:16.650] on a much smaller situation,
+- [23:19.830] which is Hormuz and Iran, they weren't there for us.
+- [23:23.820] Remember what I said? They weren't there.
+- [23:26.390] None of them. They weren't there.
+- [23:28.210] So we were there on Ukraine. I mean, we shouldn't have been.
+- [23:30.660] It would have never happened if I were president.
+- [23:32.560] But nevertheless, when they've had problems over the years,
+- [23:35.470] we were there.
+- [23:36.760] When we asked them to get involved
+- [23:38.430] on a very minor skirmish,
+- [23:40.640] by comparison to what it could be, they weren't there.
+- [23:43.400] So I don't think they'd be there for a large skirmished.
+- [23:45.980] And therefore, I think they've got themselves a problem.
+- [23:52.130] The Press: Do your policies like no tax on tips,
+- [23:54.490] no tax on overtime show that the Democrat party
+- [23:57.540] is no longer the party of the working class
+- [23:59.790] and the Republican party under your leadership action?
+- [24:02.060] The President: I love this question.
+- [24:03.670] This is the greatest guy. Look how handsome he is.
+- [24:06.020] What a great guy he is
+- [24:07.410] Yes, the Democrats don't know what they're doing.
+- [24:10.910] They want to tax everybody out of business.
+- [24:12.950] They want men playing in women's sports.
+- [24:15.360] They don't want voter ID.
+- [24:17.320] They don't know what they are doing.
+- [24:20.160] We've had an unbelievable run
+- [24:22.520] and the people getting their tax returns and they're coming back.
+- [24:25.850] And they're ending up getting $5,000, $6,000
+- [24:27.840] or $7,000 more than they thought possible.
+- [24:29.900] The Press: Mr. President,
+- [24:33.780] do you think the Pope was being disrespectful to you, sir?
+- [24:36.170] The President: The who?
+- [24:37.400] The Press: The Pope?
+- [24:38.600] Do you think he was being disrespectful to me?
+- [24:40.830] The President: I don't think about it that way.
+- [24:42.790] The Pope has to understand
+- [24:44.070] that Iran cannot have a nuclear weapon.
+- [24:47.550] And the Pope has understand
+- [24:48.860] that you can't let a country kill 42,000 protesters,
+- [24:52.980] totally unarmed protesters. You can't do that.
+- [24:56.260] So, the Pope, you know, I know his brother.
+- [24:59.740] His brother's MAGA all the way.
+- [25:01.220] You know that. Lewis is a great guy.
+- [25:04.020] But the Pope has to understand,
+- [25:05.360] you're not allowed to kill 42,000 protesters
+- [25:08.300] who are totally unarmed.
+- [25:09.980] And you cannot let Iran have a nuclear weapon,
+- [25:13.440] or the entire world could be gone.
+- [25:16.900] And, you know, when the Pope realizes that,
+- [25:18.980] I think we'll have a different understanding.
+- [25:22.040] The Press: Does energy dominance mean that Europeans should be
+- [25:26.150] buying more gas and oil from the United States?
+- [25:28.340] The President: Well, they should be buy more from us,
+- [25:30.040] and what they should doing is using the North Sea.
+- [25:32.750] I can tell you, UK --
+- [25:34.410] I've been telling that to your Prime Minister --
+- [25:37.250] UK should open up the North Sea Ocean,
+- [25:39.200] one of the greatest in the world.
+- [25:41.210] And they should use it instead of buying oil from Norway
+- [25:44.530] and other places that use the same source.
+- [25:47.210] They should use it. And they're not doing it.
+- [25:49.320] They're doing windmills and windmills.
+- [25:51.220] Windmills do one thing.
+- [25:52.530] You know what they do? Put you out of business.
+- [25:54.240] The Press: Mr. President,
+- [25:55.520] are you going to talk to Mr. Erdogan
+- [25:57.910] or the regional leaders about the peace deal
+- [26:00.460] or the peace talks about (inaudible)?
+- [26:01.910] The President: We're dealing with everybody.
+- [26:03.140] We're dealing with all of the leaders
+- [26:04.630] on many different subjects.
+- [26:06.300] We're very close to a deal with Iran.
+- [26:08.430] Thank you.

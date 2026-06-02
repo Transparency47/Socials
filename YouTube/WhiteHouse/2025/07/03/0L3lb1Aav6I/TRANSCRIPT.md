@@ -1,0 +1,189 @@
+<!-- source: https://www.youtube.com/watch?v=0L3lb1Aav6I -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 0L3lb1Aav6I -->
+<!-- date_published: 2025-07-03T21:13:30+00:00 -->
+<!-- date_accessed: 2026-06-02T01:21:29.379250+00:00 -->
+
+# Transcript: The Story of America: The Declaration of Independence
+
+- [00:04.500] (blend of famous American history quotes)
+- [00:41.370] Larry Arnn: Hello, my name is Larry Arnn.
+- [00:42.900] I'm the president of Hillsdale College,
+- [00:45.240] which is honored to be working with the White House
+- [00:47.480] to produce these videos in honor of the 250th anniversary
+- [00:52.020] of the Declaration of Independence,
+- [00:53.650] the greatest political document in human history.
+- [00:56.990] Our college was founded in honor of that document.
+- [01:00.420] We encourage you to love it and to celebrate it.
+- [01:03.950] And to celebrate, you should learn about it.
+- [01:06.890] We're going to talk about two things,
+- [01:08.400] the meaning and the structure of the Declaration of Independence.
+- [01:12.230] First question is what does it mean?
+- [01:14.070] Things have causes.
+- [01:15.730] There's a classical account of the causes of things
+- [01:18.970] that include for.
+- [01:20.520] The efficient cause means whoever made it.
+- [01:23.000] The material cause means whatever it's made out of.
+- [01:25.930] The formal cause means what does is look like
+- [01:28.790] and how does it operate?
+- [01:30.080] And the final cause is what is it for?
+- [01:33.940] What love produces it?
+- [01:36.140] Declaration of independence contains a lot of information
+- [01:38.510] about the formal cause of America in the middle,
+- [01:41.570] but its chief function is to provide
+- [01:43.450] the final cause of the country.
+- [01:46.200] What is the country for?
+- [01:48.690] And it begins very beautifully by explaining that.
+- [01:52.610] It says that anytime in history any people in history
+- [01:56.240] have a right under the laws of nature and of nature's God
+- [02:00.280] to form a nation according to purposes that they adopt.
+- [02:05.850] What are these laws of nature and nature's God.
+- [02:10.030] The Christian view is that God made nature.
+- [02:12.950] The classical view is that each being has a good
+- [02:16.980] and the good and the being are the same thing.
+- [02:20.400] Nature is full of things that are good
+- [02:23.560] and it's wrong to violate the good of anything.
+- [02:27.930] What do these laws say about people?
+- [02:30.230] They say that they're all created equal.
+- [02:32.980] Think what a remarkable thing it is for a people
+- [02:36.260] to adopt a standard like that as their purpose,
+- [02:41.410] as their governing purpose,
+- [02:44.150] and we did that in opposition to a king
+- [02:46.450] who claimed that he was born to be our ruler
+- [02:50.660] because he was better born than we are.
+- [02:53.100] He was denying the proposition that all men are created equal.
+- [02:58.840] If you recognize this principle of equality
+- [03:01.210] and you recognize it properly,
+- [03:03.730] it will give rise to the most amazing diversity
+- [03:06.810] and difference among people.
+- [03:09.370] Because it sets up a right of all of us
+- [03:12.380] to pursue our lives best we can.
+- [03:15.720] Without impediment by kings and emperors,
+- [03:19.770] we said, in the laws of nature and nature's God,
+- [03:24.290] no one is born to rule anybody else.
+- [03:28.540] That's beautiful, but it sets up an agitation in the country,
+- [03:32.350] which goes on to this day,
+- [03:34.410] to always try to recognize those principles
+- [03:38.010] that's the final cause of the United States of America.
+- [03:42.740] Now we're at about the structure of the document.
+- [03:46.930] It begins with this universal claim
+- [03:48.740] that we're all created equal
+- [03:50.340] and that nobody may rule us except by our consent.
+- [03:54.700] And in the middle bit they claim the king
+- [03:57.290] has done a bunch of bad stuff that justifies the revolution.
+- [04:01.260] He took houses away from people and put troops in them.
+- [04:05.620] That means they were dislodged,
+- [04:07.380] they were driven out into the street.
+- [04:10.100] He arrested people. He put them on ships,
+- [04:13.530] and the ships were not very comfortable.
+- [04:15.390] They were in the hole of the ship.
+- [04:17.570] Sometimes they sat around for weeks in the harbor,
+- [04:20.750] and they were taken all the way to England.
+- [04:22.180] Most of them had never been there before.
+- [04:24.210] And they were put on trial in front of people
+- [04:26.460] who they never met before.
+- [04:27.850] Not a jury of your peers. This is the 25th paragraph.
+- [04:33.480] "He has plundered our seas, ravaged our coasts,
+- [04:37.600] burnt our towns, and destroyed the lives of our people."
+- [04:40.960] He did kill people.
+- [04:42.310] And then he'd talk about the mercenaries there.
+- [04:44.410] Large armies of foreign mercenaries,
+- [04:46.540] those were the Hessians,
+- [04:49.070] to complete the works of death, desolation, and tyranny,
+- [04:53.330] already begot with circumstances of cruelty and perfidy
+- [04:56.580] scarcely parallel in the most barbarous ages
+- [05:00.120] and totally unworthy of the head of a civilized nation.
+- [05:04.840] But then that leads us to the second thing
+- [05:06.990] about this structure point. And that was,
+- [05:12.030] some of them are direct violations of the best method,
+- [05:17.600] the Founders argued the only sure method
+- [05:20.490] to keep the government from doing things like that to you,
+- [05:23.660] to its citizens, to anybody. And those methods are,
+- [05:28.100] they provide the organizing principle
+- [05:29.760] of the Constitution of the United States.
+- [05:31.190] They are representation.
+- [05:33.560] You know, the Continental Congress
+- [05:35.300] that passed the Declaration of Independence
+- [05:37.630] took great pains to be a representative body.
+- [05:41.750] That is to say,
+- [05:43.060] they're not acting according to their own wills.
+- [05:45.040] Somebody else,
+- [05:46.250] those who will be governed under this new government
+- [05:48.770] that they're creating, have appointed us to do this.
+- [05:51.870] We are acting for them. We have government by consent.
+- [05:56.340] And they say that the king is interfering
+- [06:00.570] with the legislatures
+- [06:01.990] that they had had before he dissolved several of them
+- [06:04.720] and he prevented others of them from meeting.
+- [06:07.290] And those are all in these charges here, right?
+- [06:09.390] He has obstructed government by consent.
+- [06:12.970] Then he's messed around with the judicial branch.
+- [06:16.060] And that means that the legislature has to pass a law,
+- [06:22.240] and then the executive enforces
+- [06:24.210] only the laws that have been passed.
+- [06:26.970] And then when the law is applied upon any citizen,
+- [06:32.700] he has to be taken in front of a judge.
+- [06:36.160] Not dismissible by the legislature or the executive.
+- [06:43.120] The judge has to decide,
+- [06:44.660] it's called the independent judiciary,
+- [06:46.270] it's a terribly important thing.
+- [06:49.400] So the middle bit of the declaration,
+- [06:51.960] these 28 paragraphs,
+- [06:53.770] is the second part of the structure
+- [06:57.530] of the Declaration of Independence,
+- [06:58.810] and the third part is a formal legislative act
+- [07:04.080] that makes the nation pass by the Continental Congress.
+- [07:08.580] I should mention that God appears four times
+- [07:11.580] in the Declaration of Independence.
+- [07:13.740] He appears in the first sentence
+- [07:15.660] as the maker of the laws of nature
+- [07:17.430] and nature's God, the legislature.
+- [07:20.670] He appears at the beginning of the second paragraph
+- [07:24.520] as the endower of our rights as creator,
+- [07:29.980] the founder of everything. The last paragraph is personal.
+- [07:34.290] They refer to themselves for the first time.
+- [07:37.200] We, therefore,
+- [07:38.590] the representatives of the United States,
+- [07:40.140] the representatives of United States.
+- [07:41.790] We, in general, Congress assembled,
+- [07:46.050] and then they appeal to somebody to judge whether they're right.
+- [07:50.640] And that person is not the King of England,
+- [07:53.010] it's the supreme judge of the world, the judicial branch.
+- [07:58.730] For the rectitude of our intentions, in other words,
+- [08:02.070] we swear we're doing what seems right,
+- [08:06.890] and we ask God to judge.
+- [08:09.500] In the name of the good people of these colonies,
+- [08:14.030] you can read it as a claim
+- [08:15.570] that the people of the colonies are good.
+- [08:17.540] You can see it as the claim that we're acting for the good ones.
+- [08:22.020] Or you can read it as to claim we have to remember to be good
+- [08:28.230] because we are assuming this authority now.
+- [08:32.120] Free and independent states
+- [08:34.140] that they are absolved from all allegiance to the British Crown.
+- [08:38.180] That all political connection between them
+- [08:40.300] and the state of Great Britain is
+- [08:42.060] and ought to be totally dissolved,
+- [08:45.650] and that as free and independent states
+- [08:47.500] they have full power to levy war.
+- [08:51.460] Now we get to the hard thing.
+- [08:53.810] Conclude peace, contract alliances, establish commerce,
+- [08:57.350] and do all other acts
+- [08:59.010] and things which independent states may of right do.
+- [09:03.270] And then the beautiful last sentence.
+- [09:05.660] This is where the executive branch comes in.
+- [09:08.630] Because see now it's war,
+- [09:11.100] and for the support of this declaration with a firm reliance
+- [09:15.500] on the protection of divine providence.
+- [09:19.240] That's God as the executive branch.
+- [09:22.520] We mutually pledge to each other our lives, our fortunes,
+- [09:29.330] and our sacred honor. Only in the hands of God
+- [09:33.420] would all the powers of government be combined.
+- [09:37.010] Those men in that room,
+- [09:39.410] the same room where the Constitution would later
+- [09:42.350] be written by some of the same people,
+- [09:45.440] we mutually pledge to each other everything we've got.
+- [09:52.650] We Americans today owe those people.
+- [09:56.590] We should learn about them.
+- [09:58.670] Thank you.
+- [10:02.590] ♪ (soft orchestral music playing) ♪

@@ -1,0 +1,31 @@
+# YouTube / WhiteHouse / 2025-07-30
+
+- Posts: 9
+
+- [22:39 UTC - USHERING IN THE GOLDEN AGE OF CRYPTO](HDkT6Ch8XXM/)
+  - Source: https://www.youtube.com/watch?v=HDkT6Ch8XXM
+  - [00:00.080] Today's report positions America as the - [00:02.480] leader in digital asset markets, - [00:04.640] strengthens the role of the US dollar, - [00:06.799] combats illi...
+- [22:28 UTC - President Trump releases the Digital Assets Report](3zodIMyHX7c/)
+  - Source: https://www.youtube.com/watch?v=3zodIMyHX7c
+  - [00:00.000] Cody Carbone, CEO of the digital - [00:01.839] chamber. Matthew Pines here, executive - [00:03.679] director of the Bitcoin Policy - [00:05.200] Institute. - [00:05.7...
+- [21:35 UTC - President Trump: "We're officially launching the CMS Digital Health Tech Ecosystem"](Cok7uQciaEY/)
+  - Source: https://www.youtube.com/watch?v=Cok7uQciaEY
+  - [00:00.000] And for decades, America's health care - [00:02.000] networks have been overdue for a high - [00:04.640] techch upgrade. And that's what we're - [00:06.319] doing. Th...
+- [21:17 UTC - President Trump Delivers Remarks on Making Health Technology Great Again](xqlARu9srSY/)
+  - Source: https://www.youtube.com/watch?v=xqlARu9srSY
+  - [00:00.000] Male Speaker: -- the President of the United States. - [00:03.570] [Hail to the Chief] - [00:35.740] The President: And we have a lot of great people here - [00:39.06...
+- [18:38 UTC - President Trump signs the VA Home Loan Program Reform Act into law.](T4CAYnQOmV4/)
+  - Source: https://www.youtube.com/watch?v=T4CAYnQOmV4
+  - [00:12.240] Okay. Is that a good one? - [00:14.559] >> That's a good one. - [00:15.360] >> No auto paint. - [00:21.520] >> That's a very important bill - [00:24.240] and we want...
+- [18:02 UTC - President Trump Signs Congressional Bill, July 30, 2025](0yeIXVwFPiY/)
+  - Source: https://www.youtube.com/watch?v=0yeIXVwFPiY
+  - [00:03.370] The President: Nice to see you. - [00:05.040] We've had a great weekend, and we, as you know, - [00:09.920] we made our deal with the European Union. - [00:14.680] Th...
+- [16:36 UTC - Promise Made ➡️ Promise Kept: BORDER SECURE](xUPpe_An4Y4/)
+  - Source: https://www.youtube.com/watch?v=xUPpe-An4Y4
+  - [00:00.080] We will close the border. - [00:01.520] >> This is an executive order taking a - [00:03.439] large number of executive actions to - [00:05.279] secure our southern bo...
+- [13:42 UTC - James Smith](TEsgJs3885s/)
+  - Source: https://www.youtube.com/watch?v=TEsgJs3885s
+  - [00:00.000] [Music] - [00:08.400] I am James Smith, Irishborn but American - [00:12.480] at heart. I immigrated to Pennsylvania - [00:15.120] with my family in 1727, - [00:17.680...
+- [13:40 UTC - William Williams](8C_C5J_2jU0/)
+  - Source: https://www.youtube.com/watch?v=8C_C5J-2jU0
+  - [00:00.350] [Music] - [00:05.920] I was not present for the vote that - [00:07.759] declared our independence, but I signed - [00:10.800] my name to it all the same. I am William...

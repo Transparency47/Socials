@@ -1,0 +1,299 @@
+<!-- source: https://www.youtube.com/watch?v=k2w3imNVMSM -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: k2w3imNVMSM -->
+<!-- date_published: 2025-07-27T20:20:55+00:00 -->
+<!-- date_accessed: 2026-06-02T01:19:45.124842+00:00 -->
+
+# Transcript: President Trump Meets with the President of the European Commission
+
+- [00:05.810] The President: Thank you very much.
+- [00:07.020] So we have good news. We've reached a deal.
+- [00:12.010] It's a good deal for everybody, I believe.
+- [00:16.150] And it's, I think you were saying,
+- [00:19.260] this is probably the biggest deal ever reached
+- [00:21.910] in any capacity, trade or beyond trade.
+- [00:23.780] Ursula von der Leyen: It is.
+- [00:25.020] The President: It’s a giant deal with lots of countries.
+- [00:28.740] Because as you know, Ursula represents a lot of countries,
+- [00:31.320] not one country. I'd say it's not easy for you.
+- [00:34.520] It's a lot of very different countries, great countries,
+- [00:37.970] but some are strong with cars, some are strong with agriculture,
+- [00:41.540] some are strong with both, right?
+- [00:43.050] You have a lot different factors.
+- [00:46.200] So we're going to do the following.
+- [00:47.920] The European Union is going to agree
+- [00:56.110] to purchase from the United States $750 billion
+- [01:01.740] worth of energy, $750 billion worth of energy.
+- [01:08.070] They are going to agree
+- [01:11.030] to invest into the United States $600 billion
+- [01:17.800] more than they're investing already.
+- [01:20.150] So they're investing a large amount of money.
+- [01:25.060] You know what that amount of money is.
+- [01:26.550] It's very substantial.
+- [01:27.780] But they're going to invest an additional $600 billion.
+- [01:34.160] They're agreeing to open up their countries
+- [01:37.420] to trade at zero tariff.
+- [01:41.450] So that's a very big factor. Opening up their country.
+- [01:45.240] All of the countries will be opened up to trade
+- [01:47.640] with the United States at zero-tariff.
+- [01:51.480] And they're agreeing to purchase
+- [01:53.830] a vast amount of military equipment.
+- [01:56.020] We don't know what that number is,
+- [01:57.230] but it's – the good news is we make
+- [01:59.950] the best military equipment in the world,
+- [02:01.750] so sort of you have to do that, I mean, until somebody tops us.
+- [02:04.630] Which is not going to happen.
+- [02:05.970] We're way ahead of every other country
+- [02:08.020] in terms of the quality of the military equipment.
+- [02:10.810] You saw that recently in Iran, and you see that, unfortunately,
+- [02:16.260] you see it often for all the wrong reasons, right?
+- [02:20.610] So those things are $750 billion, $600 billion,
+- [02:26.010] opening up the country.
+- [02:28.810] We are agreeing that the tariff straight across for automobiles
+- [02:37.000] and everything else will be a straight across tariff of 15%.
+- [02:44.050] So we have a tariff of 15%.
+- [02:46.960] We have the opening up of all of the European countries,
+- [02:50.980] which I think I could say were essentially close.
+- [02:54.210] I mean, the you weren't exactly taking our orders.
+- [02:57.230] You weren't t exactly taking our agriculture.
+- [03:00.160] And then you would have smaller things.
+- [03:01.830] But for the most part, it was closed.
+- [03:04.210] And now it's open. It's open for our companies to go in
+- [03:07.940] and do a good job with it.
+- [03:09.200] And I think you'll like them. I think like it.
+- [03:12.500] And we will,
+- [03:14.320] very importantly they'll be investing a lot of money.
+- [03:17.080] But the military is a big number.
+- [03:18.800] But that's one number we're not determining.
+- [03:20.590] It's going to be whatever it is.
+- [03:21.800] But they're gonna be purchasing hundreds of billions of dollars
+- [03:26.140] worth of military equipment. They're very important.
+- [03:30.270] They're going to purchase $750 billion worth of energy.
+- [03:38.230] So that's going to be great.
+- [03:40.450] And $600 billion worth of investments
+- [03:43.290] into the United States over and above what they have.
+- [03:47.680] And I think that basically concludes the deal.
+- [03:49.940] I mean, those are the main factors.
+- [03:51.950] I don't think there are too many other factors.
+- [03:54.220] Other than we're going to get along great.
+- [03:56.750] And we have a great relationship now with NATO,
+- [04:00.070] which is largely the same.
+- [04:01.880] I mean, not exactly, but pretty close, right?
+- [04:04.850] Largely.
+- [04:06.170] And with NATO as you know,
+- [04:07.410] they're going up to 5 percent from 2 percent.
+- [04:10.870] And the relationship is very strong with NATO.
+- [04:14.700] So I just want to congratulate you.
+- [04:19.080] I think it's great that we made a deal today
+- [04:21.040] instead of playing games.
+- [04:23.210] And maybe not making a deal at all.
+- [04:24.820] I think it's – I'm going to let you say,
+- [04:27.740] but I think this is the biggest deal ever made.
+- [04:29.290] Thank you very much. Congratulations.
+- [04:33.900] Ursula von der Leyen: Thank you.
+- [04:35.170] [applause]
+- [04:37.650] Thank you. We have a deal.
+- [04:40.950] A trade deal between the two largest economies in the world.
+- [04:45.980] It's a big deal, it's a huge deal.
+- [04:49.400] It will bring stability, it will bring predictability.
+- [04:52.870] That's very important for our businesses
+- [04:54.920] on both sides of the Atlantic.
+- [04:58.000] It's 15 percent tariffs across the board all inclusive.
+- [05:03.210] The investments Mr. President just described.
+- [05:07.030] That will go to the United States
+- [05:08.930] and the purchases over there.
+- [05:11.040] Indeed, basically the European market is open.
+- [05:14.800] It's 450 million people.
+- [05:18.010] So it's a good deal. It's a huge deal.
+- [05:21.260] The President: Yeah.
+- [05:22.560] Ursula von der Leyen: Was tough negotiations.
+- [05:24.350] I knew it at the beginning and it was indeed very tough,
+- [05:27.480] but we came to good conclusions from both sides.
+- [05:30.690] So again, congratulations and many thanks.
+- [05:33.520] The President: Thank you very much.
+- [05:34.840] [applause]
+- [05:39.030] Do you have any questions?
+- [05:41.290] The Press: How did you come to a deal so quickly?
+- [05:43.440] You didn't even come [inaudible] –
+- [05:44.780] The President: I think we both wanted to make a deal.
+- [05:48.530] You know, you said something that is very important.
+- [05:50.840] It's going to bring us closer together.
+- [05:53.170] I think this deal will bring us very close together actually.
+- [05:56.070] It’s soft of – it's a partnership, in a sense.
+- [05:59.320] But it's a very good point,
+- [06:02.280] and it's something that's very important
+- [06:04.360] The Press: Was there one issue
+- [06:05.990] that you could get over the hurdle?
+- [06:07.510] One – The President: No.
+- [06:09.010] We had four or five. No, no. Not pharmaceuticals.
+- [06:12.370] I mean we're going to be as you know
+- [06:13.830] a lot of companies are coming into the U.S.
+- [06:15.830] And that's unrelated to this deal.
+- [06:18.230] But it's – I think we – you know this didn't just start today.
+- [06:24.090] We had a meeting. I wasn't sure. I said 50-50.
+- [06:27.710] I think you probably felt the same thing.
+- [06:29.210] Ursula von der Leyen: Yeah.
+- [06:30.440] The President: But this started months ago, this negotiation,
+- [06:34.540] so we knew pretty much what we were getting into.
+- [06:38.310] And we were able to make a deal
+- [06:39.730] that's very satisfactory to both sides.
+- [06:41.780] So it's very – it's tremendously,
+- [06:44.870] it is a very powerful deal. It's a very big deal.
+- [06:47.800] It's the biggest of all the deals.
+- [06:49.470] It will be the biggest of all of the deals,
+- [06:51.200] so we're very honored to have done so.
+- [06:53.940] And your staff has been fantastic.
+- [06:56.210] And they've worked together very –
+- [06:57.410] Ursula von der Leyen: They worked –
+- [06:58.660] The President: Long and hard.
+- [06:59.860] Ursula von der Leyen: They worked hard and long
+- [07:01.160] and many thanks to the teams on both sides.
+- [07:04.540] It was, as I said at the beginning,
+- [07:06.160] a heavy lifting you had to do,
+- [07:08.690] but many thanks also for the talks we had many times
+- [07:14.080] – The President: Yeah.
+- [07:15.320] Ursula von der Leyen: On the way to our goal,
+- [07:17.380] and now we made it.
+- [07:18.620] The President: We made it.
+- [07:19.840] Ursula von der Leyen: And that is good.
+- [07:21.220] The President: We made it. Anybody else. Yes, ma'am.
+- [07:25.110] The Press: I have a question for the EU Commission President.
+- [07:28.110] What are the US concessions?
+- [07:30.210] What is the US giving up in the deal, if anything?
+- [07:32.890] Ursula: So as we, the starting point was an imbalance.
+- [07:36.070] A surplus on our side and a deficit on the U.S. side
+- [07:39.620] and we wanted to rebalance the trade relation
+- [07:42.860] and we want to do it in a way that trade goes on
+- [07:47.330] between the two of us across the Atlantic.
+- [07:50.310] Because the two biggest economies
+- [07:52.600] should have a good trade flow between us
+- [07:55.850] and I think we hit exactly the point we wanted to find.
+- [07:59.400] Rebalance but enable trade on both sides.
+- [08:02.730] Which means good jobs on both sides of the Atlantic.
+- [08:05.670] Means prosperity on both side of the Atlantic,
+- [08:08.590] and that was important for us.
+- [08:11.090] The President: And again,
+- [08:12.330] the energy is a very important component,
+- [08:14.530] because we have more energy than anybody else in that sense.
+- [08:18.870] And I think it was very wise that they buy a lot of energy
+- [08:24.500] and it's great stuff and it solves a lot of problems,
+- [08:29.820] so that was a great decision, I think.
+- [08:34.050] The Press: What about [inaudible].
+- [08:36.050] The President: What about what?
+- [08:37.930] The Press: Steel.
+- [08:39.230] The President: A steel is staying the way it is.
+- [08:41.110] The steel and aluminum, et cetera, et cetera,
+- [08:43.970] that's a worldwide thing. That stays the way it is.
+- [08:47.850] Ursula von der Leyen: We have –
+- [08:49.110] The Press: How about Chips.
+- [08:50.330] Do you asses that as part of the agreement?
+- [08:52.160] Chips?
+- [08:53.730] The President: Chips is a – Howard,
+- [08:55.560] you might want to describe the Chips please, if you would.
+- [08:58.930] Howard Lutnick: Well, the expectation
+- [09:01.070] is in two weeks' time
+- [09:02.990] we're going to come out with our Chips 232,
+- [09:08.540] and that was one of the key reasons
+- [09:11.400] that the European Union came to talk to the President
+- [09:15.010] to try to resolve all things at one time.
+- [09:18.460] And well, I'll let you wait for the two weeks
+- [09:21.250] until you get to announce your plan,
+- [09:23.670] but we are going to be bringing chip
+- [09:26.190] manufacturing back to the United States of America.
+- [09:29.030] The President: We'll be doing a lot of chips.
+- [09:30.410] A lot of companies are coming in from Taiwan
+- [09:32.680] and from other places into the U.S.
+- [09:36.160] And they're doing that in order to avoid tariffs.
+- [09:39.610] And the President really avoided the tariffs
+- [09:44.600] in a better way for them.
+- [09:47.440] Much better way. Much more conclusive.
+- [09:50.700] I think probably much more profitable.
+- [09:52.640] Definitely much more profitable and got a lot a benefit from it.
+- [09:56.780] So – it was a very interesting negotiation.
+- [10:01.370] I think it's going to be great for both parties.
+- [10:04.070] Do you agree?
+- [10:05.660] I think your various countries are very happy about this.
+- [10:08.600] The Press: Is there an industry in the US
+- [10:10.290] that you see maybe having the first impact
+- [10:12.770] of getting into this market that was not accessible before,
+- [10:15.770] whether it's auto? What's the first call you made?
+- [10:18.490] The President: Yeah, I think cars.
+- [10:20.980] Cars, basically, we're not invited.
+- [10:23.760] We're not – I don't know if the word is not allowed,
+- [10:26.420] or just – you just kept them out somehow, right?
+- [10:29.840] But cars will be –
+- [10:32.160] you know, we have some cars that do terrific business,
+- [10:35.200] and we do really well with the pickup trucks,
+- [10:38.750] with the SUVs. We do – we have great things.
+- [10:43.860] And I think the people of Europe we'll have diversification.
+- [10:49.660] I think that will make them happy.
+- [10:52.760] So I think maybe cars would be the one
+- [10:55.240] that would go the biggest.
+- [10:57.180] And the second would be agriculture, the farmers.
+- [11:01.380] And we'll do it in very strict conjunction
+- [11:03.440] with the President and the European Union.
+- [11:08.800] And they're coming into, likewise,
+- [11:10.370] they're come into our country with great vigor.
+- [11:15.250] And I think, I think you're going to –
+- [11:18.080] I think they're going to make a lot of money with this.
+- [11:19.840] I think everybody is.
+- [11:21.950] And again, it's going to bring a lot of unity and friendship.
+- [11:25.160] It's going work out really well.
+- [11:28.220] The Press: Mr. President.
+- [11:29.510] What's the next deal you're focused on now?
+- [11:31.240] The President: Say it.
+- [11:32.480] The Press: What's next deal your focused on?
+- [11:34.100] The President: That's an interesting question.
+- [11:36.780] This was the big one. This is the biggest of them all.
+- [11:39.800] We're looking at deals with three or four other countries.
+- [11:43.900] But for the most part, you know, I can't get them to understand
+- [11:47.270] that it's the letter. We just sent that letter,
+- [11:48.930] and that letter is, you know, very universal for most.
+- [11:51.970] I mean, most, you wouldn't be able to do this, you know.
+- [11:54.920] You wouldn't have the time or the patience
+- [11:56.610] to be able to do a deal like this.
+- [11:58.940] Most of the others are going to be a certain tariff,
+- [12:02.010] and we're going to keep it as low as we can.
+- [12:05.250] They're generally smaller countries,
+- [12:08.160] or countries we don't do much business with.
+- [12:11.330] But they've already received,
+- [12:13.710] to a large extent they've received a letter,
+- [12:15.470] they'll probably receive a letter of clarification
+- [12:19.520] or a confirmation-type letter,
+- [12:21.130] Howard Lutnick: Exactly.
+- [12:22.440] The President: which will go out sometime during this week.
+- [12:23.920] Howard Lutnick: Right.
+- [12:25.120] The President: Prior to August 1st,
+- [12:26.320] and the tariffs will start being paid
+- [12:28.620] by those countries prior to August,
+- [12:32.170] you know, on August 1st and beyond. Okay?
+- [12:36.280] The Press: Mr. President, was part of the rush
+- [12:37.810] to get this deal done to knock Jeffrey Epstein's story out?
+- [12:41.030] The President: Oh, you've got to be kidding with that.
+- [12:42.610] [laughter]
+- [12:43.940] No, had nothing to do with it.
+- [12:45.520] Only you would think that. That had nothing do with this.
+- [12:47.930] Staff: Oh my god. The Press: [inaudible]
+- [12:49.130] which is good for European business and American business.
+- [12:52.360] Businesses in this country, particularly small businesses,
+- [12:54.910] are closing at a record rate.
+- [12:56.780] And you'll see the Prime Minister tomorrow,
+- [12:58.800] because [inaudible].
+- [13:00.000] What do you need to do to help
+- [13:01.700] British business in this country?
+- [13:04.340] The President: I think everybody's going to be
+- [13:05.840] happy with this.
+- [13:07.150] The Prime Minister of the UK, while he's not involved in this,
+- [13:11.380] will be very happy because, you know,
+- [13:13.820] there's a certain unity that's been brought there, too.
+- [13:17.130] You know, we have a separate deal with them.
+- [13:19.650] But I think everybody going –
+- [13:20.910] he's gonna be very happy to know.
+- [13:22.310] Look, he's friendly with all of you.
+- [13:24.510] I think a very good man.
+- [13:27.160] And he's going be to very happy to see what we did.
+- [13:31.000] I think the UK is going to be very, very happy.
+- [13:33.460] Thank you all very much. Appreciate it. Thank you.
+- [13:35.790] Thank you.
+- [13:37.060] The Press: [crosstalk]

@@ -1,0 +1,234 @@
+<!-- source: https://www.youtube.com/watch?v=YOLU7Lp6cmw -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: YOLU7Lp6cmw -->
+<!-- date_published: 2025-06-12T15:34:53+00:00 -->
+<!-- date_accessed: 2026-06-02T01:24:27.459435+00:00 -->
+
+# Transcript: The Story of America: The Formation of the Army
+
+- [00:03.500] (Blend of Famous American History Quotes)
+- [00:45.190] Secretary Hegseth: This year marks the 250th anniversary
+- [00:48.550] of the United States Army,
+- [00:50.810] a legacy born in turmoil, uncertainty,
+- [00:53.520] and nearly insurmountable odds. Two and a half centuries ago,
+- [00:58.540] thousands of citizen soldiers answered freedom's call.
+- [01:02.440] At a moment when tyranny tried to dim
+- [01:04.560] the spirit of an emerging nation,
+- [01:06.850] our first heroes forged an institution
+- [01:08.960] whose strength, sacrifice, and enduring resolve
+- [01:12.820] have come to define our republic.
+- [01:17.320] The army's story begins in the spring of 1775.
+- [01:21.320] One month after the Massachusetts militia humbled
+- [01:24.490] British regulars at the battles of Lexington and Concord,
+- [01:28.060] America's colonial leaders assembled in Philadelphia
+- [01:31.380] for the Second Continental Congress.
+- [01:34.090] The meeting had been called to address longstanding grievances
+- [01:37.630] with Britain's imperial government.
+- [01:40.300] But the recent bloodshed at Lexington and Concorde
+- [01:43.660] fundamentally changed the purpose of the gathering.
+- [01:47.630] Until then, many colonists had hoped
+- [01:49.490] for reconciliation with their mother country.
+- [01:52.940] It was increasingly clear that freedom
+- [01:54.890] would not be possible without war.
+- [01:58.340] The reasons for a united resistance were growing.
+- [02:01.090] Among other offenses, the British Parliament
+- [02:03.330] had earlier passed the Intolerable Acts,
+- [02:06.620] which had closed the port of Boston to all trade,
+- [02:09.170] forced colonists to house and British soldiers
+- [02:12.050] and restricted the colonists' right to public assembly,
+- [02:15.310] allowed British officials to be tried in England
+- [02:17.720] instead of the colonies,
+- [02:19.450] and effectively put Massachusetts under martial law.
+- [02:24.190] In April of 1775, they fired on American colonists.
+- [02:29.970] By the end of May 1775 patriot leaders
+- [02:33.360] were calling up militia in all 13 colonies.
+- [02:36.490] They stockpiled guns, ammunition, artillery
+- [02:39.500] and military supplies.
+- [02:41.470] Some militia units drilled every day.
+- [02:44.950] The battles of Lexington and Concord
+- [02:46.480] proved that Minutemen could push back British forces.
+- [02:50.350] Those early battles also proved
+- [02:52.130] that the colonies needed a united fighting force
+- [02:54.930] with a clear chain of command.
+- [02:58.620] Mindful of the perilous road ahead,
+- [03:01.170] the delegates to the Second Continental Congress
+- [03:03.920] debated establishing an army.
+- [03:06.990] Letters from citizens in Massachusetts
+- [03:08.910] were read aloud before the assembly,
+- [03:11.570] recounting British acts of tyranny.
+- [03:13.770] And calling neighboring colonies for assistance.
+- [03:17.590] As the Provincial Convention of Massachusetts
+- [03:20.010] wrote in a letter to the Continental Congress on June
+- [03:22.870] 2nd, quote,
+- [03:24.650] "We tremble at having an army established here
+- [03:27.440] without a civil power to provide for and control them."
+- [03:33.030] Having received reports that British troops would soon arrive
+- [03:36.080] in great numbers in New York,
+- [03:38.460] the Continental Congress directed
+- [03:39.890] that if the British were to commit hostilities
+- [03:42.640] and invade private property,
+- [03:44.500] the inhabitants should defend themselves
+- [03:46.750] and their property and repel force by force.
+- [03:51.680] Ultimately, the delegates decided
+- [03:53.540] they had only one path forward.
+- [03:56.570] It was time to create a national army.
+- [04:00.170] On June 14th, the Second Continental congress voted
+- [04:03.140] to establish the Continental Army.
+- [04:06.130] The official record read "Resolved,
+- [04:09.540] that six companies of expert riflemen
+- [04:12.290] be immediately raised in Pennsylvania,
+- [04:14.530] two in Maryland and two in Virginia,
+- [04:16.820] that each company consist of a captain,
+- [04:19.210] three lieutenants, four sergeants, four corporals,
+- [04:22.900] a drummer or trumpeter, and 68 privates.
+- [04:27.340] That each company, as soon as completed,
+- [04:29.880] shall march and join the army near Boston,
+- [04:33.430] to be there employed as light infantry
+- [04:36.130] under the command of the Chief Officer in the Army."
+- [04:41.200] The message to the British was clear.
+- [04:44.200] This was not a regional outbreak of violence.
+- [04:47.090] It was a unified act of defiance.
+- [04:50.530] The colonies intended to join together
+- [04:52.340] to defend their freedoms
+- [04:53.580] and, if necessary, to fight for independence.
+- [04:57.890] The very next day, the Continental Congress
+- [04:59.790] unanimously appointed George Washington of Virginia
+- [05:04.430] as Commander-in-Chief. The Congress wrote,
+- [05:08.150] "We, reposing special trust and confidence
+- [05:10.860] in your patriotism, valor, conduct and fidelity,
+- [05:15.400] do by these presets, constitute
+- [05:17.780] and appoint you to be General and Commander-in-Chief
+- [05:21.010] of the Army of the United Colonies,
+- [05:23.890] for the defense of American liberty,
+- [05:26.270] and for repelling every hostile invasion thereof.
+- [05:30.440] And you are hereby vested with full power and authority
+- [05:33.270] to act as you shall think,
+- [05:35.330] for the good and welfare of the service."
+- [05:40.440] That same day, Massachusetts leaders discovered
+- [05:42.800] that the British planned to occupy
+- [05:44.430] Boston's Charleston Peninsula. On June 16th,
+- [05:48.560] General Artemis Ward sent Colonels Richard Grindley
+- [05:52.160] and William Prescott
+- [05:53.820] with about 1,200 soldiers to fortify the summit of Bunker
+- [05:57.480] Hill, overlooking Boston Harbor.
+- [06:00.920] The soldiers labored through the night
+- [06:02.820] to build a defensive barrier.
+- [06:04.980] By early morning,
+- [06:06.330] they had erected a strong earthwork position
+- [06:09.490] and were joined by New Hampshire Colonel
+- [06:11.970] John Stark and his troops. As the sun rose on June 17th,
+- [06:18.350] the British noticed the Americans
+- [06:19.730] occupied the high ground. The British ships opened fire,
+- [06:24.150] but could not reach the hastily constructed American positions.
+- [06:28.810] British Major General William
+- [06:30.400] Howe ordered his troops to assault the hill.
+- [06:33.420] The fierce battle that ensued
+- [06:34.720] was a tactical victory for the British,
+- [06:38.150] but a painful and costly one.
+- [06:42.040] The British sustained twice as many casualties
+- [06:44.430] as the Americans and pulled back to Boston,
+- [06:47.630] where American forces encircled them.
+- [06:50.910] American morale was high and men streamed in from towns
+- [06:53.650] and farms volunteering to join. On July 3rd,
+- [06:57.350] General George Washington traveled to Cambridge,
+- [07:00.000] Massachusetts to assemble his officers
+- [07:02.960] just off the central yard of Harvard College,
+- [07:06.380] where he formally took command of the army.
+- [07:09.990] The next day, he wrote, "It is hoped
+- [07:13.270] that all distinctions of colonies will be laid aside
+- [07:16.600] so that one and the same spirit may animate the whole.
+- [07:20.550] And the only contest be who shall render on this great
+- [07:24.140] and trying occasion the most essential service
+- [07:27.600] to the great and common cause in which we are all engaged."
+- [07:33.580] Washington then began building the new army.
+- [07:38.120] His task was not just about assembling men willing to fight,
+- [07:40.980] it was about shaping the character of the men
+- [07:43.600] who would forge this new nation. Courage alone was not enough.
+- [07:49.260] Washington worked tirelessly to instill good order
+- [07:52.080] and discipline, secure supplies,
+- [07:54.070] and institute rigorous training to produce soldiers
+- [07:56.900] who could fight toe-to-toe with the British Army,
+- [08:00.780] then the best army in the world.
+- [08:04.590] Washington wrote, "Discipline is the soul of an army.
+- [08:10.600] It makes small numbers formidable,
+- [08:13.410] procures success to the weak, and esteem to all."
+- [08:20.100] As the army took shape,
+- [08:21.640] each battle told the story of audacity and sacrifice.
+- [08:25.710] Washington won his first victory at Boston in 1776,
+- [08:30.200] but suffered heavily at Quebec.
+- [08:36.630] When the British returned that year to New York in full force,
+- [08:40.570] the army fought doggedly from Long Island to New Jersey.
+- [08:44.300] Washington's army suffered heavy casualties,
+- [08:47.160] but never giving up. With winter setting in,
+- [08:50.480] General Washington did the unthinkable.
+- [08:53.450] The bold Christmas night crossing of the Delaware River
+- [08:56.700] in a blizzard
+- [08:58.980] and the subsequent victories at Trenton and Princeton
+- [09:02.440] turned the tide of the revolution
+- [09:06.920] and proved to the world the unbreakable spirit
+- [09:10.200] of the American patriot.
+- [09:14.960] These battles were more than military engagements,
+- [09:18.010] they were seminal moments that gave birth to our nation.
+- [09:22.410] Every volley fire, every battle won,
+- [09:27.260] and every sacrifice paid moved our nation one step closer
+- [09:33.460] to the promise of self-determination and freedom.
+- [09:37.700] Today, as we celebrate 250 years of the United States Army,
+- [09:42.270] we remember that the greatest victory ever for liberty,
+- [09:46.770] sovereignty, and independence was won by ordinary people.
+- [09:52.190] The gallant soldiers of Washington's Continental Army
+- [09:54.820] answered the call of liberty and rushed into battle,
+- [09:57.100] not only for their own freedom, but for ours as well.
+- [10:01.910] Their story defines us all.
+- [10:03.670] It tells us what we stand for and who we are as a nation,
+- [10:07.730] born through the sacrifice of our first heroes
+- [10:10.370] who gave their lives for the greatest experiment
+- [10:13.440] in self-government the world has ever known.
+- [10:16.740] Today, every soldier who dons the uniform guards
+- [10:19.630] that sacred legacy,
+- [10:21.350] ensuring that the ideals of freedom,
+- [10:24.090] duty, honor, and country
+- [10:26.570] continue to shine brightly for the whole world to see.
+- [10:30.670] The heroes of Lexington and Bunker Hill
+- [10:34.270] are not long forgotten ancestors.
+- [10:37.180] They are brothers in arms, standing to the left
+- [10:41.080] and to the right of us in our formations.
+- [10:44.950] To this day, the courage of the Revolutionary War Soldier
+- [10:49.730] and Minuteman
+- [10:51.120] beats in the hearts of every American soldier.
+- [10:55.190] These individuals strive every day to build a future
+- [10:58.140] that embodies the extraordinary spirit
+- [11:01.120] of our nation's very first citizen soldiers.
+- [11:05.100] As defined by George Washington in 1775 when he said,
+- [11:10.860] "When we assumed the soldier,
+- [11:13.450] we did not lay aside the citizen."
+- [11:18.610] The formation of our Army is a testament to the power
+- [11:21.590] and enduring spirit of a people determined
+- [11:24.140] to secure their destiny of liberty.
+- [11:27.240] As your Secretary of Defense, I am profoundly grateful
+- [11:31.480] to every individual who has served,
+- [11:34.210] from the courageous patriots of the American Revolution
+- [11:36.550] who won our freedom,
+- [11:37.900] to the soldiers currently serving around the world,
+- [11:41.430] defending our Constitution and way of life.
+- [11:46.930] On this momentous 250th anniversary of America's Army,
+- [11:51.790] let us honor the legacy of those who came before us
+- [11:54.400] by committing ourselves to building a future
+- [11:57.360] worthy of their sacrifice.
+- [12:00.330] May we always remember that in our unity, there is strength.
+- [12:03.810] In our courage, there is hope. And through our service,
+- [12:07.740] there is an unbreakable promise to defend freedom for all.
+- [12:11.460] As we celebrate this rich history,
+- [12:13.600] I invite you to reflect on the enduring spirit
+- [12:16.040] that began humbly in 1775. A spirit that, against all odds,
+- [12:21.480] forged our nation's independence,
+- [12:23.600] freedom, and liberty.
+- [12:25.560] This spirit remains the backbone of our nation today.
+- [12:28.760] No matter what challenge we may encounter,
+- [12:30.670] this spirit will propel us into the future
+- [12:33.890] with unwavering resolve.
+- [12:36.760] Thank you for joining me in celebrating our shared heritage.
+- [12:40.720] God bless you.
+- [12:42.370] God bless the United States Army.
+- [12:44.490] Godspeed to our warriors. And God bless America.
+- [12:49.640] ♪ (patriotic music) ♪

@@ -1,0 +1,959 @@
+<!-- source: https://www.youtube.com/watch?v=mRJN72K2lYw -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: mRJN72K2lYw -->
+<!-- date_published: 2026-02-25T22:26:51+00:00 -->
+<!-- date_accessed: 2026-06-02T02:37:21.976799+00:00 -->
+
+# Transcript: Vice President Vance and Administrator Oz Announce Actions to Address Fraud, Waste, and Abuse
+
+- [00:08.480] The Vice President: Well, good afternoon, everybody.
+- [00:09.860] So let me say a couple things
+- [00:11.700] about what we're announcing today,
+- [00:13.370] and then I'm going to kick it over to Dr. Oz,
+- [00:15.440] and then we're going to take a few questions.
+- [00:17.550] So as a lot of you know, there are way too many Americans
+- [00:21.550] who are being defrauded by very bad actors
+- [00:24.240] in our society, people who take the goodwill
+- [00:26.770] and the trust of the American taxpayer,
+- [00:28.460] and they decide to use it against us.
+- [00:30.510] They decide to make themselves rich
+- [00:33.020] instead of allowing these programs
+- [00:35.260] that are set up to make it easier for people
+- [00:37.390] to take care of their families, to make easier for autistic kids
+- [00:40.380] to get the after-school services they need,
+- [00:42.230] to make an easier for the people
+- [00:43.520] to get health care that they need.
+- [00:45.130] And we are going to start very aggressively
+- [00:47.310] in the administration cracking down on the people
+- [00:49.870] and the organizations that are defrauding Americans.
+- [00:51.900] So we're announcing today that we have decided
+- [00:55.430] to temporarily halt certain amounts of Medicaid
+- [01:00.460] funding that are going into the state of Minnesota.
+- [01:03.600] In order to ensure that the state of Minnesota
+- [01:06.130] takes its obligations seriously to be good stewards
+- [01:10.240] of the American people's tax money.
+- [01:11.990] Now what is this going to mean?
+- [01:13.650] What this means is that first of all,
+- [01:15.740] the providers on the ground in Minnesota
+- [01:18.210] have actually already been paid.
+- [01:19.730] The state has paid those providers the money.
+- [01:22.030] What we're doing is we are stopping the federal payments
+- [01:24.960] that will go to the state government
+- [01:27.180] until the state government takes its obligations seriously.
+- [01:32.680] To stop the fraud that's being perpetrated
+- [01:34.950] against the American taxpayer.
+- [01:36.360] There are a few different ways that we're doing that.
+- [01:38.630] There are few different affirmative actions
+- [01:40.620] that we are taking today.
+- [01:42.920] Dr. Oz is going to talk about those.
+- [01:45.000] But let me talk a little bit about the spirit of this
+- [01:47.890] and why we're doing it.
+- [01:49.730] So number one, one of the examples of fraud
+- [01:52.260] that we've seen in Minnesota
+- [01:53.520] that we verify that is just awful
+- [01:56.550] is that a program that existed to ensure that autistic children
+- [02:00.370] had access to some after school services
+- [02:02.980] has made a number of people rich,
+- [02:05.330] not by providing services to needy children,
+- [02:08.160] but by allowing fraudsters to take money that ought by
+- [02:11.630] right go to American citizens and to American families,
+- [02:15.720] and to set up sham businesses, set up sham clients,
+- [02:20.120] set up people who are not even autistic,
+- [02:22.560] but claim to be autistic in order
+- [02:24.760] that they benefit from the money that's out there.
+- [02:26.890] Now what does that mean?
+- [02:28.270] Number one, it means that a lot of people
+- [02:30.120] are getting rich off the generosity
+- [02:31.930] of American taxpayers,
+- [02:33.200] but more fundamentally and more importantly than that,
+- [02:35.720] it means that there are kids in Minnesota
+- [02:38.950] who deserve these services, who need these services
+- [02:42.200] and they're not going to those kids,
+- [02:43.840] they're going to fraudsters in Minneapolis.
+- [02:46.400] That is unacceptable and that's the sort of thing
+- [02:48.930] that we're cutting off with this action today.
+- [02:51.140] Let me make one final point about the spirit of this.
+- [02:54.040] You know, one of the things I love about our country
+- [02:56.330] is that we're a generous country, we're generous people.
+- [02:59.170] We take care of our fellow citizens
+- [03:01.670] who can't afford medical care
+- [03:03.090] because they're down on their luck.
+- [03:04.430] We take of people who can afford to put food on the table
+- [03:08.010] even though they work hard and play by the rules.
+- [03:10.320] We recognize that we are all in this together
+- [03:13.060] and part of the reason why we have Medicaid
+- [03:15.630] or part of reason why have food stamps,
+- [03:17.610] part of a reason why these programs is we want
+- [03:20.430] to make sure that kids who grew up in families,
+- [03:22.660] not all that different from the family that I grew up in,
+- [03:25.110] that they have access to the basic necessities,
+- [03:27.740] food, medical care, after school services,
+- [03:30.910] when their family needs them, but they're unable to pay.
+- [03:34.270] What's happening in Minneapolis, in California,
+- [03:38.510] in a number of states all across our country
+- [03:41.680] is that the generosity
+- [03:43.230] and the good hearts of our fellow Americans
+- [03:46.060] are being taken advantage of.
+- [03:47.500] We're taking that social contract that says
+- [03:50.240] that our American citizens we take care of one another
+- [03:53.180] and we're allowing a few bad actors
+- [03:56.060] to get rich off that generosity of spirit
+- [03:58.800] instead of providing the services
+- [04:00.490] to the kids who need it.
+- [04:01.730] This is disgraceful. It has happened for too long.
+- [04:05.730] Far too many people have gotten rich
+- [04:08.280] by taking what is the best of the American spirit
+- [04:11.490] and getting rich off of it
+- [04:13.000] instead of providing services to kids who needed.
+- [04:15.570] That is stopping today. We're taking a whole of approach
+- [04:19.180] in the Trump administration to take this fraud seriously.
+- [04:22.230] What Mehmet Oz and his team at CMS
+- [04:24.720] have done is really remarkable
+- [04:27.050] and it's just the first step of our efforts.
+- [04:29.100] So without further ado, let me turn it over to Mehmet
+- [04:31.440] to say a few words about what he's doing,
+- [04:33.680] what his team has covered
+- [04:35.280] and what they're accomplishing with this new action.
+- [04:37.750] Dr. Oz.
+- [04:39.170] Administrator Oz: Mr. Vice President,
+- [04:40.450] I appreciate the leadership on this.
+- [04:43.200] There's no question that his commitment,
+- [04:45.370] the Vice President's commitment to rooting out this fraud
+- [04:47.660] is going to make a massive difference in preserving
+- [04:49.760] and protecting our nation's public health programs.
+- [04:52.470] It's going to protect patients.
+- [04:53.890] Wanna thank President Trump for pushing all of us
+- [04:55.770] to make sure we protect our most vulnerable Americans,
+- [04:58.360] the ones that JD mentioned, the ones he grew up with,
+- [05:00.310] the ones all of know in our lives.
+- [05:02.000] It also protects taxpayers from attacks
+- [05:04.260] on our healthcare system.
+- [05:05.570] Secretary Kennedy has spearheaded these efforts,
+- [05:07.780] and thanks to his leadership,
+- [05:09.170] I'm proud to announce the largest,
+- [05:10.870] the largest fraud initiative,
+- [05:13.350] anti-fraud effort of its kind in CMS history.
+- [05:16.710] Now, why is this action necessary?
+- [05:18.520] Last night in the State of the Union address,
+- [05:19.960] the President spoke about the affordability issues
+- [05:22.440] that we have improved dramatically
+- [05:24.020] in this administration.
+- [05:25.240] But let's put some numbers on health care.
+- [05:26.630] The average family...
+- [05:28.360] Puts about $27,000 in the health care year.
+- [05:31.390] They only pay $7,000 themselves, which is a lot,
+- [05:34.360] but there's an extra $20,000 invested for them.
+- [05:36.780] This is not a reasonable amount of money to spend.
+- [05:39.600] We have got to bend that curve downwards.
+- [05:41.760] It's unpredictable as well when you have to make these expenses.
+- [05:44.560] And the fraud that we're experiencing in America
+- [05:47.060] is making this already dangerous problem much worse.
+- [05:49.690] So we're going to fix these issues.
+- [05:51.020] The president last night
+- [05:52.230] spoke about the need for price transparency.
+- [05:54.700] That's going to help by making people more aware
+- [05:56.510] of what they're paying.
+- [05:57.730] It's also going to help us at CMS
+- [05:59.310] figure out what you shouldn't be paying and identifying fraud.
+- [06:02.670] To that note, the president announced last night
+- [06:04.630] that he's appointing our vice president
+- [06:06.130] to lead the war on health care fraud, a wise choice.
+- [06:09.340] Your passion for this will make a huge difference.
+- [06:11.420] This is not about the money.
+- [06:13.150] By itself, this is about people's lives and our culture,
+- [06:16.580] our shared values that have allowed
+- [06:17.900] these beautiful programs, Medicare and Medicaid,
+- [06:20.110] to survive brilliantly for 60 years.
+- [06:22.730] We believe, listen carefully,
+- [06:25.000] that we are spending $300 billion a year
+- [06:28.640] in health care in this country for fraudulent, abusive,
+- [06:31.930] or wasteful purposes. $300 Billion.
+- [06:34.960] Let's put that in perspective. If we could reduce fraud by 5%,
+- [06:38.510] which is at $300 billion, we would take the trust fund
+- [06:42.100] that's going to take care of all of us as we get older,
+- [06:44.480] and we would allow it not to expire in five to six years,
+- [06:47.050] we would double its life expectancy.
+- [06:49.100] That's massively important if you're going to trust
+- [06:50.940] the social safety net to be there for you.
+- [06:53.400] You deserve that social safety
+- [06:54.780] and that it's there, it's created,
+- [06:56.160] we're not going to let fraudsters steal it from you.
+- [06:58.480] The Stellar CMS team, I want to call them out,
+- [07:00.210] Kim Brandt, who's videoing me over there,
+- [07:01.830] Dan Brillman, Capri Snapstaff, Carlton,
+- [07:03.900] have worked tirelessly to put this together.
+- [07:05.950] They've been rooting out criminals all year long.
+- [07:08.340] I know as well what it's like. I've visited all these areas,
+- [07:10.670] personally witnessed what it's like
+- [07:12.730] to see something you know is wrong
+- [07:14.750] and wonder why no one tried to fix it. It's infuriating.
+- [07:17.500] The Vice President described very accurately
+- [07:19.680] exactly what you see on the ground.
+- [07:21.420] These self-serving scoundrels, that's what they are,
+- [07:24.370] who rob our federal and state health programs
+- [07:26.640] have decided it is worth the risk.
+- [07:28.620] I'm going to make a proposition to you.
+- [07:30.300] If you commit crime on Medicare or Medicaid in America,
+- [07:33.430] and you steal, let's say, a couple million dollars.
+- [07:35.280] Your jail sentence, first time offender, maybe a year.
+- [07:38.310] For a lot of folks, that's a good deal.
+- [07:40.320] We have to take these crimes seriously and treat them
+- [07:42.460] as seriously as if they were bank robberies,
+- [07:44.140] because they're more dangerous than bank robbers.
+- [07:45.990] People get hurt during them.
+- [07:47.900] Let me share some of these horrible stories
+- [07:49.990] the Vice President started highlighting autism.
+- [07:51.780] Let's get into the details
+- [07:53.000] of what's really going on in Minnesota.
+- [07:54.320] These are real cases from our group at CMS.
+- [07:57.110] These are adjudicated numbers.
+- [07:58.760] There's a fraud scheme in Minnesota where criminals,
+- [08:02.850] soon to be criminals, pay moms $1,000, roughly,
+- [08:06.850] in order to enroll their children as being autistic.
+- [08:09.730] Falsely, dishonestly claiming their children are autistic.
+- [08:13.000] They then bill Medicaid, as already happened,
+- [08:15.240] millions of dollars for services that were never rendered,
+- [08:17.660] never delivered by a qualified staff member.
+- [08:20.160] These schemes disproportionately involve immigrant communities.
+- [08:23.230] They're insulated, they're able to organize efforts,
+- [08:25.990] and sometimes they don't understand what's going on.
+- [08:28.030] And it ultimately diverts resources
+- [08:29.780] away from kids who truly have autism.
+- [08:31.480] Because if every kid in the neighborhood has autism,
+- [08:34.120] then nobody has autism in terms of how you can manage them.
+- [08:37.350] There was one behavioral -- and by the way, these kids,
+- [08:39.520] they carry that diagnosis of autism the rest of their lives.
+- [08:42.540] Their mom made a bad decision,
+- [08:43.860] the kid pays the price for the rest their life.
+- [08:45.930] There's one behavioral health organization,
+- [08:48.020] Mr. Vice President in Minnesota,
+- [08:49.980] they received $11.5 million in Medicaid payments,
+- [08:52.310] but the top biller, the top biller submitted 450 days
+- [08:56.350] where they claimed they were working more
+- [08:57.740] than 24 hours a day.
+- [08:59.080] I mean, even in the White House, that's tough.
+- [09:01.500] It's hard to work more than 24 hours per day.
+- [09:03.490] How it didn't get picked up is shocking to us at CMS.
+- [09:06.780] There are other red flags in Minnesota,
+- [09:08.280] including hundreds of beneficiaries
+- [09:09.930] receiving treatment linked to one location,
+- [09:12.090] which was impossible physically to be true.
+- [09:14.430] We had eight beneficiaries in one of these substance
+- [09:16.450] use disorder centers, eight who were already dead,
+- [09:19.610] but the center was still billing us.
+- [09:22.010] Not only did they let the person pass, they kept billing for it.
+- [09:24.870] That's the level of average we're talking about.
+- [09:26.420] So CMS is done paying and chasing.
+- [09:28.810] We don't think jail sentences are the right way out.
+- [09:30.710] These criminals flee the country.
+- [09:32.140] Many are foreign nationals.
+- [09:33.470] Instead, we're launching the largest action
+- [09:35.550] against fraud that we've ever taken.
+- [09:37.730] The money's not going to ever leave the building again.
+- [09:39.960] We're going to start draining the swamp of the crooks
+- [09:42.470] that have inhabited it and are defrauding us.
+- [09:44.520] There are three bold actions. The first, and for many of you,
+- [09:48.310] maybe the most important is we're going to,
+- [09:49.910] for the first time,
+- [09:51.190] take a massive action to defer funds to a state.
+- [09:54.490] Let's start with this Medicaid program in Minnesota,
+- [09:56.480] which serves pregnant women.
+- [09:57.720] Medicaid takes care of our children.
+- [09:59.080] Fifty-three percent of kids are born in the poverty.
+- [10:01.570] They're supported through Medicaid.
+- [10:03.030] Disadvantaged seniors, individual disabilities,
+- [10:05.630] it's imponderable that you would take advantage
+- [10:09.020] of these precious programs, yet they're putting it at risk,
+- [10:12.350] all of it, by stealing the money.
+- [10:14.250] So it's our duty to preserve Medicaid,
+- [10:15.870] and what we're going to do is identify the scammers,
+- [10:18.910] which we have done in Minnesota.
+- [10:20.710] We have identified that they've hijacked, in particular,
+- [10:22.730] a certain part of the Minnesota Medicaid system.
+- [10:25.590] Said differently, and I'll just put the numbers out there,
+- [10:28.230] it's going to be $259 million
+- [10:31.300] of deferred payments from Medicaid to Minnesota,
+- [10:34.270] which we're announcing as I speak to Governor Walz
+- [10:37.250] and his team.
+- [10:38.490] That's based on an audit of the last three months of 2025.
+- [10:41.700] Restated, a quarter billion dollars
+- [10:44.130] is not going to be paid this month to Minnesota
+- [10:47.530] for its Medicaid claims. Now, that's a million,
+- [10:49.960] rather a quarter billion dollars of money that's your money.
+- [10:53.520] It's your taxpayer money.
+- [10:55.090] And these home and community-based services,
+- [10:57.260] which again are services
+- [10:58.460] that are typically things you would do for your family,
+- [11:00.930] but for whatever reason your family's not there
+- [11:02.490] to provide them, are very hard to audit.
+- [11:04.410] And for that reason, there's been a lot of slippage.
+- [11:06.510] The guardrails have not been well maintained.
+- [11:08.430] And if you're not serious about the integrity of the program,
+- [11:11.110] you'll see these problems happening in your state,
+- [11:13.030] which is why Minnesota's not alone,
+- [11:15.070] although they're the first to receive this action.
+- [11:17.980] These high-growth areas of fraud are difficult to police,
+- [11:21.340] and so we require the states to take these issues seriously.
+- [11:24.260] This quarter-billion-dollar deferment
+- [11:26.620] is hopefully going to get on the radar screen
+- [11:28.610] for the state of Minnesota
+- [11:30.400] and make sure they are responsive to our requests.
+- [11:32.850] We do what any honest and patient-focused agency would do.
+- [11:35.460] We have notified the state that we will give them the money,
+- [11:39.390] but we're going to hold it.
+- [11:41.030] And only release it after they propose
+- [11:43.010] and act on a comprehensive,
+- [11:44.240] corrective action plan to solve the problem.
+- [11:46.860] If Minnesota fails to clean up the systems,
+- [11:48.870] the state will rack up a billion dollars
+- [11:50.830] of deferred payments this year.
+- [11:52.640] Governor Walz has 60 days, 60 days sir,
+- [11:55.370] to respond to our letter.
+- [11:57.020] And if providers and beneficiaries are worried
+- [11:59.080] about getting their money in services,
+- [12:00.390] please call your governor.
+- [12:01.810] These are services the governor has already paid for.
+- [12:04.460] We are just not reimbursing the state
+- [12:06.180] to make it clear there is a rainy day fund in Minnesota.
+- [12:08.810] So we are very confident
+- [12:10.110] that people will not be hurt in Minnesota.
+- [12:12.250] This is not a problem with the people of Minnesota,
+- [12:14.110] it's a problem with the leadership of Minnesota
+- [12:16.140] and other states who do not take Medicaid preservation seriously.
+- [12:19.690] Any delay in the services is going to be,
+- [12:23.030] should be laid at the seat of Governor Walz.
+- [12:26.000] I believe he will take this seriously.
+- [12:27.850] They're not the only state that's floundering.
+- [12:29.910] We have more announcements from other states coming soon.
+- [12:32.570] Second big issue has to do with Medicare.
+- [12:35.130] So that was Medicaid in Minnesota,
+- [12:36.640] takes care of our most vulnerable populations,
+- [12:38.340] Medicare takes care of our seniors.
+- [12:40.790] Durable medical equipment,
+- [12:42.320] most of you have not thought much about this category.
+- [12:44.560] These are the folks who, they serve wheelchairs,
+- [12:46.910] canes, they sell knee braces, catheters, Foley catheters.
+- [12:50.570] Durable medical equipment suppliers,
+- [12:51.920] because they ship prostheses and these items,
+- [12:55.240] they're a great target for fraudsters.
+- [12:56.640] Here's what they do.
+- [12:57.860] They can steal the beneficiary number.
+- [12:59.990] And they never ship the product.
+- [13:01.700] They pretend to ship the products,
+- [13:04.160] but nothing ever gets sent out.
+- [13:05.390] So there's no cost of goods sold,
+- [13:06.710] there's not inventory, there's now payroll,
+- [13:08.910] no one works in the place, it's empty.
+- [13:10.700] But they generate millions of dollars of fake bills.
+- [13:13.890] There was a national DME fraud scheme
+- [13:15.930] that generated 1.1 billion dollars
+- [13:18.270] recently in fraudulent, orthotic brace orders.
+- [13:21.470] The beneficiaries whose numbers were stolen and used,
+- [13:24.840] they couldn't get those products.
+- [13:26.710] Imagine if you're in an insulin pump
+- [13:28.560] and someone steals your number and orders
+- [13:31.070] an insulin pump fictitiously, bills Medicare,
+- [13:34.760] and then you come and try to get this to deal with your diabetes.
+- [13:37.300] You don't get it. That actually happened.
+- [13:39.050] And what happens to those patients?
+- [13:40.390] They don't know if their blood sugar is so high
+- [13:42.290] or so low that they might die.
+- [13:43.900] That's the risks that we're allowing
+- [13:46.500] by not taking this seriously. So today, issue number two,
+- [13:49.530] is we're announcing a six-month national moratorium,
+- [13:52.360] a national moratorium blocking all new enrollments
+- [13:55.130] for durable medical equipment,
+- [13:56.510] prostheses, orthotics, supplies across the board.
+- [13:59.590] These crimes are becoming a major source
+- [14:01.490] of fraudulent activity.
+- [14:02.820] And I'll just mention, Mr. Vice President of South Florida,
+- [14:05.500] you ever go to McDonald's?
+- [14:06.910] Yeah, too much. We had rehearsed this.
+- [14:10.490] So there are two times,
+- [14:12.420] twice as many durable medical equipment
+- [14:14.510] suppliers in South Florida than McDonald's.
+- [14:18.150] And that's not because Secretary Kennedy
+- [14:19.720] is closing down McDonald's.
+- [14:21.520] That's because the amount of fraud is so massive
+- [14:23.910] that it's easier to open one of these suppliers
+- [14:25.990] that open a bank account,
+- [14:27.380] which is why we're working with Secretary Bessent.
+- [14:29.160] And part of the reason for this moratorium
+- [14:30.750] is it gives us time to be able to deal
+- [14:32.490] with these issues that have become massive.
+- [14:34.230] And if we just shut down South Florida,
+- [14:36.020] they'd all flee to California and to Texas.
+- [14:38.660] So we have to shut the whole country down.
+- [14:40.450] This unfortunate necessity is going to allow us
+- [14:44.250] to get on top of what we believe
+- [14:46.250] is billions of dollars of DME frauds.
+- [14:48.610] We've already stopped $1.5 billion of billing,
+- [14:51.260] but we need more time to shut down these bad guys.
+- [14:53.850] But it's going to be effective,
+- [14:56.230] and it's not going to touch the people who need these services.
+- [14:58.710] We've designed this system
+- [15:00.150] so that all the people who are already selling products
+- [15:03.060] can continue to sell products until we check them out,
+- [15:05.360] but no new DME enrollments, no ownership changes,
+- [15:07.560] all the things that fraudsters have done
+- [15:09.010] historically will be blocked.
+- [15:10.760] This way we're preserving access,
+- [15:12.660] we're not allowing tax dollars to be stolen.
+- [15:15.180] Now you may be asking why is it so important to crush fraud,
+- [15:19.040] to assure the affordability of our nation.
+- [15:22.270] I'll just give you one example
+- [15:23.690] that we just finished dealing with.
+- [15:24.990] The Vice President is aware of this.
+- [15:26.660] We had skin substitutes that were generating,
+- [15:28.900] we believe, this coming year, $23 billion in billing.
+- [15:32.080] Because we're able to shut that down
+- [15:33.810] to where it's supposed to be,
+- [15:35.020] because they have a role when used appropriately,
+- [15:37.260] every single senior in America,
+- [15:39.470] everyone, is going to get $132 extra money this year
+- [15:43.420] just from that one thing that we shut down.
+- [15:45.590] That's the amount of money we're talking about,
+- [15:47.850] and it affects all of us.
+- [15:49.070] And to that note, because every one of you are affected,
+- [15:52.280] we want all of you to help us.
+- [15:53.880] So the third big announcement is we want to crush fraud
+- [15:56.750] by crowdsourcing ideas.
+- [15:58.300] We're issuing a request for information.
+- [16:00.000] We need and we want your help. The vice president, myself,
+- [16:03.120] the president, Secretary Kennedy,
+- [16:04.380] all of us know that all of us are smarter than any one of us.
+- [16:06.680] So what can you do?
+- [16:07.880] We want your input on how to prevent, detect,
+- [16:09.800] and respond to fraud for in-government funded healthcare.
+- [16:12.880] Whatever ideas you have, we're interested in.
+- [16:14.600] Our goal is to supercharge program integrity
+- [16:16.780] over the next six months.
+- [16:18.260] So we put in a request that means providers
+- [16:20.650] and suppliers and payers and technology companies
+- [16:23.340] and patient advocates, beneficiaries.
+- [16:25.240] If you see fraud, you let us know.
+- [16:27.090] A state Medicaid director can show us patterns of fraud
+- [16:29.330] that we're not aware of.
+- [16:30.590] A provider can help understand compliance burdens
+- [16:32.960] and how to deal with those more effectively.
+- [16:34.620] Patient advocate, get cracking on
+- [16:36.370] making sure that people are aware of fraud.
+- [16:38.530] And like we have done already this year,
+- [16:41.180] by pulling in those kinds of ideas,
+- [16:42.760] we stopped almost $6 billion from leaving the building,
+- [16:45.810] but that leaves a lot more out there
+- [16:47.890] that we can take advantage of. So over the next 60 days,
+- [16:50.250] the CRUSH initiative we just issued
+- [16:52.250] is us asking you to help us build something better.
+- [16:55.470] To help the brave patriots out there
+- [16:57.040] who want to play a role to play a role,
+- [16:58.720] call 1-800-HHS-TIPS if you see fraud,
+- [17:02.150] or just go to CMS.gov/fraud.
+- [17:04.440] Those are simple, easy ways for you
+- [17:06.210] to help us address the problems the Vice President highlighted.
+- [17:09.320] God bless you all. Mr. Vice-President.
+- [17:11.330] The Vice President: Great job.
+- [17:12.620] Very, very, very important initiative.
+- [17:14.330] And we'll take a few questions.
+- [17:16.270] I didn't expect you to put me on the spot
+- [17:17.790] with Bobby Kennedy about my fast food habits,
+- [17:19.730] but here we are. Sir, in the front.
+- [17:22.430] The Press: Two things, Mr. Vice President.
+- [17:23.780] First, can you talk about the legal authority
+- [17:25.650] under which the federal government pauses
+- [17:29.220] legally obligated funds under mandatory
+- [17:31.890] funding from Congress, such as Medicaid?
+- [17:33.880] And secondly, if you can tell us anything you know
+- [17:35.700] about the situation off the coast of Cuba,
+- [17:39.070] where there's a speed boat shot.
+- [17:40.480] (inaudible) been briefed on that, you know,
+- [17:41.940] if Americans were killed or injured in it.
+- [17:44.220] The Vice President: Yes, on the second thing,
+- [17:45.770] actually Marco briefed me about 15 minutes ago on it,
+- [17:48.850] but we don't know a whole lot of details
+- [17:50.360] and so I'll defer to the White House
+- [17:53.350] to provide more updates as we get them.
+- [17:54.950] Certainly, you know, a situation that we're monitoring,
+- [17:57.690] hopefully it's not as bad as we fear it could be,
+- [18:00.320] but I can't say more because I just don't know more.
+- [18:02.430] On the question of the legal authorities,
+- [18:04.010] I'm inherent in Congress's signing
+- [18:08.360] of the administration actually,
+- [18:10.590] you know, we're the ones who spend this money.
+- [18:12.370] Congress appropriates it.
+- [18:13.880] We're the one to actually make sure
+- [18:15.150] this goes to the people it ought to go to.
+- [18:18.010] And inherent in that is making sure that it only goes to people
+- [18:21.210] that Congress says that it should go to,
+- [18:23.350] we shouldn't be sending money to fraudsters,
+- [18:25.150] we should not be sending money to companies
+- [18:27.220] that are committing mass fraud.
+- [18:28.420] We shouldn't be sending money to anybody
+- [18:31.340] that's trying to defraud the American taxpayer.
+- [18:33.330] So I know, you know, Oz and his team,
+- [18:35.870] he's got the best team, I think, in healthcare
+- [18:38.080] anywhere in the private or the public sector.
+- [18:39.810] It's one of the great things I love about working with Dr. Oz
+- [18:42.410] is he's brought great people along with him
+- [18:44.370] and congratulations on this. But I feel quite confident
+- [18:46.870] we have the legal authority to do this.
+- [18:48.550] And again. I'd reiterate we don't want to do this.
+- [18:53.040] We don't want to be in a situation
+- [18:55.500] where the state of Minnesota is being so careless
+- [18:59.210] with federal tax dollars
+- [19:00.840] that we have to turn the screws on them a little bit
+- [19:03.500] so that they take this fraud seriously.
+- [19:05.590] You heard Dr. Oz say this, Tim Walz could call him,
+- [19:07.870] could call me, could call anybody in the administration
+- [19:10.560] and we've given him 60 days to respond to this.
+- [19:13.040] All we need the governor
+- [19:15.000] and the administration in Minnesota to do
+- [19:16.730] is something quite simple which is to show that
+- [19:19.510] before you give Medicaid funds to somebody,
+- [19:22.090] you're taking seriously whether they provided the services
+- [19:25.450] that they say that they're providing.
+- [19:27.250] And the fact that there are so many people handing out
+- [19:30.190] millions and billions of dollars of federal Medicaid money
+- [19:34.130] without even confirming that they are doing the thing
+- [19:36.880] that they say that their doing, it's a disgrace.
+- [19:39.780] It's a defrauding of the American taxpayer
+- [19:41.690] and we're stopping it. Katelyn.
+- [19:44.540] The Press: Two questions.
+- [19:45.770] One on the 60 days that Governor Walz has to respond.
+- [19:48.360] What exactly is the condition that he needs to meet
+- [19:51.130] for this funding to be released back to his state?
+- [19:53.580] I just wasn't really clear on that.
+- [19:55.440] And secondly, on Iran, while you're here,
+- [19:57.510] can you explain to the American people
+- [19:59.000] why the United States would need to strike Iran
+- [20:01.000] to stop them from getting a nuclear weapon
+- [20:02.650] if the United State's
+- [20:03.930] obliterated their enrichment program last summer?
+- [20:06.020] The Vice President: Well, I'm not going to make
+- [20:07.290] any news on Iran today, Kaitlin.
+- [20:09.260] I'll let the president make those announcements.
+- [20:10.900] As you know, he is sending two of his best negotiators
+- [20:13.590] to Geneva tomorrow
+- [20:15.460] in order to continue to try to strike the best deal possible
+- [20:18.260] for the American people.
+- [20:19.560] But the principle is very simple.
+- [20:20.930] Iran cannot have a nuclear weapon.
+- [20:22.850] If they try to rebuild a nuclear weapon,
+- [20:24.950] that causes problems for us. And in fact, we've seen evidence
+- [20:27.880] that they have tried to do exactly that.
+- [20:30.100] So the president's sending those negotiators
+- [20:32.010] to try and address that problem.
+- [20:33.790] As the president has said repeatedly,
+- [20:35.520] He wants to address that problem diplomatically,
+- [20:37.840] but of course the president has other options as well.
+- [20:40.460] On what we need to see from Governor Walz,
+- [20:42.710] I'll say something about that briefly
+- [20:44.010] and then turn it over to Dr. Oz.
+- [20:46.040] Look, it's actually pretty simple.
+- [20:47.390] What we want to see from the governor of Minnesota,
+- [20:49.750] from the entire administration there in Minnesota,
+- [20:52.470] is some affirmative steps to make sure
+- [20:55.690] that the people who are billing us for Medicaid services
+- [20:58.290] are actually providing those Medicaid services.
+- [21:00.760] The main source of fraud,
+- [21:02.730] whether it's a small business or a bigger company,
+- [21:05.130] is you have people who are building the government.
+- [21:08.290] Millions, tens of millions, billions of dollars,
+- [21:11.090] saying that they're providing a service,
+- [21:13.420] but there's no actual confirmation.
+- [21:15.840] There's no follow-up to ensure
+- [21:17.430] that they are actually providing those services.
+- [21:19.510] We want to see that follow- up from Minnesota.
+- [21:21.350] Dr. Oz, maybe you can speak to it a little bit more
+- [21:23.620] about how exactly we want to see that.
+- [21:26.250] Administrator Oz: Let me combine both these questions.
+- [21:27.520] So on December the 7th, we sent a letter to Governor Walz
+- [21:29.860] asking for a corrective action plan,
+- [21:31.940] which is a mechanism for us to extract from the state
+- [21:34.550] what they think they can do to fix the problems.
+- [21:37.020] The answer we got back at the end of the month,
+- [21:38.660] which was what the deadline was, was inadequate.
+- [21:40.790] We alerted them to this.
+- [21:42.080] We issued guidance that we were going to defer income
+- [21:44.510] based on an audit of last quarter's money.
+- [21:47.260] We actually looked dutifully through
+- [21:49.390] all of the bills that were sent to us.
+- [21:51.530] We found that of these high-risk services, roughly half of them,
+- [21:55.490] you really couldn't trust the data we were looking at.
+- [21:57.670] It's not that the numbers don't add up,
+- [21:59.070] the backup to the numbers is not there.
+- [22:00.550] So what do we need to have happen?
+- [22:02.110] We need to know that the providers
+- [22:03.510] actually are the real providers.
+- [22:05.180] Oftentimes there's no person that you can associate
+- [22:07.530] with the treatment itself. We need you,
+- [22:09.490] after you adjudicate who these providers are,
+- [22:11.990] make sure they're not already in trouble for doing bad stuff,
+- [22:14.530] and then re-evaluate all the current providers
+- [22:18.260] to make sure they're supposed to be able
+- [22:19.860] to provide these services.
+- [22:21.320] And there's a whole slew of tools that we can use,
+- [22:23.350] including checking before you pay the bill,
+- [22:26.210] that the bill is legitimate.
+- [22:27.790] That prepayment review is incredibly important.
+- [22:30.210] It's cumbersome, it's clunky. We wish we didn't have to do it.
+- [22:32.670] But I'm going to highlight something
+- [22:33.990] that the Vice President mentioned.
+- [22:35.890] These are services that we normally would not pay for.
+- [22:39.460] They're services we give to you
+- [22:40.910] because your family can't do them for you.
+- [22:43.020] If it's a hernia operation,
+- [22:44.570] there's a dozen people who have credentials, licensing, we can
+- [22:48.350] (inaudible) a scar.
+- [22:49.650] But if your service
+- [22:50.970] is transporting you to the doctor's office
+- [22:53.750] and you can't tell me who actually drove the car
+- [22:56.020] and why they billed so much
+- [22:57.230] and that the patient didn't go to the doctors office,
+- [22:59.550] then we have to do our job, which you would want us to do,
+- [23:02.470] which is to ask for some backup and there wasn't any backup.
+- [23:05.060] So to echo, 60 days, that's the deadline we expect to hear back.
+- [23:09.330] We've been following the rules meticulously
+- [23:11.220] to do this correctly,
+- [23:12.510] which is one of the reasons we're optimistic
+- [23:13.840] we'll be effective in Minnesota.
+- [23:18.850] The Press: I'm just wondering
+- [23:20.060] about this huge universe of fraud
+- [23:22.970] that you're talking about, $300 billion.
+- [23:24.940] How did you arrive at that number?
+- [23:26.830] What number is realizable in terms of savings?
+- [23:30.490] And you've said, you've mentioned California.
+- [23:32.870] You've said that you are going to move on to other states.
+- [23:34.970] Can you just give us a kind of snapshot of where you see that?
+- [23:38.290] And are all of the states that you going after
+- [23:41.410] and where you these problems ruled by Democratic,
+- [23:45.380] I mean, California and Minnesota
+- [23:46.810] are both Democratic from the state.
+- [23:48.360] So (inaudible).
+- [23:50.420] The Vice President: Well, you said ruled by Democrats.
+- [23:52.090] We didn't use that word. You did.
+- [23:54.800] But here's what I'd say. $300 billion in the grand scheme
+- [23:59.740] of how much the federal government
+- [24:01.540] spends on health care services, it sounds like a ton of money.
+- [24:05.800] It's actually, the federal governments
+- [24:07.550] spends well over a trillion dollars
+- [24:09.060] in providing medical services to the American people.
+- [24:11.920] And based on what we've seen, based on the amount of services
+- [24:14.900] that we've seen that have been billed that are fraudulent,
+- [24:17.370] and also based on the fact that in a number of blue states,
+- [24:19.810] and this is true as far as I know only in blue states
+- [24:22.710] where you have illegal aliens
+- [24:23.980] encouraged to get on the Medicaid program,
+- [24:26.210] we actually think $300 billion may be conservative.
+- [24:29.250] And we certainly, our ambition here
+- [24:31.120] is to get as much of that money back
+- [24:32.530] for the American taxpayer as possible.
+- [24:34.000] Again, we're taking the social safety net.
+- [24:36.770] We're taking something that exists for the benefit of people
+- [24:40.190] who can't pay for medicine on their own,
+- [24:42.730] we want to help our fellow Americans.
+- [24:45.420] We can't do that if those programs are being defrauded
+- [24:48.580] by people who either shouldn't be here in the first place
+- [24:51.450] or have the legal right to be here committing criminal acts
+- [24:54.000] by defrauding these systems.
+- [24:55.290] Administrator Oz: Can I clarify one number?
+- [24:56.970] Just on the numbers, the $300 billion
+- [24:58.780] from the Kaiser Family Foundation
+- [25:00.050] assessment of estimated 5% fraud in all health care,
+- [25:03.390] not just federally funded health care.
+- [25:05.080] So it's 5% of the total, roughly $6 trillion.
+- [25:07.370] We spend close to $2 trillion, $1.8 trillion of federal monies.
+- [25:11.880] So the federal portion will be about $100 billion,
+- [25:14.380] and we believe much of that would be achievable.
+- [25:15.980] It's not fraud.
+- [25:17.220] It's fraud, waste, and abuse altogether.
+- [25:20.690] The Vice President: Yeah. Yeah, you can go first then you.
+- [25:25.030] The Press: Thank you very much, Vice President.
+- [25:27.120] As you know, the Kurds have been loyal allies
+- [25:30.710] to the United States for decades.
+- [25:33.680] You're fighting dictatorship in Iran,
+- [25:36.030] we're fighting terrorism in the region,
+- [25:38.870] and recently President Masoud Barzani
+- [25:41.280] worked closely with the U.S. Special envoy to Syria
+- [25:45.640] to help to find a peaceful solution to the conflict there.
+- [25:50.840] How do you see the future of the strategic relationship
+- [25:54.340] between the Kurdistan and the United States of America?
+- [25:57.890] The Vice President: Let me be brief here
+- [25:59.590] because we're here to focus on the fact that way
+- [26:02.010] too many people were defrauding the American population.
+- [26:05.130] But you know, we have a great relationship with the Kurds.
+- [26:07.070] The president loves the Kurd.
+- [26:08.370] I know that the entire administration,
+- [26:09.760] we've had great contacts and great friendships
+- [26:12.730] with the people,
+- [26:14.870] the Kurdish people in various countries all over the world.
+- [26:17.950] And look, our attitude is we want those people
+- [26:19.840] to be able to live in peace and harmony
+- [26:21.590] and prosperity with their neighbors.
+- [26:23.300] We've pursued a foreign policy of peace in part
+- [26:25.650] because we want the Kurdish people,
+- [26:27.560] but also the Arab people who live there,
+- [26:29.170] the Jewish people who lived there, and the Christians.
+- [26:31.210] We want everybody to be in peace.
+- [26:33.180] And that has been the main focus of our policy in Syria.
+- [26:36.210] It's been the focus of the policy
+- [26:37.520] really all over the world.
+- [26:38.900] Ma'am? Yeah.
+- [26:40.390] The Press: How do you intend to make sure
+- [26:42.760] that the consequences
+- [26:43.990] of ending these fraud programs in Minnesota
+- [26:47.000] don't impact the people who are enrolled in Medicaid?
+- [26:49.640] And at a bigger picture, how do you think that the polls,
+- [26:53.960] the polls show that Democrats
+- [26:55.160] historically have an advantage on health care.
+- [26:56.660] Do you think these efforts on fraud
+- [26:58.250] might change that for a while?
+- [27:00.090] The Vice President: I'm not really worried
+- [27:01.380] about the politics,
+- [27:02.600] I'm worried about the justice of it all.
+- [27:04.200] I think it's offensive that American taxpayers
+- [27:06.660] pay into these programs and they are defrauded.
+- [27:09.620] And I think in some ways, more significantly than that,
+- [27:12.350] it's really sad that American children
+- [27:14.780] who need these services aren't able to get them
+- [27:17.170] because it's going to fraudsters instead of somebody else.
+- [27:21.870] So, here's what I think, I mean, look,
+- [27:24.040] we're certainly going to make sure
+- [27:26.310] that our anti-fraud efforts go after the fraudsters
+- [27:28.880] and not after anybody
+- [27:30.130] who actually benefits from these services.
+- [27:32.380] But I actually think the question
+- [27:34.140] is a little off in a way,
+- [27:35.700] because the problem is not going after the fraud.
+- [27:40.140] The problem is the fact that these programs
+- [27:42.200] are being defrauded to begin with.
+- [27:43.890] They will not exist.
+- [27:45.470] Our social safety net will disappear
+- [27:48.400] unless we take fraud more seriously.
+- [27:50.200] So what I'm most worried about is that
+- [27:52.330] unless we preserve these programs
+- [27:54.060] for the next generation, they're going to disappear
+- [27:56.230] and all the money's going to go to fraudsters.
+- [27:57.980] Go ahead.
+- [27:59.190] The Press: You're mentioning a lot
+- [28:02.200] about the justice system and all.
+- [28:04.340] So what exactly would that look like?
+- [28:05.990] Dr. (inaudible)
+- [28:07.270] mentioned that jail sentences
+- [28:09.030] are considered the right way to go,
+- [28:10.280] but is there a way possible to get it back?
+- [28:13.950] (inaudible) getting refunds? Do you want a conviction
+- [28:16.700] (inaudible)?
+- [28:18.380] The Vice President: Yeah, I mean, look,
+- [28:19.660] there are certainly ways to claw some of the money back.
+- [28:21.820] It depends on the circumstances of the case.
+- [28:23.530] When you're talking about hundreds of billions of dollars
+- [28:25.290] potentially in fraud, that's a big universe of cases.
+- [28:28.510] There are different ways of anticipating it.
+- [28:30.410] You know, you heard Dr. Oz say some of these people,
+- [28:32.510] they will commit a crime and then leave the country.
+- [28:34.540] Obviously, we're not going to prosecute people
+- [28:36.240] who aren't even in the United States anymore.
+- [28:38.140] But I really do think that criminal penalties
+- [28:39.790] for some of the fraud cases have to happen.
+- [28:42.020] We have to make sure that we stop the fraud
+- [28:44.620] being committed against the American people.
+- [28:46.620] And if you violate the law in the process
+- [28:48.840] of defrauding American citizens,
+- [28:50.590] you ought to face the full consequences of the law.
+- [28:54.600] The Press: So that there would be a new position
+- [28:58.770] to advance this effort?
+- [29:00.020] Can you give me an update on the timeline for when you might --
+- [29:03.600] be made announced when you want Senate
+- [29:05.210] to start working on (inaudible).
+- [29:06.530] The Vice President: Yeah, so I believe
+- [29:07.760] we have the name announced.
+- [29:08.970] I want to say that Colin is on the Hill,
+- [29:11.400] maybe today or yesterday,
+- [29:13.280] Colin will be the new AG to help us combat fraud.
+- [29:17.080] I believe he's had great meetings all over the Hill today
+- [29:19.220] as part of the Senate confirmation process.
+- [29:21.100] I think he's impressed a lot of people.
+- [29:22.720] He certainly impressed me.
+- [29:24.200] And again, we have a whole of government approach
+- [29:26.330] and what Dr Oz is doing at CMS is very, very hard work,
+- [29:29.950] but it's not the only thing we're trying to buttress it
+- [29:32.650] with a whole government approach.
+- [29:34.420] Scott Bessent at Treasury is going to work on this.
+- [29:36.230] We're going to have our great Department
+- [29:37.580] of Justice work on that. We want to take this seriously.
+- [29:40.390] Because it's a serious problem for the American people,
+- [29:42.920] and so we got to fix it. Go ahead.
+- [29:45.340] The Press: Will the way that you're dealing with fraud
+- [29:46.810] in Minnesota
+- [29:48.040] by withholding this Medicaid reimbursement serve
+- [29:50.240] as a playbook for how you'll handle it in other states
+- [29:53.100] or are there other tools that you'll be using in the future?
+- [29:54.950] The Vice President: Well, I think
+- [29:56.160] you can, certainly. There are certain things
+- [29:57.930] that we're doing in Minneapolis and Minnesota
+- [29:59.440] that we are not going to be able to do
+- [30:00.650] in other parts of the country,
+- [30:01.940] because the fraud is going to different in each place.
+- [30:04.300] But yeah, I this basic model of saying to people,
+- [30:07.310] hey, you get a massive amount of money
+- [30:10.430] to provide a service to people.
+- [30:12.170] Did you actually provide that service?
+- [30:14.200] The fact that it's even controversial,
+- [30:16.650] that we're asking these questions
+- [30:18.230] as a government goes to show how much the culture of fraud
+- [30:22.230] has permeated Washington D.C.
+- [30:24.240] Think about this. We're talking about people
+- [30:26.520] who take money from autistic children,
+- [30:30.200] they pretend their children
+- [30:31.790] or some other person's kid is autistic,
+- [30:34.420] they collect a fat check,
+- [30:36.020] they don't provide an ounce of services,
+- [30:37.800] and then the very money that's supposed to go to needy kids
+- [30:40.890] isn't there anymore to help those needy children.
+- [30:43.750] The fact that we have so normalized this
+- [30:46.480] and the fact that I guarantee,
+- [30:48.320] there are going to be voices in the media,
+- [30:50.640] there will be voices in the state of Minnesota
+- [30:52.290] who say this is hurting children.
+- [30:55.340] No, it's hurting fraudsters.
+- [30:57.400] The way to protect kids is to go after those fraudsters,
+- [31:00.310] which is what we're doing. Sir?
+- [31:02.070] The Press: Vice President, thank you for taking questions.
+- [31:03.970] Dr. Oz mentioned the word guardrails
+- [31:06.400] when it comes to this.
+- [31:07.820] Can we expect the federal government
+- [31:09.850] look to implement new guardrails to prevent the normalization
+- [31:13.200] of the fraud that this is continuing?
+- [31:14.720] Do you believe it would be more effective for states
+- [31:17.530] that you're investigating to put up guardrails?
+- [31:19.470] Do you think that the best way to do it would be a mixture?
+- [31:22.560] And what message should a move like this
+- [31:24.720] with your announcement today
+- [31:26.040] send to other states that might be under the microscope?
+- [31:27.960] The Vice President: I mean, look,
+- [31:29.180] we would love to better work with the states here.
+- [31:31.490] We need the states to combat this fraud,
+- [31:34.470] and frankly, if Minnesota had done a better job
+- [31:36.950] of combating the fraud,
+- [31:38.170] we wouldn't be here at this press conference today.
+- [31:40.350] We'd send out a letter celebrating
+- [31:41.830] the fact that Minnesota had worked with us
+- [31:44.020] to cut down on some of the fraud.
+- [31:45.550] I'll let Dr. Oz speak a little bit more to that question,
+- [31:47.840] but look, the best way for this to work would be
+- [31:50.280] for the federal government to work with state governments.
+- [31:52.260] We'd love for that to happen.
+- [31:53.490] I think you're going to see that in some states,
+- [31:55.280] even some blue states, but you're not going to see
+- [31:57.770] (inaudible).
+- [31:59.020] Administrator Oz: The Working Family Tax Cut legislation,
+- [32:01.320] for the first time in a long time,
+- [32:02.540] aligned the president and vice president with the governor
+- [32:05.330] so they have the same goal.
+- [32:06.560] So we've been talking to the states a lot.
+- [32:08.680] We are generating some frameworks
+- [32:10.720] that we believe states could apply.
+- [32:12.550] Medicaid is run by the state.
+- [32:13.780] They know their most vulnerable populations well.
+- [32:15.660] It's different than Alaska. On the North Shore slope,
+- [32:18.340] you can't get there this time of year,
+- [32:19.940] to southern Alabama,
+- [32:21.390] lower Alabama, or L.A. as they call it.
+- [32:23.450] But the reality is there are similarities
+- [32:25.850] that govern some of these programs,
+- [32:27.180] especially the ones that are at high risk,
+- [32:29.030] and so we're going to share those best practices.
+- [32:31.390] But the techniques that we're using in Minnesota
+- [32:33.670] can be applied in other states,
+- [32:35.830] but it's the fraud, however, that will drive that.
+- [32:37.680] And so there are some states,
+- [32:38.970] I mentioned Florida, that's a red state,
+- [32:40.360] where there's a big fraud problem in the southern part.
+- [32:42.290] They're trying to get their arms around it.
+- [32:43.700] We've sent a letter to Minnesota,
+- [32:45.200] which has a Republican senator.
+- [32:47.040] We're very concerned about New York,
+- [32:49.210] where the single most prominent job in New York
+- [32:52.490] is a personal care service.
+- [32:53.800] Retail is not the top job in Ne York anymore.
+- [32:56.770] In California, there are more hospices,
+- [32:58.510] I believe, in Los Angeles County alone
+- [33:01.500] than the rest of the country.
+- [33:02.890] So these are aberrancies that are hard
+- [33:04.870] for the states sometimes to oversee.
+- [33:07.360] Your first inclination if you're the vice president
+- [33:09.400] and he's running a task force is to look at those areas
+- [33:11.440] and say how can you ignore that kind of a discrepancy,
+- [33:14.410] especially when there's been a massive uptick
+- [33:16.460] in some of these services in a short period of time.
+- [33:19.010] The Vice President: Great, we'll take
+- [33:20.220] just one more question here, sir.
+- [33:22.190] The Press: What is your message to the people of Minnesota
+- [33:24.560] who are still upset by the ICE surge as well,
+- [33:27.310] and this is just one more thing on top of that.
+- [33:30.610] The Vice President: Well, first of all,
+- [33:31.840] I think our message to the people of Minnesota
+- [33:34.010] is that we love them, they're our fellow citizens,
+- [33:36.680] we're trying to do right by them,
+- [33:37.980] and part of the reason, in fact the main reason,
+- [33:40.380] that we're doing this is that we want to make sure
+- [33:42.960] that the people of Minnesota have access to the services
+- [33:45.950] that they're entitled to. We want poor kids in Minnesota,
+- [33:49.330] lower income families in Minnesota
+- [33:51.150] to be able to get the healthcare that they need.
+- [33:53.010] We got to stop the fraud in order to make sure it happens.
+- [33:55.630] We want to make that if you have a special needs kid
+- [33:58.980] and we have a program set up to help that special needs kids,
+- [34:02.130] that the money goes to the special needs family,
+- [34:04.970] not to a fraudster who's getting rich off the generosity
+- [34:07.940] of American taxpayers.
+- [34:09.560] Now you talk about the ICE surge, again,
+- [34:11.530] I think it goes back to the question I just answered,
+- [34:14.710] which is so much of what is broken in Minnesota,
+- [34:17.710] as far as I can tell,
+- [34:19.220] is a lack of cooperation between the state government
+- [34:22.390] and the federal government. If you look at any blue city
+- [34:25.910] or any blue state or red city or red state,
+- [34:29.130] the immigration enforcement that we were doing
+- [34:31.700] was going smoothly.
+- [34:33.030] We'd find out that there was an illegal alien sex
+- [34:35.010] offender in a prison.
+- [34:36.210] We'd show up, we'd arrest that person,
+- [34:37.730] and we'd send him out of our country.
+- [34:39.320] Or maybe that person was a repeat offender
+- [34:41.570] and they were out of prison.
+- [34:42.860] The local authorities would say, you know what,
+- [34:45.740] go to this person's address and arrest this guy
+- [34:47.900] because we want that violent criminal out of our community.
+- [34:50.700] What was so bizarre about Minneapolis
+- [34:53.560] is that it was one of the few places
+- [34:55.200] in the entire country where they said, no, no.
+- [34:57.120] So we're not going to help the federal government
+- [34:59.300] get illegal alien sex traffickers
+- [35:01.200] out of our community.
+- [35:02.410] We are going to do everything that we can to prevent
+- [35:06.060] federal immigration enforcement from happening,
+- [35:08.400] even when you're going after the very worst of the very worst.
+- [35:11.980] Similarly, I would think that
+- [35:14.490] if I was the governor or a leader in Minnesota,
+- [35:17.160] I would want the benefits that ought by right
+- [35:19.730] to go to needy children.
+- [35:20.980] I want it to go to those needy and not to fraudsters,
+- [35:24.460] whether they're from the Somali community or anywhere else.
+- [35:26.610] But no, we haven't gotten the cooperation.
+- [35:28.890] So what I would say to the of Minnesota
+- [35:31.160] is that we want to do right by you.
+- [35:33.350] We think you deserve better public services.
+- [35:35.540] We think you deserved to have the benefits
+- [35:37.970] that you're actually entitled to,
+- [35:39.660] and that's why we're doing this.
+- [35:41.250] And we encourage everybody in Minnesota,
+- [35:43.220] whatever their political affiliation,
+- [35:45.070] to work on the state government a little bit
+- [35:47.930] because if we had some better cooperation
+- [35:50.040] we could have common-sense immigration enforcement.
+- [35:52.410] We could also have less money going to fraudsters,
+- [35:55.300] which I would think would be a bipartisan issue.
+- [35:57.630] Thank you all.

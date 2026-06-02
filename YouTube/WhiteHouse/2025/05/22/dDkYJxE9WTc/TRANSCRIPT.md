@@ -1,0 +1,848 @@
+<!-- source: https://www.youtube.com/watch?v=dDkYJxE9WTc -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: dDkYJxE9WTc -->
+<!-- date_published: 2025-05-22T20:46:43+00:00 -->
+<!-- date_accessed: 2026-06-02T02:49:28.377947+00:00 -->
+
+# Transcript: President Trump Participates in a MAHA Commission Event
+
+- [00:03.130] The President: My country is hot and hot as it can be.
+- [00:05.480] It's amazing.
+- [00:07.410] If you go back six months, it was cold as could be.
+- [00:10.740] It was an embarrassment, what was happening.
+- [00:13.400] And now, I think we have the hottest country
+- [00:16.130] anywhere in the world. I don't even think it's close.
+- [00:18.420] I was told that also in the Middle East.
+- [00:20.240] The three rulers, three very good men
+- [00:23.050] that were very nice to us, they said, this is amazing,
+- [00:26.130] the transformation of the United States of America.
+- [00:29.450] They've never seen anything go so quickly.
+- [00:31.910] And it's literally over a period of four or five months,
+- [00:35.070] but really since November 5th.
+- [00:36.680] And I think we have the hottest country in the world right now.
+- [00:39.110] So we're doing well, and we'll keep it going.
+- [00:41.730] And we're going to have a lot of fun.
+- [00:43.860] We're going make a lot people happy, a lot a people well.
+- [00:46.830] That's why we're here.
+- [00:48.620] And I want to thank you all for being with us
+- [00:51.070] in the great White House. There's nothing like it.
+- [00:53.290] There's nothing like -- every time I walk in,
+- [00:55.110] I say, man, this place is something special.
+- [00:58.160] You never get used to it. It really is.
+- [01:00.710] As we mark a historic milestone in our mission
+- [01:03.510] to make America healthy again,
+- [01:06.850] you know, we started Make America Great Again, Bobby.
+- [01:09.300] I'm not sure you can get away with that
+- [01:10.780] without having to make a major payment
+- [01:12.600] because, you know, this MAHA.
+- [01:16.510] He goes to MAHA, but no, MAHA has become hot.
+- [01:21.170] Over the past few years,
+- [01:22.450] we've built an unstoppable coalition of moms
+- [01:25.200] and dads, doctors and young people,
+- [01:27.050] and citizens of all backgrounds who have come together
+- [01:30.550] to protect our children, very importantly,
+- [01:32.740] keep the dangerous chemicals out of our food supplies,
+- [01:35.820] get toxic substances out of our environment,
+- [01:38.320] and deliver the American people the facts as to,
+- [01:42.340] really, where we're going.
+- [01:44.320] And we want to have what we deserve,
+- [01:46.390] and we want to be healthy,
+- [01:48.080] and we want have a lot of good things happen.
+- [01:50.300] And I think we're going to have that.
+- [01:51.800] I think this is just the beginning.
+- [01:53.580] We have some of the most brilliant people
+- [01:55.320] sitting on this panel.
+- [01:56.600] And likewise, in the audience, I recognize so many,
+- [01:59.160] many of them are in the administration.
+- [02:02.060] With us today is the man who fought harder than anyone
+- [02:04.600] I know to bring these issues to the center of American politics,
+- [02:08.740] our Secretary of Health and Human Services,
+- [02:11.460] Robert F. Kennedy, Jr. Bobby, thank you very much.
+- [02:15.960] (applause)
+- [02:22.600] And we're also joined by Secretaries Brooke Rollins,
+- [02:25.930] Scott Turner, Linda McMahon, Doug Collins,
+- [02:30.440] Doug Burgum, Laurie Chavez de Rima.
+- [02:34.970] You're doing a very good job, Laurie, you know?
+- [02:37.210] She's considering she's a Democrat.
+- [02:42.580] The unions, they said, she's really good. I did it.
+- [02:45.280] You know, I took a lot of heat for doing it.
+- [02:46.790] And then they were all saying, what a great job we did.
+- [02:49.100] Now they're very -- everybody is happy with you.
+- [02:50.760] Great job. Thank you very much.
+- [02:53.210] (applause)
+- [02:57.360] As well as EPA Administrator Lee Zeldin,
+- [03:00.770] Budget Director Russ Vaught, SBA Administrator Kelly Loeffler.
+- [03:05.820] Kelly has been amazing. She runs small business,
+- [03:08.440] which is actually the biggest business there is, right?
+- [03:11.080] She had no idea how big. She's doing great.
+- [03:14.250] FDA Commissioner Dr. Marty McCary.
+- [03:16.990] Thank you, Marty.
+- [03:18.350] (applause)
+- [03:21.790] NIH Director, Dr. Jay Bhattacharya.
+- [03:24.380] Thank you very much, Jay.
+- [03:25.610] (applause)
+- [03:26.810] Thank you. And let's see, who do we have here?
+- [03:31.950] CMS Administrator Dr. Mehmet Az, a tremendous guy, actually.
+- [03:36.600] Thank you very much.
+- [03:39.790] A friend of mine, a really great senator, Roger Marshall.
+- [03:44.690] Roger, thank you. Governors Mike Braun,
+- [03:49.740] Jim Pilin, Patrick Morrissey, Representatives Vern Buchanan,
+- [03:55.440] former Speaker of the House, Newt Gingrich.
+- [03:57.850] Newt, a very quiet man. He's silent.
+- [04:02.820] Nice to see you, Newt.
+- [04:04.190] Four months ago, I created the Presidential Commission
+- [04:06.880] to Make America Healthy Again.
+- [04:08.400] And today, the commission officially delivers
+- [04:10.600] its first report on childhood health.
+- [04:14.190] Here are just some of the alarming findings.
+- [04:16.190] And they really are alarming.
+- [04:17.450] It's unbelievable. Terrible.
+- [04:19.580] More than 40 percent of American children
+- [04:21.920] now have at least one chronic health condition.
+- [04:25.280] Since the 1970, rates of childhood cancer have soared,
+- [04:28.750] in many cases, by nearly 50 percent.
+- [04:32.210] 5-0,-fifty percent. In the 1960s,
+- [04:35.900] less than 5 percent of the children were obese.
+- [04:38.300] Now, over 20 percent are obese.
+- [04:41.850] A few decades ago, one in one -- think of this one --
+- [04:44.740] this is, to me, the one that gets me every time,
+- [04:47.680] and it seems to be getting worse.
+- [04:50.480] Just a few decades, one in 10,000 children had autism.
+- [04:54.520] Today, it's one in 31.
+- [04:57.620] Last time I heard the number is one in 34, right?
+- [05:00.220] Now it's 1 in 31?
+- [05:02.350] There's something wrong, and we will not stop
+- [05:04.480] until we defeat the chronic disease epidemic in America.
+- [05:08.880] We're going to get it done. For the first time ever,
+- [05:11.510] this report examines some of the root
+- [05:13.250] causes that many believe are making our children sicker
+- [05:16.480] and our population sicker, I guess.
+- [05:18.470] It just doesn't stop with the children.
+- [05:20.500] It's our population also.
+- [05:22.820] Such as the ultra-processed foods,
+- [05:25.000] over-medicalization and over-prescription
+- [05:28.840] and widespread exposure to potentially toxic chemicals.
+- [05:32.690] Unlike other administrations,
+- [05:34.320] we will not be silenced or intimidated
+- [05:37.110] by the corporate lobbyists or special interests.
+- [05:39.800] And I want this group to do what they have to do.
+- [05:42.410] We have to spell it out.
+- [05:43.910] In some cases, it won't be nice or it won't be pretty,
+- [05:47.400] but we have to do it.
+- [05:48.670] When you hear 10,000, it was 1 in 10,000,
+- [05:52.670] and now it's 1 in 31 for autism.
+- [05:56.210] I think that's just a terrible thing.
+- [05:58.690] It has to be something on the outside.
+- [06:00.350] It has be artificially induced. It has have to be.
+- [06:03.500] And we'll not allow our public health system
+- [06:05.300] to be captured by the very industries
+- [06:07.940] it's supposed to oversee. So we're demanding the answers.
+- [06:12.230] The public is demanding the answer.
+- [06:13.920] And that's why we're here already.
+- [06:16.030] We're phasing out eight of the most common artificial
+- [06:19.350] food dyes.
+- [06:21.740] (applause)
+- [06:27.820] And we ended the most serious conflicts
+- [06:30.250] of interest at the FDA.
+- [06:31.970] We had a lot of conflicts over there.
+- [06:34.270] Earlier this week, we approved a SNAP
+- [06:37.140] waiver request from Nebraska
+- [06:39.330] so they can stop taxpayer dollars
+- [06:41.150] from being used to make our children obese.
+- [06:44.390] I understand requests from three more states
+- [06:47.900] will be approved shortly,
+- [06:49.140] and more are expected to come in the following weeks.
+- [06:52.760] Over the next 80 days,
+- [06:54.100] the commission will build on this work in this report
+- [06:57.290] to develop a roadmap to bold and transformative public health
+- [07:01.400] reforms for our consideration.
+- [07:04.170] It's a consideration, and we'll lay out the facts.
+- [07:07.660] Let me say congratulations to the entire MAHA movement.
+- [07:11.470] This movement has become very hot.
+- [07:13.120] People are really -- I tell you, they're going crazy over MAHA
+- [07:19.060] (applause)
+- [07:26.380] And I look forward to continuing the historic progress.
+- [07:29.980] And I will say this.
+- [07:31.590] This whole group, this whole table,
+- [07:33.410] they're very -- you know, I use a word that's --
+- [07:35.720] because it's a beautiful word, actually.
+- [07:37.270] The Democrats took it,
+- [07:38.920] and they used it instead of the word liberal.
+- [07:40.620] They used the word progressive.
+- [07:42.410] And normally, I'd say you're very progressive,
+- [07:44.290] meaning you're far -- they're not progressive.
+- [07:47.050] You are progressive.
+- [07:48.300] They shouldn't be allowed to use that word.
+- [07:50.290] And I'm -- and so, therefore,
+- [07:52.130] I'm not going to use it to describe you,
+- [07:53.810] but you are far forward thinkers.
+- [07:56.270] You're amazing thinkers. And we appreciate having you.
+- [07:59.030] It's just tremendous talent around this table.
+- [08:01.330] The most respected people anywhere in the world,
+- [08:09.250] And, you know, I've been a fan of Bobby for years.
+- [08:12.730] He came up to see me 13, 14, 15 years ago,
+- [08:16.590] I remember, and he left.
+- [08:18.690] And I made a couple of the statements that he made
+- [08:21.210] because I agreed with the same thing,
+- [08:22.690] and we both went through hell. Do you remember that?
+- [08:24.580] It was a massive -- but you know what?
+- [08:26.960] We turned out to be right. It was sort of interesting.
+- [08:30.300] But I've a friend of Bobby, and he's been a foe, too.
+- [08:33.250] You know, he's tried to stop a couple my jobs.
+- [08:36.720] In one case, he did stop a job, and I was really angry,
+- [08:40.130] and then about four months later,
+- [08:41.850] we went into, like, a depression.
+- [08:44.100] And I saved a hell of a lot of money
+- [08:45.650] by the fact that you stopped me.
+- [08:46.870] Secretary Kennedy: You're welcome.
+- [08:48.100] The President: So I never mind it.
+- [08:49.320] I always said, thank you very much
+- [08:50.890] for stopping that big job I was going to do.
+- [08:54.410] But he's a fantastic guy,
+- [08:55.880] and Bobby, we're with you all the way.
+- [08:57.820] And your beautiful wife is right sitting in the front row,
+- [09:00.980] and she's always been right there with you.
+- [09:03.460] And, you know, it was very interesting.
+- [09:06.220] When Bobby came, I really wanted Bobby to join,
+- [09:08.510] and he was doing very well as a candidate. Really well.
+- [09:11.750] He was being treated very unfairly by the other side,
+- [09:14.800] but he was doing so well that they treated you unfairly.
+- [09:17.570] They had no choice.
+- [09:19.010] I think they said, in order to qualify, Newt,
+- [09:21.370] you had to have 80 percent of the vote.
+- [09:23.430] Okay? Do you remember that deal? You had to 80 percent
+- [09:26.020] in order to qualify to run against Joe Biden.
+- [09:29.570] And Bobby thought that was a little unfair,
+- [09:31.350] and that was about it.
+- [09:32.910] And he came on board, and we got very lucky.
+- [09:35.120] But you really helped.
+- [09:36.360] And I want to thank you very much, really.
+- [09:38.520] (applause)
+- [09:44.750] So, Bobby, if you'd say, give them your thoughts.
+- [09:48.080] Secretary Kennedy: Thoughts, please.
+- [09:49.730] Well, thank you very much, Mr. President.
+- [09:52.920] I do want to say something, because I get a lot of credit
+- [09:56.280] for steering this administration toward the MAHA movement,
+- [10:00.680] and I joined the campaign in August.
+- [10:03.150] I joined President Trump in August
+- [10:05.430] and became, you know, went from independent to his campaign.
+- [10:10.580] But it was in June that he made a speech
+- [10:13.840] specifically on this issue.
+- [10:15.660] It was a MAHA speech before MAHA existed.
+- [10:19.810] And I took note of that speech at the time
+- [10:23.440] and thought there's a potential here for a common ground.
+- [10:27.070] I want to thank you for your vision,
+- [10:29.170] for your courage, for standing up.
+- [10:32.060] President Trump is a populist president.
+- [10:35.400] He's a president, he's blamed for giving money to billionaires
+- [10:40.070] and all this stuff. We hear about that all the time.
+- [10:43.770] He is on the side of the middle class,
+- [10:45.920] the working class, the poor in this country.
+- [10:48.840] He will --
+- [10:50.740] (applause)
+- [10:58.010] I've been following, I've met every president
+- [11:00.470] since my uncle was president,
+- [11:04.040] and I've never seen a president, Democrat or Republican,
+- [11:07.290] that is willing to stand up to industry
+- [11:09.970] when it's the right thing to do,
+- [11:11.440] and willing to talk about really difficult issues
+- [11:15.590] and to hold his stand on those issues.
+- [11:17.860] I've ever seen anything like it
+- [11:19.690] and I'm very, very grateful to you.
+- [11:21.330] I've sat with industry again and again.
+- [11:25.030] In a room with him and heard him say we can't do
+- [11:28.230] that we're going to do something different deliver news
+- [11:31.000] that they didn't want to hear.
+- [11:32.970] I am grateful to this this is a milestone.
+- [11:37.000] There's never in American history
+- [11:39.270] has the federal government
+- [11:41.240] taken a position on public health like this
+- [11:44.980] and because of President Trump's leadership
+- [11:47.220] it's not just one Cabinet Secretary,
+- [11:49.570] it's the entire government that is behind this report.
+- [11:53.950] And I can say again, I talked a little bit about
+- [11:57.960] when I met Rachel Carson as a boy,
+- [12:00.820] my uncle tried to do this,
+- [12:02.450] but he was killed and it never got done.
+- [12:05.800] And ever since then, we've been waiting for a president
+- [12:09.260] who would stand up and speak on behalf of the health
+- [12:12.440] of American people and say.
+- [12:14.980] With there is no difference between good economic policy,
+- [12:18.960] good environmental policy, and good public health policy,
+- [12:22.360] and good industrial policy. We can have all of them.
+- [12:25.740] We need a united cabinet,
+- [12:27.450] and we need to go forward as a single people.
+- [12:30.470] I want to thank you for that, President Trump.
+- [12:32.780] (applause)
+- [12:34.040] The President: Thank you.
+- [12:43.820] Secretary Kennedy: At its core,
+- [12:45.120] this report is a call to action for common sense.
+- [12:48.860] We've relied too much on conflicted research,
+- [12:51.560] ignored common sense,
+- [12:53.940] or what some would call mother's intuition.
+- [12:57.670] It's common sense that ultra- processed nutrient poor food
+- [13:01.070] contributes to chronic disease.
+- [13:03.600] It's commonsense that excessive screen time and isolation
+- [13:06.870] lead to anxiety and depression, especially in children.
+- [13:11.140] It's common sense that exercise and healthy foods
+- [13:14.170] come before prescriptions and surgery.
+- [13:17.370] It's a common sense that not all calories
+- [13:19.740] are equal in nutritional value.
+- [13:22.660] It's commons sense that over-medicating kids
+- [13:25.140] is dangerous.
+- [13:26.370] It's the common sense that we can celebrate
+- [13:28.450] the innovations of modern life
+- [13:30.900] while also demanding fearless inquiry
+- [13:33.600] into ameliorating the negative effects of medication,
+- [13:37.270] agriculture, and environmental practices.
+- [13:40.460] It's common sense that research funded by corporations
+- [13:43.840] deserves more scrutiny than independent studies.
+- [13:47.890] I'm so proud of this cabinet and particularly Secretary Rollins
+- [13:54.380] and Administrator Zeldin, who again,
+- [13:57.630] I'll say it a third time, worked late, late nights,
+- [14:00.760] early into the morning to make this happen
+- [14:04.030] and to all the leadership from the White House staff,
+- [14:06.420] beginning with Stephen Miller.
+- [14:08.630] And Heidi Overton, Dr. Heidi Overten with Vince Haley.
+- [14:12.710] (applause)
+- [14:17.970] Their leadership and their steady hand
+- [14:21.360] in getting us to the goal line
+- [14:23.300] was we could not have done it without them.
+- [14:26.740] They helped us grapple with weighty issues
+- [14:29.180] and committed this administration
+- [14:30.800] to solving large complex challenges
+- [14:33.210] like children's health.
+- [14:35.290] We're joined here by senators, advocates,
+- [14:37.800] governors who I have worked with,
+- [14:40.750] and CEOs who I know who are all ready
+- [14:44.270] to begin carrying out this mission.
+- [14:47.120] This is the beginning of a conversation,
+- [14:49.100] a national conversation that we are going to have with maturity,
+- [14:52.530] with nuance, for the first time in history,
+- [14:54.660] thanks to your leadership, President Trump.
+- [14:57.950] There is a reason that the MAHA mom sided with you,
+- [15:01.020] President Trump. It's because this administration
+- [15:04.060] has the bravery to tell the truth
+- [15:05.910] and solve problems through innovation
+- [15:08.080] and not nanny state regulation.
+- [15:11.300] President Trump, I'm honored to present to you the MAHA report
+- [15:15.750] and work with this incredible cabinet
+- [15:17.740] that you have brought together
+- [15:19.440] to make our children healthy again.
+- [15:23.200] (applause)
+- [15:40.610] Secretary Rollins: Three things.
+- [15:42.220] First, on behalf of an extremely grateful nation,
+- [15:48.170] and on behalf of a lot of extremely grateful MAHA moms
+- [15:52.170] who are out there, Secretary Kennedy and Mr. President,
+- [15:55.990] thank you. I see a MAHA mom and grandma
+- [15:58.880] and our amazing chief of staff right there, Susie Wiles.
+- [16:02.300] I see a MAHA mom and Caroline Levitt
+- [16:05.680] all across our cabinet. Sir my oldest son Luke is here.
+- [16:09.870] Stand up, Luke. I am a MAHA mom of four.
+- [16:14.220] And this this hits particularly close to home
+- [16:17.500] for every single one of us in this room
+- [16:19.640] That's the first thing the second thing
+- [16:21.900] is that you mentioned sir in your remarks
+- [16:24.100] that we are on track to sign multiples of snap waivers
+- [16:29.180] to get junk food and sugary drinks out of our
+- [16:33.070] Food stamp system and I am so proud.
+- [16:41.760] I am so proud to announce that on Monday,
+- [16:44.430] I was in Nebraska with Governor Pillin,
+- [16:46.400] where we signed the first one.
+- [16:48.700] An hour ago, I signed the second one
+- [16:51.040] for Governor Braun in Indiana.
+- [16:52.530] He may not even know that. I've got it right here, sir.
+- [16:55.980] I also signed the third one, Governor Kim Reynolds of Iowa,
+- [16:59.880] about an hour ago. All right.
+- [17:02.730] (applause)
+- [17:06.530] With a half a dozen more coming down the line.
+- [17:10.490] And sir, that has never happened before
+- [17:12.600] under Republican or Democrat administrations,
+- [17:15.840] we have never made that happen before.
+- [17:19.660] So I am so proud and so grateful for your leadership.
+- [17:22.080] Secretary Kennedy: And we have Governor Morris here,
+- [17:23.380] who is the first one to apply from West Virginia.
+- [17:26.440] Secretary Rollins: Oh, Governor Morrison.
+- [17:33.760] We will make sure you're at the top of the pile, sir.
+- [17:36.310] I apologize. Governor Sanders has been a leader.
+- [17:39.130] Governor Polis from Colorado.
+- [17:41.260] It has been remarkable how these governors have stood up.
+- [17:43.620] That's the second thing.
+- [17:45.080] The third and final thing ,sir, is we all know
+- [17:48.300] that at the center of making America healthy again
+- [17:52.400] is making American agriculture great again.
+- [17:59.830] Without American agriculture at the center of this discussion,
+- [18:04.710] we have the most robust, the safest,
+- [18:08.330] the best agriculture system in the world.
+- [18:11.750] And in partnership with the amazing Secretary Kennedy
+- [18:15.050] and all of these incredible patriots
+- [18:16.880] sitting around this table, under the leadership
+- [18:19.520] of the extraordinary President Donald J. Trump,
+- [18:23.110] we will make America healthy again.
+- [18:25.410] And what an honor it is to be a part of that.
+- [18:27.400] Thank you, sir.
+- [18:28.660] (applause).
+- [18:33.200] The President: (inaudible)
+- [18:38.290] Mr. Policy. Big, big policy man here.
+- [18:45.370] Vince Haley: So much has already been said,
+- [18:46.890] but in your remarks, Mr. President, you made clear.
+- [18:49.540] Secretary Kennedy: This is Vince Haley, by the way.
+- [18:52.700] Vince Haley: In your remarks and in the report,
+- [18:55.310] it's very clear that there are no sacred cows
+- [18:57.940] when it comes to our children's health.
+- [19:00.640] We are showing the courage to turn over
+- [19:02.660] every stone to figure out, to investigate what is behind
+- [19:06.530] the chronic childhood disease crisis,
+- [19:08.420] and that's what this report represents, sir.
+- [19:11.810] The President: Thank you, Vince.
+- [19:13.410] (applause)
+- [19:18.990] Most have already spoken, but it's very good.
+- [19:21.760] But the fake news wasn't here. What's going on?
+- [19:25.740] I mean, Oz, I want to thank you for your work.
+- [19:29.580] Would you have anything to say to the media?
+- [19:32.850] Administrator Oz: Thank you, sir.
+- [19:34.170] I think it's a moral failing if you don't address this,
+- [19:37.380] but it's definitely a financial failing as well.
+- [19:40.520] 50% of children are on Medicaid or on the CHIP program.
+- [19:46.120] It is an obligation we all have to address this reality.
+- [19:49.790] As you know, the cost of Medicaid
+- [19:51.150] is going up 50% in five years. I thank you very much
+- [19:54.490] for having the bravery to commission this report.
+- [19:56.930] And Secretary Kennedy, Secretary Rollins.
+- [19:58.600] (inaudible)
+- [19:59.840] Zelda and everybody else on this panel
+- [20:01.200] for being able to affect what has not been done
+- [20:04.310] since this law for Medicare and Medicaid
+- [20:06.320] was written in 1965. God bless you. \.
+- [20:08.840] The President: Thank you very much, Oz.
+- [20:15.600] The President: a man who's just so highly respected,
+- [20:18.210] Dr. Marty McCarey.
+- [20:19.670] Would you say a couple of words, please?
+- [20:21.650] Marty Makary: Thank you, Mr. President.
+- [20:22.940] The United States is the best in the world
+- [20:25.170] when it comes to proton beam therapy,
+- [20:27.320] CAR-T, sophisticated operations.
+- [20:30.140] But when it come to the health of the population,
+- [20:32.400] it's been a 50-year failure.
+- [20:34.450] And we have got to change course,
+- [20:36.990] and it's not until you have had the courage
+- [20:40.100] to let us take on these giant issues,
+- [20:43.940] as Vince Haley said, without any sacred cows
+- [20:47.120] that we've been able to change.
+- [20:48.690] And I think this will transform our healthcare system
+- [20:51.930] from a reactionary system where doctors are playing
+- [20:54.970] whack-a-mole to a proactive system.
+- [20:56.900] So, thank you, Mr. President.
+- [20:58.290] The President: Thank you very much.
+- [20:59.560] Thank you, Marty.
+- [21:00.890] (applause)
+- [21:03.490] Highly respected man, Jay. Please say a few words.
+- [21:06.430] Jay Bhattacharya: Thank you. Thank you, Mr. President.
+- [21:08.080] I said earlier already that it's shocking to me
+- [21:11.420] that what this report says,
+- [21:13.500] which is that our kids will live less long,
+- [21:18.420] less healthy, more unhappy lives than we will as parents.
+- [21:23.360] We can't have that.
+- [21:24.890] I'm so proud to be part of this moment
+- [21:27.120] because that doesn't have to be the future.
+- [21:30.250] We can change things by doing excellent gold standard science,
+- [21:33.710] understanding the root causes of all these problems,
+- [21:36.500] reversing it.
+- [21:38.120] Mr. President, this is an enormously important moment
+- [21:40.880] because from this moment forward, we will reverse course
+- [21:44.540] so our kids will live longer than us,
+- [21:47.460] will live more healthy than us
+- [21:49.270] and will be happier than we have been.
+- [21:51.510] The President: Thank you very much.
+- [21:52.830] Thank you. Thank you, Jay. Good job, too.
+- [21:57.840] I have to say, we have the greatest farmers in the world,
+- [22:00.530] and we love our farmers
+- [22:02.310] and we want to pay respect to our farmers, and always will.
+- [22:05.870] And we won the farmers by a lot in the election,
+- [22:08.960] in every election, all three elections.
+- [22:11.770] And we've won by a lot, and I will never forget that,
+- [22:15.350] and they are foremost in our thought.
+- [22:17.130] And representing a I think the farmer is better
+- [22:20.660] than just about anybody can do, is Senator Roger Marshall.
+- [22:23.690] Could you say a couple of words, Roger, please?
+- [22:27.100] Senator Marshall: Mr. President, we're not tired of winning yet.
+- [22:29.360] Congratulations. What a week you've had overseas.
+- [22:32.910] One win after another.
+- [22:34.560] One big, beautiful bill across the House floor this morning.
+- [22:38.130] You're the best closer in the game.
+- [22:40.110] And this is one of the greatest days of my life,
+- [22:42.200] professionally speaking, as well.
+- [22:44.540] And I just want to acknowledge my MAHA mom out here as well,
+- [22:47.710] that my wife, Lena, was a MAHA nurse
+- [22:50.030] and a MAHA mom and a MAHA grandma.
+- [22:52.450] Now, Lena will you please stand up as well? My wife.
+- [22:55.400] (applause)
+- [23:00.780] Mr. President, as you know,
+- [23:02.070] I spent 25 years delivering babies most every day.
+- [23:04.960] We saw a huge epidemic of diabetes of pregnancy,
+- [23:09.200] and this has exploded in so many different directions now.
+- [23:12.050] We have an epidemic in mental health,
+- [23:15.180] in our youth, obesity rates 20, 30 percent,
+- [23:18.830] 20 percent of our children on a prescription drug,
+- [23:21.560] 60, 70 percent of adults on a prescription drug,
+- [23:24.270] we can do better than this.
+- [23:26.040] And it does start with the farmer.
+- [23:27.780] It starts with soil health.
+- [23:29.410] And I just want you to know that our farmers
+- [23:31.340] are so committed to this as well.
+- [23:33.440] And so many of them are already doing great things.
+- [23:36.040] They're making the soil healthier.
+- [23:37.950] They're using less pesticides.
+- [23:39.920] They're doing all the right things.
+- [23:41.840] It's going to take a little bit more effort and time
+- [23:43.670] to get everybody with those practices.
+- [23:45.600] But the American Farmer
+- [23:46.860] and Rancher were the original environmentalists,
+- [23:49.120] the original conservationists,
+- [23:50.850] and they'll be right here working beside us,
+- [23:53.080] and we appreciate your support of them as well.
+- [23:55.060] The President: Thank you, Roger, very much. Thank you.
+- [23:57.460] (applause)
+- [24:01.150] So I think I'll close by just saying
+- [24:03.170] that something happened a week ago
+- [24:05.160] that was very, very important, profound,
+- [24:08.310] but very important in so many ways.
+- [24:11.250] For years, I noticed that other countries
+- [24:14.820] paid much less for drugs and pharmaceuticals than we did,
+- [24:19.510] but I don't mean 2 percent less or 10 percent,
+- [24:21.340] which would be good,
+- [24:22.730] but, I don't t mean 20 or 25 or 30 percent.
+- [24:26.570] I mean, sometimes we paid 10 times more,
+- [24:29.600] 12 times more or 13 times more than other countries
+- [24:32.850] where people from our country would be seen going into Mexico
+- [24:36.930] and seen going to other countries,
+- [24:39.530] leaving on trips and bringing their drugs home
+- [24:42.800] because they'd get in London, they'd be able to buy a drug
+- [24:46.590] for one-tenth the price of what it costs to New York City.
+- [24:49.480] And I watched this, and I watched it during my term,
+- [24:52.540] and I didn't like it.
+- [24:53.800] I didn't like it, and it's a very complex system.
+- [24:56.700] But, you know, we're smart also,
+- [24:58.680] maybe much smarter than they are.
+- [25:00.540] And at some point, we had to figure out.
+- [25:03.000] I heard it was the middleman.
+- [25:04.270] Nobody told me who the middle man was.
+- [25:05.980] Nobody knew who the middle man was.
+- [25:07.510] Nobody ever heard. All I heard is the middle men.
+- [25:09.600] I said, they've got to be the richest people in the world,
+- [25:11.940] whoever they are, I don't know.
+- [25:13.270] We don't even know if there is a middle man.
+- [25:14.860] All I know is that the drugs were 10 times higher
+- [25:18.340] and sometimes more than that.
+- [25:20.770] And I really got into it over the last year
+- [25:23.250] and I figured the whole system out.
+- [25:25.610] And for various and sundry reasons,
+- [25:30.290] the United States of America was being screwed
+- [25:33.730] and we were being taken advantage
+- [25:35.800] of and being laughed at for years and years.
+- [25:39.380] And I said, it's not going to happen anymore.
+- [25:41.220] And I brought a great gentleman,
+- [25:42.490] the head of Eli Lillian, who's great.
+- [25:47.070] He really is. He's great, he's done a fantastic job.
+- [25:49.690] And others also of the companies.
+- [25:52.240] And I'd have it out with him.
+- [25:53.860] I had debates with him, actually.
+- [25:56.010] Pretty much, it was a debate that was impossible to lose.
+- [26:00.200] You had to be a real bad debater to lose that debate
+- [26:03.010] because they couldn't justify it.
+- [26:04.830] They tried to say, well, you know,
+- [26:06.280] we pay for research and development,
+- [26:08.190] and the United States has agreed to pay for 100%.
+- [26:10.970] I said, why? Why are we paying?
+- [26:12.800] And, by the way, that wasn't even the number
+- [26:14.480] because it's still way too high.
+- [26:15.750] If you took all the research and development,
+- [26:18.370] but you have other countries that are a lot more vicious
+- [26:23.550] than us in terms of their representatives.
+- [26:26.560] And they'd set a price for a drug, and they'd say,
+- [26:28.460] tell the United States to pay for the rest.
+- [26:30.350] We were subsidizing the whole world.
+- [26:32.770] And I said, we're not going to do that anymore.
+- [26:34.300] We've been a laughing stock for so many years.
+- [26:36.230] The last four years, we've been laughing stock.
+- [26:38.200] I said it. We were laughing stock,
+- [26:39.790] and now we're the most respected
+- [26:41.690] and we're hottest country in the world.
+- [26:43.080] We're going to remain that way.
+- [26:44.330] We're going to do that with drug costs, too.
+- [26:46.670] And so I said I'm going to do something
+- [26:48.310] that's a very unpopular thing to do
+- [26:50.380] with a small number of people,
+- [26:53.150] mainly the people that own the drug companies and others.
+- [26:56.440] And I'm not even blaming them.
+- [26:57.800] They were able to get away with it.
+- [26:59.230] But it was really other nations that took advantage of us
+- [27:02.500] because the drug companies were under their thumb.
+- [27:06.690] And they would say, this is what I'm going to pay.
+- [27:10.660] And the European Union was right at the top of the list.
+- [27:13.550] Let me tell you. We're going to pai $20 for this,
+- [27:16.780] and we're not going to paying anymore.
+- [27:18.370] And America would pay $240
+- [27:21.200] for the same thing that they're paying $20.
+- [27:23.330] They said, tell America to pay for the rest.
+- [27:25.180] So for years they went along aimlessly, and they did it.
+- [27:29.110] And I started making changes.
+- [27:30.860] And I'll never forget the end of my first term,
+- [27:34.680] which was very successful.
+- [27:36.030] We had the best stock market ever.
+- [27:37.330] We had best economy ever of any president.
+- [27:40.780] We went up 88 percent in the stock market, as an example,
+- [27:45.220] and I think 116 percent in one of the other indices.
+- [27:49.280] And we had -- we're doing well, but I never --
+- [27:51.630] this whole thing with the drug costs always bothered me.
+- [27:54.210] And I started really studying it,
+- [27:55.650] and it's very complicated stuff.
+- [27:58.610] And I said, you know what? We are paying so much more.
+- [28:02.710] And I demanded favored nations. We're the biggest buyer.
+- [28:05.920] We're best buyer. We're most solid buyer.
+- [28:08.130] We're one that paid for all of the research and development.
+- [28:11.990] And they said, we're going to do something
+- [28:13.470] that's earth-shattering.
+- [28:14.710] So, at the end of my first term, I was so proud.
+- [28:19.200] Because it's the first time in 28 years
+- [28:21.950] that any president reduced drug prices
+- [28:25.760] during the course of four years.
+- [28:27.790] And you know what the number was?
+- [28:29.640] One-fourth of 1%. But it was down.
+- [28:34.040] One-forth, think of it, a quarter of 1%, very little.
+- [28:37.460] Essentially, they remained the same.
+- [28:39.790] But I wanted to get it down, and I was so proud.
+- [28:42.260] I thought I was the greatest guy in the world.
+- [28:44.400] I took it down. One-quarter of a percent.
+- [28:47.150] And I had news conferences.
+- [28:48.510] I was bragging, I'm the only one that did it 28 years.
+- [28:51.420] And then I said, that's not very much,
+- [28:53.840] because we were still paying so much more.
+- [28:55.640] And I decided I've got to break the system.
+- [28:58.940] And it's the most powerful lobby in the world, the drug company.
+- [29:02.310] Most powerful they are. The most powerful.
+- [29:04.570] And I'm not saying bad, good. I'm saying anything,
+- [29:07.020] but they have tremendous power over the Senate, over the House,
+- [29:11.750] over the governors, over everybody.
+- [29:14.730] And they spend more money --
+- [29:16.600] billions and billions of dollars.
+- [29:18.310] And I said, I don't care. I've got to do what --
+- [29:20.620] I have to do what's right.
+- [29:22.330] And I declare to favored nations --
+- [29:24.470] most favored nations where the United States,
+- [29:28.200] from now on, is going to pay the exact same price
+- [29:31.890] as the lowest price anywhere in the world.
+- [29:34.710] In other words, if you take --
+- [29:37.210] (applause)
+- [29:43.380] In other words, if you take the country that's paying,
+- [29:46.870] and let's say in a certain part of, you know,
+- [29:49.400] there may be some country out there
+- [29:51.340] that pays a little bit less for very good reasons
+- [29:53.540] because of the fact, a thing called poverty or whatever,
+- [29:56.650] but we take the lowest countries,
+- [29:59.470] say European Union countries as a whole.
+- [30:03.470] That would be fine.
+- [30:04.690] Or take individual countries within the European Union.
+- [30:08.010] Or take various countries that nobody's even heard about.
+- [30:12.500] We pay the lowest. And what that's going to mean,
+- [30:16.220] and I'd like to put somebody to police it
+- [30:18.280] because it should start immediately.
+- [30:19.750] It shouldn't start in two years, three years, five years.
+- [30:22.010] They'll say, yes, it kicks in.
+- [30:23.240] They always say, kicks in, Marty.
+- [30:25.530] It kicks in sir, in four years, you know.
+- [30:27.980] In the four years they get it changed.
+- [30:30.960] It should mean, so remember I told you
+- [30:32.760] I was happy with one quarter of one percent.
+- [30:35.600] It could mean anywhere from 70% to 89% reduction
+- [30:40.290] in drugs and pharmaceuticals.
+- [30:42.110] (applause)
+- [30:43.440] That's a little different.
+- [30:47.110] And I've actually had some congressmen call me
+- [30:49.380] and they say, sir, look, can we talk about this?
+- [30:51.850] I said, no, they wanted to talk
+- [30:54.050] because it's tremendous power against them.
+- [30:58.020] And I understand that.
+- [30:59.220] And every one of them was covered, senators were.
+- [31:03.220] I see Roger smiling and Roger probably was too,
+- [31:05.220] but you know what?
+- [31:06.450] He wants to do the right thing, right?
+- [31:08.130] He wants do the thing and we're doing the right thing.
+- [31:10.750] We're taking advantage of, and forget the drug company,
+- [31:13.590] we're taking an advantage of by other countries.
+- [31:16.120] That insisted with the drug companies
+- [31:18.120] that they were going to pay X dollars.
+- [31:20.290] And we're not paying any more,
+- [31:21.700] and you're not doing business here.
+- [31:23.030] And they were nasty about it.
+- [31:24.640] These people are almost sort of afraid of them.
+- [31:28.060] And we are going to now get a reduction
+- [31:31.630] in drug costs of up to 89 percent in some cases,
+- [31:35.370] but 50 percent would be a low, a bad number.
+- [31:38.410] So, think of that, 50 percent
+- [31:40.360] versus one quarter of one percent.
+- [31:43.360] Think of that, 85, 89, 91, 72 percent.
+- [31:48.670] It's going to be massive numbers.
+- [31:50.990] It's going to be incredible for Medicaid,
+- [31:53.130] incredible for all forms of healthcare.
+- [31:56.340] Medicare is going to be --
+- [31:57.860] it's going to have a huge impact.
+- [31:59.070] So big that nobody can calculate it.
+- [32:01.380] I mean, this thing could drop by 25, 30 percent.
+- [32:04.110] The drugs are -- Oz, it's a very big part of it, right?
+- [32:07.220] So, very big.
+- [32:08.780] So, it'll affect everything. It'll affect your whole life.
+- [32:12.110] The amount of money you're going to be saving
+- [32:13.890] is going to be incalculable.
+- [32:15.690] Nobody can believe I had the courage to do it.
+- [32:18.740] I don't think it's courage.
+- [32:19.980] I think it would have been courage not to do it.
+- [32:21.880] I tell you what, not to it would've taken far more courage
+- [32:26.250] because I was tired of it.
+- [32:28.070] And I was listening to these guys and they are,
+- [32:30.110] you know, they make a lot of money every year,
+- [32:31.650] millions and millions of dollars a year.
+- [32:34.070] And I agree because at the beginning,
+- [32:35.790] because of the complexity, you'd walk out of a room,
+- [32:38.020] you hear them talking.
+- [32:39.530] And, you know, they almost convinced you
+- [32:41.840] that it's a great system. It's a wonderful system,
+- [32:44.390] even though we were paying 10 times more.
+- [32:46.390] That's why they make $30 million a year,
+- [32:48.270] because they were good, but not any longer.
+- [32:51.030] And one of them just threw up his hands
+- [32:53.500] after I was just pounding on him.
+- [32:55.680] He said, I can't do it anymore.
+- [32:58.480] It's the hardest thing I have to do
+- [32:59.880] is trying to justify this damn thing.
+- [33:02.130] I can do it any more. One of the biggest companies,
+- [33:04.550] I just can't it anymore, you're right.
+- [33:07.090] And as soon as he said that, that was, like, incredible,
+- [33:09.800] because I understood exactly he couldn't do it.
+- [33:12.200] He said it's the hardest thing he had to do,
+- [33:13.990] is trying to justify why we're paying $200 for something
+- [33:18.320] and somebody else is paying $12 that is a neighboring country.
+- [33:23.150] Take Canada.
+- [33:24.570] I mean, people go up to Canada to shop
+- [33:26.510] because their prices are so much less,
+- [33:28.420] and it's not going to happen anymore.
+- [33:29.980] So we're going to take the lowest country
+- [33:31.570] anywhere in the world,
+- [33:32.770] and that's what we're going to be paying.
+- [33:34.770] And we'll be saving from 50 to 89 percent.
+- [33:38.560] And these are big, these are tremendous numbers.
+- [33:41.290] There's not going to be anything where we're paying
+- [33:43.340] 10 times more than somebody else.
+- [33:44.950] And one thing that is very important,
+- [33:47.300] and it's got to be implemented. It's done.
+- [33:50.180] I've done the order, it's done, but we have to get somebody
+- [33:54.020] that's got a lot of strength and a lot of power
+- [33:57.140] because you have to implement it
+- [33:58.600] because these countries are going to go down fighting.
+- [34:01.340] They don't want this to happen because they're going to up.
+- [34:04.310] There are many more people involved in the world
+- [34:06.510] than there are here.
+- [34:07.840] So they'll go up a little bit, maybe 15, 20 percent,
+- [34:11.720] and we're going to go down 60, 70, or 80 percent.
+- [34:14.980] But they will fight the drug companies.
+- [34:17.390] The drug companies are very worried
+- [34:18.880] that they're going to fight.
+- [34:20.080] And that's okay. If they fight, we'll just say, that's okay.
+- [34:23.540] We're not going to let you sell
+- [34:24.930] any more cars into the United States,
+- [34:26.950] or we're not going to let you sell
+- [34:28.220] anymore wine or liquor or alcohol
+- [34:31.000] or something that's actually much more important
+- [34:34.070] to them than the drugs.
+- [34:36.040] And we're going to be able to force that issue if we need to.
+- [34:39.560] They should do it. We're basically equalizing.
+- [34:42.750] They should it.
+- [34:44.050] And you know, the drug companies should do just as well.
+- [34:46.280] This shouldn't be a hit on their stock.
+- [34:47.670] I don't think it will be.
+- [34:48.930] It's basically -- it's going to the same amount of money,
+- [34:51.990] but it's going to redistributed.
+- [34:54.210] And it's going to be redistributed.
+- [34:55.750] So they're going to pay a little bit more,
+- [34:57.040] and we're going to pay a lot less.
+- [34:58.270] A little bit because there's so many more.
+- [35:00.010] It's a work, you know, it's a bigger,
+- [35:01.500] it is a bigger number.
+- [35:04.230] Robbie, I'd like to ask you and Dr. Oz and Marty,
+- [35:08.900] perhaps, and Jay,
+- [35:10.100] and maybe representing the world's politicians,
+- [35:12.630] I can ask Roger, who's so great with this whole subject,
+- [35:16.380] if you would be very, very tough
+- [35:18.670] and very, very powerful in a sense, it's not easy.
+- [35:23.450] You know, you're going to have to get this done.
+- [35:26.040] The drug companies are going to say,
+- [35:27.400] well, they won't do it. And maybe they won't.
+- [35:30.040] And if they don't do it, we're going to not do business
+- [35:31.920] with that country or those countries.
+- [35:33.880] But we're going to have to be very tough
+- [35:35.810] until it's totally stabilized and equalized.
+- [35:39.400] And, Oz, I mean, I see your eyes are gleaming
+- [35:42.270] because you've been talking about this for a long time,
+- [35:44.300] but you've never had anyone willing to do it.
+- [35:46.750] But I'm willing to do.
+- [35:47.980] And I think it's going to go down
+- [35:50.150] as one of the most important things we've ever done,
+- [35:52.360] because drug costs are going down.
+- [35:53.930] Think of it.
+- [35:55.500] Every year, for 21 years, the costs have gone up.
+- [35:58.760] And now they're going down maybe by 85, 80.
+- [36:01.390] And I'm telling you, 89 percent in two instances.
+- [36:04.140] Eighty-nine percent cut.
+- [36:06.020] Nobody's ever seen anything like it.
+- [36:07.470] So, I'd like to ask Oz, in particular,
+- [36:10.690] because you and I know each other.
+- [36:12.470] He's a very tough hombre, this one. He's tough as hell.
+- [36:16.170] And so, if you can lead the group.
+- [36:17.710] And it's not going to be easy.
+- [36:18.990] You're going to have to get in and you're going to fight.
+- [36:21.080] If you do it, you can have, within a period of weeks,
+- [36:24.000] you're going have drug costs that drop like a rock, okay?
+- [36:26.690] So you, as a group I have great confidence,
+- [36:29.050] and if you don't do it,
+- [36:30.340] I am firing every single one of you.
+- [36:35.200] Good luck, guys. All right? Can you handle it?
+- [36:39.400] Administrator Oz: (inaudible)
+- [36:46.070] The companies are all coming in.
+- [36:47.350] We've had some very promising interactions.
+- [36:50.850] So give me a little time to be a tough hombre.
+- [36:53.540] The President: You'll do a great job.
+- [36:54.780] I have no doubt about it. Thank you very much. Any help?
+- [36:57.230] I will be there to help you.
+- [36:59.010] Administrator Oz: For your part,
+- [37:00.210] you mentioned something that has not been discussed in the past.
+- [37:02.780] People have talked about drug prices in a silo
+- [37:05.200] and in isolation,
+- [37:06.580] but when you start going to the countries
+- [37:08.170] where they give discounts to
+- [37:09.380] because they're getting beaten up there
+- [37:11.040] and you support these companies,
+- [37:12.650] they see a huge upside potential,
+- [37:14.970] even greater than the numbers you mentioned.
+- [37:17.190] They should be able to charge more than
+- [37:19.320] what they would historically have been tolerant of
+- [37:21.890] if they have the support of the U.S. Government and you.
+- [37:23.760] And Secretary Kennedy is aware of all these discussions.
+- [37:26.600] The President: Well, they were artificially low
+- [37:28.220] and artificially high. We were artificially high.
+- [37:30.560] They were artificially low. We're not going to let that end.
+- [37:33.240] I think you're going to be able to handle it pretty easily.
+- [37:35.510] But speed is very important
+- [37:37.310] because we can do this immediately.
+- [37:38.610] This doesn't take two years, three years.
+- [37:40.370] It doesn't take a month. So do the best you can.
+- [37:43.230] Thank you very much. Thank you, everybody.
+- [37:47.200] (applause)
+- [37:50.050] Thank you very much.
+- [37:53.710] Thank you, Bobby. Are we concluded, Bobby?
+- [37:56.410] Secretary Kennedy: Yes.
+- [37:57.630] The President: Go ahead, why don't you finish it off?
+- [37:58.920] Secretary Kennedy: Thank you, Mr. President.
+- [38:00.330] Let's all give a hand for President Trump.
+- [38:02.880] The President: Thank you.
+- [38:05.500] (applause)

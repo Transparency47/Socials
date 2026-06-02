@@ -1,0 +1,138 @@
+<!-- source: https://www.youtube.com/watch?v=fUzNupJidq4 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: fUzNupJidq4 -->
+<!-- date_published: 2026-01-15T16:08:25+00:00 -->
+<!-- date_accessed: 2026-06-02T01:07:24.545992+00:00 -->
+
+# Transcript: The Great Healthcare Plan
+
+- [00:00.160] Today, I'm thrilled to announce my plan
+- [00:02.320] to lower health care prices for all
+- [00:04.640] Americans and truly make health care
+- [00:07.200] affordable again. We're doing things
+- [00:08.800] that nobody's ever been able to do.
+- [00:11.135] [music] We're calling it the Great
+- [00:13.280] Health Care Plan. Instead of putting the
+- [00:16.160] needs of big corporations and special
+- [00:18.720] interests first, [music] our plan
+- [00:20.560] finally puts you first and puts more
+- [00:23.119] money in your pocket. The government
+- [00:24.890] [music] is going to pay the money
+- [00:27.199] directly to you. It goes to you and then
+- [00:30.480] you take the money and buy your own
+- [00:32.320] health care. Nobody's ever heard of that
+- [00:34.480] before and that's the way it is. The big
+- [00:37.440] insurance companies lose and the people
+- [00:40.000] of our country win. This proposal locks
+- [00:43.120] in the massive discounts on prescription
+- [00:45.680] drugs that my administration is
+- [00:47.920] achieving through our [music] most
+- [00:49.680] favored nation drug pricing agreement.
+- [00:52.399] Now, when you hear about that, for 40
+- [00:55.920] years, they've been trying to do it, but
+- [00:57.840] they never were able to do it. No other
+- [00:59.600] president was able to do it. I got every
+- [01:01.600] other country to approve it. By the use
+- [01:04.159] of tariffs and other things, they all
+- [01:06.560] approved it. Nobody else got it. No
+- [01:08.880] other president got it. And for the most
+- [01:11.040] part, they didn't even try because they
+- [01:13.040] felt it was impossible. It'll bring down
+- [01:15.439] drug prices 80 90%
+- [01:18.320] in some cases. Just numbers that
+- [01:20.080] nobody's ever heard of before. your
+- [01:22.320] prescription drugs will come way, way
+- [01:24.799] down. And under this policy, the prices
+- [01:27.360] of many drugs will be slashed by 300,
+- [01:31.520] 400, and even 500% starting this month
+- [01:34.640] at the Trump rx.gov.
+- [01:37.759] So instead of Americans paying the
+- [01:40.079] highest drug prices in the world, which
+- [01:42.400] we have for decades, we will now be
+- [01:44.640] paying the lowest cost [music] paid by
+- [01:46.960] any other nation. And so any other
+- [01:48.720] nation that's paying the lowest cost,
+- [01:50.960] that's what we're going to pay. And the
+- [01:52.240] American people will get the savings. So
+- [01:54.880] I have to reiterate, the lowest price in
+- [01:58.000] the world is what you're going to pay.
+- [02:00.880] Before you were paying the highest price
+- [02:02.719] in the world by far, and the [music]
+- [02:04.640] politicians did nothing about it. So I'm
+- [02:07.439] asking Congress to complete the work
+- [02:09.360] that we've started. Next, my plan would
+- [02:12.000] reduce your insurance premiums by
+- [02:14.000] stopping government payoffs to big
+- [02:16.319] insurance companies and sending that
+- [02:18.160] money directly to the people. Obamacare
+- [02:21.040] was designed to make insurance companies
+- [02:23.200] rich. I call it the unaffordable care
+- [02:25.760] act with billions of dollars in taxpayer
+- [02:28.560] subsidies that helped their stock prices
+- [02:31.120] skyrocket over 1,700%.
+- [02:35.120] As you paid more money for health care
+- [02:37.280] every single year, more and more, the
+- [02:40.160] premiums went higher and higher. I want
+- [02:43.200] to end this flagrant scam and put extra
+- [02:45.760] money straight into the healthc care
+- [02:47.519] savings account in your name and you go
+- [02:50.080] out and buy your own health care [music]
+- [02:51.920] and you'll make a great deal. You get
+- [02:53.840] better health care for less money. That
+- [02:56.319] way you can choose the care that is
+- [02:58.000] right for your family. To further reduce
+- [03:00.480] insurance premiums, my plan ends the
+- [03:02.800] giant kickbacks to insurance brokers and
+- [03:05.200] corporate middlemen that only drive up
+- [03:07.680] the costs. And that's what they're
+- [03:09.120] intended to do, drive up [music] the
+- [03:10.879] cost. But we're driving down the cost.
+- [03:14.080] And it fully funds a long neglected part
+- [03:16.560] of the law known as the cost sharing
+- [03:19.440] reduction program. This measure alone
+- [03:22.080] should cut premiums on the most popular
+- [03:25.360] Obamacare plans. It's hard to believe
+- [03:27.280] there are any because it's a hated
+- [03:29.599] program. It's unaffordable, but it's
+- [03:32.480] going to cut them by an average of 10 to
+- [03:34.400] 15%.
+- [03:36.080] Next, the great health care plan. That's
+- [03:38.640] the name. It's called the great
+- [03:40.239] healthcare because it's great health
+- [03:41.760] care at a [music] lower price. Mandates
+- [03:44.480] unprecedented accountability and
+- [03:46.560] transparency from insurance companies
+- [03:49.120] and all health care providers so that
+- [03:52.000] special interests can no longer profiter
+- [03:54.640] at your expense. As the saying goes,
+- [03:57.680] sunlight is the best disinfectant. That
+- [04:00.959] is why my plan orders all insurance
+- [04:03.280] companies to publish rate and coverage
+- [04:05.519] comparisons [music] in very plain
+- [04:08.239] English. It requires insurers to publish
+- [04:11.360] detailed information about how much of
+- [04:14.000] your money they're going to be paying
+- [04:16.079] out in claims versus how much they are
+- [04:18.639] taking in in profits. [music] In other
+- [04:20.720] words, you will be able to watch the
+- [04:22.720] scam. It forces them to release detailed
+- [04:25.600] data on how many claims are being denied
+- [04:28.160] and whether those denials are eventually
+- [04:30.560] overturned on appeal. And most
+- [04:32.880] importantly, it will require any
+- [04:34.880] hospital or insurer who accepts [music]
+- [04:36.639] Medicare or Medicaid to prominently post
+- [04:40.160] all prices at their place of business so
+- [04:43.199] that you are never surprised [music]
+- [04:44.800] and you can easily shop for a better
+- [04:47.360] deal or better care. And you're going to
+- [04:49.600] end up doing both. You're going to get a
+- [04:51.919] better deal and [music] better care. We
+- [04:54.320] will have maximum price transparency and
+- [04:58.080] costs will come down incredibly. I'm
+- [05:01.040] calling on Congress to pass this
+- [05:02.880] framework into law without delay. Have
+- [05:05.840] to do it right now so that we can get
+- [05:08.320] immediate relief to the American people,
+- [05:10.960] the people I love. Thank you very much.

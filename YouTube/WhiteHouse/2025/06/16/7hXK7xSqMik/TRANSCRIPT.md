@@ -1,0 +1,109 @@
+<!-- source: https://www.youtube.com/watch?v=7hXK7xSqMik -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 7hXK7xSqMik -->
+<!-- date_published: 2025-06-16T17:03:47+00:00 -->
+<!-- date_accessed: 2026-06-02T02:48:25.346125+00:00 -->
+
+# Transcript: President Trump Attends the G7 Official Welcome
+
+- [00:03.439] The Right Honorable Mark Carney, Prime
+- [00:05.600] Minister of Canada and Mrs. Diana Fox
+- [00:08.559] Carney
+- [00:10.960] Carney, Communist Canada Diana Fox
+- [00:15.040] Carney,
+- [00:20.880] Her Excellency Ursula Vander Lean,
+- [00:23.680] President of the European Commission and
+- [00:26.160] Professor Dr. Haiko Vanderlean.
+- [00:34.800] Dr. 1 million.
+- [00:41.920] Good morning.
+- [00:43.660] [Music]
+- [01:06.720] when you're driving.
+- [01:13.440] [Music]
+- [01:26.130] [Music]
+- [01:47.180] [Music]
+- [01:49.119] His Excellency Antonio Koska, President
+- [01:52.000] of the European Council,
+- [01:54.640] Mr. Antonio
+- [02:13.760] [Music]
+- [02:24.080] Gina.
+- [02:28.750] [Music]
+- [02:45.599] I will. Exactly.
+- [02:47.920] [Music]
+- [02:50.160] His
+- [02:58.400] excellency,
+- [03:00.480] Chancellor of the Federal Republic of
+- [03:02.319] Germany and Mrs. Charlotte,
+- [03:10.159] Madame Charlotte.
+- [03:21.140] [Music]
+- [03:22.560] Thank you for
+- [03:26.000] this.
+- [03:31.810] [Music]
+- [03:37.120] like
+- [03:43.110] [Music]
+- [04:01.680] something like that.
+- [04:04.879] No, this is perfect. See
+- [04:10.140] [Music]
+- [04:15.690] [Music]
+- [04:18.160] you in a minute.
+- [04:20.120] [Music]
+- [04:27.199] His
+- [04:44.479] excellency Ishida, Prime Minister of
+- [04:47.759] Japan and Mrs. Yoshiko Ishida.
+- [04:54.160] Minister
+- [05:04.780] [Music]
+- [05:12.550] [Music]
+- [05:14.080] my
+- [05:18.600] [Music]
+- [05:41.039] Okay.
+- [05:43.120] left.
+- [05:44.450] [Music]
+- [05:55.039] The right honorable Sir,
+- [05:58.160] Prime Minister of the United Kingdom of
+- [06:00.080] Great Britain in Northern Ireland.
+- [06:05.700] [Music]
+- [06:19.120] It is a good
+- [06:23.250] [Music]
+- [06:33.600] idea.
+- [06:36.000] All
+- [06:40.600] [Music]
+- [06:48.820] [Music]
+- [06:50.160] right. Okay.
+- [06:53.690] [Music]
+- [07:00.319] Her excellency,
+- [07:02.880] President of the Council of Ministers of
+- [07:05.039] the Italian Republic.
+- [07:09.060] [Music]
+- [07:15.840] All
+- [07:17.199] right.
+- [07:27.360] All right.
+- [07:29.360] [Music]
+- [07:40.060] [Music]
+- [07:46.720] Okay.
+- [07:49.050] [Music]
+- [08:00.740] [Music]
+- [08:02.720] The honorable Donald J. Trump, President
+- [08:05.840] of the United States of America,
+- [08:09.039] Donald Trump.
+- [08:19.840] Beautiful. I know.
+- [08:23.320] [Music]
+- [08:29.840] I got to
+- [08:31.919] my wife Diana
+- [08:40.399] go over there. I'll put you in
+- [08:43.440] bad.
+- [08:55.510] [Music]
+- [09:00.000] 100%.
+- [09:05.690] [Music]
+- [09:13.519] All right. So, you come this way.
+- [09:16.800] Yeah.
+- [09:20.880] Are you considering
+- [09:26.260] [Music]
+- [09:30.000] his
+- [09:32.399] president of the French Republic?
+- [09:41.150] [Music]
+- [09:54.310] [Music]
+- [09:59.600] That's
+- [10:16.240] where she two officers
+- [10:18.820] [Music]
+- [10:33.279] pool number
+- [10:36.800] We love you.

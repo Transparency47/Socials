@@ -1,0 +1,213 @@
+<!-- source: https://www.youtube.com/watch?v=G35kNeCm8x8 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: G35kNeCm8x8 -->
+<!-- date_published: 2025-02-17T14:26:03+00:00 -->
+<!-- date_accessed: 2026-06-02T01:29:41.982733+00:00 -->
+
+# Transcript: President Trump Gaggles with the Press, Feb. 16, 2025
+
+- [00:04.280] So Daytona was fantastic. The crowd was
+- [00:06.720] amazing.
+- [00:08.240] The people love that sport and they're
+- [00:09.920] wonderful people that run it.
+- [00:12.640] And they had a little rain delay, but
+- [00:14.600] we'll go home and watch it I guess or
+- [00:16.320] some of you will and
+- [00:18.080] others will try and create peace
+- [00:19.560] throughout the world.
+- [00:21.160] Uh, do you have any questions, please?
+- [00:23.080] Sir, how did you speak to the Secretary
+- [00:24.800] Rubio this morning? I did. What is the
+- [00:27.280] latest with the negotiations in Saudi
+- [00:29.120] Arabia? What's the take it? We're moving
+- [00:31.000] along. We're trying to get a peace with
+- [00:32.680] Russia, Ukraine and we're working very
+- [00:34.480] hard on it. It's uh, a war that should
+- [00:37.600] have never started. Do you expect Do you
+- [00:39.720] expect Zelenskyy to be involved in these
+- [00:41.840] conversations? What will his role be?
+- [00:43.800] I do.
+- [00:44.800] Uh, he will be involved. Yes. Mr.
+- [00:47.080] President, would you allow the Europeans
+- [00:48.800] to buy US-made weapons for Ukrainians?
+- [00:53.640] Yeah.
+- [00:54.840] So Zelenskyy said today that Russia is
+- [00:57.280] going to wage war on NATO. Do you Do you
+- [01:00.160] agree with that? Do you have any
+- [01:01.080] concerns about
+- [01:01.960] No, I don't agree I don't agree with
+- [01:03.440] that. Not even Not even a little bit.
+- [01:06.240] Vice President Pence said that the
+- [01:08.000] United States would potentially take
+- [01:09.720] military action against Russia if they
+- [01:12.600] won't come to an agreement. Do you agree
+- [01:14.560] with that stance? I don't know if that's
+- [01:16.360] what he said. I don't think he said
+- [01:17.640] that.
+- [01:18.720] Based on your conversations Based on
+- [01:20.800] your conversations with President Putin,
+- [01:23.160] what do you think he wants ultimately in
+- [01:25.160] Ukraine? I think he wants to stop
+- [01:27.000] fighting. I see that. Uh, we spoke long
+- [01:30.480] and hard. Uh, Steve Witkoff was with him
+- [01:33.160] for a very extended period like about 3
+- [01:35.120] hours.
+- [01:36.160] I think he wants to stop fighting.
+- [01:38.640] They have a big powerful machine, you
+- [01:40.280] understand that. And uh,
+- [01:42.680] they defeated Hitler and they defeated
+- [01:45.000] uh,
+- [01:45.640] Napoleon, you know, they've been
+- [01:47.000] fighting a long time. They've done it
+- [01:48.560] before.
+- [01:49.960] And but I think he'd like to I think he
+- [01:52.120] would like to stop fighting. Do you
+- [01:53.480] think he wants the whole of Ukraine or
+- [01:55.640] just a like what do you think he wants
+- [01:57.440] in terms of territory?
+- [01:58.160] he wants to stop. That was my question
+- [02:00.040] to him. Because if he's going to go on,
+- [02:02.160] that would have been a big problem for
+- [02:03.640] us.
+- [02:04.640] And that would have caused me a big
+- [02:06.040] problem cuz you just can't let that
+- [02:07.840] happen. Uh, I think he wants to uh,
+- [02:11.120] end it
+- [02:12.280] and they want to end it fast.
+- [02:15.080] Both of them and Zelenskyy wants to end
+- [02:17.360] it, too.
+- [02:18.440] Sir, when do you think that could
+- [02:19.440] actually happen? When do you think the
+- [02:20.760] fighting can stop?
+- [02:21.840] Well, we're working to get it done. I
+- [02:23.320] mean, you know, it's too bad it started.
+- [02:25.480] It would have been a lot easier to end
+- [02:26.920] it before it started, right?
+- [02:29.000] But it started because we had an
+- [02:30.560] incompetent president. He didn't know
+- [02:32.920] what he was doing.
+- [02:34.440] That should have never started. That war
+- [02:36.040] was so easy to stop.
+- [02:38.240] Remember this that
+- [02:40.160] under Bush, they took a lot.
+- [02:42.720] Under Obama, they took a lot.
+- [02:45.120] Under Biden, they're trying to take the
+- [02:46.600] whole thing and under Trump, they took
+- [02:48.720] nothing. Nothing. Nothing was gone.
+- [02:51.600] Not even a little bit. So,
+- [02:54.120] it's too bad. It's really too bad. A lot
+- [02:55.840] of people are dead right now that should
+- [02:57.480] be alive and a lot of cities are
+- [02:58.960] destroyed that can never come back like
+- [03:01.360] they were. Those beautiful golden domes
+- [03:03.400] and
+- [03:04.480] all of the multi-colored domes that were
+- [03:06.880] a thousand years old, they're all laying
+- [03:08.800] in
+- [03:09.600] you know, just shattered.
+- [03:11.560] So, it's very sad. They ruined a
+- [03:13.240] culture. So, they're beginning phase
+- [03:15.080] two. They're beginning phase two of the
+- [03:15.800] ceasefire deal between Israel and
+- [03:17.440] Hamas.
+- [03:18.760] Uh,
+- [03:21.360] what is what's going on there? Have you
+- [03:23.160] been briefed on the latest related to
+- [03:24.760] that?
+- [03:25.120] you I have been briefed. I told Bibi,
+- [03:28.280] you do whatever you want because you
+- [03:29.880] know, my statement was that they got to
+- [03:31.720] come back. Now,
+- [03:33.680] the reason I made that statement because
+- [03:35.440] they said they weren't going to deliver
+- [03:37.000] they were not going to deliver the
+- [03:38.160] people that they said they were going to
+- [03:40.080] deliver that they agreed to deliver.
+- [03:43.000] And they did agree to do that, but they
+- [03:45.640] broke that agreement. When I made the
+- [03:47.200] statement, they delivered everybody plus
+- [03:49.040] an American.
+- [03:50.480] Now, the good news is they look like
+- [03:51.920] they're pretty good shape because the
+- [03:53.320] people from the week before didn't look
+- [03:55.600] like they were in good shape. They
+- [03:56.720] looked like Holocaust survivors,
+- [03:58.960] frankly. Horrible. Whatever happened to
+- [04:01.160] them was horrible.
+- [04:03.120] Uh, but that'll be up to Israel what the
+- [04:05.480] next step is in consultation with me.
+- [04:08.840] So,
+- [04:09.480] what do you think
+- [04:10.400] Russia used these weapons for that
+- [04:12.160] you've now allowed to be shipped given
+- [04:14.520] the fact that there's been ceasefires
+- [04:16.160] supposed to be in effect, why ship those
+- [04:18.359] big bombs now? Peace through strength.
+- [04:21.680] You understand that, right? It's called
+- [04:23.280] peace through strength.
+- [04:25.360] You know, they contracted for those
+- [04:27.000] weapons a long time ago in the Biden
+- [04:28.800] administration and then Biden wouldn't
+- [04:31.160] deliver the weapons.
+- [04:32.880] But I look at it differently. I say
+- [04:34.440] peace through strength. They were
+- [04:35.520] sitting there.
+- [04:37.360] Nobody knew what to do with them. They
+- [04:38.960] bought them.
+- [04:40.520] Uh, but
+- [04:42.000] I believe in that very strongly.
+- [04:43.520] So, do you have an update on your
+- [04:46.040] The European Union has
+- [04:47.360] talked about banning food imports from
+- [04:49.960] the US.
+- [04:51.200] Kind of along the lines of your
+- [04:52.560] reciprocal tariffs.
+- [04:54.720] And then with the reciprocal tariffs,
+- [04:56.480] they don't like the tariffs.
+- [04:57.680] I don't mind. Let them do it. Let them
+- [05:00.000] do it.
+- [05:00.720] They're just hurting themselves if they
+- [05:02.280] do that. I can't imagine it, but
+- [05:04.800] doesn't matter. We're having reciprocal
+- [05:06.560] tariffs. Whatever they charge, we
+- [05:08.640] charge. Very simple.
+- [05:10.320] If a certain country like India, which
+- [05:12.280] is very high tariff,
+- [05:14.200] if they charge us X dollars, we charge
+- [05:16.440] them X dollars. It's all right. It's a
+- [05:17.800] fair It's a fair thing to do. Even the
+- [05:19.840] media said it was fair.
+- [05:22.000] And it's going to
+- [05:23.680] be very good for the United States. Do
+- [05:25.320] you have an update on your timing of
+- [05:27.000] your meeting with Putin in Saudi Arabia?
+- [05:29.000] Uh, we have no time set, but it could be
+- [05:31.120] very soon.
+- [05:32.320] Do you think that's this month? Uh, it
+- [05:33.920] will be soon. We'll see what happens.
+- [05:35.360] But they're meeting right now.
+- [05:37.520] And that's more. I mean, this should
+- [05:38.680] have been done 4 years ago, 3 years ago
+- [05:40.720] before it started, but it should have
+- [05:42.160] been done immediately after it started
+- [05:45.480] as opposed to now, 3 years later.
+- [05:47.880] Sir, as prices have reached an all-time
+- [05:49.960] high, what's your administration
+- [05:51.920] Egg prices have reached an all-time
+- [05:53.720] high. It was a long before I ever got
+- [05:56.640] here. It was I don't know if that This
+- [05:58.400] is I remember I've been here for 3
+- [06:00.000] weeks.
+- [06:01.200] And when you saw the inflation numbers,
+- [06:03.200] I've been here for 3 weeks. I have had
+- [06:04.680] nothing to do with inflation. This was
+- [06:06.840] caused by Biden. I had 4 years of
+- [06:09.680] virtually no inflation.
+- [06:11.760] So, I'm just taking over, but I'll tell
+- [06:13.360] you what, this country has made more
+- [06:15.480] progress in the last 3 weeks than it's
+- [06:18.080] made in the last 4 years and we're
+- [06:20.240] respected again as a country. Thank you
+- [06:22.680] very much. Thank you.
+- [06:25.640] Thanks, guys. Thank you, guys. Let's go.

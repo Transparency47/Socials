@@ -1,0 +1,185 @@
+<!-- source: https://www.youtube.com/watch?v=IRV9DQUUnpM -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: IRV9DQUUnpM -->
+<!-- date_published: 2025-09-23T19:04:26+00:00 -->
+<!-- date_accessed: 2026-06-02T01:14:41.194056+00:00 -->
+
+# Transcript: President Trump Participates in a Bilateral Meeting with the President of Ukraine
+
+- [00:00.480] We've had an interesting day. I think a
+- [00:02.080] very productive day and we're now
+- [00:05.279] meeting with we're going to start a
+- [00:06.799] meeting with the president who we all
+- [00:09.360] know very well and he's a brave man and
+- [00:11.679] he's putting up one hell of a fight and
+- [00:14.799] we'll see how that all turns out. But
+- [00:16.560] we're going to have a meeting and uh we
+- [00:18.000] have about 30 meetings scheduled today.
+- [00:19.920] We have a lot of meetings scheduled
+- [00:21.199] today going pretty late into the night.
+- [00:24.320] Uh but this is an important one and we
+- [00:27.519] uh we have great respect for the fight
+- [00:30.080] that Ukraine is putting up. It's pretty
+- [00:32.399] amazing actually. So uh Mr. President,
+- [00:35.600] please.
+- [00:36.160] >> Thank you so much, Mr. President. First
+- [00:38.000] of all, thank you for this meeting.
+- [00:40.239] Thank you for your personal efforts to
+- [00:42.480] stop this war just now, Mr. President.
+- [00:45.280] And I'm happy to say that just now our
+- [00:47.680] first ladies, first ladies of Ukraine,
+- [00:49.920] first ladies of the United States. Yes.
+- [00:52.000] just now will have meeting about
+- [00:53.600] Ukrainian children. Thank you for
+- [00:55.760] Milan's personal involvement to this
+- [00:58.239] topic and this is very important. I will
+- [01:01.840] uh brief Mr. President and his team
+- [01:04.720] what's going on on the battlefield. We
+- [01:06.960] have good good news. Of course, we want
+- [01:09.439] to stop the war and with your help first
+- [01:12.400] of all and it's good that our soldiers
+- [01:15.200] occupied 360 kilometers this month and
+- [01:19.280] uh and of course we will speak about how
+- [01:21.200] to finish the war and about security
+- [01:24.000] guarantees a lot of what to discuss.
+- [01:26.640] Thank you.
+- [01:27.200] >> Would you like to say how you are doing
+- [01:28.720] on the battlefield while here?
+- [01:30.400] >> Yeah, please.
+- [01:31.520] >> Yeah. Yeah. So we thanks to our soldiers
+- [01:34.560] and to uh possibility to pearl the
+- [01:37.920] program when NATO countries by the way
+- [01:40.240] thanks to your support that they can buy
+- [01:42.880] weapon from the United States. So our
+- [01:44.640] soldiers in these months they they
+- [01:46.479] occupied 360 kilometers and they incled
+- [01:50.880] 1,000 soldiers. And of course of course
+- [01:54.159] we want to exchange because we need our
+- [01:56.479] soldiers in any case. But thanks thanks
+- [02:00.000] to our soldiers we have this possibility
+- [02:02.799] this opportunity. We will continue until
+- [02:06.000] Russia will stop this war and I hope
+- [02:08.160] that they will stop. In any case, we
+- [02:11.360] know that the economy of Russia is not
+- [02:14.160] doing well or with this during this war.
+- [02:17.520] We need more pressure and more sanctions
+- [02:19.360] and I hope with
+- [02:21.599] United States first of all and Europe
+- [02:24.400] but but we support Mr. President your
+- [02:27.440] idea and I want to discuss it how to
+- [02:30.000] stop some countries from Europe, how to
+- [02:32.640] stop them possibility to buy uh to buy
+- [02:36.160] Russian oil and gas. Yes, I had
+- [02:39.440] conversation by the way with president
+- [02:42.000] of Slovakia,
+- [02:44.160] prime minister or prime minister of we
+- [02:46.160] had good conversation. I think that they
+- [02:48.400] need some alternative ways and they will
+- [02:51.360] support this idea. I'm not sure that
+- [02:53.519] Hungarians are ready but but everything
+- [02:56.720] is in the future.
+- [02:59.040] >> Thank you very much.
+- [03:00.000] >> Thank you.
+- [03:00.480] >> Any questions,
+- [03:01.280] >> Mr. President? Do you think that NATO
+- [03:03.440] countries should shoot down Russian
+- [03:05.599] aircraft if they enter their airspace?
+- [03:08.159] >> Yes, I do.
+- [03:09.680] >> Mr. President, any update on your talks
+- [03:11.680] with President Putin and do you still
+- [03:13.040] trust him?
+- [03:14.560] >> Uh, I'll let you know in about a month
+- [03:16.480] from now. Okay.
+- [03:19.120] >> Are you willing to provide Ukraine with
+- [03:20.800] the security guarantees in the same way
+- [03:22.720] as European allies?
+- [03:23.599] >> Well, that's later down the road. We'll
+- [03:25.280] be talking about that. Hopefully, uh,
+- [03:27.840] we'll be in a position to talk about
+- [03:29.519] that a little bit later on. It's a
+- [03:31.680] little bit too early to answer that
+- [03:32.879] question.
+- [03:33.360] >> Mr. Putin is not speak with both of you.
+- [03:35.840] >> President Trump, your message to
+- [03:37.200] President Orban, who's refusing to stop
+- [03:39.280] buying Russian oil.
+- [03:40.480] >> Well, he's a friend of mine. I have not
+- [03:42.239] spoken to him, but I have a feeling if I
+- [03:44.000] did, he might stop and I think I'll be
+- [03:46.720] doing that.
+- [03:48.159] >> What progress do you think has been made
+- [03:50.319] on ending Russia's war against Ukraine
+- [03:52.400] since the last time you saw President
+- [03:53.920] Zilinski?
+- [03:54.480] >> Well, the biggest progress is that the
+- [03:56.319] Russian economy is terrible right now.
+- [03:58.480] as you know, it's crashing and that
+- [04:01.760] frankly Ukraine is doing a very good job
+- [04:03.840] of stopping this very large army. It's
+- [04:08.159] pretty amazing. You know, this is a war
+- [04:09.680] that should have ended in three days,
+- [04:11.120] four days. People said it was going to
+- [04:12.720] be very quick and you got to hand it to
+- [04:14.959] the Ukrainian soldiers and everybody
+- [04:17.519] involved. It's still going on and that's
+- [04:20.880] that's not a good thing for Russia. This
+- [04:22.639] was supposed to be quick and so you know
+- [04:25.440] Russia doesn't look very distinguished
+- [04:27.199] having taken three and a half years now
+- [04:29.759] right it's about three and a half years
+- [04:32.240] of very hard fighting
+- [04:34.880] and it looks like it's not going to end
+- [04:36.720] for a long time
+- [04:37.600] >> Mr. President Mr. President, um, have
+- [04:39.759] you been briefed on the, uh, latest
+- [04:42.080] alleged drone incursion into Denmark? U,
+- [04:44.880] what do you think of that? And
+- [04:46.160] >> where where are they?
+- [04:47.120] >> Denmark, Copenhagen. Denmark is saying
+- [04:49.120] that there
+- [04:51.440] airport, possibly Russian sabotage. Um,
+- [04:54.400] what's your response to that? Will the
+- [04:55.840] US have a material?
+- [04:56.720] >> Well, I have no response until I find
+- [04:58.320] out exactly what happened. I know about
+- [05:00.000] it, but they haven't they don't know
+- [05:01.919] what happened, but we're going to find
+- [05:03.919] out very soon.
+- [05:04.880] >> Sir,
+- [05:05.600] >> would you back up NATO allies? You said
+- [05:07.360] that you thought that they should shoot
+- [05:08.479] down uh the air Russian aircraft. Would
+- [05:10.639] you back them up? Would the United
+- [05:12.080] States help them out in some way?
+- [05:13.520] >> Depends on the circumstance, but you
+- [05:15.280] know, we're very strong toward NATO.
+- [05:17.360] NATO stepped up. You know, when they
+- [05:18.960] went from 2% to 5%.
+- [05:21.680] That was great unity. Trillions of
+- [05:24.320] dollars is being pumped in and they're
+- [05:25.840] paying us for the weapons that we send.
+- [05:28.320] But that was a big day that nobody
+- [05:30.639] thought a thing like that could happen.
+- [05:32.320] You had uh countries that weren't paying
+- [05:34.479] 2% and now they're all paying 5%. That's
+- [05:37.600] a lot of money. It's a lot of weapons
+- [05:39.600] they're buying and they're buying them
+- [05:40.720] from us. They're buying them from the
+- [05:42.800] US. You know, in the old days, Biden
+- [05:45.520] gave them everything. Gave them $350
+- [05:47.759] billion worth of uh money and weapons.
+- [05:51.440] That's a lot of money and a lot of
+- [05:52.960] weapons. And we got really not much for
+- [05:56.160] it. We gave uh we gave the money to
+- [05:59.600] Ukraine to fight. And we've uh they've
+- [06:02.639] proven they're very brave. I mean, look,
+- [06:04.160] they're fighting in a this is a war
+- [06:06.160] going on three and a half years. And
+- [06:09.280] people thought it would be over quickly
+- [06:10.639] because Russia is a big military power.
+- [06:12.720] And Ukraine, I tell you, they are good
+- [06:15.039] fighters. Got to hand it to they have a
+- [06:17.199] lot of courage, a lot of guts. Thank you
+- [06:19.280] very much, everybody. Thank you. Thank
+- [06:21.280] you so much.

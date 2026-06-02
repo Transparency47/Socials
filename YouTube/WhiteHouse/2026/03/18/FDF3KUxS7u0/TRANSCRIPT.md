@@ -1,0 +1,1162 @@
+<!-- source: https://www.youtube.com/watch?v=FDF3KUxS7u0 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: FDF3KUxS7u0 -->
+<!-- date_published: 2026-03-18T16:32:35+00:00 -->
+<!-- date_accessed: 2026-06-02T02:36:28.095049+00:00 -->
+
+# Transcript: Vice President JD Vance Delivers Remarks in Auburn Hills, MI
+
+- [00:02.730] Lee Zeldin: It is so exciting to be here with all of you.
+- [00:06.520] I've had the opportunity over the last
+- [00:09.063] 14 months to work closely with President Trump
+- [00:11.940] and Vice President Vance as
+- [00:15.268] they have been dedicated, I would say
+- [00:19.050] effortlessly, tirelessly, to
+- [00:21.245] strengthening the United States economy.
+- [00:25.340] They've been working so hard for all of
+- [00:28.399] us promoting upward economic mobility.
+- [00:32.760] Seeking out more affordable, reliable, base load power.
+- [00:38.560] As they've been working day and night for
+- [00:41.615] all of those Americans who delivered on
+- [00:44.645] that Trump mandate to put President Trump
+- [00:47.528] back in office to make America great again.
+- [00:57.940] President Trump and Vice President Vance
+- [01:01.115] have also been defenders and
+- [01:03.479] promoters of the American dream.
+- [01:06.330] And they've been ensuring that all of the
+- [01:09.282] agencies throughout this administration
+- [01:12.091] are pursuing common sense deregulation.
+- [01:16.830] Now, the Trump EPA, what that means,
+- [01:18.852] is that we choose to both protect the
+- [01:20.931] environment and grow the economy.
+- [01:24.170] See no longer is it a binary choice?
+- [01:26.370] We don't have to choose between the two.
+- [01:30.870] And in one year, we will finalize more
+- [01:34.256] deregulation at the Trump EPA than entire
+- [01:37.911] federal governments have done in the
+- [01:40.392] past across all agencies across entire presidency.
+- [01:44.150] Just one agency delivering that
+- [01:46.061] deregulation for the United States economy
+- [01:48.800] and for all of you.
+- [01:55.640] Now, what does that mean for
+- [01:57.871] United States auto jobs in the U.S.
+- [02:00.740] auto industry specifically?
+- [02:02.800] I know that's a pretty big deal to this area.
+- [02:05.520] I'll tell you for President Trump, that
+- [02:07.480] meant as soon as he came into office,
+- [02:09.341] successfully pursuing an end to electric
+- [02:12.358] vehicle mandates and promoting consumer choice.
+- [02:21.420] Working with the Secretary of
+- [02:23.723] Transportation, Sean Duffy to ensure that
+- [02:26.981] we are resetting cafe standards in the United States.
+- [02:31.320] And just recently announced over the last
+- [02:33.284] few weeks, I was standing with President
+- [02:35.201] Trump at the White House to announce the
+- [02:37.620] largest active deregulation in the history
+- [02:40.161] of the United States to get rid of
+- [02:42.526] the 2009 Obama and Dangerman finding.
+- [02:50.230] And while we were at it in that
+- [02:51.917] announcement, yes, the largest active
+- [02:53.931] deregulation ever in the United States
+- [02:56.384] to promote consumer choice, we got rid of
+- [02:59.355] that climate participation trophy for
+- [03:01.816] that annoying off-cycle credit for that
+- [03:04.610] start-stop feature in those vehicles, it's gone.
+- [03:13.840] Now, we can go through the list of
+- [03:15.710] everything that we're pursuing for the
+- [03:17.801] American public and the key is it's
+- [03:19.753] about promises made, promises can't wrap,
+- [03:22.140] it's about keeping your commitments, it's
+- [03:24.085] about delivering on the Trump mandate
+- [03:25.841] and everyday President Trump and Vice
+- [03:27.953] President Vance have been delivering on
+- [03:30.280] that commitment on behalf of all of us to
+- [03:32.761] make America stronger, freer, safer and
+- [03:35.270] more prosperous than ever before.
+- [03:43.770] Now, ladies and gentlemen, you might have
+- [03:46.716] just seen a very special woman
+- [03:48.828] walk into this venue with us.
+- [03:51.570] A big round of applause for our
+- [03:54.641] amazing second lady, who savants.
+- [04:11.820] Now, save a little bit for our next speaker.
+- [04:15.160] Gosh, I don't know what that's going to
+- [04:17.322] result in a home that our second lady is
+- [04:19.541] getting the biggest applause, but she deserves it.
+- [04:22.740] A strong woman.
+- [04:24.420] Somebody who is a great mother, an
+- [04:26.547] amazing spouse, an amazing American,
+- [04:29.140] and she happens to be married to my
+- [04:32.220] Vice President, our Vice President.
+- [04:35.620] Somebody who is a Marine.
+- [04:37.320] Somebody who's a patriot.
+- [04:38.670] a constitutionalist, a defender
+- [04:40.651] of our flag and our freedom.
+- [04:43.140] Somebody who selflessly has served in
+- [04:46.051] so many capacities to make this country
+- [04:49.170] stronger than it's ever been before.
+- [04:52.420] I've had the opportunity to call him a friend.
+- [04:56.740] I've got an opportunity to see our Vice
+- [04:59.380] President when the camera is on around,
+- [05:02.620] when it's the smallest group and setting,
+- [05:05.447] but the most important topics he is serious about.
+- [05:08.401] policy.
+- [05:09.400] He's a workhorse.
+- [05:11.430] He is someone who makes the entire
+- [05:14.385] administration stronger every day,
+- [05:17.820] with his courage, with his talent,
+- [05:19.743] his experience and his wisdom.
+- [05:22.160] Ladies and gentlemen, we are so fortunate
+- [05:24.914] and blessed to be able to call this man,
+- [05:27.740] our Vice President, and for Oakland County, Michigan.
+- [05:32.880] Let's all give a big round of applause in
+- [05:36.210] welcoming and greeting our Vice
+- [05:38.592] President of the United States, JD Vance.
+- [05:43.780] (applause)
+- [05:54.480] (audience chanting "USA")
+- [06:17.630] The Vice President: Well it is great to be back in Oakland County,
+- [06:20.161] Michigan, and I got to say we have an
+- [06:22.515] amazing leader at the Environmental
+- [06:26.965] Protection Agency in Lee.
+- [06:35.265] Please, please you all take your seats,
+- [06:36.937] take your seats, your politician with a microphone.
+- [06:39.100] I'm out here up here about three
+- [06:40.853] hours, so we don't want anybody fain.
+- [06:43.560] But here we've got a leader at the EPA
+- [06:46.035] who recognizes that we've got to protect
+- [06:48.715] American clean air, clean water.
+- [06:50.510] Of course, we all want a safe environment
+- [06:52.550] for our kids, but we can do that
+- [06:54.166] while still having the strongest
+- [06:55.592] economy anywhere in the world.
+- [06:56.940] And that's exactly what Lee's Elden has done for us.
+- [06:59.660] He's been good for Michigan workers.
+- [07:01.220] He's been good for Michigan families.
+- [07:03.100] He's been good for building and making
+- [07:05.094] things in America because he recognizes
+- [07:07.490] that unless we cut out all these crazy
+- [07:09.580] regulations, just as President Trump
+- [07:11.561] recognizes, we're never going
+- [07:13.153] to rebuild the American dream.
+- [07:15.380] So Lee, thank you for all you do and for
+- [07:17.227] the Republicans in the room, which I hope
+- [07:19.121] is most of you, or at least...
+- [07:25.080] Or at least...
+- [07:28.890] Or at least the independent
+- [07:30.551] minor Democrats and independents.
+- [07:33.060] Lee is the reason why we have a
+- [07:34.538] Republican speaker at the house right now.
+- [07:36.910] Nobody knows that or appreciates
+- [07:38.682] that because a couple of years ago,
+- [07:41.160] Lee's Elden was the New York gubernatorial candidate.
+- [07:44.590] And a time where, of course, it's very
+- [07:46.288] hard for a Republican to win the New York
+- [07:48.121] Governor's race, but he's so over-performed.
+- [07:51.370] And did such a good job in that race that
+- [07:53.815] he drug a number of New York
+- [07:55.525] Congressmen across the finish line.
+- [07:57.960] They're in Congress today and acting good
+- [07:59.946] policy because Lee's Elden ran a hell of a race.
+- [08:02.280] So thank you, Lee, for everything that you do.
+- [08:09.890] Now, just on a personal note, I'm very,
+- [08:11.870] very grateful and I appreciate the warm
+- [08:13.851] welcome you guys gave to our wonderful
+- [08:15.702] second lady, my lovely wife, Usha Vance.
+- [08:17.670] Thank you, honey, for being here.
+- [08:24.820] Usha is now 22 weeks pregnant with baby
+- [08:27.081] number four, so we're very excited about that.
+- [08:36.180] And I remember when we decided to run for
+- [08:37.830] Vice President said, honey, I really want
+- [08:39.481] to have a fourth kid and she said, well,
+- [08:41.154] you can become Vice President
+- [08:42.373] or you can have a fourth baby.
+- [08:43.740] But ladies and gentlemen, I am
+- [08:45.180] persuasive because I got both.
+- [08:51.410] But let me just say, on one other personal
+- [08:54.112] note, so we left Washington this morning,
+- [08:56.845] which has the craziest weather anywhere.
+- [08:59.210] Maybe I've ever lived in my entire life.
+- [09:00.890] Washington, you see, if you hate the
+- [09:02.437] weather, just wait ten minutes
+- [09:03.726] because it's going to change.
+- [09:05.230] So we get on the plane and I look at my
+- [09:07.888] staff and I say, it is cold in Washington.
+- [09:11.350] I hope that we're going some place warm.
+- [09:15.370] And they said, well, you know, we're
+- [09:16.895] going to Auburn Hills, Michigan.
+- [09:18.860] And I said, oh, I bet it's not warmer at
+- [09:22.153] Auburn Hills, Michigan, but you know what?
+- [09:25.710] Cold weather makes hardy people.
+- [09:27.730] It makes great American workers.
+- [09:29.220] And this is the hardest working state
+- [09:31.373] anywhere in the Union with the best workers.
+- [09:40.815] And you all know, as an Ohio State
+- [09:43.298] alum, how hard that is for me to say.
+- [09:48.775] But I'm going to give you just a little
+- [09:51.230] bit of grief here because, of course,
+- [09:53.790] this incredible business that we're in.
+- [09:55.520] With 100 high quality American
+- [09:57.482] manufacturers doing great things.
+- [10:00.160] It's called Engineering Design Services Incorporated.
+- [10:03.160] And I met some of the leadership just backstage.
+- [10:05.490] And, of course, so many of you are the
+- [10:07.643] very people who work with your
+- [10:09.493] hands, you work with your minds.
+- [10:11.130] And you keep this great American
+- [10:12.835] renaissance in manufacturing going.
+- [10:14.880] The fact that we added over 2,000
+- [10:17.353] manufacturing jobs in this state since
+- [10:20.201] Donald Trump became president is a
+- [10:22.112] testament to what you all make possible.
+- [10:24.940] Because across the street, we got fanny,
+- [10:27.298] one of the largest robotics
+- [10:28.901] companies anywhere in the world.
+- [10:30.905] And everything that you guys do, every
+- [10:33.514] single day, makes it possible
+- [10:35.541] for fanny to do what they do.
+- [10:37.580] And I love that connection.
+- [10:39.540] I love that synergy between American
+- [10:41.373] workers here, American workers across the
+- [10:43.461] street, building great robotics.
+- [10:45.400] So American workers in Wisconsin could
+- [10:47.330] make things that they weren't making 2 years ago.
+- [10:50.300] And the reason that has happened is because Donald J.
+- [10:53.020] Trump decided that we were sick of
+- [10:55.421] shipping American jobs overseas.
+- [10:58.180] We were sick of shipping American industry overseas.
+- [11:01.200] We are going to build right here in
+- [11:03.160] Michigan, right here at home, right here
+- [11:05.401] in the United States of America.
+- [11:06.860] And that's what we've done.
+- [11:15.420] Now, that said, as proud as we are of the
+- [11:18.249] great robotics that are happening right
+- [11:20.941] here and across the street, do you know that...
+- [11:24.301] And you all should be very proud of this.
+- [11:26.245] You know, Michigan is the number 2
+- [11:28.627] state in educational robotics adoption.
+- [11:31.361] I didn't know that until I was
+- [11:32.561] talking with somebody backstage.
+- [11:33.920] The number 2 state out of 50.
+- [11:36.100] And this is where the grief comes in.
+- [11:37.820] Guess what's number 1?
+- [11:47.760] Sir, I won't even repeat it because I'm
+- [11:49.782] going to get absolutely ran out of town if I say that.
+- [11:53.540] But we all know that as much as Michigan,
+- [11:56.529] Ohio, we have such a great rivalry.
+- [11:59.630] We have that rivalry because these are two
+- [12:01.823] of the states that are proudest when it
+- [12:03.861] comes to building things and making
+- [12:05.979] things and creating the American Dream.
+- [12:08.540] That's why I love this state.
+- [12:15.850] But I want to talk a little bit just about
+- [12:18.074] what the President of the United States
+- [12:20.141] and the entire team has done with the auto
+- [12:22.276] industry and the great state in Michigan.
+- [12:24.540] I know we're not in an auto plant,
+- [12:26.684] but this is an economy that depends on
+- [12:29.081] American automobile manufacturers.
+- [12:31.010] And it's one of the things that
+- [12:32.497] I'm proudest of that we did.
+- [12:34.320] Because we inherited a country where Joe
+- [12:36.679] Biden and the Democrats were trying to
+- [12:39.220] wage war against our American automakers.
+- [12:42.220] They were creating thousands and
+- [12:44.039] thousands of pages of new regulations.
+- [12:46.570] They were going to war against American energy.
+- [12:48.830] They were trying to force every single
+- [12:51.252] person in this country to drive an electric vehicle.
+- [12:54.900] Until about one year and two months ago, when Donald J.
+- [12:59.365] Trump came into the White
+- [13:00.325] House and said, you know what?
+- [13:01.500] We believe you ought to be able to drive
+- [13:03.381] whatever the hell car you want in the
+- [13:05.121] United States of America because
+- [13:07.422] we want people to choose.
+- [13:13.880] So here's a statistic for you in 2025.
+- [13:16.200] Last year, new U.S.
+- [13:17.820] vehicle sales rose by 2.4 percent, which
+- [13:20.715] is the biggest jump in
+- [13:22.267] American-made automobile since 2019.
+- [13:25.520] The last time Donald J.
+- [13:27.040] Trump was President.
+- [13:28.760] We've seen just in the last six months,
+- [13:31.959] we've seen the effects of our tax policy
+- [13:35.390] start to make its way into the
+- [13:37.256] Michigan automobile industry.
+- [13:39.335] You know, those working-family tax cuts
+- [13:41.757] that Lee helped get past and, you know,
+- [13:44.200] John James and so many of our great
+- [13:46.196] Michiganders helped make happen.
+- [13:48.420] That is real money in your pocket.
+- [13:50.580] And for our businesses, that means they can hire more.
+- [13:53.200] That means they can create more jobs.
+- [13:54.741] That means they can invest more in our great country.
+- [13:58.180] You know, those working-family tax
+- [14:00.012] cuts mean no taxes on social security.
+- [14:02.600] If you like, no taxes on social security,
+- [14:04.884] remember Republicans made it happen in Congress.
+- [14:08.620] If you like, if you like no taxes on
+- [14:12.312] overtime, because we've got a lot of great
+- [14:16.621] overtime workers just here in this
+- [14:18.769] place, you ought to think a Republican in
+- [14:21.361] Congress because congressional Republicans
+- [14:23.901] made dough taxes on overtime happen and
+- [14:26.261] Democrats fought us every single step of the way.
+- [14:28.900] And if you happen to believe that lowering
+- [14:31.590] taxes for people making less than $100,000
+- [14:34.480] a year, and everybody else, by the way,
+- [14:37.220] is good policy, then again, we got to
+- [14:39.821] remember that it was congressional
+- [14:41.257] Republicans that made those victories happen.
+- [14:43.860] And I have been able to believe, I'm
+- [14:45.239] fundamentally, I think a lot of you know this.
+- [14:47.140] I'm going to have to miss about this country.
+- [14:49.170] I think that we have great Democrats,
+- [14:50.842] great Republicans, great independence.
+- [14:53.400] But the Democrats in Washington DC are a
+- [14:55.952] different breed from the Democrats that
+- [14:58.441] exist in most of the rest of the country.
+- [15:00.710] I was raised by two working-class Democrats.
+- [15:03.940] They were patriotic.
+- [15:05.745] My grandfather was a Union Steelworker
+- [15:07.697] for pretty much his entire life.
+- [15:09.490] I don't think he would understand the
+- [15:11.755] Democrat Party of Hakeem Jeffries and
+- [15:14.320] Chuck Schumer and Nancy Pelosi.
+- [15:16.220] Because they don't celebrate American victories.
+- [15:18.120] They don't vote for lower taxes for American workers.
+- [15:21.080] They don't seem to be happy when America is doing well.
+- [15:25.140] And fundamentally, the reason I'm here
+- [15:26.940] is to get us to remember, we've got an election.
+- [15:29.420] It seems like it's very far off.
+- [15:31.600] But the reality is, in just about six
+- [15:33.848] months, you're going to be asked to go to
+- [15:36.341] the polls, and you're going to be presented a question.
+- [15:39.380] Do you support the party that fights
+- [15:41.941] for fraud and illegal immigration?
+- [15:44.730] Or do you support the Republican Party
+- [15:47.262] that fights for you for lower taxes and
+- [15:49.861] for good jobs right here in Michigan?
+- [15:58.930] And I want to make sure I read off...
+- [16:00.547] I mean, things that I learned about just on
+- [16:02.421] the airplane that are happening
+- [16:04.114] to this incredible state.
+- [16:05.960] You know, the Detroit diesel, one of the
+- [16:08.212] biggest engine manufacturers announced it
+- [16:10.595] was adding a third shift, and we're
+- [16:12.554] calling late-off workers that
+- [16:14.204] had been late-off last year.
+- [16:16.260] Why do you think that happened?
+- [16:17.780] That happens for two reasons, because
+- [16:20.127] we've got tax policies that promote the
+- [16:22.601] investment in the American worker.
+- [16:24.550] And because the president of the United
+- [16:26.439] States for the first time in my entire
+- [16:29.380] lifetime was willing to say to the rest
+- [16:31.163] of the world, you're done poaching our
+- [16:33.600] industry, you're done poaching our jobs.
+- [16:35.480] If you want to build right here in the
+- [16:37.395] United States of America, you get a big fat tax cut.
+- [16:40.760] But if you're trying to undercut the wages
+- [16:43.028] of American workers and bring in cheap
+- [16:45.081] garbage from overseas, you're going to
+- [16:46.990] get a big fat tax increase because we're
+- [16:49.001] protecting our workers, and we're protecting the jobs.
+- [16:59.540] So we eliminated the EV mandate.
+- [17:02.890] We eliminated a lot of the taxes that
+- [17:04.877] made it hard for us to invest in our communities.
+- [17:07.540] We had a President of the United States
+- [17:09.288] who was willing to go to war against those
+- [17:11.171] foreign companies in those foreign
+- [17:12.993] countries who were undercutting
+- [17:14.684] the wages of American workers.
+- [17:16.650] And that is how you get the results that
+- [17:19.352] we have seen just over the last 14 months.
+- [17:22.440] And I'll tell you, because I see him every
+- [17:24.465] day, I talked to him this morning before I
+- [17:26.590] hit the road to come to Michigan,
+- [17:28.306] the President of the United States is
+- [17:30.231] proud of this record, but he is more
+- [17:32.677] impatient than any person I have ever met.
+- [17:37.490] One of the things I love about him
+- [17:39.841] is he will constantly tell, Lee, me,
+- [17:42.700] the entire economic team will say, not
+- [17:44.746] let's celebrate our achievements of
+- [17:47.480] course, but what have we done today?
+- [17:49.010] What have we done in the last week?
+- [17:50.251] What have we done in the last
+- [17:51.530] month to keep this progress going?
+- [17:53.770] Now, there's a statistic I'm going to toss
+- [17:56.311] out at you, but I think all of you have
+- [17:58.671] felt this statistic in your hearts.
+- [18:01.070] Because under the Biden administration,
+- [18:04.373] the average American worker
+- [18:06.652] lost $3,000 in take home pay.
+- [18:09.010] That was a combination of two things.
+- [18:11.250] Higher prices, that terrible inflation
+- [18:13.317] problem that we had under Joe Biden's
+- [18:15.331] leadership, but it was also because of higher taxes.
+- [18:18.190] So every single one of us, we got about an
+- [18:21.038] average of $3,000 poorer while Joe Biden
+- [18:23.800] in the Democrats ran Washington, D.C.
+- [18:26.270] That is a very, very bad statistic.
+- [18:28.735] Now, the good news is, over the last 14
+- [18:30.623] months under Donald Trump's leadership,
+- [18:33.030] the average American has actually
+- [18:34.629] increased their take home pay by about $1,400.
+- [18:37.810] Now, that's a good thing.
+- [18:39.170] That $1,400 is money in your pocket.
+- [18:42.110] But what it also means is that a lot of
+- [18:44.070] our families are still struggling because
+- [18:46.131] that terrible whole that Joe
+- [18:47.811] Biden and the Democrats put us in.
+- [18:50.550] And for so many of us, the question in
+- [18:52.655] November is going to be very simply,
+- [18:55.170] do we support the people who made us
+- [18:57.434] hundreds and hundreds of dollars richer?
+- [19:00.350] Or do we support the people who made us
+- [19:02.275] hundreds and hundreds of dollars poorer?
+- [19:04.610] Let's support the people who made us
+- [19:06.818] richer more prosperous and more secure.
+- [19:09.410] And that's the Congressional
+- [19:10.656] leadership in Washington, D.C.
+- [19:18.820] Because here's the thing, you know, I
+- [19:20.754] landed, I don't even remember
+- [19:22.318] what you airport we landed in.
+- [19:23.730] But it was about a 20-minute drive from there to here.
+- [19:26.780] And I was looking around and I was
+- [19:28.688] thinking to myself, again, this is why
+- [19:31.370] even though I'm in Ohio State Guy, I
+- [19:33.208] love this state, it reminded me so much of my hometown.
+- [19:37.510] You've got these beautiful old homes that I saw.
+- [19:41.280] Places that are harkened back to an era
+- [19:44.185] of American greatness when we
+- [19:46.469] built these beautiful buildings.
+- [19:48.980] And some of them looked amazing.
+- [19:50.900] And some of them, let's be honest,
+- [19:52.323] look like they were struggling.
+- [19:54.400] I drove through some areas
+- [19:55.629] that were clearly struggling.
+- [19:57.840] And you know what I realized that the
+- [20:00.218] American dream was sold to the highest
+- [20:02.661] foreign bidder for pretty much my entire life.
+- [20:06.080] I'm 41 years old.
+- [20:08.000] And we said everybody, whether it was
+- [20:10.269] on Wall Street or a foreign company or
+- [20:12.601] foreign competitor, we were going to sell
+- [20:14.764] out the American dream of the people right
+- [20:17.230] in this room so that somebody could make a quick buck.
+- [20:20.760] Or so that some foreign competitor or some
+- [20:23.229] foreign country could get rich off of the
+- [20:25.641] infrastructure that the United States of
+- [20:28.040] America had built over 250 proud years.
+- [20:31.180] And what I realized driving through this
+- [20:33.221] area is that the American Renaissance,
+- [20:35.330] ladies and gentlemen, $1,200
+- [20:37.633] richer and 14 months is a lot.
+- [20:40.260] But there is so much more that we can do together.
+- [20:44.200] There is so much more to be built, so
+- [20:46.332] much more to be reclaimed, so much more
+- [20:48.581] to be made anew in the United States of America.
+- [20:51.670] But it's not going to happen by going back
+- [20:54.185] to the failed policies of Joe Biden and Nancy Pelosi.
+- [20:57.540] It's going to be by doubling
+- [20:59.055] down on the policies of Donald J.
+- [21:00.920] Trump and the people who love this country.
+- [21:10.585] And the same way that the American dream
+- [21:12.700] wasn't sold out in one year, it's going to
+- [21:14.921] take us longer to rebuild it.
+- [21:17.265] And what is really at stake in this
+- [21:19.995] election in November is fundamentally
+- [21:23.480] we've done so much good.
+- [21:25.800] And we've built so much and we've been
+- [21:28.147] able to do a lot for the American people,
+- [21:30.990] but the Democrats threatened to take us
+- [21:32.847] straight back to where we were
+- [21:34.241] just a few short years ago.
+- [21:36.240] And we all know the economic statistics.
+- [21:38.220] We all know the fact that we felt it
+- [21:40.500] in our pockets, that everything from
+- [21:42.781] groceries to our home electricity bill was
+- [21:45.081] going up at a level that it hadn't
+- [21:47.007] gone up in 40 years under Joe Biden.
+- [21:49.320] But it's not just that.
+- [21:50.820] Because the American dream, my friends,
+- [21:52.897] is you all know it's not just about
+- [21:54.797] going out and being able to buy
+- [21:56.123] something as important as that is.
+- [21:57.640] It's not just about the economics, the
+- [21:59.470] dollars and cents, though of course we
+- [22:01.301] demand that our citizens become more prosperous.
+- [22:05.320] It's also about peace and security.
+- [22:07.570] It's about being safe in your own home.
+- [22:09.970] It's about what I think of it as a classic
+- [22:11.993] American idea that just because you grew
+- [22:13.945] up in a poor family like mine, doesn't
+- [22:15.768] mean you shouldn't be able to walk
+- [22:17.401] down the street in safety and
+- [22:19.021] security in your own country.
+- [22:21.240] And that is what Joe Biden and his
+- [22:23.461] leadership and Nancy Pelosi and all these
+- [22:26.141] clowns in Washington, that is the thing
+- [22:28.172] that they tried to take away the most from us.
+- [22:31.560] Where do you think the fit and all that
+- [22:34.006] flooded our streets and killed hundreds of
+- [22:36.641] thousands of our citizens came from?
+- [22:38.690] It came from Joe Biden's wide open border.
+- [22:41.660] Where do you think the highest crime
+- [22:43.932] rates, the highest murder rates came
+- [22:46.233] from during that administration?
+- [22:47.961] They came from the fact that we went
+- [22:50.351] to war on the police rather than on the
+- [22:53.190] criminals who committed crimes.
+- [22:55.100] Where do you think the fact that we had
+- [22:57.430] elevated murder rates not just in our big
+- [22:59.881] cities but in our small towns?
+- [23:01.410] Because we let in hundreds of thousands of
+- [23:04.365] violent criminals into the United States of America.
+- [23:08.380] So when I talk about the American dream,
+- [23:10.069] I mean number one that I want you to have a good job.
+- [23:12.930] That pays you a good wage.
+- [23:14.160] It allows you to put food on the table but
+- [23:16.310] also take a couple of nice vacations every year.
+- [23:19.180] But what I also mean is that we need to
+- [23:21.165] get the people who are making our cities less safe.
+- [23:24.400] The hell out of our country and
+- [23:25.921] focus on American citizens first.
+- [23:37.380] Because as much as we have achieved and as
+- [23:39.789] much as I'm proud of what we've done over
+- [23:42.440] the last 14 months, the Democrats
+- [23:44.563] threatened to take us right back to where
+- [23:47.275] we were the last time that they
+- [23:48.833] had control of the government.
+- [23:50.960] Think about it.
+- [23:51.530] Think about the state of the union dress.
+- [23:53.020] It feels like forever ago.
+- [23:54.540] I think it wasn't even a month ago.
+- [23:56.510] As you all know, I have a very unique
+- [23:58.185] perspective on the state of the union dress.
+- [24:00.595] I'm the one person the president's obviously talking.
+- [24:03.750] And I guess me and Mike Johnson, the
+- [24:05.048] speaker of the house, the two people
+- [24:06.370] who just get to see the Congress.
+- [24:08.540] We don't have anything to say.
+- [24:10.215] You stand up and sit down probably 150 times.
+- [24:12.950] But it gave me a perspective on
+- [24:15.255] what's going on in our country.
+- [24:18.230] I should say what's going on in our
+- [24:19.635] capital more than what's going on in our country.
+- [24:22.020] Because I realized that there is
+- [24:24.716] such cowardice in Washington, D.C.
+- [24:27.920] in the political leadership in Washington, D.C.
+- [24:30.140] I've never seen anything like it.
+- [24:31.880] So you may remember this line, if
+- [24:33.328] you don't, I'll repeat it for you.
+- [24:35.315] But the president said something to the
+- [24:37.082] effect of, I'm paraphrasing a little bit,
+- [24:39.390] he said something like, if you believe
+- [24:42.541] that it's in the, if you believe that the
+- [24:45.941] government ought to put American citizens
+- [24:48.262] first, rather than illegal aliens stand up and cheer.
+- [24:52.060] And every Republican and like three or
+- [24:54.186] four Democrats stood up and cheered.
+- [24:56.920] But what was funny is not just that the
+- [24:58.652] Democrats were sitting on their hands.
+- [25:01.000] It's that they were all looking around.
+- [25:03.100] Like, what do we do here?
+- [25:05.690] And what kind of a person is elected to
+- [25:08.620] serve in congressional leadership and has
+- [25:11.775] to look around at their peers rather than
+- [25:14.577] stand up and clap for the basic idea that
+- [25:17.430] the American government should be fighting
+- [25:19.402] for you, not people who are
+- [25:20.561] fraudulently in our country.
+- [25:22.685] What kind of a person can't stand in clap
+- [25:25.518] for a six-year-old girl who is hugging her
+- [25:28.421] father because she was, you know, a
+- [25:30.336] little nervous, she was in the public
+- [25:32.361] spotlight but we were celebrating this
+- [25:34.099] six-year-old girl because she had survived
+- [25:36.070] a criminal attack from an illegal
+- [25:37.743] alien who shouldn't be in this country.
+- [25:40.160] And the Democrats couldn't stand and cheer at that.
+- [25:43.000] And the thing that I took away from that
+- [25:45.267] is much more than any political issue,
+- [25:47.660] any policy issue.
+- [25:48.890] I can stand up here and proudly say that
+- [25:51.008] we shut the border, we cut, we lowered
+- [25:53.170] your taxes, and we have the
+- [25:54.501] lowest murder rate on history.
+- [25:56.020] And that is something I'm very proud of.
+- [25:58.140] But you know what I'm more proud of?
+- [25:59.730] That I'm part of a political movement
+- [26:01.721] that is fighting for each and
+- [26:03.319] every single person in this room.
+- [26:05.645] It doesn't mean you're always going to agree with us.
+- [26:07.620] It doesn't mean you're going to agree with
+- [26:09.080] everything that congressional
+- [26:10.010] Republicans do in Washington, D.C.
+- [26:12.240] But what I do know is that they wake up
+- [26:14.814] and they think, how can we best serve the
+- [26:17.521] people of this community and the
+- [26:19.125] people of the United States of America?
+- [26:30.245] And that is the biggest dividing line
+- [26:32.325] and it breaks my heart to say it.
+- [26:34.460] The biggest dividing line in our politics
+- [26:36.870] is not tax policy or regulatory policy or
+- [26:39.281] even immigration as much as you
+- [26:41.217] and I care about all these things.
+- [26:43.970] The biggest dividing line in our
+- [26:45.794] country is that we have in Washington,
+- [26:48.160] D.C.
+- [26:49.060] one political movement that is dedicated
+- [26:51.833] to fraud, to illegal immigration,
+- [26:54.345] and to making sure that this country is
+- [26:57.625] safe for them rather than safe for us.
+- [27:07.530] I would love, I really would.
+- [27:09.430] I would love to live in a country or in
+- [27:11.163] the President of the United States says it
+- [27:13.280] is the duty of the American government
+- [27:15.655] to look after American citizens first,
+- [27:18.470] for everybody, Democrat and
+- [27:19.883] Republican to stand up and cheer.
+- [27:22.160] But my simple request is that until we get
+- [27:25.121] to that moment, until the Democrats can
+- [27:27.871] cheer for the idea that the government
+- [27:30.200] fights for you, until the Democrats can
+- [27:32.591] cheer for the fact that the government
+- [27:34.312] should be lowering your taxes,
+- [27:35.920] until the Democrats stand and cheer for
+- [27:38.213] the fact that the border ought to be
+- [27:40.331] closed and we ought to get the cartels out
+- [27:42.488] of our country, do not send those crazy
+- [27:44.491] people or any more of them to Washington,
+- [27:46.871] D.C., support the people who fight
+- [27:48.856] for you and that is Donald J.
+- [27:50.860] Trump and the entire leadership of this party.
+- [28:00.785] Okay, so I've said everything or at
+- [28:02.839] least most of what I want to say
+- [28:04.757] here, but I want to just give...
+- [28:07.890] I want to give one note of shout out to
+- [28:09.883] our fellow Americans in this community who
+- [28:12.180] have suffered a little bit in the last
+- [28:13.354] couple of weeks, and then I'll take some
+- [28:14.591] questions from the reporters.
+- [28:15.790] So, I believe we're only about a half
+- [28:19.410] an hour or so away from the facility,
+- [28:23.410] Temple Israel, the synagogue that was
+- [28:25.833] attacked by terrorists just...
+- [28:27.873] well, not even a week ago, I believe.
+- [28:30.190] And I think that all of us ought to keep
+- [28:33.441] these folks in our prayers because when
+- [28:36.611] something happens to any member of our
+- [28:38.356] American family, and this particular
+- [28:40.260] incident happened to Jewish members of our
+- [28:42.937] American family, it is something that all
+- [28:45.675] of us have to stand up and say
+- [28:47.205] it's disgusting, it's unacceptable,
+- [28:49.410] and we're not going to tolerate
+- [28:50.650] the United States of America.
+- [28:57.680] So, I have all the folks from Temple
+- [28:59.120] Israel know that we're praying for them,
+- [29:00.760] we're thinking about them from the
+- [29:01.752] President of the United States,
+- [29:02.680] the Vice President, everybody else.
+- [29:05.130] We love you, and we're proud of how you
+- [29:07.354] have handled this particular situation
+- [29:09.695] because it is tough.
+- [29:11.180] In particular, there was a police veteran
+- [29:13.896] who was a security guard by the name of
+- [29:16.481] Danny Phillips, and Danny Phillips
+- [29:18.259] was one of the heroes that day.
+- [29:20.180] He was injured protecting the people in
+- [29:22.169] that community, and I hope all of us will
+- [29:24.261] give a big round of applause
+- [29:25.554] in a prayer to Danny Phillips.
+- [29:27.200] He's the very best of this country, and
+- [29:29.560] sometimes you see the very best on our worst days.
+- [29:38.210] So, with that, I will say thank you all
+- [29:40.350] for having me, the fun is not over yet,
+- [29:42.600] we'll take a few questions from the
+- [29:44.170] reporters, but if we could, what I'd like
+- [29:46.035] to do is start out with the local
+- [29:47.824] reporters first, and if we have time,
+- [29:50.040] we'll get to the national reporters after that.
+- [29:52.320] Okay, go ahead, guys.
+- [29:54.920] Hi, this Vice President, Brett
+- [29:56.487] Tast with WX-Y-Z here in Detroit.
+- [29:58.290] Thank you for taking questions.
+- [29:59.990] We're seeing gas prices here, climbing at
+- [30:01.630] home, in particular here in Metro Detroit,
+- [30:03.630] with what's going on, with Iran and the
+- [30:05.157] impacts in the street are her moves.
+- [30:06.590] What is the administration doing to help
+- [30:08.190] keep gas prices down, and where do you see
+- [30:10.370] gas prices going here in the near future?
+- [30:12.770] Well, you know, the President of the
+- [30:14.312] United States has been crystal clear about this.
+- [30:17.970] Look, gas prices are up, and we know
+- [30:19.583] they're up, and we know that people are
+- [30:21.331] hurting because of it, and we're doing
+- [30:23.022] everything that we can to ensure that they stay low.
+- [30:25.655] I will say, the President said
+- [30:27.080] this, and I certainly agree with
+- [30:28.564] it, this is a temporary blip.
+- [30:30.700] Okay, what happened under the Biden
+- [30:32.210] administration is that gas
+- [30:33.230] prices were high for four years.
+- [30:35.390] Gas prices are higher right now, and
+- [30:37.130] frankly, they're not even as high as
+- [30:38.871] they were during certain parts
+- [30:40.071] of the Biden administration.
+- [30:41.510] Because of what's going on in the Middle
+- [30:43.287] East, it's not going to last forever.
+- [30:45.130] We're going to take care of business,
+- [30:46.610] we're going to come back home,
+- [30:47.990] and when that happens, you're going to see
+- [30:49.762] energy prices come back down to reality.
+- [30:51.475] But in the meantime, we got a problem.
+- [30:53.730] We know that we have a problem.
+- [30:54.750] We're doing everything that we can to address it.
+- [30:57.120] A couple of steps that we've taken just
+- [30:59.708] in the last couple of weeks is that we
+- [31:02.380] actually worked with a lot of
+- [31:03.574] our allies all over the world.
+- [31:04.980] Who are suffering from this, frankly,
+- [31:07.276] more than we are, because unlike the
+- [31:09.511] United States, where we pursued an energy
+- [31:11.855] dominance agenda, you've got a lot of
+- [31:14.070] people all over the world who have
+- [31:15.560] focused on a lot of green energy scams,
+- [31:17.560] and they're hurting a lot more than we are.
+- [31:19.600] So, as much as we've got a focus
+- [31:21.791] on getting these gas prices down,
+- [31:24.290] the reality is overseas, they're feeling
+- [31:27.439] it far worse than we did, because we've
+- [31:30.511] taken the steps to protect our energy economy.
+- [31:33.410] For example, what we did working with
+- [31:35.105] these allies, that we released hundreds of
+- [31:37.031] millions of barrels out of all these
+- [31:39.085] petroleum reserves so that we could put
+- [31:41.410] some downward pressure on prices.
+- [31:43.590] We're working on a number of things.
+- [31:44.610] In fact, a couple of things that I think
+- [31:46.380] will be announced in just the next 24 to 48 hours.
+- [31:49.110] I don't want to get ahead of the President
+- [31:50.887] on that, but we recognize this is an issue.
+- [31:53.370] We are fighting against it, and we promise
+- [31:55.850] that when this conflict draws to a close,
+- [31:58.435] when this operation draws to a close,
+- [32:00.149] we're going to see those energy prices
+- [32:01.935] come back down to reality, because
+- [32:03.855] that's what the President promised to do.
+- [32:06.700] He delivered an energy dominant agenda.
+- [32:09.235] It's made us much more secure
+- [32:10.698] in the face of these things.
+- [32:12.210] But yeah, we've got a rough road ahead
+- [32:14.230] of us for the next few weeks, but it's temporary.
+- [32:19.190] Next question.
+- [32:20.560] I'm rimming to Hernandez, News Channel 3 in Kalamazoo.
+- [32:23.670] The Gordy House Bridge is not too far from here.
+- [32:26.420] President Trump has made some
+- [32:27.847] comments about trade with Canada.
+- [32:29.890] For manufacturers here in Michigan,
+- [32:32.165] that bridge will be a lifeline
+- [32:34.166] to get products over the border.
+- [32:37.155] Do you think that the President has taken
+- [32:38.832] the right steps with Canada in regards to the bridge?
+- [32:41.230] And do you think that it should open on time?
+- [32:43.050] Well, the President's attitude to
+- [32:44.823] Canada is they are an important ally.
+- [32:47.120] They're an important trading partner,
+- [32:48.820] especially for folks in this region of our country.
+- [32:51.490] But Canada has taken advantage of the
+- [32:53.673] United States of America for far too long.
+- [32:56.510] And they've taken advantage of the United
+- [32:57.974] States in a couple of different ways.
+- [32:59.320] Number one, they have allowed us
+- [33:01.770] to subsidize their entire military,
+- [33:04.610] their entire security.
+- [33:06.380] Canada pays virtually nothing, at
+- [33:08.138] least until a couple of years ago,
+- [33:10.000] for their own security, which means we
+- [33:11.835] had to put the bill for that security.
+- [33:14.090] Is that fair to you and your kids that you
+- [33:16.134] have to pay for the military of a foreign country?
+- [33:19.070] No.
+- [33:19.950] So the President of the United States said
+- [33:21.620] to the Canadians, number one, you guys got
+- [33:23.291] to take your own security more seriously.
+- [33:25.630] You're always going to be an ally.
+- [33:27.260] But why don't you have a little
+- [33:28.255] bit more self-sufficiency?
+- [33:29.110] And I think that makes complete and total sense.
+- [33:31.670] The second thing the President said
+- [33:33.492] is, if we're going to be true friends,
+- [33:35.970] you have to treat our workers as fairly
+- [33:38.359] as we've treated Canadian workers for 40 years.
+- [33:41.610] Again, we have let so many people over
+- [33:43.977] the entire time that I've been alive take
+- [33:46.555] advantage of the United States of America.
+- [33:48.770] The President said, if you're going to
+- [33:50.563] apply a tariff to our goods, we're going
+- [33:52.451] to start applying a tariff to your goods too.
+- [33:55.260] It's basic fairness.
+- [33:56.810] And that's what we've done in our hope with Canada.
+- [33:59.035] And I think we'll get there eventually,
+- [34:00.734] is we're going to get to a point where
+- [34:02.391] Canada treats our workers fairly.
+- [34:04.490] We treat their workers family.
+- [34:05.831] And they're going to be a true ally and
+- [34:07.811] a true friend, not somebody who's taken
+- [34:09.840] advantage of us, which is what
+- [34:11.150] they've done for most of my life.
+- [34:12.990] Thank you.
+- [34:14.570] Next question.
+- [34:16.450] Will Jones from Local 4 with the ongoing
+- [34:18.820] war with Iran and the recent attack that
+- [34:21.540] you just mentioned on his
+- [34:22.553] synagogue not too far from here?
+- [34:24.110] What is being done to keep Americans safe here at home?
+- [34:27.630] Yeah, a very good question.
+- [34:28.811] I believe that Tulsa Gabbard and John
+- [34:30.406] Radcliffe are actually testifying before
+- [34:32.131] Congress right now to talk about some of these issues.
+- [34:36.050] So let me just say that it is an
+- [34:38.086] obsessive focus of the entire U.S.
+- [34:40.405] government to understand where the threats
+- [34:43.322] are, where people might attack innocent
+- [34:46.031] Americans and what we can do to
+- [34:47.851] address it, to get ahead of it.
+- [34:49.671] And if God forbid, something does happen
+- [34:51.431] to respond to it as quickly as possible.
+- [34:53.550] And there's a whole host of things that happen.
+- [34:55.265] Look, we're monitoring some classified
+- [34:58.203] stuff, some phone calls, things like that,
+- [35:01.815] so that we can try to figure out when
+- [35:03.627] foreign actors want to come into our
+- [35:05.490] country to commit acts of terrorism
+- [35:07.715] in the United States of America.
+- [35:10.210] We've got the FBI searching for people
+- [35:12.317] who have come in usually illegally to the
+- [35:14.740] United States of America who might
+- [35:16.589] wish the United States ill will.
+- [35:18.660] We're continuing to get illegal criminals
+- [35:20.685] out of our country because those are very
+- [35:23.110] often people who commit acts of violence
+- [35:25.331] against the United States of
+- [35:26.900] America against our people.
+- [35:28.550] So there's a lot that we're working on.
+- [35:30.795] You know, knock on wood.
+- [35:32.150] I think that we've had a very good track
+- [35:33.624] record with security under the Trump administration.
+- [35:35.630] We've got murder rates as low as they've ever been.
+- [35:38.190] But the only way to stay ahead of this
+- [35:39.710] stuff is to keep vigilant about it.
+- [35:41.490] The unfortunate reality is there
+- [35:43.100] are always bad people out there.
+- [35:45.490] Again, very many of them outside of
+- [35:47.235] our country who are trying to come in,
+- [35:49.330] they're always going to be there.
+- [35:51.090] What you need your government to do,
+- [35:52.362] what you should expect your government to
+- [35:53.811] do is to stay on top of it and
+- [35:55.366] keep you as safe as possible.
+- [35:56.910] That's what we try to do every single day.
+- [35:59.630] Thank you.
+- [36:06.880] Colin Jackson, Michigan Public Radio Network.
+- [36:09.580] We're seeing ICE expanding his presence in
+- [36:11.578] Southeast Michigan with development near
+- [36:13.930] the airport of Romulus and office spaces in Southfield.
+- [36:16.520] And I'm wondering what you would have
+- [36:18.375] to say to community members who may be
+- [36:20.630] concerned that this might lead to an
+- [36:22.185] increase in aggressive immigration tactics
+- [36:24.001] like we've seen in Minnesota or Chicago.
+- [36:26.640] Well, what I'd say is that we're...
+- [36:28.690] you know, ICE is a very simple job.
+- [36:30.920] And it's not just ICE.
+- [36:32.070] It's the entire federal government.
+- [36:33.810] Law enforcement agencies, the various,
+- [36:36.332] you know, three letter agencies that exist
+- [36:39.121] within the federal government.
+- [36:40.300] It's to make people safe.
+- [36:42.080] And ICE in particular is trying to get
+- [36:43.572] violent criminals out of the United States of America.
+- [36:45.870] People who have no legal right to be in
+- [36:47.739] the United States of America, the best
+- [36:49.561] thing they could do is just go home voluntarily.
+- [36:52.520] That would be the easiest thing.
+- [36:54.140] And I always find it a little bit weird
+- [36:56.308] when congressional Democrats or others
+- [36:58.421] say, how dare you and then the thing
+- [37:01.001] that they're so offended by is that we're
+- [37:03.941] getting illegal aliens, many of them
+- [37:05.614] with criminal records out of our country.
+- [37:07.900] How dare we, that's exactly what we should be doing.
+- [37:10.140] That's what we promised we would do when
+- [37:11.937] the American people elected Donald J.
+- [37:13.760] Trump president of the United States
+- [37:15.587] to protect the American people.
+- [37:17.420] You heard the last question or, you
+- [37:19.246] know, asking justifiably about
+- [37:20.897] how we're keeping people safe.
+- [37:22.040] One of the ways that we keep people safe
+- [37:24.030] is by making sure bad people are outside
+- [37:26.021] of our country rather than inside of our country.
+- [37:28.181] If they're inside of our country, inside
+- [37:29.898] of a jail cell, which is where they should be.
+- [37:38.780] You know, but on this issue of,
+- [37:40.497] you know, they're worried about...
+- [37:42.890] I forget how you phrased the question,
+- [37:44.068] you said they're worried about aggressive enforcement.
+- [37:46.760] We have had ICE and immigration
+- [37:49.212] enforcement operating in 50 states,
+- [37:52.440] in red states, in blue states, and
+- [37:54.511] very, very blue cities and very,
+- [37:56.461] very red cities without any incident.
+- [37:59.190] And the two exceptions, maybe
+- [38:00.821] three exceptions are where.
+- [38:03.040] Minneapolis, Chicago, and Los Angeles.
+- [38:06.645] Because in those three states, the
+- [38:08.827] local political leadership said,
+- [38:11.940] do not cooperate with getting violent
+- [38:13.747] criminals out of our state or out of our city.
+- [38:16.300] Now, I don't understand that.
+- [38:17.520] If I'm living in suburban Minneapolis,
+- [38:19.121] and I find out there's a sex offender
+- [38:20.681] illegally in living three blocks away from
+- [38:22.914] me, I wouldn't be calling the police and
+- [38:25.041] saying, get this person out of my country.
+- [38:27.370] But unfortunately...
+- [38:34.990] But unfortunately, you've had some
+- [38:36.509] governors and a couple of mayors who have
+- [38:38.341] said they're going to do everything
+- [38:40.380] possible to create civil strife by
+- [38:42.361] blocking immigration enforcement.
+- [38:44.200] What I would ask people in town to
+- [38:45.866] do, what I'd ask everybody in these
+- [38:47.680] communities to do, is just tell your local
+- [38:49.640] leadership that you want them to cooperate
+- [38:51.900] with getting bad people out of
+- [38:53.253] the United States of America.
+- [38:54.940] So long as we've got the cooperation,
+- [38:56.624] and so long as we're working as a team,
+- [38:58.600] the chaos that you see in
+- [38:59.695] Minneapolis, it's not going to happen.
+- [39:01.830] It only happens when you've got broken and
+- [39:04.417] dysfunctional political leadership that
+- [39:06.821] tries to stop us from doing our jobs.
+- [39:16.040] Thank you for taking questions, Mr.
+- [39:17.949] Vice President.
+- [39:18.940] Craig Mogger from the Detroit News newspaper here.
+- [39:21.840] There's a lot of concern and talk in
+- [39:23.773] Michigan right now ahead of this pivotal
+- [39:26.370] midterm election that the federal
+- [39:28.399] government might somehow intervene in the
+- [39:30.921] administration of the election here in this state.
+- [39:34.100] Do you have any promises that you would
+- [39:35.767] make that the federal government will not
+- [39:37.670] intervene in any way in this election?
+- [39:39.480] Or what would you tell people in
+- [39:40.787] Michigan who are concerned about that?
+- [39:42.980] What do you mean by the federal
+- [39:44.165] government intervening in the election?
+- [39:45.680] That's the first I've ever heard of it,
+- [39:47.240] but maybe I don't understand any question.
+- [39:48.960] I believe the President has talked about
+- [39:51.670] nationalizing elections in recent months himself.
+- [39:56.390] You know, it's stated.
+- [39:57.161] Well, if what you mean by intervening in
+- [39:59.235] the election is that we want everybody to
+- [40:01.535] have a voter ID before voting in this country, yes.
+- [40:04.041] We should be doing that.
+- [40:21.435] If by what you mean is, you know,
+- [40:23.557] Marco Rubio has like five jobs.
+- [40:26.200] Is the President going to send Marco Rubio
+- [40:28.196] to Michigan to be a ballot counter as a sixth title?
+- [40:30.990] I don't think so.
+- [40:32.130] I haven't talked to the President or Marco about it.
+- [40:34.271] But look, there's a lot of scare tactics,
+- [40:36.525] and there's a lot of scary
+- [40:37.947] language floating around there.
+- [40:39.890] You know, the President I've been working very hard.
+- [40:41.865] We actually got a good vote yesterday
+- [40:43.260] in the United States Senate on the Save
+- [40:44.731] America Act, which is a very simple piece
+- [40:46.743] of legislation that does a number of things.
+- [40:49.470] But one of the things it does is actually
+- [40:51.880] establish this very simple principle that
+- [40:54.291] if you're going to vote in a federal
+- [40:56.432] election, you ought to show identification
+- [40:59.355] before you do so.
+- [40:59.971] I think that's very much common sense.
+- [41:07.340] So no, we don't want to intervene in
+- [41:08.695] elections, but we certainly want
+- [41:09.859] to make elections safe and secure.
+- [41:11.900] Number one, because we want to make sure
+- [41:13.591] that the will of the voters is
+- [41:14.774] actually recognized and respected.
+- [41:17.600] But think about this.
+- [41:19.000] You know, we've got... I don't know how
+- [41:20.271] many people, a lot of people in this room.
+- [41:21.660] Let's say for every single person here
+- [41:24.098] in a legal alien shows up in
+- [41:25.948] votes in a Michigan election.
+- [41:27.750] That isn't just fraudulent, and that isn't
+- [41:30.711] just a legal, that steals your
+- [41:32.902] right to vote away from you.
+- [41:34.441] Because then your vote counts for less.
+- [41:37.045] If you believe, as I do, that the American
+- [41:39.953] people are sovereign in their own country,
+- [41:43.100] then you have to believe that
+- [41:44.299] their vote should be protected.
+- [41:45.970] And the only way to fully protect their
+- [41:48.120] vote is to prevent fraudsters from coming
+- [41:50.381] in voting in American elections.
+- [41:59.890] And we'll take just one more question.
+- [42:02.660] Hello, Mr. Vice President,
+- [42:03.738] Ben Silesh, Michigan advance.
+- [42:05.200] Joe Kent resigned from his post over
+- [42:06.911] his objection to the war in Iran.
+- [42:08.740] He was among those Republicans who was
+- [42:10.593] pretty dedicated to Trump's
+- [42:11.800] agenda and the magma movement.
+- [42:13.780] So how does his exit speak to the
+- [42:15.597] fracture of that coalition over the war?
+- [42:17.820] And what can you say to those who deeply
+- [42:19.636] believe in the President's agenda,
+- [42:21.280] but are really worried about the
+- [42:22.748] consequences of what the war in Iran holds?
+- [42:25.230] Well, look, I mean, the President has said this.
+- [42:27.201] I've said this.
+- [42:27.720] Nobody likes war, right?
+- [42:29.940] And I guarantee the President of the
+- [42:31.380] United States is not interested in getting
+- [42:33.455] us in the kind of long-term quagmas
+- [42:36.592] that we've seen in years past.
+- [42:39.360] I know the President.
+- [42:40.260] I know the way that he thinks
+- [42:41.420] about America's national security.
+- [42:43.025] That is not a risk with this President at all.
+- [42:45.680] What he has also said consistently for
+- [42:47.804] 10, 15 years, maybe even longer, is Iran
+- [42:50.041] cannot have a nuclear weapon.
+- [42:51.630] And he's willing to take action, diplomatic, ideally.
+- [42:55.080] But military action, if he has to, to
+- [42:56.560] make sure that that doesn't happen.
+- [42:58.000] That's all this is about.
+- [42:59.600] We don't want the Iranians to have a nuclear weapon.
+- [43:02.260] The President has been clear about this.
+- [43:03.961] And that's what led to the President's
+- [43:06.163] decision of what, about three weeks ago.
+- [43:09.000] Now, you asked about Joe Ken.
+- [43:10.061] Now, I know Joe Ken a little bit.
+- [43:11.480] I like Joe Ken.
+- [43:12.280] You heard the President of the United
+- [43:13.591] States say yesterday that he likes Joe Ken too.
+- [43:15.910] But it's one thing to have a disagreement of opinion.
+- [43:19.490] I know the President very well.
+- [43:21.040] He welcomes differences of opinion.
+- [43:22.800] He likes it when people express
+- [43:24.377] their views about what should happen.
+- [43:26.780] He listens to everybody.
+- [43:28.060] It's one of the great things I like about
+- [43:29.690] him is that whether you're the gardener at
+- [43:31.361] Mar-a-Lago or whether you're the Secretary
+- [43:33.518] of the State, the President cares about
+- [43:35.521] what you think about an issue.
+- [43:36.700] He recognizes that everybody has,
+- [43:38.259] has smarts and everybody has wisdom.
+- [43:40.580] That said, whatever your view is, when
+- [43:42.649] the President of the United States
+- [43:44.501] makes a decision, it's your job to help
+- [43:47.083] make that decision as effective
+- [43:49.176] and successful as possible.
+- [43:50.920] And so the President said this yesterday,
+- [43:53.230] if you are on the team and you can't help
+- [43:55.541] implement the decisions of his
+- [43:57.366] administration, he has the right to make
+- [43:59.801] those decisions, then it's a
+- [44:01.156] good thing for you to resign.
+- [44:02.920] And I think that's exactly right.
+- [44:04.640] It's fine to disagree.
+- [44:06.380] But what's the President makes a decision?
+- [44:08.360] It's up to everybody who serves in his
+- [44:10.574] administration to make it as successful as possible.
+- [44:13.590] That's how I do my job.
+- [44:14.900] And I think that's how everybody in the
+- [44:16.460] administration should do their job too.
+- [44:25.810] So let me just say this on, on a closing
+- [44:28.159] note here, you know, we're here in the
+- [44:30.515] great state of Michigan.
+- [44:31.370] I'll head back to DC this, this evening.
+- [44:34.115] But I just want to say that I know that
+- [44:36.462] you guys are the people who
+- [44:38.029] actually make this country run.
+- [44:40.770] You know, what a very formative moment
+- [44:42.776] for me, just for a lot of reasons,
+- [44:44.670] in part because all of our leaders weren't
+- [44:47.180] completely insane, was the COVID pandemic.
+- [44:50.230] And remember how they shut everything down.
+- [44:53.030] And I kept thinking to myself that
+- [44:54.672] I knew a lot of people who worked in manufacturing.
+- [44:57.750] I knew a lot of people who continue to go
+- [44:59.439] to work because they didn't have any other choice.
+- [45:02.190] And frankly, while the United States of
+- [45:04.663] America would do just fine with a few
+- [45:07.185] fewer people in a Wall Street on Microsoft
+- [45:09.907] Excel, America doesn't do fine at all.
+- [45:12.650] If our manufacturers and the people who
+- [45:14.480] build and make things don't show up for
+- [45:16.311] work and make sure that America
+- [45:18.297] has the stuff that it needs.
+- [45:21.510] So one of the ways that we think about our
+- [45:23.885] administration, one of the ways that we
+- [45:26.091] think about our goal is that we serve you.
+- [45:30.110] You fought for us for long enough.
+- [45:32.410] We have to fight for you.
+- [45:33.930] You've done your job for the United States
+- [45:35.684] of America and you're going to keep on doing it.
+- [45:37.851] It's time to have a government that works for you.
+- [45:40.590] I mentioned this earlier.
+- [45:41.650] My entire life, my entire life, the
+- [45:44.251] story of my hometown was another factory closed.
+- [45:48.110] Another place that provided good jobs to
+- [45:50.559] the moms and dads and my friends was going overseas.
+- [45:54.230] Another family that faced financial stress
+- [45:57.013] because mom or dad lost a job was getting
+- [45:59.755] divorced because of the financial
+- [46:02.201] pressures created by stupid policies
+- [46:04.970] coming out of Washington, D.C.
+- [46:07.150] And I just want you to know, I said this,
+- [46:09.497] the first time I ever spoke as the vice
+- [46:11.731] presidential nominee and I'll repeat it
+- [46:13.959] right now, I will never forget where I came from.
+- [46:17.450] Part of what we're trying to do, the
+- [46:18.890] biggest part of what we're trying to
+- [46:20.810] do is stop the bleeding and reverse it to
+- [46:24.404] where factories were closing down for my entire life.
+- [46:28.750] Now, factories are being built back up.
+- [46:32.090] Where engine manufacturers were shutting
+- [46:34.541] down shifts, now they're adding shifts.
+- [46:37.350] Where people are hiring instead of
+- [46:39.290] firing our great American workers.
+- [46:41.790] That is what we're trying to do in the
+- [46:44.293] Trump administration in 14 months in.
+- [46:46.950] I think that we've got a lot to be proud
+- [46:49.350] of and a lot to build on and a lot to keep working at.
+- [46:52.820] But I just want you to know, thank you.
+- [46:55.070] But I just want you to know that no matter
+- [46:57.959] what you see come out of Washington from
+- [47:00.910] the crazy radicals, no matter what
+- [47:03.299] the media reports on and tells you the
+- [47:05.971] president of the United States sends this
+- [47:07.758] message and the vice president of the
+- [47:09.371] United States agrees with it wholeheartedly.
+- [47:11.530] You are the beating heart of the
+- [47:13.413] United States of America and the Trump
+- [47:15.651] administration will never stop
+- [47:17.132] fighting for you every single day.
+- [47:18.930] God bless you all and thank you for having me.
+- [47:20.930] (applause)

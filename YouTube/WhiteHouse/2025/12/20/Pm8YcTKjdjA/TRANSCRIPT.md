@@ -1,0 +1,688 @@
+<!-- source: https://www.youtube.com/watch?v=Pm8YcTKjdjA -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: Pm8YcTKjdjA -->
+<!-- date_published: 2025-12-20T01:48:44+00:00 -->
+<!-- date_accessed: 2026-06-02T02:39:56.945880+00:00 -->
+
+# Transcript: Remarks on the Economy
+
+- [00:03.730] Announcer: Ladies and gentlemen, please welcome to the stage,
+- [00:06.410] Pastor Jacob Burks, Senior.
+- [00:09.890] (applause)
+- [00:18.850] Pastor Burks: Thank you. Good evening.
+- [00:21.640] What an honor to be here tonight to celebrate freedom,
+- [00:25.480] to celebrate the goodness of God
+- [00:27.420] and to pray for this event and for our great nation.
+- [00:31.240] Let's bow our heads and pray. Father God, in Jesus' name,
+- [00:35.730] we thank you for this night, Lord, this event.
+- [00:39.500] We thank you, Lord for our president,
+- [00:41.290] Donald J. Trump, his family, God.
+- [00:44.020] What they and for as relates to faith, family, freedom.
+- [00:47.960] And we just give you the glory for it
+- [00:49.520] all right now in Jesus' name.
+- [00:51.940] We also, God, obey your word, where you say it in 1 Timothy 2,
+- [00:56.850] that first of all, our prayers, our supplications,
+- [00:59.740] our giving of thanks be made for all men and for kings
+- [01:04.180] and for all that are in authority
+- [01:06.350] that we might live a quiet and peaceful life
+- [01:09.550] in all godliness and honesty,
+- [01:12.300] for this is good in the sight of God our Savior.
+- [01:15.630] Who would have all men to be saved
+- [01:17.510] and come to the knowledge of the truth.
+- [01:21.420] We also pray God for the family of our president.
+- [01:25.240] Amen, First Lady, Melania, amen, the entire family.
+- [01:29.130] We pray for those who serve around him,
+- [01:32.470] especially tonight, God,
+- [01:33.790] and wherever he goes for your protection
+- [01:36.400] to be around him in Jesus' name.
+- [01:38.630] We also prayed that you would surround him with men and women
+- [01:41.950] to give him a good and solid counsel
+- [01:45.270] every decision he's pondering to make.
+- [01:48.400] We thank you for that as well.
+- [01:50.410] We thank You, Lord, for the success
+- [01:52.080] You've blessed this nation with in securing our borders, Lord.
+- [01:55.940] Ending wars, standing fast and strong with national injury
+- [02:00.100] and being an advocate for peace around this whole world.
+- [02:03.950] We thank Your for President Trump.
+- [02:06.230] And also, Lord we thank
+- [02:07.430] You Lord for all the other areas of government,
+- [02:10.290] Lord maybe not the. President, but those who serve
+- [02:13.950] to the betterment of this great nation, Lord.
+- [02:16.510] We pray for our Senate,
+- [02:17.760] our Congress, our judiciary, God.
+- [02:20.230] We pray that you would give them wisdom, God,
+- [02:23.380] we pray for the president's secret service
+- [02:25.960] and all those that surround him and protect him,
+- [02:28.500] our military for the great work they do as well.
+- [02:31.750] And also, Lord, we thank you for having your hand of grace on him
+- [02:35.770] and in this country during this particular stage in history.
+- [02:39.920] And so God, we just give you the glory for it.
+- [02:42.230] And also, Father, keeping in mind
+- [02:43.890] that the midterms are coming up very quickly
+- [02:46.840] and the elections, amen,
+- [02:49.670] in this first district as well, we pray,
+- [02:51.810] God, that you raise up strong, godly men and women,
+- [02:55.000] God to take the banner to serve,
+- [02:57.080] to represent you as they serve the people in this great state,
+- [03:00.870] North Carolina, as well.
+- [03:02.730] God, for it all, we give you the praise, the thanks,
+- [03:05.240] and all the glory in the precious name of Jesus.
+- [03:08.740] Our Lord. Amen.
+- [03:10.940] (applause)
+- [03:14.030] Announcer: Ladies and gentlemen,
+- [03:15.440] please rise and welcome Campbell University
+- [03:18.410] student body president, Cutler Bryant,
+- [03:21.040] in reciting the Pledge of Allegiance.
+- [03:27.640] Cutler Bryant: Join me, remove your caps,
+- [03:29.150] and let's recite the pledge.
+- [03:31.230] I pledge allegiance to the flag of the United States of America
+- [03:36.240] and to the republic for which it stands,
+- [03:39.200] one nation under God, indivisible,
+- [03:42.700] with liberty and justice for all.
+- [03:50.740] Announcer: Ladies and gentlemen,
+- [03:52.080] please remain standing and welcome country
+- [03:54.900] music artist Nicholas Vernon
+- [03:57.380] in the singing of our national anthem.
+- [04:00.220] ♪ (singing of the National Anthem) ♪
+- [05:25.050] (applause)
+- [06:04.230] Announcer: Ladies and gentlemen, please welcome to the stage,
+- [06:07.080] local firefighter Jason Davis.
+- [06:11.130] ♪ (rock music playing) ♪
+- [06:40.050] Jason Davis: Good evening, North Carolina.
+- [06:41.870] It's great to be here in Rocky Mountain.
+- [06:44.630] Thank you, President Trump, for the opportunity to speak today.
+- [06:48.160] My name is Jason Davis.
+- [06:50.790] I have been a full-time firefighter
+- [06:52.350] for the past 17 years.
+- [06:55.390] I'm a full time firefighter in the fourth
+- [06:57.580] largest career fire department in North Carolina,
+- [07:01.570] like many firefighters across this country,
+- [07:05.340] I work a non-standard schedule
+- [07:07.300] that is built around long shifts.
+- [07:10.480] Overtime, and a constant readiness to respond
+- [07:14.640] when the public needs us the most.
+- [07:18.030] The elimination of federal income tax on overtime pay
+- [07:22.480] is not a handout to firefighters.
+- [07:25.620] It is a recognition of how our profession actually functions
+- [07:29.990] and how public safety is delivered.
+- [07:33.330] Firefighters routinely work well beyond 40 hours a week.
+- [07:37.930] Our standard work schedule is 56 hours.
+- [07:41.330] Like many other places, we work a 24-hour shift
+- [07:46.360] and overtime is not optional.
+- [07:49.820] It is driven by staffing shortages,
+- [07:52.370] vacancies, training requirements,
+- [07:55.440] and emergency call volume.
+- [07:57.480] When someone calls out sick, when a major accident occurs,
+- [08:02.780] or when hurricanes, winter storms,
+- [08:04.980] or civil emergencies hit.
+- [08:07.570] Firefighters stay to cover those shifts.
+- [08:10.920] We do not get to say no.
+- [08:14.090] Taxing overtime at the same base pay penalizes firefighters
+- [08:18.440] for doing exactly what the job requires.
+- [08:21.560] Sacrificing time with our families
+- [08:24.190] to keep our community safe.
+- [08:26.640] Eliminating taxes on overtime would immediately
+- [08:30.000] put more of our earned income back into our pockets
+- [08:34.640] without increasing the city's payroll costs.
+- [08:38.000] And creating administrative burdens.
+- [08:49.330] This policy has a real measurable impact.
+- [08:53.440] For firefighters, overtime pay often makes the difference
+- [08:56.660] between paying rent or falling behind.
+- [09:01.490] Covering childcare during extended shifts
+- [09:05.730] or absorbing rising costs for fuel,
+- [09:08.410] groceries, and housing.
+- [09:11.150] No tax on overtime means financially stable
+- [09:17.470] No tax on overtime means financial stability
+- [09:22.230] for the very people being asked to work more hours,
+- [09:26.120] take on greater risks,
+- [09:27.880] and respond faster with fewer resources.
+- [09:39.670] Fire departments across North Carolina are struggling to hire
+- [09:42.620] and keep experienced firefighters.
+- [09:45.250] Even when overtime is unavoidable,
+- [09:48.940] this initiative will allow firefighters
+- [09:51.590] to keep more of what they have earned,
+- [09:54.370] which makes the profession more sustainable.
+- [09:57.850] Retaining trained firefighters save cities money
+- [10:01.700] by reducing turnover,
+- [10:03.960] training costs, and burnout-related injuries.
+- [10:08.600] Most importantly, This policy strengthens public safety.
+- [10:13.800] Firefighters who are not financially stressed
+- [10:17.740] are more focused, healthier, and better prepared to serve.
+- [10:23.360] No tax on overtime does not reward laziness.
+- [10:27.490] It rewards availability, reliability,
+- [10:31.520] and a commitment to the mission.
+- [10:42.030] Firefighters are not asking for special treatment.
+- [10:45.050] We're asking for fair treatment
+- [10:46.890] that reflects the reality of our work.
+- [10:49.480] No tax on overtime recognizes
+- [10:51.980] that when firefighters stay late, work holidays,
+- [10:57.260] and miss family milestones,
+- [11:00.150] they are doing it for their communities,
+- [11:02.890] and they should not be taxed extra for answering that call.
+- [11:15.440] I wanna thank, again, President Trump
+- [11:17.990] for allowing me to be on this grand stage tonight.
+- [11:21.570] And I also want to thank President Trump
+- [11:23.630] for signing the Fallen Heroes Act
+- [11:26.900] and updating the National Defense Authorization Act.
+- [11:30.500] By doing this, you have honored our fallen heroes.
+- [11:35.160] God bless you all.
+- [11:37.530] (applause)
+- [12:08.710] Announcer: Ladies and gentlemen, please welcome to the stage,
+- [12:11.460] Marla Delane.
+- [12:14.660] ♪ (rock music playing) ♪
+- [12:43.240] Marla Delane: Good evening, Mr. President and Rocky Mount.
+- [12:46.060] My name is Marla and I'm a conservative Christian.
+- [12:49.370] So a little bit about myself.
+- [12:51.000] I'm wife of 25 years to a wonderful husband
+- [12:53.800] and a mother to four amazing children.
+- [12:56.310] Blessed is an understatement.
+- [12:58.510] I've had the privilege of working as a hairstylist
+- [13:01.140] for almost 27 years. And when someone is in my chair,
+- [13:05.440] we talk politics, we talk real life,
+- [13:08.150] we share stories and we share struggles.
+- [13:10.840] And I really enjoy being a part of my client's lives.
+- [13:14.530] Working hard for something we love is called passion.
+- [13:17.980] I have a passion for making Rocky Mount prettier,
+- [13:20.840] a passion from making the people prettier,
+- [13:24.090] and fortunately, I get paid to do that.
+- [13:28.130] Our city is full of hairstylists such as myself,
+- [13:31.200] restaurant workers, and blue collar workers
+- [13:34.390] that will greatly benefit from the no tax on tips
+- [13:37.100] and overtime policy being passed.
+- [13:39.810] Every dollar counts and every dollar helps.
+- [13:43.320] For a family size like my husband's and mine,
+- [13:46.320] this affords the opportunity for us
+- [13:48.360] not to struggle paying bills
+- [13:49.680] and allows us to enjoy entertainment
+- [13:51.690] that we've not been able to afford in the last four years.
+- [13:55.550] My city is home, a place that is very special to me.
+- [13:59.310] And as a lifelong resident,
+- [14:00.720] I want to see it thrive again as it once was.
+- [14:04.390] Thanks to President Trump,
+- [14:05.640] the American dream is alive once again in Rocky Mount.
+- [14:08.820] And North Carolina.
+- [14:10.700] No tax on tips and overtime will make Rocky Mount great again.
+- [14:19.760] So thank you Rocky Mount and thank you President Trump.
+- [14:24.910] (applause)
+- [14:30.225] ♪ (rock music playing) ♪
+- [14:53.090] Announcer: Ladies and gentlemen, please welcome to the stage,
+- [14:55.940] local entrepreneurs, Lori and Martin Aragona.
+- [15:01.480] ♪ (rock music playing) ♪
+- [15:34.530] Lori Aragona: Merry Christmas Rocky Mount.
+- [15:40.340] For 50-something years,
+- [15:42.430] I've managed to avoid public speaking.
+- [15:45.940] And now here I am, speaking in front of thousands of people
+- [15:50.720] before President Trump takes the stage.
+- [15:53.720] But what an honor this is. Martin, my husband,
+- [15:57.580] and I grew up in Onslaught County,
+- [15:59.780] home of Camp Lejeune. Yeah.
+- [16:06.250] We've been small business owners and builders since 1997.
+- [16:12.290] Nothing affects a construction company
+- [16:14.570] more than interest rates and inflation.
+- [16:17.830] President Trump had interest rates
+- [16:20.300] at 3 percent during his first term.
+- [16:24.860] They went up to 9 percent under President Biden.
+- [16:31.680] But President Trump is working hard
+- [16:34.890] to bring them back down again.
+- [16:41.220] And we all know that he will.
+- [16:44.900] In Anzo County, we have a lot of young first time home buyers,
+- [16:49.280] many of whom are young military families.
+- [16:52.440] The Biden interest rates completely priced them
+- [16:55.460] out of the market,
+- [16:56.900] taking away the American dream of owning a home.
+- [17:02.530] Martin Aragona: But let me mention the good news
+- [17:04.210] we received yesterday.
+- [17:06.150] The inflation rate is much lower than expected.
+- [17:09.790] Does anybody know what it came in at?
+- [17:14.340] 2.7 percent
+- [17:23.270] Under Biden, the inflation rate reached 9.1 percent.
+- [17:30.060] But that's more than three times the 2.7 rate.
+- [17:35.450] What a difference 10 months makes.
+- [17:41.510] And what a difference a new president makes.
+- [17:50.330] Here's how inflation affects the cost of a home.
+- [17:54.010] Under President Trump's first term,
+- [17:56.960] a piece of OSB plywood was $8 a board.
+- [18:01.820] Do you know how much it rose to under President Biden?
+- [18:06.060] $60 a board!
+- [18:10.380] That increase cost, on average,
+- [18:14.880] $15,000 more for a home, just on the plywood alone.
+- [18:20.450] This affects affordability
+- [18:22.400] and puts the American dream further out of reach.
+- [18:27.490] Lori Aragona: In closing, we would also like to thank
+- [18:30.410] President Trump for his tariff policies.
+- [18:33.690] As builders, we want to build American homes.
+- [18:37.380] We want to use American-made products,
+- [18:40.320] and we want buy American lumber.
+- [18:43.380] Thank you so much for this opportunity to speak to you.
+- [18:47.480] We look forward to a great and prosperous 2026
+- [18:52.130] with lower inflation and lower interest rates.
+- [18:56.070] God bless America and God bless President Trump.
+- [19:01.360] (applause)
+- [19:07.020] ♪ (rock music playing) ♪
+- [19:40.230] Announcer: Ladies and gentlemen, please welcome to the stage,
+- [19:43.030] President of the North Carolina State Senate,
+- [19:46.040] State Senator Phil Berger.
+- [19:48.540] ♪ (rock music playing) ♪
+- [20:13.570] PHil Berger: Wow.
+- [20:14.810] Hello Rocky Mount! I'm Phil Berger.
+- [20:20.710] I'm the Republican Senate leader right here in North Carolina.
+- [20:24.640] Isn't it great to have President Trump back?
+- [20:29.510] Oh, we can do better than that! Isn't it great to have him back?
+- [20:36.620] You know, President Trump is working overtime
+- [20:38.740] to deliver for the hardworking Americans
+- [20:41.180] who suffered under Biden inflation
+- [20:44.010] and the other failed far left policies.
+- [20:47.890] You know 11 months ago,
+- [20:49.220] President Trump returned to the Oval Office
+- [20:51.810] and immediately started cleaning up the messes
+- [20:55.560] that Joe Biden had created.
+- [21:01.540] First, he closed the southern border, cleaning up a mess.
+- [21:10.490] And when mayors and governors and some sheriffs,
+- [21:13.770] you know which ones,
+- [21:15.020] refuse to hold criminal illegal aliens
+- [21:17.690] accountable for the chaos and crime they commit,
+- [21:21.350] President Trump showed true leadership
+- [21:24.210] by cleaning up streets in many of America's cities.
+- [21:33.720] You know, and he also deserves recognition
+- [21:36.180] for helping us right here in North Carolina
+- [21:38.520] with the illegal immigration crisis.
+- [21:44.920] And now, President Trump is taking the right steps
+- [21:48.430] to supercharge the economy
+- [21:50.650] to overcome Biden inflation that's made everyday Americans'
+- [21:55.300] lives more expensive and more difficult.
+- [22:00.330] Y'all remember those day one executive orders?
+- [22:04.550] Oh, you remember them?
+- [22:07.390] We've implemented here in North Carolina,
+- [22:09.590] many of them at the state level.
+- [22:12.230] Including defining the two sexes, male and female.
+- [22:26.080] In North Carolina state law,
+- [22:29.280] defining them based on biology, not ideology.
+- [22:38.970] Now, get this, just to understand
+- [22:42.380] how far off the Democrats are,
+- [22:44.050] North Carolina Democrats in the state Senate
+- [22:47.230] were so afraid of reality, so afraid biology,
+- [22:51.960] so afraid of common sense,
+- [22:54.430] and so afraid of defining the two sexes
+- [22:57.930] that they actually offered to pay a fine
+- [23:00.490] rather than take a vote.
+- [23:03.700] There you go, bigger boo than that.
+- [23:08.050] And you know who's not afraid to define the two sexes?
+- [23:11.850] Donald Trump.
+- [23:19.060] North Carolina Republicans also passed major energy
+- [23:22.500] reform that followed President Trump's
+- [23:26.440] drill-baby-drill energy goals and drill-
+- [23:32.570] baby-drilled and provided an avenue
+- [23:35.670] to kick-start nuclear energy production in the United States.
+- [23:45.980] Just like President Trump, Republicans in North Carolina,
+- [23:50.350] Republicans in the North Carolina legislature,
+- [23:53.160] are fighting for you and fighting for your families.
+- [23:57.050] Again, I'm Phil Berger. Thank you for being here.
+- [23:59.940] Thank you.
+- [24:01.150] Thank you, for supporting a return of American greatness.
+- [24:05.370] God bless you. God bless North Carolina.
+- [24:07.610] God bless America. And God bless President Trump.
+- [24:10.940] (applause)
+- [24:13.540] ♪ (rock music playing) ♪
+- [24:40.090] Announcer: Ladies and gentlemen, please welcome to the stage,
+- [24:42.830] former chairman of the RNC, Michael Watley.
+- [24:47.480] ♪ (country music playing) ♪
+- [25:24.080] Michael Watley: God bless North Carolina!
+- [25:29.450] And is it appropriate to say Merry Christmas?
+- [25:33.730] I think it is. I think it is, you know,
+- [25:39.360] it is so good to have President Trump
+- [25:42.960] back here in North Carolina, the only battleground state
+- [25:48.020] that he carried in 2016 and 2020 and 2024.
+- [26:03.900] I was talking with the president not too long ago,
+- [26:06.230] I said, you know, 10 years ago, almost to the day,
+- [26:11.520] I got a call from Trump Tower
+- [26:13.760] asking me to run North Carolina for his campaign.
+- [26:18.460] And I remember the reaction
+- [26:19.850] that I got from everybody in my family
+- [26:23.070] and everybody in my workplace and my employees and my staff
+- [26:27.370] and everybody else when they said,
+- [26:29.270] You're to do what?
+- [26:32.050] You know, you remember at the time
+- [26:34.310] Donald Trump was 15th out of 15 in the Republican primary
+- [26:39.130] and he had 1 percent in the polls.
+- [26:41.620] And you know why I said yes?
+- [26:43.960] Because that man came down the escalator
+- [26:47.000] and said he was going to make America great.
+- [26:53.170] And it wasn't just a platform.
+- [26:56.310] It wasn't a platitude or a campaign speech.
+- [27:00.170] It was a plan. He's going to rebuild our economy.
+- [27:03.890] He's going to restore our borders.
+- [27:06.090] He makes sure that America is respected again.
+- [27:09.550] And when we shocked the world and beat Hillary Clinton
+- [27:12.600] in 2016, that's exactly what he did.
+- [27:20.720] And I never imagined that that call would lead me
+- [27:24.160] to getting another call to be the chair
+- [27:26.170] of the North Carolina Republican Party
+- [27:28.990] in the 2020 election cycle.
+- [27:31.160] And another call where he asked me to be RNC chair
+- [27:34.880] and help run his campaign last year.
+- [27:37.470] And what a campaign he ran last year!
+- [27:43.740] And right now, what we are all living through,
+- [27:47.550] and we're all witness to,
+- [27:49.290] is the most transformational national presidential term
+- [27:54.920] in our lifetime.
+- [27:56.670] Because Donald Trump has gone right back to the basics.
+- [28:00.830] He is rebuilding our economy right now.
+- [28:05.110] He has restored our borders.
+- [28:08.300] Six months in a row, not one single illegal alien
+- [28:12.220] has been caught and released into the United States.
+- [28:19.550] And America is absolutely respected again
+- [28:24.040] around the world.
+- [28:29.470] Now, I was not expecting you to get a call a few weeks ago,
+- [28:32.520] but I did.
+- [28:34.180] When the president called, he said, you know, Michael,
+- [28:36.040] Tom Tillis is not going to be running for reelect.
+- [28:39.530] So here's the deal.
+- [28:41.850] You're going to run and you're going win
+- [28:44.410] and you are going to do great. So congratulations.
+- [28:52.110] And I called my wife and I told her about that call.
+- [28:55.400] She said, you need to stop taking this guy's calls.
+- [28:59.600] But I am so excited to be running for Senate
+- [29:03.080] here in North Carolina
+- [29:04.690] because you need a conservative champion
+- [29:07.190] and Donald Trump needs an ally in the Senate.
+- [29:16.950] Now I've got a lot of friends in this room
+- [29:19.930] and I got some folks I haven't met yet.
+- [29:22.120] So let me tell you about me.
+- [29:24.250] I grew up in Blowing Rock, North Carolina,
+- [29:27.030] a tiny little town on the Blue Ridge Parkway, 534 people.
+- [29:32.230] I'm a son of the middle class.
+- [29:33.650] My dad was an accountant, my mom was the town librarian.
+- [29:37.830] I went to church, I played sports, and I worked.
+- [29:42.750] I had a paper route, I mowed lawns.
+- [29:45.400] I got my first full-time job when I was 14.
+- [29:48.440] I paid my way through college,
+- [29:50.090] I paid way through graduate school,
+- [29:51.990] I paid by way through law school.
+- [29:54.320] North Carolina gave me, North Carolina and America
+- [29:59.840] gave me an opportunity to live the American dream,
+- [30:03.690] to be a son of the middle class,
+- [30:05.680] to be able to have a career, to be be able marry the woman
+- [30:08.810] that I love and raise a family with three amazing kids.
+- [30:17.980] And it also gave me the opportunity to work
+- [30:20.890] with the greatest president of our lifetime,
+- [30:24.440] Donald J. Trump.
+- [30:30.450] No, I'm running for Senate because I want to fight.
+- [30:33.970] I want fight every single day for you.
+- [30:36.580] I want a fight for every family
+- [30:38.100] and for every community in this state.
+- [30:40.760] We need economic policies that are going to create jobs,
+- [30:44.490] raise wages, lower prices.
+- [30:47.600] We need to keep our kids and our communities safe.
+- [30:52.080] And we need to make sure that our men and women
+- [30:54.560] in uniform have what they need to protect our interests
+- [30:58.120] at home, overseas, and the interests of our allies.
+- [31:07.480] Now we have an opponent in this race,
+- [31:10.130] former Governor Roy Cooper.
+- [31:17.910] Now Roy Cooper has been the governor of this great state.
+- [31:21.850] He's been elected for 38 years.
+- [31:26.750] This is a man who over the course of his career
+- [31:29.720] has fought harder for criminals than he did victims.
+- [31:34.770] People remember back in 2020,
+- [31:37.780] the violent riots with Antifa and BLM
+- [31:40.620] burning down our cities and Roy Cooper
+- [31:43.620] out there marching with the protesters.
+- [31:46.460] Y'all remember that picture?
+- [31:49.250] Yeah, you're going to see it a lot over the next year,
+- [31:51.000] let me tell you that.
+- [31:53.140] But people don't necessarily remember
+- [31:54.810] that he went at that time and signed an executive order
+- [31:57.850] to reimagine law enforcement in North Carolina.
+- [32:01.350] We don't need to reimage law enforcement.
+- [32:03.480] We need to back the blue and we need to enforce the law.
+- [32:14.110] Roy Cooper created cashless bail in North Carolina.
+- [32:18.470] He created pretrial release. He created a revolving door
+- [32:22.460] that put criminals on the street again and again and again.
+- [32:27.210] Everybody remembers Irina Zyrotska,
+- [32:29.970] beautiful young lady, escapes Ukraine and moves to Charlotte.
+- [32:33.710] She's working at a pizzeria, gets off at 11.30,
+- [32:37.510] gets on the wrong light rail car, sits in the wrong seat.
+- [32:41.830] And to Carlos Brown Jr. Slit her throat.
+- [32:45.850] If you haven't seen that video, do not go watch it.
+- [32:48.210] It's horrific.
+- [32:49.610] DeCarlos Brown should have never been on that light rail car.
+- [32:53.650] He should have been on the streets.
+- [32:55.080] He had been arrested and released 14 different times
+- [32:58.630] and was out without bail. We do not need Roy Cooper's soft
+- [33:03.920] on crime policies in North Carolina.
+- [33:08.520] Roy Cooper, who vetoed legislation
+- [33:12.470] that would tell sheriffs that they have to honor ICE detainers
+- [33:15.070] and move violent criminal illegal aliens
+- [33:17.520] out of North Carolina.
+- [33:20.240] Roy Cooper who veto legislation
+- [33:24.410] to keep boys out of girls' sports
+- [33:26.190] and men out of women's locker rooms
+- [33:27.870] and woke out of our schools.
+- [33:31.620] Roy Cooper, who will fight harder for criminals.
+- [33:35.170] He will fight hard for illegal aliens
+- [33:37.190] and men who want to play in women's sports
+- [33:40.150] than he will for the people of North Carolina.
+- [33:43.320] We can do better.
+- [33:52.540] Now, I got to tell you, when we talk about Donald Trump,
+- [33:55.620] and we talk about the economy,
+- [33:58.000] let's take a look at what he ran on.
+- [34:01.010] He ran on a policy that is going to help our farmers,
+- [34:05.860] going to help our manufacturers, going help our small businesses.
+- [34:09.470] He's going to create jobs. He's going to raise wages.
+- [34:12.290] He's got to have tax policies and trade policies
+- [34:15.160] and regulatory policies that are going to our farmers.
+- [34:19.040] Like our tobacco farmers here.
+- [34:20.840] In Rocky Mount in eastern North Carolina.
+- [34:28.090] And we're seeing that positive impact already.
+- [34:30.990] 700,000 jobs have been created in the private sector
+- [34:34.920] since Donald Trump was first put into office,
+- [34:38.370] sworn in on the 20th.
+- [34:42.290] Wages are up, real wages are up 4.5 percent over year over year.
+- [34:48.770] And we are seeing inflation already coming down.
+- [34:51.750] 9 percent in 2022 and 2023, 30 percent
+- [34:55.850] while Joe Biden was president.
+- [34:57.960] It cost twice as much to buy a house in 2024
+- [35:00.890] as it did in 2020 for the same exact house.
+- [35:04.030] Donald Trump is fighting every day for you.
+- [35:06.630] That's why he's here tonight.
+- [35:08.570] And we need to make sure that we are going to welcome him here.
+- [35:12.040] With open arms.
+- [35:13.250] Are we going to be able to do that?
+- [35:23.450] So we have an opportunity in America.
+- [35:26.610] We have an opportunities in America because of you.
+- [35:29.970] Because you stood up
+- [35:31.370] and delivered for Donald Trump in 2016.
+- [35:34.690] Because you, stood up, and supported him,
+- [35:37.280] and delivered North Carolina for him in 2020.
+- [35:41.260] You delivered for him, in that historic win,
+- [35:44.140] last year, in 2024.
+- [35:47.220] And now we need you one more time.
+- [35:50.080] Because if the Democrats win the House,
+- [35:53.160] If the Democrats win the Senate, we are going to go right back
+- [35:57.440] to investigations and hoaxes and impeachments.
+- [36:01.920] You see, the Senate race is ultimately about a vote.
+- [36:07.500] It's about a votes in the Senate.
+- [36:10.000] It's a vote that Roy Cooper would cast every single time
+- [36:13.860] with Chuck Schumer, with Bernie Sanders.
+- [36:23.020] With a woke mob that he is a card-carrying member of.
+- [36:28.270] I'm going to cast a vote for the America First agenda.
+- [36:31.750] I'm going to cast a boat for you.
+- [36:33.800] I'm a going to cast vote for North Carolina.
+- [36:38.470] I am running for Senate because I believe
+- [36:41.050] that you need a conservative champion
+- [36:43.540] and Donald Trump needs an ally in Washington
+- [36:46.520] and I cannot do it without you and I need your support.
+- [36:51.740] Thank you very much. Thank you.
+- [36:59.840] So let me start where we finished.
+- [37:02.570] It is absolutely fantastic
+- [37:04.370] to have the President of the United States,
+- [37:07.330] not just the 45th, the 47th President of the United States
+- [37:12.240] right back here in Rocky Mountain.
+- [37:17.870] And I really hope that all of you
+- [37:20.920] and all of North Carolina have a very Merry Christmas.
+- [37:24.900] Thank you, North Carolina.
+- [37:26.470] (applause)
+- [37:30.700] ♪ (country music playing) ♪
+- [39:01.430] Announcer: Ladies and gentlemen, please welcome to the stage,
+- [39:04.590] United States Secretary of Department of Labor,
+- [39:07.490] Lori Chavez DeRemer.
+- [39:10.780] ♪ (country music playing) ♪
+- [39:34.420] Lori Chavez DeRemer: Good evening.
+- [39:37.500] What a great speech.
+- [39:38.740] You've heard so many great speeches tonight
+- [39:40.980] and I couldn't be more honored to be here
+- [39:43.940] right before the president here in Rocky Mount.
+- [39:50.870] And thank you, Michael. You did an outstanding job
+- [39:54.660] leading our party to victory last November.
+- [39:57.670] And I'm confident you will make North Carolina proud
+- [40:01.060] as the next Senator.
+- [40:08.510] You know, as we close out the first year
+- [40:10.680] of fighting to put American workers first,
+- [40:13.950] it's fitting that we're here in the heart
+- [40:15.890] of America's advanced manufacturing revival.
+- [40:20.350] President Trump has been laser focused on building
+- [40:24.060] the golden age of the American industry.
+- [40:27.620] For too long, Washington politicians
+- [40:30.430] let critical sectors of our economy,
+- [40:33.030] the building blocks of our great nation,
+- [40:36.540] Get ripped apart by cheap foreign labor,
+- [40:40.920] but not anymore,
+- [40:42.730] not under the president of the American worker.
+- [40:48.650] As your secretary of labor, I'm working with President Trump
+- [40:52.180] to make sure American jobs Go to American Workers First.
+- [41:02.400] And we've already made significant progress in 2025.
+- [41:07.380] In a complete reversal from Biden,
+- [41:09.500] when job growth was padded
+- [41:10.940] by foreign and federal government workers,
+- [41:14.150] all net growth under President Trump
+- [41:17.780] has been in the private sector
+- [41:19.720] and they've gone to American-born workers.
+- [41:26.910] Hard-working men and women across this country
+- [41:29.310] can rest assured knowing we have a strong America first leader
+- [41:33.280] in the White House who has their backs
+- [41:37.180] That's why I'm confident
+- [41:38.670] when I say thanks to President Trump
+- [41:41.490] and the common-sense policies of this administration
+- [41:44.760] The Golden Age of America is on the horizon
+- [41:54.160] Under Biden, workers lost nearly $3,000
+- [41:57.810] in purchasing power as inflation rose faster than wages.
+- [42:03.180] But under Trump, inflation just hit its lowest 2.7 percent
+- [42:07.910] since the spring of 2021
+- [42:10.800] and real wages have increased by over $1,000 dollars
+- [42:16.880] in his first full year back in office.
+- [42:20.270] That's a $4,000 delta the president had to make up
+- [42:23.710] for the nonsense of the Biden administration.
+- [42:26.240] And as a mom of twin girls and a new grandmother,
+- [42:31.450] I know just how important those dollars are
+- [42:35.050] to the working families of this country.
+- [42:39.060] Trump's deregulatory efforts are saving $2,100
+- [42:42.720] for a family of four.
+- [42:44.830] And under my direction, at the Labor Department,
+- [42:48.030] We have risked. Rescinded the discriminatory
+- [42:50.820] DEI requirements that will lower compliance costs.
+- [42:59.450] That will lower compliance costs of up to $1 billion a year.
+- [43:04.190] That is what we are saving American employers
+- [43:06.900] in this country.
+- [43:08.630] And let's not forget the largest tax cut in American history,
+- [43:12.990] with no tax on tips, overtime, or Social Security.
+- [43:16.760] I served in Congress, and I can tell you this,
+- [43:19.850] that was the biggest piece of legislation
+- [43:21.840] that my colleagues would ever vote on,
+- [43:23.790] probably, in history,
+- [43:25.060] and it's for the American people.
+- [43:33.010] Thanks to the Working Family Tax
+- [43:35.070] Cut, a family of four in North Carolina
+- [43:38.020] will see about seven to $10,000 back in their pockets
+- [43:41.970] and more in their take-home pay. You get to keep the money
+- [43:45.680] that you've earned and that you deserve,
+- [43:47.700] not give it to the federal government.
+- [43:53.690] We just heard from Jason and Marla
+- [43:55.740] about how much this will mean to them
+- [43:57.330] and thank you for sharing your stories.
+- [43:59.800] And I also want to give a shout out to Jason
+- [44:01.310] who spoke on behalf
+- [44:02.540] of the International Firefighters Association.
+- [44:05.220] The men and women and our law enforcement
+- [44:07.220] and all of our detail are here.
+- [44:08.570] Give them a round of applause and for our veterans
+- [44:11.020] because they protect this country.
+- [44:18.660] We are finally reversing Biden's cost of living disaster
+- [44:22.300] that have hurt so many working families.
+- [44:25.110] We are going to create more mortgage paying jobs.
+- [44:29.400] President Trump is focused on making America
+- [44:32.300] dominant in the manufacturing space again
+- [44:35.540] to help our communities thrive.
+- [44:39.380] I have worked under this president for the last year
+- [44:41.870] as the labor secretary with all the secretaries.
+- [44:45.460] He is a master negotiator. I can tell you that.
+- [44:48.990] You see him in the Oval Office.
+- [44:50.470] He's the most transparent president we've ever had.
+- [44:53.040] And every cabinet meeting
+- [44:54.340] is on TV for the American people to see.
+- [45:01.070] We're putting American interests
+- [45:02.580] first on the striking the new trade deals to restore the US
+- [45:06.240] as the world's manufacturing superpower.
+- [45:09.830] More than $18 trillion in investments
+- [45:12.150] will bring hundreds of thousands of new jobs
+- [45:14.840] to this country made and America is back.
+- [45:18.910] US exports are up and our trade deficit shrank
+- [45:23.300] by more than 35 percent over this last year.
+- [45:27.200] This administration is finally leveling the playing field
+- [45:30.450] for the American workers, manufacturers, creating
+- [45:33.160] an economy that works for you, not against you.
+- [45:37.160] It is time for the federal government to be your ally,
+- [45:39.980] not your adversary.
+- [45:46.830] As we look ahead to 2026, the Labor Department will keep
+- [45:50.040] President Trump's promise to put American workers first.
+- [45:53.620] We are investing in skilled training
+- [45:55.190] and educational pathways
+- [45:57.010] to help American workers get a foot in the door
+- [45:59.650] without needing a costly four-year degree.
+- [46:03.000] You know that the future of this country won't be forged
+- [46:06.250] in the halls of these woke universities.
+- [46:08.600] It will be built by the hands of our skilled workers.
+- [46:15.590] That's why President Trump set a goal for me
+- [46:18.350] through an executive order.
+- [46:20.110] One million active apprentices across this country
+- [46:23.580] and since January,
+- [46:25.030] we have registered more than 300,000 new apprentices
+- [46:28.680] and over 2,300 new apprenticeship programs.
+- [46:35.250] I'm also working closely with Secretary McMahon
+- [46:37.920] to dismantle the federal bureaucracy
+- [46:40.180] that has failed our students at every single turn.
+- [46:44.150] Do you know that nearly 70 percent of fourth
+- [46:46.510] and eighth graders aren't proficient in reading?
+- [46:49.530] The current top-down structure is no longer working
+- [46:52.340] and we're returning the power back to where it belongs.
+- [46:55.670] We're going to empower parents
+- [46:57.590] and we going to empower the states to educate their kids
+- [47:00.160] so that they can go out and get the job that they want.
+- [47:07.690] By creating a streamlined federal education
+- [47:10.000] and workforce system,
+- [47:11.470] we are bridging the gap between post-secondary education
+- [47:15.080] and the labor market to address the shortages
+- [47:17.890] and fill those mortgage-paying jobs.
+- [47:21.220] As I wrap up here,
+- [47:22.810] I want to first wish you all a Merry Christmas
+- [47:26.020] and a Happy New Year with your families.
+- [47:32.260] It's truly an honor to fight for you
+- [47:35.500] and defend your shot at the American dream.
+- [47:38.840] No matter your background or industry,
+- [47:41.380] President Trump's Department of Labor has your back.
+- [47:45.120] I think and think about you all on this issue.
+- [47:48.940] He is, without a doubt,
+- [47:51.570] the greatest president in my lifetime,
+- [47:54.260] and I know that he's the greatest president
+- [47:56.490] in your lifetime.
+- [48:03.900] The American worker has no greater friend
+- [48:05.930] or ally than President Donald J. Trump.
+- [48:09.110] And as we head into 2026, I promise you this,
+- [48:12.990] we're going to keep up the momentum.
+- [48:14.960] We're going to make your lives affordable again.
+- [48:17.260] We will double down on the efforts
+- [48:19.400] to put American workers first
+- [48:21.330] and build the golden age of economic prosperity.
+- [48:25.370] Thank you all for welcoming me to your homes
+- [48:28.110] and I wish you again, Merry Christmas, Happy New Year.
+- [48:32.350] It's an honor to serve in this administration.
+- [48:36.230] ♪ (country music playing) ♪

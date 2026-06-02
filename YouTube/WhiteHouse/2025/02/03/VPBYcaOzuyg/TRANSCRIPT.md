@@ -1,0 +1,390 @@
+<!-- source: https://www.youtube.com/watch?v=VPBYcaOzuyg -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: VPBYcaOzuyg -->
+<!-- date_published: 2025-02-03T21:21:30+00:00 -->
+<!-- date_accessed: 2026-06-02T02:54:14.490369+00:00 -->
+
+# Transcript: President Trump Hosts the 2024 Stanley Cup Champions the Florida Panthers
+
+- [00:00.070] [Music]
+- [00:26.920] well thank you very much please sit down
+- [00:29.320] we'll enjoy this this we're going to be
+- [00:30.560] here for a little while with great
+- [00:32.800] Champions today we're thrilled to
+- [00:34.840] welcome the and and this is really some
+- [00:38.280] special because I watch those games and
+- [00:40.920] I was a little bit worried after I
+- [00:43.399] watched the three up while this is over
+- [00:45.120] because Vinnie's a friend of mine and
+- [00:47.440] then they lost three and I said oh this
+- [00:49.320] is going to be a tough loss that would
+- [00:50.719] not I don't know that would have been
+- [00:52.640] bad but you that's a real champions can
+- [00:54.800] pull it out but the 2024 Stanley Cup
+- [00:57.760] champions the Florida Panthers and it
+- [01:00.399] was a tremendous championship and
+- [01:02.760] watched by all and uh the entire team
+- [01:06.760] congratulations on your first ever
+- [01:08.640] Stanley Cup win and you had a a couple
+- [01:11.320] of really close calls and I watched the
+- [01:14.280] team get better and better and better
+- [01:16.000] and then they won in particular I want
+- [01:18.840] to congratulate your team owner Vinnie
+- [01:22.040] Biola my friend
+- [01:30.799] his sons John Michael and Michael Thomas
+- [01:34.320] where are your sons where
+- [01:41.680] are where are
+- [01:47.360] they nice
+- [01:51.079] job and head coach Paul Maurice really
+- [01:54.759] fantastic
+- [02:07.159] that's a nice ring that's a good coach
+- [02:10.000] too general manager Bill Zito
+- [02:18.560] Bill and president and CEO Matthew
+- [02:28.120] Caldwell we also pleas pleas to be
+- [02:30.319] joined by NHL commissioner Gary bman
+- [02:33.319] where's Gary Gary come here
+- [02:39.400] Gary done a great job I knew him a long
+- [02:42.200] while right when he was in another
+- [02:44.120] league but uh this has been incredible
+- [02:47.480] the job you've done thank you very much
+- [02:49.519] Senators Rick Scott and Ashley
+- [02:52.959] Moody Rick Rick Ashley congratulations
+- [02:56.280] to
+- [02:57.560] Ashley and representatives
+- [03:00.400] Byron Donalds Byron thank you very
+- [03:04.080] much Gus bakis thank you very much guys
+- [03:09.159] Michael heropoulos
+- [03:11.599] Michael good job Michael Anna Paulina
+- [03:17.000] Luna hi s how are you congratulations
+- [03:20.400] Jared
+- [03:21.840] moscowitz Jared very good and Maria
+- [03:26.280] Salazar thank you Maria thank you very
+- [03:28.799] much we have a couple of others I'm
+- [03:30.959] going to get myself in big trouble
+- [03:32.720] because I don't know where you are I
+- [03:33.879] know you're here someplace but we got to
+- [03:36.280] get on to ice hockey the Panthers
+- [03:40.599] 2023 and 2024 season was one for the
+- [03:44.720] history books it was really an exciting
+- [03:46.680] one I everybody was watching it you
+- [03:49.439] secured the Atlantic division title for
+- [03:51.560] the third time and after coming up just
+- [03:54.040] short of the Stanley Cup the year prior
+- [03:56.920] you gave the fans one of the most
+- [03:59.120] riveting comeb backs in NHL history in
+- [04:01.439] any sport history I don't know anything
+- [04:03.840] about a comeback but they tell me it's
+- [04:05.840] very
+- [04:06.799] exciting I never viewed mine as a
+- [04:09.200] comeback I never said I this was not a
+- [04:16.079] comeback team captain Alexander Sasha
+- [04:20.560] barov was crowned the League's best
+- [04:22.759] defensive forward after winning his
+- [04:25.000] second suy Trophy and that was a great
+- [04:28.040] honor it's a big deal to do that where
+- [04:29.759] where is
+- [04:36.280] he so we lost him and when facing off
+- [04:40.400] against your cross State rivals the
+- [04:42.840] Tampa Bay Lightning Matthew kachuck
+- [04:46.560] Firepower was unmatched contributing two
+- [04:48.919] goals and two assists and he led the way
+- [04:51.479] to a glorious 9-2 Victory 9-2 Victory
+- [04:55.000] 9-2 victory in one
+- [04:56.800] game how many times have people done
+- [04:59.120] that that was
+- [05:00.720] how the hell did they take you 9-2
+- [05:02.440] Victory and then you you go to seven
+- [05:04.800] games how did that happen you were
+- [05:07.039] surprised
+- [05:08.039] too setting a franchise record with the
+- [05:10.800] Panthers 11th consecutive win in the
+- [05:13.320] road and then Anton lell also had a
+- [05:16.919] memorable season racking up 35 points W
+- [05:20.639] with 13 goals and 22 assists he won 55%
+- [05:24.560] of his faceoffs setting an alltime
+- [05:27.160] career high while just 22 years old
+- [05:30.560] and congratulations to Anton where is
+- [05:38.680] he a good looking young
+- [05:41.360] guy that's great
+- [05:43.880] and don't worry you'll get beat up in
+- [05:46.160] life a little
+- [05:48.160] bit your team's many successes were the
+- [05:51.280] result of incredible performances across
+- [05:53.520] the board and I'm sure you agree that
+- [05:55.639] your coach deserves a lot of credit he's
+- [05:57.400] a great coach nobody knows hockey like
+- [05:59.919] Paul he's the League's second all-time
+- [06:02.039] leader in games coached and holds the
+- [06:04.160] record for the most wins in Florida's
+- [06:06.960] Panthers history and I assume he's going
+- [06:08.599] to be around for a long time right he's
+- [06:11.039] not going anywhere coach I want to be
+- [06:13.160] your agent
+- [06:15.240] coach under Paul's leadership the
+- [06:17.639] Panthers have become a finely tuned
+- [06:19.680] machine with a rock solid defensive and
+- [06:22.520] offensive uh I mean your offense is
+- [06:25.599] great your defense is great the whole
+- [06:27.280] thing it's very tough to beat uh and I
+- [06:29.880] will tell you I looked at your current
+- [06:31.199] record you're doing pretty well right
+- [06:33.000] you're nicely
+- [06:34.639] positioned yeah you know the expression
+- [06:36.720] he's nicely positioned I love all these
+- [06:38.680] tires this is so cute these people look
+- [06:41.720] at them I walked in I said I think they
+- [06:43.199] like
+- [06:43.960] Trump I like them and you aren't just
+- [06:47.639] great uh Protectors of the net you're
+- [06:50.280] also known as the biggest Brawlers on I
+- [06:54.479] I was with a man named Wayne Gretzky the
+- [06:56.960] other day do you know Wayne Gretzky did
+- [06:58.479] you ever hear of Wayne grety
+- [07:00.360] the great one and he was telling me uh
+- [07:03.280] about a gentleman that protected him
+- [07:05.599] named Marty murle do you know that you
+- [07:08.639] ever hear of him I don't know if he was
+- [07:10.039] a good hockey player but they say he was
+- [07:11.759] very tough and Wayne was saying he was
+- [07:14.479] great as far as he was concerned tough
+- [07:16.800] cookies all of the team's hard work led
+- [07:19.479] up to Big showdowns last June where you
+- [07:22.400] defeated the Edmonton Oilers in an
+- [07:25.280] unforgettable and it was seven game
+- [07:27.400] series the Panthers as I said started Ed
+- [07:29.919] strong with a three to nothing lead it
+- [07:32.479] was over it was over in fact I didn't
+- [07:35.360] watch the last next two games because I
+- [07:38.160] said this is not going to be too
+- [07:39.319] exciting and then I said uhoh this is
+- [07:42.440] not good then I really said uhoh right
+- [07:46.440] we went to a game seven but the Oilers
+- [07:49.319] made impressive recoveries and really
+- [07:51.720] amazing actually the way they played too
+- [07:54.919] they even the score and forced a
+- [07:56.919] decisive game seven the series was a
+- [07:58.960] battle from from start to finish it made
+- [08:01.280] it actually much more interesting goalie
+- [08:04.560] Sergey barabasi and he was incredible oh
+- [08:08.159] I got to see him where is
+- [08:16.199] he how good is he you were you were I
+- [08:20.440] mean Hall of Fame and even how old are
+- [08:24.759] you boy I tell you you were unbelievable
+- [08:27.520] what a what an amazing job you did
+- [08:31.520] and there was a lot of pressure and I
+- [08:33.080] mean it that that deal that game seven
+- [08:35.399] you guys had to be like uh man and you
+- [08:38.320] played great that was great great job
+- [08:40.120] you did on behalf of everybody that
+- [08:42.440] watched thank you Bob was nothing short
+- [08:44.920] of phenomenal during the finals in the
+- [08:46.920] first 40 minutes of game one Bob made an
+- [08:49.399] astounding 25 saves he's wow he's the
+- [08:53.600] first goalie to get a shut out in game
+- [08:55.760] one of the Stanley Cup in 13 years and
+- [08:58.399] his 23 SA aves in game seven were
+- [09:01.480] absolutely crucial to securing a very
+- [09:04.320] very tight Victory and Bob started his
+- [09:06.959] career as an undrafted free agent and is
+- [09:09.480] now a Stanley Cup champion and will go
+- [09:11.959] down as one of the great gold Keepers uh
+- [09:14.600] in all time history it's really really a
+- [09:17.399] big a big honor For You especially what
+- [09:20.200] you were undrafted so he made a good
+- [09:21.720] deal in other words it's the best thing
+- [09:24.120] you'd like to find more like that huh so
+- [09:27.240] it's a what a great achievement Bob
+- [09:29.079] congrat congratulations but the title
+- [09:30.760] couldn't have been won if you didn't
+- [09:32.959] have a man named Carter
+- [09:37.440] Veri Carter
+- [09:39.410] [Applause]
+- [09:49.360] for I heard I said a hair is
+- [09:52.200] right I I heard that name so much ver
+- [09:55.880] hey a scoring champion and he the
+- [09:58.880] scoring and you really the opening goal
+- [10:01.360] of that game was very important wasn't
+- [10:03.360] it that put you in a position where got
+- [10:05.839] you the the butterflies out a little bit
+- [10:08.279] way to go congratulations that's great
+- [10:10.600] job everybody Carter skillfully directed
+- [10:13.560] a shot past the oil Oilers goalie and
+- [10:16.160] gave the Panthers your first lead in the
+- [10:18.800] series since game three and not to
+- [10:22.640] forget Sam Reinhardt who had a legendary
+- [10:25.560] shot in game seven that certainly was a
+- [10:28.200] legendary shot won the that's not going
+- [10:29.800] to be forgotten after securing the puck
+- [10:32.640] from caught her Sam carried it down the
+- [10:34.920] ice and flicked a wrist shot very much
+- [10:37.079] like I would do it if I played right
+- [10:39.760] past the Oilers goalie beating him and
+- [10:42.240] uh and beat him on the glove side where
+- [10:44.680] are
+- [10:49.560] you how did you feel after that shot
+- [10:52.560] like the greatest feeling or one of the
+- [10:54.639] greatest in life you could say it5
+- [10:57.760] minutes
+- [10:59.680] you had a long time left it's true it's
+- [11:02.360] true you had a little bit to go Sam
+- [11:04.639] cemented himself as uh in in Panthers
+- [11:08.440] history for shooting the team's first
+- [11:10.040] ever Stanley Cup winning goal that was a
+- [11:11.800] winning goal both teams showed
+- [11:14.320] tremendous willpower and athletic Talent
+- [11:16.680] unbelievable talent but in the end the
+- [11:19.399] Panthers stood the ground and did what
+- [11:22.240] you have to do as a champion you can't
+- [11:24.240] be a champion unless you could go
+- [11:25.720] through something like that and I can
+- [11:27.240] tell you it was hell for them that
+- [11:29.560] seventh game going to the seventh game
+- [11:31.920] had to be hell because uh you're either
+- [11:35.880] going to win and really be praised
+- [11:38.160] because you came from such a horrible
+- [11:41.360] position to being lifethreatening
+- [11:45.360] right I mean that would have been just
+- [11:47.920] unbelievable we've seen them we've seen
+- [11:50.120] it happen happens a lot actually but you
+- [11:52.839] didn't let it happened to you it's an
+- [11:54.320] incredible achievement and I just want
+- [11:56.519] to tell you you fought for every last
+- [11:58.600] point and uh it was just something I
+- [12:00.560] watched Mr commissioner I was watching
+- [12:02.440] that sucker for maybe the wrong reasons
+- [12:05.240] because of that guy and I was hooked to
+- [12:07.880] because you you fell in love with that
+- [12:09.560] team the guts and the courage they had
+- [12:11.320] you really started to really like them
+- [12:13.399] they're great people and now I see them
+- [12:15.480] and in fact I like them so much I said
+- [12:17.320] we'll get rid of the fake news media
+- [12:19.680] very soon and we're going to go to the
+- [12:21.199] Oval Office and we're going to take some
+- [12:23.600] pictures in the Oval Office normally we
+- [12:25.320] don't do that but we're going to do it
+- [12:27.279] for this team and uh for you
+- [12:29.839] and we'll take unless you don't want to
+- [12:31.240] go you can go home a little bit
+- [12:33.199] early so today we honor the three and
+- [12:36.839] and these just really great athletes
+- [12:39.639] these are amazing athletes an amazing
+- [12:41.800] team and their outstanding achievements
+- [12:43.639] they're wonderful owner from underdogs
+- [12:46.120] to Champions they prove the dedication
+- [12:48.560] and hard work can transform dreams into
+- [12:51.320] reality so congratulations once again to
+- [12:54.639] the Florida Panthers on just an
+- [12:56.839] unbelievable season and a a really an
+- [12:59.360] unbelievable run because you've been
+- [13:01.000] doing so well and now you continue to do
+- [13:03.000] well we'll be we'll try and get to one
+- [13:04.800] of those games you know it's a little
+- [13:06.160] tough as president but I think we can
+- [13:08.120] work it out we'll have to we'll need a
+- [13:10.639] lot of Secret Service they'll be happy
+- [13:13.720] well we're g to we're going to get to do
+- [13:15.120] it you've made your state and your fans
+- [13:17.560] very very proud and now I'd like to
+- [13:20.440] introduce my friend Vinnie Viola who's a
+- [13:22.800] real Champion himself he's a champion at
+- [13:24.920] everything he's ever done loves the
+- [13:26.920] military first thing he did I see him he
+- [13:29.399] said you got to do this with the Army
+- [13:31.279] you got to move them here you got to
+- [13:32.480] Bove he's given me all the instructions
+- [13:34.440] you love the military I would have liked
+- [13:37.079] him uh you know we should have had you
+- [13:38.800] in Afghanistan instead of the characters
+- [13:40.800] we had would have would have turned out
+- [13:42.720] a little bit different huh come here
+- [13:45.199] congratulations congratulations great
+- [13:47.399] Vinnie
+- [13:51.800] please well first uh Mr President you
+- [13:55.959] look fantastic thank you so whatever it
+- [13:58.480] is you working so hard at it's agreeing
+- [14:00.880] with you and I like to see that and
+- [14:02.320] thank you so I we we brought we brought
+- [14:06.040] a cohort to use a term use the military
+- [14:09.839] of Champions to visit a champion and
+- [14:13.279] your kindness and the hospitality
+- [14:16.839] displayed by your staff is a simple
+- [14:20.120] reflection of the Excellence that you
+- [14:21.600] demand of your people and we were the
+- [14:23.800] beneficiaries of it today so thank you
+- [14:25.680] thank you uh I want I want to
+- [14:29.680] I I really I'm going to keep this short
+- [14:32.680] because I really don't enjoy
+- [14:34.839] this just a couple of points South
+- [14:38.000] Florida Florida more Broadley has just
+- [14:40.839] been fantastic to us Mr President we
+- [14:44.079] have uh with us two very special people
+- [14:46.839] they know our team in and out I have to
+- [14:48.639] recognize them Mark Bogan and Monica
+- [14:51.160] Shapiro from Broward County they're just
+- [14:53.680] two
+- [14:54.519] superstars and uh it's hard you know
+- [14:57.560] it's hard to start really really Gary
+- [14:59.720] when we took the team it was it was a
+- [15:02.480] little tough and we needed we really
+- [15:05.079] needed the help of the community and the
+- [15:08.040] political class and quite frankly the
+- [15:11.000] private leadership I could thank every
+- [15:14.360] uh member of the uh Panthers staff that
+- [15:17.440] were all here the team I'm going to
+- [15:19.759] bring up a guy that you would really
+- [15:22.759] like he's a just a tough
+- [15:27.040] talented his Spirit just
+- [15:30.319] went right into the team he's helped to
+- [15:32.000] find that his dad was a great player uh
+- [15:35.319] Keith kachuck if you remember him yeah
+- [15:38.160] big strong guy he's like his dad before
+- [15:41.079] I do I want to say one thing because my
+- [15:42.720] brain run runs all over the place Jared
+- [15:45.639] mosit your dad when I bought this team
+- [15:48.959] spent countless hours with me driving me
+- [15:52.319] all over Fort
+- [15:54.319] Lauderdale I mean meeting with right
+- [15:57.560] Monica he was a a great great guy I want
+- [16:01.360] you to know he was a great guy and I
+- [16:03.480] want you to know you carry him in your
+- [16:05.319] heart every day and he'd be so proud of
+- [16:08.040] you and the public service
+- [16:14.920] that'll Mr President I'm going to uh ask
+- [16:18.560] Matthew K come up we got a few things
+- [16:20.839] for you uh I really hope you like them
+- [16:24.800] especially the is it up there we framed
+- [16:28.319] your we you're you're the only listen we
+- [16:31.199] had to go 45 and 47
+- [16:33.720] right and so uh uh I thought you'd like
+- [16:38.959] that but instead of a ranger Taps
+- [16:41.639] because we we designed this like the
+- [16:43.000] ranger battalion your TAP says
+- [16:45.920] pus see above the Florida see that Rick
+- [16:49.519] that's pretty cool right all right
+- [16:51.959] Matthew come on up here talk you're
+- [16:53.360] going to talk to the president about
+- [16:54.440] your team
+- [16:56.639] father around
+- [17:00.480] great thank you well thank you Mr
+- [17:02.399] President for having us today we uh we
+- [17:04.319] greatly appreciate it and being one of
+- [17:06.160] the few Americans um you know who loves
+- [17:08.679] this country so much this is such an
+- [17:10.079] incredible day for myself and um you
+- [17:12.720] know we wake up every day and really
+- [17:14.400] grateful to be an American so thank
+- [17:20.600] you but yeah this this team and this
+- [17:22.880] group of guys is super special and uh
+- [17:25.360] everybody sees what we do on the ice but
+- [17:27.360] I've built bonds with these guys that
+- [17:29.280] you know I'll have for the rest of my
+- [17:30.600] life and I'm forever grateful for these
+- [17:32.280] guys we're forever Champs and I always
+- [17:33.640] remember these guys true yeah true so
+- [17:36.679] with that said we've got a few gifts for
+- [17:38.760] you
+- [17:57.840] now e
+- [18:44.000] 3
+- [18:45.760] [Music]

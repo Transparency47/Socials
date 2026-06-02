@@ -1,0 +1,110 @@
+<!-- source: https://www.youtube.com/watch?v=tOf7EetFHfo -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: tOf7EetFHfo -->
+<!-- date_published: 2026-02-27T23:50:48+00:00 -->
+<!-- date_accessed: 2026-06-02T01:04:40.173463+00:00 -->
+
+# Transcript: President Trump Gaggles with Press at the Port of Corpus Christi, TX
+
+- [00:00.320] We're proud to tell you they're from
+- [00:01.760] Venezuela, these big ships.
+- [00:09.120] >> How do you like the music, everybody?
+- [00:12.719] >> So, do you know where that chip comes
+- [00:14.240] from?
+- [00:16.000] >> Venezuela.
+- [00:18.080] Venezuela got lucky because they're
+- [00:20.720] doing really well now. Getting along
+- [00:23.039] very well with Venezuela.
+- [00:29.359] stopping by with my friends. We have
+- [00:31.119] great friends and uh we've been together
+- [00:34.399] for a long time. Really a long time. And
+- [00:37.280] it's amazing what's happened to Corpus
+- [00:39.120] Christi.
+- [00:40.800] The new bridge which we were which we
+- [00:43.040] helped you a lot with.
+- [00:44.079] >> Exactly.
+- [00:44.559] >> The new bridge just opened. It's
+- [00:46.160] beautiful. That's a great bridge.
+- [00:48.559] >> It's all white. Very unusual white. It's
+- [00:52.079] red at night, but only if the
+- [00:53.520] Republicans here.
+- [00:57.840] >> Pretty much. Yeah.
+- [00:59.600] >> No, not yet.
+- [01:02.800] >> I don't want to discuss that.
+- [01:05.840] >> Is everybody having a good time? You
+- [01:07.360] know how big this is? Millions and
+- [01:09.760] millions of barrels of oil are pouring
+- [01:11.840] right in here. It's a great thing. No,
+- [01:14.640] the relationship with Venezuela has been
+- [01:16.799] amazing. Do you have a message for Iran?
+- [01:20.400] >> Well, they should make a deal, but they
+- [01:22.400] don't want to quite go far enough.
+- [01:24.000] That's too bad. Like, we've been playing
+- [01:26.080] with them for 47 years, and that's a
+- [01:29.040] long time. They've been blowing the legs
+- [01:30.960] off our people, blowing the face off our
+- [01:33.119] people.
+- [01:35.200] They've been knocking our ships one by
+- [01:37.680] one, and every month there's something
+- [01:40.000] else. Uh, you can't put up with it too
+- [01:44.240] long. We're not happy with the
+- [01:45.680] negotiation. They just don't want to
+- [01:47.840] they don't want to see say the key
+- [01:49.439] words, we're not going to have a nuclear
+- [01:51.119] weapon. They have to say we're not going
+- [01:53.040] to have a nuclear weapon and they just
+- [01:56.159] can't quite get there. They want to
+- [01:57.600] enrich a little bit. You don't have to
+- [01:59.920] enrich when you have that much oil. So,
+- [02:02.560] so I'm not happy with the negotiation.
+- [02:08.720] >> I say no enrichment,
+- [02:11.599] not 20% 30%. They always want 20% 30%.
+- [02:16.319] They want it for civilian, you know, for
+- [02:18.720] civil civil. I think it's uncivil. So,
+- [02:22.239] uh, I'm not happy with that.
+- [02:24.000] >> Sir, how close are you to making a
+- [02:25.599] decision on strikes? How close are you
+- [02:28.319] to making a decision on strikes?
+- [02:30.879] >> I'd rather not tell you. You would have
+- [02:33.200] had the greatest scoop in history,
+- [02:34.720] right?
+- [02:39.760] Well, they're going I mean, we're
+- [02:41.120] negotiating right now, but they're not
+- [02:42.879] getting to the right answer.
+- [02:45.120] >> And uh we're not going to see people
+- [02:48.160] We're not going to see what's happened
+- [02:49.680] for 47 years. Keep going. 47 years we've
+- [02:53.440] been doing this with them. The Obama
+- [02:55.680] deal was the worst deal. Nobody ever saw
+- [02:57.360] a deal so stupid. Right now, if you did
+- [02:59.920] the Obama deal that held, if I didn't
+- [03:01.920] terminate it, red would have a nuclear
+- [03:04.080] weapon and it would be a whole different
+- [03:05.599] ball game.
+- [03:08.319] >> That Obama deal was one of the worst one
+- [03:10.560] of the dumbest deals I've ever seen.
+- [03:12.480] >> Yep.
+- [03:12.879] >> First of all, was very short term. It
+- [03:15.360] would long be over. You know that
+- [03:16.800] wouldn't be I terminated it. But if I
+- [03:19.920] didn't, it would be over by now anyway.
+- [03:21.599] But the Obama deal, what he did was one
+- [03:25.200] of the dumber deal. I've seen a lot of
+- [03:26.640] dumb deals. That would be one of the
+- [03:28.640] >> Are you concerned striking
+- [03:31.360] prices?
+- [03:33.599] >> I'm not concerned. No, no. I I'm
+- [03:36.080] concerned about people's lives. I'm
+- [03:38.560] concerned about long-term health for
+- [03:40.480] this country. That's what I'm concerned
+- [03:42.080] about.
+- [03:46.640] >> Yeah, he did.
+- [03:48.480] >> I can't tell you that.
+- [03:50.720] >> I can't tell you that. That I can't tell
+- [03:52.799] you. But I do like Come here. Come here.
+- [03:55.920] You want to see something nice? Look at
+- [03:58.080] that.
+- [04:01.360] Right out of Venezuela. Goodbye
+- [04:03.280] everybody. Thank you everybody.
+- [04:05.599] Thank

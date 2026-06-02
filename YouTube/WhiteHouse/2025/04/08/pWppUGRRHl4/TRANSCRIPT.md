@@ -1,0 +1,852 @@
+<!-- source: https://www.youtube.com/watch?v=pWppUGRRHl4 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: pWppUGRRHl4 -->
+<!-- date_published: 2025-04-08T17:43:37+00:00 -->
+<!-- date_accessed: 2026-06-02T02:52:05.696588+00:00 -->
+
+# Transcript: Press Secretary Karoline Leavitt Briefs Members of the Media, Apr. 8, 2025
+
+- [00:13.450] Ms. Leavitt: Announcements off the top today.
+- [00:15.350] On April 14th, President Trump will welcome
+- [00:18.020] President Bukele of El Salvador for an official
+- [00:20.790] working visit here at the White House.
+- [00:22.890] They will discuss El Salvador's partnership
+- [00:24.760] on using their Supermax prison for Tren de Aragua
+- [00:27.540] and MS-13 gang members,
+- [00:29.210] and how El Salvador's cooperation
+- [00:31.170] with the United States
+- [00:32.400] has become a model for others to work with this administration.
+- [00:36.310] On April 17th,
+- [00:37.680] President Trump will welcome Prime Minister Giorgia
+- [00:40.190] Meloni of Italy for an official working visit at the White House
+- [00:43.270] as well.
+- [00:44.480] The President's thoughts also remain
+- [00:46.680] with the families and communities
+- [00:48.090] experiencing devastating loss from the severe storms
+- [00:51.080] and flooding affected several states across the central US.
+- [00:55.470] President Trump approved emergency
+- [00:57.260] declarations for Arkansas, Kentucky, and Tennessee,
+- [01:00.700] allowing FEMA to provide federal assistance like equipment
+- [01:04.100] and resources to support state
+- [01:05.830] and local emergency response officials
+- [01:07.830] who are leading this response on the ground.
+- [01:10.310] Last night, the Supreme Court delivered
+- [01:12.400] a massive legal victory
+- [01:14.030] to the Trump administration and allowed us
+- [01:15.950] to continue removing foreign terrorist invaders
+- [01:19.520] under the Alien Enemies Act.
+- [01:21.470] This was a smack down to a rogue left-wing,
+- [01:24.370] low-level district court judge
+- [01:26.900] who have relentlessly tried to stop President Trump
+- [01:29.570] from using his core constitutional powers
+- [01:32.330] as head of the executive branch and as Commander-in-Chief.
+- [01:35.870] The highest court in the land made it clear
+- [01:38.230] that the President of the United States
+- [01:39.980] has the power to protect our homeland
+- [01:42.260] and forcibly remove foreign terrorists
+- [01:44.590] who pose a grave threat to families and communities.
+- [01:48.230] Thank you to the Supreme Court for upholding the rule of law
+- [01:51.240] and protecting the Constitution.
+- [01:53.800] Our message to the monster Tren de Aragua
+- [01:55.960] and MS-13 terrorists still hiding
+- [01:58.200] illegally inside our country is clear,
+- [02:00.890] deport yourself now or you will be locked up
+- [02:03.780] and sent back to your home country.
+- [02:06.140] On another matter, the historic Liberation Day announcement
+- [02:09.010] last week by President Trump made it very clear
+- [02:12.390] that the era of American economic surrender is over.
+- [02:17.720] President Trump is no longer going to allow American workers
+- [02:21.230] and companies to be ripped off
+- [02:22.940] at the hands of foolish trade practices
+- [02:25.410] that shipped away millions of high-paying jobs
+- [02:27.950] and hollowed out communities across the country.
+- [02:31.040] It's America first all the way,
+- [02:33.660] and despite fear-mongering by the media,
+- [02:35.710] the world is clearly responding to President Trump's approach.
+- [02:39.410] Just yesterday, President Trump held the bilateral meeting
+- [02:42.240] with Israeli Prime Minister Benjamin Netanyahu
+- [02:44.490] here at the White House.
+- [02:45.780] The Prime Minister pledged to immediately eliminate
+- [02:48.350] America's trade deficit with Israel
+- [02:50.490] and remove their trade barriers.
+- [02:52.790] Israel's proactive approach should serve
+- [02:55.150] as a model for the rest of the world.
+- [02:57.530] Also yesterday, the President spoke
+- [02:59.610] with Japan's Prime Minister who wants to negotiate as well.
+- [03:03.140] The President also spoke to the acting president
+- [03:05.530] of South Korea this morning. He has tasked Secretary Bessent
+- [03:09.040] and US Trade Representative Jamieson Greer
+- [03:11.320] to lead these talks.
+- [03:12.970] In total, since the Liberation Day announcement,
+- [03:15.070] nearly 70 countries have already reached out to the President
+- [03:18.460] to begin a negotiation.
+- [03:20.230] Countries are falling over themselves
+- [03:22.250] to reform their unfair trade practices
+- [03:24.430] and free open their markets to our country.
+- [03:27.250] Why? Because these countries greatly respect President Trump
+- [03:30.990] in the sheer power of the American market.
+- [03:34.330] These countries realize they've gotten filthy rich
+- [03:37.010] over the past few decades by imposing substantial tariffs
+- [03:40.470] on American-made products
+- [03:42.030] and ridiculous non-monetary barriers
+- [03:44.350] to block out American industry. The jig is up.
+- [03:47.950] Past American presidents sat by and let this happen,
+- [03:50.870] but President Trump stood up for our country
+- [03:53.030] and he is saying no more.
+- [03:55.150] The President's message has been simple and consistent
+- [03:57.720] from the beginning, to countries around the world,
+- [04:00.600] bring us your best offers and he will listen.
+- [04:03.460] Deals will only be made if they benefit American workers
+- [04:06.630] and address our nation's crippling trade deficits.
+- [04:10.310] America does not need other countries
+- [04:11.970] as much as other countries need us,
+- [04:14.160] and President Trump knows this.
+- [04:15.960] He's going to use the leverage of our markets
+- [04:17.950] and our country to the advantage of the people
+- [04:20.200] he was sworn in to represent.
+- [04:23.330] On the other hand, countries like China
+- [04:25.380] who have chosen to retaliate
+- [04:26.840] and try to double down on their mistreatment of American workers
+- [04:29.530] are making a mistake.
+- [04:31.130] President Trump has a spine of steel and he will not break,
+- [04:34.480] and America will not break under his leadership.
+- [04:37.440] He is guided by a firm belief that America must be able
+- [04:40.310] to produce essential goods for our own people
+- [04:42.670] and export them to the rest of the world.
+- [04:45.510] A strong America cannot be solely dependent
+- [04:47.960] on foreign countries for our food,
+- [04:50.220] medicines, and critical minerals,
+- [04:52.270] and America must always maintain a robust defense supply chain.
+- [04:56.720] Reprioritizing and strengthening our manufacturing industry
+- [04:59.870] are essential national and economic security issues
+- [05:02.860] of the utmost importance to President Trump.
+- [05:05.400] By focusing on supercharging
+- [05:07.170] the onshoring of American manufacturing,
+- [05:09.060] the president is already delivering on his promise
+- [05:11.340] to usher in an economic golden age for our country.
+- [05:15.580] Just look at Friday's jobs report,
+- [05:17.530] which smashed expectations for the second straight month.
+- [05:21.380] The American economy added 228,000 jobs,
+- [05:25.350] nearly 100,000 more jobs than economists predicted,
+- [05:28.540] and the fourth highest month for private payroll growth
+- [05:31.040] in the past two years.
+- [05:33.010] There was also a sharp increase in transportation, construction,
+- [05:36.490] and warehousing employment, and in just 11 weeks,
+- [05:40.040] President Trump has secured more than $1.5 trillion
+- [05:43.240] in private sector investment. This is a half trillion dollars
+- [05:46.360] more than Joe Biden secured in his entire term.
+- [05:49.570] This record breaking private sector investment
+- [05:51.660] will create roughly 350,000 American jobs and counting.
+- [05:56.080] If you add up all of the investment
+- [05:57.770] pledges from foreign governments,
+- [05:59.520] President Trump has secured an incredible $5 trillion
+- [06:02.470] in total investments. Already in the months ahead,
+- [06:05.800] President Trump's pro-growth economic agenda
+- [06:07.970] will be fully realized.
+- [06:09.680] The largest deregulatory effort in American history is underway.
+- [06:13.780] Unnecessary, burdensome, costly red tape is being eliminated
+- [06:17.470] by this entire federal government every day,
+- [06:20.160] driving down costs in massively boosting small businesses.
+- [06:23.990] So far, President Trump's deregulation effort
+- [06:26.470] has already saved Americans more than $180 billion,
+- [06:30.160] equivalent to $2,100 per family of four.
+- [06:33.910] The President's, drill, baby drill, energy agenda,
+- [06:36.370] which he will discuss later this evening in the East Room,
+- [06:38.860] is capitalizing on the abundance of natural resources
+- [06:42.340] under our feet to generate more affordable electricity,
+- [06:45.280] cheap gas, and quality new jobs.
+- [06:48.130] All of this will combine to end the Biden-imposed
+- [06:51.080] cost of living crisis that's absolutely crushed
+- [06:53.430] American families. Under President Trump,
+- [06:55.960] the American energy industry will lead the globe
+- [06:58.480] over the next century delivering lower prices
+- [07:01.310] and significantly strengthening our country's economic position.
+- [07:05.430] At the President's direction, Republicans in Congress
+- [07:07.940] are working quickly to pass one big beautiful bill,
+- [07:10.950] which will also include the largest tax
+- [07:13.170] cut in American history. As President Trump has said,
+- [07:16.700] the House must pass this budget resolution quickly.
+- [07:20.480] Here in our new media seat today, we have Jasmine Wright,
+- [07:23.340] the White House reporter for NOTUS.
+- [07:25.290] NOTUS is a nonprofit and nonpartisan news site,
+- [07:27.850] which launched in early 2024.
+- [07:30.120] They've gained millions of readers
+- [07:31.450] across the country since.
+- [07:32.990] The newsroom's goal is both to inform readers
+- [07:35.030] and train the next generation of politics and policy journalists.
+- [07:38.530] They also partner with state newsrooms
+- [07:41.280] to give local communities more knowledge
+- [07:43.120] of what their representatives are doing in Washington DC.
+- [07:45.680] With that, please kick us off, Jasmine.
+- [07:47.410] The Press: Thanks so much, Karoline.
+- [07:48.620] A couple of questions for you. The first one being,
+- [07:51.000] can you explain the White House's evolution from this
+- [07:54.440] is not a negotiation on tariffs to countries
+- [07:57.410] should pitch us and start negotiations on tariffs.
+- [07:59.270] Ms. Leavitt: Sure.
+- [08:00.490] As the President said yesterday, Jasmine,
+- [08:01.940] both things can be true at the same time,
+- [08:03.960] and it is a non-negotiable position that the United States
+- [08:07.330] has faced a national security and economic crisis
+- [08:10.110] because of the unfair trade practices
+- [08:12.430] by countries around the world.
+- [08:14.050] As for the President, I have maintained this position.
+- [08:16.470] The entire administration has always said
+- [08:18.380] that President Trump is willing to pick up the phone and talk,
+- [08:21.540] and the President met with his trade team this morning
+- [08:24.080] and he directed them to have tailor-made trade deals
+- [08:28.360] with each and every country that calls up this administration
+- [08:31.740] to strike a deal, and listen.
+- [08:33.820] And each and every one of these trade deals
+- [08:35.530] should be tailored and unique based on that country's markets,
+- [08:39.130] based on that country's exports,
+- [08:40.670] the imports here in the United States of America,
+- [08:43.150] what makes the most sense for the American worker
+- [08:45.990] and for our industry.
+- [08:47.660] The President is focused on putting America first.
+- [08:49.890] The Press: So was the evolution not factored in or determined
+- [08:54.410] by kind of the tumult in the stock market?
+- [08:57.480] Was that not a part of the consideration
+- [08:58.880] to start making these negotiations and deals?
+- [09:00.560] Ms. Leavitt: Again, I would reject
+- [09:01.800] that there was an evolution.
+- [09:03.020] On day one, we had said that the President
+- [09:05.180] will always pick up the phone for other nations
+- [09:07.510] and other companies that call this administration.
+- [09:09.830] The President always has a listening ear,
+- [09:11.910] and it's a non-negotiable fact
+- [09:13.920] that America has faced a national security,
+- [09:16.460] an economic crisis for many decades,
+- [09:19.110] and President Trump is just the first to address this.
+- [09:21.060] The Press: And then, my last question,
+- [09:22.300] how will negotiations change how much revenue the White House
+- [09:25.600] is planning to make from the tariffs?
+- [09:27.900] Ms. Leavitt: Well, that has yet to be seen,
+- [09:29.210] but as the President said, the reciprocal tariffs,
+- [09:31.950] which will continue to go in effect
+- [09:33.640] as these deals are negotiated and ongoing,
+- [09:36.100] will generate trillions of dollars
+- [09:37.870] in revenue to the United States. And this is twofold,
+- [09:40.490] the President wants to onshore jobs
+- [09:42.610] here to the United States of America,
+- [09:44.440] he wants to boost our manufacturing industry.
+- [09:47.140] He also wants to tackle these crippling deficits
+- [09:49.560] with almost every single country around the world.
+- [09:51.390] Jackie.
+- [09:52.690] The Press: Thanks, Karoline.
+- [09:53.930] The Treasury Secretary, Scott Bessent,
+- [09:55.840] warned that some of these negotiations
+- [09:57.260] might take up to months,
+- [09:58.590] that we could be doing this through April,
+- [10:01.210] May and into June.
+- [10:02.490] And then you had Kevin Hassett say
+- [10:03.880] it's going to take a lot for the President
+- [10:05.410] to put his signature on the line,
+- [10:07.080] 'cause he wants to make sure there's a good deal for America.
+- [10:10.110] Is the President operating
+- [10:11.450] on any sort of a timeline or deadline
+- [10:13.550] where he wants this completed by?
+- [10:15.690] Ms. Leavitt: Well, we always move at Trump's speed here
+- [10:17.750] at the White House, which is incredibly fast.
+- [10:19.890] I know you all know that
+- [10:21.470] from covering this White House day to day,
+- [10:22.990] the President likes to get things done.
+- [10:24.870] But he's very much focused on ensuring
+- [10:26.780] that these deals are good for the American worker,
+- [10:29.380] they are good for American manufacturing,
+- [10:31.440] and again, that they tackle these crippling deficits
+- [10:33.820] with these countries.
+- [10:35.050] All options are on the table for each country,
+- [10:37.260] but again, these are going to be tailor-made deals,
+- [10:40.750] they're not going to be off-the-rack deals
+- [10:42.880] as the President has called it.
+- [10:45.090] And he has directed his entire trade team
+- [10:47.200] to be part of this effort,
+- [10:48.500] so that includes Secretary Bessent
+- [10:50.350] and our National Economic Director, Kevin Hassett.
+- [10:52.430] It also includes Secretary Lutnick, Peter Navarro,
+- [10:55.190] the entire trade team, Jamieson Greer,
+- [10:56.970] who was on the Hill today.
+- [10:58.440] Everybody who was involved in this incredible fair,
+- [11:01.410] reciprocal trade agenda will continue to be involved
+- [11:03.810] in negotiating these deals.
+- [11:05.020] The Press: And then yesterday,
+- [11:06.230] Goldman Sachs put out a research note.
+- [11:08.850] It put the odds of a recession at 45%
+- [11:12.340] within the next 12 months, up from 35%.
+- [11:15.590] But Peter Navarro guaranteed last night, no recession.
+- [11:19.100] Does the President agree with him on that?
+- [11:20.960] I know the President in the past
+- [11:22.240] has been leery of making definitive statements on that.
+- [11:25.450] Ms. Leavitt: I can speak for the President
+- [11:26.650] and I can speak for the optimism
+- [11:28.320] that he sees in our economy every day.
+- [11:30.630] Again, when you talk about the massive deregulatory efforts
+- [11:33.570] that are happening across the board,
+- [11:35.230] when you talk about how oil prices are down,
+- [11:37.690] gas prices are down, egg prices are down,
+- [11:40.430] we're cutting costs for the American worker,
+- [11:42.640] for the American consumer.
+- [11:44.130] We also see trillions of dollars of investments
+- [11:46.420] pouring into this country every day,
+- [11:47.980] and we're working hard now on the tariff side
+- [11:50.910] of the President's economic agenda.
+- [11:52.610] But don't forget, the next side of this is tax cuts,
+- [11:55.300] and we're counting on Capitol Hill
+- [11:56.580] to get those done, the largest tax cuts in history.
+- [11:59.690] The Press: Does that mean that without those tax cuts
+- [12:02.440] coming through that the likelihood of a recession
+- [12:04.840] is greater?
+- [12:06.060] Ms. Leavitt: No, that's not what I said.
+- [12:07.260] I'm just saying be mindful
+- [12:08.500] of the whole of government economic approach
+- [12:10.650] that this administration is taking every day.
+- [12:13.120] Sure. Go ahead.
+- [12:15.400] The Press: Thank you Karoline.
+- [12:17.020] You just said that one of the reasons
+- [12:19.300] these tariffs are going into effect
+- [12:21.440] is that some countries have been reaping off the United States.
+- [12:24.130] But some of the tariffs target countries like Madagascar,
+- [12:27.500] Bangladesh, with very high levels of poverty,
+- [12:29.760] so can you explain how the President
+- [12:31.920] wants to correct the deficit with those countries?
+- [12:34.610] Is there a plan, for example, to ensure the textile industry
+- [12:38.110] that these countries are known because,
+- [12:40.650] and just like, can you be specific about those low income-
+- [12:43.760] Ms. Leavitt: Sure. The Press: Countries?
+- [12:45.000] Ms. Leavitt: Well, first of all,
+- [12:46.240] the reciprocal tariff rates
+- [12:47.520] that were implemented by country,
+- [12:49.430] were focused on the monetary tariff
+- [12:51.760] that those countries have imposed on the United States,
+- [12:54.020] but also the non-monetary tariff barriers and the regulations,
+- [12:57.760] if you will, that have been put into effect over the years,
+- [12:59.970] making it harder for America to export to these countries.
+- [13:03.840] These were very carefully crafted numbers,
+- [13:06.140] there was also a 10% baseline tariff
+- [13:08.710] across the board as well, as you know.
+- [13:10.430] Moving forward, the President will talk to any country
+- [13:13.270] that picks up the phone to call.
+- [13:14.760] And I can tell you, the phones have been ringing off the hook
+- [13:17.860] wanting to talk to this administration,
+- [13:19.510] this President and his trade team,
+- [13:21.490] to try to strike a deal. And it's because the world knows
+- [13:24.000] that they need the United States of America,
+- [13:26.310] they need our markets, they need our consumer.
+- [13:28.570] The President has a lot of leverage on his side,
+- [13:30.660] because he has the best economy
+- [13:32.060] and the best country in the world,
+- [13:33.290] that he leads, and he knows that.
+- [13:35.080] And it's about dang time we finally have a President
+- [13:37.160] who uses that economic leverage to benefit American workers,
+- [13:40.840] and that's what the President is trying to do.
+- [13:42.450] Maggie.
+- [13:43.710] The Press: Karoline, thanks.
+- [13:45.030] Does the President endorse something that Howard Ludwig
+- [13:47.210] said on television this weekend,
+- [13:48.500] which was that the army of millions
+- [13:50.100] and millions of human beings
+- [13:51.430] screwing in little screws to make iPhones,
+- [13:53.510] if that kind of thing is going to be moving to the US?
+- [13:55.770] Is that how the President envisions
+- [13:57.070] manufacturing shifting?
+- [13:58.460] And if so, how long would that take roughly?
+- [14:00.810] Ms. Leavitt: The President wants to increase
+- [14:02.340] manufacturing jobs here in the United States of America,
+- [14:04.830] but he's also looking at advanced technologies.
+- [14:07.240] He's also looking at AI and emerging fields
+- [14:09.700] that are growing around the world,
+- [14:11.240] that the United States needs to be a leader in as well.
+- [14:13.310] So there's an array of diverse jobs,
+- [14:15.780] more traditional manufacturing jobs as you discussed,
+- [14:18.370] but also, jobs in advanced technologies,
+- [14:20.990] the President is looking at all of those,
+- [14:22.620] he wants them to come back home.
+- [14:23.950] The Press: But iPhones specifically,
+- [14:25.510] is that something that he thinks is the kind of technology
+- [14:27.470] that can move to the US?
+- [14:28.710] Ms. Leavitt: Absolutely. He believes we have the labor,
+- [14:30.430] we have the workforce, we have the resources to do it.
+- [14:32.780] And as you know,
+- [14:34.000] Apple has invested $500 billion here in the United States,
+- [14:37.490] so if Apple didn't think the United States could do it,
+- [14:39.770] they probably wouldn't have put up that big chunk of change.
+- [14:41.670] Elena.
+- [14:42.870] The Press: Hi, Karoline.
+- [14:44.530] It's clear the President has gotten the world's attention
+- [14:46.730] with these tariffs.
+- [14:49.330] Is he considering, at all, potentially holding off
+- [14:52.270] on imposing some of them before the deadline
+- [14:54.500] or maybe later reversing them
+- [14:57.080] because he's having these negotiations
+- [14:58.990] and having these good talks with other leaders?
+- [15:01.100] Ms. Leavitt: The President was asked and answered
+- [15:02.490] this yesterday,
+- [15:03.690] he said, he's not considering an extension or a delay.
+- [15:06.460] I spoke to him before this briefing,
+- [15:07.950] that was not his mindset,
+- [15:09.470] he expects that these tariffs are going to go into effect.
+- [15:12.570] And you said something very important, Elena,
+- [15:14.290] in your question, you said the President has captivated
+- [15:16.920] the attention of the world. Absolutely, he has.
+- [15:19.360] And it's about time we have a President in the Oval Office
+- [15:22.580] who is putting the world on notice
+- [15:24.360] and is putting the American people first and again,
+- [15:26.630] is using the leverage of the United States
+- [15:28.650] to negotiate good trade deals. Yeah.
+- [15:29.960] The Press: I have just a quick follow up.
+- [15:31.220] Ms. Leavitt: Sure.
+- [15:32.420] The Press: There's been some public sparring
+- [15:33.830] between Elon Musk
+- [15:35.040] and the President's trade advisor,
+- [15:36.480] Peter Navarro, on some of these tariffs.
+- [15:38.200] Musk actually referred to Navarro today, as being,
+- [15:40.900] "Dumber than a sack of bricks."
+- [15:43.190] Are you, or is the administration, the President,
+- [15:45.340] all concerned that this is maybe impacting
+- [15:47.660] the public's understanding of these tariffs?
+- [15:49.490] It might be messing with the message on it.
+- [15:50.960] Ms. Leavitt: No, look,
+- [15:52.210] these are obviously two individuals
+- [15:54.040] who have very different views on trade and on tariffs.
+- [15:58.010] Boys will be boys,
+- [15:59.260] and we will let their public sparring continue.
+- [16:02.290] And you guys should all be very grateful
+- [16:03.780] that we have the most transparent administration
+- [16:05.570] in history. And I think it also speaks
+- [16:08.110] to the President's willingness to hear from all sides,
+- [16:11.150] that he has people at the highest levels
+- [16:13.050] of this government in this White House,
+- [16:14.540] who have very diverse opinions on very diverse issues.
+- [16:17.940] But the President takes all opinions in mind,
+- [16:20.380] and then he makes the best decision
+- [16:22.050] based on the best interests of the American public.
+- [16:24.310] Tiana.
+- [16:25.590] The Press: Thanks, Karoline. On Truth Social today,
+- [16:28.090] Trump was talking about one-stop shopping
+- [16:31.030] talks with foreign leaders,
+- [16:33.280] bringing leaders to the US, to Washington
+- [16:35.960] and talking to them about tariffs, but also-
+- [16:37.770] Ms. Leavitt: Yeah.
+- [16:39.000] The Press: Other topics. So is that part of his strategy,
+- [16:42.330] to bring the leaders to Washington
+- [16:45.090] and trying to get deals, outside of tariffs,
+- [16:48.800] on foreign policy issues as well?
+- [16:51.490] Ms. Leavitt: I think the President, again,
+- [16:52.820] is going to have a custom tailor-made approach
+- [16:55.230] to each and every country.
+- [16:56.540] And if that means discussions of foreign aid,
+- [16:59.000] of our military presence in these countries,
+- [17:01.170] how those troops are paid for, come to the table,
+- [17:04.000] that could be part of the negotiation
+- [17:05.840] in these economic negotiations.
+- [17:07.590] But it's the President's economic team
+- [17:09.230] who will be leading these,
+- [17:10.510] these are tariff and trade negotiations.
+- [17:12.840] And yes, they will be one-stop shopping for each
+- [17:15.630] and every country, they will be,
+- [17:16.960] as the President said again, tailor-made,
+- [17:18.920] not off-the-rack to each and every country
+- [17:21.300] based on America's needs. The Press: And can you confirm-
+- [17:22.960] Ms. Leavitt: Sure. The Press: How you-
+- [17:24.190] The Press: Thank you so much Karoline.
+- [17:25.400] Ms. Leavitt: Good. The Press: I'm Linsel
+- [17:26.540] [inaudible]. So President Trump has designated Tren De Aragua
+- [17:28.780] as a foreign terrorist organization
+- [17:30.660] and deported its members,
+- [17:31.980] while also moving to restrict Venezuela's oil exports.
+- [17:35.450] Is the administration preparing additional military
+- [17:37.970] or economic actions against Venezuela and the Maduro regime?
+- [17:41.040] And my second question
+- [17:42.270] is about Supreme Court Justice Amy Coney Barrett,
+- [17:45.300] is the administration have a comment
+- [17:46.890] on her decision to go with the liberals
+- [17:48.930] and go actually with the Tren De Araguas?
+- [17:51.440] This is the same Justice that actually sided
+- [17:53.510] against January 6th hostages last year.
+- [17:55.700] So is the administration have a comment?
+- [17:57.610] Are they disappointed in Supreme Court Justice Amy Coney Barrett?
+- [18:00.570] Ms. Leavitt: To your first question,
+- [18:01.820] I don't have any actions to read out in terms of Venezuela.
+- [18:04.830] The President has imposed secondary tariffs
+- [18:06.790] on the Maduro regime and on Venezuela,
+- [18:10.460] in the form of oil, which is obviously going to have
+- [18:12.890] a crippling effect on the Maduro regime
+- [18:15.230] and that's the intended effect of this administration.
+- [18:18.010] As for the justice you mentioned,
+- [18:19.450] as for the Supreme Court,
+- [18:20.650] we've made our feelings very clear.
+- [18:22.890] We believe this was a massive victory.
+- [18:24.980] Certainly, we wish this was a nine to nothing decision
+- [18:27.520] because we firmly believe that the president
+- [18:29.320] was well within his constitutional authority.
+- [18:31.690] And the Supreme Court made that very clear last night,
+- [18:34.200] and they put Judge Boasberg in his place.
+- [18:35.950] We called on the Supreme Court to reign in these judges
+- [18:39.080] who are acting as judicial activists,
+- [18:41.070] not real arbiters of the truth and the law.
+- [18:43.420] And that's exactly what we saw the Supreme Court do yesterday.
+- [18:46.370] Christian.
+- [18:47.610] The Press: Thanks Karoline.
+- [18:48.820] Now that the president's reciprocal tariffs are here
+- [18:51.870] going into effect tomorrow, what's the status of the ERS?
+- [18:55.820] When will they actually start collecting revenue
+- [18:58.910] and will that be nested under CVP or somewhere else entirely?
+- [19:03.090] Ms. Leavitt: It's something Secretary Lutnick has taken up,
+- [19:05.500] so I defer you to the Department of Commerce,
+- [19:07.170] but it's something that he and the president
+- [19:08.980] believe quite strongly in and it's a promise
+- [19:11.320] that they intend to keep to the American people.
+- [19:13.100] The Press: Real quickly, can you explain why the president opted
+- [19:16.480] to send Secretary Hegseth to the dignified transfer last week
+- [19:21.250] instead of attending himself?
+- [19:22.550] Ms. Leavitt: Sure.
+- [19:23.790] Secretary Hegseth was there to represent the administration.
+- [19:27.010] The president has expressed his condolences to these families,
+- [19:30.010] as have I from this podium. Shelby.
+- [19:31.520] The Press: Thank you.
+- [19:32.760] The president's trade representative this morning
+- [19:35.110] told senators that the president does not intend
+- [19:37.560] on carving out exemptions for products and companies
+- [19:40.440] when it comes to tariffs.
+- [19:41.810] But would the administration consider changing
+- [19:44.190] that stance should bankruptcies begin among US companies
+- [19:47.620] who are dependent on China trade?
+- [19:49.210] Ms. Leavitt: I won't get ahead of the president
+- [19:50.480] on any exemptions or his decision on that.
+- [19:52.180] I will leave that to him.
+- [19:53.430] But again, we're looking at this country by country
+- [19:56.180] and based on the needs of the American people
+- [19:57.930] and the American workforce.
+- [19:59.210] The Press: And one more.
+- [20:00.440] Can you walk us through how this specific tariff plan
+- [20:03.110] was decided on and which advisor came up with it?
+- [20:06.120] Ms. Leavitt: The reciprocal tariff plan?
+- [20:07.320] The Press: Yes.
+- [20:08.560] Ms. Leavitt: It was a plan that was discussed
+- [20:09.930] by the president's entire trade team
+- [20:11.780] over the course of many, many meetings,
+- [20:13.860] and the president ultimately decided on which way to go.
+- [20:17.010] A few proposals were given to the president,
+- [20:19.480] there was debate and discussion,
+- [20:21.300] and the president made his decision.
+- [20:22.700] And as you've seen very publicly,
+- [20:24.090] the entire trade team is on board with this plan
+- [20:26.480] and the negotiations that will ensue because of it.
+- [20:28.240] Sure.
+- [20:29.520] The Press: Karoline, on Iran,
+- [20:30.870] and given what's going to be happening on Saturday,
+- [20:33.700] what exactly is the current administration
+- [20:35.560] doing to stop Iran's funding of terrorist aggression worldwide
+- [20:39.100] that the previous administration wasn't doing?
+- [20:41.470] Ms. Leavitt: Well, first of all,
+- [20:42.680] when it comes to Saturday,
+- [20:43.890] I won't get ahead of the president.
+- [20:45.770] He has said there will be direct talks with Iran on Saturday.
+- [20:48.780] I won't further any details from this podium
+- [20:51.550] for obvious reasons, security reasons.
+- [20:54.240] And we'll provide an update as we always have.
+- [20:57.370] However, when it comes to Iran,
+- [20:58.730] the president has reimposed crippling sanctions
+- [21:00.850] on the Iranian regime
+- [21:02.060] and he's made it very clear to Iran,
+- [21:03.940] they have a choice to make.
+- [21:05.300] You can strike a deal with the president,
+- [21:07.240] you can negotiate, or there will be held to pay.
+- [21:09.750] And as the President said yesterday,
+- [21:11.260] if they don't choose to move forward
+- [21:12.560] with diplomacy and a deal,
+- [21:13.820] which is the direction we do see them headed in,
+- [21:16.100] there will be grave consequences to pay.
+- [21:17.960] To the back row. Go ahead.
+- [21:19.200] The Press: Thanks Karoline.
+- [21:20.440] On the president's threat yesterday on social media
+- [21:22.420] to increase tariffs against China
+- [21:24.000] by an additional 50% in response to their retaliation,
+- [21:27.640] has he signed anything in terms of an executive order,
+- [21:30.380] any documentation around that?
+- [21:32.050] Will that additional 50% go into effect tomorrow?
+- [21:35.530] Ms. Leavitt: They will be going into effect at 12:01 AM tonight,
+- [21:38.990] so effectively tomorrow. Yes.
+- [21:40.650] The Press: Did he work on that today?
+- [21:41.950] Ms. Leavitt: Of course, as always.
+- [21:43.180] To the gentleman in front of you,
+- [21:44.530] because that's who I originally called on.
+- [21:45.940] Go ahead.
+- [21:47.180] The Press: Over the weekend, President Trump said
+- [21:48.930] that he would be willing to have US citizens
+- [21:51.190] deported to El Salvador with the cooperation of President Bukele.
+- [21:54.770] How would that work legally and how many people
+- [21:57.200] would potentially be available for that operation?
+- [22:01.240] Ms. Leavitt: So the president has discussed this idea
+- [22:03.330] quite a few times publicly.
+- [22:04.720] He's also discussed it privately.
+- [22:06.800] You're referring to the president's idea
+- [22:08.670] for American citizens to potentially be deported.
+- [22:12.950] These would be heinous, violent criminals
+- [22:15.560] who have broken our nation's laws repeatedly,
+- [22:18.860] and these are violent repeat offenders in American streets.
+- [22:22.260] The president has said if it's legal, right,
+- [22:25.230] if there is a legal pathway to do that,
+- [22:26.900] he's not sure, we are not sure if there is,
+- [22:28.780] it's an idea that he has simply floated
+- [22:30.370] and has discussed very publicly
+- [22:32.770] as in the effort of transparency. Reagan.
+- [22:35.130] The Press: Thank you, Karoline.
+- [22:36.460] There's been more reporting coming out now
+- [22:38.230] about President Biden's decline while in the White House.
+- [22:41.400] Is the White House considering releasing
+- [22:43.170] the audio of Biden's interview
+- [22:44.800] with Special Counsel Robert Hur to the public,
+- [22:47.020] which the former president had previously blocked?
+- [22:50.290] Ms. Leavitt: I don't have an update on that,
+- [22:51.770] but I can certainly check. I think the American people
+- [22:54.940] would be quite interested to hear that tape,
+- [22:56.800] but I'll double check on the release of it.
+- [22:58.400] The Press: Thank you. Ms. Leavitt: Michael.
+- [22:59.670] The Press: Thank you, Karoline.
+- [23:00.950] On Saturday during meetings with Iran,
+- [23:05.160] President Trump says high level officials
+- [23:07.320] will be meeting directly with Iranian officials.
+- [23:10.490] We're hearing some pushback from Iran now
+- [23:12.250] saying those talks will be indirect.
+- [23:14.070] Can you clarify?
+- [23:15.280] Ms. Leavitt: They will be direct talks on Saturday
+- [23:16.940] and I won't get ahead of the President
+- [23:18.760] on any further details. Jennifer.
+- [23:20.850] The Press: Yeah. Two things. On the Israel tariffs,
+- [23:22.740] can you give us an update on the discussion
+- [23:24.570] on relaxing those tariffs?
+- [23:26.010] And then I had had another question
+- [23:27.420] about the DOGE team after that.
+- [23:28.880] Ms. Leavitt: Sure. That discussion is ongoing.
+- [23:30.170] I don't have any definitive details
+- [23:33.510] to iron out for you here.
+- [23:34.930] The Press: And then the president on Thursday told us
+- [23:37.310] that there was an incredible discovery
+- [23:39.140] that the DOGE team had made.
+- [23:40.480] He called it horrible and incredible.
+- [23:42.420] Can you reveal that yet?
+- [23:43.810] Give us details on what it was about?
+- [23:45.400] Ms. Leavitt: There has been a discovery.
+- [23:47.150] I hate to leave you hanging on a cliff,
+- [23:49.260] but I don't want to get ahead of the President on that,
+- [23:51.390] but I can confirm there has been a discovery.
+- [23:53.290] It's just not quite yet ready for release.
+- [23:54.910] Sure. Go ahead
+- [23:56.140] The Press: Karoline, thank you.
+- [23:57.400] Ms. Leavitt: I was calling on the young lady behind you.
+- [23:58.710] The Press: Oh, sorry. The Press: Sorry, Ed.
+- [23:59.950] Ms. Leavitt: But I'll come to you after Ed.
+- [24:01.220] The Press: All right.
+- [24:01.590] Ms. Leavitt: Not discriminating here. Go ahead.
+- [24:02.990] The Press: The president is meeting today
+- [24:04.210] with House Republicans.
+- [24:05.560] Can you say who is in that meeting
+- [24:07.330] and his message to Republicans
+- [24:08.740] that are skeptical of the Senate passed budget framework?
+- [24:11.030] Ms. Leavitt: Sure.
+- [24:12.260] The President will be meeting with Republican lawmakers today
+- [24:15.410] here at the White House to talk to them
+- [24:16.830] about the framework that the Senate passed.
+- [24:19.180] The president was very quick to put out a statement
+- [24:21.230] about his support for the reconciliation package
+- [24:24.300] that the Senate passed,
+- [24:25.520] and he is counting on house Republicans to pass it.
+- [24:28.750] The Republicans received an overwhelming mandate
+- [24:31.570] from the American public to govern.
+- [24:33.340] We have an extraordinary opportunity.
+- [24:35.520] There are key promises that the President made
+- [24:38.450] to the American people in this bill.
+- [24:40.780] Tax cuts, securing the border, deregulation,
+- [24:44.470] unleashing the might of American energy.
+- [24:46.490] These are good things for the American people.
+- [24:48.410] The President wants to see this get done
+- [24:49.970] and that's why he's engaging with lawmakers today.
+- [24:52.130] The Press: Just a quick follow up on tariffs.
+- [24:53.590] Kevin Hassett said today that the administration
+- [24:55.440] is prioritizing talks with Japan and South Korea,
+- [24:58.380] other trading partners.
+- [24:59.650] Are there other countries on that list
+- [25:01.490] that you guys can name publicly
+- [25:03.350] that you're having serious discussions with?
+- [25:04.840] Ms. Leavitt: Sure.
+- [25:06.110] As you have heard from various administration officials,
+- [25:08.590] myself included, there have been nearly 70 countries
+- [25:11.400] that have reached out
+- [25:12.650] to the administration last time I checked.
+- [25:14.380] But again, I hear the phones are ringing off the hook.
+- [25:16.350] There are foreign leaders
+- [25:17.640] who want to fly to Washington tonight
+- [25:19.310] and get on a plane to negotiate with this country,
+- [25:22.400] which shows you the leverage that the president is using,
+- [25:24.920] which shows you the rest of the world needs
+- [25:26.450] the United States of America to do business with Israel,
+- [25:30.550] obviously yesterday you heard a public statement
+- [25:32.550] from Prime Minister Netanyahu.
+- [25:34.260] The president has detailed his calls
+- [25:36.160] with the leaders of Japan and South Korea.
+- [25:39.100] We are going to prioritize our allies
+- [25:41.210] and our partners around the world first
+- [25:43.030] when it comes to these negotiations
+- [25:44.630] and the trade team will be divvying them up again
+- [25:47.040] to make tailor made trade deals around the world.
+- [25:48.820] The Press: Karoline.
+- [25:50.020] Ms. Leavitt: Ed, go ahead. As promised.
+- [25:51.310] The Press: Yes, thank you.
+- [25:52.550] You mentioned the 70 countries or so.
+- [25:54.840] I'm curious though, under what conditions at this point
+- [25:56.940] would President Trump talk to President Xi about tariffs?
+- [26:00.310] Ms. Leavitt: Look, I just spoke to the president about this
+- [26:02.240] and he believes that China wants to make a deal
+- [26:03.960] with the United States.
+- [26:05.250] He believes China has to make a deal with the United States.
+- [26:08.290] It was a mistake for China to retaliate.
+- [26:10.620] The president, when America is punched, he punches back harder.
+- [26:14.560] That's why there will be 104% tariffs
+- [26:17.750] going into effect on China tonight at midnight.
+- [26:20.990] But the President believes that Xi and China
+- [26:22.630] want to make a deal.
+- [26:23.860] They just don't know how to get that started.
+- [26:25.590] And the President also wanted me to tell all of you
+- [26:27.960] that if China reaches out to make a deal,
+- [26:29.560] he'll be incredibly gracious,
+- [26:30.990] but he's going to do what's best for the American people.
+- [26:33.030] The Press: So China has to call first?
+- [26:34.670] Ms. Leavitt: The Chinese want to make a deal,
+- [26:36.240] they just don't know how to do it.
+- [26:37.570] But the President will be implementing
+- [26:39.850] these 104% tariffs on China tonight.
+- [26:42.050] The Press: I wonder, what conditions
+- [26:43.330] might he consider lowering tariffs on China at this point?
+- [26:46.530] Ms. Leavitt: It would be imprudent of me
+- [26:47.840] to tell you those conditions here from the podium.
+- [26:50.360] Sure, Gabe.
+- [26:51.600] The Press: Thanks Karoline.
+- [26:53.540] With regards to the Supreme Court
+- [26:54.880] ruling on the Alien Enemies Act,
+- [26:56.600] you're right, it was a win for the administration,
+- [26:59.120] but the Justices also said
+- [27:00.780] that deportees are entitled to due process.
+- [27:03.280] Does the administration agree with that?
+- [27:04.900] Ms. Leavitt: That's not quite true, Gabe.
+- [27:06.230] They said that they are entitled to a habeas petition
+- [27:10.530] and we are going to continue to comply with the law
+- [27:13.000] and we are wholly confident that every single person
+- [27:16.100] that has been deported under the Alien Enemies Act,
+- [27:18.210] every person that will continue to be deported
+- [27:20.690] under the Alien Enemies Act qualifies for that deportation.
+- [27:24.950] The Press: NBC News is reporting that the administration
+- [27:27.910] is considering drone strikes on drug cartels in Mexico,
+- [27:32.780] citing several officials this morning.
+- [27:34.690] Mexico's president was asked about that
+- [27:36.940] and she said that we reject any of those actions.
+- [27:38.980] Your response?
+- [27:40.210] Ms. Leavitt: I saw that reporting.
+- [27:41.410] I don't want to confirm it from this podium.
+- [27:43.310] I don't want to comment on it because I'm not sure,
+- [27:45.940] but I would defer you to the National Security Council.
+- [27:48.700] The Press: So you haven't confirmed the report,
+- [27:50.670] but with Mexico's president
+- [27:52.000] saying that she rejects any of that,
+- [27:54.390] what would your response be?
+- [27:56.610] How is the relationship then between Mexico's president
+- [27:59.620] and the White House right now over targeting drug cartels?
+- [28:01.970] Ms. Leavitt: Well, first of all,
+- [28:03.200] the relationship between President Sheinbaum
+- [28:05.240] and President Trump is quite good,
+- [28:07.410] and I think both world leaders would tell you that.
+- [28:09.610] The President has been engaged directly
+- [28:11.740] with President Sheinbaum on a number of different topics,
+- [28:14.630] particularly when it comes to clamping down
+- [28:16.700] on the Mexican drug cartels,
+- [28:18.050] on clamping down on illegal immigration,
+- [28:20.190] human trafficking,
+- [28:21.530] drug trafficking through our southern border.
+- [28:23.470] She's taken significant steps towards doing that.
+- [28:25.770] But as for that specific report, again, I'm not going to comment.
+- [28:29.310] The Press: Two questions on trade.
+- [28:31.320] First, as a part of these negotiations,
+- [28:34.300] is it possible for countries to lower their tariffs
+- [28:37.330] below that 10% of bare minimum that's been set?
+- [28:41.100] Ms. Leavitt: Again, I'll leave that to the president
+- [28:42.450] to make those determinations,
+- [28:43.670] but I can tell you that 10% universal baseline
+- [28:46.040] will go into effect as these negotiations are ongoing.
+- [28:48.850] The Press: Got it. And then what is your thinking
+- [28:51.050] just as far as low labor cost countries?
+- [28:53.920] If you've got a country like Vietnam that wants to negotiate,
+- [28:56.890] but obviously they have some advantages in terms of trade,
+- [28:59.540] in terms of the people that are not paid
+- [29:01.670] as much as American citizens, what is the thinking?
+- [29:05.240] Can they still achieve a good trade
+- [29:07.690] outcome with the United States?
+- [29:08.920] Ms. Leavitt: Well, again, you're right to point out
+- [29:10.350] that different countries have different labor markets.
+- [29:13.490] They have different skills,
+- [29:15.280] if you will, different resources,
+- [29:17.050] and the president is going to take all of that into account.
+- [29:19.400] His team will take all of that into account
+- [29:20.910] when they're negotiating these deals.
+- [29:22.760] I do just want to point out one thing
+- [29:24.970] that the president, everybody in Washington,
+- [29:27.830] whether they want to admit it or not,
+- [29:29.580] knows that this president is right when it comes to tariffs
+- [29:32.240] and when it comes to trade.
+- [29:33.490] In fact, Democrats have long said
+- [29:36.410] that the United States of America has been ripped off
+- [29:38.670] by the countries around the world.
+- [29:40.600] They just don't want to admit it now
+- [29:42.150] because it's President Trump who is saying that.
+- [29:43.940] In June of 1996, Nancy Pelosi spoke on the house floor.
+- [29:48.420] She urged her colleagues at the time
+- [29:50.070] to fight against the status quo trade policies
+- [29:52.130] that had contributed
+- [29:53.410] to America's trade deficit with China.
+- [29:55.550] In fact, Nancy Pelosi said, "How far does China have to go?
+- [29:58.950] How much more repression? How big a trade deficit?
+- [30:01.440] How many jobs have to be lost for the American workers?
+- [30:04.530] How much dangerous proliferation has to exist
+- [30:06.850] before members of this House of Representatives will say,
+- [30:09.630] 'I will not endorse the status quo.'"
+- [30:11.680] Those are the words of Nancy Pelosi in 1996.
+- [30:15.000] Well, President Trump is finally answering her call
+- [30:17.670] 27 years later.
+- [30:19.770] Nancy Pelosi can thank President Trump today
+- [30:21.900] for the 104% retaliatory tariff
+- [30:24.260] that will be going into effect on China.
+- [30:26.230] In 2007, Chuck Schumer spoke of our nation's
+- [30:29.630] crippling trade deficits saying, "These are the kinds of records
+- [30:32.400] the American people don't want us to be breaking.
+- [30:34.870] The administration needs to move beyond words.
+- [30:37.060] Take action now to reverse a trend
+- [30:38.890] that threatens our prospects for future economic growth."
+- [30:41.950] And Chuck Schumer said that in 2007.
+- [30:45.120] Finally in 2025, President Trump is taking action.
+- [30:49.530] Recently defeated Democrat,
+- [30:50.810] Sherrod Brown said on deficits in 2012
+- [30:54.120] that our deficit then at China had reached an all time high,
+- [30:57.610] and it was on pace to recede last year's record.
+- [31:00.700] The trade deficit had cost American workers
+- [31:03.240] millions of jobs at the time.
+- [31:05.340] These are the words of Democrats years ago.
+- [31:08.400] It is about time America finally has a president
+- [31:10.950] who is taking action to restore those millions of jobs
+- [31:14.220] back to the United States of America
+- [31:15.840] to boost our manufacturing industry.
+- [31:17.970] He's doing what's right for the American people.
+- [31:20.080] It will take a lot of labor, it will take a lot of effort,
+- [31:22.570] but that's exactly what the American people
+- [31:24.370] elected this president to do.
+- [31:25.980] He will be talking about our energy agenda at 3:00 today
+- [31:28.920] over in the East Room.
+- [31:30.190] As you all know, he will be signing a bill
+- [31:32.660] to unleash the might of our beautiful clean coal industry
+- [31:37.400] in this country, which is a reliable energy source.
+- [31:40.490] Also for AI, there's a great story in Bloomberg today
+- [31:42.970] actually about the executive order that will be signed later,
+- [31:45.400] so we'll see you all there.
+- [31:46.620] I'll let the president speak more.
+- [31:48.050] We'll see you later. Thanks, guys.
+- [31:49.560] The Press: Thank you.

@@ -1,0 +1,557 @@
+<!-- source: https://www.youtube.com/watch?v=E3xFA9Dgb6Y -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: E3xFA9Dgb6Y -->
+<!-- date_published: 2025-10-29T07:43:46+00:00 -->
+<!-- date_accessed: 2026-06-02T01:11:56.524303+00:00 -->
+
+# Transcript: President Trump Gaggles with Press on Air Force One, Oct. 28, 2025
+
+- [00:05.170] The President: Hello, everybody.
+- [00:07.210] We had a great trip to Japan, and it was really wonderful.
+- [00:11.430] Malaysia, fantastic. Hundreds of billions of dollars
+- [00:16.010] are coming into our country primarily
+- [00:18.060] because of the election result, but the real reason is tariffs.
+- [00:22.850] The tariffs are coming in.
+- [00:24.980] And as you know, last night I was with
+- [00:29.680] a lot of the greatest leaders in Japan,
+- [00:31.460] the biggest business people,
+- [00:33.440] and Mr. Toyoda was there, from Toyota,
+- [00:35.800] and he's agreed to invest $10 billion in building auto plants.
+- [00:40.860] They're going to build numerous auto plants
+- [00:42.480] throughout the United States with American workers,
+- [00:44.960] as you know. And it's a tremendous --
+- [00:47.820] It'll be one of the biggest investments
+- [00:49.460] ever in the auto business.
+- [00:50.660] This isn't just AI, this is in the auto business.
+- [00:55.770] And that was because of tariffs. This way he --
+- [00:58.890] It's the old story, if you build in the United States,
+- [01:01.010] you don't have any tariffs. So everyone's coming in.
+- [01:04.280] We're up to close to $20 trillion of investment.
+- [01:08.500] And yesterday, as you saw, we picked up about $518 billion.
+- [01:12.800] These are big numbers.
+- [01:14.940] These are numbers that no country has ever seen before.
+- [01:18.270] And we're now going, as you know, to South Korea,
+- [01:20.800] then I'm meeting tomorrow with President Xi.
+- [01:24.770] The Press: Mr. President, sir, on the Xi meeting,
+- [01:27.600] are you expected or do you anticipate being willing
+- [01:30.580] to lower the fentanyl-related tariffs that you can see?
+- [01:34.080] The President: Yes, I expect to be lowering that,
+- [01:36.360] because I believe that they're going to help us
+- [01:38.350] with the fentanyl situation.
+- [01:39.610] They're going to be doing what they can do.
+- [01:43.130] The Press: And on the rare earth curb, sir,
+- [01:44.970] do you need to see more than just a one-year delay?
+- [01:47.060] Is that sufficient to make other concessions?
+- [01:48.590] The President: I don't know.
+- [01:49.820] We haven't talked about the timing yet,
+- [01:51.340] but we're going to work out something.
+- [01:53.160] We're doing very well with rare earth, as you know.
+- [01:55.960] And we're I think going to make a big step with fentanyl.
+- [02:00.350] The thing with fentanyl, the border is now so tight,
+- [02:03.090] it's much tougher for them.
+- [02:08.410] We've been doing very well with that.
+- [02:10.870] I call them the drug by sea, the boats,
+- [02:12.560] we took out four of them over the last few days
+- [02:16.550] and they're really stopping. They're not coming anymore.
+- [02:18.870] They're coming by land, but to a lesser extent.
+- [02:21.420] And if necessary, we're going to --
+- [02:23.550] Well, it will be necessary probably,
+- [02:25.530] but we'll be hitting them at land.
+- [02:27.670] But the boats are very few and far between.
+- [02:31.740] We took in tremendous amounts of death --
+- [02:34.170] I call them the boats of death --
+- [02:36.490] tremendous amounts of death coming into our country.
+- [02:39.610] And each -- Just it's estimated,
+- [02:40.880] I don't know if this is exactly right, but it's pretty close --
+- [02:45.800] 25,000 people die from each boat that we take out.
+- [02:48.970] If it had gotten back, if it had gotten into our country,
+- [02:52.470] kills 25,000 people.
+- [02:54.440] Not even talking about the destruction
+- [02:56.700] it does to families in terms of people that are --
+- [02:59.490] become addicted and all of the problems
+- [03:01.920] caused by fentanyl to families.
+- [03:06.190] And over the last two days, I guess we took out four,
+- [03:08.910] but there are very few of them. There are very few of them now.
+- [03:11.900] That's down, I hear that's down about 80 percent by water,
+- [03:15.440] the drugs by water, as you know, about 80 percent down.
+- [03:19.810] And I would imagine it's going to be pretty close
+- [03:21.690] to 100 percent. Nobody wants to do it.
+- [03:24.470] And we'll be, and we already are,
+- [03:26.460] we're stopping them on land also.
+- [03:29.650] We're actually making our country safe.
+- [03:31.560] Think about it. I'm just saying as I speak to you,
+- [03:34.730] very simply, we're making our country safe.
+- [03:36.460] It's a beautiful thing.
+- [03:38.340] The Press: Sir, what is China doing to justify
+- [03:40.750] removing fentanyl tariffs?
+- [03:42.700] The President: Well, I think
+- [03:44.020] they're going to do things that --
+- [03:46.850] They have an industry that has to do with drugs,
+- [03:50.120] and the fentanyl has other reasons for being,
+- [03:53.810] and we have to get rid of it. We have to stop it.
+- [03:57.360] And now we're stopping it at the border
+- [03:59.780] to a very much larger extent than ever before.
+- [04:01.810] Under Biden you had open borders,
+- [04:03.330] this stuff was flowing in.
+- [04:05.600] I think they killed 300,000 people last year,
+- [04:09.920] fentanyl drugs coming through the southern border.
+- [04:13.020] And now nobody gets through the southern border.
+- [04:14.910] We just had another report of a zero.
+- [04:18.140] Zero people came. We are very tough on the border.
+- [04:21.440] And we're allowing people into our country,
+- [04:23.150] but they're coming in legally, through the legal process.
+- [04:26.690] And I want to commend, I have to tell you,
+- [04:28.490] our border agents,
+- [04:29.890] our border patrol agents, they've been amazing.
+- [04:33.190] And ICE, these people do such a great job.
+- [04:36.180] What they're doing, Memphis is making tremendous progress,
+- [04:39.620] as you know, is extremely dangerous.
+- [04:42.020] And already it's down to less than 50 percent.
+- [04:45.520] A lot of criminals, career criminals,
+- [04:47.260] people that came in illegally,
+- [04:49.100] have been brought back to their countries
+- [04:51.520] and never to come back again.
+- [04:53.890] We tell them if you come back again, it's going to be brutal.
+- [04:56.200] The Press: Sorry, just to clarify,
+- [04:57.430] so China's going to be working with U.S.
+- [04:58.900] law enforcement on fentanyl or how is that going to work?
+- [05:02.460] The President: China's going to be working with me.
+- [05:04.520] Okay. They're going to be working with me
+- [05:06.270] and we're going to do something, I believe.
+- [05:08.740] I mean, look, we have to have the meeting,
+- [05:10.350] a meeting tomorrow, that's a big meeting.
+- [05:12.430] And fentanyl will be one of the things
+- [05:14.420] that we're discussing, important things.
+- [05:16.510] We'll be discussing the farmers.
+- [05:17.870] We'll be discussing a lot of things,
+- [05:19.300] but fentanyl will be one of the things we're discussing.
+- [05:21.620] The Press: What did you mean last night
+- [05:22.840] when you said you were prepared to send
+- [05:24.370] more than the National Guard into American cities?
+- [05:28.470] The President: Sure, I would do that if it was necessary.
+- [05:30.800] If it was necessary, I'd do that,
+- [05:33.040] but it hasn't been necessary.
+- [05:34.700] We're doing a great job without that.
+- [05:36.930] But yeah, if it was necessary.
+- [05:38.610] As you know, I'm allowed to do that.
+- [05:40.890] The Press: Do you mean other branches of the military
+- [05:42.430] you would send in or --
+- [05:44.670] The President: Who are you with?
+- [05:46.350] The Press: The New York Times.
+- [05:48.230] The President: Well, if you write it correctly,
+- [05:50.940] I'll give you the answer.
+- [05:52.450] But I want to enact a certain act.
+- [05:55.180] I'm allowed to do it routinely, and other,
+- [05:58.780] about 50 percent of presidents have used that, as you know.
+- [06:04.120] And I'd be allowed to do whatever I want.
+- [06:06.590] But we haven't chosen to do that
+- [06:08.110] because we're doing very well without it.
+- [06:11.160] But I'd be allowed to do that, you understand that.
+- [06:13.210] And the courts wouldn't get involved.
+- [06:15.200] Nobody would get involved.
+- [06:16.900] And I could send the Army, Navy, Air Force, Marines,
+- [06:18.610] I can send anybody I wanted,
+- [06:20.850] but I haven't done that because we're doing so well without it.
+- [06:24.500] Washington, DC, continues to be amazing, safe,
+- [06:28.020] and it's really great.
+- [06:31.960] As I said, Memphis, where we are now is doing really well.
+- [06:35.380] It's down, I think almost 70, 60, 70 percent,
+- [06:38.560] and within two, three weeks,
+- [06:40.700] it'll be down to almost no crime.
+- [06:43.570] Now we're taking a lot of bad people out.
+- [06:46.160] We're incarcerating some very bad people,
+- [06:48.230] some gangs, they have a lot of bad gangs there,
+- [06:49.960] and we're taking care of it.
+- [06:51.890] And we're doing things that, frankly, local law enforcement's
+- [06:54.570] going to have a hard time doing.
+- [06:55.920] But we were all set to go last Saturday into San Francisco.
+- [06:59.920] We looked forward to that.
+- [07:01.520] We would've solved that problem in less than a month.
+- [07:04.670] But at the behest of a couple of really great people,
+- [07:08.790] very successful,
+- [07:10.030] great civic-minded people, they said,
+- [07:12.510] "We'd love to try doing it ourselves."
+- [07:15.260] And that's okay. And we worked with the mayor,
+- [07:19.500] and we're working with those people,
+- [07:20.880] but we didn't surge the city. And I said if we surge,
+- [07:24.010] it's going to go a lot quicker and it's much more effective.
+- [07:29.730] But I want to give them a chance to do it themselves if they can.
+- [07:32.550] If they can't do it themselves,
+- [07:34.460] we'll solve San Francisco in two weeks.
+- [07:37.270] The Press: Mr. President, on the southern border.
+- [07:38.830] Claudia, President Sheinbaum of Mexico
+- [07:41.170] said that the tariff truce with the U.S.
+- [07:42.920] has been extended for talks. How long are you willing to wait
+- [07:45.470] for that to play out, that extension?
+- [07:46.760] The President: Well, I like the extension with Mexico
+- [07:48.870] because we're doing very well with that extension.
+- [07:50.670] We get a lot of tariffs. They're paying a lot of money.
+- [07:54.820] As you know, a lot of car companies
+- [07:56.360] are moving from Mexico back into the United States.
+- [07:58.970] They took our car companies a long time ago,
+- [08:01.180] 30 years ago and more.
+- [08:04.020] We lost about 57 percent of our automobile
+- [08:08.320] manufacturing over the decades.
+- [08:10.840] And it's all coming back because of tariffs.
+- [08:12.910] It's all coming back,
+- [08:14.830] and the tariffs are really national security
+- [08:17.320] as much as anything else.
+- [08:18.820] It's national security in many ways,
+- [08:20.310] but one of the ways that it's national security
+- [08:22.930] is we're building up great wealth because of tariffs,
+- [08:26.330] and that you need wealth to be secure.
+- [08:29.640] But it's in a more traditional sense
+- [08:32.390] also national security, very important.
+- [08:35.170] But we're bringing back our auto plants
+- [08:37.860] that deserted us 20 and 30 years ago.
+- [08:40.740] They're all coming back.
+- [08:42.620] Last night I met with Mr. Toyoda,
+- [08:48.620] and we had an amazing meeting.
+- [08:51.870] I said, "What's your name? "Toyota." I said, "You're rich."
+- [08:56.440] And he's going to invest, think of this,
+- [08:58.790] $10 billion in the United States to build manufacturing plants.
+- [09:03.480] They'll build their cars with American workers largely.
+- [09:05.890] I mean, they have the right to send some experts,
+- [09:09.180] but they're going to be building cars in the United States.
+- [09:12.240] So we're getting all of our manufacturing
+- [09:15.590] back in the car business.
+- [09:17.520] And AI, we're leading China, we're leading the world in AI.
+- [09:21.300] We're getting them rapid approvals on energy,
+- [09:24.830] and I've allowed them to produce their own energy for each plant,
+- [09:29.750] so that rather than relying on an old and somewhat weak grid,
+- [09:35.360] the electric grid, they build their own energy.
+- [09:38.030] And then, if they have excess energy,
+- [09:39.780] they sell it back into the grid.
+- [09:41.980] So it's great. It's really worked out well.
+- [09:44.880] It's allowing them to build rapidly
+- [09:47.320] and they are building all over the United States.
+- [09:49.280] The Press: In the Middle East, sir.
+- [09:50.520] Sir, could we get your reaction to Israel
+- [09:52.140] striking in Gaza again?
+- [09:55.070] The President: Well, as I understand it,
+- [09:56.590] they took out an Israeli soldier.
+- [10:00.420] I just heard about it a little while ago.
+- [10:03.150] They took out, they killed an Israeli soldier,
+- [10:05.570] so the Israelis hit back. And they should hit back.
+- [10:08.780] When that happens, they should hit back.
+- [10:10.200] The Press: Do you think that --
+- [10:11.420] Does that worry you about the ceasefire?
+- [10:13.140] Does that jeopardize the ceasefire in any way?
+- [10:14.720] The President: No, no. Nothing's going to jeopardize.
+- [10:17.140] You have to understand,
+- [10:18.370] Hamas is a very small part of peace in the Middle East
+- [10:21.570] and they have to behave.
+- [10:23.430] They're on the rough side, but they said they would be good.
+- [10:28.900] And if they're good, they're going to be happy.
+- [10:30.880] And if they're not good, they're going to be terminated.
+- [10:34.280] Their lives will be terminated, and they understand that.
+- [10:38.120] And we have many countries that are willing to do that.
+- [10:40.580] We have many countries, even Japan today
+- [10:43.230] said we'd love to be involved in the Middle East
+- [10:45.180] and we can help you by sending anybody,
+- [10:48.640] by sending people, including experts.
+- [10:51.310] But we have many countries that would do that, not just Israel.
+- [10:54.080] No, that's a very strong peace.
+- [10:56.460] Hamas is a small thing, but they kill people.
+- [10:59.890] They grew up killing people, and I guess, they don't stop.
+- [11:03.640] But nobody knows what happened to the Israeli soldier,
+- [11:09.020] but they say it was sniper fire and it was retribution for that.
+- [11:14.960] And I think they have a right to do that.
+- [11:16.680] The Press: Is it possible that there are fringe elements
+- [11:18.610] within Hamas that are trying to undermine this?
+- [11:20.300] The President: I think there are,
+- [11:21.530] because we actually met with people that were leading it.
+- [11:24.640] And they really want to see -- And they're really --
+- [11:27.460] In my opinion, based on the experts that dealt with them,
+- [11:32.020] I think they're unhappy when they see
+- [11:34.810] some people being killed. It's not like it was,
+- [11:37.800] but some people being killed, we don't want that.
+- [11:40.540] The Press: Will Hamas decommission its weapons?
+- [11:42.110] That's a key part of the next step with this.
+- [11:43.900] The President: (inaudible) that right now.
+- [11:45.120] That's starting because we're getting into phase two
+- [11:47.900] and that's starting. But you have to understand,
+- [11:49.780] Hamas is a very small part of the overall Middle East peace.
+- [11:53.610] We have peace in the Middle East.
+- [11:56.270] If we have to, we'll take out Hamas very easily,
+- [11:59.510] and that'll be the end of Hamas.
+- [12:01.690] We would rather not. We made a deal with them
+- [12:04.100] where they were going to behave and have to behave.
+- [12:06.560] If they don't behave, they get taken out.
+- [12:08.650] And it could be from numerous countries,
+- [12:10.280] it could be from Israel,
+- [12:11.500] but it could also be from other countries.
+- [12:13.750] Numerous countries have already called me,
+- [12:15.640] that are parties to the deal,
+- [12:17.650] and said, "We'd love to do it if you'd want us to do it."
+- [12:19.900] And these are powerful countries.
+- [12:22.000] These are not countries to be toyed with.
+- [12:24.070] The Press: Sir, what's your reaction to North Korea
+- [12:27.360] test-launching a missile this morning?
+- [12:29.580] The President: What did you say?
+- [12:30.790] The Press: North Korea test- launched missiles this morning.
+- [12:33.570] What's your reaction to that?
+- [12:34.810] The President: I don't understand.
+- [12:36.040] The Press: Missiles, the North Korean missiles?
+- [12:37.400] The President: Oh, I don't know.
+- [12:39.220] He's been launching missiles for decades, right?
+- [12:44.580] It's another missile that was launched.
+- [12:47.590] I always had a very good relationship with him.
+- [12:50.510] So at some point I'll be meeting.
+- [12:52.580] The schedule is very tight, as you know,
+- [12:54.570] but at some point I look forward to (inaudible).
+- [12:57.710] We had a very good relationship. I mean more than a --
+- [13:00.190] We had a really good understanding of each other.
+- [13:03.390] We met, we spoke to each other a numerous times and
+- [13:05.560] (inaudible) a good relationship.
+- [13:07.090] At some point we'll be involved with North Korea.
+- [13:10.170] The Press: Does that mean, sir,
+- [13:11.450] no meeting with Kim Jong un this trip?
+- [13:13.270] The President: I don't know. The people were --
+- [13:14.730] I think they'd like to, and I'd like to,
+- [13:16.720] but I also want to focus on China.
+- [13:19.290] I mean, our focus is now on tomorrow with China,
+- [13:22.350] and I want to make that the focus.
+- [13:24.250] But we'll come back and we'll, at some point
+- [13:26.590] in the not-too-distant future, meet with North Korea.
+- [13:29.240] The Press: How much do you expect Xi
+- [13:30.570] to try to push you on Taiwan?
+- [13:33.370] The President: I don't know that we'll even speak about Taiwan.
+- [13:35.210] I'm not sure. I mean, he may want to ask about it.
+- [13:39.080] There's not that much to ask about it.
+- [13:41.170] Taiwan is Taiwan.
+- [13:43.470] But the beautiful part about Taiwan, frankly,
+- [13:45.610] and they understand it, is we're bringing
+- [13:47.320] a lot of those chipmakers into the United States.
+- [13:49.770] If you look at the number one chipmaker in the world,
+- [13:52.840] they're building a massive factory in Arizona.
+- [13:54.920] The biggest in the world actually, we're making chips.
+- [13:58.760] If you look at Nvidia, Nvidia is doing unbelievable.
+- [14:03.750] We're bringing a lot of the Taiwan business
+- [14:08.550] back to the United States. I think by --
+- [14:12.120] Within two years, I think we'll have 40
+- [14:13.830] to 50 percent of the chip market.
+- [14:15.430] But that's happening.
+- [14:17.680] And I don't know, it's happening because of the tariffs.
+- [14:20.820] It's also happening because of the fact they probably,
+- [14:23.580] maybe, they're a little bit concerned about things,
+- [14:26.620] who knows? But they are tremendous.
+- [14:28.450] I don't know if you're reporting it,
+- [14:31.650] but massive numbers and percentages of the chip business
+- [14:36.490] is coming back right now as we speak.
+- [14:38.820] They're building plants in Arizona, Texas,
+- [14:40.960] and other places.
+- [14:42.210] The Press: On chips, sir,
+- [14:43.450] have you agreed or will you agree with Xi,
+- [14:46.130] potentially to allow the license of more exports
+- [14:48.390] of Nvidia Blackwells or downgraded (inaudible)?
+- [14:50.110] The President: (inaudible)
+- [14:51.310] about Blackwell, we'll be speaking
+- [14:52.690] about Blackwell's super-duper chip.
+- [14:56.030] Blackwell is amazing, Nvidia makes it.
+- [14:58.780] But Jensen is an amazing, brilliant man,
+- [15:03.210] and it's probably 10 years ahead of any other chip.
+- [15:06.770] And unlike a lot of other businesses,
+- [15:08.460] you just can't catch him.
+- [15:09.840] It's mostly you can copy and you can do things,
+- [15:12.380] you really can't in the chip business for whatever reason,
+- [15:15.290] that doesn't work that way. But Blackwell just came out.
+- [15:18.730] Jensen presented me with the first Blackwell chip
+- [15:22.920] three days ago in the Oval Office.
+- [15:25.520] And it's an amazing thing that they've done.
+- [15:29.310] But that's our country, we're about 10 years ahead
+- [15:33.390] of anybody else in chips,
+- [15:35.520] in the highly sophisticated chips.
+- [15:37.900] I think we may be talking about that with President Xi.
+- [15:39.800] The Press: (inaudible)
+- [15:41.000] China has actually discouraged sale, purchase of those chips.
+- [15:42.830] Is that something that's on the table?
+- [15:44.980] The President: Well, China actually terminated
+- [15:50.760] the relationship with Nvidia. That was a big thing.
+- [15:54.450] But in the meantime, Nvidia hit a brand new high, as did --
+- [15:58.210] You know the stock market yesterday
+- [15:59.630] hit the highest ever than it ever was.
+- [16:02.690] So we're doing all of the markets.
+- [16:04.860] I mean, every one of our market's saying --
+- [16:07.440] We're doing great. The country is doing great.
+- [16:09.460] We have the shutdown caused by the Democrats,
+- [16:12.240] and at some point they'll come back.
+- [16:16.880] I think they're getting just killed right now.
+- [16:18.820] But all they have to do
+- [16:21.010] is say let's get back to business and we're back.
+- [16:23.080] There's nothing to sign. There's nothing to negotiate.
+- [16:25.780] The Press: On Hurricane Melissa, have you been following that?
+- [16:28.550] The Jamaican government is (inaudible) --
+- [16:30.130] The President: No, I have,
+- [16:31.440] because I've never seen numbers like that.
+- [16:32.860] I saw it a little while ago, 195-mile an hour wind.
+- [16:36.510] I've never seen that before. I've never seen --
+- [16:38.750] I guess it can get that high, but I've never seen it.
+- [16:41.260] And it's literally just knocking down everything in front of it.
+- [16:46.980] It's a stage 5, I guess, and you don't see stage 5,
+- [16:50.990] you don't see 5s very often, you see 4s and 3s.
+- [16:54.460] But this is a 5 early on, meaning it gets worse.
+- [16:58.670] So it's done a tremendous job, you mean on Jamaica?
+- [17:01.350] The Press: Is the United States going to aid Jamaica?
+- [17:03.620] The President: On a humanitarian basis, we have to.
+- [17:05.850] So we're watching it closely and we're prepared to move,
+- [17:09.110] but it's doing tremendous damage as we speak.
+- [17:14.440] It's right there right now.
+- [17:16.170] The Press: Sir, can I ask you, on the market recalls,
+- [17:20.180] like some experts warn about an AI bubble.
+- [17:21.830] Are you concerned?
+- [17:23.070] The President: What's the AI problem?
+- [17:24.580] The Press: That's what some experts say
+- [17:26.670] that some investments are, some investors are overreacting.
+- [17:28.570] The President: (inaudible)
+- [17:29.770] everybody wants AI because it's the new internet.
+- [17:33.400] It's the new everything.
+- [17:34.780] It's one of the biggest things anyone's ever seen.
+- [17:37.880] So everyone wants it.
+- [17:39.190] Yeah, I mean, the only problem is if you don't get it.
+- [17:41.630] In order to get it, you have to be able to produce
+- [17:43.610] some tremendous amounts of electricity,
+- [17:46.620] and we're allowing them to produce
+- [17:48.490] and make their own electricity.
+- [17:50.640] This way, they don't have to rely on government.
+- [17:53.940] And by the way, they're making electric plants
+- [17:56.570] that are so sophisticated and so incredible,
+- [17:59.550] so much beyond, that companies
+- [18:01.830] that make and service electricity, Con Edison,
+- [18:04.800] all the different companies that do that and do it well,
+- [18:09.830] but they've never seen anything like what's happening.
+- [18:12.010] It's almost a revolution in the making of electricity,
+- [18:15.370] the level of sophistication.
+- [18:17.820] The Press: Sir, Speaker Johnson says that he told you
+- [18:20.570] that there's no time to amend the Constitution
+- [18:23.220] to allow you to serve a third term.
+- [18:24.650] Is that an accurate representation
+- [18:25.990] of the conversation you had?
+- [18:27.280] The President: I don't know.
+- [18:28.500] I don't want to even talk about that,
+- [18:30.400] because the sad thing is I have my highest numbers
+- [18:33.100] that I've ever had.
+- [18:34.450] That's actually -- And I ended eight wars,
+- [18:36.660] and we have the greatest economy in history.
+- [18:39.080] And by the way, energy prices are way down.
+- [18:42.370] Everything's way down. Beef is a little bit high.
+- [18:44.550] We're going to get beef down too.
+- [18:46.410] But prices are down and the economy's up.
+- [18:48.750] The only thing that's not down is the stock prices
+- [18:52.030] and 401(k)s are through the roof.
+- [18:54.310] Everyone's 401(k) is hitting records.
+- [18:57.330] So we have the greatest economy we've ever had.
+- [19:00.120] I have my highest poll numbers that I've ever had.
+- [19:03.200] And based on what I read, I guess I'm not allowed to run.
+- [19:06.980] So we'll see what happens.
+- [19:08.260] The Press: Johnson says you're trolling
+- [19:09.530] when you talk about a third term,
+- [19:11.030] are you trolling or are you serious?
+- [19:12.380] The President: I don't think he said that.
+- [19:13.620] I don't think he'd used that term,
+- [19:14.910] but it's a very interesting thing.
+- [19:18.480] I have the best numbers for any president
+- [19:21.690] in many years, any president.
+- [19:23.650] And I would say that if you read it
+- [19:26.520] it's pretty clear, I'm not allowed to run.
+- [19:29.090] It's too bad, I mean, it's stupid.
+- [19:31.100] But we have a lot of great people.
+- [19:32.620] The Press: Food stamps have stopped to be being sent out
+- [19:35.930] on Saturday. The Department of Agriculture
+- [19:37.870] says they cannot tap into contingency
+- [19:39.880] funding to fund that. Is your administration --
+- [19:42.060] The President: Fund what?
+- [19:43.350] The Press: Food stamps, SNAP benefits --
+- [19:44.640] is your administration looking at --
+- [19:45.860] The President: We're going to get it done.
+- [19:47.400] The Democrats have caused the problem on food stamps.
+- [19:50.180] They've caused -- All they have to do is sign.
+- [19:52.470] And if they sign, I'll meet with them.
+- [19:54.610] They're all saying -- Well, they actually said,
+- [19:58.530] "Trump is doing an amazing job in this trip."
+- [20:01.870] This trip, we're bringing back trillions of dollars.
+- [20:03.890] So it's hard. But they do want to meet with me when I get back.
+- [20:07.310] But I say, get the economy open and we'll meet.
+- [20:10.370] I'll meet and we'll solve any difficulties.
+- [20:12.850] We have to fix healthcare because Obamacare is a disaster.
+- [20:16.980] I mean, when you see the increases in Obamacare,
+- [20:20.100] it never worked, it never will work.
+- [20:22.780] And we could do something, work with the Democrats,
+- [20:25.540] much better than Obamacare.
+- [20:27.580] Less money and better healthcare.
+- [20:30.530] And that's something I think that could come out of this
+- [20:34.390] with the Democrats, work with the Democrats.
+- [20:36.960] Because right now the insurance companies
+- [20:38.470] are making too much money and they're making a fortune.
+- [20:42.860] And the healthcare, Obamacare,
+- [20:46.020] is poor and the premiums are ridiculous.
+- [20:49.580] It's going up a lot.
+- [20:51.180] I don't want to say the number, the number is very substantial,
+- [20:54.430] but when you hear the number and it's Obamacare.
+- [20:56.620] It never worked, it never will work.
+- [20:58.830] It'll never be good.
+- [21:00.160] And I think it's a great time
+- [21:01.850] for the Republicans and Democrats to get together
+- [21:04.090] and make something that will work
+- [21:07.120] and let the insurance companies make money,
+- [21:09.490] they're entitled to that,
+- [21:10.700] but not the kind of money that they're making.
+- [21:12.480] The Press: Would you bring Democrats
+- [21:13.860] in to have that discussion now?
+- [21:15.120] The President: Yeah, I would do that, sure.
+- [21:16.350] The Press: But now, sir?
+- [21:17.560] The President: Well, I'd say open up the government
+- [21:18.850] and we'll work it out.
+- [21:20.130] I think a lot of good things can happen from it.
+- [21:22.470] Well, listen, thank you very much.
+- [21:23.700] We have two big days. This is a big day,
+- [21:25.400] and we're going to be speaking in APEC.
+- [21:27.850] And a lot of countries are there.
+- [21:30.470] They're all investing in the US.
+- [21:33.310] We're the hottest we've ever been.
+- [21:34.720] We're the hottest country in the world,
+- [21:36.540] and they're all investing. So I'll be doing that.
+- [21:39.240] And then, tomorrow morning is the one
+- [21:42.010] that most people find the most interesting.
+- [21:44.600] And I think we're going to have a great meeting
+- [21:46.330] with President Xi of China,
+- [21:48.820] and a lot of problems are going to be solved. Okay?
+- [21:51.150] The Press: You're optimistic? You're optimistic about it?
+- [21:53.220] The President: Yeah, I'm very optimistic. I am.
+- [21:55.060] And I know a little bit about what's going on
+- [21:57.050] because we have been talking to them,
+- [22:00.590] we're not just walking into a meeting cold.
+- [22:03.340] But the relationship with China is very good.
+- [22:05.890] So I think we're going to have a very good outcome
+- [22:08.910] for our country and for the world, actually.
+- [22:10.690] I think it's important for the world.
+- [22:12.640] The Press: How was your day with the prime minister?
+- [22:14.260] The President: We're doing very well with rare earth.
+- [22:17.030] We're involved with rare earth all over the place now,
+- [22:20.080] and some amazing things are happening.
+- [22:22.780] The Press: How was your day with the Japanese prime minister?
+- [22:25.540] The President: I think she's fantastic.
+- [22:27.690] I think she's a wonderful woman.
+- [22:29.370] She's very sharp, very smart, very energetic, and you see it.
+- [22:32.870] I mean, the pictures don't lie.
+- [22:35.650] They really don't. The pictures are amazing.
+- [22:39.110] I saw some of the pictures this morning and they're amazing.
+- [22:41.710] But I think she's a terrific woman,
+- [22:44.230] first woman ever to be prime minister of Japan,
+- [22:47.820] and she'll go down as one of the really great ones.
+- [22:50.680] I had a fantastic relationship with Shinzo Abe,
+- [22:54.570] the prime minister who was assassinated,
+- [22:58.580] horribly assassinated. He was a great man.
+- [23:00.630] And he was my best relationship,
+- [23:04.640] and she comes from that exact camp.
+- [23:06.800] He would've supported her had he been around.
+- [23:08.850] The Press: Were you touched by the putter
+- [23:10.070] and the golf bag you received?
+- [23:11.310] The President: Yeah, they're beautiful.
+- [23:12.510] I played golf with him,
+- [23:13.830] and they gave me the putter that he played with.
+- [23:15.940] And he putted very well that day, I remember.
+- [23:18.190] Thank you very much, everybody.
+- [23:19.620] The Press: Thank you, Mr. President.
+- [23:20.840] Thank you.

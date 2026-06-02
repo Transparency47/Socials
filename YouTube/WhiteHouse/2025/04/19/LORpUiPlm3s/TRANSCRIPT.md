@@ -1,0 +1,161 @@
+<!-- source: https://www.youtube.com/watch?v=LORpUiPlm3s -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: LORpUiPlm3s -->
+<!-- date_published: 2025-04-19T00:45:01+00:00 -->
+<!-- date_accessed: 2026-06-02T01:27:37.762823+00:00 -->
+
+# Transcript: The Story of America: An Introduction
+
+- [00:03.000] Four and seven years
+- [00:06.040] ago, our fathers crossed the
+- [00:11.550] [Applause]
+- [00:13.160] north to be I am in my devotion
+- [00:17.460] [Music]
+- [00:21.140] [Applause]
+- [00:38.920] to Hello, I am Larry Arn, president of
+- [00:41.920] Hillsdale College and I'm honored to
+- [00:43.760] welcome you to the Indian treaty room in
+- [00:46.239] the Eisenhower Executive Office
+- [00:48.000] Building, part of the White House
+- [00:50.440] complex. President Trump wishes to
+- [00:53.120] celebrate the 250th anniversary of the
+- [00:55.840] Declaration of Independence next year
+- [00:57.920] with an open heart. The college is
+- [01:00.480] honored because it loves the Declaration
+- [01:02.160] of Independence. Our oldest building was
+- [01:04.799] dedicated on the 4th of July in 1853.
+- [01:07.920] Then the president of the college at
+- [01:09.680] that time who became known to Abraham
+- [01:11.960] Lincoln gave a speech in which he said
+- [01:14.320] freedom and learning go together and
+- [01:16.640] ignorance and slavery go together. One
+- [01:19.520] of the things we must do to commemorate
+- [01:21.479] anything commemorate just means to
+- [01:24.080] remember together first we have to know
+- [01:26.720] the thing and we can't remember it very
+- [01:29.040] well if we don't know it very well. And
+- [01:31.680] so part of the purpose of this series of
+- [01:34.439] lectures is to remember President Trump
+- [01:38.560] does this in part I think I don't speak
+- [01:40.960] for him but uh the word again is
+- [01:44.720] important to him. He has a famous slogan
+- [01:46.720] that I will not repeat here but
+- [01:48.000] everybody knows what it is and it ends
+- [01:50.000] with the word
+- [01:51.880] again. He wants to do something
+- [01:55.799] again. Something already been done. He
+- [01:58.880] wants to see it happen again.
+- [02:04.320] This places him somewhere near the
+- [02:05.920] politics of Abraham Lincoln. I think
+- [02:09.119] George Washington did something for the
+- [02:11.280] first time extremely honorable,
+- [02:13.680] including the defense of the Declaration
+- [02:15.599] of Independence on battlefields. Abraham
+- [02:18.400] Lincoln comes along later and he wants
+- [02:21.200] to restore all of that. He took the view
+- [02:23.920] that that was a very hard thing to do,
+- [02:26.319] but it wasn't a new thing to do. It was
+- [02:29.840] something that we should remember and
+- [02:38.040] commemorate. In introducing this series,
+- [02:40.640] I want to begin by uh encouraging you to
+- [02:44.160] read the Declaration of Independence.
+- [02:45.840] It's just over 1300 words long. It is
+- [02:48.480] one of the most consequential and
+- [02:49.920] beautiful political documents in all of
+- [02:51.840] history. You should read it again and
+- [02:53.920] again. You should memorize the beginning
+- [02:55.680] of it. It's very beautiful. It is grand
+- [02:58.400] and eternal and eloquent and it reclaims
+- [03:00.800] the rights of us all. It begins
+- [03:03.800] universally when in the course that
+- [03:05.920] means anytime one people that means any
+- [03:09.440] people. It refers to the laws of nature
+- [03:12.159] and of nature's god. Those would be
+- [03:14.080] eternal laws. Laws that we don't make
+- [03:16.800] laws that are ever and
+- [03:20.200] forever. The terms the decor of
+- [03:22.400] independence means that it's true now.
+- [03:25.840] If it was true then and it means that if
+- [03:28.640] it's not true now, it was not true then.
+- [03:32.239] It excludes any idea of a change in the
+- [03:36.480] fundamental
+- [03:38.280] conditions. Absorb that and then go on
+- [03:40.640] to the next section. The next section
+- [03:43.280] raises some claims against the king of
+- [03:45.040] England that justify our revolution. The
+- [03:48.319] particular claim is that he has violated
+- [03:51.280] his rightful powers by invading the
+- [03:55.280] authority of the legislature which
+- [03:57.280] indicates separation of powers would be
+- [03:59.280] right and that he has interfered with
+- [04:02.000] representation. Our ability to elect our
+- [04:05.120] government which means consent of the
+- [04:06.720] governed has been interfered with and
+- [04:09.120] he's interfered with the judicial
+- [04:10.640] branch.
+- [04:12.400] separation of powers, consent of the
+- [04:14.480] governed,
+- [04:15.560] representation, those things were the
+- [04:17.359] very structure of the Constitution of
+- [04:18.880] the United States later made to defend
+- [04:21.759] the principles and institutionalize the
+- [04:23.840] principles of the Declaration of
+- [04:25.240] Independence according at least to those
+- [04:27.759] who wrote it and to later the very great
+- [04:30.479] Abraham
+- [04:33.000] Lincoln. If you learn those things, it's
+- [04:35.520] a sort of guide to the understanding of
+- [04:37.440] American politics. After the charges
+- [04:40.400] against the king comes a particular also
+- [04:43.440] very beautiful final section that
+- [04:45.759] becomes so particular it is confined at
+- [04:48.000] the end to the actual people in the room
+- [04:51.120] voting to approve the declarations of
+- [04:53.720] independence. We mutually pledge to each
+- [04:57.240] other our lives our fortunes and our
+- [05:00.320] sacred honor. It starts out with all
+- [05:03.440] eternity and it ends up with with those
+- [05:06.240] people and that room and everything they
+- [05:09.039] have pledged to this eternal cause. It
+- [05:13.280] becomes the American cause, the cause of
+- [05:15.520] our people formed under principles of
+- [05:18.560] all people by a resolution they made
+- [05:22.320] unto death to defend it. That I think is
+- [05:26.080] the foundation stone of America right
+- [05:29.120] there.
+- [05:31.520] In the course of the American
+- [05:33.560] Revolution in April of
+- [05:37.000] 1775 in two villages in Massachusetts, a
+- [05:40.720] bunch of people, first about 70, then
+- [05:43.919] maybe
+- [05:44.840] 3,500, were called out to fire the shot
+- [05:48.639] heard around the world.
+- [05:51.919] Several hundred British regulars were
+- [05:53.840] coming down the road to seize an arms
+- [05:56.560] depot and you might say assert the might
+- [05:59.440] of the British
+- [06:01.080] Empire and they gathered to stop them
+- [06:04.720] and they did. They were organized to do
+- [06:08.080] that. Somehow it wasn't just individuals
+- [06:10.880] rising up. They had already bound
+- [06:13.120] together to
+- [06:14.440] cooperate. It's a very stirring story.
+- [06:17.199] And we have the marvelous Bill Mcclelay,
+- [06:19.199] a colleague of mine, a historian,
+- [06:21.520] tremendous teacher. He's one of our
+- [06:23.639] best. He's uh written many books. Uh he
+- [06:27.680] fell in love in history a long time ago
+- [06:29.840] after a classical education. And I can
+- [06:32.720] bend one of his books in particular to
+- [06:34.479] you. I think the best one volume history
+- [06:36.560] of the United States ever written is
+- [06:38.960] called Land of Hope. Listen to him and
+- [06:42.120] enjoy and think about your liberties and
+- [06:45.440] their structure and the Declaration of
+- [06:48.199] Independence. This first lecture is
+- [06:50.319] about that shot heard around the world.
+- [06:52.400] It was April 19th,
+- [06:55.400] 1775. And Bill Mcclelay will tell us
+- [06:57.919] about it.
+- [07:01.840] [Music]

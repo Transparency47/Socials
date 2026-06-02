@@ -1,0 +1,120 @@
+<!-- source: https://www.youtube.com/watch?v=0kl1ohugojo -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 0kl1ohugojo -->
+<!-- date_published: 2026-04-06T16:23:19+00:00 -->
+<!-- date_accessed: 2026-06-02T02:35:34.241700+00:00 -->
+
+# Transcript: First Lady Melania Trump Reads to Children at the 2026 White House Easter Egg Roll
+
+- [00:03.040] B. Melania Trump.
+- [00:09.170] >> [cheering]
+- [00:09.440] >> Hi.
+- [00:14.480] Good afternoon.
+- [00:16.640] Wow, what a beautiful crowd.
+- [00:19.560] Nice to see you again.
+- [00:23.840] So, I have one of my favorite books
+- [00:27.920] here, The Runaway Bunny. It's a classic.
+- [00:31.360] I hope uh some of you know it.
+- [00:35.200] And I will read it for you.
+- [00:39.160] Once there was a little bunny who wanted
+- [00:41.920] to run away.
+- [00:43.680] So, he's he said to his mother, "I'm
+- [00:46.520] running away."
+- [00:48.120] "If you run away," said his mother, "I
+- [00:51.160] will run after you.
+- [00:53.840] For you are my little bunny."
+- [01:00.480] "If you run after me," said the little
+- [01:03.000] bunny,
+- [01:04.120] "I will become a fish in a trout stream,
+- [01:07.120] and I I will swim away from you."
+- [01:11.000] "If you become a fish in a trout
+- [01:13.200] stream," said his mother, "I will become
+- [01:16.320] a fisherman, and I will fish for you."
+- [01:20.840] So, here he's running away.
+- [01:23.760] Swimming away, actually.
+- [01:33.240] He's so far.
+- [01:35.240] And here is this a little carrot.
+- [01:38.440] She's trying to catch him.
+- [01:43.760] "If you become a fisherman," said the
+- [01:46.280] little bunny, "I will become a rock on
+- [01:48.800] the mountain high above you."
+- [01:52.760] "If you become a rock on the mountain
+- [01:54.760] high above me," said his mother, "I will
+- [01:57.840] be a mountain climber, and I will climb
+- [02:01.120] to where you are."
+- [02:04.160] So, he's climbing here.
+- [02:13.040] Look how far he came.
+- [02:15.586] >> [crying]
+- [02:19.920] >> "If you become a mountain climber," said
+- [02:22.400] the little bunny, "I will be a crocus in
+- [02:24.920] a hidden garden."
+- [02:26.640] "If you become a crocus in a hidden
+- [02:28.480] garden," said his mother, "I will be a
+- [02:31.400] gardener, and I will find you."
+- [02:37.840] Can you see him?
+- [02:39.800] He's right here.
+- [02:42.000] Hiding in the garden.
+- [02:47.360] "If you are a gardener and find me,"
+- [02:50.200] said the little bunny, "I will be a bird
+- [02:53.200] and fly away from you."
+- [02:56.120] "If you become a bird and fly away from
+- [02:58.440] me," said his mother, "I will be a tree
+- [03:02.120] that you come home to."
+- [03:06.640] So, here is
+- [03:08.080] a mother, and here he's flying, a little
+- [03:11.600] bunny.
+- [03:15.120] "If you become a tree," said the little
+- [03:16.960] bunny, "I will become a little sailboat,
+- [03:19.840] and I will sail away from you."
+- [03:22.920] "If you become a sailboat and sail away
+- [03:25.560] from me," said his mother, "I will
+- [03:28.320] become the wind and blow you where I
+- [03:31.360] want you to go."
+- [03:34.320] So, look at this. Look at his ears.
+- [03:40.880] He's cute, isn't he?
+- [03:44.720] "If you become the wind and blow me,"
+- [03:47.440] said the little bunny, "I will join a
+- [03:49.600] circus and fly away on a flying
+- [03:52.200] trapeze."
+- [03:53.960] "If you go flying on the flying
+- [03:56.320] trapeze," said his mother, "I will be a
+- [03:58.840] tightrope walker, and I will walk across
+- [04:02.080] the air to you."
+- [04:05.960] Look in here.
+- [04:08.280] He's like a acrobat.
+- [04:14.000] Yes, they're great, aren't they? "If you
+- [04:16.760] become a tightrope walker and walk
+- [04:18.799] across the air," said the bunny, "I will
+- [04:21.519] become a little boy and run into a
+- [04:24.240] house."
+- [04:25.560] "If you become a little boy and run into
+- [04:27.920] a house," said the mother, "I will
+- [04:30.800] become your mother and catch you in my
+- [04:33.800] arms and hug you."
+- [04:37.080] And here they are at home.
+- [04:40.520] Hugging.
+- [04:43.600] "Oh, shucks," said the bunny, "I might
+- [04:46.040] just as well stay where I am and be a
+- [04:48.560] little bunny."
+- [04:50.080] And so he did. "Have a carrot,"
+- [04:53.120] said the mother.
+- [04:55.920] And here they're enjoying the food and
+- [04:57.760] the carrot.
+- [05:01.520] The end.
+- [05:06.960] It's a beautiful story, and uh the
+- [05:09.320] mother showed the love of his baby
+- [05:11.720] bunny.
+- [05:12.880] So, and I'm sure all you could relate,
+- [05:15.640] especially the mothers and the babies,
+- [05:18.920] how mother loves
+- [05:20.880] loves you.
+- [05:22.440] Yes?
+- [05:24.760] Nice to see you.
+- [05:27.280] Happy Easter Monday.
+- [05:30.120] Enjoy the White House. It's a special
+- [05:32.320] place.
+- [05:34.000] Have a good time. I'll see you next
+- [05:36.000] year.
+- [05:36.673] >> [cheering]
+- [05:37.560] >> Bye.

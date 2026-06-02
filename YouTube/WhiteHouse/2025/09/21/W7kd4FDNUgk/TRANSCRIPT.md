@@ -1,0 +1,115 @@
+<!-- source: https://www.youtube.com/watch?v=W7kd4FDNUgk -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: W7kd4FDNUgk -->
+<!-- date_published: 2025-09-21T15:23:40+00:00 -->
+<!-- date_accessed: 2026-06-02T01:15:04.734710+00:00 -->
+
+# Transcript: A Tribute to Charlie Kirk
+
+- [00:00.080] Charlie Charlie
+- [00:01.280] >> Charlie Charlie Kirk
+- [00:02.480] >> if you knew him you love him. Charlie
+- [00:04.080] Kirk was an incredible man.
+- [00:05.600] >> One of the strongest, bravest people
+- [00:08.400] that I know. Charlie has the work ethic
+- [00:10.480] of no one I have ever met in my life. I
+- [00:12.880] don't think it can be understated the
+- [00:14.639] impact that he had.
+- [00:15.599] >> One of the greatest communicators of the
+- [00:17.840] generation.
+- [00:18.640] >> He was more than just somebody who would
+- [00:20.080] comment on the news.
+- [00:21.600] >> He genuinely respected and genuinely
+- [00:24.640] loved in a Christian manner the people
+- [00:26.400] on the other side of the table. He
+- [00:27.680] didn't hate anybody. He would give the
+- [00:29.279] shirt off a back to help someone that
+- [00:30.880] was in need regardless of their
+- [00:32.320] political strike.
+- [00:33.040] >> His ideas were about faith, family,
+- [00:34.880] freedom.
+- [00:35.520] >> This young man with an idea that became
+- [00:37.760] a movement.
+- [00:38.480] >> What he built is part of his legacy, but
+- [00:40.719] also part of that legacy, more
+- [00:42.079] importantly, is a husband and a father.
+- [00:44.640] >> Irreplaceable. He was irreplaceable.
+- [00:47.520] >> He's a one of one,
+- [00:48.800] >> right? Charlie Kirk was at the tip of
+- [00:50.800] the spear. Never flinched, never backed
+- [00:52.960] off. He he wanted that back and forth,
+- [00:54.960] but not out of anger, not out of a place
+- [00:57.360] of he wanted to humiliate them or
+- [01:00.879] embarrass them or something like that
+- [01:02.399] because he wanted to actually try to
+- [01:04.879] communicate with them.
+- [01:06.000] >> He went into the belly of the beast. He
+- [01:07.920] went on these college campuses and he
+- [01:10.000] evangelized
+- [01:10.799] >> this man who had a life force that was
+- [01:13.040] so much bigger than himself.
+- [01:14.720] >> If everything
+- [01:16.720] completely goes away, how do you want to
+- [01:18.799] be remembered? I want to be I want to be
+- [01:20.320] remembered for for courage for my faith.
+- [01:23.439] That that would be the most important
+- [01:24.720] thing. Most important thing is my faith
+- [01:26.080] in my life.
+- [01:26.799] >> I hope that the story of Turning Point
+- [01:28.640] USA again we started with no money, no
+- [01:30.880] connections and no idea what I was doing
+- [01:32.799] resonates with some of you.
+- [01:35.360] >> It's not a project called Turning Point
+- [01:37.040] USA.
+- [01:38.640] >> To despair is a sin. And some people
+- [01:42.320] say, "Oh, Charlie, you know, it's just
+- [01:43.840] too it's too hard. It's too
+- [01:45.520] overwhelming. It's too dark. Snap out of
+- [01:47.600] it. You still live in the greatest
+- [01:49.119] nation ever to exist in the history of
+- [01:50.799] the world. There is still so much to be
+- [01:52.880] hopeful and to be thankful for. And we
+- [01:55.600] have agency. The globalists are worried
+- [01:58.960] that you are waking up. They're worried
+- [02:01.119] that their fraud and their nonsense is
+- [02:03.680] finally being exposed and you are at the
+- [02:06.399] central nerve of all of them. Ask God
+- [02:10.720] how to use you. Find a place to plug in.
+- [02:13.520] I am thankful for you. We had a vision
+- [02:15.680] because we love the country. Push
+- [02:17.840] yourself harder. Here I am. Lord, use
+- [02:20.560] me.
+- [02:21.360] >> You guys might remember a year ago I
+- [02:24.480] gave the whole speech of here I am.
+- [02:26.319] Lord, send me. And it was kind of this
+- [02:28.720] joke that we had. As soon as I gave that
+- [02:30.560] message,
+- [02:30.959] >> did I remember him getting off stage and
+- [02:32.640] I said, "Honey, do you realize what you
+- [02:35.280] just did?" He's like, "Yeah." I just was
+- [02:37.200] like, "No, no, no, no. You said here I
+- [02:39.599] am." That is a very powerful statement.
+- [02:43.440] And God's like, "I see you." Charlie is
+- [02:46.000] so obedient to God, to the word of God.
+- [02:50.239] And it's been so humbling to witness the
+- [02:53.519] way that God has used him this year.
+- [02:55.920] Because he made that declaration a year
+- [02:57.920] ago, saying, "Here I am. I'm ready.
+- [03:00.239] Wherever you need me to be, Lord, I'll
+- [03:02.000] be. And I'm your servant. Just put me
+- [03:04.879] out there in the thick of it."
+- [03:06.319] >> You see, they wanted us to be quiet and
+- [03:08.640] afraid and silent and subservient. They
+- [03:10.640] wanted us to cower into our corner. But
+- [03:13.920] the conservative movement has changed
+- [03:15.519] fundamentally. I hope you guys
+- [03:16.560] understand this. This is the greatest
+- [03:18.000] country ever to exist in the history of
+- [03:19.519] the world. And I can say, wow. There was
+- [03:21.599] a debate, is God done with this country?
+- [03:24.159] And now I can say confidently, no. God
+- [03:26.720] is not done with America. And our best
+- [03:29.040] days are ahead.
+- [03:32.010] [Applause]
+- [03:34.239] Thank you.

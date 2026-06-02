@@ -1,0 +1,371 @@
+<!-- source: https://www.youtube.com/watch?v=iVxqUe9SEgw -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: iVxqUe9SEgw -->
+<!-- date_published: 2026-03-07T22:06:56+00:00 -->
+<!-- date_accessed: 2026-06-02T01:04:09.483854+00:00 -->
+
+# Transcript: President Trump Gaggles with Press on Air Force One En Route Miami, FL, Mar. 7, 2026
+
+- [00:00.280] The President: Hello, everybody.
+- [00:01.810] The Press: Hello, Mr. President.
+- [00:03.010] The President: It's a very sad day
+- [00:06.240] and glad we made our respects.
+- [00:09.260] It's a tough, it's a tough situation.
+- [00:12.310] Great people, great parents, wives, family,
+- [00:16.330] and a beautiful ceremony.
+- [00:17.640] I guess you got to see that at least partially.
+- [00:21.470] Any questions?
+- [00:22.750] The Press: President Trump, did what you just witnessed
+- [00:24.870] make you think differently about going ahead with this war
+- [00:28.430] or even putting troops on the ground in the Middle East?
+- [00:31.130] The President: No. We're winning the war by a lot.
+- [00:34.030] We've decimated their whole evil empire.
+- [00:38.740] It'll continue, I'm sure, for a little while.
+- [00:41.700] But very proud of the people and the parents were so proud
+- [00:46.020] of their, their boy, as they call him, my boy,
+- [00:50.050] in one case the young lady. The parents are so proud.
+- [00:56.060] Many of them are military parents as you know.
+- [00:58.760] So it's but it's always a very sad thing.
+- [01:01.970] The war itself is going unbelievably.
+- [01:03.980] It's as good as it can be.
+- [01:07.290] We have Pete here, Pete, and you have Steve Witkoff here.
+- [01:12.040] We have some additional questions.
+- [01:14.310] The Press: You're one week in now, sir.
+- [01:16.430] You're one week in at this point.
+- [01:18.130] How long as of now do you expect operations to continue.
+- [01:20.000] The President: Well, I think we've accomplished more
+- [01:21.390] in one week than anyone thought possible.
+- [01:23.320] We've wiped out their Navy, 44 ships.
+- [01:26.990] We've wiped out their Air Force, every plane.
+- [01:29.900] We've wiped out most of their missiles.
+- [01:31.520] You see, the missiles aren't coming much anymore.
+- [01:33.660] We've also hit their manufacturing areas
+- [01:36.610] where they make the missiles very hard.
+- [01:40.090] Their drone capacity is way down.
+- [01:44.000] And we've heard them where it hurts including,
+- [01:47.640] including about every form of leadership you can have,
+- [01:49.540] we've wiped out.
+- [01:50.770] The Press: You still expect up to six weeks total?
+- [01:53.490] The President: I don't know. I, I don't know.
+- [01:54.800] I never reject that, whatever it takes.
+- [01:58.120] But we've their military is almost non-existent,
+- [02:02.730] if you look.
+- [02:03.990] We could hit that military itself very hard,
+- [02:06.160] but maybe we will, maybe we don't.
+- [02:08.860] We haven't made that determination.
+- [02:10.380] The Press: What do you think of gas prices right now?
+- [02:11.960] The President: Say it?
+- [02:13.240] The Press: Are you worried about gas prices right now?
+- [02:14.840] The President: No.
+- [02:16.040] The Press: Why?
+- [02:17.260] The President: This is a short excursion into something
+- [02:20.100] that should have been done for 47 years.
+- [02:22.980] 47 years it's taken to do this
+- [02:25.210] and no president had the guts to do it.
+- [02:27.860] The Press: Are you going to end up coming back to Dover for,
+- [02:30.370] for more of these such dignified transfers.
+- [02:33.310] The President: Oh yeah, I'm sure.
+- [02:35.570] I hate to tell them.
+- [02:37.260] But it's a part of war; isn't it?
+- [02:39.900] Who, who are you with?
+- [02:41.210] The Press: The Washington Post.
+- [02:42.960] The President: Wouldn't you say it's part of war?
+- [02:46.950] The Press: Deaths are, are part of war, yeah.
+- [02:48.430] The President: Yeah. It's part of war.
+- [02:49.660] It's a sad part of war. It's the bad part of war.
+- [02:52.990] The Press: Mr. President, did the United States bomb
+- [02:55.970] a girls' elementary school in Southern Iran
+- [02:58.110] on the first day of the war and kill 175 people?
+- [03:00.110] The President: No, in my opinion,
+- [03:01.330] based on what I've seen, that was done by Iran.
+- [03:05.530] The Press: Is that true, Mr. Hegseth?
+- [03:06.940] It was Iran who did that?
+- [03:08.150] Secretary Hegseth: We're certainly investigating.
+- [03:09.420] The Press: Still investigating?
+- [03:10.630] Secretary Hegseth: But the only, the only side
+- [03:11.870] that targets civilians is Iran.
+- [03:15.650] The President: We think it was done,
+- [03:16.890] we think it was done by Iran.
+- [03:19.480] Because they are very inaccurate, as you know,
+- [03:21.090] with their munitions.
+- [03:23.200] They have no accuracy whatsoever. It was done by Iran.
+- [03:26.090] The Press: Can you give us an idea
+- [03:27.310] of what unconditional surrender looks like to you?
+- [03:30.380] I mean, what do you want from Iran?
+- [03:31.800] The President: I said unconditional, not conditional.
+- [03:34.320] I said unconditional. It's where they cry uncle
+- [03:37.290] or when they can't fight any long- --
+- [03:39.210] longer, there's nobody around to cry uncle.
+- [03:42.450] That could happen too, is, you know,
+- [03:44.180] we've wiped out their leadership numerous times already.
+- [03:48.030] So it's if they surrender
+- [03:51.330] or if there is nobody around to surrender,
+- [03:54.040] but they're rendered useless in terms of military.
+- [03:57.140] The Press: Mr. President,
+- [03:58.360] can I ask you what Peter asked you a question yesterday.
+- [04:00.610] He said it wasn't the right time in that event,
+- [04:02.870] but he was asking whether you had indications
+- [04:04.950] of whether Russia is supporting Iran somehow in this.
+- [04:08.470] The President: No, I haven't,
+- [04:09.860] I have had no indication of that whatsoever.
+- [04:12.930] If they are, they're not doing a very good job
+- [04:14.940] because Iran is not doing too well.
+- [04:17.790] The Press: What about the Strait of Hormuz?
+- [04:19.070] There's no traffic really going through it right now.
+- [04:20.940] The President: Well, that's, you know, the ships' choices,
+- [04:22.650] but we have it cleaned out. We've wiped out their Navy.
+- [04:26.720] The Navy is now at the bottom of the sea,
+- [04:30.110] so that's the choice. This is an excursion.
+- [04:33.390] We figured oil prices would go up, which they will.
+- [04:36.680] They'll also come down. They'll come down very fast,
+- [04:38.860] and we will have gotten rid of a major,
+- [04:40.980] major cancer by the face of the earth.
+- [04:43.650] We will have taken out a cancer.
+- [04:46.100] You know, don't forget October 7th.
+- [04:47.770] Don't forget all of the things that have happened
+- [04:50.280] over the years, all, all caused by these people.
+- [04:53.560] So what we're doing is a great thing,
+- [04:55.650] not only for our country and not only for Israel,
+- [04:59.120] not only for the Middle East, but for the world.
+- [05:01.120] The Press: Secretary Bessent announced some moves
+- [05:02.860] to temporarily allow certain Russian oil sales to India.
+- [05:07.250] Are you considering any other moves, including the SPR?
+- [05:09.200] The President: Well, if there were some,
+- [05:10.460] I would do it just to take a little of the pressure off,
+- [05:12.590] but I think that, the oil pressure,
+- [05:15.280] but there's a lot of oil. We've got a lot of oil.
+- [05:18.860] Our country has a tremendous amount
+- [05:20.700] and we have, there's a lot of oil out there.
+- [05:23.180] That'll get healed very quickly.
+- [05:24.440] The Press: Did you consider using the SPR
+- [05:26.140] or tapping into the SPR at some point?
+- [05:28.730] The President: Strategic reserve?
+- [05:29.970] The Press: Yeah.
+- [05:31.170] The President: Well, I'm the one that built them up.
+- [05:32.390] Biden used them so that he could get
+- [05:34.390] some extra votes in the election.
+- [05:36.160] It turned out it wasn't even him that ran. It was Kamala.
+- [05:39.620] And she obviously didn't get any extra votes
+- [05:42.010] because we won in a l- -- in an absolute landslide,
+- [05:44.680] so he should have used it for that.
+- [05:46.510] He used it to get, I filled it up,
+- [05:49.450] and he brought it down to the lowest level it's ever been.
+- [05:52.880] We will start at the appropriate time,
+- [05:55.470] which is basically a gut instinct.
+- [05:57.290] We will start filling up these strategic reserves.
+- [06:00.050] The Press: What are the circumstances
+- [06:01.450] where you'd send in ground troops?
+- [06:03.050] How are you thinking about that?
+- [06:04.420] The President: I don't even want to talk about it now.
+- [06:05.660] I mean, it's I don't think it's an appropriate question.
+- [06:10.500] You know I'm not going to answer it. Could there be?
+- [06:13.310] Possibly, for a very good reason, happy,
+- [06:15.680] have to be very good reason.
+- [06:18.040] And I would say if we ever did that,
+- [06:19.860] they would be so decimated
+- [06:21.270] that they wouldn't be able to fight at the ground level.
+- [06:23.680] The Press: Are you thinking about the oil facility there?
+- [06:25.540] There's an oil facility kind of on the coast of Iran
+- [06:28.790] that could be secured by ground troops.
+- [06:30.870] There's been some speculation that could be a target.
+- [06:32.970] The President: Well, I don't know what the speculation is,
+- [06:34.800] but I certainly wouldn't be able to tell you that.
+- [06:37.960] I'd be in trouble with myself if I told you that.
+- [06:41.070] The Press: For some reason, don't you need ground troops
+- [06:43.190] to secure the enriched uranium at the nuclear sites?
+- [06:47.080] The President: We're going to find out about that.
+- [06:48.590] We haven't talked about it, but it was a total obliteration.
+- [06:52.950] They haven't been able to get to it.
+- [06:55.370] Then at some point, maybe we will.
+- [06:56.960] You know, that'd be a, would be a great thing.
+- [06:59.270] But right now we're we're just decimating them.
+- [07:04.210] But we haven't we haven't gone after it,
+- [07:07.370] but, you know, something we could do later on.
+- [07:09.150] We wouldn't do it. The Press: Do you still want it?
+- [07:10.550] The President: We wouldn't do it now.
+- [07:11.760] Maybe we'd do it later on.
+- [07:13.240] The Press: You said you want to be involved
+- [07:14.470] in the selection of the next leader of Iran.
+- [07:15.960] The President: Yeah.
+- [07:16.910] The Press: Can you talk to me about that?
+- [07:18.120] The President: Well, because I don't want
+- [07:19.410] to just come back every 10 years.
+- [07:20.650] And mostly you'll have presidents,
+- [07:22.040] mostly, that won't do that because they don't get it.
+- [07:27.430] But we don't want to come back every five years
+- [07:29.560] or every 10 years and do this. So we want to pick a president
+- [07:32.900] that's not going to be leading their country into a war.
+- [07:35.850] Do you have any questions for Pete or Steve?
+- [07:37.850] Come on up here.
+- [07:43.840] Steve, come on up.
+- [07:46.320] The Press: Mr. Witkoff, is there still space to do a deal
+- [07:49.300] with whatever is left of the Iranian government?
+- [07:52.470] Steve Witkoff: I think there is.
+- [07:53.800] I think, I think that's going to be up to the president.
+- [07:57.080] That's what I think.
+- [07:58.760] But I, but they didn't seem to be very amenable in this,
+- [08:02.490] in those first set of negotiations.
+- [08:04.260] You heard what I said.
+- [08:05.840] They said, "We have the inalienable right to enrich."
+- [08:09.150] They, they, they bragged about having 60 percent
+- [08:15.930] enriched fuel enough for 11 bombs.
+- [08:18.800] They told me and Jared "We're not going to give you
+- [08:22.530] diplomatically what you could take militarily."
+- [08:24.910] So, you know, and I think they're going to need
+- [08:26.980] a change of attitude.
+- [08:28.580] The Press: What sort of thing do you want to see in a deal?
+- [08:30.500] I mean, do you think you have maximum
+- [08:32.530] negotiating leverage at this point?
+- [08:34.680] Steve Witkoff: I think the president has proved
+- [08:36.160] that we have.
+- [08:37.750] The Press: Iran today accused the US of paying --
+- [08:39.700] The President: We had a lot of negotiating leverage,
+- [08:41.290] maybe maximum, but we're not looking to settle.
+- [08:44.990] They'd like to settle. We're not looking to settle.
+- [08:47.860] The Press: So the British government has,
+- [08:49.310] has now offered use of some -- the British,
+- [08:52.010] the British government has offered use of some bases now,
+- [08:54.920] and you had previously said you were very disappointed in them.
+- [08:57.050] The President: Aircraft carriers?
+- [08:58.390] The Press: I mean, about British bases.
+- [08:59.590] They said --
+- [09:00.880] The President: Did you see my response that I just put out?
+- [09:02.300] The Press: No.
+- [09:03.510] The President: I just put out a response.
+- [09:04.880] You mean the offer to send two aircraft carriers?
+- [09:07.300] Maybe, maybe, but they're not sure.
+- [09:10.930] I just put out a response to it.
+- [09:12.610] I said, "We don't need them. It's not the right time."
+- [09:18.050] It would've been nice to have had them two weeks ago.
+- [09:20.130] But the, the response I put out,
+- [09:23.550] I think, says it very well for you.
+- [09:28.500] The Press: Iran today accused the US of hitting
+- [09:30.290] a desalination plant in Iran.
+- [09:32.940] And they said that that opened the door
+- [09:34.440] to other strikes on infrastructure, non-military --
+- [09:37.520] The President: It will allow us to also open the door
+- [09:39.570] to other strikes against them. Look --
+- [09:41.020] The Press: Did you respond to that allegation?
+- [09:42.300] Did the US hit the desal --
+- [09:43.580] The President: (Inaudible) in Iran.
+- [09:44.820] They are among the most evil people ever on earth.
+- [09:47.430] They cut baby's heads off. They chop women in half.
+- [09:51.430] What they did. Take a look at October 7th.
+- [09:53.430] Take a look at what they've done over the last 47 years.
+- [09:57.460] So I know nothing about a desalinization plant,
+- [10:00.330] other than to say if they're complaining
+- [10:03.090] about a desalinization plant we complain about the fact
+- [10:06.630] that they shouldn't be chopping babies' heads off, okay?
+- [10:09.650] The Press: Mr. Witkoff, have you communicated to the Russians
+- [10:11.890] not to send targeting information
+- [10:13.650] and other assistance to the Iranians?
+- [10:16.380] Steve Witkoff: Strongly said that.
+- [10:18.490] The Press: And do you believe that they are?
+- [10:20.930] Steve Witkoff: I hope they're not.
+- [10:23.470] The Press: Do you see any evidence?
+- [10:24.770] The President: We don't know, but it's not doing very well.
+- [10:27.040] If they are, it's not helping much.
+- [10:29.530] If you take a look at what's happened to Iran
+- [10:31.350] in the last week
+- [10:33.430] if they're getting information it's not helping them much.
+- [10:36.740] The Press: What would it mean to you if they were?
+- [10:38.150] I mean, even if it's not helping the Iranians particularly much,
+- [10:40.810] it's still involving themselves in a conflict
+- [10:42.620] that they're not direct --
+- [10:43.890] The President: Because they'd say we do it against them,
+- [10:45.690] wouldn't they, huh?
+- [10:46.960] Wouldn't they say that, we do it against them?
+- [10:51.160] I don't know.
+- [10:52.390] Look they could give all the information that they want,
+- [10:57.110] but the people they're sending it to are overwhelmed.
+- [11:01.580] Russia would be overwhelmed too. Anybody would be overwhelmed.
+- [11:04.640] We have the greatest military on Earth
+- [11:06.730] and I built it in my first term.
+- [11:09.470] And unfortunately, I'm forced to use it now.
+- [11:13.030] But when you look at what we did with Venezuela,
+- [11:15.970] when you look at what we did with the B-2 bombers,
+- [11:18.320] that was a very big moment because Iran was going to have
+- [11:22.040] a nuclear weapon within two or three weeks,
+- [11:25.000] and that stopped it, and it stopped it cold.
+- [11:28.310] And you ask about maybe going back and getting that,
+- [11:32.310] something could happen at the right time 'cause --
+- [11:34.340] The Press: Is Iran running out of missiles and drones?
+- [11:35.880] The President: I think so.
+- [11:37.080] The Press: Or do you expect those counter-attacks
+- [11:38.510] to continue without that much?
+- [11:39.760] The President: Not only that, manufacturing capability also.
+- [11:42.140] We've hit the manufacturing very hard.
+- [11:45.220] They're at about 9% of what they sent out in the first two days,
+- [11:48.600] and we think that's because they don't have that much.
+- [11:51.320] And also, we've knocked out about 70% of the rocket,
+- [11:54.910] of the launchers. The launchers are a big deal,
+- [11:58.290] very hard to get, very expensive.
+- [11:59.820] Secretary Hegseth: If you want to talk about leverage,
+- [12:02.030] with every passing day, we have more and more leverage
+- [12:04.920] because we have more and more capabilities.
+- [12:07.220] We're hitting them harder and harder,
+- [12:09.190] and they have less of an ability to defend themselves.
+- [12:11.680] So, we're pressing the offensive every single day,
+- [12:14.310] creating all the leverage the President
+- [12:15.940] needs for the outcome he wants.
+- [12:17.290] The Press: So, it sounds like you think
+- [12:18.490] they're running out of one
+- [12:19.730] or both of the drones and the missiles.
+- [12:21.080] The President: I think when you look,
+- [12:22.320] I mean, they're sending in much less, much less drones.
+- [12:25.790] They're being decimated. Now, you know, at some point,
+- [12:29.020] I don't think there'll be anybody left
+- [12:30.710] maybe to say "We surrender," that they're being decimated.
+- [12:35.140] And when you look also they, all of a sudden,
+- [12:38.600] they apologize to the Middle Eastern
+- [12:40.300] states that they shot at them.
+- [12:42.370] I was very surprised to see they did that,
+- [12:44.190] but you mark that down as a victory for us
+- [12:46.860] and for the Middle Eastern
+- [12:48.130] states who are really friends of ours.
+- [12:51.380] But I guess, they're not going to be shooting at them anymore,
+- [12:54.120] they apologized.
+- [12:56.150] And we'll see what happens, but that's a big loss.
+- [12:59.410] That's a surrender right there.
+- [13:00.800] I called it a surrender tonight. When they apologized
+- [13:04.150] and said they're not shooting at them anymore,
+- [13:05.900] that's really a surrender to those states and to us.
+- [13:10.390] Say, anything else?
+- [13:11.650] The Press: Sir, some Iranians are concerned
+- [13:13.350] that the Kurds will carve out kind of an autonomous region
+- [13:16.560] as they did in Syria and Iraq.
+- [13:18.020] The President: We're not having,
+- [13:19.240] we're not looking to the Kurds going in.
+- [13:21.350] We're, we're very friendly with the Kurds, as you know,
+- [13:23.870] but we don't want to make the war any more complex
+- [13:26.480] than it already is. No.
+- [13:27.730] The Press: They've ruled that out?
+- [13:29.000] The President: We don't want -- yeah, I have ruled it out.
+- [13:30.790] I don't want the Kurds going in.
+- [13:33.040] I don't want to see the Kurds get hurt, get killed,
+- [13:37.300] and we've had a good relation.
+- [13:38.580] They're willing to go in, but we really,
+- [13:40.660] I've told them I don't want them to go in.
+- [13:42.830] The Press: Do you think the map of Iran will look the same?
+- [13:45.340] The President: The war is complicated enough
+- [13:46.830] without having -- getting the Kurds involved.
+- [13:49.650] The Press: And do you think the map of Iran looks the same
+- [13:51.820] after this is all done?
+- [13:53.710] The President: That I can't tell you. Probably not.
+- [13:56.760] The Press: Do you know if any shipping companies
+- [13:58.030] have taken the US on its offer of insurance
+- [14:01.070] to go through the Strait of Hormuz?
+- [14:02.420] The President: No, no. We have it set up.
+- [14:03.650] We have a great insurance and reinsurance system, but I don't.
+- [14:09.240] When this ends, we're going to have a much safer world,
+- [14:12.460] you know that, so you know this is a minor excursion.
+- [14:16.230] But when this ends, we're going to have a much safer world,
+- [14:19.680] and we will have gotten rid of a lot of sick
+- [14:22.030] and demented people, the leadership.
+- [14:24.580] So, we got rid of the one leadership,
+- [14:26.220] then we got rid of the second level of leadership.
+- [14:28.350] Now, they're on their third or fourth level of leadership,
+- [14:31.590] and they have leaders right now
+- [14:33.040] that nobody even knows who they are.
+- [14:34.780] Thank you very much, everybody. Thank you.

@@ -1,0 +1,1010 @@
+<!-- source: https://www.youtube.com/watch?v=PRuMlPjiKQg -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: PRuMlPjiKQg -->
+<!-- date_published: 2025-07-11T20:38:55+00:00 -->
+<!-- date_accessed: 2026-06-02T02:47:13.247852+00:00 -->
+
+# Transcript: President Trump Participates in a Roundtable with First Responders and Local Officials
+
+- [00:19.280] The President: Well, this is a tough one and --
+- [00:25.280] (inaudible)
+- [00:32.200] We just were making a little tour of the area.
+- [00:38.360] It's hard to believe the devastation.
+- [00:40.150] Trees that are a hundred years old
+- [00:41.440] just ripped out of the ground.
+- [00:43.520] I've never seen anything like it.
+- [00:44.950] I've seen a lot of bad ones.
+- [00:46.220] I've gone to a lot of hurricanes, a lot of tornadoes.
+- [00:49.060] I've never seen anything like this.
+- [00:50.690] This is a bad one.
+- [00:53.110] We just visited with incredible families that --
+- [00:57.720] I mean, look, they've been devastated.
+- [00:59.290] They lost their child or two children
+- [01:02.700] and just hard to believe what --
+- [01:06.470] I've never seen anything like it.
+- [01:07.880] A little narrow river that becomes a monster,
+- [01:11.880] and that's what happened.
+- [01:13.880] But the first lady and I are here in Texas
+- [01:16.570] to express the love and support
+- [01:20.040] and the anguish of our entire nation
+- [01:22.710] in the aftermath of this really horrific and deadly flood.
+- [01:28.150] Nobody has any idea how and why a thing like this could happen.
+- [01:35.680] And by the way, I have to tell you,
+- [01:37.120] the people here,
+- [01:38.460] first responders, the sheriff's office,
+- [01:41.220] all of the police, law enforcement,
+- [01:42.790] they've done an unbelievable job.
+- [01:44.540] And in speaking to the parents, they said everybody that's been
+- [01:49.650] so professional from the governor to the senators,
+- [01:53.480] all the way down to the local people on the site
+- [01:57.530] that really are a little bit used to this,
+- [02:00.010] but they've been looking at this for years,
+- [02:02.520] but in much smaller doses and in much, much smaller doses.
+- [02:07.660] 12 years ago, and then 1932, they had a real bad one,
+- [02:11.650] but that bad one was half of what this was.
+- [02:14.600] But I was speaking to some of the great people in the town
+- [02:19.020] and they said, "No. Every year we get a little bit."
+- [02:20.940] But it was like a little bit of a flood, right?
+- [02:23.870] You were telling me. And it was just a flood.
+- [02:26.440] We got used to, we had people, we took care of it.
+- [02:29.790] And this year it was like, what's going on?
+- [02:34.830] So all across the country, American's hearts are shattered.
+- [02:37.760] I had to be here as President. First Lady wanted to be here.
+- [02:43.760] All the beautiful souls and we're filled with grief
+- [02:47.120] and devastation, the loss of life.
+- [02:51.100] And unfortunately, they're looking.
+- [02:52.820] They're still looking.
+- [02:54.050] There's a lot of missing children, possibly, mostly.
+- [02:58.250] We don't know, but they're still looking
+- [03:01.620] and they'll find everybody. But it's not an easy thing.
+- [03:06.720] You would think it would be easy.
+- [03:08.390] It's very tough.
+- [03:09.720] I looked at what they're going through, what they have to do,
+- [03:13.040] but dozens and dozens of precious children
+- [03:15.860] taken from us with such --
+- [03:18.990] I looked at the pictures of almost all of them,
+- [03:22.140] and it's terrible. Following a torrential downpour,
+- [03:25.810] the worst that anyone's ever seen,
+- [03:29.670] Guadalupe River rose 26 feet and less than 45 minutes.
+- [03:36.340] And I've even heard it went well over 30 feet.
+- [03:38.730] There's one story that one person said,
+- [03:41.650] it had to be 60 feet at one moment.
+- [03:44.210] This is like a giant, giant wave in the Pacific Ocean
+- [03:48.920] that the best surfers in the world would be afraid to surf.
+- [03:53.120] And it unleashed a catastrophic flooding
+- [03:55.340] as most residents were asleep in their beds,
+- [04:00.390] a very dark evening.
+- [04:02.860] The waters claimed at least a hundred and thirty-five,
+- [04:07.290] a hundred and forty lives. They're getting that count.
+- [04:10.760] But the count that they don't have
+- [04:12.100] is how many are still missing, but a lot of lives.
+- [04:15.750] A lot of young angels at the girls' Christian summer camp
+- [04:20.870] known as Camp Mystic, a legendary camp.
+- [04:23.160] A camp that people would want to go to from all over the country.
+- [04:27.250] People, parents, they come
+- [04:29.460] and they would stay with their children.
+- [04:31.700] They'd stay in other cabins just to be with their children,
+- [04:34.230] but a legendary place.
+- [04:36.840] They were there because they loved God.
+- [04:39.950] And as we grieve this unthinkable tragedy,
+- [04:43.310] we take comfort in the knowledge
+- [04:44.810] that God has welcomed those little beautiful girls
+- [04:48.330] into His comforting arms in heaven.
+- [04:52.240] And we believe that, have to believe that.
+- [04:55.610] And we do.
+- [04:57.090] And we lost some wonderful people beyond the little girls.
+- [05:00.310] We lost some very brave men and women
+- [05:03.840] that tried to save the girls.
+- [05:07.390] As our nation, we mourn for every single life
+- [05:11.900] that was swept away in the flood.
+- [05:13.430] And we pray for the families that are left behind.
+- [05:17.390] It's amazing, the incredible spirit from those families.
+- [05:21.890] I don't know. I don't even know how they do it.
+- [05:26.590] But moments ago, Melania and I spent a lot of time with them.
+- [05:31.900] That's why we're a little late.
+- [05:33.360] I think this was a good reason to be late, frankly.
+- [05:36.490] And we just gave our warmest condolences.
+- [05:40.100] But you say to yourself, how do you give condolences?
+- [05:42.940] How do you do that to a young person
+- [05:46.330] that three days ago was here, four days ago was here,
+- [05:50.710] and vibrant and now is no longer here?
+- [05:54.660] The search for the missing continues.
+- [05:56.980] The people that are doing it are unbelievable people.
+- [05:59.450] You couldn't get better people than this anywhere,
+- [06:01.730] Kristi, right?
+- [06:04.300] Anywhere in the world. You couldn't get better people.
+- [06:07.640] And they're doing the job
+- [06:09.580] I don't think anybody else could, frankly.
+- [06:11.680] Then I want to thank them.
+- [06:12.880] I want to thank all of these great first responders
+- [06:15.620] who raced into very grave danger.
+- [06:18.630] We have some people that were incredible.
+- [06:23.380] The single Coast Guard rescue crew
+- [06:25.880] saved an incredible 169 children at Camp Mystic, 169.
+- [06:32.410] And the camp staff was also incredibly courageous.
+- [06:36.460] Are those Coast Guard people around here, someplace?
+- [06:41.020] Because I hear some incredible, incredible people.
+- [06:44.740] And I actually -- Scott Ruskin, is he around? Where's Scott?
+- [06:50.750] Secretary Noem: He's not here right now, sir,
+- [06:52.160] but he will be here later
+- [06:53.360] and I will be presenting him with some --
+- [06:56.640] The President: And John Dunn, the owner of the Hunt store
+- [06:59.410] was a flood -- Where are you? Okay, good.
+- [07:03.560] We spoke a little while ago and it sort of --
+- [07:06.690] John was telling me some stories about that store
+- [07:09.090] and it was just really amazing.
+- [07:10.840] John Dunn: Yes, Mr. President, first, let me correct.
+- [07:13.490] I was owner of the Hunt store from 2013
+- [07:16.620] till April of last year where I actually sold the store
+- [07:20.590] to Haley and BB Lehrman, who are excellent operators
+- [07:24.030] and they're on the ground right now in Hunt,
+- [07:26.410] leading the effort there together
+- [07:28.320] with the fire department,
+- [07:29.770] the churches, the schools, what have you.
+- [07:32.170] And they're doing a phenomenal job.
+- [07:33.690] The President: Good job.
+- [07:34.980] John Dunn: My role in it is sell or finance the deal and --
+- [07:38.620] The President: You're going to bring it back?
+- [07:39.920] John Dunn: I'm absolutely going to bring it back together
+- [07:41.260] with (inaudible) --
+- [07:42.480] The President: And the walls are up,
+- [07:43.750] the two walls are up and you're going to --
+- [07:44.990] John Dunn: There's belief out there that it was a total loss.
+- [07:48.330] It is not. Gentleman by the name of Larry Graham
+- [07:52.190] put up some incredible walls in 1973,
+- [07:55.340] and he's a great engineer.
+- [07:57.420] And those walls are still standing.
+- [07:58.910] The President: Save the walls.
+- [08:00.130] John Dunn: Save the walls. And the goal is,
+- [08:02.840] and I think we can get it done between Haley, BB, myself,
+- [08:06.190] and some outside help that we're going to be getting,
+- [08:09.210] I think we're going to get it reopened very quickly.
+- [08:12.180] I think it's important to get it open quickly
+- [08:14.550] because once we do,
+- [08:15.840] the community can get back to the sense of normalcy.
+- [08:19.370] I think it'll be good for the community.
+- [08:20.880] I think it'll accelerate the recovery process.
+- [08:24.920] There's a lot that has to be done.
+- [08:27.130] But I'm impressed and very pleased with the resources
+- [08:29.940] that I think are going to become available
+- [08:31.840] through the conversations with Chip Roy,
+- [08:33.540] Governor Abbott's office,
+- [08:34.740] and others that we will get it done quickly.
+- [08:36.140] Yes, sir.
+- [08:37.380] The President: Thanks, John. Good luck with it.
+- [08:38.580] Okay. I'm sure you will.
+- [08:40.750] The search for the missing is continuing, as you know.
+- [08:43.130] And today, I especially want to thank
+- [08:45.220] all of these incredible people from the Coast Guard.
+- [08:48.350] And you'll give my regards in particular
+- [08:50.550] to some of the people we mentioned.
+- [08:53.230] Every American should be inspired
+- [08:54.960] by what's taken place during this short period of time.
+- [08:58.400] And I want to thank Governor Abbott.
+- [09:00.750] He's an amazing guy.
+- [09:02.370] Become very, very close politically and personally.
+- [09:06.940] And we've had a tremendous relationship with Texas.
+- [09:10.870] I guess Texas brought us together.
+- [09:12.930] We were together fine.
+- [09:14.130] But now we're together a lot more.
+- [09:15.500] And I want to thank Cecilia, your great wife,
+- [09:19.020] who's been our friend for a long time.
+- [09:22.450] The job you do is really incredible
+- [09:24.870] in so many different ways,
+- [09:26.190] including with the border and every different way.
+- [09:29.650] Admired by everybody.
+- [09:30.850] Secretaries, Kristi Noem, Brooke Rollins, Scott Turner,
+- [09:34.890] and Administrator Kelly Loeffler.
+- [09:37.130] They all wanted to be here.
+- [09:39.280] Some of them hopped on the plane with me.
+- [09:41.050] Senators John Cornyn and Ted Cruz,
+- [09:43.120] you're here among us. And thank you very much.
+- [09:47.240] Our great Lieutenant Governor, I see you sitting there.
+- [09:49.980] I don't know if they even have your name down,
+- [09:51.760] but when I'm here, your name is down, right?
+- [09:54.520] He's doing a good job. Always did. Always did.
+- [09:58.650] Also, numerous members of Congress,
+- [10:00.710] including Chip Roy from the district.
+- [10:03.550] This is Chip's district.
+- [10:04.750] I had a lot of time last week we spent with Chip Roy
+- [10:09.310] getting that great Big Beautiful Bill passed.
+- [10:11.690] And who would've thought --
+- [10:14.430] And he's not easy, but he's good.
+- [10:17.410] Where is he? Where's Chip?
+- [10:20.070] Who would've thought this was going to happen?
+- [10:21.720] And he called because we had a big ceremony set up
+- [10:24.150] and he said, "We have a little bit of a flood here,
+- [10:27.100] and I think it's going to be a little bit, I better stay here.
+- [10:29.120] I better not come back and go to it."
+- [10:30.810] And he wanted to be there.
+- [10:32.080] He was a part of it, a big part of it.
+- [10:34.250] And then he called again and he said, "This is bad."
+- [10:37.580] And then it got really bad,
+- [10:39.150] far beyond your worst, wildest imagination.
+- [10:44.170] So thank you very much, Chip. I appreciate it.
+- [10:46.800] And Brian Babin also is --
+- [10:48.920] I don't know if Brian's here, but we do have --
+- [10:51.210] And I have to just give some of the names
+- [10:54.430] because it is very unusual. Nathaniel Moran, Dan Crenshaw,
+- [11:00.750] all of these people wanted to be here.
+- [11:03.670] Keith Self, Jake Elzey, August Flueger,
+- [11:08.480] Craig Goldman, Ronnie Jackson.
+- [11:11.050] Where are you people? Are you here? You're all here?
+- [11:13.130] Where's Ronnie Jackson? Ronnie Jackson. What a person --
+- [11:17.360] Every one of these people is so incredible.
+- [11:20.010] Randy Weber, Pete Sessions, tony Gonzalez.
+- [11:25.310] Well, we have everybody. Beth Van Dyne.
+- [11:28.770] Hi, Beth. Hi Beth.
+- [11:30.940] Roger Williams, Brandon Gill. Hi, Roger. Brandon, you're here.
+- [11:36.600] Yes, thanks, Brandon. Doing a good job, Brandon.
+- [11:40.440] Michael Cloud, John Carter and Wesley Hunt.
+- [11:46.110] And we have others, but we have to get on with it.
+- [11:51.090] But I did want to ask Lieutenant Governor Dan Patrick,
+- [11:56.820] he's been my friend from the beginning.
+- [11:58.280] He's been the chairman of all three of my campaigns.
+- [12:00.410] And all I know is we won by record amounts
+- [12:03.470] so I guess you were pretty good chairman, right, Dan?
+- [12:06.250] And his son is fantastic too.
+- [12:08.040] But Attorney General Ken Paxton. Ken's around here someplace.
+- [12:12.320] Hi Ken. Hi.
+- [12:14.210] And Director of the Texas Department
+- [12:16.500] of Public Safety Freeman, Martin.
+- [12:19.440] Freeman, thank you very much. You're doing an amazing job.
+- [12:23.500] Texas Chief Emergency Management, Nim Kidd.
+- [12:27.930] Thank you. Thank you very much. Thank you for greeting us too.
+- [12:31.640] Major General Thomas Seltzer of the Texas Military Department.
+- [12:36.830] Thomas, great job. Thank you. Really good job.
+- [12:39.690] And many of the other officials in government,
+- [12:42.890] everybody is here. It's amazing.
+- [12:44.500] I do these things
+- [12:45.750] and often you just don't have a turnout like this.
+- [12:50.460] Half of government is here.
+- [12:51.800] But my administration is doing everything
+- [12:54.430] and its power to help Texas and I can tell you that --
+- [12:58.210] And the governor will be the first to tell you
+- [12:59.930] that when the request was made for the emergency funds,
+- [13:03.890] Kristi, I think we gave it within about two minutes,
+- [13:06.640] maybe less and they had everything they needed, right?
+- [13:09.480] Right. Immediately.
+- [13:10.770] So we've deployed over 400 first responders
+- [13:13.510] and assisted are enabled more than 1,500 rescues.
+- [13:18.450] Amazing. 1,500.
+- [13:20.600] Customs and border protection and the US Coast Guard
+- [13:23.130] have deployed numerous search and rescue crews
+- [13:25.410] and they're all over the territory and trauma teams.
+- [13:30.250] And beyond this area, the governor was saying
+- [13:34.290] we've gone a little bit beyond this area.
+- [13:36.470] Oh, there's Dr. Phil. Look at Dr. Phil.
+- [13:38.670] You're looking good, Phil.
+- [13:40.360] This is a hell of a situation, isn't it?
+- [13:43.800] FEMA has deployed multiple emergency response
+- [13:46.860] units and FEMA has been really headed by some very good people.
+- [13:50.030] We have some good people running FEMA.
+- [13:51.400] It's about time, right? We get some good ones.
+- [13:54.210] They failed us in North Carolina,
+- [13:56.170] but when we got in on January 20th,
+- [13:58.620] they fixed it up in no time.
+- [14:01.080] And the Army Corps of Engineers is always around
+- [14:04.550] and always strong and brilliant.
+- [14:07.090] We're also taking historic action
+- [14:09.050] to ensure that such a nightmare never happens again.
+- [14:12.720] And we're going to look and see how can a thing like this,
+- [14:14.920] they could say it's a hundred year,
+- [14:16.190] if somebody says it's a 500- year event,
+- [14:18.920] we're not going to let a thing like this happen again
+- [14:22.180] where it can wreak this kind of devastation.
+- [14:24.850] Earlier this year, I directed a sweeping review
+- [14:27.200] of the preparedness and critical infrastructure.
+- [14:29.930] I think, again, I have to say, whenever I say that,
+- [14:34.240] I have to say that the level of professionalism was incredible,
+- [14:38.340] but we'll all work together to find out
+- [14:40.250] exactly what can be done because they do want to rebuild
+- [14:43.630] and they're going to.
+- [14:45.050] I just want to say we have a wonderful first lady
+- [14:49.490] and she's done a great job as first lady
+- [14:52.480] and she really -- very special woman.
+- [14:56.890] When she saw what and met the people that we met
+- [14:59.630] just a little while ago, it's very devastating.
+- [15:01.660] And would you like to say a few words, honey?
+- [15:06.720] The First Lady: My deepest sympathy
+- [15:08.460] to all of the parents who lost beautiful young souls.
+- [15:13.880] Deepest sympathy from all of us to the community,
+- [15:18.140] to everybody who lost a loved one,
+- [15:22.250] we are grieving with you. Our nation is grieving with you.
+- [15:27.200] We just met with the wonderful families.
+- [15:30.760] We pray with them, we hug, we hold hands, they shared stories.
+- [15:37.210] And I met beautiful young ladies,
+- [15:41.670] they gave me this special bracelet from the camp in honor
+- [15:48.180] of all of the little girls that they lost their lives.
+- [15:52.720] So we are here to honor them
+- [15:55.780] and also to give the support, help.
+- [16:00.230] And I will be back.
+- [16:03.040] I promise to them and I just pray for them
+- [16:08.430] and giving them my strength and love.
+- [16:10.690] The President: Thank you, honey. That's very nice.
+- [16:12.050] The First Lady: Thank you.
+- [16:13.260] The President: Thank you very much.
+- [16:14.530] So just want to say God bless you all
+- [16:16.350] and I'd like to ask Governor Abbott
+- [16:18.050] to say a few words, please. Thank you.
+- [16:19.300] Governor Abbott: Well, first of all,
+- [16:20.520] thank you Mr. President and thank you First Lady.
+- [16:22.730] The first thing both of you mentioned
+- [16:24.740] were the lives that were affected by this.
+- [16:28.830] Whenever there's a disaster or catastrophe,
+- [16:31.100] the first thing we focus on is saving lives,
+- [16:34.530] prioritizing those lives. Every minute, every hour counts.
+- [16:38.250] And that's what Chief Nim Kidd focused on,
+- [16:40.700] what the local officials focused on,
+- [16:42.490] what the state focused on,
+- [16:43.950] but also what your administration did.
+- [16:46.160] On the very day of the flood,
+- [16:48.420] the Coast Guard literally saving lives right and left.
+- [16:51.570] And we cannot thank you enough for deploying the Coast Guard,
+- [16:55.890] deploying the resources.
+- [16:57.800] And as you pointed out, immediately,
+- [17:00.590] when I made a request for a disaster declaration,
+- [17:03.340] you and your administration granted that.
+- [17:05.040] This is the fastest that I'm aware
+- [17:07.210] of any administration responding so swiftly, so collaboratively,
+- [17:10.810] so coordinated as we have in response to this.
+- [17:15.520] Thank you for that major disaster declaration.
+- [17:17.400] It ensures that we're going to be able
+- [17:18.820] to more effectively respond and help rebuild.
+- [17:22.900] And let me make one thing clear about the Hunt store.
+- [17:25.930] We will rebuild the Hunt store
+- [17:29.430] very quickly right here in Hunt, Texas.
+- [17:32.420] John Dunne: Thank you, Governor.
+- [17:33.690] Governor Abbott: Also, I too want to thank
+- [17:34.900] all the first responders
+- [17:36.420] and we have many of our legislators over here.
+- [17:39.610] I want to thank them for stepping up
+- [17:41.830] and being here constantly,
+- [17:44.240] as well as state officials who join with us.
+- [17:47.060] And as we've said before, we remain committed.
+- [17:51.680] We're here for the long run.
+- [17:53.080] We will maintain our operations to search
+- [17:56.970] and find everybody that we can,
+- [17:59.080] as well to ensure that we're going to rebuild this community
+- [18:02.310] from Hunt to Camp Mystic to Kerrville down below.
+- [18:07.450] We are committed for the long run,
+- [18:09.080] not just to rebuild, but to rebuild in a better way.
+- [18:12.110] I have received a lot of detail, even from the president himself
+- [18:15.810] about ways that we can do a better job
+- [18:18.260] in the rebuilding process.
+- [18:19.490] And we will put all of that to work.
+- [18:21.170] We have a special session beginning in 10 days
+- [18:24.260] when we're going to start working legislatively
+- [18:27.660] to make sure that we address every challenge
+- [18:30.190] that the people of this entire region,
+- [18:31.810] including the central Texas region,
+- [18:34.350] make sure we help rebuild the families and communities
+- [18:37.330] of all of them.
+- [18:38.620] But we would not have been able to do
+- [18:41.130] that the way that we have had it not been for you,
+- [18:44.770] your commitment to Texas. I know you love Texas.
+- [18:47.740] And Texas loves you. We appreciate you showing up.
+- [18:51.000] And because of your swift and effective response,
+- [18:53.550] we're better positioned to deliver
+- [18:55.920] on all those commitments than ever before.
+- [18:57.960] The President: Thank you, Governor. That's very nice.
+- [18:59.700] Thank you very much. Appreciate it.
+- [19:01.690] Kristi, would you like to say something?
+- [19:03.440] Fantastic job you've done.
+- [19:05.530] Secretary Noem: Well, Mr. President,
+- [19:06.910] I just want to thank you for coming and being here today
+- [19:09.210] and to our First Lady as well.
+- [19:11.390] Your heart is evident for the people of Texas.
+- [19:14.300] And by you coming here and spending the day
+- [19:16.820] and taking the time to spend so much time with the families,
+- [19:20.320] I've spoken with many of them over the last several days
+- [19:22.660] and they're so grateful for you, that not only are you here
+- [19:26.050] to come and walk alongside of them,
+- [19:28.680] but to spend time with them and to deploy resources
+- [19:31.850] to help support the governor and his team,
+- [19:33.520] I think has meant the world,
+- [19:35.080] not just to those that are making the decisions,
+- [19:37.640] but to all of those down to the ones
+- [19:40.390] who have lost their children
+- [19:41.750] and are those who are still looking for their children.
+- [19:43.910] So that's the hardest part about the situation we have here
+- [19:46.660] today, sir,
+- [19:47.960] is that when you have a disaster like this,
+- [19:50.550] I believe this is an unprecedented event.
+- [19:52.960] I haven't heard and in my knowledge know
+- [19:55.910] of a flood that happened like this before.
+- [19:59.550] So in our experience,
+- [20:01.640] we know that it's at least a one in 1,000 year flood
+- [20:04.710] that hit this area in an unprecedented way.
+- [20:07.800] And emergencies and disasters are always locally executed,
+- [20:13.090] the state manages them,
+- [20:14.750] and then the federal government comes in and supports that.
+- [20:17.790] What we are doing here, sir,
+- [20:20.230] is empowering the state and the local officials
+- [20:23.810] to make the best decisions for their people
+- [20:25.910] because they know their people, they know their community,
+- [20:28.860] and when they ask, then we come in and support them.
+- [20:31.610] So thank you for being a president who trusts people,
+- [20:34.860] who lets them use the responsibility
+- [20:36.690] that they have to make the best decisions
+- [20:38.380] for their families, for their communities,
+- [20:40.490] and we come in and we support them in that.
+- [20:42.560] So I can't thank you for helping us
+- [20:45.580] making such quick decisions for Nim and his team
+- [20:48.330] and the governor is absolutely fantastic.
+- [20:51.230] Every time I picked up the phone and was here,
+- [20:54.600] the lieutenant governor was available, the entire team.
+- [20:57.960] The Coast Guard and the Border Patrol
+- [21:00.900] were absolute amazing resources on the ground immediately.
+- [21:04.780] And we've had over 700 different FEMA employees
+- [21:08.170] and volunteers here as well that are engaged.
+- [21:10.350] And so all of your assets that you have as a federal government
+- [21:13.710] are deployed to help this community restore,
+- [21:16.280] but also to heal.
+- [21:18.160] I would just ask everybody in the room
+- [21:20.260] to remember to love on each other, too
+- [21:23.420] and to tell stories and memories and of --
+- [21:28.130] That's how --
+- [21:29.420] The greatest fear when you lose someone in your life
+- [21:31.610] is that people will forget them.
+- [21:33.870] So tell the stories that you knew and write them down
+- [21:38.920] and remember them because nobody wants their loved one
+- [21:41.690] that they don't have anymore to ever be forgotten.
+- [21:43.870] The President: Thanks, Kristi. Appreciate it.
+- [21:46.210] Nim, would you say a few words, please?
+- [21:47.710] Nim Kidd: Thank you, Mr. President.
+- [21:48.920] The President: Fantastic job working with Kristi
+- [21:50.410] and everybody else. Thank you. Go ahead.
+- [21:52.300] Nim Kidd: Yes, sir. Thank you both for being here.
+- [21:55.320] Our hearts are broken, but they fuel the engine
+- [21:58.030] that drives this response for this community.
+- [22:00.530] These local first responders are the best in the nation.
+- [22:03.420] They put their lives on the line.
+- [22:04.760] Our volunteer firefighters that were out
+- [22:06.370] there putting their lives on the line,
+- [22:08.270] knowing that their homes were at risk.
+- [22:10.070] You have the best in the nation right here at the local level.
+- [22:13.240] Governor Abbott declared 21 Texas counties
+- [22:15.500] for this weather event under a state of disaster declaration.
+- [22:18.870] Your immediate declaration for individual assistance
+- [22:21.860] and public assistance will help us rebuild and recover.
+- [22:24.860] We've had over 2,200 state agency
+- [22:27.840] response personnel assisting our local government partners.
+- [22:31.090] Well, Mr. President, here's a staggering number.
+- [22:33.540] Over 12,300 volunteers have shown up here
+- [22:37.960] out of love to support this community.
+- [22:40.550] Just imagine working 10 hours a day,
+- [22:42.110] seven days into this event right now.
+- [22:43.540] That's over 861,000 hours of volunteer support right here.
+- [22:48.840] 19 other states have sent resources to us.
+- [22:52.040] Secretary Noem, thank you for the coordination
+- [22:53.850] and the effort on that. Your team has been phenomenal.
+- [22:56.130] We will continue the search non-stop.
+- [22:58.420] We will continue debris removal
+- [22:59.880] and we will help this community rebuild.
+- [23:02.240] We're ready, sir.
+- [23:03.470] The President: Thank you. Really great job you've done
+- [23:05.450] and the coordination has been incredible with us
+- [23:07.640] and everybody else. Thank you very much.
+- [23:09.000] Nim Kidd: Yes, sir.
+- [23:10.220] The President: Dr. Phil, I see you sitting there
+- [23:11.750] and this might be a time for you
+- [23:13.920] to give us some of your words of wisdom,
+- [23:17.480] if you would. Thank you.
+- [23:19.980] Dr. Phil: Well, thank you.
+- [23:24.100] I've talked to families and survivors,
+- [23:28.310] parents and grandparents,
+- [23:30.040] and the truth is we know psychologically
+- [23:33.540] that the number one stressor that we can experience in life
+- [23:37.780] is the loss of a child.
+- [23:39.620] And the worst situation that we can experience
+- [23:43.610] that is when it's sudden and when it's violent.
+- [23:46.960] That's the worst thing that can happen stress-wise in life.
+- [23:54.790] People say, "Well, you get over it in time."
+- [23:59.350] The truth is you never get over it. You get through it.
+- [24:03.940] And one of the things Secretary Noem was just talking about,
+- [24:09.320] no truer words could be said
+- [24:12.800] that it's cathartic to talk about this.
+- [24:16.140] And there's
+- [24:17.490] There's a collective consciousness
+- [24:19.550] in these communities down here.
+- [24:20.980] This is my country here. Texas is home for me.
+- [24:25.510] And there's a collective consciousness here.
+- [24:29.090] And everybody in these communities
+- [24:31.470] suffered this loss at some level.
+- [24:33.440] And so everybody shares that.
+- [24:35.610] And so everybody shares the healing,
+- [24:38.350] and that will come through here. Everybody will rally together.
+- [24:42.670] And this is about faith, and it's about family,
+- [24:47.740] and it's truly about community.
+- [24:52.080] And it says, "Texas strong,"
+- [24:55.230] on the desk that you're sitting at.
+- [24:59.350] And that's true because people will come together.
+- [25:02.410] And we need to realize that giving this a voice,
+- [25:07.280] and if you see someone in the store --
+- [25:10.790] Everybody wonders, "Do I say something to them?
+- [25:13.860] I know they lost a child or a grandchild.
+- [25:16.650] Do I bring it up?
+- [25:18.150] Because they look like they're doing okay."
+- [25:20.400] The answer to that question is an unambiguous yes.
+- [25:24.180] You don't ever let them think you've moved on from it.
+- [25:27.150] It's okay to go and say, "Hey, look, I know about the loss.
+- [25:31.440] I share that with you and I love you,
+- [25:33.960] and we won't forget this."
+- [25:36.020] Because these bright lights will go away.
+- [25:39.520] Another headline will come along and people move on.
+- [25:44.530] Let them know. We don't forget. We don't forget the loss.
+- [25:49.770] It will never go away. And we remember it.
+- [25:53.210] And these first responders down here,
+- [25:56.070] men and women that were diving into those waters --
+- [26:02.870] I've talked to a woman whose husband was standing
+- [26:07.050] on the bank of the river yelling to a father,
+- [26:10.480] "Throw me your baby, throw me your baby.
+- [26:13.370] Let me help you."
+- [26:17.670] Mr. President, there is a depth of root
+- [26:20.670] and caring here like you just can't believe until you see it.
+- [26:25.970] And everybody here knows that.
+- [26:27.560] And, it's so inspiring for you and the First Lady to come here
+- [26:33.320] and share this and see the fiber of these communities.
+- [26:36.440] That's why they rally around you and everything that you stand
+- [26:41.640] for here from the border to the disasters.
+- [26:44.870] And it is not just a photo op for you to be here.
+- [26:49.900] People see your heart and believe in what you stand for.
+- [26:52.340] And God bless you for coming here and doing this.
+- [26:53.980] The President: Thank you.
+- [26:55.210] Dr. Phil: It means a lot. God bless you.
+- [26:56.460] The President: Thank you. That was really beautiful.
+- [26:59.720] I'm glad I asked him to say a few words, Dan.
+- [27:01.790] Do you want to say a couple of words, Dan?
+- [27:03.580] Please, Lieutenant Governor.
+- [27:06.380] Dr. Phil: We spoke the morning immediately.
+- [27:08.280] You and I talked the very next morning, and he was right there.
+- [27:13.110] Lt. Governor Patrick: First of all, Mr. President,
+- [27:14.480] first lady.
+- [27:17.040] A long time ago, I asked a pastor
+- [27:18.630] when I was going to see a hospital,
+- [27:20.270] a person in the hospital who didn't have long to live.
+- [27:23.110] And I said, "What do I say?" And they said,
+- [27:25.900] "Don't worry about what you say, just be there."
+- [27:29.310] So you, and Madam First Lady, the two of you being here,
+- [27:33.880] sends a message,
+- [27:35.110] it paints a picture that words can't express,
+- [27:37.810] and it gives them hope.
+- [27:39.820] And the people of this community have become a family.
+- [27:42.950] I didn't know the mayor last week,
+- [27:45.190] I wish I didn't know him today under these circumstances.
+- [27:48.020] But we've become a family around this room.
+- [27:49.780] And it starts with you at the top, down to the governor,
+- [27:52.440] down to the state-wide, down to the secretary.
+- [27:54.590] Kristi (inaudible) coming in.
+- [27:55.800] She called Saturday morning and said,
+- [27:57.300] "The president wants me to be there today."
+- [27:58.720] And she came. And so that message is so important.
+- [28:04.260] Two things will get us through our faith.
+- [28:06.880] So the people along this river
+- [28:09.740] are not standing on the rock of the bank of the river.
+- [28:12.390] They're standing on the rock of their faith.
+- [28:14.630] And that will get them through the struggles
+- [28:16.980] that you talk about.
+- [28:18.200] But you and the federal government
+- [28:20.630] will help us get through everything,
+- [28:23.030] all the debris that has to be taken,
+- [28:24.520] all the rebuilding, and I know we can count on you.
+- [28:26.360] The President: We will.
+- [28:27.570] Lt. Governor Patrick: So from the bottom of my heart,
+- [28:29.120] on behalf of all of these families,
+- [28:32.370] thank you for being here.
+- [28:34.350] You just can't measure how much it means to them.
+- [28:37.120] The President: Thank you very much, Dan. Great job.
+- [28:39.020] Appreciate it.
+- [28:40.710] Do you want to take a couple of questions, Governor?
+- [28:42.540] Would you want to do that?
+- [28:43.850] Greg Abbott: Sure.
+- [28:45.080] The President: Is the press going to be respectful
+- [28:46.490] of this event,
+- [28:47.860] this horrible event, this horrible tragedy?
+- [28:50.590] Please. Yes, go ahead, please.
+- [28:51.900] The Press: Mr. President,
+- [28:53.160] Marissa Armas here with CBS News Texas.
+- [28:54.980] Several families we've heard from are obviously upset
+- [28:58.000] because they say that those warnings,
+- [28:59.780] those alerts didn't go out in time.
+- [29:02.160] And they also say that people could have been saved.
+- [29:04.430] What do you say to those families?
+- [29:06.720] The President: Well, I think everyone did an incredible job
+- [29:08.730] under the circumstances.
+- [29:10.040] This was, I guess Kristi said, a one in 500, one in 1000 years.
+- [29:14.380] And I just have admiration for the job that everybody did.
+- [29:19.300] There was just admiration.
+- [29:23.530] Only a bad person would ask a question like that,
+- [29:26.630] to be honest with you. I don't know who you are,
+- [29:28.240] but only a very evil person would ask a question like that.
+- [29:31.580] I think this has been heroism. This has been incredible.
+- [29:35.110] Really the job you've all done, that's easy to sit back and say,
+- [29:38.590] "Oh, what could have happened here or there?
+- [29:41.470] Maybe we could have done something differently."
+- [29:43.030] This was a thing that says never happened before
+- [29:47.600] and nobody's ever seen anything --
+- [29:48.900] I've never seen anything like this.
+- [29:50.100] I've gone to some real bad ones.
+- [29:52.510] I've never seen anything like this.
+- [29:53.890] So I admire you and I consider you heroes and heroine,
+- [30:02.590] and I think you've done an amazing job.
+- [30:05.940] Brian, go ahead, please.
+- [30:07.410] The Press: Thanks, Mr. President.
+- [30:08.850] If I could ask you, who was the first person
+- [30:11.080] to contact you to notify you that this tragedy was unfolding?
+- [30:15.860] The President: Probably Kristi, but I was notified by a lot.
+- [30:18.920] And Chip called also. Chip was here for,
+- [30:22.420] he thought it was going to be a little flood.
+- [30:24.370] He was going to miss the signing for the big beautiful bill.
+- [30:28.990] And he called to apologize.
+- [30:30.690] He said he's going to be delayed because of a little flood.
+- [30:34.800] And the little flood turned out
+- [30:36.090] to be the biggest flood anyone's ever seen.
+- [30:38.370] So Chip and -- But Kristi called right away.
+- [30:41.110] She was there. I looked the next morning.
+- [30:43.490] She was right there on the ball, so --
+- [30:45.840] The Press: I just want to say as a native Texan,
+- [30:47.370] I've received hundreds of messages.
+- [30:49.010] I told you that the other day.
+- [30:50.300] But I'm going to tell our representatives
+- [30:51.900] that are here in the crowd today.
+- [30:53.220] Thank you for your response. This is Texas strong.
+- [30:56.740] President Trump, this is America First policy
+- [30:58.740] in terms to responding to a tragedy like this.
+- [31:01.230] Thank you on behalf of Texas as well.
+- [31:02.640] The President: Thank you very much.
+- [31:03.920] Well, that's a nice reporter. That's a nice question.
+- [31:07.730] That's a nice -- But I like his statement even better.
+- [31:09.760] Thank you very much, Brian.
+- [31:10.970] That's very nice. Yeah, please go ahead.
+- [31:12.360] The Press: Great to see you, President Trump.
+- [31:13.640] The President: Thank you.
+- [31:14.860] The Press: Thank you, First Lady Melania
+- [31:16.070] for being here. I'm born and raised in Texas
+- [31:18.020] and there's not a person in our state
+- [31:19.640] who hasn't been impacted by this tragedy.
+- [31:22.130] But what's been so disheartening recently
+- [31:24.640] are these ghouls on the left,
+- [31:26.070] like Jasmine Crockett in the left-wing media
+- [31:28.470] who want to point fingers and play partisan games
+- [31:30.710] and fundraise off of this crisis.
+- [31:32.630] And what I love about Texas is we come together in a crisis,
+- [31:35.620] across party lines, ideological lines.
+- [31:37.790] So what is your message,
+- [31:38.990] and maybe Governor Abbott as well,
+- [31:40.580] to these folks on the left who are using this
+- [31:42.200] to gain partisan points in viral videos?
+- [31:45.400] The President: Well, I'll start off by just saying
+- [31:48.950] they've lost their confidence.
+- [31:50.320] They've had a tremendous run of bad talent.
+- [31:54.750] I don't say bad luck, I say bad talent.
+- [31:57.630] And all they want to do is criticize.
+- [31:59.530] And I hope we can someday be bipartisan.
+- [32:02.140] But all they like to do is criticize
+- [32:03.960] and they're getting just absolutely clobbered
+- [32:06.940] because everyone sees what an incredible job the governor did.
+- [32:10.330] Everybody in this room,
+- [32:11.540] everybody at this table in particular,
+- [32:13.210] but everybody in this room did an incredible job.
+- [32:16.030] And the public knows it, the public's wise to it.
+- [32:19.480] They have automatic, they have their sound bite.
+- [32:21.180] They send out a sound bite,
+- [32:22.490] and it's supposed to be say that.
+- [32:24.800] And if you don't say that, they throw you out of the party.
+- [32:27.350] No, honestly, they've lost their confidence.
+- [32:30.960] I see some of the people they're putting forward
+- [32:33.340] and those people will only ruin our nation.
+- [32:35.700] Our nation a year ago was dead,
+- [32:41.330] and it was going down, but it was dead.
+- [32:44.300] And now we have the most successful nation
+- [32:47.470] anywhere in the world.
+- [32:48.780] You take a look. I was with the king of Saudi Arabia,
+- [32:51.610] I was with the leaders of the world recently at NATO.
+- [32:55.380] Every one of them said the same thing.
+- [32:56.810] They said, "It's the most amazing thing I've ever seen.
+- [32:59.340] Your nation was dead one year ago,
+- [33:02.840] and now you have the hottest nation."
+- [33:04.540] So hottest nation, hottest in quotes.
+- [33:07.420] It's the hottest nation anywhere in the world.
+- [33:09.540] Every leader is saying that we are.
+- [33:10.820] We're the hottest nation in the world.
+- [33:13.190] We've all gotten together. We've done a great job.
+- [33:15.300] This state has been unbelievable.
+- [33:17.330] I work so well with the governor and with your senators
+- [33:20.230] and with everybody in this state, we get it done.
+- [33:25.210] We've had some pretty big problems here with the floods
+- [33:28.270] and all the different things that we've worked out,
+- [33:30.100] and we respond very quickly and they respond very quickly
+- [33:34.540] and they spend their money wisely.
+- [33:36.040] We give them a lot of money, but they spend it wisely.
+- [33:38.330] I can't say that's true always.
+- [33:39.790] Sometimes we give money and they don't spend it so wisely.
+- [33:43.050] They spend it very, very foolishly.
+- [33:45.400] So Governor, do you want to say a few words?
+- [33:47.410] Governor Abbott: Sure.
+- [33:48.690] One thing that you pointed out that we all know about Texans
+- [33:51.490] is part of our bloodstream, and that is we're Texas-tough.
+- [33:54.850] We're made for challenges. I read a piece the other day,
+- [33:58.010] I'll just quote one line from, and that is,
+- [34:00.550] "When the rivers rise, so do we, and we rise to the occasion."
+- [34:05.060] And the way that we do that is by everybody working together.
+- [34:08.780] We're a one team united. We are Texans.
+- [34:11.050] And fighting as Texans, we're going to rebuild
+- [34:13.690] not just Kerrville or Hunt or Kerr County,
+- [34:17.260] but across the entire state, across regions.
+- [34:19.580] We're going to come together and fight together
+- [34:21.430] and ensure that we elevate even better,
+- [34:24.490] keeping foremost in mind exactly what Dr. Phil was talking about.
+- [34:28.600] As we rebuild, we've got to constantly comfort
+- [34:32.130] the families of those who have suffered a loss.
+- [34:34.600] Those two things combined,
+- [34:36.210] and we will be our quintessential selves,
+- [34:39.380] and that is Texas-tough. Texas resilient.
+- [34:42.940] The President: Thank you very much.
+- [34:44.170] Go ahead, sir. In the blue. The blue shirt.
+- [34:45.780] Chip Roy: Mr. President, thank you.
+- [34:47.560] The President: No. Right over here, go ahead.
+- [34:48.840] The Press: I'll wait for Chip.
+- [34:50.050] He's my representative. I'll wait for him.
+- [34:51.630] Chip Roy: Mr. President, if I could just jump in
+- [34:53.020] and just say one thing.
+- [34:54.220] The President: Chip.
+- [34:55.440] Chip Roy: Which is, I can't thank you enough.
+- [34:57.510] When I called you on Friday, you said, "Whatever you need."
+- [35:01.000] When I called the secretary's office,
+- [35:02.480] she called me within 15 minutes and said, "Whatever you need."
+- [35:05.240] And then she came here this weekend.
+- [35:07.030] I've never seen such a quick response
+- [35:09.140] and such a focus on delivering for the people.
+- [35:11.790] But importantly, I want to thank all of my colleagues
+- [35:14.150] in the house sitting right over there.
+- [35:15.800] Every single one of them called me personally.
+- [35:17.870] Every single one of them reached out to this team
+- [35:20.260] that the governor was just talking about,
+- [35:22.100] that team effort to deliver for the people of Texas.
+- [35:24.690] They're here now, not here at a microphone.
+- [35:27.280] They're here just to be here,
+- [35:29.220] because they believe in this state
+- [35:30.780] and they believe in what you're doing as the president,
+- [35:32.870] and they believe in what the governor's doing.
+- [35:34.680] And importantly, this morning, I was at a press conference
+- [35:37.730] for the Community Foundation of the Hill Country,
+- [35:40.050] which has raised over $30 million
+- [35:42.070] from the great people of this state
+- [35:45.960] and from around the country.
+- [35:47.200] And they sent checks out today of $5 million
+- [35:50.430] to people in this community to help them with cash for people,
+- [35:53.190] for small businesses, first responders,
+- [35:55.270] and all the people that need help to reunite.
+- [35:58.570] And the final point, I'll just say,
+- [36:00.210] for all of the media to ask that ridiculous first question
+- [36:03.520] and try to point fingers, the governor said it best
+- [36:06.010] when he said that pointing fingers is for losers.
+- [36:08.340] This state is about looking forward and we'll figure out
+- [36:10.830] how to make our systems the best they can be.
+- [36:12.970] But importantly, when you see 26 feet of water
+- [36:15.710] rising a foot per minute,
+- [36:17.360] don't go around pointing fingers.
+- [36:18.990] The people in this community rallied around to help people
+- [36:21.340] and that's the enduring image.
+- [36:22.650] Those little girls from Camp Mystic
+- [36:24.430] who were singing hymns as they watched the damage,
+- [36:27.630] as they left that camp, coming out of there.
+- [36:29.850] And that's who the people of Texas are.
+- [36:31.240] And I thank you, Mr. President.
+- [36:32.500] The President: Thank you very much.
+- [36:33.740] And two words: unity and competence.
+- [36:36.100] If you were to ask me two words that I've seen here,
+- [36:40.120] one is unity; the unity has been unbelievable.
+- [36:42.580] And then, the competence;
+- [36:43.790] the competence of the Coast Guard
+- [36:45.350] and some of the people within the Coast Guard
+- [36:47.900] that saved a lot of lives.
+- [36:49.320] They went out and they saved a lot of lives.
+- [36:51.160] But there were others other than the Coast Guard.
+- [36:53.170] But I would say competence and unity,
+- [36:55.770] the way everyone has just pulled together.
+- [36:58.610] It's rare that you see this.
+- [37:00.650] Joe Pack: Mr. President?
+- [37:01.980] The President: Again, I've been to so many
+- [37:03.190] and I've seen bickering and fighting
+- [37:05.670] and it doesn't work the same way.
+- [37:08.460] This has been amazing.
+- [37:10.240] And this is the biggest because I've never seen one like this.
+- [37:12.510] Neither has anybody else, by the way. Yes, please?
+- [37:15.450] Joe Pack: It's Joe Pack, Mr. President.
+- [37:16.780] It's been a while since we've seen each other.
+- [37:19.240] Obviously, the staffing was where it needed to be.
+- [37:21.170] In fact, it was heavier than it should have been
+- [37:22.610] because of the holiday weekend.
+- [37:23.890] Whatever they're saying in the left news isn't the truth.
+- [37:26.760] You're a developer, though. At 1:00 in the morning,
+- [37:29.250] the technology only goes as far as it goes.
+- [37:31.340] Kids don't have their phones. Phones are dead.
+- [37:33.120] People by the Riverside don't have electricity.
+- [37:35.750] They're not going to get a phone alert that way.
+- [37:37.900] As a developer, going forward,
+- [37:39.600] knowing that everything was done lightning fast
+- [37:41.570] by Secretary Noem,
+- [37:42.780] by you, by the governor and everybody else,
+- [37:44.990] you did everything right. What do we do next time though,
+- [37:47.400] to make sure that people are alerted if they're dead asleep?
+- [37:50.310] Maybe an alarm system, maybe a siren system.
+- [37:52.690] You might know better than I, but what do we do going forward
+- [37:55.400] because we've got to make sure that people get the alert
+- [37:57.590] when it's time to get the alert. Thank you.
+- [37:58.930] The President: Yeah, you'll probably have to do that.
+- [38:00.740] You'll probably come up with something very unique
+- [38:02.880] because there is no system right now.
+- [38:05.290] There's been no --
+- [38:06.990] A thing like this has never happened
+- [38:08.390] that anybody knows, certainly not to this extent.
+- [38:11.370] But I know the governor and everybody is working on it,
+- [38:13.990] they're meeting and they'll figure something out.
+- [38:16.770] Go ahead, Gavin.
+- [38:17.990] Governor Abbott: Yeah, so we begin a session in 10 days.
+- [38:21.130] We will address every single question that you just ask.
+- [38:24.680] You mentioned some of the ideas. There are many more.
+- [38:27.260] And we want to hear, most importantly,
+- [38:30.360] we have to devise a response that's right for this community.
+- [38:35.060] And this community has to weigh in
+- [38:36.630] and they need time to be able to convey that to us.
+- [38:39.620] But we're going to work on alerts.
+- [38:41.450] We're going to work on every single solution
+- [38:42.950] to make sure things like this don't happen again,
+- [38:44.710] not just in this community,
+- [38:46.080] but in other river basins across the state also.
+- [38:48.480] So, we will work to get it right.
+- [38:50.430] And we've jotted down, Joe,
+- [38:52.350] every idea that you just mentioned.
+- [38:54.610] The President: Ted Cruz. Go ahead, please, Ted.
+- [38:58.430] Secretary Cruz: Well, Mr. President,
+- [38:59.710] I wanted to say thank you for being here.
+- [39:01.810] First Lady, thank you for being here.
+- [39:04.760] Where we are right now, the Hill Country,
+- [39:06.350] is a very special part of this state.
+- [39:09.040] It is universally considered the most beautiful part
+- [39:12.140] of the state. You've got rolling hills.
+- [39:13.900] You've got these incredible, peaceful, wonderful rivers.
+- [39:17.600] The Guadalupe River,
+- [39:19.160] just about all of us have been swimming in that river,
+- [39:21.370] floating in that river.
+- [39:22.570] And one of the things that's really special about Kerr County
+- [39:25.880] is there are 40 summer camps here.
+- [39:27.550] This is a place where, all across Texas, our kids go.
+- [39:31.560] The governor's daughter came every year to camp here.
+- [39:35.200] Both of you know our girls really well.
+- [39:37.340] Heidi, the week before this flood, was here in Hunt,
+- [39:41.320] picking up our daughter Catherine from camp.
+- [39:44.230] And Camp Mystic, that faced such devastating loss,
+- [39:50.510] is an institution in this state.
+- [39:52.050] It's 100 years old, was founded in 1926.
+- [39:55.610] And I'll tell you, in Texas,
+- [39:57.080] it's not just here that the hurt is felt.
+- [39:59.040] It's every part of the state.
+- [40:00.920] Houston, Dallas, San Antonio, Austin, West Texas, East Texas.
+- [40:04.660] Texans have gone -- and what's amazing is,
+- [40:07.880] at the closing ceremonies of these camps,
+- [40:09.860] you see multiple generations.
+- [40:12.320] You'll see grandmothers and moms and little girls
+- [40:14.720] who have all gone to the same camp.
+- [40:17.770] And the pain that the state is feeling and on Monday I went
+- [40:21.760] and walked through Camp Mystic.
+- [40:25.150] In the center of the camp is a cabin called the Bubble Inn
+- [40:30.200] where the littlest girls were staying.
+- [40:33.880] And in front of the Bubble Inn are, right now,
+- [40:36.930] 17 small white crosses in the ground.
+- [40:40.860] And each cross has the name of another little girl
+- [40:43.440] who lost her life.
+- [40:45.920] The final cross has the name of Dick Eastland,
+- [40:49.370] the camp director who gave his life trying to save his girls.
+- [40:53.690] And the water rose in that camp
+- [40:56.310] and in that cabin eight feet high.
+- [40:58.570] You can see the water line eight feet high.
+- [41:01.210] It blew the windows out of the cabin
+- [41:02.980] and it swept those girls out. I will tell you,
+- [41:05.750] I've never seen anything more horrible in my life.
+- [41:07.850] And I just sat there crying.
+- [41:10.270] I saw mom and dad come up to one of those crosses,
+- [41:13.070] drop to their knees and kiss that cross.
+- [41:16.450] And the mom was weeping. I also want to tell you --
+- [41:20.920] And you said this, you talked about unity.
+- [41:23.370] The way this community,
+- [41:24.680] the way this state is coming together is incredible.
+- [41:28.170] There are stories of heroism.
+- [41:30.930] I met a mom and dad who had a 14-year-old boy
+- [41:34.460] at Camp La Junta, a boys camp.
+- [41:37.070] Their 14-year-old son was awakened at 3:00 in the morning.
+- [41:39.790] The water was rising.
+- [41:41.000] The counselor said, "Let's go save the little boys."
+- [41:44.240] And they went down to the seven, eight, nine-year-old boys
+- [41:46.590] and pulled them out of their camps
+- [41:48.160] through the crashing water.
+- [41:49.630] And this mom and dad were crying.
+- [41:51.700] Now, their son survived.
+- [41:53.830] And I said, "Look, your son will always have this trauma.
+- [41:56.110] You will always have this trauma.
+- [41:58.420] But at the same time, your son will always know,
+- [42:00.730] when he was 14 years old, that there are little boys
+- [42:04.290] and one day there are men who are alive
+- [42:06.480] because he had the courage as a 14-year-old
+- [42:09.190] to risk his life to save them.
+- [42:12.570] And so, we are grateful you're here.
+- [42:14.160] And I will say, something Chip referenced is very true.
+- [42:17.640] There's a video of a school bus full of campers from Mystic,
+- [42:23.100] after this crisis, riding past the devastation.
+- [42:27.230] And they are singing Christian hymns.
+- [42:30.740] And I promise you there's not a person here
+- [42:32.650] who can watch that video and not weep tears of sorrow,
+- [42:37.040] but also tears of joy.
+- [42:38.730] So, we are grateful for the response.
+- [42:41.210] Governor, the first responders, everyone who's come together.
+- [42:45.640] And to all the moms and dads, just know we love you.
+- [42:47.840] That the agony, my street at home,
+- [42:52.280] every house has a green ribbon around it
+- [42:54.490] for the girls at Mystic.
+- [42:56.490] And that's true in a lot of streets all throughout Texas.
+- [42:59.130] And we will come through this, one way or the other.
+- [43:02.030] And I'll tell you, the Hunt Store right now?
+- [43:03.860] The sign says Hunt Store, except today it doesn't.
+- [43:06.320] It says Hunt Strong.
+- [43:07.580] They redid the sign. That's the spirit of who we are.
+- [43:12.640] The President: Thank you, Ted, very much.
+- [43:13.980] Well, yes, please.
+- [43:16.190] Lt. Governor Patrick: I wanted to respond just to something
+- [43:17.810] that Joe Pack said and the governor.
+- [43:20.190] The speaker and I announced yesterday
+- [43:22.740] that we will begin our hearings in two weeks.
+- [43:26.840] But in three weeks, we're going to have a hearing in this room
+- [43:30.020] so that the residents and the people in this area
+- [43:32.990] don't have to come to Austin. We're going to come to them.
+- [43:35.510] And we'll stay here as long as it takes to hear their stories
+- [43:39.370] and their needs and their wants.
+- [43:40.940] So we're going to be here in three weeks
+- [43:42.780] in this room to hear from them.
+- [43:44.120] The President: Good, Dan. Very good.
+- [43:45.820] Well, I just want to thank everybody for coming together.
+- [43:49.400] And the word unity, again.
+- [43:51.120] But I just want to thank you very much.
+- [43:52.720] And we'll be helping you from Washington, D.C.
+- [43:56.620] like no other president would do.
+- [43:58.790] Nobody else would do it.
+- [44:01.990] Nobody else would even get back to you.
+- [44:06.000] You're fully funded, as you know.
+- [44:08.190] And Kristi, I would say they were fully funded
+- [44:10.530] within minutes of hearing about this.
+- [44:12.910] And the state of Texas, number one,
+- [44:14.920] they do it right and they've done it right for a long time.
+- [44:18.060] And it's a very special place to me. I will tell you that.
+- [44:21.190] Politically -- I don't want to say politics,
+- [44:23.690] but politically it's been a very special place to me.
+- [44:26.790] Our great Secretary of Agriculture,
+- [44:28.870] who you've done such a great job,
+- [44:30.410] Brooke Rollins, you come from Texas
+- [44:32.930] and I just want to thank you.
+- [44:36.030] She even got the cost of eggs right down.
+- [44:39.240] They hit me with that one.
+- [44:40.460] And she got them down so quickly, nobody knew what had --
+- [44:43.020] By Easter, everybody was having eggs at a lower price
+- [44:46.280] than they ever thought possible. But you've done a fantastic job.
+- [44:49.110] But it's just been a very special state to me
+- [44:52.540] and it's my honor.
+- [44:53.770] And we will continue to work together.
+- [44:55.440] And well, it's a bad situation and you can never say,
+- [45:01.070] "Oh, it's going to be bigger, better, stronger."
+- [45:04.360] It's just so many lives have been lost.
+- [45:06.590] You can't say that. But we're going to make it.
+- [45:10.160] We're going to make it back. We're going to make it back
+- [45:12.290] and we're going to make it good again.
+- [45:13.760] And everybody wants to do it.
+- [45:15.680] And I just want to thank you and I want to congratulate you.
+- [45:18.050] You guys have been unbelievable.
+- [45:19.340] Thank you for your words before. It was unbelievable.
+- [45:22.490] The job you've done, Kim, everybody,
+- [45:24.150] every single one of you.
+- [45:25.360] So, you should be very proud and we're very proud of you.
+- [45:28.840] Thank you all very much for doing such a good job.
+- [45:31.840] Thank you very much.

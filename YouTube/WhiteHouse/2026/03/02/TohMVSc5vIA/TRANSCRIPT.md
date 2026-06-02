@@ -1,0 +1,688 @@
+<!-- source: https://www.youtube.com/watch?v=TohMVSc5vIA -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: TohMVSc5vIA -->
+<!-- date_published: 2026-03-02T17:31:55+00:00 -->
+<!-- date_accessed: 2026-06-02T02:37:13.022072+00:00 -->
+
+# Transcript: President Trump Participates in a Medal of Honor Ceremony
+
+- [00:09.010] Announcer: Ladies and gentlemen,
+- [00:10.300] the President of the United States,
+- [00:12.240] Donald J. Trump.
+- [00:15.050] ♪ (Hail to the Chief) ♪
+- [00:44.690] Chaplain Green: Ladies and gentlemen,
+- [00:46.390] please bow with me
+- [00:47.600] as I ask God's blessings upon this ceremony.
+- [00:53.360] Almighty God, your steady hand has guided this Republic
+- [00:58.090] for nearly 250 years.
+- [01:01.600] From its birth in the wilderness to this very hour,
+- [01:05.990] we come to you now with grateful hearts.
+- [01:10.220] We assemble here today to honor men
+- [01:13.310] who, when the test came, were steadfast and unmovable.
+- [01:19.390] We thank you for the unyielding conviction
+- [01:22.100] of Master Sergeant Roderick Edmonds,
+- [01:24.980] who looked evil in the eyes and did not flinch.
+- [01:29.860] And we thank you for the battlefield grit
+- [01:32.730] of Command Sergeant Major
+- [01:34.080] Terry Richardson, courage that saved lives in Vietnam
+- [01:39.320] and courage that stands before us today.
+- [01:43.390] And Lord, we thank You.
+- [01:45.520] For Staff Sergeant Michael Aulis who in a final selfless act
+- [01:51.500] made his own body a shield for a friend.
+- [01:56.610] Bless the family and friends of these great men of honor,
+- [02:00.280] O Lord, and forbid that we leave this place
+- [02:04.380] as mere admirers of their heroic deeds.
+- [02:08.430] Plant in our hearts a measure of their courage
+- [02:11.780] that we might prove worthy.
+- [02:14.360] Of the freedom for which they and generations
+- [02:17.760] before them defended.
+- [02:20.960] Lord, now let the light of liberty
+- [02:24.090] continue to shine on our great nation.
+- [02:27.430] We pray in the strong name of the one who guides us,
+- [02:32.230] this will defend. Amen.
+- [02:42.900] The President: Thank you very much, Chaplain Green.
+- [02:46.320] Wonderful job. Appreciate it.
+- [02:48.920] And thank everybody for being here.
+- [02:52.030] And please, feel free to sit.
+- [03:00.100] So before we begin this important ceremony
+- [03:03.140] and there's no ceremony
+- [03:04.900] that can be much more important than this.
+- [03:07.380] Let me provide a brief update on Operation.
+- [03:11.170] Epic Fury.
+- [03:13.520] Today, the United States military continues
+- [03:16.010] to carry out large-scale combat operations in Iran
+- [03:20.010] to eliminate the grave threats posed to America
+- [03:22.660] by this terrible terrorist regime.
+- [03:27.640] Following our obliteration of Iran's nuclear program
+- [03:31.630] in Operation Midnight Hammer a short while ago,
+- [03:36.880] we warned Iran not to make any attempt
+- [03:39.060] to rebuild at a different location
+- [03:41.040] because they were unable to use the ones
+- [03:43.710] we so powerfully blew up, but they ignored those warnings
+- [03:49.000] and refused to cease their pursuit of nuclear weapons.
+- [03:52.020] In addition,
+- [03:53.300] the regime's conventional ballistic missile program
+- [03:56.350] was growing rapidly and dramatically
+- [03:59.140] and this posed a very clear colossal threat to America
+- [04:02.620] and our forces stationed overseas.
+- [04:05.820] The regime already had missiles capable of hitting Europe
+- [04:09.290] and our bases both local and overseas,
+- [04:11.790] and would soon have had missiles
+- [04:13.970] capable of reaching our beautiful America.
+- [04:18.510] The purpose of this fast-growing missile program
+- [04:21.120] was to shield their nuclear weapon development
+- [04:23.610] and make it extraordinarily difficult for anyone
+- [04:26.720] to stop them from making these highly forbidden
+- [04:29.920] by us nuclear weapons.
+- [04:32.190] We were the ones that were complaining,
+- [04:33.910] we were the ones that wanted it stopped,
+- [04:36.800] but everybody was behind us,
+- [04:38.590] they just didn't have the courage to say.
+- [04:41.050] So an Iranian regime armed with long-range missiles
+- [04:45.570] and nuclear weapons would be an intolerable threat
+- [04:49.480] to the Middle East, but also to the American people.
+- [04:54.440] Our country itself would be under threat
+- [04:57.970] and it was very nearly under threat.
+- [05:00.770] I was very proud to have knocked out the Iran nuclear deal
+- [05:03.830] by President Barack Hussein Obama.
+- [05:06.990] That was a horrible, horrible, dangerous document.
+- [05:10.490] They would have had nuclear weapons three years ago
+- [05:14.340] and they would have used them, but I'll not let that happen.
+- [05:19.230] For almost 47 years, this regime has been attacking
+- [05:24.090] the United States and killing Americans.
+- [05:26.200] Every time you see someone with missing arms and legs
+- [05:29.830] or a face that's been absolutely shattered violently,
+- [05:33.820] it was almost certainly caused by an Iran roadside bomb.
+- [05:39.230] They were put there by General Soleimani,
+- [05:44.260] who was the father of the roadside bomb,
+- [05:47.120] very proudly, he thought,
+- [05:50.250] but I terminated him in my first term.
+- [05:55.260] This was our last best chance
+- [05:57.150] to strike what we're doing right now
+- [05:59.520] and eliminate the intolerable threats
+- [06:01.940] posed by this sick and sinister regime,
+- [06:06.540] and they are indeed sick and sinister.
+- [06:09.770] Our objectives are clear.
+- [06:11.000] First, we're destroying Iran's missile capabilities
+- [06:16.130] and you see that happening on an hourly basis
+- [06:18.530] and their capacity to produce brand-new ones
+- [06:21.780] and pretty good ones they make.
+- [06:23.810] Second, we're annihilating their navy.
+- [06:26.780] We've knocked out already 10 ships.
+- [06:30.070] They're at the bottom of the sea.
+- [06:31.350] Third, we're ensuring
+- [06:32.940] that the world's number one sponsor of terror
+- [06:37.160] can never obtain a nuclear weapon,
+- [06:39.350] never going to have a nuclear weapon.
+- [06:40.680] I said that from the beginning,
+- [06:41.960] they're never going to have a nuclear weapon.
+- [06:44.390] They were on the road to getting one legitimately through a deal
+- [06:49.050] that was signed foolishly by our country.
+- [06:53.490] And finally, we're ensuring that the Iranian regime
+- [06:56.780] cannot continue to arm fund
+- [06:58.710] and direct terrorist armies outside of their borders.
+- [07:04.260] And we thought we had a deal, but then they backed out
+- [07:07.240] and they came back
+- [07:08.630] and we thought we had a deal and they backed out.
+- [07:10.360] I said, you can't deal with these people,
+- [07:12.700] you've got to do it the right way.
+- [07:15.100] Today we grieve for the four heroic American service members
+- [07:18.920] who have been killed in action
+- [07:20.890] and send our love and support to their families.
+- [07:25.300] In their memory, we continue this mission with ferocious,
+- [07:28.950] unyielding resolve to crush the threat this terrorist regime
+- [07:32.830] poses to the American people. And a threat, indeed it is.
+- [07:37.710] We have the strongest and most powerful
+- [07:40.380] by far military in the world and we will easily prevail.
+- [07:46.830] We're already substantially ahead of our time projections.
+- [07:52.410] But whatever the time is, it's OK.
+- [07:54.530] Whatever it takes, we will always --
+- [07:58.000] and we have right from the beginning,
+- [08:00.350] we projected four to five weeks,
+- [08:03.290] but we have capability to go far longer than that.
+- [08:07.290] We'll do it, whatever somebody said -- today, they said,
+- [08:10.850] oh, well, the president wants to do it really quickly;
+- [08:13.100] after that, he'll get bored.
+- [08:14.390] I don't get bored.
+- [08:16.300] There's nothing boring about this --
+- [08:17.860] do you agree with that, Pete?
+- [08:19.120] I don't think there's anything -- Mr. General?
+- [08:21.060] I think there's nothing boring about it.
+- [08:23.810] Somebody actually said from the media,
+- [08:26.780] I think he'll get bored after about a week or two.
+- [08:28.840] No, we don't get bored. I never get bored.
+- [08:31.690] If I got bored I wouldn't be standing here right now.
+- [08:33.540] I guarantee you that.
+- [08:35.010] To go through what I had to go through.
+- [08:37.880] We also projected for weeks
+- [08:40.640] to terminate the military leadership.
+- [08:43.820] And as you know, that was done in about an hour.
+- [08:45.770] So we're ahead of schedule there by a lot.
+- [08:49.860] But please join me in thanking every American service member
+- [08:53.230] who bravely is standing in harm's way.
+- [08:55.820] They really are incredible. And I just want to thank you.
+- [08:58.310] We have a lot of them right here.
+- [08:59.650] Thank you very much.
+- [09:01.170] Thank you.
+- [09:03.250] (applause)
+- [09:14.080] Thank you everybody.
+- [09:15.390] We have a lot of great service members here
+- [09:17.960] with us too in this beautiful building, isn't it beautiful?
+- [09:21.900] We're adding on to the building a little bit.
+- [09:23.640] We're improving the building.
+- [09:26.140] See that nice drape when that comes down,
+- [09:29.000] right now, you see a very, very deep hole,
+- [09:32.170] but in about a year and a half from now,
+- [09:33.820] you're going to see a very, very beautiful building.
+- [09:36.580] And there's your entrance to it right there.
+- [09:38.370] In fact, it looks so nice. I don't think I'll even --
+- [09:40.240] I think I'll save money on the doors
+- [09:42.290] because it can't get more beautiful than that.
+- [09:44.900] I picked those drapes in my first term.
+- [09:48.120] I always like gold. But I think we can save a lot of money.
+- [09:51.770] I just saved -- I just saved curtains.
+- [09:55.490] But and it will be -- it'll be spectacular,
+- [09:57.930] be the most beautiful ballroom.
+- [09:59.760] I believe it's because I built many a ballroom.
+- [10:01.630] I believe it's going to be the most beautiful ballroom
+- [10:04.240] anywhere in the world.
+- [10:05.620] And when you hear all that hammering out there,
+- [10:07.240] you know why the First lady is not thrilled exactly.
+- [10:11.390] She said will the pile drivers ever stop?
+- [10:13.670] You know they go from six in the morning
+- [10:15.840] till 1130 in the evening. Can you imagine? Hear?
+- [10:21.260] You know what, to me that's a beautiful sound,
+- [10:23.190] she doesn't like it. I love it.
+- [10:24.490] You know what to me other than here
+- [10:26.610] because we're donating it not a penny to the taxpayer.
+- [10:31.150] It'll be under budget, ahead of schedule.
+- [10:33.680] It'll be $400 million or less.
+- [10:36.730] Most people say $400 million or more. No, it'll be less.
+- [10:40.320] But when I hear that sound, that beautiful sound behind me,
+- [10:44.340] it means money so I like it, but my wife isn't thrilled.
+- [10:48.610] She said this is getting crazy. I said, don't worry about it.
+- [10:52.180] We'll be all finished up in a few months.
+- [10:55.070] But now for the reason that we're gathered this morning
+- [10:58.150] to recognize the unsurpassed courage
+- [11:00.670] of three really incredible American heroes,
+- [11:03.890] one living and two no longer with us.
+- [11:07.970] So together, we recognize the exceptional valor
+- [11:12.540] of Master Sergeant Roderick Edmonds
+- [11:16.410] and maybe I could ask your families to stand
+- [11:18.480] because their beautiful families.
+- [11:19.870] I got to meet them and please.
+- [11:40.500] So Staff Sergeant Michael Ollis,
+- [11:43.640] and Command Sergeant Major Terry Richardson
+- [11:46.480] as they receive our nation's highest military award.
+- [11:50.760] The Congressional Medal of Honor and we're pleased to be joined
+- [11:55.160] by Secretary of War, Pete Hegseth.
+- [11:58.820] Busy. He's busy, very busy guy.
+- [12:00.830] In fact, I said if you want, Pete, you can avoid it.
+- [12:04.200] General Raizin Caine also
+- [12:06.100] and they said we don't avoid this one,
+- [12:08.480] this is one you wouldn't avoid for anything, right?
+- [12:11.330] So we appreciate that you're here.
+- [12:12.590] Secretary of Veterans Affairs, who's doing an incredible job
+- [12:16.340] veterans affairs, Doug Collins. Doug, thank you.
+- [12:20.050] You -- stand up, Doug, you're doing such a good job,
+- [12:22.750] 92 percent approval rating.
+- [12:27.980] Chairman of the Joint Chiefs of Staff General Dan Caine,
+- [12:33.250] who is known as Raizin Caine.
+- [12:34.790] I liked him when I heard that name, Raizin Caine.
+- [12:36.870] I said if it's true, you're my guy and it's true,
+- [12:40.520] it's turned out. It's very true.
+- [12:42.530] He's a great guy and a great general.
+- [12:45.470] Secretary of the Army, Dan Driscoll,
+- [12:47.710] and Army Chief of Staff, Randy George.
+- [12:50.010] Thank you. Thank you both, Dan.
+- [12:52.750] As well as Senators Tom Cotton, Bill Hagerty.
+- [12:56.670] You guys were great on television this week
+- [12:58.530] and I'll tell you what can't have a better representative
+- [13:00.900] than both of you.
+- [13:02.220] Thank you very much.
+- [13:03.790] And Representatives Tim Burchett,
+- [13:07.260] Jack Bergman and Nicole Malliotakis
+- [13:10.970] and we have a few others sitting here,
+- [13:12.370] but I'm not going to go through it
+- [13:13.690] because we have far more important people to honor today.
+- [13:16.960] We have Tom Homan.
+- [13:18.170] I got to at least mention Tom Homan,
+- [13:20.640] I would be a stand up, Tom, what a job zero --
+- [13:23.850] zero people coming in.
+- [13:29.160] We had millions and millions of people
+- [13:31.430] pouring into our country now.
+- [13:33.220] I mean, I'm not even sure I can believe this number is zero,
+- [13:35.420] but it is given out by Democrats or Democrats from the left
+- [13:39.150] and they're rated for the last nine months,
+- [13:40.880] we had zero people come illegally through our border.
+- [13:43.650] Right, Tom?
+- [13:44.860] So I want to thank you very much and I also want to salute
+- [13:50.880] six former Medal of Honor recipients,
+- [13:53.150] William Swenson, Jim McLernnan,
+- [13:57.610] Walter Marm, Thomas Paine, Sammy Davis.
+- [14:02.460] That's an interesting guy. And where is Sammy Davis?
+- [14:05.450] We have a big story here.
+- [14:06.700] Sammy, you've heard that all your life.
+- [14:08.290] I'll bet, huh? And Edward Byers. Stand up, please.
+- [14:21.130] You all look good. We all look good.
+- [14:24.760] We remember the ceremonies, all great.
+- [14:27.230] It's a great -- it's a great honor.
+- [14:30.030] There's no greater. I tried for myself,
+- [14:31.820] I've tried numerous times to get one by myself.
+- [14:35.220] I keep getting shut down. They say you can't do it, sir.
+- [14:38.500] Bad protocol. Very bad. I would say the worst.
+- [14:42.340] But I'm only kidding. You don't have to say
+- [14:44.170] I'm only kidding otherwise the press will come out with --
+- [14:46.650] which they actually did once.
+- [14:48.340] Donald Trump wants a Congressional Medal of Honor,
+- [14:50.790] but he's been shut down.
+- [14:53.410] But now you are a brave amazing people
+- [14:56.870] and I want to thank you all.
+- [14:58.140] In 1941, Roddy Edmonds of Knoxville, Tennessee,
+- [15:03.270] enlisted in the US Army and soon rose
+- [15:06.350] to one of the youngest master sergeants in the military.
+- [15:09.640] In 1944, he sailed to Europe to fight in World War II
+- [15:15.280] and he was so enthusiastic and young and full of vim and vigor.
+- [15:21.240] Roddy soon found himself on the front lines
+- [15:23.560] of the Battle of the Bulge. That was a big one.
+- [15:26.870] Massively outnumbered by enemy forces.
+- [15:30.020] His 1,200-soldier unit fought valiantly
+- [15:34.390] until they were completely overrun.
+- [15:37.380] The force was massive on the other side,
+- [15:40.330] many times the number.
+- [15:42.600] After a four-day death march, one that was covered very well
+- [15:48.910] by the history books through bitter cold,
+- [15:51.680] they were put into a German POW camp.
+- [15:55.230] Roddy was the top-ranking infantryman in the camp.
+- [15:58.540] He was number one, meaning he was responsible
+- [16:01.500] for the lives of his fellow service members.
+- [16:04.850] On July 26th, 1945, a Nazi SS officer
+- [16:09.700] issued an order over the camp loudspeaker, loud and strong.
+- [16:15.620] He said that only American Jews were to show up
+- [16:19.230] to roll call following this morning.
+- [16:23.300] He added all who disobey this order will be shot immediately.
+- [16:29.840] There were more than 200 Jewish American soldiers in the camp
+- [16:33.230] and Roddy knew their separation from the group
+- [16:36.060] would mean certain death.
+- [16:38.610] So that night, he summoned his team and devised a plan.
+- [16:42.700] The next morning all 1,200 American men
+- [16:45.960] fell in line together shoulder to shoulder.
+- [16:49.520] Enraged, the Nazi commandant rushed forward
+- [16:53.710] drew his Luger pistol and pressed the barrel
+- [16:57.130] between Sergeant Edmond's eyes.
+- [17:00.980] He barked at Roddy, they cannot all be Jews,
+- [17:06.270] he screamed loud and again and again
+- [17:09.250] and staring straight back into the raging face of evil,
+- [17:13.350] Sergeant Edmonds replied, fearlessly,
+- [17:16.250] we are all Jews here.
+- [17:19.350] The Nazi officer lowered his weapon
+- [17:21.300] and the soldiers erupted in cheers.
+- [17:24.470] With total disregard for his own life,
+- [17:26.520] Roddy had saved over 200 of his fellow service members.
+- [17:30.120] Their camp was liberated two months later.
+- [17:34.300] We're honored to be joined today by Roddy's son,
+- [17:37.820] Chris, please stand up as --
+- [17:52.470] Thank you, Chris.
+- [17:53.760] Today your father gets the honor he so courageously earned.
+- [17:59.280] And really amazing, right? It's an amazing story.
+- [18:04.100] Congratulations to the family of Master Sergeant Roddy Edmonds.
+- [18:09.540] The next two we recognize today
+- [18:11.750] served in the First Battalion 28th Infantry Regiment
+- [18:15.780] of the first Infantry Division, better known as Big Red One.
+- [18:20.940] Do you know about that, Pete?
+- [18:22.420] Right? Command Sergeant Major Terry Richardson,
+- [18:27.090] we are honored to have you with us.
+- [18:30.330] On September 12th, 1968,
+- [18:34.560] 102 brave men of Terry's Alpha Company
+- [18:38.130] were tasked with securing Hill 222,
+- [18:42.640] deep behind the enemy's line in Viet Nam.
+- [18:46.500] They didn't know it at the time, had no idea,
+- [18:50.050] but the area was totally infested
+- [18:52.580] with nearly 300 enemy bunkers and many, many enemy soldiers,
+- [18:58.650] far outnumbering them by at least four or five,
+- [19:01.610] even six to one.
+- [19:03.620] As Terry led Lima Platoon up Hill 222,
+- [19:09.450] the enemy launched an ambitious and violent attack,
+- [19:14.130] unleashing a withering fire of machine guns
+- [19:16.680] and rocket-propelled grenades.
+- [19:18.900] Just didn't stop, they just kept coming.
+- [19:21.940] Pinned down and hell on earth,
+- [19:23.640] Terry summoned unimaginable courage.
+- [19:27.770] Three times he exposed himself to enemy fire
+- [19:30.630] to rescue severely wounded comrades
+- [19:33.860] and three times he dragged them back to the group.
+- [19:37.380] Terry soon realized that the 82 remaining men
+- [19:40.690] had one chance of survival. That was air support.
+- [19:45.090] Acting without regard of his own life,
+- [19:47.260] he grabbed the radio and charged up
+- [19:49.730] Hill 222 alone. He needed to be there.
+- [19:53.100] It was the only place you'd get reception.
+- [19:56.180] He withstood a storm of enemy bullets,
+- [19:58.200] eventually reaching the top
+- [20:00.110] where he spent the next eight hours
+- [20:01.810] calling in tactical strikes completely exposed.
+- [20:07.070] An hour in, an enemy sniper shot rang out
+- [20:10.390] and the bullet tore through his right leg violently.
+- [20:14.260] He was in bad shape.
+- [20:15.460] But Terry disregarded that and pushed through.
+- [20:19.350] And after seven more hours of calling in American fire
+- [20:22.830] from above, the enemy retreated.
+- [20:27.150] Later that day, his team found him with both eardrums
+- [20:31.350] totally ruptured and a mangled right leg and foot,
+- [20:35.690] but still barely living, but living nevertheless.
+- [20:40.500] Due to Terry's actions above and beyond the call of duty,
+- [20:43.440] 82 men alpha company survived this battle,
+- [20:47.430] including two in this room, Norm Meyer and Dave Hemmer.
+- [20:53.700] Where are you? Do you want to stand up Norm and Dave?
+- [20:56.250] Where is Norm and Dave?
+- [21:00.080] That's pretty good. Pretty good.
+- [21:12.890] And that story is 100 percent correct, isn't it?
+- [21:16.010] Pretty -- it's -- how much have you paid him over the years?
+- [21:18.820] Have you -- have you said, take everything we have,
+- [21:21.560] we wouldn't be here, right?
+- [21:23.150] That's great. That's a great story.
+- [21:24.790] Terry, today, you entered the ranks of the bravest warriors
+- [21:28.960] ever to stride the face of the earth.
+- [21:32.580] Please stand up, please. Thank you.
+- [22:08.740] That's great, Terry. That's a great, brave man.
+- [22:14.120] I met him back there. I said, he's central casting.
+- [22:16.320] Look at him, he looks great.
+- [22:18.310] He looks great. You feel like fighting?
+- [22:20.930] We could -- I think we could take him today.
+- [22:23.030] What do you think, Pete? Can we make a little --
+- [22:25.990] we'll make a little deal with him,
+- [22:28.700] as you are a brave man.
+- [22:31.410] Finally, we honor one more American soldier,
+- [22:33.890] a fallen warrior of world of wars and really --
+- [22:39.900] of really, terror, Staff Sergeant Michael Ollis.
+- [22:45.410] Born in 1988 on Staten Island,
+- [22:48.030] Michael grew up seeing the World Trade Center across the bay.
+- [22:52.070] I know Staten Island so well.
+- [22:53.580] The people on Staten Island are amazing.
+- [22:56.610] After 9/11 Michael enlisted in the Army and by 24 years old,
+- [23:02.090] he was in, he was -- he was locked in.
+- [23:04.170] He loved it, he wanted it so badly.
+- [23:07.130] He was a squad leader serving in Afghanistan
+- [23:09.880] with the second Battalion, 22nd Infantry Regiment,
+- [23:15.430] first Brigade Combat Team
+- [23:17.710] of the legendary 10th Mountain Division.
+- [23:21.390] On August 28th, 2013,
+- [23:24.880] terrorists detonated a 400-pound car bomb
+- [23:29.010] on the east wall of the forward-operating base, Ghanzi,
+- [23:33.900] ripping open a 60-foot wide breach into a compound
+- [23:37.800] that housed NATO coalition forces, a lot of them.
+- [23:42.640] 10 Taliban fighters wearing suicide vests swarmed through.
+- [23:46.750] From across the compound,
+- [23:48.030] Michael saw the pillar of white smoke rising
+- [23:50.360] and ran to join the fight, rushing without his gear,
+- [23:54.660] wearing almost no gear, no Kevlar helmet, no body armor,
+- [24:00.350] just one magazine in his rifle.
+- [24:03.070] Along the way, he encountered a Polish soldier and together,
+- [24:07.140] they advanced under heavy fire, very, very heavy fire.
+- [24:12.080] At one point, shrapnel ripped
+- [24:14.030] through the Polish soldiers' legs,
+- [24:17.790] rendering him unable to walk, very, very severely hurt.
+- [24:22.620] In that chaos of gunfire explosions
+- [24:25.310] and charred human remains a terrorist insurgent appeared,
+- [24:30.310] rounding a corner with his suicide vest fully armed.
+- [24:33.790] And you could see it, it was going to happen.
+- [24:36.250] He charged the wounded Polish soldier.
+- [24:39.060] Without hesitation, Michael raised his gun
+- [24:41.450] and forced himself between the insurgent
+- [24:44.920] and the man he just met, shielding him with his own body.
+- [24:47.880] He knew it was going to happen.
+- [24:49.260] He shielded him with his own body.
+- [24:52.330] You know, bravery is amazing.
+- [24:54.090] You never really know who's brave, who's not,
+- [24:55.840] until they're really tested.
+- [24:57.160] We think some people are brave, Pete, and they're not.
+- [25:01.050] We think others aren't and they are.
+- [25:02.700] You never know. But he was tested.
+- [25:05.830] That's called the ultimate test, right?
+- [25:09.330] And in perhaps his final heartbeat,
+- [25:11.220] Michael fired his weapon and the terrorist
+- [25:14.180] detonated his vest simultaneously.
+- [25:18.000] Staff Sergeant Ollis was killed
+- [25:21.620] just weeks before his 25th birthday
+- [25:24.830] and nobody was any more brave than that.
+- [25:27.890] In his final act on Earth, Michael absorbed the blast,
+- [25:31.760] sparing the life of that Polish warrior,
+- [25:35.100] who we are grateful to have in the room with us today,
+- [25:38.470] Second Lieutenant Karol Cierpica, Karol Cierpica.
+- [25:43.820] Where are you, Karol? Hey.
+- [25:55.360] Would you like to come up?
+- [25:57.120] Please, please. I'd love to have you come up.
+- [26:02.460] Thank you, Karol. Very nice. Thank you very much.
+- [26:09.920] Karol Cierpica: Thank you so much.
+- [26:11.210] The President: Thank you.
+- [26:20.660] Karol Cierpica: Mr. President, minister of war,
+- [26:24.910] Prime Minister Polish of National Defense,
+- [26:28.850] distinguished guests, everyone gathered here today,
+- [26:33.470] (Inaudible)
+- [26:35.960] Basha, Michael and Jacob,
+- [26:40.730] especially dear Linda and Robert and the entire Ollis family,
+- [26:47.670] what do you have that you did not receive?
+- [26:51.260] This is how I would like to begin these few words
+- [26:54.120] to speak to you all here.
+- [26:56.360] In this special place and on the occasion
+- [26:59.540] of this incredibly important ceremony,
+- [27:03.380] one that is significant for many,
+- [27:06.230] but truly, especially exceptional for me
+- [27:10.290] is a particular privilege and a great honor.
+- [27:13.780] Above all, however, it is my commitment.
+- [27:18.160] It is a part of my new mission which began 13 years ago.
+- [27:23.370] A soldier is not something you are from time to time,
+- [27:28.300] it is who you are -- who you are forever.
+- [27:33.990] It is just like you are not a mother,
+- [27:36.080] a father, a sister or brother as only for a moment.
+- [27:42.130] These are not roles given to us for a while.
+- [27:44.970] They are a great gift but also a great lifelong commitment.
+- [27:49.860] Yes, today my commitment and my greatest gift
+- [27:53.960] is to cultivate the memory of true heroic act of courage
+- [27:59.870] that I witnessed performed by your beloved son, Michael.
+- [28:09.750] Please forgive me if my words have not fully captured
+- [28:13.520] what I truly feel today.
+- [28:16.520] However, sometimes words are simply not enough.
+- [28:20.810] I am deeply moved, happy,
+- [28:23.550] and grateful to God for my service,
+- [28:25.460] for my parents, for my family, for my beloved home in Poland,
+- [28:31.510] for my second family from Staten Island
+- [28:34.650] and for my second home in America.
+- [28:37.420] God bless you all.
+- [28:39.190] Michael, thank you for your service
+- [28:41.200] and I will see you in our heavenly homeland.
+- [28:44.140] Thank you for your service. Thank you so much.
+- [28:49.290] The President: Beautiful.
+- [29:12.800] Beautiful. Thank you. And Karol is joined by his wife
+- [29:17.740] and their two wonderful sons, Jacob and Michael.
+- [29:20.420] Michael is named after the American hero
+- [29:23.870] who saved his father's life.
+- [29:26.180] So stand up, Michael. Let me see.
+- [29:29.600] Wow. That's great.
+- [29:40.140] We're also pleased to be joined
+- [29:42.510] by several members of the Polish government,
+- [29:45.670] including Representatives of the president
+- [29:48.190] who I think is a fantastic man, by the way.
+- [29:50.740] I must be honest with you.
+- [29:53.010] I endorsed him and he won and he came from behind.
+- [29:56.420] He won and he was the biggest story in Europe.
+- [29:58.970] And he's going to be a great president.
+- [30:00.880] He already is.
+- [30:02.430] But as well as Poland's minister of defense
+- [30:05.580] to honor the blood and sacrifice
+- [30:07.820] that has helped seal the Polish American bond.
+- [30:11.200] We have a great bond.
+- [30:12.430] We have a great relationship with your country.
+- [30:15.270] And I just want to thank you.
+- [30:17.440] To Michael's parents, Bob and Linda,
+- [30:20.090] your son's selflessness in the face of real evil
+- [30:23.850] reminds us of the courage that keeps our country free.
+- [30:28.700] And I just said the genetics in that family
+- [30:31.050] are very strong, right? I said that before.
+- [30:33.660] All three families, I said --
+- [30:35.110] good, I see some of the young ones today.
+- [30:37.050] And I said you have good genes.
+- [30:38.860] They were asking me, what does that mean?
+- [30:40.250] I said, don't worry about it, you'll figure it out,
+- [30:43.530] but you have the best genes you can have, actually.
+- [30:46.250] So thank you for giving America your beloved son.
+- [30:51.440] And now I would like to ask the military aide to come forward
+- [30:54.890] and read the citations, and then we will do the honors.
+- [30:58.680] Thank you all very much.
+- [30:59.960] This is a tremendous honor for me to be here.
+- [31:02.060] Thank you. Please, military aide.
+- [31:14.290] Military Aide: Chris Edmonds accepting
+- [31:15.940] on behalf of his father,
+- [31:17.350] Master Sergeant Roderick W. Edmonds.
+- [31:27.940] The president of the United States of America
+- [31:30.350] authorized by Act of Congress March 3rd,
+- [31:32.800] 1863 has posthumously awarded in the name of Congress,
+- [31:36.800] the Medal of Honor to Master Sergeant
+- [31:39.130] Roderick W. Edmonds, United States Army.
+- [31:42.640] Master Sergeant Roderick W. Edmonds
+- [31:44.510] distinguished himself by acts of gallantry above
+- [31:47.180] and beyond the call of duty from January,
+- [31:49.150] January 27th, 1945 to March 30th,
+- [31:52.540] 1945 as a prisoner of war in Germany.
+- [31:56.180] Upon arrival at Stalag 9A in Ziegenhain, Germany.
+- [32:01.280] On the evening of January 26th, 1945,
+- [32:03.730] the Germans announced that only Jewish American prisoners
+- [32:06.250] would fall out for roll call the following morning
+- [32:08.990] at the threat of execution.
+- [32:11.070] Master Sergeant Edmonds directed his senior leaders
+- [32:13.850] to have all 1,200 American prisoners
+- [32:17.320] present themselves for roll call.
+- [32:19.600] The Nazi commandant became incredulous after
+- [32:22.350] realizing that so many Americans were standing in formation.
+- [32:26.140] The commandant removed his pistol,
+- [32:27.740] pressed it hard against Master Sergeant Edmonds
+- [32:30.080] forehead between his eyes and demanded
+- [32:32.490] that he order all Jewish American prisoners
+- [32:34.700] to step forward or he would be shot.
+- [32:37.540] Master Sergeant Edmonds fearlessly held his ground,
+- [32:40.210] refusing to concede.
+- [32:42.190] The commandant lowered his weapon without further attempts
+- [32:44.710] to segregate the Jewish American prisoners.
+- [32:47.340] Several weeks later, in March 1945,
+- [32:49.720] the Germans ordered all prisoners to assemble
+- [32:52.300] outside the barracks for evacuation.
+- [32:54.730] Master Sergeant Edmonds ordered all American prisoners
+- [32:57.780] to form in front of the barracks,
+- [32:59.610] and when the enemy transports arrived,
+- [33:01.610] they would break ranks and rush back to the barracks.
+- [33:04.510] Master Sergeant Edmonds gallantly led these prisoners
+- [33:07.070] in a relentless pursuit of opposition and resistance,
+- [33:09.950] forcing the Germans to abandon the camp,
+- [33:11.750] leaving the 1,200 American prisoners behind.
+- [33:15.540] Master Sergeant Edmonds, conspicuous gallantry
+- [33:18.120] above and beyond the call of duty
+- [33:19.610] are in keeping with the highest traditions of military service
+- [33:22.720] and reflect great credit upon himself,
+- [33:25.040] his unit and the United States Army.
+- [34:10.060] Command Sergeant Major Terry P. Richardson.
+- [34:20.030] The president of the United States of America
+- [34:22.480] authorized by Act of Congress March 3rd,
+- [34:24.860] 1863 has awarded in the name of Congress,
+- [34:27.880] the Medal of Honor to Staff Sergeant Terry P.
+- [34:30.850] Richardson, United States Army. Staff Sergeant Terry P.
+- [34:34.300] Richardson distinguished himself by acts of gallantry above
+- [34:37.360] and beyond the call of duty on September 14th, 1968,
+- [34:41.530] in the vicinity of Loc Ninh, Republic of Vietnam.
+- [34:44.810] On this date, his company was tasked
+- [34:46.450] with the mission of securing Hill 222
+- [34:49.170] in hostile enemy territory near the Cambodian border staff.
+- [34:53.410] Sergeant Richardson directed one of his squads
+- [34:55.670] to be the point element leading the way.
+- [34:57.860] Shortly after the assault began,
+- [34:59.450] three of the squad members became severely wounded
+- [35:02.340] and pinned down between three enemy machine gun bunkers.
+- [35:05.890] Staff Sergeant Richardson advanced forward
+- [35:08.140] under heavy enemy fire
+- [35:10.070] and recovered his wounded soldiers
+- [35:12.640] between heavy machine gun fire.
+- [35:14.760] By the time he was able to make it back to join his unit,
+- [35:18.090] his entire company had been completely surrounded
+- [35:20.480] by the enemy.
+- [35:21.680] Staff Sergeant Richardson recognized
+- [35:23.380] that the only way to keep his company
+- [35:25.060] from being overrun was with
+- [35:28.860] Staff Sergeant Richardson advanced to the top of Hill 222
+- [35:32.530] under heavy enemy fire for better sight lines
+- [35:35.490] to direct the tactical airstrikes.
+- [35:37.470] He began to direct the tactical airstrikes
+- [35:39.600] and shortly thereafter became wounded by an enemy sniper.
+- [35:43.200] Staff Sergeant Richardson continued
+- [35:45.380] directing the tactical airstrikes for seven more hours
+- [35:48.700] before the enemy broke contact.
+- [35:50.860] Six soldiers from his platoon found him still alive.
+- [35:54.380] Staff Sergeant Richardson declined medical evaluation
+- [35:56.760] for his gunshot wound
+- [35:58.040] and requested that he be allowed to stay to lead his soldiers.
+- [36:01.400] Altogether, his actions directly resulted in 85
+- [36:04.360] lives being spared on that fateful day.
+- [36:07.300] Staff Sergeant Richardson's conspicuous gallantry
+- [36:09.510] and extraordinary heroism at the risk of his life above
+- [36:13.270] and beyond the call of duty
+- [36:14.810] are in keeping with the highest traditions of military service
+- [36:17.790] and reflect great credit upon himself,
+- [36:19.870] his unit and the United States Army.
+- [37:27.830] Robert and Linda Ollis accepting on behalf of their son,
+- [37:31.310] Staff Sergeant Michael H. Ollis.
+- [37:41.740] The president of the United States of America
+- [37:44.100] authorized by Act of Congress March 3rd,
+- [37:46.550] 1863 has posthumously awarded in the name of Congress,
+- [37:50.320] the Medal of Honor to Staff Sergeant Michael H.
+- [37:53.160] Ollis, United States Army.
+- [37:55.480] Staff Sergeant Michael H.
+- [37:56.750] Ollis distinguished himself by acts of gallantry above
+- [37:59.540] and beyond the call of duty on 28th, August,
+- [38:01.750] 2013 in Afghanistan. On this date,
+- [38:05.270] a complex enemy attack involving multiple vehicle
+- [38:08.090] borne improvised explosive devices,
+- [38:10.680] suicide vests, indirect fire and small arms fire was launched
+- [38:14.410] against forward operating base Ghazni.
+- [38:17.010] Staff Sergeant Ollis ordered his fellow soldiers
+- [38:20.720] to move to bunkers to shield themselves from enemy fire.
+- [38:23.780] After accounting for his soldiers,
+- [38:25.480] he moved toward the enemy force
+- [38:26.910] that had penetrated the perimeter of the Forward
+- [38:29.130] Operating base.
+- [38:30.590] Staff Sergeant Ollis located a coalition forces officer
+- [38:33.600] and together they moved toward the point of attack
+- [38:35.740] armed with only their rifles.
+- [38:37.870] Upon reaching the attack point,
+- [38:39.630] they linked up with other friendly forces
+- [38:41.670] and began a coordinated effort to repulse the enemy.
+- [38:44.750] While under continuous fire,
+- [38:46.240] Staff Sergeant Ollis moved from position to position
+- [38:49.250] engaging the enemy with accurate and effective fire.
+- [38:52.300] While fighting along the perimeter
+- [38:53.750] and insurgent came around the corner.
+- [38:56.380] Staff Sergeant Ollis fired on the insurgent
+- [38:58.830] and incapacitated him
+- [39:00.490] but as he approached the downed insurgent,
+- [39:02.380] the insurgent suicide, vest, detonated
+- [39:04.380] and mortally wounded him.
+- [39:06.210] Staff Sergeant Ollis's exceptional courage
+- [39:08.350] and complete disregard for personal safety
+- [39:11.170] were in keeping with the highest traditions of military service
+- [39:13.750] and reflect great credit upon him, his unit,
+- [39:16.590] and the United States Army.
+- [40:14.210] William Green Jr.: Ladies and gentlemen,
+- [40:15.460] please bow with me as we give the benediction.
+- [40:19.600] Eternal God, our unfailing light in every darkness,
+- [40:25.310] the rock on which we stand.
+- [40:28.140] As we depart this place of honor,
+- [40:30.840] may the courage of these heroes be our example,
+- [40:35.760] righteousness our choice,
+- [40:37.810] and hope in you our guiding light,
+- [40:40.800] we especially ask for your protection
+- [40:44.270] over our military service members
+- [40:46.200] who are protecting the interests of our nation
+- [40:49.060] at this very moment.
+- [40:51.140] And, Heavenly Father, grant us the will to do justly,
+- [40:56.050] to love mercy, and to walk humbly before you.
+- [41:00.460] In your holy name, we pray, this will defend. Amen.
+- [41:09.590] (inaudible)
+- [41:20.050] ♪ (orchestral "God Bless America") ♪

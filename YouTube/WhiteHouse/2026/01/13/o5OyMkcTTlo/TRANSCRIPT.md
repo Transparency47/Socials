@@ -1,0 +1,264 @@
+<!-- source: https://www.youtube.com/watch?v=o5OyMkcTTlo -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: o5OyMkcTTlo -->
+<!-- date_published: 2026-01-13T20:18:20+00:00 -->
+<!-- date_accessed: 2026-06-02T01:07:35.003241+00:00 -->
+
+# Transcript: President Trump Participates in a Site Visit and Plant Tour
+
+- [00:00.560] Hello everybody. This is Bill Ford and
+- [00:03.600] he's just expanded the plant and what do
+- [00:06.240] you 24 hours 24-hour shifts and Jim
+- [00:09.920] Carly, you know, everybody knows Jimmy's
+- [00:11.920] a legend in the industry,
+- [00:14.080] >> but they're just saying their business
+- [00:15.360] is better than ever. They did they're
+- [00:17.359] doing 24 hours too now
+- [00:20.560] >> and they do expansions and they're
+- [00:22.320] building more plants in the United
+- [00:24.000] States because of tariffs. And uh Jim
+- [00:27.119] said and uh Bill very strongly confirmed
+- [00:30.000] they've never seen anything like it uh
+- [00:32.960] in all of the years that they've been in
+- [00:34.480] business. They've never seen what's
+- [00:35.760] happening now like it. So it's it's a
+- [00:38.480] great honor. But so this plant, you
+- [00:40.320] might talk about it. This plant goes 24
+- [00:42.719] hours around the clock. Before it used
+- [00:44.800] to go 3 hours around the clock. Now it
+- [00:47.600] will. So we're adding a third shift and
+- [00:49.600] it's going to be running, as the
+- [00:51.520] president said, uh 24 hours, 6 days a
+- [00:54.320] week. Um, and that just shows the demand
+- [00:57.840] there is for this product, which we is
+- [01:00.559] the bestselling product as you all know
+- [01:02.000] in America, and it just gets hotter and
+- [01:04.479] hotter. So, um, we have a great
+- [01:06.799] relationship with the president and his
+- [01:08.880] and his whole staff. They've been great
+- [01:12.080] to work with for us. Um, he personally
+- [01:15.520] is incredibly responsive every time we
+- [01:18.159] need something or call. Uh, we very much
+- [01:20.720] appreciate it. And, you know, we
+- [01:22.720] couldn't be more excited. We're we're
+- [01:24.000] we're adding market share. We're growing
+- [01:26.320] as a company. We're adding jobs. Uh not
+- [01:29.360] just here, but elsewhere. Um and uh
+- [01:32.240] yeah, this is times are good for us. And
+- [01:34.960] and all of the US automakers now are
+- [01:37.200] doing great. And before they were having
+- [01:39.200] a really hard time. You couldn't the
+- [01:42.079] environmentalists wouldn't would not
+- [01:43.680] have let them survive.
+- [01:45.280] >> So, Mr. President, when you renegotiate
+- [01:47.280] USMCA, how is that going to help auto
+- [01:50.240] workers like Ford?
+- [01:50.880] >> I don't even think about USMCA. You
+- [01:52.960] know, I want I want to see Canada and
+- [01:54.880] Mexico do well. But the problem is we
+- [01:57.280] don't need their product. You know, we
+- [01:59.360] don't need cars made in Canada. We don't
+- [02:01.520] need cars made in Mexico. We want to
+- [02:03.840] make them here. And that's what's
+- [02:05.840] happening. Everybody's moving here. From
+- [02:07.520] Canada, they're coming here. From
+- [02:09.200] Mexico, from Japan, from Germany, from
+- [02:11.520] all over the world, they're coming here.
+- [02:13.440] They're opening up their plants. Bill is
+- [02:15.920] lucky because he's had a lot here. But
+- [02:17.840] when he doesn't have it here, he's
+- [02:19.440] moving here. They're doing big
+- [02:20.720] expansions for it. But they're all doing
+- [02:23.280] great. The car industry is exciting and
+- [02:25.840] to be honest with you, Bill, every
+- [02:27.280] industry is exciting. Yeah. Just like
+- [02:29.040] this.
+- [02:29.360] >> Well, we need to rebuild our industrial
+- [02:30.879] base. And that's been a priority of
+- [02:32.800] yours.
+- [02:33.040] >> And we're adding a combustion vehicle, a
+- [02:35.200] combustion truck, affordable one in
+- [02:37.120] Tennessee. To the president's note.
+- [02:39.440] That's what these policies are doing for
+- [02:41.440] Ford. We're going to actually expand one
+- [02:43.760] of our existing plants and make a
+- [02:45.599] different kind of truck there.
+- [02:46.800] >> Terrorists.
+- [02:48.800] Yes. and the EPA EPA the relief of the
+- [02:52.160] tariffs and the relief I gave them from
+- [02:54.319] the most ridiculous standards. We had
+- [02:57.360] put three computers on the on a car in
+- [03:00.160] order to save about this much gasoline
+- [03:02.159] from a glass. It was crazy. But very
+- [03:05.440] proud of them and Ford has really been a
+- [03:08.000] leader. They've done great job. But but
+- [03:10.080] all of them General Motors is doing
+- [03:12.319] really well. Stalantis is doing really
+- [03:14.879] well. We're really happy about it. I
+- [03:17.040] just wanted to build their product in
+- [03:18.640] the USA.
+- [03:19.200] >> So, do you you don't think you're going
+- [03:20.560] to renegotiate USMCA?
+- [03:22.879] >> Well, I I can. It's uh expires very
+- [03:25.680] shortly and we could have it or not. It
+- [03:27.920] wouldn't matter. I think they want it. I
+- [03:30.879] don't really care about that go away.
+- [03:33.200] So, you're talking about getting rid of
+- [03:34.480] USMCA and letting it sunset.
+- [03:38.720] >> No real advantage to us. It's it's
+- [03:40.799] irrelevant to me. Canada would love it.
+- [03:43.680] Canada wants it. They need it because we
+- [03:46.319] don't need Canada product. That's the
+- [03:47.840] thing. You know, I want to be a nice
+- [03:49.280] person, but we don't need I want to
+- [03:51.120] build the cars here, not in Canada. We
+- [03:53.120] used to build cars in Canada. Now, the
+- [03:55.599] Canada cars, the Canadians are moving
+- [03:57.439] here to build cars. Same thing with
+- [03:59.519] Mexico. Same thing with Japan. Japan's
+- [04:02.799] paid us billions and billions of dollars
+- [04:05.439] for the privilege of making cars here
+- [04:08.319] and selling cars.
+- [04:09.599] >> Mr. President, what about the ramen
+- [04:11.120] >> auto manufacturing that you would like
+- [04:13.360] to see coming to the United States? Are
+- [04:15.439] you satisfied with the level where it's
+- [04:17.359] at right now?
+- [04:18.160] >> Quality is unbelievable. So, we're at a
+- [04:20.560] Ford 150 plant and I don't know that
+- [04:24.080] much about cars, but I know how to get
+- [04:25.759] people working. And all I can tell you
+- [04:27.600] is that people talk so much about the
+- [04:30.400] 150, and it has been for a long time.
+- [04:33.199] They make a great product, a quality
+- [04:35.120] product, better than anybody else can
+- [04:37.280] make in Europe or uh in any any other
+- [04:40.639] location. Look, the Ford 150 has done
+- [04:43.199] well for a long time because they make a
+- [04:45.040] great product.
+- [04:45.919] >> Do you ever allow Chinese autos into the
+- [04:48.720] US?
+- [04:49.520] >> Well, as you know, we have a tariff on
+- [04:51.280] Chinese autos. And in Europe, China's
+- [04:53.840] taking over the auto business, I would
+- [04:55.440] say, is a nice statement, but that's the
+- [04:57.199] way it is. And here, what is it? 100%.
+- [05:00.320] We have a 100% tariff on any car coming
+- [05:03.520] in from China. So that makes them able
+- [05:06.800] to do very nicely against China.
+- [05:09.440] >> Mr. President, what about the
+- [05:11.039] >> pretty good, right?
+- [05:12.080] >> Who would have thought that was going to
+- [05:13.520] happen, right?
+- [05:14.400] >> What about the road?
+- [05:15.280] >> Everybody said that the cars are dead in
+- [05:18.400] the United States. If you go back four
+- [05:20.800] years ago into the middle of the Biden
+- [05:22.639] administration, everybody was closing up
+- [05:24.960] their plants. Now we have more plants
+- [05:27.680] being built in our country than at any
+- [05:29.680] time in history there. Nobody's ever
+- [05:32.400] seen anything like it. And it's the
+- [05:34.800] election November 5th and it's other
+- [05:37.280] things. But it's also I I think the
+- [05:39.600] maybe the biggest part the election
+- [05:41.759] because I'm the tariff person
+- [05:44.320] >> and everybody now admits that I was
+- [05:46.240] right on tariffs
+- [05:48.160] >> and I hope that we win the Supreme Court
+- [05:50.160] case.
+- [05:50.639] >> Mr. President, what about the raw
+- [05:52.240] materials coming in from countries like
+- [05:54.240] Canada? How do these companies deal with
+- [05:56.240] the fact that those
+- [05:57.199] >> Well, we get it, but we have a lot of
+- [05:58.560] our own raw raw materials. And you know,
+- [06:01.280] the word raw and rare are a little bit
+- [06:03.840] of a misnomer. They're not very rare.
+- [06:05.840] You have a lot of places that want to
+- [06:07.520] sell us material. And we get it from a
+- [06:10.000] lot of different countries and we have a
+- [06:11.759] lot of rare earth and raw materials. Mr.
+- [06:14.479] President, Senator Tom Till says that
+- [06:17.199] the subpoena the the grand jury subpoena
+- [06:19.919] to the Federal Reserve chairman was a
+- [06:21.440] little excessive. What do you think
+- [06:22.960] about that? Well, that's why Tom's not
+- [06:24.560] going to be a senator any longer, I
+- [06:26.160] guess. Right.
+- [06:28.000] >> But I like Tom. He's a nice guy, but
+- [06:29.840] look, he's not going to be a senator any
+- [06:31.440] longer because of views like that. Uh,
+- [06:34.800] we have a bad Fed chairman. He's bad in
+- [06:37.759] a lot of different ways, but he's bad
+- [06:39.440] because his interest rates were too
+- [06:40.960] high. And today we had a great inflation
+- [06:43.280] report. And today we had a really great
+- [06:45.680] growth report. So, we have great growth
+- [06:47.520] and low inflation. And we're doing very
+- [06:50.160] well.
+- [06:50.400] >> Do you think there's going to be a race
+- [06:51.360] cut though?
+- [06:52.960] I don't know with this guy. You don't
+- [06:54.240] know. He's uh he's got some problems.
+- [06:56.800] But what he also did, he's building a
+- [06:59.680] small he's renovating a small building.
+- [07:02.319] It's the most expensive construction job
+- [07:04.880] in history. And it's only a renovation.
+- [07:07.599] I could have done that job for $25
+- [07:09.680] million. They're spending billions and
+- [07:11.919] billions of dollars. He either doesn't
+- [07:14.160] know what he's doing or it's worse than
+- [07:16.639] that.
+- [07:17.680] >> And you know what I mean by that?
+- [07:19.520] >> So hopefully he'll be out of there soon.
+- [07:21.599] going to impact your timing on naming a
+- [07:23.680] Fed chair at all?
+- [07:24.639] >> No.
+- [07:25.280] >> When do you expect to do that?
+- [07:26.960] >> I don't know. Sometime in the next few
+- [07:28.720] weeks of the big three, Ford makes most
+- [07:32.800] of its products right here in the United
+- [07:34.880] States. 80%.
+- [07:36.560] >> Is that the
+- [07:37.919] >> Is that the reason that you came here
+- [07:39.360] today?
+- [07:39.759] >> No. No. I came here because we're
+- [07:41.280] friends, three of us, because I have
+- [07:43.680] helped the company a lot. I mean, as an
+- [07:46.400] example, trucks. I put a 25% tariff on
+- [07:49.759] trucks coming into the United States and
+- [07:52.479] their truck business went through the
+- [07:54.479] roof.
+- [07:55.280] >> You said to Iran this morning that help
+- [07:57.199] is on the way for protesters. What did
+- [07:59.759] you mean by that? What kind of help?
+- [08:01.199] >> You're going to have to figure that one
+- [08:02.319] out. I'm sorry.
+- [08:03.360] >> How many people have been killed in
+- [08:04.720] Iran?
+- [08:07.120] >> Nobody's been able to give me an
+- [08:08.560] accurate number. I have heard numbers
+- [08:10.639] from Everything's a lot. One is a lot,
+- [08:13.759] but I've heard numbers much lower and
+- [08:15.599] I've heard numbers much higher. We'll be
+- [08:17.199] knowing. We're probably going to find
+- [08:18.879] out over the next 20 minutes.
+- [08:20.080] >> The highest number.
+- [08:20.720] >> I think it's a lot.
+- [08:21.759] >> In your first term,
+- [08:22.560] >> it's it's too many. Whatever.
+- [08:25.039] >> Oil average $53 a barrel. Is that the
+- [08:28.080] target for you for this term? I'd love
+- [08:30.000] to see that. Yeah. I mean, we're at 68.
+- [08:32.560] We're at 58 now. I'd like to see 53.
+- [08:35.440] Thank you very much.
+- [08:38.000] >> US allies in Thran to evacuate from
+- [08:41.919] Iran. I would say it's a good idea if US
+- [08:45.760] people evacuated. Yeah.
+- [08:47.920] >> US allies.
+- [08:48.880] >> I would say they could. It's not a bad
+- [08:51.360] idea if they got out.
+- [08:52.240] >> Have you asked them to?
+- [08:53.279] >> I think they should get out.

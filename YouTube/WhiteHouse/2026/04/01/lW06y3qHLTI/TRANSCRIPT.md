@@ -1,0 +1,535 @@
+<!-- source: https://www.youtube.com/watch?v=lW06y3qHLTI -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: lW06y3qHLTI -->
+<!-- date_published: 2026-04-01T22:55:11+00:00 -->
+<!-- date_accessed: 2026-06-02T02:35:39.732109+00:00 -->
+
+# Transcript: NASA’s Artemis II Launch
+
+- [05:08.550] Male Speaker: And Launch Director, with that
+- [05:10.430] we are clear and ready to pick up the launch readiness
+- [05:13.240] pull with your go.
+- [05:16.860] Female Speaker: All right, so I am go for the pull.
+- [05:21.770] Male Speaker: All right, and for all personnel,
+- [05:24.640] this is the NTD conducting the
+- [05:26.290] Artemis II launch readiness check.
+- [05:28.660] Verify ready to resume count and go for launch.
+- [05:30.750] OTC.
+- [05:32.090] Female Speaker: OTC is go.
+- [05:33.310] Male Speaker: STC.
+- [05:34.510] Female Speaker: STC is go.
+- [05:35.760] Male Speaker: GTC.
+- [05:37.020] Male Speaker: (inaudible) is go.
+- [05:38.240] Male Speaker: MCO.
+- [05:39.450] Male Speaker: MCO is go.
+- [05:40.670] Male Speaker: Safety console.
+- [05:41.910] Female Speaker: Safety console is go.
+- [05:43.110] Male Speaker: LPE.
+- [05:44.350] Male Speaker: LPE is go.
+- [05:45.830] Male Speaker: RTD.
+- [05:47.060] Male Speaker: RTD is go.
+- [05:48.270] Male Speaker: Houston flight.
+- [05:49.510] Male Speaker: Houston flight is go.
+- [05:50.930] Male Speaker: Rock.
+- [05:52.150] Male Speaker: Rock is go.
+- [05:53.390] Male Speaker: And CDR.
+- [05:55.690] Male Speaker: Crew is go.
+- [05:57.500] Male Speaker: Copy that. Thank you, Reid.
+- [05:58.800] And launch director NTD,
+- [06:01.140] our launch team is ready to proceed at this time.
+- [06:04.360] Female Speaker: All right, NTD, I copy all.
+- [06:06.010] At this time, I'll perform my pulls.
+- [06:09.970] Attention on the net, this is the launch director
+- [06:12.360] performing the final pull for launch,
+- [06:15.190] verifying no constraints and go for launch.
+- [06:19.140] EGS program chief engineer.
+- [06:22.400] Male Speaker: Artemis Chief of Engineers are go.
+- [06:24.530] Female Speaker: Copy, thank you. AGS, Chief Safety Officer.
+- [06:29.080] Male Speaker: The Artemis CSOs are go.
+- [06:32.570] Female Speaker: Thank you. Range weather.
+- [06:34.740] Male Speaker: Launch weather is go.
+- [06:37.520] Female Speaker: Thank you LWO and Artemis MMT chair.
+- [06:42.020] Male Speaker: MMT is go.
+- [06:44.030] Female Speaker: Thank you, John. And Integrity, Launch Director.
+- [06:48.860] Male Speaker: (inaudible) is Charlie PLT.
+- [06:55.290] Victor Glover: Thank you, Charlie.
+- [06:56.500] This is Victor. We are going for our families.
+- [07:01.920] Christina Koch: This is Christina,
+- [07:03.130] we are going for our teammates.
+- [07:05.630] Male Speaker: MF2.
+- [07:07.670] Jeremy Hansen: This is Jeremy. We are going for all humanity.
+- [07:11.240] Male Speaker: All right, Charlie,
+- [07:12.590] your Artemis II crew is go for launch, full send.
+- [07:19.140] Female Speaker: I copy that.
+- [07:20.860] Reid, Victor, Christina, and Jeremy.
+- [07:24.090] On this historic mission,
+- [07:26.160] you take with you the heart of this Artemis team,
+- [07:29.550] the daring spirit of the American people
+- [07:32.910] and our partners across the globe,
+- [07:35.400] and the hopes and dreams of a new generation. Good luck.
+- [07:40.520] Godspeed, Artemis II. Let's go.
+- [07:48.900] And into the Launch Director.
+- [07:51.620] Male Speaker: Go ahead, Launch Director.
+- [07:53.240] Female Speaker: Yes sir,
+- [07:54.990] you have a go to proceed with countdown.
+- [07:58.180] Male Speaker: Copy that, and I'll put it in work.
+- [08:00.750] CDR NDT. Figure risers and initiate short purge
+- [08:06.600] per your EPROC 10.1.1, steps 8 and 9.
+- [08:10.560] Male Speaker: 10.1.189 going to work.
+- [08:15.220] Male Speaker: CVSE NTD, start and verify recordings
+- [08:18.680] of our Orion cameras.
+- [08:19.960] Male Speaker: Copy.
+- [08:21.200] Male Speaker: OK. Well, there you heard it.
+- [08:23.340] Male Speaker: RSR NTD.
+- [08:24.570] Male Speaker: RSR.
+- [08:25.770] Male Speaker: They're getting ready to start terminal count.
+- [08:27.420] AR rotation enabled at this time, please.
+- [08:29.660] Male Speaker: It's currently at T minus 10 minutes.
+- [08:34.430] Once we wrap up this last bit of work
+- [08:37.660] we're going to start that clock.
+- [08:42.550] Male Speaker: Integrity crew, close and lock visors.
+- [09:01.190] Male Speaker: You heard an issue,
+- [09:02.540] worked in real time with telemetry lock on the Orion.
+- [09:06.380] It was transitory. It was very short.
+- [09:10.100] They checked the data, confirmed that they had a good lock.
+- [09:15.340] This was with the S-band transmitter on the Orion.
+- [09:21.460] Worked through that issue, looked at the data,
+- [09:24.570] and cleared it. With the world watching.
+- [09:31.890] Impressive work by the launch team.
+- [09:35.310] So we have a two-hour window
+- [09:37.900] which starts in just a few minutes at 6:25 p.m.
+- [09:40.910] Eastern time and goes until 8:24 p.m. Eastern time.
+- [09:45.870] Male Speaker: And ECL Entity will be
+- [09:47.170] waiting for your verification on the short purge.
+- [09:49.860] ECL copies. And for all personnel,
+- [09:53.140] once we get that short purge verification,
+- [09:55.930] we'll verify that we are clear to go
+- [09:57.780] and then we'll proceed with the terminal count.
+- [10:24.520] ECL time estimate.
+- [10:26.450] Male Speaker: About a minute.
+- [10:27.840] Male Speaker: Copy.
+- [10:43.870] Male Speaker: So we're going into the launch window,
+- [10:47.330] but not by much, it looks like.
+- [10:52.750] Just wrapping up some final work.
+- [10:58.280] And once that's completed, you'll hear
+- [11:00.170] NASA Test Director Jeff
+- [11:01.450] Spaulding ask for the ground to go ahead and start the clock.
+- [11:13.750] The ground launch sequencer is an application software.
+- [11:17.210] It runs on top of the launch control system
+- [11:19.060] in the firing room.
+- [11:20.290] Acts like a conductor of an orchestra,
+- [11:23.200] executing hundreds of commands in precise order and timing.
+- [11:30.500] It's all autonomous.
+- [11:31.860] Male Speaker: Entity CCL 212,
+- [11:33.320] short purge, initiation is verified.
+- [11:34.940] Male Speaker: All right, copy that,
+- [11:36.230] and we're verifying our constraints.
+- [11:54.720] All right, and we're clear from cutouts.
+- [11:57.200] And with that, we're going to resume the clock momentarily.
+- [12:01.010] And C-GLS, you can resume the clock on your mark.
+- [12:05.120] Male Speaker: GLS copies.
+- [12:07.850] Male Speaker: Three, two, one mark.
+- [12:11.300] GLS mainline has been initiated.
+- [12:13.590] Male Speaker: T minus 10 minutes and counting.
+- [12:20.020] Male Speaker: And that begins terminal count.
+- [12:21.590] Our new T-Zero is 6:35 p.m. Eastern Time.
+- [12:26.620] 6:35 p.m. Eastern Time.
+- [12:29.130] We are now counting down to liftoff of Artemis 2.
+- [12:38.120] From now on, you're going to hear two voices on the loops.
+- [12:41.800] If everything goes nominally, NASA test director Jeff
+- [12:44.640] Spaulding, who's directly managing the launch team,
+- [12:48.000] and Alex Bendellos, the GLS operator
+- [12:50.260] who closely monitors the software,
+- [12:53.730] he has the ability to stop and restart the countdown.
+- [13:03.020] A lot of people ask about whether there's a launch button,
+- [13:04.970] there certainly is not.
+- [13:06.190] Male Speaker: Houston Flight and ROC,
+- [13:07.630] our new T-Zero is 22, 35, 12.
+- [13:10.990] Male Speaker: Houston Flight copy.
+- [13:12.870] 22-35-12.
+- [13:17.380] Male Speaker: There you heard confirmation of the exact T0,
+- [13:20.070] 6:35, and 12 seconds p.m. Eastern Time.
+- [13:23.530] Again, our T0 is 6:35 and 12 second p.m. Eastern Time.
+- [13:30.500] But as I was saying, there's no launch button.
+- [13:32.770] This is autonomous.
+- [13:34.110] But there is a button that keeps you from launching.
+- [13:36.320] And that button allows the GLS operator
+- [13:38.860] to pause the countdown outside of terminal count
+- [13:41.700] and during terminal count,
+- [13:43.020] and submit a hold to the next holding point.
+- [13:45.810] So the clock won't stop right away.
+- [13:47.620] If there's an issue, we'll go to the next stable holding point.
+- [13:52.930] This is how GLS configures the rocket and ground systems
+- [13:56.520] to a stable point
+- [13:57.760] where they can stop the countdown if that's needed.
+- [14:01.090] But right now, we are counting down our next big milestone
+- [14:05.520] looking to retract the crew access arm.
+- [14:11.340] Male Speaker: GLS is go for crew access arm retract.
+- [14:15.990] Male Speaker: And there you see the crew access arm moving away.
+- [14:25.170] That's the path that the astronauts
+- [14:27.190] took to ingress into the rocket.
+- [14:35.760] Until this point, that was their way off the pad,
+- [14:38.290] if they needed to evacuate.
+- [14:41.060] But now with that arm retracting,
+- [14:43.410] the backup transitions to a launch abort system.
+- [14:47.490] And they'll begin arming that shortly.
+- [14:55.100] Of course the launch abort system,
+- [14:57.390] great shot there of the crew access arm retracting away.
+- [15:02.310] The launch abort is the tower at the top
+- [15:05.050] and that's what would pull Orion
+- [15:06.680] and its crew off the top of the rocket
+- [15:09.280] in case of an emergency,
+- [15:10.800] whether it's on the ground or in flight.
+- [15:14.420] This is critical safety hardware
+- [15:16.960] that protects the lives of the astronauts.
+- [15:30.340] Starting at T minus six minutes, the GLS will start bringing that
+- [15:34.400] and other high energy systems online,
+- [15:37.260] starting with core stage pressurization.
+- [15:58.880] Whether it's 90% go, the range is go.
+- [16:04.210] All systems are go.
+- [16:11.460] Male Speaker: CLS is go for core stage tank pressurization.
+- [16:17.570] Male Speaker: That means the replenish valve
+- [16:18.990] for the liquid hydrogen tank has now closed
+- [16:21.950] and that tank is beginning to pressurize to flight levels
+- [16:25.510] because that hydrogen is naturally
+- [16:27.270] boiling inside the tank.
+- [16:33.230] We'll get the liquid oxygen tank a little later in the count.
+- [16:38.960] Now the team is waiting for verification that,
+- [16:40.940] if needed,
+- [16:42.180] the Artemis II crew could use the launch abort system
+- [16:44.580] to pull Orion safely off the top of the rocket in an emergency.
+- [16:49.790] Let's listen in for that call.
+- [16:53.780] Male Speaker: TLS verifies last capability available.
+- [16:57.130] And CDR, do you already copy?
+- [16:59.640] Male Speaker: CDR copies, last available.
+- [17:05.010] Male Speaker: That's great news and you heard
+- [17:06.440] the NTD verify that with the commander of the mission.
+- [17:11.290] Male Speaker: GLS is go for FTS arms.
+- [17:14.320] Male Speaker: Now work is being done
+- [17:15.600] to arm the flight termination system.
+- [17:18.230] This is so the range safety
+- [17:19.530] can send a flight terminating command
+- [17:22.200] if the rocket flies too far off track.
+- [17:26.370] There is a brief built-in delay, so the launch abort system
+- [17:29.370] has time to pull the astronauts safety first.
+- [17:30.980] Male Speaker: (inaudible)
+- [17:32.180] go for LH2 high-flow bleed check.
+- [17:36.760] Male Speaker: All right, the high flow bleed check.
+- [17:40.100] That's so the cryo team gets verification
+- [17:43.020] that the RS-25 engines, all four of them,
+- [17:45.750] are in the proper temperature range for launch.
+- [18:11.320] Male Speaker: TLS is go for core stage APU start.
+- [18:14.310] Male Speaker: Core stage APUs start.
+- [18:15.790] Those are auxiliary power units.
+- [18:18.360] High speed turbines which provide pressure
+- [18:20.490] to hydraulic pumps that steer the RS-25 engines.
+- [18:23.950] We're gonna see a gimbal test a little later
+- [18:25.820] at T minus two minutes and 30 seconds.
+- [18:28.090] This is what allows that to happen.
+- [18:37.850] Coming up in about 20 seconds.
+- [18:39.740] We're listening for go for purge sequence four.
+- [18:42.530] That's a helium purge of the four core stage engines
+- [18:46.760] downstream of the propellant valve.
+- [18:49.010] This gets all the air and moisture out of there.
+- [19:01.290] Male Speaker: GLS is go for Purge Sequence 4.
+- [19:05.980] Male Speaker: Moving through the milestones.
+- [19:08.970] All is looking good.
+- [19:15.890] In just a few seconds, we're going to get
+- [19:17.320] that thrust vector control actuator test.
+- [19:20.280] This is a gambling of the engines.
+- [19:30.780] There are the four RS-25s, three of them shuttle heritage,
+- [19:36.170] one of them built from shuttle parts.
+- [19:41.980] And there you see them moving.
+- [19:55.490] Now we're going to start moving the power
+- [19:58.270] from both the upper stage
+- [19:59.510] and the lower stage of the rocket to internal,
+- [20:02.680] taking ground power away and now going to battery power.
+- [20:09.360] Male Speaker: GLS is go for upper stage internal power.
+- [20:14.680] Male Speaker: Our power is removed
+- [20:15.880] from the rocket's upper stage, the ICPS,
+- [20:19.790] and it's been switched to battery.
+- [20:21.310] Same milestone for the lower core stage
+- [20:23.310] coming up at T minus one minute and 30 seconds.
+- [20:26.970] Right now, the four-person Artemis II crew
+- [20:29.890] is 248,000 miles away from the moon,
+- [20:34.030] and if all goes well, they will fly by it in six days.
+- [20:41.470] Male Speaker: CLS is go for core stage to internal power.
+- [20:45.190] Male Speaker: All right, there's the rocket's core stage,
+- [20:47.640] which houses three flight computers,
+- [20:49.280] is now on its own power. There's no more hold time
+- [20:56.270] because there's no more margin on these batteries.
+- [20:59.320] So we would have to recycle back to T minus 10 to recharge
+- [21:02.600] if we had a hold.
+- [21:12.910] Right now the rocket does not know what the T-0 is,
+- [21:15.360] but coming up at T-33 seconds,
+- [21:17.770] control shifts from the ground launch sequencer
+- [21:19.970] to the rocket's onboard autonomous
+- [21:22.260] launch sequencer or ALS.
+- [21:24.320] The rocket will count itself down,
+- [21:26.550] but honor any holds that could come from the ground.
+- [21:30.110] Now shortly after liftoff,
+- [21:31.430] Houston will take control of the rocket
+- [21:33.520] and my colleague Gary Jordan will take over commentary.
+- [21:38.370] Male Speaker: GLS is go for (inaudible).
+- [21:40.550] Male Speaker: Great call out. The rocket is on its own.
+- [21:42.930] Four brave explorers ready to ride the most powerful rocket
+- [21:49.230] NASA has ever launched.
+- [21:54.590] Sound suppression water is flowing.
+- [21:58.270] And here we go.
+- [22:00.260] Ten, night, eight, seven. RS-25 engines lift.
+- [22:07.260] Four, three, two, one. Booster ignition. And lift off.
+- [22:14.430] The crew of Artemis II now bound for the moon.
+- [22:17.420] Humanity's next great voyage begins.
+- [22:24.840] Male Speaker: Good roll pitch.
+- [22:27.580] Male Speaker: Roger, roll pitch.
+- [22:31.490] Male Speaker: Houston now controlling
+- [22:32.740] the flight of integrity
+- [22:33.950] on the Artemis II mission around the world.
+- [22:39.600] Male Speaker: Integrity, AMT high.
+- [22:41.120] Male Speaker: AMT high.
+- [22:45.100] Male Speaker: On time passing 30 seconds into the flights.
+- [22:47.950] Integrity passes the alternate beacon. Target milestone.
+- [22:51.150] Mission control Houston seeing good performance
+- [22:52.760] of the four main engines. Space launch system core stage.
+- [22:55.910] Integrity three miles in altitude.
+- [22:59.500] Traveling more than 1,200 miles per hour.
+- [23:03.110] (audience cheering).
+- [23:22.040] Mission elapse time, passing one minute,
+- [23:24.300] approaching Max Q.
+- [23:29.330] Male Speaker: Stan, we have you loud and clear on Ponce de Leon.
+- [23:32.830] Male Speaker: Have you the same.
+- [23:35.490] Male Speaker: Communication signal transfer confirmed
+- [23:37.550] as Integrity and its crew go supersonic approaching
+- [23:40.640] 90 seconds into the Artemis 2 mission.
+- [23:43.260] Integrity is 14 miles in altitude,
+- [23:45.130] eight miles down range traveling more than 2,600 miles per hour.
+- [24:05.130] One minute, 50 seconds of mission elapsed time,
+- [24:07.170] standing by for main engine throttle down to 85%
+- [24:10.750] ahead of solid rocket booster separation,
+- [24:12.760] expected at the two minute, nine second mark.
+- [24:18.210] We see throttle down.
+- [24:25.460] Confirmed separation,
+- [24:28.220] main engines throttling up, guidance converged.
+- [24:38.390] Male Speaker: Integrity. Guidance converged,
+- [24:40.310] performance
+- [24:41.590] (inaudible), upper stage RCS ready.
+- [24:45.400] Male Speaker: Copy all, Stan.
+- [24:50.650] Male Speaker: Integrity, SM priming complete.
+- [24:54.650] Male Speaker: SM priming complete.
+- [24:58.280] Male Speaker: Two minutes 45 seconds of mission
+- [24:59.830] elapsed time into the Artemis 2 mission.
+- [25:01.670] Thrusters on Integrity and upper stage
+- [25:03.760] confirmed in a ready state
+- [25:05.090] ahead of service module fairing separation.
+- [25:12.870] Three minutes into the flight. Integrity 49 miles in altitude,
+- [25:16.290] 78 miles downrange now passing 5,000 miles per hour.
+- [25:34.780] Standing by for Launch Abort System jettison.
+- [25:40.010] Male Speaker: Houston Integrity, good last jettison, great view.
+- [25:45.390] Male Speaker: Copy, jettison. Team ECO 8 plus 02.
+- [25:52.810] Male Speaker: We see the sail on board, Stan.
+- [25:56.050] Male Speaker: And Houston has you loud and clear on Tegers
+- [25:58.530] at the Common Line.
+- [26:02.960] Male Speaker: Outstanding, Stan, we have you the same.
+- [26:07.050] Male Speaker: Three minutes 50 seconds
+- [26:08.280] into the flight of Artemis II, Weisman, Glover, Cook,
+- [26:10.820] and Hansen cross the boundary to space with good comm checks.
+- [26:13.950] GPS signals acquired after last jettison
+- [26:16.200] now working on internal checks to verify accuracy.
+- [26:20.640] Flight dynamics officer analyzed the time of main engine cutoff
+- [26:23.510] confirmed at 8 minutes, two seconds time of MECO.
+- [26:54.530] Male Speaker: Integrity GPS processing.
+- [27:01.190] Male Speaker: Outstanding Stan, we see the same
+- [27:03.130] and we have a beautiful moon rise.
+- [27:04.660] We're headed right at it.
+- [27:11.760] Male Speaker: Approaching five minutes into the flight,
+- [27:13.400] Commander Reid Wiseman confirms
+- [27:14.890] he has visuals of his destination.
+- [27:17.160] GPS guidance navigation and control software
+- [27:19.540] finishes internal checks
+- [27:20.750] and sends to navigation channels.
+- [27:26.500] Male Speaker: Integrity 3, engine press.
+- [27:32.760] Male Speaker: Three engine press.
+- [27:35.990] Male Speaker: On time, now passing 5 minutes
+- [27:37.310] 20 seconds of mission
+- [27:38.530] elapsed time into the Artemis II mission.
+- [27:40.330] At this point, three good main engines
+- [27:42.300] are all that's needed to carry Integrity
+- [27:43.960] to a nominal main engine cutoff target.
+- [27:46.540] Though at this time, we're seeing four good engines
+- [27:48.420] here in Mission Control Houston.
+- [27:50.370] Integrity, 75 miles in altitude, 330 miles down range,
+- [27:54.420] approaching 10,000 miles per hour.
+- [28:12.770] Male Speaker: Integrity looking good at six minutes
+- [28:20.020] Male Speaker: Same on board, Stan.
+- [28:24.150] Male Speaker: Good trajectory and engine performance.
+- [28:26.990] Booster officer will soon report
+- [28:28.830] the shutdown plan to flight director
+- [28:30.400] Judd Friedling expected at the seven minute mark.
+- [28:35.330] Integrity, 78 miles in altitude, 460 miles downrange.
+- [28:40.240] Male Speaker: Integrity. Expect nominal shutdown.
+- [28:46.790] Male Speaker: Integrity copies, nominal, shut down.
+- [28:54.000] Male Speaker: Six minutes, 40 seconds of mission elapsed time.
+- [28:56.680] Shutdown plan is as expected.
+- [28:59.640] Again, the time of MECA was confirmed at eight minutes,
+- [29:02.000] two seconds into the flight.
+- [29:15.830] Seven minutes of mission elapsed time.
+- [29:22.480] Throttling down as we approach the abort once around option.
+- [29:26.670] Milestone at the seven minute thirty second mark.
+- [29:31.190] Now eighty four miles in altitude.
+- [29:32.710] Six hundred fifty miles down range
+- [29:35.060] traveling more than fifteen thousand miles per hour.
+- [29:39.950] Male Speaker: Integrity AOA open.
+- [29:46.540] Male Speaker: AOA open.
+- [29:49.570] Male Speaker: The window is now open for an abort
+- [29:50.960] once around option
+- [29:52.180] that would target splashdown in the Pacific Ocean.
+- [29:54.530] Still following nominal ascent at this time.
+- [30:08.410] About 10 seconds remaining until the main engine cutoff
+- [30:11.300] of the Space Launch System core stage.
+- [30:14.290] Standing by for confirmation of MECO and core stage separation.
+- [30:36.670] Male Speaker: Integrity, nominal MECO, core stage separated.
+- [30:45.340] Male Speaker: We you see the same on board, Stan.
+- [30:55.350] Male Speaker: Eight minute and 40 seconds into the flight,
+- [30:56.950] we have a nominal main engine cutoff heading
+- [30:58.930] and the right trajectory on the way to swing around the moon.
+- [31:02.670] Core stage has separated, done its job.
+- [31:04.820] The Space Launch System upper stage,
+- [31:06.280] the Interim Cryogenic Propulsion Stage,
+- [31:08.420] or ICPS, still attached to the Orion spacecraft.
+- [31:16.440] Nine minutes of mission elapsed time,
+- [31:18.140] integrity crew of Reid Wiseman, Victor Glover,
+- [31:20.340] Christina Koch and Jeremy Hansen now in orbit around the Earth
+- [31:23.570] at the beginning of their journey to the Moon.
+- [31:33.030] Male Speaker: Integrity, Houston looking ahead to PRM numbers
+- [31:36.880] so far per the pad.
+- [31:44.550] Male Speaker: Copy that, Stan. Numbers for the pad.
+- [31:51.250] Male Speaker: Capcom Stan Loves now reminding the crew
+- [31:55.010] that the perigee raise maneuver time of ignition
+- [31:58.260] is as expected prior to booster ignition.
+- [32:04.650] That time being 49 minutes,
+- [32:06.580] 50 seconds of mission elapsed time.
+- [32:48.530] Male Speaker: Integrity, good NEDS deploy.
+- [32:57.930] Male Speaker: Copy that, Stan. Good NEDS.
+- [33:00.750] Male Speaker: (inaudible)
+- [33:11.320] to Houston for PWD set up, just a reminder,
+- [33:14.950] halfway open on the secondary.
+- [33:20.630] Male Speaker: We copy that. Halfway open.
+- [33:31.470] Male Speaker: Passing 11 minutes of mission elapsed time.
+- [33:34.630] Overhearing the conversation between Cap Com Stan Love
+- [33:37.310] and Commander Reid Wiseman, already passing some milestones,
+- [33:40.410] we have a good nozzle extension deployment system
+- [33:44.100] that is confirmed complete.
+- [33:47.190] We also have the visors are confirmed up.
+- [33:49.310] Now past the dynamic phase of flight that is ascent,
+- [33:55.630] their launch and entry suits
+- [33:59.670] that provided them an extra layer of protection.
+- [34:03.240] Now not as needed, they're going to raise those visors.
+- [34:09.710] And later in today's mission, they will begin to egress
+- [34:13.800] or get out of the suits to begin some of their initial tasks
+- [34:19.110] of activating some of the systems aboard
+- [34:21.760] in the Integrity spacecraft.
+- [34:25.980] Passing 12 minutes of mission elapsed time.
+- [34:27.980] Again, the perigee raise maneuver
+- [34:30.790] that's targeted near 50 minutes of mission elapse time,
+- [34:33.730] 49 minutes, 50 seconds.
+- [34:36.460] That's what the crew is going to be working towards.
+- [34:39.090] Commander Reid Wiseman, pilot, Victor Glover,
+- [34:41.150] will focus on preparing for that milestone.
+- [34:49.090] In the meantime, mission specialist Christina
+- [34:51.180] Koch and Jeremy Hansen
+- [34:54.440] will start some of the activation
+- [34:56.210] of environmental control light support systems.
+- [34:58.190] You may hear confirmation of their activation
+- [35:00.840] over the Orion to Earth communication network.
+- [35:09.560] Male Speaker: Houston, C-3 aux power back in auto.
+- [35:14.300] Male Speaker: Copy C-3 aux and we're two minutes to maneuver.
+- [35:42.430] Male Speaker: 13 minutes and 30 seconds of mission elapsed time.
+- [35:44.970] We're gonna continue to follow the crew
+- [35:47.680] of the Artemis II mission.
+- [35:49.530] They are beginning their journey around the moon
+- [35:51.580] to verify the systems that will take us to its surface.
+- [35:54.510] An incredible ascent, Artemis 2 is underway.
+- [35:57.880] Reid Wiseman, Victor Glover, Christina Koch,
+- [35:59.980] and Jeremy Hansen begin their journey to the moon.
+- [36:02.970] Still milestones to come up as we await solar array deploy
+- [36:06.090] and the critical burns that will get integrity
+- [36:08.430] into high earth orbit around the earth before engines are fired.
+- [36:12.390] To get us around the moon. We'll keep tabs on Integrity
+- [36:15.850] and its crew from here in Mission Control Houston.
+- [36:19.080] But for now, we're going to send it back to you,
+- [36:20.950] Megan and Nicole, at the Kennedy Space Center.
+- [36:23.330] Very jealous to hear how the launch experience
+- [36:26.090] was over on the space coast.
+- [36:28.610] Female Speaker: Yeah, Gary, if people are just joining us,
+- [36:30.480] welcome back to the Space Coast,
+- [36:31.910] where we just saw Artemis 2 lift off 14 minutes ago,
+- [36:35.860] and wow, what an amazing launch, and an emotional one too,
+- [36:38.800] as soon as the rocket lifted off.
+- [36:40.410] Nicole, you had tears in your eyes,
+- [36:42.430] I had tears of my eyes,
+- [36:43.770] and we had all these people around us cheering.
+- [36:45.690] It was amazing.
+- [36:46.910] Female Speaker: Yeah, the energy was wonderful.
+- [36:48.280] I mean, it was a beautiful launch.
+- [36:50.310] You know, we've got four friends and family members
+- [36:52.160] headed to the moon. It's pretty amazing.
+- [36:53.760] Female Speaker: Yeah, how does that make you feel
+- [36:55.070] as someone who, you know, is an astronaut as well,
+- [36:57.340] but also as you said, friends?
+- [36:58.560] Female Speaker: Yeah, so just so proud of them, you know.
+- [37:01.770] Man, we don't have the words in the English language
+- [37:03.610] to describe this kind of an event
+- [37:05.270] and pride, love, so many emotions,
+- [37:08.270] you know, they, they are truly breaking some barriers.
+- [37:12.410] And hopefully, you know, as Gary just said,
+- [37:15.240] they've got a long day ahead of them.
+- [37:16.570] So wishing them well on everything.
+- [37:18.270] But so far, what a beautiful launch to watch.
+- [37:20.270] Female Speaker: Yeah, to be returning to the lunar orbit
+- [37:22.230] in more than 50 years. Maybe they go farther from Earth
+- [37:26.180] than any other humans before them.
+- [37:27.670] Maybe they see parts of the moon that we've never seen before.
+- [37:31.540] I mean, what a great start
+- [37:34.420] to what could be all of these milestones
+- [37:37.920] that we break in just a 10 day mission.
+- [37:39.820] Female Speaker: Yes, what a way to welcome
+- [37:41.250] in the Artemis generation.
+- [37:43.000] Female Speaker: Yeah, how do you feel?
+- [37:44.290] I mean, we saw some beautiful shots
+- [37:46.360] we were covering of, of course the rocket,
+- [37:49.090] of course, the earth falling away as we continued up,
+- [37:52.670] up, up into our ascents,
+- [37:53.970] but also some of those crowd shots where we saw young
+- [37:56.270] and old, just emotional overcome by this history making moment.
+- [38:00.340] Female Speaker: Man, we are going back to the moon for all
+- [38:02.300] and we saw that today. We saw that in all the crowds.
+- [38:04.820] And yeah, you guys just saw that view,
+- [38:06.570] the sunrise or sunset, I guess.
+- [38:08.320] They just made it over the crest of the earth.
+- [38:10.400] And you could see the sun peeking over
+- [38:11.840] one of my favorite views from space.
+- [38:13.370] And I can't imagine what they're --
+- [38:14.810] what they are looking at now.
+- [38:16.040] And I cannot wait to see what they look at in
+- [38:18.000] about five or six days.
+- [38:19.210] Female Speaker: Yeah, and you know,
+- [38:20.410] I know a lot of people are like, you know what,
+- [38:22.080] I'm surprised this launched on the first try,
+- [38:24.830] because we know, like any little thing,
+- [38:26.810] we have to be keeping safety in mind
+- [38:29.440] and we want to make sure we're ready to go,
+- [38:30.860] but we were ready to and I think it surprised a lot people.
+- [38:34.690] What a wonderful surprise on this Wednesday evening.
+- [38:36.480] Female Speaker: It did, you know,
+- [38:37.690] and it kind of surprised me as well,
+- [38:39.260] but you know it's just a testament to the team here
+- [38:41.620] that has been working so hard on Artemis.
+- [38:44.120] You know, Artemis 1, we learned a ton of lessons.
+- [38:45.990] We learned a tone from the wet dress for Artemis 2.
+- [38:48.590] We were able to go in, fix those things.
+- [38:50.100] We even had a couple mishaps today, not mishaps,
+- [38:52.340] but a couple anomalies today
+- [38:54.420] that the team creatively came up with solutions for.
+- [38:57.380] It's just testament to teamwork that gets us to the moon.
+- [39:00.850] Female Speaker: And so we can continue to --

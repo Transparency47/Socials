@@ -1,0 +1,121 @@
+<!-- source: https://www.youtube.com/watch?v=WFCw04BiTHE -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: WFCw04BiTHE -->
+<!-- date_published: 2025-04-21T16:00:00+00:00 -->
+<!-- date_accessed: 2026-06-02T02:51:40.803325+00:00 -->
+
+# Transcript: First Lady Melania Trump Reads to Children at the 2025 White House Easter Egg Roll
+
+- [00:07.880] Hello. How is everybody? Happy Easter.
+- [00:15.120] What a beautiful crowd.
+- [00:20.480] Happy Easter.
+- [00:23.400] Hi.
+- [00:25.119] So, I have a book here that I really
+- [00:27.800] like and on the end you will tell me
+- [00:32.000] what you learn from it and the name is
+- [00:35.200] Bunny with a Big
+- [00:37.079] Heart. Does anybody know this
+- [00:40.120] book? Yeah, you do.
+- [00:45.079] Beautiful. So, let's
+- [00:47.370] [Music]
+- [00:48.920] start. Bunny with a big heart.
+- [00:54.320] PJ Funny Bunny was a very busy bunny. He
+- [00:58.640] was always doing
+- [01:01.640] something. I'm going to the park, he
+- [01:04.720] shouted one
+- [01:06.119] morning. Then he raced out of the house,
+- [01:09.920] leaving the door wide open.
+- [01:13.920] PJ also left his dirty dishes on the
+- [01:18.840] table, his toys all over his bedroom
+- [01:23.799] floor, and Richie's raccoons baseball
+- [01:27.360] meet meat under his
+- [01:31.240] bed. Sorry I'm late, said PJ when he got
+- [01:35.520] to the park. But PJ was always late.
+- [01:41.360] Where is my baseball meat? asked
+- [01:44.600] Richie. I will bring it tomorrow, said
+- [01:48.600] PJ. But that was what PJ said
+- [01:53.479] yesterday. That night, Honey Bunny asked
+- [01:57.040] PJ to watch a movie with her. "It's the
+- [02:01.439] new Hoppy Bunny movie," she
+- [02:04.520] cried. But PJ didn't want to watch it.
+- [02:08.000] Those movies are for babies, he
+- [02:14.200] said. PJ thought only of
+- [02:17.640] himself. He was too busy to think of his
+- [02:21.120] family and
+- [02:26.200] friends. Then one day, PJ twisted
+- [02:30.319] twisted his ankle, sliding into second
+- [02:34.440] base. "Ouch! Ouch! Ouch!" cried PJ as
+- [02:38.879] Richie and Pots carried him
+- [02:42.360] home. My poor little bunny, said his
+- [02:46.280] mom. Keep your ankle up and rest, said
+- [02:50.319] his
+- [02:51.400] dad. But PJ didn't want to rest. He
+- [02:55.360] wanted to go to Pine Coney Island with
+- [02:58.319] his
+- [02:59.239] friends. That afternoon, PJ's friends
+- [03:03.040] came over with video games.
+- [03:05.760] Aren't you going to P Pine Coney Island?
+- [03:08.959] PJ
+- [03:10.200] asked. But PJ's friends wanted to stay
+- [03:13.680] and play with him. Pine Coney Island
+- [03:17.599] wouldn't be fun without you, they
+- [03:24.440] said. That night, PJ's mom brought him
+- [03:28.400] dinner in bed. It was macaroni and
+- [03:32.159] cheese, PJ's favorite.
+- [03:36.159] And when PJ was ready for dessert, Honey
+- [03:39.360] Bunny brought him carrot
+- [03:43.400] cake. After dinner, PJ's mom put a warm
+- [03:47.040] blanket over him and Honey Bunny fluffed
+- [03:51.120] up his
+- [03:52.440] pillow. Then his dad read him a James
+- [03:56.400] Bunny book.
+- [03:59.840] Everyone fused over PJ the next day too.
+- [04:07.439] That night PJ thought about all the kind
+- [04:10.480] of things everyone had done for him. He
+- [04:13.760] was a lucky bunny. But it was time for
+- [04:16.639] him to be more thoughtful Bunny,
+- [04:23.720] too. The next day, PJ's ankle was
+- [04:27.280] better. So PJ made his bed. Then he
+- [04:30.400] swept up all the popcorn on the floor.
+- [04:34.080] "We missed you, PJ," said his family
+- [04:36.960] when he sat down for
+- [04:39.880] breakfast. After breakfast, PJ cried
+- [04:43.199] everyone's dishes to the carried
+- [04:45.360] everybody's dishes to the sink. Then PJ
+- [04:48.400] went to the park to play with his
+- [04:52.840] friends. "Sorry we are late," said
+- [04:55.680] Richie the pots.
+- [04:57.919] But Richie and Parts were not late. "I
+- [05:00.960] was early," said PJ as he gave Richie
+- [05:03.520] his baseball meat. "That afternoon, PJ
+- [05:07.600] returned all of his Richie's toys." "I
+- [05:10.639] forgot you had my science kit," said
+- [05:13.600] Richie. "Then PJ returned all of his
+- [05:16.720] pots toys." "I wondered where my pogo
+- [05:19.919] stick was," said
+- [05:23.320] Pots. PJ was happy. It felt good to
+- [05:26.960] think of others. That night, PJ and
+- [05:30.400] Honey Bunny watched one Hoppy Bunny
+- [05:33.600] movie after another after another after
+- [05:37.400] another until there were no Happy Bunny
+- [05:41.039] movies left to
+- [05:43.479] watch. They all fall
+- [05:46.600] asleep. The end.
+- [05:52.160] So, what did you learn from the book?
+- [05:58.199] Anyone tell me?
+- [06:11.120] Yes, we need to make friends and take
+- [06:13.600] care of them as well, right? Yes.
+- [06:18.400] Sorry.
+- [06:22.319] kindness. Yes, we've learned kindness
+- [06:25.039] from here. You
+- [06:38.400] to be kind to other people.
+- [06:40.919] Yes, I
+- [06:42.840] agree. So, have a great afternoon. Enjoy
+- [06:46.080] activities. Happy Easter Monday. Enjoy
+- [06:49.600] time with your families and it was great
+- [06:51.919] to host you here. I hope to see you next
+- [06:54.479] year.
+- [06:56.479] Thank you.
+- [06:59.360] Thank you.
+- [07:02.580] [Applause]

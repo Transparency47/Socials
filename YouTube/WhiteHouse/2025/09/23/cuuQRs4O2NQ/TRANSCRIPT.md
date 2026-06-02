@@ -1,0 +1,232 @@
+<!-- source: https://www.youtube.com/watch?v=cuuQRs4O2NQ -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: cuuQRs4O2NQ -->
+<!-- date_published: 2025-09-23T21:25:07+00:00 -->
+<!-- date_accessed: 2026-06-02T01:14:36.241574+00:00 -->
+
+# Transcript: President Trump has a Pull-Aside with the President of France
+
+- [00:00.160] Well, thank you very much everybody.
+- [00:01.600] It's a great honor to be with a friend
+- [00:04.080] of mine, Emanuel Mcronone, President of
+- [00:06.640] France. He's doing a really good job.
+- [00:09.200] He's fighting hard. He's fighting on a
+- [00:11.040] lot of fronts. He's helping with regard
+- [00:13.599] to the Russia Ukraine catastrophe and
+- [00:17.440] his words of wisdom mean a lot and we've
+- [00:19.840] been friends for a long time now really
+- [00:21.920] from the first term on. And uh I
+- [00:25.519] appreciate you being here. It's really
+- [00:27.119] nice. Thank you.
+- [00:28.800] >> Thank you. Please.
+- [00:30.160] >> Thank you. Thank you, Mr. President. I'm
+- [00:31.840] I'm very happy to have the opportunity
+- [00:33.280] to exchange with President Trump and uh
+- [00:36.320] and our teams and indeed we have a lot
+- [00:38.559] of things to do together and especially
+- [00:40.320] fixing I mean these crazy wars we have
+- [00:43.520] and um I I just saw
+- [00:47.600] the message you issued after your
+- [00:49.440] meeting with President Zalinski and I
+- [00:51.039] think it's a very a very right one. I
+- [00:53.680] mean uh if we back concretely uh Ukraine
+- [00:59.120] in this situation given the the Russian
+- [01:02.480] economy is suffering. I mean there is
+- [01:05.439] this opportunity of a good future.
+- [01:08.320] >> It is.
+- [01:08.720] >> So we will back at them.
+- [01:09.680] >> I think so. I think so. They're very
+- [01:11.360] enthusiastic in a lot of ways and it's
+- [01:13.680] been a terrible war should have ended
+- [01:16.159] and Russia should have stopped it. But
+- [01:19.520] they've been three and a half years and
+- [01:21.520] they've gotten not so far. So, we'll see
+- [01:23.920] what happens. But the other side can
+- [01:25.520] fight, too. And they've proven that.
+- [01:27.520] Maybe it's a p. It could be that Russia
+- [01:29.680] is a paper tiger. I don't know what they
+- [01:32.240] are. But three and a half years of
+- [01:33.680] fighting and killing everybody, of
+- [01:35.200] killing 7,000 people a week
+- [01:38.640] for nothing. For nothing. So, it's a
+- [01:41.920] very sad situation, but most of you have
+- [01:44.560] seen the recent statement I put out a
+- [01:46.479] little while ago, and I'm glad you got
+- [01:48.960] it. But I feel that way. I really do
+- [01:50.880] feel that way. Let him get their land
+- [01:52.240] back.
+- [01:52.720] >> Yep.
+- [01:53.360] >> So, we'll see how it all works out. And
+- [01:55.360] in the meantime, I hear France is doing
+- [01:56.960] well, and you're doing well. And he's
+- [02:00.079] been my friend, and we've gotten along
+- [02:01.680] on just about every subject there is to
+- [02:03.520] get along with other than occasion on
+- [02:06.320] occasion wine. I say, "Wouldn't you like
+- [02:09.679] to pay a couple of dollars to put the
+- [02:11.280] wine in into America?" But we've never
+- [02:14.400] we've always treated you good, right?
+- [02:16.400] >> We will try to to fix all these issues,
+- [02:18.319] but we have very good very good
+- [02:20.640] discussions and I think peace as an
+- [02:22.959] objective everywhere. Ukraine, as the
+- [02:24.879] Middle East is a very is a common
+- [02:26.720] objective we have. So, we will work hard
+- [02:28.640] on that.
+- [02:29.120] >> Emanuel has actually helped me with a
+- [02:31.120] couple of the wars. We settled seven
+- [02:32.800] wars. Uh the biggest disappointment, but
+- [02:36.160] I think that'll happen eventually, is
+- [02:37.840] the Ukraine and Russia situation, but uh
+- [02:40.879] we've settled. I thought that was going
+- [02:42.160] to be the easiest one because of my
+- [02:43.680] relationship with Putin, but
+- [02:45.599] unfortunately that relationship didn't
+- [02:48.080] mean anything unfortunately. But uh when
+- [02:51.760] I needed some advice and when I needed
+- [02:54.480] some help in terms of a country in that
+- [02:56.879] part of the world, you were always there
+- [02:58.800] and you helped me settle some of these
+- [03:00.480] seven wars. I'm very proud of the seven
+- [03:02.319] wars, but you helped me settle them and
+- [03:04.319] I appreciate that.
+- [03:05.680] >> Thank you.
+- [03:06.720] >> Thank you very much. Any questions for
+- [03:08.319] the president?
+- [03:09.120] >> President Trump. President Mcron just
+- [03:11.040] said that if you want the Nobel Prize,
+- [03:13.040] you should put an end to the war in
+- [03:14.640] Gaza. What's your response to that?
+- [03:16.239] >> Well, they say that alto together. I
+- [03:17.920] mean, it's Gaza, it's Russia, it's it's
+- [03:21.440] everything. I think Gaza is going to
+- [03:23.120] come along. Uh we're going to have a
+- [03:25.840] very important meeting and my next
+- [03:28.000] meeting actually is going to be very
+- [03:29.440] important with uh leaders in the region
+- [03:33.440] and we're going to talk about Gaza.
+- [03:34.959] We're going to see if we can do
+- [03:35.840] something about it. We want to stop
+- [03:37.120] that. We want to get our hostages back
+- [03:38.879] or their hostages back. We've gotten all
+- [03:41.280] of the American hostages as you know and
+- [03:44.319] Alexander all of them have been uh back.
+- [03:47.440] Steve Witco's done a great job and Marco
+- [03:50.959] always and everybody. I mean, we have
+- [03:54.000] Scott got involved and strongly involved
+- [03:56.480] from a financial standpoint. We're doing
+- [03:59.040] uh we're doing some things that are
+- [04:00.799] pretty good. We put Iran out of
+- [04:03.200] commission. Very important. That was
+- [04:05.760] called the bully of the Middle East and
+- [04:07.519] they're out of commission. Now, we're
+- [04:08.879] going to have a meeting today. I think
+- [04:10.640] it's going to be a successful meeting
+- [04:12.159] with all of the leaders of many of the
+- [04:14.879] biggest I I would say the most important
+- [04:16.799] countries having to do with Gaza
+- [04:18.639] indirectly and directly. and that's
+- [04:20.959] going to take place just in a little
+- [04:22.320] while. So, I'm sure you'll be there and
+- [04:24.720] uh we could have an outcome very
+- [04:26.240] quickly.
+- [04:27.040] >> What do you believe the recognition of
+- [04:29.040] of Palestine is a gift to Hamas?
+- [04:32.400] >> Well, I think it it uh honors Hamas and
+- [04:35.280] you can't do that because of October
+- [04:37.040] 7th. You just can't do that. But we want
+- [04:39.600] our hostages back and we don't want them
+- [04:41.520] back in, you know, ones and twos and
+- [04:43.440] take the next two years to do it. We
+- [04:45.840] were the ones that got the hostages
+- [04:47.360] back. And I always said, I told Steve, I
+- [04:49.440] told Marco, I was always saying the last
+- [04:52.560] hostages are going to be the toughest
+- [04:54.080] ones. But you can't honor them by doing
+- [04:58.880] anything like you suggest. All you can
+- [05:01.040] do is say we want our hostages back and
+- [05:03.600] we want we want the war to end. We're
+- [05:05.440] going to want it to end. But you always
+- [05:07.919] have to remember, people forget October
+- [05:10.960] 7th was one of the most savage days in
+- [05:13.280] the history of the world. There's never
+- [05:14.639] been anything like that. We're talking
+- [05:16.160] about babies being sliced in half.
+- [05:18.560] You're talking about young children
+- [05:20.560] having their heads chopped off. You
+- [05:22.800] can't forget that.
+- [05:24.000] >> Would you
+- [05:26.000] just perhaps to to make it clear on
+- [05:28.000] that? I think it's why why yesterday 11
+- [05:32.479] countries did recognize Palestine.
+- [05:35.360] Not not as I mean it was not a decision
+- [05:39.280] taken like that neither by UK nor by
+- [05:41.440] Canada nor by France.
+- [05:43.919] It's a It's just a big change. Nobody
+- [05:46.080] Nobody Pre President Trump is totally
+- [05:49.199] right. Nobody forgets the 7th of
+- [05:51.680] October.
+- [05:53.280] I went there a few days after taking
+- [05:56.240] families in my in my hands and and it's
+- [05:59.440] we experienced all together this
+- [06:01.919] horrific attacks and and and by the way
+- [06:05.440] we lost a lot of French people in these
+- [06:07.600] terrorist attacks. But after almost two
+- [06:10.479] years of war, what is what is the
+- [06:12.880] result? Once again,
+- [06:15.280] they killed the top leaders of Hamas. It
+- [06:17.440] works. This is a great achievement. But
+- [06:19.759] at the same time, you have as many Hamas
+- [06:22.800] fighters as you had the first day. So it
+- [06:26.160] doesn't work to dismantle the Hamas.
+- [06:28.400] This is not the right the right way to
+- [06:30.400] proceed. So we need a full-fledged
+- [06:32.720] process. And we worked very hard on the
+- [06:34.639] day after and I totally share this
+- [06:36.880] sequencing the release of all stages the
+- [06:39.680] ceasefire resume of humanitarian aid the
+- [06:42.800] day after in Gaza to stabilize the land
+- [06:45.520] and we need a political perspective and
+- [06:47.440] this is why we took this decision and
+- [06:49.680] recognition.
+- [06:53.360] >> Well, I have to say that I'm on the side
+- [06:54.960] of Israel. I've been on the side of
+- [06:56.479] Israel really my whole life and uh we
+- [06:59.599] are going to get a solution and it's
+- [07:02.240] going to be a solution hopefully that's
+- [07:03.680] good for everybody. But it's time to
+- [07:06.000] stop. We're going to uh have that very
+- [07:08.880] important meeting. I think the meeting
+- [07:10.160] we have coming up in uh the next hour is
+- [07:13.919] going to be one of the most important
+- [07:15.440] meetings uh that we'll have here. And
+- [07:17.840] we've had some important meetings. We've
+- [07:19.280] had some some great meetings and uh I
+- [07:22.319] understand where you are and where other
+- [07:24.720] people are too and uh we just have to
+- [07:28.080] get this solved. We have to get the
+- [07:29.360] hostages back. We want to get the war
+- [07:31.120] over. That's very important. We got to
+- [07:33.840] end the war, get the hostages back, and
+- [07:36.319] we want them all back. We don't want to
+- [07:37.840] have one and then we'll give another two
+- [07:39.599] in about 3 months from now. We've been
+- [07:41.360] doing that for a long time. And in all
+- [07:43.599] fairness, we've gotten a lot of hostages
+- [07:45.280] back. But you have 20 hostages and you
+- [07:47.199] have probably 38 bodies, dead bodies.
+- [07:50.319] And the people that I see, and I speak
+- [07:52.800] to Israeli families. I was speaking to
+- [07:55.840] American families before, but we got
+- [07:57.520] them back, but I speak to Israeli
+- [07:59.840] families and they want this son who
+- [08:02.560] died. They want their dead son back as
+- [08:04.720] much as though he were alive.
+- [08:07.199] And it's an amazing thing to see. And
+- [08:09.039] it's a horrible thing actually to
+- [08:10.560] witness, but I've seen it a lot. So they
+- [08:13.120] have 20 hostages. They have 38 dead
+- [08:15.199] bodies and we have to have them back and
+- [08:18.080] we have to have them back immediately.
+- [08:20.000] Thank you very much everybody.

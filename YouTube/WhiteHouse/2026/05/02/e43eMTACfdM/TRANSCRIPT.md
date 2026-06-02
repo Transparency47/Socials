@@ -1,0 +1,1685 @@
+<!-- source: https://www.youtube.com/watch?v=e43eMTACfdM -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: e43eMTACfdM -->
+<!-- date_published: 2026-05-02T01:11:23+00:00 -->
+<!-- date_accessed: 2026-06-02T02:34:30.986668+00:00 -->
+
+# Transcript: President Trump Participates in The Forum Club of the Palm Beaches Dinner
+
+- [00:00.350] Male Speaker: Ladies and gentlemen,
+- [00:01.640] at the Forum Club of the Palm Beaches,
+- [00:04.100] we are privileged to welcome leaders
+- [00:06.520] who are actively shaping the direction of our nation.
+- [00:10.430] Tonight, we welcome the person
+- [00:11.870] who is shaping not only our nation, but our world.
+- [00:15.970] We are deeply honored by his presence
+- [00:18.290] and willingness to share his valuable time with us.
+- [00:22.050] Ladies and gentleman, please rise
+- [00:24.590] and join me in welcoming the 45th and 47th President
+- [00:29.570] of the United States of America, President Donald J. Trump.
+- [00:33.620] ♪ ("God Bless the USA" by Lee Greenwood) ♪
+- [02:55.460] (applause)
+- [02:59.530] The President: Harvey's book. Anybody want a folder?
+- [03:03.630] Hello, everybody. This is great. And I want to thank Harvey.
+- [03:07.180] I want to thank everybody,
+- [03:09.090] so many friends in this audience.
+- [03:10.550] You know, I'm very familiar with the area.
+- [03:13.820] And our country is hot.
+- [03:16.410] We're doing a good job. We're doing a good job.
+- [03:20.910] Stock market just hit another high
+- [03:22.850] for the 59th time in one year. And it's been really great.
+- [03:27.020] But I want to thank especially Harvey and all of the people,
+- [03:30.400] and his beautiful wife, Christina, daughter Eve.
+- [03:34.060] And he really put his heart and soul.
+- [03:35.990] He's a wonderful man, a great attorney,
+- [03:38.190] a very legitimate person. Sit down.
+- [03:41.160] Come on. We'll be here. Why the heck?
+- [03:44.120] It's a beautiful evening in semi-Palm Beach.
+- [03:52.320] Sort of semi, isn't it, huh? No, it's great. Hot area.
+- [03:56.830] It's a hot area. It's one of the hottest areas
+- [03:59.240] anywhere in the country, if you think. Right?
+- [04:01.470] It's a pleasure to be back with so many friends and neighbors
+- [04:04.340] in a place that I love,
+- [04:06.080] in a place that I call home, Palm Beach.
+- [04:08.740] It's been -- I've been here for a long time.
+- [04:11.500] And I begin by congratulating the Forum Club
+- [04:14.700] on 50 incredible years.
+- [04:16.170] The Forum Club. Wow.
+- [04:22.000] Harvey asked me if I'd do this. I said, no, I have a big speech.
+- [04:24.540] You know, I just had a big speech.
+- [04:26.560] Probably still a big, big.
+- [04:28.390] And we -- it's all over television.
+- [04:31.510] I said, where am I going now?
+- [04:33.140] He said, you're going to Kravitz Center.
+- [04:34.430] But you know, honestly, Kravitz Center is terrific.
+- [04:37.590] And I mean, I wasn't -- I was saying, somebody said,
+- [04:42.540] you know, sir, you don't really have to do it.
+- [04:44.280] You can call up and probably do it.
+- [04:45.740] I said, are you kidding me? Can you imagine?
+- [04:48.380] This is a crowd where I know so many --
+- [04:51.670] many killers, very successful people.
+- [04:55.380] Some are nice. Some are horrendous people.
+- [04:59.070] But I like the nice ones and the horrendous ones also.
+- [05:02.930] We have some really killers. I'm looking out there.
+- [05:05.800] Oh, these people.
+- [05:07.000] I've had to deal with them my whole life. They are brutal.
+- [05:09.360] But, you know, you get friendly with brutal people, too.
+- [05:12.740] I'm dealing with some quite brutal people
+- [05:14.420] right now in the lovely country of Iran.
+- [05:17.730] They are very brutal.
+- [05:18.940] And I will tell you, we're doing very well.
+- [05:20.830] You cannot give Iran a nuclear weapon.
+- [05:24.770] It's all I can tell you. You cannot.
+- [05:29.970] Because they would use it
+- [05:31.810] on a place called Israel very quickly,
+- [05:35.650] and they would use it in the Middle East,
+- [05:37.210] and they'd use it in Europe.
+- [05:39.010] And I guess we'd be -- we'd be next.
+- [05:41.450] And it's not going to happen.
+- [05:42.830] Don't worry about it. We have -- we've taken a part.
+- [05:48.370] We've taken their air forces. It's nonexistent. It's gone.
+- [05:52.190] We've taken their Navy. They had a very strong Navy.
+- [05:54.910] They had the strongest Navy, by far, in the Middle East,
+- [05:57.140] many times over. They have 159 ships.
+- [05:59.980] Every single ship is at the bottom of the sea right now.
+- [06:03.260] They have no anti-aircraft capacity.
+- [06:06.970] They have no radar. They have no leaders.
+- [06:08.630] Actually, their leaders are all gone, too.
+- [06:10.530] It's part of our problem.
+- [06:11.760] We don't know who the hell we're dealing with.
+- [06:15.180] They call up, this is Mohammed so-and-so.
+- [06:17.430] And I say, are you a leader? We're looking for a leader.
+- [06:24.200] It's the only country in the world --
+- [06:25.680] nobody wants to be a leader.
+- [06:26.940] You know, they say, would anybody like to be President?
+- [06:31.810] And there are no takers.
+- [06:35.960] But we're going to -- we're doing --
+- [06:37.990] I think we're doing a great job over there, actually.
+- [06:41.630] You know, they used the Hormuz Strait
+- [06:44.440] as a weapon for many, many years.
+- [06:46.560] They said they'll close it. So they closed it.
+- [06:49.070] Then I closed it on them, which is sort of --
+- [06:52.230] they want a little business. They get no business.
+- [06:55.070] But it's going to work out because everything works out.
+- [06:57.630] You know, you look at what we did with Venezuela.
+- [07:00.800] That was an amazing, amazing military maneuver.
+- [07:06.750] And now we have a great relationship with Venezuela.
+- [07:10.680] A hundred million barrels of oil we've already sold.
+- [07:14.020] It goes down to Texas. It goes to be refined in Texas.
+- [07:18.180] A hundred million. We're going to be --
+- [07:19.870] over the next month, it's going to be another hundred million.
+- [07:22.610] And you'll be happy to hear this
+- [07:23.980] because you're a lot of great businesspeople here.
+- [07:25.720] This is the first war that you've seen
+- [07:27.280] in the United States for a long time,
+- [07:28.660] where we actually have paid for the cost of the war
+- [07:31.140] by about 37 times already.
+- [07:33.740] In other words, it cost us a lot.
+- [07:36.500] We had those big, beautiful aircraft carriers,
+- [07:38.480] lots of planes and everything else.
+- [07:39.850] But we've paid for it many, many times over.
+- [07:42.610] And we're getting along great with the people,
+- [07:44.740] the leaders of the country.
+- [07:46.760] And we're working with them very closely.
+- [07:49.010] And they're relying on us totally.
+- [07:53.060] And the relationship is very good.
+- [07:54.630] And they're doing more business now
+- [07:56.190] than they've done in 15 years, probably.
+- [07:59.270] And we have the oil companies all moving in.
+- [08:01.420] The big American oil companies are all moving in.
+- [08:04.280] It's really been amazing.
+- [08:06.190] And then I said, well, now we can take a little pause.
+- [08:09.520] We ended up doing the -- I mean, you all know.
+- [08:13.270] You're people that probably see the stock market
+- [08:15.230] more than almost anybody in the world.
+- [08:17.210] There's no group in the world that's more
+- [08:18.720] stock-market-oriented than the people in front of me.
+- [08:22.100] Many of you are responsible for some of those successful stocks.
+- [08:25.570] But the stock market hit today an all-time high again.
+- [08:29.600] It hit one yesterday. It hit one the day before.
+- [08:31.460] During what they call a military operation --
+- [08:36.270] you know, they don't like the word war.
+- [08:38.540] And they call it a military operation
+- [08:41.710] because that way you don't have a war,
+- [08:43.370] you don't have legal problems. But you ever hear a situation
+- [08:47.310] where we're knocking the hell out of somebody
+- [08:49.270] and we have a Congress?
+- [08:50.490] Please, you've only got three days left.
+- [08:52.720] We spent 19 years in Vietnam. We spent 12 years in Iraq.
+- [08:58.070] We spent seven years in another place,
+- [09:00.350] two years in another one, seven years in another one.
+- [09:03.790] We had another one for 14 years,
+- [09:07.190] and we're in there for six weeks.
+- [09:11.200] What's taking so long?
+- [09:14.130] Now, we could leave right now. Right now, if we left right now,
+- [09:18.430] it would take them 20 years, 25 years to rebuild the place.
+- [09:22.090] But we're not doing it because we have to do it totally right.
+- [09:24.480] We don't want to have somebody coming back in five years
+- [09:28.190] and you have an incompetent president,
+- [09:29.710] which we just went through four years
+- [09:31.250] of a very terrible situation, very incompetent.
+- [09:34.710] But this should have been done long before I got to office,
+- [09:36.940] so we had to do it.
+- [09:38.210] The crazy thing is I had all my financial people --
+- [09:40.620] Scott, you know,
+- [09:42.250] Howard, you know, all of the different people.
+- [09:45.360] And we're celebrating the success
+- [09:48.280] because we have the highest stock market.
+- [09:50.990] We broke $50,000 on the Dow. Nobody thought it was possible.
+- [09:54.780] They said maybe at the end of the fourth year,
+- [09:58.410] but probably in six years, five years,
+- [10:01.690] but not during this term. It's too much.
+- [10:04.460] We did it at the end of the first year.
+- [10:07.310] Then we broke 7,000 on the S&P.
+- [10:10.410] We did that at the end of this year, long ahead of schedule.
+- [10:14.960] And then I said, you know, we have the most successful --
+- [10:18.870] by the way, more oil is being drilled right now
+- [10:21.440] than at any time in the history of our country.
+- [10:24.250] We're doing double -- Think of this.
+- [10:27.880] We're doing double Saudi Arabia and Russia combined.
+- [10:30.940] Double Saudi Arabia and Russia combined. Nobody knows that.
+- [10:35.730] And you see all of those big, gorgeous ships
+- [10:40.000] coming up from all over the world
+- [10:41.490] because the Strait is closed by us,
+- [10:43.220] and they're coming to Texas now and Louisiana to load up.
+- [10:45.960] Big ones.
+- [10:47.240] Two million barrels of oil. The big ones.
+- [10:50.180] Those are the big ones. And they're all heading up.
+- [10:52.850] And you see the line. They call it the Congo Line.
+- [10:54.750] I don't know what that's supposed to represent.
+- [10:57.040] But you see those graphs.
+- [10:58.570] It's made from Space Force.
+- [11:00.800] You know, we were responsible for Space Force.
+- [11:03.470] We needed Space Force.
+- [11:04.730] We were being killed in space by China, by Russia.
+- [11:08.020] In my first term, I created Space Force.
+- [11:10.390] First time in 79 years that we did a new division,
+- [11:14.510] a new grouping, because you had the Marines --
+- [11:16.520] the Army, Navy, the Marines. We had the Coast Guard.
+- [11:20.050] We have all of the different branches of government,
+- [11:23.960] the Air Force.
+- [11:25.370] And they thought the Air Force and the Space Force
+- [11:29.400] would stay together,
+- [11:30.850] but the Air Force wants the Air Force.
+- [11:32.590] They're not going to give.
+- [11:33.820] And space is so important now. And we did Space Force.
+- [11:36.460] And all of those things, many of those things that you're saying
+- [11:39.410] is because of Space Force. And now, Space Force is --
+- [11:43.000] we were losing badly in space to Russia and China, militarily.
+- [11:47.840] Now we're way in the lead. Way in the lead.
+- [11:50.220] We have the greatest space capacity
+- [11:53.020] of any country in the world. We're very proud of that.
+- [11:56.540] We need it. We need it for protection
+- [11:58.350] because it's a nasty world out there.
+- [12:00.180] We need it for protection.
+- [12:01.850] So we're very proud of Space Force.
+- [12:03.180] But they -- among other things,
+- [12:04.740] they give you beautiful satellite pictures
+- [12:06.470] of what's happening in the world.
+- [12:07.990] And when you look at the Strait of Hormuz
+- [12:11.080] and you see all of those ships,
+- [12:12.890] all of those people and ships that --
+- [12:15.790] they want to get out or they want to get in.
+- [12:17.510] They're all over the place. They're like little ants, right?
+- [12:19.580] They look like a little ant hill.
+- [12:22.000] And hundreds and hundreds of ships.
+- [12:24.930] And we have a Navy that is unbelievable.
+- [12:28.740] We put up -- it's a blockade. It's a blockade.
+- [12:34.000] And you saw the other day where a massive tanker --
+- [12:38.380] this was bigger than 2 million barrels --
+- [12:41.080] a massive tanker was trying to run it.
+- [12:44.050] And the young captain of the ship from Annapolis --
+- [12:47.590] these guys are like central casting.
+- [12:49.140] You could put -- you could put them in --
+- [12:50.790] I'd say something about Tom Cruise.
+- [12:52.140] I was going to say,
+- [12:53.360] better looking than Tom Cruise and taller,
+- [12:54.940] but I'm not going to do that because he's a friend of mine.
+- [12:56.830] I can't do that. But they're like central cast --
+- [12:59.720] you could move them to Hollywood right now.
+- [13:01.420] They'd be movie stars.
+- [13:02.730] But you saw him saying,
+- [13:05.280] "We have guns trained on your ship.
+- [13:07.870] Turn your ship around."
+- [13:10.320] Turn -- and this is loudspeakers that go over the ocean,
+- [13:13.850] and they hear them from two miles away.
+- [13:16.700] "Turn your ship around. Turn your ship around."
+- [13:19.750] And all of a sudden, you go, yes, yes,
+- [13:22.150] we are going back to Iran.
+- [13:24.820] We are going back. They turn it around.
+- [13:26.890] It takes 10 miles to turn this sucker.
+- [13:29.270] You know, it's not like turning around a bicycle.
+- [13:31.860] It's like -- it's big stuff.
+- [13:34.380] And then we had the other one you saw from four days ago,
+- [13:36.730] where they were going to ram the --
+- [13:38.810] we call it an iron wall. It's essentially an iron wall.
+- [13:41.210] We have such great military and great Navy.
+- [13:44.150] And they were going straight through.
+- [13:46.960] And they said, "Turn your ship around."
+- [13:49.430] And there was no response.
+- [13:51.260] "Turn your ship around. Evacuate your engine room immediately."
+- [13:56.550] And you see all these guys running out of there.
+- [13:58.600] Now, they're five miles away.
+- [14:01.840] And one shot into the engine room.
+- [14:04.290] Blew off the engine room.
+- [14:05.540] The ship stopped. They used tugboats.
+- [14:08.850] And then we landed on top of it. On top of everything else.
+- [14:11.420] We then land on top of it, and we took over the ship.
+- [14:14.910] We took over the cargo, took over the oil.
+- [14:17.450] It's a very profitable business.
+- [14:18.800] Who would have thought we were doing that?
+- [14:20.120] We're like pirates. We're sort of like pirates.
+- [14:25.390] But we're not playing games.
+- [14:26.770] Because, you know, for 47 years,
+- [14:29.440] Iran has been pushing everybody around.
+- [14:31.350] They're the bully of the Middle East.
+- [14:32.680] They've been scaring everybody --
+- [14:34.700] Israel and Qatar, Saudi Arabia, UAE, Bahrain, Kuwait.
+- [14:40.770] All of them. They're all -- it was the bully
+- [14:43.500] of the Middle East. I understand it.
+- [14:45.900] Bush made a mistake. He took out Iraq.
+- [14:47.930] But, you know, Iraq -- and, by the way,
+- [14:50.480] I congratulate the new President of Iraq.
+- [14:54.030] I endorsed him.
+- [14:55.240] I'm now in the business of endorsing political leaders
+- [14:58.350] from foreign countries --
+- [14:59.660] countries that nobody has ever seen before.
+- [15:02.470] And we have a pretty infallible record.
+- [15:04.050] We've won a lot of them.
+- [15:05.330] But I endorsed the man because we didn't like the man
+- [15:07.750] that was the President of Iraq. And we endorsed somebody
+- [15:11.190] that not a lot of people have heard of.
+- [15:13.110] And he won in a landslide. I just spoke to him yesterday.
+- [15:16.710] But the relationships we have -- we have relationships
+- [15:20.050] that are very, very strong, very powerful relationships.
+- [15:22.810] And I think the Middle East is going to be taken care of.
+- [15:25.900] We had a lot of conversations with the leaders --
+- [15:29.750] I call them the new leaders. I call them the new regime.
+- [15:31.840] You know, they kept saying, the radical left,
+- [15:34.950] "Where has the regime changed?"
+- [15:36.190] Well, if this isn't regime change, there's no such thing.
+- [15:39.930] Because Khomeini in the first tier was gone.
+- [15:43.030] The second tier is gone. Half of the third tier is gone.
+- [15:45.620] Which is a problem. That's a problem.
+- [15:48.270] Because we are trying to figure out the right one to talk to.
+- [15:50.850] We talk to one, and then another one calls up.
+- [15:52.990] "Let's make a deal." But I think we're in a very --
+- [15:57.540] well, I mean, I know we're in a very strong position.
+- [16:00.170] There's the expression that we've all heard,
+- [16:01.970] or many of us have heard, if you like the fights,
+- [16:03.930] if this were a fight, they'd stop it.
+- [16:06.260] But again, their military -- they have some missiles left.
+- [16:10.660] They have some missile-making capacity left.
+- [16:12.940] We've knocked about 85 percent of their manufacturing capacity
+- [16:17.300] for new missiles out. We've knocked about 82 percent.
+- [16:20.400] But that means they have missiles left.
+- [16:22.500] We knocked out most of their drone-making factories,
+- [16:25.360] but they have some drone capacity left.
+- [16:27.830] And drones are pretty effective.
+- [16:29.230] But we've also developed -- in the meantime, you know,
+- [16:32.180] if you remember, the German U-boats
+- [16:33.830] were a horror. Nobody could stop them.
+- [16:36.920] And then, all of a sudden, they come up with sonar,
+- [16:39.580] and it went from nobody could stop them,
+- [16:41.160] that it was the worst place in the world to be,
+- [16:43.090] is in a U-boat.
+- [16:44.630] The drone -- anti-drone capacity that we have now is fantastic.
+- [16:49.610] They have new weapons, lasers. You're going to see the lasers.
+- [16:53.580] They go into a laser, they just burn like a --
+- [16:55.760] they just boom.
+- [16:57.410] And we have that, and we have very special machine guns
+- [17:02.520] with large-scale bullets, operated by a computer.
+- [17:06.480] And as they come in, it just knocks them out like --
+- [17:08.660] it's amazing.
+- [17:09.900] But with all of that being said, there's still danger.
+- [17:11.940] There's always danger with war.
+- [17:13.850] With war, you never know what happens.
+- [17:15.500] Look at Russia. It was supposed to be a one-day war,
+- [17:18.200] and it's four years, right?
+- [17:20.030] And you see that, and it's really a terrible war.
+- [17:24.350] A lot of people died.
+- [17:25.580] Last month, they had 25,000 soldiers,
+- [17:29.270] mostly soldiers, killed.
+- [17:30.500] It's like a bloodbath over there.
+- [17:31.910] And I think we'll get that.
+- [17:33.110] We've settled eight wars, and that should be the ninth.
+- [17:37.990] We're going to get it done, but it's a rough one.
+- [17:41.370] It's a rough one.
+- [17:44.890] But we're joined tonight by a lot of my friends
+- [17:47.020] and very distinguished people that are great people.
+- [17:50.410] The Palm Beach Mayor, Danielle Moore.
+- [17:52.510] Where's Danielle? Where are you, Danielle?
+- [17:54.290] Hi, Danielle. How are you? Great person.
+- [17:57.540] We're working on a little --
+- [17:58.780] a couple of things -- for good water.
+- [18:02.110] Let's say a nice water product, right? Like desalination.
+- [18:06.350] I said, Danielle, why can't we be like a submarine?
+- [18:08.780] We have the best desalination.
+- [18:10.530] We have the best submarines in the world.
+- [18:12.380] We can go for years underwater, all nuclear submarines --
+- [18:16.910] the nuclear ones. And one of the things we have
+- [18:19.720] is great water on the submarines -- desalination.
+- [18:22.890] So I'm saying, how does that sound for Palm Beach?
+- [18:25.240] So we're looking at it. We're going to play with it
+- [18:27.650] and see, boy, would that be nice from the standpoint
+- [18:30.060] of unbelievably clean, pure water.
+- [18:34.130] It would be great. So we're working with Danielle
+- [18:36.350] and we're working with the Council.
+- [18:39.620] And I think something is going to come up,
+- [18:41.610] whether it's filtering or desalination.
+- [18:43.810] Desalination is a little bit better
+- [18:45.520] and a little bit more expensive, like a lot.
+- [18:48.000] But, you know, anything used by the Navy is the most expensive.
+- [18:52.780] But think of it, they can go forever in a submarine.
+- [18:55.450] A nuclear submarine can go -- at just about top speed --
+- [19:01.350] for 35 years without refueling. Can you believe it?
+- [19:05.720] Going at a very fast -- we have the greatest submarines
+- [19:08.950] anywhere in the world. Nobody close.
+- [19:10.340] We're 15 years ahead of any other --
+- [19:12.840] we have the greatest military in the world.
+- [19:14.940] I rebuilt it.
+- [19:19.330] I rebuilt the military in my first term,
+- [19:21.800] and I didn't know I'd be using it
+- [19:23.280] this much my second term.
+- [19:25.240] But we have -- certain things have to be done.
+- [19:27.730] It was sad when, in Afghanistan,
+- [19:29.890] some of it was left behind by people --
+- [19:31.760] that should have never happened.
+- [19:33.910] Getting out. We wanted to get out.
+- [19:35.310] We were going to get out easily. We would have won.
+- [19:37.660] We would have won and then gotten out.
+- [19:39.160] We would have gotten out with great pride.
+- [19:41.290] But we left some of the military.
+- [19:42.630] But it was really just a small --
+- [19:44.120] you know, it sounds like a lot, and it is a lot,
+- [19:45.910] but it was 2 percent of what we built up.
+- [19:48.980] We built a great military.
+- [19:50.720] But our submarines can go by nuclear power.
+- [19:52.870] Think of that. They can go for many years without stopping.
+- [19:57.860] They have water capacity.
+- [19:59.970] You know, unlimited water capacity.
+- [20:01.730] They can -- the one thing they don't have,
+- [20:03.480] you know what it is? Food.
+- [20:05.520] They have to come up every 90 days for food.
+- [20:07.930] The only thing we can't figure out is food.
+- [20:10.100] I mean, a little, simple thing like that.
+- [20:12.570] But it's really amazing, some of the things that we're able to do
+- [20:16.930] with the military, with a lot of other things, too.
+- [20:18.980] Palm Beach Town Council President Ted Cooney.
+- [20:22.350] Thank you, Ted. Thank you, Ted. Good job. Good. Good.
+- [20:27.070] Palm Beach County Administrator Joe Abruzzo,
+- [20:30.280] who is a phenomenal --
+- [20:32.210] you are -- you got a diamond there.
+- [20:34.550] Hey. It's -- you have --
+- [20:37.180] I know a lot of town administrators,
+- [20:40.070] and you don't want to -- this guy is a diamond.
+- [20:43.260] Thank you very much. You're doing a fantastic job.
+- [20:45.750] Thank you, Joe. A friend of mine,
+- [20:48.250] even though he's a Democrat -- sort of a Democrat.
+- [20:51.960] I don't know if he's a Democrat, but he's -- he goes --
+- [20:54.020] I'll tell you one thing.
+- [20:55.220] He's a great sheriff, and he's a popular guy.
+- [20:58.040] Sheriff Rick Bradshaw.
+- [21:05.790] So, I shouldn't tell you this. I told this to Rick.
+- [21:08.140] And, you know, I know how tough he is and all,
+- [21:09.730] so I figured this might happen.
+- [21:11.020] But I voted for Rick. He's a Democrat.
+- [21:16.170] This could be the end of my presidential career.
+- [21:19.450] I voted for him.
+- [21:21.220] And one of the reasons I voted for him was he's great.
+- [21:25.100] The other was that I was afraid he'd check my vote.
+- [21:29.210] And you know what? I think he did,
+- [21:31.650] because there was a story in one of the papers that --
+- [21:35.580] I don't know, I did some filing,
+- [21:37.360] and they actually checked my vote,
+- [21:39.320] and I voted for Rick. So, that's pretty good, right?
+- [21:42.780] All right. I'm in trouble with the Republican Party,
+- [21:45.080] but they'll understand. I'll figure that one out.
+- [21:47.220] They'll -- great job. Great job, Rick. Really.
+- [21:50.650] Candidate for mayor of West Palm Beach, Christina Lambert.
+- [21:54.660] Christina, wherever you are. Good luck. Good luck.
+- [22:00.740] And former Florida CFO, Jeff Atwater. Jeff, thank you.
+- [22:09.020] We have a friend of mine for a long time, Pepe Van Hool.
+- [22:15.020] He's the sugar -- he is a monopoly on the sugar market.
+- [22:18.280] I don't know if that's good or bad.
+- [22:20.940] I don't know if that's good or bad, Pepe.
+- [22:22.890] I think it's good. It sounds good to me.
+- [22:25.190] He has a monopoly on sugar throughout the world.
+- [22:28.370] He's also one of the largest property owners --
+- [22:30.430] maybe the largest in all of Florida.
+- [22:32.090] And Pepe Jr., who is just like the father --
+- [22:35.270] looks like him, sounds like him.
+- [22:37.780] He might even be more vicious, if that's possible.
+- [22:40.970] But they're both here. Pepe Van Hool.
+- [22:42.870] Where are you, Pepe? And Pepe Jr. Good.
+- [22:46.180] They are great people.
+- [22:47.570] And he's been a supporter of mine from the beginning.
+- [22:49.740] Right -- almost before I ran, he said, you know,
+- [22:52.220] if you run for President, you're going to win.
+- [22:53.820] Before I even announced, it was sort of crazy.
+- [22:56.030] He's been there from the beginning.
+- [22:57.470] Thank you very much. We appreciate the friendship.
+- [23:00.870] Great guy.
+- [23:03.250] I actually did tell Coca-Cola, why aren't you using real sugar?
+- [23:07.910] And they said, well, we have the, you know, the aspartame,
+- [23:10.100] whatever it is. I said, no.
+- [23:11.320] In other countries -- you know, believe it or not, Mexico,
+- [23:14.890] who does not like me after the change of the name
+- [23:17.220] to the Gulf of America -- the President called me up.
+- [23:22.150] This is six months ago.
+- [23:24.040] You know, we have 92 percent of the waterfront.
+- [23:27.910] They have 8 percent.
+- [23:29.610] And I always wondered, why is it the Gulf of Mexico?
+- [23:32.630] For a long time, even looking as a kid, I said,
+- [23:34.790] well, the Gulf of Mexico -- it's such a powerful name.
+- [23:37.820] It's such a powerful thing, the Gulf of Mexico.
+- [23:40.910] But it should be the Gulf of America.
+- [23:42.960] I mean, I'll say it only within the confines of this room
+- [23:45.490] because I know there's a lot of fake news back there.
+- [23:50.810] I -- within the confines of this room --
+- [23:52.820] Mayor, you're not going to tell anybody, please?
+- [23:55.580] I was thinking about seriously calling it the Gulf of Trump,
+- [23:58.750] but I -- -- I really was. I really was.
+- [24:04.880] But I was told by some very wise people, please, don't do it.
+- [24:09.960] That's one I don't think would have worked.
+- [24:11.560] What do you think?
+- [24:12.760] I don't -- that wouldn't have worked too well.
+- [24:14.970] But, you know, it's such an honor to --
+- [24:17.760] you look at that incredible, powerful, beautiful,
+- [24:20.890] really rich area of water.
+- [24:23.270] This is probably very little like it anywhere in the world.
+- [24:25.960] When you look at all the rigs out there,
+- [24:27.520] all the wealth that's underneath that water,
+- [24:29.300] and now it's the Gulf of America.
+- [24:31.410] And the President of Mexico called me.
+- [24:33.710] He's not too fond of me anymore.
+- [24:35.380] But when she heard about it, it was heard --
+- [24:38.150] it was put in some paper.
+- [24:39.580] Somebody leaked it someplace, always.
+- [24:41.470] You always have leaks when you're in my world.
+- [24:43.520] Leaks are a part of life.
+- [24:45.050] And it was leaked that I was going to change
+- [24:46.640] the name of the Gulf of Mexico to the Gulf of America.
+- [24:50.540] And she's a beautiful woman, a very nice --
+- [24:52.950] you know, I never like to talk about beauty
+- [24:54.390] because it's usually the end of a political career.
+- [24:56.410] If you say somebody is a beautiful woman,
+- [24:58.850] they say, what a terrible, terrible thing.
+- [25:01.360] Everybody hates it except the woman that you're talking about.
+- [25:04.660] They love it.
+- [25:05.870] So I won't say she's a beautiful woman, but she's a fine woman.
+- [25:10.970] And she is.
+- [25:12.520] And she's got this incredible, beautiful voice, elegant voice.
+- [25:16.170] She was a ballet dancer. She's got this beautiful voice.
+- [25:19.050] And she goes, "President, President, no.
+- [25:22.110] No, no, President. Tell me. Tell me. You're only kidding.
+- [25:25.790] You're not going to change the name of the Gulf of Mexico."
+- [25:28.890] "Yes, I am. I'm sorry." "No, no, no, please."
+- [25:33.360] Anyway, so they don't love me too much in Mexico right now.
+- [25:37.630] That's why guys like me are in a lot of danger.
+- [25:39.730] You know, consequential people get in a lot of danger.
+- [25:43.260] You know what I'm talking about.
+- [25:45.630] Saturday night, it was good for one thing.
+- [25:48.580] People are loving my ballroom now.
+- [25:50.080] That's the only thing. They love my ballroom.
+- [25:55.500] They love my ballroom.
+- [25:58.540] That's a good -- it's going to be the best in the world,
+- [26:00.870] although I like the one at Mar-a-Lago
+- [26:02.460] very much, too, Mayor.
+- [26:05.100] And we have County Commissioner Maria Marino.
+- [26:07.880] Thank you. Commissioner, thank you.
+- [26:11.080] Good job. And former Congressman Dan Mica.
+- [26:16.350] Where is Dan Mica? Thank you, Dan. Good job.
+- [26:21.210] An architect who's really talented.
+- [26:22.760] He's done a lot of work for them.
+- [26:24.010] He's got a flair -- a beautiful Hispanic flair, in particular.
+- [26:28.620] And he comes from, originally, a place called Cuba,
+- [26:31.660] which we will be taking over almost immediately.
+- [26:37.370] No, Cuba's -- Cuba's got problems.
+- [26:41.840] We'll finish one first. I like to finish a job.
+- [26:45.440] On the way back from -- what we'll do --
+- [26:48.100] on the way back from Iran, we'll have one of our big --
+- [26:52.020] maybe the USS Abraham Lincoln aircraft carrier,
+- [26:55.460] the biggest in the world. We'll have that come in.
+- [26:58.170] Stop about 100 yards offshore, and they'll say,
+- [27:01.540] "Thank you very much. We give up."
+- [27:06.640] But this man really is great. Rick Gonzalez.
+- [27:09.180] He's a great architect. Where is he?
+- [27:14.660] He's doing a little couple of projects for us now.
+- [27:16.900] He's doing some beautiful little projects
+- [27:19.500] that we have going with my son, Eric, who's fantastic.
+- [27:23.180] He's done a great job.
+- [27:24.610] And former Ambassador Robin Bernstein is here.
+- [27:26.910] She went out and learned Spanish.
+- [27:29.080] Right? Dominican Republic.
+- [27:31.370] She went out and learned the language,
+- [27:32.800] and she learned it well. Congratulations.
+- [27:34.330] Now, a lot of people aren't smart enough to do that, Robin.
+- [27:37.140] Most people don't bother doing it.
+- [27:38.530] I wouldn't do it, to be honest with you.
+- [27:41.760] But Palm Beach County is a very special place,
+- [27:44.260] and Palm Beach is a very special place.
+- [27:46.190] And it should be no surprise that,
+- [27:48.240] across my first and second terms,
+- [27:49.990] residents of this community have served our country
+- [27:53.010] with exceptional devotion and skill.
+- [27:55.690] I oftentimes -- I mean, I'll meet people --
+- [27:57.310] I didn't know them, but I'll meet people at the club,
+- [27:59.240] or I'll meet people in Palm Beach or West Palm Beach.
+- [28:01.430] I love West Palm Beach.
+- [28:02.690] It's -- one of the really great stories is West Palm Beach.
+- [28:06.690] Palm Beach has been incredible.
+- [28:08.770] It's never been run better, and we appreciate it.
+- [28:11.300] West Palm Beach is really hot.
+- [28:12.940] It's coming along so fast and so good.
+- [28:15.240] It's all over -- you know, one of the hottest.
+- [28:17.360] And I'm so honored with what's happened with Joe and with Meg.
+- [28:22.340] Where's Meg? Are you -- stand up, please.
+- [28:24.610] Meg is -- she's fantastic. But I do want to thank you,
+- [28:30.990] and I want to thank everybody that voted.
+- [28:33.320] And we had such -- we had a bipartisan vote,
+- [28:35.080] if you can believe it.
+- [28:36.290] I'm not used to that, you know, when you have Democrats voting.
+- [28:39.180] But with a name change on the Southern Boulevard
+- [28:42.180] and the airport.
+- [28:43.540] And I can only tell you, we will work to deserve that name.
+- [28:47.300] And we love you guys, and we're working with you in Washington
+- [28:50.640] and a lot of different things.
+- [28:51.910] And I think it's been a great partnership.
+- [28:55.620] Florida generally, but this area,
+- [28:57.170] I feel so strongly about it.
+- [28:58.400] We have to help and make it even better.
+- [29:01.400] All over the world, they love it and they talk about it,
+- [29:03.640] and we have to make it and keep it first class and the best.
+- [29:07.150] So -- but I want to thank you very much.
+- [29:08.720] I know how hard you worked on that.
+- [29:10.030] She's a really great person,
+- [29:12.210] and I don't know what her future is,
+- [29:13.640] but I think it's really good politically.
+- [29:16.090] I think she's fantastic. And she loves animals, right?
+- [29:18.920] She loves her and her husband.
+- [29:20.990] They love animals, and that's good.
+- [29:22.930] That usually is very good for votes.
+- [29:24.570] I was never as much -- you know, they all wanted me
+- [29:27.090] to buy a dog when I went to the White House.
+- [29:29.730] They said, "Sir, you'll be the first President in 68 years
+- [29:33.280] or something that doesn't have a dog."
+- [29:34.890] I said, "It's not going to work for me."
+- [29:38.910] No, they like pictures of, like, Biden walking his dog, all that.
+- [29:41.440] But his dog was a vicious dog,
+- [29:42.750] kept biting our Secret Service people.
+- [29:45.660] No, we had 28 bite problems. Twenty-eight.
+- [29:48.270] This was a violent dog. That's not a dog I'd want.
+- [29:54.930] But for 60 years, I guess, even longer,
+- [29:58.170] every President's had a dog because they do it for votes.
+- [30:01.340] Some of them do it because they love the dog.
+- [30:03.100] Probably most of them do it for votes.
+- [30:04.770] And I thought it would look quite fake, like the fake news.
+- [30:09.420] It was quite fake. Can you imagine?
+- [30:11.380] Donald Trump has purchased a lovely, lovely little poodle.
+- [30:17.600] And he walks him religiously every day
+- [30:19.500] on the White House grounds
+- [30:23.880] as he's inspecting the ballroom that's going up.
+- [30:27.100] They walk deep down into a foundation
+- [30:29.320] that's going down to China. That's a lot.
+- [30:31.530] That's a deep -- there's a lot of stuff
+- [30:33.160] going on in that foundation, let me tell you.
+- [30:35.020] A friend of mine said,
+- [30:36.220] "Boy, that's the deepest foundation
+- [30:37.620] I've ever seen for a ballroom."
+- [30:38.870] I said, "Yeah, a lot of things happening there."
+- [30:41.600] But we have several friends of mine
+- [30:43.890] that were great with us -- with us, past and present.
+- [30:47.560] We have Secretary of Commerce, former, Wilbur Ross, is here.
+- [30:51.890] Thank you, Wilbur. Thank you, Wilbur.
+- [30:56.240] We have former Ambassador Woody Johnson,
+- [30:58.380] who's a great guy and a great -- you were a great ambassador.
+- [31:01.840] We appreciate it, Woody. Great guy.
+- [31:05.130] And the owner of the Jets and current director
+- [31:08.320] of the Federal Housing Finance Agency.
+- [31:10.570] A man who has taken the Fannie Mae and Freddie Mac --
+- [31:15.850] but Fannie Mae, it's over a trillion dollars in value.
+- [31:19.050] When I gave it to him, it was not doing well.
+- [31:21.780] And he's turned it around. And it's worth -- over it.
+- [31:24.450] We're thinking about taking it public,
+- [31:26.610] taking a little chunk out of it.
+- [31:27.900] I don't know what the hell we're going to do.
+- [31:29.300] It's peanuts compared to the values of --
+- [31:31.560] you know, you buy 15 missiles.
+- [31:32.920] You take -- you take it public. It buys 15 missiles.
+- [31:36.000] But, Bill Pulte, where are you, Bill?
+- [31:38.510] Bill.
+- [31:41.350] No, it's true.
+- [31:42.670] My first term, I was offered $100 million for that,
+- [31:47.160] and I turned it down
+- [31:48.480] because the guys that were offering me were very sharp.
+- [31:51.630] Two of them are sitting in the room, by the way.
+- [31:53.460] They're not happy.
+- [31:54.700] But I turned it down because I didn't want to --
+- [31:57.880] did you ever hear of schmuck insurance? Right?
+- [32:00.470] I didn't want to be a schmuck.
+- [32:02.450] I didn't want to have them flip it for $500 million
+- [32:07.670] in two weeks, which is always a possibility.
+- [32:09.730] It's always a little scary,
+- [32:11.020] especially in the world of politics.
+- [32:13.890] I was with a bank -- a very good bank,
+- [32:17.060] a very hot bank -- who was going to the head
+- [32:18.800] of one of the biggest banks in the world,
+- [32:20.450] and he was also in charge of real estate for the bank.
+- [32:24.370] And they had a corner building on 57th
+- [32:27.320] and Fifth Avenue in New York, and he wanted to sell it.
+- [32:31.030] And he made a deal -- a quick deal.
+- [32:32.460] Very -- nobody even knew about it.
+- [32:33.920] It was quick. And he sold it for $25 million.
+- [32:37.110] And the person that bought it flipped it
+- [32:40.000] the following week for $97 million.
+- [32:44.590] And that was the end of his job.
+- [32:46.390] That was the end of his rise to the chairman of the bank.
+- [32:50.170] So I don't want to be in that category.
+- [32:51.830] But we kept it. I put Bill Pulte in charge,
+- [32:54.530] and I think it's worth over a trillion dollars now, right?
+- [32:57.160] So we kept it, and we didn't sell it.
+- [32:58.740] And that's good. That's good.
+- [33:03.010] But not only have we lovingly restored the --
+- [33:06.290] they call it the crown jewel of Palm Beach, Mar-a-Lago --
+- [33:09.910] but we turned it into what everybody acknowledges.
+- [33:12.290] It's the hottest club anywhere in the world.
+- [33:14.100] I mean, I hate to say it about my club,
+- [33:16.480] but it is truly -- everybody that's been there --
+- [33:18.460] it's the hottest club anywhere in the world.
+- [33:20.730] And very importantly, it creates hundreds of jobs
+- [33:24.240] and brings thousands of travelers here each year.
+- [33:26.930] And then we have all the weddings
+- [33:28.740] and all the conventions and the events
+- [33:32.130] that we have there are spectacular.
+- [33:33.760] And they say it's raised more money as a ballroom.
+- [33:38.000] It's raised more money than any other ballroom
+- [33:40.210] anywhere in the world for charity.
+- [33:41.560] We raise tremendous money for charity.
+- [33:44.040] It's -- every other night, you'll see it.
+- [33:48.990] They raise it for incredible things.
+- [33:50.720] And just as Marjorie Merriweather Post, who --
+- [33:54.490] with her husband, E.F. Hutton -- that was a power couple.
+- [33:57.330] E.F. Hutton, remember? "E.F. Hutton talks.
+- [34:00.520] Everyone listens," right? He was the number-one guy.
+- [34:03.350] He's like some of the guys in this room
+- [34:05.330] was a long time ago.
+- [34:07.890] This was in the early 1920s, roaring 20s.
+- [34:10.620] But Marjorie Merriweather Post was married to E.F. Hutton.
+- [34:14.060] She was the richest woman in the world.
+- [34:16.460] And they wanted to build something incredible,
+- [34:18.340] and they envisioned everything.
+- [34:20.500] And they bought the lot in South Florida.
+- [34:22.840] She bought it because that's where the Great Reef --
+- [34:27.260] if you look at, you know, the maps,
+- [34:29.840] you have a great stone.
+- [34:32.660] It's really -- it's a source of unbelievably powerful stone.
+- [34:37.040] It's a stone jetty, and it ends right there.
+- [34:38.570] She bought it there
+- [34:39.780] because there wouldn't be any settlement.
+- [34:41.680] When you built the house on that settlement,
+- [34:43.820] it ends right in the backyard, actually.
+- [34:46.370] And it's really pretty amazing.
+- [34:49.880] She envisioned something really great.
+- [34:51.560] And she built Mar-a-Lago along with E.F. Hutton.
+- [34:55.220] And at the time -- and then you had the Depression,
+- [34:57.920] but she wasn't affected by the Depression.
+- [34:59.950] And she actually built other sections onto it
+- [35:02.760] because she wanted to give people jobs.
+- [35:04.270] She did a fantastic job.
+- [35:06.320] And she always wanted that to be the Southern White House.
+- [35:08.950] And, in fact, when she died,
+- [35:10.700] she left it to the White House Historical Society.
+- [35:15.390] And the late, great Jimmy Carter decided that Mar-a-Lago
+- [35:18.890] was too expensive for the United States.
+- [35:20.410] So, fortunately for me,
+- [35:21.640] he gave it back to the Historical Society,
+- [35:24.660] and I bought it.
+- [35:25.920] And we spent a lot of money and made it great.
+- [35:28.170] I lived there for a while.
+- [35:29.400] Then I said, "This is a very big house to live in."
+- [35:31.940] And, you know, we had kids.
+- [35:33.710] And you have the kids running around the house.
+- [35:35.680] You can't find your kids ever. Where are they? Where are they?
+- [35:39.160] Which floor are they on? But it's a special place.
+- [35:42.310] And it's become a great, great club.
+- [35:44.190] And we've had foreign --
+- [35:45.940] all the foreign leaders, most of them.
+- [35:47.600] We had President Xi of China here a few years ago.
+- [35:50.210] And I'm going to be there in two weeks, by the way.
+- [35:52.550] That'll be interesting. But it'll be something.
+- [35:56.180] Because, you know, he's amazing. He's an amazing guy.
+- [35:59.420] And the trip is going to be
+- [36:01.490] a very important trip that I'm making.
+- [36:02.940] And we had the late Prime Minister Abe of Japan.
+- [36:06.140] He was a fantastic man. He was a great friend of mine.
+- [36:08.350] He was assassinated in Japan
+- [36:10.660] with probably the only gun in Japan.
+- [36:12.750] They don't have guns in Japan at all.
+- [36:15.430] This crazy person made a gun and assassinated our friend,
+- [36:21.000] my friend. He was great.
+- [36:22.530] And we've had a lot of the other top leaders of the world
+- [36:26.110] at Mar-a-Lago. So good for Palm Beach.
+- [36:28.050] You know, it's interesting. They have a lot of --
+- [36:30.080] a lot of Secret Service, as you can imagine.
+- [36:32.150] Probably gets even more. But we have a lot.
+- [36:35.030] But -- and I have friends that are very rich, very powerful.
+- [36:39.430] And they don't complain. They sort of love it.
+- [36:41.490] Because the President is in your community.
+- [36:43.570] Not me. The President is in --
+- [36:45.190] the President of the United States is in your community.
+- [36:48.660] And they're so proud of it.
+- [36:50.030] I mean, people that are very -- people that are in this room
+- [36:53.020] that are very, very substantial --
+- [36:56.000] as big as it gets on Wall Street.
+- [36:58.580] And they have houses that are beautiful,
+- [37:00.290] and they have to go around.
+- [37:01.640] They have to go to one bridge or another bridge.
+- [37:03.510] They get thrown around like piñatas
+- [37:05.800] by the Secret Service. Get the hell out of here.
+- [37:08.590] These are people that never get spoken to.
+- [37:10.240] You know, the Secret Service --
+- [37:11.460] these guys, they don't have a lot of expression.
+- [37:14.720] They do a very good job.
+- [37:17.970] And the head of one of the biggest banks,
+- [37:20.560] the biggest bank, comes in, Sir, move out.
+- [37:24.280] What? Move out, right now. Come on, let's go.
+- [37:28.020] He said, "Nobody's ever spoken to me."
+- [37:29.780] And yet, they don't mind. It's crazy. They don't mind.
+- [37:32.960] They're honored to have the President,
+- [37:35.550] you know, whether it's me or anybody.
+- [37:37.220] They're honored to have the President in their community.
+- [37:39.360] So it's -- it's great.
+- [37:41.010] And it also gives you a lot of additional security.
+- [37:44.560] You get a lot of freak -- you get a lot of freak security.
+- [37:47.890] Mayor, I have to tell you,
+- [37:49.120] you probably have the safest community
+- [37:50.700] in the history of the world, if you want to know the truth.
+- [37:53.430] Nobody is coming into Palm Beach to do any robberies, okay?
+- [37:57.390] In addition to a really great police group that you have,
+- [37:59.820] they work very closely, and the firemen and policemen.
+- [38:02.410] And we have the ball over --
+- [38:04.110] the policemen and firemen's ball.
+- [38:05.920] And I think it's become the hottest ball
+- [38:08.840] over with John Scarpa and all the people --
+- [38:11.370] Tim, all of the people that do it.
+- [38:13.240] I think it's the hottest ball.
+- [38:14.620] But it's an honor to work with the police.
+- [38:16.360] I also based my campaign here on election night.
+- [38:20.210] In 2024, we had a great victory party
+- [38:23.520] just across the street in the convention center.
+- [38:26.020] And that was quite an evening.
+- [38:27.950] We were waiting for the decision,
+- [38:30.110] and it came early. It was around 9:02.
+- [38:33.080] And they said, "Donald Trump will be the next President
+- [38:37.310] of the United States of America."
+- [38:38.790] It was very cool, actually, I thought.
+- [38:40.550] And it was right across the street.
+- [38:41.980] It was right across the street.
+- [38:43.650] And we had some crowd.
+- [38:46.170] Joe, you could use a little bit larger convention center.
+- [38:48.510] Whatever you can do.
+- [38:49.720] Get that thing -- get that thing -- I know you are.
+- [38:52.620] If you're working on it, it gets done.
+- [38:54.950] And so it was from Mar-a-Lago. We were there.
+- [38:57.450] And then we came over here, and we had a tremendous crowd.
+- [39:01.090] And we celebrated a tremendous thing.
+- [39:03.760] And our country now is just amazing.
+- [39:07.200] We were laughed at and mocked. For four years, we were mocked.
+- [39:11.550] We were laughed at as being a stupid country.
+- [39:15.890] And now we're thought of with great respect --
+- [39:20.470] with great respect,
+- [39:21.750] like we haven't been thought of for many, many decades.
+- [39:24.790] I want to thank the entire Palm Beach community
+- [39:27.250] for the extraordinary support
+- [39:29.090] that you've shown me and my family over the years.
+- [39:31.450] And I especially want to express my profound gratitude
+- [39:35.640] to the recent renamings.
+- [39:37.960] I want to just tell you that we have a lot of things in store.
+- [39:43.170] I know that a lot of tremendous elements are going to be
+- [39:47.740] added to the airport, making it bigger and better.
+- [39:50.680] And it's really going to be --
+- [39:52.390] I don't think there'll be anything
+- [39:53.870] as good as your airport
+- [39:55.200] will be anywhere in the country, anywhere in the world.
+- [40:02.250] So, that's the way I feel, and that's very important.
+- [40:05.140] In Washington, they say,
+- [40:06.410] "Sir, which airport would you like most to fix up?"
+- [40:08.900] I said, "How about Palm Beach?" You know?
+- [40:12.590] So, you'll be all very happy.
+- [40:14.250] And, you know, right now I own Doral,
+- [40:16.090] and right now we have a tournament. I'm so busy.
+- [40:18.920] And we have the big Cadillac Championship going on,
+- [40:21.510] all the great players, the PGA Tour.
+- [40:23.760] And they're there. And yesterday, somebody came up,
+- [40:26.680] said, "Sir, the tournament is great."
+- [40:29.470] I said, "What tournament are you talking about?"
+- [40:31.110] I'm so busy with the Iranians calling,
+- [40:34.130] trying to make a good deal.
+- [40:35.470] We're not going to let that happen.
+- [40:37.190] But they've got to make a bad deal.
+- [40:39.820] But if they make a deal at all, because frankly,
+- [40:41.860] maybe we're better off not making a deal at all.
+- [40:43.670] Do you want to know the truth?
+- [40:44.900] Because we can't let this thing go on,
+- [40:47.400] you know, going on too long.
+- [40:49.830] But under the leadership
+- [40:51.090] of Secretary of State Marco Rubio,
+- [40:53.700] first thing from Florida. What?
+- [41:00.100] We're working hard to bring the 2035 World Expo to Miami,
+- [41:04.950] to Florida, and we'll support the jobs.
+- [41:08.240] It'll be bringing hundreds of millions of dollars.
+- [41:11.330] And it looks like we've got a real good shot.
+- [41:12.850] The Olympics, the World Cup, and a Stolen Second Term
+- [41:14.430] You know, I brought the Olympics here in my first term.
+- [41:17.330] I was the one -- I got the Olympics
+- [41:18.860] and I got the World Cup, both of them.
+- [41:21.280] And then the election was rigged.
+- [41:23.150] You see that now? How about the Southern Poverty Law --
+- [41:26.620] whatever the hell they call it --
+- [41:28.140] where they supported the Ku Klux Klan
+- [41:30.680] and all sorts of other things,
+- [41:32.560] only to fight the Ku Klux Klan politically?
+- [41:35.860] We are fighting the Ku Klux Klan.
+- [41:37.590] They're the ones that are supporting it,
+- [41:39.320] giving it hundreds of --
+- [41:40.520] and many others, some even worse if that's possible.
+- [41:44.700] And now we found out --
+- [41:46.150] oh, we got a whole lot of stuff coming.
+- [41:49.190] But I got the Olympics and I got the World Cup.
+- [41:53.240] And they're coming in now.
+- [41:54.520] And, you know, it's interesting how things work out
+- [41:57.550] because I missed my second term the traditional way.
+- [42:00.500] Right. It was very sad.
+- [42:01.720] I had to make a decision what to do.
+- [42:05.350] And I said, you know, when I got the Olympics,
+- [42:07.310] I said, "Boy, it's really sad because I got it.
+- [42:11.390] Nobody else. I got it."
+- [42:12.730] And I was dealing with those guys politically.
+- [42:15.340] And they said, "Sir, we're going to choose
+- [42:17.080] the United States of America." I said, "Wow, that's great."
+- [42:19.810] It was the Olympics and the World Cup.
+- [42:21.760] Gianni Infantino, who's the head of it, he's a friend of mine.
+- [42:25.640] I said, "Gianni, you got to give us the World Cup."
+- [42:27.950] And he gave it to us.
+- [42:29.240] The problem was, it wasn't in the next four years.
+- [42:31.610] It was in six years and seven years.
+- [42:33.730] So I wouldn't be president.
+- [42:35.670] I said, "You know, I got the Olympics.
+- [42:38.100] I got the World Cup and I won't be president."
+- [42:39.860] And then, all of a sudden,
+- [42:41.110] I realized I am going to be president
+- [42:43.070] during the Olympics and the World Cup.
+- [42:47.660] That's amazing.
+- [42:49.230] And, you know, it's very interesting, though.
+- [42:51.930] I tried taking the third because we also have the 250th year.
+- [42:55.580] This is a great term when you think of it.
+- [42:57.460] With all the things we've done, and on top of that,
+- [43:00.550] we did the great big, beautiful bill
+- [43:02.320] with no tax on tips, no tax on Social Security,
+- [43:05.190] no tax on overtime, all sorts of things.
+- [43:08.560] It turned out to be very popular --
+- [43:10.260] people are now understanding it.
+- [43:11.750] But when I got these, I said, 250 years,
+- [43:17.120] OK, I got the Olympics, I got the World Cup.
+- [43:19.540] Maybe I can also claim the 250 year thing that I got that, too.
+- [43:24.000] So I tried. I said, I also got 250 years.
+- [43:28.320] And they said, so you didn't get 200 with 250.
+- [43:30.930] OK, well, I gave up. So I gave up on that one.
+- [43:33.090] But we're having an unbelievable celebration.
+- [43:36.450] And, in fact, on June 14th, not so far away,
+- [43:39.610] the UFC is going to have -- I think it's most exciting.
+- [43:43.680] I've been involved in a lot of events.
+- [43:45.430] I've given a lot of tickets.
+- [43:46.730] I've sold a lot of tickets to things.
+- [43:48.340] I don't think I've ever had anything.
+- [43:49.830] This is going to be wild.
+- [43:51.040] We have a 5,000 seat arena being built
+- [43:54.320] right opposite the front door of the White House for the 250th.
+- [43:57.580] And that's going to be June 14th, which is my birthday,
+- [44:00.750] which is absolutely, you know, flag day, flag day.
+- [44:06.300] But it's -- and that's a coincidence.
+- [44:08.000] It is not. I didn't do that. It just worked out that way.
+- [44:11.350] It is actually true. I swear I did not do it.
+- [44:14.060] It worked out that way. But it's June 14th.
+- [44:16.030] At least it's easier to remember.
+- [44:18.040] And they're building -- it's going to be a Sunday night
+- [44:20.630] and it's going to be on CBS. And then they're having --
+- [44:23.570] that'll be a 5,000 seat like arena.
+- [44:25.540] That's going to be sort of a one that they put up --
+- [44:28.430] UFC Dana White, the great Dana White.
+- [44:30.120] He's fantastic.
+- [44:31.480] And then they're having anywhere from 75
+- [44:34.370] to 100,000 people in the park.
+- [44:36.780] The right across from the White House
+- [44:39.230] is a beautiful circular park -- ellipse.
+- [44:43.410] And that's going to be having thousands
+- [44:47.390] and thousands of people.
+- [44:49.040] And they have eight massive screens being built.
+- [44:50.780] And people are going to be able --
+- [44:52.020] there's no charge to anybody. Everything's free.
+- [44:54.600] And it's going to be something really fantastic.
+- [44:57.040] The biggest problem I have is the 5,000 seat.
+- [44:58.990] I have everybody that wants tickets.
+- [45:01.360] But it's going to -- it's one of the hottest things.
+- [45:03.060] And then we have the IndyCar.
+- [45:06.050] As you know, they're doing a race, Roger Penske.
+- [45:09.510] And he said, you know, I've come to Washington 142
+- [45:12.970] times over the years trying to get
+- [45:14.930] an IndyCar race in Washington around the Capitol.
+- [45:18.840] He said, and I've never been able to do it.
+- [45:20.740] And then I came. I gave it one last chance.
+- [45:23.480] And I saw my friend Donald Trump, President.
+- [45:26.200] And in a half an hour, I had the whole deal done.
+- [45:29.370] We made a deal.
+- [45:31.020] They're going to be a little bit like the airport.
+- [45:35.180] And literally, we have -- it's going to be great.
+- [45:38.180] A half an hour. He got the deal. Then he's so happy.
+- [45:39.930] Roger's incredible.
+- [45:41.150] You know, he's won 20 Indianapolis 500s.
+- [45:44.060] I gave him the Presidential Medal of Freedom.
+- [45:46.300] I said, you know, it's amazing. These countries, Germany, Japan,
+- [45:50.470] they spend billions of dollars on cars
+- [45:52.980] trying to win the Indianapolis 500.
+- [45:55.880] And you know, they rarely do it.
+- [45:57.870] I don't know if they've ever done it.
+- [45:59.440] But they rarely do it. They spend all this money.
+- [46:02.270] Roger Penske's won it 20 times.
+- [46:05.550] So needless to say, he's quite good in the automotive division.
+- [46:10.030] I mean, the guy is amazing.
+- [46:11.270] He's won 20 Indianapolis 500s, not even believable.
+- [46:14.960] So I gave him the award when he won his 18th.
+- [46:17.160] I said, "Roger, I'm going to give you
+- [46:19.020] the Presidential Medal of Freedom.
+- [46:20.490] What you've done is amazing."
+- [46:21.730] And since then, he's won two more.
+- [46:23.020] I don't know what it is. It's crazy.
+- [46:25.000] But he's a fantastic guy. So we're going to have the Indy,
+- [46:28.980] which are the like the racing cars,
+- [46:31.040] the Formula One type car.
+- [46:32.940] And that's going to be something that everybody's looking for.
+- [46:35.380] We're providing $42 million of improvements
+- [46:39.090] in Florida railway safety. You know that.
+- [46:41.490] And $210 million to the state for rural health care.
+- [46:45.530] And we delivered more than $2 billion in federal funding
+- [46:48.540] for the Army Corps of Engineers
+- [46:50.100] to dramatically speed up the restoration of the Florida
+- [46:53.520] Everglades and Lake Okeechobee, which is now being done.
+- [46:59.110] Right? We're doing that. A lot of it's been done.
+- [47:02.220] I got it done in my first term, but we're adding to it
+- [47:05.370] Okeechobee and, you know, all the things that benefit you.
+- [47:08.010] And today, we delivered a huge win
+- [47:10.070] for our great fishermen and anglers in the state.
+- [47:13.320] We have any fishers?
+- [47:14.810] I don't think this is a fishing room, you know.
+- [47:17.360] I gave this statement a little while ago in the villages,
+- [47:21.150] and the place went crazy.
+- [47:22.450] I don't think this -- any fishermen here?
+- [47:25.690] Come on. It's not bad.
+- [47:27.120] Well, then you'll like this. That's better than I thought.
+- [47:29.700] But all state permits for the 2026
+- [47:32.310] Red Snapper recreational season,
+- [47:34.720] as you know, was brutal with the federal government.
+- [47:36.530] You couldn't do anything.
+- [47:37.740] They let you catch a half a fish.
+- [47:39.240] If you caught two fish, they want to put you in jail,
+- [47:42.060] give you the electric chair.
+- [47:44.330] If you're lucky, you'll go to jail
+- [47:45.780] for the rest of your life instead of the chair.
+- [47:48.250] It was brutal.
+- [47:49.480] And so, for years,
+- [47:50.910] our great fishermen have been punished in Florida
+- [47:54.230] and some other states with very short federal fishing seasons --
+- [47:58.550] like, how about two hours? Go fishing --
+- [48:01.300] you go fishing for two hours, and then you have to pull it in
+- [48:03.930] and get the hell out of town, or they'll arrest you.
+- [48:07.340] But they gave you record -- record short season,
+- [48:11.390] and I'm giving you unlimited seasons --
+- [48:13.210] and federal seasons, despite record fish populations.
+- [48:16.800] It's hard not to have a record fish population
+- [48:19.550] when nobody has been allowed to fish, essentially.
+- [48:22.150] And the states are begging to get these permits,
+- [48:25.950] and what we're doing is we're doing it.
+- [48:27.540] And the very incompetent Biden administration
+- [48:30.550] tried to shut down the oceans to our fishermen.
+- [48:33.670] And that -- you know, look, the ocean is a big place.
+- [48:36.260] It's a big place.
+- [48:37.470] But we love and respect our fishermen
+- [48:39.700] and all of those people that love that sport and love it.
+- [48:43.900] So I'm very happy to announce that we are giving --
+- [48:46.930] we just spoke with NOAA.
+- [48:48.620] That's your big group that does all of the work on regulation.
+- [48:54.860] And we're delivering to you all of the permits that you need
+- [48:58.030] for long-term fishing and lots of fishing.
+- [49:00.220] And enjoy the red snapper, or whatever the hell you catch,
+- [49:04.200] because you're allowed to catch it now
+- [49:05.650] without going to jail for the rest of your life, okay?
+- [49:11.200] And with the support of many people in this room --
+- [49:13.400] a lot of them -- we had the most successful first year
+- [49:16.360] of any administration in history, they say.
+- [49:18.710] Even the radical-left Democrats are saying that.
+- [49:21.650] We took the most dangerous, unsafe, violent,
+- [49:23.860] and open border in the world --
+- [49:26.310] anywhere in the world, there's no border like this --
+- [49:28.660] and created the most secure border in U.S. history,
+- [49:31.240] with zero illegal aliens entering our country
+- [49:36.070] in the last 11 months. Think of it.
+- [49:38.170] We went from 25 million people coming in to zero.
+- [49:42.080] And the people that make up that list are the Democrats.
+- [49:44.610] Nobody even tries to come in
+- [49:45.820] because the border is so tight right now
+- [49:48.980] that you just don't even try. It's amazing.
+- [49:53.930] And, you know, we had an open border
+- [49:55.630] that was allowing a terrible, terrible situation.
+- [49:59.370] We were allowing -- going to jail, people in jail,
+- [50:02.640] people in mental institutions, drug dealers, murderers.
+- [50:06.580] Eleven thousand, eight hundred and eighty-eight murderers
+- [50:08.820] coming into our country.
+- [50:10.030] Many of those people murdered more than one person.
+- [50:13.210] Many murdered seven people,
+- [50:15.630] and they're releasing them into our country.
+- [50:17.570] It's terrible.
+- [50:18.820] The murder rate in the United States
+- [50:20.800] is now the lowest it's been in 125 years.
+- [50:22.910] Can you believe that?
+- [50:24.260] That's sort of terrible to say, in a way,
+- [50:27.900] because it's -- yeah, who wants to talk about murder?
+- [50:30.490] But we had a murder epidemic, and it's now the lowest
+- [50:33.620] since before my father was born. A hundred and twenty-five years.
+- [50:36.990] Nineteen hundred. And that's an amazing thing.
+- [50:40.200] And the crime rate in the capital, Washington,
+- [50:42.420] D.C., which was a disaster. When I came in,
+- [50:45.500] it was one of the more dangerous cities in the country.
+- [50:48.400] It's now the lowest -- one of the lowest.
+- [50:51.320] One of the -- it's considered now one of the safest cities
+- [50:53.760] in the country, which it should be.
+- [50:55.530] We moved in the National Guard.
+- [50:57.930] We took out over 5,000 hardened career criminals.
+- [51:01.980] Many of them came in during the open border of Joe Biden.
+- [51:05.130] And they made it just a horrible place.
+- [51:06.920] It was never that safe, believe it or not.
+- [51:08.820] It was -- people were getting killed.
+- [51:10.760] But they were losing three people a week, on average.
+- [51:12.980] Murdered three people. A hundred and fifty people a year.
+- [51:16.050] Kids would come in to see the Washington Monument
+- [51:18.480] or the Lincoln Memorial, and they'd go home in a casket.
+- [51:22.800] They'd call their parents and say,
+- [51:24.230] "I'm sorry, your son's been killed."
+- [51:26.590] And we moved some very strong people into the area.
+- [51:32.250] And in a period of a month, it was much better.
+- [51:36.300] Two months, it was better yet.
+- [51:38.530] And now it's considered a very safe city.
+- [51:40.680] Restaurants are -- which were closing all over town.
+- [51:43.360] They were even dangerous.
+- [51:44.900] If you got there, they'd rob the interior of the restaurant.
+- [51:47.250] They'd go and raise your hands, give you money. It was terrible.
+- [51:50.600] And it's a very interesting statistic, Mayor.
+- [51:54.580] So, 90 percent of the crime is committed
+- [51:59.710] by 2 percent of the people.
+- [52:01.810] And that's really good, you know,
+- [52:03.260] because that means you can solve the problem.
+- [52:05.560] If it was 25 percent of the people,
+- [52:07.320] that's a tough thing.
+- [52:08.560] Two percent of the people commit 92 percent, actually,
+- [52:12.250] of the crime. It's incredible. It's great because you get --
+- [52:15.740] you get rid of them and you don't have.
+- [52:17.210] And we took out over 5,000 hardened career criminals,
+- [52:21.080] numerous murderers, and they're gone.
+- [52:23.210] They're back in their countries or they're in jails.
+- [52:26.080] We've secured the largest reduction in drug prices
+- [52:28.980] in American history.
+- [52:30.600] Under my Most Favored Nation agreements,
+- [52:32.450] we're delivering your record-setting discounts
+- [52:35.120] with price differences of 400, 500, and even 600 percent lower.
+- [52:42.550] And what that is, is Most Favored Nation --
+- [52:45.470] we were the highest-priced drug nation anywhere --
+- [52:48.020] prescription drugs anywhere in the world --
+- [52:50.180] by far the highest.
+- [52:51.660] A drug that would sell for, like, the fat drug.
+- [52:54.630] You know, my friend became a very famous --
+- [52:56.950] he's begging me not to announce his name.
+- [52:59.630] But I use him as an example. He's very smart, very fat.
+- [53:05.180] And he was in London and he bought --
+- [53:08.440] he called it the fat -- I said, "I get one of those fat shots."
+- [53:12.550] And I said, "It's not working." He's become very famous
+- [53:18.260] because he's really the one that got me into this.
+- [53:20.230] It was like crazy.
+- [53:21.550] He said, "In London, I buy it for $87.
+- [53:24.090] In New York, it's $1,300."
+- [53:25.910] The same exact -- and he's very smart, very rich, actually.
+- [53:29.160] Highly neurotic. He's a neurotic guy.
+- [53:32.750] Highly neurotic. Most neurotic people --
+- [53:35.520] they're either really wealthy or they fail badly.
+- [53:38.760] You know, it's -- you want controlled neurosis.
+- [53:41.900] His is not controlled, but he's smart.
+- [53:44.330] He went -- he checked out the company.
+- [53:47.360] He said it's the exact same drug from the exact same factory,
+- [53:51.020] made in the same plant.
+- [53:52.890] Everything was -- except the price.
+- [53:54.390] One was $87 in London and one was $1,300 in New York.
+- [53:59.240] He said, "What's going on?"
+- [54:00.560] And, actually, it had a little bit of an impact.
+- [54:03.260] And I went to the drug companies. I went all over.
+- [54:05.280] They've been looking at this for years.
+- [54:06.500] But there was no way you get the drug companies to do it.
+- [54:09.030] I got them to do it.
+- [54:10.260] I did a lot of bad things to them.
+- [54:12.820] But I got the -- I got them.
+- [54:14.840] But they didn't care because they said
+- [54:16.370] there's no way to get the countries to do it.
+- [54:18.600] You had to have the country. Because, in London,
+- [54:21.240] a pill that was selling for $10 would sell for $100 in the U.S.
+- [54:27.600] In
+- [54:28.830] Berlin, $5 compared to $87, $90, $95.
+- [54:35.850] A tremendous -- sometimes 10 times, maybe more than that.
+- [54:39.590] So they said, you'll never get the country, sir.
+- [54:41.900] But we're with you.
+- [54:43.220] They didn't know this was going to happen.
+- [54:45.000] I said, I'll get the countries 100 percent.
+- [54:46.890] So I called up -- you might have seen this.
+- [54:48.390] I mean, I've said it a couple of times.
+- [54:49.760] I called up the countries, and I got France.
+- [54:53.700] That's Emmanuel Macron. Beautiful accent.
+- [54:58.150] I said, "Emmanuel, you're going to have to lower
+- [55:01.030] your drug prices in the United States
+- [55:02.820] because you're making it impossible for us.
+- [55:05.230] I mean, your prices are low and our prices are high,
+- [55:07.650] and you're going to have to --"
+- [55:08.980] "No, no, no, Donald. I will not do that."
+- [55:12.230] You see, because the world is bigger
+- [55:13.770] than the United States,
+- [55:14.970] it's really not as bad for them as it sounds.
+- [55:16.950] If they double their price,
+- [55:18.200] we can lower our price to them because of the size.
+- [55:21.730] You know, it's a world situation.
+- [55:23.650] The whole world was ripping us off.
+- [55:25.890] We were paying 10 times more, five times more. Crazy.
+- [55:30.700] And so I said, "No, Emmanuel, you will do it 100 percent."
+- [55:33.980] "No, no, I will not do it."
+- [55:35.980] So if he had a pill that's all for $10
+- [55:38.170] and he had to sell it for $20,
+- [55:40.060] that's -- you know, that's a big increase, right?
+- [55:42.640] But I said, "It's not fair, Emmanuel,
+- [55:44.350] because we're not fair.
+- [55:47.090] You will do it, Emmanuel. You will do it."
+- [55:49.000] He said, "No, no, I won't."
+- [55:50.220] I said, "Here's what I'm going to do, Emmanuel.
+- [55:51.680] If you don't do it, I'm going to put a 200 percent tariff
+- [55:55.080] on your wines and champagnes
+- [55:57.160] that you sell into the United States,
+- [55:58.900] and it's effective on Monday morning."
+- [56:00.930] "Donald, like I said, I will do it. I'd be glad to."
+- [56:06.330] So I did that with all the countries,
+- [56:07.820] and every country agreed. Every -- I'll tell you,
+- [56:10.560] who can't believe it, the drug companies.
+- [56:12.210] They said, "What you did is impossible to do."
+- [56:14.290] But I do it.
+- [56:15.530] I do a lot of things that are impossible to do.
+- [56:18.050] Like becoming President three times.
+- [56:22.220] Like winning three races. Like winning three races.
+- [56:26.760] Anyway, so we have the lowest prices anywhere in the world.
+- [56:29.380] We went from the highest -- it's a really big thing.
+- [56:31.970] And, frankly, that should win us the midterm.
+- [56:34.450] But, you know, the press hates to cover it,
+- [56:36.780] but people now know. So you can get drug prices --
+- [56:40.560] we go from the highest-priced drugs
+- [56:42.020] in the world to the lowest. It's an amazing thing.
+- [56:44.190] And we have a -- to go buy it, it's TrumpRx.gov,
+- [56:48.610] and that's been named by Bobby Kennedy and Dr. Oz.
+- [56:51.440] They're fantastic. They're doing a great job.
+- [56:53.050] I did that. I had nothing to do with that one, Joe.
+- [56:55.500] I had nothing to do with that one.
+- [56:57.000] And I had not much to do with the airport.
+- [56:59.550] That was Meg and you and everybody else, I tell you.
+- [57:02.100] That was -- it's not nice when you call up and say,
+- [57:05.670] "Hey, would you name an airport after me?"
+- [57:07.370] You know, they approached me with the road first
+- [57:09.710] and the airport, and it's just a great honor.
+- [57:12.270] But the TrumpRx.gov is setting every record in the book.
+- [57:18.670] And they're buying things for a fraction of the price.
+- [57:20.520] Medicare Coverage for Weight-Loss Drugs
+- [57:21.880] and Insulin Price Cuts
+- [57:23.110] And today, I'm thrilled to announce
+- [57:24.400] that, starting on July 1st, we'll provide
+- [57:27.420] Medicare patients with coverage for weight-loss drugs like
+- [57:30.430] Ozempic, Zepbound, Wegovy.
+- [57:32.930] It will be available for -- listen to this -- $50 a month.
+- [57:37.620] And we're cutting, as you know, and as you,
+- [57:41.810] I hope, know, we cut the insulin price down to $25
+- [57:46.060] a month, which was --
+- [57:47.830] it was, in many cases, it was a thousand.
+- [57:51.100] And I don't know if it affects the people here,
+- [57:52.650] but, you know, it was thousands of dollars,
+- [57:54.760] and now it's down to $25. We got it down.
+- [57:57.740] I did that, really, in my first term.
+- [57:59.060] It was terrible because I did it in the third year
+- [58:02.960] of my first term. I got it down to $25.
+- [58:06.770] And then they told me, "Sir, it will take --
+- [58:08.400] statutorily, it'll take two years."
+- [58:10.370] One of those deals, it'll take two years
+- [58:12.120] before it can go to that price.
+- [58:13.480] I said, I'd better win the election.
+- [58:16.290] If somebody else wins the election,
+- [58:17.560] they're going to take credit for the insulin.
+- [58:19.830] And lo and behold, we had some problems with the election.
+- [58:24.640] A disgraceful thing. And I saw Biden up there.
+- [58:28.540] "We have a $25 insulin." I said, I did that.
+- [58:31.430] Can you believe it? I was seething.
+- [58:33.780] I was not a happy person. In fact, I said,
+- [58:36.560] I think we're going to have to run to set the record straight.
+- [58:39.580] But we got it down to $25. It was amazing.
+- [58:42.080] Everyone knows we did it.
+- [58:43.370] We actually have been given good credit.
+- [58:45.330] It's nice to be given good credit
+- [58:48.020] when you do things that are good.
+- [58:49.220] And I guess sometimes I'll say,
+- [58:50.800] they don't give me enough credit,
+- [58:52.150] and then I'll be in the Oval Office --
+- [58:54.270] this beautiful, most powerful,
+- [58:56.160] most incredible office in the world.
+- [58:57.700] People walk in and they say, "Wow."
+- [59:00.890] The biggest people in the world. Even the Queen, the other day,
+- [59:03.790] she walked in with King Charles, Camilla.
+- [59:07.070] She said, "Wow, this is the Oval Office."
+- [59:10.500] I said, when the Queen of England says that,
+- [59:12.470] that's very cool.
+- [59:13.690] But people do -- the biggest business people,
+- [59:15.510] the biggest politicians.
+- [59:17.220] And, you know, it's just -- it's an amazing place.
+- [59:21.040] But we keep it well. We fix it.
+- [59:24.610] One of the nice parts about being in real estate,
+- [59:27.610] I give it the Mar-a-Lago treatment. We fix Mar-a-Lago.
+- [59:30.100] We make it better than it's ever been.
+- [59:31.510] It's better than it was when -- the day it was built.
+- [59:34.680] So, we have a lot of fun.
+- [59:36.120] By the way, the King and Queen were fantastic. They were here.
+- [59:39.910] What great representatives they are for their country.
+- [59:43.380] Really high quality.
+- [59:45.500] When he got up and made the speech
+- [59:46.940] with that beautiful accent, I said,
+- [59:48.420] well, that's the one thing I'll never have, is that accent.
+- [59:51.170] I'd like to have that accent. But no, it was very elegant.
+- [59:54.420] He's a very elegant person. Very good person.
+- [59:57.520] So, in four years,
+- [59:59.260] the last administration took in much less than $1 trillion.
+- [01:00:05.080] And in 11 months -- so, you got four years,
+- [01:00:07.710] less than $1 trillion --
+- [01:00:09.030] and in 11 months, we took in, as an investment where countries
+- [01:00:12.720] and people, rich people, are investing -- in 11 months,
+- [01:00:15.870] we took in over $18 trillion, which is a record.
+- [01:00:20.350] Which is a record.
+- [01:00:22.940] And we passed the largest tax cuts in American history.
+- [01:00:26.470] And, you know, you have your one-year deduction
+- [01:00:30.310] that people never thought would be possible.
+- [01:00:33.040] Instead of over a 38-year period,
+- [01:00:34.810] you're taking it in one year.
+- [01:00:36.640] And nobody believed a thing like that was possible.
+- [01:00:39.100] I did that, actually, for a shorter period of time
+- [01:00:41.770] in the first administration.
+- [01:00:43.060] I think we had the greatest economy in history
+- [01:00:45.420] in my first administration.
+- [01:00:47.300] And in the second, I think we're blowing it away.
+- [01:00:51.170] But we had to make a detour. I'm sorry.
+- [01:00:52.950] We had to make a detour to Iran. Everything will snap back.
+- [01:00:57.730] We were down to less than $2 for gasoline in Iowa.
+- [01:01:01.410] I was in Iowa two months ago,
+- [01:01:02.840] just before the little skirmish took place -- is taking place.
+- [01:01:08.090] And prices -- the price for gasoline was $1.85 a gallon.
+- [01:01:12.930] And we were -- a lot of places were $2, some below $2.
+- [01:01:16.480] And I believe it'll snap back very, very quickly,
+- [01:01:18.920] as soon as -- there's so much oil.
+- [01:01:20.600] These ships are loaded up with oil.
+- [01:01:22.140] They can't get out of the strait.
+- [01:01:24.210] We'll -- I think we're going to have it solved.
+- [01:01:26.490] I think everyone in this room
+- [01:01:27.870] is going to be very happy and very impressed.
+- [01:01:30.820] Our tax cuts supported an estimated
+- [01:01:33.670] 408,000 full-time Florida jobs. You know that.
+- [01:01:37.010] And we delivered no tax on tips, no tax on overtime,
+- [01:01:41.180] no tax on Social Security for our seniors,
+- [01:01:43.850] which I think is the last one.
+- [01:01:46.620] I wasn't sure if that was the biggest one,
+- [01:01:48.240] but I can tell you, in Florida, it's the biggest one.
+- [01:01:50.570] No tax on Social Security for our seniors.
+- [01:01:53.790] We virtually eliminated the estate tax, or death tax,
+- [01:01:56.560] for people with small business and farms.
+- [01:01:59.500] So many farmers, where they leave their farm --
+- [01:02:02.200] you know, they're land-rich and cash-poor.
+- [01:02:04.910] They have a farm that's of value.
+- [01:02:06.190] They leave it to their children,
+- [01:02:07.400] their great children, who they love so much.
+- [01:02:09.000] If they don't love their children,
+- [01:02:10.230] they say, don't bother. It's nothing much.
+- [01:02:11.760] But if you do -- if you want to leave your farm
+- [01:02:14.800] or your small business to your children,
+- [01:02:17.070] we have no estate tax.
+- [01:02:18.370] You know, we have -- they call it a death tax.
+- [01:02:20.380] That's what it is.
+- [01:02:21.820] And just, you know, pretty -- pretty amazing thing.
+- [01:02:24.700] And the case of farms, you know, it's a way of life.
+- [01:02:27.220] And the parents would be on the farm.
+- [01:02:29.570] The kids would grow there. They love it.
+- [01:02:31.160] They wouldn't do anything else.
+- [01:02:32.500] They would rather do that than anything else.
+- [01:02:34.470] And they used to get hit with a tax --
+- [01:02:36.600] a big tax that they couldn't pay.
+- [01:02:37.870] So they'd go out and borrow money
+- [01:02:39.370] from the local bank or whatever, and they weren't able to pay.
+- [01:02:42.800] And they would lose their farm.
+- [01:02:44.470] And in many cases, they would commit suicide.
+- [01:02:46.670] Literally, they'd commit suicide.
+- [01:02:48.490] We don't have any death tax or inheritance tax
+- [01:02:51.090] anymore for the small farms and small businesses.
+- [01:02:54.250] So when you leave your business to your kid,
+- [01:02:56.560] you don't have that.
+- [01:02:58.760] And we made interest on car loans fully tax-deductible
+- [01:03:02.600] so that if you borrow money -- if you buy an American car only,
+- [01:03:06.100] you have to buy an American-made car.
+- [01:03:08.300] But you can borrow money from the bank.
+- [01:03:10.980] Your interest is deductible for income tax purposes.
+- [01:03:14.720] And that's a big deal that we've never seen.
+- [01:03:16.420] You know, middle-income people
+- [01:03:17.640] have never been big on deductions.
+- [01:03:19.450] Rich people have gotten used to deductions,
+- [01:03:21.780] but those other people haven't.
+- [01:03:23.910] We added 186,000 private-sector jobs in March.
+- [01:03:27.980] Jobless claims just hit the lowest level since 1969.
+- [01:03:31.770] And more Americans are working today,
+- [01:03:33.280] as I said, than ever before.
+- [01:03:35.380] And since the election, 89 times we've hit new highs.
+- [01:03:40.760] And we're adding $9 trillion.
+- [01:03:43.260] We've added -- in just 11 months,
+- [01:03:45.410] we've added over $9 trillion in value to the stock markets.
+- [01:03:48.840] And people with 401(k)s have really --
+- [01:03:52.290] I mean, it's saved marriages, actually.
+- [01:03:53.940] One policeman told me, "My wife thought very little of me.
+- [01:03:58.490] She felt I wasn't a man because I was a bad investor.
+- [01:04:02.400] With my 401(k), I had nothing I could do about it.
+- [01:04:05.800] It was under the Biden administration.
+- [01:04:08.310] And now she thinks that I'm Warren Buffett.
+- [01:04:10.370] She said, ‘My husband is the most incredible
+- [01:04:13.750] investor I've ever seen,'
+- [01:04:15.080] and all I do is just look at the numbers every month."
+- [01:04:18.010] So, it's amazing. The 401(k)s are incredible.
+- [01:04:20.490] They're incredible.
+- [01:04:21.710] Core inflation has dropped to a five-year low,
+- [01:04:24.870] with the exception of oil prices,
+- [01:04:26.420] which is just -- you know, it's a --
+- [01:04:27.780] I think most of the people in this room understand that.
+- [01:04:29.870] As soon as it's over, it's going to drop like a rock.
+- [01:04:32.370] I think it goes below where it was
+- [01:04:33.890] because there's so much oil.
+- [01:04:35.110] It's not like -- it would be a problem
+- [01:04:36.790] if there wasn't a lot -- there's so much oil out there.
+- [01:04:39.590] But core inflation has dropped. Grocery prices are down.
+- [01:04:43.000] Used car prices are down. Rent is down.
+- [01:04:45.450] The only thing that is up is the gasoline,
+- [01:04:47.540] and that's coming down.
+- [01:04:49.280] But, you know, with all of this --
+- [01:04:52.390] and I say it again --
+- [01:04:53.850] we had to do this little excursion.
+- [01:04:56.240] Because if we didn't, if they had a nuclear weapon,
+- [01:04:58.470] this world would be in -- it would be a horror.
+- [01:05:00.740] It would be a world that would live in fear.
+- [01:05:04.180] And it should have been done for 47 years by other
+- [01:05:06.990] Presidents and other countries, frankly, but it wasn't.
+- [01:05:09.400] They were all afraid of Iran.
+- [01:05:11.220] It's a very strong -- was a very strong country.
+- [01:05:13.170] We've blown the hell out of them,
+- [01:05:14.560] if you want to know the truth.
+- [01:05:16.220] But we've leashed American energy
+- [01:05:18.300] with that simple policy of drill, baby drill.
+- [01:05:22.580] And I'll tell you, we're producing more oil and gas
+- [01:05:25.120] now than we ever have any -- at any time.
+- [01:05:27.640] And we're investing over $1.5 trillion
+- [01:05:30.790] next year in the military. And we have the strongest,
+- [01:05:34.120] the greatest military by far anywhere in the world.
+- [01:05:37.010] Stronger than any other country by far.
+- [01:05:39.700] And thanks to our warriors and their allies,
+- [01:05:42.580] the Israeli Defense Forces today, the Iranian regime
+- [01:05:46.900] has none of those things that we talked about --
+- [01:05:49.100] Navy, Air Force, anti-aircraft capacity, no radar.
+- [01:05:54.040] And again, dozens of their leaders
+- [01:05:55.700] are no longer with us. They're elsewhere.
+- [01:05:59.660] Most importantly, though, thanks to our blockade --
+- [01:06:02.510] the blockade has been unbelievable.
+- [01:06:04.680] They're unable to export any energy,
+- [01:06:06.730] and they're crumbling as an economy.
+- [01:06:08.960] But I just want to say that we have now
+- [01:06:12.560] a great country that's respected again.
+- [01:06:14.720] We're a country that is winning like it's never won before.
+- [01:06:18.970] And we're going to keep it going.
+- [01:06:20.340] And I just want to thank all of the people
+- [01:06:22.260] from this area of the world.
+- [01:06:24.040] It's a great area of the world with great leaders and people.
+- [01:06:28.270] And it's people that I have a lot of respect for.
+- [01:06:31.370] But it's an area of the world that everyone is talking about.
+- [01:06:34.060] And it's an honor to be a member of this group of people.
+- [01:06:37.930] Very distinguished. Such distinguished people.
+- [01:06:40.200] I mean, I'm seeing so many people.
+- [01:06:41.940] The people that you read about, the people that you look up to,
+- [01:06:44.960] and they happen to be here. Speaking in front of you
+- [01:06:49.180] with Harvey, my lawyer -- a lawyer.
+- [01:06:52.990] If he ever loses a case, I'll fire him so fast.
+- [01:06:56.930] But he's my lawyer.
+- [01:06:58.180] And he said, "Would you do it?" I said, "Absolutely."
+- [01:07:01.810] And I know it's turned out to be great because outside,
+- [01:07:03.870] they have thousands of people trying to get in.
+- [01:07:05.680] So that's a good feeling.
+- [01:07:07.110] But I just want to thank very much all of the people
+- [01:07:09.480] of West Palm Beach and Palm Beach,
+- [01:07:11.030] all of the people that we've dealt with.
+- [01:07:12.990] You are really fantastic. Thank you. Thank you very much.
+- [01:07:37.560] Harvey: Mr. President,
+- [01:07:38.860] if you would stay with us a few more moments,
+- [01:07:40.710] we appreciate your time. We have a few questions for you.
+- [01:07:47.090] Why Florida? Why Palm Beach County?
+- [01:07:48.610] First obvious question. Palm Beach is your home.
+- [01:07:51.780] Your children and your grandchildren
+- [01:07:53.680] all live in southeast Florida.
+- [01:07:55.470] Key members of your administration
+- [01:07:57.360] are from our community.
+- [01:07:58.610] Your future presidential library will be in Miami.
+- [01:08:02.420] An airport here will be named in your honor.
+- [01:08:05.550] And you often govern from here.
+- [01:08:07.660] You own properties everywhere in the world.
+- [01:08:09.270] You could live everywhere in the world.
+- [01:08:11.110] Why do you choose our community?
+- [01:08:12.870] Why Florida? Why Palm Beach County?
+- [01:08:14.430] The President: Well, before I do that,
+- [01:08:15.630] so, Elton John told me,
+- [01:08:18.450] "When you hit it big, you leave."
+- [01:08:21.800] We hit it big. Everybody's standing over.
+- [01:08:23.700] Now Harvey says, "Can we ask you a couple of questions?"
+- [01:08:28.220] He said, "When you hit that last song big,
+- [01:08:30.670] don't go out for an encore. Or if you go out for an encore,
+- [01:08:34.210] make sure you leave when it's hot."
+- [01:08:38.270] And here we are. We had a standing ovation.
+- [01:08:40.300] Everyone going. They loved it.
+- [01:08:41.650] And Harvey has to ask me a stupid question like that.
+- [01:08:47.440] Harvey: They gave me the question.
+- [01:08:50.080] But you'll answer.
+- [01:08:51.300] The President: Okay, here's my answer.
+- [01:08:52.540] You know why? Because I like the area.
+- [01:08:54.370] Okay, next question. I like short answers.
+- [01:08:57.210] The 250th Anniversary of the Nation
+- [01:08:59.500] Harvey: 250th anniversary of our nation, which you spoke about.
+- [01:09:03.190] Is there a particular moment in the founding of our nation
+- [01:09:07.030] that has always resonated with you?
+- [01:09:09.810] The President: Well, I think when you look at the wars,
+- [01:09:13.200] the revolution itself, you take a look at what took place.
+- [01:09:17.130] It's that 1776 is amazing. You know, it's interesting.
+- [01:09:21.960] We gave our military a bonus, and it was $1,775.
+- [01:09:27.940] And I looked at the number, and I had to sign off on it.
+- [01:09:30.450] I said, wait a minute. $1,775.
+- [01:09:35.950] If we add one more dollar, Harvey, it's 1776.
+- [01:09:40.200] And I had to get approval. Can you believe it?
+- [01:09:41.910] Actually, $1 is actually a lot. But it's not that much.
+- [01:09:45.780] And so we made it 1776. It's just special.
+- [01:09:49.270] I mean, the whole place. It's a special country.
+- [01:09:51.220] But when you look at some of the movies
+- [01:09:53.680] and documentaries about the founding of our country
+- [01:09:56.660] and all of the great people, George Washington,
+- [01:09:59.900] Abraham Lincoln, Thomas Jefferson, Lincoln later,
+- [01:10:03.030] but Thomas Jefferson, all of the original founders,
+- [01:10:06.190] and some of the ones that are least known
+- [01:10:08.900] are actually the most important
+- [01:10:11.180] and the most interesting, actually.
+- [01:10:12.840] But when you look at all, then you have the Civil War.
+- [01:10:16.430] The Civil War was brutal. It was brutal.
+- [01:10:18.710] I always said, why couldn't that have been settled,
+- [01:10:20.660] and maybe it could have been.
+- [01:10:22.120] But it was a brutal war. It was supposed to last one day.
+- [01:10:24.570] And because Robert E. Lee was an amazing general,
+- [01:10:27.230] you know, I deal with generals a lot.
+- [01:10:29.850] And I ask, who was the best general?
+- [01:10:31.340] A lot of them say Robert E. Lee
+- [01:10:32.860] because he took something that was supposed to end in one day
+- [01:10:35.200] and it went four years.
+- [01:10:36.890] And with the exception of Gettysburg, that was not good.
+- [01:10:40.550] That was not a good one. That was not a good day for him.
+- [01:10:42.850] But that didn't happen. It would have actually won.
+- [01:10:45.470] They were going for New York
+- [01:10:46.800] and they heard they were going up a hill,
+- [01:10:49.330] Harvey, just going up a hill. Robert E. Lee heard that.
+- [01:10:51.740] Stonewall Jackson was killed, his great general,
+- [01:10:53.940] and so he didn't have him.
+- [01:10:55.390] He had another general and they were going up
+- [01:10:57.160] and he sent five messengers on five horses
+- [01:10:59.780] hoping that one would get through
+- [01:11:01.040] because they were all being shot.
+- [01:11:02.400] It was a bloodbath.
+- [01:11:04.100] And it was never fight uphill, me boys.
+- [01:11:06.950] Never fight uphill.
+- [01:11:08.190] We fought uphill and they just got wiped out.
+- [01:11:10.970] But that whole, to me, the Robert E.
+- [01:11:13.770] Lee era with Ulysses S.
+- [01:11:16.670] Grant, Abraham Lincoln, I mean, to me, that is such an amazing,
+- [01:11:22.100] you can learn so much from it. But it was such an amazing time,
+- [01:11:25.450] such a horrible time, beautiful in certain ways,
+- [01:11:28.500] but such a horrible, horrible time.
+- [01:11:31.520] We have a fascinating country,
+- [01:11:33.180] whether you're talking about 1776 or a little bit later on,
+- [01:11:37.280] or I think right now, I think right now, in many ways,
+- [01:11:40.520] we are, I believe we're in the golden age of America.
+- [01:11:43.680] You know, I'm glad he actually asked me this question
+- [01:11:46.170] because I just used a term that I didn't use when I was leaving.
+- [01:11:49.680] I didn't say we are in the golden age,
+- [01:11:51.830] Harvey, of America and we're living it.
+- [01:11:55.410] I think it's a very exciting time right now.
+- [01:12:00.870] Harvey: I'm glad you liked one of my questions, sir.
+- [01:12:03.610] As someone who came from the business world,
+- [01:12:06.170] you're now in the political world.
+- [01:12:08.740] What is the biggest difference
+- [01:12:10.210] between being a leader of a company versus
+- [01:12:13.310] being a leader of a country, if any?
+- [01:12:16.040] The President: I can't get myself into big trouble.
+- [01:12:19.110] Well, a lot of people ask it in a little different form.
+- [01:12:22.230] They say, who's tougher, politicians or businessmen?
+- [01:12:26.050] Because I dealt with both at the highest level and I always said,
+- [01:12:29.840] oh, businessmen are much tougher.
+- [01:12:32.120] They're much, not even close.
+- [01:12:33.470] But then I spent a little time in Washington
+- [01:12:37.630] and now I say it's not even close.
+- [01:12:39.950] These politicians are ruthless, vicious.
+- [01:12:42.950] They are liars,
+- [01:12:44.290] unlike our people from our great town council.
+- [01:12:47.560] But these are vicious people.
+- [01:12:49.820] I mean, what I see, Shifty Schiff,
+- [01:12:51.670] all these crazy people that we have to deal with all day.
+- [01:12:55.060] Think of it. Call me. How's he doing now?
+- [01:12:59.800] The people that we deal with in Washington, they are very tough.
+- [01:13:03.320] And even the leaders of other countries,
+- [01:13:05.900] you know, look, now we're dealing with Iran.
+- [01:13:08.260] So when they used to ask me that question for the first make,
+- [01:13:11.420] I'd say for the first month, I would say, oh,
+- [01:13:14.260] businessmen, after about a month and a half
+- [01:13:17.160] after getting impeached twice for nothing,
+- [01:13:19.110] I said, you know, politicians are far worse.
+- [01:13:22.050] Far worse. Yeah, right.
+- [01:13:24.120] So it's a big, it's a big difference.
+- [01:13:27.360] I will say this. It is nothing more beautiful
+- [01:13:30.820] than a really good politician who's honorable.
+- [01:13:33.760] There's nothing more beautiful than an honorable prosecutor.
+- [01:13:36.800] You know, you have some of these prosecutors,
+- [01:13:38.610] they're dirty cops and you have others that are very fair.
+- [01:13:41.860] And I think the world of the prosecutors
+- [01:13:44.520] is a very important world.
+- [01:13:45.990] You want fair. You have to have fair prosecutors.
+- [01:13:49.780] And some of them aren't fair.
+- [01:13:51.070] I mean, I was a part of it
+- [01:13:52.740] and I was able to beat a system that was brutal.
+- [01:13:55.100] A lot of people didn't think it was doable. And we did.
+- [01:13:58.290] But having really, because it's a very important position,
+- [01:14:02.100] the prosecutors are very powerful
+- [01:14:04.930] and they can destroy people unfairly
+- [01:14:07.860] and they can, you know, they can also do a good job.
+- [01:14:10.050] But having fair, smart and fair prosecutors
+- [01:14:14.190] is a very important part of the world in which we live.
+- [01:14:16.970] I think that makes sense.
+- [01:14:18.200] But I feel very strongly about that. Yeah.
+- [01:14:21.620] Harvey: Last question.
+- [01:14:23.780] Well, it's a two part question. What is the most bizarre thing
+- [01:14:26.970] that you've encountered as president?
+- [01:14:29.000] And what still surprises you about the job,
+- [01:14:31.150] even in your second term?
+- [01:14:34.040] The President: If I told him what was the most bizarre thing,
+- [01:14:36.750] I'd have to probably resign in about three minutes
+- [01:14:40.260] as I walked off the stage.
+- [01:14:41.510] You think I'm getting there? I'm not.
+- [01:14:44.210] But the one thing I saw,
+- [01:14:46.450] I won't respond to that question, but I would.
+- [01:14:50.890] You would be very interested, but I just think this,
+- [01:14:55.490] it's a great honor to be doing what I'm doing.
+- [01:14:59.830] And you know, you have everybody watching,
+- [01:15:02.920] everybody looking, everybody second guessing.
+- [01:15:06.840] Some are very fair and very good.
+- [01:15:11.150] You learn from them and you take what they suggest
+- [01:15:14.070] or what they're complaining about in some cases,
+- [01:15:17.080] if they're fair and others, no matter what you do.
+- [01:15:19.210] You know, it's like you can have a baseball team
+- [01:15:21.700] and win 21 to nothing
+- [01:15:23.020] and they'll say you should have won 25 to nothing, right?
+- [01:15:26.440] Because we've done really a job.
+- [01:15:28.340] We're being credited of having the best first term,
+- [01:15:32.280] first year of a term of any president.
+- [01:15:35.590] I think it is.
+- [01:15:36.980] I mean, when you look at all the regulation cuts,
+- [01:15:39.420] all of the tax cuts, all of the law and order things.
+- [01:15:42.540] I mean, the border is an example.
+- [01:15:44.410] We settled eight wars and nobody settled eight wars.
+- [01:15:47.120] In fact, the woman that won, a very nice woman,
+- [01:15:50.080] Maria, she won the Nobel Peace Prize.
+- [01:15:53.070] And she said, what?
+- [01:15:55.180] Nobody should win that but Donald Trump.
+- [01:15:57.110] She said, Donald Trump should win it
+- [01:15:59.000] more than any other person that wanted.
+- [01:16:01.370] And she actually gave me her Nobel Prize.
+- [01:16:03.690] She's a terrific person.
+- [01:16:08.190] But I just say this, it's a great honor to do it.
+- [01:16:11.610] I think it's bigger than I thought, you know,
+- [01:16:13.680] when I was thinking about running early on in 2015, 2014,
+- [01:16:17.930] before I ran.
+- [01:16:20.080] I had no idea it would be this big.
+- [01:16:21.550] I had no idea we could make this kind of an impact,
+- [01:16:24.790] but we've really made an impact
+- [01:16:26.010] in a little bit more than a year.
+- [01:16:28.280] We've turned this country around.
+- [01:16:29.660] I thought it would take longer than that,
+- [01:16:31.140] but we've turned it around.
+- [01:16:32.350] And again, with the hottest country,
+- [01:16:34.240] the king of Saudi Arabia said that.
+- [01:16:35.660] I was over there a year ago.
+- [01:16:39.250] And I said to him, we were there for after four or five months.
+- [01:16:42.370] It was obvious what was happening.
+- [01:16:45.050] But he looked at me and he said,
+- [01:16:46.680] "President, I must tell you, I thought America was dead.
+- [01:16:51.630] We weren't going to invest. Nobody was going to invest.
+- [01:16:54.140] You had a country that was dead."
+- [01:16:55.930] And now you have the hottest country anywhere in the world
+- [01:16:58.400] that we do with the hottest country anywhere in the world.
+- [01:17:00.560] And we want to keep it that way.
+- [01:17:02.550] Thank you very much, everybody. Thank you.
+- [01:17:06.210] (applause)
+- [01:17:16.475] ♪ ("YMCA" by The Village People) ♪

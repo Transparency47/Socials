@@ -1,0 +1,1438 @@
+<!-- source: https://www.youtube.com/watch?v=f1M57bKXlKU -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: f1M57bKXlKU -->
+<!-- date_published: 2025-10-15T20:45:40+00:00 -->
+<!-- date_accessed: 2026-06-02T02:43:25.612002+00:00 -->
+
+# Transcript: President Trump Participates in a Press Conference with the Director of the FBI
+
+- [00:01.410] The President: Well, thank you very much, everybody.
+- [00:02.900] It's great to be in this beautiful Oval Office.
+- [00:06.990] The -- it never looked so nice. We're getting great compliments.
+- [00:11.080] And you see outside how that's come out.
+- [00:13.090] It's been great. We make a lot of improvements
+- [00:15.970] to the White House and we're doing that.
+- [00:17.570] One of the things you should be looking at is the Palm Court,
+- [00:20.590] because that's been totally redone.
+- [00:21.980] So we like to preserve and make better the White House.
+- [00:26.220] And that's really what's happened
+- [00:27.570] and we're getting tremendous reviews and we appreciate it.
+- [00:31.350] But we're here for a different reason.
+- [00:32.970] It's called Operation Summer Heat,
+- [00:35.760] which is an appropriate term in light of what we're doing.
+- [00:38.600] And early yesterday morning, I returned from the Middle East
+- [00:41.350] where we celebrated a historic agreement
+- [00:44.410] to end years of suffering and conflict.
+- [00:46.510] Amazing. Every country came together.
+- [00:50.570] And even the enemies came out and totally endorsed it.
+- [00:53.500] Everybody. I've never seen anything like it.
+- [00:55.260] Nobody's seen anything like it.
+- [00:56.530] And just as we are forging peace and stability abroad,
+- [00:59.890] we're also restoring peace and safety and stability at home.
+- [01:04.850] And you see that in Washington, DC maybe better than any place,
+- [01:08.020] because we got there, and within 12 days it was very good.
+- [01:12.350] And within 30 days, it's been as safe as any city in the country.
+- [01:15.810] It's been great. Took out 1,700 people, got them out.
+- [01:19.260] These are career criminals in many cases and people
+- [01:21.620] that shouldn't have been allowed in by the Biden administration.
+- [01:25.070] Historically, the summer months have been a time
+- [01:27.930] when violent crime soared, as you know,
+- [01:31.430] but not under President Trump.
+- [01:33.010] Today we're announcing the results
+- [01:35.070] of a sweeping law enforcement effort
+- [01:36.850] known as Operation Summer Heat.
+- [01:38.490] We were in many cities that people didn't know about.
+- [01:41.340] We kept it a little quiet and it had a big impact,
+- [01:44.930] and you'll hear that in a second.
+- [01:47.210] But over the past few months, FBI offices in all 50 states
+- [01:50.700] made crushing violent crime a top enforcement priority.
+- [01:54.830] That's what they did, rounding up
+- [01:56.770] and arresting thousands
+- [01:58.000] of the most violent and dangerous criminals.
+- [02:00.810] And these are among the most dangerous
+- [02:02.910] and violent people in the world.
+- [02:04.350] They were allowed -- In many cases, not in all cases,
+- [02:07.440] but in many cases they were allowed in by a very foolish,
+- [02:11.390] actually stupid, open border policy.
+- [02:13.810] Just anybody could have come in. They emptied out their jails,
+- [02:17.080] their prisons, their mental institutions.
+- [02:19.170] They emptied them into our country.
+- [02:21.380] And the people behind me have done an incredible job
+- [02:23.590] because if we didn't have that administration,
+- [02:27.130] it would've been so much easier.
+- [02:29.080] They allowed millions of people in this country
+- [02:31.190] that shouldn't have been allowed,
+- [02:32.570] including over 11,000 murderers,
+- [02:35.260] half of whom murdered more than one person.
+- [02:38.590] And many of them are gone now or they're put in prison
+- [02:41.080] because we don't want to have them come back.
+- [02:42.940] So we literally put them in our prison,
+- [02:44.680] which we don't want to do,
+- [02:46.400] but we bring them back to their countries.
+- [02:48.730] Working with state and local partners,
+- [02:50.380] the FBI arrested over 8,000 violent criminals
+- [02:54.180] during the course of this period.
+- [02:56.050] In major cities like in New Orleans, Nashville,
+- [02:58.930] we saw a 250 percent increase in arrests.
+- [03:03.540] And we really went after the bad ones.
+- [03:06.630] These include 725 individuals
+- [03:09.400] wanted for violent crimes against children and murderers.
+- [03:13.890] These arrests are in addition to the work
+- [03:16.030] of our historic federal task forces that make D.C safe.
+- [03:21.620] Task Force has been unbelievable.
+- [03:23.500] I mean, the job they've done, it's incredible.
+- [03:27.250] And it's been so nice because so many people,
+- [03:29.390] they're going out to dinner and they're having dinners,
+- [03:31.680] they didn't go out for four years.
+- [03:35.340] And now they're going out three times a week.
+- [03:37.990] Restaurants are opening, restaurants are full.
+- [03:41.380] And usually that means a lot of good things.
+- [03:43.540] But restaurants that were closed are now opening up
+- [03:46.550] and everybody's happy.
+- [03:48.580] Nobody's ever seen anything like it actually.
+- [03:50.280] And everybody feels safe. You can have a child walk
+- [03:53.480] right through the middle of Washington, DC
+- [03:55.230] and nothing's going to happen.
+- [03:56.840] We were losing more than one person a week in --
+- [03:59.040] They're being killed on an average of over one a week.
+- [04:03.390] The Make D. C Safe Task Force has been incredible.
+- [04:08.320] And the Make Memphis Safe Task Force
+- [04:12.030] is having very similar results. It's much earlier,
+- [04:14.790] but we've been there for a week and a half,
+- [04:16.860] but I'm hearing the results are pretty incredible.
+- [04:19.050] And you'll hear about that,
+- [04:20.620] they're mobilizing more than 20 federal agencies
+- [04:23.170] for the largest law enforcement operation,
+- [04:25.600] targeting violent criminals in American history.
+- [04:29.090] As a result of these efforts, violent crime
+- [04:31.250] declined nearly 20 percent nationwide
+- [04:33.370] compared to the same period last year.
+- [04:35.620] And it was the safest and most peaceful summer in two decades.
+- [04:38.800] And honestly, we haven't really even gotten going yet.
+- [04:42.940] If we didn't have to fight all of these radical-left governors,
+- [04:45.480] we could have had Chicago taken care of as an example.
+- [04:48.640] They had, in a short period of time, 4,000 murders in Chicago.
+- [04:52.990] And we have to listen to this man stand up
+- [04:55.480] and say that we're bad people.
+- [04:57.400] And the people of Chicago are walking around with MAGA hats.
+- [05:00.120] You have women, beautiful Black women walking around with MAGA
+- [05:03.920] hats, "Please let the President in.
+- [05:06.670] And we don't care how he does it."
+- [05:08.600] They're not interested in National Guard or Army Navy,
+- [05:12.750] bring them in Marines, bring in the Marines.
+- [05:15.410] They just want the crime to stop.
+- [05:17.340] And more so because of the success that we had in D.C.
+- [05:20.710] I think if we didn't have that success,
+- [05:22.200] nobody would even believe it.
+- [05:25.180] So I want to congratulate all of the incredible
+- [05:27.500] law enforcement professionals joining us today,
+- [05:30.350] especially Attorney General. Pam Bondi's terrific.
+- [05:33.730] Deputy Attorney General Todd Blanche,
+- [05:36.640] who is a fantastic legal talent.
+- [05:41.410] He really is. He's a great guy too.
+- [05:43.600] And of course, FBI director Kash Patel.
+- [05:46.420] They have worked so hard on this and other things.
+- [05:49.650] Since the started of the administration,
+- [05:51.300] the FBI has arrested over 23,000 violent criminals,
+- [05:54.680] more than double the number arrested
+- [05:57.570] in the final year of the Biden disaster.
+- [06:00.280] The FBI has also destroyed or severely disrupted
+- [06:04.640] more than 170 organized criminal enterprises and gangs,
+- [06:09.220] 1,600 of the most violent gangs
+- [06:12.670] and confiscated over 6,000 illegal firearms.
+- [06:16.270] And they've tracked down and arrested four fugitives
+- [06:19.370] on the most wanted list.
+- [06:21.110] Four of the most wanted, actually two of them
+- [06:23.380] were the most wanted fugitives in the world.
+- [06:28.040] There's still much more work to be done,
+- [06:29.760] which is why the FBI
+- [06:31.120] continues to work alongside the Department of Justice,
+- [06:33.830] the Department of Homeland Security,
+- [06:36.140] and the Department of War to Defend.
+- [06:38.750] And Pete Hegseth has been fantastic,
+- [06:41.010] by the way on this too, on other things,
+- [06:42.740] but on this too, to defend law and order
+- [06:46.410] and combat violent crime, arrest illegal aliens,
+- [06:50.010] and make American cities the safest in the world.
+- [06:52.400] And when I campaigned, I talked about crime,
+- [06:55.300] but I never knew
+- [06:56.890] that we were going to get into it like we did.
+- [06:58.840] I mean, I used to watch these cities with the murders.
+- [07:02.000] Chicago recently had one deal
+- [07:05.230] where they had 11 murders in one weekend
+- [07:07.250] and they said, "Well, yeah, but it was a holiday weekend."
+- [07:09.290] They actually told me that was the reason,
+- [07:11.140] like it was okay because it was a holiday.
+- [07:12.820] It was Labor Day.
+- [07:14.380] These people are the worst. They really have to better --
+- [07:18.670] I tell you what, the people in Chicago
+- [07:21.150] and the people in places like that that could be fixed,
+- [07:23.870] at some point, it gets to where you can't fix it anymore.
+- [07:26.810] It's too far gone. And we have some cities like that.
+- [07:30.450] But these are great cities that could be fixed.
+- [07:32.330] I'm going to be strongly recommending
+- [07:34.400] at the request of government officials,
+- [07:37.650] which is always nice, that you start looking at San Francisco.
+- [07:41.180] I think we can make San Francisco
+- [07:44.070] one of our great cities 10 years ago,
+- [07:46.190] 15 years ago, and now it's a mess.
+- [07:48.560] And we have great support in San Francisco.
+- [07:50.770] So I'd like to recommend that for inclusion.
+- [07:53.610] Maybe in your next group you'll get great support.
+- [07:56.710] Every American deserves to live in a community
+- [07:58.820] where they're not afraid of being mugged,
+- [08:00.890] murdered, robbed, raped, assaulted or shot.
+- [08:04.390] And that's exactly what our administration
+- [08:06.430] is working to deliver.
+- [08:07.920] I didn't realize I was going to make this
+- [08:09.470] such a big factor in the --
+- [08:10.740] I didn't really campaign. I campaigned on crime,
+- [08:13.840] but I never thought we'd go into every city
+- [08:16.220] and take a really safe city
+- [08:18.200] that we've all been living with for years and make them safe.
+- [08:21.800] And now it's like a passion for me
+- [08:23.490] and it's a passion for the people behind me.
+- [08:26.010] So I didn't get elected. I did get elected for crime,
+- [08:30.480] but I didn't get elected for what we're doing.
+- [08:32.510] This is many, many steps above.
+- [08:34.450] And I want to thank Stephen Miller,
+- [08:36.180] who's right back in the audience right there.
+- [08:38.240] I'd love to have him.
+- [08:39.600] I love watching him on television.
+- [08:41.450] I'd love to have him come up and explain his true feelings.
+- [08:45.030] But maybe not his truest feelings.
+- [08:47.830] That might be going a little bit too far.
+- [08:49.930] But Stephen, thank you for doing an unbelievable job.
+- [08:52.450] And the people of this country love you, I'll tell you.
+- [08:54.760] And they love what you say about crime and stopping crime.
+- [08:58.330] So now I'd like to ask Director Patel to say a few words
+- [09:04.560] and then Pam and Todd also.
+- [09:06.910] And I just want to congratulate them.
+- [09:08.550] This is an amazing thing. And we're just at the start.
+- [09:11.900] We're going to go into other cities
+- [09:13.790] that we're not talking about purposely.
+- [09:15.460] We're getting ready to go in.
+- [09:17.050] And when they go in, like Kash is an example,
+- [09:19.260] told me that people didn't even know.
+- [09:21.030] Five months ago they went into Chicago
+- [09:23.900] and they started doing a lot of work in Chicago.
+- [09:26.420] And we brought the numbers down a little bit,
+- [09:30.700] but that really was just preparatory work
+- [09:33.030] for what we're going to do with the surge.
+- [09:35.250] We're going to have a surge of strong, good people, patriots,
+- [09:40.830] and they're going to go in, they straighten it all out.
+- [09:43.040] So a lot of these cities we're already working on,
+- [09:46.890] but we don't do it with a big flavor.
+- [09:49.800] But in a little while, you're going to see some numbers
+- [09:51.640] that you're not going to believe.
+- [09:52.890] And I think you'll probably start with Memphis
+- [09:54.970] because I'm hearing the numbers are much quicker
+- [09:57.850] than we even thought possible.
+- [10:00.180] But again, D.C speaks for itself.
+- [10:03.160] Chicago is going to be okay. We're going to save Chicago.
+- [10:06.240] And I told you, and I told them a very respected man,
+- [10:09.600] the head of the Union Pacific said,
+- [10:11.250] "Sir, save Chicago. It can be saved."
+- [10:14.570] And the way he said it was like, "Can you believe it?
+- [10:16.930] We're trying to save Chicago."
+- [10:18.820] But I understood exactly what he wants.
+- [10:20.190] And that's what we're going to do.
+- [10:21.470] We're going to save all of our cities
+- [10:23.680] and we're going to make them essentially crime-free
+- [10:27.240] like other countries have crime-free.
+- [10:29.270] If you go all over the world, you go to the world,
+- [10:31.930] you hear Afghanistan and you hear all these different places,
+- [10:35.680] our crime in certain cities
+- [10:37.200] is worse than anything they can even imagine.
+- [10:39.780] And we're not going to have that any longer.
+- [10:41.510] It's going to stop and it stops right here.
+- [10:43.090] Kash, please.
+- [10:44.480] Director Patel: Thank you, Mr. President.
+- [10:45.870] What I'd like to do is just highlight
+- [10:47.360] some of the outstanding work
+- [10:48.560] that the men and women of the FBI have been doing.
+- [10:50.530] And thanks to your brave leadership
+- [10:52.180] and the mandate you were given by the American people,
+- [10:53.960] not only defend the homeland but crush violent crime.
+- [10:56.460] You tasked us with our great partners
+- [10:57.980] at the Department of Justice and the attorney general
+- [11:00.170] and the deputy attorney general to start making arrests
+- [11:02.490] and bring prosecutions and safeguard our cities.
+- [11:05.130] And you said it, this is just the beginning.
+- [11:07.050] In just seven months,
+- [11:08.900] I hope the media takes a look at every one of these charts
+- [11:11.100] because these are the best numbers for fighting crime
+- [11:14.030] in US history, and it's only seven months in.
+- [11:17.260] And to do that, our vehicle to do it of choice
+- [11:19.570] was Operation Summer Heat,
+- [11:21.150] which the FBI architected to go after violent criminals.
+- [11:24.860] And in just a three-month span,
+- [11:26.740] you had 8,700 arrests of violent criminals.
+- [11:29.800] You had 2,200 firearms seized off the streets
+- [11:33.740] permanently to safeguard our communities.
+- [11:36.200] You had 421 kilograms of fentanyl seized.
+- [11:39.410] Just to put that in perspective,
+- [11:41.190] that's enough to kill 55 million Americans alone.
+- [11:45.160] You had 45,000 kilograms of cocaine seized.
+- [11:48.310] And thanks to our Department of Justice Partners,
+- [11:50.360] we had 2,100 indictments in three months,
+- [11:53.880] from June to September alone.
+- [11:56.530] Mr. President, that in and of itself
+- [11:58.440] be historic for a four-year presidency.
+- [12:00.820] You did that in seven months
+- [12:02.140] because you let good cops be cops,
+- [12:04.060] and you partnered us with the right people
+- [12:05.540] in the Department of Justice to put the handcuffs on
+- [12:08.390] and bring them to court and put them in prison.
+- [12:10.660] And if that weren't enough, when you look at the year
+- [12:13.070] for the entire seven-month period
+- [12:14.450] that we're talking about here, if you look at the past
+- [12:16.680] four years of the Biden administration,
+- [12:18.720] 16,000, 17,000, 15,000, 15,000,
+- [12:22.460] that's the number of year over year of violent felons
+- [12:25.250] in this country for the Biden administration.
+- [12:27.150] Mr. President, in seven months,
+- [12:29.700] you have 28,600 arrests of violent felons
+- [12:34.390] in just seven months alone because of your leadership
+- [12:37.530] and the dedication of the men and women at the FBI
+- [12:39.900] who want to go out there
+- [12:41.140] and do the job they were prevented from doing
+- [12:43.480] because that department used to be weaponized and politicized.
+- [12:45.930] And this is what happens
+- [12:47.280] when you take out the fangs of weaponization.
+- [12:49.470] This number is historic by every metric.
+- [12:51.850] 28,000 people have been arrested, violent felons alone.
+- [12:55.800] And then when you go over there
+- [12:57.030] and look at some of these charts,
+- [12:58.270] if you don't mind, I'll just hop over here.
+- [13:01.480] Look at the metrics for not just violent crime,
+- [13:04.670] but the homeland.
+- [13:06.530] Mr. President, during your administration,
+- [13:08.630] the FBI has found and located 5,400 children.
+- [13:13.460] That is a 30 percent increase year to date
+- [13:16.870] over the last administration.
+- [13:18.670] Violent crimes against children arrest alone are up 10 percent.
+- [13:22.290] Gang arrests are up 210 percent in the last seven months alone.
+- [13:27.480] And transnational organized crime,
+- [13:29.100] which Stephen Miller has been a great partner in,
+- [13:31.240] is up over 12 percent alone.
+- [13:33.680] These numbers are historic just as a snapshot.
+- [13:36.610] But just so people
+- [13:37.840] don't think we're focusing on violent crime alone,
+- [13:40.150] the National Security Mission, Mr. President,
+- [13:42.190] of your leadership has never been stronger.
+- [13:44.420] We have gone after espionage activities
+- [13:46.740] against our main counterparts in China, Russia, and Iran.
+- [13:50.620] In China alone, we've had over a 50 percent
+- [13:53.410] increase in espionage, arrests alone and prosecutions.
+- [13:56.950] In Iran, we have had a 50 percent increase again
+- [14:00.840] in espionage cases.
+- [14:02.400] And in Russia, we've had a 33 percent increase
+- [14:05.050] in espionage cases alone.
+- [14:07.590] When it comes to counterterrorism, year-to-date,
+- [14:10.030] we have 125 arrests this year
+- [14:12.400] versus a hundred last year year-to-date alone.
+- [14:14.970] And when it comes to the cyber criminal activities,
+- [14:16.960] which are some of the largest enterprises
+- [14:19.090] plaguing everyday Americans,
+- [14:20.960] we at the FBI have put out a mission
+- [14:23.140] to go after cyber criminals like never before.
+- [14:25.760] Last year, they had in total 191.
+- [14:28.910] This year you already have 252 arrests,
+- [14:32.330] 52 arrests of violent cyber criminals
+- [14:35.110] who are stealing from senior citizens,
+- [14:37.080] who are violating our children's rights and freedoms,
+- [14:39.590] and who are violating everyday Americans.
+- [14:41.710] These programs are record. And some of two of the things
+- [14:45.340] I'll finish with that I'm most proud of Mr. President,
+- [14:47.200] this FBI, fentanyl.
+- [14:49.140] As you know, it's a scourge that is killing our youth
+- [14:51.160] a hundred thousand plus a year.
+- [14:53.140] To date, the FBI has seized 1,900 kilograms of fentanyl.
+- [14:57.580] That's enough lethal doses to kill 127 million
+- [15:00.710] Americans alone to date.
+- [15:03.100] And if that weren't enough, Mr. President,
+- [15:05.960] you said we have to go after the worst of the worst.
+- [15:08.790] And you empowered our Department of Justice,
+- [15:10.440] our Attorney General, Deputy Attorney General
+- [15:11.860] and the deputy director at the FBI
+- [15:13.860] led the charge not just on summer heat,
+- [15:16.050] but he also led the charge
+- [15:17.460] at the FBI's 10 most wanted fugitives.
+- [15:20.060] These people have been on the run for years.
+- [15:22.620] And in seven months, you captured not one,
+- [15:24.960] not two, not three, but four of the FBI's most top 10 fugitives.
+- [15:29.350] Four. And just to put that in perspective, Mr. President,
+- [15:31.950] the Biden administration captured four
+- [15:33.660] in all of four years.
+- [15:35.050] You're on seven and we're going to get to 10.
+- [15:36.670] We're going to get to 10 of 10. This includes a lady
+- [15:38.990] who murdered her 6-year-old handicapped child
+- [15:41.040] and fled to India. We got her in two months.
+- [15:43.230] This includes a narco trafficker.
+- [15:45.100] This includes a sex trafficker.
+- [15:46.840] This includes another first degree murder and gangbanger.
+- [15:49.950] These people were on the run
+- [15:51.440] because of the prior administration's reckless
+- [15:53.330] policies that destroyed our communities.
+- [15:55.320] And you came in and with a mandate said,
+- [15:57.660] "Go after the worst of the worst."
+- [15:59.360] This is just the beginning.
+- [16:00.760] This is what happens when you let good cops
+- [16:02.340] be good cops at the FBI.
+- [16:03.700] Mr. President, I just want to thank you
+- [16:05.260] for your incredible leadership,
+- [16:06.840] our brave partnership with prosecutors
+- [16:09.480] who know how to bring cases and make sure these arrests stick.
+- [16:12.670] And that's what the attorney general
+- [16:14.140] and the deputy attorney general
+- [16:15.350] have led the charge across this country,
+- [16:17.240] because arrests without prosecutions are meaningless.
+- [16:19.420] We are deterring criminals from doing this activity.
+- [16:22.430] We are preventing criminals from coming into America,
+- [16:25.200] and we are absolutely crushing violent crime
+- [16:27.400] like never before and defending this homeland, sir.
+- [16:30.090] And not to mention, I almost forgot this one.
+- [16:32.640] It took you, sir, two weeks to get the Abbey Gate bomber.
+- [16:35.460] Joe Biden had four years to look for him.
+- [16:37.160] You got him in two weeks
+- [16:38.410] thanks to the interagency effort by the FBI and the CIA.
+- [16:41.040] Went to Pakistan, and now 13 brave warriors
+- [16:43.260] who were senselessly murdered
+- [16:44.630] because the disastrous Afghanistan withdrawal,
+- [16:46.430] they have justice,
+- [16:47.640] their families have a peace of mind,
+- [16:48.930] and we're going to continue to find the others, Mr. President.
+- [16:51.430] On behalf of the FBI, sir, I just want to thank you.
+- [16:53.410] The President: Thank you very much, Kash. Great job.
+- [16:55.130] Very good. Very impressive. Pam, would you like to --
+- [16:59.480] AG Bondi: President Trump, the men and women
+- [17:02.020] of law enforcement say two things to me repeatedly.
+- [17:05.200] First, you have taken the handcuffs off them
+- [17:09.010] and let them do their jobs, and you let cops be cops.
+- [17:13.110] That's why all this is happening.
+- [17:15.320] The director, the deputy director,
+- [17:17.150] are working around the clock.
+- [17:19.000] All of these great men and women in the FBI,
+- [17:21.620] they have families at home
+- [17:23.820] and they are working during a government shutdown right now.
+- [17:27.120] Many of them have small children.
+- [17:29.670] I was talking to an agent this morning,
+- [17:31.870] many of them have babies at home
+- [17:34.360] and they are working around the clock
+- [17:36.670] to not only keep our country, but are world safe.
+- [17:39.550] And that's what Operation Summer Heat did.
+- [17:42.760] Thank you, Director, and to the deputy director,
+- [17:45.370] for everything you did on behalf of the Department of Justice,
+- [17:48.090] and you're going to continue to keep doing.
+- [17:50.620] And they set the stage for what we're doing in Memphis.
+- [17:54.500] You're going to hear a lot more about that,
+- [17:56.280] our joint task force next week,
+- [17:58.240] but they set the stage for Memphis.
+- [18:00.420] And last night alone in Memphis, there were almost 70 arrests.
+- [18:04.400] There were 12 guns seized,
+- [18:06.540] and there was a 70-year-old man arrested,
+- [18:09.290] as a result of our operation in Memphis,
+- [18:11.740] who raped a child under the age of three.
+- [18:14.810] That one case makes everything we're doing worthwhile.
+- [18:17.900] So, thank you all for being here on behalf of both of us.
+- [18:21.380] Thank you, President Trump.
+- [18:22.720] The President: Thank you. Todd, you want to say something?
+- [18:24.400] General Blanch: Sure. Thank you, Mr. President.
+- [18:26.290] So, this is a great day, and I think there's stats
+- [18:29.270] that the director talked about which are important,
+- [18:32.090] but I want to give two examples
+- [18:33.780] of what Summer Heat has done that actually will apply
+- [18:37.530] hopefully to everybody in this room.
+- [18:39.320] The first is for over four years during the last administration,
+- [18:43.810] there was a hotel in the middle of a town in Alaska
+- [18:48.490] that was being run as a drug den.
+- [18:50.730] There were over 1,000 calls to 911
+- [18:56.030] over four and a half year period.
+- [18:58.800] There were multiple violent crimes,
+- [19:01.390] drug dealers, overdoses and murders at this one hotel.
+- [19:05.520] Ruining a community. Summer Heat went in there,
+- [19:08.950] it's not only arrested all the participants
+- [19:11.070] that were controlling the hotel, but seized the hotel.
+- [19:14.070] And so, that's one example of what Summer Heat
+- [19:16.360] means to everyday Americans that just want to live in peace.
+- [19:19.780] The second example is a large narcotics trafficking group
+- [19:23.180] that was selling fentanyl in the state of Washington.
+- [19:25.780] They were shipping fentanyl and using commercial aircraft,
+- [19:31.010] putting fentanyl pills and powder in suitcases,
+- [19:35.370] flying them from the southwest border, mostly Arizona,
+- [19:38.620] all the way to Washington.
+- [19:39.930] It had been going on for an extremely long time
+- [19:42.670] and the entire organization was arrested.
+- [19:44.630] And I say those two examples
+- [19:46.090] because it's easy to look at the board and see 1,000 arrests.
+- [19:49.930] How much different is our communities
+- [19:51.830] now compared to the past four years?
+- [19:55.150] But there's actual life examples.
+- [19:56.900] Every one of these arrests means that our streets are safer,
+- [20:00.100] and that's because of the work of this administration,
+- [20:02.680] of President Trump and Director Patel.
+- [20:04.640] So, I will tell you, Attorney General Bondi
+- [20:06.600] and I are together every day with Director Patel
+- [20:10.310] figuring out ways that we can continue to do this work.
+- [20:13.210] And it's not going to stop, like the attorney general said
+- [20:16.410] and like the President said, this is just the beginning,
+- [20:19.010] or phase one, or a start, whatever you want to say,
+- [20:22.050] but it will continue on. So, thank you Mr. President
+- [20:24.410] and thank you very much, Director Patel.
+- [20:25.830] Director Patel: And Mr. President,
+- [20:27.050] just one last thank you from the men and women at the FBI.
+- [20:29.710] You found a way to get these individuals paid
+- [20:31.980] during a government shutdown. Our 1811 agents.
+- [20:34.790] On behalf of the FBI, it's a great debt that we owe you, sir.
+- [20:37.020] The President: Thank you.
+- [20:38.280] Director Patel: They're now allowed to pay
+- [20:39.480] for their families, so thank you.
+- [20:40.730] The President: And the military. Thank you.
+- [20:43.260] Okay, thank you very much.
+- [20:45.420] Any questions, please? Brian, go ahead.
+- [20:48.670] The Press: First of all, I know the feedback
+- [20:50.190] I'm getting from the American people
+- [20:51.650] and they want to say thank you.
+- [20:52.930] Law and order is not an option in this country, it's a mandate.
+- [20:55.990] So, I know the American people are thanking you for that.
+- [20:58.040] In terms of the guns that have been taken off the street,
+- [21:00.770] do you have a number of how many guns
+- [21:02.990] were taken away from someone that had a prior felony
+- [21:06.140] or a previous crime that perhaps we can prosecute that?
+- [21:09.670] Because I know that wasn't the case under Joe Biden.
+- [21:11.720] General Blanch: We don't take guns
+- [21:12.950] off the streets of people that are allowed to have guns.
+- [21:15.630] So, every gun that we're taking off the street
+- [21:17.580] is because it belonged
+- [21:18.830] to somebody who is not allowed to have it.
+- [21:20.670] Could be a felon, could be somebody who hears illegally.
+- [21:23.400] There's all sorts of conditions.
+- [21:24.640] But if there's a gun taken off the streets by the FBI,
+- [21:27.910] it's because the person who has it is not allowed to.
+- [21:30.270] It's not somebody who's lawfully allowed to have it.
+- [21:31.920] So, every single one of those guns
+- [21:33.610] were taken off of people that are allowed to have them.
+- [21:35.630] AG Bondi: And not including the FBI,
+- [21:37.540] all of the other agencies. ATF alone since January 20th,
+- [21:41.160] has removed over 25,000 illegal guns off our streets
+- [21:46.020] just since President Trump's been in office.
+- [21:48.310] The Press: And Mr. President, if I could follow up on that.
+- [21:49.910] Could there be any further conversation
+- [21:51.840] to have national conceal carry apply to actual DC,
+- [21:57.670] like if you had a driver's license in Texas
+- [21:59.560] and you had a permit, of course you could drive-
+- [22:01.190] The President: Well, as you know,
+- [22:02.420] they've been talking about that for a long time.
+- [22:04.280] It's an interesting question.
+- [22:06.170] A lot of people feel strongly both ways,
+- [22:07.940] but we are talking about that, Brian.
+- [22:09.970] Thank you.
+- [22:11.190] The Press: Mr. President, on Venezuelan boats.
+- [22:13.720] I want to ask you why not have the Coast Guard stopped them,
+- [22:17.300] which it is empowered by law to do?
+- [22:19.740] This way you can confirm who's on the boat
+- [22:22.500] and ensure that they're doing what you suspect they-
+- [22:25.040] The President: Because we've been doing that for 30 years
+- [22:26.990] and it has been totally ineffective.
+- [22:30.050] They have faster boats.
+- [22:32.430] Some of these boats are seriously --
+- [22:34.640] I mean, they're world- class speedboats,
+- [22:37.330] but they're not faster than missiles.
+- [22:39.400] But we've been trying to do that for years.
+- [22:41.330] And so, much of the drugs, 25 percent,
+- [22:43.820] 30 percent would come in through the seas.
+- [22:46.150] Right now, we have, I would say none coming in through the seas.
+- [22:48.870] In fact, I don't know about the fishing industry.
+- [22:51.240] If you want to go fishing,
+- [22:52.530] a lot of people aren't deciding to even go fishing.
+- [22:55.340] We've almost totally stopped it by sea.
+- [22:58.330] Now, we'll stop it by land. But it never worked.
+- [23:01.640] It never worked when you did it
+- [23:04.790] in a very politically correct manner.
+- [23:07.100] The Press: What's the next step in this war on cartels?
+- [23:09.220] And are you considering strikes on land and-
+- [23:12.590] The President: Well, I don't want to tell you exactly,
+- [23:14.200] but we are certainly looking at land now
+- [23:16.080] because we've got the sea very well under control.
+- [23:19.940] We've had a couple of days where there isn't a boat to be found,
+- [23:23.300] and I view that as a good thing, not a bad thing.
+- [23:25.480] But we had tremendous amounts coming in by boats,
+- [23:27.990] by very expensive boats. They have a lot of money.
+- [23:30.670] Very fast, very expensive boats that were pretty big.
+- [23:34.420] And the way you look at it is every boat that we knock out,
+- [23:37.740] we save 25,000 American lives.
+- [23:40.580] So, every time you see a boat and you feel badly,
+- [23:43.160] you say, "Wow, that's rough."
+- [23:44.810] It is rough, but if you lose three people
+- [23:46.950] and save 25,000 people --
+- [23:48.650] These are people that are killing our population.
+- [23:52.140] Every boat is saving 25,000 lives and you can see it.
+- [23:55.740] The boats get hit and you see that fentanyl
+- [23:57.570] all over the ocean.
+- [23:58.780] It's like floating in bags, it's all over the place
+- [24:02.290] and we're saving tremendous saving amounts of lives.
+- [24:08.490] The Press: Mr. President, I have a question for you
+- [24:12.090] and then I also have a question for Director Patel.
+- [24:14.060] I know you talked about having some distaste
+- [24:17.530] for Boston recently.
+- [24:18.870] Is this one of the cities that you might be looking into?
+- [24:20.810] And can you give us a hint about other cities
+- [24:22.390] that you might be federal-
+- [24:23.630] The President: You're saying for where? For where?
+- [24:26.050] Well, Boston has a bad mayor
+- [24:29.430] who at least is a reasonable IQ person.
+- [24:32.460] Most of them are low IQ and they're so bad.
+- [24:35.640] I mean, what's going on in Chicago is just --
+- [24:37.770] You'd think the guy would say, "Hey, look, we have a problem,
+- [24:41.670] Mr. President, could you come in and straighten it out?"
+- [24:44.740] We could have that done in a month
+- [24:46.250] if we had that cooperation. It's going to be done anyway,
+- [24:49.530] but we could have it done in a month.
+- [24:51.190] Yeah, Boston, she's got four areas that are wrong.
+- [24:55.050] And somebody said,
+- [24:57.610] "Would we think about taking the World Cup away from Boston
+- [25:00.450] if they don't straighten it out?"
+- [25:01.870] And the answer is yes, we have the right to do that with FIFA.
+- [25:05.100] So, if we think that LA is going to be bad, or we think --
+- [25:08.210] That applies a little bit to the Olympics too,
+- [25:10.170] but we'll talk about FIFA first.
+- [25:12.070] FIFA is very hot. If we think there's any reason,
+- [25:16.610] whether it's Boston or anywhere else,
+- [25:18.460] they're not doing their job,
+- [25:19.740] we're going to take those World Cup games
+- [25:22.470] and move them someplace else.
+- [25:23.950] The Press: Thank you. And then, Director Patel,
+- [25:25.460] there's been so many conspiracy theories
+- [25:27.820] swirling around about the assassination of Charlie Kirk.
+- [25:30.300] Do you have any updates for us,
+- [25:31.540] especially in light of all the online content
+- [25:33.810] that everyone's been talking about?
+- [25:35.050] Director Patel: The only thing we deal with at the FBI
+- [25:36.580] and the Department of Justice is facts.
+- [25:38.210] And we delivered in record speed a manhunt
+- [25:40.610] to capture Charlie Kirk's alleged assassination
+- [25:42.450] in 33 hours.
+- [25:43.680] And if you put that in perspective to Luigi Mangione
+- [25:46.200] or the Boston Bomber, they took them five days
+- [25:48.060] and a police officer lost their life in their manhunt.
+- [25:50.210] We are running out absolutely every single lead.
+- [25:52.360] And the best thing we can do to honor
+- [25:53.630] my friend Charlie Kirk's life,
+- [25:55.180] is to make sure that everyone involved
+- [25:57.180] is prosecuted to the full extent of the law
+- [25:58.900] and that's what we're focused on, investigating the facts,
+- [26:01.450] not trading in conspiracy theories.
+- [26:06.300] The Press: In light of China's export curves on rare earths,
+- [26:09.000] do you view India as a reliable partner going forward?
+- [26:13.880] And are you planning to meet Prime Minister Modi in Malaysia?
+- [26:18.500] Are you open to talks in terms of trading?
+- [26:20.140] The President: Yeah, sure. He's a friend of mine.
+- [26:21.510] We have a great relationship.
+- [26:23.140] He just said that two days ago, as you know.
+- [26:25.650] We have a great relationship.
+- [26:26.960] No, we were not happy with him buying oil from Russia
+- [26:31.400] because that lets Russia continue on
+- [26:33.100] with this ridiculous war
+- [26:34.300] where they've lost a million and a half people,
+- [26:35.940] by the way Russia's lost a million
+- [26:37.370] and a half people, soldiers mostly.
+- [26:40.460] This is a war that should have never started,
+- [26:42.500] but it's a war that Russia should have won
+- [26:44.290] in the first week
+- [26:45.720] and they're going into the fourth year,
+- [26:48.120] and I want to see it stop.
+- [26:49.710] So, I was not happy that India was buying oil.
+- [26:53.120] And he assured me today
+- [26:54.400] that they will not be buying oil from Russia.
+- [26:57.020] That's a big stop.
+- [26:59.260] Now, I got to get China to do the same thing.
+- [27:02.050] That is relatively easy compared to what we just
+- [27:04.970] did over the last week in the Middle East.
+- [27:08.720] Middle East was 3,000 years, and we got it done.
+- [27:12.130] This is three years, and I think we'll get it done.
+- [27:17.020] President Putin, I think he wants to get it done.
+- [27:19.260] We'll see.
+- [27:20.590] There's a great animosity between him and Zelenskyy,
+- [27:23.400] you probably have noticed, right?
+- [27:25.520] And I think it's hurting the process.
+- [27:27.410] Yeah, Please,
+- [27:28.680] The Press: Mr. President, thank you.
+- [27:29.890] I'm curious, why did you authorize the CIA
+- [27:33.080] to go into Venezuela?
+- [27:34.880] And is there more information you can share
+- [27:37.230] about these strikes on the alleged (inaudible)?
+- [27:39.030] The President: Well, I can't do that,
+- [27:40.280] but I authorized for two reasons, really.
+- [27:43.080] Number one, they have emptied their prisons
+- [27:45.430] into the United States of America.
+- [27:50.840] They came in through the border.
+- [27:52.200] They came in because we had an open-border policy.
+- [27:54.790] And as soon as I heard that,
+- [27:56.040] I said, a lot of these countries --
+- [27:57.300] They're not the only country, but they're the worst abuser.
+- [27:59.990] And they've allowed thousands and thousands of prisoners,
+- [28:07.800] people from mental institutions,
+- [28:09.530] insane asylums emptied out into the United States.
+- [28:12.990] We're bringing them back, but that's a really bad --
+- [28:15.780] And they did it at a level that probably not --
+- [28:17.970] Many, many countries have done it, but not like Venezuela.
+- [28:20.730] They were down and dirty. The other thing of drugs,
+- [28:23.340] we have a lot of drugs coming in from Venezuela.
+- [28:25.770] And a lot of the Venezuelan drugs come in through the sea,
+- [28:28.250] so you get to see that.
+- [28:29.900] But we're going to stop them by land also.
+- [28:32.250] The Press: Does the CIA have authority to take out Maduro?
+- [28:35.250] The President: Oh, I don't want to answer a question like that.
+- [28:37.160] That's a ridiculous question for me to be given.
+- [28:39.900] Not really a ridiculous question,
+- [28:41.530] but wouldn't it be a ridiculous question for me to answer?
+- [28:45.470] But I think Venezuela is feeling heat,
+- [28:47.440] but I think a lot of other countries are feeling heat too.
+- [28:50.260] We're not going to let this country, our country, be ruined
+- [28:53.060] because other people want to drop,
+- [28:55.510] as you say, their worst. They have given us their worst.
+- [28:59.400] They've loaded up our country with prisoners,
+- [29:01.720] with mentally ill people that are seriously ill,
+- [29:05.580] criminally ill, and we're not going to take it.
+- [29:08.580] So, I mean, it's just one of those things.
+- [29:10.700] And I can tell you, we've taken care of the sea
+- [29:14.570] and we're watching. We're watching.
+- [29:16.590] And if we see it, we'll save it. Yeah, please.
+- [29:18.670] The Press: On these ships though, sir,
+- [29:20.690] there are Republicans and Democrats
+- [29:22.510] up on the Hill concerned that in the briefings
+- [29:24.790] they've gotten about those attacks,
+- [29:26.880] they're not necessarily getting information
+- [29:28.370] about who was on them and what exactly was on those ships?
+- [29:31.380] Can you ensure that at least (inaudible)?
+- [29:32.790] The President: Well, but they are given information
+- [29:34.420] that they were loaded up with drugs,
+- [29:36.010] and that's the thing that matters.
+- [29:37.630] When they're loaded up with drugs, they're fair game.
+- [29:40.520] And every one of those ships were.
+- [29:42.050] And they're not ships, they're boats, they're speedboats.
+- [29:45.000] They're extremely fast record-setting type speedboats
+- [29:49.020] that cost a lot of money, and they have a lot of money
+- [29:50.870] because they're drug sellers, but they know one thing,
+- [29:54.610] and they all have the same thing in common, there's drug dust.
+- [29:59.760] They call it drug dust. They call it fentanyl dust,
+- [30:02.620] all over the boat after those bombs go off
+- [30:05.060] and you can take along-
+- [30:06.350] The Press: (inaudible)
+- [30:07.550] we attack them though that they're --
+- [30:09.620] The President: We know before. We know when they go out.
+- [30:12.170] We have much information about each boat that goes out.
+- [30:16.450] Deep, strong information. Yeah, please.
+- [30:19.890] The Press: Sir, you're going to have Vladimir Zelenskyy
+- [30:21.500] here this week.
+- [30:22.760] What is your message at this stage of the war for him?
+- [30:25.770] And shy of Tomahawks -- The President: To who is that?
+- [30:27.770] The Press: For Zelenskyy.
+- [30:29.020] And shy of Tomahawks for Ukraine,
+- [30:31.680] are you considering other options
+- [30:33.520] and will you speak with Vladimir Putin about that?
+- [30:35.580] The President: No, we're looking at other options, we are.
+- [30:38.910] President Zelenskyy is coming in.
+- [30:41.300] I'm not a fan of the war.
+- [30:42.840] I'm not a fan of the way it started.
+- [30:44.250] It should have never happened.
+- [30:45.460] It wouldn't have started if I were President.
+- [30:47.600] The election was rigged, and because of that,
+- [30:51.500] a lot of lives have been lost because of that war.
+- [30:53.470] Not American lives.
+- [30:55.540] But if I can save a lot of lives --
+- [30:57.270] That's why I'm in it, I want to save lives.
+- [31:00.060] I've had eight wars.
+- [31:01.950] The prime minister of Pakistan got up the other day,
+- [31:05.250] said so beautifully, he says, "You saved millions of lives."
+- [31:08.040] He told that to a group of people right in this office.
+- [31:10.550] He said, "The President saved millions of lives."
+- [31:13.560] And I think what he's referring to is the fact
+- [31:15.290] that that would've been with India, a nuclear war.
+- [31:18.050] That was getting very close. They don't talk about it,
+- [31:21.420] but seven aircraft were shot down.
+- [31:23.820] In fact, we have the new ambassador to India right here.
+- [31:26.920] They're well-represented.
+- [31:29.080] You better represent us, not them, okay?
+- [31:32.630] But Sergio is going to do a great job.
+- [31:34.240] He's going to do a great job.
+- [31:35.460] But no, we'll be talking about the war with him
+- [31:38.520] and we'll be talking about --
+- [31:40.240] I mean, they want to go offensive.
+- [31:44.430] I'll make a determination on that,
+- [31:46.120] but they would like to go offensive, you know that.
+- [31:49.330] And we'll have to make a determination.
+- [31:50.930] The Press: Mr. President, given you've got
+- [31:52.430] the FBI director and attorney general here today,
+- [31:54.690] Jim Jordan has asked Jack Smith
+- [31:56.580] to appear in front of the House judiciary-
+- [31:58.220] The President: You mean Deranged Jack?
+- [31:59.420] He's a deranged individual. Yeah.
+- [32:00.810] The Press: He's asked him to appear in front of the House-
+- [32:02.090] The President: Well, they should.
+- [32:03.300] I'm surprised it takes so long.
+- [32:05.110] We're talking about violent crime.
+- [32:06.440] What about the crime against a political opponent?
+- [32:09.320] That's what we have to talk about too.
+- [32:11.020] The Press: We'd like to understand the full extent
+- [32:12.900] to which the Biden-Harris Justice Department
+- [32:15.390] weaponized federal law enforcement.
+- [32:17.430] What do you think the committee will find out Mr. Smith
+- [32:19.220] (inaudible)?
+- [32:20.420] The President: I think it was the worst weaponization
+- [32:22.330] of a political opponent in the history of the world,
+- [32:24.850] let alone this country.
+- [32:27.270] I hope that everybody's -- They're involved in it.
+- [32:30.850] I'm the one that had to suffer through it and ultimately win.
+- [32:34.560] But what they did was criminal.
+- [32:37.430] Deranged Jack Smith, in my opinion, is a criminal,
+- [32:40.860] and I noticed his interviewer was, I think that was Weissman,
+- [32:45.470] and I hope they're going to look into Weissman too.
+- [32:47.470] Weissman is a bad guy and he had somebody in,
+- [32:50.860] Lisa, who was his puppet,
+- [32:53.150] worked in the office really as the top person,
+- [32:57.340] and I think that she should be looked at very strongly.
+- [33:02.060] There was tremendous criminal activity having to do --
+- [33:05.050] If we don't have fair elections in this country,
+- [33:06.970] we're not going to have a country.
+- [33:08.460] I've said it from the beginning, fair elections and borders
+- [33:11.960] and we need also fair press
+- [33:14.640] because if you don't have fair press, it's very tough.
+- [33:19.050] We've got the strongest border of anybody --
+- [33:20.680] Nobody has a border.
+- [33:21.950] We have a border where the numbers just came out again,
+- [33:24.180] you saw zero people came in illegally.
+- [33:26.810] Now, we do take people into our country legally,
+- [33:29.300] but zero people --
+- [33:30.510] But you're talking about a different subject.
+- [33:33.070] You're talking about political crime.
+- [33:34.870] They have committed massive political crime.
+- [33:39.340] I hope they're looking at Shifty Schiff.
+- [33:41.280] I hope they're looking at all these people,
+- [33:43.310] and I'm allowed to find out.
+- [33:44.560] I'm in theory the chief law enforcement officer,
+- [33:48.990] but I have a very good talented group.
+- [33:50.670] This is about something else,
+- [33:51.990] but I hope they're looking at political crime,
+- [33:53.700] because there's never been so much political crime
+- [33:56.940] against a political opponent as what I had to go through.
+- [34:01.190] They raided my house in Florida. It was an illegal raid.
+- [34:04.870] I have a lawsuit that was doing very well,
+- [34:06.910] and when I became President, I said,
+- [34:09.290] "I'm suing myself. I don't know. How do you settle the lawsuit?"
+- [34:12.800] I'll say, "Give me X dollars,"
+- [34:15.060] and I don't know what to do with the lawsuit.
+- [34:16.750] It's a great lawsuit and now I won, it looks bad.
+- [34:19.660] I'm suing myself, so I don't know.
+- [34:21.910] But that was a lawsuit that was a very strong, very powerful.
+- [34:25.330] They raided illegally my house in Florida, Mar-a-Lago.
+- [34:29.540] They went through the drawers of my young son.
+- [34:33.800] They went through all of the cabinets
+- [34:36.090] and drawers of the first lady.
+- [34:37.900] She walked in, she said, "Wow. What happened?"
+- [34:40.710] Because she's very meticulous and this wasn't so meticulous
+- [34:44.360] as she looked into the drawers and she saw everything a mess.
+- [34:48.950] What they did against the person that just got out of office.
+- [34:53.130] Then you look at these corrupt people,
+- [34:54.940] you look at Hunter Biden,
+- [34:56.630] you look at the signature as an example, the auto pen.
+- [34:59.560] I just signed so many different things,
+- [35:01.590] an admiral, a four-star general,
+- [35:04.540] I'm signing them left and right, the commission's.
+- [35:06.640] By the way, I want to compliment John Thune,
+- [35:08.970] and also Mike, our great speaker,
+- [35:11.370] but John Thune,
+- [35:12.820] all of a sudden I'm getting these things by the hundreds.
+- [35:15.130] I was getting one every two weeks.
+- [35:17.410] It would've been four years before you got them in wars.
+- [35:20.130] You would've had some that didn't even get in all
+- [35:21.910] because of Democrat obstruction. John Thune did a great job.
+- [35:27.050] I must have signed 200 into the administration.
+- [35:30.410] We're just about caught up. It's amazing.
+- [35:32.960] Compliments to John.
+- [35:34.260] He had to do some things that were very tough to do
+- [35:36.450] that he didn't want to do,
+- [35:38.470] but he was forced to do it by the Democrats.
+- [35:40.510] As far as the shutdowns concerned,
+- [35:42.530] this is a Democrat Schumer shutdown,
+- [35:46.050] and he's trying to do it to get relevance back into the party,
+- [35:48.790] because he is a loser. I've known him all his life.
+- [35:50.870] He is always been a loser, but an intelligent one.
+- [35:53.960] But I think he's losing IQ points with time.
+- [35:56.890] I think that happens. I hope it hasn't happened with me.
+- [35:59.440] I know if it did,
+- [36:00.910] you guys will let me know about it very quickly.
+- [36:04.170] The Press: Violent crime, sir, here in DC,
+- [36:06.270] a judge has given the two teenagers
+- [36:08.730] that beat up ex DOGE staffer
+- [36:11.210] (inaudible) probation.
+- [36:12.850] The President: It's incredible.
+- [36:14.090] The Press: No jail time. Is this justice?
+- [36:16.420] The President: Jeanine Pirro is doing a fantastic job
+- [36:18.660] and she is beside herself
+- [36:20.980] because you have these radical left judges
+- [36:22.950] that they beat the hell out of this guy.
+- [36:25.330] It was many people against this one guy
+- [36:29.260] who was really trying to protect his girlfriend.
+- [36:31.200] He didn't want hooded over the door because --
+- [36:34.080] But they really beat him up badly, and that just happened?
+- [36:36.340] The Press: Yes.
+- [36:37.540] The President: Wow. That's terrible.
+- [36:39.160] I think the judge should be ashamed of himself.
+- [36:43.730] That's a big problem.
+- [36:45.360] They can do their job and then they go into a court
+- [36:47.470] and the people are protected by these --
+- [36:49.010] I don't know where they come from.
+- [36:50.270] Where do these people come from? Where do the judges come from?
+- [36:53.820] I want to compliment on behalf of Pam and Todd
+- [36:56.240] and all of us because Kash,
+- [36:58.320] I think that Jeanine has done a fantastic job,
+- [37:01.370] and the case I heard was flawless.
+- [37:03.080] It's a flawless case.
+- [37:04.540] They have them on tape, they have everything
+- [37:06.670] and then a judge gives them a little probation.
+- [37:10.490] These are rough guys and they're young
+- [37:14.170] and if that happens, they're going to grow up.
+- [37:15.760] They're going to be real bad.
+- [37:18.110] They're going to cause a lot of problems.
+- [37:19.600] Yeah. Please, go ahead.
+- [37:20.890] The Press: Sergio Gor has just gotten back from India.
+- [37:24.320] What were the conversations
+- [37:25.610] like with Prime Minister Modi and the other?
+- [37:28.090] The President: I think they were great.
+- [37:29.290] He reported to me that the great -- He's a great man.
+- [37:35.290] Modi is a great man, that he loves Trump.
+- [37:38.500] Now, I don't know if the word love,
+- [37:40.310] I don't want you to take that any different.
+- [37:42.620] I don't want to destroy his political career,
+- [37:45.140] but you have to understand, I've watched India for years.
+- [37:47.450] It's an incredible country,
+- [37:49.310] and every single year you'd have a new leader.
+- [37:52.550] Some would be in there for a few months,
+- [37:53.980] and this was year after year after year.
+- [37:57.030] My friend has been there now for a long time
+- [37:59.890] and he's assured me there will be no oil from Russia.
+- [38:02.890] I don't know, maybe that's a breaking story.
+- [38:04.500] Can I say that? Would you say, there will be no oil?
+- [38:07.240] He's not buying his oil from Russia. It started.
+- [38:09.940] He can't do it immediately. It's a little bit of a process,
+- [38:13.140] but the process is going to be over with soon.
+- [38:16.090] All we want from President Putin
+- [38:17.820] is stop killing Ukrainians and stop killing Russians
+- [38:22.660] because he's killing a lot of Russians.
+- [38:24.510] Again, it doesn't make him look good.
+- [38:27.370] It's a war that he should have won in one week,
+- [38:29.740] and he's now going into his fourth year.
+- [38:32.410] That does not make this big so-called war machine look good,
+- [38:38.280] but he could make a settlement.
+- [38:40.190] We're willing to settle. I thought we had a deal.
+- [38:43.280] The hatred of the two leaders, it's an obstacle.
+- [38:47.360] It's an obstacle. There's no question about it.
+- [38:49.090] But I thought we had a deal two months ago.
+- [38:53.080] Who would think I created peace in the Middle East
+- [38:56.450] and can't get the two guys to settle,
+- [38:58.860] but I think we'll get them. But if India doesn't buy oil,
+- [39:03.400] it makes it much easier and they're not going to buy.
+- [39:05.800] They assured me within a short period of time,
+- [39:08.350] they will not be buying oil from Russia,
+- [39:10.320] and they'll go back to Russia after the war's over.
+- [39:12.650] Jennifer.
+- [39:13.910] The Press: On the shutdown, Sir,
+- [39:15.150] are FBI officials being paid right now?
+- [39:17.570] Are all the FBI employees being paid and are all the-
+- [39:19.630] The President: Well, that's what I understand. I hope so.
+- [39:21.990] Director Patel: Thanks to your great work, Mr. President,
+- [39:23.910] the (inaudible)
+- [39:25.130] and special agents at the FBI
+- [39:26.400] are going to receive their paychecks.
+- [39:28.070] The President: Got a lot of people paid actually.
+- [39:29.790] The Press: Everybody (inaudible)?
+- [39:31.040] The President: We got the people that we want paid, paid,
+- [39:33.430] and we want the FBI paid. We want the military paid.
+- [39:36.110] We got the people that we want paid.
+- [39:37.690] I'll tell you the Democrats, they don't talk about this.
+- [39:42.340] We're getting rid of programs that we didn't like
+- [39:45.810] but that were negotiated in, but we didn't like.
+- [39:48.180] We're terminating those programs,
+- [39:49.650] and they're going to be terminated on a permanent basis
+- [39:52.680] and it's thousands of people and it's billion of dollars.
+- [39:57.360] We're getting rid of a lot of things that we never wanted
+- [40:00.320] because of the fact that they made this stupid move
+- [40:03.200] and they don't want to talk about it.
+- [40:04.640] They have their day coming up.
+- [40:05.850] I hear very few people are going to be there,
+- [40:07.270] by the way, but they have their day coming up
+- [40:09.970] and they want to have their day in the sun,
+- [40:13.190] but they should really make a deal.
+- [40:15.510] What we're doing, they call him Darth Vader,
+- [40:18.760] but he's actually a very nice person, Russell Vought.
+- [40:22.060] But Russell Vought is really terminating
+- [40:25.740] tremendous numbers of Democrat projects.
+- [40:28.980] This not only jobs, the project in Manhattan,
+- [40:32.840] the project in New York,
+- [40:34.190] it's billions and billions of dollars
+- [40:36.570] that Schumer has worked 20 years to get, it's terminated.
+- [40:42.040] Tell them it's terminated, Jennifer. All right.
+- [40:44.820] The Press: Mr. President, on Hamas,
+- [40:47.840] what is your understanding of the pace
+- [40:49.840] of returning the deceased hostages?
+- [40:52.360] Are you pleased with that?
+- [40:53.930] The President: Absolutely.
+- [40:55.340] We have the living hostages all back.
+- [40:58.510] They returned some more today. It's a gruesome process.
+- [41:02.430] I almost hate to talk about it, but they're digging.
+- [41:05.260] They're actually digging.
+- [41:06.640] There are areas where they're digging
+- [41:08.420] and they're finding a lot of bodies.
+- [41:11.160] Then they have to separate the bodies.
+- [41:12.620] You wouldn't believe this and some of those bodies
+- [41:15.210] have been in there a long time,
+- [41:16.990] and some of them are under rubble.
+- [41:18.870] They have to remove rubble.
+- [41:20.870] But there are graves and some that died in tunnels
+- [41:27.670] that are way down under the earth
+- [41:30.660] and the tunnels are like three feet.
+- [41:32.280] Can you believe it, three feet high?
+- [41:33.950] They lived like this for a long period of time.
+- [41:37.220] It's a horrible atrocity.
+- [41:39.150] At the same time, we, meaning Israel,
+- [41:42.420] but I knew everything they were doing pretty much.
+- [41:45.070] I knew most of the things they were doing,
+- [41:46.810] but they've killed probably 70,000 of these people,
+- [41:52.300] Hamas, and I said, "It's time now."
+- [41:55.800] We'll see what happens. We'll also see what happens.
+- [41:57.850] Your next question's going to be the weapons.
+- [41:59.500] We want the weapons to be given up, sacrificed,
+- [42:02.840] and they've agreed to do it. Now they have to do it,
+- [42:05.140] and if they don't do it, we'll do it.
+- [42:06.590] The Press: Now, we heard the head of CENTCOM today
+- [42:08.910] suggest that Hamas needs to hurry up and disarm
+- [42:13.350] and follow your comprehensive plan,
+- [42:14.840] that it was the head of CENTCOM saying that.
+- [42:16.360] Is that not a signal to Hamas to the rest of the world
+- [42:19.420] that at some point the US military
+- [42:21.340] may more directly engaged?
+- [42:22.550] The President: We won't need the US military.
+- [42:24.810] We won't need it because we're very much involved in it.
+- [42:27.990] If we weren't involved, there wouldn't be peace
+- [42:31.310] If we didn't destroy the nuclear capability of Iran,
+- [42:36.690] that deal would've never happened for two reasons.
+- [42:38.820] The Arab nations would not have felt bold enough to do it
+- [42:41.900] because you have a very powerful at that time, Iran,
+- [42:45.650] is not powerful anymore between what Israel and US
+- [42:49.260] did because the attack was.
+- [42:51.610] If you look at it, we helped them very much.
+- [42:53.780] They will be the first to tell you,
+- [42:55.030] including shooting down thousands of drones
+- [42:57.650] that were coming into Israel. We shot them down.
+- [43:00.470] We were shooting them down like it was target practice,
+- [43:04.220] but we shot down thousands of drones and missiles
+- [43:07.540] also going into Israel.
+- [43:09.730] But between what we did to Iran that way with the conventional,
+- [43:14.450] we will call it, and what that --
+- [43:16.530] You see that beautiful plane,
+- [43:17.920] that B-2, I noticed it on the desk?
+- [43:19.880] I always thought it was beautiful,
+- [43:21.290] but I never understood it.
+- [43:22.490] Now I understand it took in hundreds of thousands of bombs
+- [43:27.750] in the form of two,
+- [43:28.970] but hundreds of thousands of pounds of bombs
+- [43:32.170] and every single bomb hit perfectly.
+- [43:34.460] Then they sent tomahawks,
+- [43:35.720] and they sent 30 tomahawks on top of it,
+- [43:38.550] and that was totally -- CNN said,
+- [43:41.220] "Well, maybe it wasn't as bad as Trump said,"
+- [43:44.870] because I said obliterated.
+- [43:46.920] Obliterated is not a strong enough word actually,
+- [43:49.980] and you saw the Atomic Energy Commission came out
+- [43:52.360] and said the word obliteration is very, very --
+- [43:55.830] Think of it.
+- [43:57.120] They came in under potential fire.
+- [44:00.510] They entered Iran airspace late at night in the dark, no moon.
+- [44:05.990] The moon was low for a reason.
+- [44:08.020] What time we picked it, couldn't see anything,
+- [44:10.560] and they hit every target and they weren't hit.
+- [44:13.630] Nobody saw that plane at plaintiff's stealth.
+- [44:15.730] Nobody saw it.
+- [44:16.930] The problem with that is it may be stealth today,
+- [44:19.890] but tomorrow it won't be,
+- [44:21.590] and we just ordered about 20 brand new B-2 bombers.
+- [44:25.420] It's unbelievable as a weapon.
+- [44:27.190] I know Putin, when I was riding with him in Alaska,
+- [44:30.040] we passed a lot of them and he said,
+- [44:32.860] "That really did the trick." I said, "Yeah, it did.
+- [44:34.990] It's amazing. The flying wing, it's-
+- [44:37.110] The Press: But you still see no reason
+- [44:38.650] for the US military to get involved in Gaza?
+- [44:40.330] The President: No, I don't see that.
+- [44:41.590] No. I think we are going to handle it very well.
+- [44:43.470] We'll be helping Israel,
+- [44:45.490] but we have other countries that are now.
+- [44:47.060] We signed many, many countries signed
+- [44:48.960] and many of those countries relatively
+- [44:51.360] are a very strong military powers
+- [44:53.870] and Hamas has no support.
+- [44:55.320] See, Hamas had the support of Iran and now Iran says,
+- [44:59.530] "Don't get us involved."
+- [45:01.180] The last time they got them involved
+- [45:02.700] didn't work out too well.
+- [45:04.800] They used to have the support of Iran.
+- [45:06.180] Today, they're trying to survive.
+- [45:11.460] When I heard the reports two weeks ago,
+- [45:13.280] "Iran's looking to build a nuclear weapon."
+- [45:15.220] I said, "Don't worry about it. They got a lot of things
+- [45:17.510] they want to do before nuclear weapons."
+- [45:19.710] I said, "The last thing they want to do is a nuclear weapon."
+- [45:22.850] It didn't work out.
+- [45:24.080] If they did a nuclear weapon before they got even close,
+- [45:27.320] that site would be attacked and it would be wiped out.
+- [45:31.020] The Press: Mr. President,
+- [45:32.300] you're meeting with President Xi in a few weeks.
+- [45:34.630] If you can't come to an agreement
+- [45:36.380] or a deal at that meeting,
+- [45:37.900] are we in for a sustained trade war with China?
+- [45:40.830] The President: Well, you are in one now.
+- [45:42.500] Look, we have 100 percent tariff --
+- [45:45.490] If we didn't have tariffs,
+- [45:47.770] we would be exposed as being a nothing.
+- [45:51.300] We would have no defense. They've used tariffs on us,
+- [45:55.910] but we've never had anybody sitting in that chair
+- [45:57.960] that felt the need to do it
+- [46:00.790] and they've allowed us to be 37 trillion in debt,
+- [46:05.490] et cetera, et cetera.
+- [46:08.070] Tariffs are a very important tool for our defense,
+- [46:11.220] for our national security. If we don't have tariffs,
+- [46:13.210] we're not going to have national security.
+- [46:15.220] As an example, if you look at Pakistan and Iran, I told them,
+- [46:20.270] I was in the midst of negotiating a trade deal
+- [46:24.420] actually with Iran and Pakistan
+- [46:26.460] was going to be in line, and because of tariffs,
+- [46:30.030] they all want to negotiate much differently.
+- [46:31.890] We're making a good deal.
+- [46:33.160] Then I heard that they're shooting at each other.
+- [46:36.180] I said during one of my conversations,
+- [46:39.400] "Are you guys going to go to war two nuclear powers?
+- [46:41.920] We are thinking about --"
+- [46:43.190] I said, "Here's the deal. You go to war,
+- [46:45.040] I'm going to put a 200 percent tariff.
+- [46:46.870] I'm going to stop you from doing any business
+- [46:48.830] in the United States." I said it to both of them.
+- [46:51.700] Within 24 hours, the war ended.
+- [46:54.230] That would've been a nuclear war.
+- [46:56.310] Again, the prime minister of Pakistan,
+- [46:58.750] who was here two weeks ago, said,
+- [47:00.900] "That that man saved many millions of lives,"
+- [47:03.960] in front of a whole group of people
+- [47:05.620] because he thought it was going to be war,
+- [47:07.770] but when it came to war or having to pay massive tariffs,
+- [47:11.770] that tariffs overrode.
+- [47:13.060] That's why it's so important, not only the money --
+- [47:15.850] We're taking in trillions of dollars --
+- [47:18.020] not only the money, but the power to keep peace,
+- [47:21.140] the power to be used for good is enormous.
+- [47:24.900] But a lot of people didn't understand tariffs.
+- [47:28.630] It's also made us very rich.
+- [47:30.890] We have a big case coming up in the Supreme Court,
+- [47:33.170] and I will tell you that's one of the most important cases
+- [47:37.010] in the history of our country,
+- [47:38.650] because if we don't win that case,
+- [47:40.230] we will be a weakened,
+- [47:44.720] troubled financial mess for many, many years to come.
+- [47:49.160] I don't even know if survivable is a good term.
+- [47:54.220] If we do, we're going to be
+- [47:55.480] the most powerful economic country in the world,
+- [47:58.190] and all we're doing is using them as a defense
+- [48:01.970] against what took place for many years.
+- [48:04.800] China would charge us tariffs, it was incredible,
+- [48:07.050] but we weren't allowed to charge.
+- [48:09.180] So we're allowed to do whatever we want, we just had
+- [48:11.630] Presidents that didn't want to do it for whatever reason.
+- [48:14.860] And it was nothing. But of the eight wars,
+- [48:17.250] I was saying seven of the eight wars,
+- [48:19.770] I would say tariffs are directly responsible
+- [48:23.340] for me ending six of them.
+- [48:26.710] Five or six. Without the tariffs,
+- [48:29.610] you have wars raging all over the world.
+- [48:31.790] With the tariffs,
+- [48:33.050] other than Russia, we have no wars out there.
+- [48:36.150] And we've made a lot of good friends too.
+- [48:39.920] Tariffs are so important to our national security.
+- [48:45.210] If we don't have tariffs, we don't have national security.
+- [48:50.390] Our country would suffer a level that --
+- [48:54.090] Because they use so strongly on us.
+- [48:56.860] As an example, European Union, they won't take our cars,
+- [49:00.360] they won't take our agriculture. They won't take anything.
+- [49:02.890] But they send their cars in.
+- [49:04.700] Mercedes, BMW, Volkswagen, by the millions.
+- [49:08.400] We don't send any cars. They don't take them.
+- [49:10.800] They were tariffing us out.
+- [49:13.340] Agricultural product. They don't take our agriculture.
+- [49:15.470] They want their farmers to do it. I understand that.
+- [49:18.080] But it was very unfair and they were tariffing our product.
+- [49:21.340] They're keeping us out by using tariffs.
+- [49:23.580] And we didn't use it, but I used them.
+- [49:25.770] And now we made one of the great deals with Europe.
+- [49:29.120] $650 billion they pay us.
+- [49:31.670] And we've evened it out, it's really a good thing to see.
+- [49:35.950] And you have to understand, they've all signed.
+- [49:37.950] Japan, South Korea.
+- [49:40.390] South Korea, $350 billion up front.
+- [49:44.100] Japan, $650 billion.
+- [49:48.500] And they've all agreed to it, they're all happy.
+- [49:50.730] But before, it was a total ripoff.
+- [49:52.780] And if we don't have the use of tariffs,
+- [49:55.920] we have no national security.
+- [49:57.440] This country will have no financial security,
+- [49:59.400] will not have national security.
+- [50:01.670] And the people that brought the lawsuit are people
+- [50:03.540] that are aligned with foreign nations
+- [50:07.210] that are now being treated fairly as opposed
+- [50:09.870] to just ripping us off and ripping us asunder.
+- [50:13.610] But if we don't, if are not allowed to use
+- [50:16.360] what other people use against us,
+- [50:18.740] there's no defense. It'll be a disaster for America.
+- [50:22.080] That's why I think I'm going to go to the Supreme Court
+- [50:24.750] to watch it. I've not done that. And I had some pretty big cases.
+- [50:29.440] I think it's one of the most important cases ever brought
+- [50:33.560] because we will be defenseless against the world. Okay?
+- [50:39.450] (inaudible) Did you have one? Yes, please.
+- [50:43.400] The Press: Thank you, Mr. President.
+- [50:44.630] I want to ask you about the Georgia Senate race.
+- [50:47.020] I know it's very early, but there's several Republicans
+- [50:49.230] in that field that are vying for your endorsement.
+- [50:51.250] The President: A lot of good people in that field.
+- [50:52.890] I know all of them. Actually.
+- [50:54.960] I haven't made a decision on that,
+- [50:56.370] but you have some very good people
+- [50:58.300] in the Georgia Senate race.
+- [51:00.810] The Press: Well, governor has endorsed --
+- [51:02.610] The President: No, no, the governor has --
+- [51:03.920] He's spoken to me about it a lot.
+- [51:05.430] He likes that candidate a lot.
+- [51:08.400] And I understand that. I haven't made a decision yet,
+- [51:12.440] but I'm following that race very carefully.
+- [51:14.320] I think it's very important for Georgia to get a real senator
+- [51:16.990] because the senator they have now is a horrible senator.
+- [51:20.040] He allows all the crime, all the borders.
+- [51:22.890] You have open borders.
+- [51:24.140] I mean, his whole philosophy is a disaster.
+- [51:26.490] That's not representative of the people of Georgia.
+- [51:28.640] I know the people of Georgia.
+- [51:29.960] I won Georgia three times, but they say twice.
+- [51:34.530] Okay. I wanted very big the last time
+- [51:37.160] and I won it big the first time and I won big the second time.
+- [51:39.990] But we had criminals that didn't allow --
+- [51:43.420] I mean, I hope they're going to go into that.
+- [51:45.190] I hope they go into the votes
+- [51:47.180] which are being stored in Fulton County
+- [51:49.610] and take a look, a real look at those votes.
+- [51:51.260] Okay.
+- [51:52.470] I won it the second time too, but I know Georgia very well.
+- [51:55.800] I love Georgia. Those people are great,
+- [51:58.180] and they deserve a good senator
+- [51:59.540] because the man they have now is a weak, ineffective person.
+- [52:03.540] Okay.
+- [52:04.870] The Press: Mr. President (inaudible).
+- [52:09.670] By the way, you won Georgia three times.
+- [52:11.230] The President: Yeah. I agree. Do you agree with me?
+- [52:12.580] The Press: I do.
+- [52:13.780] The President: And he's the media. He's the media.
+- [52:14.990] The Press: For someone who spends a lot of time in Georgia.
+- [52:17.440] I believe you won that.
+- [52:18.660] I really have a question about the --
+- [52:20.030] The President: You know the word believe
+- [52:21.390] isn't strong enough, right? You know.
+- [52:23.800] The Press: There you go.
+- [52:25.090] The President: I know. I won too.
+- [52:26.310] Oh, we have the great Newt Gingrich.
+- [52:28.110] Newt, you agree with us?
+- [52:29.920] Good. Otherwise, I'd have him dismissed immediately from
+- [52:31.990] (inaudible)
+- [52:33.310] his wife is becoming an ambassador
+- [52:35.790] to a great country, Calista. So congratulations.
+- [52:38.790] And we're going to take a picture.
+- [52:40.880] And the only reason I'm doing -- He speaks so well of me.
+- [52:44.950] He said, I'll go down as the greatest
+- [52:47.000] President in history. And then he blew it.
+- [52:49.390] He said, I'm not sure if I put him above Washington or Lincoln.
+- [52:54.690] So I'm not that happy about that, dude.
+- [52:56.970] The Press: I've got a question
+- [52:58.220] about the weaponization of the DOJ.
+- [53:00.030] The media often says your department
+- [53:02.240] is weaponizing the DOJ.
+- [53:03.980] The President: That's the opposite.
+- [53:05.240] The Press: It's the opposite. Todd, you represented President
+- [53:07.460] Trump in probably the greatest weaponization
+- [53:10.350] of the DOJ by Alvin Bragg.
+- [53:12.490] You know firsthand, if you can describe what you saw
+- [53:16.100] under the Biden administration and how they weaponized the DOJ.
+- [53:20.290] General Blanche: Well, I mean, I think it's hard to describe
+- [53:24.650] what happened those last four years after President Trump.
+- [53:28.640] Alvin Bragg, a local prosecutor,
+- [53:31.090] his office staffed by somebody from DOJ.
+- [53:33.890] Jack Smith, picked as a special counselor,
+- [53:36.780] staffs his entire office with DOJ prosecutors.
+- [53:39.690] And then there are countless things
+- [53:41.030] that happened all in writing.
+- [53:43.670] Most of them on the docket that require no explanation
+- [53:46.840] except for a complete abomination of the place
+- [53:49.820] that the Attorney General and I run now and Director Patel.
+- [53:52.580] So when people talk about this department weaponizing,
+- [53:56.450] it's embarrassing because there's no scenario
+- [53:59.290] in which you can look at what we're doing, restoring justice,
+- [54:02.690] doing the right thing in every single case,
+- [54:05.330] and say that that's weaponization,
+- [54:08.010] and yet remain eerily silent
+- [54:10.870] about what happened for the past three years.
+- [54:13.010] I mean, you read these articles and giggle
+- [54:15.670] because it cannot be true that people really think
+- [54:18.050] that what they did to him,
+- [54:20.040] not once, not twice, I'm still counting three, four times,
+- [54:25.430] but we're the ones that are weaponizing.
+- [54:27.000] So this man is not weaponizing the Department of Justice.
+- [54:29.330] We're not weaponizing the Department of Justice.
+- [54:31.150] It's the opposite.
+- [54:32.360] I mean, and also nobody questions what I'm saying
+- [54:35.320] because it's true because we all lived the past four years.
+- [54:38.280] So listen-
+- [54:39.540] The President: They never want to bring up the details,
+- [54:41.640] but I watch the fake news and, "Oh, he's weaponized
+- [54:47.220] and he wants to send them to prison. He wants all these."
+- [54:50.910] They indicted me like five times.
+- [54:54.950] I took a mug shot.
+- [54:56.720] Who would've thought it turned out to my favor
+- [54:58.840] because it was a good shot, but I had to take a mug shot.
+- [55:01.760] It's right out there in the door.
+- [55:03.190] New York Post front page of every paper in the world.
+- [55:07.640] I had a mug shot they wanted to send me//.
+- [55:09.780] Nobody says that.
+- [55:11.050] They say, "He's acting very, very tough. He's acting unfair."
+- [55:14.820] Let me tell you if they've been nice to anybody,
+- [55:18.850] it's to those criminals because they are so good having to do
+- [55:22.650] with all of the things we're talking about today
+- [55:24.660] with violent crime.
+- [55:26.570] But if anything, I think this Justice Department
+- [55:29.580] has been so respectful of the law
+- [55:33.070] because the other Justice Department with Rita or Lisa
+- [55:37.360] and all of that scum, real scum.
+- [55:41.040] What they did to the political opponent of a guy
+- [55:43.960] that has a seriously low IQ.
+- [55:46.740] Now, in his case, it was low based on his career,
+- [55:52.750] but it got real low. It was descending rapidly.
+- [55:58.440] But what they did to go
+- [56:01.050] after his political opponent is legendary.
+- [56:04.680] Worse than any Third World country, Banana Republic.
+- [56:09.120] And what we are doing is nothing.
+- [56:12.470] Are you kidding? Nothing. They write stories.
+- [56:15.620] "Why aren't they doing this? This?"
+- [56:18.010] And I don't have to leave it up to them,
+- [56:22.690] but I choose to at this moment at least.
+- [56:25.470] But there's never been anybody treated
+- [56:27.720] in the history of politics.
+- [56:29.690] They say the two worst treated Presidents
+- [56:32.550] by the media, et cetera, was that man right there.
+- [56:36.160] The late great Abraham Lincoln.
+- [56:38.740] And this grant right there, Andrew Jackson.
+- [56:42.410] They say Andrew Jackson was treated terribly.
+- [56:46.130] They give him number one and number two.
+- [56:47.700] But that was before I came along, Newt.
+- [56:49.810] I say I have number one times 10.
+- [56:53.460] Nobody's been treated like I've been treated,
+- [56:56.260] and I did a great job.
+- [56:57.570] We had a great first term,
+- [57:00.150] and we had one of the most successful economies in history,
+- [57:02.800] et cetera. I rebuilt the military.
+- [57:04.170] We did a tremendous amount.
+- [57:05.920] The last part, we had a horrible thing called COVID,
+- [57:10.960] and we handled that well.
+- [57:12.260] We made ventilators for nations all over the world.
+- [57:16.230] I mean, we did a great job.
+- [57:17.690] Probably never get credit for it.
+- [57:19.090] Look at the therapeutics, the Regeneron,
+- [57:21.370] all the different things, the vaccines,
+- [57:23.070] all the things we did.
+- [57:24.500] We did a great job, but we had a focus on that.
+- [57:27.950] But we had the best economy in the history of our country.
+- [57:31.300] We're blowing it away right now. Look at the stock market.
+- [57:33.630] Hit it another all-time high today.
+- [57:36.120] That's 48 days out of the few days that I've served.
+- [57:39.960] 48 days have already hit record highs.
+- [57:43.450] And we have maybe most importantly, the number --
+- [57:45.690] We have now, I was saying 17.
+- [57:47.900] It's over $18 trillion is being poured into our country.
+- [57:52.450] It's because of the election and because of tariffs.
+- [57:55.090] Without the tariffs, you wouldn't have probably 18 cents.
+- [57:59.000] It's because of the tariffs.
+- [58:00.380] Because there are no tariffs if they build on our country,
+- [58:03.770] in our country, and they understand that.
+- [58:06.610] So we have medical companies coming over.
+- [58:08.420] We have the AI. We're dominating China in AI.
+- [58:11.920] Everybody said that's impossible.
+- [58:13.330] We're dominating. I'm letting these massive plants
+- [58:16.420] build their own electric-generating plants.
+- [58:18.520] They're becoming utilities in addition to everything.
+- [58:20.900] Maybe they'll make more money with that.
+- [58:22.200] Who knows? But they're building their own electric
+- [58:25.360] because we have an old grid. You wouldn't be able to do that.
+- [58:28.030] And we're dominating China. We're dominating with AI,
+- [58:30.910] which seems to be the new big thing.
+- [58:33.040] That's the new internet. That's the new whatever.
+- [58:36.030] So we're very happy with the job we're doing.
+- [58:37.880] I'm very happy with the job they're doing.
+- [58:39.720] But when you tell me about attacking a political opponent,
+- [58:43.140] there's never been --
+- [58:44.730] And I'm a legitimate opponent. I watched my son.
+- [58:46.940] He's got the number-one bestselling book now.
+- [58:49.500] My son Eric, he's a wonderful kid.
+- [58:51.480] That guy spends so much time with subpoenas.
+- [58:54.240] He got more subpoenas than anybody
+- [58:55.750] in the history of our country.
+- [58:57.620] Think of it. And he's an innocent good boy.
+- [59:00.330] He's a good kid. He's always been a good kid.
+- [59:03.210] All of my children are good. They went through hell.
+- [59:05.860] My children went through federal grand juries on a hoax.
+- [59:09.580] Think of it.
+- [59:10.860] You have Adam Schiff and Hillary Clinton
+- [59:12.760] and others make up a hoax and then wanting to put --
+- [59:16.820] So they know it's a hoax.
+- [59:18.890] And they go before the press say,
+- [59:20.250] "Donald Trump, Jr. will go to jail
+- [59:23.970] because of what he's done with Russia."
+- [59:26.580] I'll never forget, I get a call from my son, Don, and he said,
+- [59:30.850] "Dad, I'm being accused of something with Russia.
+- [59:33.750] I don't know anything about Russia."
+- [59:36.230] He didn't know anything about -- Think of it how bad they are.
+- [59:40.020] They say he'll go to prison for the rest of his life.
+- [59:43.080] He knew nothing about it. On a hoax. The Russian hoax.
+- [59:47.110] Russia, Russia, Russia hoax. On a story that they made up
+- [59:53.110] and they made it up in order to explain why Hillary Clinton
+- [59:57.130] lost an election that lost by pretty good numbers.
+- [59:59.980] The second one, this one.
+- [01:00:02.010] Actually the second one was even better,
+- [01:00:03.520] but the third one, this one was too big to rig.
+- [01:00:06.430] It was just too big to rig.
+- [01:00:07.690] They would've rigged. They tried to rig it.
+- [01:00:10.420] But think of it, they want to send my children to jail.
+- [01:00:13.100] But they were after Don in particular.
+- [01:00:15.780] I'll never forget Adam Shifty-Shiff,
+- [01:00:18.090] a total crooked guy lying in Congress,
+- [01:00:21.280] making up a phone conversation that I have with you.
+- [01:00:23.760] Totally made up.
+- [01:00:24.990] Then when he heard it was taped, he wanted to disappear.
+- [01:00:29.030] And Nancy Pelosi went crazy
+- [01:00:30.750] because they wanted to impeach me
+- [01:00:32.730] based on the conversation that was made up.
+- [01:00:35.470] When they heard the tape, everybody --
+- [01:00:37.130] I won it unanimously, the Republican Party.
+- [01:00:39.670] I got every single vote, something that never happens,
+- [01:00:42.310] and I beat it.
+- [01:00:44.690] But think of it, they want to put my son in jail
+- [01:00:48.340] for something that they made up. So they know they made it up
+- [01:00:52.450] and they say he will serve the rest of his life in prison.
+- [01:00:56.790] These are sick, bad people,
+- [01:00:58.850] and don't tell me about us going after them.
+- [01:01:01.690] If anything we've been very, very soft.
+- [01:01:04.480] I wouldn't be that soft. I'll tell you that.
+- [01:01:06.080] Thank you very much everybody.

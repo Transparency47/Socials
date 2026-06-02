@@ -1,0 +1,317 @@
+<!-- source: https://www.youtube.com/watch?v=gIY0EU76sMU -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: gIY0EU76sMU -->
+<!-- date_published: 2025-09-08T02:39:21+00:00 -->
+<!-- date_accessed: 2026-06-02T01:16:27.168961+00:00 -->
+
+# Transcript: President Trump Gaggles with Press at Joint Base Andrews, Sep. 7, 2025
+
+- [00:00.200] The President: Thank you very much.
+- [00:01.430] I meant to go back and see you on the plane,
+- [00:02.980] but some things came up having to do with Hamas, et cetera.
+- [00:07.900] And we're working on a solution that maybe could be very good.
+- [00:12.050] The Press: Can you tell us about that?
+- [00:13.410] The President: No, but you'll be hearing about it pretty soon.
+- [00:15.640] We're trying to get it ended, get the hostages back,
+- [00:18.710] get it ended. We got them all back, but 20.
+- [00:21.920] And as you know, we have 20, plus there are a lot
+- [00:23.890] of unfortunately dead bodies involved
+- [00:27.080] and they want them back. The parents want them back.
+- [00:29.090] So we had some very good discussions.
+- [00:32.110] Good things could happen.
+- [00:33.500] The Press: Could you give us your reaction
+- [00:35.300] to South Korea's regrets, or calling it regrettable,
+- [00:39.510] what happened with their workers at the Hyundai plant?
+- [00:42.110] The President: Well, I'll speak to them.
+- [00:44.020] You know, look, it's a battery factory.
+- [00:46.670] In that case, it is upheld.
+- [00:48.860] And, you know, when they're building batteries,
+- [00:52.370] if you don't have people in this country
+- [00:54.250] right now that know about batteries,
+- [00:55.980] maybe we should help them along and let some people come in
+- [00:59.540] and train our people to do complex things,
+- [01:02.980] whether it's battery manufacturing or computer
+- [01:05.410] manufacturing or building ships.
+- [01:08.090] So we're going to look at that whole situation.
+- [01:11.140] We have a lot of industries that we don't I don't have any more.
+- [01:14.210] And we're going to have to train people.
+- [01:16.020] And the way you train people is bring people
+- [01:17.880] in that know what they're doing
+- [01:19.170] and let them stay for a little while and help.
+- [01:21.840] So I'm going to look at that.
+- [01:23.150] This is a very interesting situation
+- [01:24.970] that took place in Georgia. And we heard about it yesterday.
+- [01:31.420] At the same time ICE was doing right
+- [01:33.860] because they were here illegally.
+- [01:35.910] But we do have to work something out where we bring in experts
+- [01:39.900] so that our people can be trained
+- [01:41.460] so that they can do it themselves.
+- [01:42.970] Does that make sense? Right?
+- [01:45.140] The Press: Is it straining the relationship with Korea at all?
+- [01:47.760] The President: No, we have a great relationship
+- [01:49.140] with South Korea. It's a really good relationship.
+- [01:51.880] You know, we just made a trade deal.
+- [01:54.090] But I'm going to look at it
+- [01:56.210] because I understand exactly what they're saying.
+- [01:58.950] The Press: (inaudible) crowns you,
+- [02:00.540] (inaudible)
+- [02:01.750] crowned you the king of the U.S. Open.
+- [02:03.630] They put out all these old pictures
+- [02:05.580] through the years of you at the U.S. Open.
+- [02:07.750] What does it mean for you to go back
+- [02:09.060] after going for so many decades, growing up in Queens,
+- [02:11.940] now you're going back as the president?
+- [02:13.880] The President: Well, I loved it.
+- [02:15.170] First of all, the two players have unbelievable talent.
+- [02:18.950] It just seemed that they hit the ball harder
+- [02:20.840] than I've ever seen before. Incredible talent.
+- [02:24.360] And I enjoyed it and I used to go all the time
+- [02:27.290] but you know lately it's a little bit more difficult
+- [02:30.140] to go I really enjoyed it they were really nice --
+- [02:33.240] the fans were really nice I didn't know what to expect.
+- [02:36.940] Usually you would say that would be a somewhat progressive
+- [02:39.370] as they say nowadays, yeah,
+- [02:41.230] sometimes some people would call it liberal
+- [02:43.780] but we'll use the word they like to use progressive,
+- [02:47.140] but they were they were great. The fans were great
+- [02:50.050] The Press: Mr. President, back on Russia.
+- [02:53.890] Russia had a pretty big attack on Ukraine over the weekend.
+- [02:56.560] The President: Yeah, I know all about it.
+- [02:57.900] The Press: You have always said how good the relationship
+- [03:00.580] is with President Putin,
+- [03:02.150] but he's not really giving you anything that you want.
+- [03:05.020] Is that making you less trustful of him?
+- [03:08.280] The President: Well, nobody was tougher in Russia than me.
+- [03:11.100] That has to do with the pipeline, as you know,
+- [03:13.910] Nord Stream 2 and lots of other things.
+- [03:16.080] But I'm not happy. I'm not happy.
+- [03:19.210] I'm no happy about the whole situation.
+- [03:21.130] You know, it's interesting.
+- [03:22.400] It doesn't affect us because it's not our soldiers.
+- [03:26.720] But they're losing -- now, I used to tell you 5,000.
+- [03:28.870] They're losing 7,000 -- between Ukraine and Russia, 7,
+- [03:32.840] 000 soldiers every single week.
+- [03:36.600] It's such a horrible waste of humanity.
+- [03:40.060] So, no, I am not thrilled with what's happening there,
+- [03:42.580] I will tell you. I think it's going to get settled.
+- [03:45.440] So, I settled seven wars. This, I would have said,
+- [03:48.620] would have been maybe the easiest one to settle of all.
+- [03:51.970] But with war, you never know what you're getting.
+- [03:54.530] But we're going to it's --
+- [03:55.820] I believe we're going to getting it settled.
+- [03:57.700] But I am happy with them.
+- [03:59.620] I'm not happy with anything having to do with that war.
+- [04:02.900] It's just such a waste of great humanity.
+- [04:05.770] The Press: (inaudible)
+- [04:09.150] Ukraine. I have to ask him right now,
+- [04:10.940] what do you think is the greatest obstacle
+- [04:12.720] to a peace deal?
+- [04:14.340] The President: Well, we're going to see.
+- [04:15.630] I mean, we have some very interesting discussions.
+- [04:19.380] You know, Europe, certain European leaders
+- [04:21.610] are coming over to our country on Monday or Tuesday,
+- [04:25.590] and individually.
+- [04:28.480] And I think we're going to get that settled.
+- [04:30.840] I think they're going to get it settled.
+- [04:33.200] We have to.
+- [04:34.490] You can't lose, you know, when they're losing five
+- [04:37.120] to seven thousand soldiers a week for no reason,
+- [04:41.360] you have to get it settled. Of all of the wars,
+- [04:44.110] whether it's the Congo and Rwanda,
+- [04:46.850] they said it was impossible to settle.
+- [04:49.920] You look at every one of,
+- [04:51.680] I mean, every one of these wars were impossible.
+- [04:53.630] I got every one settled, seven of them. Seven.
+- [04:57.500] This was the one I really thought would be the easiest,
+- [04:59.590] but it's not.
+- [05:00.830] But I think it's going to get settled.
+- [05:02.880] The Press: There was a recording in Axios
+- [05:04.780] that in the last three months of the Biden administration
+- [05:07.280] they did about 4,000 pardons.
+- [05:09.390] The Chief of Staff's assistant was sending emails
+- [05:12.170] to pardon his own family members.
+- [05:14.120] Are you still interested in getting to the bottom
+- [05:15.810] of the auto pin scandal?
+- [05:17.080] The President: Well, I think the auto pen
+- [05:18.290] is one of the great scandals of our time.
+- [05:21.280] The auto pen was our president, or to put it a different way,
+- [05:26.010] whoever operated the auto-pen was our President.
+- [05:30.400] It's not allowed. It's just not allowed,
+- [05:33.140] and they gave a pardon to the unselected committee.
+- [05:36.800] After the unselected committee realized
+- [05:39.290] that that whole situation was a hoax,
+- [05:41.670] and it was all their fault,
+- [05:43.590] including Nancy Pelosi turning down security and all,
+- [05:47.280] you know, turning down soldiers. It all came out bad for them.
+- [05:52.070] They burned everything. They got rid of everything.
+- [05:54.860] There's absolutely nothing there. It's all gone.
+- [05:58.830] And that was based on an auto pen,
+- [06:01.740] you know, they gave those members of Congress
+- [06:05.200] that were on the unselected committee,
+- [06:07.510] they gave them part. So I think it's a big --
+- [06:11.410] I think its a tremendous scandal.
+- [06:12.900] The Press: What do you think the media would say
+- [06:14.790] if you pardoned your kids your last day in office
+- [06:17.040] via an auto pimp?
+- [06:18.250] Don't you think that media would go haywire?
+- [06:19.510] The President: Well, I think it would have been a big story.
+- [06:21.440] Would have been a -- I like this guy.
+- [06:24.060] The Press: (inaudible).
+- [06:34.200] The President: Where was -- the subway was where?
+- [06:36.250] The Press: (inaudible)
+- [06:41.160] The President: Horrible. No, I haven't heard.
+- [06:43.970] When did this happen?
+- [06:45.460] The Press: (inaudible)
+- [06:47.520] The President: Oh, I see. Yeah, I'll see the video.
+- [06:51.360] I'll know all about it by tomorrow morning. Thank you.
+- [06:54.030] The Press: Do you have plans for Chicago this week?
+- [06:56.360] The President: No, not really. Not really.
+- [06:58.780] We're going to go someplace, but we're picking.
+- [07:00.810] Look, D.C. now is 100 percent. I don't want to say 100,
+- [07:05.040] but it's pretty close to 100 percent healthy,
+- [07:09.280] happy, thriving.
+- [07:11.570] It's a crime-free zone. You know that.
+- [07:13.360] You know, you could go out to dinner tonight, Jeff.
+- [07:15.470] You can go out to dinner.
+- [07:17.200] And you most likely will not be harmed.
+- [07:19.350] You know that. You won't be beaten to hell.
+- [07:20.990] The Press: There's still some crime.
+- [07:22.360] The President: Huh?
+- [07:23.560] The Press: There's still some crime.
+- [07:24.760] The President: Very little.
+- [07:25.990] And within a week, within a week there will be nothing.
+- [07:27.710] Do you agree with me?
+- [07:28.960] The Press: I feel much safer walking around.
+- [07:30.330] I can't fight though.
+- [07:31.610] The President: No, it's a safe place now.
+- [07:33.420] The Press: But you've been talking a lot about Chicago
+- [07:34.920] and there was --.
+- [07:36.150] The President: No, no, Chicago's been talking a lot.
+- [07:38.160] So, Chicago, last week, lost nine people were killed
+- [07:42.990] and 28 people were shot.
+- [07:45.670] The week before it was seven people were kill and 37 people
+- [07:49.460] were shot, the week before It's the same kind of numbers.
+- [07:53.760] Chicago is a very dangerous place,
+- [07:56.540] and we have a governor that doesn't care about crime,
+- [07:59.320] I guess.
+- [08:00.960] We could solve Chicago very quickly,
+- [08:02.890] but we're going to make a decision
+- [08:04.710] as to where we go over the next day or two.
+- [08:07.640] When you look at what happened to D.C.
+- [08:09.540] In a short period of time, honestly, it's amazing.
+- [08:13.390] Over a period of 12 days. In other words, on the 12th day,
+- [08:17.180] we had the crime just about solved.
+- [08:20.910] And right now, people are walking out.
+- [08:22.520] They're going out right now to restaurants all over DC.
+- [08:26.120] Whereas, if you go back a year ago,
+- [08:28.410] or six months ago, nobody was going out.
+- [08:32.060] Nobody. We did it in 12 days.
+- [08:34.270] Now it's better than it was in 12 day.
+- [08:37.080] We'll make it even better.
+- [08:38.390] And then we're also going to clean it up.
+- [08:39.980] We're going to clean up the city.
+- [08:41.220] We are going to make some great improvements to the roads,
+- [08:44.020] to the media, you know, to all of the signs.
+- [08:47.940] You got signs that have been up for 30, 40 years.
+- [08:50.160] They're worn out. They look like hell.
+- [08:52.190] We'll going to redo the signs, we're going to put up new signs.
+- [08:54.790] It's going to look beautiful. And within a six-month period,
+- [08:58.970] You have, essentially, a crime-free zone.
+- [09:02.840] I mean, here we are on a nice Sunday evening.
+- [09:07.440] If you'd like -- it feels like Saturday, actually --
+- [09:10.390] if you'd, you could go out and you could have dinner on me.
+- [09:14.810] But you wouldn't do that.
+- [09:16.490] But you could dinner on me if you like.
+- [09:18.660] Go ahead. What else?
+- [09:20.600] The Press: When do you plan to speak to President Putin next,
+- [09:22.990] and what might (inaudible)?
+- [09:26.220] The President: Look, we're going to get it done.
+- [09:29.470] The Russia-Ukraine situation, we are going to get it down.
+- [09:32.390] I have confidence we are going to get it done.
+- [09:35.270] Think of it, I got seven done,
+- [09:37.130] all of which were impossible to do.
+- [09:42.150] If you look at any one of the seven, you know them,
+- [09:44.360] I don't have to go through them. Many of them were impossible.
+- [09:47.810] One was 31 years, 10 million people killed.
+- [09:52.200] One was 34 years with 8 million people killed.
+- [09:55.520] How about the Congo? They lost 9 million people,
+- [09:59.390] and it went on for years with Rwanda.
+- [10:02.780] All settled. Everybody happy.
+- [10:05.670] The one that I thought would have been, for me, the easiest.
+- [10:08.680] Because of Putin, I thought that would have been --
+- [10:12.250] it's not turned out that way,
+- [10:13.640] but we're going to get it settled.
+- [10:15.340] The Press: (inaudible)
+- [10:25.050] The President: I think we're going to have a deal
+- [10:26.680] on Gaza very soon. It's a hell of a problem.
+- [10:32.050] Again, it's a problem we want to solve for the Middle East,
+- [10:35.980] for Israel, for everybody.
+- [10:39.250] But it's -- it's problem we're going to get done.
+- [10:42.760] So they have hostages.
+- [10:44.590] It could be a little bit less than 20
+- [10:46.200] because some -- you know, they tend to die, right?
+- [10:48.370] They tend to -- even though they're young people,
+- [10:50.330] largely, they're dying.
+- [10:51.810] Young people don't die. Young people stay alive.
+- [10:55.650] But with this whole thing, they tend to die.
+- [10:59.500] But we have, let's say, 20 people,
+- [11:01.150] and we have about 38 bodies. Bodies, meaning bodies.
+- [11:05.250] The Press: (inaudible).
+- [11:06.640] The President: Yeah, I think so.
+- [11:07.920] I think we're going to get them all.
+- [11:09.360] The Press: Did you see the turnover
+- [11:11.260] of the Japanese Prime Minister
+- [11:13.500] stepping down? Do you have any reaction to that?
+- [11:15.480] The President: No, I was surprised because I knew him.
+- [11:17.230] I liked him. And he's just now stepping down.
+- [11:21.010] A little bit surprised.
+- [11:23.060] I found him to be a very nice man, actually.
+- [11:25.070] We dealt very well together.
+- [11:28.750] The Press: The price of beef continues to rise
+- [11:30.610] and other items keep going up.
+- [11:32.290] Is there any way to address the cost of beef?
+- [11:34.140] The President: You know, once it kicks in,
+- [11:35.830] once our policies kick in,
+- [11:38.680] the price of beef will be going down.
+- [11:40.800] Just like the price eggs went down
+- [11:42.740] and the price a lot of other grocery items went down,
+- [11:45.940] beef will go down.
+- [11:47.290] It'll all go down, energy has gone way down.
+- [11:50.800] The price of gasoline has gone.
+- [11:53.530] Really, I mean, I think you'll be hitting $2 very soon.
+- [11:56.570] And it was $4.50 a little while ago.
+- [11:58.840] So energy has gone way down.
+- [12:01.220] That brings everything else with it.
+- [12:02.630] But beef has gone, as you know, for other reasons.
+- [12:05.780] The price of beef has got up a little bit.
+- [12:08.480] It'll be coming down.
+- [12:10.360] The Press: (inaudible)
+- [12:11.560] in the Oval Office, you said that the First Lady expressed
+- [12:14.740] she wasn't too enamored with Putin.
+- [12:16.270] You said you came home, you spoke to Putin,
+- [12:18.620] she said, well, I heard he just blew up a village today.
+- [12:20.950] Has she expressed anything since you've come back from Alaska?
+- [12:23.260] The President: The first lady actually got along great
+- [12:25.570] with Putin, as I did.
+- [12:28.040] But, you know, we're disappointed.
+- [12:30.000] Both of us are disappointed that this ridiculous war continues.
+- [12:34.910] The Press: Are you proud to see her sending the letter
+- [12:36.570] that she sent to (inaudible)?
+- [12:37.770] The President: Yeah, she is, and she felt very strongly
+- [12:39.760] about the children.
+- [12:41.120] Yeah, feels very badly about it. Thank you, everybody.
+- [12:44.480] The Press: Do you have plans to go to Japan
+- [12:46.580] and South Korea this fall?
+- [12:47.880] The President: What does that mean?
+- [12:49.100] The Press: Do you plan to go South Korea and Japan?
+- [12:51.520] The President: Maybe. I mean, we'll see.
+- [12:53.080] But it's going to be very interesting what comes out.
+- [12:55.440] I think we may have learned something.
+- [12:57.780] Because when they come here and there's nobody
+- [13:00.360] that can do what they're supposed to be doing
+- [13:02.250] and they bring people,
+- [13:03.570] those people can also teach our people.
+- [13:05.730] You know, it's complicated stuff.
+- [13:07.900] And something very interesting could come out of that.
+- [13:11.600] Thank you, everybody.

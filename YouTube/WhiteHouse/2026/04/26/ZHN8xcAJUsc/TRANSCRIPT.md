@@ -1,0 +1,664 @@
+<!-- source: https://www.youtube.com/watch?v=ZHN8xcAJUsc -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: ZHN8xcAJUsc -->
+<!-- date_published: 2026-04-26T03:06:08+00:00 -->
+<!-- date_accessed: 2026-06-02T02:34:53.661470+00:00 -->
+
+# Transcript: President Trump Delivers Remarks, Apr. 25, 2026
+
+- [19:27.320] The President: Well, thank you very much.
+- [19:29.700] That was very unexpected, but incredibly acted upon
+- [19:37.040] by Secret Service and law enforcement.
+- [19:39.070] And this was an event dedicated to freedom of speech
+- [19:45.410] that was supposed to bring together members
+- [19:47.940] of both parties with members of the press.
+- [19:51.130] And in a certain way it did
+- [19:53.360] because the fact that they just unified,
+- [19:57.500] I saw a room that was just totally unified.
+- [19:59.610] It was in one way, very beautiful.
+- [20:01.920] A very beautiful thing to see.
+- [20:03.310] A man charged a security checkpoint
+- [20:06.300] armed with multiple weapons and he was taken down
+- [20:11.060] by some very brave members of Secret Service
+- [20:13.390] and they acted very quickly and have just released,
+- [20:17.570] for purposes of transparency, clarity,
+- [20:21.220] I've ordered it to be put out.
+- [20:23.570] You probably have it by now, put out on truth
+- [20:26.050] and put out on many of the platforms.
+- [20:29.290] A tape showing the violence of this thug
+- [20:31.730] that attacked our constitution and also showing how quickly
+- [20:36.220] Secret Service and law enforcement
+- [20:37.940] acted on our country's behalf, really did a great job.
+- [20:43.780] One officer was shot, but saved by the fact
+- [20:47.060] that he was wearing obviously a very good bulletproof vest.
+- [20:51.670] He was shot from very close distance
+- [20:54.980] with a very powerful gun. And the vest did the job.
+- [21:00.800] I just spoke to the officer and he's doing great.
+- [21:03.050] He's great shape. He has very high spirits
+- [21:09.220] and we told him we love him and respect him.
+- [21:13.890] And he's a very proud guy.
+- [21:15.720] He's very proud of what he does, Secret Service agent.
+- [21:20.360] And we looked at all of the conditions
+- [21:24.270] that took place tonight.
+- [21:25.530] And I will say, it's not a particularly secure building.
+- [21:32.060] And I didn't want to say this,
+- [21:34.960] but this is why we have to have all of the attributes
+- [21:40.150] of what we're planning at the White House.
+- [21:42.220] It's actually a larger room and it's a much more secure.
+- [21:45.550] It's got, it's drone proof, it's bulletproof glass.
+- [21:48.670] We need the ballroom. That's why Secret Service,
+- [21:50.640] that's why the military are demanding it.
+- [21:53.820] They've won the ballroom for 150 years
+- [21:56.260] for lots of different reasons,
+- [21:58.580] but today's a little bit different
+- [22:01.040] because today we need levels of security
+- [22:04.070] that probably nobody's ever seen before.
+- [22:07.250] But everyone owes a tremendous debt of gratitude
+- [22:11.280] to the courage of law enforcement.
+- [22:13.810] The law enforcement and working with the DC police,
+- [22:17.450] and we just spoke with the mayor.
+- [22:19.650] And when we're finished,
+- [22:21.050] the police chief is going to take over
+- [22:23.890] and discuss it also from their viewpoint.
+- [22:29.530] But they also performed exactly as they were supposed to.
+- [22:33.110] And you see the attacker in different positions,
+- [22:35.760] but you also see the attacker totally subdued
+- [22:39.920] and under control.
+- [22:42.010] So as you know, this is not the first time
+- [22:43.720] in the past couple of years that our republic been attacked
+- [22:47.190] by a would be assassin who sought to kill in Butler,
+- [22:52.190] Pennsylvania less than two years ago.
+- [22:54.080] You all know that story. And in Palm Beach, Florida,
+- [22:56.540] a few months after that, we came close.
+- [22:59.890] We really had, again,
+- [23:02.430] we had some great work done by law enforcement.
+- [23:06.510] But in light of this evening's events,
+- [23:08.260] I asked that all Americans recommit with their hearts
+- [23:11.790] in resolving our difference peacefully.
+- [23:15.540] We have to resolve our differences.
+- [23:17.340] I will say you had Republicans, Democrats,
+- [23:20.800] independents, conservatives, liberals, and progressives.
+- [23:25.980] Those words are interchangeable, perhaps but maybe they're not.
+- [23:28.980] But yet everybody in that room, big crowd, record-setting crowd,
+- [23:32.430] there was a record-setting group of people,
+- [23:37.160] and there was a tremendous amount of love
+- [23:39.490] and coming together.
+- [23:40.810] I watched and I was very, very impressed by that.
+- [23:46.210] But we were first late, and I was taken very well care
+- [23:51.320] very quickly, very quickly, rushed off the stage.
+- [23:55.400] Vice President, JD Vance,
+- [23:57.270] who's here was likewise beautifully done.
+- [24:02.280] He was just saying how quickly everybody acted,
+- [24:04.920] law enforcement, Secret Service, in particular in this case,
+- [24:07.600] but law enforcement, Marco had the same thing.
+- [24:10.400] Pete was there. Pete didn't want any help.
+- [24:12.230] He didn't want anybody to help.
+- [24:14.280] He doesn't want anybody to help him,
+- [24:16.140] but he did get some didn't you?
+- [24:18.110] And I think you also said that it was very impressive.
+- [24:21.800] So with that, I'd like to ask Todd Blanche to come up,
+- [24:25.430] say a few words and tell you it's already underway.
+- [24:31.210] The man has been captured. They're going to his apartment.
+- [24:36.340] I guess he lives in California
+- [24:38.570] and he's a sick person, a very sick person,
+- [24:41.680] and we don't want things like this to happen.
+- [24:43.720] I think it's very important that I say though,
+- [24:45.880] and I told the representatives of the evening,
+- [24:48.260] they did such a beautiful job, was such a beautiful evening.
+- [24:51.760] And again, they're talking about free speech in our constitution.
+- [24:54.280] That's what it's all about.
+- [24:55.520] Not just White House correspondence.
+- [24:58.990] It was really based on free speech in our constitution.
+- [25:02.450] But I said very importantly that we'll do it again
+- [25:06.220] within the next 30 days.
+- [25:07.600] It will make it bigger and better and even nicer.
+- [25:12.010] So I just want to thank everybody that was involved.
+- [25:14.500] I also want to thank the press, the media.
+- [25:17.540] You've been very responsible in your coverage.
+- [25:19.460] I will say I've been seeing what's been out
+- [25:21.260] and you've been very responsible.
+- [25:23.110] So Todd Blanche, like to say a few words
+- [25:25.050] and then we're going to have Kash
+- [25:26.740] and then you're going to go on.
+- [25:29.600] I guess we can take a couple of questions.
+- [25:32.410] I want to thank the First Lady for --
+- [25:34.820] That was a rather traumatic experience for her.
+- [25:39.090] There was a lot of action taking place up there very quickly.
+- [25:43.080] But again, the response time was really incredible.
+- [25:47.270] And we're going to reschedule. We're going to do it again.
+- [25:50.270] We're not going to let anybody take over our society.
+- [25:52.780] We're not going to cancel things out because we can't do that.
+- [25:56.370] We wanted to stay tonight.
+- [25:57.610] I will tell you, I fought like hell to stay.
+- [26:02.210] But it was protocol. They said, "Please, sir."
+- [26:06.530] Because they didn't know a lot of --
+- [26:07.990] There was a lot of action going on
+- [26:09.570] and they didn't know could there be --
+- [26:10.990] Probably a lone shooter, but we'll find out.
+- [26:13.120] We'll find out very quickly.
+- [26:14.950] They have it very well under control.
+- [26:16.320] So I want to thank everybody very much.
+- [26:17.960] And Todd Blanche, please.
+- [26:23.770] Todd Blanche: Thank you very much, Mr. President.
+- [26:27.050] Tonight you saw the very worst
+- [26:29.860] and the very best of this country.
+- [26:32.150] You saw the very worst by the actions of that coward
+- [26:34.330] that the President just talked about.
+- [26:36.370] But you also saw the very best because you saw law enforcement
+- [26:39.820] do exactly what they're supposed to do.
+- [26:41.640] And you'll see the videos come out,
+- [26:43.620] I expect very shortly, and you'll see law enforcement
+- [26:46.190] do exactly what we want them to do.
+- [26:49.100] And so I echo what President Trump just said,
+- [26:52.600] that we are extraordinarily grateful
+- [26:54.510] and appreciative of the men and women of law enforcement
+- [26:56.930] that did their jobs tonight, including one who was injured.
+- [27:01.630] This investigation is ongoing.
+- [27:03.170] I expect you will see charges filed shortly.
+- [27:06.870] The charges should be self-evident given the conduct,
+- [27:10.030] but as you'll hear,
+- [27:11.910] there will be multiple charges around the shooting,
+- [27:14.320] around the possession of firearms
+- [27:16.220] and anything else that we can get on this guy.
+- [27:19.960] The investigation is obviously ongoing and just started.
+- [27:23.930] There's federal law enforcement already working
+- [27:27.150] on search warrants and doing their job
+- [27:29.600] and I don't want to get ahead of them
+- [27:31.570] and don't want to get ahead of the work
+- [27:32.950] that they're doing even as we speak.
+- [27:35.230] Director Patel and I were just on the crime scene
+- [27:38.130] a short while ago, and everybody in this room
+- [27:40.500] should rest assured that the Metropolitan
+- [27:42.810] Police Department, the FBI,
+- [27:44.070] Secret Service, everybody's on the scene doing their job.
+- [27:48.410] I know that the Police Chief is going to give an update
+- [27:51.120] from the scene as soon as we're finished here.
+- [27:53.410] And I obviously will leave the details
+- [27:56.160] of what they have learned to him.
+- [27:59.400] But in the meantime, I just want to thank everybody in this room
+- [28:03.280] for the courage and I want to thank President
+- [28:06.920] Trump for his words, and I promise you,
+- [28:10.500] justice will be served. Thank you. Director Patel.
+- [28:15.280] Kash Patel: Thank you, General. Thank you, Mr. President/
+- [28:18.240] the President's absolutely right.
+- [28:19.770] You saw the best resolve of American law enforcement
+- [28:22.100] because you, Mr. President, inspire them 24/7/365.
+- [28:25.580] You give them the resources that they need and you know,
+- [28:27.930] they know that you have their back.
+- [28:29.710] And that is a changing dynamic in this country,
+- [28:31.490] and that's why you saw brave
+- [28:32.690] Secret Service agents respond immediately, swiftly, subdue
+- [28:36.410] and take down the suspect and safeguard the lives
+- [28:38.900] of thousands of individuals at that hotel.
+- [28:41.380] Thanks to our inter-agency partnership
+- [28:43.010] with the Department of Homeland Security
+- [28:45.030] and the Metropolitan Police Department,
+- [28:46.430] the FBI was rapidly deployed onto the scene,
+- [28:48.840] took over the evidence. Response Unit is examining
+- [28:51.800] all the ballistics that were found on scene
+- [28:53.670] to include the long gun and the shell casings.
+- [28:56.260] We are conducting witness interviews as we speak.
+- [28:58.780] You will hear from our team on the scene
+- [29:00.310] there with the mayor
+- [29:01.510] and the head of the FBI field division there.
+- [29:03.990] But please know what the Attorney General
+- [29:05.570] has just said reigns no truer.
+- [29:07.210] You saw the very best of America tonight.
+- [29:09.870] The very best unite us at a time of uncertainty
+- [29:12.560] because we have leadership here
+- [29:14.320] with the President and the Vice President
+- [29:15.910] that backs law enforcement and the men and women
+- [29:17.920] that I shook their hands on the scene today
+- [29:19.980] could not have been prouder to show up on scene.
+- [29:22.050] And as the Attorney General said, make no mistake,
+- [29:24.060] we are conducting witness interviews.
+- [29:25.800] If you have any information,
+- [29:27.350] any information whatsoever related to this event,
+- [29:30.170] 1-800-CALL-FBI. 1-800-CALL-FBI.
+- [29:33.310] No piece of information is too small.
+- [29:35.280] No piece of information is inadequate.
+- [29:36.810] We will evaluate it all. We will also be conducting
+- [29:39.190] interviews of those that were there.
+- [29:40.900] And if any of those individuals have information,
+- [29:43.420] please come forward to law enforcement
+- [29:44.970] or the FBI of the Metropolitan Police Department.
+- [29:47.090] We will be examining this individual's
+- [29:48.400] background thoroughly.
+- [29:49.640] That process has already started,
+- [29:51.390] and we are going to ensure that he was either a lone wolf actor
+- [29:54.450] or anyone else that was responsible.
+- [29:55.860] We will analyze all evidence immediately
+- [29:58.420] to make sure that we safeguard this country.
+- [30:00.290] Mr. President, Mr. Vice President,
+- [30:01.570] thank you for your leadership,
+- [30:02.790] Attorney General and Homeland Secretary Mullin.
+- [30:04.970] Thank you for your partnership in law enforcement.
+- [30:06.880] The President: Thank you.
+- [30:08.430] Okay, we'll do a couple and then we go to the Chief.
+- [30:12.240] Madam Chairman, I just want to say you did a fantastic job.
+- [30:16.490] What a beautiful evening and we're going to reschedule.
+- [30:23.030] And after that, it's very tough for her
+- [30:24.590] to ask a killer question, right?
+- [30:26.740] But you have done a fantastic job, please.
+- [30:28.300] Madam Chairman: Thank you, Mr. President.
+- [30:29.530] I appreciate it.
+- [30:31.210] As you mentioned, it all happened so quickly.
+- [30:33.950] And I wonder, especially because unfortunately
+- [30:38.560] you have experience with these sorts of threats.
+- [30:42.400] In that moment when you realized
+- [30:44.810] there was a threat and service agents
+- [30:47.310] were telling us to get down,
+- [30:48.760] can you describe what was going through your mind,
+- [30:52.850] how you were feeling in that moment?
+- [30:55.130] The President: That's a very good question, actually.
+- [30:57.650] It's always shocking when something like this happens,
+- [31:00.150] happened to me a little bit, and that never changes.
+- [31:05.380] The fact, we were sitting right next to each other,
+- [31:08.780] the First Lady on my right,
+- [31:10.760] and I heard a noise and sort of thought it was a tray.
+- [31:15.180] I thought it was a tray going down.
+- [31:17.670] I've heard that many times and it was pretty loud noise.
+- [31:21.150] And it was from quite far away.
+- [31:22.400] He hadn't reached the area at all,
+- [31:25.390] they really got him, so it was quite far away.
+- [31:28.390] But it was a gun.
+- [31:30.190] And some people really understood
+- [31:33.940] that pretty quickly, other people didn't.
+- [31:36.270] I was watching to see what was happening.
+- [31:38.690] Probably should have gone down even faster.
+- [31:41.560] Melania was very cognizant, I think, of what happened.
+- [31:45.230] I think she knew immediately what happened.
+- [31:47.850] She was saying, " That's a bad noise."
+- [31:51.020] And we were whisked away along with other people,
+- [31:57.570] but we were really west away.
+- [31:59.150] And again, the performance of the Secret Service
+- [32:01.520] and the police,
+- [32:03.040] all of the law enforcement, I thought it was really good.
+- [32:04.970] So it was very quick.
+- [32:06.490] There wasn't a lot of time to be thinking
+- [32:08.520] because it was a matter of seconds
+- [32:09.770] before we were out the door and gone into an area.
+- [32:13.970] We very much, and you wanted to too,
+- [32:15.830] we very much wanted to continue it
+- [32:17.570] because I don't like to let these sick people,
+- [32:20.550] these thugs, these horrible, horrible people,
+- [32:23.880] change the fabric of our life, change the course of what we do.
+- [32:28.000] So we held out, you were there, we held out right till the end,
+- [32:31.010] but they didn't want to take a chance.
+- [32:32.950] And I understand, it was protocol.
+- [32:35.140] But we're going to be doing one hopefully
+- [32:37.090] within the next 30 days or sooner.
+- [32:38.990] And I am ready, willing, and able.
+- [32:41.420] And I was all set to really rip it.
+- [32:45.470] And I said to my people,
+- [32:46.910] "This would be the most inappropriate speech
+- [32:49.020] ever made if I said what." So I'll have to save it.
+- [32:51.680] I don't know if I could ever be as rough
+- [32:53.930] as I was going to be tonight.
+- [32:55.310] I think I'm going to be probably very nice.
+- [32:57.170] I'll be very boring the next time.
+- [32:58.770] But we're going to have a great event.
+- [33:00.760] You did a fantastic job. Thank you very much.
+- [33:02.760] Peter, go ahead.
+- [33:04.000] The Press: Thank you, President Trump.
+- [33:05.300] There's a report in the New York Post
+- [33:07.060] that this assailant assembled his weapon
+- [33:10.940] somewhere on site at the hotel. What do you think about that?
+- [33:15.340] And I ask respectfully,
+- [33:18.870] why do you think this keeps happening to you?
+- [33:22.940] The President: Well, I've studied assassinations
+- [33:27.780] and I must tell you the most impactful people,
+- [33:32.280] the people that do the most.
+- [33:33.620] You take a look at the people, Abraham Lincoln,
+- [33:36.760] I mean, you go through the people
+- [33:38.190] that have gone through this where they got them,
+- [33:41.900] but the people that do the most,
+- [33:44.300] the people that make the biggest impact,
+- [33:47.210] they're the ones that they go after.
+- [33:49.310] They don't go after the ones that don't do much
+- [33:51.260] because they like it that way.
+- [33:53.900] And when you look at the people that have either,
+- [33:57.880] whether it was an attempt or a successful attempt,
+- [34:01.200] they're very impactful people.
+- [34:03.320] Just take a look at the names here, the big names.
+- [34:07.130] And I hate to say I'm honored by that, but I've done a lot.
+- [34:11.310] We've done a lot. We've taken this country
+- [34:14.540] and we were a laughing stock for years
+- [34:17.320] and now we're the hottest country anywhere in the world.
+- [34:19.260] We've changed this country
+- [34:21.480] and there are a lot of people that are not happy about that.
+- [34:24.330] So I think that's the answer, Peter.
+- [34:26.090] The Press: After Butler, your team for a while
+- [34:28.090] rethought outdoor events.
+- [34:29.300] The President: Yeah.
+- [34:30.520] The Press: Do you think that you now need to rethink indoor?
+- [34:32.010] The President: No.
+- [34:33.290] Well, then you just don't do events.
+- [34:34.780] Nom I can't do that. I have to -- It is what it is.
+- [34:37.960] We have to do it. The room was very, very secure.
+- [34:41.720] He charged from 50 yards away,
+- [34:43.830] so he was very far away from the room.
+- [34:45.510] The Press: And what'd you think when you saw the video
+- [34:47.110] of how fast he was running?
+- [34:48.590] The President: He was moving. He was really moving.
+- [34:51.460] And the reaction time was great.
+- [34:53.010] Boy, those guys, they had their guns
+- [34:54.530] drawn literally by the time he was there.
+- [34:57.280] They were shooting.
+- [34:58.940] I thought they were very impressive.
+- [35:01.110] I thought they were very impressive.
+- [35:02.660] And if I didn't, I'd let you know.
+- [35:04.940] I'm not going to be -- I would not stand for that.
+- [35:07.220] No, I thought they were very impressive.
+- [35:08.700] (inaudible)
+- [35:10.030] The Press: Thank you, President Trump.
+- [35:11.300] Thank you for updating us on the suspect earlier.
+- [35:13.020] The President: Thank you.
+- [35:14.260] The Press: Were you aware of any threats
+- [35:15.910] or is your team aware of any threats beforehand?
+- [35:17.760] And do you believe you were the target of this tonight?
+- [35:19.740] The President: I guess.
+- [35:20.970] I mean, these people, they're crazy. They're crazy.
+- [35:24.150] And you never know. He was very far away from me.
+- [35:27.000] He had to go through a lot. We had resources all over.
+- [35:32.030] We had resources sitting at tables,
+- [35:34.500] literally in disguise, sitting maybe at your table.
+- [35:37.700] Who knows? But we had people all over the room,
+- [35:40.410] so he had a long way to go.
+- [35:41.890] That was really a first line of defense
+- [35:44.110] and they got him and they really acted incredibly.
+- [35:47.830] No, there was no notification. We had no idea.
+- [35:51.740] Go ahead, Caitlin.
+- [35:53.000] The Press: Do you have any political motivations from this?
+- [35:54.510] The President: Well, you never know.
+- [35:55.750] Now we'll be able to tell you
+- [35:56.980] that maybe by tomorrow or the next day.
+- [35:59.850] He's in custody and they're asking him a lot of questions.
+- [36:03.520] I guess they're going over Todd
+- [36:04.830] and they're already at his apartment.
+- [36:07.150] He lives in California.
+- [36:08.760] Todd Blanche: Yes, sir.
+- [36:09.980] The President: And they're over there,
+- [36:11.410] so they'll be able to tell you.
+- [36:12.760] Thank you, Caitlin.
+- [36:15.330] The Press: President Trump, did the suspect say anything
+- [36:17.650] or was he wearing anything
+- [36:19.590] that would allege some type of motive here?
+- [36:22.160] The President: No.
+- [36:23.380] I mean, he was a guy who looked pretty evil
+- [36:27.050] when he was down. They had him down.
+- [36:28.740] He was fighting hard.
+- [36:29.940] He was, in my opinion, a sick person.
+- [36:33.170] Who would do that but a sick person?
+- [36:35.490] But I think you're going to find everything about him.
+- [36:37.260] No reason to talk about it now.
+- [36:38.510] But tomorrow at this time, long before this time,
+- [36:41.140] you're going to know a lot of things about him.
+- [36:44.460] They seemed to think he was a lone wolf and I feel that too.
+- [36:47.140] The Press: Are you concerned
+- [36:48.370] about US Secret Service protection ability?
+- [36:51.340] We saw several of the detainees
+- [36:53.320] take minutes to be escorted out the room.
+- [36:55.730] The President: No, they acted very quickly.
+- [36:57.000] No, I was very impressed by Secret Service.
+- [36:58.470] Markwayne: Secret Service did great.
+- [36:59.670] The President: I'm the one, and Markwayne,
+- [37:00.940] you would agree with that, I think.
+- [37:02.230] Markwayne: Absolutely.
+- [37:03.450] The President: I'm the one that would complain.
+- [37:05.270] You don't have to complain for me.
+- [37:06.690] I would be complaining.
+- [37:07.900] I'd be up here right now saying they didn't do their job.
+- [37:10.190] Well, believe me, because it's my life and I want to live
+- [37:14.410] because I want to make this country great.
+- [37:16.170] That's why I want to live.
+- [37:17.910] But when you're impactful, they go after you.
+- [37:19.960] When you're not impactful, they leave you alone.
+- [37:22.160] Okay. A couple of more.
+- [37:23.940] A couple of more. Go ahead, please.
+- [37:26.350] The Press: Is there any indication that this shooting
+- [37:30.660] could have been linked to the war in Iran?
+- [37:33.920] The President: I don't think so, but you never know.
+- [37:36.750] We're going to know a lot.
+- [37:38.390] We have the best people in the world working on it,
+- [37:40.370] and we're going to know a lot, please.
+- [37:42.360] The Press: Mr. President, you as well as some of us
+- [37:47.630] who have covered Butler experienced
+- [37:49.330] another horrific day two years ago.
+- [37:52.020] The President: Yeah.
+- [37:53.540] The Press: What felt similar?
+- [37:54.780] You had the First Lady with you today.
+- [37:56.650] What felt different?
+- [37:57.900] And you have another two plus years in office.
+- [38:00.660] Are you concerned about something
+- [38:02.050] like this happening again?
+- [38:03.300] The President: Well, I can't be concerned.
+- [38:04.570] I can only get great people.
+- [38:06.160] They did the job, in my opinion, a much better job than Butler.
+- [38:10.300] Butler had one weak spot that we all know about.
+- [38:12.680] Somebody should have been up there.
+- [38:14.090] But even Butler, we had our sniper, sniper on our side,
+- [38:19.880] within 4.2 seconds from a distance of about 400 yards,
+- [38:27.590] one shot, and he was gone. And if he didn't do it --
+- [38:32.140] Now, he's David. His name was David.
+- [38:35.670] I say, "Hello, David." Every time I see him.
+- [38:37.930] David, I like you very much, David.
+- [38:40.210] But think of that. Now, if he doesn't hit him,
+- [38:43.220] and he hit him right between the eyes from 400 yards
+- [38:46.100] without any notice, nobody knew.
+- [38:48.640] He heard a sound. He looked over
+- [38:51.020] and there was actually a tree that was somewhat in his way.
+- [38:53.340] You know the story very well. And he aimed, he fired,
+- [38:57.930] and if he didn't do that, beyond me,
+- [39:00.180] he would have had a lot more people killed
+- [39:01.730] who lost one great person and two people very badly hurt.
+- [39:05.050] They're okay now.
+- [39:06.390] But no, that was --
+- [39:08.390] So in a sense, that was pretty amazing the job they did,
+- [39:13.640] but they did have that one week spot.
+- [39:15.380] As you know, they should have had that covered.
+- [39:18.140] Tonight, they had everything covered very quickly,
+- [39:20.420] and he was fast. He was running full blast,
+- [39:22.610] and they got him before they got any further.
+- [39:25.360] I was very far away. He hadn't anywhere close
+- [39:28.990] to breach the doors of the ballroom.
+- [39:30.720] The ballroom was sealed and everybody in there.
+- [39:34.290] That's why once those doors opened,
+- [39:36.220] they didn't want to do tonight. If the doors weren't opened,
+- [39:38.810] we could have probably done it tonight,
+- [39:40.430] but I think we're much better off rescheduling.
+- [39:42.430] Yeah, please.
+- [39:43.650] The Press: Mr. President,
+- [39:44.930] for you and perhaps law enforcement as well,
+- [39:47.630] what is the level of confidence that this was a lone actor.
+- [39:51.360] And has the suspect made any statements to police
+- [39:54.290] while in custody?
+- [39:56.250] The President: Look, it's my profession,
+- [39:58.090] we have great professionals up here and outside
+- [40:00.300] that have been working with us.
+- [40:02.310] My impression is he was a lone wolf, a wack job.
+- [40:07.350] These are crazy people.
+- [40:08.730] These are crazy people and they have to be dealt with.
+- [40:11.760] We had that in the second attempt as you know,
+- [40:15.070] and he's spending life in prison
+- [40:18.430] because if you let him out, they'll probably --
+- [40:20.800] If he serves 10 years or 15 years, you let him out,
+- [40:23.150] he'll probably try it again with somebody else.
+- [40:25.430] They're sick people. We have a lot of sick people.
+- [40:28.630] But you're going to know,
+- [40:30.500] I think very shortly, you're going to know
+- [40:31.960] Todd, a lot about him.
+- [40:34.600] You're going to know a lot about him.
+- [40:36.080] Yeah, a couple of more. Yeah, please go ahead.
+- [40:42.230] The Press: Are you concerned about political violence?
+- [40:44.700] This could be politically motivated?
+- [40:46.720] The President: All violence. I'm concerned about everything.
+- [40:49.240] But I can't be so concerned that you can't function.
+- [40:52.380] No, I'm here. It's a dangerous profession.
+- [40:56.730] I tell the story.
+- [40:57.960] Race car drivers, I think it's very dangerous.
+- [41:00.780] So if you take 1% and then take about 10% of 1%,
+- [41:07.720] just to break it down very easily, they die.
+- [41:10.880] So much less than 1%. 10% of 1%.
+- [41:15.150] I think bull riding is very dangerous.
+- [41:17.030] If you take about the same, 10% of 1%,
+- [41:20.250] much less than 1%. But if you take presidents,
+- [41:23.960] it's 5.8% and about 8% are shot at.
+- [41:30.280] So nobody told me this was such a dangerous profession.
+- [41:36.100] If Marco would have told me, maybe I wouldn't have run.
+- [41:39.070] Maybe I would have said, "I'll take a pass."
+- [41:41.180] No, it's a dangerous profession, but I don't view it that way.
+- [41:44.250] Look, I'm here to do a job, that's part of the job.
+- [41:47.900] It is a dangerous. I can't imagine
+- [41:50.760] that there's any profession that's more dangerous,
+- [41:53.690] but I love the country and I'm very proud.
+- [41:55.440] I'm very proud of the job we've done.
+- [41:57.100] You see what's happened. We have a great country.
+- [41:58.780] We've got, I think, the most successful,
+- [42:01.350] the hottest country anywhere in the world.
+- [42:02.950] This happened over a period of just a year
+- [42:06.510] and we're going to do great things,
+- [42:07.840] but with that come risks. There's no question about it.
+- [42:11.520] Yeah.
+- [42:12.910] The Press: I mean, there's been so much political violence,
+- [42:15.270] not just aimed at yourself,
+- [42:16.650] but at other members of Congress,
+- [42:19.620] state house speakers, you name it.
+- [42:21.720] Is that just the cost of doing business
+- [42:23.520] to do politics in America anymore?
+- [42:27.070] The President: We're not the only country.
+- [42:28.350] You look at this great violence with all countries.
+- [42:30.440] I was talking to somebody from another country today
+- [42:35.780] and they have numerous assassinations
+- [42:38.860] and political figures all over the world.
+- [42:41.250] You look at South America and South America,
+- [42:43.050] it's like some of the numbers are just terrific.
+- [42:46.560] It's dangerous. It's dangerous stuff,
+- [42:48.130] whether it's here or someplace else.
+- [42:50.190] No country is immune. No country. Good question.
+- [42:52.510] The Press: (inaudible)
+- [42:53.710] that temperature down at this point?
+- [42:55.780] The President: Well, probably if I decided
+- [42:58.290] to just not do much.
+- [43:01.230] If I let everybody rip us off and take advantage of us.
+- [43:04.410] Look, we're leading the world in trade now.
+- [43:06.830] We're leading the world in the military.
+- [43:08.310] We're the greatest military in the world.
+- [43:09.670] I rebuilt it at my first term
+- [43:11.720] and now we use it because we have no choice.
+- [43:14.000] We can't let, as an example, Iran,
+- [43:16.340] we can't let them get a nuclear weapon.
+- [43:18.870] Everything will be peanuts compared to that
+- [43:20.900] if they ever were given a nuclear weapon.
+- [43:22.950] And they'd use it too.
+- [43:24.960] Marco and I were talking about it today.
+- [43:26.670] They would use it without even hesitation.
+- [43:28.810] We can't do that. It was a shame.
+- [43:30.850] I said, "Oh boy, look at the numbers.
+- [43:32.690] We just broke 50,000 into Dow. We just broke 7,000 in the S&P."
+- [43:37.250] They said we couldn't do it in seven years,
+- [43:39.100] in five years, four years.
+- [43:40.530] They were saying maybe in five or six years.
+- [43:43.760] And we did it in one year.
+- [43:45.930] And I called everybody together.
+- [43:47.390] I called all of these people and others and I said,
+- [43:51.520] "We have to take a little journey."
+- [43:53.080] I say to do this. We just had the great number.
+- [43:55.290] We just broke 50,000.
+- [43:56.670] It wasn't supposed to happen during my term.
+- [43:59.150] Wasn't reachable. Did it in one year and I said,
+- [44:02.290] "We're going to have to make a journey to Iran.
+- [44:05.180] They're going to have a nuclear weapon if we don't do it."
+- [44:07.720] We had the B2 bombers take them out.
+- [44:10.020] I terminated in the first term, the Obama agreement,
+- [44:14.400] the Iran nuclear agreement, which was a disaster,
+- [44:16.470] that was a road to a nuclear weapon.
+- [44:18.040] They would have used it. They would have used it 100%.
+- [44:20.920] So when you do things like that, you become a target.
+- [44:23.800] If I wasn't doing that, I guess I'd be a lot less of a target,
+- [44:26.750] but I'm honored to be. Okay, one more question.
+- [44:35.180] Go ahead.
+- [44:36.400] The Press: Thank You President Trump.
+- [44:37.780] Thank you, President Trump.
+- [44:39.060] Do you know how the gun was brought into the hotel?
+- [44:41.900] And also, how does this event impact
+- [44:44.100] you as the leader of our country?
+- [44:45.820] Do you think it will change your relationship?
+- [44:47.600] The President: I like not to think about it.
+- [44:50.820] I leave a pretty normal life
+- [44:52.750] considering it's a dangerous life.
+- [44:54.560] I think I handle it as well as it can be handled.
+- [44:58.390] I think a lot of other people,
+- [44:59.950] you read stories where they become basket cases,
+- [45:02.320] to be honest with you. I'm not a basket case.
+- [45:04.900] I really take it as it is. I do it for the country.
+- [45:08.730] I'm not doing it for any other reason.
+- [45:10.100] I have a first lady who's doing a terrific job.
+- [45:12.380] She loves the country.
+- [45:14.080] And she recognizes it better than anybody.
+- [45:17.640] She's told me numerous times that she said,
+- [45:20.230] "You are in a dangerous job."
+- [45:22.470] But that goes along with her too.
+- [45:24.000] I mean, it's dangerous for her too.
+- [45:25.940] We sat there tonight, we heard that noise,
+- [45:27.870] and it was either a tray or a bullet.
+- [45:32.140] I was hoping it was a tray, but it wasn't.
+- [45:35.370] And again, we had some very bright people doing a great job,
+- [45:39.430] so we're very proud of them and happy with them.
+- [45:41.950] I just want to thank everybody.
+- [45:43.540] They will be able to give you all that information
+- [45:45.520] as to the names and everything else.
+- [45:49.620] Most of, I think we released the names already.
+- [45:51.510] Most of you would have it, but his name. We appreciate it.
+- [45:56.730] I see so many tuxedos and beautiful dresses.
+- [45:59.710] It was a little different evening than we thought,
+- [46:01.650] but we're going to do it again and we're going to --
+- [46:04.450] We have a great chairman who we're so proud of
+- [46:07.110] and we have to make it better.
+- [46:10.510] We'll make it safer, I guess, right?
+- [46:12.190] But we're going to make it even better. Okay?
+- [46:13.870] Thank you very much. Thank you.
+- [46:15.720] The Press: (inaudible)
+- [46:17.840] How impactful this was. Can we hear from her about-
+- [46:20.680] The President: Honey, you want to say something?
+- [46:23.220] The Press: Millions of people across the globe,
+- [46:30.320] in fact, are watching you,
+- [46:31.830] you demonstrated our courageous leadership
+- [46:34.100] and thank God you're alive, all of us that are alive today.
+- [46:36.860] What are the message that you want to give
+- [46:38.790] to the world that this should change?
+- [46:41.020] What corrective measures can we take from here on something?
+- [46:44.670] The President: Well, all you can do, look,
+- [46:47.040] I don't care how many people you have,
+- [46:48.510] how good they are. They can be the greatest people.
+- [46:51.420] You have the greatest security in history.
+- [46:54.360] If you have a whack job that's got a brain,
+- [46:56.580] but it's a little bit distorted or a lot distorted,
+- [47:00.950] they can make trouble.
+- [47:02.410] I would say, Pete, right? They can make trouble.
+- [47:05.190] Some of these people are of genius level like you,
+- [47:09.510] and they're nuts, so it can be trouble.
+- [47:12.540] So you do absolutely the best, you get the best.
+- [47:15.520] We have the best people.
+- [47:16.740] Well, look, it was proven tonight.
+- [47:19.400] He started running from 50 yards, and he was fast.
+- [47:23.850] He was like a blur on tape. He was moving.
+- [47:27.190] It was very impressive the way they got him,
+- [47:30.570] because a lot of people would be looking and saying,
+- [47:33.700] "It's like a weird feeling."
+- [47:36.510] And they would let him get through,
+- [47:38.340] but they didn't let him get through.
+- [47:40.170] They drew those guns so fast. They looked like Matt Dylan.
+- [47:44.620] They looked like somebody that knew what they were doing,
+- [47:47.180] and we really do. But it comes with the territory.
+- [47:50.700] And if you want to do a great job, I really believe that.
+- [47:53.210] And you take a look at what's happened
+- [47:54.830] to some of our greatest presidents,
+- [47:57.430] and it doesn't happen to people that don't do anything,
+- [48:01.900] and it's not going to deter me from winning the war in Iran.
+- [48:07.080] I don't know if that had anything to do with it.
+- [48:08.940] I really don't think so, based on what we know,
+- [48:11.760] but we're going to continue to do a great job.
+- [48:14.960] That's all I can do. Thank you very much.
+- [48:18.680] We'll see you tomorrow. Thank you. Thank you.

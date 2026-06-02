@@ -1,0 +1,269 @@
+<!-- source: https://www.youtube.com/watch?v=czuxZsbndVk -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: czuxZsbndVk -->
+<!-- date_published: 2025-07-01T19:05:35+00:00 -->
+<!-- date_accessed: 2026-06-02T02:47:35.197304+00:00 -->
+
+# Transcript: President Trump Gaggles with the Press on Air Force One, July 01, 2025
+
+- [00:01.660] The President: -- the bill passed,
+- [00:03.030] and I think it's going to do very well in the House.
+- [00:06.220] We'll see how that works out.
+- [00:07.540] But it looks like it's ahead of schedule, see what happens.
+- [00:12.830] Happy about it.
+- [00:14.290] This was great today, going down to Florida
+- [00:16.280] and seeing what Homeland and Ron and everybody else
+- [00:21.100] have been able to do in a very short period of time.
+- [00:23.270] So happy about it, I hope you enjoyed it.
+- [00:26.110] Go ahead. Any questions?
+- [00:27.420] The Press: (inaudible) Thomas Massie?
+- [00:28.720] The President: What about him?
+- [00:29.950] The Press: Just give us a little idea of,
+- [00:32.080] not only who you want to replace him --
+- [00:33.820] The President: Oh, I think he does a good job
+- [00:35.090] for the country. He's always a no.
+- [00:38.110] They call him Rand Paul Jr. He's always a no.
+- [00:42.040] Nothing constructive at all, at all.
+- [00:44.070] I mean, been just terrible.
+- [00:46.350] Thomas Massie from Kentucky and nothing constructive.
+- [00:52.110] I don't think he's a very smart guy.
+- [00:53.740] Good education, but that's about it.
+- [00:56.380] The Press: I should have asked this.
+- [00:57.750] To what degree are you trying to make an example out of him
+- [01:00.350] so that no one else, like --
+- [01:01.600] The President: I don't think about it.
+- [01:02.820] I mean, you know, when I oppose somebody, I oppose somebody.
+- [01:05.710] And if for some reason the voters -- a --
+- [01:08.460] almost always, they seem to go along with me
+- [01:10.660] because they know I'm working hard.
+- [01:13.070] I have a nice high IQ.
+- [01:15.600] They like that, you know, we like high IQ people.
+- [01:18.710] But they know I, I make good decisions.
+- [01:21.070] That's why we have that hat,
+- [01:22.960] Trump was right about everything, right?
+- [01:25.530] But, you know, I don't like guys like,
+- [01:27.270] they just keep saying, no, "I vote no. I vote no."
+- [01:30.950] There's no, nothing. Let him do something,
+- [01:32.970] let him get what he wants to vote, yes.
+- [01:35.680] But if you look at his voting record, it's always against --
+- [01:38.200] The Press: Who do you like?
+- [01:40.550] The President: Oh, he's going to have an opponent.
+- [01:42.030] He's got -- He's, he's going to have a big opponent.
+- [01:44.870] A good opponent who's going to win --
+- [01:47.080] A, a poll just came out, and it showed anybody
+- [01:50.170] I endorse against Massie, Massie loses by 25 points.
+- [01:53.990] So he's, he's going to be history, I think.
+- [01:57.230] The Press: How arm -- sir, how much arm-twisting
+- [01:58.620] do you think you'll have to do with to get,
+- [02:00.680] get it past the House now? What's your game plan for that?
+- [02:04.180] The President: I felt the Senate was going to be tougher
+- [02:05.900] than the House.
+- [02:08.250] We got there, we got pretty much what we wanted.
+- [02:12.050] It was -- it's an amazing package.
+- [02:14.270] It's the biggest bill ever passed, if we get this done.
+- [02:17.220] You know, most of the people wanted seven
+- [02:18.810] or eight different bills.
+- [02:20.840] And I thought that was tougher because it'd be,
+- [02:22.680] you know, a 100 percent, but there'd be nothing
+- [02:25.570] (inaudible) -- this bill has something for everybody
+- [02:27.660] by doing it this way.
+- [02:29.470] So we're happy about it. We're happy with the results.
+- [02:31.480] The Press: So are you concerned that they're going to be,
+- [02:33.090] want to make further changes in the House?
+- [02:35.140] The President: Well, they're going to ask
+- [02:36.520] for certain changes, probably.
+- [02:37.930] I don't know, I mean, I guess what would happen,
+- [02:40.460] if that happens, you then have to run it fast past the Senate.
+- [02:44.250] So, you know, it never ends.
+- [02:46.780] I don't know if that's going to happen.
+- [02:48.270] The Press: Do you think it's still possible
+- [02:49.600] to get this done by Friday?
+- [02:51.260] The President: (inaudible) on occasion that will happen,
+- [02:52.710] where they'll make a change and get it passed.
+- [02:54.910] So we go pretty quickly. But I think --
+- [02:58.550] the Senate was a very big movement, they worked very hard.
+- [03:02.150] I didn't get along with Tillis, and he resigned,
+- [03:05.560] (inaudible) that's a good thing.
+- [03:07.130] The Press: He wants, who you want to run for that seat, sir?
+- [03:09.210] Thom Tillis' seat.
+- [03:11.370] The President: Well, somebody that would really be great
+- [03:13.520] is Lara, she grew up there.
+- [03:16.020] But they live in Florida. They have a very good life
+- [03:19.240] and they, you know, they're great people.
+- [03:21.030] She did fantastically running the RNC,
+- [03:24.070] she's even got a show that's, it's like the number one show.
+- [03:27.500] And Mark Levin is likewise, I mean, they have the number
+- [03:30.550] one, number two show over the weekend.
+- [03:33.030] So she's done well.
+- [03:34.270] She's a great person, Lara Trump.
+- [03:37.610] I mean, that would always be my first choice,
+- [03:40.450] but she doesn't live there now.
+- [03:42.580] But she's there all the time, her parents are there.
+- [03:44.580] You know, she really knows North Carolina well,
+- [03:46.680] and I won it three times.
+- [03:50.090] I don't know who the candidates are going to be.
+- [03:52.020] I think you're going to have one of the congressmen step up,
+- [03:54.200] but she'd do very well.
+- [03:55.920] The Press: So she, did she talk to you about it at all about?
+- [03:58.010] The President: Oh, no, no, no (inaudible).
+- [04:01.420] I had it out with this guy two nights ago
+- [04:03.950] and he resigned, you know, which I was happy about.
+- [04:06.720] He did us all a favor.
+- [04:08.080] The Press: Sir, you spent a lot of time
+- [04:09.360] with Secretary Noem today, obviously.
+- [04:11.540] Did you discuss with her at all this report
+- [04:14.320] about an $80,000 dark money payment she received in '23
+- [04:19.340] and appears to have been kept off
+- [04:20.920] her federal disclosure forms this record?
+- [04:23.150] The President: No, I haven't. I didn't do.
+- [04:24.360] You're telling me this for the first time.
+- [04:26.130] I think she's done an amazing job.
+- [04:28.870] The Press: More on Secretary Noem,
+- [04:30.290] you know, you talked about how --
+- [04:31.510] The President: Who are you with?
+- [04:32.720] The Press: The Washington Examiner, sir.
+- [04:33.930] Christian Datoc.
+- [04:35.150] The President: Good paper. Excellent.
+- [04:36.380] The Press: Thank you. Are you concerned right now,
+- [04:38.880] again, with the speed of the deportations?
+- [04:41.030] Obviously Tom Homan,
+- [04:42.370] Stephen Miller have talked about this isn't enough.
+- [04:45.970] What exactly is enough?
+- [04:47.250] The President: It's going to be a long period of time.
+- [04:49.070] We're going to have a lot of we're going to have
+- [04:52.540] a lot of angst
+- [04:53.840] because it's a tough, it's a tough thing.
+- [04:56.380] But no, I think they're doing an amazing job.
+- [04:58.620] And you know, we're doing a lot of home deportations.
+- [05:01.720] We're doing a lot of deportations
+- [05:03.180] or self deportations where they come and they deport
+- [05:06.620] and then they want to come back into the country
+- [05:08.850] and they can only come back into the country
+- [05:10.890] under no circumstances
+- [05:12.780] unless they go out the proper way.
+- [05:14.970] Otherwise, they're never coming back in.
+- [05:16.980] No, I think it's going very well.
+- [05:18.750] Look, Biden did us a tremendous disservice
+- [05:21.620] when he allowed this to happen to our country.
+- [05:24.440] And I always said it's the toughest thing,
+- [05:25.920] you know, I had inflation and I got rid of it.
+- [05:27.900] We don't have inflation. I had a bad economy
+- [05:30.530] and we got, you know, we set a new stock market high today,
+- [05:33.620] we're doing unbelievable.
+- [05:34.900] The country's doing unbelievable.
+- [05:36.180] I always said the most difficult thing
+- [05:39.110] is what happened at the border,
+- [05:40.800] allowing 21 or 25 million people to come into our country.
+- [05:45.420] It's the most difficult thing.
+- [05:46.780] The Press: (inaudible_
+- [05:48.010] The President: I think we're doing a fantastic job
+- [05:49.300] at getting them out.
+- [05:50.730] But you have a lot of self deporting
+- [05:52.330] and a lot more than people understand
+- [05:54.680] that those people are eligible maybe to come back in.
+- [05:57.200] The Press: Mr. President,
+- [05:58.550] are you thinking of extending the pause
+- [06:00.210] on tariffs beyond July 9th?
+- [06:01.920] The President: No. No, I'm not.
+- [06:03.200] I'm not thinking about the pause.
+- [06:05.440] I'll be writing letters to a lot of countries
+- [06:08.540] and I think they're just starting to understand
+- [06:10.420] the process. We've dealt with Japan.
+- [06:12.280] I'm not sure if we're going to make a deal.
+- [06:13.900] I doubt it, but Japan, they're very tough.
+- [06:16.370] You have to understand, they're very spoiled.
+- [06:18.560] I love Japan. I, I really like the new Prime Minister too.
+- [06:22.110] Abi was one of my closest friends,
+- [06:23.740] as you know, the new prime minister is,
+- [06:26.020] he's great. He is a very strong guy,
+- [06:28.600] but they and others are so spoiled
+- [06:32.260] from having ripped us off for 30,
+- [06:33.990] 40 years that it's really hard for them to make a deal.
+- [06:38.090] You know, it's very hard.
+- [06:39.330] As an example with Japan they won't take rice,
+- [06:44.760] and yet they desperately need rice.
+- [06:46.410] You know, that. But they won't take rice.
+- [06:50.040] They won't take other products that we have,
+- [06:52.590] but think of it, they need rice so badly,
+- [06:54.790] but they won't take rice. I think that was an easy one.
+- [06:58.220] Or the cars, as you know, they send out millions.
+- [07:00.530] We didn't give them one car in 10 years.
+- [07:04.120] They won't take any cars, but they'll sell millions.
+- [07:07.690] So we tell them, "Sorry, you can't do that."
+- [07:09.900] And we have a great relationship, great reliance,
+- [07:14.330] and really a great sort of a partnership in a way.
+- [07:18.540] But on, on trade, they've been very unfair.
+- [07:21.560] And those days are gone.
+- [07:22.860] So what I'm going to do is I'll write them
+- [07:24.290] a letter and say, "We thank you very much
+- [07:26.770] and we know you can't do the kind of things that we need,
+- [07:30.290] and therefore you'll pay a 30%, 35%,
+- [07:34.630] or whatever the number is that we determine
+- [07:36.440] because we also have a very big trade deficit
+- [07:38.470] with Japan, as you know.
+- [07:40.610] And it's very unfair to the American people.
+- [07:42.350] So they maybe will be happy, they maybe won't be happy.
+- [07:47.830] But some countries we won't even allow to trade.
+- [07:50.930] But for the most part, we'll, we're going to determine
+- [07:53.000] a number and just very simply write them a nice letter,
+- [07:56.140] probably one page or a page and a half at the most.
+- [07:59.630] And it's going to be essentially congratulations,
+- [08:03.360] it's going to be an honor to allow you to go
+- [08:06.210] and do business in the United States of America
+- [08:09.020] because it really is an honor to be able to do that.
+- [08:11.610] But we never viewed it that way in this country.
+- [08:14.350] And you saw we took in 129 billion in tariffs already.
+- [08:17.450] We haven't even started. No inflation.
+- [08:20.470] Our country's strong.
+- [08:22.050] Our interest rate should be three points lower.
+- [08:24.380] If our interest rate was three points lower,
+- [08:26.530] that's almost a trillion dollars in cost.
+- [08:29.330] And it's done just by the signing of a pen.
+- [08:31.120] But we have a moron at the head of the Fed. He's a moron.
+- [08:34.940] The Press: Speaking of -- speaking of Jay Powell, do you,
+- [08:36.690] do you have a top choice of someone to succeed him?
+- [08:39.060] The President: I do, I have two or three top choices.
+- [08:40.370] The Press: Can you tell us those?
+- [08:41.630] The President: No (laughs). You almost got me there.
+- [08:44.580] The Press: Are there other trade deals that,
+- [08:45.940] that are close to being done
+- [08:47.380] that you think you will announce over the next week?
+- [08:49.390] The President: I hope we're going to have a deal
+- [08:50.610] with India, possibly.
+- [08:53.280] And that's going to be a different kind of a deal.
+- [08:54.910] It's going to be a deal where we're able to go in and compete.
+- [08:57.800] Right now, we, India doesn't accept anybody in.
+- [09:00.740] I think India's going to do that, and if they do that,
+- [09:02.700] we're going to have a deal for less, much less tariffs.
+- [09:06.320] The Press: DeSantis was smart.
+- [09:10.120] Hey, real quickly you mentioned Alejandro Mayorkas.
+- [09:13.820] He was impeached in the House,
+- [09:15.100] cleared in the Senate investigating him,
+- [09:17.840] could we investigate the auto pen?
+- [09:19.700] What's the further investigation on that?
+- [09:21.700] The President: The auto pen is, is under investigation.
+- [09:24.610] The auto pen's a, a serious thing.
+- [09:26.280] I think it's one of the most serious things I've heard.
+- [09:28.990] Mayorkas was a terrible, terrible secretary,
+- [09:31.890] but he was given orders to do things
+- [09:33.520] and the people that gave those orders probably have pardons.
+- [09:37.970] You know, Biden pardoned a lot of people.
+- [09:41.120] The only one he didn't pardon was himself.
+- [09:44.970] But I don't know if I do to him what he did to me.
+- [09:48.230] Problem is he wouldn't understand what happened.
+- [09:50.120] So maybe it wouldn't be so bad.
+- [09:51.440] The Press: There's a video with Speaker Johnson
+- [09:53.130] is telling him about how he stopped the LNG gas
+- [09:55.760] and he thought it was something else.
+- [09:57.470] How many more examples do you think there are,
+- [09:59.360] that Speaker John- -- or that President Biden
+- [10:01.460] just didn't in fact know what he was doing?
+- [10:03.930] The President: President Obama was a terrible president.
+- [10:06.970] President Biden was the worst president
+- [10:09.300] in the history of our country.
+- [10:11.090] President Bush should not have gone into the Middle East
+- [10:14.110] and blown the place up,
+- [10:15.940] so I don't give him high marks either.
+- [10:17.750] Thank you very much everybody. Thank you.
+- [10:19.900] I give Trump very high marks. Goodbye, everyone.

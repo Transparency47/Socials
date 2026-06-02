@@ -1,0 +1,1017 @@
+<!-- source: https://www.youtube.com/watch?v=AwlmWP0ueTA -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: AwlmWP0ueTA -->
+<!-- date_published: 2025-03-07T19:39:15+00:00 -->
+<!-- date_accessed: 2026-06-02T01:29:20.069913+00:00 -->
+
+# Transcript: President Trump Delivers Remarks
+
+- [00:02.600] Hello everybody.
+- [00:04.640] So, before we begin we're going to talk
+- [00:06.440] about how good some of these numbers
+- [00:08.600] are. We'll be way ahead of schedule,
+- [00:10.360] especially as respect to manufacturing
+- [00:12.920] and manufacturing jobs.
+- [00:15.080] It's taking hold and we've only been
+- [00:16.640] here a few weeks, but it's really it's
+- [00:18.640] going to be something. I don't know if
+- [00:20.000] the rest of the world likes it, but
+- [00:22.080] people in the US like it. That I can
+- [00:24.000] tell you.
+- [00:25.040] Uh
+- [00:25.640] if I might could Will, could you talk
+- [00:28.280] about the student loan situation?
+- [00:30.040] Yes, sir. Uh so, later this afternoon
+- [00:32.240] we're going to have prepared for your
+- [00:33.440] signature an executive order dealing
+- [00:35.480] with the public service loan forgiveness
+- [00:37.720] program. This is a program that's
+- [00:39.600] designed to expedite the basically the
+- [00:42.960] conclusion of payments on student loans
+- [00:45.920] for people who have taken out federally
+- [00:47.400] backed student loans. The problem though
+- [00:49.520] is that a lot of these people work for
+- [00:53.560] NGO organizations, for non-profit
+- [00:55.760] organizations that engage in illegal or
+- [00:58.560] what we would consider to be improper
+- [01:00.120] activities supporting for example
+- [01:02.640] illegal immigration or foreign terrorist
+- [01:05.400] organizations
+- [01:06.960] or otherwise
+- [01:08.440] law-breaking activities. So, this
+- [01:10.640] executive order will direct your
+- [01:12.680] Department of Education and Department
+- [01:14.400] of the Treasury to uh
+- [01:17.160] basically bring about modifications to
+- [01:19.400] the public service loan forgiveness
+- [01:21.000] program in order to ensure that people
+- [01:23.080] who are engaged in these sorts of
+- [01:24.400] activities can't benefit from a program
+- [01:26.800] that's really not intended to support
+- [01:28.480] those sorts of things.
+- [01:29.200] And what are the consequences if they
+- [01:31.480] are not good?
+- [01:32.920] Uh the consequences would be that they
+- [01:35.000] they wouldn't get forgiveness of their
+- [01:36.880] student loans
+- [01:38.320] as they would be eligible for if they
+- [01:40.840] were working for the government or a
+- [01:43.120] normal non-profit that's not violating
+- [01:45.320] the law.
+- [01:46.960] All right. Any questions on that?
+- [01:48.920] Anybody have any questions?
+- [01:52.760] So, we'll talk about the manufacturing
+- [01:55.000] turnaround and it's been very early, but
+- [01:57.000] it's pretty significant. The numbers
+- [01:58.800] were much better as you know than
+- [02:01.080] projected by
+- [02:02.840] the media.
+- [02:05.040] And uh
+- [02:06.480] a little surprising actually how strong
+- [02:08.280] how fast cuz we have many many companies
+- [02:10.759] are moving into our country.
+- [02:12.640] Uh as you probably know it's a statistic
+- [02:15.400] that everyone talks about, but nobody
+- [02:17.000] seems to have done much about.
+- [02:19.200] Uh
+- [02:19.760] since the beginning of NAFTA there's
+- [02:21.480] been 90,000
+- [02:23.240] plants and factories closed
+- [02:25.600] in this country. Think of that.
+- [02:27.560] 90,000
+- [02:29.080] plants and factories
+- [02:31.120] have been closed in this country. Many
+- [02:33.000] of them have been car manufacturing
+- [02:35.320] plants.
+- [02:36.720] And that's a terrible statistic and
+- [02:39.360] we'll be turning that around. You're
+- [02:40.440] going to see it already. We already have
+- [02:42.720] numerous that are being built or
+- [02:44.160] starting to be built and numerous that
+- [02:46.560] were being built in other countries and
+- [02:48.320] they stopped and they're coming here now
+- [02:50.000] because of the tariffs.
+- [02:51.640] And that's a big deal. That's what you
+- [02:53.160] want to hear.
+- [02:54.480] During the last year the Biden ad
+- [02:57.320] administration saw
+- [02:59.840] a loss of more than 110,000
+- [03:03.320] manufacturing jobs or 9,000
+- [03:06.360] manufacturing jobs every single month.
+- [03:09.640] Uh it averaged about 9,000 a month,
+- [03:11.680] 110,000 manufacturing jobs. During the
+- [03:14.440] first full month in office
+- [03:16.480] we've not only stopped that
+- [03:17.720] manufacturing collapse collapse, but
+- [03:19.880] we've begun to rapidly reverse it
+- [03:23.400] and get major gains. We created 10,000
+- [03:26.920] manufacturing jobs in February alone.
+- [03:30.120] That hasn't happened in a long time and
+- [03:33.280] these aren't government jobs, which
+- [03:34.960] actually we cut.
+- [03:36.600] These are
+- [03:37.840] private sector manufacturing jobs. So,
+- [03:40.000] we gained all of those jobs, 10,000 jobs
+- [03:43.720] and we've barely started yet. That's a
+- [03:46.160] very unusual number. People are
+- [03:47.760] surprised by it. I'm even a little
+- [03:49.120] surprised.
+- [03:50.560] On auto jobs
+- [03:52.240] we created almost 9,000 new jobs
+- [03:56.080] in the auto production field
+- [03:58.600] and the reason for that is largely they
+- [04:01.440] think things are happening. So, they're
+- [04:03.400] already geared up. In some cases they
+- [04:05.080] had uh rooms in their plants or they had
+- [04:08.120] empty plants that they were able to put
+- [04:09.840] into use quickly because they see
+- [04:11.920] because of the tariffs
+- [04:13.560] they don't want to be dealing with other
+- [04:15.880] places and they don't want to go back
+- [04:17.400] and forth and around and through the
+- [04:19.040] borders and across Mexico border and
+- [04:21.840] Canada border and all they want to have
+- [04:23.840] the jobs in one location.
+- [04:26.080] And they've had space and if they had
+- [04:28.240] space they were able to create the jobs
+- [04:29.920] almost immediately. In some cases
+- [04:32.160] they'll be building plants to take care
+- [04:34.120] of those jobs. So, we created 9,000 new
+- [04:36.560] jobs already
+- [04:38.760] uh in the auto production auto parts
+- [04:40.920] manufacturing. So, we want the auto
+- [04:43.320] parts ideally and I think from a
+- [04:45.360] simplicity standpoint too to be built
+- [04:47.800] and made in the United States. It's in a
+- [04:50.200] single month. That all took place in a
+- [04:52.200] single month, 9,000 new auto jobs. You
+- [04:55.280] haven't heard that in a long time.
+- [04:57.640] After auto workers lost more than 27,000
+- [05:00.520] auto jobs
+- [05:01.880] in the final year of Biden
+- [05:04.400] uh
+- [05:05.720] These are also high-paying jobs. These
+- [05:07.280] are very prime jobs.
+- [05:09.200] The ISM manufacturing survey and the S&P
+- [05:12.440] manufacturing survey have also confirmed
+- [05:15.040] that our administration is presiding
+- [05:17.560] over a brand new domestic manufacturing
+- [05:20.080] boom
+- [05:21.240] after major collapse under Biden. It was
+- [05:23.680] a collapse.
+- [05:25.000] All he did is keep adding new government
+- [05:26.840] jobs, which are not the jobs you want.
+- [05:29.520] We're trying to shrink government and
+- [05:31.720] grow the private sector. That's what
+- [05:33.960] we've been doing.
+- [05:35.240] Under the final 2 years of Biden one in
+- [05:38.080] every four jobs created in America was a
+- [05:40.560] government job. That's a tremendous
+- [05:42.400] percentage.
+- [05:43.720] But under the first full month of
+- [05:44.960] President Trump, which we haven't even
+- [05:46.600] gotten started yet an incredible 93% of
+- [05:49.960] all job gains were in the private
+- [05:51.640] sector. So, that just that statistic
+- [05:54.120] just came out.
+- [05:55.760] Uh big gains for native-born
+- [05:59.520] Americans for the first time in 15
+- [06:02.040] months the job gains for native-born
+- [06:05.600] Americans, for American people, people
+- [06:07.560] born in America exceeded job gains for
+- [06:10.680] migrant and foreign-born workers. This
+- [06:13.320] is the first time that's happened in
+- [06:15.640] more than 15 months. Employment for
+- [06:18.000] native-born workers went up by 284,000
+- [06:22.440] while foreign-born workers went down by
+- [06:24.640] 87,000.
+- [06:26.520] Now, you know, you've heard the same
+- [06:28.080] stat where foreign-born workers were
+- [06:30.360] taking up all the jobs or almost all the
+- [06:32.440] jobs. In some cases uh
+- [06:34.640] literally all of the jobs.
+- [06:37.320] And now it's uh
+- [06:39.360] 284,000
+- [06:41.840] native-born jobs here, people born in
+- [06:44.360] our country, 284,000
+- [06:47.040] while foreign-born workers went down by
+- [06:49.240] 87,000. First time that's happened in a
+- [06:51.560] long time.
+- [06:52.760] So, these are incredible uh numbers and
+- [06:55.120] they're
+- [06:56.000] they're very early. I mean, you know,
+- [06:57.720] we're here for 5 weeks.
+- [07:00.400] But we have been talking about it since
+- [07:02.400] the big win in
+- [07:04.080] uh November November 5th.
+- [07:06.520] So, a lot of these people they listen to
+- [07:09.480] I speak and they say, "Well, I'm going
+- [07:10.760] to gear up." And they're gearing up and
+- [07:12.200] so they've been gearing up. They've had
+- [07:13.400] a little time. It's not just
+- [07:15.600] it's not just 5 weeks. It's 5 weeks plus
+- [07:17.600] a few months.
+- [07:19.080] And they are you know, they put it into
+- [07:21.280] effect pretty quickly. They have
+- [07:22.480] confidence that I'm what I'm saying is
+- [07:24.680] going to happen.
+- [07:25.960] So, with that I'd like to ask a highly
+- [07:27.920] respected gentleman, Kevin Hassett. He's
+- [07:30.240] been with us for a long time
+- [07:32.280] and he's been right about a lot. We had
+- [07:33.840] the greatest economy in history in the
+- [07:35.520] first term.
+- [07:36.800] And Kevin was a big part of it. So,
+- [07:38.560] Kevin, could you maybe give a little
+- [07:40.200] description, please?
+- [07:41.240] Yeah, thank you very much, Mr. Trump. I
+- [07:43.160] think that the three things you
+- [07:44.560] emphasized during the campaign is that
+- [07:46.200] you wanted to create domestic
+- [07:47.640] high-paying manufacturing jobs, that you
+- [07:49.720] wanted to end wasteful government
+- [07:51.440] spending and reduce the unproductive
+- [07:54.120] government workers and in fact at least
+- [07:55.880] them into the private economy where they
+- [07:57.120] could be more productive and to create
+- [07:59.200] jobs for Americans. A lot of people said
+- [08:01.160] that if you deported illegals that
+- [08:03.360] employment would go down cuz no one no
+- [08:05.440] Americans would take those jobs. And if
+- [08:07.000] you look, 280,000 American-born folks
+- [08:09.920] were hired. Uh manufacturing jobs are
+- [08:12.040] going up and this is just out of the
+- [08:14.440] expectation of your future policies
+- [08:16.400] really, sir. It's in April when your
+- [08:17.960] reciprocal trade act is expected to
+- [08:19.440] happen. The tax cuts haven't passed yet.
+- [08:21.440] And so, people are clearly expecting the
+- [08:23.080] golden age. And if you want to forecast
+- [08:24.960] the future numbers, everybody, just keep
+- [08:26.760] in mind that President Trump has already
+- [08:28.320] gotten us 1.7 trillion in commitments of
+- [08:31.200] new factories and those haven't even
+- [08:32.800] happened yet. Those aren't even in the
+- [08:34.200] numbers. And so, I expect this is going
+- [08:35.719] to be a glimpse of a golden age to come,
+- [08:38.039] sir.
+- [08:39.080] Thank you very much.
+- [08:40.960] Uh one other thing
+- [08:42.599] in Canada, you know, we find that
+- [08:44.880] they're charging us over 200% for dairy
+- [08:47.560] products. You know about that.
+- [08:49.640] And when I left we had that well taken
+- [08:51.840] care of, but under Biden they just kept
+- [08:54.320] raising it. Very difficult to deal with
+- [08:56.560] uh the Canadian uh representatives.
+- [09:00.200] 250% for dairy products. Tariff.
+- [09:03.840] So, where do you hear that? You don't
+- [09:05.000] hear that. Uh they have uh
+- [09:08.080] a tremendously high tariff.
+- [09:10.480] Give you the exact numbers in a little
+- [09:11.920] while coming out on lumber.
+- [09:14.680] So
+- [09:15.840] they sell us lumber. They have a a
+- [09:17.240] tremendous tariff. They make it
+- [09:18.960] impossible for us to sell lumber or
+- [09:22.360] dairy products into Canada.
+- [09:25.120] But our numbers are a tiny fraction of
+- [09:28.400] that. Almost non-existent.
+- [09:31.240] And what we're doing is freeing up our
+- [09:32.960] forests from the environmental nonsense
+- [09:34.960] that they put on them where you can't
+- [09:36.240] cut down a tree. And we have to cut down
+- [09:38.520] trees in order to build the firewalls.
+- [09:41.080] And those trees are sold, but we're
+- [09:42.960] going to we're freeing it up on an
+- [09:44.320] emergency basis
+- [09:46.120] because Canada has been ripping us off
+- [09:48.560] for years on tariffs for lumber and for
+- [09:51.600] dairy products.
+- [09:53.040] Uh 250%. Nobody ever talks about that.
+- [09:56.520] 250%
+- [09:58.240] tariff uh which is taking advantage of
+- [10:00.960] our farmers. So, that's not going to
+- [10:02.240] happen anymore. Uh we're going to be
+- [10:04.320] they'll be met with the exact same
+- [10:05.800] tariff
+- [10:06.840] unless they drop it.
+- [10:08.600] And that's what reciprocal means.
+- [10:10.920] And we may do it as early as today or
+- [10:12.840] we'll wait till Monday or Tuesday.
+- [10:15.800] But that's what we're going to do. We're
+- [10:17.040] going to charge the same thing. It's not
+- [10:18.600] fair. Never has been fair.
+- [10:20.840] And they've treated our farmers badly.
+- [10:22.880] Look, our country's been ripped off by
+- [10:24.400] everybody and that that stops now.
+- [10:26.960] I had it stopped in the my first term.
+- [10:30.520] And
+- [10:32.360] we're going to really stop it now
+- [10:33.840] because this is this has been very
+- [10:35.760] unfair. Our company from our country
+- [10:38.440] from an economic standpoint, financial
+- [10:40.680] standpoint, and a trade standpoint has
+- [10:43.600] been absolutely ripped off by almost
+- [10:46.400] every country
+- [10:48.160] in the world. Canada,
+- [10:50.320] Mexico,
+- [10:51.880] and then you just go right down the
+- [10:53.680] line. India charges us massive tariffs,
+- [10:56.560] massive. You can't even sell anything
+- [10:58.240] into India. It's almost it's almost
+- [11:00.400] restrictive. They It is restrictive. You
+- [11:02.200] know, we do very little business inside.
+- [11:04.720] Uh they've agreed, by the way, they want
+- [11:06.240] to cut their tariffs way down now
+- [11:08.839] because somebody's finally exposing them
+- [11:10.600] for what they've done. And same thing
+- [11:12.080] with China, same thing with a lot of
+- [11:14.120] other countries and the EU has been a
+- [11:16.080] terrible abuser
+- [11:17.800] of this country. I mean, the EU was
+- [11:20.080] formulated in order to take advantage of
+- [11:22.360] the United States and they have taken
+- [11:24.080] it, but they're not taking advantage
+- [11:25.880] when I'm in charge. So,
+- [11:27.440] uh sometimes you'll hear some negative
+- [11:29.040] things. It's always from outside
+- [11:30.360] countries. America will be very strong.
+- [11:33.240] And you know, if I'm a foreign country,
+- [11:35.200] they're going to do fine.
+- [11:36.839] But they can't do like they used to do
+- [11:40.200] because we're going to bring back our
+- [11:42.560] business into this country. We need it
+- [11:44.920] from a job standpoint. We need it from
+- [11:46.760] even just a psychological standpoint.
+- [11:49.080] Think of it, 90,000 factories are gone
+- [11:52.240] since the beginning of NAFTA. So, we're
+- [11:54.720] not going to have that and we're going
+- [11:56.200] to see them build it back. Now, we have
+- [11:58.160] We've already had five major automobile
+- [12:00.920] companies
+- [12:02.120] uh
+- [12:03.640] First time you've heard this in a long
+- [12:04.920] time, since my first term, actually.
+- [12:08.160] Well, we were really rocking and rolling
+- [12:10.000] and then Biden came in and he stopped
+- [12:11.760] everything. Like such a stupid thing to
+- [12:14.200] do. Not even a believable thing. But we
+- [12:17.040] have many uh auto plants now coming in.
+- [12:20.280] We have big chip plants. We have the
+- [12:21.520] best the biggest chip company in the
+- [12:23.120] world, most of the most powerful,
+- [12:24.400] probably one of the most powerful
+- [12:25.600] companies in the world.
+- [12:27.280] When you say Kevin and he's coming in
+- [12:28.920] and they're building uh
+- [12:31.400] one of the largest chip chip plants in
+- [12:33.320] the world. That'll be done in Arizona,
+- [12:35.640] mostly in Arizona.
+- [12:37.560] And that'll give us a big percentage.
+- [12:39.320] That one plant will give us a big
+- [12:40.760] percentage of the chip market, something
+- [12:42.920] we have very little of. You know,
+- [12:44.880] we used to have Intel and Intel was run
+- [12:46.920] by a man named Andy Grove.
+- [12:49.360] And Andy Grove was a tough, smart guy. I
+- [12:52.280] used to read about him when I was a
+- [12:53.680] young man.
+- [12:55.160] And he did an incredible job. He really
+- [12:56.920] dominated the chip business.
+- [12:59.040] And then he died and I guess they had a
+- [13:00.600] series of people that didn't know what
+- [13:02.040] the hell they were doing and we
+- [13:03.600] gradually lost the chip business and now
+- [13:06.320] it's almost exclusively in Taiwan. They
+- [13:09.160] stole it from us. They took it from us
+- [13:11.040] and
+- [13:12.160] I don't blame them. I give them credit.
+- [13:13.839] I blame the people that were sitting in
+- [13:15.520] this seat
+- [13:16.880] because they allowed it to happen. We
+- [13:18.560] could have protected that so easily. But
+- [13:20.360] so we had the chip business and now it's
+- [13:22.800] all in Taiwan, almost exclusively. A
+- [13:24.640] little bit in South Korea, but mostly in
+- [13:26.480] Taiwan.
+- [13:27.640] And it's very important. Everything you
+- [13:29.240] do, everything you touch is now about
+- [13:30.920] chips. The brake of a car
+- [13:33.600] A car has chips all over the place. I
+- [13:35.600] was reading an article the other day
+- [13:37.600] where they talk about the brakes of a
+- [13:39.720] car are loaded up with chips. Who Who
+- [13:41.440] would think that a brake has a chip in
+- [13:43.320] it?
+- [13:44.240] But it's all about chips. So,
+- [13:46.880] uh that was a big thing and they'll be
+- [13:48.280] investing hundreds of billions of
+- [13:49.880] dollars
+- [13:50.960] in this country and we'll be taking back
+- [13:52.880] a big big portion of of that industry.
+- [13:55.480] We have others coming in, too.
+- [13:57.400] But a lot of car manufacturers are
+- [13:58.960] coming in and they're coming in fast.
+- [14:00.560] And one of the reasons you see these
+- [14:01.920] numbers and again, Kevin said it and I
+- [14:04.280] said it a little bit, but the fact that
+- [14:06.920] they know I won the election. So, after
+- [14:09.800] I was president-elect, they assumed that
+- [14:11.440] I was going to do what I said cuz I do
+- [14:13.480] what I say.
+- [14:14.839] And uh so, these numbers really reflect
+- [14:17.200] a lot of the
+- [14:18.360] a lot of things that took place since
+- [14:19.760] November 5th. Right? So, Kevin, thank
+- [14:22.800] you very much. Great job. Any questions?
+- [14:24.959] Mr. President, How concerned are you
+- [14:26.959] that that the large-scale federal
+- [14:28.800] government layoffs will weaken the labor
+- [14:30.560] market? How concerned are you The
+- [14:32.000] large-scale federal what? The federal
+- [14:33.880] government layoffs will impact the labor
+- [14:35.760] market, will weaken the labor market.
+- [14:37.280] Oh.
+- [14:38.600] No, I think the labor market's going to
+- [14:40.200] be fantastic, but it's going to have
+- [14:41.920] high-paying manufacturing jobs as
+- [14:44.120] opposed to government jobs. We had too
+- [14:45.839] many people in government. You can't
+- [14:47.280] just do that. We had many many too many.
+- [14:50.079] This is for
+- [14:51.640] 40 years.
+- [14:53.320] You know, this isn't just now. This
+- [14:54.839] built up and got worse and worse and
+- [14:56.760] they just hire more and more people.
+- [14:59.320] You look at Department of Education. It
+- [15:01.040] seems like so many buildings. I I write
+- [15:03.560] by, it says Department of Education.
+- [15:05.280] They're all over the place.
+- [15:06.839] And we don't even want it. We want the
+- [15:08.600] education to be given by the states.
+- [15:11.400] It'll be much better. It'll be It'll
+- [15:13.280] move us to the top of the list from the
+- [15:15.079] bottom of the list.
+- [15:16.800] And actually save us money. But not It's
+- [15:18.880] too important even to talk about the
+- [15:20.079] money. It'll save us a lot of money.
+- [15:22.160] But we don't want that. We want
+- [15:24.160] education to be given. So, you go to
+- [15:26.720] Iowa and Indiana and Idaho and all these
+- [15:30.200] places that are so well run.
+- [15:32.800] Uh they're going to be
+- [15:34.920] producing education that will be the
+- [15:36.760] equivalent of like Denmark is one and
+- [15:39.640] Norway, Sweden.
+- [15:41.600] Actually, China is one of the better in
+- [15:44.720] terms of education. And so, we can't
+- [15:46.760] blame size anymore. You know, China is
+- [15:48.480] 1.4 billion people,
+- [15:50.560] but they're very high on the list. The
+- [15:52.000] one thing we're doing well on, we're
+- [15:54.000] number one on the list is cost per
+- [15:55.800] pupil. We spend more money
+- [15:58.079] than any other country in the world by
+- [16:00.520] far.
+- [16:01.760] So, I jokingly say the one thing we do
+- [16:03.880] well on is the cost. We spend more money
+- [16:05.920] and yet we're toward the bottom of the
+- [16:07.839] list. Yeah.
+- [16:08.440] Mr. President, I want to ask you the
+- [16:09.480] joint address. Millions of Americans
+- [16:10.920] watched your joint address earlier this
+- [16:12.360] week where you warned that there could
+- [16:13.560] be a little disturbance that Americans
+- [16:15.920] could feel as a function of these taxes,
+- [16:18.560] these tariffs. How much disturbance are
+- [16:20.160] you willing to accept in the near term
+- [16:22.160] as a function of that and to set
+- [16:23.400] expectations, how long should Americans
+- [16:25.839] expect things to cost a bit more? Well,
+- [16:28.839] so far, Peter, there hasn't been very
+- [16:30.560] much because these numbers are coming
+- [16:32.240] out. We're We're here for just a little
+- [16:34.360] over 4 weeks.
+- [16:35.959] And these are fantastic numbers. You I
+- [16:38.400] was watching some of the reports this
+- [16:39.920] morning. They were surprised. There
+- [16:41.480] could be some disturbance, a little bit
+- [16:43.120] of disturbance. I solved a little bit of
+- [16:46.120] that because I have respect for our auto
+- [16:48.079] companies and I gave them a little bit
+- [16:50.240] of a 1-month reprieve because it was it
+- [16:52.720] was unfair. Although,
+- [16:55.560] I'm sure they'll take advantage of it. I
+- [16:57.120] see they're driving a lot of cars into
+- [16:58.920] the US to try and avoid the tariffs and
+- [17:00.880] you know, they're taking advantage of it
+- [17:02.440] a little bit, but uh
+- [17:04.959] uh they were they called me. They asked
+- [17:07.079] me. They said,
+- [17:08.320] could they have a little bit of help?
+- [17:09.480] And I decided, you know, they're
+- [17:10.560] American companies, USMCA.
+- [17:13.240] And
+- [17:14.400] uh I I let them have that. But this
+- [17:17.320] really kicks in the reciprocals, you
+- [17:19.320] know, kicks in on
+- [17:20.760] uh
+- [17:22.439] Let's see. I guess the 2nd.
+- [17:24.520] And I wanted to be the first so badly.
+- [17:26.600] Just didn't want to be on April Fools'
+- [17:28.160] Day. So, I made it the 2nd. That's going
+- [17:30.080] to cost a lot of money. That one day is
+- [17:31.600] going to cost a lot of money, but that's
+- [17:33.040] okay.
+- [17:34.040] Uh
+- [17:34.920] But I I don't see it. I don't see
+- [17:36.280] anything. I see good reports. I think I
+- [17:38.440] think we're going to have good numbers
+- [17:39.520] from the beginning. Now, the globalists
+- [17:41.640] won't love this because this brings jobs
+- [17:43.560] back to America. So, if they're coming
+- [17:45.679] back to America, maybe you'll lose some
+- [17:47.840] in other parts of the world. Uh but the
+- [17:50.640] other parts of the world have done very
+- [17:52.320] well and they'll continue to do very
+- [17:53.840] well. But I think the United States is
+- [17:55.880] going to be doing record business. We'll
+- [17:57.880] bring a lot of those 90,000 factories
+- [18:00.080] that have been lost over the last number
+- [18:02.240] of years. It's been It's hard to
+- [18:04.320] believe. 90,000. Think of what 90,000
+- [18:06.720] is. 90,000
+- [18:08.440] plants and factories are gone. We're
+- [18:09.920] going to bring back many of those plants
+- [18:11.400] and factories.
+- [18:12.120] One day the tariffs are on, the next day
+- [18:14.200] they're off. Right now, the markets, as
+- [18:15.800] you know well, prefer stability. Are you
+- [18:19.040] done going forward with the pauses and
+- [18:21.080] the car bounces? Is that it for those?
+- [18:22.679] There'll always be changes and
+- [18:24.000] adjustments. And you know, you can't
+- [18:26.000] just
+- [18:27.080] I could have, for instance, told the
+- [18:28.400] American car companies, "No, I'm not
+- [18:30.240] going to give you anything." And then
+- [18:31.400] you wouldn't have had to say, "Well,
+- [18:32.720] they're getting a little extra." It's
+- [18:34.440] just a little bit of a 1-month reprieve.
+- [18:37.040] Uh
+- [18:37.800] they're very happy about what's
+- [18:39.040] happening. They won't have to go across
+- [18:40.640] borders and you see the zigzagging. You
+- [18:43.040] have a fender made in Canada. You have
+- [18:44.840] something else made in Mexico. We don't
+- [18:47.000] want that. We want it made here. Uh but
+- [18:49.560] there'll always be uh
+- [18:51.280] some modifications. I mean, if you have
+- [18:52.919] a wall in front of you, sometimes you
+- [18:54.360] have to go around the wall instead of
+- [18:55.760] through it.
+- [18:56.800] But I think very little. I think very
+- [18:58.640] little. On occasion,
+- [19:00.360] uh if we can do something, we want to
+- [19:01.960] help companies. We want to help
+- [19:03.280] companies create jobs.
+- [19:05.080] So, I could have left that and you
+- [19:07.200] wouldn't have had a minor change.
+- [19:10.480] Uh instead, I I was asked by
+- [19:13.280] the major the real majors, the big
+- [19:15.080] majors, if they could do this. And I
+- [19:16.560] said, "Yeah, I'll do it. I want you to
+- [19:17.919] produce a lot of jobs." And numerous of
+- [19:20.880] the people, actually all of the people I
+- [19:22.720] spoke to have already been They're very
+- [19:24.560] much on the way to order dinner. That's
+- [19:26.080] why you have auto jobs increase.
+- [19:29.520] And the man, I don't know. I'm Shawn
+- [19:31.880] Fain. I don't know him, but
+- [19:33.880] and I did great, as you know, with the
+- [19:35.440] auto workers, with the Teamsters, with
+- [19:37.360] unions. I did fantastically well. Best
+- [19:39.480] numbers ever by a Republican.
+- [19:41.720] But and I have a lot of respect for
+- [19:43.560] those people. But Shawn Fain, who I
+- [19:45.960] don't know,
+- [19:47.960] but wasn't a supporter. Although, the
+- [19:50.560] auto workers were big supporters. Uh I
+- [19:53.200] watched him last night and he said,
+- [19:54.680] "Donald Trump is absolutely right on
+- [19:58.160] tariffs." He said,
+- [20:00.280] "What he's doing on tariffs is an
+- [20:01.840] incredible thing.
+- [20:03.400] And it's about time somebody had the
+- [20:05.000] guts to do it because we're going to
+- [20:06.760] save auto manufacturing." And I said to
+- [20:08.760] people when I was campaigning, "You're
+- [20:10.600] going to have so many auto jobs, you're
+- [20:11.960] not going to believe what's going to
+- [20:12.920] happen." We're going to load up
+- [20:14.040] Michigan. I won the state of Michigan,
+- [20:15.640] as you know. And part of the reason I
+- [20:17.960] won it was I got a lot of auto workers
+- [20:19.800] that voted for me, Detroit, et cetera.
+- [20:22.600] But I think people are going to be very
+- [20:24.440] surprised. Yes. Thank you, Mr.
+- [20:25.720] President. You mentioned in your remarks
+- [20:27.320] chips manufacturing, how a significant
+- [20:30.320] percentage is now in Taiwan. You also
+- [20:32.360] mentioned it in your address to
+- [20:34.320] Congress. And you called on Congress to
+- [20:36.560] overturn the Chips Act, which had
+- [20:39.240] bipartisan support in the last Congress.
+- [20:41.440] Why would you like to see this
+- [20:43.440] particular law overturned, Mr. Because
+- [20:45.440] it's hundreds of billions of dollars and
+- [20:47.240] it's just a waste of money. Now, some
+- [20:49.240] people have already taken the money and
+- [20:50.800] used it. Actually, it's very hard to
+- [20:52.520] qualify
+- [20:53.760] because they go by race, they go by
+- [20:55.480] gender, they go by
+- [20:57.840] all sorts of things. Nobody's ever seen
+- [20:59.960] anything like it. You won't be able to
+- [21:01.320] find those people. So, I don't even
+- [21:03.440] think anybody can qualify. They have so
+- [21:06.120] many different categories in order to
+- [21:07.920] qualify.
+- [21:09.280] You have to have so many of a certain
+- [21:10.920] race, a certain gender, a certain this,
+- [21:13.080] a certain
+- [21:14.160] And it's I don't think they can qualify,
+- [21:16.720] but if they take the money, they better
+- [21:18.360] qualify cuz I'll be watching them. But
+- [21:20.520] it's a tremendous waste of money. I
+- [21:22.040] didn't give the great The greatest chip
+- [21:24.360] company in the world, one of the
+- [21:25.520] greatest companies, I didn't give them
+- [21:26.920] 10 cents. They came here because of
+- [21:29.040] tariffs, because they didn't want to pay
+- [21:30.400] the tariffs. And they also came here
+- [21:32.600] because they liked the results of the
+- [21:34.040] election because they know that I'm very
+- [21:36.120] pro-business and pro-jobs. I mean, I'm
+- [21:38.560] pro-business not for business' sake. I'm
+- [21:41.240] pro-business because of jobs, because
+- [21:43.040] business is producing the jobs. Okay.
+- [21:45.600] Mr. President, on Russia,
+- [21:48.040] if I may, President Putin is bombing
+- [21:50.920] Ukraine. Do you still believe him when
+- [21:53.160] he tells you that he wants peace?
+- [21:55.600] You know, I I believe him. I believe
+- [21:57.600] him. I think we're doing very well with
+- [21:59.400] Russia. Uh
+- [22:01.520] But right now, they're bombing the hell
+- [22:03.080] out of Ukraine and Ukraine, I'm I'm
+- [22:05.280] finding it more difficult, frankly, to
+- [22:07.080] deal with Ukraine.
+- [22:08.880] And and they don't have the cards. They
+- [22:11.280] don't have the cards. Um as you know,
+- [22:13.800] we're meeting in Saudi Arabia on
+- [22:16.400] sometime next week, early.
+- [22:18.640] And we're talking with find uh
+- [22:21.600] that in terms of
+- [22:23.560] getting a final settlement, it may be
+- [22:25.679] easier dealing with Russia, which is
+- [22:27.240] surprising cuz they have all the cards.
+- [22:28.920] I mean, they and they're bombing the
+- [22:30.600] hell out of them right now.
+- [22:32.720] And I put a statement in a very strong
+- [22:34.600] statement. Can't do that. Can't do that.
+- [22:36.920] Mr. President, Trying to We're trying to
+- [22:38.320] help them.
+- [22:39.480] And Ukraine has to get on the ball and
+- [22:41.160] get a job done. Michael, could you come
+- [22:42.720] up here? I see Michael back there.
+- [22:45.640] Good. I'm glad. He's traveling all over
+- [22:48.040] the world. I just saw him come in the
+- [22:49.480] door. Thank you.
+- [22:51.240] give a little
+- [22:52.560] definition of what's going on, please?
+- [22:54.320] Sure. Well, the president has been
+- [22:56.200] crystal clear and he's been clear to all
+- [22:58.160] sides. The fighting has to stop. Both
+- [23:00.560] sides need to get get to the table.
+- [23:03.520] We had a good engagement at both leaders
+- [23:06.200] have said only President Trump could do
+- [23:09.440] so
+- [23:10.560] and only he has been able to do so. We
+- [23:12.160] had an initial engagement with the
+- [23:13.560] Russians. The Ukrainians had a great
+- [23:16.560] opportunity to bind our economies
+- [23:19.000] together through that mineral deal.
+- [23:21.040] Unfortunately,
+- [23:22.920] that didn't go so well,
+- [23:24.760] but we think we're going to get things
+- [23:26.400] back on track. Secretary Rubio,
+- [23:30.800] myself and Ukrainian delegation will be
+- [23:33.800] meeting in Saudi Arabia next week to get
+- [23:37.120] these talks back on track, get the
+- [23:38.800] ceasefire in place and drive peace home.
+- [23:41.520] Under President Trump's leadership,
+- [23:44.080] I think both
+- [23:45.760] parties want to settle.
+- [23:47.600] I think if I wasn't president, this war
+- [23:51.080] would have had no chance of settlement.
+- [23:52.960] Zero chance.
+- [23:54.800] But I think we're going to get it
+- [23:55.960] settled and stopped. We got to stop.
+- [23:58.160] They're losing on average 2,000 soldiers
+- [24:00.600] a week. That's a lot of soldiers. Do you
+- [24:02.760] agree, Peter? It's a lot of soldiers on
+- [24:04.560] both sides. I agree. Do you, Mr.
+- [24:06.520] President, think that Vladimir Putin is
+- [24:08.520] taking advantage of the US pause right
+- [24:11.320] now on intelligence and military aid to
+- [24:13.840] Ukraine? No, I actually think he's doing
+- [24:16.320] what anybody else would do. I think he's
+- [24:18.960] uh
+- [24:20.280] I think he wants to get it stopped and
+- [24:21.960] settled and I think he's hitting them
+- [24:23.280] harder than
+- [24:24.560] than he's been hitting them.
+- [24:26.800] And I think probably anybody in that
+- [24:28.520] position would be doing that right now.
+- [24:30.800] He wants to get it ended and I think
+- [24:33.640] Ukraine wants to get it ended, but I
+- [24:35.320] don't see it's it's crazy. They They're
+- [24:37.160] taking tremendous punishment. I don't
+- [24:39.840] quite get it, but I suspect, Michael, he
+- [24:42.360] probably wants to get it ended.
+- [24:44.120] He
+- [24:44.880] He does, Mr. President. The Russians are
+- [24:46.400] taking incredible losses on the front.
+- [24:48.920] As the president has said, "This is a
+- [24:50.800] meat grinder of people, of material, of
+- [24:54.440] of national treasure and no one else has
+- [24:56.760] any solutions except to let this war
+- [24:59.080] continue forever." But I'll add, the
+- [25:01.280] president has had
+- [25:03.040] multiple conversations and a visit from
+- [25:05.679] President Macron of France, Prime
+- [25:07.560] Minister Starmer of the United Kingdom.
+- [25:09.280] We have the NATO Secretary General
+- [25:10.880] coming next week. We have this meeting
+- [25:13.000] with the
+- [25:13.920] with the Ukrainians. We've had it with
+- [25:15.480] the Russians. All of this in the
+- [25:16.960] president's first month in his
+- [25:18.400] leadership. We will engage in the
+- [25:20.560] shuttle diplomacy and we will continue
+- [25:22.360] to use his leadership and what leverage
+- [25:25.040] we have to get both sides of the peace
+- [25:26.560] table. It's not going to be easy, but
+- [25:28.679] President Trump
+- [25:29.600] it would have never happened. It would
+- [25:30.920] have never happened if I were president.
+- [25:33.120] But it did happen. So, a lot of other
+- [25:35.320] things shouldn't have happened, too. We
+- [25:37.000] shouldn't have 21 million people pouring
+- [25:39.520] into our country through open borders,
+- [25:41.280] many of whom are criminals, very bad
+- [25:43.560] criminals, including murderers,
+- [25:44.920] thousands of murderers.
+- [25:47.240] Many killed far far more than one person
+- [25:50.000] and they're roaming our streets. But Tom
+- [25:52.120] Homan and Kristi Noem are doing an
+- [25:53.679] incredible job and we're getting them
+- [25:55.240] out of here.
+- [25:56.440] And we'll get them out. We'll get them
+- [25:57.880] all out. But all these things shouldn't
+- [26:00.320] have happened. We would We shouldn't
+- [26:01.679] have inflation. We shouldn't have had
+- [26:03.080] this horrible inflation where the prices
+- [26:05.880] have gone up. Look at eggs. So, we're
+- [26:08.320] doing uh
+- [26:10.000] We're doing a good job. We're doing a
+- [26:11.600] good job. Mr. President, in regards to
+- [26:13.400] the pause on military assistance to
+- [26:15.600] Ukraine, you put out on your social
+- [26:17.760] media post today that
+- [26:19.960] Russia is pounding Ukraine. That's
+- [26:22.040] right. Why not provide Ukraine with air
+- [26:25.120] defenses? And what happens, Mr.
+- [26:26.760] President, when Ukraine runs out of
+- [26:28.800] Well, because you Yeah. Good question.
+- [26:31.400] Because I have to know that they want to
+- [26:32.840] settle.
+- [26:33.960] I don't know that they want to settle.
+- [26:36.320] If they don't want to settle, we're out
+- [26:38.040] of there.
+- [26:39.280] Because we want them to settle. And I'm
+- [26:41.720] doing it to stop death. More important
+- [26:44.200] than anything else. Secondarily, way
+- [26:46.160] down the line is the money. So, we're in
+- [26:48.360] for 350 billion dollars and Europe is in
+- [26:51.679] for 100 billion dollars. They should be
+- [26:53.440] in for the same or more than us.
+- [26:56.360] And you know, I I watched
+- [26:58.800] over the last week or so what's going on
+- [27:00.960] in Europe. This thing could end up in
+- [27:02.679] World War III if we don't get it
+- [27:04.120] settled. This could really end up in a
+- [27:06.160] World War III. We got to get it settled.
+- [27:08.200] Mr. President, on Iran,
+- [27:09.800] how confident are you that the Iranians
+- [27:12.320] will negotiate with you? And is Israel
+- [27:14.480] involved with this hostage? Yeah, I saw
+- [27:16.920] the hostages the other day. They came
+- [27:18.720] in. Uh people that were not young, some
+- [27:21.880] young and some older, much older.
+- [27:25.040] Uh
+- [27:26.200] And they gave
+- [27:28.520] It was hard for them to do it, actually.
+- [27:30.000] They gave
+- [27:31.520] statements as to what happened. I was
+- [27:33.080] asking, "What happened? How was it?" I
+- [27:35.560] said, "Did you see anybody in there that
+- [27:37.480] was kind of like out of the hundreds of
+- [27:40.280] people that you were seeing
+- [27:42.560] uh Hamas?
+- [27:44.280] Did some of them wink at you and say,
+- [27:46.000] 'Don't worry, you're going to be okay'
+- [27:47.360] or give you a piece of bread or
+- [27:49.560] No. I said, "Were there any people that
+- [27:51.720] were like kind?" I was shocked. The
+- [27:53.920] answer was
+- [27:55.120] nobody. There was nobody. Just the
+- [27:56.880] opposite. They'd be slapped and punched.
+- [28:00.200] One man broke his ribs. He couldn't
+- [28:01.720] breathe for a month.
+- [28:03.440] Uh it was brutal. I was so surprised cuz
+- [28:06.320] you'd think there'd be a couple of
+- [28:07.400] people that would be
+- [28:10.000] kind that would say, "You're going to be
+- [28:12.840] okay." But they had none of that.
+- [28:15.600] It's pretty amazing. Brian? Uh thank
+- [28:17.880] you, Mr. He's a kind person. Well,
+- [28:20.480] according to the
+- [28:21.000] Although not to
+- [28:22.600] not to Zelenskyy, he wasn't.
+- [28:25.840] But to Trump, he's been good. Go ahead,
+- [28:27.640] Brian. Uh nice tie, by the way.
+- [28:29.120] Thank you. Thank you. I like yours, too.
+- [28:30.880] Um two questions. One on peace. Why
+- [28:34.159] don't you think any other European
+- [28:35.880] countries are offering a peace deal? It
+- [28:38.640] seems like no one's come to the table
+- [28:41.240] for peace except for
+- [28:42.880] you. Yeah. Uh
+- [28:45.640] It's a very good question. Sometimes
+- [28:48.800] questions aren't answerable.
+- [28:50.960] Uh they're in a very unusual position.
+- [28:53.600] They They don't know how to end the war.
+- [28:56.240] I think I do know how to end the war.
+- [28:59.400] Despite the Russia Russia Russia hoax,
+- [29:01.440] I've always had a good relationship with
+- [29:03.080] Putin.
+- [29:04.440] Uh
+- [29:05.240] and you know,
+- [29:06.919] he wants to end the war.
+- [29:08.679] He wants to end it. And I think he's
+- [29:10.800] going to be more generous than he has to
+- [29:12.280] be.
+- [29:13.360] And that's pretty good.
+- [29:15.320] That means
+- [29:16.760] a lot of good things.
+- [29:18.520] Because, frankly, you could have made a
+- [29:19.919] great deal if you If this war never
+- [29:22.159] started, you could have made a great
+- [29:23.480] deal. I don't know that anything would
+- [29:25.280] have had to be given up. This was not a
+- [29:26.960] war that was going to start, Brian.
+- [29:29.600] And it didn't start. For 4 years it you
+- [29:31.480] know, somebody said, "Well, how do we
+- [29:32.720] know that?" Well, for 4 years it didn't
+- [29:34.919] start. I used to speak to Vladimir about
+- [29:37.720] it. I used to speak to him about it at
+- [29:39.440] length. It was the apple of his eye, but
+- [29:40.800] there was no way he was going in. And he
+- [29:42.919] knew what you know, there were going to
+- [29:44.040] be consequences. But uh it did start.
+- [29:49.080] I mean, think of
+- [29:50.480] Think of what happened. Inflation, you
+- [29:52.920] have the war with Ukraine and Russia,
+- [29:55.000] that wouldn't have happened. October 7th
+- [29:57.320] would have never happened. Israel They
+- [29:59.320] had no money, Iran had no money. Iran
+- [30:01.480] was
+- [30:03.080] stone cold broke.
+- [30:05.440] And now they have a lot of money.
+- [30:07.440] Uh
+- [30:09.040] But and that's going to be the next
+- [30:10.520] thing you'll be talking about is Iran.
+- [30:12.080] What's going to happen with Iran? And
+- [30:13.920] there'll be some interesting days ahead,
+- [30:15.520] that's all I can tell you. You know,
+- [30:16.640] we're down to final strokes with Iran,
+- [30:18.440] that's going to be an interesting time.
+- [30:21.040] And uh we'll see what happens, but
+- [30:24.640] we're down to the final moments.
+- [30:27.560] We're at final moments. Can't let them
+- [30:29.480] have a nuclear weapon.
+- [30:31.800] I would I think that I would have had a
+- [30:33.920] deal within 1 month after the rigged
+- [30:35.840] election of 2020.
+- [30:38.040] They were all set to make a deal.
+- [30:40.280] And then when I lost, they saw this
+- [30:41.640] person who's a stupid person, very
+- [30:43.440] stupid person.
+- [30:45.360] And they said, "Let's not make a deal."
+- [30:46.960] And they were right. He took the
+- [30:48.520] sanctions off, they became rich under
+- [30:50.880] Biden.
+- [30:51.880] They went from having no money to having
+- [30:53.760] 300 billion dollars.
+- [30:57.160] All in a short period of soil. Oil
+- [30:58.840] builds up fast, it's a nice nice living
+- [31:01.000] if you have a nice oil well. And they
+- [31:03.320] do, they have a lot of nice oil wells,
+- [31:04.920] right?
+- [31:06.080] So anyway, so it's uh that's going to be
+- [31:08.240] a big thing. Uh
+- [31:10.400] It's an interesting time in the history
+- [31:12.200] of the world.
+- [31:13.480] But we have
+- [31:15.680] a
+- [31:16.720] situation with Iran
+- [31:19.200] that something's going to happen very
+- [31:20.520] soon. Very, very soon. You'll be talking
+- [31:23.080] about that pretty soon, I guess. And
+- [31:24.920] hopefully we can have a a peace deal.
+- [31:26.720] You know, I'm
+- [31:27.840] I'm not speaking out of strength or
+- [31:29.400] weakness. I'm just saying I'd rather see
+- [31:31.000] a peace
+- [31:32.200] deal than
+- [31:33.440] the other. But the other will solve the
+- [31:34.880] problem. Mr. President, your allies Mr.
+- [31:36.880] President, say your allies are calling
+- [31:38.920] on you to pardon Derek Chauvin. Are you
+- [31:40.800] considering pardoning Derek Chauvin?
+- [31:42.840] No, I haven't even heard about it. No.
+- [31:44.680] Mr. President on peace.
+- [31:46.040] I haven't heard that. In the first term,
+- [31:48.280] you may recall, I broke the news that
+- [31:50.400] you were nominated for the Nobel Peace
+- [31:52.920] Prize. And the reason for that was the
+- [31:55.480] work that you led on the Abraham
+- [31:57.440] Accords. I spoke yesterday with the
+- [32:00.040] member of Parliament, the Norwegian
+- [32:01.679] Parliament, that nominated you. And he
+- [32:04.400] said what the Nobel Committee is looking
+- [32:06.600] for from you, Mr. President, is security
+- [32:10.440] guarantees for Ukraine. Is that a
+- [32:13.520] possibility, Mr. President?
+- [32:15.800] So,
+- [32:16.960] before I even think about that, I want
+- [32:19.400] to
+- [32:20.400] settle the war, get it finished. Cuz if
+- [32:23.000] I'm not here, nobody's going to settle
+- [32:24.600] it.
+- [32:25.440] And President Macron has said that, and
+- [32:27.920] every president, everybody's said that,
+- [32:29.640] the prime ministers and presidents.
+- [32:32.360] We're pushing very hard. That's all I'm
+- [32:33.720] thinking about now.
+- [32:35.320] As far as the question about security
+- [32:37.760] later, that's the easy part.
+- [32:40.640] The hard part is getting it settled. We
+- [32:42.080] got to get them
+- [32:43.679] We're losing 2,000 human beings
+- [32:47.280] every week.
+- [32:48.400] More than that, actually.
+- [32:50.200] 2,000
+- [32:51.880] nice young, although they're getting
+- [32:53.520] older because they're drafting much
+- [32:55.040] older now.
+- [32:56.880] In the case of one country, much older.
+- [32:59.480] Cuz a lot of the young people have been
+- [33:01.000] killed.
+- [33:02.320] It's very sad, and I'd like to see if I
+- [33:03.920] could stop that. And I'd like to also
+- [33:06.440] see if we could stop making these
+- [33:08.400] massive payments from the United States.
+- [33:10.080] I mean, Biden gave away money like it
+- [33:12.320] was like it was water.
+- [33:14.840] They don't know anything, got nothing
+- [33:16.440] for it. Europe Europe did it in the form
+- [33:18.360] of a loan.
+- [33:19.800] They get their money back, we don't. So,
+- [33:23.000] that's how we came up with the rare
+- [33:24.760] earth deal.
+- [33:26.440] But we started, you know, behind the
+- [33:28.280] eight ball. He could have He could have
+- [33:29.840] gone to Europe, he could have said,
+- [33:31.040] "Come on, you got to put up money with
+- [33:32.400] us. You got to put up money with us."
+- [33:34.400] But he never did that. They just kept
+- [33:35.760] handing money out because he was grossly
+- [33:38.320] incompetent. All right, thank you very
+- [33:40.080] much, everybody.
+- [33:43.960] Thank you very much. Thank you. Thanks,
+- [33:45.960] guys.

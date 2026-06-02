@@ -1,0 +1,754 @@
+<!-- source: https://www.youtube.com/watch?v=E9y3yfTAUaE -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: E9y3yfTAUaE -->
+<!-- date_published: 2026-01-30T17:36:33+00:00 -->
+<!-- date_accessed: 2026-06-02T02:38:26.202991+00:00 -->
+
+# Transcript: President Trump Signs Executive Orders, Jan. 30, 2026
+
+- [00:04.330] The President: You all set? So I have some incredible people
+- [00:09.660] and this is a very exciting thing that we're doing
+- [00:12.990] and it was fast. They've wanted to do it.
+- [00:15.550] I understand they've been here hundreds of times
+- [00:18.230] over the years trying to do it.
+- [00:20.250] And they're going to give you a little bit of history.
+- [00:23.240] Roger Penske, everybody knows he's a legend
+- [00:26.080] in many different things, but certainly in racing,
+- [00:28.820] he's won the Indianapolis 500 20 times.
+- [00:32.690] On the 18th time, I said,
+- [00:34.110] he's been a friend of mine for a long time,
+- [00:35.650] but on the 18th time I said, "I think I'm going to give him
+- [00:37.770] the Presidential Medal of Freedom
+- [00:39.080] because how do you do that?" Japan, Germany, Roger, right?
+- [00:43.870] Everybody, they want to win the Indy 500.
+- [00:47.950] They spend billions of dollars getting a car
+- [00:50.240] and this guy wins it like every year.
+- [00:52.760] He won it so many times that he ended up buying the track.
+- [00:55.750] So now he owns a track, he owns a race.
+- [00:57.760] It's pretty good. Now he's won it though.
+- [00:59.950] He won it two times since he got it.
+- [01:02.300] And it's a total of 20.
+- [01:05.140] And didn't you win the Daytona 500?
+- [01:07.170] Roger Penske: Yes. The President: How many times?
+- [01:08.450] Roger Penske: Four times.
+- [01:09.650] The President: That's all?
+- [01:12.880] That's terrible. I can't believe it.
+- [01:14.710] Anyway, if you win it once, it's like great.
+- [01:17.870] The guy's amazing.
+- [01:19.150] He's a genius and a real genius at cars and racing.
+- [01:23.000] And they are going to put up something that's really amazing.
+- [01:28.070] It's really having to do with our great 250th birthday
+- [01:31.940] where we're having so many wonderful things.
+- [01:33.830] UFC is coming, as you know, in front of the White House
+- [01:36.140] with the building, literally a stadium.
+- [01:38.180] We're going to have over 100,000 people.
+- [01:41.290] And this is going to have a lot of people --
+- [01:43.720] I won't even say how many people,
+- [01:45.010] because I think it can set a record for racing.
+- [01:47.770] It's going to be very, very important.
+- [01:49.810] We're celebrating greatness with American motor racing.
+- [01:53.450] That's going to be the name of the event.
+- [01:55.530] It's going to take place on August 21st through the 23rd.
+- [02:00.370] And it's going to be so exciting.
+- [02:02.050] And I love the racing.
+- [02:04.060] I don't have a lot of time to watch it,
+- [02:06.010] but I love the racing. And just before we start,
+- [02:09.730] I will say numbers came out this morning.
+- [02:13.500] They're phenomenal for the country.
+- [02:15.830] So we announced yesterday that for the first time
+- [02:19.130] in I think 28 years, America made more steel than Japan.
+- [02:23.720] Can you believe it? Japan's a big steel country.
+- [02:26.040] America made more steel than Japan.
+- [02:30.200] The numbers are record setting numbers.
+- [02:32.660] Every one of our numbers are doing --
+- [02:34.420] We've never had anything like it.
+- [02:36.620] We have over $18 trillion coming into our country.
+- [02:39.910] We're building thousands of plants
+- [02:42.230] and all sorts of businesses all over the United States.
+- [02:46.180] It's never been anything like it.
+- [02:48.260] $18 trillion investment.
+- [02:50.240] So fellows, we have over $18 trillion
+- [02:53.820] being invested in the United States of America.
+- [02:56.240] The record was three trillion 10 years ago,
+- [02:58.980] not by us, by another country.
+- [03:01.370] And we're going to do 18
+- [03:03.030] and I think the 18's going to go higher.
+- [03:05.010] We're just looking at 11 months.
+- [03:06.680] The 12th month hasn't come in yet,
+- [03:08.260] but it's going to bring us over 18, maybe even hit 20.
+- [03:12.210] So you have 18 to $20 trillion coming in
+- [03:14.770] and we've never had anything like it.
+- [03:19.870] We have a record we just set, as you know,
+- [03:23.230] the S&P 500 just set a new record, 7,000.
+- [03:26.440] Nobody thought that was possible.
+- [03:28.290] This quicker time, they thought maybe at the end of four years
+- [03:30.820] or five years or six years. But we did it in the first year.
+- [03:35.110] And we had 48 stock market highs, Roger.
+- [03:39.670] So Roger's a big beneficiary because he has a lot of stock.
+- [03:43.510] But anybody that has stock, including people with 401(k).
+- [03:46.620] So the economy has never been like this.
+- [03:49.680] It was just announced that crime is at an all time low,
+- [03:54.870] best numbers on crime in the recorded history of our country,
+- [04:00.590] and the lowest numbers of murders in the history
+- [04:04.440] of our country that we have.
+- [04:05.810] Recorded history goes back 125 years.
+- [04:08.210] That's not bad. And a lot of that
+- [04:10.560] is because of the fact that we have a closed border.
+- [04:13.100] We've taken out thousands and thousands of criminals
+- [04:15.880] and murderers and drug dealers and everything else.
+- [04:19.360] And we've either brought them back to their country
+- [04:21.560] or in some cases we have to put them in our jails
+- [04:23.690] because we don't want to have them come back.
+- [04:26.960] And so we don't want to just bring them back to their country
+- [04:29.130] and then they maybe come back, despite our border,
+- [04:31.140] they're pretty sneaky, pretty smart.
+- [04:34.410] So we're doing things that nobody's ever seen before.
+- [04:36.720] The country is really in great shape.
+- [04:38.830] We have a large armada, flotilla, you can go out
+- [04:44.220] whatever you want, heading toward Iran right now,
+- [04:48.840] even larger than what we had in Venezuela.
+- [04:51.350] It's still in front of Venezuela.
+- [04:53.050] The Venezuelan situation,
+- [04:55.430] the leadership is doing a very good job.
+- [04:57.690] We're very happy and we're getting along very, very well.
+- [05:01.480] And we're inviting countries of the world very shortly.
+- [05:05.020] They're going to be starting to take the oil.
+- [05:07.110] We're going to be heading that with the country,
+- [05:11.400] and it's worked out really well.
+- [05:12.790] We're now sending actually a larger number of ships to Iran
+- [05:18.340] and hopefully we'll make a deal.
+- [05:19.750] If we do make a deal, that's good.
+- [05:21.030] If we don't make a deal, we'll see what happens.
+- [05:24.200] But this is going to be exciting.
+- [05:25.410] So I'm going to ask -- And he really is a legend.
+- [05:27.940] He's a great man. I've known him for a tremendously long time.
+- [05:31.580] I refused to say we were both young.
+- [05:34.200] Now we're both a little older.
+- [05:35.660] We refuse to say old, but we're a little older.
+- [05:38.430] But Roger Penske is the chairman, as you know,
+- [05:42.070] of Penske Corporation.
+- [05:44.000] He's got everything you can imagine,
+- [05:46.670] mostly I think to do with automotive.
+- [05:49.520] And I'd like to ask him to say a few words about the event,
+- [05:52.490] because this is going to be --
+- [05:53.880] They're putting everything behind it,
+- [05:55.340] and I think it's going to be really exciting.
+- [05:57.090] Roger, please.
+- [05:59.220] Roger Penske: Well, thank you, Mr. President.
+- [06:01.240] This is a really amazing time for us as a company
+- [06:07.510] to support the 250th anniversary for the country.
+- [06:12.700] And there's no better way for us to bring automotive
+- [06:16.380] and speed into the D.C. area and to have the opportunity
+- [06:22.130] to be able to compete here with our Indy cars.
+- [06:26.090] As you know, we own the Indianapolis Motor Speedway
+- [06:28.350] and we are taking that history of over 100 years and the speed
+- [06:33.440] and what's taken place there with the different manufacturers
+- [06:36.560] and bringing it here to this race will be amazing.
+- [06:40.030] Certainly the Freedom 250,
+- [06:41.670] when you think about it's just a byproduct
+- [06:45.060] of what the president has done during this year.
+- [06:47.610] And this will be event obviously in August,
+- [06:50.140] which will make a huge difference.
+- [06:51.600] And we're excited. The areas for people to see,
+- [06:54.800] most of the grounds will be free.
+- [06:56.730] So it's going to be an economic benefit to the area,
+- [07:01.240] to the city.
+- [07:02.510] And obviously with our Fox partner,
+- [07:05.020] Eric Shanks will be our media partner.
+- [07:07.630] And believe me, what they did for us at
+- [07:09.480] Indy this past year, they're going to take that
+- [07:11.310] and put it on steroids really and take it to the next level.
+- [07:14.520] So thank you, Mr. President,
+- [07:15.970] for allowing us to come into your city.
+- [07:17.420] The President: That's so great.
+- [07:18.660] Roger Penske: Thank you.
+- [07:19.880] The President: Great. Great man.
+- [07:21.790] Eric, I'd like to have you say a few words.
+- [07:24.120] He's done a fantastic job at Fox
+- [07:26.610] and he's really excited about this
+- [07:28.690] and I know they're going to lay it on the line.
+- [07:30.900] Eric, please. Eric Shanks: Sure.
+- [07:32.100] Well, thank you, Mr. President, for having us here today.
+- [07:35.450] Big shout out to Secretary Duffy.
+- [07:37.750] This project was kind of on life support
+- [07:39.990] until you stepped in recently
+- [07:42.470] and got us here today, Secretary Berger.
+- [07:44.850] Your team has been absolutely incredible.
+- [07:46.420] The President: Explain how many times you came to Washington
+- [07:48.420] trying to do this --
+- [07:49.660] Eric Shanks: I think Bud came here 81 times.
+- [07:52.460] Bud: Eighty-one meetings I had in Capitol Hill.
+- [07:54.080] The President: Meeting with senators,
+- [07:55.320] meeting with people at the Capitol.
+- [07:56.850] And they all wanted it.
+- [07:58.530] Everybody wanted it, but they couldn't figure it out.
+- [08:01.630] It was crazy. 80 somewhat (inaudible).
+- [08:04.320] That's pretty amazing. So go ahead please.
+- [08:06.540] Eric Shanks: Well, it's a real honor
+- [08:08.600] to be a partner with Roger and IndyCar and at Fox Sports,
+- [08:13.440] we do the biggest events in sports.
+- [08:15.700] This year we have the FIFA World Cup
+- [08:18.360] that we'll be celebrating here as well.
+- [08:20.650] And then dovetailing right after that
+- [08:22.270] to be able to celebrate America's birthday on Fox
+- [08:26.840] is an absolutely incredible honor.
+- [08:29.070] And everyone at Fox Sports can't wait to see exactly
+- [08:33.490] how this is going to unfold and bring it to life.
+- [08:36.230] So Mr. President, thank you again for signing this today.
+- [08:38.590] The President: And the big thing,
+- [08:39.850] it's August 21st through the 23rd,
+- [08:42.910] and I believe the race is on the 23rd?
+- [08:44.630] Eric Shanks: Yes.
+- [08:45.850] The President: It's going to be incredible.
+- [08:47.110] They're going to have practice sessions.
+- [08:48.510] It's going to be just a very exciting period,
+- [08:50.420] I think for Washington.
+- [08:52.910] If I could, I'd like to ask Sean Duffy,
+- [08:55.610] the Secretary of Transportation,
+- [08:57.120] who's terrific and doing a great job.
+- [08:59.390] Much more important than Sean
+- [09:00.720] is we have Rachel Campos-Duffy here.
+- [09:03.530] And she's one of the greatest people I know
+- [09:06.540] and one of the greatest people on television.
+- [09:08.150] So most of you know her,
+- [09:09.390] but I don't think we'll have her speak about the race
+- [09:11.470] because she does less about it than anybody up here.
+- [09:14.320] But she is fantastic. Sean, please support Fox.
+- [09:17.920] Sean Duffy: So the President gave us all the directive,
+- [09:19.630] which I'm grateful for.
+- [09:20.880] We're going to celebrate America's 250th birthday
+- [09:23.290] and he asked all of us to think outside the box.
+- [09:26.060] How do we make this historic and cool
+- [09:28.910] and let's all do this together.
+- [09:30.200] And he loves the country and loves the birthday.
+- [09:32.060] And so we at DOT were working on this concept.
+- [09:36.100] We didn't know at the same time,
+- [09:37.490] Penske was working on the same project too.
+- [09:40.430] And so we've come together
+- [09:42.000] and Doug has been a wonderful partner.
+- [09:44.490] But to think 190 miles an hour down Pennsylvania Avenue,
+- [09:49.290] this is going to be wild.
+- [09:51.000] The last time we had a race in the capital city, Bud was when?
+- [09:55.420] Bud Denker: 1801.
+- [09:56.640] Thomas Jefferson with the horse race.
+- [09:58.180] Sean Duffy: A horse race in 1801, Mr. President.
+- [10:00.270] Now we're going to do a real race.
+- [10:02.380] The President: That's so great. That's such a --
+- [10:05.100] Sean Duffy: So listen, this doesn't happen.
+- [10:08.180] We just don't come in and ask the President to sign.
+- [10:10.790] There's a lot of work that goes into this as you can tell.
+- [10:13.520] Bud and my chief of staff, Pete,
+- [10:15.420] all had a lot of meetings on the Hill.
+- [10:17.240] We couldn't be more excited about this.
+- [10:19.070] Again, I'm going to repeat,
+- [10:20.320] this is free for the American people
+- [10:22.800] to come to your nation's capitol and see a great road race,
+- [10:27.230] freedom, America, speed and road racing.
+- [10:31.640] It doesn't get more American than Mr. President.
+- [10:33.320] So thank you for signing this and thanks for all your support.
+- [10:35.210] The President: You are fantastic.
+- [10:36.420] And what a job you've done.
+- [10:37.630] They put it together very quickly.
+- [10:38.890] They've been coming here for years and everybody wanted it.
+- [10:42.270] Every senator wants it, every Congress,
+- [10:44.210] everybody wants it, but they don't get things done.
+- [10:48.610] Trump gets things done. We didn't have 89 meetings.
+- [10:51.450] We had maybe a half a meeting.
+- [10:53.200] I think this is probably about a half a meeting.
+- [10:56.200] I'd like to thank Pete Meachum for the great job
+- [10:59.110] you've done representing us and Luke Bunting.
+- [11:01.560] These are two young people that work with us
+- [11:04.590] and they've really been fantastic.
+- [11:06.900] I'd like to ask Doug Burgum to say a few words.
+- [11:09.980] He's very much involved through his position of interior
+- [11:14.690] because a lot of the space is interior.
+- [11:17.670] I think he's the largest landlord
+- [11:19.090] anywhere in the world by far.
+- [11:21.040] So Doug, could you say a few words please?
+- [11:22.640] Doug Burgum: Yeah, absolutely. Thank you, Mr. President.
+- [11:26.510] This birthday that's coming up,
+- [11:28.380] the 250th anniversary of America,
+- [11:30.310] Freedom 250, is the most monumental birthday
+- [11:33.860] maybe of any country ever in the history of the world.
+- [11:36.780] And President Trump, with his directive
+- [11:38.740] to celebrate this thing, we've got --
+- [11:41.360] What's more American than race car driving?
+- [11:43.890] What's more monumental than the Indie 500
+- [11:48.820] as an icon of what's going on in our country?
+- [11:51.180] And so merging the history and the tradition of our capitol,
+- [11:55.140] Washington D.C. with the speed and the innovation that goes on
+- [11:58.290] in the IndyCar Series is incredible.
+- [12:00.760] And it's a great metaphor
+- [12:02.000] because the speeds we're talking about
+- [12:04.150] is the speed of President Trump. I can reiterate.
+- [12:07.050] There weren't 81 meetings with the Trump administration.
+- [12:09.240] I think it was, they called President Trump,
+- [12:11.550] he got Sean and I going,
+- [12:12.750] and that was like from Saturday till now.
+- [12:15.440] We have a race. Sean Duffy: One week.
+- [12:16.640] Doug Burgum: One week we have a race
+- [12:17.910] as opposed to like four months of talking.
+- [12:19.790] So I think there's also a metaphor here
+- [12:21.280] about President Trump who's an incredible sportsman.
+- [12:23.890] He's an athlete himself, but he loves sports.
+- [12:26.220] And so whether it's soccer, UFC, the football draft,
+- [12:30.440] NFL football draft coming,
+- [12:31.740] IndyCar, and all the teams that he hosts here.
+- [12:34.470] I mean, to any American who loves sports,
+- [12:36.360] you ought to love this president
+- [12:37.580] because he's bringing professional sports
+- [12:40.010] to our capitol. And again, August 21st to 23rd,
+- [12:44.380] you talk about the economic impact.
+- [12:45.730] By the time all these reporters get done telling the story,
+- [12:48.030] there's not going to be a hotel room
+- [12:49.500] available in this city on that weekend
+- [12:52.380] because everybody's going to want to be here.
+- [12:54.350] People that maybe have wanted to see an IndyCar race
+- [12:56.280] their whole life are now going to have an opportunity
+- [12:58.210] to come to their Capitol, celebrate 250
+- [13:00.680] and see an IndyCar race for free.
+- [13:03.100] And they're going to be able to see it on the National Mall.
+- [13:05.730] And wherever you put down your lawn chair
+- [13:07.320] and watch this race for free,
+- [13:08.560] you're going to be staring at the Washington Monument,
+- [13:10.260] the Lincoln Memorial, the Jefferson Memorial.
+- [13:12.480] And I'm sure there's going to be fireworks
+- [13:13.920] this weekend too. I'm sure of that.
+- [13:15.230] And if you need a permit, you can get one from Interior.
+- [13:17.910] So anyway, it's absolutely incredible.
+- [13:19.950] And congratulations to Sean, the Penske organization,
+- [13:23.490] Fox Sports, everybody for putting together,
+- [13:25.310] this is going to be a great celebration for America.
+- [13:27.720] The President: Thank you very much.
+- [13:28.980] And you're doing a fantastic job.
+- [13:31.190] Could I just ask Bud Denker,
+- [13:32.980] he's the President of Penske Corporation
+- [13:34.850] to say a few words, please?
+- [13:36.160] Bud Denker: Well, thank you, Mr. President.
+- [13:37.780] Eric Shanks and I from Fox had this dream in just last July
+- [13:41.670] and could it ever be possible
+- [13:42.910] to bring a race to our nation's capital
+- [13:44.610] to celebrate our country's history?
+- [13:46.090] And everybody said,
+- [13:47.290] "There's no way. It's impossible.
+- [13:48.580] How do you put a race on 190 miles an hour
+- [13:50.660] in a city like Washington D.C.?"
+- [13:52.670] I came here, I walked this area for a while.
+- [13:54.500] I found a racetrack on the capital grounds
+- [13:56.790] up against a lot of meetings
+- [13:58.100] and couldn't get the kind of support we need.
+- [13:59.560] So within a week, Secretary Duffy
+- [14:01.280] and we put this together with the President, didn't we?
+- [14:04.470] And now we have a race here on our city property,
+- [14:08.530] on the national properties that is going to celebrate America.
+- [14:11.280] The word free shouldn't be overridden
+- [14:13.120] because we are going to have a free event here
+- [14:15.150] if we come out and celebrate our country's history.
+- [14:17.400] I also want to thank Mayor Bowser.
+- [14:18.880] She has been a great partner in this process as well too.
+- [14:21.940] So I know Mr. President, she's a great supporter
+- [14:24.490] of what you've done here in the city as well too,
+- [14:26.160] and we thank her for this.
+- [14:27.930] We're going to have an amazing event.
+- [14:29.610] We're going to make everybody in this country proud.
+- [14:31.970] We want everybody to come out for free
+- [14:33.910] and enjoy this and celebrate our country
+- [14:35.970] the way it should be here in the nation's capital.
+- [14:38.060] Thank you, Mr. President.
+- [14:39.350] The President: And I said, "Pick the best site.
+- [14:41.540] It's very important. Pick the best site.
+- [14:43.620] Don't go for second or third
+- [14:45.070] because there are a lot of different routes."
+- [14:46.560] I said, "Pick even if it's more difficult to get,
+- [14:49.880] to get approved, pick the absolute best site."
+- [14:52.690] And they were actually looking at another site.
+- [14:55.270] And when I said that, they said,
+- [14:56.550] "Well, the best site is this site, the site we're doing."
+- [15:00.630] I said, "Let's take a look at it."
+- [15:02.900] And we think it's the best site too.
+- [15:05.600] It's actually better than the original site
+- [15:07.360] they were looking at,
+- [15:08.740] but if we're going to do it, we want to do it right.
+- [15:10.620] So this is going to be something in terms of the road width,
+- [15:13.500] the crowds and everything else that we can all --
+- [15:15.650] The best site, one of the best sites
+- [15:17.570] I've ever seen actually, and it'll be beautiful.
+- [15:19.690] So I'm going to sign this and if you have any questions
+- [15:23.210] on this subject, that'd be great.
+- [15:24.770] We just named a new Fed chairman today.
+- [15:27.380] You know that? He's a central casting.
+- [15:30.610] He's like Roger Penske, he's central casting.
+- [15:35.400] You know him, Roger? Very good guy.
+- [15:43.470] Roger, no auto pen. I didn't use an auto point.
+- [15:47.040] Here, Roger, take that.
+- [15:54.560] I didn't want to sign each letter.
+- [15:56.120] They sign each letter, they hand pens.
+- [15:57.640] I used to watch these presidents.
+- [16:00.070] -- one letter, you got to see what it looks like at the end.
+- [16:02.630] Never looks too good.
+- [16:04.620] Here, Rachel, you'll take that. That's for your team.
+- [16:10.530] Congratulations. This is really exciting.
+- [16:13.450] (applause)
+- [16:17.175] The Press: (inaudible)
+- [16:21.450] chair nominee, since you just brought it up.
+- [16:23.250] Did Kevin Warsh commit to you that he will push
+- [16:26.450] to cut interest rates if he has confirmed?
+- [16:28.610] The President: No, but we talk about it,
+- [16:30.140] and I've been following him,
+- [16:31.450] and I don't want to ask him that question.
+- [16:33.270] I think it's inappropriate probably.
+- [16:35.040] It probably would be allowed,
+- [16:36.740] but I want to keep it nice and pure.
+- [16:39.800] But he certainly wants to cut rates.
+- [16:41.300] I've been watching him for a long time.
+- [16:42.860] The Press: Mr. President, did you have any concerns
+- [16:44.910] about his hawkish history of pushing for rate hikes?
+- [16:49.040] The President: He's going to want to do the same thing.
+- [16:50.590] I think that yeah, I've had times with him.
+- [16:52.260] I think you've had to really have rate hikes too,
+- [16:55.890] but he's very smart, very good, strong, young, pretty young,
+- [17:01.920] and I think he's going to do --
+- [17:04.910] He was the Central Casting guy that people wanted.
+- [17:07.350] The Kevin was great.
+- [17:08.550] I tell you what, I met numerous people.
+- [17:10.910] Every one of them were fantastic, really fantastic.
+- [17:13.950] I wanted to keep Kevin here. I called Kevin One, Kevin Two.
+- [17:22.060] I said, "It's going to be a Kevin,"
+- [17:24.320] but Kevin really has been fantastic at the White House.
+- [17:28.130] You all know him, you know him very well.
+- [17:30.420] And so we have Kevin. W.
+- [17:33.150] The Press: Are you concerned, Mr. President,
+- [17:34.420] about the confirmation hearings --
+- [17:35.630] Wwe've heard Senator Tillis.
+- [17:36.830] The President: No.
+- [17:38.040] The Press: You think with the DOJ,
+- [17:39.780] the investigation that's going on?
+- [17:42.270] The President: In the whole country,
+- [17:43.570] I would say that this was the perfect candidate.
+- [17:47.180] This was not a surprise or anything.
+- [17:49.210] This was the man that's most qualified.
+- [17:52.900] Top student, best schools, everything was perfect.
+- [17:56.210] The youngest person ever to serve on the Fed.
+- [17:59.210] He's got the whole package.
+- [18:00.810] Looks don't mean anything, but he's got the look.
+- [18:03.200] Roger, looks don't mean anything,
+- [18:04.530] but if they have to look, it's okay.
+- [18:06.510] But he's got the whole package,
+- [18:07.770] and I think he's going to do a great job,
+- [18:09.270] and he loves the country.
+- [18:12.230] Yeah. What? What? Please, in the back, yes.
+- [18:15.420] The Press: Are you giving Iran any kind of deadline
+- [18:16.890] to make a deal
+- [18:18.210] before potentially taking military action?
+- [18:19.740] The President: Only they know for sure.
+- [18:21.230] The Press: Have you communicated that to them directly?
+- [18:22.810] The President: Yeah, I have.
+- [18:24.070] The Press: (inaudible).
+- [18:25.320] Do you have a timeline for when you're going to pull back
+- [18:27.980] potentially the federal presence there?
+- [18:31.310] The President: We'll see how it all works out.
+- [18:32.810] They have to float someplace.
+- [18:34.150] They might as well float near Iran,
+- [18:36.150] but it's a rough situation going on.
+- [18:38.450] So I stopped 837 people, as you know,
+- [18:41.610] last week from being hung.
+- [18:43.980] They were going to hang. 830, it was all set.
+- [18:47.370] And I'm looking at the people behind me.
+- [18:52.020] "Racing's a lot nicer than that."
+- [18:55.600] They were going to hang 837 people.
+- [18:58.210] And I told them, "If you do it, you're going to pay a price
+- [19:00.220] like nobody's ever paid before."
+- [19:01.630] And they pulled back. I appreciated that.
+- [19:03.800] But a lot of people are being killed.
+- [19:05.330] So we'll see what happens.
+- [19:07.800] I can say this, they do want to make a deal.
+- [19:09.720] The Press: Mr. President, about Virginia, actually.
+- [19:11.430] Virginia flipped the governor's there.
+- [19:13.030] And now, they're looking at 50 proposals to increase taxes.
+- [19:16.110] What do you think about that?
+- [19:17.500] The President: Well, I think it's terrible.
+- [19:18.720] I think a lot of people will leave Virginia.
+- [19:20.980] I saw that.
+- [19:22.190] Look, Glenn was a friend of mine, Glenn Youngkin,
+- [19:25.870] and worked so hard on cutting taxes.
+- [19:29.110] This woman came in, and at one swoop,
+- [19:31.050] she raised everything up higher than it ever was.
+- [19:33.460] I don't understand it.
+- [19:35.400] People voted for the Democrat, but she came in and she raised,
+- [19:39.130] and I'll work with her like I work with everyone else.
+- [19:41.970] But she came into Virginia,
+- [19:43.660] raised everything to a point like --
+- [19:46.850] Taxes that nobody ever even heard of before.
+- [19:49.960] And I don't understand.
+- [19:51.250] How do people get elected with this kind of philosophy?
+- [19:54.070] This is only in the very modern age.
+- [19:56.790] I grew up, and I've always heard politicians,
+- [19:58.870] "We'll cut taxes, will cut." Everybody's screaming,
+- [20:01.540] "We're going to cut taxes." I cut taxes.
+- [20:03.790] I gave you the biggest tax cut in the history of our country,
+- [20:08.050] the Great Big, Beautiful Bill.
+- [20:09.900] No tax on tips, no tax on social security,
+- [20:12.380] no tax on overtime.
+- [20:14.250] Interest deductions, Roger, when somebody buys a car,
+- [20:16.840] they can deduct the interest if they borrow money.
+- [20:19.300] That's the biggest thing in terms of the car business.
+- [20:21.610] Right?
+- [20:22.820] The Press: American made ones.
+- [20:24.200] The President: Correct.
+- [20:25.480] So, I give tax cuts and they give tax increases.
+- [20:30.850] I don't know how they get elected.
+- [20:32.650] They get elected 'cause they cheat,
+- [20:34.120] you want to know the truth. If they didn't cheat,
+- [20:37.910] if they didn't cheat, they'd have no chance.
+- [20:41.840] They have horrible policy. Transgender for everyone.
+- [20:45.430] They have the little thing about open borders
+- [20:48.080] so that the world's prison population and mental hospitals
+- [20:52.390] could be emptied into our country.
+- [20:55.300] Men playing in women's sports.
+- [20:58.010] Roger, are you a fan of men playing in women's sports?
+- [21:01.680] Only as a better? If you'd like to bet.
+- [21:05.820] You're not a big fan, I don't think so.
+- [21:08.970] I don't want to get him in trouble,
+- [21:10.220] but I think he joins in 99 percent of --
+- [21:13.110] They say it's an 80 -20 issue.
+- [21:14.670] I think it's a -- it's maybe 99. It's 99-1.
+- [21:18.730] The Press: Mr. President,
+- [21:19.980] why are you suing your own administration
+- [21:21.650] and the IRS? Why are you suing-
+- [21:22.930] The President: Who are you with?
+- [21:24.250] The Press: I'm with ABC News.
+- [21:25.500] The President: You're a loud person.
+- [21:27.150] Very loud. Let somebody else have a chance.
+- [21:28.590] The Press: Can you answer the question?
+- [21:29.860] Why are you suing IRS?
+- [21:31.370] The President: ABC fake news. The Press: You're suing.
+- [21:33.060] The President: Go ahead. I didn't call on you.
+- [21:34.510] Go ahead, please. Go ahead. Go ahead.
+- [21:38.860] ABC, by the way, is truly one of the worst. Go ahead.
+- [21:41.390] The Press: Do you think the upcoming talks
+- [21:42.790] between Russia and Ukraine stand a chance
+- [21:44.820] without U.S. envoy Witkoff and Jared Kushner there?
+- [21:47.810] The President: I think they stand a chance.
+- [21:49.480] We've been trying. I've ended eight wars.
+- [21:52.630] All of them, I thought were going to be
+- [21:54.160] maybe tougher than this one.
+- [21:56.560] But Zelenskyy and Putin hate each other,
+- [22:00.820] and it makes it very difficult,
+- [22:02.150] but I think we're getting very close to getting a settlement.
+- [22:05.490] Hundreds of thousands of people,
+- [22:07.300] mostly soldiers have been killed.
+- [22:09.640] Last week, they lost 29,000 people.
+- [22:11.650] Last month, they lost 29,000 soldiers.
+- [22:14.240] Can you believe that, fellas? 29,000.
+- [22:16.830] You lose one race driver and it's a big deal.
+- [22:19.890] 29,000 soldiers in one month, 27,000 a month before.
+- [22:27.080] Yeah, I think that we have a good chance
+- [22:28.630] of getting it settled. Yeah, Mel, please.
+- [22:30.090] The Press: Mr. President, on the Warsh nomination,
+- [22:34.080] what is your strategy for getting past the hold
+- [22:36.410] that Senator Tillis has on this process?
+- [22:39.260] He said he won't allow-
+- [22:41.640] The President: Well, that kind of thinking
+- [22:43.350] is why he's no longer a senator.
+- [22:45.360] He's going to be out of office. It's too bad.
+- [22:48.550] I always liked Senator Tillis actually,
+- [22:50.350] but he did some things that were not smart, and whatever.
+- [22:56.740] If he doesn't approve, we'll just have to wait
+- [22:58.450] till somebody comes in that will approve it, right?
+- [23:01.370] So that's it. But I saw that.
+- [23:03.890] He wants to be an obstructionist,
+- [23:05.220] but we have a lot of obstructionists.
+- [23:06.630] I've had a lot and we've created the best presidency maybe ever.
+- [23:13.440] The Press: If Iran doesn't make a deal,
+- [23:15.330] is your plan to replicate there what you just did in Venezuela?
+- [23:19.130] The President: I don't want to say that.
+- [23:20.370] I don't want to talk about anything having to do
+- [23:22.880] with what I'm doing militarily,
+- [23:24.370] but we have a tremendously powerful fleet there.
+- [23:26.690] We have the most powerful ships in the world.
+- [23:28.780] We have the most powerful military by far in the world.
+- [23:31.400] We showed that on numerous occasions.
+- [23:34.360] I rebuilt the military in my term.
+- [23:35.990] If I didn't, I wouldn't, I think, be able to say that,
+- [23:38.600] but I rebuilt the military,
+- [23:40.350] the entire United States military in my first term.
+- [23:43.950] And now, we're building it bigger, better,
+- [23:45.850] stronger than ever before, I'm adding to it.
+- [23:48.570] We're adding something called a battleship.
+- [23:50.650] You would find this interesting.
+- [23:52.040] You know the old-fashioned beautiful battleships?
+- [23:54.710] And we're adding up to 25 of them.
+- [23:57.770] Each battleship is 100 times more powerful
+- [24:01.800] than the battleships of the 1940s,
+- [24:04.010] those big powerful ones with the guns
+- [24:06.590] because of what the ships carry. But we're going to build 10
+- [24:10.540] and then we'll see how we like them
+- [24:11.870] and we're going to go and do another 15 after that.
+- [24:14.590] Could be up to 25 battleships. A hundred times more powerful.
+- [24:18.760] Can you imagine that? And it's (inaudible).
+- [24:20.710] We don't want to use them,
+- [24:22.240] but if we have to use them, we will --
+- [24:26.850] The Press: On the Fed, should the DOJ continue
+- [24:29.560] with its investigation into Jay Powell?
+- [24:31.450] That seems to be a sticking point for Senator Tillis.
+- [24:33.970] The President: Well, he's got a building that --
+- [24:36.720] I build buildings and I build them
+- [24:39.460] under budget ahead of schedule.
+- [24:41.490] I build them, but they're within reason always.
+- [24:43.590] And this is a small little complex
+- [24:46.700] that's costing billions of dollars,
+- [24:49.510] most expensive job per square foot ever built.
+- [24:52.990] And it's a little complex. It's a little Fed complex.
+- [24:55.520] I built the hotel on Pennsylvania Avenue
+- [24:59.690] and I built it for around $200 million
+- [25:01.700] and it's bigger than that. They're spending many times
+- [25:05.580] that amount to do a renovation of a building.
+- [25:08.780] I've heard numbers as high as $4 billion.
+- [25:11.510] $4 billion to build a building.
+- [25:14.310] I could have renovated that building and fixed it up,
+- [25:17.030] made it beautiful for $25 million.
+- [25:19.680] They're going to spend close to $4 billion on it.
+- [25:24.330] So it's either gross incompetence or it's theft.
+- [25:28.250] Somebody's making money because you can't spend --
+- [25:30.510] It's more per square.
+- [25:31.780] And you have half a building there.
+- [25:33.290] You have the structure, you have the exterior skin
+- [25:35.790] that they're not changing much.
+- [25:38.790] They're building a building and they're spending almost --
+- [25:41.590] I mean, I'm hearing numbers of between 3 and $4 billion.
+- [25:45.250] It's the most expensive structure
+- [25:47.460] ever built per square foot.
+- [25:49.580] So he's either incompetent or he or somebody is a crook.
+- [25:54.820] And we'll find out.
+- [25:56.120] The Press: (inaudible).
+- [25:59.560] On Minneapolis, Governor Tim Walz
+- [26:01.930] recently likened the conflict on the ground to Fort Sumter.
+- [26:05.410] Sort of implied that this is the beginning of a civil war.
+- [26:07.830] Do you agree with that characterization?
+- [26:09.370] Do you feel like there's a civil war brewing-
+- [26:10.830] The President: The governor said that?
+- [26:12.820] Does he know what Fort Sumter was
+- [26:14.330] or do you think somebody wrote it out for him?
+- [26:18.310] I was elected on law and order.
+- [26:20.840] I was elected on a strong border.
+- [26:23.350] We had a border that allowed 25 million people to come in.
+- [26:26.190] Many were murderers. They murdered people.
+- [26:27.950] We had 11,888 murderers.
+- [26:31.210] We had prisons, including Venezuela,
+- [26:33.430] but Venezuela opened its prisons.
+- [26:35.370] So did the Congo.
+- [26:36.590] The Congo in Africa opened its prisons.
+- [26:38.860] They dumped people into our country.
+- [26:40.970] Many countries did that.
+- [26:42.190] I would have done that if I were leading a country.
+- [26:45.040] I would have dumped the prisoners into our country.
+- [26:47.390] We had open borders. We had all these things.
+- [26:50.270] I was elected on law and order. I was elected on the economy.
+- [26:53.580] I was elected on a lot of reasons
+- [26:55.890] because when I took over, we inherited a mess.
+- [26:58.180] I had -- Prices were too high.
+- [27:00.580] Inflation was the highest it was in 48 years.
+- [27:03.190] I say ever, but the media always corrects me
+- [27:06.240] by saying it's only 48 years.
+- [27:08.150] I think 48 years almost sounds worse.
+- [27:10.860] But when I was elected, I was elected to do a job.
+- [27:13.550] And one of the big things I was elected to do is law and order.
+- [27:17.710] We now have the lowest crime rate
+- [27:19.210] in the history of our country.
+- [27:20.420] We have the lowest murder rate in the history of our country.
+- [27:23.380] We have Washington D.C.
+- [27:24.790] which was a dangerous place to walk,
+- [27:26.530] is now a totally safe city.
+- [27:27.960] You can walk with your husband or your wife.
+- [27:29.700] You can walk with your children
+- [27:32.300] right down the middle of the city.
+- [27:33.540] Nothing's going to happen. We did a great job.
+- [27:36.700] We had the National Guard, we have soldiers,
+- [27:38.910] we have people that nobody's going to mess with
+- [27:42.510] and we've taken out -- Remember, it's not just that.
+- [27:45.230] In Washington, we've removed over 2,000 criminals.
+- [27:50.210] And if you look at the numbers,
+- [27:53.230] a very small percentage of your population, 2 percent,
+- [27:56.270] 3 percent of your population causes 90 percent of the crime.
+- [28:00.120] So when you move, it's amazing how that works,
+- [28:02.570] but the criminals go over and over and over again.
+- [28:06.120] So 2 to 3 percent of your population
+- [28:09.120] can cause over 90 percent of your crime.
+- [28:11.780] So it's not that complex.
+- [28:13.460] We moved 2,000 people out of Washington.
+- [28:15.670] We brought them back to their countries where they came from.
+- [28:17.900] They came through open borders by sleepy Joe Biden.
+- [28:21.910] And I will tell you, Washington is safe.
+- [28:26.140] If you look at New Orleans, as you know,
+- [28:27.940] we went there about four weeks ago.
+- [28:30.000] I was with the Mayor of New Orleans last night.
+- [28:31.970] He was at the premier and she was at the premier.
+- [28:34.970] She was great. I believe she's a Democrat.
+- [28:37.860] She came over. She thanked me so much.
+- [28:39.530] She said, "Crime is down more than 50 percent
+- [28:41.780] in just a few weeks.
+- [28:43.620] And you couldn't even walk down the street
+- [28:45.210] in New Orleans, it's so bad." And now they let us in there
+- [28:49.740] and she is thanking me so much, so profusely.
+- [28:52.400] She was great last night.
+- [28:54.250] I'd do that, if I were a Democrat,
+- [28:55.630] I'd say, "Call Trump in, let them do what they do."
+- [28:58.390] But we remove people, criminals from the cities
+- [29:02.080] and they become safe cities.
+- [29:04.370] If you look at Minnesota, Minneapolis,
+- [29:07.920] we have crime down there because we took out thousands of people
+- [29:10.980] despite all the mess and everything else.
+- [29:13.310] But do these people really want to have rapists?
+- [29:15.400] Do they really want to have drug dealers
+- [29:18.020] and people from prisons and murderers?
+- [29:20.350] Do they really want to have them in the community?
+- [29:24.010] It's really insurrectionists and agitators and they're paid.
+- [29:28.030] And you can tell a lot of reasons.
+- [29:29.320] Number one, they're professionals with their mouth.
+- [29:31.910] But they're also -- You look at the signs.
+- [29:33.840] The signs are all professionally made.
+- [29:36.220] They have signs that are gorgeous.
+- [29:37.500] In fact, I want to get the sign
+- [29:39.120] because I need a lot of signs for different things.
+- [29:41.970] And I want to find out whoever does their signs,
+- [29:43.970] they do a beautiful job.
+- [29:45.180] Everybody has this beautiful sign with brand new wood.
+- [29:48.770] It's like leather panels.
+- [29:50.980] They have a leather handle on the bottom.
+- [29:53.280] These are people that are handed signs.
+- [29:57.030] And we know pretty much, we're getting very close to it,
+- [30:00.160] but we know pretty much who's funding this stuff.
+- [30:02.440] These are paid insurrectionists, paid troublemakers.
+- [30:06.030] But I was elected by a landslide.
+- [30:08.210] I won every swing state. I won the popular vote by a lot.
+- [30:11.210] I won everything. I won everything.
+- [30:14.110] And I was elected by a landslide on law and order
+- [30:17.880] and on strong borders.
+- [30:19.610] We had a border that was so bad, so open where 25 million people
+- [30:23.670] came in over a period of four years
+- [30:25.270] and now nobody comes in. Nobody even tries to come in.
+- [30:29.660] And I can only say, I think we'll say it very plainly,
+- [30:34.040] elections have consequences.
+- [30:36.220] The people want law and order. And we have a silent majority.
+- [30:40.930] We have a silent majority of people.
+- [30:42.690] They don't go and riot and everything else,
+- [30:44.220] but they like what we're doing.
+- [30:45.790] They like having a safe city. I get calls every single day.
+- [30:49.130] Every person I see working in the White House,
+- [30:51.580] people I don't know, many people work here
+- [30:54.330] and they say, "I'd like to thank you, sir."
+- [30:56.230] "Why?"
+- [30:57.560] "You've made Washington so great. We walked to work."
+- [30:59.770] They walk to work. You people know it very well.
+- [31:01.980] You walk to work now.
+- [31:03.200] You used to take an Uber or a taxi or something
+- [31:06.080] and you even felt like in danger there.
+- [31:10.030] Every person in this building, I mean, virtually, every time
+- [31:13.530] I see somebody, they thank me because a year and a half ago
+- [31:16.360] they lived in hell
+- [31:17.560] and now they can walk to work and they're totally safe.
+- [31:19.690] Nothing's going to happen. And if anything did happen,
+- [31:22.770] the person that did it would be living in hell
+- [31:25.400] for a long period of time. Thank you very much everybody.
+- [31:32.580] Thank you very much.

@@ -1,0 +1,530 @@
+<!-- source: https://www.youtube.com/watch?v=9EEyqoXvyhU -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 9EEyqoXvyhU -->
+<!-- date_published: 2025-09-06T03:05:20+00:00 -->
+<!-- date_accessed: 2026-06-02T01:16:37.406209+00:00 -->
+
+# Transcript: President Trump Hosts a Dinner, Sep. 5, 2025
+
+- [00:01.700] Female Speaker: Ladies and gentlemen,
+- [00:03.220] please welcome the President of the United States,
+- [00:06.050] Donald J. Trump.
+- [00:09.170] (applause)
+- [00:21.560] The President: Hello. That's the first word I said
+- [00:25.020] in this beautiful setting.
+- [00:27.470] We have worked very hard to bring it to fruition,
+- [00:31.860] and not an easy situation.
+- [00:34.340] But it's something that I think we're all going to enjoy
+- [00:36.710] for many, many years to come.
+- [00:38.420] It's a tremendous place. This is the Rose Garden.
+- [00:42.910] We never touched a rose. The roses are in full bloom,
+- [00:46.420] and they will be in full blooming during certain seasons,
+- [00:49.120] but we never touched.
+- [00:50.370] Don't tell you what we did. The grass was not usable.
+- [00:54.500] Every time we'd have a press conference,
+- [00:56.470] women in particular were sinking deep into the mud.
+- [00:59.860] And at some point, I said,
+- [01:01.170] you know, it's time to make the change.
+- [01:02.570] And we picked a great stone.
+- [01:04.530] And we have a great speaker system, I hope.
+- [01:07.010] I hope everybody hears us perfectly.
+- [01:09.010] But a lot of people
+- [01:10.240] are wondering why you're here tonight.
+- [01:12.450] And I'll tell you very simply why you are here,
+- [01:14.260] because you are the ones that I never had to call
+- [01:16.880] at 4:00 o'clock in the morning.
+- [01:18.830] You are the ones that have been my friends
+- [01:21.120] – (applause).
+- [01:23.250] You know what I'm talking about.
+- [01:25.560] And you're smart and even brilliant people,
+- [01:28.330] but you would tell people, you know,
+- [01:30.580] I don't speak to the President much
+- [01:32.180] because I always vote with the President.
+- [01:34.160] And Mike Johnson, who's going to go down
+- [01:36.160] as one of the great speakers of our time,
+- [01:38.460] or any other time. Mike, thank you very much.
+- [01:42.030] I said, Mike, I want to do something.
+- [01:43.820] I want reward the people
+- [01:45.840] that have confidence in their President,
+- [01:47.870] have confidence and you, and vote for us.
+- [01:50.700] And that includes some of the senators that are here.
+- [01:52.790] We have senators, we have congressmen.
+- [01:54.430] This was originally going to be for Congress only.
+- [01:57.200] We're going to have the senators sometime.
+- [01:58.700] But a couple of the Senators really wanted to be here.
+- [02:01.600] And I'm going to start off by one of them,
+- [02:03.340] who's a really good friend of mine,
+- [02:04.780] comes from a state where I was,
+- [02:06.680] I think, 77 out of 77 district or areas.
+- [02:11.850] I won them all three times.
+- [02:14.930] Ronald Reagan was second. He got 56. Is that right?
+- [02:18.330] I got 77 out of 77. And I did it three times.
+- [02:21.960] So I happen to love the state of Oklahoma.
+- [02:24.460] And I'm going to ask James Langford
+- [02:26.360] to come up and say grace. And he's very good at it.
+- [02:29.910] He's a religious guy, and we love him.
+- [02:31.870] And you've done a fantastic job as senator.
+- [02:34.340] And thank you for doing this, James. Thank you very much.
+- [02:36.220] (applause)
+- [02:37.460] James Langford: Thank you very much.
+- [02:42.440] Well, let's pray together.
+- [02:45.560] Father, thank you for allowing us to be here
+- [02:47.700] and the privilege we get to be able to serve this nation.
+- [02:51.330] In all the work and all the long hours and all the time,
+- [02:54.690] we just want to say thank you again
+- [02:56.000] for entrusting us with this task.
+- [02:57.440] And I ask for wisdom for all of us
+- [03:00.180] to be to lead well by example and by task.
+- [03:03.280] Father, we pray for the President of the United States.
+- [03:07.170] We pray that you would overwhelm him with the insight
+- [03:09.490] and wisdom he needs for each day.
+- [03:13.130] The challenges around the world are on his shoulders,
+- [03:17.520] but we are grateful that the government is on yours
+- [03:20.540] and you are the one who sustains us.
+- [03:23.550] So we pray for President Trump, for his family,
+- [03:26.170] pray for the Vice President,
+- [03:27.630] pray that you continue to be able to
+- [03:29.090] instill in them the joy of the task
+- [03:31.780] so that they'd be able to fulfill things well.
+- [03:35.150] Pray for our members of the military and intelligence
+- [03:37.120] community and law enforcement, so many first responders,
+- [03:39.730] that they are in harm's way tonight as we are in safety.
+- [03:43.420] So we pray that you would protect them and their families.
+- [03:46.530] God, thanks for this food and for the privilege
+- [03:48.980] to be able to be here together with each other.
+- [03:51.130] In the name of Jesus, I ask tonight.
+- [03:53.150] A-men.
+- [03:55.170] The President: Beautiful. Appreciate it.
+- [03:58.670] That was very nice.
+- [04:00.640] So, getting back to why you got invited.
+- [04:03.900] So, I'd get a call from the speaker,
+- [04:08.070] and it'd say, sir, we have 16 hard nos.
+- [04:13.620] It's 4 o'clock in the morning. And we have one of many bills,
+- [04:17.160] because this happened many times.
+- [04:19.070] And it tended to be the same 16, 18, 19 people all the time.
+- [04:24.090] 4:00 o'clock, 5:00 o' clock in the morning, I call them.
+- [04:27.280] I said, Jim, how you doing, Jim? Everything OK?
+- [04:29.580] Yes, sir, it's 5:00 o'clock in the morning.
+- [04:31.340] How are you voting for us, Jim.
+- [04:33.060] Well, what do you think, sir? Tell me, what should I do, sir.
+- [04:36.350] And he broke my ass. And they had about 16 others.
+- [04:40.230] That doesn't mean we don't like them.
+- [04:42.360] But we had about sixteen, seventeen, or eighteen others.
+- [04:46.490] And they made life very difficult.
+- [04:48.230] But we got them there.
+- [04:49.960] Because we had a period where we had a majority of one.
+- [04:52.700] Is that right, Mike? One.
+- [04:54.360] We were one heart attack away from losing the House.
+- [04:57.150] Think of that.
+- [04:58.370] And nobody could have done that but that man right there.
+- [05:01.710] And I think I helped a little bit.
+- [05:03.110] I think helped a bit. But, Mike, unbelievable.
+- [05:07.890] And we passed legislation. You know, our --
+- [05:09.950] I call it the great big beautiful bill.
+- [05:12.250] I add the word great because it is --
+- [05:14.410] it gives the greatest tax cuts in the history of our country.
+- [05:18.760] When you think no tax on tips,
+- [05:20.520] no tax social security, no tax over time.
+- [05:23.880] These are working-class things. We get a deduction.
+- [05:27.200] If you buy a car, you borrow money.
+- [05:28.860] We deduct the interest, Jason, which is so incredible.
+- [05:32.510] Nobody ever heard of that. Middle-class.
+- [05:34.870] Nobody ever got deductions like that.
+- [05:36.890] The bill is unbelievable.
+- [05:38.230] In fact, we really don't need any other votes
+- [05:40.430] because we have everything in that.
+- [05:41.850] We got -- that's why.
+- [05:43.090] It's a great, big, beautiful bill.
+- [05:45.250] And Scott Besant is here. He's done a fantastic job.
+- [05:48.070] And he's one of the people -- one of the --
+- [05:51.660] One of the writers of it gave plenty of good ideas.
+- [05:54.520] And I think Howard is here someplace.
+- [05:56.640] Where's Howard Lutnick.
+- [05:58.120] Howard, thank you very much. I call them the Bobbsey Twins.
+- [06:01.510] They're the most different human beings I've ever met.
+- [06:04.340] They're both great, but one is a little bit different
+- [06:06.640] than the other, like by about 200 yards.
+- [06:09.740] And they're fantastic, and they get along great.
+- [06:11.640] But we all, the administration has been amazing.
+- [06:14.890] And what we've done has not been done.
+- [06:16.740] A lot of people, even the people that are not necessarily.
+- [06:19.910] Lovers of President Trump.
+- [06:21.500] And some of them are right there in the fake news.
+- [06:24.260] But they said that nobody has done
+- [06:26.870] what we've done in seven months, a little more than seven months.
+- [06:31.020] When you think of it, we stopped seven wars.
+- [06:33.810] And the war that I thought was going to be the easiest
+- [06:35.980] is probably the most difficult.
+- [06:37.450] That's the Ukraine and Russia. I thought that would be easier,
+- [06:40.880] the relationship with President Putin, all of that.
+- [06:43.340] It didn't matter.
+- [06:44.590] It's ended up being probably the most difficult,
+- [06:47.030] but we stopped wars.
+- [06:49.110] One was going on for 31 years. They said it was unstoppable.
+- [06:53.410] I got it done in about two hours.
+- [06:55.440] Another one, 35 years, and another one, 37 years.
+- [06:58.620] So we got them all done. But we got seven of them done.
+- [07:01.530] We ended up stopping the nuclear,
+- [07:04.900] potential nuclear disaster in Iran with,
+- [07:07.380] I think, one of the greatest military trips ever taken.
+- [07:10.180] Nobody has ever seen anything like it.
+- [07:15.320] We flew the B-2 bomber. They flew for 36 hours.
+- [07:20.550] Not a single mishap, not a single problem.
+- [07:24.440] And those pilots were great.
+- [07:25.810] I invited them to the Oval Office a month ago,
+- [07:29.380] and they came in handsome.
+- [07:31.200] They looked just like Tom Cruise.
+- [07:33.200] They looked like Tom.
+- [07:34.490] They were great, they were every one of them.
+- [07:36.720] And they were looking forward to that mission.
+- [07:38.610] I said, Did you really want to go?
+- [07:40.660] They said, Sir, we've been waiting for 22 years.
+- [07:42.570] As I said.
+- [07:43.860] For 22 years, their predecessors have been practicing three
+- [07:47.650] to four times a year that mission
+- [07:50.120] because they knew someday they had to take it out.
+- [07:52.300] And they said, no other president had the courage
+- [07:54.490] to let us go, sir. And you did.
+- [07:56.560] I said, were you happy or unhappy about that?
+- [07:59.380] And they could not have been happier.
+- [08:00.730] They loved it. They were so disappointed.
+- [08:02.690] When I heard one of the news outlets
+- [08:05.090] give the information as to when we were taking off,
+- [08:08.010] when We were landing. I called.
+- [08:09.970] Our great General Caine, as you know, he's done a phenomenal --
+- [08:12.720] I don't know if he's here, but he did a phenomenal job.
+- [08:15.650] And he's a phenomenal head of the Joint Chiefs now
+- [08:18.150] because he wiped out ISIS. You know, General Kaine,
+- [08:23.460] I was told it would take four years to defeat ISIS.
+- [08:26.700] He did it in four weeks. I said, he's my guy for the top.
+- [08:30.310] And he knows, he really knows how to win.
+- [08:32.750] But what we've done has been incredible.
+- [08:35.680] I'm so happy about that, but I'm really happy
+- [08:38.720] when you see almost $17 trillion will be invested in this country
+- [08:43.630] over the next few months, actually.
+- [08:46.830] We started from the day we came in.
+- [08:48.950] November 5th was a big day.
+- [08:50.750] It was Liberation Day in a lot of different ways.
+- [08:53.090] It's a lot different forms of liberation.
+- [08:55.480] But what we really have is something
+- [08:57.500] that I don't think any country has ever had.
+- [08:59.880] We're going to have over $17 trillion,
+- [09:01.780] and that number is going to go much higher than that,
+- [09:04.070] invested in our country
+- [09:05.440] and is being invested right now as we speak.
+- [09:08.440] We have factories from all over the world coming in.
+- [09:11.150] We have car plants that were stolen from us.
+- [09:14.440] We had 40 percent, 47 percent of our car industry
+- [09:19.170] stolen from us over the last 40 years.
+- [09:22.420] And I think the number is actually much higher than that.
+- [09:24.480] They say 47. I think it's a lot higher.
+- [09:26.790] It's all coming back. The AI plants are massive.
+- [09:30.220] Some of them cost $50 billion.
+- [09:32.770] We're allowing them to build electricity with their plant.
+- [09:36.910] Nobody ever heard of that before.
+- [09:38.750] They're built. And if we didn't do that,
+- [09:40.200] they couldn't hook into the grid.
+- [09:41.470] We wouldn't have AI. We're substantially leading China.
+- [09:45.000] China knows it. We're substantially --
+- [09:47.200] and most of those people were here.
+- [09:49.380] You know, you're the first ones on this great place.
+- [09:52.470] We call it the Rose Garden Club.
+- [09:55.770] And it's a club for senators, for congresspeople,
+- [09:59.070] and for people in Washington, and, frankly,
+- [10:01.630] people that can bring peace and success to our country.
+- [10:05.800] And you're invited as congressmen.
+- [10:07.540] Mostly, we have congressmen and senators tonight.
+- [10:10.710] Again, you know why you're first?
+- [10:12.020] Because it rained last night.
+- [10:13.550] I had the high-tech guys, we're going to hear,
+- [10:15.620] and they didn't want to have rain on
+- [10:17.220] top of their beautiful heads.
+- [10:19.010] We had the highest IQ last night in the history of the world,
+- [10:22.640] and we took them inside because two reasons.
+- [10:25.050] Number one, I wanted you to be number one, and you were.
+- [10:28.300] They could have endured the little rain,
+- [10:30.520] but I wanted to be you number one.
+- [10:32.570] And I would say I would match IQ tonight here
+- [10:36.880] with what we had last night,
+- [10:38.190] meaning IQ of common sense and survival. Okay?
+- [10:41.950] I think you have a higher IQ in certain ways, let me tell you.
+- [10:45.210] But we had a great group last night,
+- [10:46.710] and they're investing tens of billions.
+- [10:48.980] They're investing trillions of dollars.
+- [10:50.670] Some of the companies are investing literally
+- [10:52.980] trillions of dollars in this great country of ours.
+- [10:56.270] So we've turned it around to a level.
+- [10:58.820] We were given a very bad hand.
+- [11:01.470] We had 25 million people allowed to come into our country,
+- [11:06.580] coming from mental institutions, prisons from all over the world
+- [11:11.170] emptied their prisons out into this country.
+- [11:14.460] Drug dealers, drug addicts, we have everything.
+- [11:18.100] They were allowed to come in, murderers.
+- [11:20.320] 11,788 murderers, 50 percent of whom killed
+- [11:28.410] more than one person during their life.
+- [11:31.430] They were allow to come into our country by the Democrats
+- [11:34.320] and by Sleepy Joe. And that was a thing.
+- [11:38.170] Now, they had the worst inflation in history.
+- [11:40.520] We've got the inflation down.
+- [11:41.880] But inflation is nothing compared
+- [11:44.100] to what I just told you, to allow 25 --
+- [11:47.430] I believe the real number is 25 million people --
+- [11:49.840] into this country,
+- [11:51.130] many of whom should never have been allowed into this country.
+- [11:55.240] And we're doing a great job in getting them out.
+- [11:58.490] And we are getting them by the thousands,
+- [12:00.580] by the thousands every month, every week in some cases.
+- [12:04.180] And one example is right over here, Washington, D.C.
+- [12:06.880] It was the most unsafe city anywhere in the country.
+- [12:11.730] Our capital.
+- [12:13.240] And after 12 days, it became known as a safe city.
+- [12:18.460] And then after two more days,
+- [12:20.530] it's now one of the safest cities in the country,
+- [12:23.000] and people are going out to dinner.
+- [12:25.050] They're walking down the middle of the street.
+- [12:27.000] Women are walking by themselves, alone,
+- [12:29.800] and they feel totally safe. And if you leave here right now,
+- [12:35.760] and if you walk back to wherever you happen to stay,
+- [12:38.570] you're going to feel totally secure, totally safe.
+- [12:40.820] We've done an incredible job.
+- [12:42.310] And we'll be doing that with other cities
+- [12:44.420] throughout the country.
+- [12:45.900] I mean, when you look at Chicago,
+- [12:47.250] we have a governor that says that things are okay with crime,
+- [12:51.140] except that last weekend, 11 people were killed
+- [12:54.800] and 68 people were wounded by gunshot.
+- [12:58.720] The week before, five people were killed,
+- [13:00.490] 28 people were wounded.
+- [13:01.880] The week four, six people were kill,
+- [13:04.990] 19 people were badly wounded.
+- [13:07.200] Many of the wounded are going to die.
+- [13:09.420] And he said, oh, well, we have a safe city.
+- [13:12.040] These people are sick.
+- [13:13.710] There's something wrong with them.
+- [13:15.630] But we're going to make some other choices pretty soon.
+- [13:17.740] I watched Portland, Oregon, last night
+- [13:20.990] burning to the ground, just burning, with people.
+- [13:24.220] And these are agitators. These are professional agitator.
+- [13:26.940] These are not people that are protesting.
+- [13:28.650] These are professional-paid agitators.
+- [13:31.590] And they're paid by the left, not by the right.
+- [13:34.490] And we're going to stop them. We're going stop it all.
+- [13:37.070] So we're pretty much --
+- [13:39.770] I don't think you can do much better than zero crime.
+- [13:42.400] They said, crime is down 87 percent.
+- [13:44.760] I said, really? Who are the 13 percent?
+- [13:46.760] Okay, I don't think they exist. So we are so proud of what --
+- [13:51.150] because this is our nation's capital.
+- [13:53.360] Now we're going to be coming to you for a small amount of money.
+- [13:56.440] We're going to beautify Washington.
+- [13:58.080] We're going to fix the roads.
+- [13:59.330] We're going to fix the medians. We're to clean up the place.
+- [14:02.080] We're put new grass in all the parks.
+- [14:03.940] You know, you don't know this.
+- [14:05.470] Grass has a life. You know that, Mike?
+- [14:07.650] Grass has life like we have a life, it's so long.
+- [14:11.030] Guess what? It expired about 40 years ago in these parks.
+- [14:13.940] There's no grass on half of them.
+- [14:16.020] We're re-grass them with the best guys in the country.
+- [14:18.590] We're grass them by people that do Augusta in Georgia.
+- [14:22.200] People that do the great golf courses of the world.
+- [14:24.890] We're going to have the most beautiful parks.
+- [14:27.070] We're going to fix the curbs.
+- [14:28.670] I notice some of your curbs are broken.
+- [14:30.320] You know why? They're hitting them with a hammer
+- [14:32.700] so they can pick it up and throw it at the police.
+- [14:35.270] But not anymore, they're not. Not anymore.
+- [14:37.920] So we have the safest place, Washington,
+- [14:40.190] D.C., and we'll be going to other cities to help out.
+- [14:43.580] Preferably, we'd like to be asked.
+- [14:46.190] But in some cases, that just won't happen
+- [14:48.130] because there are people that don't understand the word ask,
+- [14:50.960] there are people that don't understand
+- [14:52.760] they're in trouble, or they're stupid.
+- [14:54.180] There's something wrong with them.
+- [14:55.750] But these are high crime areas,
+- [14:58.850] as high as there is in the world.
+- [15:00.490] You can go to Afghanistan.
+- [15:01.740] You can to places that you think of are, like, unsafe.
+- [15:06.130] You're safer there than you are in Chicago at night.
+- [15:09.270] But we're going to make Chicago like this.
+- [15:11.050] We're going make Louisiana.
+- [15:13.420] We're going to -- we have a great governor there.
+- [15:15.490] We're -- and a great --
+- [15:16.880] by the way, and a great speaker there.
+- [15:18.260] That's true.
+- [15:19.460] But we going to come into New Orleans,
+- [15:21.440] and we're going to that place so safe.
+- [15:23.340] It's got a little problem right now.
+- [15:24.730] A couple of headaches like.
+- [15:26.420] Murders, a lot of little murders going on,
+- [15:28.860] and we're not going to stand for it.
+- [15:30.540] And we're going to come in, we're going to clean it up,
+- [15:32.350] you're going to be safe within two weeks.
+- [15:34.470] That's going to be the safest place,
+- [15:36.000] just like this is the safest places.
+- [15:38.060] And then we'll be going elsewhere
+- [15:39.610] throughout the country, we'll going to bring crime down
+- [15:41.740] because we can't have cities that are unsafe.
+- [15:44.170] I just want to thank you for everyone.
+- [15:45.620] This is a special group, and it is true,
+- [15:48.400] there's not one person in this audience
+- [15:51.060] that I had a call to ask for help,
+- [15:53.290] that we needed your vote.
+- [15:55.030] You're unbelievable people. That includes you, Jason.
+- [15:57.680] There's nobody that knows more about tax and money
+- [16:00.080] than that man right there.
+- [16:01.820] I'll tell you, there's nobody. It's true.
+- [16:05.510] And I'm saying that in front of a lot of television,
+- [16:07.570] Jason, so I can't ever take it back,
+- [16:09.440] but it's true, you do a phenomenal job.
+- [16:11.710] Mike, you surround yourself with,
+- [16:13.890] whether it's defense or anything else,
+- [16:16.520] I could name every single person here, and amazing.
+- [16:20.050] But you make my life easy. You trust me. You trust Mike.
+- [16:26.440] You trust leadership. You trust yourselves.
+- [16:29.120] And you don't make us make the call.
+- [16:31.190] One of you said, you know,
+- [16:32.430] I don't speak to the President much.
+- [16:33.920] I like the President. But I always vote for him.
+- [16:36.940] I don't want him to have to waste.
+- [16:39.090] I have people, and you know who they are,
+- [16:42.060] that I have to call, speak to them.
+- [16:44.940] James, is that right? For hours. Hours.
+- [16:48.690] I know they're going to vote for us,
+- [16:50.350] but I have to speak to him for hours.
+- [16:53.460] And it's brutal.
+- [16:54.660] And it not like at 3 in the afternoon.
+- [16:57.890] It's like 3 in morning, right? 3 in in the morning.
+- [17:01.300] You hear that sound of the train?
+- [17:02.650] The train is safe now. We don't have to worry about it.
+- [17:05.460] Isn't that a beautiful -- it's a much nice --
+- [17:07.580] you know, it's much nicer sound now
+- [17:09.230] than it was three months ago.
+- [17:12.450] But -- so, this is a very special group.
+- [17:15.440] And I say that with love for all those other people
+- [17:18.180] that have to work so hard, but they vote for us.
+- [17:19.880] They do vote for,
+- [17:21.080] otherwise we wouldn't be doing what we're doing.
+- [17:24.020] But you are the people that --
+- [17:27.320] I called Mike, I said, we have to reward the people
+- [17:30.020] that I don't get to speak to that I like so much.
+- [17:32.200] Doc Ronnie. Where's Doc Ronnie? Unbelievable doctor.
+- [17:35.640] He was the doctor in the White House.
+- [17:37.690] He was a great admiral,
+- [17:39.330] and he's one of the most popular politicians in this country.
+- [17:43.540] He won his district by 50 points,
+- [17:45.500] but I think I want to buy more. He's got one of great districts.
+- [17:49.580] But Doc Ronnie -- the reason I like him,
+- [17:51.600] He was a doctor.
+- [17:52.920] The White House, he took care of Bush,
+- [17:54.880] took care of Obama, took of Trump.
+- [17:57.610] And the fake news right over here,
+- [17:59.000] they said to him, Doctor, could we ask you a question?
+- [18:02.010] Yes, what would you like?
+- [18:03.230] Who's the healthiest, Bush, Obama, or Trump?
+- [18:07.550] They said, there's not even a contest.
+- [18:09.300] By far, the healthiest is President Donald J. Trump.
+- [18:13.170] I said, I love that guy. That guy is great.
+- [18:15.440] I'm sure that Bush and Obama don't feel the same way,
+- [18:17.670] but who the hell cares, right?
+- [18:19.860] But I want to thank you, Ronnie. You've been great in every way.
+- [18:22.770] And you've been a great congressman.
+- [18:24.930] And you're not a congressman that I had to call.
+- [18:26.740] I never had to called you at two in the morning to get your vote,
+- [18:29.030] did I, huh? But you're the same.
+- [18:30.980] And I just want to think everybody.
+- [18:32.540] You're a special group of people,
+- [18:34.140] and you're the first people that I've had at the White House,
+- [18:37.920] at the Rose Garden. And it's an honor to have you.
+- [18:41.020] Now I want you to sit down, have a great meal.
+- [18:43.810] The food is seriously good. We'll say goodbye to the press.
+- [18:47.140] But it's a honor to you. You and actually.
+- [18:49.910] The press has been very good lately,
+- [18:52.380] except for one rumor that they spread.
+- [18:54.640] I did about eight press conferences in a row,
+- [18:56.820] day after day after today.
+- [18:59.240] Then I missed one because I was in the Oval Office.
+- [19:02.250] And I also went out to a club,
+- [19:04.170] because I had meetings at a club.
+- [19:06.450] And they saw that I was there. And the rumor started spreading,
+- [19:10.010] this horrible rumor that Trump is no longer with us.
+- [19:14.870] They said, I'm not, and they said.
+- [19:17.150] I got to the club, sir, are you okay? Are you okay?"
+- [19:20.280] The fake news was at it again.
+- [19:22.500] But because I missed one day of press conferences,
+- [19:25.490] so today I gave them about a three-hour press conferences
+- [19:29.570] on changing the name of the Department of Defense
+- [19:33.610] to the Department Of War.
+- [19:38.400] Because, you know, we won World War I,
+- [19:41.600] World War II,
+- [19:42.800] everything in between and everything in front of it.
+- [19:45.230] It was called Department of War. And then we went woke after
+- [19:49.050] the second World War incredible victory,
+- [19:52.010] and we said, let's change it to defense.
+- [19:56.330] War means something.
+- [19:57.570] It means we're not going to have any problems.
+- [19:59.130] We don't want problems with people.
+- [20:01.310] And I've kept us out of wars. I've solved wars.
+- [20:04.460] But the way you solve wars is through strength.
+- [20:07.540] And that's what we are.
+- [20:08.770] We make the best equipment in the world.
+- [20:10.660] We have the best soldiers.
+- [20:11.860] We have most powerful military anywhere in the world.
+- [20:14.830] We rebuilt it in my first term.
+- [20:17.750] As you know, we rebuilt it our first term,
+- [20:21.570] and we have the greatest military.
+- [20:22.960] We gave some away to Afghanistan,
+- [20:24.560] which was not exactly good. That was.
+- [20:26.630] The most embarrassing moment in the history of our country,
+- [20:29.490] the Biden, that day in Afghanistan
+- [20:32.040] was the most embarrassing day in the country.
+- [20:34.640] And they kept military equipment, but fortunately,
+- [20:37.640] it's a very small percentage compared to what it was.
+- [20:39.840] But the fact that they could keep any.
+- [20:41.730] But I just want to thank you all.
+- [20:42.950] You've been unbelievable.
+- [20:44.240] I'll be with you for the rest of my life.
+- [20:46.250] I will be with.
+- [20:47.520] And you're going to be with me and with leadership.
+- [20:50.510] Mike, I want to think you for being a great speaker.
+- [20:52.510] You've really outstanding.
+- [20:53.830] And working with you has been an honor.
+- [20:55.640] And thank you.
+- [20:56.840] And congratulations on being number one.
+- [20:59.280] This is historic because you're number one here.
+- [21:02.200] And this little circle, this little beautiful grouping
+- [21:06.000] of some of the finest stone in the world,
+- [21:08.450] this is, I think, going to go down
+- [21:10.550] as a very important place
+- [21:11.880] over the period of time for news conferences,
+- [21:14.720] for celebrations, for dinners.
+- [21:17.400] And we're going to bring people together here.
+- [21:19.120] But we're going to bring maybe some of the Democrats.
+- [21:21.060] We'll see. The Democrats are invited.
+- [21:23.640] Now, we'll do that for about a week or two,
+- [21:25.230] and then we'll find out, well, it just doesn't work, perhaps,
+- [21:28.280] and keep them the hell out of here.
+- [21:29.760] We'll say, you're going to have to win
+- [21:31.230] the White House to get here. But maybe it will work.
+- [21:34.230] You never know. We're going give it a shot.
+- [21:35.810] We're going to let Democrats come,
+- [21:37.160] and we're going let Republicans come,
+- [21:38.720] and you're going to mingle. You know, in the old days,
+- [21:41.570] Republicans and Democrats got together,
+- [21:43.780] and they'd go out to dinner,
+- [21:45.120] and then they'd fight a little bit during the day.
+- [21:47.040] And a lot of times, they'd get 20 percent,
+- [21:49.390] 30 percent of one of the others vote.
+- [21:52.370] And today, that doesn't happen.
+- [21:53.730] It's solid blocks one way or the other,
+- [21:55.590] and probably that shouldn't be.
+- [21:57.580] But we'll see what happens. I just want to thank you all.
+- [21:59.830] You've been unbelievable. You're warriors.
+- [22:02.180] And we're going to make America so great,
+- [22:03.890] so much better than anybody ever thought.
+- [22:06.140] We're going make America great again,
+- [22:07.510] but much, much better than anybody every envisioned.
+- [22:11.250] Thank you all for being with us. A great honor. Thank you.
+- [22:14.190] (applause)

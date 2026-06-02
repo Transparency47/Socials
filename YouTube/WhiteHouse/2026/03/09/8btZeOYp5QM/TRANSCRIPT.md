@@ -1,0 +1,433 @@
+<!-- source: https://www.youtube.com/watch?v=8btZeOYp5QM -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 8btZeOYp5QM -->
+<!-- date_published: 2026-03-09T14:51:51+00:00 -->
+<!-- date_accessed: 2026-06-02T02:36:56.055194+00:00 -->
+
+# Transcript: Vice President JD Vance Delivers Remarks to the International Association of Fire Fighters
+
+- [00:00.450] Ed Kelly: I am honored to welcome Vice President
+- [00:04.120] JD Vance to the International Association of Firefighters,
+- [00:08.660] 2026 Legislative Conference.
+- [00:12.240] Vice President Vance has stood with the IFF
+- [00:15.200] on issues that matter most to firefighters and their families.
+- [00:20.110] When the passage of the honoring our fallen heroes act
+- [00:23.320] was in jeopardy this winter,
+- [00:25.630] the White House made it clear that they would stand with.
+- [00:29.320] The families of our fallen, and they went to work.
+- [00:33.850] The White House removed every stumbling block
+- [00:36.260] that was put in our way.
+- [00:38.590] Occupational cancer is now recognized
+- [00:41.520] as a line of duty death.
+- [00:43.840] And federal death and education benefits
+- [00:46.920] are given to the families of our falling
+- [00:49.650] because the Trump-Vance administration's
+- [00:52.770] steadfast support got it there.
+- [00:56.070] The administration has also backed off federal firefighters.
+- [00:59.910] Protecting the collective bargaining rights
+- [01:02.040] of our 16th district members.
+- [01:05.410] As a senator, Vice President Vance
+- [01:08.090] was a strong supporter of the Social Security Fairness Act.
+- [01:13.070] After the 2024 election, when he was vice president-elect,
+- [01:17.900] he returned to Washington
+- [01:19.880] and urged his Senate colleagues to pass the bill,
+- [01:23.420] restoring dignity and retirement for millions of public servants.
+- [01:28.770] He supported the reauthorization of AFG and SAFER grants,
+- [01:33.010] programs that help fire departments hire firefighters,
+- [01:36.290] and keep their communities safe.
+- [01:39.680] After the train derailment in East Palestine, Ohio,
+- [01:44.060] Senator Vance worked with the IFF
+- [01:46.600] and rail safety unions on the Railway Safety Act,
+- [01:50.540] bipartisan legislation to strengthen rail safety,
+- [01:53.850] and improve hazmat training for firefighters.
+- [01:58.620] Before entering public office, then corporal Vance,
+- [02:03.120] served this country honorably in the United States Marine Corps,
+- [02:07.160] including a tour in Iraq.
+- [02:09.480] Brothers and sisters, please join me in welcoming
+- [02:13.340] Vice President of the United States,
+- [02:15.490] JD Vance.
+- [02:18.090] (applause)
+- [02:24.590] ♪ (rock music playing) ♪
+- [02:36.590] The Vice President: Thank you, all.
+- [02:39.040] Thank you so much. It's great to be here.
+- [02:41.870] It's great to have you in our nation's capital.
+- [02:43.490] I always say to everybody -- this is a very big group.
+- [02:45.680] I can't see any of you
+- [02:46.900] because these spotlights are glaring bright.
+- [02:49.360] The person who runs these spotlights must be a Democrat,
+- [02:51.830] because I cannot see a single person in that crowd.
+- [02:55.950] But I'm told there's about 700 of you out there.
+- [02:58.200] And so I say to everybody,
+- [03:00.010] whether it's a small school group
+- [03:01.420] or 700 great firefighters from all across our country,
+- [03:05.040] that this is your nation's capital, this is your capital.
+- [03:08.620] Your tax dollars built these beautiful monuments and museums.
+- [03:11.620] And I know you got a lot of work to do
+- [03:13.180] while you're here in Washington,
+- [03:14.850] but I hope each and every one of you
+- [03:16.200] gets to enjoy this beautiful city,
+- [03:17.730] especially as the weather turns
+- [03:20.150] really nice here in Washington DC.
+- [03:21.970] Now, the one bad thing about the weather
+- [03:25.180] is when it starts to get warm,
+- [03:27.200] you know as a politician we're gearing up
+- [03:29.050] for political campaign season.
+- [03:31.130] And I'm probably as sick of politics as you all are,
+- [03:34.170] so that's the one downside.
+- [03:35.710] But I hope you enjoy this beautiful spring weather
+- [03:38.050] and enjoy your nation's capital while you're here.
+- [03:40.130] We're thrilled to have you.
+- [03:42.220] And I just want to say thank you so much to Ed
+- [03:46.050] and to the entire team
+- [03:47.470] at the International Association of Firefighters.
+- [03:50.460] Ed Kelly has been a great advocate for you
+- [03:53.340] and for firefighters all across the United States of America.
+- [03:56.800] In fact, when we met backstage very briefly,
+- [04:00.010] we talked a little bit about some of the great legislative
+- [04:02.520] accomplishments of the Trump administration
+- [04:04.570] and we'll talk a bit about that here in a second.
+- [04:07.160] But then the second half of the conversation
+- [04:09.510] was Ed trying to shake me down even more.
+- [04:11.590] He was trying to think what else can we get out
+- [04:13.760] of this administration, and I love that.
+- [04:15.940] I love a guy who fights for his people.
+- [04:18.450] I love a firefighter who knows he stands for
+- [04:20.790] and represents firefighters. And I hope all of you know
+- [04:23.840] that we're going to work with you over the next few years
+- [04:25.870] to continue to solve the problems
+- [04:27.740] that exist for our firefighting community.
+- [04:31.010] One of the things that that a lot of you know
+- [04:34.530] about this administration
+- [04:35.840] and hopefully appreciate about this administration,
+- [04:38.160] but I'm going to make my pitch here,
+- [04:39.990] is that we have been unique among Republicans
+- [04:43.840] in that we haven't turned away organized labor.
+- [04:47.320] We have tried to find ways to work with organized labor.
+- [04:49.670] Not that we're always going to agree,
+- [04:51.090] but another great Bostonian Sean O'Brien,
+- [04:54.290] the head of the Teamsters union,
+- [04:55.520] we found ways to work together to serve working people.
+- [04:59.960] And there is no group of people that is harder working
+- [05:03.470] and more important for our community than our firefighters.
+- [05:06.470] And so thank you all for being here.
+- [05:08.030] And thank you for honoring me by inviting me to --
+- [05:10.620] to give you a few remarks today.
+- [05:19.330] Now before I get into some of some of my other remarks,
+- [05:22.270] I want to just start on a slightly somber note here
+- [05:25.540] because on a personal level,
+- [05:28.000] I was honored to be able to participate
+- [05:30.820] in the dignified transfer of six American soldiers
+- [05:34.150] who were killed overseas in this -- in this --
+- [05:37.330] in this conflict with Iran.
+- [05:39.700] And I had never done that before,
+- [05:41.510] and a lot of you served our nation in uniform.
+- [05:44.380] I know a number of our firefighters
+- [05:47.310] have all across our country.
+- [05:49.180] And I just want to say that if --
+- [05:50.520] if you are the praying type, and I certainly am,
+- [05:52.610] I hope you'll spare a prayer for the six souls that we lost,
+- [05:55.950] for the seventh soul who will be coming home tonight,
+- [05:58.230] and for all of their families.
+- [05:59.680] You all know better than almost any category of Americans
+- [06:03.560] what it means to put on a uniform
+- [06:05.460] and to sacrifice for our country.
+- [06:07.540] And so I hope you'll share a moment of prayer
+- [06:09.970] for our brothers in arms, for your brothers in arms
+- [06:13.140] who keep this country safe in their own way
+- [06:15.100] just as you keep the country safe and your particular way.
+- [06:19.900] So to move on a little bit, let me just say
+- [06:23.330] that what we have tried to do in the Trump administration,
+- [06:26.640] what we have tried to accomplish is to make your lives easier,
+- [06:31.480] knowing, of course, that we're never going to be able
+- [06:33.350] to make your lives completely easy.
+- [06:36.240] You guys have some of the hardest jobs that exist
+- [06:39.410] anywhere in the United States of America
+- [06:41.380] and you represent thousands and thousands of firefighters
+- [06:44.730] all across the United States of America,
+- [06:47.230] who make it possible for our communities to be safe,
+- [06:50.910] who make it possible for our communities to --
+- [06:53.980] to run smoothly, who make it possible for a kid
+- [06:57.110] to be able to call 911 if they have to,
+- [07:00.140] and know that a man or a woman who is professional,
+- [07:03.700] who is competent
+- [07:05.010] and who is caring is going to show up when we need them.
+- [07:08.540] And that's the thing that I admire so much about all of you.
+- [07:11.230] You know, every country, every empire,
+- [07:14.040] every society in history
+- [07:16.390] made it possible for a rich person to get what they needed.
+- [07:19.430] But what makes the United States so unique,
+- [07:21.560] is that whether you're rich or poor,
+- [07:23.280] you're Black or White, when you need public services,
+- [07:26.600] when you need your police officers,
+- [07:28.060] when you need your firefighters,
+- [07:29.780] when you need those EMT specialists,
+- [07:31.930] we make it and we try hard to make it
+- [07:34.550] so that everybody who needs something
+- [07:37.380] in that critical moment has access to it.
+- [07:40.270] Everybody deserves public safety,
+- [07:42.040] not just rich people.
+- [07:43.590] Every person deserves to know that
+- [07:45.870] if, God forbid their house catches on fire,
+- [07:48.810] there's going to be somebody with water there to put it out,
+- [07:51.390] not just the powerful.
+- [07:52.890] And what I admire about this spirit of public service
+- [07:55.510] that exists in this community
+- [07:57.120] is that every single one of you put on a uniform,
+- [07:59.930] the people that you serve put on a uniform
+- [08:02.240] and make it possible for kids like me,
+- [08:04.810] kids who didn't grow up with a silver spoon in their mouth,
+- [08:07.880] to have access to that critical public safety
+- [08:10.960] and that security in their neighborhoods.
+- [08:13.540] Now a lot of you -- um, you know,
+- [08:15.570] I came and spoke in Boston a couple of years ago
+- [08:18.090] and so what I say may come --
+- [08:20.830] um, well, you may have heard me say it in Boston,
+- [08:23.530] but I'm going to repeat it for those of you
+- [08:25.170] who didn't hear me say it in Boston,
+- [08:26.590] which is that, you know, a couple of times,
+- [08:28.240] I was one of those scared little kids
+- [08:29.990] who had to call the firefighters,
+- [08:31.520] who had to call the EMTs.
+- [08:33.480] You know, my -- my own mother struggled with opioid addiction
+- [08:35.840] for a very large chunk of my life.
+- [08:38.290] And I remember when she was having
+- [08:39.690] a particularly dark moment
+- [08:41.060] and she was -- she needed some help.
+- [08:42.780] I needed some help. Our family needed some help.
+- [08:45.240] I picked up the phone, I called 911
+- [08:47.790] and a number of brave, professional,
+- [08:51.310] compassionate firefighters from Middletown, Ohio, showed up
+- [08:55.460] and they calmed my mom down and they made it possible
+- [08:58.120] for us to go on with the rest of our day.
+- [09:00.330] They made a kid who was scared to death,
+- [09:03.280] feel like he had an ally in this world.
+- [09:05.160] I will never forget that.
+- [09:06.940] I will never forget, also, when we had to call 911.
+- [09:10.850] It wasn't a firefighter, it was an EMT who came
+- [09:13.740] and took my mom to the hospital
+- [09:15.160] because she had had a very terrible overdose.
+- [09:18.110] And I remember holding her hand,
+- [09:19.320] hoping to God that she would be OK, that she would wake up.
+- [09:23.470] We know a lot of our people have not woken up
+- [09:25.750] when they have those opioid overdoses.
+- [09:28.060] But by the grace of God, my mom did wake up.
+- [09:30.770] And by the way she's now been clean and sober
+- [09:32.890] for north of 11 years.
+- [09:34.310] We celebrated her 10 year sobriety.
+- [09:36.400] Thank you. We celebrate --
+- [09:46.090] celebrated her ten years of sobriety in the West
+- [09:48.730] Wing of the White House.
+- [09:50.050] What an incredible testament to the American dream,
+- [09:52.200] that a woman I thought would never live to meet my children
+- [09:55.950] is now the best grandmother to those children
+- [09:58.850] that they could ever ask for,
+- [10:00.220] and we celebrated that sobriety in the People's White House.
+- [10:03.810] But that moment, that --
+- [10:05.940] the many moments of second chances
+- [10:07.950] that we've gotten with my mom --
+- [10:09.230] and I love you, mom, if you're watching this.
+- [10:10.850] She probably is. She watches everything.
+- [10:12.730] I don't know why, but she does.
+- [10:14.670] But mom, we would not have gotten that second chance
+- [10:18.500] were it not for the firefighters all across our country,
+- [10:21.590] for the EMT specialists all across our country
+- [10:24.410] who make it possible for second chances again
+- [10:28.320] and again and again.
+- [10:30.650] What you guys do is not easy and as you all know,
+- [10:34.350] it doesn't always pay as well as it should.
+- [10:37.710] But it does give people,
+- [10:40.540] millions of Americans all across this nation a sense
+- [10:45.100] that somebody is looking out for them.
+- [10:47.480] And that's one of the reasons why I love what you do,
+- [10:49.540] why I'm so honored to be here, is because you are the glue
+- [10:53.070] that holds so many of American communities together.
+- [10:56.040] You know, I talked a little bit about the --
+- [10:58.510] the folks that we lost in Iran
+- [11:00.690] and we're so thankful for their service
+- [11:02.690] and so hopeful that nobody else comes home
+- [11:06.640] having lost their life.
+- [11:07.980] But I think there's a brotherhood,
+- [11:10.100] a sisterhood between the military,
+- [11:12.740] the police officers and the firefighters,
+- [11:14.500] because you are the three categories of people
+- [11:17.240] who put on a uniform
+- [11:18.700] and put your lives at risk for your communities.
+- [11:20.870] You've got different jobs,
+- [11:22.620] you have different role to play roles to play,
+- [11:25.280] but I think it's an amazing testament to our country,
+- [11:27.850] maybe the single most important resource
+- [11:30.660] that we have as a United States of America
+- [11:34.010] is that every single one of you
+- [11:37.310] is willing to sacrifice your life.
+- [11:39.200] Hopefully you never will, but every single one of you
+- [11:41.670] is willing to sacrifice your life for this great country
+- [11:45.390] and for the people that you serve in your communities.
+- [11:47.330] I just want you to know,
+- [11:48.850] from the president of the United States,
+- [11:50.620] but from everybody, I think I can say comfortably
+- [11:55.030] even in partisan and difficult times,
+- [11:58.040] that I represent the whole country
+- [12:00.190] when I say to all of our members
+- [12:02.910] of the International Association of Firefighters,
+- [12:05.750] we are thankful to you, we are proud of you,
+- [12:08.510] we love you and we're going to do
+- [12:09.810] everything we can to support you.
+- [12:20.660] Now let me talk just a little bit about
+- [12:22.870] what it means to really support you
+- [12:25.410] because I think it's important.
+- [12:26.840] It's of course important that the Vice President stand up here
+- [12:30.220] and say how grateful he is and I certainly am.
+- [12:32.620] I'm grateful to each and every one of you
+- [12:34.220] and the people you serve,
+- [12:35.760] but it's not just about words, it's about action.
+- [12:37.790] And that's one of the things
+- [12:39.160] I'm proudest about this administration,
+- [12:41.270] is that we have actually backed up the pride
+- [12:44.740] and the support and the gratitude
+- [12:46.360] that we have for all of you with very meaningful action.
+- [12:49.800] You heard Ed talk a little bit
+- [12:51.430] about the Social Security Fairness Act.
+- [12:54.880] Well, one of the reasons why that happened
+- [12:56.840] is because the president of United States --
+- [12:58.300] and I believe it was even before the inauguration,
+- [13:00.770] the president of the United States
+- [13:02.530] made sure that Congressional Republicans
+- [13:05.800] stayed on top of that legislation
+- [13:07.800] and we worked to get it done.
+- [13:10.370] That happened because of presidential leadership.
+- [13:18.070] Do you think Joe Biden was making those phone calls,
+- [13:19.870] ladies and gentlemen?
+- [13:21.120] I just got to say, I don't -- I don't think so.
+- [13:23.020] Sorry, I got a little partisan there.
+- [13:25.480] But we owe it to Americans
+- [13:27.820] who've suffered through exposure to toxic chemicals,
+- [13:31.620] especially the first responders
+- [13:33.080] who seek to protect others from harm.
+- [13:34.860] We owe it to you to actually look after you
+- [13:37.600] and to take care of you.
+- [13:39.400] In that vein, one of the first pieces of legislation
+- [13:42.410] I ever worked on was the Railway Safety Act.
+- [13:46.730] And I'll never forget your support
+- [13:48.360] in making that act a possibility.
+- [13:50.790] We actually got it, by the way,
+- [13:52.150] into the most recent transportation package.
+- [13:54.100] I'm sure Ed and all of you will use your very able
+- [13:57.670] lobbying and persuasion tactics to make sure
+- [13:59.940] that that legislation actually becomes law.
+- [14:02.290] Because here's the thing, when I met the firefighters
+- [14:05.450] who dealt with that terrible train derailment
+- [14:07.700] in East Palestine,
+- [14:09.240] one of the things that I picked up is,
+- [14:10.850] you know, they weren't angry.
+- [14:12.740] They weren't mad. That was their job.
+- [14:16.040] They went into a very dangerous situation
+- [14:18.240] because that was their job and that's what they expect to do.
+- [14:20.870] But they were worried about one thing,
+- [14:23.750] what might happen with all these toxic chemicals
+- [14:26.460] that were in the air?
+- [14:27.680] Would they have long-term problems?
+- [14:29.580] Would they suffer some consequences?
+- [14:31.670] And one of the things that Secretary Kennedy
+- [14:33.690] and I worked on is making sure that we are studying
+- [14:36.710] the long-term effects of toxic chemical exposure
+- [14:39.650] in East Palestine.
+- [14:40.870] We appropriated millions of dollars,
+- [14:42.970] and trust me, when I was a Senator,
+- [14:44.880] I worked to get that money from the last administration
+- [14:47.970] just to understand the effects
+- [14:50.030] of toxic chemical exposure over time.
+- [14:53.750] And we didn't have that until this administration came along
+- [14:57.120] and Secretary Kennedy made it a priority,
+- [14:59.910] because we want you all to know if,
+- [15:02.640] God forbid you run into harm's way,
+- [15:05.320] what are the consequences going to be you for the --
+- [15:07.780] be to you over the long haul.
+- [15:10.250] And importantly, what are the kinds of medical treatments
+- [15:12.870] that you're going to need if you're in that situation
+- [15:15.110] to make sure that the sacrifice
+- [15:17.230] that you make in the line of duty
+- [15:18.860] doesn't become more than it has to be.
+- [15:21.330] Those are the kinds of tangible steps
+- [15:23.150] that we are trying to take.
+- [15:25.580] Now, we know that President Kelly and President Trump,
+- [15:29.070] we all have our own presidents, my friends,
+- [15:31.940] he was a huge proponent and I'm glad for this,
+- [15:34.900] of the Honoring Our Fallen Heroes Act.
+- [15:37.590] Now that was critically important legislation
+- [15:39.630] that you all know President Trump signed into law
+- [15:42.330] just a few months ago. Now, as Ed can tell you,
+- [15:45.960] this law extends legal benefits for firefighters
+- [15:49.790] and first responders who pass away from cancers
+- [15:52.810] caused by exposure in the line of duty.
+- [15:55.790] Now when a firefighter, when one of you becomes ill or,
+- [15:58.820] God forbid, loses your life
+- [16:01.620] because of cancer that was developed in the line of duty,
+- [16:06.310] their families are entitled to federal benefits
+- [16:10.760] that they earned. It's a big one.
+- [16:20.180] Now I say they already earned them
+- [16:21.770] because we owe it to Americans
+- [16:23.700] who've suffered through exposure to toxic chemicals,
+- [16:26.540] especially the first responders
+- [16:28.820] who go into harm's way to protect others from harm.
+- [16:33.390] That is what this administration is all about,
+- [16:37.330] making sure that the Social Security system
+- [16:39.610] treats you fairly,
+- [16:41.360] making sure that you get the benefits or if,
+- [16:44.210] God forbid, you pass away,
+- [16:45.460] your families get the benefits that you deserve,
+- [16:48.360] making sure that we take care of the people who take care of us.
+- [16:52.300] That is the legacy of the Trump administration
+- [16:54.950] when it comes to our firefighters,
+- [16:56.730] and that is a legacy that we're going to keep on building
+- [16:59.020] on over the next three years of President Trump's leadership.
+- [17:09.880] Now I want to close with a very simple point.
+- [17:12.480] This is an administration that is fighting first and foremost
+- [17:16.110] for working men and women.
+- [17:17.390] I talked about that a little bit at the beginning.
+- [17:19.850] We're especially fighting for working men and women
+- [17:22.930] who serve the public interest and that's what all of you do.
+- [17:27.190] You know, when I was a little kid,
+- [17:29.110] I wanted to be a United States Marine.
+- [17:32.130] Some kids want to be doctors, other kids want to be teachers,
+- [17:36.080] some want to be astronauts, but as you know, a lot of kids,
+- [17:40.260] a lot of little kids all across our country,
+- [17:42.230] they want to be firefighters.
+- [17:43.820] That's a great testament to the work
+- [17:45.310] that you do every single day.
+- [17:46.900] I guess my point here is that every kid in our country
+- [17:50.840] has dreams and those dreams come in many shapes and sizes.
+- [17:56.460] And what I want most of all is for your service
+- [18:00.590] and your sacrifice to be rewarded by all of us
+- [18:04.330] living in a country where you don't have to be rich or lucky
+- [18:08.070] to obtain the American dream.
+- [18:09.940] You just got to have a little grit,
+- [18:11.640] a little determination and a lot of hard work.
+- [18:14.970] I want all of us, your kids and mine
+- [18:16.750] to live in safe neighborhoods.
+- [18:18.640] I want us to send our kids to good schools.
+- [18:20.710] I want our families to not have to live paycheck to paycheck.
+- [18:25.070] And that's why our administration is fighting
+- [18:27.090] for all the policies that we've been fighting for,
+- [18:29.840] from the -- the low crime
+- [18:31.870] to reversing the inflation of the Biden years,
+- [18:34.290] because we want every single person in our community
+- [18:37.760] to be able to live a good life.
+- [18:39.430] What is the work of all of you,
+- [18:41.410] of our firefighters and our EMTs,
+- [18:43.770] if it's not to ensure that every kid
+- [18:47.010] has an opportunity to live in safety and security?
+- [18:50.530] You do your part every single day
+- [18:53.320] and I'm proud of you for it,
+- [18:54.730] but that means that we've got to honor your service
+- [18:57.290] by doing our part here in Washington DC.
+- [19:08.960] So let me just say that all of you deserve
+- [19:11.510] to live in this great country
+- [19:13.860] and all of us in this administration
+- [19:17.030] are proud to stand shoulder to shoulder with you
+- [19:19.980] as we rebuild the United States of America.
+- [19:22.870] I want you to be proud in your country
+- [19:25.720] because I know that your country and your president
+- [19:28.950] are very, very proud of you and we're grateful to you.
+- [19:32.580] Thank you for -- thanks everybody and God bless you.
+- [19:36.250] (applause)

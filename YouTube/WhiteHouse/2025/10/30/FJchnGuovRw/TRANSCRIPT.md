@@ -1,0 +1,671 @@
+<!-- source: https://www.youtube.com/watch?v=FJchnGuovRw -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: FJchnGuovRw -->
+<!-- date_published: 2025-10-30T20:26:24+00:00 -->
+<!-- date_accessed: 2026-06-02T01:11:34.028760+00:00 -->
+
+# Transcript: Vice President JD Vance Gaggles with Press, Oct. 30, 2025
+
+- [00:01.040] Good afternoon everybody. How how we
+- [00:02.560] doing?
+- [00:03.600] >> Good. Good.
+- [00:04.960] >> Well, uh, let's let these guys file out
+- [00:08.000] here. But you know what we just did was
+- [00:10.400] a little round table with leaders in the
+- [00:12.160] aviation industry. We've got leaders of
+- [00:14.160] labor represented. Uh, we've got leaders
+- [00:16.640] of the businesses that are of course
+- [00:18.400] making the airline industry run. And I
+- [00:20.320] just wanted to hear from people about
+- [00:21.439] the stresses of the aviation industry in
+- [00:23.359] light of the fact of the shutdown. And
+- [00:25.279] here's what I found out. That actually
+- [00:26.640] worries me a great deal because I think
+- [00:28.320] that as much as delays have gotten worse
+- [00:30.720] over the last couple of weeks, everybody
+- [00:33.680] here is very worried that we're going to
+- [00:35.760] see more delays, more stresses on the
+- [00:38.960] people who are actually making the
+- [00:40.000] aviation system run and more problems
+- [00:42.239] for both the consumers, but also the
+- [00:43.920] great workers who actually make this
+- [00:45.840] incredible shining jewel of the American
+- [00:48.000] economy actually work and work on time
+- [00:50.719] and work safely. Here are the things
+- [00:52.800] that I worry about. I worry about the
+- [00:54.559] people who are scanning our bags and
+- [00:56.160] making us get through the security line.
+- [00:57.840] I worry they're not getting paychecks.
+- [00:59.359] They're starting to get worried about
+- [01:00.239] how to feed their families and how to
+- [01:01.600] pay school tuition and everything else.
+- [01:03.600] I worry about the pilots who haven't
+- [01:05.680] gotten paid in a long time. I worry
+- [01:07.280] about the air traffic controllers who of
+- [01:08.880] course make this entire system extra
+- [01:10.560] safe. I worry about them, you know, more
+- [01:13.439] worried about their credit card bill
+- [01:15.119] than they should be because they're not
+- [01:16.560] getting a paycheck because Democrats
+- [01:18.000] refused to open the government. Now, I
+- [01:19.759] understand that a lot of Americans are
+- [01:21.040] sick of partisanship in Washington DC.
+- [01:23.119] Trust me, I've been here for for nine
+- [01:24.720] months in this job. I am sick of
+- [01:26.240] partisanship in Washington DC. But this
+- [01:28.479] is very very simple. Every partisan
+- [01:31.119] dispute, every policy disagreement, all
+- [01:33.600] of these things we can talk about, we
+- [01:35.840] can reason through. We can disagree. We
+- [01:37.840] can shake hands and compromise on some
+- [01:39.600] of those issues hopefully. But this is
+- [01:42.000] something that every single American,
+- [01:43.840] Democrat or Republican or independent,
+- [01:45.439] should be able to agree on. Open the
+- [01:47.520] government. Stop this craziness and open
+- [01:49.920] the government. It's causing way too
+- [01:51.520] many problems and some of the folks
+- [01:53.439] behind me are the people who are dealing
+- [01:55.119] with the problems. Now, let's just recap
+- [01:57.200] exactly what's happened politically in
+- [01:58.960] this town related to the government
+- [02:00.880] shutdown. We have had now multiple votes
+- [02:04.159] to reopen the United States government.
+- [02:06.640] The House of Representatives has voted
+- [02:08.959] affirmatively to reopen the United
+- [02:10.720] States government. 52 Republicans and
+- [02:13.360] three Democrats consistently vote to
+- [02:15.920] reopen the United States government. But
+- [02:17.760] we need 60 votes. So, all we need to end
+- [02:20.720] the craziness, to pay the air traffic
+- [02:22.720] controllers, to pay the TSA agents, to
+- [02:24.640] pay the pilots, to make sure that food
+- [02:26.640] stamp benefits continue uh to go out to
+- [02:29.040] the American people who need them. All
+- [02:31.040] we need is five reasonable Democrats to
+- [02:34.720] join three moderate Democrats and 52
+- [02:36.720] Republicans to reopen the government. I
+- [02:38.480] want to let Shawn Duffy say something,
+- [02:39.840] but before I do, I just want to say to
+- [02:41.360] any Democrat in the United States
+- [02:43.360] Senate, we are happy to talk about any
+- [02:45.599] policy issue. We're happy to talk about
+- [02:47.200] healthc care policy. We're happy to talk
+- [02:48.959] about tax policy. We're happy to talk
+- [02:50.800] about regulatory policy, but not at the
+- [02:53.760] point of a gun. You do not get to take
+- [02:56.400] the American people's government hostage
+- [02:58.720] and then demand that we give you
+- [03:00.640] everything you want in order to pay our
+- [03:02.239] air traffic controllers. It's a
+- [03:03.760] ridiculous set of demands. Let's reopen
+- [03:05.760] the government and then let's sit down
+- [03:07.360] and talk about how to compromise on
+- [03:08.879] policy for the American people. Sean, I
+- [03:10.800] >> appreciate it, Mr. Vice President. So,
+- [03:12.560] first I want to thank you for um for
+- [03:14.640] calling this meeting of the aviation
+- [03:16.159] industry. Um, we have a great coalition,
+- [03:18.879] uh, bipartisan coalition. Um, and so
+- [03:21.440] thank you for that. Uh, I just want to
+- [03:23.200] tell you, we look at the aviation system
+- [03:25.360] and and we've seen blips and blurbs,
+- [03:27.840] whether it's, uh, LAX or it's Atlanta or
+- [03:30.400] it's Dallas, you're seeing, uh, impacts
+- [03:33.680] of this shutdown on our airspace. And
+- [03:36.000] that means uh, travelers are delayed,
+- [03:38.080] travelers are cancelled. It has real
+- [03:40.080] problems. So, our air traffic
+- [03:41.760] controllers, uh, their first paycheck
+- [03:43.440] they missed, well, they got 90% 80% of
+- [03:45.760] the paycheck. Uh, that was in early
+- [03:47.760] October. They just missed their full
+- [03:49.760] paycheck. And you got to think, well,
+- [03:51.920] then the second paycheck comes. Uh,
+- [03:54.319] that's not when we have real disruption
+- [03:56.480] because every single day, as all of you
+- [03:58.000] people know, as we all pay our bills,
+- [03:59.920] right, it's not just the mortgage and
+- [04:01.200] the car payment, which is very real, but
+- [04:03.280] they're buying food. They travel 30, 45
+- [04:06.080] minutes into the towers or the centers,
+- [04:08.319] so they have to buy gas. They have kids
+- [04:10.080] that want to play football or volleyball
+- [04:12.080] or tennis and they can't afford the very
+- [04:15.920] life expenses that they need those
+- [04:18.479] paychecks for. And so though we've we've
+- [04:21.359] maintained the safety, uh I'm grateful
+- [04:23.840] for our controllers who are coming in
+- [04:25.600] every day. But I do think as this
+- [04:27.759] shutdown continues, you're going to see
+- [04:29.840] more pressure on controllers, more
+- [04:31.759] pressure on TSA workers, and that's
+- [04:33.919] going to have real impact. Um, one group
+- [04:36.000] that you we don't talk about a lot is we
+- [04:38.000] have technicians that work in our
+- [04:39.360] centers. You I've talked to you all
+- [04:41.120] about how old our equipment is. We have
+- [04:43.199] technicians that come in every single
+- [04:45.040] day to make sure this equipment actually
+- [04:47.680] works. They too aren't getting paid. And
+- [04:50.560] this is r this is burning and it's um
+- [04:53.040] having a real impact on our on on our
+- [04:54.720] men and women who serve our airspace.
+- [04:56.720] And so I I would join the vice president
+- [04:58.800] and say don't hold us hostage. Don't
+- [05:01.040] hold uh American famil family's travel
+- [05:03.600] hostage. Don't Don't hold air traffic
+- [05:05.919] controllers hostage. Open up the
+- [05:07.919] government. Have a conversation. Let's
+- [05:10.160] get it resolved. But again, every day it
+- [05:13.520] gets harder. Every day there's going to
+- [05:15.680] be more challenges. And the last point
+- [05:17.759] I'll make before I turn it over to uh
+- [05:19.360] Sean O'Brien's really great hair day
+- [05:21.039] today. Um is is the fact that a lot of
+- [05:24.560] our people can go through the miss of
+- [05:26.800] one paycheck and it's hard for them, but
+- [05:28.960] a lot of them can get through it. None
+- [05:31.039] of them can get through two paychecks.
+- [05:33.600] And so again, if Democrats don't get uh
+- [05:35.919] their act together very quickly, you're
+- [05:37.919] going to see huge problems. And again, I
+- [05:40.320] just I would uh come to them with a
+- [05:42.960] clean heart and say, "Open up the
+- [05:44.800] government and then let's have a
+- [05:46.240] conversation." I'll give it to the team,
+- [05:48.080] Sean Brian.
+- [05:48.639] >> Thank you very much, Secretary Duffy.
+- [05:50.080] Thank you, Vice President Vance. Look,
+- [05:52.080] the bottom line, and we took a position,
+- [05:53.520] I represent 1.3 million working men and
+- [05:55.919] women in this country uh for the
+- [05:57.440] International Brotherhood Teams is we
+- [05:58.800] took a position three weeks ago. pass a
+- [06:01.120] clean CR, get to the table, negotiate a
+- [06:03.440] deal, do not put working people in the
+- [06:05.759] middle of a problem, they should not be
+- [06:07.039] in there. And we got to think about the
+- [06:08.479] families that are going to be affected.
+- [06:10.080] Think about when you have to tell your
+- [06:11.600] son or daughter they can't play sports
+- [06:13.440] because you're not getting paid. Think
+- [06:15.039] about when you can't pay your mortgage.
+- [06:16.479] Think about when you can't pay your
+- [06:17.520] tuition. Put the politics aside, get to
+- [06:20.080] the table, negotiate a deal, pass a
+- [06:22.639] clean CR right now, and then figure out
+- [06:25.440] the problems moving forward. And I want
+- [06:27.360] to thank the air traffic controllers. I
+- [06:29.759] want to thank the aviation
+- [06:31.360] administration for all their hard work
+- [06:33.680] and sacrifice they make. And look,
+- [06:36.000] security and safety of the airlines is
+- [06:37.759] paramount. Let's not compromise the
+- [06:39.840] safety and security. Pass a clean CR.
+- [06:42.319] Thank you.
+- [06:42.880] >> Thank you.
+- [06:44.000] >> Great.
+- [06:44.960] >> Anybody else?
+- [06:47.120] >> Come on. Yeah.
+- [06:49.199] >> Well, uh, thank you, Mr. Vice President.
+- [06:51.680] Thank you, Secretary Duffy. Um, thank
+- [06:53.759] you all for being here with us today.
+- [06:55.440] And I want to start by uh really
+- [06:57.600] thanking the professionals, the air
+- [06:59.520] traffic controllers, the folks at the
+- [07:01.360] TSA, also the FAA, the people in
+- [07:03.360] management. Uh they're working hard.
+- [07:05.120] They are keeping the skies safe. Uh
+- [07:07.120] they've minimized delays. Uh fewer than
+- [07:08.960] 2% of flights have been delayed so far
+- [07:10.720] because of air traffic control
+- [07:12.319] shortages. So they've done a great job.
+- [07:14.160] Uh but it's putting stress on people.
+- [07:16.400] It's not fair to those people. Uh it's
+- [07:18.400] also putting stress on the economy. You
+- [07:19.919] know, the first couple of weeks has this
+- [07:21.039] had no impact on the economy, but as
+- [07:23.039] every day goes by, the impacts start to
+- [07:25.360] grow and airlines are a pretty good
+- [07:26.720] real-time indicator of the economy and
+- [07:28.639] we start to see still minor but steep
+- [07:31.599] booking impact and you see that
+- [07:32.880] happening in the economy. We put the
+- [07:34.000] whole economy at risk and so uh it's
+- [07:36.160] been 30 days and while I don't have a
+- [07:37.840] position on which partisan side uh and
+- [07:40.800] how things should be settled with
+- [07:42.240] healthcare, it has been 30 days. I also
+- [07:44.479] think it is time to pass a clean CR. Use
+- [07:47.360] that as the opportunity to get into a
+- [07:49.680] room behind closed doors and negotiate
+- [07:52.000] hard on the real and substantive issues
+- [07:53.759] that the American people want our
+- [07:55.360] politicians on both sides of the aisle
+- [07:56.879] to solve. But let's get a clean CR and
+- [07:59.280] get that negotiation done behind closed
+- [08:01.599] doors without the pressure and without
+- [08:03.280] putting the American workers in the
+- [08:04.560] American economy at risk.
+- [08:05.680] >> You're here. Great. Okay, guys. We'll
+- [08:07.360] take a few questions. Yeah. Go
+- [08:09.039] >> ahead. Mr. Vice President Mary Bart with
+- [08:11.120] Daily Wire. We're coming up on the year
+- [08:13.680] anniversary of this really tragic plane
+- [08:15.680] crash in DC. Should Americans be afraid
+- [08:18.639] to fly while the shutdown continues?
+- [08:20.879] >> No, I I don't think Americans should be
+- [08:22.319] afraid to fly because we've got great
+- [08:24.160] airline professionals who are keeping
+- [08:25.919] the safest aviation industry in the
+- [08:27.759] world afloat, but they're doing it with
+- [08:29.599] incredible stress. What I worry more
+- [08:31.360] about is that if you have, let's say, a
+- [08:33.360] pilot who's now missed two paychecks,
+- [08:35.519] who's now telling his kids that they
+- [08:37.680] can't do things that they'd like to do,
+- [08:39.120] who's now worried about feeding his
+- [08:40.640] family, maybe that guy doesn't show up
+- [08:42.320] to work, maybe goes and gets a different
+- [08:43.680] job. That means greater delays for the
+- [08:45.440] American people. I worry about the air
+- [08:47.120] traffic controller who now has missed
+- [08:48.640] two paychecks, who's got to pay his
+- [08:50.000] credit card bill or his mortgage, but
+- [08:52.240] can't pay both, and decides, you know
+- [08:54.240] what, this industry is not for me. The
+- [08:56.320] Secretary of Transportation made a great
+- [08:58.000] uh point in private. I'm going to steal
+- [08:59.519] it right now because we got to get
+- [09:01.360] people into the air traffic control
+- [09:02.720] industry. We had a shortage of 2,000
+- [09:04.320] people. How many of those people look to
+- [09:06.480] the future, see the congressional
+- [09:08.080] Democrats can't get their act together
+- [09:09.279] and say, you know what, we're not going
+- [09:10.399] to join air traffic controlling at all,
+- [09:12.399] which is going to further extend the
+- [09:13.839] delays. I think that we have a safe
+- [09:15.519] system because these guys are doing
+- [09:18.000] heroic things in the midst of this
+- [09:20.080] terrible shutdown. But why do we ask
+- [09:22.080] them to do so much without getting paid?
+- [09:24.320] Why don't we pay them so that they can
+- [09:26.160] be happy? They can do the best job they
+- [09:27.839] can do. and they're not worried about
+- [09:29.200] feeding their families while they're
+- [09:30.399] doing a very important job for all of
+- [09:31.839] us.
+- [09:33.760] >> Could you let us know your understanding
+- [09:35.440] of the president's comments that he
+- [09:37.040] wants to resume nuclear testing after
+- [09:39.760] more than 30 years? Does he mean the
+- [09:41.920] warheads themselves, the distribution,
+- [09:44.399] the missiles and so forth? What's your
+- [09:46.000] understanding of his intention?
+- [09:47.200] >> Well, look, I I'll answer that very
+- [09:48.480] briefly, but I really do want to focus
+- [09:49.760] on the shutdown that is affecting the
+- [09:52.080] American people. I think the president's
+- [09:53.600] truth speaks for itself. We have a big
+- [09:55.760] arsenal. Obviously, the Russians have a
+- [09:57.600] large nuclear arsenal. The Chinese have
+- [09:59.200] a large nuclear arsenal. Sometimes
+- [10:01.040] you've got to test it to make sure that
+- [10:02.480] it's functioning and working properly.
+- [10:04.640] We've been working very closely, even
+- [10:06.560] with nations that we don't have the best
+- [10:08.000] relations with, to try to limit uh
+- [10:10.240] nuclear proliferation. The president's
+- [10:11.920] going to keep on working on that, but
+- [10:13.360] it's an important part of American
+- [10:14.720] national security to make sure that this
+- [10:16.560] nuclear arsenal we have actually
+- [10:18.160] functions properly. And that's part of a
+- [10:20.000] testing regime. To be clear, we know
+- [10:21.600] that it does work properly, but you got
+- [10:23.600] to keep on top of it over time. and the
+- [10:26.079] president just wants to make sure that
+- [10:27.200] we do that.
+- [10:28.880] >> I'm with News Nation and my dad was a
+- [10:30.720] pilot. So, thank you for what you're
+- [10:31.839] doing to keep this guy safe. I wanted to
+- [10:33.760] ask you, I know you said you're going to
+- [10:35.279] talk with folks on Capitol Hill after
+- [10:38.640] they open the government back up if this
+- [10:40.480] keeps going on, would you consider
+- [10:42.160] getting everyone together like you did
+- [10:43.519] before the shutdown here at the White
+- [10:44.800] House to talk? And just quickly on
+- [10:46.240] nuclear, does the new testing make the
+- [10:48.480] world less safe?
+- [10:49.600] >> So, so I'm not going to answer I've
+- [10:51.760] answered all the questions about nuclear
+- [10:53.120] testing that I'm going to answer. I want
+- [10:54.399] to talk about the government shutdown
+- [10:55.760] here and I I'd like to focus the
+- [10:57.200] questions there. But to your point,
+- [10:58.880] look, I I've never said we're not going
+- [11:01.200] to talk to congressional Democrats until
+- [11:03.360] they reopen the government. What I've
+- [11:04.880] said is we are not going to give in on
+- [11:07.760] policy demands under the threat of
+- [11:10.399] hostage taking. I I mean, if if if any
+- [11:13.680] moderate Democrat or any Democrat period
+- [11:15.760] from the United States Senate wants to
+- [11:17.519] come over, they're welcome to walk into
+- [11:19.440] these doors in an hour. I'm happy to
+- [11:21.360] talk to them about how how to end the
+- [11:22.959] government shutdown, but it's actually
+- [11:24.399] very simple because there's a clean CR
+- [11:26.560] as you heard from everybody that would
+- [11:28.399] reopen the government. What we're also
+- [11:30.320] saying is that we're not going to tell
+- [11:32.320] we're not going to allow anybody,
+- [11:33.839] Democrat or Republican, to effectively
+- [11:35.680] threaten any policy demand and to place
+- [11:39.440] that upon reopening the government. You
+- [11:42.000] don't reward hostage taking. If
+- [11:43.600] Democrats want to talk about health care
+- [11:45.120] policy, let's talk about healthcare
+- [11:46.720] policy. If they want to talk about tax
+- [11:48.240] policy, let's talk about tax policy.
+- [11:50.480] They don't get to come in here and say,
+- [11:52.399] "You give us everything we want or we're
+- [11:54.640] going to shut down the government and
+- [11:55.839] not pay our pilots and not pay our air
+- [11:57.440] traffic controllers." It's ridiculous,
+- [11:59.760] disgraceful, irresponsible behavior.
+- [12:02.240] There have got to be five more moderate
+- [12:04.320] Democrats in this entire city who are
+- [12:06.399] willing to work with us to reopen the
+- [12:07.760] government.
+- [12:08.639] >> Mr. Vice President, on the issue of the
+- [12:10.399] shutdown, there is the concern about 42
+- [12:12.480] million people losing SNAP benefits. the
+- [12:14.639] force.
+- [12:15.040] >> Over this weekend, the administration's
+- [12:17.120] moved a lot of money around to pay
+- [12:18.480] troops, to pay federal law enforcement,
+- [12:21.200] and is telling Congress it can't move
+- [12:22.800] money around to pay at least some of
+- [12:24.639] those benefits. Why not? And would there
+- [12:26.880] be some push perhaps in the next 48
+- [12:28.720] hours to try to do that so Americans
+- [12:30.320] don't go hungry?
+- [12:31.440] >> Well, here's the problem. If you look,
+- [12:33.200] if you go back to previous government
+- [12:34.639] shutdowns, what has happened is that
+- [12:36.320] sometimes the president has tried to
+- [12:37.839] make the shutdown as painful as possible
+- [12:40.320] on the American people. I give the
+- [12:42.240] president of the United States great
+- [12:43.360] credit and the entire team for trying to
+- [12:45.440] make this as painless as possible. The
+- [12:47.440] Democrats are acting irresponsibly. He
+- [12:49.680] doesn't want the American people to
+- [12:50.880] suffer because of it. But look, right
+- [12:52.560] now, this government, this
+- [12:54.240] administration, we're like guys running
+- [12:56.639] around, you know, with with a leak in a
+- [12:59.279] damn wall trying to plug it with bubble
+- [13:01.279] gum. And we plug one spot with bubble
+- [13:03.200] gum and we plug another spot with bubble
+- [13:04.720] gum and we plug another spot with bubble
+- [13:06.240] gum. Why don't the Democrats just stop
+- [13:08.639] this entire charade and reopen the
+- [13:10.880] government so that we don't have to try
+- [13:12.480] to make this thing work on a shoestring
+- [13:14.560] budget, which is what we're trying to
+- [13:16.079] do? The unfortunate reality, and we're
+- [13:18.399] starting to see this with our aviation
+- [13:19.839] industry, we're going to find out the
+- [13:21.360] hard way with SNAP benefits. Uh the
+- [13:23.360] American people are already suffering
+- [13:25.440] and the suffering is going to get a lot
+- [13:27.120] worse. Not because the president of the
+- [13:28.560] United States has failed to make the
+- [13:30.560] shutdown painless. He's tried to do
+- [13:32.880] everything that he can to make it as
+- [13:35.040] unpainless as possible. The reason that
+- [13:37.519] pain is coming and the reason it's
+- [13:39.680] building is because we're not passing
+- [13:42.720] the clean bill to reopen the government.
+- [13:44.959] It's a very easy thing to do.
+- [13:46.720] >> So, you're not
+- [13:48.240] >> Thank you, Mr. Vice President. I'm
+- [13:49.360] Monica Kate with Front Lines Turning
+- [13:50.800] Point USA. Um, on the government
+- [13:52.560] shutdown, of course, we're approaching
+- [13:53.920] Thanksgiving. We're approaching the
+- [13:55.279] holidays. What could travel look like,
+- [13:58.000] you know, if the Democrats don't open
+- [13:59.920] the government in time? So, I'm going to
+- [14:01.519] let uh our great secretary of
+- [14:02.720] transportation answer this question.
+- [14:04.160] Look, it could be a disaster. It it
+- [14:05.839] really could be. Uh because at that
+- [14:07.600] point, you're talking about people have
+- [14:08.959] missed three paychecks. They've missed
+- [14:11.120] four paychecks. How many of them are not
+- [14:13.360] going to show up for work? You take the
+- [14:15.120] TSA lines that are already too long even
+- [14:18.000] right now. And say half of those people
+- [14:20.000] don't show up for work, not because
+- [14:21.440] they're not hard workers or good people,
+- [14:23.199] but because they've got to find a
+- [14:24.480] different job to feed their families.
+- [14:26.160] What happens when the the the security
+- [14:28.639] lines are not an hour long, but they're
+- [14:31.040] four hours long? What happens when
+- [14:32.639] pilots start not showing up for work
+- [14:34.639] because they're so focused on paying the
+- [14:36.320] bills, they can't fly the P plane
+- [14:38.399] safely? That's going to lead to massive
+- [14:40.160] delays. We want people to be able to get
+- [14:42.480] home for Thanksgiving. We want people to
+- [14:44.320] be able to travel for business to make
+- [14:46.079] this entire engine of commerce work. We
+- [14:48.399] want the aviation industry to work. It's
+- [14:51.279] not going to work unless the Democrats
+- [14:53.760] reopen the government. These guys are
+- [14:55.440] doing heroic things to make it work as
+- [14:57.760] well as it possibly can, but every
+- [14:59.920] single person that I talked to to a
+- [15:01.600] word, they are worried that the delays
+- [15:04.079] are going to reach a point where it
+- [15:05.839] makes it very very hard for the American
+- [15:07.839] people to fly. Sean,
+- [15:09.040] >> so listen, so so, so to answer your
+- [15:11.199] question, our traffic will be snarled,
+- [15:13.279] right? It'll be a disaster in aviation.
+- [15:15.680] And just I'm going to steal uh you stole
+- [15:17.199] my point. I'll steal one from uh Scott
+- [15:19.199] Kirby from United. October is a slower
+- [15:23.040] uh air travel month and we have great
+- [15:25.440] weather in October and so you've seen
+- [15:28.399] minimal disruption because of good
+- [15:30.399] weather and slower travel. But as we go
+- [15:32.720] into November, travel picks up as people
+- [15:35.279] start to look at going to see their
+- [15:36.560] families. Kids come home from college
+- [15:38.720] and if you don't have air traffic
+- [15:40.079] controllers who are being paid, they may
+- [15:42.480] want to stand the job, but they cannot.
+- [15:44.480] They're going to have to go take a
+- [15:45.839] second job and you're going to have mass
+- [15:48.079] issues throughout the airspace. people
+- [15:49.920] will not be able to go from one place to
+- [15:51.440] the other because of the government
+- [15:52.880] shutdown and I hope Democrats don't take
+- [15:54.320] it to that point.
+- [15:57.279] >> Alex Pashet from ABC News. I I'm
+- [15:59.360] curious, you know, as we move into this
+- [16:00.880] holiday travel season, is the
+- [16:02.320] administration working on a plan to keep
+- [16:04.560] uh airports running smoothly. The other
+- [16:06.399] thing that I wanted to ask you is we got
+- [16:07.759] 20 million Americans uh who are set to
+- [16:09.920] see their health care premiums skyrocket
+- [16:12.560] uh with those ACA tax credits expiring.
+- [16:15.360] Curious your response there. Is the
+- [16:16.959] administration working on a plan to
+- [16:18.079] expand them? Why don't you take the
+- [16:20.079] question about what we're trying to do
+- [16:21.920] to try to limit the effects of the
+- [16:23.519] shutdown on aviation? I think Sean is a
+- [16:25.279] great person to address that and then
+- [16:26.560] I'll address the health insurance
+- [16:27.519] premium question.
+- [16:28.240] >> Yeah. So, we are uh we're working
+- [16:29.920] closely with NATO, our air traffic
+- [16:31.440] controllers union, our technicians who
+- [16:33.279] work to keep the equipment safe and
+- [16:34.800] operational. I know Christie is working
+- [16:36.560] with TSA. So, we are doing all we can uh
+- [16:39.279] to partner with and talk to our our
+- [16:42.000] government employees who make this
+- [16:43.680] system run smoothly, but we can only ask
+- [16:46.000] so much. And I I as a guy who had a lot
+- [16:48.480] of kids and didn't make a lot of money
+- [16:50.240] early in my life, I know the pressure
+- [16:51.759] that these families are under. And by
+- [16:53.440] the way, think think when these families
+- [16:55.199] go home, the fights that are had over
+- [16:57.440] the fact that you don't have money for
+- [16:59.199] basketball this season. The family
+- [17:01.519] strife that happens because they don't
+- [17:03.440] have money coming in the door is is very
+- [17:05.120] very real. So, we are doing all we can
+- [17:07.439] to work with our partners to keep things
+- [17:09.360] running smoothly, but but in the end, we
+- [17:11.600] can only go so far. Um, and if I could
+- [17:13.839] just before I turn it over, I I love
+- [17:15.360] that you guys are asking us questions uh
+- [17:17.120] about what we can do to make this less
+- [17:18.959] painful. There's an easy, painless
+- [17:21.199] solution. Pass the clean CR. And by the
+- [17:24.160] way, I I think you all I mean, I was
+- [17:26.319] part of some shutdowns myself in
+- [17:27.760] Congress and uh the tone of the the
+- [17:30.799] press corps is very very different in
+- [17:32.320] this one. um you were raid against
+- [17:35.039] Republicans who voted not to open the
+- [17:37.360] government up and it seems like everyone
+- [17:39.039] is so docel and so like what is the
+- [17:41.440] president going to do to alleviate the
+- [17:42.720] pain? I'm out of the mall. Anyone can go
+- [17:45.760] see the World War II Museum. They can
+- [17:47.520] all go see the the the the the uh
+- [17:50.240] Vietnam memorial. Again, we didn't close
+- [17:53.039] those down. This administration is doing
+- [17:55.200] everything they can to alleviate the
+- [17:57.360] pain on the American people. Go back to
+- [17:58.880] Barack Obama. He did everything he could
+- [18:00.720] to shut down parks and and memorials uh
+- [18:04.160] across this city. And so again, it's an
+- [18:06.960] easy easy answer. Go ask the Democrats
+- [18:09.840] that question. Say, "What are you going
+- [18:11.360] to do to make sure that people get SNAP
+- [18:13.840] benefits this Saturday or they have
+- [18:16.000] healthc care assistance uh for their
+- [18:18.320] Obamacare?" What are you going to do?
+- [18:21.120] Because we're doing everything we can on
+- [18:22.880] our end. Uh but there's not much more we
+- [18:25.039] can do because the rules of the road by
+- [18:26.559] which we have to play. And so again, I'm
+- [18:29.200] grateful for this team because they care
+- [18:30.880] about the American people. I just
+- [18:32.559] wonder, do the Democrats care the way we
+- [18:34.480] do? And if they do, open it up, sit
+- [18:36.320] down, and negotiate
+- [18:37.280] >> here. Here, that's a great point. Uh, I
+- [18:39.520] want to answer the question about health
+- [18:40.480] insurance premiums because look, we
+- [18:42.559] don't want the American people's health
+- [18:44.000] insurance premiums to go up. We're very
+- [18:45.760] worried about this. The president's been
+- [18:46.960] talking about this since before we even
+- [18:48.640] took office, that we're inheriting a
+- [18:50.880] health care system that has suffered
+- [18:52.960] some real problems under the Biden
+- [18:54.400] administration. Because of that, you're
+- [18:55.840] seeing health insurance premium
+- [18:57.200] skyrocket. Now, here is our very simple
+- [18:59.440] proposal to the Democrats. Let's sit
+- [19:01.520] down and come to a compromise and work
+- [19:03.679] it out. And you know what the Democrats
+- [19:05.039] response to that is? Give us everything
+- [19:07.280] we want or we're going to shut down the
+- [19:08.720] government and keep it shut down. That
+- [19:10.320] is not reasonable behavior. That's not
+- [19:12.000] how you do compromise in this town. That
+- [19:14.080] is the way that the Democrats have
+- [19:15.840] operated. They are trying to take a
+- [19:17.280] hostage and we can't reward that
+- [19:19.200] behavior. If we do that, if we say yes,
+- [19:21.840] of course, we'll give you everything
+- [19:23.039] that you want if you reopen the
+- [19:24.080] government. You know what's going to
+- [19:24.960] happen in 3 months? They're going to
+- [19:26.720] come back to the administration and
+- [19:28.000] they're again going to say, "We're going
+- [19:30.000] to shut down the aviation industry.
+- [19:31.760] We're going to deny people SNAP benefits
+- [19:33.520] unless you give us exactly what you
+- [19:35.200] want." That's how a child behaves. That
+- [19:37.520] is not how a responsible governing party
+- [19:39.520] behaves in the United States of America.
+- [19:41.360] And let me make one final point and then
+- [19:43.039] and then we'll cut out of of this press
+- [19:44.720] conference. Look, I actually I've been a
+- [19:47.200] little bit unfair and I want to correct
+- [19:48.880] this because when I say the Democrats
+- [19:51.679] have shut down the government, it's
+- [19:53.440] actually the far-left side of the
+- [19:55.760] Democratic party because to their great
+- [19:57.600] credit, three moderate Democrats joined
+- [20:00.880] 52 Senate Republicans to vote to reopen
+- [20:04.080] the government. We need five more
+- [20:06.880] reasonable Democrats to put the American
+- [20:09.520] people first and reopen the government.
+- [20:11.840] That's all that we're asking. Let's talk
+- [20:13.840] about health care policy. Let's make
+- [20:15.520] sure that we ensure that Americans
+- [20:17.600] health insurance premiums don't go up.
+- [20:19.520] We want that and we're willing to work
+- [20:21.120] with people for it. But they've got to
+- [20:22.960] reopen the government first. Sean came
+- [20:25.440] from a background not that dissimilar
+- [20:27.520] from mine. Shawn O'Brien came from a
+- [20:29.440] background not that dissimilar from
+- [20:30.720] mine. There are moms and dads who are
+- [20:33.840] fighting right now because they're
+- [20:35.440] worried about not being able to pay the
+- [20:37.360] credit card bill and the mortgage bill.
+- [20:39.600] There are there are parents who have to
+- [20:41.039] look their kids in the eye and say, "You
+- [20:42.320] know what? We're not going to do
+- [20:43.440] football this year. We're not going to
+- [20:44.960] do basketball this year because I can't
+- [20:47.039] pay for it because the federal
+- [20:48.799] government is shut down and I'm not
+- [20:50.559] getting a paycheck. Do we want those
+- [20:52.799] people who keep the aviation system
+- [20:54.960] running to not be able to feed their
+- [20:56.720] families, to not be able to pay for some
+- [20:58.799] of the things that make life worth
+- [21:00.080] living? The answer to that question is
+- [21:02.000] absolutely. We want them to be able to
+- [21:04.080] afford a good life. The only way for
+- [21:06.640] that to happen is to reopen the
+- [21:08.480] government. It'll be good for those who
+- [21:10.080] fly. It'll be good for those who work in
+- [21:11.760] the aviation industry. It'll be good for
+- [21:13.840] the whole country. Just do the common
+- [21:16.320] sense thing. Democrats, reopen the
+- [21:18.480] government. We need five Senate
+- [21:20.320] Democrats to join us. I hope that they
+- [21:22.240] will. Thank you, guys.

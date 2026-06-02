@@ -1,0 +1,825 @@
+<!-- source: https://www.youtube.com/watch?v=1izvMU1WfBU -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 1izvMU1WfBU -->
+<!-- date_published: 2025-07-18T19:31:32+00:00 -->
+<!-- date_accessed: 2026-06-02T02:46:52.191510+00:00 -->
+
+# Transcript: President Trump Participates in a Signing Ceremony for S.1582 GENIUS Act
+
+- [00:10.300] Announcer: Ladies and gentlemen,
+- [00:11.540] the President of the United States.
+- [00:14.930] ♪ (Hail to the Chief) ♪
+- [00:40.601] (applause)
+- [00:48.290] The President: Thank you very much.
+- [00:50.660] Thank you, Tom.
+- [00:53.100] (applause)
+- [01:06.000] Keep going. We worked hard.
+- [01:08.180] We've worked hard. Thank you very much.
+- [01:12.400] (applause)
+- [01:17.190] Thank you. Thank you very much. Yeah, we worked hard.
+- [01:21.230] It's a very important act, the Genius Act.
+- [01:24.010] They named it after me, and I want to thank you.
+- [01:25.800] (laughter)
+- [01:27.000] I want to thank you. This is a hell of an act.
+- [01:33.200] You know, I did something very unusual.
+- [01:35.110] I said, this has been something.
+- [01:37.410] It's been -- a lot of people thought it was impossible.
+- [01:39.420] Some of the things that have been done.
+- [01:41.590] And, of course, the Great Big Bill.
+- [01:43.150] I added the word, "great." The Great Big Beautiful Bill.
+- [01:46.240] That was something that nobody thought possible.
+- [01:48.350] They thought it would be in anywhere from seven
+- [01:51.350] to maybe three --
+- [01:52.600] I'll go the opposite direction --
+- [01:54.060] but three to seven different bills.
+- [01:56.940] And we said, let's just put it in one,
+- [01:59.540] because this way there's something for everyone.
+- [02:01.360] And there really is. There's a lot of things for everyone,
+- [02:04.190] and when we get the word out how great that is
+- [02:06.400] for every single person in this country, virtually.
+- [02:11.900] And the -- all they have is a soundbite -- death.
+- [02:14.350] You know what their soundbite is?
+- [02:15.720] Death. Aren't they nice, "Death?"
+- [02:18.030] They are the most incompetent people.
+- [02:19.770] They've lost their confidence.
+- [02:21.830] They've lost everything, if you think about it.
+- [02:24.690] But Jasmine Crockett is on her way.
+- [02:27.910] She's on her way.
+- [02:29.130] (laughter)
+- [02:30.330] She's the new star of the Democrat Party,
+- [02:32.340] Jasmine Crockett. They're in big trouble.
+- [02:35.160] But I have to tell you that was great, and this was great.
+- [02:37.790] And I am so tired of making phone calls at 2,
+- [02:41.440] 3, 4 o'clock in the morning,
+- [02:43.620] getting calls from our great speaker.
+- [02:46.070] "Sir, we have 12 hard no's." I'd say, "Mike, Mike.
+- [02:50.340] It's 2 o'clock in the morning. We have 12 hard no's."
+- [02:55.030] The good news is I call up. "Hello, Jim. How are you?"
+- [02:58.330] "Sir, you have my vote." Phone. "Sir, you have my vote."
+- [03:01.800] I really just -- they just want a little love.
+- [03:04.850] Unfortunately, it's always the same.
+- [03:07.120] It's always the same 12 people.
+- [03:08.850] (laughter)
+- [03:10.120] Let's see, it's five senators and it's 12 congressmen.
+- [03:15.690] (applause)
+- [03:19.410] And I actually said to John Thune
+- [03:21.560] and I said to Mike, I said,
+- [03:23.150] "Listen, I want to have a party, but not to those people
+- [03:28.190] that I have to speak to endlessly every time."
+- [03:30.720] And they're wonderful because they always seem
+- [03:32.500] to come through other than a couple.
+- [03:35.260] Rand Paul, Jr. from the Congress and Rand Paul from --
+- [03:39.280] no, other than few people.
+- [03:41.280] But I said, "I want to have them over.
+- [03:43.750] We're going to have a party for everybody in Congress,
+- [03:48.110] everyone in Congress except 12."
+- [03:51.260] We're going to have, and Mike is --
+- [03:52.720] I'll tell you what, Tom is definitely coming,
+- [03:55.450] the whole group. Where are those 12 people?
+- [03:57.730] They're the only people I don't see.
+- [03:59.030] We could do it today, we don't have to vote.
+- [04:01.470] And I would say of the 53 senators, 48 --
+- [04:06.060] we're going to have 48 in here.
+- [04:07.710] You won't even have to come to that one.
+- [04:10.020] But these are the greatest people
+- [04:11.290] because they always vote yes, and we don't have to go crazy.
+- [04:15.480] You trust us; we trust you.
+- [04:17.710] And it's been a very special group of people.
+- [04:19.540] We really do. I mean, 96 percent phenomenal
+- [04:23.640] and 4 percent extremely difficult.
+- [04:25.740] Do you agree with that?
+- [04:27.090] (laughter)
+- [04:28.290] But they get there, most of them, not all of them.
+- [04:30.890] Those are the ones we really don't like.
+- [04:33.540] But I want to thank you all for being here.
+- [04:34.950] This is really a big day.
+- [04:36.180] This afternoon, we take a giant step
+- [04:38.560] to cement the American dominance
+- [04:40.270] of global finance and Crypto technology.
+- [04:44.660] As we sign the landmark Genius Act into law.
+- [04:48.930] So, congratulations to everybody. It is a big deal.
+- [04:51.750] You've come a long way since the Biden administration,
+- [04:56.260] when they had no idea what you were all talking about,
+- [04:59.850] and half of you were under arrest for no reason whatsoever.
+- [05:04.140] (laughter)
+- [05:06.180] For no reason.
+- [05:07.510] And we want to have it, not China.
+- [05:09.010] China wasn't actually happy.
+- [05:10.280] They were watching this. They like it.
+- [05:12.650] And we've got this. We've got A.I.
+- [05:16.260] We've got a lot of great ones happening.
+- [05:18.450] And this is a very big thing.
+- [05:20.150] And I want to thank the bill's author,
+- [05:22.740] Senator Bill Haggerty, a very good friend of mine.
+- [05:25.610] Thank you, Bill.
+- [05:27.900] (applause)
+- [05:33.740] He's a great guy. He's great guy.
+- [05:36.590] He's a very handsome guy, looks great.
+- [05:38.540] He's got the whole package.
+- [05:39.750] But, you know, I got to know him.
+- [05:40.990] He was ambassador to Japan.
+- [05:43.000] And we had a little problem with Japan on trade.
+- [05:45.630] But he was my ambassador to Japan.
+- [05:48.370] And I went to Japan, and he is speaking fluently Japanese.
+- [05:53.200] I said, "Did you learn it as a child?"
+- [05:55.390] "No, no, I just learned it over the last four or five months.
+- [05:58.640] I said. "You learned Japanese" --
+- [06:00.080] maybe the single hardest language to learn.
+- [06:03.030] It's actually breathing, rather than -- it's breathing.
+- [06:06.710] I'm not going to imitate it
+- [06:07.950] because we'll end up with a big story,
+- [06:09.400] and I don't want that.
+- [06:10.760] (laughter)
+- [06:12.400] But he spoke totally fluent Japanese.
+- [06:15.330] I said, "That's very impressive."
+- [06:17.550] And he was introducing me to Mr. Honda.
+- [06:20.670] I said, "Oh, are you in the car business?"
+- [06:23.190] He goes, "Yes." I said, "You're a very rich man."
+- [06:26.120] And then he said, "Mr. Toyota, right?" Toyota.
+- [06:29.880] Then I said, "What business are you in?
+- [06:32.670] Let me guess." He said, "Cars."
+- [06:35.870] He was my interpreter, and I was so impressed.
+- [06:39.350] And I was getting ready to leave.
+- [06:40.650] He said, "Sir, I'd like to run for the United States Senate."
+- [06:43.380] I said, "Where are you from?" He said, "Tennessee."
+- [06:46.970] I said, “Well, I love Tennessee, but do they know you there?"
+- [06:50.650] "No, but if you endorse me, I'll win, right?"
+- [06:53.980] And I endorsed him, and he took a 48-point lead.
+- [06:56.840] And they didn't know who the hell he was.
+- [06:59.070] And he's turned out to be a great senator.
+- [07:01.890] And now they all know who you are.
+- [07:04.070] Yeah, so you are, you're fantastic.
+- [07:06.010] And we thank you.
+- [07:07.540] Just the fact that you're doing this,
+- [07:08.960] and you understand this is a complicated world,
+- [07:11.510] and you understand the bill.
+- [07:13.120] So, you've been great. Thank you very much.
+- [07:15.750] We're also pleased to be joined by our great Vice President,
+- [07:19.450] J.D. Vance.
+- [07:20.680] J.D., thank you very much. Good job.
+- [07:23.900] (applause)
+- [07:28.090] And he's been up speaking late at night on the phone.
+- [07:30.830] I said, "J.D., how about you take
+- [07:32.360] three or four of these people, please?"
+- [07:34.200] Because three or four I cannot speak to.
+- [07:35.810] I just can't.
+- [07:37.080] And he'd take them, and he'd come through.
+- [07:38.490] Right, J.D.?
+- [07:39.720] Also, Speaker Mike Johnson. He is unbelievable.
+- [07:45.180] (applause)
+- [07:46.890] He's an unbelievable -- I mean, if you go by what we're doing,
+- [07:50.960] if we keep up this pace,
+- [07:52.780] you can't keep it up for another 200 days,
+- [07:56.770] but I will tell you this.
+- [07:57.970] If you keep up this pace for another week,
+- [07:59.780] you go down as the greatest speaker in the House in history.
+- [08:03.080] So, one more week. One more week, yeah.
+- [08:07.200] Who needs Tip O'Neill? Who needs Tip O'Neill?
+- [08:10.100] He's better looking than Tip O'Neill, too.
+- [08:12.740] But, no, he's been going at a fervent pace.
+- [08:16.820] Would you say that's right?
+- [08:18.120] Your wife probably says, "You are crazy."
+- [08:21.500] You've been aging beautifully in front.
+- [08:23.520] (laughter)
+- [08:24.760] He's an amazing -- actually, he's an amazing speaker,
+- [08:26.640] a great leader.
+- [08:27.900] And everybody likes him and respects him.
+- [08:30.300] And that's why we're -- with a very small majority,
+- [08:33.110] like three -- we had a time when we were one. Remember?
+- [08:37.840] We said, "We're one heart attack away from losing the House."
+- [08:42.260] Then we won a couple of seats and a couple of others.
+- [08:44.360] Now we have seven, maybe. Maybe, if we're lucky, seven.
+- [08:48.650] But we win with -- nobody's ever done --
+- [08:51.070] I don't think anyone has ever done this before,
+- [08:52.810] to win with those small.
+- [08:54.360] We had a little help from Tom, too, right?
+- [08:56.230] And a lot of other people. I want to introduce,
+- [09:00.230] also, Secretary Howard Lutnick, who's been fantastic.
+- [09:03.040] You have done a great job, Howard.
+- [09:05.030] (applause)
+- [09:09.140] We've got trade deals coming out of our ears, right?
+- [09:12.200] We've had so many trade deals. They're all calling.
+- [09:14.490] So many -- and I really mean this, too.
+- [09:17.080] It's like, you know, how do you deal with so many?
+- [09:20.310] But, you know, I always say when we send out the paper,
+- [09:22.450] that was a deal. They don't want to --
+- [09:23.880] the fake news doesn't want hear that.
+- [09:25.850] When I send out the paper that you're paying 35-
+- [09:28.230] or 40-percent tariff,
+- [09:29.910] that's a deal, then they'll call and see
+- [09:31.630] if they can make a little bit different kind of a deal
+- [09:33.590] like opening up their country to trade.
+- [09:35.660] In some cases, they've never been opened.
+- [09:38.040] But we're doing well, and we have a couple of big ones
+- [09:40.400] to announce pretty soon, right? Could almost do it today.
+- [09:43.410] Maybe we'll say it. Maybe later on we'll do it.
+- [09:46.360] Senator Bernie Moreno, a great victory.
+- [09:49.850] Bernie had great victory, a great victory.
+- [09:53.780] (applause)
+- [09:55.110] That was one of the truly tough races.
+- [09:57.070] A lot of people weren't sure anybody could win that seat,
+- [10:00.610] and you won it in easy fashion, right?
+- [10:03.580] We won it together, when you think of it.
+- [10:05.760] But you won it in easy fashion. You did a great job.
+- [10:08.670] Great guy. House Majority Whip.
+- [10:10.950] This is a great leader, Tom Emmer,
+- [10:13.090] a great politician and leader.
+- [10:15.890] (applause)
+- [10:17.450] Really good. And I like his wife even better.
+- [10:21.490] His wife is -- she's the boss, but she's --
+- [10:25.490] you are married to a fantastic woman, huh?
+- [10:28.410] And he knows that.
+- [10:29.650] And he likes hearing it because some people don't, you know.
+- [10:32.310] They say, "Sir, could you please stop
+- [10:34.430] saying that my wife is better than me, sir?"
+- [10:37.690] Those are guys that don't usually end up
+- [10:39.230] with a good marriage, you know?
+- [10:41.290] He's got a great marriage. So, thank you, Tom.
+- [10:44.420] You really are a fantastic leader and representative.
+- [10:47.770] And Representatives Troy Downing, French Hill.
+- [10:51.390] Where's French Hill? Where is French Hill?
+- [10:53.180] You have been so great. Thank you, French.
+- [10:57.100] (applause)
+- [10:58.370] I spoke to him a little late --
+- [10:59.770] when he was walking down the hall.
+- [11:01.160] I said, "French?" He said, "I'm there, sir."
+- [11:03.130] You were great, great, great guy.
+- [11:05.360] Everyone respects you, France. You know that. Bill Heisinger.
+- [11:09.290] Bill, thank you very much. Thank you very much. Good job.
+- [11:13.210] (applause)
+- [11:14.490] Dan Meuser, I thought he was going to become
+- [11:16.640] the next governor of Pennsylvania,
+- [11:18.070] but he likes Congress better, I guess, huh?
+- [11:20.520] So, but I think you're terrific.
+- [11:22.660] And, you know, I would have always been behind you,
+- [11:25.290] that I can tell you. Tim Moore. Tim? Thank you, Tim.
+- [11:30.250] (applause)
+- [11:31.620] John Rose. John? Hi, John. Thanks. Good job. Brian Stile.
+- [11:38.470] Brian Stiles? Still young. Still nice and young.
+- [11:42.570] That's good. GT Thompson? GT, thank you.
+- [11:49.050] Andy Barr, good friend of all of ours.
+- [11:51.250] Thank you, Andy. Monica Dela Cruz.
+- [11:56.370] Monica, she's here someplace.
+- [11:58.730] Thank you, Monica. Thank you Monica.
+- [12:02.770] Mike Haridopolos. Mike, thank you.
+- [12:05.950] Mike, look good. Mike Lawler, Mr. Saul.
+- [12:15.350] Well, it should guarantee your district.
+- [12:17.680] I mean, you worked hard for New York, right?
+- [12:20.730] And you're on television, I'm on television.
+- [12:22.300] So, this should be good for a couple of points.
+- [12:23.680] (laughter)
+- [12:24.880] But without you and your couple of friends from New York
+- [12:28.740] that wouldn't have happened. That was not easy, right?
+- [12:31.030] Congratulations. Great job. Anna Paulina Luna.
+- [12:35.490] Anna, who is so great.
+- [12:37.660] I don't even -- if she's here or not here,
+- [12:39.820] I want to tell you that she has been so great
+- [12:42.130] and worked so hard to make sure we got it approved.
+- [12:45.690] Ralph Norman. Ralph. Ralph.
+- [12:48.790] What happened to Ralph? Nick Begich. Nick.
+- [12:53.500] Thank you, Nick. Good job. Good job, good votes.
+- [12:58.310] I just saw a great poll on you, huh? Very good.
+- [13:01.520] Congratulations, Nick. Andy Ogles.
+- [13:04.460] Andy, who's a terrific friend. Beth Van Dyne.
+- [13:08.920] Beth. Thank you Beth. Great job. Thank you.
+- [13:12.360] Thank you very much for the great support.
+- [13:14.890] Roger Williams, a great baseball player,
+- [13:18.280] who also had to take a bullet, unfortunately.
+- [13:20.580] But he is a great guy.
+- [13:22.380] He was involved in that whole catastrophe.
+- [13:24.570] But he's fantastic and has been from day one,
+- [13:27.370] along with a lot of other people that I won't call out
+- [13:29.720] because I have no idea where the hell you are.
+- [13:31.580] I think I saw Jason here somewhere.
+- [13:33.310] Where's Jason? Oh, it's lucky I called him.
+- [13:36.840] Ooh, it was lucky. They didn't put your name
+- [13:40.260] because I invited you at the last moment, right?
+- [13:42.370] He was over there doing some business in the White House.
+- [13:45.430] But you've been incredible in your position.
+- [13:48.060] Nobody knows more about taxes and finance than you do,
+- [13:51.230] so we appreciate it. Right?
+- [13:52.590] Is that true, Howard? It's true. Thanks, Jason. Great job.
+- [13:55.930] And you'll help out with that other matter.
+- [13:58.110] You make him so strong and powerful, right?
+- [14:00.810] Along with Deputy Secretary of Treasury Michael Faulkender.
+- [14:04.940] Where's Michael? Good, Michael. How are you?
+- [14:07.700] Good. You'll help out over there, okay?
+- [14:11.380] And Ambassador Ken Howery. Ambassador.
+- [14:15.460] Thank you, Ken. Great job, Ken! I also want to recognize
+- [14:20.400] some of the countless industry leaders here today,
+- [14:23.210] including Brian Armstrong of Coinbase.
+- [14:28.330] You've done a good job, Brian. That's a big deal.
+- [14:31.690] Dave Ripley of Kraken. Thank you.
+- [14:37.630] Jeremy Allaire of Circle. It was a big day. Good job.
+- [14:45.470] Good job, Jeremy. Paolo Ardoino of Tether.
+- [14:51.970] Paolo. Paolo, thank you, Paolo. Ryan McInerney of Visa.
+- [14:57.450] That's a good company. Thank you.
+- [15:02.200] Chris Pavlovski of Rumble. Chris? Chris?
+- [15:06.860] What happened to your location, Chris?
+- [15:09.620] You're always a front-row guy.
+- [15:11.080] You're just being nice today, I think.
+- [15:13.120] How's Rumble doing? Good? Good.
+- [15:16.190] If Rumble is doing good, that means truth is doing good.
+- [15:19.530] Truth. That's great. You're doing a great job.
+- [15:21.990] Thank you, Chris, very much. Vlad Tenev of Robin Hood.
+- [15:28.700] Vlad, thank you, Vlad. Thank you.
+- [15:30.290] Vlad. Good. Tyler and Cameron Winklevoss.
+- [15:36.410] These are two smart, handsome guys.
+- [15:39.260] They got the whole package.
+- [15:41.990] They're of Gemini, but they have the whole package.
+- [15:44.340] They have a lot of things, actually.
+- [15:45.600] But Gemini is just the one for today, right?
+- [15:48.210] They've got the whole -- they've got the look,
+- [15:49.990] they've got the genius, got plenty of cash.
+- [15:54.100] And it's great that you're on our side.
+- [15:55.750] You guys are great. I can never tell them apart.
+- [15:58.050] But their mother can.
+- [15:59.260] I ask, "Can your mother tell you apart?"
+- [16:01.570] And the answer is yes. Easily, or is it tough for her?
+- [16:05.080] Easy, I think. Good. You guys have been great.
+- [16:08.690] Thank you very much. Great to be with you.
+- [16:11.020] Let me say, the entire crypto community,
+- [16:13.730] for years, you were mocked and dismissed and counted out.
+- [16:18.400] You were counted out as little as a year and a half ago.
+- [16:22.230] But this signing is a massive validation.
+- [16:24.640] And even before this signing,
+- [16:26.170] over the last year, year and half,
+- [16:28.190] I think your stuff has gone up more than any stock,
+- [16:30.100] or just about more.
+- [16:31.370] A couple of stocks that were pretty good, I will say.
+- [16:33.970] But you have certainly, as an industry,
+- [16:36.580] gone up more than anybody.
+- [16:37.950] Nobody has gained the respect in such a short period of time.
+- [16:41.370] But this signing is a massive validation of your hard work
+- [16:44.610] and your pioneering spirit and your ability to never give up,
+- [16:48.560] because a lot of people would have given up two,
+- [16:51.010] three years ago.
+- [16:52.260] So, I want to thank you for contributing
+- [16:54.400] to the incredible strength of America.
+- [16:57.490] This is going to make it stronger.
+- [16:58.820] And congratulations on this incredible achievement.
+- [17:02.130] You've made our dollar look really good
+- [17:03.970] and strong and powerful.
+- [17:05.290] It's good for the dollar, and it's good the country.
+- [17:08.030] And that's why I backed you at an early stage.
+- [17:10.160] And I also did it for the votes
+- [17:11.570] because you did come out and vote, I will tell you.
+- [17:15.010] And they changed tune, you know, Biden's team.
+- [17:17.520] They changed tune right in the middle of the campaign.
+- [17:19.950] All of a sudden, they loved you guys.
+- [17:22.110] They dropped all charges.
+- [17:24.110] Have I got you guys out of so much trouble?
+- [17:27.390] And you know what? I don't think anybody voted for them, right?
+- [17:30.070] As you remember. You remember, they were very --
+- [17:32.520] they treated you very unfairly, actually.
+- [17:34.400] So, it's a great honor that we were involved.
+- [17:37.440] And it was.
+- [17:39.230] It was a tremendous amount of support
+- [17:40.880] that we got at the polls.
+- [17:42.090] We won -- think of it -- we won every swing state.
+- [17:45.240] We won by millions of votes. We won the popular vote.
+- [17:47.940] We won districts by 2,750.
+- [17:52.350] You have to think of that -- 2,505.
+- [17:56.240] Different districts, too, by the way.
+- [17:58.300] Every once in a while, that number can change,
+- [18:00.180] but it doesn't change by much. The map was almost totally red,
+- [18:03.860] and you guys were with us right from the beginning.
+- [18:06.310] Exactly one year ago this month,
+- [18:09.360] many of you were with me in Nashville, Tennessee.
+- [18:11.750] Do you remember that day, right?
+- [18:13.610] That was a big day in Nashville Tennessee
+- [18:16.290] when we became and I became the first presidential candidate
+- [18:20.110] ever to address the Bitcoin conference.
+- [18:23.370] And at this time and at that time,
+- [18:26.170] crypto builders and founders were under relentless assault
+- [18:30.120] by the Biden administration,
+- [18:31.650] which was trying to crush your industry
+- [18:34.050] and crush you as people and go after your families.
+- [18:36.590] And they were a vicious group of people.
+- [18:39.200] You know, people don't realize it.
+- [18:40.470] They were vicious. Incompetent, but vicious.
+- [18:44.340] Well, Joe was an incompetent guy,
+- [18:45.880] but he was always known as a vicious guy.
+- [18:48.490] I guess if you're going to be in that, you're probably off --
+- [18:51.060] if they're incompetent is better, right?
+- [18:53.340] Because you don't want to have a vicious guy that's competent.
+- [18:56.910] If you did, I wouldn't be standing here today, right?
+- [19:00.340] But I pledged that we would bring back
+- [19:02.270] American liberty and leadership
+- [19:03.960] and make the United States the crypto capital of the world.
+- [19:06.620] And that's what we've done.
+- [19:07.900] And under the Trump administration,
+- [19:10.490] this is only going further. You're going to do really well.
+- [19:13.960] I mean, I'm so proud of what you've done
+- [19:15.700] in the last couple of years. And very important, on day one,
+- [19:19.540] I remember I did this and I said this and mentioned this name,
+- [19:22.550] and I got the greatest applause of the whole campaign.
+- [19:26.290] We fired Joe Biden's SEC chair, Gary Gensler. We fired him.
+- [19:49.080] But I remember I was making a speech
+- [19:51.060] and, you know, it was just a line in speech,
+- [19:53.960] and I said, "and I will fire Gary Gensler."
+- [19:56.570] The place exploded. I said --
+- [19:59.520] I finished -- I went and I said, "What the hell did that guy do?"
+- [20:04.020] There was a lot of hatred there, I'll tell you.
+- [20:07.240] And it turned out, as I got familiar with everything,
+- [20:09.410] it turned that you were absolutely right.
+- [20:11.650] In his place, I appointed a visionary chairman
+- [20:14.700] who wants America to build the future
+- [20:16.950] and not block the future. He's going to be unbelievable.
+- [20:19.940] He'll go down as one of the greats.
+- [20:21.400] And Paul Atkins, where are you, Paul Atkins?
+- [20:25.370] (applause)
+- [20:33.160] And, you know, Paul, the crypto guys, they said --
+- [20:36.370] everybody said, not only crypto --
+- [20:38.140] every in this --
+- [20:39.380] they all wanted Paul for the position.
+- [20:41.840] And he's a tough cookie, too.
+- [20:44.140] He's just -- but they actually said,
+- [20:46.270] "We don't care. We just think he's fair."
+- [20:49.080] All they wanted was fairness. And they have somebody that --
+- [20:52.470] you're really a champion of the street,
+- [20:54.140] and you're a champion in the country.
+- [20:55.420] You're going to do a fantastic job.
+- [20:56.730] I saw you interviewed the other night.
+- [20:58.660] I watched it about 2 o'clock in the morning.
+- [21:01.060] It was a little thing called C-SPAN,
+- [21:02.970] which I don't know how many people were watching.
+- [21:05.310] Don't worry, you were on prime time, too,
+- [21:06.770] but they happen to have a little rerun.
+- [21:08.600] I don't want to embarrass you, but a fantastic job, really.
+- [21:12.880] You are absolutely so perfect for the job.
+- [21:15.240] Congratulations, Paul.
+- [21:17.200] And Paul is here today among the commissioners,
+- [21:20.110] various commissioners including Hester Peirce and Mark Uyeda.
+- [21:26.900] Hester and Mark Uyeda.
+- [21:29.400] Thank you, Hester. Thank you very much.
+- [21:34.620] And thank you, Mark. Wherever you may be.
+- [21:36.590] Is Mark here? Oh, stand up, Mark.
+- [21:38.610] I didn't -- good. Thank you. Good job. Good.
+- [21:43.790] I'm glad I gave you a second crack.
+- [21:45.300] You didn't hear because of the thunderous applause for Hester?
+- [21:49.100] (laughter)
+- [21:50.390] But thank you.
+- [21:51.590] I heard tremendous things about both of you.
+- [21:53.560] Thank you very much. My first week in office,
+- [21:55.550] I also established the first-ever
+- [21:57.810] Presidential Working Group on Digital Assets.
+- [22:00.560] And we have an executive director, where's Bo Hines.
+- [22:04.180] Bo Hines? Hi Bo.
+- [22:11.530] And Bo was a great football player, right?
+- [22:13.930] Bo was great football player.
+- [22:15.380] One of the better players in college football,
+- [22:17.800] so I know you from that also.
+- [22:19.980] See? Who would think that I know that?
+- [22:21.580] I know a lot of things, Bo. But he was a champion player.
+- [22:25.940] I stopped the weaponization of government
+- [22:28.610] against crypto and bitcoin,
+- [22:30.310] and we ended the lawless operation
+- [22:32.290] ChokePoint 2.0. That was a bad operation.
+- [22:36.490] And I kept my promises to the community
+- [22:38.840] and granted a full presidential pardon to Ross Ulbricht.
+- [22:43.970] Ross Ulbricht.
+- [22:47.100] And you have no idea how important that name became.
+- [22:49.780] It was like a symbol, and his mother was unbelievable.
+- [22:52.330] His mother was an unbelievable woman.
+- [22:54.800] But it was so important to a certain group of people.
+- [22:58.790] And in the truly momentous act, last March,
+- [23:01.600] I signed an executive order
+- [23:03.080] establishing the U.S. Strategic Bitcoin Reserve,
+- [23:06.390] as well as the United States Digital Asset Stockpile.
+- [23:11.090] And that's all signed up. And with today's signing,
+- [23:13.880] we're pushing even further into the exciting new frontier.
+- [23:17.540] Just as I promised last year, the Genius Act creates a clear
+- [23:20.970] and simple regulatory framework to establish
+- [23:23.740] and unleash the immense promise of dollar-backed stable coins.
+- [23:30.840] This could be, perhaps,
+- [23:32.360] the greatest revolution in financial technology
+- [23:35.280] since the birth of the Internet itself.
+- [23:37.600] A lot of people are saying that.
+- [23:38.920] I don't know. What do you guys think?
+- [23:40.190] Yes? You can -- if you say yes, I'm saying yes.
+- [23:46.370] I think it's great that you're involved, I will tell you.
+- [23:48.840] Many Americans are unaware that, behind the scenes,
+- [23:52.040] the technical backbone of the financial system
+- [23:55.180] is decades out of date, many, many years out of day.
+- [23:59.050] You know that. Paul and others are straightening it out.
+- [24:01.730] But payments and money transfers are costly
+- [24:04.480] and take days or even weeks to clear.
+- [24:07.020] Under this bill, the entire ancient system
+- [24:09.310] will be eligible for a 21st century upgrade.
+- [24:13.330] Using the state-of-the-art crypto technology.
+- [24:16.400] Who would have thought we would have been saying
+- [24:18.160] that two years after I really met you for the first time?
+- [24:23.110] The Genius Act provides banks, businesses,
+- [24:25.530] and financial institutions a framework
+- [24:27.570] for issuing crypto assets
+- [24:29.020] backed one-for-one with real U.S. Dollars, Treasury bills,
+- [24:33.490] and other cash equivalences, really strengthening the dollar
+- [24:37.210] and giving the dollar great prominence in --
+- [24:41.170] You know, you have this little group called BRICS.
+- [24:43.130] It's fading out fast.
+- [24:44.850] But BRICS is -- they wanted to try and take over the dollar,
+- [24:47.730] the dominance of the dollar and the standard of the dollar.
+- [24:51.760] And I said, "Anybody that's in the BRICS consortium of nations,
+- [24:55.730] we're going to tariff you 10 percent."
+- [24:58.180] And they had a meeting the following day,
+- [24:59.920] and almost nobody showed up.
+- [25:01.430] They said, "Leave me alone." We didn't want to --
+- [25:04.380] they didn't to be tariffed to there -- that's amazing.
+- [25:07.860] No, we're not going to let the dollar slide.
+- [25:09.550] If we have a smart president,
+- [25:10.960] you're never going to the dollar's slide.
+- [25:12.310] If you have a dummy, that could happen, like the last one.
+- [25:15.580] He would -- if you ever asked him about the dollar slider,
+- [25:18.130] he would have no idea.
+- [25:20.180] But we can't let that ever happen again.
+- [25:23.130] Consumers, vendors, and people all over the world
+- [25:25.570] will then be able to use those stable coins
+- [25:27.870] for ultra-low-cost transactions that are cleared and settled
+- [25:31.950] in a matter of seconds, rather than weeks and months.
+- [25:35.460] And it's really an amazing thing.
+- [25:38.060] And with the privacy, flexibility,
+- [25:39.830] and decentralization of cash,
+- [25:42.210] this revolution has the potential
+- [25:44.380] to supercharge American economic growth
+- [25:46.620] and empower billions of people to save
+- [25:49.080] and transfer in U.S. dollars.
+- [25:52.050] It's really all backed by the dollars.
+- [25:54.020] It's a really a great thing and a lot of, you know,
+- [25:56.930] we had a lot of Democrat support,
+- [25:58.480] I have to tell you that. I was shocked.
+- [26:00.670] Any time you get one Democrat,
+- [26:01.990] but we had a tremendous amount of Democrat support,
+- [26:05.470] which we appreciate.
+- [26:07.860] And which just shows you that you're doing the right thing.
+- [26:12.600] This will increase demand for U.S.
+- [26:14.140] Treasuries, lower interest rates,
+- [26:15.870] and secure the dollar's status
+- [26:17.870] as the world's reserve currency for generations to come.
+- [26:21.470] The reserve currency is so important.
+- [26:22.900] You know, if we lost that,
+- [26:24.120] that would be like losing a World War.
+- [26:26.280] We can never let anyone play games with us.
+- [26:28.930] And that's why, when I heard about this group from BRICS,
+- [26:32.090] six countries, basically, I hit them very, very hard.
+- [26:36.660] And if they have a forum,
+- [26:40.670] if they ever really forum in a meaningful way,
+- [26:43.850] it will end very quickly, I will tell you, for them.
+- [26:46.640] They won't be gone very long.
+- [26:48.840] I don't think they'll even do it.
+- [26:50.480] They're virtually afraid to meet.
+- [26:53.660] I also remain fully committed to my pledge
+- [26:56.850] never to allow the creation
+- [26:58.460] of a Central Bank digital currency in America.
+- [27:01.770] It won't happen. My first --
+- [27:05.170] (applause)
+- [27:11.330] And the other night, I will say,
+- [27:12.980] with some of the congressmen and women,
+- [27:15.330] they wanted that so badly. That was so important to them.
+- [27:18.900] You know, I was impressed that they knew what the hell it was,
+- [27:21.060] to be honest with you.
+- [27:22.410] "Please, sir, please, the central bank digital currency,
+- [27:25.480] you have to make sure, sir."
+- [27:27.390] And I'm saying, "What do you know about that?"
+- [27:28.880] It's amazing the knowledge
+- [27:30.250] that people have gained all of a sudden.
+- [27:32.290] We had a lot of problems with some of them.
+- [27:34.200] I said, "We've already got it from the Fed,
+- [27:37.300] right, from commerce, and from an executive order.
+- [27:40.980] You don't need it a fourth time."
+- [27:42.590] "Sir, we have to get it." That's amazing.
+- [27:46.930] But they knew their subject, though, didn't they, huh?
+- [27:51.490] And we helped them out.
+- [27:52.830] My first week in office, I signed an executive order
+- [27:55.400] to ban the creation of a CBDC in the United States.
+- [28:00.200] And very soon, I look forward to signing legislation
+- [28:02.730] that will codify and ban the --
+- [28:05.730] make it a permanent law, I'll put it in permanence.
+- [28:08.640] I'm also committed to signing landmark
+- [28:10.770] crypto market structural legislation this year
+- [28:13.250] to grow the industry.
+- [28:15.070] We're going to be growing it even more,
+- [28:16.820] more than people ever thought. It's a really hot industry.
+- [28:20.480] And for a little while, two nights ago,
+- [28:23.280] we were a little concerned
+- [28:25.400] because we were little short on votes,
+- [28:28.060] like I would say maybe we were about nine short.
+- [28:32.990] Nine short at 3 in the morning.
+- [28:35.050] We were about four short at 3:30 in the morning.
+- [28:40.500] And we were in good shape at 4 o'clock in the morning, right?
+- [28:44.400] But the people and few people have fought harder
+- [28:46.620] for the bill than --
+- [28:48.430] were signing than some of the people here today.
+- [28:51.640] You have been unbelievable. It's our White House A.I.
+- [28:56.260] and crypto czar, David Sacks, who has done such a great job.
+- [29:00.460] (applause)
+- [29:06.600] And I did his -- he has a show now, he's become a showman,
+- [29:11.370] but a couple of years ago,
+- [29:12.710] it's probably two years ago now in San Francisco,
+- [29:15.530] and I did his show, and I heard he's a very smart guy,
+- [29:18.760] and we had a great show.
+- [29:20.060] You've kept it going a lot longer, and you got --
+- [29:22.500] is that still your highest rated ever show?
+- [29:24.330] He knows what to say. He knows what to say.
+- [29:27.650] He had a rating that --
+- [29:28.970] he had millions and millions of people,
+- [29:31.060] and he said, "What's going on?" But we had a great show.
+- [29:34.000] And I said, "You know, that guy is really smart."
+- [29:35.650] I said, "If I get elected" -- I was running at that time --
+- [29:39.460] "if I got elected, we're going to bring him
+- [29:40.890] into government in some way."
+- [29:42.180] He's worth a fortune. He's made a lot of money.
+- [29:44.970] He's a very rich, he's very rich billionaire,
+- [29:48.160] but this is more important, isn't it?
+- [29:49.890] This is, me too, you know, it's like, doesn't matter.
+- [29:53.110] This is much, I know Howard
+- [29:54.640] and I talk about it all the time.
+- [29:56.290] Howard could go back to his wonderful brokerage firm,
+- [29:58.530] hire one or two people. And it's not the same as --
+- [30:02.660] it's not the same as what you're doing, right?
+- [30:04.800] The biggest -- we're doing the biggest deals in the world.
+- [30:06.790] Actually, the deal we're going now in tariffs is the biggest --
+- [30:11.220] when you add it up, the biggest deal ever made in history.
+- [30:15.410] It could be 1,000 IBMs.
+- [30:17.280] I mean, if you think of it, it's the biggest ever done.
+- [30:21.510] So, it's hard to go back to a brokerage firm
+- [30:23.560] and, you know, make a $79,000.00 commission
+- [30:27.020] on the sale of a stock, right?
+- [30:28.730] (laughter)
+- [30:30.070] That's true. But I want to ask David.
+- [30:32.610] So, David has been fantastic. He's done an incredible job.
+- [30:36.010] And I'd like to ask, David to come up, say a few words.
+- [30:38.630] Thank you very much.
+- [30:40.910] (applause)
+- [30:46.820] David Sacks: All right. Thank you, President Trump.
+- [30:48.400] It's a great, great honor to be here.
+- [30:49.980] And it's true that I never expected to work
+- [30:51.600] in government at all.
+- [30:52.820] And then everything changed after President Trump
+- [30:55.050] came on my podcast.
+- [30:56.260] And I, you know, I accepted this job as Crypto Czar
+- [30:59.210] because I thought it was a once
+- [31:00.660] in a lifetime opportunity to work for a president
+- [31:03.020] who really wants to get things done for the American people.
+- [31:05.530] And if anything, that's been an understatement.
+- [31:07.530] The first six months,
+- [31:08.760] this administration have been more successful
+- [31:11.420] than any administration in American history.
+- [31:13.210] What's been done --
+- [31:14.710] (applause)
+- [31:19.700] -- it's just been incredible.
+- [31:20.920] President Trump has worked at tech speed.
+- [31:23.690] We're used to working fast in Silicon Valley,
+- [31:25.300] but even this is fast for us in Silicon Valley,
+- [31:27.950] the speed at which you move, President Trump.
+- [31:29.610] It's really incredible.
+- [31:31.140] And now today, you have another historic legislative achievement
+- [31:35.120] that is a monumental step to fulfilling your promise
+- [31:37.380] to making the United States the crypto capital of the world.
+- [31:40.270] This Genius Act will unlock American dominance
+- [31:42.400] in the crypto industry
+- [31:43.660] by creating clear rules of the road.
+- [31:45.750] It will update archaic payment rails
+- [31:48.020] with a revolutionary new payment system,
+- [31:50.390] and it will extend U.S. dollar dominance,
+- [31:52.180] like you said, globally, by creating a digital dollar
+- [31:55.200] that people all over the world can use.
+- [31:56.780] And for every digital dollar in a crypto wallet,
+- [31:59.410] there'll be a traditional dollar in the U. S.
+- [32:01.030] bank account, which will create trillions of dollars of demand
+- [32:03.420] for U.S. Treasuries.
+- [32:04.670] So that is the power of this bill,
+- [32:06.590] is U.S dollar dominance.
+- [32:08.480] This is a huge promise made and promise
+- [32:10.030] kept by President Trump.
+- [32:11.590] And there's just a few other people I'd like to thank.
+- [32:13.550] First, my family for being here. Thank you.
+- [32:15.890] (applause)
+- [32:21.220] And Bo Hines, who President Trump mentions,
+- [32:23.790] the director of our crypto council,
+- [32:25.050] he really did the heavy lifting here.
+- [32:26.400] So, Bo, I just want to thank you again.
+- [32:28.350] (applause)
+- [32:31.480] And my Chief of Staff, Tracy Johnson as well,
+- [32:33.320] who also does the heavy lifting.
+- [32:35.190] (applause)
+- [32:37.850] And Bill Hagerty and French Hill
+- [32:41.060] and all the congressmen and senators
+- [32:42.380] who have already been mentioned by President Trump,
+- [32:43.960] so I'll save the time, but it's really been an honor
+- [32:45.600] to work with all of you. This was really a team effort.
+- [32:47.670] But most of all, I want to thank President Trump
+- [32:49.790] for accomplishing what nobody thought was possible.
+- [32:52.750] And it's true that just earlier this week,
+- [32:54.550] the media was reporting that this bill was dead.
+- [32:57.220] This bill was dead.
+- [32:58.500] And then the media didn't know one thing,
+- [33:00.490] that we had a secret weapon.
+- [33:02.030] We have a dealmaker in chief. And thanks to President Trump,
+- [33:05.440] he stepped in and saved this bill.
+- [33:07.490] And it's because of your vision,
+- [33:09.000] your leadership, your determination,
+- [33:10.500] and your skill that we're all here today.
+- [33:12.300] So, thank you very much, President Trump.
+- [33:15.360] (applause)
+- [33:22.410] The President: Is that Laura?
+- [33:24.560] Please come. Please come here. This is our superstar.
+- [33:27.700] She was the head of the Republican Party,
+- [33:31.170] and nobody complained about anything.
+- [33:34.510] We went on to great. This is Laura Trump,
+- [33:38.260] married to a young gentleman named Eric.
+- [33:40.920] They have beautiful two children,
+- [33:42.460] but she has been so good.
+- [33:43.770] She stepped into that position like it was nothing.
+- [33:46.540] That we want, and she said,
+- [33:47.900] "Dad, I'd like to go home right now
+- [33:49.970] to my beautiful husband and my son and daughter, right?"
+- [33:53.440] But you did a fantastic job.
+- [33:55.780] And you worked with a great gentleman, too.
+- [33:57.700] He's doing a fantastic job. But I just want to thank you.
+- [34:01.280] I just saw you standing back there.
+- [34:02.800] I wanted to bring her in. Thank you very much, Laura.
+- [34:05.040] Thank you.
+- [34:06.310] (applause)
+- [34:09.810] So, under the Trump administration,
+- [34:12.720] I mean, I just got back from Saudi Arabia,
+- [34:16.200] and we went to Qatar.
+- [34:18.070] We went to a number of countries.
+- [34:22.640] And I will tell you, the level of respect
+- [34:27.320] that this country has now is incredible.
+- [34:30.110] It's a UAE.
+- [34:31.530] I tell you what, we had a time there.
+- [34:33.830] But every leader said the same thing.
+- [34:36.320] They said, one year ago, your country was dead.
+- [34:39.290] And they'd say it that way.
+- [34:40.610] It was like, you know, I didn't know
+- [34:42.450] whether I was supposed to be happy or insulted.
+- [34:45.550] But the truth is, we were in deep trouble.
+- [34:48.340] But they said, one year ago, your country was dead,
+- [34:51.170] and today you have the hottest country anywhere in the world.
+- [34:53.620] And it's true. We have the hottest country in the world.
+- [34:56.100] We had a country where we were laughing stock
+- [34:58.010] with the borders, people pouring in.
+- [34:59.950] Can you imagine last month, in the month of June,
+- [35:03.660] actually, zero -- now, I don't even believe that --
+- [35:07.100] zero, because you have hundreds of thousands pouring in,
+- [35:10.190] and then all of a sudden it's zero,
+- [35:11.420] but they have it down as zero.
+- [35:12.820] And very liberal people take that particular toll.
+- [35:16.130] It's a liberal group, so they're not giving us any favors.
+- [35:19.410] It's zero people coming through our border.
+- [35:21.100] Can you imagine that?
+- [35:22.300] From literally hundreds of thousands
+- [35:24.770] and millions pouring in from all over the world.
+- [35:29.610] They came from all over the world.
+- [35:30.980] They come from prisons, jails.
+- [35:32.650] They came from mental institutions, gang members.
+- [35:36.050] There were gangs.
+- [35:37.630] They came from all over the place, from every country.
+- [35:40.000] They came the Congo and Africa, a lot from the Congo.
+- [35:43.570] They came South America; a lot came from Venezuela.
+- [35:47.110] They emptied their jails into our country.
+- [35:49.220] Can you imagine?
+- [35:50.600] They allowed that, emptied their jails into our county,
+- [35:53.210] and they let them walk right into our country?
+- [35:54.920] Like perfect. 11,888 committed murder.
+- [36:01.100] 50 percent committed more than one person.
+- [36:05.000] They murdered more than one person, 50 percent of 11,888.
+- [36:10.550] And we had murderers, and we're getting them out.
+- [36:12.850] And Tom Homan and Christie are doing a great job.
+- [36:16.270] That Tom Homen, I'll tell you, is he central casting or what?
+- [36:20.040] And he takes abuse, but they just keep fighting,
+- [36:22.890] and they're winning.
+- [36:24.240] And we're winning in the courts, and we'll winning everywhere.
+- [36:27.140] But we've got the hottest country in the world,
+- [36:30.240] and you're a big part of it.
+- [36:31.800] So, the Golden Age of America is upon us,
+- [36:34.250] and with today's signing,
+- [36:36.010] the future of crypto and the crypto industry,
+- [36:38.980] the U.S. dollar working together because they really are
+- [36:42.230] hand-in-hand is going to be stronger and bigger
+- [36:45.420] and better than ever before.
+- [36:46.880] And I just want to thank everybody.
+- [36:48.320] Some tremendous people in this room.
+- [36:50.610] And maybe when I sign, I'll ask some of our great senators
+- [36:54.010] and congressmen to come on up.
+- [36:56.060] Some of the top crypto guys, please come on up
+- [36:58.580] because you guys work very hard at this.
+- [37:00.990] And we'll sign this, and we'll get on to the next battle,
+- [37:04.640] and we'll win.
+- [37:05.870] But we're winning all over the world right now.
+- [37:08.070] It's not even close.
+- [37:09.330] Not even close, and we're going to keep it going.
+- [37:11.280] Thank you, everybody, very much. Thank you.
+- [37:14.610] (applause)
+- [37:24.290] The President: Hello, fellas.
+- [37:26.600] (The President signs the
+- [37:43.550] document).
+- [37:45.050] This is not an auto pen, by the way.
+- [37:47.370] (laughter)
+- [37:49.410] Which is a big scandal. If that were a Republican,
+- [37:53.460] it would really be a big scandal,
+- [37:55.550] but it is one of the great scandals of our time.
+- [37:58.170] Thank you very much, everybody.
+- [38:00.310] (applause)

@@ -1,0 +1,441 @@
+<!-- source: https://www.youtube.com/watch?v=0GrZfxzt2Jg -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 0GrZfxzt2Jg -->
+<!-- date_published: 2025-04-07T16:00:30+00:00 -->
+<!-- date_accessed: 2026-06-02T02:52:08.917523+00:00 -->
+
+# Transcript: President Trump Participates in a Visit with the 2024 World Series Champions the Los Angeles Dodgers
+
+- [00:01.180] [Music]
+- [00:06.080] Ladies and gentlemen, the President of
+- [00:08.000] the United States, accompanied by Mark
+- [00:09.920] Walter, owner and chairman of the Los
+- [00:11.759] Angeles Dodgers.
+- [00:13.700] [Music]
+- [00:34.000] That's a good-looking group.
+- [00:37.040] I see some people oftentimes like
+- [00:39.360] politicians behind me. It's not so
+- [00:41.559] pretty. That is a very good-looking
+- [00:44.399] group of people. And I'm thrilled to
+- [00:47.120] welcome to the White House and very
+- [00:50.160] special people, actually, very talented
+- [00:52.640] people, the 2024 World Series champion,
+- [00:56.399] the Los Angeles
+- [01:02.600] Dodgers. And I want to congratulate you
+- [01:05.119] on a legendary season. And I watched it
+- [01:07.520] very closely. Uh some of those teams
+- [01:10.400] were home teams and uh you did a big
+- [01:14.240] number. You're really uh amazing how how
+- [01:16.880] it all came out and how it all ended.
+- [01:19.360] With us today is Dodgers owner and
+- [01:21.600] chairman Mark Walter. Thank you very
+- [01:23.920] much Mark.
+- [01:26.600] Congratulations. President Stan Casten,
+- [01:29.759] one of the greatest managers of the
+- [01:32.799] really ever to wear the Darger Blue.
+- [01:34.960] Dave Roberts, what a time he had.
+- [01:46.399] Thank you, sir. That's great. What a
+- [01:49.159] job. I think he would have lasted even
+- [01:51.840] with George Dbrunner, right? I love
+- [01:54.159] George. He was very quick. He would uh
+- [01:57.680] you lose two games and you were fired,
+- [01:59.880] right? Great job, Dave. Also want to
+- [02:03.840] recognize Secretary of Agriculture. We
+- [02:06.159] have some great people, Brooke Rollins,
+- [02:08.560] who, you know, when I came to office,
+- [02:10.959] they said, "The eggs are very gone
+- [02:13.360] through the roof. Eggs." I said, "What
+- [02:15.599] the hell are they talking about?" I was
+- [02:16.959] there for four days and they were
+- [02:18.319] blaming me for eggs. And they had
+- [02:19.760] they've gone up like six times or
+- [02:21.280] something. Some record number you
+- [02:23.200] couldn't get them. And I gave it to
+- [02:24.959] Brooke and I just saw the other day
+- [02:26.800] they're down
+- [02:28.360] 73%. Right. That's pretty
+- [02:32.599] good. And the press doesn't mention
+- [02:34.800] that. Nobody talks about it, so don't
+- [02:36.800] but I know. Secretary of Labor Lori
+- [02:40.239] Chavez Durimemer. Thank you.
+- [02:43.720] Congratulations. The chief of staff
+- [02:45.760] Susie Wilds, who's a big Dodger fan, by
+- [02:48.080] the way, Susie, thank
+- [02:50.120] you. And uh we have also representatives
+- [02:54.080] Kevin Kylie, Congressman Kevin Kylie,
+- [02:58.319] Young Kim, thank you. Congratulations.
+- [03:01.599] Great job. Jay Albernoli,
+- [03:05.000] Jay, thanks. Jay, Nanette
+- [03:10.280] Baragan. Nette, where's the Hi, Nette.
+- [03:12.959] Oh, look at that. Huh? What nice
+- [03:15.239] outfit. One of my favorite people. Gus
+- [03:18.280] Bellaracus, congressman. Hi. Yes.
+- [03:22.400] Addison McDow. New to the Congress, but
+- [03:25.040] doing a great job. Thank you, Addison. A
+- [03:28.159] real good baseball player and a friend
+- [03:29.840] of mine, Roger Williams. Great job.
+- [03:33.920] and another new congressman, but he's
+- [03:36.400] been there a long time in a in a mental
+- [03:38.400] sense because he has really done a job
+- [03:40.879] and he knows Congress very well. He was
+- [03:43.040] with me for seven years. Brian Jack.
+- [03:46.959] Brian, congratulations,
+- [03:49.480] Brian. And others, we have a couple of
+- [03:51.920] senators here. I just don't particularly
+- [03:54.400] like them, so I won't introduce.
+- [03:58.480] Over the course of this amazing season,
+- [04:00.480] the members of this team
+- [04:12.159] I didn't think it was that big a deal.
+- [04:14.519] Actually, Washington, over the course of
+- [04:17.440] this amazing season, the members of this
+- [04:19.519] team gave us some of the most incredible
+- [04:21.919] performances ever seen on the baseball
+- [04:24.280] diamond. In all of baseball history,
+- [04:26.880] only six players have ever hit 40 home
+- [04:29.199] runs and stolen 40 bases in a single
+- [04:31.600] season. And an elite group known as the
+- [04:34.400] 4040 club. It's a 4040 club and very few
+- [04:37.360] people make it. But unanimous National
+- [04:40.240] League
+- [04:41.240] MVP Show
+- [04:47.960] Otani. Come on.
+- [04:54.680] [Applause]
+- [04:56.560] looks like a movie
+- [04:58.199] star. This He's got a good future, I'm
+- [05:00.800] telling you. He shattered all of those
+- [05:03.840] records last year. Think of it, all of
+- [05:05.919] them. And he did something even more
+- [05:08.000] because he became the first ever member
+- [05:10.639] of the 5050 club. So 4040 is
+- [05:14.600] top. Hitting 54 home runs and 59 steals
+- [05:18.800] and accomplished an accomplishment
+- [05:20.960] unparalleled in 149 years of Major
+- [05:23.840] League Baseball. Think of that. That's
+- [05:25.759] just incredible. Even more incredibly,
+- [05:28.320] Show clinched that achievement in what
+- [05:30.960] some have called the greatest game ever.
+- [05:33.600] Was it that good of a game? Huh? That
+- [05:36.639] was a pretty good game actually, right?
+- [05:39.199] Is he good? It's only getting better.
+- [05:42.080] And he's getting better. Getting better.
+- [05:43.600] That's scary for a lot of people, huh?
+- [05:46.320] Even more incredibly, show clinched the
+- [05:48.560] achievement. I mean, it really was. And
+- [05:50.960] at a time that at an age that nobody
+- [05:54.160] ever thought was possible on September
+- [05:56.000] 19th, 2024, he did the unthinkable by
+- [05:59.280] going six for six. This is a pretty amaz
+- [06:01.840] I didn't realize it was that good. I saw
+- [06:03.919] that game. Six for six against the
+- [06:05.919] Marlins with three homers, 10 RBI's, and
+- [06:09.440] a pair of stolen bases. Other than that,
+- [06:11.440] it was not a great
+- [06:13.120] [Music]
+- [06:15.479] game. How many people have gone six for
+- [06:18.160] six just period, right? Not very much,
+- [06:20.319] right? Maybe a dozen. Maybe a dozen.
+- [06:22.680] Amazing. As you know, the Dodgers were
+- [06:25.039] down a lot of talent on the mound last
+- [06:27.919] season due to injury. The resilient
+- [06:30.160] group used 40 different pitchers, the
+- [06:32.319] most ever by an eventual World Series
+- [06:35.120] championship team. They had to go and
+- [06:37.280] get them. I don't know how they got them
+- [06:38.800] and where they got them, but they got
+- [06:40.160] them because they won. I know you
+- [06:42.880] especially missed the heart and soul of
+- [06:45.039] the pitching staff, Clayton Kershaw, who
+- [06:47.680] is
+- [06:48.520] really fantastic.
+- [06:53.330] [Applause]
+- [06:57.600] Great.
+- [06:59.440] These are the best looking people I've
+- [07:01.039] ever seen. It's incredible. But, uh,
+- [07:04.560] Clayton has been unbelievable. And, uh,
+- [07:07.199] if you look, uh, you look at his records
+- [07:10.000] and you look at the stamina, the
+- [07:12.000] endurance that he's had, and we're
+- [07:13.840] really happy to have him. I'm glad to
+- [07:15.280] meet him. I've watched him for a long
+- [07:16.639] time. He's a young guy yet, but I've
+- [07:18.240] watched You are a young guy, but I've
+- [07:20.160] watched you for a long time. So,
+- [07:21.759] congratulations. Amazing. All year the
+- [07:24.720] Dodgers faced down adversity. You
+- [07:26.639] entered the playoffs battered and
+- [07:28.160] bruised but not broken. When you ran out
+- [07:31.360] the healthy arms, you ran out of really
+- [07:34.560] healthy. They had great arms, but they
+- [07:36.560] ran out. It's it's called sports. It's
+- [07:39.120] called baseball in particular and
+- [07:41.199] pitchers, I guess you could say, in
+- [07:42.960] really particular. But the starting
+- [07:45.280] rotation during the National League
+- [07:46.880] Division series, this scrappy Dodgers
+- [07:48.960] bullpen shut out the Padres's saved the
+- [07:51.599] season and forced game five. Then key
+- [07:54.800] players battled back from mid-season
+- [07:56.879] injuries to help deliver the National
+- [07:58.639] League pennant, including superstars
+- [08:01.360] Mookie Bets. Oh, is he
+- [08:03.860] [Music]
+- [08:06.360] [Applause]
+- [08:11.000] good? Good looking.
+- [08:18.560] Mookie. That guy can play, can he?
+- [08:22.400] I mean, unbelievable. Uh, you really uh
+- [08:26.160] Mookie is I've been watching it. I don't
+- [08:28.000] want to say I watched him when he was on
+- [08:29.560] Boston, but I did. I didn't think I
+- [08:32.959] didn't think that was a particularly
+- [08:34.159] good trade when they made it, and I
+- [08:36.479] happen to be right. And Max Muny, I want
+- [08:39.760] to congratulate Max.
+- [08:41.880] Max.
+- [08:43.399] Matt, come here.
+- [08:48.279] Matt, his arms are very strong when I
+- [08:51.040] touch him. I'm used to shaking
+- [08:53.440] politicians and hitting their armor like
+- [08:56.839] jello- like and now it's like steel all
+- [08:59.920] these guys. But Max, that's great. And
+- [09:03.200] uh also Yoshi Yamamoto. Yoshi. Yoshi.
+- [09:10.920] [Applause]
+- [09:18.160] Wow, what great
+- [09:19.480] athletes. And of course, series MVP
+- [09:23.440] Tommy Edmund. That was an MPV VP
+- [09:26.870] [Applause]
+- [09:32.200] series.
+- [09:34.120] Good guys, right? That's pretty good.
+- [09:38.480] That's a lot of talent you had to beat
+- [09:40.080] out there for the MVP. But they all had
+- [09:43.200] an incredible Tommy was 407 with 11
+- [09:46.360] RBI's in six games. That's not bad,
+- [09:49.000] right? That's not bad. Good job. When
+- [09:52.959] when it counted, too. Next game, the
+- [09:55.519] Blockbuster World Series against another
+- [09:57.760] iconic team known as the New York
+- [09:59.760] Yankees. I love the Yankees. I George
+- [10:02.640] was a great friend of mine. He had very
+- [10:04.560] few friends, but he
+- [10:07.160] was and if you want to spend work, sit
+- [10:10.480] for nine innings with a game watching
+- [10:13.040] the Yankees play with George. You were
+- [10:15.680] exhausted by the end of the game. It was
+- [10:17.519] very It was actually hard work, but we
+- [10:19.519] love George and they're doing a good job
+- [10:22.000] and they're doing well this season and
+- [10:23.760] you're already nine and two and so
+- [10:26.000] you're doing a good job. Maybe you see
+- [10:27.519] the same thing over again. In game one
+- [10:29.839] of the World Series, Freddy Freeman on a
+- [10:32.480] sprained
+- [10:34.279] ankle, he's a great player, with a
+- [10:36.480] broken finger and a broken rib,
+- [10:38.079] channeled Kirk Gibson's legendary
+- [10:39.920] walk-off home run in game one of the
+- [10:43.000] 1988 World Series. That was a very that
+- [10:46.079] was a game that pretty much everybody
+- [10:48.320] remembers. He could hardly swing the
+- [10:49.760] bat, but he did. He swung it one time,
+- [10:51.600] and it was a it was a shot. On the first
+- [10:54.320] pitch Freddy saw in the bottom of the
+- [10:56.240] tenth, he hit an unforgettable walk-off
+- [10:58.880] grand slam home run, the first in World
+- [11:01.760] Series history. It's amazing. The
+- [11:03.600] Dodgers rode the momentum to win two of
+- [11:06.240] their next three games, placing them on
+- [11:08.160] the verge of baseball immortality in a
+- [11:10.240] dramatic game five, down five runs on
+- [11:13.440] the top of the fifth.
+- [11:17.040] That was a strange inning. I'll tell for
+- [11:20.000] those Yankee fans, but I'm not saying I
+- [11:22.240] was a Yankee fan because I have I love
+- [11:24.880] these people behind me. But down five
+- [11:27.600] runs in the top of the fifth with two
+- [11:29.519] outs and the bases loaded, the Dodgers
+- [11:32.160] gave us one of the grittiest halfining
+- [11:34.720] World Series events and showings that
+- [11:37.680] anybody's ever seen. Muki started the
+- [11:40.320] rally by beating out a routine ground
+- [11:42.959] ball to first, which he's fast as hell.
+- [11:46.320] I don't know how the hell
+- [11:48.360] you having that speed is a Isn't that a
+- [11:51.040] great thing? I played baseball, but I
+- [11:52.640] was sort of
+- [11:54.440] slow. I wasn't fast driving in the
+- [11:58.760] phenomenal KK. Hernand is Where's KK?
+- [12:05.770] [Applause]
+- [12:11.120] It's a hell of a group.
+- [12:14.959] Then Freddy drove in two more runs and
+- [12:18.480] Teosscar Hernandez drove in another
+- [12:21.440] couple of
+- [12:27.880] runs. That's a
+- [12:29.959] group. Uh, Tay Oscar. So, you're doing
+- [12:34.720] well this season, too? A little bit.
+- [12:36.639] Yes, that's what I heard. That's what I
+- [12:39.040] heard after a few dominant innings from
+- [12:41.519] Blake Training.
+- [12:44.000] Where's Blake?
+- [12:46.079] Dom. I heard dominant, right?
+- [12:52.220] [Applause]
+- [12:54.120] That's great job, Blake. And the team
+- [12:56.720] was crowned the World Series champion
+- [12:58.320] against a great team. The Yankees are a
+- [13:00.000] great team. and always a great franchise
+- [13:01.920] and I guess I don't know like 28 or
+- [13:04.800] something. They've won a lot probably
+- [13:06.959] maybe more than any team in history
+- [13:09.000] overall and uh you might be catching
+- [13:12.399] them pretty soon if you keep going. You
+- [13:14.079] got little ways to go. I guess the
+- [13:16.399] scouting report at the start of the
+- [13:18.399] series said that the Dodgers could win
+- [13:21.519] by focusing on the fundamentals and
+- [13:23.360] that's exactly what they did. You showed
+- [13:25.760] America that it's not about individual
+- [13:27.680] glory. It's about the team digging deep
+- [13:29.760] and sprinting right through first base.
+- [13:32.560] And you did that all the time. I watch I
+- [13:35.120] watch some games. I love baseball. I
+- [13:37.040] don't get to watch as much as I'd like,
+- [13:38.800] but you always see a spirit on this
+- [13:40.480] team. I think a lot of that has to do
+- [13:42.079] with the ownership and the management,
+- [13:44.040] frankly. But you uh you see a spirit on
+- [13:46.880] the Dodgers that you don't see with a
+- [13:48.480] lot of teams. A lot of teams I turn on,
+- [13:50.160] I say, "Oh, let's forget it." When I
+- [13:52.959] turn on the Dodgers, I like to watch the
+- [13:54.800] team. And now that I've gotten to meet
+- [13:56.720] these guys personally, uh, I'll like it
+- [13:59.440] even more. I'm going to like it even
+- [14:00.959] more. And you're off to a great start.
+- [14:02.560] After seeing how successfully you've
+- [14:04.720] begun the season, I can tell you that
+- [14:06.880] you can plan on being back here. I hope
+- [14:08.880] you're going to be back here next year.
+- [14:10.320] I don't want to give you
+- [14:12.199] too I don't want to give you too much
+- [14:14.800] because we want to have a little
+- [14:16.800] suspense for next year, but I will tell
+- [14:18.399] you, uh, we're going to go down. We're
+- [14:20.320] going to do something we don't do
+- [14:21.920] generally. We're going to run them down
+- [14:23.519] really fast. They have a game today. Do
+- [14:25.040] you have a game today or tonight? We're
+- [14:27.120] going to run them down to the Oval
+- [14:28.639] Office and we're going to show them the
+- [14:31.120] fabled Oval Office. And there's nothing
+- [14:33.279] like it. And this wonderful owner, one
+- [14:35.040] of the greatest owners in sports, by the
+- [14:36.800] way, from everything I've heard, one of
+- [14:39.680] the greatest owners in sports along with
+- [14:41.600] your other compatriots, right fellas?
+- [14:44.399] It's a great team of owners. And that's
+- [14:46.399] very important. But we're going to He
+- [14:47.920] said they'd love it, and I think he'd
+- [14:49.519] like to do it himself. So, we're going
+- [14:50.880] to We'll get out of here, and we will
+- [14:52.880] run. We'll sprint down and we'll see the
+- [14:55.519] Oval Office, which is really something
+- [14:57.120] to see. You
+- [14:59.639] know, it's funny. People come from all
+- [15:03.040] over, the biggest people, the richest
+- [15:05.120] people, the most powerful people, and
+- [15:06.880] they come and they go into the Oval
+- [15:09.360] Office and they just stare. Oh, wow.
+- [15:13.120] That's some They all have beautiful
+- [15:14.480] offices. They have offices that are the
+- [15:16.560] best in the world in many cases, but
+- [15:18.720] they love the Oval Office. So, with all
+- [15:20.800] of that, I'd like to now introduce you
+- [15:23.279] to uh the Dodgers chairman, Mark Walter,
+- [15:26.480] to say a few words, and then we're going
+- [15:28.320] to follow that up with Clayton, is going
+- [15:30.480] to say a couple of things. And that's a
+- [15:32.720] great representative of a great team.
+- [15:34.720] Thank you very much, Mark. Thank you.
+- [15:44.079] Well, thank you very much. Um, we're
+- [15:46.880] very pleased to participate in the uh
+- [15:50.959] tradition of bringing champions to the
+- [15:54.079] White
+- [15:54.920] House. Last season was an incredible
+- [15:57.440] season we won the World Series.
+- [16:01.240] [Music]
+- [16:02.639] Second time in 20 and since 2020 and
+- [16:06.560] only eight times in our seasons or our u
+- [16:11.600] history.
+- [16:13.839] We played in front of almost four
+- [16:15.440] million fans and we had many millions
+- [16:18.000] more on
+- [16:20.680] television. Our global following uh has
+- [16:24.759] soared and not only from show Otani but
+- [16:29.600] also from Mookie Betts, Freddy Freeman,
+- [16:33.600] Clayton Kershaw and many many
+- [16:36.120] more. Alongside this onfield success, we
+- [16:40.240] have been deeply immersed in our
+- [16:42.040] community. Our players and managers have
+- [16:46.000] supported our uh have each had f
+- [16:49.399] foundations and support for
+- [16:53.079] communities. Our trust last year has
+- [16:56.800] committed hund00 million to help Chicago
+- [16:59.440] or LA
+- [17:02.360] fire. And so on behalf of the
+- [17:04.480] organization, I want to thank you. Thank
+- [17:06.480] you very much.
+- [17:15.679] Okay. Wow. This is a this is an
+- [17:18.160] incredible honor for me and to be to
+- [17:20.880] stand here today representing the Los
+- [17:22.559] Angeles Dodgers and this group of staff
+- [17:25.120] and players behind me today. Uh, the
+- [17:27.760] 2024 Los Angeles Dodgers season is one
+- [17:30.400] that will go down the history books.
+- [17:32.640] Always holding a special place in the
+- [17:34.160] hearts of myself and those there with me
+- [17:36.880] as well as millions of Dodger fans
+- [17:38.960] around the
+- [17:39.880] world. This organization exemplifies
+- [17:42.400] what it means to come together as one
+- [17:44.960] for a greater purpose and to
+- [17:46.400] representing represent something so much
+- [17:48.320] bigger than themselves.
+- [17:51.840] The selflessness and humility that each
+- [17:53.679] one of these players and staff have
+- [17:55.200] shown over the last year is truly an
+- [17:57.799] inspiration. They have constantly played
+- [18:00.080] hurt, switch positions, and taken the
+- [18:02.400] ball to put the team
+- [18:04.360] first. Uh as a spectator for our
+- [18:07.280] championship run last year, I was in awe
+- [18:09.200] of this group. Their unwavering
+- [18:11.440] confidence coupled with the selfless
+- [18:13.280] pursuit for team excellence was an
+- [18:15.880] inspiration. That is why I'm so grateful
+- [18:18.080] to get to speak today on their behalf.
+- [18:20.080] as I know none of them would say this
+- [18:21.679] about
+- [18:23.080] themselves. Moving forward, I hope the
+- [18:25.200] 20 24 Dodgers can serve as an
+- [18:27.039] inspiration to many like they were to
+- [18:28.480] me. Not just in sports, but in life,
+- [18:31.600] remembering to put others before
+- [18:33.000] ourselves. It moves moves a team and a
+- [18:35.919] society forward. So, thank you for
+- [18:38.240] allowing me to speak today because the
+- [18:40.320] story of the 2024 World Series champion
+- [18:42.640] Los Angeles Dodgers is a true joy to get
+- [18:45.280] to tell and it's because of the
+- [18:47.120] extraordinary people that are behind me
+- [18:49.039] and their incredible pursuit of
+- [18:50.480] excellence. Thank
+- [18:54.039] you. And
+- [18:56.520] uh Mr. President, we have a gift for you
+- [18:59.200] as well.
+- [19:02.160] Oh, that's like
+- [19:12.880] Oh, they're going
+- [19:27.720] to
+- [19:29.559] two. Thank
+- [19:32.679] you.
+- [19:33.960] [Applause]
+- [19:41.640] [Music]
+- [19:48.200] Yeah. All right.

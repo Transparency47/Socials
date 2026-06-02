@@ -1,0 +1,108 @@
+<!-- source: https://www.youtube.com/watch?v=opWofJghNpM -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: opWofJghNpM -->
+<!-- date_published: 2025-11-13T21:36:58+00:00 -->
+<!-- date_accessed: 2026-06-02T01:10:28.796271+00:00 -->
+
+# Transcript: First Lady Melania Trump Announces Executive Order on Fostering the Future
+
+- [00:00.000] Welcome to the White House.
+- [00:03.160] It is truly inspiring to see everyone
+- [00:05.720] gather here together
+- [00:07.680] united in support of this remarkable
+- [00:10.200] initiative and community.
+- [00:12.960] As I stand here and observe the
+- [00:15.000] audience, I recognize the vital
+- [00:17.360] importance of each one of you
+- [00:21.920] to this mission
+- [00:23.840] to our future generations.
+- [00:27.320] In particular, I would like to thank the
+- [00:29.600] cabinet secretaries, Congress members,
+- [00:33.000] scholarship donors, and various
+- [00:35.360] organizations for their unending
+- [00:38.840] advocacy.
+- [00:41.200] A special thank you to my husband for
+- [00:43.840] his enduring commitment
+- [00:46.000] to fostering the future.
+- [00:48.320] The president has prioritized America's
+- [00:51.000] foster care children and shortly he will
+- [00:54.120] sign our fostering the future executive
+- [00:57.320] order.
+- [00:59.640] Too many people from foster care
+- [01:01.920] community end up homeless
+- [01:04.800] in danger on America's streets.
+- [01:08.720] It was 2021
+- [01:10.880] when I developed the idea to establish
+- [01:13.800] an impactful platform with an important
+- [01:16.960] mission
+- [01:18.320] to provide individuals from the foster
+- [01:20.680] care community the ability to secure
+- [01:24.560] an entry-level job position
+- [01:27.320] and in turn financial independence.
+- [01:32.120] Fostering the future, a B Best
+- [01:34.280] initiative, provides individuals from
+- [01:37.280] the foster care community with
+- [01:39.320] technology-based scholarships to attend
+- [01:42.960] colleges and universities throughout
+- [01:45.760] America.
+- [01:48.000] Fostering the future sets these
+- [01:49.760] individuals on their career paths,
+- [01:52.720] but more significantly
+- [01:54.960] it equips each scholarship recipient
+- [01:58.120] with a fundamental foundation of
+- [02:00.680] knowledge
+- [02:01.960] that will endure throughout their
+- [02:04.000] lifetimes.
+- [02:06.720] Permanency for those who embody the
+- [02:10.200] fleeting.
+- [02:12.720] I applaud the American universities that
+- [02:15.160] have joined my mission, institutions
+- [02:17.880] like Vanderbilt University, University
+- [02:20.880] of Miami, and Villanova University.
+- [02:25.160] Following graduation, scholarship
+- [02:27.160] recipients from my program are prepared
+- [02:30.080] to enter the work workforce and
+- [02:32.600] ultimately become leading executives.
+- [02:37.320] Predictably, they will manage thousands
+- [02:39.600] of employees and generate significant
+- [02:42.440] value for American communities
+- [02:45.360] through job creation, access to health
+- [02:48.000] care, food security, and other
+- [02:52.000] societal benefits.
+- [02:55.560] This executive order, Fostering the
+- [02:58.400] Future for American Children and
+- [03:00.760] Families,
+- [03:02.160] gives me tremendous pride.
+- [03:04.800] It is both empathetic and strategic.
+- [03:09.200] It will certainly be impactful.
+- [03:12.880] It aims to establish a comprehensive
+- [03:15.200] network connecting federal departments
+- [03:18.000] and agencies, private of private sectors
+- [03:21.160] businesses, higher higher learning
+- [03:24.000] institutions, and charitable
+- [03:26.160] organizations.
+- [03:27.920] This will create new educational and
+- [03:30.600] employment opportunities countrywide.
+- [03:34.880] Our faith-based organizations will
+- [03:37.240] continue playing a vital and
+- [03:39.960] consequential role.
+- [03:43.320] My hope, of course, is that this level
+- [03:45.800] of coordinated collaboration will
+- [03:48.040] sustain.
+- [03:49.600] But today, I call on leadership from
+- [03:52.520] these various organizations, including
+- [03:55.440] the private sector, to join my effort,
+- [03:59.000] rise above the ease of inaction.
+- [04:03.520] I predict this this small spark today
+- [04:06.600] will ignite a profound and lasting
+- [04:08.880] nationwide movement.
+- [04:10.960] Our united resolve will foster a
+- [04:13.720] thriving future filled with compassion
+- [04:17.120] and innovation.
+- [04:19.519] Together, we will illuminate the pathway
+- [04:23.480] for today's foster children
+- [04:25.840] to become tomorrow's builders.
+- [04:28.680] And tomorrow's builders will foster the
+- [04:31.880] future of America's legacy. Thank you.
+- [04:36.413] >> [applause]

@@ -1,0 +1,244 @@
+<!-- source: https://www.youtube.com/watch?v=yY76b8-fM-Q -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: yY76b8-fM-Q -->
+<!-- date_published: 2025-11-13T03:27:50+00:00 -->
+<!-- date_accessed: 2026-06-02T02:41:39.795235+00:00 -->
+
+# Transcript: President Trump Signs Senate Amendment to H.R. 5371
+
+- [00:00.750] The President: It's very important what has taken place,
+- [00:04.070] because we've seen how good government can be
+- [00:08.210] and how bad government can be
+- [00:10.250] if people don't know what they're doing.
+- [00:12.570] For the past 43 days, Democrats in Congress
+- [00:15.190] shut down the government of the United States
+- [00:17.530] in an attempt to extort American taxpayers
+- [00:20.740] for hundreds of billions of dollars for illegal aliens
+- [00:23.820] and people that came into our country illegally from gangs,
+- [00:28.920] from prisons, from mental institutions.
+- [00:30.970] They wanted to pay them $1.5 trillion,
+- [00:34.250] which would've really hurt our healthcare businesses
+- [00:38.320] and our recipients at levels never seen before.
+- [00:42.620] Today, we're sending a clear message
+- [00:44.470] that we will never give into extortion,
+- [00:46.820] 'cause that's what it was. They tried to extort.
+- [00:49.610] The Democrats tried to extort our country.
+- [00:52.770] In just a moment, I'll sign a bill exactly like we asked
+- [00:55.800] Democrats to send us all along, many days ago.
+- [01:00.660] This cost the country $1.5 trillion,
+- [01:03.650] this little excursion that they took us on.
+- [01:07.250] Republicans never wanted a shutdown
+- [01:09.530] and voted 15 times for a clean continuation of funding.
+- [01:14.250] There's never been a time when one or the other party
+- [01:18.100] ever didn't sign a continuation.
+- [01:21.490] It's just a continuation. Not a big deal.
+- [01:23.530] "It's a continuation and we'll talk later."
+- [01:26.640] Yet, the extremists in the other party
+- [01:28.750] insisted on creating the longest government shutdown
+- [01:32.310] in American history,
+- [01:33.920] and they did it purely for political reasons.
+- [01:36.040] I want to thank Speaker Mike Johnson,
+- [01:39.110] Senator Majority leader John Thune,
+- [01:41.010] as well as House Majority Leader,
+- [01:42.600] Steve Scalise, Majority Whip, Tom Emmer,
+- [01:45.690] and numerous other great Republican leaders
+- [01:48.530] and congressmen and senators who were here,
+- [01:51.350] who frankly, spent a long time in Washington
+- [01:53.990] getting this thing to go away.
+- [01:56.120] I also want to thank the broad coalition of Americans
+- [01:59.130] that stood with us in this fight to reopen government,
+- [02:02.550] including the Teamsters,
+- [02:04.880] the American Federation of Government Employees,
+- [02:07.660] the Fraternal Order of Police,
+- [02:09.850] and that's the National Small Business Association,
+- [02:13.540] the American Farm Bureau,
+- [02:14.910] the American Trucking Association.
+- [02:16.900] These are all incredible patriots.
+- [02:19.760] The Airlines for America, the Allied Pilots Association,
+- [02:23.250] the National Air Traffic Controllers Association,
+- [02:25.970] and many of these unions and non-unions.
+- [02:29.370] Over the past seven weeks,
+- [02:30.620] the Democrats' shutdown has inflicted massive harm.
+- [02:34.670] They caused 20,000 flights to be canceled or delayed.
+- [02:38.440] They departed so many times so late.
+- [02:42.560] People were hurt so badly.
+- [02:44.890] Nobody's ever seen anything like this one.
+- [02:47.080] This was a no-brainer. This was an easy extension,
+- [02:51.260] but they didn't want to do it the easy way.
+- [02:52.950] They had to do it the hard way,
+- [02:54.190] and they look very bad, the Democrats do.
+- [02:56.820] They deprived more than one million government
+- [02:59.360] from their paychecks
+- [03:00.590] and cut off food stamp benefits for millions
+- [03:03.140] and millions more Americans in need.
+- [03:05.630] They caused tens of thousands of federal contractors
+- [03:08.840] and small businesses to go unpaid.
+- [03:11.420] And the total effect of the damage here,
+- [03:14.200] antics caused, will take weeks
+- [03:16.490] and probably months to really calculate accurately,
+- [03:20.220] including the serious harm that they did to our economy,
+- [03:22.830] and to people and to families.
+- [03:24.810] So I just want to tell the American people,
+- [03:28.160] you should not forget this.
+- [03:29.370] When we come up to midterms and other things,
+- [03:31.520] don't forget what they've done to our country.
+- [03:33.350] I also want to call for a termination to the filibuster
+- [03:38.270] so that this can never happen again.
+- [03:40.660] If we had the filibuster terminated,
+- [03:42.610] this would never happen again.
+- [03:44.510] And don't forget, we have another date coming up
+- [03:46.660] in the not-too-distant future.
+- [03:48.050] We can never let this happen again.
+- [03:50.200] And we should be able to pass really great legislation.
+- [03:54.090] So I say terminate the filibuster,
+- [03:56.390] because by the way,
+- [03:57.720] the Democrats will do it immediately
+- [03:59.780] if they ever assumed office, which hopefully they won't.
+- [04:03.950] Today, we had the highest stock market price
+- [04:06.600] ever in all of the different markets.
+- [04:10.180] We set a record.
+- [04:12.230] It's the 48th time in the nine months
+- [04:14.810] that I've been in office that we had this record set.
+- [04:17.830] So think of that, 48th times we had a record set,
+- [04:22.570] but today is the highest of them all.
+- [04:24.100] We're going to break new grounds.
+- [04:27.290] I have with us not only the great political leaders,
+- [04:30.370] but the great business leaders of our country.
+- [04:32.380] They're standing right behind me,
+- [04:34.030] and really, alongside of me.
+- [04:36.390] And if we would've told them a year ago
+- [04:38.660] that we'd be having stock prices this high, none of them…
+- [04:41.680] In fact, I just asked them that question.
+- [04:43.770] None of them would've believed it.
+- [04:45.750] And that enures to jobs, and very importantly,
+- [04:48.990] 401 (k)s, which have also set a record today.
+- [04:52.280] A record high for the people that have 401 (k)s's.
+- [04:56.390] And also, I want to thank Walmart
+- [04:58.050] because they came up with a fantastic study.
+- [05:02.180] It was the cost of Thanksgiving coming up
+- [05:05.650] and the cost of Thanksgiving from a year ago
+- [05:08.530] under Sleepy Jill Biden.
+- [05:10.560] And we're 25 percent lower this year
+- [05:13.580] than we were a year ago,
+- [05:15.390] and it's a very inclusive report.
+- [05:17.520] So I want to thank Walmart. They've done it for many years,
+- [05:20.000] but we believe in that and we believe in that company.
+- [05:23.970] I want to also thank the eight Senate Democrats
+- [05:26.510] who finally did the right thing in voting to end this craziness,
+- [05:30.820] this madness. But unfortunately,
+- [05:32.500] the vast majority of congressional Democrats
+- [05:35.780] were happy for millions of Americans to suffer.
+- [05:39.090] They really did suffer, too.
+- [05:41.410] And the Democrats admitted, they said,
+- [05:43.090] "Well, no, we finally have a point.
+- [05:44.590] Even though people have to suffer,
+- [05:46.400] we finally have a point."
+- [05:47.720] And that didn't work out too well for them.
+- [05:50.160] But they really went out and they could appease
+- [05:53.960] the fringe benefits of their far-left base,
+- [05:57.090] but that didn't work out because now they're far left base
+- [05:59.780] is angrier than ever before.
+- [06:02.240] We actually elected a mayor of New York City
+- [06:06.020] who happens to be a communist. When was that going to happen?
+- [06:09.440] Remember, I said all the time during my campaign,
+- [06:11.990] "We will never be a socialist country."
+- [06:14.110] And that's right.
+- [06:15.430] We turned out to have a communist in New York City.
+- [06:19.270] And if you look at his views,
+- [06:20.540] those are the views of a communist, not a socialist.
+- [06:23.900] So this is no way to run a country.
+- [06:25.850] I hope we can all agree
+- [06:27.740] that the government should never be shut down again.
+- [06:30.030] Again, end the filibuster, terminate the filibuster.
+- [06:33.030] It'll never happen again.
+- [06:35.110] So with my signature, the federal government
+- [06:38.300] will now resume normal operations,
+- [06:40.260] and my administration and our partners in Congress
+- [06:43.470] will continue our work to lower the cost of living,
+- [06:47.090] restore public safety, grow our economy,
+- [06:49.410] and make America affordable again for all Americans.
+- [06:53.370] Again, costs are way down. Energy is way down.
+- [06:57.150] Gasoline is at $2.50 cents a gallon versus
+- [07:02.180] $4.70 cents for the Democrats.
+- [07:06.080] And we think we're going to hit pretty close to $2 a gallon.
+- [07:09.160] That's like a really massive tax cut.
+- [07:11.760] It's the equivalent of that.
+- [07:13.350] And speaking of tax cuts, our Great Big Beautiful Bill
+- [07:16.730] is giving everybody in our economy,
+- [07:19.550] middle income workers, low income, everybody,
+- [07:23.340] the biggest tax cut in the history of our country.
+- [07:25.820] And it's no tax on tips, no tax on social security,
+- [07:30.240] and very importantly, no tax on overtime.
+- [07:32.630] You work overtime, there's no tax.
+- [07:34.900] That's among the things that add up
+- [07:37.370] to the biggest tax cut in history.
+- [07:40.200] One other thing you hear about rich people with deductions.
+- [07:43.660] Well, when you buy your car and you borrow money,
+- [07:46.440] you're allowed to now deduct the interest on that loan.
+- [07:50.140] So you can take that interest deduction,
+- [07:52.590] and what you can take is that interest payment
+- [07:56.190] and deduct it for income tax purposes.
+- [07:59.110] That's a tremendous tax cut right there.
+- [08:02.230] But it all includes fixing the healthcare system
+- [08:05.340] the Democrats broke with the disaster known as Obamacare.
+- [08:09.780] Obamacare was a disaster from day one.
+- [08:12.910] It's done nothing but go up.
+- [08:14.570] And if you remember, President Barack Hussein Obama,
+- [08:18.280] when he came up with this crazy idea, he said,
+- [08:22.010] "Everything's going to be great. Rates are going to go down,
+- [08:25.270] payments are going to go down, everything's going to go down."
+- [08:27.990] It went the exact opposite,
+- [08:29.800] with the biggest increase of healthcare
+- [08:32.050] in any country. It's a disaster.
+- [08:34.990] And I'm calling today for insurance companies
+- [08:38.340] not to be paid,
+- [08:39.580] but for the money, this massive amount of money
+- [08:42.470] to be paid directly to the people of our country
+- [08:45.270] so that they can buy their own healthcare,
+- [08:47.570] which will be far better and far less expensive
+- [08:51.270] than the disaster known as Obamacare.
+- [08:54.020] And I've had, I think, great support.
+- [08:56.140] I've even had Democrat support.
+- [08:58.130] So we want the money that would be
+- [09:00.080] going to the insurance company,
+- [09:01.370] which is hundreds of billions of dollars.
+- [09:04.970] Their stock prices have gone up by 1,000 percent,
+- [09:07.700] in many cases, 1,000 percent over a short period of time
+- [09:12.630] because our country stupidly pays them so much money
+- [09:15.340] with this Obamacare scandal.
+- [09:17.950] So I want the money to go directly to you, the people.
+- [09:21.540] And you'll go out and you'll buy your own health insurance
+- [09:24.560] and you'll negotiate different plans,
+- [09:26.280] and you'll get much better insurance,
+- [09:28.600] and you'll be an entrepreneur for yourself.
+- [09:31.340] So I'm always willing to work with anyone,
+- [09:33.410] including the other party.
+- [09:34.710] We'll work on something having to do with healthcare.
+- [09:37.410] We can do a lot better. We can do great.
+- [09:40.340] So much money is involved
+- [09:42.500] and we're willing to pay so much money to the people.
+- [09:45.010] So we're going to pay a lot of money to the people.
+- [09:46.840] They're going to go out and buy their own healthcare
+- [09:49.880] and we're going to forget this Obamacare madness.
+- [09:52.920] So with all of that, I just want to tell you,
+- [09:55.270] the country has never been in better shape.
+- [09:57.790] We went through this short-term disaster with the Democrats
+- [10:01.380] because they thought it would be good politically.
+- [10:04.450] And it's an honor now to sign this incredible bill
+- [10:08.610] and get our country working again.
+- [10:11.320] Thank you.
+- [10:13.410] (applause)
+- [10:44.880] Okay, thank you very much.
+- [10:46.170] I don't know if you have questions.
+- [10:50.220] I think we really have a really great situation.
+- [10:55.170] We have a country that we love
+- [10:56.550] and we have a country that's in great shape.
+- [10:59.080] As you know, we have, now it's over $18 trillion
+- [11:02.380] invested in our country by other people and countries.
+- [11:07.280] That's a record. There's never been a country that had so much.
+- [11:10.240] And that money's going into also building new auto plants,
+- [11:13.450] new AI plants, new everything.
+- [11:15.930] We've never had a time like this.
+- [11:17.670] Thank you very much, everybody. I appreciate it.
+- [11:23.650] Thank you very much.

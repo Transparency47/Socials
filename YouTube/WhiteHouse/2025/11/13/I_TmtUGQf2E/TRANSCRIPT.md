@@ -1,0 +1,735 @@
+<!-- source: https://www.youtube.com/watch?v=I_TmtUGQf2E -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: I_TmtUGQf2E -->
+<!-- date_published: 2025-11-13T21:27:33+00:00 -->
+<!-- date_accessed: 2026-06-02T01:10:31.349481+00:00 -->
+
+# Transcript: Vice President JD Vance Delivers Remarks at the Make America Healthy Again Summit
+
+- [00:00.640] It is now my great honor to introduce
+- [00:05.680] the inspiration to this movement, the
+- [00:08.720] man deeply committed to making America
+- [00:11.360] healthy again, Secretary Robert F.
+- [00:14.080] Kennedy Jr.
+- [00:16.375] [applause]
+- [00:24.235] [music]
+- [00:32.719] Thank you.
+- [00:41.920] [applause]
+- [00:52.640] >> Thank you. [applause and cheering]
+- [01:01.920] Please welcome the 50th Vice President
+- [01:04.479] of the United States, JD Vance.
+- [01:20.400] >> Thank you.
+- [01:24.495] >> [applause]
+- [01:24.960] >> Thank you all.
+- [01:28.320] >> Welcome, Mr. Vice President. And I I
+- [01:30.960] want to thank everybody here for
+- [01:33.920] taking this day to convene such
+- [01:36.880] extraordinary group of people, a really
+- [01:41.200] unprecedented caliber of people that's
+- [01:43.439] in this who are in this room today. And
+- [01:46.560] you know, one of the great things about
+- [01:48.240] working for President Trump is that
+- [01:51.360] we've been able to
+- [01:54.079] recruit people like Chris Clump and
+- [01:57.840] Marty McCary and Jay Bachara and MT Oz
+- [02:03.040] and people at every level of the agency.
+- [02:06.079] Many of them are who are stepping away
+- [02:07.759] from billion-dollar companies to come
+- [02:10.000] and work for us. Not because they're
+- [02:12.480] looking for position or power or
+- [02:14.480] security, but because they see this as a
+- [02:17.120] general generational opportunity to
+- [02:20.080] change our country and put us on a
+- [02:21.840] better course. And
+- [02:24.400] a critical part of us achieving that
+- [02:27.040] goal is the partnership with private
+- [02:30.400] industry with the entrepreneurs, the
+- [02:33.200] innovators who are trying to do the same
+- [02:35.360] thing. And you come out of that uh that
+- [02:39.280] tradition. You really have an
+- [02:40.640] extraordinary life. Um but how do you
+- [02:43.920] see that in other parts of the
+- [02:45.360] government? This partnership that we've
+- [02:47.440] been able to make with private industry.
+- [02:49.920] >> Yeah. Well, first Bobby, thanks. It's
+- [02:51.760] good to see you and uh great to be with
+- [02:53.519] everybody. It's an amazing I think not
+- [02:55.200] just a event but really a movement that
+- [02:57.360] you put together and it's been a
+- [02:58.959] critical part of our success in
+- [03:00.160] Washington. So uh thank you for having
+- [03:01.920] me here for just a little bit. When
+- [03:03.040] Bobby invited me to speak I of course
+- [03:04.560] said that I was honored to come and
+- [03:06.400] happy to do it but only if we did an
+- [03:08.720] interview as opposed to a speech because
+- [03:10.879] with a speech you have to think about
+- [03:12.080] what you're going to say where you know
+- [03:13.599] an interview I just have to answer your
+- [03:15.360] questions.
+- [03:17.120] >> I don't have to think at all to do an
+- [03:18.480] interview. That's great. Uh so so one of
+- [03:22.000] the ju just to answer that question. So
+- [03:25.280] obviously if you if you go back to like
+- [03:26.720] the MFN stuff uh meaning most favored
+- [03:29.680] nation drug pricing that really has
+- [03:32.319] happened because the president and Bobby
+- [03:35.120] and a number of members of the team have
+- [03:36.720] been actually working with private
+- [03:38.080] industry to lower the cost of
+- [03:39.680] prescription drugs for American
+- [03:40.879] citizens. Now, it would be great if we
+- [03:42.959] could get congressional Democrats to
+- [03:44.640] actually do something meaningful with us
+- [03:47.040] because you would think, you know, you
+- [03:48.319] think of Democrats, they they like to
+- [03:50.560] say that they're for the working people
+- [03:52.959] against the big pharma companies. So,
+- [03:55.360] you would think that legislatively they
+- [03:56.959] would want to work with us, but it's
+- [03:58.159] actually been hard to get them to work
+- [03:59.280] with us. So, we've had to sort of go
+- [04:01.120] outside of the system and work with
+- [04:02.640] private industry to do some of this
+- [04:03.920] stuff. And I think you guys have done an
+- [04:05.360] incredible job with that. But if you
+- [04:07.040] look at a lot of our most important
+- [04:08.319] health initiatives, they've come through
+- [04:10.000] partnership with private industry in
+- [04:12.480] some form or another. And I also think
+- [04:14.319] that there's a mindset shift where um
+- [04:18.000] you know, you mentioned some of the
+- [04:19.040] people like Marty, like Jay who have
+- [04:20.639] been such a critical part of what you've
+- [04:21.919] been doing. The thing that I love about
+- [04:23.600] the team that Bobby has put together is
+- [04:26.000] yes, a lot of them have a sort of
+- [04:27.680] private sector mindset. They just want
+- [04:29.520] to get things done. They don't care
+- [04:30.800] about the bureaucracy or or sort of they
+- [04:33.199] don't care about all the people saying
+- [04:34.320] no in government because as Bobby and I
+- [04:35.759] have learned there are a lot of people
+- [04:36.800] saying no you're not allowed to do that
+- [04:38.160] or no you shouldn't do that and we just
+- [04:40.000] have to punch through that in order to
+- [04:41.600] achieve results for the American people.
+- [04:43.520] But I also just love that Bobby has put
+- [04:45.360] together a team of people who are not
+- [04:47.680] terrified to think about things in new
+- [04:49.680] and interesting ways. And if you think
+- [04:51.840] about what has been so broken about the
+- [04:54.080] public health bureaucracy in this
+- [04:55.440] country for years, for decades,
+- [04:57.199] generations even, it's that people think
+- [05:00.080] in incredibly conventional ways. And if
+- [05:02.639] you bring them a non-conventional idea,
+- [05:04.639] their automatic assumption is no, no,
+- [05:06.320] no, we're not allowed to talk about
+- [05:08.240] that, much less fund something related
+- [05:10.560] to that. And I I think it's maybe the
+- [05:12.479] most important thing of all the specific
+- [05:14.400] initiatives that you guys have worked on
+- [05:16.560] effectively. The most important thing is
+- [05:18.960] that your team is willing to ask
+- [05:21.440] questions that people in government
+- [05:22.880] haven't been asking in a long time. And
+- [05:25.120] if you think about how unhealthy the
+- [05:27.039] American population has gotten over the
+- [05:28.960] past 20 or 30 years, you're not going to
+- [05:30.880] fix that problem unless you have people
+- [05:33.120] at the table who are asking different
+- [05:35.120] questions than the ones that were asked
+- [05:36.400] 20 years ago.
+- [05:37.680] >> Yeah. I mean, that's what
+- [05:39.948] >> [applause]
+- [05:40.960] >> Thank you.
+- [05:43.440] One of the interesting things about
+- [05:45.280] working with this president is that, you
+- [05:48.320] know, we're coming into these
+- [05:49.600] bureaucracies that have constructed
+- [05:52.720] these orthodoxies and it's just a series
+- [05:55.360] of very narrow Overton windows and
+- [05:58.000] you're not allowed to
+- [05:59.680] >> bring the conversation out of that or
+- [06:02.000] you get destroyed.
+- [06:03.280] >> That's right. And now we're working for
+- [06:05.199] a president who just takes a bulldozer
+- [06:07.680] to Overton windows and does that like
+- [06:12.080] shocks us every day and then we go,
+- [06:14.160] "Okay, well
+- [06:16.629] [laughter] that's exactly right. That is
+- [06:18.720] a that is a good summary of Donald J.
+- [06:20.960] Trump is that he takes a bulldozer to
+- [06:22.479] Overton windows every single day." But
+- [06:24.880] it just it had to happen. It just had to
+- [06:26.960] happen. And if you look at so many of
+- [06:28.800] the things that are happening on the
+- [06:30.639] public health side, I mean, you know,
+- [06:32.080] one of the criticisms that Bobby will
+- [06:33.919] always get, and I always think it's such
+- [06:35.520] Excuse my language. I'm not
+- [06:37.120] sure if I'm allowed to say that. It's
+- [06:38.240] probably cover, you know, I
+- [06:41.280] I apologize to everybody who's watching
+- [06:42.880] live on Fox News. U hopefully they were
+- [06:45.520] able to bleep that out. But anyway is is
+- [06:47.919] sometimes there's this attack where
+- [06:49.919] people will say well you know this or
+- [06:52.960] that conclusion is not supported by the
+- [06:55.120] science or this or that conclusion is a
+- [06:57.360] conspiracy theory. And science as
+- [07:00.639] practiced in its best form is that if
+- [07:03.199] you disagree with it then you ought to
+- [07:05.199] criticize it and you ought to argue it
+- [07:07.280] against it but you can't shut down the
+- [07:09.039] debate. [applause]
+- [07:10.720] And and that really is if you look at
+- [07:12.960] all of the big public health debates
+- [07:14.560] that we've had in this country over the
+- [07:16.720] last 20 or 30 years, it doesn't bother
+- [07:19.039] me that they disagreed with something
+- [07:20.400] that I believed or disagreed with
+- [07:21.840] something you believed or any of you.
+- [07:23.120] It's that they tried to silence the
+- [07:25.199] people who were saying things that were
+- [07:27.199] outside the Overton window. And as we
+- [07:28.880] found out the hard way over the last few
+- [07:30.400] years, it was very often the people who
+- [07:32.479] were outside the Overton window who were
+- [07:34.560] actually right and all the experts were
+- [07:36.560] wrong.
+- [07:38.505] [applause]
+- [07:43.120] Mar I was I had a conversation with
+- [07:45.599] Marty McCary the other day and he
+- [07:48.240] reminded me that over the Royal Society
+- [07:50.560] the the building the portal for the
+- [07:52.880] Royal Society in London which the oldest
+- [07:55.039] scientific society in the world and the
+- [07:57.280] most prestigious
+- [07:58.080] >> of course
+- [07:59.120] >> it says question everything
+- [08:01.039] >> yes
+- [08:01.759] >> and that is you know that's what science
+- [08:04.000] is recognizing that convention is often
+- [08:08.160] wrong and that um the people who make
+- [08:12.479] advances on science almost 100% of the
+- [08:15.759] times are people who are willing to
+- [08:18.560] challenge orthodoxies and advance
+- [08:20.400] heterodoxies and and talk about new ways
+- [08:23.759] of thinking and that um you know these
+- [08:26.400] the very oified bureaucracies that now
+- [08:30.960] make up the so-called med medical
+- [08:33.039] establishment are fortified against that
+- [08:35.760] kind of change. That's that's absolutely
+- [08:37.680] right. And and I mean to put a a
+- [08:39.519] slightly different spin on it, a lot of
+- [08:41.360] the times the people who are discovering
+- [08:43.120] things interesting and new are a little
+- [08:44.880] weird, right? I mean, American society
+- [08:47.839] for a very long time had a willingness
+- [08:51.120] to accept unconventional, slightly odd
+- [08:54.000] people inside some of these these
+- [08:56.399] industries, inside some of these
+- [08:57.519] bureaucracies. I mean, I I've been
+- [08:59.120] reading a lot in the past couple of
+- [09:00.640] weeks about Von Newman, the Hungarian
+- [09:02.959] scientist who came to the United
+- [09:04.311] [clears throat] States and was very
+- [09:05.200] important in the Manhattan Project. And
+- [09:07.040] what I keep on finding myself thinking,
+- [09:09.040] I mean, this is a brilliant guy. This
+- [09:11.040] is, you know, one of the I think it was
+- [09:12.640] Edward Teller or Oppenheimer or another
+- [09:14.720] the Manhattan Institute people said
+- [09:16.640] about Von Newman that that that Von
+- [09:19.279] Newman was talking to his three-year-old
+- [09:21.920] and then he realized that he he used the
+- [09:23.839] same skill Von Newman did when talking
+- [09:25.600] to a three-year-old as he did with
+- [09:27.120] everybody else because that he was so
+- [09:29.360] far above everybody else in terms of
+- [09:31.440] brilliance. But then you read about this
+- [09:33.279] guy and I think to myself, half of the
+- [09:35.839] that this guy said would have
+- [09:37.600] gotten him canled or would have gotten
+- [09:39.120] his career ruined or would have had his
+- [09:40.640] life ruined. There is no way that this
+- [09:42.880] country is going to advance unless we're
+- [09:44.800] comfortable with people who are willing
+- [09:46.640] to challenge orthodoxy. And that's what
+- [09:49.040] I think got so broken, not just about
+- [09:51.360] the scientific bureaucracy, but probably
+- [09:53.360] it's it was worse in the scientific area
+- [09:55.600] than in most other places, is we've got
+- [09:57.920] to be comfortable challenging some of
+- [10:00.320] these old orthodoxies. And part of that
+- [10:02.640] is welcoming people who are a little
+- [10:04.880] unusual because unless you do that, like
+- [10:07.440] you're not going to solve America's
+- [10:08.880] problems with Mackenzie consultants who
+- [10:10.720] say everything the right way all the
+- [10:12.800] time. No offense. No offense for the
+- [10:15.519] Mackenzie consultants because
+- [10:18.327] >> [cheering]
+- [10:18.800] >> many of whom are very brilliant people.
+- [10:20.480] But like you you need the consultant
+- [10:22.560] mindset. You also need the person who is
+- [10:25.519] just thinking about an idea because it's
+- [10:28.399] interesting and it's fascinating and
+- [10:30.160] it's not being focused on enough in the
+- [10:32.000] right way.
+- [10:33.760] >> You and I have talked a lot about
+- [10:35.279] Appalachia and both of us come from
+- [10:37.760] families that are intertwined personally
+- [10:40.320] and politically in Appalachia.
+- [10:43.120] You're kind of a golden child of
+- [10:44.800] Appalachia. You came out, you went to
+- [10:47.519] Ohio State, right? Right. Yale Law
+- [10:49.920] School, a successful B uber successful
+- [10:52.959] business, a best-selling author, US
+- [10:57.040] senator, and now vice president of the
+- [10:58.720] United States. Um, but it's almost a
+- [11:02.160] kind of tragic reminder of the lost
+- [11:04.480] potential of almost everybody else in
+- [11:07.839] Appalachia, not only for poor health.
+- [11:09.760] It's got the worst health data of any
+- [11:12.720] region in the country. The highest
+- [11:15.200] cardiac disease, the highest obesity,
+- [11:17.279] the highest diabetes, the highest stroke
+- [11:19.360] rates, and but also addiction,
+- [11:22.720] alcoholism, and suicide. It leads the
+- [11:25.519] nation for those things. And so, I know
+- [11:28.160] it's something that you spent a lot of
+- [11:30.000] time thinking about how do we, you know,
+- [11:32.320] because if we can solve problems in
+- [11:34.000] Appalachia, we can solve them for the
+- [11:36.480] whole country.
+- [11:37.680] >> Yeah, that's exactly right. Right. And
+- [11:38.880] and the public health stuff in
+- [11:40.079] particular is very bad. And um if you
+- [11:43.200] look at where life expectancy has gotten
+- [11:45.279] the worst in the United States,
+- [11:46.800] Appalachia is sort of at the top of the
+- [11:48.880] list. And the the the way that I
+- [11:50.959] realized this actually, so my dad died
+- [11:53.120] of of cancer a few years ago. And you
+- [11:56.640] know, it was one of these sort of super
+- [11:57.920] aggressive cancers. Came on very
+- [12:00.480] unexpectedly and then, you know, all of
+- [12:02.240] a sudden he was he was gone a few months
+- [12:04.079] later. But I I was talking my with my
+- [12:06.800] wife with Usha about this and Usha she
+- [12:09.279] was like have you ever had like a really
+- [12:12.399] important male figure in your life
+- [12:14.480] survive to the age of 70 like so and I
+- [12:17.760] and I look at and it's like okay my
+- [12:19.440] grandfather died at 67 from a very
+- [12:21.360] preventable illness but 67 from a very
+- [12:23.680] preventable very treatable illness. I
+- [12:25.920] think all of my aunts or all of my
+- [12:27.600] uncles and not a single one of them that
+- [12:30.399] I could think of made it to 69. maybe
+- [12:33.040] one of them uh made it to 70 or 71 and
+- [12:37.040] it kind of hit me that if you grow up in
+- [12:39.279] Appalachia,
+- [12:40.800] you are used to losing the people that
+- [12:43.279] you love very very early on and you want
+- [12:46.240] to talk about like populism and you want
+- [12:48.959] to talk about people being pissed off.
+- [12:50.880] Well, yeah. People are pissed off when
+- [12:52.320] they don't have good jobs, and people
+- [12:54.000] are pissed off when things disappear and
+- [12:55.680] move overseas. And people are pissed off
+- [12:57.680] when they feel like, you know, other
+- [12:59.440] countries are being prioritized over the
+- [13:01.120] United States of America. And all of
+- [13:02.639] that is part of the the populist
+- [13:04.880] resentment of the past, you know, 20 or
+- [13:07.040] 30 years in American politics. You know
+- [13:08.720] what really pisses people off? When they
+- [13:10.720] realize that their loved ones are dying
+- [13:12.880] much sooner than everybody else. And
+- [13:14.959] that is a big part of the story of
+- [13:16.560] what's going on in Appalachia and why I
+- [13:18.480] think so many people in Appalachia feel
+- [13:20.240] left behind. I mean, my story obviously
+- [13:22.399] it's it's been, you know, like like you
+- [13:24.399] said, I'm like the golden boy that
+- [13:26.320] things have just worked out for me in
+- [13:27.760] this really incredible way. I feel so so
+- [13:29.839] lucky and so grateful for it. But I also
+- [13:32.959] feel a certain sense of guilt because
+- [13:35.600] there are a lot of people who grow up in
+- [13:37.200] families like mine who haven't had an
+- [13:40.000] easy life and who haven't had all this
+- [13:41.839] economic opportunity and who who who
+- [13:44.160] haven't had, you know, a person that
+- [13:46.079] they've fallen in love with and they've
+- [13:47.360] been able to sort of build a stable nice
+- [13:48.959] family like me and have been able to
+- [13:50.480] build and and that gives me a sense of
+- [13:52.240] purpose because I want those people to
+- [13:54.480] have the same opportunities that I I've
+- [13:56.240] had. But it also gives gives me a great
+- [13:58.480] sense of anger because we never should
+- [14:01.360] have gotten to the point that we are
+- [14:02.880] today. And the reason that we have is
+- [14:05.120] because of failed leadership. And it's
+- [14:07.120] failed leadership over generations. And
+- [14:09.199] by the way, these are you talk about
+- [14:11.279] Appalachia, you were talking about
+- [14:12.880] people who though they don't have much
+- [14:15.199] would take the shirt off their back and
+- [14:17.360] give it to a complete stranger because
+- [14:19.360] that's what you do. If you go back to
+- [14:21.760] Americans, America's biggest wars, World
+- [14:23.920] War I, World War II, Vietnam, which are
+- [14:26.399] the counties that filled their draft
+- [14:28.079] quotas with volunteers instead of with
+- [14:30.800] drafties. It's very often the parts in
+- [14:33.680] deep appalachia where you've got
+- [14:35.519] grinding poverty, but you also got this
+- [14:38.320] incredible love of country. So, if any
+- [14:41.040] place in this country deserves not to be
+- [14:42.959] left behind, it's Appalachia. But on the
+- [14:45.360] public health stuff in particular, the
+- [14:47.440] numbers don't look good. And it's one of
+- [14:49.440] the reasons why I'm such a big supporter
+- [14:50.800] of what you're doing because these are
+- [14:52.399] people who deserve to live better,
+- [14:54.720] healthier lives, but they really have
+- [14:56.480] been left behind by this country's
+- [14:57.760] leadership.
+- [14:58.639] >> Talk a little bit about how MA has
+- [15:01.040] affected you personally.
+- [15:03.519] My grandchildren go to school with your
+- [15:06.639] children and it, you know, Maha I think
+- [15:10.160] has gotten a lot of people thinking
+- [15:11.519] about how they raise their kids, how
+- [15:13.120] what they feed them, etc., how they're
+- [15:15.040] shopping
+- [15:16.320] >> and then maybe to talk a little bit
+- [15:18.560] about the the political impacts of Maha.
+- [15:22.720] >> Yeah. So there are so many different
+- [15:24.399] ways I could I could talk about this. I
+- [15:26.079] mean one I I just met you know Bobby's
+- [15:28.000] family backstage or at least some of
+- [15:29.600] them and I kept on shaking hands with
+- [15:31.920] various people and I'm like well you
+- [15:33.360] know you're an Irish Catholic so it
+- [15:35.040] makes sense that you've got you know a
+- [15:36.880] dozen or so people backstage but I I
+- [15:38.959] love that. I love love love big
+- [15:40.240] families, but you know, so so one, you
+- [15:43.199] know, my my wife um she she's probably
+- [15:47.120] one of the like original maha people,
+- [15:49.360] though I don't think that she would have
+- [15:50.399] ever used that phrase because I I
+- [15:52.880] remember like, you know, our oldest son
+- [15:54.399] is 8 years old and when, you know,
+- [15:57.120] babies typically eat solid food around
+- [15:58.959] six months of age and I remember when,
+- [16:01.839] you know, he started eating solid foods
+- [16:03.920] and I'm like, "Awesome. Let's give him
+- [16:05.600] like some cupcakes and ice cream." And
+- [16:08.320] my wife was like, uh, no, let's give
+- [16:09.920] them carrots and applesauce here. You
+- [16:11.920] know, so so she was already thinking
+- [16:14.000] about health and nutrition in a way that
+- [16:15.759] was frankly kind of foreign to me and
+- [16:18.240] that I think is very common among the
+- [16:20.000] Maha crowd. Like you guys are asking the
+- [16:22.480] right questions. What are we putting
+- [16:23.839] into our bodies? Where was it sourced
+- [16:25.839] from? Are, you know, if if we're eating
+- [16:28.959] animal-based protein, is it coming from
+- [16:31.120] a place where the animals are treated
+- [16:33.279] the right way? if we're putting
+- [16:34.320] medications into our body, are we
+- [16:36.240] actually confident that they're doing
+- [16:37.600] the thing that they're supposed to do,
+- [16:38.880] that they're safe and effective? I I
+- [16:40.720] just think this whole thing is about
+- [16:43.440] asking very critical questions about
+- [16:46.160] what we're putting into our bodies, into
+- [16:48.000] the bodies of our kids. And it's really
+- [16:50.000] affected me in a very profound way and
+- [16:52.000] how I think about my own nutrition,
+- [16:54.480] about particularly how I think about
+- [16:56.320] what what my kids are taking. And you
+- [16:59.040] know, I I I I'm like one of these crazy
+- [17:01.040] people. The one way in which I'm more
+- [17:02.560] instinctively maja is that if if I have
+- [17:05.839] like you know a back sprain or I slept
+- [17:08.480] you know weird and I woke up with back
+- [17:10.079] pain I don't want to take ibuprofen.
+- [17:11.919] Like I don't like taking medications. I
+- [17:13.280] don't like taking anything unless I
+- [17:14.559] absolutely have to. And I think that's
+- [17:16.559] another maja style attitude. It's not
+- [17:18.880] anti- medication. It's anti-useless
+- [17:21.679] medication. We should only be taking
+- [17:23.600] stuff. We should only be giving our kids
+- [17:25.439] stuff if it's actually necessary, safe,
+- [17:28.480] and effective. And I think that's an
+- [17:30.160] attitude that's really beneficial to the
+- [17:31.840] entire country because we do have,
+- [17:33.600] you've talked about this as eloquently
+- [17:35.440] as anybody. We do really have an obesity
+- [17:37.840] epidemic in the United States of
+- [17:39.120] America. I think a big part of that is
+- [17:40.960] not asking where our food comes from. We
+- [17:43.200] really do have medications that I don't
+- [17:45.760] I don't think may maybe they're not
+- [17:48.000] solving the chronic disease epidemic.
+- [17:50.000] Maybe hell, some of them are even
+- [17:51.280] causing the chronic disease epidemic. We
+- [17:53.840] got to be asking more critical questions
+- [17:55.520] about what we're putting into the bodies
+- [17:56.960] of our kids. And I don't think we were
+- [17:58.559] doing that until this movement came
+- [17:59.840] along.
+- [18:01.200] >> You know, um
+- [18:03.919] the job of the vice president has been
+- [18:05.600] called the worst job in the country.
+- [18:09.200] And I think for
+- [18:10.480] >> I think we're out of time, ladies and
+- [18:11.600] gentlemen. [laughter]
+- [18:13.360] >> I I think for some vice presidents that
+- [18:15.600] that's been true. And I I know that um
+- [18:18.799] President Johnson during my uncle's
+- [18:20.880] tenure felt that he'd been sidelined.
+- [18:22.880] that I think Spiro Agnu and Gerald Ford
+- [18:25.840] felt the same way with Nixon. But then
+- [18:28.559] you had presidents like um well you had
+- [18:31.360] vice president like Dick Cheney who
+- [18:34.080] seemed to be actually running the
+- [18:35.600] country and then you had these you know
+- [18:38.559] relationships with
+- [18:40.160] >> not very well it turns out
+- [18:41.520] >> with [laughter]
+- [18:43.440] we agree on that. Um but Al Gore uh and
+- [18:48.320] and Bill Clinton and um and Montdale and
+- [18:52.720] Carter who had close personal
+- [18:54.160] friendships,
+- [18:55.679] you have an amazing job because you have
+- [18:57.840] a president who clearly puts tremendous
+- [19:00.240] faith in you. He relies on you. He's
+- [19:02.799] given you an extraordinary retinue of
+- [19:06.080] responsibilities.
+- [19:08.160] Talk a little bit about how your
+- [19:10.400] relationship with the president has
+- [19:12.080] evolved.
+- [19:13.600] Yeah, that's a great question.
+- [19:14.880] >> And it's clear to all of us in the
+- [19:16.720] cabinet how much affection that he has
+- [19:18.640] for you and how much he relies on your
+- [19:20.480] wisdom.
+- [19:21.120] >> Well, I I I it's interesting. I I you're
+- [19:23.360] exactly right that the president the job
+- [19:26.160] of vice president is incredibly
+- [19:28.080] contingent on the president that you're
+- [19:29.760] serving under. And you could have a
+- [19:31.600] president who effectively just passes
+- [19:34.080] off big swats of responsibility. You
+- [19:37.120] could have a president who delegates.
+- [19:39.120] You could have a president who has no
+- [19:41.120] trust in their vice president, Kla
+- [19:43.440] Harris, and so it doesn't go very well
+- [19:45.840] for that particular vice president. But
+- [19:48.559] I I I I think there there are two So
+- [19:51.679] there are two ways that I try to think
+- [19:53.039] about my job with the president of the
+- [19:54.160] United States. Number one, he he he
+- [19:57.280] requires honest counsel. In other words,
+- [20:00.880] if I have an opinion on something,
+- [20:02.720] whether I agree or disagree with the
+- [20:04.320] administration position, it's really
+- [20:05.840] really important that I talk to the
+- [20:07.360] president about it. He doesn't want
+- [20:08.960] yesmen. And I think that's one of the
+- [20:10.640] reasons why you guys have a great
+- [20:11.840] relationship is because you're always
+- [20:13.840] thinking about how can I actually give
+- [20:15.919] the president the best counsel. But then
+- [20:18.000] the second thing is when the president
+- [20:19.600] makes a decision, your job is to
+- [20:21.840] execute. It's not to run to the papers
+- [20:24.000] and say, "Well, actually, I disagreed
+- [20:25.760] with this decision or, you know, run to
+- [20:28.559] the congress and badmouth the
+- [20:30.080] administration." It's to execute. And I
+- [20:32.320] think the reason why the president has
+- [20:33.840] trust in me is because yes, I absolutely
+- [20:37.120] tell the president what I think about a
+- [20:38.559] given issue, but I also recognize I'm
+- [20:40.799] the vice president. He's the president.
+- [20:42.960] And when the president of the United
+- [20:44.000] States makes a decision, it's time to go
+- [20:45.760] and get it done. And I think in part
+- [20:48.320] because I get things done, right? I
+- [20:50.720] mean, sometimes Congress doesn't
+- [20:52.640] cooperate, sometimes the private sector
+- [20:54.320] doesn't cooperate. Like I'm not saying
+- [20:55.760] any of us have a batting average of 100,
+- [20:58.080] but what I think all of us who have
+- [20:59.919] earned the president's trust do is that
+- [21:02.799] when the administration makes a
+- [21:04.400] decision, when he makes a decision, we
+- [21:06.320] actually go out and get it done. And
+- [21:08.480] that that's that's why this job has been
+- [21:10.799] so empowering for me is because the
+- [21:12.400] president trusts me. He knows I'm going
+- [21:14.240] to give him honest counsel. He knows
+- [21:15.840] that if he asks me to go get something
+- [21:17.200] done, I'm going to try my best to
+- [21:18.799] actually go and do it. And that's why we
+- [21:20.799] have a good partnership. I think that's
+- [21:22.159] why the administration has been so
+- [21:23.840] effective this time around is because
+- [21:26.000] there are a lot of people with a very
+- [21:28.080] wide diversity of opinions, but we get
+- [21:30.320] out there and we try to do the best job
+- [21:32.240] for the American people and the
+- [21:33.280] president of the United States. And
+- [21:34.320] because of that, there's a lot of trust
+- [21:36.080] and there's a lot of affection in the
+- [21:37.280] cabinet. I mean, you've seen this.
+- [21:38.880] >> I've seen this, but when we're sitting
+- [21:40.320] in there and the cameras are off and
+- [21:43.120] we're just talking about an issue, there
+- [21:45.120] is a deep level of affection and trust
+- [21:48.159] between all the senior members of the
+- [21:49.919] team. I don't know how it's possible to
+- [21:51.840] do this job without it, but I know it's
+- [21:53.760] why we've been so successful the past 10
+- [21:55.520] months.
+- [21:56.640] >> Now, we've come to the lightning round.
+- [21:58.559] >> Great.
+- [22:01.280] >> Marine Corps workout or Pete and Bobby
+- [22:03.200] challenge? [laughter]
+- [22:06.000] >> Oh, that's tough, man. Um, so it's it's
+- [22:10.975] [laughter]
+- [22:12.159] >> I would say I would I so I I would say
+- [22:15.440] Marine Corps workout, especially for me,
+- [22:18.080] the the one thing so I can do like five
+- [22:21.120] dead hang pull-ups, you know, I have
+- [22:23.440] longer arms. I'm a little fatter than I
+- [22:25.520] should be. And I, you know, especially
+- [22:28.480] like 10 years or so ago, I got a little
+- [22:31.120] out of shape. And so it it's actually
+- [22:33.360] the Marine Corps like physical fitness
+- [22:35.440] test has been an incredible guidepost to
+- [22:38.080] me getting back in shape. And then and
+- [22:40.000] and it's basically you run three miles,
+- [22:42.320] you do a 100 crunches or now instead of
+- [22:44.159] crunches, they do um it's this weird
+- [22:47.440] planking exercise that's a core exercise
+- [22:49.919] and then there's pull-ups. But I but I I
+- [22:52.159] felt like that's that's been a very good
+- [22:53.919] focus. The Pete and Bobby challenge is
+- [22:56.400] for people who are in as good a shape as
+- [22:58.080] Pete and Bobby, which is not yet me, but
+- [23:00.240] that's my goal. My goal is to get there.
+- [23:02.640] >> Who's the funniest guy on the cabinet?
+- [23:05.340] [laughter]
+- [23:05.840] >> Well, obviously the president of the
+- [23:07.120] United States.
+- [23:08.320] >> I I I mean,
+- [23:09.440] >> beside him,
+- [23:10.159] >> he So so so beside him, I I I mean,
+- [23:12.799] look, we we all have different views on
+- [23:14.799] this. My personal vote for funniest
+- [23:17.600] person outside the president is probably
+- [23:19.280] Marco. He has an incredible sense of
+- [23:21.280] humor. He's got great comedic timing.
+- [23:23.520] >> Yeah, that's right. That's right. Um
+- [23:25.360] well, you know, there there are a couple
+- [23:26.880] others. Look, very good sense of humor
+- [23:29.520] from the cabinet. There's a lot of funny
+- [23:31.360] people. I think Margot is the funniest
+- [23:32.720] outside the president.
+- [23:33.440] >> He said something that makes everybody
+- [23:35.120] laugh at least once during the cabinet
+- [23:37.200] meeting.
+- [23:37.520] >> That's right. Well, I mean, I don't know
+- [23:38.640] if you saw this video circulating on
+- [23:40.400] social media, but you know, the
+- [23:42.159] president met some uh met the president
+- [23:44.159] of Syria, Alshara, in the Oval Office a
+- [23:47.280] couple of days ago, and you know, he
+- [23:50.080] asked him, he's like, "Well, how many
+- [23:51.120] wives do you have?"
+- [23:53.811] [laughter]
+- [23:56.880] AND it and it's just like h what what an
+- [23:59.919] amazing question. Amazing comedic timing
+- [24:03.440] there. There are layers to it. There's
+- [24:05.120] like a meta humor to it. It's just
+- [24:06.640] anyway, you know, but but but we've got
+- [24:08.799] we got a lot of good a lot of good humor
+- [24:10.559] in the cabinet.
+- [24:11.279] >> Yeah. One of the funniest moments in any
+- [24:14.080] cabinet meeting,
+- [24:16.080] President Trump had them bring in a
+- [24:17.919] full-size picture of himself with Putin.
+- [24:21.600] And when they were in Hawaii, and he's
+- [24:24.480] very tall and Putin was very short.
+- [24:26.320] Putin came up to about here. And he
+- [24:28.400] said, "You know what I said to him?" He
+- [24:29.840] said, "I've had it up to here with you."
+- [24:31.801] [laughter]
+- [24:38.480] >> Okay,
+- [24:38.880] >> I remember that
+- [24:40.159] >> there are a There are eight presidents
+- [24:42.559] from Ohio. How many can you name?
+- [24:45.760] >> Oh,
+- [24:47.039] >> this is unfair because
+- [24:48.240] >> that is a totally unfair [laughter]
+- [24:49.520] question. I regret coming to this event
+- [24:51.360] based on that question. Um, okay.
+- [24:54.000] >> None of them. Well, with one exception,
+- [24:56.000] none of them.
+- [24:56.400] >> Okay. So, so obviously US Grant,
+- [24:58.320] >> yeah,
+- [24:58.640] >> I have a particular affinity for him.
+- [25:00.159] Both of us have beards. Um, Rutherford
+- [25:03.760] behazes.
+- [25:04.799] >> Good.
+- [25:05.440] >> Was Cleveland Ohio or was he somebody
+- [25:07.120] else?
+- [25:08.080] >> I don't think Cleveland was
+- [25:09.840] >> okay. The problem is a lot of the Ohio
+- [25:11.440] ones are frankly the the range of
+- [25:13.200] presidents where nobody can name them.
+- [25:14.960] >> Yeah.
+- [25:15.440] >> Right.
+- [25:16.159] >> So it's like like most people can Yeah.
+- [25:18.480] Most people can like go up to Jackson
+- [25:20.640] and then they know there sort of Lincoln
+- [25:22.080] and Grant and then there's like you know
+- [25:23.679] a black hole of presidents. Those are
+- [25:26.000] the Ohio presidents. Please don't judge
+- [25:27.679] my home state because it was just uh it
+- [25:30.240] was a different time in the country. So
+- [25:31.840] the answer is apparently two.
+- [25:33.520] >> Did you [laughter]
+- [25:35.760] did you read Chernov's biography of of
+- [25:38.799] Grant?
+- [25:39.120] >> I did. Incredible. One of my best
+- [25:40.559] friends actually gave it to me four or
+- [25:42.080] five years ago. Incredible book.
+- [25:44.159] >> It is.
+- [25:44.720] >> And and he was an incredible guy.
+- [25:46.000] >> Makes you fall in love with Grant.
+- [25:47.760] >> Absolutely. And people, you know, he was
+- [25:50.000] attacked after he died by a lot of his
+- [25:52.240] political opponents. A lot of what I
+- [25:54.320] learned in grade school and high school
+- [25:56.320] history about Ulysus SR is actually
+- [25:58.320] fake. He was a great general. He was
+- [26:00.240] also a great president.
+- [26:02.880] >> Thank you very much, Mr. Vice President.
+- [26:04.640] >> Thank you guys. Thanks. Thank you all
+- [26:05.840] for being here.

@@ -1,0 +1,150 @@
+<!-- source: https://www.youtube.com/watch?v=KfCps7UHPnM -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: KfCps7UHPnM -->
+<!-- date_published: 2025-01-29T20:40:51+00:00 -->
+<!-- date_accessed: 2026-06-02T02:54:23.947190+00:00 -->
+
+# Transcript: Vice President JD Vance Swears In Sean Duffy as Secretary of Transportation
+
+- [00:00.000] [Applause]
+- [00:10.360] well good afternoon everybody I'm
+- [00:11.840] thrilled to be here of course with our
+- [00:14.200] Secretary of Transportation Des Mr Duffy
+- [00:17.240] and his beautiful family all nine kids I
+- [00:19.560] joke that these guys are doing their
+- [00:21.119] best uh to solve the fertility crisis in
+- [00:23.519] the United States of America and
+- [00:26.930] [Applause]
+- [00:28.640] uh just Ju Just a beautiful family and
+- [00:31.640] it's really a testament and a credit to
+- [00:33.879] our great country that such a family is
+- [00:35.840] willing to serve first of course in
+- [00:37.480] Congress and now at the Secretary of
+- [00:39.360] Transportation I think that I'm not
+- [00:41.320] being too mean to our predecessors and
+- [00:43.160] saying that we spent a lot of money in
+- [00:45.079] the last Administration but didn't get a
+- [00:46.559] lot out of it and I think we're going to
+- [00:47.920] have a Secretary of Transportation here
+- [00:49.399] who is a much better Steward of taxpayer
+- [00:51.320] dollars but also make sure those
+- [00:52.960] taxpayer dollars are spent wisely and
+- [00:54.760] actually go to the places that the
+- [00:56.559] administration needs them to go so uh
+- [00:58.600] we're thrilled that you're willing to
+- [00:59.719] serve ve of course thrilled by the
+- [01:01.320] president's nominating you and and
+- [01:03.399] grateful to our Senate colleagues
+- [01:04.879] especially Senator Blackburn Senator
+- [01:06.280] Sullivan here for making it possible uh
+- [01:08.720] for you not to just be the nominee but
+- [01:11.240] now the actual Secretary of
+- [01:12.799] Transportation but first before that
+- [01:15.320] you've got to you got to take this oath
+- [01:16.799] of office so let's go ahead and do
+- [01:19.560] that if you would uh put your hand on
+- [01:22.479] the Bible and raise your right hand I
+- [01:27.640] Sean Duffy I Sean Duffy to solemnly
+- [01:31.040] swear you solemnly swear that I will
+- [01:33.159] support and defend that I will support
+- [01:35.040] and defend the Constitution of the
+- [01:36.560] United States the Constitution of the
+- [01:38.439] United States against all enemies
+- [01:40.200] foreign and domestic against all enemies
+- [01:42.399] foreign and domestic that I will bear
+- [01:44.280] true faith and allegiance to the saint
+- [01:46.200] that I will bear true faith and
+- [01:47.719] allegiance to the same that I take this
+- [01:49.479] obligation freely that I take this
+- [01:51.320] obligation freely without any mental
+- [01:53.399] reservation or purpose of evasion
+- [01:55.520] without any mental reservation or
+- [01:57.520] purpose of evasion and that I will well
+- [01:59.920] will Faithfully discharge and that I
+- [02:01.479] will well and Faithfully discharge the
+- [02:03.520] duties of the office on which I am about
+- [02:05.240] to enter the duties of the office about
+- [02:07.560] which I am to enter so help you God so
+- [02:10.920] help you God congratulations Mr
+- [02:13.730] [Applause]
+- [02:21.720] secretary well Mr Vice President thank
+- [02:24.280] you for uh taking the time to swear Us
+- [02:26.040] in today I'm so appreciative of that um
+- [02:28.920] I want to take a moment and thank uh
+- [02:31.360] probably the greatest the greatest
+- [02:33.239] president we've had In Our Lifetime but
+- [02:35.080] maybe the greatest president ever Donald
+- [02:36.800] J Trump for giving me this amazing
+- [02:38.640] opportunity to serve as a secretary in
+- [02:40.840] this Administration in the Department of
+- [02:42.239] Transportation I very grateful for his
+- [02:44.200] trust I want to thank my wife Rachel who
+- [02:46.720] has been with me for 25 years how she's
+- [02:49.599] lasted so long I'm not quite sure but
+- [02:51.200] I'm grateful for that and our nine kids
+- [02:53.800] uh seven of them are with us today so
+- [02:56.120] thank you to them uh Senator uh Senators
+- [02:59.400] who are here uh Sullivan and Blackburn
+- [03:02.400] uh your support I'm so grateful to and
+- [03:04.480] for the committee and their support and
+- [03:05.959] help as we've gone through the process
+- [03:07.720] uh thank you for that and to my Sherpa
+- [03:09.080] team uh who has been so helpful um in
+- [03:12.120] getting us through the process everyone
+- [03:13.680] says it's a hard process H and you don't
+- [03:16.120] really know how hard it is until you
+- [03:17.400] actually go through it um uh personally
+- [03:20.280] but just if I take a moment um we are
+- [03:22.560] going to usher in the Golden Age of
+- [03:24.519] Transportation we're going to work on
+- [03:26.519] efficiency making sure our
+- [03:28.680] infrastructure actually works for the
+- [03:30.879] American people for the American Family
+- [03:32.920] making sure that you can get to and from
+- [03:35.239] work back to your family uh in a timely
+- [03:38.120] fashion we're going to work on
+- [03:39.239] congestion work on an airspace that is
+- [03:42.680] more efficient getting people uh to uh
+- [03:45.840] fly in airplanes and not wait in
+- [03:47.599] terminals uh is uh is our mission but I
+- [03:50.799] think we're in an amazing time as well
+- [03:52.680] because when you think of the Department
+- [03:54.040] of Transportation you don't think of
+- [03:55.319] innovation and we are in one of the most
+- [03:57.360] Innovative spaces I think in government
+- [03:59.840] uh Mr Vice President whether it's with
+- [04:01.879] drones or autonomous vehicles uh or evls
+- [04:05.840] or to say uh Ubers in the air another
+- [04:09.079] term for them but we are in a race uh to
+- [04:12.280] beat the rest of the world and to make
+- [04:13.680] sure we have rules in place that are
+- [04:15.159] going to make America the best home for
+- [04:16.880] this Innovation uh is critical we are
+- [04:18.919] going to work uh on that at the
+- [04:20.639] Department of Transportation 47,000
+- [04:23.560] employees strong um I guess that's not
+- [04:26.160] going to grow at all uh with the new
+- [04:28.840] executive order uh but it's a great team
+- [04:31.000] and I look forward to working with them
+- [04:32.440] and again I'm honored uh that you did
+- [04:34.840] this today Mr Vice President I'm honored
+- [04:36.840] uh for the president and his trust that
+- [04:38.199] he's placed to me and uh with that let's
+- [04:40.720] get to work thank you
+- [04:43.550] [Applause]
+- [04:43.730] [Laughter]
+- [04:47.200] [Applause]
+- [05:05.120] all right guys um I think take some
+- [05:09.120] photos she's a bit of a
+- [05:11.010] [Laughter]
+- [05:15.560] hugger right here we go all
+- [05:20.639] right
+- [05:24.759] right Marsha were you talking to me or
+- [05:27.080] talking to
+- [05:29.759] now to make this fully official we've
+- [05:31.560] got to sign this so let's take this and
+- [05:34.039] thank you all for being here God bless
+- [05:35.600] you take care
+- [05:37.919] guys come come back with us
+- [05:45.520] [Music]

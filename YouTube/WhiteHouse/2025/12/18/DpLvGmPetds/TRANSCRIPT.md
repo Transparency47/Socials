@@ -1,0 +1,389 @@
+<!-- source: https://www.youtube.com/watch?v=DpLvGmPetds -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: DpLvGmPetds -->
+<!-- date_published: 2025-12-18T02:29:18+00:00 -->
+<!-- date_accessed: 2026-06-02T02:40:06.022856+00:00 -->
+
+# Transcript: President Trump Delivers an Address to the Nation, Dec. 17, 2025
+
+- [00:03.900] The President: Good evening, America.
+- [00:05.305] Eleven months ago, I inherited a mess and
+- [00:08.908] I'm fixing it.
+- [00:10.176] When I took office, inflation was the worst in
+- [00:12.645] 48 years and some would say in the history of our
+- [00:16.316] country, which caused prices to be higher than
+- [00:19.552] ever before, making life unaffordable for millions
+- [00:23.189] and millions of Americans.
+- [00:25.592] This happened during a Democrat administration
+- [00:29.062] and it's when we first began hearing the word
+- [00:31.965] affordability.
+- [00:33.733] Our border was open and because of this, our
+- [00:36.236] country was being invaded by an army of 25 million
+- [00:40.273] people, many who came from prisons and jails and
+- [00:43.476] mental institutions and insane asylums.
+- [00:47.080] They were drug dealers, gang members, and even
+- [00:50.116] 11,888 murderers, more than 50 percent of whom
+- [00:55.355] killed more than one person.
+- [00:57.824] This is what the Biden administration allowed to
+- [01:00.693] happen to our country and it can never be allowed
+- [01:04.364] to happen again.
+- [01:06.299] We had men playing in women's sports,
+- [01:08.835] transgender for everybody, crime at record levels
+- [01:12.839] with law enforcement and words such as that, just
+- [01:16.976] absolutely forbidden.
+- [01:19.279] We had the worst trade deals ever made in our
+- [01:21.915] country, was laughed at from all over the world,
+- [01:25.285] but they're not laughing anymore.
+- [01:28.188] Over the past 11 months, we have brought more
+- [01:31.224] positive change to Washington than any
+- [01:34.194] administration in American history.
+- [01:36.596] There has never been anything like it, and I
+- [01:40.033] think most would agree.
+- [01:42.135] I was elected in a landslide, winning the
+- [01:44.504] popular vote and all seven swing states and
+- [01:48.274] everything else, with a mandate to take on a sick
+- [01:53.046] and corrupt system that extra -- really, just took
+- [01:57.484] the wealth from people and crushed the dreams of the
+- [02:00.253] American people.
+- [02:01.855] For the last four years, the United States was
+- [02:04.724] ruled by politicians who fought only for insiders,
+- [02:08.862] illegal aliens, career criminals, corporate
+- [02:11.965] lobbyists, prisoners, terrorists and above all,
+- [02:14.667] foreign nations which took advantage of us at levels
+- [02:18.738] never seen before.
+- [02:20.340] They flooded your cities and towns with illegal
+- [02:23.243] aliens.
+- [02:24.310] They decimated your hard-earned savings.
+- [02:26.813] They indoctrinated your children with hate for
+- [02:29.616] America.
+- [02:30.483] Really, I mean, they just released a level of
+- [02:31.918] violent felons that we had never seen, to prey on
+- [02:34.521] innocent.
+- [02:39.025] They caused war.
+- [02:40.460] They caused mayhem.
+- [02:42.095] They caused a horrible situation all over the
+- [02:45.465] globe.
+- [02:46.165] But now you have a president who fights for
+- [02:48.835] the law-abiding hard-working people of our
+- [02:51.304] country, the ones who make this nation run, who make
+- [02:55.441] this nation work.
+- [02:57.210] And after just one year, we have achieved more than
+- [03:00.013] anyone could have imagined.
+- [03:01.915] Starting on day one, I took immediate action to
+- [03:04.751] stop the invasion of our southern border.
+- [03:07.554] For the past seven months, zero illegal aliens have
+- [03:10.490] been allowed into our country, a feat which
+- [03:13.426] everyone said was absolutely impossible.
+- [03:15.962] Do you remember when Joe Biden said that he needed
+- [03:19.265] Congress to pass legislation to help close
+- [03:21.935] the border?
+- [03:23.202] He was always blaming Congress and everyone
+- [03:25.638] else.
+- [03:26.306] As it turned out, we didn't need legislation,
+- [03:29.375] we just needed a new president.
+- [03:31.911] We inherited the worst border anywhere in the
+- [03:34.147] world and we quickly turned it into the
+- [03:36.616] strongest border in the history of our country.
+- [03:39.218] In other words, in a few short months, we went from
+- [03:43.356] worst to best.
+- [03:45.558] We're deporting criminals, restoring safety to our
+- [03:48.261] most dangerous cities.
+- [03:49.996] Just take a look at Washington DC, it's at
+- [03:53.399] levels of safety that we've never seen before,
+- [03:57.704] and they decimated the bloodthirsty foreign drug
+- [04:01.174] cartels.
+- [04:02.208] We did that all by ourselves with our people,
+- [04:05.111] and we're so proud of it, because they were
+- [04:07.313] poisoning and destroying our population.
+- [04:11.084] Drugs brought in by ocean and by sea are now down 94
+- [04:16.623] percent.
+- [04:17.824] We have broken the grip of sinister woke radicals in
+- [04:21.194] our schools and control over those schools is back
+- [04:25.698] now in the hands of our great and loving states,
+- [04:29.168] where education belongs.
+- [04:31.437] After rebuilding the United States military in
+- [04:34.007] my first term and with the addition we are adding
+- [04:37.343] right now, we have the most powerful military
+- [04:41.981] anywhere in the world and it's not even close.
+- [04:45.585] I've restored American strength, settled eight
+- [04:48.321] wars in 10 months, destroyed the Iran nuclear
+- [04:51.324] threat and ended the war in Gaza, bringing for the
+- [04:53.993] first time in 3,000 years, peace to the Middle East
+- [04:57.964] and secured the release of the hostages both living
+- [05:02.769] and dead.
+- [05:04.003] Here at home, we're bringing our economy back
+- [05:06.806] from the brink of ruin.
+- [05:08.441] The last administration and their allies in
+- [05:10.877] Congress looted our treasury for trillions of
+- [05:13.279] dollars, driving up prices and everything at levels
+- [05:16.883] never seen before.
+- [05:18.484] I am bringing those high prices down and bringing
+- [05:21.854] them down very fast.
+- [05:23.823] Let's look at the facts.
+- [05:25.725] Under the Biden administration, car prices
+- [05:28.695] rose 22 percent, and in many states, 30 percent or
+- [05:32.198] more.
+- [05:33.166] Gasoline rose 30 to 50 percent.
+- [05:36.402] Hotel rates rose 37 percent.
+- [05:38.971] Airfares rose 31 percent.
+- [05:41.007] Now under our leadership, they are all coming down
+- [05:44.043] and coming down fast.
+- [05:45.745] Democrat politicians also sent the cost of groceries
+- [05:49.248] soaring, but we are solving that too.
+- [05:52.218] The price of a Thanksgiving turkey was
+- [05:54.587] down 33 percent compared to the Biden last year.
+- [05:59.125] The price of eggs is down 82 percent since March and
+- [06:03.396] everything else is falling rapidly and it's not done
+- [06:07.467] yet, but boy, are we making progress.
+- [06:09.569] Nobody can believe what's going on.
+- [06:12.105] Here are just some of the efforts that we have
+- [06:14.273] underway you will see in your wallets and bank
+- [06:17.310] accounts in the new year.
+- [06:19.045] After years of record-setting falling
+- [06:21.314] incomes, our policies are boosting, take home pay at
+- [06:24.717] a historic pace.
+- [06:26.319] Under Biden, real wages plummeted by $3,000.
+- [06:30.623] Under Trump, the typical factory worker has seen a
+- [06:35.762] wage increase of $1,300.
+- [06:38.297] For construction workers, it's $1,800.
+- [06:41.567] For miners, we're bringing back clean, beautiful
+- [06:44.570] coal, it's $3,300.
+- [06:47.406] And for the first time in years, wages are rising
+- [06:51.344] much faster than inflation.
+- [06:53.980] Remember that, rate -- wages, just look at it,
+- [06:57.283] wages are going up much faster than inflation.
+- [07:01.721] How big is that?
+- [07:03.422] Very importantly, there are more people working
+- [07:05.725] today than at any time in American history, and 100
+- [07:09.762] percent of all jobs created since I took
+- [07:12.365] office have been in the private sector.
+- [07:14.967] Think of that, 100 percent of all jobs have been in
+- [07:19.672] the private sector rather than government, which is
+- [07:22.809] the only way to make a country powerful and
+- [07:26.512] great.
+- [07:27.380] This historic trend will continue.
+- [07:29.282] Already, I've secured a record breaking $18
+- [07:32.885] trillion of investment into the United States,
+- [07:35.855] which means jobs, wage increases, growth, factory
+- [07:39.492] openings and far greater, national security.
+- [07:43.229] Much of this success has been accomplished by
+- [07:46.632] tariffs.
+- [07:48.000] My favorite word, tariffs, which for many decades
+- [07:51.504] have been used successfully by other
+- [07:53.406] countries against us, but not anymore.
+- [07:56.843] Companies know that if they build in America,
+- [07:59.679] there are no tariffs and that's why they're coming
+- [08:02.381] home to the USA in record numbers.
+- [08:04.884] They're building factories and plants at levels we
+- [08:08.254] haven't seen, AI, automobiles.
+- [08:11.123] We're doing what nobody thought was even possible,
+- [08:14.160] not even remotely possible.
+- [08:16.462] There has never, frankly, been anything like it.
+- [08:19.966] One year ago, our country was dead.
+- [08:22.101] We were absolutely dead.
+- [08:24.303] Our country was ready to fail, totally fail.
+- [08:27.506] Now we're the hottest country anywhere in the
+- [08:31.244] world and that's said by every single leader that
+- [08:34.347] I've spoken to over the last five months.
+- [08:36.616] Next year, you will also see the results of the
+- [08:40.119] largest tax cuts in American history that were
+- [08:43.623] really accomplished through our Great, Big,
+- [08:46.792] Beautiful Bill, perhaps the most sweeping
+- [08:48.861] legislation ever passed in Congress.
+- [08:51.464] We wrapped 12 different bills up into one
+- [08:55.201] beautiful bill.
+- [08:56.102] That includes no tax on tips, no tax on overtime
+- [09:00.273] and no tax on Social Security for our great
+- [09:03.943] seniors.
+- [09:05.111] Under these cuts, many families will be saving
+- [09:08.014] between $11,000 and $20,000 a year, and next
+- [09:13.152] spring is projected to be the largest tax refund
+- [09:16.155] season of all time.
+- [09:17.823] Because of tariffs, along with the just passed One
+- [09:21.861] Big, Beautiful Bill, tonight, I am also proud
+- [09:25.164] to announce that more than 1,450,000, think of this,
+- [09:32.538] 1,450,000 military service members will receive a
+- [09:37.076] special we call Warrior Dividend before Christmas,
+- [09:41.514] a Warrior dividend.
+- [09:43.282] In honor of our nation's founding in 1776, we are
+- [09:48.087] sending every soldier $1,776.
+- [09:54.560] Think of that.
+- [09:55.795] And the checks are already on the way.
+- [09:58.831] Nobody understood that one until about 30 minutes
+- [10:02.368] ago.
+- [10:03.269] We made a lot more money than anybody thought
+- [10:05.504] because of tariffs and the bill helped us along.
+- [10:08.507] Nobody deserves it more than our military and I
+- [10:11.043] say congratulations to everybody.
+- [10:13.312] And by the way, we now have record enlistment in
+- [10:16.415] our military.
+- [10:17.116] And last year, we had among the worst
+- [10:18.884] recruitment numbers in our military's history.
+- [10:21.854] What a difference a year makes.
+- [10:23.656] In addition, I'm doing what no politician of
+- [10:26.726] either party has ever done, standing up to the
+- [10:29.962] special interests to dramatically reduce the
+- [10:32.198] price of prescription drugs.
+- [10:34.333] I negotiated directly with the drug companies and
+- [10:37.203] foreign nations, which were taking advantage of
+- [10:40.106] our country for many decades, to slash prices
+- [10:43.275] on drugs and pharmaceuticals by as much
+- [10:45.611] as 400, 500 and even 600 percent.
+- [10:50.983] In other words, your drug costs will be plummeting
+- [10:53.552] downward and I use the threat of tariffs to get
+- [10:56.756] foreign countries who would never have done it
+- [10:59.225] to pay the cost of this giant dollar reduction.
+- [11:02.895] They stop ripping us off and it began as of four
+- [11:07.133] days ago.
+- [11:08.467] There has never been anything like this in the
+- [11:10.736] history of our country.
+- [11:11.804] Drugs have only gone up, but now they'll be going
+- [11:15.341] down by numbers never conceived possible.
+- [11:18.644] It's called Most Favored Nation and no president
+- [11:22.481] has ever had the courage or ability to get this
+- [11:25.084] done until now.
+- [11:26.619] The first of these unprecedented price
+- [11:28.854] reductions will be available starting in
+- [11:30.756] January through a new website, TrumpRX.gov.
+- [11:36.128] And these big price cuts will greatly reduce the
+- [11:38.597] cost of health care.
+- [11:40.166] I'm also taking on the gigantic health insurance
+- [11:43.636] companies that have gotten rich on billions of
+- [11:46.605] dollars of money that should go directly to the
+- [11:49.141] people.
+- [11:49.842] The money should go to the people.
+- [11:51.710] That's you.
+- [11:52.711] So they can buy their own health insurance, which
+- [11:55.748] will give far better benefits at much lower
+- [11:58.651] costs.
+- [11:59.318] It will be far better health insurance.
+- [12:02.388] The current Unaffordable Care Act was created to
+- [12:05.057] make insurance companies rich.
+- [12:07.493] It was bad health care at much too high a cost and
+- [12:10.863] you see that now in the steep increase in premiums
+- [12:13.966] being demanded by the Democrats and they are
+- [12:16.335] demanding those increases and it's their fault.
+- [12:19.405] It is not the Republicans fault, it's the Democrats
+- [12:22.842] fault.
+- [12:23.976] It's the Unaffordable Care Act and everybody knew it.
+- [12:27.746] Again, I want the money to go directly to the people
+- [12:30.649] so you can buy your own health care, you'll get
+- [12:32.918] much better health care at a much lower price.
+- [12:36.155] The only losers will be insurance companies that
+- [12:39.125] have gotten rich and the Democrat Party, which is
+- [12:41.594] totally controlled by those same insurance
+- [12:43.596] companies.
+- [12:44.663] They will not be happy, but that's OK with me
+- [12:47.566] because you -- the people are finally going to be
+- [12:49.802] getting great health care at a lower cost.
+- [12:52.671] Another major focus is the cost of energy.
+- [12:56.208] For years, the radical left Democrats exploited
+- [12:59.345] the green energy scam as an excuse to funnel many
+- [13:03.015] billions of dollars into their own massive slush
+- [13:05.551] funds as their energy restrictions drastically
+- [13:08.821] drove up prices and they drove them up at record
+- [13:11.891] levels.
+- [13:12.725] Electricity costs surged 30 to 100 percent under
+- [13:16.529] Biden and the typical family lost $5,000 to
+- [13:20.032] $10,000 in higher energy costs.
+- [13:22.101] Think of that, $5,000 to $10,000 you lost on day
+- [13:27.573] one, I declared a national energy emergency.
+- [13:31.043] Gasoline is now under $2.50 a gallon and in much
+- [13:35.447] of the country in some states it by the way just
+- [13:38.884] hit $1.99 a gallon.
+- [13:42.321] And within the next 12 months, we will have
+- [13:44.423] opened 1,600 new electrical generating
+- [13:48.027] plants, a record and it's a record that won't be
+- [13:50.863] beaten by practically, I would say by anybody or
+- [13:54.767] certainly not very soon.
+- [13:56.135] Prices on electricity and everything else will fall
+- [13:59.338] dramatically.
+- [14:00.506] The Democrat inflation disaster again the worst
+- [14:04.143] in the history of our country, also robbed
+- [14:06.845] millions of Americans of homeownership and indeed
+- [14:09.748] the American Dream.
+- [14:11.517] The yearly cost of a typical new mortgage
+- [14:13.953] increased by $15,000 under Democrat rule.
+- [14:18.724] In 11 months we've already gotten that annual cost
+- [14:22.228] down by $3,000 and it's coming down a lot lower.
+- [14:26.398] Wait till you see.
+- [14:27.433] The numbers are going to be shocking and I'll soon
+- [14:30.135] announce our next chairman of the Federal Reserve.
+- [14:32.905] Someone who believes in lower interest rates by a
+- [14:36.208] lot and mortgage payments will be coming down even
+- [14:39.878] further early in the new year.
+- [14:42.114] And you will see this.
+- [14:43.415] In the new year, I will announce some of the most
+- [14:46.218] aggressive housing reform plans in American history.
+- [14:49.955] A major factor in driving up housing costs was the
+- [14:52.691] colossal border invasion.
+- [14:55.461] We have never been invaded.
+- [14:56.996] This is the worst thing that, frankly, in my
+- [15:01.100] opinion, the worst thing that the Biden
+- [15:03.102] administration did to our country is the invasion at
+- [15:06.872] the border.
+- [15:07.906] The last administration and their allies in
+- [15:10.276] Congress brought in millions and millions of
+- [15:12.911] migrants and gave them taxpayer-funded housing
+- [15:15.948] while your rent and housing costs skyrocketed.
+- [15:18.951] Over 60 percent of growth in the rental market came
+- [15:21.987] from foreign migrants.
+- [15:23.756] At the same time, illegal aliens stole American jobs
+- [15:27.126] and flooded emergency rooms, getting free health
+- [15:29.595] care and education paid for by you, the American
+- [15:32.898] taxpayer.
+- [15:33.966] They also increased the cost of law enforcement by
+- [15:37.236] numbers so high that they are not even to be
+- [15:40.272] mentioned.
+- [15:41.307] For the first time in 50 years, we are now seeing
+- [15:44.009] reverse migration as migrants go back home,
+- [15:47.079] leaving more housing and more jobs for Americans.
+- [15:50.749] In the year before my election, all net creation
+- [15:54.353] of jobs was going to foreign migrants.
+- [15:57.656] Since I took office, 100 percent of all net job
+- [16:02.594] creation has gone to American-born citizens,
+- [16:06.999] 100 percent.
+- [16:09.234] In the end government either serves the
+- [16:12.104] productive patriotic hardworking American
+- [16:14.707] citizen or it serves.
+- [16:15.908] Those who break the laws cheat the system and seek
+- [16:19.778] power and profit at the expense of our nation.
+- [16:23.916] Look at Minnesota where Somalians have taken over
+- [16:26.885] the economics of the state and have stolen billions
+- [16:30.155] and billions of dollars from Minnesota and indeed
+- [16:33.525] from the United States of America.
+- [16:35.527] And we're going to put an end to it for so long as
+- [16:38.964] before my election, the vast majority of good and
+- [16:42.234] decent Americans were forced to watch as corrupt
+- [16:45.104] politicians, plundered the halls of power, exploited
+- [16:48.874] our taxpayers and pillaged every system that makes
+- [16:52.010] civilized society function.
+- [16:54.279] But not anymore and you see that every day, not
+- [16:57.416] anymore.
+- [16:58.450] We're putting America first and we are making
+- [17:00.786] America great again, very simple.
+- [17:02.921] We are making America great again tonight after
+- [17:06.959] 11 months, our border is secure, inflation is
+- [17:10.262] stopped, wages are up, prices are down, our
+- [17:13.365] nation is strong, America is respected and our
+- [17:17.569] country is back, stronger than ever before.
+- [17:22.274] We're poised for an economic boom the likes of
+- [17:24.843] which the world has never seen soon.
+- [17:27.413] We will host the World Cup and the Olympics, both of
+- [17:30.916] which I got.
+- [17:32.117] But most importantly, we will celebrate the 250th
+- [17:35.554] anniversary of the Declaration of
+- [17:38.090] Independence.
+- [17:39.425] There could be no more fitting tribute to this
+- [17:43.495] epic milestone than to complete the comeback of
+- [17:46.865] America that began just one year ago.
+- [17:50.669] When the world looks at us next year, let them see a
+- [17:53.639] nation that is loyal to its citizens, faithful to
+- [17:56.708] its workers, confident to its identity, certain to
+- [18:00.446] its destiny and the envy of the entire globe.
+- [18:04.850] We are respected again like we have never been
+- [18:07.820] respected before.
+- [18:09.521] To each and every one of you have a Merry Christmas
+- [18:13.292] and a Happy New Year.
+- [18:14.860] God bless you all.

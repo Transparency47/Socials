@@ -1,0 +1,452 @@
+<!-- source: https://www.youtube.com/watch?v=H-WBonN12QA -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: H-WBonN12QA -->
+<!-- date_published: 2026-05-01T19:13:52+00:00 -->
+<!-- date_accessed: 2026-06-02T01:00:37.100607+00:00 -->
+
+# Transcript: President Trump Gaggles with Press Before Departing the White House, May 1, 2026
+
+- [00:02.940] The Press: Can you tell us
+- [00:03.900] about the new Iranian proposal, please?
+- [00:08.520] The President: So they want to make a deal, but I don't --
+- [00:10.960] I'm not satisfied with it, so we'll see what happens.
+- [00:14.010] Iran wants to make the deal
+- [00:16.890] because they have no military left, essentially.
+- [00:20.090] And they want a make a deal. But I'm satisfied.
+- [00:26.900] The Press: Why are you not seeking congressional approval
+- [00:29.110] to extend it?
+- [00:30.310] The President: Because it's never been sought before.
+- [00:32.110] There's been numerous, many, many times,
+- [00:34.270] and nobody's ever gotten it before.
+- [00:36.190] They consider it totally unconstitutional.
+- [00:38.620] But we're always in touch with Congress.
+- [00:41.040] But nobody's every sought it before,
+- [00:43.080] nobody's asked for it before, it's ever been used before.
+- [00:47.990] Why should we be different?
+- [00:49.660] The Press: (inaudible)
+- [00:50.950] anybody to Islamabad this time?
+- [00:55.420] Are you willing to send anyone to Islamabad?
+- [00:59.040] You're envoys.
+- [01:00.300] The President: We have great respect
+- [01:01.900] for Pakistan and Islamabad
+- [01:05.060] and tremendous respect for the Prime Minister
+- [01:07.680] and the Field Marshal. And they're working with us.
+- [01:10.320] They continue to work with us, but the trip is a very long one.
+- [01:14.220] And we're doing everything in terms of negotiating, right now.
+- [01:19.250] In terms the negotiation telephonically.
+- [01:23.660] They've made strides, but I'm not sure if they ever get there.
+- [01:30.380] There's tremendous discord, there's tremendous --
+- [01:34.000] they're having a tremendous problem
+- [01:35.370] getting along with each other in Iran.
+- [01:38.030] The leadership is very disjointed.
+- [01:40.920] It's got two to three groups, maybe four,
+- [01:44.000] and it's a very disjointed leadership.
+- [01:46.920] And with that being said, they all want to make a deal,
+- [01:50.210] but they're all messed up.
+- [01:59.920] I spoke with the winner, a very good man.
+- [02:05.030] As you know, I was very strongly in favor of him in Iraq.
+- [02:09.980] We had a long conversation yesterday.
+- [02:12.510] I congratulated him. He won, and with our help, he won.
+- [02:17.370] And we want him to do very well.
+- [02:19.110] And I told him that the United States
+- [02:21.470] is with him all the way. It was a great victory.
+- [02:25.530] The new head of Iraq is somebody that we support very strongly.
+- [02:32.460] The Press: Thank you Mr. President.
+- [02:33.780] Pakistan has opened the land route with Iran.
+- [02:37.850] Did they consult you before opening it up to Iran and --
+- [02:42.150] The President: That was a vicious bee.
+- [02:46.300] I know everything about it, yeah.
+- [02:47.710] I have great respect. Are you from Pakistan?
+- [02:52.090] I have a great respect for Pakistan
+- [02:55.020] and for the Field Marshal and for Prime Minister.
+- [02:57.550] Yeah, I know about it.
+- [02:58.750] The President: On the European Union yesterday,
+- [03:00.320] you talked about Italy
+- [03:01.520] and the withdrawal of troops from Europe,
+- [03:04.350] from Italy and Spain. Can you clarify your words?
+- [03:07.180] The President: Well, I'm not happy with Italy
+- [03:08.610] and I'm not happy Spain.
+- [03:11.030] And they've done -- they don't --
+- [03:12.880] they feel it's okay for Iran to have a nuclear weapon.
+- [03:16.590] Anybody that feels it's okay for Iraq
+- [03:19.470] to have a nuclear weapons is not very smart.
+- [03:22.810] And it'll be a terrible thing in the future.
+- [03:25.940] If they were ever allowed to have a nuclear weapon,
+- [03:29.020] you would have problems the likes of which
+- [03:31.670] the world has never seen before, and it's not going to happen.
+- [03:35.760] And aside from that, right now they have no Navy.
+- [03:39.090] It's been wiped out. No Air Force.
+- [03:40.890] It's being wiped out, they have know anything.
+- [03:43.360] They have no anti-aircraft. They have no radar.
+- [03:46.450] They have no leaders because, frankly,
+- [03:49.020] their leaders are very disjointed.
+- [03:51.880] They have a lot of problems right now.
+- [03:53.520] They're not getting along with each other.
+- [03:58.140] Their leaders are not getting along with each other, so.
+- [04:01.330] The Press: (inaudible) why did you put the tariff?
+- [04:07.310] The President: We raised the tariffs on cars
+- [04:09.140] coming in from the European Union
+- [04:11.790] because the European Union was not adhering
+- [04:14.350] to the trade-deal we have. So based on that.
+- [04:17.460] Now, when they build their plants,
+- [04:19.290] of which we're spending --
+- [04:20.500] they're spending over a hundred billion dollars,
+- [04:22.940] all countries, not just the Union.
+- [04:25.340] When those plants open, there won't be any tariffs,
+- [04:27.550] But we raised the tariffs because they were not --
+- [04:30.940] as usual, they were not adhering to the agreement that we have.
+- [04:34.470] We have a trade deal with the European Union.
+- [04:36.870] They were not adhering it.
+- [04:38.960] So I raised the tariff on cars and trucks to 25 percent.
+- [04:44.180] That's billions of dollars coming into the United States,
+- [04:47.140] and it forces them to move their factory production much faster.
+- [04:54.570] We have -- we have, right now, in the United States,
+- [04:57.700] over $100 billion of car plants being built.
+- [05:01.040] It's a record. We've never had anything like it.
+- [05:03.880] From all countries -- Japan, South Korea, every --
+- [05:07.790] by the way, Canada, Mexico --
+- [05:09.940] they're all building plants in the U.S.
+- [05:12.390] But the European Union was not adhering
+- [05:15.230] to the deal that we made.
+- [05:25.670] So we're dealing with Iran, as you know,
+- [05:27.310] it's a very disjointed, unfriendly leadership,
+- [05:30.260] unfriendlier to each other. They're not getting along.
+- [05:33.710] They're very, very confused by what's happened,
+- [05:36.240] because essentially,
+- [05:37.770] most of their military has been wiped out.
+- [05:40.390] But we just had a conversation with Iran.
+- [05:42.450] Let's see what happens.
+- [05:43.680] But I would say that I am not happy.
+- [05:48.730] Their leadership is very disjoined,
+- [05:51.810] very argumentative with each other.
+- [05:54.140] They come back.
+- [05:55.360] One says one thing, one says another.
+- [05:57.990] They're very confused.
+- [05:59.910] Obviously, their country has been frankly decimated.
+- [06:04.240] Their Navy is gone, their Air Force is gone.
+- [06:07.000] Many of their soldiers, unfortunately, are gone.
+- [06:11.890] They've got to come up with a (inaudible).
+- [06:13.590] At this moment, I'm not satisfied with what they do.
+- [06:18.600] The Press: Did you decide against bailing out
+- [06:20.180] Spirit Airlines?
+- [06:21.740] The President: Well, I guess we're looking at it.
+- [06:23.160] If we can do it, we'll do it. But only if it's a good deal.
+- [06:25.200] The Press: They're claiming that they're preparing
+- [06:26.590] to shut down this weekend
+- [06:27.820] because they haven't gotten a deal.
+- [06:29.050] The President: Well, we're look at it,
+- [06:30.260] but if we can't make a good deal,
+- [06:31.570] no institution is able to do it.
+- [06:34.020] I said, I'd like to save the jobs,
+- [06:36.240] but we'll have an announcement sometime today.
+- [06:38.150] We gave them -- we gave them a final proposal.
+- [06:46.030] The Press: Mr. President, day 60,
+- [06:47.570] are you going to seek congressional authorization?
+- [06:49.650] The President: Well, no other country has ever done it.
+- [06:53.210] It's never been in, as you know.
+- [06:55.600] Most people consider it totally unconstitutional.
+- [06:59.040] Also, we had a ceasefire, so that gives you additional time.
+- [07:02.630] But no other countries done it,
+- [07:04.540] we're in the midst of a big victory.
+- [07:06.630] This is a victory like we haven't had
+- [07:09.100] since Venezuela, okay,
+- [07:10.680] to be honest with you, we haven't had.
+- [07:12.720] But, you know, we have a country
+- [07:14.210] that lost its way, really lost its way.
+- [07:18.510] That's our country in terms of the military.
+- [07:21.180] Now we have a great military.
+- [07:23.220] We're on our way to another victory, a big victory.
+- [07:26.430] And I don't think that it's constitutional
+- [07:29.030] what they're asking for.
+- [07:30.480] These are not patriotic people that are asking.
+- [07:33.020] You know, when they say -- even the losers,
+- [07:36.610] even the ones that say all the wrong things admit
+- [07:40.120] that it's been amazing what we've done.
+- [07:42.760] The straight is totally shut down,
+- [07:45.140] it's flawless, it is totally 100% shut down.
+- [07:49.720] We've been dealing with Iran, they want to make a deal,
+- [07:53.260] they're not there, they get close
+- [07:58.840] and then a new group of people come in.
+- [08:00.900] They don't know who their leaders are.
+- [08:02.840] They have no idea who their leaders are,
+- [08:05.530] but they're very confused
+- [08:07.780] and that's because of the success we've had militarily.
+- [08:10.730] They essentially have no military.
+- [08:16.660] Let me just tell you (inaudible) war power.
+- [08:19.110] So, many presidents, as you know,
+- [08:20.870] have gone and exceeded it. It's never been used.
+- [08:25.520] It's ever been adhered to, and every other president
+- [08:27.950] considered it totally unconstitutional.
+- [08:31.050] And we agree with that.
+- [08:38.460] The Press: Will Iran affect your China trip
+- [08:40.060] given the (inaudible)?
+- [08:41.340] The President: No.
+- [08:42.690] The China -- it's going to be amazing.
+- [08:45.560] The visit with China and Chairman Xi,
+- [08:47.730] that's going to be great.
+- [08:52.350] We have the trip with China coming up,
+- [08:55.100] and I think it will be an amazing event.
+- [09:04.030] The Press: Mr. President, if you can't get a deal on Iran,
+- [09:06.900] what then? What would you do?
+- [09:09.090] The President: Well, right now we have negotiations going on.
+- [09:12.380] They're not getting there. They are very disjointed.
+- [09:16.110] They're extremely disjointed.
+- [09:18.520] They're able to get along with each other as leaders.
+- [09:21.050] They don't know who the leader is.
+- [09:23.980] Their military has been defeated.
+- [09:25.470] We've had a -- if we left right now,
+- [09:27.590] it would take them 20 years to build back that country.
+- [09:30.080] But we're not satisfied at this point.
+- [09:41.920] The Press: Are you considering new strikes on Iran?
+- [09:43.920] The President: Why would I tell you that?
+- [09:47.140] The Press: At Spirit Airlines,
+- [09:48.370] what has been the holdup on a deal?
+- [09:49.870] The President: We're looking at it,
+- [09:51.150] we're looking and trying to help them,
+- [09:52.750] something we're not looking to get involved with,
+- [09:54.710] but we've done a 14,000 job.
+- [09:58.040] We are, I would say we're driving a touch deal,
+- [10:01.290] but it's one of those things. We'll do it or we won't.
+- [10:03.910] We'll have something for you today or tomorrow.
+- [10:05.840] The Press: It seems like the other lenders are baulking.
+- [10:07.960] They think they'll get bumped down in priority.
+- [10:09.790] The President: Well, they will, and we come first.
+- [10:12.330] Hey, you know what it is? USA first, America first,
+- [10:16.830] including with airlines, including with Intel.
+- [10:19.810] You know, we made an Intel deal.
+- [10:21.390] You know that, right? Made about $40 billion on that.
+- [10:25.010] And someday Fox and Peter is going to talk about it.
+- [10:27.430] But we helped out Intel and we ended up making $40 billion.
+- [10:32.720] So we're looking at Spirit different,
+- [10:35.670] different kind of a thing, but we're looking at Spirit
+- [10:37.830] and if we can help them we will. But we have to come first.
+- [10:41.280] We're first. It's American first.
+- [10:42.520] The Press: (inaudible)
+- [10:43.720] came to meet Suzy Wiles a week or two ago.
+- [10:47.240] What is the latest on your position on that company?
+- [10:49.370] The President: Well, only that they had a very good meeting.
+- [10:52.340] The Press: You had the Z-COM commander
+- [10:54.050] come in here yesterday,
+- [10:55.850] was he briefing you on a different approach, options.
+- [10:59.310] What kind of options? How would it look different?
+- [11:01.070] The President: Well there are options.
+- [11:02.320] I mean, do we want to go
+- [11:03.530] and just blast the hell out of them
+- [11:05.070] and finish them forever,
+- [11:06.860] or do we want to try and make a deal?
+- [11:08.760] I mean those are the options.
+- [11:10.080] The Press: Do you want to blast the hell out of him
+- [11:11.780] and finish him forever?
+- [11:13.880] The President: On a human basis, I'd prefer not,
+- [11:15.920] but that's the option, do we go in there heavy
+- [11:18.860] and just blast them away, or do want to do something?
+- [11:23.640] They're a very disjointed
+- [11:25.240] (Inaudible), as you can understand,
+- [11:26.790] they're very disjointed. I mean, they --
+- [11:30.740] they're not getting along with each other.
+- [11:33.060] And it puts us in a bad position.
+- [11:35.080] One group wants to make a certain deal.
+- [11:37.220] The other group wants a certain make a deal,
+- [11:39.940] including the hardliners.
+- [11:41.210] The hardliners want to make the deal, too.
+- [11:43.280] Why wouldn't they? They have no Navy.
+- [11:45.860] They have air force. They have anti-aircraft.
+- [11:49.650] They have no nothing.
+- [11:51.170] The Press: (inaudible)
+- [11:55.130] Because of all the firepower required for Epic Fury
+- [11:58.090] that there are people in the White House
+- [11:59.670] who are starting to worry about our inventory of bombs
+- [12:02.270] and missiles. Are you worried?
+- [12:03.600] The President: No, no,
+- [12:04.810] we have more than we've ever had, actually.
+- [12:08.210] Because all over the world, we have
+- [12:09.780] (inaudible). And we can take that if we need it.
+- [12:12.310] But all over world, we have tremendous amounts of
+- [12:14.920] (inaudible), the best.
+- [12:16.210] For instance, we're stocked and locked and loaded.
+- [12:19.070] Right now, we have more than double
+- [12:22.300] what we had when this started.
+- [12:24.600] But, you know, we're all over the world.
+- [12:26.560] We're in many, many different countries,
+- [12:28.310] many different places. All packed up.
+- [12:31.790] Now, what happened is Biden came in like a stupid fool,
+- [12:36.770] and he gave a lot of what we had to Ukraine.
+- [12:41.710] And it's $350 billion they spent.
+- [12:45.670] We don't do that. Everybody has to pay.
+- [12:47.880] The European Union pays us, but Biden didn't get money.
+- [12:51.480] He got nothing. He got nothing.
+- [12:54.220] But he gave a lot of the inventory away.
+- [12:56.540] Now, relatively speaking, it's not that much,
+- [12:59.590] but it was a lot of inventory.
+- [13:01.660] He gave it to Ukraine. We built it up,
+- [13:04.250] but we have inventory from all over the world.
+- [13:08.520] The Press: The G7 is in France. Will you go to it?
+- [13:11.220] The President: Probably.
+- [13:13.340] The Press: Did the King change your mind about NATO?
+- [13:18.890] The President: What about NATO?
+- [13:20.170] The Press: Did the King change your mind? King Charles?
+- [13:22.360] The President: No, no, the King and I had a great --
+- [13:24.680] he's just a great person. He's a high-quality person.
+- [13:28.720] I love the job he did in Congress.
+- [13:30.410] He actually got the Democrats to stand.
+- [13:33.160] He's -- he's a wonderful person.
+- [13:34.920] She's a wonderful lady, a wonderful queen.
+- [13:37.600] And we had a good time.
+- [13:39.050] The Press: Mr. President,
+- [13:41.490] will the Lebanese and Israeli leaders
+- [13:42.950] be meeting here soon at the White House?
+- [13:44.280] The President: Yeah, they're going to be coming.
+- [13:46.500] The Press: When you go to a--this
+- [13:48.040] is going to be your first big public event
+- [13:50.240] since somebody tried to kill you on Saturday.
+- [13:53.900] Do you feel safe going to something like this today?
+- [13:56.630] The President: I don't even think about it, Peter.
+- [14:01.410] The Press: Do you still support a pardon for Pete Rose, sir?
+- [14:05.390] The President: Oh, I think Pete Rose was great.
+- [14:07.650] I think he should have been in the Baseball Hall of Fame
+- [14:11.220] a long time ago. A long time before his death.
+- [14:15.310] I think baseball did a great disservice
+- [14:17.370] by not respecting his achievements on the field.
+- [14:20.500] He was a great player, I knew it.
+- [14:23.650] He was the great player.
+- [14:29.420] The Press: It seems like you're happy with your blockade
+- [14:32.070] and you don't have to restart the war
+- [14:34.320] or you don't need to make a deal.
+- [14:35.660] Is that correct? Are you happy with the blockade?
+- [14:38.430] The President: The blockade has been unbelievable,
+- [14:41.230] powerful, 100%. It's been actually unbelievable.
+- [14:46.140] If we left right now, we had a great victory,
+- [14:48.490] but we're not doing that. We're negotiating with them.
+- [14:54.020] Their teams are unbelievably disjointed,
+- [14:56.180] but we are negotiating.
+- [14:57.450] The Press: Mr. President, sir,
+- [14:58.930] NASDAQ and the S&P 500 hosted their biggest monthly gain
+- [15:02.990] since your first term, sir.
+- [15:05.490] Can you talk about what this means to you,
+- [15:07.370] the stock market performance,
+- [15:08.720] and do you believe that this is going to continue
+- [15:10.200] throughout the rest of your term?
+- [15:11.400] The President: Thank you.
+- [15:12.650] The stock market Iis hitting record numbers.
+- [15:15.010] We have more people working in the USA today
+- [15:17.570] than we've ever had working, as you know.
+- [15:21.310] It's in many ways --
+- [15:22.830] now, when this war ends, the gasoline and oil
+- [15:26.590] and everything is going to come tumbling down.
+- [15:28.860] But right now, as of this moment,
+- [15:31.660] the stock market has hit record high.
+- [15:35.030] We have more people, again,
+- [15:36.350] working in the United States today
+- [15:38.720] than at any time in the history of our country.
+- [15:41.560] We are really doing well. Now, gasoline is high.
+- [15:46.390] Other prices are way down, but gasoline is high.
+- [15:48.890] But when this is over, you'll have a world
+- [15:51.500] without a nuclear weapon with Iran.
+- [15:54.180] If you allow Iran to have a nuclear weapons,
+- [15:57.500] the world would be in great jeopardy.
+- [16:00.240] So it's not going to happen.
+- [16:02.630] As soon as the war ends, the gasoline prices are
+- [16:05.520] (inaudible).
+- [16:06.720] The Press: You're going down to the villages,
+- [16:08.780] you're going to be talking to our seniors,
+- [16:10.300] you've delivered for seniors,
+- [16:11.580] no tax on social security, most favored nation,
+- [16:14.210] can you talk about everything that you've done
+- [16:16.630] to help our senior population?
+- [16:18.660] The President: We have no tax on tips.
+- [16:20.960] We have the largest tax cuts in the history of our country
+- [16:23.750] also, and regulation cuts,
+- [16:25.990] and it's one of the reasons we're doing so well.
+- [16:28.160] So we have no tax on tips,
+- [16:30.070] no tax of Social Security for our seniors,
+- [16:32.840] we have no tax overtime.
+- [16:35.200] And you know, something that nobody talks about,
+- [16:37.520] if you buy a car, if it's American-made,
+- [16:40.240] you get a deduction on interest for income tax.
+- [16:44.990] And by the way, very important,
+- [16:47.960] right over there is the greatest --
+- [16:50.130] you're going to have the greatest ballroom ever built.
+- [16:53.710] It's on time, on budget, and it's doing great.
+- [16:57.700] The Press: Mr. President, you're going to be hosting
+- [17:00.790] the first-ever UFC fight at the White House
+- [17:03.870] in 45 days, sir. Can you preview the event?
+- [17:07.070] Can you talk about the card and what's it going to mean?
+- [17:08.920] The President: They have some of the greatest champions
+- [17:10.160] in the world.
+- [17:11.400] The arena, they've got to start building it over the next week.
+- [17:14.670] It's right here, it'll be about 5,000 seats.
+- [17:17.360] They'll have 100,000 people down by the ellipse
+- [17:20.360] with (inaudible).
+- [17:21.720] And it's all free, it's going to be great.
+- [17:36.130] The Press: What's your message to Americans
+- [17:37.910] who are facing the pain by gas prices?
+- [17:40.470] The President: Well, we just announced we have more people
+- [17:43.120] working in the United States today
+- [17:44.840] than ever before in history.
+- [17:47.080] Outside of the gasoline, prices are way down.
+- [17:49.720] Prices have come down. And I inherited that.
+- [17:53.750] We inherited the highest inflation
+- [17:55.990] in the history of our country, 48 years.
+- [17:58.310] But in the history of our country.
+- [18:02.710] And prices are down.
+- [18:04.440] When the war ends -- it shouldn't be too long.
+- [18:07.360] They want to make a deal so badly,
+- [18:09.010] but they're not there yet.
+- [18:10.890] They're not -- in my opinion, they're not there.
+- [18:13.710] When the war ends, gasoline prices are going to tumble
+- [18:16.870] because there is so much, right now, on the scene,
+- [18:20.510] already loaded into tankers --
+- [18:22.590] tankers that can't escape the straits.
+- [18:25.970] There is so much, like, record-setting.
+- [18:27.960] But when the war ends,
+- [18:30.080] gasoline prices will go down to the lowest they were.
+- [18:35.470] I think it's very important.
+- [18:38.510] The stock market just hit an all-time high.
+- [18:41.670] And, again, more people working today than at any time ever.
+- [18:45.760] And we just got the largest tax cut in history with the no-tax
+- [18:53.500] (inaudible). Go ahead.
+- [19:00.870] The Press: I love you, Mr. President.
+- [19:02.960] The President: I like you too.
+- [19:04.220] The Press: Thank you. Thank you, Mr. President.
+- [19:06.470] Mr. President, you said you sent weapons
+- [19:10.440] to help Iranian demonstrators.
+- [19:13.220] Some sort (inaudible),
+- [19:14.960] these weapons are in Sulaymaniyah,
+- [19:17.250] in Iraqi Kurdistan. Do you confirm that?
+- [19:20.460] And as you said, they will pay a big price.
+- [19:25.750] The President: I'm not happy
+- [19:27.340] with the delivery of the weapons.
+- [19:29.790] I'm no thrilled with it.
+- [19:31.310] But a small amount of weapons were sent,
+- [19:35.450] and we'll see who has them.
+- [19:37.470] But I'm not happy with what happened with the Kurds.
+- [19:41.300] The Kurds did not deliver the weapons
+- [19:44.160] (inaudible).
+- [19:48.225] The Press: (inaudible) what do you say about that?
+- [19:54.440] The President: We're doing great production,
+- [19:55.760] we're producing more oil right now.
+- [19:57.810] That's the other thing.
+- [19:59.100] We have more oil production right now
+- [20:01.270] than any time in history,
+- [20:03.250] and if you take a look at the ships,
+- [20:04.760] they're all coming up to Texas, Louisiana, Alaska.
+- [20:08.550] Did you see the line?
+- [20:10.420] What do they call it, the Tango, but that is some line of ships.
+- [20:14.940] They are all coming up. They're loading up.
+- [20:17.120] The biggest ships in the world are coming up to Louisiana,
+- [20:20.640] Texas, and to Alaska, and they're loading up.
+- [20:25.000] I don't want to say it,
+- [20:27.400] but our country is getting stronger and stronger.
+- [20:31.130] This has been amazing.
+- [20:32.930] The amount of oil and gas that we're selling now
+- [20:36.200] is at a level that nobody's ever seen before.
+- [20:42.450] The Press: Would you consider Ron DeSantis
+- [20:44.160] for a cabinet position?
+- [20:45.740] The President: Well, I like them a lot, so
+- [20:47.460] (inaudible) I like him a lot.
+- [20:50.590] The Press: With Iran, can you tell us
+- [20:51.850] that you're not satisfied with the plan right now?
+- [20:53.590] Can you tell us
+- [20:54.820] what specifically you're not satisfied with?
+- [20:57.340] The President: They're asking for things that I can't agree to.

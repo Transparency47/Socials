@@ -1,0 +1,515 @@
+<!-- source: https://www.youtube.com/watch?v=jBfm-1j30eE -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: jBfm-1j30eE -->
+<!-- date_published: 2026-02-11T22:03:01+00:00 -->
+<!-- date_accessed: 2026-06-02T02:38:00.196860+00:00 -->
+
+# Transcript: President Trump Participates in the Champion of Coal Event
+
+- [00:09.380] Announcer: Ladies and gentlemen,
+- [00:10.670] the President of the United States,
+- [00:12.370] Donald J. Trump.
+- [00:15.100] ♪ (Hail to the Chief) ♪
+- [00:41.260] (applause)
+- [01:06.970] The President: Clean, beautiful coal, clean,
+- [01:08.990] beautiful coal.
+- [01:12.430] We love clean, beautiful coal, don't we, Doug, huh?
+- [01:15.690] I'm thrilled to welcome to the White House,
+- [01:18.110] the men and women who light our cities.
+- [01:22.960] And you know, you do things that people don't even understand.
+- [01:26.280] It's so much. You do so much.
+- [01:28.150] You heat our homes, fuel our factories
+- [01:31.710] and turn natural resources into American riches and dreams.
+- [01:37.210] Our amazing coal miners, thank you very much, fellas.
+- [01:39.840] That's great.
+- [01:47.760] And I know you well. You know, I know you well.
+- [01:49.710] I think I get about 97 percent of your vote
+- [01:52.660] and you wouldn't want to do anything else.
+- [01:54.540] You wouldn't switch with a guy
+- [01:55.940] who had a beautiful penthouse apartment on Fifth Avenue.
+- [01:59.570] You wouldn't switch with that me.
+- [02:01.240] That was me.
+- [02:02.700] I had a nice, easy life and now I decided to do this,
+- [02:06.790] but you know what, we just hit the highest price
+- [02:09.390] in the history of the stock market, 50,000
+- [02:12.550] And a lot of people are getting rich
+- [02:14.520] with your 401-Ks and everything else.
+- [02:17.110] So our country is back.
+- [02:18.520] We have the hottest country anywhere in the world.
+- [02:20.390] So it's pretty cool, right? So I want to just tell you,
+- [02:22.740] I really appreciate you being here.
+- [02:24.160] You're special people.
+- [02:25.420] You got mistreated very badly for a long period of time,
+- [02:29.530] but you've never had a better friend
+- [02:30.840] in the Oval Office than me.
+- [02:32.790] And I'm proud to officially name the undisputed --
+- [02:37.620] just when did this come out, Mr. Speaker?
+- [02:40.340] The undisputed champion of beautiful, clean coal.
+- [02:44.330] We have to proceed always --
+- [02:45.720] I don't use the word coal, you know, it needs a PR job
+- [02:48.210] because had a bad reputation for a while.
+- [02:51.500] So we're not allowed to say the word coal anymore.
+- [02:54.050] It has to be preceded by beautiful, clean coal, OK?
+- [02:59.210] We're cleaning it up very good.
+- [03:05.570] And we're delighted to be joined by Secretary Doug Burgum,
+- [03:08.890] who's done a fantastic job,
+- [03:10.330] from the great coal mining state of North Dakota.
+- [03:14.150] And thanks as well to Speaker of the House Mike Johnson,
+- [03:18.090] a fantastic guy who's doing a great job.
+- [03:20.770] Thank you, Mike.
+- [03:22.010] EPA administrator, Lee Zeldin, he's our secret weapon.
+- [03:25.750] He's getting those approvals done in record-setting time.
+- [03:28.410] It's true.
+- [03:33.440] Great Senators, John Barrasso and Jim Justice.
+- [03:36.640] Thank you very much, very much for being here.
+- [03:38.690] Hi, Jim. It's been a long time, Jim.
+- [03:40.520] You're looking good. Shelley Moore Capito.
+- [03:44.170] Thank you, Shelley. Thank you very much, darling.
+- [03:47.690] Uh, Marsha Blackburn, Bill Hagerty, Ted Budd,
+- [03:52.790] Jon Husted, Bernie Moreno and David McCormick.
+- [03:56.650] All here. Great Senators.
+- [03:58.000] Every one of them, great Senators,
+- [03:59.530] Representatives in the House.
+- [04:01.770] Jim Baird, Troy Balderson, Andy Barr, Dave Taylor,
+- [04:06.620] Warren Davidson, Troy Downing, Morgan Griffith; Brett Guthrie,
+- [04:12.730] Harriet Hageman, Mike Kelly, Dan Meuser,
+- [04:15.960] Scott Perry, Carol Miller, Dana Harshbarger and Riley Moore.
+- [04:21.840] Boy, that's a good group of people.
+- [04:23.320] We have some others in here too, and I'm not going to say.
+- [04:25.490] It's just too many. Don't get angry at me.
+- [04:27.490] I'll never get their vote again. It's very dangerous.
+- [04:30.840] I also want to thank the president
+- [04:33.010] of the Washington Coal Club, Michael Day;
+- [04:35.230] CEO of the National Mining Association,
+- [04:38.690] Richard Nolan, along with many of the greatest business leaders
+- [04:42.350] in this powerful industry and a great industry it is.
+- [04:46.810] But of course, the most important people here today
+- [04:49.500] are those who get their hands a little bit dirty
+- [04:52.310] to keep America running at full speed,
+- [04:55.620] our frontline coworkers.
+- [04:57.040] And I'm pleased to report
+- [04:59.600] that in the first year of my presidency,
+- [05:02.170] real wages for the typical miner increased by more than $2,200.
+- [05:07.960] I'd say that's pretty good, right?
+- [05:15.560] And I'll give you the bad news.
+- [05:17.460] It's the first time that that's happened in more than 27 years.
+- [05:21.930] All right?
+- [05:23.140] Those other presidents didn't take good care of you.
+- [05:26.020] They didn't take good care of you at all.
+- [05:27.830] They didn't realize what they had.
+- [05:30.050] The last time many of us were together,
+- [05:32.980] I signed a historic executive order
+- [05:35.210] to ensure that America's beautiful,
+- [05:37.860] clean coal plants would keep running when we need it most,
+- [05:42.030] and that's 24 hours a day in rain, sleet and snow.
+- [05:45.190] You know, coal can operate when other substances can't.
+- [05:50.310] The Biden administration, he had no clue what he was doing,
+- [05:53.360] shut down dozens of coal plants by --
+- [05:56.560] they shut them down, literally,
+- [05:58.360] it seemed like one a week, one a day.
+- [06:01.070] They were shutting them down left
+- [06:02.420] and right as fast as you could.
+- [06:03.800] They were paying people to shut down a coal plant.
+- [06:07.120] And if we had stayed on the ruinous path,
+- [06:09.100] we would have seen mass suffering
+- [06:11.280] and rolling blackouts all over the country.
+- [06:13.360] We would have had blackouts right now all over the country.
+- [06:16.280] We would have had a country that -- worse than blackouts.
+- [06:18.970] Every other thing would have been wrong with it too,
+- [06:21.250] with all of the horrible things that took place at our border.
+- [06:26.440] And right now our border is 100 percent secure,
+- [06:29.890] first time in the history of our country, actually.
+- [06:37.150] And you see it all the time.
+- [06:38.600] So instead, when large parts of our country
+- [06:40.930] were hit with winter storms,
+- [06:43.180] it was coal that kept the power on and it was coal
+- [06:46.910] that never was bothered by cold weather, warm weather.
+- [06:50.130] It's never bothered by anything just keeps on chugging, right?
+- [06:54.000] During this vicious storm,
+- [06:56.940] and they had some really bad ones,
+- [06:59.210] coal generation surged 31 percent,
+- [07:02.500] while solar and wind totally collapsed.
+- [07:06.290] I'm not a big fan of those crazy windmills
+- [07:09.630] that are all made in China.
+- [07:11.660] You know, they're made in China but not used by China.
+- [07:14.950] Let's look for a couple of wind farms in China.
+- [07:17.050] See if you can find one.
+- [07:18.550] They sell us those things for fortunes,
+- [07:20.040] but we don't do them anymore.
+- [07:21.330] Have we done any this year, Doug?
+- [07:23.070] We're not going to do any --
+- [07:24.430] hopefully for four years in this country, they're losers.
+- [07:27.790] They lose -- You're supposed to make --
+- [07:29.520] you're supposed to make money with energy,
+- [07:31.470] not lose money with energy. And they lose a lot of money.
+- [07:40.760] And by the way, they're all over Europe.
+- [07:42.400] And, you know, I was recently there and it's not recognizable
+- [07:48.110] what they've done to their beautiful fields
+- [07:50.250] and those beautiful, beautiful scenic areas.
+- [07:53.020] And they put those wind turbines all over the place
+- [07:55.620] and they're chug and chug and chug
+- [07:57.470] and not doing a damn thing
+- [07:58.820] except every time it goes around, it loses a fortune.
+- [08:01.630] It's horrible. They've lost their way.
+- [08:04.300] Not actually -- not recognizable.
+- [08:07.580] And then I wonder why they don't like me over there,
+- [08:09.660] but, you know, who likes me over there?
+- [08:11.470] The people like me over there.
+- [08:12.770] I can tell you because they know I'm right.
+- [08:15.710] More than 200 million Americans across 35 states
+- [08:19.020] were impacted by the storm.
+- [08:20.850] And the only reason most were able to take a hot shower
+- [08:25.320] was thanks to the power provided by the most reliable, dependable
+- [08:29.520] and really dependable form of energy that we have.
+- [08:33.180] And that's clean, beautiful coal.
+- [08:35.700] Biden and the radical left wanted to abolish coal.
+- [08:39.720] They did everything they could, everything possible.
+- [08:42.200] But on day one of this administration,
+- [08:44.170] I ended the war on coal. We terminated the green new scam
+- [08:48.400] and we withdrew from the unfair one sided Paris climate accord.
+- [08:53.360] That was another beauty we had.
+- [08:54.860] We paid a trillion, nobody else had to pay $0.10 already.
+- [08:59.030] I've saved 74 coal power plants from crushing restrictions
+- [09:03.810] and closures that would have been forced to shut down
+- [09:07.570] in the very immediate future.
+- [09:09.070] And today, I'm proud to announce
+- [09:10.800] that the Tennessee Valley Authority
+- [09:12.950] has taken action to save two major coal plants in Tennessee.
+- [09:16.600] Tennessee Valley Authority,
+- [09:27.210] the plants are the Cumberland Fossil plant
+- [09:29.700] and the Cumberland City -- it's in Cumberland City.
+- [09:33.360] It's uh, a big beautiful thing
+- [09:36.670] that they just wanted to shut down.
+- [09:38.520] You know, the Tennessee Valley Authority
+- [09:41.040] has gone in a very stupid, very bad direction.
+- [09:45.130] The head of it, it's considered sort of semi-private.
+- [09:48.090] It's supposed to be semipublic, but it's semi-private.
+- [09:51.260] It's the highest paid government type official in history.
+- [09:56.560] I think they pay them $10 million a year.
+- [10:00.130] They're paying them $10 million.
+- [10:01.530] I think the speaker of the House wants to resign
+- [10:03.420] and head the Tennessee Valley Authority
+- [10:05.150] and he could do a much better job,
+- [10:06.490] I can tell you that.
+- [10:07.780] Is that right, Doug?
+- [10:09.000] They pay him $ 10 million a year?
+- [10:10.540] Can you believe it? Well, Trump is on the scene
+- [10:13.820] now we're going to make his life miserable.
+- [10:17.010] Ten million. I wonder what he got before.
+- [10:19.290] He got that job probably making $150,000, right?
+- [10:23.860] And the Kingston Fossil Plant in Harriman, Tennessee,
+- [10:28.310] so they're going to remain open and they're going to be vibrant.
+- [10:30.450] They're going to be improved,
+- [10:31.690] built up and continue to do all the things that they do.
+- [10:36.270] These two plants were slated for termination,
+- [10:39.180] but we're going to save over 450 jobs
+- [10:42.050] by keeping them going and going strong.
+- [10:44.700] In addition, I'm directing the Department of Energy
+- [10:47.770] to issue funds to coal plants in West Virginia, Ohio,
+- [10:52.190] North Carolina and Kentucky to keep them online
+- [10:55.300] and keep those plants open.
+- [10:57.480] Right, Jim?
+- [11:04.500] And very importantly we're also bringing our coal mines
+- [11:07.890] roaring back to life under four years
+- [11:09.980] of the Biden administration, Sleepy Joe.
+- [11:13.290] Not a single permit was approved for a new coal mining project.
+- [11:17.730] Think of it? Four years, not one permit.
+- [11:20.560] They were all being disapproved actually.
+- [11:23.210] So not a single permit was approved.
+- [11:25.240] I didn't know that, but in one year of Trump,
+- [11:28.150] we've already approved over 70 permits
+- [11:30.480] for very big, very powerful mines
+- [11:32.690] that are going to be with us for many, many years to come.
+- [11:36.410] And we did that over the last 30 days.
+- [11:39.060] We did more than half of them
+- [11:40.280] because we have the system going now.
+- [11:42.510] It's very reliable source.
+- [11:44.010] Great, great, great source.
+- [11:46.510] If you look at some of the most prosperous places in the world,
+- [11:49.810] they run on coal.
+- [11:51.870] Since I took office, coal production is up
+- [11:54.090] by nearly 4 million tons a month after falling for decades.
+- [11:57.820] I mean, literally decades, coal power generation is up
+- [12:01.160] by nearly 15 percent in my first year
+- [12:03.990] and that number is going to be about 25 or 30 percent
+- [12:06.680] this coming year at least.
+- [12:09.110] These pro-American energy policies
+- [12:11.040] are bringing energy prices way down.
+- [12:12.920] You see what's happening even with gasoline.
+- [12:14.840] Gasoline, I was in Iowa last week
+- [12:18.240] and it was $1.85 a gallon
+- [12:21.980] and many of them are $1.99 and $1.91.
+- [12:26.480] I saw we have them under $2 a gallon now a little while ago,
+- [12:31.390] just a year and a half ago, they're at $3.50,
+- [12:33.780] $4 and $4.50 in California, $7, because of the crazy taxes.
+- [12:39.960] Coal is one of the lowest priced energy sources
+- [12:42.800] and it's probably considered
+- [12:44.670] by almost everybody to be the most reliable.
+- [12:48.070] It requires no subsidies because you make money with coal.
+- [12:51.870] More coal means lower costs and more money
+- [12:54.340] in the pocket of the American citizens
+- [12:57.130] and in the pocket, frankly, of the United States of America.
+- [12:59.570] That's not bad.
+- [13:00.810] Every once in a while we have to take care of our country right.
+- [13:03.890] With us today is Kayla Blackford who drives a haul truck
+- [13:07.860] at Bear Run Mine in Dugger, Indiana.
+- [13:11.660] Great state, we love Indiana.
+- [13:13.940] I only like states that I won so big, you know?
+- [13:15.910] I want to pick the -- no, I like them all.
+- [13:19.590] Where she has worked for five years
+- [13:22.060] and she's joined by her wonderful husband, Eric,
+- [13:24.460] who also works at the mine
+- [13:26.980] and they're really incredible son, Isaac
+- [13:30.350] and, Kayla, if you could come forward, I'd like to.
+- [13:33.020] uh, just have you say a few words, please. Come on up.
+- [13:37.140] Where's Kayla? Kayla? Oh, hi, Kayla.
+- [13:40.840] (applause)
+- [13:49.140] Kayla Blackford: Thank you, Mr. President.
+- [13:50.820] As you said, my name is Kayla Blackford
+- [13:52.870] and I am so proud and honored to be here today representing
+- [13:56.170] Peabody and coal miners across this country.
+- [13:59.690] My husband and I both work at Bear Run mine
+- [14:01.580] in southern Indiana.
+- [14:03.280] I drive a haul truck and I train others
+- [14:05.120] on this large piece of equipment.
+- [14:07.130] A haul truck is used to move rock or coal
+- [14:10.750] and is capable of carrying loads of nearly 250 tons.
+- [14:14.760] The tires are 12ft tall. When I stand next to one,
+- [14:17.390] I barely reach the middle of the tire.
+- [14:19.750] It's the best job I've ever had and not just because of the cool
+- [14:23.210] mom points I get for driving big equipment.
+- [14:27.720] My job supports my family.
+- [14:29.390] It supports our community
+- [14:30.870] and it keeps the lights on and electricity affordable,
+- [14:33.680] not just in Indiana but across the country.
+- [14:37.260] As demand increases
+- [14:38.690] and our lives become increasingly electrified,
+- [14:41.400] America needs to generate more electricity, not less.
+- [14:45.280] For years, coal miners have felt the weight of policies
+- [14:47.920] that made our future uncertain.
+- [14:50.070] Over the past year that weight has begun to lift.
+- [14:53.590] My son, Isaac, who's here today.
+- [15:04.530] Has friends whose parents also work at Bear Run
+- [15:07.670] and when you grow up seeing huge mining equipment
+- [15:09.700] from the road like Isaac and his friends do,
+- [15:12.250] you dream about the day when you get to run that equipment.
+- [15:15.840] When a mine closes, families don't just lose their jobs,
+- [15:19.400] they're often forced to leave their communities,
+- [15:21.390] their schools and their support systems behind.
+- [15:24.960] The common sense policies to keep coal plants
+- [15:27.180] running implemented by this administration mean
+- [15:30.020] that my husband and I can keep working,
+- [15:32.190] stay where we are and continue raising our son
+- [15:34.880] in our community that we call home.
+- [15:37.550] And the impact is even greater than that
+- [15:39.530] because you, Mr. President,
+- [15:41.010] have single handedly kept utility prices affordable,
+- [15:44.130] the lights on and our jobs alive.
+- [15:47.320] We are real people under these hard hats.
+- [15:50.430] On behalf of America's coal miners,
+- [15:52.290] thank you, Mr. President,
+- [15:53.550] for recognizing the value of coal
+- [15:55.730] and the value of the people
+- [15:57.060] who power this industry every day.
+- [16:00.380] (applause)
+- [16:19.510] The President: She did a good job right?
+- [16:21.080] Look at the boy, he's so proud of mom, huh?
+- [16:24.210] Did a good job? Couldn't do better, right?
+- [16:27.260] Anyway, thank you, Kayla.
+- [16:28.530] That's really nice. Thank you very much.
+- [16:30.200] Coal is also critical to our national security,
+- [16:33.620] vital to everything from steel production
+- [16:36.020] to shipbuilding and artificial intelligence.
+- [16:38.720] It's incredible what's happening with coal
+- [16:42.170] and it's also incredible
+- [16:43.560] how clean they're able to keep it now
+- [16:45.450] with all of the new techniques by using it,
+- [16:48.370] they're able to do things environmentally
+- [16:50.630] that are amazing. You see that.
+- [16:52.680] That's why I'm also pleased to announce
+- [16:54.730] that in just a moment, I will sign an executive order
+- [16:58.330] that directs the Department of War
+- [17:00.510] to work directly with coal plants
+- [17:02.420] on the new power purchasing agreements,
+- [17:04.790] ensuring that we have more reliable power and stronger
+- [17:08.280] and more resilient grid power.
+- [17:10.650] And we're going to be buying a lot of coal
+- [17:13.180] through the military now
+- [17:14.500] and it's going to be less expensive
+- [17:16.550] and actually much more effective
+- [17:18.690] than what we have been using for many, many years.
+- [17:22.090] And again, with the environmental progress
+- [17:24.560] that's been made on coal, it's going to be just as clean.
+- [17:27.870] As some of you may know, today, February 11th
+- [17:30.770] is Thomas Edison's birthday. There could be no better way
+- [17:34.610] to honor the legacy of the man who lit the world.
+- [17:38.550] Did you know that? The man who lit the world.
+- [17:40.440] Isaac, do you know that? You ever hear of Thomas Edison?
+- [17:43.640] A little before your time, slightly.
+- [17:46.540] But then to reaffirm our commitment
+- [17:49.280] to American energy independence
+- [17:51.610] and the American energy dominance,
+- [17:53.710] we're going to be dominant.
+- [17:55.080] We are dominant right now. We have a new group of people
+- [17:59.370] that we're very close to become very close to,
+- [18:02.340] and that's called Venezuela,
+- [18:04.170] where we're taking in in this case, oil.
+- [18:07.360] We had 50 million barrels of oil
+- [18:10.480] that we have floating right now to Houston to be refined
+- [18:13.690] and we're getting energy from all different sources.
+- [18:16.510] And so oil and gas is fantastic. So many of them are so good,
+- [18:21.180] but we're not going to use the bad ones.
+- [18:22.530] America is now the number one energy producer in the world.
+- [18:27.730] We are by far number one. In fact, we're going to very --
+- [18:30.630] we're very soon going to be number one
+- [18:33.130] by double what number two is. And under our leadership,
+- [18:36.850] we're becoming a massive energy exporter.
+- [18:39.560] In just the past few months,
+- [18:40.850] we've made historic trade deals with Japan, Korea, India
+- [18:44.780] and others to increase our coal exports dramatically.
+- [18:47.790] We're now exporting coal to all over the world.
+- [18:51.280] And the quality of our coal is supposed to be --
+- [18:54.200] I mean, I'm not an expert on coal,
+- [18:55.840] but I've been very good to the people that are.
+- [18:58.650] The quality of our coal
+- [19:00.060] is supposed to be the finest anywhere in the world.
+- [19:03.120] From West Virginia to Wyoming, from Ohio to Montana
+- [19:06.610] and all across the country,
+- [19:08.490] we're lifting up our hard working American miners
+- [19:11.300] like nobody has ever done before.
+- [19:13.720] We're bringing down costs of American consumers and together,
+- [19:17.770] we're making the most of the magnificent land
+- [19:20.620] that God gave us to rebuild the greatest economy
+- [19:23.320] and the greatest nation in the history of the world.
+- [19:26.610] Another one of my favorite words is the word tariff.
+- [19:29.190] You know, tariff is very --
+- [19:31.980] I know, they want to hear that little story.
+- [19:33.820] I used to say it's my favorite word.
+- [19:35.440] They said, what about God, what about religion,
+- [19:38.370] what about family and your wife, your children?
+- [19:42.340] So now I make it my fifth favorite word.
+- [19:45.910] Oh, you have no idea.
+- [19:47.110] I suffered. Kayla, I was --
+- [19:49.340] I was suffering from the fake news media.
+- [19:51.250] They were -- they were really --
+- [19:53.070] they were going after me when I said it was my favorite word.
+- [19:55.730] So I make it number five
+- [19:56.970] and I think I'm, generally speaking, okay.
+- [19:58.720] They'd like it to be a little bit later than that.
+- [20:01.260] But because of tariffs, you saw that we just --
+- [20:04.330] it was just announced, our trade deficit has gone down.
+- [20:08.640] Now if you go down one point, two points,
+- [20:11.440] you're like a genius,
+- [20:12.890] it's gone down 78 percent, 78 percent.
+- [20:16.920] Can you believe it? And we have to fight.
+- [20:22.360] Right, Speaker?
+- [20:23.610] And we have to fight. Just came out.
+- [20:26.360] Everyone's saying that can't be right, 78 percent,
+- [20:29.350] 78 percent reduction in our trade deficit
+- [20:32.510] and next year we're going to be positive
+- [20:34.850] if we keep it all going.
+- [20:36.890] We're waiting for a very important decision
+- [20:38.790] from the Supreme Court,
+- [20:40.650] but I want to thank the speakers here
+- [20:42.200] because you have fought with me,
+- [20:43.680] you've got -- you got it very early.
+- [20:45.270] Now, almost everybody's getting it,
+- [20:47.950] but it's a number -- numbers that we've never seen.
+- [20:50.690] The other thing is breaking 7,000
+- [20:53.770] on the S&P and very importantly, 50,000 yesterday, 50,000,
+- [20:59.250] we broke on the Dow. And if you remember when I won,
+- [21:03.230] they said if he could ever produce 50,000
+- [21:05.660] by the end of his fourth term -- by the end of his fourth year,
+- [21:10.320] it would be unbelievably successful.
+- [21:13.320] Well, we produced 50,000, in excess now, went up today,
+- [21:18.440] in excess of 50,000 at the end of my first year.
+- [21:23.530] So that's some difference and that's because of --
+- [21:29.970] that's because of --
+- [21:31.230] that's because of tariffs that we're doing numbers
+- [21:33.990] that nobody thought were possible.
+- [21:35.480] The economy is rich.
+- [21:37.870] I tell the story that in Saudi Arabia,
+- [21:39.910] the king said, you know, sir, a year and a half ago,
+- [21:44.930] we were all saying you were a dead country
+- [21:47.270] and now you have the hottest country anywhere in the world.
+- [21:49.820] That's true. We're the hottest country anywhere in the world.
+- [21:52.500] And a lot of reasons.
+- [21:55.860] So once again, I'd like to thank you
+- [21:58.230] for the tremendous honor of being here
+- [22:01.550] and especially these gentlemen in the front row
+- [22:04.300] and a couple of you in the second row.
+- [22:05.840] What happened to the guys in the second row?
+- [22:07.440] They couldn't make it to the front.
+- [22:08.720] What's wrong with them?
+- [22:09.920] They don't shovel it as well, right?
+- [22:12.000] But I want to -- I want to thank you
+- [22:14.070] and invite the chairman of our National Coal Council,
+- [22:16.690] Peabody Energy CEO, which is a great company,
+- [22:20.010] by the way, Jim Grech to come up and say a few words.
+- [22:23.480] Please, Jim. Thank you very much.
+- [22:26.450] (applause)
+- [22:35.380] Jim Grech: Mr. President, we stand here today
+- [22:37.720] representing the thousands of coal miners across the country
+- [22:41.500] to express our deep gratitude to you, sir,
+- [22:43.190] for the actions you've taken to support our industry.
+- [22:46.380] Your leadership and decisive actions
+- [22:48.110] have sent a powerful message.
+- [22:50.300] We have a president who more than any other
+- [22:52.800] deeply understands the importance of coal
+- [22:55.030] in supporting the future of this nation.
+- [22:57.710] Sir, you know what most people don't,
+- [23:00.220] the US has more energy in its coal
+- [23:02.910] than any nation has in any single energy source.
+- [23:05.950] We have more energy than Russia has in its gas
+- [23:08.420] and we have more energy than Saudi Arabia has in its oil.
+- [23:12.040] Yet before you, sir, presidents were afraid to allow coal
+- [23:15.010] to help keep electricity abundant,
+- [23:17.290] low -- abundant and low cost.
+- [23:19.860] And Mr. President, that changed with you.
+- [23:22.770] We saw the impact of your wise policy in real time
+- [23:24.970] during the recent winter storm
+- [23:26.620] as temperatures plunged and demand surged.
+- [23:29.780] The coal plants you directed to keep open
+- [23:31.890] provided the stability and resilience that the grid needed.
+- [23:35.770] And today, thanks to your leadership, sir,
+- [23:37.270] we are working with your administration on the potential
+- [23:39.350] to build new coal-fueled power plants and coal emerge
+- [23:44.020] as a source of rare earth elements
+- [23:45.510] and critical minerals that are essential for our national
+- [23:48.030] security and economic future.
+- [23:49.610] And because of you, sir, the mining towns
+- [23:52.090] that once feared for their futures
+- [23:54.440] are seeing new investment, renewed optimism
+- [23:57.670] and a sense of pride restored. Families feel more secure,
+- [24:01.090] local businesses are growing again,
+- [24:03.260] communities that had been written off are reinvigorated.
+- [24:06.960] For the thousands of workers across this industry,
+- [24:08.910] your support has meant more than policy, sir.
+- [24:10.800] It has meant dignity, stability,
+- [24:13.050] and the recognition that their work matters
+- [24:15.880] in making America great again.
+- [24:18.470] So sir, Mr. President, on behalf of Michael Day,
+- [24:21.400] the chairman of the Washington Coal Club
+- [24:23.050] and all the coal miners across our great country,
+- [24:25.240] I'd like to ask all of -- first, all of the --
+- [24:27.080] there's some executives and coal miners
+- [24:28.590] that are going to join us on stage
+- [24:29.820] and we are going to present you an award, sir.
+- [24:34.560] (applause)
+- [25:14.500] Sir, to show our appreciation, the trophy says,
+- [25:18.300] the undisputed champion of beautiful, clean coal.
+- [25:22.480] (applause)
+- [25:55.375] (inaudible)
+- [26:03.820] The President: Thank you, everybody, very much.
+- [26:05.040] Appreciate it.
+- [26:07.170] (applause)
+- [26:18.230] We don't use auto pens. There's no auto pen.
+- [26:24.550] Come on up. That's great.
+- [26:39.260] Okay, here you go, fellas.
+- [26:43.250] (applause)
+- [27:07.057] (applause)
+- [27:22.863] (inaudible)
+- [27:24.220] The President: Have a good time. Thank you.
+- [27:29.660] (applause)
+- [27:41.985] ♪ (orchestral "God Bless ♪ America") ♪

@@ -1,0 +1,1523 @@
+<!-- source: https://www.youtube.com/watch?v=FRe6Sl9yLSY -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: FRe6Sl9yLSY -->
+<!-- date_published: 2026-05-20T16:51:09+00:00 -->
+<!-- date_accessed: 2026-06-02T02:33:33.653628+00:00 -->
+
+# Transcript: President Trump Delivers a Commencement Address to the United States Coast Guard Academy
+
+- [00:03.236] Unidentified: Thank you, Chaplain.
+- [00:04.571] Ladies and gentlemen, please be seated.
+- [00:07.374] Platform party and presenters of commissions,
+- [00:09.743] please join the class of 2026 and uncover.
+- [00:17.317] All other military personnel,
+- [00:19.119] please remain covered throughout the ceremony.
+- [00:21.454] I now have the pleasure of introducing the 44th
+- [00:23.757] Superintendent of the United States Coast
+- [00:25.425] Guard Academy, Rear Admiral Greg Rothrock.
+- [00:29.295] (applause)
+- [00:35.835] Greg Rothrock: What a beautiful day.
+- [00:38.471] Distinguished guests, honored international delegations,
+- [00:43.209] alumni, veterans, faculty, staff,
+- [00:47.947] coaches, families, and friends,
+- [00:51.718] welcome to the United States Coast Guard Academy,
+- [00:54.854] the home of the United State Coast Guard's
+- [00:57.690] Officer Corps.
+- [00:59.159] (applause)
+- [01:03.863] To the great class of 2026, congratulations, you did it.
+- [01:10.837] (applause)
+- [01:16.976] Today marks the culmination of 200 weeks of relentless
+- [01:21.114] hard work, perseverance, sacrifice and growth.
+- [01:25.819] You have pushed through challenges
+- [01:27.687] that tested your limits and you've emerged
+- [01:30.523] not just ready but as exceptional leaders.
+- [01:34.761] In a few minutes,
+- [01:35.995] you will receive your hard-earned degrees,
+- [01:38.898] raise your right hands, take the oath of office
+- [01:41.901] and accept your commissions as ensigns
+- [01:44.304] in the United States Coast Guard.
+- [01:46.706] You will walk off this campus no longer as cadets,
+- [01:50.176] but as officers, leaders prepared to serve.
+- [01:54.581] This is truly a momentous day for the Academy,
+- [01:57.484] for the Coast Guard, and for our nation.
+- [02:01.254] We thank the President for presiding over today's ceremony
+- [02:04.190] and for the strong support that he has shown our service.
+- [02:07.527] And we are privileged to welcome him back
+- [02:09.929] to our 103-acre campus along the Thames River,
+- [02:13.433] where we build leaders who will defend our maritime borders?
+- [02:17.036] Secure our nation's interests,
+- [02:19.038] and project American maritime strength,
+- [02:21.474] security and prosperity at sea and around the globe.
+- [02:27.380] Thanks to the fiscal year 2025 budget reconciliation,
+- [02:31.217] the Coast Guard Academy has received
+- [02:33.386] millions in critical funding to strengthen
+- [02:36.089] all three pillars of our leadership development program,
+- [02:39.993] military, athletics, and academics.
+- [02:46.599] This will include monumental renovations
+- [02:49.636] to Chase Hall Barracks, a world-class aquatic center,
+- [02:53.072] and a new science and technology building.
+- [02:55.875] These strategic investments will pay dividends for decades
+- [02:59.879] and result in a more capable and more resilient maritime force.
+- [03:04.350] And while we evolve and modernize this campus,
+- [03:07.921] the core purpose remains unwavering.
+- [03:11.724] We are committed to producing officers who are ready.
+- [03:16.062] Ready to lead with character, ready to adapt to any challenge,
+- [03:20.867] and ready to serve.
+- [03:23.069] Unlike any other federal service academy,
+- [03:26.005] 100% of the Coast Guard's officer corps
+- [03:29.609] passes through these gates.
+- [03:33.012] This institution forges the character, the values,
+- [03:37.550] and the future direction of the service.
+- [03:41.621] As we approach the Coast Guard Academy's
+- [03:43.623] hundred and fiftieth year
+- [03:45.758] and we will welcome the class of 2030 this summer,
+- [03:49.495] I can assure you we are committed to excellence,
+- [03:53.266] to honor, respect and devotion to duty
+- [03:57.136] and to producing leaders and warriors who put America first.
+- [04:02.675] Like the generations of the long blue line
+- [04:05.645] who came before them,
+- [04:07.747] the men and women of the class of 2026
+- [04:11.084] stand ready to protect our maritime borders.
+- [04:14.287] Combat threats to our homeland,
+- [04:16.356] and defend our national interests with skill,
+- [04:19.993] courage, and unyielding loyalty.
+- [04:23.296] I can say with complete confidence
+- [04:26.432] they are ready to serve wherever
+- [04:29.602] and whenever our the nation calls.
+- [04:34.273] To the families and friends of the class of 2026.
+- [04:39.312] To the parents who guided, the siblings who stood by,
+- [04:42.315] the mentors and role models
+- [04:44.250] who offered wisdom and encouragement.
+- [04:47.186] Today, we celebrate not only the graduates' achievements
+- [04:52.191] but the vital role each of you played
+- [04:54.994] in making this day possible.
+- [04:57.830] Take great pride in what they have accomplished
+- [05:01.200] and in the extraordinary service that lies ahead.
+- [05:13.312] To our dedicated faculty, staff, and coaches, thank you.
+- [05:17.684] You have instilled in these graduates
+- [05:19.786] the timeless values of the Coast Guard
+- [05:22.088] and have challenged them each to become their very best.
+- [05:26.626] Class of 2026, if you could please join me
+- [05:29.328] in a round of applause for your family,
+- [05:31.030] friends, mentors,
+- [05:32.265] and the entire Academy Leadership Development Team.
+- [05:36.769] It'd be great if we could stand for that.
+- [05:48.147] Thank you.
+- [05:57.623] So now to the great class of 2026.
+- [06:02.995] Over the past four years, you earned qualifications,
+- [06:06.365] you built lasting relationships, you mentored your divisions,
+- [06:10.036] you led on the fields of competition,
+- [06:12.105] you brought home championships, you set high standards,
+- [06:15.842] and you delivered academic excellence.
+- [06:18.845] As first-class cadets,
+- [06:20.146] you guided the Corps with maturity and purpose.
+- [06:24.951] Today is not the end.
+- [06:28.521] It is the proud beginning of your service
+- [06:30.723] as commissioned officers.
+- [06:33.226] In the Coast Guard. Congratulations to each of you.
+- [06:43.970] Now of the graduates before us,
+- [06:45.705] seven international cadets have enriched our corps
+- [06:49.709] while proudly representing their home nations.
+- [06:52.812] At this time, we invite these international cadet
+- [06:55.982] and their delegations to stand as I call their names.
+- [07:00.319] Please hold your applause until all have been recognized.
+- [07:05.992] From Guyana, Verlin Gibson.
+- [07:12.064] From the Philippines, Arlen Bangsoy,
+- [07:16.469] Matthew De La Vega, and Elyssa Flores.
+- [07:23.876] From Honduras, Carlos Zavala.
+- [07:30.016] From Taiwan, Sung Kai Seng. From Vietnam, non-ta.
+- [07:41.127] Please join me in a heartfelt round of applause.
+- [07:56.876] All of the cadets before you will join a Coast Guard
+- [08:01.781] operating in complex dynamic environments at sea,
+- [08:06.986] in the air, across cyberspace
+- [08:10.122] and along our borders and around the globe.
+- [08:14.293] They possess the training, the resilience,
+- [08:17.763] the moral compass and the warrior spirit
+- [08:20.533] to meet every challenge. Class of 2026, trust yourselves.
+- [08:27.473] Believe in your shipmates, lead with integrity,
+- [08:30.910] and always put your mission and country first.
+- [08:34.513] Congratulations. To all of our cadets,
+- [08:48.094] you will always have a home here on this campus.
+- [08:52.064] We cannot wait to see the great things
+- [08:54.533] you will accomplish in all of your years of service ahead.
+- [08:59.205] And so as the announcer said you might hear earlier,
+- [09:02.708] here we say, go Coast Guard! Go Bears!
+- [09:06.145] We'll do that one more time. Go Coast Guard.
+- [09:11.284] It is now my privilege to introduce
+- [09:14.720] this year's distinguished graduate.
+- [09:18.124] The distinguished graduate is the cadet
+- [09:20.092] who has achieved the highest military precedence
+- [09:22.595] average across academics, military performance,
+- [09:26.299] and the physical fitness program
+- [09:28.467] over their entire 200 week program.
+- [09:31.671] This year's distinguished graduate
+- [09:33.773] is Cadet First Class Matthew Lanzalotta.
+- [09:40.413] First Class Lanzalotta is from Virginia Beach, Virginia,
+- [09:43.382] and a member of Delta Company.
+- [09:45.484] He is a marine and environmental sciences
+- [09:48.220] major with concentration in marine science
+- [09:51.724] and geospatial intelligence.
+- [09:54.093] His capstone research focused on testing short-range,
+- [09:57.496] unmanned aerial systems to augment aids
+- [10:00.533] to navigation inspections.
+- [10:03.135] First Class, Lanzlotta participated
+- [10:05.404] in the Service Academy Exchange Program.
+- [10:07.673] And attended the United States Air Force Academy
+- [10:10.309] during his second class year.
+- [10:12.545] He was the trap and skeet team captain
+- [10:14.947] and led the team in competitive shooting events
+- [10:17.550] against fellow service academies.
+- [10:19.719] He is the son of Paul and Martha Lanzalata
+- [10:23.122] and has an older brother, John,
+- [10:25.124] and he is proudly engaged to Riley
+- [10:27.593] Drew of Virginia Beach, Virginia.
+- [10:31.630] Upon graduation, first class Lanzelata will depart
+- [10:34.533] to Pensacola, Florida and report to basic flight training.
+- [10:38.004] And it is my great honor
+- [10:39.238] to introduce the distinguished graduate
+- [10:40.906] of the United States Coast Guard Academy,
+- [10:43.109] Class of 2026, Cadet First Class, Lanzalotta.
+- [10:48.347] (applause)
+- [11:05.464] Cadet Lanzalotta: Good morning, Rear Admiral Rothrock,
+- [11:09.235] distinguished guests, faculty and staff, family and friends,
+- [11:14.240] and of course, the great class of 2026.
+- [11:22.615] Our time here at the Academy
+- [11:25.418] is strictly defined in terms of length.
+- [11:28.888] When we wake up in the morning, what we do during the day,
+- [11:32.892] and when we can leave.
+- [11:35.661] But how a class navigates from the start to the end
+- [11:38.631] is largely on the shoulders of a class.
+- [11:42.501] During our fourth class year, we chose our motto to be,
+- [11:46.405] we will find a way or make one.
+- [11:48.841] And that is how we navigated our time here.
+- [11:52.211] When we walked through the arches of Chase Hall
+- [11:54.013] four years ago
+- [11:55.514] on that rainy, humid June day, we did not yet have a way.
+- [12:00.086] We chose the motto because the words were aspirational,
+- [12:03.322] and over the next four years,
+- [12:04.957] our relentless optimism and our consistent drive
+- [12:09.795] enabled us to grow into the class
+- [12:11.797] that the motto challenged us to be.
+- [12:14.266] We followed the path set before us
+- [12:16.936] and made new ones for those who will come after us.
+- [12:21.073] Some paths are well-worn.
+- [12:23.042] The classes before us have endured
+- [12:24.844] and overcome challenges of their own.
+- [12:27.913] And we've heard all about those challenges from those classes,
+- [12:30.749] especially some of the older classes.
+- [12:32.885] And they've told us how they're the last real class
+- [12:36.589] because of the challenges they've endured
+- [12:38.357] and the things they've done.
+- [12:39.992] And we, too, are the last really class
+- [12:43.429] because the last we shared together
+- [12:46.298] in the challenges we overcame.
+- [12:49.168] But we also experienced many firsts as a class
+- [12:51.704] that made us distinct.
+- [12:54.540] This year, our women's rugby team led the programs
+- [12:58.811] to the first collegiate national title.
+- [13:05.151] Our class was the first to implement a phased approach
+- [13:07.653] to summer training and the first to graduate ensigns with minors
+- [13:11.323] in emergency management.
+- [13:13.325] We pioneered new career pipelines
+- [13:15.594] into physician assistant school
+- [13:17.796] into deployable special forces directly from the academy.
+- [13:20.733] First ever do it. We found ways through challenges
+- [13:26.405] that tested our resolve but never did it alone.
+- [13:29.542] Our faculty and staff have shown up for us
+- [13:31.477] every day with professionalism, patience, and care.
+- [13:35.548] And they have taught us, coached us, mentored us,
+- [13:38.817] and kept us moving forward every single day.
+- [13:42.321] That commitment has left an impression on our class
+- [13:45.424] and it deserves our gratitude. So I'd like to take a moment,
+- [13:48.894] if the class would like to turn around, look behind you.
+- [13:51.997] Behind you sit faculty and staff.
+- [13:54.300] Family and friends, loved ones, who have poured into you,
+- [13:58.904] supported you on your hard days,
+- [14:01.307] and celebrated you on your good ones.
+- [14:03.442] And our class found a way because you supported us
+- [14:07.112] every step of the path to this stage.
+- [14:09.615] Thank you.
+- [14:15.354] Our time here is made up of many moments.
+- [14:18.557] Some feel big and extraordinary,
+- [14:20.492] and some feel much smaller and very ordinary.
+- [14:24.863] And we face those moments with hopefulness
+- [14:27.066] and a drive to overcome the challenges around them.
+- [14:30.536] The big moments we will always remember,
+- [14:33.138] our last pushup on the parade field after Swab Summer.
+- [14:38.244] Receiving our class rings at ring dance, school dances,
+- [14:42.281] billet night, where we cheered so loud it was difficult
+- [14:45.084] to hear Captain Ensley announce the next billet.
+- [14:48.687] Those moments were moments of momentum.
+- [14:51.523] And as I learned physics class, once an object is in motion,
+- [14:55.594] it's difficult to stop.
+- [14:56.929] In our class, the class of 2026 is difficult to Stop.
+- [15:04.903] There were also many smaller moments that carried us here.
+- [15:08.107] Staying in the wardroom long after food
+- [15:09.842] was served to spend time with friends,
+- [15:12.244] spontaneous conversations at the OOD desk,
+- [15:15.180] running into cadets in public on the golf course,
+- [15:18.017] and late night C-Store runs for energy drinks
+- [15:21.153] and snacks to attack long procrastinated work.
+- [15:24.857] And those moments and the attitude
+- [15:26.492] we brought to each next assignment,
+- [15:28.927] each next day, and each next semester
+- [15:32.031] is how we made our way to where we stand today.
+- [15:35.834] Soon, we'll all report to units where we'll have much to learn.
+- [15:40.439] The ensign bars we are anxious to put on our shoulders
+- [15:43.575] are not ones of experience,
+- [15:45.477] but ones of heavy responsibility.
+- [15:47.813] However, Thank you, everyone. Thank you all for being here.
+- [15:50.115] The attributes that carried us forward
+- [15:51.684] these last four years will matter much more
+- [15:53.786] than pretending we have all the answers.
+- [15:56.021] If we enter our new jobs with humility,
+- [15:59.825] relentless drive, and consistent optimism,
+- [16:03.195] we will continue to blaze new paths forward.
+- [16:06.198] When a cutter's bridge is exhausted,
+- [16:08.534] a watch floor is overwhelmed with calls
+- [16:10.569] or the weather takes a turn for the worse,
+- [16:13.105] the class of 2026 will be ready. We will find a way or make one.
+- [16:18.977] Thank you.
+- [16:20.245] (applause)
+- [16:41.400] ♪ (military band music) ♪
+- [20:29.328] Male Speaker: Please rise for the arrival
+- [20:30.762] of the official party and the rendering of honors.
+- [20:33.365] Platform party covers.
+- [21:06.932] Now, Coast Guard arriving.
+- [22:10.462] Now, Homeland Security arriving.
+- [24:08.713] Ladies and gentlemen, the 45th and 47th
+- [24:11.750] President of the United States of America, arriving.
+- [24:17.856] Covered military personnel, hand salute.
+- [24:26.398] ♪ (Hail to the Chief) ♪
+- [25:51.883] Ready, two.
+- [25:53.919] Ladies and gentlemen, please take your seats.
+- [26:05.730] Please rise for honors with a 21-gun salute and ruffles
+- [26:11.069] and flourishes.
+- [26:19.778] Hand salute.
+- [28:27.639] Ready, two.
+- [28:30.775] Ladies and gentlemen, please take your seats.
+- [28:43.521] It is now my privilege to introduce the commandant
+- [28:46.124] of the Coast Guard Admiral, Kevin E. Lunday.
+- [28:49.861] (applause)
+- [28:55.967] Kevin E. Lunday: Good morning.
+- [28:57.602] Linda Lee and I are honored to be here today.
+- [29:00.438] President Trump, thank you for coming back today
+- [29:03.108] to charge these new officers
+- [29:04.576] as they head out to our operating forces.
+- [29:07.846] Thank you for your visionary leadership
+- [29:09.547] to renew the Coast Guard,
+- [29:11.282] starting with last year's record capital investment, sir,
+- [29:14.786] to buy new cutters, boats,
+- [29:16.020] aircraft, facilities, and technology.
+- [29:19.124] Sir, we've already spent 13 billion of that
+- [29:21.092] to meet your intent and we're on track to spend
+- [29:23.061] nearly all of it by the end of this year.
+- [29:25.897] Thank you for your strong '27 annual budget
+- [29:28.333] that when funded by Congress before October
+- [29:31.002] will grow our service by nearly 6,000 people
+- [29:33.838] to operate those new assets.
+- [29:36.474] And thank you for your resolute advocacy
+- [29:38.443] for not just the Coast Guard,
+- [29:40.311] but all of our armed forces, sir.
+- [29:43.148] Secretary Mullen, thank you.
+- [29:52.323] Secretary Mullen, thank you for your leadership
+- [29:53.992] and support of our Coast Guard,
+- [29:55.493] men and women and their families,
+- [29:57.495] and under the president's direction
+- [29:59.164] for fighting to successfully fund the Coast Guard
+- [30:01.833] and the rest of DHS
+- [30:03.434] and ensure that what happened this year never happens again.
+- [30:06.838] We will not forget what you did, sir.
+- [30:15.980] To the superintendent, faculty and staff,
+- [30:17.949] thank you for forging these men and women
+- [30:19.617] into leaders of character who are ready for the call.
+- [30:23.188] To the parents, families, and friends,
+- [30:24.856] you laid the firm foundation of character and values
+- [30:27.525] for these graduates.
+- [30:28.893] Their success reflects your enduring love and support.
+- [30:32.363] Thank you.
+- [30:33.698] To the class of 2026, congratulations.
+- [30:37.535] Four years ago, you arrived as individuals,
+- [30:40.405] Americans drawn from across our great United States,
+- [30:43.741] including our US territories in Puerto Rico,
+- [30:46.144] the Virgin Islands, Guam,
+- [30:48.046] Northern Mariana Islands, and American Samoa.
+- [30:51.182] You were joined here by international students
+- [30:52.917] from allied and partner nations.
+- [30:55.186] Today, as you march out, you do so as a unified team,
+- [30:59.090] forged in the crucible and bound together
+- [31:01.326] by a shared calling to serve with honor,
+- [31:03.628] respect, and devotion to duty.
+- [31:06.497] You will serve at a time of historic consequence.
+- [31:09.500] The maritime domain is more complex, contested,
+- [31:12.437] and more vital to American security
+- [31:14.239] and prosperity than ever before.
+- [31:16.808] And today, the Coast Guard is in greater demand
+- [31:19.177] and we are delivering proven value
+- [31:20.712] and results to the American people.
+- [31:23.815] We save lives.
+- [31:25.783] We secure and defend our homeland
+- [31:27.518] and its maritime approaches from the borders
+- [31:29.854] of the mainland US throughout the Caribbean
+- [31:31.856] and the Western hemisphere,
+- [31:33.825] to Alaska and the Arctic, to Hawaii,
+- [31:35.727] and the three territories in the Pacific and in cyberspace.
+- [31:39.964] We facilitate commerce through our ports,
+- [31:42.033] waterways, and shipping,
+- [31:43.835] vital to America's economic prosperity,
+- [31:46.971] and to rebuilding the nation's maritime might.
+- [31:50.141] And we respond to crisis.
+- [31:52.243] At the same time, our service is implementing
+- [31:54.245] the president's vision to renew the Coast Guard
+- [31:56.781] through forced design, a generational transformation
+- [32:00.251] that's building a new fleet of assets
+- [32:02.387] and bringing in the additional men and women
+- [32:04.522] who will operate them.
+- [32:06.391] Our people are our greatest treasure.
+- [32:09.294] And as we build the most advanced ships in the world,
+- [32:11.963] they are nothing without their crews
+- [32:13.965] and the leaders of character to command them.
+- [32:17.535] You are those leaders.
+- [32:20.204] You'll soon report to your first units
+- [32:21.939] to lead across our operating forces aboard cutters at sectors
+- [32:26.010] in deployable specialized forces teams
+- [32:28.346] and at Coast Guard Cyber Command.
+- [32:30.782] First though, you will take the oath to support
+- [32:32.717] and defend the Constitution
+- [32:34.285] that accompanies your military commission.
+- [32:37.655] The commission is more than words.
+- [32:39.791] It is a direct grant of constitutional authority
+- [32:42.493] from our president and commander-in-chief to you,
+- [32:45.396] and it represents a sacred trust with the American people.
+- [32:49.934] As commission officers in the profession of arms,
+- [32:53.504] you must lead as if your lives depend on it.
+- [32:57.141] For certain, the lives of the men and women you lead,
+- [33:00.445] their lives will depend on it,
+- [33:02.380] and the lives of the American people
+- [33:04.215] we serve will depend on it.
+- [33:07.452] The academy has prepared generations of officers
+- [33:10.254] and you have spent four years preparing for this moment,
+- [33:13.825] and I know you are ready.
+- [33:16.494] I am incredibly proud to serve as your commandant.
+- [33:20.865] Looking to the horizon, I have certain hope for the future,
+- [33:25.470] for there's one thing
+- [33:26.704] our distinguished service history proves.
+- [33:29.607] With a ready Coast Guard crew
+- [33:31.709] and the strong support of the American people,
+- [33:34.679] there is nothing we can't accomplish.
+- [33:37.281] Semper Paratus.
+- [33:46.190] I'm now honored to introduce a distinguished leader
+- [33:48.326] who knows what it takes to secure our United States
+- [33:51.062] and enable our Coast Guard
+- [33:52.330] and the department to deliver mission success,
+- [33:55.433] a fighter who's always in our corner leading from the front,
+- [33:58.770] our Secretary of Homeland Security, Markwayne Mullin.
+- [34:03.141] (applause)
+- [34:13.918] Markwayne Mullin: Thank you, Admiral Lunday,
+- [34:16.454] and thank you, Mr. President, for allowing me such an honor
+- [34:19.824] to serve in your cabinet at such a historic time.
+- [34:24.629] As Secretary of Homeland, it's a very humbling position
+- [34:29.667] I find myself in and I play no games about
+- [34:35.173] who is my favorite out of the 22 components.
+- [34:38.476] I understand the Coast Guard,
+- [34:39.977] you're our first line of defense to protecting the homeland.
+- [34:44.816] And our president, our commander-in-chief,
+- [34:47.785] he believes in peace through strength,
+- [34:52.423] but he also understands that not everybody believes in peace
+- [34:55.660] and some people only respect strength.
+- [34:59.964] And because of the great men and women
+- [35:01.666] who sat in front of me today,
+- [35:03.701] you give our commander-in-chief the options
+- [35:08.072] because you're the one-percenters.
+- [35:10.308] You're the 1% that'll stand up and you defend our freedoms,
+- [35:14.512] you defend our constitution,
+- [35:16.481] you defend our homeland, you defend our nation,
+- [35:22.086] and our commander-in-chief loves you for that.
+- [35:32.697] As the one-percenters, the president has made it
+- [35:35.066] his obligation plus his mission to fund our military
+- [35:41.973] in the way that no other president has done.
+- [35:45.076] He's invested millions in the tunes of 25 billion
+- [35:50.381] actually to fund the Coast Guard,
+- [35:54.118] to bring the Coast Guard back to mission-capable,
+- [35:58.189] to not just fit today's missions,
+- [36:01.158] but to focus on tomorrow's missions as well.
+- [36:04.662] As I stated before, you're the frontline protecting our shores.
+- [36:09.700] You protect our inland waterways.
+- [36:13.838] You're the law enforcement of the water,
+- [36:17.742] and our president realizes that.
+- [36:21.546] You're commander-in-chief, this isn't his first time
+- [36:24.315] to come and speak at this podium.
+- [36:26.050] In fact, this is his second time to come speak at this podium.
+- [36:35.927] And I'm going to go off my notes
+- [36:37.194] a little bit to just talk about the ride over here.
+- [36:40.498] He had your commandant Lunday
+- [36:45.036] in the flying mobile office or the Oval Office,
+- [36:50.241] and he was bragging about everything from your uniforms
+- [36:54.679] to how you guys learn how to swim to your missions capability
+- [37:00.651] and to the fact that you guys are involved in every mission
+- [37:03.788] that when we're taking down the Narco boats
+- [37:07.158] to the illegal flag vessels, you guys are involved in it.
+- [37:11.295] And it comes with a great sense of pride for me
+- [37:14.865] because I get to call our commander-in-chief
+- [37:17.535] also my friend.
+- [37:19.303] And for me to stand in front of you today
+- [37:21.806] and be able to introduce him to the one-percenters,
+- [37:28.746] I take that as one of the greatest honors of my life.
+- [37:33.618] So without anybody waiting on me,
+- [37:37.455] because I'm never going to get in the way of this guy,
+- [37:40.124] let me introduce your commander-in-chief,
+- [37:42.693] our 45th and 47th President of the United States,
+- [37:48.165] Mr. President Donald J. Trump.
+- [37:52.803] (applause)
+- [38:15.359] The President: Thank you very much.
+- [38:16.994] Thank you very much. It was beautiful.
+- [38:19.463] He's a fantastic man. He's a very special man.
+- [38:22.600] He always has been. And Markwayne, thank you.
+- [38:24.902] Appreciate it. And hello, cadets.
+- [38:28.539] And let me begin by saying a very big congratulations
+- [38:32.343] to the class of 2026. Special class.
+- [38:41.552] It's a true honor to be here on this magnificent day
+- [38:44.989] at one of the most prestigious military academies
+- [38:47.658] anywhere in the world.
+- [38:48.926] And I'm thrilled to become the first president
+- [38:51.696] to ever give a second keynote address
+- [38:54.765] to this storied institution. I am very proud of that honor.
+- [38:58.803] We'll have to try it a third time.
+- [39:01.405] We're going to have to try it maybe a third time too,
+- [39:03.541] to keep that record intact.
+- [39:07.078] And a few moments from now, every graduate in the field
+- [39:10.448] will go forth with a even greater honor,
+- [39:13.751] one of the highest distinctions anyone can attain.
+- [39:17.555] You'll become commissioned officers
+- [39:19.423] in the United States Coast Guard,
+- [39:21.926] and our country is hot. This is a great time.
+- [39:24.061] Our country is hot. I hate to say it, but I will.
+- [39:28.232] A year ago, a year and a half ago, two years ago,
+- [39:31.202] the last administration, we were a dead country.
+- [39:34.305] Right now, we're the hottest country anywhere in the world.
+- [39:36.874] We're respected all over the world.
+- [39:39.110] You saw that with China just recently.
+- [39:41.145] You saw that in Venezuela. You saw that right now in Iran.
+- [39:47.752] Everything's gone. Their Navy's gone.
+- [39:49.653] Their Air Force is gone. Just about everything.
+- [39:52.490] The only question is, do we go and finish it up
+- [39:54.759] or are they going to be signing a document?
+- [39:56.560] Let's see what happens.
+- [39:58.229] But we're a hot country. We're the hottest country.
+- [40:00.564] Hottest country anywhere in the world with the strongest,
+- [40:03.033] most powerful military anywhere in the world,
+- [40:05.903] and there's nobody close.
+- [40:08.038] I want to thank our new Secretary of Homeland Security,
+- [40:12.209] Markwayne Mullin, a fantastic man,
+- [40:14.345] for the introduction,
+- [40:16.113] along with Coast Guard Commandant
+- [40:18.449] Admiral Kevin Lunday.
+- [40:21.352] And he is something. He's a special guy.
+- [40:25.923] When you get to that position in the Coast Guard,
+- [40:27.591] you're very something.
+- [40:28.826] I don't have to ask Xi how good is he.
+- [40:31.162] They have to be very good. It goes with the territory
+- [40:34.265] and the president of the Republic of Palau,
+- [40:39.670] Surangel Whipps Jr.
+- [40:41.872] I want to thank you very much and you're here
+- [40:44.074] and we appreciate you being here.
+- [40:45.643] Thank you very much.
+- [40:52.183] Over the past four years, this class has been mentioned
+- [40:55.419] by an exceptional team of professors
+- [40:59.790] and coaches and military professionals
+- [41:02.193] who have shaped you into leaders.
+- [41:04.461] You came with very good quality,
+- [41:06.764] but they've shaped you nevertheless,
+- [41:09.033] and warriors who revere honor and really honor duty.
+- [41:15.206] You honor duty like very few others can even think about it.
+- [41:18.843] So let's give a big round of applause
+- [41:20.845] to the entire faculty and staff that made this possible.
+- [41:29.854] And I especially want to thank Academy
+- [41:32.389] Superintendent Rear Admiral Greg Rothrock.
+- [41:38.295] Come on. Get up here. Come here. Come here.
+- [41:45.903] He does a hell of a job.
+- [41:48.439] You don't want to mess with him. Don't mess around with him.
+- [41:51.408] Thank you very much, Greg. Fantastic.
+- [41:55.512] Also, your assistant superintendent,
+- [41:57.414] Captain Jess Rozzi-Ochs. Rozzi-Ochs. Where is he?
+- [42:03.721] Where? Nice. Very nice. Thank you.
+- [42:10.027] Commander of Commandant of Cadets,
+- [42:13.397] Captain Aaron Casavant.
+- [42:17.768] Hi, Aaron. Hi, Aaron.
+- [42:21.705] Command Master Chief Evan Birch.
+- [42:25.943] Evan, where are you, Evan? Good job up here, Evan.
+- [42:30.447] It's never easy, Evan, up here, right?
+- [42:32.116] You feel more comfortable in the water.
+- [42:35.085] And class advisor, Christy Rose.
+- [42:38.656] Christy. Thank you, Christy.
+- [42:45.462] And of course, where would you be
+- [42:47.598] without the wonderful friends and family in the stands?
+- [42:50.467] And there are a lot of them here who loved and supported you
+- [42:53.971] and they were with you every single step of the way
+- [42:56.840] and they do love you. They do love you.
+- [42:59.810] Sometimes they're not forthcoming with that statement.
+- [43:03.314] They're up there. Half of them are crying.
+- [43:04.882] Look. Their boy, their girl, right?
+- [43:07.117] Their boy or their girl.
+- [43:08.352] They call them girl, by the way, and they call them boy.
+- [43:11.021] And in 30 years, they'll be calling you boy and girl too.
+- [43:14.291] They love you, your parents and your family, please.
+- [43:22.900] To all of the moms and dads, grandparents and family members
+- [43:26.470] here on this joyous occasion,
+- [43:28.505] thank you for everything you've done
+- [43:30.641] to raise such amazing American patriots.
+- [43:34.278] We really appreciate it. What a group.
+- [43:39.183] And today is all about the incredible class of 2026
+- [43:43.120] that you've achieved and all of the things
+- [43:45.889] that you've achieved and the exciting future that awaits.
+- [43:49.360] You have an amazing future.
+- [43:51.662] Very soon, you'll swap your shoulder boards
+- [43:55.299] and you'll join the long blue line
+- [43:57.101] of legendary rescuers, seafarers, and service members
+- [44:00.938] that fill American hearts with admiration and pride.
+- [44:04.308] I've watched it.
+- [44:05.676] I've watched you during those hurricanes in Texas
+- [44:09.480] and you got out there and you were going through waves
+- [44:11.715] that nobody else would've done. I wouldn't have done it.
+- [44:14.551] I would've said, "Captain, I'm not feeling too good today.
+- [44:17.654] I think I have to take a day off."
+- [44:19.289] But you would have none of it. You are really something.
+- [44:21.125] I watch -- but you would have none of it.
+- [44:22.626] You are really something. I watched it.
+- [44:24.595] You saved so many lives.
+- [44:26.697] During my first term, we had one of the worst hurricanes
+- [44:30.100] ever in Texas and the Gulf,
+- [44:33.504] and the bravery that you displayed was incredible.
+- [44:36.840] You saved thousands.
+- [44:38.075] I think the number was 16, 17,000 lives you saved.
+- [44:42.713] Through every generation,
+- [44:43.914] the heroes of the United States Coast Guard
+- [44:47.651] have lived by a creed of honor and bravery and sacrifice
+- [44:50.921] that have defied every storm, shipwreck,
+- [44:54.058] and every single enemy attack.
+- [44:57.027] In the hour of need, our coast guardsmen
+- [45:00.397] have brought hope to the hopeless
+- [45:02.966] and swept the innocent from the jaws of a raging sea,
+- [45:07.071] seas like nobody's ever seen before in some cases.
+- [45:10.874] Coast Guard warriors piloted the famous Higgins boats
+- [45:14.144] and delivered American liberation
+- [45:16.513] to beaches of Normandy
+- [45:18.215] and sailed through smoke and flame and gunfire
+- [45:21.718] to put the Marines and the Guadalcanal very much into play.
+- [45:27.024] And they patrolled the distant shores of Middle Bay
+- [45:31.862] and Mekong Delta and the Red Sea,
+- [45:34.765] and they patrolled them like nobody
+- [45:36.300] has ever been able to patrol them before or since.
+- [45:41.038] For decades, the men and women of this noble service
+- [45:44.274] have repeated an unofficial motto
+- [45:46.910] of pure unyielding courage. It says, "You have to go out,
+- [45:51.715] but you don't have to come back."
+- [45:53.817] That's a statement. I think of that.
+- [45:56.186] "You have to go out, but you don't have to go back."
+- [45:59.056] And you know what that means?
+- [46:00.390] That means danger and it's a statement that you live by.
+- [46:04.962] This is the unbelievable heroism and exceptional selflessness
+- [46:09.233] that lives in the soul of every single cadet on this field,
+- [46:13.403] every single one of you. And you've all been tested.
+- [46:16.440] You'll be tested further and probably at higher levels
+- [46:19.843] as your career goes on,
+- [46:21.145] but you've been very strongly tested
+- [46:23.413] and you have what it takes.
+- [46:25.682] You're America's first offenders.
+- [46:27.518] You are America's first responders.
+- [46:29.620] You are the living standard bearers
+- [46:31.989] of America's first fleet. As your commander-in-chief,
+- [46:36.960] I could not be prouder of the great class of 2026.
+- [46:42.766] Congratulations. Congratulations. Amazing.
+- [46:51.975] And I have no doubt to say,
+- [46:55.212] just like those Coast Guard legends who came before you,
+- [46:59.216] you will always put America first.
+- [47:02.119] We put America first now.
+- [47:04.087] We haven't done that for a long time,
+- [47:06.023] but we do that under the Trump administration, I will tell you.
+- [47:10.394] And the whole world is saying,
+- [47:11.828] "Well, America's first and they put America first."
+- [47:14.698] And we help others too, but we put America first.
+- [47:17.768] Four years ago, most of the cadets here today
+- [47:20.437] could have gone to almost any school that you wanted.
+- [47:23.440] It's so hard to get into the Coast Guard.
+- [47:26.443] I had so many people, "Sir, could you get my son
+- [47:29.146] who wants to go to the Coast Guard Academy?"
+- [47:31.915] And I look at the son, I say, "He's not going to make it."
+- [47:36.186] Terrible. I lost a lot of friends.
+- [47:38.889] I lost a lot of friends. But every once in a while,
+- [47:41.124] I'll call up with somebody outstanding
+- [47:43.460] and they'll generally take care.
+- [47:45.462] If they don't take care, they're fired,
+- [47:46.863] so they have no choice.
+- [47:48.966] But you really have outstanding people coming in.
+- [47:53.904] But you chose New London, you chose Cape May,
+- [47:56.873] you chose Kodiak Island, you chose the great service
+- [48:03.113] of God and country and the US Coast Guard,
+- [48:05.782] and it was the best decision of your lives.
+- [48:08.785] One of the great decisions, you will say it.
+- [48:11.321] It's hard to say it now, but you will say it as time goes by.
+- [48:13.991] This will be the best decision of your life,
+- [48:17.027] where you decided to learn,
+- [48:19.296] go to school at this incredible, beautiful place.
+- [48:22.766] You came as strangers and American teenagers.
+- [48:25.936] You leave as officers, American warriors, and friends forever.
+- [48:29.806] You're always going to be friends with each other,
+- [48:31.942] hopefully with me.
+- [48:33.710] Today, this field is full of some of the smartest minds,
+- [48:37.147] the toughest athletes,
+- [48:38.448] and the most tenacious leaders our nation has to offer.
+- [48:42.552] It really is.
+- [48:43.787] It is very hard to get into this particular place.
+- [48:48.425] It is very, very hard.
+- [48:50.294] It is a lot of broken hearts. People don't do it.
+- [48:53.297] Good people, smart people, they can't quite make it.
+- [48:56.800] Many of you have excelled academically,
+- [49:01.338] but 49 cadets have studied longer
+- [49:03.707] and harder than anyone else,
+- [49:06.143] the very accomplished Coast Guard Academy scholars.
+- [49:09.212] Would you please stand?
+- [49:10.480] These are the really brilliant people.
+- [49:12.549] You're all brilliant,
+- [49:13.784] but these are perhaps slightly more brilliant.
+- [49:39.843] Don't feel guilty. Don't feel guilty.
+- [49:43.747] Never feel guilty about success, right?
+- [49:46.750] But I think it's great.
+- [49:49.252] And at the top of your class with the highest score
+- [49:52.089] in both military and academic achievements
+- [49:54.825] is distinguished graduate Matthew Lanzilotta.
+- [49:59.529] Where is he? Where is he?
+- [50:04.234] Come here. Get up here. Come on. Come on. Get up.
+- [50:12.008] Get up. I want to see this guy.
+- [50:15.412] (applause)
+- [50:26.089] (inaudible)
+- [50:36.333] The President: I hate good looking men.
+- [50:42.072] Matthew, that's great. Thank you very much.
+- [50:44.174] It's a great honor. We also have the only cadet
+- [50:48.245] who earned a perfect score on every single fitness test.
+- [50:52.215] Now we're talking fitness. Do you know who this is already?
+- [50:56.520] Well, this guy must be something.
+- [50:58.088] I think we'll have to invite him up.
+- [50:59.389] I want to check it out.
+- [51:01.725] For the last four straight years,
+- [51:04.294] which they think may be an all time record,
+- [51:07.164] congratulations to Thomas Roach. Thomas, get up here please.
+- [51:10.767] I want to see. I want to check him out.
+- [51:18.742] We're not going to fight with him.
+- [51:20.043] I'm not fighting him. This is not UFC.
+- [51:24.414] Please understand that, Thomas. Look at this guy.
+- [51:27.284] Look at the muscles on this guy.
+- [51:30.487] (applause)
+- [51:41.598] Just hit him on the shoulder. I hurt my hand.
+- [51:43.333] It's like hitting a rock. That's great.
+- [51:46.570] Thomas, that's fantastic.
+- [51:49.105] Another member of this class is making history as well today.
+- [51:53.743] Mike Kettish becomes the first Coast Guard Academy graduate
+- [51:58.548] to ever go straight from the Corps of Cadets
+- [52:01.818] into the Coast Guard Special Forces.
+- [52:04.488] So what was that all about?
+- [52:06.223] Come on up here. Come on. Let's go.
+- [52:09.025] Come on up here, Mike. I want to see what these guys --
+- [52:12.262] I like to see what these guys are like
+- [52:15.332] because you know it's competition for me too.
+- [52:17.467] I have to compete with you now. I'm not liking that.
+- [52:21.938] (applause)
+- [52:30.814] These are special people. Thank you very much, Michael.
+- [52:36.286] For the past four years,
+- [52:37.621] you've been led by your brilliant class
+- [52:40.724] President Savannah Riera. Where is Savannah.
+- [52:45.695] Where are you, Savannah? Where are you, Savannah?
+- [52:50.700] Where is Savannah?
+- [52:53.770] Savannah, come on up here.
+- [52:55.071] I have to. If I didn't invite her up,
+- [52:58.208] they'd accuse me of discrimination.
+- [53:03.613] Ladies and gentlemen, the President got sued today.
+- [53:06.283] Savannah, come on up.
+- [53:09.619] I have to get her up here and she looks so fantastic.
+- [53:13.189] This is ridiculous. Nothing like having a little fun.
+- [53:17.994] Do you agree? This is your big day.
+- [53:19.930] We got to get Savannah up here.
+- [53:22.999] (applause)
+- [53:33.843] Thank you, Savannah. Wow.
+- [53:37.247] This class has also been blessed with many tremendous athletes,
+- [53:40.550] including the academy's all time leader in receptions,
+- [53:44.254] yards, touchdowns, wide receiver.
+- [53:47.757] Broock Desta. Where's Broock?
+- [53:52.095] Wow. That's a pretty good record, Broock.
+- [53:56.099] I'll let you come up if you want.
+- [53:57.934] You want to come up?
+- [53:59.235] Come on up here, Broock. Come on.
+- [54:02.606] You can see they want you up here, Broock.
+- [54:07.344] So do we have a little NFL future here maybe?
+- [54:10.180] I don't know.
+- [54:11.514] Usually that can happen when you're leading by that much.
+- [54:15.218] That's a lot of achievement.
+- [54:17.988] (applause)
+- [54:36.840] We've made it possible. I did this.
+- [54:39.042] We made it possible for people like Broock
+- [54:42.045] that really have a great ability at sport
+- [54:44.347] and in some cases will be drafted by the NFL
+- [54:48.118] or have a chance of getting into the NFL
+- [54:50.186] or baseball or basketball, or whatever it might be.
+- [54:53.356] The problem is they had to serve, as you know.
+- [54:55.725] They had to serve five years and that's not exactly conducive
+- [55:00.730] to being drafted very high if you had to go away.
+- [55:02.766] So I made a decision in my first term,
+- [55:05.435] and we adhere to it very strongly,
+- [55:06.870] that when somebody has the ability
+- [55:08.405] going to Coast Guard or West Point,
+- [55:11.941] Annapolis, Air Force, any of them,
+- [55:14.577] if you have a student with extreme ability
+- [55:17.647] that gets drafted and can play in professional football,
+- [55:21.384] we allow you to go immediately,
+- [55:23.353] and you serve your time in the Coast Guard
+- [55:26.189] or whatever after your professional career is over.
+- [55:29.893] And it has made such a difference.
+- [55:32.062] It's also made a big difference in recruiting.
+- [55:34.531] That's why your teams are better today than they used to be.
+- [55:37.500] So I make these little contributions.
+- [55:39.269] I don't know if people know I made those contributions.
+- [55:42.572] So Broock, I want 25% of everything you earned.
+- [55:45.308] Thank you, Broock. I appreciate --
+- [55:47.544] So it's a little bit of a help,
+- [55:50.213] but actually what we didn't expect,
+- [55:52.348] it made your recruiting much better
+- [55:54.084] because you're able to now recruit the top people,
+- [55:57.387] people that really have a chance
+- [55:58.655] of getting into professional sports
+- [56:00.690] and one of the reasons you have such good teams.
+- [56:03.893] We also have your all time leader
+- [56:05.628] in points in the assist for women lacrosse,
+- [56:09.632] Abby McAllister. Abby?
+- [56:13.403] Abby. Where are you Abby? Stand up Abby.
+- [56:17.040] Oh, are you that good Abby? Do you want to come up Abby?
+- [56:22.378] Come on, Abby. Come on up, Abby.
+- [56:31.254] See, we throw them a little off on timing
+- [56:33.256] when I do this, but what the hell?
+- [56:34.924] We have time, right? This is your day.
+- [56:37.994] And when somebody achieves with these people,
+- [56:39.863] we should give them a little extra recognition, right?
+- [56:46.402] That's a tough sport, Abby. I don't know.
+- [56:49.339] We're not going to mess with you.
+- [56:51.608] That's great. That's a big record.
+- [56:56.446] (applause)
+- [57:07.524] Thank you. Thank you, Abby.
+- [57:11.995] Of course, there are those of you
+- [57:13.730] who have made your mark on the school in many other ways,
+- [57:17.567] like the mayor of the class, Freddie Wheaton,
+- [57:21.337] the founder of Phi Kappa, Granny, Evan Granahan,
+- [57:29.445] and the leader of the sports club, Aiden Roskowski.
+- [57:37.921] They've done a great job.
+- [57:39.856] That's good. That's also called leadership.
+- [57:42.392] While everyone has worked and studied hard,
+- [57:44.961] some may have spent a little bit too much time
+- [57:47.897] at a place called Mr. G's.
+- [57:49.966] I don't know what Mr. G's. I don't know what it is,
+- [57:53.436] but I don't like the sound of this.
+- [57:55.205] I'm not -- Where am I going with this one?
+- [57:58.641] But we want you all to have a clean slate
+- [58:01.044] as you begin your career.
+- [58:02.378] So therefore, Mr. Superintendent,
+- [58:04.948] I hereby absolve all cadets who are on restriction
+- [58:10.787] for minor conduct infractions
+- [58:13.256] and even somewhat major infractions.
+- [58:16.025] Effective immediately. Okay?
+- [58:22.599] You guys, you got away with murder.
+- [58:24.934] I was just in a good mood.
+- [58:26.803] I was in a very good mood to do that.
+- [58:29.606] Every branch of our armed forces protects American lives,
+- [58:32.675] but the Coast Guard is the only service
+- [58:34.544] explicitly dedicated to saving them.
+- [58:37.347] You're saving lives.
+- [58:38.915] You never leave an American behind and you never would.
+- [58:42.719] In the past year, our Coast Guard heroes
+- [58:44.888] have saved over 5,200 lives at least and helped carry out
+- [58:49.893] and carry over 19,000 people to safety.
+- [58:53.863] Amazing.
+- [58:55.131] One of the special cadets in this class
+- [58:58.167] has already saved his first life during his first class summer,
+- [59:03.573] providing lifesaving care to the person in distress
+- [59:06.910] off the coast of Alaska.
+- [59:09.178] A job well done. That's Mason White.
+- [59:12.782] Mason, thank you. Stand up please. Thank you.
+- [59:17.086] Thank you, Mason. Great job. That was early on, right?
+- [59:21.624] And that was great job. Thank you very much.
+- [59:25.161] When you leave here today, every cadet on the field
+- [59:27.697] will be stepping into a critical role
+- [59:30.033] in the defense of our country
+- [59:32.235] to protect our maritime infrastructure.
+- [59:34.771] 12 of you will be going to Coast Guard Cyber Command.
+- [59:38.675] That's a big deal.
+- [59:40.076] 20 are heading to Coast Guard Flight School.
+- [59:43.346] 23 will join prevention and response.
+- [59:46.916] And a whopping 181 cadets
+- [59:49.319] will become afloat officers in a fleet
+- [59:52.956] because as you like to say, underway is the only way
+- [59:57.827] and that's a pretty cool statement.
+- [01:00:01.564] And I don't know if you know this,
+- [01:00:03.733] but I was telling your leaders before that we have 11,
+- [01:00:09.639] we're way down on icebreakers and we've ordered 11.
+- [01:00:14.410] We're working with Finland. They make icebreakers.
+- [01:00:16.646] They make the best icebreakers.
+- [01:00:17.947] We're going to learn everything we can learn.
+- [01:00:19.382] We're going to shortly make them ourselves.
+- [01:00:22.552] But we're making right now currently under construction,
+- [01:00:25.121] we have 11, beautiful.
+- [01:00:26.789] And I said, "Come on, when's the first one coming?"
+- [01:00:29.025] They said in '28.
+- [01:00:30.860] I said, "I'm going to be here in '28.
+- [01:00:32.662] Maybe I'll be here in '32 too. I don't know." Maybe I will.
+- [01:00:37.433] But I'm going to be here in '28.
+- [01:00:38.901] And I'll tell you, I said that's great
+- [01:00:41.437] because I'm going to be there at the dedication.
+- [01:00:43.773] They have been trying to get icebreakers for years and years
+- [01:00:47.443] and no President was able to provide them
+- [01:00:49.645] with what you need to get it done.
+- [01:00:51.781] And I want to thank the country of Finland
+- [01:00:54.450] because they are known to make the best icebreakers.
+- [01:00:57.186] And I thought going there for starters.
+- [01:01:00.390] We tried making one, but it was too front heavy.
+- [01:01:03.192] It wouldn't have worked because an icebreaker
+- [01:01:04.694] has to come crashing down and when the front weighs
+- [01:01:08.097] four times more than the back, bad things happen.
+- [01:01:11.300] So I realized we didn't know what the hell we were doing.
+- [01:01:14.237] I went to Finland and was with the president of Finland
+- [01:01:17.473] and we worked out a deal, and we're making 11 total.
+- [01:01:22.712] Some of them are going to be made right here.
+- [01:01:24.313] We're going to learn the craft
+- [01:01:25.815] and we're going to have so many icebreakers.
+- [01:01:27.817] Russia has 48 and we have one very old one, it's ridiculous.
+- [01:01:31.754] And we have the whole Arctic, we have the whole region
+- [01:01:35.091] and we're going to have a whole big fleet very shortly
+- [01:01:37.794] and they're starting to come in a very quick fashion.
+- [01:01:41.097] After that, we're going to go way up higher.
+- [01:01:42.698] We'll have at least 55 within a short period of time
+- [01:01:45.435] so that'll be great.
+- [01:01:46.669] And you're going to be operating them and running them
+- [01:01:49.138] and it's probably another category.
+- [01:01:53.176] The class of 2026 is graduating at an incredible,
+- [01:01:57.413] exciting time for our nation and the Coast Guard in particular.
+- [01:02:02.051] As you enter the office core of the greatest military
+- [01:02:05.888] in the history of the world, our national strengths is back.
+- [01:02:10.393] Our morale is back. We are a confident country again.
+- [01:02:14.263] We have confidences back.
+- [01:02:16.566] And above all, America is back bigger and better
+- [01:02:20.269] and stronger than ever before.
+- [01:02:22.205] We have a strong, great respected country again.
+- [01:02:25.374] We went off course. We went very sadly off course.
+- [01:02:31.214] For years, Washington DC was run by foolish politicians
+- [01:02:35.551] who thought they could defy the laws of world history,
+- [01:02:40.256] violating every common sense principle
+- [01:02:43.426] for preserving national power and national security.
+- [01:02:46.996] And they surrendered our industrial capacity
+- [01:02:49.899] to other countries,
+- [01:02:51.134] crippled our energy production through open our borders.
+- [01:02:55.104] We had borders where just they were open borders,
+- [01:02:58.941] they called them.
+- [01:03:00.276] People came in totally unchecked and unvetted.
+- [01:03:03.579] You know how many people over four years in the last term?
+- [01:03:06.349] 25 million people. They came in as murderers.
+- [01:03:10.052] They were coming in from other countries.
+- [01:03:12.421] They came in from prisons. They were drug dealers.
+- [01:03:15.324] They came in from mental institutions and insane asylums.
+- [01:03:18.394] They allowed them to just flow into our country.
+- [01:03:20.463] We're getting them out. We've got a lot of them out.
+- [01:03:23.232] 11,888 murderers. Think of that.
+- [01:03:28.237] 50%, or more than 50%, committed more than one murder.
+- [01:03:32.441] They were allowed in our country.
+- [01:03:33.743] We can never forget the sins of what they did to our country,
+- [01:03:37.914] but we're getting them out.
+- [01:03:39.415] In fact, we've gotten them to the extent
+- [01:03:41.617] that we just had the best crime numbers in history.
+- [01:03:44.387] The best crime numbers,
+- [01:03:45.655] meaning the lowest crime numbers in history
+- [01:03:48.291] were just last month released.
+- [01:03:51.194] Lowest number of murders since the year 1900, 125 years.
+- [01:03:55.631] So what they did to us is terrible,
+- [01:03:57.934] but we're getting it back into shape really properly.
+- [01:04:01.604] And now we went from the worst border in history
+- [01:04:03.906] to the strongest border we've ever had.
+- [01:04:05.708] In 11 months, not one illegal alien
+- [01:04:09.011] was able to get into our country when you think of that.
+- [01:04:11.480] That's pretty amazing.
+- [01:04:14.517] And they can come in, but they have to come in legally.
+- [01:04:17.420] They have to come in through a process.
+- [01:04:18.754] They have to love our country.
+- [01:04:19.989] They have to show us that they can love our country,
+- [01:04:21.624] not that they want to blow up our country. I think that-
+- [01:04:23.326] They have to show us that they can love our country,
+- [01:04:24.694] not that they want to blow up our country.
+- [01:04:25.928] I think that everybody agrees with that.
+- [01:04:27.163] Under this administration,
+- [01:04:28.397] we don't apologize for American power or wealth.
+- [01:04:32.001] What we do really is we want to maximize it.
+- [01:04:34.503] We take advantage of it. We unleash it and we wield it
+- [01:04:37.974] to pursue our country's glorious destiny
+- [01:04:40.409] and our beautiful American dream.
+- [01:04:42.411] We have the American dream back.
+- [01:04:44.213] You didn't hear about the American dream too much
+- [01:04:46.182] for four years and now the American dream is back.
+- [01:04:49.452] This is truly the golden age of America.
+- [01:04:51.687] We are in now the golden age.
+- [01:04:53.856] We have more production, more people.
+- [01:04:56.592] We have more people working today
+- [01:04:58.761] than at any time in the history of our country by far.
+- [01:05:02.298] We have more people having great jobs today
+- [01:05:04.700] than at any time in the history of our country.
+- [01:05:07.570] Our country is respected all over the world.
+- [01:05:10.339] The men and women of the Coast Guard
+- [01:05:12.141] have a vital role to play in this resurgence.
+- [01:05:15.177] This is a great resurgence.
+- [01:05:16.612] We have $18 trillion being invested in the United States.
+- [01:05:20.883] That's many, many times more than ever before.
+- [01:05:24.620] In fact, you'd have to go back more than 10 years.
+- [01:05:27.423] Another country a long time ago had three trillion.
+- [01:05:30.192] We have 18 trillion.
+- [01:05:31.394] The last administration for four years
+- [01:05:34.096] had less than one trillion. We have $18 trillion
+- [01:05:37.833] being invested in our country in 11 months,
+- [01:05:40.670] because the numbers for the 12th have not come up,
+- [01:05:43.906] so that's going to increase it yet further.
+- [01:05:46.142] So that's an honor.
+- [01:05:47.443] It's a great honor. To me, that's something special.
+- [01:05:49.512] We're building plants, auto plants, every kind of plant
+- [01:05:52.381] you can imagine all over the country
+- [01:05:54.817] and they're coming in from Canada.
+- [01:05:56.652] They're leaving other countries.
+- [01:05:57.920] They stole our auto business. They stole our chip business.
+- [01:06:02.058] We'll have close to 50% of the chip business by the time
+- [01:06:05.461] I leave and right now we have none, practically.
+- [01:06:11.200] It was taken by other places.
+- [01:06:13.002] It was taken by Taiwan. I'm not knocking them.
+- [01:06:15.237] I'm saying if they can get away with it,
+- [01:06:17.306] but if you had the right president,
+- [01:06:18.607] that would've never happened.
+- [01:06:19.875] It wouldn't have been allowed to have happened.
+- [01:06:22.078] You would've put tariffs on and you say, "That's okay.
+- [01:06:24.246] You can steal our business, but if you're going to sell--
+- [01:06:26.282] If you think you're selling those chips
+- [01:06:28.084] back into us with no tax, you can forget it."
+- [01:06:32.054] And if we did that, we wouldn't have lost those businesses,
+- [01:06:34.390] the autos, the chips, the semiconductors.
+- [01:06:38.027] All of that would be here, but it's all pouring back
+- [01:06:40.229] into our country right now because of the word tariff.
+- [01:06:43.132] As you know, one of my favorite words,
+- [01:06:44.834] I got into big trouble.
+- [01:06:46.535] I said, "This is my favorite word in the dictionary,
+- [01:06:50.706] my favorite word,
+- [01:06:52.041] the word tariff and the fake news."
+- [01:06:54.310] Look at all of them back there. They said, "What about God?
+- [01:06:58.013] What about wife, family?
+- [01:07:00.116] What about other things like Bible?"
+- [01:07:03.386] So I was in deep trouble because they said tariff is my favorite.
+- [01:07:06.122] So I made it number five and now I'm okay. Now I'm okay.
+- [01:07:10.993] They think I'm kidding. They gave me a hard time.
+- [01:07:14.830] But with your help, we're reasserting one of
+- [01:07:18.334] the most time-honored principles of our national security
+- [01:07:21.871] that the American dominance and Western hemisphere
+- [01:07:24.473] will not be threatened under any circumstance.
+- [01:07:27.643] As an example, we will not let Iran have a nuclear weapon.
+- [01:07:33.582] It's very simple. We will not let that happen.
+- [01:07:38.921] And we have great support.
+- [01:07:40.222] You wouldn't know that by reading the fake news,
+- [01:07:41.991] but we have great support.
+- [01:07:43.759] People don't want them to have a nuclear weapon
+- [01:07:46.262] and they will not have a nuclear weapon.
+- [01:07:47.897] And they want to make a deal so badly,
+- [01:07:49.465] we'll see what happens, but we hit them very hard,
+- [01:07:52.968] but we may have to hit them even harder, but maybe not.
+- [01:07:55.571] But we're not going to let Iran have a nuclear weapon
+- [01:07:57.640] and blow up the entire Middle East, Israel,
+- [01:07:59.809] the entire Middle East, and then come here for you.
+- [01:08:02.845] Not going to happen.
+- [01:08:04.180] So just as no family can be truly secure
+- [01:08:07.416] in a violent neighborhood, we will not allow chaos,
+- [01:08:10.719] instability, or danger to fester in America's own backyard.
+- [01:08:14.723] We're not going to let it happen.
+- [01:08:16.158] One of the reasons we have Markwayne
+- [01:08:18.494] and one of the reasons that I feel
+- [01:08:19.762] so good about things, he's a tough cookie.
+- [01:08:21.797] He was a great fighter too, a great fighter.
+- [01:08:24.266] He was a tough cookie and a very successful fighter.
+- [01:08:28.237] And sons are all American fighters,
+- [01:08:30.873] so they have good genetics in that family.
+- [01:08:33.676] But Markwayne is a tough guy with a--
+- [01:08:36.412] I always say he's a tough guy with a great heart
+- [01:08:38.981] and that's a good combination.
+- [01:08:41.116] So from the Gulf of America to the frozen waters of the Arctic,
+- [01:08:45.855] from the shores of Havana to the banks of the Panama Canal,
+- [01:08:51.293] we will drive out the forces of lawlessness
+- [01:08:54.230] and crime and foreign encroachment,
+- [01:08:56.799] just like we've been doing. We have only 3% coming in.
+- [01:09:01.971] We were getting tremendous, you would understand this,
+- [01:09:04.740] because you were involved in this,
+- [01:09:05.941] we were having tremendous amounts of drugs
+- [01:09:08.410] brought in by sea, by ocean, by water.
+- [01:09:11.514] And a tremendous amount. A tremendous amount.
+- [01:09:14.984] And we've now reduced that to 3%.
+- [01:09:18.020] So it was a big percentage
+- [01:09:19.688] and now it's all the way down to 3%.
+- [01:09:22.258] And we've hit them very hard, as you know.
+- [01:09:24.226] Not that it's something we wanted to do.
+- [01:09:26.695] And we never miss. We never miss.
+- [01:09:28.664] We hit them very hard, and actually,
+- [01:09:30.966] people are trying to figure out who are the 3%,
+- [01:09:33.068] because they happen to be the bravest people
+- [01:09:34.803] perhaps anywhere in the world, the 3% that's left,
+- [01:09:38.240] but I don't even think they have 3%.
+- [01:09:40.209] We virtually stopped it and now we're going to stop the drugs
+- [01:09:43.145] coming in by land and that's the easy one to do.
+- [01:09:46.048] That's the easier one. I want to thank the Coast Guard,
+- [01:09:47.950] because you've been unbelievable in that endeavor.
+- [01:09:50.386] Think of it. We had a majority. We had a majority of drugs
+- [01:09:54.957] were coming in by the sea, by the ocean,
+- [01:09:58.027] and we have virtually stopped that.
+- [01:10:01.497] And now for the easy part, the land, the much easier.
+- [01:10:04.433] And it will be equally quick
+- [01:10:07.469] and we are going to have very, very--
+- [01:10:09.238] Drugs are down by 61%,
+- [01:10:12.474] but we want to get them down to almost nothing,
+- [01:10:14.510] because they've destroyed so many families,
+- [01:10:16.378] so many people, so many lives.
+- [01:10:18.514] Our Coast Guard Cutters are elite tactical teams
+- [01:10:21.617] where the pivotal is enforcing our successful blockade.
+- [01:10:26.155] And you just have to see this.
+- [01:10:28.223] We have a blockade that's, they call it the wall of steel.
+- [01:10:31.760] Nobody goes through them and you're a big part of it.
+- [01:10:34.463] Nobody goes through the Navy, the Coast Guard.
+- [01:10:37.399] We have ships that tried to go through,
+- [01:10:39.168] and young captains from Coast Guard Academy,
+- [01:10:43.939] the Naval Academy, Annapolis,
+- [01:10:46.241] and they're saying, "Do not proceed further."
+- [01:10:49.378] They have the greatest loudspeaker system,
+- [01:10:51.614] much better than this one.
+- [01:10:52.915] Let me tell you, it goes over the water.
+- [01:10:55.217] It bounces on the water
+- [01:10:56.952] and you have this young, handsome captain saying,
+- [01:10:59.989] "Do not proceed further. You are in enemy territory.
+- [01:11:03.659] Do not proceed further or we will shoot."
+- [01:11:07.129] And you have a ship that's like two football fields
+- [01:11:09.598] long that carries two million barrels of oil.
+- [01:11:13.969] Think of that, two million barrels.
+- [01:11:16.205] And on occasion they'll try and disobey.
+- [01:11:20.075] And last week you saw one shot,
+- [01:11:23.212] not a missile shot, a bullet, a very large bullet.
+- [01:11:26.715] A bullet from four miles hit the rudder of the ship
+- [01:11:30.586] and the rudder of the ship fell into the ocean.
+- [01:11:32.588] It was a beautiful thing to see. It just fell in.
+- [01:11:35.257] I said, "What the hell kind of a shot was that?"
+- [01:11:38.127] And the man said, "No, no, we are going back to Iran."
+- [01:11:43.032] See, now I say Iran, I don't use--
+- [01:11:44.667] Because he obviously has a correct pronunciation.
+- [01:11:49.538] "We will go back to Iran."
+- [01:11:51.607] And it took with a broken rudder,
+- [01:11:53.676] with the rudder that was laying at the bottom of the sea,
+- [01:11:56.045] it took 10 miles just to turn that ship back.
+- [01:11:59.415] But nobody violates it. Nobody. And I was with, as you know,
+- [01:12:03.018] President Xi of China two days ago,
+- [01:12:05.654] we had a tremendous meeting, very successful meeting
+- [01:12:10.025] and he agrees our military is phenomenal.
+- [01:12:13.095] I don't want to go beyond that, but I will tell you,
+- [01:12:15.097] he respects our military tremendously.
+- [01:12:16.999] Our military is respected.
+- [01:12:18.734] We have, as I said, the greatest military anywhere in the world
+- [01:12:21.403] and we're going to keep it that way.
+- [01:12:22.905] We have a budget this year of $1.5 trillion.
+- [01:12:27.242] That's the biggest budget we've ever had.
+- [01:12:28.844] That includes the Coast Guard. Don't worry about it.
+- [01:12:30.779] Look, they're getting a little bit concerned.
+- [01:12:32.414] Don't worry, it includes you.
+- [01:12:33.716] You're going to have so many Coast Guard Cutters,
+- [01:12:35.317] you're not going to know what to do with them.
+- [01:12:37.386] You'll have a cutter that's two years old, you say,
+- [01:12:39.221] "Captain, I want the new one." Didn't used to be that way,
+- [01:12:43.192] but we have a lot of money coming your way, you know that.
+- [01:12:46.795] Because of these people and people like them,
+- [01:12:49.164] they made a great case for it and I'm a big fan.
+- [01:12:51.166] So we take care of it while I'm here,
+- [01:12:54.436] because we're going to take care of the Coast Guard
+- [01:12:56.105] like you wouldn't believe. And in a flawless-- Thank you.
+- [01:13:01.510] And in a flawless operation
+- [01:13:03.045] last January supported by the Coast Guard,
+- [01:13:06.548] America's armed forces captured the outlaw Nicolás Maduro
+- [01:13:11.320] and brought him back to American justice.
+- [01:13:14.089] He's awaiting trial from Venezuela,
+- [01:13:18.427] an attack that took less than one day.
+- [01:13:21.063] And it was an amazing--
+- [01:13:22.631] I think it's one that's going to be studied for a long time.
+- [01:13:25.968] Great, smart country. Very tough military country,
+- [01:13:28.437] but it really took 48 minutes and 13 seconds to be exact,
+- [01:13:33.275] but let's give it one day. And he's now awaiting trial
+- [01:13:37.079] and now we have a great joint venture with Venezuela.
+- [01:13:40.716] We have millions of barrels of oil coming into Houston
+- [01:13:43.519] and coming into parts of Texas and Louisiana and Alaska
+- [01:13:47.923] and it has been an amazing thing.
+- [01:13:49.925] Venezuela used to be a really great country 20 years ago.
+- [01:13:52.795] Then it went the wrong way.
+- [01:13:54.897] It went the way they'd like to take this country.
+- [01:13:56.665] Some lunatics would like to take this country way,
+- [01:13:59.034] way left and destroy it,
+- [01:14:01.503] but we're not going to let that happen.
+- [01:14:02.905] We're not letting that happen.
+- [01:14:05.073] This service has also been at really the center of the battle
+- [01:14:12.581] to restore sovereign borders for the United States
+- [01:14:15.217] and keep drugs and criminals out of our country
+- [01:14:17.519] and we're keeping them out. Since I took office,
+- [01:14:20.222] the Coast Guard has seized over 206 million
+- [01:14:24.960] lethal doses of illicit narcotics,
+- [01:14:27.763] the most in the history of our country,
+- [01:14:29.665] enough to kill a country, a large country many,
+- [01:14:33.602] many times over.
+- [01:14:35.537] And you've seized it and you seized it constantly
+- [01:14:37.973] and you don't play games.
+- [01:14:39.942] Last August, the Coast Guard Cutter
+- [01:14:42.778] Hamilton interdicted 76,000 pounds of illegal drugs,
+- [01:14:47.516] the largest Coast Guard drug bust of all time.
+- [01:14:50.285] Largest ever.
+- [01:14:51.820] And I'm telling you, the Coast Guard has always been good,
+- [01:14:54.189] but you've stepped it up even beyond that.
+- [01:14:57.492] Five cadets graduating today
+- [01:14:59.228] were part of that historic action
+- [01:15:03.065] and I'll mention their name. Elliot Coles. Stand up Elliot.
+- [01:15:08.770] Jenna Lewandowski, Piper Stevens,
+- [01:15:14.376] Hannah-Warner Kay, and JJ Banek Gabel.
+- [01:15:23.552] Thank you. Great job. Thank you very much.
+- [01:15:27.322] The Coast Guard has also played an important role
+- [01:15:29.725] in operation Epic Fury to ensure that the Iranian regime
+- [01:15:34.396] never obtains a nuclear weapon.
+- [01:15:37.199] Just two months ago off the Coast Guard, Malaysia,
+- [01:15:40.869] a highly trained US Coast Guard tactical team
+- [01:15:44.373] helped ease a sanctioned Iranian oil tanker
+- [01:15:47.109] that had been used to transport over a million barrels of oil
+- [01:15:51.680] from Kharg Island into the coffers of Iran.
+- [01:15:54.583] We don't want that to happen.
+- [01:15:56.752] This is the third sanctioned Iranian vessel
+- [01:15:59.121] the Coast Guard has helped capture
+- [01:16:01.556] since we began the fighting, the real fighting with Iran.
+- [01:16:07.029] And many more to come, I suspect,
+- [01:16:08.697] unless they get smart.
+- [01:16:10.565] Everywhere you go, you say,
+- [01:16:11.934] "Never forget you represent the most righteous, successful,
+- [01:16:15.904] and exceptional nation in all of history.
+- [01:16:18.507] And you were really put in a position
+- [01:16:21.310] where you wear the uniform,
+- [01:16:22.844] the most powerful military ever to sail the seas.
+- [01:16:26.782] You are right now at the pinnacle of this nation.
+- [01:16:29.651] You are at the pinnacle."
+- [01:16:30.919] Four years ago, three years ago, I couldn't have said that.
+- [01:16:34.723] I wouldn't have been up here, but I couldn't have said that.
+- [01:16:37.492] You were not at the pinnacle at all.
+- [01:16:38.961] Right now you're at the pinnacle of the Coast Guard,
+- [01:16:40.996] at the pinnacle of the military,
+- [01:16:43.465] and that military includes the Coast Guard,
+- [01:16:46.234] will soon be stronger and more powerful than ever before
+- [01:16:49.271] with all of the things we've done.
+- [01:16:52.107] Last year I signed a record-setting $25
+- [01:16:55.243] billion investment in the Coast Guard,
+- [01:16:57.379] including funding for 22 new cutters,
+- [01:16:59.715] 40 new search and rescue helicopters,
+- [01:17:03.085] 25 state-of-the-art icebreakers.
+- [01:17:06.154] And we're also providing $380 million for renovations
+- [01:17:11.727] and improvements right here at the academy.
+- [01:17:14.096] The academy is going to be so beautiful.
+- [01:17:15.664] It's already beautiful, frankly,
+- [01:17:17.065] but it's going to be tippy top, as I say.
+- [01:17:20.869] It's going to be perfect. Under our leadership,
+- [01:17:24.473] the service is seeing more action
+- [01:17:26.208] than at any time in many decades.
+- [01:17:29.077] I would say at any time, period,
+- [01:17:30.679] you've never seen what is happening.
+- [01:17:32.848] And the Coast Guard, as good as it has been,
+- [01:17:34.783] has never seen what's happening to it right now.
+- [01:17:37.686] And the spirit has never been higher.
+- [01:17:40.389] And I think we can say that it starts with the leadership,
+- [01:17:43.525] but I think the spirit with the Coast Guard
+- [01:17:45.360] has never been higher than it has been right now.
+- [01:17:48.997] I got to know a couple of people over the last two weeks
+- [01:17:54.369] from the Coast Guard and I can see why.
+- [01:17:56.271] These are incredibly brilliant people, good people.
+- [01:18:00.342] I have to say, I don't want to give them any ideas,
+- [01:18:01.977] but in the private sector, they'd be making a lot of money.
+- [01:18:05.313] And you know what? They wouldn't trade what they're doing.
+- [01:18:07.649] Would you guys trade for millions a year?
+- [01:18:13.188] Maybe. No, you wouldn't. I don't think you would.
+- [01:18:16.358] A lot of people would like to be in your position
+- [01:18:18.160] that are doing very well, believe me.
+- [01:18:20.362] In the four years before I took office,
+- [01:18:22.697] the Coast Guard recruitment missed targets by 20 and 25
+- [01:18:26.935] and 30%, the targets, the recruitment targets.
+- [01:18:30.272] And not only you, the Marines,
+- [01:18:32.474] the Army, Navy, Air Force, Space Force, that's my baby.
+- [01:18:36.745] I started Space Force. I was very happy.
+- [01:18:38.980] It's going to turn out to be one of the most important of all.
+- [01:18:42.784] But you missed your recruitment numbers
+- [01:18:45.554] and it was an embarrassing time.
+- [01:18:47.322] Not only the military, the police, firemen,
+- [01:18:50.092] anybody with a uniform, they didn't want to be
+- [01:18:51.827] associated with our country, frankly.
+- [01:18:54.529] And last year, the Coast Guard beat its recruitment goals
+- [01:18:57.933] by 120% and we have so many people
+- [01:19:01.403] wanting to get into the Coast Guard
+- [01:19:02.971] and all levels of the military now
+- [01:19:05.440] that weren't even thinking about it.
+- [01:19:06.842] To me, it's one of the most exciting things.
+- [01:19:08.610] When I first came, we had the election on November 5th.
+- [01:19:12.114] And it really started from the day of the election,
+- [01:19:14.616] but we had the election on November 5th.
+- [01:19:16.384] But I will tell you, before that,
+- [01:19:17.752] you couldn't recruit people to go into the military.
+- [01:19:21.389] Nobody wanted to be there.
+- [01:19:23.024] They were trying to reduce standards.
+- [01:19:24.559] Now the standards, I hate to say, are through the roof.
+- [01:19:28.029] But now we have lines of people
+- [01:19:29.498] wanting to get into every group of,
+- [01:19:33.068] whether it's the Navy, the Coast Guard.
+- [01:19:35.103] And I will tell you, I looked at the numbers,
+- [01:19:37.272] the Coast Guard in particular, you have exceeded your numbers.
+- [01:19:40.642] You have a waiting list that's a mile long of people
+- [01:19:42.944] that want to get in.
+- [01:19:44.646] So I think I have to say congratulations on that.
+- [01:19:47.616] It's a really big deal. And by the end of my term,
+- [01:19:54.022] we are adding 15,000 new Coast Guardsmen
+- [01:19:57.526] and we're going to have them added to the list
+- [01:19:59.995] because of all the new equipment that we've ordered.
+- [01:20:02.864] And it's a true honor to be your commander-in-chief.
+- [01:20:06.635] I mean, I'm looking at you, I'm glad to get to shake hands
+- [01:20:10.505] of a few of your outstanding people,
+- [01:20:13.575] but every one of you are outstanding.
+- [01:20:15.277] You're in a category that's really very unique,
+- [01:20:19.014] very hard to be, very hard to get there.
+- [01:20:21.316] Now you know, even by the recruitment numbers,
+- [01:20:22.884] you know it is.
+- [01:20:24.119] But beyond that, it's just a very special group of people
+- [01:20:27.155] and you are a very special group of people.
+- [01:20:30.358] As you begin your important new missions
+- [01:20:33.295] and your mission in life,
+- [01:20:35.096] today, let me leave you with a few words of advice
+- [01:20:39.534] to maybe help you a little bit on your way.
+- [01:20:42.337] First, most important, never, ever give up.
+- [01:20:45.574] Never give up. They ask me, "How do you be successful, sir?"
+- [01:20:48.944] Starts with never give up. I've learned a lot about life,
+- [01:20:53.615] but the one thing I've really learned is that perseverance,
+- [01:20:57.385] never quitting, never giving up is a big deal.
+- [01:20:59.988] You'll be right there, right at the gate.
+- [01:21:01.489] And you've seen it.
+- [01:21:02.757] You've seen it in sports, you've seen it.
+- [01:21:05.293] They're right there at the gate and they give up.
+- [01:21:07.596] Never give up.
+- [01:21:08.763] And whatever happens, no matter where you are in life
+- [01:21:12.400] or what situation you find yourself in on the seas
+- [01:21:15.470] or anywhere else that you may be, keep pushing forward.
+- [01:21:19.107] Always push forward. Never stop pushing forward.
+- [01:21:23.545] No matter how terrible the storm,
+- [01:21:25.213] no matter how difficult the mission,
+- [01:21:27.749] never surrender, keep going, keep fighting,
+- [01:21:30.952] and make the adversary quit first.
+- [01:21:33.855] Let them quit. They're going to quit if you keep going.
+- [01:21:37.158] Second, at this pivotal time of transformation
+- [01:21:40.362] for our armed forces, you have to think big.
+- [01:21:44.399] It's much better thinking big.
+- [01:21:47.202] Small solutions yield small results only.
+- [01:21:50.505] Big ideas will yield to tremendous change and greatness.
+- [01:21:55.810] Americans do not want to live in a world
+- [01:21:58.446] ruled by someone else's big ideas.
+- [01:22:01.549] Live in a future and shape your future
+- [01:22:04.552] and you want to dominate your future
+- [01:22:06.121] and you want to dominate it for your great military
+- [01:22:08.590] and for your country. Think big.
+- [01:22:11.293] During the course of your Coast Guard careers,
+- [01:22:14.796] it will be time for incredible change
+- [01:22:17.699] and change is going to happen,
+- [01:22:19.901] change that we can't even think of right now.
+- [01:22:22.070] Things will happen, and I believe for the best,
+- [01:22:25.040] hopefully for the best, but I believe for the best,
+- [01:22:27.909] but things will happen that you can't even imagine
+- [01:22:31.112] and it's going to be very exciting,
+- [01:22:33.048] but the way that's going to happen is through thinking big.
+- [01:22:38.019] Nothing great was ever built,
+- [01:22:40.955] think of that, nothing great was ever built
+- [01:22:43.625] without the word momentum at your side.
+- [01:22:46.861] In times of your life, you'll have momentum.
+- [01:22:49.631] That's the time you go for it.
+- [01:22:51.633] I tell stories about people that lost their momentum
+- [01:22:54.202] and they went and it didn't work out well.
+- [01:22:57.305] You know when you're doing well,
+- [01:22:58.606] you know when you have that positive momentum.
+- [01:23:01.242] So take that momentum and go for it.
+- [01:23:04.212] So many people, they wait. They wait the wrong time.
+- [01:23:08.917] You know when it's right. Go with the momentum.
+- [01:23:11.686] The towering men and women of history
+- [01:23:13.421] have always been people of action.
+- [01:23:16.458] You answered the call to serve and now you need to make sure
+- [01:23:19.994] that most of your time is spent on very important roles in life.
+- [01:23:25.066] You've done a lot and you've had a lot of relaxation.
+- [01:23:28.803] Frankly, if you enjoy what you're doing,
+- [01:23:30.472] there's no such thing as work. It's not work.
+- [01:23:32.407] What you're doing, I would say with most of you, it's not work.
+- [01:23:35.677] What you've done is a lot of work, but it's not work.
+- [01:23:38.813] It really isn't. It's a great pleasure.
+- [01:23:41.816] I find myself, I work a lot. They say, "He's a workaholic."
+- [01:23:44.352] I'm not a workaholic.
+- [01:23:45.620] It would be tough if I didn't do things.
+- [01:23:47.389] If I didn't do things, I don't know what I'd be doing.
+- [01:23:49.824] It probably wouldn't be good.
+- [01:23:51.626] But you've got to love it.
+- [01:23:53.061] And if you love it, it's never considered work.
+- [01:23:55.330] There will always be time for taking the easy path
+- [01:24:01.403] and there'll be times when you want to do that or to settle
+- [01:24:04.372] for maybe a short-term fix, but for the best results,
+- [01:24:07.976] it'll always be a product of unbelievably hard work.
+- [01:24:11.346] That's why I always sign something.
+- [01:24:12.747] They say, "Oh, could you put something on and say,
+- [01:24:14.883] work hard to a young person?"
+- [01:24:16.684] Work hard, because you have to work hard.
+- [01:24:19.320] It's so competitive. Life is so competitive.
+- [01:24:21.423] You have to work hard. It's never going to come easy.
+- [01:24:23.625] If life is so competitive, you have to work hard.
+- [01:24:25.293] It's never going to come easy. You have to work hard.
+- [01:24:26.895] A lot of great athletes, they say, "The harder I work--"
+- [01:24:29.230] I remember Gary Player, a great golfer.
+- [01:24:31.900] He was somewhat smaller
+- [01:24:34.202] than other great athletes and he said,
+- [01:24:36.504] "The harder I work, the luckier I get."
+- [01:24:38.473] That was the first time I heard--
+- [01:24:39.908] I've heard that expression a lot,
+- [01:24:41.943] but the first time was from the great
+- [01:24:43.445] Gary player, one of the top three golfers of all time.
+- [01:24:47.081] And he said, "The harder I work, the luckier I get."
+- [01:24:50.585] It's a great expression.
+- [01:24:52.253] Fourth is, you go and go into life
+- [01:24:56.458] and right here at the Coast Guard,
+- [01:24:58.927] you want to keep your eyes in the boat.
+- [01:25:01.930] You want to have your eyes in the boat.
+- [01:25:03.398] You know what that expression means better than anybody.
+- [01:25:05.700] Do not be distracted by what's outside.
+- [01:25:08.803] You just want to look back
+- [01:25:10.605] and you want to just see what's happening,
+- [01:25:13.041] but keep your eyes in the boat, a Coast Guard expression.
+- [01:25:15.643] Focus on the task before you and move forward.
+- [01:25:19.414] Always, always move forward, never move back.
+- [01:25:22.016] Remember, what actually matters in pursuit of success
+- [01:25:26.321] is it really has to be relentless.
+- [01:25:30.291] You've got to be relentless. And many of you are relentless.
+- [01:25:32.627] You wouldn't be here if you weren't
+- [01:25:34.062] because there are 10 people for every seat
+- [01:25:37.098] that I'm looking at, 10 people, and I think even more than that,
+- [01:25:39.734] that wanted that seat, and you made it.
+- [01:25:42.337] So finally, you have to be strong.
+- [01:25:44.172] You have to be really strong.
+- [01:25:45.540] And I don't mean just with muscle strength.
+- [01:25:47.275] I mean, with mental strength, and you have to be brave.
+- [01:25:52.113] In your profession, you have a level of bravery
+- [01:25:54.716] that has to supersede a normal person's bravery,
+- [01:25:59.988] but that's why you're here.
+- [01:26:01.489] America was not founded by weak and timid men or women
+- [01:26:05.426] who coward in the face of evil, or sat by as danger loomed.
+- [01:26:11.366] As President Theodore Roosevelt said,
+- [01:26:13.468] "Freedom is not a gift that lasts long in the hands
+- [01:26:16.471] of cowards and weak people."
+- [01:26:18.840] Today, our country faces the threats that are very strong,
+- [01:26:22.810] but we have a much stronger country today
+- [01:26:24.712] than we had two years ago.
+- [01:26:26.681] Today, the threats that looked really bad two years ago,
+- [01:26:30.084] three years ago, we had a country that was rudderless,
+- [01:26:32.921] just like that ship that had its rudder shot off.
+- [01:26:36.257] We have a country now with very strong powerful rudders,
+- [01:26:40.495] but every one of you has your soul,
+- [01:26:43.197] the strength and courage to face whatever comes before you,
+- [01:26:46.534] you're going to do unbelievably well.
+- [01:26:48.803] I mean, you just have no idea.
+- [01:26:51.139] I look at audiences all the time,
+- [01:26:52.774] but I'm looking at this audience.
+- [01:26:54.142] It's just an incredible group of people.
+- [01:26:56.244] A beautiful, beautiful, brilliant group of people.
+- [01:26:59.814] So you're brave and you're bold and you're always ready to go,
+- [01:27:03.885] and you inherit the legacy of some of the most daring
+- [01:27:07.488] and intrepid Americans ever to live.
+- [01:27:10.858] You are inheriting the mantle of some of the bravest people,
+- [01:27:14.929] some of the most incredible warriors ever, right here.
+- [01:27:18.833] A tradition of pride and glory and greatness
+- [01:27:21.336] passed down from one generation
+- [01:27:23.271] to the Coast Guard heroes to the next.
+- [01:27:26.874] You had great heroes.
+- [01:27:28.343] In World War II,
+- [01:27:29.544] the Coast Guard was the first branch of the military
+- [01:27:32.814] to seize a Nazi vessel and take enemy prisoners.
+- [01:27:36.851] The first one to do it was the Coast Guard.
+- [01:27:39.721] The first branch to traverse the Northwest Passage
+- [01:27:44.459] and the first to sail a ship right up
+- [01:27:47.762] the middle of the frigid seas to the North Pole,
+- [01:27:51.132] you were the first, you were the first to do so much
+- [01:27:54.268] and that's not going to change.
+- [01:27:55.903] And now you have equipment. I think we can say definitely
+- [01:27:58.473] when all that new equipment comes in,
+- [01:28:00.842] Admiral, you have equipment the likes of which
+- [01:28:03.711] the Coast Guard has never had before.
+- [01:28:05.313] So you'll have many ships sailing up instead of one.
+- [01:28:08.449] You're going to be doing things
+- [01:28:09.884] that nobody even thought possible.
+- [01:28:12.553] You have on order, some of it's already delivered,
+- [01:28:15.456] but you have on order the best equipment anywhere in the world.
+- [01:28:18.860] There's no other Coast Guard, there's no other, frankly Navy,
+- [01:28:21.529] that has anything like what's coming your way.
+- [01:28:24.699] On September 11th, 2001, amid the rubble,
+- [01:28:28.469] dust and debris, it was the Coast Guard
+- [01:28:31.372] that organized the largest boat lift in all of history,
+- [01:28:35.343] evacuating half a million people from Lower Manhattan.
+- [01:28:38.179] That was a terrible day. The gleaming white hulls
+- [01:28:41.616] and the blazing red stripes of your cutters
+- [01:28:45.887] have sliced through the horizon
+- [01:28:47.555] of nearly every major waterway on earth.
+- [01:28:51.292] Every day Coast Guard members plunge into pitch black oceans,
+- [01:28:55.463] rush onto roaring surfs
+- [01:28:58.366] and do battle with mother nature at her absolute worst.
+- [01:29:02.704] Mother nature like you can imagine it even exists.
+- [01:29:06.040] And I've seen it. I've seen things that I said,
+- [01:29:08.609] "Nobody's going into that storm."
+- [01:29:10.178] And you guys go into it like it's just another day of work.
+- [01:29:15.016] You fly into gale-force winds, smash into 50-foot waves,
+- [01:29:19.387] storm into floods of fire and shrapnel,
+- [01:29:23.691] and swarm through water so cold that it will snap a ship in half
+- [01:29:30.131] with just the wrong hit of a wave.
+- [01:29:32.967] But your fellow Americans, and above all,
+- [01:29:35.870] you're from the Coast Guard. There's nothing,
+- [01:29:38.172] absolutely nothing that a Coast Guardsman cannot do.
+- [01:29:42.777] There really isn't. I've seen so much.
+- [01:29:44.445] I mean, as president, I've just seen so much.
+- [01:29:46.447] I've seen people that were going to be decimated,
+- [01:29:48.916] that were going to be destroyed at sea.
+- [01:29:50.451] I told you about some of the hurricanes.
+- [01:29:52.954] They were out at sea.
+- [01:29:54.055] They were boating and they got caught.
+- [01:29:55.423] They wanted to go a little closer, a little closer,
+- [01:29:57.391] a little closer. And then they got gobbled up by nature,
+- [01:30:01.095] and the only way they could have survived
+- [01:30:02.897] was what you people were able to do,
+- [01:30:05.199] you went in there and you got them.
+- [01:30:07.034] It wasn't easy. It was very dangerous.
+- [01:30:09.437] No matter how perilous the task, you're unafraid and you're just
+- [01:30:14.776] an unstoppable force and you want to stay that way.
+- [01:30:17.912] The US Coast Guard has never, ever let us down.
+- [01:30:22.183] And with men and women like the great class of 2026,
+- [01:30:26.921] I know that will never happen.
+- [01:30:28.723] You're going to go on to greatness the likes of which
+- [01:30:30.925] even the Coast Guard has not seen.
+- [01:30:33.494] So wherever the duty calls, whatever danger comes our way,
+- [01:30:39.333] you will fight, fight, fight, and you will win, win, win.
+- [01:30:42.770] I want to just say a very strong God bless
+- [01:30:45.740] the Coast Guard Academy, the class of 2026.
+- [01:30:49.377] God bless the United States military, and God bless
+- [01:30:53.147] the United States of America. Thank you very much.
+- [01:30:56.450] Have a great, great and stellar career.
+- [01:30:59.687] Thank you very much, everybody. Thank you.
+- [01:31:02.089] (applause)
+- [01:31:22.510] Male Speaker: At this time I invite the class president,
+- [01:31:24.512] Cadet Savannah Riera,
+- [01:31:25.947] to come to the stage to present the class gift.
+- [01:31:30.484] (applause)
+- [01:31:35.957] Savannah Riera: Mr. President, on behalf of the class of 2026,
+- [01:31:39.527] I present you with this token of appreciation.
+- [01:31:44.165] (applause)
+- [01:31:59.647] I don't know if this is a good trade. This is for Savannah.
+- [01:32:02.984] (applause)

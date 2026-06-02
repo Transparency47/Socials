@@ -1,0 +1,204 @@
+<!-- source: https://www.youtube.com/watch?v=QsYE-pzReu8 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: QsYE-pzReu8 -->
+<!-- date_published: 2026-02-04T18:45:46+00:00 -->
+<!-- date_accessed: 2026-06-02T02:38:17.384281+00:00 -->
+
+# Transcript: First Lady Melania Trump Meets with Freed American-Israeli Hostage Keith Siegel
+
+- [00:01.120] Good afternoon. I would like to welcome
+- [00:04.560] uh Aiva Seagull and Keith Seagull in the
+- [00:07.919] White House. Uh Aviva was hostage for 51
+- [00:14.719] days. Captured by Hamas on October 7,
+- [00:20.720] 2023.
+- [00:22.240] and Keith was captured for 484 days.
+- [00:28.720] After Abiva was freed, she called me,
+- [00:34.640] wanted to see me and we set up a meeting
+- [00:37.280] in New York in January 2025.
+- [00:42.000] It was emotional meeting and um it is
+- [00:46.239] captured on camera and available to see
+- [00:49.920] in my new film Melania.
+- [00:52.719] Um it was very emotional.
+- [00:56.640] Aviva present me with two of kids books
+- [01:01.280] and uh when I came home that evening, I
+- [01:04.960] gave it to my husband and inform him the
+- [01:09.760] situation
+- [01:11.280] and I know he was fighting for all of
+- [01:14.880] the hostages. And as we know now, all of
+- [01:18.479] the hostages are free and home with the
+- [01:21.119] families.
+- [01:22.640] Aviva was a warrior. She's a warrior.
+- [01:25.520] She was fighting very hard for Keith and
+- [01:28.880] I know he suffered a lot.
+- [01:32.320] I'm happy to see you healthy at home
+- [01:35.520] with your children, with your
+- [01:37.040] grandchildren, with your family and uh I
+- [01:40.880] know you're giving back your time, your
+- [01:44.079] energy to other people. So, thank you
+- [01:47.680] for that.
+- [01:49.759] >> Would you like to say a few words?
+- [01:51.439] >> Yes.
+- [02:00.960] I want to start by saying thank you
+- [02:05.360] to the first lady Melania Trump and to
+- [02:08.640] President Trump.
+- [02:12.560] I want to thank you for being a caring,
+- [02:15.440] compassionate person for supporting and
+- [02:18.239] helping Abdiva.
+- [02:31.120] during those difficult days and you
+- [02:34.000] helped her enormously
+- [02:38.160] um in many ways.
+- [02:41.040] It's an honor. It's a privilege and I'm
+- [02:42.879] eternally grateful and I'm very grateful
+- [02:45.040] to have the opportunity to say that to
+- [02:46.959] you in person sitting next to you.
+- [02:50.000] I am eternally grateful to you and
+- [02:51.599] President Trump for bringing me home and
+- [02:53.680] for bringing all of the hostages back to
+- [02:56.080] their families.
+- [03:00.959] Um,
+- [03:03.599] and I just want to mention
+- [03:06.959] uh the extraordinary
+- [03:09.920] u mobilization
+- [03:12.000] in the fight in the fight for
+- [03:16.159] Aviva and my and all of the hostages
+- [03:18.640] freedom
+- [03:20.400] and how it moved me deeply
+- [03:23.519] and it showed us the true meaning of
+- [03:26.400] holding on to hope even in the most
+- [03:28.720] difficult moments.
+- [03:32.640] Now that I have regained my freedom
+- [03:35.760] and I celebrated one year of freedom
+- [03:38.799] being released from captivity this
+- [03:40.959] Sunday,
+- [03:43.440] I have committed myself to partnering
+- [03:46.080] with Israel,
+- [03:48.159] an Israeli humanitarian aid organization
+- [03:51.680] to help restore hope for others.
+- [03:55.440] Giving back is a crucial part of my
+- [03:58.959] recovery and rehabilitation process.
+- [04:03.760] Aviv and I just returned
+- [04:06.799] Aiv and I just came from on Sunday from
+- [04:11.840] one of the world's largest refugee camps
+- [04:14.239] in Kenya called Kakuma.
+- [04:17.919] In Kakuma, Isra is providing access to
+- [04:21.519] clean water, hygiene, sanitation, and
+- [04:25.600] education to thousands of refugees
+- [04:29.360] that otherwise would not have any of
+- [04:32.240] those.
+- [04:34.479] The work of Israel has inspired me and
+- [04:37.360] given me a new sense of p of purpose.
+- [04:41.360] Um,
+- [04:43.280] what an a remarkable and amazing
+- [04:45.840] accomplishment bringing all of the
+- [04:48.160] hostages back home.
+- [04:50.960] And
+- [04:52.639] we have a mission ahead of us to help
+- [04:55.360] others that are struggling.
+- [04:58.960] And
+- [05:00.720] this is our new mission in life. This is
+- [05:03.280] the road we are on. This is our journey.
+- [05:06.960] And I also want to end by congratulating
+- [05:09.840] you on the release of your movie. So
+- [05:12.880] much looking forward to seeing it and so
+- [05:15.520] grateful for you deciding to have a a
+- [05:18.960] Viva be a part of your movie.
+- [05:22.479] >> Thank you.
+- [05:23.199] >> Thank you.
+- [05:27.199] I just want to say that I waited for the
+- [05:29.840] last hostage to come home to take me
+- [05:33.120] because when we met before came home,
+- [05:35.759] you gave me so much hope and I could
+- [05:38.800] feel your heart with me
+- [05:41.680] and I I knew how important it was for
+- [05:44.639] you to go back home and talk to
+- [05:46.880] President Trump and share your feelings.
+- [05:49.840] So I want to thank you for that and I
+- [05:51.919] want to thank you for putting me in your
+- [05:55.120] special Melania film because I was there
+- [06:00.400] talking to you not for myself for but
+- [06:03.840] for the whole world. Bringing the
+- [06:05.440] hostages home was the most important
+- [06:08.160] thing that I could think about in this
+- [06:11.840] world and now it's all over the world.
+- [06:14.400] The bad things that Hamas did to my
+- [06:16.960] husband. But I'm lucky. And thank you,
+- [06:20.000] Keith, for staying alive and being with
+- [06:22.960] me. And thank you, Melania, for helping.
+- [06:26.240] I really appreciate it. I want to just
+- [06:29.120] tell you that I decided to write a book
+- [06:31.440] and it's dedicated to my grandchildren
+- [06:33.600] that can't hear the stories because they
+- [06:36.000] are very, very hard stories to hear. And
+- [06:39.840] in the book,
+- [06:42.240] I wrote thank you to her because you
+- [06:45.280] helped to bring people home and you
+- [06:47.520] helped to bring the hostages home. So,
+- [06:49.360] I'm thanking you. And in my book,
+- [06:53.360] everybody that will read it will
+- [06:55.759] understand what happens to somebody
+- [06:58.560] that's 64 years old, kidnapped from a
+- [07:01.440] home, and went through
+- [07:04.400] so many moments that I thought and was
+- [07:06.960] sure that I'm going to die. and I'm
+- [07:09.440] allowed and I survived to tell.
+- [07:13.599] So, thank you very very much. I'll
+- [07:16.160] always remember the meeting with you and
+- [07:18.880] I'll always remember you have
+- [07:20.800] >> Thank you from my bottom of my heart.
+- [07:22.400] >> Thank you
+- [07:22.800] >> and good luck with the film.
+- [07:24.319] >> Thank you so much.
+- [07:26.080] >> Thank you.
+- [07:27.039] >> And we're going to make this world a
+- [07:29.199] better world together.
+- [07:31.280] >> In peace,
+- [07:36.400] >> thank you.
+- [07:38.560] Sorry.
+- [07:39.120] >> What did you say to the president after
+- [07:40.880] your meeting with Mrs. I gave him the
+- [07:43.440] books, the books that Aviva gave me and
+- [07:46.560] uh I explained the situation
+- [07:49.039] uh where she she thought that Keith was
+- [07:53.759] how he was doing. She didn't have much
+- [07:55.840] information, but she knew how much he
+- [07:59.039] was suffering because she was with him
+- [08:01.440] for 50 days. And uh I explained to him
+- [08:04.879] everything and I know how hard he was
+- [08:08.720] working to release any of the hostages.
+- [08:12.080] >> Has agreed to release any more Ukrainian
+- [08:15.599] children?
+- [08:16.560] >> Has President Putin agreed to release
+- [08:18.400] any more Ukrainian children?
+- [08:19.840] >> I'm working on it. I'm working on it and
+- [08:22.639] uh we are in the process. So I hope we
+- [08:25.280] have success very soon. I will keep you
+- [08:27.919] posted.
+- [08:30.400] >> Why do you feel it is appropriate to use
+- [08:33.039] an official White House event to promote
+- [08:34.560] your documentary?
+- [08:36.000] >> This is not promotion. We are here
+- [08:37.919] celebrating the release of the hostages
+- [08:41.839] of Viva and Keith. They were in
+- [08:45.440] Washington DC and they called me. They
+- [08:47.680] said they would like to come over to
+- [08:49.519] thank me and to uh to give uh hugs and
+- [08:55.360] that's why we are here has nothing to do
+- [08:57.440] with promotion.
+- [08:58.959] >> Have you reached out to reached out to
+- [09:01.120] President
+- [09:02.399] >> recently after the letter
+- [09:05.040] you were in contact with?
+- [09:06.480] >> Thank you. Thank you.
+- [09:08.720] There's a call from any survivors
+- [09:11.440] Maxwell moved to a high
+- [09:13.120] >> Thank you. Thank you.
+- [09:14.959] >> We are here celebrating the release and
+- [09:17.680] the life of those two incredible people.
+- [09:21.040] So let's honor that.
+- [09:22.959] Thank you everyone. Thank you. We're
+- [09:24.560] we're ending. Thank you everyone.
+- [09:26.720] >> Thank you everybody. Keep moving.
+- [09:30.720] >> Thank you guys. Thank you. Keep moving
+- [09:33.040] guys. Thank you. Thank you guys. Thank
+- [09:35.360] you.

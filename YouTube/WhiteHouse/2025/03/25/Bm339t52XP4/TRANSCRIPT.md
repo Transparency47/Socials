@@ -1,0 +1,973 @@
+<!-- source: https://www.youtube.com/watch?v=Bm339t52XP4 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: Bm339t52XP4 -->
+<!-- date_published: 2025-03-25T19:22:35+00:00 -->
+<!-- date_accessed: 2026-06-02T02:52:27.459101+00:00 -->
+
+# Transcript: President Trump Stops by Meeting with U.S. Ambassadors
+
+- [00:00.000] The President: Well, thank you very much.
+- [00:03.660] We're going to have a little session today
+- [00:05.830] on the ambassadors.
+- [00:07.980] It's a group of people that were selected.
+- [00:09.770] They're doing very well.
+- [00:10.980] They're very far along in the process.
+- [00:14.050] And they're going to each introduce themselves
+- [00:16.730] and talk about the country that they're going to.
+- [00:20.930] They might say a little bit about themselves
+- [00:22.660] also because people are very interested in that.
+- [00:26.040] We're also going to sign right now some executive orders
+- [00:28.640] and, Will, if you would come forward.
+- [00:30.280] Male Speaker: Yes, sir.
+- [00:31.500] The President: I'll start thinking
+- [00:32.700] about signing them, right.
+- [00:35.380] Male Speaker: A few things for you today, sir.
+- [00:37.460] First we have a pardon for Devon Archer.
+- [00:40.310] Devon Archer was a former business partner
+- [00:42.420] of the Biden family.
+- [00:44.530] He was prosecuted relating to a fraud investigation,
+- [00:49.290] but notably the tone and tenor of that prosecution
+- [00:52.290] changed dramatically
+- [00:53.600] after he began to cooperate with congressional investigators
+- [00:57.440] and serve as a witness against Hunter Biden
+- [01:00.250] and the Biden family. We believe that was an injustice
+- [01:03.920] and therefore we're asking you to pardon him.
+- [01:07.380] The President: And many people have asked me to do this.
+- [01:09.230] I think he was treated very unfairly.
+- [01:11.660] And I looked at the record, studied the records, and he was.
+- [01:14.750] He was a victim of a crime as far as I'm concerned,
+- [01:20.200] so we're going to undo that.
+- [01:33.380] All right. Devon Archer. Congratulations, Devon.
+- [01:42.440] Male Speaker: Next, sir,
+- [01:43.690] we have a presidential memorandum for your attention.
+- [01:46.480] This memorandum requires the immediate declassification
+- [01:49.340] of all FBI files
+- [01:50.830] relating to the Crossfire Hurricane investigation.
+- [01:53.610] This was obviously one of the instances
+- [01:55.290] of the weaponization of law enforcement powers
+- [01:57.950] of prosecution against you and others.
+- [02:00.470] We believe that it's long past time
+- [02:02.320] for the American people to have a full
+- [02:03.820] and complete understanding
+- [02:05.150] of what exactly is in those files.
+- [02:07.870] The President: Which gives the media the right to go in
+- [02:10.000] and go and check it. You probably won't bother
+- [02:13.080] because you're not going to like what you see,
+- [02:15.650] but this was total weaponization.
+- [02:17.860] It's a disgrace. Should never happened in this country,
+- [02:20.610] but now you'll be able to see for yourselves,
+- [02:22.540] all declassified. Is that correct, would you say?
+- [02:25.320] Male Speaker: Yes, sir.
+- [02:26.580] The President: All declassified?
+- [02:27.800] Male Speaker: Yes, sir. The President: Everything?
+- [02:29.040] Male Speaker: The FBI file, there's a classified annex,
+- [02:32.290] but other than that, we'll put everything in the public eye.
+- [02:39.780] The President: Is anybody going to look?
+- [02:42.010] Huh, what about you? You're going to look?
+- [02:48.490] And frankly, the FBI should be ashamed of themselves,
+- [02:52.050] and so should the Department of Justice,
+- [02:55.220] and so should Biden. Okay.
+- [02:57.540] Male Speaker: Next sir,
+- [02:58.780] we have an executive order for your attention.
+- [03:01.090] We've taken action against a number of law firms
+- [03:04.460] that have participated either in the weaponization of government,
+- [03:07.150] the weaponization of the legal system for political ends,
+- [03:10.350] or have otherwise engaged in illegal
+- [03:12.120] or inappropriate activities.
+- [03:14.020] The law firm of Jenner & Block is one of these law firms.
+- [03:17.130] This is a law firm that, as you know,
+- [03:18.820] employed Andrew Weissmann
+- [03:20.770] after he came off of the Mueller investigation.
+- [03:23.280] It's a law firm that's engaged in invidious, racially,
+- [03:26.740] and sexually discriminatory practices.
+- [03:29.190] It's also a law firm that has participated
+- [03:31.250] in the weaponization of the legal system
+- [03:33.450] against American principles and values,
+- [03:35.720] and we believe that the measures in this executive order
+- [03:39.170] will help correct that.
+- [03:41.520] The President: And Andrew Weissmann is the main culprit?
+- [03:44.390] Male Speaker: He's certainly-
+- [03:45.680] The President: With respect to this firm?
+- [03:47.330] Male Speaker: He is one of a number of reasons
+- [03:49.230] that we believe this executive order is warranted.
+- [03:51.160] The President: He's a bad guy.
+- [04:02.930] Okay.
+- [04:09.330] Male Speaker: Next, sir,
+- [04:10.550] we have an executive order for your attention
+- [04:13.300] relating actually to government payments.
+- [04:16.170] Historically, checks issued by the Treasury are,
+- [04:18.980] I believe, 14 times more likely to become the subject of fraud
+- [04:23.260] than electronic transfer payments.
+- [04:25.260] This is an executive order
+- [04:26.630] that's going to push the Treasury Department
+- [04:29.080] to modernize its payment system to ensure that,
+- [04:32.380] where possible, they're using electronic methods of payment
+- [04:35.070] as opposed to paper checks in order to reduce waste, fraud,
+- [04:38.320] and abuse in the government, which is obviously an endeavor
+- [04:41.220] that we've been pursuing in numerous aspects
+- [04:44.010] of government under your leadership.
+- [04:46.260] The President: It's basically modernization of equipment
+- [04:48.760] and methods, and it's something that really,
+- [04:53.110] I think he's going to be a great Secretary of the Treasury,
+- [04:55.450] wanted, Scott. And so we're doing this
+- [04:58.860] and we have other modernization programs going on.
+- [05:02.820] We could let somebody else, whoever's next,
+- [05:05.140] whoever that may be, do it,
+- [05:06.900] but it's something that should have been done 25, 30 years ago.
+- [05:20.910] Okay.
+- [05:28.970] Male Speaker: Along similar lines, sir,
+- [05:30.310] this is an executive order.
+- [05:32.200] We're calling it Protecting America's Bank Account.
+- [05:34.780] The basic idea here is that instead
+- [05:36.500] of having lots of different departments and agencies
+- [05:39.210] and offices issuing payment, often without justification,
+- [05:42.560] often without any provided rationale,
+- [05:44.870] we're going to be central in payment processes
+- [05:46.860] where possible in the Department of the Treasury.
+- [05:49.360] And ensuring that measures are taken in Treasury
+- [05:51.830] against waste, fraud, and abuse,
+- [05:53.230] to ensure that money that's leaving the public
+- [05:55.290] Treasury is as protected as it possibly can be.
+- [05:58.780] The President: All right. Good.
+- [06:10.920] Many of these things should have taken place decades ago,
+- [06:17.280] or longer.
+- [06:22.020] Male Speaker: Lastly, sir,
+- [06:23.280] we have an executive order for your attention
+- [06:25.440] on the very important subject of election integrity.
+- [06:28.410] We believe that this executive order
+- [06:30.120] is the farthest-reaching executive action
+- [06:33.520] taken in the history of the Republic
+- [06:35.670] to secure our elections.
+- [06:37.650] Among numerous other aspects of this executive order,
+- [06:42.060] this is going to cut down
+- [06:44.000] on illegal immigrants on the voter rolls,
+- [06:45.980] ensure that the Department of Homeland Security
+- [06:48.320] and the data that they have available
+- [06:50.300] is being fully weaponized
+- [06:51.520] to ensure that illegal immigrants aren't voting.
+- [06:53.820] This will include a citizenship question
+- [06:55.500] on the federal voting form for the first time.
+- [06:58.120] This executive order instructs the EAC
+- [07:01.290] to cut federal funding to states that don't take reasonable steps
+- [07:05.620] to secure their election.
+- [07:07.050] This calls on the Department of Justice
+- [07:08.640] to vigorously prosecute election crimes,
+- [07:11.260] particularly in states that we don't believe
+- [07:13.330] are in compliance with federal law around election integrity.
+- [07:17.440] I could go on and on for a while, sir,
+- [07:19.670] but compliance with national Election Day rules,
+- [07:23.250] cracking down and investigating
+- [07:24.840] and prosecuting foreign interference in our elections,
+- [07:27.880] revoking President Biden's Executive Order 14019,
+- [07:32.770] which essentially weaponized government
+- [07:34.820] to corrupt and pollute our election process.
+- [07:37.430] There's a lot in here, but we believe
+- [07:39.000] that these are very important steps
+- [07:41.100] that we need to be taking as an administration at your direction
+- [07:44.570] to ensure that our elections are as secure
+- [07:46.440] as they possibly can be.
+- [07:48.950] The President: Okay. You all understand
+- [07:50.570] that [inaudible]?
+- [07:53.040] Election fraud, you've heard the term.
+- [07:57.190] We'll end it, hopefully.
+- [07:58.490] At least this will go a long way toward ending it.
+- [08:02.040] There are other steps that we will be taking
+- [08:04.860] in the coming weeks,
+- [08:06.570] and we think we'll be able to end up getting fair elections.
+- [08:12.220] Perhaps some people think, I shouldn't be complaining
+- [08:14.690] because we won in a landslide,
+- [08:17.060] but we got to straighten out our election.
+- [08:20.460] This country is so sick because of the election,
+- [08:23.000] the fake elections and the bad elections,
+- [08:25.610] and we're going to straighten it out one way or the other.
+- [08:34.100] And it's an honor to sign this one, to sign all of them,
+- [08:37.680] but to sign this one is a great honor.
+- [08:47.330] Male Speaker: Excuse me.
+- [08:48.600] The President: Thank you very much.
+- [08:49.830] Male Speaker: Sorry, sir.
+- [08:51.050] The President: We're going to go around the room
+- [08:52.340] a little bit quickly
+- [08:53.550] and we're going to introduce these very outstanding people.
+- [08:55.790] They've had in all cases outstanding careers.
+- [09:00.120] They're very incredible people that are going along
+- [09:04.180] as rapidly as the system can go along.
+- [09:06.290] We're ahead of, I guess, anybody else thus far.
+- [09:09.750] So I want to thank John Thune.
+- [09:12.670] He's done a very good job and the whole Senate.
+- [09:16.910] We're being delayed as much as possible by Democrats,
+- [09:19.550] but that's standard. It gets to be just standard,
+- [09:22.990] but the process is moving along very quickly.
+- [09:25.870] So Sergio, just say hello and then we'll introduce everybody.
+- [09:28.940] Mr. Gor: Absolutely.
+- [09:30.260] Sergio Gor, Director of Presidential Personnel.
+- [09:32.480] It's been an absolute pleasure getting to know
+- [09:34.670] every one of you, every step of this way.
+- [09:36.790] As the president said, we're at a record pace.
+- [09:39.580] We have more nominees today from the Senate
+- [09:41.970] than at any previous point, over 70,
+- [09:44.630] and that's a record in two months.
+- [09:46.070] And we're proud of that,
+- [09:47.480] and we're determined to ensure the world has America
+- [09:49.680] First patriots in all of our posts.
+- [09:51.840] The President: Okay. Charlie?
+- [09:53.860] Mr. Kushner: Charles Kushner. I'm going to France and Monaco.
+- [09:57.280] And I'm proud to serve under the greatest president
+- [10:00.370] of our country. Very proud to serve.
+- [10:02.360] The President: Thank you. Thank you, Charlie.
+- [10:04.200] Mr. Blair: James Blair, honored to work here
+- [10:05.610] in the White House as Deputy Chief of Staff.
+- [10:07.560] And, Mr. President, I think that all of these successful people
+- [10:10.470] would want to go serve the United States
+- [10:11.950] under your leadership
+- [10:13.170] is a testament to your vision and leadership.
+- [10:15.350] The President: Thank you, James.
+- [10:16.580] Mr. Perdue: I'm David Perdue.
+- [10:17.790] I'm going to the People's Republic of China,
+- [10:19.430] and it's my honor to represent President Trump,
+- [10:21.200] the people of America,
+- [10:22.490] and represent our interests and values in China.
+- [10:26.630] Ms. Campos: I'm Leah Campos.
+- [10:27.880] I'm going to represent the president
+- [10:29.090] in the Dominican Republic.
+- [10:30.310] Mr. President, thank you for the honor
+- [10:31.670] to serve you in that role.
+- [10:32.880] The President: Thank you. Ms. Campos: Thank you.
+- [10:34.400] Mr. Waltz: Mike Waltz, National Security Advisor.
+- [10:35.920] I look forward to working with every one of you
+- [10:37.700] on behalf of the president, his leadership,
+- [10:39.100] and the American people.
+- [10:40.310] The President: Thank you.
+- [10:41.550] Mr. Arrigo: John Arrigo.
+- [10:42.750] I'm going to the Republic of Portugal.
+- [10:45.020] And I'm very excited to do so and serve
+- [10:47.140] under what I'd consider one of my closest friends
+- [10:49.740] and one of the best presidents this country has ever had.
+- [10:51.620] Thank you.
+- [10:52.820] Mr. Cabrera: Kevin Cabrera,
+- [10:54.040] nominated to be Ambassador of Panama,
+- [10:55.520] and it truly is an honor, President,
+- [10:56.750] to be part of your administration.
+- [10:57.960] The President: Thank you.
+- [10:59.170] Mr. Barrett: Tom Barrett,
+- [11:00.410] nominee to the Republic of Turkey.
+- [11:02.640] Delighted and honored to be with you,
+- [11:04.060] Mr. President in that host country,
+- [11:06.540] which is one of the most ancient in civilization,
+- [11:08.590] is in search for your peace, prosperity,
+- [11:11.610] and security focus. Thank you.
+- [11:13.040] The President: Good place. Good leader too.
+- [11:16.730] Mr. Hoekstra: Mr. President, thank you. It's an honor.
+- [11:19.630] I'm Pete Hoekstra, you know that,
+- [11:21.260] but I am going to Canada.
+- [11:23.580] The President: Oh.
+- [11:24.800] Mr. Hoekstra: I look forward to serving you
+- [11:26.010] in Canada and your agenda.
+- [11:27.400] The President: And you'll do a great job, thanks Pete.
+- [11:32.400] Mr. Johnson: Ron Johnson, sir.
+- [11:33.810] Thank you for the nomination to represent you
+- [11:36.580] and the United States to the United Mexican States
+- [11:40.320] and I'm really encouraged by some of the conversations
+- [11:42.640] you've had with President Sheinbaum recently
+- [11:45.580] and to the increase in support that we've seen per government
+- [11:50.140] along our border on the important issue,
+- [11:52.000] so thank you, sir.
+- [11:53.290] The President: They have stepped it up a lot,
+- [11:54.940] Mexico and Canada,
+- [11:56.270] so let's see how it works, right?
+- [11:57.750] Mr. Johnson: Yes, sir.
+- [11:58.960] The President: Thanks.
+- [12:00.170] Mr. Whitaker: Matt Whitaker from Des Moines, Iowa.
+- [12:02.260] Proud to, as soon as I'm confirmed,
+- [12:04.730] go represent you at the North Atlantic Treaty Organization.
+- [12:07.800] The President: Okay. Thank you, Matt.
+- [12:09.090] Mr. Glass: George Glass on my way to Japan.
+- [12:11.850] Previous administration I served for you in Portugal.
+- [12:15.140] It is a great honor to be able to do this
+- [12:16.700] a second time. Thank you-
+- [12:17.900] The President: Thank you very much.
+- [12:19.130] Mr. Glass: -- for the opportunity.
+- [12:20.390] The President: Thank you, George.
+- [12:21.610] Mr. Howery: President Trump, my name is Ken Howery.
+- [12:23.500] I'm your nominee to be ambassador
+- [12:24.740] to the Kingdom of Denmark, a very close partner and ally.
+- [12:28.000] I served for you last time in the Kingdom of Sweden.
+- [12:30.530] I want to thank you for the faith you've place in me
+- [12:33.480] as your nominee to Denmark.
+- [12:34.860] The President: Thank you. Thank you very much.
+- [12:36.140] Ms. Feinberg: President Trump.
+- [12:37.370] Thank you for the honor of a lifetime.
+- [12:38.670] My name is Stacey Feinberg and hopefully
+- [12:41.610] I'll have the honor of serving in Luxembourg,
+- [12:44.090] and I think this is the greatest presidency
+- [12:46.740] and the greatest time in history and it's all because of you.
+- [12:49.640] The President: Thank you very much.
+- [12:51.260] Ms. McGraw: Nicole McGraw nominated to serve in Croatia
+- [12:53.800] and it's such an honor to be here with you today
+- [12:55.820] and to serve you and the American people.
+- [12:58.700] The President: Thank you. Thank you very much.
+- [13:00.620] Mr. Judd: President Trump, thank you very much
+- [13:01.900] for your nomination to the Republic of Chile.
+- [13:03.900] And let me tell you, border patrol agents
+- [13:06.330] are so thankful for everything that you've done for them,
+- [13:08.700] but it sends a great-
+- [13:09.900] The President: That man know more about the border than,
+- [13:11.400] I want tell you. Thank you.
+- [13:12.670] Mr. Judd: President, it's a great honor,
+- [13:13.990] thank you very much.
+- [13:15.220] The President: Thanks. Good luck.
+- [13:16.430] Mr. Burch: Good afternoon, Mr. President, Brian Burch.
+- [13:18.000] If I'm confirmed, I'll be representing you
+- [13:19.880] at the Holy See and Catholics are very proud of your work.
+- [13:23.480] Your team is doing an excellent jobs, so thank you.
+- [13:25.430] Very honored to serve.
+- [13:26.670] The President: Thank you very much.
+- [13:27.890] Mr. Farkas: Mr. President, thank you again for the honor,
+- [13:30.740] the greatest privilege. My name is Somers Farkas.
+- [13:34.210] I will serve this great man at the Republic of Malta.
+- [13:37.540] Thank you, sir. The President: Thank you.
+- [13:38.900] Mr. Popolo: Thank you, Mr. President.
+- [13:40.120] Joe Popolo from Dallas, Texas.
+- [13:41.790] Very proud to serve you at the Kingdom of the Netherlands,
+- [13:44.340] the very first country to recognize the United States
+- [13:46.620] 250 years ago. Thank you.
+- [13:48.000] The President: Thank you.
+- [13:49.250] Mr. Huckabee: Mr. President. If I'm confirmed,
+- [13:51.010] I will be representing you in the state of Israel.
+- [13:53.570] It'll be an extraordinary honor and you've done more for Israel
+- [13:56.930] than any president in any time of its history
+- [14:00.930] and we are grateful.
+- [14:02.370] I'm hoping I'll get to be there by Passover.
+- [14:04.730] The President: Thank you Mike.
+- [14:05.940] And Mike is an outstanding guy. They all are.
+- [14:10.730] Mike, I think he's going to do wonders for Israel.
+- [14:15.050] He actually probably gets along with both sides
+- [14:17.320] and that'll be interesting to see.
+- [14:18.950] But the world is watching you Mike, so good luck.
+- [14:21.590] Mr. Huckabee: Thank you, Mr. President.
+- [14:22.950] The President: Good luck, you're going to do well.
+- [14:24.200] Mr. Huckabee: Thank you.
+- [14:25.480] The President: Thank you very much.
+- [14:26.770] Mr. Fertitta: Mr. President, thank you for this great honor
+- [14:29.620] to serve the Republic of Italy and San Marino.
+- [14:34.030] I'm so looking forward to going over there
+- [14:35.700] and working with that great ally
+- [14:37.300] and for the pleasure to serve you.
+- [14:39.530] Your staff has been great working with us
+- [14:41.540] and have done a great job and we really appreciate them.
+- [14:43.770] Thank you, sir- The President: Thank you.
+- [14:44.990] Mr. Fertitta: -- for pushing this along.
+- [14:47.250] The President: You have a good time.
+- [14:49.860] A really good time.
+- [14:54.160] Mr. Stephens: I'm Warren Stephens
+- [14:55.420] from Little Rock, Arkansas
+- [14:56.920] and I have the honor to represent the president
+- [15:01.080] and the United States in Great Britain and Northern Ireland
+- [15:06.490] and to be chosen to go to such an important ally of ours.
+- [15:10.830] The President: It is.
+- [15:12.030] Mr. Stephens: I know, sir.
+- [15:14.400] Looking forward to it, but thank you for the honor.
+- [15:17.190] The President: You're going to do fantastically.
+- [15:18.780] These are tremendously successful people.
+- [15:21.950] And you two guys and then you add on Mike,
+- [15:26.300] I think they have a little more money than Mike,
+- [15:28.210] but he's got some other advantages.
+- [15:31.770] He's got some other…
+- [15:32.970] Like upstairs he's got some big advantages.
+- [15:35.650] Mr. Stephens: He does.
+- [15:37.660] The President: It's very exciting.
+- [15:38.960] It's really exciting to have all of you.
+- [15:40.670] Would you have any questions,
+- [15:41.940] media for the people that you just saw so outstanding
+- [15:49.040] and I thought it would be nice to bring them before you.
+- [15:51.740] And so if you have any questions, please.
+- [15:53.850] The Press: I wanted to ask you about the talks in Saudi Arabia.
+- [15:57.190] It sounds like you've made some progress on the Black Sea spire.
+- [16:01.570] Could you update us on that? What happens now?
+- [16:04.530] The President: We've made a lot of progress on two fronts
+- [16:06.670] on both sections that we call them,
+- [16:08.650] we call them sections
+- [16:09.850] but they are much more than that, Russia/Ukraine
+- [16:13.340] and also the Middle East and we'll see what happens.
+- [16:16.890] We are in deep discussions with Russia and Ukraine
+- [16:21.350] and I would say it's going well, but it's a situation
+- [16:24.850] we should have never had to even think about.
+- [16:27.110] Should have never happened.
+- [16:28.690] And on the Middle East, it's been going on
+- [16:31.120] for a lot of years, centuries and centuries.
+- [16:35.270] It just keeps going, and we are making a lot of progress.
+- [16:39.640] That's all I can report,
+- [16:40.840] but some very, very big talks are going,
+- [16:43.220] and detailed talks are going on right now on both fronts.
+- [16:45.610] The Press: Mr. President,
+- [16:46.970] you said that your national security advisor
+- [16:48.540] learned a lesson after a reporter-
+- [16:49.750] The President: Wait a minute.
+- [16:50.980] Excuse me, I didn't pick you. Go ahead, please.
+- [16:52.320] The Press: Mr. President, the ceasefire agreement
+- [16:53.870] that was broken today
+- [16:56.050] allows for third-party countries to help implement the agreement.
+- [17:00.240] What does that look like and who's going to be involved?
+- [17:01.980] The President: The ceasefire agreement?
+- [17:03.330] The Press: Yes, the maritime ceasefire agreement
+- [17:04.820] between Russia and Ukraine.
+- [17:06.940] The President: Well, they're going to get together.
+- [17:08.190] Look, they agreed to something and it got broken.
+- [17:13.030] There's tremendous animosity.
+- [17:14.690] There's a lot of hatred as you can probably tell,
+- [17:18.600] and it allows for people to get together,
+- [17:20.500] mediate it, arbitrate it,
+- [17:22.070] and see if we can get it stopped.
+- [17:23.350] And I think it will. That'll get stopped.
+- [17:25.370] The Press: What countries are you looking to work with, sir
+- [17:26.890] to help implement and monitor that ceasefire?
+- [17:28.810] The President: We have other countries involved
+- [17:30.180] and they're involved very strongly in the process
+- [17:32.650] and that'll be resolved. That's actually as bad as it is,
+- [17:37.400] that's the least of the problem so we'll get that resolved.
+- [17:41.580] And we are being aided by other countries too.
+- [17:45.020] Yes, please, Brian.
+- [17:47.340] Mr. Burch: Tomorrow the subcommittee on DOGE
+- [17:49.860] is going to review funding for NPR and PBS.
+- [17:53.550] Now, every Republican president has always promised to take away
+- [17:58.050] this money that's going to these two public news outlets.
+- [18:04.510] If they're successful, I know Senator Kennedy has backed it,
+- [18:08.790] Marjorie Taylor Greene and Congress has backed it.
+- [18:10.700] Would you be interested in defunding
+- [18:13.060] and taking away taxpayer dollars to NPR and PBS?
+- [18:17.960] The President: Well, I would love to do that.
+- [18:19.340] I think it's very unfair.
+- [18:20.550] It's been very biased, the whole group,
+- [18:23.230] a whole group of them.
+- [18:24.970] And frankly, look at all the media you have right now,
+- [18:28.080] there's plenty of coverage.
+- [18:29.280] I was from a different age and they spent more money
+- [18:32.200] than any other network of its type ever conceived.
+- [18:37.770] The money that's being wasted, and it's a very biased view,
+- [18:41.170] you know that better than anybody
+- [18:43.440] and I'd be honored to see it end.
+- [18:47.460] We're well covered, look at all the people
+- [18:49.150] that we have here today.
+- [18:50.680] We're well covered and we don't need it
+- [18:52.760] and it's a waste of money, especially…
+- [18:55.330] I don't even know what DOGEs recommendation is.
+- [18:57.620] I assume their recommendation is to close them up.
+- [18:59.980] Mr. Burch: Well, after they hear all the testimony,
+- [19:02.360] I think they're going to make a decision
+- [19:04.120] relatively sooner than later,
+- [19:06.350] but we'll see what that turns out.
+- [19:08.620] The President: I can't imagine that they wouldn't
+- [19:10.350] because they have found so much waste, fraud and abuse --
+- [19:14.930] hundreds of billions of dollars and just waste, fraud, abuse.
+- [19:18.590] You heard yesterday some of the new things that were found,
+- [19:22.310] 22 billion just in environment…
+- [19:24.080] Billion. If you had 22 million, Warren,
+- [19:26.740] it would be nice, but 22 billion-
+- [19:28.350] Mr. Stephens: That's a lot of money.
+- [19:29.560] The President: -- put into environmental accounts.
+- [19:31.220] One was 2 billion into one account, Stacey Abrams,
+- [19:34.740] where they had $100 in the account
+- [19:37.560] and just before I came in they put $2 billion.
+- [19:41.350] And you guys are looking,
+- [19:42.800] so you mean two million or maybe 200,000.
+- [19:45.710] No, $2 billion were put in the account.
+- [19:48.290] What do you think of that, Mike?
+- [19:49.680] Do you think that's a straight deal, two billion?
+- [19:52.300] Mr. Huckabee: Just write me the check Mr. President,
+- [19:54.150] I'll take it with me to Israel.
+- [19:56.030] The President: It's a horrible thing
+- [19:57.300] and we have so many of those things,
+- [19:58.980] so they've done an incredible job
+- [20:00.770] and the country wants to hear it.
+- [20:02.820] I think DOGE is actually very popular
+- [20:04.720] because of what's happening.
+- [20:06.070] They're hearing about all of these scams
+- [20:08.630] and for big, big money, tremendous amounts.
+- [20:11.290] And when you add it up,
+- [20:13.350] just hundreds of billions of dollars
+- [20:15.630] being wasted and much of its fraud.
+- [20:19.000] We talk about waste and it is waste and abuse,
+- [20:21.670] but a lot of it's fraud too.
+- [20:23.020] Mr. Burch: Can I follow-up on something?
+- [20:24.470] The President: Yeah, go ahead, Brian.
+- [20:25.700] Mr. Burch: I just want to follow up on that.
+- [20:27.650] If Planned Parenthood is defunded,
+- [20:31.490] would you look into the harvesting of baby organs
+- [20:34.790] that they've done throughout the years
+- [20:37.770] and maybe go after some criminal prosecution on that?
+- [20:40.710] The President: Well, I think you're talking about a subject
+- [20:42.890] that is a heated subject and we'll look into it.
+- [20:46.460] We'll look into everything, but that's certainly a subject
+- [20:49.730] that's been debated for a long time
+- [20:51.750] and we will look into it.
+- [20:53.130] Male Speaker: Mr. President,
+- [20:55.620] some senators have expressed hope
+- [20:57.140] that the White House will support a rescission package
+- [20:59.500] to codify some of the DOGE cuts into law.
+- [21:01.470] Where does the White House stand on that
+- [21:03.000] and are you making progress?
+- [21:04.230] The President: The which package?
+- [21:05.430] Male Speaker: A rescission package to codify
+- [21:07.080] some of the DOGE cuts into law?
+- [21:09.070] The President: You know what, it would be great.
+- [21:10.670] I think we're going to do that. I think they're going to do it.
+- [21:12.710] I think we're also going to be codifying
+- [21:15.040] a lot of the executive orders that we've done,
+- [21:17.590] which have been very popular.
+- [21:19.660] And we're looking at one, I will tell you right now
+- [21:21.800] that I think perhaps will be controversial,
+- [21:24.030] but not with the people and that's sanctuary cities.
+- [21:26.910] We're going to end sanctuary cities
+- [21:28.560] for some of these jurisdictions
+- [21:31.510] that aren't cooperating with law enforcement.
+- [21:35.640] They're guarding criminals, they're taking the rights away
+- [21:40.000] from the citizens of their state and their city,
+- [21:42.800] and we're going to be ending sanctuary cities
+- [21:45.280] if we find it necessary to do in certain major areas.
+- [21:49.750] And we may just end the entire thing altogether
+- [21:52.820] because it's just a way of protecting criminals
+- [21:55.620] and nobody else has benefited by that.
+- [21:57.590] And for some reason, Democrats want to keep
+- [22:00.330] and they want to shield criminals
+- [22:01.790] from being sent back to their countries
+- [22:03.740] or being sent to prison.
+- [22:05.480] And in the meantime, the crime rate has gone through the roof.
+- [22:08.960] Under Biden it was through the roof.
+- [22:10.700] It's starting to come down
+- [22:11.960] but we're taking a lot of people out of here.
+- [22:14.270] So we may be presenting you very shortly with an executive
+- [22:19.060] order ending sanctuary cities.
+- [22:21.290] Male Speaker: Mr. President,
+- [22:22.490] are you going to change any of the practices
+- [22:24.220] that your national security officials use
+- [22:26.500] after a reporter was inadvertently added
+- [22:28.600] to a group chat about attacks on Yemen?
+- [22:32.120] The President: Well, I think it's a question
+- [22:34.710] I've been asked now and I've given a few answers
+- [22:37.700] and they've all been the same. We have an amazing group.
+- [22:41.190] Our national security now is stronger than it's ever been.
+- [22:44.830] We have had a very, very successful,
+- [22:47.820] numerous attacks on that area.
+- [22:50.010] These are people that shoot down ships.
+- [22:52.140] Not only our ships, ships all over the world
+- [22:54.090] they're shooting down right out of the water
+- [22:56.550] and damaging them badly or they're going down.
+- [22:59.060] They're also shooting anything that happens
+- [23:00.830] to be flying in the area. We hit them very, very hard.
+- [23:04.970] There was no classified information, as I understand it.
+- [23:08.940] They used an app, if you want to call it an app,
+- [23:14.000] that a lot of people use,
+- [23:15.380] a lot of people in government use,
+- [23:16.800] a lot of people in the media use.
+- [23:18.750] And I think I'll ask Mike. Mike is here.
+- [23:21.250] Do you want to respond to that, please?
+- [23:23.170] Mr. Waltz: Yes, Mr. President, you asked about lessons.
+- [23:25.270] I think there's a lot of the lessons,
+- [23:26.800] there's a lot of journalists in this city
+- [23:28.880] who have made big names for themselves
+- [23:31.450] making up lies about this president,
+- [23:33.990] whether it's the Russia hoax
+- [23:35.990] or making up lies about gold star families.
+- [23:38.510] And this one in particular I've never met,
+- [23:40.720] don't know, never communicated with.
+- [23:42.850] And we are looking into him,
+- [23:46.060] reviewing how the heck he got into this room.
+- [23:47.870] But I'll tell you what,
+- [23:49.110] the world owes President Trump a favor.
+- [23:52.120] Under Biden, global shipping was shut down,
+- [23:54.910] pinprick attacks months between them,
+- [23:57.170] our Destroyers being fired upon dozens of times.
+- [24:01.120] President Trump took decisive action
+- [24:03.890] with his national security team,
+- [24:06.200] took out the head missileer, knocked out missiles,
+- [24:09.210] knocked out headquarters, knocked out communication sites.
+- [24:12.840] And for once, as we hear, as you all hear
+- [24:15.960] from every one of our allies,
+- [24:17.830] thank God for American leadership again.
+- [24:20.250] Thank God for American strength. You're welcome, world.
+- [24:24.520] And thank you President Donald Trump.
+- [24:27.140] And look, we had a national security team
+- [24:29.560] that was coordinating these efforts.
+- [24:31.810] As Director Radcliffe testified today,
+- [24:35.350] his first day on the job he was introduced to this app
+- [24:38.070] on his government systems at the CIA
+- [24:41.810] and at the State Department and otherwise.
+- [24:43.690] So look, this journalist, Mr. President,
+- [24:47.020] wants the world talking about more hoaxes
+- [24:49.860] and this kind of nonsense
+- [24:51.360] rather than the freedom that you're enabling.
+- [24:54.350] And a key part of our sovereignty is open sea lanes
+- [24:57.420] and knocking the crap out of terrorists,
+- [24:59.410] which is exactly what your team and Pete Hegseth,
+- [25:02.010] a good friend and fellow veteran,
+- [25:03.920] is leading the charge on. And it's an honor [inaudible]-
+- [25:05.660] The President: We had a very, very successful-
+- [25:07.540] Excuse me. We had a very, very successful evening
+- [25:10.990] and we've had numerous successful evenings
+- [25:13.980] and days in that area.
+- [25:15.360] The Houthis are absolutely on the run.
+- [25:18.440] The worst of them have been killed.
+- [25:21.750] This should have been done a long time ago by Biden
+- [25:24.280] but Biden was an incompetent president.
+- [25:26.230] He couldn't do anything.
+- [25:27.550] He didn't know where he was going.
+- [25:29.620] He had no clue. This guy had no clue.
+- [25:31.440] This should have been done a long time ago.
+- [25:33.560] As they shoot missiles at ships,
+- [25:35.520] randomly shoot missiles at ships.
+- [25:37.960] And they make their own missiles.
+- [25:40.150] This is not an incompetent group of people.
+- [25:42.060] They make their own missiles.
+- [25:43.750] They get the missiles also from Iran.
+- [25:46.680] It's an offshoot of Iran, another offshoot.
+- [25:48.830] You have Hamas, you have Hezbollah, you have the Houthis,
+- [25:51.910] you've got a lot of stuff going on with Iran.
+- [25:54.490] And we sent a letter to Iran,
+- [25:56.370] "You're going to have to be speaking to us one way
+- [25:58.920] or the other pretty soon because we can't let this happen."
+- [26:01.830] But that's an app that a lot of people use.
+- [26:04.780] And somebody got on.
+- [26:06.030] I mean, I happen to know, the guy's a total sleazebag.
+- [26:08.030] Male Speaker: But how did a reporter get added-
+- [26:09.270] The President: The Atlantic--
+- [26:10.500] The Atlantic is a failed magazine.
+- [26:12.480] Does very, very poorly. Nobody gives a damn about it.
+- [26:15.840] This gives a little bit of a shot.
+- [26:18.730] And I will tell you this,
+- [26:20.060] that they've made up more stories
+- [26:22.930] and they're just a failing magazine.
+- [26:25.550] The public understands that. He's a very good man.
+- [26:28.010] That man is a very good man
+- [26:29.330] right there that you criticize so slowly.
+- [26:33.420] He's a very good man and he will continue to do a good job.
+- [26:39.220] In addition to him, we had very good people in that meeting.
+- [26:43.250] And those people have done a very, very effective job.
+- [26:46.540] And you're going to see it.
+- [26:47.810] And it goes on by the way, it's going to go on.
+- [26:50.670] And I think the Houthis wish that it didn't happen.
+- [26:55.280] But that's what it's all about.
+- [26:56.560] We have to create a safe country, a safe world,
+- [26:59.090] and that's what we're doing.
+- [27:00.390] Male Speaker: But do you worried national security
+- [27:01.960] was put at risk, Mr. President?
+- [27:03.310] Male Speaker: Do you plan to ban the use of senior officials
+- [27:05.100] using Signal for-
+- [27:06.410] The President: Do I plan to ban who?
+- [27:07.620] Male Speaker: The use of Signal to communicate
+- [27:09.440] from senior officials? Especially-
+- [27:11.300] The President: I don't know anything about Signal.
+- [27:12.510] I wasn't involved in this but I just heard about it.
+- [27:15.570] And I hear it's used by a lot of groups.
+- [27:18.680] It's used by the media a lot.
+- [27:20.750] It's used by a lot of the military
+- [27:23.000] and I think successfully.
+- [27:25.200] But sometimes somebody can get onto those things.
+- [27:27.400] That's one of the prices you pay
+- [27:29.370] when you're not sitting in the situation room
+- [27:32.620] with no phones on,
+- [27:33.870] which is always the best, frankly.
+- [27:35.510] But the best is to be there.
+- [27:38.610] In fact, oftentimes I've been in …
+- [27:41.090] In fact, just last week
+- [27:42.400] I was in the situation room with something very important
+- [27:45.450] and we had a couple of people hooked up by line
+- [27:47.590] and I said, "Cancel the line. Sorry, fellas.
+- [27:50.500] What you do is we'll tell you all about the meeting."
+- [27:53.000] Because I know people do get on those lines,
+- [27:54.990] whether it's Signal or anything else. Yeah?
+- [27:56.820] Male Speaker: So are you going to change any procedures
+- [27:58.560] as a result of this?
+- [28:00.600] The President: Well, I mean, look, we look at everything.
+- [28:02.640] And they've made a big deal out of this
+- [28:04.680] because we've had two perfect months.
+- [28:07.850] We are bringing in business.
+- [28:09.370] We have another one announced tomorrow.
+- [28:11.390] A big one, very big.
+- [28:12.980] Like in the history of our country
+- [28:14.480] nobody's ever seen anything like it.
+- [28:16.100] And I think probably a lot of people are saying,
+- [28:19.320] they started by saying it was the greatest first month
+- [28:22.460] that a president has ever had. And I think that's true.
+- [28:25.470] And now they say it's the best second month
+- [28:27.600] and they had to find something.
+- [28:28.810] And this, certainly we'll look at this,
+- [28:32.030] but the main thing was nothing happened.
+- [28:35.010] The attack was totally successful.
+- [28:38.420] I guess from what I understand took place during
+- [28:41.880] and it wasn't classified information.
+- [28:43.970] So this was not classified.
+- [28:45.350] Now if it's classified information,
+- [28:47.290] it's probably a little bit different.
+- [28:49.060] But I always say you have to learn from every experience.
+- [28:52.170] I think it was very unfair the way they attacked Michael.
+- [28:56.160] He's a good person.
+- [28:58.780] The person that was on just happens to be a sleazebag,
+- [29:00.880] so maybe that's just coincidence. I don't know.
+- [29:02.360] Male Speaker: Mr. President, would it be a problem-
+- [29:03.620] Male Speaker: But you are going to conduct
+- [29:04.830] an investigation, Mr. President?
+- [29:06.070] Male Speaker: … if The Atlantic released all the text messages
+- [29:07.950] if they're not classified?
+- [29:09.400] The President: Well, I'd have to ask the military about that.
+- [29:12.650] Maybe you wouldn't want that. I don't know. I will say this,
+- [29:15.130] that from what I heard the man that we're talking about,
+- [29:19.850] who's not somebody that I don't think
+- [29:23.590] most people have ever heard of,
+- [29:26.230] he found it very boring and he left early.
+- [29:28.710] He got off the line very early.
+- [29:31.110] So I can't speak to it other than that.
+- [29:34.280] So he's made up a lot of stories
+- [29:36.280] and I think he's basically bad for the country.
+- [29:38.940] But it's a failing venture, a very failing venture.
+- [29:42.430] They're very upset.
+- [29:44.210] And a thing like this is publicity for them.
+- [29:46.790] But I don't think we should allow people that are very good,
+- [29:50.380] like that man sitting right at the end of the table
+- [29:52.500] who's done a great job,
+- [29:54.270] we shouldn't allow them to be hurt by it.
+- [29:56.150] Male Speaker: Mr. President, can I follow up on that?
+- [29:58.180] The President: Yeah, go ahead.
+- [29:59.560] Male Speaker: So are you saying you're okay
+- [30:00.830] with the continued use of Signal by administration officials?
+- [30:03.450] The President: No. That's not what I said.
+- [30:04.700] I said we'll look into it.
+- [30:06.650] But everybody else seems to be using it.
+- [30:08.890] It seems to be the number one used device or app,
+- [30:12.630] whatever you want to call it.
+- [30:14.330] And we will certainly look. If it was up to me,
+- [30:17.680] everybody would be sitting in a room together.
+- [30:20.340] The room would have solid lead walls
+- [30:22.930] and a lead ceiling and a lead floor.
+- [30:25.340] But life doesn't always let you do that.
+- [30:27.860] In the meantime, the attack itself
+- [30:29.670] that we were talking about and discussing
+- [30:32.380] has been an unbelievable success.
+- [30:35.140] Male Speaker: But you conduct an investigation,
+- [30:36.740] is what you're saying, into this?
+- [30:38.110] The President: We'll look into it, sure.
+- [30:39.370] I would look into it. Chair. I want to look into it.
+- [30:41.990] Male Speaker: Is that the FBI? Or who would do that?
+- [30:43.370] The President: Anything like that I would ask them.
+- [30:46.840] It's not really an FBI thing.
+- [30:48.260] It's really something having to do with security.
+- [30:51.410] Security, like will somebody be able to break in?
+- [30:54.920] Are people able to break into conversations?
+- [30:57.520] And if that's true, we're going to have to find
+- [30:59.230] some other form of device.
+- [31:02.570] And I think that's something that we may have to do.
+- [31:04.850] Some people like Signal very much,
+- [31:07.510] other people probably don't, but we'll look into it.
+- [31:10.400] I think, Michael, I've asked you to immediately study that
+- [31:13.910] and find out if people are able to break into a system.
+- [31:18.490] Now, in this case, it wasn't that this attack was going on
+- [31:21.650] and nobody found out anything.
+- [31:23.670] And again, the person that was on, as I understand it,
+- [31:26.960] he left very early because he didn't find it very exciting.
+- [31:29.960] But I think it's something you should look into.
+- [31:32.460] Mr. Waltz: Yes, sir. We are.
+- [31:33.940] We have our technical experts looking at it.
+- [31:36.160] We have our legal teams looking at it.
+- [31:39.580] And of course we're going to keep everything
+- [31:42.570] as secure as possible.
+- [31:44.580] No one in your national security team
+- [31:46.210] would ever put anyone in danger.
+- [31:47.690] And as you've said, and we've repeatedly said,
+- [31:49.910] the attack was phenomenal and it's ongoing.
+- [31:52.970] But the media wants to talk about everything else
+- [31:55.270] except for the hostages you're getting out of the Middle East,
+- [31:58.020] Iran on its back foot, sea lanes getting reopened,
+- [32:01.730] peace in Europe as we just saw today
+- [32:04.630] with a Black Sea ceasefire.
+- [32:06.240] We were just on with Steve Wittkopf, myself,
+- [32:09.620] our team in Saudi Arabia,
+- [32:11.210] they want to talk about all this other stuff
+- [32:13.350] except for your amazing successes
+- [32:15.570] and the successes of your team.
+- [32:17.130] The President: One of the other things,
+- [32:18.340] and sometimes you have to move very quickly,
+- [32:20.430] and there are other devices that are very good,
+- [32:22.700] but they are very, very cumbersome
+- [32:24.490] and you're not able to use them from a practical standpoint.
+- [32:28.320] So all we can do is find out the best
+- [32:31.800] we have with modern technology.
+- [32:33.490] They'll probably get better over the years.
+- [32:35.200] Yeah, go ahead
+- [32:36.450] Male Speaker: Sir, on The Black Sea,
+- [32:37.660] so the Kremlin has said that there were several conditions
+- [32:40.320] that would need to be met for this agreement to happen.
+- [32:42.730] This includes sanction relief for banks and some companies.
+- [32:45.350] Did the US agree to all of those conditions that were laid out?
+- [32:47.680] The President: They will be looking at them
+- [32:49.090] and we are thinking about all of them right now.
+- [32:51.390] There are about five or six conditions.
+- [32:53.540] We're looking at all of them.
+- [32:57.910] Male Speaker: The White House has said
+- [32:59.200] that it's looking into how journalists got added
+- [33:00.890] to that Signal chat.
+- [33:02.140] Is it possible that there could be a firing of
+- [33:04.850] even a lower-mid-level official once that person is identified?
+- [33:07.750] The President: About what?
+- [33:08.990] Male Speaker: About the Signal chat that we've been discussing.
+- [33:11.210] The President: We've pretty much looked into it.
+- [33:12.600] It's pretty simple, to be honest.
+- [33:16.150] It's just something that can happen.
+- [33:18.140] It can happen… You can even prepare for it.
+- [33:22.270] It can happen. Sometimes people are hooked in
+- [33:25.140] and you don't know they're hooked in.
+- [33:26.440] They're hooked into your line
+- [33:27.710] and they don't even mean bad by it.
+- [33:29.700] But it's not a perfect technology.
+- [33:32.060] There is no perfect technology.
+- [33:33.730] The really good ones are very cumbersome, very hard to access.
+- [33:39.810] And I think we always want to use the best technology.
+- [33:44.430] This was the best technology for the moment,
+- [33:47.040] but again, it wasn't classified so they probably viewed it
+- [33:50.350] as being something that wasn't that important.
+- [33:52.630] And then obviously with the attack being…
+- [33:55.570] I mean, I don't know if it's been read out to you yet,
+- [33:58.850] but that attack was a tremendous success for the US.
+- [34:01.550] A tremendous success.
+- [34:02.780] Male Speaker: Who said the information was not classified?
+- [34:05.280] The President: Go ahead, please?
+- [34:06.590] Male Speaker: Do you think that Mike Waltz made a mistake
+- [34:08.540] and does he need to apologize?
+- [34:11.190] The President: No, I don't think he should apologize.
+- [34:13.850] I think he's doing his best.
+- [34:16.190] It's equipment and technology that's not perfect
+- [34:20.060] and probably he won't be using it again.
+- [34:22.860] At least not in the very near future.
+- [34:24.350] What do you think?
+- [34:25.550] Male Speaker: That's all right. I agree with you.
+- [34:26.870] Let's get everybody in the room whenever possible.
+- [34:31.280] The President: A lot of times you find out defects
+- [34:33.070] by exactly things like that,
+- [34:35.250] but I don't think it's something we're looking forward
+- [34:38.300] to using again. We may be forced to use it.
+- [34:40.880] You may be in a situation where you need speed
+- [34:44.280] as opposed to gross safety, and you may be forced to use it.
+- [34:48.900] But generally speaking,
+- [34:50.180] I think we probably won't be using it very much.
+- [34:52.760] Male Speaker: [inaudible] on that chain.
+- [34:55.410] The Secretary of Defense Pete Hegseth and J.D.
+- [34:57.450] Vance, the vice president,
+- [34:58.740] said that the Europeans were freeloading.
+- [35:01.010] Do you agree with that assessment?
+- [35:04.500] The President: Do you really want me to answer?
+- [35:05.910] Male Speaker: Yes, sir.
+- [35:07.150] The President: Yeah. I think they've been freeloading.
+- [35:08.710] The European Union's been absolutely terrible
+- [35:12.130] to us on trade. Terrible. And as you know, NATO,
+- [35:15.400] I got them to pay hundreds of billions of dollars.
+- [35:17.590] They were way behind. And if you look at Ukraine,
+- [35:22.240] so we're in for $350 billion because of Biden.
+- [35:25.820] Should have never happened. This war should…
+- [35:27.710] All these dead people should not be dead.
+- [35:29.410] All these broken cities that are demolished down to the ground,
+- [35:32.990] those gorgeous towers, the most beautiful in the world,
+- [35:35.190] the most beautiful spires in the world,
+- [35:37.790] the spires in Ukraine were said to be the most beautiful of all.
+- [35:42.860] Just about every one of them
+- [35:44.210] is lying on its side in a million pieces.
+- [35:46.360] It's so sad to see what's happened to a heritage.
+- [35:49.640] No, I think when they say the European Union
+- [35:55.820] and you could say NATO also… Look, NATO…
+- [35:58.650] And I don't blame NATO for this. I don't blame Europe for this.
+- [36:01.880] I blame Biden for the fact that he didn't make them equalize.
+- [36:06.530] And to this day I said to him, "You got to catch up.
+- [36:08.520] You got to equalize."
+- [36:10.070] But why are they in for a $100 billion
+- [36:11.810] and we're in for possibly $350 billion?
+- [36:15.630] It shouldn't be. It shouldn't be.
+- [36:18.200] And you could say more important for them,
+- [36:20.500] because we have an ocean in between.
+- [36:22.600] So it's one of those things. You'll be seeing Liberation Day.
+- [36:28.020] I call it Liberation Day in America.
+- [36:29.670] You're going to be seeing on April 2nd.
+- [36:31.760] Didn't want to do it on April 1st for the obvious reason.
+- [36:34.170] April 2nd. But you'll be seeing tariffs.
+- [36:37.920] And I think I've been very fair.
+- [36:40.350] I have them set, but I think I've been very fair to countries
+- [36:43.650] that have really abused us economically
+- [36:45.690] for many, many decades.
+- [36:46.990] Male Speaker: Mr. President,
+- [36:48.200] who told you that information was not classified?
+- [36:51.970] The President: Another question. Please, go ahead.
+- [36:53.380] Male Speaker: Which of your national security advisor
+- [36:54.750] told you [inaudible].
+- [36:55.980] Male Speaker: Just following up on your comments on the economy.
+- [36:58.450] There's reporting that consumer confidence
+- [37:00.500] fell for the fourth straight month.
+- [37:01.920] What is your message to Americans
+- [37:03.140] who are concerned about tariffs [inaudible].
+- [37:04.400] The President: Well, I know this,
+- [37:05.620] that for the first time in like 50 years,
+- [37:10.410] right track, wrong track, we're on the right track.
+- [37:13.430] And I think people see that.
+- [37:14.940] And if you look at prices, prices are way down.
+- [37:18.290] When I first came here,
+- [37:19.530] the first time I met with you people officially,
+- [37:25.090] they were screaming at me about eggs.
+- [37:27.250] I said, "I've been here for a week
+- [37:28.480] and I'm being yelled at about eggs."
+- [37:31.320] Eggs, egg prices have come down 45%,
+- [37:33.700] 50% in the last week and a half.
+- [37:36.540] And our Secretary of Agriculture has done a great job,
+- [37:40.300] as you know, Brooke, she's done a fantastic job
+- [37:42.990] and others working with her have done a great job.
+- [37:44.990] But we brought eggs down at a level
+- [37:48.490] that nobody thought we could get at.
+- [37:50.650] I inherited that situation and I inherited a grocery situation.
+- [37:54.350] The groceries went way up. An old-fashioned word,
+- [37:56.580] but it's a very descriptive word.
+- [37:59.030] Groceries have gone through the roof.
+- [38:01.320] And I used to campaign on it.
+- [38:02.930] I used to say, "We're going to get groceries down."
+- [38:04.780] And we have got it down.
+- [38:06.000] I watched a certain newscast over the weekend
+- [38:09.200] and a congressman, Democrat congressman said,
+- [38:11.490] "Well, Trump's done a lot. I agree.
+- [38:13.260] He's been great on the border, he's been great on the military,
+- [38:15.560] but he hasn't bought prices down."
+- [38:17.060] That's false.
+- [38:19.020] Gasoline is way down, eggs are way down.
+- [38:23.290] Groceries are down very substantially, but down.
+- [38:27.710] Almost everything's down.
+- [38:29.010] Now I'd like to see interest rates come down a little bit.
+- [38:32.300] And you're going to see billions of dollars,
+- [38:34.280] even trillions of dollars coming into our country
+- [38:36.590] very soon in the form of tariffs
+- [38:38.800] because we were abused by presidents,
+- [38:41.310] and frankly, in all fairness, it wasn't their expertise,
+- [38:44.130] but they had no idea what they were doing.
+- [38:45.810] Male Speaker: Mr. President,
+- [38:47.010] you say tariffs will create more jobs here in America?
+- [38:49.220] The President: Oh, yeah, sure.
+- [38:50.420] Male Speaker: So which states… Which states-
+- [38:51.710] The President: It's going to [inaudible].
+- [38:52.910] It'll create a lot of money and more jobs.
+- [38:54.870] But if you look… So in the last…
+- [38:57.150] These gentlemen would know about it, and ladies,
+- [38:59.710] because some of the ladies are great businessmen in this room,
+- [39:03.060] that are becoming ambassadors.
+- [39:04.850] Great. Really great. Top of the line.
+- [39:08.420] When you look at the number of companies that have said…
+- [39:12.280] We're close to, I would say close to $4 trillion.
+- [39:15.150] We never had numbers like that.
+- [39:16.790] The number one chip maker in the world from Taiwan
+- [39:19.650] coming in with $200 billion. We have Apple.
+- [39:25.230] Look at Apple, $500 billion. $500 billion.
+- [39:30.990] They're going to build plants all over the United States.
+- [39:33.550] They were all being built in China.
+- [39:35.520] You have many, many companies,
+- [39:36.820] and maybe above all you have the car companies coming in
+- [39:39.230] at levels that nobody's ever seen before.
+- [39:41.000] We have, Honda is opening up
+- [39:43.760] one of the biggest plants in the world in Indiana
+- [39:46.450] and many car companies are coming in.
+- [39:49.650] We have AI. We're leading China by a lot in AI.
+- [39:55.140] And we're going to keep it that way
+- [39:56.730] because we've made it very good for them.
+- [39:58.690] And we're going to protect them once they're here.
+- [40:00.370] We'll protect them through taxes,
+- [40:02.220] through incentives, and also through tariffs.
+- [40:05.050] Thank you very much everybody. Thank you very much. Thank you.

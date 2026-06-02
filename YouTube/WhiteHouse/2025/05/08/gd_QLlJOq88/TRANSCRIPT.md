@@ -1,0 +1,317 @@
+<!-- source: https://www.youtube.com/watch?v=gd_QLlJOq88 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: gd_QLlJOq88 -->
+<!-- date_published: 2025-05-08T16:29:35+00:00 -->
+<!-- date_accessed: 2026-06-02T02:50:36.834859+00:00 -->
+
+# Transcript: President Trump and the First Lady Participate in a Celebration of Military Mothers
+
+- [00:00.000] Announcer: Ladies, the President of the United
+- [00:02.425] States and First Lady Melania Trump.
+- [00:06.425] ♪[Hail to the Chief]♪
+- [00:40.530] The President: Thank you very much, everyone.
+- [00:42.310] Thank you.
+- [00:43.610] It's a great honor.
+- [00:44.550] We just made a very big deal with the UK.
+- [00:47.151] United Kingdom on trade, which is shocking everybody.
+- [00:51.310] They said, oh, gee.
+- [00:57.480] And we just had the Ukraine.
+- [00:59.280] We just were notified that Ukraine
+- [01:01.339] just approved our big rare earth deal,
+- [01:03.840] which could be worth trillions of dollars.
+- [01:09.640] And overall, we're doing very well.
+- [01:12.200] We have a lot of things happening.
+- [01:13.980] We have a very big conversation in
+- [01:16.889] Switzerland taking place this weekend with China.
+- [01:20.521] Has anyone heard of China recently?
+- [01:23.020] Yes.
+- [01:24.080] And they want to make a deal very badly.
+- [01:26.260] And I wouldn't be surprised.
+- [01:27.880] But we have tremendous things happening on trade.
+- [01:31.200] The likes of which we've never seen before.
+- [01:33.700] The UK deal was a big one.
+- [01:35.380] They've been trying to make that deal for 25 years.
+- [01:37.780] They've been unable to do it.
+- [01:39.501] And we were able to do it.
+- [01:41.320] And it was really something special.
+- [01:43.940] The Prime Minister was on the
+- [01:45.343] phone and the whole thing.
+- [01:46.880] It was really great.
+- [01:47.841] And now they're negotiating various
+- [01:50.714] other very, very big, strong trade deals.
+- [01:54.660] Nobody thought it would be possible, Claudia.
+- [01:57.140] Look at our great Congresswoman over there.
+- [01:59.660] Nobody thought it would be possible.
+- [02:01.480] Look at -- we have senators.
+- [02:03.140] We have the whole ball game here, huh?
+- [02:06.160] Hi, Johnny.
+- [02:07.680] So with that, I'll thank everybody for being here.
+- [02:11.980] This is a special building, a very, very special place.
+- [02:15.040] There's nothing like it anywhere in the world.
+- [02:16.980] No matter where you go, they come in.
+- [02:18.400] They say, wow, this is something.
+- [02:20.680] And I want to give a very big welcome to
+- [02:23.685] the White House and all of the people that
+- [02:26.841] come here and they love this place.
+- [02:30.060] But most importantly, to the military
+- [02:32.073] moms by far the most important.
+- [02:33.761] Right, JD?
+- [02:40.610] It's still a few days early, but let me be
+- [02:43.437] the first to wish everybody a very happy Mother's Day.
+- [02:46.911] It's going to be a great Mother's Day.
+- [02:48.311] And very happy I had a great Mother.
+- [02:50.490] I had a mother.
+- [02:51.250] She was such an angel.
+- [02:52.330] It could be very tough, I will say.
+- [02:54.030] But she had her tough moments.
+- [02:56.290] Some difficult moments she had
+- [02:58.006] Pam, but overall, very, very good.
+- [03:00.050] I will tell you.
+- [03:00.630] I had a great one.
+- [03:02.290] I especially want to thank one of the
+- [03:04.707] best moms that I know that I've ever seen.
+- [03:08.030] Sometimes she's almost too good.
+- [03:10.090] She is so good with Baron, but
+- [03:12.430] he's grown up strong and nice.
+- [03:14.771] And he's a good boy.
+- [03:16.150] He's a good student.
+- [03:16.950] So I want to thank you.
+- [03:17.870] You've done a great job.
+- [03:19.130] Thank you.
+- [03:20.610] Great First Lady.
+- [03:27.280] And thanks as well to Marine veteran Vice President J.D.
+- [03:32.160] Vance and to Second Lady Usha Vance,
+- [03:34.977] a mother of three young children.
+- [03:39.400] And we know that they're going to do very
+- [03:41.070] well in school because they were the two
+- [03:42.701] top students at Yale Law School.
+- [03:46.060] So genetically, they should be in good shape, right?
+- [03:49.160] They're not going to say, gee,
+- [03:50.696] mom, I can't figure this out.
+- [03:52.700] But also with us is Attorney
+- [03:54.318] General -- special person, by the way.
+- [03:56.380] Pam Bondi, thank you, Pam.
+- [03:58.360] Thank you, Pam.
+- [04:01.800] And Secretary Hegseth's, wonderful wife, Jennifer.
+- [04:07.260] Thank you, thank you.
+- [04:09.000] Thank you, Dan.
+- [04:10.820] And press Secretary Karoline Leavitt.
+- [04:13.980] Hey, she's become a star.
+- [04:15.460] Where's Karoline?
+- [04:16.580] I don't know -- that face.
+- [04:20.020] She's become a big star.
+- [04:21.680] Don't ever leave us, you know?
+- [04:23.560] Don't ever leave us.
+- [04:25.660] Thank you also to Senator Joni Ernst,
+- [04:28.328] a very good person friend of mine.
+- [04:31.100] Thank you very much.
+- [04:31.981] Very military person too.
+- [04:34.101] Great representative of the military.
+- [04:36.420] And also representatives, Claudia
+- [04:38.905] Tenney and Marianette Miller-Makes.
+- [04:41.840] And you are right here.
+- [04:43.180] Where are you?
+- [04:43.740] Thank you very much.
+- [04:45.380] Thank you.
+- [04:45.741] Thank you, Claudia.
+- [04:47.180] All of our American service members are
+- [04:49.867] heroes and our military mothers are doubly so.
+- [04:53.180] It's really doubly so what you have to go through.
+- [04:56.080] You make them great.
+- [04:57.700] You really do.
+- [04:58.460] You make people great.
+- [04:59.861] Each of the women here today has made
+- [05:02.304] extraordinary sacrifices for family and country.
+- [05:06.040] You've endured time away from your children.
+- [05:08.140] You've endured time away from everything.
+- [05:10.520] You've missed birthdays and holidays.
+- [05:13.080] You've missed so much.
+- [05:14.580] But you wouldn't trade it for the world.
+- [05:16.300] I know that.
+- [05:16.880] You wouldn't trade it for the world.
+- [05:18.720] As for spouses of our service members,
+- [05:21.533] we're never forgetting the burdens that you bear.
+- [05:25.021] When your loved ones are deployed and
+- [05:27.724] the sacrifices you have to go through.
+- [05:31.080] As military moms, you make these
+- [05:32.974] sacrifices in your families so that all of
+- [05:35.461] our families can be safe and be free.
+- [05:38.500] Our country is strong and respected
+- [05:40.907] because you choose to live the life of service.
+- [05:44.080] And you have done that.
+- [05:45.880] Incredible people.
+- [05:47.240] As your Commander in Chief, let me take
+- [05:49.806] this opportunity to salute you and to
+- [05:52.181] thank you on behalf of every single American.
+- [05:54.381] Every single one respects you and loves you.
+- [05:56.940] Thank you.
+- [05:59.000] And represented in this room are the
+- [06:01.610] nation's finest Army, Navy, Air Force.
+- [06:04.520] Space Force.
+- [06:05.120] I love Space Force, you know.
+- [06:07.100] I have a special little feeling for Space Force.
+- [06:10.460] When I did it, they said you're kidding.
+- [06:12.120] And now we're number one in space by a lot.
+- [06:15.200] We were getting decimated in space.
+- [06:17.620] But now we're number one by a lot.
+- [06:19.181] I was very proud of that.
+- [06:20.341] First time in 78 years that we had a new force.
+- [06:24.820] Coast Guard and Marines.
+- [06:26.940] I especially want to thank those of you
+- [06:29.240] who support the First Lady and me every
+- [06:31.541] day, including the military and social
+- [06:34.070] aides here and in the White House.
+- [06:36.340] Incredible support.
+- [06:38.300] In this room, our crew members of Air
+- [06:40.471] Force One said to be the best pilots in the world.
+- [06:43.240] I don't know.
+- [06:43.801] Where are you?
+- [06:44.340] Raise your hands.
+- [06:45.260] I want to get ready.
+- [06:46.401] We've got to take it a little trip this weekend.
+- [06:49.800] Thank you.
+- [06:50.440] Thank you.
+- [06:52.460] Thank you.
+- [06:53.401] Said to be the best.
+- [06:54.521] You better be the best because I'm traveling with you.
+- [06:59.120] Nurses from the White House Medical Unit.
+- [07:01.560] Musicians from our great military bands.
+- [07:04.480] They do such beautiful work when we
+- [07:06.276] have dignitaries that come around.
+- [07:08.240] There's as good as anybody in the world.
+- [07:09.700] You can go to the Philharmonic of any place.
+- [07:12.241] And there's as good as anybody.
+- [07:14.080] And so many others dedicated and devoted service members.
+- [07:18.160] You all do an outstanding job and you
+- [07:20.289] should take tremendous pride in what
+- [07:22.361] you're doing and what you do.
+- [07:23.900] I'm pleased to report that since November
+- [07:26.686] enlistment numbers for every branch of the
+- [07:29.541] armed forces has surged to the
+- [07:31.909] highest levels in 48 years.
+- [07:34.060] Can you imagine?
+- [07:38.950] Now, I do want to say that during the
+- [07:41.852] campaign, I used it all the
+- [07:44.086] time because it was good to use.
+- [07:45.790] I used whatever I have to do to win.
+- [07:47.630] You don't mind.
+- [07:48.590] But I used it all the time.
+- [07:50.070] Your numbers were so bad.
+- [07:51.270] It was so embarrassing.
+- [07:52.210] Nobody was signing up.
+- [07:53.370] Nobody wanted to go on the armed forces.
+- [07:54.890] Nobody wanted to be a policeman.
+- [07:57.310] Now, just a short time later, that was in June, July.
+- [08:01.411] And then we started surging and they
+- [08:03.476] started getting better and better right,
+- [08:06.030] JD.
+- [08:07.650] But once November 5th took place,
+- [08:09.593] they had numbers signing up
+- [08:11.149] like we've never seen before.
+- [08:13.410] Probably maybe ever.
+- [08:15.430] But they say the minimum, you
+- [08:17.188] know, you're talking 30, 40 years.
+- [08:20.230] Nobody wanted to sign up.
+- [08:21.650] They weren't proud of our country.
+- [08:22.850] Now, they're so proud of our
+- [08:23.886] country that we have the highest.
+- [08:25.130] We've attained the highest levels,
+- [08:26.963] I think, and the police forces too.
+- [08:28.851] And the firefighters, I never forget the
+- [08:30.762] firefighters that are doing all doing great.
+- [08:33.450] Because people now love our country
+- [08:34.964] and they're proud of our country again.
+- [08:37.090] And it's only been really three months.
+- [08:39.190] It's not that bad, right?
+- [08:41.530] Right, honey?
+- [08:44.510] I think maybe they're like our First
+- [08:47.276] Lady in our incredible Usha Second Lady.
+- [08:50.470] I always have a hard time saying Second Lady.
+- [08:52.290] I'm not sure that's a compliment or not.
+- [08:54.830] I say, JD, do you like me calling her the second lady?
+- [08:57.570] I don't know.
+- [08:57.931] That's the way it's been.
+- [08:59.150] She is a great person, great, great person.
+- [09:02.370] We used to have shortages, now
+- [09:04.750] we have waiting lists because of all of
+- [09:07.412] this great spirit that's really devolved.
+- [09:10.790] It's been incredible.
+- [09:12.470] So as we celebrate military mothers today,
+- [09:14.803] we look forward to an incredible
+- [09:16.609] future for the United States Armed
+- [09:18.334] Forces and for our country itself.
+- [09:20.830] And for those great service members and
+- [09:23.632] for all of you who love them so much.
+- [09:26.291] And now it's my pleasure to introduce that
+- [09:28.427] very special woman that I talked about,
+- [09:30.610] our great First Lady.
+- [09:31.730] And she's loved by all.
+- [09:32.950] I just walked by the Rose Garden.
+- [09:35.190] And that is the most beautiful
+- [09:36.829] thing we saw it yesterday.
+- [09:38.930] You know, she took a lot of heat.
+- [09:40.371] She did it to a so gorgeous and they --
+- [09:42.710] and these people couldn't do
+- [09:43.989] that if they had, if they tried.
+- [09:45.990] And those flowers were blooming.
+- [09:47.690] I said, how the hell -- two weeks ago
+- [09:50.131] this is like beautiful green, but it was not --
+- [09:52.506] and now it just happened so quickly.
+- [09:55.190] But you did some job.
+- [09:56.610] Thank you very much.
+- [09:57.550] Honey, come on up.
+- [10:00.050] [applause]
+- [10:13.870] The First Lady: Welcome.
+- [10:16.030] And thank you very much for your kind words.
+- [10:21.990] Motherhood.
+- [10:27.620] The life-changing event that makes women
+- [10:31.070] invincible and exposed at the same time.
+- [10:34.521] It's remarkable, really, that my son's
+- [10:38.087] life creates unimaginable, unpredictable
+- [10:41.841] concerns and fears for me, even until this day.
+- [10:47.380] All caring mothers understand this rare feeling.
+- [10:51.320] Nothing against fathers, of course.
+- [10:55.300] But in my opinion, and I'm sure everyone
+- [10:58.767] in this room agrees, only a mother
+- [11:01.693] can grasp this particular point.
+- [11:05.860] Military mothers and America together
+- [11:08.849] have developed an extraordinary parallel journey.
+- [11:13.940] They are filled with stories of personal
+- [11:17.194] sacrifice, determination, loss and healing.
+- [11:21.540] Certainly, only military mothers have
+- [11:24.387] experienced this level of grace
+- [11:26.765] and resilience of American life.
+- [11:29.521] And finally, aging.
+- [11:33.800] A sudden shift in family dynamics.
+- [11:37.540] An unexpected positioning change in life
+- [11:40.771] when caretakers become the caregivers.
+- [11:45.200] If this has happened within your family,
+- [11:48.286] you understand the precious nature of motherhood.
+- [11:51.980] Here now, in the White House, at this
+- [11:55.824] pivotal moment, I urge you to prioritize
+- [11:59.981] your well-being, nurture yourself.
+- [12:03.820] For your strength is the bedrock of
+- [12:06.480] a brighter future for our children.
+- [12:10.200] By caring for ourselves, we empower
+- [12:12.838] the next generation to thrive.
+- [12:15.101] Together, let's build a legacy of resilience and hope.
+- [12:21.120] Your journey matters, embrace it.
+- [12:24.960] And indeed, the sacred strength
+- [12:27.771] of women is a profound force.
+- [12:31.460] With unwavering love and nature in
+- [12:33.779] wisdom, we have the ability to inspire,
+- [12:37.160] uplift and shape the future hearts of our children.
+- [12:40.501] This power rooted in compassion and
+- [12:43.664] resilience is a beacon of hope that lights
+- [12:47.461] the way for generations to come.
+- [12:50.660] Let us unite to honor the beauty of
+- [12:53.314] motherhood, champion the grace of our
+- [12:56.121] journey, and inspire those who follow.
+- [12:59.920] A mother's love and wisdom empower our
+- [13:03.126] children to flourish, instilling in them
+- [13:06.501] the courage to reach their full potential.
+- [13:10.660] Motherhood.
+- [13:11.920] Happy Mother's Day, everyone!
+- [13:14.920] [applause]
+- [13:28.920] ♪[music playing]♪

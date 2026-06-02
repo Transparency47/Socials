@@ -1,0 +1,34 @@
+# YouTube / WhiteHouse / 2025-08-04
+
+- Posts: 10
+
+- [17:39 UTC - CNN finally reports the TRUTH: "Donald Trump is the most influential President of this century"](zIhA9Ny6XXY/)
+  - Source: https://www.youtube.com/watch?v=zIhA9Ny6XXY
+  - [00:00.160] Trump's remaking the United States of - [00:02.480] America. We can start there with - [00:03.919] tariffs. What are we talking about? No - [00:06.000] tacos for Trum...
+- [16:02 UTC - Thomas McKean](czHyOHe_4I/)
+  - Source: https://www.youtube.com/watch?v=_czHyOHe-4I
+  - [00:00.540] [Music] - [00:06.000] I am Thomas McKeen of Pennsylvania, - [00:08.240] though Delaware first called me to - [00:09.920] public service. I cast my vote for - [00:12.0...
+- [16:00 UTC - Abraham Clark](GxPEdUwfKZI/)
+  - Source: https://www.youtube.com/watch?v=GxPEdUwfKZI
+  - [00:08.000] Good day. I am Abraham Clark of - [00:10.639] Elizabeth Town, New Jersey, the poor - [00:13.120] man's counselor and signer of the - [00:15.360] Declaration of Indepe...
+- [15:59 UTC - Philip Livingston](iPCyxXxhmkI/)
+  - Source: https://www.youtube.com/watch?v=iPCyxXxhmkI
+  - [00:00.480] [Music] - [00:04.080] I am Philip Livingston of New York, the - [00:06.720] delegate who helped found what would - [00:08.240] become Columbia University. My family -...
+- [15:56 UTC - John Hart](iD6Lgas3_TE/)
+  - Source: https://www.youtube.com/watch?v=iD6Lgas3-TE
+  - [00:03.660] [Music] - [00:05.440] I am John Hart. Some call me Honest - [00:08.720] John, and I spent my life trying to earn - [00:11.360] it. History may have forgotten when and...
+- [15:53 UTC - George Taylor](QQXycKorlMs/)
+  - Source: https://www.youtube.com/watch?v=QQXycKorlMs
+  - [00:00.660] [Music] - [00:06.640] I am George Taylor, Irish by birth, - [00:09.360] servant by circumstance, and American by - [00:11.840] choice. I crossed the Atlantic in 1736...
+- [15:41 UTC - Alabama leaders celebrate Trump's One Big Beautiful Bill](3Rzm6HxLefA/)
+  - Source: https://www.youtube.com/watch?v=3Rzm6HxLefA
+  - [00:00.000] I'm Rex Reynolds from Huntsville, - [00:01.520] Alabama. - [00:02.000] >> I'm Representative Susan Deose. I'm from - [00:03.919] Shelby County in Alabama. - [00:05.60...
+- [13:18 UTC - President Trump Gaggles with Press at Lehigh Valley International Airport, Aug. 3, 2025](symBqoJt2YI/)
+  - Source: https://www.youtube.com/watch?v=symBqoJt2YI
+  - [00:00.930] The President: Okay, thank you very much. - [00:03.440] We had a very good weekend in many respects. - [00:06.780] We're seeing phenomenal numbers in terms of the bus...
+- [13:17 UTC - Democrats are screaming "recession, recession, recession" - That's not happening. 💰](I9wlSaSqQ_I/)
+  - Source: https://www.youtube.com/watch?v=I9wlSaSqQ-I
+  - [00:00.080] That's what the Trump tariffs are going - [00:02.000] to do. Crash the economy. - [00:04.720] >> The S&P 500 and NASDAQ approach record - [00:07.680] highs and summer...
+- [01:33 UTC - President Trump on Panicans: "...they can't handle pressure."](hQx_TqqtG8c/)
+  - Source: https://www.youtube.com/watch?v=hQx_TqqtG8c
+  - [00:00.080] I see this phrase out there. I think you - [00:01.920] you developed this word panicans, right? - [00:04.160] Like no panicans. Can you define - [00:05.839] panakans...

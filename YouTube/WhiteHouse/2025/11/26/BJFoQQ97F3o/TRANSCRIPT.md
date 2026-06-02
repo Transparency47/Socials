@@ -1,0 +1,563 @@
+<!-- source: https://www.youtube.com/watch?v=BJFoQQ97F3o -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: BJFoQQ97F3o -->
+<!-- date_published: 2025-11-26T22:17:30+00:00 -->
+<!-- date_accessed: 2026-06-02T01:09:37.310942+00:00 -->
+
+# Transcript: Vice President JD Vance Celebrates Thanksgiving with Servicemembers and Delivers Remarks
+
+- [00:00.320] Announcer: Ladies and gentlemen, soldiers of Fort Campbell,
+- [00:04.030] please welcome an American original
+- [00:06.890] and longtime supporter of our military, Kid Rock.
+- [00:12.540] ♪ (Kid Rock music playing) ♪
+- [00:44.950] Robert Ritchie: Hello. Happy Thanksgiving.
+- [00:51.870] As we say up in Detroit, gobble gobble, motherfucker.
+- [00:56.860] You know, I was going to if I could get some service.
+- [01:00.870] No, poor connection. Show you this little AI thing.
+- [01:04.180] But oh, let's see here, a couple things.
+- [01:06.630] I'm like, what am I doing? They're like, hey, just come up
+- [01:08.930] and introduce the Vice President.
+- [01:10.610] I'm like, man, anything you want me to say?
+- [01:14.040] We don't know and so I see a lot of faces here,
+- [01:17.250] and I'm kind of the old guy now.
+- [01:19.990] I'm fifty-four years old. And I spent a lot of time,
+- [01:23.360] and I don't say this for self-serving,
+- [01:25.520] around the world during the Iraq war and the Afghanistan war,
+- [01:28.270] I entertained the troops all over the world,
+- [01:30.580] and actually spent a little time away from home,
+- [01:32.640] which I know a lot of you
+- [01:34.370] will probably be doing this holiday season.
+- [01:37.000] Thanksgiving Christmas.
+- [01:38.280] I spent two Christmases in Iraq and another Thanksgiving,
+- [01:41.900] and I only say that that I don't think you understand
+- [01:44.510] sometimes how much you affect everyday people,
+- [01:47.530] not just by your service to our country,
+- [01:49.600] protecting us and everything else that you do unselfishly.
+- [01:53.250] But personally speaking, my son was very young,
+- [01:56.090] I was a single father, and being away from Christmas
+- [01:59.110] that first year, I kind of sat him down,
+- [02:00.910] and it was one of the most important life lessons
+- [02:03.850] I ever got to teach him,
+- [02:05.530] which was look, we've been fortunate the last few years.
+- [02:08.370] I had finally made some money.
+- [02:10.470] I said to be able to afford whatever we want,
+- [02:12.740] I said I've been asked to go entertain some guys and girls.
+- [02:17.010] Over in Iraq this Christmas.
+- [02:18.910] So we're not going to have a lot of presence this year.
+- [02:21.180] I'm going to be gone, but I'm going to go be with people
+- [02:22.950] who can't be with their families as well.
+- [02:25.940] And I think that's really the spirit of Christmas
+- [02:28.850] and the spirit of our country.
+- [02:30.250] And I'm proud to say he's 32 years old now,
+- [02:33.680] happily married, with I have two grandchildren,
+- [02:35.860] and he couldn't come today because he's working.
+- [02:37.780] He has two jobs.
+- [02:39.270] So I just wanted to say thank you again
+- [02:40.990] because it's people like you
+- [02:42.200] that I was able to teach him that lesson.
+- [02:46.150] Also, like I said, I'm 54 years old
+- [02:48.570] and I see a lot of young faces around here.
+- [02:51.880] And I was thinking on the way up here,
+- [02:53.220] I go, I thought about the first time that I realized I was old.
+- [02:58.840] And I'd like to share that story with you
+- [03:00.210] because make no mistake,
+- [03:02.710] everyone in here is going to have this moment.
+- [03:06.150] And it's a moment, it happens once.
+- [03:07.810] And I was myself, I was in, it's probably 12, 15 years ago,
+- [03:11.770] maybe my early 40s. I was in Malibu, California
+- [03:14.890] with a very, very good friend of mine.
+- [03:16.420] We're sitting in a little lunch spot
+- [03:18.050] having a beer and having lunch.
+- [03:20.350] And this very pretty young girl came over, and she said,
+- [03:23.420] Oh my god, kid rock. And she was with her friend.
+- [03:26.150] And she said, Can I have my picture made with you?
+- [03:29.960] And I kind of you know winked at my buddy.
+- [03:32.090] I'm like, Yeah, motherfucker,
+- [03:33.720] like grandpa's still got it, right?
+- [03:37.990] I'm like, and I kind of made a whole to-do out of it.
+- [03:40.530] I said, I said, you know what? Why don't we go outside, man?
+- [03:43.880] Better light out there with the sun, this, that,
+- [03:45.670] and the other.
+- [03:46.870] So I'm standing there with these two very pretty young ladies
+- [03:49.750] hammered up in front of my buddy.
+- [03:51.220] And they were kind of nervous,
+- [03:52.470] and I kind of like to break the ice.
+- [03:53.780] And I said,
+- [03:54.990] So, how's it feel to have your picture made with Brad Pitt?
+- [03:58.660] And my buddy, he's like, Yeah, Brad Armpit.
+- [04:02.080] Like, so I'm like, blah, blah, blah.
+- [04:04.040] We break the ice, take the picture.
+- [04:06.970] The young lady looks at, it was a phone at the time,
+- [04:09.670] one of those flip phones,
+- [04:11.400] and she looks at the picture and she goes,
+- [04:13.560] Oh my god, my mom's going to shit.
+- [04:17.100] And that's how I knew I was old for the first time.
+- [04:19.750] So but that's it.
+- [04:21.550] I'm just here to wish everyone a happy Thanksgiving.
+- [04:23.430] Thank you tremendously for your service,
+- [04:25.220] especially those that can't spend it
+- [04:27.310] with your loved ones this year. Now
+- [04:29.580] I'm so proud to bring up a man
+- [04:31.620] who's also served in our military and the Marines.
+- [04:35.540] I know it's not a day for politics,
+- [04:37.200] but I do hope to call him our 48th president one day.
+- [04:40.590] It's so nice to have people like him
+- [04:42.270] who are just down to earth normal in office.
+- [04:46.150] And I can't stress that enough,
+- [04:47.400] having been in and around politics quite a bit.
+- [04:50.300] And you know, I've been privileged to spend time
+- [04:52.060] with pretty much every president since Carter.
+- [04:54.360] Just a normal human being,
+- [04:57.060] whether your politics aligned or not,
+- [04:58.820] he's just a good normal guy,
+- [05:00.280] and I know he fights for all of us here.
+- [05:02.380] And like myself, I don't think it matters
+- [05:04.290] your political affiliation.
+- [05:06.350] We all support our troops, and we are once again
+- [05:08.450] tremendously grateful for everything you do.
+- [05:10.850] So without further ado,
+- [05:12.650] could you make some noise please for the Vice President
+- [05:15.690] of the United States, Mr. JD Vance.
+- [05:20.370] (applause)
+- [05:30.890] ♪ (rock music playing) ♪
+- [06:08.960] The Vice President: Well, it is great to be here
+- [06:11.810] in beautiful Fort Campbell, Kentucky.
+- [06:14.260] And let me just say --
+- [06:15.880] (cheers)
+- [06:21.300] I want to say first before we get started,
+- [06:24.150] um, on a somber note, we had,
+- [06:26.110] and some of you may have seen this on,
+- [06:27.700] on your phones or on social media,
+- [06:29.990] but apparently there was a shooting outside the White House
+- [06:32.310] just a couple of hours ago.
+- [06:35.050] And we're still learning everything.
+- [06:36.480] We still don't know the motive.
+- [06:37.680] There's a lot that we haven't yet figured out.
+- [06:39.500] But what we do know is that a couple of National Guardsmen
+- [06:42.110] were injured in the line of duty.
+- [06:44.360] And first of all,
+- [06:46.030] I want everybody who's a person of faith
+- [06:47.900] to say a prayer for those two National Guardsmen,
+- [06:49.960] that they're able to spend Thanksgiving with their families
+- [06:52.490] instead of losing their lives.
+- [06:53.790] Because I understand they're still in pretty tough condition.
+- [06:56.630] But I think it's a, it's a somber reminder that soldiers,
+- [07:01.010] whether they're active duty, reserve, or National Guard,
+- [07:04.380] our soldiers are the sword
+- [07:06.400] and the shield of the United States of America.
+- [07:09.860] And as a person who goes into work
+- [07:12.400] every single day in that building
+- [07:14.710] and knows that there are a lotta people
+- [07:16.460] who wear the uniform of the United States Army,
+- [07:19.110] let me just say very personally,
+- [07:21.500] thank them for what they're doing, we're grateful to them,
+- [07:24.460] and we're praying that they're going to be safe,
+- [07:26.210] and they're going to spend Thanksgiving
+- [07:27.600] with their families.
+- [07:28.800] God bless them.
+- [07:30.970] Now, I'm going to talk a little bit about
+- [07:33.110] the business of the Army, and about what you're doing,
+- [07:35.270] and about why it's important to the United States of America,
+- [07:38.420] and why we are proud of you,
+- [07:40.150] every single one of our soldiers here in Fort Campbell
+- [07:43.180] and all across the world.
+- [07:45.390] We have got some incredible guests here,
+- [07:48.060] here to, to honor this moment, to honor you,
+- [07:50.280] to say thanks to so many of you
+- [07:52.220] for spending time away from your families here
+- [07:54.480] this day before Thanksgiving.
+- [07:56.270] And I want to give just a few shout-outs
+- [07:58.050] to some of our special guests before we get started.
+- [08:00.620] First of all, to General Travis McIntosh
+- [08:03.910] and Command Sergeant Major Charles Walker.
+- [08:06.830] Thank you guys for leading this incredible facility,
+- [08:09.860] and thank you for serving in the United States Army,
+- [08:12.470] and making us proud. Where are you guys?
+- [08:13.850] Please stand up and be recognized.
+- [08:15.210] Thank you all.
+- [08:24.650] We've got my dear friend, Senator Marsha Blackburn.
+- [08:27.780] Marsha, please stand up and say hello.
+- [08:33.380] And we and we also have Congressman Rose.
+- [08:35.830] Where is Congressman Rose? Please stand up.
+- [08:37.620] Thank you, Congressman. It's good to see you.
+- [08:43.490] Now, I've got to, of course,
+- [08:44.710] thank my dear friend Bob Ritchie,
+- [08:46.230] you better know him as Kid Rock, but I want to say to my staff,
+- [08:50.210] I gave them one instruction
+- [08:52.590] and that's that I don't have to follow a literal rock star
+- [08:56.220] before I give a speech.
+- [08:57.800] And they screwed that up the day before Thanksgiving.
+- [09:00.170] So every single one of them are fired.
+- [09:02.390] But thank you to Bob Ritchie, Kid Rock,
+- [09:04.540] because he's not just a great musician,
+- [09:07.730] he's not just a great American,
+- [09:09.200] he is a person who loves the soldiers
+- [09:11.480] of the United States Army. And we are proud and grateful
+- [09:14.610] for Kid Rock for being here today.
+- [09:17.280] I want to take a, a another few moments
+- [09:19.690] and just say thanks to Major Josh Wilcox,
+- [09:23.650] Master Sergeant Aaron Duhaczek, Mr. Jim Parks, Major Rob Wright,
+- [09:31.140] and every single soldier who made it possible
+- [09:33.490] for me to come and visit.
+- [09:34.730] Now, I won't say that the weather is cooperating
+- [09:37.380] because it's windy as hell and it is cold, man.
+- [09:40.320] It is cold up here.
+- [09:42.390] My staff told me to wear a jacket and I said,
+- [09:44.690] "Nah, I'll just be fine." And here I am, two minutes in,
+- [09:47.530] wishing that I had listened because it is,
+- [09:49.280] it is really freezing cold up here.
+- [09:51.340] But we're going to, we're going to have a little fun
+- [09:53.290] despite that, because we are here to celebrate
+- [09:56.290] not just the United States Army.
+- [09:57.960] We're here to celebrate each and every one of you.
+- [10:00.440] And I know we've got some units here at Fort Campbell,
+- [10:03.620] and I want to give a shout-out to each of the great units.
+- [10:06.670] So if you are with the 101st Airborne
+- [10:11.110] Screaming Eagles, let me hear you a little bit.
+- [10:13.420] Where's the 101st Airborne?
+- [10:16.640] (cheers)
+- [10:23.910] That was pretty damn good. That was pretty damn good.
+- [10:27.270] Let me say that the 101st
+- [10:28.910] Airborne is one of the proudest units in the entire
+- [10:32.650] United States Army for all war fighters everywhere.
+- [10:36.730] Everybody knows the prestige,
+- [10:39.650] everybody knows the press professionalism,
+- [10:42.340] and everybody knows the greatness of the 101st Airborne.
+- [10:46.530] So when the nation calls on the 101st
+- [10:49.140] Airborne, you all execute, you make us proud,
+- [10:52.930] you kick the enemies' ass, and you come home safely.
+- [10:55.400] And that's exactly what we want our soldiers to do.
+- [10:59.790] Audience member: I agree.
+- [11:02.830] We are honored. Somebody said, "I agree."
+- [11:05.850] Thank you. I appreciate that endorsement.
+- [11:09.620] We are -- (Laughs) also honored to be here with,
+- [11:13.670] to welcome the men and women
+- [11:15.930] from the Strike and Destiny Brigades,
+- [11:18.470] who just finished deployments in Europe and the Middle East.
+- [11:21.340] Where the Strike and Destiny Brigades?
+- [11:23.790] (cheers)
+- [11:27.750] I want to say to those of you who are here
+- [11:30.560] for the first time back home in a few months,
+- [11:33.650] we're proud of you, we're grateful to you,
+- [11:35.520] and for the Vice President of the United States, welcome home.
+- [11:39.240] We also want to recognize the Legionnaires.
+- [11:41.720] Where we got some Legionnaires at?
+- [11:43.680] (cheers)
+- [11:48.460] Like five or six. We got some Legionnaires.
+- [11:51.510] How about the Night Stalkers with the 160th
+- [11:53.550] Special Operations Aviation Regiment?
+- [11:55.650] We got some Night Stalkers out here? A few?
+- [11:59.170] Like three. They're all working right now.
+- [12:04.930] And I also want to give a shout out to the 52nd Ordinance Group,
+- [12:08.300] members of the 2nd Battalion, 44th Air Defense Artillery,
+- [12:12.740] the men and women who run the elite training schools here,
+- [12:15.660] and many, many more soldiers who make this
+- [12:18.340] one of the proudest military installations
+- [12:20.960] anywhere in the United States Army.
+- [12:24.300] And I want to tell you, just to give you a message
+- [12:26.150] from the President of the United States,
+- [12:27.390] I know he couldn't be here,
+- [12:28.670] but the President is proud of our soldiers
+- [12:30.970] and he's proud of every single one of you.
+- [12:32.510] So from the President of the United States,
+- [12:34.720] he just wanted to make sure that you knew he wished you
+- [12:37.190] a Happy Thanksgiving
+- [12:38.680] and he's grateful for all you do.
+- [12:40.880] Now, I'm proud and happy to serve
+- [12:42.810] with a lot of very good people.
+- [12:44.660] And one of them is my dear friend, Dan Driscoll,
+- [12:47.180] who's the Secretary of the Army. Dan is doing a great job
+- [12:50.370] and I also want to give a shout-out to our incredible
+- [12:52.850] Secretary of War, Pete Hegseth.
+- [12:54.730] I think he's doing an amazing job.
+- [12:59.710] And, you know, Pete gave a speech at Quantico,
+- [13:02.860] which is a marine base.
+- [13:04.090] Don't hold it against us,
+- [13:05.290] but he gave his speech in Quantico
+- [13:07.620] a few months ago that I think is one of the best speeches
+- [13:10.210] that I've heard about the United States Military,
+- [13:12.710] because he was talking about the incredible esprit de corps
+- [13:15.790] and he was talking about the importance
+- [13:17.750] of holding the United States Army
+- [13:19.980] and all of our branches of the military
+- [13:22.170] to the very highest possible standards.
+- [13:25.090] And I listened to the speech and I'm thinking
+- [13:27.520] as I'm watching this speech,
+- [13:28.950] man, Pete, this is a hell of a speech.
+- [13:30.770] This guy is one amazing order. And he was talking
+- [13:35.010] about the importance of military standards.
+- [13:38.350] He said, and I'm going to quote here from his speech,
+- [13:41.300] "The new War Department grown rule is this,
+- [13:44.010] due unto your unit as you would have done
+- [13:46.580] unto your own child's unit.
+- [13:48.620] Would you want him serving with fat or unfit
+- [13:50.770] or under trained troops,
+- [13:52.490] or alongside people who can't meet basic standards?"
+- [13:55.110] He was talking about the importance of bringing
+- [13:57.640] the highest standards possible to the United States Army.
+- [14:01.260] And I hear Pete saying that, and I'm like, "Hell, yeah.
+- [14:03.670] That's exactly what we want out of the United States Army."
+- [14:06.090] I see a lot of you nodding your heads.
+- [14:08.280] And then he talks about the importance of this job
+- [14:11.980] and why we have to have the very best people doing this job.
+- [14:16.140] He says, "Because this job is life or death,
+- [14:19.350] standards must be met. And not just met at every level,
+- [14:23.530] we should seek to exceed the standard,
+- [14:26.000] to push the envelope, to compete.
+- [14:28.220] And this means that the War Department, first and foremost,
+- [14:31.060] we must restore a ruthless, dispassionate
+- [14:34.330] and common-sense application standards."
+- [14:36.480] And I'm like, "Man, this is awesome.
+- [14:38.670] We're talking about bringing the highest standards in the world
+- [14:41.550] to the very best United States Army.
+- [14:43.350] I'm ready to run through a wall with this guy."
+- [14:46.170] And then Pete goes, "No more beardos."
+- [14:50.110] I'm like, "What the hell is that all about?"
+- [14:53.730] He's talking about me. And I said to Pete afterwards,
+- [14:57.540] I was like, "Man, you had me. This whole speech was amazing."
+- [15:00.480] But you know what?
+- [15:01.760] The, the, the, the point is here that we believe in you so much.
+- [15:06.270] We believe in your mission so much that we know
+- [15:09.950] that you guys can meet the highest standards in the world.
+- [15:13.760] And when you look to your left and to your right,
+- [15:16.140] we want you to know
+- [15:17.440] that you're serving with the very best
+- [15:19.560] and the very brightest this nation has to offer.
+- [15:22.550] Before I came over here, I was at the chow hall
+- [15:24.420] and we got to serve some food to the soldiers there.
+- [15:28.400] And I was talking afterwards just,
+- [15:30.140] just sharing a meal with a few of the soldiers.
+- [15:32.440] And a guy said to me something really interesting,
+- [15:35.270] he said that 250 years ago when the Army started,
+- [15:38.950] there was a, a Prussian military leader
+- [15:41.810] who came over and helped train
+- [15:43.900] the very first United States Army.
+- [15:45.540] Because of course, back then,
+- [15:47.100] we didn't have very many military experts in our country.
+- [15:49.850] We were still in our infancy.
+- [15:51.600] And what he said was very fascinating,
+- [15:53.770] I think this guy's name he said was Von Steuben.
+- [15:56.330] Von Steuben said that it was only the Americans
+- [15:59.910] who just didn't need an order, but also needed to be told
+- [16:03.820] why they were doing what they were doing.
+- [16:06.240] And I thought that was a fascinating insight
+- [16:08.330] to the soldiers of 250 years ago
+- [16:10.910] and a fascinating insight to the soldiers of today.
+- [16:13.810] We don't just want people who mindlessly follow orders.
+- [16:17.470] We want people who think, because we know
+- [16:20.570] that the most powerful weapon in the United States arsenal,
+- [16:24.160] the most powerful weapon anywhere in the world,
+- [16:26.770] it's not a rifle,
+- [16:28.330] it's not a tank, it's not a helicopter or an airplane.
+- [16:31.870] The most dangerous and lethal weapon anywhere in the --
+- [16:35.550] in the world is a United States soldier.
+- [16:39.200] And we're proud of you and we're going to stand behind you
+- [16:41.380] every step of the way.
+- [16:47.810] And with that basic mindset of not just telling you
+- [16:51.540] what we need you to do, but why we need you to do it.
+- [16:54.930] I think you all should expect from your military leadership,
+- [16:57.900] from the President on down,
+- [16:59.900] you should expect us to explain what it is that we're doing
+- [17:03.490] and why we care so much about it.
+- [17:05.360] Why do we care so much about high standards?
+- [17:07.940] Not just because we think that standards got a little lax
+- [17:11.120] in the last administration.
+- [17:12.690] We care about high standards because if, God forbid,
+- [17:16.560] the President of the United States
+- [17:18.150] asks you to go to war, we want to make sure
+- [17:20.280] that the people that you're fighting with are the very best.
+- [17:23.240] We owe it to your moms and dads, your grandma's and grandpa's
+- [17:26.760] to only send the very best people off to foreign conflicts,
+- [17:31.110] and that is why we care so much about standards.
+- [17:34.220] You've heard our Secretary of the Army,
+- [17:35.660] our Secretary of War,
+- [17:36.910] you've heard the President of the United States.
+- [17:38.740] If you've listened to anything
+- [17:40.320] that they've said over the last few months,
+- [17:42.790] they talk a lot about preparing the Army and the whole military
+- [17:47.250] for the age of modern warfare, because it's changed a lot.
+- [17:50.820] We've got drones now, we've got cyber warfare,
+- [17:53.510] we've got satellites in space that are as important to
+- [17:56.760] the modern warfighter as anything, as, as any rifle
+- [18:00.820] or tank or airplane was 20 or 30 years ago.
+- [18:04.300] Now, yeah, of course we still got a lot of tanks.
+- [18:06.620] We still got a lot of rifles.
+- [18:07.940] We still got a lot of the things that we've always had.
+- [18:10.840] But in this new generation of warfare,
+- [18:13.360] we need to give you the technology
+- [18:15.960] and the training to be the very best.
+- [18:19.210] And we know that you are the very best,
+- [18:21.390] but part of training you to be the very best is to make sure
+- [18:24.380] that you have the ability to use the modern weapons
+- [18:27.160] of warfare better than anybody else.
+- [18:29.810] When we look at the battlefield of the future,
+- [18:32.160] when we look at the next war,
+- [18:33.790] God forbid if we're called on to fight it,
+- [18:36.170] it is going to be, if anything,
+- [18:37.840] a war up here as much as any other conflict
+- [18:42.320] in the history of the world.
+- [18:43.820] If you look at what's going on in Russia or Ukraine,
+- [18:46.730] or you look at what's going on
+- [18:48.140] in some of our counterterrorism missions,
+- [18:50.030] or you look at what could happen in the future,
+- [18:52.350] in the next military conflict,
+- [18:54.250] it's not going to be the war that we fought 20 years ago.
+- [18:57.350] It's going to be a much different war.
+- [18:59.340] And one of the things I want every single one of you to know
+- [19:02.740] is that the President of the United States
+- [19:04.510] has given us a very simple mission,
+- [19:06.410] that we have got to equip you
+- [19:08.560] with the resources, with the training,
+- [19:11.860] and with the equipment to win the battle of the future.
+- [19:16.130] Now, I happen to believe that one of the mistakes
+- [19:18.160] that we made in this country,
+- [19:20.110] and let's be honest, it wasn't just Democrats,
+- [19:22.780] it was Democrats and Republicans,
+- [19:24.900] is that we were far too willing to send
+- [19:28.020] the bravest people in the world, our best natural resource,
+- [19:31.610] you all, the, the young people who put on a military uniform
+- [19:35.320] and are willing to fight and die for their fellow countrymen,
+- [19:37.990] we were too willing to send you off
+- [19:39.860] to battle without a clear mission,
+- [19:43.170] a clear definition of what you were supposed to accomplish.
+- [19:46.580] That was the mistake of Democrats and Republicans.
+- [19:49.310] It is the great stain
+- [19:50.960] on the political leadership of this country,
+- [19:53.370] that we had the best troops in the world,
+- [19:55.750] and very often we went and sent you off to battle
+- [19:58.560] without a clear mission.
+- [20:00.050] And that is something this President
+- [20:01.810] and this administration is never going to do.
+- [20:04.320] If we ask you to go off and do something,
+- [20:07.060] if we ask our soldiers to risk their lives,
+- [20:09.610] to defend their countries, what I promise you
+- [20:12.370] is that we're only going to do it
+- [20:14.190] with a clear mission and clear guidelines.
+- [20:16.700] And we're going to give you the tools necessary,
+- [20:19.040] we're going to give you the resources necessary,
+- [20:21.650] and we are going to empower you to do a very simple thing,
+- [20:24.960] which is kick the enemy's ass and come home safely.
+- [20:28.300] That's what the United States wants from its soldiers,
+- [20:30.900] and that's what the President of the United States
+- [20:33.400] asks of each and every one of you.
+- [20:35.760] It's not that hard, but that's what you should
+- [20:37.980] demand of your political leadership.
+- [20:39.490] Just as you follow orders of the President of the United States,
+- [20:43.070] this President stands by you,
+- [20:45.680] and if he asks you to do something hard,
+- [20:47.740] it's only going to be for a very good reason.
+- [20:51.420] You know, one of the things that I love about Thanksgiving,
+- [20:53.670] it's probably my, my, my favorite American holiday.
+- [20:56.340] If you think about all the holidays that we --
+- [20:58.270] celebrate, Thanksgiving is the most uniquely American holiday.
+- [21:02.910] You know, Christmas, of course, the birth of Jesus.
+- [21:05.140] All of these other holidays, they're, they're very important.
+- [21:08.850] And I love Christmas as much as anybody.
+- [21:10.600] I've got three little kids.
+- [21:12.150] But Christmas is a holiday that 1.8 billion
+- [21:16.040] Christians celebrate all over the world.
+- [21:18.110] Thanksgiving, what we celebrate tomorrow,
+- [21:20.690] that is a uniquely American thing.
+- [21:23.410] That's why, for example,
+- [21:24.810] we have, you know, turkey, think about turkey.
+- [21:28.040] Who really likes, be honest with yourself,
+- [21:30.900] who really likes turkey? You're all full of shit.
+- [21:36.690] Everybody who raised your hand, I know, think about it.
+- [21:41.440] And here's, here's how I know that every single one of you
+- [21:44.240] who raised your hand is lying to me.
+- [21:46.410] How many times do you roast an 18-pound turkey just randomly?
+- [21:51.700] Just, you know, a nice summer afternoon,
+- [21:53.860] we're going to go get an 18-pound turkey?
+- [21:56.430] Nobody does it because turkey
+- [21:57.800] doesn't actually taste that good.
+- [21:59.750] But on Thanksgiving, on the most American holiday,
+- [22:02.590] I got a, I got a fan over here, on the most American holiday,
+- [22:06.090] we're going to cook a turkey, by God,
+- [22:08.070] because that's what Americans do.
+- [22:11.140] We cook this gigantic American bird,
+- [22:14.270] and we do all kinds of crazy things to make it taste good.
+- [22:16.580] I talked to a, to a soldier today
+- [22:19.220] who she said she's going to deep-fry a turkey.
+- [22:21.000] And I'm actually going to deep-fry
+- [22:22.280] a turkey myself tomorrow. And look, here's the thing,
+- [22:26.930] if you've got to deep-fry something --
+- [22:28.640] to make it taste good, it probably isn't that good.
+- [22:31.190] That's a pretty good rule of thumb when it comes to food.
+- [22:33.550] Chicken is good all the time.
+- [22:35.500] Chicken is good when you deep-fry it,
+- [22:36.810] but it's also good outside of it.
+- [22:39.090] There's the thing about Thanksgiving.
+- [22:40.600] It is so American
+- [22:43.100] because at the heart of it is the spirit of gratitude.
+- [22:47.370] And I know that every single one of you has something tomorrow
+- [22:51.460] to be very thankful for and to be grateful for.
+- [22:55.570] And that's what I think, you know, really separates,
+- [22:59.190] people ask me all the time for advice,
+- [23:01.850] and the only piece of advice I, I, I can ever give that I,
+- [23:04.760] I think is true for every single person in every circumstance
+- [23:08.250] is that the happiest people that I've ever met,
+- [23:10.790] the most successful people that I've ever ne- --
+- [23:12.940] met, they live their life with a spirit of gratitude.
+- [23:15.640] They recognize that they would not be there
+- [23:18.590] but for the grace of God
+- [23:19.930] and a lot of great people in their lives.
+- [23:23.000] And so, if I may, as your vice president,
+- [23:25.310] that's the one piece of advice I want to give y- --
+- [23:27.130] to you on this day before Thanksgiving,
+- [23:29.600] is to live your life in the United States Army,
+- [23:32.360] to live your life everywhere with a spirit of gratitude,
+- [23:35.790] to recognize that you wouldn't be wearing that uniform
+- [23:38.790] were it not for somebody in your life
+- [23:40.730] who loved you and cared for you,
+- [23:42.470] that you wouldn't have this incredible opportunity
+- [23:44.550] to serve the United States.
+- [23:45.900] And yes, it's tough, and yes, it's a life of sacrifice,
+- [23:49.900] but I happen to believe that the life of service and sacrifice
+- [23:53.810] is the greatest blessing that we have in this room today,
+- [23:57.550] because what an amazing country
+- [23:59.040] it is that takes people from all walks of life
+- [24:02.270] and makes them part of the same United States Army,
+- [24:06.080] the same -- sword and shield for the American people,
+- [24:09.480] the same organization that for 250 years has kept us safe.
+- [24:15.550] So tomorrow I'm thankful for a lot.
+- [24:17.850] I'm thankful for my, my beautiful wife
+- [24:19.860] and our three beautiful kids.
+- [24:21.800] I'm thankful to be to have the opportunity
+- [24:24.570] to serve as Vice President of the United States of America.
+- [24:27.940] I'm thankful for my family.
+- [24:29.590] I'm thankful to Almighty God for the incredible blessings
+- [24:33.770] that he's given this country
+- [24:35.720] and also he's given to me personally.
+- [24:38.120] But one of the things at the very top of the list
+- [24:40.660] that I'm thankful for is the United States Army
+- [24:43.860] and for the people in this room.
+- [24:45.940] Now, I know that a lot of you are going to spend tomorrow
+- [24:49.370] with your friends and families,
+- [24:50.780] but I also know that a lot of you
+- [24:52.750] are not going to have that opportunity,
+- [24:54.910] that you've got deployments you've got to prepare for,
+- [24:57.960] that you're stuck on this base, you're not able to travel home
+- [25:00.730] because you've got to prepare for the mission.
+- [25:03.590] And when I think about all the many blessings
+- [25:06.540] that are very, very present in my life,
+- [25:08.490] there is nothing that compares to being
+- [25:11.320] the Vice President of the United States
+- [25:13.680] at a time like this, vice president of all of you,
+- [25:18.140] vice president of the greatest fighting force
+- [25:22.680] that exists anywhere in the world, the United States Army.
+- [25:27.130] You guys, you guys make this a happy Thanksgiving for me
+- [25:32.590] because every single day you show up to work,
+- [25:34.890] you put on that uniform and make your nation proud.
+- [25:37.570] You make me proud to be your vice president.
+- [25:40.580] So happy Thanksgiving, soldiers. Keep on doing what you're doing,
+- [25:44.450] and never forget that the most deadly weapon
+- [25:47.230] anywhere in the world, it's not about technology,
+- [25:50.590] it's not about what you're holding in your hands.
+- [25:52.830] It's about what's up here.
+- [25:54.360] You are the most dangerous weapon anywhere in the world,
+- [25:57.930] and America is counting on it to keep us safe.
+- [26:01.510] Happy Thanksgiving, soldiers. Thank you for having me.
+- [26:03.520] God bless you.
+- [26:05.750] (cheers and applause)
+- [26:14.610] ♪ (country music playing) ♪

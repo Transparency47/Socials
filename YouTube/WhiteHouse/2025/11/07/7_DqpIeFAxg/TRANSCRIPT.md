@@ -1,0 +1,849 @@
+<!-- source: https://www.youtube.com/watch?v=7_DqpIeFAxg -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 7_DqpIeFAxg -->
+<!-- date_published: 2025-11-07T18:36:48+00:00 -->
+<!-- date_accessed: 2026-06-02T02:41:57.752107+00:00 -->
+
+# Transcript: President Trump Participates in a Bilateral Lunch with the Prime Minister of Hungary
+
+- [00:00.180] The President: Well, thank you very much.
+- [00:01.400] It's an honor to have a friend of mine here,
+- [00:03.280] Viktor Orban, the Prime Minister of Hungary.
+- [00:06.390] And he's done a fantastic job.
+- [00:08.980] He's a very powerful man within his country,
+- [00:12.540] but he's also beloved.
+- [00:14.870] They love Viktor, and people that know him do.
+- [00:19.020] He's run a really great country, and he's got no crime.
+- [00:22.710] He's got no problems, like some countries do,
+- [00:24.840] but probably has a couple of things that I don't know about,
+- [00:28.200] maybe that I don't want to know about.
+- [00:30.350] But he's a very special person. I've known him for a long time.
+- [00:33.680] We're going to be talking trade.
+- [00:35.400] We're going to be talking a little bit of Russia-Ukraine.
+- [00:38.760] We'll be talking about energy and energy prices.
+- [00:42.010] We have energy down to a pretty low point
+- [00:43.890] right now in the United States.
+- [00:45.300] We're drilling -- drill, baby, drill, we call it.
+- [00:47.810] But energy costs are very low. Our general costs are very low.
+- [00:50.920] And I just saw that Walmart came out
+- [00:53.360] with a statement last night --
+- [00:54.800] they've done it for many years --
+- [00:56.550] that Thanksgiving this year will cost 25 percent
+- [00:59.290] less than Thanksgiving last year under Sleepy Joe
+- [01:03.450] Biden. So that's a big difference.
+- [01:06.110] That's a big difference -- 25 percent less Thanksgiving.
+- [01:09.600] And I think that's a very good chart.
+- [01:10.940] They include everything --
+- [01:12.560] everything that you need for Thanksgiving.
+- [01:15.140] So it's 25 percent less this year than it was last year.
+- [01:17.790] And that's true.
+- [01:19.050] That's emblematic of the rest of prices.
+- [01:23.420] Energy prices are way down from what they were last year.
+- [01:27.180] Inflation is almost nonexistent.
+- [01:29.510] We have inflation down to a very low number.
+- [01:32.030] Whereas Biden, as you know, is the worst inflation
+- [01:35.040] in the history of our country. So we're doing very well.
+- [01:38.290] We have a shutdown, as you probably know,
+- [01:40.220] because the Democrats have gone --
+- [01:42.240] they're crazy. They're crazy.
+- [01:44.420] But they don't care if they hurt the country.
+- [01:45.950] But we've approved it 14 times.
+- [01:48.880] We've approved an opening up 14 times,
+- [01:52.130] and they keep rejecting it.
+- [01:53.380] And I guess maybe they will again.
+- [01:56.280] Let's see what happens.
+- [01:57.980] They want to have a lot of bad things happen --
+- [02:00.420] bad things for our country.
+- [02:01.780] We're not going to give $1.5 trillion
+- [02:04.580] to people that came into our country illegally.
+- [02:06.420] We're not going to do it to people who came from prisons.
+- [02:09.590] They came from mental institutions.
+- [02:11.590] They're drug dealers.
+- [02:12.990] They want to give them medical care -- $1.5 trillion.
+- [02:18.960] And we're not going to do other things
+- [02:20.470] that they're requesting also.
+- [02:21.760] So I just want to welcome this really good person.
+- [02:27.730] I know him very well. He's a good person.
+- [02:29.850] And he's a great leader, and he's loved in his country.
+- [02:31.990] And, Viktor, would you like to say a few words?
+- [02:33.980] Prime Minister Orban: Thank you very much, President.
+- [02:35.200] Thank you. First of all,
+- [02:37.430] may I say that thank you very much for the invitation.
+- [02:42.040] It's good to see you, President, back to the White House.
+- [02:46.380] And good to be back after six years,
+- [02:48.090] in a way, again, to see you here.
+- [02:50.760] As we have met last time.
+- [02:53.110] The reason why we are here is to open a new chapter
+- [02:56.400] between the bilateral relation of the United States and Hungary
+- [03:00.170] basically because during the Democrat administration,
+- [03:02.450] everything was ruined.
+- [03:03.850] So after your leaving, President,
+- [03:05.240] everything was basically broke, ruined, canceled,
+- [03:08.410] a lot of harm done by the previous administration.
+- [03:13.160] In the last 10 months, President, what you have done --
+- [03:15.880] we are very much grateful for that --
+- [03:17.630] you restored the old level of the relationship.
+- [03:21.350] You improved the bilateral relation.
+- [03:25.010] You repaired what was done badly by the previous administration.
+- [03:28.870] So now we are in quite a good position
+- [03:31.070] to open up a new chapter,
+- [03:32.770] let's say a golden age between the United States and Hungary.
+- [03:36.390] And we have plenty of suggestions for today --
+- [03:39.440] economic cooperation, military cooperation,
+- [03:41.720] and political cooperation. And the main issue, probably,
+- [03:44.150] President, you know we are neighboring Ukraine.
+- [03:47.820] Which is in war. It's a most important issue for us,
+- [03:50.980] and we would like to discuss with you
+- [03:52.920] how we can contribute to help you in your peace efforts.
+- [03:56.820] The President: And you've taken a lot of Ukrainians
+- [03:59.110] that needed your help,
+- [04:00.610] and you've taken a lot of them in your country,
+- [04:02.950] and everybody appreciates that.
+- [04:04.590] Prime Minister Orban: Thank you very much. We do our best.
+- [04:06.660] Thank you very much.
+- [04:07.880] The President: Any questions, please?
+- [04:12.140] Go ahead.
+- [04:13.400] The Press: Thank you. Thank you, Mr. President.
+- [04:17.100] Mr. Orban has requested an exemption
+- [04:20.220] as it relates to oil that is coming from Russia.
+- [04:24.490] Is that something that you are prepared to do?
+- [04:26.800] And may I ask Mr. Orban a question
+- [04:29.060] in regards to that very issue?
+- [04:30.850] The President: Sure.
+- [04:32.140] We're looking at it because it's very difficult for him
+- [04:34.400] to get the oil and gas from other areas.
+- [04:38.230] As you know, they don't have the advantage of having sea.
+- [04:41.630] It's a great country. It's a big country.
+- [04:43.280] But they don't have sea. They don't have the ports.
+- [04:46.110] And so they have a difficult problem.
+- [04:49.000] There's another country that has that same problem, by the way.
+- [04:52.290] But when you look at what's happened with Europe,
+- [04:54.150] many of those countries, they don't have those problems.
+- [04:56.770] And they buy a lot of oil and gas from Russia.
+- [05:00.560] And as they know, I'm very disturbed
+- [05:02.050] by that because we're helping them,
+- [05:03.560] and they're going and buying oil and gas from Russia.
+- [05:06.040] So that question could be really asked maybe more accurately
+- [05:09.430] if you talked about many European countries,
+- [05:12.910] not Hungary, necessarily,
+- [05:14.420] because Hungary is in a different position.
+- [05:17.350] But many European countries are buying oil and gas from Russia.
+- [05:21.740] And they have been for years.
+- [05:23.500] And I say, what's that all about?
+- [05:25.000] Right? Thank you.
+- [05:26.220] Yeah, go ahead.
+- [05:27.720] Prime Minister Orban: Thank you, Mr. President.
+- [05:28.970] That will be one of the issues for today.
+- [05:31.460] To explain clearly what would be the consequences
+- [05:34.260] for the Hungarian people and for the Hungarian economy
+- [05:37.420] not to get oil and gas from Russia
+- [05:39.160] because we are supplied by pipelines.
+- [05:41.650] Pipeline is not an ideological or political issue.
+- [05:44.140] It's a physical reality because we don't have a port,
+- [05:47.260] exactly as the President explained to you.
+- [05:49.000] So we will negotiate on that point.
+- [05:50.920] It's vital for us, anyway.
+- [05:52.280] The Press: Mr. Orban, there are two pipelines,
+- [05:53.760] as I understand it. There's a pipeline from Ukraine
+- [05:56.700] and there's a pipeline from Croatia.
+- [05:59.000] And my understanding is that the pipeline from Croatia
+- [06:02.240] can provide all of Hungary's energy needs.
+- [06:05.850] As a result, why would you need an exemption if that's the case?
+- [06:09.610] Prime Minister Orban: So when we discuss that issue,
+- [06:11.000] you should separate the gas and the oil.
+- [06:13.810] On the gas issue, which is very important for us,
+- [06:16.060] 90% of the Hungarian households
+- [06:17.960] are based on a heating system, based on gas.
+- [06:21.700] So we have only one pipeline delivering gas to Hungary,
+- [06:27.280] which is the main pipeline, the Turkish one.
+- [06:31.330] What we got from Croatia
+- [06:33.180] is a very small-volume supplementary gas pipeline.
+- [06:36.920] Okay, that's gas. Oil is another issue.
+- [06:39.390] So oil is coming from the Družba pipeline,
+- [06:41.560] which is the main supply, and that is a Croatian one,
+- [06:44.710] which is the secondary and supplementary pipeline.
+- [06:49.610] We would like to convince the Croatian government
+- [06:52.200] to enlarge it and make it possible to deliver more.
+- [06:55.430] Under the circumstances, it cannot be the main pipeline.
+- [06:58.780] It's just supplementary.
+- [07:00.150] But later on, with some big investments,
+- [07:02.380] it could serve better the interest of Hungary.
+- [07:04.600] Thank you.
+- [07:05.910] The President: Yes, please, go ahead.
+- [07:07.570] The Press: Thank you. Many people view this meeting,
+- [07:14.600] not just as an encounter with a country,
+- [07:18.200] but as the rebirth of the country,
+- [07:20.860] of the new conservative world alliance.
+- [07:24.000] Would you have any interpretation
+- [07:26.290] on how you see the future of Europe
+- [07:29.100] in the life of leaders like Viktor Orban,
+- [07:32.670] stand up to Brussels, bureaucracy,
+- [07:34.750] and the globalist agenda?
+- [07:36.460] The President: Are you from Hungary?
+- [07:37.730] The Press: Yes.
+- [07:38.970] The President: I figured.
+- [07:40.730] The fact is that he's a great leader,
+- [07:43.200] and he's respected all over.
+- [07:44.690] Not necessarily liked by some of the leaders,
+- [07:46.820] but, you know, those leaders have proven to be wrong.
+- [07:50.000] If you look at his stance on immigration
+- [07:51.910] and other things, you know, if you look at Europe,
+- [07:54.800] they've made tremendous mistakes on immigration.
+- [07:57.230] It's really hurting them very badly.
+- [07:59.290] He has not made a mistake on immigration.
+- [08:01.360] So, he's respected by everybody. He's liked by some.
+- [08:06.230] And I can tell you, I like and respect.
+- [08:08.200] I'm a double. I like and respect him.
+- [08:10.580] And that's the way Hungary is being led.
+- [08:13.470] They're being led properly.
+- [08:15.190] And that's why he's going to be very successful
+- [08:17.190] in his upcoming election.
+- [08:18.910] The Press: Mr. President,
+- [08:20.160] do you have any further comments on Viktor Orban?
+- [08:23.650] Prime Minister Orban: Yeah, I have a comment on that.
+- [08:25.200] Your language is important, because the Anglo-Saxon
+- [08:29.040] terminology is different from the European one.
+- [08:30.970] So, to use categories can create some misunderstanding.
+- [08:34.250] So, I would like to be clear as much as we can.
+- [08:37.640] We are the only government in Europe
+- [08:42.300] which considers itself as a modern Christian government.
+- [08:45.370] All the other governments in Europe
+- [08:46.710] are basically liberal leftist governments.
+- [08:49.200] So, we try to do something from 2010 which is different
+- [08:52.790] from what the others are doing, even at the philosophical level
+- [08:56.050] and at the level of practice as well,
+- [08:57.820] as the President described it, like migration.
+- [09:00.330] So, we are kind of a special island of difference
+- [09:05.630] in a liberal ocean in Europe.
+- [09:07.680] And we consider ourselves as a modern Christian government.
+- [09:10.540] That's the proper category to describe what we are doing.
+- [09:25.860] The President: We were talking about that with Victor.
+- [09:27.890] He understands Putin and knows him very well.
+- [09:30.920] And I feel that, I mean,
+- [09:33.800] I'm going to let you say what you think,
+- [09:35.620] but I think that Victor feels we're going to get that war
+- [09:39.350] ended in the not-too-distant future.
+- [09:41.740] Victor, do you want to talk about that?
+- [09:44.180] Prime Minister Orban: I'm strongly convinced.
+- [09:45.480] So, the question is whether we Westerners are unified or not.
+- [09:49.170] The problem is that the President
+- [09:50.530] has huge peace efforts,
+- [09:52.540] which are just splendid and very positive
+- [09:56.080] for the European continent and all the peoples of Europe.
+- [10:00.420] But at the same time, we are not unified
+- [10:02.160] because Brussels and the Europeans
+- [10:04.000] have a different approach to the war.
+- [10:05.990] So, the only pro-peace government
+- [10:08.090] is the United States government
+- [10:09.510] and the small Hungary in Europe, anyway.
+- [10:11.570] All the other governments prefer to continue the war
+- [10:14.360] because many of them think that Ukraine
+- [10:16.360] can win on the front line,
+- [10:19.510] which is a misunderstanding of the situation.
+- [10:22.140] So, it's a complicated issue. We will discuss it.
+- [10:24.770] It requests not just two minutes to respond to your question,
+- [10:27.300] but rather than our lecture. Sorry, not to continue more.
+- [10:32.610] The Press: So, you would say that Ukraine
+- [10:35.190] cannot win that war?
+- [10:37.720] Prime Minister Orban: You know, a miracle can happen.
+- [10:40.060] The President: Yeah, that's right.
+- [10:41.900] Go ahead. Yeah, go ahead.
+- [10:45.190] The Press: Thank you, Mr. President.
+- [10:46.510] What is your message to the EU about Hungary?
+- [10:50.330] And the EU wants to impose their war policies on Hungary.
+- [10:54.810] What is your message?
+- [10:56.490] The President: Well, I think they should respect Hungary
+- [11:00.100] and respect this leader very, very strongly
+- [11:02.410] because he's been right on immigration.
+- [11:04.260] Look what's happened to Europe with the immigration.
+- [11:07.080] They have people flooding Europe all over the place,
+- [11:09.510] and it's hurting it. The crime rates are way up.
+- [11:12.740] A lot of bad things are happening.
+- [11:14.680] His crime rates are very low.
+- [11:17.820] They're the same as they always were,
+- [11:19.300] which is very little crime
+- [11:21.890] because he's kept it the way it should be.
+- [11:26.160] Europe, I mean, I don't want to go into individual countries.
+- [11:28.390] They're all friends of mine, everyone.
+- [11:29.690] As you know, in NATO, they voted
+- [11:32.410] to go from 2 percent to 5 percent.
+- [11:34.510] And, you know, nobody thought that was possible.
+- [11:36.760] And we had just about almost, other than Spain,
+- [11:39.670] a unanimous vote.
+- [11:42.210] No, I think that they respect him a lot.
+- [11:47.750] They don't agree with him, but actually, inwardly,
+- [11:50.240] I think they probably do agree.
+- [11:51.980] He was right on immigration. They were wrong.
+- [11:55.770] They are flooding Europe with people from all over the world,
+- [11:58.980] and Europe is becoming a different place.
+- [12:01.390] And I tell the leaders all the time,
+- [12:02.960] you better stop or you're not going to have Europe anymore.
+- [12:05.300] It's a very dangerous thing they're doing.
+- [12:09.830] Prime Minister Orban: Wait, may I have a reflection on that?
+- [12:11.810] So, on migration issue,
+- [12:13.220] just for clarification, in Hungary,
+- [12:15.910] the number of illegal migration is like that, zero, zero,
+- [12:21.020] because we have a crystal clear system.
+- [12:23.370] If somebody would like to come to Hungary,
+- [12:25.500] first, he should ask for that.
+- [12:27.810] If he gives the permission, they can step in.
+- [12:29.940] Nobody can step on the territory of Hungary
+- [12:32.580] without having a permission from the Hungarian authorities.
+- [12:36.240] This is the regulation, simple, well working.
+- [12:39.260] What is the consequence of that? We are under sanctions,
+- [12:42.240] financial sanctions of European Union,
+- [12:44.390] because we don't let the illegal migrations to come to Hungary
+- [12:48.230] and to the European Union as well.
+- [12:50.320] So, we have to pay, just to inform you,
+- [12:52.250] we have to pay, every day, one million euro
+- [12:56.150] as a punishment to the Brussels budget,
+- [12:59.410] because they stop the migrants.
+- [13:01.140] This is the absurd world we are living now in Europe.
+- [13:03.720] The President: Go ahead, please. Yes, go ahead.
+- [13:07.610] The Press: Thank you so much, thank you.
+- [13:10.640] I'd like to ask whether, what do you think, what do you believe?
+- [13:13.980] After this meeting, can you have, maybe,
+- [13:16.570] or the European Union will have another opinion about,
+- [13:21.550] you know, just because of this penalty,
+- [13:23.270] another opinion about Hungary, because of the immigration
+- [13:26.410] and because of this kind of politics,
+- [13:28.200] which is not that strictly of the European Union direct.
+- [13:32.120] What do you believe? And where are you from?
+- [13:33.590] The Press: I'm from Hungary.
+- [13:34.800] The President: Okay.
+- [13:37.050] I do have that conversation with them,
+- [13:38.930] and I respect and like them.
+- [13:40.340] You know, they're all friends of mine.
+- [13:41.830] I think pretty much every single leader in Europe
+- [13:44.020] is a friend of mine. We get along really well.
+- [13:47.040] They've done everything I've asked them
+- [13:48.420] to do with NATO, et cetera.
+- [13:50.190] The only thing they continue to do is buy oil from Russia.
+- [13:53.360] That's not too good.
+- [13:55.320] But I told them they should respect this man.
+- [13:57.460] They can also learn from Viktor.
+- [14:00.330] Viktor has had a very hard stance on,
+- [14:03.610] more than anything else,
+- [14:05.660] immigration or even illegal immigration.
+- [14:08.960] He literally has accepted no one over the years.
+- [14:12.420] Think of how much greater these countries would be
+- [14:15.650] if they didn't have the tremendous crime
+- [14:17.380] that has come in with the immigration.
+- [14:20.600] People just flowing into Europe. They've got to stop it.
+- [14:23.660] And not only stop it, they have to reverse it.
+- [14:25.980] They have to get them out.
+- [14:27.190] We've done that here.
+- [14:28.410] We have zero people coming in now.
+- [14:29.920] The borders are closed.
+- [14:31.520] We take people, but we take them legally.
+- [14:33.580] But we've done it very strongly,
+- [14:35.050] and we're moving hundreds of thousands,
+- [14:37.930] millions of people out.
+- [14:39.360] We had, of the 20 million people, 25 million,
+- [14:43.780] nobody knows even what the number is.
+- [14:45.250] They never knew. Biden had no idea.
+- [14:47.110] He wasn't, he had no idea.
+- [14:48.680] I don't believe he had any idea what was happening
+- [14:50.870] because he wasn't about open borders.
+- [14:53.200] But we had open borders, and we had millions of people come in,
+- [14:56.460] and they were coming in from jails.
+- [14:58.650] They were coming in from mental institutions.
+- [15:01.130] They were coming in as drug dealers.
+- [15:03.330] We had 11,888 murderers.
+- [15:07.340] Half of them committed more than one murder.
+- [15:10.580] We're getting them all out. We're getting them out.
+- [15:13.300] He doesn't have that problem.
+- [15:14.890] But Europe does have that problem.
+- [15:16.600] Other parts of Europe have that problem.
+- [15:19.020] So I tell them all the time. I stick up for Viktor Orban.
+- [15:25.300] A lot of people do because in many cases, they're jealous.
+- [15:29.410] They wish they did what he did.
+- [15:31.420] They would have no problems if they did what he did.
+- [15:34.860] And I have a bigger heart than anybody.
+- [15:36.660] But they've destroyed some of those countries.
+- [15:40.160] Some of those countries had no crime 10 years ago,
+- [15:43.520] and now they have quite a bit of crime.
+- [15:46.320] And I would say that I don't know anything
+- [15:49.040] about your crime levels,
+- [15:50.350] but I would imagine they're very low.
+- [15:52.360] Huh? Not too high, right?
+- [15:53.890] Prime Minister Orban: No, no, it's very low.
+- [16:05.950] I'm not here to ask President Trump
+- [16:09.790] to manage my conflict
+- [16:11.070] or our conflict with the European Union.
+- [16:13.290] This is our matter. So we will do it.
+- [16:15.430] What we need is a golden age to open a golden age
+- [16:19.390] of the United States-Hungary relationship.
+- [16:21.550] That's the biggest help we can get from the United States.
+- [16:23.850] And maybe Europe too. So inside the European Union,
+- [16:30.140] we will manage all of our affairs.
+- [16:33.410] To be the most possible humble guy, yeah?
+- [16:36.120] But I am the longest serving Prime Minister of Europe.
+- [16:38.780] I survived all the Prime Ministers who attacked us.
+- [16:41.900] And I'm sure we will survive the next years as well.
+- [16:44.580] So we will manage our conflicts successfully.
+- [16:46.970] The Press: One question for you, Mr. President.
+- [16:49.230] One question for the Prime Minister.
+- [16:53.260] Speaking of Europe, last month, you said that you would not
+- [16:56.820] withdraw U.S. troops from Europe.
+- [16:59.620] Yet, two weeks later, the Pentagon announced,
+- [17:03.630] decided to withdraw significant number of troops from Romania.
+- [17:08.430] So have you changed your mind,
+- [17:10.040] or the Pentagon ignored your assurance?
+- [17:13.970] The President: No, they don't ignore anything that I say.
+- [17:16.410] What they do do is that we make changes.
+- [17:18.890] We move. It's the same number, total number,
+- [17:21.310] but we move people around.
+- [17:22.600] I happen to like the Romanian people.
+- [17:25.160] I think they're great people. And, Pete,
+- [17:27.620] you may want to suggest something right there, please?
+- [17:29.730] Secretary Hegseth: Absolutely.
+- [17:30.960] No, nothing was uncoordinated with the White House.
+- [17:33.480] It's all part of the view that we have of Europe.
+- [17:35.950] And there will remain troops in Romania,
+- [17:38.260] but there's some change in how we rotate
+- [17:39.740] and how many we rotate.
+- [17:41.080] But the relationship with Romania is very good, right?
+- [17:42.920] The President: Very good.
+- [17:44.120] And we've coordinated all this with Secretary-General Rutte,
+- [17:47.010] with, throughout Yukon, throughout our allies.
+- [17:49.580] Everyone was notified in advance.
+- [17:51.840] The relationship with Romania is very good.
+- [17:54.520] The relationship with Europe is very good.
+- [17:56.950] I disagree with what Europe is doing,
+- [17:58.910] having to do with immigration,
+- [18:00.310] but I agree with them on many other subjects.
+- [18:02.200] We just signed the biggest trade deal ever made with Europe,
+- [18:06.150] $950 billion.
+- [18:08.340] We were able to do it because of tariffs.
+- [18:10.170] It was a deal that was good, very good,
+- [18:13.610] but we had a very unfair deal.
+- [18:15.370] We were treated very badly before I came into office.
+- [18:18.500] But we just signed it.
+- [18:21.050] It's the single biggest trade deal ever signed.
+- [18:23.770] So we have a very good relationship with Europe.
+- [18:25.820] Yeah.
+- [18:29.720] The Press: What is the main dispute with the Russians
+- [18:32.250] which prevent the Budapest summit with Putin
+- [18:37.030] from taking place?
+- [18:38.520] The President: The basic dispute is they just
+- [18:40.110] don't want to stop yet. And I think they will.
+- [18:44.920] I think that's, it's taken a big toll on Russia.
+- [18:48.090] Big toll on both countries, obviously,
+- [18:49.810] but it's taken a big toll.
+- [18:51.420] They're losing 7,000 soldiers a week.
+- [18:53.690] That's a big toll. And up between the two of them.
+- [18:57.240] Divided, you know, with Russia losing more soldiers, actually,
+- [19:00.940] but they're both losing a lot of people.
+- [19:04.270] And that's the primary thing that with me, it's not economic.
+- [19:06.980] It's not money. In fact, we don't spend any money.
+- [19:09.580] We send it to NATO. They pay us for our missiles
+- [19:12.390] and for our military and everything else.
+- [19:13.830] We don't. It's not a question of money.
+- [19:15.950] It was with Biden. He spent $350 billion.
+- [19:18.780] He got nothing for it.
+- [19:21.400] The war would have never happened if I were president.
+- [19:23.400] The war would have never happened.
+- [19:24.730] I think you would agree with that.
+- [19:26.340] This war would never have happened if I were president.
+- [19:28.600] It's stupid that it happened.
+- [19:30.400] But it did happen. I inherited the war,
+- [19:33.120] and I think we're going to get it ended.
+- [19:35.520] Not too distant future.
+- [19:56.080] Prime Minister Orban: I'm speaking 2022.
+- [19:58.190] The Europeans would not take that hard line,
+- [20:00.980] what they have today on the war.
+- [20:02.740] Remember that big countries of Europe rejected to be involved
+- [20:05.940] more than just sending some humanitarian issues.
+- [20:09.370] So the pressure coming from the United States
+- [20:11.890] to be more pro-war in Europe.
+- [20:13.880] So that's the fact of the history, anyway.
+- [20:17.690] So we have to restore something
+- [20:18.980] which was ruined and created from here.
+- [20:22.880] And that's the reason why I understand
+- [20:25.020] absolutely the devotion of the president
+- [20:27.400] now to do everything to stop the war.
+- [20:30.110] Because that would be not that deep
+- [20:32.370] without the previous pressure,
+- [20:34.130] previous government pressure from here.
+- [20:35.850] So the reason why I'm here to be as much as helpful
+- [20:40.080] I can to contribute to the peace efforts of the president.
+- [20:44.120] Because that was an enormous mistake, what we have done.
+- [20:46.870] I mean, the Western world several years ago,
+- [20:48.760] and we have to stop it.
+- [20:49.960] The President: And this time I responded.
+- [21:15.410] And, you know, look, that war should have been a one-week war.
+- [21:18.800] I don't know why it's taken. This is four years.
+- [21:21.410] Should have been one week. Should have been over with.
+- [21:23.580] But it would have never started. Should have never started.
+- [21:26.310] And I would have solved the problem
+- [21:27.830] without giving up anything.
+- [21:29.470] Ukraine would have remained as is.
+- [21:32.040] So there were tremendous mistakes
+- [21:33.430] long before I got there.
+- [21:34.900] I inherited that mess, and we're getting it solved,
+- [21:37.220] along with the eight wars that we've already ended.
+- [21:40.400] The Press: Mr. Orbán, what is your reason
+- [21:47.180] for cultivating better relations with the EU leader or not?
+- [22:13.880] The President: I agree with him on immigration much more
+- [22:16.480] than I agree with them. But I agree with, you know,
+- [22:19.600] a lot of the things in Europe he also agrees with.
+- [22:22.580] But he had a difference, I would say,
+- [22:25.630] primarily on immigration more than anything else.
+- [22:28.010] And I happen to think he was right,
+- [22:30.610] because their whole fabric has changed.
+- [22:32.530] I mean, you go to some of the countries,
+- [22:34.800] they're unrecognizable now because of what they've done.
+- [22:37.780] And Hungary is very recognizable.
+- [22:39.860] Yes, ma'am.
+- [22:41.260] The Press: Mr. President, will there be a peaceful meeting
+- [22:44.160] in Budapest this year? What do you think?
+- [22:47.360] The President: You mean a meeting with President Putin?
+- [22:49.820] The Press: Yes.
+- [22:51.080] The President: You mean in Hungary?
+- [22:52.470] The Press: Well, I'd like to keep it in Hungary, in Budapest.
+- [22:56.250] The President: That meeting, it turned out
+- [22:58.200] I didn't want to do that meeting because I didn't think anything
+- [23:00.470] was going to be happening of significance.
+- [23:02.590] But if we have it, I'd like to do it in Budapest.
+- [23:05.550] Yeah, it'd be good.
+- [23:06.820] The Press: Mr. President,
+- [23:08.040] you said many times to support Viktor Orban.
+- [23:11.320] Why is it important to win the next election, for example,
+- [23:14.610] for the United States, Hungary, and also Europe?
+- [23:17.380] Why is it important?
+- [23:19.210] The President: Well, I don't know his opponent.
+- [23:20.600] I don't know if he has an opponent yet.
+- [23:22.850] At some point, he will, I guess.
+- [23:24.300] You know, we always have opponents, right?
+- [23:26.490] Not much of an opponent. But I'll be supportive of him.
+- [23:30.360] He's done a fantastic job. We've had a great relationship.
+- [23:34.140] The United States, look, we had a country that had no leader.
+- [23:39.160] It had an auto pen, illegal auto pen, totally illegal.
+- [23:43.470] And that's coming out stronger and stronger.
+- [23:45.470] But we had no leader in the United States.
+- [23:49.610] I mean, Hungary, as an example,
+- [23:51.710] had no relationship with the United States,
+- [23:53.670] even though we do, you know,
+- [23:55.810] billions of dollars in trade with Hungary.
+- [23:57.980] Hungary is a big country. Economically, we do, you know,
+- [24:01.580] billions of dollars in trade with Hungary.
+- [24:04.550] Why would they give that up?
+- [24:07.680] And they gave up so much. They gave up everything.
+- [24:10.290] This country was poorly run.
+- [24:12.470] I think if I didn't win the election,
+- [24:14.520] we might not have a country, if you want to know the truth,
+- [24:17.070] not a recognizable country.
+- [24:19.530] But our relationship was immediately good
+- [24:22.760] as soon as I won the election,
+- [24:24.080] because Victor is one of the people that's highly respected.
+- [24:27.880] And we had a great relationship with Hungary.
+- [24:29.580] We do again. That was an easy one.
+- [24:32.900] The Press: Do you and Prime Minister Orbán agree
+- [24:35.510] on ways to put pressure on President Putin
+- [24:39.060] to come to the negotiating table to end the war?
+- [24:42.210] The President: I think we agree that the war is going to end.
+- [24:45.930] Sometimes people have to fight it out a little bit longer.
+- [24:48.540] But I think we agree that the war is going to end
+- [24:50.680] in the not too distant future.
+- [24:52.440] You want to talk about that later?
+- [24:55.470] Prime Minister Orbán: I have some ideas
+- [24:56.690] and I will present it to the president.
+- [25:11.080] The President: Well, I haven't heard that.
+- [25:12.340] You're telling me. Who are you with?
+- [25:13.930] Who are you with? Fake news. NBC. You're fake news.
+- [25:20.150] NBC has gone down the tubes along
+- [25:22.080] with most of the rest of us.
+- [25:32.100] They feel better about our country right now,
+- [25:33.920] other than the shutdown, obviously,
+- [25:35.350] which is caused by the Democrats,
+- [25:36.790] could be ended by the Democrats in two minutes.
+- [25:39.450] They feel much better. We have more jobs.
+- [25:41.690] We just set a record on jobs.
+- [25:43.130] You do know that we have more investment in our country
+- [25:46.110] than any country in history.
+- [25:48.080] We're over 18 trillion dollars as of this moment.
+- [25:51.190] And we're going to be maybe a 20 or 21 trillion
+- [25:53.860] by the time I finish up my first year.
+- [25:56.590] And there's been no country, China,
+- [25:59.200] no country in the world that's done anywhere
+- [26:01.020] even close to that number.
+- [26:03.580] Your friend Biden, as an example,
+- [26:05.560] in four years was less than a trillion
+- [26:08.810] will be a 21 trillion in one year.
+- [26:11.680] So there's no country that was even close to that.
+- [26:14.100] And our country was a laughingstock
+- [26:16.070] all over the world. We have more jobs.
+- [26:18.680] We have more potential than any other country.
+- [26:21.060] And frankly, with the hottest country right now,
+- [26:23.880] Victor said to me before, with the hottest country
+- [26:26.820] anywhere in the world, think of it.
+- [26:28.460] We'll have 20, 21 trillion dollars invested.
+- [26:31.590] We have auto plants pouring back in.
+- [26:33.510] We have a pouring back in.
+- [26:35.730] We're leading China in a by a lot.
+- [26:38.490] We're leading everybody in every category.
+- [26:41.090] There's no category that we're in second place.
+- [26:44.410] The President: So I just heard this yesterday that Walmart said
+- [26:48.300] that the Thanksgiving was 25 more expensive,
+- [26:52.040] 25 percent more expensive under Biden.
+- [26:55.400] That's a big to me.
+- [26:56.600] That's a big number because Walmart's respected.
+- [27:00.640] I mean, Walmart is Walmart.
+- [27:02.110] And, you know, they're giving you prices.
+- [27:04.540] So that would mean that the whole series
+- [27:08.120] of pricing and cost,
+- [27:09.940] you know, the groceries and everything else.
+- [27:11.880] It was a con job. It was a con job.
+- [27:14.110] Affordability, they call it, was a con job by the Democrats.
+- [27:18.320] The Democrats are good at a few things,
+- [27:20.390] cheating on elections and conning people
+- [27:22.610] with facts that are true. It was 25 percent.
+- [27:26.730] Walmart just announced it two days ago.
+- [27:29.850] 25 percent cheaper this year
+- [27:32.110] will be cheaper to have Thanksgiving
+- [27:34.950] than it was a year ago under sleepy Joe Biden.
+- [27:41.470] The Press: He is a con job, as you put it.
+- [27:44.080] You said affordability is a con job.
+- [27:46.030] And you didn't want it. You said last night
+- [27:47.700] you didn't want to talk about affordability.
+- [27:49.710] The President: I talk about it.
+- [27:51.410] When did I not want to talk about
+- [27:52.740] I talk about it all the time.
+- [27:54.280] We are much better than Biden and all of them.
+- [27:58.330] Now, just so you understand.
+- [28:00.050] The President: Do you remember that the Biden administration
+- [28:02.810] had the highest inflation in 48 years?
+- [28:06.090] But most people say ever recorded.
+- [28:07.830] Do you remember that? Right. Do you remember it?
+- [28:12.000] Did they have the highest inflation in 48 years?
+- [28:15.310] Did they just answer me the question?
+- [28:17.420] You know, the answer. The answer is yes.
+- [28:19.740] They had the worst inflation in 48 years.
+- [28:22.600] We have almost no inflation.
+- [28:24.050] We're down now to 2 percent and we'll be at maybe 1 percent.
+- [28:28.240] You want to always stay above 1 percent.
+- [28:30.100] Actually, you want a little tiny bit of inflation.
+- [28:32.480] We're the perfect number.
+- [28:34.360] They were at the highest level in recorded history.
+- [28:37.690] Okay. And when you talk about affordability, that one fact.
+- [28:42.300] Now, let's talk about the second biggest subject after inflation.
+- [28:45.660] Energy. We're going to be a two dollar gasoline.
+- [28:48.490] We're going to be approximately two dollars versus
+- [28:50.440] we're a little bit above two dollars right now for gasoline.
+- [28:54.210] Now, under Biden, it was four and a half.
+- [28:58.020] It even hit five.
+- [28:59.290] But it was four dollars, three and a half dollars.
+- [29:01.740] We're going to be a two dollars a gallon.
+- [29:04.220] So gasoline is much less. Energy costs are less.
+- [29:07.570] When you have energy and when you have gasoline less,
+- [29:10.030] everything else follows. It's such a big category.
+- [29:12.720] So when you have lower energy prices,
+- [29:15.670] which I think you admit we do substantially,
+- [29:18.300] that means everything else.
+- [29:19.720] So we are the victors on affordability.
+- [29:22.560] But if I watch that election,
+- [29:24.110] which I was not much involved in,
+- [29:25.690] I didn't support Virginia.
+- [29:27.470] The candidate didn't do a lot of support
+- [29:30.790] for the other candidates.
+- [29:33.530] They asked me about Cuomo and I said,
+- [29:35.110] well, it's a question.
+- [29:36.380] Do you want a thug or do you want a communist?
+- [29:38.180] I mean, that was my response.
+- [29:40.110] So I wasn't involved in that stuff too much.
+- [29:43.070] But I will say this.
+- [29:45.220] If you look at affordability, which they campaigned on,
+- [29:48.190] they lied because they talked about all prices are up.
+- [29:50.870] No, no. Prices are down under the Trump administration
+- [29:55.170] and they're down substantially.
+- [29:56.910] Energy prices are down by 30, 35, 40 percent.
+- [30:00.930] Gasoline is way down.
+- [30:03.090] And the other big thing is we started.
+- [30:05.190] Inflation is way down.
+- [30:06.790] The big the biggest thing is inflation.
+- [30:08.830] The second biggest thing is energy.
+- [30:10.700] Energy is way down.
+- [30:12.290] And what's also down? Gasoline.
+- [30:14.820] Also, the biggest thing is inflation and it's way down.
+- [30:19.690] We took over a mess.
+- [30:22.000] The highest inflation in recorded history.
+- [30:25.490] Some people would say 48 years. I'll take either one of them.
+- [30:29.040] But I believe it's the highest inflation in recorded history.
+- [30:32.160] That alone makes it impossible for them
+- [30:34.840] to have done a good job.
+- [30:36.530] Affordability was one other thing.
+- [30:38.510] When I came into office, Victor, two days into office,
+- [30:42.740] they were screaming at me about the cost of eggs.
+- [30:44.830] I was there for two days. Eggs had quadrupled.
+- [30:48.610] And I said, Listen, I just got here.
+- [30:51.460] Let me check it out. And they were right.
+- [30:53.530] Eggs had gone up by 34 times within a period of a few months.
+- [30:58.470] We had eggs down to a normal cost.
+- [31:00.750] We did a great job on groceries and affordability.
+- [31:04.200] The only problem is the fake news.
+- [31:05.950] You people don't want to report it.
+- [31:07.790] And in fact, I'd like to ask Karoline was Karoline.
+- [31:12.070] I'd like to ask Karoline a question.
+- [31:14.810] Where is she? Did she?
+- [31:17.470] Oh, she deserted us. She deserted me.
+- [31:23.410] A great Karoline superstar deserted me.
+- [31:25.590] Anyway, she's right outside. She was going to talk about
+- [31:30.890] because the fake news yesterday they talked about that.
+- [31:34.690] They said, “Oh, I don't want to talk about affordability.”
+- [31:36.880] The reason I don't want to talk about affordability
+- [31:38.760] is because everybody knows
+- [31:40.480] that it's far less expensive under Trump
+- [31:42.960] than it was under sleepy Joe Biden.
+- [31:44.770] And the price is a way down.
+- [31:46.090] Karoline, could you discuss that?
+- [31:49.840] That question that was asked
+- [31:51.640] and how it was asked in such a fake,
+- [31:55.400] disgusting manner by the fake news?
+- [31:56.880] Karoline Leavitt: Yeah.
+- [31:58.100] And I just thought I was very unfortunate.
+- [32:01.260] I refuse to address what you just said,
+- [32:04.760] which is that you inherited the worst inflation crisis
+- [32:07.950] in modern American history.
+- [32:09.260] You are fixing it in 10 short months.
+- [32:11.410] Your entire administration has been tasked
+- [32:13.960] with this effort from Treasury Department,
+- [32:16.170] Agriculture Department to the National Economic Council
+- [32:19.160] right here in the White House. They are slashing regulations.
+- [32:22.040] He signed the largest no tax tax
+- [32:23.800] cut in six months in six months in record time.
+- [32:28.760] So affordability is what the American people
+- [32:31.890] elected this president to do. And he is doing it.
+- [32:34.510] And you guys refused to cover it.
+- [32:36.240] And you refused to cover that the previous administration
+- [32:38.840] created the worst affordability crisis in American history.
+- [32:42.850] And I've been watching the TV all day
+- [32:45.030] saying that he doesn't want to talk about affordability.
+- [32:46.990] That's what he's working on every day.
+- [32:48.650] The President: That's what I'm talking about right now.
+- [32:50.060] But you know why they refuse to cover it?
+- [32:52.580] Because they're fake news. That's what I got.
+- [32:55.470] Sure. Karoline, the prime minister
+- [33:00.710] would like you to work for him in Hungary.
+- [33:03.100] Prime Minister Orban: Please.
+- [33:04.360] You know what? It's a very good decision.
+- [33:06.020] You just please.
+- [33:08.510] The President: Please don't leave us, Karoline.
+- [33:10.890] Prime Minister Orban: Yeah, please.
+- [33:15.230] The President: That's too bad. They're making a big mistake.
+- [33:16.900] Prime Minister Orban: That's right.
+- [33:18.100] The President: No, but they're coming my way.
+- [33:19.750] You're right. Wait, wait a minute.
+- [33:21.120] Wait a minute.
+- [33:23.820] The way to do it for the Republicans
+- [33:25.850] is to terminate the filibuster. They call it the nuclear option.
+- [33:30.750] This is the second form of nuclear.
+- [33:32.600] Very good. Very good. This is a good form.
+- [33:34.500] This is not a bad form.
+- [33:36.120] I would have been in favor of that a long time ago.
+- [33:38.500] But you know, the Democrats are going to do that.
+- [33:40.610] And most of you will admit the Democrats are going to do that.
+- [33:43.100] So why aren't we doing it?
+- [33:45.200] And I think only a foolish person would be against that,
+- [33:48.240] especially when you realize that these are crazed people.
+- [33:51.080] These people are absolutely crazed.
+- [33:53.270] Trump derangement syndrome, whatever it may be.
+- [33:56.550] And I am totally in favor of terminating the filibuster.
+- [34:02.120] And we would be back to work within 10 minutes
+- [34:04.630] after that vote took place.
+- [34:06.420] And lots of other good things would happen.
+- [34:08.910] And it doesn't make any sense
+- [34:11.280] that a Republican would not want to do that.
+- [34:13.160] The Press: They're not going to do that.
+- [34:14.560] It seems like you'd have to make a deal with Democrats
+- [34:16.360] to end the shutdown.
+- [34:17.640] The President: Here's some of the things that we'd pass
+- [34:19.360] if we terminated the filibuster.
+- [34:22.300] Voter ID. No mail in voting.
+- [34:25.160] No cash bail. No men in women's sports.
+- [34:28.600] No welfare for illegals. You could go on and on.
+- [34:31.920] This is two pages of things would do
+- [34:34.050] if you did that without it.
+- [34:35.700] I don't know that you pass anything
+- [34:37.110] because you can't deal with them.
+- [34:38.800] They're really irrational. They really are.
+- [34:40.360] But I was happy, happy to see
+- [34:42.720] that a tremendous liability to this country,
+- [34:46.230] a woman that made herself rich in this country,
+- [34:49.020] Nancy Pelosi, has quit
+- [34:50.990] and she'll be out of here pretty soon.
+- [34:52.450] And I consider that to be a great asset for America.
+- [34:55.250] Getting her out. Yeah. I don't know.
+- [35:00.030] We'll see what they have. I mean, you will see.
+- [35:01.950] But they're very destructive for the country.
+- [35:03.940] NBC fake news. I'm not taking you.
+- [35:06.090] Good.
+- [35:12.990] Well, you know, normally I would say,
+- [35:14.790] well, a little bit. But the reason that I'm not
+- [35:17.710] is because if they ever took over power, they'll do it.
+- [35:21.460] Look, Joe Manchin and Sinema are two people
+- [35:25.450] that are no longer in politics because of this issue.
+- [35:28.260] They were opposed to what the Democrats wanted to do.
+- [35:31.580] They wanted to terminate the filibuster.
+- [35:33.640] They were opposed to it. They're no longer in politics.
+- [35:36.300] Again, the Democrats will do this.
+- [35:38.440] So if the Democrats are going to do it,
+- [35:40.130] I'm saying Republicans should do it before they get a chance.
+- [35:42.790] It's very simple.
+- [35:44.010] And if we do it, we will never lose the midterms
+- [35:47.490] and we will never lose the general election
+- [35:49.700] because we will have produced so many different things
+- [35:52.300] for our people, for the people, for the country,
+- [35:54.830] that it would be impossible to lose an election.
+- [36:01.730] No, I love AI. I think it's going to be very helpful.
+- [36:05.410] So many things are happening with it.
+- [36:06.970] And in addition to which we're leading China,
+- [36:09.500] we're leading the world in AI.
+- [36:11.690] We're building massive electric plants
+- [36:13.610] that the companies themselves are building for their plant.
+- [36:16.160] I've given them the right
+- [36:17.590] because we need so much electricity for that.
+- [36:19.880] Just the word is electricity, believe it or not,
+- [36:22.860] double the electricity that we currently have in the country
+- [36:25.470] for just the AI plants.
+- [36:27.360] And I've allowed those companies to rebuild
+- [36:30.560] and build electric plants along with their facility.
+- [36:34.600] We're getting approvals done in less than a month,
+- [36:36.780] sometimes in two weeks for massive,
+- [36:39.490] beautiful, massive buildings.
+- [36:40.930] And no, I'm totally in favor of it.
+- [36:43.670] I think it's really going to be the wave of the future.
+- [36:46.380] And we're leading the world.
+- [36:47.860] We're leading everybody by a lot.
+- [36:54.400] I don't know. It's up to the Democrats. We voted.
+- [36:57.140] The Republicans have voted 14 times to open up the country.
+- [37:00.680] And the Democrats have voted 14 times to hurt the country.
+- [37:05.110] Really, they should approve it.
+- [37:06.850] But they might not. That's why I like the,
+- [37:10.680] that's why I like the fact that we terminate the filibuster.
+- [37:12.900] If we terminate the filibuster,
+- [37:14.750] the country will be open within 10 minutes
+- [37:16.640] after that termination,
+- [37:17.890] because we'll take a second vote,
+- [37:19.570] which is the opening of the country.
+- [37:21.650] And the Republicans will vote to open the country.
+- [37:24.180] That's one of the reasons, not the major reason,
+- [37:26.180] by the way.
+- [37:27.400] I think it's less important than the other things that we get.
+- [37:30.780] But if we terminate the filibuster,
+- [37:32.920] the second vote that we will take
+- [37:34.970] will be to open up the country.
+- [37:36.720] It'll take 10 minutes and the country will be open.
+- [37:48.720] The Press: Well, it didn't work, obviously.
+- [37:51.460] You're right. That was the purpose
+- [37:53.230] of the filibuster bipartisanship.
+- [37:55.140] But that didn't work.
+- [37:59.270] The President: Well, no, if the filibuster is terminated,
+- [38:03.070] we will have the most productive three years
+- [38:05.820] in the history of our country.
+- [38:07.610] If the filibuster is not terminated,
+- [38:10.050] then we will be in a slog with the Democrats.
+- [38:12.950] And very little for either party will be done.
+- [38:15.990] So it's a good thing. Thank you very much, everybody.
+- [38:20.990] Thank you.

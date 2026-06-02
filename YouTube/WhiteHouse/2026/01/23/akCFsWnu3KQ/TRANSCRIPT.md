@@ -1,0 +1,398 @@
+<!-- source: https://www.youtube.com/watch?v=akCFsWnu3KQ -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: akCFsWnu3KQ -->
+<!-- date_published: 2026-01-23T17:47:25+00:00 -->
+<!-- date_accessed: 2026-06-02T02:38:44.323143+00:00 -->
+
+# Transcript: Vice President JD Vance Addresses the National March for Life Rally
+
+- [00:06.130] Female Speaker: -- pro-life victories he's delivered
+- [00:07.730] in his first five years in office so far.
+- [00:11.080] We are looking forward to many more in the next few years.
+- [00:15.790] We have some folks here with us today
+- [00:17.240] from the President's team in the White House
+- [00:18.880] and I'm asking them to make sure
+- [00:20.490] that the President hears of your excitement
+- [00:22.800] about and gratitude for his pro- life policies.
+- [00:25.320] Can we thank President Trump once more?
+- [00:34.290] All right. And now, he stood on this stage last year
+- [00:40.080] in his first public appearance
+- [00:41.950] after a pretty important day in his life,
+- [00:45.060] and he promised he'd return.
+- [00:48.370] Well, marchers, today he is keeping that promise.
+- [00:51.950] It is my great honor to welcome back to the March
+- [00:54.770] for Life stage your Vice President of the United States,
+- [00:58.590] JD Vance.
+- [01:00.290] (cheers and applause)
+- [01:09.335] ♪ (music playing) ♪
+- [01:29.335] (applause and cheers)
+- [01:40.020] The Vice President: Good morning, marchers.
+- [01:41.320] How we doing?
+- [01:42.660] (cheers)
+- [01:45.550] It's great to be with you again. It was my very first speech
+- [01:50.420] as Vice President of the United States
+- [01:52.480] was the March for Life last year,
+- [01:54.600] and I'm proud to be back with much better weather
+- [01:56.750] this time around.
+- [01:58.260] (cheers)
+- [02:01.240] Now, some of you may remember that in,
+- [02:02.970] in my remarks last year, I told you all one of the things
+- [02:06.810] I most wanted in the United States of America
+- [02:10.210] was more families and more babies.
+- [02:13.400] (cheers)
+- [02:16.680] So let the record show, you have a vice president
+- [02:19.790] who practices what he preaches.
+- [02:22.400] (cheers)
+- [02:27.180] Usha and I announced this week that we're expecting our fourth.
+- [02:31.360] (cheers)
+- [02:36.210] And it will be our third baby boy,
+- [02:38.750] so we'll take whatever prayers you can give.
+- [02:40.980] We certainly need them. And when I was here last year,
+- [02:49.950] I had one other piece of advice for this group,
+- [02:53.460] and that was very simple, to be joyful in your advocacy.
+- [02:57.910] And looking out at this crowd today,
+- [02:59.880] it seems like you took that suggestion very well to heart
+- [03:04.130] because I see joyful people, I see grandmas,
+- [03:07.760] I see parents, I see beautiful little kids
+- [03:10.340] with incredible green hats. I --
+- [03:17.490] now, did you all dress like that so that if you lost yourselves,
+- [03:20.110] you could find everybody?
+- [03:21.340] Okay, that's a good plan. I'm going to take that.
+- [03:24.840] I'm going to take that advice back home.
+- [03:27.350] The theme of this year's March for Life,
+- [03:29.640] as most of you all know, is that life is a gift.
+- [03:34.100] And I know for me personally, this year,
+- [03:36.610] there is so much to be thankful for.
+- [03:40.400] I'm grateful to my own family, for my beautiful wife,
+- [03:43.670] Usha, and that God has given us the miracle of new life again.
+- [03:56.060] I'm grateful for this movement,
+- [03:59.250] for the truth that is on our side,
+- [04:02.890] and frankly, I'm thankful for the technological breakthroughs
+- [04:06.880] that have allowed us to affirm and protect life.
+- [04:09.480] Things like 3D ultrasounds that didn't exist
+- [04:12.680] just a few short decades ago,
+- [04:14.830] things like the new medical technologies
+- [04:16.770] that have saved the lives of countless premature babies.
+- [04:21.000] But let me today say that I'm especially grateful
+- [04:24.550] for all of you,
+- [04:26.360] even the ones with Michigan hats,
+- [04:27.610] and there are a couple of you out there.
+- [04:34.380] For the thousands of men and women and children,
+- [04:37.860] for the church groups, the school groups,
+- [04:39.990] the grandparents, and the toddlers,
+- [04:42.140] and everyone in between who braved
+- [04:45.070] this chilly Washington afternoon.
+- [04:47.860] All of us, all of us in the Trump administration
+- [04:51.030] from the President on down, we thank you for your prayers,
+- [04:54.580] we thank you for your perseverance,
+- [04:56.220] and we thank you that for today, we are all marching for life.
+- [05:06.240] I know a lot of us heard from the President just before this,
+- [05:09.110] so you know that he loves
+- [05:10.540] and cares deeply about this movement,
+- [05:13.120] and it's why he has fought for the pro-life cause,
+- [05:15.680] and why we do it in this administration,
+- [05:18.360] and it's why three years ago, we cannot forget,
+- [05:21.340] he delivered and his Supreme Court justices delivered
+- [05:24.560] the most important Supreme Court decision of my lifetime.
+- [05:33.560] Because with the Dobbs decision, what we did,
+- [05:36.490] what the President did, what the Supreme Court did,
+- [05:39.350] was put a definitive end to the tyranny of judicial rule
+- [05:44.260] on the question of human life.
+- [05:49.770] He shattered a 50-year culture of disposability,
+- [05:53.870] one that treated human life as expendable the moment
+- [05:57.480] that it became inconvenient,
+- [05:59.690] and he empowered our nation and our movement
+- [06:02.460] to build a culture of life from the grassroots up.
+- [06:06.800] And over the last year, I got to brag a little bit,
+- [06:09.270] our administration has worked very hard to lead that effort
+- [06:13.250] and to pick up the pieces to clean up the wreckages
+- [06:16.390] of five decades of bad policy on the question of life.
+- [06:25.410] It's an amazing crowd.
+- [06:29.810] Now, our vision, our vision is simple.
+- [06:34.020] We want life to thrive in the United States of America.
+- [06:38.920] We want -- we want Americans,
+- [06:42.200] every American from all walk of life,
+- [06:44.700] to have happy, healthy children,
+- [06:47.070] and we want them to raise those kids with confidence
+- [06:49.750] that their kids are going to do well
+- [06:51.570] and grow up in safety and prosperity,
+- [06:54.360] that they'll have access to good jobs,
+- [06:56.610] great schools, safe streets,
+- [06:58.870] and warm houses in which to raise their kids.
+- [07:02.790] And we want all of our American families
+- [07:05.350] to be able to do it with the confidence
+- [07:07.770] that their nation will stand with them
+- [07:10.100] just as they have stood with the United States of America.
+- [07:18.450] Now, you all know this very well
+- [07:20.990] that building a culture of life requires persuasion,
+- [07:24.730] and that's what's so different about this moment
+- [07:26.950] compared to the moment that was dominated
+- [07:29.320] by the Supreme Court for 50 years.
+- [07:31.460] We're not trying to argue to the Supreme Court anymore.
+- [07:34.960] We are trying to argue to our fellow citizens
+- [07:37.730] that we must build up that culture of life.
+- [07:39.800] And as you know, that effort is going to take a lot of time,
+- [07:43.100] it's going to take a lot of energy,
+- [07:44.800] and it's going to take a little bit of money.
+- [07:46.820] And that's why we're here, because you know that.
+- [07:49.470] We're marching for life
+- [07:50.860] because we want our wonderful fellow Americans,
+- [07:53.840] even if they don't disagree with us,
+- [07:55.850] to know that life is worthy, it is worthy of protection,
+- [07:59.470] and that is why we march today.
+- [08:07.560] So let me tell you something very simple,
+- [08:11.210] that under this administration, again,
+- [08:13.670] from the President of the United States,
+- [08:15.320] the vice president, you have an ally in the White House.
+- [08:20.030] Now, some -- now, some of our work over the last year
+- [08:25.710] has been very straightforward and very easy.
+- [08:28.810] We started by undoing the evils we saw
+- [08:31.690] under the previous administration.
+- [08:34.060] Like, for example, throwing priests
+- [08:36.430] and grandmothers in prison for praying outside a clinic,
+- [08:39.630] that's over. We stopped it.
+- [08:46.670] Where the previous administration mandated taxpayer
+- [08:49.410] funding for abortions,
+- [08:50.660] including travel costs across the entire government,
+- [08:54.300] this administration ended it. And over the past year,
+- [09:01.800] we built steadily upon the victories
+- [09:03.860] of the President's first term.
+- [09:05.600] We have secured religious freedom
+- [09:08.030] in the United States of America once again.
+- [09:10.210] That was important.
+- [09:15.200] We have ended the censorship of Christians, Jews,
+- [09:18.320] and other Americans of faith who were punished
+- [09:21.010] simply for following their faith in public life.
+- [09:28.380] We have expanded conscience protections
+- [09:30.600] for healthcare workers
+- [09:32.090] and defended faith-based foster care and adoption.
+- [09:39.920] We gutted Biden era rules and ensured that no nun,
+- [09:44.540] no nurse, no pharmacist,
+- [09:46.490] and no physician has to check their faith
+- [09:49.800] and their values at the door of their workplace.
+- [09:56.890] And under the last administration,
+- [09:58.520] under President Biden and Congressional Democrats,
+- [10:01.050] the power of government we know was marshaled against us,
+- [10:05.090] against our faith, against our families,
+- [10:07.780] and most importantly, against the most vulnerable.
+- [10:10.870] That stopped with the Trump administration
+- [10:13.110] and it is not coming back.
+- [10:20.010] Just this week, just this week, we took action to force Illinois
+- [10:24.110] into compliance with the Weldon Amendment
+- [10:26.260] and stopped making healthcare providers
+- [10:28.230] refer for abortions. That was a big one.
+- [10:34.340] And as the President knows better than anybody,
+- [10:36.590] if we want to convince more Americans to choose life,
+- [10:39.440] we must also choose policies that make family life possible.
+- [10:43.900] So we've done that as well. With the Trump Accounts,
+- [10:50.620] we started at the very beginning of life
+- [10:52.770] investing in every new American child from day one onward.
+- [10:57.860] We've stood with parents by boosting the child tax credit
+- [11:01.100] as well because no family should be penalized
+- [11:03.740] for choosing to have kids.
+- [11:05.070] In fact, we ought to be rewarding for families
+- [11:07.770] for choosing to have kids.
+- [11:13.590] And when Usha and I were having the debate
+- [11:15.260] about whether we were going to have a fourth kid,
+- [11:16.980] I said, "Honey, we've got an expanded child tax credit
+- [11:20.280] and we've got the Trump Accounts.
+- [11:21.820] We got to take advantage of this stuff."
+- [11:26.220] We're restoring homeownership for real families,
+- [11:29.580] and you may not think this is connected to the pro-life cause,
+- [11:32.870] but when we ensure that real families, moms and dads,
+- [11:36.040] instead of Wall Street have access to American homes,
+- [11:39.490] we help create that important culture of life.
+- [11:46.780] And the thing that I'm perhaps the most proud of
+- [11:49.340] is that we have been responsible stewards of your tax dollars
+- [11:53.330] on this question of life. And so, just yesterday,
+- [11:57.280] this administration launched fraud
+- [11:59.080] investigations into Planned Parenthood
+- [12:01.610] affiliates for millions of dollars in PPP
+- [12:10.730] loans that were unlawfully received and unlawfully forgiven
+- [12:14.240] by the Biden administration.
+- [12:16.000] I -- you should not be able to commit fraud
+- [12:18.970] and use taxpayer money for abortion.
+- [12:21.240] It's that simple. At many of our departments,
+- [12:28.520] we've reinstated a ban on the use of fetal tissue
+- [12:31.740] in federal research. That's another big one.
+- [12:37.950] And this is something we're so proud of.
+- [12:40.310] We're returning accountability to our foreign policy as well.
+- [12:44.490] Under Joe Biden, it was the policy of the United States
+- [12:48.450] to export abortion and radical gender ideology
+- [12:52.200] all around the world.
+- [12:53.690] That is what they did with your tax money.
+- [13:00.290] They would relentlessly bully developing countries
+- [13:03.230] into parroting their far-left views.
+- [13:06.280] But under President Trump's leadership,
+- [13:07.910] and with our great secretary of state,
+- [13:09.970] we believe that every country in the world
+- [13:13.310] has the duty to protect life.
+- [13:19.730] And that it's not our job as the United States of America
+- [13:23.270] to promote radical gender ideology,
+- [13:25.310] it's our job to promote families and human flourishing.
+- [13:32.640] Now that's why we've completely realigned US foreign aid
+- [13:35.940] and turned off the tap for NGOs whose sole purpose
+- [13:39.610] is to dissuade people from having kids.
+- [13:45.050] It's why we rejoined the Geneva Consensus Declaration
+- [13:48.660] to promote maternal health
+- [13:50.080] and strong families all over the world.
+- [13:55.540] And it's why we speak up when other nations
+- [13:57.930] throw pro-life and pro-family
+- [13:59.590] advocates in prison for silent prayer,
+- [14:01.920] which we've seen -- took way too much,
+- [14:04.380] but it's got to stop.
+- [14:09.790] And today, our administration is proud
+- [14:13.050] to announce a historic expansion of the Mexico City policy.
+- [14:22.430] We're going to start blocking every international
+- [14:25.190] GO that performs or promotes abortion abroad
+- [14:28.760] from receiving a dollar of US money.
+- [14:36.780] Now, we're expanding this policy to protect life, to combat DEI,
+- [14:42.950] and the radical gender ideologies
+- [14:44.800] that prey on our children.
+- [14:46.960] And with these additions, the rule will now cover
+- [14:50.650] every non-military foreign assistance that America sends.
+- [14:54.240] All in all, we have expanded the Mexico City policy
+- [14:58.090] about three times as big as it was before,
+- [15:01.560] and we're proud of it because we believe in fighting for life.
+- [15:09.350] And a lot of you may know that under the Biden administration,
+- [15:12.180] they used Medicaid and other programs
+- [15:14.670] to launder your tax dollars into abortion money
+- [15:19.330] all over the United States of America.
+- [15:22.130] (Audience boos)
+- [15:25.480] And with the help,
+- [15:26.820] with the help of our Republican majorities in Congress,
+- [15:30.000] with the Working Families Tax Cuts,
+- [15:32.070] we stopped that practice once and for all.
+- [15:34.740] It's illegal now, exactly as it should be.
+- [15:41.480] Let me just say, my friends, that we have to be clear.
+- [15:45.660] We cannot be neutral.
+- [15:47.010] Our country cannot be indifferent
+- [15:49.260] about whether its next generations live or die.
+- [15:52.890] Because think about it.
+- [15:55.200] What ultimately gives meaning and life
+- [15:58.500] to the United States of America? This is not a, a new question.
+- [16:03.000] Every civilization has been forced to answer it.
+- [16:06.650] You march today, we march today
+- [16:09.250] because you have an answer to this question,
+- [16:12.040] about what kind of civilization we are
+- [16:14.710] and about what kind of civilization
+- [16:16.570] we're going to become in the future.
+- [16:20.600] I read an article some time ago.
+- [16:22.650] It was about classic archeology of all things.
+- [16:26.470] And one particular piece of information has haunted me,
+- [16:30.970] that one of the telltale signs of an ancient brothel
+- [16:35.250] in the pagan world was that you'd always find
+- [16:37.860] a large number of baby skeletons nearby.
+- [16:42.050] A lot of baby skeletons,
+- [16:43.920] and those bones predominantly belong to boys.
+- [16:48.490] Because unlike little girls,
+- [16:51.020] those boys would be of no use to the future adults
+- [16:55.140] who were running those brothels. Now, this is shocking to us
+- [17:00.740] because we grew up in a Christian culture
+- [17:03.120] and we're formed by religious values.
+- [17:04.940] Even those of us who aren't particularly faithful,
+- [17:07.630] it's a shocking thing to hear.
+- [17:10.340] But we have to remember that in the ancient pagan world,
+- [17:13.380] discarding children was routine.
+- [17:18.020] From the skeletons and brothels to the child sacrifice
+- [17:21.820] of the Mayans, the mark of barbarism
+- [17:24.970] is that we treat babies like inconveniences to be discarded
+- [17:29.300] rather than the blessings to cherish that they are.
+- [17:36.300] But the inheritance of our civilization is something else.
+- [17:40.930] The fact that, as scripture tells us,
+- [17:43.210] each life is fearfully and wonderfully made by our creator.
+- [17:54.570] The march for life, my friends,
+- [17:55.990] it's not just about a political issue
+- [17:57.710] as important as all this politics stuff is.
+- [18:00.890] It is about whether we will remain a civilization under God
+- [18:05.220] or whether we ultimately return to the paganism
+- [18:08.650] that dominated the past.
+- [18:10.790] Today, the far left in this country
+- [18:13.130] tells our young people that marriage and children
+- [18:16.080] are obstacles,
+- [18:17.520] that it's irresponsible, even immoral,
+- [18:19.600] because of climate change or some other reason
+- [18:22.240] to encourage our young people to raise a family.
+- [18:25.340] They tell us that life itself is a burden.
+- [18:28.720] But we here at this march, we know that it's a lie.
+- [18:32.910] We know that life is a gift.
+- [18:40.720] We know that babies are precious because we know them,
+- [18:43.910] and we love them,
+- [18:45.140] and we see the way that they can transform our families.
+- [18:52.250] We know that family is not just the source of a great joy,
+- [18:56.790] but it's part of God's design for men and women,
+- [19:00.270] a design that extends outward from the family
+- [19:03.260] to our neighborhoods, to our communities,
+- [19:05.360] and to the United States of America itself.
+- [19:12.880] And we know, we here know,
+- [19:15.680] that treating everyone with dignity isn't always easy.
+- [19:19.230] It's not always convenient, but it's the right thing to do.
+- [19:27.210] We know that the people telling our young men and women
+- [19:30.290] that discarding family and children
+- [19:32.070] is a form of liberation,
+- [19:33.770] we know that those people are telling a lie.
+- [19:38.050] And so to our fellow Americans,
+- [19:39.970] we march in part to serve as a witness.
+- [19:43.500] To our fellow Americans, we say you're never going to find great
+- [19:47.280] meaning in a cubicle or in front of a computer screen,
+- [19:50.920] but you will find great meaning if you dedicate yourself
+- [19:54.110] to the creation and sustenance of human life.
+- [20:03.290] Now, I must address an elephant in the room,
+- [20:06.640] and I've heard the guy over here talking about it.
+- [20:11.090] A fear, a fear that some of you have
+- [20:13.940] that not enough progress has been made,
+- [20:16.990] that not enough has happened in the political arena,
+- [20:19.770] that we're not going fast enough,
+- [20:22.290] that our politics have failed to answer the Clarion call
+- [20:25.250] to life that this march represents
+- [20:27.810] and that all of us, I believe, hold in our hearts.
+- [20:31.010] And I want you to know that I hear you and that I understand.
+- [20:35.490] There will inevitably be debates within this movement.
+- [20:38.060] We love each other, but we're going to have open conversations
+- [20:41.060] about how best to use our political system
+- [20:43.830] to advance life, how prudential we must be,
+- [20:47.320] and the cause of advancing human life.
+- [20:49.890] I think these are good, honest, and natural debates.
+- [20:53.630] And frankly, they're not just good for all of you,
+- [20:56.430] they help keep people like me honest,
+- [20:58.750] and that's an important thing.
+- [21:04.850] But I think all of us also have to remember
+- [21:07.370] that we are commanded to not let not our hearts be troubled
+- [21:11.790] because I look at this crowd and I see young people for whom
+- [21:16.130] Dobbs is the only world they've ever known.
+- [21:22.410] And I see people with just a little bit more gray
+- [21:25.080] in their hair,
+- [21:27.430] who for 50 years toiled to live in a country
+- [21:31.750] where questions of life would be answered by we,
+- [21:34.570] the people, rather than tyrants and roads.
+- [21:38.280] All of us have heard their stories.
+- [21:40.480] They've heard of the movement betrayed
+- [21:42.510] of taking one step forward, and then two steps back,
+- [21:45.670] and then three steps forward after that.
+- [21:48.650] They know stories of heartbreak and of triumph.
+- [21:51.700] Some of them, I've known very personally from ballot issues
+- [21:54.930] that I fought very hard for,
+- [21:56.610] some of which have gone the right way
+- [21:58.490] and some of which have gone the wrong way.
+- [22:01.050] And I remember friends of mine
+- [22:02.410] who spent their entire lives fighting for the unborn
+- [22:05.740] without ever seeing the victories
+- [22:08.020] that have accumulated in recent years.
+- [22:10.920] My friends, I'd ask you to look where the fight for life
+- [22:14.260] stood just one decade ago.
+- [22:18.090] And now, look where it stands today.
+- [22:21.130] (cheers)
+- [22:27.280] We have made tremendous strides over the last year,
+- [22:31.460] and we're going to continue to make strides
+- [22:33.560] over the next three years to come.
+- [22:36.770] But I'm a realist.
+- [22:38.150] I know that there is still much road ahead to travel together.
+- [22:43.430] Take heart. Take heart in how far we've come,
+- [22:47.250] but don't lose sight of why we march.
+- [22:50.010] And so long as you are out there marching for life,
+- [22:52.860] I hope you know that the Vice President of the United States
+- [22:55.970] will march with you.
+- [22:57.220] God bless you all, and thanks for having me.
+- [23:00.750] (cheers and applause)
+- [23:18.810] ♪ (music playing) ♪

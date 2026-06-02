@@ -1,0 +1,941 @@
+<!-- source: https://www.youtube.com/watch?v=0moOxFjwdn4 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 0moOxFjwdn4 -->
+<!-- date_published: 2025-10-22T21:53:17+00:00 -->
+<!-- date_accessed: 2026-06-02T02:43:01.840125+00:00 -->
+
+# Transcript: President Trump Participates in a Meeting with the Secretary General of NATO
+
+- [00:06.720] The President: Well, thank you very much.
+- [00:07.980] It's an honor to have a friend of mine,
+- [00:09.560] a very good friend of mine.
+- [00:10.770] We've become friends actually through the trials
+- [00:14.040] and tribulations of everything.
+- [00:15.710] And Mark Rutte, secretary general of NATO,
+- [00:20.210] highly respected, every country, almost every country in Europe.
+- [00:26.050] I think you can almost take away the almost pretty soon.
+- [00:29.150] But they all have great respect for the leader
+- [00:31.580] and he is the leader.
+- [00:33.310] And we've had some very good discussions today
+- [00:35.430] and things are going along pretty well
+- [00:36.990] as regarding Ukraine-Russia.
+- [00:40.390] We thought it would be a little bit easier.
+- [00:42.960] That's turned out to be tougher than the Middle East.
+- [00:44.930] The Middle East was supposed to be the tough one,
+- [00:47.440] and we've solved that puzzle,
+- [00:49.230] but this one will get solved also.
+- [00:51.470] So, I want to just say it's an honor to have you, Mark.
+- [00:53.620] Thank you very much.
+- [00:54.860] Mark Rutte: Thank you so much for hosting again.
+- [00:57.070] And we were texting, I think it was on the day
+- [00:59.270] when you were in Israel and in Egypt,
+- [01:02.510] this tremendous success you had under your leadership,
+- [01:05.720] bringing peace to the Middle East.
+- [01:07.900] And then we texted each other and said,
+- [01:09.500] "And the next big thing has to be Ukraine-Russia."
+- [01:12.810] And I want to help, NATO wants to help,
+- [01:14.310] my colleagues want to help to basically deliver
+- [01:16.720] on your vision of peace in Ukraine.
+- [01:19.610] And I really want to thank you for everything you're doing,
+- [01:21.560] including breaking the deadlock with Putin,
+- [01:24.380] starting the dialogue in February
+- [01:26.290] when you came in as president in January,
+- [01:28.950] but also for everything you did with NATO.
+- [01:30.460] The fact that we are now at this 5 percent,
+- [01:32.930] the huge success in The Hague at the NATO summit,
+- [01:35.980] the fact that Europeans are also stepping up
+- [01:37.810] when it comes to Ukraine.
+- [01:39.450] Basically the weapons from the US being delivered to Ukraine,
+- [01:43.200] paid for allies and Europeans coming together
+- [01:46.270] to discuss how can we sustain Ukraine post the peace deal?
+- [01:49.570] All of this as evidence of your leadership
+- [01:52.050] of pushing the Europeans and the Canadians to do more,
+- [01:55.000] to deliver and to equalize in spending with the US.
+- [01:58.290] So on all of this, and today we will talk more on
+- [02:01.480] how we can really bring Ukraine to the next phase
+- [02:05.000] and get this terrible war and all the bloodshed ended.
+- [02:09.480] The President: And as you know,
+- [02:10.820] we are going to be making a big trip next week.
+- [02:14.260] Some of you are going with us.
+- [02:15.910] We'll be going to Malaysia, South Korea, and Japan.
+- [02:21.140] In South Korea, I'll be meeting with President Xi of China.
+- [02:24.520] We have a pretty long meeting scheduled.
+- [02:26.570] We can work out a lot of our questions
+- [02:29.880] and our doubts and our tremendous assets together.
+- [02:34.130] So, we look forward to that. I think something will work out.
+- [02:36.550] We have a very good relationship,
+- [02:38.580] but that'll be a big one.
+- [02:39.850] We canceled the meeting with President Putin.
+- [02:42.430] It didn't feel right to me.
+- [02:43.760] It didn't feel like we were going to get
+- [02:45.530] to the place we have to get, so I canceled it.
+- [02:48.000] But we'll do it in the future.
+- [02:49.660] But next week we'll be with many of you
+- [02:51.740] in those locations that I told you.
+- [02:54.040] Then it's back to Washington.
+- [02:56.570] So, thank you very much, everybody. Yeah, please.
+- [02:59.450] The Press: Mr. President, can you tell us a little bit
+- [03:01.110] about why you're elevating sanctions against Russia
+- [03:03.800] right now? What's the --
+- [03:05.090] The President: I just felt it was time.
+- [03:06.940] We've waited a long time.
+- [03:08.390] I thought that we'd go long before the Middle East.
+- [03:11.340] And, Mark, as you know, we did the Middle East plus seven.
+- [03:13.860] Mark Rutte: Yeah. Absolutely.
+- [03:15.070] The President: So, we did seven different wars
+- [03:16.370] from Pakistan and India to so many.
+- [03:20.190] Mark Rutte: Yeah. Azerbaijan, Armenia, Africa.
+- [03:21.670] The President: Which they said was impossible to do.
+- [03:24.080] All these wars, I did.
+- [03:25.290] And the one that we have left, we have one left, it'll be nine.
+- [03:30.320] We have one left and I think we'll get that done too.
+- [03:32.260] I think we're on our way to getting it done.
+- [03:33.720] Mark Rutte: Yeah. Absolutely. We have to. We have to.
+- [03:35.370] The President: Please.
+- [03:36.700] The Press: Mr. President, do you have a timeline
+- [03:38.590] for when you think the war is going to be over
+- [03:40.330] because of your leadership?
+- [03:41.610] The President: No, I don't have a timeline. You can't have --
+- [03:43.260] In war it's hard to have a timeline.
+- [03:45.160] So many things happen in war. Go ahead.
+- [03:48.570] The Press: What about Tomahawk missiles?
+- [03:50.160] Putin is definitely afraid --
+- [03:51.420] The President: Well, the problem with the Tomahawk
+- [03:52.920] that a lot of people don't know,
+- [03:54.200] it'll take a minimum of six months,
+- [03:55.920] usually a year to learn how to use them.
+- [03:57.500] They're highly complex.
+- [03:59.160] So, the only way a Tomahawk is going to be shot
+- [04:01.420] is if we shot it and we're not going to do that.
+- [04:04.640] But there is a tremendous learning curve with a Tomahawk.
+- [04:08.450] It's a very powerful weapon, very accurate weapon.
+- [04:11.920] And maybe that's what makes it so complex.
+- [04:13.900] But it takes a year of intense training
+- [04:17.510] to learn how to use it, and we know how to use it
+- [04:20.580] and we're not going to be teaching other people.
+- [04:23.350] It's too far out into the future. Yes, please.
+- [04:26.460] The Press: I saw, Mr. President,
+- [04:28.870] that you said as recently as yesterday
+- [04:31.110] that you still believe that Putin wants to end the war.
+- [04:33.220] The President: Yeah, I do.
+- [04:34.450] The Press: But then today you took this step
+- [04:35.720] to Russia the sanctions and put more pressure on him.
+- [04:38.140] The President: Yeah.
+- [04:39.340] The Press: What else are you going to do to encourage him
+- [04:41.070] to get there or can you explain
+- [04:42.310] why you believe that he wants peace?
+- [04:44.240] The President: Yeah, it's a good question.
+- [04:45.490] Today is a very big day in terms of what we're doing.
+- [04:48.930] Look, these are tremendous sanctions.
+- [04:50.210] These are very big.
+- [04:51.420] Those are against their two big oil companies.
+- [04:54.470] And we hope that they won't be on for long.
+- [04:56.820] We hope that the war will be settled.
+- [05:00.260] We just answered, having to do
+- [05:02.380] with the various forms of missiles
+- [05:04.160] and everything else that we're looking at,
+- [05:05.830] but we don't think that's going to be necessary.
+- [05:09.110] We would like to see them just take the line
+- [05:11.950] that has been formed
+- [05:13.270] over quite a long period of time and go home.
+- [05:17.950] Last week they had almost 8,000 soldiers killed.
+- [05:22.470] Many Russians were killed last week.
+- [05:24.710] Many Ukrainians were killed last week.
+- [05:27.360] We think it's ridiculous and we'd like to have it end.
+- [05:30.100] The Press: Why do you think he wants peace though?
+- [05:31.850] Why do you still believe that?
+- [05:33.160] The President: I think they want peace.
+- [05:34.430] I think they both want peace at this point.
+- [05:36.730] It's almost four years. You're going into four years.
+- [05:39.920] And if I were president, it never would've started,
+- [05:43.430] but yeah, it's time.
+- [05:45.010] The Press: Mr. President, on the shutdown,
+- [05:46.320] do you plan to meet with Democrats
+- [05:49.910] before you head to Asia?
+- [05:51.510] And if not, why not meet with the Democrats?
+- [05:54.740] The President: Well, I think it's a shame that it's shut down
+- [05:56.550] because we have the greatest economy.
+- [05:58.120] As you were saying before, we have the greatest economy
+- [06:01.100] in the world right now by far, the United States.
+- [06:04.500] We have almost 18, it was 17,
+- [06:07.220] now it's $18 trillion being poured into our country.
+- [06:10.760] And it's no time for shutdowns.
+- [06:12.720] I don't think it's affecting what we're doing,
+- [06:14.870] but it's too bad for a lot of people.
+- [06:17.140] We have a lot of good people
+- [06:18.410] that aren't working right now that should be.
+- [06:20.030] And it's because the Democrats want to try
+- [06:22.440] and renegotiate a deal that they had negotiated.
+- [06:25.500] They want $1.5 trillion given to illegal immigrants
+- [06:28.790] who came into the country.
+- [06:30.400] And it's going to hurt the healthcare of citizens
+- [06:33.980] of our country that have been paying into it,
+- [06:35.860] that have been working hard for it, that really deserve it.
+- [06:38.560] So we're never going to do that. It's not going to happen.
+- [06:40.880] And I will tell you, there are a lot of good Democrats
+- [06:43.310] that really want to make a deal.
+- [06:44.650] And all we need is five Democrats
+- [06:46.770] because we have a great support on the Republican side.
+- [06:50.610] So, I think we need five Democrats
+- [06:52.550] and there are a lot of them that want to make a deal.
+- [06:55.310] So, I think at some point common sense will prevail.
+- [07:00.740] Yeah, go ahead. You can finish up.
+- [07:03.390] The Press: On the drug boat strike in the Eastern Pacific.
+- [07:05.730] Can you explain to us what that was about, how it was conducted?
+- [07:09.520] The President: Yeah. Sure.
+- [07:10.870] Well, they had one today in the Pacific.
+- [07:13.480] And the way I look at it every time I look,
+- [07:15.830] because it is violent and it is very --
+- [07:18.830] It's amazing the weaponry that everyone --
+- [07:22.070] That they have these boats that go 45,
+- [07:23.780] 50 miles an hour in the water.
+- [07:26.180] And when you look at the accuracy and the power --
+- [07:29.240] Look, we have the greatest military in the world.
+- [07:31.840] We have the greatest weapons in the world.
+- [07:34.180] And you see a little bit of it there.
+- [07:35.790] One shot, everyone dead center.
+- [07:38.870] And the only way you won't feel badly about it,
+- [07:43.980] is you realize that every time you see that happen,
+- [07:46.630] you're saving 25,000 American lives.
+- [07:49.260] Every one of those boats that gets knocked out
+- [07:51.760] is saving 25,000 American lives.
+- [07:54.140] Not to mention the torn up families all over the country.
+- [07:58.610] And whenever I see that, I say to myself,
+- [08:01.620] "I just saved 25,000 lives."
+- [08:04.020] I will say that there are very few boats
+- [08:06.440] traveling on the water right now.
+- [08:08.660] Actually, that includes fishing boats,
+- [08:10.240] that includes any other kind of boat,
+- [08:12.000] but there are very few boats traveling on the water.
+- [08:14.560] So, now they'll come in by land to a lesser extent,
+- [08:18.010] and they will be hit on land also.
+- [08:24.760] Go ahead in the back, please.
+- [08:26.050] The Press: Do you believe you have legal authority
+- [08:27.540] if they do come-
+- [08:29.020] The President: Yes, we do. We have legal authority, right.
+- [08:31.470] We're allowed to do that.
+- [08:32.800] And if we do by land, we may go back to Congress,
+- [08:35.770] but this is a national security problem.
+- [08:38.780] They killed 300,000 people last year,
+- [08:42.990] drugs, these drugs coming in.
+- [08:44.950] They killed 300,000 Americans last year.
+- [08:48.120] And that gives you legal authority.
+- [08:50.020] We have a national security -- Really, I will say this,
+- [08:55.600] when you look at the people we're dealing with --
+- [08:58.240] And we know them, we know the people coming in,
+- [09:00.370] we know the boats, we know everything else.
+- [09:03.290] We're allowed to do it. It's in international waters.
+- [09:07.390] If we don't do it,
+- [09:08.600] we're going to lose hundreds of thousands of people.
+- [09:11.870] Now, they'll be coming in by land a little bit more
+- [09:14.530] because they're not coming in by boat anymore.
+- [09:16.200] There are no boats in the water, there are no more boats.
+- [09:18.300] We know the boat almost immediately.
+- [09:20.420] It's pretty unusual when you see somebody with a fishing rod
+- [09:23.360] and five engines on the back of the boat.
+- [09:26.110] You don't need that to go fishing.
+- [09:28.130] Wait, wait, wait.
+- [09:29.970] And we will hit them very hard when they come in by land
+- [09:33.400] and they haven't experienced that yet,
+- [09:35.360] but now we're totally prepared to do that.
+- [09:38.150] We'll probably go back to Congress
+- [09:39.820] and explain exactly what we're doing
+- [09:41.560] when we come to the land. We don't have to do that,
+- [09:44.740] but I think, Marco, I'd like to do that.
+- [09:47.070] You may respond to that if you want.
+- [09:48.450] Secretary Rubio: Yeah.
+- [09:49.690] Well, I mean, the question is, bottom line,
+- [09:51.170] these are drug boats.
+- [09:52.850] If people want to stop seeing drug boats blow up,
+- [09:54.650] stop sending drugs to the United States.
+- [09:56.500] The Press: But does it matter if it's in the United States?
+- [09:58.410] Secretary Rubio: Well, these are all in international waters.
+- [09:59.810] The Press: Would you do a strike in the United States
+- [10:01.150] or if there was a (inaudible)
+- [10:02.350] Secretary Rubio: Well, that's a different matter,
+- [10:03.550] now you're talking about a law enforcement matter.
+- [10:04.760] In this particular case,
+- [10:05.960] they are people traveling on international waters
+- [10:07.820] headed towards the United States with hostilities in mind,
+- [10:10.570] which includes flooding our country
+- [10:11.960] with dangerous, deadly drugs.
+- [10:13.780] And they're going to be stopped. And that's what's happening.
+- [10:16.240] And in the case last week, you saw there was a submarine,
+- [10:19.020] it was a submarine, it was a submersible.
+- [10:20.700] That's a drug boat all the way through.
+- [10:22.070] We know what these boats are. The President just said it.
+- [10:24.410] We tracked them from the very beginning.
+- [10:25.760] We know who's on them, who they are,
+- [10:27.280] where they're coming from, what they have on them.
+- [10:29.750] And if you're running drug boats you're in grave danger.
+- [10:32.880] The President: And drug usage is way down.
+- [10:35.350] And drug usage coming from the sea,
+- [10:37.690] they call it ocean drugs, a little term that they use,
+- [10:41.720] the ocean drugs is very close to nonexistent right now.
+- [10:46.930] I wouldn't want to be in one of those boats heading our way.
+- [10:49.560] They're driving happily to destroy the lives of people.
+- [10:52.230] And they end up, that's the end of them.
+- [10:54.600] So the ocean drugs and the sea drugs,
+- [10:58.610] drugs by sea they call it also,
+- [11:01.470] that's almost down to nothing, as you can imagine.
+- [11:06.000] So, they continue to come in by land and a little bit less
+- [11:08.540] because they see something is going to happen,
+- [11:10.230] they don't like it. They see something.
+- [11:11.980] And they're right, something very serious is going to happen,
+- [11:14.660] the equivalent of what's happening by sea.
+- [11:17.380] And we are going to Congress just to tell them
+- [11:20.290] what we're doing just to keep them informed.
+- [11:22.740] So we have to do it for national sec --
+- [11:25.090] we have to do it to save lives.
+- [11:29.350] The Press: Mr. President, Secretary Bessent
+- [11:30.900] said that Vladimir Putin had not been honest
+- [11:33.640] and forthright in his talks with you,
+- [11:35.320] just wondering if you could tell us a little bit more
+- [11:37.170] about your feelings about that? And also if I may, to Dr. Rutte,
+- [11:40.750] just your thoughts on whether Ukraine should get tomahawks.
+- [11:42.660] Thank you.
+- [11:43.880] The President: Well, I think that in terms of honesty,
+- [11:45.600] the only thing I can say is every time I speak
+- [11:47.940] with Vladimir I have good conversations.
+- [11:51.040] And then they don't go anywhere,
+- [11:53.150] they just don't go anywhere so in that sense.
+- [11:55.430] But no, look, he's fighting a war, he's in a war.
+- [11:59.290] It's two very competent sides.
+- [12:02.300] And that's the way war is, you never know with war.
+- [12:04.410] But I would say that it's time, it's time to make a deal.
+- [12:08.740] A lot of people are dying.
+- [12:10.510] They're not Americans, but they're people, they're souls
+- [12:15.200] and they're dying by the thousands.
+- [12:16.980] Worst since World War Two. And we really should stop it.
+- [12:20.660] Mark Rutte: And to your other question.
+- [12:22.060] The President: Yeah, please.
+- [12:23.290] Mark Rutte: Sorry, to your other question.
+- [12:25.330] This has been consistent from this President
+- [12:27.730] when we first met again after your reelection
+- [12:30.640] in Mar-a-Lago in November,
+- [12:32.520] you said we have to stop the killing.
+- [12:34.880] This is close to your heart and this is your vision.
+- [12:37.690] That's why this war needs to end.
+- [12:39.370] When it comes to tomahawks or whatever system,
+- [12:41.680] it's up to any federal nation
+- [12:43.060] to decide whatever they want to supply to Ukraine.
+- [12:45.940] NATO doesn't take a position. But I can assure you this,
+- [12:48.850] when the President called me in July
+- [12:51.100] and said we want to again send weapons into Ukraine,
+- [12:54.330] paid for by our allies, the Canadians and the Europeans,
+- [12:57.290] that was an important moment. And that is now taking place.
+- [13:00.320] And the ambassador, myself, we are working hard at this.
+- [13:03.320] Already a couple of billion dollars of weaponry into Ukraine
+- [13:07.080] from the US paid for by allies.
+- [13:09.430] I'm not going to comment about the tomahawks,
+- [13:11.140] but when it comes to the US and all the support for Ukraine,
+- [13:13.820] it is there and it is close to the President's heart,
+- [13:15.980] and I know this.
+- [13:17.580] The President: I will say this,
+- [13:18.790] and Mark can say it better than anybody,
+- [13:20.990] the European nations and Canada have really pulled together.
+- [13:24.730] And it's beyond even that, I mean, it's really beyond that.
+- [13:27.300] Mark Rutte: As well, the Australians,
+- [13:28.560] the New Zealanders, Japan, they all (inaudible).
+- [13:29.930] The President: Right. If you want to really
+- [13:31.200] add them up, we could really add them up.
+- [13:32.690] But NATO basically, European and Canada
+- [13:35.730] and a lot of other nations, they've really band together.
+- [13:38.460] They are not happy about what's happening
+- [13:40.600] with Russia and Ukraine.
+- [13:41.800] They're not happy at all. Neither am I. Jeff.
+- [13:45.810] The Press: Sir, just changing the topic slightly,
+- [13:47.730] I see you've got the model of the White House
+- [13:51.560] and the ballroom. Many people were surprised,
+- [13:54.530] the entire East Wing is being demolished because you had said
+- [13:57.000] initially that the ballroom would not be touched,
+- [13:58.500] what happened? Can you tell us what happened?
+- [13:59.780] The President: Well, certain areas are being left.
+- [14:03.630] We determined that after really a tremendous amount of study
+- [14:07.700] with some of the best architects in the world,
+- [14:10.000] we determined that really knocking it down,
+- [14:12.070] trying to use a little section.
+- [14:13.380] You know, the East Wing was not much,
+- [14:16.390] it was not much left from the original,
+- [14:18.260] it was over the course of a hundred years, it was changed.
+- [14:22.750] The columns were removed and it was a much different building.
+- [14:25.880] Then a story was added on in 1948/1949.
+- [14:30.000] There was a story added on which was not particularly nice.
+- [14:33.160] And the building was very, very much changed
+- [14:35.540] from what it was originally.
+- [14:37.940] It was never thought of as being much,
+- [14:39.750] it was a very small building.
+- [14:41.720] And rather than allowing that to hurt a very expensive,
+- [14:45.310] beautiful building that frankly they've been after for years.
+- [14:48.240] You have that, I brought these along so people could see,
+- [14:50.510] but there's a relative --
+- [14:56.850] Nobody's actually seen anything quite like it.
+- [14:59.160] I think it'll be one of the great ballrooms
+- [15:01.910] anywhere in the world.
+- [15:03.680] It's about $300 million. It's set to do many,
+- [15:06.740] many things including meetings with foreign leaders,
+- [15:09.210] including the honoring of foreign leaders.
+- [15:12.000] You can see this, this is a plan, it's got tables
+- [15:17.190] so that you honor a foreign leader,
+- [15:20.690] we have a proper space. Right now we have a space
+- [15:22.860] that with tables holds about 79 people.
+- [15:26.100] And this is a proper kind of a thing.
+- [15:28.020] Now, what the White House was doing, as you know,
+- [15:30.760] is they were putting tents out on the lawn.
+- [15:32.530] This is an interior shot of the ballroom.
+- [15:36.360] I think there'll be nothing like it.
+- [15:37.800] And it's being paid for a hundred percent by me
+- [15:40.030] and some friends of mine, donors to it.
+- [15:43.090] The government's paying absolutely nothing.
+- [15:46.150] We're also working with the military on it
+- [15:48.130] because they want to make sure everything's perfect.
+- [15:49.910] And the military is very much involved in this.
+- [15:52.430] They want to make sure everything
+- [15:53.790] is absolutely beautiful.
+- [15:55.150] You can see the kind interiors that we're talking about.
+- [15:58.650] That's an interior of the ballroom.
+- [16:01.030] And it's the highest level.
+- [16:03.020] And you see it goes beautifully with the White House.
+- [16:05.370] I mean, the mix is beautiful.
+- [16:07.230] So over the years, many presidents have made changes,
+- [16:10.500] this obviously would be the biggest change.
+- [16:12.270] But this was something they've wanted for at least 150 years.
+- [16:18.260] Many of you have gone to the events where they had,
+- [16:21.540] as an example, President Xi,
+- [16:23.280] or they had a leader of one of the countries,
+- [16:26.500] including the king and the queen
+- [16:28.030] from your favorite country frankly.
+- [16:30.650] But where they'd be honored
+- [16:32.040] and there'd be in a tent out on the lawn
+- [16:33.680] and it would rain and it was a disaster.
+- [16:35.720] Brian's shaking his head, you know what I'm talking about.
+- [16:39.030] So I thought I'd bring this out because this is going to be
+- [16:44.440] probably the finest ballroom ever built.
+- [16:46.530] And we're doing it, no cost to the country.
+- [16:49.350] It's being put in, the money is being put in by me
+- [16:51.480] and donors, very great patriots actually.
+- [16:56.310] And the spirit on the building of it is amazing.
+- [16:59.360] We are using little sections of footings
+- [17:01.320] and various other things, but that's sort of irrelevant.
+- [17:04.330] In order to do it properly
+- [17:05.730] we had to take down the existing structure.
+- [17:08.170] The way it was shown,
+- [17:09.400] it looked like we were touching the White House,
+- [17:10.950] we don't touch the White House. That's a bridge,
+- [17:13.460] a glass bridge going from the White House to the ballroom.
+- [17:16.630] Then you get into the lobby of the ballroom.
+- [17:18.450] And then you go into the magnificent, the main room.
+- [17:21.660] And it's something that has gotten incredible reviews.
+- [17:25.590] The Press: And just quickly following up on that,
+- [17:28.660] just quickly following up on that,
+- [17:31.540] I just want a quick follow up on that question.
+- [17:33.400] Your response to people who say
+- [17:34.900] that you haven't been transparent enough about this?
+- [17:37.610] The President: I haven't been transparent? Really?
+- [17:41.100] I've shown this to everybody that would listen.
+- [17:43.570] Third-rate reporters didn't see it because they didn't look.
+- [17:46.350] You're a third-rate reporter, always have been.
+- [17:49.280] So third-rate reporters didn't look,
+- [17:51.050] but anybody that asked,
+- [17:52.610] these pictures have been in newspapers,
+- [17:56.380] they've been all over the place.
+- [17:58.750] And we're very proud of it. It's gotten great reviews,
+- [18:01.200] it's gotten really great reviews.
+- [18:04.630] I think we've been more transparent
+- [18:06.180] than anybody's ever been.
+- [18:07.690] The Press: Why do you believe, Mr. President,
+- [18:09.060] that the sanctions that you're announcing today
+- [18:11.660] will push Putin to the negotiating table?
+- [18:13.330] The President: Well, I don't know that they will.
+- [18:14.580] I think that they'll certainly have an impact there.
+- [18:17.340] They're massive sanctions.
+- [18:18.870] It's sanctions in oil, the two biggest oil companies,
+- [18:22.790] among the biggest in the world,
+- [18:24.040] but they're Russian, they do a lot of oil.
+- [18:26.370] And hopefully it'll push --
+- [18:30.630] hopefully he'll become reasonable
+- [18:32.390] and hopefully Zelensky will be reasonable too.
+- [18:34.680] It takes two to tango as they say.
+- [18:36.920] And we're going to find out. They hate each other,
+- [18:39.820] these two people hate each other.
+- [18:41.330] You know that better than anybody.
+- [18:43.210] And it makes it more difficult than it should be.
+- [18:45.250] This should be easier to do, but the level of hatred
+- [18:48.680] between Zelensky and Putin is very substantial.
+- [18:52.080] Mark Rutte: Could I add one thing?
+- [18:53.340] Could I add one thing? Could I add one thing?
+- [18:57.520] What the President is doing today with these sanctions
+- [19:00.070] is putting more pressure, of course on both parts,
+- [19:03.060] in this case on Russia,
+- [19:05.460] it's all about changing the calculus.
+- [19:07.940] Making sure that Putin understands
+- [19:09.360] that the President's vision this weekend of having a ceasefire,
+- [19:13.240] stop where they are, as you literally said,
+- [19:15.590] that this has to be step one now.
+- [19:18.030] And for him to really accept that vision
+- [19:20.560] and to come to the table.
+- [19:21.780] And then you have to put pressure,
+- [19:22.990] and this is exactly what he did today.
+- [19:24.260] The President: Along with Europe,
+- [19:25.490] I mean, Europe, look,
+- [19:27.800] they've actually become friends of mine.
+- [19:29.280] I think all of them, we have a very close relationship.
+- [19:32.640] And they want to see it end too. They really want to see it end.
+- [19:36.800] But I can say they're totally committed.
+- [19:38.550] If this went on for 10 more years, Europe is behind them.
+- [19:41.290] They just can't let that happen.
+- [19:43.650] You can't let what's been going on --
+- [19:45.190] Now, it should have never happened.
+- [19:46.460] It would've never happened if I were president.
+- [19:48.610] But it did happen.
+- [19:49.830] I inherited, this was Biden, a man who was, without question,
+- [19:54.930] you take a look at the new walkway,
+- [19:57.700] the Presidential Walk of Fame, we call it.
+- [20:01.900] Biden is the worst president we've ever had.
+- [20:05.070] If he was even a president.
+- [20:06.930] The people that surrounded that desk made those decisions.
+- [20:09.840] But this should have never happened.
+- [20:11.610] It wouldn't have happened.
+- [20:12.910] But it did happen. I inherited it.
+- [20:14.970] We're going to get it ended hopefully soon.
+- [20:19.350] Yes, Please.
+- [20:20.570] The Press: You had a Truth Social post
+- [20:21.850] earlier this afternoon
+- [20:23.090] talking about a Wall Street Journal report as a fake story.
+- [20:25.730] The President: Yeah. Fake. Wall Street Journal is fake,
+- [20:28.900] less fake on financial than it is on gossip.
+- [20:31.920] The Press: Can you just confirm that my understanding
+- [20:34.060] of what's happening is accurate. As I understand it,
+- [20:36.520] that story framed it like we had just lifted,
+- [20:39.330] the U.S, a restriction on intelligence.
+- [20:41.980] The President: No, it said that I gave Ukraine permission
+- [20:44.330] to shoot missiles deep into Russia.
+- [20:47.280] I didn't do that.
+- [20:49.120] Second of all, they're not using our missiles.
+- [20:51.060] They're using, I think, European missiles, or from someplace.
+- [20:54.320] But they're not using ours and what they do,
+- [20:56.790] I don't control that. But I do control our missiles.
+- [21:00.530] They're not shooting our missiles in,
+- [21:02.100] it was a fake story.
+- [21:03.550] Wall Street Journal does a lot of fake stories.
+- [21:07.740] The Press: Thank you so much.
+- [21:08.940] The president of Colombia in a recent interview said
+- [21:11.530] that if you won't change,
+- [21:12.880] he thinks that people should get rid --
+- [21:14.200] The President: We're talking about now Colombia
+- [21:15.510] the country, not the university.
+- [21:16.890] The Press: Yes.
+- [21:18.100] The President: (inaudible). He said what?
+- [21:19.330] The Press: He said that if you won't change,
+- [21:20.570] then perhaps you need to be gotten rid of.
+- [21:22.380] Do you view that as a threat?
+- [21:23.610] The President: Well, he's a thug and bad guy.
+- [21:26.190] He's a guy that is making a lot of drugs.
+- [21:28.640] We've just, as of today, stopped all payments going to Colombia,
+- [21:32.570] the country Colombia, also the school Colombia.
+- [21:35.780] No, we settled. We made a settlement with them.
+- [21:38.540] But no, he's a thug and he's a bad guy
+- [21:42.250] and he's hurt his country very badly.
+- [21:44.070] They're doing very poorly, Colombia.
+- [21:46.110] They make cocaine. They have cocaine factories.
+- [21:48.980] They grow all sorts of crap that's drugs, bad drugs
+- [21:52.450] coming into the United States, goes generally through Mexico,
+- [21:56.780] and he better watch it or we'll take very serious action
+- [22:00.580] against him and his country.
+- [22:02.410] His country is, what he has led his country into
+- [22:05.540] is a death trap.
+- [22:07.170] The Press: (inaudible)
+- [22:10.590] the Secretary-General presented his Ukraine Peace Plan to you.
+- [22:14.310] Are you prepared to be chairman of the Board of Peace?
+- [22:17.040] Mark Rutte: Oh, there is no Secretary-General Peace Plan.
+- [22:21.120] No, no. Really. I really want to correct him
+- [22:22.630] because I saw some of that in the media.
+- [22:24.300] Of course, many people are thinking
+- [22:25.950] how to bring this terrible war to an end
+- [22:27.740] and supporting the president in doing that.
+- [22:30.930] Why I'm here is to dialogue again
+- [22:32.560] with the president how I can be,
+- [22:34.400] how NATO, my colleagues and other colleagues in NATO
+- [22:37.020] can be of maximum support to get that done.
+- [22:40.050] But there is no peace plan on the table.
+- [22:42.060] I mean, if there is a peace plan,
+- [22:43.940] it is what the president said last Friday and Sunday,
+- [22:46.060] which is stop where you are. Stop the fighting.
+- [22:49.000] The President: This is about NATO.
+- [22:50.220] We're a very proud member of NATO.
+- [22:52.100] We have a great relationship with the countries of NATO.
+- [22:54.960] I think made much better by our visit a few months ago
+- [22:58.380] when they agreed to 5 percent instead of 2 percent of GDP.
+- [23:03.050] That was a big concession.
+- [23:04.910] I think that was a concession that two years ago,
+- [23:06.580] nobody would've said, even a ear ago.
+- [23:07.890] Mark Rutte: Nobody (inaudible).
+- [23:09.110] Even nine months ago, before you were elected.
+- [23:10.470] The President: Yeah, they would've said
+- [23:11.710] that's not possible.
+- [23:12.910] And the difference is, they're paying 5 percent
+- [23:15.170] as opposed to not paying 2 percent.
+- [23:17.090] A lot of them weren't paying, with the exception of Spain.
+- [23:20.110] I think you're going to have to talk to Spain
+- [23:22.040] because Spain is not a team player.
+- [23:24.840] So other than Spain, everybody's a hundred percent,
+- [23:29.180] and you could solve the Spain problem very easily, I think.
+- [23:34.310] Brian. Brian, go ahead. Yeah, go ahead.
+- [23:36.550] And then we'll take Brian. Go ahead.
+- [23:38.090] The Press: The soybean farmers,
+- [23:39.410] are they going to be getting support from you soon
+- [23:41.110] and your message (inaudible).
+- [23:42.310] The President: Yeah, well, they do.
+- [23:43.720] So what's happened, you could say with that,
+- [23:46.580] you could say with beef, with all of it, the beef,
+- [23:52.380] the ranchers, let's say, who have done a great job,
+- [23:56.490] have lost their shirts for many, many years.
+- [23:58.880] They've really been decimated, and I helped them a lot.
+- [24:03.340] I put tariffs on things coming into the country,
+- [24:06.510] including beef, and that gave them a chance
+- [24:09.120] to finally have a decent industry.
+- [24:12.940] We are going to be talking to them.
+- [24:14.300] They're great people,
+- [24:15.580] but they've been hurt for 25, 30 years.
+- [24:17.390] They've been losing because other countries
+- [24:19.800] have taken advantage of them, and by putting tariffs on,
+- [24:23.490] they've been able to make a few dollars.
+- [24:25.370] They've been able to have an industry,
+- [24:27.360] but I also want to keep the beef prices low.
+- [24:29.920] So I'll be talking with the ranchers
+- [24:31.760] and I'll be speaking with a lot of different people,
+- [24:34.590] including Scott and Howard, and we'll do something
+- [24:37.090] because prices are way down in our country.
+- [24:39.380] Energy is way down.
+- [24:40.650] I think you're going to see $2 gasoline very soon.
+- [24:42.920] I see that it's 2,50 in a lot of places, $2 and 50 cents.
+- [24:47.310] We were heading to five, six, and $7.
+- [24:50.100] If Biden didn't go back to my policy toward the end,
+- [24:52.460] you would've seen it,
+- [24:53.720] but he didn't go back to the full policy
+- [24:56.430] and he missed the most important thing.
+- [24:57.970] So we were way up.
+- [25:00.020] I think you're going to see $2 gasoline.
+- [25:02.500] We could even break that number. That's a big difference.
+- [25:05.830] The only cost that's really up is beef,
+- [25:08.560] and the fake news only wants to talk about beef.
+- [25:13.860] And what I did is I made it possible
+- [25:15.940] for those people to survive. They're incredible people,
+- [25:18.910] but they were being decimated by other countries,
+- [25:21.900] and I didn't want that to happen.
+- [25:23.560] So prices are way down.
+- [25:25.600] Groceries are down, everything's down.
+- [25:27.490] Energy's way down.
+- [25:29.540] Even interest rates with a bad chairman of the Fed,
+- [25:32.490] he's terrible. He's a fool.
+- [25:34.860] But even interest rates are down.
+- [25:37.480] So our country has never done better.
+- [25:39.870] We're going to take in, I think, 21, 20, 21 trillion this year.
+- [25:44.760] No country has ever taken in more than three,
+- [25:47.590] and we're going to take in 21 trillion dollars of investments
+- [25:50.430] because of the tariffs.
+- [25:52.100] If we didn't have tariffs, we would be a mess.
+- [25:54.360] We would be a national security problem,
+- [25:57.110] and we've done a job. So I'm very happy about that.
+- [26:00.010] We're going to do something very quickly
+- [26:02.110] and easily on beef to get it down.
+- [26:05.590] The ranchers understand that.
+- [26:07.380] They're so happy for what I've done.
+- [26:08.750] I saved them.
+- [26:09.980] I don't think you'd have any beef in this country
+- [26:12.180] if I didn't do that.
+- [26:13.490] So we're very proud of that. Yeah, Brian.
+- [26:16.440] The Press: Yesterday in Los Angeles,
+- [26:18.870] immigration officials were attacked by some protesters
+- [26:22.410] in an attempt to arrest the illegal alien.
+- [26:25.510] Gavin Newsom, other democrats
+- [26:26.850] have used very aggressive language
+- [26:28.510] in terms of how to address ICE agents out in the field.
+- [26:31.700] Is there any responsibility that we can place on Gavin Newsom
+- [26:35.150] and other elected officials for using such aggressive language?
+- [26:38.430] The President: Well, Gavin has to be careful.
+- [26:39.870] Remember that when I first came in,
+- [26:42.270] they had a terrible riot in Los Angeles.
+- [26:44.630] They had the fires, which shouldn't have happened.
+- [26:46.720] They didn't have the water for the fires.
+- [26:48.180] They should have had the water coming in
+- [26:49.410] from the Pacific Northwest. They didn't have the waters.
+- [26:52.800] They didn't have water in the hydrants or the sprinklers.
+- [26:55.340] So they had the fires, and then they had the riot.
+- [26:57.940] And if we didn't go and take care of that riot,
+- [27:00.860] you would've lost Los Angeles.
+- [27:02.570] You would've canceled the Olympics,
+- [27:04.040] which is, because of me in Los Angeles.
+- [27:07.350] And the police commissioner, the head of the police said,
+- [27:12.290] if the president didn't come in, we would've lost Los Angeles.
+- [27:16.790] We did not have the capability of taking care of it.
+- [27:20.030] And he said it very strongly, and we did a great job.
+- [27:23.320] And within a week it was all done.
+- [27:24.790] Within one day, it was done.
+- [27:26.120] But within a week it was all done.
+- [27:28.740] And then they go back to their normal practice of weakness,
+- [27:33.040] of not taking care of criminals,
+- [27:35.460] meaning taking care of putting them in jails
+- [27:37.270] where they should be.
+- [27:38.480] Washington, D.C., and you all are the best people for that
+- [27:41.850] because Washington, D.C is now one of the safest cities.
+- [27:44.460] It was one of the most dangerous cities in the country.
+- [27:47.250] Now, Washington, D.C., believe it or not,
+- [27:49.210] I'm embarrassed to say it in front of you,
+- [27:52.150] but Washington DC went from one of the worst,
+- [27:55.150] most dangerous cities to, you can walk down the street,
+- [27:59.080] you can send your child to meet you at a location.
+- [28:02.300] Your child is going to be fine. We have a very, very safe city.
+- [28:05.690] One of the safest and very proud of that.
+- [28:08.410] Memphis, by the way, is coming along fantastically.
+- [28:10.750] We're in Memphis right now.
+- [28:14.150] We had the FBI in Chicago. We're doing things.
+- [28:17.050] We haven't served Chicago yet. When we do, Chicago will be,
+- [28:20.110] very quickly a very, very safe city.
+- [28:23.070] But if you look at what's happening in Memphis,
+- [28:24.950] it's great, but you got to look at Washington.
+- [28:27.190] People are coming up to me,
+- [28:28.470] people that work in the White House,
+- [28:29.730] they're saying, thank you, sir.
+- [28:31.340] And I immediately know what they're thanking me about.
+- [28:33.990] (inaudible) they can walk to work.
+- [28:35.690] They would never walk to work a year ago.
+- [28:38.350] They can walk into work and they feel safe and secure,
+- [28:41.170] and it's beautiful.
+- [28:42.490] And I'll tell you what, it's really an honor
+- [28:44.250] to add that great ballroom to the structures in Washington.
+- [28:47.740] It's going to be one of the great ballrooms of the world,
+- [28:50.010] and I think it's going to be something
+- [28:52.280] you're all going to be very proud of.
+- [28:55.370] The Press: As it relates to your meeting
+- [28:58.500] that's coming up with President Xi,
+- [29:00.290] what do you hope comes out of that meeting?
+- [29:01.700] What deliverables come out of that meeting?
+- [29:03.090] The President: I think we'll make a deal.
+- [29:04.310] I think we're going to make a deal on,
+- [29:06.020] the rare earth is the least of it.
+- [29:07.390] Look, the tariffs are much more powerful than the rare earth.
+- [29:10.340] The rare earth is a disturbance,
+- [29:12.130] but there's a lot of rare earth around.
+- [29:13.870] I'll tell you, I've had more calls on rare earth.
+- [29:16.320] We've got it. Everybody's.
+- [29:18.890] We'll make a deal on, I think, everything.
+- [29:20.650] I think we're going to make a deal on soybeans
+- [29:22.410] and the farmers.
+- [29:23.670] I think we're going to make a deal on maybe even nuclear.
+- [29:28.060] President Putin, in his call,
+- [29:29.490] mentioned to me about nuclear, where we do a de-escalation.
+- [29:33.870] And I'm fine with that. I think it's good.
+- [29:35.480] I think it's a very appropriate thing.
+- [29:37.210] We have the most nuclear weapons.
+- [29:38.960] Russia is second. China is actually third by a long way,
+- [29:42.700] but they'll be even within four or five years.
+- [29:46.580] Too many.
+- [29:47.810] And we are talking about de-escalation
+- [29:49.780] that's already being talked about.
+- [29:52.230] And I think we'll probably add China into the mix.
+- [29:54.920] The Press: Mr. President, can you convince President Xi
+- [29:57.110] to stop purchasing all that Russian oil
+- [29:59.780] that's funding this war against Ukraine?
+- [30:01.390] The President: Well, I think
+- [30:02.620] I'll be talking to them about it.
+- [30:04.130] I think it's a little bit of a different talk.
+- [30:05.910] India, as you know, has told me they are top--
+- [30:10.070] It's a process. You can't just stop it,
+- [30:11.900] but by the end of the year,
+- [30:13.550] they'll be down to almost nothing.
+- [30:15.810] That's a big thing.
+- [30:17.160] That was almost 40 percent of the oil, India.
+- [30:19.760] They've been great. Spoke to Prime Minister Modi yesterday.
+- [30:23.060] They've been absolutely great. China's a little bit different.
+- [30:26.750] They're a little bit different relationship
+- [30:28.750] they have with Russia. It was never good,
+- [30:30.910] but because of Biden and Obama, they got forced together.
+- [30:34.320] They should never have been forced together,
+- [30:35.910] but they're a little bit forced.
+- [30:37.200] But by nature, they can't be friendly.
+- [30:40.650] They can't be friendly. By nature--
+- [30:43.390] I hope they are friendly, frankly, but they can't be.
+- [30:47.090] You should not have forced Russia and China together.
+- [30:49.610] And Biden did that and Obama did that.
+- [30:53.270] They forced them together because of energy,
+- [30:55.160] because of oil.
+- [30:56.610] And so, they are closer than they would normally be.
+- [31:00.790] I think I'll probably be talking about it.
+- [31:02.350] What I'll really be talking to them about
+- [31:03.930] is how do we end the war with Russia and Ukraine,
+- [31:06.520] whether it's through oil or energy or anything else.
+- [31:10.730] And I think he's going to be very receptive.
+- [31:13.300] He would now like to--
+- [31:14.760] I'm not sure that he did at the beginning.
+- [31:16.760] He would now like to see that war end.
+- [31:20.080] The Press: Mr. President,
+- [31:21.450] do you think Xi plays an important role
+- [31:23.750] in terms of inserting himself and convincing Putin,
+- [31:27.570] who he speaks to regularly, to stop the war?
+- [31:29.230] The President: Yeah, I do.
+- [31:30.450] I think he can have a big influence on Putin.
+- [31:32.410] I think he can have a big influence on a lot of people.
+- [31:35.090] Look, he's a respected man.
+- [31:37.230] He's a very strong leader of a very big country.
+- [31:40.630] Yeah, I think he can have a big influence.
+- [31:42.230] And we will certainly be talking about Russia-Ukraine.
+- [31:46.330] In the back?
+- [31:48.370] The Press: Thank you, Mr. President.
+- [31:49.640] Liam (inaudible).
+- [31:51.010] My question is actually for the Secretary General.
+- [31:53.190] Mr. Secretary, I don't know if you've seen this,
+- [31:55.040] but polling out of Ukraine shows a massive collapse
+- [31:59.140] in Ukraine's war for the war.
+- [32:00.570] A Gallup poll had just 23 percent.
+- [32:02.830] That's less than a quarter. Zelensky came out today
+- [32:06.070] praising President Trump's proposal
+- [32:08.220] for freezing the front lines of battle as part of a ceasefire.
+- [32:12.780] He said that's a good compromise.
+- [32:14.350] So people view your coming here
+- [32:16.890] as you're lobbying the U.S. government
+- [32:19.130] to continue its involvement in the war.
+- [32:21.520] You're obviously lobbying for more NATO weapons
+- [32:23.560] to be sent to Ukraine,
+- [32:24.850] but Ukrainians themselves don't want to fight the war.
+- [32:27.370] So how do you justify that morally?
+- [32:29.150] Mark Rutte: Well, I'm lobbying only for one thing,
+- [32:31.630] and that is to make sure that we end this war.
+- [32:34.390] And I don't have to lobby the President
+- [32:35.780] because we totally agree on this,
+- [32:37.230] and this is what he has been doing from day one.
+- [32:39.800] Everything he could do to break the deadlock with Putin,
+- [32:42.450] get a dialogue going, dialoguing also with Zelensky,
+- [32:45.390] and getting this war done. It's crucial.
+- [32:48.180] And the fact that U.S. is now supplying weapons into Ukraine
+- [32:52.280] paid for by allies is extremely important.
+- [32:55.230] And that's now happening since two, three months.
+- [32:57.870] And about 2 billion moving into Ukraine.
+- [33:00.010] The Press: The war hasn't wind down.
+- [33:01.320] Why do you think that'll wind it down now?
+- [33:02.800] (inaudible)
+- [33:04.090] think more weapons will wind down the war?
+- [33:06.230] Mark Rutte: No, I mean, there's more to be done.
+- [33:07.630] So what you need --
+- [33:09.120] What the President said this weekend,
+- [33:10.670] stop where you are to basically do a ceasefire
+- [33:13.730] and then have all your discussions about territory
+- [33:15.990] and whatever. But first, stop the war.
+- [33:18.020] This is what you said on Friday and on Sunday. We have to.
+- [33:20.360] The President: It's a war.
+- [33:21.660] I mean, your question's really a fair one.
+- [33:23.210] It's a war that should have never started.
+- [33:25.230] And you know how I feel about it.
+- [33:27.060] But it's a war that should have never started.
+- [33:29.110] And we're not selling any weapons to Ukraine.
+- [33:31.540] We're selling them to NATO, which is different from before.
+- [33:34.850] With Biden, he just gave $350 billion worth of weapons
+- [33:38.560] and cash right into Ukraine and that was so foolish.
+- [33:42.530] But we sell them to NATO and in theory,
+- [33:46.270] you can do what you want with them.
+- [33:48.210] It doesn't have to be Ukraine, but probably it is mostly.
+- [33:50.480] Mark Rutte: No, what nations are doing now
+- [33:51.760] is buying from this program
+- [33:53.440] and making sure that the supplies here are great
+- [33:56.250] for Europeans and Canadians. And for example,
+- [33:58.330] these are interceptors for the patriot systems,
+- [34:00.540] crucial to protect the cities.
+- [34:03.570] Today, again, a Russian attack has killed children,
+- [34:06.330] or at least seriously wounded children
+- [34:07.790] in kindergarten in Ukraine. So we need to make sure
+- [34:10.950] that the air defense systems are in place
+- [34:13.400] and we need the U.S. systems to do that.
+- [34:15.420] And the Europeans are paying for that.
+- [34:16.700] And this is exactly the type of actions we needed.
+- [34:19.670] And the President is doing that,
+- [34:21.150] and trying everything to get this war to end,
+- [34:23.370] and starting with the ceasefire.
+- [34:24.740] The Press: Mr. President, do you still believe
+- [34:26.430] that Putin wants to take all of Ukraine?
+- [34:30.490] The President: I always felt that way.
+- [34:32.880] I always felt he wanted to. When I was in my first term,
+- [34:37.370] I was very close to him, relatively speaking.
+- [34:40.870] It was harder because of the Russia, Russia, Russia hoax.
+- [34:43.910] But I would talk to President Putin about Ukraine
+- [34:46.870] and it was the apple of his eye.
+- [34:48.360] I'd say it was the apple of his eye,
+- [34:51.080] but it would've never happened.
+- [34:52.560] He knew the consequences were too great.
+- [34:55.480] When we had a rigged election
+- [34:57.440] and all of a sudden I wasn't there, he said, wow.
+- [35:00.310] I think he looked at Afghanistan,
+- [35:01.760] how horribly that was handled, so stupidly.
+- [35:04.880] And I think that really gave him a little additional incentive.
+- [35:09.020] I always felt he wanted the whole thing, not a piece of it.
+- [35:13.680] But I think now he's willing to negotiate a little bit further
+- [35:17.920] and I think he's willing to make a deal.
+- [35:20.400] We'll see. We don't want him--
+- [35:23.810] We don't to have the whole thing.
+- [35:28.940] Go ahead, please.
+- [35:30.200] The Press: Thank you, Mr. President.
+- [35:31.450] You have this big tariffs case before the Supreme Court.
+- [35:34.020] It's November the 5th. (inaudible)
+- [35:35.690] suggested you might actually show up to the Supreme Court.
+- [35:37.750] The President: Yeah, I'd like to.
+- [35:38.960] I think it's one of the most important decisions
+- [35:41.370] we'll ever have for the Supreme Court.
+- [35:43.430] With tariffs, we're strong, sound country.
+- [35:46.880] We are a nationally secure and internationally secure country,
+- [35:51.320] and we're a very rich country.
+- [35:52.640] Without tariffs, it's a slog for this country.
+- [35:54.870] Big slog.
+- [35:56.190] I think it's one of the most important decisions
+- [35:58.330] in the history of the Supreme Court.
+- [36:00.080] And I might go there.
+- [36:01.590] I really believe I have an obligation to go there.
+- [36:04.920] We are doing so well as a country right now
+- [36:07.990] because of tariffs. And you have to understand,
+- [36:09.730] tariffs have been used against us for many years, decades.
+- [36:14.850] And I mean, just slowly but surely
+- [36:18.260] hurting our country so badly. That's why we owe $37 trillion.
+- [36:22.390] We owe that because other countries
+- [36:24.670] have taken advantage of us over many,
+- [36:26.690] many decades, over many decades. And now, we're a rich country.
+- [36:32.710] We're taking in money like we've never done before.
+- [36:34.790] Without tariffs, that would not be happening.
+- [36:37.380] And also, I solved, as you know, eight wars.
+- [36:41.270] Of the eight, five of them,
+- [36:42.740] maybe even six of them are because of tariffs.
+- [36:45.590] The threat of tariffs on these nation,
+- [36:48.430] if you want to fight, that's okay.
+- [36:50.490] India and Pakistan, if you want to fight,
+- [36:53.180] that's okay, but you're going to pay tariffs
+- [36:54.700] and they're going to be very substantial.
+- [36:56.500] And we're in the midst of a trade deal.
+- [36:57.910] And they said, "We don't want to do that."
+- [36:59.670] Two days later, they call up
+- [37:01.030] and they're not going to fight anymore.
+- [37:02.530] The peace, they have peace. But I've done that out of eight,
+- [37:07.500] I would say six, six times, five times, six times.
+- [37:11.130] Tariffs are vital to this country.
+- [37:14.600] And tariffs have been used against us by China,
+- [37:18.190] by every other country.
+- [37:19.690] And all we're doing is using them to negotiate fair deals.
+- [37:23.930] And as you know, we made a fair deal with Japan.
+- [37:26.140] We made a fair deal with all of Europe, the European Union.
+- [37:29.860] We made a fair deal with South Korea.
+- [37:32.310] These are countries that were taking so much money
+- [37:35.910] away from us, not sustainable.
+- [37:38.310] And now, we're taking in hundreds of billions
+- [37:41.800] and even trillions of dollars.
+- [37:43.930] If this country is not allowed to have tariffs,
+- [37:46.680] if this country is not allowed
+- [37:47.930] to have the President of the United States
+- [37:49.980] negotiate on behalf of it with tariffs,
+- [37:53.970] we are put in a position
+- [37:55.970] where we're going to be a third-world country.
+- [37:58.320] We can't let that happen.
+- [37:59.630] I think it's the most important case
+- [38:02.110] that we're going to have for many, many years to come,
+- [38:04.170] one of the most important cases we've ever had.
+- [38:06.620] With tariffs, we're a rich, secure country.
+- [38:10.330] Without tariffs, we're a laughing stock.
+- [38:12.440] We'll be a laughing stock.
+- [38:14.160] And I don't want to have anything to do with that.
+- [38:16.520] Thank you very much. Thank you.

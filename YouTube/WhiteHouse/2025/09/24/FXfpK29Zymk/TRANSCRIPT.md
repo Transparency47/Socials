@@ -1,0 +1,982 @@
+<!-- source: https://www.youtube.com/watch?v=FXfpK29Zymk -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: FXfpK29Zymk -->
+<!-- date_published: 2025-09-24T18:51:55+00:00 -->
+<!-- date_accessed: 2026-06-02T02:44:24.171136+00:00 -->
+
+# Transcript: Vice President JD Vance Delivers Remarks on Tax Cuts and Empowering Law Enforcement
+
+- [00:01.570] Male Speaker: The Vice President
+- [00:02.640] of the United States, J.D.Vance.
+- [00:07.760] ♪ (rock music playing) ♪
+- [00:32.955] (crowd chanting "U.S.A.")
+- [00:41.050] The Vice President: Thank you, thank you.
+- [00:42.490] Please, you guys, what a crowd. We love you too.
+- [00:45.100] Thank you, guys. It's good to see you.
+- [00:48.630] It's great to be back in the great state of North Carolina.
+- [00:51.210] Thank you all so much for having me.
+- [00:52.750] I want to thank, first of all,
+- [00:54.540] these incredible law enforcement officers we have behind us.
+- [00:57.410] Thank you for your service and for what you do.
+- [01:02.150] It's a good looking crew. It's little hot in here.
+- [01:05.370] Those of you watching at home
+- [01:06.700] don't know it's a little hot here
+- [01:08.660] and they've got their navy blue uniforms on over here.
+- [01:11.160] I bet they're even hotter
+- [01:12.410] than we are standing up there under the spotlight,
+- [01:14.960] but they've done much tougher jobs, I think, before.
+- [01:17.520] So we're thrilled to have you guys here.
+- [01:19.990] And I just wanted to say to all the law enforcement
+- [01:22.000] who are in this building,
+- [01:23.250] to all law enforcement watching at home,
+- [01:25.710] we love you, we're grateful to you,
+- [01:27.740] and we're always going to stand behind you.
+- [01:29.560] Thank you.
+- [01:30.850] (applause)
+- [01:35.210] Now I have a few other thank yous
+- [01:37.090] before we get to the meat of what I wanted to say here.
+- [01:39.620] First of all, we're in this incredible hangar,
+- [01:42.090] and it belongs to Dennis and Kay Yates.
+- [01:44.570] Where are Dennis and Kay at? Where are you guys?
+- [01:46.290] Thank you all so much. Thank you guys for having us.
+- [01:49.670] And of course, we are also thrilled to be joined
+- [01:51.800] by the hangar's previous owner, Jack Roush.
+- [01:54.620] So Jack, thank you so much for building this thing
+- [01:56.820] and for having us. It's good to be here.
+- [02:01.270] Now I'm joined by one of my favorite
+- [02:03.380] former Senate colleagues,
+- [02:05.530] and that is the great Senator Ted Budd from North Carolina.
+- [02:08.630] Ted, thank you so much.
+- [02:10.240] (applause)
+- [02:11.490] A very good guy.
+- [02:13.830] And I assume we have some other Republicans in here.
+- [02:15.980] So are we going to send Ted Budd, a great fellow Senator,
+- [02:19.270] and Michael Watley from the state of North Carolina?
+- [02:28.950] Now Michael Watley, I got to know he was the RNC chair.
+- [02:31.530] He was a great friend of me
+- [02:33.350] and of the whole administration during the race.
+- [02:35.470] But Michael loves the state of North Carolina.
+- [02:38.620] He's going to fight for law enforcement.
+- [02:40.400] He's going to fight for law and order.
+- [02:42.070] He's got to fight good jobs.
+- [02:43.480] He's got to fight for North Carolinians and nobody else.
+- [02:48.020] Michael Watly, God bless you, man.
+- [02:49.380] Thank you so much for being here.
+- [02:51.280] (applause)
+- [02:55.570] We've got Congressman Addison McDowell.
+- [02:57.450] Addison, where are you? Stand up and be recognized.
+- [02:59.680] Thank you, Addison.
+- [03:03.710] All right, this is your first term, right?
+- [03:05.980] Are you happy with what you signed up for?
+- [03:07.830] That's good, okay.
+- [03:09.340] Let's be honest, he couldn't say no, even if he wanted to.
+- [03:12.550] But he loves serving the great people in North Carolina
+- [03:15.120] and Washington. He does a very, very good job.
+- [03:17.770] And then I also want to give a shout out to Mark Harris.
+- [03:19.890] Mark, where are you, please?
+- [03:21.340] Mark, you're a great guy. Thank you for everything.
+- [03:26.130] But I want to just say that being here in North Carolina,
+- [03:29.060] we're here to talk about law and order.
+- [03:30.740] We're here talk to talk about law enforcement
+- [03:33.090] and we're here to talked about the basic fact
+- [03:36.020] that you all pay your taxes.
+- [03:38.320] They go to safe streets and safe cities.
+- [03:41.700] You ought to be able to enjoy the places
+- [03:44.550] that were built by your tax dollars.
+- [03:46.920] You ought to be afraid, or excuse me,
+- [03:48.980] the criminals ought to be afraid of you,
+- [03:52.080] you ought not be afraid of the criminals, it's very simple.
+- [03:58.670] And I think for too long in this country,
+- [04:00.310] we actually took the exact wrong approach.
+- [04:02.630] We tell people that if you were walking down a city street
+- [04:05.550] and there was a crazy person over there
+- [04:07.060] yelling and screaming at your kids,
+- [04:08.860] you ought to walk to the other side of the street
+- [04:11.690] rather than possibly be accosted by a violent person.
+- [04:14.480] Well, you know what I think?
+- [04:15.860] I think that if a person is being violent
+- [04:18.420] and threatening to young children and young families,
+- [04:21.470] they ought to send their asses to prison
+- [04:23.940] instead of telling people that they got across
+- [04:26.260] the other side of the street.
+- [04:27.860] (applause)
+- [04:31.880] Now, and Ted is going to be mad at me.
+- [04:33.340] Ted is a good Christian man.
+- [04:34.590] He does not cuss, so Ted, forgive me.
+- [04:36.690] I get a little fired up
+- [04:37.960] sometimes when I'm talking about this.
+- [04:39.430] Look, I've gotten into arguments with people before.
+- [04:42.710] A couple years ago, I took my family to New York City.
+- [04:45.220] This was when I was in the United States Senate.
+- [04:46.770] We spent a few days there.
+- [04:47.990] It was a wonderful trip in a lot of ways.
+- [04:50.300] But every time we went to the subway,
+- [04:52.540] I'd have one of my kids grabbing onto my leg or afraid
+- [04:56.450] because there was a crazy person yelling, hollering,
+- [04:58.860] and screaming at a three-year-old little kid.
+- [05:01.810] Why do we live like this?
+- [05:03.850] Why do accept this in our communities?
+- [05:06.100] And the answer is because of bad political leadership.
+- [05:09.800] We have accepted for too long this idea
+- [05:12.470] that we ought to give over our streets to criminals
+- [05:15.450] and to vagrants and to people who are screaming at us
+- [05:18.420] instead of taking back our streets
+- [05:20.920] with our incredible law enforcement.
+- [05:23.230] (applause)
+- [05:29.310] And there are so many things that we can do.
+- [05:31.050] You know, in Washington, D.C.,
+- [05:32.550] the first two months that we surged the National Guard,
+- [05:35.560] that President Trump surged the National Guard
+- [05:37.780] into Washington, D.C., there were no murders.
+- [05:40.800] Not a single murder for two weeks
+- [05:43.000] in the streets of Washington, D.C.
+- [05:44.500] And you know, we have all these world leaders who come.
+- [05:47.920] And we'll tell them, you know we haven't had a murder
+- [05:49.860] in Washington D.C. In two weeks.
+- [05:51.630] And these world leader will look at us and say,
+- [05:53.650] is that supposed to impress us?
+- [05:56.230] Like, that doesn't sound very good.
+- [05:57.500] But you know, to Washington, D.C.,
+- [05:59.390] which averaged last year a violent murder every other day,
+- [06:04.210] two weeks without a murder was a hell of a track record.
+- [06:07.880] And then we just surged the National Guard to Memphis,
+- [06:09.850] Tennessee.
+- [06:11.080] Again, a Democrat city, a democrat city in a red state.
+- [06:14.530] But where the mayor said we are sick of our people
+- [06:17.710] being afraid to walk safely on the streets.
+- [06:20.530] So why don't you help us? And that's our basic attitude
+- [06:23.550] in the Trump administration is look.
+- [06:25.570] We should not allow people to take over.
+- [06:27.930] We should allow these violent criminals
+- [06:29.610] to takeover city streets.
+- [06:31.310] And if the local government wants our help,
+- [06:34.220] if the local authorities want our help.
+- [06:36.240] Then we are going to help them
+- [06:37.570] because we stand for American safety everywhere,
+- [06:41.040] whether it's a big city or a small one.
+- [06:42.820] Thank you, young man.
+- [06:48.040] So this is what it means being pro-law
+- [06:50.260] and order is actually not that difficult.
+- [06:52.420] There are some things we do, some issues we address.
+- [06:55.460] They're so complicated and so challenging.
+- [06:58.180] But supporting our local law enforcement
+- [07:00.180] is actually pretty easy.
+- [07:01.650] It's just a question of political willpower.
+- [07:04.350] Here's thing number one. Very simple.
+- [07:06.680] If we if our great police officers find a violent criminal
+- [07:11.420] and lock them up, we ought to keep them locked up
+- [07:13.970] instead of letting them back on our streets
+- [07:15.580] with a slap on the wrist.
+- [07:22.190] That means we want to give our police officers
+- [07:24.120] the very best equipment
+- [07:25.740] and the very protection anywhere in the world.
+- [07:28.590] We want you guys to have the very best
+- [07:30.730] and we're going to fight every single day
+- [07:32.130] to make sure that they have it.
+- [07:34.230] It means punishing state and local jurisdictions
+- [07:37.980] that restrict your ability to do police work.
+- [07:41.460] They just want to do their jobs.
+- [07:42.850] They ought to be allowed to do it.
+- [07:46.610] And it means pursuing enhanced sentences for violent criminals,
+- [07:51.680] like the violent criminal who murdered
+- [07:53.880] that poor innocent girl in Charlotte,
+- [07:56.200] North Carolina just a couple of months ago.
+- [07:58.500] And I want to talk about her for a second
+- [08:00.040] because I think it oh, we got a beautiful baby over there.
+- [08:03.210] How you doing, ma'am? How -- I would like to, how old is she?
+- [08:08.510] Six months old. Beautiful.
+- [08:09.980] Thank you. Thank you for bringing her.
+- [08:11.470] We want law and order for her above all else, right?
+- [08:13.790] That's why we're doing what we do.
+- [08:15.780] (applause)
+- [08:21.120] We all know a couple of weeks ago,
+- [08:23.500] and it's one of these things that got bumped out of the news
+- [08:25.840] because of the political assassination of Charlie Kirk.
+- [08:28.150] And so let me talk just a bit about that.
+- [08:30.090] You all know Charlie. He was a great guy.
+- [08:32.500] He was great husband, a great father.
+- [08:34.370] He believed in two things, I think, above all else.
+- [08:37.540] Number one, the second most important is he believed
+- [08:40.800] in political debate in the United States of America
+- [08:43.300] that we ought to talk about our disagreements
+- [08:45.620] and not attack one another over our disagreements.
+- [08:47.970] And he gave his life dying for that principle.
+- [08:50.690] And the second thing he believed,
+- [08:52.260] and it was the most important,
+- [08:53.840] is that he wanted to be a Christian evangelist.
+- [08:56.850] He wanted to bring the gospel everywhere.
+- [08:58.960] And he saw connecting with people and debating politics
+- [09:02.600] as an opportunity to talk about his faith.
+- [09:04.850] And I think it's important to honor him
+- [09:06.690] by recognizing that this is a kid,
+- [09:09.070] and he was, he died at 31 years old.
+- [09:11.540] This is a kid who every single day,
+- [09:14.060] he would go to these college campuses,
+- [09:15.680] he would talk for three hours with anybody
+- [09:17.920] about whatever they wanted to talk about.
+- [09:19.920] And he believed in the civic virtue of open debate.
+- [09:24.100] He gave his life to protect that civic virtue.
+- [09:27.250] And he gave his live serving
+- [09:29.070] that civic virtue at the highest level.
+- [09:30.620] He was a great guy, and his loss was the nation's loss.
+- [09:33.940] And Erika, we love you. Erika's his beautiful widow.
+- [09:36.910] And I think you all will join me in saying
+- [09:38.700] that what happened to Charlie was disgusting,
+- [09:41.440] it was unacceptable,
+- [09:42.780] and it is the most anti-American act of violence
+- [09:45.310] that we've seen in the last couple of weeks in this country.
+- [09:48.140] It was a disgrace.
+- [09:57.840] Thank you all.
+- [10:03.880] I appreciate that, and the thing is,
+- [10:07.250] it actually bumped out of the news
+- [10:09.930] this terrible story in Charlotte.
+- [10:11.300] And here's the basic summary, as far as I can recall it,
+- [10:15.230] is you have a violent criminal who has been arrested 14 times,
+- [10:21.170] often for very violent offenses,
+- [10:23.530] who gets on a bus with an innocent young girl,
+- [10:26.110] 22 years old, and slits her throat and she dies.
+- [10:30.470] She died because she was coming home from work.
+- [10:32.730] She worked at a pizzeria.
+- [10:34.400] She came from a beautiful family.
+- [10:36.490] She had a young boyfriend.
+- [10:37.850] She had her entire life ahead of her.
+- [10:40.440] And she was actually a refugee from Ukraine.
+- [10:43.830] So she came from war-torn country.
+- [10:46.810] She sought shelter in the United States of America.
+- [10:50.350] And because of soft on crime policies, she was murdered here,
+- [10:54.810] not in the war-torrent country she came.
+- [10:56.710] Isn't that a disgrace? And isn't that an insult
+- [10:59.350] to the incredible law enforcement officers
+- [11:01.420] who arrested this person 14 times?
+- [11:05.160] They did everything that they could to keep
+- [11:07.340] this thug off the streets.
+- [11:09.170] And it was the political leadership that failed.
+- [11:11.410] And we got to be honest about that.
+- [11:13.140] I saw former Governor Cooper say,
+- [11:15.690] and this is Michael Watley's opponent.
+- [11:17.580] Former Governor Cooper
+- [11:18.850] said just a couple of days after the attack
+- [11:21.710] that we have got to do more when it comes to law enforcement
+- [11:25.100] to keep people like this off the street.
+- [11:27.250] And my response was, Governor, he was arrested 14 times.
+- [11:32.100] Law enforcement did their job.
+- [11:33.940] It's time for you to do your job.
+- [11:45.800] And it's so amazing to me, political Democrats,
+- [11:49.000] I don't think it's all Democrats.
+- [11:50.330] I actually think most Democrats want what most
+- [11:52.210] Republicans want, which is safety and their communities.
+- [11:54.880] But they always manage to turn issues of crime
+- [11:58.550] into a distraction about race.
+- [12:00.320] They always try to say that law enforcement,
+- [12:03.080] locking violent criminals up, is inherently racist.
+- [12:05.850] And I've got to be honest with you,
+- [12:07.070] that's an insult to white people.
+- [12:08.370] It's an assault to black people, too.
+- [12:10.180] Because all of us just want to live safely in our communities.
+- [12:13.420] It doesn't make an ounce of sense to me.
+- [12:16.740] But I actually, because of these Democrats' talking points,
+- [12:19.440] I went and looked up, do you know that in most big cities,
+- [12:23.400] the gross majority, over 90% of violent crime
+- [12:27.300] is committed by fewer than 1% of the city's residents?
+- [12:30.920] This is not a black-white issue.
+- [12:32.790] This is we've got a small percentage
+- [12:35.710] of violent criminals in our communities.
+- [12:38.200] Democrats want to let them out of prison
+- [12:39.750] and Republicans want to put them in prison
+- [12:41.710] and keep them there so that all of us are safe in the process.
+- [12:44.730] I think that's common sense, don't you?
+- [12:52.960] So I also got to talk a little bit
+- [12:54.550] about another law and order problem.
+- [12:56.640] I said Charlie Kirk's assassination
+- [12:59.260] was the most political and disgusting violence
+- [13:02.140] that we've had in this country in the last couple of weeks.
+- [13:05.060] And that was true maybe until this morning.
+- [13:07.660] Because I don't know if you all have followed the news
+- [13:09.970] and we're still learning a little about it.
+- [13:12.020] But what we know is that in Dallas, Texas,
+- [13:14.600] an ICE facility,
+- [13:15.870] an Immigrations and Customs Enforcement Facility,
+- [13:18.900] was opened fire upon by a violent left wing extremist,
+- [13:23.370] a person who wrote anti-ICE messaging on their bullets.
+- [13:26.650] And there's some evidence that we have that's not yet public,
+- [13:29.740] but we know this person was politically motivated.
+- [13:32.510] They were politically motivated to go after law enforcement.
+- [13:36.480] They were political motivated to go after people
+- [13:39.400] who are enforcing our border.
+- [13:41.370] I think that is the most disgusting thing.
+- [13:43.460] The very people who keep us safe,
+- [13:46.760] honored and protected by Democrats,
+- [13:51.910] it is time to stop the rhetorical assault
+- [13:54.880] on law enforcement. Because here's what happens.
+- [14:02.280] Because here's what happens when Democrats like Gavin Newsom
+- [14:05.820] did say that these people
+- [14:07.680] are part of an authoritarian government.
+- [14:10.310] When the left-wing media lies about what they're doing,
+- [14:13.210] when they lie about who they're arresting,
+- [14:14.860] when they lied about the actual job of law enforcement,
+- [14:18.400] what they are doing is encouraging crazy people
+- [14:20.750] to go and commit violence.
+- [14:22.740] You don't have to agree with my immigration policies.
+- [14:25.450] You don't have to agree
+- [14:26.720] with Donald Trump's immigration policies,
+- [14:28.990] but if your political rhetoric encourages violence
+- [14:32.650] against our law enforcement, you can go straight to hell
+- [14:35.730] and you have no place in the conversation
+- [14:38.780] of the United States of America.
+- [14:57.790] Just yesterday, NBC News, maybe the worst of all the fake news,
+- [15:02.280] and I'm sure we have an NBC reporter out there,
+- [15:04.800] it's a tough competition for NBC News.
+- [15:07.640] But maybe the worse, I said, maybe the the worst is NBC News
+- [15:11.320] and they said that immigration enforcement,
+- [15:13.430] you know what they said,
+- [15:14.670] that immigration in order to get to that girl's father.
+- [15:17.980] Turned out that story was a complete fabrication.
+- [15:21.210] It was a completely dishonest lie.
+- [15:23.880] But when you go around and lie about our law enforcement
+- [15:27.030] and you tell them that they're mistreating five-year-old girls,
+- [15:30.220] what do you think is going to happen?
+- [15:31.940] When democratic politicians incur doxing,
+- [15:35.340] when they encourage us to unmask ICE enforcement officers,
+- [15:39.800] when they encouraged us to unmasks ICE enforcement officer,
+- [15:43.870] what do think is going to happen
+- [15:45.510] when the mayor of Los Angeles encourages violent protesters
+- [15:49.080] to get in the face of our law-enforcement,
+- [15:51.330] what do you think is going happen?
+- [15:52.820] What's going to happen is political violence
+- [15:54.950] and political violence
+- [15:56.260] has gotten out of control in this country.
+- [15:58.740] We got to stop it, we got to condemn it
+- [16:00.600] and that starts, unfortunately,
+- [16:02.420] at the very top of the Democratic Party.
+- [16:05.110] If you want to stop political violence,
+- [16:07.290] stop attacking our law enforcement as the Gestapo.
+- [16:10.540] If you want to stop political and violence,
+- [16:12.690] stop telling your supporters
+- [16:15.360] that everybody who disagrees with you is a Nazi.
+- [16:18.110] If you wanted to stop political violence.
+- [16:20.270] Look in the mirror, that's the way
+- [16:21.920] that we stop political violence in this country
+- [16:24.340] and we've got to do it.
+- [16:33.050] And while we're all mourning and rooting for and praying
+- [16:36.810] for everybody who was injured at that ICE facility
+- [16:39.300] and as far as we know,
+- [16:40.900] it looks like some of the detainees, in other words,
+- [16:43.610] some of the potential illegal aliens
+- [16:45.750] were some of those who were affected.
+- [16:47.240] Look, just because we don't support illegal aliens,
+- [16:50.250] we don't want them to be executed by violent assassins
+- [16:53.790] engaged in political violence either.
+- [16:55.910] So we're praying both for our ICE agents
+- [16:58.520] but also for everybody who's affected
+- [17:00.890] by this terrible attack. But that was an ICE facility.
+- [17:03.950] And as these guys behind me know
+- [17:05.470] and a few of our police officers know,
+- [17:07.570] police officers writ large face too many threats of violence
+- [17:12.590] all across the United States of America.
+- [17:14.960] And we know where it started.
+- [17:16.550] We all remember the summer of 2020
+- [17:19.180] when all of these violent protesters were encouraged
+- [17:22.080] to treat police as the enemy instead of as the solution.
+- [17:26.290] You take a thousand police officers
+- [17:28.420] you'd find one person who didn't do something perfect
+- [17:31.310] and use that one guy to tarnish the other 999 police officers.
+- [17:36.490] Well, I would like everybody, whether a Democrat,
+- [17:39.640] a Republican or an independent,
+- [17:41.200] especially those in political leadership,
+- [17:43.570] can we all just agree that our police officers are heroes,
+- [17:48.180] that they are public servants
+- [17:49.610] and that the first and most important step
+- [17:52.530] of keeping all of us safe
+- [17:54.260] is to keep our police officer safe
+- [17:56.210] because they are the thin blue line
+- [17:58.480] between civilization and chaos. Thank you all.
+- [18:13.280] It just happens too much.
+- [18:15.340] Our police officers being assaulted,
+- [18:17.670] our police officers, being attacked.
+- [18:19.680] You have these crazy attacks where you have a cop
+- [18:22.720] in a squad car who's enjoying their lunch break
+- [18:24.970] and somebody comes up and summarily executes them
+- [18:27.820] before the cop even had a chance.
+- [18:30.040] It happens way too much and it happens
+- [18:32.470] because too many of our political leaders
+- [18:35.060] have encouraged it. Now, and it's not just that.
+- [18:37.850] It's not the rhetoric that encourages violence
+- [18:39.890] against our law enforcement.
+- [18:41.190] You know, when I was in the Senate.
+- [18:43.210] There was a big bill that was going around
+- [18:45.090] and it was basically that we were going
+- [18:46.690] to try to eliminate qualified immunity from police officers.
+- [18:51.280] One of the most disgraceful and worst ideas that I've ever seen.
+- [18:54.380] In other words, that we are going to make it easy
+- [18:56.820] for criminals
+- [18:58.060] to sue police officers for doing their job.
+- [19:01.450] Now, does anybody think when you see the fake news media
+- [19:04.050] and the way they attack our police officers,
+- [19:06.090] does anybody that we need to make it harder
+- [19:08.730] for our police to do their job? Some of America's cities today,
+- [19:13.180] some of America cities today have worse murder rates
+- [19:16.810] than the very worst third world cities all over the world.
+- [19:21.740] That's not a joke. You go to Port-au-Prince,
+- [19:23.860] Haiti or you go to some of the poorest countries
+- [19:26.270] all over world.
+- [19:27.540] Even those countries have a better murder rate
+- [19:30.480] than Washington, D.C.
+- [19:31.750] Or some of major American cities.
+- [19:33.140] Some of them have better murder rates than Charlotte,
+- [19:34.940] North Carolina. That's a disgrace.
+- [19:37.490] All of us should be asking, how do we make that better?
+- [19:39.990] How do we make people safer in their communities?
+- [19:41.980] How do make it easier for a young family
+- [19:44.120] to walk down the street in security and comfort?
+- [19:47.420] But unfortunately, we've got a crew of violent radicals
+- [19:52.360] in the United States of America
+- [19:53.810] who think we ought to make it harder for police
+- [19:55.620] to keep us safe than easier for police keep us save.
+- [19:58.830] So here's one thing I'd like to do.
+- [20:00.310] I'd every single Democrat starting today
+- [20:03.710] and every Republican too while we're at it to say
+- [20:06.540] that we are going to defeat these efforts to strip.
+- [20:09.760] Immunity from our police officers.
+- [20:12.060] We're going to make it easier for them to do their job,
+- [20:14.490] not harder for them do their jobs.
+- [20:15.970] Let's fight for it every single day.
+- [20:29.090] That's exactly right, sir. That's exactly right.
+- [20:31.080] You can say that, but I can't.
+- [20:32.790] I've hit my quotient for cuss words today.
+- [20:36.010] I don't want Ted Bud to disown me.
+- [20:37.640] So I'm not going to say that but we can run the clip back later.
+- [20:42.270] But let me just leave you with one final thought here.
+- [20:46.060] Look, I was asked earlier today by a reporter,
+- [20:48.190] a reporter I actually like, but a reporter who said,
+- [20:51.190] well, don't both sides have crazy people?
+- [20:53.090] And of course, obviously. Country 330 million people,
+- [20:57.010] of course both sides have crazy people.
+- [21:00.030] But if you look at the political violence in our country
+- [21:02.660] over the last couple of months,
+- [21:04.090] the last of years, it is not a both sides problem.
+- [21:07.630] It is primarily on one side of the political aisle.
+- [21:11.640] So if we are going to truly go
+- [21:14.250] after the political in this country,
+- [21:17.070] we need the Democratic leadership of Washington, D.C.
+- [21:20.630] To look in the mirror.
+- [21:22.080] We need them to renounce all political violence.
+- [21:25.030] When a poor kid like Charlie Kirk
+- [21:27.090] is gunned down in cold blood,
+- [21:28.940] we need them to start with condemning the violence
+- [21:31.830] instead of condemning something that Charlie Kirk said
+- [21:34.260] that they disagreed with.
+- [21:37.320] When you have an entire network of left-wing organizations
+- [21:43.640] that encourage, that promote, and that apologize for violence,
+- [21:47.280] you know what you're going to get out of it?
+- [21:48.980] You're going to political violence
+- [21:50.670] So here's my sacred obligation to you,
+- [21:53.000] to all the law enforcement, but every person,
+- [21:55.630] whether they wear a uniform or not.
+- [21:57.790] Over the next couple of years,
+- [21:59.100] the Trump administration is going to do everything
+- [22:01.740] that we can to dismantle
+- [22:03.610] the networks, to destroy the funding,
+- [22:06.200] and to make it harder for people to kill one another
+- [22:09.590] just because they disagree with what somebody says.
+- [22:12.030] That is what we're going to do. We're going to fight for it.
+- [22:15.130] (applause)
+- [22:21.390] Let me just leave you with this one final thought.
+- [22:23.450] Now most of the time when I go around to events like this,
+- [22:26.490] I'm talking about our big, beautiful bill,
+- [22:29.010] our Working Families Tax Cuts,
+- [22:30.550] and I want to leave us just with a reflection on that
+- [22:33.100] because while we're talking about law and order today
+- [22:35.540] and we're honoring the police,
+- [22:37.120] one of the ways in which we rebuild the American dream
+- [22:40.520] is by allowing you to keep more of your hard-earned money.
+- [22:43.310] And that bill that these great congressmen worked on
+- [22:45.580] and the great senator here, what it did was very simple.
+- [22:48.660] It increased the child tax credit.
+- [22:50.740] It meant that we're going to increase take-home pay
+- [22:53.060] by about $10,000
+- [22:55.000] over the four years of the Trump administration.
+- [22:57.360] It means that if you're working on tips
+- [22:59.720] or if you work in an overtime shift,
+- [23:01.640] the government is going to take less of your money,
+- [23:04.190] and I think that's a pretty good idea
+- [23:05.560] because if you are working hard,
+- [23:07.100] I think the government ought to keep its hands
+- [23:08.790] out of your pocket.
+- [23:10.080] We're going to do all those things.
+- [23:15.200] Because I believe the American dream
+- [23:16.900] is fundamentally about this principle.
+- [23:18.540] It's about the principle that for all the parents
+- [23:20.610] and grandparents out there,
+- [23:21.810] and I'm now the parent of three beautiful young kids,
+- [23:24.680] I just want them to have a better life
+- [23:26.230] than the life that I have.
+- [23:27.520] That, to me, is the core of the American Dream,
+- [23:30.350] the promise that if you work hard and play by the rules,
+- [23:33.140] we're going to give our kids
+- [23:34.520] and we're going to give our grandkids
+- [23:35.860] something that's just a little bit more prosperous,
+- [23:38.530] a little more secure, and a little a bit more proud
+- [23:41.520] than what we were given when we were kids.
+- [23:43.590] That is. I think our sacred obligation,
+- [23:46.560] that by inheriting a great country
+- [23:48.370] from our parents and grandparents,
+- [23:50.090] we got to pass on something even greater to the next generation.
+- [23:53.420] But none of that, none of matters without law
+- [23:56.860] and order and public safety.
+- [23:58.490] How can you have the American Dream
+- [24:01.030] if you can't walk down your neighborhood in safety?
+- [24:04.420] How can have the America Dream
+- [24:06.210] if you're worried about getting mugged
+- [24:08.480] when you're taking your family out to a nice meal downtown?
+- [24:11.600] How can you have the American Dream when every celebration,
+- [24:15.290] every big moment in a person's life,
+- [24:17.350] you're too worried about violent crime
+- [24:20.180] and not focused enough on the things
+- [24:22.390] that make life worth living?
+- [24:24.070] One of the things that we have got to get back to remembering
+- [24:26.840] is that if we want to preserve the American dream,
+- [24:29.640] we've got to preserve the right of everybody, rich or poor,
+- [24:33.200] to live in safety and security in their neighborhoods.
+- [24:36.200] You know, when I grew up in Middletown, Ohio in the 90s,
+- [24:38.970] we didn't have a whole lot of money.
+- [24:40.700] I was raised by a woman who struggled very often
+- [24:43.070] to put food on the table and clothes on her back,
+- [24:45.360] Mammal, everybody loves Mammall, most of all me.
+- [24:49.250] But you know what, for all of the problems that we had,
+- [24:51.580] for all the times that Mammel was worried
+- [24:53.520] about where our next meal would come from,
+- [24:55.320] for all times that Mamma was sometimes terrified
+- [24:58.870] that she wouldn't be able to make an important bill payment,
+- [25:01.690] we never worried about public safety.
+- [25:05.010] And the reason we never worry about public safe,
+- [25:07.220] the reason she knew I could go across the street
+- [25:09.560] and play in the park. And safety and comfort
+- [25:12.420] is because we had something in this country
+- [25:14.820] and that was a recognition, Democrat and Republican
+- [25:17.860] that we stood with law enforcement
+- [25:19.520] and we stood their mission.
+- [25:21.110] It didn't matter what your political affiliation was,
+- [25:24.140] we wanted to support people who kept our community safe.
+- [25:27.620] And that's something we've gotten away from
+- [25:29.170] because a lot of the people who report on the news,
+- [25:31.670] a lot the people that actually make policy in Washington,
+- [25:34.150] D.C., let's be honest, they are wealthy people
+- [25:37.160] who can block themselves off
+- [25:38.710] from the consequences of the policies
+- [25:40.820] they impose on the rest of us. Now maybe.
+- [25:48.460] Now maybe they never had to call a police officer
+- [25:51.700] because they can call a private security guard.
+- [25:54.300] Maybe they've never had their home broken into
+- [25:57.410] because they live behind a gated community.
+- [26:00.120] Maybe they don't have to worry about
+- [26:02.220] walking down the streets of a city safely
+- [26:04.320] because they've got a driver and a big fancy car
+- [26:06.970] who can take them from point A to point B,
+- [26:09.100] but that is not true of the gross majority of our citizens.
+- [26:11.980] So I want to tell you,
+- [26:13.190] when I talk about protecting the American dream.
+- [26:16.050] When President Trump talks about fighting for the American dream,
+- [26:19.290] at the very top of that list is fighting for your ability,
+- [26:23.290] whether you're rich or poor,
+- [26:25.000] to be safe in the home that you love.
+- [26:27.630] It is our sacred obligation, it's their sacred obligation
+- [26:31.080] and we're going to work for it every single day.
+- [26:33.190] God bless you. Thank you for having me.
+- [26:36.610] (applause)
+- [27:00.570] Now I forgot, I told them the fake news
+- [27:03.470] and I'm sure there was some real news back there.
+- [27:05.270] I told him I'd take a few questions.
+- [27:06.600] So I'm not getting out of here just yet.
+- [27:08.780] We'll take a questions from the reporters.
+- [27:10.450] I would prefer to start with some of the local
+- [27:12.230] North Carolina folks
+- [27:13.590] and then we can take some national questions after that.
+- [27:17.270] Do we have a microphone back there?
+- [27:19.780] The Press: Vice President.
+- [27:21.220] The Vice President: I can't see you.
+- [27:22.710] The Press: Mr. Vice President,
+- [27:23.990] thank you for taking questions from us
+- [27:26.570] and thank you visiting Concord.
+- [27:28.380] You referenced the awful death of Irina Zarutska.
+- [27:31.580] I'm just curious, have you had the chance
+- [27:33.570] to watch that awful video that was released by Katz
+- [27:38.690] and what your thoughts are after viewing it?
+- [27:41.590] The Vice President: Yeah, you know,
+- [27:42.840] I've honestly seen a lot of gruesome footage,
+- [27:46.030] some involving my friends over the last couple of weeks,
+- [27:48.860] but the footage of Irina getting stabbed to death
+- [27:52.970] is very hard to watch.
+- [27:54.350] And I have not seen the whole video from start to finish.
+- [27:58.350] I actually, I had to cover my eyes for part of it
+- [28:01.030] because it is so gruesome
+- [28:02.250] and maybe I should just stare at it.
+- [28:04.180] Maybe all of us should stare at to know the kind of evil
+- [28:06.770] that we're actually confronting
+- [28:08.130] because what happened to her was really, really disgusting.
+- [28:12.080] And I think it comes from a deep and dark
+- [28:14.240] and evil place that exists.
+- [28:16.410] Thankfully, in a very few number of people,
+- [28:18.780] but those people we ought to lock up in prison
+- [28:20.360] so they can't get anybody else. But when I saw that video,
+- [28:23.670] you know what really got me as a father?
+- [28:25.290] I've got three little kids, two boys,
+- [28:27.240] and my youngest is a baby girl.
+- [28:28.670] She's three years old. She is the apple of my eye.
+- [28:31.260] As you dads will know, daughters just have an effect on us.
+- [28:34.170] They get away with more stuff.
+- [28:36.180] They, don't they? It's kind of annoying actually.
+- [28:40.800] She gets away with things she should not get away
+- [28:42.770] with that her brothers would never get away from, get away.
+- [28:45.520] But I look at this girl who's 22 years old
+- [28:50.080] and I think to myself,
+- [28:52.050] I would love for my daughter to have the kind of life
+- [28:56.580] where she never has to worry about that.
+- [28:58.970] And there's this moment where she looks up at her attacker
+- [29:01.550] and she covers her mouth
+- [29:02.830] and you realize what's going through her head.
+- [29:05.110] She knows that something very terrible has happened to her.
+- [29:08.680] And I hope that she didn't realize it for too long
+- [29:10.600] because that is unimaginable suffering.
+- [29:12.890] But if you're a man, I don't care what skin color you are.
+- [29:15.670] I don't care whether you're rich or poor,
+- [29:17.460] but if you are a man and you see the pleading eyes of a girl
+- [29:21.570] looking up for protection,
+- [29:23.200] then we have to protect our girls
+- [29:25.380] and our women in this country.
+- [29:28.470] (applause)
+- [29:36.510] And that was my reaction to it.
+- [29:38.070] That was my thought when I watched it.
+- [29:39.450] Now, young man, this is a very earnest young man.
+- [29:42.360] He doesn't look like a journalist to me,
+- [29:44.260] but go ahead and shout out a question
+- [29:45.810] because I'm not going to deny that level of energy
+- [29:48.910] and that level passion. First of all, what's your name?
+- [29:51.080] The Press: Henry.
+- [29:52.290] The Vice President: It's good to meet you, Henry.
+- [29:53.720] Ask your question, please.
+- [29:55.340] The Press: (inaudible)
+- [30:06.550] The Vice President: Come up here.
+- [30:07.810] (cheers and applause)
+- [30:12.590] The Vice President: Henry said I skipped school.
+- [30:13.990] Can I have a picture with you?
+- [30:15.300] Well, I guess you got to have some excuse to skip school,
+- [30:18.440] so I might as well get a photo with Henry.
+- [30:42.960] (applause)
+- [30:55.160] The Vice President: Now the next reporter's going to be,
+- [30:57.390] hey, I'm from CNN, can I get a photo with you too?
+- [31:00.650] I wish that I got questions that easy.
+- [31:02.360] I'm not holding out hope.
+- [31:07.320] Can we get you a microphone? I can't hear you, sir.
+- [31:09.540] The Press: Gotcha. I'm Jordan Green with Raw Story.
+- [31:13.450] President Trump and other speakers here
+- [31:15.960] have blamed former Governor Cooper
+- [31:19.930] and the mayor of Charlotte for Irina Zrutska's death.
+- [31:24.160] Do you also hold the North Carolina General Assembly
+- [31:28.160] responsible who set the laws governing pretrial release
+- [31:32.270] that may have affected this crime?
+- [31:35.040] The Vice President: Well, look, I think every politician
+- [31:37.250] who didn't work hard to keep violent criminals behind bars
+- [31:40.350] deserves to have some of the blame,
+- [31:42.570] but at the very top of that list is Governor Cooper,
+- [31:45.110] because at the time that we were pushing
+- [31:46.750] these soft-on-crime policies,
+- [31:48.670] Governor Cooper was the man in charge.
+- [31:50.320] Now, I know we've got some great North Carolina legislators,
+- [31:53.890] and I might call them out if they're here.
+- [31:55.360] Do we have a North Carolina House speaker,
+- [31:57.410] Destin Hall, where's Destin at, Destin?
+- [31:59.030] Thank you, man. We have Phil Berger here.
+- [32:03.680] Phil, thank you so much, Senate President Pro Tem.
+- [32:07.360] We've got County Sheriff Van Schall.
+- [32:09.290] Where's County Sheriff Van Schall?
+- [32:10.650] Thank you, sir.
+- [32:11.910] (applause)
+- [32:14.850] We've got Cabras County DA Ashley Shanley.
+- [32:18.580] Is it Shanley? I got that right, okay.
+- [32:21.040] (applause)
+- [32:23.020] Of course, we've got North Carolina GOP Chairman
+- [32:25.370] Jason Simmons. Jason Simmons is --.
+- [32:28.210] (applause)
+- [32:29.770] That's a celebrity in the Trump White House there.
+- [32:31.980] North Carolina Labor Commissioner Luke Farley.
+- [32:34.600] Luke, where are you? Luke, thank you.
+- [32:38.850] I know that our great North Carolina
+- [32:40.770] local legislators here have worked very hard
+- [32:43.070] to solve some of these soft-on-crime policies
+- [32:46.130] and make it harder to let violent criminals out so easily
+- [32:49.080] and to demand that when you have a violent criminal who goes in,
+- [32:52.960] the person stays there
+- [32:54.230] and doesn't get a slap on the wrist
+- [32:55.700] and release to commit more crime in the community.
+- [32:57.800] That's what we want.
+- [32:59.170] We don't want a criminal justice system
+- [33:02.950] that goes after innocent people.
+- [33:04.370] We also don't want to criminal justice system
+- [33:06.590] that lets obviously violent felons off the,
+- [33:11.340] out of prison without any real consequences.
+- [33:13.350] It's just very simple.
+- [33:14.700] And again, I go back to the statistic
+- [33:16.200] where we've got such a small number of people
+- [33:19.420] who commit so much of the violent crime
+- [33:21.400] if we just locked them up.
+- [33:23.470] And I mean, look, I believe in repentance.
+- [33:26.240] And I believe in forgiveness, but I believe that forgiveness
+- [33:29.020] often only comes on the other side of real punishment
+- [33:32.870] and real regret, which is why we got to lock
+- [33:34.690] some of these guys up in the first place.
+- [33:36.800] So yeah, I blame the political leadership.
+- [33:38.820] And I just -- I can't get over a governor
+- [33:42.230] who pursued soft-on-crime policies,
+- [33:44.100] Roy Cooper who pursued, soft- on-crimes policies,
+- [33:47.290] who let violent criminals out of prison.
+- [33:48.930] And then after Irene was murdered
+- [33:51.060] to have the audacity to blame our law enforcement.
+- [33:53.520] Law enforcement arrested this guy 14 times.
+- [33:57.090] They did their job.
+- [33:58.310] It's time for the politicians to do their job too.
+- [34:02.000] Next question.
+- [34:03.270] (applause)
+- [34:06.750] The Press: Vice President Vance,
+- [34:07.960] thank you so much for taking questions.
+- [34:10.180] I'm Casey Jones from WCCB Charlotte.
+- [34:13.480] When it comes to cracking down on crime in cities like D.C.,
+- [34:17.280] Memphis, Chicago, sending the National Guard,
+- [34:20.750] what specific metrics does the administration use
+- [34:23.690] to decide where those resources go?
+- [34:26.250] And can we expect that kind of response
+- [34:28.620] here in Charlotte anytime soon?
+- [34:30.940] The Vice President: Well, look, if the mayor of Charlotte
+- [34:32.490] and the governor of North Carolina
+- [34:33.850] asked for our help, we would absolutely send it
+- [34:36.040] because we believe in helping people
+- [34:37.700] regardless of whether they're Democrats or Republicans.
+- [34:40.360] We would love to have the mayor of Charlotte reach
+- [34:41.970] out for our health.
+- [34:43.180] And that's, you asked what the metrics are.
+- [34:44.940] That's one of the most important metrics.
+- [34:46.740] We want to go where we can have a real partnership
+- [34:49.710] between local law enforcement and the federal officials
+- [34:52.950] so that we can root out the crime.
+- [34:54.780] And that goes to the second metric.
+- [34:56.120] What is the most thing?
+- [34:57.600] You can tell how many people are being murdered in a community.
+- [35:00.510] You can tell how many carjackings there are.
+- [35:02.330] You can how many armed robberies there are,
+- [35:04.510] there's way too much violent crime happening in our country.
+- [35:07.710] And when we look at an American community,
+- [35:09.610] again, we don't care about their politics.
+- [35:11.680] When we look in an American Community
+- [35:13.550] where people are suffering because of violent crime,
+- [35:16.220] our response is we want to help, just let us.
+- [35:19.630] And I'd encourage everybody to talk to your local officials.
+- [35:22.650] I know we're a little far away from Charlotte,
+- [35:25.070] but to talk your local official and encourage them.
+- [35:28.060] To ask for the help of the Trump administration.
+- [35:30.970] We are willing to provide it.
+- [35:32.530] We want fewer people to be affected by violent crime,
+- [35:35.710] but these guys have actually got to play
+- [35:38.010] a partnership role with us.
+- [35:39.840] And unfortunately, way too many of them.
+- [35:41.800] Some of these people, it's crazy.
+- [35:43.930] They are ruling over cities that have violent crime rates
+- [35:47.210] that are worse than Mogadishu. And they say, no, no no.
+- [35:50.380] We don't want Donald Trump to come in.
+- [35:52.260] Well, excuse me.
+- [35:53.510] If you don't need the federal help,
+- [35:55.430] then why is your murder rate so terrible in the first place?
+- [35:58.140] You do need the help. You just need to admit it.
+- [36:00.610] (applause)
+- [36:04.040] The Vice President: Thank you, Casey. Next question.
+- [36:07.250] The Press: Vice President, Michael Warrick.
+- [36:08.770] I'm with WDBTV. Welcome to Race and Country, first of all.
+- [36:13.070] Iryna's law was just passed by Republican lawmakers.
+- [36:15.560] It's now on Governor Stein's desk.
+- [36:17.650] It addresses cashless bail.
+- [36:19.320] It would allow magistrates to involuntary commit people
+- [36:22.710] who they believe to be sick.
+- [36:25.080] However, opponents of that bill don't think it goes far enough
+- [36:27.650] for the mental health side of things.
+- [36:29.560] It also opens the door to the death penalty,
+- [36:31.260] which I know some opponents are against.
+- [36:33.370] Why would you encourage the Governor,
+- [36:35.110] politics aside, to sign that bill?
+- [36:38.100] The Vice President: Well, because I want
+- [36:39.570] to keep violent criminals off the street,
+- [36:41.240] and I want Americans to be safer.
+- [36:42.830] And this bill does it. Iryna's law does it,
+- [36:44.860] congratulations to the Senate President and House Speaker
+- [36:47.700] for getting it over the finish line.
+- [36:49.450] The Governor's got to sign it.
+- [36:53.530] I guarantee if this bill is signed into law,
+- [36:55.870] it will help our incredible law enforcement
+- [36:57.730] keep the streets safe.
+- [36:59.800] And that's ultimately all I really care about.
+- [37:01.760] Again, it breaks my heart to think that you have young kids,
+- [37:07.360] you know, especially in poor communities,
+- [37:09.070] whether they're black or white,
+- [37:10.690] who don't feel like they can walk outside.
+- [37:12.910] You've got grandmothers who are taking care of grandkids
+- [37:15.320] who don't want to sit out on their front porch
+- [37:16.940] because they're worried about drive-by shootings.
+- [37:19.050] That should break everybody's heart,
+- [37:20.980] and the way to solve the problem
+- [37:22.680] is to empower these cops to go after the bad guys
+- [37:25.500] and to do it with their full skill and their full force.
+- [37:28.310] Now, I don't know, have I read every detail of the law?
+- [37:31.090] I know some of the things that it does.
+- [37:32.700] I know that it ends cashless bail,
+- [37:34.430] which would be huge for the people of North Carolina.
+- [37:36.910] I know it makes it harder for some of these local magistrates
+- [37:39.740] to let people out with a slap on the wrist.
+- [37:41.610] That would be a huge for people of North Caroline.
+- [37:43.980] But could there be more? There could always be more.
+- [37:46.280] But don't let the perfect be the enemy of the good.
+- [37:48.300] This bill is going to make North Carolinians safer.
+- [37:51.250] They ought to sign it.
+- [37:52.850] (applause)
+- [37:58.250] The Press: Hi, Mr. Vice President,
+- [37:59.560] it's Kit Maher representing the White House TV pool today.
+- [38:01.660] I just have two national questions for you,
+- [38:03.150] if you'll allow it.
+- [38:04.370] The Vice President: Sure, go ahead.
+- [38:05.610] The Press: Number one, on Ukraine,
+- [38:06.840] President Trump said that Ukraine
+- [38:09.330] can fight and win back its territory.
+- [38:11.520] Could you explain the shifting stance there
+- [38:13.300] from stopping the bloodshed immediately ending the war
+- [38:16.600] and now saying that Ukraine should fight?
+- [38:19.120] Is that a tactic to pressure Putin back to the table?
+- [38:21.250] The Vice President: We'll go ahead
+- [38:22.470] and do the second question.
+- [38:23.670] The Press: Yeah, second question, last year,
+- [38:24.960] when I was covering you on the campaign trail,
+- [38:26.360] what you told Joe Rogan
+- [38:27.920] that the difference between Harris and Trump
+- [38:30.050] is that Trump is not trying to censor his fellow Americans.
+- [38:34.240] Wondering if you can square your fervent belief in free speech
+- [38:38.230] with what's going on now with Jimmy Kimmel
+- [38:40.230] and the FCC pressure.
+- [38:41.800] I'd love to hear your thoughts on both of those.
+- [38:43.970] The Vice President: Well look, on the free speech conversation,
+- [38:45.510] I'm pretty sure that Jimmy Kimmel
+- [38:46.940] was back on the air last night
+- [38:48.450] and to the extent that he's not back on air,
+- [38:50.070] it's because he's funny and has terrible ratings.
+- [38:52.100] This is not a federal government problem.
+- [38:54.470] This is --.
+- [38:55.740] (applause)
+- [39:00.230] And Kit, look, I want to answer your question in good faith.
+- [39:02.820] What people will say is, well, you know,
+- [39:04.440] didn't the FCC commissioner
+- [39:06.220] put a tweet out that said something bad?
+- [39:08.600] Well, Kit, compare that,
+- [39:10.870] the FCC Commissioner making a joke on social media.
+- [39:14.810] What is the government action that the Trump administration
+- [39:17.320] has engaged in to kick Jimmy Kimmel
+- [39:19.590] or anybody else off the air? Zero.
+- [39:22.400] What government pressure have we brought to bear
+- [39:24.490] to tell people that they're not allowed to speak their mind?
+- [39:27.260] Zero. We believe in free speech in the Trump administration.
+- [39:30.380] We are fighting every single day to protect it.
+- [39:32.720] Now compare that to the Biden administration,
+- [39:34.890] where we found out just yesterday
+- [39:36.960] that conservatives on YouTube
+- [39:39.030] and on a number of social media platforms
+- [39:40.950] were being censored. Why?
+- [39:42.810] Because the Biden Administration picked up the phone and said,
+- [39:45.530] we want you to censor our political opponents.
+- [39:48.240] That is real government censorship
+- [39:50.790] and it left the White House
+- [39:52.490] when Joe Biden left the White House.
+- [39:54.590] Now to Ukraine.
+- [39:58.710] I've answered a version of this question
+- [40:01.300] probably a hundred times over the past three months.
+- [40:03.480] And one of the things I'll say about the president
+- [40:05.440] is that he is responsive to the reality on the ground.
+- [40:09.350] And the reality on the round is that number one,
+- [40:12.370] we have engaged in incredibly good faith
+- [40:14.770] negotiations with both the Russians and the Ukrainians.
+- [40:17.430] And I believe the president is growing incredibly impatient
+- [40:20.730] with the Russians right now because he doesn't feel like
+- [40:23.190] they're putting enough on the table to end the war.
+- [40:25.250] That's number one.
+- [40:26.480] Number two, the president has grown very confident
+- [40:29.850] that this war is bad for Russia.
+- [40:31.770] You hear me say this all the time.
+- [40:33.220] You hear the president say this all the times.
+- [40:35.440] The war is for Russia, it's bad for Ukraine, it's for America.
+- [40:39.470] We want the killing to stop.
+- [40:41.070] That remains the president's position.
+- [40:42.970] But the president also can look at reality on the ground.
+- [40:46.000] He sees the economic numbers
+- [40:47.300] that are coming out of Eastern Europe.
+- [40:48.500] He sees a number of dead people,
+- [40:50.360] both Russians and Ukrainians that are happening in that war.
+- [40:53.120] And the president is telling Vladimir Putin,
+- [40:55.280] it is time to stop the killing. He would say that to Zelensky,
+- [41:00.030] and in fact has said that to the Zelensky.
+- [41:02.030] He wants this war to end
+- [41:04.150] and he's doing everything that he can to stop it.
+- [41:06.000] But look, if the Russians refuse to negotiate in good faith,
+- [41:10.550] I think it's going to be very, very bad for their country.
+- [41:13.000] That's what the president made clear.
+- [41:14.520] It's not a shift in position,
+- [41:16.090] it's an acknowledgement of the reality on the ground.
+- [41:18.640] We're going to keep on fighting for peace
+- [41:20.230] every single day in the Trump administration.
+- [41:22.060] And I'll do one more question here.
+- [41:28.070] Another question. Sir.
+- [41:31.300] The Press: Good afternoon, Mr. Vice President,
+- [41:32.540] Monica Casey, WRAL out of Raleigh.
+- [41:34.730] We are coming up on the one year anniversary
+- [41:37.030] of Hurricane Helene's devastation.
+- [41:39.350] What is the administration doing to speed up
+- [41:41.850] the distribution of federal aid for that disaster?
+- [41:44.980] The Vice President: Yeah, so just in the last week,
+- [41:46.840] the Secretary of Homeland Security put another,
+- [41:48.710] I believe, $64 million into the disaster relief effort.
+- [41:51.970] We inherited, I'm going to be honest with you,
+- [41:53.920] a FEMA that was mired in bureaucracy and red tape.
+- [41:57.190] The president has made very clear from day one,
+- [41:59.730] we want to get relief to the people of North Carolina
+- [42:01.990] as quickly and as rapidly as humanly possible,
+- [42:04.740] and that's what we're trying to do.
+- [42:06.360] The second thing I'll say is that I understand
+- [42:08.670] the governor had a very good call with the president,
+- [42:10.930] I believe on 9/11 actually, about a week and a half ago.
+- [42:13.760] It may have been the day before, the day afterwards.
+- [42:16.820] But he had a good conversation with the president
+- [42:18.460] about some of the disaster relief needs that are there.
+- [42:21.140] We're going to keep on working on this.
+- [42:22.700] We're going to keep on working with some of our colleagues
+- [42:25.060] and the federal congressional delegation from North Carolina.
+- [42:27.450] But let me just say, I visited the devastation myself.
+- [42:30.380] I want the people there to know we continue to think about them.
+- [42:33.740] We continue to work on this issue,
+- [42:35.200] and we're going to make sure
+- [42:36.490] that we never forget that area in North Carolina,
+- [42:38.370] the devastations that storm caused.
+- [42:40.400] (applause)
+- [42:45.810] On that note, I just want to say you guys
+- [42:47.610] have been an incredible group to get to spend some time with.
+- [42:50.330] Henry, I hope you got the photo you needed.
+- [42:52.490] So are you going to get like a tardy, Henry?
+- [42:54.200] Or what's the deal?
+- [42:55.450] If you get a photo with the Vice President,
+- [42:56.890] you're allowed to have an excused absence?
+- [42:58.660] Is that how that works? Okay, he doesn't know, actually.
+- [43:02.690] Henry is not as competent in that question
+- [43:04.420] as I would have hoped.
+- [43:05.650] But it's great to meet you, my friend.
+- [43:08.540] It's great be with all of you.
+- [43:10.020] Just remember, we've got a very, very important job,
+- [43:12.970] and each and every single one of us has a role to play.
+- [43:15.650] To our law enforcement,
+- [43:16.910] thank you for the job that you do.
+- [43:18.360] We're going to keep on fighting for you
+- [43:19.810] in the Trump administration.
+- [43:21.050] We're going to keep on finding for safety and security
+- [43:23.330] all across the state of North Carolina.
+- [43:25.140] God bless you, thank for you for having me.
+- [43:27.880] ♪ (country music playing) ♪

@@ -1,0 +1,1921 @@
+<!-- source: https://www.youtube.com/watch?v=ln-FnwDYE4Y -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: ln-FnwDYE4Y -->
+<!-- date_published: 2026-05-27T17:20:19+00:00 -->
+<!-- date_accessed: 2026-06-02T02:33:17.272601+00:00 -->
+
+# Transcript: President Trump Participates in a Cabinet Meeting, May 27, 2026
+
+- [00:16.060] The President: We have a lot of very happy people
+- [00:19.170] around the table because we're a great team.
+- [00:21.380] It's been a tremendous period of time for our country
+- [00:25.360] and things are going very well.
+- [00:27.100] A number of jobs; we have more people working today
+- [00:29.450] than we've ever had before in the history of our country
+- [00:32.480] and many other things.
+- [00:33.920] And I have a few words to say to you
+- [00:36.290] that I think will be helpful.
+- [00:38.720] Last night was incredible, not only Texas,
+- [00:41.760] but so many other places, and the numbers were fantastic.
+- [00:45.420] And they've really been that way for a year, if you look.
+- [00:50.640] It's hundreds of people won, and almost nobody didn't win.
+- [00:56.700] So but last night was very -- very powerful.
+- [01:01.610] So I'm thrilled to welcome everyone to the 12th cabinet
+- [01:04.260] meeting of our administration.
+- [01:05.950] And we're doing something that no administration has ever done.
+- [01:09.690] We're always letting the press join us
+- [01:11.570] because we're very open and transparent.
+- [01:14.250] You like the word transparent,
+- [01:15.490] but we're more transparent than any --
+- [01:17.820] any administration in history.
+- [01:19.360] No -- to the best of my knowledge,
+- [01:21.340] press has never been invited, ever, to a cabinet meeting
+- [01:23.990] for any reason at all. And it's an honor to have you.
+- [01:29.560] This team has achieved more than most other administrations
+- [01:32.550] achieve in eight years.
+- [01:35.900] We took the most dangerous, unsafe, violent
+- [01:38.020] and open border in the world, anywhere in the world,
+- [01:40.890] there's no border like the border we had,
+- [01:43.380] and created the most secure border
+- [01:45.020] in the history of our country.
+- [01:46.310] We had no people -- 12 months now,
+- [01:48.960] no people reported in the last 12 months came in illegally.
+- [01:53.690] Zero illegal aliens admitted to the United States
+- [01:56.200] in the last 12 months and that's --
+- [01:58.020] those charts are made by,
+- [01:59.760] you would say, politically unfriendly people.
+- [02:02.710] And the reason they don't come in is because nobody comes up,
+- [02:05.060] because they know that they're going to be turned away.
+- [02:07.560] And if they get in,
+- [02:08.810] they're going to be moved out right away.
+- [02:10.410] So it's been zero.
+- [02:12.350] You're the one that do the reports.
+- [02:14.380] I'm actually surprised by the number
+- [02:15.790] because I don't know how it can be zero,
+- [02:17.280] but they say it's zero for the last 12 months.
+- [02:20.480] In 2025, we achieved the largest drop
+- [02:23.000] in the murder rate ever recorded.
+- [02:25.350] So, the murder rate was quite high,
+- [02:28.010] and we achieved the largest drop in the murder rate
+- [02:32.120] ever recorded to the lowest level in 125 years.
+- [02:35.220] That's the year 1900.
+- [02:37.380] And that's despite the fact that many people came in from prisons
+- [02:40.480] and from very rough countries and from mental institutions
+- [02:45.010] and from lots of other places, drug dealers and others.
+- [02:48.580] They came in illegally during the Biden administration;
+- [02:51.850] we've gotten many of them out,
+- [02:53.800] but we still have some that we're looking for,
+- [02:55.770] quite a few that we're still looking for.
+- [02:57.260] But we've gotten -- over 11,888 murderers
+- [03:02.260] were allowed into our country. We've gotten a lot of them out.
+- [03:04.450] We've gotten some, we put them in jail.
+- [03:06.020] We don't even trust the country to send them
+- [03:08.500] because they'll come back in maybe and we put them in jail.
+- [03:13.300] 11,888 murderers, more than half of which
+- [03:17.330] have committed more than one murder.
+- [03:19.060] That's what they allowed in.
+- [03:20.310] They should -- they can never be forgotten
+- [03:22.250] for the horrible things they've done to this country.
+- [03:25.190] Fentanyl coming across our border
+- [03:26.950] is now down by 61 percent. 61 percent.
+- [03:31.880] And coming in by water, by sea, by ocean is down 97 percent.
+- [03:39.490] Can you imagine?
+- [03:41.120] Thanks to our Republican majorities in Congress,
+- [03:43.650] we passed the largest tax cuts in American history.
+- [03:46.870] All Democrats voted against the tax cuts,
+- [03:50.030] putting more money in Americans' pockets.
+- [03:51.900] This year, the typical family got tax refunds of nearly --
+- [03:55.860] almost close to $5,000.
+- [03:59.090] The stock market has set 68 all-time record highs
+- [04:02.260] since the election.
+- [04:04.100] So, 68 days we hit all-time highs, we're right there now.
+- [04:08.540] And the average 401(k),
+- [04:10.140] and that's despite the conflict --
+- [04:12.580] I don't call it a war, I call it a conflict.
+- [04:15.200] Despite the conflict with Venezuela,
+- [04:18.550] who no longer has a Navy, no longer has an Air Force,
+- [04:21.580] no longer has a lot of people
+- [04:24.220] that were leading the country into very bad places.
+- [04:27.810] Their leadership is gone,
+- [04:29.730] their second rung leadership is gone,
+- [04:31.380] and we're dealing with their third --
+- [04:32.620] half of their third, because half of their third is gone too.
+- [04:35.950] The average 401(k) is up almost $30,000 since I took office.
+- [04:41.600] So, the Americans are benefiting working today.
+- [04:44.890] We have the most working and we have 401(k)'s
+- [04:47.180] at their all-time high, highest they've ever been.
+- [04:50.240] And that goes along with the stock market,
+- [04:53.050] which is the highest it's ever been.
+- [04:55.440] Under my Most Favored Nation agreements --
+- [04:57.400] this is something that I wish the media would talk about
+- [05:00.250] because to me,
+- [05:01.450] it's one of the biggest things ever to happen in our country.
+- [05:04.700] Certainly, as to medical,
+- [05:07.380] anything having to do with medical,
+- [05:09.460] because drug prices --
+- [05:11.090] we're delivering record setting discounts on prescription drugs,
+- [05:14.290] with price differences of 400, 500 and even 600 percent.
+- [05:19.230] At trumprx.gov we recently
+- [05:22.670] added nearly 1,000 low-cost generics to the website.
+- [05:27.920] So, we have drugs down 400, 500, 600 percent.
+- [05:32.560] Now you could say 80, 90, 70, 60, 50 percent if you want.
+- [05:38.050] There are two ways, depends on the way you ask the question.
+- [05:41.150] But a pill that would sell in Germany or in,
+- [05:44.170] let's say in London for $10 was selling for here for $130.
+- [05:51.480] And I got the countries to all agree,
+- [05:53.960] otherwise they would have had to pay big tariffs.
+- [05:56.850] I didn't want to go into it,
+- [05:58.510] but it had some very interesting discussions.
+- [06:00.460] They said vehemently no,
+- [06:01.750] and then when I said, that's all right,
+- [06:03.200] we're going to charge you a 50 percent tariff
+- [06:05.950] on everything you sell into America,
+- [06:07.580] they said, well, like we said, we'll say yes.
+- [06:10.770] And every single country agreed, and every drug company agreed.
+- [06:14.840] So, we have Most Favored Nations.
+- [06:16.470] So, we were paying the highest drug prices in the world.
+- [06:19.020] Now we're paying the lowest drug prices in the world.
+- [06:21.140] So, that pill that I talked about would go from $10 to $20.
+- [06:25.390] The world is bigger than the US. Hard to believe, but it's true.
+- [06:29.760] So, it's not like you cut it in the middle.
+- [06:32.080] They just had to go up a little bit,
+- [06:34.340] but a little bit is a doubling of a price
+- [06:36.020] so a little bit it's a lot.
+- [06:38.140] So, the pill would go from $10 to $20.
+- [06:42.890] And we'd go from $130 to $20. Think of that.
+- [06:48.790] So, we would get, if you remember --
+- [06:50.460] some of you were at the news conference
+- [06:51.950] I had in my first term where I got the prices
+- [06:53.850] down one-eighth of a percent,
+- [06:55.430] one-quarter, one-eighth of a percent my first term.
+- [06:58.820] And I was so proud of it because prices --
+- [07:00.670] drug prices hadn't come down in 28 years,
+- [07:02.900] and I was the first one to do it.
+- [07:05.150] But now I'm getting them down -- not one-eighth of a percent,
+- [07:08.140] I'm getting them down 400, 500, 600.
+- [07:11.070] Or if you want to use it a different way,
+- [07:12.900] you could say 70 percent, 80 percent, 90 percent,
+- [07:16.130] 50 percent.
+- [07:18.390] Nobody's ever seen anything like it.
+- [07:19.930] And I got that through --
+- [07:23.140] well, everybody knew it was taking place,
+- [07:25.460] but we paid the highest prices anywhere in the world.
+- [07:28.710] Now we're paying the lowest prices anywhere in the world,
+- [07:32.250] and the press refuses to write about it.
+- [07:34.350] I think it's the biggest thing. And for health care, you know,
+- [07:36.890] so much of it is prescription drug prices and drug prices,
+- [07:40.630] and with them coming down,
+- [07:41.920] the health care is going to come down very substantially.
+- [07:44.140] We recently added nearly 1,000 low-cost generics too,
+- [07:47.180] as I said, and that's 1,000 drugs
+- [07:52.250] and it's all on and it's -- this was not given by me,
+- [07:57.490] this was given by Dr. Oz and Bobby
+- [07:59.560] and I wasn't sure whether or not I loved the idea,
+- [08:03.490] but they said, we want to use -- trumprx.gov is what it is
+- [08:08.510] and it's the hottest site, I think, anywhere on the planet,
+- [08:10.800] from what I understand, Bobby, right?
+- [08:13.100] It's really great. People are calling up
+- [08:14.790] and they're buying drugs for a fraction,
+- [08:16.520] for literally a fraction of the price.
+- [08:19.050] And it should be the biggest story.
+- [08:20.360] And on that alone, we should win the midterms.
+- [08:23.580] On that alone, we should win the midterms,
+- [08:25.980] but the press doesn't talk about it.
+- [08:27.350] It's the biggest thing to happen in the drug industry ever,
+- [08:29.750] maybe, ever and the press
+- [08:31.930] doesn't even want to write stories about it.
+- [08:34.180] We made the largest ever investment in US military,
+- [08:36.780] $1 trillion,
+- [08:37.980] and we're asking actually for $1.5 trillion
+- [08:41.060] for the coming year.
+- [08:42.750] And we have the strongest military anywhere in the world,
+- [08:44.790] as you know.
+- [08:45.990] You saw what we did with Venezuela,
+- [08:49.880] that worked out very quickly.
+- [08:51.160] And we're doing really equally as well with --
+- [08:55.260] but again, people don't want to write about it -- with Iran.
+- [08:59.160] Iran is very much intent;
+- [09:01.900] they want very much to make a deal.
+- [09:03.320] So far, they haven't gotten there;
+- [09:04.750] we're not satisfied with it but we will be.
+- [09:07.180] We will be --
+- [09:08.550] either that or we'll have to just finish the job.
+- [09:11.860] But their Navy is gone,
+- [09:13.470] as I've said a thousand times, their Navy is gone,
+- [09:15.980] their Air Force is gone, everything's gone,
+- [09:18.590] and they're negotiating on fumes.
+- [09:22.190] But we'll see what happens.
+- [09:23.390] Maybe we have to go back and finish it, maybe we don't.
+- [09:26.200] Right now, I mean, you can speak to Steve Witkoff and Jared,
+- [09:30.670] they're doing a good job.
+- [09:31.900] But right now, I think it looks like
+- [09:35.850] they want to just make a deal. They want to -- they have --
+- [09:37.860] I don't think they have a choice.
+- [09:39.140] They're just going back to the internet
+- [09:40.560] because they're getting clobbered;
+- [09:41.830] their economy is in freefall.
+- [09:45.410] They have 250 percent inflation, their money has no value,
+- [09:49.940] and their whole economic system is broken down.
+- [09:54.290] They thought they were going to outwait me;
+- [09:55.760] you know, we'll outwait him. He's got the midterms.
+- [09:58.210] I don't care about the midterms. Look what happened last night,
+- [10:00.470] that was the prelude to the midterms.
+- [10:03.090] People understand it, they know that, very simple,
+- [10:06.050] Iran cannot have a nuclear weapon.
+- [10:07.890] I'm doing that for the world; I'm not doing it just for us.
+- [10:10.920] And we've had great support from other nations, by the way.
+- [10:13.860] We don't need it at all,
+- [10:15.890] but we've had great support from other nations.
+- [10:17.890] The problem is you always get the support
+- [10:19.370] when you don't need it.
+- [10:20.680] When you need it, you don't get the support.
+- [10:22.440] With Operation Epic Fury, our warriors are ensuring
+- [10:24.940] that the world's number one state sponsor of terror
+- [10:28.520] never obtains a nuclear weapon and they won't.
+- [10:31.700] Under the leadership of Vice President JD Vance --
+- [10:34.550] very proud of this --
+- [10:36.420] the White House Task Force to Eliminate Fraud
+- [10:39.310] is waging war on waste, fraud, theft and abuse
+- [10:42.750] like nobody's ever seen before.
+- [10:45.670] He looks like Eliot Ness. Did you ever see Eliot Ness?
+- [10:49.060] I'm telling you, the guys are up there,
+- [10:50.780] all central casting, they're standing behind --
+- [10:53.220] what a group of people. No, it looks like a movie.
+- [10:56.120] I'm going to make a movie out of it, I think.
+- [10:58.410] And they're finding billions and billions
+- [11:00.800] and billions of dollars.
+- [11:02.110] And I just said that's good.
+- [11:03.310] He said, you haven't seen anything yet, just said that.
+- [11:07.150] And if he does really great, we'll have a balanced budget
+- [11:10.070] without having to do anything.
+- [11:11.340] This is the kind of money they stole.
+- [11:14.460] They're crooks, they're thieves,
+- [11:15.960] and I hope that Todd is going to do a real job.
+- [11:18.550] These are crooked people, these are thieves.
+- [11:20.700] This isn't like a mistake.
+- [11:24.090] I'm just talking about one person,
+- [11:25.450] he got hundreds of thousands --
+- [11:27.250] millions of dollars for securing one man,
+- [11:30.790] for taking care of one elderly man.
+- [11:33.510] He was a service, he got paid millions of dollars
+- [11:36.820] for taking care of one man, total crook.
+- [11:39.310] They're all crooks, the Somalians,
+- [11:42.710] what they've done to Minnesota,
+- [11:44.470] the Somalians, they're crooked as hell.
+- [11:48.220] Ilhan Omar, crooked as hell. They're all crooks
+- [11:51.890] and we got them, we got them. Now we're putting the clamps on.
+- [11:55.070] But, boy, I'll tell you, that's an impressive group of guys
+- [11:57.920] that you have behind you.
+- [11:59.170] I was watching that and a couple of very strong women too.
+- [12:03.250] But I was watching that last night,
+- [12:04.840] I said, I'm proud of you guys.
+- [12:07.000] In two months, we've exposed tens of billions of dollars
+- [12:09.770] of defrauded taxpayer money, prosecuted numerous fraudsters,
+- [12:14.140] and stop billions of suspicious payments, very suspicious --
+- [12:18.150] oh, you haven't seen anything yet. Wait till you see.
+- [12:19.960] I'm getting reports from Todd, from JD.
+- [12:24.050] I've never seen anything like it, the kind of --
+- [12:26.120] just hundreds of billions of dollars were stolen,
+- [12:31.090] and no other administration would do what we're doing.
+- [12:33.650] They'd let it go. Everybody was getting rich.
+- [12:37.750] And I think we have a chance to save Social Security
+- [12:40.320] without doing anything to it, by just the numbers
+- [12:44.370] of fraudulent people on Social Security,
+- [12:46.810] people that are 115 years old, 125 years old, getting payments.
+- [12:53.940] It's funny, I said, oh, do those payments get turned back?
+- [12:56.260] No, they accept them.
+- [12:57.460] Well, somebody -- somebody's getting the payment.
+- [12:59.320] It's not a person that's 125 years old.
+- [13:02.200] But that's the least of it,
+- [13:03.480] the numbers that we're finding out.
+- [13:04.880] We have great people at Social Security.
+- [13:06.700] We're going to make our Social Security so strong, so --
+- [13:10.620] so good that you've never seen anything like it.
+- [13:14.270] We're going to protect -- I said right from the beginning,
+- [13:16.700] we're going to protect our people on Social Security.
+- [13:19.530] If the Democrats ever got in, you wouldn't have --
+- [13:21.600] Social Security would be bankrupt.
+- [13:23.770] People wouldn't be getting anything.
+- [13:25.990] Last week, they took down two of the largest Medicaid fraud
+- [13:29.060] cases in Minnesota history,
+- [13:31.450] as well as the largest autism fraud case
+- [13:33.610] ever charged by the federal government.
+- [13:35.320] You saw that, with millions of dollars just being stolen.
+- [13:38.590] Everybody had autism. Everybody had autism, they said.
+- [13:44.310] It was incredible, actually.
+- [13:47.140] And I really -- I mean, I've just seen --
+- [13:49.750] I see what they're doing. You haven't seen anything yet.
+- [13:53.980] So congratulations, JD. Be -- be vicious like they are.
+- [13:58.330] They're violent people. They're violent, vicious scum.
+- [14:02.280] Before asking Vice President Vance
+- [14:04.210] to speak about these efforts,
+- [14:05.790] I want to express our tremendous gratitude
+- [14:07.940] to our outgoing director of National Intelligence,
+- [14:10.400] Tulsi Gabbard, who's a terrific person, actually.
+- [14:21.780] She's come up with some findings that were pretty good.
+- [14:25.430] And Tulsi has worked tirelessly to restore trust
+- [14:28.560] and focus on the intelligence,
+- [14:30.650] and with the intelligence community.
+- [14:32.730] They all respected her. They listened to her.
+- [14:35.170] She gave us leads that were pretty much,
+- [14:38.450] people thought they were dead
+- [14:39.780] and they weren't dead, they were right there.
+- [14:41.400] And she was able to expose a lot of things
+- [14:43.520] that we used at the FBI,
+- [14:45.290] with Kash and with Todd and with JD and everybody else.
+- [14:48.840] It was amazing. She dramatically reformed
+- [14:51.510] the office of Director of National Intelligence
+- [14:54.130] and cutting the staff by 40 percent,
+- [14:56.640] and she prevented countless terrorists and cartel members
+- [14:59.460] from entering the United States.
+- [15:01.650] She exposed mountains of evidence related to the Russia,
+- [15:04.830] Russia, Russia hoax, one of the --
+- [15:06.810] probably the greatest hoax in the history of our country.
+- [15:08.870] Although, when you look at the fraud coming out,
+- [15:11.230] it's -- there's a lot of them.
+- [15:12.800] I mean, honestly, there's a lot of them.
+- [15:14.310] But the Russia, Russia, Russia hoax, a great hoax,
+- [15:17.510] a very dangerous hoax too,
+- [15:19.590] and revoke security clearances of officials involved.
+- [15:22.720] And she declassified numerous historic documents
+- [15:25.690] of special public interest,
+- [15:27.470] including related to the JFK and RFK assassinations,
+- [15:31.140] which everybody wanted to see.
+- [15:33.240] And we're now releasing a lot of things having to do with space.
+- [15:37.480] You know, it's -- people are very interested in that.
+- [15:40.950] It actually became the number one topic.
+- [15:44.340] We're releasing a lot of information having to do
+- [15:46.610] with extraterrestrial terrestrial things,
+- [15:51.400] and people are totally fascinated by it.
+- [15:54.860] It's amazing. I wasn't sure if they would enjoy it.
+- [15:59.190] It's literally trending number one. Can you believe it?
+- [16:02.290] So a lot of people out there like it,
+- [16:04.130] but we're releasing all of that information.
+- [16:06.760] And Tulsi, we're praying for you and for your husband.
+- [16:09.100] Her husband's not feeling great,
+- [16:10.630] but he's going to feel great soon.
+- [16:11.980] You're going to make him --
+- [16:13.190] you're going to get him better and he's a wonderful guy.
+- [16:15.950] So just say hello and thank you for the great work you've done.
+- [16:18.850] We appreciate it. Thank you very much.
+- [16:21.390] And now I'd like to ask JD to say a few words about the war
+- [16:24.440] on fraud, followed by Acting Attorney General Todd
+- [16:28.030] Blanche, who's doing fantastically,
+- [16:29.670] and Secretary of State Marco Rubio,
+- [16:31.680] another one. I mean, we have great people.
+- [16:34.590] And the Secretary of War, Pete Hegseth, central casting.
+- [16:38.130] He -- he loves war. I don't know.
+- [16:42.180] He's a good man, that one. And Scott Bessent,
+- [16:46.530] you talk about a guy doing a job, been fantastic.
+- [16:50.630] Thank you, Scott, really fantastic
+- [16:52.500] and a lot of the success
+- [16:54.010] that we're having with other countries
+- [16:56.050] is what you've been able to do and find.
+- [16:58.860] And SBA Administrator Kelly Loeffler
+- [17:01.010] and all of the people here have been great.
+- [17:02.680] We're going to just do those few
+- [17:04.880] and maybe if you have some questions, we'll go to others,
+- [17:07.160] but everybody around here has got a lot to say.
+- [17:09.250] But we did that once
+- [17:10.890] and it lasted for like four or five hours.
+- [17:13.380] It was a little -- it was a little much.
+- [17:15.150] We want to be open. So now if I do it this way,
+- [17:18.160] they'll say, he didn't let anybody talk.
+- [17:20.980] But let's start with JD and you can talk about a really,
+- [17:25.820] really important thing bringing our country back to honesty,
+- [17:29.860] a tremendous amount of money is involved.
+- [17:31.550] Go ahead. Thank you.
+- [17:32.770] The Vice President: Thank you. Yes, sir. Well first of all,
+- [17:34.750] thank you for your leadership, sir, and for making it possible.
+- [17:37.480] I often find in the fraud task force
+- [17:39.180] that there sometimes are barriers
+- [17:40.550] that we need to break down, agencies that need to coordinate
+- [17:42.850] and I'll come to the president and say, Mr. President,
+- [17:45.010] I need your permission to do --
+- [17:46.660] he'll say, for what, for the fraud task force
+- [17:48.380] and he'll cut me off and say, yes, go do it.
+- [17:50.220] So the fact that we have dedicated
+- [17:52.250] Presidential leadership is really
+- [17:53.610] what's made this possible, because it does require --
+- [17:56.200] uh, we've got great people around the table,
+- [17:57.820] but sometimes these agencies
+- [17:59.110] don't know how to work together at the lower level.
+- [18:01.300] And that's one of the things we've had to turn on and force
+- [18:03.540] with the fraud task force.
+- [18:04.780] So I want to shout out just a few all-stars here.
+- [18:07.590] Uh, Linda at the Department of Education
+- [18:09.170] has been amazing at finding student loan fraud.
+- [18:11.170] You've got people who are either illegal aliens,
+- [18:13.730] who aren't even actually real human beings
+- [18:16.250] who are getting hundreds of millions of dollars
+- [18:18.350] from the Department of Education for student loans.
+- [18:20.910] We have cut that off. We found a lot.
+- [18:22.670] We're going to find a lot more. Scott at HUD has been amazing,
+- [18:26.070] because a lot of the fraud that we see is housing fraud,
+- [18:28.380] people claiming benefits that they're not entitled to,
+- [18:30.820] or, again, sir, sometimes completely made up
+- [18:33.380] people who exist purely to collect fraud --
+- [18:36.540] fraudulent money from the American taxpayer.
+- [18:38.950] Brooke of the Department of Agriculture,
+- [18:40.330] something I had no idea until I started this work, sir,
+- [18:43.520] that we send hundreds of billions of dollars
+- [18:45.850] to the States to administer the food stamp program.
+- [18:48.500] The federal government has no insight
+- [18:51.190] into whether those food stamps
+- [18:52.570] are going to people who are legally entitled,
+- [18:54.690] or whether those people actually even exist.
+- [18:56.860] And so we're working on a number of mechanisms
+- [18:58.910] to actually force the states to verify that the people
+- [19:02.140] who receive these benefits are actually entitled to them.
+- [19:05.500] And I could go down the list. I've gotten a lot of support
+- [19:07.660] from a lot of people in this in this room.
+- [19:10.230] Uh, Bobby Kennedy and Dr. Oz
+- [19:12.490] have been particular all stars on this and Kim at HHS.
+- [19:17.170] What they've done with the Medicaid fraud,
+- [19:18.870] we found tens of billions of dollars
+- [19:20.660] in Medicaid and Medicare fraud just from their hard work.
+- [19:23.140] We've cut that off.
+- [19:24.420] And yes, Mr. President, we are going to find a lot more.
+- [19:27.220] The final thing I want to say, Mr. President,
+- [19:29.220] and I know that Todd maybe has something to say
+- [19:31.620] about this as well,
+- [19:33.340] but I always try to remind the American people
+- [19:35.050] and certainly remind the cabinet officials --
+- [19:37.250] by the way, Kelly at SBA
+- [19:38.530] has found tens of billions of dollars
+- [19:40.430] that were from fraudulent loans
+- [19:42.040] that were giving under the Biden administration
+- [19:44.150] and we've now cut that off and recovered a lot of that money.
+- [19:46.460] So this has been a whole of government effort,
+- [19:48.060] Mr. President.
+- [19:49.360] The team really deserves a great deal of credit here.
+- [19:51.320] But the final point I want to make, sir,
+- [19:52.950] is, I always try to remind the American people
+- [19:55.090] that fraud is fundamentally a crime with two victims,
+- [19:57.720] the most obvious victim are the American taxpayer.
+- [20:00.810] They pay their taxes they expect the money
+- [20:02.640] to go where it should go
+- [20:04.210] and that's not happening because of the fraudsters.
+- [20:06.500] But there are also victims,
+- [20:07.820] people who benefit from these programs that don't exist
+- [20:11.570] if we're not actually taking care of the fraud issue.
+- [20:14.730] And let me just give one example to build
+- [20:16.220] on something you said earlier, sir.
+- [20:18.030] One of the people that Todd just prosecuted
+- [20:20.380] was a person who was collecting a lot of money
+- [20:22.770] from the American taxpayer
+- [20:24.390] to take care of elderly citizens,
+- [20:26.170] people who work their entire lives, paid their taxes,
+- [20:29.040] should have had dignity and nobility in old age,
+- [20:31.930] but it was deprived from them,
+- [20:33.160] from fraudsters who say that they're taking care of them,
+- [20:36.210] who collect a check to take care of them,
+- [20:38.110] but then abuse and neglect these people.
+- [20:40.430] And particularly, one man who died
+- [20:43.300] because he wasn't getting adequate care,
+- [20:45.180] and that guy was still collecting benefits
+- [20:47.970] to take care of a person who he had completely neglected.
+- [20:50.960] So not only do you have an American taxpayer
+- [20:53.810] who's paying into these programs,
+- [20:55.840] you have an elderly citizen deprived of his dignity
+- [20:58.570] because we're not going after the fraudsters.
+- [21:00.040] Well, now we are.
+- [21:01.300] The President: How much money did he get?
+- [21:02.970] The Vice President: Sir, hundreds of thousands
+- [21:04.190] of dollars, maybe more than that.
+- [21:05.510] But we think that that exact type of fraud
+- [21:08.140] has been replayed all over our country.
+- [21:10.700] That particular case was outside of Minneapolis.
+- [21:13.130] We expect that there are tens of thousands of people
+- [21:16.700] who are collecting fraudulent money to take care of people,
+- [21:20.000] and they're not actually taking care of them.
+- [21:21.650] We're, of course, going to get to the root of as much of it
+- [21:23.560] as we can, but again, sir, it's been,
+- [21:25.850] I wouldn't say fun because you find out
+- [21:28.780] how much people have been taken advantage of,
+- [21:31.900] but it's certainly very good and valuable work,
+- [21:33.670] so thank you for giving me the opportunity to do it.
+- [21:35.290] The President: Well, thank you very much.
+- [21:36.510] The Vice President: Yes, sir.
+- [21:37.750] The President: Attorney general, please.
+- [21:39.260] Todd Blanche: I'll just continue to talk
+- [21:40.740] about what the vice president was just talking about.
+- [21:42.700] The way that we are -- are actually --
+- [21:45.280] it's one thing to uncover fraud, which -- which we've done and --
+- [21:49.170] and that's part of it,
+- [21:50.400] but it's also prosecuting the bad guys
+- [21:52.130] that are doing it and stopping it from --
+- [21:54.510] from continuing and that's where you have --
+- [21:56.530] everybody in this room has inspector generals.
+- [21:59.000] And for many years, these really hard working
+- [22:01.310] law enforcement members
+- [22:02.900] would identify fraud and nobody did anything about it.
+- [22:05.760] DOJ prosecuted it but spent a very little resources on that.
+- [22:08.790] So what we've done just in the past 51 days,
+- [22:12.110] over 400 law enforcement actions in this country
+- [22:15.950] related to major fraud.
+- [22:17.200] That's search warrants, that's arrests, that's convictions,
+- [22:19.720] that's indictments that are filed.
+- [22:22.550] And that's just 51 days.
+- [22:23.840] And it's not just the great prosecutors,
+- [22:26.510] it's the FBI agents, it's DHS
+- [22:28.750] and then HSI agents, it's everybody in this room
+- [22:30.900] that has inspector generals that are now --
+- [22:33.670] they have been freed up and it's because of you.
+- [22:36.700] It's because of the vice president saying,
+- [22:38.250] this is going to be a priority of what we are going to do,
+- [22:40.820] not just the Department of Justice,
+- [22:42.300] even though we're the prosecutors
+- [22:43.610] that are putting bad guys in jail.
+- [22:44.820] It's also the law enforcement at every agency, FBI and DHS.
+- [22:50.350] And so, we're already seeing results.
+- [22:51.730] We had a $1 billion fraud,
+- [22:54.920] a conviction at trial last week out of Florida.
+- [22:57.910] And this was an organization that was stealing
+- [23:00.560] from senior citizens in Florida, duping them.
+- [23:03.100] There were call centers set up in the Philippines,
+- [23:05.380] and they were duping them to buy medical equipment
+- [23:07.330] that they didn't need, that they would never get
+- [23:09.280] and that the taxpayers paid for. And so, that's a good win.
+- [23:13.140] We arrested 15 guys in Minnesota last week,
+- [23:17.060] the vice president mentioned one of them.
+- [23:18.810] These are people that are not -- they are just stealing,
+- [23:21.920] and many of them are here illegally.
+- [23:23.600] And so, you have people who are in this country
+- [23:25.220] illegally who are then taking advantage.
+- [23:27.140] And the vice president says something a lot
+- [23:28.920] that resonates with me.
+- [23:30.310] The generosity of the American people,
+- [23:33.580] the generosity of everybody in this room, the leadership,
+- [23:37.020] to take care of the people in this country
+- [23:38.570] that are the most --
+- [23:39.800] that deserve it the most, children
+- [23:41.340] who are supposed to get food at school
+- [23:43.490] and you have men just stealing, taking that money.
+- [23:46.070] And so, that's what we're focused on
+- [23:49.390] and we are standing up -- as you know, Mr. President,
+- [23:52.840] you allowed us to stand up a new division
+- [23:54.610] at the Department of Justice.
+- [23:56.070] Our entire existence at that division
+- [23:58.280] is to combat what we're talking about.
+- [24:00.160] And then every US attorney's office
+- [24:02.100] is now focused on it as well.
+- [24:03.550] So, this is something that will result in a better place
+- [24:07.580] for every citizen in this country
+- [24:09.250] and save money, a lot of money.
+- [24:11.440] And also, it's the right thing to do for our tax dollars,
+- [24:14.500] Mr. President.
+- [24:15.700] The President: And billions of dollars
+- [24:16.980] was given out just very quickly before Biden left office,
+- [24:21.800] billions and billions were given out.
+- [24:24.160] And, I mean, I know of many cases,
+- [24:26.160] but one, I don't know what's happened with it,
+- [24:28.020] but I think you're looking at it.
+- [24:29.260] I know Lee was involved in it environmentally,
+- [24:31.500] and Stacey Abrams was given $2 billion
+- [24:35.510] for an account that had $103 in it
+- [24:37.990] and environmental fraud, I guess.
+- [24:40.890] And she had $103 in this newly opened account
+- [24:46.120] and before leaving business,
+- [24:48.340] they put $2 billion into the account,
+- [24:51.500] and they had no reason for existence,
+- [24:53.160] they were unable to say what they did with it.
+- [24:54.810] $2 billion.
+- [24:56.060] Lee, do you want to just mention something about that?
+- [24:58.580] Lee Zeldin: Well, thanks to your leadership, Mr. President,
+- [25:00.700] that was canceled
+- [25:02.220] and they no longer have access to that $2 billion.
+- [25:05.510] The President: They fought like hell, didn't they?
+- [25:07.770] They wanted that money. Go ahead.
+- [25:09.450] Lee Zeldin: In fact, it was over $29 billion
+- [25:13.120] that has now been canceled at EPA.
+- [25:16.320] You told us to make it a priority, now this happened.
+- [25:18.670] As soon as you came in, after the election,
+- [25:21.200] before your inauguration, they were caught on video
+- [25:25.790] saying that they were rushing to get billions of dollars
+- [25:28.070] out the door before your swearing in,
+- [25:30.080] because they were afraid that once you were sworn in,
+- [25:32.040] you were going to stop it.
+- [25:33.610] Well, that part, they were right.
+- [25:36.330] The President: We did. Great job.
+- [25:38.540] Lee Zeldin: And we're happy to do it, Mr. President.
+- [25:42.460] And the Department of Justice under Todd Blanche's leadership,
+- [25:46.710] they just secured another big win in appeals court
+- [25:49.920] on some recently canceled grants for different agencies.
+- [25:53.870] So, great attorneys making sure
+- [25:56.500] that this accountability is delivered over the finish line.
+- [26:00.230] It's been a great team effort.
+- [26:02.340] The President: And we're building more --
+- [26:03.620] most importantly, we're building more factories and plants
+- [26:06.400] in the United States now than at any time ever before.
+- [26:09.770] $18 trillion coming in;
+- [26:11.890] that's not including the 12th month, that's 11.
+- [26:15.150] And I say it often that the Biden administration
+- [26:17.320] had much less than $1 trillion, and we have $18 trillion.
+- [26:20.790] And when those numbers, those final numbers come up,
+- [26:23.600] they'll be even higher than that.
+- [26:24.800] That's a record in the history of the world;
+- [26:26.730] no country has ever done that.
+- [26:28.700] And that money is going into plants,
+- [26:30.570] and you are giving them very fast approvals --
+- [26:33.160] thorough and environmentally correct,
+- [26:35.060] but fast approvals and you're doing a fantastic job.
+- [26:38.020] Thank you very much.
+- [26:39.530] Another man doing a fantastic job,
+- [26:41.290] I think we all agree, is Marco.
+- [26:43.210] You're all over the place, right?
+- [26:44.590] I watched you last night in three different locations.
+- [26:47.940] So, tell us about Iran.
+- [26:49.650] Secretary Rubio: Well, first of all, the bottom line
+- [26:51.420] is Iran's never going to have a nuclear weapon.
+- [26:53.580] And if recent events have done anything,
+- [26:55.100] it's just -- remind us once again
+- [26:56.730] that they are the world's leading sponsor of terrorism,
+- [26:59.730] and they can never have a nuclear weapon.
+- [27:01.570] Now, the president's preference --
+- [27:03.140] Mr. President, your preference, as told repeatedly,
+- [27:05.030] is always to negotiate these things
+- [27:06.760] and to figure out if you can have agreements.
+- [27:08.230] Diplomacy is always the first option,
+- [27:10.540] and we continue to work on that
+- [27:12.270] through your envoys of Mr. Witkoff and Kushner
+- [27:15.590] and others, the vice president, who have been very involved.
+- [27:17.470] And if there's an agreement to be made,
+- [27:19.460] we want that to be made.
+- [27:20.660] I think there's been some progress and some interest,
+- [27:23.000] and we'll see over the next few hours and days
+- [27:24.700] whether progress could be made.
+- [27:25.970] I just want to remind everybody --
+- [27:27.330] Mr. President, you know this well --
+- [27:28.890] you have other options available to you if that doesn't work.
+- [27:31.750] But the bottom line is that we'd prefer
+- [27:33.930] the negotiated diplomatic route,
+- [27:35.600] and we're going to give it every chance to succeed.
+- [27:37.430] I know you're giving it
+- [27:38.630] every chance to succeed, Mr. President.
+- [27:40.050] But here's the bottom line -- because I keep getting asked,
+- [27:42.020] what is this all about? It's very simple, Iran,
+- [27:44.780] and these people in charge of Iran,
+- [27:46.460] can never have a nuclear weapon.
+- [27:48.000] And they will never have a nuclear weapon,
+- [27:49.510] and they most certainly will not have one
+- [27:51.420] as long as you're president of the United States.
+- [27:53.110] On that point, it's very clear.
+- [27:54.670] Just two quick things I want to touch upon.
+- [27:56.400] One, you touched upon the border and security.
+- [27:58.460] Part of securing our border is dealing with the people
+- [28:02.150] that are in this country unlawfully,
+- [28:03.590] many of whom do not want to go back to the country
+- [28:06.110] that they originally came from for a variety of reasons.
+- [28:08.150] Either we can't send them there or some judge ties us up.
+- [28:11.040] And one of the key things we have achieved
+- [28:13.140] is now 20 countries
+- [28:14.640] have signed third country national agreements,
+- [28:16.590] meaning these are safe countries where individuals who refuse
+- [28:19.440] to go back to their country of origin
+- [28:21.280] can be sent to that country instead.
+- [28:22.950] We've gotten 20 countries now around the world
+- [28:24.990] who have signed agreements that allow us
+- [28:26.950] to deport people to those places.
+- [28:28.970] What often happens when you go to the person
+- [28:31.530] who's here unlawfully and say,
+- [28:33.000] we're going to send you to this third country,
+- [28:34.710] is all of a sudden, they decide they'd rather go back
+- [28:36.640] to their home country instead.
+- [28:38.290] So, it gives the ability to enforce all laws,
+- [28:40.590] and we work very closely with the Department
+- [28:42.170] of Homeland Security on that front.
+- [28:43.910] Something else that I know is concerning people,
+- [28:46.350] because it's in the news, is Ebola.
+- [28:48.520] Our number one obligation -- you know,
+- [28:49.880] we're involved in foreign policy,
+- [28:51.160] but even our foreign policy,
+- [28:52.420] the number one priority of our foreign policy
+- [28:54.520] is to protect the American people.
+- [28:56.370] We cannot and will not allow any cases of Ebola
+- [28:59.110] to enter the United States.
+- [29:00.750] And so, we're very -- the State Department
+- [29:02.570] and other agencies represented here,
+- [29:04.290] the Centers for Disease Control, HHS,
+- [29:06.570] others are working very, very hard to contain this crisis
+- [29:10.800] to the countries where it's currently located,
+- [29:12.490] particularly the Democratic Republic of the Congo.
+- [29:15.100] And so, we've searched assistance to make sure
+- [29:18.150] that that that is being contained there.
+- [29:20.070] And obviously, multiple agencies involved here
+- [29:22.500] are also very involved in tracking people
+- [29:24.200] just to make sure that nobody comes into this country
+- [29:26.800] that has Ebola and creates a problem for us,
+- [29:29.240] and we feel like we've got good efforts in place to do that.
+- [29:31.790] And Americans should feel assured
+- [29:33.780] that the president and his administration
+- [29:35.390] is doing everything we can to protect them on that front.
+- [29:37.640] My last point -- you said I was all over the place.
+- [29:39.460] One of the places I stopped in last night
+- [29:41.180] was to initial the Trump route for prosperity in Armenia.
+- [29:46.440] This is a key linchpin of the peace deal
+- [29:49.530] that you were able to achieve between Armenia and Azerbaijan.
+- [29:52.640] And in addition to that, we also signed a critical minerals
+- [29:55.420] MOU with them and a strategic engagement one as well.
+- [29:59.540] So, just a reminder of another war you helped to settle,
+- [30:02.380] Mr. President, but from that has now --
+- [30:05.200] we are seeing the emergence
+- [30:06.550] of a great new relationship with Armenia
+- [30:09.260] that really had grown stagnant for a very long period of time.
+- [30:11.990] So, we're doing well on that front as well. Thank you.
+- [30:14.660] The President: And could I just ask you Cuba and Venezuela,
+- [30:16.610] what's going on there?
+- [30:17.830] Secretary Rubio: Well, interesting.
+- [30:19.050] On Venezuela, that process continues,
+- [30:20.780] that three phase process of, obviously, stabilization,
+- [30:25.550] recovery and transition.
+- [30:27.220] I would just say just since January 3rd of this year, OK,
+- [30:30.360] and I think this number is right and Chris, you can --
+- [30:32.570] Chris or Doug can correct me on this.
+- [30:34.590] But I think over 10 million barrels of Venezuelan
+- [30:37.960] oil have been delivered to the United States
+- [30:39.650] since the 3rd of January.
+- [30:41.250] That industry is being professionalized
+- [30:43.180] for the first time ever.
+- [30:44.380] It's going to the benefit of the Venezuelan people.
+- [30:46.590] They are selling oil in the market at market rates.
+- [30:48.870] The money is going to an account in the United States,
+- [30:52.250] controlled and monitored by Treasury, audited by KPMG.
+- [30:55.990] And for the first time ever, the money is not being stolen,
+- [30:58.260] it's going to the benefit of the Venezuelan people.
+- [31:01.040] Cuba's in a lot of trouble because, unfortunately for them,
+- [31:04.380] it's run by a bunch of incompetent communists.
+- [31:06.600] And being communist is bad;
+- [31:07.900] being an incompetent communist is like the worst.
+- [31:11.890] But the country has been taken over by this company
+- [31:13.570] called GAESA
+- [31:14.810] that basically controls 70 percent of the economy.
+- [31:17.490] None of the money in that company
+- [31:19.370] goes to help the Cuban people, none of it.
+- [31:21.930] So, we'll be talking to them, we'll be working on it.
+- [31:24.650] We want something good for the Cuban people,
+- [31:26.800] and hopefully there'll be a good outcome there for them,
+- [31:28.670] there needs to be. It's 90 miles from our shores,
+- [31:31.080] and having a failed state 90 miles from our shores
+- [31:35.410] is a threat to the national security of the United States.
+- [31:38.800] The President: So, we're producing right now more oil,
+- [31:41.160] by double, than Russia and Saudi Arabia combined.
+- [31:45.290] There's never been anything like that.
+- [31:46.920] We have -- we don't need oil,
+- [31:48.220] we don't need the strait, we don't need anything.
+- [31:50.050] But we have more oil now being produced by double,
+- [31:52.970] by two times, than Russia and Saudi Arabia combined.
+- [31:57.880] It's a great stat. Do you want to say something about that?
+- [32:01.870] Doug Burgum: Well, I would --
+- [32:03.100] President Trump, under your leadership
+- [32:05.090] we've opened up lease sales on public land.
+- [32:08.620] This is land that was put away for the benefit
+- [32:10.680] and the use of the American people,
+- [32:12.470] like the strategic petroleum reserve in Alaska.
+- [32:15.400] The Biden administration had illegally stopped
+- [32:17.800] holding lease sales during their administration.
+- [32:20.880] President Trump famously said,
+- [32:22.310] drill, baby, drill.
+- [32:23.640] But before you can drill, you've got to open public lands.
+- [32:27.440] Between the lease sales that have happened in the Permian,
+- [32:31.290] in the Bakken and on the North Slope, just in --
+- [32:34.830] Just since January of this year,
+- [32:36.850] it's over $4 billion of revenue that's come into the Treasury.
+- [32:40.490] That's 13 times more than the Biden administration brought in
+- [32:43.860] on lease sales in the entire four years they were in office.
+- [32:48.040] Sir, your policies brought that in in five months.
+- [32:50.920] So with that, a lot of excitement, a lot of activity.
+- [32:53.750] We also inherited just in one district,
+- [32:57.250] in Carlsbad, New Mexico, 5,600 unprocessed applications
+- [33:01.760] to drill for oil and gas on public land.
+- [33:04.920] And when you're -- when we're drilling on public land,
+- [33:07.110] those companies pay a royalty
+- [33:08.630] and that money comes to all of our citizens,
+- [33:10.820] and it goes to local school districts and it goes to states.
+- [33:13.780] It is the core of the economy in parts of our country.
+- [33:17.240] The team down there working for the Department
+- [33:19.190] of Interior Bureau of Land Management
+- [33:20.610] has dropped that by 91 percent.
+- [33:23.270] It's one of the reasons why they had a record lease sale,
+- [33:25.660] because now people go, I can bid on federal land
+- [33:28.070] and I'm going to get a permit to drill,
+- [33:29.840] and it's not going to take me five years to get it.
+- [33:31.840] I'm going to get it in a month or less.
+- [33:34.520] And so it's just -- it's exciting to see your vision
+- [33:38.200] and, of course, with this energy dominance,
+- [33:40.750] us, as you noted, largest oil producer in the world,
+- [33:43.410] largest natural gas producer in the world,
+- [33:45.520] largest natural gas exporter.
+- [33:47.720] This is an opportunity for us to bring prosperity
+- [33:50.400] and affordability here at home, but also being priests abroad.
+- [33:53.130] So President Trump, your energy dominance strategy
+- [33:57.100] with Chris Wright, Lee Zeldin,
+- [33:58.610] all the people that are working on this,
+- [34:00.080] people around the room you know,
+- [34:02.330] it's, it's been really incredible.
+- [34:03.970] And, of course, you mentioned Venezuela,
+- [34:05.610] but all that flowing to our Gulf Coast refineries
+- [34:09.060] is also helping to keep the price of gas down at home.
+- [34:12.130] It's -- again, it's a -- it's an amazing transformation.
+- [34:14.710] Bottom line is the center of geopolitics around energy
+- [34:19.400] has moved from other parts of the world
+- [34:21.730] to the Western Hemisphere in the last five months.
+- [34:24.610] You turned Venezuela from a sanctioned adversary into a --
+- [34:27.970] into a strategic ally in 45 minutes.
+- [34:30.420] Never happened in history before.
+- [34:32.960] And what's going on in Alaska, when I was there last week,
+- [34:36.220] in Alaska, in the North Slope,
+- [34:37.600] 80,000 barrels a day coming online at
+- [34:39.590] (Inaudible), that wouldn't have happened with you.
+- [34:41.630] It's up by Willow on the north slope.
+- [34:43.470] That's going into the -- into the Alaska pipeline,
+- [34:46.310] 20 percent increase just off that one field, so amazing work.
+- [34:51.800] Energy is a high tech industry
+- [34:53.180] and those guys are crushing it and they're loving --
+- [34:56.150] loving the fact that they can provide affordable,
+- [34:58.200] reliable, secure energy for America.
+- [35:00.820] The President: And we're working very hard in California.
+- [35:02.760] You know, a lot of people don't know this,
+- [35:04.320] but California has tremendous, tremendous oil reserves,
+- [35:07.740] used to be number three in the nation,
+- [35:10.060] and the radical left has just wiped it out
+- [35:12.860] and we're working very hard to get that open again
+- [35:15.400] and get it so the people -- that their gasoline prices,
+- [35:18.840] their lack of energy is just staggering.
+- [35:22.250] It's staggering
+- [35:23.630] and we're actually making very good progress.
+- [35:25.890] Even people that were against that at one point,
+- [35:27.800] now they're saying, wow, that would be great.
+- [35:29.270] But people don't realize it was one of the --
+- [35:31.250] right, Chris, it was one of the top drilling states,
+- [35:34.630] one of the, uh --
+- [35:36.100] and I would say in terms of reserves,
+- [35:37.860] as among the top in the country.
+- [35:39.610] Nobody thinks of that with California.
+- [35:41.070] Everything was just closed down, really violently closed down.
+- [35:45.330] And we're opening up some of it,
+- [35:47.310] and we're being met with, actually, great spirit.
+- [35:51.010] Because they're paying so much for gasoline
+- [35:52.910] and they don't have to be doing that.
+- [35:54.250] And they have a very incompetent group of leaders,
+- [35:57.650] like grossly incompetent.
+- [35:59.770] So I think that's going to be something.
+- [36:01.230] On a slightly smaller subject, while Doug was speaking,
+- [36:04.030] Department of Interior,
+- [36:05.260] he and his people have done a fantastic job on DC.
+- [36:08.360] DC is looking beautiful.
+- [36:10.100] The fountains are almost all open.
+- [36:11.860] We had 28 of them.
+- [36:13.690] And we have one in particular, a very long lake, we call it,
+- [36:17.890] the Reflecting Lake between the Lincoln Monument.
+- [36:22.820] And nobody's ever seen anything like it.
+- [36:25.000] The -- you take a look at between Lincoln and Washington,
+- [36:28.410] you have the longest, like 2,400ft long.
+- [36:31.520] That's longer than the tallest building in the world
+- [36:33.540] if you set it on its side,
+- [36:35.320] and it's almost 200 feet wide and --
+- [36:38.180] actually, it was built in 1922.
+- [36:39.820] And from 1922 on, it really never worked.
+- [36:42.990] It always leaked and it was a problem and a lot of things.
+- [36:46.060] And hundreds of millions were spent.
+- [36:48.510] The Biden administration and the Obama administration spent
+- [36:52.490] hundreds of millions of dollars trying to get it to work,
+- [36:54.910] and they failed.
+- [36:56.400] And we'll be spending, you'll give me a number,
+- [36:58.540] but I think it's a very low number.
+- [36:59.980] It's like in the number that we originally talked about,
+- [37:03.320] where we cleaned it, we fumigated it.
+- [37:08.180] We had 10 -- uh, 10 major truck dumpsters
+- [37:13.470] Of garbage taken out. Can you believe it?
+- [37:15.330] A friend of mine came in, very substantial person from Germany,
+- [37:19.290] wanted to see the Washington Monument,
+- [37:22.120] wanted to see the Lincoln Memorial.
+- [37:24.140] And he said, I looked, but that horrible reflecting pond
+- [37:28.250] is disgusting it's filthy, dirty and disgusting.
+- [37:31.620] I said, really, I drove down,
+- [37:32.860] I said, Secret Service, let's take a drive and we went down.
+- [37:35.460] I said, that's terrible.
+- [37:37.460] And for the most part, it didn't work.
+- [37:39.310] I mean, they wouldn't even have water in there,
+- [37:40.930] but when they did, it was just dirty,
+- [37:42.250] filthy water that leaked out.
+- [37:44.500] And we got to work on it.
+- [37:46.190] And it was supposed to cost almost 400 --
+- [37:48.980] think of it, $400 million,
+- [37:50.490] because it's like putting the skin on a skyscraper,
+- [37:53.810] but bigger, much bigger, many skyscrapers,
+- [37:57.380] you could almost say, other than for the world's tallest --
+- [37:59.590] think of it, the world's tallest skyscraper
+- [38:01.930] is shorter than 2,400 feet.
+- [38:05.380] So we went to work and over the years,
+- [38:08.850] I built hundreds of pools.
+- [38:11.000] I build them every time I built a building.
+- [38:12.540] I always like to build Olympic sized swimming pools
+- [38:14.620] and I was very aware, swimming pool --
+- [38:17.730] what goes into making a swimming pool.
+- [38:19.560] It's not as simple as people think.
+- [38:21.280] You never want it to leak,
+- [38:22.510] you want to have beautiful surface.
+- [38:23.840] I said, you know, I have an idea, Doug.
+- [38:26.560] We sat down.
+- [38:27.970] I said, let's take that long thing
+- [38:31.390] where we're going to fix it with concrete,
+- [38:33.190] which leaks, concrete, all sorts of other materials
+- [38:36.170] that all leak and don't look good,
+- [38:38.090] they're gray, and, you know, swimming pool --
+- [38:42.420] I have a swimming pool right up the road.
+- [38:44.120] I built it 22 years ago. It's perfect.
+- [38:46.040] I said, does it ever leak? No, it's perfect.
+- [38:48.780] Good contractors I actually called
+- [38:51.060] in a couple of the contractors got some ideas from them.
+- [38:54.370] And I gave it to Doug and Doug's done an unbelievable job.
+- [38:57.330] And so they were going to spend maybe $400 million.
+- [39:01.970] I don't know, you never know with cost overruns
+- [39:04.240] and everything, but it was going to take years
+- [39:06.200] to build, three years, four years,
+- [39:08.690] and we'll have it done before July 4th,
+- [39:12.910] substantially before July 4th.
+- [39:15.150] If we didn't have such bad weather
+- [39:16.690] the last four or five days, it could have been almost done.
+- [39:19.210] We have to -- you can't do this substance in the rain.
+- [39:22.060] And what they did is they cleaned it.
+- [39:25.190] They took out, as I said,
+- [39:27.380] more than 10 dumpsters of garbage, shovels.
+- [39:30.650] It was disgusting. Oh, every corner that --
+- [39:33.960] every corner had massive amounts of --
+- [39:36.310] I guess that's the way the tide goes,
+- [39:38.330] but they had massive amounts of garbage.
+- [39:40.360] We then steam cleaned it.
+- [39:43.040] We then sandblasted it and then we pebble blasted it.
+- [39:46.990] That's a bigger version of sand.
+- [39:48.940] We -- we made the surface as good as it can be
+- [39:52.710] and we're now covering it
+- [39:53.950] with the most beautiful blue, very thick.
+- [39:57.240] You think of it as a very sophisticated form of rubber,
+- [40:01.680] no leaks, no problems.
+- [40:04.030] And it's beautiful. It's called American Flag blue.
+- [40:06.260] That was the color we chose.
+- [40:08.120] And we are probably 70 percent finished with it.
+- [40:12.320] It's going to be finished. The hard part's done.
+- [40:14.670] And then we decided to do much more
+- [40:16.560] than we originally, when I originally --
+- [40:18.030] I thought I was just going to do the surface,
+- [40:19.650] but we said, the problem is the outer ring
+- [40:22.630] looks pretty bad too, where you walk on.
+- [40:24.890] So we sandblasted that.
+- [40:26.500] This is all additional work. We didn't want to do --
+- [40:29.260] you know, when you do something like this,
+- [40:30.760] when you do the one, you think the other looked okay,
+- [40:33.550] but then when the other you see the --
+- [40:35.120] the new surface,
+- [40:36.350] the old stuff that looked okay looks really bad.
+- [40:39.340] So we cleaned that,
+- [40:40.540] sandblasted it, the walkways, all of it.
+- [40:44.410] It's a tremendous amount of area.
+- [40:46.030] You know, it's -- again, it's --
+- [40:47.630] it's thousands of feet long, very wide.
+- [40:50.940] This is where the people stand,
+- [40:52.170] not the water part, the dry part.
+- [40:54.550] And we had a combination of granite and stone
+- [40:57.810] and we're pointing it, fixing it.
+- [40:59.490] The joints were terrible, everything.
+- [41:01.310] The whole place was a mess.
+- [41:03.390] And when it opens in a couple of weeks,
+- [41:07.910] long before July 4th, we want to have it for July 4th weekend,
+- [41:11.130] but it will be long before that.
+- [41:13.160] You will see something that's really going to be beautiful.
+- [41:16.080] And now we're looking at the World War II fountain,
+- [41:18.100] because that's also in pretty bad shape.
+- [41:20.550] On the bottom, we're going to duplicate it,
+- [41:22.170] I think, with the maybe with a slightly different color.
+- [41:25.760] Actually, we'll go with a lighter color.
+- [41:27.800] But Doug and I have a lot of fun doing it.
+- [41:30.030] Your staff is fantastic.
+- [41:31.290] They've really worked well.
+- [41:33.070] But the concept -- so think of it,
+- [41:34.370] instead of spending $200 million,
+- [41:36.270] $300 million, $400 million and it will never work,
+- [41:39.020] we're going to spend like $10 million,
+- [41:41.740] maybe, $12 million.
+- [41:44.550] Instead of spending four years, we're going to spend, like,
+- [41:47.470] if you add it all up, like a couple of months.
+- [41:50.630] And instead of going through four 4th of Julys
+- [41:53.770] as a horrible construction site,
+- [41:55.400] we're going to have it open before the 4th of July.
+- [41:58.490] And the difference is it's better.
+- [41:59.690] Somebody said, oh, well, but it's not the same.
+- [42:01.540] You know, some of the fake news would say, well,
+- [42:03.260] but it's not -- no, it's -- it's like the pen story.
+- [42:06.730] The pen is better at $2 than it was at $2,000.
+- [42:09.470] This is the same thing.
+- [42:11.170] Uh, this is far better. It won't leak.
+- [42:14.570] It'll last for 50 years, maybe 100 years
+- [42:17.030] and they didn't even know. I said, how long will this last?
+- [42:19.390] Oh, I think you'll get 50 years out of it.
+- [42:21.780] Uh, we did the swimming pool treatment, but they said, sir,
+- [42:26.550] for a little more money, we can get industrial strength.
+- [42:30.640] I said, that sounds good to me.
+- [42:31.990] Same color, same everything, same stuff, but it's much --
+- [42:35.120] it's actually much stronger.
+- [42:36.620] It's used for industrial. I said, I love that.
+- [42:39.380] So we're going to have that open.
+- [42:40.590] It's going to be really, really beautiful.
+- [42:43.540] And it's a very important thing.
+- [42:45.220] You know, we can't have people looking
+- [42:46.480] at the Washington Monument going --
+- [42:49.440] uh, the memorial, you take a look, the Lincoln Memorial,
+- [42:55.310] it was built, I guess, a little after the Lincoln Memorial.
+- [42:58.640] It's embarrassing. It was so horrible.
+- [43:01.280] I never saw anything like it.
+- [43:02.930] It was filthy, dirty. It was Biden.
+- [43:06.520] And they spent, between the two of them,
+- [43:10.170] they spent hundreds of millions of dollars
+- [43:12.480] trying to fix this thing.
+- [43:14.180] Now, when Biden -- when Obama did it,
+- [43:16.490] he spent way over $100 million. And they had a great idea,
+- [43:20.410] let's use the water from the Potomac,
+- [43:23.310] because environmentally, they liked it.
+- [43:24.800] Somebody said that was good.
+- [43:26.060] But the water from the Potomac was not suitable for this,
+- [43:29.430] to put it mildly. It was disgusting what happened.
+- [43:32.360] And so they spent hundreds of millions, over $100 million.
+- [43:35.810] And they immediately closed it.
+- [43:37.680] It was closed for many months and nobody did anything.
+- [43:40.270] It was closed. It's basically been closed.
+- [43:42.470] But go back to 1922, it was always sort of --
+- [43:46.380] people think of it as beautiful,
+- [43:47.610] but it was always a mess it's going to be unbelievable.
+- [43:50.800] It will be unbelievable. It's actually exciting.
+- [43:52.590] I want to ride over there today if I can.
+- [43:54.320] You know, I always have a problem with secret services
+- [43:56.200] and in love with my walking along, checking --
+- [43:59.870] checking the sidewalk, the new sidewalk to see
+- [44:02.340] whether or not they pointed it correctly.
+- [44:04.750] But they do, we have great contractors doing the job.
+- [44:06.950] But we'll spend a very tiny amount of money,
+- [44:08.880] and it'll be better than it ever was when it was built in 1922.
+- [44:12.500] It's very exciting, actually, to me.
+- [44:13.890] I love construction, it's very exciting.
+- [44:15.820] And we do many things. We did 28 or 29 fountains.
+- [44:19.390] I made a contribution to redoing Lafayette Park.
+- [44:22.460] That's the entrance to the White House
+- [44:24.910] and it was an embarrassment.
+- [44:26.720] The floors were broken -- or they had bricks,
+- [44:30.190] the bricks, some of the bricks were missing.
+- [44:31.860] You know where they're missing,
+- [44:33.070] they took them out to throw at people we're going with them.
+- [44:36.390] It's going to be a world-class park.
+- [44:38.660] It'll be open pretty soon.
+- [44:40.000] They're doing a lot of work over there.
+- [44:41.920] That was a contribution that I made with some other people.
+- [44:45.050] And it's going to be really beautiful.
+- [44:46.780] That was really the front door to the White House,
+- [44:48.530] but you couldn't even use it.
+- [44:49.730] It was so terrible people would come to the White House
+- [44:52.070] and it was so terrible.
+- [44:53.570] So with that, I'm going to ask Pete
+- [44:55.190] to talk about some of our great success.
+- [44:57.310] Secretary Hegseth: Yes, sir.
+- [44:58.620] The President: Including Venezuela, you might talk.
+- [44:59.920] Secretary Hegseth: Absolutely, sir.
+- [45:01.130] I think, um, actually,
+- [45:02.490] your efforts on the reflecting pool
+- [45:04.130] are actually a great segue.
+- [45:05.690] And if you look at Washington and Lincoln,
+- [45:08.160] these are two men that faced monumental tasks
+- [45:10.880] and stood up in historic fashion
+- [45:13.510] and delivered for the American people.
+- [45:15.050] And when you step back and look at 47 years
+- [45:18.100] of what Iran waged war against us and our people,
+- [45:21.470] there's only one man over the course of both presidency
+- [45:24.040] who has stood up
+- [45:25.320] and said they will never get a nuclear weapon, as Marco said.
+- [45:28.930] So whether it was Qasem Soleimani,
+- [45:30.420] whether it was scrapping the Obama deal
+- [45:32.140] that was going to give them a weapon,
+- [45:33.890] whether it was the 12 day war or Operation Midnight Hammer,
+- [45:37.120] you created the conditions to ensure the American people
+- [45:39.810] and the world are safeguarded from this generational threat.
+- [45:43.470] And so when you authorized Operation Epic Fury,
+- [45:46.810] just like you talked about with the Reflecting Pool,
+- [45:48.870] we didn't do the same old thing
+- [45:50.080] the way we'd done it in the past,
+- [45:51.360] after, you know, Iraq and Afghanistan,
+- [45:53.570] the way we waged wars.
+- [45:54.910] Instead, you said, we're going to do this smart,
+- [45:56.920] we're going to do it overwhelming,
+- [45:58.770] we're going to use maximum lethality,
+- [46:00.340] and we're going to bring them to their knees.
+- [46:01.640] And so whether it's their Navy
+- [46:02.850] that's at the bottom of the Persian Gulf,
+- [46:04.250] their air force, their air defenses,
+- [46:06.640] or their defense industrial base,
+- [46:08.080] they may have missiles,
+- [46:09.350] but they can't build more right now,
+- [46:10.940] and they can't build more drones right now,
+- [46:12.660] and they can't build more ships.
+- [46:14.480] And so they came and cried uncle to talk with Steve and Jared,
+- [46:18.180] and the vice president and others are doing so ably.
+- [46:20.890] And in the -- during that time,
+- [46:22.690] we put in a world class blockade,
+- [46:24.920] and they haven't been able to bring anything in
+- [46:26.830] or anything out from Iranian ports.
+- [46:28.900] And we know from the Intel that they are --
+- [46:32.100] Their economy is hurting big time
+- [46:34.230] because that is their lifeblood.
+- [46:36.190] And again, bringing them to the table.
+- [46:37.820] So whether it is through the efforts of your negotiators,
+- [46:41.360] that they ensure that they never have a nuclear weapon,
+- [46:44.270] or we have to go back to the War Department
+- [46:46.260] to finish the job that way uh, we're prepared to do that.
+- [46:49.350] And I think even our reach
+- [46:50.920] on the dark fleet of Iranian tankers,
+- [46:53.970] no Iranian tanker around the globe is safe.
+- [46:56.160] And we've seen seizures all around the globe,
+- [46:58.320] again, choking off their economic lifeblood
+- [47:00.760] but all of this is possible,
+- [47:02.270] Mr. President thanks to the investments
+- [47:04.600] that you've made in this department,
+- [47:06.240] firing on all cylinders. For the second year in a row,
+- [47:10.450] we're at historic recruitment rates.
+- [47:12.940] Last year we said that here,
+- [47:14.620] this year we beat it even faster.
+- [47:16.570] The American people are excited about
+- [47:18.190] what you're bringing to our department
+- [47:19.620] our defense industrial base $50 billion
+- [47:22.540] in private investments and because of your --
+- [47:25.010] the meetings you've held,
+- [47:26.640] defense manufacturers are investing in new plants
+- [47:29.050] and new manufacturing, new production lines
+- [47:31.790] so that we're getting weapons faster than ever.
+- [47:34.280] And then the $1.5 trillion that you've committed
+- [47:36.660] to the Department going forward, that's a million American jobs,
+- [47:40.280] one million American manufacturing jobs.
+- [47:43.030] That's Golden Dome for America,
+- [47:44.320] that's F-47, that's B-21, that's $50 billion in drones.
+- [47:48.610] We're going to lead the lead the world in drones,
+- [47:51.670] shaving years off of production of all of those,
+- [47:54.710] everything under budget and ahead of schedule,
+- [47:56.330] which is what the warfighter deserves.
+- [47:57.750] And we saw it.
+- [47:58.990] You mentioned Venezuela, Mr. President.
+- [48:00.310] You saw it on display there.
+- [48:02.180] Think of the fact that our SOUTHCOM commander
+- [48:04.580] just landed via helicopter at our embassy,
+- [48:08.940] peacefully at the welcome of Venezuelans,
+- [48:11.430] because we're now partnering with them, hopefully,
+- [48:13.840] even on the counter cartel mission
+- [48:15.330] as we secure our hemisphere.
+- [48:16.550] So we've secured that southwest border.
+- [48:19.050] We're going to war with the cartels
+- [48:21.320] through the Americas Counter Cartel Coalition.
+- [48:24.120] Venezuela is a big part of securing our energy future
+- [48:26.290] and defending the homeland.
+- [48:27.500] And then I just want to note one more thing,
+- [48:29.680] to give you a sense of how committed this president is.
+- [48:32.450] Maybe a year ago, he heard the call of Nigerian Christians
+- [48:36.500] who were being targeted and killed by ISIS in Nigeria.
+- [48:41.110] And he said, Pete, I want the War Department
+- [48:43.390] to focus on ensuring that we do everything we can
+- [48:45.770] to protect those Christians partnerships
+- [48:48.170] like that can take time behind the scenes,
+- [48:49.900] but he never wavered on it,
+- [48:51.300] and we got the assets there and over the last month,
+- [48:53.540] and there hasn't been much coverage of this,
+- [48:55.340] we killed ISIS number two in Nigeria,
+- [48:57.730] who was most responsible for killing Christians
+- [49:00.140] and trying to target the US homeland and have since,
+- [49:03.320] because of the intel we gathered,
+- [49:04.720] killed hundreds of ISIS members
+- [49:06.960] who were targeting and killing Christians in Nigeria,
+- [49:09.340] creating a whole new opportunity there.
+- [49:11.050] So there's a lot of things we do that
+- [49:12.690] the media pays attention to,
+- [49:14.270] and a lot of the things that the president empowers
+- [49:16.310] the Department to do on behalf of the American people
+- [49:19.230] that he deserves great credit for.
+- [49:20.740] The President: Thank you, great job.
+- [49:22.050] You're doing a great job.
+- [49:23.250] I just want to say, on recruitment, we're very proud
+- [49:26.130] of the fact that for the previous four years,
+- [49:29.620] previous administration, they had --
+- [49:32.190] I mean, they couldn't recruit people.
+- [49:33.640] And that included, by the way, police and firemen and others,
+- [49:36.250] they were not proud of our country.
+- [49:38.370] And they couldn't recruit anybody with a uniform
+- [49:40.530] and was having a hard time recruiting.
+- [49:42.030] And they set record low numbers. They were way, way behind.
+- [49:46.520] And literally from November 5th, it started.
+- [49:48.700] It started even before we got going.
+- [49:52.240] But from the time we won the election to now,
+- [49:55.000] we've had numbers of recruitment,
+- [49:56.960] the likes of which we've never had,
+- [49:58.290] record recruitment in every single branch,
+- [50:01.640] and that includes police and firemen,
+- [50:04.910] record recruitment, so we're very proud of that.
+- [50:06.680] Thank you, great job.
+- [50:07.890] Secretary Hegseth: Thank you, sir. Kelly, please.
+- [50:09.860] Kelly Loeffler: Mr. President,
+- [50:11.070] you have made us a nation of builders again.
+- [50:13.350] You're leading us to the greatest economy
+- [50:15.440] that the world has ever known
+- [50:16.880] and I see that every week as I travel this country.
+- [50:20.190] Main streets across dozens of states from Alaska to Maine,
+- [50:24.560] been in many of those states two or three times.
+- [50:27.150] I hear it everywhere I go,
+- [50:28.530] please thank the president for putting us back on track.
+- [50:32.340] They thank you, they love you,
+- [50:34.690] they want more of what we're doing,
+- [50:36.620] tax cuts, deregulation, fair trade, energy dominance,
+- [50:40.800] small businesses are spring loaded
+- [50:42.960] and we see that in the jobs' numbers.
+- [50:44.900] In the last two months alone, we've created over 300,000
+- [50:48.770] private sector jobs in this country.
+- [50:51.800] Most jobs are created by small businesses, two out of three.
+- [50:55.170] And small businesses, as you know,
+- [50:56.370] make up 99 percent of all businesses in this country
+- [50:59.250] and account for half of our GDP. So --
+- [51:01.460] and that part of the economy is finally working again.
+- [51:04.050] They've gotten out from $5 trillion of regulation
+- [51:07.420] that the Biden administration
+- [51:08.830] put on hard-working small businesses.
+- [51:11.120] They penalized growth, investment,
+- [51:13.510] hard work and success.
+- [51:15.180] But thanks to the working family tax cuts
+- [51:17.210] that every single Democrat voted against,
+- [51:20.360] hard-working families,
+- [51:21.840] the welders, the waitresses that I meet on factory floors
+- [51:25.500] across this country from Pennsylvania to New Mexico,
+- [51:29.340] where I'll be tomorrow,
+- [51:30.700] Brooke and I are going to Arizona tonight,
+- [51:32.600] so we see this everywhere we go.
+- [51:35.150] It's one of the most underreported stories
+- [51:37.320] in the media.
+- [51:38.560] Main Street is back, and that's because America First.
+- [51:42.720] I'll tell you the other thing about fraud,
+- [51:44.450] small businesses are particularly hurt by fraud
+- [51:47.980] because there are some of our biggest taxpayers
+- [51:49.740] in the country, and they show up every day.
+- [51:52.520] They work hard to provide for their employees,
+- [51:55.030] to build their businesses They're working --
+- [51:56.860] they're doing it the honest way,
+- [51:58.670] and they see fraudsters taking from the American people.
+- [52:02.560] It's taxpayer money.
+- [52:03.860] And so you think about, at the SBA,
+- [52:05.540] we found $200 billion in fraudulent PPP loans
+- [52:10.100] that the Biden administration tried to hide and forgive
+- [52:13.340] and sweep under the rug.
+- [52:14.680] We've turned the first $22 billion of that over
+- [52:17.930] to Treasury for collections and to DOJ for prosecution.
+- [52:22.080] Our inspector general is already announcing
+- [52:24.400] that people are going to jail;
+- [52:26.050] there are jail sentences now being served.
+- [52:28.790] We've announced that 140,000 people have been barred
+- [52:33.330] from ever getting SBA loans again,
+- [52:35.950] defrauding the government for about $9 billion.
+- [52:38.820] So, we are going to continue our work
+- [52:40.870] under the great leadership of Vice President Vance.
+- [52:42.980] And appreciate the partnership,
+- [52:44.790] because it's really accelerated our ability to get the job done.
+- [52:48.770] But then just back to small businesses,
+- [52:50.290] we have record business formation in this country,
+- [52:52.730] that's another story that the media won't tell you.
+- [52:55.210] Over half a million businesses on average a month this year,
+- [52:59.000] so it's not just record people working, strong job creation,
+- [53:02.930] business formation at all-time records in this country.
+- [53:06.160] But we have manufacturing expansion
+- [53:07.920] four consecutive months,
+- [53:09.620] that means that's a leading indicator
+- [53:11.400] meaning that we have expansion coming.
+- [53:15.010] Another story the media won't tell you,
+- [53:16.410] 98 percent of all manufacturers are small businesses.
+- [53:19.480] 75 percent of our defense industrial base
+- [53:21.610] is small business. They're our main exporters.
+- [53:25.270] And so, America First, free trade,
+- [53:28.440] fair trade, deregulation, tax cuts and energy dominance
+- [53:32.200] is helping workers on Main Street
+- [53:33.630] and that's why they tell me to tell you, Mr. President,
+- [53:37.280] thank you and they love you.
+- [53:38.600] The President: Thank you very much.
+- [53:39.840] Great job, thank you, Kelly.
+- [53:41.480] And I'd just say, we went to China last week;
+- [53:45.040] we had an amazing meeting with President Xi.
+- [53:47.680] The relationship is very good.
+- [53:48.910] We're doing a lot of business with China now,
+- [53:50.550] but it's not where they were ripping us off.
+- [53:53.470] For years and years, they ripped us off
+- [53:55.340] like nobody ever got ripped off.
+- [53:57.580] Now it's very profitable business that we do with China.
+- [54:01.310] And they respect our country again.
+- [54:03.270] We have the strongest military in the world by far.
+- [54:05.560] They respect our country again. Scott, please.
+- [54:09.420] Scott Bessent: Sir, on the economy,
+- [54:11.580] two words, resilience and prosperity.
+- [54:14.480] The continued resilience of the economy speaks for itself,
+- [54:17.560] even during the Iran -- the conflict,
+- [54:21.410] and it speaks to the strength of your leadership.
+- [54:23.570] Pro-growth policies are creating conditions
+- [54:25.860] for American families and businesses to prosper.
+- [54:28.900] We're entering the second half of our 250th anniversary year
+- [54:33.380] with renewed optimism and momentum.
+- [54:35.850] It has never been a better time to be an American.
+- [54:38.370] And as you said earlier,
+- [54:39.880] we have a record number of Americans working.
+- [54:43.690] The economy that you are building is not only strong,
+- [54:46.160] but secure and resilient
+- [54:48.000] and better positioned to compete globally.
+- [54:51.000] Real GDP has risen 2.7 percent over the past four quarters,
+- [54:56.050] something that many economists said couldn't be done.
+- [54:59.370] In the first quarter of 2026, despite the Iran conflict,
+- [55:03.970] GDP grew at a 2 percent annual rate.
+- [55:06.690] The Atlanta Fed GDP now is predicting 4.3 percent
+- [55:10.890] for this quarter.
+- [55:12.370] In terms of prices, I believe the prices are transitory.
+- [55:16.730] Oil will be lower than pre-conflict levels
+- [55:19.070] when this ends.
+- [55:20.310] Natural gas is already down, as you mentioned.
+- [55:23.770] Drug and pharmaceutical prices, they are plummeting,
+- [55:28.470] and rent is down.
+- [55:30.440] We are more resilient to energy price fluctuations
+- [55:33.550] due to your energy dominance agenda,
+- [55:36.140] deregulatory efforts and we have never sold so much energy
+- [55:40.450] to the rest of the world.
+- [55:42.180] Business investment rose at a 10.4 percent annual rate
+- [55:45.700] in the first quarter.
+- [55:47.020] Capital expenditures and business equipment
+- [55:49.310] rose more than 17 percent,
+- [55:51.530] and that is as a result of the tax bill and tariffs.
+- [55:56.660] Jobs related to commercial construction
+- [55:58.670] and factory construction are up 90,000 since your inauguration.
+- [56:03.260] In the past two months, the private sector,
+- [56:05.580] as Kelly said, has added 313,000 new jobs,
+- [56:10.170] and those are private sector jobs, sir,
+- [56:12.650] including 13,000 manufacturing jobs.
+- [56:15.330] We have construction jobs, we're building the factories,
+- [56:18.370] and those will turn into manufacturing jobs.
+- [56:21.030] The stock market has hit new highs.
+- [56:23.120] The stock market lives in the future.
+- [56:24.760] It is seeing the -- on the other side of this conflict,
+- [56:27.850] it is a strong symbol of optimism for the future.
+- [56:31.080] Corporate earnings are high and wages are doing well.
+- [56:35.200] For the tax season,
+- [56:36.460] we had the best tax filing season in history,
+- [56:40.430] which is a victory for Main Street.
+- [56:42.280] The average refund was nearly $3,300,
+- [56:45.140] an 11 percent increase from last tax filing season.
+- [56:50.800] And importantly, 62 million returns
+- [56:54.300] had one of your four signature policies, no tax on tips,
+- [56:57.660] no tax on overtime, they reduced taxes --
+- [57:00.810] 85 percent of our seniors paid no taxes on Social Security.
+- [57:05.250] And the deductibility of auto loans for American made cars.
+- [57:09.530] For what I believe is the most important government benefit
+- [57:15.630] for young people since the GI Bill, the Trump Accounts.
+- [57:19.660] The app will be available on all major platforms
+- [57:22.640] tomorrow morning,
+- [57:24.610] and it will place the American Dream
+- [57:26.710] into the palms of the hands of parents and children.
+- [57:30.450] Nearly 6 million kids have been signed up for Trump accounts,
+- [57:34.760] and they will launch on July 4th,
+- [57:37.180] and it will be a great symbol of the 250th anniversary.
+- [57:42.210] Main Street prosperity, workers have seen positive wage gains.
+- [57:46.060] The unemployment rate remains low at 4.3 percent,
+- [57:50.020] and private sector job growth is strong.
+- [57:52.830] So, sir, just to reiterate, resilience and prosperity
+- [57:56.540] have been the marks of your second term.
+- [58:01.030] The President: It's been great. It's been amazing actually.
+- [58:03.900] Any questions?
+- [58:05.150] The Press: Thank you, Mr. President.
+- [58:07.310] Iris Tao with NTD sister media with The Epoch Times.
+- [58:10.150] You've done a lot to clean up and fight crimes here.
+- [58:13.050] And as a lot of Americans and people from all around the world
+- [58:16.110] are coming to the nation's capital
+- [58:17.790] ahead of the major 250th birthday events here,
+- [58:21.650] how important is it for you
+- [58:22.930] to really keep delivering on these results?
+- [58:25.410] But also, what does it mean for America's identity
+- [58:27.580] on the national and international stage?
+- [58:30.020] The President: So, I'm very proud of DC because,
+- [58:31.810] when we came here a little more than a year ago,
+- [58:35.110] it was a very dangerous place and now it's a very safe place.
+- [58:39.800] It's been incredible what's happened
+- [58:41.760] as you see the crime numbers. We had restaurants closing up
+- [58:45.470] and nobody wanted to go to a restaurant,
+- [58:47.740] they were afraid to walk to work.
+- [58:48.980] It was a very, very dangerous place,
+- [58:51.890] very unsafe and now it's a very safe place.
+- [58:54.950] We brought in the National Guard,
+- [58:56.670] we worked with Kash and the FBI, and Janine is doing
+- [59:00.390] fantastically and Todd, everybody.
+- [59:03.510] And it's now a very safe city and people are pouring in.
+- [59:06.090] And you see the grass is all beautiful,
+- [59:08.190] we put a lot of new grass in because, like people,
+- [59:11.760] grass has a life too, this grass and it was up a long time.
+- [59:16.000] But we -- the waterfalls we talked about
+- [59:18.660] and the fountains are --
+- [59:21.200] most of them are in the final stages or fixed.
+- [59:23.530] People are writing me letters,
+- [59:24.860] people are talking about it, they're all --
+- [59:27.100] we have some of the most beautiful fountains in the world
+- [59:29.190] and there wasn't one, not one that worked.
+- [59:33.060] We had 29; out of the 29, not one was working,
+- [59:37.100] in addition to the reflecting pool, which is even --
+- [59:40.460] that was the big one of them all, but that was a disaster.
+- [59:43.490] So, with all of that and we -- this place is looking beautiful.
+- [59:48.030] I rode through it yesterday where the fences are down,
+- [59:52.260] the homeless aren't staying here any longer.
+- [59:54.130] We have -- we're helping them out, but we're not --
+- [59:56.630] we just can't have them in the nation's capital.
+- [59:59.510] And when foreign dignitaries come in, they're saying --
+- [01:00:02.590] the first thing they say to me, this place has really changed.
+- [01:00:07.030] They saw that it was going down --
+- [01:00:08.310] our whole country was going down,
+- [01:00:09.610] just like DC was going down.
+- [01:00:12.280] And as you know, the restaurants were closing up,
+- [01:00:14.640] there weren't very many restaurants,
+- [01:00:16.130] and now they're opening up you can't get a space.
+- [01:00:18.920] And everyone's going out to dinner and they're safe.
+- [01:00:21.130] And we had national security and we have the National Guard
+- [01:00:24.320] and we're going to keep them.
+- [01:00:26.900] I want to -- by the way, just in case I mention --
+- [01:00:29.330] keep them and don't lower the number either.
+- [01:00:33.320] Somebody said, oh, are there less?
+- [01:00:34.670] I said, I hope not,
+- [01:00:35.950] but don't lower the number if you don't mind, OK?
+- [01:00:38.200] Secretary Hegseth: We're going to surge this summer, too.
+- [01:00:39.940] The President: They look great. You know what they give people?
+- [01:00:44.370] We took out 5,000 criminals, hard core criminals.
+- [01:00:47.380] By the way, 90 percent of the crime is calculated.
+- [01:00:52.770] They count 2 percent of the people
+- [01:00:55.230] do 90 percent of the crime.
+- [01:00:56.570] That's a great number because when you get rid of 2 percent --
+- [01:00:59.810] 2 percent you can get rid of.
+- [01:01:01.110] 90 percent you can't get rid of -- 2%.
+- [01:01:03.840] So, 2 percent create 90 percent of the crime --
+- [01:01:06.100] 91 percent actually, to be exact.
+- [01:01:08.750] And we have really -- we moved 5,000 people,
+- [01:01:11.800] Todd, out of here. These are career criminals.
+- [01:01:14.700] Many of them came over from the last administration
+- [01:01:17.360] through the open border, the ridiculous open border,
+- [01:01:20.480] no vetting, nobody knew who they were.
+- [01:01:22.370] They came out of prisons, they came out of --
+- [01:01:24.490] they're drug dealers, there were people from mental institutions.
+- [01:01:28.100] And Washington, DC is now a safe and beautiful place
+- [01:01:30.810] and it's only going to get more beautiful.
+- [01:01:32.160] Yeah, please.
+- [01:01:33.390] The Press: President Trump, thank you so much
+- [01:01:34.620] for having us in here today.
+- [01:01:35.940] What are your thoughts -- why do you think that Joe Biden
+- [01:01:37.910] is trying to sue this Department of Justice,
+- [01:01:40.210] former President Joe Biden, to have his tapes
+- [01:01:43.170] that he did interviews on blocked
+- [01:01:44.720] from the American people hearing them?
+- [01:01:46.280] Do you think that he's trying to hide something?
+- [01:01:47.920] And maybe an Acting Attorney General, Todd Blanche,
+- [01:01:50.320] could comment on if they will countersue and release
+- [01:01:52.470] those tapes to the American public?
+- [01:01:53.840] The President: Are you talking about with respect to his book?
+- [01:01:56.270] Well, I'd like to see it, I don't know.
+- [01:01:57.790] Maybe there's some constitutional reason,
+- [01:01:59.510] I don't know. I'd like to --
+- [01:02:00.750] I would like to see what he has to say,
+- [01:02:02.320] because we can never allow what happened
+- [01:02:06.290] to this country to happen.
+- [01:02:07.640] The man was grossly incompetent and the Democrats --
+- [01:02:11.970] I call them the Dumocrats because the policy is so bad.
+- [01:02:14.790] But they -- they came very close to destroying our country.
+- [01:02:19.580] We can never let it happen again.
+- [01:02:21.060] And I hope that you're able to produce that.
+- [01:02:23.810] I think it would be very interesting reading for people.
+- [01:02:25.880] The Press: Mr. President,
+- [01:02:27.270] Iran wants control of the Strait of Hormuz.
+- [01:02:29.670] Would you accept a short-term deal
+- [01:02:31.440] that allows Iran and Oman to control the strait,
+- [01:02:34.240] and would they have to open immediately,
+- [01:02:35.670] or would you be open to that happening over a period of time?
+- [01:02:37.400] The President: Yeah.
+- [01:02:38.640] No, the Strait is going to be open to everybody.
+- [01:02:39.970] It's --
+- [01:02:41.170] The Press: And who would control it?
+- [01:02:42.370] The President: It's international waters.
+- [01:02:43.650] Nobody's going to control it. We're going to watch over it.
+- [01:02:45.900] We'll watch over it but nobody's going to control it.
+- [01:02:48.030] That's part of the negotiation that we have.
+- [01:02:50.600] They would like to control it. Nobody's going to control it.
+- [01:02:52.860] It's international waters.
+- [01:02:54.090] And Oman will behave just like everybody else,
+- [01:02:57.210] or we'll have to blow them up. They understand that.
+- [01:02:59.570] They'll be fine.
+- [01:03:00.830] The Press: Mr. President, thank you.
+- [01:03:02.500] How much economic pressure
+- [01:03:03.810] do you feel to get the Strait of Hormuz open?
+- [01:03:07.050] The President: Well, you have to understand,
+- [01:03:08.300] the United States has so much oil
+- [01:03:10.460] that we are an exporter of oil.
+- [01:03:12.510] So we have plenty of oil. We're very lucky.
+- [01:03:15.220] We're blessed with the greatest piece of land in the world,
+- [01:03:18.910] from that standpoint.
+- [01:03:20.130] And we have more than anybody else.
+- [01:03:21.810] And now when you add Venezuela to it,
+- [01:03:24.190] we have, I think, 64 percent of the world's oil.
+- [01:03:27.420] And we're getting along very well with Venezuela, by the way.
+- [01:03:30.550] It's being run really beautifully.
+- [01:03:32.240] The big companies are moving in. They're going to be a --
+- [01:03:35.070] it's going to be amazing because it's also --
+- [01:03:36.740] like us, they're very --
+- [01:03:37.980] they're very blessed in that sense
+- [01:03:39.600] but we have natural energy that no other country has.
+- [01:03:43.310] We have more than anybody else. So it's really a world problem
+- [01:03:47.750] because most of the world doesn't have that,
+- [01:03:49.670] and we're making it available.
+- [01:03:51.010] During the closing, I don't know if you've seen some of
+- [01:03:54.020] the satellite pictures, boats, hundreds of boats lined up.
+- [01:03:58.190] It looks like, I used to say the Long Island Expressway,
+- [01:04:00.860] with the cars.
+- [01:04:02.140] They're lined up and they're coming to Texas, Louisiana.
+- [01:04:04.590] They're coming to Alaska to fill up their boat, their big boat.
+- [01:04:09.060] Some of them are really big, you know, two million gallons,
+- [01:04:12.180] even bigger than that now, they make them.
+- [01:04:13.740] They make them up to four, Chris.
+- [01:04:15.130] I hear now they make them up to four,
+- [01:04:17.250] the four are now the big ones.
+- [01:04:18.580] Used to be the ones.
+- [01:04:19.780] Now it's a four million barrels of --
+- [01:04:22.930] think of that, four million barrels of oil in one boat,
+- [01:04:25.310] but they're lined up
+- [01:04:26.750] and they're, right now, heading to Texas,
+- [01:04:29.480] and they've already filled up and they've gone back.
+- [01:04:32.110] In addition to that, you have a lot of boats.
+- [01:04:33.970] You have about 1,400,
+- [01:04:35.180] 1500 boats in the strait wanting to get out,
+- [01:04:37.880] and at the right time we'll release them.
+- [01:04:39.480] The Press: But the American people, sir,
+- [01:04:40.730] are seeing higher gas prices. The President: Yeah, they are.
+- [01:04:42.070] The Press: It's come down a little bit,
+- [01:04:43.290] but it's still $4 --
+- [01:04:44.520] The President: No, it's come down --
+- [01:04:45.740] it'll come down a lot.
+- [01:04:47.140] It'll come down to where it was before.
+- [01:04:48.860] We had it -- when I was in Iowa, we had --
+- [01:04:51.930] we're driving by and we saw gas stations,
+- [01:04:55.200] $1.90 a gallon, $1.85, $1.87, were the three that we saw.
+- [01:05:01.470] We had it down in some places below --
+- [01:05:03.910] now, we can't help a California where they charge so much tax
+- [01:05:06.740] that, you know, you lower it and they charge tax.
+- [01:05:08.970] They've got to straighten the act out in California,
+- [01:05:10.820] but we had oil --
+- [01:05:12.050] we had gasoline down to a very low number.
+- [01:05:14.610] I think we'll be hitting that number
+- [01:05:18.060] shortly after that whole excursion ends.
+- [01:05:22.920] But regardless of anything, regardless of anything,
+- [01:05:26.480] as Marco said, better than anybody can say it,
+- [01:05:28.640] you can't let them have a nuclear weapon.
+- [01:05:31.180] They would use it instantly.
+- [01:05:32.840] They wouldn't think about it, they would use it instantly.
+- [01:05:36.100] I've gotten to know them, they would use it instantly.
+- [01:05:38.460] The Press: Does that give you more urgency, Mr. President?
+- [01:05:40.290] You've said that you're in no rush to make a deal
+- [01:05:42.150] but with gas prices that are so high across the country,
+- [01:05:44.980] people are paying more for travel,
+- [01:05:46.260] does that give you more urgency to make a deal?
+- [01:05:47.580] Why doesn't --
+- [01:05:48.850] The President: Well, I'll tell you,
+- [01:05:50.070] the primary urgency I have,
+- [01:05:51.290] I said this, it wasn't covered properly,
+- [01:05:52.910] but the primary urgency is that we can't let
+- [01:05:56.140] Iran have a nuclear weapon. Uh, but at the same time,
+- [01:05:59.350] we have a tremendous amount of oil, gas, coal.
+- [01:06:03.310] We have tremendous amounts of energy.
+- [01:06:05.520] We're blessed with something very special.
+- [01:06:07.810] Those prices are going to come down.
+- [01:06:09.100] They're going to come down fast.
+- [01:06:10.330] I think -- I think that you'll see, actually, Todd,
+- [01:06:12.620] I think you're going to see lower prices
+- [01:06:14.050] than we had even before we did this.
+- [01:06:16.000] Now, I knew there'd be an increase.
+- [01:06:18.150] I said, we have a choice we don't have to do anything
+- [01:06:20.360] and in two years or one year or two months,
+- [01:06:22.560] because Iran would have had --
+- [01:06:24.450] if we didn't hit them with the B-2 bombers,
+- [01:06:26.800] Iran would have had a nuclear weapon
+- [01:06:28.720] within two weeks from that date, because they were ready to go.
+- [01:06:32.670] And if they had a new -- a nuclear weapon,
+- [01:06:34.960] it would have been used already.
+- [01:06:36.610] It also would have been used had I not terminated the Obama deal,
+- [01:06:39.960] the Iran nuclear deal, as we call it.
+- [01:06:43.110] That was in my first term. Had I not terminated that,
+- [01:06:45.540] they would have had a nuclear weapon a long time ago.
+- [01:06:48.510] I would say, it was a guarantee that it would have been used
+- [01:06:51.670] and it would have blown up Israel.
+- [01:06:53.980] It would have blown up the entire Middle East,
+- [01:06:56.150] and that's never going to happen.
+- [01:06:57.590] Yeah, please.
+- [01:06:58.910] The Press: On Iran, would you be comfortable with Russia or China
+- [01:07:01.770] taking their stockpile of highly enriched uranium?
+- [01:07:03.710] And have they offered --
+- [01:07:04.970] The President: No, I wouldn't be comfortable.
+- [01:07:07.640] That would not make me comfortable.
+- [01:07:09.180] The Press: Is the US considering easing sanctions on Iran
+- [01:07:11.900] to allow Iran to sell (Inaudible) market?
+- [01:07:13.890] The President: No, we're not talking about
+- [01:07:15.220] any easing of sanctions
+- [01:07:16.720] or giving money. No sanctions, no money, no nothing.
+- [01:07:20.120] Uh, we have control of money that they claim is theirs.
+- [01:07:26.500] We'll keep control of that money and when they behave properly
+- [01:07:29.740] and when they do what's right, we'll let them have their money.
+- [01:07:32.660] But right now, we're not doing that.
+- [01:07:34.090] And it's not -- one thing is not contingent on the other.
+- [01:07:39.240] The Press: Mr. President, on the shooting last weekend,
+- [01:07:40.960] it came barely a month
+- [01:07:42.180] after the third assassination attempt against you
+- [01:07:44.300] during the White House Correspondents Dinner.
+- [01:07:46.080] What was your reaction when you first heard
+- [01:07:47.750] about the latest shooting?
+- [01:07:48.970] And what gives you the courage to really keep doing your job
+- [01:07:51.860] effectively without thinking about these threats every day?
+- [01:07:54.380] The President: Well, I can't think about it,
+- [01:07:55.970] because if I thought about it a lot,
+- [01:07:57.940] you know, I wouldn't be a very good president.
+- [01:07:59.910] I wouldn't be here, probably.
+- [01:08:01.310] I'd be up in some room with a locked door
+- [01:08:04.400] and said, just leave me alone.
+- [01:08:06.130] So I can't really think about it.
+- [01:08:07.470] It says something that -- it's a sad part of life.
+- [01:08:12.840] It's a dangerous business.
+- [01:08:14.170] What I'm doing is a dangerous business.
+- [01:08:15.790] And they say, and look,
+- [01:08:18.250] we have been maybe the most consequential,
+- [01:08:21.310] but we certainly have been one of the most consequential --
+- [01:08:23.570] this group has been a very consequential administration.
+- [01:08:26.910] And they say if you're not consequential,
+- [01:08:29.320] you don't have so much problem.
+- [01:08:30.640] If you are consequential, you do.
+- [01:08:32.200] So you have to look at that.
+- [01:08:34.630] But -- but it's a shame.
+- [01:08:37.150] It's a sad -- it's a sad -- it's a very sad fact of life.
+- [01:08:40.610] Look, anybody in office,
+- [01:08:42.440] not only in this country, in other countries too,
+- [01:08:45.600] but when you are a consequential president,
+- [01:08:48.570] your life is in grave danger. I knew that. Yeah.
+- [01:08:51.220] The Press: Mr. President, how would you characterize
+- [01:08:53.500] the current state of the talks with Iran?
+- [01:08:55.990] I guess if it were a football field,
+- [01:08:57.850] what yard line would you be on?
+- [01:08:59.160] The President: Well, I think we're doing very well.
+- [01:09:00.940] They are starting to give us the things
+- [01:09:03.250] that they have to give us.
+- [01:09:04.470] And if they do, that's great and if they won't,
+- [01:09:06.500] then the man on my left is going to finish them off,
+- [01:09:08.330] going to happen.
+- [01:09:09.570] The Press: Is there a timeframe in your mind?
+- [01:09:11.060] The President: What?
+- [01:09:12.270] The Press: Is there a time frame in your mind for --
+- [01:09:13.960] The President: I mean, it happens quickly.
+- [01:09:15.260] The problem is, every time I mention a time frame,
+- [01:09:17.520] for instance I see --
+- [01:09:19.880] you know, we've been doing this for a few months.
+- [01:09:22.710] Vietnam lasted 19 years. Uh, Korea lasted eight years.
+- [01:09:27.820] Afghanistan lasted many years. There were all many, many years
+- [01:09:30.970] and we're into it for a few months
+- [01:09:32.600] and I read about you people, like you, what's taking so long?
+- [01:09:36.800] We're in it.
+- [01:09:38.090] Uh, you know, we lost between two wars,
+- [01:09:40.600] two big wars, Venezuela and Iran.
+- [01:09:43.040] We lost 13 souls, 13 great people.
+- [01:09:46.200] Met the parents, great people uh,
+- [01:09:48.980] and it's a terrible thing, but 13.
+- [01:09:51.640] Uh, if you look at the war casualties
+- [01:09:54.400] and the deaths and wars for Vietnam and all that,
+- [01:09:57.290] they lost hundreds of thousands of people
+- [01:09:59.240] in numerous of these wars.
+- [01:10:02.840] We want -- we're very cognizant of that.
+- [01:10:04.480] We want to lose very few. We want very few to be injured.
+- [01:10:07.960] We're very -- we're very careful, but war is war.
+- [01:10:11.690] War is -- war is dangerous, but we've lost 13.
+- [01:10:14.160] I saw the Democrats took an ad
+- [01:10:15.900] putting in the 13 people that were lost.
+- [01:10:18.430] And when you look at hundreds of thousands of people
+- [01:10:20.940] that were lost in the Middle East, Iraq,
+- [01:10:24.900] all the different wars we were in we have done an amazing job.
+- [01:10:30.070] With that being said, I hate to lose 13.
+- [01:10:31.890] I hate to lose one.
+- [01:10:33.640] But we've been very we've been very -- we've been very capable.
+- [01:10:37.470] I mean, when you think of it,
+- [01:10:39.210] we took over Venezuela in one day.
+- [01:10:42.250] We have done a similar job,
+- [01:10:44.450] but we said we'll give them a little chance
+- [01:10:46.360] at the request of somebody
+- [01:10:47.570] that we greatly respect from Pakistan,
+- [01:10:50.350] the field marshal and the prime minister they've been great.
+- [01:10:54.630] Uh, they asked us, would we pause the war for a little while
+- [01:10:56.900] because they'd like to, so we will do that.
+- [01:10:59.490] But we had them beat. You know no, no better now.
+- [01:11:04.690] We could we could close that out very quickly.
+- [01:11:06.950] If we can do it in a different way,
+- [01:11:08.470] that'd be good, if we get everything we want.
+- [01:11:11.300] But we could close that out very, very quickly.
+- [01:11:13.690] And we may have to.
+- [01:11:15.110] I don't think so, but we may have to.
+- [01:11:16.340] The Press: Mr. President (Inaudible)
+- [01:11:17.570] on the World Cup, if I could. The President: Yeah.
+- [01:11:19.140] The Press: US spent a lot of money
+- [01:11:20.380] getting the World Cup here and increasing the infrastructure.
+- [01:11:23.240] Does the economic benefit outweigh the cost?
+- [01:11:25.640] The President: No. The World Cup is great.
+- [01:11:26.850] It's the most successful they've ever had ticket wise.
+- [01:11:29.130] It's they've never had anything that sold so quickly.
+- [01:11:32.490] It's amazing because it's the United States.
+- [01:11:34.210] You don't think of -- I call it soccer.
+- [01:11:36.310] You know, it's just a -- it's just easier to do
+- [01:11:38.910] because we have football and they have two footballs, right?
+- [01:11:41.470] They call it football. But I never --
+- [01:11:44.120] most people never thought they'd see anything like that.
+- [01:11:46.230] The World Cup, it's turned out to be
+- [01:11:48.440] the most successful World Cup
+- [01:11:50.000] from the standpoint of what's happening than they've ever had.
+- [01:11:53.410] Yeah, please.
+- [01:11:54.980] The Press: Thank you so much.
+- [01:11:56.200] Roman Ortiz with Turning Point USA.
+- [01:11:58.160] I have one question for you and one question
+- [01:12:00.280] for Vice President JD Vance on the fraud.
+- [01:12:02.740] Um, what's your message to the New Jersey leaders
+- [01:12:05.120] pushing back against ICE operations at Delaney Hall?
+- [01:12:07.510] The President: About ICE?
+- [01:12:08.810] The Press: Yes.
+- [01:12:10.080] The President: Or about NICE, as I call it,
+- [01:12:11.320] NICE, the NICE facility. No, I'd love to change the name,
+- [01:12:16.270] (Inaudible), they do a great job,
+- [01:12:18.120] and it's all paid for protesters.
+- [01:12:20.250] You know, you can see by the signs.
+- [01:12:21.680] The signs are all made by the same beautiful factory,
+- [01:12:23.780] it's a printing plant.
+- [01:12:25.030] In fact, I'm thinking about using it,
+- [01:12:26.720] they do such a nice job.
+- [01:12:28.650] These aren't protesters; these people are fake.
+- [01:12:31.320] The President: They're all paid for.
+- [01:12:32.820] And I will tell you, Tom Homan and that whole group and now
+- [01:12:35.630] Markwayne is so incredible.
+- [01:12:37.700] Markwayne, do you want to just respond to that?
+- [01:12:40.650] We run the finest facilities
+- [01:12:42.570] anywhere in the world of their type,
+- [01:12:44.350] but we have some horrible killers.
+- [01:12:45.840] We have killers --
+- [01:12:47.040] we have guys that have murdered numerous people in there.
+- [01:12:50.430] And these are the people they're trying to protect.
+- [01:12:52.910] There's nobody that runs a facility like we do.
+- [01:12:56.410] Markwayne?
+- [01:12:57.660] Markwayne Mullin: Yeah, it shows that the radical
+- [01:13:00.490] left Democrat priorities,
+- [01:13:01.850] when they decide to go out and protest a detention center
+- [01:13:05.340] where we're housing rapists, child predators,
+- [01:13:08.730] murderers, drug dealers,
+- [01:13:11.130] and they choose Memorial Day of all the days.
+- [01:13:13.810] Of all the time to go to go protest something
+- [01:13:16.220] that they say that it's because they're on a hunger strike
+- [01:13:19.970] when there was only a handful of individuals
+- [01:13:21.620] that was refusing to eat
+- [01:13:22.820] because they want their ethnic group
+- [01:13:24.460] or their ethnic right food.
+- [01:13:25.760] Well, they can go back to their country
+- [01:13:27.080] and get whatever food they want.
+- [01:13:28.710] The fact is, we're giving them the calories they want.
+- [01:13:31.330] This isn't Holiday Inn. We're giving sanitation.
+- [01:13:35.290] But for the Democrats to -- and the governor,
+- [01:13:37.720] like Governor Cheryl and Senator Kim
+- [01:13:41.750] and Senator Booker to go out and do something like this,
+- [01:13:44.680] of all the days, is very frustrating.
+- [01:13:46.480] And we see Antifa signs are literally out there.
+- [01:13:49.840] The local police refusing, literally refusing to respond.
+- [01:13:54.220] They barricaded,
+- [01:13:55.470] not allowing our employees to come in and out.
+- [01:13:57.150] ICE has to go out there and remove the barricade
+- [01:13:59.100] and then you have one of the Senators complain
+- [01:14:00.860] because he got splattered with a pepper ball.
+- [01:14:05.100] I'm sorry, you probably shouldn't have been there.
+- [01:14:08.100] The President: You know, one thing I'll say about that,
+- [01:14:09.770] the local police, I know a lot of the New Jersey police,
+- [01:14:12.290] they're phenomenal, they love us,
+- [01:14:13.990] but they're told not to do anything.
+- [01:14:15.450] Markwayne Mullin: That's right.
+- [01:14:16.660] The President: They love us. They love him.
+- [01:14:19.100] They even love me a lot.
+- [01:14:21.400] And they -- I'm in New Jersey a lot, it's great.
+- [01:14:25.150] I mean, I think it's a great place.
+- [01:14:27.200] It's got a group of people running it now
+- [01:14:30.790] that are having a hard time.
+- [01:14:32.550] But they really like this administration.
+- [01:14:36.280] They love this administration more than any administration
+- [01:14:38.840] they've ever had and they're thanking me all the time.
+- [01:14:42.060] And I see those guys going up and down the Jersey Turnpike
+- [01:14:46.350] with their big, beautiful hats on.
+- [01:14:48.950] I say, I'd like to look like that someday.
+- [01:14:52.200] They're great. No, these are great people.
+- [01:14:53.790] And they love him and they love ICE,
+- [01:14:56.000] and they love the Border Patrol,
+- [01:14:58.180] and they're not allowed to talk to anybody.
+- [01:14:59.780] It's like -- but it all comes from the top.
+- [01:15:02.200] They have to follow orders; they want to keep their jobs.
+- [01:15:04.930] The Press: Mr. President, are you expecting Congress
+- [01:15:07.960] to pass a federal gas tax holiday.
+- [01:15:11.090] The President: A gas tax holiday?
+- [01:15:12.480] The Press: Yeah.
+- [01:15:13.790] The President: Well, it's something we might talk about.
+- [01:15:15.570] Let's see what happens over the next week or two weeks.
+- [01:15:17.750] A lot of good things are happening.
+- [01:15:19.330] The Press: (Inaudible) Next week?
+- [01:15:21.520] The President: No, I was invited to the --
+- [01:15:23.120] I was going to go on Wednesday,
+- [01:15:24.470] but they closed it out very quickly, they're great.
+- [01:15:27.190] And Jim Dolan's a great guy. He's, as you know,
+- [01:15:31.210] owns and is in charge of Madison Square Garden.
+- [01:15:33.280] He's having a good year.
+- [01:15:35.730] Boy, what a team, they win all their games.
+- [01:15:37.970] They really -- they have some great players.
+- [01:15:40.750] I think I'll be going to one of the games.
+- [01:15:42.330] I was invited by numerous people and Jim,
+- [01:15:46.050] and I think I'll be going.
+- [01:15:47.350] It's great, great to see it. The Knicks have really --
+- [01:15:52.220] they've really suffered for years.
+- [01:15:53.560] And they're doing right now very well.
+- [01:15:59.740] The Press: Would you accept an agreement with Iran
+- [01:16:02.490] that just calls for further talks on uranium
+- [01:16:05.260] or is this the only option --
+- [01:16:06.530] The President: No. The basics, no.
+- [01:16:07.730] I would for some of it,
+- [01:16:09.030] because it's a memorandum of understanding for speed.
+- [01:16:12.400] And one of the things that will happen
+- [01:16:13.730] is the strait will open immediately -- immediately,
+- [01:16:17.520] but it's got to be perfect. I'm not going to do this --
+- [01:16:19.420] I didn't do this to get a crummy agreement.
+- [01:16:22.150] The worst agreement ever signed was by Barack Hussein Obama.
+- [01:16:26.350] What a horrible agreement that was.
+- [01:16:28.210] It was a setback for this country, for the whole world.
+- [01:16:31.770] The Middle East would have blown itself up.
+- [01:16:33.500] No, I would like to have the countries we were talking
+- [01:16:36.070] about with Saudi Arabia, UAE, Qatar and the others.
+- [01:16:39.580] We'd like to have them immediately join the --
+- [01:16:42.550] and Steve Witkoff is working on that with Jared and some others,
+- [01:16:45.620] but we'd like to have them join the Abraham Accords.
+- [01:16:47.740] It'll be historic if they do it.
+- [01:16:49.490] And I think they owe that to us, to be honest, I think,
+- [01:16:53.410] because that really would be a tremendous site,
+- [01:16:56.660] and I think those countries owe it to us.
+- [01:17:00.470] Steve, are you going to get them to sign?
+- [01:17:03.240] Steve Witkoff: We're definitely pushing it, Mr. President.
+- [01:17:06.240] The President: I'm not sure we should make the deal
+- [01:17:08.490] if they don't sign, do you want to know the truth?
+- [01:17:10.830] If they don't sign to join the Abraham Accords,
+- [01:17:12.780] I don't know that we --
+- [01:17:14.020] you know, we have countries in there already, UAE, great.
+- [01:17:18.550] Great countries, both countries
+- [01:17:20.150] and it's turned out to be so good, so effective.
+- [01:17:24.270] And so, we're requesting strongly that they join.
+- [01:17:29.330] It'll be great -- it'll be great for Saudi Arabia,
+- [01:17:31.490] be great for Qatar and Kuwait, the whole group.
+- [01:17:35.000] The Press: So, the Iran deal might be contingent
+- [01:17:37.010] on more countries joining --
+- [01:17:39.150] The President: I don't know, I don't want to say that.
+- [01:17:40.730] I'm not going to give you what's contingent, what's not.
+- [01:17:43.490] I can say that we can make a good deal right now,
+- [01:17:47.400] but maybe not a great deal.
+- [01:17:48.890] And if it's not a great deal, we're not making it.
+- [01:17:51.470] Because we can make a great deal with this guy right here and --
+- [01:17:55.260] but it's a lot nastier.
+- [01:17:57.810] Probably wouldn't go as quickly,
+- [01:17:59.460] we wouldn't be talking about as quickly,
+- [01:18:01.370] but it would be foolproof.
+- [01:18:05.300] But I think we're doing very well.
+- [01:18:06.680] Steve, I think we're doing pretty well
+- [01:18:08.300] in terms of the negotiation, but we'll see.
+- [01:18:10.770] If it's not going to be a real deal,
+- [01:18:12.310] because Obama had that horrible JCPoA,
+- [01:18:16.920] whatever it was, it was the worst deal.
+- [01:18:19.740] It was a path for Iran to have a nuclear weapon very quickly.
+- [01:18:24.390] Years ago, they would have had a nuclear weapon.
+- [01:18:27.300] We might not be here talking about it right now.
+- [01:18:29.860] They would have had a nuclear weapon.
+- [01:18:32.010] And frankly, Obama picked the wrong country.
+- [01:18:34.670] He should have picked another country,
+- [01:18:36.240] I won't tell you what it was,
+- [01:18:38.250] but he picked the wrong country when he picked Iran.
+- [01:18:41.190] But we have things understood now with Iran.
+- [01:18:43.680] It's been nasty; they've lost their leaders, they've lost --
+- [01:18:46.400] and it really is regime change.
+- [01:18:48.380] We didn't set out for regime change,
+- [01:18:51.550] but by the fact that we're dealing
+- [01:18:53.190] with a totally different group of people
+- [01:18:55.830] than we were at the beginning,
+- [01:18:57.800] and frankly, I find them to be much more reasonable.
+- [01:19:00.870] I actually find them to be smarter,
+- [01:19:02.770] but I find them to be much more reasonable.
+- [01:19:05.150] This is regime change.
+- [01:19:07.880] One regime is gone; another regime is gone;
+- [01:19:10.050] we're dealing with the third --
+- [01:19:12.020] pieces of it because some of them are gone too.
+- [01:19:15.290] And I find them, I think --
+- [01:19:18.420] how can you have a stronger regime
+- [01:19:20.500] change than that, you know?
+- [01:19:22.150] So, I do find that. I'd like to thank you all very much.
+- [01:19:25.950] We're doing great, our country is doing fantastically well,
+- [01:19:28.580] and this group of people is outstanding.
+- [01:19:30.980] Thank you all very much.

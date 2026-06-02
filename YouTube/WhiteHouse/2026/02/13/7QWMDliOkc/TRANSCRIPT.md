@@ -1,0 +1,297 @@
+<!-- source: https://www.youtube.com/watch?v=-7QWMDliOkc -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: -7QWMDliOkc -->
+<!-- date_published: 2026-02-13T18:56:03+00:00 -->
+<!-- date_accessed: 2026-06-02T01:05:25.358418+00:00 -->
+
+# Transcript: President Trump Gaggles with Press Before Departing the White House, Feb. 13, 2026
+
+- [00:00.350] The President: So we just had very good financial numbers,
+- [00:03.110] we have very low inflation,
+- [00:05.400] we brought costs way down and the numbers were surprising,
+- [00:10.420] except to me they weren't surprising.
+- [00:12.690] So the inflation numbers just announced,
+- [00:15.270] as you know, are way down and we have it back on track.
+- [00:19.160] We had the worst inflation in the history of our country.
+- [00:22.360] And now we have very modest inflation
+- [00:24.870] which is what you want to have.
+- [00:28.210] The Press: Mr. President, why hasn't the FBI taken over
+- [00:31.340] the Nancy Guthrie case as the lead investigator?
+- [00:33.980] Do you have any updates on how that's going?
+- [00:36.010] The President: Well, they took it over originally.
+- [00:37.610] It was a local case originally
+- [00:39.610] and they didn't want to let go of it, which is fine.
+- [00:42.700] It's up to them. It's really up to the community.
+- [00:45.270] But ultimately when the FBI got involved,
+- [00:47.270] I think, you know, progress has been made.
+- [00:49.230] Complicated things.
+- [00:50.430] The Press: Mt. President,
+- [00:51.650] are you anticipating cutting a deal with Democrats
+- [00:54.250] to end the potential shutdown for DHS?
+- [00:57.080] The President: We'll see what happens. We have --
+- [00:58.920] we always have to protect our law enforcement,
+- [01:01.540] but they've done a great job. Remember, they've taken out
+- [01:04.500] hundreds of thousands of criminals out of our country,
+- [01:07.990] and we have the best crime numbers
+- [01:09.410] we've ever had in everywhere.
+- [01:11.400] Murder numbers, crime numbers of any kind.
+- [01:13.470] We have the best numbers.
+- [01:15.020] We've taken out hundreds of thousands of criminals
+- [01:17.360] out of our country.
+- [01:18.570] We have to protect our law enforcement.
+- [01:20.210] The Press: Mr. President, are you considering land strikes
+- [01:24.900] on Mexico, Colombia and Venezuela?
+- [01:26.880] The President: What about it?
+- [01:28.150] The Press: Land strikes -- are you, are you planning --
+- [01:31.170] The President: Don't worry about it.
+- [01:32.650] The Press: Do you still have a veto on Nouri al-Maliki,
+- [01:34.930] the Iraqi prime minister?
+- [01:37.210] The President: We're looking at a prime minister.
+- [01:39.130] We're going to see what's going to happen.
+- [01:41.620] We've got some ideas on it.
+- [01:44.030] But in the end, everybody needs the US, everybody needs us.
+- [01:48.670] The Press: Are you planning to hold anyone accountable
+- [01:51.010] for the shutdown in El Paso?
+- [01:52.930] The second aircraft carrier that you decided to send.
+- [01:56.050] Talk about why you made that choice.
+- [01:58.400] The President: Well, in case we don't make a deal,
+- [02:00.170] we'll need it.
+- [02:01.450] If we don't have a deal, we'll need it.
+- [02:02.830] If we have a deal, we'd cut it short.
+- [02:06.270] It'll be leaving very soon.
+- [02:07.500] We have one out there that just arrived.
+- [02:10.720] If we need it, we have it ready, a big -- a very big force.
+- [02:14.840] The Press: Are there any progressing
+- [02:16.790] Ukraine negotiations? Do you still demand Zelenskyy
+- [02:19.540] has to hold elections before summer?
+- [02:21.830] The President: Well, Zelenskyy is going to have to get moving.
+- [02:23.630] Russia wants to make a deal and Zelenskyy
+- [02:25.360] is going to have to get moving,
+- [02:26.640] otherwise he's going to miss a great opportunity.
+- [02:29.340] He has to move.
+- [02:30.540] The Press: Mr. President,
+- [02:31.780] are you going to hold anyone accountable for El Paso?
+- [02:34.150] Mr. President, are you personally involved
+- [02:35.910] in these negotiations over DHS funding
+- [02:37.900] and where do you see room for compromise?
+- [02:40.190] The President: Well, but you have to remember,
+- [02:42.900] if you look at Homeland Security,
+- [02:44.360] if you look at what they've done,
+- [02:45.700] if you look at what ICE has done at Border Patrol,
+- [02:48.390] we have the safest border in the history of our country.
+- [02:50.800] Nobody comes in other than if they come in legally.
+- [02:54.330] If you remember just a little while ago,
+- [02:56.370] a year-and-a-half ago for a four-year period,
+- [02:59.210] they allowed 25 million people in our country.
+- [03:01.630] Many of these people are murderers and drug dealers,
+- [03:04.800] a horrible thing. We've gotten a lot of them out.
+- [03:08.040] We now have the best record in the history of our country
+- [03:11.170] on crime. It was just announced --
+- [03:13.360] it was just announced our crime numbers
+- [03:15.660] are the best in 125 years.
+- [03:18.680] So I -- I am here to protect law enforcement and law --
+- [03:23.550] our great police and ICE and Border Patrol and everybody.
+- [03:28.560] I'm here to protect them because they're protecting us
+- [03:31.830] and the job they've done is incredible.
+- [03:33.640] The Press: Sir, do you still have confidence --
+- [03:35.200] Do you believe Prime Minister Netanyahu will receive a pardon?
+- [03:38.930] The President: I do think so, yes.
+- [03:41.830] The Press: Do you still have confidence in Kristi Noem,
+- [03:43.950] Mr. President, despite the reports of chaos?
+- [03:45.630] On El Paso, are you satisfied?
+- [03:46.830] President Trump, on Greenland. (inaudible)
+- [03:48.030] The President: We have safe borders.
+- [03:49.280] We have low crime numbers (inaudible)
+- [03:50.543] (talking simultaneously) The Press: (inaudible)
+- [03:51.830] family over the airspace closure over El Paso.
+- [03:54.330] Are you pleased with Sean Duffy's
+- [03:55.610] handling of the airspace closure over El Paso?
+- [03:57.780] The President: You mean the way it happened?
+- [04:00.130] People learn, you know, people learn.
+- [04:02.700] The Press: On Greenland. On European leader's hypocrisy.
+- [04:05.690] Greenland doesn't want Europe controlling them anymore.
+- [04:08.030] What's your message to them
+- [04:09.450] to those European leaders' hypocrisy?
+- [04:10.960] The President: Well, I think Greenland's going to want us,
+- [04:12.380] but we get along very well with Europe.
+- [04:14.340] We'll see how it all works out.
+- [04:15.680] We're negotiating right now for Greenland.
+- [04:18.190] The Press: Mr. President, do you think the cartels --
+- [04:20.410] Mr. President, do you think the cartels are at all involved
+- [04:22.720] in Nancy Guthrie's case
+- [04:23.990] or another nation-state potentially?
+- [04:25.990] The President: You can't say that yet,
+- [04:27.330] it's a little bit early. But it's -- somebody either knew
+- [04:31.210] what they were doing very well or they were rank amateurs.
+- [04:33.360] Either way, it's not a good situation.
+- [04:34.620] The Press: Mr. President,
+- [04:35.910] do you think Sean Duffy should be held accountable?
+- [04:37.250] What is your message for European leaders
+- [04:38.590] in Munch Security Conference?
+- [04:40.180] The President: Well, I have a great relationship with them.
+- [04:41.990] If it wasn't for me, they'd be paying 2 percent and not paying.
+- [04:45.220] Instead, they're paying 5 percent and they're paying.
+- [04:47.680] We have a very good relationship with NATO.
+- [04:49.830] The Press: Mr. President, how confident are you
+- [04:51.790] that our negotiations with Iran will be successful?
+- [04:54.730] The President: I think they'll be successful.
+- [04:56.100] And if they're not, it's going to be a bad day for Iran.
+- [04:59.390] Very bad.
+- [05:08.120] The Press: Mr. President,
+- [05:09.350] are you actively talking with the Democrats
+- [05:11.650] right now about a DHS shutdown?
+- [05:13.120] How painful do you expect that to be?
+- [05:14.530] The President: We're talking, but, you know,
+- [05:15.750] we have to protect law enforcement.
+- [05:17.960] ICE has done a phenomenal job.
+- [05:20.000] Border Patrol -- we have a shut --
+- [05:21.380] we have a closed border for the first time in history.
+- [05:24.610] We have to protect law enforcement,
+- [05:26.220] our police, our Border Patrol, ICE,
+- [05:29.000] and others in law enforcement.
+- [05:31.400] We -- and I'm very much -- look, I know what they want,
+- [05:34.580] I know what they can live with.
+- [05:36.420] The Democrats have gone crazy. The radical left lunatics.
+- [05:39.650] That's why their cities are so unsafe.
+- [05:41.880] The blue cities are the cities that are unsafe.
+- [05:44.810] So we have to protect our law enforcement.
+- [05:46.230] The Press: Mr. President,
+- [05:47.440] you just lifted sanctions on Venezuelan oil.
+- [05:51.530] What are the next steps and when are you going to wholesale
+- [05:53.390] (inaudible)
+- [05:54.590] The President: Well, we have a very good relationship
+- [05:56.020] with the president of Venezuela, as you know,
+- [05:58.260] we're working together very closely.
+- [06:00.660] We have our big oil companies going in.
+- [06:02.560] They're going to be taking out the oil
+- [06:04.620] and selling the oil for a lot of money and Venezuela
+- [06:07.590] is going to get a big part of that money.
+- [06:09.690] And the relationship we have right now with Venezuela is,
+- [06:12.680] I would say, a 10.
+- [06:15.480] Look, it's beneficial, we'll feed the people --
+- [06:17.150] the people of Venezuela.
+- [06:18.390] The Press: Mr. President, when are you -- --
+- [06:19.620] On Venezuela -- on Venezuela,
+- [06:22.380] will you be recognizing Delcy Rodriguez's government
+- [06:25.150] as the official government of Venezuela?
+- [06:26.740] The President: Well, right now, we have got that.
+- [06:28.020] We're dealing with them.
+- [06:29.370] And really -- and really right now they've done a great job.
+- [06:32.440] She's done -- Delcy's done a very, very good job
+- [06:35.350] and the relationship is strong.
+- [06:38.240] The oil is coming out and a lot of money is being paid
+- [06:42.160] for oil by other nations and we're taking care of it.
+- [06:45.510] We're refining it and we're the only one
+- [06:47.870] that has the capability to refine it.
+- [06:50.760] Right now, the relationship with Venezuela
+- [06:52.940] is as good as it can possibly be.
+- [06:54.450] The Press: When are you planning to visit Venezuela?
+- [06:57.590] When are you planning to visit Venezuela, sir?
+- [06:59.820] The President: I'm going to make a visit to Venezuela.
+- [07:01.610] The Press: When? When?
+- [07:02.830] The President: We haven't decided.
+- [07:04.070] Are you from Venezuela?
+- [07:05.280] The Press: From Colombia, sir.
+- [07:06.510] We share a border with Venezuela.
+- [07:07.790] The President: We just had a good meeting
+- [07:09.010] with your president.
+- [07:10.210] The Press: The president of Colombia, yeah.
+- [07:11.460] Mr. President, on the Munich Security Conference.
+- [07:13.880] What is your message to Europe and to the leaders?
+- [07:16.160] The President: I think the only message
+- [07:17.390] is we have a great relationship with NATO.
+- [07:20.030] We're a very powerful part of NATO.
+- [07:23.020] The people that are the heads of the countries,
+- [07:25.120] the various countries that we're talking about,
+- [07:26.760] they're all friends of mine.
+- [07:28.090] The Press: (inaudible)
+- [07:29.290] of the meeting with the President of Colombia?
+- [07:31.990] Mr. President.
+- [07:33.230] Will you let Congress back in town?
+- [07:34.610] Will you meet with the North Korean Kim Jong Un this year?
+- [07:38.560] Kim Jong Un?
+- [07:39.830] Mr. President, do you have a deadline?
+- [07:41.530] Mr. President, do you have a deadline for Iran?
+- [07:43.910] Do you have any deadline for Iran?
+- [07:45.710] The President: Kinda do, yeah.
+- [07:47.420] The Press: Mr. President, the FBI investigation --
+- [07:49.110] Thank you.
+- [07:50.330] Mr. President, Rwanda just violated the peace agreement.
+- [07:54.220] What are you going to do about it?
+- [07:55.660] You told me last time that there will be consequences.
+- [07:58.590] They continue to kill a lot of Congolese people in -- in DRC.
+- [08:01.800] The President: We'll take a look at it.
+- [08:03.000] We'll --
+- [08:04.200] The Press: (inaudible) the shutdown, Mr. President?
+- [08:06.640] Are you happy with the current situation in Syria
+- [08:09.050] after the deal that you brokered?
+- [08:10.540] The President: The president is doing a very good job.
+- [08:12.840] He's unifying the country.
+- [08:14.150] We're very happy with the job he's doing.
+- [08:16.100] He's doing a great job for the people of Syria.
+- [08:17.760] He's unifying the country. Thank you. Thank you. Thank you.
+- [08:19.470] The Press: Mr. President.
+- [08:20.680] Have you -- have you spoken with --
+- [08:25.160] The Press: I want to show you the evidence.
+- [08:26.410] The President: Hello, Brian. Let's go.
+- [08:27.610] The Press: You're going to do it.
+- [08:28.880] Hey, step back. Oh my God. Mr. President.
+- [08:30.580] First of all, pretty strong economic numbers
+- [08:32.770] going into '26, stock market 50,000.
+- [08:35.750] You said it could go to 100,000 plus.
+- [08:37.800] The President: And these numbers today are on inflation.
+- [08:39.320] The Press: Yeah, I was going to say what's the outlook
+- [08:41.990] for the remainder of '26 do you think?
+- [08:43.760] The President: I think we're going to have 100,000
+- [08:46.100] by the time I leave office and at the end of my term.
+- [08:49.530] Uh, I think we're going to be at 100,000 the Dow.
+- [08:53.590] And if you remember when I was first elected,
+- [08:56.120] everybody said, if I got it to 50,000, the Dow,
+- [08:59.900] or 7,000 with the S&P,
+- [09:02.410] if I got it to 50,000 with a Dow,
+- [09:04.220] that would be an amazing --
+- [09:05.560] that would be in four years from then, from the election.
+- [09:09.350] I got it in 50,000 the last day of my first year.
+- [09:14.960] So I'm about I'm pretty early. I think we have a great chance
+- [09:19.960] of doing very substantially higher numbers.
+- [09:23.010] The country is doing well.
+- [09:24.600] We have the hottest country anywhere in the world, by far,
+- [09:28.410] and the inflation numbers that just came out moments ago
+- [09:32.620] were actually incredible.
+- [09:34.040] Prices are way down, inflation is way down,
+- [09:37.670] far lower than anyone thought could have happened
+- [09:39.820] in a period of one year.
+- [09:45.580] The Press: Mr. President, I have evidence to show you!
+- [09:47.260] I have a lot to show you.
+- [09:48.640] The Press: (inaudible) shut down.
+- [09:49.880] Mr. President. Are there any concessions
+- [09:51.160] you're willing to make with ICE,
+- [09:52.940] about ICE or about immigration enforcement?
+- [09:55.240] The President: It's favor of our law enforcement,
+- [09:56.850] ICE has done an amazing job.
+- [09:58.980] We've taken up hundreds of thousands of horrible criminals,
+- [10:02.870] including murderers. We had 11,888 murderers.
+- [10:06.940] A lot of them have been found and removed from our country.
+- [10:09.940] We have the lowest crime numbers.
+- [10:11.530] We have the best crime numbers we've had.
+- [10:13.830] You won't believe this one, 125 years.
+- [10:17.250] From the year 1900, we have the best crime numbers
+- [10:20.720] that we've had in 125 years. I have a great loyalty to ICE,
+- [10:25.910] the Border Patrol, to our police,
+- [10:27.960] to, frankly, our firemen etc. Thank you.
+- [10:31.210] The Press: (inaudible)
+- [10:39.020] Has the economy turned a corner?
+- [10:41.470] The President: Well, I think so.
+- [10:42.830] We're at 50,000 and we're at 7,000 with S&P.
+- [10:46.930] And if you remember, and they can say it any way they want,
+- [10:50.310] they said if Trump, by the end of his term,
+- [10:53.630] four years, would get the number of Dow --
+- [10:56.270] the Dow down number to 50,000, it would be a miracle.
+- [11:00.440] I got it in one year to 50,000. Think of it, in one year.
+- [11:05.150] And I got S&P, which is actually harder, to 7,000,
+- [11:08.760] which they said would be impossible
+- [11:10.710] to do even within four years and I got it in one year.
+- [11:13.930] Because the economy -- the economy is doing unbelievable.
+- [11:18.040] We, right now, have the hottest country anywhere in the world.
+- [11:20.930] Thank you.

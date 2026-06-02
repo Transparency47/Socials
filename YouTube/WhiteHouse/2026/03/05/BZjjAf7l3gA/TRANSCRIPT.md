@@ -1,0 +1,811 @@
+<!-- source: https://www.youtube.com/watch?v=BZjjAf7l3gA -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: BZjjAf7l3gA -->
+<!-- date_published: 2026-03-05T22:58:13+00:00 -->
+<!-- date_accessed: 2026-06-02T01:04:16.277726+00:00 -->
+
+# Transcript: President Trump Participates in the Visit of the 2025 Major League Soccer Champions - Inter Miami CF
+
+- [00:09.680] Ladies and gentlemen, the president of
+- [00:11.440] the United States, Donald J. Trump,
+- [00:13.680] accompanied by Jorge Mas, owner of the
+- [00:15.760] Inter Miami CF, and Lionel Messi.
+- [00:51.120] That's great. It's great to be here,
+- [00:53.440] champions. We like champions. We like
+- [00:55.960] winners. And we got a lot of them here
+- [00:57.960] today, too many to introduce.
+- [01:00.360] A lot of them are political champions,
+- [01:02.160] and we don't care about them today,
+- [01:04.199] right? Right, Duffy?
+- [01:06.640] But uh we have uh
+- [01:09.440] most importantly, wonderful people that
+- [01:11.000] love our country.
+- [01:12.480] And before we begin, I think I will say
+- [01:14.720] a few words about
+- [01:16.520] what's going on with respect to our
+- [01:18.800] operation
+- [01:20.280] in
+- [01:21.600] the country of Iran.
+- [01:24.160] The United States military, together
+- [01:26.520] with the
+- [01:28.480] wonderful Israeli partners, continues to
+- [01:31.920] totally demolish
+- [01:33.840] the enemy far ahead of schedule.
+- [01:36.760] And at levels that people have never
+- [01:38.240] seen before, actually.
+- [01:40.600] We're destroying more of Iran's missiles
+- [01:42.840] and drone capability
+- [01:45.120] every single hour,
+- [01:46.800] knocking them out like nobody thought
+- [01:49.160] was possible.
+- [01:50.800] As soon as they set off a missile,
+- [01:52.440] within 4 minutes
+- [01:54.400] the launcher gets hit.
+- [01:57.040] They don't know what's happening.
+- [01:59.040] But we have the greatest military
+- [02:01.280] anywhere in the world. Their navy is
+- [02:02.920] gone.
+- [02:03.920] 24 ships in 3 days. That's a lot of
+- [02:07.040] ships.
+- [02:08.800] Their
+- [02:10.920] anti-aircraft
+- [02:12.560] weapons are gone.
+- [02:14.600] So, they have no air force. They have no
+- [02:16.440] air defense.
+- [02:17.960] All of their airplanes are gone.
+- [02:20.640] Their communications are gone.
+- [02:23.800] Missiles are gone. Launchers are gone.
+- [02:26.800] About 60% and 64% respectively.
+- [02:31.360] Other than that, they're doing quite
+- [02:32.600] well.
+- [02:34.400] I said, "What's left?"
+- [02:36.400] But they're tough, and they want to
+- [02:38.120] fight.
+- [02:39.480] And uh they're calling. They're saying,
+- [02:41.480] "How do we make a deal?" I said, "You're
+- [02:42.840] being a little bit late."
+- [02:44.880] And uh we want to fight now more than
+- [02:47.080] they do.
+- [02:48.760] We've had uh
+- [02:51.000] 47 years, depending on the way you count
+- [02:53.280] it,
+- [02:54.240] but 47 years of
+- [02:56.760] horror with this group. And uh you know,
+- [02:59.720] when you see somebody walking down the
+- [03:01.280] street without their legs, without the
+- [03:03.800] arms, whose faces
+- [03:06.000] so badly
+- [03:07.720] affected and hurt,
+- [03:10.280] uh it mostly came from
+- [03:13.120] 95% Soleimani
+- [03:15.800] and Iran.
+- [03:17.640] And uh we
+- [03:19.640] other presidents lived with it. I didn't
+- [03:21.920] live with it. And so,
+- [03:23.840] our people are doing a great job. Again,
+- [03:25.760] the greatest military anyone's seen.
+- [03:28.560] Thank you.
+- [03:34.360] Thank you very much. And yesterday, my
+- [03:36.760] administration announced decisive action
+- [03:39.160] to help keep down
+- [03:41.480] the oil prices, including offering
+- [03:43.760] political risk insurance for tankers
+- [03:47.520] transiting into the Gulf, as you know,
+- [03:50.600] pretty dangerous territory.
+- [03:52.880] Further action to reduce pressure on oil
+- [03:55.960] is eminent, and the oil seems to have
+- [03:57.720] pretty much stabilized. We had it very
+- [03:59.280] low,
+- [04:00.440] but I had to take this little detour, if
+- [04:02.040] it's okay with everybody. Scott, it's
+- [04:03.800] okay with you? Scott's the one who has
+- [04:05.840] to put up with it. He said, "You have to
+- [04:07.200] do this now?" I said, "I have to do it,
+- [04:08.760] Scott, right?"
+- [04:10.440] But it's been very strong, and
+- [04:12.040] everybody, including Scott, everybody
+- [04:13.880] feels we had really no choice. It was
+- [04:16.640] going to They were going to hit us if we
+- [04:18.040] didn't hit them, cuz they're crazy.
+- [04:20.959] And in the long term, the actions we're
+- [04:22.760] taking will dramatically
+- [04:24.760] increase the stability of the region and
+- [04:28.120] oil prices and stock markets and
+- [04:30.240] everything else. You know, we set the
+- [04:31.600] all-time record in history
+- [04:33.800] with the Dow going to 50,000. So, Dow is
+- [04:36.520] at
+- [04:37.320] 50,000. It was supposed to be, maybe, if
+- [04:39.960] we were lucky, within
+- [04:41.800] uh by the end of my presidency in 4
+- [04:44.040] years.
+- [04:45.320] And we did it in my first year. We did
+- [04:47.120] the S&P
+- [04:48.680] 500. We did that in uh
+- [04:51.080] a period of less than a year. And that
+- [04:53.720] was even tougher than the Dow, they
+- [04:55.160] said, so it wasn't going to happen.
+- [04:57.560] But uh we have a great country. We have
+- [04:59.440] a country that's never done this well.
+- [05:01.760] We've had tremendous success in so many
+- [05:03.920] different ways. I built the military and
+- [05:05.720] rebuilt it in my first term, and we're
+- [05:07.680] using it more than I'd like to use it,
+- [05:09.880] to be honest with you, but
+- [05:11.720] when we use it, we found out it
+- [05:13.160] certainly did work. When we look at
+- [05:14.720] Venezuela,
+- [05:16.120] when we look at the first attack,
+- [05:17.920] Midnight Hammer,
+- [05:19.480] in Iran, which really set the stage for
+- [05:21.200] what we're doing right now. It's been
+- [05:23.040] pretty amazing.
+- [05:25.000] And I'm once again calling on all
+- [05:26.440] members of the Iranian Revolutionary
+- [05:28.840] Guard, the military, and the police to
+- [05:30.880] lay down their arms. They're only going
+- [05:32.960] to be killed.
+- [05:34.600] And now is the time to stand up for the
+- [05:36.560] Iranian people and help take back your
+- [05:39.000] country. You're going to
+- [05:40.760] have a chance, after all these years,
+- [05:43.040] to take back your country. Accept
+- [05:45.000] immunity. We'll give you immunity.
+- [05:47.440] And we'll be uh
+- [05:49.720] giving you really the right side of
+- [05:51.000] history, cuz that's what it is.
+- [05:53.240] So, you'll be
+- [05:55.520] perfectly safe with total immunity, or
+- [05:57.960] you'll face
+- [05:59.440] absolutely guaranteed death. And I don't
+- [06:01.640] want to see that.
+- [06:03.080] They don't want to see it, either.
+- [06:04.920] We also urge Iranian diplomats around
+- [06:07.360] the world to request asylum and to help
+- [06:09.440] us shape a new
+- [06:11.560] and better Iran with great potential.
+- [06:14.200] It's a country with great potential.
+- [06:15.880] It's much
+- [06:17.160] better future for Iran. It's now
+- [06:19.320] beginning. It's going to be,
+- [06:21.280] I think, a great future. And the United
+- [06:23.520] States will ensure that whoever leads
+- [06:25.280] the country next, Iran will not threaten
+- [06:27.880] America or its neighbors, Israel,
+- [06:29.680] anybody.
+- [06:31.000] If you look at what happened, they had
+- [06:32.760] missiles aimed at all of these other
+- [06:34.800] countries, Qatar, Saudi Arabia, UAE,
+- [06:37.840] many others,
+- [06:39.760] and that weren't really involved very
+- [06:41.640] much. And they had missiles aimed Well,
+- [06:43.200] they were aimed there long before this
+- [06:44.640] ever started. They were going after the
+- [06:46.280] entire Middle East.
+- [06:48.240] And then we came along.
+- [06:50.080] We blew up their party.
+- [06:53.040] So, we have uh phenomenal people. I want
+- [06:55.720] to thank all of the people that have
+- [06:57.080] been involved. Marco, you've been doing
+- [06:58.760] a fantastic job.
+- [07:00.880] And you've been doing a fantastic job on
+- [07:02.640] a place called Cuba.
+- [07:09.560] All right?
+- [07:12.160] All right.
+- [07:13.160] And A-Rod A-Rod came in
+- [07:15.480] before. I said, "Hey, do you want to
+- [07:17.200] come up to a little award ceremony?"
+- [07:19.080] He's gone to plenty of award ceremonies.
+- [07:20.880] Thank you, A-Rod. Big fan.
+- [07:23.840] But uh what's happening with Cuba is
+- [07:26.000] amazing. And uh we think that we want to
+- [07:29.080] fix it finish this one first, but that
+- [07:31.480] will be just a question of time before
+- [07:33.200] you and a lot of unbelievable people are
+- [07:36.200] going to be going back
+- [07:37.880] to Cuba. Hopefully not to stay. We want
+- [07:40.520] you back, and we don't want to lose you.
+- [07:42.160] We don't want to make it so nice that
+- [07:43.480] they stay.
+- [07:44.880] But some people probably do want to
+- [07:46.400] stay. They love Cuba so much. I hear it
+- [07:48.880] all the time.
+- [07:50.280] That was another one that wasn't
+- [07:51.640] supposed to happen.
+- [07:53.200] Venezuela is going great. It's been
+- [07:55.960] stabilized. We have a wonderful person
+- [07:58.520] as your president-elect,
+- [08:00.640] Delcy Rodriguez, and she and her staff
+- [08:03.520] have been doing a fantastic job working
+- [08:06.080] with us. We're taking out
+- [08:08.200] hundreds of millions of barrels of oil,
+- [08:12.360] and it's going to Houston and various
+- [08:14.720] other places where it's being refined,
+- [08:17.520] and
+- [08:18.440] we're sending them back far more money
+- [08:20.280] than they've made in many years. And
+- [08:21.880] actually, very shortly, it'll be more
+- [08:23.440] money than they've ever made.
+- [08:25.440] And Venezuela is working. So, we've had
+- [08:27.240] a lot of
+- [08:28.440] a lot of uh countries in places that
+- [08:30.800] truly love I You would say football. I
+- [08:33.640] would say soccer.
+- [08:35.039] But these are all countries that love
+- [08:36.680] football {slash} soccer.
+- [08:39.039] And uh so, I think the the group likes
+- [08:42.280] it. And if you'd like, you could say I
+- [08:43.880] know I'm a very exciting speaker, but
+- [08:45.520] you can sit down if you'd like, okay?
+- [08:47.680] I'm looking at everybody standing. I'm
+- [08:49.320] saying, "Let's sit down."
+- [08:51.560] Cuz we're here to honor these great
+- [08:53.040] champions, and we want to take our time,
+- [08:54.760] right?
+- [08:58.000] Let's get to the reason that we're here,
+- [09:01.960] and it's a beautiful reason, because
+- [09:03.800] we're honoring truly talented
+- [09:06.880] people. Today, we're thrilled to host
+- [09:08.880] the 2025
+- [09:11.880] MLS Cup champions, Inter Miami. Great
+- [09:16.680] job.
+- [09:31.440] And it's my distinct privilege to say
+- [09:33.840] what no American president has ever had
+- [09:36.680] the chance to say before. Welcome to the
+- [09:39.400] White House,
+- [09:40.880] Lionel Messi. Lionel Messi is My son
+- [09:44.160] said, "Dad, you know who's going to be
+- [09:45.960] there today?"
+- [09:47.520] And I said, "No. I got a lot of things
+- [09:49.480] going on."
+- [09:51.480] He said, "Messi."
+- [09:53.560] I said, "Really?" He's a big fan. He's a
+- [09:56.080] big fan of yours. He thinks you're just
+- [09:58.360] a great person and I think you got to
+- [09:59.920] meet a little while. So
+- [10:02.120] he's big soccer fan, but he's a
+- [10:04.560] tremendous fan of yours and a gentleman
+- [10:07.160] named Ronaldo.
+- [10:10.920] We have uh
+- [10:12.600] Cristiano is great. You're great. The
+- [10:14.800] boys are some big champions, some great
+- [10:17.040] great athletes in that sport and people
+- [10:19.480] that really
+- [10:20.800] they really love they really love what
+- [10:22.720] they're doing and they're doing it well.
+- [10:25.040] And it's an honor for us and everybody
+- [10:27.120] at the White House to be honoring you
+- [10:28.720] today. So congratulations as well to
+- [10:32.320] co-owners Jorge and Jose
+- [10:36.120] Jose Mas
+- [10:38.640] Mas
+- [10:42.720] Who came from Cuba? Right? Came from
+- [10:45.720] originally from Cuba?
+- [10:47.440] Huh? Your parents came?
+- [10:49.520] And you're going to go back? Oh, yeah,
+- [10:50.920] yeah, yeah.
+- [10:52.080] It's going to be
+- [10:53.000] and you won't need my approval. You just
+- [10:54.640] fly back in when I I can just see that.
+- [10:57.920] It's going to be a great day, right?
+- [10:59.240] We're going to celebrate that
+- [11:00.320] separately. We I just wanted to wait a
+- [11:01.920] couple of weeks.
+- [11:05.920] I wanted to wait a couple of weeks, but
+- [11:07.680] we'll be together again soon I suspect
+- [11:10.360] celebrating what's going on in Cuba.
+- [11:12.080] They want to make a deal so badly. You
+- [11:13.640] have no idea.
+- [11:15.200] As well as head coach who I hear is a
+- [11:17.080] phenomenal
+- [11:18.720] coach Javier
+- [11:21.120] Mascherano
+- [11:25.040] Who's the coach?
+- [11:32.160] I've heard he's a great coach. Well,
+- [11:34.120] anybody who wins is a good coach in my
+- [11:36.120] book, but I heard you're a hell of a
+- [11:38.040] coach and uh all of the tremendous
+- [11:41.240] players that are just amazing.
+- [11:44.520] We're also grateful to be joined by the
+- [11:47.240] MLS Commissioner Don Garber. Don, where
+- [11:50.400] are you, Don?
+- [11:51.839] Stand up, Don.
+- [11:53.400] Good job.
+- [11:55.560] Good job.
+- [11:57.280] As well as proud Miami sports fan
+- [11:59.440] Secretary of State. I'm telling you he's
+- [12:01.800] going to go down as the best Secretary
+- [12:04.560] of State in the country's history.
+- [12:07.720] Marco Rubio. I don't want him to get too
+- [12:09.680] popular.
+- [12:13.920] It's true.
+- [12:19.080] I don't want him to get too popular. You
+- [12:21.000] know, when they get too popular
+- [12:23.160] uh
+- [12:25.040] all of a sudden you see where's Marco?
+- [12:27.400] He's not around anymore. I don't see
+- [12:29.080] him.
+- [12:30.200] He's doing some job and your next one is
+- [12:32.760] going to be we want to do that special
+- [12:34.960] Cuba. He's waiting, but he says let's
+- [12:36.480] get this one finished first.
+- [12:38.560] We could do them all at the same time,
+- [12:40.040] but bad things happen. If you watch
+- [12:41.920] countries over the years, you do them
+- [12:43.320] all too fast
+- [12:44.760] bad things happen. We're not going to
+- [12:46.040] let anything bad happen to this country.
+- [12:48.520] Also with us are Attorney General Pam
+- [12:51.360] Bondi who's a terrific person and fan.
+- [12:58.080] And she's proving how tough she is and I
+- [13:00.160] think
+- [13:01.520] the next 3 years she's going to really
+- [13:03.320] prove it, right? Huh?
+- [13:05.120] Like these people.
+- [13:07.080] Secretary Scott Bessent Lori Chavez
+- [13:10.240] DeRemer
+- [13:11.600] and Sean Duffy
+- [13:16.280] Thank you, everybody. What a great team.
+- [13:18.920] And US Trade Representative who's done
+- [13:21.360] incredible
+- [13:22.720] deals, unbelievable. Jamison Gray. Thank
+- [13:25.320] you, Jamison Gray.
+- [13:29.200] And our country has never been bigger,
+- [13:31.040] better, richer, or stronger and the
+- [13:32.720] deals we're making are unbelievable. And
+- [13:35.120] a lot of it's because of the tariffs and
+- [13:36.760] a lot of this because of everything
+- [13:38.400] else. We had a little a complicating
+- [13:40.680] factor with tariffs the other day with
+- [13:42.400] the Supreme Court. They did the wrong
+- [13:44.400] thing, but it didn't make any difference
+- [13:46.320] because we have another way of doing it.
+- [13:48.720] They always have to make it the hard
+- [13:50.120] way. Do you know about that? You always
+- [13:51.480] have to Is it like that? It's always got
+- [13:53.520] to be the difficult way, right? Little
+- [13:55.280] bit. Huh? Makes you work harder, right?
+- [13:58.200] But we're doing great. Our country is
+- [13:59.720] doing incredibly well. Never It's never
+- [14:01.560] done like this. It's uh
+- [14:03.320] You know, I was with the King of Saudi
+- [14:04.520] Arabia. He said, "You know
+- [14:06.480] a year and a half ago
+- [14:08.600] we thought your country was dead, would
+- [14:10.600] never come back. And now you have the
+- [14:12.640] hottest country anywhere in the world,
+- [14:14.839] which was sort of cool. I'll relate that
+- [14:16.600] story, but many many leaders say the
+- [14:18.760] same thing. We have the hottest country
+- [14:20.240] anywhere in the world.
+- [14:21.839] 2025 was the record-shattering season
+- [14:24.560] for Inter Miami beginning last summer at
+- [14:27.240] the historic FIFA Club World Cup hosted
+- [14:31.079] for the first time right here in the
+- [14:32.520] USA. So exciting. I shouldn't say this
+- [14:34.640] cuz
+- [14:35.480] you'll say I'm old, but I watched Pelé
+- [14:37.839] play. He played for the Cosmos. Do you
+- [14:40.480] know that? And Steve Ross was a great
+- [14:42.160] friend. I don't know how many people
+- [14:43.480] remember Steve. He was a legendary
+- [14:45.280] businessman.
+- [14:46.640] He really started cable and cable TV. He
+- [14:48.720] was way ahead of
+- [14:50.320] time and ultimately passed away of
+- [14:52.760] terrible tragically.
+- [14:54.640] But he started the Cosmos team and he
+- [14:56.880] wanted to get some good players. So he
+- [14:59.120] started with Pelé.
+- [15:01.200] I don't know. You may be better than
+- [15:02.520] Pelé. Pelé was pretty good. Who's
+- [15:04.040] better? Him or Pelé?
+- [15:09.480] I agree.
+- [15:16.360] I think I think he is.
+- [15:18.760] Uh but he was pretty good, right? Pelé
+- [15:20.520] was pretty good. That was
+- [15:22.880] But it was very exciting and I went to
+- [15:24.520] the games. I'd go every once in a while,
+- [15:26.480] but soccer just didn't catch on and then
+- [15:29.040] Steve when Steve got ill, it sort of
+- [15:31.360] went away.
+- [15:32.839] And then it came back and now it's just
+- [15:34.959] turning out to be amazing how it's
+- [15:37.200] coming back in this country. But the
+- [15:38.640] Cosmos were very hot team
+- [15:40.920] playing with other teams that weren't so
+- [15:42.760] good. But I got to watch Pelé play and
+- [15:45.000] he was he was something, too.
+- [15:47.160] In the June
+- [15:48.839] group stage of that tournament
+- [15:51.280] these players went toe-to-toe with some
+- [15:53.079] of the best teams anywhere in the world.
+- [15:55.600] You tied Egypt's best club supposed to
+- [15:57.880] be an unbelievable talented club with a
+- [16:00.720] gutsy performance from veteran
+- [16:03.079] goalie Oscar Ustari
+- [16:06.200] who was uh played a great game.
+- [16:09.040] Then you tied the top Brazilian club.
+- [16:10.959] Wow, thanks to a
+- [16:12.920] brilliant goal from one of the greatest
+- [16:15.160] strikers of all time Luis Suárez.
+- [16:19.680] Where's he?
+- [16:30.520] Yeah, good-looking people.
+- [16:33.320] Marco, I don't like good-looking men.
+- [16:37.800] You don't feel so good about yourself
+- [16:39.320] standing up here.
+- [16:41.000] Good-looking people.
+- [16:43.000] In the 65th minute, Luis gathered the
+- [16:46.520] ball around midfield and turned for a
+- [16:48.760] vintage solo run
+- [16:50.880] dribbling through the defense, driving
+- [16:52.839] past defenders like few people have ever
+- [16:55.440] seen before, cutting to his left
+- [16:58.079] hammering home a goal that secured
+- [17:00.520] Miami's place in the next round.
+- [17:03.760] But no match in the 2025 FIFA Club World
+- [17:07.480] Cup was more important than the match
+- [17:10.600] against FC Porto.
+- [17:13.560] Porto took
+- [17:15.199] an early lead, but you came back strong
+- [17:17.439] in the 54th minute tied 1 to 1. Leo
+- [17:22.079] lined up for one of his iconic free
+- [17:24.839] kicks. He struck the ball decisively
+- [17:27.439] bending it over the wall and
+- [17:29.840] beating the keeper with a sensational
+- [17:33.679] left hook. Would I be able to do that if
+- [17:35.480] I practice?
+- [17:37.880] He said no. I think he's
+- [17:40.960] I think he's right, my friend.
+- [17:43.520] Great. In that moment you sealed a truly
+- [17:46.400] historic Inter Miami victory becoming
+- [17:48.760] the first club
+- [17:50.480] from North America ever to beat a
+- [17:52.520] European club in official competition.
+- [17:55.520] Unbelievable.
+- [18:01.679] Amazing.
+- [18:04.560] You know, I have to just interject. So
+- [18:06.960] over the years, I love sports and I've
+- [18:09.120] uh
+- [18:09.679] I've watched uh my friend A-Rod. I've
+- [18:11.480] sit with George Steinbrenner. I'd sit in
+- [18:12.880] his box, just the two of us. He would
+- [18:14.240] never have anybody but me. He liked me,
+- [18:16.040] right? He liked me and he liked you. He
+- [18:18.520] liked almost nobody.
+- [18:21.000] It would be a World Series when baseball
+- [18:22.679] was hot. It's not as hot now. I'll be
+- [18:24.400] honest with you. They do things wrong.
+- [18:27.000] But when baseball was hot as a pistol
+- [18:28.679] with George and I'd sit and I'd watch uh
+- [18:31.520] the Yankees and he'd have 30 seats and
+- [18:34.040] it would just be me and him and I said
+- [18:35.560] to A-Rod
+- [18:37.120] would say say, "What was the most
+- [18:38.600] difficult thing you've ever done?" I
+- [18:40.440] said, "It's probably sitting for 3 hours
+- [18:42.880] with George Steinbrenner watching
+- [18:45.240] a Yankee playoff game or World Series
+- [18:47.360] game." You know what I mean by that. He
+- [18:48.760] was a difficult guy, but he was great,
+- [18:50.520] right? He liked me. I liked him and we
+- [18:53.240] both liked nobody else and that's so
+- [18:55.640] That was a good combination. But I have
+- [18:57.760] to say this. So I've seen a lot of great
+- [18:59.400] players come into
+- [19:01.120] the world of sports and they came in
+- [19:02.880] from all different countries, all
+- [19:04.200] different players. They've come in some
+- [19:05.760] cases uh just from different states.
+- [19:08.280] They come to the Yankees or they come to
+- [19:10.919] the Dodgers or they come to whatever.
+- [19:12.760] But I've seen them come in from other
+- [19:14.159] countries and there's such a clamor. Oh,
+- [19:17.000] so great, so great. Everything's great,
+- [19:19.120] but they don't win.
+- [19:21.080] This guy won. He came in. There was
+- [19:23.280] tremendous fanfare and he won.
+- [19:27.040] You know, right?
+- [19:32.880] But they it's true. They don't win. They
+- [19:34.600] come in and you know, they're great
+- [19:35.919] players and they they can even play
+- [19:37.560] okay, but they don't win.
+- [19:39.440] And Leo, you came in and you won and
+- [19:41.159] that's something very hard to do, very
+- [19:43.240] uh
+- [19:43.919] very unusual and frankly, there's a lot
+- [19:46.000] more pressure put on you than anyone
+- [19:47.800] would know cuz you know, you're sort of
+- [19:49.080] expected to win, but almost nobody wins.
+- [19:51.600] They come in. They're great. They're the
+- [19:52.800] best in the world, they get paid a
+- [19:54.040] fortune. Uh you came in and you won with
+- [19:56.440] all that pressure. That's an amazing an
+- [19:58.280] amazing tribute. So, congratulations.
+- [20:04.120] Right?
+- [20:07.240] But in that moment, you sealed a truly
+- [20:09.000] historic Inter
+- [20:11.560] Miami victory. And uh think of that,
+- [20:14.360] first club ever North America to
+- [20:17.320] to top the so-called European clubs.
+- [20:19.800] Pretty amazing thing to do. Returning to
+- [20:21.840] the
+- [20:22.840] MLS
+- [20:24.440] Inter Miami built on that incredible
+- [20:26.560] momentum playing a record number of
+- [20:28.440] games and scoring a total of 101 goals,
+- [20:31.160] the most in MLS history. Is that
+- [20:33.600] correct, Mr. Commissioner? Well, that's
+- [20:35.600] pretty good. How's Andrew? Is Andrew
+- [20:37.000] treating you okay?
+- [20:38.480] He's a good golfer, too, actually.
+- [20:40.360] People don't know it. He's a very good
+- [20:42.560] golfer, right, Andrew? But Trump's a
+- [20:44.320] good golfer, too, Andrew.
+- [20:47.000] Huh?
+- [20:47.880] Thank you.
+- [20:49.080] With 29 goals in the regular season
+- [20:51.280] alone, Leo won the prize Golden Boot
+- [20:54.200] becoming the first player to be named
+- [20:56.200] the league MVP twice in a amazing. You
+- [20:59.640] know, comes in, a lot of great players.
+- [21:01.840] Pretty amazing thing to do. Very hard to
+- [21:03.600] do.
+- [21:05.040] Exploding into the playoffs, this team
+- [21:07.080] racked up a series of statement wins,
+- [21:09.680] big wins at frankly, wins that a lot of
+- [21:12.080] people didn't think they could do. You
+- [21:13.560] secured a 3-1 must-win victory over
+- [21:16.920] Nashville SC.
+- [21:18.760] You thrashed FC Cincinnati
+- [21:21.840] 4 to nothing on the road. And then you
+- [21:24.440] routed New York City FC 5 to 1 led by a
+- [21:29.400] hat trick from young star Tadeo Ayende.
+- [21:33.960] Where is Tadeo?
+- [21:49.800] Yes, what a group of people. I could We
+- [21:52.160] could have a lot of fun with these guys.
+- [21:55.080] You can imagine when they win how they
+- [21:57.240] celebrate.
+- [21:59.200] We don't want to talk about it. We don't
+- [22:01.600] want We don't want to talk about it.
+- [22:05.120] In that MLS Cup final against the
+- [22:07.600] Vancouver Whitecaps, the entire team
+- [22:09.679] played together as one flawless unit.
+- [22:12.360] Just flawless, they say. After Vancouver
+- [22:14.480] tied the game 1 to 1, Leo picked the
+- [22:17.080] pocket of a Whitecap defender and sent a
+- [22:20.240] pass to the great Rodrigo De Paul. Where
+- [22:23.960] the hell is Rodrigo?
+- [22:34.720] Do you have any bad-looking players?
+- [22:37.240] No?
+- [22:38.800] I like the bad-looking guys much better.
+- [22:42.120] Who stuck a low-driving shot into the
+- [22:44.880] side net taking the lead? And then in
+- [22:47.320] the sixth extra minute of stoppage time,
+- [22:51.000] Tadeo drove home your third and final
+- [22:53.560] goal making the score 3 to 1 and
+- [22:55.640] securing your status as the first
+- [22:58.080] champions in club history. What a
+- [23:00.320] amazing accomplishment.
+- [23:03.360] Coach Mascherano became one of the few
+- [23:06.960] head coaches to win the MLS Cup finals
+- [23:09.480] in his very first year. And Leo claimed
+- [23:12.880] the 47th trophy of his storied career.
+- [23:15.800] 47th, can you imagine that?
+- [23:18.040] The most of all time. That's the most of
+- [23:19.840] all time. So,
+- [23:21.440] Leo is the reigning FIFA World Cup MVP.
+- [23:25.320] You could have gone anywhere in the
+- [23:26.720] world. You could have chosen any team in
+- [23:28.800] the world. And you chose to go to Miami.
+- [23:31.560] I don't blame you. The weather's
+- [23:32.560] extremely good. Do you go to Doral?
+- [23:35.400] You go to Doral and play golf?
+- [23:39.160] And uh I just want to thank you for for
+- [23:42.360] bringing us all in this ride cuz you are
+- [23:45.000] hot and talented and a great person. I
+- [23:48.160] look forward to seeing many of you on
+- [23:49.960] the
+- [23:51.160] the really on the summer. We're going to
+- [23:52.800] be out there in the summer in
+- [23:54.880] 2026 FIFA World Cup.
+- [23:57.480] And we have a lot of interesting things
+- [23:59.360] cuz we have the World Cup and we have
+- [24:00.920] the Olympics and we have the 250, you
+- [24:03.880] know? And I was responsible for getting
+- [24:05.880] the Olympics in my first term.
+- [24:07.920] And I was responsible for getting with
+- [24:10.880] Johnny, we got the World Cup. And
+- [24:13.840] Johnny's a good man. Do we like Johnny?
+- [24:15.840] Do we like I think so, right? Like
+- [24:17.560] you're saying, "Yeah, I think so."
+- [24:19.920] He's a He's a good guy. But you know,
+- [24:21.640] they're setting records on the World Cup
+- [24:24.640] setting absolute total I guess many of
+- [24:27.240] you guys are going to be in it, but
+- [24:28.800] setting records on ticket sales, right?
+- [24:31.280] The numbers that I mean, literally
+- [24:33.400] double what anyone's ever done before.
+- [24:35.120] So, it's good. So, they picked the right
+- [24:37.040] But I thought that
+- [24:38.480] I didn't know that I'd be the president
+- [24:40.800] during this because the election was
+- [24:42.640] rigged and stolen and I had to do it all
+- [24:44.840] again. And then I said, "Hey, wait a
+- [24:46.080] minute. I just got soccer/football and I
+- [24:49.280] just got the Olympics and we got most
+- [24:51.920] important I took credit for those two.
+- [24:53.440] Then I tried to take credit for 250
+- [24:55.920] years and it didn't play well at all
+- [24:57.840] with the press.
+- [24:59.760] But we're going to have an amazing year.
+- [25:01.280] But I just want to thank you so much,
+- [25:03.000] Jorge, for the job you've done. You've
+- [25:05.000] been I've known you for a while and I've
+- [25:06.560] known of you for a long period of time.
+- [25:08.640] You are a spectacular man. And please
+- [25:10.440] say a few words. Thank you, Mr.
+- [25:11.760] President.
+- [25:19.320] Uh thank you very much, Mr. President.
+- [25:21.800] Um
+- [25:23.080] to all these distinguished guests,
+- [25:25.160] secretaries, so many so many friends and
+- [25:28.640] and supporters. Um on behalf of of
+- [25:31.640] myself, my wife Alida, my brother Jose
+- [25:34.160] and his wife Patty and my whole family
+- [25:36.480] who is here today with David Beckham, I
+- [25:38.560] want to express to you what an extreme
+- [25:40.520] honor and privilege it is to be in the
+- [25:43.560] people's house led by you celebrating in
+- [25:47.480] the presence of champions. Winners all.
+- [25:50.679] Because this championship was very, very
+- [25:53.200] well deserved, bravely played, and
+- [25:55.840] you're looking at one of the best teams
+- [25:57.440] on the face of the earth standing
+- [25:59.200] standing behind us.
+- [26:01.440] And this all became possible
+- [26:03.920] because we dared to dream.
+- [26:06.760] Seven years ago
+- [26:08.440] Inter Miami was nothing but an idea and
+- [26:10.640] a dream.
+- [26:12.200] I remember after talking to Commissioner
+- [26:14.760] Garber and being awarded a team, we sat
+- [26:16.760] in the conference room of our family
+- [26:18.880] business in Miami and said to each
+- [26:21.679] other, "What do we do now?"
+- [26:24.240] And
+- [26:25.960] as the son of
+- [26:29.240] a man and woman who left Cuba just
+- [26:31.800] seeking freedom in this great country
+- [26:34.520] it has driven us to excellence.
+- [26:36.760] And we thought, "What can we do to make
+- [26:38.840] a difference? What can we do that's
+- [26:40.440] special?"
+- [26:41.640] And at that time, I told myself what
+- [26:43.560] many people thought impossible.
+- [26:45.760] I said, "We are going to bring the
+- [26:47.760] world's greatest player to play at Inter
+- [26:50.320] Miami." And that was in 2019.
+- [26:54.240] And today standing before you, you have
+- [26:56.520] the world's greatest player here to my
+- [26:58.400] right.
+- [26:59.640] Over the course of the last 2 and 1/2
+- [27:01.640] years that he has been here we've been
+- [27:03.800] on an epic run of records, of trophies,
+- [27:07.080] of winning.
+- [27:08.280] Because what I've wanted to establish
+- [27:09.880] with Inter Miami is a winning culture.
+- [27:12.520] That it be a reflection of our community
+- [27:14.640] of South Florida and Miami made up of
+- [27:16.960] winners, of hardworking men and women.
+- [27:19.880] And I want our team to be an embodiment
+- [27:22.040] of our fan base and everyone who aspires
+- [27:24.880] to a better future and to a better life.
+- [27:28.360] On the back of our jersey, Mr.
+- [27:30.000] President, it says freedom to dream.
+- [27:32.480] Because that's our family moniker and
+- [27:34.600] what our embodies our team and our
+- [27:37.000] aspirations.
+- [27:38.840] But that all began many, many years
+- [27:40.679] before at the dinner table of our family
+- [27:43.679] with my late father Jorge Mascanosa and
+- [27:46.320] my mother Irma who is here today.
+- [27:56.440] And I and I speak now in tribute to our
+- [27:59.480] parents' generation.
+- [28:01.240] And I share that with Secretary Marco
+- [28:03.560] Rubio of men and women who fled
+- [28:05.600] communism, who fled tyranny, who wanted
+- [28:07.600] a better life for their boys and their
+- [28:09.800] daughters and their sons in the future.
+- [28:12.040] And at that table was instilled in us
+- [28:13.760] that if you work hard and you sacrifice
+- [28:16.240] and you dream, it can be possible.
+- [28:19.040] And today standing before you, Inter
+- [28:20.640] Miami is one of the world's biggest
+- [28:22.440] clubs.
+- [28:24.000] Most based on history, but our history
+- [28:26.280] has been short. But having a winning
+- [28:28.360] culture
+- [28:29.760] having the best-selling jersey on the
+- [28:31.960] face of the earth making a global
+- [28:34.360] difference and not only because of
+- [28:36.679] Lionel Messi, but these men standing
+- [28:38.640] behind you have changed the culture of
+- [28:40.880] football in the United States of America
+- [28:43.280] forever. We can play with the big boys.
+- [28:46.240] We can be heavyweights. Our league can
+- [28:48.440] be one of the top leagues in the world.
+- [28:50.760] And it is this ability to dream, to
+- [28:52.640] persevere, to have no obstacles ahead of
+- [28:55.120] us that we will continue to be
+- [28:56.880] successful. And hopefully, Mr.
+- [28:58.480] President, this is not our only visit
+- [28:59.919] here celebrating an MLS Cup Cup
+- [29:02.560] championship. But but this team is an
+- [29:05.760] embodiment of that.
+- [29:07.280] And I want to thank you to be able to
+- [29:08.880] express this to you, to so many dear
+- [29:11.400] friends, loved ones, and global fans all
+- [29:13.560] over the world. We fill stadiums
+- [29:15.800] everywhere. We're playing this weekend
+- [29:17.480] against DC United at the Raven Stadium
+- [29:20.480] in Baltimore cuz we'll have a sellout
+- [29:22.600] there. We sell out everywhere we go. We
+- [29:24.400] open the season at in the LA Coliseum
+- [29:26.880] with with a record crowd. But it is it
+- [29:29.800] is our aspiration to continue breaking
+- [29:32.040] barriers to putting no limits, to making
+- [29:34.840] sure that Major League Soccer and Inter
+- [29:36.480] Miami over the course of the next few
+- [29:38.760] years is considered with the elite of
+- [29:41.159] global football. So, with that said, Mr.
+- [29:43.560] President, thank you. Thanking you for
+- [29:45.800] sharing this championship with us that
+- [29:47.960] we can share with our families in the
+- [29:49.680] people's house and we can share it with
+- [29:51.520] the world. Thank you.
+- [30:01.200] And now we have
+- [30:03.160] have some gifts we'd like to present to
+- [30:04.920] you. Thank you.
+- [30:12.920] I know this is Mr. President as you say
+- [30:15.280] 250
+- [30:16.360] on the front which we have on our jersey
+- [30:18.520] and this is uh
+- [30:20.280] from 47
+- [30:21.920] and Lionel Messi's number 10 is the best
+- [30:23.760] selling jersey
+- [30:35.520] The ball which we made in front of you
+- [30:37.160] will have an rightful place in the Oval
+- [30:38.880] Office and dedication of you dedicated
+- [30:41.280] for our for our championship. That's for
+- [30:43.480] you, Mr. President. Thank you very much.
+- [30:46.680] And then most importantly, this is
+- [30:49.840] this is a
+- [30:51.120] very very special limited edition Inter
+- [30:53.400] Miami pink Tudor watch. It's etched on
+- [30:56.160] the back with
+- [30:58.000] your name
+- [30:59.160] in a tribute to you and special because
+- [31:02.160] time is a precious element. Time has a
+- [31:03.960] lot of meaning I think to all of us
+- [31:06.240] and we wanted to to give you that.
+- [31:08.440] That's really nice. And also we have an
+- [31:10.120] an additional gift which is another
+- [31:12.160] jersey for very luscious chief of staff.
+- [31:29.640] So we do have we do have her jersey
+- [31:31.520] somewhere.
+- [31:33.800] Number num number number 32.
+- [31:36.720] Um but thank you, Mr. President. Very
+- [31:38.960] much and I want to just invite the team
+- [31:40.920] to the Oval Office, very very special
+- [31:42.920] place. It's sort of the center of the
+- [31:45.080] world, especially now but always it's
+- [31:47.760] the center of the world. We have a
+- [31:48.800] little present for you there
+- [31:50.640] and
+- [31:51.600] anybody would like to come you can just
+- [31:53.240] follow me on down there, okay? You'll
+- [31:54.840] see the Oval
+- [31:56.120] and you'll have some fun. Thank you all
+- [31:57.760] very much.

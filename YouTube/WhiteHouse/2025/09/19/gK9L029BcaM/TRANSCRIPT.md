@@ -1,0 +1,1336 @@
+<!-- source: https://www.youtube.com/watch?v=gK9L029BcaM -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: gK9L029BcaM -->
+<!-- date_published: 2025-09-19T21:52:06+00:00 -->
+<!-- date_accessed: 2026-06-02T02:44:36.443201+00:00 -->
+
+# Transcript: President Trump Signs Executive Orders, Sep. 19, 2025
+
+- [41:20.420] The President: Well, thank you very much.
+- [41:22.400] As you know, we passed the continuing resolution
+- [41:25.590] in the Republican House today.
+- [41:28.120] It was an amazing vote, actually.
+- [41:30.100] It showed we want to keep things going and going properly.
+- [41:33.420] It was good for a lot of reasons.
+- [41:36.330] The Republicans want to keeps government open.
+- [41:39.190] But in the Senate, we have 53 republicans total
+- [41:44.310] and we need 60 votes.
+- [41:45.690] That means we need Democrat votes.
+- [41:47.800] I want to thank Senator John Fetterman.
+- [41:51.110] He wants to keep the country open.
+- [41:52.960] We're doing so well as a country.
+- [41:54.500] We're doing probably better than ever before.
+- [41:57.820] If you look at the stock market and other indicators,
+- [42:00.280] we have tremendous investment coming in,
+- [42:02.830] record investment coming. Everything is going well,
+- [42:05.230] but the Democrats are unhappy about that
+- [42:06.960] because they don't want it to go well.
+- [42:08.960] I think they actually dislike our country greatly.
+- [42:13.810] So they want to shut down the country.
+- [42:15.860] They want to have open borders.
+- [42:18.990] They want stop the fighting of crime,
+- [42:21.720] where we've been very successful with D.C., as you know.
+- [42:25.970] Washington, D.C., it's a hot place right now.
+- [42:29.490] Everyone is having dinners. They're going out all over.
+- [42:31.980] There's very little crime.
+- [42:34.850] They haven't seen numbers like this in many, many years.
+- [42:37.700] And other places.
+- [42:38.900] As you know, we're going into Memphis.
+- [42:40.580] We'll soon be going into Chicago.
+- [42:42.240] We've already had people out there and in there,
+- [42:44.670] and FBI has been there. We've brought the numbers down,
+- [42:46.950] but we're going to be bringing them down a whole lot.
+- [42:50.670] But, I guess they want crime and we fight crime,
+- [42:54.480] and it's a pretty big difference.
+- [42:56.430] They want to have men play in women's sports.
+- [43:00.040] They want transgender for everybody.
+- [43:03.010] And if they don't get everything that they want,
+- [43:04.910] all these things that they want that are proven so badly,
+- [43:07.900] they want to close our government down.
+- [43:10.870] We're not going to let bad things happen to our country.
+- [43:13.720] We're going to approve things that we shouldn't be approving.
+- [43:16.650] Just today, the House Democrats voted against condemning
+- [43:19.500] the political assassination of Charlie Kirk.
+- [43:23.500] Who could vote against that, the condemning,
+- [43:25.390] or they're saying,
+- [43:26.620] please condemn the assassination of a human being,
+- [43:30.270] and they said, no, we're not going to do that.
+- [43:33.330] Remember this, we had an election a very short time ago.
+- [43:37.780] Republicans won presidential.
+- [43:40.540] We won the popular vote by a lot.
+- [43:42.900] We won all seven swing states.
+- [43:45.330] We won The Electoral College by a Lot.
+- [43:48.910] We won most U.S. counties in a total landslide.
+- [43:53.140] So, we won most. It's a very big statistic.
+- [43:55.730] We won the counties in a number
+- [43:58.600] that I don't believe has been hit before.
+- [44:01.080] Two thousand six hundred counties
+- [44:03.810] versus 525 counties for the Democrats.
+- [44:08.250] So, the Democrats really should start
+- [44:10.990] respecting what takes place at the voter booth.
+- [44:14.740] In many cases, it's not a voter booth
+- [44:16.460] because to have mail-in voting,
+- [44:17.840] which is a very corrupt situation,
+- [44:21.750] but despite that, we won in a landslide.
+- [44:25.560] And we have to remember, when you win the election,
+- [44:28.750] elections have consequences.
+- [44:30.370] So we'll continue to talk to the Democrats,
+- [44:35.010] but I think you could very well end up
+- [44:37.860] with a closed country for a period of time.
+- [44:41.670] And I will -- we'll take care of the military,
+- [44:45.100] we'll take care of Social Security,
+- [44:46.820] we will take care of the things that we have to take care of.
+- [44:49.420] A lot of the thing that Democrats fight for,
+- [44:51.540] which in many cases aren't very good things,
+- [44:54.210] will not be able to be paid.
+- [44:57.090] So we'll watch and see how they do with that.
+- [44:59.290] They'll have to handle their constituents pretty carefully.
+- [45:03.450] So we're proud to announce that we won the House.
+- [45:07.820] We did fine in the Senate, but we need 60 votes.
+- [45:09.950] So we have 53 senators, and we need sixty votes.
+- [45:13.350] That means the Democrats have to vote in the Senate,
+- [45:16.980] and I don't think they will be voting.
+- [45:19.240] Now, what we are doing, we're really here today
+- [45:21.340] to talk about something else, which is the gold card.
+- [45:24.330] Which is going to bring a lot of money into our country,
+- [45:26.420] which is going to reduce taxes and lots of other good things.
+- [45:29.170] But we'll save that for a little bit later.
+- [45:31.610] Why don't we do this first,
+- [45:33.260] and then we'll talk about the gold card.
+- [45:35.340] Okay? Any questions? Jeff?
+- [45:37.260] The Press: Your call with President Xi, sir.
+- [45:38.900] President Xi, your call this morning with (inaudible).
+- [45:40.570] The President: It was great.
+- [45:41.780] I had a great call with President Xi
+- [45:43.380] and, as you know, he approved the TikTok deal
+- [45:47.610] and we're in the process.
+- [45:49.190] We have some great investors, big.
+- [45:51.520] Some of the biggest in the world,
+- [45:54.850] American investors, great people,
+- [45:57.450] and we look forward to getting that deal closed.
+- [46:00.410] The Press: Do you believe
+- [46:01.640] (inaudible) Chinese (inaudible)?
+- [46:02.990] The President: Well, I think so.
+- [46:04.740] And when you say fully approved, I don't know what that means.
+- [46:07.140] We have to get it signed.
+- [46:08.870] I guess there could be a formality.
+- [46:12.030] I found his word to be very good.
+- [46:13.610] President Xi and I had a long talk.
+- [46:14.990] We talked for almost two hours,
+- [46:18.040] and it started at 8:00 ck in the morning.
+- [46:21.900] And I think it was a very good talk.
+- [46:23.950] We talked about trade. We talked war.
+- [46:25.910] We talked a lot of things.
+- [46:27.220] We talked Russia-Ukraine, obviously, and Gaza.
+- [46:32.650] Talked about a lot of subjects. It was a long call.
+- [46:35.100] It was a good call. We have a very good relationship
+- [46:38.960] but the Tik-Tok deal is well in its way as you know
+- [46:43.770] and the investors are getting ready.
+- [46:47.060] And I think China wanted to see it stay open, too.
+- [46:49.270] They wanted to see it.
+- [46:50.480] And I can tell you, the young people in our country
+- [46:53.130] wanted to see it stay open very badly because --
+- [46:56.060] and if you take a look at my numbers,
+- [46:58.210] no Republican has ever done anything like we had.
+- [47:02.180] Wwe got massive numbers of youth vote.
+- [47:04.590] And, by the way, helped very much by Charlie Kirk.
+- [47:08.350] So, Charlie was very much in favor of TikTok.
+- [47:11.860] He liked TikTok.
+- [47:13.410] And he said, you know, you should use it.
+- [47:15.370] And other people said that, too, and I used it,
+- [47:18.270] and I don't know if I have the all --
+- [47:20.870] I think I set records.
+- [47:22.700] I looked at numbers that are phenomenal.
+- [47:25.230] I will pass them out to you and it had it, you know,
+- [47:27.840] probably a pretty big effect on the election
+- [47:30.420] because we won the election by a lot.
+- [47:32.600] So we are in a situation where in a little
+- [47:35.530] while meaning a number of days we'll probably --
+- [47:40.260] I don't know if you can make a deal with these people.
+- [47:42.140] I think these people are crazy.
+- [47:44.280] You know, again, anybody wants open borders
+- [47:46.340] and don't want to fight -- they don't want to fight crime.
+- [47:48.180] They hate to fight crime and in Chicago last weekend
+- [47:53.090] you had 11 people killed, murdered and you had 28 shot,
+- [47:57.590] and those numbers have been pretty consistent
+- [47:59.700] all throughout a period of time.
+- [48:02.370] Whether it was four people, five people, six people,
+- [48:04.710] eleven people, twelve people killed.
+- [48:07.250] Murdered and they don't to spend money to fight crime.
+- [48:12.350] And it's not even much money, relatively speaking.
+- [48:14.260] It's very little.
+- [48:15.500] But we're going there anyway. It doesn't make any difference.
+- [48:17.590] We're going to Chicago. We're go into Memphis next.
+- [48:20.760] And we're going to clean up the crime in the cities
+- [48:22.990] because we have to.
+- [48:28.700] The Press: With this deal today are you confident
+- [48:30.430] that the CCP won't be exerting control?
+- [48:32.760] The President: Yeah, we're going to have
+- [48:34.130] a very, very tight control.
+- [48:36.920] And look, it's an amazing thing that's been created.
+- [48:40.770] There's tremendous value with TikTok.
+- [48:43.850] And I'm a little prejudiced because I, frankly,
+- [48:46.130] did so well on it, you know?
+- [48:47.960] It got me numbers that nobody has ever even heard of before.
+- [48:50.900] So a lot of people want it.
+- [48:53.670] The young people of this country want it badly.
+- [48:55.770] The parents of those young people want it badly.
+- [48:58.920] And so we were able to work out a deal with China.
+- [49:02.260] And it's a very good deal for us.
+- [49:04.370] I hope it's good deal for them.
+- [49:08.120] The Press: Would you accept a deal
+- [49:09.380] where China controls the algorithm for TikTok?
+- [49:12.320] The President: Well, it's all being worked out.
+- [49:13.790] We're going to have very good control.
+- [49:16.410] We have American -- these are American investors,
+- [49:19.240] all of them, and they all love our country.
+- [49:21.770] They're all very well-known people, very famous people,
+- [49:24.470] actually, financially.
+- [49:26.150] And they'll have -- they'll have control over it.
+- [49:29.260] And I just -- I want to say I want to thank President Xi
+- [49:32.430] because he was a gentleman.
+- [49:34.320] And we've just had a good relationship,
+- [49:36.240] and we wanted people --
+- [49:38.260] a lot of people in this country wanted to be open.
+- [49:41.380] And again, if it weren't open, if we weren't open,
+- [49:44.480] maybe, I don't know.
+- [49:46.160] I think we won by so much it wouldn't have mattered.
+- [49:48.230] But we got a lot of votes.
+- [49:50.990] We got a lotta Republican votes from very young people.
+- [49:54.170] You go ahead, Jeff. You go ahead, Jeff.
+- [50:01.000] The Press: (inaudible)
+- [50:02.200] The President: Well, I'm going to have to look at it.
+- [50:03.490] They're going to be briefing me in a short while.
+- [50:05.330] So I'll let you know about it tonight or tomorrow.
+- [50:07.860] The Press: What's your take in general?
+- [50:09.340] The President: Well, I don't love it.
+- [50:10.600] I don't love it when that happens.
+- [50:12.990] It could be big trouble, but I'll let you know later.
+- [50:15.860] They're going to brief me in about an hour.
+- [50:17.310] The Press: And a follow up on Charlie Kirk,
+- [50:18.720] there's been a lot of talk about free speech this week.
+- [50:20.860] Do you see a difference between cancel
+- [50:23.730] culture and consequence culture?
+- [50:26.230] The President: I mean,
+- [50:27.430] your question is a little trick question.
+- [50:29.290] I like -- I'm a very strong person for free speech.
+- [50:32.990] At the same time, when you have networks that --
+- [50:37.560] where I won an election, like in counties,
+- [50:39.980] I guess it's 2,600 to 525 -- that's called landslide --
+- [50:46.330] a landslide times two. When you have that kind of --
+- [50:49.590] that level of popularity or voter support,
+- [50:51.770] as I did in the last election.
+- [50:53.850] And yet, 97 and 94 percent, different numbers.
+- [50:58.950] You see different numbers with different stats.
+- [51:02.520] But 97, 94, 95, 96 percent of the people
+- [51:07.750] are against me in the sense of the --
+- [51:11.770] the newscasts are against me.
+- [51:14.150] The stories are 90 -- they said 97 percent bad
+- [51:18.410] so they gave me 97 they'll take a great story
+- [51:22.380] and they'll make it bad.
+- [51:24.430] See I think that's really illegal personally.
+- [51:28.280] You can't take -- you can't have a free airway
+- [51:31.330] if you're getting free airways
+- [51:32.690] from the United States government
+- [51:34.150] and you can have that and say,
+- [51:37.040] and somebody that just won an election,
+- [51:39.040] and I had to go through this during the election,
+- [51:41.060] I think it's a miracle that I can win
+- [51:43.520] when 97 percent of the stories on the networks are bad,
+- [51:49.210] or whatever it may be, whether it's 89,
+- [51:51.570] it doesn't matter. It's a tremendous number.
+- [51:53.930] You know it, you report it all the time, and it changes.
+- [51:56.990] But when you have that kind of a negative reporting,
+- [52:00.020] fake negative reporting where they take a great story
+- [52:03.340] and they make it into a bad story constantly,
+- [52:05.750] that's what they do.
+- [52:07.220] Look, 60 Minutes took Kamala's answer and they threw it out
+- [52:11.490] and they gave her a different answer
+- [52:13.020] so that she sounded competent. When things like that happen,
+- [52:17.170] George Slapidopoulos from your network, right?
+- [52:20.820] George Slopidopolis had to pay $16 million to me
+- [52:23.830] because of what he said. And that's ABC.
+- [52:28.770] You had to pay more than that --
+- [52:31.660] your network had to paid more than.
+- [52:33.850] So I think it's very sad.
+- [52:37.160] But I think that reporting has to be at least accurate.
+- [52:42.070] At least accurate to an extent.
+- [52:44.520] Again, when somebody is given 97% of the stories
+- [52:49.520] are bad about a person, that's no longer free speech.
+- [52:53.760] It's no longer -- that's just cheating and they cheat
+- [52:57.020] and they become really members
+- [52:58.580] of the Democrat National Committee.
+- [53:00.820] That's what they are, the networks in my opinion.
+- [53:03.260] They're just offshoots of the Democratic National Committee.
+- [53:11.540] The Press: People are still anticipating
+- [53:13.010] who your pick for national security advisor will be.
+- [53:15.700] They're worried Marco Rubio is a little overworked.
+- [53:17.960] And one of the reported frontrunners
+- [53:19.970] is Michael Anton from the State Department.
+- [53:22.630] He's just offered the national security strategy.
+- [53:24.910] Also in the mix is Mike Flynn and Steve Witkoff.
+- [53:27.330] Can you give us an indication?
+- [53:28.710] The President: Well, they're all good.
+- [53:29.950] but no, we'll make a decision soon.
+- [53:31.630] But we're doing very well.
+- [53:33.250] You know, I settled seven wars, more than that, I think.
+- [53:36.560] But actually, we settled seven wars.
+- [53:38.250] I have -- we're working on Gaza.
+- [53:40.950] It's a tough one, but we'll get it done somehow.
+- [53:43.760] And we're also working with Russia and Ukraine.
+- [53:47.390] They hate each other so much, you wouldn't believe it.
+- [53:50.570] President Putin and President Zelensky,
+- [53:52.840] they hate each other to a level that you wouldn't believe.
+- [53:55.360] So they're having a little bit of a problem with that.
+- [53:57.980] The Press: And are you considering Stephen Miran
+- [53:59.470] for Fed Chair?
+- [54:01.340] The President: I hadn't thought of it too much.
+- [54:02.830] He's doing a great job. Just got approved.
+- [54:05.310] His vote was a very good one. The Fed should have done more.
+- [54:08.480] You know, too late Powell is terrible.
+- [54:10.620] He is a terrible chair. I think he's just terrible.
+- [54:14.280] But despite that, we're powering through it.
+- [54:17.430] We have another record stock market today.
+- [54:21.240] Very, very high levels. And we're at the highest levels.
+- [54:24.570] So we're setting records.
+- [54:25.860] Many, many days during my administration,
+- [54:27.920] we set records, and we'll see what happens with 50,000.
+- [54:31.700] Fifty thousand is a pretty big number.
+- [54:34.300] Never come close. We're not so far away from it.
+- [54:37.110] So that's because they see what's happening.
+- [54:39.700] Not so much what's happening exactly right now,
+- [54:42.030] but they see all the plants that are being built.
+- [54:44.550] They see the kind of investment that's going to be made.
+- [54:49.400] When you take $17 trillion.
+- [54:52.290] So Biden had $250 billion, okay, or putting a simpler way,
+- [54:59.740] they had much less than a trillion,
+- [55:02.850] but they had less than $1 trillion for four years.
+- [55:05.880] I have $17 trillion for eight months.
+- [55:10.460] Nobody's ever seen anything like it.
+- [55:12.740] And I think they're looking at that and they're saying,
+- [55:14.580] when those plants open, right now they're being built.
+- [55:16.790] A lot of them.
+- [55:18.000] And some are starting over the next year.
+- [55:20.350] It takes a while. But we're getting fast permits.
+- [55:23.170] And when those plans get built,
+- [55:25.600] I don't think there'll be anything like
+- [55:27.210] what we're going to experience.
+- [55:30.070] The Press: If I can, on the subject of free speech,
+- [55:32.680] Ted Cruz compared Brendan Carr to a mob boss
+- [55:36.160] the way he's threatening television stations
+- [55:39.060] and saying it's absolutely dangerous for the government
+- [55:42.450] to determine which speech is okay and which is not.
+- [55:45.640] What's your reaction to Ted Cruz?
+- [55:46.920] The President: I think Brendan Carr
+- [55:48.260] is an incredible American patriot with courage.
+- [55:51.440] You know, it used to be -- I remember in the old days
+- [55:54.010] that networks would have to get licensed, relicensed.
+- [55:57.790] And it was always a big deal,
+- [55:59.030] you know, they had to show honesty and integrity.
+- [56:02.670] When you have a network -- again,
+- [56:04.190] I'll use the same numbers, whether it's 90 or 94 or 97 --
+- [56:08.340] all different numbers -- but when you have networks
+- [56:10.900] that give somebody 97 percent bad publicity
+- [56:14.100] or 94 percent bad publicity? I think that's dishonesty,
+- [56:20.320] and you know they're getting free airwaves, right?
+- [56:23.160] You know that, right, you get them for nothing.
+- [56:24.840] These airwaves, they make millions
+- [56:26.290] and millions of dollars,
+- [56:27.490] the news makes millions of dollars.
+- [56:28.960] ABC, your network,
+- [56:31.090] I mean your network wrote very badly about me
+- [56:33.660] and they had to pay me $16 million.
+- [56:35.500] The Press: So, do you think (inaudible) a right for that?
+- [56:37.160] Brendan Carr has a right to take away --
+- [56:38.390] The President: No, I think Brendan Carr is a patriot.
+- [56:40.220] I think Brendan Carr's a courageous person.
+- [56:42.580] I think that Brendan Carr doesn't like to see the airwaves
+- [56:46.930] be used illegally and incorrectly
+- [56:49.920] and purposely horribly.
+- [56:53.310] Doesn't like see a person that won the election
+- [56:55.600] in a landslide get 97 percent bad publicity
+- [56:59.260] before the election. I mean, it's amazing that I won.
+- [57:03.910] The election with that, but here's what happened.
+- [57:06.810] The people have given your networks no credibility.
+- [57:09.650] They don't give them any credibility, John.
+- [57:11.400] If they did, they wouldn't vote for me.
+- [57:12.920] They wouldn't have voted for me. When you look at, I mean,
+- [57:16.320] you could also say the liberal media,
+- [57:20.080] the liberal left, when you look at these stories and papers,
+- [57:23.260] but we're not talking about that.
+- [57:24.530] We're talking about,
+- [57:25.750] I assume you're talking mostly about the networks,
+- [57:28.510] but they have a licensing procedure
+- [57:30.310] and you can read it as well.
+- [57:31.670] They have to show honesty and integrity.
+- [57:35.200] And when they take a good --
+- [57:38.530] well, I think the people decide --
+- [57:39.870] that's why I'm President -- when they take a --
+- [57:42.890] when the take a great success, like you often do,
+- [57:46.690] and you make it into like it's a loser
+- [57:49.100] or you put a negative spin on it,
+- [57:50.640] I don't think that's right.
+- [57:51.860] So I think Brendan Carr is a great American patriot.
+- [57:54.810] So I disagree with Ted Cruz on that.
+- [57:56.950] The Press: (inaudible) U.N. next week (inaudible)?
+- [58:01.270] The President: I'll be at the U.N.,
+- [58:02.610] I'll be making a speech, yes.
+- [58:04.120] The Press: Are you meeting any other world leaders?
+- [58:05.810] The President: Many of them.
+- [58:07.040] The Press: (inaudible)
+- [58:08.320] The President: Well, I'm just --
+- [58:09.560] a meeting, really, that are being set up.
+- [58:11.670] The Press: What is your goal?
+- [58:15.710] The President: World peace.
+- [58:17.680] Nobody has done a better job than I've done on world peace.
+- [58:20.410] Nobody has settled so many wars as I have.
+- [58:26.000] You know, I've been here probably a little bit
+- [58:29.560] more than eight months, and I've settled seven.
+- [58:32.880] And that doesn't include the destruction
+- [58:35.910] of a vast potential nuclear disaster in Iran,
+- [58:41.130] which we wiped out, totally, as I say, obliterated.
+- [58:44.730] We obliterated it. It's been (inaudible)
+- [58:46.590] right with this beautiful plane right here.
+- [58:48.210] We just ordered some more of them, by the way.
+- [58:50.650] The B-2 bombers. Just ordered some of them.
+- [58:53.030] The more updated version. Not that we needed that.
+- [58:57.820] We just need the plane because it was so flawless.
+- [59:00.460] These pilots flew 37 hours flawlessly,
+- [59:04.460] not an engine problem, not a screw,
+- [59:07.240] not a bolt came loose.
+- [59:08.720] It was an amazing -- compare that to many years ago.
+- [59:12.360] Jimmy Carter, same country with the helicopters and problems
+- [59:18.170] and the prisoners and the hostages and what a mess.
+- [59:22.030] Now these planes flew 37 hours without a stop. They fueled up.
+- [59:27.980] We had 52 tankers fueling the planes along the way.
+- [59:30.830] It was incredible.
+- [59:32.250] And every single bomb hit its mark,
+- [59:34.270] and then we fired 30 of them from submarines,
+- [59:37.170] from a submarine. What a job that was.
+- [59:41.680] And I don't even include that. But that stopped a war.
+- [59:44.810] That stopped maybe a catastrophic war.
+- [59:48.880] So, you know, so I think that nobody has ever done
+- [59:52.730] anywhere near that. Now, on top of that,
+- [59:54.910] we're working very hard to get Russia-Ukraine settled.
+- [59:57.620] We'll see what's going to happen there.
+- [59:59.330] We're going to get it done.
+- [01:00:00.910] President Xi and I spoke to him about it,
+- [01:00:02.850] and I believe that he really would like to see it done also,
+- [01:00:06.380] and I think he's going to work with us to help.
+- [01:00:11.820] The Press: What was your message to President Xi on the war?
+- [01:00:15.870] The President: Well, it's the same as his message to me.
+- [01:00:17.770] He would like to see it done. He would to see it --
+- [01:00:20.060] I believe he would like it ended, yes, I do believe.
+- [01:00:33.320] The Press: Do you plan to set up any kind of red lines
+- [01:00:37.020] for these two countries, as you said before
+- [01:00:39.490] (inaudible)?
+- [01:00:41.200] The President: We have a long time to go
+- [01:00:42.520] before I get up and speak at the UN
+- [01:00:44.640] because every day is a long time when it comes to Gaza
+- [01:00:48.830] and it comes Israel and the Middle East.
+- [01:00:51.450] So we have a lot of time to go, but you know a lot my opinions
+- [01:00:56.940] and remember this, you can't forget October 7th either.
+- [01:01:00.540] People are forgetting October 7. They forget it too quickly.
+- [01:01:03.330] That was one of the worst days in world history.
+- [01:01:06.310] It was the most evil attack that I think you could really say --
+- [01:01:10.700] babies were involved, little babies were involved,
+- [01:01:13.240] and having their heads chopped off
+- [01:01:15.540] and all of the things that took place.
+- [01:01:17.380] You can't forget that.
+- [01:01:18.670] I don't forget, that a lot of people do, but I don't.
+- [01:01:20.660] Yeah, please. Go ahead, please.
+- [01:01:23.400] The Press: (inaudible)
+- [01:01:27.530] The President: We'll see what happens with Bagram.
+- [01:01:29.170] We're talking to Afghanistan.
+- [01:01:32.630] It should have never been given up.
+- [01:01:34.470] It was the most embarrassing day in the history of our country.
+- [01:01:37.180] There was no reason to give it up.
+- [01:01:38.560] I was leaving Afghanistan. I was leaving.
+- [01:01:41.650] I was the one that got it down to 5,000 soldiers.
+- [01:01:44.010] But we were going to keep Bagram, the air base.
+- [01:01:48.120] I said it yesterday, and we had an incredible trip,
+- [01:01:50.410] as you know, to UK.
+- [01:01:51.610] And I said during the press conference.
+- [01:01:55.490] It's one of the most powerful runways ever built,
+- [01:01:58.970] in terms of weight, length, and load, what it can take.
+- [01:02:03.530] And we just gave it up for nothing.
+- [01:02:04.950] We gave it up for nothing,
+- [01:02:06.180] there was no reason to give it up.
+- [01:02:07.400] We weren't going to leave Bagram.
+- [01:02:10.330] Joe Biden didn't know what he was doing,
+- [01:02:12.200] we had a man that didn't what he was doing.
+- [01:02:13.900] We had a man, by the way, that didn't approve,
+- [01:02:18.250] if you take a look at what's happening in Congress.
+- [01:02:20.870] We had a man that signed almost everything with an auto pen,
+- [01:02:25.720] and he didn't tell the people from the auto pen
+- [01:02:27.750] whoever was using it.
+- [01:02:29.120] One man that used it predominantly,
+- [01:02:30.860] he said that Biden only spoke to him twice,
+- [01:02:34.010] and it was only about the weather.
+- [01:02:35.990] He cares about nothing.
+- [01:02:37.920] So those pardons that he gave are illegal.
+- [01:02:40.680] He gave illegal pardons.
+- [01:02:42.550] And that includes a congressman that destroyed
+- [01:02:44.870] and deleted all the information from J6.
+- [01:02:49.840] They deleted everything because it turned out
+- [01:02:52.040] that they were wrong.
+- [01:02:53.540] It turned out that I offered 10,000 National Guard
+- [01:02:58.040] or soldiers, whatever they wanted.
+- [01:03:00.340] And you wouldn't have had a problem.
+- [01:03:01.710] And they turned it down. Nancy Pelosi turned it down
+- [01:03:04.110] and the mayor of Washington, D.C., turned it down.
+- [01:03:06.890] They deleted everything and they destroyed it,
+- [01:03:09.140] illegally destroyed it. And Biden gave them a pardon.
+- [01:03:12.860] And Biden gave a lot of other people pardons
+- [01:03:14.840] that frankly would be in jail if it wasn't for those pardons.
+- [01:03:17.960] But those pardons now are illegal,
+- [01:03:20.740] according to just about every one of you.
+- [01:03:24.640] The Press: Are you disappointed that the U.S. Attorney
+- [01:03:26.490] for the Eastern District of Virginia
+- [01:03:28.180] has not prosecuted Latisha James?
+- [01:03:30.350] Do you intend to fire him?
+- [01:03:32.260] The President: Well, we'll just see what happens.
+- [01:03:33.600] I am not following it very closely.
+- [01:03:35.870] It looks to me like she's very guilty of something,
+- [01:03:38.130] but I really don't know.
+- [01:03:39.400] I know that the U.S. Attorney from the Eastern District
+- [01:03:43.810] or from that district in Virginia,
+- [01:03:46.290] that he was approved by two Democrat senators
+- [01:03:50.700] who, in my opinion, are among the worst.
+- [01:03:53.200] And when I learned that two senators, Democrats --
+- [01:03:56.080] because, as you know, it's very hard with the blue slip.
+- [01:03:58.430] It's very for a Republican to get somebody approved
+- [01:04:01.350] If you have one senator that's a Democrat,
+- [01:04:04.010] because of an old custom.
+- [01:04:06.000] It's not a law, it is a custom. It's a ridiculous custom.
+- [01:04:09.880] But if you have a Democrat senator,
+- [01:04:11.520] you have to get that senator to approve.
+- [01:04:12.980] Well, in this case, we had two.
+- [01:04:15.430] When I saw that he got two senators,
+- [01:04:18.300] two gentlemen that are bad news as far as I'm concerned,
+- [01:04:23.450] when I saw he got approved by those two men,
+- [01:04:26.550] I said pull it, because he can't be any good.
+- [01:04:29.480] The Press: So you want them fired?
+- [01:04:30.780] You want him out?
+- [01:04:32.560] The President: Yeah, when I learned
+- [01:04:33.900] that he was blue-slipped through
+- [01:04:37.440] by two Democrat senators in Virginia,
+- [01:04:40.500] people that would never vote for it,
+- [01:04:43.180] the people that haven't voted for us for probably years,
+- [01:04:47.460] okay, probably years. In my opinion, two bad guys.
+- [01:04:52.330] You know who they are, Water and Kane.
+- [01:04:54.390] Two bad guys, bad senators, too.
+- [01:04:56.380] They do a terrible job for the people of Virginia.
+- [01:04:58.970] But when I saw that he got approved
+- [01:05:00.390] by these two terrible people that haven't voted,
+- [01:05:02.500] they just don't vote, no matter what it is.
+- [01:05:04.840] We could give them the greatest deal ever,
+- [01:05:07.660] and they still wouldn't vote. And they voted for this guy.
+- [01:05:11.340] And I have other people, judges,
+- [01:05:13.110] and I have U.S. Attorneys from other states
+- [01:05:15.580] where I have the same situation, and they can't get approved.
+- [01:05:20.430] So, when I learned that they voted for him,
+- [01:05:22.100] I said, I don't really want him, okay.
+- [01:05:29.000] The Press: Have you seen the polling,
+- [01:05:30.250] the Gallup poll, out of Ukraine
+- [01:05:32.090] that shows 23 percent less than a quarter of Ukrainians
+- [01:05:35.230] actually support continuing the war against Putin?
+- [01:05:38.010] We saw the European leaders come here
+- [01:05:39.460] and try to say the world is united for the war effort,
+- [01:05:42.600] but Ukrainians have war fatigue themselves.
+- [01:05:45.190] The President: I don't blame them.
+- [01:05:46.480] I don't blame them, it's a war that never should have started,
+- [01:05:49.070] it's war that would never have happened.
+- [01:05:50.680] If I were president, that war never would have happened, ever.
+- [01:05:54.960] That's a disgrace that that war happened,
+- [01:05:56.980] and they're losing anywhere from 5,000
+- [01:05:58.950] to 8,000 people a week on that war,
+- [01:06:02.090] which is the worst since the second world war.
+- [01:06:04.740] That is a war should have never happened,
+- [01:06:07.320] would have never happened,
+- [01:06:08.560] and it didn't happen for four years.
+- [01:06:10.190] When I was here, it didn't happened. Go ahead.
+- [01:06:11.960] The Press: Have you considered cutting funding
+- [01:06:13.580] even promises made by Biden administration?
+- [01:06:15.080] The President: Well, we're not spending any money on the war.
+- [01:06:16.900] You know, we are being paid for everything we said.
+- [01:06:19.180] Unlike Biden, he gave him $350 billion.
+- [01:06:22.830] And it's just -- it was shocking.
+- [01:06:24.910] We're not spending any money on the war.
+- [01:06:27.200] The war is being funded by NATO. NATO is buying our equipment.
+- [01:06:31.750] In fact, we're -- I don't want to make money on that war.
+- [01:06:34.140] I don't want to --
+- [01:06:35.350] but we are actually making money on that war
+- [01:06:37.360] because they're buying our equipment, as you know.
+- [01:06:39.090] But we -- NATO, as, you know, and very important,
+- [01:06:43.440] is funding the entire thing. For the missiles, for the tanks.
+- [01:06:48.250] They're paying for anything that's sent over there.
+- [01:06:50.540] It goes to NATO, and then NATO does what they want with it.
+- [01:06:53.680] In this case, I guess they give it to Ukraine.
+- [01:06:56.640] It's a very sad war.
+- [01:06:59.010] It's war that never should have happened.
+- [01:07:05.060] Go ahead, please.
+- [01:07:06.320] The Press: (inaudible) TikTok (inaudible)
+- [01:07:07.550] is the U.S. Government going to take a board seat
+- [01:07:10.140] in the company and -- a board seat within the company?
+- [01:07:14.050] The President: Well, we're going to announce it.
+- [01:07:15.490] Are you talking about TikTok? Yeah. We're going announce it,
+- [01:07:18.450] but it's a great deal for our country.
+- [01:07:20.080] It's a good deal for all of the young people
+- [01:07:22.170] in the country that wanted it, and people, generally.
+- [01:07:24.890] I was happy with it. Look, I wasn't a fan of TikTok,
+- [01:07:27.490] and then I got to use it, and I became a fan,
+- [01:07:30.310] and it helped me win the election in a landslide.
+- [01:07:32.850] So I think that it's deal that's going to be great.
+- [01:07:37.710] And it's also controlled by very powerful
+- [01:07:40.850] and very substantial American people.
+- [01:07:44.170] All American, by the way, all American people.
+- [01:07:48.390] Yeah, please. Go ahead, please.
+- [01:07:52.460] The Press: Last year, before you took office,
+- [01:07:54.360] there were an estimated 6.8 million men
+- [01:07:56.750] not actively seeking work of prime working age.
+- [01:08:00.230] So you and Secretary Lutnick
+- [01:08:02.040] could talk about the efforts your administration
+- [01:08:04.000] is taking to help our American gentlemen get back to work.
+- [01:08:06.780] The President: Yeah, well, what we're doing
+- [01:08:08.120] is they're building plants all over the United States.
+- [01:08:10.530] And frankly, because of tariffs,
+- [01:08:12.400] we're taking in trillions of dollars --
+- [01:08:14.520] trillions -- of dollars.
+- [01:08:16.040] And countries that have ripped us off for years --
+- [01:08:18.080] and everyone knows this --
+- [01:08:19.350] countries that have ripped off for us years.
+- [01:08:22.070] Like, nobody has ever been ripped off before.
+- [01:08:25.500] They're now having to pay up. They're paying a lot of --
+- [01:08:28.230] they're paying a lot money to America,
+- [01:08:29.950] and we're reducing taxes with that money.
+- [01:08:32.140] And we're -- we're do things
+- [01:08:34.430] that we were never able to do before.
+- [01:08:37.070] So, it's -- you're going to have a lot of jobs.
+- [01:08:39.420] You -- the jobs are being created right now.
+- [01:08:42.000] And the tariffs -- the tariffs are protecting our country.
+- [01:08:44.910] And we didn't use -- you know, tariffs were used against us,
+- [01:08:48.620] but we didn't use them against others.
+- [01:08:51.040] But we're really better at it than anybody else.
+- [01:08:53.720] And we've taken in --
+- [01:08:54.990] we will have taken in trillions of dollars.
+- [01:08:59.050] Nobody has ever seen anything.
+- [01:09:00.430] Even people that were against the tariffs,
+- [01:09:02.240] now they see the way they're working.
+- [01:09:03.470] And, by the way, with no inflation -- with no problem.
+- [01:09:07.680] We're just building up cash.
+- [01:09:09.180] And we're using that cash to reduce taxes, reduce debt,
+- [01:09:14.810] and other things. It's a great thing to watch.
+- [01:09:16.750] And your honest reporters are saying
+- [01:09:20.560] they've never seen anything like what's happening.
+- [01:09:22.480] Our country is becoming very rich again
+- [01:09:24.250] only because of tariffs.
+- [01:09:25.690] If we didn't have it, if we didn't have,
+- [01:09:27.980] if I didn't get elected,
+- [01:09:29.320] this country would be -- it was a dead country.
+- [01:09:32.710] Look, we were a dead country a year ago,
+- [01:09:35.800] and now we're the most successful,
+- [01:09:37.440] most vibrant country anywhere in the world.
+- [01:09:39.850] Hello Sean. Nice to see you. You look good on television. T.
+- [01:09:46.650] The Press: Tonight, in a few minutes,
+- [01:09:47.920] Steve Bannon will appear on my show.
+- [01:09:49.830] He floats the idea that you should
+- [01:09:51.670] dual-hat Secretary of Treasury Scott Bessent,
+- [01:09:55.270] not only as Treasury Secretary, but as interim Fed Chair.
+- [01:09:57.800] Would you be willing to entertain that?
+- [01:09:59.550] The President: In other words, he likes Scott.
+- [01:10:02.040] So do I, and I like Steve, too.
+- [01:10:04.560] The Press: Would you like to see that?
+- [01:10:06.090] Well, it's certainly an interesting tool
+- [01:10:08.390] that can save a little bit of salary.
+- [01:10:10.120] I think I could maybe make a deal
+- [01:10:11.560] where we just give them one salary.
+- [01:10:13.660] You know, I have a couple of them.
+- [01:10:15.430] I have Marco. No, I don't think so.
+- [01:10:17.230] And we have --
+- [01:10:18.460] we have Marco's got about three positions, right?
+- [01:10:20.910] He's doing great also.
+- [01:10:22.210] No, no, I don't think that's going to be necessary.
+- [01:10:24.590] Actually.
+- [01:10:26.840] I went to Scott and I talked to him about that position,
+- [01:10:30.740] and he loves what he's doing right now.
+- [01:10:32.660] So, you know, he's not in the mix
+- [01:10:34.230] because he loves being Secretary of the Treasury.
+- [01:10:37.260] The Press: (inaudible)
+- [01:10:38.540] early voting in the Commonwealth of Virginia.
+- [01:10:40.910] Are you planning on campaigning for Winston Sears,
+- [01:10:43.460] John Reed, or Jason Mayaris?
+- [01:10:45.640] The President: Well, I'm going to have to look at some of them.
+- [01:10:47.310] As you know, it's sort of a semi-local election.
+- [01:10:51.760] I've been watching and I've seen the ads.
+- [01:10:53.610] The Press: (inaudible) appreciate it.
+- [01:10:54.920] The President: Who do you like of the group?
+- [01:10:56.160] Who do like? All of them. You like them?
+- [01:10:59.210] I'll take a very strong look. For you, I'm going to look.
+- [01:11:02.430] The Press: (inaudible)
+- [01:11:11.930] are you comfortable with that change,
+- [01:11:13.590] or would you like to see Americans take the vaccines
+- [01:11:16.400] that were developed under your tenure?
+- [01:11:18.460] The President: Well, the vaccines,
+- [01:11:19.740] according to a lot of people,
+- [01:11:21.220] and if you look at yours, have had a tremendous --
+- [01:11:23.680] you know, Operation Warp Speed.
+- [01:11:26.970] Just according to just about everybody
+- [01:11:28.800] was one of the greatest things that any president
+- [01:11:31.230] has ever done in this country.
+- [01:11:32.790] So we're very proud of it. I'm very proud.
+- [01:11:35.300] I'm also very proud of Regenon some of the things
+- [01:11:39.080] that came out of, you know, all of the labs
+- [01:11:41.940] and all of the research that we've done.
+- [01:11:44.070] So I don't know exactly what the final determination is,
+- [01:11:47.410] but I had the vaccine. I was very happy with it.
+- [01:11:49.640] Here I am, right?
+- [01:11:53.280] The Press: Bobby Kennedy seems to be undoing what you did --
+- [01:11:55.400] The President: No, I put him in --
+- [01:11:56.660] I put him in there because I want to have opposite views.
+- [01:11:59.620] That's okay. I think we're going to have something very,
+- [01:12:03.500] very big coming up soon on autism.
+- [01:12:05.650] Autism is totally out of control.
+- [01:12:08.110] And one of the biggest, one of most important things
+- [01:12:12.020] that in my opinion I had to do
+- [01:12:14.110] is to see what's going on with autism.
+- [01:12:16.440] And we're going to have a news conference
+- [01:12:18.860] early next week on autism
+- [01:12:21.240] And I think you're going to see some things that are amazing
+- [01:12:23.700] that we've learned that somebody else wouldn't have learned.
+- [01:12:26.830] It's out of control. Autism, out of control
+- [01:12:30.610] and I think we maybe have the reason why.
+- [01:12:33.580] The Press: But is Bobby Kennedy going too far
+- [01:12:35.580] and unwinding the vaccine --.
+- [01:12:36.840] The President: Well, I don't know.
+- [01:12:38.050] He's saying for older people.
+- [01:12:39.830] Yeah, he's saying for older people.
+- [01:12:41.190] A lot of people agree with that.
+- [01:12:43.750] But I can tell you this, Operation Warp Speed,
+- [01:12:48.100] one of the greatest things a president
+- [01:12:49.980] has ever done for this country. And you can say the world,
+- [01:12:53.140] because when we came up with that vaccine,
+- [01:12:55.610] the whole world opened up.
+- [01:12:57.670] But I put Bobby there as somebody
+- [01:13:00.260] that will go either way.
+- [01:13:02.880] And I want, you know, I want the facts.
+- [01:13:04.930] But I also look at facts from Pfizer,
+- [01:13:07.510] where they spent a lot of money,
+- [01:13:08.940] and the other drug companies, they spent a lot a money
+- [01:13:11.090] on finding out the results after the fact.
+- [01:13:14.540] The results were amazingly good.
+- [01:13:20.900] The Press: I'm wondering if you've seen the video
+- [01:13:22.300] put out by former Israeli hostages addressed to you,
+- [01:13:25.330] one is a widow but one that died,
+- [01:13:27.050] and these are people who are free thanks to you,
+- [01:13:29.480] but they're actually encouraging you to force a ceasefire,
+- [01:13:32.790] force Netanyahu to cease fire,
+- [01:13:34.070] and they didn't address it to him
+- [01:13:35.390] because they think you're the one
+- [01:13:36.770] who might actually listen to that and get it done.
+- [01:13:38.890] They're worried that the hostages who are still there
+- [01:13:41.200] are more at risk than before (inaudible).
+- [01:13:43.160] The President: Well, they might be --
+- [01:13:44.950] they also -- maybe they'll be freed because of that.
+- [01:13:47.780] You know, you never know how it's going to --
+- [01:13:49.490] look, war, I was saying, yes.
+- [01:13:50.930] War -- a lot of strange things happen.
+- [01:13:53.780] A lot of results take place
+- [01:13:55.960] that you would never think were going to happen.
+- [01:13:59.620] As you know, I able to get most of the hostages out.
+- [01:14:02.920] We're down to 20.
+- [01:14:04.790] And we have 32 dead people, you know that.
+- [01:14:09.100] We have 32, maybe more -- 38 but between 32 and 38 people
+- [01:14:14.430] that were dead mostly young people.
+- [01:14:16.680] And I've dealt with some of the parents
+- [01:14:19.210] and we got all our Americans out as you know,
+- [01:14:22.200] but and now we're talking about mostly Israelis,
+- [01:14:25.320] But I dealt with parents, I spoke to parents,
+- [01:14:27.310] and they want the body of their son,
+- [01:14:31.090] believe it, almost all cases sons,
+- [01:14:33.820] but they want the body of their cherished, beautiful son,
+- [01:14:36.560] they want the body back as much as though he were alive.
+- [01:14:40.990] It's so sad to see, but I've dealt with the mothers
+- [01:14:44.910] and fathers, please sir, please, the body of my son,
+- [01:14:48.180] they know he's dead. They just want him back.
+- [01:14:53.090] They want him as much as though he's alive.
+- [01:14:55.620] I mean, it's very terrible.
+- [01:14:59.890] And, you know, we have very close to 40 bodies
+- [01:15:03.820] that are included in the whole thing.
+- [01:15:07.160] But we have 20, probably 20, that are living.
+- [01:15:09.510] It might be a little bit less because a couple of things.
+- [01:15:12.490] Look, young people don't die, okay?
+- [01:15:14.350] They just don't. And it can take a lot,
+- [01:15:17.010] but a lot of people died in these horrible tunnels.
+- [01:15:23.780] They're mostly in the tunnels. I know a lot about it.
+- [01:15:26.770] I got them out. I got them out. But I always said the last 20,
+- [01:15:30.280] when you get down to the last 10 or 20,
+- [01:15:32.080] it's going to be very tough. It's a nasty situation.
+- [01:15:36.740] You can't forget October 7th, but it's a nasty situation.
+- [01:15:40.060] Terrible.
+- [01:15:41.350] The Press: Mr. President, on Gaza,
+- [01:15:42.960] the U.N. concluded this week
+- [01:15:44.560] that Israel committed genocide in Gaza.
+- [01:15:46.450] What are your thoughts on that?
+- [01:15:47.860] The President: Well, I haven't seen that. I'm looking at it.
+- [01:15:50.200] But did anybody commit genocide on October 7th?
+- [01:15:55.100] What do you think about that?
+- [01:15:57.640] That was genocide at the highest level.
+- [01:16:01.110] That was murder, genocide.
+- [01:16:04.010] You can call it whatever you want.
+- [01:16:05.760] But little babies were chopped in half.
+- [01:16:08.810] Arms were cut off people, heads were cut of people.
+- [01:16:12.010] That's genocide.
+- [01:16:13.290] That's also genocide also, I guess, right?
+- [01:16:15.740] The Press: (inaudible)
+- [01:16:17.380] TikTok you refer to getting a fee from that deal?
+- [01:16:19.500] What is that fee?
+- [01:16:20.700] The President: Well, it hasn't been fully negotiated,
+- [01:16:23.310] but we'll get something from the standpoint that we worked hard,
+- [01:16:27.830] we put up a lot, we spent a lot of money
+- [01:16:31.200] on letting this come and letting this, you know,
+- [01:16:34.860] it's a very, very big deal, it is a very powerful deal,
+- [01:16:39.830] and the United States really -- I see it.
+- [01:16:43.680] I mean, people were saying, save TikTok, save TikTok.
+- [01:16:46.560] So many people. It's a big thing
+- [01:16:48.810] and, you know, China can be very proud
+- [01:16:50.610] that they were able to get that started.
+- [01:16:52.920] And so I very much appreciate
+- [01:16:54.530] President Xi's working with us on that.
+- [01:16:56.500] Very much.
+- [01:17:03.440] The Press: What comes next after designating ANTIFA?
+- [01:17:05.350] The President: Well, we have others
+- [01:17:06.630] that we're going to designate, too.
+- [01:17:08.120] But we're going to look at the people that funded
+- [01:17:09.870] ANTIFA, see who they are, where they came from,
+- [01:17:12.640] and why they did. Have you seen Portland at all?
+- [01:17:15.380] Have you taken a look at what's happening in Portland?
+- [01:17:18.620] It's amazing. This has been going on for years.
+- [01:17:22.300] They're just people out of control and crazy.
+- [01:17:24.850] We're going to stop that very soon.
+- [01:17:26.560] We have to get rid of a couple of other problems first.
+- [01:17:28.830] We're going get rid the problems in Memphis
+- [01:17:31.380] where you can't even walk a block without getting shot.
+- [01:17:34.830] We're going to get rid of the problems in Chicago.
+- [01:17:36.780] Chicago is a great city, and we have to save it.
+- [01:17:39.030] We have to say it.
+- [01:17:40.390] I told you I had the head of the Union Pacific Railroad
+- [01:17:42.920] in my office, and I said, so what do you think?
+- [01:17:45.650] You go to every city.
+- [01:17:46.950] You have railroads in every yard.
+- [01:17:48.630] Our biggest railroad, beautiful railroad.
+- [01:17:50.560] He's a great guy. I said what do think?
+- [01:17:53.370] He said, sir, save Chicago. Don't let it go down. Save it.
+- [01:17:58.480] The way he said it was so meaningful to me,
+- [01:18:01.840] It was so like. It was, like, terrible.
+- [01:18:05.930] In a way, it was terrible. Save Chicago.
+- [01:18:08.780] Who would ever think that we'd be sitting here
+- [01:18:11.300] talking about saving Chicago?
+- [01:18:12.980] Chicago's a great city. They have a terrible mayor.
+- [01:18:17.230] Terrible. He's at, like 5 percent approval rating.
+- [01:18:20.790] He's an incompetent person.
+- [01:18:22.940] They have an incompetent governor, in my opinion.
+- [01:18:25.410] He's incompetent.
+- [01:18:26.920] Eleven people get shot, and he says, crime isn't
+- [01:18:28.580] (inaudible).
+- [01:18:29.880] I mean, they're losing four, five, six people a week.
+- [01:18:33.100] Getting killed by bullets, by knives.
+- [01:18:36.800] And then he says how wonderful it is, Chicago.
+- [01:18:39.070] So, well, it might be wonderful for him.
+- [01:18:42.660] I think they're afraid. Look, he's not a stupid guy.
+- [01:18:45.990] I really believe they're afraid to say that politically,
+- [01:18:48.960] I guess, from an ideology standpoint,
+- [01:18:52.950] from a democratic standpoint. He's afraid.
+- [01:18:58.070] He is afraid to say the fact
+- [01:19:00.980] that they have a very unsafe, very dangerous city.
+- [01:19:04.100] He should say, I'm going to call President Donald Trump
+- [01:19:08.240] and I'm going to ask him to send in the troops,
+- [01:19:10.310] to send in the National Guard and clean this hellhole up.
+- [01:19:14.460] Because Chicago can be a great city again.
+- [01:19:16.930] I'll tell you what, Washington, D.C.
+- [01:19:18.580] Is a great place again.
+- [01:19:20.350] It's booming and the restaurants are Help me.
+- [01:19:25.300] Six months ago, seven months ago nobody could go outside.
+- [01:19:29.880] And even just walking around the White House,
+- [01:19:31.410] people here are thanking me for what I've done.
+- [01:19:34.530] They're thanking me. They're saying thank you.
+- [01:19:36.160] And I almost know what they mean because they can walk to work.
+- [01:19:40.150] And even when they took Uber
+- [01:19:42.100] and they took other forms of transportation,
+- [01:19:44.660] they felt unsafe because the car was hijacked.
+- [01:19:46.830] While they're in there, they take a car
+- [01:19:48.800] and it's being hijacked as they get into the car.
+- [01:19:51.400] And they did that for safety. And now we have a safe place.
+- [01:19:54.390] You know, we've taken 1,500 people out of --
+- [01:19:57.010] career criminals have been taken out of Washington,
+- [01:19:59.630] D.C. And we were very nice about it.
+- [01:20:02.880] The Press: (inaudible)
+- [01:20:10.390] did you discuss it with the Union Pacific?
+- [01:20:11.880] The President: I did, I did discuss it,
+- [01:20:13.670] and I don't want to make a comment on it,
+- [01:20:15.880] but Union Pacific is a great railroad,
+- [01:20:19.160] and they want to add a railroad that had a mistake
+- [01:20:23.860] at a place very close to my heart, you know?
+- [01:20:26.030] A lot of people say that that was a place
+- [01:20:29.290] where I got off to a very good start.
+- [01:20:33.520] It was a rough thing that happened.
+- [01:20:35.740] Well, they're trying to buy that railroad that has the problem.
+- [01:20:39.320] And it sounds good to me,
+- [01:20:42.810] to be honest with you, it sounds good to me.
+- [01:20:44.530] I'm a very big fan of the head of the railroad,
+- [01:20:48.070] the head of The Union Pacific.
+- [01:20:49.350] He started as a very low on the totem pole,
+- [01:20:53.920] started his job very low
+- [01:20:55.470] and became the chairman of the company over a 45 year period.
+- [01:20:59.890] But I asked him about different cities.
+- [01:21:01.630] He said, St. Louis is tough, we try, you know --
+- [01:21:04.770] he sort of stops and says many of them.
+- [01:21:09.440] New Orleans, we have to save New Orleans.
+- [01:21:14.580] We're going to be going into New York, too.
+- [01:21:17.210] And we're going to be going in -- quiet.
+- [01:21:19.190] You're really obnoxious.
+- [01:21:20.500] The Press: I'm not obnoxious, but I'm trying to ask you,
+- [01:21:22.190] what about your plans for Wednesday?
+- [01:21:23.430] The President: You are really obnoxious.
+- [01:21:24.910] The Press: I'm not obnoxious,
+- [01:21:26.140] I am asking what are your plans for Wednesday.
+- [01:21:27.410] Many people want to know (inaudible).
+- [01:21:28.620] The President: I'm not going to talk to you
+- [01:21:29.870] until I call on you. So who else? Yeah, go ahead.
+- [01:21:33.700] The Press: You know, I actually (inaudible)
+- [01:21:35.640] free speech question because you said
+- [01:21:37.130] that you restored free speech in America.
+- [01:21:39.980] Is that free speech, including for people
+- [01:21:41.730] who are harshly critical of you, for your political opponents,
+- [01:21:44.920] for people who say things you don't like?
+- [01:21:46.440] The President: I've become immune to it.
+- [01:21:48.250] I've been -- I've became immune to --
+- [01:21:50.110] there's never been a person
+- [01:21:51.520] that's had more unfair publicity than me.
+- [01:21:53.780] And that's why your network paid me $15 million --
+- [01:21:56.960] or $16 million, I believe, to be exact.
+- [01:21:59.560] George Slopidopoulos.
+- [01:22:01.400] And that why CBS paid me a lot of money, too.
+- [01:22:05.050] And that is why I sued the New York Times
+- [01:22:07.000] two days ago for a lot money.
+- [01:22:08.890] Because I -- well, I'm winning. I mean, I am winning the cases.
+- [01:22:11.760] And the reason I'm wining is because you're guilty, John.
+- [01:22:13.900] You're guilty.
+- [01:22:15.130] ABC is a terrible network, a very unfair network,
+- [01:22:18.170] and you should be ashamed of yourself.
+- [01:22:20.310] NBC is equally bad. I don't know who's worse.
+- [01:22:22.970] I think they're equally bad,
+- [01:22:25.480] and, you know, for you to stand there and act so innocent
+- [01:22:28.090] and ask me a question like that.
+- [01:22:29.540] But look, you paid a big price because you were dishonest.
+- [01:22:34.620] The reason I won that lawsuit is because you were dishonest.
+- [01:22:37.820] You were proven to be dishonest.
+- [01:22:39.350] And so you can't sit back and just say,
+- [01:22:41.620] oh, well, what do you think?
+- [01:22:42.930] You know, like you're some wonderful person.
+- [01:22:45.410] You're not a wonderful person, frankly.
+- [01:22:47.220] You're a terrible reporter. You know it, and so do I.
+- [01:22:50.440] Okay. Here's what we're going to do.
+- [01:22:53.580] Here's -- here's what -- here is what we are going to do.
+- [01:22:57.200] We're going talk about something
+- [01:22:58.830] that's going to reduce our taxes greatly.
+- [01:23:01.110] That's going to hopefully
+- [01:23:02.480] bring some great people into our country.
+- [01:23:04.190] You know, as you know right now nobody's coming in
+- [01:23:06.620] because we've succeeded in closing --
+- [01:23:09.790] we've closed the border very successfully.
+- [01:23:12.200] I think you will agree. We had nobody
+- [01:23:15.280] Come in for the last few months.
+- [01:23:16.690] I mean it was -- actually said zero.
+- [01:23:18.150] Even I can't believe zero,
+- [01:23:19.500] but the numbers are put out by very impartial people
+- [01:23:22.890] or people that have a tendency to be on the left
+- [01:23:26.420] and they actually said for the last three months,
+- [01:23:28.270] nobody came in. We have a very strong border.
+- [01:23:30.920] It's a closed border.
+- [01:23:32.290] People are coming into our country,
+- [01:23:33.540] but they're coming in legally. It's beautiful thing to watch.
+- [01:23:36.070] But we are doing something
+- [01:23:37.940] where rather than coming into the border,
+- [01:23:40.990] 25 million people came into our county during Biden.
+- [01:23:46.470] One of the saddest things.
+- [01:23:48.850] The worst thing I look he was horrible in inflation.
+- [01:23:52.680] He was horrible and just about everything you could be
+- [01:23:55.190] I don't think he was good at he wasn't even fair on anything.
+- [01:23:58.380] He wasn't hard. It was a horrible administration.
+- [01:24:01.470] He was the worst president in the history of our country
+- [01:24:04.910] and we have to mop it up.
+- [01:24:07.670] The hardest thing that we have do
+- [01:24:09.700] is to get rid of the criminals that he allowed into our country
+- [01:24:12.530] from prisons from mental institutions
+- [01:24:15.680] gang members drug dealers.
+- [01:24:18.270] And we're getting them out, and we're getting them our fast,
+- [01:24:20.820] and making America safe again.
+- [01:24:22.540] Great again, but we're making America safe again,
+- [01:24:25.320] and it's an honor to do it.
+- [01:24:26.930] But this is something, this is an unforced error.
+- [01:24:30.060] What they've done is this is just an unforced error.
+- [01:24:33.200] So I'm going to ask Howard to speak.
+- [01:24:37.290] Howard's done a fantastic job, as you know,
+- [01:24:39.340] Secretary of Commerce.
+- [01:24:40.970] And I'm going to ask Howard and Will.
+- [01:24:43.400] Will, could you just give a quick description
+- [01:24:45.240] of what we're doing and what we're signing, et cetera?
+- [01:24:48.650] William Scharf: I will do that.
+- [01:24:49.940] We have two items for your attention today, sir.
+- [01:24:52.600] A major focus of your administration
+- [01:24:55.330] has been shifting the conversation
+- [01:24:57.240] and shifting the policy dynamics around the issue of immigration,
+- [01:25:00.530] closing the border, preventing illegal immigration,
+- [01:25:03.280] but also, as is the case
+- [01:25:04.580] with the executive order in front of you,
+- [01:25:06.460] opening new pathways for truly extraordinary people
+- [01:25:09.680] to come contribute to America instead of taking away from it.
+- [01:25:13.080] So this executive order is entitled the Gold Card.
+- [01:25:15.990] It will set up a new pathway, a new visa pathway
+- [01:25:19.300] for foreigners of extraordinary ability
+- [01:25:21.510] who are committed to supporting the United States
+- [01:25:24.940] for a payment of one million dollars to the U.S. Treasury
+- [01:25:27.980] or if a corporation is sponsoring them
+- [01:25:30.060] two million dollars by that corporation
+- [01:25:32.660] and that will give them access to to expedited visa treatment
+- [01:25:36.120] as part of this new gold card program.
+- [01:25:38.320] The President: And one of the biggest problems
+- [01:25:39.650] we have is that people, they go to the best schools,
+- [01:25:42.270] and they do great, and they get great marks,
+- [01:25:44.260] and then they're thrown out of the country.
+- [01:25:45.620] You're not allowed to stay.
+- [01:25:46.830] This way, a corporation will be able,
+- [01:25:48.920] sort of like a signing bonus in baseball or football,
+- [01:25:52.070] a corporation will able to get them to stay in the country,
+- [01:25:55.750] and I think it's going to be tremendously successful.
+- [01:25:58.330] Howard, would you say a few words about it, please?
+- [01:26:00.130] Secretary Lutnick: Sure.
+- [01:26:01.340] So, historically, the employment-based
+- [01:26:05.150] green card program led in 281,000 people a year.
+- [01:26:11.730] And those people, on average,
+- [01:26:14.280] earned $66,000 a year on average.
+- [01:26:18.630] And they were five times more likely to go
+- [01:26:21.820] on assistance programs of the government.
+- [01:26:24.350] So we were taking in the bottom quartile.
+- [01:26:28.320] Below the average American, it was illogical,
+- [01:26:31.980] the only country in the world
+- [01:26:33.970] that was taking in the bottom quartile.
+- [01:26:36.750] So what we are doing now is we are going to stop doing that.
+- [01:26:40.800] We're going to only take extraordinary people
+- [01:26:43.380] at the very top.
+- [01:26:44.630] Instead of people trying to take the jobs from Americans,
+- [01:26:48.200] they're going create businesses and create jobs for Americans,
+- [01:26:52.530] and this program will raise more than $100 billion
+- [01:26:56.280] for the Treasury of the United States of America.
+- [01:26:58.960] The President: Which we'll use for cutting taxes
+- [01:27:01.560] and paying down debt.
+- [01:27:02.800] We think it's going to be very successful.
+- [01:27:04.390] Essentially, we're having people come in,
+- [01:27:08.620] people that, in many cases, I guess,
+- [01:27:10.820] that are, you know, very successful or whatever.
+- [01:27:13.210] And they're coming in,
+- [01:27:14.540] they're going to spend a lot of money to come in.
+- [01:27:16.870] They're going pay as opposed to walking over the borders.
+- [01:27:19.410] And they may come from jails, prisons, everything else.
+- [01:27:22.570] These people don't. They're very productive people,
+- [01:27:25.870] and they're going to pay a million dollars.
+- [01:27:27.350] The corporation is going to be paying two million dollars,
+- [01:27:30.170] and it's going to raise billions of dollars,
+- [01:27:32.890] billions and billions of which is going go to reduce taxes,
+- [01:27:35.810] pay off debt, and other good things.
+- [01:27:39.300] So I think it's going to be very successful.
+- [01:27:44.340] The Press: (inaudible) The President: What?
+- [01:27:46.740] The Press: (inaudible)
+- [01:27:47.940] The President: I wish you'd speak more clearly,
+- [01:27:49.280] I really do. Give it to me again.
+- [01:27:51.750] The Press: (inaudible).
+- [01:27:56.960] Secretary Lutnick: Tech companies.
+- [01:27:58.230] Big tech companies.
+- [01:27:59.500] The President: Yeah. Big tech.
+- [01:28:00.730] Yeah, big tech. It's every company.
+- [01:28:03.340] It's big tech, it's big everything, okay?
+- [01:28:05.970] It's a company. I said it's not a tech company.
+- [01:28:08.300] It's tech companies and everything else.
+- [01:28:10.600] It's companies having a hard time
+- [01:28:14.100] getting people to be able to stay in the country.
+- [01:28:17.570] It's very difficult.
+- [01:28:18.870] Now, if you want to walk through the border,
+- [01:28:20.260] you can have no problem.
+- [01:28:21.800] People say, well, the best way to come in
+- [01:28:24.110] is walk right through the border,
+- [01:28:25.610] but they can't do that anymore
+- [01:28:27.320] because under our administration,
+- [01:28:29.600] the border is totally closed.
+- [01:28:31.210] You can only come in if you come in legally,
+- [01:28:34.430] and that's the way it's been, and that's where it should be.
+- [01:28:36.950] And we're taking a lot of people out of the country that are here
+- [01:28:39.370] from prisons, from jails, from mental institutions,
+- [01:28:43.120] and even insane asylums, people that are crazy.
+- [01:28:46.070] We're taking them out of the country.
+- [01:28:47.590] We're getting them out the country,
+- [01:28:48.790] because you can't have a country like that.
+- [01:28:50.350] And I tell you, Kristi and Tom Holman
+- [01:28:55.110] and all of the people that have worked so hard on this,
+- [01:28:57.280] they've done an unbelievable job.
+- [01:28:59.770] And I think we're getting great marks for it.
+- [01:29:01.810] People feel safe.
+- [01:29:03.500] Washington, D.C. Is just the beginning.
+- [01:29:05.350] Other -- you know, we brought the numbers down in Chicago
+- [01:29:08.220] a little bit by having the FBI in there
+- [01:29:10.310] for the last five months.
+- [01:29:11.860] We brought the number down in Memphis a little bit,
+- [01:29:13.980] but now we're going for the big --
+- [01:29:15.710] well, now we're going to go for the big one.
+- [01:29:17.620] But we set ourselves up very well in Chicago, Memphis,
+- [01:29:21.720] New Orleans a little bit,
+- [01:29:23.710] going in early, just to see what was happening.
+- [01:29:26.350] You know, we study it. We're studying the site.
+- [01:29:28.050] It's sort of like war. I mean, I hate to tell you,
+- [01:29:30.890] it's like war, some of these people are really bad.
+- [01:29:33.650] They're really, really sick people.
+- [01:29:36.590] They're dangerous people. They're killers.
+- [01:29:38.590] They're murderers. Drug dealers, and can't have it,
+- [01:29:43.250] and you can't have a country like that.
+- [01:29:45.180] It's so beautiful to see in Washington, D.C.,
+- [01:29:47.610] that people are walking down the middle of the street
+- [01:29:50.390] and they go into restaurants, and half of you were mugged.
+- [01:29:55.500] I don't know if she's here now, I don't see her,
+- [01:29:57.160] but some people were badly mugged that were reporters.
+- [01:30:01.290] Two of the people right standing
+- [01:30:02.780] in the back of the room were muged.
+- [01:30:06.420] They're not going to have that anymore.
+- [01:30:08.010] And if you look at the crime stats in Washington, D.C.,
+- [01:30:11.020] you have a safe place again.
+- [01:30:13.120] They were afraid to go to a restaurant
+- [01:30:14.540] because the restaurant would be held up
+- [01:30:16.260] while they're having dinner.
+- [01:30:18.320] And so they'd be mugged going there,
+- [01:30:20.880] and assuming they escaped the mugging,
+- [01:30:23.110] they go to the restaurant and then they're held up.
+- [01:30:25.500] This is how bad it's been.
+- [01:30:27.220] The Press: (inaudible).
+- [01:30:31.740] The President: That's going to be next. We'll talk about that.
+- [01:30:34.050] The Press: You're very close to the technology
+- [01:30:36.400] (inaudible).
+- [01:30:38.440] The President: I think they're going to be very happy.
+- [01:30:39.800] Everyone is going to happy.
+- [01:30:41.690] And we're going be able to keep people in our country
+- [01:30:43.880] that are going to very productive people.
+- [01:30:46.190] And in many cases, these companies are going to pay
+- [01:30:48.130] a lot of money for that. And they're very happy about it.
+- [01:30:51.070] Okay, we'll talk about that next, all right?
+- [01:30:53.880] Okay.
+- [01:31:03.060] My friend, why don't you keep that, okay?
+- [01:31:06.210] That's such a good job. That's phase one.
+- [01:31:12.060] John, are you happy? Okay, let's go.
+- [01:31:16.960] William Scharf: Thank you, Mr. President.
+- [01:31:18.290] One of the most abused visa systems
+- [01:31:20.390] in our current immigration system
+- [01:31:22.310] has been the H-1B non-immigrant visa program.
+- [01:31:25.600] This is supposed to allow highly skilled laborers
+- [01:31:29.060] who work in fields that Americans don't work in
+- [01:31:31.880] to come into the United States of America.
+- [01:31:34.210] What this proclamation will do is raise the fee
+- [01:31:37.820] that companies pay to sponsor H- 1B applicants to $100,000.
+- [01:31:43.330] This will ensure that the people they're bringing in
+- [01:31:45.800] are actually very highly skilled,
+- [01:31:48.160] and that they're not replaceable by American workers.
+- [01:31:50.550] So it'll protect American workers,
+- [01:31:52.580] but ensure that companies have a pathway
+- [01:31:54.840] to hire truly extraordinary people
+- [01:31:56.690] and bring them to the United States to work.
+- [01:31:59.160] The President: We need workers. We need great workers.
+- [01:32:00.890] And this pretty much ensures
+- [01:32:02.860] that that's what's going to happen.
+- [01:32:04.350] I think, Sean, you agree with that?
+- [01:32:06.230] Secretary Lutnick: $100,000 per year.
+- [01:32:10.220] So the whole idea is, no more will these big tech companies
+- [01:32:14.090] or other big companies train foreign workers.
+- [01:32:18.040] They have to pay the government $100 thousand.
+- [01:32:20.090] Then they have to the employee. So it's just not economic.
+- [01:32:24.120] If you're going to train somebody,
+- [01:32:26.260] you're going to train one of the recent graduates
+- [01:32:29.310] from one of great universities across our land.
+- [01:32:32.200] Train Americans.
+- [01:32:33.460] Stop bringing in people to take our jobs.
+- [01:32:36.440] That's the policy here. $100,000 a year for H-1B visas,
+- [01:32:41.400] and all of the big companies are on board.
+- [01:32:44.760] We've spoken to them about the gold card.
+- [01:32:46.420] The President: They love it.
+- [01:32:47.630] They really love it, they need it.
+- [01:32:48.860] Go ahead, Sean.
+- [01:32:50.100] The Press: Mr. President, it seems like
+- [01:32:51.320] there's two categories of visa programs.
+- [01:32:52.830] The H-1B, a lot of people believe, take American jobs,
+- [01:32:55.790] and then the gold card in programs like EB-5
+- [01:32:58.520] that add value in jobs to America.
+- [01:33:00.070] Is that sort of how you look at the visa program?
+- [01:33:02.370] The President: Well, ideally, look,
+- [01:33:03.620] if somebody's got the people,
+- [01:33:05.160] they're not going to want to spend $100,000,
+- [01:33:07.480] as an example, in your second category.
+- [01:33:09.350] So it's not taking jobs. And we need certain jobs.
+- [01:33:13.000] We need certain skilled jobs that we don't have.
+- [01:33:15.830] But they won't be taking jobs because, you know, ideally,
+- [01:33:18.360] the people aren't going to want to --
+- [01:33:19.640] they're not going --.
+- [01:33:20.840] The Press: (inaudible) in America.
+- [01:33:22.080] The President: Right, that's right.
+- [01:33:23.300] They're really investing in it.
+- [01:33:24.530] The Press: (inaudible) you have two categories,
+- [01:33:25.950] one Secretary's Lutnick's Gold Card
+- [01:33:30.140] (inaudible) seem to take (inaudible).
+- [01:33:37.740] The President: That's pretty correct.
+- [01:33:39.250] I would say that's a correct assessment. But the main thing
+- [01:33:42.090] is we're going to have great people coming in,
+- [01:33:43.770] and they're going to be paying. I mean, it is wonderful to say,
+- [01:33:47.640] oh, gee, we took in 25 million people.
+- [01:33:56.720] Many criminals, jails were opened from Venezuela,
+- [01:33:59.520] from many other countries,
+- [01:34:00.760] and they were let out of jail and poured into our country,
+- [01:34:05.170] our poor country, how it suffered with this,
+- [01:34:08.490] with this stupid president that we had and the stupid people
+- [01:34:11.620] that surrounded him right around this desk,
+- [01:34:13.580] these liberal, crazy people that have destroyed,
+- [01:34:17.490] they could have destroyed -- if we didn't win this election,
+- [01:34:19.820] our country would have been dead.
+- [01:34:21.490] Our country was dead. Think of it.
+- [01:34:24.010] And I've said this many -- the King of Saudi Arabia
+- [01:34:26.130] said your country was dead in one year.
+- [01:34:28.610] They thought it was dead.
+- [01:34:30.590] This country couldn't have survived another year
+- [01:34:32.630] of those people running it.
+- [01:34:34.580] And now we have the hottest country anywhere in the world.
+- [01:34:37.040] Think of that. And this is going to help.
+- [01:34:40.780] And we're taking in hundreds of billions of dollars.
+- [01:34:43.200] This will be taken in --
+- [01:34:44.570] the gold card will be taking in --
+- [01:34:45.970] hundreds of millions of dollars,
+- [01:34:48.230] and companies will be able to keep some people that they need.
+- [01:34:50.890] You know, they need people of expertise, great expertise,
+- [01:34:55.800] and I think it's going to be a fantastic thing.
+- [01:34:57.940] And we're going to take that money,
+- [01:34:59.700] and we're going to reduce taxes, we're going to reduce debt.
+- [01:35:03.400] We have a very, very strong country.
+- [01:35:05.540] We, assuming everything works out great
+- [01:35:08.630] with the lawsuit that we have,
+- [01:35:10.480] we have a lawsuit that's inspired by foreign countries
+- [01:35:14.100] that ripped us off for 25 years,
+- [01:35:16.870] but assuming we win that, we hopefully win it.
+- [01:35:18.920] It's in the Supreme Court of the United says
+- [01:35:22.180] we have a country that -- no stopping us.
+- [01:35:25.310] There's no, we're rich, we'll be rich.
+- [01:35:26.990] We can take care of poor people.
+- [01:35:28.890] We can care of our military. We can of everything.
+- [01:35:31.720] We can takes care of beyond the country.
+- [01:35:33.350] We can help take care the world.
+- [01:35:36.270] If we don't have to just be the same struggle that we've had
+- [01:35:38.930] for years where other countries charged us tariffs
+- [01:35:42.970] and they ripped us off. Our country has been ripped off
+- [01:35:45.720] more than any country in the history of the world and now
+- [01:35:51.160] We are doing what we have to do.
+- [01:35:54.570] We're taking in billions and billions of dollars
+- [01:35:57.460] at levels that nobody has ever seen --
+- [01:35:59.310] trillions of dollars.
+- [01:36:01.210] And we're using it to reduce debt.
+- [01:36:03.120] We're using to reduce taxes.
+- [01:36:05.350] The great, big, beautiful bill is a big tax reduction.
+- [01:36:08.630] It's being paid for by the tariffs.
+- [01:36:10.970] And people are paying a lot less money in taxes.
+- [01:36:14.300] They're being -- think of it -- no tax on tips,
+- [01:36:17.370] no tax social security, no tax over time.
+- [01:36:22.000] It's an unbelievable phenomenon. It really is.
+- [01:36:25.290] It's the Golden Age. We're making it the Golden age.
+- [01:36:28.040] Without the tariffs, it would be impossible.
+- [01:36:30.660] And China, for years, charged us tariffs,
+- [01:36:33.390] and they continue to do it. And so do other countries.
+- [01:36:37.530] Most countries, they charged us they were ripping.
+- [01:36:39.440] Look, the European Union, as you know,
+- [01:36:41.420] I get along very well with them.
+- [01:36:43.710] But they ripped us off so badly. Nobody's ever seen anything.
+- [01:36:47.740] Now the European Union is paying us $950 billion,
+- [01:36:51.400] and they're paying us 750 billion to buy our energy.
+- [01:36:56.680] And they're okay with it. They sign the agreement.
+- [01:36:58.790] You know, it's not like anybody forced them to do it.
+- [01:37:00.980] They're okay it with us.
+- [01:37:02.960] Tariffs are making our country very rich again,
+- [01:37:05.760] and we'll be able to take care of our debt.
+- [01:37:08.000] We'll be be able take care our taxes, lower taxes.
+- [01:37:11.140] We'll able to care Medicare, Medicaid, Social Security.
+- [01:37:14.860] We're going to be a rich country again,
+- [01:37:16.810] without tariffs we'd be in very big trouble.
+- [01:37:21.590] The Press: (inaudible)
+- [01:37:28.110] sometimes used by people already in the country
+- [01:37:29.860] legally on other reasons or student reasons.
+- [01:37:32.990] Does this apply to them or to renewals,
+- [01:37:35.320] or does it only apply to people
+- [01:37:36.660] applying for the first time from abroad?
+- [01:37:39.350] The President: Renewals, first times,
+- [01:37:41.860] the company needs to decide, do they want --
+- [01:37:45.490] is the person valuable enough
+- [01:37:48.240] to have $100,000 a year payment to the government,
+- [01:37:52.210] or they should head home
+- [01:37:54.090] and they should go hire an American.
+- [01:37:56.270] The whole idea, it's annual, and it's for total,
+- [01:37:59.500] it can be a total of six years.
+- [01:38:01.370] So $100,000 a year, so either the person is very valuable
+- [01:38:05.750] to the company and America or they're going to depart
+- [01:38:10.320] and the company's going to hire an American.
+- [01:38:12.330] And that's the point of immigration.
+- [01:38:14.870] Hire Americans and make sure the people coming in
+- [01:38:18.380] are the top, top people.
+- [01:38:20.290] Stop the nonsense of letting people
+- [01:38:22.290] just come into this country on these visas
+- [01:38:24.860] that were given away for free. President is crystal clear.
+- [01:38:29.230] Valuable people only for America.
+- [01:38:32.180] Stop the nuts.
+- [01:38:33.540] The President: And remember, the country --
+- [01:38:37.520] the country would rather not have to pay $100,000.
+- [01:38:41.440] But they'd rather -- how do you do that?
+- [01:38:43.740] You hire Americans.
+- [01:38:45.010] So there's an incentive to hire Americans,
+- [01:38:47.390] but there may be instances where it's better off
+- [01:38:49.550] doing it through expertise or whatever it may be.
+- [01:38:52.550] But they're both unbelievable, whether it's a gold card
+- [01:38:56.810] or anything else that we talked about today.
+- [01:38:58.950] And that includes talking about freedom of speech,
+- [01:39:02.300] because our country has been decimated by bad people,
+- [01:39:06.790] very bad people.
+- [01:39:08.050] People that love crime, they love crime.
+- [01:39:11.150] Explain it to me.
+- [01:39:12.960] They don't want to have our military go in and save lives.
+- [01:39:17.340] But when you go and ask the people,
+- [01:39:19.310] do you mind having the National Guard come in
+- [01:39:21.350] if it meant safety?
+- [01:39:22.990] They look at the question, they're like, what's wrong?
+- [01:39:25.250] What kind of a stupid question is that?
+- [01:39:26.990] Of course they do.
+- [01:39:28.210] We want to, we're going to have a safe country again.
+- [01:39:30.810] We're not going to have people shot.
+- [01:39:32.520] 11 people shot. Think of it, in Chicago,
+- [01:39:36.460] over a period of six or seven weeks,
+- [01:39:38.870] 55 people were murdered.
+- [01:39:41.550] And then you have a governor saying how wonderful it is.
+- [01:39:44.190] It's not wonderful. It's very unsafe.
+- [01:39:46.560] There's not a place in the world.
+- [01:39:47.940] You go outside, you go to Afghanistan,
+- [01:39:50.000] you to different places all over the world that you hear about.
+- [01:39:54.160] It's 20 percent of what's happening
+- [01:39:55.990] in places like Chicago. And you think of them as unsafe.
+- [01:40:00.300] Mexico City, Mexico City is a tough place, dangerous place.
+- [01:40:05.380] It's the crime rate is lower. Think of it.
+- [01:40:09.440] What's happening to our country?
+- [01:40:11.290] We're not going to let it happen.
+- [01:40:12.700] And I think I got elected largely for that reason.
+- [01:40:15.930] So we're going to have a safe country again.
+- [01:40:18.330] We're going have a great country again
+- [01:40:20.110] We're doing unbelievably.
+- [01:40:21.430] We have the highest stock market in history.
+- [01:40:23.380] We're the most investment we've ever had ever
+- [01:40:26.310] as a country coming in and
+- [01:40:29.820] We're very simple, you know, they said how'd you get elected?
+- [01:40:32.350] I got elected because I'm going to make America great again
+- [01:40:35.450] That's what we're doing. We'll making America great again.
+- [01:40:37.440] Thank you very much everybody

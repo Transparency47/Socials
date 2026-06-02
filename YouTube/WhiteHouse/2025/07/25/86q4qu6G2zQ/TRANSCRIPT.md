@@ -1,0 +1,641 @@
+<!-- source: https://www.youtube.com/watch?v=86q4qu6G2zQ -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 86q4qu6G2zQ -->
+<!-- date_published: 2025-07-25T16:43:58+00:00 -->
+<!-- date_accessed: 2026-06-02T01:19:50.491413+00:00 -->
+
+# Transcript: President Trump Gaggles with Press Before Departing the White House, July 25, 2025
+
+- [00:00.780] The Press: Mr. President. Good morning, [inaudible]
+- [00:04.600] how are you?
+- [00:05.860] Can we ask you about the long season of the U.S. Navy file?
+- [00:09.720] The President: The young people, they just had too much winning.
+- [00:12.650] Too much winning, sure, they know it.
+- [00:15.090] And it is a lot of winning.
+- [00:16.920] We had the best six months ever. We're now heading to Scotland.
+- [00:20.630] I'm meeting with the Prime Minister of UK.
+- [00:24.310] Some of you are going, I guess, and a lot of you aren't.
+- [00:26.900] Are you going? Huh? Well, you gotta get moving.
+- [00:29.790] The Press: I know [inaudible]
+- [00:31.020] The President: That's a good one.
+- [00:32.240] That's going to be a good one.
+- [00:33.980] So we have great numbers we just announced.
+- [00:36.590] I don't have to go over it because you've seen them.
+- [00:38.360] But we have a great economic numbers.
+- [00:40.660] The deal with Japan is amazing. They've given us $550 billion.
+- [00:45.500] And we have totally open access into Japan.
+- [00:50.930] Those numbers are great.
+- [00:52.610] I mean, the kids actually just said very cute, actually.
+- [00:56.430] I walked up, they said, sir, there's too much winning.
+- [00:58.930] They picked up on a little routine, you know. Go ahead.
+- [01:01.110] The Press: The President.
+- [01:02.340] Can I ask you about the DOJ lawsuit against
+- [01:03.650] [inaudible]
+- [01:04.850] yesterday against New York City Mayor Adams, in the lawsuit,
+- [01:10.040] they named a NYPD officer to the lawsuit who was shot.
+- [01:13.260] Your thoughts on that?
+- [01:14.590] The President: Yeah, that's DOJ going against New York,
+- [01:17.490] but we're going against a lot of other places, too.
+- [01:19.670] We want to bring safety to our cities,
+- [01:22.020] but that's a pretty —
+- [01:23.980] that's going to be a pretty routine
+- [01:25.300] filing with other cities, too, as you know.
+- [01:27.990] We've started numerous lawsuits with other cities.
+- [01:31.330] We want to bring safety. We got to get the criminals out,
+- [01:34.620] and we're doing it in record numbers.
+- [01:37.060] The Press: What are you hoping for –
+- [01:39.630] [inaudible] Gaza in negotiations?
+- [01:41.460] The President: Yeah, Gaza — they pulled out of Gaza.
+- [01:44.720] They pulled out in terms of negotiating.
+- [01:47.350] It was too bad.
+- [01:48.590] Hamas didn't really want to make a deal.
+- [01:52.710] I think they want to die, and it's very, very bad.
+- [01:56.530] And it got — it got to be to a point
+- [01:58.590] where you're going to have to finish the job.
+- [02:01.390] They really — they asked for things.
+- [02:03.830] Don't forget, we got a lot of hostages out.
+- [02:06.810] So now we're down to the final hostages.
+- [02:09.380] And they know what happens after you get the final hostages.
+- [02:12.920] And basically, because of that,
+- [02:14.900] they really didn't want to make a deal.
+- [02:16.520] I saw that. So they pulled out,
+- [02:18.330] and they're going to have to fight,
+- [02:20.440] and they are going to clean it up.
+- [02:21.710] You're going have to get rid of it.
+- [02:23.440] The Press: [inaudible].
+- [02:28.070] What are you hoping Todd Blanche
+- [02:29.480] gets out of his meetings with Ghislaine Maxwell?
+- [02:31.390] The President: Well, I don't know about the meeting.
+- [02:32.700] I know it's taking place. And he's a fantastic man.
+- [02:37.170] He's a great attorney. And people should really focus
+- [02:40.890] on how well the country is doing,
+- [02:42.520] or they should focus on the fact that
+- [02:45.260] Barack Hussein Obama led a coup, or they should focus on the fact
+- [02:49.660] that Larry Summers from Harvard, that Bill Clinton.
+- [02:54.770] Who you know very well, and lots of other friends,
+- [02:57.680] really close friends of Jeffrey Summers, should be spoken about.
+- [03:02.020] Because, you know, Jeffrey Epstein should be spoken about,
+- [03:06.510] and they should speak about them.
+- [03:07.800] Because they don't talk about them, they talk about me.
+- [03:10.690] I have nothing to do with the guy.
+- [03:12.300] The Press: Are you considering [inaudible]
+- [03:13.610] Ghislaine Maxwell? Are you considering
+- [03:15.040] – The President: Easy, easy.
+- [03:16.250] The Press: Will you do any business that deals with the UK?
+- [03:18.910] The President: Yeah, I'm going to meet
+- [03:20.170] with the Prime Minister right now.
+- [03:21.790] We're going to be over there in about six hours.
+- [03:24.620] We're meeting with the Prime Minister tonight.
+- [03:26.510] We're gonna be talking about the trade deal that we made
+- [03:29.540] and maybe even approve it.
+- [03:31.600] The Press: [inaudible]
+- [03:35.180] Are you considering clemency for Ghislaine Maxwell, sir?
+- [03:38.480] – [inaudible]
+- [03:40.270] sleeping right outside the gates the White House.
+- [03:42.690] Are you concerned about that?
+- [03:43.990] The President: I think it's terrible,
+- [03:45.210] and we'll have them removed immediately.
+- [03:46.840] We do remove it.
+- [03:48.560] We've got to get the mayor to run this city properly.
+- [03:51.280] This city has to be run.
+- [03:52.480] You know, I have the right to take it over,
+- [03:54.800] and I think is terrible.
+- [03:56.500] Where are they? Where did you see them?
+- [03:58.130] The Press: It's right up, right outside
+- [03:59.530] of the Hyundai/Honda Pennsylvania Avenue.
+- [04:01.910] The President: Near the Treasury.
+- [04:03.150] The Press: Right across
+- [04:04.410] [inaudible] – Mr. President, have you heard
+- [04:05.700] about [inaudible]
+- [04:06.960] interview with Ghislaine Maxwell?
+- [04:09.100] – Are you still disappointed in President Putin sir?
+- [04:11.140] – [inaudible] or clemency for Ghislaine Maxwell?
+- [04:12.770] The President: Well, I don't want to talk about that.
+- [04:14.510] What I do want to say is that Todd is a great attorney.
+- [04:17.710] But you ought to be speaking about Larry Summers.
+- [04:20.030] You ought to speaking about some of his friends
+- [04:23.410] that are hedge-fund guys. They're all over the place.
+- [04:26.650] You ought be speaking about Bill Clinton,
+- [04:28.340] who went to the island 28 times. I never went to the island.
+- [04:31.950] The Press: Do you maintain you did not write a letter
+- [04:33.900] for Jerry Epstein birthday?
+- [04:35.340] The President: I don't even know what they're talking about.
+- [04:37.330] Now somebody could have written a letter and used my name
+- [04:40.140] But that's happened a lot. All you have to do
+- [04:42.240] is take a look at the dossier, the fake dossier.
+- [04:45.150] Everything's fake with that administration.
+- [04:47.580] Everything's faked with the Democrats.
+- [04:49.810] Take a look what they just found about the dossier.
+- [04:53.340] Everything is fake. They're a bunch of sick people.
+- [04:56.780] Where did you see the people laying outside?
+- [04:59.030] The Press: Right across [inaudible].
+- [05:01.980] The President: We'll take care of it.
+- [05:04.020] The Press: [inaudible]
+- [05:06.030] Are you hoping to meet with President Putin?
+- [05:08.180] [inaudible]
+- [05:10.340] – what are the alternative methods
+- [05:11.710] to bring hostages home from Gaza?
+- [05:13.010] The President: Well, we got a lot of them out,
+- [05:14.400] and it's always — I've always said those last 10 or 20
+- [05:18.670] are going to be the toughest because Hamas knows what happens
+- [05:22.880] when they don't have any bargaining chips.
+- [05:25.860] And they really broke a deal. They broke a deal.
+- [05:29.850] And you're going to have to do what you have to right now.
+- [05:32.170] It's a terrible thing. And I always do that.
+- [05:34.760] I said, when you get down to the last one,
+- [05:37.010] they're not going to be able to make a deal.
+- [05:38.690] The Press: Would you consider a pardon or a commutation
+- [05:40.610] for dealing with Maxwell
+- [05:42.100] [inaudible]?
+- [05:43.660] The President: It's something I haven't thought about.
+- [05:45.960] The Press: [inaudible] recommended.
+- [05:47.320] The President: I'm allowed to do it,
+- [05:48.530] but it's something I have not thought about it.
+- [05:50.540] The Press: So you wouldn't rule it out, sir.
+- [05:52.140] [inaudible]. Why has the dollar?
+- [05:55.400] Why has the dollar fallen so much
+- [05:57.360] and are you concerned about that?
+- [06:00.690] The President: Well, you know,
+- [06:01.950] I'm the person that likes a strong dollar.
+- [06:05.010] But a weak dollar makes you hold a lot more money.
+- [06:06.760] Hate to tell you.
+- [06:07.980] I don't know if you study it, but I study it.
+- [06:09.440] The Press: [inaudible]
+- [06:10.640] The President: And if you look at the yen –
+- [06:11.840] The Press: [inaudible] I worked in Japan
+- [06:13.040] [inaudible] so I know.
+- [06:14.410] The President: You understand.
+- [06:15.610] The Press: Absolutely. The President: Oh, you did go?
+- [06:16.860] The Press: I went to [inaudible].
+- [06:18.120] The President: Because you’re a smarter guy
+- [06:19.350] than I even thought. Then I know you are smart.
+- [06:22.610] So, when we have a strong dollar,
+- [06:25.950] one thing happens, it's down
+- [06:27.810] [inaudible]. But you don't do any tourism.
+- [06:30.000] You can't sell tractors, you can't sell trucks,
+- [06:33.400] you can't sell anything.
+- [06:35.060] It is good for inflation. That's about it.
+- [06:37.290] And we have no inflation. We wiped out inflation.
+- [06:41.470] But it's an interesting question.
+- [06:43.350] So I will never say I like a low currency.
+- [06:46.240] But you remember the battles I had with the yuan,
+- [06:49.370] with China and with Japan.
+- [06:51.710] Japan being the yen. They always wanted a weak currency.
+- [06:55.100] They're trying to get a weak currency now.
+- [06:57.680] Now, it doesn't sound good, but you make a hell
+- [07:00.900] of a lot more money with a weaker dollar.
+- [07:02.630] Not a weak dollar,
+- [07:03.830] but a weaker dollar than you do with a strong dollar.
+- [07:06.480] And the first people that are going to notice
+- [07:08.490] it are the manufacturers of [inaudible].
+- [07:11.950] Like, look at Caterpillar, how well they're doing now.
+- [07:14.530] When you have a strong dollar, you can't sell anything.
+- [07:17.470] It's only good for inflation.
+- [07:19.000] And it's good psychologically. It makes you feel good.
+- [07:22.080] But, with that being said, I love strong dollars.
+- [07:25.300] But they make you money with a currency.
+- [07:27.650] And I had so many different fights with President Xi.
+- [07:32.080] I mean, between Japan and China,
+- [07:34.720] all they want to do is have a weak currency.
+- [07:36.630] They're always fighting for weak currency,
+- [07:38.820] and that's how they really dominated over the years.
+- [07:41.670] So, when I see it down there, I don't lose sleep over it,
+- [07:44.540] let's put it that way.
+- [07:45.840] In fact, sometimes I go to sleep very happy.
+- [07:48.570] You understand? You agree with me?
+- [07:51.700] The Press: I agree with a lot of what you said at the beginning.
+- [07:54.670] Do you think it makes it any easier
+- [07:57.070] to impose your tariffs with that lower dollar?
+- [08:00.400] Because the [inaudible] –
+- [08:01.600] The President: I think it makes it
+- [08:02.830] easier even for tariffs, yeah.
+- [08:04.600] And it makes the tariffs worth much more.
+- [08:07.740] And it's easier to pay off debts.
+- [08:10.690] And it is easier to get a loan for those things, too.
+- [08:12.830] There are a lot of good things.
+- [08:14.660] It's hard to explain to people the headline.
+- [08:16.580] We all come once a week now. It's not a week.
+- [08:19.760] Now, we take a look at the history of China
+- [08:23.370] over the last 20 years.
+- [08:25.410] All they do is fight for weak currency.
+- [08:28.310] Look at Japan, when they were really doing well.
+- [08:30.530] They had a very weak currency.
+- [08:32.850] So, to me, I just say thank you very much. It is good.
+- [08:36.640] The Press: Mr. President.
+- [08:37.900] What is your comment on the [inaudible].
+- [08:39.120] – Follow up on the Gaza situation.
+- [08:41.280] The President: Yeah. Well, the Gaza situation.
+- [08:44.370] I said this was going to happen when you get down
+- [08:46.340] to your last 10 or 20. We got a lot of hostages out.
+- [08:49.690] We took them out in numbers that nobody believes, a lot of them.
+- [08:53.490] And I said, when you go down to 10 or 20,
+- [08:56.730] I don't think Hamas is going to make a deal,
+- [08:58.370] because that means they have no protection.
+- [09:00.660] And basically, that's what happened.
+- [09:02.660] Hamas didn't want to make the deal.
+- [09:07.610] The Press: [inaudible].
+- [09:08.840] The President: I think what's going to happen
+- [09:10.180] is they're going to be hunted down.
+- [09:12.930] The Press: [inaudible] Are you closer today
+- [09:17.830] to [inaudible]?
+- [09:19.200] The President: We're looking at that whole situation.
+- [09:20.550] This could be that we'll have to put secondary
+- [09:22.020] [inaudible].
+- [09:23.220] The Press: Sooner than 50 days? The President: Maybe, yeah.
+- [09:24.550] The Press: Do you think it counterproductive
+- [09:25.900] [inaudible].
+- [09:27.100] The President: Who are you with? Who you with?
+- [09:30.290] The Press: Press News.
+- [09:31.550] The President: Oh good.
+- [09:32.770] The Press: Counterproductive [inaudible] of [inaudible]
+- [09:34.480] that they would recognize the Palestinian State.
+- [09:37.670] Macron said that yesterday.
+- [09:39.570] The President: Look, he's a different kind of a guy.
+- [09:43.370] He's okay. He's a team player, pretty much.
+- [09:46.450] But here's the good news. What he says doesn't matter.
+- [09:48.660] [laughs].
+- [09:49.970] The Press: [inaudible]
+- [09:51.180] The President: It’s not going to change anything.
+- [09:54.020] The Press: [inaudible].
+- [09:55.410] The President: Well they made a statement, France, Macron.
+- [09:59.630] His statement doesn't carry any weight.
+- [10:01.710] He's very good guy, I like him,
+- [10:03.170] but that statement doesn't carry weight.
+- [10:05.350] The Press: How goes the trade with the EU?
+- [10:08.990] The President: I would say that we have a 50/50 chance,
+- [10:13.650] maybe less than that,
+- [10:15.220] but a 50/50 chance of making a deal with the EU.
+- [10:18.770] And it'll be a deal where they have to buy down their tariffs
+- [10:22.140] because they're right now at 30%.
+- [10:24.590] And they'll have to buy them down, maybe,
+- [10:26.510] or they could leave them the way they are.
+- [10:28.310] But they want to make a deal very badly.
+- [10:30.710] I would have said we have 25% chance with Japan.
+- [10:34.430] And they kept coming back, and we made a deal.
+- [10:36.480] And the deal is – don't forget,
+- [10:38.290] Japan is putting up $550 billion.
+- [10:39.750] The Press: Yes sir.
+- [10:41.070] The President: It's a lot of money.
+- [10:42.940] And also paying tariffs.
+- [10:45.600] The biggest part of the Japan deal,
+- [10:47.210] and maybe we get this with the EU, maybe we don't,
+- [10:49.900] is that we have the right to go in and trade.
+- [10:51.710] We have the rights.
+- [10:52.930] They've totally opened Japan to the — just to the U.S.
+- [10:56.610] That's, to me, the biggest part of the deal.
+- [10:58.220] The Press: [inaudible].
+- [10:59.440] You said repeatedly, you would like to see further
+- [11:03.440] nuclear arms reductions between the United States and Russia.
+- [11:06.470] The President: I would like to see that.
+- [11:08.220] The Press: But the new cut really is expiring
+- [11:10.730] in about six months,
+- [11:12.040] and it cannot be legally extended.
+- [11:13.720] The President: That's a problem.
+- [11:14.990] That's the problem for the world.
+- [11:16.560] The Press: [inaudible].
+- [11:17.800] The President: It's a problem for the world.
+- [11:19.270] You know, we have restrictions
+- [11:21.170] and they have restrictions, as you know, on nuclear.
+- [11:25.680] That's not an agreement you want expiring.
+- [11:28.870] We're starting to work on that.
+- [11:30.960] But that is a big problem for world.
+- [11:33.750] When you take off nuclear restrictions,
+- [11:35.490] that's a big problem.
+- [11:36.880] The Press: [inaudible]
+- [11:38.130] Jerome Powell to lower interest rates yesterday?
+- [11:44.020] The President: I think that Jerome Powell.
+- [11:46.680] I think we had a very good meeting.
+- [11:48.590] Forgetting about the building. That’s out of control.
+- [11:51.870] But I think we had a really good meeting on this one.
+- [11:54.970] And he said to me [inaudible].
+- [11:57.650] But he said to me, very strongly,
+- [12:02.800] the country is doing well. He said, congratulations,
+- [12:06.970] the country is doing really well.
+- [12:09.750] And I got that to mean that I think he's going to start
+- [12:12.470] recommending it all over again.
+- [12:15.260] The Press: [inaudible].
+- [12:16.460] The President: The country really is doing well.
+- [12:18.410] The Press: Mr. President. How do you think
+- [12:19.780] – speaking of President Netanyahu –
+- [12:21.610] Thank you Mr. President.
+- [12:24.000] How do you think that [inaudible]
+- [12:26.340] ruling that benefited you on presidential immunity
+- [12:30.440] would apply to former President Barack Obama.
+- [12:33.360] And what your [inaudible] end up doing?
+- [12:36.440] The President: It probably helps him a lot.
+- [12:37.740] It probably helped him a lot, the immunity ruling.
+- [12:41.490] But it doesn't help the people around him at all.
+- [12:45.010] But it probably helps them a lot.
+- [12:47.090] And he's done criminal acts, no question about it.
+- [12:50.990] But he has immunity, and it probably helps him a lot.
+- [12:55.870] The Press: [inaudible].
+- [12:57.070] The President: He owes me big. Obama owes me big.
+- [13:00.810] The Press: What are the details of the UK Trade Agreement
+- [13:02.680] that you're hoping to find soon with the Prime Minister?
+- [13:04.630] The President: This week,
+- [13:05.830] we want to talk about certain aspects
+- [13:07.520] which is going to be good for both countries.
+- [13:09.430] More fine-tuning.
+- [13:10.680] And also, we're going to do a little celebrating together,
+- [13:13.770] because, you know, we got along very well.
+- [13:16.250] UK has been trying to make a deal with us for like 12 years
+- [13:19.880] and haven't been able to do it.
+- [13:21.080] We got it done. He's doing a very good job.
+- [13:23.890] Good Prime Minister. Good guy.
+- [13:26.000] We really get along very well. So we're gonna see.
+- [13:28.280] We're gonna meet at Turnberry, and we're to meet at Aberdeen.
+- [13:31.500] So, two beautiful places.
+- [13:33.060] The Press: Is there wiggle room in steel and aluminum
+- [13:34.890] if they were to budge on digital services tasks?
+- [13:37.050] The President: Say again.
+- [13:38.290] The Press: Is there any wiggle room on steel and aluminum
+- [13:40.380] in exchange for any budge on digital service tasks?
+- [13:43.090] The President: Not a lot,
+- [13:44.290] because if I do it for one, I have to do it for all.
+- [13:46.600] So, with that, steal and aluminum, not a lot.
+- [13:48.240] The Press: Mr. President.
+- [13:49.510] Can you speak to Netanyahu about aid drops?
+- [13:50.730] The President: [inaudible].
+- [13:51.030] The Press: Can you speak to Netanyahu
+- [13:52.260] about allowing aid drops to Gaza?
+- [13:58.760] The President: I think we are going to get there no matter
+- [14:01.400] [inaudible]. But it was [inaudible]
+- [14:02.990] disappointing. Although I told you
+- [14:05.370] [inaudible]. You. I told you.
+- [14:06.820] When you get down to those last 20 hostages.
+- [14:09.500] If you get down to that last 10 or 20,
+- [14:11.810] it's going to be very hard for Hamas to make a deal
+- [14:15.050] because they lose their deal. They lose their cover.
+- [14:17.870] We got a lot of them out. A lot of them.
+- [14:20.070] We took a lot of bodies out, too.
+- [14:21.810] You know, so many of the parents said,
+- [14:23.330] “Please get my son's body back”.
+- [14:25.830] And we're able to do that. We've got a lot people alive.
+- [14:28.350] Alive and people that are not alive.
+- [14:29.960] But it was very important to the parents to get their son back,
+- [14:33.550] even though they knew their son was dead.
+- [14:37.380] The Press: [inaudible].
+- [14:40.120] The President: I think they will do that.
+- [14:42.820] Turnberry is great as the number one course in the world,
+- [14:45.470] but I think they'll do that.
+- [14:47.240] The Press: [inaudible]
+- [14:48.540] The President: No, I am not going to –
+- [14:49.820] it’s not about that.
+- [14:51.850] I'm going to see it for the first time in years.
+- [14:53.810] [inaudible] was there the last time
+- [14:55.020] we [inaudible]. That’s pretty good, right?
+- [14:59.370] But it’s the best course in the world, I think.
+- [15:03.500] And it’s one of the greatest courses in the world.
+- [15:06.930] We're going to see it.
+- [15:08.480] We're gonna have a brief dinner at
+- [15:10.640] [inaudible] with the Prime Minister.
+- [15:12.630] Then we're going to go to the oil capital of Europe,
+- [15:14.780] which is Aberdeen, and we're gonna have lunch in there.
+- [15:17.730] We're gonna a good time.
+- [15:18.990] I think the Prime Minster and I get along very well.
+- [15:21.820] The Press: [inaudible]
+- [15:23.030] The President: I am.
+- [15:24.260] The Press: What’s that about?
+- [15:28.600] The President: Well, we have a lot of things in stock,
+- [15:30.340] but I have a lot of luck.
+- [15:31.560] I'm [inaudible]. And he's a good man.
+- [15:34.400] [inaudible]. I look forward to meeting with him.
+- [15:37.090] That’s all set up, right?
+- [15:38.560] The Press: [inaudible].
+- [15:39.760] Tariff day is exactly one week from today.
+- [15:45.550] August the 1st. One week from [inaudible]
+- [15:48.540] now to next Friday. [inaudible] your deadline.
+- [15:52.790] The President: When you say tariff, not Paris?
+- [15:56.130] The Press: Tariffs.
+- [15:57.340] The President: I thought you said Paris day.
+- [15:58.610] The Press: No tariffs day.
+- [16:03.260] The President: Well, most of the deals are finished
+- [16:05.540] right now. They're finished
+- [16:07.270] because we're just going to charge a certain amount.
+- [16:09.820] A lower tariff than I could get. I don't want to hurt countries.
+- [16:13.170] But we're going to send a letter out sometime during the week,
+- [16:17.330] and it's basically going to say, you're going pay 10 percent,
+- [16:19.400] you're going to pay 15 percent, you're gonna pay maybe less.
+- [16:22.180] I don't know. But Australia was great.
+- [16:24.780] They opened up [inaudible]
+- [16:26.050] yesterday for the first time ever.
+- [16:28.200] And they did it. We didn't know about it.
+- [16:29.760] We asked them to do it, and all of a sudden,
+- [16:31.410] we've got a word that
+- [16:33.750] – So, obviously, they're looking to do something.
+- [16:37.080] But Australia.
+- [16:38.450] So, August 1st is going to come,
+- [16:42.090] and we will have most of our deals finished, if not all.
+- [16:45.600] We haven't really had a lot of luck with Canada.
+- [16:50.630] I think Canada could be one where there's just pay tariffs.
+- [16:52.690] It's not really a negotiation.
+- [16:55.910] We're working very diligently with Europe.
+- [16:59.120] The EU, which covers a lot of countries,
+- [17:02.400] and that's the big one right now.
+- [17:05.240] We have the confines of the deal with China.
+- [17:07.970] The Press: [inaudible]
+- [17:10.080] The President: We haven't really,
+- [17:12.110] we don't have a deal with Canada,
+- [17:13.920] we haven't been focused on it.
+- [17:16.220] The Press: [inaudible]
+- [17:18.480] letters. Do you believe that will bring some certainty
+- [17:21.640] in the financial markets [inaudible]?
+- [17:23.360] The President: Okay. No, no,
+- [17:25.590] when those letters go out, a page and a half,
+- [17:29.230] that means they have a deal, it's done, they pay that tariff.
+- [17:32.590] And that is a contract, essentially.
+- [17:34.720] And they can come into the country,
+- [17:36.330] they're going to pay a tariff, I'm going to keep it minimal,
+- [17:38.960] I'm not looking to hurt countries.
+- [17:42.580] I could do that, too, but I'm looking to do that.
+- [17:45.210] So, when that letter goes out, that's a deal.
+- [17:47.450] And we'll be sending maybe close to 200 of those letters.
+- [17:50.540] Don't forget, we have a lot of countries.
+- [17:52.650] So, we're going to be sending out almost 200 of those letters.
+- [17:55.630] But once those letters go out, there we have a deal.
+- [17:59.160] Now, we sent some to — we sent one to Japan,
+- [18:02.610] we sent ones to the EU,
+- [18:04.580] and they came back and negotiated a deal —
+- [18:07.220] I think the EU has got a pretty good chance of making a deal.
+- [18:10.510] The Press: With all of that revenue coming in Mr. President
+- [18:12.250] [inaudible].
+- [18:13.150] The President: It’s a lot of money
+- [18:14.370] The Press: A lot of money.
+- [18:15.650] The President: Our country was a dead country.
+- [18:19.810] It was a dead country one year ago.
+- [18:22.040] Now we have the hottest country anywhere in the world.
+- [18:26.270] The Press: And don't you feel it, Mr. President
+- [18:27.730] [inaudible]
+- [18:28.930] all of that revenue coming in. Tens of billions of dollars.
+- [18:32.400] Do you think there's the possibility of a rebate
+- [18:36.050] to the American public in terms of all of the money?
+- [18:38.300] The President: We are thinking about that actually.
+- [18:40.460] We have so much money coming in,
+- [18:42.680] we're thinking about a little rebate.
+- [18:45.100] But the big thing we want to do is pay down debt.
+- [18:47.880] But we're thinking about a rebate.
+- [18:49.620] The Press: [inaudible]
+- [18:51.720] The President: You just made a lot of news.
+- [18:53.880] We're thinking about a rebate because we have so much money
+- [18:56.470] coming in from tariffs that a little rebate
+- [19:01.160] for people of a certain income level might be very nice.
+- [19:04.460] The Press: [inaudible]
+- [19:06.360] Are you going to have a meeting with Putin?
+- [19:11.070] [inaudible].
+- [19:12.710] The President: Well, you know, they're having —
+- [19:14.220] they're being blocked by Hamas.
+- [19:15.870] They're being block by a lot of people.
+- [19:17.990] People don't know this, and we didn't certainly
+- [19:20.110] get any acknowledgement or thank you,
+- [19:21.990] but we contributed $60 million to food and supplies
+- [19:27.000] and everything else. We hope the money gets there
+- [19:29.680] because, you know, that money gets taken, the food gets taken.
+- [19:33.220] We're going to do more. But we gave a lot money.
+- [19:36.800] We gave a majority of the money.
+- [19:39.190] And the sad part is that no other country,
+- [19:41.690] other than us gives anything.
+- [19:43.650] The Press: Have you spoken to Michael Longley
+- [19:45.130] about running for North Carolina?
+- [19:46.370] The President: I have, yeah.
+- [19:47.580] The Press: Will he run, do you think?
+- [19:48.800] The President: I think he will.
+- [19:50.050] The Press: [inaudible].
+- [19:52.060] The President: Are you from North Carolina?
+- [19:53.780] The Press: My father lives there.
+- [19:55.540] The President: He will be a good candidate.
+- [19:57.200] The Press: So, what can be done to bring more teachers,
+- [19:59.680] more educators, into the classroom
+- [20:01.570] to alleviate the teacher shortage across the country?
+- [20:03.630] The President: We're doing that, and we're doing it strongly.
+- [20:05.450] What we're do is moving education back to the states.
+- [20:08.730] The states will run education. When they do it,
+- [20:11.550] you're going to have the best education in the world.
+- [20:13.860] We'll have 35 to 40 states where it will be
+- [20:16.940] as good as Sweden, Norway, Denmark,
+- [20:19.730] you know, the top five or six countries.
+- [20:21.450] The Press: [inaudible]
+- [20:22.730] the top talent, the top talent and top teachers
+- [20:24.520] to give them the plans.
+- [20:25.810] The President: We're going get them. We already have them.
+- [20:27.540] When we bring, when we go back to the states with education,
+- [20:31.040] you going to see a big difference.
+- [20:32.680] The Press: Would you consider clemency for Ghislaine Maxwell?
+- [20:34.950] Is that on the table?
+- [20:36.160] The President: What is that?
+- [20:37.370] The Press: Would you consider clemency for Ghislaine Maxwell?
+- [20:39.280] Is that on the table.
+- [20:40.510] The President: I can't talk about that now because,
+- [20:42.170] you know, it's a very sensitive interview going on.
+- [20:47.180] Todd Blanche is a great gentleman.
+- [20:48.600] He's a great man –
+- [20:49.820] The Press: Do you trust what she is telling you?
+- [20:51.080] The President: He's a great lawyer,
+- [20:52.310] he has got a great heart, but he's over there now.
+- [20:54.560] I don't know exactly what's happening,
+- [20:56.520] but I certainly can't talk about pardons now.
+- [20:59.330] The Press: Can you trust what she's telling him?
+- [21:00.930] She's a convicted trafficker
+- [21:02.130] who's eager to get out of prison.
+- [21:03.390] The President: Well, you know, he's a professional lawyer.
+- [21:05.050] I think he's been through things like this before.
+- [21:08.620] But, you know, you should focus on Clinton.
+- [21:11.260] You should focus on the president of Harvard,
+- [21:14.320] the former president of Harvard.
+- [21:16.190] You should focus on some of the hedge fund guys.
+- [21:18.690] I'll give you a list.
+- [21:20.020] These guys lived with Jeffrey Epstein.
+- [21:22.330] I sure as hell didn't. Thank you very much.
+- [21:24.050] The Press: [inaudible].
+- [21:25.250] The President: All I want him to do is lower interest rates,
+- [21:35.770] you know?
+- [21:37.960] We have the hottest country in the world.
+- [21:39.670] We had a dead country one year ago.
+- [21:41.880] Now we have the hottest country in world.
+- [21:43.940] All I want him to do is lower interest rates
+- [21:46.670] because that will take care of the housing.
+- [21:48.190] The housing is a little bit slower than everything else.
+- [21:50.860] Everything we're 100 percent on.
+- [21:52.870] But the housing, because his rate is too high.
+- [21:55.280] If he lowers it, you're going to see a housing boom
+- [21:57.910] on top of everything.
+- [21:59.190] We've got the hottest country in this world. Thank you.
+- [22:02.130] The Press: [inaudible].
+- [22:05.670] Have you seen the new Southpark episode making fun of you?
+- [22:07.580] The President: The new what?
+- [22:08.780] The Press: Southpark episode making fun of you?
+- [22:11.030] The President: I haven’t. I never watched that show.
+- [22:13.930] I don’t know anything about Southpark.
+- [22:15.240] I never watched Southpark.
+- [22:17.630] The Press: Look at my shoe.
+- [22:32.510] [laughter]
+- [22:44.853] [inaudible]
+- [22:56.197] The President: [inaudible]
+- [23:09.090] He was very proud.
+- [23:18.410] You know, he told me, I wish I came out strong,
+- [23:20.750] because I didn't want to be too strong.
+- [23:26.930] [inaudible]
+- [23:28.570] he is clearly open to [inaudible].
+- [23:34.260] Anyway – he was a physical specimen.
+- [23:36.930] Because you could be a good showman
+- [23:38.640] but not a physical specimen.
+- [23:40.880] [inaudible]. You got to go into another line.
+- [23:42.790] But I watched him lift 350-pound men over his head
+- [23:46.840] and throw them out of the ring.
+- [23:49.210] No, he's was the real deal. He was MAGA all the way.
+- [23:53.240] He said, “I wish I got to”. He said “I've always loved you”.
+- [23:55.470] You know, we've always been friends.
+- [23:57.140] But he wasn't a political guy.
+- [23:59.510] And in the last three years, I'd say,
+- [24:01.870] he became really political. And he said,
+- [24:04.280] “I'm so angry at myself for not doing it earlier”.
+- [24:07.720] He was happy. But, you know, he took a beating.
+- [24:10.260] When you look at the life that they lived,
+- [24:13.480] he would wrestle sometimes 200 times a year.
+- [24:16.860] Think of that.
+- [24:18.120] I say, what do you wrestle every weekend?
+- [24:19.870] No, he said sometimes you wrestle every night,
+- [24:22.520] and it's hard to believe.
+- [24:24.870] But being a friend, I got to see his life a little bit,
+- [24:29.260] and his knees were in trouble, his back was in trouble.
+- [24:33.150] He was in such trouble, but he was great.
+- [24:35.530] He was a great man. He was an incredible showman,
+- [24:38.550] and he was really a great friend.
+- [24:40.120] And he was a good friend to MAGA.
+- [24:42.670] The Press: Mr. President, you signed an executive order
+- [24:44.610] to help clean up the streets of America yesterday.
+- [24:47.570] Help the homeless people.
+- [24:49.150] Can you talk about why this is a commonsense approach?
+- [24:52.060] Make everybody pay for it.
+- [24:53.280] The President: Well, it is.
+- [24:54.490] And right outside, we have some tents.
+- [24:56.060] I'm getting rid of them right now.
+- [24:57.590] You can't do that, especially in Washington, D.C.
+- [25:00.630] I talk to the mayor about it all the time.
+- [25:02.510] I said, you got to get rid of the tents.
+- [25:05.560] You can’t have it. When leaders come to see me
+- [25:08.110] to make a trade deal for billions and billions
+- [25:10.430] and even trillions of dollars, and they come in,
+- [25:12.980] and there's tents outside of the White House, we can't have that.
+- [25:16.840] It doesn't sound nice, but again.
+- [25:19.620] The Press: [inaudible] maybe we can do it.
+- [25:28.100] The President: It's going to happen,
+- [25:29.590] but it should have happened three months ago.
+- [25:33.000] It's gonna happen.
+- [25:34.260] The Press: [inaudible] Will Obama be –
+- [25:36.520] [inaudible] Harvard [inaudible].
+- [25:38.980] The President: Well Harvard wants to settle,
+- [25:41.270] but I think Columbia handled it better.
+- [25:43.860] Harvard wants to settle.
+- [25:45.680] But, you know, they have a very good judge.
+- [25:47.160] They have a judge who will almost absolutely rule
+- [25:50.230] in their favor, even though it's our case all the way.
+- [25:54.410] But they have a very good Obama-appointed judge.
+- [25:58.390] And so, they'll get a little kick out of that.
+- [26:00.390] But ultimately, we win that case.
+- [26:02.040] And the bottom line is,
+- [26:03.330] we're not going to give any more money to Harvard.
+- [26:05.470] We're not giving any more money.
+- [26:06.950] They were getting $5 billion and $6 billion, $7.2 billion.
+- [26:12.300] We want to spread the wealth to other schools.
+- [26:14.740] The Press: [inaudible]

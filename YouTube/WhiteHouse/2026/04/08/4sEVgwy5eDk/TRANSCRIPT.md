@@ -1,0 +1,805 @@
+<!-- source: https://www.youtube.com/watch?v=4sEVgwy5eDk -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 4sEVgwy5eDk -->
+<!-- date_published: 2026-04-08T17:57:28+00:00 -->
+<!-- date_accessed: 2026-06-02T02:35:23.400445+00:00 -->
+
+# Transcript: Press Secretary Karoline Leavitt Briefs Members of the Media, Apr. 8, 2026
+
+- [00:08.908] Karoline Leavitt: Good afternoon, everybody.
+- [00:10.977] Good to see all of you here today.
+- [00:13.680] Before I discuss the ceasefire with Iran, I
+- [00:16.616] have a quick update from the First Lady of the
+- [00:18.852] United States.
+- [00:20.053] Yesterday marked the very first conviction under the
+- [00:23.156] Take It Down Act.
+- [00:24.624] Landmark legislation, that First Lady, Melania Trump,
+- [00:27.527] played an instrumental role in getting past that
+- [00:30.897] protects victims from non-consensual, AI
+- [00:33.700] generated, sexually explicit images, cyber
+- [00:36.669] stalking, and threats of violence.
+- [00:38.938] This is a huge achievement for the First Lady, and I
+- [00:41.141] know the President is very proud of his wife's
+- [00:43.676] efforts in getting this critical legislation
+- [00:45.578] passed to protect America's youth.
+- [00:47.380] So we thank the First Lady for her efforts, and we
+- [00:49.983] hope that others will report on this historic
+- [00:52.752] conviction yesterday.
+- [00:54.821] With respect to the two-week ceasefire
+- [00:56.556] announced by President Trump last night, this is
+- [00:58.958] a victory for the United States of America that the
+- [01:01.861] President and our incredible military made
+- [01:04.831] happen.
+- [01:05.865] From the very beginning of Operation Epic Fury,
+- [01:09.035] President Trump stated this would be a four to
+- [01:11.504] six week military operation to dismantle the
+- [01:14.541] military threat posed by the radical Islamic
+- [01:18.178] Iranian regime.
+- [01:19.979] Thanks to the unbelievable capabilities of America's
+- [01:23.016] war fighters, the United States has achieved and
+- [01:25.718] exceeded those core military objectives in
+- [01:28.955] just 38 days.
+- [01:31.057] The US military destroyed Iran's defense industrial
+- [01:34.394] base, crushing the regime's ability to
+- [01:36.796] manufacture weapons that they and their proxies
+- [01:39.866] used to maim and kill Americans and terrorize
+- [01:42.902] the world.
+- [01:44.170] Iran's ability to build and stockpile ballistic
+- [01:46.773] missiles and long range drones has also been set
+- [01:49.342] back by years compared to where it was six weeks ago
+- [01:52.812] prior to the launch of Operation Epic Fury.
+- [01:56.382] We destroyed the vast majority of Iran's
+- [01:58.585] ballistic missiles, launcher vehicles, and
+- [02:00.887] long range attack drones through more than 450
+- [02:04.491] strikes on ballistic missiles and approximately
+- [02:07.293] 800 strikes on Iran's drone launching units and
+- [02:10.864] storage facilities.
+- [02:12.432] In total, more than 13,000 targets across Iran were
+- [02:16.870] struck.
+- [02:17.604] Again, this is in the matter of just 38 days.
+- [02:21.741] Meanwhile, the Iranian Navy was completely
+- [02:24.944] annihilated.
+- [02:26.179] The United States destroyed more than 150
+- [02:29.048] naval vessels in total, including 16 entire
+- [02:32.585] classes of Iranian warships.
+- [02:35.555] Despite once being the largest undersea force in
+- [02:38.424] the Middle East, Iran now has zero submarine
+- [02:42.128] vessels.
+- [02:43.363] 97% of Iran's once massive inventory of more than
+- [02:47.333] 5,000 naval mines has also been targeted and
+- [02:50.803] destroyed.
+- [02:51.971] Iran's Air Forces are functionally and
+- [02:53.907] operationally irrelevant at this point.
+- [02:56.376] After the United States maintained total air
+- [02:58.745] dominance over their country for weeks on end.
+- [03:01.714] To underscore the significance of this
+- [03:04.050] before Operation Epic Fury, the Iranian Air
+- [03:07.854] Force would fly between 30 to 100 flights per day.
+- [03:11.691] Today, that number is zero.
+- [03:14.394] Iran's ability to fund and support its terrorist
+- [03:16.896] proxies has been greatly reduced.
+- [03:18.765] At this point, Iran can no longer distribute weapons
+- [03:22.335] to its proxies in the region, and most
+- [03:25.104] importantly, Iran will not be able to acquire nuclear
+- [03:28.608] weapons.
+- [03:29.676] Prior to the start of this successful operation, Iran
+- [03:32.879] was aggressively expanding its short range ballistic
+- [03:35.682] missile arsenal.
+- [03:37.016] Through these weapons and its Navy, Iran was
+- [03:39.519] attempting to build a military buildup around
+- [03:42.088] their country that would pose an imminent and
+- [03:44.457] existential threat to the United States military
+- [03:46.826] assets in the Middle East, our allies in the region,
+- [03:49.762] and ultimately the free world.
+- [03:52.298] Iran was pursuing this dangerous and aggressive
+- [03:54.867] strategy for one reason to hold the entire world
+- [03:57.904] hostage to its terrorist ambitions.
+- [04:00.907] The Iranians aimed to use their expanded military
+- [04:03.443] capabilities as a shield around their country to
+- [04:06.312] continue achieving their ultimate goal internally,
+- [04:09.482] building nuclear bombs.
+- [04:11.150] But their murderous and evil plans have been blown
+- [04:13.620] up quite literally and figuratively, along with
+- [04:16.656] their military, their nuclear program, and most
+- [04:19.325] of their senior leadership, including the
+- [04:21.394] former supreme leader, Ayatollah Ali Khamenei.
+- [04:25.298] Their commanding control structures were also
+- [04:27.333] massively disrupted after being struck more than
+- [04:30.169] 2,000 times.
+- [04:31.904] Many of their remaining leaders are paralyzed in
+- [04:34.240] fear and no longer enjoy the freedom to move around
+- [04:37.243] their country freely and meet openly.
+- [04:40.079] Thanks to the unmatched excellence
+- [04:41.681] Karoline Leavitt: .. of our warriors at the
+- [04:44.183] direction of the commander-in-chief.
+- [04:45.518] The world has just witnessed a historically
+- [04:47.153] swift and successful military triumph.
+- [04:50.590] President Trump started Operation Epic Fury with
+- [04:52.892] strategic military objectives, and the United
+- [04:55.428] States has clearly achieved them.
+- [04:57.997] As we mark this progress, we also remember and honor
+- [05:01.234] the 13 American heroes who laid down their lives in
+- [05:04.370] this noble effort.
+- [05:05.772] I know President Trump and our grateful nation honors
+- [05:09.042] their ultimate sacrifice and we will never forget
+- [05:11.811] them.
+- [05:12.478] May God bless their families.
+- [05:14.280] The valiant efforts of all of our incredible service
+- [05:16.916] members created maximum leverage for the President
+- [05:20.186] of the United States, allowing he and his
+- [05:22.488] leadership team to engage in tough negotiations over
+- [05:26.325] the past couple of weeks that have now created an
+- [05:28.661] opening for a diplomatic solution and long-term
+- [05:31.764] peace in the Middle East.
+- [05:33.399] the President's maximum pressure and the leverage
+- [05:35.735] created by the success of Operation Epic Fury led to
+- [05:39.272] the Iranian regime asking for and ultimately
+- [05:41.808] agreeing to a ceasefire proposal with the United
+- [05:45.178] States.
+- [05:46.212] Iran could no longer tolerate being bombed or
+- [05:48.981] taking the gamble of what was to come following
+- [05:51.651] President Trump's 8:00 PM deadline last night.
+- [05:54.887] Iran has agreed to open the Strait of Hormuz, and
+- [05:57.523] as the President said, we have received a proposal
+- [06:00.326] from the Iranians that has been determined to be a
+- [06:02.462] workable basis on which to negotiate.
+- [06:05.565] I've seen a lot of inaccurate coverage today
+- [06:07.600] from the media about these negotiations and these
+- [06:09.969] plans already, so let me be clear and correct the
+- [06:12.939] record.
+- [06:13.973] The Iranians originally put forward a 10 point
+- [06:16.275] plan that was fundamentally unserious,
+- [06:19.011] unacceptable, and completely discarded.
+- [06:21.280] It was literally thrown in the garbage by President
+- [06:24.217] Trump and his negotiating team.
+- [06:26.552] Many outlets in this room have falsely reported on
+- [06:29.322] that plan as being acceptable to the United
+- [06:31.758] States, and that is false.
+- [06:33.893] With the President's deadline fast approaching
+- [06:35.928] and the United States military completely
+- [06:37.663] decimating Iran with each passing hour, the regime
+- [06:40.933] acknowledged reality to the negotiating team.
+- [06:43.669] They put forward a more reasonable and entirely
+- [06:46.072] different and condensed plan to the President and
+- [06:49.142] his team.
+- [06:50.276] President Trump and the team determined the new
+- [06:52.278] modified plan was a workable basis on which to
+- [06:54.914] negotiate and to align it with our own 15 point
+- [06:59.018] proposal.
+- [07:00.319] The President's red lines, namely the end of Iranian
+- [07:03.256] enrichment in Iran, have not changed.
+- [07:06.959] And the idea that President Trump would ever
+- [07:09.195] accept an Iranian wishlist as a deal is completely
+- [07:12.899] absurd.
+- [07:13.833] The President will only make a deal that serves in
+- [07:16.102] the best interests of the United States of America,
+- [07:18.805] and he and his negotiating team will focus on this
+- [07:21.140] effort over the next two weeks so long as the
+- [07:23.776] Strait of Hormuz remains open with no limitations
+- [07:27.079] or delays.
+- [07:28.447] These extraordinarily sensitive and complex
+- [07:30.850] negotiations will take place behind closed doors
+- [07:33.519] over the course of the next two weeks.
+- [07:35.655] I would strongly advise the media against running
+- [07:37.957] with narratives that have no basis in fact.
+- [07:40.860] What Iran says publicly or feeds to all of you in the
+- [07:43.396] press is much different than what they communicate
+- [07:46.065] to the United States, the President, and his team
+- [07:48.167] privately.
+- [07:49.235] Never underestimate President Trump's ability
+- [07:51.637] to successfully advance America's interests and
+- [07:54.473] broker peace.
+- [07:55.675] President Trump has a proven track record of
+- [07:57.944] achieving good deals on behalf of the United
+- [08:00.146] States and the American people, and he will only
+- [08:03.015] accept one that puts America first.
+- [08:05.785] With that, I will take your questions today.
+- [08:07.587] I'm sure you have a lot of them.
+- [08:08.988] In our new media seat, we have Shane Harris with the
+- [08:11.224] AMAC Newsline.
+- [08:12.258] Shane, thank you for being here.
+- [08:13.593] Why don't you kick us off?
+- [08:14.260] The Press: Yeah, thanks for having me, Karoline.
+- [08:15.595] Two questions for you.
+- [08:16.562] First, following the President's announcement
+- [08:18.731] of the ceasefire, if this is indeed the end of
+- [08:20.766] hostilities in Iran, what is the President's message
+- [08:23.436] to the American people about what was achieved
+- [08:25.805] for our country through Operation Epic Fury?
+- [08:27.874] Karoline Leavitt: Sure.
+- [08:28.808] I think I just laid out a significant portion of
+- [08:30.877] that in my opening remarks.
+- [08:32.411] Six weeks ago, the President looked the
+- [08:34.347] American people in the eye directly and he told them
+- [08:36.682] that he launched this operation to take out the
+- [08:39.185] imminent threat that was posed by Iran, and that
+- [08:42.054] threat has now been greatly destroyed.
+- [08:44.223] Their Navy, their missiles, their defense
+- [08:46.125] industrial base, and their desire, and their plan to
+- [08:49.729] build a nuclear bomb inside their country is no
+- [08:52.331] longer going to be allowed, can no longer
+- [08:53.966] happen thanks to the remarkable success of
+- [08:56.602] Operation Epic Fury over the course of the last 38
+- [08:59.205] days.
+- [08:59.872] That has been absolutely achieved, and now we're
+- [09:02.008] moving into the next phase of this, which is a
+- [09:03.876] negotiating period to put some fine points on this
+- [09:07.413] and to hopefully broker an agreement that can achieve
+- [09:09.782] long-term peace in the Middle East.
+- [09:11.150] The Press: Yeah.
+- [09:11.817] And then second, what is the President's message to
+- [09:13.819] American seniors who have a much higher voter
+- [09:16.255] participation rate and they're likely to be a key
+- [09:18.190] swing vote in the midterm elections?
+- [09:19.692] Karoline Leavitt: Well, the President loves our
+- [09:21.327] seniors across the country.
+- [09:23.329] And as you know, the President signed the One
+- [09:25.498] Big Beautiful Bill, the Working Families Tax Cuts
+- [09:27.566] last year, which greatly reduced taxes on Social
+- [09:31.337] Security for our seniors.
+- [09:32.738] In fact, thanks to the Working Families Tax Cuts,
+- [09:35.041] nearly 90% of seniors will no longer pay tax on their
+- [09:38.945] Social Security.
+- [09:39.745] That's a huge win for our seniors and also for our
+- [09:42.481] middle class and working families across the
+- [09:44.317] country with the no tax on tips provision and the no
+- [09:46.619] tax on overtime.
+- [09:47.820] Next week is tax week.
+- [09:49.789] You'll hear a lot from the President about how his
+- [09:51.624] policies have benefited the American people, and
+- [09:53.526] I'm proud to report that the President will be
+- [09:55.661] traveling next week to the great states of Nevada and
+- [09:58.030] Arizona to tout this historic accomplishment
+- [10:01.100] over the course of the next week.
+- [10:02.735] Thank you for being here, Shane.
+- [10:04.070] Gabe.
+- [10:04.737] The Press: Thank you, Karoline.
+- [10:05.404] Iranian state media is saying that Iran has now
+- [10:08.441] closed off the Strait of Hormuz today in response
+- [10:10.643] to Israeli attacks on Lebanon.
+- [10:12.478] What's the White House response to that?
+- [10:14.480] And just listed many military successes.
+- [10:17.616] I understand that, but strategically, how is the
+- [10:20.886] administration arguing that Iran does not have
+- [10:23.422] more economic leverage now than it did before the
+- [10:26.525] start of the war?
+- [10:27.893] Karoline Leavitt: Sure.
+- [10:29.028] Well, with respect to the first reporting out of
+- [10:31.664] Iranian state media, the President was made aware
+- [10:33.532] of those reports before I came to the podium.
+- [10:36.669] That is completely unacceptable.
+- [10:38.170] And again, this is a case of what they're saying
+- [10:40.172] publicly is different privately.
+- [10:41.540] We have seen an uptick of traffic in the Strait
+- [10:44.076] today.
+- [10:44.744] And I will reiterate the President's expectation
+- [10:47.380] and demand that the Strait of Hormuz is reopened
+- [10:50.883] immediately, quickly, and safely.
+- [10:53.686] That is his expectation.
+- [10:54.720] It has been relayed to him privately that that is
+- [10:57.390] what's taking place and these reports publicly are
+- [10:59.959] false.
+- [11:00.626] The Press: And Karoline, the President yesterday
+- [11:01.961] threatened that a whole civilization would die if
+- [11:04.563] a ceasefire deal wasn't reached, understanding
+- [11:07.166] that Iranian leaders have previously said death to
+- [11:09.969] America.
+- [11:10.636] But why is it appropriate for the President of the
+- [11:12.371] United States to use that kind of language when
+- [11:15.241] talking about civilian targets?
+- [11:17.009] And was the President mocking Islam by signing
+- [11:20.379] off his Truth Social post over the weekend, "Praise
+- [11:23.082] be to Allah"?
+- [11:24.016] Wouldn't that antagonize Muslim allies across the
+- [11:26.218] world?
+- [11:26.886] Karoline Leavitt: Well, I understand the questions
+- [11:28.621] about the President's rhetoric, but what the
+- [11:30.589] President cares most about is results.
+- [11:32.958] And in fact, his very tough rhetoric and his
+- [11:36.228] tough negotiating style is what has led to the result
+- [11:39.131] that you are all witnessing today.
+- [11:40.566] Iran publicly acknowledging last night
+- [11:43.269] that they have agreed or that they wanted this
+- [11:45.805] ceasefire with the United States because they no
+- [11:48.040] longer could tolerate being bombed by our very
+- [11:50.176] powerful and lethal military, and that they
+- [11:52.445] have committed to the reopening of the Strait of
+- [11:54.280] Hormuz, which the President will hold them
+- [11:56.215] accountable for.
+- [11:57.016] And it's something the administration is closely
+- [11:58.884] monitoring in real time.
+- [12:00.753] Danny.
+- [12:01.420] The Press: Should the world not take his word
+- [12:02.855] seriously?
+- [12:03.556] Karoline Leavitt: The world should take his word
+- [12:05.024] very seriously in understanding that the
+- [12:07.226] President is always most interested in results.
+- [12:10.129] And it was the Iranians who backed down, not
+- [12:12.431] President Trump.
+- [12:13.199] He said that they would face very grave
+- [12:15.134] consequences, as you just laid out, by the 8:00 PM
+- [12:17.536] deadline if they did not agree to reopening the
+- [12:19.905] Strait of Hormuz.
+- [12:20.739] And what did they do last night?
+- [12:22.208] They agreed to reopen the Shade of Hormuz.
+- [12:23.943] Danny.
+- [12:24.610] The Press: Thanks, Karoline.
+- [12:26.712] Would President Trump like to see Lebanon included in
+- [12:29.014] this peace deal?
+- [12:29.782] As you know, they've been increased Israeli strikes
+- [12:32.017] on Lebanon today with dozens of casualties
+- [12:34.320] there.
+- [12:34.987] Karoline Leavitt: Sure.
+- [12:35.654] Lebanon is not part of the ceasefire.
+- [12:37.456] That has been relayed to all parties involved in
+- [12:39.692] the ceasefire.
+- [12:40.759] As you know, Prime Minister Netanyahu put out
+- [12:43.062] a statement last night in support of the ceasefire,
+- [12:45.965] in support of the United States' efforts, and he's
+- [12:48.234] also assured the President they'll continue to be a
+- [12:50.436] helpful partner throughout the course of the next two
+- [12:52.338] weeks.
+- [12:53.005] The Press: Is there any thought though that the
+- [12:54.340] President might like to see Lebanon included at a
+- [12:56.342] future date, given that it seems to be causing or
+- [12:59.745] potentially undermining the Iran ceasefire?
+- [13:02.114] Karoline Leavitt: Again, this will continue to be
+- [13:04.383] discussed, I am sure, between the President and
+- [13:06.986] Prime Minister Netanyahu, the United States and
+- [13:08.954] Israel, and all of the parties involved, but at
+- [13:11.123] this point in time, they're not included in
+- [13:12.625] the ceasefire deal.
+- [13:13.726] Jeff.
+- [13:14.393] The Press: Thank you, Karoline.
+- [13:15.528] Will the US take part in talks with Iran and
+- [13:18.597] Islamabad on Friday?
+- [13:19.498] Karoline Leavitt: I can announce that the
+- [13:21.967] President is dispatching his negotiating team led
+- [13:25.237] by the Vice President of the United States, JD
+- [13:27.373] Vance, Special Envoy Witkoff, and Mr. Kushner
+- [13:30.376] to Islamabad for talks this weekend.
+- [13:32.645] The first round of those talks will take place on
+- [13:34.914] Saturday morning local time, and we know we look
+- [13:37.550] forward to those in person meetings.
+- [13:39.118] The Press: What role does the President see for the
+- [13:41.053] US in monitoring or helping with the Strait of
+- [13:44.557] Hormuz going forward?
+- [13:45.257] Karoline Leavitt: I think the President commented on
+- [13:47.326] that this morning.
+- [13:48.227] We're going to continue to monitor it very, very
+- [13:50.496] closely.
+- [13:51.463] We will be helpful in any way that we can, but we
+- [13:53.666] fully expect Iran to do this, and the President
+- [13:55.868] has made that quite clear as well.
+- [13:57.236] It's again, as his statement said last night,
+- [14:00.639] the ceasefire is subject to the safe reopening of
+- [14:03.976] the Strait of Hormuz.
+- [14:04.843] Again, this was just determined last night.
+- [14:06.545] We understand things take time, but that's the
+- [14:08.614] President's expectation and he will hold everyone
+- [14:10.783] to it.
+- [14:11.450] Sure, in the green blazer.
+- [14:13.252] The Press: Thank you, Karoline.
+- [14:15.120] Karoline Leavitt: Sure.
+- [14:16.322] And then in front of you.
+- [14:17.056] But Andrew, you can go ahead.
+- [14:18.357] The Press: All right.
+- [14:19.024] Karoline Leavitt: You're not wearing a green
+- [14:20.392] blazer.
+- [14:21.060] The Press: I am actually wearing a green blazer.
+- [14:22.928] Karoline Leavitt: It looks a little brown to me, but
+- [14:26.465] go ahead.
+- [14:27.166] The Press: Fair enough.
+- [14:28.567] So regarding the President's rhetoric, when
+- [14:30.836] the US invaded Iraq in 2003, George W.
+- [14:33.906] Bush said in a message to the Iraqi people that,
+- [14:38.811] "The military campaign was directed against the
+- [14:41.480] lawless men who rule your country and not against
+- [14:44.183] you." Yesterday, the President threatened to
+- [14:48.053] destroy Iran's civilization, the entire
+- [14:51.457] civilization.
+- [14:52.157] Not the Iranian government, but the
+- [14:54.493] Iranian civilization, Iranian people.
+- [14:58.264] The US has been a moral leader for most of its
+- [15:01.333] history by fighting wars against other governments,
+- [15:06.038] not against civilizations.
+- [15:09.375] How can the President claim that America can
+- [15:11.577] ever have the moral high ground if he's threatening
+- [15:14.546] to destroy civilizations and not casting wars as
+- [15:18.484] fights against other governments?
+- [15:20.319] Karoline Leavitt: Andrew, I think you should take a
+- [15:22.421] look at the actions of this President over the
+- [15:24.356] course of the past six weeks and the actions of
+- [15:26.759] our brave men and women in our United States military
+- [15:29.361] who have essentially taken out the military of a
+- [15:34.566] rogue Islamic regime that has chanted death to
+- [15:37.536] America for 47 years, that has killed and maimed
+- [15:40.873] thousands of American soldiers over the course
+- [15:43.175] of the last five decades.
+- [15:44.810] The President absolutely has the moral high ground
+- [15:47.546] over the Iranian terrorist regime, and for you to
+- [15:49.882] even suggest otherwise is frankly insulting.
+- [15:52.184] Go ahead.
+- [15:53.185] Go ahead.
+- [15:54.053] The Press: Just given what we've seen in Lebanon
+- [15:58.090] today and the increased attacks from Israel, is
+- [16:01.660] there any concern that Netanyahu is trying to
+- [16:05.230] kill the ceasefire?
+- [16:06.565] Karoline Leavitt: The President spoke with Prime
+- [16:08.701] Minister Netanyahu last night.
+- [16:10.336] And in that private conversation, Prime
+- [16:12.438] Minister Netanyahu relayed exactly what he said to
+- [16:14.606] the world publicly, that he supports the President
+- [16:16.942] and Israel remains a key ally and partner to the
+- [16:19.345] United States.
+- [16:20.412] They've been a tremendous partner over the course of
+- [16:22.481] the past six weeks, and we thank them for their
+- [16:25.050] heroic efforts as well.
+- [16:26.318] And the President had that conversation last night,
+- [16:27.653] and that was relayed to the world publicly as
+- [16:28.987] well.
+- [16:29.655] Reagan, go ahead.
+- [16:30.356] The Press: Thank you, Karoline.
+- [16:31.023] I have a question for you on Iran and I have a
+- [16:32.358] question on the DIGNITY Act as well.
+- [16:34.393] Karoline Leavitt: Sure.
+- [16:37.563] The Press: On Iran, it's been reported that the
+- [16:41.700] ceasefire was struck after the involvement of two
+- [16:44.336] unlikely factors, JD Vance and China.
+- [16:46.672] What role did those parties play in striking a
+- [16:49.541] deal?
+- [16:50.209] Karoline Leavitt: Well, Vice President Vance has
+- [16:51.577] played a very significant and a key role in this
+- [16:54.780] since the very beginning.
+- [16:55.948] Of course, he's the President's right hand
+- [16:57.449] man.
+- [16:58.117] He is the Vice President of the United States.
+- [17:00.052] He's been involved in all of these discussions.
+- [17:01.854] And as I just announced, he'll be leading this new
+- [17:04.523] phase of negotiations in Islamabad later this week.
+- [17:09.027] With respect to China, there were conversations
+- [17:12.131] that took place between top levels of our
+- [17:15.501] government and China's government.
+- [17:17.236] The President has great respect for President Xi
+- [17:19.972] and a great working relationship with him and
+- [17:23.175] with that country.
+- [17:24.243] And he looks forward to visiting China in just a
+- [17:27.279] few weeks.
+- [17:27.946] The Press: And on the DIGNITY Act, it's getting
+- [17:29.848] a fresh push through Congress.
+- [17:31.750] It would give some illegal immigrants in the country
+- [17:34.920] a path to citizenship.
+- [17:36.455] What's the White House's position on this
+- [17:38.056] legislation and would the President sign it if it
+- [17:40.225] made it to his desk?
+- [17:40.993] Karoline Leavitt: Honestly, Reagan, I
+- [17:42.327] haven't spoken to the President about the
+- [17:43.662] legislation, but I will have that conversation and
+- [17:46.532] we'll get you our formal position on it as soon as
+- [17:48.367] we can.
+- [17:49.034] You're welcome.
+- [17:49.701] Go ahead.
+- [17:50.369] The Press: The President suggested (inaudible) this
+- [17:51.703] morning that he would support a joint US-Iran
+- [17:53.806] venture to charge tolls for ships going through
+- [17:55.941] the Strait.
+- [17:56.642] Does the President believe that the US should earn
+- [17:58.911] revenue from the Strait of Hormuz going forward?
+- [18:01.079] Karoline Leavitt: It's an idea the President has
+- [18:03.215] floated, as you know, and it's something that will
+- [18:05.484] continue to be discussed over the course of the
+- [18:07.753] next two weeks.
+- [18:11.023] But the immediate priority of the President is the
+- [18:14.426] reopening of the straight without any limitations,
+- [18:17.162] whether in the form of tolls or otherwise.
+- [18:18.964] The Press: And on the highly enriched uranium,
+- [18:21.700] has Iran given the administration any
+- [18:23.735] indication that it would simply turn over the
+- [18:26.472] enriched uranium, or is this an expectation that
+- [18:29.208] the President has that he would have to send in
+- [18:31.977] ground troops in order to do that?
+- [18:33.445] Karoline Leavitt: This is on the top of the priority
+- [18:35.514] list for the President and his negotiating team as
+- [18:37.983] they head into these next round of discussions.
+- [18:40.285] And as I said in my opener, that is a red line
+- [18:42.855] that the President is not going to back away from,
+- [18:45.157] and he's committed to ensuring that takes place.
+- [18:48.494] We hope it will be through diplomacy.
+- [18:49.962] The Press: Have they given any indication that they
+- [18:51.864] would turn it over?
+- [18:52.564] Karoline Leavitt: They have.
+- [18:53.398] They have.
+- [18:54.066] Yes.
+- [18:54.800] Trevor.
+- [18:55.467] The Press: The latest news out of Iran is that the
+- [18:57.436] air defenses have been activated in several
+- [18:59.938] cities, including Isfahan and that explosions have
+- [19:02.307] been heard in Isfahan.
+- [19:03.675] Who is bombing Iran right now?
+- [19:05.744] Karoline Leavitt: Were those reports just as of a
+- [19:08.280] few minutes ago?
+- [19:08.947] The Press: Yeah.
+- [19:09.615] Karoline Leavitt: Okay.
+- [19:11.283] So obviously I'll have to go back and check with the
+- [19:12.618] national security team.
+- [19:13.285] I'm standing out here with all of you.
+- [19:14.653] But I will do that and we will get you an answer.
+- [19:16.121] Okay?
+- [19:16.788] The Press: And then just on the civilization
+- [19:18.190] question that we've been talking about.
+- [19:19.825] Karoline Leavitt: And I would just add to that
+- [19:21.827] point.
+- [19:22.494] Again, I haven't seen these reports.
+- [19:23.829] I'm not verifying them.
+- [19:24.796] Not that I don't trust you, Trevor, but I want to
+- [19:26.365] go back and check with the experts here at the White
+- [19:28.300] House.
+- [19:28.967] I would just say, and I would echo what the vice
+- [19:30.702] president said this morning, this is a fragile
+- [19:33.305] truce.
+- [19:33.972] Ceasefires are fragile by nature.
+- [19:35.541] We've seen this with respect to the Twelve-Day
+- [19:37.309] War with Iran and Israel last year.
+- [19:39.511] It takes time sometimes for these ceasefires to be
+- [19:42.214] fully effectuated.
+- [19:43.615] And one of the results of Operation Epic Fury was we
+- [19:46.485] completely dismantled Iran's command and control
+- [19:49.488] center, which makes it difficult for them to pass
+- [19:51.957] messages up and down the chain.
+- [19:53.725] And so we understand that.
+- [19:55.727] I would caution a little bit of patience, but of
+- [19:58.063] course we want to see the ceasefire effectuated and
+- [20:01.166] abided by by all parties as quickly as possible.
+- [20:03.535] The Press: Thank you.
+- [20:04.202] And American presidential administrations, going
+- [20:06.505] back to Ronald Reagan, have said this formulation
+- [20:09.374] about nuclear war, that a nuclear war cannot be won
+- [20:11.843] and must never be fought.
+- [20:13.111] Is that still the view of this administration, given
+- [20:15.447] the President's comments about civilization?
+- [20:16.782] Karoline Leavitt: I have no change in our view on
+- [20:18.850] that policy.
+- [20:19.518] Katie.
+- [20:20.185] The Press: Thanks, Karoline.
+- [20:22.421] Given the gravity of what he said yesterday, what
+- [20:25.691] was your understanding of what he meant when he
+- [20:28.060] said, "This civilization is going to be
+- [20:31.296] eliminated?"
+- [20:31.964] Karoline Leavitt: I think it was a very, very strong
+- [20:34.132] threat from the President of the United States that
+- [20:36.935] led the Iranian regime to cave to their knees and
+- [20:39.805] ask for a ceasefire and agree to reopening the
+- [20:42.407] Strait of Hormuz.
+- [20:43.141] So it was a very strong threat that led to
+- [20:45.310] results.
+- [20:45.978] And as the Secretary of War stated at the Pentagon
+- [20:48.814] this morning, it was not an empty threat by any
+- [20:52.084] means.
+- [20:52.751] The Pentagon had a target list that they were ready
+- [20:55.787] to hit go on at 8:00 PM last night if the Iranian
+- [20:59.191] regime had not agreed to open the Strait, which
+- [21:01.159] they did, and I think that's something we should
+- [21:02.794] all be grateful for.
+- [21:03.862] The Press: (inaudible) United States as a moral
+- [21:07.699] leader in the world, given that he's-
+- [21:09.901] Karoline Leavitt: I was asked this exact same
+- [21:11.403] question by your colleague, Andrew, in the
+- [21:12.771] back.
+- [21:13.438] And I think again, the insinuation by anyone in
+- [21:14.773] this room that Iran somehow has the moral high
+- [21:16.108] ground over the United States of America is
+- [21:17.442] insulting considering the atrocities that they have
+- [21:20.746] .
+- [21:21.413] .
+- [21:22.080] .
+- [21:22.748] Considering the atrocities that they have committed
+- [21:24.116] against our people and our military over the past
+- [21:25.450] five decades.
+- [21:26.118] John.
+- [21:26.785] John, go ahead.
+- [21:27.686] The Press: Thanks a lot, Karoline.
+- [21:29.287] Two questions for you.
+- [21:30.622] One has to do with a statement, a joint
+- [21:33.625] statement put out this morning by some of
+- [21:36.294] America's European allies, our NATO allies.
+- [21:38.664] And in that joint statement, they said
+- [21:40.465] regarding the Strait of Hormuz, our governments
+- [21:43.068] will contribute to ensuring freedom of
+- [21:46.204] navigation in the Strait of Hormuz.
+- [21:48.607] What's the administration's reaction
+- [21:50.008] to that joint statement?
+- [21:51.343] Does that smooth things over when the President
+- [21:54.046] meets with NATO's secretary general a little
+- [21:56.415] bit later this afternoon?
+- [21:57.349] Karoline Leavitt: I have a direct quote from the
+- [21:59.084] President of the United States on NATO, and I will
+- [22:01.186] share it with all of you.
+- [22:02.054] "They were tested, and they failed." And I would
+- [22:05.023] add it's quite sad that NATO turned their backs on
+- [22:07.125] the American people over the course of the last six
+- [22:09.161] weeks when it's the American people who have
+- [22:10.829] been funding their defense.
+- [22:13.098] As you know, President Trump will be meeting with
+- [22:14.833] Secretary Rutte in a couple of hours here at
+- [22:17.102] the White House, and I know he looks forward to
+- [22:18.603] having a very frank and candid conversation with
+- [22:21.306] him.
+- [22:21.973] The Press: And then secondly, in regards to
+- [22:23.875] this conflict, 38 days, as you pointed out, President
+- [22:26.745] Trump has said that there has been regime change.
+- [22:30.048] Has that regime change led to more freedoms for the
+- [22:33.685] Iranian people?
+- [22:34.419] Karoline Leavitt: I think that's a question that's
+- [22:37.322] being asked a little bit too early, John, and we
+- [22:39.524] hope that is the case, but it's something that has
+- [22:42.394] yet to be seen.
+- [22:44.763] Eamon.
+- [22:45.430] The Press: Karoline, on this question of tolling
+- [22:47.833] by the Iranians in the Strait of Hormuz, I've
+- [22:50.135] heard you talk about a number of red lines that
+- [22:52.738] the President has in this negotiation, but I haven't
+- [22:54.873] heard you say that Iranian tolling in the Strait of
+- [22:57.142] Hormuz is a red line.
+- [22:58.877] Would it be acceptable to the United States at the
+- [23:01.980] end of all this if the Iranians are able to
+- [23:04.683] charge tolls in the Strait of Hormuz?
+- [23:06.384] Karoline Leavitt: I think the President was very
+- [23:08.320] clear and simplistic in his language last night in
+- [23:10.489] his Truth Social post, where he said that this
+- [23:12.924] ceasefire is subject to of the free, safe and
+- [23:15.827] immediate reopening of the Strait of Hormuz.
+- [23:18.330] That's very plain language and it should be taken at
+- [23:21.133] face value.
+- [23:21.800] The Press: You mean free of charge?
+- [23:23.235] Karoline Leavitt: Carrie, go ahead.
+- [23:24.636] Without limitation, including tolls, yes.
+- [23:26.505] Carrie?
+- [23:27.172] The Press: A quick follow up on the twenty.
+- [23:29.040] Why would the US allow Iran to collect tolls from
+- [23:31.910] the Strait of Hormuz if that's something that
+- [23:34.312] we've opposed for a number of years now?
+- [23:36.681] Karoline Leavitt: Again, that's not something we've
+- [23:38.583] said that we've definitively accepted.
+- [23:40.786] The joint venture is something that was
+- [23:42.687] proposed by the President, but he was very clear in
+- [23:45.323] his statement last night.
+- [23:46.191] He wants to see the Strait reopened immediately
+- [23:48.827] without limitation, and that's something we're
+- [23:50.428] going to hold them to.
+- [23:51.096] The Press: Second question on family and friends in
+- [23:55.167] Iran.
+- [23:55.834] I myself am Iranian and I've been talking to them
+- [23:57.903] through the blackout.
+- [23:58.703] One of my family members yesterday said goodbye to
+- [24:01.473] me, so what message should we be sending Iranians
+- [24:05.243] when they message me saying what should they be
+- [24:07.179] doing right now?
+- [24:07.979] How should they stay safe?
+- [24:09.281] Because they really don't know what to do.
+- [24:11.950] Karoline Leavitt: I think the President's main
+- [24:14.119] priority and my main priority as his
+- [24:16.321] spokeswoman is to make sure that clear messages
+- [24:18.924] are sent to the American people, of course, which
+- [24:21.193] is my job today.
+- [24:22.661] With respect to the Iranian people, the
+- [24:25.096] President has taken out the imminent threat that
+- [24:27.666] was posed by their military to the United
+- [24:29.701] States, to our allies in the region, to our forces
+- [24:32.604] in the region.
+- [24:33.505] And of course, as the President has long said,
+- [24:36.141] he hopes that Iran will be a country of peace, of
+- [24:39.644] prosperity, and we're moving into this next
+- [24:41.580] round of negotiations to hopefully come to an
+- [24:43.882] agreement with this new regime that will create
+- [24:46.618] long-term stability in the Middle East.
+- [24:48.520] The Press: He has said that they should stay
+- [24:51.389] inside of their homes and also take back their
+- [24:54.259] country.
+- [24:54.926] There's a contradiction there, so how do you
+- [24:57.095] address that?
+- [24:57.796] Karoline Leavitt: Again, we're moving into this
+- [24:59.764] next round of negotiations with the remnants of the
+- [25:03.235] regime and those that we are speaking with now to
+- [25:05.237] hopefully reach a place of peace long term for the
+- [25:08.640] region, and that includes the Iranian people as
+- [25:10.508] well.
+- [25:12.043] In the blue, go ahead.
+- [25:12.878] The Press: Thank you, Karoline.
+- [25:14.579] The White House posted the statement from the Iranian
+- [25:17.649] government that passage in the strait will be
+- [25:20.452] coordinated with Iran's armed forces.
+- [25:22.187] As of today, who controls the Strait of Hormuz?
+- [25:25.757] Karoline Leavitt: Again, these statements were put
+- [25:27.993] out 12 hours ago.
+- [25:29.427] We expect that the strait will be opened
+- [25:32.197] immediately.
+- [25:32.864] As I said earlier, we have seen an uptick in traffic
+- [25:36.401] in the strait, and it's something that we are
+- [25:37.869] monitoring minute by minute, hour by hour as
+- [25:40.672] the days go on.
+- [25:41.373] Go ahead.
+- [25:42.807] The Press: Two questions.
+- [25:43.975] One on the deportations of Iranian officials and then
+- [25:47.579] on the negotiations.
+- [25:48.947] Are there still security concerns about Vice
+- [25:52.183] President Vance being part of these peace talks,
+- [25:55.854] Steve Witkoff, Jared Kushner?
+- [25:57.822] And then two, given the ongoing deportation of
+- [26:00.058] General Soleiman's niece, does the Trump
+- [26:02.027] administration plan to deport more relatives or
+- [26:04.296] people in the families of Iranian officials that are
+- [26:07.232] in the US?
+- [26:08.199] Karoline Leavitt: Certainly, anyone who is
+- [26:10.201] here fraudulently.
+- [26:11.369] I understand one of the individuals who their visa
+- [26:18.944] was revoked by Secretary Rubio and they were
+- [26:26.818] deported by ICE, they had a fraudulent asylum claim.
+- [26:28.153] That's against the laws of the United States.
+- [26:29.487] So anyone who is here illegally or fraudulently
+- [26:30.822] is subject to our nation's immigration laws and will
+- [26:32.157] be removed from our country, and I know this
+- [26:33.525] continues to be a top priority for the State
+- [26:34.859] Department working in conjunction with the
+- [26:36.194] Department of Homeland Security.
+- [26:37.529] With respect to the safety of the vice president, we
+- [26:38.863] fully trust the United States Secret Service to
+- [26:40.198] do their job, to keep the vice president and the
+- [26:42.767] President's negotiating team safe.
+- [26:44.169] They do a tremendous job and we fully trust them to
+- [26:46.604] do that.
+- [26:48.006] In the back, go ahead.
+- [26:48.807] The Press: Thank you, Karoline.
+- [26:50.308] The President has said Cuba is next.
+- [26:52.410] What's the message to the American people regarding
+- [26:54.846] Cuba, and what can Cubans expect in relation to this
+- [26:57.849] statement?
+- [26:58.516] Karoline Leavitt: Well, look, I think when
+- [26:59.918] President Trump said that, and he later clarified
+- [27:01.753] after making that statement that he meant
+- [27:04.022] the Cuban regime is bound to fall.
+- [27:06.424] The country is very weak, they're in a very weak
+- [27:09.327] position economically obviously, financially.
+- [27:11.896] The Cuban people are fed up with their government,
+- [27:14.666] as they should be, and these talks and
+- [27:17.168] discussions continue to happen at the highest
+- [27:19.437] level of our government.
+- [27:20.605] I don't have any updates or announcements for you
+- [27:22.741] with respect to Cuba policy today.
+- [27:24.342] Go.
+- [27:25.010] Good to see you.
+- [27:25.810] The Press: Thank you, Karoline.
+- [27:26.978] Secretary Hegseth said this morning that US
+- [27:29.848] troops would be sticking around.
+- [27:31.916] Can you expound upon that, what we should expect from
+- [27:34.886] US troops in theater for the next two weeks and
+- [27:37.689] beyond?
+- [27:38.390] Karoline Leavitt: I would defer you to the Pentagon
+- [27:39.858] for any specifics on assets that have been in
+- [27:43.061] place in the Middle East, but take the secretary at
+- [27:46.164] his word.
+- [27:46.831] And also, the President has reiterated this as
+- [27:48.633] well in his own words, that we're not going to
+- [27:50.835] move anything immediately.
+- [27:52.103] Again, this is a two-week ceasefire where we hope at
+- [27:54.706] the end and we expect at the end, we'll have a good
+- [27:57.275] agreement between the United States and Iran,
+- [27:59.244] but in the meantime, we're going to ensure that our
+- [28:01.379] military is always at the ready of the
+- [28:03.515] commander-in-chief.
+- [28:04.182] I'll take a couple more.
+- [28:06.317] In the back.
+- [28:07.052] Sure.
+- [28:07.719] On NATO, I'll take your question.
+- [28:09.187] Go ahead.
+- [28:09.854] The Press: Thank you, Karoline.
+- [28:11.322] On NATO, can you tell me, is the United States still
+- [28:14.426] considering withdrawing from NATO?
+- [28:16.561] Is that still a possibility?
+- [28:17.662] Karoline Leavitt: It's something the President
+- [28:18.997] has discussed, and I think it's something the
+- [28:20.532] President will be discussing in a couple of
+- [28:22.067] hours with Secretary General Rutte, and perhaps
+- [28:24.669] you'll hear directly from the President following
+- [28:26.337] that meeting later this afternoon.
+- [28:27.705] Thank you, everyone.

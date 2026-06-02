@@ -1,0 +1,572 @@
+<!-- source: https://www.youtube.com/watch?v=yr543ewGDts -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: yr543ewGDts -->
+<!-- date_published: 2025-04-11T17:38:36+00:00 -->
+<!-- date_accessed: 2026-06-02T02:51:59.773247+00:00 -->
+
+# Transcript: Press Secretary Karoline Leavitt Briefs Members of the Media, Apr. 11, 2025
+
+- [00:06.490] Ms. Leavitt: Good afternoon, everybody.
+- [00:07.830] The Press: Good afternoon.
+- [00:09.070] Ms. Leavitt: Happy Friday. As you all know,
+- [00:12.370] the President is currently undergoing his routine
+- [00:14.910] and long-scheduled physical at Walter Reed Medical Center
+- [00:18.580] and we will have a readout from the White House physician.
+- [00:21.730] Last night, Ksenia Karelina
+- [00:23.660] arrived back safely in the United States
+- [00:26.170] after being detained in Russia for more than a year.
+- [00:29.660] Since Inauguration Day, President Trump and his team
+- [00:32.350] have secured the release of more
+- [00:33.890] than 40 detained Americans abroad.
+- [00:36.580] This is more than half of the number of Americans
+- [00:39.490] released by Joe Biden in four years
+- [00:42.050] and President Trump has brought these Americans home in 80 days.
+- [00:46.380] This administration will continue to work hard
+- [00:48.830] to bring Americans home from around the world.
+- [00:52.260] As I've said before, and I will say it again today,
+- [00:55.140] everybody in this room has access to the most transparent
+- [00:58.220] and accessible president in American history.
+- [01:01.490] The cabinet meeting yesterday was further proof.
+- [01:04.170] President Trump asked each secretary to provide an update
+- [01:07.710] to all of you in the media on the critical work
+- [01:09.990] they are doing at their respective agencies
+- [01:12.440] to deliver on his agenda.
+- [01:14.480] And according to new reporting from the Washington Times,
+- [01:17.080] who I believe is in this room today,
+- [01:18.950] President Trump answered nearly 100 questions from the press,
+- [01:22.360] all of you, during his first
+- [01:24.060] three open press cabinet meetings this year.
+- [01:26.840] That's nearly 20 times the number answered by Joe Biden
+- [01:30.450] in cabinet meetings during his entire four years in office.
+- [01:34.340] And more excellent economic news that was released yesterday.
+- [01:37.880] The Consumer Price Index report showed inflation
+- [01:40.380] fell to 2.4% in March,
+- [01:42.920] smashing expectations for the second straight month in a row.
+- [01:46.700] This marked the first drop in consumer prices
+- [01:49.020] dating all the way back to the COVID pandemic.
+- [01:51.880] Prescription drug prices
+- [01:53.240] saw the largest monthly decline on record.
+- [01:55.970] Prices for airfare, used vehicles,
+- [01:58.350] and car insurance all decreased as well.
+- [02:00.840] And energy prices fell 2.4% in March driven
+- [02:04.090] by plummeting gas prices around the country.
+- [02:07.200] Also yesterday, House Republicans answered
+- [02:09.560] President Trump's call to move forward the budget resolution
+- [02:12.760] and officially set the stage
+- [02:14.030] for the passage of one big, beautiful bill.
+- [02:17.340] The American economy will boom after this bill is passed
+- [02:20.470] and the rest of the President's pro-growth agenda
+- [02:22.630] goes into effect.
+- [02:24.400] The largest tax cuts and deregulation in history
+- [02:26.880] coupled with our energy industry unleashed
+- [02:29.850] and renegotiated trade agreements
+- [02:32.020] that put America first are the ultimate formula
+- [02:34.860] to usher in the Golden Age of America.
+- [02:37.900] On that note, more than 75 countries have now reached out
+- [02:41.620] to the Trump administration eager
+- [02:43.250] to address the trade issues that have exploited America
+- [02:46.960] and hurt our workers in the process.
+- [02:49.870] The phones have been ringing off the hook to make deals.
+- [02:52.970] And these countries wisely heeded
+- [02:54.730] President Trump's warning not to retaliate
+- [02:57.040] and as a result, they were rewarded with a 90-day pause
+- [03:00.020] and substantially lower reciprocal tariff rates
+- [03:02.410] during this period
+- [03:03.610] so potential solutions can be achieved.
+- [03:06.620] Past presidents just willingly accepted
+- [03:08.720] the failed status quo on trade
+- [03:10.340] that ripped off our workers and our companies,
+- [03:13.030] but that's not who this president is.
+- [03:15.280] He creates his own leverage and negotiates deals better
+- [03:18.000] than anyone else who has sat in the Oval Office before him.
+- [03:21.250] And that process is currently underway.
+- [03:23.890] On another matter, the deadline for registration
+- [03:26.550] under the Alien Registration Act is today.
+- [03:29.540] All foreign nationals present in the United States
+- [03:32.800] longer than 30 days
+- [03:34.140] must register with the federal government.
+- [03:36.940] Failure to comply with this is a crime punishable by fines,
+- [03:40.970] imprisonment, or both.
+- [03:42.910] As President Trump and Secretary Noem
+- [03:44.580] have both said, "If you register and you leave now,
+- [03:47.920] you choose to self-deport,
+- [03:49.450] you may have the opportunity to return later legally.
+- [03:53.920] But if not, you will be arrested,
+- [03:56.130] fined, deported, never to return to our country again."
+- [04:00.550] The Trump administration will continue to enforce
+- [04:02.820] our nation's immigration laws.
+- [04:04.650] We will not pick and choose which laws to enforce.
+- [04:07.520] We must know who is in our country for the safety
+- [04:10.000] and the security of our homeland and for all American citizens.
+- [04:14.240] I also have a note from the First Lady
+- [04:15.950] to share with you on this Friday.
+- [04:17.900] On Tuesday this week, First Lady Melania Trump
+- [04:20.110] celebrated the advancement of the TAKE IT DOWN
+- [04:22.220] Act in the House Energy and Commerce Committee.
+- [04:25.350] The important legislation passed the committee
+- [04:27.260] with bipartisan support. And as you may remember,
+- [04:30.220] the President talked about this bill in his address
+- [04:32.460] to a joint session of Congress last month.
+- [04:34.950] The First Lady remains dedicated to her championing child
+- [04:38.290] well-being, ensuring that every young person can thrive,
+- [04:41.530] and of course, championing her Be Best agenda.
+- [04:45.040] We urge Congress to swiftly pass this important legislation.
+- [04:48.920] Here in our new media seat today, we have Jordan Berman.
+- [04:51.860] Jordan is a social media content creator and influencer
+- [04:54.970] and a lawyer who grew up following,
+- [04:58.360] breaking down the news from a neutral perspective.
+- [05:00.930] Jordan is the host of her own podcast
+- [05:02.900] called Unbiased Politics,
+- [05:04.880] where she dissects the top stories from the week
+- [05:06.910] from a legal perspective.
+- [05:08.800] Jordan focuses on bringing back real journalism
+- [05:12.030] from a nonpartisan perspective
+- [05:13.640] and has mastered explaining complex legal decisions
+- [05:16.010] to a mass audience in the short-form context.
+- [05:20.260] Her two biggest platforms are TikTok and Instagram
+- [05:22.840] where she has roughly half a million followers on each.
+- [05:25.660] With that, please kick us off, Jordan.
+- [05:27.570] The Press: Thank you.
+- [05:28.840] As you know, yesterday the House passed the SAVE Act,
+- [05:31.950] and many married women, soon-to-be-married women
+- [05:34.830] are concerned that the new voter ID requirements
+- [05:38.900] may inhibit their access to the polls.
+- [05:41.240] What assurances can you give women voters in America
+- [05:44.950] to ease their concerns?
+- [05:46.470] Ms. Leavitt: Sure. Well, the SAVE Act,
+- [05:48.190] as you mentioned, was passed by the House yesterday.
+- [05:50.560] This is the Safeguard American Voter Eligibility Act.
+- [05:54.070] I believe I'm getting that correct.
+- [05:55.890] And this act is a common-sense measure.
+- [05:57.510] It would require proof of citizenship
+- [05:59.280] for voting in our elections.
+- [06:00.960] The Democrats have been fear-mongering about this bill,
+- [06:03.830] have been saying that married woman,
+- [06:05.960] if their name has changed, they didn't change it
+- [06:08.560] on their identification would not be able to vote.
+- [06:10.370] That is complete fallacy.
+- [06:11.690] There are outline in the bill about how to avoid that.
+- [06:15.160] The President very much supports a common-sense solution
+- [06:17.820] to ensuring that only citizens can engage in our elections.
+- [06:21.350] This is critical to improving the integrity of our elections
+- [06:25.160] and also the trust that American citizens
+- [06:27.890] need to have in our electoral process.
+- [06:29.720] So the President supports this bill.
+- [06:31.800] And that is a myth that has been proven wrong
+- [06:33.910] by the text of this bill.
+- [06:35.500] And I believe some of the co-sponsors of the bill
+- [06:37.290] have been very vocal in addressing that.
+- [06:38.780] And certainly I myself as a married woman
+- [06:40.890] would not stand before this podium
+- [06:42.680] if the President did not support such a common-sense measure.
+- [06:45.890] The Press: Thank you. For my next question,
+- [06:47.770] I actually want to give a voice to the American people.
+- [06:50.220] I sourced the question from one of my listeners.
+- [06:52.240] Her name is Brynn. She is from Oregon.
+- [06:54.400] And she asked, "What, if any, plans do you have,
+- [06:57.220] the administration,
+- [06:58.510] for the money that will be generated by tariffs
+- [07:01.140] imposed on foreign goods?"
+- [07:02.730] How will the administration facilitate
+- [07:04.440] the development of American industries
+- [07:06.970] when many critical components, labor parts, et cetera,
+- [07:09.500] are much cheaper and more feasible from foreign entities?
+- [07:12.920] Ms. Leavitt: It's a great question from your listener
+- [07:14.520] and I want to thank her for submitting it to you to ask.
+- [07:17.740] Part of the new media seat is so that everyday Americans
+- [07:20.720] across the country have a voice in this room.
+- [07:22.370] So thank you again for being here.
+- [07:23.580] Thanks for the question.
+- [07:24.960] The President's point about his trade and tariff agenda
+- [07:28.240] is to bolster our manufacturing industries here in our country,
+- [07:32.400] to bring down the cost of living here in our country,
+- [07:35.430] and to ensure that we are maintaining
+- [07:37.530] critical supply chains here in America.
+- [07:39.400] We cannot be dependent on countries like China
+- [07:42.360] if we want this country to be strong and wealthy.
+- [07:44.460] So the President wants to restore wealth to America
+- [07:47.630] by shoring up these jobs here at home,
+- [07:49.880] which will result in good-paying jobs
+- [07:51.570] and higher wages for the American public.
+- [07:54.220] And so Americans should trust in that process.
+- [07:56.910] He effectively implemented tariffs in his first term
+- [07:59.470] while driving down the cost of living in this country
+- [08:02.050] and that's what he's focused on doing again. Thank you.
+- [08:04.110] The Press: As a follow-up question,
+- [08:05.380] could I just ask, are there any specific ideas
+- [08:08.210] that the administration has as to what that revenue,
+- [08:10.810] specific tariff revenue will be used for?
+- [08:12.650] Ms. Leavitt: Yes. To the heart of your question,
+- [08:14.030] the President has spoke about the trillions of dollars
+- [08:16.480] that he expects in revenue from tariffs
+- [08:18.260] and how we can use it to pay down our debt
+- [08:20.410] and to ensure that we are no longer faced
+- [08:22.960] with a crippling national debt in the trillions
+- [08:26.510] that is going to bankrupt our nation for future generations.
+- [08:28.970] So that money coming back home
+- [08:30.570] will make America in the green rather than in the red,
+- [08:33.250] which any small business owner across the country
+- [08:34.800] I believe can appreciate.
+- [08:36.040] The Press: Thank you so much.
+- [08:37.260] Ms. Leavitt: Thank you. Kelly.
+- [08:39.630] The Press: Tomorrow there will be negotiations
+- [08:42.400] between the United States and Iran-
+- [08:44.270] Ms. Leavitt: That's right. The Press: -- and Oman.
+- [08:45.570] What are the President's chief goals for that
+- [08:47.680] and is he satisfied with how Iran is responding to this?
+- [08:51.000] They don't want direct face-to-face negotiations,
+- [08:54.090] instead sort of old-school shuttle diplomacy
+- [08:56.340] where they're in separate rooms and messages
+- [08:58.450] are passed back and forth.
+- [08:59.950] So is the President comfortable with the arrangement there
+- [09:03.310] and what is the chief objective?
+- [09:04.850] Ms. Leavitt: Well, I have spoken to both the President
+- [09:06.610] and also his national security team
+- [09:09.160] who will be engaged in these discussions.
+- [09:10.740] These will be direct talks with the Iranians
+- [09:12.880] and I want to make that very clear.
+- [09:14.560] I also spoke to the President just last night about his goal
+- [09:17.820] when it comes to Iran
+- [09:19.070] and he has reiterated repeatedly to all of you publicly
+- [09:22.100] and also privately to his team here
+- [09:23.680] at the White House his ultimate goal
+- [09:25.990] and the ultimate objective is to ensure
+- [09:28.100] that Iran can never obtain a nuclear weapon.
+- [09:31.700] The President believes in diplomacy,
+- [09:33.620] direct talks, talking directly in the same room
+- [09:37.120] in order to achieve that goal.
+- [09:38.470] But he's made it very clear to the Iranians
+- [09:40.330] and his national security team
+- [09:41.590] as well that all options are on the table
+- [09:44.540] and Iran has a choice to make,
+- [09:47.050] you can agree to President Trump's demand
+- [09:50.060] or there will be all hell to pay.
+- [09:51.490] And that's how the President feels.
+- [09:52.720] He feels very strongly about it.
+- [09:54.020] The Press: And can you update us on Mr. Witkoff in Russia
+- [09:56.750] and what's happening with direct communications
+- [09:59.430] with Vladimir Putin?
+- [10:00.710] Ms. Leavitt: I can confirm that Mr. Witkoff is in Russia
+- [10:03.530] to have direct communications with the Kremlin
+- [10:06.300] and with Vladimir Putin.
+- [10:08.390] This is another step in the negotiating process
+- [10:10.110] towards a ceasefire
+- [10:11.400] and an ultimate peace deal in Russia and Ukraine.
+- [10:14.230] As these negotiations are ongoing,
+- [10:15.830] I obviously will not get ahead of the President or his team,
+- [10:18.470] but I think the President has been quite clear
+- [10:20.550] that he's been continually frustrated
+- [10:22.410] with both sides of this conflict
+- [10:23.840] and he wants to see this fighting end,
+- [10:26.500] he wants the war to end.
+- [10:28.170] We believe we have leverage in negotiating a deal,
+- [10:31.290] a peace deal, and we're going to use that leverage
+- [10:33.900] and the President is determined to see this through.
+- [10:37.170] Thank you. Sure.
+- [10:38.420] The Press: Thanks, Karoline. President Trump has said
+- [10:40.320] China wants to make a deal on tariffs.
+- [10:42.320] The President says he has a great relationship
+- [10:44.250] with Chinese President Xi.
+- [10:45.500] He's willing to speak with him directly.
+- [10:47.820] Why doesn't the President just pick up the phone
+- [10:49.800] and get this ball going?
+- [10:51.130] Ms. Leavitt: All of the things the President
+- [10:52.420] just said are true.
+- [10:53.620] The President, as I said from the podium
+- [10:56.100] just a few days ago when I was up here,
+- [10:57.720] would be gracious if China intends to make a deal
+- [11:00.260] with the United States.
+- [11:01.510] If China continues to retaliate, it's not good for China.
+- [11:04.910] The United States of America is the strongest,
+- [11:07.110] best economy in the world as evidenced
+- [11:09.280] by the more than 75 countries
+- [11:11.070] who have called the administration
+- [11:12.710] immediately to cut good deals. So the President wants to do
+- [11:15.450] what's right for the American people.
+- [11:17.070] He wants to see fair trade practices around the globe
+- [11:20.050] and that's his intention and his goal.
+- [11:21.790] The Press: So is he waiting for China
+- [11:23.030] to make the first move here?
+- [11:24.330] Ms. Leavitt: I'm not going to comment on communications
+- [11:26.430] that are happening or may not be happening or either way.
+- [11:29.960] We'll leave it to our national security team
+- [11:31.960] to get these discussions underway.
+- [11:33.950] And as always, in the effort of transparency,
+- [11:36.650] we will provide updates moving forward.
+- [11:38.850] But the President has made it very clear
+- [11:40.310] he's open to a deal with China.
+- [11:41.600] The Press: Why is he optimistic
+- [11:42.820] that China's going to make a deal
+- [11:44.090] or wants to make a deal if they're not talking?
+- [11:45.720] Where's that optimism come from?
+- [11:47.000] Ms. Leavitt: He's optimistic. Shawn.
+- [11:49.670] The Press: Why would any of our allies work with us
+- [11:51.670] to isolate China in a trade war
+- [11:53.590] if we're treating friend and foe alike?
+- [11:56.300] Ms. Leavitt: You'll have to talk to our allies
+- [11:57.720] who are reaching out to us.
+- [11:58.920] The phones are ringing off of the hooks.
+- [12:00.470] They've made it very clear
+- [12:01.830] they need the United States of America.
+- [12:03.560] They need our markets, they need our consumer base.
+- [12:06.010] You saw Prime Minister Benjamin Netanyahu
+- [12:08.510] in the Oval Office with the President
+- [12:10.510] saying that he was going to bring down
+- [12:12.050] all of their monetary tariffs
+- [12:13.460] and their non-monetary tariff trade barriers as well.
+- [12:17.410] We've heard from South Korea. We've heard from Japan.
+- [12:19.960] The President has spoken to Vietnam.
+- [12:21.710] We have Italy coming to the White House next week.
+- [12:23.860] There's a reason for that, Shawn,
+- [12:25.250] and it's because they need the United States of America
+- [12:27.710] and our business model and our markets to survive.
+- [12:30.830] And the President is using that leverage to our advantage.
+- [12:32.810] Michael.
+- [12:34.030] The Press: Hey, thank you, Karoline.
+- [12:35.270] Two-part question on China.
+- [12:36.490] Beijing says it will simply ignore
+- [12:38.960] any further tariff escalations from the U.S.
+- [12:41.280] Does President Trump see this as China backing down?
+- [12:44.650] And as a follow-up to that,
+- [12:46.660] what do you say to people like Shark Tank's Kevin O'Leary
+- [12:48.920] who say you guys simply haven't tariffed China enough?
+- [12:52.550] Ms. Leavitt: Look, the tariff rate on China
+- [12:54.220] remains where it was yesterday at the 145% level.
+- [12:58.520] The President made it very clear
+- [12:59.860] when the United States is punched,
+- [13:01.200] he will punch back harder.
+- [13:02.840] And he hopes to make a deal that benefits the American worker
+- [13:06.450] and our companies that have been ripped off for far too long
+- [13:09.080] and he's finally taking bold and courageous action to do that.
+- [13:12.570] Taking on China is, in the terms of trade and tariffs
+- [13:16.480] is something that both Democrats and Republicans
+- [13:18.960] alike have spoken about for decades.
+- [13:20.560] President Trump is finally doing it.
+- [13:22.150] The Press: Karoline, real quick. President of El Salvador
+- [13:24.130] is coming to the White House on Monday.
+- [13:25.690] Does President Trump want him to bring
+- [13:27.680] Kilmar Abrego Garcia with him?
+- [13:30.100] Ms. Leavitt: The Supreme Court made their ruling last night
+- [13:32.600] very clear that it's the administration's responsibility
+- [13:36.310] to facilitate the return, not to effectuate the return.
+- [13:40.330] I believe the Department of Justice
+- [13:42.330] just filed another brief in the lower court.
+- [13:44.370] I would refer you to that for any updates.
+- [13:46.200] But as you mentioned,
+- [13:47.400] President Bukele will be here at the White House on Monday
+- [13:49.890] to talk about the cooperation that is at an all-time high.
+- [13:53.990] And we very much appreciate
+- [13:55.210] President Bukele and El Salvador's cooperation
+- [13:57.510] and the repatriation of El Salvadorian gang members
+- [14:00.550] who the previous administration
+- [14:02.170] allowed to infiltrate our country.
+- [14:04.410] Sure.
+- [14:06.000] The Press: Thank you very much, Karoline.
+- [14:07.380] The President spoke quite highly of the great relationship
+- [14:10.790] that he has with the Turkish president.
+- [14:12.620] We know that the President might be heading off
+- [14:14.830] to the Middle East very soon.
+- [14:16.600] Is he planning to meet with the Turkish president
+- [14:19.600] either here in the White House or in Turkey? Any plans?
+- [14:22.350] Ms. Leavitt: I don't have any details
+- [14:23.690] about the President's overseas trip
+- [14:25.250] other than to say he was surely going to Saudi Arabia.
+- [14:28.230] There could be more countries as part of that trip.
+- [14:30.370] We're working on the details. And as I've said repeatedly,
+- [14:33.010] we will provide the details of that trip as soon as possible.
+- [14:35.730] The Press: Is it under consideration?
+- [14:36.980] A trip to Turkey or his invitation
+- [14:39.430] to the Turkish president, is it under consideration?
+- [14:41.780] Ms. Leavitt: I am not going to comment
+- [14:43.040] on the details of the trip,
+- [14:44.240] but once they're confirmed I will certainly let you all know.
+- [14:46.880] Yes, Steven.
+- [14:48.150] The Press: Thank you, Karoline.
+- [14:49.390] I'd like to ask you about presidential health
+- [14:51.220] and also about tariffs. On presidential health,
+- [14:54.180] are there plans for the President's physician
+- [14:55.820] to come here and take our questions?
+- [14:57.550] And also, President Trump repeatedly makes remarks
+- [15:00.930] about the former president's health.
+- [15:02.710] Is he considering using his executive powers
+- [15:05.100] to bring any greater transparency there?
+- [15:07.850] Ms. Leavitt: As I have said, the President
+- [15:09.250] is undergoing his long-scheduled physical.
+- [15:12.030] It's a yearly physical that every president receives
+- [15:14.820] and we will provide an update on that
+- [15:17.290] by the President's physician as soon as we possibly can.
+- [15:20.040] The Press: And about the former president and transparency
+- [15:22.100] regarding his health, are there [inaudible]?
+- [15:23.500] Ms. Leavitt: Well, I can tell you
+- [15:24.710] there was certainly a lack of transparency
+- [15:26.560] from the former president,
+- [15:28.400] from the entire former administration
+- [15:30.300] and frankly a lot of people in this room
+- [15:32.030] when it came to the health
+- [15:33.360] and the competence of the former President
+- [15:35.640] of the United States Joe Biden.
+- [15:37.200] There was one of the greatest cover-ups
+- [15:38.930] and frankly political scandals this nation has ever seen.
+- [15:41.930] It's been unraveled in some recent books
+- [15:43.610] that are being written by journalists who engaged
+- [15:45.950] in that cover-up and scandal, which is quite ironic.
+- [15:49.050] But this president is clearly committed to transparency.
+- [15:52.450] You in this room see him and hear from him on a daily basis.
+- [15:56.340] You in this room know from covering him
+- [15:58.100] it's hard to keep up with him.
+- [15:59.490] He is a machine working around the clock every single day.
+- [16:03.080] And the physician after today's physical
+- [16:05.000] will provide an update on the report
+- [16:06.570] in the effort of transparency.
+- [16:08.230] The Press: If I could ask about tariffs.
+- [16:10.020] There have been big swings this week
+- [16:11.460] in the Treasury bond yields.
+- [16:14.460] There's a theory that it might be
+- [16:15.930] because of China dumping these as leverage,
+- [16:19.390] driving up costs for U.S. loans like mortgages.
+- [16:22.130] Does the White House have evidence
+- [16:23.580] that this is in fact a result of Chinese dumping
+- [16:25.750] and if so, is there a message on that?
+- [16:27.180] Ms. Leavitt: Not to my knowledge,
+- [16:28.420] but I would check in with the Treasury Department on that.
+- [16:30.230] I can tell you,
+- [16:31.450] I know our Secretary of Treasury Scott Bessent
+- [16:34.060] is keeping a very close eye on the bond market.
+- [16:36.650] He spoke about it at the White House this week
+- [16:38.290] and I know he's keeping his eyes on it day to day.
+- [16:40.370] Ed. The Press: Thanks.
+- [16:41.630] The Press: Thank you, Karoline. So the administration…
+- [16:43.710] I have an administration source who's telling me
+- [16:45.530] that we're weeks away from the first deal
+- [16:47.880] with a country over tariffs.
+- [16:50.140] Where is the administration? How soon can we see that?
+- [16:52.580] And what country is that, the first one?
+- [16:54.720] Ms. Leavitt: I won't reveal or get ahead of our trade team
+- [16:56.910] as these negotiations are obviously ongoing,
+- [16:59.190] but I can tell you very good progress has been made.
+- [17:01.930] Jamieson Greer was on television this morning
+- [17:04.150] and I spoke to him and he confirmed
+- [17:06.090] that more than 15 offers are already on the table,
+- [17:09.250] which is remarkable in just a mere matter of days.
+- [17:11.510] And as I said earlier,
+- [17:12.800] we've heard from more than 75 countries around the world.
+- [17:15.700] This is a team effort.
+- [17:16.930] The President has a team of great, brilliant advisors
+- [17:20.850] who have been with him every step of the way
+- [17:23.150] and all of them will be divvying up the workload.
+- [17:25.720] And I just want to give the President
+- [17:27.720] and his trade team credit for taking this on.
+- [17:29.680] This is a massive undertaking, there's no doubt about it.
+- [17:32.210] We take it very seriously.
+- [17:33.430] The President is determined to renegotiate global trade
+- [17:36.590] on behalf of American workers.
+- [17:38.540] And again, you've seen people on both sides of the aisles
+- [17:41.120] calling for this for years,
+- [17:42.480] but I think no other president lacked the courage
+- [17:45.180] or maybe the work ethic or the stamina to take on such a task.
+- [17:49.040] And I know there were some questions
+- [17:50.640] about the President's delayed departure
+- [17:52.120] earlier to Walter Reed. I'd like to address it was
+- [17:54.210] because he's working on this very issue,
+- [17:56.310] so he was running a bit behind this morning.
+- [17:57.980] The Press: On the 90-day pause.
+- [18:00.420] What would the President need to see in order to extend
+- [18:03.000] that 90-day pause for the countries on tariffs?
+- [18:05.600] Ms. Leavitt: Well, I think the President addressed
+- [18:06.950] this yesterday when he said he's hoping
+- [18:08.820] that there will be good deals made before the 90 days is up.
+- [18:12.820] And we will cut those deals as soon as we possibly can,
+- [18:15.400] country by country, tailor-made deals for each and every country
+- [18:18.550] as they all propose unique challenges and unique assets
+- [18:22.450] to each country, advantages rather.
+- [18:25.300] And when that 90-day mark hits,
+- [18:28.730] the President will make that decision then.
+- [18:30.580] The Press: One more if I could on a different subject.
+- [18:32.140] So a bird earlier attacked my colleague Peter Ducey
+- [18:35.160] during a live shot at the White House.
+- [18:36.750] Ms. Leavitt: I'm wondering if that's why Peter
+- [18:38.070] is absent from his seat. Is he doing okay?
+- [18:40.250] The Press: He's recovering.
+- [18:41.450] Ms. Leavitt: Has anyone checked on him?
+- [18:42.820] The Press: HIPAA lawsuit [inaudible].
+- [18:44.040] The Press: Is anyone looking into that incident?
+- [18:46.820] Ms. Leavitt: I could check in with GSA to see
+- [18:48.540] if anybody here is looking into it.
+- [18:50.460] I also understand there was a mouse
+- [18:51.890] in the briefing room earlier today,
+- [18:53.340] so I'm hoping somebody checked in on that
+- [18:55.030] as I'm hoping it doesn't run up here and distract me.
+- [18:58.610] That would be a good way for all of you to distract me actually.
+- [19:01.220] Have a mouse come run up here.
+- [19:04.150] So I'll get an answer for you on that out of respect
+- [19:06.870] for our good friend Peter. Jeff.
+- [19:09.660] The Press: Why is American consumer confidence so low?
+- [19:12.520] Ms. Leavitt: Look, I think there's a great optimism
+- [19:14.900] in this economy, great optimism for the American people.
+- [19:17.960] A lot of reason for people to feel optimistic.
+- [19:20.920] The President is, as I just said,
+- [19:22.580] trying to renegotiate the global trade agenda
+- [19:26.830] that has ripped off the American people for far too long.
+- [19:29.130] As he said, this is going to be a period of transition.
+- [19:32.090] He wants consumers to trust in him
+- [19:33.960] and they should trust in him.
+- [19:35.270] Look at what he did in his first term.
+- [19:36.970] And I just want to reiterate all of the reasons to be confident
+- [19:39.540] since you asked Jeff for those watching at home.
+- [19:41.770] Yesterday, the CPI report, inflation declined massively.
+- [19:44.930] Consumer prices are dropping for the first time in years.
+- [19:47.740] Energy prices are down. In fact, oil prices are down 20%
+- [19:51.170] since this president took office.
+- [19:52.880] Wholesale prices fell again.
+- [19:55.060] There have been trillions of dollars
+- [19:56.650] in investments into this country.
+- [19:58.460] Every day the President is signing executive orders
+- [20:01.010] to cut regulation,
+- [20:02.870] especially when it comes to Environmental Protection Agency,
+- [20:05.750] our energy industry.
+- [20:07.050] That's going to unleash the economic boom
+- [20:09.020] in this country that we saw in the President's first term.
+- [20:11.460] So trust in President Trump, he knows what he's doing.
+- [20:14.380] This is a proven economic formula.
+- [20:16.160] The Press: What is asking of Americans at this time?
+- [20:18.670] He talked about transition costs, transition problems.
+- [20:21.360] Is he asking something specific for Americans to do?
+- [20:25.320] Ms. Leavitt: No, I think the President is asking
+- [20:27.610] for Americans trust in Trump.
+- [20:29.720] As I just said, trust in his economic agenda and formula.
+- [20:32.430] It's a proven formula that works.
+- [20:34.020] And by the way, clearly American people do in fact trust him
+- [20:36.860] because they did just overwhelmingly elect him
+- [20:38.730] to this office. Jennifer.
+- [20:42.230] The Press: I'm asking about the physical.
+- [20:43.480] Is he undergoing any general anesthesia
+- [20:45.850] and can you outline any of the other tests
+- [20:47.340] that he's doing today?
+- [20:48.580] Ms. Leavitt: He is not.
+- [20:49.780] He is undergoing quite a few tests, imaging.
+- [20:51.750] Again, it's a yearly physical,
+- [20:55.160] so there's quite a lot that goes into it
+- [20:57.050] to make sure the President is accomplishing all of his goals
+- [21:01.010] and we will provide a readout of that as soon as we can.
+- [21:03.730] The Press: And will you be committed
+- [21:05.790] to releasing all of the results,
+- [21:07.600] as many of the results as possible?
+- [21:09.350] Ms. Leavitt: Of course, yes.
+- [21:10.610] The President's physician will do that.
+- [21:11.830] I spoke with him this morning. Sure.
+- [21:13.490] The Press: Karoline, will you guys also consider
+- [21:15.810] releasing the President's fitness plan?
+- [21:17.600] He actually looks healthier than ever before,
+- [21:19.780] healthier than he did eight years ago,
+- [21:21.200] and I'm sure everybody in this room could agree.
+- [21:23.390] Is he working out with Bobby Kennedy
+- [21:25.290] and is he eating less McDonald's?
+- [21:28.060] Ms. Leavitt: I can confirm the President
+- [21:29.520] is in very good shape as you see on a near daily basis here.
+- [21:33.640] And in that vein, thank God it's Friday.
+- [21:35.340] It's been a very long and busy week here at the White House.
+- [21:37.740] We will see you all on Monday.
+- [21:39.520] And we will release the results of that report
+- [21:41.790] as soon as we can. Have a great weekend, everybody.
+- [21:43.870] Thank you.

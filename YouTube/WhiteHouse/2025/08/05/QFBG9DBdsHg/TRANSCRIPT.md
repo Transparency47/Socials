@@ -1,0 +1,774 @@
+<!-- source: https://www.youtube.com/watch?v=QFBG9DBdsHg -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: QFBG9DBdsHg -->
+<!-- date_published: 2025-08-05T21:13:53+00:00 -->
+<!-- date_accessed: 2026-06-02T02:46:13.386651+00:00 -->
+
+# Transcript: President Trump Signs an Executive Order, Aug. 5, 2025
+
+- [00:00.040] Male Speaker: Ladies and gentlemen,
+- [00:01.280] please welcome Casey Wasserman, Chairman of L.A.
+- [00:04.750] 28, the Vice President of the United States,
+- [00:07.500] J.D. Vance,
+- [00:08.720] and the 45th and 47th President of United States
+- [00:12.420] Donald J. Trump.
+- [00:15.090] [applause]
+- [00:22.970] The President: Thank you very much, everybody.
+- [00:24.540] It's a big day for a lot of reasons.
+- [00:28.350] And it's an honor to have you in this very nice venue
+- [00:31.600] across the street from the White House.
+- [00:34.110] And thank you all for being here
+- [00:35.590] as we take a major step to ensure the United States
+- [00:38.570] is fully prepared to welcome the world to Los Angeles
+- [00:42.950] for the 2028 Summer Olympic Games.
+- [00:45.940] Very exciting day of my life when we got nominated
+- [00:49.970] and we ultimately got it.
+- [00:52.430] And I didn't think I'd be here for the games in this capacity,
+- [00:57.500] but it worked out that way. So I'm very happy about that.
+- [01:00.870] I had no idea that was going to happen.
+- [01:03.250] When we got it, I said, “Too bad I won't be president then”,
+- [01:06.320] but sort of we took a very circuitous route, didn't we?
+- [01:11.730] In my first time, we were instrumental
+- [01:13.370] in helping the city of Los Angeles
+- [01:15.250] win the bid to bring the Olympic torch back to American soil.
+- [01:19.330] And today, I'll sign an executive order
+- [01:21.260] establishing the White House Task Force on the 2028
+- [01:25.390] Summer Olympics, mobilizing the entire federal government
+- [01:28.860] to ensure the Games are safe, seamless,
+- [01:31.280] and historically successful. It's going to be amazing.
+- [01:34.850] I think it's going be amazing.
+- [01:36.630] America as a nation of champions.
+- [01:38.560] And in July 2028,
+- [01:40.650] we'll show the world what America does best.
+- [01:43.100] And that's when we're winning like we have never won before.
+- [01:45.560] Or you see that? All the time.
+- [01:48.470] A year ago, we were not a country that was doing well,
+- [01:51.080] and now we're the hottest country anywhere in the world.
+- [01:54.200] I want to recognize several members of the task force,
+- [01:57.630] including our great Vice President J.D. Vance.
+- [02:00.410] J.D., thank you very much. Thank you.
+- [02:03.250] [applause]
+- [02:05.940] Our equally great attorney general, Pam Bondi.
+- [02:09.050] Pam, thank you very much, Pam.
+- [02:11.140] [applause]
+- [02:12.590] Secretary of Homeland Security, Cristie Kerr.
+- [02:15.160] It says Kristi. Do you know Cristie Kerr?
+- [02:18.080] She's a friend of my great golfer.
+- [02:20.780] Kristi Noem, she's a better golfer than you.
+- [02:22.410] That's the only thing.
+- [02:23.650] But you're better at a lot of other things.
+- [02:25.690] But I want to thank you for being here
+- [02:27.830] and for doing an unbelievable job.
+- [02:29.900] Really an unbelievable.
+- [02:31.550] FCC Chairman, Brendan Carr. Brendan, thank you.
+- [02:35.070] [applause]
+- [02:36.270] Thank you, Brendan. Doing a great job.
+- [02:38.560] White House Chief of Staff, Susie Wiles.
+- [02:41.530] Most powerful woman anywhere in the world.
+- [02:44.010] [applause]
+- [02:45.290] She's rated the most powerful woman in the world,
+- [02:47.390] and I agree with that.
+- [02:49.020] And Deputy Chiefs of Staff Stephen Miller.
+- [02:51.800] Stephen, Stephen, thank you.
+- [02:55.000] [applause]
+- [02:56.370] What happened to Stephen? We never want to miss Stephen.
+- [03:01.020] He's an MVP candidate. Dan Scavino, another MVP.
+- [03:04.640] [applause]
+- [03:05.840] James Blair, Taylor Budovich, and Nick Luna.
+- [03:09.910] Thank you all. Great group of people.
+- [03:12.990] They're going to be very much involved.
+- [03:14.570] I also am grateful to be joined by two of Team
+- [03:17.950] USA's strongest and fastest competitors,
+- [03:20.370] retired gold medalist and gymnast and member
+- [03:24.670] of the LA 28 Athletes Council,
+- [03:28.720] Nastasia Lukin. Nastasia.
+- [03:30.590] [applause]
+- [03:31.800] How are you, Nastasia? Good. Thank you.
+- [03:34.990] I don't know you, but I've watched you.
+- [03:36.470] You're very talented.
+- [03:37.710] I would not want to do what you do.
+- [03:39.250] This is much easier, believe me.
+- [03:41.350] It's incredible what you've done.
+- [03:42.960] Along with retired gold medal, Paralympian swimmer
+- [03:47.790] and board member of the U.S. Olympic Committee,
+- [03:50.570] Brad Snyder. Brad.
+- [03:51.850] [applause]
+- [03:53.050] Thank you very much, Brad. It's a great honor. Thank you.
+- [03:57.480] Chairman of the 2028 Olympic Games,
+- [03:59.840] Casey Wasserman, a friend of mine for a long time.
+- [04:02.470] Casey, thank you very much. Casey, great job.
+- [04:05.450] [applause]
+- [04:07.780] Amazing. L.A.
+- [04:09.120] Is a little bit different place than it was when selected,
+- [04:13.940] but we're going to bring it back stronger than ever.
+- [04:16.430] I spoke to Casey about that.
+- [04:17.820] He said, “nope, we're going to make it better than ever”,
+- [04:20.580] it's going to be something that's going make it
+- [04:22.640] even more important as a Olympic Games.
+- [04:25.800] It was an interesting conversation
+- [04:27.350] we had as the fires were raging.
+- [04:29.870] Is that right? And I appreciated that very much.
+- [04:33.010] And CEO, Reynald Hoover.
+- [04:35.590] [applause]
+- [04:36.790] Reynal, thank you very much.
+- [04:38.290] Thank you very much. Great honor.
+- [04:40.230] I also want to welcome the chair
+- [04:42.390] of the U.S. Olympic Committee, Gene Sikes.
+- [04:46.260] [applause]
+- [04:48.200] Thank you, Gene, very much.
+- [04:49.990] And thank him for recently banning men
+- [04:52.430] from competing in women's sports.
+- [04:54.350] That's a big deal. Thank you very much."
+- [04:56.520] It's amazing that we don't hear any applause for that
+- [04:58.580] when everyone feels it.
+- [05:00.340] [applause]
+- [05:01.940] To 97, don't worry about it.
+- [05:03.480] That's a 97-3, it's not 80-20, it is 97-3,
+- [05:07.350] but nobody wants to clap, it’s crazy.
+- [05:09.520] The United States will not let men steal trophies
+- [05:13.200] from women at the 2028 Olympics, so we appreciate the fairness
+- [05:17.710] and everything else that you've shown.
+- [05:19.420] Also with us today is LA 28 board member Reince Priebus,
+- [05:24.650] and also Kevin McCarthy.
+- [05:25.900] [applause]
+- [05:27.100] I want to thank Kevin McCarthy and Reince.
+- [05:29.060] Thank you, Reince, and thank you, Kevin.
+- [05:32.140] And the LA Olympics is shaping up to be
+- [05:34.480] a wonderful moment for America. It's going to be incredible.
+- [05:37.520] It's so exciting. And with today's action,
+- [05:39.590] I'm directing the Department of State,
+- [05:42.050] the Department of Justice,
+- [05:43.430] the Department of Homeland Security,
+- [05:45.440] the FBI, the Secret Service,
+- [05:48.240] the Department of Transportation,
+- [05:49.800] and many other departments and agencies
+- [05:51.990] to use every tool at their disposal
+- [05:54.000] to ensure a fantastic, safe, and beautiful event.
+- [05:58.350] In 2028, the Olympics is bringing back
+- [06:00.920] our national pastime baseball. Wow, that's great.
+- [06:04.360] With teams playing under the lights
+- [06:06.300] at the legendary Dodger Stadium,
+- [06:08.350] and it is legendary, it's beautiful.
+- [06:09.800] One of the most beautiful.
+- [06:11.510] Squash players will go head to head inside the world
+- [06:14.390] famous Universal Studios.
+- [06:16.510] Triathletes will sprint beneath the sun,
+- [06:19.790] shining down on Venice Beach.
+- [06:23.010] This will be one of the great venues.
+- [06:25.860] I mean, when you think of it, right?
+- [06:27.710] It's gonna be so incredible.
+- [06:29.040] Soccer teams will face off at the legendary Rose Bowl.
+- [06:33.410] Sailors will race through the waters
+- [06:35.610] near the port of Los Angeles,
+- [06:37.370] and the opening ceremony will take place
+- [06:40.140] at the beautiful Memorial Coliseum,
+- [06:42.070] just like the Olympics of 1932 and 1984.
+- [06:47.660] That was something.
+- [06:48.990] Those were very important Olympics.
+- [06:50.610] 1932 was a very important Olympic, wasn't it, huh?
+- [06:54.440] For eight straight consecutive summer games,
+- [06:57.130] no one has won more medals than Team USA,
+- [06:59.820] which is incredible. We want to keep it that way.
+- [07:02.480] Over the years, Team USA has won triple
+- [07:05.300] the number of Summer Olympic gold medals
+- [07:07.340] as the next closest country,
+- [07:09.670] and I'm confident that that's going to continue in 2028.
+- [07:12.750] That's an amazing achievement, by the way.
+- [07:15.220] Between the LA Olympics and the FIFA World Cup
+- [07:19.420] next year, we have the World Cup and we have The Olympics.
+- [07:22.080] Got them both.
+- [07:23.390] It's a great time to be a sports fan in America.
+- [07:27.090] And maybe, you know, I don't want to say most importantly,
+- [07:29.300] but it is a celebration of 250 years.
+- [07:32.070] We have our 250th anniversary also during the year,
+- [07:37.910] and it's going to be between the three of them.
+- [07:40.250] I think there'll be no other time
+- [07:41.660] that we've ever had in our history like that.
+- [07:43.690] So I'd like to ask the L.A. Olympics chairman,
+- [07:46.790] Casey Wasserman, to say a few words.
+- [07:48.920] And I appreciate it very much, Casey.
+- [07:50.970] Great job you've done. Thank you very much.
+- [07:53.300] [applause]
+- [07:57.170] Casey Wasserman: Thank you, Mr. President.
+- [07:58.370] Your support and the entire administration's support
+- [08:01.260] through this whole process has been truly extraordinary.
+- [08:05.110] In just 1,074 days, yes, we're counting, sir,
+- [08:08.940] the eyes of the world will be on this country
+- [08:10.790] as we open the 2020 Olympics.
+- [08:13.610] And it feels just like yesterday,
+- [08:15.660] and you were just president-elect
+- [08:16.890] in December of 2016
+- [08:19.310] that you leaned into this process back then,
+- [08:22.510] and you've been supportive and helpful every step of the way,
+- [08:25.330] and we wouldn't be here without you.
+- [08:26.810] So we greatly appreciate all your support.
+- [08:28.360] The President: Nice work. Thank you.
+- [08:29.620] [applause]
+- [08:33.710] Casey Wasserman: Our games plan is near final.
+- [08:35.500] We've announced a competition schedule.
+- [08:37.840] Some of the greatest brands in America
+- [08:39.620] have stepped up to support these Olympic games
+- [08:41.470] as commercial partners.
+- [08:42.910] And now with the creation of this task force,
+- [08:45.070] we've unlocked the opportunity to level up our planning
+- [08:48.210] and deliver the largest and yes,
+- [08:50.000] greatest games for our nation ever.
+- [08:52.570] We expect more than 150 heads of state will come to the games.
+- [08:56.460] We'll host approximately 11,000 Olympic
+- [08:59.330] and 4,500 Paralympic athletes.
+- [09:01.920] They'll participate in 800 competitions
+- [09:04.860] at 49 competition venues.
+- [09:07.220] This will be the equivalent of producing seven Super Bowls
+- [09:09.670] a day, sir, for 30 days.
+- [09:12.210] But we are now focused more than ever on delivery,
+- [09:14.830] and we can't do this alone. I want to thank President Trump
+- [09:17.740] and the entire administration for their support
+- [09:19.720] and their partnership as we work to bring these games home.
+- [09:23.680] These will be truly America's games.
+- [09:26.150] We expect millions of fans from around the country
+- [09:31.060] and attend events.
+- [09:32.370] And for the first time in history,
+- [09:34.230] we're going to take the Olympic torch relay to all 50 states.
+- [09:38.190] The most states it's ever gone to is 38.
+- [09:40.200] But in 2028, we will touch all 50 States.
+- [09:42.960] And sir, if you'd like to run on Park Avenue again –
+- [09:44.630] [laughter]
+- [09:45.940] To revisit history, you're more than welcome.
+- [09:48.830] And we're thrilled.
+- [09:50.100] But this administration has delivered critical security
+- [09:52.940] funding in the recent bill that will be used
+- [09:56.290] by local and state agencies and the federal government
+- [09:58.480] to make sure that our games are safe and secure.
+- [10:01.450] And ultimately the best place to experience
+- [10:03.830] and be an Olympic fan.
+- [10:05.780] We remain incredibly confident in our ability
+- [10:08.040] to deliver the greatest games ever,
+- [10:09.950] and that starts with the support of this administration
+- [10:12.500] every step of the way. Thank you, sir.
+- [10:14.700] [applause]
+- [10:16.640] Well we don’t trophies in the Olympic movement,
+- [10:23.200] but as you know, 1984 hosted the Olympics in Los Angeles.
+- [10:25.900] The President: Right.
+- [10:27.200] Casey Wasserman: And someone we admire, President Reagan,
+- [10:28.760] both of us, presided over those,
+- [10:31.020] and you will preside over our games.
+- [10:32.410] So we have for you a full set of the 84 original medals.
+- [10:40.190] The President: Wow.
+- [10:41.850] [applause]
+- [10:48.810] Can I say that I won them athletically?
+- [10:50.990] Casey Wasserman: Yes, sir. [laughter]
+- [10:52.210] The President: That would be a great honor.
+- [10:53.460] Casey Wasserman: Yes.
+- [10:54.700] The President: That's beautiful. Thank you very much.
+- [10:55.970] Casey Wasserman: Thank you very much.
+- [10:57.220] The President: Thank you. Thank you so much.
+- [10:59.000] Appreciate it. You want to sign it?
+- [11:00.480] Casey Wasserman: Yep.
+- [11:09.810] The President: Okay, come on around everybody,
+- [11:12.230] this is a big one here.
+- [11:13.450] Casey Wasserman: Yeah.
+- [11:14.680] The President: Okay.
+- [11:31.780] Pam, no auto pen.
+- [11:34.210] [laughter] [applause]
+- [11:35.630] That was not an auto pen!
+- [11:38.740] [inaudible]
+- [11:51.830] Thank you very much.
+- [11:53.060] Casey Wasserman: Thank you.
+- [11:54.300] The President: Fantastic. Thank you very much everybody.
+- [12:00.040] The Press: [inaudible]
+- [12:12.040] The President: Go ahead, please. Go ahead.
+- [12:14.950] The Press: Mr. President, will the Department of Justice –
+- [12:17.150] Thank you Mr. President.
+- [12:18.530] Thank you. Excuse me. Excuse me [inaudible]. Excuse me.
+- [12:23.050] No, he called on me, but thank you.
+- [12:24.430] The President: Go ahead, please.
+- [12:25.630] The Press: Thank you, Mr. President.
+- [12:27.300] Do you still plan to follow through on your threat
+- [12:29.620] to impose 100% tariffs on all countries
+- [12:33.340] that purchase Russian energy, including China?
+- [12:36.530] The President: Well I never said a percentage,
+- [12:37.740] but we'll be doing quite a bit of that.
+- [12:39.260] We'll see what happens over the next fairly
+- [12:41.440] short period of time. But we'll see what happens? Yep.
+- [12:46.110] The Press: [inaudible].
+- [12:47.690] The President: You know, they have a meeting tomorrow.
+- [12:49.180] We have a meet with Russia tomorrow.
+- [12:51.020] We're going to see what happens.
+- [12:52.560] We'll make that determination at that time.
+- [12:55.760] The Press: [inaudible].
+- [12:57.050] The President: Yeah, please go ahead.
+- [12:58.260] The Press: Thank you Mr. President
+- [12:59.540] – on Gaza sir – he called on me. Thank you Mr. President.
+- [13:03.310] On Ukraine, President Zelensky just signed a law
+- [13:06.420] allowing for citizens age 60 and above to serve in the military.
+- [13:10.360] We've seen dozens of videos of young men being hauled into vans
+- [13:13.370] and dragged to the front lines against their will.
+- [13:15.490] And we've even seen videos of a young man with Down Syndrome
+- [13:18.730] serving on the front line. You, when you campaigned,
+- [13:21.350] you said you wanted to see the people stop dying.
+- [13:23.610] A lot of people admired that statement.
+- [13:25.610] Now the people dying are elderly.
+- [13:27.830] Mentally handicapped and conscripts.
+- [13:31.090] So even if a ceasefire doesn't work out,
+- [13:33.890] why should Americans continue to fund a foreign military
+- [13:36.520] that's scrapping the bottom
+- [13:37.810] of the barrel of its population like this?
+- [13:39.400] The President: Well, you have to understand,
+- [13:40.630] very importantly, this is Biden's war.
+- [13:42.830] This is not my war. I'm here to get us out of it.
+- [13:45.030] It's a mess. And I'm here to get us out.
+- [13:47.720] I haven't heard that when you say about 60-year-old men
+- [13:50.420] and, you know, et cetera. But this is Bidens war
+- [13:53.970] and we're working very hard to get this out.
+- [13:55.880] I stopped five wars in the last five months, actually.
+- [13:59.760] And I'd like this to be the sixth, frankly.
+- [14:03.290] And that doesn't even include Iran,
+- [14:04.810] with, you know, obliterating their nuclear hall,
+- [14:08.730] because they would have had nuclear weapons
+- [14:10.670] within two months. But stopped a lot of wars.
+- [14:14.900] You just take a look at the ones just over the last two
+- [14:18.070] or three months. It's been amazing.
+- [14:19.410] This is the one I'm trying to stop.
+- [14:20.910] This is one we're working hardest on.
+- [14:22.560] The other ones I stopped with in a matter of days,
+- [14:24.710] almost every one of them, including India and Pakistan,
+- [14:28.730] and I could go over the whole list,
+- [14:30.250] but you know the list as well as I do.
+- [14:32.320] But this is the ones we'd like to see.
+- [14:34.110] I haven't – not heard that, but this is Biden's war.
+- [14:36.830] And it's a war that he got us into or indirectly got us in to.
+- [14:40.410] It should have never happened.
+- [14:41.690] It would have never happen had I been president.
+- [14:44.070] Yeah, next to you.
+- [14:46.090] The Press: Thank you, Mr. President.
+- [14:47.490] Would you support Israel reoccupying all of Gaza,
+- [14:51.540] as has been suggested by some Israeli officials?
+- [14:55.160] The President: Well, I don't know what the suggestion is.
+- [14:56.760] I know that we are there now trying to get people fed.
+- [15:00.430] As you know, $60 million was given by the United States
+- [15:03.700] fairly recently to supply food
+- [15:06.340] and a lot of food, frankly, for the people of Gaza
+- [15:10.470] that are obviously not doing too well with the food.
+- [15:13.640] And I know Israel is going to help us
+- [15:15.290] with that in terms of distribution and also money.
+- [15:18.620] We also have the Arab states are going to help us in terms
+- [15:21.820] with the money and possibly distribution.
+- [15:24.430] So that's what I'm focused on.
+- [15:26.190] As far as the rest of it, I really can't say.
+- [15:29.640] That's going to be pretty much up to Israel.
+- [15:31.620] Yeah, please. Go ahead, please
+- [15:34.320] The Press: Thank you.
+- [15:35.560] On transgender athletes in the Olympics,
+- [15:37.230] back to the safety, especially of female combat boxers,
+- [15:41.130] will the Department of Justice,
+- [15:42.550] considering pressing charges against any man
+- [15:44.230] that tries to masquerade
+- [15:45.440] as a woman coming into this country
+- [15:46.880] to beat up American athletes?
+- [15:48.460] And secondly, would your administration
+- [15:50.680] consider genetic testing so that these people can prove
+- [15:54.150] that they're actually women competing?
+- [15:56.120] The President: Well, I think there is going to be
+- [15:57.530] a very strong form of testing.
+- [15:59.090] As far as charges, I'd have to ask the Attorney
+- [16:02.040] General about that. I don't know.
+- [16:03.310] But there will be a very, very strong form of testing.
+- [16:06.070] And if the test doesn't come out appropriately,
+- [16:09.740] they won't be in the Olympics.
+- [16:12.140] Yes, ma'am, please. Go ahead, please white.
+- [16:15.300] The Press: Thank you. Mr. President, do you believe
+- [16:17.170] that the US committee would have made this decision
+- [16:19.280] on men and women's sports if you weren't president?
+- [16:21.890] And do you that this decision will stay in place
+- [16:24.320] once you are no longer president?
+- [16:26.370] The President: I think they probably would have
+- [16:27.800] because it just seems to be an issue
+- [16:30.300] that most people feel should be.
+- [16:32.700] I can't really say.
+- [16:34.100] You could have asked Chairman Wasserman.
+- [16:37.650] But I would say that, yeah, there's a possibility.
+- [16:43.190] It could go either way if you really want to know the truth.
+- [16:45.440] I feel strongly about it. I have.
+- [16:47.840] I ran a campaign, at least partially on that.
+- [16:49.920] That was one of the many issues
+- [16:51.200] that I talked about, open borders.
+- [16:53.380] The economy, taxes, all of the things,
+- [16:55.220] but that was certainly one of the issues.
+- [16:56.900] So I really can't, I really don't know,
+- [16:59.410] could have gone either way, please.
+- [17:01.460] The Press: Sir. Have you decided on a replacement
+- [17:03.600] for the Fed Governor?
+- [17:05.780] The President: Of the Fed Governor?
+- [17:07.960] I'll be making that decision before the end of the week
+- [17:10.810] and we'll either decide on one for permanence
+- [17:13.200] or the four month period, the term.
+- [17:16.770] You know, there is a term of about a number of months.
+- [17:20.580] We have a couple of candidates.
+- [17:22.300] Everybody wants it, okay? It's not a couple,
+- [17:24.240] but we've narrowed it to a couple candidates.
+- [17:26.870] And we're looking at the Fed Chair
+- [17:30.340] and that's down to four people right now.
+- [17:35.020] Very good.
+- [17:36.430] Well, I can tell you because I've already said
+- [17:37.860] there's two Kevins and two other people.
+- [17:40.100] Okay. Brain?
+- [17:42.360] The Press: Thank you Mr. President.
+- [17:43.610] This has to do with the safety aspect of the Olympics.
+- [17:46.580] What can you do as a president
+- [17:48.290] to ensure that Southern California,
+- [17:50.500] the greater Los Angeles area is safe from any fire danger,
+- [17:54.910] that the state clears away brush and state parks
+- [17:58.280] very the reason why this last fire
+- [18:00.140] happened in Pacific Palisades? What can you ensure for that?
+- [18:02.280] The President: Well, as you know, Brian,
+- [18:03.560] we have I've been fighting with them
+- [18:05.570] for a long time about allowing the water
+- [18:07.900] to come down from the Pacific Northwest, essentially.
+- [18:11.260] And we actually opened up that water pretty strongly.
+- [18:14.670] We got a lot of opposition from the governor.
+- [18:17.230] We opened it up anyway,
+- [18:18.430] and the water is coming down that we wanted opened further.
+- [18:21.970] They have a lot of water,
+- [18:23.190] they send it out into the Pacific Ocean
+- [18:25.890] in order to protect the Smelt.
+- [18:27.600] It's a little tiny fish that's not doing very well,
+- [18:30.380] especially when they don't have water.
+- [18:31.950] They really do badly, okay?
+- [18:33.930] But it's a fish, environmentally protected,
+- [18:36.340] even though it's in many other areas.
+- [18:38.450] I think they just use that as an excuse to Smelt,
+- [18:40.840] you'll check that out. But I think it's just an excuse.
+- [18:43.920] They've got to allow full water,
+- [18:46.510] and they're working with Lee Zeldin
+- [18:48.360] is really helping us a lot,
+- [18:49.680] but they've got to a allow a full complement of water
+- [18:52.760] to come down from the Pacific Northwest.
+- [18:55.100] There is so much water.
+- [18:56.710] If Gavin Newsom let the water come down –
+- [19:00.120] see the way I pronounced his name properly for a change.
+- [19:03.380] If this guy allowed the water
+- [19:05.030] to come down from the Pacific Northwest,
+- [19:08.040] they have so much water they don't know what to do with it.
+- [19:11.400] All of those sprinklers would have gone on,
+- [19:13.160] all of those people with those beautiful houses
+- [19:15.370] with sprinklers in the ceilings and with the water,
+- [19:17.840] the fire pumps outside,
+- [19:19.750] all that water, they didn't have any water.
+- [19:22.040] Because they wouldn't let the water come down.
+- [19:23.810] There's so much water there.
+- [19:25.310] At first, when I got involved with this issue
+- [19:27.220] in my first term,
+- [19:28.780] I said to the congressmen, they took me up
+- [19:30.990] because they wanted to show me the fields
+- [19:33.100] where they could farm 10 times more product.
+- [19:38.500] You'd see 100 acres and you'd see one acre or two acres,
+- [19:41.760] beautiful green, it's very vibrant soil,
+- [19:43.860] but they don't give it the water that it's entitled to.
+- [19:46.840] And I said, “oh, they have a drought?”
+- [19:48.160] I said “no, they told me they don't have a drought.
+- [19:50.960] They don't – the Democrats don't allow the water
+- [19:53.310] to come down into the farms and into anywhere”
+- [19:56.410] by the time it gets down
+- [19:57.750] even into certain parts of California,
+- [20:00.790] it's fed out into the – stupidly into the Pacific Ocean.
+- [20:04.690] If that water were allowed.
+- [20:05.920] So we broke into it and we allowed it to come down
+- [20:09.590] and it can come down in a higher level.
+- [20:11.630] And we want that and we're demanding that of the governor.
+- [20:14.140] The other thing is we'll do anything necessary
+- [20:17.190] to keep the Olympics safe
+- [20:18.420] including using our National Guard.
+- [20:21.180] Or military. Okay?
+- [20:23.460] No, I'll use, I will use the national guard or military,
+- [20:26.850] this is going to be so safe. And if we have to,
+- [20:30.270] because obviously you have a mayor
+- [20:32.670] that is not very competent.
+- [20:34.420] She can't get the permits for the people.
+- [20:36.100] You know, the people are still waiting for their permits.
+- [20:38.300] Lee Zeldin got them – the federal permit,
+- [20:40.760] which is 10 times harder to get.
+- [20:43.180] And everybody can build on the federal basis,
+- [20:45.820] and that's the hard one. But the mayor Bass.
+- [20:49.150] She cannot, she refuses to or cannot get them permits.
+- [20:52.490] They're waiting.
+- [20:53.750] And I was there right after the fires
+- [20:55.470] and I saw all these beautiful people
+- [20:57.260] standing by their homes, ready to get in and get to work.
+- [21:01.070] And they're waiting for their permits
+- [21:02.760] and they're still waiting for their state permits
+- [21:05.200] and city permits. It's a disgrace. It's disgrace.
+- [21:08.670] The Press: [inaudible]
+- [21:10.130] The President: Red dress, red dress. Yes ma’am.
+- [21:11.580] The Press: Thank you Mr. President.
+- [21:12.950] The President: Thank you.
+- [21:14.210] The Press: India says that the U.S. imports
+- [21:15.940] Russian uranium chemicals, fertilizers,
+- [21:18.290] while criticizing their energy imports.
+- [21:21.390] Your response to that, sir.
+- [21:22.640] The President: I don't know anything about it.
+- [21:23.960] I'd have to check, but we'll get back to you on that.
+- [21:25.730] Yeah, please.
+- [21:26.930] The Press: Mr. President.
+- [21:28.150] The President: Yeah, go ahead.
+- [21:29.380] The Press: Have you seen the Hamas-released video
+- [21:31.070] of Israeli hostage Evi Tare David starving
+- [21:33.790] and being forced to dig his own grave in a Hamas tunnel?
+- [21:35.800] The President: I have, yeah.
+- [21:37.000] The Press: What is your reaction?
+- [21:38.230] The President: I think it's horrible.
+- [21:39.580] I think is horrible.
+- [21:41.410] And I hope a lot of people do get to see it as bad as it is
+- [21:44.170] because I think its a horrible thing.
+- [21:45.640] Yep, behind you please.
+- [21:49.140] The Press: Can you speak to just how this drop-off
+- [21:51.840] in foreign-born workers is going to benefit Americans
+- [21:54.580] and will it force American companies
+- [21:56.660] to pay fairer wages to American workers?
+- [21:58.780] The President: Well, we want to take care
+- [22:00.020] of our American workers, and first and foremost,
+- [22:03.400] and that's what we're doing. We also want to help our farmers
+- [22:06.360] because our farmers are producing like never before.
+- [22:09.640] We have to help them. And we're working out
+- [22:12.060] some very complicated strategies and language,
+- [22:14.590] but the main thing that I think I was elected to do
+- [22:19.720] is to get the illegals out of our country who are,
+- [22:23.180] especially in particular criminals.
+- [22:25.680] 11,888 murderers were allowed into our country
+- [22:30.310] with Biden's open border policy,
+- [22:32.240] with our border czar who never spoke to the Border Patrol,
+- [22:35.430] never went to the border one time.
+- [22:37.640] That's Kamala.
+- [22:38.980] And think of it, we have murderers.
+- [22:42.600] We have people coming in from all countries
+- [22:44.220] all over the world,
+- [22:45.460] from prisons, from prisons in the Congo and Africa,
+- [22:48.540] from prisons all over South America,
+- [22:50.570] all over rough parts of Europe, all over Asia.
+- [22:54.840] They're pouring into our country, not anymore.
+- [22:56.990] So we just announced we had our third consecutive month
+- [23:00.400] where were rated zero people.
+- [23:03.570] And these are, frankly, very liberal people
+- [23:06.100] that make up these charts.
+- [23:07.320] So I don't know what's wrong with them.
+- [23:08.550] They seem to not be doing their job for the Democrats.
+- [23:12.240] But I'm honored by the fact that they say it.
+- [23:15.310] We're very tough on the border.
+- [23:17.020] And people can come into our county,
+- [23:18.590] but they have to come in legally.
+- [23:20.350] So. I think that we've done an amazing job, actually,
+- [23:25.220] but we want —
+- [23:26.540] we have to get the criminals out of our country —
+- [23:28.380] murderers, drug dealers, gang members —
+- [23:31.920] they emptied prisons into our country.
+- [23:33.610] It's one of the reasons —
+- [23:34.820] I think, even beyond the economy,
+- [23:36.830] it's one the reasons I got elected.
+- [23:38.340] It's really maybe the number one.
+- [23:39.610] It was between the economy and that.
+- [23:42.330] But, you know, as I said before, our nation is doing really well,
+- [23:45.320] but have to get these really bad people
+- [23:47.100] — they should have never been allowed in our country —
+- [23:49.310] open border policy is for fools.
+- [23:52.190] We're the only country in the world
+- [23:53.570] with an open-border policy, but we don't have that anymore.
+- [23:57.070] We had zero now for three months in a row.
+- [23:58.970] Peter?
+- [24:00.210] The Press: President Trump,
+- [24:01.430] nice to see you got off the roof all right.
+- [24:03.220] The President: Yeah, yeah.
+- [24:04.800] The Press: You said this morning
+- [24:06.160] that you probably won't be running for a third term.
+- [24:09.350] This weekend, Secretary of State Rubio said
+- [24:11.800] that he thought JD Vance would be a great nominee.
+- [24:15.370] You could clear the entire Republican field right now.
+- [24:18.710] Do you agree that the heir apparent to MAGA is JD Vans?
+- [24:23.540] The President: Well, I think most likely, in all fairness,
+- [24:25.410] he's the vice president. I think Marco is also somebody
+- [24:29.060] that maybe would get together with JD in some form.
+- [24:32.610] I also think we have incredible people,
+- [24:34.570] some of the people on the stage right here.
+- [24:36.700] So it's too early, obviously, to talk about it,
+- [24:38.800] but certainly he's doing a great job,
+- [24:40.610] and he would be probably favored at this point.
+- [24:44.340] The Press: And on Texas.
+- [24:45.910] If Texas redrawing their congressional map
+- [24:50.120] would get you five safe red seats
+- [24:53.050] means that California, New York, Illinois, and Maryland
+- [24:57.080] are all going to redraw their maps to add safe –
+- [24:59.600] The President: Well, they'll do it anyway.
+- [25:00.940] The Press: Is it worth it?
+- [25:02.290] The President: Yeah, they'll do it anyway.
+- [25:03.520] Why? If we stop over there, they would have done it anyway
+- [25:06.190] Look a lot of these states, you know,
+- [25:07.760] I watched this morning as Democrats are complaining.
+- [25:10.440] And they're complaining from states
+- [25:11.880] where they've done it like in Illinois
+- [25:13.690] like in Massachusetts. I watch this lunatic Pocahontas.
+- [25:18.090] She's a total lunatic. I don't know what she's on
+- [25:20.550] She's all jumping up and down like
+- [25:22.130] I’ve never seen anything like it
+- [25:23.730] talking about supporting the communist mayor.
+- [25:27.210] And he's not a socialist. He's a communist, OK?
+- [25:29.930] This is not a socialist man. This is a communist.
+- [25:33.030] If you look at any of his policies
+- [25:35.140] and go back six months,
+- [25:36.900] you don't have to go back further than that.
+- [25:39.300] So they want to put a communist in New York.
+- [25:41.290] Now, the good news is we have a lot of power over that,
+- [25:44.120] because we're the ones with the money.
+- [25:45.740] We send the money, we don't send the money,
+- [25:47.520] it's up to the White House.
+- [25:48.780] A lot of the power in the White house.
+- [25:50.010] But when I watched her jumping up and down,
+- [25:53.050] talking about that and supporting the communists.
+- [25:55.400] But if you look at what's going on with the redistricting
+- [26:00.940] or whatever you want to call it,
+- [26:02.950] the Democrats have done it long before we started.
+- [26:05.570] They've done it all over the place.
+- [26:06.960] They did it in New York.
+- [26:08.170] They did in a lot of different states.
+- [26:10.150] But in Massachusetts –
+- [26:11.460] so somebody used this as an example today.
+- [26:14.370] I was interviewed this morning, and they said, you know,
+- [26:17.980] it's pretty unfair. Trump got 40%.
+- [26:21.410] I'm not proud of that, but I think I probably got more.
+- [26:23.560] But that's okay. I got 40% in Massachusetts,
+- [26:26.260] and yet they have 100% of the vote in terms of Congress.
+- [26:29.660] So there's no Republican, there's anything.
+- [26:32.140] So we should have 40%. You know why? They redistricted.
+- [26:36.790] And they've done it all over the place.
+- [26:38.420] And they're done it in California, by the way.
+- [26:40.120] Before this, they've it in in California.
+- [26:42.300] So we'll see what happens.
+- [26:43.620] We have a wonderful governor in Texas.
+- [26:45.750] He feels strongly about it. It's gonna be up to him.
+- [26:48.830] I think there's tremendous support for it.
+- [26:51.140] And, you know, we've watched the Democrats
+- [26:55.030] destroy our country in four years.
+- [26:56.990] They've destroyed between their open borders
+- [26:59.030] that we talked about, transgender for everybody,
+- [27:02.280] all of the horrible things that they've done.
+- [27:05.130] High taxes, horrible medical provision for people.
+- [27:10.240] We've watched them destroy our county for four years,
+- [27:14.170] and people don't want that.
+- [27:15.570] And people in Texas, as you saw.
+- [27:17.910] I got the highest vote in the history of Texas.
+- [27:20.000] I love Texas. Texas likes me, obviously.
+- [27:22.950] But I got highest vote and that was checked out on the show.
+- [27:25.420] Did you see that where they checked it out?
+- [27:26.970] They said he actually did get the highest vote
+- [27:28.860] in the history of Texas, which disappointed them.
+- [27:31.470] They were very disappointed to hear that.
+- [27:33.540] But Texas is a place that's done very well
+- [27:38.390] with a free enterprise kind of an attitude
+- [27:40.750] with the exact opposite of what's happening in New York
+- [27:43.380] with a communist mayor. And they know what they're doing
+- [27:46.380] and they're doing the right thing.
+- [27:47.830] Yeah.
+- [27:50.730] The Press: Two questions for you – Mr. President, thank you.
+- [27:53.100] Texas Senator John Cornyn.
+- [27:55.010] Texas Senator John Cornyn is asking for your help to force
+- [27:57.840] Democrats back to the state and hold them accountable.
+- [28:00.490] Do you want the federal government
+- [28:01.990] and the FBI to help locate and arrest these Texas Democrats
+- [28:05.870] who have left the state?
+- [28:07.190] The President: Well, I think they've abandoned the state.
+- [28:08.970] Nobody's seen anything like it,
+- [28:10.230] even though they've done it twice before.
+- [28:12.680] And in a certain way,
+- [28:14.630] it almost looks like they've abandoned the State.
+- [28:16.400] It looks very bad. Yeah, go ahead, please.
+- [28:17.730] The Press: Should the FBI get involved?
+- [28:18.930] Should the FBI get involved?
+- [28:20.170] The President: Well, they may have to.
+- [28:21.370] They may have to. No, I know they want him back.
+- [28:23.000] Not only the attorney general,
+- [28:26.030] the governor wants him back, if you look.
+- [28:27.780] I mean, the governor of Texas is demanding they come back.
+- [28:31.660] So a lot of people have demanded they come back.
+- [28:34.390] You can't just sit it out. You have to go back.
+- [28:36.070] You have the fight it out,
+- [28:37.310] that's what elections are all about.
+- [28:38.690] Yeah, please.
+- [28:39.950] The President: Thank you so much, President Trump.
+- [28:41.200] Two questions for you.
+- [28:42.410] One, did you, were you aware of and did you personally approve
+- [28:45.020] the prison transfer for Ghislaine Maxwell,
+- [28:47.310] that your Justice Department –
+- [28:48.640] The President: I didn't know about it at all, no.
+- [28:50.190] I read about it just like you did.
+- [28:51.680] The Press: And do you believe that she is –
+- [28:52.980] The President: It's not a very uncommon thing.
+- [28:54.800] The Press: Do you believe that she's credible
+- [28:56.360] to be listening to your Deputy Attorney
+- [28:58.100] General sat down with her recently?
+- [28:59.870] The President: Well, he's, let me tell you,
+- [29:01.190] he is a very talented man.
+- [29:03.280] His name is Todd Blanche. He's a very legitimate person.
+- [29:06.220] Very high, just a very highly thought-of person,
+- [29:10.890] respected by everybody.
+- [29:13.170] And I didn't talk to him about it,
+- [29:15.380] but I will tell you that whatever he asks
+- [29:18.280] would be totally appropriate,
+- [29:19.590] and it's not an uncommon thing to do that.
+- [29:22.020] And I think he probably wants to make sure that, you know,
+- [29:24.630] people that should not be involved
+- [29:27.130] or aren't involved or not hurt by something that would be
+- [29:30.800] very, very unfortunate, very unfair to a lot of people.
+- [29:33.490] But I will say this, Todd Blanche is one of
+- [29:35.980] the most highly respected people you'll ever meet.
+- [29:38.550] So I know this. I didn't discuss it with him,
+- [29:40.850] but anything he talked about with her
+- [29:43.000] or the fact that he did that,
+- [29:45.240] not unusual, number one, and most importantly,
+- [29:48.250] is something that will be totally above board. Please.
+- [29:53.240] The Press: [inaudible]
+- [29:54.810] The President: Yeah, please, go ahead.
+- [29:56.330] The Press: Thanks, Mr. President.
+- [29:57.530] Mr. President, how much more would you like DOGE
+- [30:00.620] to cut from the federal government?
+- [30:02.250] The President: Well, it's not so much DOGE anymore.
+- [30:04.090] And by the way, I have to say that somebody from DOGE
+- [30:06.310] was very badly hurt last night. You saw that.
+- [30:08.940] A young man who was beat up by a bunch of thugs in DC.
+- [30:13.310] And either they're going to straighten their act
+- [30:14.850] out in terms of government and in terms of protection,
+- [30:18.040] or we're going have to federalize
+- [30:19.320] and run it the way it's supposed to be run.
+- [30:22.400] But it's a question of DOGE.
+- [30:23.840] We have great people, secretaries and all,
+- [30:25.940] working with DOGE and cutting with a,
+- [30:28.400] I said with a scalpel as opposed with an ax.
+- [30:31.390] They're cutting with a fine-tooth comb,
+- [30:34.050] and they're getting rid of people
+- [30:35.430] that aren't doing their job, or bad people,
+- [30:37.690] or bad things, bad policy, et cetera, et cetera.
+- [30:40.760] And I think we've been very successful in that.
+- [30:42.740] And there's more cutting to do, but there's also more getting –
+- [30:46.330] we want smart people in government.
+- [30:48.960] Our country is doing great. I think we are doing probably,
+- [30:53.160] maybe in many ways, better than we've ever done before.
+- [30:55.560] You know, we're taking in trillions, not billions,
+- [30:58.220] trillions and trillions of dollars from other countries
+- [31:01.150] who for years took advantage of us.
+- [31:03.390] They took advantage of the United States
+- [31:05.360] like we were children.
+- [31:06.910] And that's not happening anymore.
+- [31:08.250] Now they're paying a lot of money
+- [31:10.100] and they're paying hundreds of billions of dollars.
+- [31:12.470] Individual countries paying hundreds of billions of dollars,
+- [31:15.380] you're seeing what everybody else is seeing.
+- [31:18.420] And we have a lot of things we can do.
+- [31:21.190] You know, one of the questions asked to me this morning is,
+- [31:23.560] are you gonna make a dividend to the people?
+- [31:25.890] And the purpose of what I'm doing
+- [31:27.570] is primarily to pay down debt,
+- [31:29.160] which will happen in very large quantity.
+- [31:31.840] But I think there's also a possibility
+- [31:34.200] that we're taking in so much money
+- [31:36.140] that we may very well make a dividend
+- [31:38.160] to the people of America.
+- [31:39.480] Thank you all very much. Thank you.
+- [31:42.430] Thank you very much, thank you.
+- [31:44.740] The Press: [inaudible]

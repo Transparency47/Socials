@@ -1,0 +1,310 @@
+<!-- source: https://www.youtube.com/watch?v=pI1BDZdzGsw -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: pI1BDZdzGsw -->
+<!-- date_published: 2025-05-19T19:34:26+00:00 -->
+<!-- date_accessed: 2026-06-02T02:49:52.499346+00:00 -->
+
+# Transcript: President Trump and the First Lady Participate in a Bill Signing, May 19, 2025
+
+- [00:06.040] Announcer: Ladies and gentlemen, the President of the United States
+- [00:09.591] and First Lady Melania Trump.
+- [00:15.040] ♪(patriotic music playing)♪
+- [00:51.700] (applause)
+- [01:01.730] The First Lady: Good afternoon
+- [01:03.542] and welcome to the White House.
+- [01:06.530] It's honor to join you here today for
+- [01:09.182] the signing of the Take it Down Act,
+- [01:12.470] a national victory that will help parents
+- [01:15.660] and families protect children from online exploitation.
+- [01:21.070] This legislation is a powerful step forward
+- [01:24.260] in our efforts to ensure that every
+- [01:27.580] American, especially young people,
+- [01:31.810] can feel better protected from their
+- [01:34.816] image or identity being abused through
+- [01:37.991] nonconsensual, intimate imagery of AI and CII.
+- [01:45.880] Artificial intelligence and social
+- [01:48.537] media are the digital candy for the next generation.
+- [01:52.230] Sweet, addictive, an engineered to have an
+- [01:56.386] impact on the cognitive development of our children.
+- [02:01.370] But unlike sugar, these new technologies
+- [02:05.225] can be weaponized, shape beliefs, and
+- [02:08.791] sadly affect emotions and even be deadly.
+- [02:14.350] Over the past few months, I have met with
+- [02:17.343] brave survivors, deeply loving families
+- [02:20.990] and caring advocates who now -- who know
+- [02:24.155] firsthand the emotional and psychological
+- [02:27.670] toll of NCII and deep fake abuse.
+- [02:34.280] Eliston Barry [phonetic] stood boldly for change,
+- [02:37.621] despite the risk posed to her and her
+- [02:41.490] family by speaking out and making her voice heard.
+- [02:47.230] Eliston, your voice and the voices of so
+- [02:49.793] many like you made this bill a national priority.
+- [02:54.230] Many thanks to members of Congress, both
+- [02:57.970] parties for passing this legislation,
+- [03:01.560] including Speaker Johnson, Senator Cruz,
+- [03:06.649] Senator Colbachar, Congresswoman Salzar,
+- [03:09.745] Congresswoman Dean and Congressman Gottrie,
+- [03:12.408] and so many more.
+- [03:14.450] Thank you all for coming together
+- [03:16.682] to prioritize people over politics.
+- [03:20.682] (applause)
+- [03:27.040] As First Lady, my Be Best Initiative
+- [03:29.581] is focused on improving children's
+- [03:33.430] well-being, encouraging kindness and
+- [03:35.739] creating a safer online environment for our youth.
+- [03:40.500] Today, I'm proud to say that the values of
+- [03:43.597] Be Best would be reflected in the law of the land.
+- [03:48.480] I want to thank my husband, President Trump,
+- [03:51.276] for standing with us on this effort.
+- [03:55.276] (applause)
+- [04:00.290] This signature on this new law is now --
+- [04:04.138] is not where our work ends on this issue.
+- [04:09.110] Now, we look to the Federal Trade
+- [04:11.603] Commission and the private sector to do their part.
+- [04:17.170] Today, through the Take it Down Act, we affirm that
+- [04:21.080] the well-being of our children is central
+- [04:25.340] to our future, of our families, and America.
+- [04:30.110] Now, it is my pleasure to introduce the President.
+- [04:33.550] Thank you.
+- [04:35.550] (applause)
+- [04:50.310] The President: That was a great job.
+- [04:53.110] Well, I want to thank everybody.
+- [04:54.490] We just spent two and a half
+- [04:56.095] hours talking to Vladimir Putin.
+- [04:58.670] And I think some progress has been made.
+- [05:00.890] It's a terrible situation going on over there.
+- [05:03.210] 5,000 young people every single week are being killed.
+- [05:08.190] So, hopefully, we did something.
+- [05:10.810] We also spoke to the heads of most of the
+- [05:13.270] European nations and we're trying to get
+- [05:17.670] that whole thing wrapped up.
+- [05:18.650] What is shame that it ever started in the first place.
+- [05:21.710] But I want to thank Melania and for your
+- [05:23.650] leadership in this very important issue.
+- [05:25.740] It's an amazing issue.
+- [05:26.985] America is blessed to have such a
+- [05:29.151] dedicated and compassionate First Lady.
+- [05:31.940] I would tell you she is very dedicated.
+- [05:34.730] In fact, if you look at just what I heard,
+- [05:38.060] Putin just said, they respect your wife a lot.
+- [05:41.510] I said, what about me?
+- [05:44.190] They're like Melania better.
+- [05:46.150] That wasn't good.
+- [05:47.610] I don't know if that was good.
+- [05:48.730] I'm okay with it.
+- [05:50.150] I'm okay.
+- [05:51.280] I also want to congratulate the First
+- [05:53.438] Lady in securing $25 million in the first
+- [05:56.580] fiscal year, 2026
+- [05:58.330] budget to provide housing and support
+- [06:00.569] for youth transitioning out of the foster care.
+- [06:04.490] And I can say that she loves children and
+- [06:06.602] you really worked very hard on this and
+- [06:08.960] you had a lot of help from some
+- [06:10.569] friends of mine right here.
+- [06:13.190] And a lot of the senators are here in
+- [06:14.539] congressmen and I appreciate you all being here.
+- [06:17.240] We're also grateful to be joined by people
+- [06:20.254] that are just in love with what we're doing.
+- [06:23.470] It's such an important situation.
+- [06:26.730] And commissioners of the Federal Trade
+- [06:28.864] Commission and the CEO of Ex Linda,
+- [06:31.670] Yacarena, where are you Linda?
+- [06:33.230] Where are you Linda?
+- [06:34.670] Thank you.
+- [06:35.410] Thank you, Linda.
+- [06:36.590] Thank you, Linda.
+- [06:37.790] Great job.
+- [06:39.700] Doing a great job.
+- [06:41.610] It's a big deal, right?
+- [06:43.210] That's great.
+- [06:44.290] Today it's my honor to officially
+- [06:46.299] sign the Take It Down Act into law.
+- [06:48.580] It's a big thing, very important,
+- [06:50.640] so horrible what takes place.
+- [06:53.145] This will be the first ever federal law
+- [06:55.579] to combat the distribution of explicit
+- [06:58.150] imaginary, posted without subject's consent.
+- [07:03.230] Take horrible pictures and I guess
+- [07:05.205] sometimes even make up the pictures and
+- [07:07.520] they post it without consent or anything else.
+- [07:10.420] And very importantly, this includes
+- [07:12.661] for forgeries generated by artificial
+- [07:15.130] intelligence known as deepfakes.
+- [07:17.430] We've all heard about deepfakes.
+- [07:18.470] I have all the time, but I don't --
+- [07:19.878] nobody does anything.
+- [07:21.470] I asked Pam.
+- [07:22.210] Can you help me?
+- [07:23.370] Pam, she says, no, I'm too busy.
+- [07:24.695] Too busy doing other things.
+- [07:25.990] Don't worry.
+- [07:26.610] You'll survive.
+- [07:27.430] But a lot of people don't survive.
+- [07:29.690] That's true and so horrible.
+- [07:31.620] With the rise of AI image generation
+- [07:33.660] countless women have been harassed with
+- [07:35.871] deepfakes and other explicit images,
+- [07:38.181] distributed against their will.
+- [07:40.910] This is the wrong and it's just so horribly wrong.
+- [07:45.320] And it's a very abusive situation like in
+- [07:47.875] some cases people have never seen before.
+- [07:50.960] And today we're making it totally illegal.
+- [07:59.020] Thank you.
+- [08:00.220] Upon hearing the stories of so many
+- [08:02.202] women affected, our First Lady made
+- [08:04.720] stopping these abuses a top priority and
+- [08:06.573] she was given tremendous support because people --
+- [08:09.100] she'd go up to people and talk about it.
+- [08:10.701] They say, yeah, we know about it.
+- [08:11.760] We have the problem.
+- [08:12.520] Can we do something?
+- [08:13.220] And she did something about it
+- [08:15.040] with the help of a lot of the people,
+- [08:16.965] especially the political people sitting here.
+- [08:20.540] Today, among Melania's guests in the
+- [08:22.498] gallery, during my address to the joint
+- [08:25.120] session of Congress, was a 15-year-old
+- [08:28.170] young person, Eliston Berry, whose image
+- [08:31.381] was turned into an illicit deepfake by a peer.
+- [08:36.280] Eliston, where are you?
+- [08:37.480] Are you around?
+- [08:38.580] Sit up, darling.
+- [08:39.460] That's fine.
+- [08:40.460] Beautiful.
+- [08:42.680] Great.
+- [08:43.180] Thank you.
+- [08:44.680] Fantastic.
+- [08:46.460] Eliston quickly became a powerful advocate
+- [08:48.683] committed to preventing other girls
+- [08:50.657] from suffering the same abuse.
+- [08:53.050] Eliston, we salute you and we thank you very much.
+- [08:55.300] And it's an honor to have you with us today.
+- [08:57.240] Great job you've done.
+- [09:01.230] Also with us, there are several other
+- [09:03.295] brave Americans whose lives were rocked by
+- [09:05.690] online harassment, including Francesca
+- [09:08.676] Mani [phonetic], as well as a South Carolina State
+- [09:11.940] Representative, Brandon Guffey [phonetic] and his family
+- [09:15.770] who've lost their son to suicide after
+- [09:18.091] he was targeted in an Internet extortion scam,
+- [09:21.650] in which you have a lot of them.
+- [09:23.840] A lot.
+- [09:24.890] I want to thank you both for your
+- [09:26.895] incredible work and to reach this important day.
+- [09:29.620] Could you stand up, please?
+- [09:30.860] Thank you.
+- [09:31.620] Thank you very much.
+- [09:32.481] Great job.
+- [09:33.590] I've read about it.
+- [09:34.510] Thank you very much.
+- [09:37.320] It's a little honor to have you here.
+- [09:39.810] Because there's no place like the White House.
+- [09:41.260] I've found out.
+- [09:42.250] You have a lot of places, and I just left
+- [09:44.219] some of the richest places, and we loved them.
+- [09:47.180] And they gave us a nice contribution of
+- [09:49.826] about $5 trillion, but this is a special place.
+- [09:52.901] Even they talk about it, so it's
+- [09:54.527] great to have everybody here.
+- [09:56.430] Under the law, I will sign
+- [09:58.220] in just a moment, anyone who intentionally
+- [10:00.937] distributes explicit images without the
+- [10:04.010] subject's consent will face up to three years in prison.
+- [10:06.840] In addition, this law establishes new
+- [10:08.813] civil liabilities for online platforms
+- [10:10.940] that refuse to take these images
+- [10:13.370] down promptly upon request.
+- [10:16.060] We will not tolerate online sexual
+- [10:18.187] exploitation, and it's especially --
+- [10:20.441] it's gone on at levels that nobody's ever seen before.
+- [10:24.100] It's getting worse and worse, and I
+- [10:25.914] think this is going to hopefully stop it.
+- [10:28.860] And not easy to do.
+- [10:30.120] People talk about all sorts of
+- [10:31.320] First Amendment, Second Amendment.
+- [10:32.820] They talk about any amendment they could make up.
+- [10:37.790] And we got it through because of some very
+- [10:40.388] brave people, including some very
+- [10:42.471] brave politicians in the audience.
+- [10:45.040] I want to thank the Bill sponsors, Senator Ted Cruz.
+- [10:48.060] Ted, stand up, please.
+- [10:53.370] Thank you, Ted.
+- [10:55.890] A very effective person.
+- [10:57.680] And Congresswoman Maria Salazar, friend of mine.
+- [11:00.840] Thank you, Maria.
+- [11:02.660] Thank you very much.
+- [11:05.800] For their amazing work, and thanks also
+- [11:08.540] to the 99 senators and 408 members of
+- [11:12.040] Congress who voted in favor of the bill.
+- [11:13.680] Wow, I wish we could get that vote on some other things.
+- [11:16.960] We have another bill coming up.
+- [11:17.970] Do you think we'll get that vote?
+- [11:19.640] Maybe not.
+- [11:20.460] We should, but we probably won't.
+- [11:22.620] But working with our First Lady, we've
+- [11:24.571] shown that bipartisanship is still possible.
+- [11:27.140] That's true.
+- [11:28.160] Ninety-nine senators, that's incredible.
+- [11:29.980] Senator, stand up.
+- [11:30.980] Look at that, John.
+- [11:31.660] You're here.
+- [11:32.480] Look at all of the senators.
+- [11:33.580] This is big stuff.
+- [11:34.580] I'm a trouble.
+- [11:35.980] I don't have your names.
+- [11:37.870] They didn't give me these names.
+- [11:39.110] We have so many -- we have half of the Senate here.
+- [11:41.920] Now they're all going to hate me
+- [11:43.221] because I can't introduce you.
+- [11:44.490] So we don't have the time for that.
+- [11:46.060] I have to get back to Putin and people.
+- [11:49.700] But thank you very much for being here.
+- [11:52.720] All of you and Congressman, a lot of them, and women.
+- [11:55.420] Working with our First Lady, though,
+- [11:57.522] we've shown that that bipartisanship is possible.
+- [12:00.870] I mean, it's the first time I've
+- [12:02.428] seen such a level of bipartisanship.
+- [12:04.520] And it's a beautiful thing to do.
+- [12:06.740] I'm not even sure you realize, honey,
+- [12:08.799] you know, a lot of the Democrats
+- [12:11.380] and Republicans don't get along so well.
+- [12:13.120] You've made them get along and
+- [12:14.533] she didn't even know about that.
+- [12:16.405] She didn't know we had a problem.
+- [12:18.450] She didn't know we had a problem.
+- [12:20.240] She got a -- but I want to thank you.
+- [12:21.910] Honey, you've done amazing that
+- [12:23.225] this was done when you started.
+- [12:24.980] And I said, I don't know, it sounds like a tough one.
+- [12:28.180] And yet a very important one and you
+- [12:29.651] got it done so I congratulate you.
+- [12:31.220] And I congratulate Ted, Maria, everybody.
+- [12:33.915] Thank you very much.
+- [12:34.760] Thank you.
+- [12:35.180] And we'll sign the bill.
+- [12:54.570] (indinstinct background chatter)
+- [13:23.210] The President: Okay, you ready?
+- [13:37.100] (inaudible)
+- [13:41.480] (laughter)
+- [13:45.050] (appplause)
+- [13:52.340] The President: Okay, there we have it.
+- [13:53.940] There we are.
+- [13:54.460] That's a big one.
+- [13:56.460] (applause)
+- [14:02.520] The President: Thank you very much, everyone.
+- [14:03.980] And you have some pens here.
+- [14:06.030] Most importantly, right?
+- [14:07.680] Look at these white pens.
+- [14:09.200] I've never seen that before.
+- [14:10.261] I want one of them.
+- [14:12.100] I've never seen it.
+- [14:13.000] Here Pamela, take that.
+- [14:17.220] Thank you very much.
+- [14:23.340] (indistinct background chatter)
+- [14:49.661] ♪(patriotic music playing)♪
+- [15:30.085] Announcer: Ladies and gentlemen, please remain at
+- [15:32.163] your seats until the President and the
+- [15:34.241] First Lady have departed the Rose Garden.
+- [15:36.900] Thank you.

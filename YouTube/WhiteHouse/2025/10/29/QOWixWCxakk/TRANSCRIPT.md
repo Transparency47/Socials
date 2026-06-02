@@ -1,0 +1,291 @@
+<!-- source: https://www.youtube.com/watch?v=QOWixWCxakk -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: QOWixWCxakk -->
+<!-- date_published: 2025-10-29T05:55:47+00:00 -->
+<!-- date_accessed: 2026-06-02T02:42:21.233972+00:00 -->
+
+# Transcript: President Trump Participates in Bilateral Meeting with the President of the Republic of Korea
+
+- [00:00.791] Translator: -- occasions and you are, indeed, one
+- [00:03.970] and only foreign head of state who has made two
+- [00:06.606] state visits to the Republic of Korea.
+- [00:09.342] And it is the first time that -- you are the first
+- [00:13.680] U.S. President that has been conferred the Grand Order
+- [00:16.149] of Mugunghwa by Korea.
+- [00:17.784] So, indeed, our meeting is very meaningful.
+- [00:20.920] And what is also significant and impressive
+- [00:23.990] is that it's been nine months since your
+- [00:26.025] integration, and around the world, in eight
+- [00:29.062] conflict zones, you brought peace.
+- [00:31.431] So you are, indeed, a peacemaker.
+- [00:36.669] So it's almost once a month.
+- [00:40.473] So many people have been killed and so many damages
+- [00:44.577] were done, but you have been successful in
+- [00:47.080] bringing peace to many parts of the world.
+- [00:50.483] And I hope that your peacemaking skills can be
+- [00:53.620] applied to the Korean Peninsula so that we can
+- [00:56.189] bring peace on the Korean peninsula as well.
+- [00:59.025] And if that happens, I believe that you will be
+- [01:02.228] recognized forever in the history of humanity, and
+- [01:05.865] also this will be, indeed, welcomed by Korean people
+- [01:09.602] because permanent peace on the Korean Peninsula has
+- [01:13.206] been a long-desired goal for our country.
+- [01:15.875] And as I mentioned many times, you have wonderful
+- [01:19.879] capabilities and skills as a peacemaker.
+- [01:22.982] And if you can help us and if you an establish peace
+- [01:27.454] on the Korean peninsula, then we will support you
+- [01:31.357] so that you can become a peacemaker on the Korean
+- [01:33.827] peninsula as well.
+- [01:37.130] Chairman Kim, I hope, will see your true heart and
+- [01:44.604] intention.
+- [01:45.839] This time, your meeting with Chairman Kim did not
+- [01:49.409] happen, but I am very happy that you are willing
+- [01:55.315] and open to having a dialog with Chairman Kim,
+- [01:58.585] and the posture itself is a lot for us.
+- [02:04.090] And so far, Chairman Kim has not really accepted
+- [02:08.895] your good intention and your gesture, so this time
+- [02:13.600] it did not happen, but I believe that we've been
+- [02:16.135] planting good seeds for a better future, and I hope
+- [02:20.440] that your gestures and your words will serve as
+- [02:23.743] an opportunity to further open up opportunities for
+- [02:27.080] better relations, and we will continue to support
+- [02:29.782] your endeavor.
+- [02:31.384] As you may know very well, on the Korean Peninsula, a
+- [02:35.388] war is going on, technically speaking.
+- [02:37.690] So the two Koreas are at war, technically, but with
+- [02:42.862] the help of the U.S.
+- [02:43.997] and the international community, we have been
+- [02:46.432] able to grow our economy and advance our country.
+- [02:50.637] And going forward, our bilateral relations are
+- [02:53.773] going to focus on modernizing our alliance
+- [02:57.010] so that our alliance can become more comprehensive
+- [02:59.879] and strategic.
+- [03:01.114] Korea has decided to increase our national
+- [03:03.583] budget for defense.
+- [03:05.552] So military spending and the defense budget will be
+- [03:08.655] expanded to further strengthen our military
+- [03:11.324] capabilities.
+- [03:12.625] As you may know very well, the current defense budget
+- [03:16.996] of the Republic of Korea is about 1.4 times of the
+- [03:21.434] total GDP of the DPRK.
+- [03:23.469] So our budget, our military spending is quite
+- [03:28.641] significant and we're ranked number five in
+- [03:31.144] terms of our military spending.
+- [03:32.812] So already, it's quite a lot of money.
+- [03:35.081] However, I know that it is important to continue to
+- [03:38.718] lessen your burden, military and defense
+- [03:41.354] burden, for us, so we will continue to increase our
+- [03:45.592] military spending.
+- [03:47.827] Furthermore, I'd like to mention a few things.
+- [03:50.797] When I met with you last time, I didn't have a
+- [03:56.002] chance to explain in further detail, so there
+- [03:59.772] may be some misunderstanding.
+- [04:01.774] But when it comes to submarines powered by
+- [04:05.979] nuclear energy, I hope that you will support so
+- [04:09.215] that we can get supplied of nuclear fuels for
+- [04:12.819] submarines.
+- [04:13.553] We're not aiming for nuclear-armed submarines,
+- [04:16.656] but rather conventionally armed submarines powered
+- [04:19.859] by nuclear energy.
+- [04:22.195] Because our conventional submarines have limited
+- [04:25.164] capabilities.
+- [04:26.265] They cannot really effectively monitor and
+- [04:28.735] counter any undersea activities from other
+- [04:31.838] countries.
+- [04:32.505] So if you allow and support the supply of
+- [04:35.642] nuclear energy and nuclear fuel for submarines, then
+- [04:39.646] we will be assisting building submarines and
+- [04:44.350] military vessels.
+- [04:45.418] And if we are equipped with nuclear-powered
+- [04:50.189] submarines, we can your activities around this
+- [04:54.260] region by providing the patrol and other
+- [04:57.964] activities.
+- [04:58.898] I understand that you have already expressed support
+- [05:02.001] for reprocessing of spent fuel and enrichment of
+- [05:07.540] uranium, and if you facilitate the
+- [05:10.610] working-level consultations between our
+- [05:12.478] two countries regarding that, we will be able to
+- [05:14.881] achieve good results.
+- [05:16.149] And you are now working to make America greater
+- [05:20.720] again.
+- [05:22.021] And I can see that there has been a lot of
+- [05:24.290] achievements.
+- [05:25.024] And last night I checked that your stock indexes
+- [05:28.327] have hit another record high.
+- [05:30.430] So you are, indeed, making America great again.
+- [05:34.300] And so, against this backdrop, Korean companies
+- [05:41.007] will continue to invest in the U.S.
+- [05:43.076] and we will continue support your endeavor in
+- [05:46.045] revitalizing your manufacturing sectors and
+- [05:48.681] shipbuilding sector cooperation will also
+- [05:50.917] continue because this will benefit the Korean economy
+- [05:54.253] as well and it will benefit U.
+- [05:56.189] S.
+- [05:56.856] economy and all these efforts will further
+- [06:00.426] advance and our bilateral alliance and relations.
+- [06:05.865] We have 50 million people in Korea, and along with
+- [06:09.836] our Korean people.
+- [06:10.737] Once again, I welcome you to the Republic of Korea,
+- [06:13.606] and I hope that we will continue to work together
+- [06:18.377] for a better Korea, for a better U.S., and also for
+- [06:22.081] a a better bilateral alliance.
+- [06:24.350] Welcome once again.
+- [06:25.518] Thank you very much.
+- [06:27.086] (applause)
+- [06:30.590] The President: Well, I'd like to thank you very
+- [06:31.858] much, and I want to thank all of your people, many
+- [06:34.127] of whom I know, and we've been dealing.
+- [06:36.329] They're very tough negotiators, and that's
+- [06:38.765] the way it should be, and I will say that we're
+- [06:41.167] working together.
+- [06:42.168] There's a great love between our communities,
+- [06:44.203] between our people, between leadership, and
+- [06:47.073] we're all friends.
+- [06:48.775] I know you showed me a picture from a long time
+- [06:51.644] ago of you and I, and you're looking better now
+- [06:54.714] than you did then.
+- [06:55.515] It was quite a while ago, so you're doing something
+- [06:57.450] well.
+- [06:58.117] But I will say this, that the Korean Peninsula, and
+- [07:02.321] I know you are officially at war, but we will see
+- [07:06.192] what we can do to get that all straightened out.
+- [07:08.661] We've been very lucky.
+- [07:10.997] I've been fortunate to be able to solve a lot of
+- [07:15.301] problems in the world.
+- [07:16.435] I didn't even know there were so many problems.
+- [07:18.237] There were countries that nobody knew that they were
+- [07:21.073] even fighting, and yet they were killing millions
+- [07:22.975] and millions of people.
+- [07:24.744] And we got them with the exception of one, which I
+- [07:26.846] think we're going to get straightened out, Russia,
+- [07:29.048] Ukraine.
+- [07:30.116] but we got him all done, all finished.
+- [07:33.386] And you know that I'll be working on this very hard
+- [07:35.288] with you, with your team, with a lot of other
+- [07:37.356] people, see if we can do something that makes
+- [07:39.192] sense.
+- [07:40.059] I know Kim Jong Un very well.
+- [07:41.427] We get along very well, we really weren't able to
+- [07:44.363] work out timing.
+- [07:45.264] We have President Xi is coming tomorrow and that
+- [07:48.768] was something that obviously is very
+- [07:50.536] important to the world, to all of us.
+- [07:52.371] You'll be watching very carefully.
+- [07:53.773] We're meeting right here.
+- [07:55.274] And we're all looking forward to that.
+- [07:58.878] I think it's going to work out very, very well for
+- [08:01.514] everybody.
+- [08:02.849] And I look forward to seeing him.
+- [08:06.085] And that was our focus, really, for this visit.
+- [08:09.989] But we'll have other visits.
+- [08:11.891] And we'll work very hard with Kim Jong-un and with
+- [08:15.494] everybody on getting things straightened out,
+- [08:17.997] because that makes sense.
+- [08:19.031] I have a couple of phrases that I like.
+- [08:22.301] One of them is common sense.
+- [08:23.636] It's common sense that that should work out and I
+- [08:27.640] feel certain that it will.
+- [08:29.308] May take a little time, but you have to have a
+- [08:31.010] little patience.
+- [08:31.811] But I feel absolutely certain that it will.
+- [08:35.014] In the meantime, what you've done is amazing.
+- [08:36.816] First of all, the welcome and the beautiful honor
+- [08:40.453] you bestowed on me as the only American President.
+- [08:43.556] That's really a great tribute to our country.
+- [08:48.194] Not to me, it's a great tribute to our county.
+- [08:50.096] But I had it focused toward you as opposed to
+- [08:52.865] against you, which some people did.
+- [08:55.301] What you've done and what you've created, what you
+- [08:57.370] have done in really a very short period of time,
+- [09:00.206] relatively speaking, is amazing, it's really
+- [09:04.310] amazing.
+- [09:04.977] And you're working with us now on shipbuilding
+- [09:07.513] because you've become a master of shipbuilding.
+- [09:09.515] You know, during World War II, we were the biggest.
+- [09:13.185] We were number one, by far, in the United States.
+- [09:15.554] And then through a series of very bad decisions or
+- [09:19.926] lack of caring, we really didn't make ships very
+- [09:23.095] much anymore.
+- [09:23.796] We made other things very well, but we didn't make
+- [09:25.798] ships.
+- [09:26.465] Well, making ships is a necessity.
+- [09:29.201] And I know we're working in the Philadelphia yards
+- [09:31.570] and in various other places in the United
+- [09:33.839] States where you're coming.
+- [09:34.907] We're going to make ships together in the United
+- [09:37.677] States.
+- [09:38.344] And we're going start up shipbuilding, and we'll be
+- [09:40.579] right at the top, or at least toward the top, in a
+- [09:43.015] pretty short period of time.
+- [09:44.317] But we have a lot of industries that are
+- [09:47.753] together.
+- [09:48.821] And we have a lot of industries where we're
+- [09:50.556] leading.
+- [09:51.223] We're leading in AI now.
+- [09:52.058] We're leafing in a lot the different things.
+- [09:53.993] We have many car companies coming back, as you know,
+- [09:56.128] to the United States.
+- [09:58.197] Yesterday, I was in Japan, and Toyota is investing
+- [09:59.865] $10 billion on building car plants, numerous car
+- [10:01.200] plants throughout the country, with American
+- [10:02.568] workers, largely American workers.
+- [10:03.903] And we had many, many of them opening.
+- [10:05.237] So we have lot of industry coming back.
+- [10:06.572] We're going to be having, I think by the end of my
+- [10:07.907] first term, we should have $21 or $22 trillion
+- [10:09.241] invested in the United States from other people
+- [10:10.609] and countries.
+- [10:11.277] And that's a record that's not even close.
+- [10:12.611] I think the record could be just about a fifth,
+- [10:13.946] one-fifth of that.
+- [10:14.613] And the previous administration had less
+- [10:15.948] than $1 trillion in four years.
+- [10:16.615] And we're going have maybe $21 trillion, could be
+- [10:17.950] even higher than that, in one year.
+- [10:19.318] So nobody's ever seen anything like that.
+- [10:20.653] No country has ever seen anything like that.
+- [10:21.988] But I just want to let you know, it's a special bond
+- [10:23.322] that we've had.
+- [10:23.990] We've had it for a long time, but you've never had
+- [10:33.299] it as strong as you've had it with me.
+- [10:52.918] And it's tremendous honor, I will tell you, driving
+- [10:58.090] up in The Beast, that's called the beast.
+- [11:00.659] Driving up in The Beast, the limo, with those very
+- [11:04.964] powerful people carrying very vicious-looking
+- [11:07.800] weapons, it was something.
+- [11:10.036] That was some spectacle and some beautiful scene,
+- [11:12.938] and I know what goes to making that happen.
+- [11:15.975] But it was so perfect, so flawlessly done, and all
+- [11:18.844] of us.
+- [11:19.545] I can speak for my entire cabinet and all the people
+- [11:21.547] with me.
+- [11:22.381] I don't think we've ever seen anything like that.
+- [11:25.217] So I just want to thank you for that.
+- [11:26.652] That was a very special welcome, and it will be
+- [11:29.889] remembered.
+- [11:30.556] And Marco, I think you're working extremely well
+- [11:34.093] with the defensive side.
+- [11:36.162] Defense and offense.
+- [11:37.296] We have both defense and offense, and they're
+- [11:40.466] equally as good.
+- [11:41.133] In fact, our defense is very important from the
+- [11:45.638] standpoint of helping other countries.
+- [11:47.840] But we're going to take care of -- we're going to
+- [11:49.475] work with you and we're take care of the one, it's
+- [11:52.711] really a lingering cloud.
+- [11:54.647] I would call it a lingering cloud that's
+- [11:57.083] over your head.
+- [11:57.750] We're going to see if we can get that straightened
+- [11:59.118] out.
+- [11:59.785] And I just want to thank you again for the welcome.
+- [12:01.854] And I wanted to say, we've been friends for a long
+- [12:05.291] time and you are going to be a great president.
+- [12:08.461] You already are.
+- [12:09.795] And if we could do this together, then you'll go
+- [12:11.964] down as the greatest of them all.
+- [12:13.966] We'll try and make that happen.
+- [12:15.101] Thank you very much.
+- [12:16.001] Great honor.
+- [12:16.669] Thank you.
+- [12:18.172] (applause)

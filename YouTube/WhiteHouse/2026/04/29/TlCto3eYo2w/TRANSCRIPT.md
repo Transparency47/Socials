@@ -1,0 +1,450 @@
+<!-- source: https://www.youtube.com/watch?v=TlCto3eYo2w -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: TlCto3eYo2w -->
+<!-- date_published: 2026-04-29T01:15:44+00:00 -->
+<!-- date_accessed: 2026-06-02T02:34:42.691305+00:00 -->
+
+# Transcript: Dinner with the King and Queen of the United Kingdom of Great Britain and Northern Ireland
+
+- [00:10.700] Announcer: Ladies and gentlemen,
+- [00:12.312] the President of the United States, Donald J. Trump,
+- [00:15.181] and First Lady Melania Trump, accompanied
+- [00:17.183] by their Majesties, King Charles III and
+- [00:19.686] Queen Camilla.
+- [00:23.295] ♪ (Hail to the Chief) ♪
+- [01:25.506] (applause)
+- [01:40.348] The President: Thank you very much.
+- [01:41.734] Please.
+- [01:53.179] This is a great honor, and we welcome their
+- [01:57.183] majesties, King Charles III and Queen Camilla of
+- [02:02.088] the United Kingdom to the White House.
+- [02:05.425] Very special place.
+- [02:06.593] Very, very special.
+- [02:08.495] And I also want to, before we really begin, I want to
+- [02:11.898] congratulate Charles on having made a fantastic
+- [02:17.203] speech today at Congress.
+- [02:18.905] He got the Democrats to stand.
+- [02:20.373] I've never been able to do that.
+- [02:21.708] I couldn't believe it.
+- [02:25.011] I couldn't believe it.
+- [02:26.846] They liked him more than they've ever liked any
+- [02:30.817] Republican or Democrat, actually.
+- [02:33.887] So I just want to thank you and congratulations.
+- [02:36.222] It's not an easy thing to do.
+- [02:37.824] That's a tough place.
+- [02:39.959] It's a true privilege to have you here for this
+- [02:42.595] historic state visit.
+- [02:45.164] Last fall, Melania and I had the pleasure of
+- [02:47.433] visiting their majesties at Windsor Castle, a
+- [02:51.938] structure that's so beautiful and so long that
+- [02:55.775] it never seemed to end.
+- [02:57.010] I looked down as a former real estate person and --
+- [03:01.915] -- it just went on forever.
+- [03:04.183] And it was built by a gentleman named William,
+- [03:07.854] the Conqueror in the year 1070.
+- [03:12.458] And I asked the king, I said, "Was he a nice man,
+- [03:15.795] William the Conqueror?"
+- [03:17.463] He said, "I tend to doubt it.
+- [03:19.265] I don't think so." When they call you William the
+- [03:22.335] Conqueror, generally speaking, you're not going
+- [03:24.170] to be too nice.
+- [03:24.938] But he must have been something 'cause it was
+- [03:27.640] nothing like I've ever seen, Windsor Castle.
+- [03:30.543] But tonight, in return, we are really doing something
+- [03:36.049] that's very special, preparing to celebrate the
+- [03:38.785] 250th anniversary of our declaration of
+- [03:42.755] independence.
+- [03:43.423] It's a big time in our country.
+- [03:44.757] Very big time.
+- [03:45.658] And it's only natural that Americans begin this
+- [03:56.436] commemoration by paying tribute to the
+- [03:59.339] transcendent bond we share with the nation that
+- [04:03.610] Thomas Jefferson himself called our mother country.
+- [04:06.679] He used to go around saying, "This is our
+- [04:08.514] mother country." How nice.
+- [04:11.017] From English towns and Scottish hills, from Welch
+- [04:13.853] mountains and Irish villages, a people unique
+- [04:17.824] in history sailed across the mighty Atlantic to
+- [04:20.526] settle and civilize this continent in the name of
+- [04:25.431] God, king and country.
+- [04:28.835] So beautiful.
+- [04:30.470] They called it New England and meant that very, very
+- [04:34.474] literally.
+- [04:35.842] The first Americans saw themselves as free men
+- [04:38.711] carrying the forward and, and central liberties and
+- [04:43.483] ancient rights of the Anglo-Saxons into this new
+- [04:48.054] and beautiful world.
+- [04:50.189] In the eyes of America's founders, our war of
+- [04:53.960] independence was fought not to reject this
+- [04:57.030] heritage, but to reclaim it and perfect it.
+- [05:01.401] As the founding father, George Mason, wrote, "We
+- [05:04.470] claim nothing but the liberty and privileges of
+- [05:07.607] Englishmen in the same degree as we had still
+- [05:11.110] continued among our brethren." When we were in
+- [05:14.580] Great Britain, the Declaration of
+- [05:18.051] Independence was a miracle for the ages that sparked
+- [05:22.121] a far-reaching revolution in self-government and
+- [05:25.825] human freedom.
+- [05:27.360] But even though the political bonds between
+- [05:29.729] the United States and Great Britain were
+- [05:32.131] dissolved forever, they thought on July 4th, 1776,
+- [05:39.539] the more powerful strands of memory, culture and
+- [05:42.275] identity proved unbreakable in any
+- [05:45.178] conflict and grew into a friendship unlike any
+- [05:48.715] other on earth, a very, very special and
+- [05:53.453] incredible friendship.
+- [05:55.488] Historians have noted that to this day, the distinct
+- [05:59.659] regions of the United States still echo with the
+- [06:02.261] particular accents, habits and traditions of the
+- [06:05.765] British communities that first settled them
+- [06:09.135] centuries ago.
+- [06:11.270] The names of half of the original American states
+- [06:14.540] refer to members of the British Royal Family, as
+- [06:18.344] do American cities from Charleston to Annapolis,
+- [06:22.248] Charlotte to Albany, and even the place where I
+- [06:25.885] grew up and actually loved very much, Queens, New
+- [06:28.454] York.
+- [06:29.122] Who would've thought?
+- [06:30.957] But far beyond names and principles, there's
+- [06:34.627] something unique and very special that is always
+- [06:37.296] united.
+- [06:37.964] Our two people, a certain nobility of spirit and
+- [06:41.801] heroic soul.
+- [06:44.537] The same audacity that called a small island
+- [06:47.974] kingdom to rule the seven seas and rule them you
+- [06:51.244] did, inspired the children of 13 American colonies to
+- [06:56.949] explore a great frontier in a very, very dangerous
+- [07:00.119] frontier and settle what was known as the wild,
+- [07:04.791] wild west.
+- [07:07.026] The men who planted the American flag on the moon
+- [07:10.296] carried them.
+- [07:12.131] The same hunger for adventure and achievement
+- [07:15.034] as those who raised the Union Jack above
+- [07:18.070] Antarctica and first sailed Saint George's
+- [07:21.808] Cross all around the globe.
+- [07:24.744] The American soldiers who crossed the Atlantic to
+- [07:27.480] freedom, rescue in 1944 were moved by the same
+- [07:32.518] keen sense of righteousness that drove
+- [07:35.354] the English crusaders to the Holy Land a thousand
+- [07:39.859] years ago.
+- [07:41.427] The entire world has been uplifted by this distinct
+- [07:44.363] and special character we share.
+- [07:46.632] This unstoppable daring, this unconquerable
+- [07:50.703] courage.
+- [07:51.370] It really is.
+- [07:52.038] It's unconquerable.
+- [07:54.841] And speaking of that, where's Rory McIlroy?
+- [07:57.243] Can stand up, Rory.
+- [07:58.544] Will you please?
+- [07:59.712] That was unconquerable courage.
+- [08:02.415] That was very good, Rory.
+- [08:08.087] I don't know if that helps them talk about how
+- [08:12.425] wonderful the speech, but I had to interrupt my
+- [08:14.594] speech because I watched that man win a tournament
+- [08:17.597] that was, that was a tough, that was a tough
+- [08:20.499] one.
+- [08:21.167] Congratulations.
+- [08:21.834] Very proud of you.
+- [08:23.636] All right, now I'll get back to my speech, Rory,
+- [08:25.538] okay?
+- [08:27.640] But it was, it was unconquerable courage,
+- [08:30.376] this inexhaustible supply of ambition, ingenuity,
+- [08:33.980] and resolve.
+- [08:35.615] From the trenches of World War I to the beaches of
+- [08:38.918] Normandy, from the frozen hills of Korea, to the
+- [08:42.455] scorching sands of North Africa and the Middle
+- [08:45.258] East.
+- [08:46.325] And we're doing a little Middle East work right
+- [08:48.127] now, too of you might know.
+- [08:49.862] And we're doing very well.
+- [08:51.097] We have militarily defeated that particular
+- [08:55.101] opponent, and we're never going to let that opponent
+- [08:56.435] ever, Charles agrees with me, even more than I do.
+- [08:57.770] We're never going to let that opponent have a
+- [08:59.572] nuclear weapon.
+- [09:01.374] They know that, and they've known it right now
+- [09:09.515] very powerfully.
+- [09:11.450] But our countries have stood together, defiant
+- [09:14.320] and triumphant against the forces of communism,
+- [09:17.056] fascism, and tyranny.
+- [09:19.025] Together, we have expanded the reaches of human
+- [09:22.028] knowledge and endeavored always to make this world
+- [09:26.499] safer, more prosperous, more just, and more free.
+- [09:31.037] Ours is a treasured friendship, an eternal
+- [09:34.173] bond, and a true story of extraordinary heroism and
+- [09:38.811] skill.
+- [09:39.478] A lot of skill, tremendous skill.
+- [09:42.381] History has known no more powerful force than the
+- [09:44.884] combination of American patriotism and British
+- [09:48.955] pride.
+- [09:50.423] The British Empire that began here in America
+- [09:53.359] certainly did not end here.
+- [09:56.329] The sons and daughters of the British Isles went on
+- [09:59.098] to found more countries and spread more
+- [10:01.801] civilization than any nation before.
+- [10:05.104] They built an English-speaking world
+- [10:07.506] upon which the sun never sets and provided an
+- [10:10.910] example to which free people will always turn.
+- [10:14.547] It always turned.
+- [10:16.215] They have such love and such respect.
+- [10:19.185] Today, most of Britain's former colonies have no
+- [10:22.288] idea what they truly owe to this towering legacy of
+- [10:26.359] law, liberty and British custom that they were
+- [10:30.029] given.
+- [10:30.796] We were given that, and it was a great, great gift.
+- [10:34.533] Tonight on the eve of our 250th year of cherished
+- [10:38.704] independence, we turn to the sovereign embodiment
+- [10:42.174] of our British heritage and say sincerely, thank
+- [10:45.678] you to our friends, the United Kingdom for the
+- [10:48.681] richest inheritance that any nation has ever given
+- [10:51.650] to another.
+- [10:53.786] May our two countries stand together forever for
+- [10:56.822] liberty, for justice, and for the glory of God.
+- [11:01.761] Ladies and gentlemen, I offer a toast to 250 years
+- [11:05.865] of American freedom, and very importantly, to a
+- [11:09.135] great man, his majesty, King Charles III.
+- [11:12.805] Thank you very much.
+- [11:23.206] (applause)
+- [12:04.813] King Charles III: Mr. President, First Lady,
+- [12:07.593] my wife and I are most grateful to you for your
+- [12:11.130] generous hospitality as the United States
+- [12:14.200] celebrates this very special anniversary year
+- [12:16.535] of the Declaration of Independence.
+- [12:20.206] And, and may I also just start by paying tribute to
+- [12:25.344] your own courage and steadfastness as well as
+- [12:29.648] to your security services for their swift actions on
+- [12:33.819] Saturday evening in preventing further injury.
+- [12:36.989] (applause)
+- [12:40.426] My thoughts, my thoughts and sympathies are very
+- [12:49.535] much with you, the First Lady, and all those guests
+- [12:52.605] for whom this must have been a very upsetting
+- [12:57.376] incident.
+- [12:58.043] As the words of that famous anthem remind us,
+- [13:01.547] this is the land of the free and home of the
+- [13:05.050] brave, as your own response demonstrates.
+- [13:09.321] What, um, used to be called in the last war in
+- [13:11.724] the United Kingdom keep calm and carry on.
+- [13:18.564] I now realize there's, to my amazement that my first
+- [13:23.335] visit to this remarkable country was over 50 years
+- [13:27.473] ago.
+- [13:28.140] And Mr. President, the golden threads of history
+- [13:30.943] and heritage between our lands are also embodied,
+- [13:34.446] as you mentioned earlier today, in, um, your own
+- [13:37.783] family and your own family's story, whose
+- [13:41.453] roots trace back to the beautiful landscapes of
+- [13:44.123] Britain's outer Hebrides and continue, as we know
+- [13:49.361] in the great golf courses of the Highlands.
+- [13:53.232] I can only imagine, um, the immense pride with
+- [13:56.802] which your own dear mother, indeed, both your
+- [14:00.406] parents, must be looking down on the great office
+- [14:04.443] to which you have been elected for a historic
+- [14:07.112] second term.
+- [14:10.382] And if I may say so, it is a particular pleasure to
+- [14:13.652] be back in this wonderful building, the heart of
+- [14:16.622] your democracy.
+- [14:18.691] On this occasion, I cannot help noticing the
+- [14:23.562] re-adjustments to the east wing, Mr. President.
+- [14:26.432] Um, following your visit to Windsor Castle last
+- [14:31.070] year, and I'm sorry to say that we British, of
+- [14:33.606] course, made our own, um, small attempt at real
+- [14:37.276] estate redevelopment of the White House in 1814.
+- [14:46.185] Anyway, I'm so glad we have an important
+- [14:50.389] opportunity at this critical time to renew
+- [14:53.959] those bonds of history and friendship between our
+- [14:57.263] nations and our peoples.
+- [14:59.999] Two-and-a-half centuries ago, the United States of
+- [15:02.768] America was founded through an audacious and
+- [15:05.971] visionary act of self-determination.
+- [15:09.742] From the beginning, the American character has
+- [15:12.645] been defined by courage, tenacity, and the spirit
+- [15:16.515] of adventure.
+- [15:18.550] As the, um, direct descendant of King George
+- [15:21.220] III, I know this is a nation that never gives
+- [15:24.990] up.
+- [15:27.359] And my family's history remains reflected in your
+- [15:30.496] maps, which read, rather like our Christmas card
+- [15:34.566] list, across the ages, North and South Carolina,
+- [15:40.272] Virginia, Maryland, and the cities of Charleston,
+- [15:45.811] a particular favorite of mine obviously Georgetown,
+- [15:52.384] and for that matter, Georgia, Annapolis, as you
+- [15:55.921] mentioned, and further favorites, Prince William
+- [15:59.591] County and Williamsburg.
+- [16:01.226] This said, our French friends can feel equally
+- [16:06.832] at home with a glance at a map.
+- [16:10.402] Indeed, you recently commented, Mr. President,
+- [16:13.038] that if it were not for the United States,
+- [16:15.407] European countries would be speaking German.
+- [16:18.911] Dare I say that if it wasn't for us, you'd be
+- [16:20.779] speaking French.
+- [16:34.927] Of course, we both love our French cousins
+- [16:37.730] greatly.
+- [16:38.831] And we three states are not only bound by our
+- [16:41.433] shared values, but by a profound belief that
+- [16:44.603] together we are more than the sum of our parts.
+- [16:49.575] Out of the fires of a bitter and bloody
+- [16:51.643] revolutionary war, the triumph of the father of
+- [16:54.580] this country, George Washington, and his fellow
+- [16:57.082] founders, was to forge a democracy founded upon the
+- [17:01.086] rights to liberty and the rule of law.
+- [17:03.155] A story of Britain and America is one of
+- [17:08.227] reconciliation from adversaries to the closest
+- [17:12.297] of allies, not always perhaps following the
+- [17:15.167] straightest path.
+- [17:17.302] As you said yourself, Mr. President, during your
+- [17:19.438] own state visit at Windsor Castle last year, ours is
+- [17:22.941] an unbreakable bond of history and heritage,
+- [17:26.145] culture and commerce, industry and invention,
+- [17:29.515] and we are determined to face the future together.
+- [17:34.286] Tonight, we are here to renew an indispensable
+- [17:37.890] alliance which has long been a cornerstone of
+- [17:40.325] prosperity and security for both British and
+- [17:44.296] American citizens.
+- [17:46.932] Our people have fought and fallen together in defense
+- [17:50.769] of the values we cherish.
+- [17:53.505] Across the ocean and from coast to coast, we have
+- [17:56.708] traded, innovated, and created together.
+- [18:01.113] We've stood together through the best and worst
+- [18:04.249] of times.
+- [18:05.984] However the challenges we now face from those who
+- [18:09.521] wishes harm across the world, to balancing the
+- [18:12.224] risks and opportunities of powerful new technologies,
+- [18:16.361] to the threats to the very international rules that
+- [18:19.031] have allowed us to trade and have kept power in
+- [18:21.733] balance for 80 years, those challenges encourage
+- [18:25.304] us to reaffirm tonight the basis on which our
+- [18:28.540] partnership has been built.
+- [18:31.510] And yes, we have had our moments of difficulty,
+- [18:34.713] even in more recent history.
+- [18:37.483] Uh, when my mother visited in 1957, not the least of
+- [18:41.653] her tasks was to help put the special back into our
+- [18:45.023] relationship after a crisis in the Middle East.
+- [18:49.161] Nearly 70 years on, it is hard to imagine anything
+- [18:51.997] like that happening today, but it is not hard to see
+- [18:57.135] how important the relationship remains in
+- [19:00.939] matters both seen and unseen.
+- [19:04.076] My mother's first prime minister, Sir Winston
+- [19:06.512] Churchill, understood this so well.
+- [19:10.616] But then he himself was half American, a tradition
+- [19:13.752] of shared transatlantic heritage, which I am
+- [19:16.488] pleased to say is alive and well in the White
+- [19:18.390] House today.
+- [19:20.626] Indeed, such was the closeness that Sir
+- [19:23.829] Winston, while staying here in the White House in
+- [19:26.532] those rooms you showed us upstairs, emerged naked
+- [19:30.435] from the bathtub to discover the door opening
+- [19:34.239] as President Roosevelt came in for a chat.
+- [19:38.110] With rapier wit, the president cast aside any
+- [19:42.347] embarrassment by declaring that the Prime Minister
+- [19:46.084] has nothing to conceal from the President of the
+- [19:48.287] United States.
+- [19:50.322] This warmth came after testing times between our
+- [19:55.994] leaders in the early 1940s.
+- [19:58.964] The kinship and friendship of many centuries provided
+- [20:03.135] great reassurance to my late grandfather, King
+- [20:06.204] George VI, as it did to my late mother.
+- [20:10.275] It means every bit as much to me.
+- [20:14.379] Of course, my late mother met knew fewer than 13
+- [20:17.316] serving presidents.
+- [20:18.884] Thankfully, all of them fully clothed.
+- [20:23.722] The first president I had the honor of meeting at
+- [20:26.024] the age of 10 in 1959, when he came to Balmoral,
+- [20:29.094] was President Eisenhower who had served as Supreme
+- [20:32.664] Commander of the Allied Expeditionary Forces
+- [20:34.499] during World War II, at a most critical time in the
+- [20:39.438] darkest days of the 20th century.
+- [20:42.874] American leadership helped rebuild a shattered
+- [20:46.044] continent, playing a decisive role as a
+- [20:49.781] defender of freedom in Europe.
+- [20:51.883] We and I shall never forget that, nor least,
+- [20:56.521] not least as freedom is again under attack,
+- [20:59.625] following Russia's invasion of Ukraine.
+- [21:03.028] Today, our partnerships in NATO and ORCUS deepen our
+- [21:08.233] technological and military cooperation and ensure
+- [21:11.770] that together we can meet the challenges of an
+- [21:14.506] increasingly complex and contested world.
+- [21:18.543] And, um, speaking of submarine alliances, there
+- [21:22.280] was one particular ORCUS predecessor launched from
+- [21:26.118] a UK shipyard in 1944 that served for the majority of
+- [21:32.290] her life attached to the fourth submarine squadron
+- [21:36.962] in Australia, playing a critical role during the
+- [21:41.099] war in the Pacific.
+- [21:42.267] Her name, HMS Trump.
+- [21:47.939] So tonight, Mr. President, I am delighted to present
+- [21:50.842] to you as a personal gift, um, the original bell,
+- [21:58.150] which hung on the conning tower of your valiant
+- [22:01.053] namesake.
+- [22:01.720] May, may it stand as a testimony to our nation's
+- [22:09.127] shared history and shining future.
+- [22:12.197] And should you ever need to get hold of us or just
+- [22:15.600] give us a ring.
+- [22:16.301] (applause)
+- [22:24.209] For 250 years, the ingenuity and the
+- [22:34.586] imagination of the people of the United States have
+- [22:37.456] been an inspiration to the world.
+- [22:39.458] This land of opportunity has nourished some of
+- [22:41.860] humanity's greatest minds, from the industrial age to
+- [22:45.063] the space age.
+- [22:46.431] So many miracles of the modern world have been and
+- [22:48.433] still are invented in America.
+- [22:50.936] Indeed, we have followed the voyage of Artemis II,
+- [22:53.004] or Artemis II, as my family and I might like to
+- [22:58.477] call it with close attention.
+- [23:01.146] Now, I know you have big plans for the moons,
+- [23:03.982] Mr. President, but I, I've actually checked the
+- [23:06.418] papers, and I rather suspect it is already part
+- [23:09.321] of the commonwealth, I'm afraid.
+- [23:10.856] Ladies and gentlemen, on this visit, on this week's
+- [23:15.560] visit, I look forward to meeting the people and
+- [23:18.296] communities of this dynamic country, including
+- [23:21.099] celebrating some of the work of my king's trust,
+- [23:24.336] which is, it has been doing in these
+- [23:25.804] communities, helpfully, helping give young people
+- [23:28.907] a chance to succeed across America in this year when
+- [23:32.677] we mark 50 years of the trust.
+- [23:34.212] Can you believe it?
+- [23:36.214] Every year, millions of Britains journey to this
+- [23:39.084] remarkable country to experience its glorious
+- [23:42.187] national parks, soaring mountains and ancient
+- [23:44.990] forests.
+- [23:46.224] From the peaks of the Pacific Northwest to the
+- [23:48.560] rugged shores of the Atlantic, from the vast
+- [23:51.196] expanses of the West to the sweeping prairies and
+- [23:54.332] canyons, the natural beauty of this land is
+- [23:56.701] found in every corner.
+- [23:58.804] And in sport, in just a few weeks the United
+- [24:03.341] States and Canada will be among those to welcome the
+- [24:06.611] world as hosts of the FIFA World Cup.
+- [24:09.314] So in one sense, Mr. President, as heads of
+- [24:11.583] state, we are joined hosts.
+- [24:15.353] We call this game, by the way, football
+- [24:17.222] Mr. President.
+- [24:19.691] And, um, I can only say as head of, as the head of
+- [24:22.394] state of five competing countries, I will be
+- [24:24.896] watching the matches closely with great
+- [24:27.265] enthusiasm.
+- [24:28.366] After all, we always like favorable odds.
+- [24:32.003] So this city, Washington DC is the home of more
+- [24:34.472] Shakespeare folios than anywhere in the world.
+- [24:38.543] 82 copies are carefully preserved and shared at
+- [24:41.546] the Folger Library.
+- [24:43.048] And at this time, when the search for peace in the
+- [24:45.083] world is more critical than ever, I can only turn
+- [24:48.486] to Shakespeare's genius to remind us of the plea for
+- [24:51.923] peace spoken by the Duke of Burgundy at the
+- [24:55.493] conclusion of Henry the V.
+- [24:58.096] My speech entreats that I may know why gentle peace
+- [25:02.734] should not bless us with her former qualities.
+- [25:07.472] Thank you, Mr. President and Mrs. Trump, for your
+- [25:10.775] splendid dinner this evening, which, um, may I
+- [25:13.845] say is a very considerable improvement on the Boston
+- [25:17.782] Tea Party.
+- [25:20.318] So whether your cup contains tea, wine,
+- [25:23.989] scotch, whiskey, bourbon, or even Kohler, let us
+- [25:28.693] raise our glasses and voices as we toast the
+- [25:32.063] past, the present, and the future, thank you of our
+- [25:39.371] two proud and allied nations.
+- [25:41.740] To the United States and the United Kingdom, God
+- [25:44.876] bless both our countries.
+- [25:57.649] (applause)
+- [26:07.879] ♪ (orchestral music playing) ♪

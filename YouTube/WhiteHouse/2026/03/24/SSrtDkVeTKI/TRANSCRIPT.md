@@ -1,0 +1,134 @@
+<!-- source: https://www.youtube.com/watch?v=SSrtDkVeTKI -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: SSrtDkVeTKI -->
+<!-- date_published: 2026-03-24T18:50:03+00:00 -->
+<!-- date_accessed: 2026-06-02T01:03:08.198182+00:00 -->
+
+# Transcript: Fostering the Future Together Global Coalition Summit: First Lady Melania Trump
+
+- [00:00.520] It is wonderful to receive such an
+- [00:02.680] impressive delegation of world leaders,
+- [00:06.320] first spouses,
+- [00:08.240] and be best-in-class
+- [00:10.320] tech companies,
+- [00:12.040] all with a shared purpose
+- [00:14.600] to empower our next generations'
+- [00:17.720] advancement in technology and education.
+- [00:22.960] Welcome,
+- [00:24.440] Albania,
+- [00:26.160] Antigua and Barbuda,
+- [00:28.320] Aruba,
+- [00:29.680] Bosnia and Herzegovina,
+- [00:32.119] Bangladesh,
+- [00:33.680] Belize, and Bolivia.
+- [00:37.080] It is my distinct honor to have Burundi,
+- [00:40.600] Cabo Verde,
+- [00:42.240] Congo,
+- [00:43.440] Costa Rica,
+- [00:44.880] Dominican Republic, Ecuador,
+- [00:48.120] Equatorial Guinea,
+- [00:49.920] Estonia,
+- [00:51.280] France,
+- [00:52.760] Gambia, Georgia,
+- [00:55.040] Ghana, and Guatemala here in Washington,
+- [00:58.360] D.C.
+- [01:00.480] Greetings, Israel, Kenya, Kosovo,
+- [01:04.839] Lithuania, Malta, Malawi, Montenegro,
+- [01:09.320] Morocco,
+- [01:10.480] Nigeria,
+- [01:12.000] North Macedonia, Palau,
+- [01:15.040] Panama, and of course, Paraguay.
+- [01:18.800] Hello, Poland,
+- [01:20.480] Romania,
+- [01:21.880] Senegal, Serbia,
+- [01:24.520] Seychelles, Sierra Leone, Slovenia,
+- [01:28.840] St. Kitts and Nevis,
+- [01:31.240] Ukraine, and UAE.
+- [01:36.440] As people, we dream.
+- [01:38.640] As leaders, we progress.
+- [01:41.520] As nations, we will build.
+- [01:45.800] Beginning today,
+- [01:47.960] let's accelerate our new global
+- [01:50.760] alliance,
+- [01:52.120] this bond, to positively impact the
+- [01:55.600] progress of our children.
+- [01:59.400] Welcome members to the inaugural meeting
+- [02:02.120] of fostering the future together.
+- [02:05.120] Our coalition's mission is to empower
+- [02:07.840] children by providing greater access to
+- [02:11.360] technology and education.
+- [02:14.200] This is a historic moment in time.
+- [02:19.680] Our our key driver
+- [02:22.040] to cultivate the skills young people
+- [02:24.720] need to be successful in this rapidly
+- [02:27.440] evolving world.
+- [02:29.840] Fostering the future together will
+- [02:31.920] achieve this by creating innovative
+- [02:35.240] learning programs, advocating for
+- [02:38.120] supportive education policies,
+- [02:41.160] sponsoring new tech-focused legislation,
+- [02:45.440] and building strong partnerships between
+- [02:47.880] the public and private sectors.
+- [02:51.480] Each of you has a vital role to play in
+- [02:54.480] shaping the tech ed opportunities for
+- [02:57.880] the next generation.
+- [03:01.760] Fostering the future together's
+- [03:03.760] collaborative platform will serve as a
+- [03:06.800] capability multiplier for members.
+- [03:10.640] This added benefit is derived directly
+- [03:14.200] from our coalition's
+- [03:16.239] foundational elements, AI, education,
+- [03:21.280] and global leadership.
+- [03:24.040] Our shared vision prioritize children
+- [03:27.280] above political philosophy,
+- [03:30.040] geographical borders,
+- [03:32.320] and local prejudices.
+- [03:36.000] To turn this vision into action,
+- [03:38.680] I invite each of you to participate,
+- [03:41.680] commit to hosting a regional meeting,
+- [03:44.560] conduct a research study, advance new
+- [03:48.440] partnerships,
+- [03:49.959] collaborate with another member nation
+- [03:52.960] in your region of the world.
+- [03:57.200] Magic happens in our nation's capital,
+- [04:00.680] particularly when the private and public
+- [04:03.560] sectors join forces.
+- [04:06.400] Today's meeting is unprecedented.
+- [04:09.720] I commend America's leading companies
+- [04:12.760] for convening with us today.
+- [04:16.079] Never before have so many tech
+- [04:18.400] visionaries stood before such a large
+- [04:21.359] global audience of leaders in the State
+- [04:24.240] Department
+- [04:25.760] and
+- [04:27.080] the White House over the two-day period.
+- [04:32.040] Nowhere else could such a concentration
+- [04:35.400] of excellent be assembled from AI
+- [04:38.840] pioneers like OpenAI, Palantir, and XAI
+- [04:44.080] to tech platforms like Google and Meta,
+- [04:47.520] creative engines like Adobe, and
+- [04:50.520] Microsoft, plus human connectivity
+- [04:54.400] through Zoom Communications.
+- [04:58.240] This room is filled with extraordinary
+- [05:00.840] human capital.
+- [05:02.919] Leaders, harness it
+- [05:05.640] to elevate your children,
+- [05:08.120] to empower your people,
+- [05:10.280] and to accelerate your economies.
+- [05:14.640] Our coalition for leaders will improve
+- [05:17.600] our future,
+- [05:19.080] but only by supporting concrete
+- [05:21.400] initiatives
+- [05:23.000] that equip young people with the skills
+- [05:25.680] and knowledge they need.
+- [05:28.360] Together, let's invest, expand success,
+- [05:32.520] and create opportunities for education
+- [05:35.800] and technology.
+- [05:38.240] I wish everyone great success during
+- [05:40.560] Fostering the Future Together's Global
+- [05:42.960] Coalition Summit.
+- [05:44.960] There is much to accomplish over these
+- [05:47.640] two-day period.
+- [05:49.960] And this is only the beginning.
+- [05:52.760] Thank you.

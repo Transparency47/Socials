@@ -1,0 +1,34 @@
+# YouTube / WhiteHouse / 2025-11-13
+
+- Posts: 10
+
+- [21:36 UTC - First Lady Melania Trump Announces Executive Order on Fostering the Future](opWofJghNpM/)
+  - Source: https://www.youtube.com/watch?v=opWofJghNpM
+  - [00:00.000] Welcome to the White House. - [00:03.160] It is truly inspiring to see everyone - [00:05.720] gather here together - [00:07.680] united in support of this remarkable...
+- [21:27 UTC - Vice President JD Vance Delivers Remarks at the Make America Healthy Again Summit](I_TmtUGQf2E/)
+  - Source: https://www.youtube.com/watch?v=I_TmtUGQf2E
+  - [00:00.640] It is now my great honor to introduce - [00:05.680] the inspiration to this movement, the - [00:08.720] man deeply committed to making America - [00:11.360] healthy a...
+- [20:24 UTC - President Trump and First Lady Melania Trump sign an executive order for foster care children. 🇺🇸💙](pH6QHx9Qvkk/)
+  - Source: https://www.youtube.com/watch?v=pH6QHx9Qvkk
+  - [00:00.160] Each year, more than 15,000 young people - [00:03.919] age out of the foster care system, and - [00:06.560] unfortunately, too many struggle to - [00:08.400] become s...
+- [19:36 UTC - President Trump and the First Lady Participate in an Executive Order Signing](wMMI59BmzuA/)
+  - Source: https://www.youtube.com/watch?v=wMMI59BmzuA
+  - [00:14.010] Announcer: Ladies and gentlemen, - [00:15.060] the President of the United States and First Lady Melania Trump. - [00:19.890] ♪ (Hail to the Chief) ♪ - [00:45.500] (a...
+- [17:47 UTC - The Story of America: The Culper Spy Ring](xs7tRxbNa0Q/)
+  - Source: https://www.youtube.com/watch?v=xs7tRxbNa0Q
+  - [00:02.603] (mix of famous American history quotes) - [00:41.508] Brian Kilmeade: When we think of the American Revolution, - [00:43.409] we often think of the famous battlefield...
+- [17:09 UTC - POTUS Signs Bill to Reopen Government](kHgVoXYJ9Ag/)
+  - Source: https://www.youtube.com/watch?v=kHgVoXYJ9Ag
+  - [00:00.080] For the past 43 days, Democrats in - [00:02.399] Congress shut down the government of the - [00:04.319] United States in an attempt to extort - [00:06.640] American t...
+- [14:58 UTC - The lasting impact of the 43-day Democrat shutdown will not be forgotten](ly5h1fi8FBw/)
+  - Source: https://www.youtube.com/watch?v=ly5h1fi8FBw
+  - [00:00.240] The damage caused by the Democrats with - [00:02.240] this reckless government shutdown cannot - [00:04.319] be forgotten. It is entirely the fault - [00:07.520] of t...
+- [03:35 UTC - President Trump signs bill to OFFICIALLY reopen the government, ending the Democrat Shutdown.](rxc8Aq5VMas/)
+  - Source: https://www.youtube.com/watch?v=rxc8Aq5VMas
+  - [00:00.000] So, with all of that, I just want to - [00:02.120] tell you the country is never been in - [00:03.760] better shape. We went through this - [00:06.400] short-term dis...
+- [03:27 UTC - President Trump Signs Senate Amendment to H.R. 5371](yY76b8_fM_Q/)
+  - Source: https://www.youtube.com/watch?v=yY76b8-fM-Q
+  - [00:00.750] The President: It's very important what has taken place, - [00:04.070] because we've seen how good government can be - [00:08.210] and how bad government can be - [00...
+- [02:02 UTC - RIP DEMOCRAT SHUTDOWN. Oct 1, 2025 – Nov 12, 2025](MlwdPuDJZRU/)
+  - Source: https://www.youtube.com/watch?v=MlwdPuDJZRU
+  - [00:00.000] I will - [00:03.000] remember you. [singing] - [00:06.840] Will [music] you remember me? - [00:13.280] Don't let your love - [00:17.030] >> [singing] - [00:17.685] [m...

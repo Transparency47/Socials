@@ -1,0 +1,118 @@
+<!-- source: https://www.youtube.com/watch?v=dvcjIxvrCD4 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: dvcjIxvrCD4 -->
+<!-- date_published: 2025-11-27T02:22:36+00:00 -->
+<!-- date_accessed: 2026-06-02T02:41:05.240519+00:00 -->
+
+# Transcript: President Trump Delivers Remarks, Nov. 26, 2025
+
+- [00:03.760] My great fellow Americans, earlier today
+- [00:06.560] on the eve of the Thanksgiving holiday,
+- [00:09.200] two members of the National Guard
+- [00:11.519] serving in Washington DC were shot at
+- [00:14.719] point blank range in a monstrous ambush
+- [00:17.520] style attack just steps away from the
+- [00:19.199] White House. They had been deputized as
+- [00:22.000] part of the most successful public
+- [00:23.920] safety and national security mission in
+- [00:26.560] the history of our nation's capital, the
+- [00:29.359] DC Safe and Beautiful Task Force, which
+- [00:32.719] has achieved an unprecedented reduction
+- [00:35.200] in violent crime and crimes of all type.
+- [00:38.960] This heinous assault was an act of evil
+- [00:41.440] and act of hatred and an act of terror.
+- [00:44.800] It was a crime against our entire
+- [00:47.200] nation. It was a crime against humanity.
+- [00:50.879] The hearts of all Americans tonight are
+- [00:53.280] with those two members of the West
+- [00:55.440] Virginia National Guard and their
+- [00:57.039] families. The love of our entire country
+- [01:00.320] is pouring out for them. And we are
+- [01:03.199] lifting them up in our prayers. As we
+- [01:06.400] are filled with anguish and grief for
+- [01:09.040] those who were shot, we're also filled
+- [01:11.920] with righteous anger and ferocious
+- [01:14.479] resolve. As president of the United
+- [01:17.520] States, I am determined to ensure that
+- [01:20.400] the animal who perpetrated this atrocity
+- [01:23.840] pays the steepest possible price. I can
+- [01:27.520] report tonight that based on the best
+- [01:29.759] available information, the Department of
+- [01:32.240] Homeland Security is confident that the
+- [01:34.640] suspect in custody is a foreigner who
+- [01:37.360] entered our country from Afghanistan, a
+- [01:40.400] hellhole on earth. He was flown in by
+- [01:43.200] the Biden administration in September
+- [01:45.520] 2021 on those infamous flights that
+- [01:48.720] everybody was talking about. Nobody knew
+- [01:52.000] who was coming in. Nobody knew anything
+- [01:54.079] about it. His status was extended under
+- [01:56.799] legislation signed by President Biden,
+- [02:00.960] a disastrous president, the worst in the
+- [02:03.200] history of our country. This attack
+- [02:05.759] underscores the single greatest national
+- [02:08.160] security threat facing our nation. The
+- [02:11.920] last administration let in 20 million
+- [02:14.239] unknown and unvetted foreigners from all
+- [02:17.280] over the world from places that you
+- [02:19.280] don't want to even know about. No
+- [02:21.520] country can tolerate such a risk to our
+- [02:24.640] very survival. An example is Minnesota,
+- [02:28.000] where hundreds of thousands of Somalians
+- [02:31.440] are ripping off our country and ripping
+- [02:34.640] apart that once great state. Billions of
+- [02:38.000] dollars are lost and gangs of Somalians
+- [02:41.760] come from a country that doesn't even
+- [02:43.680] have a government, no laws, no water, no
+- [02:47.120] military, no nothing. as their
+- [02:49.519] representatives in our country preach to
+- [02:51.840] us about our constitution and how our
+- [02:54.560] country is no good. We're not going to
+- [02:57.360] put up with these kind of assaults on
+- [02:59.519] law and order by people who shouldn't
+- [03:02.159] even be in our country. We must now
+- [03:05.200] re-examine every single alien who has
+- [03:08.159] entered our country from Afghanistan
+- [03:10.239] under Biden. And we must take all
+- [03:12.959] necessary measures to ensure the removal
+- [03:15.440] of any alien from any country who does
+- [03:18.239] not belong here or add benefit to our
+- [03:21.120] country. If they can't love our country,
+- [03:23.840] we don't want them. America will never
+- [03:26.400] bend and never yield in the face of
+- [03:28.159] terror. And at the same time, we will
+- [03:30.720] not be deterred from the mission these
+- [03:33.680] service members were so nobly
+- [03:36.319] fulfilling. That is why tonight I can
+- [03:39.120] announce that I have directed the
+- [03:41.120] Department of War to mobilize an
+- [03:42.959] additional 500 troops to help protect
+- [03:46.319] our capital city. We will make America
+- [03:49.680] totally safe again. And we will bring
+- [03:52.480] the perpetrator of this barbaric attack
+- [03:55.280] to swift and certain justice if the
+- [03:58.000] bullets going in the opposite direction
+- [04:00.640] haven't already done that. During this
+- [04:03.040] time of the year when we gather at home
+- [04:04.959] with loved ones, these two patriots were
+- [04:07.760] wearing the uniform of our country,
+- [04:09.840] patrolling the streets of our Capitol.
+- [04:13.599] They had taken a selfless oath to defend
+- [04:15.920] our nation against all enemies, foreign
+- [04:18.000] and domestic. And that is exactly what
+- [04:20.560] they were doing when they were gunned
+- [04:22.479] down in a savage attack. I want to
+- [04:26.000] express my extraordinary gratitude to
+- [04:27.919] every member of the United States
+- [04:30.160] military who is deployed tonight at home
+- [04:32.880] and abroad. I also want to thank the
+- [04:35.440] Secret Service and the DC Metropolitan
+- [04:37.919] Police Department for their work today.
+- [04:41.280] This Thanksgiving, I ask every family to
+- [04:43.520] say a prayer for the two great heroes
+- [04:45.680] who were so horribly shot and for their
+- [04:49.440] loved ones. Please say a prayer. May God
+- [04:52.400] bless them and comfort them. And may God
+- [04:54.560] bless and protect the United States of
+- [04:57.360] America. Thank you and good night.

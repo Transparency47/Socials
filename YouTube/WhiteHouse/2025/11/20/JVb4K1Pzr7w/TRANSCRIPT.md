@@ -1,0 +1,937 @@
+<!-- source: https://www.youtube.com/watch?v=JVb4K1Pzr7w -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: JVb4K1Pzr7w -->
+<!-- date_published: 2025-11-20T19:02:05+00:00 -->
+<!-- date_accessed: 2026-06-02T02:41:13.718532+00:00 -->
+
+# Transcript: Press Secretary Karoline Leavitt Briefs Members of the Media, Nov. 20, 2025
+
+- [00:08.208] Karoline Leavitt: Good afternoon, everybody.
+- [00:10.877] I brought a very special guest with me today, as
+- [00:12.712] you can see, Secretary McMahon.
+- [00:14.647] So I will begin my remarks.
+- [00:16.116] She's going to speak, and then we'll take some questions.
+- [00:18.518] She'll take questions, and I'll take questions from
+- [00:20.086] you as well.
+- [00:21.454] First off, yesterday, First Lady Melania Trump
+- [00:24.157] and Second Lady Usha Vance traveled to Marine Corps
+- [00:27.260] Air Station New River in Camp Lejeune in North Carolina,
+- [00:30.463] where they spent the day meeting with
+- [00:32.632] students, educators, military families, and
+- [00:35.902] United States Marines.
+- [00:37.804] Both the First Lady and Second Lady were grateful
+- [00:40.440] for the warm welcome and remain deeply committed to
+- [00:43.643] supporting military families and the
+- [00:45.578] communities that serve our great nation.
+- [00:48.281] May God bless all of them.
+- [00:50.150] In economic news, the September jobs report
+- [00:52.652] showed the American economy remains strong,
+- [00:55.388] with 119,000 new jobs added, more than double expectations.
+- [01:01.661] These gains came after the summer passage of
+- [01:04.197] President Trump's historic tax cuts.
+- [01:06.800] And multiple big trade deals with countries
+- [01:09.169] around the world.
+- [01:10.670] In particular, construction jobs surged
+- [01:13.239] by 19,000 in September, the largest monthly gain
+- [01:17.243] in a year.
+- [01:18.478] Nearly all of this solid monthly job growth came
+- [01:20.947] from the private sector and went to Americans
+- [01:23.516] rather than foreign-born workers, the opposite of
+- [01:27.353] what we saw under the previous administration.
+- [01:30.390] Inflation also remains under control and wages
+- [01:33.259] are up by 3.8 percent over the year for American
+- [01:36.396] workers because of President Trump's
+- [01:38.832] pro-growth policies.
+- [01:41.034] In fact, real wages are on pace to increase roughly
+- [01:44.237] $1,200 for the average worker this year under
+- [01:47.740] President Trump.
+- [01:49.175] This is a complete reversal of the failed
+- [01:51.544] Biden era when we saw inflation skyrocket to 9
+- [01:54.514] percent, causing private sector workers to see
+- [01:57.484] their wages decline.
+- [01:59.052] By approximately $3,000.
+- [02:01.754] We know that Americans are still hurting from the
+- [02:04.324] four-decade high inflation caused by Joe Biden and
+- [02:07.660] the Democrats.
+- [02:08.828] But President Trump is making significant
+- [02:10.997] progress to fix this, and he will not stop working
+- [02:14.634] until he solves it.
+- [02:16.536] As the President recently stated, he is never
+- [02:18.972] satisfied.
+- [02:20.373] For example, President Trump's policies are
+- [02:22.609] working to make Americans' Thanksgiving more
+- [02:25.211] affordable this year, from their commute to the
+- [02:27.847] dinner table.
+- [02:29.082] Nearly 100 million Americans are expected to
+- [02:31.551] drive next week to spend time with loved ones for
+- [02:34.320] the holiday.
+- [02:35.555] And thanks to President Trump's drill baby drill
+- [02:37.957] agenda, the national average price of a gallon
+- [02:40.226] of gas on Thanksgiving Day is projected to be at the
+- [02:43.563] cheapest price since the Covid pandemic in 2021.
+- [02:47.700] President Trump is bringing down gas prices
+- [02:50.169] and providing significant savings to American
+- [02:52.705] families at the pump.
+- [02:54.307] And again, we expect those prices to continue to
+- [02:56.876] decline.
+- [02:58.378] According to the American Farm Bureau Federation's
+- [03:00.880] annual survey, cooking Thanksgiving dinner will
+- [03:03.550] also cost less this year than it did last year and
+- [03:06.886] is down about 5 percent overall.
+- [03:09.522] The average price for a staple of the meal, a
+- [03:12.325] 16-pound frozen turkey, is down more than 16 percent
+- [03:16.162] from last year, which will provide critical savings
+- [03:19.265] for families and their budgets.
+- [03:21.534] President Trump's entire economic agenda is aimed
+- [03:24.704] at putting more money back into the pockets of
+- [03:27.907] hardworking Americans.
+- [03:29.909] That's why he signed the largest middle-tax class
+- [03:32.412] tax cuts in history into law, from no tax on
+- [03:35.882] overtime, no tax on tips, to no tax social security.
+- [03:39.552] And according to a new study from Piper Sandler,
+- [03:42.522] which is out this week, tax filers can expect an
+- [03:45.692] extra $1,000 bump to their tax refund next year in
+- [03:50.129] what could be a record-breaking tax refund
+- [03:52.432] season.
+- [03:53.600] So there is more good news to come.
+- [03:55.535] We know these refunds will make a huge difference for
+- [03:58.204] Americans to help pay down their bills and use
+- [04:00.506] towards life's expenses.
+- [04:02.742] In other news this week, President Trump took a
+- [04:05.044] significant step toward delivering on a core
+- [04:07.380] campaign promise to finally close the
+- [04:09.983] Department of Education.
+- [04:12.051] To shrink the bloated federal bureaucracy, the
+- [04:14.153] Department of Education just entered into new
+- [04:16.756] interagency agreements with four agencies, the
+- [04:19.892] Departments of Labor, Interior, Health and Human
+- [04:22.829] Services, and State.
+- [04:24.530] These agencies will now ensure the delivery of
+- [04:26.899] legally required programs while also refocusing them
+- [04:30.069] to better serve students.
+- [04:32.271] This commonsense action brings the Trump
+- [04:34.440] administration much closer to finally returning
+- [04:37.110] education where it belongs, at the state and
+- [04:40.113] local level, not in Washington, D.C. The
+- [04:43.850] Democrats' reckless 43-day government shutdown did
+- [04:47.053] manage to do one valuable thing.
+- [04:49.489] It proved that America does not need a federal
+- [04:52.125] department of education.
+- [04:54.260] During the longest shutdown in history, the
+- [04:56.863] Department of Education furloughed 90 percent of
+- [04:59.699] its staff, and America's education system was not
+- [05:03.102] impacted whatsoever.
+- [05:05.571] Schools stayed fully open across the country,
+- [05:08.307] students attended class and received normal
+- [05:10.777] in-person instruction, and our wonderful teachers
+- [05:14.347] received their paychecks uninterrupted.
+- [05:17.250] The Democrats' government shutdown made it painfully
+- [05:19.419] obvious that American families do not need the
+- [05:22.221] Department of Education.
+- [05:24.190] Since its creation in 1979 during the Carter
+- [05:26.993] administration, the Department of Ed has spent
+- [05:29.729] over three trillion taxpayer dollars without
+- [05:33.266] improving student achievement.
+- [05:35.968] Despite peer pupil spending having increased
+- [05:38.271] by more than 245 percent since the 1970s, math and
+- [05:42.975] reading scores are down in public schools.
+- [05:46.145] In fact, the most recent nation's report card from
+- [05:48.648] 2024 showed that 13-year-olds math scores
+- [05:52.051] are the lowest they've been in decades.
+- [05:53.853] And their reading scores are the lowest since
+- [05:55.822] testing began more than 30 years ago.
+- [05:58.891] It's clear that throwing more money at a broken
+- [06:00.960] system does not work.
+- [06:02.829] And that's why President Trump appointed the
+- [06:05.765] amazing leader behind me, our Secretary of
+- [06:08.301] Education, Linda McMahon, who is making these
+- [06:10.436] monumental changes at the direction of the
+- [06:13.039] President.
+- [06:13.906] We're very grateful to have you here today to
+- [06:15.441] talk about these changes and then take some
+- [06:17.210] questions.
+- [06:17.844] Hopefully folks in this room will have some
+- [06:19.312] questions on the very important topic of
+- [06:21.013] education.
+- [06:21.814] So please, Mrs. Secretary.
+- [06:23.516] Secretary McMahon: Thank you, Ms. Karoline.
+- [06:26.152] It's really a pleasure to be here with you today,
+- [06:27.954] and thank all of you for being here as well.
+- [06:30.723] My purpose here is to speak directly to the
+- [06:33.559] American families, not just you, but to the
+- [06:35.428] Americans families, about the work this
+- [06:37.830] administration is doing in education to reverse our
+- [06:40.867] national decline with a hard reset of our
+- [06:44.203] educational system.
+- [06:45.872] That reset was a top campaign promise from
+- [06:48.374] President Trump to send education back to the
+- [06:50.777] states and in Washington's micromanagement of
+- [06:53.746] education.
+- [06:54.881] Once and for all.
+- [06:56.415] This week we took the most decisive steps thus far to
+- [06:59.685] make good on this promise to you.
+- [07:02.021] We have linked six groundbreaking
+- [07:03.623] partnerships with other federal agencies to
+- [07:06.025] delegate Education Department programs that
+- [07:08.561] are redundant with existing programs at
+- [07:10.997] Labor, State, Interior, and HHS.
+- [07:14.233] These interagency agreements to cut our own
+- [07:16.502] bureaucratic bloat are a key step in efforts to
+- [07:20.072] shift educational authority.
+- [07:22.208] From Washington DC to your state education agency,
+- [07:25.878] your local superintendent, your local school board,
+- [07:29.015] entities that are accountable to you, and we
+- [07:32.018] encourage parents to always be involved.
+- [07:35.421] Cutting federal bureaucracy is never a
+- [07:37.857] popular move among DC insiders.
+- [07:40.426] A chorus of anti-Trump voices have come out of
+- [07:43.429] the woodwork to complain that we are defunding
+- [07:45.765] education, harming students, or acting
+- [07:48.201] without a plan.
+- [07:50.903] This could not be further from the truth.
+- [07:53.339] The majority of Americans across the country handed
+- [07:55.975] President Trump the popular vote precisely
+- [07:59.145] because they have seen the brokenness of a top-down
+- [08:02.281] education system run by the federal government.
+- [08:06.252] They're painfully aware that only three out of 10
+- [08:08.521] students can read proficiently at their
+- [08:10.723] grade level.
+- [08:12.024] They know that college students are collectively
+- [08:14.293] $1.7 trillion in debt, and less than half of college
+- [08:18.297] graduates get a job that actually uses the degree
+- [08:22.134] which they studied so hard to get.
+- [08:25.171] They see more teachers than ever before leaving
+- [08:27.373] the profession due to burnout over regulation
+- [08:30.743] and lack of autonomy in the classroom.
+- [08:33.546] Anti-Trump voices are stirring up fear that
+- [08:36.649] returning education to the states is a draconian
+- [08:39.352] action when Americans hear that we are shutting down
+- [08:43.322] the department.
+- [08:44.624] But given no other details, 51 percent oppose
+- [08:47.793] it.
+- [08:49.128] But when those same Americans are informed of
+- [08:51.697] our plans to preserve important elements of our
+- [08:54.400] work and other federal agencies and to maintain
+- [08:57.970] the K-12 funding that is distributed to the states,
+- [09:01.774] that number flips to an even greater majority at
+- [09:05.144] 56 percent.
+- [09:06.979] They support returning education to the States
+- [09:10.082] and breaking up the bureaucracy.
+- [09:12.418] That's because the Department of Education is
+- [09:14.287] a pass-through entity.
+- [09:16.422] It doesn't educate a single student.
+- [09:19.392] The money it sends to states for education can
+- [09:21.794] be sent directly without waste.
+- [09:24.830] The Democrats' government shutdown proved that
+- [09:27.133] without a doubt, and I'll reiterate what you said,
+- [09:30.703] that the Department of Education was not
+- [09:32.538] necessary during this shutdown.
+- [09:35.141] Now, this is what I've seen already on my
+- [09:37.310] 50-state tour that I've embarked on.
+- [09:40.112] Educators are innovating in their schools.
+- [09:42.748] States are customizing their budgets and
+- [09:44.984] standards, and post-secondary
+- [09:46.619] institutions are planning for the economy of the
+- [09:49.021] future.
+- [09:50.690] But we're not leading them.
+- [09:51.958] They are informing us.
+- [09:54.093] That's why our final mission as a department is
+- [09:57.129] to fully empower states to carry the torch of our
+- [10:00.900] educational renaissance.
+- [10:03.069] Education is local.
+- [10:04.804] It should be overseen locally by those who best
+- [10:07.807] know local needs.
+- [10:10.142] We're not ending federal support for education.
+- [10:12.745] We are ending federal micromanagement.
+- [10:15.481] And paving the way for education renewal through
+- [10:18.517] state reforms like school choice, the science of
+- [10:21.320] reading, and restoring the right priorities in higher
+- [10:24.724] education.
+- [10:26.892] President Trump promised to send education back to
+- [10:28.928] the states, and we're keeping that promise.
+- [10:31.831] America's next generation will look back on the work
+- [10:34.033] we've carried out, thankful for an education
+- [10:36.802] system that prioritizes students over bureaucracy.
+- [10:42.074] Karoline Leavitt: Well, thank you very much, Madam
+- [10:43.776] Secretary.
+- [10:44.744] And we'll take some questions for the
+- [10:46.612] Secretary if you have them.
+- [10:47.813] Elizabeth, why don't you start?
+- [10:50.249] Thank you for joining us.
+- [10:51.317] The Press: You announced the partnership to move
+- [10:53.185] some functions of the education department to
+- [10:54.787] other agencies.
+- [10:56.255] Are you talking to members of Congress about
+- [10:58.224] codifying this so that it lasts beyond the
+- [10:59.925] administration?
+- [11:01.293] Secretary McMahon: Yes, we started our conversation
+- [11:02.628] and thanks very much for asking that because there
+- [11:04.830] have been some reports that Congress is in the
+- [11:07.333] dark on this.
+- [11:08.334] That's clearly not true.
+- [11:09.568] We've been talking to, probably I've talked to
+- [11:11.437] dozens of members of Congress to explain to
+- [11:13.773] them exactly what we're doing, to bring them up to
+- [11:15.841] speed and to say to them, look, when we have
+- [11:19.712] completed some of these transfers that are working
+- [11:22.848] incredibly well, then we will be looking to
+- [11:25.151] Congress to codify those.
+- [11:28.454] I'll make them permanent.
+- [11:29.855] The Press: Thank you, Secretary McMahon.
+- [11:31.657] What is the update on the negotiations with Harvard?
+- [11:34.593] I know the President has publicly pointed to you as
+- [11:36.896] somebody who's worked on that.
+- [11:38.097] I think you've talked about that at length, but
+- [11:39.865] I'd like to understand, where are things with
+- [11:41.867] those negotiations with Harvard this time?
+- [11:44.236] Secretary McMahon: They're ongoing negotiations and
+- [11:45.738] we feel -- I feel very comfortable that we are
+- [11:47.973] getting close to having those negotiations
+- [11:49.842] finalized.
+- [11:51.210] It's been open door conversation all along.
+- [11:56.916] The Press: Secretary, the President recently posted
+- [11:59.819] about establishing a federal standard for AI.
+- [12:03.022] Do you know if the administration has a view
+- [12:04.990] on the use of AI for students in schools?
+- [12:07.960] And Karoline, do you know if the President
+- [12:09.662] personally uses AI?
+- [12:12.531] Karoline Leavitt: I don't think so.
+- [12:14.967] I've never witnessed it, so I can't attest to that.
+- [12:17.803] Secretary McMahon: Well, I do think AI is going to
+- [12:19.772] need guardrails, but I have witnessed AI
+- [12:21.941] firsthand.
+- [12:22.908] I was at the Alpha School in Austin, Texas, and the
+- [12:26.178] first two hours of every day in that school,
+- [12:29.148] students are learning through AI, they have
+- [12:31.550] their headsets on there in front of their screens.
+- [12:33.652] And the AI is really acting as like an
+- [12:35.488] individual tutor for those students allowing those
+- [12:37.423] students that can progress faster to do that.
+- [12:39.992] Those who need a little catch up with refeed
+- [12:41.861] information to them.
+- [12:43.662] And so after those two hours of learning the
+- [12:47.133] basics of what they're doing in their curriculum
+- [12:49.301] that day, then they spend the rest of the day, I
+- [12:51.737] mean, they have good recess and all of that
+- [12:53.305] time, but then they spent the rest of the day in
+- [12:55.508] what are called life skills, and they're
+- [12:57.209] actually using the information that they've
+- [12:59.345] learned this morning.
+- [13:00.679] So I've seen some AI in action that has really
+- [13:03.716] proven quite beneficial.
+- [13:07.586] Karoline Leavitt: Michael.
+- [13:08.921] The Press: Thanks, Karoline, that's Secretary
+- [13:10.189] McMahon.
+- [13:11.023] As the Education Department continues to
+- [13:12.458] pair down, can you talk about taxpayer services
+- [13:15.294] like charter school grants and how the department
+- [13:19.298] will continue to assist kids with special needs?
+- [13:22.535] Secretary McMahon: Where we are going to make sure
+- [13:24.403] that there's no interruption and make and
+- [13:26.238] getting that grant money out the door.
+- [13:27.907] I mean, you know, that money is, it comes from
+- [13:31.076] Congress, it's appropriated by Congress,
+- [13:33.312] and we legally are obligated to do that.
+- [13:35.214] And the transitions we're starting to make our first
+- [13:37.950] programs that went over to the Department of Labor,
+- [13:41.921] that was a few weeks ago, we actually signed the
+- [13:44.190] first interagency agreement, which we
+- [13:46.292] accomplished under the authority of the Economy
+- [13:47.960] Act.
+- [13:48.961] We transferred grants for WIOA and for the Perkins
+- [13:53.732] Act.
+- [13:54.967] And the really good news is that the Department of
+- [13:57.903] Labor has a much more sophisticated system,
+- [14:01.140] technology system and grant, and grant
+- [14:04.810] fulfilling system, than the Department Of
+- [14:07.146] Education does.
+- [14:08.814] As a matter of fact, our, our executive manager that
+- [14:11.884] went over with that group over to labor, said he
+- [14:15.087] would compare what the labor system is to
+- [14:17.957] education is like held together by bubble gum
+- [14:22.528] that is not connected to any other parts.
+- [14:24.363] So we were able to get those grants out the door
+- [14:26.699] more smoothly and states have actually better
+- [14:29.335] access for those systems than they do at the
+- [14:32.071] Department of Education.
+- [14:33.138] So that's a real bonus.
+- [14:36.709] Karoline Leavitt: We'll take a couple more.
+- [14:37.543] Carrie, go ahead.
+- [14:39.111] The Press: As part of the diversity, equity, and
+- [14:40.679] inclusion new regulations that came out from the
+- [14:43.449] administrations, a lot of schools, whether high
+- [14:46.585] school or even higher education is concerned,
+- [14:49.255] some of them are defying these new administration
+- [14:52.191] policies, even apparently according to a new report
+- [14:54.493] --.
+- [14:55.327] Secretary McMahon: I'm sorry, I can't hear you.
+- [14:56.662] The Press: As far as the, there's been a new report
+- [14:58.330] from the administration saying that half of
+- [15:00.399] medical schools are defying the administration
+- [15:03.035] when it comes to DEI policies.
+- [15:05.638] What type of action will the administration take
+- [15:08.540] for these schools that are defying in the EDI
+- [15:09.842] policies?
+- [15:11.944] Secretary McMahon: Well, certainly the President
+- [15:13.078] has been very clear and the Department of
+- [15:15.547] Education has taken measures to make sure that
+- [15:18.350] as schools are developing, you know, their policies
+- [15:21.020] or if they have open DEI offices, they're closed or
+- [15:23.989] DEI regulations and rules are stripped, you know,
+- [15:28.327] from their programs.
+- [15:29.561] And so that will continue.
+- [15:31.797] Karoline Leavitt: We'll take one more.
+- [15:32.798] Go ahead.
+- [15:33.699] The Press: Thank you, Karoline.
+- [15:34.700] Secretary McMahon, my question is, since you
+- [15:38.504] said 3 out of 10 students are literate with regard
+- [15:42.241] to their reading capacity, would now the states help
+- [15:46.745] to improve those numbers since you have gone back
+- [15:49.515] to the states?
+- [15:51.717] Secretary McMahon: Well, what we are finding, that
+- [15:54.353] the states that are making great progress, it's
+- [15:57.156] through their own innovation.
+- [15:58.824] It's not coming from the Department of Education.
+- [16:00.859] I think the Department is really misunderstood about
+- [16:03.329] what our function is.
+- [16:04.830] We don't teach one student.
+- [16:07.232] We have nothing to do with the curriculum that are in
+- [16:09.568] any state.
+- [16:10.269] We are a pass-through -- pathway from money that's
+- [16:13.205] appropriated by Congress to get to the states.
+- [16:15.941] But what we have seen in those states that have
+- [16:17.743] taken that initiative and they are.
+- [16:20.279] Embracing the science of reading and returning that
+- [16:22.915] into their school programs.
+- [16:24.383] Louisiana has done it.
+- [16:25.484] Mississippi, they call it the Mississippi miracle
+- [16:27.720] because they were like, I think bottom or next to
+- [16:30.089] last in reading proficiency in
+- [16:31.857] Mississippi.
+- [16:32.858] Now they're like middle of the pack, which has been a
+- [16:34.927] really big jump.
+- [16:35.994] Florida has, Iowa has, Tennessee.
+- [16:37.563] So, but these are innovations that are done
+- [16:40.065] at the state level.
+- [16:41.300] This is not anything we're dictating.
+- [16:42.935] And that's why I'm saying returning education to the
+- [16:45.170] states where they really are already leading.
+- [16:48.307] In their education endeavors and 90 percent
+- [16:50.242] of their budget they provide.
+- [16:52.578] The federal government only provides 8 to 10
+- [16:54.613] percent of the budget for education.
+- [16:56.849] So let's make sure that that grant money that's
+- [16:59.718] coming from the federal government is getting in
+- [17:01.587] their hands as efficiently as possible and getting to
+- [17:03.889] students.
+- [17:05.023] We don't want teachers having to spend their time
+- [17:08.360] and money in regulatory compliance.
+- [17:10.529] There was one superintendent chief who
+- [17:14.700] said to me that They had done some calculation in
+- [17:17.669] their state, and that for every dollar that went
+- [17:20.172] into the classroom in the grant, 47 cents was spent
+- [17:22.674] in regulatory compliance.
+- [17:25.277] So let's get the money into the hands of our
+- [17:27.613] students and our teachers.
+- [17:29.148] Let's raise the level of education.
+- [17:31.049] The other thing I'll do, and I'll quickly wrap up
+- [17:32.818] for you, is this 50 state tour that I have embarked
+- [17:36.722] on.
+- [17:37.423] We've done about 14 states.
+- [17:38.690] We've shut down a little bit during the shutdown.
+- [17:41.427] But, What I am doing is visiting different kinds
+- [17:44.830] of schools, grammar schools, middle schools,
+- [17:47.232] high schools, micro schools, private schools,
+- [17:50.302] charter schools, the whole gambit.
+- [17:52.504] And in the end, my goal will be as we step away
+- [17:56.074] and fully deliver education back to the
+- [17:58.377] states is to provide them with a best practices
+- [18:01.413] toolkit of all of the things that I have seen
+- [18:04.216] around the country to say, hey, this is working.
+- [18:07.386] Check with these superintendents, check
+- [18:09.021] with these governors.
+- [18:10.556] And you know what I found a little bit is governors
+- [18:12.791] are a little competitive, so it's just kind of nice
+- [18:15.294] to give some of these best practices out there.
+- [18:18.030] It'll work because it's already working.
+- [18:20.532] If we leave it with the people who are closest to
+- [18:22.568] the students, the President believes as do
+- [18:24.937] I, the best education is that that's closest to the
+- [18:27.906] child and parents involvement is critical to
+- [18:31.910] the success.
+- [18:33.378] Thank you so much.
+- [18:34.913] Karoline Leavitt: Thank you, Linda, thank you so
+- [18:35.714] much.
+- [18:36.849] I appreciate your coming today.
+- [18:38.116] Thanks for your great work.
+- [18:40.519] And she's a busy lady, so we'll let her get back to
+- [18:41.987] work.
+- [18:42.654] Alright.
+- [18:43.789] Thank you again.
+- [18:45.324] Well, let's get to it.
+- [18:47.226] You guys were so calm with her.
+- [18:48.660] I wish you were that calm with me.
+- [18:50.295] We'll kick off with our new media team as always.
+- [18:52.064] Javier, why don't you start us off and then
+- [18:53.699] we'll get to the rest of the room.
+- [18:54.733] Go ahead.
+- [18:55.467] The Press: Thank you very much.
+- [18:56.068] My name is Javier Negre.
+- [18:57.469] I'm from Spain.
+- [18:58.403] I'm the owner of the biggest media platform in
+- [19:01.240] Hispanic politics with brands like La Derecha
+- [19:03.509] Diario, (inaudible) in Spanish.
+- [19:08.313] And I'm happy to be here.
+- [19:10.115] Thanks for supporting the media, also in the Spanish
+- [19:12.951] community.
+- [19:14.853] We try to fight against media like Telemundo,
+- [19:18.557] Invisión, CNN, or NBC News that are spreading fake
+- [19:22.694] news and attacking the ICE operations.
+- [19:25.964] We will premiere this Sunday, The Real America's
+- [19:28.467] Voice, The (inaudible) Show, the first Spanish
+- [19:30.536] show against communism and world culture that is
+- [19:33.539] promoted by people like George Soros to bring
+- [19:36.208] communism all over the world, like happening in
+- [19:38.410] New York.
+- [19:39.511] I have two questions for you, if you don't mind.
+- [19:41.813] In Mexico, (inaudible) is protesting against
+- [19:44.850] President Sheinbaum.
+- [19:46.184] They think she's doing nothing against the
+- [19:47.986] cartels.
+- [19:49.154] Sheinbaum used the police to protect them,
+- [19:51.657] (inaudible) and she's attacking journalists like
+- [19:54.927] me in a country where 150 journalists have been
+- [19:58.697] killed in the past years.
+- [20:01.066] The USA Legacy Media is attacking President Trump
+- [20:04.603] for his comments about the fake news media while they
+- [20:07.072] are not publishing anything about the murders
+- [20:10.842] of journalists in Mexico.
+- [20:12.544] Why do you think they stay silenced about the murder
+- [20:16.048] of journalists in Mexico and the attacks on
+- [20:18.317] businessmen like Ricardo Salinas?
+- [20:20.953] And my second question is, Trump said he has a plan
+- [20:23.855] for the narco-state of Venezuela.
+- [20:25.891] Does he have a plan for Mexico where, according to
+- [20:28.193] Stephen Miller, the cartels are controlling
+- [20:30.829] governments and territories?
+- [20:33.532] Karoline Leavitt: Well, thank you, Javier, for the
+- [20:35.133] question.
+- [20:35.934] And thank you again for being here.
+- [20:37.169] We're proud to have new media voices in the
+- [20:38.904] briefing room.
+- [20:40.105] As for President Scheinbaum and the
+- [20:42.774] President's relationship with Mexico, I will tell
+- [20:44.977] you that we have seen historic strides from
+- [20:47.646] President Sheinbaum and her administration in
+- [20:50.415] Mexico when it comes to cracking down on the
+- [20:53.118] cartels.
+- [20:54.119] They have been incredibly cooperative with the
+- [20:55.954] President's efforts at our southern border to crack
+- [20:58.390] down on illegal immigration and also the
+- [21:00.692] illegal trafficking of at the southern border.
+- [21:03.695] Now the President is very interested in taking
+- [21:06.064] additional measures against the drug cartels.
+- [21:08.634] He's been very clear about that.
+- [21:10.469] He's spoken about it.
+- [21:11.603] And this is a promise that he made to the American
+- [21:13.705] public.
+- [21:14.840] And so his national security team is
+- [21:16.608] discussing these options all of the time.
+- [21:19.244] And on the campaign show, the President promised to
+- [21:21.413] take on the cartels, he has taken unprecedented
+- [21:23.882] action to do so, and he has left additional
+- [21:26.451] options at his disposal on the table.
+- [21:29.287] So those are only decisions that the
+- [21:30.956] President can make.
+- [21:31.857] Thank you.
+- [21:33.425] The Press: (inaudible) media about the murders of
+- [21:36.028] journalists in Mexico, 150 journalists have been
+- [21:39.831] killed in the past years.
+- [21:41.566] Karoline Leavitt: Yeah, well, it's certainly
+- [21:43.001] something I wish the media would report on more, and
+- [21:44.703] it's something that this administration absolutely
+- [21:46.538] condemns.
+- [21:47.639] I can't speak for the media, but I can speak for
+- [21:49.341] the President.
+- [21:50.375] That's not something he wants to see.
+- [21:52.010] Thank you.
+- [21:53.645] Sure.
+- [21:55.013] The Press: Thank you, Karoline.
+- [21:56.114] Is there anything that Mayor-elect Mamdani could
+- [21:58.183] say tomorrow that would ease the President's
+- [22:01.486] concerns about his future leadership in New York?
+- [22:03.422] Karoline Leavitt: Look, I don't want to speak for
+- [22:04.623] the President or get ahead of this meeting that we
+- [22:06.958] are currently working on for tomorrow.
+- [22:10.295] As you saw, the President put out a statement
+- [22:11.730] tomorrow that the mayor-elect will be coming
+- [22:14.066] to the Oval Office, and so our teams are arranging
+- [22:16.101] those details.
+- [22:18.236] I won't get into the President's thinking on
+- [22:19.871] it.
+- [22:20.672] I think you'll all hear from him directly.
+- [22:22.741] I also think I will just add, it speaks volumes,
+- [22:24.976] that tomorrow we have a communist coming to the
+- [22:28.113] White House because that's who the Democrat Party
+- [22:30.082] elected as the care.
+- [22:31.717] Of the largest city in the country.
+- [22:34.186] I think it's very telling, but I also think it speaks
+- [22:36.054] to the fact that President Trump is willing to meet
+- [22:38.323] with anyone and talk to anyone and to try to do
+- [22:42.127] what's right on behalf of the American people,
+- [22:44.529] whether they live in blue states or red states or
+- [22:47.432] blue cities in a city that's becoming much more
+- [22:51.336] left than I think this President ever anticipated
+- [22:54.506] in his many years of living in New York
+- [22:56.575] himself.
+- [22:57.275] Nancy.
+- [22:58.276] Secretary McMahon: Thanks, Karoline.
+- [22:59.077] This morning, President Trump accused six
+- [23:00.445] Democratic lawmakers of seditious behavior
+- [23:03.749] punishable by death.
+- [23:05.751] Just to be clear, does the President want to execute
+- [23:08.754] members of Congress?
+- [23:10.889] Karoline Leavitt: Let's be clear about what the
+- [23:12.858] President is responding to, because many in this
+- [23:15.694] room want to talk about the President's response,
+- [23:18.130] but not what brought the President to responding in
+- [23:21.633] this way.
+- [23:22.934] You have sitting members of the United States
+- [23:26.238] Congress who conspired together to orchestrate a
+- [23:30.175] video message to members of United States military,
+- [23:34.045] to active duty service members, to members the
+- [23:37.115] national security apparatus, encouraging
+- [23:39.551] them.
+- [23:40.585] To defy the President's lawful orders.
+- [23:44.256] The sanctity of our military rests on the
+- [23:47.159] chain of command.
+- [23:48.126] And if that chain of commander is broken, it
+- [23:50.195] can lead to people getting killed.
+- [23:52.831] It can lead chaos.
+- [23:54.332] And that's what these members of Congress, who
+- [23:56.568] swore an oath to abide by the Constitution, are
+- [23:59.805] essentially encouraging.
+- [24:01.306] We have 1.3 active-duty service members in this
+- [24:04.576] country.
+- [24:05.343] And if they hear this radical message from
+- [24:08.280] sitting members of Congress.
+- [24:10.115] That could inspire chaos and it could incite
+- [24:11.983] violence and it certainly could disrupt the chain of
+- [24:14.553] command.
+- [24:15.821] These three members of Congress, I will also add,
+- [24:17.856] knew exactly what they were doing.
+- [24:19.491] You look at Alyssa Slotkin.
+- [24:20.759] She's a former member of the CIA.
+- [24:23.295] Mark Kelly was a captain in the U.S.
+- [24:24.963] Navy.
+- [24:25.831] Maggie Goodlander was a naval officer.
+- [24:28.033] And notably, she is also the wife of Joe Biden's
+- [24:31.469] national security former advisor, Jake Sullivan.
+- [24:35.340] And so these members knew what they were doing.
+- [24:36.975] They were leading into their credentials as
+- [24:39.144] former members of our military, as veterans, as
+- [24:41.980] former members of the national security
+- [24:44.082] apparatus to signal to people serving under this
+- [24:47.185] commander-in-chief, Donald Trump, that you can defy
+- [24:50.121] him and you can betray your oath of office.
+- [24:53.024] That is a very, very dangerous message.
+- [24:56.995] And it perhaps is punishable by law.
+- [24:58.597] I'm not a lawyer.
+- [24:59.931] I'll leave that to the Department of Justice and
+- [25:01.733] the Department Of War to decide.
+- [25:03.235] The Press: The president has frequently, but
+- [25:05.136] Karoline can I just follow up, the President and the
+- [25:06.972] vice president for that matter have accused the
+- [25:09.374] other side of encouraging political violence.
+- [25:12.244] Isn't that exactly what the President is doing
+- [25:14.713] when he says that members of Congress should be
+- [25:16.448] killed?
+- [25:17.515] Karoline Leavitt: Why aren't you talking about
+- [25:18.483] what these members of Congress are doing to
+- [25:20.252] encourage and incite violence?
+- [25:22.187] They are literally saying to 1.3 million active-duty
+- [25:25.290] service members not to defy the chain of command,
+- [25:29.561] not to follow lawful orders.
+- [25:31.897] The Press: Actually, they said that you can refuse
+- [25:33.765] an illegal order, which is illegal from --.
+- [25:35.267] Karoline Leavitt: They're suggesting, Nancy, that
+- [25:36.902] the President has given illegal orders, which he
+- [25:40.672] has not.
+- [25:41.873] Every single order that is given to this United
+- [25:44.376] States military by this commander-in-chief and
+- [25:46.845] through this chain of command, through the
+- [25:48.847] Secretary of War, is lawful, and the courts
+- [25:50.815] have proven that.
+- [25:51.783] This administration has an unparalleled record at the
+- [25:54.653] Supreme Court because we are following the laws, we
+- [25:58.323] don't defy court orders, we do things by the books,
+- [26:01.893] and to suggest and encourage that active-duty
+- [26:05.297] service members defy the chain of commands is a
+- [26:07.265] very dangerous thing for sitting members of
+- [26:09.301] Congress to do.
+- [26:11.036] And they should be held accountable.
+- [26:12.337] And that's what the President wants to see.
+- [26:13.705] Phil.
+- [26:15.507] The Press: Thank you.
+- [26:16.608] Ambassador Mike Huckabee had a meeting with
+- [26:18.777] Jonathan Pollard, a former U.S.
+- [26:20.812] citizen who is convicted and spent three decades in
+- [26:23.648] jail for selling state secrets to Israel.
+- [26:26.051] Did the White House know that that meeting was
+- [26:28.553] going to happen?
+- [26:29.688] Does the administration condone it?
+- [26:31.723] Karoline Leavitt: The White House was not aware
+- [26:32.958] of that meeting, but the President stands by our
+- [26:35.126] Ambassador, Mike Huckabee, and all that he's doing
+- [26:37.696] for the United States and Israel.
+- [26:40.532] The Press: You said that the President was going to
+- [26:42.467] do what was right for U.S.
+- [26:43.902] citizens, regardless of whether they lived in blue
+- [26:46.237] or red states.
+- [26:47.939] I'm curious if there's any chance in tomorrow's
+- [26:50.508] meeting with Mayor-elect Mamdani that he will be
+- [26:53.912] able to convince the President to abandon that
+- [26:57.882] promise to cut off federal funding to New York City.
+- [26:59.517] Karoline Leavitt: Look, Phil, we'll see how the
+- [27:00.618] meeting goes tomorrow, and I'll let the President
+- [27:02.120] speak for himself.
+- [27:03.021] Natalie.
+- [27:04.155] The Press: Thank you, Karoline.
+- [27:04.923] What did the President mean when he called a
+- [27:06.891] reporter Piggy?
+- [27:08.793] Karoline Leavitt: Look, the President is very
+- [27:10.428] frank and honest with everyone in this room.
+- [27:12.864] You've all seen it yourself.
+- [27:14.566] You've experienced it yourselves.
+- [27:16.368] And I think it's one of the many reasons that the
+- [27:19.104] American people re-elected this President because of
+- [27:21.206] his frankness.
+- [27:22.741] And he calls out fake news when he sees it.
+- [27:25.076] He gets frustrated with reporters when you lie
+- [27:27.946] about him when you spread fake news about him and
+- [27:30.448] his administration, but he also is the most
+- [27:33.451] transparent president in history.
+- [27:35.020] And he gives all of you in this room, as you all
+- [27:36.988] know, unprecedented access.
+- [27:39.758] You are in the Oval Office almost every day asking
+- [27:42.127] the President questions.
+- [27:43.495] And so I think the President being frank and
+- [27:45.530] open and honest to your faces rather than hiding
+- [27:48.733] behind your backs is frankly a lot more
+- [27:50.902] respectful than what you saw in the administration
+- [27:53.204] where you had a president who lied to your face and
+- [27:55.507] then didn't speak to you for weeks and hid upstairs
+- [27:57.709] and didn't take your questions.
+- [27:59.210] So I think everyone in this room should
+- [28:00.612] appreciate the frankness and the openness that you
+- [28:04.149] get from President Trump on a near-daily basis.
+- [28:06.718] Go ahead.
+- [28:08.153] The Press: The Washington Post just reported that
+- [28:09.854] the Coast Guard has --
+- [28:12.590] Karoline Leavitt: I'm calling on Blumberg.
+- [28:13.725] Go ahead.
+- [28:14.859] Thank you.
+- [28:15.527] Two questions for you.
+- [28:16.661] The New York Times is reporting that the
+- [28:20.865] administration is now sending a U.S.
+- [28:22.700] Official to the G20.
+- [28:25.236] They are sending Mark Diller.
+- [28:27.772] Can you confirm if that is true and then also explain
+- [28:31.309] the shift in --
+- [28:32.210] Karoline Leavitt: I'd be happy to explain because
+- [28:34.446] there is not a shift.
+- [28:35.814] The United States is not participating in official
+- [28:37.916] talks at the G20 in South Africa.
+- [28:40.618] I saw the South African President running his
+- [28:42.654] mouth a little bit against the United States and the
+- [28:44.923] President of the United States earlier today, and
+- [28:47.092] that language is not appreciated by the
+- [28:49.060] President or his team.
+- [28:52.097] The Ambassador or the representative of the
+- [28:54.766] embassy in South African is simply there to that
+- [28:56.835] the United States will be the host of the G20.
+- [29:00.438] They are receiving that sendoff at the end of the
+- [29:03.608] event.
+- [29:04.776] They are not there to participate in official
+- [29:07.378] talks despite what the South African president is
+- [29:08.813] falsely claiming.
+- [29:09.981] The Press: On Ukraine, there have been reports
+- [29:12.183] that President Zelensky said he's looking to look
+- [29:18.223] at the plan, that there's been reports about the
+- [29:19.958] Trump administration proposing a plan.
+- [29:21.860] Can you just give an update on where
+- [29:23.194] Russia-Ukraine stands and does the President plan to
+- [29:25.230] speak with Zelenski any time soon?
+- [29:30.034] Karoline Leavitt: So I'm happy to provide an
+- [29:31.236] update.
+- [29:31.769] I've seen quite a bit of reporting on the latest
+- [29:33.972] with Russia-Ukraine.
+- [29:35.340] So let me clarify and give you guys the truth on
+- [29:37.675] where it currently stands.
+- [29:40.011] President Trump has made it very clear since day
+- [29:42.714] one, and even on the campaign trail, that he
+- [29:44.582] wants to see this war come to an end.
+- [29:46.684] He has grown increasingly frustrated with both sides
+- [29:48.953] of this war, Russia and Ukraine alike, for their
+- [29:51.122] refusal to commit to a peace agreement.
+- [29:53.358] But nevertheless, the President and his national
+- [29:55.226] security team are steadfast in seeing this
+- [29:58.029] war come to an end, to end the killing and deliver on
+- [30:01.032] the President's promise.
+- [30:02.534] Special Envoy Witkoff, Marco Rubio, have been
+- [30:05.837] working on a plan quietly for about the last month.
+- [30:09.374] They've been engaging with both sides, Russia and
+- [30:11.709] Ukraine, equally to understand what these
+- [30:14.779] countries would commit to in order to see a lasting
+- [30:17.782] and durable peace.
+- [30:19.751] That's how you get to a peace negotiation, right?
+- [30:22.020] That's it worked with Israel.
+- [30:24.222] With respect to Israel and Gaza and all of the Arab
+- [30:26.491] countries in the Middle East.
+- [30:27.859] That's how we accomplished that historic agreement,
+- [30:30.161] which the UN, by the way, voted to commit to and
+- [30:33.331] accept this week, which was a huge monumental
+- [30:35.400] moment.
+- [30:36.701] So they have been engaged with both sides, and these
+- [30:40.905] talks are continuing.
+- [30:42.006] As always, I'm not going to litigate the details of
+- [30:44.042] this plan as it's ongoing and it's in flux, but the
+- [30:47.245] President supports this plan.
+- [30:48.813] It's a good plan for both Russia and Ukraine.
+- [30:52.350] And we believe that it should be acceptable to
+- [30:54.118] both sides, and we're working very hard to get
+- [30:55.486] it done.
+- [30:57.055] And I'll also add, I know Secretary Driscoll did
+- [30:59.424] meet with President Zelensky today.
+- [31:00.992] He spoke with him.
+- [31:02.293] He was very optimistic following that meeting.
+- [31:04.362] And so, again, we are having good conversations
+- [31:06.064] with both sides with respect to ending this
+- [31:08.099] war.
+- [31:09.267] Sure, go ahead.
+- [31:12.036] The Press: Following up on Ukraine.
+- [31:13.071] You said this is a good plan.
+- [31:14.439] So according to our sources, this proposal
+- [31:16.674] demands major concessions from Ukraine and doesn't
+- [31:18.943] demand much from Russia.
+- [31:21.212] So was Russia involved in drafting this?
+- [31:23.047] Karoline Leavitt: Your understanding is wrong.
+- [31:24.716] Have you read the full plan?
+- [31:26.317] You haven't.
+- [31:27.485] You've read reporting from one side of the war.
+- [31:32.090] And so I want you to understand that the
+- [31:33.992] administration has talked equally with both sides.
+- [31:37.829] You have seen President Trump engage directly with
+- [31:40.398] both President Putin and President Zelensky.
+- [31:42.400] Likewise, his national security team has as well.
+- [31:44.769] In fact, Special Envoy Witkoff and Secretary
+- [31:47.071] Rubio met with some of the Ukrainians just in the
+- [31:49.374] past week.
+- [31:50.775] To discuss this very plan.
+- [31:52.543] And so, just like you saw with respect to Israel and
+- [31:54.979] Gaza, we are hearing out both sides of this war to
+- [31:58.516] understand what can you commit to, to end the war.
+- [32:02.287] And that's ultimately how we are going to get to an
+- [32:04.489] agreeable solution.
+- [32:05.723] That's what the President has directed of his team.
+- [32:07.925] I know there's a lot of criticism out there and a
+- [32:09.594] lot doubters, but I would just remind you of the
+- [32:12.030] historic success that this President and his team
+- [32:14.198] accomplished in the Middle East.
+- [32:15.633] We believe that is possible with Russia and
+- [32:17.635] Ukraine, and we're.
+- [32:19.103] Hoping and working very hard to achieve that.
+- [32:21.072] Stephen.
+- [32:23.741] The Press: Could you provide a little more
+- [32:26.344] context on what to expect tomorrow with the Mamdani
+- [32:28.146] meeting?
+- [32:29.514] Will it be in the Oval Office or is it going to
+- [32:31.516] be open at least partially to the press?
+- [32:34.385] Karoline Leavitt: I don't have any more details to
+- [32:35.653] read out for you on the meeting quite yet,
+- [32:37.855] Stephen.
+- [32:38.723] I know it's of great interest to you in the New
+- [32:40.491] York Post, but we'll keep, maybe if it opens we can
+- [32:43.795] commit to letting you in.
+- [32:46.164] Sure, go ahead.
+- [32:47.865] The Press: Thank you, Karoline.
+- [32:48.700] It came up yesterday during a confirmation
+- [32:50.968] hearing for the President's pick to lead
+- [32:52.970] the CFTC that the CFTC currently has zero
+- [32:56.174] Democrat commissioners, whereas usually it's had
+- [32:58.609] two or more.
+- [33:00.411] Does the President plan to appoint Democrats to
+- [33:03.047] financial regulators like the CFTC and SEC?
+- [33:06.150] Or does the President feel that there shouldn't be
+- [33:07.819] Democrat leadership at those agencies consistent
+- [33:10.321] with the administration's move earlier this year to
+- [33:13.024] remove Democrats from the FTC and other agencies?
+- [33:16.294] Karoline Leavitt: I'm going to be completely
+- [33:16.961] honest.
+- [33:17.695] I haven't spoken to the President about the FTC,
+- [33:20.231] CFTC in quite some time, but I'm happy to check in
+- [33:22.867] with our presidential personnel office and see
+- [33:24.602] if there's any updates that we can provide you
+- [33:26.104] there.
+- [33:27.472] The Press: Thank you, Karoline.
+- [33:29.674] Last week on Fox News, President Trump said that
+- [33:32.543] we've had a lot of problems with the French.
+- [33:35.046] How would you describe the current relationship
+- [33:37.215] between France and the U.S.?
+- [33:39.050] Karoline Leavitt: The relationship remains very
+- [33:40.752] strong.
+- [33:41.719] President Trump speaks quite frequently with
+- [33:44.188] Emmanuel Macron.
+- [33:45.323] I think they have a good working relationship.
+- [33:47.725] But the President is not shy to point out when he
+- [33:50.461] has disagreements with world leaders as well.
+- [33:52.897] And he's done that with respect to Mr. Macron as
+- [33:55.266] well.
+- [33:56.868] Deanna.
+- [33:58.870] The Press: Karoline, there are reports that Qatar is
+- [34:00.972] acting as a mediator in the Ukraine peace process.
+- [34:03.808] Can you confirm that?
+- [34:04.876] And why did Trump, why did the President choose that
+- [34:06.778] country?
+- [34:07.812] Karoline Leavitt: I'm not going to get into further
+- [34:08.980] details other than what I previously shared, which I
+- [34:10.381] think was quite a bit of information.
+- [34:12.950] Brian?
+- [34:14.452] The Press: Thank you, Karoline.
+- [34:15.219] Two questions.
+- [34:15.920] We were talking about four earlier in this briefing
+- [34:18.222] about the President's orders.
+- [34:19.624] You were going back and forth about what the ad
+- [34:21.759] said and what you'd say.
+- [34:22.927] My first question is --.
+- [34:23.961] Karoline Leavitt: The ad?
+- [34:24.762] The Press: The advertisement that the
+- [34:25.596] Senate Democrats were featured in.
+- [34:27.098] So the first question is, no matter what the order
+- [34:30.902] is, it could be to any administration official,
+- [34:33.438] military or otherwise, no matter if legal experts
+- [34:37.008] might think it's illegal, does the President expect
+- [34:39.277] those Cabinet members, administration officials
+- [34:41.612] to go ahead with those orders regardless of any
+- [34:44.649] outside thinking or anything.
+- [34:45.983] Karoline Leavitt: The President expects his
+- [34:47.385] Cabinet officials in the administration to follow
+- [34:49.153] the law and to demand accountability and hold
+- [34:52.423] people accountable for their dangerous rhetoric.
+- [34:54.659] And I would just add that if this were Republican
+- [34:57.295] members of Congress who were encouraging members
+- [34:59.530] of the military and members of our United
+- [35:01.365] States government to defy orders from the President
+- [35:04.402] and from the chain of command, this entire room
+- [35:07.338] would be up in arms.
+- [35:08.840] But instead, it is the other way around, and I
+- [35:11.008] think that's quite telling.
+- [35:12.043] I'm going to let you all go because the President
+- [35:13.845] -- excuse me -- the President -- I appreciate
+- [35:17.882] the encouragement this morning, but -- this
+- [35:21.853] afternoon -- but President Trump is about to meet in
+- [35:24.455] minutes with Israeli hostages who this
+- [35:28.659] administration freed, and so I'm going to go up to
+- [35:30.695] that meeting, and you will hear more about that later.
+- [35:33.498] Thank you.

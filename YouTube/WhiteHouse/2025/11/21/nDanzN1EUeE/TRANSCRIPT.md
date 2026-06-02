@@ -1,0 +1,824 @@
+<!-- source: https://www.youtube.com/watch?v=nDanzN1EUeE -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: nDanzN1EUeE -->
+<!-- date_published: 2025-11-21T22:04:02+00:00 -->
+<!-- date_accessed: 2026-06-02T01:09:58.706485+00:00 -->
+
+# Transcript: President Trump Meets with Zohran Mamdani, Mayor-Elect, New York City
+
+- [00:00.330] The President: Thank you very much.
+- [00:01.530] We've just had a great meeting,
+- [00:04.330] a really good, a very productive meeting.
+- [00:06.200] We have one thing in common.
+- [00:07.940] We want this city of ours that we love to do very well.
+- [00:12.600] And I want to congratulate the mayor.
+- [00:14.760] He really ran an incredible race against a lot of smart people.
+- [00:18.910] Starting with the early primaries
+- [00:20.390] against some very tough people, very smart people,
+- [00:23.700] and he beat them and beat them easily.
+- [00:25.540] And I congratulated him.
+- [00:27.780] And we talked about some things, and very strong in common,
+- [00:32.290] like housing and getting housing built.
+- [00:36.500] Food and prices, and the price of oil is coming way down.
+- [00:41.530] Anything I do is going to be good for New York.
+- [00:43.460] If I can get prices down, it's good for New York.
+- [00:46.090] And we've got them down, way down from last year.
+- [00:49.810] We have, as you know --
+- [00:51.560] I've been saying to a lot of people,
+- [00:52.970] Walmart said that Thanksgiving this year
+- [00:55.400] is exactly 25 percent less than last year,
+- [00:57.810] so that is good for New York. Good for everybody.
+- [01:00.860] But I just want to congratulate.
+- [01:02.610] I think, hopefully, you'll have a really great mayor.
+- [01:05.640] The better he does, the happier I am.
+- [01:07.590] There is no difference in party.
+- [01:10.450] There is no difference in anything,
+- [01:11.830] and we're going to be helping him
+- [01:13.990] to make everybody's dream come true.
+- [01:16.340] Having a strong and very safe New York,
+- [01:18.300] and congratulations, Mr. Mayor.
+- [01:19.740] Zohran Mamdani: Thank you, Mr. President.
+- [01:20.980] I appreciate it.
+- [01:22.220] The President: Please.
+- [01:23.500] Zohran Mamdani: I appreciated the meeting with the President,
+- [01:25.360] and as he said, it was a productive meeting
+- [01:27.260] focused on a place of shared admiration and love,
+- [01:30.490] which is New York City.
+- [01:31.720] And the need to deliver affordability to New Yorkers,
+- [01:34.990] the eight and a half million people
+- [01:36.530] who call our city their home,
+- [01:37.840] who are struggling to afford life
+- [01:39.890] in the most expensive city in the United States of America.
+- [01:42.290] We spoke about rent. We spoke about groceries.
+- [01:44.430] We spoke about utilities.
+- [01:45.680] We spoke about the different ways
+- [01:47.210] in which people are being pushed out,
+- [01:48.440] and I appreciated the time with the President.
+- [01:50.210] I appreciate the conversation,
+- [01:51.480] and I look forward to working together
+- [01:53.540] to deliver that affordability for New Yorkers.
+- [01:56.450] The President: Thank you very much. Any questions?
+- [01:59.610] The Press: I have a question for you
+- [02:02.470] and then also one for the mayor-elect.
+- [02:04.040] The President: Sure.
+- [02:05.270] The Press: For you, you refer to Mr. Mamdani as a "communist."
+- [02:08.030] Can you describe why you feel that way,
+- [02:10.270] and also, will you do anything to stop him
+- [02:12.970] from arresting Prime Minister Netanyahu
+- [02:15.160] if he visits New York?
+- [02:16.510] The President: Well, we didn't discuss
+- [02:17.730] your second part of the question.
+- [02:19.390] And on your first part, he's got views out there,
+- [02:23.040] but who knows --
+- [02:24.300] I mean, we're going to see what works.
+- [02:26.890] He's going to change also. We all change.
+- [02:28.520] I changed a lot, changed a lot from
+- [02:31.060] when I first came to office.
+- [02:32.280] It's now quite a while ago, it's quite a while.
+- [02:35.260] My first term was great, we had the greatest economy
+- [02:38.690] in the history of our country, and we're doing even better now.
+- [02:40.890] We're doing much better now than we did even in the first term.
+- [02:43.800] And I can tell you, some of my views have changed.
+- [02:47.400] We had discussions on some things.
+- [02:49.410] I am not going to discuss what they were,
+- [02:50.950] but I feel very confident that he can do a very good job.
+- [02:55.290] I think -- I think he's going to be,
+- [02:56.930] I think he's going to surprise
+- [02:58.540] some conservative people, actually.
+- [03:00.930] And some very liberal people, he won't surprise them,
+- [03:02.980] because they already like him.
+- [03:05.530] The Press: Mr. Mamdani,
+- [03:06.920] it sounds like you had a productive discussion,
+- [03:09.310] but just days ago you referred to President Trump
+- [03:11.340] as a despot who betrayed the country.
+- [03:13.900] You said, "I'll be his worst nightmare"
+- [03:15.670] and accused him of having a fascist agenda.
+- [03:18.770] Are you planning to retract any of these remarks
+- [03:21.190] in order to improve your relationship?
+- [03:23.470] Zohran Mamdani: I think both President Trump and I,
+- [03:25.420] we are very clear about our positions and our views.
+- [03:28.610] And what I really appreciate about the President
+- [03:30.740] is the meeting that we had focused
+- [03:32.340] not on places of disagreement, which there are many,
+- [03:35.010] and also focused on the shared purpose
+- [03:37.570] that we have in serving New Yorkers.
+- [03:39.270] And frankly, that is something that could transform the lives
+- [03:41.690] of eight and a half million people
+- [03:43.140] who are currently struggling under a cost-of-living crisis,
+- [03:45.650] with one in four living in poverty.
+- [03:47.350] And the meeting came back again and again
+- [03:49.440] to what it could look like to lift
+- [03:51.000] those New Yorkers out of struggle
+- [03:52.500] and start to deliver them the city that they can do more
+- [03:54.350] than just struggle to afford it, but also start to live in.
+- [03:56.920] The President: I've been called much worse than a despot.
+- [04:00.640] It's not that insulting.
+- [04:02.730] Maybe -- I think he'll change his mind
+- [04:04.510] after we get to working together.
+- [04:05.770] Yes, please.
+- [04:09.460] The Press: I would like to ask you a question
+- [04:11.110] about the Middle East regarding --
+- [04:12.810] do you think that Hezbollah and Lebanon
+- [04:15.610] is not in a good position?
+- [04:17.540] And Lebanon now is the final unresolved after Gaza and Syria.
+- [04:22.400] Given your assessment, what do you say for Lebanese today?
+- [04:26.010] (inaudible) in the state in Lebanon,
+- [04:27.990] and what is your next move
+- [04:29.880] to push toward disarmament of Hezbollah?
+- [04:32.450] The President: Sure, well, we're pushing
+- [04:33.790] for total disarmament of Hamas, and frankly, everybody else.
+- [04:38.130] We actually have peace in the Middle East.
+- [04:39.810] As you know, the king of Saudi Arabia just left yesterday,
+- [04:42.220] and we had some great meetings,
+- [04:44.140] and he's made a contribution toward the United States
+- [04:47.710] of more than a trillion dollars.
+- [04:49.260] We have now over $20 trillion coming in.
+- [04:52.170] No country has ever had anything like that.
+- [04:54.250] Not even close.
+- [04:55.670] If you go to $2 trillion or $1 trillion, it's a lot.
+- [04:58.220] We have $20 or $21 trillion.
+- [05:01.230] I think that Hezbollah has been a problem in Lebanon,
+- [05:05.870] a big problem. We're working with Lebanon.
+- [05:08.420] We're working with everybody in the Middle East.
+- [05:10.080] That's another thing I think we have in common --
+- [05:11.760] we want to see peace in the Middle East.
+- [05:13.210] And we actually have now, for the first time,
+- [05:15.690] peace in the Middle East after 3,000 years.
+- [05:19.060] And now we're going to refine it,
+- [05:20.480] and I think you're going to see
+- [05:21.770] some very positive things happen.
+- [05:23.310] The Press: What is the potential for an invite
+- [05:24.750] to the Lebanese president to the White House?
+- [05:27.570] The President: Oh sure. Oh, I would do that. Absolutely.
+- [05:29.900] And if the mayor would like to be here for that meeting --
+- [05:32.420] because I know he feels very strongly.
+- [05:34.600] I think you feel very, very strongly
+- [05:36.000] about peace in the Middle East.
+- [05:37.670] Zohran Mamdani: We desperately want it,
+- [05:38.890] and that's something that I shared with the President.
+- [05:40.970] When I spoke to New Yorkers
+- [05:42.830] who had voted for the President last November on Hillside Avenue
+- [05:46.520] and Fordham Road, I asked them why.
+- [05:48.380] I heard, again and again, two major reasons.
+- [05:50.490] One was that they want an end to forever wars --
+- [05:52.990] they wanted an end to the taxpayers' dollars
+- [05:55.340] we had funding violations of human rights,
+- [05:57.620] and they wanted to address the cost-of-living crisis.
+- [06:00.120] And I appreciated the chance to discuss both of those things.
+- [06:01.950] The President: He said a lot of my voters
+- [06:03.190] actually voted for him.
+- [06:04.430] Zohran Mamdani: One in 10.
+- [06:05.650] The President: And I'm okay with that.
+- [06:12.380] The Press: Mr. President,
+- [06:15.480] you threatened to send federal troops to New York City.
+- [06:18.430] You both have differences
+- [06:19.750] when it comes to ICE agents in New York City.
+- [06:22.890] Mr. Mamdani called ICE a rogue government entity.
+- [06:26.410] I wonder how you reconcile your differences
+- [06:28.820] on both of those issues?
+- [06:30.110] The President: I think we're going to work them out.
+- [06:31.480] And I think that, if we have known murderers
+- [06:35.730] and known drug dealers and some very bad people,
+- [06:39.220] you know, we want to get them out,
+- [06:40.680] and the mayor wants to have peace.
+- [06:42.560] We discussed this at great length, actually.
+- [06:44.310] Maybe more than anything else.
+- [06:46.190] He wants to have a safe New York.
+- [06:47.800] Ultimately, a safe New York is going to be a great New York.
+- [06:50.810] If it's not safe, no matter how well we do
+- [06:52.770] with pricing and with anything else --
+- [06:55.660] we can talk about anything you want.
+- [06:57.330] If you don't have safe streets, it's not going to be a success.
+- [07:00.550] So we're going to work together, and we're going to make sure
+- [07:02.670] that if they are horrible people,
+- [07:04.370] then we want to get them out.
+- [07:05.700] I think he wants to get them out, maybe more than I do.
+- [07:08.270] So we'll work together. We discussed it at great length.
+- [07:11.620] Yes, please.
+- [07:16.760] The Press: First of all, for the mayor-elect:
+- [07:18.790] You're both from different parts of the political perspective.
+- [07:21.870] You're both populist, though, and I just wonder to what extent
+- [07:25.300] the President's campaign styles --
+- [07:27.530] his techniques, his social media use --
+- [07:29.730] inspired any part of your campaign?
+- [07:31.860] Zohran Mamdani: Well, I actually told the President that,
+- [07:33.810] you know, so much of the focus of our campaign
+- [07:36.170] has been on the cost-of-living crisis,
+- [07:37.790] and when we asked those New Yorkers
+- [07:39.320] who had voted for the President --
+- [07:40.590] when we saw an increase in his numbers in New York City,
+- [07:44.150] that came back to the same issue.
+- [07:45.370] Cost of living. Cost of living. Cost of living.
+- [07:47.600] And they spoke about the cost of groceries,
+- [07:49.130] the cost of rent, the cost of Con Ed,
+- [07:51.170] the cost of child care. And too often,
+- [07:53.300] politicians are looking to lecture to New Yorkers
+- [07:55.580] what they should care about, as opposed to listen.
+- [07:57.780] And when we spoke to those voters
+- [07:59.150] who voted for President Trump,
+- [08:00.970] we heard them speak about cost of living.
+- [08:02.930] We focused on that same cost of living,
+- [08:04.410] and that's where I'm really looking forward
+- [08:07.070] to delivering for New Yorkers in partnership
+- [08:09.400] with the President on the affordability agenda.
+- [08:12.580] The President: I think we have to work a little bit --
+- [08:13.900] we talked about Con Edison.
+- [08:15.220] We have to work a little bit on getting the prices --
+- [08:17.120] because you know, we have gotten fuel prices way down,
+- [08:20.040] but it hasn't shown up in Con Edison.
+- [08:22.690] And we're going to have to talk to them.
+- [08:24.780] If we're sending them fuel at a much lower price
+- [08:28.100] than it was a year ago, which is true,
+- [08:30.790] we have to get Con Edison to start lowering their rates.
+- [08:33.320] Zohran Mamdani: Absolutely.
+- [08:35.220] The Press: Last week, you told me you were
+- [08:37.420] pushing ahead with your plans to sue BBC for up to $5 billion.
+- [08:40.560] You were going to speak to Prime Minister Starmer as well.
+- [08:43.460] Is there any progress or any updates on those issues?
+- [08:45.830] The President: Well, we get along very well
+- [08:47.290] with the prime minister.
+- [08:48.940] We made a deal with U.K. I like him.
+- [08:51.940] He's a fine person, and, you know,
+- [08:54.000] I think they have some big energy problems.
+- [08:55.860] You know, they have got windmills all over the place.
+- [08:57.760] They're going to have to start using other methods,
+- [09:00.340] because their energy is out of control.
+- [09:02.880] Talking about in the U.K. It's out of control.
+- [09:06.190] And he's got that problem.
+- [09:08.710] He's got a big immigration problem, as you know,
+- [09:10.710] and he's got a big energy problem,
+- [09:12.180] and we talk about it. He's a good man.
+- [09:13.940] The prime minister is a good man.
+- [09:15.410] The Press: Have you had have a chance to speak this week?
+- [09:17.840] The President: I haven't spoken to him this week.
+- [09:19.590] The Press: Mr. President, have you spoken
+- [09:20.850] to President Zelensky, or do you intend to speak?
+- [09:25.870] The President: I've spoken with their people.
+- [09:27.730] We have a plan.
+- [09:29.270] It's horrible what's happening --
+- [09:31.020] it's a war that should never have happened.
+- [09:32.550] It would never have happened if I was president,
+- [09:34.420] and it's a shame.
+- [09:35.870] I felt they should have acted quicker.
+- [09:38.070] But it's a cold winter, and a lot of the,
+- [09:39.810] a lot of the -- you talk about utilities --
+- [09:42.760] but a lot of the big energy-producing plants
+- [09:45.750] have been under attack,
+- [09:47.180] to put it mildly, to put it nicely.
+- [09:50.000] Yeah, we have a way of getting peace,
+- [09:53.760] or we think we have a way of getting peace.
+- [09:55.700] He's going to have to approve it.
+- [09:58.180] It's so sad. So many people.
+- [09:59.730] You know, last month they lost 25,000 soldiers.
+- [10:03.930] This is something -- we haven't seen anything like this
+- [10:06.230] since the Second World War.
+- [10:08.270] And they are averaging six or seven thousand a week
+- [10:11.240] between the two of them -- dead soldiers,
+- [10:14.520] and it goes on and on.
+- [10:15.820] And, I think they are getting reasonably close, but --
+- [10:20.140] I don't want to predict.
+- [10:21.370] I would have said that would have been one of my early ones.
+- [10:23.320] I did eight peace deals of countries,
+- [10:26.650] including India, Pakistan.
+- [10:29.750] You could even go -- in fact, they are coming here
+- [10:31.590] in a week or two -- go to the Congo and Rwanda.
+- [10:35.030] That was one -- 10 million people dead,
+- [10:37.810] and we worked something out on that. But so many.
+- [10:40.200] And the one I thought would have been for me,
+- [10:42.960] because I have a very good relationship
+- [10:44.360] with President Putin --
+- [10:45.560] I thought that would have been maybe quicker,
+- [10:47.930] but it does take two to tango,
+- [10:50.790] and now, we just see all the death.
+- [10:54.520] And, you know, it doesn't affect us other than the fact
+- [10:57.320] that we don't want to see all of those people dead.
+- [10:58.900] Really, it's on the other side of the ocean,
+- [11:01.200] and it's a war that should have never happened.
+- [11:02.880] It did happen.
+- [11:04.090] I blame the person also sitting right behind this desk.
+- [11:08.440] This is a war that should have never happened,
+- [11:10.100] and it wouldn't have happened if I were president,
+- [11:12.050] but we're trying to save a lot of lives.
+- [11:13.730] They are losing --
+- [11:14.970] they are losing 25 -- think of that --
+- [11:16.850] 25,000 lives over the last short period of time.
+- [11:20.760] That's Ukrainian and Russian.
+- [11:23.110] And it's a shame.
+- [11:27.550] The Press: I want to ask the mayor-elect
+- [11:28.900] about a House resolution,
+- [11:30.630] just passed overwhelmingly, to condemn socialism --
+- [11:34.240] including with 86 Democrats, all of House Dem leadership
+- [11:38.400] and the minority leader, Hakeem Jeffries,
+- [11:40.290] despite his endorsement of you. What's your reaction to that?
+- [11:43.230] Zohran Mamdani: I have to be honest with you,
+- [11:44.470] I focus very little on resolutions.
+- [11:45.680] Frankly, I've been focusing --
+- [11:47.000] The Press: It's against socialism.
+- [11:48.230] Zohran Mamdani: I understand.
+- [11:49.470] I think that the focus is on the work at hand.
+- [11:50.900] I can tell you, I am someone who is a democratic socialist,
+- [11:53.520] I have been very open about that.
+- [11:55.150] And I know that there might be differences about ideology,
+- [11:57.490] but the place of agreement is the work that needs
+- [11:59.430] to be done to make New York City affordable.
+- [12:01.180] That's what I look forward to.
+- [12:04.850] The Press: He asked about your comment
+- [12:06.760] calling the President a fascist,
+- [12:09.280] and your answer was, "President Trump
+- [12:11.950] and I have been clear in our positions and views."
+- [12:14.600] Are you affirming that you think President Trump is a fascist?
+- [12:17.620] Zohran Mamdani: I've spoken about --
+- [12:18.840] The President: That's okay. You can just say it.
+- [12:21.630] That's easier. It's easier than explaining it.
+- [12:24.010] I don't mind.
+- [12:25.280] The Press: And Mr. President,
+- [12:26.490] I wanted to ask you also about this Ukraine plan.
+- [12:30.910] President Zelensky said today that his country would risk
+- [12:33.970] either giving up a partner or giving up his dignity.
+- [12:37.290] There has been criticism that this deal --
+- [12:39.150] The President: You mean that he doesn't like it?
+- [12:41.040] The Press: It's unclear. He was sort of --
+- [12:42.600] The President: He'll have to like it,
+- [12:43.850] and if he doesn't like it, then you know,
+- [12:45.170] they should just keep fighting, I guess.
+- [12:46.540] You know.
+- [12:47.820] The Press: The suggestion that you made, though,
+- [12:49.020] was that if he doesn't accept it,
+- [12:51.300] that the U.S. would pull back its support for Ukraine.
+- [12:53.490] The President: Well, at some point
+- [12:54.800] he's going to have to accept something.
+- [12:56.350] You know, he hasn't accepted.
+- [12:57.550] You remember, right in the Oval Office,
+- [12:59.780] not so long ago, I said, "You don't have the cards."
+- [13:04.860] Don't forget, I inherited this war.
+- [13:07.290] This war would never have happened.
+- [13:08.540] I inherited this war.
+- [13:10.310] And I thought he should have made a deal a year ago.
+- [13:14.520] Two years ago.
+- [13:15.750] The ultimate deal would have been if it never started --
+- [13:17.440] that would have been a good deal.
+- [13:18.710] That could have been done too, if you had the right president,
+- [13:20.770] but you didn't have the right president.
+- [13:25.250] The Press: Mr. President, the cost of living
+- [13:26.770] is something you and Mr. Mamdani seem to agree on.
+- [13:30.630] Democrats have run New York City for a long time.
+- [13:33.780] Mr. Mamdani, do you see Democrat policies
+- [13:37.620] specifically as being the problem --
+- [13:39.610] and I'd like that be a question that both of you could answer --
+- [13:42.030] in New York City?
+- [13:43.270] Zohran Mamdani: Look, I think that there are many things
+- [13:45.230] in our city
+- [13:46.610] where we have to own the responsibility of it.
+- [13:48.370] Things that existed long before the President was the President.
+- [13:51.700] And those are also part of the message of our campaign --
+- [13:54.320] was to take on a broken politics of the past.
+- [13:56.870] And I ran against a number of candidates
+- [13:58.360] who represented different versions of that past.
+- [14:00.400] And what we found, time and again,
+- [14:01.850] is that working people were left behind
+- [14:04.010] in the politics of our city. And what we are looking to do
+- [14:06.250] is put those people right back at the heart of our politics
+- [14:08.930] so that we don't have a situation
+- [14:10.210] where we're in the wealthiest city in the history of the world
+- [14:14.170] and yet one in five can't even afford 2 dollars
+- [14:16.410] and 90 cents for a MetroCard.
+- [14:19.180] The President: You know, we had some interesting conversation,
+- [14:22.010] and some of his ideas really are the same ideas that I have.
+- [14:26.590] A big thing on cost. The new word is "affordability."
+- [14:30.860] Another word, it's just groceries.
+- [14:32.540] It's sort of an old-fashioned word,
+- [14:33.940] but it's very accurate.
+- [14:36.190] They are coming down. They are coming down.
+- [14:38.740] You know, we had -- both of us --
+- [14:40.050] we had the highest inflation in the history of our country
+- [14:42.630] the last four years under the Biden administration.
+- [14:46.830] And we've got inflation down to a normal number.
+- [14:49.550] It will go even a little lower than that.
+- [14:54.010] The Press: Mr. Mamdani often talks about New York City
+- [14:56.410] being covered by international law,
+- [14:59.590] that they will follow international law,
+- [15:01.590] doesn't often talk about the U.S. Constitution.
+- [15:04.020] What is your response to that?
+- [15:06.550] The President: Well, I don't know
+- [15:07.800] what you're referring to in terms --
+- [15:09.370] it could be covered by international law, local law.
+- [15:12.060] It's covered by a lot of laws, but it's covered by U.S. law.
+- [15:16.930] Are you referring to anything in particular?
+- [15:19.240] The Press: You just said that they're a city that endorses
+- [15:21.210] and enforces international law. Is that at odds with --
+- [15:26.100] The President: No, I don't know. Would you want to -- have you?
+- [15:28.390] Would you want to respond?
+- [15:29.700] Zohran Mamdani: Yeah, I think what I've shared
+- [15:31.500] with the President is our desire to not only follow
+- [15:35.030] the laws of our own city laws that protect New Yorkers,
+- [15:37.360] but also a desire for consistency
+- [15:39.240] in our politics across the board,
+- [15:40.550] and that's something we've talked about and something
+- [15:42.700] that I know many New Yorkers want.
+- [15:43.940] The Press: Would you work with ICE then?
+- [15:46.720] Zohran Mamdani: We discussed ICE and New York City,
+- [15:49.510] and I spoke about how the laws that we have in New York City
+- [15:52.090] allow for New York City government
+- [15:54.160] to speak to the federal administration
+- [15:55.590] for about 170 serious crimes.
+- [15:57.950] The concerns that many New Yorkers
+- [15:59.210] have are around the enforcement of immigration laws
+- [16:02.410] on New Yorkers across the five boroughs,
+- [16:05.170] and most recently, we're talking about a mother
+- [16:06.810] and her two children,
+- [16:08.020] how this has very little to do with what that is.
+- [16:10.950] The President: What we did is, we discussed crime.
+- [16:14.030] More than ICE, per se, we discussed crime.
+- [16:16.640] And he doesn't want to see crime,
+- [16:18.490] and I don't want to see crime, and I have very little doubt
+- [16:22.430] that we're not going to get along on that issue.
+- [16:24.150] And he wants to -- and he said some things
+- [16:26.390] that were very interesting, very interesting,
+- [16:28.560] as to housing construction,
+- [16:29.870] and he wants to see houses go up.
+- [16:32.340] He wants to see a lot of houses created,
+- [16:34.080] a lot of apartments built, et cetera.
+- [16:37.010] You know, we actually -- people would be shocked,
+- [16:41.030] but I want to see the same thing.
+- [16:46.250] The Press: I want to know, one of the policies
+- [16:48.860] as well that Mayor-elect Mamdani
+- [16:50.990] talked a number of times about on the campaign
+- [16:53.390] was shifting the tax burden for property taxes
+- [16:56.260] from what he called minority communities
+- [16:58.870] to white-based communities,
+- [17:01.380] and putting more taxes on white people.
+- [17:03.490] I also noticed in your acceptance speech
+- [17:05.250] you didn't mention --
+- [17:06.460] you didn't mention anything about America
+- [17:09.620] or Christians or white people in general,
+- [17:11.570] and so, I didn't know if that was one of the policies
+- [17:14.090] that you guys had spoken about?
+- [17:15.590] Zohran Mamdani: We focused on affordability.
+- [17:17.080] We focused on the cost-of-living crisis.
+- [17:18.790] What I will say is that I'm very much interested in property tax
+- [17:22.110] reform because what we see right now in New York City
+- [17:25.020] is a system that is so inequitable
+- [17:27.260] that it can't even stand up in court.
+- [17:28.900] And the President and I spoke about the importance
+- [17:31.430] of not only building more housing
+- [17:32.880] but also making sure that regulation of housing
+- [17:35.260] is something that is manageable to actually get through
+- [17:37.920] and not the cause of yet another wait
+- [17:39.550] that we see in our city -- The Press: To be clear,
+- [17:40.890] you're continuing this idea of race-based property taxes.
+- [17:43.660] Zohran Mamdani: No, to be very clear --
+- [17:44.860] The Press: It's what you said --
+- [17:46.090] Zohran Mamdani: No, the use of the term
+- [17:47.890] was a description of neighborhoods,
+- [17:49.270] not a description of intent.
+- [17:50.940] The Press: So you intend to tax the whiter neighborhoods more.
+- [17:52.950] Zohran Mamdani: No, we intend to create
+- [17:54.180] a fair property tax system, because we want a New York City
+- [17:56.450] that is not only fair and equitable,
+- [17:57.950] but also one that every New Yorker can afford.
+- [18:03.790] The President: Please go ahead.
+- [18:05.040] The Press: Mr. Mamdani, anti-Israel protesters
+- [18:06.820] just targeted a synagogue in New York.
+- [18:09.450] Are you concerned about Jewish New Yorkers
+- [18:11.410] feeling welcome and safe in the city?
+- [18:13.200] And President Trump, you threatened to cut off
+- [18:15.460] federal funding to New York City.
+- [18:17.070] What policies would prompt you to do that?
+- [18:18.850] Would that be city-run grocery stores?
+- [18:20.610] Would it be something else?
+- [18:22.100] The President: Well, I think if we didn't get along,
+- [18:23.850] whether it's cut off or just make it a little bit difficult
+- [18:26.520] or not give as much, we want to see --
+- [18:28.710] I use the term, we don't want good money going after bad.
+- [18:32.910] We just -- we don't want that to happen.
+- [18:35.610] I don't think that's going to happen.
+- [18:37.340] I did say, you know, subject to what policies are being set.
+- [18:42.210] We had a meeting today that actually surprised me.
+- [18:45.030] He wants to see no crime.
+- [18:47.020] He wants to see housing being built.
+- [18:49.380] He wants to see rents coming down,
+- [18:50.800] all the things that I agree with.
+- [18:52.540] We may disagree on how we get there.
+- [18:54.520] The rent coming down -- I think one of the things
+- [18:57.770] I really gleaned very, very much today,
+- [19:01.270] he would like to see them come down ideally
+- [19:03.200] by building a lot of additional housing.
+- [19:05.280] That's the ultimate way.
+- [19:06.490] He agrees with that, and so do I.
+- [19:08.070] But, if I read the newspapers, and the stories --
+- [19:11.450] I don't hear that. But I heard him say it today.
+- [19:15.380] I think that's a very positive step.
+- [19:17.480] Now, I don't expect --
+- [19:18.780] I expect to be helping him, not hurting him.
+- [19:21.260] A big help, because I want New York City to be great.
+- [19:25.370] Look, I love New York City. It's where I come from.
+- [19:27.740] I spent a lot of years there. Now I'm right here.
+- [19:31.630] We took a big step back with the mayor that we had,
+- [19:33.750] named de Blasio.
+- [19:35.270] I thought it was a tremendous setback for the city.
+- [19:38.160] I think this mayor can do some things
+- [19:39.820] that are going to be really great.
+- [19:45.560] The President: Go ahead.
+- [19:46.810] The Press: You're a billionaire.
+- [19:48.040] You have a different address nowadays than you used to.
+- [19:50.740] You used to call New York City home.
+- [19:52.740] Would you feel comfortable living in New York City
+- [19:55.220] under a Mamdani administration?
+- [19:56.980] The President: Yes, I would -- especially after the meeting.
+- [19:58.790] Absolutely.
+- [20:00.090] The Press: What makes you comfortable?
+- [20:02.450] The President: We agree on a lot more than I would have thought.
+- [20:06.040] I think he's -- I want him to do a great job,
+- [20:08.870] and we'll help him do great job.
+- [20:10.390] You know, he may have different views,
+- [20:12.650] but in many ways, you know -- we were discussing,
+- [20:15.190] when Bernie Sanders was out of the race,
+- [20:17.020] I picked up a lot of his votes, and people had no idea,
+- [20:20.170] because he was strong on not getting ripped off in trade
+- [20:22.700] and lots of the things that I practiced,
+- [20:24.870] and been very successful on.
+- [20:27.710] Tariffs, a lot of things.
+- [20:28.990] Bernie Sanders and I agreed on much more than people thought,
+- [20:32.900] and when he was put out of the race --
+- [20:36.210] I think quite unfairly, if you want to know the truth --
+- [20:39.640] many of the Bernie Sanders voters voted for me,
+- [20:43.070] and I felt very comfortable
+- [20:44.870] frankly seeing that and saying that.
+- [20:46.810] And you know, it just turned out to be a statistical truth.
+- [20:51.090] But, no, I feel very comfortable.
+- [20:54.100] I would feel very, very comfortable being in New York,
+- [20:57.440] and I think much more so after the meeting.
+- [20:59.180] Yes, please.
+- [21:00.400] The Press: I have a question for you.
+- [21:01.620] But a very quick one for the mayor.
+- [21:03.470] Why did you fly here? Aren't trains greener?
+- [21:06.910] Zohran Mamdani: I will use every form of transit,
+- [21:08.250] and I want to make sure
+- [21:09.540] that they are all affordable in New York City,
+- [21:11.060] and that's why making buses and fast
+- [21:12.340] and free is centerpiece of our campaign.
+- [21:13.620] The Press: There is a bus --
+- [21:14.820] The President: Well, but I know --
+- [21:16.040] if he flew, that's a lot quicker, too.
+- [21:18.130] You know, I mean -- he's working very hard.
+- [21:20.550] For him to be -- that's a long, that's a very --
+- [21:23.470] that's a very long drive. I'll stick up for you.
+- [21:25.800] You know the plane takes you 30 minutes
+- [21:27.440] and driving takes you longer.
+- [21:28.750] The Press: Mr. President, I wonder if you could clear up
+- [21:30.780] some confusion around a Washington Post report.
+- [21:34.310] There is an explosive report that the Coast Guard
+- [21:36.440] is no longer going to characterize
+- [21:38.390] swastika and nooses as hate symbols.
+- [21:40.790] D.H.S. called that a lie and fake news. Can you clear up?
+- [21:44.710] The President: I don't know anything about it.
+- [21:46.370] When was this written?
+- [21:47.650] The Press: Yesterday.
+- [21:48.870] The President: Well, look, the Coast Guard
+- [21:50.200] is an incredible group of people.
+- [21:51.650] I know them very well.
+- [21:52.930] We just ordered a lot of new Coast Guard cutters.
+- [21:56.300] Beautiful. They make the most magnificent ship.
+- [21:58.500] They look like yachts with lots of guns on them.
+- [22:01.920] So I don't know. I haven't seen any report like that,
+- [22:04.290] but certainly we want them to remain a great force,
+- [22:06.970] and they are.
+- [22:09.270] The Press: You did the peace
+- [22:10.660] in all the nine months around the world.
+- [22:12.660] I would like to ask Zohran Mamdani:
+- [22:14.680] You've accused the U.S. government
+- [22:16.290] of committing genocide in Gaza
+- [22:17.880] while President Trump is working on this.
+- [22:20.180] Why -- why that?
+- [22:21.640] Zohran Mamdani: I have spoken about the Israeli government
+- [22:23.230] committing genocide,
+- [22:24.450] and I have spoken about our government funding it.
+- [22:26.770] And I shared with the President in our meeting
+- [22:29.150] about the concern that many New Yorkers
+- [22:30.580] have of wanting their tax dollars
+- [22:32.420] to go toward the benefit of New Yorkers
+- [22:34.660] and their ability to afford basic dignity.
+- [22:36.960] And what we see right now,
+- [22:38.910] we're in the ninth consecutive year
+- [22:40.160] of more than a hundred thousand school children
+- [22:41.820] being homeless in our city,
+- [22:43.330] and there is a desperate need not only
+- [22:44.690] for the following of human rights
+- [22:46.550] but also the following through on the promises
+- [22:48.530] we've made New Yorkers,
+- [22:49.880] and I appreciated the meeting we had
+- [22:51.470] and the work that we can do.
+- [22:52.850] The Press: Do you agree that President Trump did do a peace
+- [22:55.150] and worked hard to make the peace,
+- [22:56.820] because he worked hard to do the peace
+- [22:58.390] in the Middle East and everywhere?
+- [23:00.250] Do you agree with that?
+- [23:01.530] Zohran Mamdani: I appreciate all efforts toward peace,
+- [23:03.480] and I shared with President Trump,
+- [23:05.160] when I spoke to Trump voters on Hillside Avenue --
+- [23:07.300] including one of whom was a pharmacist that spoke
+- [23:09.500] about how President Trump's father actually went
+- [23:11.390] to that pharmacy not too far from Jamaica Estates --
+- [23:13.840] that people were tired of seeing our tax dollars
+- [23:15.740] fund endless wars.
+- [23:16.960] And I also believe that we have to follow through
+- [23:19.570] on the international human rights,
+- [23:21.810] and I know that still today, those are being violated,
+- [23:23.980] and that continues to be work
+- [23:25.270] that has to be done no matter where we're speaking of.
+- [23:28.990] The Press: Thank you, Mr. President.
+- [23:30.220] Do you view the mayor-elect
+- [23:31.560] as a true leader of the Democratic Party,
+- [23:33.870] and do you think Leader Schumer and Leader Jeffries
+- [23:36.140] should have to follow his lead?
+- [23:37.650] The President: Well, look, I hope they have great leaders.
+- [23:39.930] This is a man that right now
+- [23:41.220] I think is focused on New York City.
+- [23:44.300] I really think he has a chance to do a great job.
+- [23:46.330] We're going to help him.
+- [23:47.880] But I really think he has a chance to do a great job,
+- [23:50.160] but I'll let you answer that.
+- [23:51.500] Do you consider yourself the leader of the Democrats?
+- [23:53.570] I think it's more appropriate for him.
+- [23:55.290] Zohran Mamdani: I consider myself
+- [23:56.550] the next mayor of New York City,
+- [23:57.820] and I keep my horizons firmly on New York City,
+- [24:00.410] and I appreciate the meeting with the President,
+- [24:02.650] which focused, again, on the five boroughs
+- [24:04.770] and whether New Yorkers can afford to live there.
+- [24:06.730] The President: By the way, being the mayor of New York City
+- [24:08.640] is a big deal.
+- [24:10.870] I always said, you know, one of the things I would have loved
+- [24:13.370] to be some day is the mayor of New York City.
+- [24:15.660] Being the mayor of New York -- and especially now,
+- [24:17.630] because I think you're really at a turning point,
+- [24:21.130] one way or the other.
+- [24:22.640] It could go great, or it can go in a different direction,
+- [24:25.970] and I think you really have a chance to make it great.
+- [24:30.090] The Press: Mr. President,
+- [24:31.320] you said you grew up in New York City.
+- [24:32.530] Mr. Mamdani, does New York City love President Trump?
+- [24:35.020] Zohran Mamdani: New York City loves a future
+- [24:36.280] that is affordable.
+- [24:37.540] And I can tell you that there were more New Yorkers
+- [24:39.550] who voted for President Trump
+- [24:41.070] in the most recent presidential election
+- [24:43.070] because of that focus on cost of living,
+- [24:44.680] and I'm looking forward to working together
+- [24:46.280] to deliver on that affordability agenda.
+- [24:47.720] The President: Got a lot. I got a lot of votes.
+- [24:49.490] One more, go ahead. One or two more. Go ahead.
+- [24:53.130] I tell you, the press has eaten this thing up.
+- [24:56.710] You know, I've had a lot of meetings
+- [24:58.140] with the heads of major countries -- nobody cared.
+- [25:01.480] This meeting, that you people have gone crazy.
+- [25:03.380] You know, outside, you have hundreds of people waiting.
+- [25:05.830] This is just a small little group --
+- [25:08.100] for some reason, the press has found this
+- [25:11.110] to be a very interesting meeting.
+- [25:13.290] The biggest people in the world,
+- [25:14.570] they come over from countries -- nobody cares.
+- [25:16.760] But they did care about this meeting,
+- [25:18.330] and it was a great meeting. Go ahead.
+- [25:19.580] The Press: Yeah, Mr. President.
+- [25:20.860] I was going to ask you exactly that:
+- [25:22.120] Why do you think there is so more --
+- [25:23.650] you know, so much excitement around this?
+- [25:26.390] The President: Because I think he's different.
+- [25:28.890] I think he's different.
+- [25:30.170] And that can be in a very positive way,
+- [25:31.770] but I think he's different than, you know, your typical guy
+- [25:34.430] who runs, wins, becomes mayor, maybe, and nothing exciting.
+- [25:38.700] Because he has a chance
+- [25:39.910] to really do something great for New York.
+- [25:41.540] New York is at a very critical point.
+- [25:44.790] And he does need the help of the federal government
+- [25:46.820] to really succeed. We're going to be helping him.
+- [25:50.140] But he's different than, you know,
+- [25:52.770] your average candidate. He came out of nowhere.
+- [25:54.660] I said, he's a great campaign manager standing over there.
+- [25:58.820] He came out of -- he came out of nowhere.
+- [26:01.190] What did you start off at, 1 or 2?
+- [26:02.780] And then I'd watch and say, "Who is this guy?"
+- [26:05.220] He was at 1. Then he was at 3. Then he was at 5.
+- [26:08.760] Then he was at 9. Then he went up to 17.
+- [26:12.120] I said, "Hm, let's get a little bit of trust there, right?"
+- [26:15.990] And then all of a sudden, he wins a primary
+- [26:17.750] that nobody expected he was going to win.
+- [26:19.500] It's a great -- a great tribute,
+- [26:22.580] and it's an amazing thing that he did.
+- [26:26.060] Zohran Mamdani: I'll just add --
+- [26:27.670] I'm sorry, I'll just add one thing
+- [26:29.070] to what the President said.
+- [26:30.610] One thing I also appreciated is, in our meeting,
+- [26:34.810] to appreciate a portrait of F.D.R.,
+- [26:37.260] and the incredible work that was done with the New Deal
+- [26:41.380] and also in thinking about what it can look like
+- [26:43.380] when the federal government and New York City government
+- [26:45.690] work together to deliver on affordability --
+- [26:47.050] it can be transformative.
+- [26:48.270] The President: You know, we have a great portrait of F.D.R.
+- [26:50.210] that I found in the vaults, that was missing for years.
+- [26:54.450] I found it, and I put it up. He's a Democrat --
+- [26:57.550] to the best of my knowledge, he's a Democrat,
+- [27:00.320] and when the mayor saw that portrait, he said,
+- [27:02.180] "Sir, do you mind if I have a picture taken by that portrait?"
+- [27:04.580] It's an amazing portrait -- hope the picture comes out good --
+- [27:07.500] but it's an amazing portrait in the cabinet room.
+- [27:10.590] So he's a big fan of the New Deal,
+- [27:12.210] I guess, and of F.D.R.
+- [27:15.230] The Press: You said you both spoke about crime.
+- [27:17.790] There are many police officers set to come off the rolls
+- [27:20.950] at the end of this year in New York City.
+- [27:23.350] Are you going to allow those police
+- [27:25.950] to be replaced with police officers, actual cops,
+- [27:29.520] and are you going to require that that happens --
+- [27:31.750] will there be some consequence?
+- [27:33.040] The President: Well, I hope it happens,
+- [27:34.240] but again, that's going to be ultimately the mayor's decision.
+- [27:37.530] The Press: What's your answer?
+- [27:38.780] Zohran Mamdani: That I look forward
+- [27:40.020] to delivering public safety with the N.Y.P.D.,
+- [27:41.680] and I've said over the course of our campaign
+- [27:44.010] that we have the number of police officers today,
+- [27:46.000] they are the ones -- The Press: What's that number?
+- [27:47.390] Zohran Mamdani: That's budgeted about a 35,000 head count.
+- [27:49.620] And I think the key thing is that we have to make it easier
+- [27:52.210] for police to focus on police work --
+- [27:54.030] not ask them to respond to 200,000 mental health
+- [27:55.740] calls a year.
+- [27:56.940] The Press: So is that a reduction
+- [27:58.140] from what you're at right now? Are you committing
+- [28:00.620] to maintaining the same level of cops?
+- [28:03.640] Zohran Mamdani: I've committed over the course of the campaign
+- [28:05.400] to maintain the 35,000.
+- [28:06.620] That's the head count that we have through the campaign --
+- [28:08.230] The Press: And not replace them with caseworkers,
+- [28:09.460] social workers?
+- [28:10.700] Zohran Mamdani: No, I've said that's the head count
+- [28:11.900] that we want.
+- [28:13.120] What we need to do is make sure they can focus on serious crime.
+- [28:15.100] The President: And he just retained a great
+- [28:16.390] police commissioner, I believe, right?
+- [28:18.670] Zohran Mamdani: Yes, yes, we did. Commissioner Tisch.
+- [28:20.620] The President: If the newspapers are correct.
+- [28:21.980] Zohran Mamdani: That one they are correct about.
+- [28:23.520] The President: He retained, I think,
+- [28:24.770] somebody that is a --
+- [28:26.920] she's a good friend of some of the people in my family,
+- [28:29.790] of Ivanka, and they say she's really good and competent.
+- [28:32.700] And he just retained her, so that's a good sign.
+- [28:36.420] The Press: Are there small topics that you see
+- [28:37.720] that you're disagreeing on in the future?
+- [28:39.480] And do you think you'll have more meetings with this?
+- [28:41.370] The President: There will be topics that we disagree on,
+- [28:43.160] and I think we'll probably come to a conclusion.
+- [28:45.240] And ultimately, he'll convince me, or I'll convince him.
+- [28:50.250] You know, it's for the good of New York.
+- [28:51.860] Ultimately it's for the good of New York.
+- [28:53.470] I don't care about affiliations or parties or anything else.
+- [28:57.380] I want to see -- if this city could be unbelievable,
+- [29:00.230] if he could be a spectacular success, I would be very happy.
+- [29:02.330] The Press: Do you think you guys
+- [29:03.530] will meet more in the future, too?
+- [29:04.730] The President: Excuse me?
+- [29:05.950] The Press: Do you think you will meet again in the future,
+- [29:07.240] you know, throughout the initial --
+- [29:08.470] The President: I think we will. I think we will. I hope we do.
+- [29:10.730] I enjoyed the meeting. We had a great meeting. Please.
+- [29:13.270] The Press: Mr. President, Republican Elise Stefanik
+- [29:15.060] has campaigned multiple times
+- [29:16.520] by calling Zohran Mamdani a jihadist.
+- [29:18.650] Do you think you're standing next to a jihadist
+- [29:20.380] right now in the Oval Office?
+- [29:21.580] The President: No, I don't. But she's out there campaigning.
+- [29:26.440] You know, you say things sometimes in a campaign.
+- [29:29.000] The Press: Isn't that sort of --
+- [29:30.250] The President: She's a very capable person,
+- [29:32.580] but you really have to ask her about that.
+- [29:35.280] But I don't particular -- I think I met with a --
+- [29:38.560] I've met with a man who is a very rational person.
+- [29:41.590] I met with a man who wants to see --
+- [29:43.440] really wants to see New York be great again.
+- [29:45.530] I can say, again, because New York was great.
+- [29:49.150] You know, when I came down to Washington initially,
+- [29:52.610] the city was so hot. It was doing great.
+- [29:55.860] We were having some telltale signs of problems.
+- [29:59.000] We had a mayor that was not doing a great job,
+- [30:01.590] but still, it was moving along.
+- [30:04.540] And it went bad. It went, you know, pretty bad.
+- [30:09.950] And he can, I think it's been at lower points,
+- [30:12.620] but it went pretty bad. I think he can bring it back.
+- [30:15.810] Now the question is, will he bring it back all the way?
+- [30:18.200] Will he bring it back greater than ever before?
+- [30:21.270] Which is -- I guarantee, that's his wish.
+- [30:23.130] I think he wants to make it greater than ever before.
+- [30:26.190] And if he can, we'll be out there cheering.
+- [30:28.230] I'll be cheering for him.
+- [30:29.510] Okay, thank you very much, everybody.
+- [30:34.810] Thank you very much.
+- [30:36.700] Zohran Mamdani: I care very deeply about Jewish safety,
+- [30:38.220] and I look forward to rooting out antisemitism
+- [30:40.530] across the five boroughs and protecting Jewish New Yorkers
+- [30:42.660] and every New Yorker who calls the city home.

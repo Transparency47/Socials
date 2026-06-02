@@ -1,0 +1,1223 @@
+<!-- source: https://www.youtube.com/watch?v=P2Hx_hfR5h8 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: P2Hx_hfR5h8 -->
+<!-- date_published: 2025-06-04T00:56:40+00:00 -->
+<!-- date_accessed: 2026-06-02T02:48:56.239488+00:00 -->
+
+# Transcript: Vice President JD Vance Attends the American Compass Fifth Anniversary Gala
+
+- [00:01.500] (applause)
+- [00:13.918] Secretary Rubio: Thank you. Thank you, thank you.
+- [00:18.980] Bernie Moreno, how's the Senate?
+- [00:21.320] Senator Moreno: (inaudible)
+- [00:24.030] Secretary Rubio: Thank you, guys, for having me.
+- [00:25.420] It's an honor.
+- [00:26.620] I want to thank Chris for the introduction.
+- [00:29.350] Did you get my office? He just said --
+- [00:31.570] I just, the one I used to have, the one in Russell, yeah.
+- [00:35.640] Did you find any cash or gold bars?
+- [00:42.490] Is there a media here?
+- [00:43.710] There's a -- they call it, it's a joke.
+- [00:46.170] It's a joke, you know guys.
+- [00:48.140] Thank you, Chris, for that introduction
+- [00:49.560] and I'm actually very proud of the work
+- [00:50.760] he did with us on the Small Business Committee
+- [00:52.740] and then Oren and everyone here at American Compass
+- [00:55.400] for hosting me here tonight.
+- [00:56.670] A couple of observations of seeing someone,
+- [00:58.240] we really only got to serve together for like 10 days,
+- [00:59.950] you know, because I got confirmed pretty quickly.
+- [01:03.550] And by the way, the President was,
+- [01:07.440] I mean I got 99 out of 100 votes
+- [01:09.180] because the Vice President at the time --
+- [01:10.950] a seat had not been filled.
+- [01:12.680] The President for some period of time
+- [01:14.070] expressed great concern about the fact
+- [01:15.650] that I had 99 votes in the Senate.
+- [01:17.030] He didn't know if that was a good thing or a bad thing.
+- [01:19.470] But I told him recently, sir,
+- [01:20.800] you don't have to worry about that anymore.
+- [01:22.150] I don't think I'd get 99 votes now.
+- [01:24.670] And anyways, but thank you for this chance to speak to you.
+- [01:28.860] And by one more thing I want to tell you about,
+- [01:30.620] I spent, you know, now that I'm in an executive branch,
+- [01:34.430] we oftentimes have to deal with the fact,
+- [01:35.950] that, you know, we want to do something.
+- [01:37.320] And it's like, well, but there's a statute
+- [01:39.320] or there's a law on the books that limit our ability
+- [01:43.120] to do things by executive action,
+- [01:45.690] you know, it requires us to go through certain steps.
+- [01:47.750] And so I increasingly find myself saying,
+- [01:49.690] who the hell wrote these laws?
+- [01:51.610] And today I was reminded it was actually me
+- [01:54.290] who passed a certain law
+- [01:55.540] that stood as an impediment to quick action.
+- [01:57.790] So anyways, yeah, I've grown in my appreciation
+- [02:03.620] for the executive branch more and more each day.
+- [02:06.360] And, but that's also, yeah, the media's going to say,
+- [02:09.660] oh, he's for an authoritarian form of government.
+- [02:11.840] No, I just, you know, some of these laws
+- [02:13.580] I passed are getting in the way of my current life.
+- [02:16.610] So we have to work through it, but we will.
+- [02:18.660] But thank you guys for this chance
+- [02:19.970] and the work that you've done.
+- [02:21.260] And I know that obviously you're going to spend
+- [02:23.040] a lot of time focused on domestic decisions,
+- [02:26.420] but I wanted to hopefully pitch you
+- [02:27.720] a little bit tonight about what I've learned
+- [02:29.290] and what I already believe coming into this job.
+- [02:31.990] That so much about what happens domestically, economically,
+- [02:34.780] is increasingly intertwined in geopolitics.
+- [02:37.910] It always has been.
+- [02:39.170] I think that's one of the lessons we forgot,
+- [02:40.830] but I think we've been reminded of that here
+- [02:43.410] most recently in a number of events
+- [02:45.660] that brought that to bear.
+- [02:47.140] The first thing I would say is --
+- [02:50.970] I think it's always been true. One of the amazing things,
+- [02:53.500] one of the reasons why history repeats itself,
+- [02:55.220] people like to say that,
+- [02:56.460] is because human nature does not change.
+- [02:58.850] Technologies change, the clothes we wear change,
+- [03:01.410] even languages change, governments change,
+- [03:03.210] a lot of things change.
+- [03:05.050] But the one thing that has unchanged is human nature.
+- [03:07.290] It's the same today as it was 5,000 years ago.
+- [03:10.440] And that's one of reasons why history often repeats itself.
+- [03:14.940] And one of things about human nature,
+- [03:17.270] I'm not trying to sound like a psychologist here,
+- [03:19.190] but one of the things that I think history proves,
+- [03:21.220] is that one of the things we are programmed as people with
+- [03:23.690] is the desire to belong.
+- [03:25.630] In fact, if you notice, if put humans anywhere,
+- [03:28.680] a handful of people anywhere,
+- [03:30.380] one of first things they start doing
+- [03:31.740] is trying to create things that they can join or be a part of.
+- [03:36.630] That's true for nationhood and nation states,
+- [03:39.930] the concept of nationhood.
+- [03:41.140] Now, it's a new concept. I mean, before that we all,
+- [03:43.070] but we had something, you know, we always had organizations,
+- [03:45.760] whether it was city states or tribal organizations,
+- [03:48.100] but the advent of the nation state is a normal.
+- [03:53.200] Evolution of human behavior, because people think
+- [03:57.190] it's important to belong to something.
+- [03:59.350] And being part of a nation is important.
+- [04:01.930] And I think that's really true, obviously,
+- [04:03.980] increasingly in how geopolitical decisions are made.
+- [04:07.260] I think it that's obvious, and people understand that,
+- [04:09.180] but it's one of the things that we forgot.
+- [04:11.580] And we certainly forgot it at the end of the Cold War.
+- [04:14.560] If I can take you back to the end of the cold war
+- [04:16.260] and understand for me these are formative years,
+- [04:17.810] because I grew up in the 80s,
+- [04:20.010] the greatest, probably the greatest decade ever.
+- [04:22.470] Confirmed by the -- yeah. You know why I know this?
+- [04:26.030] Because my kids -- I have young, you know, young --
+- [04:28.150] I say young, they're like 24, 22, 20,
+- [04:33.120] just turned 20 and one who's 17.
+- [04:35.390] Every -- all they do is watch reruns from the 80s and 90s.
+- [04:38.430] They don't make good TV anymore.
+- [04:39.680] Everybody wants to watch stuff from the eighties and nineties,
+- [04:41.520] so that's just my pitch.
+- [04:43.070] The 70s were a dark period of time because of disco music.
+- [04:46.180] But in the 80's -- got a disco fan back there.
+- [04:52.240] But the 80s, you know, the hair was a little too big,
+- [04:55.840] but other than that.
+- [04:57.210] But going back, the 80's, you grew up,
+- [04:58.890] and I remember in 1983, now I'm aging myself,
+- [05:01.330] I just turned 54, I feel 55.
+- [05:04.190] But I -- and must have been 1983,
+- [05:08.940] do you guys remember a movie called the --
+- [05:11.710] oh gosh, what was it?
+- [05:12.920] It was about nuclear war. Do you remember this?
+- [05:15.010] It was -- no, War Games, that was a great movie.
+- [05:17.910] I'm talking about when I was on TV
+- [05:19.120] that scared the hell out of me.
+- [05:21.100] The Day After. Do you remember that movie, The Day After?
+- [05:23.170] This traumatizing, and they had this thing on television,
+- [05:25.900] but basically grew up understanding
+- [05:27.750] that the world at any moment could end
+- [05:29.950] because the United States and the Soviet Union
+- [05:31.560] were headed for conflict and war,
+- [05:33.420] and that maybe we wouldn't even make it to 25
+- [05:35.580] and things of this nature. I forgot about War Games.
+- [05:38.640] The Warriors is another good movie,
+- [05:40.840] where this guy hacks into the computer.
+- [05:42.300] This is an 80s hacker.
+- [05:43.520] This is not, I can remember the phone and the modem,
+- [05:45.740] and it was a -- what was that actor?
+- [05:47.990] It was the same, Matthew Broderick.
+- [05:50.870] It's a great movie.
+- [05:52.560] I know I'm completely off topic, but let me just tell you,
+- [05:55.660] I lived in Las Vegas at the time,
+- [05:57.180] and if you recall, the first city that he blows up
+- [05:59.540] in the War Games is Las Vegas.
+- [06:01.070] And I was sitting in the audience,
+- [06:02.320] and everybody's like chuckling,
+- [06:03.590] nothing funny about this Las Vegas strike.
+- [06:06.600] In any event. So this is where we grew up.
+- [06:09.130] And then in 1989, in 1990,
+- [06:11.260] '91, it was my first years in college.
+- [06:15.070] And literally the entire world
+- [06:16.340] just transformed before my very eyes.
+- [06:18.350] Understand, you grow up your whole life
+- [06:19.740] and like the whole world is about the Soviet Union
+- [06:22.060] and all of a sudden the Soviet Union no longer exists.
+- [06:24.930] My favorite memory of that is that I was actually taking
+- [06:27.310] a course that fall and by a Soviet expert at the,
+- [06:32.110] I think it was in Gainesville, Florida.
+- [06:34.460] And this poor guy's entire career came coming down
+- [06:37.100] over a three month period as the Soviet Union collapsed.
+- [06:39.600] It's like all these years of work,
+- [06:41.050] you have a Ph.D. in Soviet studies
+- [06:43.130] and now the Soviet doesn't exist anymore.
+- [06:45.210] So I don't know what he did after that.
+- [06:46.550] I need to check up on that guy.
+- [06:48.720] But anyways, the point is, the whole world transformed.
+- [06:52.440] And there was this effusive exuberance,
+- [06:55.830] the belief that the Cold War is over, we won,
+- [06:58.590] and now the entire world is going to become just like us.
+- [07:01.480] Free enterprise democracies.
+- [07:03.090] That was just a very idealistic thing to believe.
+- [07:06.240] But here's the other conclusion they made.
+- [07:08.280] And that is that everybody, that it didn't --
+- [07:10.320] nationhood no longer mattered when it came to economics.
+- [07:13.900] That right now, the world would no longer have borders.
+- [07:16.480] It wouldn't matter where things were made.
+- [07:18.730] What mattered is they were made in the most efficient place.
+- [07:21.780] And it became mantra.
+- [07:23.030] And look, I think it became part of Republican orthodoxy
+- [07:25.430] for a very long time. An orthodoxy that I came up in,
+- [07:27.840] which was it's okay if productive capacity
+- [07:30.960] moves to another country.
+- [07:32.450] Because what that will do is it will free up our workers
+- [07:34.920] to do work that's even more productive and pays them more.
+- [07:38.270] It was the famous or the infamous idea
+- [07:40.580] that who cares that you lost your job at a factory,
+- [07:42.880] you're going to learn how to code,
+- [07:44.810] and then you're going to make a lot more money doing that.
+- [07:47.990] Well, it was completely unrealistic, number one,
+- [07:50.140] and became incredibly disruptive that that decision was made.
+- [07:53.280] But here's the other implication of it.
+- [07:55.010] It robbed a nation of its industrial capacity,
+- [07:57.750] of its ability to make things.
+- [07:59.710] And its industrial and its ability
+- [08:01.570] make things has two ramifications.
+- [08:03.200] The first is it hurts your economy.
+- [08:05.010] It hurts your country. It robs people of jobs,
+- [08:07.900] and the transition is not nearly as easy,
+- [08:09.640] but it also ends up becoming corrosive
+- [08:11.350] and destructive to communities.
+- [08:14.010] And as a result, we had a rust belt.
+- [08:15.830] We had places that were gutted,
+- [08:17.600] and we had families that for generations
+- [08:19.220] that worked in a certain field or for a certain company,
+- [08:21.100] and all of a sudden,
+- [08:22.350] that company or that field vanished
+- [08:23.970] because it moved somewhere else where it was cheaper to do,
+- [08:26.350] and those jobs were gone,
+- [08:27.690] and obviously became incredibly destructive,
+- [08:29.730] not just for the United States, by the way,
+- [08:31.190] but for many nations in the industrialized West.
+- [08:34.610] But the other thing it robbed us of
+- [08:35.980] is the ability to make things,
+- [08:38.090] which is a national security impairment
+- [08:41.120] and a very significant one. If you go back to World War II,
+- [08:46.530] the admiral who had been tasked with planning Pearl Harbor
+- [08:50.580] thought it was a really bad idea.
+- [08:52.210] He went through and obviously followed orders,
+- [08:54.150] but he thought it was a very bad idea
+- [08:55.480] because he had spent a substantial amount of time
+- [08:57.940] studying in the United States when he was younger.
+- [09:00.680] And his conclusion was that attacking the United States
+- [09:03.860] was a bad idea because even though at the time
+- [09:05.870] militarily we were behind the Japanese,
+- [09:07.800] certainly technologically and otherwise, we had factories
+- [09:11.320] and we had access to raw material and resources.
+- [09:14.190] And he knew that over time, once those factories
+- [09:17.110] and those raw materials were put to the war machine,
+- [09:20.910] the Japanese would not be able to keep up.
+- [09:23.600] And you could very well argue that the end of World War II,
+- [09:26.160] that the victory in World War II,
+- [09:27.710] both in Europe and especially in Asia
+- [09:30.320] was the result of America's industrial capacity.
+- [09:33.430] When the Japanese lost the plane, they lost the plane.
+- [09:36.640] When we lost the plane --
+- [09:37.870] and their planes were better than ours for a long time,
+- [09:39.830] when we lost a plane,
+- [09:41.070] we were able to produce hundreds to replace it.
+- [09:44.090] Industrial capacity mattered in terms of national security.
+- [09:47.770] And that's never changed, that's always been true.
+- [09:50.800] And so today, what you find
+- [09:52.280] is because of all those years of neglect,
+- [09:54.110] because of the loss of industrial capacity,
+- [09:56.260] we didn't just undermine our society.
+- [09:59.340] We didn't just undermine our domestic economy.
+- [10:02.710] We've undermined our position in the world.
+- [10:05.360] And what you will find, and what we find even now,
+- [10:07.390] is that increasingly, on geopolitical issue
+- [10:09.950] after geopolitical issues,
+- [10:11.850] it is access to raw material and industrial capacity
+- [10:15.810] that is at the core of both of the decisions
+- [10:17.790] that we're making and the areas that we are prioritizing.
+- [10:22.380] Now, the technologies are different, but nonetheless,
+- [10:25.040] that is what we're increasingly prioritizing.
+- [10:28.200] And that's become really apparent to me.
+- [10:29.810] I think it was even going into this job,
+- [10:31.700] but in the months that I've been there,
+- [10:33.560] on place after place, every country in the world
+- [10:35.680] is now pitching themselves as a source of rare earth minerals.
+- [10:39.840] Every country in, by the way, they're not that rare,
+- [10:41.680] so every country has access to it,
+- [10:43.080] but it's become a big -- but that alone is not enough,
+- [10:47.170] because you have to have access to rare earths minerals,
+- [10:49.230] but then you have the ability to process them.
+- [10:52.240] And you have make them into usable material.
+- [10:55.650] And frankly, what the Chinese have done over the last 25
+- [10:58.110] or 30 years is they've cornered the market.
+- [11:00.790] And this is one of the true challenges
+- [11:02.330] to sort of pure free enterprise view of these things.
+- [11:05.560] You cannot compete with a nation state
+- [11:08.470] who has decided they're not interested in making money.
+- [11:11.760] They're not interesting in making in this field.
+- [11:14.290] They're interested in the short term
+- [11:16.560] in dominating the market, being the sole source provider
+- [11:20.350] for the world of a certain product.
+- [11:22.560] Because once you establish industry dominance,
+- [11:25.470] in any one of these fields,
+- [11:27.090] you can charge the world whatever you want.
+- [11:29.530] Now one thing is if we said, well, this happened
+- [11:31.420] because they're just better than us,
+- [11:33.780] but that's not why it happened.
+- [11:35.640] It happened because we literally gave it away,
+- [11:38.270] because we made the decision.
+- [11:39.620] We made the policy decision that it was okay.
+- [11:41.990] We were okay with 80-something percent
+- [11:45.030] of the active ingredients
+- [11:46.350] and most of our generic pharmaceuticals
+- [11:48.610] coming from another country.
+- [11:50.560] We were okay with giving that away.
+- [11:52.470] We were okay with giving away all kinds of things like that.
+- [11:55.550] And now, now we are in a crunch.
+- [11:58.480] And I say we, I mean the rest of the world is in a crunch
+- [12:01.460] because we have realized that our industrial capability
+- [12:04.610] is deeply dependent
+- [12:06.970] on a number of potential adversary nation states,
+- [12:10.100] including China, who can hold it over our head.
+- [12:13.910] And so in many ways the nature of geopolitics
+- [12:16.940] is now adjusted to that and is adjusting to that.
+- [12:19.470] And it will be one of the great challenges of the new century
+- [12:21.970] and one of priorities of this administration
+- [12:23.950] under President Trump is to reorient our domestic
+- [12:29.100] and the way we pursue geopolitics
+- [12:31.700] to take into account for the fact
+- [12:34.010] that you can never be secure as a nation
+- [12:36.800] unless you're able to feed your people
+- [12:38.660] and unless you are able to make the things that your economy
+- [12:40.900] needs in order to function and ultimately to defend yourself.
+- [12:44.840] There is virtually none of the leading-edge industries
+- [12:47.230] of the 21st century
+- [12:48.440] and we don't have some level of vulnerability.
+- [12:51.390] And it's become one of the highest geopolitical priorities
+- [12:55.030] that we now face.
+- [12:56.310] Not simply access to raw material,
+- [12:58.730] but figuring out how can we have in more industrial capacities
+- [13:02.960] in these critical fields, ideally domestically,
+- [13:05.660] but if not here, then diversify the global supply chain
+- [13:08.890] so that it cannot be used against us
+- [13:10.410] as a point of leverage at a time of potential conflict.
+- [13:14.120] In fact, unless we fix it,
+- [13:15.800] some of these conflicts will never happen
+- [13:18.120] because we will never be able to enter,
+- [13:20.600] the amount of leverage they will have on us
+- [13:22.120] will begin to constrain.
+- [13:23.760] Our ability to make foreign policy.
+- [13:26.560] Unable to get into a tremendous amount of detail,
+- [13:28.470] let me just say that even as I speak to you now,
+- [13:30.400] there are a number of foreign policy issues
+- [13:33.310] in which we're having to balance
+- [13:35.820] what we would ideally want to do with
+- [13:39.910] what we may not be able to do in the short term
+- [13:42.080] until we fix these problems.
+- [13:44.050] This is a real challenge in American geopolitics
+- [13:46.280] and it's one that's become a priority
+- [13:47.580] and goes right to the heart of the decisions that were made
+- [13:50.870] over the last 20 or 30 years that were a mistake
+- [13:54.360] and that we're now trying to correct.
+- [13:56.710] The other, which is more broad, but I think also ties
+- [13:59.670] to economic policy is the following.
+- [14:02.360] Part of the decision that were made were, in the end,
+- [14:05.820] if something is good for the global economy
+- [14:07.670] that's really what matters.
+- [14:09.970] Ultimately, a lot of public policy decisions were made
+- [14:12.280] without the nation state in mind.
+- [14:13.700] Rather, the decision was,
+- [14:15.100] is this good for the global economy?
+- [14:17.460] Is this good global economic growth?
+- [14:19.880] Is this is good for prosperity in other places,
+- [14:22.730] even if it may not be in our interest?
+- [14:24.900] And we made those decisions even during the Cold War,
+- [14:27.040] to some extent.
+- [14:28.250] We allowed nations to treat us unfairly in trade,
+- [14:31.390] but we allowed them to do it
+- [14:33.330] because we didn't want those countries to become victim
+- [14:35.590] to a communist revolution that would overthrow them,
+- [14:37.770] but then we kept it going.
+- [14:39.250] And so today there are multiple countries around the world
+- [14:41.380] that are fully developed economies,
+- [14:43.620] but whom we have enormous trade imbalances
+- [14:47.380] because they want to continue that system moving along
+- [14:49.440] and that has to be corrected.
+- [14:51.220] But here's the final point and here's why this is also critical
+- [14:53.850] because not only did we take out nation state interest
+- [14:57.190] and the national interest out of economic policies,
+- [14:59.790] we also took it out of the way we made
+- [15:01.210] foreign policy decisions.
+- [15:03.120] The idea that our foreign policy,
+- [15:06.640] depending on the place and on the issue,
+- [15:08.800] should be centered and focused primarily on what is good
+- [15:11.560] for the United States was completely lost.
+- [15:15.610] Time and again, we made decisions in foreign policy
+- [15:17.900] because of what was good for the international order
+- [15:20.470] or what was good for the world.
+- [15:22.930] And I'm not saying those things are irrelevant,
+- [15:25.270] but the number one priority
+- [15:26.640] of our foreign policy of the United State --
+- [15:28.980] the number foreign policy priority of the United States
+- [15:32.910] needs to be the United states
+- [15:34.860] and what's in the best interest of the United States.
+- [15:37.330] (applause)
+- [15:41.650] That's not isolationism. That's common sense.
+- [15:44.830] On the contrary, in order to do that,
+- [15:46.520] we have to engage in the world.
+- [15:48.840] But we need to engage the world in a way that prioritizes
+- [15:51.360] our national interest above all else.
+- [15:53.750] And the reason why we do that goes back to my point
+- [15:56.860] at the outset of this with human nature.
+- [15:59.590] And that is, that's what other countries do all the time.
+- [16:04.330] Virtually every single nation state we interact
+- [16:06.820] with prioritizes their national interest
+- [16:09.790] and their interactions with us.
+- [16:12.120] And we need to begin to do that again,
+- [16:13.480] and we're beginning to do that again,
+- [16:14.870] prioritizing the national interest of the United States
+- [16:17.940] above everything else in making these foreign policy decisions.
+- [16:21.090] And I'll close by saying that's where foreign policy works best.
+- [16:24.470] As I've said to multiple foreign leaders,
+- [16:26.120] including some with whom we haven't had engagements
+- [16:28.020] with for many years,
+- [16:29.660] I said the way foreign policy works best is when our national
+- [16:32.510] interests are aligned, when they're aligned,
+- [16:36.070] that's when we have incredible opportunity
+- [16:37.910] for partnership together. And when they are not aligned,
+- [16:41.590] That's where I expect them to pursue their national interests
+- [16:44.090] and us to pursue ours and to do so peacefully if possible
+- [16:47.620] and that's the work of diplomacy.
+- [16:49.860] And so I think the work you have done to reorient
+- [16:52.190] our thinking towards the national interests
+- [16:53.860] both in our domestic economic policies
+- [16:56.310] as well as in our foreign policies
+- [16:57.770] is critical work for 21st century conservatism.
+- [17:01.240] And I thank you for all the work you've provided,
+- [17:02.860] you've done great work.
+- [17:04.090] When no one else was talking about these things,
+- [17:05.790] when no one was providing the material that allowed us
+- [17:08.960] to build public policy and challenge
+- [17:10.780] thinking you were doing it.
+- [17:12.180] And I encourage you to continue to do it
+- [17:13.760] because this is going to be the work of a generation.
+- [17:17.000] There's still much work to be done.
+- [17:18.310] We are in the midst of an important
+- [17:20.700] and long overdue realignment
+- [17:22.440] in our thinking in American politics.
+- [17:24.830] And it takes organizations like American Compass
+- [17:27.020] to drive the innovation and the thinking.
+- [17:29.220] And we appreciate everything you've done up to this point
+- [17:31.260] and encourage you to continue that.
+- [17:33.590] And one of the people,
+- [17:36.240] who has really been a leader in this regard,
+- [17:37.880] someone who I actually got to know as part of this project
+- [17:40.820] and this thinking back
+- [17:42.310] when he was only a best-selling author
+- [17:44.630] and not even a political figure yet
+- [17:47.060] is our current Vice President who is doing a phenomenal job
+- [17:50.850] and someone who I've grown tremendous --
+- [17:53.490] my admiration for him has grown tremendously.
+- [17:55.430] I admired him before, I admired in the Senate.
+- [17:57.350] I admire him a lot more now as Vice President
+- [17:59.830] because I think Vice Presidents
+- [18:02.310] are just more impressive than senators, Bernie.
+- [18:03.910] That's how -- but I can say that now that I got 99 votes.
+- [18:10.260] I don't need their votes anymore.
+- [18:12.170] But the Vice President's doing a phenomenal job
+- [18:15.070] and I think is one of the most powerful
+- [18:16.680] and clearest voices in the world.
+- [18:18.990] Really at the edge, at the leading edge
+- [18:22.180] of this new thinking in American politics.
+- [18:23.920] And it's my honor to serve with him in this administration.
+- [18:27.220] And it is my honor to invite him onto the stage now
+- [18:29.280] to speak to all of you.
+- [18:30.570] So thank you for the opportunity to be here.
+- [18:31.940] Ladies and gentlemen,
+- [18:33.150] the Vice-President of the United States, J.D. Vance.
+- [18:36.960] (applause)
+- [18:49.290] The Vice President: Thank you. Thanks.
+- [18:53.560] Thank you, guys. Thank you. Sit here?
+- [18:57.280] Oren Cass: Yeah.
+- [18:58.650] The Vice President: Great. Great to see you all.
+- [19:01.040] I think the last time I was in here
+- [19:02.730] was the night before the inauguration.
+- [19:04.550] We had a dinner in here, and it was so tightly packed
+- [19:08.160] that you, like,
+- [19:09.430] actually couldn't get up to go to the bathroom or here.
+- [19:11.460] You know, like, requested an additional glass of water.
+- [19:14.790] That's how tightly packed we were in here.
+- [19:16.920] And you guys are doing pretty good, actually.
+- [19:18.580] Maybe not that tight, but, you know, comfortable,
+- [19:21.020] but you're doing good.
+- [19:22.290] Oren Cass: Tastefully packed.
+- [19:23.920] The Vice President: Yeah. That's happy medium.
+- [19:25.920] Before you, like, say whatever introductory thing
+- [19:28.230] you were going to say, I'm sure Oren has a spiel.
+- [19:30.040] Oren always has a spiel.
+- [19:31.300] But I just want to say thanks to Secretary Rubio
+- [19:33.760] for the very kind words of introduction.
+- [19:36.190] So, Marco, I was very fond of him as a Senate colleague,
+- [19:41.250] but, you know, you learn a lot about somebody
+- [19:43.880] when you see them actually operate behind the scenes.
+- [19:46.480] And Marco is, if anything,
+- [19:48.810] more impressive privately than he is publicly,
+- [19:51.750] which is very hard to do. But he's very thoughtful.
+- [19:54.630] He actually listens, which is a rare skill in politics.
+- [19:57.020] We're very good at talking, us politicians.
+- [19:59.070] We're not so good often at listening.
+- [20:01.210] He's just a very, very important part
+- [20:02.960] of what the President and I are trying to do,
+- [20:04.420] and so thrilled to have him here.
+- [20:06.460] And as you know, I think one of the first times
+- [20:08.690] I ever met, maybe the first time
+- [20:10.000] I ever met Marco was in a conference room in his
+- [20:12.650] Senate office with Mike Needham and Oren Cass,
+- [20:15.590] talking about some of the very things
+- [20:17.090] we're talking about here tonight and some of the very things
+- [20:20.060] that American Compass is focusing on.
+- [20:21.670] So it's kind of amazing to see it come full circle
+- [20:24.100] to where we are today.
+- [20:26.230] Oren Cass: Well, that's a perfect segue into my spiel.
+- [20:28.060] So thank you. I had a few different spiels
+- [20:31.280] we could start with, but this is a good one.
+- [20:35.250] We are thrilled to have you here.
+- [20:36.570] I am thrilled to have this opportunity to talk with you,
+- [20:39.560] and so grateful that the work you're doing,
+- [20:42.760] and in a sense, so in awe of it,
+- [20:45.190] because there are politicians out there who are.
+- [20:49.480] They've just been politicians.
+- [20:53.270] But you are someone who was an intellectual first.
+- [20:56.950] Some people don't like the word intellectual,
+- [20:58.660] but I mean it in the good sense of the term.
+- [21:01.280] You were writing for National Review.
+- [21:03.000] You were at the bar late at night
+- [21:07.500] arguing about and helping shape these ideas that you are now.
+- [21:10.800] The Vice President: I come here for free,
+- [21:12.180] and you insult me and you call me an.
+- [21:13.590] Oren Cass: Intellectual, remind me
+- [21:15.110] that I wrote for National Review.
+- [21:16.350] The Vice President: What an asshole this guy is.
+- [21:20.920] Oren Cass: That's fair.
+- [21:22.170] I will admit that I too, wrote for National Review,
+- [21:25.140] but as I said in my introductory remarks earlier,
+- [21:27.420] I have no higher compliment than this guy likes to argue.
+- [21:30.430] So that is, it's a wonderful thing.
+- [21:33.770] And I think it really distinguishes you
+- [21:36.410] as someone who not just cares about
+- [21:39.670] and believes in these ideas, but has formed them.
+- [21:43.130] Sure. And so, you know,
+- [21:45.830] I wanted to ask you a little bit about some of the substance,
+- [21:49.440] what's going on through these topics,
+- [21:50.880] but also ask a little bit about sort of
+- [21:52.940] how your thinking has gotten here
+- [21:54.200] and how being in the role you're in now affects that
+- [21:58.230] and what people who are not in that role sort of need
+- [22:01.040] to understand to do it well.
+- [22:03.530] And so let's start here on the substance, though,
+- [22:05.510] because, you know, obviously trade
+- [22:08.950] is in the news from time to time.
+- [22:11.850] Trade is, I think you've articulated this well.
+- [22:14.230] Trade is one element of what is a much broader project
+- [22:17.870] about reshoring, reindustrialization.
+- [22:21.920] I want to ask you, how do you define that project?
+- [22:25.170] What is the broader goal that the trade agenda is part of,
+- [22:31.040] and where do you see it ultimately going,
+- [22:33.140] if it's going to be successful?
+- [22:35.310] The Vice President: Yeah. So, first of all, congrats.
+- [22:37.270] I see here on the screen,
+- [22:38.630] this is the five year anniversary of American Compass.
+- [22:41.930] You guys have accomplished a lot in five years.
+- [22:43.720] And I want to echo what Secretary Rubio said,
+- [22:46.500] keep doing it, because it really has influenced my thinking.
+- [22:49.030] It's influenced the thinking of multiple
+- [22:50.780] people within the administration.
+- [22:52.760] And if I were to try to summarize the project,
+- [22:55.150] I mean, I think there are a few different things going on,
+- [22:57.630] but maybe one thing that really worries me is you have,
+- [23:03.490] I think, in many ways, stagnating living standards
+- [23:06.380] for normal Americans, for the median worker,
+- [23:09.520] for people who just want to start a family,
+- [23:11.520] work, you know, work in a decent job,
+- [23:14.490] earn a living salary and have dignified work.
+- [23:17.090] I think you've seen so many pieces of evidence of stagnation
+- [23:20.280] in the lives of the normal people that we serve.
+- [23:23.260] Right. The people who actually go to work,
+- [23:25.810] who keep the country running.
+- [23:27.860] And there are different ways to sort of measure this,
+- [23:30.480] but I think my favorite way of measuring it actually
+- [23:32.590] is probably you see stagnating productivity
+- [23:35.430] in this country for about 50 years.
+- [23:37.310] Okay. And I think there are a whole host of reasons
+- [23:39.490] why you see that. I think, number one,
+- [23:41.520] we've offshored a whole host of industries,
+- [23:44.160] and so you see less innovation
+- [23:45.760] in a lot of the critical manufacturing sectors
+- [23:48.380] that actually drive the American economy.
+- [23:50.110] I think part of it
+- [23:51.320] is we've really under invested in technology,
+- [23:53.670] especially in the heavily regulated spaces.
+- [23:57.830] I think part of that is we've really harmed energy production
+- [24:00.420] in our own country.
+- [24:01.630] That's a critical part of the heavily regulated space
+- [24:04.930] is actually doing well
+- [24:06.280] because the cost inputs of these industries
+- [24:08.710] are so heavily dependent on the price of energy.
+- [24:11.330] So there are all these different policy
+- [24:13.160] spends that I could put on it,
+- [24:14.400] but I just want normal people who work hard
+- [24:17.850] and play by the rules to have a good life.
+- [24:19.790] And I think that was very, very possible
+- [24:22.350] in the United States of America that I was growing up in.
+- [24:24.720] But you started to see some signs that it was fraying.
+- [24:28.350] And I think it got a lot worse over the course of the 90s
+- [24:32.610] and 2000s. And that has got to change.
+- [24:35.450] And I think that's fundamentally why Donald Trump
+- [24:37.810] is the President of the United States
+- [24:39.170] is because he was the first mainstream American politician
+- [24:42.590] to come along and say, this isn't working.
+- [24:45.140] These trade deals are not working for the normal people
+- [24:48.240] who power our economy.
+- [24:49.680] Our policies have not been productive
+- [24:51.950] either in the economic,
+- [24:54.190] national security or diplomatic space.
+- [24:56.710] So it's complicated.
+- [24:58.320] The answer to your question is complicated.
+- [24:59.770] Summarizing it is necessarily very hard,
+- [25:02.240] but I think the best way to summarize it
+- [25:03.870] is we just want normal people to have a good life.
+- [25:07.030] Oren Cass: That seems reasonable.
+- [25:09.380] The Vice President: Thank you.
+- [25:10.970] Oren Cass: There you have it, folks.
+- [25:15.140] I think that's obviously exactly right.
+- [25:16.740] I think it's remarkable that that is
+- [25:19.340] or has been a heterodox view to some extent,
+- [25:22.100] that it's something that has had to be said, you know,
+- [25:26.060] especially after your book came out,
+- [25:28.650] as you had a chance to talk with a lot of folks
+- [25:30.690] in a lot of different contexts.
+- [25:31.940] Then as you moved into running as a politician yourself,
+- [25:36.830] you had a chance to speak both with the normal people
+- [25:39.980] for whom this was not working and for a lot of people
+- [25:42.900] who either thought it was working or didn't care.
+- [25:47.020] My own sense is there's actually more thought
+- [25:48.940] it was working than didn't care.
+- [25:50.930] For most of them bad people so much as oblivious.
+- [25:55.820] But I'm curious what your experience
+- [25:58.010] has been engaging with those folks.
+- [26:01.040] How would you describe what do they look out at America
+- [26:03.970] and see and what is helpful in communicating to them
+- [26:08.070] why this is a problem and why they need to care?
+- [26:11.310] The Vice President: So let me give you kind of an elite answer
+- [26:13.050] to that question,
+- [26:14.260] and let me give you just a sort of normal
+- [26:15.680] political answer to the question.
+- [26:16.990] So the elite answer to the question.
+- [26:19.020] I remember Oren talking to you
+- [26:20.480] about starting American Compass five years ago.
+- [26:23.000] I think one of the things that we talked about.
+- [26:25.340] I don't know if you remember this,
+- [26:26.790] but, you know, what is the audience of donors?
+- [26:31.230] Because these things costs money.
+- [26:32.680] Funding fellowships and smart people to write papers
+- [26:35.860] and think about this stuff like that costs resources.
+- [26:38.950] What is the universe of donors
+- [26:40.480] who would actually support something like this?
+- [26:42.430] I think my takeaway of the last five years
+- [26:44.530] is actually quite a bit.
+- [26:46.380] And I think there's an assumption
+- [26:48.580] among whether you call it populist
+- [26:50.670] or whether you call it sort of trade hawks
+- [26:54.060] or whatever label you want to put on it.
+- [26:56.020] There's this assumption that donors
+- [26:57.590] are fundamentally misaligned.
+- [26:58.960] And I actually think donors are much more pragmatic.
+- [27:01.490] And they see this stuff not necessarily
+- [27:03.210] because, you know, they're reading like a paper
+- [27:05.280] that Bob Lighthizer published 15 or 20 years ago.
+- [27:07.810] I know Bob's in the audience and I love Bob,
+- [27:10.370] but because, like, they do business in China
+- [27:13.510] and they know how hard it is
+- [27:14.870] to actually get a fair deal for their companies
+- [27:17.360] or, you know, they've seen some of the ways in which,
+- [27:20.100] you know, I met with an industry leader today
+- [27:23.010] who was talking about all of the ways in which trans
+- [27:26.240] shipping through non Chinese Asian economies is destroying
+- [27:32.370] his very successful manufacturing business.
+- [27:35.300] And he's not worried about it for himself
+- [27:36.890] because his business is so successful,
+- [27:39.560] but he's worried about it for his industry writ large
+- [27:41.690] because some of his competitors are going to have
+- [27:43.600] their businesses destroyed. He doesn't want that.
+- [27:45.850] So there's a bit. I think one thing to take away
+- [27:48.920] is that people are much less ideological
+- [27:51.240] and much more pragmatic than I think
+- [27:53.500] that a lot of intellectuals give them credit for.
+- [27:56.160] So that's one thing I take away.
+- [27:57.850] I think the other thing that I take away from it
+- [27:59.710] is the American people are much more aligned
+- [28:04.810] with our way of thinking about things than people realize.
+- [28:09.480] And I think the misalignment between the normal American
+- [28:14.880] and the talking heads in Washington is still so profound.
+- [28:17.930] And I'll give you an example of this.
+- [28:19.470] One of the very first truly political speeches
+- [28:22.250] I gave when I was thinking about running for Senate in Ohio
+- [28:25.100] back in 2021,
+- [28:26.980] I spoke to this group in Butler County, Ohio.
+- [28:29.240] It's actually the county that I was born
+- [28:31.180] and raised in in southwestern Ohio.
+- [28:33.890] And I was talking about how, you know,
+- [28:35.800] Big Tech was a major problem, censorship
+- [28:39.290] of viewpoints was a major problem.
+- [28:41.620] And we needed to get serious about antitrust
+- [28:43.930] and we need to get serious about actually treating
+- [28:45.550] these companies as the monopolists that they were.
+- [28:48.740] And a person came up to me afterwards and they said,
+- [28:50.870] oh, I really like what you said,
+- [28:52.260] but I didn't agree with what you said on Big Tech,
+- [28:54.100] and I sort of assumed that I was about to sort of hear
+- [28:57.670] a kind of libertarian argument
+- [28:59.120] from the pages of the National Review.
+- [29:01.210] And what the guy said is,
+- [29:02.600] I don't think that we should break these companies up.
+- [29:04.430] I think we should throw all of their executives in prison.
+- [29:07.820] And I was like, oh.
+- [29:11.010] And it sort of dawned on me, the American people,
+- [29:15.730] like, they see these problems.
+- [29:17.250] They're not hyper ideological, they're not reading, like,
+- [29:20.990] conservative intellectual periodicals
+- [29:22.940] because they have day jobs and families to take care of.
+- [29:25.720] But they're much, much wiser about these things
+- [29:29.020] than intellectuals give them credit for.
+- [29:30.980] And I take a lot of inspiration for that.
+- [29:32.550] But I also take a lot of willingness
+- [29:34.540] to kind of test the outer limits,
+- [29:36.310] because most of our fellow Americans,
+- [29:38.580] they're not nearly as dumb as Washington,
+- [29:41.410] D.C. assumes that they are.
+- [29:43.180] They're actually very smart and they're very wise.
+- [29:50.080] Oren Cass: It's funny, I was speaking
+- [29:51.760] to the American Iron and Steel Institute
+- [29:53.900] this morning about the idea that making things matters.
+- [29:57.480] And I was sharing a similar story
+- [29:59.050] because we've done survey research on, okay,
+- [30:01.860] do you think manufacturing matters or not?
+- [30:04.400] Overwhelmingly, people say yes, sure.
+- [30:06.970] But we actually asked them why. We gave them a bunch of options.
+- [30:09.080] Is this about family and community and good jobs?
+- [30:11.650] Is this about national security?
+- [30:13.500] Is this about dynamism and investment in economic growth?
+- [30:17.750] I sort of figured it would be like,
+- [30:19.500] it's about jobs, maybe security.
+- [30:21.800] And Americans actually picked dynamism and growth
+- [30:24.570] as by a significant margin.
+- [30:26.800] That was their top reason they cared.
+- [30:28.660] And that was across political groups,
+- [30:31.220] that was across classes less educated,
+- [30:33.200] more educated, high income, low income.
+- [30:35.890] And exactly to your point. I think it's just something
+- [30:38.900] we don't give people enough credit for.
+- [30:40.800] I mean, not only are they quite wise in this respect,
+- [30:43.000] they are so much wiser than the economists
+- [30:46.610] who got this exactly wrong for so long.
+- [30:49.780] I was struck by the speech that you gave
+- [30:52.790] at the American Dynamism Conference,
+- [30:54.720] which I think touched on a lot of this
+- [30:56.050] because you focused on what is one hand a potential,
+- [30:59.720] a real challenge in the new conservative coalition,
+- [31:03.770] where on one hand you have the working class,
+- [31:05.550] you have labor, on the other hand,
+- [31:07.170] you have technologists,
+- [31:08.420] folks who are very focused on innovation.
+- [31:11.130] And I think you made what is such a critical point,
+- [31:12.820] which is that these are not necessarily in conflict.
+- [31:15.260] Ultimately, success is defined by the extent
+- [31:17.910] to which we synthesize these things.
+- [31:19.840] Yes, I think conceptually, in my mind,
+- [31:23.890] that's absolutely right.
+- [31:25.880] In practice, that can still be hard.
+- [31:27.580] I think there are a lot of places
+- [31:28.890] where you still see these collisions?
+- [31:34.390] Where do you see the biggest opportunity
+- [31:37.030] to actually bring these folks together,
+- [31:39.070] to actually build on that idea and show that no,
+- [31:42.250] no, in fact, you do have the same interests.
+- [31:44.660] There is a real opportunity to move forward here.
+- [31:47.510] The Vice President: Well, I think
+- [31:48.750] that the, it's interesting you mention
+- [31:50.730] the American dynamism speech because
+- [31:52.830] I do think that's actually where the synthesis is, right?
+- [31:55.860] That if you believe in growth and you believe that, you know,
+- [32:00.590] to have any opportunity to make people's lives better,
+- [32:03.310] you actually need sustained GDP growth,
+- [32:06.980] then you actually need to have the kind of industries
+- [32:09.340] that can support broad based technological innovation.
+- [32:12.030] So I think that really is the combination,
+- [32:14.150] like, why do I care so much about manufacturing?
+- [32:16.170] Why do I care so much about the kind of educational institutions
+- [32:19.490] we have to support those industries?
+- [32:21.660] It's because, yes, I care about workers
+- [32:23.180] and I care about their wages,
+- [32:24.460] but I do very much care about innovation.
+- [32:26.950] And I don't think you can have one without the other.
+- [32:28.730] Right? So the classic way of talking about this is to say,
+- [32:32.360] well, you know, if you open up an iPhone
+- [32:36.440] and you look at the box,
+- [32:37.670] it will say designed in Cupertino, California.
+- [32:40.320] Right? And of course the implication
+- [32:41.580] is that it's manufactured in Shenzhen.
+- [32:43.640] In reality, it's not necessarily even designed in Cupertino,
+- [32:46.640] California anymore.
+- [32:47.880] It's increasingly designed in the place that's manufacturing.
+- [32:51.560] This idea that we can separate the making of things
+- [32:54.550] from the innovating of things is,
+- [32:56.370] I think, totally farcical.
+- [32:58.070] You see this in pharmaceuticals in particular,
+- [33:00.170] where I think the countries that are really good
+- [33:03.050] at manufacturing pharmaceuticals,
+- [33:04.790] especially like the next gen biologics
+- [33:07.360] and large molecule pharmaceuticals,
+- [33:09.540] those guys are increasingly really,
+- [33:11.140] really good at innovating in pharmaceuticals too.
+- [33:14.190] And you know, one way this has come up in our work
+- [33:16.060] in the White House,
+- [33:17.340] and I won't get into sort of too many of the hairy details,
+- [33:19.540] but you know, we've been thinking about
+- [33:21.210] how to solve a particular problem,
+- [33:23.350] meaning a particular kind of person product
+- [33:25.940] that right now we have access to.
+- [33:28.380] But we're starting to ask ourselves
+- [33:29.930] these questions about like,
+- [33:31.150] well, what happens if the country that we're trading
+- [33:33.660] with completely cut off access to this stuff?
+- [33:36.460] And so we're thinking a lot about the supply chain,
+- [33:38.640] about how brittle our supply chains are.
+- [33:40.730] And by the way, Oren,
+- [33:41.980] one thing that is shocking about the prior government,
+- [33:45.400] about the government we inherited the White House from,
+- [33:47.560] is if I, on January 21st,
+- [33:50.350] in fact, I did ask this question.
+- [33:52.390] Where are the biggest deficiencies
+- [33:54.190] in our supply chains?
+- [33:55.430] What are the 100 products that were completely reliant
+- [33:59.980] on some other entity to make for us?
+- [34:02.010] Where are they made?
+- [34:03.280] And how hard would it be to onshore that manufacturing?
+- [34:06.550] I asked that explicit question,
+- [34:07.940] and the answer was, we don't know.
+- [34:10.320] Nobody in the prior government had actually asked
+- [34:12.500] these very fundamental questions.
+- [34:14.320] And so what is so crazy about the hyper globalized era is,
+- [34:19.010] is that you had these basic questions
+- [34:22.020] about the brittleness of our supply chains
+- [34:24.250] that were completely uninvestigated
+- [34:26.200] by the very people who supported globalizing those supply chains.
+- [34:29.590] We were actually governed by complete morons,
+- [34:32.910] and we didn't even realize it until the Trump administration
+- [34:36.850] started to get underneath the hood of our government.
+- [34:41.590] But take it back to sort of the point
+- [34:43.830] that I was trying to make, okay,
+- [34:46.640] if you want to onshore this one piece of the supply chain,
+- [34:51.310] what kind of talent would you need in the labor force
+- [34:54.580] to make that possible?
+- [34:56.390] And I started talking to venture capitalists and technologists
+- [34:59.810] and people who run sort of industries in this space.
+- [35:02.880] And what kept on coming back is, okay,
+- [35:04.900] yes, there's a tariff question,
+- [35:06.750] there's a revenue guarantee question,
+- [35:08.260] there's a capital question.
+- [35:09.810] How do you actually form the capital?
+- [35:11.630] How do you get the capital goods necessary
+- [35:13.220] to make the stuff that you're going to have to make?
+- [35:15.160] But the thing that everybody kept on coming back to
+- [35:17.810] is we don't even have the people who are skilled
+- [35:22.660] in this particular trade anymore because we've so offshored it.
+- [35:27.180] And, you know, you realize your point about trade policy,
+- [35:29.940] all of this stuff is connected,
+- [35:31.820] but when you atrophy critical skills in the economy,
+- [35:35.530] it's not easy just to flip that switch back on.
+- [35:38.620] And I think that was the way in which
+- [35:40.230] the advocates of globalization were the most wrong,
+- [35:43.560] is they allowed the best skilled trades workforce
+- [35:48.760] in the history of the world
+- [35:50.650] to become a little bit atrophied.
+- [35:53.930] And I think we're still very good.
+- [35:55.900] Like, we actually have a pretty strong foundation
+- [35:57.800] from which to build,
+- [35:59.030] but we're actually not as good as we were 30 years ago.
+- [36:01.330] And the basic question of skilled craftsmen
+- [36:04.040] who are able to do a whole host of different things
+- [36:06.820] very rapidly,
+- [36:08.100] that's one of the things that we have to fix in order
+- [36:10.310] for us to accomplish the things that we need to accomplish.
+- [36:12.610] The President's very focused on that,
+- [36:14.570] but it drives home, I mean, how much of a national emergency
+- [36:18.210] we're in that we've lost critical skills.
+- [36:21.260] And we weren't even aware that we had lost those skills
+- [36:23.360] until a few months ago.
+- [36:24.730] Oren Cass: Yeah. And of course, I mean,
+- [36:25.950] the part that drives me nuts about it
+- [36:27.290] is it is the same people
+- [36:28.930] who said it does not matter where things get made.
+- [36:31.420] Yes, it does not matter if all this goes overseas.
+- [36:34.990] Now it's overseas.
+- [36:36.260] You say like, well, why can't we bring it back?
+- [36:38.140] And they say, oh well, because we lost all the expertise.
+- [36:40.920] The expertise is super important.
+- [36:42.620] At some point you wonder, do they even like,
+- [36:45.300] are they trying to lose? You know, it's rough.
+- [36:49.270] The Vice President: I think it's very hard for them
+- [36:51.110] to realize that the sum of their work
+- [36:54.530] and a lot of these people are good people,
+- [36:56.010] a lot of are well intentioned.
+- [36:57.840] It's very hard and I saw this in the United States Senate
+- [37:00.710] to look back on a 30, 40 or 50 year career
+- [37:03.460] and say the very thing that I tried to do,
+- [37:05.350] I accomplished the opposite.
+- [37:06.640] Oren Cass: Right.
+- [37:07.860] The Vice President: It takes a special person to be able
+- [37:09.570] to actually change and pivot and accept new information.
+- [37:13.450] Unfortunately, we just don't have a lot of those people
+- [37:16.060] in the leadership class of the country.
+- [37:18.000] I mean, the way in which this is most absurd is,
+- [37:21.900] you know, the people who are most pro globalization,
+- [37:24.770] the people who are most indifferent
+- [37:27.110] to whether a given part of the supply chain existed here
+- [37:30.520] or China or Russia or somewhere else,
+- [37:33.200] those are very often the same people
+- [37:35.700] who want us to fight wars all over the world
+- [37:38.650] with munitions that are increasingly made
+- [37:40.950] by the very people that we offshore our supply chains to.
+- [37:44.230] And the fact that, you know, I saw this in the Senate,
+- [37:46.730] the fact that you would have people say
+- [37:49.010] we should send an unlimited number of munitions
+- [37:51.660] to this conflict even though we don't make those munitions
+- [37:55.080] in the United States of America anymore.
+- [37:58.220] The complete disconnect between their views
+- [38:01.660] on foreign policy and economic policy
+- [38:03.550] made me realize again that we're governed by people
+- [38:06.240] who aren't up to the job until four months ago
+- [38:15.390] when the American people
+- [38:16.770] actually gave the country a government it deserved.
+- [38:18.950] And obviously we're very early days,
+- [38:21.690] but I think that we've done more in four months
+- [38:24.310] now to solve these problems.
+- [38:25.790] But this is not a 5, a 10, or this is a 20 year project
+- [38:30.990] to actually get America back to common sense economic policy.
+- [38:33.410] Oren Cass: Well, thank you.
+- [38:34.620] That was a real downer for a moment.
+- [38:36.070] I appreciate you brought the mood back up.
+- [38:38.990] Very helpful.
+- [38:41.150] Let's talk about the workforce piece and education
+- [38:43.890] because you mentioned education system,
+- [38:46.620] which at this point interestingly
+- [38:47.980] means almost two different things.
+- [38:49.530] There is what is going on with universities
+- [38:51.850] and there's what is going on with how we would actually
+- [38:53.950] train people in these kinds of skills that we need.
+- [38:57.990] That would be good jobs.
+- [38:59.920] I guess it's a two part question.
+- [39:04.570] On the university side, do you see what's going on there
+- [39:08.540] as mostly sort of just a sideshow minimize.
+- [39:13.180] It's incredibly important,
+- [39:14.430] but it is unrelated to the question
+- [39:17.060] of how we actually reskill correctly,
+- [39:20.410] or do you think these two things fit together
+- [39:23.330] somehow that we need to get the universities
+- [39:26.780] more engaged in this process
+- [39:28.450] and also have other ways to do it?
+- [39:30.780] The Vice President: I think of it as extremely connected,
+- [39:32.870] though it's not necessarily obvious at the surface level.
+- [39:35.340] First of all, I never expect Harvard or Yale
+- [39:39.780] or the Ohio States of the world.
+- [39:43.560] They're not primarily going to be doing
+- [39:45.440] skilled craftsmen training.
+- [39:47.160] Okay, some of the state schools, you might see that.
+- [39:49.750] But really this is going to be something that happens
+- [39:52.300] with particular, you know, unions are going to have
+- [39:55.050] a big role in this community college
+- [39:56.690] is going to have a big role in this industry
+- [39:58.160] is going to have a big role in this.
+- [39:59.580] I don't think the skilled crafts are going to be brought back
+- [40:01.960] by the four year plus university.
+- [40:04.950] That's just not their role.
+- [40:06.200] But what the four year plus university,
+- [40:09.000] one of the most important things that it does
+- [40:10.920] is obviously it trains hopefully very smart people,
+- [40:14.300] but it produces really the ground level
+- [40:17.910] of the innovation that the economy is going to run on
+- [40:20.960] for the next 10 or 15, 20 years.
+- [40:22.970] So if I want people in Indiana to be manufacturing
+- [40:27.750] the next generation pharmaceuticals,
+- [40:29.430] those pharmaceuticals have to get developed
+- [40:31.000] in the first place.
+- [40:32.200] And for them to get developed in the first place,
+- [40:34.240] I need places like Harvard to be doing
+- [40:36.280] really groundbreaking biomedical research.
+- [40:39.800] What I don't need out of Harvard is for the science to be
+- [40:44.220] so broken that 80 percent of the biology papers produced
+- [40:47.950] don't actually replicate.
+- [40:49.180] And that reproducibility crisis is one of the main reasons
+- [40:52.170] why I think universities are broken.
+- [40:54.090] What I really don't need to happen
+- [40:56.030] is I can't let Harvard have such an explicitly racist,
+- [41:01.040] in violation of the Civil Rights act approach
+- [41:04.130] to how it funds and trains scientists that the best
+- [41:07.190] and the brightest are being cut out of that process altogether.
+- [41:10.100] So these things are very much connected.
+- [41:13.880] But I mean, look, I am not anti university,
+- [41:16.960] I'm not anti Harvard. What I am is a person
+- [41:21.630] who recognizes what should be obvious to every single person
+- [41:24.690] at every elite university in the country,
+- [41:26.820] which is the model is broken, it doesn't work,
+- [41:29.800] and they're violating the social contract
+- [41:32.030] they have with the people of the country.
+- [41:33.690] And the people are now saying, we need you to change.
+- [41:36.340] And these institutions are really going to be confronted,
+- [41:38.800] and thanks to President Trump,
+- [41:40.390] have already been confronted with a choice.
+- [41:42.680] You can accept democratic accountability
+- [41:44.980] and you can reform or you can accept
+- [41:47.840] that the government is not going to treat you kindly.
+- [41:51.000] We're not going to fund your garbage
+- [41:52.420] and we're not going to support you
+- [41:53.750] unless you do the job the American people need you to do.
+- [42:02.720] Oren Cass: That is very well said.
+- [42:05.500] I found myself at one of these universities
+- [42:07.480] speaking to a faculty board the day
+- [42:11.410] after the 9 billion dollar Harvard announcement.
+- [42:14.520] The Vice President: Did you tell them you knew me?
+- [42:16.610] Oren Cass: It may have come up. It may have come up.
+- [42:19.030] The Vice President: I'm surprised you survived.
+- [42:21.680] Oren Cass: You know, the thing about the faculty board
+- [42:23.220] and Ivy League university
+- [42:24.430] is it's not the most imposing environment.
+- [42:27.900] The Vice President: In many respects,
+- [42:30.120] they're not known for their toughness.
+- [42:32.510] Oren Cass: No, that is true.
+- [42:33.720] I'll let you stand on that particular point.
+- [42:36.180] But this actually happened to me a few times.
+- [42:39.810] I in fact, also was scheduled to go to Canada two days
+- [42:42.500] after you made the Canada announcement.
+- [42:43.930] I may need to run my travel plans by some more folks.
+- [42:48.860] But it was fascinating to have this exact discussion
+- [42:51.840] and essentially to try to make the point.
+- [42:54.900] Nobody wants you to fail,
+- [42:56.930] but you are in a sense a quasi public institution.
+- [43:00.180] You are relying on enormous,
+- [43:03.140] both explicit and implicit public subsidy
+- [43:05.940] and participation in this contract
+- [43:07.840] that you have been violating wholesale for a generation.
+- [43:13.250] And so our preference would be that you guys decide to reform.
+- [43:17.830] But if you don't, this is the alternative.
+- [43:21.700] What do you think? What does reform look like?
+- [43:24.040] You described some of the things that,
+- [43:26.200] you know are particularly problems.
+- [43:27.980] I guess to some extent the reform is just stop doing that.
+- [43:32.100] But what do you aspire to for our higher education system?
+- [43:36.690] The Vice President: You know, I say a few things.
+- [43:37.900] I mean, one most obviously is why don't you
+- [43:40.580] just follow the civil rights laws of the country?
+- [43:42.900] That's a very easy thing to do.
+- [43:44.930] And that nearly every elite university in the country
+- [43:48.180] is explicitly not doing.
+- [43:49.980] Okay, so that's one thing that they might consider doing.
+- [43:53.290] I think the second thing is they've got to be willing.
+- [43:58.950] I have a friend of mine who's a geneticist,
+- [44:01.820] very bright, very bright young scientist.
+- [44:05.600] We have got to have a scientific community
+- [44:08.950] that is more open to unacceptable inquiry
+- [44:12.430] and that actually encourages bright young minds
+- [44:14.650] to go wherever the truth leads them.
+- [44:16.590] And I think that's where the universities have become
+- [44:18.540] almost quasi theocratic or quasi totalitarian societies.
+- [44:23.990] The way that I think about this is I don't know what the voting
+- [44:30.270] in the 2024 election of Hope,
+- [44:31.640] Harvard University's faculty was okay.
+- [44:33.570] My guess is that at least 90 percent
+- [44:36.380] and probably 95 percent of them voted for Kamala Harris.
+- [44:40.440] Right. Very brilliant, Kamala Harris, of course.
+- [44:42.770] But you know, if you ask yourself,
+- [44:47.200] a foreign election, a foreign country's election,
+- [44:49.960] you say 80 percent of the people voted for one candidate.
+- [44:53.770] You would say, oh, that's kind of weird, right?
+- [44:56.010] That's like not a super healthy democracy.
+- [44:58.390] If you said, oh, 95 percent of people voted
+- [45:01.170] for one party's candidate,
+- [45:02.430] you would say, that's North Korea,
+- [45:04.110] that's totalitarian, that is impossible
+- [45:06.430] in a true place of free exchange for that to happen.
+- [45:10.200] So I think the ideological diversity of universities
+- [45:12.580] has to get much better.
+- [45:13.880] And I think that if that got better,
+- [45:15.640] if you actually had a place
+- [45:17.060] where people were open to debating these things
+- [45:19.440] and weren't terrified they were going to lose their job
+- [45:21.420] for saying something
+- [45:22.660] that was a little bit outside the Overton window,
+- [45:24.810] then I think the same science would get better,
+- [45:26.590] the reproducibility would get better,
+- [45:28.340] the quality of the institution would be so much better.
+- [45:31.240] And that's what I want,
+- [45:32.530] because we need high quality universities right now.
+- [45:34.950] The problem is we don't have them.
+- [45:36.810] Oren Cass: Absolutely.
+- [45:39.780] I think we have time for one more question.
+- [45:42.170] Grayson is usually an awful cliched question,
+- [45:45.570] but in this case it's extremely relevant as I think,
+- [45:49.190] you know what American companies, key activities.
+- [45:51.490] We have what we call our membership group.
+- [45:52.970] It's now more than 250 young policy professionals.
+- [45:56.490] Dozens of them are in the administration.
+- [45:58.410] They're senior staff on Capitol Hill, they're in think tanks.
+- [46:02.560] They are why I am so optimistic about the future
+- [46:05.400] and what I think is most important
+- [46:06.960] about our organization.
+- [46:08.730] And so it is not at all a cliche to ask what is the advice
+- [46:12.070] you would give to younger people,
+- [46:15.310] admittedly not that much younger, who want to be,
+- [46:19.520] who are deeply engaged
+- [46:21.140] in bringing about this kind of change?
+- [46:25.200] What do you need? What should they be doing more of?
+- [46:27.660] What are the things that maybe no one's doing
+- [46:29.140] because it's just not as much fun,
+- [46:30.480] but it's incredibly important.
+- [46:31.950] What are the things that never occurred to you,
+- [46:33.580] needed to be done until you got to where you are now
+- [46:36.150] that you would like to assign to them all before you leave.
+- [46:39.410] The Vice President: So I've reached the stage of my career,
+- [46:41.170] I guess, where I'm now the old guy.
+- [46:42.820] Oren Cass: You are the old guy.
+- [46:44.090] The Vice President: Offer advice to all of you.
+- [46:45.470] Again, you started out by calling me an intellectual,
+- [46:48.270] and your final question is effectively,
+- [46:50.220] hey, old man, give advice to all of these young people here.
+- [46:53.000] But here's, let me say a couple of things.
+- [46:56.170] So first of all, I think that you guys should go forth
+- [47:02.570] with a lot of confidence
+- [47:04.410] because the conversations that are happening in this room
+- [47:08.100] and amongst all of you are far more interesting
+- [47:10.700] and far more influential in the policy conversation
+- [47:13.430] than almost anything else that's happening in Washington, DC.
+- [47:16.870] There was a time in my life when I was incredibly, you know,
+- [47:21.400] I didn't like to talk about trade policy
+- [47:23.350] because I didn't have a PhD in economics.
+- [47:25.170] Well, it turns out that a lot of the people
+- [47:26.990] who had PhDs in economics were flagrantly wrong,
+- [47:30.460] and they were given.
+- [47:34.060] Oren Cass: Would you like to be the chief economist
+- [47:35.720] at American Compass?
+- [47:38.320] The Vice President: I already have a job, man.
+- [47:40.010] Oren Cass: We can do an honorary one.
+- [47:41.230] The Vice President: It turns out the title, Ask Marco Rubio.
+- [47:42.610] He's got like five jobs. Maybe he'll take on a six.
+- [47:44.330] But I think that there is still, among especially well educated
+- [47:52.370] D.C. conservative types,
+- [47:54.640] there is still this sort of apprehensiveness about,
+- [47:56.950] well, I don't have this credential,
+- [47:58.910] so should I not opine on this topic?
+- [48:00.990] And I think that in reality, you've got to realize
+- [48:04.590] that the people who grant these credentials
+- [48:06.890] have been gatekeepers and their ideas
+- [48:10.720] and their entire work in Washington
+- [48:12.870] has served to make the people
+- [48:15.130] that they should be serving poorer and less happy,
+- [48:19.380] has reduced their life expectancy,
+- [48:21.170] and has made the national security of the country weaker.
+- [48:23.590] Ignore those people, they don't matter.
+- [48:25.720] And you have to beat them and not worry so much
+- [48:28.150] about what they think. That's one piece of advice.
+- [48:33.330] I mean, this is, to me,
+- [48:34.670] the fundamental thing about our country.
+- [48:37.580] There's so much good in it,
+- [48:40.260] there's so much brilliance in it.
+- [48:41.530] We still have the best science and technology in the world.
+- [48:43.940] There's so much that I'm optimistic about.
+- [48:46.180] The thing that really worries the hell out of me
+- [48:48.840] is that you have people in Washington
+- [48:50.730] who have been calling the shots for 40 years
+- [48:53.160] and the life expectancy of their country has dropped.
+- [48:55.770] And if that doesn't cause you to look in the mirror and say,
+- [48:58.180] maybe I should be doing something different,
+- [49:00.460] then there's something fundamentally wrong with you.
+- [49:02.230] And so I've given up hope that we can persuade most of
+- [49:06.250] the think tank intellectuals of Washington, D.C.
+- [49:08.580] to change. We can't change them.
+- [49:10.650] What we can do is replace them with all of you.
+- [49:12.840] And that's exactly what we aim to do.
+- [49:14.990] That's number one.
+- [49:19.140] I guess the second piece of advice
+- [49:21.060] that I'd give is look where we are, right?
+- [49:24.040] This is a beautiful, beautiful place. Again.
+- [49:27.570] The last time that I was here, I was about to be inaugurated
+- [49:31.090] as the 50th Vice President of the United States.
+- [49:33.310] Like, literally the next day.
+- [49:35.010] Like, this is a very cool place to get to spend an evening.
+- [49:37.510] I'm sure the food is great.
+- [49:39.070] I'm sure, the company is even better.
+- [49:41.300] But try to remember that all of this, you know,
+- [49:46.190] the job that I have, the white papers that you write,
+- [49:49.180] the work that you do, it is all in the service
+- [49:52.780] of making normal people have a better life.
+- [49:56.510] And so try to find opportunities to actually get out there
+- [50:01.150] and see the effects of what you're doing
+- [50:03.250] has on the American population.
+- [50:05.660] Try to get out there and get to know your fellow Americans.
+- [50:08.140] Try to not be.
+- [50:09.660] The problem with the generation of D.C.
+- [50:12.590] intellectual that was so broken is they were so cloistered,
+- [50:16.170] they had no idea that they were about
+- [50:17.980] to get hit by a freight truck frame.
+- [50:20.080] Don't ever be those people. Learn the lessons.
+- [50:23.390] I think one of the lessons you have to learn is be more open
+- [50:26.390] and be more willing to sort of test the Overton window.
+- [50:29.820] Another lesson is that you've got to have conversations
+- [50:32.620] with everybody and not like, try to cloister yourself off
+- [50:36.130] from everything that's happening intellectually in this town.
+- [50:39.340] But I think the most important lesson is to get out there
+- [50:42.520] and know the country that you serve
+- [50:44.500] and every single one of you, in some form or another,
+- [50:46.790] are serving this country that all of us love so much.
+- [50:49.600] I think that if you actually get out there,
+- [50:52.030] it will give you an incredible optimism
+- [50:54.440] and hope for the country,
+- [50:56.300] but it will also, most importantly,
+- [50:58.680] give you an incredible sense of duty.
+- [51:00.880] You all are lucky to be here.
+- [51:03.130] You're lucky to have the influence
+- [51:04.790] on this country that you do.
+- [51:06.310] So get out there and do your duty with optimism
+- [51:09.720] and hope and a recognition that you're lucky
+- [51:12.360] to get to have the life that you do.
+- [51:14.050] Use that life to serve the people
+- [51:15.550] that all of us love so much. Thank you, guys.
+- [51:18.050] Oren Cass: Thank you, sir.
+- [51:19.470] Please join me in thanking J.D. Vance.
+- [51:21.810] The Vice President: Thank you, all.
+- [51:24.740] (applause)

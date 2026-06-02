@@ -1,0 +1,1397 @@
+<!-- source: https://www.youtube.com/watch?v=TMfuHNgXdd4 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: TMfuHNgXdd4 -->
+<!-- date_published: 2026-05-05T17:22:59+00:00 -->
+<!-- date_accessed: 2026-06-02T02:34:21.040672+00:00 -->
+
+# Transcript: President Trump Signs a Proclamation, May 5, 2026
+
+- [00:02.000] The President: Great athletes with us today,
+- [00:03.980] and we have some young, great athletes,
+- [00:06.290] some award-winning athletes,
+- [00:07.940] and it's an honor to have everybody.
+- [00:09.470] We're thrilled to have so many young athletes
+- [00:12.230] here at the White House, in the Oval Office
+- [00:14.650] on this magnificent spring day. And it is indeed a beautiful day
+- [00:19.190] to celebrate America's athletic traditions
+- [00:22.540] and champions physical fitness
+- [00:25.160] and all of those things that I worked so hard
+- [00:27.630] at on a personal basis.
+- [00:29.320] I work out so much, like about one minute a day,
+- [00:32.220] max, if I'm lucky.
+- [00:34.260] I want to thank Secretaries Pete Hegseth,
+- [00:37.250] who just gave a great news conference
+- [00:39.250] with General Raizin Caine, and that was really good
+- [00:43.960] and you're doing very well, aren't you?
+- [00:45.740] You're doing -- they don't like playing games with us.
+- [00:48.710] They don't like it at all.
+- [00:49.950] You'll see that as time goes by.
+- [00:51.800] You're going to see it. I think you've already seen it.
+- [00:55.100] We basically wiped out their military in about two weeks.
+- [00:58.610] Robert F. Kennedy Jr., who's done an incredible job;
+- [01:01.950] Scott Turner that everybody knows;
+- [01:03.840] and a legend, Linda McMahon,
+- [01:07.330] head of education in our country,
+- [01:09.130] and she's doing a fantastic job.
+- [01:11.030] They all are.
+- [01:12.700] We're also pleased to be joined by respected sports leaders
+- [01:15.830] and members of the president's Council on Sports,
+- [01:18.880] Fitness and Nutrition.
+- [01:20.670] We really have some incredible people.
+- [01:23.060] It's like a who's who.
+- [01:25.010] Bryson, how many do we have on the council total?
+- [01:27.440] Bryson DeChambeau: Oh, it's got to be upwards of 30, actually.
+- [01:29.400] The President: Yeah, a lot and all -- all top.
+- [01:31.240] Bryson DeChambeau: Yes, sir.
+- [01:32.480] The President: If they weren't really good,
+- [01:34.810] we don't allow them.
+- [01:36.060] You got to be really good like Gary Player, as an example.
+- [01:39.790] He won 168 tournaments over -- a very average career.
+- [01:44.200] You know that -- think of it, he won 168 tournaments,
+- [01:48.010] 18 majors, nine and nine senior.
+- [01:51.160] He has more championships than anybody,
+- [01:54.200] national championships than anybody.
+- [01:56.820] And I played with him. He just --
+- [01:58.860] he's very proud of it, actually,
+- [02:00.740] played with him on his 90th birthday.
+- [02:02.580] He very easily, on a tough course, from 6,800 yards,
+- [02:07.390] he very easily shot a 70. And it was the easiest 70.
+- [02:13.400] And normally, if you shoot a 70 and you're 90,
+- [02:16.500] you'd run around so excited.
+- [02:18.590] Gary's like, all right, let's have a little lunch.
+- [02:21.700] He was the most unexcited human being I've ever seen,
+- [02:25.240] because he's been doing it all his life.
+- [02:26.720] He's been winning top three in history, in my opinion.
+- [02:29.910] I don't think it's my opinion. Just based on the record,
+- [02:32.470] Gary is top three, of Jack and Tiger
+- [02:35.000] and Gary, greatest golfers, so thanks for being here.
+- [02:39.040] And as you know, we have the US open champion
+- [02:43.000] and he won two US opens.
+- [02:45.420] But that last one was unbelievable. He had a --
+- [02:47.530] I think Gary's one of the greatest shots
+- [02:49.750] ever hit to win a US open,
+- [02:51.820] certainly, one of the top -- they say one of the top three.
+- [02:54.340] I don't know what the other two are,
+- [02:56.350] but he hit an unbelievable sand shot,
+- [02:58.190] sank a 4.5 foot putt and he won the US open,
+- [03:01.790] and he's been a great golfer from the day he was born,
+- [03:06.420] if you believe in genetics, because I do.
+- [03:08.870] But he won -- you know, he won the US amateur years ago
+- [03:13.000] and he won it quite easily.
+- [03:14.990] But he's a great person and a great friend of mine,
+- [03:17.450] Bryson DeChambeau. And thank you, Bryson,
+- [03:20.640] and you're very much in charge of this whole operation sports.
+- [03:23.710] He's so much into physical fitness.
+- [03:25.350] All you have to do is take a look at him
+- [03:27.710] and you say, why is he even doing this?
+- [03:29.310] Because I think if you didn't work out at all,
+- [03:32.870] you'd still look almost like you do right now,
+- [03:35.720] but you are doing great.
+- [03:37.010] And everybody respects Bryson.
+- [03:38.700] He's the longest hitter in golf and he's straight, and, frankly,
+- [03:42.430] maybe the best part of his game, Gary, is he's a great player.
+- [03:44.500] Gary Player: Absolutely.
+- [03:45.780] The President: You played with him, right?
+- [03:47.000] Gary Player: And an asset to the game.
+- [03:48.210] The President: And he's a great asset
+- [03:49.410] and he's a great person. And we have,
+- [03:53.130] along with the University of Florida's basketball coach,
+- [03:56.380] Todd Golden. Todd. Where is Todd?
+- [03:58.410] Todd Golden: Right here. The President: Todd. Hi, Todd.
+- [03:59.670] Todd Golden: Great to see you, sir.
+- [04:00.870] The President: And what a job.
+- [04:02.090] By the way, what a job you've done.
+- [04:03.630] I see that. I'm a little busy to watch the games,
+- [04:05.640] but I always see your team is right up there.
+- [04:07.280] Todd Golden: Yeah.
+- [04:08.510] The President: You're doing a fantastic job as a young guy.
+- [04:11.330] And American hockey hero, T.J.
+- [04:14.310] Oshie, who's one of the best hockey players in the world.
+- [04:17.580] T.J.
+- [04:18.970] T.J. Oshie: Mr. President, thanks for having me.
+- [04:20.230] The President: How's your golf game?
+- [04:21.460] The hockey -- the hockey players
+- [04:23.590] --Bryson was saying the hockey players seem to be the best --
+- [04:26.780] of the athletes, seem to be the best golfers, you know?
+- [04:29.060] T.J. Oshie: The greatest game.
+- [04:30.280] The President: Yeah, it's great. T.J. Oshie: (Inaudible)
+- [04:31.480] The President: And he's a good golfer.
+- [04:32.700] He's a three handicap, may be better, right?
+- [04:34.470] That's very good.
+- [04:35.690] T.J. Oshie: Got to work on the puck, right, Gary?
+- [04:37.880] The President: But stick -- stick to hockey, right?
+- [04:40.580] T.J. Oshie: Yeah.
+- [04:41.850] The President: That's the three. He has to stick to hockey.
+- [04:44.580] Uh, that's great.
+- [04:45.920] What a -- what a career you've had too at a young age.
+- [04:48.910] And professional baseball pitcher
+- [04:51.560] Noah Syndergaard, sometimes referred to as Thor.
+- [04:55.780] And he looks like Thor to me. That's some -- where is he?
+- [05:01.660] It's very hard to miss. You look great.
+- [05:03.260] Noah Syndergaard: Thank you, sir.
+- [05:04.550] The President: That is a man --
+- [05:05.760] I wouldn't want to get into a fight with him,
+- [05:07.150] I can tell you.
+- [05:08.410] That would not be a good situation.
+- [05:11.560] This year, we celebrate 250th anniversary of our country
+- [05:16.040] and it's our nation's founding. It's a big deal.
+- [05:19.860] In addition, we have the World Cup and we have,
+- [05:21.890] which is just now starting, and we have the Olympics.
+- [05:25.500] I got them both. And I was very proud of myself.
+- [05:29.040] I tried to say I got the 250th also, but nobody --
+- [05:32.240] that didn't work out too well. But I did get --
+- [05:35.010] I did get both the World Cup and I got the Olympics,
+- [05:39.500] and I was very proud of that. But I was very sad, actually,
+- [05:42.910] because I got them in my first term and I said,
+- [05:44.720] oh, wow, I'm not going to be able to go as president,
+- [05:47.600] because they were in six years, so I wouldn't be president.
+- [05:54.090] I thought I'd easily win the election.
+- [05:55.570] Which, by the way, I did.
+- [05:57.510] And, unfortunately, bad things happened.
+- [05:59.430] It was a rigged election.
+- [06:00.710] And I said, ah, I'll do it again.
+- [06:03.100] I had the ultimate poll. I did so well.
+- [06:05.570] And I had the ultimate poll and we won in a landslide.
+- [06:08.170] We won every single swing state. We won the popular vote.
+- [06:12.060] We won everything you can win.
+- [06:13.450] We won 87 percent of the counties in the United States.
+- [06:17.690] And I ended up with the Olympics,
+- [06:19.520] and I ended up with the World Cup.
+- [06:21.860] And very importantly, maybe the most important,
+- [06:23.710] is we have the 250th anniversary.
+- [06:26.090] And on June 14th, we're going to have the UFC
+- [06:29.210] and the biggest fight they've ever done,
+- [06:30.840] by far, the hardest ticket I've ever been involved with.
+- [06:34.350] And they're building a 5,000-seat stadium
+- [06:35.990] right in front of --
+- [06:37.250] right by the front door of the White House.
+- [06:38.800] And then they're going to have anywhere from 75,000
+- [06:41.220] to 100,000 people on the park, right past the White House,
+- [06:45.530] with tremendous screens.
+- [06:48.020] And then we have Roger Penske, so that's Dana White's dream,
+- [06:53.030] what that is. It's going to be amazing.
+- [06:54.940] And then we have Roger Penske is going to have a big championship
+- [06:59.310] INDY around the Capitol and INDY racers.
+- [07:03.790] And he's been trying to get it here for 25 years.
+- [07:06.510] And he said, I came to Washington exactly 121 times,
+- [07:10.270] and I was never able to get it. I came once to see you,
+- [07:12.470] and we had it done in a half an hour.
+- [07:14.910] And he's fantastic. He's won 20 Indianapolis 500s.
+- [07:19.580] Can you believe that?
+- [07:21.000] You know, other countries -- and I say it all the time.
+- [07:23.030] I gave him the Presidential Medal of Freedom,
+- [07:25.330] like I gave to Gary, too, because of his career.
+- [07:28.800] And then Roger, on his 18th, I called him I said, come on,
+- [07:33.230] I want to give you the president -- you won 18.
+- [07:35.510] Japan, Germany, all these countries,
+- [07:37.330] they spend billions and billions of dollars
+- [07:39.550] and they don't -- it's very hard for them to win.
+- [07:42.540] They don't win very, very much. They spend all that money.
+- [07:44.770] And Roger just wins it all the time.
+- [07:47.450] So I gave it to him on the 18th.
+- [07:49.920] Since then, he's won -- that was four years ago.
+- [07:52.140] Since then, he's won two more.
+- [07:53.360] So he's going to be here with the INDY cars,
+- [07:55.980] and it's going to be their biggest race maybe ever
+- [07:57.930] and they're going to be circling the Capitol.
+- [08:00.260] We have Pennsylvania Avenue closed down and it's --
+- [08:04.250] I said, do you like the course? He said, I love the course.
+- [08:07.020] I said, pick the best course, we'll get it for you.
+- [08:09.590] Don't go the easy way; pick the best roads --
+- [08:13.590] I don't care, it doesn't matter. And he picked a perfect --
+- [08:16.100] he said, it's as good as you can get.
+- [08:18.180] And, unfortunately, he picked the most important roads
+- [08:20.560] in the city, which is a little tougher.
+- [08:22.480] But we got it done for him quickly
+- [08:24.370] and that's going to be in August.
+- [08:26.330] So we have a lot of really exciting things happening.
+- [08:28.990] So today I signed a proclamation
+- [08:31.480] recognizing national youth sports and fitness,
+- [08:34.710] and I'll also signed
+- [08:36.110] the very first copy of the new revitalized
+- [08:39.200] Presidential Fitness Test Award,
+- [08:41.550] a certificate in recognition of achievement
+- [08:43.980] of the Gold Standard of Physical Fitness.
+- [08:46.390] And this is something that Bryson DeChambeau wanted
+- [08:50.050] to do very badly. Bryson is amazing.
+- [08:52.740] I mean, he's somebody that can put on 25, 30 --
+- [08:57.480] at one point, I guess he put on almost 50 pounds. You remember?
+- [09:00.040] He looked like a linebacker for the Pittsburgh Steelers.
+- [09:03.410] And he decided he didn't like himself at that weight.
+- [09:08.560] It was all muscle, Gary. It was crazy.
+- [09:10.270] He looked like a massive football player.
+- [09:12.500] You wouldn't want to play him. And he said he didn't like it.
+- [09:16.930] He developed too much speed, is the problem that people --
+- [09:20.840] he had too much speed.
+- [09:22.170] He wanted to bring it down a little bit, so he lost --
+- [09:24.270] He can put on weight, like up and down like a yo-yo.
+- [09:27.790] And he doesn't take the shot, OK?
+- [09:32.470] He doesn't need the fat shot.
+- [09:34.350] He just -- I said, do you ever take this shot?
+- [09:36.130] He didn't even know what the hell I was talking about.
+- [09:38.000] What shot? No, he can put it on. He's a scientist.
+- [09:40.730] He's like a scientist with his body.
+- [09:43.410] He's a great guy, and he's an absolute champion,
+- [09:46.380] so I appreciate it.
+- [09:47.670] But Bryson really wanted to bring it back
+- [09:51.750] because we are bringing it back.
+- [09:53.050] It's something that's a lot of people,
+- [09:55.960] the wrong people probably were involved.
+- [09:57.880] I don't know. But this is a group of people
+- [09:59.880] that physical fitness is everything.
+- [10:01.380] Gary Player, by the way, you talk about golf,
+- [10:03.600] but he was always considered in the best shape of anybody.
+- [10:09.560] He was long ahead of the rest of the world.
+- [10:11.610] Now, you see all these guys have a 28-inch waist.
+- [10:14.570] They walk down, it's like -- like robots, right?
+- [10:17.260] But Gary was always -- he was way --
+- [10:19.470] he was way ahead of everybody else.
+- [10:21.740] From the late 1950s until 2013, grade schoolers
+- [10:25.840] across the country competed against each other
+- [10:28.190] in the presidential fitness test,
+- [10:29.780] but others in -- though, we had the Obama administration,
+- [10:32.890] wonderful, wonderful person, Barack Hussein Obama.
+- [10:35.870] Have you heard of him? We had the Obama administration,
+- [10:39.840] which phased out this wonderful tradition of physical fitness.
+- [10:44.900] Thank you, Barack, very much. Great job.
+- [10:47.500] No, we're bringing it back. We're bringing it back.
+- [10:50.330] My administration is working very hard
+- [10:52.310] to defend America's cherished athletic traditions
+- [10:55.510] and pass our values of excellence
+- [10:57.450] and competitiveness to the next generation, so important.
+- [11:01.770] We are working on historic reforms to save college sports,
+- [11:05.070] and we banned men from competing in women's sports.
+- [11:08.670] That was sort of an easy one. They say, you know,
+- [11:11.770] the radical left says that's an 80/20 issue.
+- [11:14.640] No, it's 99/1. They say 80/20. Who are the 20 percent?
+- [11:18.850] I've never met anybody -- nobody's ever come up.
+- [11:21.190] So I've been president for five years
+- [11:23.610] and nobody's ever come up to me and said, sir,
+- [11:26.890] you have to allow men to play in women's sports.
+- [11:29.740] You know, I've never had one person say,
+- [11:33.190] it's really important that we allow women
+- [11:35.610] to be challenged by men in women's sports.
+- [11:38.660] And doesn't work, so we did that.
+- [11:41.080] And with the help of Secretary Kennedy,
+- [11:43.030] who is with us, we're striving constantly
+- [11:45.480] to make America healthy again. And that's what we're doing.
+- [11:49.630] We have unbelievable numbers coming.
+- [11:52.320] Bobby will mention it.
+- [11:53.570] We have unbelievable numbers coming.
+- [11:55.950] So these next few years will be a golden age
+- [11:58.750] for American sports, just like it's a golden age for America.
+- [12:01.740] You know, we hit an all-time high stock market today,
+- [12:04.310] despite that we're in a little skirmish, military --
+- [12:06.680] I call it a skirmish because Iran has no chance.
+- [12:11.830] They never did. They know it.
+- [12:14.940] They express it to me when I talk to them.
+- [12:16.670] Then they get on television, they say how well they're doing.
+- [12:20.490] And they have no Navy, totally wiped out.
+- [12:23.680] They have no Air Force, totally wiped out.
+- [12:26.220] They have no anti-aircraft capability,
+- [12:29.190] totally wiped out, no radar. They have no leaders.
+- [12:33.810] The leaders are wiped out, the whole thing.
+- [12:36.480] And then I read the papers and they say how well they're doing.
+- [12:39.750] They're not doing well.
+- [12:41.050] That's why you have no credibility, no credibility.
+- [12:43.820] The -- the news, the fake news has no credibility.
+- [12:47.060] But the President's Cup, it's going to be something
+- [12:50.750] and we're going to have that.
+- [12:52.040] We're going to do a very special presentations to Gianni,
+- [12:55.020] who, as you know, is the commissioner.
+- [12:56.770] He's a fantastic person who runs the soccer.
+- [13:01.290] And if -- I don't know if you know this, but --
+- [13:04.370] so more tickets have been sold earlier
+- [13:06.750] than at any World Cup they've ever had,
+- [13:09.670] and the numbers are more than double.
+- [13:11.340] They've never seen anything like it so it's really a --
+- [13:13.660] soccer, I don't know, soccer has taken off or not taken off,
+- [13:16.040] but the World Cup is doing numbers like they've never done.
+- [13:20.130] They've never done anywhere close.
+- [13:22.270] And we have the Patriot Games
+- [13:23.470] in honor of our 250th anniversary this fall.
+- [13:26.650] It's going to be all on television.
+- [13:27.940] And with athletes like the ones that we have here,
+- [13:31.470] we're going to continue to win, win, win.
+- [13:33.130] Our country is doing great.
+- [13:34.970] We we're breaking records in every way.
+- [13:37.570] And, I know it's too bad, but I had to do it,
+- [13:41.730] we can't let Iran have a nuclear weapon.
+- [13:44.830] You might be too young for this.
+- [13:46.430] I don't know if I want -- they probably know.
+- [13:48.270] They probably know better than most people
+- [13:50.950] but you can't let a bunch of lunatics have a nuclear weapon,
+- [13:54.950] or the world would be in trouble.
+- [13:56.320] The world would be in trouble.
+- [13:57.600] So we just hit records on the Dow.
+- [14:01.670] It was supposed to be done in five or six years.
+- [14:03.740] Somebody said it couldn't be possible to reach 50 on the Dow,
+- [14:07.990] and I reached 50 in the first year,
+- [14:10.500] and then I reached 7,000.
+- [14:13.350] And by the way, just set a new record.
+- [14:14.850] The S&P just set a new record, much higher, 7,500.
+- [14:19.350] But they said, even harder than 50 on the Dow
+- [14:22.500] is getting to 7,000 on the S&P.
+- [14:24.680] We did that by the end of the first year,
+- [14:26.510] all before the end of the first year.
+- [14:28.380] Gary, so think of that,
+- [14:30.000] they said we couldn't do it in four years
+- [14:31.770] and we did it at the end of the first year.
+- [14:34.390] And then, you ever have this -- and then I said --
+- [14:37.030] I called all my people and I said,
+- [14:39.550] we just set every record in the book,
+- [14:41.170] the economy is going great. I ended eight wars.
+- [14:44.570] Nobody else ended ever ended a war.
+- [14:46.960] And the person that won the Nobel Prize, Maria,
+- [14:49.300] she's a good person, she said, I don't deserve this.
+- [14:52.280] This deserves to President Trump.
+- [14:54.440] There's never been a man that deserves a Nobel Peace --
+- [14:56.580] he ended eight wars, including India, Pakistan,
+- [14:59.270] which would have been a nuclear war, eight of them.
+- [15:02.240] And I called everybody in, Gary, and I said,
+- [15:05.490] you know what, we just broke every record
+- [15:09.580] and now we're going to take a hit
+- [15:11.140] because we have to make a journey down to Iran
+- [15:13.580] to take the nuclear weapon.
+- [15:15.180] They would have had a nuclear weapon in --
+- [15:17.630] within two weeks.
+- [15:19.010] Remember, we sent that beautiful B-2 bomber in
+- [15:21.650] and we blew up their nuclear potential.
+- [15:26.080] It was obliterated for those that are not aware,
+- [15:30.690] to a point where it would take them weeks to dig down
+- [15:33.090] and we wouldn't let them dig down.
+- [15:34.480] We have our eyes on it all the time.
+- [15:36.760] But it was a very important thing.
+- [15:39.180] So we would have had a -- an Iran with a nuclear weapon,
+- [15:45.180] and maybe we wouldn't all be here right now.
+- [15:47.430] I can tell you, the Middle East would have been gone,
+- [15:49.400] Israel would have been gone,
+- [15:51.070] and they would have trained their sights on Europe first
+- [15:53.350] and then us, because they're sick people.
+- [15:57.050] These are sick people.
+- [15:58.520] And we're not going to let lunatics have a nuclear weapon.
+- [16:01.860] The power of a nuclear weapon
+- [16:03.290] is something I don't even want to talk about.
+- [16:06.540] It's not going to happen. And we have beaten them badly.
+- [16:11.470] They're talking -- oh, now they're reduced to little boats
+- [16:14.710] with a machine gun on the front of them,
+- [16:16.220] because they had a navy of 159 ships.
+- [16:19.180] Every single ship in the first week was --
+- [16:21.910] right, Pete, every single ship they had is --
+- [16:24.740] Pete Hegseth: It's gone, sir.
+- [16:26.110] The President: Resting underwater, right,
+- [16:28.670] at the bottom of the sea.
+- [16:30.080] They have no Navy. It's totally wiped out.
+- [16:32.360] Same thing with their Air Force. So we're doing well,
+- [16:36.560] but it's all about, you know, having a great country.
+- [16:39.770] And one of the things I think
+- [16:41.170] that when they talk about physical fitness,
+- [16:42.920] one of the things I noticed about friends of mine,
+- [16:45.460] all of the people, all the great athletes here,
+- [16:47.930] is their mind is better than people that aren't fit.
+- [16:52.020] It's -- because I think a mind --
+- [16:53.890] you know, once you once you hit a ball well,
+- [16:56.410] or you do whatever it is that -- you run well or play hockey
+- [17:00.190] as great as you play it, but once you --
+- [17:02.630] I mean, you obviously have to have a certain physicality.
+- [17:05.610] You can't have somebody with a great mind
+- [17:07.300] and zero athletic talent, right?
+- [17:11.780] But when you get up to that league, it's all about the mind.
+- [17:14.310] The mind is so important.
+- [17:15.700] And these people express it, I think, better than anybody.
+- [17:19.660] So with that, I'd like to ask somebody
+- [17:21.420] that's done really an incredible job,
+- [17:23.450] he has got some group of people that love him,
+- [17:27.450] some big group of people. It was a -- it was a big day
+- [17:30.820] when he endorsed me for president, very unusual
+- [17:34.040] because I happen to be a Republican.
+- [17:36.420] I would say that Republicans
+- [17:38.130] were not too big in the Kennedy family,
+- [17:40.630] but they're big now because he's the biggest --
+- [17:42.780] he's the biggest in the group.
+- [17:44.860] And everybody respects him a lot.
+- [17:47.400] He's doing a fantastic job.
+- [17:48.710] So, Bobby, would you say a few words, please?
+- [17:50.510] Secretary Kennedy: Yeah. Thank you, Mr. President.
+- [17:53.060] One of my -- almost immediately after my uncle
+- [17:55.730] was elected in 1960, in '61 --
+- [18:01.120] '60, he came across some federal data
+- [18:04.470] that showed that five percent of American kids were obese,
+- [18:08.970] and that was more than double the European number.
+- [18:11.290] and he became very concerned
+- [18:12.920] that Americans were becoming soft.
+- [18:15.940] And he published an article
+- [18:17.770] before his inauguration called The Soft American,
+- [18:20.680] in which he said that there's a national security issue.
+- [18:24.080] It threatens our -- our economy. We need a vigorous population
+- [18:28.640] that is in good shape spiritually,
+- [18:30.340] morally, physically, if we're going to continue
+- [18:33.070] to exercise leadership around the world.
+- [18:36.110] And he launched the physical fitness test,
+- [18:38.160] which became a milestone for my generation,
+- [18:41.420] for several generations after me.
+- [18:44.050] It was an enduring rite of passage for us
+- [18:48.450] that everybody in my generation remembers.
+- [18:52.250] It was a benchmark also because we did pull-ups, sit-ups,
+- [18:56.380] shuttle runs and a number of other events,
+- [18:58.380] and it was a benchmark for measuring
+- [19:00.680] national physical fitness.
+- [19:03.360] Um, around that time, my uncle came across correspondence
+- [19:08.640] between Teddy Roosevelt and the head of his --
+- [19:12.290] the commandant of his Marine Corps.
+- [19:15.440] And Teddy Roosevelt asked him, what are the metrics,
+- [19:18.320] what are the physical requirements for a Marine?
+- [19:21.410] And Roosevelt -- or the commandant wrote him back
+- [19:24.140] saying that a Marine had to walk 50 miles in a single day
+- [19:27.990] a with a 30-pound pack.
+- [19:31.190] My uncle wrote a letter to his commandant
+- [19:34.340] and said, can today's Marines do the same thing?
+- [19:37.800] The following day, he had a cabinet meeting,
+- [19:40.670] was on a Friday,
+- [19:41.960] and he had private cabinet meetings,
+- [19:43.930] unlike the ones that we have to go through here.
+- [19:47.100] Listen, my uncle was -- I'll just say this.
+- [19:49.210] My uncle was proud.
+- [19:51.010] He was the first president that had televised press conferences,
+- [19:54.820] and he was very proud.
+- [19:56.050] He did more press conferences than any president in history.
+- [19:58.510] He did 64 in his 1,000 days in office.
+- [20:02.750] This president does that every two months.
+- [20:05.260] He does a press conference every day, or cabinet meetings,
+- [20:09.450] for better or for worse, are also televised.
+- [20:12.760] Um, but it's the most transparent administration
+- [20:15.070] we've ever seen,
+- [20:16.300] the most successful administration in history.
+- [20:19.240] The President: And he went into that cabinet meeting,
+- [20:20.830] that private cabinet meeting that morning
+- [20:23.810] and he said to the cabinet,
+- [20:25.140] one of you has to do a 50-mile hike this weekend,
+- [20:29.120] to show the American people that were in shape.
+- [20:32.910] And he -- his cabinet could have done it.
+- [20:35.780] We have a bunch of thoroughbreds in this cabinet,
+- [20:38.290] he and Scott and Sean Duffy and Linda and Tulsi
+- [20:41.870] and Doug Burgum and Jamieson and all the rest.
+- [20:45.130] There's a lot of people
+- [20:46.340] who could probably do a 50-mile hike.
+- [20:48.100] What about me? You didn't mention my name. I could --
+- [20:50.700] Secretary Kennedy: This guy walks nine miles a day
+- [20:53.000] and a golf course every weekend, so he could do it in a breeze.
+- [20:55.840] The President: I could do it. When I'm not using a cart.
+- [20:59.300] Go ahead.
+- [21:01.770] Secretary Kennedy: My father was the only one who could do it.
+- [21:04.680] And he went into the Justice Department that night,
+- [21:07.280] and he had a bunch of guys in the Justice Department
+- [21:10.720] who were former Marines,
+- [21:13.320] who had gone to Harvard on the G.I. Bill
+- [21:15.280] and played on the same football team.
+- [21:16.780] And he hired them all when he came to the Justice Department.
+- [21:19.850] And he said, you guys are going on a 50-mile hike
+- [21:22.720] with me tomorrow and they got up at 4:00 am
+- [21:25.510] and they started on this you know canal towpath,
+- [21:29.250] which was frozen. It was the middle of winter.
+- [21:32.020] And they were going to walk to Camp David.
+- [21:34.450] One by one, they each dropped out.
+- [21:36.130] My father was the only one who made it.
+- [21:38.510] He -- the last guy to drop out was his best friend.
+- [21:41.530] His name was Dave Hackett.
+- [21:43.560] And Dave Hackett's legs had swollen up
+- [21:45.520] and he said, I got to quit.
+- [21:47.610] And my father said, you're lucky your brother's
+- [21:50.480] not the president of the United States
+- [21:51.810] because the press was following
+- [21:53.250] and there was no way that my father could quit.
+- [21:56.450] I was at Camp David that night
+- [21:58.090] and watched him come in and his feet were bleeding.
+- [22:00.260] They were covered with blisters. But it was part of the message
+- [22:03.500] that President Kennedy wanted to send the American people,
+- [22:06.590] if we were going to maintain our national authority,
+- [22:10.100] our national -- our international leadership,
+- [22:13.130] our moral authority as a nation,
+- [22:15.540] that we had to pay attention to our -- our physical condition.
+- [22:20.330] The physical fitness test was a critical part of that.
+- [22:23.780] And I think it's very unfortunate
+- [22:25.390] that President Obama and President Biden abandoned it.
+- [22:29.070] They said, competition is not good for kids,
+- [22:31.170] which is not true.
+- [22:32.400] But if we're going to be competitive internationally,
+- [22:35.250] we need to be competitive with each other.
+- [22:37.140] We need to teach people how to win and how to lose
+- [22:41.150] and how to process victory and defeat.
+- [22:44.480] And today, they -- since that time,
+- [22:49.960] the presidency has presided
+- [22:51.730] over the worst public health crisis in history.
+- [22:54.990] We're now the sickest nation in the world.
+- [22:58.640] We've gone from five percent of our kids
+- [23:00.560] being obese to 20 percent.
+- [23:02.770] 70 percent of adults are obese or overweight,
+- [23:06.100] and 77 percent of our children cannot qualify
+- [23:09.350] for military service.
+- [23:11.520] And that should be an eye-opener for all of us.
+- [23:14.850] And I'm so grateful to President Trump for his leadership
+- [23:18.340] and his vision of reinstituting
+- [23:21.220] the physical fitness test and challenging Americans
+- [23:25.010] to compete with each other in a friendly, congenial way
+- [23:29.380] and to help each other get in shape
+- [23:32.270] so that we can prepare for a great future
+- [23:35.510] that this administration is going to provide
+- [23:37.420] for this country.
+- [23:39.360] The President: That was -- that was great.
+- [23:42.290] (Inaudible)
+- [23:45.160] Bobby -- Bobby, did you ever see a picture of Bobby working out?
+- [23:48.750] It's like, you guys -- I said, you got to be kidding me?
+- [23:53.600] He's in great shape. I didn't know that about your father.
+- [23:55.850] That's very impressive.
+- [23:57.370] Did he work out a lot, Bobby? He was a great guy.
+- [24:00.150] Secretary Kennedy: He was an athlete,
+- [24:01.530] and he was always in good shape
+- [24:03.100] and he played sports every weekend.
+- [24:05.720] The President: Was he --
+- [24:06.940] your uncle was a great athlete, too.
+- [24:08.690] Was he a very good athlete?
+- [24:10.480] Secretary Kennedy: My father was the only one of the brothers
+- [24:12.660] that lettered in football. Jack was a swimmer,
+- [24:16.920] which allowed him to save his crewmates
+- [24:19.150] when his ship went down in the -- in the --
+- [24:21.480] uh, off the Solomon Islands, so he was able to swim,
+- [24:26.160] or drag one of his shipmates to shore
+- [24:28.050] because he'd been on the swim team.
+- [24:29.900] The President: Two great stories.
+- [24:31.130] It's very interesting. Bobby, that was very good.
+- [24:33.280] It's quite interesting. Everybody was listening.
+- [24:35.470] You know, usually people are sort of wandering off
+- [24:38.020] as people speak, but not when Bryson speaks or
+- [24:39.670] (Inaudible)
+- [24:40.910] speaks. Go ahead, why don't you start it?
+- [24:42.370] Bryson DeChambeau: Yeah, Secretary Kennedy,
+- [24:43.640] thank you for those inspiring words from your uncle
+- [24:46.280] and thank you to the president of United States
+- [24:48.480] for helping reestablish this presidential fitness test
+- [24:51.440] it's been something that we've been looking forward
+- [24:53.330] to doing for a long time, um, since 2013.
+- [24:56.580] I remember going through the presidential fitness test
+- [24:58.400] as a kid and getting that award, and it was quite an honor.
+- [25:00.840] So being up here and a part of that is quite instrumental
+- [25:03.890] and going to be amazing for our nation's future.
+- [25:07.070] Um, reestablishing the gold presidential --
+- [25:09.440] the golden standard of the presidential fitness test
+- [25:11.580] has been a huge deal for me,
+- [25:13.660] is that these kids now are going to have a healthy future.
+- [25:17.100] That's really an important thing for --
+- [25:19.100] for us to note here, is that, you know, we want to make sure
+- [25:22.100] our kids have the best opportunity to succeed in life,
+- [25:25.280] and not only from their mind,
+- [25:26.900] but their health and their wellbeing.
+- [25:28.920] Their physical fitness is a huge priority to helping them
+- [25:33.300] become better human beings in general for our nation.
+- [25:37.400] Um, and so what's quite, honestly, cool,
+- [25:39.640] is Secretary Hegseth here
+- [25:42.350] has allowed us to be involved in over 160 schools,
+- [25:47.200] military bases with DoWEA and institutionalizing
+- [25:51.610] this presidential fitness test in those schools.
+- [25:53.920] So I have to say, thank you so much for helping establish that
+- [25:57.040] and, hopefully here soon, we can do that across the nation,
+- [25:59.780] of which we believe has tremendous --
+- [26:01.840] will have a tremendous effect on --
+- [26:03.630] on these kids and their future.
+- [26:05.230] So I just wanted to say thank you to the president.
+- [26:07.630] Thank you to the cabinet members for everything you've done.
+- [26:10.040] And we're going to go out there and have a great day
+- [26:12.260] on the field and give these kids some --
+- [26:14.550] some fun things to go and play with,
+- [26:16.210] whether it's football, soccer, some -- doing some pull-ups.
+- [26:18.900] Can you guys do pull ups? No? We'll help you. We'll help you.
+- [26:22.460] But that's a part of the presidential fitness test,
+- [26:24.270] is aspiring to help these kids
+- [26:26.370] become a better version of themselves
+- [26:27.960] and that's what I couldn't be more excited to be a part of.
+- [26:29.840] I want to say thank you to the athletes that are here today
+- [26:31.680] and to Gary Player.
+- [26:33.010] He's a -- he's always been an inspiration to me.
+- [26:35.070] And albeit, I'll never get to your record,
+- [26:37.260] I thank you for giving me aspirations
+- [26:38.800] to hopefully get one eighth of what you have, so thank you.
+- [26:42.300] And lastly, I just want to say the kids,
+- [26:44.670] most important thing you can do is always,
+- [26:47.040] get one percent better a day.
+- [26:48.670] That's the most important thing I can give you guys,
+- [26:50.910] try to be a better version of yourself every day,
+- [26:53.160] because one day you could be up here as well.
+- [26:54.950] You could be up here as well. So thank you, Mr. President.
+- [26:56.770] The President: Thank you. Thank you, Bryson.
+- [26:58.030] Bryson DeChambeau: Thank you everybody for being here
+- [26:59.240] and I can't wait to see what we do out there today.
+- [27:01.480] The President: (Inaudible) thank you, Bryson.
+- [27:06.800] And this is really for Bryson
+- [27:08.770] because he's worked so hard on this.
+- [27:10.040] He's -- he's really -- he really put it together.
+- [27:13.060] He's got the best athletes in the world.
+- [27:14.750] I think it's actually 41 or 42.
+- [27:17.440] It's -- and all top -- top people,
+- [27:19.780] all big names, top people, and they all want to do it.
+- [27:22.760] And Bryson, I was given a little idea by Bobby.
+- [27:26.730] He mentioned Camp David, and it's a special place,
+- [27:29.610] and I think we should have our next meeting,
+- [27:31.550] the full meeting at Camp David.
+- [27:32.760] Bryson DeChambeau: Sounds great.
+- [27:33.990] The President: So we'll -- it's like a very special place.
+- [27:36.020] Bryson DeChambeau: Amazing.
+- [27:37.260] The President: So we'll do that.
+- [27:39.050] I'd love to have Gary say a few words.
+- [27:40.880] He's won 168 tournaments. Think of it.
+- [27:44.430] Uh, that means he won every weekend.
+- [27:46.230] I say, well, when did you not win?
+- [27:48.120] It's a record, I think, that will never be broken.
+- [27:50.160] And he won 18 majors, nine senior and nine regular
+- [27:54.100] and many other things. And he is a very special guy.
+- [27:57.670] And, you know,
+- [27:58.960] if you think about the power of positive thinking,
+- [28:01.090] I don't know if Gary has the time,
+- [28:02.490] but he is the youngest winner of the British Open,
+- [28:05.920] what they call now the Open Championship
+- [28:08.930] and he won it when he was 23, I think, Gary, right?
+- [28:11.850] Gary Player: Yeah.
+- [28:13.050] The President: 23.
+- [28:14.310] If you -- if you want, you could tell that story,
+- [28:16.100] because these are all people that love sports
+- [28:18.030] and they love golf. But the way you ask to --
+- [28:21.070] you'd like to practice, my name is Gary Player.
+- [28:23.140] I'm from South Africa.
+- [28:24.750] You're not giving me the time to practice.
+- [28:27.080] I must practice on this course.
+- [28:29.250] And the people thought, who is this?
+- [28:32.310] You don't understand, I'm going to win this tournament.
+- [28:34.330] They never heard of him. He came out of South Africa.
+- [28:36.270] He's winning everything.
+- [28:37.500] He won the South African Open like 14 times or something.
+- [28:40.350] It's incredible but if you want to tell that story,
+- [28:43.220] I think it's a fabulous story. But as a man with a powerful --
+- [28:48.260] it's really the power of positive thinking.
+- [28:50.310] Go ahead, Gary.
+- [28:51.600] Gary Player: Well, Mr. President,
+- [28:52.860] first of all, thank you very much
+- [28:54.410] for having us and hosting this today.
+- [28:57.180] I've been around almost every president for the last 65 years,
+- [29:01.970] and I've never seen a president
+- [29:03.230] who loves this country as much --
+- [29:04.700] they all did, and they all did great works
+- [29:07.330] but I've never seen a president
+- [29:08.590] who loves the country as much as you do.
+- [29:10.990] And I say thank you because I've traveled more miles
+- [29:14.290] than any human being before, without being repetitive,
+- [29:17.670] and I've never seen a country like this.
+- [29:19.910] The freedom that exists,
+- [29:21.200] which is so important to all of us,
+- [29:23.900] and no sport can change the world,
+- [29:26.210] it can give people a chance that don't have any hope.
+- [29:29.190] It can give them hope, as we've seen.
+- [29:31.130] Many people with little education
+- [29:33.120] have become world champions.
+- [29:34.740] Only in America have you got that opportunity.
+- [29:37.820] And the other thing is, to Mr. Kennedy,
+- [29:40.500] who I have absolute utmost respect for,
+- [29:43.800] you know, my great dream now --
+- [29:46.020] I'm finished with tournament golf.
+- [29:47.840] My great dream is for the youth of America,
+- [29:50.470] the youth of a nation are the trustees of posterity.
+- [29:53.860] These are the people that are going to be
+- [29:55.370] the future champions.
+- [29:56.900] And when I talk, I always talk about the importance of fitness,
+- [30:00.810] it's so important.
+- [30:02.070] Please, can we bring it back in the schools?
+- [30:04.900] And as Senator Kennedy has aptly said, to eat properly,
+- [30:10.100] this is so important, what you put in your body.
+- [30:13.430] And the big thing that I wish, and I pray every day,
+- [30:16.380] and wherever I talk, and I do a lot of talking,
+- [30:19.000] I say to the young people, just love this country
+- [30:23.000] because you don't realize what's going on around the world.
+- [30:25.680] Even the students of the great universities of America
+- [30:29.190] really don't understand
+- [30:31.130] what's happening around the world today.
+- [30:33.870] There is a silent war taking place against America today,
+- [30:38.260] and what we've got to do is make these kids realize that freedom
+- [30:42.660] and exercise and education -- start reading some books.
+- [30:46.750] Yes, keep your phone, but also read some good books
+- [30:50.130] and listen to what Mr. Kennedy has said.
+- [30:52.760] What you put in your body is so important.
+- [30:55.190] What a wonderful job he's done and all your cabinet members
+- [30:58.270] of which I say thank you for maintaining this great word,
+- [31:01.900] this cherished word, freedom.
+- [31:04.390] The President: Thank you very much, Gary.
+- [31:05.810] And Gary is way ahead of his time, always.
+- [31:08.240] And how many Masters did you play in, Gary?
+- [31:10.550] It's a record, I think.
+- [31:11.820] Gary Player: 52
+- [31:13.020] The President: 52. Think of it, 52.
+- [31:15.460] And most of them you had to qualify after you won it --
+- [31:17.370] how many times did you win in?
+- [31:18.680] Gary Player: Three.
+- [31:19.910] The President: Three.
+- [31:21.120] So, when you win the three you get to play a little bit.
+- [31:22.700] But most of the time he had to qualify.
+- [31:25.570] But 52 Masters, it's amazing,
+- [31:29.840] and did well in every single one of them.
+- [31:33.120] Pete, could I ask you to say a few words?
+- [31:35.010] Pete Hegseth: Sure, yes, sir.
+- [31:36.300] The President: You could maybe speak a little bit
+- [31:37.850] about a subject that they want to hear about also, if you want.
+- [31:41.260] But just say a few words if you would.
+- [31:42.860] Pete Hegseth: Absolutely, sir,
+- [31:44.200] Well, fitness standards, competition,
+- [31:47.920] that's what we're all about at the War Department.
+- [31:50.370] So, bringing those things to education
+- [31:53.260] is something I remember as a kid.
+- [31:55.110] I mean, the Presidential Physical Fitness Award
+- [31:57.870] was the pinnacle event at Forest Lake Elementary School
+- [32:00.860] every year and I wanted to be the best.
+- [32:03.580] And I wasn't, but I worked my tail off every year
+- [32:05.650] to try to get there. Pull ups, push-ups --
+- [32:07.340] I couldn't do the V sit and reach,
+- [32:08.660] I could never beat that one.
+- [32:10.420] But I remember it because it was something my country
+- [32:13.390] clearly elevated as important.
+- [32:15.400] We should be in shape, we should compete
+- [32:18.780] and there's winners and there's losers.
+- [32:21.280] That we need to infuse into our young people.
+- [32:23.330] And obviously, it takes young people to run a military.
+- [32:26.030] And as the secretary pointed out,
+- [32:28.150] almost three-fourths of American young people
+- [32:30.460] do not qualify for military service,
+- [32:32.050] and a lot of that has to do with their physical fitness.
+- [32:34.900] So, we're proud at the War Department
+- [32:36.600] to put this first into Department
+- [32:38.410] of War education activity.
+- [32:39.710] Our schools, 161 of them across 30 installations,
+- [32:43.380] it's going to be mandatory for the young kids
+- [32:45.620] of those service members who use those schools.
+- [32:49.220] And we hope that's a pilot for all of American education.
+- [32:52.050] We hope the rest of America follows.
+- [32:54.070] We need young, strong, healthy Americans,
+- [32:56.460] whether you serve in the military
+- [32:58.190] or any other aspect of your life.
+- [32:59.740] And I think this Presidential Fitness Test, Mr. President,
+- [33:02.740] is a great -- a perfect thing to restore
+- [33:05.740] that sets those standards high for young people
+- [33:07.780] and something for them to achieve.
+- [33:09.190] The idea that competition is bad
+- [33:11.520] is the beginning of decline of a nation.
+- [33:13.320] Competition is critical to who we are
+- [33:16.140] and ensuring America stays on top.
+- [33:17.670] And speaking of staying on top, Mr. President,
+- [33:19.310] we are, as we talked about this morning,
+- [33:21.870] Project Freedom is ongoing.
+- [33:23.530] We're ensuring that we have control of that strait,
+- [33:25.420] which we do, and, ultimately, Iran has a choice to make.
+- [33:28.630] And they know we're in a strong position;
+- [33:30.130] we hope they make a wise choice.
+- [33:31.400] And nobody better to make that deal, Mr. President, than you.
+- [33:33.720] Thank you very much. Thanks for doing a great job.
+- [33:36.990] A man who's in very --
+- [33:38.600] you talk about athletes, this is a very serious athlete,
+- [33:41.230] happens to be in charge of a little thing called housing.
+- [33:44.280] Do you want to say a few words?
+- [33:45.660] Scott Turner: Yes, sir. Thank you, Mr. President.
+- [33:48.000] And thank you to all the great athletes and ambassadors
+- [33:51.610] that are here, and to the kids that are here.
+- [33:53.980] You know, that word competition, I made a living competing
+- [33:57.700] and being in the top physical fitness
+- [34:00.040] that I could be in playing in the National Football League.
+- [34:03.690] And one thing I want to remind the kids,
+- [34:05.400] and really our country,
+- [34:06.950] is competition brings out the best in us,
+- [34:09.710] be it in sport, be it in business, be it in education.
+- [34:14.050] And you always want to be the best you can be,
+- [34:15.950] as Bryson said, every single day getting better.
+- [34:19.090] And I'm grateful that I had an opportunity to play
+- [34:22.000] in the National Football League,
+- [34:23.420] but it taught me how to be a good teammate.
+- [34:25.980] It taught me how to be humble in victory
+- [34:28.750] and to be steadfast in defeat,
+- [34:31.460] as all these great athletes know.
+- [34:32.690] And Mr. President,
+- [34:33.930] thank you for just your leadership in our country,
+- [34:37.180] but also for this important issue
+- [34:39.420] of having physically healthy children
+- [34:41.830] and a physically healthy nation.
+- [34:43.300] And Bobby, thank you for reminding us of your uncle
+- [34:46.530] and your father, of how important it is for us to be --
+- [34:50.510] to look at the man holistically, spiritually,
+- [34:53.000] morally, physically, mentally.
+- [34:55.230] And I think America historically has been the leader
+- [34:58.280] in all of those areas,
+- [35:00.120] but we are at a critical function in our nation.
+- [35:02.500] And so, I would encourage everyone --
+- [35:04.530] this transcends politics.
+- [35:06.570] Physical fitness is good for every man and woman and child
+- [35:10.020] in the United States of America.
+- [35:11.230] So, Mr. President, I'm committed to this.
+- [35:14.150] I've seen the benefits of it in my own personal life,
+- [35:16.640] my family.
+- [35:17.900] And my cabinet colleagues are 100 percent behind this.
+- [35:21.690] And so, I would encourage all the young people of America,
+- [35:24.450] parents, teachers, educators to take inventory
+- [35:27.790] and hear what these leaders are saying
+- [35:29.380] about the national security of our country
+- [35:31.660] and make sure that we're encouraging
+- [35:32.920] our young people to get out.
+- [35:34.140] Get your hands dirty, get your knees scarred,
+- [35:35.840] get on the monkey bars,
+- [35:37.070] start running and jumping and playing together,
+- [35:40.540] because if you're a good teammate,
+- [35:42.310] the stronger team we are, the stronger country are.
+- [35:44.450] So, thank you, sir.
+- [35:45.900] The President: Well, thank you.
+- [35:47.100] I have to just say we have a star named Linda McMahon,
+- [35:52.870] and she's made a tremendous amount of money
+- [35:56.270] on sports and sport --
+- [35:57.550] they are great athletes in my opinion,
+- [35:59.680] WWE, her great husband and what they built is incredible.
+- [36:04.760] They sold it for a fortune,
+- [36:06.720] billions and billions of dollars.
+- [36:08.850] You made more than Bryson and Gary both if you add it up.
+- [36:12.700] Would you say a few words?
+- [36:14.070] And she's one of our great stars.
+- [36:16.600] She is a phenomenal person. Go ahead.
+- [36:19.240] Linda McMahon: Well, that intro is a hard act to follow.
+- [36:21.610] But I think what we really -- we've talked a lot about fitness
+- [36:24.320] and I think that's incredibly important
+- [36:26.060] because that's what all this is about.
+- [36:28.350] But you know, the Greeks had an axiom,
+- [36:30.090] sound mind and a sound body. So, as Secretary of Education,
+- [36:34.720] clearly, I want all of our schools
+- [36:37.480] to be able to adopt these programs.
+- [36:40.320] We don't control curriculum from the Department of Education.
+- [36:43.500] But I sincerely hope the emphasis
+- [36:45.860] that is being refocused on kids and being fit
+- [36:50.620] and being able to compete, that's what you said, Pete.
+- [36:52.980] All of us are saying the same thing.
+- [36:54.310] But let's not forget it's about also a sound mind
+- [36:57.480] and a sound body.
+- [36:58.680] In order to have a sound mind you do have to eat well,
+- [37:02.000] you do have to exercise, you do have to train,
+- [37:04.680] and you do have to be fit to do that.
+- [37:06.520] And if we all are, we are the best of who we can be.
+- [37:09.820] So, I encourage all of you to enjoy playing
+- [37:13.460] and competing and being good sports while you're doing.
+- [37:17.380] But don't forget, you're studying all of your academics
+- [37:20.230] because it is all part of the total package.
+- [37:23.440] The President: Thank you, Linda. Great job, appreciate it.
+- [37:25.640] So, we have a couple of other guys,
+- [37:27.440] if you guys wanted to say anything,
+- [37:28.920] or we'll just take some questions and, if you'd like,
+- [37:31.400] you could ask the big guy how fast did he throw it?
+- [37:34.240] He threw it very fast. He was very scary, ask Gary.
+- [37:37.530] And you want to say something?
+- [37:38.790] Noah Syndergaard: I guess I'll just reiterate
+- [37:40.670] the thanks, Mr. President.
+- [37:42.380] Thank you to the cabinet members for this opportunity to be here.
+- [37:45.520] Thank you, Bryson,
+- [37:46.780] to allow me to be in this elite company of people.
+- [37:49.250] It's a pleasure to meet all you guys and --
+- [37:50.720] Bryson DeChambeau: Let me look at you.
+- [37:51.930] You're the embodiment of the physical fitness test.
+- [37:53.740] So, we've got to get you on the pull bars.
+- [37:55.860] The President: He is seriously a good physical specimen.
+- [37:58.950] And coach, you've done great in Florida?
+- [38:00.560] Thank you very much.
+- [38:01.770] Unidentified: No. Incredible honor to be here.
+- [38:03.440] This is something that I'm passionate about,
+- [38:05.060] and I think it's imperative that we're doing this
+- [38:07.280] for our youth right now. Through experience --
+- [38:09.860] my wife and I have two young kids, nine and seven.
+- [38:12.660] They're very active, very athletic,
+- [38:14.760] but I can see some of their classmates
+- [38:16.900] and some of their teammates staring at screens all day.
+- [38:19.940] And again, as I said,
+- [38:21.380] it's really important that we do this now.
+- [38:22.910] And not only will -- I think this will improve
+- [38:24.720] the overall physical health of our young people,
+- [38:27.250] but I think it will also help the mental health
+- [38:28.790] of our young people as well.
+- [38:30.340] The President: And just in case you don't know,
+- [38:31.590] he is a coach who just came to a team
+- [38:33.830] and just took it right from the beginning, Gary.
+- [38:35.920] Just an unbelievable job you've done.
+- [38:37.370] Unidentified: Thank you very much.
+- [38:38.610] The President: You're a very rich guy.
+- [38:41.020] They'll pay him anything. I want to represent him.
+- [38:44.150] He comes in and he just pulled this away.
+- [38:48.150] Congratulations. Who's going to win in hockey?
+- [38:50.810] T.J. Oshie: That's a tough one.
+- [38:52.120] Colorado is a favorite; I like Minnesota though.
+- [38:54.740] The President: All right, we're going to watch, OK?
+- [38:56.340] We're going to watch. Great job. Great job you've done.
+- [38:59.430] Thank you. And we're going to go outside.
+- [39:01.380] Did you want to ask a few questions
+- [39:02.900] of any of the people here? Please.
+- [39:05.470] The Press: Can I ask you about Iran, Mr. President?
+- [39:07.070] The President: Yes.
+- [39:08.280] The Press: They've fired at US ships several times
+- [39:10.350] in the last 24 hours.
+- [39:12.250] What do they need to do to violate the ceasefire?
+- [39:16.880] The President: Well, you'll find out,
+- [39:18.220] because I'll let you know.
+- [39:19.780] They know what to do -- and they know what to do
+- [39:22.580] and they know what not to do more importantly, actually.
+- [39:24.830] And, you know, they fired them in little boats
+- [39:30.000] with peashooters. You know what a peashooter is?
+- [39:31.750] A little boat with a little -- you know why?
+- [39:33.470] Because they don't have any boats anymore.
+- [39:34.810] Their Navy is comprised of -- they call them little boats.
+- [39:40.020] And they're fast, yeah, and they're so fast
+- [39:41.840] that they had eight of them, and they're all gone.
+- [39:46.300] And they're fast, but they're not fast like a missile;
+- [39:49.480] a missile is slightly faster and they're all gone.
+- [39:52.660] So, they're looking around for little boats
+- [39:54.330] to try and compete with our great Navy.
+- [39:56.570] We have a Navy that's unbelievable.
+- [39:59.150] You know, where you set up a blockade,
+- [40:00.560] as you know very well, not one ship --
+- [40:03.050] a couple tried and they got their engine shot out.
+- [40:07.940] You remember, I think it was one of the --
+- [40:10.680] it was a great display.
+- [40:13.410] A ship wanted to go through and break the blockade.
+- [40:15.800] They were warned not to and then they were warned again
+- [40:19.370] by a young Annapolis captain of the ship
+- [40:22.490] with a great look, Central Casting.
+- [40:24.890] These people are Central Casting, I'll tell you.
+- [40:27.210] And he said, don't do it.
+- [40:28.430] Then he said, evacuate your engine room
+- [40:30.580] with this unbelievable loudspeaker
+- [40:32.910] that goes over water. He said, you have 10 seconds.
+- [40:36.920] And then from four miles with one bullet,
+- [40:40.310] it went right into the engine
+- [40:42.430] and, Gary, the ship stopped very quickly.
+- [40:45.660] They hit the engine with one shot --
+- [40:47.170] it wasn't a missile;
+- [40:48.410] they don't want to waste a missile on it, it's too easy.
+- [40:51.140] And we had another one at 2,000 --
+- [40:53.300] one of the biggest ships in the world.
+- [40:56.250] They were warned and they said, go back now, go back right now,
+- [41:03.320] you will be shot at within 10 seconds.
+- [41:08.480] Yes, yes, I am going back to Iran.
+- [41:11.190] I am going back and that was the end of that, right,
+- [41:13.030] and he went.
+- [41:14.540] It took them 10 miles to -- the ship was so big.
+- [41:17.580] But they respect us. They didn't used to respect us,
+- [41:21.320] but they respect us more than we've ever been respected.
+- [41:24.500] Our country now is the hottest country anywhere in the world.
+- [41:27.250] We had a country that was dead when we had that group of people
+- [41:30.940] that ran this country with their open borders,
+- [41:32.910] letting anybody come in from the Congo,
+- [41:34.890] from countries all over the world,
+- [41:36.980] they came in from prisons and mental institutions.
+- [41:39.900] We had a country that would have been a dead --
+- [41:42.310] if they won the election
+- [41:43.900] this country would have been a dead country.
+- [41:45.560] Now we have the hottest country anywhere in the world.
+- [41:47.750] Go ahead.
+- [41:49.070] The Press: Thank you, Mr. President.
+- [41:50.310] You said recently that if Iranians were armed,
+- [41:53.770] they could take over their regime.
+- [41:55.470] Do you plan to arm them soon?
+- [41:57.330] The President: Well, I don't want to say that, but yeah.
+- [41:59.130] I mean, people say why aren't they protesting?
+- [42:01.520] They want to protest, but they don't have any guns.
+- [42:05.170] So, you can have 200,000 people protesting
+- [42:08.230] and have five or six sick people with guns,
+- [42:11.110] and when they start shooting them right between the eyes
+- [42:13.400] and you see a guy fall and another one fall
+- [42:15.330] and you have no guns,
+- [42:17.730] very few people would be able to stand there and do it.
+- [42:20.860] I mean, I understand it. I tell them not to.
+- [42:23.050] Don't forget, they killed 42,000 people last month,
+- [42:27.200] 42,000 unarmed protesters.
+- [42:30.710] They have no guns, so they had a 250,000 people crowd
+- [42:36.200] and they had snipers, they had like four or five snipers
+- [42:38.600] in buildings up high. And you're standing there
+- [42:41.220] and all of a sudden the guy on your left goes down,
+- [42:43.970] then somebody -- that's what happened with the woman protest.
+- [42:46.830] They had 200,000 women protesting a year ago,
+- [42:51.120] and everyone thought that was the end of Iran.
+- [42:54.100] And then all of a sudden, a woman dropped dead
+- [42:58.150] with a bullet right there, always right there.
+- [43:01.120] Then another woman dropped,
+- [43:02.480] and then the word started to spread
+- [43:05.010] and then there was panic and then they ran and, you know.
+- [43:08.370] I don't want that to happen.
+- [43:10.760] We don't need that. We don't need it.
+- [43:12.520] But the only reason they're not --
+- [43:14.260] they want to protest so badly, but they don't have weapons.
+- [43:16.460] Yeah.
+- [43:17.670] The Press: Thank you, Mr. President.
+- [43:18.900] Next week, you have a very important meeting
+- [43:20.390] with President Xi in Beijing.
+- [43:22.140] Secretary Bessent has said that a top priority on the agenda
+- [43:26.130] will be Iran.
+- [43:27.430] What do you hope to achieve with President Xi
+- [43:30.600] as it relates to Iran?
+- [43:31.820] The President: Well, I have a very good relationship
+- [43:33.400] with President Xi.
+- [43:35.760] I find him to be a tremendous guy
+- [43:39.390] and we get along well. And you see how we do;
+- [43:41.900] we're doing a lot of business with China
+- [43:43.330] and making a lot of money. We're making a lot of money;
+- [43:45.400] it's different than it used to be.
+- [43:48.680] But I'll be talking about it, that'll be one subject.
+- [43:50.660] But he's been very nice about this.
+- [43:52.720] You know, in all fairness, he gets like
+- [43:55.170] 60 percent of his oil from Hormuz and he's been --
+- [43:59.060] I think he's been very respectful.
+- [44:00.540] We haven't been challenged by China,
+- [44:02.650] they don't challenge us and he wouldn't do that.
+- [44:05.820] I don't think he'd do that because of me.
+- [44:08.020] But I think he's been very respectful and we've offered,
+- [44:12.910] if he wants to send the ships to the United States.
+- [44:14.940] I think one of the big things that's happened
+- [44:16.620] is I made a statement, send your ships to Texas,
+- [44:21.310] it's not that much further.
+- [44:22.820] Send your ships to Louisiana. Send your ships to Alaska.
+- [44:26.170] Alaska is actually very close to a lot of the Asian countries;
+- [44:30.980] people don't realize it. Japan is back and forth.
+- [44:33.780] It's like, it doesn't seem it, but it's a very short route,
+- [44:36.860] two days shorter than almost any other route.
+- [44:39.490] We're making tremendous, big deals with South Korea
+- [44:41.820] and with Japan. But I said, send your ships.
+- [44:45.030] All of a sudden, I don't know if you saw the graph today,
+- [44:47.420] and this is Space Force, which I created.
+- [44:49.850] Space Force has --
+- [44:52.400] they just sent out some photos of the ships that are lined up
+- [44:57.580] all the way down the ocean like it's a highway.
+- [45:01.920] It looks like the Long Island Expressway for ships,
+- [45:04.710] and they're all heading to Texas and Louisiana.
+- [45:06.890] We've made up this -- and that's why --
+- [45:08.980] when I decided that I have to do this
+- [45:11.450] for the good of the world, not just the United States.
+- [45:14.130] In a way, we would have been in less trouble
+- [45:16.330] than a lot of other places.
+- [45:17.810] Certainly, the Middle East would have been blown up;
+- [45:19.510] there wouldn't be a Middle East anymore.
+- [45:21.140] They would have controlled --
+- [45:22.380] they would have taken over the Middle East.
+- [45:24.340] Now they're trying to survive, and they won't be successful
+- [45:27.420] unless they make a deal.
+- [45:28.620] Oh, if they don't make a deal, they won't be successful.
+- [45:30.940] It'll go very quickly and methodically,
+- [45:33.470] believe me, it'll be very easy.
+- [45:35.130] But we have so many alternatives, it's amazing.
+- [45:39.790] And nobody knew this because, as an example,
+- [45:43.180] Japan got 90 percent of their oil,
+- [45:47.280] of most of their energy,
+- [45:48.690] but most of their oil from the Hormuz Strait.
+- [45:51.870] South Korea got 43 percent of it.
+- [45:53.710] By the way, their ship was shot at;
+- [45:54.990] they were not in the cavalcade of ships.
+- [45:58.620] They decided to go it alone,
+- [45:59.970] and their ship got the hell knocked out of it yesterday.
+- [46:02.960] But they didn't shoot the ships that were guarded by us,
+- [46:05.160] I'll tell you that.
+- [46:06.370] We knocked down a lot of missiles.
+- [46:07.770] So, what happens is that we have a situation
+- [46:11.700] where we have total control.
+- [46:13.670] As you know, the blockade has been amazing.
+- [46:15.780] It's like a piece of steel;
+- [46:17.300] nobody's going to challenge the blockade,
+- [46:19.800] and I think it's working out very well.
+- [46:21.660] We're going to see. I can say this --
+- [46:23.830] Iran wants to make a deal. What I don't like about Iran
+- [46:28.450] is they'll talk to me with such great respect,
+- [46:31.560] and then they'll go on television,
+- [46:33.260] they'll say, we did not speak to the president.
+- [46:35.930] We did not -- and I just spoke to them.
+- [46:38.020] We did not speak to the president.
+- [46:40.840] So, they play games.
+- [46:43.040] But let me just tell you, they want to make a deal.
+- [46:45.500] And who wouldn't when your military is totally gone?
+- [46:49.480] We could do anything we want to them.
+- [46:51.780] Who wouldn't? Please.
+- [46:53.110] The Press: On the filibuster, Mr. President,
+- [46:54.740] you posted a lot about wanting to eliminate the filibuster.
+- [46:57.900] It hasn't happened.
+- [46:59.130] Are you disappointed in Leader Thune?
+- [47:00.440] The President: Yeah, no. I'm disappointed.
+- [47:02.020] I like John a lot but he has a couple of Republicans
+- [47:06.690] that are foolish people.
+- [47:08.480] A couple of them I like, a couple of them
+- [47:10.680] I can't stand actually, if you want to know the truth.
+- [47:13.200] Although I do -- I am at, according to CNN,
+- [47:16.110] 100 percent approval within the Republican Party.
+- [47:20.230] That's almost -- that's better than your record.
+- [47:23.470] I'm at 100 percent approval. Did you see the CNN poll?
+- [47:26.650] Nobody talks about it. CNN --
+- [47:28.460] I think the people that did that poll probably got fired.
+- [47:31.580] But within the Republican Party and MAGA,
+- [47:34.300] which is basically 100 percent of the party,
+- [47:36.270] I think, but 100 percent.
+- [47:38.570] No, I think that you're going to see
+- [47:41.220] some very interesting things.
+- [47:42.520] The filibuster, if you had it,
+- [47:44.230] we should have the SAVE America Act,
+- [47:46.400] we should have voter identification, voter ID,
+- [47:49.880] we should have proof of citizenship,
+- [47:52.440] we should have mail in voting for the military
+- [47:54.450] and people that need it, but not for everybody.
+- [47:56.320] Because any time you have mail in voting,
+- [47:59.080] they're going to cheat and they cheat like dogs
+- [48:01.970] and they have to cheat.
+- [48:03.290] You know, in all fairness to the Democrats,
+- [48:05.570] when you have men in women's sports,
+- [48:08.080] when you have open borders,
+- [48:10.060] when you have transgender mutilation --
+- [48:13.720] don't listen to this, kids --
+- [48:15.690] of your children, of your children,
+- [48:17.630] transgender mutilation of your children for everyone.
+- [48:21.930] When you have policies like that, you have to cheat.
+- [48:25.520] It's the only way they can win.
+- [48:27.360] And we shouldn't allow them to cheat.
+- [48:29.610] And we should terminate the filibuster because,
+- [48:32.100] if they get the chance,
+- [48:33.380] they'll do it in the first hour back.
+- [48:35.590] The Press: Mr. President, thank you.
+- [48:37.120] Iran is seeing 50 percent inflation;
+- [48:38.800] they've moved money from their sovereign wealth --
+- [48:40.580] The President: Their economy is crashing.
+- [48:42.030] The Press: Would you allow their financial system then to fail?
+- [48:44.520] The President: Well, I guess so,
+- [48:45.720] because we're making it fail, right?
+- [48:47.070] The Press: Is that what it takes?
+- [48:48.360] The President: I hope it fails.
+- [48:49.600] The Press: Is that what it takes?
+- [48:50.870] The President: You know why? Because I want to win.
+- [48:52.160] If it fails -- well, it's -- no it takes getting pounded on
+- [48:55.260] by the military, I think more.
+- [48:57.270] But in addition to that, their -- it is failing.
+- [49:01.190] You know, we have sanctions on them, tremendous sanctions.
+- [49:04.130] Scott Bessent has done a great job.
+- [49:06.200] We have sanctions that nobody's ever seen before.
+- [49:08.780] No, they're failing and their currency is worthless,
+- [49:12.770] their inflation is probably 150 percent --
+- [49:15.930] the real number is 150 percent.
+- [49:20.280] They aren't paying their soldiers.
+- [49:22.330] They can't pay their soldiers; the money is worthless.
+- [49:25.550] No, they should do the smart thing.
+- [49:27.840] They should do the smart thing because we don't want to go
+- [49:31.600] in and kill people, we really don't.
+- [49:33.010] I don't want to. I don't want to, it's too tough.
+- [49:36.070] Great people, I know the people.
+- [49:37.390] I have so many Iranian friends from New York
+- [49:39.590] and from other places over the years.
+- [49:42.240] The great people, I don't want to kill those people.
+- [49:45.570] The Press: The shooting incident yesterday --
+- [49:47.810] is it possible that you can talk about that?
+- [49:49.320] The President: (Inaudible) finish it.
+- [49:50.540] The Press: Gas prices in the United States
+- [49:51.740] are $1.48 a gallon? You said they would come back down.
+- [49:56.480] The President: They'll drop lower than they were before.
+- [49:58.170] The Press: Will Project Freedom
+- [49:59.380] escorting those ships make that happen?
+- [50:01.320] The President: Well, it will, because --
+- [50:03.210] so, people don't realize some of these tankers
+- [50:05.270] hold 2 million barrels. One of them holds 4 million,
+- [50:10.210] I think it's the largest one in the world.
+- [50:11.790] That sucker is big. I've never seen anything like it,
+- [50:14.870] a ship that's bigger than aircraft carriers.
+- [50:17.610] And, yeah, it has a big impact, it's so much.
+- [50:21.960] You know, there are like 400 ships in there.
+- [50:23.980] 400. That in itself --
+- [50:26.330] now, the best is when it ends and just neutralizes.
+- [50:29.750] But what's happening is people are learning
+- [50:31.520] to buy oil from the United States.
+- [50:34.310] I mean, they're making the trip and they're safer,
+- [50:37.120] probably it's a better product, too, by the way.
+- [50:39.650] But they have -- they're learning to buy,
+- [50:43.290] they're changing their habits.
+- [50:44.760] So, when I did this,
+- [50:46.010] I thought the market would go down 25 percent
+- [50:48.490] and I thought that was a great deal if it did.
+- [50:50.920] If it went down 25 percent, I was satisfied.
+- [50:53.230] I said, because we cannot let these people
+- [50:55.650] have a nuclear weapon, they'll use it, we can't.
+- [50:58.550] I also thought oil would go up to 200, 250, maybe 300,
+- [51:02.600] and I knew it would be short term,
+- [51:04.330] but I thought it would go up. I look today, it's like at 102,
+- [51:10.030] and that's a very small price to pay
+- [51:13.480] for getting rid of a nuclear weapon from people
+- [51:17.320] that are really mentally deranged.
+- [51:20.170] Yeah.
+- [51:21.970] The world is lucky.
+- [51:23.250] By the way, other presidents should have done this.
+- [51:26.600] 47 years they've been toying with these stupid people.
+- [51:31.800] In many cases, stupid people.
+- [51:34.240] This should have been done by Obama.
+- [51:35.900] He went the other way. He was giving them cash.
+- [51:38.030] He sent planeloads -- a Boeing 757,
+- [51:42.170] took the seats out and put green cash,
+- [51:46.090] $1.7 billion, in the plane.
+- [51:49.060] Every bank in Virginia,
+- [51:50.710] DC and Maryland was stripped of their cash.
+- [51:54.440] They took out all the cash from the banks,
+- [51:56.570] they put it into a plane, a Boeing 757, packed with cash,
+- [52:02.290] and they flew it to Iran. And they let these guys just --
+- [52:04.830] I don't know what the hell they did with it,
+- [52:06.990] but they took it and then gave them billions
+- [52:09.630] and billions of dollars
+- [52:11.830] and bribed them basically to be friends.
+- [52:14.540] And after giving them tens of billions of dollars,
+- [52:17.710] they screwed Obama, OK? That's not the way we play.
+- [52:23.370] No, we do it the old-fashioned way.
+- [52:26.020] And they should wave -- they're very proud,
+- [52:30.140] maybe you won't see a white flag,
+- [52:32.620] but essentially that's already what they are.
+- [52:35.130] They need -- they should wave the white flag,
+- [52:38.150] the white flag of surrender.
+- [52:40.730] In hockey, they say uncle, right?
+- [52:45.500] When are they going to when are they going to cry uncle?
+- [52:48.690] But -- and they have another expression --
+- [52:52.530] if this were a fight, they would stop it.
+- [52:55.570] But we have to go out and we have to do it
+- [52:57.720] and it's very sad --
+- [52:59.790] it's very sad to see, even shooting those boats.
+- [53:02.560] They've got three or four guys.
+- [53:04.630] They got a little machine gun in front.
+- [53:06.790] They're shooting at one of our ships that's meant for it.
+- [53:10.850] It bounces, they don't even know they're being shot at.
+- [53:14.130] And then they take it out
+- [53:15.420] with an Apache helicopter in about two seconds.
+- [53:17.690] They go Apache, Apache, ship, northwest 10 degrees,
+- [53:22.580] turns around -- boom! I don't like that.
+- [53:25.320] You know, you lose people, all these people,
+- [53:27.120] it's so unnecessary -- it's so unnecessary.
+- [53:30.240] One thing we have, we have the greatest military in the world.
+- [53:32.430] I built it because I built it in my first term.
+- [53:35.000] I didn't think I'd be using it
+- [53:36.710] at least so much in my second term.
+- [53:39.870] But we have the greatest military,
+- [53:41.220] the best equipment in the world.
+- [53:43.730] We had 111 missiles shot at one of our assets,
+- [53:47.750] one of the aircraft carriers,
+- [53:49.860] a week and a half ago, two weeks ago.
+- [53:52.850] Think of this, 111 sophisticated missiles
+- [53:56.520] shot at one of our aircraft carriers.
+- [53:59.920] And every single one of those missiles
+- [54:02.170] was shot down with no problem whatsoever.
+- [54:06.160] If you would have said that 10 years ago, five years ago,
+- [54:08.460] it would have been an impossibility.
+- [54:09.750] You would have had to take those shots.
+- [54:11.780] Every single missile was laying in the water, far away --
+- [54:14.690] I mean, not even, they weren't even upset.
+- [54:17.490] And they're the coolest people, if you ever see them, you know,
+- [54:21.310] Pete, when they do the missile, when they do -- right?
+- [54:24.010] They say missile coming, missile coming
+- [54:25.780] and these guys go, it's like, almost like, huh?
+- [54:30.930] You know, they're very smart.
+- [54:32.320] These are extremely smart people.
+- [54:35.020] They go to very good schools.
+- [54:37.440] But they shut down -- who would think that, Gary?
+- [54:40.950] They're like a needle in a haystack.
+- [54:42.970] 111 missiles shot,
+- [54:45.810] 111 missiles were knocked down into the water,
+- [54:50.680] didn't even get close to the aircraft carrier.
+- [54:53.750] No, there's -- nobody has a military like us.
+- [54:56.140] OK, a couple more, and then I want to go out
+- [54:57.960] and watch these great athletes.
+- [54:59.480] I'm not talking about him and him and him,
+- [55:01.520] I'm talking about these kids.
+- [55:03.030] Because I think you're going to be far better
+- [55:05.040] as an athlete than anybody behind you,
+- [55:07.510] OK, do you agree?
+- [55:08.770] I think you're going to be a better athlete.
+- [55:10.630] What sport do you play?
+- [55:13.280] Unidentified: I play football.
+- [55:14.770] The President: Oh. Unidentified: There you go.
+- [55:16.750] The President: Do you think you're going to be better
+- [55:18.220] than him? You'll be faster.
+- [55:21.610] You're going to be so much faster than him,
+- [55:23.460] he's going to be like lightning.
+- [55:24.920] He was known for his speed, by the way.
+- [55:27.320] I don't know, I think pretty good.
+- [55:28.660] What sport do you play?
+- [55:30.170] Unidentified: I don't play a sport
+- [55:31.540] because my mom didn't sign me up,
+- [55:34.130] but I'm trying to play gymnastics.
+- [55:37.150] The President: Gymnastics?
+- [55:39.860] That's a good sport. What do you play?
+- [55:42.220] Unidentified: I do dance, but I also do volleyball.
+- [55:44.730] The President: Oh, nice.
+- [55:46.180] Nice and tall to be a volleyball player.
+- [55:47.900] What about you?
+- [55:49.200] Look at this guy, he's a big guy.
+- [55:50.470] Unidentified: Me?
+- [55:51.730] I'm doing football right now and next year
+- [55:53.450] I'm going to be trying to do powerlifting.
+- [55:55.340] The President: Oh, wow.
+- [55:57.630] Unidentified: That's awesome.
+- [55:59.010] The President: And you'll never compete against women
+- [56:00.520] in powerlifting?
+- [56:02.250] Did you see that? They had a man powerlifter
+- [56:04.330] and he decided to go the opposite direction.
+- [56:08.290] He took a record that stood for 18 years,
+- [56:12.870] he beat it by 119 pounds, OK?
+- [56:17.580] They put the little quarter of an ounce,
+- [56:19.520] quarter of an ounce, 18 years it stood.
+- [56:23.000] This guy came -- he was a failed powerlifter,
+- [56:25.600] but he went on the other side
+- [56:26.840] and he decided that he wanted to go into women's sports.
+- [56:29.590] And he broke the record by 118 pounds.
+- [56:32.790] Think that's fair?
+- [56:34.220] I don't think we'll have to worry about you.
+- [56:36.800] You're going to do good. Are you a strong person?
+- [56:38.420] Unidentified: Yes, sir.
+- [56:39.640] The President: Good. Do you think you can take me
+- [56:41.230] in a fight?
+- [56:47.170] That would be embarrassing, wouldn't it?
+- [56:49.660] How about you? What sport do you play?
+- [56:51.140] Unidentified: I play volleyball, and in the summer
+- [56:53.130] I'm trying to get into soccer.
+- [56:55.390] The President: Wow, wow.
+- [56:57.170] And with your height, do you smash the ball, the volleyball.
+- [57:00.810] Do you get up high, can you jump high?
+- [57:02.930] Unidentified: Not very.
+- [57:05.040] The President: Soccer might be better.
+- [57:06.880] I don't want to --
+- [57:08.710] I'm just looking, I think she'd be a great soccer player.
+- [57:12.000] That's good. Good luck, OK? What about you?
+- [57:14.650] Unidentified: Hockey and golf.
+- [57:15.940] The President: Well, and you know that guy?
+- [57:17.860] Unidentified: Yes.
+- [57:19.110] The President: You know that guy.
+- [57:20.360] You think you could be as good as him someday?
+- [57:22.440] Not easy -- won't be. Better. And you play golf.
+- [57:26.490] Gary Player: This young man today,
+- [57:28.340] of all the young men I've met,
+- [57:30.590] he had the best manners possible.
+- [57:34.250] He was a smiler. I said, how are you.
+- [57:36.880] He looked me in the eye and said, fine,
+- [57:38.890] thank you, sir, how are you? Not just good, it's tremendous.
+- [57:42.900] The President: Are you a good golfer?
+- [57:44.220] Unidentified: Yes.
+- [57:45.430] The President: So, what's your handicap?
+- [57:46.690] Do you have a handicap?
+- [57:47.910] Unidentified: 15
+- [57:49.340] The President: So, this man is 90 years old,
+- [57:53.030] do you think he could beat him? I'm betting on Gary.
+- [57:56.620] Gary Player: I'm betting you will, you will, you will.
+- [57:58.370] The President: Hey, you know what else?
+- [57:59.640] And he doesn't choke. That's a big thing.
+- [58:01.580] You know, a lot of guys can play,
+- [58:03.040] but the flag goes up and bad things, bad things happen.
+- [58:06.790] And I think being in good shape helps you
+- [58:08.340] in that respect, too, Gary.
+- [58:09.560] Gary Player: You see, if it wasn't a cherished table,
+- [58:11.550] this is very historic, I could get on this table
+- [58:14.010] and do 50 push-ups like that. Most people can't do that
+- [58:17.500] even when they're going in the army, right?
+- [58:19.270] So, you've got to keep in shape.
+- [58:20.660] Unidentified: Yes, sir.
+- [58:21.890] Gary Player: And you tell everybody how you love
+- [58:23.240] this country, OK? Good.
+- [58:26.590] The President: Good way to end. So, we're going to go out,
+- [58:28.580] we're going to say hello to the athletes.
+- [58:30.750] We have young and great athletes.
+- [58:32.200] We also have some big superstars out there waiting for us.
+- [58:35.570] And thank you very much. And Bryson, thank you very much.
+- [58:38.450] You really took this and brought it to a level.
+- [58:40.790] It's true, Biden and President Obama
+- [58:44.020] decided that it wasn't important, and they're so wrong.
+- [58:47.600] Thank you very much, everybody.
+- [59:06.600] ♪ (event music playing in background) ♪

@@ -1,0 +1,949 @@
+<!-- source: https://www.youtube.com/watch?v=mpKpfdZitCM -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: mpKpfdZitCM -->
+<!-- date_published: 2026-04-17T00:53:23+00:00 -->
+<!-- date_accessed: 2026-06-02T02:35:05.163378+00:00 -->
+
+# Transcript: President Trump Delivers Remarks on Tax Week in Las Vegas, Nevada
+
+- [00:03.560] Announcer: Ladies and gentlemen, the 45th and 47th President
+- [00:06.700] of the United States, Donald J. Trump.
+- [00:09.920] ♪ ("God Bless the USA" by Lee ♪ Greenwood) ♪
+- [02:31.825] (applause)
+- [02:34.880] The President: Thank you, Lee.
+- [02:37.760] Isn't he great? That's such a great opening.
+- [02:41.490] We love you, too. We got a lot of people here.
+- [02:45.950] We got a lot of great people here.
+- [02:47.340] Thank you very much, and thank you for allowing me
+- [02:49.850] to win this state by so much. It was --
+- [02:55.870] I wouldn't say the competition was the toughest,
+- [02:58.960] but it was competition nevertheless.
+- [03:01.310] And we appreciate it very much.
+- [03:02.940] And we're going to be talking about no tax on tips.
+- [03:05.750] We're also talking about the fact
+- [03:07.070] that everybody is looking at their tax return.
+- [03:10.250] They're getting tremendous amounts of money back,
+- [03:12.350] much more than they thought.
+- [03:13.690] So -- but it's great to be back in a place I love, Las Vegas.
+- [03:19.510] Did a lot of business here. We had great success here.
+- [03:22.710] Before politics, it was fantastic.
+- [03:25.230] And this is the birthplace of a little idea
+- [03:28.370] known as no tax on tips. This is the birthplace.
+- [03:35.870] A young waitress came up to me during dinner, and she said,
+- [03:38.730] "Sir, we should have no tax on tips."
+- [03:42.540] I said, "What? Say it again." "We should have no tax on tips."
+- [03:46.800] I said, "That's the greatest thing I've ever heard."
+- [03:49.600] I walked outside to the fake news media.
+- [03:51.800] I say, "Ladies and gentlemen, there will be no tax on tips."
+- [03:55.110] That was it. It was not an expensive consultant.
+- [04:00.980] Las Vegas is the home of the largest concentration
+- [04:03.940] of tipped workers anywhere in the country,
+- [04:06.740] anywhere in the world, actually.
+- [04:08.730] And thanks to our tax cuts this week,
+- [04:10.570] thousands of Nevada waiters,
+- [04:12.930] waitresses, casino dealers, bartenders,
+- [04:15.980] bellmen, barbers, caddies -- oh, I love those caddies.
+- [04:19.250] They're very good if you have the right caddy.
+- [04:21.840] And valets received the biggest tax refunds
+- [04:25.110] of their entire lives. And you see it.
+- [04:27.410] And I just want to say, you're welcome.
+- [04:29.490] You're welcome.
+- [04:32.720] No, it's all over. There's so many --
+- [04:34.700] even in the fake news, where they have the --
+- [04:37.060] you know, these different --
+- [04:38.420] you always want to watch the enemy a little bit.
+- [04:40.130] You don't want to watch too much.
+- [04:41.350] You want to find out where they're coming from.
+- [04:42.840] And they come from dark places.
+- [04:44.980] But even there, people are saying,
+- [04:46.820] "Wow, this is really amazing."
+- [04:48.590] It's a great, big, beautiful bill that came in.
+- [04:51.620] And, you know, we should go with the great,
+- [04:53.320] big, beautiful tax cut bill,
+- [04:54.750] because that's really what it is.
+- [04:56.440] Other things also, but regulations.
+- [04:58.550] But it's -- really, the tax cuts are enormous.
+- [05:01.830] So it's just such an honor.
+- [05:04.120] I want to thank Secretary of Treasury Scott Bessent
+- [05:06.620] for joining us.
+- [05:11.330] You know, he's become a big star.
+- [05:13.430] He walks down the street and the people are screaming,
+- [05:15.870] "Scott, Scott, can we have your autograph?"
+- [05:19.060] I mean, what I did, I created a monster.
+- [05:21.410] He's a monster now. That's terrible.
+- [05:23.220] But he's doing a great job.
+- [05:25.090] Along with Senator -- oh, look at Tommy.
+- [05:27.460] Where's Tommy Tuberville? Where's Tommy Tuberville?
+- [05:30.540] Tommy, the great Tommy Tuberville,
+- [05:33.070] senator from Alabama. Thank you, Tommy.
+- [05:36.100] Nevada Lieutenant Governor Stavros Anthony.
+- [05:38.820] Thank you, Stavros.
+- [05:42.580] Clark County Commissioner April Becker.
+- [05:45.690] April. Thank you, April.
+- [05:48.510] Thank you very much.
+- [05:50.120] State Senator Carrie Buck. Thank you. Thank you, Carrie.
+- [05:58.470] Assemblywoman Lisa Cole. Lisa, thank you.
+- [06:03.420] We have a lot of power here today, huh?
+- [06:05.230] This is big stuff. And many others.
+- [06:07.040] We have a lot of people out there.
+- [06:08.520] I better not name them all because, you know,
+- [06:10.400] we're in all these --
+- [06:11.620] look at all the television back there.
+- [06:13.030] Isn't that terrible? So much.
+- [06:16.250] Last summer, thanks to our Republican majorities
+- [06:18.530] in the House and Senate,
+- [06:19.740] I signed the great, big, beautiful bill --
+- [06:22.110] the largest tax cuts and many other things
+- [06:26.180] for working families in the history of our country.
+- [06:28.400] It was actually -- we added about 19 different bills.
+- [06:32.370] We were going to do one at a time,
+- [06:33.700] or maybe two or three,
+- [06:34.900] but I said, let's just do more at one time.
+- [06:37.430] And thank goodness we did because the Republicans
+- [06:39.810] are out there fighting hard for a lot of good things,
+- [06:43.720] like no men in women's sports, like no open borders.
+- [06:49.690] You know, we have the safest border we've ever had.
+- [06:52.350] We have the safest communities. We have the best records.
+- [06:55.500] One thing that's always tough to say,
+- [06:56.990] because it sounds sort of weird,
+- [06:58.380] but we have the least number of murders
+- [07:01.280] that we've had in 125 years.
+- [07:03.850] All the way back to 1900. It doesn't sound nice, you know.
+- [07:07.940] There's no nice way of saying that.
+- [07:09.380] But it's back to 1900.
+- [07:12.310] But every single American at every income level
+- [07:15.190] has more money in their pockets this week
+- [07:17.180] because of the Republican tax policies.
+- [07:20.370] And we've got to win the midterms.
+- [07:22.160] If we don't, these policies are going to be taken away from you.
+- [07:24.590] The taxes are going to go through the roof.
+- [07:26.550] Look at these -- look at the states, these blue states,
+- [07:30.060] what is going on there with taxes.
+- [07:32.730] Look at what happened in Virginia.
+- [07:34.070] A person -- we had a good governor there,
+- [07:35.930] and somebody got elected. She's gone crazy.
+- [07:39.520] She's gone totally crazy. Look at New York.
+- [07:41.800] I mean, he's a nice guy. Calls me all the time, says hi.
+- [07:46.800] But his policies are no good. He's chasing people out
+- [07:50.230] and causing a lot of harm to everybody.
+- [07:52.400] I mean, everybody's taxes are going through the roof.
+- [07:55.310] After four long years of brutal inflation
+- [07:57.530] under Biden and congressional Democrats,
+- [07:59.880] you deserve every single penny that you're getting now
+- [08:03.160] because you had to suffer. You suffered.
+- [08:05.030] We had the highest inflation in the history
+- [08:07.120] of our country under Biden. Sleepy Joe.
+- [08:10.250] He's the worst president we've ever had by far.
+- [08:12.960] The average refund this season is over $4,000.
+- [08:19.430] And here in Las Vegas,
+- [08:20.680] many workers have reported refunds of $5,000,
+- [08:23.690] $6,000, $7,000, $8,000 or more, and they've never had anything.
+- [08:27.980] It's all from no tax on tips alone.
+- [08:35.790] And then don't forget, you have no tax
+- [08:37.680] on Social Security for our seniors.
+- [08:42.600] A lot of seniors out there. And you have no tax on overtime.
+- [08:46.690] You know, this state covers them all.
+- [08:48.330] You have the seniors. You have the overtime.
+- [08:50.410] But you have no tax on overtime. You have no tax on tips.
+- [08:53.940] And you have no tax -- think of it -- Social Security.
+- [08:56.650] So those three things.
+- [08:57.910] And, you know, one other thing that we have no tax about.
+- [09:00.700] But we've done a lot.
+- [09:02.380] In the bill, if you have a small business
+- [09:04.890] or if you have a farm, you have no inheritance tax.
+- [09:08.360] You have no death tax. It's a big thing.
+- [09:10.200] You know, people go out, and they would borrow money.
+- [09:14.320] Especially the farmers.
+- [09:15.530] I mean, they go out, and they leave their farm,
+- [09:17.900] and the farmer is valuable, but not a lot of cash.
+- [09:20.750] They leave the farm.
+- [09:28.210] The parents leave the farm to the children.
+- [09:29.950] The children go to the bank. They borrow a lot of money.
+- [09:32.510] They mortgage up the farm, and they end up losing the farm.
+- [09:35.110] They go bankrupt. They commit suicide in many.
+- [09:37.980] It's a horrible thing that went on.
+- [09:40.000] You have no death taxes now. You have no inheritance taxes.
+- [09:48.390] And seeing his take-home pay skyrocket,
+- [09:51.770] a bellman at the nearby Paris Hotel
+- [09:53.990] reportedly said words no one has ever uttered before.
+- [09:58.710] "God bless the IRS." Can you believe that?
+- [10:02.490] I don't know. I've never heard that before.
+- [10:09.200] We have to patent that. We have to do something.
+- [10:11.410] Earlier this week, at the White House,
+- [10:13.170] I met a wonderful woman named Sharon Simmons,
+- [10:15.830] a grandmother driving DoorDash
+- [10:18.450] to help support her husband's cancer treatment.
+- [10:20.640] She's got serious cancer. She's going to be okay, I think.
+- [10:24.220] Sharon delivered McDonald's to the Oval Office.
+- [10:26.780] It was a little bit of a -- you know,
+- [10:28.370] I mean, to be honest, it was a little tacky.
+- [10:32.200] You know, they come up with these crazy ideas,
+- [10:34.130] like McDonald's --
+- [10:35.410] although that was the biggest ever on Google,
+- [10:37.930] they say, number one ever -- and the garbage truck.
+- [10:40.700] I mean, we do these things in politics.
+- [10:43.550] They're a little embarrassing.
+- [10:45.980] They're a little tiny embarrassing,
+- [10:47.660] but we do them, and you win by landslides, you know.
+- [10:51.170] So we've got to keep doing them.
+- [10:52.560] No, we've got to knock on the Oval Office door.
+- [10:54.450] This has not happened.
+- [10:55.660] That's the first, maybe, in the history of the Oval Office.
+- [10:57.920] It was a very beautiful woman
+- [11:00.160] standing there with two big bags of McDonald's hamburgers.
+- [11:03.860] And I say, is this really believable?
+- [11:06.420] But the point of it was, she made $11,000
+- [11:11.470] that she had no idea was coming. And it was really great.
+- [11:15.310] It turned out to be really great.
+- [11:16.660] So, as part of our tax cuts,
+- [11:20.370] we also included no tax on overtime.
+- [11:23.010] And, you know, one of the things, though,
+- [11:25.480] that I think is so great --
+- [11:27.700] we have something that's never happened before.
+- [11:30.230] It was an idea that I thought up.
+- [11:31.770] I went to Scott. I went to some of our people.
+- [11:34.500] So when rich people do something,
+- [11:37.170] they always look for deductions, right?
+- [11:38.980] It's always deductions. They have deductions and everything.
+- [11:42.560] And middle-class and middle-income people,
+- [11:46.160] poorer people, they don't get deductions.
+- [11:47.550] They don't think in terms of deductions.
+- [11:49.090] So I said, you buy a car that's American-made,
+- [11:52.240] give a deduction on the interest you pay on the loan
+- [11:56.180] that you used to buy the car.
+- [11:58.170] And everyone said, oh, that's good.
+- [11:59.490] It sounds simple, but it really --
+- [12:01.120] it's never been done before. And you have that too.
+- [12:03.520] So when you go out and you take a loan on your car,
+- [12:06.630] you deduct the interest. It's a big deal for people.
+- [12:09.720] Never happened before.
+- [12:11.200] You would think it was sort of basic.
+- [12:13.190] I thought it was so brilliant when I thought it.
+- [12:15.540] But the truth is, it never happened before.
+- [12:18.050] And nobody mentions it, but it's a very big factor,
+- [12:21.270] and it's having a huge impact on our car companies,
+- [12:24.290] which are expanding like never before.
+- [12:26.850] We're selling more cars now.
+- [12:28.580] A lot of it has to do with tariffs.
+- [12:30.150] You pay no tariffs if you come here.
+- [12:32.320] If you don't come here, you pay a lot of tariffs,
+- [12:34.260] and we're raising those tariffs very soon.
+- [12:36.630] Not on you. It's on people from the outside
+- [12:39.380] that don't build their plants here.
+- [12:40.860] We have now hundreds of billions --
+- [12:43.160] we have actually $18 trillion
+- [12:46.120] being invested in the United States,
+- [12:48.190] because of a lot of reasons, but -- because of tariffs.
+- [12:54.870] Because of tariffs.
+- [12:56.080] If they sell their product into our country,
+- [12:58.480] they have to pay tariffs.
+- [12:59.680] If they make that same product here, they don't.
+- [13:02.160] So they're coming in -- I'll tell you,
+- [13:03.480] pharmaceutical companies are coming in
+- [13:05.860] at levels that nobody's ever seen.
+- [13:07.980] We're having our drugs made here.
+- [13:09.320] Our prescription drugs are being made here,
+- [13:11.860] which is something that's very important.
+- [13:14.610] So our tax cut for overtime workers
+- [13:16.750] have already been claimed
+- [13:18.390] by more than 26 million Americans,
+- [13:20.690] and America has finally had the President --
+- [13:24.100] the kind of President who believes in them.
+- [13:26.290] I believe in rewarding you for the great work you've done,
+- [13:29.460] the great job you've done,
+- [13:31.010] and for having to suffer for four years of embarrassment.
+- [13:35.040] Our country was an embarrassment.
+- [13:38.570] Our country -- a year ago,
+- [13:40.740] our country was an embarrassment.
+- [13:42.680] And all over the world, they laughed at us.
+- [13:45.670] And they don't laugh anymore. They are not laughing.
+- [13:48.130] They're not laughing anymore.
+- [13:49.680] I don't think anybody -- I don't want to be a wise guy.
+- [13:55.350] I don't want to speak too soon. But we do very well.
+- [13:58.590] You noticed that. We're doing very well.
+- [14:00.470] And I will say the war in Iran is going along swimmingly.
+- [14:05.240] We can do whatever we want.
+- [14:09.220] And it should be ending pretty soon.
+- [14:11.880] It was perfect. I mean, it's perfect.
+- [14:14.990] It was the power we have. Our military --
+- [14:17.390] we have the most powerful military anywhere in the world.
+- [14:19.750] I built it four years -- my first four years.
+- [14:24.710] And we're still building it.
+- [14:26.160] We're building it. We have the best military.
+- [14:27.890] We have the best equipment in the world,
+- [14:29.530] the best rockets and anti-rockets.
+- [14:32.880] You know, if you look at the way we shoot --
+- [14:36.330] they had -- we had 111 rockets shot at one of our ships.
+- [14:41.160] I won't name the ship, but it was a beauty.
+- [14:43.660] And out of the 111 rockets shot, all 111 rockets --
+- [14:48.420] and these things move at about 3,000 miles an hour.
+- [14:50.330] You know, it's not like --
+- [14:51.550] you have plenty of time to think about it.
+- [14:53.910] Every single one of them, 111, were all shot down.
+- [14:57.770] Think of that. Shot down.
+- [15:01.140] They're laying at the bottom of the sea.
+- [15:03.440] So needless to say,
+- [15:04.660] it was a ship that they were shooting at.
+- [15:06.950] But we've had it. We had one -- 101. We had 101.
+- [15:10.310] And then, two days later, we had 111.
+- [15:12.150] Every one of them was hit.
+- [15:13.920] That's -- the equipment that we have is incredible.
+- [15:16.600] There's never been anything like it.
+- [15:18.700] So in addition to no tax on Social Security,
+- [15:22.100] over 51 million seniors now pay. Seniors are loving me.
+- [15:28.900] And I love them. Of course, I'm not a senior,
+- [15:34.660] so -- you know, I cater to the seniors.
+- [15:37.920] But I don't happen to be a senior myself.
+- [15:39.680] Thank you very much.
+- [15:41.410] Over 51 million seniors now pay zero federal tax
+- [15:44.680] on Social Security income -- 51 million.
+- [15:49.920] And they never saw that happening.
+- [15:52.570] And when I went to him and I said,
+- [15:53.940] how much would it cost for about 50 to 60 million seniors
+- [15:57.520] not to pay tax, he said, "Sir, are you kidding?"
+- [16:01.370] This was Scott. They said, "Let's do it. Go ahead."
+- [16:04.020] And you know, it's happened. The economy is doing so well.
+- [16:06.250] Anyway, we had to do a little journey down to Iran.
+- [16:10.590] And I didn't want to do that,
+- [16:12.410] but we had to because we can't let them have a nuclear weapon.
+- [16:15.450] Can't let them have a nuclear weapon.
+- [16:18.900] And you know, we just hit 50,000 on the --
+- [16:23.110] I don't know if you people know what that means.
+- [16:25.360] Fifty thousand on the Dow is unthinkable.
+- [16:27.840] They said at the end of his fourth year, maybe,
+- [16:30.610] but more likely fifth or sixth year.
+- [16:33.510] My fifth or sixth year. That sounds good, too.
+- [16:36.910] Remember, you know, the hat says "four more years."
+- [16:40.200] It drives the Democrats crazy. It drives them.
+- [16:44.110] Four more years. Four more years.
+- [16:48.240] I have to laugh at that one. They go crazy.
+- [16:53.700] What a bunch of lunatics they are.
+- [16:57.280] You know, we want to get along, and we're bipartisan,
+- [16:59.690] but some -- after a while, you say,
+- [17:01.630] these people, they're just -- you know,
+- [17:02.960] they don't want to pay our ICE agents.
+- [17:05.010] They don't want to pay our security people.
+- [17:07.070] They don't want to take care of our border.
+- [17:09.230] They want to have open borders for everybody.
+- [17:11.180] They want to have men playing in women's sports.
+- [17:14.350] Think of it. Men playing in women's sports.
+- [17:16.120] It's got to be a 95-to-5. Maybe it's a 99-to-1 issue.
+- [17:19.660] And they still -- I saw a guy today on television,
+- [17:22.070] a Democrat that I know,
+- [17:23.910] he's trying to justify men playing in women's sports.
+- [17:26.450] He's trying to justify open borders.
+- [17:29.800] No, we don't -- we can't let them back in.
+- [17:31.490] They'll destroy -- they'll destroy the country.
+- [17:33.710] They'll destroy our country.
+- [17:35.390] But millions of retirees like those here in Nevada --
+- [17:38.830] and, you know, it's a very important word, Nevada.
+- [17:42.330] Don't ever say it the other way.
+- [17:43.850] I'm not going to say it because they'll say I said --
+- [17:46.330] I won't say it the other way because they'll put it --
+- [17:48.450] he said, you lose the whole state.
+- [17:50.690] Yeah, I don't know. It sounds pretty good the other way,
+- [17:53.270] to be honest with you.
+- [17:54.550] Some people -- but Nevada is beautiful.
+- [17:58.650] And seeing an average deduction over $7,500 this year,
+- [18:03.160] which is incredible.
+- [18:04.420] The great, big, beautiful bill is filled with tax cuts
+- [18:06.730] Americans are only just beginning to discover.
+- [18:10.120] So the tax cuts turned out to be larger than anybody thought.
+- [18:13.120] Even us. I mean, we didn't think it was going to be as much.
+- [18:15.630] But people are getting much more.
+- [18:17.300] And it's come from that.
+- [18:19.050] And the Democrats don't know what to do
+- [18:20.950] because they used to ridicule it.
+- [18:22.540] You know, the great, big, beautiful bill.
+- [18:24.770] And now they're saying, don't mention the words.
+- [18:26.680] Just don't mention.
+- [18:27.920] Don't talk about it because it's been great.
+- [18:30.320] But we got to keep it. We have to win the midterms.
+- [18:32.760] We virtually eliminated the so-called -- so many taxes.
+- [18:36.100] We have, like, 19 different taxes
+- [18:38.180] in all different forms that we eliminated.
+- [18:41.690] We dramatically expanded a thing called school choice,
+- [18:46.060] which is a big deal. Which is a big deal.
+- [18:50.560] We made homeschool expenditures to homeschoolers.
+- [18:53.690] Do we have any homeschoolers here? Right?
+- [18:55.870] Very good. Homeschool expenditures, tax deductible.
+- [19:01.010] We created the brand-new Trump accounts with Michael
+- [19:05.250] and Susan Dell. The Dell family. They're great.
+- [19:10.220] What a great family. But he put up $6,250,000,000.
+- [19:15.640] Namely, he did a good job in life.
+- [19:18.080] And he's putting up more.
+- [19:19.300] He came to me with the idea with some of his friends.
+- [19:22.680] His wife is fantastic, by the way.
+- [19:24.580] And he said, you know,
+- [19:26.430] these accounts where children will grow up,
+- [19:28.540] and by the time they're 18 or 20 or 21,
+- [19:30.910] they'll have -- they could have $100,000.
+- [19:32.870] I mean, they may be poor, and they'll have $100,000.
+- [19:35.960] What a -- what a big difference.
+- [19:37.880] So I just want to thank the Dell family.
+- [19:40.460] It's great. You know, buy their computer.
+- [19:46.540] I said, how did you get so rich? By doing computers.
+- [19:48.870] He said, well, you know, in college,
+- [19:50.590] I was good at computers. I'd just sit on my bed.
+- [19:52.590] I'd make computers, and people would buy them.
+- [19:54.800] And he never stopped. He never stopped.
+- [19:56.820] Sort of an amazing story, if you want to know the truth.
+- [19:59.950] We have, automatically,
+- [20:02.170] a $1,000 contribution for every newborn child.
+- [20:05.470] Think of that. Five million have already been opened.
+- [20:08.130] It's been incredible.
+- [20:09.970] People are going out. They're doing it.
+- [20:11.390] Some are buying it for many other children.
+- [20:13.300] Some are taking lots of --
+- [20:15.030] some richer people are taking lots of people under their wing.
+- [20:17.800] We have one man that took the state of Ohio,
+- [20:21.370] and he's obviously pretty rich.
+- [20:23.290] And he's made the contribution on behalf of so many children.
+- [20:26.810] It's really turned out to be amazing, actually.
+- [20:29.890] And we made interest on new car loans deductible,
+- [20:32.570] which I told you, it's a big deal.
+- [20:35.230] I think it's really something. But only if it's made here,
+- [20:38.470] and that's only if it's made in America.
+- [20:40.410] And we're proud to see it being made in America.
+- [20:42.520] You know, we used to have -- when I was growing up,
+- [20:44.510] it would say, made in -- everything made in America.
+- [20:47.240] It meant it was better.
+- [20:49.140] And then, over the years, it disappeared.
+- [20:50.740] We brought it back, and we make great products now.
+- [20:56.740] Today, when you see made in America, you know, it's --
+- [21:00.740] generally speaking, I think it's a better product.
+- [21:02.690] This tax season, over 1 million Americans
+- [21:05.580] already deducted their auto loans
+- [21:07.200] and their auto interest.
+- [21:08.410] Think of that. And they're saving a write-off.
+- [21:10.680] They're having a write-off of over $2,000,
+- [21:12.950] sometimes much more.
+- [21:14.660] And you get a full write-off. It's pretty amazing.
+- [21:16.690] Together, these brand-new cuts and deductions
+- [21:19.640] in the Republican bill
+- [21:21.730] have been claimed by nearly half of all tax filers.
+- [21:24.860] So, in one form or another,
+- [21:26.920] more than 50 percent have taken advantage
+- [21:29.780] of the things that we put into the bill.
+- [21:31.760] By the way, we have a lot of other things other than that.
+- [21:33.680] We have incentives. We have the expensing for businesses.
+- [21:37.900] And the expensing is such a big deal.
+- [21:39.360] If you have a business,
+- [21:40.650] you're allowed to deduct it immediately,
+- [21:42.220] as opposed to over 38 years and other things.
+- [21:45.650] And, to me, that's one -- we had the best economy
+- [21:49.550] in the history of our country in my first term,
+- [21:51.620] and we're blowing it out now. We're blowing it away now.
+- [21:54.900] And despite our little diversion --
+- [21:59.050] despite our little diversion to the lovely country of Iran --
+- [22:03.080] lovely place -- but we had to do that
+- [22:06.030] because otherwise bad things could happen.
+- [22:08.340] Really bad things. So we've sent out --
+- [22:10.720] and I think you're going to see some incredible results,
+- [22:12.830] you know, for those people that questioned.
+- [22:14.440] And you're going to see some --
+- [22:15.980] the job we've done has been amazing.
+- [22:20.850] The ships are out there today, and they're saying,
+- [22:24.120] "Don't come here. Don't even think about it."
+- [22:27.560] And you have these massive tankers saying,
+- [22:29.230] "Let's get the hell out of here."
+- [22:30.560] It's amazing. It's amazing.
+- [22:33.360] But we've sent out $30 billion more in refunds
+- [22:36.140] than at the same time last year.
+- [22:38.320] And employers who adjust their withholding levels
+- [22:40.790] now will see an immediate surge in their take-home pay
+- [22:45.000] for the remainder of 2026. You're going to see a big surge.
+- [22:48.360] The numbers are really tremendous.
+- [22:50.020] And that's why I'm out here.
+- [22:51.220] If they were bad, I wouldn't be here today.
+- [22:52.560] I'd be sitting home, watching television, I think.
+- [22:56.350] We can never forget
+- [22:57.590] that every single radical-left Democrat in Congress
+- [23:00.220] voted to deny the American people these lifesaving changes.
+- [23:03.830] They voted for tax increases. They wanted your taxes to go up.
+- [23:08.050] I've never seen it before. You know, all my life,
+- [23:09.940] I've been sort of always interested in politics.
+- [23:12.350] Never did it before. I decided to do it a little while ago.
+- [23:15.060] Not too long. But I've never seen it before.
+- [23:17.300] It always was --
+- [23:18.530] I'd watch politicians for 30 years, 40 years.
+- [23:21.560] "We will lower your taxes. We will lower your taxes."
+- [23:24.130] These are the only people, the Democrats now,
+- [23:26.290] the modern-day Democrats. "We will raise your taxes."
+- [23:30.010] And I just don't think it's winnable.
+- [23:32.030] I don't know. Maybe I'm --
+- [23:33.660] I'm a little old-fashioned, I guess.
+- [23:35.780] But they voted for the largest tax hike in history.
+- [23:38.850] The Democrats just voted for the largest tax hike in history.
+- [23:44.900] Democrats in Congress caused this --
+- [23:48.010] you know, the inflation -- the fake news gets on me.
+- [23:50.960] You know, I have to be very accurate when I speak
+- [23:52.590] because they'll say, "He's exaggerated."
+- [23:55.450] So, the real number is 48 years,
+- [23:58.630] that inflation is the highest in 48 years.
+- [24:00.810] I don't believe that. I think it's the highest in history.
+- [24:02.680] But they say -- "He said history,"
+- [24:05.570] and they say, but I'm okay with 48 years.
+- [24:07.330] Forty-eight years is long enough.
+- [24:08.640] What do you think?
+- [24:09.900] But the real number, they say, is 48 years.
+- [24:11.830] I believe it's the highest inflation, and they caused it.
+- [24:15.280] And they then wanted to raise your taxes.
+- [24:17.970] So, their tax raise that they wanted
+- [24:20.660] was more than $5 trillion, which, to each person,
+- [24:26.220] is probably about $4,000 or $5,000.
+- [24:28.830] And they wanted to raise your taxes.
+- [24:30.980] The great, big, beautiful bill also slashed taxes
+- [24:33.420] on millions of American small businesses,
+- [24:36.220] including restaurants, dry cleaners, corner stores.
+- [24:40.050] What is a corner store? I've never heard that term.
+- [24:41.870] I know what a corner store is,
+- [24:43.100] but I've never heard it described -- a corner store.
+- [24:45.810] Who the hell wrote that, please? And more.
+- [24:50.190] As of today, over 12 million small-business filers
+- [24:53.280] have paid nearly $7,000 less in taxes.
+- [24:56.730] So, on average,
+- [24:58.220] your small businesses have paid about $7,000 less.
+- [25:01.990] That's a lot for a small business.
+- [25:03.530] In large part, thanks to our cuts today,
+- [25:05.930] the economy is booming. Our economy is booming.
+- [25:09.380] You know, you don't read about it.
+- [25:11.090] You don't see it so much because of what's going on in Iran,
+- [25:13.910] which is really -- you know, it's been two months.
+- [25:17.160] I mean, two months.
+- [25:18.450] You've been in other wars for 18 years, four years.
+- [25:23.530] With me, I'm in there for a month.
+- [25:25.950] Well, he said he'd get out a month.
+- [25:29.360] Did you see where I did a list last week?
+- [25:31.330] Seventeen years in Vietnam and five years in Afghanistan
+- [25:36.450] and more, much more than that. And all these different places.
+- [25:40.900] And I said, we were in there for two months.
+- [25:44.660] And you know what? We're going to have victory very shortly.
+- [25:47.750] This is not -- And against a very tough, smart country.
+- [25:56.960] These people were fighters.
+- [25:59.410] And, you know, I don't want to claim it before the fact,
+- [26:01.750] but they have no Navy left.
+- [26:04.810] 158 ships at the bottom of the sea.
+- [26:08.080] Hundred and fifty-eight. Think of it.
+- [26:11.070] Hundred and fifty-eight. I got angry.
+- [26:12.660] I said, why didn't you save them?
+- [26:13.970] We could have used them, you know?
+- [26:16.300] They would rather shoot them than save them.
+- [26:17.960] I said, what the hell? It's only money.
+- [26:20.320] But they were -- some of them were good.
+- [26:21.810] They had one named the Soleimani.
+- [26:23.150] You know the Soleimani? We took him out.
+- [26:25.410] He was the worst --
+- [26:26.690] one of the worst terrorists in the history of this country,
+- [26:29.810] this world. They killed many of our people.
+- [26:32.130] Many of our people have been killed.
+- [26:34.280] When you see a young soldier,
+- [26:36.330] mostly going around without legs,
+- [26:38.140] without arms, with the faces so badly injured,
+- [26:41.010] it was Soleimani that did that.
+- [26:43.040] The roadside bombs, they were just terrible.
+- [26:45.150] He was the father of the roadside bomb.
+- [26:47.600] We killed him.
+- [26:48.820] And that had a big impact on Iran.
+- [26:50.960] That had a big impact on Iran. Because he was, if --
+- [26:56.510] I think it maybe would be a different story
+- [26:58.100] if he were around.
+- [26:59.300] I mean, he was a horrible person and a horrible human being.
+- [27:02.290] He was a mad genius.
+- [27:03.580] But it probably would have been more difficult.
+- [27:05.710] We still would have won by -- fast.
+- [27:08.260] But it would have been not probably as fast as it has gone.
+- [27:12.970] In the report released last week, core inflation
+- [27:15.690] was down to the lowest level in five years.
+- [27:18.620] And very shortly, we're going to be probably eight or nine years.
+- [27:21.570] Don't forget, we're having some fake inflation
+- [27:23.970] because of the fuel -- the energy prices,
+- [27:25.770] which everybody said was going to $250.
+- [27:27.720] We were talking about that, Scott.
+- [27:29.610] They said $250, $300. I mean, today, what was it?
+- [27:33.540] It finished at $89 or $90. Right?
+- [27:36.790] And that's in the -- you know, we haven't settled yet.
+- [27:38.970] Maybe we won't,
+- [27:40.250] but I think you're going to be pleasantly surprised.
+- [27:43.430] But think of that, how well we're doing.
+- [27:45.850] And we have this. A lot of people thought
+- [27:47.430] that inflation would be through the roof
+- [27:49.260] and the stock market would crash.
+- [27:50.750] Well, we just hit an all-time new stock market.
+- [27:53.930] So, it's amazing. I had people --
+- [28:00.060] we have consultants, great guys, that we both know, we see.
+- [28:03.630] They're very talented. Sir, if you do this,
+- [28:06.810] fuel is going to go to $300 a barrel. Right?
+- [28:10.610] One guy in particular, who we like a lot.
+- [28:12.920] But I said, I don't think so. I think we're going to be good.
+- [28:15.870] We always find a way. You know, you got to find a way.
+- [28:18.440] But, sir, don't do it, sir. $300 a barrel.
+- [28:22.490] It's going to be a wild thing. It's going to be horrible.
+- [28:24.790] The Depression is going to happen.
+- [28:26.680] Well, not going to happen
+- [28:27.980] because we just hit a brand-new all-time high.
+- [28:30.550] Then fuel is at $89.
+- [28:31.960] It's actually a lot lower than that in a lot of areas.
+- [28:34.910] But let's not get away from --
+- [28:36.360] you know, let's see what happens over the next week or so.
+- [28:38.770] You know, I think you're going to be very impressed.
+- [28:41.180] And if you are, vote for the Republicans in the midterms.
+- [28:44.670] Okay?
+- [29:00.560] But the king -- the king of Saudi Arabia,
+- [29:03.180] a very smart guy, invested $2 trillion.
+- [29:06.400] We have Qatar, we have UAE, Saudi Arabia.
+- [29:09.270] The king of Saudi Arabia,
+- [29:10.490] they've invested trillions of dollars in our country.
+- [29:13.210] And he said to me a year and a half ago --
+- [29:16.820] I was with him -- he said,
+- [29:18.070] you know, two years ago, you were a dead country.
+- [29:21.400] Everyone thought America was finished.
+- [29:22.950] We were a laughingstock with a president
+- [29:24.810] that couldn't walk up a flight of stairs.
+- [29:27.780] He was -- no, what he was -- he was so horrible.
+- [29:30.100] I mean, it's not even funny. It's like -- he was horrible.
+- [29:34.230] He allowed 25 billion people into the country,
+- [29:37.040] totally unvetted and unchecked.
+- [29:39.100] And, you know, that's a tough -- we're still getting them out.
+- [29:42.800] And some were -- we had 11,888 murderers,
+- [29:47.340] 50 percent of whom murdered more than one people.
+- [29:50.630] Led into our country.
+- [29:51.870] They emptied their jails into America.
+- [29:54.820] But the king said, you know, two years ago,
+- [29:58.380] you were a dead country.
+- [30:00.420] And now you're the hottest country anywhere in the world.
+- [30:02.640] Look at us. We're the hottest country in the world.
+- [30:04.510] So, pretty good, huh?
+- [30:09.190] So, to talk more about these incredible things
+- [30:11.970] that are happening,
+- [30:13.200] I'm going to ask really a respected guy,
+- [30:15.650] a great guy, too. He's difficult.
+- [30:19.490] This guy. He's difficult, but he's great.
+- [30:23.260] And you know, when he speaks, the whole market gets soothed.
+- [30:26.490] When I speak, the market goes a little jittery, and they say,
+- [30:30.150] Scott, go out there, clean it up for me, Scott.
+- [30:33.840] But now he's a fantastic guy.
+- [30:35.770] And Scott, you're going to say a few words,
+- [30:37.380] and then we're going to hear from a few of the people.
+- [30:39.610] The Las Vegas Metropolitan Police Officer,
+- [30:42.360] Cruz Littlefield.
+- [30:45.500] The co-founder and CEO of a local
+- [30:47.570] nonprofit called Power to Parent, Aaron Phillips.
+- [30:52.900] A bartender and makeup artist, Erica Cassell.
+- [30:56.590] And a longtime culinary worker, Nicole Williams.
+- [30:59.730] And then we're going to hear from a few others.
+- [31:01.360] We're going to go pretty quickly.
+- [31:02.600] But, Scott, do you want to say a few words, please?
+- [31:04.730] Secretary Bessent: Thank you. Yes, sir. And thank you.
+- [31:08.760] And, Mr. President, it's an honor of a lifetime
+- [31:10.800] to be part of this administration.
+- [31:12.860] And I thought that your supporters here
+- [31:15.360] would like a little behind the scene
+- [31:17.340] of your incredible first year.
+- [31:20.140] This administration has gotten more done in the first year.
+- [31:23.560] And let me tell you how that happens.
+- [31:26.170] I remember going to see the president,
+- [31:28.750] February 2024, at Mar-a-Lago, candidate Trump.
+- [31:33.640] And he was talking about no tax on tips.
+- [31:35.690] He said he'd been out here and he had the idea, no tax on tips.
+- [31:40.530] Service workers should keep their tips.
+- [31:43.570] Fast forward, July 2025, the Working Families Tax Cuts,
+- [31:49.180] the one big beautiful bill, gets passed by Congress.
+- [31:52.520] And here we are, April 2026, within 24 months,
+- [31:57.230] President Trump's idea became the law of the land.
+- [32:01.740] And we are seeing record tax returns.
+- [32:04.430] And the people of Nevada, the people of Clark County,
+- [32:08.450] are way higher than the national average
+- [32:10.620] because of no tax on tips.
+- [32:13.920] (applause)
+- [32:25.840] President Trump's policies are reviving the American dream.
+- [32:28.910] Yesterday was tax day, and under President Trump,
+- [32:31.960] we are celebrating how much more money hardworking Americans
+- [32:35.290] will keep, not how much the government will take.
+- [32:42.170] Thanks to President Trump and Congressional Republicans,
+- [32:44.970] the Working Family Tax
+- [32:46.200] Cuts helps every American chart their own path.
+- [32:49.420] Throughout this tax season,
+- [32:50.760] I have heard from American workers,
+- [32:52.800] families, diner and restaurant owners,
+- [32:55.210] bartenders, waiters and waitresses,
+- [32:57.280] and communities across the country.
+- [32:59.490] And it is clear that workers
+- [33:01.040] and families are feeling the benefits.
+- [33:04.210] The administration is upholding the foundational principle
+- [33:07.500] that hardworking Americans should be rewarded
+- [33:09.920] with the fruits of their labor, not punished by tax hikes.
+- [33:13.710] And this tax season proves it.
+- [33:16.140] In households across America,
+- [33:18.190] 53 million filers should take advantage of
+- [33:21.180] at least one of the President's signature
+- [33:23.550] tax cuts, no tax on tips, no tax on overtime,
+- [33:27.050] enhanced tax relief for our great seniors,
+- [33:29.810] and the ability to deduct interest on new car loans,
+- [33:34.250] if it's an American car.
+- [33:36.770] And this is the tax,
+- [33:39.530] the refunds and the tax cuts have exceeded our expectations.
+- [33:44.440] Here in Las Vegas,
+- [33:45.730] millions of hardworking Americans have benefited.
+- [33:49.330] The President: And I want you all to remember,
+- [33:50.890] every single Democrat voted against this program.
+- [34:01.830] So, more than 6 million filers
+- [34:05.250] have taken advantage of no tax on tips,
+- [34:08.670] 25 million filers no tax on overtime.
+- [34:12.290] And this is what happens when policies are made for workers
+- [34:16.740] and not for D.C.
+- [34:19.150] And also, as the head of the IRS,
+- [34:21.940] I want to also tell all of you two things.
+- [34:25.910] Go to trumpaccounts.gov.
+- [34:28.840] If you have not registered your children for Trump accounts,
+- [34:32.400] it's very easy to remember trumpaccounts.gov
+- [34:35.490] and fill out form number 4547.
+- [34:47.700] For those of you who have children born during
+- [34:49.620] President Trump's term,
+- [34:51.170] Treasury will seed that account with $1,000.
+- [34:54.450] For those of you with children under 18,
+- [34:57.720] you can add to those accounts.
+- [34:59.330] Great philanthropists like Michael Susan Dell
+- [35:01.960] are adding to that.
+- [35:03.960] And the other thing, too, is I want to remind everyone,
+- [35:06.350] change your withholding.
+- [35:07.860] If you're getting a big tax return,
+- [35:09.930] a big tax refund this year,
+- [35:11.900] it's because you didn't change your withholding last year.
+- [35:14.360] If you go, you change your withholding now,
+- [35:16.580] you'll get an automatic raise in your real income.
+- [35:19.920] Your weekly, monthly income will go up right here, right now.
+- [35:24.640] I just want to thank President Trump
+- [35:26.340] for championing this program
+- [35:28.320] because I can tell you some of the Republican,
+- [35:32.910] some of the more traditional Republicans on economics
+- [35:36.770] didn't want this to be part of the program.
+- [35:39.510] President Trump fought for this the whole way
+- [35:42.140] and this is why we have a new, bigger Republican Party.
+- [35:46.160] It's because of policies like this.
+- [35:47.650] So thank you all. Thank you. Thank you. Thank you, Scott.
+- [35:57.350] Before I answer you,
+- [35:58.620] I just want to say two things that are very important.
+- [36:00.900] So right now, in this country, we have more people working
+- [36:04.440] than at any time in the history of our country.
+- [36:06.800] Think of that. And also, it's pretty good.
+- [36:10.500] And you know, while in Europe and a lot of other places,
+- [36:13.360] they're looking for oil, they're looking for gas.
+- [36:15.520] They want gasoline. They're having a hard time.
+- [36:17.390] We have a lot.
+- [36:18.590] So at this moment, right now,
+- [36:20.220] we have more oil production than Russia and Saudi Arabia.
+- [36:24.180] By far, Russia and Saudi Arabia put together.
+- [36:27.420] You add them up together.
+- [36:29.120] And by next year, it will be double that amount.
+- [36:32.010] So it's pretty amazing. Those two facts.
+- [36:35.190] More people working than ever before.
+- [36:38.030] Las Vegas Metropolitan Police Officer Cruz
+- [36:41.110] Littlefield, please.
+- [36:45.360] Cruz Littlefield: Mr. President,
+- [36:46.560] thank you so much and welcome to Las Vegas.
+- [36:48.730] My name is Cruz Littlefield.
+- [36:50.340] I'm a local police officer and a Las Vegas native.
+- [36:54.170] I have a deep appreciation for the city
+- [36:56.000] and have made it my calling to now protect
+- [36:57.710] and serve those who also call it home.
+- [37:00.180] With the passage of the great, big, beautiful bill,
+- [37:02.170] my wife and I have benefited from the elimination of taxes
+- [37:05.050] on overtime,
+- [37:06.290] allowing us to stretch every dollar
+- [37:08.400] in an increasingly expensive world.
+- [37:11.000] With less financial stress,
+- [37:12.820] I'm able to be a better and effective asset
+- [37:14.880] to my community and more present with my family.
+- [37:18.870] We also just welcomed our newborn baby girl a week ago
+- [37:27.200] and have already contacted our CPA
+- [37:29.680] to make sure that the Trump account gets started.
+- [37:31.770] The President: That's good. That's great.
+- [37:34.880] Cruz Littlefield: Thanks to you,
+- [37:36.150] we're now securing her a better financial future
+- [37:38.190] than we were ever given as kids.
+- [37:40.610] Mr. President, thank you for your time
+- [37:43.040] and thank you for your continued efforts
+- [37:44.400] to support the American people, especially here in Las Vegas.
+- [37:47.660] I have family and friends. This is my brother.
+- [37:50.450] But I have family and friends in Las Vegas who are barbers,
+- [37:52.610] small business owners, bartenders and first responders,
+- [37:56.080] and every burden lifted for them
+- [37:58.630] is a step towards a stronger and safer community.
+- [38:00.640] So, thank you.
+- [38:01.850] The President: That's great. Thank you, Cruz. Good job.
+- [38:08.200] Good job.
+- [38:10.050] The co-founder and CEO of a local nonprofit doing
+- [38:13.090] really well called Power2Parent, Erin Phillips.
+- [38:18.890] Erin Phillips: I'm right here, actually.
+- [38:20.160] Hi. I'm Erin Phillips.
+- [38:22.290] It's an honor to be here as a mom
+- [38:23.990] and a founder of this nonprofit organization.
+- [38:27.070] We believe that empowered parents protect kids.
+- [38:30.370] And so everything we do flows out of that idea.
+- [38:33.150] And as a mom of five, this is deeply personal to me.
+- [38:37.630] It's not just something that I talk about regularly.
+- [38:41.460] We've seen so many families, especially in our community,
+- [38:43.730] that feel outmatched by systems.
+- [38:46.440] And so what we do is we try to empower them to advocate
+- [38:49.830] for themselves through policy
+- [38:51.900] and really just help with their children's education in general
+- [38:55.610] and any issue that is a parental rights issue.
+- [38:57.760] So that's what we do.
+- [38:59.310] And I just want to thank you for what you've done
+- [39:01.710] in regards to protecting women's sports.
+- [39:03.770] We know that when we protect women's sports,
+- [39:06.950] we're really protecting the opportunities
+- [39:08.720] that our daughters have. And I have daughters myself.
+- [39:11.900] And so that's really it's so important.
+- [39:14.340] And so many girls have already been hurt.
+- [39:15.890] So thank you for what you've done on that level.
+- [39:18.410] And then it also helps them know that they're worth protecting
+- [39:21.180] and that they matter. And I think that's something
+- [39:22.960] that we haven't shown our girls prior to this.
+- [39:32.000] One more thing that I just really want to highlight
+- [39:34.790] is the Federal Tax Credit Scholarship.
+- [39:36.710] And I just need you to know
+- [39:38.630] that this is a game changer for families who feel stuck.
+- [39:42.440] I think oftentimes we have these families
+- [39:44.900] that I already mentioned that they feel outmatched by systems
+- [39:47.940] and they are stuck in a system
+- [39:49.260] that is not working for their child.
+- [39:51.280] And so what this scholarship does
+- [39:53.080] is it expands education freedom. It gives parents the power
+- [39:57.000] to choose the right education for their children.
+- [40:00.190] And families that we serve in our community,
+- [40:02.180] it means hope, it means access,
+- [40:04.370] it means a future for their children
+- [40:06.430] that they otherwise wouldn't be able to afford.
+- [40:08.590] And we are already planning,
+- [40:10.290] preparing to help families access
+- [40:12.100] this money here in Nevada. So thank you for that.
+- [40:15.220] And lastly, I just want to say
+- [40:16.530] that I'm grateful for your leadership,
+- [40:18.030] because you recognize the critical role
+- [40:20.090] that families play. So thank you so much.
+- [40:22.070] The President: Thank you. Thank you very much. Great job.
+- [40:30.040] Bartender and Makeup Artist Erica Cassell on No Tax on Tips
+- [40:36.680] Erica Cassell: Hi, President Trump.
+- [40:38.820] I'm a makeup artist and a bartender here in Las Vegas.
+- [40:41.750] I just wanted to say thank you for all you've done for us.
+- [40:44.760] I know as a bartender,
+- [40:46.310] the no tax on tips is amazing, especially --
+- [40:49.320] I'm going to start crying -- expecting moms.
+- [40:52.740] It's great for my daughter as well.
+- [40:54.860] The Trump account's also amazing.
+- [40:57.150] So thank you so much.
+- [40:58.440] The President: Great. Thank you. Thank you very much. Enjoy.
+- [41:02.030] And good luck. Good job. Thank you, guys.
+- [41:12.640] Nicole Williams: Thank you. Hello, Mr. President.
+- [41:17.550] I am a longtime bartender on the Las Vegas Strip,
+- [41:20.170] and I first heard the idea of no tax on tips
+- [41:24.180] mentioned to me by my friend Alita,
+- [41:25.880] who helped manage our campaign in Nevada.
+- [41:28.340] And she's amazing.
+- [41:31.650] She mentioned it to me,
+- [41:33.190] and I started thinking about what an awesome idea it was,
+- [41:37.470] because in Nevada, we have what is called a tip compliance.
+- [41:40.780] Not a lot of people know about that,
+- [41:42.250] where the IRS comes in, and they say,
+- [41:44.340] "You're going to make this amount of tips in an hour,
+- [41:46.080] and we're going to tax you on that."
+- [41:47.350] Even if you don't make that amount of tips,
+- [41:49.010] you're going to get taxed on it.
+- [41:50.660] So I thought that would be an incredible opportunity
+- [41:54.790] to keep some more cash in my pocket.
+- [41:56.980] So then she reached out,
+- [41:58.570] and I actually spoke at an event for you for no tax on tips.
+- [42:02.320] Unidentified: I spoke with you the day that Robert Kennedy
+- [42:04.370] endorsed you for president, which was an amazing experience,
+- [42:07.400] so thank you for that. And so I did campaign for you,
+- [42:12.470] and I was like, I want to see this policy come to fruition.
+- [42:16.380] So when I heard about the one big, beautiful bill
+- [42:18.480] and that being included in it,
+- [42:22.230] it was just a reminder that it's promises made,
+- [42:24.900] promises kept for you.
+- [42:32.800] So to see that come to fruition was amazing,
+- [42:37.650] and I do have seven children,
+- [42:39.240] so the earned income tax credit for them
+- [42:41.430] is going to be helpful as well.
+- [42:43.290] I'm waiting on my husband, who's in real estate,
+- [42:45.420] to get his receipts together.
+- [42:48.380] But we will expect to see a greater tax return
+- [42:52.220] we can use for a car
+- [42:54.400] or for our son going to school, like a trade school.
+- [42:57.950] It's our oldest child. So we're very excited,
+- [43:00.350] and I just want to thank you so much
+- [43:02.370] for getting that done for the people
+- [43:04.080] and for my family. Thank you.
+- [43:05.410] The President: Thank you. Good job. Thank you.
+- [43:11.750] And, you know, just in wrapping up,
+- [43:13.690] a man who's been with me,
+- [43:15.120] I think every event I've done out here,
+- [43:17.840] he's your Lieutenant Governor. Highly respected.
+- [43:19.700] He's really a good man. He's been to every event.
+- [43:22.990] Stavros Anthony. Stavros.
+- [43:32.670] Stavros Anthony: Mr. President, Mr. Secretary,
+- [43:34.830] first of all, welcome to the greatest city in the world,
+- [43:38.390] Las Vegas, and to the great state of Nevada.
+- [43:44.240] So one of my responsibilities as Lieutenant Governor
+- [43:47.200] is the Chairman of the Nevada Tourism Commission.
+- [43:49.480] So I work with a great group of individuals
+- [43:52.040] to promote tourism in Las Vegas and in the state of Nevada.
+- [43:57.100] And there's a lot of reasons why people come to Las Vegas
+- [44:00.120] and keep coming back to Las Vegas.
+- [44:01.960] And one of those is because
+- [44:03.340] we have the greatest hospitality employees in the world
+- [44:07.320] here in Las Vegas. Absolutely.
+- [44:12.160] And we all remember two years ago,
+- [44:14.990] you had another one of your massive rallies here in Nevada.
+- [44:18.010] It was actually at Sunset Park, just south of here.
+- [44:21.240] And you made this No Tax on Tips pledge,
+- [44:25.160] and everybody heard it for the first time,
+- [44:27.890] and people were just excited.
+- [44:30.490] And as Nicole mentioned, it wasn't just a pledge,
+- [44:32.940] but you did it.
+- [44:34.350] So on behalf of all the hospitality workers
+- [44:36.940] here in Las Vegas and Nevada,
+- [44:38.810] thank you for putting more money in the pockets of our families.
+- [44:46.820] Just one other thing. I'm a former captain
+- [44:50.390] with the Las Vegas Metropolitan Police Department.
+- [44:52.340] I know how much overtime these police officers work
+- [44:56.400] and how much overtime a lot of employees work.
+- [44:58.980] And for you to make that pledge and come through on no taxes
+- [45:02.970] on overtime, again, thank you very much
+- [45:05.160] for putting money in the pockets of our families.
+- [45:07.240] God bless you all.
+- [45:08.460] The President: Thank you, Senator.
+- [45:14.180] So I just want to say this is a special state.
+- [45:17.550] It's a special place. We've done so well here.
+- [45:20.900] I have so many friends here.
+- [45:22.680] It's been -- it was great before I ran for politics,
+- [45:25.030] ran for office, and right up until this moment,
+- [45:28.360] and even this event, there's a lot of love.
+- [45:30.060] It's just such love.
+- [45:32.360] And, you know, those three things, but especially here.
+- [45:35.380] But really, here, it's all three.
+- [45:36.840] It's overtime, right?
+- [45:39.070] And it's -- you take a look at the tips.
+- [45:41.400] The tips are -- I don't even know which is the biggest.
+- [45:43.340] You could probably take a poll. And it's Social Security.
+- [45:47.690] No tax on Social Security. Who would think?
+- [45:49.820] And when I did it, it was a pretty big number.
+- [45:52.590] Let me -- could I ask you, which is the best of the three?
+- [45:55.170] No tax on -- clap -- no tax on Social Security.
+- [46:05.280] That's not bad. Okay, ready?
+- [46:07.510] No tax on tips. No tax on overtime.
+- [46:17.020] You know, Social -- I think Social Security won.
+- [46:21.140] Hey, so much -- so much for no tax on tips.
+- [46:24.350] Yeah, I think Social Security won.
+- [46:26.390] Hey, I just want to thank you all. We love you all.
+- [46:28.940] The country is doing really well.
+- [46:30.820] We're respected all over the world.
+- [46:32.630] We are respected, I think -- I think like never before.
+- [46:36.170] Thank you. I think like never before.
+- [46:38.410] And thank you all very much.
+- [46:40.240] God bless you all. Thank you very much, everybody.
+- [46:44.200] (applause)
+- [46:57.980] ♪ ("YMCA" by the Village People) ♪

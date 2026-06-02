@@ -1,0 +1,530 @@
+<!-- source: https://www.youtube.com/watch?v=9NXWxKZhejE -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 9NXWxKZhejE -->
+<!-- date_published: 2026-02-09T15:46:13+00:00 -->
+<!-- date_accessed: 2026-06-02T02:38:08.691746+00:00 -->
+
+# Transcript: Vice President JD Vance Delivers Remarks with Prime Minister Nikol Pashinyan of Armenia
+
+- [00:13.500] (speaking Armenian)
+- [00:43.540] Female Speaker: Joint Statement on the Completion of Negotiation
+- [00:46.910] on an Agreement for Peaceful Nuclear Cooperation
+- [00:50.880] between the United States of America
+- [00:53.310] and the Republic of Armenia is being signed.
+- [00:56.530] From the Armenian side, the statement is being signed
+- [01:00.400] by His Excellency Mr. Nikol Pashinyan,
+- [01:04.010] the Prime Minister of the Republic Of Armenia.
+- [01:07.900] From the American side, the statement is being signed
+- [01:11.680] by the Honorable JD Vance,
+- [01:14.280] Vice President of the United States.
+- [02:00.460] (applause)
+- [02:11.600] (speaking Armenian)
+- [02:14.600] Female Speaker: A joint press statement will now take place.
+- [02:26.930] Prime Minister Pashinyan: Honorable Vice President J.D.
+- [02:28.930] Vance, esteemed members of the U.S. Delegation.
+- [02:32.110] Dear colleagues, it is a great honor
+- [02:36.000] to host today the Vice President of the United States of America,
+- [02:41.030] JD Vance and his delegation,
+- [02:43.270] who are on an official visit to Armenia.
+- [02:47.320] This visit is of truly historic and symbolic importance.
+- [02:52.110] This is the first visit by a U.S.
+- [02:54.230] Vice President to the Republic of Armenia.
+- [02:58.050] It takes place in the context of unprecedented realities
+- [03:02.150] of establishing peace and stability in the South Caucasus.
+- [03:06.350] It reflects the depth of the strong
+- [03:09.760] and strategic partnership forged between the Republic of Armenia
+- [03:13.020] and the United States of America.
+- [03:15.130] Dear Mr. Vice President,
+- [03:19.100] our first meeting at the White House
+- [03:22.060] on February 7, 2025,
+- [03:23.890] had great importance for the events
+- [03:26.750] that subsequently unfolded.
+- [03:29.280] Taking this opportunity, I would like to once again
+- [03:33.810] express the gratitude of the government
+- [03:35.550] of the Republic of Armenia
+- [03:37.290] to the President of the United States of America,
+- [03:40.150] Mr. Donald Trump,
+- [03:41.420] and also to you for organizing the Washington Peace Summit
+- [03:46.820] on August 8, 2025.
+- [03:51.600] Through which we gave a strong boost
+- [03:54.510] to Armenia-U.S. bilateral relations.
+- [03:59.670] And with the personal involvement of President Trump,
+- [04:02.710] we established peace between Armenia and Azerbaijan.
+- [04:07.940] After the Washington Peace Summit,
+- [04:10.450] President Aliyev and I nominated President Trump
+- [04:14.710] for the Nobel Peace Prize through a joint letter,
+- [04:17.710] and I have great hope
+- [04:19.350] that the President will rightfully receive
+- [04:22.000] this award in 2026, the Nobel Peace Prize.
+- [04:29.220] Vice President, JD Vance's visit
+- [04:31.780] is a crucial step in institutionalizing peace
+- [04:35.560] and expanding the Armenia-U.S. Strategic partnership.
+- [04:42.640] I presented to Mr. Vance the positive
+- [04:45.800] processes underway in the South Caucasus,
+- [04:49.390] as well as the details of the discussions
+- [04:52.170] that took place a few days ago in Abu Dhabi
+- [04:55.700] between me and the President of Azerbaijan.
+- [04:58.090] The discussions were aimed at potential new steps
+- [05:01.100] for strengthening peace between our two countries.
+- [05:04.440] On this occasion, I also reaffirmed Armenia's commitment
+- [05:08.990] to supporting the peacekeeping mission of the U.S. Government,
+- [05:13.390] including the activities of the Board of Peace,
+- [05:16.790] the charter of which I had the honor
+- [05:18.970] of signing on January 22,
+- [05:21.110] this year during the official ceremony in Davos.
+- [05:25.400] I would also like to note that I have received
+- [05:27.610] and gladly accepted President Trump's invitation
+- [05:31.630] to participate in the inaugural meeting
+- [05:35.180] of the Board of Peace on February 19.
+- [05:39.440] The Vice President and I have both
+- [05:41.980] underlined the importance of consistently implementing
+- [05:47.960] one of the most important achievements
+- [05:49.790] of the Washington Peace Summit,
+- [05:51.560] the Trump Route for International Peace
+- [05:53.160] and Prosperity Project, in accordance with the framework
+- [05:56.710] for the implementation of the TRIB project,
+- [06:00.670] signed on January 13 this year
+- [06:03.600] between the Minister of Foreign Affairs of Armenia
+- [06:06.100] and the U.S. Secretary of State. We reaffirmed that this project,
+- [06:10.250] in addition to the most serious peace dividends,
+- [06:13.310] will also have regional and global significance,
+- [06:17.040] developing unhindered communication
+- [06:19.650] between West and East.
+- [06:21.990] We expressed our satisfaction with the preparatory
+- [06:26.030] works for the implementation of the project,
+- [06:28.590] as well as the progress of the feasibility studies
+- [06:32.950] that were launched a few days ago.
+- [06:36.190] We also discussed with Mr. Vance,
+- [06:39.960] the prospects for complete deep lacking of the region
+- [06:43.270] as essential guarantees of stability and peace
+- [06:46.680] in the South Caucasus.
+- [06:48.010] I believe that in this context, it is also of great importance
+- [06:53.990] to bring to its logical conclusion the ongoing dialog
+- [06:58.130] in the Armenia-Turkey normalization process,
+- [07:01.130] including the opening of the Gumri-Kars railway.
+- [07:05.260] We jointly underscored also the significant achievements
+- [07:09.210] in bilateral relations,
+- [07:11.200] including in the fields of artificial intelligence
+- [07:13.660] and innovative technologies.
+- [07:16.330] I am pleased to note that the memorandum
+- [07:19.320] signed between Armenia and the United States on August 8
+- [07:24.000] in the field of semiconductors and artificial intelligence
+- [07:27.730] will bring to life the mega project of the company
+- [07:31.850] Firebird building an artificial intelligence plant
+- [07:35.580] and data center in Armenia.
+- [07:38.600] In this regard, I should note that the recent approval
+- [07:42.290] of the issuance of export permits
+- [07:45.420] for the next batch of super-powerful chips
+- [07:47.610] produced by NVIDIA for exportation to Armenia.
+- [07:51.080] I hope that the close and transparent cooperation
+- [07:53.940] established between Armenia and the United States
+- [07:56.720] in the high-tech sector will allow us to further develop
+- [08:00.170] and strengthen the mutually beneficial partnership
+- [08:04.490] between Armenian and U.S. companies.
+- [08:08.770] In addition, we signed with Vice President Vance
+- [08:15.830] just a few minutes ago today the joint statements
+- [08:18.870] on the completion of negotiations.
+- [08:23.440] On the 123 Agreement for peaceful nuclear cooperation
+- [08:28.470] between the governments of Armenia and the United States.
+- [08:32.580] This agreement will open a new chapter
+- [08:35.230] in the deepening energy partnership
+- [08:38.070] between Armenia and the United States.
+- [08:40.250] It will contribute to the diversification
+- [08:42.640] of Armenia's energy resources
+- [08:44.260] by implementing safe and innovative technologies.
+- [08:47.420] I also expressed my gratitude for the long-standing support
+- [08:52.250] provided to Armenia by the United States
+- [08:54.410] in the field of nuclear security.
+- [08:58.980] Nuclear safety, and I expressed willingness
+- [09:01.600] to further develop sectoral cooperation
+- [09:03.600] in areas of greatest importance to both countries.
+- [09:06.820] We have also made significant progress
+- [09:09.640] in the fields of Armenia-U.S. military and defense partnership
+- [09:14.390] in continuation of the bilateral,
+- [09:17.710] longstanding security cooperation
+- [09:19.960] and the Eagle Partnership military exercises
+- [09:23.280] ongoing for three consecutive years now,
+- [09:25.770] Armenia acquired from the United States VBAT
+- [09:28.910] unmanned aerial vehicles, the effectiveness of which
+- [09:32.970] has been proven through extensive use experience
+- [09:36.020] and which will significantly contribute
+- [09:39.070] to strengthening our defense capabilities.
+- [09:42.050] I expressed hope that this transaction
+- [09:45.720] implemented under the U.S.'s Foreign Military Sales Program
+- [09:48.920] will serve as a basis
+- [09:50.940] for expanding our future cooperation.
+- [09:53.590] We noted that Armenia and the United States
+- [09:55.870] are committed to developing a mutually beneficial partnership
+- [10:00.460] in securing the extraction and supply chains
+- [10:05.650] of critical minerals and rare earths.
+- [10:09.370] Naturally, we also touched on institutional reforms in Armenia
+- [10:15.130] and the continuation of the longstanding support
+- [10:17.930] by the United States in this area.
+- [10:20.480] In particular, aspects of strengthening
+- [10:25.180] the straight structures of Armenia
+- [10:27.500] and developing their capacity. In relation to this,
+- [10:31.050] I highlighted the importance of support provided to Armenia
+- [10:35.580] for capacity development under the Crossroads of Peace Program.
+- [10:39.660] We both emphasized that relations
+- [10:41.860] between Armenia and the United States
+- [10:43.660] are stronger today than ever, and we expressed our commitment
+- [10:47.860] to further develop them for the benefit of our peoples.
+- [10:53.430] Vice President.
+- [10:54.770] I would like to once again welcome you,
+- [10:57.540] your wife, the esteemed Usha Vance,
+- [11:01.090] and your beautiful family.
+- [11:03.070] I say to you, welcome to Armenia,
+- [11:06.790] and express our gratitude for your commitment
+- [11:10.210] to further developing the strong ties
+- [11:13.580] between Armenia and the United States,
+- [11:16.300] and for your personal contribution.
+- [11:18.000] Thank you.
+- [11:20.230] The Vice President: Well, thank you, Mr. Prime Minister.
+- [11:21.770] It's great to be here in Armenia,
+- [11:23.610] and I'm especially grateful that you described the second lady
+- [11:27.590] as the esteemed Usha Vance.
+- [11:29.220] You won me some brownie points there,
+- [11:30.870] though I think she's going to expect me
+- [11:32.330] to call her the esteem Usha Vance in the future.
+- [11:34.870] So you created expectations, too.
+- [11:37.960] This is a beautiful country,
+- [11:39.650] a country that the President of the United States
+- [11:41.380] is very proud to partner with,
+- [11:42.880] that the President of the United States
+- [11:44.730] is very to have a great relationship with.
+- [11:46.690] And I know that President Trump sends his best
+- [11:48.570] regards both to you personally,
+- [11:50.590] but also to the people of Armenia.
+- [11:52.870] And what President Trump and the Prime Minister
+- [11:55.110] have accomplished together is really visionary.
+- [11:57.640] Peace is not made by cautious people.
+- [12:00.370] Peace is made by people who are too focused on the past.
+- [12:03.630] Peace is by people focused on future.
+- [12:06.180] And because the Prime Minster made such great progress
+- [12:09.090] and has had such a great relationship
+- [12:10.580] with both me and the President of the United States,
+- [12:12.600] we're not just making peace for Armenia,
+- [12:15.110] we're also creating real prosperity for Armenia
+- [12:17.620] and the United States together.
+- [12:18.830] So much of the great economic cooperation
+- [12:21.670] that we want to announce today
+- [12:23.430] would not have been possible without your leadership,
+- [12:26.150] without the peace that you committed your country to,
+- [12:28.470] and without of course
+- [12:29.710] the President of the United State's leadership.
+- [12:31.690] And so I'm grateful for all of those things
+- [12:33.480] because I really do believe that tonight marks
+- [12:36.250] a new beginning for Armenia and the U.S.,
+- [12:38.860] and the partnership that our country can have together.
+- [12:42.870] I want to announce a few things,
+- [12:45.200] and the Prime Minister announced a few of them,
+- [12:48.280] but I want to reiterate what we've done here
+- [12:51.200] and what we're going to continue to work on together.
+- [12:53.340] So first of all, he mentioned this incredible tech deal.
+- [12:57.050] The United States was proud to issue
+- [12:58.980] a number of export licenses
+- [13:01.090] for the sale of high-powered NVIDIA chips.
+- [13:03.060] Now, what does that mean?
+- [13:04.310] That means new markets for American workers
+- [13:06.970] and for American businesses,
+- [13:08.620] but it also means greater prosperity
+- [13:10.120] for the people of Armenia. These are chips.
+- [13:12.310] That simply do not exist in most countries in the world,
+- [13:15.530] they are now going to be developed and the data centers
+- [13:20.020] using those chips are going to be built
+- [13:21.830] and in fact are already being built
+- [13:23.750] because of the prime minister's leadership
+- [13:25.840] and we're very happy to partner on that.
+- [13:27.600] It will mean great things for American workers
+- [13:29.470] and I think great things for the people of Armenia as well.
+- [13:32.940] We're also very proud to announce
+- [13:34.690] that our nations have completed negotiations
+- [13:36.790] on a 123 civil nuclear cooperation agreement.
+- [13:40.910] Now once that is completely stood up,
+- [13:42.940] it'll pave the way for American and Armenian companies
+- [13:46.170] to strike deals on civil nuclear projects.
+- [13:49.750] That means up to $5 billion in initial U.S. exports,
+- [13:53.910] plus an additional $4 billion in long-term support
+- [13:56.580] through fuel and maintenance contracts.
+- [13:59.110] This is the classic win-win for both Armenia
+- [14:02.450] and the United States of America.
+- [14:03.960] It means stronger energy security for my own country,
+- [14:07.610] and it also I think means stronger energy security
+- [14:09.990] for Armenia.
+- [14:11.190] And it's also going to create a lot of new jobs back home
+- [14:14.910] in the United States. It means small modular reactors.
+- [14:18.690] American technology is going to be coming to this country,
+- [14:21.210] and again, it's one of the few countries
+- [14:23.760] where we feel confident enough to invest at this level
+- [14:26.950] to send this kind of technology,
+- [14:28.920] and it is happening because of the Prime Minister's leadership.
+- [14:32.740] I'm also very proud to talk about the TRIP Enterprise Fund.
+- [14:36.410] I think most of you here are familiar with TRIP.
+- [14:39.400] With the historic transformation
+- [14:41.000] that it's going to bring to the region,
+- [14:42.240] but let me say a couple of additional things.
+- [14:44.940] It is going to open up a whole new world of trade, transit,
+- [14:50.130] and energy flows in this region of the world,
+- [14:53.330] and it will create unprecedented connections
+- [14:55.930] between Armenia and its neighbors.
+- [14:57.920] Now that is great
+- [14:59.250] for the prosperity of the people of Armenia,
+- [15:01.950] but it is also great for the enduring project of peace,
+- [15:04.690] because when you create these interconnected,
+- [15:07.700] you you know, economies. Energy sectors, and so forth,
+- [15:11.090] it means that this region can have an enduring peace.
+- [15:14.600] We don't just want to make peace with the Prime Minister
+- [15:17.080] and the President's leadership,
+- [15:18.380] we also want to ensure that that peace endures,
+- [15:21.030] and that is something that we are accomplishing here today.
+- [15:24.050] A couple of other things that I want to announce.
+- [15:25.880] There's a lot.
+- [15:27.110] This is a busy agenda here, and we're very proud of it.
+- [15:30.680] The TRIP Fund, what it will do --
+- [15:33.610] means that a lot of private capital
+- [15:35.650] is going to flow into building railroads,
+- [15:37.450] into building pipelines.
+- [15:38.690] And, again, to building the interconnectedness
+- [15:41.120] that will create real prosperity for the region,
+- [15:43.620] but also allow the peace agreement to stick.
+- [15:46.490] I also was very happy with the Prime Minister
+- [15:48.810] just a couple of minutes ago
+- [15:50.560] to see some of the new drone technology
+- [15:53.450] that we will be selling to Armenia.
+- [15:55.050] As President Trump knows very well,
+- [15:57.390] the very best way to ensure that you have peace
+- [16:01.230] is to establish real deterrence.
+- [16:03.500] And the best way is to established real deterrents
+- [16:06.020] is with the best military technology in the world.
+- [16:09.040] And the United States has that. And for the first time,
+- [16:11.930] we are announcing a major sale of military technology,
+- [16:15.690] $11 million in surveillance drone technology
+- [16:19.450] to the Armenians and to our good friend,
+- [16:21.050] the Prime Minister.
+- [16:22.250] He's going to use that to secure his country
+- [16:24.530] and to make sure that the peace that we're creating sticks,
+- [16:28.450] that means for the United States more jobs and more investment
+- [16:32.640] in our own defense technology sector.
+- [16:35.240] So let me just close here
+- [16:36.500] by saying that what's happening here today is truly historic.
+- [16:40.620] I am proud to be the first vice president of the United States
+- [16:43.700] to visit this beautiful country.
+- [16:45.490] I'm very excited to get to see a little bit of it tomorrow.
+- [16:47.580] I'm very excited about the dinner that we're going to have.
+- [16:49.870] And I know that I'm the last thing
+- [16:51.240] standing between that dinner, so I'll try to speak very fast
+- [16:53.820] here over the closing couple of minutes.
+- [16:55.720] But this is one of the oldest Christian countries
+- [16:58.970] in the entire world,
+- [17:00.330] a true bedrock of Christian civilization and culture.
+- [17:03.990] As a devout Christian myself,
+- [17:05.730] I know the meaning of this country.
+- [17:08.470] To the entire world and to the religion
+- [17:10.480] that the Prime Minister and I share.
+- [17:12.540] So to the people of Armenia and the great Prime Minister,
+- [17:14.940] I want to thank you for your partnership.
+- [17:16.770] President Trump is committed to this partnership,
+- [17:19.050] and so am I,
+- [17:20.280] and we're thrilled to be here to take the next step.
+- [17:22.590] God bless you.
+- [17:24.760] And I know now we'll take a couple of questions.
+- [17:26.880] Maybe, Prime Minister you can start.
+- [17:29.060] Female Speaker: (speaking Armenian)
+- [17:36.260] Female Speaker: We now open the floor for questions.
+- [17:38.180] Two questions from each side.
+- [17:40.410] Female Speaker: Now we will open the floor for the questions.
+- [17:42.690] Two questions from the representative
+- [17:44.530] of United States medias and two from Armenia.
+- [17:47.320] And the first question from our colleagues from United States.
+- [17:52.900] (speaking Armenian)
+- [18:00.940] The Press: Mr. Prime Minister, can you let us know
+- [18:03.740] if in your conversations you discussed Iran
+- [18:07.400] and the situation in the region,
+- [18:09.500] and what the goals and objectives
+- [18:11.400] would be of the United States and Armenia
+- [18:14.270] given the recent diplomatic efforts?
+- [18:27.100] Prime Minister Pashinyan: I am sure you have noticed
+- [18:28.350] from our statements already that the Republic of Armenia
+- [18:34.760] and the U.S. share a common objective in our cooperation,
+- [18:37.500] and that objective is peace and stability.
+- [18:40.440] All our engagements, all our activities with the U .S.
+- [18:43.000] Are aimed at peace and stability.
+- [18:46.430] And I am confident that this is an achievable goal.
+- [18:54.190] We have seen, we are seeing now,
+- [18:55.620] and I had the opportunity of saying
+- [18:57.890] this in my opening speech. The bilateral meeting, that's --
+- [19:03.330] It's very important to note that the peace
+- [19:07.440] that was declared on August 8, 2025
+- [19:10.870] is now happening in reality on the ground,
+- [19:16.080] it is taking shape.
+- [19:18.030] And allow me to say that the cooperation
+- [19:20.490] between Armenia and the United States
+- [19:22.710] is a cooperation that brings peace,
+- [19:25.260] and so it will be always. Thank you. Next question.
+- [19:28.100] Female Speaker: Next question from Armenia's side.
+- [19:34.490] The Press: Mr. Vice President, my question is for you.
+- [19:36.480] Mr. Vice President, although you did refer
+- [19:40.810] to the TRIP project in your speech,
+- [19:43.460] but I would like to ask you for some details.
+- [19:46.080] How would you assess current progress?
+- [19:48.920] How much investment is expected or planned to be made
+- [19:52.830] by the U.S. In the project?
+- [19:54.720] And what economic benefits do you expect of this project?
+- [19:57.860] Thank you.
+- [19:59.090] The Vice President: Well, in terms
+- [20:00.320] of the amount of investment,
+- [20:01.760] we've talked to a number of partners in the region,
+- [20:03.670] but also across the world who are very interested in it.
+- [20:05.700] They think that it's a very fertile investment opportunity.
+- [20:07.960] We actually spent a fair amount of time talking today
+- [20:10.460] about how we can make things go faster.
+- [20:12.050] I think the Prime Minister wants things to go as fast as possible
+- [20:15.470] because, again, this interconnectedness,
+- [20:17.100] this economic development is good for prosperity,
+- [20:19.730] but it's also good for peace.
+- [20:21.880] You know, the United States is certainly going to play
+- [20:23.780] a very positive and constructive rolling this.
+- [20:26.440] But I don't think that money is the issue.
+- [20:28.170] I think there's actually a lot of capital interest
+- [20:30.480] in this particular project.
+- [20:32.000] There are a lot people across the world
+- [20:33.880] who think that they can make a good return on investment
+- [20:35.980] by investing in Armenia and investing in this TRIP project.
+- [20:40.070] I think the question is really how do we get the peace deal
+- [20:43.510] into a good next phase?
+- [20:45.990] How do we keep the prime minister
+- [20:48.220] in a good place where he can start to focus on the future?
+- [20:53.330] I know he has an election coming up.
+- [20:54.650] I won't talk about that,
+- [20:55.850] but to the extent my endorsement means anything,
+- [20:58.450] he certainly has it, because this is a guy
+- [21:00.880] who can build the long-term partnership
+- [21:03.470] to make this kind of a thing stick.
+- [21:05.120] This has not happened overnight,
+- [21:06.640] but I think we've already made great progress
+- [21:08.310] in just the months since August 8th.
+- [21:13.370] Male Speaker: Thank you. The next question.
+- [21:14.650] Female Speaker: The next question
+- [21:15.870] (inaudible) from the United States.
+- [21:17.130] The Press: Thank you.
+- [21:18.410] Mr. Vice President, on the Iran negotiations,
+- [21:20.920] would the U.S. allow limited uranium enrichment
+- [21:24.070] or is no enrichment whatsoever a red line in negotiations?
+- [21:26.870] The Vice President: Well, I think the President's
+- [21:28.250] going to make the ultimate determination
+- [21:29.840] about where we draw the red lines in the negotiations.
+- [21:32.140] If you go back to the original negotiation
+- [21:34.530] that happened between us and the Iranians,
+- [21:36.970] the President was trying very, very hard
+- [21:39.220] to actually strike a constructive deal
+- [21:40.880] that would have been good for the United States.
+- [21:42.650] But frankly, the entire administration agreed
+- [21:44.610] if the Iranian's were smart enough
+- [21:46.090] to have made that agreement,
+- [21:47.600] then it would have good for them, too.
+- [21:49.680] We're obviously much more focused tonight on the issues
+- [21:52.130] related to U.S.-Armenia cooperation.
+- [21:54.980] But I'll let the President speak
+- [21:56.260] to exactly where he wants to set the lines in negotiation.
+- [21:59.600] As you guys know, he typically does that privately.
+- [22:02.550] He doesn't announce what he's going to do in a negotiation
+- [22:05.150] because he thinks that it constrains him in private.
+- [22:07.970] He's going to have a lot of good conversations with his team
+- [22:11.450] and with others in the days and weeks to come.
+- [22:14.800] I'll let the President set the terms of those negotiations,
+- [22:17.760] but with all due respect to our friends in the media,
+- [22:20.250] I think the President is going to preserve
+- [22:22.120] decisional space for himself.
+- [22:24.000] And that means not revealing too many of his cards publicly.
+- [22:26.680] The Press: I have one more follow up
+- [22:27.930] on the Iran negotiations.
+- [22:29.530] Has the violent crackdown of protesters
+- [22:31.960] in Iran been part of those negotiations?
+- [22:33.940] Does the U.S. want to push for any kind of human rights
+- [22:36.990] assurances to be part of a deal?
+- [22:38.510] The Vice President: Well, I think
+- [22:39.710] as the President said publicly, it's already very much been part
+- [22:42.500] of the negotiations that we've had.
+- [22:43.910] It's one of the things the President
+- [22:45.220] made a very strong demand
+- [22:46.580] is that there were prisoners who were going to be executed.
+- [22:49.500] The crackdown was, of course, very brutal and violent,
+- [22:52.210] and as the President and the entire administration has said,
+- [22:54.190] we stand with the people of Iran.
+- [22:56.200] We stand with a right of peaceful protest
+- [22:57.970] across the world
+- [22:59.180] and certainly people who want to exercise that right in Iran.
+- [23:03.020] But absolutely, the President has made
+- [23:04.800] that part of the conversations
+- [23:06.210] that he's had not just with the Iranians,
+- [23:07.790] but with people all across the region.
+- [23:09.620] I'm sure that will continue.
+- [23:13.900] Female Speaker: And another question from Armenian side. .
+- [23:16.540] The Press: Thank you.
+- [23:17.770] Armenian Press News Agency, Anna Kazilyan.
+- [23:20.560] Mr. Prime Minister, you said in your statements
+- [23:24.740] after the documents signed on August 8,
+- [23:26.760] up to now, how much work has been done.
+- [23:29.230] And you also generally explained the areas
+- [23:32.600] in which we should have expectations in the future.
+- [23:35.270] Generally, could you please assess
+- [23:36.790] the current level of Armenia-U.S. relations,
+- [23:39.860] the current progress of activities,
+- [23:41.530] and in the near future,
+- [23:42.730] what specific they should we expect?
+- [23:44.950] Prime Minister Pashinyan: I think this site underlines
+- [23:50.560] the level of current relations between Armenia and the U.S.
+- [23:53.490] Our current level of relations is higher than ever.
+- [23:58.340] But it's important, as we underscored
+- [23:59.780] with the Vice President the great potential for further
+- [24:03.400] developing our relations.
+- [24:06.160] Indeed, we are at the highest point today,
+- [24:09.620] but the agenda that we refer to in our statements
+- [24:15.370] just implementing that agenda
+- [24:18.160] would multiply the scope of our cooperation.
+- [24:23.360] This is very important.
+- [24:24.650] We have established a strategic partnership.
+- [24:28.480] But it's important to note
+- [24:30.800] we are now able to demonstrate concrete manifestations
+- [24:35.250] of that strategic partnership,
+- [24:36.470] which are tangible, which are visible,
+- [24:38.180] and, of course, a special appreciation
+- [24:40.470] goes to United States President Donald Trump
+- [24:44.050] for his personal engagement, but also a few times today,
+- [24:51.830] I have already thanked Vice President JD Vance
+- [24:55.350] for his personal engagement.
+- [24:58.420] Because we know, on February 7, 2025,
+- [25:03.610] the meeting at the White House
+- [25:05.830] and the very meaningful discussion of the conversation
+- [25:09.480] we had back then was pivotal for the subsequent events.
+- [25:14.370] And I expressed special gratitude to the Vice President,
+- [25:18.210] because during those days when we were having that meeting,
+- [25:21.490] how can I put this correctly?
+- [25:23.910] The White House was still transforming.
+- [25:27.740] I might even say the Vice-President had us moved
+- [25:31.950] in fully to that work environment.
+- [25:34.570] And I very highly appreciate that.
+- [25:36.690] Under those circumstances, he considered
+- [25:38.470] that to be an important conversation.
+- [25:40.270] So calmly, quietly, for quite a long time,
+- [25:43.450] we thoroughly discussed the opportunities
+- [25:46.070] and the agenda that could reach us to today's point.
+- [25:51.410] And it is worthy of particular appreciation.
+- [25:55.370] In that environment, and when I got back to Yerevan,
+- [26:00.610] the impulses that the Vice President of the United States
+- [26:05.850] had given instructions appropriately.
+- [26:07.530] They had reached --
+- [26:08.760] these impulses had reached Yerevan
+- [26:10.180] before I reached Yerevan.
+- [26:11.640] And it is a sign of a particular manifestation of responsibility
+- [26:17.210] and professionalism, for which, of course,
+- [26:19.280] I express my words of appreciation
+- [26:21.520] and my token of respect to the Vice President.
+- [26:27.470] Male Speaker: Thank you for the questions, Excellencies.
+- [26:28.900] Thank you for your responses.
+- [26:30.110] Female Speaker: Thank you, your Excellencies.
+- [26:32.590] The Vice President: Good night, everyone.
+- [26:33.880] The Press: Mr. Vice President, to be clear on Iran,
+- [26:35.810] are military strikes still on the table?
+- [26:38.810] (applause)

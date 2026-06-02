@@ -1,0 +1,1084 @@
+<!-- source: https://www.youtube.com/watch?v=zkzNNHilGh8 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: zkzNNHilGh8 -->
+<!-- date_published: 2026-03-13T18:46:28+00:00 -->
+<!-- date_accessed: 2026-06-02T02:36:41.760012+00:00 -->
+
+# Transcript: Vice President JD Vance Delivers Remarks in Rocky Mount, NC
+
+- [00:04.980] Announcer: Ladies and gentlemen, please welcome to the stage,
+- [00:08.170] Michael Watley.
+- [00:10.950] ♪ (country music playing) ♪
+- [00:20.780] Michael Watley: God bless North Carolina.
+- [00:22.950] It is so good to be back here in Rocky Mount.
+- [00:27.210] I think we had not been here
+- [00:28.740] since about Saturday of last week.
+- [00:32.450] But it is really, really good
+- [00:33.870] and it's really good to welcome our Vice President,
+- [00:38.280] JD Vance, back to Eastern North Carolina
+- [00:42.070] and thank him for his great service.
+- [00:45.650] We're also very excited to have SBA Administrator Kelly Leffler
+- [00:50.370] who's going to be joining us as well today
+- [00:52.670] and the great work that she is doing
+- [00:54.520] to make sure that we are building up
+- [00:56.760] small businesses all across the country,
+- [00:59.290] but particularly here in North Carolina.
+- [01:02.200] You know, when we look at this election cycle,
+- [01:05.310] we have to realize that this is an election focused on a choice,
+- [01:10.760] focused on choice between President Trump's vision
+- [01:15.740] for America, which is rebuilding our economy.
+- [01:19.880] Restoring our borders, keeping our communities safe,
+- [01:23.500] and making sure that America is going to be strong
+- [01:27.500] and respected again around the world?
+- [01:30.730] Or do we want to go back to the Democrat platform
+- [01:35.530] that we saw over the previous four years of open borders,
+- [01:40.350] inflationary spending, and a woke, weak America?
+- [01:44.970] We do not want to go back to Joe Biden's America.
+- [01:48.350] We do now want to back to Roy Cooper's North Carolina.
+- [01:52.160] We want jobs. We want economic growth.
+- [01:56.220] We want bigger paychecks. We want lower prices.
+- [01:59.990] We want safe communities and safe kids.
+- [02:03.890] And we want the men and women in uniform from North Carolina
+- [02:09.650] who are protecting our interests and our allies around the world.
+- [02:13.630] To have everything that they need to carry out their mission.
+- [02:19.240] That's worth it.
+- [02:23.440] We have more veterans who live here in North Carolina
+- [02:27.580] than any other state in the country, 720,000 of them.
+- [02:31.760] Do we have any veterans in the room today?
+- [02:34.730] Thank you.
+- [02:40.280] And one veteran I see down front, Lori Buckout.
+- [02:42.890] It is great to see you, ma'am.
+- [02:46.470] She's going to do an absolutely fantastic job
+- [02:49.210] representing us in Congress
+- [02:51.240] and making sure to represent all of our men and women
+- [02:54.310] in uniform as well as our veterans.
+- [02:56.590] Lori, thank you and congratulations.
+- [02:59.450] Look, this election cycle really does come down to a contrast.
+- [03:04.480] It really does comes down to choice
+- [03:06.850] for all of North Carolina.
+- [03:08.930] Donald Trump, every single day, is working to create jobs.
+- [03:13.710] He's working to make sure that we have bigger paychecks,
+- [03:16.580] that we lower costs.
+- [03:18.760] He's worked to make that we regulatory
+- [03:21.860] and tax and trade policies
+- [03:24.310] that are going to work for North Carolina manufacturers,
+- [03:28.100] for North Carolinas small businesses,
+- [03:30.560] and North Carolina farmers.
+- [03:33.890] We've got to remember that North Carolina economy
+- [03:37.070] is built on farming.
+- [03:38.910] And we are right here in the heart of tobacco country
+- [03:42.810] and we know that we've got to do more for them.
+- [03:45.290] We've got make sure that our trade policies
+- [03:47.470] are going to work.
+- [03:50.760] And we've got to make sure that the tax policies
+- [03:53.660] that we just passed in the one big, beautiful bill,
+- [03:57.470] no tax on tips, no tax over time,
+- [03:59.990] no tax social security,
+- [04:01.870] plus extending President Trump's tax cuts
+- [04:04.510] that are putting thousands of dollars into every family's home
+- [04:08.960] so that they can turn around and spend it on education.
+- [04:12.020] They can spend it their families.
+- [04:13.640] They can spent it on the needs that they have.
+- [04:15.780] I don't know about you,
+- [04:17.020] but I sure trust you to spend your money better.
+- [04:20.480] Than a federal government in D.C.
+- [04:22.430] or a state government in Iran.
+- [04:28.230] So it is absolutely fantastic
+- [04:30.300] to have the Vice President down here today,
+- [04:33.460] because no president has fought harder
+- [04:36.540] for Eastern North Carolina than Donald Trump.
+- [04:39.170] And Vice President Vance has been here,
+- [04:42.340] and he knows this region, and he know you,
+- [04:45.820] and you know him,
+- [04:47.020] and we're very glad to have him down here.
+- [04:49.340] But as for me, I love being back in Rocky Mount.
+- [04:53.630] I love be back in Eastern North Carolina.
+- [04:56.190] I am very, very grateful for your support in our primary
+- [04:59.720] and in the general election that's going to be coming up
+- [05:02.100] because we do not need Roy Cooper
+- [05:04.700] anywhere near the United States Senate.
+- [05:13.590] We do not need a card-carrying member of the woke mob.
+- [05:17.090] We do need to be represented by somebody
+- [05:19.910] who is the most soft-on-crime governor
+- [05:22.500] in the history of North Carolina,
+- [05:24.340] who has never seen a dollar
+- [05:25.790] that he didn't want to tax or spend,
+- [05:28.390] and who is not going to fight for your interests.
+- [05:31.650] He is going to find every day for San Francisco
+- [05:34.470] and New York and Chicago. I'm going to fight for you,
+- [05:37.920] I'm going to fight for your values,
+- [05:39.750] I am going to fight your community,
+- [05:41.640] and by God we are going to win this seat.
+- [05:43.670] We are going to keep North Carolina red,
+- [05:45.630] and we, along with all of the support from you,
+- [05:49.110] are going send to the Senate a conservative for North Carolina
+- [05:53.400] and an ally for Donald J. Trump.
+- [05:55.090] Thank you all for being here today.
+- [05:57.900] ♪ (country music playing) ♪
+- [06:18.400] Announcer: Ladies and gentlemen, please welcome to the stage,
+- [06:21.400] small business administrator, Kelly Loeffler.
+- [06:26.180] ♪ (rock music playing) ♪
+- [06:40.990] Kelly Loeffler: I am thrilled to be back to join him
+- [06:43.220] and all of you out on the road again.
+- [06:45.690] This is my second trip here this week
+- [06:48.200] and the third in the last year.
+- [06:50.270] I was actually here in your great state earlier this week
+- [06:52.780] with 900 small business manufacturers
+- [06:56.340] that are working to hire and grow
+- [06:58.580] right here in this great state.
+- [07:00.680] And that is thanks to President Trump's fair trade,
+- [07:03.920] low tax, low regulation agenda
+- [07:06.560] that is driving job growth in this country and in this state.
+- [07:10.560] And it's great news, but I hear it in every single state.
+- [07:14.550] I travel across in this wonderful nation of ours.
+- [07:18.020] I've been in 15 states this year already,
+- [07:21.010] and that's what I hear from state to state to state.
+- [07:24.320] Now yesterday, I was in Pennsylvania,
+- [07:26.160] actually this morning too,
+- [07:27.360] and I heard from a restaurant owner
+- [07:29.450] who said things are already so much better,
+- [07:32.230] but under Joe Biden, his cost increased $4,000
+- [07:37.230] every single week under Joe Bidin.
+- [07:40.120] Now under President Trump, he's able to start to grow
+- [07:43.290] and invest and hire in his business again,
+- [07:46.460] thanks to President Trump's tax cuts.
+- [07:48.640] And the common thread is this.
+- [07:50.990] The last four years of reckless Bidenomics crushed you,
+- [07:54.360] hardworking families, but today the comeback is real.
+- [07:58.910] It's unfolding on main streets across America
+- [08:01.820] in households and communities just like this great one.
+- [08:05.900] But for the last year, the Trump administration
+- [08:08.690] and our Republican partners in Congress
+- [08:11.740] have focused on just that one thing,
+- [08:14.630] putting American families and workers first again.
+- [08:20.950] Let's hear it for our hard-working Americans.
+- [08:23.130] That's right. Now, since day one,
+- [08:26.480] President Trump, Vice President Vance,
+- [08:28.950] and this cabinet has worked tirelessly for you,
+- [08:32.040] with urgency, with resolve, and without apology.
+- [08:35.910] We are going to make America great again
+- [08:38.780] because we're reversing four long years of Democrat policies
+- [08:43.690] that hurt you and your family.
+- [08:46.300] Now, we're bringing back the nation that we knew,
+- [08:49.690] Where freedom? And grit, not the government,
+- [08:53.130] create a generational opportunity.
+- [08:56.050] And President Trump said it best when he said,
+- [08:59.400] the great betrayal is over, and hardworking Americans
+- [09:03.730] will never be forgotten about again.
+- [09:06.590] We're working every single day to restore greatness
+- [09:09.780] in this nation for the next 250 years.
+- [09:13.440] Together, we're cleaning up massive wasteful
+- [09:15.690] spending and the abuse of government programs.
+- [09:18.950] And you've seen that. The fraud that sent
+- [09:21.570] your hard-earned tax dollars overseas,
+- [09:25.220] and the Democrats' open borders
+- [09:27.400] defund the police agendas that invited violent crime
+- [09:31.930] into what should be safe communities,
+- [09:34.200] taking the lives of innocent victims like Irina Zaruzka.
+- [09:38.670] After four disastrous years,
+- [09:40.800] that turnaround is well underway.
+- [09:43.370] And yes, there is much more work to do,
+- [09:46.080] but we're making fast progress for you.
+- [09:48.800] We've cut Biden's massive inflation
+- [09:50.720] and high interest rates to five-year lows.
+- [09:53.660] We're eliminating trillions of dollars of bureaucratic red tape
+- [09:58.180] that crushed our job creators.
+- [10:00.270] And we're restoring drill baby drill
+- [10:02.690] to make us energy dominant again.
+- [10:09.770] And I'd be remiss if I didn't say clean, beautiful coal.
+- [10:13.310] So we are bringing back made in America.
+- [10:16.760] That's what made us a great nation of builders.
+- [10:19.640] It's going to make us a nation of great builders again.
+- [10:22.610] Now, the mainstream media and the liberal elites said
+- [10:25.850] that it couldn't be done,
+- [10:27.100] that we should just simply manage America's decline.
+- [10:31.150] Well, they were dead wrong,
+- [10:32.450] because all we needed was a new president.
+- [10:40.250] Now just, you know what the working family tax cuts means.
+- [10:44.280] You know that it's no tax on tips, no tax on overtime.
+- [10:48.440] It's thousands of dollars back in your pocket this year
+- [10:51.770] and for years to come. It's expanded child tax credits,
+- [10:56.000] expanded health savings account, $1,000
+- [10:58.540] Trump accounts for children.
+- [11:00.640] It's the 20% pass-through deduction for small businesses.
+- [11:03.850] It's immediate expensing that is rocket fuel for Main Street.
+- [11:07.890] And in fact, this is the most.
+- [11:09.860] Main Street bill in American history.
+- [11:13.720] But yet, every single Democrat in Congress voted against it.
+- [11:19.340] Which means, when you get your tax refunds this year,
+- [11:22.970] you will not be thanking Don Davis.
+- [11:26.180] But you can thank President Trump, Vice President Vance,
+- [11:29.650] and Congressional Republicans for that.
+- [11:32.560] So now, look.
+- [11:38.810] President Trump and Vice President Vance,
+- [11:41.460] they didn't break it, but they're trying to fix it
+- [11:43.720] and they're working quickly, and they are fighting for you.
+- [11:46.950] Not for Green New Deal radicals, not for illegal aliens,
+- [11:51.250] not for big government spending or fraudsters
+- [11:54.250] stealing your tax dollars, but for workers, for veterans,
+- [11:57.980] for hardworking families like yours
+- [12:00.480] who make our nation strong.
+- [12:02.480] We are working every day to make this country great again.
+- [12:05.890] Now, my friends,
+- [12:07.200] we are on the cusp of America's golden age,
+- [12:09.660] and certainly the best is yet to come.
+- [12:12.590] But none of this would have been possible
+- [12:14.790] without the incredible leadership of President Trump
+- [12:17.500] and Vice President Vance.
+- [12:19.710] And you all know our great Vice President's story,
+- [12:22.700] his humble beginnings. He's a man of deep faith,
+- [12:25.790] the father of soon to be four with his beautiful wife
+- [12:28.520] and first, second lady, Usha Vance, you know,
+- [12:32.340] something important to know about our Vice President.
+- [12:34.800] He was the deciding vote on the One Big Beautiful bill.
+- [12:38.710] He single-handedly stopped Democrats
+- [12:41.390] from driving your tax bill through the roof
+- [12:44.180] and preventing a $4 trillion tax hike.
+- [12:47.640] And now he's leading a sweeping effort to end massive fraud
+- [12:52.210] and prosecute criminals who are stealing your tax dollars.
+- [12:56.040] He's a man who, above all,
+- [12:58.300] fights unapologetically for American values.
+- [13:02.150] He and President Trump do it all for the hardworking men
+- [13:05.080] and women of our nation who make this nation exceptional.
+- [13:08.670] And it's why he's back here
+- [13:10.040] in the great state of North Carolina,
+- [13:11.830] standing proudly with you to restore the American dream.
+- [13:16.870] Ladies and gentlemen, I introduce the 50th
+- [13:19.300] Vice President of the United States, JD Vance.
+- [13:23.270] ♪ (rock music playing) ♪
+- [13:43.960] The Vice President: Thank you all.
+- [13:45.250] Thank you. Thank you all. Thank you all.
+- [13:54.030] Please, please take a seat and we've got-
+- [13:57.480] got some time to spend with one another.
+- [13:59.030] So I want to first thank a few of the great people
+- [14:02.600] who are here who make this possible and are leading-
+- [14:05.620] I think, helping us
+- [14:06.830] lead Americas and North Carolina's comeback.
+- [14:09.480] So first of all, to our great Senate candidate
+- [14:11.840] here in the state of North Carolina, Michael
+- [14:13.410] Whatley, thank you, Michael, for everything that you're doing.
+- [14:20.430] For our great congressional candidate in this district,
+- [14:23.370] Laurie Buckhout, where are you, Laurie?
+- [14:24.860] Thank you so much. It's good to see ya.
+- [14:29.820] An officer in our military and now a person
+- [14:31.780] who wants to serve this great district
+- [14:33.430] and actually do something good for the people of this district
+- [14:37.160] instead of just voting with Nancy Pelosi,
+- [14:39.580] which is exactly what Don Davis does every single day
+- [14:42.810] he's in Washington, D.C. So Laurie, thank you.
+- [14:45.260] We're going to talk a little bit more about your race here
+- [14:47.120] in a second, but a lot of you know
+- [14:49.550] that this state has a very special place in my heart
+- [14:52.000] because I grew up in a poor family.
+- [14:53.970] I was raised by my grandmother.
+- [14:55.440] And then when I graduated from high school back in 2003,
+- [14:59.100] I enlisted in the United States Marine Corps.
+- [15:01.170] And I really spent the first four years of my adulthood
+- [15:04.740] not too far from here,
+- [15:06.460] in the eastern part of our state,
+- [15:08.770] um, you know, becoming a- a young Marine
+- [15:10.820] and, and frankly becoming a young man.
+- [15:13.420] And I'll never forget, one of the-
+- [15:15.360] the first major purchases I ever made in my entire life
+- [15:19.990] was when I wanted to buy- for the first time
+- [15:22.430] I wanted to buy my own car as a young Marine.
+- [15:24.720] I was probably 19 years old.
+- [15:26.790] And I go to one of these off-base used car dealerships
+- [15:30.220] and I find a Honda Civic. It's practical, it's cheap,
+- [15:33.150] it does everything I need it to do,
+- [15:35.130] and I'm going to get the dealer's low,
+- [15:37.240] low interest rate financing of 21%.
+- [15:43.350] And -- And by the grace of God,
+- [15:47.180] I had a great United States Marine
+- [15:49.130] Corps gunnery sergeant, Gunny Arledge.
+- [15:51.930] I went back, I said, "Gunny, I got a great,
+- [15:53.880] great news for you." He said, "What?"
+- [15:55.700] He said, "I'm going to -- I'm going to buy my first car."
+- [15:58.010] He said, "Congratulations, Marine.
+- [15:59.300] That's a big step for young Marine."
+- [16:01.110] He said, "What's your interest rate?" I said, "21%."
+- [16:05.280] And he nearly smacked me upside the head.
+- [16:07.910] And he said, "Stop being an idiot."
+- [16:09.150] And he didn't say that.
+- [16:10.390] He used more colorful language, but I said,
+- [16:11.990] "We have a couple of -- couple of young people out there."
+- [16:14.550] He said, "Go to Navy Federal Credit Union."
+- [16:17.610] And I got an 8% interest rate
+- [16:19.710] and bought my car without breaking the bank.
+- [16:22.080] So that was my- that was one of many, uh-
+- [16:27.720] many lessons the state of North Carolina taught me.
+- [16:30.870] But what we're trying to do, I talk about the difference
+- [16:33.130] between a 21% interest rate
+- [16:34.960] that the used car dealer offered me
+- [16:37.120] and the 8% interest rate that I got offered at a credit union.
+- [16:40.830] And that's pretty much the difference
+- [16:42.520] between the Joe Biden and Donald Trump economic plan
+- [16:46.200] for the United States of America
+- [16:47.650] because in just a very brief time,
+- [16:55.590] we've seen new home purchases
+- [16:58.530] rise to their highest level in five years
+- [17:00.670] since the last time Donald Trump was president.
+- [17:03.120] We've seen the cost of rents drop for six months in a row.
+- [17:07.100] We've seen the average tax refund that's going to come
+- [17:09.930] to the people of North Carolina, about $3,700 per family,
+- [17:14.920] and we see interest rates that are the lowest they've been
+- [17:17.650] since the last time that Donald J. Trump was president.
+- [17:20.780] My friends, the president is impatient,
+- [17:23.300] he's the most impatient person I have ever met, in fact.
+- [17:27.240] He constantly is pressing on the gas,
+- [17:29.350] he wants us to do more, but I stand here proud to say
+- [17:32.940] that after the first year of President Donald Trump
+- [17:35.760] and Congressional Republicans' leadership,
+- [17:37.990] we are rebuilding the American dream
+- [17:40.050] and we're taking back this country
+- [17:41.990] for the people of this state.
+- [17:49.490] Now, there are a- a number of things that I'm proud of,
+- [17:52.370] a number of things I want to brag on,
+- [17:54.000] but I actually want to take a little bit of-
+- [17:55.490] of an audience poll
+- [17:56.720] because I was looking at some of the things
+- [17:59.260] that we put in the Working Families Tax Cuts,
+- [18:01.300] this one big, great, big, beautiful bill.
+- [18:03.040] Now, there- that bill is over 1,100 pages long,
+- [18:06.530] and unlike most of these bills that are way too long,
+- [18:08.890] this is chock-full of good stuff for the people of this district,
+- [18:12.800] the people of this state.
+- [18:14.080] But there are a few things in particular
+- [18:15.970] that I think are important for this state.
+- [18:17.650] Number one, number one, that piece of legislation,
+- [18:21.430] the Working Families Tax Cuts,
+- [18:23.530] had the biggest tax cut for social security benefits
+- [18:26.870] that we've ever seen in the United States of America.
+- [18:34.310] Number two, it wasn't just social security recipients.
+- [18:36.620] Number two, that legislation had the biggest tax cut
+- [18:40.020] for people making under $100,000
+- [18:42.180] that we have ever seen in tax legislation in this country.
+- [18:50.290] And number three, that wasn't in the Working Families Tax Cut,
+- [18:52.950] but one of the things I'm very proud of
+- [18:54.990] is that we forced all localities,
+- [18:58.210] whether they're red states or blue states,
+- [19:00.460] to report crime accurately
+- [19:02.750] so we could go to war against violent crime
+- [19:04.740] and the criminals who do that violent crime.
+- [19:11.220] Now, the -- now, those are three things, and I --
+- [19:13.980] on this part, I only want you to clap once,
+- [19:16.320] because again, I'm going to take an audience poll here.
+- [19:18.140] I'm going to ask you what your favorite of those
+- [19:21.300] three pieces of legislation, those three accomplishments
+- [19:24.060] are that we've had so far in the Trump administration.
+- [19:27.110] So if your favorite thing of those three
+- [19:30.030] is no taxes on Social Security, let me hear it.
+- [19:45.940] Okay?
+- [19:47.260] If your favorite thing is that we've gone to war
+- [19:49.460] against violent criminals, let me hear that. Okay.
+- [19:58.890] Now, I said only applaud once, and there's a guy up here.
+- [20:03.840] He applauded at least twice.
+- [20:05.550] He cheated the system, but I guess he wanted to save,
+- [20:08.040] he wanted to save his applause 'til the very end.
+- [20:10.710] But we all heard the response. You know who did not clap
+- [20:14.460] for a single one of those great accomplishments
+- [20:17.270] of the Trump administration? Don Davis,
+- [20:19.880] because he voted against every single one of them.
+- [20:22.510] Don Davis voted against cutting taxes on Social Security.
+- [20:26.480] Don Davis voted against cutting taxes on those
+- [20:29.520] making under $100,000 a year, and Don Davis voted against
+- [20:33.820] going to war against violent criminals.
+- [20:36.050] Don Davis is not a man
+- [20:37.450] who stands for the people of this state or this district.
+- [20:40.710] He is a person who does exactly what Nancy Pelosi
+- [20:43.560] tells him to do,
+- [20:44.760] and in November, we're going to send him home
+- [20:46.820] and get him out of Washington, D.C.
+- [20:56.890] Now, the crazy thing, y'all,
+- [20:58.310] about the crazy thing about a guy like Don Davis
+- [21:01.390] is, you know, sometimes you, you, you,
+- [21:03.530] you meet a, a Democrat in a red district,
+- [21:07.000] and you know, I don't agree with him on everything.
+- [21:09.210] Of course, Democrats,
+- [21:10.420] Republicans disagree on politics from time to time,
+- [21:13.230] but you at least have some people out there,
+- [21:15.730] or maybe you used to, who would vote their conscience
+- [21:18.660] or vote the interests of their district.
+- [21:20.810] What makes Don so unusual is that we are in a common
+- [21:25.200] sense district here in the state of North Carolina,
+- [21:28.120] and this guy still votes every single time with Nancy Pelosi.
+- [21:32.640] In fact, I asked my team, I said,
+- [21:34.300] "Find a major piece of legislation.
+- [21:37.190] Find something easy where Don Davis
+- [21:39.700] could vote against the Democrats and vote with his district,
+- [21:42.090] the, the moderates, the independents,
+- [21:43.890] even the conservative Democrats.
+- [21:45.690] Find me one example where this guy
+- [21:47.360] defied the leadership of his own party."
+- [21:49.690] He has never done that on any major issue that we could
+- [21:52.400] find.And here, here's, here's just a, an easy, a layup,
+- [21:56.110] Don, an easy layup that we gave you.
+- [21:59.050] Frankly, it would have been bad for Lori's,
+- [22:01.400] poor Lori's campaign chances,
+- [22:02.960] but he couldn't even take the bait
+- [22:05.070] on the Save America Act.
+- [22:07.610] Now, if you know anything about this legislation,
+- [22:09.630] what the Save America Act does is that it makes it impossible
+- [22:14.110] for illegal aliens to vote in our elections.
+- [22:17.470] Pretty common sense.
+- [22:23.080] Now I think that's pretty easy, right?
+- [22:24.750] We don't want a legal aliens voting in our elections.
+- [22:26.990] My favorite thing is whenever I bring this up,
+- [22:30.180] you'll have some Democrat on TV who will say,
+- [22:32.670] "Well, we don't have to worry about that
+- [22:34.530] because illegal immigrants voting in our elections
+- [22:37.810] is very rare."
+- [22:39.600] Well, number one, how about we put it to zero, okay?
+- [22:42.950] Even if you're right. Number two, you're not right.
+- [22:46.430] It happens way more often than a lot of people appreciate.
+- [22:49.520] In fact, just this week,
+- [22:51.990] ICE arrested an illegal immigrant,
+- [22:53.450] I'm going to read this because I want to make sure
+- [22:54.950] I get it right, an illegal immigrant from Mauritania
+- [22:58.610] who's voted in seven federal elections since 2008.
+- [23:03.620] And I have it on good authority that in every single election
+- [23:06.170] he voted for Don Davis.
+- [23:07.600] No. I don't know about that. I don't know where he voted,
+- [23:10.730] but I guarantee it wasn't for us. Okay?
+- [23:12.960] It wasn't for America first policies.
+- [23:15.050] Now, here's the thing though,
+- [23:16.560] even if you take the Democrats at their word,
+- [23:19.600] even if a legal alien's voting is very rare,
+- [23:23.230] then why don't we ban it anyway? It's not that complicated.
+- [23:27.030] It is one thing to say, "I don't get it."
+- [23:29.130] The Democrats say, "This never happens,
+- [23:31.950] or it happens only very rarely," on the one hand,
+- [23:34.860] and on the other hand, we must not stop it.
+- [23:38.530] It doesn't make a bit of sense.
+- [23:40.140] We need to get all illegal aliens
+- [23:41.690] stopping from voting in our elections.
+- [23:43.600] It's very common sense stuff.
+- [23:51.320] But even on that, even on that,
+- [23:53.930] Don Davis could not be persuaded to vote
+- [23:57.320] for the people of this district. That's like an 85% issue.
+- [24:00.120] You look at the majority of even Democrats across our country,
+- [24:03.470] a solid majority of Democrats
+- [24:05.330] want to pass the Save America Act,
+- [24:07.500] but not the guy who allegedly represents the state
+- [24:10.630] of North Carolina who represents his district.
+- [24:13.650] So you got to kind of ask yourself,
+- [24:15.500] if you got a guy who votes against so-
+- [24:17.800] tax cuts for Social Security,
+- [24:19.940] if Don Davis votes against tax cuts
+- [24:21.840] for people making a hundred, the, under $100,000 a year,
+- [24:25.640] if Don Davis votes against going to war
+- [24:28.400] against criminal illegal aliens and violent criminals,
+- [24:32.010] then Don Davis doesn't really represent you.
+- [24:34.750] Let's vote for Laurie, a person who will and will do so proudly.
+- [24:46.820] Now, I want to say a couple other things
+- [24:48.190] because I've given Don Davis a lot of attention here,
+- [24:52.520] and now I'm going to go on to Roy Cooper.
+- [24:55.890] So- so first of all, on every single thing,
+- [24:59.730] now Roy wasn't in Washington DC.
+- [25:01.870] But on every single one of these critical wins
+- [25:04.220] for the Trump administration to have gotten
+- [25:06.720] for the people of this district, the people of the state,
+- [25:09.130] Roy Cooper would've voted against all that.
+- [25:10.980] That's reason number one,
+- [25:12.250] we can't send the guy to the Senate.
+- [25:13.940] We want a senator who represents you.
+- [25:18.080] We want a senator who doesn't represent
+- [25:20.870] illegal aliens and fraud, but who represents hard work
+- [25:25.730] and the good people of the State of North Carolina.
+- [25:28.560] And because we want those things, we w-
+- [25:30.700] we need Michael Whatley
+- [25:32.320] in the United States Senate, not Roy Cooper.
+- [25:34.680] Michael. Now, he stood up and clapped for that.
+- [25:43.600] It would've been a bad sign -- --
+- [25:45.390] if he wouldn't have stood up and clapped for that.
+- [25:47.190] But he passed the test there. So- so here's-
+- [25:49.520] here's the thing about Mike about Roy Cooper, okay?
+- [25:53.610] So there's been a lot of debate
+- [25:55.030] about what exactly our- our foreign policy should be
+- [25:57.910] with regards to Russia and Ukraine.
+- [25:59.680] The President of the United States has been very clear.
+- [26:01.570] He wants the killing to stop.
+- [26:03.710] He wants to get back to commerce.
+- [26:05.120] He wants to stop the innocent people
+- [26:06.620] who are losing their lives in that conflict.
+- [26:08.230] I happen to admire that. Of course, I think it's-
+- [26:10.390] I'm biased, but I think that's the right idea.
+- [26:13.190] Now here's- here's the crazy thing though about Roy Cooper.
+- [26:16.590] Roy Cooper is one of these people
+- [26:19.540] who clearly cares way more for foreign countries
+- [26:23.380] than he does the United States of America.
+- [26:25.440] You see the passion in his voice
+- [26:27.030] when he talks about protecting illegal aliens.
+- [26:29.350] You'll never hear that passion
+- [26:30.950] when he's talking about the people in this room.
+- [26:32.790] You hear the passion in his voice
+- [26:34.690] when he talks about sending hundreds of billions of dollars
+- [26:37.540] to the war in Ukraine.
+- [26:39.360] And yet, and yet, the one Ukrainian Roy Cooper
+- [26:43.550] didn't care about was this innocent girl, Iryna,
+- [26:46.750] who had her throat slashed
+- [26:49.050] by a person who should have never been on the streets
+- [26:51.930] of this country to begin with. So ask yourself.
+- [26:59.660] So ask yourself, why did he spend his entire career
+- [27:03.320] making it hard to lock up violent criminals?
+- [27:06.270] Why did he spend his entire career
+- [27:08.680] going after our brave police officers
+- [27:11.100] who are trying to keep our streets safe?
+- [27:13.450] Why does he care so much about the war in Ukraine
+- [27:16.310] 6,000 miles away, but doesn't give a damn about an innocent
+- [27:20.690] Ukrainian girl who lost her life in our backyard
+- [27:25.160] because he wouldn't do his job? And the simple fact is that Roy
+- [27:28.670] Cooper doesn't stand for you, he doesn't fight for you.
+- [27:31.850] He will never fight for you, but Michael Whatley will.
+- [27:42.400] He better. He better.
+- [27:43.950] But he will. I know he will. He's a good man. I know he will.
+- [27:47.450] Let me just say a couple of final things,
+- [27:49.160] because I want to brag on the president.
+- [27:50.610] I want to brag
+- [27:51.840] on what we've been able to accomplish in Washington.
+- [27:53.570] First of all, we- we- under the Biden administration,
+- [27:57.690] we dug ourselves a hole in this country.
+- [27:59.370] We got to be honest about that fact.
+- [28:00.780] The- the average American family under Joe Biden's leadership
+- [28:04.320] lost about $3300 in take-home pay.
+- [28:08.000] Now that was a combination of higher taxes,
+- [28:10.420] but also that terrible inflation crisis that we had
+- [28:13.320] when Joe Biden was president. When Joe Biden was president,
+- [28:16.650] not a single month did we see inflation
+- [28:20.770] as low as it was last month
+- [28:22.800] and the month before under Donald Trump's leadership.
+- [28:24.740] That's something big to brag on.
+- [28:26.530] That's something big to celebrate,
+- [28:28.010] because what that means is that you and your families
+- [28:31.910] can afford to live a better life.
+- [28:35.220] When Joe Biden was spending all that money on green new scams,
+- [28:38.310] when he was driving up the cost of everything,
+- [28:40.470] he was making it hard for you and your families to get by
+- [28:44.070] in this beautiful country that all of us love.
+- [28:46.690] So I happen to think it's a pretty nice thing
+- [28:48.590] that we've got a President of the United States
+- [28:50.630] that is not fighting to give away
+- [28:53.390] hundreds of billions of dollars to green energy scams,
+- [28:56.400] but is fighting to keep the American people's money
+- [28:59.430] in the American people's pocket
+- [29:01.310] because that's exactly where it belongs.
+- [29:10.000] But what we've seen in about, you know, a year and a month,
+- [29:13.100] I guess, of President Trump's leadership
+- [29:15.440] is that the average American family,
+- [29:17.490] while, while they lost $3,200 when Biden was president,
+- [29:21.400] they've gained about $1,300
+- [29:23.440] while Donald Trump was president.
+- [29:25.050] Now that's dollars and cents.
+- [29:26.560] Now, there's a good news and a bad news to that.
+- [29:29.540] The good news is that means you're $1,300 richer
+- [29:32.700] than you were about a year ago. That's what we're fighting for,
+- [29:35.440] that's what we care the most about, is your prosperity.
+- [29:39.050] The bad news is we are still going to dig ourselves
+- [29:42.730] out of that hole that Joe Biden put us in.
+- [29:45.090] I think the best way, the best way to confront this problem
+- [29:49.240] is to be honest about it.
+- [29:50.910] And we all know Joe Biden put us in a big hole.
+- [29:53.600] So to the Democrats who talk about affordability
+- [29:56.650] a lot of the time,
+- [29:57.940] why don't you look yourselves in the mirror?
+- [30:00.550] Because the president who caused an affordability crisis
+- [30:03.640] was Joe Biden,
+- [30:04.900] and the president who has made the American people
+- [30:08.020] $1,300 richer is Donald J. Trump.
+- [30:17.520] We got all these things we could talk about.
+- [30:19.090] We can talk about the fact that we have homicides
+- [30:20.930] in this country
+- [30:22.160] at the lowest level that they have been in 125 years.
+- [30:28.420] Unreal.
+- [30:31.530] Just absolutely unbelievable progress
+- [30:33.830] on so many of these issues.
+- [30:35.150] And, and, and we ought to talk about why is it
+- [30:37.670] that we got homicides so low. And I'll give you two reasons.
+- [30:40.460] Number one, the President of the United States,
+- [30:42.970] the Vice President of the United States happened to believe
+- [30:45.920] that we ought to be using federal power
+- [30:47.780] to support our cops instead of fighting against them.
+- [30:50.790] Isn't that common sense?
+- [30:56.580] But we also believe that the best way to lower homicides
+- [31:02.800] and carjackings and other violent crime
+- [31:05.690] is to get the illegal alien criminals
+- [31:08.130] out of the United States of America,
+- [31:10.130] and that's what we've been doing.
+- [31:16.760] And I, I, I just can't get over the fact that Democrats are
+- [31:21.260] so passionate about defending the rights of illegal aliens
+- [31:25.860] over American citizens.
+- [31:27.180] It is the one thing that will get the Democrats
+- [31:30.020] really fired up. You know, a few weeks ago,
+- [31:32.940] we had the State of the Union address.
+- [31:34.900] And, and like the Speaker of the House, I-
+- [31:37.120] I'm one of the people who has a very unique perspective
+- [31:39.990] into the State of the Union because I'm sitting directly
+- [31:42.150] behind the President of the United States.
+- [31:44.230] And maybe my favorite point in that whole speech
+- [31:47.250] is when he's -- And he actually added this line
+- [31:49.840] towards the end of the day before he gave the speech.
+- [31:52.370] But where he says, "I'm going to say something
+- [31:54.830] and I want you to stand up
+- [31:56.040] and applaud if you agree with it."
+- [31:57.790] And he says, "We believe that the American government
+- [32:01.360] should serve the interests of the American people,
+- [32:03.970] not illegal aliens." Okay?
+- [32:05.410] Again, a layup for our friend, Don Davis.
+- [32:08.870] He should have been up there clapping and cheering,
+- [32:10.800] who could possibly disagree with that?
+- [32:12.530] But of course, he did nothing like the rest of the Democrats.
+- [32:15.800] But the, the funny thing about it is,
+- [32:18.840] they were so miserable
+- [32:21.130] because they realized that we had them in a bind.
+- [32:23.640] You could tell even a few of them
+- [32:25.280] were looking around like, "Well, this is --
+- [32:28.030] Like, we should be standing up and clapping for this."
+- [32:30.820] But, like, what are --
+- [32:32.200] Is our, our leaders going to get mad at us?
+- [32:34.080] Is, is Nancy Pelosi going to, you know,
+- [32:35.940] going to, going to take away some of our campaign money?
+- [32:38.510] You could tell they didn't know what to do.
+- [32:41.580] And that's maybe the biggest indictment
+- [32:43.220] of the modern Democratic Party.
+- [32:44.560] We talk about all these policies that you and I care about.
+- [32:48.050] We talk about lowering taxes on social security,
+- [32:50.410] about putting more money in your pocket.
+- [32:51.820] We talk about bringing tons of resources into this country
+- [32:55.300] to rebuild the American economy.
+- [32:57.670] Public safety, all this stuff matters.
+- [33:00.190] But the thing that maybe matters way more than any single issue
+- [33:04.480] is that Democratic leadership in Washington, D.C.,
+- [33:08.010] they cannot stand up for the simple principle
+- [33:11.230] that they fight for you and not an illegal alien.
+- [33:15.370] They can't stand up and clap for the fact that we're going to go
+- [33:17.880] to war on fraud in this country like we've never done,
+- [33:21.080] instead of taking your hard-earned money
+- [33:23.370] and giving it to people who don't deserve it.
+- [33:25.980] The entire Democratic Party,
+- [33:28.130] all of these policy disagreements,
+- [33:30.170] all of that stuff doesn't matter compared to the fact
+- [33:34.570] that they don't see themselves as your advocates.
+- [33:38.190] And Republicans, we do.
+- [33:40.850] Now, I'm not saying that's true of the Democrats
+- [33:42.700] all across our country.
+- [33:43.960] I think there are a lot of Democrats like
+- [33:45.720] (Inaudible) were Democrats,
+- [33:47.420] conservative Democrats who love their country,
+- [33:49.900] but the Democrats that we have in Washington,
+- [33:51.660] D.C., they are a different breed.
+- [33:53.960] And we cannot fool ourselves that something has gone
+- [33:57.080] fundamentally wrong in that party.
+- [33:59.960] Their reason for existing is to fight for fraud,
+- [34:04.090] to fight for corruption,
+- [34:05.460] and to fight for people who have no right to be in this country.
+- [34:09.890] And Michael Whatley and Laurie Buckhout,
+- [34:12.590] their reason for being is to fight for you,
+- [34:15.800] and that's why we're here today.
+- [34:25.110] Now, I have just a couple final thoughts,
+- [34:26.620] and I'll take a, a few questions from the media,
+- [34:28.380] and then we'll have to get on the road.
+- [34:29.630] So, so one final thought is -- And,
+- [34:32.150] and Kelly knows this, Michael Whatley knows this.
+- [34:34.870] By the way, I forgot to say thank you
+- [34:36.570] to our great SBA administrator, Kelly Loeffler.
+- [34:38.770] Thank you, Kelly, for everything that you're doing.
+- [34:44.500] Kelly has already identified hundreds of millions of dollars
+- [34:47.780] of fraudulent payments
+- [34:49.090] and has cut that stuff out of our system.
+- [34:50.820] I think it'll be billions by the end of, of, of the year.
+- [34:54.330] She is fighting for you every single day like all of us
+- [34:57.620] are trying to do in the Trump administration.
+- [35:00.400] And as Kelly knows, when you give a speech,
+- [35:04.500] you talk to people
+- [35:05.800] and it's, you know, I'm sure it's being televised right now
+- [35:08.290] because I am the vice president.
+- [35:12.360] The President, thank you.
+- [35:15.470] The -- when the President always called me
+- [35:21.180] and he'll always say like, she talked about coal earlier.
+- [35:23.770] You know, I've talked so many times
+- [35:25.080] about ending the war on coal. We've got great coal resources.
+- [35:28.490] And I'll come off stage and think I did a great job
+- [35:30.350] and the President will call me and say,
+- [35:31.650] "JD, you did a great job, great speech, but it's not coal.
+- [35:36.270] It's clean, beautiful coal."
+- [35:39.830] So for the President, you got to know,
+- [35:42.650] his, his strong political advice is it's not coal anymore.
+- [35:46.540] It is clean, beautiful cold.
+- [35:49.040] But I actually was with the President earlier today
+- [35:51.110] in the Oval Office. We were talking about, you know,
+- [35:52.950] a lot of issues that are going on.
+- [35:54.380] And he said, "JD, tell the people
+- [35:56.490] in North Carolina two things." And I was, I almost forgot this
+- [35:58.760] and I was going to get in trouble.
+- [36:00.100] I was going to get one of those phone calls, Kelly.
+- [36:02.650] But the President said,
+- [36:04.340] "Tell the n- people in North Carolina two things.
+- [36:06.980] First of all, tell them I love them
+- [36:09.610] and we're going to be with them every single step of the way."
+- [36:11.930] That was the first message from the President,
+- [36:13.490] so I've now delivered that.
+- [36:21.290] And tell them that their great furniture industry, you know,
+- [36:25.760] all the, the cabinetry, the beautiful craftsmanship
+- [36:29.040] that this region of our country was known for, sa-
+- [36:31.820] tell them that we are going to fight for that industry
+- [36:34.540] like never before.
+- [36:35.960] And if, and if you're building something,
+- [36:38.040] if you're building a furniture facility,
+- [36:41.060] a furniture business right here in the state of North Carolina,
+- [36:44.520] we're going to cut your taxes.
+- [36:46.150] But if you're trying to bring in foreign furniture
+- [36:49.110] to undercut the jobs of the people in North Carolina,
+- [36:52.170] we're going to raise your taxes by 50%.
+- [36:53.950] We're going to put a big fat tariff
+- [36:56.370] on those foreign companies
+- [36:57.620] bringing that stuff into the United States.
+- [37:05.450] So Mr. President, I've delivered that message too.
+- [37:07.890] I hope I get an, an A+ on this particular speech.
+- [37:10.930] But here, let me,
+- [37:12.130] let me just leave you with one final thought.
+- [37:13.790] You, you heard Kelly and Michael and, and,
+- [37:15.680] and everybody's talked about this.
+- [37:17.520] This is one of, as I know very personally,
+- [37:19.520] one of the proudest states for military leadership
+- [37:23.560] and military service anywhere in the country.
+- [37:26.130] And I know you all are proud of that and you should be.
+- [37:31.930] We've got incredible bases from all across the services.
+- [37:35.330] We've got great Marine bases, Army bases and so forth
+- [37:38.450] in the great state of North Carolina.
+- [37:40.670] And I know it's such an important part of this state,
+- [37:43.110] not just economically. That, that, that matters,
+- [37:45.370] but set to the side, the dollars and cents,
+- [37:48.420] you all -- I mean, raise your hand
+- [37:50.740] if you've served in the United States military.
+- [37:53.420] Let's give those guys a round of applause.
+- [38:00.960] So thank you to all of our veterans.
+- [38:02.870] A, a pretty good chunk of veterans
+- [38:04.330] just here in this audience.
+- [38:05.900] But here, here's, here's the thing.
+- [38:08.180] You all know that right now,
+- [38:09.520] we are engaged in a military operation to ensure,
+- [38:12.660] as the President has said repeatedly,
+- [38:14.730] that Iran can never have a nuclear weapon.
+- [38:17.350] That is a simple, simple principle and standard.
+- [38:20.290] Frankly, every president said that they believed it.
+- [38:23.170] Donald J. Trump has taken affirmative steps
+- [38:25.730] to ensure that Iran can never have a nuclear weapon.
+- [38:29.740] Now, but we also know that there are a lot of people
+- [38:39.350] from the state of North Carolina who are in harm's way right now.
+- [38:42.800] And so I want all of us, when we go home,
+- [38:44.780] we leave this event,
+- [38:45.980] I want all of us to say a prayer,
+- [38:48.040] not just for the North Carolinians,
+- [38:49.640] but for the people of all of our 50 states who put on the uniform
+- [38:53.680] and are willing to sacrifice for the safety and security
+- [38:56.560] and freedom of the United States of America.
+- [38:59.550] I want every single person,
+- [39:01.130] and I want you to tell every single person
+- [39:03.030] who is serving overseas in harm's way
+- [39:05.290] that this crowd in North Carolina has their back.
+- [39:11.000] Thank you all.
+- [39:16.450] So with that, let me take a few questions from our media,
+- [39:20.000] and then I'll and then I'll have to hit the road here.
+- [39:22.800] I'd like to start with the local reporters.
+- [39:24.550] We'll get time to the national folks if we got it.
+- [39:27.520] The Press: Hi, I'm Danielle Battaglia.
+- [39:28.800] I'm with the News & Observer.
+- [39:30.050] You've spoken a lot today about Irina Zarutzka's death,
+- [39:33.280] and that resulted in Operation Charlotte's Web.
+- [39:36.530] Senator Tom Tillis has asked a lot
+- [39:38.540] from the Department of Homeland Security
+- [39:40.460] about what happened with Operation Charlotte's Webb.
+- [39:43.390] He said his answers are,
+- [39:44.610] or his questions are unanswered by DHS.
+- [39:46.800] And one of those questions
+- [39:48.020] is if American citizens were arrested
+- [39:51.000] during Operation Charlotte's Web.
+- [39:52.530] I was wondering if you could answer that today.
+- [39:55.290] The Vice President: Well look, Operation Charlotte's Web
+- [39:57.670] is fundamentally an operation to try to make our country safe
+- [40:01.740] by getting violent criminals off the streets
+- [40:04.220] of the United States of America.
+- [40:05.760] Now, I was not aware that Tom Tillis,
+- [40:07.200] who's a friend of mine,
+- [40:08.420] he and I have had our disagreements,
+- [40:10.000] but Tom Tillis and I know each other.
+- [40:12.080] I'll go back and, and, and offer to speak with Tom about this.
+- [40:14.700] I didn't know that he said his questions
+- [40:16.230] had been unanswered by DHS.
+- [40:18.400] Now, that may be because he asked those questions a week ago
+- [40:20.600] and they haven't had time to answer them.
+- [40:22.360] You may have seen we've had a little bit of turnover
+- [40:24.490] in the Department of home- Homeland Security.
+- [40:26.980] But what I do promise Tom
+- [40:28.930] is that the new leadership at DHS
+- [40:30.960] is going to get him a response to his questions,
+- [40:33.090] but we're going to keep on
+- [40:34.360] using the Department of Homeland Security
+- [40:36.730] to do the very simple thing
+- [40:38.000] of making the Homeland more secure.
+- [40:40.500] That's why it exists and we're going to keep on doing that.
+- [40:47.790] The Press: Hi, Mr. Vice President.
+- [40:49.010] Bill Barrow with the Associated Press.
+- [40:51.270] Uh, what did you advise the President
+- [40:53.910] initially as he considered his actions in Iran
+- [40:56.480] and what are you urging him to do now,
+- [40:58.890] especially with Americans seeing higher prices at the pump
+- [41:02.500] and some of the fallout from that across the economy?
+- [41:05.180] Do you express any concerns
+- [41:07.050] like those you've expressed in the past
+- [41:08.670] on the possibility of these extended wars?
+- [41:11.420] The Vice President: Well, Bill, I appreciate the question.
+- [41:13.430] I know you guys have to ask it,
+- [41:14.790] but, but e- but imagine the situation.
+- [41:17.160] We're, we're in the situation room
+- [41:19.860] where you can't even take your, you know, iPod in there
+- [41:23.560] or your, your AirPods, I guess what they're called.
+- [41:25.840] You can't take your iPhone in there.
+- [41:27.340] You can't take anything in there because it is
+- [41:29.160] the most classified space anywhere in the world.
+- [41:31.600] And I sit there with Pete Hegseth and General Caine
+- [41:34.360] and Marco Rubio and the entire White House team.
+- [41:37.360] And the president and I and the entire senior team
+- [41:40.400] are talking about the options and about what we need to do
+- [41:43.190] and about how we must best protect the American people.
+- [41:46.180] I hate to disappoint you, but I'm not going to show up
+- [41:48.580] here and in front of God and everybody else
+- [41:50.240] tell you exactly what I said in that classified room, partially,
+- [41:53.580] 'cause I don't want to go to prison
+- [41:55.530] and partially because I think it's important
+- [41:57.610] for the President of the United States
+- [41:59.410] to be able to talk to his advisors
+- [42:01.530] without those advisors running their mouth
+- [42:03.070] to the American media.
+- [42:11.860] Thank you all.
+- [42:14.700] Now, now that said, one thing I can promise you
+- [42:17.160] is that Chris Wright, our great Secretary of Energy,
+- [42:19.270] and Scott Bessent, our Secretary of the Treasury,
+- [42:21.080] have been running the administration's response
+- [42:23.550] to the economic element of this,
+- [42:24.930] because we know, obviously, when the President takes action
+- [42:28.840] to make sure the American people are safe,
+- [42:30.880] we've got to do everything that we can to deal
+- [42:32.630] with the consequences of that economically.
+- [42:34.520] And it's not just, you know, oil,
+- [42:36.150] there's a whole host of things that we're focused on
+- [42:38.430] in the administration to try to ensure
+- [42:40.980] that we do the right thing by the American people.
+- [42:42.890] What the President has said very clearly
+- [42:45.060] is that he does not like oil price,
+- [42:46.550] higher i- oil prices, and neither do I,
+- [42:49.450] but he also believes
+- [42:50.850] that we're going to make the American people safer,
+- [42:53.080] and that we're to bring those prices at the pump back down
+- [42:56.570] to the levels they need to be for the American people.
+- [42:58.810] Now, here's the interesting thing.
+- [43:00.540] All this conversation happens
+- [43:02.740] where Joe Biden left us in a terrible situation,
+- [43:07.620] and the reason why gas prices are where they are today
+- [43:11.840] is because of Donald Trump's work to get them lower,
+- [43:15.820] because in the Biden administration,
+- [43:17.120] they were crazy high.
+- [43:19.160] The gas prices we're seeing today
+- [43:20.640] are nothing like what we saw
+- [43:22.250] at the peak of the Biden administration
+- [43:23.650] because the President has set us up for energy dominance.
+- [43:26.760] And one of the lessons we all have to take away,
+- [43:29.270] frankly, every time we get involved in anything overseas,
+- [43:33.870] whether it's in the Middle East or anywhere else,
+- [43:35.910] the thing we got to take away from it
+- [43:37.490] is energy dominance and energy independence.
+- [43:40.470] Rely on our own people, rely on our own energy.
+- [43:48.980] The Press: Mr. Vice President, thank you.
+- [43:51.070] I'm Dina with CBS 17 right over in Raleigh.
+- [43:54.080] Um, Eastern North Carolina, Western North Carolina,
+- [43:56.710] two communities that have been really,
+- [43:58.270] really impacted by disasters.
+- [44:00.520] Hurricanes over in Eastern North Carolina,
+- [44:02.980] they happened decade ago. Uh, Western North Carolina
+- [44:06.040] still dealing with Hurricane Helene recovery.
+- [44:07.640] We heard from Governor Josh Stein
+- [44:08.950] several times that North Carolina
+- [44:10.630] has only gotten a fraction of what other states have gotten
+- [44:13.780] in federal funding for recovery for both communities.
+- [44:16.460] Can you talk a little bit
+- [44:17.800] about what your administration is doing to help the people
+- [44:19.790] that are still out of their houses,
+- [44:21.280] still not having businesses the same?
+- [44:23.120] The Vice President: Yeah.
+- [44:24.350] So one of the things I love about Michael Watley
+- [44:26.780] is, look, he obviously is a Republican,
+- [44:30.210] he's committed to the conservative agenda,
+- [44:32.380] he's a great guy, and obviously I'm,
+- [44:33.930] I'm aligned with him politically,
+- [44:35.580] but he's not afraid to say to me
+- [44:37.780] or to the President of the United States or anybody else,
+- [44:40.070] "We've got to get these resources out
+- [44:41.640] faster to protect the people of North Carolina."
+- [44:44.110] So I actually, before you asked that question,
+- [44:46.270] I heard that from Michael Watley,
+- [44:48.500] and I actually talked to the Secretary of the Treasury
+- [44:50.570] because I knew Michael was going to ask me about it again
+- [44:53.430] when I saw him here today.
+- [44:54.950] The simple fact is we have made this a priority.
+- [44:58.100] We are going to get the resources
+- [44:59.360] to the people of North Carolina that are necessary.
+- [45:01.300] We recognize that they're --
+- [45:03.670] Um, we recognize frankly that we needed the new leadership
+- [45:07.700] to hasten that delivery of resources
+- [45:10.180] to the people of North Carolina.
+- [45:11.860] A lot of people in the media have said that,
+- [45:14.140] you know, the reason why we made a change at DHS
+- [45:16.550] is because the Trump administration is backing off
+- [45:19.180] of its illegal immigration enforcement policy.
+- [45:21.700] That couldn't be further from the truth.
+- [45:23.360] The reason that we're making this change
+- [45:25.420] is because Kristi Noem has a great opportunity
+- [45:28.050] to serve in this new shield of the America's position.
+- [45:30.440] I think she's going to do a great job.
+- [45:32.140] And on the other hand,
+- [45:33.370] we think it's useful to have somebody come in
+- [45:36.120] and focus on some of this disaster relief
+- [45:38.240] and recovery stuff,
+- [45:39.530] and that's exactly what we're going to do.
+- [45:41.100] But I appreciate Michael bringing that to my attention,
+- [45:43.470] and I appreciate all the great people
+- [45:45.440] that represent North Carolina, even many Republicans, okay,
+- [45:49.430] who you might think just 'cause they're politically aligned,
+- [45:52.250] trust me, to all the people I want them to know
+- [45:54.790] that even maybe especially the people
+- [45:56.950] who are politically aligned are more willing to be independent
+- [46:00.100] and more willing to tell us,
+- [46:01.480] "We got to quicken those resources
+- [46:03.140] to the people of North
+- [46:04.340] Carolina."I admire them for their courage
+- [46:06.440] and it's going to mean better results
+- [46:07.890] for the people in this district."
+- [46:09.520] Thank you.
+- [46:12.330] Why don't we take one more question.
+- [46:14.350] The Press: Mr. Vice President, Preston Mizell
+- [46:15.760] with Fox News Digital. I want to ask you real quick,
+- [46:17.550] you're leading the anti-fraud task force.
+- [46:20.150] I wanted to get a quick update on that,
+- [46:21.860] maybe some of the findings that you've found in Minnesota,
+- [46:24.090] but also you've mentioned before that you're interested
+- [46:25.730] in targeting other states as part of that task force.
+- [46:28.500] Are there other states that you've been looked at,
+- [46:30.140] that you've looked at,
+- [46:31.430] or that you may have flagged for potential fraud?
+- [46:33.760] The Vice President: Well, you know,
+- [46:35.270] we know there's a lot of fraud in California,
+- [46:37.110] and we're trying to get to the bottom
+- [46:38.470] of exactly what it looks like.
+- [46:39.680] And what we've done in the Trump administration,
+- [46:41.600] the president has really empowered us to do this,
+- [46:44.380] is to take the first national look at the way
+- [46:47.780] the American people have been defrauded over many, many years.
+- [46:51.270] And I'll give you a few very concrete examples.
+- [46:53.450] So in the state of Minnesota, you know,
+- [46:55.330] you, you asked about Minnesota,
+- [46:56.670] we think that there's probably been $19 billion
+- [46:59.320] at least of fraud just committed in Minneapolis
+- [47:02.300] and the surrounding areas.
+- [47:03.680] Let me give you an example of this,
+- [47:05.180] 'cause it's not just the American people being defrauded.
+- [47:07.530] It's not just your tax dollars
+- [47:08.860] that are being stolen outta your wallet
+- [47:10.870] and given to fraudsters.
+- [47:12.450] It's the fact that the services we need
+- [47:15.180] to deliver to needy people are not getting delivered
+- [47:18.050] 'cause they're going to fraudsters.
+- [47:19.690] So for example, there's a program that we have,
+- [47:22.060] and I believe it's under Medicaid,
+- [47:23.790] where we try to help kids who have, you know,
+- [47:26.700] autism, Asperger's, and so forth.
+- [47:29.810] Sometimes they need a little extra help.
+- [47:31.390] Sometimes they need somebody to sit with them after school.
+- [47:34.090] Sometimes they need somebody
+- [47:35.500] to provide transportation to certain places.
+- [47:38.000] And we have a program within Medicaid
+- [47:40.320] to ensure that these needy kids
+- [47:42.270] get the resources that they need.
+- [47:43.560] Now, and it's one of the things, by the way,
+- [47:45.500] I love about the United States of America.
+- [47:47.870] We want everybody to work hard.
+- [47:49.600] We want everybody to play by the rules,
+- [47:51.460] but if we've got a needy kid in our community,
+- [47:53.720] we're not going to let that person fall down on their own.
+- [47:55.750] All Americans are going to lift that kid up together.
+- [47:57.860] That's an amazing thing about our country.
+- [48:03.730] But you know what was happening for this program
+- [48:06.350] that was meant to help needy kids
+- [48:08.390] is you would have Somali fraudsters,
+- [48:10.840] many of them illegal immigrants, who would go and say
+- [48:13.510] that they had an autistic kid even though they didn't.
+- [48:16.410] They would collect that money for themselves.
+- [48:18.930] You had businesses that were going around
+- [48:21.370] and rewarding families for engaging in this fraud,
+- [48:24.570] so the businesses were skimming off the top
+- [48:26.910] and getting rich in the process.
+- [48:28.680] How disgraceful is it that Democrats allowed a program
+- [48:32.180] that was meant to help needy American children
+- [48:35.220] to go to Somali illegal aliens?
+- [48:37.300] The President of the United States stopped it,
+- [48:39.940] and there's a lot more fraud beyond that
+- [48:41.460] that we're going to stop as well.
+- [48:49.520] The one last point that I'll make here
+- [48:50.970] before we have to hit the road is,
+- [48:52.520] I, I, I hate to say this,
+- [48:54.170] and it's been shocking to me as we've gotten in this,
+- [48:56.450] and we want to, you know, frankly,
+- [48:58.140] we want to arrest the people who engaged in criminal fraud.
+- [49:01.480] We want to make sure that the people
+- [49:03.010] who did this stuff realize
+- [49:04.330] there are serious consequences for it happening.
+- [49:06.610] We want to make sure that the needy kids
+- [49:08.380] all across our communities get what they need.
+- [49:10.450] There are so many layers to this anti-fraud initiative
+- [49:14.480] that the president has directed the administration to focus on,
+- [49:17.930] but you know what's so crazy about this?
+- [49:20.350] That nobody until Donald J. Trump thought to focus on it.
+- [49:25.080] Now, I, I, obviously, I love the president,
+- [49:27.170] I admire the president,
+- [49:28.810] but this fraud was staring us in the face
+- [49:32.640] and nobody was doing anything about it.
+- [49:35.420] This is not rocket science.
+- [49:37.350] When you have a Somali fraudster
+- [49:39.670] come into the United States illegally
+- [49:41.870] and then set up a school to collect tax dollars,
+- [49:44.990] and the name of the school is the Quality Learning Center,
+- [49:48.940] Learning Center.
+- [49:50.350] But when they put the sign up, they take the in- out,
+- [49:53.390] so it says Quality Learning Center.
+- [49:56.260] And that group, the Quality Learning Center --
+- [50:00.320] I don't know about you, but I don't want to send my kids
+- [50:02.150] to a school where they can't spell learn.
+- [50:06.550] That group was getting millions of dollars
+- [50:10.430] from the American taxpayer.
+- [50:12.970] There is so much fraud in our system.
+- [50:14.980] There are illegal aliens who shouldn't be here,
+- [50:17.010] who are on Medicaid.
+- [50:18.620] There are, there are, are companies that are,
+- [50:21.650] that are set up to provide medical devices, you know,
+- [50:25.000] knee joints, and hip joints, and other medical devices
+- [50:27.820] that are necessary for people's health,
+- [50:29.810] that have collected hundreds of millions of dollars
+- [50:32.860] and have produced precisely zero medical devices
+- [50:36.580] that have helped our people.
+- [50:37.920] This stuff has been going on forever
+- [50:41.030] and every single person in this audience
+- [50:43.450] should be scandalized by it. But here's the crazy thing.
+- [50:47.280] It's not that all of you are scandalized
+- [50:49.340] that you're getting stolen from.
+- [50:50.910] The crazy thing is that we had a Democratic leadership
+- [50:53.820] who didn't do anything about it.
+- [50:56.620] And so here is what I promise every single person here,
+- [50:59.950] every single person watching,
+- [51:01.240] every single person in the state of North Carolina,
+- [51:04.410] that we are done allowing you to be stolen from.
+- [51:08.040] We are done allowing you to be defrauded.
+- [51:11.220] We are going to go after the fraud
+- [51:12.760] and we are going to rebuild the American dream
+- [51:14.780] by making sure that it goes to Americans
+- [51:17.430] first and Americans only.
+- [51:18.880] God bless you all, and thank you for having me.

@@ -1,0 +1,239 @@
+<!-- source: https://www.youtube.com/watch?v=H2XBTiZ-qDI -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: H2XBTiZ-qDI -->
+<!-- date_published: 2025-12-05T17:58:45+00:00 -->
+<!-- date_accessed: 2026-06-02T02:40:41.253099+00:00 -->
+
+# Transcript: President Trump Attends the FIFA World Cup Drawing
+
+- [00:02.500] ♪ (dramatic orechestral music playing) ♪
+- [00:16.100] Gianni Infantino: Thank you, Mr. President.
+- [00:18.340] Mr. President, this is your prize,
+- [00:22.030] this is your peace prize.
+- [00:23.800] There is also a beautiful medal for you
+- [00:27.900] that you can wear everywhere you want to go.
+- [00:33.460] Okay, let me hold -- fantastic. Excellent.
+- [00:38.250] (applause)
+- [00:42.520] And you will receive also, of course,
+- [00:45.830] a certificate which reads out,
+- [00:49.410] and I would read it out with your permission,
+- [00:52.440] what are the reasons for you receiving
+- [00:55.310] this FIFA Peace Prize, Football Unites the World.
+- [01:00.060] So the FIFA Peace Prize is presented annually
+- [01:02.910] on behalf of the billions of football loving people
+- [01:05.730] from around the world to a distinguished individual
+- [01:09.580] who exemplifies an unwavering commitment
+- [01:12.410] to advancing peace and unity throughout the world
+- [01:15.790] through their notable leadership and action.
+- [01:19.790] And therefore FIFA,
+- [01:21.400] the Federation International de Football Association,
+- [01:24.910] awards the 2025 FIFA Peace Prize,
+- [01:29.230] Football Unites the World, to Donald J. Trump,
+- [01:32.780] President of the United States of America,
+- [01:35.560] in recognition of his exceptional
+- [01:37.140] and extraordinary actions to promote peace
+- [01:39.980] and unity around the world. Friday, December 5th, 2025.
+- [01:46.610] This is the certificate. It's yours.
+- [01:49.460] (applause)
+- [01:53.100] Before giving you the floor, Mr President,
+- [01:55.550] if I may say two words like everyone here in the room,
+- [02:04.910] we see images of war all over the world.
+- [02:10.450] And like everyone, we suffer for every child that dies.
+- [02:17.190] We cry with every mother that loses someone she loves.
+- [02:25.340] And we want to see hope. We want to see unity.
+- [02:31.830] We want to see a future. And I was lucky, Mr. President,
+- [02:38.390] to witness last a few years ago the Abraham Accord signatures.
+- [02:44.470] A few months ago in Shalma Sheik,
+- [02:46.740] the peace in the Middle East Agreement regarding Gaza.
+- [02:51.760] I was in Malaysia and Kuala Lumpur
+- [02:53.650] for the peace between Cambodia and Thailand.
+- [02:56.300] Yesterday here in Washington,
+- [02:59.280] the Washington peace agreement between Rwanda and the DRC.
+- [03:06.260] Well, this is what we want from a leader.
+- [03:10.940] A leader that cares about the people.
+- [03:15.900] We want to live in a safe world, in a safe environment.
+- [03:21.050] We want to unite. That's what we do here today,
+- [03:23.230] that's what we'll do at the World Cup, Mr. President.
+- [03:27.240] And you definitely deserve the first FIFA Peace Prize
+- [03:31.960] for your action for what you have obtained in your way,
+- [03:36.940] but you obtained it in an incredible way
+- [03:39.490] and you can always count, Mr. President, on my support,
+- [03:42.670] on the support of the entire football community
+- [03:44.920] or soccer community to help you make peace
+- [03:48.690] and make the world prosper all over the world.
+- [03:50.890] Thank you very much, Mr. President.
+- [03:52.380] The floor is all yours. Thank you.
+- [03:55.980] (applause)
+- [03:58.030] The President: Well, thank you very much.
+- [03:59.550] This is truly one of the great honors of my life.
+- [04:02.910] And beyond awards, Gianni and I were discussing this,
+- [04:06.090] we saved millions and millions of lives.
+- [04:09.040] The Congo as an example, over 10 million people killed
+- [04:12.140] and it was heading for another 10 million very quickly.
+- [04:15.080] And it just, you know, the fact that we could do that, India,
+- [04:18.530] Pakistan, so many different wars that we're able to end,
+- [04:22.990] in some cases a little bit before they started,
+- [04:25.870] just right before they started.
+- [04:27.290] It was going to be late, but we got them done.
+- [04:29.600] And it's such an honor to be with Gianni.
+- [04:33.170] I've known Gianni for so long.
+- [04:34.470] He's done such an incredible job.
+- [04:36.060] And I have to tell you,
+- [04:37.290] you've set new records on ticket sales.
+- [04:40.710] And not to bring that up
+- [04:42.460] because we don't want to bring a thing like that up right now,
+- [04:45.170] but it's an awfully nice tribute to you
+- [04:47.830] and to the game of football,
+- [04:49.970] or as we call it, soccer, but football.
+- [04:52.670] And that is an amazing thing.
+- [04:55.130] The numbers are beyond any numbers that anybody,
+- [04:58.420] even beyond what Gianni thought was possible.
+- [05:01.840] I want to thank, by the way, my family,
+- [05:05.840] my great First Lady, Melania.
+- [05:08.610] You're right here and thank you very much.
+- [05:15.580] And I think you're going to have an event
+- [05:17.220] the likes of which maybe the world has never seen
+- [05:19.460] based on the enthusiasm that I've seen.
+- [05:22.110] I have never seen anything like it.
+- [05:23.890] We've had a tremendous relationship,
+- [05:25.860] working relationship with Canada.
+- [05:28.440] We have our prime minister of Canada there
+- [05:30.550] and we have our president of Mexico
+- [05:34.490] and we've worked closely with those two countries.
+- [05:37.180] And the coordination and friendship and relationship
+- [05:41.640] has been outstanding and I want to thank you
+- [05:43.270] both very much and your countries very much.
+- [05:45.990] But most importantly I just want to thank everybody.
+- [05:48.880] The world is a safer place now.
+- [05:51.100] The United States one year ago was not doing too well
+- [05:54.920] and now I have to say we're the hottest country
+- [05:56.970] anywhere in the world and we're going to keep it that way.
+- [05:59.460] Thank you all. Thank you. Have a great time.
+- [06:01.860] And Gianni, a tremendous honor. Thank you.
+- [06:04.630] (applause)
+- [15:31.630] ♪ (music playing) ♪
+- [15:41.020] Gianni Infantino: Y ahora, la Presidenta de México,
+- [15:44.980] Claudia Sheinbaum.
+- [15:47.710] (applause)
+- [16:00.510] Gianni Infantino: And now the 45th and 47th President
+- [16:04.400] of the United States, Mr. Donald J. Trump.
+- [16:07.630] (applause)
+- [16:10.350] Gianni Infantino: Mr. President, this way, this way.
+- [16:13.850] Oh, this way. Well you can you can do what you want.
+- [16:18.470] This is your place. So this is the World Cup trophy.
+- [16:24.830] This is the official bowl for the World Cup.
+- [16:27.970] And we are now going to do the draw, ladies and gentlemen.
+- [16:33.560] But before that, as is customary,
+- [16:36.770] there is always a question
+- [16:38.100] that the moderator asks the draw assistant.
+- [16:42.060] So I would like to start with Mr. Carney.
+- [16:48.130] How big a deal is it to co host the World Cup for Canada?
+- [16:53.280] Difficult question, I know.
+- [16:54.660] Prime Minister Carney: But it is the biggest of deals, Gianni.
+- [16:59.170] You know, it's the number one sport
+- [17:01.660] for Canadian boys and girls.
+- [17:03.480] Two-thirds of the country watched the last World Cup.
+- [17:09.590] And we are partnered with the United States and Mexico,
+- [17:13.210] welcoming the world.
+- [17:14.500] There's more than 200 nationalities in Canada,
+- [17:16.990] more than 200 nationalities in FIFA.
+- [17:19.320] The top 48 are coming to North America.
+- [17:22.190] It is going to be the biggest deal ever.
+- [17:25.960] Gianni Infantino: Fantastic. Thank you so much.
+- [17:29.100] Gianni Infantino: (speaking Spanish)
+- [17:55.100] President Sheinbaum: (speaking Spanish)
+- [18:22.170] (applause)
+- [18:27.790] Gianni Infantino: Mr. President, President Trump,
+- [18:30.110] next summer is historic for the United States
+- [18:33.140] in more than one way.
+- [18:35.330] What does it mean to you that the FIFA World Cup
+- [18:38.460] is actually taking place in the United States'
+- [18:42.150] 250th birthday? Special.
+- [18:45.190] The President: For years, Gianni,
+- [18:46.870] they've thought soccer or football
+- [18:49.410] would be so big, so fast.
+- [18:51.270] And I remember, I shouldn't say this
+- [18:53.430] because it was a long time ago,
+- [18:54.910] but I remember watching Pele play on a team
+- [18:58.750] called the Cosmos.
+- [19:00.060] Pele, who is fantastic, as you know,
+- [19:02.010] I assume one of the greats.
+- [19:03.940] Gianni Infantino: (inaudible) one of the greatest.
+- [19:07.400] The President: And he scored three goals that day.
+- [19:11.320] I said that man can play.
+- [19:12.620] That was I was pretty young at that point.
+- [19:15.140] And who know this who knew this was going to happen?
+- [19:17.450] But when you look at what has happened
+- [19:19.870] to football in the United States,
+- [19:23.660] again soccer in the United States.
+- [19:25.580] We seem to never call it that because we have a little bit
+- [19:27.700] of a conflict with another thing that's called football.
+- [19:30.630] But when you think about it, shouldn't it really be called --
+- [19:33.630] I mean, this is football, there's no question about.
+- [19:35.880] We have to come up with another name for the NFL
+- [19:38.450] (inaudible)
+- [19:39.650] It it really doesn't make sense when you think about it,
+- [19:42.000] but this is really football.
+- [19:43.760] But who would have thought it would have come to a level
+- [19:47.330] where you've set your all-time season ticket ratings.
+- [19:51.650] Nobody's ever sold as many tickets,
+- [19:54.190] and you're still a long way from that ball
+- [19:56.860] being kicked down the field.
+- [19:58.150] So I just want to congratulate you.
+- [19:59.990] What an incredible leap this has been,
+- [20:03.000] and congratulations to FIFA.
+- [20:04.740] Gianni Infantino: Thank you.
+- [20:06.080] Thank you, President. Big round of applause,
+- [20:08.390] and the best is still to come, of course.
+- [20:11.420] So let's start with the draw.
+- [20:12.790] I will I will just show you how it works.
+- [20:15.130] I've done a few of them. Don't be scared, right?
+- [20:19.040] So you have to basically mingle the balls a little bit.
+- [20:23.910] You can see I show this for the public, you see.
+- [20:27.900] Mingle. And then one by one we start with Mr. Carney.
+- [20:32.460] You pick one. Wait, wait, wait. Wait, wait. You open it.
+- [20:40.740] You see there is a little paper inside.
+- [20:44.580] You take out the paper, these two things,
+- [20:46.260] you can throw them in here,
+- [20:48.660] and then you can show to the public what you have drawn.
+- [20:53.860] Which for me is FIFA, of course. I'm just the moderator.
+- [20:58.240] Mr. Carney, do you want to start?
+- [21:01.290] I'm ready. Don't forget and pick the right bowl, please.
+- [21:06.190] Already chosen. Okay, let's see.
+- [21:09.960] Which team will be drawn by Mr. Mark Carney.
+- [21:19.070] Oh, Canada, congratulations. Canada, ladies and gentlemen,
+- [21:26.100] the first team drawn in this World Cup.
+- [21:30.490] Group B1 for Canada by the way. We can continue
+- [21:34.580] (speaking Spanish)
+- [21:49.580] President Sheinbaum: Viva Mexico!
+- [21:53.240] (applause)
+- [21:57.900] Gianni Infantino: (speaking Spanish)
+- [22:01.060] President Trump, up to you. Don't forget to mingle, to mix.
+- [22:05.630] The President: I think I know what this is going to be now.
+- [22:09.380] But let's see.
+- [22:10.580] Gianni Infantino: Are you sure? Are you sure this is the bowl?
+- [22:12.410] You want you can still change it if you want.
+- [22:15.550] The President: Does he know something that I don't know?
+- [22:17.640] Let's give it a shot.
+- [22:18.880] Gianni Infantino: Let's give it a shot.
+- [22:20.130] Let's give it a shot. I agree. Okay.
+- [22:27.660] The President: This is shocking.
+- [22:29.290] Gianni Infantino: United States of America.
+- [22:34.000] Excellent. Group D1.
+- [22:35.970] Can I ask all the three of you to lift like this on your chest?
+- [22:42.060] In front of your chest, like this.
+- [22:43.560] Yeah, the name of the country. We'll give a nice photo.
+- [22:48.930] Excellent.
+- [22:50.520] And if I can ask you to come in front here
+- [22:52.780] for another photo with the paper con el papelito, por favor.
+- [22:57.170] There, here where you can see the --
+- [22:59.020] voila, here for another photo
+- [23:00.870] so that everyone can see what you have drawn.
+- [23:04.080] Here we are.
+- [23:05.650] (applause)
+- [23:11.700] Thank you very much. Well done.
+- [23:13.710] Congratulations. Great assistance.
+- [23:16.600] If I may take a selfie with the three of you.
+- [23:23.810] Come, come. Thank you very much. Let's go.
+- [23:31.310] (applause)

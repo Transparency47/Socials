@@ -1,0 +1,671 @@
+<!-- source: https://www.youtube.com/watch?v=jWOP0yam6DM -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: jWOP0yam6DM -->
+<!-- date_published: 2025-10-09T19:42:45+00:00 -->
+<!-- date_accessed: 2026-06-02T02:43:45.971398+00:00 -->
+
+# Transcript: President Trump Participates in a Bilateral Meeting with the President of the Republic of Finland
+
+- [00:03.260] The President: We set a record.
+- [00:04.490] We have both the President of Finland
+- [00:07.130] and we have the Prime Minister of Finland.
+- [00:09.040] And that's never --
+- [00:10.270] I don't ever remember having a President
+- [00:12.290] and a Prime Minister, but that's a great honor.
+- [00:14.940] Thank you very much both for being here.
+- [00:17.400] And, Alex, we've been friends for a long time
+- [00:19.890] and have heard wonderful things about your Prime Minister also.
+- [00:23.090] And we have a big order coming up.
+- [00:25.100] We're buying icebreakers and we're building them together,
+- [00:29.260] for the most part.
+- [00:30.870] We're doing four over there and seven over here.
+- [00:34.160] And we negotiated a pretty tough price, I think.
+- [00:37.890] But I assume you're going to do very well.
+- [00:40.170] But what you're doing is you're going to be teaching us
+- [00:42.130] about the icebreaker business.
+- [00:43.940] Very, very strong. We only have one icebreaker.
+- [00:46.960] In all of that millions and millions of acres,
+- [00:50.350] we only have 1 icebreaker,
+- [00:52.740] and other countries have more than we do.
+- [00:55.190] And we're buying the finest icebreakers in the world.
+- [00:59.600] And Finland is known for making them.
+- [01:01.000] They sort of have almost a monopoly on icebreakers,
+- [01:03.680] if you think about it.
+- [01:04.920] Nobody makes them like Finland. I've heard that for a long time.
+- [01:07.330] So we're going to have a total of 11.
+- [01:10.180] And it's been really an honor working on it.
+- [01:14.080] It was very important.
+- [01:15.460] We were making them, but we didn't make them right.
+- [01:18.100] By the time we finish, we're gonna make them
+- [01:20.360] maybe better than you, but at least as well.
+- [01:22.760] Probably not better, but, at least, as well.
+- [01:25.300] So I appreciate both of you being here.
+- [01:26.950] It's an honor to have both
+- [01:28.160] of your really tremendous reputations,
+- [01:30.140] and it's a great country. Thank you very much.
+- [01:32.580] President Stubb: Yeah, no, thank you.
+- [01:33.850] Thank you, Mr. President.
+- [01:35.110] I mean, I remember our first conversation
+- [01:37.410] just after you'd been elected in November.
+- [01:39.350] The first thing you mentioned was icebreakers. We need them.
+- [01:42.490] And then we've been working on this issue ever since.
+- [01:46.120] And we're happy to announce
+- [01:47.430] that we're basically building 11 icebreakings together,
+- [01:51.960] four of them in Finland, in joint endeavors,
+- [01:54.770] and then seven of them here.
+- [01:56.610] And I think the reason that we've landed in Finland
+- [01:58.780] is that 60 percent of the world's icebreak
+- [02:01.790] are built in Finland. Eight percent are designed.
+- [02:05.040] We've been building them for over 100 years.
+- [02:08.040] And speaking of price and time,
+- [02:09.460] I think we're the country that can provide them half the price
+- [02:12.150] and half the time that others haven't.
+- [02:14.560] And I think it's a huge strategic decision
+- [02:16.600] by the President as well, because we all know
+- [02:19.160] that the Arctic is important strategically,
+- [02:21.830] militarily, and in terms of the economy as well.
+- [02:25.940] And now we can work on this together.
+- [02:28.740] Finland is a strange country in the sense
+- [02:30.620] that we are probably the only country in the world
+- [02:33.760] where all the ports are frozen in the winter.
+- [02:36.570] And that's why we built the know-how in icebreakers.
+- [02:39.730] Now we can work on this together.
+- [02:41.160] I remember the first conversation we had,
+- [02:43.540] you know, you mentioned the fact that Russia has 40
+- [02:46.290] and you need to start ramping this up.
+- [02:48.680] And this is an indication that we're gonna do it
+- [02:51.200] and we're going to do it together.
+- [02:52.400] I also think that this strengthens
+- [02:54.670] our bilateral relations.
+- [02:56.030] I know I come from a small country.
+- [02:58.230] But for us to be able to work together with you
+- [03:01.370] is extremely important from a strategic perspective as well.
+- [03:04.540] So we appreciate the cooperation.
+- [03:06.130] And we're going to deliver the first one in 2028.
+- [03:10.650] The President: Just a little bit before a big event.
+- [03:15.080] That's great. And actually, it's true, we were --
+- [03:18.660] I came here and they were building an icebreaker.
+- [03:20.640] They had no idea what they were doing.
+- [03:22.230] They had idea how much it was going to cost.
+- [03:24.160] They knew nothing.
+- [03:25.630] And we have our Secretary of the Navy right over here.
+- [03:28.480] We're working on a lot more than icebreakers.
+- [03:31.470] We're work on some very, very big and important ships.
+- [03:34.410] But they had no what they we're doing.
+- [03:36.560] And I was with you, and I ended up meeting you
+- [03:40.950] and knowing you and I heard about Finland
+- [03:42.770] and their icebreakers and I said do me a favor
+- [03:45.000] would you have your people take a look
+- [03:46.580] at what these people are doing
+- [03:47.850] and came out that just as I thought.
+- [03:50.490] They had no idea what they were doing
+- [03:52.780] and we got involved and we ended up --
+- [03:55.240] we need we need these ships very badly
+- [03:57.370] because we have we have a lot of territory, more than anybody
+- [04:01.700] and so I'm very honored to have this deal.
+- [04:04.360] Thank you very much. It's gonna be great.
+- [04:06.220] It's going to be a great partnership.
+- [04:08.270] And it's a great honor to have you, Mr. Prime Minister.
+- [04:11.130] Would you like to say something, please?
+- [04:13.310] Prime Minister Orpo: First, Mr. President, thank you very much.
+- [04:14.880] It's a great honor to be here today.
+- [04:17.650] And as the Prime Minister of Finland,
+- [04:19.700] I want to say that this deal is very important to Finland
+- [04:23.110] and our economy,
+- [04:24.700] because our economy is suffering a lot
+- [04:26.460] because of Russian aggression in Ukraine.
+- [04:28.880] And this deal, it means investments,
+- [04:31.530] it means jobs, and jobs means hope.
+- [04:34.680] And that's why this is so important.
+- [04:36.380] And I want thank your leadership on this deal
+- [04:38.800] and this issue. Thank you.
+- [04:40.110] The President: So, you've been affected very badly by the war
+- [04:42.170] going on, the ridiculous war going right now.
+- [04:44.550] Prime Minister Orpo: Yes, because we have
+- [04:47.010] to close the border with Russia.
+- [04:48.480] We have 1,300 kilometers common border with them.
+- [04:52.330] And it affects the atmosphere in Finland, the investments.
+- [04:57.040] And that's why we need good news. People need hope.
+- [05:01.020] The President: So your border is closed,
+- [05:02.550] and that's because you have so many Russians trying to get in?
+- [05:06.950] Prime Minister Orpo: Yes, they started to push
+- [05:09.060] illegal migrants.
+- [05:10.480] So that's why we were forced to go to close.
+- [05:13.520] The President: And people also that don't want
+- [05:14.910] to go into the military, I guess, trying to come through.
+- [05:18.180] President Stubb: Yeah, some of them are escaping.
+- [05:19.910] Fortunately, on our side,
+- [05:21.600] we don't have that problem. In Finland.
+- [05:24.000] The President: No, you have a great military.
+- [05:25.450] President Stubb: Yeah, I mean,
+- [05:26.730] we have compulsory military service.
+- [05:28.590] And as I always say, we've 900,000 men and women
+- [05:31.330] who've done it, including myself and the Prime Minister.
+- [05:34.400] We have 200 --
+- [05:35.660] The President: And you've been fighting Russia for a long time.
+- [05:37.760] So how many years have you been indirectly fighting Russia?
+- [05:41.220] President Stubb: Well, put it this way.
+- [05:42.450] We have managed our relationship
+- [05:44.420] since the 1300s with about 30 skirmishes,
+- [05:47.790] but it's been very peaceful at our border after World War II.
+- [05:52.050] But it's been peaceful at out border
+- [05:54.450] since the Winter War and the War of Continuation.
+- [05:58.550] But I mean, a lot of it is
+- [06:00.090] because we actually have a very large military.
+- [06:03.740] It's the biggest in Europe together with Turkey, Ukraine,
+- [06:07.360] and Poland.
+- [06:08.750] We have over 60 F-18s. We just bought 64 F-35s.
+- [06:13.140] We'll roll out the first one in Texas in December.
+- [06:17.300] We have the biggest artillery in Europe together with Poland.
+- [06:20.180] And as I always say, we don't have it
+- [06:21.570] because we're worried about Stockholm.
+- [06:23.720] The President: Or do you really have,
+- [06:24.960] proportionately, I think, the largest military in the world?
+- [06:27.370] Proportionately.
+- [06:28.720] President Stubb: It's quite big, yes, I have to admit,
+- [06:30.560] but we have it for defense purposes
+- [06:33.680] and also to build a deterrence.
+- [06:35.890] And it's worked, and I think that's one of the reasons
+- [06:37.910] that our relationship is so good as well.
+- [06:39.730] We have the Defense Cooperation Agreement with you.
+- [06:42.750] We're new allies in NATO.
+- [06:45.280] Our defense expenditure is going north of 3 percent.
+- [06:49.540] We work very closely with you and the rest of our allies.
+- [06:53.330] And when you push the ceiling of defense expenditure in NATO
+- [06:57.380] to 5 percent.
+- [06:58.690] You can imagine that a country like Finland
+- [07:00.500] was quite pleased with that
+- [07:01.700] because that means that all of the Allies
+- [07:04.330] have to bring up their defense expenditure
+- [07:06.290] and you basically increased our security
+- [07:08.440] just with that decision in the Hague.
+- [07:10.480] And I have to admit that having been to my first
+- [07:12.520] NATO summit in the summer of 2024,
+- [07:15.740] if someone would have told me that you will move
+- [07:18.030] from 2 percent to 5 percent after Trump enters
+- [07:20.700] I would have said, go see a doctor.
+- [07:24.370] The President: And you were great about it.
+- [07:25.900] Spain has not been.
+- [07:27.110] Spain is the one that didn't do it.
+- [07:29.330] And so I think you people
+- [07:30.530] are going to have to start speaking to Spain.
+- [07:32.190] The only one that did not do it,
+- [07:33.520] the only NATO country that didn't do it is Spain.
+- [07:37.280] And you'll figure what that's all about.
+- [07:40.590] President Stubb: Yeah, I mean, we'll work,
+- [07:41.890] and I think with the leadership also,
+- [07:43.930] Mark Rutte, the Secretary-General of NATO.
+- [07:46.710] I think, you know, there are a lot of commitments
+- [07:48.860] that have to take place, and this, of course,
+- [07:50.830] is going to also increase industrial defense exchanges.
+- [07:56.070] I think we buy four times more military material
+- [07:59.160] here from the U.S.,
+- [08:00.450] and I think it's an essential part
+- [08:02.760] of our whole military setup in Europe.
+- [08:05.820] And it's good to be working on this together.
+- [08:07.560] But there's one thing that I wanted to mention also.
+- [08:10.900] I want to congratulate you
+- [08:12.280] for what we have seen in the past 24 hours in Gaza.
+- [08:15.700] I think it's a historic deal. I went through the 20 points.
+- [08:20.080] It's almost like the best of record.
+- [08:22.810] You really see all the key elements.
+- [08:24.820] And if someone would have said a few weeks back
+- [08:27.440] that you and your team are able to push us to a position
+- [08:30.710] where there will be a ceasefire,
+- [08:32.630] an exchange of prisoners, hostages,
+- [08:36.420] and then a pullback, I would not have believed it,
+- [08:39.660] but it's this is what diplomacy is at its best.
+- [08:42.830] And I think that's a potentially huge deal.
+- [08:44.790] So congratulations to you and your team.
+- [08:46.340] The President: Peace in the Middle East.
+- [08:47.540] President Stubb: Peace in the Middle East, yeah.
+- [08:48.780] The President: And every country came together,
+- [08:50.240] every single country came together,
+- [08:52.030] and people are shocked by it. But it's an amazing situation.
+- [08:55.990] Nobody thought it was going to happen.
+- [08:57.510] Thank you very much. And you've been of help, too.
+- [08:59.610] You help always.
+- [09:00.830] But we are really working more closely together,
+- [09:03.530] having to do with Russia and Ukraine.
+- [09:05.590] And I would have thought that would have been easier
+- [09:07.630] because that would be number eight for me, number eight.
+- [09:10.560] And I would have thought the Russia deal
+- [09:12.090] maybe would have been one of the easier ones.
+- [09:14.030] And unfortunately, last week,
+- [09:15.440] they had over 7,000 soldiers die.
+- [09:20.380] So it's a terrible thing,
+- [09:21.830] but I think we'll be getting there, hopefully soon.
+- [09:24.820] President Stubb: Yeah, probably we'll go, I mean,
+- [09:26.440] or you will be going piece by piece.
+- [09:28.430] I mean there are only so many agreements
+- [09:30.290] that you can get done.
+- [09:31.510] And I think this one will be the next big one.
+- [09:34.060] Now, of course, this one needs to stick.
+- [09:35.820] And I'm sure it will because the incentives are all there
+- [09:40.100] and then we'll continue to work.
+- [09:41.360] I mean the last time I was here in the Oval Office
+- [09:43.390] was with the other European leaders in August.
+- [09:46.950] And I I think we did a lot of good advancement
+- [09:49.340] there on security arrangements.
+- [09:52.070] I think you pushed us, Europeans,
+- [09:53.770] hard not to buy oil and gas from Russia,
+- [09:56.620] which I think is a very correct decision.
+- [09:59.970] Europe just put down its 19th sanctioned package.
+- [10:03.650] I think Russia is actually right now,
+- [10:05.300] both economically and militarily,
+- [10:07.380] not in a very strong place,
+- [10:09.180] and I think it's because of the commitments
+- [10:10.980] that we've made to Ukraine.
+- [10:13.150] So, you know, day by day on this one.
+- [10:16.450] The President: We're going to get it worked out.
+- [10:19.010] Questions, please?
+- [10:22.180] The Press: Question for Presidents, too.
+- [10:24.640] You have time and again said
+- [10:27.180] that one should not underestimate
+- [10:29.170] Mr. Trump's negotiating ability.
+- [10:31.400] Do you personally believe that Mr. Trump
+- [10:33.310] deserves to win the Nobel Peace Prize tomorrow.
+- [10:36.310] President Stubb: Well, I think that's probably a decision
+- [10:37.990] that comes from the Nobel Committee
+- [10:41.050] and my take is that there are two key pieces
+- [10:45.240] that have to be solved in the big picture one
+- [10:47.460] is in the Middle East
+- [10:49.150] and we're seeing there are sorts of that
+- [10:51.370] and then the other one is between Russia and Ukraine.
+- [10:55.600] And once those are solved, you know,
+- [10:57.620] and I don't see any impediments to it to it.
+- [11:03.260] The Press: (inaudible)
+- [11:04.590] President Stubb: This year?
+- [11:05.830] I think probably the best nomination
+- [11:08.000] would be coming from Zelensky and then the King of Jordan.
+- [11:11.720] Those would be two that would come.
+- [11:13.310] But I think you have to,
+- [11:14.810] I mean my experience with the Nobel Peace Prize
+- [11:18.910] comes from Martin Ahtisaari, the former president of Finland.
+- [11:23.090] He got it in 2008 and he got it
+- [11:25.540] because he negotiated three peace agreements
+- [11:27.980] on three different continents.
+- [11:30.070] Namibia and Africa.
+- [11:32.190] Kosovo, Serbia in Europe, and then Aceh in Indonesia.
+- [11:36.340] And his message was always that when you do a peace agreement,
+- [11:39.740] the key is that it looks like an equal match,
+- [11:43.520] that the big guy doesn't win over the small guy,
+- [11:46.130] and vice versa.
+- [11:47.550] But I have to say that the track record
+- [11:49.650] of the President of the United States
+- [11:51.260] in the past seven months,
+- [11:53.420] eight months is rather impressive.
+- [12:00.590] The Press: Thank you so much Mr. President.
+- [12:01.870] First of all, thank you, all of you,
+- [12:03.830] on behalf of the State of Israel
+- [12:05.410] for everything that you're doing for my country.
+- [12:08.440] I wanted to know how do you see the Middle East
+- [12:10.760] seen a year from now under your leadership
+- [12:13.340] and if you see maybe option for normalization
+- [12:16.570] between Israel and Saudi Arabia.
+- [12:20.070] The President: I think it's going to be great.
+- [12:21.510] I think the hostages will be coming back Monday or Tuesday.
+- [12:27.040] I'll probably be there. I hope to be there,
+- [12:29.910] and we're planning on leaving sometime Sunday,
+- [12:35.260] and I look forward to it.
+- [12:36.550] And everybody, I see, is celebrating in Israel,
+- [12:39.480] but they're celebrating in many other countries, too.
+- [12:42.250] A lot of the Muslim and Arab countries, they're celebrating.
+- [12:45.120] Everybody's celebrating. Everybody loves the deal.
+- [12:47.880] So it's a great honor to have been working on it.
+- [12:51.080] And as you know, it's all finalized and done.
+- [12:55.460] We've had a lot of terrifically talented people.
+- [12:58.400] We've have tremendous support from UAE, Saudi Arabia.
+- [13:03.850] Qatar has been unbelievable.
+- [13:06.920] Egypt, as you now, and Jordan. Indonesia, I mean, it's --
+- [13:11.270] I don't want to leave anybody out.
+- [13:12.700] Just so many, so many different countries.
+- [13:15.210] It's been incredible. Nobody has seen anything like it.
+- [13:18.140] So, I think in a year from now, it's going to be great.
+- [13:23.660] The Press: How do you rate your chances of winning
+- [13:25.590] the Nobel Peace Prize tomorrow?
+- [13:26.990] The President: Well, I don't know.
+- [13:28.210] Look, I made seven deals, and now it's eight.
+- [13:33.030] Solved the wars, one going 31 years,
+- [13:36.260] one going 34 years, one going 35 years,
+- [13:39.640] one going 10 years.
+- [13:43.120] I made 7 deals. This would be number 8.
+- [13:47.310] The one I thought that I was going to make,
+- [13:49.000] and I think we will, probably,
+- [13:50.550] is because it's a ridiculous war.
+- [13:52.130] It's a horrible war (inaudible)
+- [13:53.910] since World War II.
+- [13:55.470] You look at the people, you know, is Russia Ukraine?
+- [13:58.090] I think we'll do that, too,
+- [13:59.790] with a lot of reasons for them to do it.
+- [14:03.680] And I think they'll be coming to the table pretty soon.
+- [14:06.720] But this was -- this is the biggest of them all.
+- [14:08.650] This is a big one.
+- [14:09.850] Although I think India and Pakistan is very big.
+- [14:13.170] Two nuclear nations, I made that --
+- [14:14.900] I did that based on trade and because of the tariffs.
+- [14:17.350] If we didn't have tariffs,
+- [14:18.640] you wouldn't have been able to do that.
+- [14:19.940] But I said, if you -- if you guys are going to fight,
+- [14:21.830] I'm putting 100 percent tariffs on each of you.
+- [14:24.820] And they immediately stopped fighting.
+- [14:26.590] And that was going -- that was gonna go nuclear.
+- [14:28.540] You know, that was back and forth.
+- [14:30.490] So I know one thing --
+- [14:31.690] I don't know what they're going to do, really,
+- [14:33.700] but I know this, that nobody in history
+- [14:36.890] has solved eight wars in a period of nine months.
+- [14:42.470] And I've stopped eight wars. So that's never happened before.
+- [14:45.750] But they'll have to do what they do.
+- [14:47.120] Whatever they do is fine.
+- [14:49.840] I know this. I didn't do it for that.
+- [14:51.600] I did it because I saved a lot of lives.
+- [14:54.000] And that's the thing that bothers me so much
+- [14:55.740] about the Russia-Ukraine.
+- [14:57.480] Seven thousand people are dying a week. Young soldiers.
+- [15:01.340] They're almost all soldiers of Ukraine and Russia.
+- [15:04.390] So in theory, does it affect us, no, but it's a terrible thing.
+- [15:09.500] And we'll get that solved too.
+- [15:10.710] But nobody has ever done eight wars.
+- [15:12.860] Nobody's done eight war in 30 years, let alone nine months.
+- [15:20.250] The Press: Are you going to step up the pressure
+- [15:21.690] for a Ukraine deal?
+- [15:22.910] The President: Yeah, we are stepping up the pressure.
+- [15:24.710] We're stepping it up together. We're all stepping it.
+- [15:28.330] NATO has been great.
+- [15:30.250] The leader of NATO, as you know, Mark,
+- [15:31.910] has been fantastic, I think, and he's a fantastic guy.
+- [15:35.500] And they are stepping it up.
+- [15:36.870] And we're selling a lot of weapons to NATO,
+- [15:39.640] and that's going, I guess, to Ukraine for the most part.
+- [15:41.840] That's up to them.
+- [15:43.060] But they're buying weapons from the U.S.
+- [15:44.790] We make the greatest weapons in the world.
+- [15:47.770] You buy our planes and a lot our equipment.
+- [15:50.900] And you have a big force, actually.
+- [15:53.200] You have a tremendous force of equipment.
+- [15:57.050] So, I think we'll get that one done, too, yeah.
+- [16:09.200] The Press: Mr. President, I'm from Finland.
+- [16:14.950] The President: You look great.
+- [16:16.150] The Press: President, you are buying icebreakers from Finland,
+- [16:20.220] but what if Russia and Vladimir Putin attacks Finland?
+- [16:25.130] Would you defend Finland?
+- [16:26.350] The President: I would.
+- [16:27.560] Yes, I would, there, a member of NATO.
+- [16:30.330] I would and they're great people,
+- [16:32.120] but I don't think that's going to happen.
+- [16:33.550] I don't think he's going do that.
+- [16:35.510] I think the chances of that are very, very small.
+- [16:38.170] But it's very interesting
+- [16:39.840] because you have a very big military relative to your size.
+- [16:43.780] You have a powerful military, one of the best.
+- [16:46.980] And, but certainly we will be there to help.
+- [16:53.240] Okay, please
+- [16:55.200] The Press: Mr. President, thank you.
+- [16:57.560] We have a big border, as our president said.
+- [17:00.840] How would you exactly defend Finland and yeah, thank you.
+- [17:06.600] President Stubb: How would you defend Finland?
+- [17:10.000] The President: Vigorously.
+- [17:13.740] President Stubb: Can I just add to that?
+- [17:18.620] We have so much training going on
+- [17:20.730] with American soldiers right now,
+- [17:22.460] so they're getting experience from Arctic conditions,
+- [17:26.410] and we're integrating our militaries together,
+- [17:28.760] working not only through the DCA agreement,
+- [17:31.990] but other ways as well.
+- [17:33.690] We see that day-to-day in the work that we do,
+- [17:36.040] and it's working well.
+- [17:39.770] The President: Please. Where are you from?
+- [17:42.670] The Press: I'm from Finland, too.
+- [17:43.940] President Stubb: Only Finns here.
+- [17:45.160] Yeah, a lot Finns, no?
+- [17:46.560] The President: It's very impressive.
+- [17:48.520] I like them better than our reporters.
+- [17:53.030] The Press: So how do you see the situation
+- [17:54.520] in the Arctic developing?
+- [17:56.050] Are there going to be any mutual plans for Finland and the U.S.?
+- [17:59.720] President Stubb: Well, we will.
+- [18:00.920] I mean, we have a lot of relationships together.
+- [18:03.280] I mean mostly buying our military equipment.
+- [18:06.360] They buy a lot.
+- [18:08.090] They have an order, I guess, 64 F-35s.
+- [18:13.560] And many other things, too. It's a big order.
+- [18:18.430] Big countries don't order that many planes.
+- [18:20.760] Yeah, it's a -- You have a lot of --
+- [18:22.690] a lot of aircraft, a lot of great military --
+- [18:25.010] we make the best military equipment.
+- [18:26.550] They buy a lot from us, so it's very good.
+- [18:30.300] We're going to work together very closely
+- [18:31.830] with Finland and with NATO.
+- [18:33.340] We have a very good relationship.
+- [18:34.680] As you know, I requested that they pay 5 percent,
+- [18:37.750] not 2 percent.
+- [18:39.510] And most people thought that was not going to happen.
+- [18:42.050] And it happened virtually unanimously.
+- [18:44.960] We had one laggard. It was Spain.
+- [18:49.330] You have to call them and find why are they a laggard.
+- [18:51.850] And they're doing well, too. You know what I mean?
+- [18:53.700] Because of a lot of the things we've done, they're doing fine.
+- [18:57.380] They have no excuse not to do this, but that's all right.
+- [19:00.330] Maybe you should throw them out of NATO, frankly.
+- [19:04.950] Please. Go ahead. Tall gentleman.
+- [19:07.710] Nice tall gentleman. Go ahead in the yellow shirt.
+- [19:09.530] The Press: Thank you, Mr. President.
+- [19:10.860] I wanted to change gears really quickly and ask you.
+- [19:12.890] You're going to Walter Reed tomorrow?
+- [19:14.290] Are you? What are you having done?
+- [19:15.890] How are you feeling?
+- [19:17.180] The President: I'm meeting with the troops,
+- [19:18.570] and I'm also going to do a sort of semi-annual physical,
+- [19:22.610] which I do.
+- [19:23.900] And I think I'm in great shape, but I'll let you know.
+- [19:27.570] But, no, I have no difficulty thus far.
+- [19:31.490] Is there wood around here? I'll knock on wood.
+- [19:34.370] No difficulty. Physically, I feel very good.
+- [19:36.510] Mentally, I fell very good, you know, I did.
+- [19:38.750] About six, seven months ago, I do physicals.
+- [19:41.300] I like to -- when I'm around,
+- [19:43.040] I like to check always early -- always be early.
+- [19:46.130] It's a lesson for a lot of people.
+- [19:49.450] But I also did a cognitive exam, which is always very risky,
+- [19:53.580] because if I didn't do well,
+- [19:54.900] you'd be the first to be blaring it.
+- [19:57.060] And I had a perfect score. And one of the doctors said
+- [20:00.110] he's almost never seen a perfect score.
+- [20:02.250] I had a perfect -- a perfect scores.
+- [20:04.800] I got the highest score. And that made me feel good.
+- [20:09.530] When they asked, would I like to do one, I said, yeah.
+- [20:11.880] I said did Obama do it? No. Did Bush do it, no.
+- [20:16.520] Did Biden do it. I definitely (inaudible).
+- [20:18.860] Biden wouldn't have gotten the first three questions right.
+- [20:21.180] No, Biden didn't do it -- Biden should have done it.
+- [20:23.730] I'm actually a person that believes
+- [20:25.480] that if you're president you should do a cognitive exam.
+- [20:29.120] But the last time I took a cognitive exam,
+- [20:32.350] and it was a perfect score. The doctors announced it,
+- [20:36.750] and by the way, not the easiest test.
+- [20:39.890] The first few questions are pretty easy.
+- [20:42.660] Once you get into the middle, it gets a little trickier.
+- [20:45.520] And there aren't a lot of people in this room
+- [20:47.050] that would get every single question wrong.
+- [20:48.430] I can guarantee you that.
+- [20:49.630] President Stubb: You're putting me in a difficult spot.
+- [20:51.230] Next question.
+- [20:52.660] The Press: (inaudible)
+- [20:54.890] the Nobel Peace Prize for way less than you did,
+- [20:57.910] and Obama, President Obama,
+- [21:00.050] got the Nobel Peace Prize for way less.
+- [21:02.610] The President: Doing nothing.
+- [21:03.930] Obama got a prize. He didn't even know what he got --
+- [21:06.470] he got elected and they gave it to Obama
+- [21:09.130] for doing absolutely nothing but destroying our country.
+- [21:13.080] He was not a good president.
+- [21:14.530] The worst president was Sleepy Joe Biden.
+- [21:17.530] But Obama was not a good President.
+- [21:18.870] The Press: Are you (inaudible)?
+- [21:20.070] The President: They gave him a prize.
+- [21:22.190] How many months after -- he won the election,
+- [21:24.500] then they gave him the Peace Prize, right?
+- [21:28.650] My election was a much more important election.
+- [21:33.860] The Press: Now that you're fixing the situation
+- [21:35.930] between Hamas and Israel,
+- [21:37.260] are you going to be taking care of the Hezbollah
+- [21:39.560] or the Lebanese armed forces?
+- [21:42.100] The President: Well get into that.
+- [21:43.350] We'll be able to do that. That will be --
+- [21:45.650] it's a smaller part of the puzzle,
+- [21:47.650] but a very important part.
+- [21:49.040] They have a great new ambassador that I appointed.
+- [21:52.040] Michelle. Great new ambassador. So, yeah. Please.
+- [21:54.760] The Press: You have said that the hostages
+- [21:56.510] will be released on Monday or Tuesday.
+- [21:58.410] What's your strict deadline?
+- [21:59.680] When do they have to get released?
+- [22:01.070] And how do you make sure each party
+- [22:02.350] (inaudible)?
+- [22:03.550] The President: It's going to be around that time, yeah.
+- [22:05.110] They're working on it very hard.
+- [22:07.110] They're in very diverse parts of the Earth, okay.
+- [22:12.110] They're very, very diverse.
+- [22:13.310] Actually, it's -- I think they're going to come through.
+- [22:16.900] I'd be surprised if they didn't. I think it'll happen.
+- [22:21.560] The Press: Thank you, sir.
+- [22:22.890] The 19th point of the 20-point plan
+- [22:25.080] said that in the future there could be conditions
+- [22:27.030] in which the Palestinians might eventually get a state.
+- [22:29.770] Under what conditions do you think
+- [22:31.190] the Palestinians could get a State?
+- [22:32.500] The President: Well, we'll look at it at the time.
+- [22:33.720] We're going to see how it all goes.
+- [22:35.020] And, you know, there's a point at which we may do something
+- [22:37.600] that would be a little bit different
+- [22:39.020] and may be very positive for everybody.
+- [22:41.660] But we'll be looking at that at the time.
+- [22:45.420] And I think we'll get to that.
+- [22:46.980] I think will get to the period, too.
+- [22:48.740] Yeah, please. Yeah, Please.
+- [22:51.520] The Press: Thank you. Mr. President, the United States
+- [22:53.450] has previously said that you would be –
+- [22:57.010] that Europe would have to take more responsibility
+- [22:59.180] for its own security.
+- [23:01.420] Are you or the U.S. planning to withdraw some of the U.S.
+- [23:05.400] Forces from the European soil?
+- [23:08.030] The President: No, but we may move some around a little bit.
+- [23:11.790] I'd ask you that question, Pete. Go ahead.
+- [23:14.040] Secretary Hegseth: I think that's right, Mr. President.
+- [23:15.320] We're looking at -- we are very much heartened
+- [23:17.520] by your leadership to get NATO to rise up to 5 percent,
+- [23:21.930] which means they can take primary responsibility
+- [23:24.060] for defense of the continent.
+- [23:25.540] But that doesn't mean America is abandoning NATO in Europe.
+- [23:28.480] But we could look at where our troops are postured,
+- [23:30.420] what makes the most sense for America and our NATO allies.
+- [23:33.490] The President: We have a lot of troops in Europe as you know.
+- [23:36.700] And we can move them around a little bit.
+- [23:38.780] But, no, basically, we'll be pretty much set.
+- [23:42.260] Go ahead, what's your second?
+- [23:43.580] The Press: My second question would be,
+- [23:44.860] are you planning to import more sanctions on Russia?
+- [23:48.150] The President: I might, yeah, I might.
+- [23:49.970] The Press: Mr. President, your 20-point plan says
+- [23:52.180] we will encourage people to stay.
+- [23:54.300] Can you confirm that as Gaza is rebuilt,
+- [23:57.570] that no one will be forced to leave?
+- [24:00.830] The President: Yeah, nobody is going to be forced to leave.
+- [24:02.370] No, it's just the opposite. This is a great plan.
+- [24:05.410] This is great peace plan.
+- [24:06.650] This is the plan that was supported by everybody.
+- [24:09.610] I mean, as I said, they're dancing
+- [24:12.050] in the streets of many, many countries right now.
+- [24:14.230] It's amazing. I've never seen anything like it.
+- [24:17.140] No, we're not looking to do that at all.
+- [24:19.000] The Press: Mr. President,
+- [24:21.240] could you cut through the politics on the shutdown?
+- [24:24.620] We had another failed vote today.
+- [24:26.070] Can you speak to our viewers from Orlando to Sacramento?
+- [24:28.780] What's your message to some of these families tonight
+- [24:31.000] facing missed paychecks, potential layoffs,
+- [24:33.360] and missed benefits due to the shutdown.
+- [24:35.090] The President: Yeah, I blame the Democrats.
+- [24:36.480] They ought to call their local Democrat representative,
+- [24:39.900] whether it's a senator or a congressman.
+- [24:42.480] And it's their fault. I mean, they admit it.
+- [24:45.360] It's their fault. They campaigned on the fact
+- [24:48.520] that they'd never shut down the country,
+- [24:49.960] but they wanted to shut it down.
+- [24:51.900] And, you know, we have the greatest economy.
+- [24:53.620] We're the hottest country in the world right now.
+- [24:55.430] I think you'd admit that. The hottest country.
+- [24:57.200] We went from a dead country a year ago
+- [24:59.840] to the hottest in the whole world.
+- [25:01.300] So I think they probably don't like that.
+- [25:03.730] But. We're doing great. I mean, we're doing great.
+- [25:06.970] I would say my message is call
+- [25:08.980] your local representative congressman or senator
+- [25:13.460] and tell them to get on the ball.
+- [25:15.650] The Democrats, of course, this problem. Yeah, please.
+- [25:20.650] The Press: Thank you, Mr. President.
+- [25:21.880] The President: Where are you from?
+- [25:23.150] The Press: I'm from Finland.
+- [25:24.480] The President: I like this. So nice.
+- [25:27.590] Here we go with a killer question.
+- [25:30.480] The Press: I would like to circle back
+- [25:31.790] to the icebreaker deal. So Finland and the U.S.
+- [25:35.040] are strengthening their economic partnership for the deal.
+- [25:39.100] What other areas of cooperation with Finland
+- [25:42.360] do you see as possible at this moment?
+- [25:44.150] The President: We're going to be talking about that
+- [25:45.610] in a little while.
+- [25:46.810] We're gonna go into the next-door room,
+- [25:50.200] commonly known as the cabinet room, beautiful room,
+- [25:52.450] and we're gonna be discussing that.
+- [25:54.450] But we'll be doing other things.
+- [25:55.800] It's a wonderful country with wonderful people.
+- [25:58.520] We've had a long-term relationship,
+- [26:00.480] but it's never been as close as it is now.
+- [26:03.340] We'll be doing other things. Go ahead.
+- [26:04.860] President Stubb: I mean, we've been talking about it
+- [26:06.190] a lot with the President, with the two specific fields
+- [26:08.770] where I think Finland has strength.
+- [26:10.250] One is quantum and quantum computing.
+- [26:12.790] And we know that that is basically what gives food
+- [26:16.080] for thought for artificial intelligence.
+- [26:17.960] That's very important.
+- [26:19.250] The second one is actually networks.
+- [26:21.440] And you know that there are two sort of safe
+- [26:23.380] and trustworthy Western networks right now.
+- [26:25.660] One of them is Nokia.
+- [26:27.770] The other one is Ericsson and actually 70 percent
+- [26:31.040] of all broadband in the United States is Nokia.
+- [26:33.950] So one of the things that we could work on together
+- [26:36.240] is creating the 6g space through networks and we actually --
+- [26:41.680] Nokia has 7,000 people working here in the United States
+- [26:44.730] and an American CEO.
+- [26:47.220] The President: Okay, anybody else?
+- [26:50.190] The Press: What is the International
+- [26:51.470] Stabilization Force that's going to deploy to Gaza?
+- [26:54.260] What is that going to look like?
+- [26:56.350] The President: To be determined, really,
+- [26:59.520] to I think there's going to be a large group of people
+- [27:02.340] determining what it will be,
+- [27:03.710] and a group of funding it that are very rich countries
+- [27:07.690] are going to be funding it. People want to see this work.
+- [27:10.710] It's going work. It's absolutely going to work.
+- [27:13.330] And it starts -- it's already started.
+- [27:16.000] We've signed, as you know. Everybody's agreed.
+- [27:18.970] I think Monday is going to a very big day, Monday, Tuesday.
+- [27:22.390] But it's going be depending on where you are.
+- [27:25.690] It's going to be a very big day.
+- [27:26.940] I think it's going be a day of great celebration.
+- [27:30.140] There's -- I've never seen anything like it.
+- [27:32.330] The streets of so many countries right now,
+- [27:34.280] they're just roaring with love
+- [27:36.830] and with praise for the people that did this.
+- [27:41.180] And these are countries that did the whole world
+- [27:43.270] came together for this.
+- [27:44.470] Even Iran -- and I really thank them for it.
+- [27:47.140] Iran came out and said this is a good thing.
+- [27:50.170] It was a very good thing So it was terrific.
+- [27:53.230] It's been a terrific experience for me.
+- [27:55.240] Thank you very much, everybody.

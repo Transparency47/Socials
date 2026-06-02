@@ -1,0 +1,253 @@
+<!-- source: https://www.youtube.com/watch?v=3qynAR2l7X0 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 3qynAR2l7X0 -->
+<!-- date_published: 2025-11-03T01:16:02+00:00 -->
+<!-- date_accessed: 2026-06-02T01:11:20.196901+00:00 -->
+
+# Transcript: President Trump Gaggles with Press on Air Force One, Nov. 2, 2025
+
+- [00:00.800] Hello everybody.
+- [00:02.960] How are you?
+- [00:04.080] Hope you had a nice weekend.
+- [00:06.920] Everyone good?
+- [00:09.680] I think I guess we're doing 60 minutes
+- [00:11.800] tonight.
+- [00:12.960] But I'm not sure we're going to be in
+- [00:14.000] the plane. We may be
+- [00:15.800] midstream. We'll see.
+- [00:19.240] I think they did a good job. Well, we'll
+- [00:20.600] let you know.
+- [00:21.680] We'll see how they cut it.
+- [00:23.920] So,
+- [00:25.080] do you have any questions?
+- [00:32.599] Could be. I mean, a lot of things are
+- [00:34.200] happening a lot of things
+- [00:36.160] They're killing record numbers of
+- [00:37.920] Christians
+- [00:39.400] in Nigeria.
+- [00:41.040] And they have other countries very bad
+- [00:43.120] also. You know that
+- [00:45.280] that part of the world very bad. They're
+- [00:46.720] killing the Christians. They're killing
+- [00:48.200] them in
+- [00:49.320] very large numbers. We're not going to
+- [00:50.760] allow that to happen.
+- [01:02.760] This is a totally different question
+- [01:04.160] than Nigeria issue, right?
+- [01:06.160] It was quite a quite a turn. I'm not
+- [01:08.440] doing that. What happens is I guess
+- [01:10.320] Europe and Russia having discussions.
+- [01:12.840] I'm not involved in those discussions.
+- [01:19.520] No.
+- [01:21.560] No, not really.
+- [01:24.440] Could happen. I could change, but at
+- [01:26.120] this moment I'm not.
+- [01:31.280] What?
+- [01:38.960] There's no final straw.
+- [01:40.880] Sometimes you have to let them fight
+- [01:42.320] out. They're fighting. They're fighting
+- [01:44.080] it out.
+- [01:45.520] It's been a tough war for both. It's
+- [01:47.160] cost a lot of
+- [01:48.680] soldiers, maybe a million. That's a lot
+- [01:50.560] of soldiers.
+- [01:52.000] And it's been tough for Ukraine. It's
+- [01:53.520] been tough for both.
+- [01:55.440] Sometimes you have to let it, you know,
+- [01:57.600] just get fought out. You know, we have
+- [01:59.280] uh
+- [02:00.000] I've settled eight wars. I thought that
+- [02:02.200] that one would be easier than some of
+- [02:04.000] the ones we settled.
+- [02:06.000] And by the way, we got three uh
+- [02:08.520] hostages back. The you know, the
+- [02:10.320] hostages were
+- [02:12.120] uh so sad.
+- [02:13.920] We're talking about dead bodies.
+- [02:16.080] Um
+- [02:17.080] which people call hostages, but
+- [02:20.320] I don't know what you'd call them. I
+- [02:21.360] spoke to the parents.
+- [02:23.600] We got Nutra, you know, from New York.
+- [02:27.560] And uh
+- [02:29.800] from the United States.
+- [02:31.480] And I spoke to
+- [02:33.120] his parents. And and they're thrilled in
+- [02:35.760] one sense, but in another sense,
+- [02:37.280] obviously,
+- [02:39.400] it's not too great.
+- [02:40.920] But we're very happy to have done it. We
+- [02:42.320] have three We have three bodies back
+- [02:44.840] today.
+- [02:46.880] That they found.
+- [02:49.000] We're looking for the remainder of
+- [02:50.960] the bones.
+- [02:56.920] No.
+- [02:58.640] I think it's the most important
+- [03:00.400] decision, one of the most important
+- [03:02.160] decisions
+- [03:03.480] in the history of our country.
+- [03:05.840] Because without tariffs, without our
+- [03:08.200] being able to use tariffs freely,
+- [03:10.160] openly, and
+- [03:11.600] and in every way,
+- [03:13.600] we are
+- [03:14.760] really would suffer tremendously from a
+- [03:16.520] national security standpoint.
+- [03:18.800] The national security of our country is
+- [03:20.640] at stake. It's the biggest I think it's
+- [03:22.520] one of the biggest decisions in the
+- [03:23.960] history of this country.
+- [03:26.280] Other countries use tariffs against us.
+- [03:28.960] If we weren't able to openly and freely
+- [03:31.680] use tariffs against them, I'll give you
+- [03:33.080] an example, China.
+- [03:35.640] That was going to be
+- [03:37.360] a disaster for the world. And I was able
+- [03:39.600] to settle it very quickly, very easily
+- [03:41.240] because I was able to use
+- [03:43.040] tariffs. It's total national security.
+- [03:46.520] And economic health is also part of
+- [03:48.600] national security, by the way. But
+- [03:50.920] without tariffs,
+- [03:52.520] uh we our country would be in great
+- [03:54.640] jeopardy.
+- [03:57.840] No, I don't think so because I don't
+- [03:59.520] want to
+- [04:00.640] call a lot of attention to me. It's not
+- [04:02.480] about me. It's about our country.
+- [04:04.840] I'll be going to Miami. I'm going to
+- [04:06.640] make a speech in front of a large group
+- [04:08.560] of people in Miami. And so,
+- [04:10.360] I wanted to go so badly. I just don't
+- [04:12.240] want to
+- [04:13.240] do anything to deflect the importance of
+- [04:15.800] that decision.
+- [04:17.440] If we don't have tariffs, we don't have
+- [04:19.440] national security.
+- [04:21.120] And the rest of the world would laugh at
+- [04:22.800] us
+- [04:23.640] because they've used tariffs against us
+- [04:25.480] for years and took advantage of us.
+- [04:28.920] And
+- [04:30.080] you see what's happened. We've become
+- [04:31.840] wealthy. Our stock market hit a record
+- [04:34.360] high on Friday.
+- [04:36.680] A record high. It's hit 48 record highs
+- [04:39.040] during my term.
+- [04:40.880] And a large part of that's because of
+- [04:42.560] tariffs and our good trade deals.
+- [04:44.840] Without that, you couldn't make a good
+- [04:46.360] trade deal. And you know, we were
+- [04:47.920] subject to
+- [04:49.480] being abused by a lot of other
+- [04:50.920] countries, including China,
+- [04:53.080] for years. Not anymore. Tariffs have
+- [04:56.360] brought us
+- [04:57.600] tremendous national security.
+- [05:06.320] I've never set deadlines. I do what I
+- [05:08.200] do, but I don't set whether it's
+- [05:10.040] Venezuela or anything else. I don't set
+- [05:12.440] deadlines.
+- [05:14.660] [Music]
+- [05:21.000] Well, how could I answer a question like
+- [05:22.520] that? Are there plans for a strike on
+- [05:24.760] Venezuela? Who would say that? Supposing
+- [05:26.840] there were, would I say that to you
+- [05:28.760] honestly? Yes, we have plans. We have We
+- [05:31.600] have very secret plans.
+- [05:34.640] You know, what kind of a question is it?
+- [05:36.120] Look,
+- [05:37.000] uh
+- [05:38.200] we'll see what happens with Venezuela.
+- [05:39.880] Venezuela has sent us
+- [05:42.280] thousands and thousands, hundreds and
+- [05:44.200] thousands of people from prisons, from
+- [05:46.680] mental institutions, drug addicts.
+- [05:49.640] And so did other countries. That's the
+- [05:51.240] bad I mean, other countries did it too
+- [05:53.760] because we were run by very stupid
+- [05:55.440] people, very, very stupid people.
+- [05:58.080] Biden was the worst president in the
+- [05:59.840] history of our country by far.
+- [06:01.960] We had open borders. And
+- [06:03.760] many countries, the Congo, many
+- [06:05.640] countries, they sent their prisoners.
+- [06:08.240] They sent prisoners,
+- [06:10.000] they sent drug dealers, they sent drug
+- [06:12.240] addicts, they sent anybody, anybody that
+- [06:15.360] they didn't want. They sent them to our
+- [06:17.520] country.
+- [06:18.600] And uh
+- [06:20.400] Venezuela was one of the worst abusers.
+- [06:24.670] [Music]
+- [06:32.680] All they have to do is open up the
+- [06:33.920] country. You know, we voted 14 times to
+- [06:36.720] open the country. We have voted 14 times
+- [06:39.920] to open the country.
+- [06:41.480] And they vote to keep it closed. All
+- [06:43.120] they have to do is vote to open the
+- [06:44.680] country. And we only need five
+- [06:46.600] Democrats.
+- [06:48.600] We have a lot of Democrats. We only need
+- [06:50.240] five. But the Republicans have voted 14
+- [06:53.600] times to open the country.
+- [07:07.360] It's a much easier situation than that.
+- [07:10.120] If they vote to open the country, it's
+- [07:12.000] opened up immediately. We don't even
+- [07:13.520] have to think about that.
+- [07:30.120] I feel very badly. I mean, it's a
+- [07:31.800] terrible thing that's
+- [07:33.800] happened to the family. That's been a
+- [07:35.520] tragic situation.
+- [07:37.920] And uh
+- [07:40.080] it's traumatic. I mean, I feel badly for
+- [07:41.720] the family.
+- [07:50.960] Yeah, I've spoken to him. What about it?
+- [07:54.960] I meet with
+- [07:56.320] Look,
+- [07:57.200] he's one of the great geniuses of our
+- [07:58.960] time.
+- [08:00.200] His chips are 10 year years ahead of
+- [08:02.280] anybody else's.
+- [08:04.000] And you know, I meet with him all the
+- [08:05.520] time. He's a great He's a great American
+- [08:07.320] company. It's now the biggest company in
+- [08:09.000] the world.
+- [08:10.880] Uh
+- [08:11.680] so, what would you like to know? I mean,
+- [08:13.280] Nvidia is a
+- [08:14.800] is really a just a brilliant company.
+- [08:17.920] The chips are 10 years The new Blackwell
+- [08:19.760] that just came out, it's 10 years ahead
+- [08:22.400] of every other chip.
+- [08:24.400] But there's nothing to meet with other
+- [08:25.920] than say, "Congratulations."
+- [08:28.840] But no, we don't give that
+- [08:32.400] We don't give that chip out.
+- [08:39.360] Uh he may be coming. I don't know. I
+- [08:40.880] mean, he's working very hard. We took
+- [08:43.039] sanctions off of Syria to give them a
+- [08:44.840] chance of survival.
+- [08:46.680] And I hear he's doing a very good job.
+- [08:48.600] Thank you very much, everybody.
+- [08:50.480] Uh I'm going to try to watch 60 Minutes,
+- [08:52.360] but
+- [08:53.560] I may be delayed.
+- [08:55.280] Let's see if they treat me better than
+- [08:56.600] they uh
+- [08:57.680] treat other people. Although,
+- [08:59.360] I do say this, they treated Kamala very
+- [09:01.320] well.
+- [09:02.840] I think they changed her answers.
+- [09:05.400] I will try, but we may land just as it
+- [09:08.320] starts, huh?
+- [09:09.680] It's worth a split second. But thank
+- [09:11.760] goodness for TiVo
+- [09:13.800] or something there of, right? TiVo.
+- [09:16.880] We love TiVo. We love TiVo.
+- [09:19.720] One of my favorite One of the greatest
+- [09:21.240] inventions in history. Have a Have a
+- [09:23.040] good time. Thank you. Thank you, Mr.
+- [09:24.520] President.

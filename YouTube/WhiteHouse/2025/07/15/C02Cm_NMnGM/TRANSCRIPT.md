@@ -1,0 +1,431 @@
+<!-- source: https://www.youtube.com/watch?v=C02Cm-NMnGM -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: C02Cm-NMnGM -->
+<!-- date_published: 2025-07-15T19:22:09+00:00 -->
+<!-- date_accessed: 2026-06-02T01:20:26.908756+00:00 -->
+
+# Transcript: President Trump Gaggles with Press Before Departing the White House, July 15, 2025
+
+- [00:00.430] The President: Hello everybody.
+- [00:05.760] We brought our star along here, we're going to Pittsburgh.
+- [00:09.430] We're going to be counting about --
+- [00:11.930] Actually, going to be numbers like nobody's ever heard before.
+- [00:15.320] It's mostly to do with AI.
+- [00:18.470] We have tremendous investments being made,
+- [00:21.460] literally trillions of dollars of investments
+- [00:24.500] being made in our country on AI, artificial intelligence.
+- [00:28.880] I don't know if the word artificial is a good word,
+- [00:31.070] but that's the word. That's what they've chosen.
+- [00:33.590] So I think we're going to have a very successful trip.
+- [00:37.350] We had a good call with the Texas Congressman this morning,
+- [00:40.370] as you probably heard, and that went very well.
+- [00:43.430] And do you have any questions? Yeah.
+- [00:48.490] The Press: Mr. President,
+- [00:49.850] your reaction to the latest numbers
+- [00:51.810] from the Labor Department
+- [00:53.210] saying that inflation rose slightly last month?
+- [00:55.520] The President: Very slight, essentially,
+- [00:59.410] they were exactly as anticipated, very low inflation.
+- [01:03.840] So, what you should do is lower the rate.
+- [01:06.310] The Fed should lower the rate immediately.
+- [01:08.710] The Press: Is it because of tariffs?
+- [01:11.420] Did tariffs --
+- [01:12.760] The President: We had a big win with the Supreme Court
+- [01:14.710] on the Department of Education. We want to, as you know,
+- [01:17.940] we want to bring education back to the states,
+- [01:20.990] take the federal government out of it.
+- [01:23.300] A little tiny bit of supervision,
+- [01:25.720] but very little, almost nothing.
+- [01:27.630] Like to make sure they speak English.
+- [01:29.330] That's about all we need.
+- [01:30.920] The Press: But what would you tell a student
+- [01:32.330] who might be in a struggling failing school right now?
+- [01:34.390] What would you tell them?
+- [01:35.600] The President: Well, we have school choice
+- [01:37.010] and we're getting school choice approved all over the country.
+- [01:40.460] We just got it done in Texas.
+- [01:42.550] And school choice is the answer. Yes?
+- [01:44.480] The Press: Mr. President, the deal with Indonesia --
+- [01:46.150] the deal with Russia is 50 days.
+- [01:47.540] It's been up and down. You talked to Vladimir Putin --
+- [01:50.170] The President: Well, at the end of 50 days,
+- [01:51.510] if we don't have a deal, going to be too bad.
+- [01:55.620] The Press: Should Zelenskyy get more aggressive?
+- [01:57.720] The President: Yeah, the tariffs are going to go on
+- [01:59.390] and other sanctions go on.
+- [02:01.180] The Press: Should Zelenskyy target Moscow?
+- [02:02.960] Should Zelenskyy target Moscow, sir?
+- [02:07.010] Should Zelenskyy target Moscow or deeper into Russia?
+- [02:09.840] The President: No. He shouldn't target Moscow.
+- [02:11.450] The Press: Is that why you gave him more weapons, though?
+- [02:14.740] Are you willing to give long-range missiles
+- [02:17.330] to Ukraine as well?
+- [02:18.590] And are you happy about the 50 days?
+- [02:20.250] The President: No, we're not looking to do that.
+- [02:21.480] The Press: Mr. President,
+- [02:22.710] why are you giving Mr. Putin 50 additional days
+- [02:26.660] to prosecute this war against Ukraine?
+- [02:29.080] The President: Oh, I don't think 50 days is very long.
+- [02:31.860] And it could be sooner than that.
+- [02:33.160] I don't think 50 days is very long.You
+- [02:35.900] should have asked that same question to Biden.
+- [02:38.070] Why did he get us into this war? You should ask that question.
+- [02:40.150] The Press: I did ask that question.
+- [02:41.440] I asked that question to Biden. The President: Yeah.
+- [02:42.660] And what did he tell you? Why did he get us into this war?
+- [02:44.280] The Press: He didn't give me an answer, Mr. President.
+- [02:45.570] The President: You know why he got us in?
+- [02:46.790] Because he's a dummy, that's why.
+- [02:48.400] And you don't, and you don't cover it right.
+- [02:49.960] The Press: I covered it.
+- [02:51.160] The President: But you should be asking that question to Biden,
+- [02:53.560] why did he get us into this war? Because he's incompetent.
+- [02:57.140] It would've never happened if I were president.
+- [02:58.880] The Press: Mr. President, do you (inaudible)
+- [03:00.190] Mr. President, what's the deal with Indonesia
+- [03:02.290] (inaudible)?
+- [03:03.530] The President: So we made a deal with Indonesia.
+- [03:05.210] I spoke to their really great president,
+- [03:07.290] very popular, very strong, smart.
+- [03:10.130] And we made the deal.
+- [03:11.990] We have full access to Indonesia, everything.
+- [03:15.770] As you know, Indonesia is very strong on copper.
+- [03:19.010] But we have full access to everything.
+- [03:20.920] We will pay no tariffs.
+- [03:23.010] So they are giving us access into I-
+- [03:25.560] Indonesia, which we never had.
+- [03:27.680] The President: That's probably the biggest part of the deal.
+- [03:30.310] And the other part is they are going to pay 19 percent
+- [03:34.350] and we are going to pay nothing. It's going to --
+- [03:37.700] I think it's a good deal for both parties.
+- [03:39.900] But we will have full access into Indonesia,
+- [03:44.150] and we have a couple of those deals
+- [03:45.720] that are going to be announced.
+- [03:47.280] India basically is working along that same line.
+- [03:50.480] We're going to have access into India.
+- [03:52.340] And you have to understand,
+- [03:53.560] we had no access into any of these countries.
+- [03:56.010] Our people couldn't go in. And now we're getting access
+- [03:59.160] because of what we're doing with the tariffs.
+- [04:01.840] So they're paying 19 percent and we are not paying anything.
+- [04:06.260] And they're going to have,
+- [04:07.630] they're going to give us full access into Indonesia.
+- [04:10.640] Now, Indonesia has some great product
+- [04:13.220] and they also have some very valuable earths
+- [04:15.760] and various other materials. One of the things, as you know,
+- [04:19.400] they're known for is very high quality copper,
+- [04:22.470] which we'll be using.
+- [04:23.850] The Press: Mr. President, Texas, sir?
+- [04:25.760] Do you believe your tariffs might have led inflation
+- [04:29.200] to increase last month? Do you think they had any role?
+- [04:31.370] The President: Oh, we had very little inflation.
+- [04:33.840] I don't know -- Who do you work for?
+- [04:35.160] The Press: USA Today.
+- [04:36.600] The President: What? The Press: USA Today.
+- [04:37.800] The President: Oh, well, they wrote me a beautiful
+- [04:39.170] article the other day, so I can't get angry at you.
+- [04:40.900] The Press: What about the European Union (inaudible)
+- [04:42.230] The President: USA Today just wrote
+- [04:43.530] a very good article about me.
+- [04:44.790] What's that all about? So I can't get angry at you.
+- [04:48.430] No, there was very little inflation, as you know.
+- [04:50.440] The numbers were very good, very much inside the margin.
+- [04:54.210] So we've had no inflation.
+- [04:55.750] All we have is we're making a fortune.
+- [04:57.670] We are taking in hundreds of billions of dollars.
+- [05:01.690] You saw we had a surplus of $25 billion last month,
+- [05:05.570] which we haven't had in many, many years.
+- [05:07.360] The Press: (inaudible)
+- [05:08.560] about Brazil if they have a surplus in the United States?
+- [05:14.520] The President: We are do it because I got to --
+- [05:15.780] because I'm able to do it.
+- [05:17.560] Nobody else would be able to do it.
+- [05:19.730] We have tariffs going on because we want tariffs,
+- [05:24.200] and we want the money coming into the United States.
+- [05:27.400] But more important than the money,
+- [05:28.890] there's two aspects of tariffs.
+- [05:30.260] There's the money which comes in.
+- [05:32.440] The other aspect is that rather than paying the tariffs,
+- [05:36.230] the country or the company will build in the United States,
+- [05:39.810] make their product in the United States.
+- [05:42.040] And that creates jobs. And I would say of the two,
+- [05:45.680] probably the more important to me is that.
+- [05:47.730] Yeah?
+- [05:49.010] The Press: Are you on Ukraine -- Are you Ukraine's side now?
+- [05:52.920] The President: No, I'm on nobody's side.
+- [05:54.140] I'm -- no. The Press: Why?
+- [05:55.340] The President: I want to -- You know who the side I'm on?
+- [05:57.260] Humanity's side.
+- [05:58.480] I want to stop the killing of thousands of people a week.
+- [06:00.970] The Press: What about the (inaudible)
+- [06:02.210] The President: I want to stop the killing.
+- [06:03.830] I want the killing to stop in the Ukraine-Russia war.
+- [06:07.910] That's the side I'm on.
+- [06:09.260] The Press: (inaudible)
+- [06:10.530] in the Epstein case. What is your
+- [06:15.390] (inaudible)
+- [06:18.330] The President: The Attorney General's
+- [06:19.620] handled that very well.
+- [06:21.770] She is -- she's really done a very good job.
+- [06:25.330] And I think that when you look at it, you'll understand that.
+- [06:28.770] I would like to see that also.
+- [06:30.700] But I think the Attorney General,
+- [06:32.160] the credibility is very important.
+- [06:34.520] And you want credible evidence for something like that.
+- [06:37.980] And I think the Attorney General's handled it very well.
+- [06:48.980] On what? On the -- on what? On what subject?
+- [06:52.850] The Press: Epstein. On Epstein.
+- [06:54.120] There was few of a files that went on Pam Bondi's --
+- [06:56.580] The President: A very, very quick briefing here.
+- [06:58.150] The Press: She's -- she told you --
+- [06:59.350] What did she tell you about (inaudible)
+- [07:00.850] Specifically, did she tell you
+- [07:02.170] at all that you name appears in that filing?
+- [07:04.170] The President: No, no.
+- [07:05.410] She's -- she's given us just a very quick briefing,
+- [07:10.170] and in terms of the credibility of the different things
+- [07:12.700] that they've seen. And I would say that, you know,
+- [07:15.810] these files were made up by Comey.
+- [07:18.230] They were made up by Obama. They were made up by --
+- [07:20.840] But the Biden inform, you know.
+- [07:23.000] We, and we went through years of that with the Russia,
+- [07:27.030] Russia, Russia hoax, with all of the different things
+- [07:29.630] that we had to go through.
+- [07:30.850] The President: We've gone through years of it,
+- [07:32.510] but she's handled it very well and it's going to be up to her.
+- [07:35.410] Whatever she thinks is credible, she should release.
+- [07:38.230] Yeah?
+- [07:39.750] The Press: Mr. President, how many more seats do you
+- [07:42.590] want the Republicans to draw?
+- [07:44.050] The President: Five.
+- [07:45.280] The Press: And then what if California, New York,
+- [07:47.520] Illinois and other blue states (inaudible)
+- [07:49.000] The President: Yeah, well that's okay too.
+- [07:50.270] But five, I think we get five.
+- [07:52.610] And there could be some other states.
+- [07:54.260] We're going to get another three or four or five in addition.
+- [07:57.640] Texas would be the biggest one. And that'll be five.
+- [08:00.360] The Press: (inaudible) Mr. President.
+- [08:02.070] (inaudible)
+- [08:03.480] The President: No, no, I just, a very simple redrawing.
+- [08:05.600] We pick up five seats.
+- [08:07.420] But we have a couple of other states
+- [08:09.080] where we'll pick up seats also.
+- [08:10.970] The Press: (inaudible)
+- [08:13.880] with Fed Chairman Jerome Powell.
+- [08:15.410] When was the last time you spoke with him?
+- [08:17.140] The President: Well, when he was in my office.
+- [08:18.440] The Press: And what did you tell him
+- [08:19.640] when he was in your office?
+- [08:20.950] The President: I told him he's doing a very bad job.
+- [08:23.000] He's way late. That's why I call him too late.
+- [08:25.890] Jerome Powell is too late. He's way late.
+- [08:29.270] Interest rates should be coming down.
+- [08:31.740] We're -- We have a very, very successful country.
+- [08:34.800] We should have the lowest interest rate
+- [08:36.880] anywhere in the world. And we don't.
+- [08:39.450] Jerome Powell has done a terrible job and frankly,
+- [08:42.200] I don't think he could do a worse job.
+- [08:43.740] The Press: Is he not going (inaudible)
+- [08:44.950] The President: He's called everything wrong.
+- [08:46.440] So they had a report come out the other day,
+- [08:48.360] 71 different economists and me. You know who was right? Me.
+- [08:52.410] The Press: Are you (inaudible)
+- [08:53.620] Are you going to appoint him for another term?
+- [08:55.130] The President: You know that?
+- [08:56.410] I was right. I do know that. I did know it.
+- [08:57.840] The Press: Mr. President, are you going to appoint
+- [08:59.520] Mr. Powell to another term as Fed Chair?
+- [09:02.760] The President: You must be kidding.
+- [09:04.190] The Press: Have you started interviewing his replacements?
+- [09:06.500] The President: You must be kidding.
+- [09:07.790] The Press: What are your thoughts on (inaudible)
+- [09:09.130] -- have you started (inaudible)
+- [09:13.060] The President: That's a funny one coming.
+- [09:14.970] You had to waste a question like that.
+- [09:16.570] The Press: Mr. President,
+- [09:17.900] are you still negotiating with the EU on tariffs?
+- [09:20.100] Are still negotiating with the EU?
+- [09:22.390] The President: No. We are talking to the EU.
+- [09:25.320] And we're making progress.
+- [09:26.680] But look, you know, we already have a deal with the EU.
+- [09:29.200] It's called the letter that was sent out.
+- [09:30.880] I think it was 30 percent. That's the EU.
+- [09:33.580] But we at the same time, we are talking.
+- [09:36.380] The Press: What happens if the EU retaliates?
+- [09:40.180] The President: No, no. Go ahead.
+- [09:41.500] The Press: Mr. President, (inaudible)
+- [09:42.880] Andrew Cuomo staying in the New York City Mayor's race.
+- [09:45.630] Andrew Cuomo staying in the New York City Mayor's race?
+- [09:48.360] The President: I think he should stay.
+- [09:49.620] I think he has a shot.
+- [09:50.840] The Press: Would you prefer him over --
+- [09:52.110] The President: Well, I don't want to say.
+- [09:53.330] You know, I'm a Republican, he's a Democrat or an Independent.
+- [09:56.970] No, I think Andrew would have a good shot of winning.
+- [10:00.590] Gotta run a tough campaign.
+- [10:02.210] He's -- you know, he is running against the communists.
+- [10:05.090] I would think that he would have a good shot of winning.
+- [10:07.780] The Press: (inaudible)
+- [10:15.230] The President: We're going to be meeting
+- [10:16.530] with the British Prime Minister, very respected.
+- [10:20.210] And we are going to have a meeting with him,
+- [10:22.970] probably in Aberdeen.
+- [10:25.090] And we're going to do a lot of different things.
+- [10:27.560] And we're going to also refine the trade deal that we've made.
+- [10:31.160] So we'll be meeting mostly with the --
+- [10:33.810] at probably one of my properties.
+- [10:35.700] Or maybe not, depending on what happens.
+- [10:37.690] But we'll be in Aberdeen in Scotland,
+- [10:40.930] meeting with the Prime Minister.
+- [10:42.380] The Press: Do you have a message for (inaudible)
+- [10:44.790] Mr. President, do you have a message for the EU
+- [10:46.820] if they retaliate for your tariff?
+- [10:49.680] The President: Well, I don't know how they can retaliate.
+- [10:51.560] You know, they've made a lot of money.
+- [10:52.790] They've treated us very badly,
+- [10:54.200] but now they're treating us very nicely.
+- [10:56.270] And I think we'll end up,
+- [10:57.870] I think everybody's going to be happy with the EU.
+- [11:00.650] The Press: What's your preferred
+- [11:01.970] (inaudible) -- Mr. President,
+- [11:03.770] any plans to meet with Pope Leo yourself?
+- [11:07.750] The President: Not a plan. I would do it.
+- [11:09.250] I have a lot of respect. I really like his brother.
+- [11:11.840] His brother is a major, serious Trumper.
+- [11:15.360] You know that? He's MAGA all the way.
+- [11:17.850] I like the Pope's brother, and I think I'd like the Pope.
+- [11:21.180] But the Pope's brother lives in Florida.
+- [11:23.290] I met him and he is MAGA,
+- [11:25.500] he's got MAGA signs all over the house.
+- [11:27.970] He likes Trump and I like him. All right, how about you?
+- [11:34.550] The Press: (inaudible) President (inaudible) death?
+- [11:39.060] The President: Well, we're going to see what happens
+- [11:40.570] with President Putin.
+- [11:42.340] So far I've been very disappointed
+- [11:44.320] with President Putin.
+- [11:45.770] I've solved a lot of wars in the last three months,
+- [11:48.790] but I haven't gotten this one yet.
+- [11:51.040] This is a Biden war. It's not a Trump war.
+- [11:54.350] I'm here to try and get us out of that mess.
+- [11:57.220] The Press: (inaudible)
+- [12:02.800] The President: Any messages for what?
+- [12:06.310] Yeah, go ahead. Do I have a what?
+- [12:08.220] The Press: Listen, I'm from (inaudible)
+- [12:12.610] The President: For the people of Brazil?
+- [12:14.750] Are you from Brazil?
+- [12:15.990] The Press: I am. (inaudible) anywhere of that?
+- [12:24.950] The President: He is going to trial now, right?
+- [12:27.380] The Press: Yeah.
+- [12:28.580] The President: When is that trial starting?
+- [12:30.450] The Press: (inaudible)
+- [12:33.560] The President: When is the trial for Bolsonaro starting?
+- [12:37.180] When is it -- The Press: When is it?
+- [12:38.430] (inaudible) months ago.
+- [12:40.570] The President: How is it going?
+- [12:42.760] The Press: Now, they are after him, finding him guilty.
+- [12:46.370] The President: But they haven't found him guilty, have they?
+- [12:49.260] But have they found him guilty? No. Look, here's a sub.
+- [12:55.780] President Bolsonaro is a good man.
+- [12:58.430] I've gotten to know a lot of prime ministers,
+- [13:00.820] and presidents, and kings and queens, and I know I'm --
+- [13:04.170] And I'm pretty good at this.
+- [13:05.520] President Bolsonaro is not a dishonest man.
+- [13:08.630] He loves the people of Brazil.
+- [13:10.840] He fought hard for the people of Brazil.
+- [13:12.970] He negotiated trade deals against me
+- [13:15.180] for the people of Brazil.
+- [13:16.500] And he was very tough. And he was tough because he,
+- [13:19.380] he wanted to do a good deal for his country.
+- [13:21.640] He was not a dishonest man.
+- [13:23.810] And I believe it's a witch hunt and it shouldn't be happening.
+- [13:27.170] And it's not that I know him that --
+- [13:29.650] Look, he's not like a friend of mine.
+- [13:32.090] He's somebody that I know, and I know him
+- [13:34.830] as a representative of millions of people.
+- [13:38.230] Brazilians, they're great people.
+- [13:40.540] And he loves the country,
+- [13:41.930] and he fought hard for those people,
+- [13:43.940] and they want to put him in jail.
+- [13:45.660] And I think that's a -- witch hunt,
+- [13:47.760] and I think it's very unfortunate.
+- [13:50.630] And nobody's happy with what Brazil is doing
+- [13:53.410] because Bolsonaro was a respected president,
+- [13:57.070] very respected.
+- [13:58.270] The Press: You say that you want Adam Schiff brought to justice.
+- [14:04.210] The President: I would love to see him brought to justice.
+- [14:06.000] I think it's -- The Press: Is that jail?
+- [14:07.290] The President: I think, I'll tell you what,
+- [14:08.650] I think Adam Schiff is one of the lowest of the low.
+- [14:11.890] I would love to see him brought to justice.
+- [14:14.650] He is a dishonest, crooked guy.
+- [14:17.050] I don't know about the individual charge
+- [14:19.440] if that even happens,
+- [14:21.030] but Adam Schiff is a serious lowlife.
+- [14:23.550] The Press: And tomorrow morning here in Washington,
+- [14:25.780] AOC is posting, go
+- [14:28.530] (inaudible) for breakfast. Were you invited?
+- [14:32.700] The President: I'd love to be. I'd really love to go.
+- [14:34.470] I mean, I look forward to meeting them both.
+- [14:36.820] I know them both very well through what I read
+- [14:39.130] and through what I see. Look, he's a communist.
+- [14:43.450] I don't think our country's ready for a communist,
+- [14:45.850] but we're going to see.
+- [14:47.100] And I don't think that race is over yet either.
+- [14:49.300] You do have a couple of people running against
+- [14:52.000] and I, it'll be an interesting thing.
+- [14:54.420] Things are coming out about him which aren't good.
+- [14:57.490] And, you know, AOC, look.
+- [15:00.930] I think she's very nice, but she's very low IQ,
+- [15:04.980] and we really don't need low IQ.
+- [15:07.460] Between her and Crockett, we're going to give them
+- [15:09.750] both an IQ test to see who comes out best.
+- [15:13.060] Now, I took my test, I took a real test
+- [15:16.630] at Walter Reed Medical Center, and I aced it.
+- [15:19.870] I got every one of all those questions right.
+- [15:23.070] Now it's time for them to take a test.
+- [15:25.320] Anyway, have a good time.
+- [15:27.060] The Press: (inaudible)
+- [15:28.730] The President: I like Dan Bongino, yeah.
+- [15:30.150] The Press: Mr. President, do you think Putin respects you
+- [15:33.690] and takes your threats seriously?
+- [15:41.650] The President: I think so.
+- [15:46.490] The Press: One second. They get excited over you, right?
+- [15:48.550] The President: They do. They get excited over you.
+- [15:50.950] The Press: I don't know why. First question.
+- [15:53.950] First, Letitia James, alleged mortgage fraud.
+- [15:56.780] Now we have Adam Schiff allegedly
+- [15:59.260] committed mortgage fraud at all. Your thoughts on that?
+- [16:01.940] The President: Well, I just saw it.
+- [16:03.140] And I think the thing with Adam Schiff is very serious,
+- [16:06.370] and I think what they have on Letitia James is very serious.
+- [16:10.120] That's a very, very serious situation.
+- [16:13.040] But I have to leave that up to the district attorneys,
+- [16:16.620] and to the prosecutors,
+- [16:18.070] and to the attorney general, most importantly.
+- [16:20.300] The Press: Should Letitia James have a, a law license
+- [16:22.460] based upon the alleged violations of mortgage fraud?
+- [16:25.330] The President: Well, they look pretty open and shut to me
+- [16:27.340] but, you know, I'm not the jury.
+- [16:29.950] I'm not the jury. No, it looks very serious.
+- [16:32.940] And Adam Schiff looks very serious.
+- [16:35.010] Look, he's a sleazeball, everybody knows it.
+- [16:37.770] And I was a little surprised,
+- [16:40.840] I thought he would've covered his bases
+- [16:42.440] a little bit better than that.
+- [16:44.050] The President: Adam Schiff is a lowlife.
+- [16:46.190] He deserves what he gets.
+- [16:47.570] The Press: Let's talk about the Genius Act
+- [16:48.790] that you just pushed out.
+- [16:50.030] Let's talk a little bit about that.
+- [16:51.370] The President: Yeah, we're going to do that
+- [16:52.650] and we're going to have -- we have great support for it.
+- [16:55.470] It's a beautiful act. It's the Genius Act.
+- [16:58.290] It's a beautiful act. I even like the name of it
+- [17:01.250] because we need smart people in our country.
+- [17:03.720] Thank you, Brian.
+- [17:04.940] The Press: (inaudible)
+- [17:07.530] -- have you spoken to President Putin
+- [17:09.490] since the announcement (inaudible)
+- [17:11.735] (press talking simultaneously)

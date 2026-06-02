@@ -1,0 +1,171 @@
+<!-- source: https://www.youtube.com/watch?v=JhJ9WO5nlu4 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: JhJ9WO5nlu4 -->
+<!-- date_published: 2025-06-17T16:28:02+00:00 -->
+<!-- date_accessed: 2026-06-02T01:24:01.815700+00:00 -->
+
+# Transcript: President Trump Participates in a Pull Aside with the Prime Minister of the United Kingdom
+
+- [00:00.880] Okay, thank you very much. Uh, we all
+- [00:03.600] know the great prime minister of the UK
+- [00:05.759] and we just signed a document. This is
+- [00:09.280] Sorry about that. This is it.
+- [00:13.759] A very important document. Little windy
+- [00:16.480] out here. Give me that. We just signed
+- [00:18.720] it and it's done. And so we have our uh
+- [00:22.160] trade agreement with the European Union
+- [00:25.519] and it's a fair deal for both going to
+- [00:28.160] produce a lot of jobs, a lot of income
+- [00:30.880] and we have other many many other ones
+- [00:33.920] coming but you see the uh the level of
+- [00:36.559] enthusiasm is very good but the
+- [00:38.640] relationship that we have is fantastic.
+- [00:40.800] So I just want to congratulate you. But
+- [00:43.520] Donald, thank you very much. This now
+- [00:46.480] implements on car tariffs and aerospace.
+- [00:50.079] our really important agreement and so
+- [00:52.000] this is a very good day for both of our
+- [00:54.000] countries a real sign of strength. Thank
+- [00:56.320] you again, Donald. A really important
+- [00:58.320] day for both of us. Great people. Great
+- [01:00.960] people.
+- [01:04.559] Oval Office. Not much. No, not much.
+- [01:07.520] This is implemented.
+- [01:10.240] Ask a question, please. G7
+- [01:14.560] Israel and Iran, but you are the key to
+- [01:18.000] unlocking that. That's right. And here I
+- [01:20.080] am. And here you are. So, can I ask you,
+- [01:22.320] sir, have you spoken to Prime Minister,
+- [01:27.280] when might you speak to? I've spoken to
+- [01:29.119] everybody. What will you say? Israel is
+- [01:32.720] doing very well as you probably noticed.
+- [01:36.159] And I gave Iran 60 days and they said,
+- [01:42.240] "No, and the 61st you saw what happened,
+- [01:45.520] day 61."
+- [01:47.360] Uh so I'm in constant touch and as I've
+- [01:51.280] been saying I think a deal will be
+- [01:52.799] signed or something will happen but a
+- [01:54.560] deal will be signed
+- [01:57.119] and I think Iran is foolish not to sign
+- [01:59.360] one
+- [02:01.680] Netanyahu of attacking them to
+- [02:04.719] deliberately derail your nuclear plan.
+- [02:07.280] What do you say to that? Do you think
+- [02:08.959] that's No, they look Iran should have
+- [02:11.599] signed the deal. If it would help bring
+- [02:13.360] Iran to the negotiating table, would you
+- [02:15.599] guarantee that the US not get involved
+- [02:17.520] militarily. Well, I think this I think
+- [02:19.120] Iran basically is at the negotiating
+- [02:21.200] table where they want to make a deal and
+- [02:23.599] as soon as I leave here, we're going to
+- [02:25.200] be doing something, but I have to leave
+- [02:27.760] here. I have, you know, this commitment.
+- [02:29.360] I have a lot of commitments. I have a
+- [02:30.640] commitment to a lot of countries,
+- [02:32.480] including the UK where we just signed
+- [02:34.160] our deal.
+- [02:36.160] Mr. President, where where are you
+- [02:38.319] settling on steel tariffs with respect
+- [02:40.319] to UK? Are those going to zero or they
+- [02:42.959] We're going to we're going to let you
+- [02:44.239] have that information in a little while.
+- [02:47.040] talks on on US Russia talks when will
+- [02:49.760] they restart? They're starting already.
+- [02:52.640] Mr. President, do you agree to the
+- [02:54.319] European push to to apply more sanctions
+- [02:57.280] on Russia? Does the US support that?
+- [02:59.599] Well, Europe is saying that, but they
+- [03:01.519] haven't done it yet. Let's see them do
+- [03:03.440] it first earlier that you could sanction
+- [03:06.560] Russia. Why wait? Why wait? Because I'm
+- [03:09.599] waiting to see whether or not a deal is
+- [03:11.280] set. Can you guarantee the UK? And don't
+- [03:13.840] forget, you know, sanctions cost us a
+- [03:15.760] lot of money. When I sanction a country,
+- [03:18.640] that costs the US a lot of money. A
+- [03:20.800] tremendous amount of money. It's not
+- [03:22.319] just let's sign a document. You're
+- [03:24.480] talking about billions and billions of
+- [03:26.400] dollars. Sanctions are not that easy.
+- [03:28.560] It's not just a one-way street.
+- [03:30.640] President submarine agreement. Is that
+- [03:33.920] still proceeding? You can sort of review
+- [03:36.560] of that. Yeah, we're proceeding with
+- [03:38.879] that. It's a really important deal to
+- [03:40.400] both of us. I think the president is
+- [03:41.840] doing a review. We did a review when we
+- [03:43.599] came into government. So that makes good
+- [03:45.440] sense to me. But it's a really important
+- [03:47.440] We're very longtime partners and allies
+- [03:50.319] and friends and we become friends in a
+- [03:52.799] short period of time. He's slightly more
+- [03:54.720] liberal than I am to put it. We stand
+- [03:57.120] slightly on the left. For some reason we
+- [03:59.360] get along. We make it work.
+- [04:02.799] Russia.
+- [04:05.280] Um there are quite a few British voters
+- [04:07.439] who worry side with the Russians over
+- [04:10.080] Ukraine war. Can you reassure? I don't
+- [04:12.640] know. I just You know what? I don't
+- [04:14.400] saving lives. I only care about saving
+- [04:17.199] lives. We have nothing to do with it
+- [04:18.799] except that that Biden stupidly let us
+- [04:21.199] get into that mess and gave them $350
+- [04:24.240] billion. $350 billion. And yet, despite
+- [04:28.320] that, you saw how we did in the Middle
+- [04:29.919] East. We took in 5.1 trillion dollars.
+- [04:32.720] We have 15 trillion dollars almost
+- [04:34.880] looking around that number going to be
+- [04:36.880] invested in the in the US. So, the money
+- [04:39.680] is not the thing in this case. It's
+- [04:41.919] 5,000
+- [04:43.440] young people are being killed every week
+- [04:45.759] in Russia Ukraine. And if I can stop
+- [04:48.080] that, I'll be very happy. They're
+- [04:49.840] Ukrainian and they're Russian. So you
+- [04:52.320] could say, "What am I doing?" But I'd
+- [04:53.680] like to see if I could stop. Would you
+- [04:55.280] consider going Israel can fully
+- [04:57.360] eliminate the threat that Iran poses
+- [04:59.440] this nuclear threat that they
+- [05:02.880] Who said that? No. I'm asking if you
+- [05:04.479] believe they can. Well, it doesn't. It's
+- [05:06.639] irrelevant. Something's going to happen.
+- [05:08.320] Mr. President, would you consider
+- [05:09.840] traveling to the as part of any talks
+- [05:12.479] with broker deal. Yeah. Yeah. But I
+- [05:14.400] think we're doing pretty well. We're
+- [05:15.680] talking. We have a thing called the
+- [05:17.680] telephone. So, we're talking but but
+- [05:20.240] it's it's always better to talk in
+- [05:22.400] person. Mr. President, do you want to
+- [05:23.759] see in Iran?
+- [05:26.639] I want to see no nuclear weapon in Iran
+- [05:29.520] and we're well on our way to making sure
+- [05:31.360] that happens. We've had a discussion
+- [05:33.120] about that this morning. There's a in
+- [05:34.720] the G7 absolute clarity in relation to
+- [05:37.199] the nuclear program. We do not want to
+- [05:38.720] see it. Mr. President, Do you ever
+- [05:42.160] future? What?
+- [05:47.199] Uh, the UK is very well protected. You
+- [05:49.759] know why? Because I like them. That's
+- [05:52.160] why. That's their ultimate protection.
+- [05:54.240] Thank you very much. Uh, the prime
+- [05:56.000] minister's done a great job. I want to
+- [05:57.759] just tell that to the people of the
+- [05:59.759] United Kingdom. He's done a very, very
+- [06:01.919] good job. You know, he's done what other
+- [06:03.919] people, they've been talking about this
+- [06:05.360] deal for six years, right? Six years.
+- [06:07.520] and he's done what they haven't been
+- [06:09.199] able to do. So, he's done really a very
+- [06:11.120] good job.
+- [06:17.120] I I don't know what Dr. Carlson is
+- [06:19.039] saying. Let him go get a television
+- [06:20.639] network and say it so that people
+- [06:22.639] listen. Thank you.
+- [06:26.880] Yeah, a lot of them. A lot of them could
+- [06:29.680] have

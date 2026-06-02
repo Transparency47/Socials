@@ -1,0 +1,536 @@
+<!-- source: https://www.youtube.com/watch?v=w-rK1_CmG5A -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: w-rK1_CmG5A -->
+<!-- date_published: 2025-12-28T22:17:29+00:00 -->
+<!-- date_accessed: 2026-06-02T02:39:38.483650+00:00 -->
+
+# Transcript: President Trump Delivers Remarks in a Bilateral Meeting with the President of Ukraine
+
+- [00:06.610] The President: Well, thank you very much.
+- [00:07.870] We had a terrific meeting. We discussed a lot of things.
+- [00:13.930] As you know, I had an excellent phone call
+- [00:15.420] with President Putin that lasted for over two hours.
+- [00:18.830] We discussed lot of points.
+- [00:21.220] And I do think we're getting a lot closer, maybe very close.
+- [00:26.600] The President and I just spoke to the European leaders.
+- [00:31.020] They were President Emmanuel Macron of France,
+- [00:34.980] President Alexander Stubb of the Republic of Finland,
+- [00:40.170] President Karol Nawrocki of the Republic of Poland,
+- [00:45.770] Prime Minister Jonas Gahr Store of the Kingdom of Norway,
+- [00:51.520] Prime Minister Giorgia Meloni
+- [00:53.860] of the Italian Republic, Prime Minister Keir
+- [00:58.440] Starmer of the United Kingdom, of Britain,
+- [01:02.260] and Northern Ireland.
+- [01:05.520] Chancellor Friedrich Merz, the Federal Republic of Germany,
+- [01:10.670] Secretary General Mark Rutte,
+- [01:13.740] the North Atlantic Treaty Organization,
+- [01:17.350] NATO, President Ursula von der Leyen
+- [01:22.080] of the European Commission.
+- [01:23.380] We spoke to all of those great leaders.
+- [01:25.810] They're all great leaders,
+- [01:27.740] and we had a great talk with them after we were completed.
+- [01:31.830] We thought it was appropriate to speak with them.
+- [01:34.830] And our meeting was excellent.
+- [01:36.920] We covered, somebody would say, 95 percent.
+- [01:39.840] I don't know what percent,
+- [01:41.130] but we have made a lot of progress on ending that war,
+- [01:45.330] which is really the certainly the most deadly war
+- [01:48.390] since World War II,
+- [01:49.880] probably the biggest war since WWII.
+- [01:53.370] And I want to thank Steve Witkoff, who's here,
+- [01:55.630] and I'd like to thank Jared, who is here someplace.
+- [01:58.480] Thank you, Jared. And thank you, Steve.
+- [01:59.920] What a great job you've done. Jared Kushner, Steve Witcoff.
+- [02:04.800] And Marco Rubio is here. Thank you, Marco.
+- [02:09.010] And Pete Hegseth is here, doing a --
+- [02:11.900] those two people are doing an unbelievable job.
+- [02:14.420] And the four people on this one are doing --
+- [02:18.020] I don't think anybody could do it,
+- [02:19.310] and we'll see if it gets done, but it's very close, certainly.
+- [02:21.610] Nobody would even have a chance of getting it
+- [02:25.090] to where it is right now.
+- [02:26.360] Nobody would have thought that was possible.
+- [02:29.050] So I just want to say we've done very well.
+- [02:30.720] We've had discussions on just about every subject.
+- [02:34.820] And that includes with President Putin before.
+- [02:38.120] And we went into great detail,
+- [02:40.800] and we likewise went into detail today.
+- [02:44.030] And it was an honor to have you at Mar-a-Lago and have lunch.
+- [02:46.440] I hope you enjoy the food.
+- [02:48.600] Your people enjoy the foods, I can tell you that.
+- [02:50.690] Your big, strong people. Your general over there.
+- [02:53.240] It looks like central casting. I want to also, by the way,
+- [02:57.220] speaking of generals, we have a great general.
+- [02:59.700] General Raising Caine, who is here someplace.
+- [03:02.240] Thank you, General. Thank you very much. He's great.
+- [03:05.340] So, Mr. President, maybe you want to say a few words,
+- [03:09.550] and then we'll speak over the next couple of weeks.
+- [03:11.830] We'll speak probably quite a bit,
+- [03:13.210] but we'll speak tomorrow.
+- [03:14.410] Thank you so very much, appreciate it.
+- [03:15.910] President Zelenskyy: Thank you so much.
+- [03:17.130] Thank you, Mr. President. Thank you for everything.
+- [03:19.080] Dear colleagues, first of all,
+- [03:20.370] I would like to thank President Trump
+- [03:23.190] for a great meeting at this amazing place
+- [03:26.490] in his home in Mar-a-Lago.
+- [03:28.570] And we had really great discussions on all the topics,
+- [03:32.270] and we appreciate the progress that was made
+- [03:34.260] by American and Ukrainian teams in these recent weeks.
+- [03:39.390] Special thanks to Steve Witkoff and Jared Kushner,
+- [03:42.560] and thank you for their engagement and full commitment
+- [03:47.940] and also to our team,
+- [03:49.700] and first of all to Rostem Umerovian,
+- [03:51.730] General Gnatov, and to all our teams.
+- [03:54.520] And we discussed all the aspects of the peace framework,
+- [03:58.140] which includes, and we have great achievements,
+- [04:00.700] 20-point peace plan, 90 percent agreed,
+- [04:03.650] and U.S.-Ukraine security guarantees, 100 percent agreed.
+- [04:07.350] U. S.- European-Ukrainian security
+- [04:08.840] guarantees almost agreed,
+- [04:10.760] military dimension 100 percent agreed.
+- [04:13.990] Prosperity plan being finalized
+- [04:15.810] and we also discussed the sequencing
+- [04:18.140] of the following actions.
+- [04:19.850] And we agree that security guarantees
+- [04:22.220] is a key milestone in achieving lasting peace,
+- [04:26.850] and our teams will continue working on all aspects.
+- [04:30.820] We also had a joint productive call with European leaders,
+- [04:33.920] like President Trump said already,
+- [04:35.810] and a lot of leaders, including NATO and the EU.
+- [04:39.040] And we agreed that our teams will meet
+- [04:40.880] in upcoming weeks to finalize.
+- [04:44.170] All discussed matters and we agreed with President Trump
+- [04:47.710] that he will host us -- and maybe in Washington --
+- [04:51.640] European leaders and Ukrainian delegation
+- [04:55.080] yes in January and Ukraine is ready for peace
+- [04:58.480] and once again would like to thank President Trump
+- [05:01.020] for a warm welcome and substantial discussion.
+- [05:04.670] Thank you, Mr. President.
+- [05:08.140] The President: Any questions, please?
+- [05:09.830] The Press: (inaudible)
+- [05:14.810] the U.S.-Ukraine security guarantees,
+- [05:17.620] what number are we on right now?
+- [05:19.230] The President: Well, I think we're --
+- [05:20.510] look, you know, you can say 95 percent,
+- [05:22.610] but I don't like to say percentages.
+- [05:24.640] I just think we are doing very well.
+- [05:26.110] We're very -- we could be very close.
+- [05:28.380] There are one or two very thorny issues, very tough issues,
+- [05:31.700] but I think we're doing very good.
+- [05:33.140] We've made a lot of progress today,
+- [05:34.380] but really we've made it over the last month.
+- [05:36.880] This is not a one-day process deal.
+- [05:39.000] This is very complicated stuff.
+- [05:40.720] But I think when the President says 95,
+- [05:43.710] I think, you now, it could be close to 95 percent.
+- [05:45.920] Yeah, please, in behind you.
+- [05:47.720] The Press: Do you agree on the so-called free trade zone
+- [05:51.760] on Donbas? How to separate the sites,
+- [05:56.770] how to make the separation line, who will be responsible?
+- [05:59.820] The President: The word agreed is too strong.
+- [06:01.140] I would say not agreed,
+- [06:02.400] but we're getting closer to an agreement on that.
+- [06:05.000] And that's a big issue.
+- [06:06.290] Certainly, that's one of the big issues.
+- [06:07.950] And I think we're closer than we were probably.
+- [06:12.840] It's unresolved, but it's getting a lot closer.
+- [06:15.710] That's a very tough issue,
+- [06:19.130] but one that I think will get resolved.
+- [06:20.590] Yeah, please.
+- [06:21.850] The Press: The next (inaudible)
+- [06:23.320] is coming from Moscow,
+- [06:24.530] even after this topic has been put in.
+- [06:26.500] Can you assure us that you have received
+- [06:28.700] a written or a formal --
+- [06:30.610] The President: Well, what was the issue?
+- [06:31.840] You have to tell me. What did they say?
+- [06:33.910] The Press: (inaudible)
+- [06:40.070] The President: Well, that's what they've been asking for.
+- [06:41.820] And, you know, there's a dispute about that.
+- [06:45.160] So they're going to have to iron that out.
+- [06:46.760] That's an issue they have to iron out.
+- [06:50.780] But I think it's moving in the right direction.
+- [06:53.790] The Press: (inaudible)
+- [06:59.930] The President: If something doesn't happen?
+- [07:02.270] You mean if something doesn' Go ahead.
+- [07:05.630] You were going to finish your question.
+- [07:08.810] The Press: (inaudible)
+- [07:10.590] The President: Well, we'll see. Look, we will see.
+- [07:12.010] But I don't want to talk about that
+- [07:13.300] because I think we're getting pretty close.
+- [07:15.000] Yes, please.
+- [07:16.230] The Press: (inaudible)
+- [07:20.390] what is your take on Donbas status?
+- [07:22.120] Are you prepared to (inaudible)?
+- [07:26.880] President Zelenskyy: We spoke about 20 points plan
+- [07:28.820] and I'm happy that really our teams are very close to results
+- [07:33.540] and I agree with President Trump that our teams work not one day,
+- [07:38.560] not one week, more than one month,
+- [07:41.100] beginning from Geneva, then two meetings in Miami,
+- [07:44.280] then we had Berlin and now we have Mar-a-Lago.
+- [07:47.630] So this is very difficult question.
+- [07:50.130] You know our position,
+- [07:51.420] so we have to respect our law and our people
+- [07:55.200] and we respect the territory which we control.
+- [07:58.280] And, of course, our attitude is very clear.
+- [08:01.900] That's why President Trump said this is a very tough question.
+- [08:05.390] And of course we have
+- [08:06.660] with Russians different positions on it.
+- [08:09.020] The Press: (inaudible)
+- [08:10.760] President Zelenskyy: No, when we speak about referendum,
+- [08:12.710] we spoke that it's one of the key.
+- [08:14.910] We can have referendum on any kind of points of this plan.
+- [08:19.560] I said that we can use referendum like for the plan,
+- [08:23.200] or we cannot use referendum. It's one the key, we can,
+- [08:26.900] I mean this possibility of parliament
+- [08:28.730] to vote according to the law or to have a referendum,
+- [08:32.130] it doesn't matter, I'm in this referendum,
+- [08:34.010] if the plan will be very difficult for our society,
+- [08:37.370] very difficult, of course our society has to choose
+- [08:40.720] and who has to vote because it's their land,
+- [08:43.340] not the land -- not of one person,
+- [08:45.830] it's the land of our nation for a lot of generations.
+- [08:49.430] The President: You'll probably have to get their plan approved
+- [08:52.120] by Parliament or by referendum of the people.
+- [08:55.970] You would think that they want --
+- [08:57.250] I know they had a poll that it's 91 percent
+- [08:59.800] in favor of ending this war, so they want to end it.
+- [09:02.680] Like everybody wants -- Russia wants it ended,
+- [09:04.560] everybody wants it to end, so -- and we want it ended.
+- [09:06.950] I want it ended because I don't want to see
+- [09:09.000] so many people dying.
+- [09:10.200] We're losing, you know, massive numbers of people --
+- [09:13.500] the biggest by far since World War II.
+- [09:16.100] So we want to it ended. Absolutely.
+- [09:19.740] The Press: You said at the top that you plan
+- [09:21.110] to speak again tomorrow, is that correct?
+- [09:23.900] The President: I might.
+- [09:25.230] I mean, it depends on what happens tomorrow.
+- [09:27.190] If there's an additional something to add,
+- [09:29.220] otherwise there's no reason to. We're in the process.
+- [09:32.410] Jared and Steve are working very hard to get something done.
+- [09:36.510] And if there's something that comes up, I'd speak.
+- [09:38.780] But otherwise, I don't think there's any reason to.
+- [09:41.660] The Press: In your mind sir, what are what are the thorniest
+- [09:43.660] issues still unresolved after?
+- [09:45.260] The President: Well, I think the land.
+- [09:47.430] You're talking about --
+- [09:48.680] some of that land has been taken.
+- [09:50.830] Some of that is maybe up for grabs,
+- [09:54.060] but it may be taken over the next period
+- [09:57.110] of a number of months.
+- [09:59.000] And are you better off making a deal now?
+- [10:01.250] Look, let me tell you, they have been very brave.
+- [10:03.290] They fought very hard and continue to fight very hard
+- [10:07.330] and do tremendous damage.
+- [10:09.750] But Russia would like to see it ended.
+- [10:13.100] Ukraine would like to see it, and I think it's time to end.
+- [10:16.320] And a lot of very brave people,
+- [10:18.500] a lot people that are dead right now, unfortunately,
+- [10:21.360] because I've said, and nobody's disputed it,
+- [10:23.570] that if the election weren't rigged and stolen, 2020,
+- [10:27.830] you wouldn't have had this war. It would have never happened.
+- [10:29.970] And it didn't happen for four years.
+- [10:31.490] Never was even thought to happen.
+- [10:35.590] And I spoke with President Putin.
+- [10:37.340] I got along with him very well, despite the Russia, Russia,
+- [10:39.790] Russia hoax, which was a total hoax.
+- [10:42.460] He used to say, what is going on over there?
+- [10:44.460] But it was a total hoax, as he knew and as I knew.
+- [10:47.970] But I spoke to him, and we'd talk about Ukraine.
+- [10:51.390] I've said it before. It was the apple of his eye,
+- [10:53.580] but he wasn't going to do anything about it.
+- [10:55.280] He didn't do anything about it until I was gone.
+- [10:58.270] And then a lot of really bad statements were made by people,
+- [11:03.320] by a lot of people, I guess,
+- [11:04.520] but by a certain president that we had,
+- [11:08.190] who was a disaster. Yes.
+- [11:09.900] The Press: (inaudible)
+- [11:11.160] anticipate going to Ukraine if you can get to an agreement.
+- [11:15.030] And –with --
+- [11:16.310] The President: I'd have no problem with doing it,
+- [11:17.970] you know, I have no problem with it.
+- [11:19.380] If we don't anticipate it, we'd like to get the deal done
+- [11:23.520] and not necessarily have to go.
+- [11:26.190] I've offered to go and speak to their Parliament.
+- [11:29.260] And, you, know, if that would help.
+- [11:30.820] I don't know if that will help. I think it would probably help.
+- [11:32.790] But I don't even know if that's --.
+- [11:34.320] President Zelenskyy: You're welcome to.
+- [11:35.520] The President: Yeah, no, I know.
+- [11:37.250] So I'm not sure that it would be really necessary.
+- [11:39.720] But if it would help save 25,000 lives a month,
+- [11:44.000] or whatever it may be.
+- [11:45.290] I would certainly be willing to do that.
+- [11:47.700] Yeah, please go behind you. Are you -- where are you from?
+- [11:53.790] The Press: (inaudible)
+- [11:55.170] The President: Good. I had a feeling. Good.
+- [11:58.130] The Press: (inaudible)
+- [12:01.540] The President: One what?
+- [12:02.820] The Press: (inaudible)
+- [12:04.570] The President: Yeah, we discussed that at length today.
+- [12:08.510] As you know, it's in pretty good shape.
+- [12:10.410] It can start up immediately, almost immediately.
+- [12:13.430] And it's one of the things I discussed with President Putin,
+- [12:17.080] and they were talking about the nuclear plant
+- [12:19.340] that's probably the biggest in the world,
+- [12:22.080] just about the biggest anywhere in the world.
+- [12:23.810] Can you believe that?
+- [12:25.640] And President Putin is actually working with Ukraine
+- [12:28.790] on getting it open.
+- [12:30.510] He's been very good in that sense.
+- [12:32.140] He wants to see that open.
+- [12:35.240] And he hasn't hit it with missiles,
+- [12:37.930] hasn't hit it anything.
+- [12:39.180] It's a big danger to do that for everybody.
+- [12:42.090] But they're working together to try and get it out.
+- [12:44.970] It can open very quickly. It's in pretty good shape.
+- [12:47.880] And the people there have been there for years.
+- [12:49.660] The people there running it.
+- [12:50.870] You know, they have 5,000 people in that plant.
+- [12:52.910] Can you believe it?
+- [12:54.130] I learned that today. Five thousand people.
+- [12:56.180] It's the biggest plant of its kind in the world.
+- [12:59.190] And they're work together to get it open.
+- [13:01.340] They could maybe get it opened quickly.
+- [13:04.710] That's a big step when he's not bombing that plant.
+- [13:07.700] That's big step.
+- [13:10.010] The Press: In the readout from Moscow,
+- [13:12.560] they talked about the creation of some working groups.
+- [13:16.590] Can you tell us about what those working groups entail and also,
+- [13:20.300] if you wouldn't mind,
+- [13:21.920] what is the message that you will give to Putin
+- [13:24.020] when you speak to him after your meeting?
+- [13:25.830] The President: So, the working group
+- [13:27.060] is going to be composed of Steve,
+- [13:29.560] Steve Wichoff, Jared Kushner,
+- [13:32.450] General Raisin Caine, Marco Rubio,
+- [13:35.940] and a few other people that we're going to put on to it.
+- [13:40.940] I think Pete Hegseth should be in that working group.
+- [13:44.320] He knows the territory very well,
+- [13:46.110] he's been fantastic at what he's doing.
+- [13:49.090] And they may add one or two people,
+- [13:50.480] and likewise, Ukraine's going to have some very good people
+- [13:52.950] that were at lunch today that enjoyed the lunch today a lot.
+- [13:56.350] More than they thought, right?
+- [13:58.130] But do you want to say who may be on your working group?
+- [14:01.740] President Zelenskyy: We are now, as I said,
+- [14:03.830] that we work with Steven, Jared, we worked
+- [14:08.100] and worked our Rustam Omerov
+- [14:10.460] and also Deputy Minister Gislits and also General Gnatov
+- [14:15.910] and they will continue work in this group
+- [14:20.210] and of course if we will go further
+- [14:22.790] and I hope that really we will have decisions in January
+- [14:25.570] as I've said about all these documents,
+- [14:27.540] six documents and of course we will continue work on this
+- [14:32.170] so they know what to do. Yes.
+- [14:34.690] The President: And that working group,
+- [14:35.930] by the way, importantly,
+- [14:37.160] will also then be working with Russia, okay?
+- [14:40.840] Because to work with ourselves
+- [14:42.750] doesn't really solve much of a problem.
+- [14:45.310] So they'll be working with Russia.
+- [14:46.970] Yeah, please.
+- [14:48.570] The Press: This morning, you weren't a deadline guy.
+- [14:50.190] How long do you think it'll take to get this last little bit,
+- [14:52.430] as you say, finished? What are we talking about?
+- [14:54.120] The President: If it went really well,
+- [14:55.500] you know, maybe a few weeks,
+- [14:57.440] and if it went poorly longer and if went really poorly,
+- [15:00.570] it's not going to happen. That would be a shame.
+- [15:03.490] There's that chance also.
+- [15:04.740] You know, it's possible it doesn't happen.
+- [15:07.460] But, you, know, in a few week
+- [15:08.870] we will know one way or the other, I think.
+- [15:12.500] But if it weren't really well. But it could also go poorly.
+- [15:18.290] I mean, you could have something where one item
+- [15:21.110] that you're not thinking about is a big item.
+- [15:22.830] It breaks it up.
+- [15:24.170] Look, it's been a very difficult negotiation.
+- [15:26.230] Very detailed. It's funny, I settled eight wars.
+- [15:29.700] Some were going on for 35 years,
+- [15:33.470] and we got them settled in a couple of days.
+- [15:35.410] Some of them, one was going on.
+- [15:37.440] For 37 years, I've settled in one day.
+- [15:40.930] But this is a very complex one.
+- [15:44.100] The Press: With the luck, what --
+- [15:45.390] The President: No, I think we'll get it done.
+- [15:46.590] I don't want to say when,
+- [15:47.980] but I think we're going to get it done.
+- [15:49.470] Yes, ma'am. Speaker 10 Mr. President,
+- [15:50.860] you in the past have suggested a trilateral meeting
+- [15:52.920] between both Presidents Putin and Zelensky,
+- [15:54.790] is that something that is also on the docket?
+- [15:57.260] The President: I see that happening,
+- [15:58.530] sure, at the right time.
+- [16:00.800] I saw a very interesting President Putin today.
+- [16:05.880] I mean, he wants to see it happen. He wants to it.
+- [16:10.000] He told me very strongly. I believe him.
+- [16:13.310] Don't forget, we went through the Russia, Russia,
+- [16:15.030] Russia hoax together.
+- [16:17.340] And he'd call me. I'd call him and say,
+- [16:18.810] can you believe the stuff that they're making up?
+- [16:20.900] And it turned out we were right. They made it all up.
+- [16:23.340] And despite that, we didn't get into wars,
+- [16:25.660] and we didn't get into problems,
+- [16:27.040] but we weren't able to trade very much or any of that,
+- [16:30.580] which was a shame because, you know,
+- [16:32.380] a lot of success could have been had by trading with Russia.
+- [16:35.930] They have great land, great minerals,
+- [16:38.560] and other things,
+- [16:39.810] and we have things that they want very badly.
+- [16:42.350] But the Russia, Russia, Russia hoax,
+- [16:43.890] which was a terrible made-up fictional thing
+- [16:47.340] by Crooked Hillary
+- [16:49.020] and by Adam Shifty Schiff and bad people, sick people.
+- [16:53.130] They made it up. It was all a made-up hoax.
+- [16:56.190] But it kept us really from dealing with Russia.
+- [16:58.510] It kept Russia dealing, you know,
+- [17:00.620] from dealing with us, so. But despite that, we got along.
+- [17:07.850] I don't know. I think we're going to get there.
+- [17:09.650] I know I know him very well.
+- [17:10.870] I think we are going to get there
+- [17:12.110] Speaker 10 (inaudible)
+- [17:13.320] discuss any time, location, meeting place?
+- [17:15.900] The President: Yeah, we're discussing a lot of things.
+- [17:17.700] No, we -- look, I was on the phone with him for almost,
+- [17:20.220] I guess, two and a half hours. They're just telling me now.
+- [17:22.440] It's a long time. We discussed a lot things.
+- [17:24.820] We didn't talk about the weather.
+- [17:26.770] We weren't talking about how --
+- [17:28.210] what a beautiful day it is in Palm Beach, Florida.
+- [17:30.350] Speaker 11 President Trump, President Zelensky mentioned
+- [17:33.070] maybe a meeting with European leaders back in Washington.
+- [17:35.500] Would that be in the next few weeks?
+- [17:37.130] The President: In Washington or someplace, yeah.
+- [17:39.160] These leaders that I just read, these are great people.
+- [17:42.430] You know, they've spent a lot of money on helping Ukraine.
+- [17:46.620] And look, they're doing it for themselves also,
+- [17:48.480] meaning their country, because Ukraine
+- [17:50.270] is a very important country for them, in particular.
+- [17:54.640] For us, it's very important. To me, it is the lives that,
+- [17:58.520] you know, we're thousands and thousands of miles.
+- [18:01.420] We're protected by a thing called the Atlantic Ocean.
+- [18:04.750] In lots of other places, to be honest.
+- [18:06.690] And they're not. You know, they're right there.
+- [18:09.800] But we're working together with them, as we should be.
+- [18:12.190] But I'm doing it to save lives.
+- [18:14.040] You know we're not spending any money.
+- [18:15.610] Biden gave $350 billion away.
+- [18:18.790] And the President was nice enough to give us a contract
+- [18:21.370] to take out rare earth and things.
+- [18:23.040] So we'll see how that all works out.
+- [18:25.160] We have a contract, but we appreciated that.
+- [18:28.900] It was very good. But we'll how that works out,
+- [18:32.820] but If you think about it, we're going to have --
+- [18:36.660] I really believe we're probably, Mr. President, closer than --
+- [18:39.880] by far closer than ever before, with both parties.
+- [18:43.580] We had some times when he was close
+- [18:45.460] and President Putin wasn't.
+- [18:47.320] Then we'd have President Putin was close and he wasn't --
+- [18:50.230] you saw that in the White House, Mark.
+- [18:54.770] But I think they both want to see it happen.
+- [18:57.710] The Press: In your conversation with --.
+- [18:59.090] The Press: You've said that -- you've said multiple times
+- [19:01.570] that you want to stop the killing.
+- [19:03.360] And nearly a hundred American citizens
+- [19:05.760] (inaudible) what's your message to (inaudible)
+- [19:09.220] whose loved ones died fighting?
+- [19:12.710] The President: Well, look, I mean,
+- [19:13.970] the message is so obvious. It's what a shame.
+- [19:17.690] They died in a country, a foreign country.
+- [19:21.020] And some are celebrated people. They're very celebrated.
+- [19:25.760] But so sad that a thing like that would happen.
+- [19:28.360] Yes, ma'am.
+- [19:29.860] The Press: Obviously, security is a major issue
+- [19:31.980] for the Ukrainians.
+- [19:33.210] Did you offer any promises, any assurances today?
+- [19:35.830] The President: Well, we want to work with Europe,
+- [19:38.990] and Europe is going to take over a big part of it,
+- [19:41.960] as you can imagine. You know, they're right there,
+- [19:44.310] but we're going to help Europe 100 percent,
+- [19:46.010] like they'd help us.
+- [19:47.240] Yes, ma'am. You were going to say something?
+- [19:48.540] The Press: Yeah, I was just going to ask,
+- [19:49.820] when your term is finished --.
+- [19:51.050] The Press: Andrea Shalom with Reuters.
+- [19:52.460] The President: That's what I thought.
+- [19:53.710] The Press: So, in your conversation
+- [19:55.000] with President Putin,
+- [19:56.230] did you discuss what responsibility Russia
+- [19:58.700] will have for any kind of reconstruction of Ukraine
+- [20:01.790] post an agreement?
+- [20:04.220] The President: They're going to be helping.
+- [20:05.580] Russia is going to helping.
+- [20:07.140] Russia wants to see Ukraine succeed.
+- [20:08.990] Once -- it sounds a little strange,
+- [20:11.740] but I was explaining to the President,
+- [20:14.740] President Putin was very generous
+- [20:17.580] in his feeling toward Ukraine succeeding,
+- [20:20.670] including supplying energy, electricity,
+- [20:23.930] and other things at very low prices.
+- [20:26.770] So a lot of good things came out of that call today.
+- [20:29.430] But they were in the works for two weeks with Steve
+- [20:31.980] and with Jared and Marco and everybody.
+- [20:35.980] The Press: Did Putin agree to a ceasefire
+- [20:38.910] to allow a referendum to take place?
+- [20:40.540] The President: Not a ceasefire,
+- [20:42.700] and that's one of the points that we're working on right now.
+- [20:45.240] No, not a cease fire.
+- [20:46.820] He feels that, look, you know, they're fighting and to stop
+- [20:49.690] and then if they have to start again, which is a possibility,
+- [20:52.970] he doesn't want to be in that position.
+- [20:54.300] I understand that position,
+- [20:57.160] the President feels strongly about that or something,
+- [21:01.400] but I think we're finding ways that we can get around that.
+- [21:04.180] But I understand President Putin from that standpoint,
+- [21:07.120] you have to understand the other All right.
+- [21:09.930] And, you know, I'm on the side of peace.
+- [21:12.660] I'm the side on stopping the war.
+- [21:14.690] So, but I think that's a problem
+- [21:18.070] that's going to get solved, yeah.
+- [21:19.730] The Press: Would people who live outside of Ukraine,
+- [21:22.270] who fled during the war,
+- [21:24.120] be allowed to participate in the referendum?
+- [21:26.710] President Zelenskyy: What do you mean,
+- [21:28.060] people who have lived?
+- [21:29.260] The President: The people that left.
+- [21:31.680] President Zelenskyy: If we speak about the people who are abroad,
+- [21:34.140] who are not on the territory of Ukraine,
+- [21:36.210] you mean that in Poland, in Germany,
+- [21:38.510] we have millions of people.
+- [21:40.220] Yeah, they have a referendum in the same of elections,
+- [21:43.590] the same way how people come and vote.
+- [21:46.330] They have rights for this, and of course they have to come.
+- [21:49.150] That's why if we will come to referendum,
+- [21:51.190] yes, if we come to such decision,
+- [21:53.380] people will need infrastructure for this and it's not simple
+- [21:58.300] and that's why we spoke about it,
+- [21:59.680] it can't be in one day, very quickly,
+- [22:02.450] it's difficult because we need infrastructure.
+- [22:04.260] When you have millions of people you have to build it in Europe,
+- [22:07.240] mostly in Europe for today.
+- [22:10.160] The Press: President Trump,
+- [22:11.400] I know you've sounded an optimistic note here,
+- [22:13.340] but what happens in a few weeks if things sputter?
+- [22:16.520] What are you prepared to do?
+- [22:19.200] The President: And they keep dying. It's no good.
+- [22:22.490] But if things don't happen, they keep fighting,
+- [22:25.570] and they keep dying.
+- [22:27.730] And we don't want that to happen.
+- [22:29.110] He doesn't want it to happen,
+- [22:30.380] President Putin doesn't want it happen either.
+- [22:32.510] Okay? Thank you very much, everybody.
+- [22:34.490] Appreciate it. Great. Thank you. I don't know.
+- [22:41.650] Was it a good lunch? There's no lunch.
+- [22:43.950] He walked in, he said, this place is gorgeous.
+- [22:45.910] I don't think he wants to go to the White House anymore.
+- [22:47.850] That's the problem.
+- [22:49.070] President Zelenskyy: I'm ready to go to the White House.
+- [22:52.830] The President: It is.
+- [22:54.070] The White House is a very special place.
+- [22:55.900] And so is this. I hope you enjoyed it.
+- [22:58.350] Thank you very much. Thank you so much.
+- [23:00.140] The Press: Thank you, sir.

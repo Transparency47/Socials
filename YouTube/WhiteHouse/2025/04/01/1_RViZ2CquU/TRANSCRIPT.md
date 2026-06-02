@@ -1,0 +1,613 @@
+<!-- source: https://www.youtube.com/watch?v=1-RViZ2CquU -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 1-RViZ2CquU -->
+<!-- date_published: 2025-04-01T18:37:05+00:00 -->
+<!-- date_accessed: 2026-06-02T01:28:36.730503+00:00 -->
+
+# Transcript: First Lady Melania Trump Delivers Remarks at the 19th International Women of Courage Awards Ceremony
+
+- [01:28.800] Ms. Fotovat: So excited to have so many distinguished guests
+- [01:32.080] and our courageous awardees. I'm so glad the weather in DC
+- [01:36.370] greeted you all with our beautiful cherry blossoms
+- [01:38.790] and a million blooms just like the clear courage
+- [01:41.570] blooming all over the world,
+- [01:43.210] inspired by the incredible women we honor here today.
+- [01:47.660] Established by former Secretary of State, Condoleezza Rice,
+- [01:51.230] this annual award celebrates women
+- [01:53.330] leaders from around the world,
+- [01:55.560] who have demonstrated exceptional courage,
+- [01:57.910] strength and leadership,
+- [01:59.860] often at great personal risk or sacrifice.
+- [02:04.060] 19 years, which is the same age as my son,
+- [02:07.080] is a testament to the importance of this award
+- [02:09.940] and the work it represents, a clear and powerful statement
+- [02:14.080] that the United States strongly supports
+- [02:16.640] the participation and protection of women and girls,
+- [02:20.270] the defense of their human rights and their empowerment.
+- [02:33.550] None of this would be possible without leadership and support
+- [02:36.840] at the highest levels starting with President Trump.
+- [02:41.690] Thank you to First Lady, Melania Trump,
+- [02:44.080] and Secretary Rubio for your deep,
+- [02:46.750] long-standing commitment to women and girls globally.
+- [02:50.050] We are so thrilled to have so many members
+- [02:52.000] of the Cabinet and Congress and their staff here as well.
+- [02:55.820] I'm so proud to be here representing SGWE.
+- [02:59.160] Our mission has been to promote the rights
+- [03:00.980] and empowerment of women and girls
+- [03:02.520] globally as a cornerstone of US foreign policy.
+- [03:06.890] As President Trump said,
+- [03:08.400] when women are empowered to participate
+- [03:10.340] in civic and economic life,
+- [03:12.540] their communities, their families and countries
+- [03:14.730] are more prosperous, healthy and safe.
+- [03:18.310] My office works across three main areas
+- [03:20.790] that as the secretary outlined,
+- [03:22.630] advances the President's America First vision,
+- [03:26.310] making America safer by ensuring the protection
+- [03:29.390] of women and girls from violence,
+- [03:31.160] a central part of securing our border,
+- [03:33.470] combating terrorism and fostering global peace
+- [03:36.280] and security, making America stronger
+- [03:39.330] by advancing women's meaningful participation
+- [03:41.670] in political, peace and security processes,
+- [03:45.250] leading to longer lasting peace and stability around the world,
+- [03:49.580] making America more prosperous
+- [03:51.720] by supporting women's economic empowerment
+- [03:53.960] and fostering American investments, innovation
+- [03:56.750] and interest over our strategic competitors.
+- [04:00.750] Now, the International Women of Courage Awards highlight
+- [04:04.040] the critical role women play in peace and stability.
+- [04:07.380] The eight individuals who you will learn more about
+- [04:09.690] in just a moment embody those American values abroad
+- [04:13.470] and promote efforts that their countries
+- [04:15.620] and regions are more secure.
+- [04:18.040] I am pleased now to introduce their stories to you.
+- [04:21.120] Please see the screen.
+- [04:37.600] Major Iga: At the House of Hope,
+- [04:38.840] I lead efforts to support survivors
+- [04:40.910] of gender-based violence,
+- [04:42.620] sorcery accusation related violence
+- [04:45.510] and trafficking in persons.
+- [04:47.480] I am passionate about shaping a network of change-makers
+- [04:50.280] to build a country
+- [04:51.520] where everyone can live free from violence.
+- [04:54.370] Ms. Bakhit: The experience as a child-married survivor
+- [04:58.050] motivated me to [inaudible 00:03:56]
+- [04:59.650] up the organization
+- [05:00.890] so that I can be able to tackle issues of
+- [05:02.540] [inaudible 00:03:56]
+- [05:04.130] married within my community and South Sudan at large.
+- [05:07.510] WOJE has empowered more than 50,000 survivors
+- [05:11.610] in the community.
+- [05:14.200] [foreign language]
+- [05:29.010] Ms. Pascu: Every person with disabilities
+- [05:30.510] deserves fair treatment.
+- [05:32.060] This is my life work and the mission of my organization.
+- [05:35.850] The work continues, but we are confident we have tools.
+- [05:39.650] Change is possible.
+- [05:42.450] [foreign language]
+- [06:04.240] Ms. Soussana: On October 7th, I was taken hostage
+- [06:06.640] by Hamas terrorists. I survived 55 days in captivity.
+- [06:11.510] Upon my release, I vowed to tell my story
+- [06:14.070] because keeping it inside will destroy me.
+- [06:16.590] Courage for me means standing up for what you believe in.
+- [06:19.650] It means being true to your values
+- [06:22.070] and choosing hope and love even when faced with darkness.
+- [06:25.540] Ms. Wijedasa: I'm a journalist
+- [06:26.750] and that's how I want people to see myself.
+- [06:29.160] And that's how I've made people see myself.
+- [06:31.310] The corruption story is unfortunately not going to end.
+- [06:35.050] And the impact I want to have is not to change governments.
+- [06:39.450] I want systems to change. I want laws to be put in place.
+- [06:43.650] I want institutions to be strengthened
+- [06:45.660] so that people are not able to abuse them.
+- [06:48.530] And that is what we have as investigative journalists
+- [06:51.920] always fought for and that's what I will keep fighting for.
+- [06:55.550] Ms. Songco: Conserving Tubbataha is ensuring
+- [06:57.700] the food security of the country.
+- [07:00.030] As a marine protected area,
+- [07:01.780] we have become a model for other marine protected areas.
+- [07:05.150] We have brought pride to the country
+- [07:07.620] and we have contributed to the global conservation goals.
+- [07:11.400] For me, courage means making a decision,
+- [07:13.990] making one's choices despite the uncertainties.
+- [07:34.860] Ms. Fotovat: I think you can see the clear courage
+- [07:36.850] amongst all these incredible women.
+- [07:39.400] Now it is my distinct honor to introduce
+- [07:42.200] from the great state of Florida,
+- [07:43.720] like myself, our Secretary of State, Marco Rubio.
+- [07:48.310] Go, Gators.
+- [07:59.620] Secretary Rubio has been a long dedicated champion
+- [08:02.800] for women and girls around the world.
+- [08:05.000] As a US Senator, he worked tirelessly to advance policies
+- [08:08.480] that strengthen women's roles in peace and security efforts,
+- [08:12.000] recognize their critical contributions to global security
+- [08:15.150] and American strength.
+- [08:16.940] He also worked to ensure that girls,
+- [08:18.830] particularly in conflict zones, have access to education.
+- [08:22.570] He played pivotal roles in making sure
+- [08:24.870] there are efforts to end violence and human trafficking,
+- [08:28.030] striving to create safer environments
+- [08:30.130] for women and girls around the world.
+- [08:33.120] As a father of daughters,
+- [08:34.440] I know his passion for these issues is also deeply personal,
+- [08:37.980] driving his commitment to a future
+- [08:39.760] where all women and girls have the opportunity to lead,
+- [08:42.840] succeed and thrive. Mr. Secretary, over to you.
+- [08:50.100] Secretary Rubio: Thank you. Thank you.
+- [08:54.780] Thank you very much all of you for being here.
+- [08:59.410] Madam First Lady, thank you for joining us.
+- [09:01.210] We're so honored you would be here today
+- [09:02.540] with us at the State Department. All of our award recipients,
+- [09:05.910] you'll hear about them more in a moment.
+- [09:07.260] You saw that video, very moving, very touching.
+- [09:09.420] We'll learn more about them.
+- [09:10.690] All of my colleagues and distinguished guests.
+- [09:13.060] A special recognition for the members of our cabinet
+- [09:14.980] are here today.
+- [09:16.220] Why don't you guys stand up so we can recognize you?
+- [09:18.050] Our Attorney General,
+- [09:22.430] the Secretary of Small Business, of Education, and Labor.
+- [09:31.200] And we're missing Tulsi Gabbard
+- [09:33.360] because she's probably spying somewhere right now,
+- [09:35.200] so she's busy, but… Thank you.
+- [09:38.400] Thank you for being here and joining us on this.
+- [09:40.030] And good afternoon and welcome to the State Department.
+- [09:41.970] This is a beautiful room. We don't use it often enough,
+- [09:44.760] but this is an appropriate setting in which to use it.
+- [09:46.900] And we're so grateful to be honoring this year's
+- [09:49.440] International Women of Courage awardees.
+- [09:52.750] This has been going on since 2007
+- [09:54.830] when one of my predecessors, Secretary Condoleezza Rice,
+- [09:58.240] instituted this award and since then recognized over 200 women
+- [10:02.680] for their work promoting peace and prosperity
+- [10:04.970] and human rights in communities
+- [10:07.290] and in countries across the world.
+- [10:09.490] And what we recognize more than that is not just their work,
+- [10:13.050] but the fact that they do so oftentimes
+- [10:15.050] at extraordinary risk to themselves,
+- [10:17.020] to their families, to their loved ones.
+- [10:20.400] Not just important work, but work that took courage.
+- [10:23.540] And that's why we recognize women
+- [10:25.330] with the International Women of Courage Award here today.
+- [10:28.390] I'd briefly like to honor a leader.
+- [10:30.630] You saw her a moment ago, Katrina Fotovat.
+- [10:34.390] Did I say that right? Katrina. We call her Kat.
+- [10:36.920] Ms. Fotovat: Kat.
+- [10:38.210] Secretary Rubio: Yeah. And she's done a great job.
+- [10:39.810] Without you and your team putting this together,
+- [10:41.520] it not have been possible. Thank you.
+- [10:50.080] I want to also personally thank the woman of courage
+- [10:53.850] who lives in my home, my wife,
+- [10:55.210] Jeanette, [inaudible].
+- [11:02.940] And I say that relatively speaking because courage is…
+- [11:06.200] I mean, there are challenges with three kids
+- [11:08.760] under 22 years of age, or 23, as you know,
+- [11:11.100] especially a 17-year-old that's still in high school
+- [11:13.950] and they have the world figured out.
+- [11:15.200] Anyway. Thank you.
+- [11:16.400] Because without her, I would not be able to do this.
+- [11:18.760] So we thank you very much and for being here today.
+- [11:22.560] At the State Department and under President Trump,
+- [11:25.570] we try to take every opportunity
+- [11:26.990] to defend and promote women and girls across the world.
+- [11:29.740] During his first term, President Trump
+- [11:32.130] made women's economic opportunity an imperative.
+- [11:35.020] He established the Women's Global Development
+- [11:36.930] and Prosperity Initiative,
+- [11:38.690] which to date has reached over 12 million women worldwide.
+- [11:43.820] At home, during his first term,
+- [11:45.880] female unemployment reached the lowest level in 50 years.
+- [11:51.610] President Trump also signed the Women Peace and Security Act,
+- [11:54.370] a bill that I was very proud to have been a co-sponsor
+- [11:56.840] of when I was in the Senate.
+- [11:58.200] And it was the first comprehensive law
+- [12:00.780] passed in any country in the world,
+- [12:02.790] first law passed by any country anywhere in the world
+- [12:05.530] focused on protecting women
+- [12:07.730] and promoting their participation in society.
+- [12:11.020] President Trump is also working now to fulfill his promise
+- [12:15.520] to end a brutal, brutal war that's going on in Europe
+- [12:19.540] as well as in the Middle East Wars
+- [12:21.930] that aren't just costing the lives of soldiers and civilians,
+- [12:24.400] but where women in these wars and these conflicts,
+- [12:27.180] as you will hear somewhat today, are kidnapped
+- [12:31.370] and they're assaulted, they're displaced,
+- [12:34.080] they're killed, their families are in danger.
+- [12:36.620] And one of our honorees today knows that too well.
+- [12:39.700] Because on 7th October of 2023,
+- [12:42.810] Amit Soussana was abducted from her home by Hamas,
+- [12:46.330] and upon her release, she shared details of the sexual violence
+- [12:49.800] she endured as a hostage,
+- [12:51.850] which allowed medical professionals
+- [12:53.780] to document the atrocities that she suffered.
+- [12:56.850] And this was at a time when people were denying
+- [12:59.210] that these atrocities were being committed,
+- [13:02.380] and even blaming Israel for Hamas's brutality.
+- [13:06.240] Her bravery, her advocacy brings much needed attention
+- [13:09.460] to the scourge of sexual violence
+- [13:11.390] and conflicts all over the world.
+- [13:13.500] Even as I speak to you now,
+- [13:15.640] there is sexual violence going on somewhere in the world
+- [13:17.820] in these various conflicts. It is a scourge.
+- [13:21.930] There is so much more to be said
+- [13:23.380] about the accomplishments and the courage
+- [13:25.170] and the leadership of each of these great women.
+- [13:27.320] And let me reaffirm the importance
+- [13:29.480] of protecting women and girls
+- [13:30.870] and promoting their wellbeing, are American goals,
+- [13:34.140] but they also happen to be a strong goal of our president,
+- [13:37.170] President Donald Trump.
+- [13:38.960] So to our honorees, congratulations
+- [13:40.710] and thank you for your work
+- [13:41.950] to create a safer and more secure and just world.
+- [13:46.240] In a moment, it'll be my distinct honor
+- [13:47.960] to welcome the First Lady of the United States to speak to you.
+- [13:51.620] She too is a woman of tremendous courage
+- [13:53.510] and a great accomplishment.
+- [13:55.150] She's an inspirational leader through her Be Best Initiative
+- [13:59.260] and her work now advocating the Take It Down Act,
+- [14:02.480] she's protected women and girls online
+- [14:04.900] and promoted their health and wellbeing.
+- [14:07.410] So Madam First Lady, thank you so much for being with us today.
+- [14:09.880] I look forward to continuing to work with you
+- [14:12.210] to promote the wellbeing and prosperity of Americans.
+- [14:15.090] So ladies and gentlemen, please help me welcome.
+- [14:17.180] It's a great honor to welcome the First Lady
+- [14:18.770] of the United States, Melania Trump.
+- [14:38.570] The First Lady: Thank you.
+- [14:45.550] Please sit down, please. Thank you.
+- [14:48.510] Good afternoon, and thank you Secretary Rubio.
+- [14:52.500] Throughout my life, I have harnessed the power of love
+- [14:56.800] as a source of strength during challenging times.
+- [15:00.950] Love has inspired me to embrace forgiveness,
+- [15:04.740] nurture empathy, and exhibit bravery
+- [15:08.070] in the face of unforeseen obstacles.
+- [15:12.170] Today we celebrate courage,
+- [15:15.600] a strength that is based in love.
+- [15:20.090] This truth is illustrated through our honorees
+- [15:23.750] who prove that love can inspire extraordinary valor
+- [15:28.300] even in the face of vulnerability.
+- [15:31.680] Their remarkable stories, a testament to the power of love
+- [15:36.490] in practice for family, community, and our world.
+- [15:43.530] This is especially evident in places
+- [15:45.980] where their passion defies convention
+- [15:49.020] and where it has been shown at great personal risk
+- [15:52.700] of stigma, persecution, or harm.
+- [15:58.060] The courageous Georgiana Pascu, one of our award recipients,
+- [16:03.500] exemplifies love in action.
+- [16:07.220] Georgiana is a watchdog who defends the dignity of Romanians
+- [16:12.540] whose voices cannot be heard.
+- [16:16.050] She fearlessly enters facilities designated
+- [16:19.430] as care centers to rescue people with disabilities
+- [16:24.330] who are unwittingly held captive.
+- [16:27.940] In fact, Georgiana usually shows up unannounced
+- [16:32.520] and discovers the unimaginable,
+- [16:35.760] helpless adults and children bound,
+- [16:38.900] sedated, starving, and in extreme cases dying.
+- [16:44.940] Thanks to Georgiana's brave work,
+- [16:47.650] dozens of offenders have been charged
+- [16:50.060] with human trafficking, exploitation,
+- [16:53.030] and even organized crime.
+- [16:56.970] We are honored to join an exceptional assembly
+- [16:59.970] of brave women who have shown their love
+- [17:02.400] and refuse to let fear or hardship define them,
+- [17:06.740] their collective achievements and dedication move us all.
+- [17:13.120] Let us also take a moment to acknowledge
+- [17:15.770] those who persist in their struggles.
+- [17:19.330] For each of them, love serves as a powerful catalyst,
+- [17:24.050] instilling in them profound sense of purpose
+- [17:27.180] in their endeavors.
+- [17:30.030] To the women who are driven to speak out for justice,
+- [17:34.570] even though their voices are trembling,
+- [17:37.680] to the women who are motivated to rise up for their community,
+- [17:42.730] when others remain indifferent,
+- [17:45.810] to the women who feel compelled to heal wounds
+- [17:49.120] caused by hatred and cherish peace.
+- [17:53.990] The 2025 International Women of Courage Award recipients
+- [17:59.450] came from diverse backgrounds and regions,
+- [18:03.540] yet love transcends boundaries and territories.
+- [18:08.700] It is a universal language.
+- [18:11.430] Their courage propels us of humanity forward
+- [18:14.720] by advocating to end violence against women and girls,
+- [18:19.350] promoting democratic governance, defending human rights,
+- [18:24.360] championing education, and fighting injustice.
+- [18:28.920] Through their efforts,
+- [18:30.430] they instigate progress for all of humanity.
+- [18:35.510] These extraordinary women illuminate
+- [18:38.170] the transformative power of love in shaping our world.
+- [18:43.500] Their journeys remind us that true courage
+- [18:46.500] is born from a deep commitment to others.
+- [18:50.390] Showing that love fuels the call for justice.
+- [18:55.540] Through their brave actions they inspire us
+- [19:00.140] to embrace our own potential for change.
+- [19:03.620] Teaching us that while courage drive us forward,
+- [19:07.350] it is love that lays the groundwork for lasting impact.
+- [19:12.970] Let their stories motivate us to take courageous steps,
+- [19:17.300] knowing that each act of love
+- [19:19.740] can spark a ripple of transformation.
+- [19:23.460] Thank you, and thank you for being here today.
+- [19:27.390] Ms. Bruce
+- [19:40.820] (18:13):
+- [19:42.160] Thank you. Beautiful remarks, weren't they?
+- [19:44.760] Just lovely. Thank you everyone. I'm Tammy Bruce.
+- [19:47.030] I'm a spokesperson for the US State Department.
+- [19:50.270] You guys are also great, great looking room here,
+- [19:53.290] and it's an honor and a pleasure to be here with all of you.
+- [19:56.150] So good afternoon, Madam First Lady,
+- [19:58.970] Secretary Rubio, Mrs. Rubio and distinguished guests.
+- [20:02.690] Today we celebrate the extraordinary achievements
+- [20:05.630] of eight women from across the globe
+- [20:08.080] who have demonstrated unparalleled courage,
+- [20:10.420] resilience, and leadership in the face of adversity.
+- [20:13.820] These remarkable individuals have shown us
+- [20:15.840] that courage knows no boundaries
+- [20:18.180] and that the strength of the human spirit
+- [20:20.080] can overcome even the most daunting challenges.
+- [20:23.360] As we honor these exceptional women,
+- [20:25.630] we are reminded of the importance of their work
+- [20:28.390] and the impact that these women have had
+- [20:30.830] on their own communities and beyond.
+- [20:33.390] Their stories inspire us to continue striving
+- [20:36.240] for a world where every woman and girl can live free
+- [20:39.920] from fear, discrimination, and violence.
+- [20:43.740] We are deeply grateful for their contributions
+- [20:46.620] and for the example that they set for future generations.
+- [20:50.420] Their courage reminds us that each of us
+- [20:53.000] has the power to affect that change,
+- [20:55.510] and that together we can build a more just and peaceful world.
+- [21:00.790] And they're here with us today, not just on video,
+- [21:03.270] but these women have joined us today here on this stage.
+- [21:06.490] It is an honor to stand here with all of you.
+- [21:10.570] We have some awards.
+- [21:11.930] So we're going to begin that right now.
+- [21:14.240] Here we go.
+- [21:15.560] First of all, Amit Soussana from Israel
+- [21:18.640] was the first Israeli hostage from the October 7th attack
+- [21:22.470] to publicly recount the sexual violence she suffered
+- [21:25.780] while held captive in Gaza by Hamas,
+- [21:28.270] by bravely speaking out
+- [21:29.490] about the unspeakable horrors she endured,
+- [21:31.990] she showed the world the power that one individual can have
+- [21:35.650] when faced with unimaginable cruelty.
+- [21:39.220] Shall we?
+- [21:53.060] Amit Soussana.
+- [22:20.520] Thank you. Henriette Da from Burkina
+- [22:23.590] Faso is a human rights defender and a leader in organizations
+- [22:27.200] that promote religious tolerance and women's rights.
+- [22:30.320] In 2018, she was appointed president
+- [22:33.300] of the National Human Rights Commission in Burkina Faso.
+- [22:37.140] Henriette Da.
+- [22:54.710] Major Velena Iga from Papua
+- [22:57.870] New Guinea is a key figure in combating
+- [23:00.290] trafficking of and violence against women for over a decade.
+- [23:04.180] Her efforts have caused systemic changes in her country
+- [23:07.450] and have helped protect the most vulnerable people.
+- [23:10.890] Velena Iga.
+- [23:29.270] Angelique Songco from the Philippines,
+- [23:31.970] also known as Mama Ranger, leads a small team of rangers
+- [23:36.590] protecting the Tubbataha Reefs Natural Park
+- [23:40.650] from illegal fishing and poaching.
+- [23:42.970] Her work on maritime law enforcement
+- [23:45.270] includes a passion for rehabilitation and conservation.
+- [23:48.480] Under her leadership,
+- [23:49.720] the reef has seen dramatic decreases in trespassers
+- [23:53.820] in that protected area.
+- [23:56.470] Angelique Songco. Mama Ranger.
+- [24:15.490] Georgiana Pascu from Romania
+- [24:17.820] has fought relentlessly for decades
+- [24:19.630] to secure the rights and safe treatment
+- [24:21.780] of thousands of children and adults with disabilities.
+- [24:25.210] She is leading the way in helping the world understand
+- [24:28.590] that women, girls, and persons with disabilities
+- [24:31.670] deserve to be protected. Georgiana Pascu.
+- [24:52.680] Zabib Musa Loro Bakhit from South Sudan
+- [24:59.520] is a women's rights leader in post-conflict settings
+- [25:02.670] and has held several regional
+- [25:04.230] and national leadership positions.
+- [25:06.260] Ms. Bakhit is the founder and executive director of Women
+- [25:09.180] for Justice and Equality,
+- [25:10.970] the leading implementer of women,
+- [25:12.770] peace and security grassroots programming across South Sudan.
+- [25:17.170] Zabib Musa Loro Bakhit.
+- [25:36.260] Namini Wijedasa from Sri Lanka
+- [25:39.740] is an award-winning investigative journalist,
+- [25:42.140] initially chronicling the human toll
+- [25:44.310] of Sri Lanka's civil conflict,
+- [25:46.970] and while working to combat corruption
+- [25:48.700] to bring accountability to those in power.
+- [25:51.190] Her work not only aims to hold the most powerful accountable,
+- [25:54.550] but also fosters dialogue on reconciliation,
+- [25:57.400] paving the way for a new generation of reporters.
+- [26:01.720] Namini Wijedasa.
+- [26:20.450] Amat Al-Salam Abdullah Abdo
+- [26:25.770] Al-Hajj from Yemen continues to be a powerful voice
+- [26:29.560] in bringing international attention
+- [26:31.560] to the plight of thousands of Yemeni detainees
+- [26:34.250] and their families. Ms. Hajj and her organization,
+- [26:37.080] the Abductees Mothers Association,
+- [26:39.400] has played a pivotal role in documenting the abductions
+- [26:42.630] of over 9,500 people and securing the release of
+- [26:46.510] 950 forcibly disappeared individuals.
+- [26:52.490] It is, I'm sorry, just a remarkable dynamic.
+- [26:55.370] Amat Al-Salam Abdullah Abdo Al-Hajj.
+- [27:18.290] Thank you, everyone. Beautifully done.
+- [27:23.450] Thank you. Thank you very much.
+- [27:26.270] And now if I may, furthering here,
+- [27:31.070] I have the distinct honor of honoring once again
+- [27:35.230] and welcoming Amit
+- [27:37.180] Soussana from Israel to the podium to speak with you
+- [27:40.670] a bit more, providing her remarks about her journey. Amit.
+- [27:56.080] Ms. Soussana: Distinguished guests, fellow
+- [27:57.820] Women of Courage,
+- [27:59.240] Secretary of State Marco Rubio, and Madam First Lady Melania
+- [28:03.830] Trump, it's a pleasure being here today.
+- [28:07.850] It is with deep gratitude that I stand before you today
+- [28:12.160] as an awardee of the 2025 International
+- [28:16.460] Women of Courage Award.
+- [28:18.240] Alongside the courageous women here,
+- [28:20.460] women that I'm honored and grateful to have met,
+- [28:24.180] this is an honor
+- [28:25.450] I never imagined receiving, and one I wish
+- [28:27.950] I didn't have to accept under these circumstances.
+- [28:32.040] My name is Amit Soussana and I'm a survivor.
+- [28:35.260] On October 7th, my world changed forever.
+- [28:38.420] I was taken hostage by Hamas and held captive for 55 days.
+- [28:43.460] 55 days of fear, of pain,
+- [28:45.880] and of being stripped of every freedom
+- [28:48.270] I once took for granted.
+- [28:51.080] In captivity, I had no control over my body,
+- [28:54.350] no control over my life. I resisted as best as I could,
+- [28:58.720] but it was not enough to stop what happened to me.
+- [29:02.790] The darkness was suffocating. Yet even in the darkness,
+- [29:07.060] there was one thing they could not have taken from me;
+- [29:10.230] the strength my mother installed in me,
+- [29:12.670] the belief that we must always stand for what is right,
+- [29:16.350] no matter the cost.
+- [29:19.000] Courage, to me, means standing up for what you believe in,
+- [29:22.930] even when the odds are against you.
+- [29:24.990] It means staying true to your values.
+- [29:27.230] Choosing hope when despair threatens to take over,
+- [29:31.220] and choosing love when confronted with hate.
+- [29:34.600] It is an incredible honor to stand before you today,
+- [29:37.730] but it is also a deeply painful moment.
+- [29:40.470] While I'm here, my friends remain in the darkness.
+- [29:44.150] 543 long days and nights, they're still suffering,
+- [29:49.220] still waiting, still hoping.
+- [29:52.360] Their voices remain unheard, so I will speak for them.
+- [29:56.640] We cannot move forward until they are free.
+- [30:00.390] I vowed that if I would survive, I would never be silent.
+- [30:03.850] I would speak not just for myself,
+- [30:06.040] but for every woman who had been silenced.
+- [30:09.540] When I first told my story, I only wanted to raise awareness
+- [30:12.940] about the horrors of captivity and the terror of October 7th.
+- [30:17.830] But my story became part of a much bigger conversation.
+- [30:21.730] One about sexual violence, about war,
+- [30:24.880] and about the unimaginable strength of women
+- [30:27.850] in the face of brutality.
+- [30:30.160] Women from all over the world reach out to me,
+- [30:32.710] sharing their own stories, their own pain.
+- [30:36.120] Their suffering is real, their wounds are deep,
+- [30:39.230] and yet they endure because that is what we as women do.
+- [30:44.790] Today I understand the true meaning of freedom
+- [30:47.900] in a way that I never did before.
+- [30:50.050] Not as something to be taken for granted,
+- [30:52.580] but as something fragile and scarce.
+- [30:55.420] To simply step outside and look at the sky,
+- [30:58.180] to see the moon and the stars,
+- [31:00.100] to breathe, to choose one's own path.
+- [31:04.030] These are privileges I will never again overlook.
+- [31:09.110] In Israel, we're about to celebrate Passover,
+- [31:12.330] the story of liberation, of breaking free from bondage.
+- [31:16.470] But this will be the second
+- [31:18.260] Passover that the hostages remain in captivity.
+- [31:22.490] And across the world, Christians will celebrate
+- [31:24.850] Easter, a time of renewal and hope.
+- [31:28.050] But for too many families.
+- [31:30.260] There is no renewal, only waiting, only longing.
+- [31:34.010] They fear for what their loved ones are enduring
+- [31:36.810] and whether they will ever get to see them again.
+- [31:40.900] I accept this award not for myself,
+- [31:43.460] but in the name of all the brave women of Israel,
+- [31:46.770] the women who endure, who led, who refuse to break.
+- [31:51.680] We are the stronger gender, not because we do not feel pain,
+- [31:55.690] but because we rise from it,
+- [31:57.760] because we fight not just for ourselves,
+- [32:00.720] but for those who cannot fight for themselves. Sorry.
+- [32:11.850] This award comes at a critical moment.
+- [32:14.640] The hostages cannot wait. Every single day that passes
+- [32:18.370] is another day of unimaginable suffering.
+- [32:21.480] With every passing moment, their pain deepens,
+- [32:25.410] their hope fades,
+- [32:26.660] and their chances of survival diminish.
+- [32:29.890] I call on the world to act, to bring them home now.
+- [32:32.990] Not tomorrow, not next week. Now.
+- [32:36.990] I'm deeply grateful to President Trump
+- [32:39.230] and his administration for their role
+- [32:41.460] in the last hostages exchange,
+- [32:44.450] and I trust that they will continue their efforts
+- [32:47.020] until every last hostage is free.
+- [32:50.370] The International Woman of Courage Award
+- [32:52.300] is more than an honor. It is a responsibility.
+- [32:55.570] It is a reminder that courage is not just about standing strong.
+- [32:59.780] It is about standing together.
+- [33:02.000] It is about fighting for those who cannot fight for themselves.
+- [33:05.490] It is about choosing justice over silence, action over fear.
+- [33:10.470] I want to express my deepest gratitude
+- [33:12.440] to the US Secretary of State for its dedication
+- [33:15.470] to the International Women of Courage Award.
+- [33:18.280] For years, this initiative has honored extraordinary women
+- [33:22.340] who champion justice, equality, and human rights,
+- [33:25.970] amplifying their voices and inspiring change worldwide.
+- [33:31.200] Their stories remind us all of the profound impact
+- [33:34.610] that one person's bravery can have over the world.
+- [33:39.710] By recognizing their courage, the State Department has played
+- [33:43.150] a vital role in empowering women.
+- [33:45.840] Thank you for continuing this important tradition,
+- [33:48.720] for supporting these courageous leaders,
+- [33:50.920] and for ensuring that their efforts do not go unnoticed.
+- [33:54.930] May we never stop fighting for those in the darkness.
+- [33:58.080] May we never take our freedom for granted.
+- [34:00.860] And may we as women continue to lead the way towards justice,
+- [34:04.650] towards peace,
+- [34:05.900] and toward the world where no one is left behind.
+- [34:08.700] Thank you.
+- [34:45.830] Ms. Fotovat: Thank you, Amit,
+- [34:47.120] for those incredibly powerful remarks.
+- [34:52.160] Your story and those of the other women honored here today
+- [34:56.550] represent the stories of countless courageous women
+- [34:59.310] around the world who each day make their communities
+- [35:03.470] and regions safe and more peaceful and more secure.
+- [35:10.090] To all of our IWOC awardees… And you all haven't seen this,
+- [35:12.620] but they're such sisters right now already,
+- [35:15.640] and it's been just a few days, and it's beautiful.
+- [35:17.610] And I have so many funny stories to tell of all of them.
+- [35:21.200] To all of our IWOC awardees, Henriette, Amit, Major Velena,
+- [35:26.310] Angelique, Georgiana, Zabib, Namini, and Amat, your tireless,
+- [35:33.590] courageous, inspiring work drives us forward.
+- [35:37.260] I also want to take a moment and quote our First Lady
+- [35:40.890] that courage is strength in love.
+- [35:44.950] That was beautiful. Thank you so much.
+- [35:48.140] Your bravery and tenacity to defend the rights
+- [35:50.600] and liberties of the most
+- [35:51.960] in need embodies American values abroad.
+- [35:55.430] May a million flowers continue to bloom all over the world
+- [35:58.920] from the power of your courage and voices.
+- [36:02.540] I also want to take a moment to again acknowledge
+- [36:05.850] that the Madeline Albright Honorary Group Award
+- [36:08.990] for International Women of Courage
+- [36:10.550] is given to the student women protestors of Bangladesh.
+- [36:14.440] And I want to thank all of our awardees
+- [36:17.460] for traveling great distances, taking great risk to themselves
+- [36:23.300] and their families to accept this award.
+- [36:26.020] Our sincere hope is that this award
+- [36:27.630] will be a stepping stone
+- [36:29.410] that'll help you reach more people
+- [36:31.260] with your incredibly important work.
+- [36:33.900] And we will all in this room and everyone watching continue
+- [36:37.600] to be champions for those efforts.
+- [36:53.390] In closing, I want to again thank our First Lady,
+- [36:56.390] our amazing First Lady, Mrs. Melania Trump.
+- [36:59.050] Please another round of applause.
+- [37:12.050] And my boss, Secretary Rubio
+- [37:20.710] and Mrs. Rubio for generously hosting today's ceremony.
+- [37:29.700] And I also want to thank our spokesperson, Tammy Bruce,
+- [37:32.640] for just taking the time to always be such a champion
+- [37:35.370] and doing our daily press briefings across the department
+- [37:37.950] and continuing to champion the efforts of women.
+- [37:47.750] I also want to thank the First Lady's team,
+- [37:49.740] as well as Counselor Needham's team,
+- [37:52.250] the Assistant Secretary Exner's team
+- [37:53.870] for all their efforts in making today possible.
+- [38:03.810] And a huge, huge shout out to our wonderful S/GWI,
+- [38:08.570] Secretary Office of Global Women's Issues team as well.
+- [38:21.810] And finally, I want to extend our wonderful
+- [38:23.960] thanks to our Bureau of Education and Cultural Affairs
+- [38:26.470] for their continued partnership on the IWOC program,
+- [38:29.770] especially our International Visitors Program.
+- [38:41.200] We are so grateful for you all to be here today,
+- [38:43.860] and there is a reception in the Jefferson Room next door.
+- [38:47.420] So please, please join us for that.
+- [38:49.310] And again, thank you to all these Incredible
+- [38:51.220] Women of Courage.

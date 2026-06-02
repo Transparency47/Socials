@@ -1,0 +1,556 @@
+<!-- source: https://www.youtube.com/watch?v=CpsG75j-0hY -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: CpsG75j-0hY -->
+<!-- date_published: 2025-08-18T19:20:19+00:00 -->
+<!-- date_accessed: 2026-06-02T02:45:35.718679+00:00 -->
+
+# Transcript: President Trump Participates in a Multilateral Meeting with European Leaders
+
+- [02:03.520] The President: Isn't it just -- it's such an incredible place.
+- [02:08.570] Well, we're building a big, a ballroom. Beautiful.
+- [02:12.550] Right here, if you go -- it would be right through that.
+- [02:16.280] Right through here.
+- [02:17.600] Male Speaker: (inaudible)
+- [02:19.950] The President: It's going to be --
+- [02:21.400] I'll tell you, but it's going to be fantastic, actually.
+- [02:28.640] You can let them come in.
+- [02:32.830] I think we're going to have a successful talk today.
+- [02:37.570] Please, come on in.
+- [02:41.310] Do you guys want to take some questions or anything?
+- [02:49.010] Hi, Mark.
+- [03:02.230] Well, thank you very much.
+- [03:03.720] It's a great honor to have you here.
+- [03:06.830] A special place, the White House is special
+- [03:08.770] no matter where you're from.
+- [03:10.410] It represents so much, and it truly is beautiful.
+- [03:13.130] And thank you for all of the wonderful things
+- [03:17.630] that took place today.
+- [03:18.920] We've had a very successful day thus far.
+- [03:21.740] Important discussions as we work to end the killing
+- [03:24.730] and stop the war in Ukraine.
+- [03:25.960] We're all working for the same goal, a very simple goal.
+- [03:28.870] We want to stop the killing, get this settled.
+- [03:32.190] I've just had the honor of being with President Zelensky
+- [03:38.020] in all of the discussions that we've had.
+- [03:41.280] We've covered a lot of territory.
+- [03:43.650] And I spoke indirectly with President Putin today.
+- [03:46.850] We're going to call President Putin right after this meeting.
+- [03:50.790] I'm sure we're going to have a solid meeting,
+- [03:53.180] good meeting, maybe a great meeting.
+- [03:54.680] And we're going to try and work out a trilat after that and see
+- [03:58.720] if we can get it finished, put this to sleep,
+- [04:02.500] because this is not since the Second World War
+- [04:06.220] has there been anything like this.
+- [04:08.450] So I'm honored to welcome NATO Secretary General Mark Rutte,
+- [04:13.790] who's a great gentleman,
+- [04:15.430] great, great political leader in Europe generally.
+- [04:18.700] But now he's the NATO Secretary General,
+- [04:21.700] and you're doing a fantastic job.
+- [04:23.030] Thank you very much, Mark.
+- [04:25.220] Prime Minister Starmer of the United Kingdom,
+- [04:28.140] our friend and my friend, and doing really well.
+- [04:33.040] And people like him a lot. We all like him.
+- [04:35.760] Everyone knows President Macron of France,
+- [04:38.860] who's been with me from the beginning,
+- [04:40.580] one of the first people I met as a foreign dignitary,
+- [04:46.070] and I liked him from day one. And I like him even more now.
+- [04:50.600] That's pretty good. That's unusual.
+- [04:53.180] That's a pretty unusual thing.
+- [04:56.250] Prime Minister Meloni of Italy,
+- [04:57.830] who's a really great leader and an inspiration over there.
+- [05:02.590] She's served now, even though she's a very young person,
+- [05:06.570] she's served there for a long period of time
+- [05:08.780] relative to others.
+- [05:10.000] They don't last very long. You've lasted a long time.
+- [05:13.400] You're going to be there a long time.
+- [05:16.240] Chancellor Merz of Germany,
+- [05:18.870] who is a very strong person and a very strong leader
+- [05:23.880] and very highly respected in Germany.
+- [05:26.560] And he's my friend, and it's an honor
+- [05:27.990] to have him as my friend.
+- [05:29.220] Thank you very much. Very good. You look great with your tan.
+- [05:31.970] Where did you get that tan? I want to get a tan like that.
+- [05:37.090] President Stubb of Finland, and he's somebody that—
+- [05:43.060] Where are we here? Huh? Where? Where? Oh.
+- [05:48.690] You look better than I've ever seen you look.
+- [05:51.640] But you've done a great job, and we wanted to have you here
+- [05:54.940] because you're somebody that we all respect,
+- [05:57.500] and you've had a lot to do with the success,
+- [05:59.930] I think, and the potential success.
+- [06:01.600] And thank you very much for being here.
+- [06:03.460] We appreciate it.
+- [06:05.040] And the President of the European Commission,
+- [06:07.910] Ursula von der Leyen,
+- [06:09.810] who is somebody that we just made a big deal with,
+- [06:13.730] with all of those countries. I don't know.
+- [06:15.570] I think you might be more powerful
+- [06:17.080] than all these guys at this table.
+- [06:18.710] I don't know. But we had a great negotiation,
+- [06:23.320] and you're respected all over the world.
+- [06:26.040] So I want to thank you very much for being here.
+- [06:27.680] It's a great honor to have you.
+- [06:29.870] The Alaska Summit reinforced my belief
+- [06:32.050] that while difficult, peace is within reach,
+- [06:34.450] and I believe that in a very significant step.
+- [06:37.870] President Putin agreed that Russia would accept
+- [06:41.480] security guarantees for Ukraine,
+- [06:43.370] and this is one of the key points that we need to consider.
+- [06:46.510] And we're going to be considering that
+- [06:48.370] at the table also,
+- [06:49.570] like who will do what, essentially.
+- [06:51.780] I'm optimistic that collectively we can reach an agreement
+- [06:55.680] that would deter any future aggression against Ukraine,
+- [06:59.180] and I actually think there won't be.
+- [07:00.570] I think that's even overrated, largely overrated,
+- [07:04.490] but we're going to find out.
+- [07:05.820] And I think that the European nations
+- [07:08.510] are going to take a lot of the burden.
+- [07:10.410] We're going to help them,
+- [07:11.680] and we're going to make it very secure.
+- [07:14.280] We also need to discuss the possible exchanges of territory
+- [07:18.110] taken into consideration, the current line of contact.
+- [07:21.850] That means the war zone,
+- [07:23.780] the war lines that are pretty obvious, very sad,
+- [07:28.460] actually, to look at them, and negotiating positions.
+- [07:32.030] President Putin also.
+- [07:35.080] You have President of Ukraine, who is –
+- [07:38.920] you just met a little while ago,
+- [07:40.370] and we're going to try and get a three-party meeting
+- [07:45.310] maybe as soon as we can and I have a feeling you
+- [07:48.520] and President Putin are going to work something out.
+- [07:51.530] Ultimately, this is a decision that can only be made
+- [07:54.570] by President Zelensky and by the people of Ukraine
+- [07:58.430] working also together in agreement with President Putin.
+- [08:02.120] And I just think that's –
+- [08:04.380] very good things are going to come of it.
+- [08:05.900] So I hope we have a good meeting.
+- [08:07.220] And if we can have a good meeting,
+- [08:09.000] I'll set up a meeting with President Putin.
+- [08:11.550] And if you'd like, I'll go to that meeting.
+- [08:14.370] And not that I want to do that, but I will do that
+- [08:17.790] because we want to save a lot of people from dying.
+- [08:20.950] A lot of people are dying, and we've got to save them.
+- [08:22.990] We've got to save it – 5,000, 6,000,
+- [08:25.310] 7,000 people sometimes a week.
+- [08:27.820] All of us would obviously prefer an immediate ceasefire
+- [08:30.910] while we work on a lasting peace.
+- [08:32.730] And maybe something like that could happen.
+- [08:34.890] As of this moment, it's not happening.
+- [08:36.780] But President Zelensky and President Putin
+- [08:40.490] can talk a little bit more about that.
+- [08:43.200] You know, in the six or so wars that we stopped,
+- [08:46.920] we haven't had a ceasefire.
+- [08:48.980] And so I don't know that it's necessary.
+- [08:52.210] You can do it through the war. But it would be –
+- [08:54.830] I like the ceasefire from another standpoint.
+- [08:56.840] You immediately stop the killing.
+- [08:59.320] But I believe a peace agreement at the end of all of this
+- [09:02.520] is something that's very attainable,
+- [09:05.200] and it can be done in the near future.
+- [09:07.490] With all of the wars that I got involved in,
+- [09:10.460] we only have this one left.
+- [09:12.710] Of course, as I walk out the door,
+- [09:13.970] there will probably be a new one starting,
+- [09:15.710] and I'll get that stopped too.
+- [09:17.010] But I thought this was going to be one of the easier ones.
+- [09:19.170] It's actually one of the most difficult and very complex.
+- [09:22.990] The next step would be for a trilateral meeting,
+- [09:25.760] and that will be worked out.
+- [09:27.750] And I just look forward to working
+- [09:30.100] and having a great result.
+- [09:31.560] We're going to spend a lot of time today talking about –
+- [09:34.510] and we're really honored you guys came over.
+- [09:36.200] I mean, these are the heads of major countries,
+- [09:38.870] and respected all over Europe.
+- [09:42.390] And they speak for – largely, I think I should say,
+- [09:45.630] but pretty much for the other countries of Europe.
+- [09:49.920] And we will come to a resolution today,
+- [09:53.700] I think, on almost everything, including probably the security.
+- [09:58.040] And that's pretty much the story.
+- [10:00.350] I'd like to say, Mr. President, would you like to say something?
+- [10:02.680] You have the media.
+- [10:04.020] If you want, you could come over and you could stand
+- [10:06.660] – you could use mine or you could just turn around,
+- [10:08.820] whichever you feel comfortable with.
+- [10:11.820] President Zelensky: Thank you so much.
+- [10:13.180] I can speak without microphone. Thank you so much.
+- [10:17.670] I think that we had very good conversation
+- [10:19.920] with President Trump. Very good.
+- [10:21.310] And it really was the best one –
+- [10:24.770] or, sorry, maybe the best one will be in the future.
+- [10:27.880] But it was really good.
+- [10:29.440] And we spoke about very sensitive points.
+- [10:33.130] The first one is security guarantees.
+- [10:34.860] And we are very happy, Mr. President,
+- [10:36.530] that all the leaders are here.
+- [10:39.020] And security in Ukraine depends on the United States
+- [10:42.700] and on you and on those leaders who are with us in our hearts.
+- [10:47.350] They have been online before yesterday and et cetera.
+- [10:51.380] So a lot of countries on the side of Ukraine,
+- [10:54.540] our people, and all of us want to finish this war,
+- [10:57.280] stop Russia and stop this war. We spoke about it,
+- [11:00.850] and we will speak more about security guarantee.
+- [11:03.140] This is very important
+- [11:04.340] that United States gives such strong signal
+- [11:08.460] and is ready for security guarantees.
+- [11:11.540] The second point, or maybe the first,
+- [11:13.840] is humanitarian direction.
+- [11:15.520] Very important to exchange all the prisoners,
+- [11:17.620] and I think that President will help.
+- [11:19.720] And I was very thankful to your wife again,
+- [11:22.990] Mr. President, for the letter about our abducted children.
+- [11:28.600] And I hope that really it can be historic role for the people
+- [11:34.730] to bring kids back to the families and be happy.
+- [11:39.600] And get their people back.
+- [11:40.990] Yes, this is so, so important,
+- [11:43.260] and I'm happy that we discussed it,
+- [11:45.390] this threat with President Trump.
+- [11:46.980] And I hope that we will find these prisons.
+- [11:50.570] And then what is very important that all the sensitive things,
+- [11:56.440] territorial, et cetera, we will discuss
+- [11:59.570] on the level of leaders during trilateral meeting.
+- [12:02.670] And President Trump will try to organize such meeting.
+- [12:07.750] And he said that he will come or not come.
+- [12:12.200] Ukraine will be happy if you will participate.
+- [12:15.110] If you want me there, I will be there. Thank you.
+- [12:17.960] And I think this is very important.
+- [12:20.340] Yes, so security guarantees bring kids back
+- [12:24.410] and all our people,
+- [12:25.680] not only warriors, first of all warriors,
+- [12:28.240] and all the civilians, journalists,
+- [12:30.150] a lot of people in prison. So we need them back.
+- [12:34.610] And guarantees which will work for the years.
+- [12:37.640] We spoke about it.
+- [12:38.980] And I showed President a lot of details
+- [12:43.020] on the battlefield, on the map. Thank you so much.
+- [12:45.570] The President: Thank you for the map,
+- [12:46.930] by the way. It was great.
+- [12:49.600] I'm thinking how to take it back.
+- [12:52.020] We'll get you. No, no, no.
+- [12:53.230] President Zelensky: I think that we had constructive,
+- [12:56.060] specific meeting.
+- [12:57.740] And I'm very thankful to all the leaders who are here.
+- [13:02.230] And you helped a lot.
+- [13:04.080] And so we are happy that we have such a big community today.
+- [13:09.590] Thank you, Mr. President. Thank you very much.
+- [13:11.550] The President: Mr. President, I think you'll see
+- [13:13.320] that President Putin really would like to do something else.
+- [13:15.730] I think when we set that up, when we do,
+- [13:19.490] I think it's going to be when, not if.
+- [13:21.680] I think you're going to see some really positive moves.
+- [13:26.080] I know there's over a thousand prisoners,
+- [13:28.110] and I know they're going to release them.
+- [13:29.450] Maybe they're going to release them very soon,
+- [13:31.940] like immediately, which I think is great.
+- [13:35.640] But we're going to set that up today after this meeting.
+- [13:40.010] So, very good.
+- [13:41.240] And great remarks. I appreciate it.
+- [13:43.140] The President: Mark, as head of NATO,
+- [13:44.390] maybe you could say a few words.
+- [13:45.730] Mark Rutte: Yes, I will be very brief.
+- [13:47.250] I really want to thank you, President of the United States,
+- [13:50.250] dear Donald, for the fact that you, as I said before,
+- [13:52.400] broke the deadlock, basically, with President Putin
+- [13:56.450] by starting that dialogue. And I think it was in February
+- [13:58.870] that you had the first phone call.
+- [14:01.070] And from there, we are now where we are today.
+- [14:04.260] And that is, I think if we play this well, we could end this.
+- [14:08.350] And we have to end this. We have to stop the killing.
+- [14:10.000] We have to stop the destruction of Ukraine's infrastructure.
+- [14:13.720] It is a terrible war.
+- [14:15.660] So, I'm really excited.
+- [14:17.250] And let's make the best out of today
+- [14:19.040] and make sure that from today onwards,
+- [14:21.990] we get this thing to an end as soon as possible.
+- [14:24.310] I really want to thank you for your leadership,
+- [14:26.620] what you are doing for Lord and me,
+- [14:28.080] but of course, also all the European colleagues.
+- [14:30.320] It is really crucial. And the fact that you have said,
+- [14:33.470] I'm willing to participate in the security guarantees
+- [14:36.640] is a big step. It's really a breakthrough.
+- [14:38.820] And it makes all the difference. So, also, thank you for that.
+- [14:42.690] The President: Well, NATO also has agreed from 2% to 5%,
+- [14:45.760] which is something that is a massive amount of money.
+- [14:48.550] And it's 2% that wasn't always paid to 5% that is paid.
+- [14:52.760] That's a big difference. And so, we appreciate that.
+- [14:55.520] That's a great move. Thank you very much.
+- [14:57.820] The President: Ursula, maybe on behalf of the Commission,
+- [14:59.630] you could say a couple of words.
+- [15:01.610] Ursula von der Leyen: Thank you very much.
+- [15:02.870] It's a pleasure to be here.
+- [15:04.330] And it's a very important moment.
+- [15:06.790] Indeed, we are here, Europeans, as friends and allies.
+- [15:10.370] We had a fantastic NATO summit.
+- [15:13.410] Together, the two largest and biggest economies in the world,
+- [15:16.940] we had the largest trade deal ever.
+- [15:19.440] Right. Agreed.
+- [15:20.690] And now we are here to work together with you
+- [15:24.980] on a just and lasting peace for Ukraine to stop the killing.
+- [15:28.030] This is really our common interest, stop the killing.
+- [15:31.520] And indeed, it's very good to hear
+- [15:32.890] that we're working on the security guarantees.
+- [15:35.090] Article 5 life security guarantees, so important.
+- [15:39.110] But I want to thank you also that you mentioned
+- [15:41.280] the thousands of Ukrainian children
+- [15:44.380] that have been abducted. And as a mother and grandmother,
+- [15:48.160] every single child has to go back to its family.
+- [15:52.010] This should be one of our main priorities
+- [15:54.720] also in these negotiations to make sure that the children
+- [15:57.910] come back to Ukraine to their families. Thank you.
+- [16:00.450] The President: And we did.
+- [16:01.790] I was just thinking we're here for a different reason.
+- [16:04.320] But we just a couple of weeks ago
+- [16:06.400] made the largest trade deal in history.
+- [16:08.260] So that's a big that's a big thing.
+- [16:10.450] And congratulations. That's great.
+- [16:12.470] Thank you very much.
+- [16:14.800] The President: Mr. Chancellor from Germany,
+- [16:17.270] a very, very great leader.
+- [16:19.900] Chancellor Merz: Mr. President, Donald,
+- [16:21.240] many thanks for having us today.
+- [16:23.390] I think this is extremely helpful that we are meeting
+- [16:27.560] and hearing that the two of you
+- [16:30.030] are having such a good meeting today here in Washington.
+- [16:34.940] The next steps ahead are the more complicated ones now.
+- [16:39.230] The path is open. You opened it last Friday.
+- [16:43.760] But now the way is open for complicated negotiations.
+- [16:47.840] And to be honest, we all would like to see a ceasefire.
+- [16:53.160] The latest from the next meeting on.
+- [16:56.100] I can't imagine that the next meeting
+- [16:58.600] would took place without a ceasefire.
+- [17:01.890] So let's work on that.
+- [17:03.350] And let's try to put pressure on Russia.
+- [17:06.310] Because the credibility of these efforts we are undertaking today
+- [17:10.530] are depending on at least a ceasefire from the beginning
+- [17:14.710] of the serious negotiations from next step on.
+- [17:17.780] So I would like to emphasize this aspect
+- [17:20.940] and would like to see a ceasefire from the next meeting,
+- [17:25.610] which should be a trilateral meeting wherever it takes place.
+- [17:29.780] The President: We're going to let the President go over
+- [17:32.720] and talk to the President,
+- [17:34.500] and we'll see how that works out.
+- [17:36.840] And if we can do that, I will say it again.
+- [17:39.600] I say it in the six wars that I've settled.
+- [17:42.950] I haven't had a ceasefire. We just got into negotiations,
+- [17:46.630] and the one of the wars was, as you know,
+- [17:49.690] in the Congo was 30 years, 31 years long.
+- [17:53.860] Another one that we settled last week with two great countries
+- [17:57.090] was 35 years going on, and we had no ceasefire.
+- [17:59.980] So if we can do the ceasefire, great.
+- [18:02.730] And if we don't do a ceasefire,
+- [18:05.480] because many other points were given to us,
+- [18:07.820] many, many points were given to us, great points.
+- [18:10.530] The President: Please, Georgia, go ahead.
+- [18:12.910] Prime Minister Meloni: Well, thank you very much,
+- [18:14.180] Donald, Mr. President,
+- [18:15.540] for hosting us today in this important meeting.
+- [18:18.190] And I think it is an important day,
+- [18:21.510] a new phase, after three years and up,
+- [18:24.280] that we didn't see any kind of sign from the Russian side
+- [18:29.420] that there was a willing for dialogue.
+- [18:31.650] So something is changing,
+- [18:33.700] something has changed, thanks to you,
+- [18:36.380] thanks also to the stalling in the battlefield,
+- [18:40.340] which was achieved with the bravery of Ukrainians
+- [18:43.900] and with the unity that we all provided to Ukraine.
+- [18:48.130] And the reason why I mention it is
+- [18:49.850] that we also have to remind that if we want to reach peace
+- [18:54.180] and if we want to guarantee justice,
+- [18:58.040] we have to do it united.
+- [18:59.860] So that's why it's a very good day, the one we are in.
+- [19:05.570] You can obviously count on Italy as it was from the beginning.
+- [19:09.140] We are on the side of Ukraine
+- [19:10.490] and we do absolutely support your efforts towards peace.
+- [19:18.080] We will talk about many important topics.
+- [19:21.980] The first one is security guarantees,
+- [19:24.340] how to be sure that it won't happen again,
+- [19:27.980] which is the precondition of every kind of peace.
+- [19:30.890] I'm happy that we will discuss about that.
+- [19:33.020] I'm happy that we will begin from a proposal,
+- [19:35.240] which is the, let's say, Article 5 model,
+- [19:40.510] which was Italian at the beginning.
+- [19:42.950] So we are always ready to bring our proposals for peace,
+- [19:47.040] for dialogue.
+- [19:48.270] It's something we have to build together to guarantee peace
+- [19:53.110] and to defend the security of our nation.
+- [19:54.660] So thank you, Mr. President, for hosting us.
+- [19:57.410] Thank you very much.
+- [19:58.710] The President: Emmanuel.
+- [20:01.080] President Macron: Thank you, Mr. President,
+- [20:02.350] for organizing this meeting and for your commitments.
+- [20:07.960] And everything was said, but I just have to say here,
+- [20:12.320] everybody around this table is in favor of peace.
+- [20:16.780] And we work very hard
+- [20:18.520] and we've worked very hard in the past few years
+- [20:21.130] to have a peace which is a robust and longstanding peace.
+- [20:26.170] This is why the idea of a trilateral meeting
+- [20:29.150] is very important,
+- [20:30.440] because it is the only way to fix it.
+- [20:32.900] And by the way, I think as a follow-up,
+- [20:35.240] we would need probably a quadrilateral meeting,
+- [20:37.320] because when we speak about security guarantees,
+- [20:39.910] we speak about the whole security
+- [20:41.530] of the European continent.
+- [20:43.200] And this is why we are all united here
+- [20:45.140] with Ukraine on this matter. In order
+- [20:49.380] to organize such a trilateral meeting,
+- [20:51.110] your idea to ask for a truce, or at least to stop the killing,
+- [20:56.600] as we discussed, is a necessity. And we all support this idea.
+- [21:02.510] And in order to have such a longstanding peace for Ukraine
+- [21:05.560] and for the whole continent, we do need security guarantees.
+- [21:10.460] The first one is clearly a credible Ukrainian army
+- [21:14.630] for the years and decades to come.
+- [21:17.040] And the second one is our own commitments, all of this.
+- [21:20.610] And we worked very hard during the past few months
+- [21:24.090] among the coalition of the willing,
+- [21:25.640] with the support of NATO,
+- [21:27.290] to build the different pillars of security
+- [21:29.400] guarantees and our commitment.
+- [21:31.290] And you can be sure that Europeans are very lucid
+- [21:33.490] about the fact that they have their fair share
+- [21:36.620] in the security guarantees for Ukraine,
+- [21:38.290] but their own security is clearly at stake
+- [21:41.670] in this situation.
+- [21:43.090] So you can count on us, as we can count on you,
+- [21:46.520] in order to deliver this obvious peace
+- [21:50.150] for both Ukraine and Europe. Thank you.
+- [21:52.240] The President: Thank you very much, Emmanuel.
+- [21:53.700] Mr. Prime Minister.
+- [21:55.710] Prime Minister Starmer: Thank you very much, Mr. President,
+- [21:57.220] and thank you for hosting us here.
+- [22:00.390] Can I start where Emmanuel started,
+- [22:01.780] which is we all want peace.
+- [22:04.730] The war in Ukraine has had a huge impact,
+- [22:07.500] particularly on the Ukrainians who fall on the front of it,
+- [22:10.750] but it's also had an impact on Europe
+- [22:13.130] and on the United Kingdom.
+- [22:14.470] There's not a family or community
+- [22:16.310] that hasn't been affected.
+- [22:18.040] And when we talk about security,
+- [22:20.050] we're talking about security not just of Ukraine,
+- [22:22.280] we're talking about the security of Europe
+- [22:24.250] and the United Kingdom as well,
+- [22:25.640] which is why this is such an important issue.
+- [22:27.790] I think this is such an important meeting.
+- [22:29.750] As a group, I think we've had a discussion
+- [22:31.660] on the phone a number of times, Mr. President,
+- [22:33.740] but be able now to be around the table to take it forward.
+- [22:37.070] And I really feel that we can, I think,
+- [22:40.620] with the right approach this afternoon,
+- [22:42.170] make real progress, particularly on the security guarantees,
+- [22:46.300] and your indication of security guarantees
+- [22:48.180] of some sort of Article 5-style guarantees fits
+- [22:51.670] with what we've been doing with the Coalition of the Willing,
+- [22:53.890] which we started some months ago bringing countries together
+- [22:56.980] and showing that we were prepared to step up to the plate
+- [22:59.970] when it came to security.
+- [23:01.550] With you coming alongside the U.S.,
+- [23:04.210] alongside what we've already developed,
+- [23:06.420] I think we could take a really important step forward today,
+- [23:09.660] a historic step, actually, could come out of this meeting
+- [23:12.660] in terms of security for Ukraine and security in Europe.
+- [23:16.440] I also feel that we can make real progress
+- [23:20.170] towards a just and lasting outcome.
+- [23:24.400] Obviously, that has to involve Ukraine,
+- [23:27.280] and a trilateral meeting seems the sensible next step.
+- [23:30.820] Thank you for being prepared to take that forward,
+- [23:33.460] because I think if we can ensure
+- [23:36.820] that that is the progress out of this meeting,
+- [23:40.560] both security guarantees and some sort of progress
+- [23:42.970] on trilateral meeting of some sort
+- [23:45.770] to bring some of the difficult issues to a head,
+- [23:49.630] then I think today will be seen
+- [23:52.140] as a very important day in recent years.
+- [23:55.140] In relation to a conflict which has gone on
+- [23:56.790] for three and a bit years,
+- [23:58.740] and so far nobody has been able to bring it to this point.
+- [24:01.700] So I thank you for that.
+- [24:03.230] The President: Well, thank you very much.
+- [24:04.530] And, you know, it's very interesting
+- [24:06.300] because this is the first for the White House.
+- [24:08.150] They can't say that very often. It's seen a lot over the years,
+- [24:11.530] over the — since 1800, 1799, to be almost exact.
+- [24:17.530] But this is the first where we've had so many
+- [24:19.180] prime ministers, presidents, the heads of European nations.
+- [24:24.090] And by the way, Alex,
+- [24:25.350] I'd like you to say a couple of words, too.
+- [24:27.120] You're a young, powerful man.
+- [24:30.540] Before I finish up, I want you to say a couple of words.
+- [24:32.990] Go ahead.
+- [24:35.750] Alex Stubb: I'll take the notion of youth back to my wife
+- [24:38.300] and try to convince her.
+- [24:40.520] Thank you very much, Mr. President.
+- [24:41.900] I think in the past two weeks,
+- [24:44.700] we've probably had more progress in ending this war
+- [24:48.320] than we have in the past three and a half years.
+- [24:51.330] And I think the fact that we're around this table today
+- [24:54.610] is very much symbolic in the sense
+- [24:57.150] that it's Team Europe and Team United States helping Ukraine.
+- [25:02.000] And the progress that we're looking out of this meeting
+- [25:05.860] is about the security guarantees,
+- [25:07.880] which are a big part of this,
+- [25:10.950] and then, of course, moving towards the process
+- [25:13.280] for the trilateral meeting with you
+- [25:16.040] and President Putin and President Zelensky.
+- [25:19.120] Some of the international media might wonder,
+- [25:21.930] you know, why is the president of Finland here?
+- [25:25.050] I think the reason is probably
+- [25:26.390] that we might come from a small country,
+- [25:28.810] but we have a long border with Russia, over 800 miles,
+- [25:33.730] and we, of course, have our own historical experience
+- [25:36.440] with Russia from World War II,
+- [25:39.240] the Winter War and the War of Continuation.
+- [25:42.370] And if I look at the silver lining
+- [25:43.960] of where we stand right now, we found a solution in 1944,
+- [25:48.420] and I'm sure that we'll be able to find a solution in 2025
+- [25:52.700] to end Russia's war of aggression and find
+- [25:55.920] and get a lasting and just peace.
+- [25:59.890] The situation is very difficult, but that's why we're here.
+- [26:03.020] The President: Thank you, Alex, very much. Good job.
+- [26:05.920] So we're going to be meeting for a while,
+- [26:08.840] and we're going to discuss some of the issues.
+- [26:12.100] And I don't think there's any issue that's overly complex.
+- [26:15.700] It's at a point now where people want to do things.
+- [26:18.800] I do. I really do believe I've known him for a long time.
+- [26:21.500] I've always had a great relationship with him.
+- [26:23.380] I think that President Putin wants to find an answer, too.
+- [26:26.820] And we'll see.
+- [26:28.160] And in a certain period of time,
+- [26:30.200] not very far from now, a week or two weeks,
+- [26:33.420] we're going to know whether or not we're going to solve this
+- [26:36.160] or is this horrible fighting going to continue.
+- [26:39.070] We'll do the best to get it ended.
+- [26:42.010] And I believe you have two willing parties,
+- [26:44.840] and usually that's good news,
+- [26:46.120] but two willing parties that want to make a deal.
+- [26:48.050] But we'll journey together, and we'll go over,
+- [26:51.500] and we'll see if it can be done.
+- [26:54.100] And it's possible it might not be able to be done.
+- [26:57.340] On the other hand, it's possible it will,
+- [26:58.970] and we're going to save thousands
+- [27:00.240] and thousands of lives a week.
+- [27:02.610] And so it's something we really have to do.
+- [27:05.440] And – or at least we have to give it our best.
+- [27:07.600] That's all you can do. You can give it your best.
+- [27:09.680] But I think we may have a very good outcome.
+- [27:12.060] So I want to thank you all, and the media want to thank you.
+- [27:14.510] We're going to be staying here for a little while,
+- [27:16.640] then we're going to walk over to the Oval Office,
+- [27:19.820] and we're going to have another little discussion
+- [27:23.470] about similar matters.
+- [27:24.870] And then they're going to go home
+- [27:26.690] to their great countries and report.
+- [27:29.700] And I'm going to remain here and work,
+- [27:31.500] and you're going to go and work. We're all going to be working.
+- [27:35.370] We may be in a different location,
+- [27:36.960] but that's what we know how to do is work.
+- [27:39.110] But I want to thank – the media has been actually very fair,
+- [27:41.520] generally speaking, very fair.
+- [27:43.600] I think it's important that they're fair because this is a –
+- [27:46.740] this is a very important –
+- [27:48.430] this is a very important subject.
+- [27:49.980] We have to get it ended.
+- [27:51.780] And so that's all we ask for, is fairness with the media.
+- [27:54.650] Thank you all very much. We appreciate it.
+- [27:57.040] Thank you very much.

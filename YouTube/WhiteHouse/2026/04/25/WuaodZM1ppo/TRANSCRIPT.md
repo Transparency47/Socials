@@ -1,0 +1,198 @@
+<!-- source: https://www.youtube.com/watch?v=WuaodZM1ppo -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: WuaodZM1ppo -->
+<!-- date_published: 2026-04-25T19:32:47+00:00 -->
+<!-- date_accessed: 2026-06-02T01:01:00.521519+00:00 -->
+
+# Transcript: President Trump Gaggles with Press Upon Departure from Palm Beach, FL, Apr. 25, 2026
+
+- [00:00.720] Okay.
+- [00:02.240] You've probably heard that we canceled
+- [00:04.080] the trip. We have all the cards. We're
+- [00:05.680] not going to spend
+- [00:07.040] 15 hours in airplanes all the time going
+- [00:09.280] back and forth
+- [00:11.000] to be giving a document that was not
+- [00:13.200] good enough. And uh
+- [00:15.440] So, we'll deal by telephone, and they
+- [00:17.440] can call us anytime they want.
+- [00:19.920] Again, we have all the cards. They have
+- [00:21.600] no military left, practically. They have
+- [00:23.760] no leaders left. We don't know who the
+- [00:25.360] leaders are.
+- [00:26.880] Nobody knows who the leader I don't know
+- [00:28.320] if they know who the leaders are, very
+- [00:29.680] important. So,
+- [00:31.160] uh you saw that. And uh any other
+- [00:33.680] questions? Yeah.
+- [00:34.840] Um what have you heard from Pakistan?
+- [00:36.600] The Iran foreign minister was in
+- [00:38.240] Pakistan yesterday night. I think
+- [00:40.680] Pakistan is terrific. I think the field
+- [00:42.680] marshal is fantastic. I think the prime
+- [00:45.400] minister of Pakistan is great.
+- [00:47.840] And you know, they'd like to see
+- [00:48.960] something happen. But we're not going to
+- [00:51.280] be traveling 15, 16 hours to to have a
+- [00:54.360] meeting with people that nobody ever
+- [00:56.280] heard of. What changed What changed to
+- [00:58.120] make you make What changed to make you
+- [00:59.160] make that decision? travel.
+- [01:00.800] And when they say, "The meeting's
+- [01:02.000] scheduled for Tuesday." I said,
+- [01:03.520] "Tuesday, that's a long time from now."
+- [01:05.760] But when you get right down to it, it's
+- [01:07.320] a lot of traveling. No, we don't want to
+- [01:08.720] do that. At what point do you send with
+- [01:10.600] and Kushner and send Vice President
+- [01:12.240] Pence? At what point are you going to be
+- [01:13.880] ready?
+- [01:14.240] >> They're all very competent, all three.
+- [01:15.720] Those are three good. But they weren't
+- [01:18.400] uh meeting with the leader of the
+- [01:20.000] country. They were meeting with other
+- [01:22.360] people. And I said, "We're just not
+- [01:24.480] going to do it. Too much traveling,
+- [01:25.840] takes too long, too expensive. I'm a
+- [01:28.200] very cost-conscious person." Okay. Mr.
+- [01:31.160] President, you said this week that
+- [01:32.320] you're not a fan of prediction markets
+- [01:34.160] and that they're turning the country
+- [01:35.240] into a casino. But at the same time,
+- [01:37.280] you're
+- [01:38.680] that you're not a fan of prediction
+- [01:39.920] Well, I don't know. I know some people
+- [01:41.160] that are very smart, they like it. They
+- [01:42.600] disagree, but they like it. Uh but what
+- [01:45.040] would you like to know? Are you Who are
+- [01:46.400] you with? Uh we're I'm with the crypto
+- [01:48.280] crypto-focused publication, and we also
+- [01:50.280] have a prediction market. And um your
+- [01:52.520] administration is aggressively pushing
+- [01:54.800] to legalize these markets, and I was
+- [01:56.240] wondering if you potentially wanted to
+- [01:58.120] reconsider that policy.
+- [01:59.920] >> A lot of other countries are doing it,
+- [02:01.600] and when the other countries do it, we
+- [02:03.600] get left out in the cold if we don't do
+- [02:05.360] it. So, but I know people that are in
+- [02:07.440] the prediction market business, and On
+- [02:09.479] the
+- [02:10.160] On the Fed, sir?
+- [02:11.800] What made you decide to go and attend
+- [02:13.840] this Bitcoin conference today? It's a
+- [02:15.840] big industry, and we want to beat China
+- [02:18.360] at the industry. We're leading with
+- [02:19.880] crypto, we're leading with AI, and I
+- [02:22.800] really feel I have an obligation from
+- [02:24.560] the standpoint as a president, I have to
+- [02:26.800] be able to make sure that all of our
+- [02:29.560] industries do well. Crypto is a big
+- [02:31.240] industry. It's become actually become
+- [02:33.440] somewhat mainstream. The banks have it,
+- [02:36.040] people have it, and I think as the
+- [02:38.280] leader of the country, we want to lead
+- [02:40.240] in AI, we want to And we're leading
+- [02:41.959] China by a lot in AI, and we're also
+- [02:45.120] leading in crypto. Do you agree with the
+- [02:47.120] Do you agree with the decision by Janine
+- [02:48.560] Piro
+- [02:51.520] to drop Well, I want to find out You
+- [02:53.480] know, it's not dropped. They're looking
+- [02:55.000] into the whole thing about referring to
+- [02:56.320] the IG. What I want to look What I want
+- [02:58.160] to look at Yeah, with the IG. What I
+- [03:00.120] want to look at is how can a building
+- [03:02.519] that I could have done for $25 million
+- [03:04.760] cost $4 billion?
+- [03:06.640] That's a big thing, and he was in
+- [03:07.840] charge.
+- [03:09.000] So, we'll get to the bottom of it. Yeah,
+- [03:10.720] I think Janine is fantastic.
+- [03:13.440] Uh And she worked with other people on
+- [03:15.160] that. I tell you, I want to find out I
+- [03:18.000] have an obligation to find out. This was
+- [03:20.000] done during Biden, but I have an
+- [03:22.640] obligation to find out. How does the I
+- [03:24.280] would have done that building for $25
+- [03:26.080] million and money left over, and it
+- [03:28.280] would would have been open a long time
+- [03:29.840] ago.
+- [03:30.080] >> Did you or her people Your people asked
+- [03:31.720] her to drop it? Because for the country
+- [03:33.959] Look, we have a railroad under
+- [03:36.640] construction in California
+- [03:39.800] that's the worst thing I've ever seen
+- [03:42.080] under Gavin Newsom. And I want to find
+- [03:44.280] out why that one is costing 20 times
+- [03:46.720] what it was
+- [03:47.760] projected to cost. Likewise, the Fed
+- [03:50.400] building is a small I built a hotel in
+- [03:52.520] Washington. It's the Waldorf Astoria. I
+- [03:55.280] built it for $201 million. And
+- [03:58.480] I believe it's bigger than than the Fed
+- [04:01.160] building.
+- [04:02.480] Add your bathrooms, you have a lot of
+- [04:04.480] you know, it's much tougher, much more
+- [04:06.120] expensive to build a hotel than an
+- [04:08.160] office.
+- [04:09.520] I want to find out how can a building of
+- [04:12.400] that size cost four whatever it's going
+- [04:15.120] to be. Nobody knows by the way what it's
+- [04:16.840] going to be. Kevin is going to be
+- [04:18.840] fantastic. Kevin He may never get to be
+- [04:22.040] in that building. Is it smooth sailing
+- [04:23.880] for him now? Will Will Tillis drop his
+- [04:26.080] block? I would imagine it's smooth, but
+- [04:28.560] whether it is or not, somebody has to
+- [04:30.200] find out why that building that should
+- [04:32.800] have cost $25 million is costing
+- [04:36.120] billions of dollars. Sir, what else And
+- [04:38.200] you know why they have to find it out?
+- [04:39.640] For other buildings, because that's not
+- [04:41.919] the only one. I think that's the most
+- [04:43.720] egregious example.
+- [04:44.880] >> What else bothers you?
+- [04:54.160] I'll deal with whoever's running the
+- [04:55.600] show.
+- [04:57.960] I'll deal with whoever runs the show.
+- [04:59.919] They don't know. They're in
+- [05:01.800] They are fighting with each other.
+- [05:03.560] There's tremendous infighting. They're
+- [05:05.640] probably fighting for leadership in many
+- [05:07.600] cases.
+- [05:09.080] I think they're fighting not to be the
+- [05:10.520] leader.
+- [05:11.480] Because we knocked out two levels of
+- [05:12.960] leaders, but I'll deal with whoever we
+- [05:15.440] have to, but there's no reason to wait 2
+- [05:18.000] days, have people traveling for 16, 17
+- [05:21.400] hours.
+- [05:22.720] And we're not doing it that way. We'll
+- [05:24.840] do it When they want, they can call me.
+- [05:27.320] We have all the cards. We've won
+- [05:28.919] everything. We have all the cards.
+- [05:30.440] >> Yesterday you said to Reuters that we're
+- [05:32.240] dealing with who is in charge now. What
+- [05:34.080] changed from yesterday to today?
+- [05:35.760] Nothing. It's just that they gave us a
+- [05:38.440] paper that
+- [05:40.320] should have been better. And
+- [05:42.000] interestingly, immediately when I
+- [05:44.120] canceled it, within 10 minutes we got a
+- [05:46.520] new paper that was much better.
+- [05:48.760] We sir? What was
+- [05:51.920] They will not have a nuclear weapon.
+- [05:54.240] It's very simple. Look, that whole deal
+- [05:56.440] is not complicated. Iran cannot have a
+- [05:59.800] nuclear weapon. It's very simple.
+- [06:02.880] We continue the ceasefire.
+- [06:05.120] I haven't even thought about it. They
+- [06:06.440] didn't they offer anything in return to
+- [06:08.400] 20 years of suspending enriched uranium?
+- [06:10.480] They offered a lot. What did they offer?
+- [06:11.800] They offered a lot but not enough. Thank
+- [06:13.560] you. Will Will Kevin Walsh be next?
+- [06:15.080] Sharon Maybe I think.
+- [06:17.320] Thank you Mr. President.

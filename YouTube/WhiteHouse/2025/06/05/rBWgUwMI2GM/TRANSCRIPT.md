@@ -1,0 +1,399 @@
+<!-- source: https://www.youtube.com/watch?v=rBWgUwMI2GM -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: rBWgUwMI2GM -->
+<!-- date_published: 2025-06-05T20:31:43+00:00 -->
+<!-- date_accessed: 2026-06-02T02:48:47.105933+00:00 -->
+
+# Transcript: President Trump Participates in a Roundtable Discussion with the Fraternal Order of Police
+
+- [00:04.210] Announcer: Ladies and gentlemen,
+- [00:05.317] the President of the United States, accompanied by
+- [00:08.040] Patrick Yoes president of the Fraternal Order of Police.
+- [00:13.940] ♪ (Hail to the Chief) ♪
+- [01:13.050] The President: National Fraternal Order of Police
+- [01:15.228] Executive Board, representing nearly
+- [01:17.471] 400,000 officers nationwide and they were
+- [01:20.166] with me right from the beginning and we appreciate it.
+- [01:23.570] We won't forget.
+- [01:24.770] Your members are the backbone of American
+- [01:27.720] law enforcement and we're deeply grateful
+- [01:30.720] for your service and you have
+- [01:32.339] done great service indeed.
+- [01:34.600] We're also joined by our great
+- [01:36.341] Attorney General Pam Bondi.
+- [01:38.030] Thank you, Pam,
+- [01:38.750] for being here.
+- [01:40.170] For generations this institution is served
+- [01:42.558] as a powerful voice for the brave men and
+- [01:44.891] women who risk their lives to protect
+- [01:47.348] communities all over our country and they
+- [01:50.071] do it as well as anybody or better.
+- [01:52.360] I was delighted to earn your endorsement
+- [01:54.627] in every one of my presidential campaigns
+- [01:56.951] where we did very well, record-setting
+- [01:59.667] well and I'm proud to stand with you today
+- [02:02.750] as the most police president, I would
+- [02:05.727] say, without question in the history of America.
+- [02:09.271] I don't think anybody's been
+- [02:10.699] more for the police than I am.
+- [02:12.690] In recent years far left radicals
+- [02:14.373] have vilified and targeted
+- [02:16.230] our nation's police with Marxist
+- [02:18.160] prosecutors and soft-on crime
+- [02:20.290] politicians making it impossible for you
+- [02:22.862] to do your jobs and do them the way you
+- [02:25.371] want to do them and only you know how to do them.
+- [02:28.492] Under the Trump administration
+- [02:29.836] those days are over.
+- [02:32.390] We're back in the men in blue and
+- [02:34.587] we're back in the blue very honestly.
+- [02:37.575] We have some of the greatest people in the
+- [02:39.539] country sitting right around this table.
+- [02:42.210] We've ended the use of law fair against
+- [02:44.637] police officers and terminated
+- [02:46.472] unjustified federal consent decrees.
+- [02:49.150] I signed an executive order directing the
+- [02:51.683] Department of Justice to provide legal
+- [02:54.031] protection and financial support for
+- [02:56.657] officers targeted by very frivolous lawsuits.
+- [02:59.890] I know about frivolous lawsuits better than you do.
+- [03:03.170] I can tell you I had my share of them.
+- [03:06.210] I ordered other federal agencies to boost
+- [03:08.346] funding for police recruitment retention
+- [03:10.530] and pay and I've asked Attorney General
+- [03:12.962] Bondi to pursue the death penalty for
+- [03:15.271] anyone convicted of killing a police
+- [03:17.430] officer which is very appropriate.
+- [03:20.130] Upon taking office I declared a national
+- [03:22.672] emergency on our southern border and we
+- [03:25.690] reduced the number of illegal border crosses
+- [03:29.738] released into the United States by 99.999 percent.
+- [03:34.690] You can't do much better than that.
+- [03:37.730] We've removed thousands of violent
+- [03:39.554] criminal illegal aliens from our
+- [03:41.271] communities as part of the largest
+- [03:43.660] deportation effort in American history and
+- [03:46.611] just a few months into office the national
+- [03:49.653] murder rate has plummeted by 28 percent.
+- [03:52.750] It's going down because of largely
+- [03:54.509] because of what you're doing.
+- [03:56.610] I'm also deeply grateful to the national
+- [03:59.229] fraternal order of police for its
+- [04:01.391] resounding endorsement of the one big
+- [04:04.294] beautiful bill which is moving along
+- [04:07.182] very nicely with great support.
+- [04:09.450] It's a great bill.
+- [04:10.210] It's a bill that's going to cut taxes
+- [04:12.238] more than any bill we've ever put
+- [04:14.087] in the history of our country.
+- [04:15.910] It's going to cut costs and expenses by
+- [04:18.552] 1.6 trillion dollars which is the biggest
+- [04:21.480] cut in expenses ever.
+- [04:23.950] And it's going to do so many other things.
+- [04:25.631] You know our country is doing record business right now.
+- [04:28.870] Record investment is coming in close to 15
+- [04:31.168] trillion dollars is already committed to
+- [04:33.411] come in for building new plants and factories.
+- [04:36.910] AI is big.
+- [04:38.430] Apples investing 500 billion plus.
+- [04:41.130] They're all coming in.
+- [04:42.730] It also includes the largest investment in
+- [04:45.076] border security in our nation's history,
+- [04:47.730] equipping law enforcement with
+- [04:49.166] the tools to stop the invasion.
+- [04:51.250] I built a lot of wall, hundreds of miles of wall.
+- [04:54.330] Now we're going to build some additional wall.
+- [04:56.650] We feel we probably should build
+- [04:58.609] it after a little trial and error.
+- [05:01.650] And we're going to end up building more
+- [05:03.504] wall than even I built, and we built a lot.
+- [05:06.110] So I want to thank you for your support.
+- [05:07.671] And now let's get the bill passed.
+- [05:09.910] We want to get it passed
+- [05:11.010] through Congress without delay.
+- [05:13.050] In everything we do, we will give our
+- [05:15.004] police the respect and the protection.
+- [05:17.970] And all of the resources that you need.
+- [05:20.350] I did that.
+- [05:21.411] As you know, nobody wanted to do it before
+- [05:23.841] me where I gave you the military
+- [05:25.690] equipment that was excess.
+- [05:27.330] They called it excess military equipment.
+- [05:29.730] You know that very well.
+- [05:31.050] I think every one of you benefited by that.
+- [05:33.850] It was in warehouses billions of dollars
+- [05:36.171] worth in warehouses all over the country.
+- [05:39.450] And other presidents didn't want to give it to you.
+- [05:41.570] I did.
+- [05:42.550] Then we gave it to you.
+- [05:43.350] And it helped out a lot and saved
+- [05:45.381] a lot of police officers' lives.
+- [05:47.351] I now like to ask Attorney General Pam Bondi
+- [05:49.972] to see a few words followed by FOP
+- [05:52.731] national president Patrick Yoes.
+- [05:55.011] And then Washington DC FOP trustee
+- [05:58.626] Gregg Pemberton and vice president of the
+- [06:01.871] Fraternal Order of Police Joe Gamaldi, all great people.
+- [06:05.670] Thank you very much, Pam?
+- [06:06.990] Thank you very much.
+- [06:07.930] AG Bondi: Thank you, President.
+- [06:09.190] And thank you to the Fraternal Order of
+- [06:11.757] Police for being an unwavering voice for
+- [06:14.840] America's law enforcement.
+- [06:16.630] We all know there is no ordinary
+- [06:18.399] day in the life of a police officer.
+- [06:20.830] Each day you leave your homes
+- [06:23.013] with complete uncertainty.
+- [06:25.245] as to who you will encounter and what happens each day.
+- [06:29.875] You also stand on the front lines
+- [06:32.183] against cartels and foreign terrorist
+- [06:34.771] organizations while fighting the horrors
+- [06:37.478] of illegal drug and human trafficking.
+- [06:40.960] I was just in Poland this morning and
+- [06:43.601] arrived back not even two hours ago.
+- [06:46.960] And you have the respect of the entire
+- [06:50.642] world of law enforcement around this world.
+- [06:54.800] They respect all of you so much.
+- [06:58.190] Thank you for making all of us
+- [07:00.323] so proud on the world wide stage.
+- [07:03.890] President Trump's Justice Department
+- [07:07.149] will do everything to protect you and to
+- [07:10.820] support all men and women who
+- [07:13.077] wear the badge in this country.
+- [07:16.460] We are fully committed to ensuring our
+- [07:18.707] local law enforcement officers have access
+- [07:21.615] to the resources, tools and manpower
+- [07:24.730] you need to do your jobs.
+- [07:28.050] That means boosting recruitment and retention.
+- [07:30.455] We want the best and brightest to join
+- [07:32.261] your ranks just like you and we want them
+- [07:34.360] to stay in your ranks.
+- [07:36.420] Last month we announced $157 million in
+- [07:39.674] grant money available for law enforcement
+- [07:43.011] agencies to hire police officers.
+- [07:45.550] Through this funding we anticipate nearly
+- [07:47.990] 1,200 new officers will be hired around the country.
+- [07:51.410] We're helping to pay for police officers overtime,
+- [07:54.260] and supporting President Trump's no tax on overtime.
+- [07:59.830] We've also made millions of dollars
+- [08:02.033] available for mental health and wellness
+- [08:04.551] programs for you around this country.
+- [08:07.010] We know how important that is.
+- [08:09.150] We're aggressively prosecuting criminals
+- [08:11.020] who assault law enforcement officers.
+- [08:13.485] We will not tolerate attacks on police officers.
+- [08:17.670] Since January the department has brought
+- [08:20.751] 138 cases in 33 states against defendants
+- [08:23.911] who have a assaulted our officers.
+- [08:27.030] Additionally the DOJ will no longer target
+- [08:29.980] police departments with bogus lawsuits and
+- [08:33.080] bogus investigations.
+- [08:35.150] We are dismissing lawsuits followed by the
+- [08:37.369] Biden DOJ against police departments in
+- [08:39.431] Louisville, Minneapolis, Albuquerque and more.
+- [08:42.890] We're ending meritless investigations
+- [08:45.080] into Phoenix, Trenton, New York City,
+- [08:47.960] Oklahoma and elsewhere.
+- [08:49.810] We're also ending consent decrees
+- [08:52.704] that take control away from you,
+- [08:55.990] destroy morale and increase violence.
+- [09:00.170] Instead we're working with local law
+- [09:02.561] enforcement to give you the tools that you
+- [09:05.850] need to make our streets safer.
+- [09:08.090] We believe in backing the blue,
+- [09:10.520] not just in word but in action.
+- [09:13.550] The Biden administration slandered you,
+- [09:16.270] defunded you and undermined your service.
+- [09:19.410] But we stand with you.
+- [09:21.530] We honor you and we will not abandon you.
+- [09:25.600] Thank you on behalf of President Trump,
+- [09:27.959] the Department of Justice.
+- [09:31.140] We are 100 percent committed to standing
+- [09:33.549] with our nation's law enforcement.
+- [09:36.290] God bless you and God bless America.
+- [09:38.770] Thank you.
+- [09:40.470] Patrick Yoes: Mr. President, first thank you.
+- [09:43.210] Thank you for not only your support for
+- [09:45.400] law enforcement as a 45th president but
+- [09:47.591] also your support as th 47th president and
+- [09:49.552] all the years in between you've always
+- [09:51.371] been steadfast supporter of the
+- [09:53.139] Fraternal Order of Police
+- [09:54.951] and law enforcement across this country
+- [09:56.354] and I want you to know on behalf
+- [09:57.517] of our nearly 400,000 members.
+- [09:58.990] We appreciate all that you do for us.
+- [10:01.070] With us today is the members of our executive board.
+- [10:03.710] We also have members of the FOP unions in
+- [10:06.260] major cities across this country who have
+- [10:08.811] some very serious problems that we're
+- [10:10.822] working with and we appreciate the
+- [10:12.671] opportunity to share with you some of
+- [10:15.357] our views and work together on this.
+- [10:18.660] You made a promise to us.
+- [10:19.990] I want to start by saying that you made a
+- [10:22.020] promise that you are going to
+- [10:23.497] address overtime,
+- [10:25.050] tax on overtime.
+- [10:26.150] And that was a promise made in a new big --
+- [10:29.403] big, new bill is certainly
+- [10:31.681] making good on that promise.
+- [10:33.350] We thank you for that.
+- [10:34.570] You know, law enforcement officers, we
+- [10:36.031] find ourselves in a very difficult
+- [10:37.500] position where we're having a serious
+- [10:39.523] problem with recruiting retention as you pointed out.
+- [10:42.710] The problem is that people who are
+- [10:43.997] working right now are working so many
+- [10:45.251] hours and they're forced to work overtime.
+- [10:46.710] And now they have to tax liabilities that
+- [10:48.613] are associated with being pushed into
+- [10:50.331] different tax brackets because of being forced to work.
+- [10:52.910] Not only that, they're not
+- [10:53.948] getting to keep the money they earn.
+- [10:55.250] And so you from a recruiting a retention standpoint,
+- [10:57.950] you show appreciation for what we do.
+- [10:59.990] Recognize what we do in a community.
+- [11:01.270] And I want you to know that we
+- [11:02.690] are proud to support the bill.
+- [11:04.510] This is something that it needs to happen.
+- [11:05.650] And the promise that you made and we
+- [11:06.973] appreciate you carrying through with it
+- [11:08.491] and know that we're a partner in it.
+- [11:11.370] You also made a number of other
+- [11:13.736] promises to us and promises made that we appreciate.
+- [11:17.130] And I want to start with one of our
+- [11:18.860] first people I'd like to recognize.
+- [11:20.830] You promised and here we are on our nation's capital,
+- [11:23.611] revitalize the city and making it safe again.
+- [11:26.710] And no one knows that better than a person
+- [11:28.199] who lives in every day and leaves the
+- [11:29.511] officers in the metropolitan police
+- [11:31.180] department in our labor union.
+- [11:32.945] And I'll ask Gregg to say a few words.
+- [11:35.310] Gregg Pemberton: Thank you, Pat.
+- [11:35.930] Thank you, Mr. President, for having us.
+- [11:38.290] My name is Greg Pemberton.
+- [11:39.370] I represent 3,000 police officers that
+- [11:40.870] work here for the Metropolitan Police
+- [11:42.331] Department in Washington, D.C.
+- [11:44.190] The crisis that we're facing, which
+- [11:45.892] frankly is more of a calamity,
+- [11:47.570] is a staffing crisis.
+- [11:49.570] We are authorized to have 4,000 sworn
+- [11:51.608] police officers here in the nation's capital.
+- [11:54.510] Unfortunately, as of today, we only have
+- [11:56.949] 3,190 over 800 vacancies that we have here
+- [11:59.660] for this Metropolitan Police Department.
+- [12:01.010] And the worst part is that over the past 5
+- [12:03.125] years, we've lost -- we've had a net loss
+- [12:05.215] of 600 police officers who've just
+- [12:07.833] left this agency in a mass exodus.
+- [12:10.650] And the reason for that is that our city
+- [12:12.780] council here in the District of Columbia
+- [12:15.060] has passed layers and layers of
+- [12:16.694] legislation that prohibits our officers
+- [12:18.950] from being able to do their job.
+- [12:20.770] It exposes our members to administrative
+- [12:23.008] civil and even criminal liability,
+- [12:25.070] even when they go out and do their job properly.
+- [12:27.610] It has also stripped our members of their
+- [12:29.591] labor protections to fight off
+- [12:31.097] these frivolous complaints.
+- [12:32.660] And these erroneous allegations of misconduct.
+- [12:35.260] It all makes for an environment that is
+- [12:36.943] almost impossible to keep these staffing levels
+- [12:39.710] what they need to be.
+- [12:41.210] Frankly, Mr. President, I think the
+- [12:42.655] nation's capital, the District of Columbia
+- [12:44.391] is not just the city of 700,000 residents.
+- [12:47.650] This is the nation's capital.
+- [12:48.950] And it belongs to everybody.
+- [12:50.180] It belongs to every American.
+- [12:51.780] It should be a safe city.
+- [12:52.991] It should be a pinnacle of American society.
+- [12:55.790] It should represent the freedom and
+- [12:57.343] democracy that we all cherish so much.
+- [12:59.330] And anybody should be free to come here
+- [13:01.022] and experience that and see what it is
+- [13:02.720] that we are here in this country.
+- [13:05.550] And the sanctity and safety of the
+- [13:07.046] District of Columbia shouldn't be left in
+- [13:09.050] the hands of a city council that
+- [13:12.607] subscribes to these radical ideologies
+- [13:16.855] that we all know are failed.
+- [13:20.330] And we have the empirical data that it doesn't work.
+- [13:23.015] It only increases crime and makes cities more dangerous.
+- [13:25.870] I want to thank you for creating the Make D.C.
+- [13:28.810] Safe and Beautiful task force.
+- [13:29.845] I met with Orville Green.
+- [13:31.070] I find him to be phenomenally
+- [13:32.473] qualified to help us out of this mess.
+- [13:34.720] I also want to thank you for the
+- [13:36.180] appointment of Jeanine Pirro for the U.S.
+- [13:38.655] AO position of D.C.
+- [13:39.930] I met with her recently.
+- [13:41.470] And I found her plan to solve and tackle
+- [13:43.124] a number of these problems,
+- [13:44.332] very promising, very optimistic.
+- [13:46.760] So the 3,000 police officers stand at the ready,
+- [13:49.660] Mr. President, to help you make D.C.
+- [13:51.211] great again.
+- [13:52.245] And hopefully we can solve some of
+- [13:53.561] these problems and fix crime
+- [13:54.446] here in the nation's capital.
+- [13:57.410] The President: Thank you very much.
+- [13:59.530] Patrick Yoes: Mr. President, the topic of the day,
+- [14:02.361] pretty much every day now is the
+- [14:05.150] unmitigated disaster that has created in
+- [14:07.380] cities across this country with the open borders.
+- [14:11.190] And all the problems that it has done for
+- [14:13.035] quality of life, it has done far safety
+- [14:14.840] within our community, safety of the
+- [14:16.240] officers of work in the communities.
+- [14:17.730] And you have been a great advocate
+- [14:19.540] of putting us back together.
+- [14:21.080] and I'd like to ask our Vice
+- [14:22.792] President Joe Gamaldi to touch on.
+- [14:25.330] Joe Gamaldi: President Trump, I think I'd be remiss
+- [14:27.310] if I didn't start by saying thank you.
+- [14:29.291] Thank you for the incredible efforts by
+- [14:31.548] you and your administration to deport
+- [14:33.740] these people who have come to our country
+- [14:35.672] illegally and then refuse to follow the
+- [14:37.511] very laws that we hold so sacred.
+- [14:40.010] Our officers, especially in sanctuary
+- [14:42.026] cities, are tired of arresting the same
+- [14:44.151] people over and over again who never
+- [14:46.133] should have been here in the first place.
+- [14:48.680] We have lost friends.
+- [14:50.350] co-workers, unimaginable trauma
+- [14:52.525] to American citizens and families,
+- [14:55.430] and the most frustrating part from a law
+- [14:57.958] enforcement perspective, when it was 100 percent avoidable.
+- [15:01.710] And now we have judges who are standing
+- [15:04.445] up for gang members, murderers, robbers,
+- [15:08.110] rapists, blocking deportations,
+- [15:09.686] obstructing the very will of the American people.
+- [15:12.970] It's a disgrace.
+- [15:14.390] And if they had a shred of integrity,
+- [15:16.460] which I assume they don't, they would
+- [15:18.531] resign in shame for what they're doing right now.
+- [15:20.855] But I would just ask that you continue to
+- [15:22.952] work with us, continue to support with us
+- [15:25.051] so that we can partner with all of
+- [15:26.889] our great federal agencies out there,
+- [15:29.090] continue to carry out this mission.
+- [15:30.790] And again, thank you for securing the border.
+- [15:34.250] And once again, making our
+- [15:35.782] country one of law and order.
+- [15:38.230] The President: Thank you very much.
+- [15:39.650] Very nice.
+- [15:41.170] Thank you.
+- [15:43.460] We're going to have a little discussion now.
+- [15:46.030] Very private.
+- [15:47.530] And I just want to thank you all for being here.
+- [15:49.270] And thank you very much, media.
+- [15:50.550] Appreciate it.
+- [15:50.991] Thank you very much.

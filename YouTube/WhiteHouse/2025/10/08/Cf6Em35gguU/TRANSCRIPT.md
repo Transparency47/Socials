@@ -1,0 +1,2239 @@
+<!-- source: https://www.youtube.com/watch?v=Cf6Em35gguU -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: Cf6Em35gguU -->
+<!-- date_published: 2025-10-08T22:43:40+00:00 -->
+<!-- date_accessed: 2026-06-02T01:13:32.939195+00:00 -->
+
+# Transcript: President Trump Participates in a Roundtable on ANTIFA
+
+- [00:00.590] The President: Thank you very much.
+- [00:02.190] I was just dealing with people from the Middle East,
+- [00:05.640] our people and other people on the potential peace deal
+- [00:09.670] for the Middle East. Peace for the Middle East.
+- [00:11.470] It's a beautiful phrase and we hope it's going to come true,
+- [00:14.510] but it's very close and they're doing very well.
+- [00:17.800] We have a great team over there, great negotiators,
+- [00:21.130] and there are unfortunately great negotiators
+- [00:24.280] on the other side also,
+- [00:26.300] but it's something I think that will happen,
+- [00:28.300] got a good chance of happening.
+- [00:30.120] I may go there sometime toward the end of the week,
+- [00:34.780] maybe on Sunday actually, and we'll see.
+- [00:39.670] But there's a very good chance
+- [00:41.190] that negotiations are going along very well.
+- [00:44.060] We're dealing with Hamas and many of the countries.
+- [00:47.120] As you know, all of the Muslim countries are included,
+- [00:51.820] all of the Arab countries are included,
+- [00:55.680] very rich countries and some that are not so rich,
+- [00:58.040] but just about everybody's included.
+- [01:00.040] It's never happened before.
+- [01:01.310] Nothing like that's happened before.
+- [01:02.970] Our final negotiation, as you know, is with Hamas,
+- [01:06.690] and it seems to be going well. So we'll let you know.
+- [01:10.890] If that's the case, we'll be leaving probably on Sunday,
+- [01:14.830] maybe a little later than Saturday evening.
+- [01:20.470] But that seems to be our schedule.
+- [01:23.540] It should be clear to all Americans
+- [01:25.430] that we have a very serious left-wing terror threat
+- [01:27.930] in our country.
+- [01:29.200] Radicals associated with the domestic terror group,
+- [01:33.060] Antifa, that you've heard a lot about lately,
+- [01:35.620] and I've heard a lot about them for 10 years.
+- [01:39.080] And other far-left extremists have been carrying out
+- [01:41.560] a campaign of violence against ICE agents
+- [01:44.040] and other officials charged with enforcing federal law.
+- [01:49.010] In Chicago, anarchists have surveilled
+- [01:52.040] at least four local ICE facilities
+- [01:55.040] and posted diagrams of the buildings online,
+- [01:57.790] meaning nothing but bad,
+- [02:00.470] accompanied by photos of specific ICE agents
+- [02:03.400] that they're targeting,
+- [02:04.770] one in particular who's a top person
+- [02:07.300] and a great person, a great patriot.
+- [02:09.620] In July, approximately a dozen Antifa-aligned militants
+- [02:12.760] stormed the ICE facility in Texas
+- [02:14.780] and then lured officers out of the building
+- [02:17.560] before firing dozens of rounds at police.
+- [02:22.370] They were crazy, frankly.
+- [02:25.350] Shooting one Texas officer in the neck.
+- [02:28.750] And in Portland, Oregon,
+- [02:30.280] Antifa thugs have repeatedly attacked our officers
+- [02:33.340] and laid siege to federal property
+- [02:35.220] in an attempt to violently stop the execution of federal law.
+- [02:41.990] Everything we're doing is very lawful,
+- [02:44.090] what they're doing is not lawful
+- [02:45.970] and what the governor and the mayor,
+- [02:48.710] as an example, you could say of Portland,
+- [02:51.640] and you can say certainly of Chicago,
+- [02:53.940] it's not lawful what they're doing.
+- [02:55.340] They have to be very careful. In addition, two weeks ago,
+- [02:58.380] radical left terrorists in Dallas conducted a sniper attack
+- [03:02.370] on a local ICE facility, killing two people
+- [03:04.700] and leaving behind a note that read,
+- [03:06.820] "Hopefully this will give ICE agents some real terror."
+- [03:10.960] That's bad.
+- [03:12.260] This attack came the very same month
+- [03:14.140] that Charlie Kirk was assassinated
+- [03:16.470] by a far-left extremist who inscribed the words,
+- [03:19.740] "Hey, fascist, catch."
+- [03:21.600] Meaning, catch the bullet, onto the bullet shelf itself.
+- [03:28.450] The epidemic of left- wing violence
+- [03:30.900] and Antifa-inspired terror has been escalating
+- [03:34.450] for nearly a decade. At universities,
+- [03:37.500] Antifa has organized riotous mobs to attack campus speakers.
+- [03:40.920] I see it all the time.
+- [03:42.160] And these are agitators, anarchists, and they're paid.
+- [03:49.720] You'll be finding it out very soon,
+- [03:51.530] you should see what we have on these people.
+- [03:53.120] These are bad people.
+- [03:54.350] These are people that want to destroy our country.
+- [03:56.510] We're not going to let it happen.
+- [03:58.640] They've used armed gangs to assault
+- [04:00.450] local police in cities nationwide,
+- [04:02.360] and they have attacked journalists
+- [04:03.840] reporting on their crimes.
+- [04:05.990] So the journalists that report on their crimes,
+- [04:07.600] don't worry, you're very safe.
+- [04:08.850] I hope that's not going to turn you around,
+- [04:12.300] but they have been very threatening to people,
+- [04:14.210] but we're going to be very threatening to them,
+- [04:15.900] far more threatening to them than they ever were with us.
+- [04:18.480] And that includes the people that fund them.
+- [04:21.360] Probably some of the people I know,
+- [04:23.000] some of the people I dine with.
+- [04:25.160] But if they do, they're in deep trouble.
+- [04:27.580] So we're going to be looking very strongly
+- [04:29.720] at the people that are funding these operations.
+- [04:32.580] When you see the signs and they're all made
+- [04:34.250] out of a beautiful paper,
+- [04:37.550] beautiful, nice, stiff, very expensive paper
+- [04:40.090] with beautiful wood handles all the same,
+- [04:42.340] all the same color,
+- [04:43.610] they come from very expensive printing machines.
+- [04:46.020] These are not people that write out their signs
+- [04:47.960] in a basement that believe in something.
+- [04:50.880] These are paid anarchists.
+- [04:53.470] At least three of these courageous journalists
+- [04:56.590] have personally been victims of Antifa attacks.
+- [04:59.880] Andy Ngo has been repeatedly beaten by
+- [05:02.940] Antifa thugs for his work in cruel --
+- [05:05.550] Andy is a very serious person too, I have to tell you.
+- [05:10.010] I've been watching him for a long time.
+- [05:12.720] Is Andy here? That's what I thought.
+- [05:15.160] Hello, Andy. I thought that was you.
+- [05:17.510] You're looking better than you do out on those streets, huh?
+- [05:21.160] You look much better. It's nice to have you.
+- [05:24.210] You feel a little safer here, I think, maybe.
+- [05:26.120] Well, not that safe because you have them.
+- [05:28.270] You have to worry about that. But thank you very much.
+- [05:31.140] Andy Ngo has been repeatedly beaten by Antifa
+- [05:33.890] and including one assault
+- [05:35.730] that left him with a brain hemorrhage.
+- [05:39.310] Only days ago, Nick Sortor was assaulted in Portland
+- [05:42.840] by a flag-burning mob,
+- [05:44.960] and we've made it one-year penalty for inciting riots.
+- [05:50.460] We took the freedom of speech away
+- [05:52.400] because that's been through the courts,
+- [05:54.470] and the courts said, "You have freedom of speech."
+- [05:57.220] But what has happened is when they burn a flag,
+- [06:01.260] it agitates and irritates crowds,
+- [06:04.190] I've never seen anything like it, on both sides,
+- [06:06.090] and you end up with riots. So we're going on that basis.
+- [06:09.200] We're looking at it, not from the freedom of speech,
+- [06:12.130] which I always felt strongly about,
+- [06:13.840] but never passed the courts.
+- [06:16.190] This is what they do, when you burn an American flag,
+- [06:20.600] you incite tremendous violence.
+- [06:22.030] We have many examples of it, many, many examples of it,
+- [06:25.290] and it's actually down on tape
+- [06:27.040] and you see things happen that just don't happen
+- [06:29.720] unless it's the flag that's burning.
+- [06:32.470] Very recently, Katie Daviscourt was hit in the face
+- [06:36.600] with a flagpole in Portland by an Antifa radical
+- [06:40.650] leaving her with a very blackened eye.
+- [06:43.670] So Katie, thank you very much.
+- [06:45.430] And I'd like to also say that I watched Nick.
+- [06:48.680] Where's Nick? Is Nick here?
+- [06:50.060] AG Bondi: Right there.
+- [06:51.270] The President: Nick? Hi, Nick.
+- [06:53.460] That was a rough time you went through.
+- [06:55.030] I watched. I hope you got my little note.
+- [06:56.610] I wrote you a note.
+- [06:57.890] Nick Sortor: Yeah, I really appreciated that.
+- [06:59.620] It helped a lot because it was a difficult situation.
+- [07:02.160] It was very stressful and your note helped a lot.
+- [07:05.250] I truly appreciate you, sir.
+- [07:06.550] The President: I thought it was terrible, actually.
+- [07:08.110] I thought it was terrible.
+- [07:09.790] So we'll talk about it a little bit.
+- [07:12.090] Under the last administration, the Department of Justice
+- [07:14.850] targeted faithful Catholics, Christians and patriotic parents
+- [07:18.760] as domestic extremists, they said,
+- [07:22.200] "Oh, they're extreme because they believe in God.
+- [07:25.480] They're extreme because they go to a Catholic Church,"
+- [07:27.690] or evangelicals, where everybody was under the gun.
+- [07:32.340] Unless you are a really bad sick person,
+- [07:34.400] then they left you alone. Under the Trump administration,
+- [07:37.720] we're going after Antifa criminals
+- [07:39.630] and all who fund and support their campaigns
+- [07:42.610] are in serious trouble.
+- [07:44.530] And we have a lot of records already, a lot of bad surprises.
+- [07:49.620] It's people that you would never think.
+- [07:51.770] I want to thank Attorney General, Pam Bondi,
+- [07:53.880] who by the way, yesterday was incredible in Congress,
+- [07:57.100] who was amazing
+- [07:58.320] and she just did it from the heart and the brain,
+- [08:01.390] because she's very smart in all fairness.
+- [08:03.080] But she did it from the heart
+- [08:05.020] and everybody was talking about it.
+- [08:07.660] She exposed some of these fake senators,
+- [08:10.300] these terrible senators,
+- [08:12.300] people like Blumenthal that had a phony war record.
+- [08:15.810] For 20 years, he talked about what a hero he was
+- [08:18.280] and it turned out he never went to Vietnam.
+- [08:20.530] For 20 years he talked about being a hero in Vietnam,
+- [08:23.240] then it was exposed when he said what platoon he was with
+- [08:27.760] and it was exposed that somebody was watching
+- [08:30.690] from that particular platoon.
+- [08:32.110] They said, "He was never with us."
+- [08:34.360] And then he went out and he cried
+- [08:35.930] and he was ready to drop out of the election.
+- [08:40.640] Disgraceful.
+- [08:41.890] And then he looks at people like Pam
+- [08:43.740] and he starts criticizing her and she's a patriot,
+- [08:47.200] and they ought to do something with that.
+- [08:48.820] We have a young congressman that's right now in jail
+- [08:51.940] for lying about where he went to college and other things.
+- [08:55.630] It was frankly not good. It was pretty bad,
+- [08:58.380] but it was nothing compared to Blumenthal.
+- [09:00.270] I mean, what Blumenthal did,
+- [09:01.550] he was for 20 years a great war hero.
+- [09:05.190] And then he sits back, and sanctimonious kind of a guy,
+- [09:07.880] looks down,
+- [09:09.090] "How dare you do this to the American public?"
+- [09:12.240] What a fake.
+- [09:13.810] But I thought Pam was incredible yesterday,
+- [09:15.890] as well as Secretary Kristi Noem,
+- [09:18.740] who's really out there courageously.
+- [09:20.790] I appreciate it, Kristi, amazing what you're doing.
+- [09:23.470] FBI director, Kash Patel,
+- [09:25.260] who's really coming up with some great information, Kash,
+- [09:30.510] it's great. Keep it coming because there's plenty of it.
+- [09:34.140] Deputy Attorney General,
+- [09:35.450] one of the best lawyers you'll ever find.
+- [09:38.130] Todd Blanche, who I know personally is a good lawyer
+- [09:41.680] because I'm here.
+- [09:43.700] Thank you very much, Todd. Good job.
+- [09:46.330] Let me ask Attorney General Bondi
+- [09:48.580] to say a few words and then we'll follow it up
+- [09:50.660] with Secretary Noem and Director Patel.
+- [09:53.490] And we're going to have some of the people
+- [09:55.310] around the table, very courageous people,
+- [09:58.430] and they're going to be talking journalists,
+- [10:00.750] almost all, and they're going to be talking
+- [10:03.060] and we'll take some questions from the press at the end.
+- [10:05.540] Okay, Pam, please.
+- [10:06.910] AG Bondi: Thank you, President Trump.
+- [10:08.270] And as you made clear,
+- [10:09.480] Antifa is a domestic left-wing terrorist organization.
+- [10:14.260] We've seen them on video for years
+- [10:16.230] because they wanted to be seen and they got away with it.
+- [10:20.040] They beat journalists, they attack courthouses,
+- [10:23.070] they attack police stations,
+- [10:24.880] they dox and assault our law enforcement officers.
+- [10:28.040] The Biden administration, let them commit these crimes
+- [10:31.190] with total impunity for years, so did Democrat leaders
+- [10:35.700] like Pritzker and Mayor Brandon Johnson.
+- [10:38.830] Last week, independent journalist, Nick Sortor,
+- [10:41.250] was arrested just for protecting himself against Antifa.
+- [10:46.480] I saw it online and I called Nick.
+- [10:48.390] I couldn't believe what happened.
+- [10:50.530] He did all this just trying to save our American flag
+- [10:53.760] from being burned.
+- [10:55.230] He was pushed down and assaulted,
+- [10:57.310] yet the local police arrested Nick,
+- [10:59.970] not the Antifa thugs who did this to him.
+- [11:03.180] Antifa feels empowered to operate in the open
+- [11:07.750] because weak Democrats have turned a blind eye
+- [11:10.390] to their actions, their hatred for President Trump
+- [11:13.990] and for law and order agendas fuels their violence.
+- [11:18.810] We've seen more than a thousand percent,
+- [11:21.670] a thousand percent, increase in attacks
+- [11:24.740] against our ICE agents since January 20th.
+- [11:27.940] Secretary Noem is out there fighting for you firsthand
+- [11:31.820] to keep our federal officers safe,
+- [11:33.930] to keep our federal buildings safe
+- [11:36.610] and we're not going to have it anymore, these thugs.
+- [11:39.760] We saw what's happening in Portland and Chicago
+- [11:43.120] and you saw what happened in Dallas.
+- [11:45.970] No longer. This is not activism, it's anarchy.
+- [11:49.970] We can't and we will not let mask terrorists
+- [11:54.440] burn our buildings, attack our law enforcement,
+- [11:56.730] and intimidate our communities.
+- [11:58.770] Under your leadership President Trump,
+- [12:00.450] we're deploying the full might of the federal law enforcement
+- [12:03.480] to crack down on Antifa
+- [12:05.550] and other domestic terrorist organizations,
+- [12:08.470] led by Stephen Miller and Stephen,
+- [12:10.180] thank you for everything you're doing.
+- [12:12.270] Last week I issued a memo
+- [12:14.330] ordering our federal law enforcement agents,
+- [12:16.510] DEA, FBI, US Marshals and ATF
+- [12:19.500] to protect ICE officers from Antifa
+- [12:21.850] and other radical left-wing violence.
+- [12:25.530] Director Patel has been going nonstop,
+- [12:28.830] he and Deputy Attorney General Blanche
+- [12:31.880] were in Chicago yesterday,
+- [12:35.290] while Secretary Noem was in Portland.
+- [12:37.550] We are around this country
+- [12:39.710] fighting against this domestic terrorism.
+- [12:42.960] We had Apple and Google take down the ICEBlock apps.
+- [12:46.630] Hope they continue to comply with that.
+- [12:48.380] It's threatening the safety
+- [12:50.170] of our federal law enforcement officers.
+- [12:52.860] We're not going to stop at just arresting
+- [12:54.520] the violent criminals we can see in the streets.
+- [12:57.060] Fighting crime is more than just getting
+- [12:58.970] the bad guy off the streets.
+- [13:01.030] It's breaking down the organization brick by brick,
+- [13:05.760] just like we did with cartels.
+- [13:07.940] We're going to take the same approach,
+- [13:10.010] President Trump, with Antifa,
+- [13:12.330] destroy the entire organization from top to bottom.
+- [13:18.740] We're going to take them apart.
+- [13:21.300] Thanks to your bold leadership and the designation of Antifa
+- [13:24.360] as a terrorist organization, which is exactly what they are,
+- [13:28.190] Americans will no longer tolerate
+- [13:30.540] their unhinged violence. Thank you.
+- [13:33.830] The President: Thank you very much, Pam.
+- [13:36.040] Kristi.
+- [13:37.240] Secretary Noem: Well, thank you, Mr. President,
+- [13:38.470] and thank you for hosting today and focusing on Antifa
+- [13:42.060] and the terrorists that they are.
+- [13:44.040] Let's not make any mistake, these individuals
+- [13:46.450] do not just want to threaten our law enforcement officers,
+- [13:49.610] threaten our journalists and the citizens of this country,
+- [13:52.410] they want to kill them.
+- [13:53.910] Their agenda is to destroy the American people
+- [13:56.350] and our way of life,
+- [13:57.570] and this president is standing in their way.
+- [14:00.110] He is stopping them from bringing their death,
+- [14:02.530] and their destruction to the individual citizens
+- [14:05.160] in this country that just want to raise their kids
+- [14:07.250] and their grandkids in peace and in safety.
+- [14:09.950] I want to also thank everyone around this table
+- [14:12.070] for being so bold and so brave,
+- [14:13.600] for standing up and recognizing the threat
+- [14:15.450] that Antifa is to our way of life,
+- [14:18.880] by recognizing how advanced they are,
+- [14:20.960] how sophisticated their networks are,
+- [14:23.080] how they've infiltrated our entire country,
+- [14:25.190] and we're seeing them play out with their tactics
+- [14:27.710] from city to city
+- [14:29.400] and how they have built out their funding mechanisms.
+- [14:32.580] And sir, I also want to thank our treasury secretary
+- [14:36.200] for his work and getting to the bottom
+- [14:38.430] of these funding mechanisms and individuals
+- [14:40.660] who are perpetuating this violence
+- [14:42.340] on our American cities. I was in Portland yesterday
+- [14:45.310] and had the chance to visit with the governor of Oregon
+- [14:47.770] and also the mayor there in town,
+- [14:50.210] and they are absolutely covering up the terrorism
+- [14:54.100] that is hitting their streets.
+- [14:56.280] While you talked about some of the stories of our ICE agents,
+- [14:59.120] our border patrol agents, how they have been attacked,
+- [15:02.800] how they have been shot at, injured,
+- [15:05.410] the damage that they've done,
+- [15:06.680] these leaders in these local cities,
+- [15:08.480] along with Pritzker and Johnson, ignore what's going on.
+- [15:11.820] Or sir, they're helping Antifa cover it up.
+- [15:14.580] We have arrested dozens of individuals
+- [15:17.540] that are Antifa members or affiliated with them,
+- [15:20.380] and I want to thank our Attorney General for prosecuting them
+- [15:23.220] and making sure they never see the light of day again.
+- [15:25.830] They have been so bold in making sure
+- [15:27.420] we're bringing those individuals to justice.
+- [15:29.280] One of the individuals we arrested recently in Portland
+- [15:33.030] was the girlfriend of one of the founders of Antifa.
+- [15:35.680] And we are hoping that as we go after her,
+- [15:38.000] interview her and prosecute her,
+- [15:39.910] we will get more and more information about the network
+- [15:42.250] and how we can root them out
+- [15:44.470] and eliminate them from the existence of American society.
+- [15:48.260] I want to thank the new journalists here
+- [15:50.290] today for telling their stories and for being able
+- [15:53.000] and willing to go to the streets
+- [15:54.510] and to cover what's happening here in America.
+- [15:56.820] Many times the legacy media has looked the other way,
+- [15:59.520] refused to tell the stories,
+- [16:00.840] the networks have not really focused on what this is
+- [16:05.100] and what damage it is doing to our country
+- [16:07.060] and how this network of Antifa
+- [16:08.850] is just as sophisticated as MS-13,
+- [16:11.810] as TDA, as ISIS, as Hezbollah, as Hamas, as all of them.
+- [16:16.440] They are just as dangerous, they have an agenda
+- [16:19.150] to destroy us just like the other terrorists
+- [16:21.170] we've dealt with for many, many years.
+- [16:23.240] And today is the day that we have a president
+- [16:25.260] that won't tolerate it
+- [16:26.530] and will stand up and fight for the American people.
+- [16:28.710] So thank you for being here, for being so bold
+- [16:31.820] and for standing in the gap at such a time as this.
+- [16:34.450] It will matter. It will make a difference
+- [16:36.150] and your life will be one of significance
+- [16:38.400] because of what you've done today.
+- [16:39.830] So with that, God bless you and thank you, Mr. President.
+- [16:42.270] The President: Thank you very much.
+- [16:43.510] Thank you. Kash, please.
+- [16:46.100] Director Patel: Thank you, Mr. President.
+- [16:47.320] Mr. President, the American people
+- [16:49.020] gave you a sweeping mandate in your victory
+- [16:51.370] in this election cycle
+- [16:52.770] and they demanded safety and security
+- [16:54.260] for our citizens and your administration,
+- [16:56.280] with your leadership has provided us
+- [16:57.670] with the resources that we need,
+- [16:59.310] which is a whole- of-government approach
+- [17:01.440] to go after criminals absolutely everywhere,
+- [17:03.850] not just outside of this country,
+- [17:05.300] but within this country.
+- [17:06.750] And that takes a whole-of-government approach.
+- [17:08.620] The interagency seated up here
+- [17:10.530] with the Department of Homeland Security,
+- [17:12.220] our Attorney General, our Deputy Attorney General
+- [17:14.060] and your White House staffers
+- [17:15.290] and including Stephen Miller's leadership,
+- [17:18.010] has allowed us to go out there and map out these networks.
+- [17:21.570] What we are doing at the FBI is simple,
+- [17:24.090] it does not require rocket science.
+- [17:25.910] We are following the money. Money never lies.
+- [17:29.570] And that's what it's going to take to bring down
+- [17:31.670] this network of organized criminal thugs, gang bangers,
+- [17:36.490] and yes, domestic terrorists because that's what they are.
+- [17:39.370] They're harming everyday citizens
+- [17:41.060] in every single one of our communities.
+- [17:43.060] And the folks you see here on the right and left,
+- [17:44.680] they're some of the bravest men and women we have today.
+- [17:46.840] They're reporting the stories live time
+- [17:48.430] because the mainstream media won't cover it.
+- [17:50.310] They're putting their lives on the line,
+- [17:52.040] they're standing up for the flag.
+- [17:53.280] The least we can do is stand up for them.
+- [17:55.350] So you have my thanks.
+- [17:56.840] I read more of your stories than I do theirs
+- [17:58.800] because you guys are putting out the truth.
+- [18:00.690] And we deserve a country where you are protected
+- [18:03.120] as equally as they are.
+- [18:04.490] We in this FBI will go after the criminals with a vengeance.
+- [18:08.160] We will not rest until we find every single seed,
+- [18:11.600] money, donor, organization and funding mechanism that we have.
+- [18:15.860] And I want to echo the secretary's comments
+- [18:17.810] on Scott Bessent,
+- [18:19.450] who's allowing us to map out these networks
+- [18:22.320] through their financial criminal activities,
+- [18:24.630] which has been going on for decades.
+- [18:26.320] And I would like to remind the American public,
+- [18:28.530] they built this diseased temple of corruption over decades,
+- [18:32.120] and in eight short months, Mr. President,
+- [18:33.870] you have crippled their foundation
+- [18:35.910] because of your leadership here, because of the interagency,
+- [18:38.630] because of people like Deputy Attorney General Blanche
+- [18:40.990] and because of Attorney General Pam Bondi's fearless leadership
+- [18:43.540] to go after criminals wherever they are.
+- [18:45.450] They will not be able to hide.
+- [18:46.720] They were able to hide and conspire
+- [18:48.620] with prior administrations
+- [18:49.980] and we are exposing their corruption from within.
+- [18:52.800] And we will go to every single city in this country
+- [18:54.900] under Operation Summer Heat,
+- [18:56.430] and the other operations we are doing at the FBI
+- [18:58.830] to bring these criminals to justice.
+- [19:00.490] We will arrest every single one of them
+- [19:02.350] from whatever perch you sit in, private or public,
+- [19:04.860] no matter how high your goal or your ambition is,
+- [19:07.930] it will be crushed by the Constitution
+- [19:09.960] because the American people deserve law and order,
+- [19:12.260] and that's what we're going to give you.
+- [19:14.100] The President: Thank you very much, Kash.
+- [19:15.400] Great job. Maybe we'll start over here.
+- [19:19.200] Would any of you like to say something?
+- [19:21.540] Feel free.
+- [19:22.930] You can say it in front of a fine group of people,
+- [19:26.020] also, journalists and reporters. Do you want to start?
+- [19:29.620] Director Patel: Sure. The President: Go ahead.
+- [19:30.910] Nick Sortor: Absolutely.
+- [19:32.120] President Trump, members of the Cabinet,
+- [19:34.290] really appreciate you guys bringing this together.
+- [19:37.730] And the fact that we are here today on such short notice
+- [19:42.340] shows how serious you guys
+- [19:43.870] are taking this issue of trans-terrorists,
+- [19:46.590] and frankly, the cities and police departments
+- [19:50.250] that are cooperating with Antifa, such as Portland.
+- [19:54.610] I mean, the Portland politicians are literally willing
+- [19:57.120] to sacrifice their own citizens
+- [19:59.260] just to appease these Antifa terrorists.
+- [20:01.660] It's sickening. I've seen it firsthand, obviously.
+- [20:07.580] When I went to jail that night, never expected it to happen,
+- [20:11.740] I thought that they were maybe removing me for my own safety.
+- [20:14.900] It never crossed my mind that I was the one
+- [20:17.260] that was being arrested for a crime
+- [20:19.070] after I was just thrown into a hole.
+- [20:21.760] I heard from the Department of Homeland Security
+- [20:23.900] after I had gotten out of jail, and one of your --
+- [20:27.550] I won't say exactly who it was,
+- [20:28.820] but somebody very close to Secretary Noem
+- [20:31.340] over here said that they were legitimately worried
+- [20:34.090] for my safety in the Portland jail,
+- [20:36.190] but luckily the Portland jail was --
+- [20:38.130] I was the only one there, essentially,
+- [20:39.530] because they don't actually arrest people in Portland
+- [20:42.570] besides conservative journalists, I guess.
+- [20:47.790] It was not a good night for me, let's just say that.
+- [20:49.880] It was not fun sitting in that jail,
+- [20:52.310] but I'm glad to see what has come of it.
+- [20:55.250] And I've been able to talk to a bunch of FBI agents,
+- [20:59.920] ATF agents, DHS agents that I didn't even know existed
+- [21:05.220] until I went there and went to that ICE facility.
+- [21:07.690] And the morale is at an all time high.
+- [21:10.430] It is so exciting to see these guys know now
+- [21:15.590] that they have the backing of the Secretary,
+- [21:19.160] the DOJ as well as the President of the United States,
+- [21:22.150] and they are there to do their job.
+- [21:24.180] They are going to fulfill this mission
+- [21:26.480] and deport these violent criminals.
+- [21:30.580] I did a ride along with Secretary Noem yesterday,
+- [21:33.060] President Trump, and there was a pedophile
+- [21:36.340] that had come into the country
+- [21:37.730] five times over the past seven years, seven years,
+- [21:42.520] and apparently under the Biden regime,
+- [21:45.080] that was just allowed to happen. That was fine. No problem.
+- [21:48.550] It's concerning to me that you're seeing
+- [21:50.590] the Portland Police Department
+- [21:52.470] as well as the governor of Oregon
+- [21:54.680] and the mayor, of course,
+- [21:56.270] coming out and running defense for pedophiles
+- [21:59.220] that have entered the country illegally five times.
+- [22:01.480] It's crazy.
+- [22:03.320] I'm glad it's taking a front row seat in the media
+- [22:07.580] and they're being forced to talk about it in reality,
+- [22:10.860] because we are the ones that were on the ground,
+- [22:13.070] we are the ones that are actually reporting
+- [22:14.550] what's going on.
+- [22:16.100] And much of the legacy media has been either ignoring it
+- [22:20.200] or covering for Antifa for years now.
+- [22:23.800] So thank you guys so much for taking this seriously.
+- [22:28.270] And President Trump, you mentioned that flag.
+- [22:31.260] So remember, you put out a truth right after.
+- [22:35.890] I took this flag from that man
+- [22:39.040] that was burning it in the street.
+- [22:40.510] The President: Do you know who he is?
+- [22:41.740] Nick Sortor: Oh yeah, I know exactly who it is.
+- [22:43.110] The President: So why don't you give it to Pam?
+- [22:45.190] Give it to the Attorney General and let's start prosecutions.
+- [22:48.660] Nick Sortor: Yeah.
+- [22:49.870] I actually have a second flag that he tried to burn as well.
+- [22:52.330] So I have two of them from the same guy.
+- [22:53.650] The President: So what happened when that flag started burning?
+- [22:55.820] Everyone went crazy. AG Bondi: That's right.
+- [22:57.400] The President: And that's when it started,
+- [22:58.610] when they started burning the flag.
+- [22:59.910] So thank you.
+- [23:01.110] If you could give the information, it would be great.
+- [23:03.430] And at least that horrible night made you famous.
+- [23:05.380] AG Bondi: He was already famous.
+- [23:08.150] Nick Sortor: I got a text from the President
+- [23:09.510] of the United States, so I appreciate that.
+- [23:11.320] AG Bondi: And President Trump, after that happened to Nick,
+- [23:13.410] I called Harmeet Dhillon
+- [23:14.650] and we opened a pattern and practice investigation
+- [23:17.360] into the Portland Police very publicly
+- [23:19.650] as to how they let this happen.
+- [23:21.590] The President: Thank you very much.
+- [23:22.820] Nick Sortor: Thank you, sir. The President: Thank you.
+- [23:24.030] Brandi Cruse: Mr. President, Brandi Kruse,
+- [23:25.960] you're going to hear us be very fired up today,
+- [23:28.010] and you can tell, and it's because some of us
+- [23:29.540] have been covering Antifa for 15 years
+- [23:32.070] and have never had anyone in a position of authority
+- [23:34.510] even acknowledge their existence.
+- [23:36.500] And I'll also tell you that I think that had you not done --
+- [23:40.240] The single most powerful thing you've done to deal
+- [23:42.310] with this scourge has been acknowledging
+- [23:44.080] that Antifa is a real thing.
+- [23:45.880] I genuinely believe there would be people at these tables
+- [23:48.780] who would be dead today
+- [23:50.630] and would've been killed in Portland
+- [23:52.560] had you not called them a terror organization
+- [23:54.610] and said, "We're going to bring the full weight
+- [23:56.340] of the federal government to bear."
+- [23:58.180] I talked to Katie Daviscourt in Portland and the other day,
+- [24:00.710] she'd been assaulted all summer and she said the same thing.
+- [24:03.480] They didn't seem quick to violence
+- [24:05.720] as soon as you made that designation.
+- [24:07.720] So, they're thinking in their heads,
+- [24:09.010] they're worried there's been two dozen
+- [24:10.770] or so arrested in Portland.
+- [24:12.160] They don't want to go to federal prison.
+- [24:13.690] There's this video of them,
+- [24:15.190] one of them who is in the face of an ICE agent
+- [24:17.890] and then he's in custody shaking.
+- [24:20.760] Once you take the mask off, they're nothing.
+- [24:24.200] And I was told by probably a dozen people
+- [24:27.440] not to tell you this, I'm going to tell too anyway,
+- [24:30.160] because it's relevant to what we're talking about.
+- [24:32.880] I'm living proof that you can recover from TDS.
+- [24:35.790] I had strong Trump derangement syndrome
+- [24:39.040] for probably eight years.
+- [24:44.340] This is one of the reasons I recovered from it.
+- [24:46.380] And by the way, it's much better to not have TDS.
+- [24:49.130] I'm happier, I'm healthier, more successful.
+- [24:52.090] I even think I got a little more attractive
+- [24:55.090] after I got rid of my Trump derangement syndrome.
+- [24:57.130] Yes. I'm a reporter in Seattle and frankly,
+- [25:01.100] I could not care any less what any of you
+- [25:03.380] have to say about this meeting, could not care any less.
+- [25:05.410] We're not here for you.
+- [25:06.670] I'm not here to convince any of you that
+- [25:08.530] Antifa is a real thing
+- [25:09.930] because if you have not come to that conclusion by now,
+- [25:12.000] you are never going to come to that conclusion
+- [25:13.830] because you don't want to see it.
+- [25:15.260] And you're going to go and you're going to say
+- [25:16.760] it's a bunch of right-wing conservative influencers
+- [25:20.400] who are here spinning a tale, I was one of you.
+- [25:23.920] I was a mainstream reporter in Seattle for 10 years.
+- [25:26.920] I was a TV reporter on the streets doing my job
+- [25:31.000] and I was still assaulted by Antifa.
+- [25:33.650] So, it's not about being conservative,
+- [25:35.280] it's about people who go there and show what they're doing.
+- [25:38.750] And when I saw after all those years
+- [25:41.260] that the media wouldn't be honest about what was happening,
+- [25:43.600] that democratic politicians wouldn't be honest
+- [25:45.390] about what was happening, I thought,
+- [25:46.730] "Well, gosh, if they're not being honest about that,
+- [25:49.190] maybe they're not being honest about President Trump either."
+- [25:51.620] And it opened my mind
+- [25:53.080] to just looking at things for what they were.
+- [25:55.540] And now I find you quite funny actually.
+- [25:58.030] No, I said I'm much happier about it.
+- [26:00.150] But for me, again, I could not care
+- [26:02.500] any less the stories that they go to print.
+- [26:04.570] This is what I care about. We have three and a half years.
+- [26:07.670] Nothing is guaranteed,
+- [26:08.940] although I think if Democrats keep it up,
+- [26:10.500] we'll probably have Republican presidents
+- [26:12.070] for the next three decades, but nothing is guaranteed.
+- [26:14.630] And so, what I want to see over the next three
+- [26:16.270] and a half years is a full court press to dismantle
+- [26:19.620] Antifa once and for all in a meaningful way.
+- [26:22.290] I know Andy, we talked before this about some ideas.
+- [26:26.420] I don't care what the media says,
+- [26:27.760] I don't care what Democrats say.
+- [26:29.650] They will never wake up to this fact.
+- [26:31.790] So, we want the federal government
+- [26:33.050] to take as many of these cases as possible,
+- [26:35.580] look at the interstate travel between Portland and Seattle
+- [26:38.510] when it comes to these people who are committing violent acts.
+- [26:42.410] And hopefully in three and a half years,
+- [26:44.920] they will be a shell of their former selves.
+- [26:46.600] The President: Well, I'm very close to that.
+- [26:48.050] And it's Antifa and many others unfortunately.
+- [26:50.490] There are many others, bad ones.
+- [26:52.950] Most have been named terrorist organizations.
+- [26:55.650] There are a couple that we're going to,
+- [26:57.720] but I think we've got it pretty well covered.
+- [26:59.490] But there are many others,
+- [27:00.760] but very specifically today's Antifa
+- [27:03.180] and it's really bad and we're going to get it cleaned up.
+- [27:06.670] Andy, do you have something? Thank you very much.
+- [27:08.520] I'm glad you no longer have TDS. I feel very good about that.
+- [27:11.820] Brandi Cruse: Fully recovered.
+- [27:13.050] The President: Thank you.
+- [27:14.420] Andy: Thank you Mr. President and members of the Cabinet.
+- [27:16.880] I have a lot of gratitude and a little bit about my background.
+- [27:20.380] I'm born in Portland, Oregon from there and growing up,
+- [27:24.740] it's always been left-wing, very progressive and I liked it.
+- [27:28.290] It had cafes and artists
+- [27:30.220] and those who lived at Bohemian Lifestyle.
+- [27:32.950] And in 2016, I was a graduate student at Portland State
+- [27:36.980] studying political science.
+- [27:38.260] I was an editor at the student paper there,
+- [27:40.120] a very progressive paper.
+- [27:41.710] And I was assigned to cover the election night demonstrations.
+- [27:46.230] Well, the elections night protests turned to riots,
+- [27:50.740] three days of violent rioting in Portland.
+- [27:53.170] And it was the first time that I saw groups
+- [27:56.600] dressed in black with their faces covered.
+- [27:58.690] This was four years before COVID.
+- [28:01.180] Some of them were waving the black flag of anarchism
+- [28:04.370] some the red flag of Marxism.
+- [28:07.310] And within seconds, they would ravage one street to another,
+- [28:10.570] to another to another.
+- [28:12.500] And the next day I would read the legacy media,
+- [28:15.650] which I still read at that time and looked forward to.
+- [28:19.290] And I looked up to those journalists
+- [28:20.760] and I was really shocked to see that the narrative was
+- [28:25.100] that these, in my view,
+- [28:28.190] anti-democratic political violence
+- [28:31.690] was legitimate acts of protest
+- [28:35.000] because they were concerned about racism
+- [28:40.810] or all these other lies. And so, for the next four years,
+- [28:45.030] I just continued going out with my video camera.
+- [28:47.000] I thought, look, people can ignore what I write
+- [28:50.270] because of spin, but videos can quite speak for themselves.
+- [28:54.240] And in 2019, it led to me nearly losing my life.
+- [29:00.410] I was covering another Antifa protest
+- [29:04.210] and riot at that point, had been routine in Portland.
+- [29:08.390] And then I was ambushed in a mob beating
+- [29:11.260] and I had never been in a fight.
+- [29:13.150] I didn't even realize that I was being assaulted
+- [29:16.440] until seconds in.
+- [29:18.780] And the punches came from everywhere on my head
+- [29:22.130] and my face, and I was bleeding out of my eyes and ears.
+- [29:25.610] And then they threw all the drinks in my eyes
+- [29:28.120] to humiliate me further and to laugh at me.
+- [29:31.670] And I was rushed to the hospital in an ambulance and CT scan,
+- [29:35.920] and I had subarachnoid hemorrhage,
+- [29:38.640] which is bleeding in the brain and nearly died.
+- [29:41.230] And after surviving that,
+- [29:43.810] the reporting that I saw in liberal media,
+- [29:49.100] it seemed to suggest that I had deserved it
+- [29:51.840] because they branded me far right.
+- [29:54.640] And some even went so far as to suggested
+- [29:57.340] I maybe faked my injuries.
+- [30:00.010] A BuzzFeed reporter asked for my medical records,
+- [30:02.450] which I did provide. But this felt so it's like
+- [30:07.710] because I didn't die in that attack,
+- [30:10.140] there was another round of people
+- [30:11.400] who wanted to finish me off, but I continued.
+- [30:14.310] And then 2020, Portland was really the epicenter
+- [30:18.210] of the longest political violence.
+- [30:20.640] Those months of riots, I was on the ground, undercover
+- [30:23.730] and there was an assassination there.
+- [30:25.390] There was a supporter of Donald Trump named Aaron Danielson,
+- [30:28.770] who was shot dead by a self-
+- [30:30.080] described Antifa member who then fled out of state
+- [30:33.270] and died in a shootout with US marshals.
+- [30:37.180] In 2021, I returned undercover naively thinking
+- [30:40.910] that enough time had passed
+- [30:42.560] and was chased through the streets of downtown
+- [30:46.070] and beaten, nearly choked out.
+- [30:51.140] The person who was trying to choke me out held me
+- [30:53.100] so tightly that I had the vessels in my eyes burst.
+- [30:57.750] So, one of the symptoms
+- [30:59.100] where my eyes were completely red after that
+- [31:01.840] and I was hospitalized.
+- [31:03.480] So, thank you so much for acknowledging Antifa
+- [31:07.910] and for directing your administration.
+- [31:10.290] To treat them as domestic terrorists
+- [31:13.100] is going to be really challenging
+- [31:14.820] because how they organize is that they are decentralized,
+- [31:19.970] autonomous, and they operate on deception.
+- [31:23.470] And we're still to this day, told that they don't exist,
+- [31:26.020] that it's a figment of our imagination.
+- [31:28.880] I think the DOJ could look at federal conspiracy charges.
+- [31:32.910] The State of California and San Diego County last year
+- [31:35.470] broke up an Antifa cell in San Diego,
+- [31:38.720] and I think maybe perhaps the State Department
+- [31:40.870] should designate Antifa its international arm
+- [31:44.040] as a foreign terrorist organization FTO.
+- [31:46.850] So, thank you so much for this invitation, Mr. President.
+- [31:49.410] The President: Thank you. Thank you very much, Andy.
+- [31:50.920] Great. That's a rough time you had.
+- [31:53.370] So, the choke-out was almost the end, you felt?
+- [31:57.990] Andy: Yeah, that was my only near-
+- [32:00.410] death experience in my life,
+- [32:01.720] and I'm quite shaken when I think about it now.
+- [32:07.440] It really feels unbelievable to me
+- [32:09.350] that on the streets of America
+- [32:10.790] that this type of violence against citizens
+- [32:13.130] could become so routine and accepted
+- [32:15.350] and cheered on by people. Although in the immediate
+- [32:19.210] aftermath of Mr. Kirk's assassination,
+- [32:21.200] we saw again that type of depravity play
+- [32:23.440] out on quite large swaths of the left.
+- [32:26.200] So, there's a deep sickness
+- [32:30.230] that's in this country right now,
+- [32:31.930] and it means me a lot to acknowledge it.
+- [32:33.780] The President: Yeah, the amazing thing is you look at Portland
+- [32:36.500] and you see fires all over the place.
+- [32:38.380] You see fights and I mean just violence.
+- [32:41.020] It's just so crazy.
+- [32:42.300] And then you talk to the governor
+- [32:44.230] and she acts like everything is totally normal.
+- [32:46.310] There's nothing wrong.
+- [32:47.890] It's almost like are you waking up from a dream or something?
+- [32:51.790] You see it on your network, you see it all over the place,
+- [32:55.300] and it's so bad, it's so crazy.
+- [32:58.290] It's like the movies you see for the kids,
+- [33:01.280] I guess not only the kids,
+- [33:02.580] adults also where you have these bombed out cities
+- [33:05.580] and these bombed out people. It's like worse than that.
+- [33:08.370] I don't think they could make a movie as bad
+- [33:09.930] and then the governor will get up and say,
+- [33:13.240] "I don't know why they're coming here.
+- [33:15.150] It's such a wonderful place."
+- [33:16.610] And the amazing thing is the people want us to be there.
+- [33:19.090] The people, when they get the real people that live there,
+- [33:22.150] many of them have left,
+- [33:23.700] but the real people want us to be.
+- [33:25.300] The same thing in Chicago.
+- [33:26.530] So, they've had 60, 70 murders over a short period of time.
+- [33:31.290] Murders, people that got shot,
+- [33:34.130] they've had hundreds of people shot.
+- [33:36.510] And then a guy like Pritzker or this low IQ mayor gets up.
+- [33:41.040] I mean, he got up, he's got a 5 percent approval rating
+- [33:44.630] and the people are all against him.
+- [33:46.080] They want people to come.
+- [33:48.370] Beautiful black women are wearing a MAGA
+- [33:51.590] hat last night on television, beautiful people.
+- [33:55.320] And once they said,
+- [33:56.720] "We don't care who comes, just stop the crime."
+- [33:58.760] They don't care. Frankly, they don't care
+- [34:00.300] if it's National Guard and military,
+- [34:02.450] send in anybody you want, stop the crime.
+- [34:05.390] And they're afraid to go out. They can't even go out.
+- [34:08.780] And then a guy like Pritzker, think of that 50, 60,
+- [34:11.990] 70 people over a short period are murdered,
+- [34:14.350] actually murdered, mostly gun violence,
+- [34:16.940] but knives, but gun violence, they're murdered.
+- [34:19.620] And hundreds of people shot.
+- [34:21.570] They had one weekend with had like 18 murdered and 71 shot,
+- [34:28.300] but they said, you know what their excuse is, yeah,
+- [34:30.160] but it was a long weekend.
+- [34:31.780] In other words, it was a long weekend, so that was okay.
+- [34:34.340] And then Pritzker gets up and he says,
+- [34:37.450] "I don't know what they're talking about.
+- [34:38.970] We don't have crime here.
+- [34:40.360] They're crazy. I think actually they're petrified.
+- [34:43.300] Their families live there, everything else.
+- [34:45.340] I actually think they're scared.
+- [34:47.520] Pritzker was a failure in his family.
+- [34:49.170] They throw him out of the family business.
+- [34:51.450] The guy's a loser.
+- [34:53.120] But you know what, actually, I believe they're scared.
+- [34:56.740] They're actually frightened for their lives.
+- [34:59.200] Jack, please say a few words.
+- [35:04.310] Jack: Mr. President, thank you so much
+- [35:05.590] for having us here today and holding this roundtable.
+- [35:10.790] Antifa is real.
+- [35:12.190] Antifa has been around in various iterations
+- [35:14.820] for almost a hundred years in some instances
+- [35:18.110] going back to the Weimar Republic in Germany,
+- [35:21.000] and it's now been just under one month
+- [35:24.680] since we saw a far leftist murder, Charlie Kirk.
+- [35:30.940] And we saw thousands upon thousands of people,
+- [35:33.630] other far leftists and people in positions of authority,
+- [35:37.710] people like nurses and pilots and doctors and HR departments
+- [35:41.940] celebrating the death and the murder of Charlie Kirk.
+- [35:45.640] This sickness that's out there is absolutely real
+- [35:47.700] and Mr. president,
+- [35:48.930] thank you for mentioning the fact
+- [35:52.190] that one of the bullet casings read,
+- [35:53.840] "Hey, fascist, catch on it."
+- [35:56.300] One of the other bullet casings right next to that
+- [35:59.040] had Bella Ciao written on it.
+- [36:01.130] Now, Bella Ciao is a song that is known in Antifa circles
+- [36:05.830] as the international anthem of Antifa.
+- [36:08.670] And all of us around this room that have studied
+- [36:12.040] Antifa, were very familiar with these symbols.
+- [36:15.080] And Mr. President, I think the situation is getting worse.
+- [36:18.090] When you look at people like Luigi
+- [36:20.160] Mangione in his 20s, Thomas Matthew Crooks,
+- [36:24.850] of course, who took a shot at you, sir,
+- [36:28.380] the ICE shooter in Dallas, and now this Tyler Robinson.
+- [36:31.260] We're starting to see a pattern
+- [36:33.080] of more and more murderous violence.
+- [36:36.060] And this same violence is not just random,
+- [36:40.820] it is targeted assassinations which are getting worse.
+- [36:43.950] And every single one of us in this room that goes out there,
+- [36:48.560] and obviously you as well, sir, and all the staff,
+- [36:52.230] we are now under that threat every single day
+- [36:56.160] and working there at Turning Point USA.
+- [36:58.610] And I've spent just about the last month out there
+- [37:00.660] in Phoenix with Erika, with the family, with the team.
+- [37:04.540] And I will tell you this, Mr. President,
+- [37:06.370] even though going through something like that,
+- [37:08.070] which is an absolute nightmare, and people say,
+- [37:11.530] "What was it like to speak in front of all those people,"
+- [37:13.770] it's horrible.
+- [37:15.020] Every second of it was horrible, but we're not going to quit.
+- [37:19.060] And Turning Point USA is continuing the tour
+- [37:21.650] that Charlie was on.
+- [37:22.950] We had 6,000 people when we went back to Utah.
+- [37:25.900] We had 5,000 people last night in Montana
+- [37:28.430] if you can believe that.
+- [37:29.770] We are continuing to organize on campus.
+- [37:31.730] We are getting more and more people coming out
+- [37:35.390] in the face of this threat
+- [37:37.080] knowing what happened to Charlie.
+- [37:39.140] But Mr. president, we need to do something about this
+- [37:42.880] because I fear that the next one who could be killed
+- [37:48.100] could be sitting at this table right now
+- [37:50.220] and we're not going to stop.
+- [37:51.760] But they need to stop and they will not stop
+- [37:53.890] until they are stopped. Thank you.
+- [37:56.550] The President: Thank you, Jack. I appreciate it very much.
+- [37:59.020] One thing I have to say is that Washington DC was almost as bad.
+- [38:02.870] I don't know what could be worse than Portland.
+- [38:04.510] You don't even have stores anymore.
+- [38:05.780] They don't even put glass up.
+- [38:07.530] They put plywood on their windows,
+- [38:09.330] but most of the retailers have left.
+- [38:11.290] But Washington DC was so bad, and Pam, I'd say it took 12 days
+- [38:17.530] to really make it pretty good and a month to make it great.
+- [38:21.200] And now people are going out to dinner,
+- [38:22.760] the restaurants are booming, they don't have enough seats.
+- [38:24.970] They're opening up new restaurants
+- [38:26.570] because many of them closed and people
+- [38:28.970] are walking down the street, totally safe.
+- [38:30.930] A reporter, I'm not sure if she's there, I can't see.
+- [38:33.630] Somebody reported, there she is.
+- [38:35.460] She was violently assaulted.
+- [38:38.240] And I don't know, she tends to be somewhat liberal,
+- [38:40.920] but she wasn't liberal on this one.
+- [38:42.640] I appreciated your honesty, but that won't happen again.
+- [38:46.370] It won't happen again.
+- [38:47.820] You're lucky, you're alive, frankly, with what happened.
+- [38:50.330] I know exactly what took place. So, Washington DC, our capitol,
+- [38:55.900] we thought we'd start there appropriately and it's safe.
+- [38:59.990] And people are so happy, they're so happy.
+- [39:03.800] And now it's a couple of months.
+- [39:05.110] I went to dinner there, I felt totally safe.
+- [39:07.150] I gave a press conference right in the middle of the street,
+- [39:09.770] which I don't think Secret Service was thrilled about,
+- [39:12.390] but I'll tell you what, I wouldn't have wanted to do it
+- [39:15.280] six months ago. It's incredible what happened.
+- [39:17.550] Now, we're in Memphis.
+- [39:18.780] As you know, we're having a great impact in Memphis.
+- [39:21.460] It's been only a week, but Kash, I hear it's been amazing
+- [39:26.610] what's happening there just very early.
+- [39:29.860] But you take a look at DC
+- [39:31.470] and you take a look at some of the other,
+- [39:33.050] we've had a big impact there.
+- [39:34.650] What we haven't said, because Pritzker said,
+- [39:36.550] "Well, crime is going down in Chicago."
+- [39:38.200] Well, five months ago, Kash went to Chicago
+- [39:41.120] with a lot of FBI agents
+- [39:42.480] just to prepare it so that we went in with,
+- [39:45.190] I guess you could call a surge, call it whatever you want,
+- [39:48.160] but would be even more effective.
+- [39:50.410] And we're going to be doing that
+- [39:52.430] and very, very strongly doing that
+- [39:54.170] because Chicago is a very unsafe city.
+- [39:55.840] It's a great city.
+- [39:57.220] The head of the Union Pacific Railroad said,
+- [39:59.660] "Sir, please save Chicago. It's a great city.
+- [40:03.000] It can be saved." Other cities are gone.
+- [40:05.370] I mean, they're lost. They can get better,
+- [40:07.610] but they're just really, they've been so decimated.
+- [40:10.420] But I'm so proud of what they've done so quickly in DC
+- [40:14.190] and it's taking place quickly in Memphis,
+- [40:16.870] where we were asked to go by the mayor and by the governor,
+- [40:20.330] and it's really incredible what we can do
+- [40:23.410] and how fast we can do it.
+- [40:25.850] Let's go for two more. Would you like to go?
+- [40:27.660] And then Katie, you'll go, okay, please.
+- [40:29.110] Unknown Speaker: Yep.
+- [40:30.340] Thank you, Mr. President for having us here.
+- [40:32.120] And not to sound like a broken record,
+- [40:34.070] but it needs to be said that Antifa is real.
+- [40:36.820] It's real, it's a threat.
+- [40:38.050] I just saw him last weekend over in Portland
+- [40:40.210] while they're causing mayhem over there.
+- [40:42.260] And the reason why there's such a big problem
+- [40:44.580] is because we have Democrats
+- [40:45.800] and a lot of people in the mainstream media
+- [40:47.180] refusing to acknowledge that they even exist, right?
+- [40:49.090] So, how can we as a country begin to address it
+- [40:51.680] if we have large swaths of these people
+- [40:54.280] who are supposedly decision-makers
+- [40:56.140] and people who are supposed to inform?
+- [40:58.590] They don't want to say that it exists
+- [41:02.440] because the common argument is like,
+- [41:04.090] "Well, they're not a real organization
+- [41:06.160] because there's no national leadership.
+- [41:07.540] They don't have a national headquarters.
+- [41:08.950] So, how can law enforcement go after a group
+- [41:11.100] that doesn't exist like that?"
+- [41:12.440] Well, law enforcement goes after criminal groups
+- [41:15.510] that organize to rob banks or do smash and grabs.
+- [41:19.260] They don't have a registered LLC.
+- [41:20.920] They don't have official membership cards.
+- [41:22.510] They don't have a business address,
+- [41:25.300] but law enforcement still goes after them
+- [41:27.860] because they're working as a group.
+- [41:29.380] These people don't just show up
+- [41:31.500] randomly at the same time to do the same thing,
+- [41:34.020] dressed in a very similar fashion,
+- [41:35.510] espousing the same ideology.
+- [41:37.470] And they say, "Well, it's an ideology.
+- [41:38.890] It's like, well, yes, it's an ideology
+- [41:40.140] because there's people alive present that believe in it
+- [41:42.900] and they're acting on it.
+- [41:44.690] And so, I've been very well aware
+- [41:46.780] of what Antifa has been doing.
+- [41:48.110] I was very busy during the riots in 2020.
+- [41:51.660] That was probably my most exposure to them
+- [41:55.220] prior to this year.
+- [41:58.570] I've been at the ICE facility at Broadview.
+- [42:00.810] I'm originally from the Chicagoland area, unfortunately.
+- [42:03.190] But that's where I grew up around.
+- [42:05.920] Like I said, I was in Portland.
+- [42:07.320] I was covering the riots in Los Angeles as well.
+- [42:10.130] And probably one of the most disturbing parts about that
+- [42:13.420] is in addition to Antifa being present,
+- [42:16.130] they were tagging the streets with CJNG,
+- [42:20.830] which is Cartel Jalisco Nueva Generación, which is a cartel.
+- [42:24.880] So, you have these people who are working basically in concert
+- [42:27.450] with other terrorist groups to say that we are here,
+- [42:29.900] we're present, and we're going to attack federal agents
+- [42:33.040] and people who are going to expose what we do.
+- [42:35.580] And so, to be clear, sustained political violence
+- [42:39.490] that we're seeing in this country is not both sides issue.
+- [42:45.370] I was at Charlie Kirk's memorial in Glendale recently,
+- [42:50.180] conservative gathering, totally peaceful.
+- [42:52.500] It was the most peaceful gathering that I've been at.
+- [42:54.770] Every other time that I've been covering violence
+- [42:57.340] in the streets,
+- [42:58.690] just this year, it's always been from left-wing people,
+- [43:03.450] radical left-wing people.
+- [43:04.920] And it's not even just Antifa anymore.
+- [43:09.770] The defensive shooting that happened in the Chicago area
+- [43:13.610] that wasn't someone dressed in black block,
+- [43:15.050] that was just somebody that had taken upon themselves to go out
+- [43:18.080] and try to interfere and ram federal vehicles.
+- [43:22.560] So, people are becoming more and more radicalized.
+- [43:24.980] And it was to be expected, unfortunately.
+- [43:27.080] And the reason why we're in this position today
+- [43:29.360] is because after I was done covering the riots,
+- [43:31.690] I was at the border from the San Diego sector
+- [43:34.070] all the way down to the Rio Grande Valley sector,
+- [43:35.900] covering the border crisis month after month.
+- [43:37.870] And we all knew the solution to that.
+- [43:39.560] We all knew why it was happening.
+- [43:40.920] It's because, well, it's racist to have a border.
+- [43:42.500] It's like, well, actually it's not, but okay.
+- [43:44.500] And so, it required you to come back into office
+- [43:46.560] and to fix the problem,
+- [43:47.760] but it's no longer just a border issue.
+- [43:49.980] It's a nationwide issue. And that's one of the reasons
+- [43:52.300] why you got elected back into office
+- [43:55.060] because thankfully the American people said,
+- [43:56.760] "We're not going to deal with it anymore."
+- [43:58.240] But unfortunately, there's a lot of people, as we've seen,
+- [44:01.100] who are willing to take to the streets to do violence.
+- [44:03.550] And that's a scary thing because typically when I was in 2020,
+- [44:08.650] I was covering Minneapolis, Los Angeles, Portland,
+- [44:12.430] Seattle, I was over in Chaz, and that was to be expected.
+- [44:15.960] But now, because the issue of illegal immigration
+- [44:18.460] is so widespread,
+- [44:19.730] riots can happen anywhere, attacks can happen anywhere.
+- [44:22.590] So, that's why it was weird going back to my home state
+- [44:25.610] to cover this violence.
+- [44:27.350] I mean, just after the Dallas shooting,
+- [44:28.680] they were chanting outside Broadview,
+- [44:30.820] "Shoot ICE, shoot those efforts, shoot those efforts."
+- [44:36.710] So, I'll just leave that.
+- [44:39.180] Thank you so much again for having this.
+- [44:42.450] This is very dangerous.
+- [44:45.520] We don't work for companies that have billions of dollars.
+- [44:48.740] We're running and gunning often on our own.
+- [44:52.710] We became friends. A lot of us are friends
+- [44:54.170] because we would see each other all the time.
+- [44:56.220] And we became friends because we wanted to have
+- [44:58.410] someone watch our back while we're out there.
+- [45:00.260] Because like I said, we're just out there,
+- [45:02.900] but we'll continue to do it
+- [45:04.170] because it's an important topic, it's an important issue.
+- [45:07.190] The American people deserve to know
+- [45:08.620] what's happening in these chaotic situations,
+- [45:10.200] and we're more than happy to do it.
+- [45:11.540] So, thank you, sir.
+- [45:12.760] The President: Great job. Thank you very much.
+- [45:14.310] Katie, please.
+- [45:17.350] Katie: Hi, Mr. President.
+- [45:19.130] It is an honor being here today and I first wanted to start
+- [45:21.790] by thanking you guys for designating Antifa.
+- [45:24.800] A terrorist group is exactly what this group is.
+- [45:27.780] It's a long time coming.
+- [45:28.980] I'm an investigative journalist from Seattle.
+- [45:31.020] I work for the Post-Millennial alongside Andy Ngo
+- [45:33.660] and Jack Posobiec.
+- [45:35.230] I have been infiltrating Antifa cells
+- [45:38.370] in Seattle and Portland for the past decade.
+- [45:41.080] I know their inner workings
+- [45:42.920] and Antifa uses extreme political violence
+- [45:45.750] to crush the civil rights of their political enemies
+- [45:48.400] and believes that violence is justified
+- [45:50.740] by any means necessary.
+- [45:52.170] But today, I want to focus on what is happening in Portland
+- [45:56.780] at the ICE facility.
+- [45:58.060] I've been covering this for the past four months,
+- [46:01.220] and this is a call-out to corporate media
+- [46:03.450] who has completely ignored this story,
+- [46:05.780] or has falsely reported on it. This is nothing short
+- [46:10.040] other than a sustained attack on the United States,
+- [46:13.510] which is being supported by Democratic-elected officials.
+- [46:16.880] The Portland Police Bureau has completely abandoned
+- [46:19.740] several blocks outside the ICE facility,
+- [46:22.480] giving away their jurisdiction to a terrorist group
+- [46:26.460] who has spent the past four months harassing,
+- [46:28.560] assaulting and intimidating
+- [46:30.740] anyone they perceive to be against their cause.
+- [46:33.570] Not only have federal agents been,
+- [46:35.820] agents been relentlessly assaulted
+- [46:38.320] for more than 100 consecutive days,
+- [46:40.560] black-clad anarchist militants
+- [46:42.560] concealing their identities behind black facial coverings
+- [46:46.120] have been assaulting reporters
+- [46:48.820] just for trying to cover their crimes.
+- [46:51.440] Today, I'm sitting here with a black eye
+- [46:53.490] and a concussion after being violently hit
+- [46:56.010] in the face with a metal pole
+- [46:58.050] while reporting outside the ICE facility.
+- [46:59.800] Just this past week after the attack,
+- [47:02.330] I immediately went to three Portland police officers
+- [47:06.130] who refused to detain the suspect.
+- [47:08.990] I took the time to chase down the suspect in the streets,
+- [47:12.650] had her held for 35 minutes.
+- [47:15.410] I was waiting for Portland Police to come
+- [47:17.830] and they never came then.
+- [47:19.470] That's what opened my eyes
+- [47:20.810] to what this group is actually doing.
+- [47:23.790] I watched 20 Antifa militants help my assault suspect
+- [47:28.340] escape into an Antifa safe house
+- [47:31.160] that is one block away from the ICE facility.
+- [47:34.150] And this safe house is where Antifa-affiliated protesters
+- [47:37.840] are conducting parliamentary operations.
+- [47:41.520] It's where they're resting, they're showering,
+- [47:44.330] they're eating to continue this occupation.
+- [47:47.150] I have staked out this safe house
+- [47:49.280] and have observed shift changes. This group is highly organized.
+- [47:53.300] It is being funded through mutual aid groups,
+- [47:55.860] and they have no plans of stopping.
+- [47:57.910] Residents living across the ICE facility
+- [48:00.700] have been held hostage by Antifa.
+- [48:03.690] They're begging for federal intervention.
+- [48:05.580] The city refuses to help,
+- [48:07.400] and they want you, President Trump,
+- [48:09.110] to come in and restore law and order.
+- [48:12.030] I want to stress the importance of taking this situation
+- [48:14.880] seriously
+- [48:16.170] because when I first started reporting on this occupation,
+- [48:19.020] I went undercover in Black Bloc.
+- [48:21.040] I talked to these Antifa militants.
+- [48:22.850] I lasted for about a month.
+- [48:24.380] They believe that ICE agents are the Nazi Gestapo
+- [48:27.230] who need to be killed, they told me that directly.
+- [48:29.600] And I think that if this situation
+- [48:31.820] is not taken as seriously as it is,
+- [48:33.910] it's just a matter of time before someone gets killed.
+- [48:36.250] And thank you for having me.
+- [48:38.460] The President: Thank you, Katie. That's pretty incredible.
+- [48:41.970] The only question nobody can answer is why?
+- [48:43.870] Why are they doing this? They're like insurrectionists.
+- [48:47.110] They're terrible people, but you really wonder why.
+- [48:49.910] Why are they doing it? What are they gaining?
+- [48:52.480] Other than they're obviously paid.
+- [48:54.070] They're paid a lot of money. Go ahead, please.
+- [48:56.430] Unknown Speaker: Mr. President, if I can answer that question,
+- [48:58.310] the reason why they're doing it
+- [48:59.640] is because the same media that's sitting in this room with us
+- [49:02.650] has declared all of us at this table, Nazis and fascists,
+- [49:06.320] and they've been doing this for years.
+- [49:08.270] This is why Antifa feels emboldened to attack us.
+- [49:11.230] Now, almost every single person at this table
+- [49:13.100] has been threatened with a steel bat.
+- [49:14.950] We've been assaulted, we've been harassed, we've been threatened.
+- [49:17.490] And that is, in huge part, due to the media.
+- [49:20.270] So, my message right now is for you guys because back in 2020,
+- [49:26.440] by the way, I was censored for my reporting on Antifa
+- [49:29.600] here in Washington DC.
+- [49:31.330] You were talking about how safe it is now, Mr. President.
+- [49:34.120] It wasn't so safe back then.
+- [49:36.240] Back in 2020, I watched as a father was being mobbed
+- [49:39.600] and surrounded by Antifa members as his terrified crying children
+- [49:43.500] looked on the police here did nothing.
+- [49:46.010] I watched as a woman had her hair
+- [49:47.520] violently ripped out of her skull
+- [49:49.040] simply for waving an American flag
+- [49:51.330] on the streets of Washington DC.
+- [49:53.920] And by the way, if you guys try to go
+- [49:55.680] and find any of this footage,
+- [49:57.150] you won't find any of it because Twitter deleted all of it
+- [49:59.580] because our president shared my reporting
+- [50:01.880] and they deleted my entire account immediately after.
+- [50:05.120] So, now, if you want to know what happened in 2020,
+- [50:08.000] all you're going to see is the media headlines that said that,
+- [50:10.230] "It was fiery, but mostly peaceful."
+- [50:11.980] Thanks for that one, CNN.
+- [50:13.660] The reality is that it was
+- [50:14.880] an extremely violent period of time.
+- [50:16.990] And for the last 10 years,
+- [50:18.530] Antifa has been wrecking havoc on law-abiding
+- [50:21.120] and innocent American citizens, and it needs to end.
+- [50:24.450] Now, I'm with Turning Point USA.
+- [50:26.070] It's an honor to be here. Mr. President.
+- [50:28.400] Thank you guys so much, everybody in the administration,
+- [50:31.110] for giving us a seat at the table.
+- [50:32.970] Because the media has not only been demonizing us for so long,
+- [50:37.320] but immediately after the brutal assassination of our founder,
+- [50:40.860] Charlie Kirk, our Turning Point USA chapters
+- [50:43.650] have seen an uptick in violence across the nation,
+- [50:46.560] as Antifa chapters that are embedded in our universities
+- [50:49.730] go and target them.
+- [50:52.310] It's been extremely difficult to report on the ground.
+- [50:55.660] And for a long time, I was afraid to go to Portland
+- [50:58.000] because I knew that the only people who would have my back,
+- [51:00.590] like Julio said, were one of my friends on the ground
+- [51:02.500] because there was no police force there.
+- [51:04.390] I was terrified to go because I knew if I got shot or stabbed,
+- [51:06.920] and I have been assaulted,
+- [51:08.200] I've been mobbed and robbed in Austin, Texas by Antifa,
+- [51:10.960] that nobody would come to help me.
+- [51:13.060] So, my plea to the entire administration,
+- [51:15.200] especially to the DOJ, is every single radical left-winger
+- [51:19.430] who is in front of the ICE facility in Chicago,
+- [51:21.950] in New York, in Portland,
+- [51:23.930] please make sure that you use the full force of the law
+- [51:26.380] to come after each and every single one of them
+- [51:29.120] because it is us being soft on left-wing violence
+- [51:32.260] that has fomented all of the terror
+- [51:35.510] that we have seen in this country.
+- [51:37.090] And it is the left-wing getting away time and time again
+- [51:40.420] with assaulting law-abiding American citizens
+- [51:42.760] that has led us to this place.
+- [51:44.080] So, truly, to the Americans that I speak to on the ground,
+- [51:47.560] they feel completely abandoned by their state
+- [51:50.240] and local government. So, please step in.
+- [51:52.530] We have Americans begging for the National Guard.
+- [51:54.790] And to the media over here, please report on the truth.
+- [51:58.000] Please do your jobs. I'm an American citizen.
+- [52:00.430] Everybody at this table simply views ourselves
+- [52:03.270] as American citizens who have an iPhone
+- [52:05.400] and the will to actually tell the truth.
+- [52:07.360] So, please take your job seriously
+- [52:10.300] and tell the truth to the American people.
+- [52:12.160] And thank you for letting me be here on behalf of Charlie
+- [52:14.190] to continue his legacy of cleaning up the country.
+- [52:15.820] Thank you, Mr. President.
+- [52:17.070] The President: Thank you very much.
+- [52:18.310] Appreciate it.
+- [52:19.590] Wow, you feel very strongly I can see.
+- [52:20.930] Unknown Speaker: I'm mad.
+- [52:22.150] I got beat up so many times, Mr. President.
+- [52:24.040] My friends have gotten beaten up.
+- [52:25.340] And I want to cry right now from happiness
+- [52:27.380] because we have been completely ignored for so long.
+- [52:30.430] For almost 10 years,
+- [52:31.710] we've been getting assaulted on the streets.
+- [52:33.240] I have watched children cry
+- [52:34.780] as their parents have been attacked on the streets.
+- [52:37.000] That should not be happening at our nation's capitol.
+- [52:39.870] So, please, again, the DOJ, please utilize the full force
+- [52:43.120] and go after each and every single one of these people.
+- [52:45.370] The President: Fantastic. Thank you very much.
+- [52:47.340] Great job. Impassioned.
+- [52:49.660] That's important because you should feel like that.
+- [52:51.810] Please, go ahead.
+- [52:54.460] Jack: Mr. President, thank you for having us here
+- [52:56.660] and bringing together this panel of brave, brave journalists,
+- [53:01.990] everybody on this side of the room.
+- [53:03.740] And no one can speak to the violence
+- [53:05.890] better than these people here.
+- [53:07.250] So, I think we know that this is not just a story
+- [53:10.880] about violence and chaos,
+- [53:12.300] as you alluded to Mr. President, this is a money story.
+- [53:16.110] And at the Government Accountability Institute,
+- [53:18.250] my colleague and I, Peter Schweitzer and our team,
+- [53:22.110] we followed the money and we followed it to the top
+- [53:24.280] of what we call the protest industrial complex, Riot Inc.
+- [53:29.880] and we found a network of NGOs.
+- [53:32.030] It's not just the Soros Network, the Open Society Network,
+- [53:35.320] it's other funding networks, the Arabella Funding Network,
+- [53:38.490] the Tides Funding Network, Neville Roy Singham
+- [53:41.630] and his network, foreign cash.
+- [53:44.250] And it's also big left-wing funders,
+- [53:46.440] some of them are not citizens of this country.
+- [53:49.210] Mr. (inaudible) of Switzerland.
+- [53:51.590] They're pouring money into this entire ecosystem.
+- [53:54.450] And so, I want to share three money facts with you
+- [53:56.380] about what we call Riot Inc.
+- [53:57.920] Number one, like any corporation, Riot Inc.
+- [54:01.140] has many divisions.
+- [54:02.410] It doesn't just have the Antifa Boots
+- [54:04.020] on the ground division,
+- [54:05.260] it has PR divisions, it has marketing divisions.
+- [54:07.680] It has a very well-funded legal division
+- [54:10.150] to get these boots on the ground
+- [54:12.330] back on the streets as quickly as possible,
+- [54:15.150] but it does have those investors that I mentioned.
+- [54:17.630] Number two, we have identified dozens of radical organizations,
+- [54:22.330] not just the decentralized Antifa organizations,
+- [54:25.140] but dozens of radical organizations
+- [54:27.030] that have received more than $100 million from the Riot.
+- [54:31.390] Inc. investors.
+- [54:32.710] These would be the lawyer groups,
+- [54:33.980] these would be the groups that advocate for calling good,
+- [54:37.390] honest Americans, fascists, et cetera.
+- [54:40.210] And then, three, I think the most shocking thing is
+- [54:42.370] that we have found that more than $100 million in US
+- [54:46.850] funding has flowed into these funding networks,
+- [54:51.030] including at least $4 million to these very groups themselves.
+- [54:54.220] Not just Antifa types,
+- [54:55.760] but there was an event in Atlanta called Stop Cop City.
+- [55:00.340] Over 60 rioters were charged with domestic terrorism.
+- [55:04.420] These groups received money for that from,
+- [55:07.210] both the billionaire class as well as taxpayer money.
+- [55:10.130] So, one other thing, this money helps fund
+- [55:14.660] the decentralized crowdfunding platforms.
+- [55:18.130] These are ways that Antifa,
+- [55:20.280] the John Brown Gun Club of Elm Fork,
+- [55:22.220] which had links to that attack on the ICE facility,
+- [55:25.490] the Socialist Rifle Association.
+- [55:27.230] And just because they don't have LLCs or EIN numbers
+- [55:30.940] doesn't mean they can't get paid.
+- [55:33.160] Some of these crowdfunding platforms are funded
+- [55:36.650] by this network that we call Riot Inc.
+- [55:38.430] So, again, I want to thank you for your leadership,
+- [55:41.020] for the whole cabinet's leadership on this.
+- [55:43.270] We're going to keep following the money
+- [55:45.000] and appreciate everything you're doing, sir.
+- [55:48.050] The President: Do you know the name of any of the funders?
+- [55:50.600] Do you know the names? Because if you do,
+- [55:52.370] I'd like you to give them to Kash or Pam or Kristi.
+- [55:55.470] Jack: Yeah, we'll do that.
+- [55:56.720] The President: As soon as you can.
+- [55:57.930] That's all of you, because you probably know the names.
+- [56:01.230] After a certain period of time, you tend to find out.
+- [56:04.090] But these are people that do not have good intention
+- [56:06.340] for the country, and that's treasonous, probably.
+- [56:10.940] So, very important.
+- [56:13.430] If you could do that, it would be great.
+- [56:16.290] Nobody would know better than you.
+- [56:17.490] You'll figure it out. Thank you. Please, go ahead.
+- [56:21.160] Nick Shirley: Yeah, my name's Nick Shirley.
+- [56:22.670] I'm 23 years old. I'm a 100 percent
+- [56:24.540] independent YouTube journalist. And over the past year or so,
+- [56:27.730] I've been able to go to 15 countries.
+- [56:29.990] I've hung out with people in the gangs of Brazil
+- [56:32.300] in favelas, in the prisons of CECOT,
+- [56:34.920] but yet the most dangerous places
+- [56:36.280] I have been here in the United States, unfortunately.
+- [56:39.940] And I've had the opportunity to show people about the protest
+- [56:43.180] Antifa here in the United States,
+- [56:44.640] and there's nothing organic about
+- [56:46.310] what they are doing here in the United States.
+- [56:48.240] I've watched people be bussed in from states.
+- [56:50.670] I've watched the same lady at a protest in Atlanta
+- [56:54.450] be bussed the protest in DC and then in New York City.
+- [56:58.520] There's nothing that is honest about what they're doing,
+- [57:02.010] and they have signs.
+- [57:03.380] I've seen the same signs here in DC and in London as well.
+- [57:07.340] It's a big corporation that they're running.
+- [57:12.060] And people may wonder,
+- [57:13.330] "What's the threat to us as Americans if we go?"
+- [57:15.860] Well, you'll be labeled as a fascist,
+- [57:17.360] you'll be labeled as a Nazi,
+- [57:18.810] and they'll wish death upon you because they wish death upon me.
+- [57:21.460] And just last week in Portland, Oregon,
+- [57:23.900] I watched a lady get trapped in her car,
+- [57:25.540] surrounded by Antifa,
+- [57:27.480] and her sister messaged me after seeing the video.
+- [57:29.730] She said, " The only reason I think my sister was safe
+- [57:31.660] is because you were there recording."
+- [57:33.700] I also was chased out by a member of Antifa
+- [57:38.320] who said he would smoke me.
+- [57:40.700] And next thing he knew, a DHS sniper had lasers on his chest.
+- [57:44.960] If he was not there, who knows what would've happened that day.
+- [57:48.280] These people are very dangerous
+- [57:49.590] and people wonder how they're able to do it.
+- [57:53.420] The reason is because these cities
+- [57:55.180] are not enforcing the law.
+- [57:56.700] And why should these people be worried
+- [57:58.410] if the law is not being enforced?
+- [58:01.070] And we are not far right, nor are we far wrong,
+- [58:04.480] we're just right.
+- [58:05.810] And the truth about what's happening here in America
+- [58:07.880] with these groups is very dangerous.
+- [58:09.990] And I thank you, Mr. President,
+- [58:11.350] and your administration as well for acknowledging that.
+- [58:13.930] The President: Thank you very much.
+- [58:15.140] It's too bad you have to go through it,
+- [58:16.490] but thank you very much. Nick Shirley: I know.
+- [58:17.710] It's so crazy, right, Mr. President?
+- [58:18.960] The President: Well, you're going to get
+- [58:20.190] to the bottom of it,
+- [58:21.390] so it's a very important thing you're doing.
+- [58:22.760] Thank you very much. Please, Cam.
+- [58:25.210] Unknown Speaker: Yeah, I've just got something very short.
+- [58:27.870] I'm attacked every time I do my job.
+- [58:30.550] When I leave my house to go to work,
+- [58:32.310] I'm violently assaulted.
+- [58:33.640] I've had guns pulled on me. I've been bear sprayed.
+- [58:35.950] I've been beaten down. I've been almost killed.
+- [58:38.610] So, my question for all of you is how would you feel
+- [58:42.910] if every time you showed up to work,
+- [58:44.430] masked militants tried to kill you?
+- [58:46.290] Because that's how we feel. That's our lived reality.
+- [58:48.770] And you guys go and tell us that we're liars,
+- [58:51.230] the riots aren't that bad, right?
+- [58:53.480] I've never seen any of you guys on the ground.
+- [58:55.140] In fact, I've never seen anybody
+- [58:57.110] representing the companies you work for on the ground.
+- [59:00.420] You guys come to us for interviews
+- [59:01.710] that never get published.
+- [59:03.450] Stop saying we're lying, we're not.
+- [59:05.330] We risk our lives every day to do the job
+- [59:07.900] that you guys are too afraid to do.
+- [59:10.820] The President: What network would you say
+- [59:12.230] is the worst that I could ask?
+- [59:14.100] Unknown Speaker: Oh man, that's a real tight spot --
+- [59:15.420] The President: Honestly.
+- [59:16.710] It's a simple question and it's --
+- [59:18.310] Unknown Speaker: There's a lot of people in this pool,
+- [59:19.840] and I would say, I'm not talking about Fox,
+- [59:21.980] I'm not talking about Newsmax or any outlet that resembles them.
+- [59:25.560] So, I'll let you guys put the pieces together
+- [59:27.160] on who I'm exactly talking about.
+- [59:28.580] The President: Who would you say? Which network is --
+- [59:29.790] Unknown Speaker: MSNBC, for sure.
+- [59:31.030] The President: Oh, they're terrible. I agree.
+- [59:32.310] Unknown Speaker: CNN close. Yeah.
+- [59:33.980] The President: Yeah, I'd rate it that way.
+- [59:37.090] MSNBC, Brian Roberts.
+- [59:40.310] That he allows that to happen is a disgrace.
+- [59:43.270] And CNN is second.
+- [59:45.270] I would say CNN is not quite as bad as MS.
+- [59:48.020] Unknown Speaker: MSNBC's not really a news site anymore.
+- [59:50.040] The President: Oh, MSNBC is sick. They're sick.
+- [59:53.040] Unknown Speaker: Well, sir, it's also just the stories
+- [59:54.690] that they publish about the ICE enforcement operations
+- [59:58.020] that are so heavily slanted that it's no longer,
+- [01:00:00.040] as I was saying, no longer just Antifa,
+- [01:00:01.620] but Americans that are becoming radicalized.
+- [01:00:04.080] So, they've been very irresponsible
+- [01:00:05.690] with how they've been reporting on-
+- [01:00:07.010] The President: Who is that?
+- [01:00:08.230] Unknown Speaker: MSNBC, for example, they --
+- [01:00:09.920] The President: Would you rate them the worst?
+- [01:00:11.230] Unknown Speaker: Probably.
+- [01:00:12.440] The President: Who would you rate as second?
+- [01:00:13.750] Unknown Speaker: Well, they ran a story about an operation
+- [01:00:15.760] in Southern California
+- [01:00:17.020] about how a father of three Marines was arrested,
+- [01:00:19.590] and they made it seem like they just did it because he's brown,
+- [01:00:23.010] but there's video of that same man
+- [01:00:25.390] charging at the agents with a weed whacker.
+- [01:00:27.070] Now, I've worked with weed whackers back in the day,
+- [01:00:29.320] and you don't want to be in the receiving end of one of those,
+- [01:00:31.440] so that's why he was arrested. But the story was presented
+- [01:00:34.260] as if it's a brown guy just simply being arrested.
+- [01:00:36.860] And I've been around ICE agents and I'm a citizen,
+- [01:00:39.730] so I feel fine.
+- [01:00:41.950] But that's why. It's not just Antifa.
+- [01:00:44.880] It's not happening in a vacuum. It's multiple things.
+- [01:00:48.620] The President: No, I think they work in conjunction
+- [01:00:50.010] with some of the media. I think ABC is very bad.
+- [01:00:53.190] I think NBC is very bad and CBS has a new owner.
+- [01:00:56.580] So, we have hope for CBS.
+- [01:00:58.190] CBS has a great new owner, my opinion.
+- [01:01:01.110] But I will tell you, ABC is terrible.
+- [01:01:05.350] NBC is terrible. NBC is MSNBC 2. They changed it.
+- [01:01:09.850] They moved it over legally,
+- [01:01:11.590] so they couldn't be tainted by the words MSNBC,
+- [01:01:15.100] but they are absolutely terrible.
+- [01:01:17.510] There are a lot of them. What about independents?
+- [01:01:20.530] Unknown Speaker: Independents?
+- [01:01:21.810] The President: Independent networks?
+- [01:01:23.030] Unknown Speaker: They're a little bit better,
+- [01:01:24.260] but I would say that we're an example
+- [01:01:26.340] of how you don't need to be part of a super large company
+- [01:01:29.820] to be able to do just basic journalism.
+- [01:01:31.680] All you got to do is sit and record
+- [01:01:33.580] and you'll let the story play out,
+- [01:01:34.900] and that's why they hate us. That's why Antifa targets us.
+- [01:01:37.890] The President: Well, I watched a level of dishonesty
+- [01:01:39.460] that's incredible, where answers are changed.
+- [01:01:42.530] Just before the election, an answer was changed by Kamala.
+- [01:01:45.860] She gave a horrible death-defying,
+- [01:01:49.500] election-defying answer, and they took the answer out
+- [01:01:53.350] and they replaced it with another answer
+- [01:01:55.090] that she gave five minutes later
+- [01:01:57.250] having to do with a different subject,
+- [01:01:58.690] but at least it wasn't election- defying.
+- [01:02:01.200] No, the level of dishonesty with the media is incredible,
+- [01:02:04.400] whether it's on Antifa or many of the other groups.
+- [01:02:07.790] You're talking about Antifa,
+- [01:02:09.030] and I know that's close to your heart
+- [01:02:10.670] because that's the one that's most affecting you,
+- [01:02:12.600] but there are others that are as bad or almost as bad
+- [01:02:16.200] as Antifa having to do with different people,
+- [01:02:18.850] different sections of the world, but it's terrible.
+- [01:02:21.460] We're not going to let it go on in this country.
+- [01:02:23.520] We're not going to let it go on.
+- [01:02:24.770] And a big problem is not all of them,
+- [01:02:27.260] but some of the networks out there.
+- [01:02:30.560] And you do wonder why, you really do.
+- [01:02:33.080] Okay, please. Go ahead. Yeah.
+- [01:02:37.220] Jonathan Cho: Mr. President, thank you, again.
+- [01:02:38.440] The President: Thank you.
+- [01:02:39.650] Jonathan Cho: Thank my name's Jonathan Cho.
+- [01:02:40.890] I'm an investigative reporter
+- [01:02:42.300] for Frontline's Turning Point USA.
+- [01:02:44.420] I'm also a senior fellow at Discovery Institute in Seattle.
+- [01:02:48.030] And I cover far left extremism well,
+- [01:02:51.280] as the homeless drug crisis in America.
+- [01:02:53.950] And I find it oftentimes those worlds intersect.
+- [01:02:58.450] And hot off the press is what I wanted
+- [01:03:00.390] to bring to your attention today
+- [01:03:02.270] is a report from a Capital Research Center
+- [01:03:05.160] here in DC, in conjunction with Discovery Institute.
+- [01:03:08.580] They just put out this study right now.
+- [01:03:10.740] And what it shows is that Antifa is heavily embedded
+- [01:03:15.410] in the homeless and housing nonprofit sector.
+- [01:03:19.680] In many cases, the homeless industrial complex
+- [01:03:22.840] is running cover for Antifa.
+- [01:03:25.160] Antifa is benefiting from American tax dollars,
+- [01:03:29.270] and they're essentially being used as the muscle.
+- [01:03:31.920] Let me give you an example. There's a group called
+- [01:03:33.790] Stop the Sweeps in many US cities right now.
+- [01:03:36.850] They get in front of encampment sweeps.
+- [01:03:39.870] What they're doing quietly is they're bringing in
+- [01:03:42.460] Antifa militants to manufacture
+- [01:03:45.180] a crisis to make the police look bad.
+- [01:03:48.490] Another group right now that is behind
+- [01:03:50.670] Antifa and working with Antifa very closely,
+- [01:03:53.750] based on the research that we have right now
+- [01:03:55.570] that we're going to give to you and your team,
+- [01:03:58.230] are the Democratic Socialists of America, also known as DSA.
+- [01:04:02.770] Again, these far-left progressive groups
+- [01:04:05.550] tend to be aligning themselves with Antifa.
+- [01:04:08.920] So, finally, in closing, what I wanted
+- [01:04:10.610] to thank you again, Mr. President,
+- [01:04:12.110] is that a few months ago, earlier this year,
+- [01:04:14.460] you put out an executive order on homelessness
+- [01:04:17.200] and the drug addiction crisis in America,
+- [01:04:20.190] and that's sent the entire homeless industrial complex
+- [01:04:23.390] on the run.
+- [01:04:24.960] You have absolutely moved the needle and changed the game.
+- [01:04:27.960] But what's also come out, again, is that there is a connection,
+- [01:04:31.870] a deeply-embedded connection with the homeless
+- [01:04:34.880] housing nonprofit game in America
+- [01:04:37.850] connected to Antifa and the far-left activists.
+- [01:04:40.290] And finally, I just wanted to say
+- [01:04:42.600] that all of our resources at Turning Point USA
+- [01:04:45.040] and Discovery Institute are at your disposal.
+- [01:04:48.060] And we will continue again
+- [01:04:49.350] to carry on the legacy of Charlie Kirk.
+- [01:04:51.350] He would've wanted us to pursue and chase this story.
+- [01:04:53.780] The President: Yep.
+- [01:04:55.060] Well, he was a good friend of mine, as you know,
+- [01:04:56.760] and he helped us get elected. Us, it really is us.
+- [01:05:00.170] It's even some of them, but not too many of them.
+- [01:05:01.920] Not enough of them.
+- [01:05:03.150] And did you notice when we mentioned CNN and MSDNC?
+- [01:05:07.340] The cameras went off, two of the cameras immediately went off,
+- [01:05:09.510] but they're not going to cover it anyway.
+- [01:05:10.930] The problem we have is that this is a very important meeting,
+- [01:05:13.990] but you'll see very little press about it.
+- [01:05:15.980] These are major statements being made by major people,
+- [01:05:20.030] including the people right here.
+- [01:05:21.540] And you're not going to see too much about it.
+- [01:05:23.630] They don't like to cover this kind of thing.
+- [01:05:25.260] It's very dishonest what's going on there.
+- [01:05:27.370] I think the press is a big factor.
+- [01:05:30.760] Please, go ahead. Thank you, James.
+- [01:05:32.650] James Klug: Mr. President, thank you so much
+- [01:05:34.030] for having us all here to bring attention to this matter.
+- [01:05:36.910] You did mention MSDNC, CNN, a handful of those other outlets
+- [01:05:40.250] that have been lying about, I mean, various things,
+- [01:05:42.630] but especially what the brave men and women
+- [01:05:45.500] over at ICE have been doing.
+- [01:05:47.040] I was talking to Antifa members in Portland the other day,
+- [01:05:50.480] and a lot of these people genuinely believe,
+- [01:05:52.840] they buy these lies, and they genuinely believe
+- [01:05:55.080] that they're fighting against literal Nazis
+- [01:05:57.770] and not brave men and women
+- [01:05:59.450] that are putting their lives on the line
+- [01:06:01.800] to basically enforce basic immigration law,
+- [01:06:06.580] that everyone seemed to agree with up
+- [01:06:09.000] until maybe a few years ago, a handful of years ago.
+- [01:06:11.550] So, once again, thank you so much for having me.
+- [01:06:13.400] My name's James Klug.
+- [01:06:14.640] While my primary job is traveling around the country,
+- [01:06:17.530] having conversations with Americans
+- [01:06:19.570] about various political topics and issues,
+- [01:06:24.080] I have had a lot of run-ins with Antifa
+- [01:06:26.910] over the last five years.
+- [01:06:28.600] And I do think that Antifa is a primary reason
+- [01:06:30.790] why many conservatives are afraid to go out and protest
+- [01:06:34.350] and make their voices heard,
+- [01:06:35.690] and maybe bring friends and family to a demonstration
+- [01:06:38.580] and exercise their First Amendment right,
+- [01:06:40.480] because they're literally deathly afraid,
+- [01:06:42.360] and I talk to these people all the time.
+- [01:06:43.830] They're afraid of militants showing up in Black Bloc
+- [01:06:47.450] and hurting them and their families.
+- [01:06:50.160] And I've personally witnessed
+- [01:06:53.240] Antifa assaulting hundreds of police officers.
+- [01:06:56.610] I've witnessed them firebombing police departments
+- [01:06:58.730] and federal property.
+- [01:06:59.950] I've witnessed them making death threats
+- [01:07:02.280] against federal agents, police officers, journalists.
+- [01:07:05.530] I think I've witnessed every single person here,
+- [01:07:07.710] maybe, maybe not personally,
+- [01:07:09.120] but I've seen them get hunted down and attacked.
+- [01:07:13.130] And so, this is a group that is responsible
+- [01:07:17.620] for a good percentage,
+- [01:07:19.260] if not a majority of the violent riots in 2021 and 2020,
+- [01:07:23.530] when Democrat mayors had a a hands-off approach
+- [01:07:28.010] with these left-wing militants.
+- [01:07:30.450] Just as a quick reminder for everybody,
+- [01:07:31.960] we're talking about dozens of murders
+- [01:07:34.500] that happened in those riots.
+- [01:07:35.870] We're talking about billions of dollars of damage
+- [01:07:38.510] to property and communities all over the country.
+- [01:07:41.460] We're talking about thousands of officer injuries.
+- [01:07:43.860] So, this isn't just like some little thing that they're,
+- [01:07:46.480] "Oh, they punch a journalist here and there."
+- [01:07:48.530] No, they're responsible for a lot of damage
+- [01:07:51.350] and a lot of people that have, unfortunately, died
+- [01:07:54.950] and basically suppressing people's voices.
+- [01:08:00.880] And so, what I did want to talk about
+- [01:08:02.700] is almost every single person in the room here,
+- [01:08:07.280] to get this footage you have to go undercover
+- [01:08:08.760] because you are at risk of being beaten or worse.
+- [01:08:11.320] You have to go undercover.
+- [01:08:12.580] You have to film low-key to capture them committing crimes.
+- [01:08:16.200] This is stuff that the mainstream media was not doing
+- [01:08:18.620] and has not been doing. They'll show when Antifa is,
+- [01:08:21.380] maybe, it's a little bit more peaceful
+- [01:08:23.400] and they'll show when it's more mellow,
+- [01:08:25.510] but they'll remove the cameras when things get violent
+- [01:08:28.460] and it's actually dangerous to be here.
+- [01:08:30.320] And I have personally witnessed legacy media vans
+- [01:08:34.040] showing up at a riot 300 yards away,
+- [01:08:36.590] getting out of the vehicle filming for 30 seconds
+- [01:08:39.640] saying something like, "Fiery, but mostly peaceful."
+- [01:08:42.650] Packing up. And to add insult to injury,
+- [01:08:45.630] you have Democrat politicians that are saying,
+- [01:08:47.120] "It's just an idea. That's all this is."
+- [01:08:50.060] So, it's just an idea after all of this chaos,
+- [01:08:52.450] it's just an idea.
+- [01:08:53.680] Well, that idea has threatened to kill me
+- [01:08:55.970] and many of my friends that are here today.
+- [01:08:57.680] So, Mr. President, thank you so much
+- [01:08:59.750] for bringing this to the forefront,
+- [01:09:01.390] and it's definitely making a big change.
+- [01:09:03.640] Really appreciate you.
+- [01:09:05.240] The President: One question. So, there are numerous groups.
+- [01:09:07.970] I mean, Antifa's terrible, but you have other groups
+- [01:09:10.170] that probably are almost as bad or just as bad.
+- [01:09:14.500] Not one other group was mentioned,
+- [01:09:16.000] I'm sort of surprised at that.
+- [01:09:18.450] You just come into contact with Antifa?
+- [01:09:20.700] It seems to be that you mostly come into contact with Antifa?
+- [01:09:24.680] Please.
+- [01:09:26.070] Brandi Cruse: There's a lot of overlap.
+- [01:09:27.330] And I would say that, for instance,
+- [01:09:29.090] Jonathan brought up the Democratic Socialists
+- [01:09:31.030] of America.
+- [01:09:32.710] They're basically the same thing.
+- [01:09:33.930] I mean, there's a lot of Democratic Socialists of America
+- [01:09:36.880] who are out there in Black Bloc hiding their faces.
+- [01:09:40.310] And so, I think we use --
+- [01:09:42.160] And I do understand, for the record,
+- [01:09:44.420] I do understand the challenge, as Andy pointed out,
+- [01:09:47.160] with Antifa as a graspable entity, I do.
+- [01:09:53.310] But at the end of the day, when you look at behavior,
+- [01:09:55.900] you prosecute behavior, right?
+- [01:09:57.330] We're not prosecuting ideas or ideology,
+- [01:09:59.310] you're prosecuting behavior.
+- [01:10:00.600] So, whether you can prove that this amorphous thing is Antifa
+- [01:10:05.060] or someone has a patch that says,
+- [01:10:06.600] "Antifa," it doesn't matter. Did they assault someone?
+- [01:10:09.710] Did they assault a federal agent?
+- [01:10:11.810] Were they engaged in rioting? What is it?
+- [01:10:13.610] And so, they're always using that,
+- [01:10:16.740] "Oh, well, they don't call themselves Antifa,"
+- [01:10:18.980] even though some of them literally do.
+- [01:10:20.490] It's called Rose City Antifa.
+- [01:10:22.060] How long has it been around in Portland, Andy?
+- [01:10:24.990] Unknown Speaker: Since 2007.
+- [01:10:26.740] Brandi Cruse: They call themselves Antifa.
+- [01:10:28.190] In Seattle, I was outside the federal building,
+- [01:10:29.920] and they were yelling, "There's no police here.
+- [01:10:31.920] This is Antifa land."
+- [01:10:33.140] And then, the same time Democrats,
+- [01:10:35.330] like our governor, "Oh, Antifa is an idea."
+- [01:10:38.980] But yeah, I think Antifa can overlap
+- [01:10:41.420] with a lot of other entities and organizations.
+- [01:10:44.900] The President: Okay. Very good. Thank you.
+- [01:10:47.130] Nick Sortor: President Trump,
+- [01:10:48.470] I just wanted to add this real quick
+- [01:10:50.040] because you were asking which mainstream media outlet
+- [01:10:52.370] is the worst?
+- [01:10:53.590] What I think, it's any of them that decided to call
+- [01:10:56.040] Kilmar Abrego Garcia, "Maryland dad."
+- [01:10:59.110] Because when I'm out there on the street
+- [01:11:00.660] talking to these people, they call him, "Maryland dad."
+- [01:11:04.680] He's actually a human trafficking MS-13
+- [01:11:08.360] gang member that's illegally in the country.
+- [01:11:10.520] But the amount of people on the street
+- [01:11:12.370] that I spoke with that thought that he was a US citizen
+- [01:11:16.000] that was being deported to Uganda is dangerous.
+- [01:11:19.620] These people genuinely believe,
+- [01:11:21.760] based on what comes out of the garbage standing over here,
+- [01:11:25.960] that you guys are deporting US citizens.
+- [01:11:28.600] So, that's what's causing problems.
+- [01:11:30.030] The President: So, when you have a governor
+- [01:11:31.270] like Pritzker in Chicago, where you have Illinois,
+- [01:11:35.570] which is in a lot of trouble, Chicago's there.
+- [01:11:38.610] Potentially great city again.
+- [01:11:40.200] It's not great now, but it could be great again.
+- [01:11:42.790] That's why we have to get there soon,
+- [01:11:44.310] because eventually, you can't do that.
+- [01:11:47.580] What makes a man like that say that,
+- [01:11:49.530] "Things are wonderful"? Why doesn't he say,
+- [01:11:52.240] "We love that President Trump is going to come
+- [01:11:54.370] and help us clean up Chicago and make it safe again,"
+- [01:11:57.450] as opposed to fighting us and pretending
+- [01:11:59.910] that there weren't 50 murders and 200 shootings
+- [01:12:03.120] and all of that. Why is that? Go ahead, Nick.
+- [01:12:06.810] Nick Sortor: To spite you.
+- [01:12:08.180] To spite you. To spite the administration.
+- [01:12:10.440] That's simply what it's about at this point.
+- [01:12:12.280] Because if you go and talk to some of these citizens --
+- [01:12:15.710] I'll use Portland as an example again,
+- [01:12:17.220] because I've been there for so long now.
+- [01:12:18.890] You talk to the neighbors that live in the apartments
+- [01:12:21.490] next door to the ICE facility, there are veterans with PTSD
+- [01:12:26.780] that live there and they're hear all night long screaming,
+- [01:12:30.270] fireworks being lit off by these rioters,
+- [01:12:34.360] children crying because they can't sleep at night
+- [01:12:38.130] and they're scared of all the noise outside.
+- [01:12:40.700] And they can't leave.
+- [01:12:42.760] They got a lease, you can't just leave.
+- [01:12:44.670] These people aren't wealthy individuals.
+- [01:12:47.330] And that's one of the major problems here.
+- [01:12:50.380] And these people are afraid to come out and speak out,
+- [01:12:53.360] and they're getting no help from their government at all.
+- [01:12:55.590] They've been begging for the noise ordinance
+- [01:12:58.440] to be enforced outside of their apartment
+- [01:13:00.820] complex for months now,
+- [01:13:03.040] and the city of Portland has ignored them every single time.
+- [01:13:06.850] The victims are, as I said, they're afraid,
+- [01:13:09.730] but the governments aren't doing anything
+- [01:13:11.420] because they want to spite the administration.
+- [01:13:13.550] It's all political.
+- [01:13:14.760] The President: And the politicians make you feel
+- [01:13:16.410] like you're foolish,
+- [01:13:18.400] like there's something wrong with,
+- [01:13:19.950] "How could President Trump be saying that about Chicago?"
+- [01:13:24.650] And yet the night before you see that 11 people were shot,
+- [01:13:29.440] five people died, and you have him talking about like
+- [01:13:32.500] it's a wonderful situation. They make you feel guilty.
+- [01:13:36.580] And a lot of people don't get over that.
+- [01:13:39.120] They just don't get over it.
+- [01:13:40.620] I think they convinced the people.
+- [01:13:42.840] Do wealthy people leave too or not?
+- [01:13:44.530] Places like Portland, are the wealthy people leaving?
+- [01:13:47.050] People that can leave, are they leaving?
+- [01:13:49.440] Brandi Cruse: I think that they are moving to the areas
+- [01:13:51.360] that have been gentrified.
+- [01:13:53.040] The Oregon governor when she was saying,
+- [01:13:54.960] "We don't need Trump here," she's walking around.
+- [01:13:57.470] It's a very tight shot, if you notice that, and she said,
+- [01:13:59.580] "Portland's just fine. Look at me."
+- [01:14:01.150] And they'll focus on the couple areas of Portland
+- [01:14:02.850] that are very nice.
+- [01:14:04.070] The President: Well, she was saying that,
+- [01:14:05.290] and there were explosions in the background.
+- [01:14:06.710] Brandi Cruse: Yeah. There was a reason they cropped it in.
+- [01:14:08.050] The President: We don't need --
+- [01:14:09.340] and there's explosions in the background.
+- [01:14:11.430] Anybody have anything else to say over here?
+- [01:14:12.880] Unknown Speaker: Yeah.
+- [01:14:14.170] Well, just the co-presenters that you felt --
+- [01:14:16.190] Sorry. Mind if I (inaudible).
+- [01:14:18.580] The President: And then we get, should we be taking questions
+- [01:14:20.660] or is it just a waste of time?
+- [01:14:22.410] Because they're going to ask questions, but --
+- [01:14:25.350] Well, there's Brian. He's good. But you know what?
+- [01:14:28.500] In a way, it's a waste of time
+- [01:14:29.750] because if you give a great answer, they don't put it on.
+- [01:14:33.150] If you give a horrendous answer,
+- [01:14:34.670] or even if you give a great answer,
+- [01:14:37.000] they make it sound like it's not a great answer.
+- [01:14:39.380] They're very dishonest. Go ahead, Nick.
+- [01:14:40.860] Unknown Speaker: Yeah, and I think part of that dishonesty
+- [01:14:42.270] comes from what they see.
+- [01:14:43.830] For instance, I've never been asked to go on any other show
+- [01:14:46.520] besides Fox News.
+- [01:14:47.750] My clips go viral everywhere, but they've never even asked.
+- [01:14:51.040] CNN's never asked. MSNBC's never asked.
+- [01:14:53.010] And a lot of times when I go to hotels,
+- [01:14:54.590] I'll stay and I'll watch MSNBC.
+- [01:14:55.840] The President: Fortunately, their ratings are terrible.
+- [01:14:57.180] Unknown Speaker: They are terrible.
+- [01:14:58.400] The President: MSNBC is dying and CNN is dying like a dog.
+- [01:15:03.050] Poor CNN. It's so pathetic.
+- [01:15:04.420] Unknown Speaker: It is very pathetic.
+- [01:15:05.650] The President: You ever see their anchors in the evening?
+- [01:15:07.570] Nobody ever heard of them. Where do these people come?
+- [01:15:10.380] I could take anybody off the street in Washington DC
+- [01:15:12.960] that do a better job. It's amazing.
+- [01:15:14.460] Unknown Speaker: Yeah, it's not hard to show
+- [01:15:15.740] what's going on these days.
+- [01:15:16.960] You literally have an iPhone and you can post it on X.
+- [01:15:18.760] The President: They don't believe in the star system.
+- [01:15:20.760] It's just one of those things, right?
+- [01:15:22.230] Okay, Nick. You finished, Nick?
+- [01:15:23.490] Unknown Speaker: Yeah. Thank you very much.
+- [01:15:24.750] The President: Are you finished, Nick?
+- [01:15:26.040] Good job. Thank you very much.
+- [01:15:27.930] Well, you've been through hell, I tell you that.
+- [01:15:29.660] But you're really incredible. Patriots are incredible people.
+- [01:15:33.200] Go ahead, please, Brian. Brian, go ahead.
+- [01:15:35.800] The Press: I'm so thankful for each
+- [01:15:37.090] and every one of you here right now,
+- [01:15:38.780] and I'm very grateful that my network,
+- [01:15:40.500] Real America's Voice,
+- [01:15:41.750] has partnered up with many of you,
+- [01:15:42.980] Jack (inaudible).
+- [01:15:44.230] You have a show in network. Many of you, Savannah,
+- [01:15:46.600] have appeared on a network as well.
+- [01:15:47.910] So thank you for being here.
+- [01:15:49.660] My question is this, in terms of following the money,
+- [01:15:52.380] I would just notify that the city of Austin
+- [01:15:55.400] is clear to vote tomorrow to basically waive $120,000 fee
+- [01:16:02.220] so that a no kings,
+- [01:16:03.810] basically an anti-Trump rally can occur in their city.
+- [01:16:07.720] They're bypassing the fees, rolling it to the taxpayers.
+- [01:16:11.460] So my question is to you, what can the people of Austin,
+- [01:16:14.080] Texas do right now to make sure that their tax dollars
+- [01:16:17.490] don't fund a no kings anti-Trump rally coming up?
+- [01:16:22.360] The President: Well, you just tell me.
+- [01:16:23.860] I would love to do something about that.
+- [01:16:26.700] Bring a lawsuit, do something.
+- [01:16:29.820] The best thing you can do is have honest elections
+- [01:16:31.940] because the elections are totally rigged
+- [01:16:33.480] in so many of these places.
+- [01:16:35.200] You take a look, the people, they're all loving you.
+- [01:16:37.780] They can't breathe, they love so much.
+- [01:16:40.380] Every one of them, you don't see one negative.
+- [01:16:42.220] Then all of a sudden you lose the election by 20 points.
+- [01:16:45.420] The elections are so rigged,
+- [01:16:46.920] and we proved that in 2020 more than any other time.
+- [01:16:50.680] But even the last election,
+- [01:16:52.240] there were areas that I won by much more.
+- [01:16:53.930] We won in a landslide,
+- [01:16:55.170] but I actually wanted more of a landslide than we thought.
+- [01:16:58.550] I said, "You got to get out. Make it too big to rig."
+- [01:17:01.110] And fortunately, the people made it too big to rig.
+- [01:17:03.490] They tried. They tried.
+- [01:17:05.790] But the biggest thing you can do is have honest elections.
+- [01:17:08.760] If you don't have -- And you need great media,
+- [01:17:11.480] you need great --you need borders.
+- [01:17:13.170] You need borders.
+- [01:17:14.410] Wait, wait, wait, wait, wait, wait.
+- [01:17:16.320] You need borders. You need honest media.
+- [01:17:19.050] You need honest elections, and you have a great country.
+- [01:17:22.340] And you need all three of them. Yeah, go ahead.
+- [01:17:24.820] The Press: I was told that (inaudible)
+- [01:17:26.110] and Times to along these radical groups
+- [01:17:28.290] that you talked about inside here.
+- [01:17:29.840] So thank you for removing them.
+- [01:17:31.140] The President: I would like you to make a big deal, though,
+- [01:17:32.770] if they're waiving a fee.
+- [01:17:34.130] But I guarantee they wouldn't waive it if it was --
+- [01:17:36.150] It's not Trump.
+- [01:17:37.380] If it were a conservative rally, they wouldn't be waiving it.
+- [01:17:39.950] So maybe you can look into that, Pam.
+- [01:17:41.660] Todd, that sounds like that sounds like one for Todd, Pam.
+- [01:17:46.560] Go ahead, Todd. Good luck. Thank you.
+- [01:17:50.930] The Press: Mr. President proof that (inaudible)
+- [01:17:52.300] (inaudible) cease fire --there's proof
+- [01:17:53.670] (inaudible) actually insisted on --
+- [01:17:54.870] The President: Who are you with? Who are you -- What network?
+- [01:17:57.470] The Press: I'm with Al Arabiya.
+- [01:17:58.720] It's an Arabic network based in Riyadh in Saudi Arabia,
+- [01:18:02.400] but I am the foreign puller today.
+- [01:18:04.660] Mr. President, you said that you might go
+- [01:18:06.290] to the Middle East on Sunday. Do you mean Egypt and Israel?
+- [01:18:10.740] And would you consider going to Gaza
+- [01:18:12.760] to see what things on the ground?
+- [01:18:14.260] The President: I would. Yeah, I would. I might do that.
+- [01:18:15.830] I may do that. We haven't decided exactly.
+- [01:18:18.340] I'll be going to Egypt most likely.
+- [01:18:20.300] That's where everybody is gathered right now,
+- [01:18:22.720] and we appreciate that very much.
+- [01:18:24.840] But I'll be making the rounds, as the expression goes.
+- [01:18:27.980] I probably will.
+- [01:18:33.860] Go ahead.
+- [01:18:35.100] The Press: Just to clarify, you said you might go to Gaza.
+- [01:18:36.940] You're saying on --
+- [01:18:38.170] The President: Who you with?
+- [01:18:39.570] The Press: I'm representing the TV pool,
+- [01:18:40.850] but I'm with NBC, sir.
+- [01:18:43.330] The President: That's too bad. Go ahead.
+- [01:18:44.560] The Press: Well, just to clarify,
+- [01:18:45.820] you said you might go to Gaza?
+- [01:18:47.140] And then the second question I had, earlier today
+- [01:18:49.120] you said the mayor of Chicago
+- [01:18:50.780] and the governor of Illinois should be jailed.
+- [01:18:53.780] Have you asked the Justice Department
+- [01:18:55.450] to look at possible charges and --
+- [01:18:57.230] The President: No. I've seen the law.
+- [01:18:58.660] And when you have a group of people
+- [01:19:02.170] where the police call off the safety for ICE officials,
+- [01:19:08.040] I've understood that, and I've read it today
+- [01:19:09.950] in numerous journals that that's illegal.
+- [01:19:12.710] What they did is the --
+- [01:19:14.450] I guess it was ICE, Kristi, right?
+- [01:19:15.950] They were under threat
+- [01:19:17.390] and the police were helping beautifully, and it was fine.
+- [01:19:20.800] And then all of a sudden a woman was on the line saying,
+- [01:19:26.700] "Everybody, move back, move back. Get out. Get out."
+- [01:19:30.300] And they were given an order
+- [01:19:31.630] by the second person in the police department.
+- [01:19:34.400] And the governor knew about it. The mayor knew about it.
+- [01:19:36.440] I understand that's a criminal offense.
+- [01:19:38.630] Do you want to comment on that, Kristi?
+- [01:19:40.990] Secretary Noem: Yes, sir.
+- [01:19:42.240] We're seeing that kind of pattern happen
+- [01:19:43.920] with local law enforcement and state law enforcement,
+- [01:19:46.190] not just in Illinois, but also out in Oregon too.
+- [01:19:49.300] In fact, in Portland, I was there yesterday,
+- [01:19:51.530] but some of the ICE officers were telling me
+- [01:19:53.290] that as they drove by the rioters that were saying,
+- [01:19:56.590] "Kill ICE agents. Molotov cocktails melt ICE,"
+- [01:20:00.340] that the Portland police were cheering them on,
+- [01:20:03.030] and had their fists in the air cheering on the rioters
+- [01:20:05.240] that were threatening their lives.
+- [01:20:06.550] So in Chicago, we had a 10-car caravan trail
+- [01:20:10.630] our ICE officials and pin them down,
+- [01:20:13.020] and those ICE officials to get out of their vehicles,
+- [01:20:15.220] a woman tried to ram them and run them over,
+- [01:20:18.060] and shots were fired to get them to safety.
+- [01:20:20.880] So it's happening on a regular basis
+- [01:20:22.930] and any elected official that allows this to happen
+- [01:20:25.490] and gives cover to those kinds of individuals
+- [01:20:28.440] who are perpetuating murder should absolutely be prosecuted,
+- [01:20:30.770] in my opinion.
+- [01:20:32.010] The President: Daniel.
+- [01:20:33.290] The Press: Thank, Mr. President.
+- [01:20:37.300] The President: And by the way, we have Marco Rubio.
+- [01:20:38.890] Marco, come on up here, please.
+- [01:20:41.580] He's going to bring a little stability to this group.
+- [01:20:44.990] Come on up. Does everybody know Marco Rubio?
+- [01:20:47.250] Is there anybody that does it? Some of the reporters don't,
+- [01:20:50.470] that's why they shouldn't be reporters.
+- [01:20:51.880] Nick Sortor: Which job is he here for today, sir?
+- [01:20:53.110] The President: Come on up here, Marco.
+- [01:20:54.550] Anything we should know about the Middle East?
+- [01:20:57.330] The Press: That's what we're hoping to talk to you
+- [01:20:58.840] about here, Mr. President, once they leave.
+- [01:21:02.530] The President: He's doing a good job.
+- [01:21:03.980] He was born for this job. I can tell you. Daniel, please.
+- [01:21:06.760] The Press: Mr. President, thank you very much.
+- [01:21:08.200] I have two questions for you, if that's okay.
+- [01:21:09.890] Shane has talked a little bit about the money aspect of this.
+- [01:21:13.450] Do you believe if you go after where the money is coming from
+- [01:21:16.460] with Antifa, in regards to Antifa,
+- [01:21:17.970] do you believe that would be similar
+- [01:21:19.400] to cutting the head off the snake, so to speak?
+- [01:21:20.980] And I have a question after this.
+- [01:21:22.190] The President: It would help.
+- [01:21:23.450] I don't know that it would be totally complete,
+- [01:21:25.020] but it would certainly --
+- [01:21:26.530] You'd knock out 75 percent, 80 percent, 85 percent.
+- [01:21:30.600] These people, a lot of don't believe it.
+- [01:21:33.030] When they -- I watch them and I see.
+- [01:21:34.840] I can almost tell a pro by they're like professionals.
+- [01:21:38.660] That's all they do. And they get paid by somebody.
+- [01:21:41.470] I think it would knock out a lot of it, yeah.
+- [01:21:43.110] Not all of it, maybe, but a lot of it.
+- [01:21:45.030] The Press: And then a follow-up to that is a lot of the people
+- [01:21:47.240] who we've listened to over the last hour,
+- [01:21:48.900] they've emphasized that Antifa,
+- [01:21:51.330] it's not necessarily this big organized thing.
+- [01:21:53.810] It's a bit ambiguous. It's de-organized,
+- [01:21:55.750] I think that's one of the words that Andy used.
+- [01:21:57.760] What is the challenges of going after a group
+- [01:22:00.080] that makes it intentionally difficult to go after and find?
+- [01:22:03.880] That could be for you, the Attorney General,
+- [01:22:05.400] anyone up there.
+- [01:22:06.660] The President: Well, they're smart people and they deceive.
+- [01:22:10.210] A lot of them are crooked people.
+- [01:22:11.680] A lot of them have been staying out of trouble
+- [01:22:13.120] their whole lives,
+- [01:22:14.320] and they've been bad from the day they were born, frankly.
+- [01:22:16.390] But these are sick people. Pam, go ahead, please.
+- [01:22:19.260] The Press: Well, they're smart, but they're not smart enough.
+- [01:22:23.620] Oh, my microphone's broken.
+- [01:22:25.690] They're smart, but they're not smart enough.
+- [01:22:27.810] They have been covered by these liberal cities
+- [01:22:32.300] for so many years,
+- [01:22:33.870] and that's why we're all working with Treasury,
+- [01:22:36.730] with all these different departments
+- [01:22:39.050] to find the criminal conspiracy.
+- [01:22:41.480] Okay. I'm just giving --
+- [01:22:47.020] I was just given a note by the Secretary of State
+- [01:22:50.120] saying that we're very close to a deal in the Middle East
+- [01:22:53.040] and they're going to need me pretty quickly.
+- [01:22:55.750] So I will take a couple of more questions. Please.
+- [01:23:03.190] The Press: Thank you, sir.
+- [01:23:04.460] I also have two questions for you, if I may.
+- [01:23:08.390] Have you given any more thought
+- [01:23:09.840] to possibly suspending habeas corpus
+- [01:23:12.160] to not only deal with these insurrectionists
+- [01:23:14.580] across the nation,
+- [01:23:15.970] but also to continue rapidly deporting illegal aliens?
+- [01:23:19.780] The President: Yeah, suspending who?
+- [01:23:22.620] The Press: Habeas corpus.
+- [01:23:23.820] The President: Oh. I don't know.
+- [01:23:25.060] I'd rather leave that to Kristi. What do you think?
+- [01:23:28.040] Secretary Noem: No.
+- [01:23:29.330] Sir, I haven't been a part of any discussions on that.
+- [01:23:34.420] The President: All right. Go ahead.
+- [01:23:36.640] The Press: Are you personally participating
+- [01:23:38.740] in the ceasefire negotiations --
+- [01:23:40.110] The President: This is CNN speaking, by the way.
+- [01:23:41.560] The Press: Are you personally participating --
+- [01:23:42.790] The President: Yeah, this is one of the worst reporters
+- [01:23:44.750] that you'll ever --
+- [01:23:46.030] I don't even want to take her question.
+- [01:23:47.260] It's a waste of time. Go ahead.
+- [01:23:48.760] The Press: On shutdown, Mr. President,
+- [01:23:51.070] how will you decide which workers get back pay
+- [01:23:52.950] and which workers do not?
+- [01:23:54.340] The President: Well, we're going to see.
+- [01:23:55.580] Most of them are going to get back pay,
+- [01:23:57.060] and we're going to try and make sure of that.
+- [01:23:58.890] But some of them are being hurt very badly by the Democrats
+- [01:24:02.310] and they therefore won't qualify.
+- [01:24:06.160] Go ahead, please. It's -- Go ahead. In the yellow, please.
+- [01:24:14.530] The Press: Thank you, Mr. President.
+- [01:24:16.720] So the Nobel Peace Prize will be announced on Friday.
+- [01:24:20.060] You've been nominated by many world --
+- [01:24:22.690] The President: By many, many countries. That's right.
+- [01:24:24.200] The Press: By many countries as well as the hostage families.
+- [01:24:27.800] Do you think you will win?
+- [01:24:29.300] The President: I have no idea. I mean, look, I did settle.
+- [01:24:32.120] Marco would tell you we settled seven wars.
+- [01:24:35.250] We're close to settling an eighth,
+- [01:24:37.510] and I think we'll end up settling the Russia situation,
+- [01:24:40.400] which is horrible. 7,000 people died last week,
+- [01:24:42.830] by the way, in Russia, between Russia and Ukraine.
+- [01:24:46.520] I think we'll settle that.
+- [01:24:47.750] So I don't think anybody in history has settled that many.
+- [01:24:51.320] But perhaps they'll find a reason
+- [01:24:52.970] not to give it to me, you know?
+- [01:24:54.720] Perhaps they will. Thank you.
+- [01:25:01.160] The Press: Going to the shutdown quickly,
+- [01:25:02.540] what is your position
+- [01:25:03.770] on the extension of healthcare subsidies,
+- [01:25:06.550] which is what Democrats are asking for?
+- [01:25:08.410] The President: All I want to do is very simple.
+- [01:25:10.180] I want to get the country open
+- [01:25:12.360] and then we're going to discuss that.
+- [01:25:14.170] And Obamacare is a horrible mess,
+- [01:25:17.550] and it has been from the beginning.
+- [01:25:19.590] We want to make it better, stronger,
+- [01:25:21.090] even if it costs more money, costs more money,
+- [01:25:23.560] we want to make it better.
+- [01:25:24.810] The Democrats want to make it worse.
+- [01:25:26.440] The Democrats want to prove healthcare for illegals
+- [01:25:29.380] coming into our country.
+- [01:25:30.610] Many of them coming in from prisons and mental institutions
+- [01:25:34.450] and drug dealers, they want to give them healthcare.
+- [01:25:37.680] We don't want that for our people
+- [01:25:39.030] because that's going to destroy the healthcare
+- [01:25:40.710] that we already have.
+- [01:25:41.940] We'd like to make Obamacare better for people.
+- [01:25:45.030] Less expensive and better healthcare.
+- [01:25:46.970] Yes, ma'am?
+- [01:25:48.210] The Press: Mr. President,
+- [01:25:49.440] I'm wondering if you've been briefed on the organization
+- [01:25:52.900] and funding of Antifa.
+- [01:25:54.190] And if so, what have you learned?
+- [01:25:55.510] The President: I have been,
+- [01:25:56.720] and they have pretty good knowledge,
+- [01:25:58.320] but they're going to have a very good knowledge.
+- [01:26:00.100] And I really ask these very brave patriots
+- [01:26:02.780] that we're surrounded with today to let us know
+- [01:26:05.290] because I think you probably have some pretty good ideas.
+- [01:26:07.600] And even if you're not sure, let us know
+- [01:26:09.540] and we'll figure it out. Okay? If you could do that.
+- [01:26:12.320] The Press: (inaudible)
+- [01:26:16.490] Middle East, can you specify --
+- [01:26:19.180] The President: You're from Italy?
+- [01:26:20.520] The Press: No, I'm from France.
+- [01:26:22.340] Can you specify how close we are to the deal?
+- [01:26:24.430] Would that be announced today, tomorrow?
+- [01:26:26.170] And do you want to see the hostages released
+- [01:26:28.420] before you travel to the region?
+- [01:26:30.400] The President: No, I think I'll probably go maybe
+- [01:26:32.490] before the hostages are released or shortly thereafter.
+- [01:26:35.370] Pretty much shortly thereafter. Yeah, please.
+- [01:26:37.360] The Press: (inaudible)
+- [01:26:38.560] participating in the negotiations?
+- [01:26:40.340] The President: Go ahead. Who you with? Who you with?
+- [01:26:42.400] The Press: The Center Square.
+- [01:26:43.610] I had the honor of asking you originally
+- [01:26:46.270] if you would designate Antifa, a terror organization.
+- [01:26:49.580] And I stand here before you today
+- [01:26:51.330] and I'm echoing what Andy said over here.
+- [01:26:53.970] Are you going to work with your administration,
+- [01:26:55.760] as the Secretary of State's here,
+- [01:26:57.490] are you going to work with your administration
+- [01:26:59.220] to designate a foreign terror organization?
+- [01:27:01.820] The President: You mean it a terror? Antifa?
+- [01:27:06.630] Well, has that been done? Pretty close, right?
+- [01:27:09.320] Would you like to see it done? Do you think it would help?
+- [01:27:11.920] The Press: They have foreign links all across Western Europe.
+- [01:27:13.700] The President: I think it's the kind of thing
+- [01:27:14.940] I'd like to do. If you'd like to?
+- [01:27:16.230] Does everybody agree? If you agree, I agree.
+- [01:27:18.830] Let's get it done, okay? Let's get it done, Marco.
+- [01:27:21.710] We'll take care of it. That's international, you mean?
+- [01:27:24.850] International. Sounds good to me.
+- [01:27:28.140] Steve, are you okay with it?
+- [01:27:31.260] Steve: Yes, it's true, there are extensive foreign ties,
+- [01:27:33.760] and I think that would be a very valid step to take.
+- [01:27:35.740] The President: Good. I think so too.
+- [01:27:37.240] Good. I think it's a good point. Thank you.
+- [01:27:43.230] The Press: On the shutdown?
+- [01:27:44.440] We are now about one week away from military service members
+- [01:27:47.730] missing their paychecks. Would you --
+- [01:27:49.240] The President: We'll always take care of our military.
+- [01:27:50.720] The Press: Would you encourage Congress
+- [01:27:52.190] to pass a standalone bill to pay our service members?
+- [01:27:55.930] The President: Yeah, that probably will happen.
+- [01:27:57.250] We don't have to worry about it yet.
+- [01:27:58.560] That's a long time. You know what one week is for me?
+- [01:28:01.640] An eternity.
+- [01:28:03.550] One week for me is a long time. We'll take care of it.
+- [01:28:07.040] Our military is always going to be taken care of.
+- [01:28:11.010] Blue dress. Blue.
+- [01:28:12.920] The Press: Thank you, Mr. President.
+- [01:28:14.170] Rebeka with Blaze News.
+- [01:28:15.370] I'm curious to know, you're talking about the money
+- [01:28:18.450] funding these Antifa organizations
+- [01:28:20.010] and somebody brought up Roy Singham,
+- [01:28:21.740] I think it was you, who by the way,
+- [01:28:23.670] is married to one of the co-founders of Code Pink,
+- [01:28:26.070] this infamous left-wing organization.
+- [01:28:28.580] I'm curious to know the administration's-
+- [01:28:30.080] The President: Who is that? Who is that?
+- [01:28:31.520] The Press: Roy Singham? He's married to-
+- [01:28:32.810] The President: No. Did you say they're here?
+- [01:28:34.070] The Press: No, he's not.
+- [01:28:35.310] A journalist brought him up, but he is-
+- [01:28:36.720] The President: Oh, I see. Okay. Good bring-up. Go ahead.
+- [01:28:42.610] The Press: He's somebody who's been reported on extensively,
+- [01:28:44.980] and I'd love to know what the administration
+- [01:28:46.970] is going to do to actually bring consequences
+- [01:28:48.980] to some of these names. You mentioned --
+- [01:28:50.500] The President: Well, I don't know the name,
+- [01:28:51.740] but I would like to ask Pam to take a look at it.
+- [01:28:54.100] A lot of the best information we find
+- [01:28:56.030] are through you and other people like you.
+- [01:28:58.480] So I'd like you to look at it, Pam.
+- [01:29:06.120] In the back, please.
+- [01:29:07.400] The Press: Thank you so much.
+- [01:29:08.620] President Trump, it's been actually very compelling proof
+- [01:29:11.520] that Antifa did infiltrate on January 6th,
+- [01:29:14.380] dressed up like Trump supporters and incited violence.
+- [01:29:17.110] Is that something that you would want
+- [01:29:18.660] the new J-6th committee at Congress to look into?
+- [01:29:20.760] The President: Well, I've heard that they dress up
+- [01:29:22.020] like they're fresh out of MAGA
+- [01:29:24.220] but they have nothing to do with MAGA,
+- [01:29:26.370] and they make trouble and they try and blame it.
+- [01:29:28.240] And we know some of that and we will be acting on some of that.
+- [01:29:31.910] We've seen it. We've seen it.
+- [01:29:33.660] So I think you could say a little longer,
+- [01:29:37.260] but the problem is,
+- [01:29:38.730] although you have some very honest journalists in here,
+- [01:29:40.780] you also have some mostly largely dishonest journalists
+- [01:29:43.790] like MSDNC and CNN.
+- [01:29:47.260] I think they're very dishonest. Unbelievably.
+- [01:29:49.660] Like a waste of time even talking to him.
+- [01:29:51.890] But I have to go now to try
+- [01:29:55.060] and solve some problems in the Middle East,
+- [01:29:56.880] although I'm very well represented
+- [01:29:58.380] by our Secretary of State.
+- [01:30:00.680] He could probably do an even better job than me.
+- [01:30:03.270] But who knows? We don't want to take any chances.
+- [01:30:05.290] So we're going to go and do that.
+- [01:30:07.120] If you'd like, Pam,
+- [01:30:08.390] would you like to stay for another five minutes,
+- [01:30:10.080] 10 minutes while we have all these great people?
+- [01:30:12.290] And I'll let Pam and Kristi take over
+- [01:30:14.160] and get some good points out.
+- [01:30:17.340] I just want to thank the people around the table in particular.
+- [01:30:19.820] You've been amazing. You've been brave.
+- [01:30:22.310] You're real patriots. You're real patriots.
+- [01:30:24.960] And at some point we're going to have to look into,
+- [01:30:26.850] at least in certain cases,
+- [01:30:28.160] rewarding you with some very important medals and honors,
+- [01:30:31.630] okay, as we have done and will be doing what Charlie Kirk.
+- [01:30:34.570] Charlie is getting the Presidential Medal of Freedom,
+- [01:30:37.200] which is our highest award
+- [01:30:38.550] outside of the Congressional Medal of Honor.
+- [01:30:40.300] And I think there's sort of even one's civilian
+- [01:30:43.590] and one's military,
+- [01:30:45.500] but unfortunately the civilian sometimes is military
+- [01:30:48.820] also because of what we have to go through
+- [01:30:50.660] on the streets of this country.
+- [01:30:54.430] I can only tell you this, we have a great nation.
+- [01:30:57.390] We have a nation that's right
+- [01:30:58.780] now the hottest in the entire world.
+- [01:31:00.420] We're the hottest nation in the world,
+- [01:31:01.840] despite all of the things we've been saying today.
+- [01:31:04.260] But that's going to make your job easier
+- [01:31:06.480] because nobody's doing better than we are financially.
+- [01:31:08.970] We've never done better.
+- [01:31:11.590] We've had, I think 58 stock market increases
+- [01:31:14.020] since I've been top, meaning record increases.
+- [01:31:18.410] We have never seen anything like it,
+- [01:31:20.140] and we're going to keep it going.
+- [01:31:22.930] That makes it a little bit easier for what we're doing.
+- [01:31:25.820] I guess maybe it also makes some people crazy
+- [01:31:28.310] because they don't want to see us do well.
+- [01:31:30.410] But we're the hottest nation anywhere in the world,
+- [01:31:32.390] and we were a dead nation one year ago.
+- [01:31:34.270] I say it all the time, we were a dead nation,
+- [01:31:36.500] now we're the hottest nation in the world.
+- [01:31:38.130] And that's said to by every leader.
+- [01:31:40.100] One of the reasons that we have every country already signed up
+- [01:31:44.910] or just about to sign, every country in the world
+- [01:31:47.280] on this whole mess
+- [01:31:48.710] we have going over with Hamas in the Middle East
+- [01:31:50.960] and all of the things you see is they respect our nation.
+- [01:31:55.630] A year ago, you wouldn't have been able to get it.
+- [01:31:57.390] You certainly couldn't have gotten it with Biden.
+- [01:31:59.140] He didn't know where the hell he was.
+- [01:32:00.540] But a year ago,
+- [01:32:01.750] you wouldn't have been able to have a situation like this.
+- [01:32:03.990] So I just want to thank the people around this table,
+- [01:32:06.530] and certainly the officials around the table
+- [01:32:08.690] because they've been incredible, they've been brave.
+- [01:32:11.120] And I watched yesterday Pam, and I watched a little bit.
+- [01:32:14.140] I thought it was so good.
+- [01:32:15.360] I rounded up and I watched it late in the evening
+- [01:32:18.570] because I thought you were fantastic yesterday.
+- [01:32:20.630] You really -- look, you had some wonderful senators,
+- [01:32:24.160] some great politicians asking you very fair questions,
+- [01:32:27.350] and you had some real, real slime balls,
+- [01:32:30.380] but I thought you were amazing. So thank you very much.
+- [01:32:32.680] And, Kristi, thanks for the great job.
+- [01:32:34.430] Kash, thanks for the great job. Always my man back down there.
+- [01:32:38.130] He's the silent type, but he's a hell of a lawyer.
+- [01:32:40.460] Thank you all; we're going to get peace in the Middle East.
+- [01:32:43.900] That's what we want to do. Thank you very much everybody.

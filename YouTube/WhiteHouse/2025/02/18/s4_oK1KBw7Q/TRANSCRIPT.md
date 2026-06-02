@@ -1,0 +1,903 @@
+<!-- source: https://www.youtube.com/watch?v=s4_oK1KBw7Q -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: s4_oK1KBw7Q -->
+<!-- date_published: 2025-02-18T21:54:48+00:00 -->
+<!-- date_accessed: 2026-06-02T02:53:43.745115+00:00 -->
+
+# Transcript: President Trump Signs Executive Orders at Mar-a-Lago, Feb. 18, 2025
+
+- [00:10.180] The President: I want to thank some of the great people
+- [00:12.300] from the Palm Beach County Sheriff’s Office.
+- [00:14.680] They’re here to take photographs,
+- [00:16.440] and it’s my honor to do so.
+- [00:17.790] Also, the fire department, the great firefighters.
+- [00:20.190] So, they’re here throughout the room,
+- [00:22.340] and I want to thank you very much for being here.
+- [00:24.030] I’ll be with you in a little while.
+- [00:25.300] We’ll do some great photos. We have plenty of time.
+- [00:28.300] Policemen, policewomen, and firemen, firewomen --
+- [00:32.640] they’re here, and we appreciate it very much.
+- [00:34.340] You’ve done a fantastic job.
+- [00:36.650] Oh, I think it’s very important to state
+- [00:40.290] that incredible things are happening in our country.
+- [00:42.890] I think we’ve made more progress in three weeks
+- [00:45.400] than they’ve made in four years,
+- [00:47.790] especially with respect to the reputation of our country,
+- [00:51.470] and people are respecting us again as a country
+- [00:54.410] and as a powerful country and maybe a smart country.
+- [00:57.860] But maybe not so smart,
+- [00:59.070] because when you look at some of the waste, fraud,
+- [01:02.310] and abuse that’s being inco- -- uncovered by DOGE
+- [01:05.740] and the people at DOGE -- these are young --
+- [01:08.350] often young but super brilliant people,
+- [01:11.570] incredible computer scientists and other things.
+- [01:15.410] And they’re finding levels of fraud
+- [01:18.750] and waste and abuse like,
+- [01:22.000] I think, nobody ever thought possible.
+- [01:25.070] But before we do that, I just want to ask
+- [01:28.090] Will to come over.
+- [01:29.310] We’ve -- I’ve just finished signing some executive orders.
+- [01:32.410] And if we could start with that,
+- [01:34.020] Will, you might want to come up here
+- [01:35.470] and just explain what we did.
+- [01:37.330] Thank you.
+- [01:39.970] Mr. Scharf: Good afternoon, y’all.
+- [01:41.390] A short while ago, President Trump signed three --
+- [01:45.330] three items.
+- [01:46.590] The first is an executive order
+- [01:48.430] relating to the affordability and availability
+- [01:50.810] of in vitro fertilization and other fertility treatments.
+- [01:54.580] These are treatments that have become unaffordable
+- [01:57.490] for many Americans or have been unaffordable for many Americans.
+- [02:00.760] And the executive order is a directive
+- [02:02.430] to the Domestic Policy Council
+- [02:04.350] to examine ways to make IVF and other fertility treatments
+- [02:08.480] more affordable for more Americans.
+- [02:10.840] The second item that we signed was a presidential memorandum
+- [02:14.470] imposing radical transparency requirements
+- [02:17.170] on government departments and agencies
+- [02:19.230] in keeping with President Trump
+- [02:20.640] and the administration’s broader commitment
+- [02:22.910] to governmental transparency.
+- [02:24.800] What this presidential memorandum
+- [02:26.460] would do is require --
+- [02:28.920] as waste, fraud, and abuse is uncovered,
+- [02:31.330] as programs are canceled,
+- [02:33.450] and, ultimately, as taxpayer dollars are saved,
+- [02:36.560] this presidential memorandum would require departments
+- [02:39.120] and agencies to make all of the details
+- [02:41.260] of that freely available to the public.
+- [02:44.580] Lastly, we have another executive order
+- [02:46.600] that President Trump
+- [02:47.880] signed relating to independent agencies.
+- [02:51.190] This executive order would establish important
+- [02:53.460] oversight functions in the Office of Management
+- [02:56.170] and Budget and its subsidiary office,
+- [02:58.130] OIRA, supervising independent agencies
+- [03:01.250] and many of their actions
+- [03:02.860] and also reestablishes the long-standing norm
+- [03:06.250] that only the president or the attorney general
+- [03:08.900] can speak for the United States
+- [03:10.950] when stating an opinion as to what the law is.
+- [03:15.130] The President: All right. Thank you very much, Will.
+- [03:16.640] That was the primary purpose of this conference to explain
+- [03:21.000] that they are all very important in their own way.
+- [03:24.000] Fertilization -- I’ve been saying
+- [03:25.310] that we’re going to do what we have to do,
+- [03:28.300] and I think the women -- and families, husbands --
+- [03:32.730] are very appreciative of it.
+- [03:34.660] But that was it.
+- [03:35.980] I do want to say while I’m up here,
+- [03:37.340] I’ve been contacted
+- [03:38.570] by some of the biggest companies in the world,
+- [03:41.390] and because of what we’re doing economically
+- [03:43.570] and through tariffs and taxes and incentives,
+- [03:46.140] they want to come back into the United States.
+- [03:49.730] And we’ll be announcing various very large companies --
+- [03:52.480] the biggest, actually.
+- [03:54.000] And they’ll be coming back, having to do with chips
+- [03:57.010] and having to do also with cars and lots of other things.
+- [04:00.930] We’re going to be announcing some very, very big --
+- [04:04.850] very big -- momentous, I think --
+- [04:06.990] momentous decisions are being made by companies
+- [04:10.630] all around the world -- the biggest --
+- [04:12.180] and they want to come back into the U.S.
+- [04:14.840] Car plants are being canceled in other locations now
+- [04:17.660] because they want to build them here.
+- [04:19.600] And you read about a couple --
+- [04:21.030] not that I want to mention names or anything --
+- [04:22.580] but you read about a couple of big ones in Mexico
+- [04:24.740] just got canceled because they’re going to be
+- [04:26.840] building them in the United States.
+- [04:28.320] And that’s very simply because of what we’re doing with respect
+- [04:30.780] to taxes, tariffs, and incentives.
+- [04:33.450] And I think it’s a very important thing.
+- [04:36.950] And you’ll be seeing this over the next --
+- [04:39.390] probably over the next two years, to be honest,
+- [04:41.710] but you’re going to see a lot of it
+- [04:42.950] over the next couple of weeks.
+- [04:44.180] A lot of big ones are be -- going to be announcing.
+- [04:46.890] And so, while we’re here,
+- [04:48.530] I guess we can take a couple of quick questions.
+- [04:50.470] Go ahead, please. Please.
+- [04:52.940] The Press: Mr. President, have you decided
+- [04:54.370] specifically what the auto tariff rate should be?
+- [04:57.450] The President: Yeah, I probably will tell you that in --
+- [05:00.130] on April 2nd, but it’ll be in the neighborhood of 25 percent.
+- [05:03.750] The Press: And what about
+- [05:05.040] semiconductors and pharmaceuticals?
+- [05:06.760] The President: It’ll be 25 percent and higher,
+- [05:08.770] and it’ll go very substantially higher over a course of a year.
+- [05:12.400] But we want to give them time to come in,
+- [05:14.190] because, as you know, when they come into the United States
+- [05:16.640] and they have their plant or factory here,
+- [05:19.010] there is no tariff.
+- [05:20.910] So, we want to give them a little bit of a chance.
+- [05:22.760] Yes, thank you.
+- [05:24.000] The Press: Just following up on that.
+- [05:25.400] The EU -- I’m sorry. Andrea Shalal.
+- [05:27.690] The EU representative is going to be here
+- [05:30.360] in Washington next week -- I’m sorry, tomorrow.
+- [05:33.000] He’s going to be meeting with Hassett and Greer and Lutnick.
+- [05:36.700] What can the EU do to sort of avoid the reciprocal tariffs
+- [05:41.640] that you’ve talked about?
+- [05:43.160] And, you know, you’ve talked a lot about the VAT.
+- [05:45.870] Do you expect them to reduce that?
+- [05:48.780] The President: Well, they did already,
+- [05:50.060] as I understand it,
+- [05:51.300] reduce their car tariff all the way down to what we have.
+- [05:54.020] And a lot of that will take place,
+- [05:55.700] and I think some won’t do it and some will do it.
+- [05:57.620] But the EU had a 10 percent tax on cars,
+- [06:00.570] and now they have a 2.5 percent tax,
+- [06:02.330] which is the exact same as us.
+- [06:03.770] So, already we’ve saved a tremendous amount.
+- [06:06.200] That would be great -- if everybody would do that,
+- [06:07.980] then we’d all be on the same playing field.
+- [06:10.490] Because essentially, what we’re doing with the tariffs is,
+- [06:13.300] you know, they charge us, we charge them. Same amount.
+- [06:16.600] And it’s called reciprocal, actually,
+- [06:20.330] and whatever they charge us, we’re charging them.
+- [06:22.880] And so, the EU is -- you know, I appreciate that they did this,
+- [06:26.380] but, you know, the EU has been very unfair to us.
+- [06:28.760] We have a deficit of $350 billion.
+- [06:31.440] They don’t take our cars.
+- [06:33.140] They don’t take our farm products.
+- [06:35.100] They don’t take almost anything. They take very little.
+- [06:38.470] And we’re going to have to straighten that out,
+- [06:40.200] and we will. I have no doubt about it.
+- [06:43.110] Yeah, go ahead, please.
+- [06:44.370] The Press: Thanks. Thank you, Mr. President.
+- [06:46.120] Can you tell us a little bit more about the Russia talks,
+- [06:48.570] your impression of -- The President: Yeah.
+- [06:49.770] The Press: -- how they went today --
+- [06:51.010] The President: Sure.
+- [06:51.250] The Press: -- and if you’re perhaps more confident
+- [06:52.660] or less confident of a deal after what happened today?
+- [06:55.490] The President: Well, much more confident.
+- [06:56.690] They were very good. Russia wants to do something.
+- [07:00.080] They want to stop the savage barbarianism.
+- [07:04.360] I mean, what’s going on over there, it’s --
+- [07:07.270] soldiers are being killed by the thousands on a weekly basis.
+- [07:10.970] It’s ridiculous.
+- [07:12.830] And they’re not American soldiers.
+- [07:14.320] They’re Russian soldiers and they’re Ukrainian soldiers,
+- [07:17.040] largely, although a lot of Koreans have been killed,
+- [07:20.140] as you know --
+- [07:21.680] quite a bit of them have been killed.
+- [07:23.220] They came over to fight,
+- [07:24.420] and a large portion have been wiped out.
+- [07:27.300] But we want to end it.
+- [07:28.750] It was -- it’s a senseless war. It should have never happened.
+- [07:31.870] It would have never happened if I was president.
+- [07:34.150] And it’s a shame to see it.
+- [07:35.450] And I see pictures that you don’t see,
+- [07:37.090] but I see pictures of fields that look hor- -- just horrible.
+- [07:40.220] It looks like Gettysburg.
+- [07:41.500] If you see the old pictures of Gettysburg,
+- [07:43.400] it’s soldiers lying all over the field,
+- [07:45.540] body parts all over the field. They’re all dead.
+- [07:48.450] And this is going on on a -- on a daily basis.
+- [07:51.470] It’s a horrible thing. Both Russia and Ukraine --
+- [07:54.230] they’re losing thousands and thousands of soldiers,
+- [07:57.040] and a lot of people have been killed too.
+- [07:58.990] I think that’s one of the things that’ll --
+- [08:01.410] you’ll see historically
+- [08:02.620] and you’ll see later on as it goes along.
+- [08:04.880] I think people are going to be surprised at how many people,
+- [08:07.680] not only soldiers, have been killed in Ukraine.
+- [08:10.990] A lot more people than you think.
+- [08:12.760] Yeah, please.
+- [08:16.400] The Press: President Trump, as part of a peace deal
+- [08:18.620] with Putin, would you be willing to consider
+- [08:20.960] removing all American troops from Europe?
+- [08:25.470] The President: Well, nobody has asked me to do that,
+- [08:26.950] so I don’t think we’d have to do that.
+- [08:28.450] I wouldn’t want to do that.
+- [08:30.430] But that question has never really come up.
+- [08:32.910] The Press: Sir --
+- [08:34.290] The President: Yeah. Please.
+- [08:37.310] The Press: Sir, do you support stationing European
+- [08:39.880] peacekeeping troops in Ukraine as part of this peace deal?
+- [08:43.420] The President: If they want to do that, that’s great.
+- [08:44.870] I’m -- I’m all for it.
+- [08:46.120] If they want to do that, I think that’s -- that’d be fine.
+- [08:48.860] The Press: Even if the Russians are opposed --
+- [08:50.310] The President: I mean, I know France has mentioned it,
+- [08:51.580] others have mentioned it.
+- [08:52.800] The Press: Even if the Russians are --
+- [08:54.020] The President: UK has mentioned it.
+- [08:55.220] But yeah, if -- well, if we have a peace deal,
+- [08:58.250] I think having troops over there for --
+- [09:00.620] from the standpoint of Europe --
+- [09:02.270] we won’t have to put any over there,
+- [09:03.750] because, you know, we’re very far away,
+- [09:06.460] but having troops over there would be fine.
+- [09:08.780] I would not object to it at all.
+- [09:11.320] We’re talking about this now: peace.
+- [09:12.530] We have either a ceasefire or a peace itself,
+- [09:15.910] and we’re looking to do both.
+- [09:18.120] Would start off with the ceasefire.
+- [09:20.370] And if they want to do that --
+- [09:22.170] I know France was willing to do that,
+- [09:24.430] and I thought that was a beautiful gesture.
+- [09:25.970] Yeah, please.
+- [09:27.210] The Press: Sir, do you have any message for Ukrainians who,
+- [09:29.610] after three years of fighting,
+- [09:30.990] might feel betrayed or disappointed
+- [09:32.600] at not having a seat at these initial talks in Saudi Arabia?
+- [09:36.380] The President: Well, I think I’m really disappointed
+- [09:39.810] in what’s happened.
+- [09:41.040] I’ve been watching this for three years.
+- [09:42.660] It’s a war that would have never happened
+- [09:44.100] if I was president. And I’ve been watching these --
+- [09:47.440] these, you know, people being killed at levels
+- [09:50.280] that you’ve rarely seen -- not --
+- [09:51.800] not even close since the Second World War,
+- [09:55.120] and I’m very disappointed.
+- [09:56.450] I hear that, you know, they’re upset about not having a seat.
+- [09:59.100] Well, they’ve had a seat for three years
+- [10:01.500] and a long time before that.
+- [10:02.790] This could have been settled very easily.
+- [10:04.660] Just a half -- a half-baked negotiator
+- [10:08.790] could have settled this years ago without --
+- [10:12.400] I think, without the loss of much land, very little land;
+- [10:16.730] without the loss of any lives; and without the loss of cities
+- [10:20.570] that are just laying on their sides.
+- [10:22.600] You have those magnificent golden domes that are shattered,
+- [10:27.290] will never be replaced. You can’t replace them.
+- [10:29.940] Thousand-year-old domes that are so beautiful.
+- [10:32.480] You can’t replace that.
+- [10:34.210] A whole civilization has changed because of what --
+- [10:36.530] So, when they’re worried about not being seated,
+- [10:39.110] you mean somebody that should have gone in
+- [10:41.770] and made a deal a long time ago. You could have made a deal.
+- [10:45.150] This is one that could have made a deal.
+- [10:46.710] There was no talk of this during the Trump administration.
+- [10:49.670] Putin would have never, ever done it.
+- [10:52.170] And, by the way, we wouldn’t have had October 7th.
+- [10:54.730] You know that.
+- [10:56.030] We wouldn’t have had October 7th either in Israel,
+- [10:59.020] and we wouldn’t have that mess that’s going on over there.
+- [11:01.210] It’s like you -- we have great fire people here.
+- [11:03.880] We’re putting out fires.
+- [11:05.850] All over the world, we’re putting out fires.
+- [11:08.040] So, that wouldn’t have happened.
+- [11:09.530] And you know what else wouldn’t have happened?
+- [11:11.070] Inflation, because it was caused, really,
+- [11:13.440] by the cost of energy going through the roof
+- [11:15.680] because of their bad energy policies, and --
+- [11:18.710] and also their spending -- their terrible spending,
+- [11:21.160] wasteful spending on the Green New Scam.
+- [11:23.240] It’s a scam. It’s a whole big scam.
+- [11:24.660] Yeah, please.
+- [11:25.860] The Press: Yes, sir.
+- [11:27.090] I want to ask you a little closer to home.
+- [11:28.960] What would it take for you to reconsider
+- [11:31.460] the restrictions on the Associated Press?
+- [11:34.150] And secondly, some of your advisers are concerned
+- [11:37.210] with the Associated Press’s style guide,
+- [11:39.650] using language and giving guidance
+- [11:41.960] to not use words like “illegal immigrant”
+- [11:44.970] or to use phrases like “gender-affirming care,”
+- [11:47.440] and they’re concerned about that being an encroaching amount
+- [11:50.460] of liberalism
+- [11:51.790] in the way in which the press writes about things.
+- [11:53.430] Do you share those concerns?
+- [11:54.970] The President: Well, I do think that some of the phrases
+- [11:57.310] that they want to use are ridiculous,
+- [12:00.020] and I think, frankly, they’ve become obsolete,
+- [12:02.570] especially in the last three weeks,
+- [12:04.770] because many things have happened
+- [12:06.110] in the last three weeks.
+- [12:07.310] And I didn’t know about that, but I would say
+- [12:10.750] that if they want to use certain phrases like that --
+- [12:13.070] and I guess some are okay, but many aren’t.
+- [12:15.610] But the Associated Press just refuses to go
+- [12:18.970] with what the law is and what has taken place.
+- [12:22.240] It’s called the Gulf of America now.
+- [12:25.120] It’s not called the Gulf of Mexico any longer.
+- [12:27.260] I have the right to do it,
+- [12:28.640] just like we have the right to do Mount McKinley,
+- [12:30.660] and nobody is even challenging that.
+- [12:32.900] But only the Associate- -- essentially,
+- [12:34.740] it’s primarily the Associated Press,
+- [12:36.790] and I don’t know what they’re doing,
+- [12:38.250] but I just say that we’re going to keep them out
+- [12:39.910] until such time as they agree that it’s the Gulf of America.
+- [12:42.810] We’re very proud of this country,
+- [12:44.100] and we want it to be the Gulf of America.
+- [12:46.370] Now, the Associated Press, as you know,
+- [12:48.300] has been very, very wrong on the election, on Trump,
+- [12:54.000] and the treatment of Trump, and other things having to do
+- [12:56.620] with Trump and Republicans and conservatives.
+- [12:59.840] And they’re doing us no favors,
+- [13:01.660] and I guess I’m not doing them any favors.
+- [13:03.240] That’s the way life works.
+- [13:04.450] But, you know, thank you for the question.
+- [13:05.730] Who are you with?
+- [13:07.020] The Press: Axios, sir.
+- [13:08.490] The President: It’s a very good question.
+- [13:09.690] (Laughs.) Thank you.
+- [13:10.950] Yes.
+- [13:12.190] The Press: Thank you, Mr. President.
+- [13:14.320] We’re hearing that Russia wants to force Ukraine
+- [13:16.670] to hold new elections
+- [13:18.180] in order to sign any kind of a peace deal.
+- [13:20.050] Is that something that the U.S. would ever support?
+- [13:23.700] The President: Well, we have a situation
+- [13:26.720] where we haven’t had elections in Ukraine;
+- [13:29.610] where we have martial law --
+- [13:31.140] essentially martial law in Ukraine;
+- [13:34.050] where the leader in Ukraine -- I mean, I hate to say it,
+- [13:36.800] but he’s down at 4 percent approval rating;
+- [13:40.250] and where a country has been blown to smithereens.
+- [13:42.760] You got -- most of the cities are laying on their sides.
+- [13:47.080] The buildings are collapsed.
+- [13:48.380] It looks like a massive demolition site.
+- [13:51.800] The whole -- I mean, so many of the cities --
+- [13:53.920] I mean, they haven’t done it in Kyiv,
+- [13:55.570] because I guess they don’t want to shoot
+- [13:57.100] too many rockets in there. They’ve done it 20 percent,
+- [14:00.250] but they haven’t done it 100 percent.
+- [14:01.740] If they wanted to do it 100 percent,
+- [14:03.400] it would probably happen very quickly.
+- [14:04.930] But you have cities that are absolutely decimated.
+- [14:09.100] And yeah, I would say that, you know, when they want a seat
+- [14:11.940] at the table, you could say, the people have to --
+- [14:14.730] wouldn’t the people of Ukraine have to say, like, you know,
+- [14:17.430] “It’s been a long time since we’ve had an election”?
+- [14:19.820] That’s not a Russia thing. That’s something coming from me
+- [14:22.900] and coming from many other countries also.
+- [14:24.560] The Press: Would you be concerned about Russia
+- [14:25.780] putting up a puppet --
+- [14:27.060] The President: You know, Ukraine is being just -- just wiped out.
+- [14:30.080] Look at what’s happening to the cities.
+- [14:31.750] That -- there are cities,
+- [14:33.130] there’s not even a building standing.
+- [14:34.610] It’s a massive -- it’s -- you talk about Gaza.
+- [14:38.150] I mean, it’s -- literally, these cities look like Gaza.
+- [14:42.330] Actually, many have, percentage-wise,
+- [14:45.160] more buildings knocked down than in Gaza.
+- [14:47.860] So, you know, people are tired of it.
+- [14:50.230] People want to see something happen.
+- [14:52.510] And, you know, the other thing that --
+- [14:54.490] it’s been bothering me for a long time,
+- [14:56.550] because I di- -- I solved the problem with NATO.
+- [14:58.580] They paid hundreds of billions of dollars
+- [15:01.050] into the funds of NATO when I said, “You got to pay,”
+- [15:03.990] because the United States was paying for European countries,
+- [15:06.980] and then they take advantage of us on trade.
+- [15:09.610] But I’ve seen it.
+- [15:10.830] Look, we have to -- they have to pay.
+- [15:13.170] They have to find out, where is the money going to?
+- [15:15.870] We have -- I believe President Zelenskyy
+- [15:18.880] said last week that he doesn’t know
+- [15:20.700] where half of the money is that we gave him.
+- [15:22.430] Well, we gave them, I believe, $350 billion,
+- [15:26.090] but let’s say it’s something less than that.
+- [15:27.790] But it’s a -- it’s a lot.
+- [15:29.680] And we have to equalize with Europe,
+- [15:31.490] because Europe has given us a --
+- [15:34.080] given a very much smaller percentage than that.
+- [15:36.450] I think Europe has given 100 billion,
+- [15:39.420] and we’ve given, let’s say, 300-plus,
+- [15:42.910] and it’s more important for them than it is for us.
+- [15:45.940] We have an ocean in between, and they don’t.
+- [15:49.020] But where is all the money that’s been given?
+- [15:51.510] Where is it going?
+- [15:52.740] And nobody -- I’ve never seen an accounting of it.
+- [15:55.130] We give hundreds of billions of dollars.
+- [15:58.010] I have -- I don’t see any -- any accounting.
+- [15:59.900] So, I want to see peace. Look, you know why I want?
+- [16:03.830] Because I don’t want all these people killed anymore.
+- [16:06.590] I’m looking at people that are being killed,
+- [16:09.290] and they’re Russian and Ukrainian people,
+- [16:11.030] but they’re people --
+- [16:12.270] doesn’t matter where they’re from on -- on the whole planet.
+- [16:15.900] And I think I have the power to end this war,
+- [16:18.640] and I think it’s going very well.
+- [16:20.580] But today, I heard, “Oh, well, we weren’t invited.”
+- [16:22.420] Well, you’ve been there for three years.
+- [16:23.760] You should have ended it three years --
+- [16:25.520] you should have never started it.
+- [16:26.750] You could have made a deal.
+- [16:28.170] I could have made a deal for Ukraine
+- [16:31.130] that would have given them almost all of the land --
+- [16:34.080] everything -- almost all of the land,
+- [16:35.830] and no people would have been killed,
+- [16:37.140] and no city would have been demolished,
+- [16:38.740] and not one dome would have been knocked down.
+- [16:41.470] But they chose not to do it that way.
+- [16:43.460] And President Biden, in all fairness,
+- [16:45.070] he doesn’t have a clue.
+- [16:46.560] What he -- he was so bad for this.
+- [16:48.450] He was so bad, so pathetic, and so sad.
+- [16:52.200] But with all of that being said, look, we -- it is what it is.
+- [16:55.850] When I left, there was no chance that this could have happened,
+- [16:58.030] but it happened because we had incompetent leadership
+- [17:00.380] at many different levels.
+- [17:02.340] But when you see what’s taken place in Ukraine,
+- [17:05.490] with millions of people killed, including the soldiers --
+- [17:08.350] millions of people killed,
+- [17:10.400] a big percentage of their cities knocked down to the ground.
+- [17:13.450] I don’t know how anybody even lives there.
+- [17:14.950] You know, when they say they took a poll
+- [17:17.380] and Zelenskyy is at 4 percent, who’s living there?
+- [17:19.640] You know, I mean, people are --
+- [17:21.040] it’s hard to believe that people live there.
+- [17:22.880] Their cities are being knocked down.
+- [17:25.810] And this is something that would have never happened.
+- [17:27.970] And, by the way, for four years, it didn’t happen.
+- [17:30.690] It was never going to happen. Go ahead.
+- [17:32.210] The Press: Can I ask one follow-up question?
+- [17:33.840] How would you counter the perception --
+- [17:36.300] because Russia is pushing for this, obviously;
+- [17:37.970] they don’t really hold true elections --
+- [17:39.710] that that would be a capitulation of some sort?
+- [17:41.730] How would you guard against, potentially,
+- [17:43.970] Russia installing a puppet government?
+- [17:45.810] And then, finally, how would that new election have an impact
+- [17:49.580] on getting Zelenskyy to sign the rare earth minerals deal?
+- [17:53.260] The President: Look, you have leadership -- and --
+- [17:55.850] and I like him personally. He’s fine.
+- [17:59.110] But I don’t care about personally.
+- [18:01.380] I care about getting the job done.
+- [18:03.550] You have leadership now that’s allowed a war to go on
+- [18:06.030] that should have never even happened,
+- [18:07.740] even without the United States.
+- [18:09.220] Look, we had a president who was grossly incompetent.
+- [18:13.410] He had no idea what he was doing.
+- [18:14.740] He said some very stupid things, like going in for portions
+- [18:17.570] and all of the things. He made a lot of bad statements.
+- [18:19.860] But he’s grossly incompetent, and I think everyone knew that.
+- [18:24.800] This is something that should have never happened --
+- [18:26.740] would have never happened.
+- [18:27.960] And I used to discuss it with Putin.
+- [18:30.390] President Putin and I would talk about Ukraine.
+- [18:32.780] It was the apple of his eye, I will tell you that.
+- [18:34.920] But he never -- there was never a chance of him going in.
+- [18:37.190] And I told him, “You better not go in.
+- [18:38.870] Don’t go in. Don’t go in.”
+- [18:41.120] And he understood that, and he understood it fully.
+- [18:44.110] But I’m only interested --
+- [18:45.310] I want to see if I can save maybe millions of lives.
+- [18:48.890] This could even end up in a World War III,
+- [18:50.500] I mean, to be honest with you.
+- [18:51.750] You’ve been hearing -- now Europe is saying,
+- [18:53.130] “Well, I think we’re going to go in and we’re going to go….”
+- [18:54.840] All of a sudden, you’re going to end up in World War III
+- [18:57.930] over something that should have never happened.
+- [19:00.670] And, you know, it’s a -- it’s a very sad situation.
+- [19:02.330] Yeah, please.
+- [19:03.570] The Press: Mr. President, in a court filing,
+- [19:06.180] the White House said that Elon Musk is not a DOGE employee
+- [19:10.440] and has no authority to make decisions.
+- [19:12.750] Can you clarify for us today --
+- [19:14.740] The President: Well, Elon Musk --
+- [19:15.950] The Press: -- what his exact role is there?
+- [19:17.150] The President: Yeah, yeah. Elon is, to me, a patriot.
+- [19:20.780] So, you know, you could call him an employee.
+- [19:22.670] You could call him a consultant.
+- [19:24.010] You could call him whatever you want.
+- [19:25.400] But he’s a patriot.
+- [19:26.780] I mean, look at the kind of things --
+- [19:28.020] I just said, “Just write it down,
+- [19:29.440] just in case that question got asked.”
+- [19:31.190] Right? And which --
+- [19:33.090] I’m surprised it took so long, actually.
+- [19:35.500] But you know what? Ukraine is a bigger deal,
+- [19:38.440] because people are dying by the thousands a week --
+- [19:41.650] thousands. But look at this. From 90 to 99,
+- [19:46.500] Social Security: 6,054,000 people.
+- [19:51.050] Well, that’s okay. Maybe that’s possible.
+- [19:52.970] You know, 90 to ninety- -- 99. Maybe it’s possible.
+- [19:57.300] It’s a lot of people, though, with that.
+- [19:59.570] But people that live to 100 to 109: 4,734,000.
+- [20:04.580] Wow, that’s a lot. That means over 100 years old.
+- [20:07.500] There are 4 million people.
+- [20:08.720] I don’t know -- I don’t know too many.
+- [20:10.270] I know people that are doing great in their 90s,
+- [20:12.780] but not too many people over 100.
+- [20:14.470] But over 120 -- from 120 years old --
+- [20:19.410] people that are 120 years old, up to 129:
+- [20:25.580] 3,472,000 people. Wow.
+- [20:29.480] You know that can’t possibly be because the record is like --
+- [20:33.000] I think it’s one person -- a woman lived to 127.
+- [20:36.410] But they have 3,472-. Okay.
+- [20:39.450] But now we’re going really in.
+- [20:41.610] People from 130 years old to 139 years old: 3,936,000.
+- [20:49.970] Wow. I wonder if people are getting paid with all this.
+- [20:53.040] I mean, are these checks --
+- [20:54.480] and that’s what we’re checking right now.
+- [20:57.000] People from 140 years old to 149 years old: 3,542,000.
+- [21:04.670] A hundred and forty years old and beyond.
+- [21:08.710] Now -- now we’re really going
+- [21:10.550] because we’re looking to break the record by 25 years.
+- [21:13.580] People from 150 years old to 159 years old:
+- [21:19.400] 1,345,000.
+- [21:22.820] These are in the -- by the way, these are in the computer files.
+- [21:25.500] These are -- this is what they do well.
+- [21:28.240] They’re super -- I asked Elon, “Who are these DOGE people?”
+- [21:32.310] He said they’re super brilliant computer people
+- [21:34.420] and they love the country.
+- [21:35.690] It’s simple.
+- [21:36.890] The Press: Does he -- The President: Wait a minute.
+- [21:38.310] People from 160 years old to 169 years: 121,000.
+- [21:43.390] So, 160-year-old people.
+- [21:45.410] A hundred and seventy
+- [21:46.620] to a hundred and seventy-nine thousand:
+- [21:48.280] six thousand oh-eighty-seven.
+- [21:50.990] But now let’s go into the real numbers.
+- [21:55.700] From 200 to 209 years old: 879 people.
+- [22:01.740] From 210 years old -- I haven’t met any of them.
+- [22:06.260] And if I did, I’d -- I would bless them.
+- [22:08.690] I would -- I would worship the ground they walk on.
+- [22:12.790] Two hundred and ten to two hundred and nineteen years:
+- [22:15.100] eight hundred and sixty-six.
+- [22:17.560] From 220 years old to 229 years old: 1,039.
+- [22:24.400] And then, you have two people --
+- [22:26.860] from 240 years old to 249 years old: one person.
+- [22:32.680] And there’s one person that’s 360 years old.
+- [22:39.240] That’s just that. And then, where’s the money being spent?
+- [22:42.980] Right? Let’s go into that for just a second.
+- [22:46.800] Five hundred and twenty million dollars
+- [22:49.370] for a consultant on the environment.
+- [22:54.550] It’s called Environmental, Social, and Governance,
+- [22:58.710] investments in Africa
+- [23:01.540] and mobilize private-sector resources: $520 million.
+- [23:07.410] Somebody got $520 million for an environmental --
+- [23:10.620] sounds like an environmental study.
+- [23:12.090] That’s the most --
+- [23:13.290] I’ve always been one that paid a lot of money
+- [23:15.860] for my environmental studies, but they --
+- [23:17.650] you know, I paid like $50,000 not $520 million.
+- [23:19.940] Five hundred and twenty million dollars for ESG.
+- [23:27.760] Twenty-five million dollars to promote biodiversity,
+- [23:31.290] conservation, and promote licit livelihoods
+- [23:34.830] by developing socially responsible behavior
+- [23:37.490] in the country of Colombia. Well, that’s nice.
+- [23:40.530] Twenty-five million going to Colombia
+- [23:43.200] for something that nobody ever heard of.
+- [23:45.820] Forty million dollars to improve the social
+- [23:48.340] and economic inclusion of sedentary migrants.
+- [23:54.430] Forty million.
+- [23:55.780] Forty-two million dollars for Johns Hopkins --
+- [23:57.440] great place --
+- [23:58.700] to research and drive social and behavior change in Uganda.
+- [24:03.820] Forty-two million. What about us?
+- [24:05.530] What about social change in our country?
+- [24:08.450] Seventy million dollars for a center at Purdue
+- [24:11.610] to research university-sourced,
+- [24:13.650] evidence-based solutions to developmental challenges.
+- [24:18.290] I mean, these are massive numbers on things
+- [24:20.150] that nobody ever heard about.
+- [24:21.670] Ten million dollars for Mozambique
+- [24:24.220] voluntary medical male circumcisions.
+- [24:28.520] Ten million dollars for circumcisions
+- [24:30.390] in another country.
+- [24:31.670] $9.7 million for UC Berkeley
+- [24:34.290] to develop a cohort of Cambodian youth
+- [24:39.660] with enterprise-driven skills.
+- [24:41.330] In other words, let’s teach them something about enterprise.
+- [24:43.700] What about our people?
+- [24:45.720] Can’t we teach them about enterprise?
+- [24:47.300] $2.3 million for strengthening independent voices in Cambodia.
+- [24:52.180] Thirty-two million dollars to the Prague Civil Society Centre,
+- [24:56.820] which is a very liberal group of people.
+- [24:59.190] I wonder how much of that money
+- [25:00.400] came back to the people that approved it.
+- [25:02.440] Fourteen million dollars
+- [25:03.740] for improving public procurement in Serbia.
+- [25:08.240] Four hundred eighty-six million dollars
+- [25:10.370] to the Consortium for Elections and Political Process
+- [25:14.180] Strengthening, including twenty-two million dollars
+- [25:16.510] for inclusive and participatory political process in Moldova.
+- [25:22.940] And $21 million for voter turnout in India.
+- [25:26.560] Well, why are we giving $21 million to India?
+- [25:28.540] They got a lot of money. They’re the h- --
+- [25:30.160] one of the highest taxing countries in the world
+- [25:32.960] in terms of us. We can hardly get in there
+- [25:34.770] because their tariffs are so high.
+- [25:37.420] I have a lot of respect for India.
+- [25:38.780] I have a lot of respect for the prime minister.
+- [25:40.340] He just left, as you know, two days ago.
+- [25:41.950] But we’re giving $21 million for voter turnout.
+- [25:46.160] It’s voter turnout in India.
+- [25:48.990] What about, like, voter turnout here?
+- [25:50.700] Oh, we’ve done that, I guess.
+- [25:52.000] We did $500 million, didn’t we? It’s called the lockboxes.
+- [25:54.430] The Press: But closer to home --
+- [25:55.820] The President: Twenty million dollars
+- [25:57.040] for fiscal federalism in Nepal.
+- [26:01.160] Listen to these numbers. These are -- this is all fraud.
+- [26:04.440] Nineteen million dollars
+- [26:05.640] for biodiversity conservation in Nepal.
+- [26:09.930] $1.5 million for voter confidence --
+- [26:13.030] we want to give them confidence -- in Liberia.
+- [26:15.690] Fourteen million dollars for social cohesion in Mali.
+- [26:21.230] $2.5 million for inclusive democracies in South Africa.
+- [26:26.450] Forty-seven million dollars
+- [26:27.750] for improving learning outcomes in Asia.
+- [26:31.930] Asia is doing very well. They’re doing a lot better
+- [26:34.540] than we do in the schools, aren’t they?
+- [26:36.380] Two million dollars to develop sustainable recycling models
+- [26:39.380] to increase socioeconomic cohesion among marginalized
+- [26:43.640] communities in Kosovo and Ashkali and in Egypt.
+- [26:50.820] We’re talking about hundreds of billions of dollars.
+- [26:53.950] I could -- I could -- by the way,
+- [26:55.950] I could read this all day long. I could go on all day long,
+- [26:59.840] and you’ll see hundreds of billions of dollars.
+- [27:03.430] And we’re doing it.
+- [27:04.840] But when I saw the Social Security numbers,
+- [27:08.050] I said, “Wow, that’s really something.”
+- [27:10.620] So, we have -- let’s just go above 100 years old.
+- [27:14.400] We have millions and millions of people over 100 years old.
+- [27:18.050] Everybody knows that’s not so.
+- [27:20.620] We have a very corrupt country --
+- [27:22.520] a very corrupt country.
+- [27:24.220] And it’s a sad thing to say, but we’re figuring it out.
+- [27:28.100] Now, the good thing about Social Security
+- [27:29.910] and what I read is if you take all of those numbers off,
+- [27:34.740] because they’re obviously fraudulent or incompetent --
+- [27:38.970] but if you take all of those millions of people off
+- [27:40.770] Social Security,
+- [27:42.000] all of a sudden, we have a very powerful
+- [27:44.610] Social Security with people that are 80 and 70 and 90,
+- [27:49.700] but not 200 years old.
+- [27:52.550] You know, so it’s a very positive thing.
+- [27:54.130] How about over here? Yeah, please.
+- [27:56.190] The Press: Your reaction to Michelle King, the head,
+- [27:57.740] resigning after the DOGE investigation?
+- [27:59.070] The President: Who resigned?
+- [28:00.290] The Press: The head of Social Security.
+- [28:02.530] The President: I don’t know. I mean, I --
+- [28:04.000] resigned or got fired? I think got fired.
+- [28:07.010] You know, when you fire somebody, they always resign,
+- [28:09.230] and then they say, “We resigned.”
+- [28:11.270] But when you have numbers like that, I think,
+- [28:13.390] really, it’s “Got fired.” They have to get fired.
+- [28:17.680] Who would -- who would keep them?
+- [28:19.300] How could you have numbers like this?
+- [28:20.760] Now, the big thing is, how many of these people got paid?
+- [28:23.680] Were they getting paid? Were they getting paid?
+- [28:27.270] How many of them were getting paid Social Security?
+- [28:29.490] Because that’s -- if that’s the case, it’s a massive fraud.
+- [28:32.240] We’ll have to call those great
+- [28:33.600] Palm Beach police into this situation, right?
+- [28:36.440] You guys would figure that out very quickly.
+- [28:38.710] But how many of them are being paid?
+- [28:40.320] I mean, maybe millions of them, but it’s a total fraud.
+- [28:45.860] Also, a lot of illegal immigrants
+- [28:47.500] are on Social Security that shouldn’t be there.
+- [28:50.070] Yeah, please. Go ahead.
+- [28:51.320] The Press: Mr. President, there was a big wave
+- [28:52.770] of probationary federal workers who were fired over the weekend.
+- [28:55.730] Some of these workers focused on nuclear weapons security
+- [28:59.060] were immediately rehired. Do you have any concerns
+- [29:00.920] about how these terminations have played out?
+- [29:02.440] The President: No, not at all.
+- [29:03.680] I think we have to just do what we have to do.
+- [29:05.520] It’s -- you know, you’re going to
+- [29:08.350] -- it’s amazing what’s been found right now.
+- [29:09.940] It’s amazing.
+- [29:11.160] Yeah, some -- if we feel that --
+- [29:13.680] in some cases, they’ll fire people
+- [29:15.090] and then they’ll put some people back --
+- [29:16.500] not all of them, because a lot of people were let go.
+- [29:19.440] Don’t forget, I got elected on the basis
+- [29:21.310] of making our government stronger and smaller,
+- [29:25.640] because we have millions of people that --
+- [29:27.250] obviously, they’re paying millions of people
+- [29:30.210] that shouldn’t be paid.
+- [29:32.500] And that has also to do with workers.
+- [29:34.250] Yeah, please. No, go ahead. Axios, New York Times.
+- [29:39.480] The Press: Sorry.
+- [29:40.700] Mr. President, given your concerns about corruption,
+- [29:43.840] you said that if there were any conflicts of interest
+- [29:45.650] with Elon Musk, you wouldn’t --
+- [29:47.020] The President: Yeah.
+- [29:48.270] The Press: -- let him anywhere near it.
+- [29:49.560] The President: That’s right.
+- [29:50.790] The Press: DOGE and SpaceX employees are now
+- [29:52.390] working directly at the Federal Aviation Administration
+- [29:55.500] and the Defense Department --
+- [29:57.410] agencies that have billions of dollars
+- [29:59.010] in contracts with Musk’s companies,
+- [30:01.130] or that directly regulate --
+- [30:02.420] The President: Yeah. The Press: -- his companies.
+- [30:03.630] How is that not a conflict of interest?
+- [30:05.350] The President: Well, I mean, I’m just hearing about it,
+- [30:06.760] and if there is --
+- [30:08.000] and he told me before I told him, but obviously,
+- [30:10.190] I will not let there be any conflict of interest.
+- [30:12.810] He’s done an amazing job. They’ve revealed --
+- [30:15.600] in fact, he’s going to be on tonight a big show called
+- [30:17.970] “Sean Hannity” at 9 o’clock, and he’s on and I’m on,
+- [30:22.130] and we talk about a lot of different things.
+- [30:23.900] And any conflicts -- I told Elon,
+- [30:26.730] any conflicts, you can’t have anything to do with that.
+- [30:28.920] So, anything to do with possibly even space,
+- [30:31.530] we won’t let Elon partake in that.
+- [30:34.790] Yeah. Please.
+- [30:38.400] The Press: On immigration, sir. You said you would be sending
+- [30:40.850] the worst of the worst to Guantanamo Bay.
+- [30:43.480] What we’re finding out is that there are a lot of low-risk
+- [30:46.110] migrants who don’t have a criminal background
+- [30:47.610] who are also being sent.
+- [30:48.880] The President: Yeah.
+- [30:50.090] The Press: Are you thinking about this differently now
+- [30:51.350] about who is being sent?
+- [30:52.610] The President: No, they’re going to be brought back
+- [30:53.900] to their countries.
+- [30:55.140] And with some persuasion, every one of those countries --
+- [30:59.540] every one in the -- as you know,
+- [31:01.240] every country is taking the people back.
+- [31:03.480] So, some of them are going to be brought back to --
+- [31:06.140] many of them -- any of them that are low-risk,
+- [31:08.860] as you say, are going to be brought back to their countries.
+- [31:11.610] The Press: But why hold them in Guantanamo?
+- [31:13.550] The President: Yeah, go ahead, please.
+- [31:15.410] The Press: Can you give us a bit of an update
+- [31:17.170] on where you stand with Venezuela?
+- [31:18.780] The President: Yeah. Sure.
+- [31:20.020] The Press: Its oil -- there are --
+- [31:21.720] there is, basically, a monthly license
+- [31:23.510] that can soon ex- -- extend to a six-month license.
+- [31:25.170] The President: Well, you know, we had Venezuela on the run,
+- [31:27.900] and it looked like that was going to be very good.
+- [31:30.710] And when Biden came in, as he always does,
+- [31:32.790] he screws it up.
+- [31:35.030] And they started buying millions and millions
+- [31:37.030] and millions of dollars of oil --
+- [31:39.660] billions of dollars, actually, of oil.
+- [31:42.370] And it gave them a new lic- -- a new, really, lease on life.
+- [31:49.190] And -- but we’ll see.
+- [31:50.590] We had some pretty good discussions
+- [31:53.810] with a lot of people within our government --
+- [31:55.940] in the United States government that are involved in that.
+- [31:59.080] And Venezuela is a little bit early.
+- [32:00.670] But, you know, we were not buying from Venezuela.
+- [32:02.920] When Biden came in, for whatever reason,
+- [32:04.720] instead of just taking the beautiful,
+- [32:06.400] as I call it, liquid gold -- we have more than anybody --
+- [32:09.380] they started paying a fortune to Venezuela.
+- [32:11.990] And we’re looking at that actually. Why did they do that?
+- [32:14.180] Why were they doing that? Why would they go to the enemy
+- [32:17.040] and give them billions and billions of dollars?
+- [32:20.080] Now, with that being said, as you know,
+- [32:22.070] Venezuela has said very strongly,
+- [32:24.250] they will not take any -- any illegal immigrant,
+- [32:28.220] any of the people that they sent over to us.
+- [32:30.970] They sent their gangs, probably the worst gang
+- [32:33.000] anywhere in the world -- as bad as MS-13, maybe worse --
+- [32:36.680] and they came out of the jails of Venezuela.
+- [32:38.910] They emptied their jails into our country,
+- [32:41.470] and they said, “We’ll never take them back.”
+- [32:42.950] Well, they took them back, and they’re taking them back,
+- [32:44.890] and they are taking them back rapidly.
+- [32:48.420] They were sending a lot of people to Venezuela.
+- [32:50.250] They said they wouldn’t take them back,
+- [32:51.460] and they are taking back.
+- [32:52.750] But we’re looking at Venezuela very seriously,
+- [32:55.290] and we’re going to be able --
+- [32:56.580] don’t forget, I’ve only been here for three weeks.
+- [32:58.820] The Press: If I could just a follow-up, if you don’t mind.
+- [33:00.460] The President: Yeah, please.
+- [33:01.660] The Press: Just a little clarity on:
+- [33:03.730] Are you inclined to continue to allow Venezuela, through,
+- [33:09.240] I think, Chevron and other oil companies,
+- [33:11.410] to export those petroleum products, or are you --
+- [33:13.140] The President: Maybe not.
+- [33:14.390] The Press: -- inclined to pullback on that?
+- [33:15.590] The President: Yeah, maybe not. We’re looking at that now.
+- [33:17.270] I just got here.
+- [33:18.920] When I was -- when I left, they weren’t doing anything.
+- [33:21.110] They were ready to go, “We give up.”
+- [33:24.260] And then Biden came along, and he gave them --
+- [33:28.130] literally billions of dollars. I couldn’t believe it, actually.
+- [33:32.570] And we have so much under our feet -- liquid gold.
+- [33:36.720] We have so much. And it was pretty amazing.
+- [33:39.750] So, we’re looking at the whole situation, why he did it.
+- [33:42.220] All right, how about one more? Yeah, please.
+- [33:44.170] The Press: Thank you, Mr. President.
+- [33:45.390] What can you tell us about the CIA drone flights over Mexico?
+- [33:48.560] Is this the next step in the war against the cartels?
+- [33:50.540] The President: Well, we’re going to see.
+- [33:51.740] The Press: Should they have authority --
+- [33:52.980] The President: Yeah.
+- [33:53.170] The Press: -- to take lethal action?
+- [33:54.400] The President: Mexico has allowed
+- [33:55.610] a tremendous number of people
+- [33:58.300] to go through their country into ours,
+- [33:59.850] and even people coming from Mexico, and illegals --
+- [34:03.760] totally illegal.
+- [34:05.280] They’ve allowed people to empty jails into Mexico
+- [34:07.840] and then let them come through with this
+- [34:09.910] totally ridiculous open-border policy
+- [34:11.950] of the Biden administration.
+- [34:13.290] So, millions of people have come in,
+- [34:15.830] and hundreds of thousands
+- [34:17.110] and, actually, millions are criminals.
+- [34:20.110] They came in from jails all over the world
+- [34:22.040] that release them into Mexico, and they come into our country.
+- [34:24.450] And they also came in from Canada, by the way --
+- [34:26.330] large numbers through Canada.
+- [34:27.940] In fact, when -- when we closed up the one border,
+- [34:32.330] they came in through the other border.
+- [34:33.870] So, Canada was -- is not a -- an uninterested party.
+- [34:39.370] But I will say this. We’re dealing with Mexico.
+- [34:42.580] I have a very good relationship with Mexico.
+- [34:44.590] But I think Mexico is largely run by the cartels,
+- [34:47.960] and that’s a sad thing to say.
+- [34:49.300] And if they wanted help with that, we’d give them help.
+- [34:53.000] But Mexico -- if you look at what’s gone on with Mexico
+- [34:54.890] for years now,
+- [34:56.110] but now, especially, it’s run by the cartels.
+- [34:59.340] And they’ve allowed millions of people
+- [35:02.500] to come into our country from jails
+- [35:04.260] and prisons of other countries, from all over the world --
+- [35:06.430] not just South America -- Africa, Asia, all over --
+- [35:10.690] a lot from the Congo in Africa -- a lot.
+- [35:14.110] They opened their jails. They came in through Mexico,
+- [35:17.250] and we have some of the worst criminals
+- [35:19.420] coming in from the Congo and other places.
+- [35:21.290] So, it’s not just South America and it’s not just Venezuela.
+- [35:25.060] But they opened their jails.
+- [35:26.430] And, you know, the crime rates in Venezuela
+- [35:28.230] and other places all over the world has gone way down.
+- [35:30.610] You know why? Because they’ve given us their prisoners.
+- [35:34.470] They’ve -- given us their drug lords and their gang members.
+- [35:38.700] And it’s hard to believe that we accepted this.
+- [35:41.700] It’s hard to believe that we allowed open borders,
+- [35:43.840] and we’re taking in, you know, hundreds of thousands
+- [35:47.330] and millions of people coming in from all over the world
+- [35:50.180] that are absolute stone-cold criminals.
+- [35:52.870] In fact, 11,088 murderers,
+- [35:56.120] and many of those people have co- --
+- [35:57.570] have murdered more than one person.
+- [35:59.550] Why are they giving us these people?
+- [36:01.250] And why are we taking these people?
+- [36:02.950] Under Biden, you know, you had a border czar
+- [36:05.380] that never went to the border --
+- [36:07.440] happened to be a vice president --
+- [36:08.920] never went to the border, never called the border people.
+- [36:11.030] I call them all the time. I speak to them all the time.
+- [36:14.280] But here’s the good news,
+- [36:16.700] we have the most secure border we’ve ever had right now --
+- [36:19.580] as secure and even more secure than I had it four years ago.
+- [36:23.240] And the Border Patrol is doing incredible.
+- [36:24.950] ICE is doing incredible. Tom Homan is unbelievable.
+- [36:28.590] And Kristi Noem has been just working very, very hard --
+- [36:32.350] very, very hard.
+- [36:34.020] And we have the best numbers we’ve ever had,
+- [36:36.120] and we’re going to keep it that way.
+- [36:38.280] And we’re going to find out how a thing like this
+- [36:40.140] could have happened to our country,
+- [36:41.450] because who would allow this to happen?
+- [36:43.470] What they’ve done to our country is so sad.
+- [36:45.710] Thank you very much. Thank you.
+- [36:46.940] The Press: Will you still be meeting with President Putin
+- [36:48.540] before the end of the month?
+- [36:49.750] The President: Yeah, probably. Probably.

@@ -1,0 +1,298 @@
+<!-- source: https://www.youtube.com/watch?v=g8mO3yZfKVc -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: g8mO3yZfKVc -->
+<!-- date_published: 2026-03-27T14:22:04+00:00 -->
+<!-- date_accessed: 2026-06-02T02:35:56.429234+00:00 -->
+
+# Transcript: Vice President JD Vance Participates in a Task Force Meeting to Eliminate Fraud
+
+- [00:11.020] The Vice President: Good morning, everybody
+- [00:12.910] Steve, you there. OK. Great.
+- [00:16.400] Well, it's good to see everybody.
+- [00:19.090] Hell, we have half the cabinet here.
+- [00:20.570] We could have just done a cabinet meeting.
+- [00:22.790] It's good to see everybody,
+- [00:24.120] and good to see the press this morning.
+- [00:26.070] So we're going to say a few words
+- [00:27.830] and then kick you guys out for the interesting part,
+- [00:29.770] which will be the closed-door meeting.
+- [00:31.680] First of all, great to have our new DHS secretary,
+- [00:33.660] Markwayne Mullin, here.
+- [00:35.450] Uh, great to have Colin McDonald here,
+- [00:37.280] who has been confirmed, but yet --
+- [00:39.470] not yet sworn in to his new position
+- [00:41.140] at the Department of Justice.
+- [00:42.870] And I would say that's maybe the most exciting thing
+- [00:44.920] that's actually happened on the fraud task force,
+- [00:46.690] is the fact that we now have a leader
+- [00:49.880] on the anti-fraud side at DOJ
+- [00:52.280] who is going to work with the task force,
+- [00:53.780] who's going to use the resources that we're putting together
+- [00:56.310] to make sure that we really supercharge
+- [00:57.860] this anti-fraud effort.
+- [00:59.070] So let me just say a few things about this,
+- [01:00.970] then I want to kick it over to Andrew.
+- [01:02.840] Oh, hello, Brooke.
+- [01:05.360] Brooke's -- Brooke's alarm clock didn't go off this morning.
+- [01:09.150] So here's the basic problem that we've had in this --
+- [01:14.000] in this government, going back for probably 30 or 40 years,
+- [01:18.240] is that you've never had an administration
+- [01:20.310] that has really taken this seriously
+- [01:22.340] until the president put us,
+- [01:23.700] really from day one of the Trump administration,
+- [01:25.590] who said we have to take the fraud issue seriously.
+- [01:28.890] And a lot of the anti-fraud protections
+- [01:32.080] that existed in our government for a very long time
+- [01:34.880] were actually turned off by the Biden administration.
+- [01:36.750] So we think fraud has been a problem for a long time.
+- [01:39.260] It became a massive, massive problem
+- [01:41.310] under the Biden administration.
+- [01:42.560] We're going to do a number of things.
+- [01:43.930] First of all, we're going to turn back
+- [01:45.210] on those anti-fraud protections
+- [01:47.260] so that all of these cabinet officials
+- [01:48.930] are looking at what's going on and focusing on it.
+- [01:51.370] The second thing is that we're going to take
+- [01:53.220] a whole of government approach. So much of what's going to make
+- [01:55.670] the anti-fraud task force work is that we're --
+- [01:58.820] we're communicating across different departments,
+- [02:01.650] so when Bobby Kennedy is talking to Scott Bessent
+- [02:04.270] about things that he's seeing in Medicare and Medicaid,
+- [02:07.140] when Scott is seeing things at Treasury,
+- [02:08.810] when Brooke is seeing things at agriculture,
+- [02:10.350] when Scott is seeing things at housing and urban development.
+- [02:14.410] What we're going to actually do is force the bureaucracy
+- [02:17.400] to take this seriously and work together as political principles
+- [02:20.950] to make sure that we stop allowing fraudsters
+- [02:24.260] to steal the American people's money.
+- [02:26.300] And that brings me to my final point
+- [02:27.630] before I'll kick it over to Andrew, who is --
+- [02:29.400] who is leading this anti-fraud task force.
+- [02:32.500] This is not just theft of the American people's money.
+- [02:35.410] This is also theft of critical services
+- [02:38.180] that the American people rely on.
+- [02:40.400] Some of you have heard me tell this story before,
+- [02:42.790] but I think that the -- the autism scam
+- [02:45.030] that we've seen in the Somalian parts of Minnesota
+- [02:48.150] really illustrates well what's been going on
+- [02:51.330] across whole layers of our government.
+- [02:53.300] So you have a program set up under Medicaid
+- [02:55.660] to help autistic children
+- [02:57.000] and their families get the resources that they need.
+- [02:59.110] Because, of course, we know that when you have a kid
+- [03:00.960] who's on the spectrum,
+- [03:02.190] it requires a little bit more help,
+- [03:03.600] a little bit more services. And so the government you know,
+- [03:08.150] enforcing the mandate from the American people
+- [03:10.460] to be kind and compassionate to our citizens
+- [03:13.330] has set up this program to help families
+- [03:15.260] who are dealing with these particular struggles.
+- [03:17.440] Now, what we've seen is Somali fraudsters
+- [03:20.640] at an industrial scale, taking advantage of that program
+- [03:23.960] to the tune of millions and millions of dollars.
+- [03:26.960] And there are two separate tragedies there.
+- [03:28.740] The first tragedy is that you have people
+- [03:31.670] who pay into the federal government,
+- [03:33.870] who pay into the IRS, who pay their taxes,
+- [03:36.450] expecting that those taxes will go
+- [03:39.050] to help their fellow citizens, and it's not going there.
+- [03:41.690] It's going to help fraudsters. That's tragedy number one.
+- [03:44.740] And the more important tragedy is that you have families
+- [03:47.390] who need these services, who are unable to get them
+- [03:50.330] because people are getting rich off of fraud schemes
+- [03:53.540] instead of making sure that autistic children
+- [03:56.110] and their families get access to these resources.
+- [03:58.270] And unfortunately, that story, while it's very concrete
+- [04:01.850] and very obvious, what we're seeing in Minneapolis,
+- [04:04.360] it is replayed again and again and again across many states
+- [04:08.490] and across many different programs.
+- [04:10.160] It has to stop.
+- [04:11.360] The president of the United States
+- [04:12.670] has ordered us to stop it,
+- [04:13.970] and that's what this task force is going to do.
+- [04:16.290] So without further ado, I'll kick it over to Andrew,
+- [04:18.960] who will talk about some of our work here today.
+- [04:20.780] But the most exciting thing is that this task force
+- [04:23.990] is finally stood up.
+- [04:25.560] We've got allies at Department of Justice
+- [04:27.600] now who are going to take this thing by the horns.
+- [04:29.950] We've got allies across every major significant department,
+- [04:33.650] and we are going to stop the fraud
+- [04:35.860] that's being committed against the American people.
+- [04:37.790] Andrew.
+- [04:39.080] Andrew Ferguson: Thank you, Mr. vice President.
+- [04:40.320] I'd like to begin by thanking President Trump
+- [04:42.320] and the vice president for the confidence
+- [04:44.130] they put in me to help lead the task force.
+- [04:46.590] America is the most generous nation
+- [04:48.340] in the history of the world.
+- [04:49.800] For decades, Americans have turned over
+- [04:51.470] trillions of their tax dollars to social welfare programs
+- [04:54.570] to help their neighbors
+- [04:55.810] and fellow citizens through hard times.
+- [04:58.060] They've done so on the basis of social trust,
+- [05:00.560] the belief that their governments, state and federal,
+- [05:02.620] will do the right things with their dollars
+- [05:04.850] and that their fellow citizens
+- [05:06.050] will honestly participate in these programs.
+- [05:08.800] Fraud shreds the social trust on which these programs
+- [05:11.920] and our entire nation depend.
+- [05:14.370] This fraud crisis is thus existential.
+- [05:16.630] If we fail to address it,
+- [05:18.110] the fabric of our nation will swiftly unravel.
+- [05:20.910] And the American people feel like they are
+- [05:23.070] getting ripped off, and they're right.
+- [05:25.430] As the president's executive order
+- [05:26.980] establishing this task force declared, extensive,
+- [05:29.830] undetected fraud can only exist in a system that ignores it.
+- [05:34.000] And fraud is indeed easy to ignore
+- [05:35.810] when grasping politicians are in on the con.
+- [05:38.740] For years, the Biden administration and its allies
+- [05:41.390] in Democrat-run states knew of this corruption
+- [05:43.970] in our federal benefits programs and did nothing about it.
+- [05:46.980] Their failures have robbed
+- [05:48.250] every American citizen of their tax dollars,
+- [05:51.000] but even worse, they've deprived American citizens
+- [05:53.220] who actually need these services.
+- [05:55.770] Every dollar diverted to a fake hospice
+- [05:58.040] or a fake autism center,
+- [05:59.780] every dollar paid to an upcoding hospital,
+- [06:02.460] deprives an American citizen who needs these essential services.
+- [06:06.590] Fraud therefore wounds the neediest among us,
+- [06:09.540] the very people that Americans want to help
+- [06:11.620] when they fund our social welfare programs.
+- [06:14.940] Finally, we have a president who is doing something
+- [06:17.660] about this corruption crisis. We are here today
+- [06:20.330] because President Trump and Vice President Vance won't ignore it,
+- [06:24.220] and we won't ignore the public officials
+- [06:26.080] who have facilitated it.
+- [06:27.750] Our work on this task force will be to develop
+- [06:30.060] a comprehensive national strategy
+- [06:31.780] to combat the corruption of our federal benefits programs,
+- [06:35.050] and to assist the Department of Justice
+- [06:36.720] in prosecuting those who have corrupted them.
+- [06:39.390] In doing so, we will restore the social trust that has been lost
+- [06:42.580] because of mismanagement and fraud.
+- [06:45.360] The presence today of so many members
+- [06:47.370] of the president's cabinet,
+- [06:48.710] including the vice president himself,
+- [06:50.880] is a testimony to the importance of our work
+- [06:53.020] and its priority in this administration.
+- [06:55.790] Together, we can remove the scourge of fraud
+- [06:58.170] in our federal benefits programs,
+- [06:59.960] and we can restore public confidence
+- [07:01.890] in their efficacy and integrity.
+- [07:04.000] I look forward to our important work.
+- [07:06.010] And with that, I'll turn it over to Stephen Miller.
+- [07:10.680] Stephen Miller: Thank you, Andrew,
+- [07:11.990] and thank you to the vice president for your leadership
+- [07:16.290] in establishing this task force
+- [07:18.480] and for gathering us all here today.
+- [07:20.690] And I have some personal, behind the scenes experience
+- [07:24.230] with talking to the vice president
+- [07:26.770] and seeing how resolutely determined
+- [07:29.860] he was at the very first exposure
+- [07:33.870] of some of these shocking discoveries to create,
+- [07:37.360] establish and launch this task force.
+- [07:41.040] And if you knew what I knew about the people at this table,
+- [07:44.950] you would understand just how committed this government,
+- [07:49.080] this administration, is to ending this massive theft
+- [07:53.450] of American taxpayer dollars. The people at this table
+- [07:57.290] are all united in absolute determination
+- [08:00.160] to stop this plague of fraud, criminality and abuse.
+- [08:04.950] I think what's important for Americans to understand
+- [08:07.930] about how pervasive and widespread the fraud is,
+- [08:10.990] is that all of our systems were set up
+- [08:13.030] and established for a high trust society.
+- [08:17.140] I think that most citizens probably assume
+- [08:20.370] that there's some verification process
+- [08:22.050] that takes place for the receipt of most federal benefits.
+- [08:26.450] The reality is, is that there is not.
+- [08:28.300] This is particularly true in blue states,
+- [08:31.250] willfully true in blue states, in which all of these programs
+- [08:34.880] are operated entirely on the honor system.
+- [08:37.830] No verification takes place before individuals
+- [08:41.080] are enrolled in or receive these benefits.
+- [08:43.570] So as a simple example,
+- [08:46.090] if you're a Somali refugee living in Minnesota,
+- [08:49.870] you could lie about how many children you have.
+- [08:52.140] You could lie about what your immigration status is.
+- [08:54.710] You could lie about your marital status.
+- [08:57.010] You could lie about childcare. You could lie about disability.
+- [08:59.880] You could lie about all these things
+- [09:01.290] and many more and nobody in the state of Minnesota
+- [09:03.950] would validate any of these facts
+- [09:06.170] before writing you a check.
+- [09:08.190] We at the federal government are simply sent a bill
+- [09:11.860] from the state of Minnesota
+- [09:13.710] for the cost of providing these services in the aggregate.
+- [09:16.900] So to take the food stamp program as an example,
+- [09:19.740] SNAP and that, of course,
+- [09:22.090] is administered by Secretary Rollins,
+- [09:25.210] we do not know the names of any Snap recipients
+- [09:27.790] in the state of Minnesota.
+- [09:29.980] We just get a blank check.
+- [09:31.500] We have asked the state repeatedly
+- [09:33.880] and tried to compel the state, unsuccessfully,
+- [09:36.400] to turn over their snap enrollment rolls
+- [09:39.250] so we could ascertain such basic facts as,
+- [09:41.970] are these people even legally eligible
+- [09:44.040] to receive these benefits? And the state has refused,
+- [09:47.880] absolutely, categorically refuse.
+- [09:50.000] And in fact, the state has spent millions of dollars in court
+- [09:52.640] for the singular purpose of trying to prevent the state
+- [09:55.640] from ascertaining the identity of a single SNAP recipient
+- [09:58.830] in the entire state of Minnesota.
+- [10:01.320] Think about what this does to public trust,
+- [10:04.020] social trust, people's faith in the system, right?
+- [10:07.090] Imagine in a community,
+- [10:08.340] a working-class community in the Twin Cities,
+- [10:11.930] say, a native Minnesotan who works as a lineman
+- [10:17.370] or works as a construction worker,
+- [10:20.100] works in any job that requires hard work, dedication, focus,
+- [10:24.480] who's worried about his ability to support for
+- [10:26.430] and provide his family.
+- [10:27.710] And then imagine that he has a neighbor
+- [10:29.390] who's a Somali refugee who arrived two years ago
+- [10:33.360] and has a Mercedes, and no financial stress
+- [10:36.910] and no worries at all in the entire world
+- [10:38.790] and never seems to ever go to work at all,
+- [10:41.280] because he just went to an office in the state,
+- [10:43.630] lied on a piece of paper,
+- [10:45.270] and got unlimited free money forever, for life.
+- [10:48.660] That is the system that is being run,
+- [10:51.190] and that is the corruption that this task force,
+- [10:53.270] under the leadership of the vice president, is going to demolish.
+- [10:56.320] And I'll just conclude by saying that I'd be remiss
+- [11:00.020] if I didn't mention the atrocity
+- [11:02.430] that is taking place in Congress,
+- [11:04.770] with Congressional Democrats fighting relentlessly to abolish
+- [11:09.120] the very federal agencies that are responsible
+- [11:11.780] for policing and investigating fraud,
+- [11:13.650] as well as all matters of homeland and national security.
+- [11:16.420] I see, of course, a new secretary
+- [11:18.780] who has just been confirmed to DHS,
+- [11:20.940] my good friend, Markwayne Mullin.
+- [11:22.660] He now takes command of a department
+- [11:25.330] whose men and women have been working
+- [11:26.880] without pay for weeks on end to protect
+- [11:30.430] and defend the American people,
+- [11:32.490] to protect and defend our coastlines,
+- [11:34.240] to protect and defend our families,
+- [11:36.500] while they've been treated with nothing but derision,
+- [11:38.590] hatred and contempt by Congressional Democrats.
+- [11:41.440] It is legislative terrorism.
+- [11:43.000] It is one of the greatest abominations
+- [11:44.520] that has ever occurred in the history of this country
+- [11:46.930] and it's to the everlasting and eternal shame
+- [11:48.780] of the Democrat Party.
+- [11:50.310] Again, thank you, Mr. Vice President,
+- [11:51.750] for your leadership and vision in establishing this task force.
+- [11:54.110] I'm proud to serve on it under your leadership.
+- [11:55.830] Thank you.
+- [11:57.050] The Vice President: Thank you, Stephen.
+- [11:58.320] Thanks, everybody. We're not going to take questions
+- [11:59.830] because we have some very important work to do,
+- [12:01.750] but we will certainly do some press events in the future.
+- [12:03.960] Thank you, all.

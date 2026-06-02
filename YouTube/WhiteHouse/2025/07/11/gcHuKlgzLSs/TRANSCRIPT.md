@@ -1,0 +1,100 @@
+<!-- source: https://www.youtube.com/watch?v=gcHuKlgzLSs -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: gcHuKlgzLSs -->
+<!-- date_published: 2025-07-11T15:37:59+00:00 -->
+<!-- date_accessed: 2026-06-02T01:20:43.984489+00:00 -->
+
+# Transcript: President Trump Gaggles with Press Before Departing the White House, July 11, 2025
+
+- [00:00.880] perimeter.
+- [00:04.960] We're going to Texas. Some of you are
+- [00:07.040] coming with us. How are you? And uh it's
+- [00:11.280] a horrible thing. Horrible thing. Nobody
+- [00:14.000] can even believe it. Such a thing. That
+- [00:15.920] much water that fast. Without a damn
+- [00:18.640] break, you'd think a dam would have to
+- [00:20.160] break to have it. So, it's a terrible
+- [00:22.240] thing. But, uh we're going to be there
+- [00:23.840] with some of the great families and
+- [00:26.720] others, the governor, everybody.
+- [00:31.439] Are you glad to talk to this guy about
+- [00:34.399] the tariff?
+- [00:35.200] >> Maybe at some point I'll talk to him
+- [00:36.880] right now. I'm not. They're treating
+- [00:39.040] President Bolsinaro very unfairly. He's
+- [00:41.280] a good man. You know, I know him well. I
+- [00:43.920] negotiated with him. Uh he was a very
+- [00:46.640] tough negotiator and I can tell you he
+- [00:48.480] was a very honest man and he loved the
+- [00:50.559] people of Brazil. He was a very tough
+- [00:52.399] guy to negotiate with. I shouldn't like
+- [00:54.559] him because he was very tough in in
+- [00:57.199] negotiations, but he was also very
+- [00:59.440] honest and I know the honest one and I
+- [01:02.079] know the crooked one.
+- [01:09.520] >> We're going to see uh it was sent
+- [01:11.920] yesterday. They called. I think it was
+- [01:14.560] fairly wellreceived what we need. So, uh
+- [01:18.400] we'll see what happens.
+- [01:19.840] >> Russian drones. watching drones in a
+- [01:22.880] maternity hospital in Ukraine overnight.
+- [01:26.799] >> I know you'll be you'll be seeing things
+- [01:29.040] happen
+- [01:32.079] now that you will go to take us. Are you
+- [01:33.680] planning on delivering any type of help
+- [01:35.600] for undocumented families everything?
+- [01:39.439] >> I think we've done very well on
+- [01:40.960] immigration. We were given a very bad
+- [01:42.880] hand by Biden. He allowed 25 million
+- [01:45.200] people to come in totally unchecked,
+- [01:47.520] unvetted. We're getting the criminals
+- [01:49.600] out and we're getting them out fast. Uh
+- [01:52.000] the courts have ultimately done the
+- [01:54.159] right thing. Uh amazingly, they've
+- [01:56.799] really done the right thing and they
+- [01:59.280] understand it's really the survival of
+- [02:00.960] our country. It's a very important
+- [02:02.560] thing. We can't have like 11,888
+- [02:07.119] murderers. And you know something that
+- [02:09.119] you should have that you haven't
+- [02:11.200] reported. As you know, 300,000
+- [02:15.840] children are missing, right? 300,000
+- [02:19.040] under Biden. We've already gotten back
+- [02:21.760] 10,000 of those children and we have a
+- [02:24.400] lot more planned to come back. We're
+- [02:26.160] getting them back by the thousands, but
+- [02:28.560] 300,000 and we as of uh this morning
+- [02:32.640] over 10,000 we've gotten back.
+- [02:40.239] You send a letter to the
+- [02:41.280] >> What is the advice to the countries
+- [02:42.720] worldwide ahead of the upcoming tariff
+- [02:45.440] deadline?
+- [02:47.040] >> Oh, I think just keep working hard. You
+- [02:48.959] know, we've been taken advantage of for
+- [02:50.959] many many years by countries both both
+- [02:53.680] friend and foe and frankly the friends
+- [02:55.920] have been worse than the foes in many
+- [02:57.440] cases. So I would say just keep working.
+- [03:00.080] It's all going to work out.
+- [03:04.239] world power.
+- [03:06.720] >> I I think he's doing a terrible job. I
+- [03:09.200] think we should be No, I think we should
+- [03:11.920] be three points lower interest rate. I
+- [03:14.879] think he's costing our country a lot of
+- [03:16.640] money. We should be number one and uh
+- [03:19.360] we're not. And that's because of Jerome
+- [03:21.840] Powell in terms of interest. We are
+- [03:24.159] number one in the world. Look, I'll tell
+- [03:26.159] you a little simple a little simple
+- [03:27.920] language.
+- [03:29.519] One year ago, our country was a dead
+- [03:32.640] country. We were going nowhere except
+- [03:35.120] down. We were the laughing stock all
+- [03:37.680] over the world. And now we're the
+- [03:39.680] hottest country anywhere in the world.
+- [03:42.000] We're number one everywhere anywhere in
+- [03:44.560] the world. And that's all they're
+- [03:46.400] talking about is our country. One year
+- [03:48.480] ago was a dead country. Now it's the
+- [03:50.640] hottest country anywhere in the world.

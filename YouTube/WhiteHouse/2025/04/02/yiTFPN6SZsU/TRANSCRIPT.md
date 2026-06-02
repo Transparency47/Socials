@@ -1,0 +1,1057 @@
+<!-- source: https://www.youtube.com/watch?v=yiTFPN6SZsU -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: yiTFPN6SZsU -->
+<!-- date_published: 2025-04-02T21:02:13+00:00 -->
+<!-- date_accessed: 2026-06-02T02:52:11.894950+00:00 -->
+
+# Transcript: President Trump Participates in the Make America Wealthy Again Event
+
+- [10:06.520] Announcer: Ladies and gentlemen,
+- [10:07.880] the president of the United States.
+- [11:06.720] The President: Thank you very much.
+- [11:09.040] Thank you. Nice crowd.
+- [11:10.550] What a good-looking group of people.
+- [11:12.240] Well, we have some very, very good news today
+- [11:15.380] and a lot of good things are happening for our country.
+- [11:18.040] Please sit down.
+- [11:20.950] My fellow Americans, this is Liberation Day,
+- [11:24.810] been waiting for a long time.
+- [11:28.830] April 2nd, 2025 will forever be remembered
+- [11:32.510] as the day American industry was reborn,
+- [11:36.170] the day America's destiny was reclaimed
+- [11:39.470] and the day that we began to make America wealthy again.
+- [11:45.640] Going to make it wealthy, good and wealthy.
+- [11:48.660] For decades, our country has been looted,
+- [11:50.960] pillaged, raped, and plundered by nations near and far,
+- [11:54.280] both friend and foe alike.
+- [11:57.310] American steelworkers, auto workers, farmers,
+- [12:00.150] and skilled craftsmen,
+- [12:01.440] we have a lot of them here with us today,
+- [12:04.390] they really suffered gravely.
+- [12:06.390] They watched in anguish as foreign leaders
+- [12:09.300] have stolen our jobs, foreign cheaters have ransacked
+- [12:13.070] our factories and foreign scavengers
+- [12:16.020] have torn apart our once-beautiful American dream.
+- [12:19.210] We had an American dream that you don't hear so much about.
+- [12:22.060] You did four years ago and you are now,
+- [12:24.800] but you don't too often.
+- [12:26.470] And for many years and decades even,
+- [12:28.400] you didn't hear too much about.
+- [12:30.680] Our country and its taxpayers have been ripped off
+- [12:33.200] for more than 50 years,
+- [12:35.460] but it is not going to happen anymore.
+- [12:38.640] It's not going to happen.
+- [12:44.540] In a few moments, I will sign a historic executive
+- [12:47.360] order instituting reciprocal tariffs on countries
+- [12:52.060] throughout the world.
+- [12:53.270] Reciprocal, that means they do it to us
+- [12:56.320] and we do it to them.
+- [12:57.980] Very simple. Can't get any simpler than that.
+- [13:03.980] This is one of the most important days,
+- [13:06.260] in my opinion, in American history.
+- [13:09.800] It's our declaration of economic independence.
+- [13:13.720] For years, hardworking American citizens
+- [13:16.080] were forced to sit on the sidelines
+- [13:17.970] as other nations got rich and powerful,
+- [13:21.210] much of it at our expense.
+- [13:23.640] But now, it's our turn to prosper and in so doing,
+- [13:27.380] use trillions and trillions of dollars
+- [13:29.880] to reduce our taxes and pay down our national debt,
+- [13:33.030] and it'll all happen very quickly.
+- [13:35.860] With today's action, we are finally going to be able
+- [13:38.800] to make America great again, greater than ever before.
+- [13:48.450] Jobs and factories will come roaring back into our country
+- [13:52.000] and you see it happening already.
+- [13:54.240] We will supercharge our domestic industrial base.
+- [13:57.750] We will pry open foreign markets
+- [13:59.980] and break down foreign trade barriers.
+- [14:02.990] And ultimately, more production at home
+- [14:04.960] will mean stronger competition and lower prices for consumers.
+- [14:09.600] This will be, indeed, the golden age of America,
+- [14:13.420] it's coming back and we're going to come back very strongly.
+- [14:20.100] We're pleased to be joined on this momentous occasion
+- [14:23.680] by Vice President JD Vance. JD, thank you.
+- [14:28.460] Thank you. Thank you very much. Where are you, JD?
+- [14:33.960] Oh, that wasn't too hard to find.
+- [14:38.230] I was looking, he likes to take a low-key attitude,
+- [14:41.040] so it'd usually be sitting right in front.
+- [14:42.840] He's gaining a lot of confidence, Mike, isn't he?
+- [14:46.430] And nearly my entire cabinet is here,
+- [14:48.930] as well as Speaker mike Johnson, he's done an amazing job.
+- [14:57.090] And with the great success we had last night in Florida,
+- [14:59.980] we have a majority of seven.
+- [15:03.390] And seven's like a lot where we had it at one.
+- [15:06.590] You've done a fantastic job.
+- [15:08.190] And many of the members of the House and Senate are with us.
+- [15:12.200] Senators, congressman, thank you all for being with us,
+- [15:14.540] we appreciate it.
+- [15:15.930] For decades, the United States
+- [15:17.370] slashed our trade barriers on other countries,
+- [15:20.380] while those nations placed massive tariffs on our products
+- [15:24.120] and created outrageous non-monetary barriers
+- [15:28.140] to decimate our industries.
+- [15:29.910] And in many cases, the non-monetary barriers
+- [15:32.550] were worse than the monetary ones.
+- [15:35.340] They manipulated their currencies,
+- [15:37.170] subsidized their exports, stole our intellectual property,
+- [15:41.570] imposed exorbitant VAT taxes to disadvantage our products,
+- [15:46.410] adopted unfair rules and technical standards,
+- [15:49.350] and created filthy pollution havens.
+- [15:52.170] They were absolutely filthy, but they always came to us
+- [15:56.150] and they said, we're violating. We should pay for it.
+- [15:59.330] It's all detailed in a very big report
+- [16:01.550] by the US Trade Representative on Foreign Trade Barriers.
+- [16:05.970] And I'll just hold it up for you.
+- [16:07.710] It's available and you don't have to pay too much,
+- [16:11.150] as I understand it, you pay nothing.
+- [16:13.130] It's a lot of work, a lot of work for something actually,
+- [16:16.720] because it's a special book.
+- [16:20.040] Frankly, it's very upsetting when you read it,
+- [16:23.180] when you see what people have been doing to us for 30 years.
+- [16:27.080] This all happened with no response
+- [16:29.030] from the United States of America, none whatsoever.
+- [16:32.550] But those days are over.
+- [16:34.250] Let me offer just a few examples of the vicious attacks
+- [16:37.750] our workers have faced for so many years.
+- [16:41.700] The United States charges other countries
+- [16:44.430] only a 2.4% tariff on motorcycles.
+- [16:49.120] Meanwhile, Thailand and others
+- [16:52.350] are charging much higher prices like 60%.
+- [16:55.370] India charges 70%. Vietnam charges 75%.
+- [16:59.640] And others are even higher than that.
+- [17:02.070] Likewise, until today,
+- [17:03.530] the United States has for decades charged a 2.5% tariff.
+- [17:09.010] Think of that, 2.5% on foreign-made automobiles.
+- [17:13.930] The European Union charges us more than 10% tariffs
+- [17:18.560] and they have 20% VATs, much, much higher.
+- [17:22.500] India charges 70%.
+- [17:24.190] And perhaps worst of all are the non-monetary restrictions
+- [17:28.110] imposed by South Korea, Japan, and very many other nations
+- [17:31.830] as a result of these colossal trade barriers.
+- [17:36.270] 81% of the cars in South Korea are made in South Korea.
+- [17:40.420] 94% of the cars in Japan are made in Japan.
+- [17:45.270] Toyota sells 1 million foreign-made automobiles
+- [17:48.570] into the United States and General Motors
+- [17:50.780] sells almost none. Ford sells very little.
+- [17:54.600] None of our companies are allowed
+- [17:56.390] to go into other countries. And I say that friend and foe,
+- [18:01.140] and in many cases the friend is worse
+- [18:03.110] than the foe in terms of trade.
+- [18:05.720] But such horrendous imbalances have devastated
+- [18:08.500] our industrial base
+- [18:10.170] and put our national security at risk.
+- [18:13.180] I don't blame these other countries at all
+- [18:15.260] for this calamity.
+- [18:16.520] I blame former presidents and past leaders
+- [18:18.790] who weren't doing their job.
+- [18:20.170] They let it happen and they let it happen to an extent
+- [18:23.370] that nobody can even believe.
+- [18:24.680] That's why effective at midnight,
+- [18:27.050] we will impose a 25% tariff on all foreign-
+- [18:30.200] made automobiles.
+- [18:36.550] Thank you.
+- [18:38.920] Brian, I'd like to have you come up here for a second.
+- [18:42.610] I just see him sitting. He's been a fan of ours
+- [18:46.690] and he understands this business
+- [18:48.670] a lot better than the economists,
+- [18:50.300] a lot better than anybody.
+- [18:51.570] Brian, say a few words please, would you?
+- [18:52.890] Male Speaker: Thank you, Mr. President.
+- [18:54.150] The President: Thank you. It's a great honor to have you.
+- [18:55.510] Thanks.
+- [18:56.740] Male Speaker: Thank you, Mr. President.
+- [18:58.170] I grew up just north of Detroit, Michigan in Macomb County,
+- [19:02.170] known as the home of the Reagan Democrats.
+- [19:04.520] My first vote for president was for Ronald Reagan.
+- [19:07.560] I thought that was going to be the best president
+- [19:09.300] I ever saw in my lifetime
+- [19:11.000] until Donald J. Trump came along.
+- [19:16.730] My entire life, I have watched plant after plant
+- [19:20.390] after plant in Detroit
+- [19:22.190] and in the Metro Detroit area close.
+- [19:24.970] There are now plants sitting idle,
+- [19:27.010] there are now plants that are underutilized
+- [19:29.650] and Donald Trump's policies
+- [19:32.360] are going to bring product back into those underutilized plants.
+- [19:35.990] There's going to be new investment.
+- [19:37.370] There's going to be new plants built.
+- [19:39.400] And the UAW members,
+- [19:41.300] and I brought 20 of them with me,
+- [19:43.030] they're sitting right over here.
+- [19:45.550] We support Donald Trump's policies on tariffs 100%.
+- [19:50.870] So Mr. President, we can't thank you enough
+- [19:53.640] and in six months or a year,
+- [19:55.210] we're going to begin to see the benefits.
+- [19:56.960] I can't wait to see what's happening three
+- [19:58.890] or four years down the road. Thank you, Mr. President.
+- [20:01.090] The President: Thank you.
+- [20:02.380] Male Speaker: Thank you so much.
+- [20:03.590] The President: Thank you. What a great guy.
+- [20:05.800] He got it right from the beginning.
+- [20:07.490] He got it before almost anybody else.
+- [20:09.730] This group over there, they got it too.
+- [20:13.610] We won the state of Michigan, we won almost all of them,
+- [20:17.770] but we won Michigan by a lot
+- [20:19.430] and I want to just thank you all.
+- [20:20.740] The auto workers were fantastic. The teamsters were fantastic.
+- [20:25.630] Everyone was pretty good, I will tell you.
+- [20:28.060] Thank you very much. I appreciate it.
+- [20:30.100] You're going to be very happy very soon
+- [20:32.150] and you probably see what's happening with all of the,
+- [20:35.530] not only car companies, but car companies in particular
+- [20:38.620] see it with all of the ones they're moving.
+- [20:42.010] They're announcing day in, day out, you're seeing it.
+- [20:44.790] Nobody's ever seen anything like that.
+- [20:46.830] With today's actions,
+- [20:48.470] we're also standing up for our great farmers
+- [20:50.750] and ranchers who are brutalized by nations all over the world.
+- [20:55.000] Brutalized.
+- [20:58.420] Canada, by the way, imposes a 250% to 300% tariff
+- [21:03.430] on many of our dairy products. They do the first can of milk,
+- [21:09.060] they do the first little carton of milk at a very low price,
+- [21:12.220] but after that it gets bad
+- [21:13.560] and then it gets up to 275%, 300%.
+- [21:17.230] So when they're figuring what's Canada charging?
+- [21:19.530] They say, "Oh, about 2%, 3%."
+- [21:22.550] But take a look at what happens down the road
+- [21:24.610] when you look a little bit, it's not a pretty picture
+- [21:27.250] and we don't like it and it's not fair.
+- [21:29.140] It's not fair to our farmers, it's not fair to our country.
+- [21:32.530] And with countries like Canada, we subsidize a lot of countries
+- [21:37.630] and keep them going and keep them in business.
+- [21:40.280] In the case of Mexico, it's $300 billion a year.
+- [21:44.160] In the case of Canada,
+- [21:45.370] it's close to $200 billion a year.
+- [21:48.300] And I say, why are we doing this?
+- [21:49.790] Why are we doing this? I mean, at what point do we say,
+- [21:53.440] you've got to work for yourselves?
+- [21:55.940] This is why we have the big deficits,
+- [21:58.170] this is why we have that amount of debt
+- [22:01.230] that's been placed on our heads over the last number of years
+- [22:04.870] and we're really not taking it anymore.
+- [22:07.670] Through non-tariff barriers, the European Union bans imports
+- [22:11.070] of most American poultry. You understand?
+- [22:13.550] They say, "We want to send you our cars,
+- [22:16.110] we want to send you everything,
+- [22:17.330] but we're not going to take anything that you have."
+- [22:20.270] Australia bans and they're wonderful people
+- [22:23.200] and wonderful everything, but they ban American beef,
+- [22:26.930] yet we imported $3 billion of Australian beef
+- [22:30.390] from them just last year alone. They won't take any of our beef.
+- [22:34.440] They don't want it because they don't want it
+- [22:35.960] to affect their farmers.
+- [22:37.240] And you know what? I don't blame them,
+- [22:38.710] but we're doing the same thing right now,
+- [22:41.090] starting about midnight tonight I would say.
+- [22:47.820] And China charges American rice farmers an over quota,
+- [22:51.620] it's called, a tariff rate of 65%.
+- [22:54.330] South Korea charges 50…
+- [22:57.430] Actually, they charge different, from 50% to 513%.
+- [23:02.130] And Japan, our friend, charges us 700%.
+- [23:06.430] But that's because they don't want us selling rice,
+- [23:08.450] another thing.
+- [23:09.650] Who can blame them, Madam Secretary Agriculture?
+- [23:13.250] Great job you did on eggs, by the way.
+- [23:15.090] The egg prices came down 50%.
+- [23:18.200] You got them down 50% once we got involved.
+- [23:20.730] They were going through the sky, the egg prices,
+- [23:23.550] they were going through the sky and you did a fantastic job.
+- [23:27.210] Now we have lots of eggs and they're much cheaper,
+- [23:29.620] down about 59% now, and they're going down further.
+- [23:34.640] We charge 2.8% for so many things that other countries
+- [23:39.190] are charging 200%, 300%, then 400% for.
+- [23:43.770] If imposing tariffs and protective barriers
+- [23:47.050] made nations poor, then every country on Earth
+- [23:50.140] would be racing to eliminate these policies
+- [23:52.650] and China would be the first in line,
+- [23:54.910] they run a very strong country. But they're not first in line
+- [24:00.630] and the American people are paying a very big price.
+- [24:04.410] From 1789 to 1913, we were a tariff-backed nation
+- [24:10.620] and the United States
+- [24:11.970] was proportionately the wealthiest it has ever been.
+- [24:15.020] So wealthy in fact that in the 1880s,
+- [24:18.570] they established a commission
+- [24:19.970] to decide what they were going to do
+- [24:22.410] with the vast sums of money they were collecting.
+- [24:24.680] We were collecting so much money so fast,
+- [24:26.780] we didn't know what to do with it.
+- [24:28.120] Isn't that a nice problem to have?
+- [24:30.210] What do you think, Marco? Good problem?
+- [24:32.420] Marco would love that problem.
+- [24:34.740] But we don't have that problem anymore,
+- [24:37.820] but we're not going to have it very much longer,
+- [24:39.430] I will tell you.
+- [24:40.670] But they collected so much money,
+- [24:42.620] they actually formed a commission
+- [24:44.070] to determine what they were going to do with the money,
+- [24:46.190] who they were going to give it to and how much.
+- [24:48.630] Then in 1913, for reasons unknown to mankind,
+- [24:52.810] they established the income tax
+- [24:54.480] so that citizens rather than foreign countries
+- [24:56.990] would start paying the money necessary to run our government.
+- [25:01.020] Then in 1929, it all came to a very abrupt end
+- [25:04.670] with the Great Depression. And it would've never happened
+- [25:08.090] if they had stayed with the tariff policy,
+- [25:10.380] it would've been a much different story.
+- [25:11.870] They tried to bring back tariffs to save our country,
+- [25:16.380] but it was gone.
+- [25:17.700] It was gone. It was too late. Nothing could have been done.
+- [25:21.050] It took years and years to get out of that depression,
+- [25:23.520] far longer than even FDR had that office right over there
+- [25:28.360] for a long period of time.
+- [25:30.160] The ramp system that's rather intricate was built
+- [25:32.920] because of him and every time you walk up, you think of him.
+- [25:36.540] And he did a great job in many ways,
+- [25:38.670] but it lasted long beyond his terms, as you know.
+- [25:42.680] But it's not too late any longer
+- [25:45.020] and we are going to start being smart
+- [25:47.950] and we're going to start being very wealthy again.
+- [25:50.130] We're going to be wealthy as a country
+- [25:51.530] because they've taken so much of our wealth away from us.
+- [25:55.120] We're not going to let that happen.
+- [25:56.780] We truly can be very wealthy.
+- [25:58.310] We can be so much wealthier than any country,
+- [26:00.500] it's not even believable. But we're getting smart.
+- [26:03.380] Nearly a century later in the face
+- [26:05.690] of unrelenting economic warfare,
+- [26:07.710] the United States can no longer continue
+- [26:09.990] with a policy of unilateral economic surrender.
+- [26:13.620] We cannot pay the deficits of Canada, Mexico
+- [26:16.900] and so many other countries.
+- [26:18.230] We used to do it, we can't do it anymore.
+- [26:20.150] We take care of countries all over the world,
+- [26:22.280] we pay for their military,
+- [26:24.130] we pay for everything they have to pay,
+- [26:26.340] and then when you want to cut back a little bit,
+- [26:28.760] they get upset that you're not taking care of them any longer.
+- [26:31.440] But we have to take care of our people
+- [26:33.500] and we're going to take care of our people first.
+- [26:35.350] And I'm sorry to say that.
+- [26:41.860] Today we're standing up for the American worker
+- [26:44.530] and we are finally putting America first.
+- [26:53.930] In Sleepy Joe Biden's last year in office,
+- [26:56.590] the United States hemorrhaged 100,000 manufacturing jobs
+- [27:01.080] and the number was going through the roof
+- [27:03.360] at levels never seen before.
+- [27:05.770] And our trade deficit reached a record $1.2 trillion,
+- [27:11.400] which is unheard of.
+- [27:13.380] Since the beginning of NAFTA, the worst trade deal ever made.
+- [27:16.640] It was a horror show. I was able to terminate it.
+- [27:19.150] They all said you'd never be able to get it out.
+- [27:21.640] We had to get approval from Congress to get it terminated.
+- [27:25.390] We had to live with that deal.
+- [27:26.760] It was the worst trade deal ever made by far.
+- [27:30.450] But since the very beginning of NAFTA,
+- [27:32.410] our country lost 90,000 factories.
+- [27:36.370] Think of what that is, 90,000.
+- [27:38.670] Think about putting a map up and putting tacks on it.
+- [27:41.530] You wouldn't have enough room, 90,000.
+- [27:43.730] I said, is that possible?
+- [27:45.090] We had a check four different times
+- [27:47.190] and it was actually somewhat higher than that.
+- [27:49.550] And 5 million manufacturing jobs were lost
+- [27:52.710] while racking up trade deficits of $19 trillion.
+- [27:58.040] That was the worst trade deal ever made.
+- [28:01.010] As a result of these gigantic losses,
+- [28:03.260] foreign nations now own $26 trillion
+- [28:06.270] more of American assets, think of this,
+- [28:09.770] than the Americans own of their own foreign assets
+- [28:13.350] or other foreign assets.
+- [28:15.430] The United States can no longer produce enough antibiotics
+- [28:18.850] to treat our sick. We have a tremendous problem.
+- [28:22.520] We have to go to foreign countries to treat our sick.
+- [28:25.060] If anything ever happened from a war standpoint,
+- [28:27.390] we wouldn't be able to do it.
+- [28:29.050] We import virtually all of our computers,
+- [28:32.160] phones, televisions and electronics.
+- [28:34.350] We used to dominate the field
+- [28:36.230] and now we import it all from different countries.
+- [28:39.370] A single shipyard in China now produces more ships every year
+- [28:43.560] than all of the American shipyards combined.
+- [28:46.290] Think of that.
+- [28:47.540] And it was a business that we used to dominate.
+- [28:49.810] We used to dominate it totally. In short, chronic trade deficits
+- [28:53.770] are no longer merely an economic problem,
+- [28:55.940] they're a national emergency that threatens our security
+- [29:00.140] and our very way of life.
+- [29:01.450] It's a very great threat to our country.
+- [29:04.260] And for these reasons, starting tomorrow,
+- [29:06.090] the United States will implement reciprocal tariffs
+- [29:09.100] on other nations.
+- [29:11.280] It's been a long time since we even thought of that.
+- [29:15.140] We used to think about it a lot.
+- [29:16.640] We didn't think about it for many decades
+- [29:19.190] and you see what's happened. For nations that treat us badly,
+- [29:22.870] we will calculate the combined rate of all their tariffs,
+- [29:26.180] non-monetary barriers and other forms of cheating.
+- [29:30.250] And because we are being very kind,
+- [29:32.780] we're kind people, very kind.
+- [29:36.350] You're not so kind when you get ripped off with salaries.
+- [29:39.500] My autoworker friends and my teamster friends
+- [29:42.630] and all of the unions that typically voted Democrat.
+- [29:46.230] They're not voting Democrat anymore because worker,
+- [29:48.610] whether union or non, worker, they're for the Republicans now.
+- [29:52.400] That's what happened.
+- [29:54.500] But we will charge them approximately
+- [29:56.480] half of what they are and have been charging us.
+- [29:59.580] So the tariffs will be not a full reciprocal.
+- [30:05.330] I could have done that, I guess,
+- [30:07.120] but it would've been tough for a lot of countries.
+- [30:09.130] We didn't want to do that.
+- [30:10.400] I'd like to see the chart if you have it.
+- [30:12.540] Could you bring it up, Howard?
+- [30:14.900] This is our great Secretary of Commerce Howard Lutnick.
+- [30:20.470] Thanks, Howard.
+- [30:22.920] So if you look at that first row, China, 67%.
+- [30:29.450] That's tariffs charged to the USA,
+- [30:33.000] including currency manipulation and trade barriers.
+- [30:36.520] So 67%, I think you can for the most part see it.
+- [30:40.660] Those with good eyes and with bad eyes.
+- [30:43.450] It's very windy out here,
+- [30:44.650] we didn't want to bring out the big charts
+- [30:46.180] because it had no chance of standing.
+- [30:49.080] Fortunately, we came armed with a smaller chart.
+- [30:53.090] So it's 67%, so we're going to be charging
+- [30:56.130] a discounted reciprocal tariff of 34%, I think.
+- [30:59.960] In other words, they charge us, we charge them,
+- [31:02.020] we charge them less. So how can anybody be upset?
+- [31:05.250] They will be because we never charge anybody anything,
+- [31:07.900] but now we're going to charge.
+- [31:10.500] European Union, they're very tough.
+- [31:12.350] Very, very tough traders.
+- [31:15.630] You think of European Union, very friendly,
+- [31:18.280] they rip us off, it's so sad to see.
+- [31:21.120] It's so pathetic. 39%, we're going to charge them 20%.
+- [31:25.850] So we're charging them essentially half.
+- [31:28.080] Vietnam, great negotiators, great people.
+- [31:31.720] They like me, I like them.
+- [31:33.000] The problem is they charge us 90%,
+- [31:34.810] we're going to charge them 46% tariff.
+- [31:39.020] Taiwan, where they took all of our computer chips
+- [31:43.300] and semiconductors.
+- [31:44.550] We used to be the king of everything.
+- [31:47.410] We had all of it, now we have almost none of it.
+- [31:50.060] Except the biggest company is coming in,
+- [31:51.910] we're going to end up with almost 40%.
+- [31:54.320] Lee Zeldin's working to get their approvals.
+- [31:57.070] And it's an amazing company.
+- [31:58.770] Mr. Wei, one of the great companies of the world actually.
+- [32:02.580] They're coming in from Taiwan and they're going to build
+- [32:05.120] one of the biggest plants in the world,
+- [32:06.730] maybe the biggest for that, but 64%.
+- [32:09.880] We're going to charge them 32%.
+- [32:11.690] Japan, very, very tough, great people.
+- [32:16.520] And again, I don't blame the people for doing it.
+- [32:18.870] I think they're very smart in doing it.
+- [32:20.410] I blame the people that sat right in that Oval Office
+- [32:22.850] right over there,
+- [32:24.210] right behind the Resolute Desk of whichever desk they chose.
+- [32:28.670] Japan, 46%. They would charge us 46%
+- [32:32.300] and much higher for certain items like cars,
+- [32:35.420] little items like cars. 46%. We're charging him 24%.
+- [32:40.390] India, very, very tough. Very, very tough.
+- [32:43.840] The Prime Minister just left and he's a great friend of mine,
+- [32:47.550] but I said, "You're a friend of mine,
+- [32:48.980] but you're not treating us right."
+- [32:51.620] They charge us 52%. You have to understand,
+- [32:53.930] we charge them almost nothing for years and years and decades.
+- [32:56.790] And it was only seven years ago when I came in,
+- [33:02.220] we started with China charge that we took in hundreds
+- [33:05.130] of billions of dollars from China in tariffs.
+- [33:09.020] And they understood, honestly. President Xi understood.
+- [33:12.960] He said, "Look, I understand."
+- [33:14.280] And the other countries… And they all understand.
+- [33:16.500] We're going to have to go through
+- [33:17.770] a little tough love maybe, but they all understand.
+- [33:20.730] They're ripping us off and they understood it.
+- [33:23.680] Prime Minister of Japan, Shinzo…
+- [33:28.070] Was Shinzo Abe. He was a fantastic man.
+- [33:31.470] He was unfortunately taken from us, assassination.
+- [33:35.770] But I went to him and I said,
+- [33:37.040] "Shinzo, we have to do something.
+- [33:39.640] The trade is not fair."
+- [33:40.900] And he said, "I know that. I know that."
+- [33:44.080] And he was a great gentleman. He was a fantastic man.
+- [33:48.900] But he understood immediately what I was talking about.
+- [33:52.040] I said, "Shinzo, we have to do something."
+- [33:53.720] He said, "I know that." And we worked out a deal
+- [33:56.770] and it would've been a much better deal.
+- [33:58.170] But frankly, there were many years left on the deal
+- [34:01.140] that was made previous to my getting there.
+- [34:02.850] But it was something.
+- [34:06.130] If you look at Switzerland, 61% to 31%.
+- [34:09.450] Indonesia, Malaysia, Cambodia… Oh, look at Cambodia, 97%,
+- [34:15.500] we're going to bring it down to 49.
+- [34:17.080] They made a fortune with the United States of America.
+- [34:19.780] United Kingdom, 10% and we'll go 10%.
+- [34:23.840] So we'll do the same thing. South Africa, oh, 60%, 30%
+- [34:29.610] and they've got some bad things going on in South Africa.
+- [34:33.650] We're paying them billions of dollars a week.
+- [34:36.570] Cut the funding because a lot of bad things
+- [34:38.640] are happening in South Africa.
+- [34:39.970] The fake news ought to be looking at it.
+- [34:41.500] They don't want to report it. Brazil, 10%, 10%.
+- [34:45.740] Bangladesh is 74%. So you see what's going on.
+- [34:50.820] Pakistan, 58%. Sri Lanka, 88%.
+- [34:57.480] So what we're doing is we're taking not the full…
+- [35:00.330] We could take the full 88%. Thanks a lot.
+- [35:02.810] He's doing a very good job. How's he doing? All right?
+- [35:06.190] I think you better take it with you.
+- [35:07.630] It's not going to last very long.
+- [35:09.770] He's going to put… It's going to follow you down with the wind.
+- [35:13.510] I brought a hat just in case it got too windy, but here…
+- [35:16.390] Would anybody like a hat?
+- [35:18.830] I'm not giving it to the cabinet.
+- [35:20.810] I'm giving it to the auto workers. Come here.
+- [35:27.870] Thank you fellas. Get it. That's it. That's it.
+- [35:34.350] They deserve it more than our cabinet.
+- [35:37.790] Our cabinet has plenty of hats, but you see the numbers.
+- [35:41.940] The numbers are so disproportionate,
+- [35:43.750] they're so unfair. At the same time,
+- [35:46.110] we'll establish a minimum baseline tariff of 10%.
+- [35:49.770] You notice that on the chart?
+- [35:51.660] And that'll be on other countries
+- [35:53.730] to help rebuild our economy and to prevent cheating.
+- [35:57.140] So we're going to have a minimum of cheating
+- [35:59.490] and we're going to be very severe on the people at the gate
+- [36:02.580] that watch the tariffs and watch the product coming in
+- [36:05.440] because there's been a lot of bad things happening at the gate
+- [36:09.600] because the money is so enormous that you're talking about.
+- [36:11.930] There's never been probably anything like it
+- [36:14.570] in terms of the enormity.
+- [36:16.810] And there are a lot of bad things happen
+- [36:18.820] that the people that do the check in
+- [36:20.710] and they're looking at 10 year jail sentences, if they do play…
+- [36:24.070] We're going to treat them so good, but if they cheat,
+- [36:26.250] the repercussions are going to be extremely strong.
+- [36:30.050] Foreign nations will finally be asked to pay for the privilege
+- [36:33.310] of access to our market, the biggest market in the world.
+- [36:37.110] We're right now the biggest market in the world.
+- [36:39.080] We had a great country four years ago
+- [36:42.260] in terms of the economics.
+- [36:43.910] We were doubling up on China. We were doing so well.
+- [36:46.550] Nobody was going to catch us, but so much of it slipped away
+- [36:49.790] over the last four years under Biden.
+- [36:52.330] I campaigned on this policy throughout last year and today
+- [36:55.590] that promise was made and it was also a promise,
+- [36:59.240] as you know, that was kept. Promises made, promises kept.
+- [37:06.590] To any company that objects
+- [37:08.300] to our common sense reciprocal tariffs…
+- [37:10.550] Again, reciprocal back and forth, back and forth.
+- [37:15.670] I call this kind reciprocal. This is not full reciprocal.
+- [37:19.950] This is kind reciprocal, but what we do
+- [37:24.110] is we cut it in half, we charge them.
+- [37:26.370] My answer is very simple if they complain.
+- [37:28.410] "If you want your tariff rate to be zero,
+- [37:31.320] then you build your product right here in America
+- [37:33.690] because there is no tariff if you build your plant,
+- [37:36.240] your product in America."
+- [37:39.420] And we've seen companies coming in like we've never seen before.
+- [37:44.050] Likewise to all of the foreign presidents,
+- [37:46.500] prime ministers, kings, queens, ambassadors,
+- [37:49.330] and everyone else who will soon be calling
+- [37:51.750] to ask for exemptions from these tariffs, I say,
+- [37:55.740] "Terminate your own tariffs. Drop your barriers.
+- [37:59.000] Don't manipulate your currencies."
+- [38:01.440] They manipulate their currencies like nobody can even believe,
+- [38:05.160] which is a bad, bad thing and very devastating to us,
+- [38:09.000] and start buying tens of billions of dollars
+- [38:11.180] of American goods.
+- [38:12.520] Tariffs give our country protection against those
+- [38:15.770] that would do us economic harm.
+- [38:17.520] And many people were looking to do us economic harm.
+- [38:21.010] Maybe not so obviously,
+- [38:24.810] but they were doing tremendous economic harm.
+- [38:27.800] But even more importantly, they will give us growth.
+- [38:30.560] These tariffs are going to give us growth
+- [38:32.500] like you haven't seen before,
+- [38:34.400] and it'll be something very special to watch.
+- [38:36.950] I am so looking forward,
+- [38:39.010] and Brian, it's going to happen even faster than you said.
+- [38:42.760] You might say, "But it's already started."
+- [38:45.610] It's already started.
+- [38:47.330] Work's already begun on plants all around the country
+- [38:50.470] and you see that it's before… These are big, rich companies.
+- [38:54.130] We have $61 billion started on a big plant going up.
+- [38:59.380] It's going to be announced over the next two days,
+- [39:01.370] and they already started work.
+- [39:03.190] Many of the biggest companies in the world,
+- [39:06.270] they've committed to build, build, build.
+- [39:08.370] "We're going to build, build, build, sir."
+- [39:10.730] And they came here to see me and they wanted to know
+- [39:13.260] if they could have a press conference.
+- [39:14.870] I do as many as I can.
+- [39:16.110] I'm pretty busy trying to stop Russia and Ukraine
+- [39:18.890] and the Middle East. We've got to stop that.
+- [39:21.590] We've got to stop the Houthis, which we're making tremendous…
+- [39:25.190] They like shooting ships down and out of the water,
+- [39:27.840] sinking ships. They get a kick out of it,
+- [39:30.130] but they're not getting such a kick out of it now,
+- [39:32.190] are they, Mr. Secretary?
+- [39:34.170] They're not getting such a kick out of that now.
+- [39:37.010] But here are just a short list of some of the companies
+- [39:40.590] that have already announced and committed to investment,
+- [39:45.050] and this is a company that built its factories
+- [39:48.430] and its plants in China.
+- [39:50.400] Apple is going to spend $500 billion.
+- [39:55.380] They never spent money like that here.
+- [39:57.520] They're going to build their plants here.
+- [39:59.760] SoftBank, OpenAI, and Oracle, great,
+- [40:03.910] great companies are investing $500 billion almost immediately.
+- [40:09.960] Nvidia, a hot company,
+- [40:11.500] is investing hundreds of billions of dollars.
+- [40:13.710] They just announced.
+- [40:14.990] TSMC, the biggest most important company
+- [40:18.680] in the world of chips from Taiwan
+- [40:21.540] with no investment from us is investing $200 billion.
+- [40:25.350] And they said the reason was, number one,
+- [40:27.290] the election of November 5th, and number two, the tariffs.
+- [40:30.790] They don't want to pay the tariffs,
+- [40:32.170] and the way they're not paying it is to build their plan here.
+- [40:34.990] So we're going to go from almost no percentage…
+- [40:37.570] We used to have a hundred percent of the chip market.
+- [40:39.590] Now it's all in Taiwan, almost all of its in Taiwan,
+- [40:42.380] a couple of other countries, but mostly in Taiwan.
+- [40:45.320] And think of it, we had a hundred percent,
+- [40:48.160] we lost it because of people in that office
+- [40:50.360] that didn't do their job.
+- [40:51.700] They allowed it to be stolen from us.
+- [40:54.490] Johnson & Johnson, great company, $55 billion.
+- [40:58.190] Eli Lilly, $27 billion. Meta is investing $500 billion.
+- [41:05.140] Wow. De Mac is investing $20 billion.
+- [41:10.050] CMA, CGM, $20 billion.
+- [41:13.520] And then you have Merck and Clarios, Stellantis,
+- [41:17.020] General Motors, GE Aerospace, Honda, Nissan,
+- [41:21.000] Hyundai are all putting in billions and billions of dollars
+- [41:24.610] and they're committed a hundred percent.
+- [41:27.790] And we never had… and this is after two and a half months.
+- [41:33.310] This is after just a short…
+- [41:34.620] This all took place as soon as we came out
+- [41:37.370] with what everybody wanted to do.
+- [41:39.760] I watched a gentleman today on television,
+- [41:42.350] he used to work with Lee Iacocca,
+- [41:44.100] a very respected automobile person, and he said…
+- [41:48.020] Because they were asking people and they try
+- [41:49.650] and get as many negative people as they can,
+- [41:51.670] but they can't find them too much.
+- [41:52.950] It's pretty hard to find in terms of what we're doing,
+- [41:55.670] especially when they see all this investment.
+- [41:57.890] They said, "So tell me, what do you think of what Trump
+- [42:00.620] is doing from the automobile standpoint?"
+- [42:02.470] He said, "I can't believe it. Somebody is finally…"
+- [42:06.830] He's an older guy, real pro, really top guy with Lee Iacocca.
+- [42:11.430] He said, "I never thought I'd see the day
+- [42:13.770] when this would happen where somebody had the courage to go
+- [42:16.760] and do what has to be done. This is transforming our nation.
+- [42:20.740] Our entire nation is going to be transformed
+- [42:23.270] not only with the cars,
+- [42:25.060] but on every single other item that's built."
+- [42:28.430] We're going to become an industrial powerhouse.
+- [42:30.370] And he said that so beautifully today.
+- [42:32.460] In fact, I'm going to find out… I'm going to get a tape,
+- [42:36.120] and Bruce, I'm going to get that tape
+- [42:37.880] and I'm going to send it to you out in Long Island,
+- [42:39.750] and you're going to play it for the people
+- [42:41.560] and all your union workers
+- [42:42.940] and your non-union workers out there.
+- [42:44.570] You've got a pretty even split.
+- [42:49.610] So far, it looks like we're going to have about
+- [42:51.450] $6 trillion of investments,
+- [42:53.800] and you wouldn't do that in years in this country
+- [42:57.490] over the last number of years.
+- [42:59.000] $6 trillion, and that's going to be much higher
+- [43:02.020] by the end of the year.
+- [43:03.670] And think of what $6 trillion is.
+- [43:06.280] You wouldn't have even a small percentage of that
+- [43:10.040] under this other system.
+- [43:11.360] We're going to be an entirely different country,
+- [43:13.370] and it's going to be fantastic for the workers.
+- [43:15.330] It's going to be fantastic for everyone.
+- [43:17.840] There will never have been a transformation of a country
+- [43:20.500] like the transformation that's already happening
+- [43:23.310] in the United States of America.
+- [43:25.070] It's an incredible thing to watch,
+- [43:26.660] and it's incredible to meet with the top people,
+- [43:29.570] people that you read about, very wealthy people
+- [43:32.110] or people that are great managers
+- [43:34.380] and executives and presidents of big public companies,
+- [43:38.280] and to watch the enthusiasm they have now that they didn't have.
+- [43:41.040] They gave up on our country.
+- [43:42.370] They went to foreign countries and they built…
+- [43:45.180] Companies are pouring into our country
+- [43:47.590] at levels never seen before with jobs and money to follow,
+- [43:51.510] and it's really beautiful. In the coming days,
+- [43:54.110] there will be complaints from the globalists
+- [43:56.400] and the outsourcers and special interests and the fake news.
+- [44:00.490] The fake news will always complain, but never forget,
+- [44:04.230] every prediction our opponents made about trade
+- [44:06.950] for the last 30 years has been proven totally wrong.
+- [44:10.540] They were wrong about NAFTA. They were wrong about China.
+- [44:14.280] They were wrong about the Trans-Pacific partnership,
+- [44:17.590] which would've been a disaster if I didn't terminate it.
+- [44:20.100] If I didn't terminate that, United Auto Workers,
+- [44:24.550] you would've had no jobs in this country.
+- [44:27.400] You would've had no jobs.
+- [44:29.720] It was all going to other countries.
+- [44:33.070] In my first term, they said tariffs would crash the economy.
+- [44:37.710] Instead, we built the greatest economy
+- [44:39.300] in the history of the world.
+- [44:40.590] And again, I have great respect for President Xi of China,
+- [44:43.840] great respect for China,
+- [44:45.100] but they were taking tremendous advantage of us,
+- [44:49.920] and I commend them for that.
+- [44:51.300] I say, "Hey, if you can get away with it, that's okay."
+- [44:54.670] But they understand exactly what's happening,
+- [44:58.380] and most of them are saying, "
+- [45:00.190] It's about time they did something,"
+- [45:02.470] and they're going to fight. And they're going to fight…
+- [45:04.440] Everyone's going to fight. I say to the leaders,
+- [45:08.270] "Look, you've got to take care of your country,
+- [45:09.980] but we have to start taking care of our country now.
+- [45:12.540] We can't do what we've been doing for the last 50 years."
+- [45:15.100] From the day of my election,
+- [45:17.270] the stock market went up in my first term,
+- [45:19.690] 88% with NASDAQ going up 155% more than any president
+- [45:26.150] has ever had in any term in office by far.
+- [45:32.400] And I think we're going to blow that away
+- [45:34.140] and maybe the numbers won't show,
+- [45:37.180] but I think they're going to show much better
+- [45:38.820] than even those numbers.
+- [45:40.060] But what you're going to see is you're going to see activity,
+- [45:42.240] that empty dead sites, factories that are falling down,
+- [45:46.620] those factories will be knocked down,
+- [45:48.090] and they're going to have brand new factories
+- [45:49.580] built in their place.
+- [45:50.800] They're not only talking about renovating,
+- [45:52.480] they're talking about brand new, the best anywhere in the world,
+- [45:55.790] the biggest anywhere in the world.
+- [45:57.160] I have a friend who builds car plants and I said,
+- [45:59.860] "I want to see the biggest and the best."
+- [46:01.510] He said, "Well, we have to go to Mexico."
+- [46:03.950] I said, "No, I want to see it in the United States."
+- [46:05.890] He said, "We're not building them."
+- [46:07.180] And then this is a year and a half ago.
+- [46:09.010] During the campaign, he said, "We're not building.
+- [46:10.930] You'd have to go to Mexico."
+- [46:12.850] When I was starting to decide to run…
+- [46:15.540] And I went to number one in the polls very rapidly,
+- [46:17.930] I want to say, let's say in the first hour,
+- [46:23.830] and then shortly thereafter, it looked like I was going to win.
+- [46:26.270] And the fake news was saying, "Oh no, don't do this."
+- [46:29.360] What they don't know is if I didn't win,
+- [46:31.100] they would've really been in trouble
+- [46:33.230] because nobody wants to read them anyway,
+- [46:35.610] but I tell you what.
+- [46:38.090] When it looked like I was going to win,
+- [46:40.190] I announced that I was going to be doing
+- [46:41.960] exactly what we're talking about today.
+- [46:43.890] Great consistency actually,
+- [46:45.270] because I've been talking about it for 40 years
+- [46:48.650] because I saw what was happening 40 years ago.
+- [46:50.830] If you look at my old speeches when I was young,
+- [46:53.740] very handsome, my old speeches, people would say…
+- [46:58.660] I'd be on a television show.
+- [47:00.140] I'd be talking about how we were being ripped off
+- [47:02.350] by these countries.
+- [47:03.640] I mean, nothing changes very much.
+- [47:05.430] The only thing that changed were the countries,
+- [47:07.690] but nothing really changes.
+- [47:09.750] It's why it's such an honor to be finally able to do this.
+- [47:15.200] If you look at China, I took in hundreds of billions of dollars
+- [47:19.840] in my term, hundreds of billions.
+- [47:22.630] They never paid 10 cents to any other president,
+- [47:26.360] and yet they paid hundreds of billions,
+- [47:28.060] so much so that Biden couldn't do anything.
+- [47:31.010] They wanted to try and terminate it
+- [47:33.410] because he had a very special relationship with China.
+- [47:36.520] You know what the relationship was?
+- [47:38.560] He had a special relationship,
+- [47:41.090] but the numbers were so big that they couldn't do it.
+- [47:47.550] So they did ease it up.
+- [47:49.230] They did things that they shouldn't have done.
+- [47:51.010] They made it a lot more comfortable for them,
+- [47:53.660] but they couldn't do it
+- [47:55.020] because the numbers were hundreds of billions of dollars.
+- [47:57.950] And I did that,
+- [47:59.390] and we were on our way to doing something incredible.
+- [48:03.970] And then we had a very bad election happen,
+- [48:06.160] a very bad election. A lot of bad things happened.
+- [48:08.290] So when I said we've got to do it again,
+- [48:10.670] I said, we have to make it too big to rig.
+- [48:12.480] And we made it too big to rig and we won in records,
+- [48:15.170] and it was a monumental win.
+- [48:18.560] And it was such an honor to see so many of you,
+- [48:21.400] like Brian and your friends, here with us to celebrate
+- [48:25.630] and to more importantly celebrate what we're doing,
+- [48:27.880] because that wouldn't be a full celebration
+- [48:29.550] if we didn't do this.
+- [48:30.780] Because this will be an entirely different country
+- [48:33.200] in a short period of time.
+- [48:35.040] It'll be something the whole world will be talking about.
+- [48:37.860] The critics made the very tired predictions earlier this year,
+- [48:42.560] but in February, core inflation
+- [48:44.570] dropped to the lowest rate in four years.
+- [48:47.530] And the price of eggs, as you know,
+- [48:49.130] just in a month and a half, we were there for four weeks
+- [48:55.090] and the first week I got blamed for eggs.
+- [48:58.080] I said, I just got here.
+- [48:59.780] They said, eggs have gone up at like 250%
+- [49:03.660] and you can't get eggs. And they were going crazy.
+- [49:07.010] And I said, I just got here. And then we got to work on eggs
+- [49:13.210] and we got to work on everything.
+- [49:14.750] And our great Secretary of Agriculture,
+- [49:17.540] you did a fantastic job, Brooke Rollins,
+- [49:20.080] she did a fantastic job.
+- [49:21.670] And as I said before, the price of eggs drop now 59%
+- [49:27.010] and they're going down more and the availability is fantastic.
+- [49:30.090] They were saying that for Easter,
+- [49:32.040] please don't use eggs. Could you use plastic eggs?
+- [49:34.710] I said, we don't want to do that.
+- [49:36.860] And you really came through. It's amazing job.
+- [49:38.970] Thank you very much, Brooke. You did great.
+- [49:40.890] But likewise, an old-fashioned term that we use groceries.
+- [49:43.720] I used it on the campaign.
+- [49:45.800] It's such an old-fashioned term, but a beautiful term, groceries.
+- [49:48.860] It says a bag with different things in it.
+- [49:51.440] Groceries went through the roof and I campaigned on that.
+- [49:55.280] I talked about the word groceries for a lot.
+- [49:57.850] And energy costs now are down.
+- [49:59.970] Groceries are down. Gasoline is way under $3.
+- [50:03.130] And people are beginning to be able to buy things
+- [50:06.270] and live again. We brought prices way down.
+- [50:08.910] We created 10,000, already in a few weeks,
+- [50:12.330] new manufacturing jobs.
+- [50:14.240] And that took place in one month.
+- [50:16.980] Numbers that they haven't seen in a long time.
+- [50:18.940] We had virtually no inflation under my term.
+- [50:21.790] We had virtually no inflation for four years.
+- [50:24.940] But after transitioning over to Sleepy Joe,
+- [50:28.840] it went from almost non-
+- [50:30.110] existent to the highest in the history of our country.
+- [50:33.290] They had the highest inflation in the history of our country,
+- [50:36.900] brought up by energy and bad spending and bad policy
+- [50:40.030] and a lot of bad things happened.
+- [50:41.910] How about allowing millions and millions
+- [50:44.590] and millions of people to pour into our country
+- [50:47.180] with open borders where it's so sad to see even now.
+- [50:52.940] And I see our great secretary of you have done…
+- [50:56.190] Stand up please, Kristi. Stand up.
+- [50:59.720] Kristi Noem and Tom Homan.
+- [51:05.990] These people are doing a great job.
+- [51:08.690] Gotten them out at records.
+- [51:10.330] We have problems with judges that don't want them to go out.
+- [51:12.870] They want Tren de Aragua and they want MS-13
+- [51:17.260] the most vicious gangs ever.
+- [51:19.130] Nobody's ever seen anything like it.
+- [51:20.570] Absolute killer gangs.
+- [51:22.100] They kill people, they don't even think about it.
+- [51:24.510] And we put them out and we have judges now,
+- [51:26.140] radical left judges that want to,
+- [51:28.410] they don't want them to go out.
+- [51:29.740] They want them to even be brought back.
+- [51:31.210] Let's bring them back.
+- [51:32.440] You've done a fantastic job and please thank everybody.
+- [51:35.510] Homeland Security, thank everybody. Appreciate it.
+- [51:40.730] And we now have a border
+- [51:42.000] that's the best border that we've ever had.
+- [51:45.870] Even better than it was my first term.
+- [51:48.400] My first term we did good.
+- [51:49.770] But this one we really specialized in.
+- [51:51.620] We've done really well.
+- [51:53.270] And we had records then, we were the best, safest border.
+- [51:57.380] Four years ago we had the best border there ever was.
+- [51:59.840] And now you've actually matched it and done even better
+- [52:04.140] and we're going to get it down the right way.
+- [52:06.460] And we want people, by the way, to come into our country,
+- [52:09.260] but we want to come in through a legal process.
+- [52:11.810] We want them to come in legally. We need more people.
+- [52:14.770] We need people to run these plants
+- [52:16.510] and to help the auto workers and the teamsters
+- [52:19.340] and the non-union people and everybody else,
+- [52:21.950] but we need people, and the farmers.
+- [52:23.790] And we're going to let people come in.
+- [52:25.390] But they want to come in. We want them to come in legally.
+- [52:27.660] They have to have the capability of loving our country.
+- [52:30.100] Not people that hate our country,
+- [52:31.490] we don't want them in our country.
+- [52:33.400] And now we're going to pass
+- [52:34.690] the largest tax cuts in American history.
+- [52:38.840] And that's where we're relying on Mike and John Thune.
+- [52:42.650] And we will not cut Social Security, Medicare
+- [52:46.210] or Medicaid benefits.
+- [52:47.950] And the Democrats will, because if they got in,
+- [52:51.800] the entire economy would collapse.
+- [52:53.830] This country was heading for a collapse
+- [52:56.240] under the people that you saw. They were horrible.
+- [53:00.370] I think one of the reasons people liked the job…
+- [53:02.380] I had my highest approval rate
+- [53:03.650] is because I think they're comparing me
+- [53:05.610] to the worst administration in the history of our country.
+- [53:09.400] So I appreciate that at least.
+- [53:11.810] But Speaker of the House,
+- [53:13.020] Mike Johnson and Senate Majority Leader,
+- [53:16.160] appreciate it, Mike, John Thune have been fantastic by the way.
+- [53:22.000] But they've been working tirelessly
+- [53:23.740] on taking the next step to pass the plan
+- [53:26.200] for our one big beautiful bill.
+- [53:29.380] I'd like to name it that if you can.
+- [53:32.510] I made that statement about six months ago
+- [53:34.530] and everybody calls it one big beautiful bill,
+- [53:37.180] and it will be that. It'll have everything,
+- [53:39.070] the big tax cuts and every incentive there is.
+- [53:41.980] And it'll be fantastic. And by the way, for the cars,
+- [53:46.030] we're asking for an interest deduction on a loan.
+- [53:49.200] So if you build the car only in America,
+- [53:51.930] we do it, Brian, if the car's not built in America,
+- [53:54.230] you don't get the interest rate deduction.
+- [53:55.690] Male Speaker: Thank you.
+- [53:56.920] The President: But if you build the car in America…
+- [53:58.980] If you buy a car, if it's built in America,
+- [54:01.580] then you get an interest rate deduction, tax deduction.
+- [54:05.660] And that's a big thing. That's going to be a big thing.
+- [54:08.360] I think that's going to pay for itself very quickly,
+- [54:10.270] that deduction. Never happened.
+- [54:12.020] We've never had anything like that before.
+- [54:13.750] Somebody said, where do you get the idea?
+- [54:15.360] Because it's so basic.
+- [54:16.600] You would think that would've happened a long time ago.
+- [54:18.910] It never did. And I'm very happy it didn't
+- [54:21.820] because now I can say that was my idea.
+- [54:25.830] But we're going to get us closer to the debt extension.
+- [54:30.130] We have to get the debt extension passed.
+- [54:32.210] And I know you're going to be able to do that, Mike,
+- [54:34.000] and it's very important that you do that.
+- [54:36.290] And all of the other things that the Senate budget plan
+- [54:39.320] gives us along with working,
+- [54:40.940] because I know they're working together, John and Mike,
+- [54:43.780] and the two bills are going very well together.
+- [54:46.010] We need to get our shared priorities done,
+- [54:48.850] including certain permanent tax cuts.
+- [54:50.920] We want the tax cuts to be permanent.
+- [54:52.870] Spending cuts, energy and historic investments
+- [54:56.280] in defense, border and so much more.
+- [54:58.610] We're covering everything. These will be phenomenal.
+- [55:01.980] There'll be no bill like this.
+- [55:04.360] One bill is going to straighten out our country for many,
+- [55:07.080] many years to come.
+- [55:08.530] And we said, let's just do it and let's get it done.
+- [55:10.980] And some guys will love it
+- [55:13.130] and some guys will like it a little bit less
+- [55:15.050] because they're not getting what they were exactly looking for,
+- [55:18.330] but they're getting a lot.
+- [55:20.190] If we get this done, it'll be the most incredible bill
+- [55:23.700] ever passed in the history of our Congress and Senate
+- [55:27.900] and congressmen, the senators and the congressmen,
+- [55:30.210] many of whom are here today will be very proud of themselves.
+- [55:33.200] I really believe that it's going to set us
+- [55:35.390] on a whole new prosperous path.
+- [55:38.070] We're going to cut spending and rightsize the budget back
+- [55:41.110] to where it should be.
+- [55:42.400] We're going to do that very strongly.
+- [55:46.690] Thank you, Rick, thank you. John, thank you.
+- [55:49.210] Oh, look at all of our senators over.
+- [55:51.770] Oh, boy. That's a nice group of people,
+- [55:54.770] but I won't like them so much if they don't get this bill done.
+- [55:59.050] That's a great group.
+- [56:00.260] And Congressman, thank you very much.
+- [56:01.920] I appreciate it. Tremendous people.
+- [56:04.290] The Senate plan is my complete and total support.
+- [56:07.180] And the House plan likewise is very similar.
+- [56:10.440] They're moving along pretty much at the same clip.
+- [56:13.080] And as soon as you're ready, you'll show it to me
+- [56:14.960] and I'm sure it'll have my support, Mike.
+- [56:17.200] Every republican, congressman and senator must unify.
+- [56:20.970] We have to unify. We can't be separated.
+- [56:23.710] We have to get it done.
+- [56:24.940] We have to get absolutely everything we can
+- [56:27.400] and we have to take care of the American people.
+- [56:29.420] That's the only thing that matters.
+- [56:30.660] We have to take care of the American people first.
+- [56:33.330] We need to pass this bill immediately get it done,
+- [56:36.670] including debt extension.
+- [56:38.870] From this day on, we're not going to let anyone tell us
+- [56:42.040] that American workers
+- [56:43.260] and families cannot have the future that they deserve.
+- [56:46.620] We're going to produce the cars and ships, chips,
+- [56:49.670] airplanes, minerals,
+- [56:51.060] and medicines that we need right here in America.
+- [56:54.560] The pharmaceutical companies are going to become roaring back.
+- [56:57.750] They're coming roaring back.
+- [56:59.520] They're all coming back to our country
+- [57:01.500] because if they don't, they got a big tax to pay.
+- [57:04.280] And if they do, I'll be very happy
+- [57:07.080] and you're going to be very happy
+- [57:08.510] and you're going to be very safe.
+- [57:09.780] We're going to build our future with American hands,
+- [57:13.060] with American heart, American steel,
+- [57:15.370] and we're going to build it with American pride like we used to.
+- [57:18.940] We're approaching our 100th day as president
+- [57:22.680] and have been given credit by a lot of people, actually,
+- [57:27.500] even some of the fake news, can you believe it?
+- [57:30.550] Which in this case hopefully isn't fake.
+- [57:32.890] For having done more in that time
+- [57:34.720] than any other administration
+- [57:37.130] in the history of our country in the first 100 days.
+- [57:39.560] I think we've had an amazing in terms of what we've done,
+- [57:42.930] what we've gotten accomplished,
+- [57:45.220] like to see if we can get that war ended and another war
+- [57:50.060] from not starting in the Middle East.
+- [57:52.430] We have to get Russia… They're losing on average,
+- [57:55.390] 2,500 people a day, young people, soldiers, Russian.
+- [58:01.130] Think of that. 2,500 through some days,
+- [58:05.350] but on average probably over about a one week period,
+- [58:09.030] it's 2,712 they say. They're losing those soldiers.
+- [58:14.620] They're dying. They're being decimated.
+- [58:17.160] And they're not from our country,
+- [58:19.410] but they're from other countries.
+- [58:21.260] But they're human beings. They're from Russia.
+- [58:24.200] They're from Ukraine in this period, most of them.
+- [58:27.440] And we're going to get it stopped.
+- [58:28.920] It's a senseless war that would've never happened
+- [58:31.070] if I was president and it shouldn't be allowed to go on.
+- [58:37.530] And I think we're being given good cooperation by Russia
+- [58:41.390] and by Ukraine, but we have to get it stopped.
+- [58:43.580] It's humanity. It's humanity. It's a terrible thing.
+- [58:47.350] This will be a very big moment.
+- [58:50.060] I think you're going to remember today.
+- [58:51.510] It's going to be a free nation that we're dealing with.
+- [58:54.400] We're going to have a very free and beautiful nation.
+- [58:57.580] It's going to be Liberation Day in America
+- [59:00.190] and it's going to be a day
+- [59:01.420] that hopefully you're going to look back in years to come
+- [59:04.590] and you're going to say, he was right,
+- [59:06.130] this has turned out to be one of the most important days
+- [59:09.320] in the history of our country.
+- [59:11.070] God bless you, and God bless America.
+- [59:12.890] Thank you everybody. Thank you very much.
+- [59:15.730] Thank you. Thank you very much.
+- [59:35.490] Male Speaker: Sir-
+- [59:47.820] The President: This is Will everybody.
+- [59:49.110] He's going to just give you a little bit of
+- [59:52.210] [inaudible]. He's going to give you
+- [59:54.020] a little bit of a briefing on what we're signing.
+- [59:56.070] Male Speaker: Good afternoon, you all.
+- [59:57.290] We have two documents prepared
+- [59:58.670] for the President's signature today.
+- [01:00:01.120] One closes what's referred to as the de minimus loophole
+- [01:00:04.750] with respect to imports from the People's Republic of China.
+- [01:00:10.820] The other is, the big one,
+- [01:00:12.670] is the Reciprocal Tariff Executive Order
+- [01:00:15.120] that the President just spoke about at length.
+- [01:00:17.610] This is obviously a huge deal and it's been an honor
+- [01:00:19.950] to be a part of your team getting this ready for you, sir.
+- [01:00:21.970] The President: Thank you very much.
+- [01:00:23.210] Thank you.
+- [01:00:24.410] Male Speaker: Yes, sir.
+- [01:00:30.190] The President: This is a big step.
+- [01:00:49.250] That's a 10. That's a good one, look.
+- [01:00:52.670] That's a good one. That's a good one. Thank you.
+- [01:01:02.640] Male Speaker: Thank you, sir.
+- [01:01:18.550] The President: Okay. Thank you very much.
+- [01:01:19.850] I'm going to hand out these pens now, if I can.
+- [01:01:21.670] Male Speaker: Come on over?
+- [01:01:23.130] The President: Come on over, yeah.
+- [01:01:29.660] Thank you very much.
+- [01:01:31.480] Male Speaker: Thank you, Mr. President.
+- [01:01:33.590] Thank you, sir.

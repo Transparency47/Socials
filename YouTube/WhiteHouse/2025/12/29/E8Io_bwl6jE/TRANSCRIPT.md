@@ -1,0 +1,354 @@
+<!-- source: https://www.youtube.com/watch?v=E8Io_bwl6jE -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: E8Io_bwl6jE -->
+<!-- date_published: 2025-12-29T20:41:56+00:00 -->
+<!-- date_accessed: 2026-06-02T01:07:59.801100+00:00 -->
+
+# Transcript: President Trump Greets the Prime Minister of Israel at Mar-a-Lago
+
+- [00:08.500] (inaudible)
+- [00:18.610] The President: Does anybody recognize this man?
+- [00:21.400] Not too many people.
+- [00:23.610] They've been very fair for the last three days.
+- [00:28.240] The Press: President Trump,
+- [00:29.520] how are you going to have a green light
+- [00:31.150] for (inaudible) attack in Iraq?
+- [00:40.760] The President: Go ahead, go ahead.
+- [00:42.010] The Press: (inaudible)
+- [00:47.600] The President: As quickly as we can,
+- [00:49.140] but there has to be a disarmament.
+- [00:51.600] You know that we have to disarm Hamas.
+- [00:55.240] One of the things we'll talk about, certainly,
+- [00:56.970] but there have to be a disarming of Hamas.
+- [01:03.540] Otherwise, very quickly. Yeah?
+- [01:05.170] The Press: (inaudible)
+- [01:06.430] more about the explosion in Venezuela
+- [01:09.060] that you mentioned in a radio interview.
+- [01:11.760] Did the military do that?
+- [01:13.050] Do you -- share your thoughts on that?
+- [01:14.360] The President: Well, it doesn't matter,
+- [01:15.560] but there was a major explosion in the dock area
+- [01:17.960] where they load the boats up with drugs.
+- [01:20.920] They load the boat up with drug,
+- [01:22.270] so we hit all the boats and now we hit the area.
+- [01:25.180] It's the implementation area.
+- [01:27.360] That's where they implement and that is no longer.
+- [01:31.060] The Press: (inaudible)
+- [01:34.300] The President: I don't want to comment.
+- [01:35.670] The Press: (inaudible)
+- [01:47.980] The President: No, I don't know about it,
+- [01:49.540] actually, and I don't --
+- [01:51.150] I just heard about it actually, but I don't know about it.
+- [01:54.430] That would be too bad. That would not be good.
+- [01:57.280] The Press: (inaudible)
+- [02:00.650] The President: I had a very good talk this morning,
+- [02:03.530] I waited until this morning because it was pretty late
+- [02:06.450] by the time we finished, like 2:30 in Russia,
+- [02:09.640] 2:30 in the morning. We had a very good talk.
+- [02:12.000] We spoke at 8 o'clock in the morning, our time,
+- [02:15.310] and it was a very productive talk.
+- [02:17.010] We have a few very thorny issues as you can imagine,
+- [02:21.780] he knows about thorny issues
+- [02:22.990] probably better than anybody in the world,
+- [02:24.970] but it's working out. We have a couple of issues
+- [02:29.680] that we're going to get resolved, hopefully.
+- [02:31.740] And if we get them resolved, you're going have peace.
+- [02:34.100] You're going to have Ukraine --
+- [02:36.330] they're losing 26,000 soldiers a month.
+- [02:39.340] Can you believe it? A month.
+- [02:40.640] Twenty-six thousand young, beautiful soldiers.
+- [02:43.960] And plus some people in Kiev and relatively small,
+- [02:48.680] but still people, and it's a lot of people.
+- [02:51.890] But 26, 000 soldiers were killed last month.
+- [02:55.240] Yes, yes.
+- [02:56.480] The Press: President Trump,
+- [02:57.690] are you going to allow Turkish forces
+- [02:59.570] or do you expect Turkish forces to be stationed in Gaza?
+- [03:04.450] The President: So, I have a great relationship
+- [03:06.870] with President Erdogan, and we'll be talking about it.
+- [03:10.410] And if it's good, I think that's good.
+- [03:12.000] And a lot will be having to do with Bibi.
+- [03:15.570] We're going to be talking that. But Turkey has been great,
+- [03:18.760] and he's been, you know, excellent,
+- [03:21.020] as far as I'm concerned. I don't know about you. To me,
+- [03:25.180] he's -- to me, he's been very good.
+- [03:28.930] Sure, please.
+- [03:30.450] The Press: (inaudible)
+- [03:32.320] about your relationship with Prime Minister Netanyahu
+- [03:34.380] and how important it is for you to see him be pardoned by
+- [03:36.760] (inaudible)?
+- [03:38.080] The President: Look, he's a wartime prime minister.
+- [03:40.240] He's done a phenomenal job.
+- [03:42.150] He's taken Israel through a very dangerous period of trauma.
+- [03:47.890] Israel, with other people, might not exist right now,
+- [03:51.530] if you want to know the truth.
+- [03:53.050] That's a pretty big statement, but it's true. I feel that.
+- [03:55.270] If you had the wrong prime minister,
+- [03:57.240] Israel right now would not exist.
+- [04:00.120] Because they were met with a force
+- [04:03.440] the likes of which very few countries could have handled,
+- [04:06.980] and we worked together
+- [04:08.630] and we were extremely victorious, to put it mildly.
+- [04:12.220] Now I hear that Iran is trying to build up again,
+- [04:14.970] and if they are, we're going to have to knock them down.
+- [04:17.020] We'll knock them out, we'll knock the hell out of them,
+- [04:18.750] but hopefully that's not happening.
+- [04:21.110] I heard Iran wants to make a deal.
+- [04:22.780] If they want to make deal, that's much smarter.
+- [04:24.520] You know, they could have made a deal the last time
+- [04:26.910] before we went through, you know, a big attack on them,
+- [04:31.990] and they decided not to make the deal.
+- [04:34.920] They wish they made that deal.
+- [04:37.070] So I think, again, they should make a deal.
+- [04:40.820] They want to make a deal,
+- [04:42.760] but sometimes that doesn't happen.
+- [04:44.900] Yeah, please.
+- [04:46.210] The Press: (inaudible)
+- [04:48.620] would you support the overthrow of the Iranian regime?
+- [04:52.140] The President: Who?
+- [04:53.380] The Press: Iranian regime.
+- [04:54.600] The President: I'm not going to talk about
+- [04:55.840] overthrow of a regime.
+- [04:58.240] They've got a lot of problems that are in.
+- [04:59.730] They have tremendous inflation.
+- [05:02.030] Their economy is busted. The economy is no good.
+- [05:05.320] And I know that people aren't so happy.
+- [05:06.830] But don't forget, every time they have a riot
+- [05:09.700] or somebody forms a group, little or big,
+- [05:12.460] they start shooting people. You know, they kill people.
+- [05:16.690] And the people tend to, I've watched this for years,
+- [05:21.680] is tremendous discontent.
+- [05:23.760] They form 100,000, 200,000 people.
+- [05:27.560] All of a sudden, people start getting shot.
+- [05:30.920] And that group disbanded pretty quickly.
+- [05:33.410] So I watched it for years.
+- [05:34.940] They're vicious, vicious people, yeah.
+- [05:37.510] The Press: (inaudible)
+- [05:39.050] you support an attack, an Israeli attack on Iran
+- [05:41.950] if Iran will not have a deal?
+- [05:43.880] If Iran will continue with their ballistic missiles
+- [05:46.230] and also nuclear weapons?
+- [05:48.520] The President: If they will continue with the missiles, yes.
+- [05:52.910] The nuclear, fast, okay? One will be yes, absolutely.
+- [05:58.070] The other was, we'll do it immediately.
+- [06:03.520] The Press: What are your plans regarding Gaza
+- [06:06.060] for the next few weeks?
+- [06:07.780] The President: What we're going to be dealing on Gaza.
+- [06:09.630] That's why this very great Prime Minister is here right now.
+- [06:13.500] We're talking about Gaza.
+- [06:14.750] We're taking about a lot of things.
+- [06:16.030] We have about five major subjects that we're discussing,
+- [06:19.510] and Gaza will be one of those subjects.
+- [06:20.980] The Press: Mr. President,
+- [06:22.240] can you guarantee that the last hostages
+- [06:24.650] (inaudible)
+- [06:26.020] will be released before we continue
+- [06:28.260] to the second phase of the Gaza plan?
+- [06:30.600] The President: Well, let's put it this way,
+- [06:32.790] every hostage just about that's been released was released
+- [06:35.910] because of me, Steve Witkoff, Jared Kushner,
+- [06:40.490] my whole team, Marco Rubio, Pete Hegseth.
+- [06:43.800] They were all released because of us.
+- [06:46.130] None were released in the Biden administration, none.
+- [06:49.940] They're all released because of us,
+- [06:51.460] then we had a lack of releases with respect to the dead
+- [06:56.940] and all of a sudden they started coming back
+- [06:58.800] because they said nope. (Inaudible)
+- [07:00.170] said we have one wonderful young man
+- [07:04.100] whose parents are right now inside.
+- [07:07.020] And what beautiful parents,
+- [07:08.970] a beautiful brother, sister, and a beautiful family,
+- [07:14.040] and they're waiting for their son.
+- [07:15.540] See, only one left,
+- [07:17.500] and we're doing everything we can to get his body back.
+- [07:20.930] And the parents just said, hopefully he's alive.
+- [07:23.730] And I said, I'd love you to think that way, okay?
+- [07:27.340] So we're doing everything we can.
+- [07:29.980] But if you think of it, out of all of these people,
+- [07:33.230] and I'm not just talking about the final 20,
+- [07:36.630] look at all of the people.
+- [07:38.160] What do you think the total number is?
+- [07:39.670] Prime Minister Netanyahu: Two- fifty-five.
+- [07:40.980] The President: Two-hundred and fifty-five.
+- [07:42.500] Prime Minister Netanyahu: Two-fifty-four came out.
+- [07:43.840] One more.
+- [07:45.060] The President: Think of that.
+- [07:46.290] And we got them all. Nobody else got them.
+- [07:49.490] The Press: President Trump does a reconstruction of Gaza --
+- [07:52.140] President Trump does a reconstruction of Gaza --
+- [07:53.900] The President: Hold on one second,
+- [07:55.170] you all do your -- just let her go.
+- [07:57.040] The Press: Does the reconstruction of Gaza
+- [07:58.520] will begin even before Hamas is
+- [08:00.410] (inaudible)?
+- [08:01.720] The President: I think it's going to begin pretty soon,
+- [08:03.210] you know?
+- [08:04.410] He's looking forward to it, so am I.
+- [08:06.620] Look, what a mess. What a mess it is.
+- [08:09.660] And it's been a mess for centuries.
+- [08:13.210] It's been mess for a long time. It seems to be born for that,
+- [08:19.630] but we're going to straighten it out.
+- [08:22.090] No, we're already starting certain things.
+- [08:24.340] We're doing things for sanitary conditions and others.
+- [08:27.610] But Gaza is a tough place to --
+- [08:29.720] you know the expression, it's a tough neighborhood.
+- [08:32.230] It's truly a tough -- it's truly a tough neighborhood.
+- [08:34.550] Yeah, you had a question in the back.
+- [08:37.050] Go ahead. Yeah, please go ahead.
+- [08:39.760] The Press: (inaudible)
+- [08:41.020] about the relationship between you and the Prime Minister.
+- [08:44.740] The President: What about it?
+- [08:46.030] The Press: (inaudible)
+- [08:49.590] The President: I don't think it can be better,
+- [08:50.970] so we just won a big war together.
+- [08:52.770] You know, if we didn't beat Iran,
+- [08:54.890] you wouldn't have had peace in the Middle East,
+- [08:56.510] because nobody would have been able to --
+- [08:57.880] the Arab countries, who have been fantastic,
+- [09:00.400] would not have been able to make a deal.
+- [09:02.460] If we didn't wipe out their nuclear, we wiped it out.
+- [09:04.880] If we don't wipe out with our beautiful B-2 bombers,
+- [09:08.670] and we sent a lot of tomahawks in there also,
+- [09:10.930] by the way, from a submarine.
+- [09:13.030] The Press: What's about the pardon (inaudible)?
+- [09:15.050] The President: A pardon? I think he will. How do you not?
+- [09:23.820] He's a wartime prime minister who's a hero.
+- [09:27.790] How do not give a pardon?
+- [09:29.150] You know, I think it's a very hard thing not to do it.
+- [09:31.900] I spoke to the president, and it's on --
+- [09:35.330] I mean, he tells me it's own its way.
+- [09:38.930] Can't do better than that, right? Please.
+- [09:42.030] The Press: I have a follow-up on Venezuela (inaudible)
+- [09:43.910] facility taken out by the U.S. military
+- [09:46.410] (inaudible)?
+- [09:47.700] The President: It was a long -- well I don't want to say that.
+- [09:49.880] I know exactly who it was,
+- [09:51.150] but I don't want to say who it is.
+- [09:53.080] But you know, it was along the shore.
+- [09:54.820] The Press: Mr. President, have you or anyone
+- [09:56.320] in your administration talk to Maduro in recent days?
+- [10:01.110] The President: Well, I spoke to him,
+- [10:03.550] pretty recently, reasonably recently,
+- [10:05.550] but nothing much comes of it yet.
+- [10:07.210] You have to understand what he's done.
+- [10:10.890] They've sent billions of dollars of drugs in.
+- [10:15.370] But maybe just as bad, they've sent hundreds
+- [10:18.040] of thousands of people in from jails,
+- [10:20.000] from prisons, from mental institutions and insane asylums.
+- [10:25.260] The drug lords, the drug dealers were all sent into our country.
+- [10:30.250] But think of it, what he's done.
+- [10:32.710] Tren de Aragua, probably the worst gang.
+- [10:35.290] They cut off people's fingers.
+- [10:37.270] One man made a phone call to complain about them.
+- [10:39.790] He cut off their hand. They cut off his head.
+- [10:42.430] Don't ever make a phone call again, we'll cut off your hand.
+- [10:44.850] After that we'll kill you, they said.
+- [10:47.220] That was in Colorado.
+- [10:49.170] And now they sent in all of the bad ones.
+- [10:53.340] They sent in some bad people.
+- [10:55.750] And that to me was just terrible.
+- [10:58.000] And they send in drugs. Now, I will say this,
+- [11:01.300] 97 percent of the drugs coming in by sea stopped.
+- [11:06.900] We're trying to figure out who the other 3 percent are.
+- [11:09.890] They have a hard time getting people to pilot those boats.
+- [11:13.800] But 97 percent of the drugs coming in by the ocean,
+- [11:16.790] by the sea, by water, are gone. Every boat that we take out,
+- [11:22.540] we save 25,000 lives of Americans.
+- [11:26.030] Thank you very much, everybody. We'll see you.
+- [11:27.910] We're going to have a big meeting,
+- [11:30.120] and we'll see in a couple of hours, if you'd like.
+- [11:32.230] And if you like, you can come up
+- [11:33.500] and have lunch like you did yesterday.
+- [11:35.720] Would you like that or not? Do you want that?
+- [11:38.570] Some of them think it's terrible, it's a bribe.
+- [11:41.170] But, you know, a bribe for $25, I don't know.
+- [11:44.250] If you'd like you can go,
+- [11:45.610] and if you don't you can stand in a driveway and melt.
+- [11:48.680] All right, but if you want, will you work on that, Margo?
+- [11:52.970] Is Margo doing a good job? She's a star, she's too nice.
+- [11:57.850] Her only problem, she is too nice to you.
+- [12:00.350] And you're not nice to us, but that's okay.
+- [12:02.480] Margo, take them up and have a beautiful lunch.
+- [12:04.820] And we'll see you later.
+- [12:06.190] The Press: (inaudible)
+- [12:11.170] The President: Yeah, I don't like it.
+- [12:12.480] It's not good. I heard about it this morning.
+- [12:16.870] You know who told me about it?
+- [12:18.350] President Putin told me about it early in the morning.
+- [12:21.130] He said he was attacked. That's no good. It's no good.
+- [12:25.710] Don't forget, you know, the Tomahawks.
+- [12:27.450] I stopped the Tomahawks.
+- [12:28.660] I didn't want that because we're talking about,
+- [12:30.840] you know it's a delicate period of time.
+- [12:33.120] This is not the right time. It's one thing to be offensive.
+- [12:37.030] Because they were offensive.
+- [12:38.490] It's another thing to attack his house.
+- [12:41.000] It's not the right time to do any of that and can't do it.
+- [12:45.740] And I learned about it from President Putin today.
+- [12:47.840] I was very angry about it.
+- [12:49.640] Th Press: (inaudible)
+- [12:52.760] The President: What?
+- [12:54.020] The Press: Don't you have U.S. Intelligence services
+- [12:55.710] that monitor that region very closely?
+- [12:57.240] Is there any evidence --
+- [12:58.600] The President: Well, it came out.
+- [12:59.840] It came out, well, we'll find out.
+- [13:01.150] I mean, you're saying maybe the attack didn't take place.
+- [13:03.320] It's possible, too, I guess.
+- [13:04.590] But President Putin told me this morning it did.
+- [13:07.210] The Press: One question, Mr. President?
+- [13:08.530] Can you expound on the importance
+- [13:10.990] of a strong relationship with the state of Israel?
+- [13:12.740] And Mr. Prime Minister, you've called President Trump
+- [13:15.940] the strongest friend in the state of Israel,
+- [13:18.160] you work with numerous administrations,
+- [13:19.980] numerous presidents, can you expounds on that,
+- [13:21.750] what makes President Trump such a strong friend
+- [13:23.880] of the State of Israel.
+- [13:25.430] Prime Minister Netanyahu: I'll say it
+- [13:26.640] again and again and again.
+- [13:28.870] We've never had a friend by President Trump
+- [13:32.860] in the White House. It's not even close.
+- [13:35.680] And I think you can judge that by the,
+- [13:38.170] not really by the frequency of our meetings,
+- [13:40.060] but by the content and the intensity.
+- [13:42.640] I think Israel is very blessed
+- [13:45.890] to have President Trump leading the United States
+- [13:48.510] and I'll say leading the free world at this time.
+- [13:51.470] I think it's not merely Israel's great fortune.
+- [13:54.520] I think it's the world's great fortune.
+- [13:57.030] The President: Well, I just want to say that it's very important
+- [14:00.180] who the Prime Minister and President of Israel is.
+- [14:05.150] We have a great relationship.
+- [14:06.830] It was an honor to speak before your leaders.
+- [14:09.540] That was a great honor for me.
+- [14:10.920] I think it had not happened before or something,
+- [14:13.580] they told me.
+- [14:15.020] But the relationship's been extraordinary,
+- [14:17.800] and Bibi's a strong man.
+- [14:21.060] He can be very difficult on occasion.
+- [14:23.800] But you need a strong man. If you had a weak man,
+- [14:26.030] you wouldn't have Israel right now.
+- [14:27.820] Israel would have been, you know,
+- [14:29.210] Israel with most other leaders
+- [14:32.240] would not exist today. They would not exist,
+- [14:36.970] and now they're stronger than ever. Yeah, please.
+- [14:39.100] The Press: Are you going to ask Netanyahu
+- [14:40.370] to sign an agreement with Syria?
+- [14:43.670] The President: Well, I hope he's going to get along with Syria
+- [14:45.180] because the new president of Syria
+- [14:47.760] is working very hard to do a good job. He really is.
+- [14:50.100] I know he's a tough cookie. And he's, you know,
+- [14:54.390] you're not going to get a choir boy to lead Syria.
+- [14:57.310] That's the one thing I would say.
+- [14:58.970] So I hope they're going to along
+- [15:00.350] because, you know, I dropped the sanctions on Syria
+- [15:03.940] because otherwise they wouldn't have had a chance.
+- [15:05.690] We want to see Syria survive.
+- [15:08.080] So we're going be talking about Syria, too.
+- [15:10.490] Thank you very much, everybody. Have a good time.
+- [15:12.670] Go have a good lunch. Thank you.
+- [15:17.300] Prime Minister Netanyahu: And after you hear these things,
+- [15:18.810] I think, better to quit now. Thank you.
+- [15:22.820] The President: Thank you.

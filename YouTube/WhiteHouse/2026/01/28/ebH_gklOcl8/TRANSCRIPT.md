@@ -1,0 +1,964 @@
+<!-- source: https://www.youtube.com/watch?v=ebH-gklOcl8 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: ebH-gklOcl8 -->
+<!-- date_published: 2026-01-28T17:03:22+00:00 -->
+<!-- date_accessed: 2026-06-02T02:38:35.115781+00:00 -->
+
+# Transcript: President Trump Delivers Remarks on Trump Accounts
+
+- [00:07.230] Announcer: Ladies and gentlemen, the 45th and 47th
+- [00:10.470] President of the United States, Donald J. Trump.
+- [00:13.860] ♪ ("God Bless the U.S.A." by Lee Greenwood) ♪
+- [02:36.260] The President: All right, let's get down to business.
+- [02:38.320] That's enough of that.
+- [02:40.320] But how good is Lee Greenwood?
+- [02:42.020] He was with us right from the beginning.
+- [02:43.620] The first time I walked onto the stage,
+- [02:45.930] I heard that song, I liked it. It was 10 years ago,
+- [02:51.620] and he's been with us all the way, fantastic guy.
+- [02:55.400] There's never been a man that made so much money
+- [02:59.120] from one song. And I'm happy about that.
+- [03:03.800] But I'm delighted to be back in the beautiful Mellon auditorium,
+- [03:08.390] wonderful family. Tim Mellon is a great guy.
+- [03:12.460] He's the current version of the Mellons, fantastic person,
+- [03:17.100] to celebrate a thrilling new milestone for America
+- [03:19.940] in the first generation of Trump Account children.
+- [03:24.110] Trump Account children.
+- [03:26.390] For the first time ever, we're going to give
+- [03:28.340] every newborn American child a financial stake in the future.
+- [03:32.490] Headstart to life, a fair shot at the American dream,
+- [03:36.950] something people don't talk about so much,
+- [03:39.420] at least not for the last four years they haven't been,
+- [03:41.680] but now they're talking about it big this last period of time.
+- [03:45.270] It's been unbelievable.
+- [03:47.270] When you see what's going on with our economy,
+- [03:50.160] the tremendous investments that's been made in our country.
+- [03:54.040] We have over 18 trillion dollars coming in.
+- [03:56.360] The most I think was three. That was 10 years ago,
+- [03:59.450] another country, not even our country.
+- [04:01.980] We have 18 trillion dollars
+- [04:03.560] and we have thousands of businesses
+- [04:05.410] being built all over the country and hundreds of massive plants,
+- [04:10.090] so big, car plants, AI plants.
+- [04:13.610] With the support of the men and women here,
+- [04:16.770] this beautiful room over the next 15 years,
+- [04:19.150] we're going to put three to four trillion dollars of wealth
+- [04:24.020] into the hands of young Americans
+- [04:26.030] who otherwise would have really started out with nothing.
+- [04:29.570] It's really an amazing thing because it gives young children
+- [04:33.290] that start out with really nothing.
+- [04:35.900] And we give them, boy,
+- [04:37.830] it's more money than anybody could imagine.
+- [04:41.680] From their standpoint, they'll have a real start in life.
+- [04:45.100] And that's why decades from now,
+- [04:47.060] I believe the Trump Account will be remembered
+- [04:49.680] as one of the most transformative
+- [04:51.990] policy innovations of all time. And I've done a lot of them.
+- [04:54.780] The tax cuts, we've done a lot of them,
+- [04:56.840] more than I think anybody.
+- [04:58.860] I think this is going to be one of the most outstanding.
+- [05:01.890] Last summer, I signed the great Big Beautiful Bill delivering...
+- [05:10.270] It made this possible too, it actually made this possible.
+- [05:13.460] Without it, we wouldn't have been able to do this.
+- [05:16.370] Delivering the largest tax cuts in American history,
+- [05:19.300] including no tax on tips, no tax on overtime,
+- [05:22.580] no tax on social security for our great seniors.
+- [05:26.410] And we did another thing, when you buy a car now,
+- [05:29.770] you get a deduction on the interest payment
+- [05:32.170] if you borrow money.
+- [05:33.560] So think of it, rich people get so many deductions.
+- [05:37.010] I'm the king of deductions. I love deductions.
+- [05:40.280] But people, middle income people,
+- [05:41.780] never had a deduction before.
+- [05:43.130] Now they're getting a deduction on interest,
+- [05:44.850] they buy a car,
+- [05:46.070] that's going to have a huge impact on the automobile.
+- [05:48.590] By the way, there's one proviso. It has to be made in America.
+- [05:53.420] If the car is made in another country, no, thank you.
+- [05:57.690] But they're all going to be made in America pretty soon
+- [05:59.830] because we have factories coming in from Canada, Mexico,
+- [06:03.910] Japan, Germany, all over Europe.
+- [06:06.340] They're all coming here to make their cars
+- [06:07.980] because they don't want to pay tariffs.
+- [06:09.410] Very simple. It isn't very complicated.
+- [06:12.630] You'll see those numbers starting to produce.
+- [06:15.190] That's why you see these massive construction numbers.
+- [06:17.540] And soon when those things start opening,
+- [06:19.910] you're going to see employment
+- [06:22.550] and you're going to see wealth creation
+- [06:24.850] for middle income people like you've never seen before.
+- [06:28.670] Every single Democratic Congress
+- [06:30.510] voted to raise taxes on hardworking citizens.
+- [06:34.360] Their whole campaign was raised taxes.
+- [06:36.200] I've never heard of it before.
+- [06:37.910] All my life I grew up and I hear politicians,
+- [06:41.300] "We will cut taxes."
+- [06:42.890] This is the only group I've ever seen,
+- [06:44.240] "We're going to raise your taxes."
+- [06:46.630] No wonder they lost.
+- [06:49.280] Actually, there were other reasons also.
+- [06:52.450] But together with the majorities in the House and Senate,
+- [06:55.790] we overcame their obstruction
+- [06:58.120] and we put more money into the pockets
+- [07:00.260] of every working American than anyone thought even imaginable.
+- [07:05.220] Perhaps no provision of the Great Big Beautiful Bill
+- [07:08.450] will prove more consequential than Trump accounts.
+- [07:12.930] Under this program, the US government
+- [07:15.170] will automatically create a tax-free investment account
+- [07:18.640] for every newborn American child.
+- [07:20.710] Something that nobody really would have even thought of.
+- [07:25.810] There were some brilliant people
+- [07:27.380] that thought of it for a long time.
+- [07:28.740] They're here with us today.
+- [07:29.990] We'll introduce a couple of them, but nobody really...
+- [07:33.690] I mean, I've had friends and the top people in business,
+- [07:36.330] they came up to me, "Whose idea was this? This is great."
+- [07:39.930] They said, "I never thought of that."
+- [07:42.350] We'll fund those personal accounts
+- [07:44.500] with a seed contribution of $1,000,
+- [07:47.620] which will compound and grow over the course of their lives
+- [07:50.930] and can grow into very, very substantial numbers.
+- [07:54.820] Parents, employers, churches, states,
+- [07:57.000] and loved ones will also be able to add up to $5,000
+- [08:00.620] in additional money for those accounts.
+- [08:03.470] And with every modest contribution,
+- [08:05.290] Trump Accounts should reach at least $50,000 in value
+- [08:09.240] by the time the child turns 18
+- [08:12.660] and could be very substantially more than that.
+- [08:16.260] With slightly greater contributions,
+- [08:18.190] the typical account will grow to 100,000, 200,000,
+- [08:22.280] and can even grow up to past $300,000 per child.
+- [08:27.000] And we think most likely,
+- [08:29.330] the most likely case is in the 200,000, 300,000 range.
+- [08:34.410] The size and scale of this wealth
+- [08:36.630] will go off all government programs
+- [08:39.070] ever created to benefit America's youth.
+- [08:41.150] There's never been anything like this.
+- [08:42.580] That's why everybody's talking about it.
+- [08:45.270] Even really people that truly hate me
+- [08:48.010] are making this investment. One person hates my guts.
+- [08:51.300] He put a billion dollars into it.
+- [08:55.550] I said, "You must like this program a lot
+- [08:57.310] because you can't stand me."
+- [08:58.610] And he said, "I do, but I do like you more than you think."
+- [09:02.780] They liked me more in the last year than they liked me before.
+- [09:06.400] Although we had a great first term, we can't forget
+- [09:08.820] that we are the greatest economy in the history of our country,
+- [09:11.790] but this is blowing it away. Sorry.
+- [09:17.350] Every president -- thank you.
+- [09:20.080] Every president in modern history
+- [09:22.200] has left our children with nothing but debt.
+- [09:25.350] But under this administration,
+- [09:27.430] we're going to leave every child with real assets
+- [09:30.400] and a shot at financial freedom.
+- [09:33.560] We'll ensure that Americans don't just end their lives
+- [09:36.810] with a nest egg, but instead all Americans
+- [09:38.920] will begin their lives with a beautiful nest egg.
+- [09:42.530] There's never been anything quite like this.
+- [09:45.670] I want to express my tremendous gratitude
+- [09:47.800] to a very special couple who believe so strongly
+- [09:50.840] in this vision right from the beginning
+- [09:53.350] that they personally donated $6.25 billion.
+- [09:57.920] That's six billion 250.
+- [09:59.620] Even the 250 is a lot of money when you think.
+- [10:04.540] Nikki, do you hear that money? That's big even compared
+- [10:06.680] to wrapping all the money she makes.
+- [10:09.630] She's hearing a number like that.
+- [10:11.040] She say, "How many songs do I have to make to catch that?"
+- [10:14.850] But amazing, amazing thing.
+- [10:18.110] Six billion 250 million dollars to fund Trump accounts
+- [10:23.500] for an additional 25 million children aged 10 and under.
+- [10:28.490] And that's Michael and Susan Dell.
+- [10:30.430] Two incredible people. Where are you, Michael?
+- [10:33.390] Where's Michael? Stand up, Michael.
+- [10:36.570] What a great guy. What a great guy.
+- [10:45.050] I tell you, he didn't do it for his business.
+- [10:46.680] He did it,
+- [10:47.990] I guess probably would have been better off not to.
+- [10:50.090] That's a lot. But you know what?
+- [10:51.960] I hope everybody goes out and buys Dell computers.
+- [10:54.570] My son, I told you, Baron, he loves that computer.
+- [10:57.700] I don't know what the hell you're doing to it,
+- [10:59.280] but he likes it.
+- [11:00.800] But I just want to thank you very much, and Susan.
+- [11:02.990] It's unbelievable.
+- [11:05.360] Really unbelievable what you've done.
+- [11:08.110] So Michael and Susan made this donation
+- [11:11.450] in recognition of America's 250th anniversary
+- [11:14.860] because there's no better way to honor America's history
+- [11:18.230] than to invest in America's future.
+- [11:20.010] That's what they did.
+- [11:22.030] And this is perhaps the largest, one of the largest certainly,
+- [11:25.580] but perhaps the largest private donations of all time.
+- [11:28.470] That's a lot, six billion 250 million.
+- [11:32.430] And somebody did say that, a friend of mine, very rich,
+- [11:35.180] he's going to put up a hundred million dollars.
+- [11:37.640] And he said, "Think of it,
+- [11:39.880] the 250 that Michael has is a lot more than mine."
+- [11:43.670] And I haven't even talked about the six billion.
+- [11:46.870] But anyway, it's amazing when Michael can start off
+- [11:49.220] with very little money and build a fortune
+- [11:51.970] where he can routinely make such a payment
+- [11:55.550] and investment in the youth of our country.
+- [11:59.320] Michael, you're great. Thank you, man.
+- [12:01.180] Thank you.
+- [12:05.980] And I also want to say hello to
+- [12:08.720] and thank some very special people
+- [12:10.540] that have been with my administration
+- [12:12.360] and really become friends of mine.
+- [12:14.240] On occasion, I have little arguments,
+- [12:16.330] but generally I would say really good.
+- [12:20.050] And who's doing, and start off with a man
+- [12:22.270] who's doing a phenomenal job,
+- [12:23.910] Treasury Secretary, Scott Besent.
+- [12:25.580] Scott.
+- [12:26.820] Thank you very much, Scott.
+- [12:29.940] And he loved this right from the beginning, Scott, right?
+- [12:32.410] He saw this and he said, "Wow, what a great idea that is.
+- [12:35.440] This is hundreds of thousands of dollars
+- [12:37.680] by the time they reach 18,
+- [12:39.630] but we can go 21, they can keep it in longer."
+- [12:42.650] But he saw this right from the beginning.
+- [12:45.290] He said, "Wow, this is great."
+- [12:47.920] And we have some other ideas that will be great,
+- [12:50.020] but this was one that just hit everybody.
+- [12:52.220] This was an easy one to think about.
+- [12:54.360] And again, that bill allowed us to do this.
+- [12:57.080] Otherwise, can you imagine trying to get this
+- [12:58.970] approved by Democrats and Republicans?
+- [13:01.480] Let's get together. We got it done.
+- [13:04.610] Also a man who's made your life much easier,
+- [13:08.000] because those of you that are building plants and equipment
+- [13:10.960] so you can give your money, ultimately,
+- [13:12.690] you're giving your money away anyway,
+- [13:14.220] no matter how much you make, but he's made it a lot easier.
+- [13:19.310] Approvals for big plants used to take 20 years, 25 years
+- [13:23.960] and then you'd get rejected actually.
+- [13:26.360] You'd go 20 years environmentally
+- [13:27.990] and they'd reject you.
+- [13:30.040] If I think of it, a guy starts young.
+- [13:31.850] He starts an approval process.
+- [13:33.270] By the time he's middle-aged, they take a vote and he loses.
+- [13:37.150] It's not worth it.
+- [13:38.370] But we have a man that's getting these things done
+- [13:40.190] in a matter of weeks
+- [13:41.840] and the biggest plants in the world
+- [13:43.390] are being built right now and he's getting them done fast.
+- [13:45.790] He's getting electric plants built, so that we can buy them.
+- [13:49.420] They're paying for them.
+- [13:50.780] They want to pay for them,
+- [13:52.160] so they can open up their AI plants
+- [13:54.620] and they can open up their automobile plants and lesser so.
+- [13:58.780] The automobiles, believe it or not, take much less electricity.
+- [14:01.760] You're going to have to tell me why you need so much electricity
+- [14:06.310] to create information.
+- [14:09.690] I said, "What's your primary product?"
+- [14:11.220] "Information." "Oh, I see. Information.
+- [14:14.500] It better be damn good information
+- [14:16.300] for the kind of money."
+- [14:17.930] But Lee Zeldin is a star and he has been incredible.
+- [14:22.860] Thank you, Lee.
+- [14:26.020] And I have to say this.
+- [14:28.720] Scott and I were talking about it.
+- [14:30.160] So Lee went out to California after the fire,
+- [14:32.680] which would have never happened
+- [14:33.980] if they would have let the water flow from the Pacific Northwest,
+- [14:37.180] which everybody's been telling them, including me.
+- [14:39.180] Now, I just opened it up.
+- [14:40.830] We literally sent in the military to open it up.
+- [14:43.810] But if they would have let, you wouldn't have had the fires,
+- [14:45.930] because you would have had a little thing
+- [14:48.440] called old-fashioned way,
+- [14:50.300] water in the fire hydrants as opposed to empty fire hydrants.
+- [14:54.410] You would have had water and most of the houses
+- [14:56.420] had the sprinklers on top.
+- [14:57.950] No. There was no water in their sprinkler in their living room.
+- [15:01.070] All those fires wouldn't have started.
+- [15:03.380] But they did start and I will say
+- [15:05.260] that the most difficult permit was Lee.
+- [15:09.590] I went there a couple of days after the fire.
+- [15:11.600] Met so many people on the streets.
+- [15:13.160] There were, many cases, fairly wealthy people.
+- [15:16.560] Some very rich people.
+- [15:17.840] Some of the best houses in California burned down.
+- [15:20.860] And I said to them, "So what do you want to do? "
+- [15:23.130] They said, "Sir, we want to start immediately. Immediately."
+- [15:25.170] "Well, we'll get your permits."
+- [15:26.370] Now, the hardest permit, Lee, was the federal permit.
+- [15:28.490] Is that right?
+- [15:29.730] He got everything done in 20 days, right?
+- [15:32.210] The whole thing? Is that a correct statement or less?
+- [15:34.800] Lee Zeldin: 20 days.
+- [15:36.140] The President: Twenty days.
+- [15:37.380] So he got everything done, 100% ready to go
+- [15:42.020] and I went for a meeting and this mayor,
+- [15:44.640] who's a grossly incompetent person, she said,
+- [15:48.280] "We're going to try and have the permits done within two years."
+- [15:50.710] Remember that? I got into an argument.
+- [15:52.430] I said, "You mean within two days, right?"
+- [15:54.410] She said, "No."
+- [15:55.650] And I'm meeting all these people as I'm walking along the streets
+- [15:58.280] with the fire departments and policemen
+- [16:01.540] and they're all devastated.
+- [16:03.980] They're still smoldering.
+- [16:07.480] The environmental protection agency local said,
+- [16:10.260] "Don't go on your property, okay?"
+- [16:12.230] We said, "Okay. Don't worry about it.
+- [16:15.300] Any problem is gone. Any problem is burned.
+- [16:18.500] Any germs are burned.
+- [16:20.490] They're burned. They were burned."
+- [16:22.200] Nobody's ever seen anything like it,
+- [16:23.850] but all so unnecessary that it happened.
+- [16:26.620] But we got it all done in 20 days, the whole place.
+- [16:30.370] And yet now, still, more than a year later,
+- [16:32.900] they don't have permits. Almost nobody is building.
+- [16:36.170] So I haven't told this to Lee Zeldin yet,
+- [16:39.380] but I'm going to put you in charge of getting permits.
+- [16:44.260] I think we're going to override the local authorities,
+- [16:47.520] because they're never going to have it.
+- [16:51.330] And when I was told that there's a provision
+- [16:54.100] where you can override the local authority to get things done,
+- [16:59.270] because really, to me, it's a national emergency.
+- [17:01.550] What they've done to these people is horrible.
+- [17:04.140] It's just horrible and they'll still vote Democrat.
+- [17:06.350] Can you believe it? After all, they get used to it.
+- [17:10.120] Although I must say we converted many.
+- [17:12.010] We'll probably convert a lot more,
+- [17:14.080] but I just want them to get into their houses.
+- [17:16.550] And I don't want a big section of the area
+- [17:18.690] built into low income housing.
+- [17:20.580] They want to put low income housing
+- [17:22.980] right smack in the middle of it
+- [17:25.210] and that's not the American dream.
+- [17:28.440] You didn't do that. And low income housing is great.
+- [17:31.110] I built a lot of low income housing,
+- [17:32.810] but you don't put it there.
+- [17:34.120] This is one of the richest neighborhoods in the world
+- [17:37.850] and I recommend it strongly
+- [17:39.190] that everybody gets the immediate approval
+- [17:42.040] to build a house and you give them a 10% bonus,
+- [17:44.760] so they can build a house 10% larger than they had before
+- [17:48.670] if they want for all the suffering they've been caused,
+- [17:52.400] so they can build a little bit bigger house.
+- [17:53.950] So Lee, if you want, will you accept the job?
+- [17:55.900] Lee Zeldin: (inaudible).
+- [17:57.190] The President: Huh? He's under a lot of stress.
+- [18:00.470] Okay. All right. Override those people.
+- [18:03.800] Those people are incompetent.
+- [18:05.480] Between the mayor and the governor, they're incompetent.
+- [18:08.550] They'll never get approved. They'll never get approved.
+- [18:12.710] So do whatever you can, Lee.
+- [18:13.980] There's a provision that you're allowed to do it
+- [18:16.010] and I'll sign it in two seconds, frankly.
+- [18:20.030] It'll never happen.
+- [18:21.550] I also want to introduce a man, Frank Bisignano.
+- [18:26.680] Now, if you met Frank and if you knew Frank,
+- [18:30.950] he's quiet, but he's actually a stone-cold killer.
+- [18:34.650] He was one of the biggest people in business.
+- [18:36.560] He would be sitting with you.
+- [18:37.990] In fact, now he's got a better seat,
+- [18:39.240] because he's working for the government.
+- [18:40.730] He's the head of a lot of things,
+- [18:42.680] but the job he's done in this country is great
+- [18:46.170] and he's working on social security
+- [18:49.630] and a thing called the IRS.
+- [18:51.020] He's working with Scott on both of them really,
+- [18:53.800] but the IRS in particular and he is a fantastic man.
+- [18:57.520] Where are you, Frank?
+- [18:58.810] Took the biggest pay cut in history.
+- [19:01.950] He went from being paid 35 million a year
+- [19:04.540] to being paid about $35 a year.
+- [19:08.510] I think you may have taken the biggest pay cut in history.
+- [19:10.910] He'd be close. He'd be one of the top five,
+- [19:13.870] because a few people have done that.
+- [19:16.000] A few billionaires have left.
+- [19:18.210] But Frank has gone from one of the most successful people.
+- [19:23.280] He worked with Jamie Dimon.
+- [19:25.270] I don't think Jamie likes me too much nowadays,
+- [19:27.210] but that's okay. I never minded that.
+- [19:30.530] But Frank, you are fantastic and you're doing a great job.
+- [19:33.020] We appreciate it. Thank you. And thank you to the family.
+- [19:36.460] The director of National Economic Council.
+- [19:38.960] A man who's in the news a lot.
+- [19:40.900] My only problem is I don't want to lose him.
+- [19:42.710] I will tell you that he's working from a big deficit,
+- [19:45.230] because I don't want to lose him.
+- [19:46.530] He's so good. Kevin Hassett.
+- [19:48.700] Thank you, Kevin. Thank you, Kevin.
+- [19:53.420] A friend of mine.
+- [19:54.740] A senator who has been unbelievable.
+- [19:58.040] She's a tremendous woman.
+- [20:00.530] Married to a great football player.
+- [20:03.060] Her husband is a massive man.
+- [20:07.320] This guy, he played in the NFL, I guess, for 11 years.
+- [20:10.610] He was top of the line player. I met him.
+- [20:13.640] I said, "That's not a normal situation.
+- [20:16.130] Look at this guy." This guy was seriously powerful,
+- [20:19.590] big and he's as nice as he is big.
+- [20:22.040] And she is one of our best senators.
+- [20:24.280] Senator Katie Britt.
+- [20:26.120] (inaudible). Thank you, Darling.
+- [20:32.810] From Alabama. I love Alabama. We love Alabama.
+- [20:39.130] Marsha Blackburn is an incredible person.
+- [20:43.670] Unfortunately, she's running for governor.
+- [20:46.020] She's running for governor of Tennessee.
+- [20:48.060] I'd love her not to. I begged her.
+- [20:49.770] I said, "Marsha, we don't want to lose you in the Senate,"
+- [20:53.030] but I have to say they're lucky. They're lucky to get you,
+- [20:55.560] because you are a talent and a great person
+- [20:58.840] and you've been with me all the way and I appreciate it
+- [21:01.170] and you're a very special person."
+- [21:03.890] Marsha, stand up, please.
+- [21:10.270] And a Senator who's a friend of mine...
+- [21:11.880] You wouldn't believe that,
+- [21:13.110] because we went through a rough campaign together.
+- [21:15.450] It was nasty. We got along so well
+- [21:17.930] and we actually did joint rallies.
+- [21:20.470] Can you believe it?
+- [21:22.010] He wanted to get some of the action, so he's smart.
+- [21:24.140] He said, "Would you do a rally with me? "
+- [21:26.690] But we did joint rallies and the press used to say,
+- [21:29.210] "Will you ever start fighting?"
+- [21:32.300] I said, "Don't worry. It'll come."
+- [21:33.780] He said the same thing. "Don't worry. It'll come."
+- [21:36.380] He's a very tough guy, very brilliant guy.
+- [21:38.480] In fact, when I said, yeah,
+- [21:39.810] because I had never gone into a debate before officially,
+- [21:42.390] my whole life was a debate,
+- [21:43.700] but I'd never debated before officially and I said,
+- [21:47.640] "Let me find out about my competition.
+- [21:50.160] Who are these people?"
+- [21:51.400] Because many of them, there were senators
+- [21:53.670] and mostly senators and governors.
+- [21:56.200] And I said, "Well, why don't we start with this guy named
+- [21:59.320] Ted Cruz?"
+- [22:01.440] Well, he was the best student at Harvard.
+- [22:04.540] Number one in his class.
+- [22:05.780] He was the best student at Princeton or something
+- [22:08.490] and he was the national debate champion
+- [22:10.900] for three years and I said, "Well, I don't like that.
+- [22:14.170] I didn't know that. I don't like that."
+- [22:17.150] And he was very good debater.
+- [22:18.650] I will tell you that he's a smart guy,
+- [22:20.910] but I'll never forget,
+- [22:22.340] because he was the first one I looked at.
+- [22:24.350] I've just joined the ranks of politics
+- [22:27.280] and it was the Rosie O'Donnell.
+- [22:31.620] Remember that? Only Rosie O'Donnell?
+- [22:36.350] Ireland, you can keep her. Ireland is not as tremendous.
+- [22:42.020] The head of Ireland said, "Are all your people this way?
+- [22:44.090] We don't want that."
+- [22:46.200] But Ted Cruz has one thing that I love.
+- [22:49.680] If I ever have problems,
+- [22:50.940] because it's hard to get people approved,
+- [22:53.100] he's a brilliant legal mind. He's a brilliant man.
+- [22:56.640] If I nominate him for the United States Supreme Court,
+- [23:00.310] I will get 100% of the vote. The Democrats will vote for him,
+- [23:04.260] because they want to get him the hell out
+- [23:06.420] and the Republicans will vote for him,
+- [23:08.320] because they want to get him the hell out too.
+- [23:11.050] Where's Ted? Where are you, Ted?
+- [23:16.800] And with all of that being said, he's a great guy too.
+- [23:19.540] He's a great guy. We've become friends
+- [23:21.390] and he's a very effective person too.
+- [23:23.800] Thank you, Ted, very much.
+- [23:25.720] The man knows we're about tax and anybody that I know.
+- [23:28.340] Jason Smith. Congressman. Wonderful person. Thanks, Jace.
+- [23:33.460] Thank you, Jason. Great job. Idaho Governor Brad Little.
+- [23:38.350] Terrific guy. Thank you, Brad.
+- [23:42.070] Georgia Lieutenant Governor Burt Jones,
+- [23:44.320] who hopefully will be the governor
+- [23:46.230] of Georgia very shortly. They have a big race.
+- [23:48.310] He's leading by a lot in the polls.
+- [23:50.570] He was outstanding as a lieutenant governor.
+- [23:52.650] He's great everywhere and I've endorsed him fully,
+- [23:55.190] so I don't want to do anything that you don't know about.
+- [23:59.000] I have given him my complete and total endorsement.
+- [24:01.680] Burt Jones. Where are you, Burt? Thank you, Burt. Great guy.
+- [24:08.320] Chief Design Officer of the United States, Joe Gebbia.
+- [24:13.070] Joe, thank you.
+- [24:15.960] Great idea. Great ideas.
+- [24:18.610] Also, we have Mr. Wonderful, Kevin O'Leary.
+- [24:20.600] I like Kevin O'Leary.
+- [24:21.840] Where's Kevin O'Leary? Come on out.
+- [24:24.150] Kevin, it's so nice. He's with me 90% of the time,
+- [24:28.110] but when he's with me, he's really with me.
+- [24:31.010] Great. And we got the TikTok deal done.
+- [24:33.660] Who the hell thought we could do that, right?
+- [24:35.300] Kevin O'Leary: (inaudible).
+- [24:36.520] The President: I know. I wish.
+- [24:38.030] He wanted to buy TikTok so much and I would've done it,
+- [24:41.620] but his price was slightly lower.
+- [24:43.810] Slightly. He's fantastic.
+- [24:48.450] You're an entertainer, businessman.
+- [24:50.200] You had the whole quality, so I know what you did.
+- [24:53.080] Having done The Apprentice, I see you on television.
+- [24:56.100] You have what it takes, so I appreciate it
+- [24:58.770] and thanks for all the nice things you do.
+- [25:01.340] And Cheryl Hines. Where's Cheryl?
+- [25:03.530] Oh. Married to a very, very powerful,
+- [25:07.850] important man and I said,
+- [25:11.160] "I'll tell you, Bobby, she's strong."
+- [25:13.240] I watched her in an interview.
+- [25:14.630] I said, "Bobby, you keep him in line, don't you, huh?"
+- [25:18.770] She said, "Yes. I do." She's got no choice.
+- [25:22.260] He's doing a great job and so are you.
+- [25:23.580] Cheryl Hines: Amazing job.
+- [25:24.810] The President: Yeah. He's doing a great job.
+- [25:26.420] He's doing a very different kind of a job too
+- [25:28.660] and he's doing things that people have wanted to do
+- [25:30.800] for a long time and they didn't.
+- [25:33.410] They didn't have the courage, so say hello to Bobby, okay?
+- [25:37.370] We're also pleased.
+- [25:38.920] My daughter, she went crazy when she heard
+- [25:41.190] that this was happening. "I want to go."
+- [25:43.010] She happens to be in the wrong state right now for that,
+- [25:45.210] but when she heard that there's a certain person that's here
+- [25:50.060] who's the greatest and most successful female
+- [25:52.450] rapper in history, Nicki Minaj. Come on.
+- [26:01.670] And Nicki makes a lot of cash. Not as much as Michael Dell.
+- [26:05.690] Not quite. Not as much, but that's okay.
+- [26:09.630] But Nicki makes a lot of money
+- [26:11.410] and she's generously stepping up.
+- [26:12.970] She's investing hundreds of thousands of dollars
+- [26:15.350] in Trump Accounts to support the children
+- [26:17.350] and really the children of her incredible fans.
+- [26:21.730] That's great. Focus on that.
+- [26:23.280] Why should you give to somebody else's fans?
+- [26:25.100] Give to your fans. I like that. And I just think she's great.
+- [26:31.210] I've been hearing so much over the years,
+- [26:32.660] because I didn't know Nicki
+- [26:33.940] and I've been hearing over the years,
+- [26:35.270] she's a big Trump supporter, a Trump fan
+- [26:37.880] and she took a little heat on occasion.
+- [26:41.750] I'll tell you, we did pretty well with that,
+- [26:44.450] with your community as we say.
+- [26:47.200] But Nicki has been an unbelievable supporter.
+- [26:52.810] She gets almost as much as Mr. Wonderful over here.
+- [26:55.720] He's been another one that's been so good.
+- [26:57.540] But I'd like to ask you to come up, Nicki.
+- [27:01.190] Come on up. Come on.
+- [27:03.940] She's been such a great supporter
+- [27:05.650] and a great supporter of Trump Accounts.
+- [27:13.860] And I said, "I am going to let my nails grow,
+- [27:16.310] because I love those nails.
+- [27:19.360] I'm going to let those nails grow."
+- [27:26.540] She's so good. She's been MAGA. What can I say?
+- [27:31.350] She's been with us all the way, right, Alex?
+- [27:33.690] She's been with us all the way and just want to thank her.
+- [27:38.490] And it wasn't so easy. For you, it was easier.
+- [27:41.900] Want to come up? You want to come up?
+- [27:44.820] Mr. Wonderful, come on up here.
+- [27:46.940] You've been terrific. Come on up.
+- [28:14.650] Nicki Minaj: Hello.
+- [28:19.320] Well, I don't know what to say, but I will say that I am
+- [28:27.350] probably the president's number one fan
+- [28:34.310] and that's not going to change.
+- [28:37.170] And the hate or what people have to say,
+- [28:41.680] it does not affect me at all.
+- [28:44.590] It actually motivates me to support him more
+- [28:48.580] and it's going to motivate all of us to support him more.
+- [28:51.200] We're not going to let them get away
+- [28:53.030] with bullying him and the smear campaigns.
+- [28:56.550] It's not going to work.
+- [28:59.460] He has a lot of force behind him and God
+- [29:04.210] is protecting him. Amen.
+- [29:07.150] The President: (inaudible).
+- [29:08.350] Nicki Minaj: Should I go? Okay. All right.
+- [29:17.650] The President: Thank you. Thank you.
+- [29:18.930] Nicki Minaj: (inaudible).
+- [29:20.150] The President: And stay right here.
+- [29:21.870] Nicki Minaj: (inaudible).
+- [29:23.120] The President: (inaudible).
+- [29:24.470] Kevin O'Leary: On behalf of all the entrepreneurs in America,
+- [29:27.780] I'd like to thank you, Mr. President,
+- [29:29.510] because we create 72 percent of the jobs.
+- [29:33.580] Companies, 5 to 500 employees and all we care about is policy.
+- [29:38.960] We love policy, pro business policy
+- [29:41.600] and these accounts are fantastic for independence and support.
+- [29:45.580] I thank you very much.
+- [29:47.210] It's all about the entrepreneur and I think you know that, sir.
+- [29:51.180] The President: Thank you very much.
+- [29:52.430] Thank you.
+- [29:53.740] (inaudible). Nicki, thank you very much.
+- [29:56.750] Nicki Minaj: All right. Thank you, Mr. Trump.
+- [30:00.360] The President: Well, that was great.
+- [30:01.590] A little interlude. I don't know.
+- [30:03.000] That's better than getting Scott Bessent up.
+- [30:10.530] Thank you both very much. Two terrific people.
+- [30:14.690] When Trump Accounts officially launch on July 4th of this year,
+- [30:17.960] every parent will be able to activate their accounts
+- [30:22.000] and access the funds at the trumpaccounts.gov.
+- [30:26.890] So it's all set up, all ready to go.
+- [30:29.070] It's beautiful. The site is beautiful.
+- [30:32.220] On that glorious day, we also expect to have commitments
+- [30:35.990] from generous private individuals in all 50 states
+- [30:39.210] and they'll be making additional contributions for children
+- [30:42.480] in their own states. And already legendary investor,
+- [30:46.750] Ray Dalio has pledged to adopt the entire state of Connecticut.
+- [30:51.080] That's pretty good, Michael.
+- [30:53.430] And thank you very much, Ray. Great legend.
+- [30:56.750] And today, one of the original advocates of this program
+- [30:59.760] has agreed to adopt his home state of Indiana.
+- [31:03.280] Brad Gerstner.
+- [31:04.770] And Brad's here someplace. Where's Brad?
+- [31:06.910] Come on.
+- [31:08.150] I think Michael and Brad, would you come up here, please?
+- [31:11.510] Come up here.
+- [31:12.980] This isn't exactly Mr. Wonderful and Nicki,
+- [31:17.390] but I think they might be worth more money than Mr. Wonderful.
+- [31:21.310] These guys are worth a lot of money.
+- [31:24.300] But Brad is donating, listen to this,
+- [31:26.290] $250 to Trump accounts for all children under five in Indiana.
+- [31:32.560] So all the children under five, 250,
+- [31:36.120] and he'll be donating tens of millions of dollars
+- [31:39.150] more and matching contributions to millions of children
+- [31:43.520] all across the country.
+- [31:44.720] He's going to make a massive donation already.
+- [31:46.600] We know what it is.
+- [31:47.910] Brad is not only one of the most successful business people.
+- [31:51.100] He's the founder of the Invest America foundation
+- [31:54.600] and he's been working on this idea for years
+- [31:56.790] and he was the one. He went over to see Michael.
+- [31:58.720] Michael loved it and those two were a hell of a team
+- [32:02.120] along with Mrs. Dell, who's been so great. Susan.
+- [32:06.910] I also delighted to report that dozens of major employers
+- [32:11.660] have signed up to add the Trump Account contributions
+- [32:15.100] to their employee benefit packages,
+- [32:16.940] including Uber, Schwab,
+- [32:19.240] Charter Communications and many, many others.
+- [32:21.830] And just today, it was announced that Intel, Nvidia, Broadcom,
+- [32:26.680] IBM, Steak 'n Shake, Coinbase,
+- [32:29.580] Continental Resources and Comcast
+- [32:31.880] have all signed up for really big contributions,
+- [32:34.900] so I want to thank them.
+- [32:36.110] I want to have you two guys come on up.
+- [32:38.210] Would you say a couple of words?
+- [32:40.190] Brad and Michael, would you say a couple of words?
+- [32:41.930] That's fantastic.
+- [32:43.160] Unidentified: Wonderful to see you.
+- [32:44.360] The President: Only Indiana. You can't do bigger.
+- [32:45.710] We love Indiana, but how about Indiana
+- [32:48.670] (inaudible)? No.
+- [32:50.290] We appreciate it. Big numbers. Thank you.
+- [32:52.070] Unidentified: Thank you.
+- [32:54.640] Well, four years ago, we set off on a journey
+- [32:57.660] to reconnect every child in America
+- [32:59.750] with the American dream.
+- [33:01.770] This president ran on a main street agenda
+- [33:04.490] Unidentified: That too many people had been left out
+- [33:06.450] and left behind.
+- [33:08.150] And his articulation of no tax on tips,
+- [33:11.480] that doesn't help rich folks.
+- [33:13.250] That helps those left out and left behind.
+- [33:15.300] No tax on social security. No tax on overtime.
+- [33:19.460] And when Ted Cruz authored the Invest America Act
+- [33:22.010] in the Senate and Michael Dell
+- [33:25.390] partnered with me to bring the private sector to bear on this,
+- [33:30.580] we had the opportunity that this president was willing to sign.
+- [33:34.630] He immediately understood the impact,
+- [33:37.990] that this wasn't about the wealthy folks in America,
+- [33:40.090] this was about the 50 million American families
+- [33:43.540] who will be lifted up
+- [33:44.800] and reconnected to the American Dream
+- [33:47.140] because this is now the law of the land.
+- [33:50.790] Forevermore, every child in America,
+- [33:53.450] from rural Missouri to rural Indiana,
+- [33:56.850] from Trenton to Compton, is going to start off life
+- [33:59.980] with an investment account at birth
+- [34:01.730] seeded with $1,000 where they privately own.
+- [34:05.510] NVIDIA and Microsoft,
+- [34:06.860] all the greatest companies in this country, right?
+- [34:10.370] Not dependent on government, independent from government.
+- [34:14.660] Not more socialism.
+- [34:16.090] The answer to more socialism is more capitalism.
+- [34:19.020] This makes every child in America a capitalist from birth,
+- [34:22.790] and it would not have happened without the leadership
+- [34:25.900] of our treasury secretary, Scott Bessent,
+- [34:28.740] without the leadership of the speaker
+- [34:30.430] and Ted Cruz in the Senate.
+- [34:31.640] But most importantly, and every business leader in America
+- [34:35.670] will tell you this, for too long,
+- [34:38.320] they had no access in Washington to the White House.
+- [34:42.500] People didn't want to hear their ideas.
+- [34:45.120] This president is voracious in his desire
+- [34:48.440] to hear from America's leaders
+- [34:50.690] about how to make America better.
+- [34:53.630] This is citizen democracy at its best.
+- [34:56.450] An idea that started around a kitchen table in Silicon Valley
+- [35:00.440] makes its way to this day.
+- [35:02.360] I'm humbled and honored to be here
+- [35:04.580] and I'm grateful for your leadership.
+- [35:06.030] The President: That's great. Thank you.
+- [35:07.880] (inaudible).
+- [35:13.080] Unidentified: Thank you, Mr. President.
+- [35:14.910] As you heard from Brad,
+- [35:18.290] the fact that this bill got passed itself was a miracle
+- [35:22.370] and it creates a platform for communities,
+- [35:27.890] for families, for corporations,
+- [35:30.250] for philanthropists to add to these accounts.
+- [35:33.020] And in not too many years,
+- [35:35.320] essentially every child in America
+- [35:37.420] will have savings invested
+- [35:41.380] in the greatest companies in this country.
+- [35:44.540] And that will change the face of this country over the next 10,
+- [35:49.000] 20, 30 years,
+- [35:50.340] and we couldn't be more excited about this
+- [35:52.380] and the opportunity to make a difference.
+- [35:56.010] The best investment a country can make is in its people,
+- [36:01.210] especially in its children,
+- [36:03.060] and this creates an incredible platform
+- [36:06.570] for that to occur at enormous scale
+- [36:09.490] and we're excited to see it all come together.
+- [36:11.910] Thank you all so much.
+- [36:13.360] The President: (inaudible).
+- [36:21.180] Fantastic. Thank you, fellas.
+- [36:24.820] Those are two fantastic people, I can tell you that.
+- [36:28.570] I want to give a very special
+- [36:30.090] thanks to some of the CEOs here this morning.
+- [36:33.280] Vlad Tenev of Robinhood, what a job he's done.
+- [36:36.080] Where's Vlad? What a job you've done.
+- [36:40.100] Young guy. Nice young guy too. Arjun Sethi of Kraken.
+- [36:46.950] Arjun, thank you very much, wherever you are.
+- [36:51.510] Thank you. Anthony Noto of SoFi Technologies.
+- [36:56.980] SoFi. Thank you very much, Anthony.
+- [37:00.480] These are the ones you read about, and Bill Ackman is here,
+- [37:03.220] Pershing Square, and Hock Tan of Broadcom,
+- [37:06.570] and so many others that if I name them,
+- [37:09.250] we'll be up here all day,
+- [37:10.490] but I just want to say that what a job you've all done.
+- [37:14.340] Incredible job. Everybody.
+- [37:16.060] Just about everybody in this room. Not everybody.
+- [37:18.040] I'm not in love with everybody, but a couple of them
+- [37:20.860] I don't like very much, but if they're here
+- [37:23.110] I'm starting to like them a lot better
+- [37:25.260] because they're here for a very good reason.
+- [37:26.940] I'm officially calling on all employers all across America
+- [37:31.330] to follow the lead of many of these amazing companies
+- [37:34.530] and make matching
+- [37:36.190] Trump Account contributions to benefit for the American worker,
+- [37:40.840] and they're going to benefit the American worker so much.
+- [37:44.270] This morning I'm also pleased to announce
+- [37:46.400] that Visa is creating a brand-new platform
+- [37:49.670] which will allow credit cardholders to deposit
+- [37:52.200] their cashback rewards directly into Trump Accounts.
+- [37:56.040] That's a big deal. Visa, thank you. Where's Visa?
+- [38:00.160] Hello, Visa. Thank you very much, Visa.
+- [38:04.760] These initiatives could not come at a better moment
+- [38:07.790] because there's never been a better time to invest
+- [38:11.240] in the United States of America than right now.
+- [38:13.420] Who knew it would've happened this fast?
+- [38:15.870] I inherited a mess.
+- [38:18.240] We were a country that was laughed at a year
+- [38:20.510] and a half ago. We were laughed at.
+- [38:22.850] Now we're the hottest country anywhere in the world,
+- [38:24.910] nobody even close.
+- [38:26.280] So who knew this was going to take place as quickly?
+- [38:30.880] Right, Michael? I didn't think it was going to go that fast.
+- [38:33.120] I knew we were going to do it,
+- [38:34.320] but I thought it would take a couple of years at least.
+- [38:36.600] Just a couple of days longer than the first year,
+- [38:39.440] so it's really amazing.
+- [38:41.510] And just this morning as I'm running out,
+- [38:43.410] I see the S&P 500 hit 7,000 for the first time ever. Ever.
+- [38:50.410] So I say America is back. America is back.
+- [38:54.070] Since the election, the stock market has set
+- [38:56.120] 52 all-time record highs, adding $9 trillion in value.
+- [39:01.000] And $18 trillion of investment is pouring into the country.
+- [39:04.710] It's going to be higher than that.
+- [39:06.620] Just over one year ago we were a country that lost its way.
+- [39:10.390] We were mocked and scorned,
+- [39:13.050] and every American child will now be
+- [39:17.010] and have access to something that is really incredible,
+- [39:20.990] and they can watch directly the economic boom
+- [39:24.150] that's taking place.
+- [39:25.420] This is a boom that's taking place,
+- [39:27.560] the likes of which we've really never seen.
+- [39:29.350] I don't think people get it yet.
+- [39:32.480] Not a lot of people, they don't get it.
+- [39:34.310] They don't see the thousands of businesses being built,
+- [39:37.200] the hundreds and hundreds of massive factories
+- [39:39.530] that are going up all over.
+- [39:42.340] But they're going to start to see it.
+- [39:43.830] They're starting to see it.
+- [39:45.090] I mean, if they're modestly intelligent.
+- [39:47.860] If they're very intelligent, they saw it about a year ago.
+- [39:51.670] With us today is Craig Smith,
+- [39:53.430] a fourth-generation family farmer
+- [39:55.530] and volunteer firefighter from Culpeper, Virginia,
+- [39:59.050] along with his wonderful wife, Heather.
+- [40:02.000] Craig and Heather have an 18-month-old son
+- [40:04.800] and a one-month-old that they also welcomed
+- [40:09.310] just recently, twin boys,
+- [40:12.300] and they can't wait to activate Trump Accounts
+- [40:14.590] for all three of their children this July 4th.
+- [40:19.760] Craig and Heather,
+- [40:21.040] do you want to come up here, Craig and Heather?
+- [40:23.860] Where are you, Craig and Heather?
+- [40:25.700] Come on up. Craig and Heather, come on up. Come on up.
+- [40:30.460] It meant so much to them. People write letters.
+- [40:33.270] Every once in a while you get a letter, it just hits you.
+- [40:35.400] Craig and Heather, come on up. Thank you.
+- [40:40.850] That's great. Wow. Look at this family, huh?
+- [40:43.700] They're a rich family now.
+- [40:47.200] The kids are richer than the parents, this is the
+- [40:49.760] (inaudible). It's the way we want it.
+- [40:52.600] Thank you very much. Wow. Wow. (inaudible). Thank you.
+- [40:58.040] You'd like to say something, please. That's great.
+- [41:03.040] Unidentified: We just want to thank President Trump
+- [41:04.660] for all of his hard work and dedication
+- [41:08.760] to American families and farm families like ours.
+- [41:12.310] Farming is not always easy and sometimes margins are tight,
+- [41:14.980] so investments like this into our children
+- [41:17.550] really help us to buy diapers and formula
+- [41:20.360] and not have to worry about making financial decisions
+- [41:23.600] for them this early on.
+- [41:24.910] So thank you very much, President Trump.
+- [41:26.980] The President: Thank you very much.
+- [41:28.300] (inaudible). Thank you very much.
+- [41:30.680] Unidentified: Thank you.
+- [41:31.890] The President: (inaudible). Unidentified: Thank you.
+- [41:33.510] The President: Beautiful kids. Thank you. Thank you very much.
+- [41:37.900] So nice. Also joining us today
+- [41:40.180] is the Gowens family from Fayetteville, Arkansas.
+- [41:43.000] Charlie works in manufacturing and he's here with his wife,
+- [41:47.460] Savannah, his high school sweetheart.
+- [41:49.950] In 2022, Charlie and Savannah
+- [41:51.840] opened their home to foster care,
+- [41:55.410] really expecting to take in one child,
+- [41:59.930] but soon they were taking in a family of three siblings
+- [42:03.620] and formally adopting them.
+- [42:05.680] A short time later, Charlie and Savannah
+- [42:07.470] also welcomed a biological daughter.
+- [42:10.630] Trump Accounts will give each of these children
+- [42:12.870] a much better start in life.
+- [42:14.430] And Charlie and Savannah, where are you?
+- [42:16.430] Are you down there? Do you want to come up?
+- [42:18.810] Come on up here, Charlie, real fast.
+- [42:20.390] We're holding up a lot of big business people.
+- [42:22.310] We can't hold them up.
+- [42:24.910] Michael will take back his donation, say,
+- [42:28.190] "I want my money back."
+- [42:30.390] Come on up here. These are great families,
+- [42:35.610] but there's millions and millions of families
+- [42:38.540] that are going to be so amazed
+- [42:41.010] and so happy at what's taking place.
+- [42:43.070] Sort of a miracle, I think. Nice to see you.
+- [42:47.550] How are you? How are you? Oh, look at that.
+- [42:51.770] Unidentified: (inaudible).
+- [42:53.000] The President: So nice. Hi. How are you?
+- [42:54.600] (inaudible). Do you want to say something?
+- [42:58.500] Unidentified: I would love to, yeah.
+- [43:00.550] The President: (inaudible).
+- [43:03.250] Unidentified: Thank you, President Trump,
+- [43:04.570] for having my family and me here today.
+- [43:08.540] My wife and I have spent the better part of our adult
+- [43:11.400] lives working to advance children in our community.
+- [43:16.170] And it was our faith that first led us
+- [43:18.470] to open our home to foster care,
+- [43:20.980] and it was God's plan that allowed us...
+- [43:25.970] Absolutely.
+- [43:30.130] And it was God's plan that allowed us
+- [43:34.080] to adopt three amazing children out of foster care
+- [43:38.600] to welcome so many more. And of course, this past year,
+- [43:44.490] welcome our youngest daughter, Florence, into the world.
+- [43:48.880] It's through our experience that we've seen how opportunity
+- [43:52.200] or the lack thereof can really impact a child
+- [43:58.030] at the very beginning stages of their life
+- [44:00.190] before they even get a chance themselves.
+- [44:02.290] And that's why my wife and I,
+- [44:05.570] along with some of the work that the First Lady is doing,
+- [44:08.820] we are working to help foster and adoptive families
+- [44:15.300] and personally in our state with protections
+- [44:18.400] and support in our home state of Arkansas.
+- [44:21.860] Every child deserves hope, stability,
+- [44:23.990] and a strong chance at a future, a strong future.
+- [44:27.250] And for young families, especially like ours,
+- [44:30.300] that your first priorities are, of course, your diapers
+- [44:33.540] and your wipes and your car seats and all that stuff.
+- [44:35.300] And so starting and investing into a investment account
+- [44:40.320] is not necessarily on the top of the priority list,
+- [44:42.320] and we're so thankful to have this.
+- [44:44.160] And I think this sends a powerful message
+- [44:46.810] that this administration believes
+- [44:49.210] that financial opportunity can start early,
+- [44:51.530] that it is intentional,
+- [44:53.480] and that it can impact every single family.
+- [44:56.300] And my wife and I are so excited that this administration
+- [44:59.430] has placed families and children like ours
+- [45:02.540] at the forefront of economic policy.
+- [45:05.130] And we're so excited for the future of the children
+- [45:09.190] and for this country. Thank you.
+- [45:11.170] The President: Thank you very much.
+- [45:13.980] Wow. Good job. (inaudible). That's a great job.
+- [45:23.210] I was wondering how much longer he could hold...
+- [45:25.760] Did you notice it? It's getting heavy.
+- [45:28.820] It's still 50 pounds or something.
+- [45:32.080] I said, "How much longer is that?"
+- [45:34.550] And finally, it broke loose.
+- [45:40.480] But you could see a loving father there, couldn't you?
+- [45:42.790] The way he did that, right? Wasn't that a loving father?
+- [45:45.030] I watched that. He was grabbing. That's a great family.
+- [45:49.530] Thank you very much both. Beautiful.
+- [45:52.200] So in conclusion, the ultimate success of the Trump Accounts
+- [45:55.560] will be measured not just in the wealth created.
+- [45:59.660] It will be seen in young people buying houses
+- [46:02.340] that they could never have even dreamed of buying.
+- [46:05.770] It'll be seen in diplomas earned,
+- [46:07.730] companies founded, families formed, and more babies born.
+- [46:12.000] It'll really be seen in something
+- [46:13.350] where you're given a chance,
+- [46:14.580] you're given a chance at life, a very good chance.
+- [46:17.800] Above all, Trump Accounts will help bring the hope
+- [46:21.400] and prosperity to every community
+- [46:23.280] that every community wants to see,
+- [46:26.100] and it'll bring back the American Dream.
+- [46:27.940] The American Dream is so beautiful.
+- [46:29.980] I would mention it all the time when I'm running.
+- [46:32.090] Whenever I run, I talk about the American Dream
+- [46:34.650] because that's what we want to create.
+- [46:37.060] Others don't talk about it, but we have the American Dream
+- [46:40.060] back I think now maybe better than ever before.
+- [46:44.000] For generations, Washington politicians have done nothing
+- [46:47.230] to take from the hardworking people of our country.
+- [46:51.310] They take and take. They do nothing but take.
+- [46:54.820] They've made workers' lives harder,
+- [46:56.900] set prices higher, pushed your dreams out of reach.
+- [47:00.640] And both parties, I mean, they didn't do the job
+- [47:02.970] that they were supposed to do.
+- [47:04.860] Some were fighting, and sometimes we fight
+- [47:07.660] against some of the great politicians we have here,
+- [47:10.770] they fight with me, most of them,
+- [47:13.160] and we fight to make things better.
+- [47:16.030] But we run into walls of other politicians
+- [47:19.300] that either don't want to do something
+- [47:21.180] or they almost feel like it's a destruction of our country.
+- [47:25.630] But now we're doing something much better
+- [47:27.700] than giving the next generation a handout.
+- [47:30.010] We're giving them ownership of America's future
+- [47:33.270] so that they can grow up, chart their own destiny
+- [47:36.070] and make our nation greater and stronger
+- [47:38.220] and better than ever before.
+- [47:40.690] So I just want to thank all of the people
+- [47:42.380] that participated today, the great business leaders,
+- [47:45.540] the great celebrities and all of the people
+- [47:48.320] that are in this room. You've done so much.
+- [47:50.080] And I just want to also give a little bit of a shout-out
+- [47:54.160] to a lot of great politicians that are right now voting
+- [47:57.440] on some very important measures.
+- [47:59.570] Plus the politicians in this room,
+- [48:01.520] they have really worked hard on this.
+- [48:03.230] This is something that it's amazing that it got done.
+- [48:07.210] If you knew the political process,
+- [48:09.630] it was very complex, very hard
+- [48:11.370] to get done to get all of those votes together,
+- [48:14.370] but we did it, and it's going to be great for America.
+- [48:18.130] And Brad and Michael, thank you both very much.
+- [48:20.290] Special, special people. Thank you very much.
+- [48:22.960] And God bless everybody in the room,
+- [48:24.670] and God bless America.
+- [48:26.000] Thank you very much for being here.
+- [48:27.440] Thank you. Thank you.
+- [48:30.280] (applause)
+- [48:41.990] ♪ ("Y.M.C.A." by the Village People) ♪

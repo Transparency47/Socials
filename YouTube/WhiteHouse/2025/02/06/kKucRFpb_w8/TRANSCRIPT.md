@@ -1,0 +1,900 @@
+<!-- source: https://www.youtube.com/watch?v=kKucRFpb-w8 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: kKucRFpb-w8 -->
+<!-- date_published: 2025-02-06T18:21:27+00:00 -->
+<!-- date_accessed: 2026-06-02T01:30:17.848684+00:00 -->
+
+# Transcript: President Trump Signs Executive Orders in the Oval Office, Jan. 31, 2025
+
+- [00:00.000] Okay, we're signing a regulation bill
+- [00:02.160] and you might want to discuss it,
+- [00:03.440] please. Somebody could explain.
+- [00:05.240] is an executive order called "Unleashing
+- [00:07.680] Prosperity Through Deregulation." So, it
+- [00:10.640] slashes unnecessary regulations, which
+- [00:13.320] will put more money in Americans'
+- [00:14.760] pockets, unleash economic growth, and
+- [00:17.440] guarantee that the United States of
+- [00:18.880] America remains the strongest competitor
+- [00:21.280] on the world market. And in order to
+- [00:23.400] achieve that, this order requires a
+- [00:25.600] rigorous regulatory budget process. So,
+- [00:28.520] for each new regulation issued, at least
+- [00:30.880] 10 prior regulations will be identified
+- [00:33.720] for elimination.
+- [00:35.800] So, one for 10.
+- [00:37.520] And it's never been done before. We came
+- [00:39.880] very close to doing it in the first
+- [00:41.400] term.
+- [00:42.440] And we'll be able to easily do it, I
+- [00:44.000] think,
+- [00:44.960] in this term and that'll have a big
+- [00:46.360] impact on regulation, getting rid of
+- [00:48.840] so many ridiculous regulations. And very
+- [00:52.240] importantly, Doug Burgum and Katherine,
+- [00:55.880] incredible governor of
+- [00:58.440] North Dakota, as you know, and did a
+- [01:01.080] really great job and I asked him to
+- [01:03.320] serve as the
+- [01:05.000] Department of Energy, the secretary, and
+- [01:08.480] he is uh
+- [01:10.000] he's agreed to do it. And in many ways,
+- [01:13.040] the United States, I I guarantee it's
+- [01:14.960] going to prove to be correct uh that the
+- [01:17.720] United States is very lucky to have them
+- [01:20.040] cuz they're a great team, great man and
+- [01:22.480] wife, great uh
+- [01:24.040] uh
+- [01:24.800] great talent. So, we are going to be
+- [01:27.800] working and you're going to be working
+- [01:29.080] very hard with Chris right over at
+- [01:30.680] Energy.
+- [01:32.040] And we have a lot of land, we have more
+- [01:33.880] land than anybody else in the world that
+- [01:35.600] has energy under it, namely
+- [01:37.800] I call it liquid gold, but oil and gas
+- [01:39.960] and other things.
+- [01:41.840] And he'll be seeking that out and he's
+- [01:44.120] going to help our country to become
+- [01:46.560] extremely liquid and
+- [01:48.520] extremely wealthy again.
+- [01:50.640] And I don't think it'll take too long.
+- [01:52.160] He's He's ready to go, right? He just
+- [01:54.360] got
+- [01:55.520] just got approved, as you know, by the
+- [01:57.600] Senate. So, it was pretty good. We want
+- [02:00.400] to thank everybody and we want to thank
+- [02:02.840] Senator Thune for moving it along.
+- [02:05.880] And if you could give me his commission,
+- [02:07.880] we'll sign it. Thank you very much.
+- [02:11.240] Any of you would like to ask a question
+- [02:12.960] of
+- [02:14.760] the new secretary? It's a very
+- [02:16.480] interesting title, but it's pretty great
+- [02:18.520] title, right?
+- [02:19.280] Yes.
+- [02:19.640] Cabinet member and everything else.
+- [02:25.200] What is your first priority as secretary
+- [02:27.040] of the interior, sir?
+- [02:28.840] Well, as you've heard President Trump
+- [02:30.200] say,
+- [02:31.600] we have to
+- [02:33.200] turn the ship around.
+- [02:34.960] If Interior was a public company, its
+- [02:36.800] stock would be in the tank. Revenue has
+- [02:38.520] been declining.
+- [02:40.080] Production of revenue for American
+- [02:42.160] taxpayers is down. The deregulation
+- [02:45.240] order, which executive order which
+- [02:46.680] President Trump just signed, extremely
+- [02:48.560] important because we have to shorten the
+- [02:50.000] time it takes to build things in
+- [02:51.880] America. And not only do we have to
+- [02:53.960] produce more energy, we've got to
+- [02:55.320] produce more critical minerals in this
+- [02:57.440] country and we're talking across the
+- [03:00.120] whole country, including Alaska,
+- [03:01.800] especially a big opportunity.
+- [03:04.560] Interior, if it was a company, has the
+- [03:06.720] largest balance sheet in the world. 500
+- [03:10.000] million acres of public land, 700
+- [03:13.120] million acres of subsurface, over 2
+- [03:15.960] billion of offshore acres. These are all
+- [03:18.600] assets that belong to the American
+- [03:20.160] people. We all talk about the debt that
+- [03:22.400] America has, this 36 trillion. We have
+- [03:25.520] perhaps hundreds of trillions of dollars
+- [03:27.600] of assets
+- [03:28.920] that we need to manage smartly,
+- [03:31.800] sustainably for the benefit and the use
+- [03:33.640] of the American people. Mr. President,
+- [03:35.720] is there anything China, Canada, and
+- [03:38.000] Mexico can do tonight to forestall your
+- [03:41.640] implementation of tariffs tomorrow?
+- [03:43.760] No, nothing.
+- [03:45.200] Not right now, no. Not a negotiating
+- [03:47.480] tool?
+- [03:47.920] No, it's not a No, it's pure economic.
+- [03:50.160] We have big deficits with, as you know,
+- [03:52.480] with all three of them.
+- [03:54.400] And in one case, they're sending massive
+- [03:56.400] amounts of fentanyl, killing hundreds of
+- [03:58.400] thousands of people a year with the
+- [04:00.160] fentanyl.
+- [04:01.320] And in the other two cases, they're
+- [04:03.160] making it possible for this
+- [04:05.200] poison to get in, number one, and number
+- [04:07.320] two, we have big deficits and
+- [04:10.840] it's something we're doing and we'll
+- [04:13.240] we'll
+- [04:14.440] possibly very substantially increase it
+- [04:16.519] or not, we'll see how it is, but
+- [04:18.799] it's uh
+- [04:20.040] it's a lot of money coming to the United
+- [04:21.799] States. As you know, we have about a
+- [04:23.960] $200 billion deficit with
+- [04:26.880] with Canada, getting close to $200
+- [04:29.040] billion.
+- [04:30.040] So,
+- [04:30.680] they've treated us very unfairly.
+- [04:33.080] And I say, why should we be subsidizing
+- [04:35.080] Canada? They, you know, it's wonderful.
+- [04:37.280] I have so many friends in Canada, it's
+- [04:38.800] great place.
+- [04:39.600] Is there a concession you're looking
+- [04:40.960] for, sir?
+- [04:41.480] No, we're not looking for a concession.
+- [04:43.760] We'll just see what happens. We'll see
+- [04:46.360] what happens. And with Mexico, it's the
+- [04:47.880] same thing. We have a $250
+- [04:50.840] billion deficit and we have a lot of
+- [04:53.920] people coming into the border and now
+- [04:55.760] we've largely stopped that, but we've
+- [04:57.360] stopped that ourselves
+- [04:59.080] at I think they've done a fantastic job.
+- [05:01.160] You see the numbers, they've dropped to
+- [05:02.440] almost zero.
+- [05:04.120] But we've suffered under the past
+- [05:06.040] administration for years and years,
+- [05:07.960] we've suffered with millions of
+- [05:09.600] criminals coming into our country.
+- [05:11.120] Criminals, people from jails from all
+- [05:12.880] over the world that come through Mexico
+- [05:14.880] and they come through Canada, too. A lot
+- [05:16.480] of them come through Canada and a lot of
+- [05:18.360] fentanyl comes through
+- [05:20.160] Canada. And China makes the fentanyl,
+- [05:22.080] you know, China makes the fentanyl,
+- [05:23.640] gives it to Mexico, puts it through
+- [05:25.440] Canada, puts it through different
+- [05:27.480] different places, mostly Mexico, but
+- [05:29.560] also a lot through Canada.
+- [05:32.320] And so, all three haven't treated us
+- [05:34.440] very well. Sir, may I ask you about your
+- [05:37.240] meeting with Nvidia? What did you talk
+- [05:39.320] about and do you think you need to ban
+- [05:40.960] more of the chips that they're selling
+- [05:42.400] to China?
+- [05:42.720] Well, he's a great gentleman and I
+- [05:44.600] hadn't met him. He's the biggest in the
+- [05:46.760] world in terms of chips.
+- [05:49.320] And uh
+- [05:51.760] I can't say what's going to happen. We
+- [05:54.120] We had a meeting, it was a good meeting.
+- [05:56.240] But eventually, we're going to put
+- [05:58.120] tariffs on chips.
+- [05:59.800] We're going to put tariffs on oil and
+- [06:01.800] gas, that'll happen fairly soon. I think
+- [06:04.240] around the 18th of February.
+- [06:06.520] And we're going to put
+- [06:08.200] a lot of tariffs on steel.
+- [06:10.520] We have already have tariffs on steel
+- [06:12.240] and we've saved our steel industry, but
+- [06:14.000] that was relatively small compared to
+- [06:16.400] what it'll be, but we're going to be
+- [06:17.720] putting tariffs on steel and aluminum
+- [06:19.720] and ultimately copper.
+- [06:22.240] Copper will take a little bit longer.
+- [06:24.840] And that'll happen pretty quickly. It'll
+- [06:26.960] mean
+- [06:27.880] it'll be a great boost for our steel
+- [06:29.400] industry. It'll make our steel industry
+- [06:31.760] very strong.
+- [06:33.440] If I didn't put the tariffs on years ago
+- [06:35.760] on steel, which actually Biden left
+- [06:37.640] because there was so much money that
+- [06:39.080] they couldn't do anything about it,
+- [06:41.200] we would have lost We wouldn't have one
+- [06:42.600] steel mill in this country if I didn't
+- [06:44.160] do that. We saved the steel industry.
+- [06:47.080] So, it was an honor to do it and uh
+- [06:49.960] I think the people that love me most in
+- [06:51.560] the whole world are people that make
+- [06:52.880] steel.
+- [06:54.040] But we're going to be putting
+- [06:56.520] sometime
+- [06:58.160] this month, next month, we're going to
+- [07:00.120] be putting tariffs on steel and
+- [07:02.720] aluminum.
+- [07:04.200] And we'll give you an announcement as to
+- [07:06.000] what the exact date is.
+- [07:07.960] But it'll be a tremendous amount of
+- [07:09.400] money for our country, tremendous
+- [07:11.280] amount. These are big numbers and
+- [07:13.680] in addition to that and and you see the
+- [07:16.040] power of the tariff. I mean, the tariff
+- [07:17.720] is good and nobody can compete with us
+- [07:19.520] because
+- [07:20.600] we have by far the biggest piggy bank.
+- [07:23.760] And so, that'll take place very quickly.
+- [07:26.240] But also, we'll be doing
+- [07:27.400] pharmaceuticals.
+- [07:29.680] To bring our industry back, we want to
+- [07:31.480] bring pharmaceuticals back to the
+- [07:32.960] country and the way you bring it back to
+- [07:34.400] the country is by putting up a wall and
+- [07:37.240] the wall is a tariff wall. We were the
+- [07:39.640] richest country in the world, we were at
+- [07:41.760] our richest from 1870 to 1913. That's
+- [07:44.920] when we had
+- [07:46.120] we were tariff country.
+- [07:48.520] And then they went to an income tax
+- [07:50.320] concept and you know, how did that work
+- [07:52.640] out? It's fine, it's okay, but
+- [07:55.840] would have been very much better. So,
+- [07:57.800] we'll be doing pharmaceuticals and
+- [07:59.680] importantly and drugs, medicines, etc.
+- [08:02.200] All forms of
+- [08:03.560] medicine and pharmaceuticals. And we'll
+- [08:06.760] be doing very importantly steel.
+- [08:09.760] And we'll also be doing chips and things
+- [08:12.520] associated with chips. And sir, what do
+- [08:15.240] you plan on talking with the Japanese
+- [08:16.840] Prime Minister about next Friday when
+- [08:18.320] you all meet? Well, he's coming in
+- [08:20.960] you know, next week.
+- [08:23.200] I don't know, he asked for a meeting and
+- [08:24.600] I I have great respect for Japan. I like
+- [08:27.240] Japan.
+- [08:28.480] Prime Minister Abe was a very close
+- [08:30.440] friend of mine. What happened to him was
+- [08:32.120] so sad, one of the saddest days.
+- [08:34.919] But they're coming in to speak to me and
+- [08:36.640] I look forward to it. Mr. President, do
+- [08:38.400] you have any
+- [08:39.240] concerns that your commentary about
+- [08:42.840] things you have described as common
+- [08:44.560] sense or your observations could in any
+- [08:47.240] way interfere with the thorough
+- [08:49.560] investigation of the crash?
+- [08:51.200] No, I think they'll do an investigation.
+- [08:53.120] It'll probably come out the way I said
+- [08:54.720] it. I like to
+- [08:56.000] put it up front. I'm so tired of
+- [08:57.720] listening to things happen to our
+- [08:59.600] country and then people say, "We'll do
+- [09:01.360] an investigation." Three years later,
+- [09:03.120] they come out with a report that nobody
+- [09:04.720] looks at. Especially, not in all cases
+- [09:07.320] can you do that, but in this case, you
+- [09:08.800] know, you had a
+- [09:10.280] you had a helicopter that was the Black
+- [09:12.440] Hawk was too high.
+- [09:14.040] It was above the 200 limit by double.
+- [09:17.440] Shouldn't have been there. And there
+- [09:18.600] were some other mistakes made, too, and
+- [09:20.160] I pointed them out, also, and I was
+- [09:21.840] right on all of it, but they'll still do
+- [09:23.320] an investigation just to check it out,
+- [09:25.160] but I think that's what they're
+- [09:26.120] in chief, are you at all concerned about
+- [09:28.000] opining about the Army and the conduct
+- [09:31.240] of that aircraft when you are commander
+- [09:34.120] in chief and these are the people who
+- [09:35.440] report to you and there's an
+- [09:36.960] investigation ongoing?
+- [09:38.160] This was all caused by
+- [09:40.160] bad rules, regulations, and other things
+- [09:42.600] by
+- [09:43.640] Biden, the Biden administration. And
+- [09:46.480] when you look at the way they ran
+- [09:47.840] things, in fact, if you look, we hired
+- [09:51.280] one of the first things I told him to
+- [09:52.640] do, I said, "Get talented people in
+- [09:55.560] those in those beautiful towers
+- [09:57.760] overlooking runways,
+- [09:59.840] Uh you better get them in there fast
+- [10:01.520] because we don't have people there that
+- [10:02.960] are qualified and you knew that because
+- [10:05.560] planes were landing very very late. They
+- [10:07.360] were circling all over the place. We had
+- [10:09.680] people that didn't know what the hell
+- [10:10.840] they were doing and if you look Excuse
+- [10:13.360] me,
+- [10:13.960] and and there are other air traffic
+- [10:16.640] controllers.
+- [10:17.800] They uh
+- [10:19.720] We have to have the best people, the
+- [10:21.160] smartest people, the sharpest people
+- [10:23.720] as uh controlled tower experts and
+- [10:27.480] that's what they have to be. They have
+- [10:28.520] to be experts. They have to be very
+- [10:30.040] smart and we didn't have our best and if
+- [10:32.720] you read the quote that I read yesterday
+- [10:35.120] at the news conference, it talked about
+- [10:36.840] people that were psychologically injured
+- [10:38.800] were okay and people that had lots of
+- [10:40.680] problems were okay. I'd read it again
+- [10:43.400] uh if you'd like me to, but I don't
+- [10:44.880] think I have to waste your time.
+- [10:46.440] though, sir, with planes in the air all
+- [10:48.560] around the country, people relying on
+- [10:50.280] that as safety. Are you suggesting
+- [10:52.320] there's an ongoing risk?
+- [10:54.040] No, I think there's very little risk,
+- [10:55.640] but I think that we have to make sure
+- [10:57.080] that this never happens again. Very very
+- [10:58.920] little risk and we're taking uh actions
+- [11:01.960] that this can't happen again. Uh the
+- [11:04.240] helicopter as you know was out of its
+- [11:06.560] zone.
+- [11:07.800] Shouldn't have been out of its zone. It
+- [11:09.560] was at the same height as the airplane.
+- [11:12.000] Now the airplane was coming down on its
+- [11:13.880] track. It was perfect. It was in perfect
+- [11:15.760] shape coming down and something was in
+- [11:17.680] its way. You can't let that happen
+- [11:19.760] and it won't be happening again and this
+- [11:21.560] was all because of weak rules in the
+- [11:23.200] Biden administration.
+- [11:25.240] And uh
+- [11:26.680] we're just not going to let that kind of
+- [11:28.040] thing happen again and
+- [11:29.720] again I could wait and I could, you
+- [11:31.680] know, give a report in 2 years like they
+- [11:33.520] always do and sometimes it's obvious. In
+- [11:36.040] this case to me it was really obvious
+- [11:37.680] and I think I've been proven
+- [11:39.600] uh proven to be very correct. Yeah. Mr.
+- [11:42.400] President, what do you expect from your
+- [11:43.600] meeting with Prime Minister Netanyahu
+- [11:45.240] next week?
+- [11:46.640] Uh
+- [11:47.720] I expect a lot of good things.
+- [11:49.880] From all meetings I expect that things.
+- [11:52.280] Uh Marco Rubio as you know is going to
+- [11:53.839] make a tour of various countries in
+- [11:56.080] South America.
+- [11:57.760] Uh he's going to be meeting in Panama
+- [12:00.040] where Panama's treated us very badly.
+- [12:02.360] They gave him rather them rather
+- [12:05.160] foolishly a thing called the Panama
+- [12:07.600] Canal, the most expensive project we
+- [12:09.600] ever built if you look at today's
+- [12:11.080] numbers. Most expensive ever built. We
+- [12:13.760] lost 38,000
+- [12:15.600] men
+- [12:16.720] in that case, all men, just about all
+- [12:18.480] men.
+- [12:19.400] Uh 38,000 to the mosquito
+- [12:22.120] to malaria and various other
+- [12:24.760] problems that you get from jungles. It
+- [12:26.640] was a tremendously
+- [12:28.600] costly event.
+- [12:30.680] Uh we built the Panama Canal 110 years
+- [12:33.800] ago. Think of it, the most expensive
+- [12:36.360] development we ever did
+- [12:38.600] and really one of the wonders of the
+- [12:40.680] world, one of the great wonders of the
+- [12:42.360] world and uh
+- [12:44.040] we didn't give it to China. We gave it
+- [12:45.600] to Panama
+- [12:47.120] and Panama's been ripping down all the
+- [12:49.200] the China language signs. They've been
+- [12:51.800] working like mad to try but about 70% of
+- [12:54.960] the signs were up and they were
+- [12:56.960] written in Chinese and that's not the
+- [12:59.520] deal.
+- [13:00.600] So we're going to take it back. They've
+- [13:02.520] already offered to do many things, but
+- [13:05.280] we think it's appropriate that we take
+- [13:06.640] it back. They've totally violated the
+- [13:08.200] agreement. We have an agreement. They
+- [13:10.080] violated the agreement and Marco Rubio's
+- [13:12.200] going over there to talk to the uh
+- [13:15.920] to the gentleman that's in charge. Mr.
+- [13:18.000] President, do you think that it's a good
+- [13:19.000] idea for Jordan and Egypt to be taking
+- [13:19.960] in Palestinians when they reject the
+- [13:22.560] idea and the Palestinians who are living
+- [13:24.720] now in Egypt? I think Jordan will take
+- [13:26.000] people. People from Gaza. And I think
+- [13:27.080] Egypt will take them also.
+- [13:28.280] Oh, I think Jordan will take people,
+- [13:30.240] yeah, people from Gaza.
+- [13:32.760] And I think Egypt will take them also. I
+- [13:35.000] mean I heard somebody said they're not
+- [13:36.320] going to, but I think they will.
+- [13:38.120] I feel confident they will. Mr.
+- [13:39.720] President, will tomorrow's tariffs
+- [13:41.720] include oil?
+- [13:43.800] What? Will tomorrow's tariffs be
+- [13:46.040] included inclusive of Canadian crude? Uh
+- [13:48.680] I'm probably going to reduce the tariff
+- [13:50.839] a little bit on that. We think we're
+- [13:52.160] going to bring it down to 10% on the
+- [13:53.839] oil.
+- [13:54.640] And you said 25% when the when the
+- [13:56.920] Canada said.
+- [13:59.080] Mr. President, are these tariffs
+- [14:00.640] stacking on top of already existing
+- [14:02.480] tariffs? Yes, on top of whatever may be
+- [14:04.720] existing.
+- [14:06.040] Mr. President
+- [14:06.520] Mr. President, I have a quick question
+- [14:07.880] about Venezuela. Rick Grenell was seen
+- [14:09.880] on state TV shaking hands with President
+- [14:11.880] Maduro. Is there any concern that that
+- [14:13.600] might lend legitimacy to the Maduro
+- [14:15.920] administration? No, we want to do
+- [14:17.600] something with Venezuela. We've been
+- [14:19.920] I've been a very big opponent of
+- [14:21.280] Venezuela and Maduro.
+- [14:23.520] Uh
+- [14:24.360] They've treated us
+- [14:26.280] not so good, but they've treated more
+- [14:28.360] importantly the Venezuelan people very
+- [14:30.880] badly. We have tremendous Venezuelan
+- [14:32.720] population. I got 92% of the vote, the
+- [14:35.040] Venezuelan vote.
+- [14:36.680] Now we want to see what we can do to get
+- [14:38.800] people back in their homeland safe, free
+- [14:41.839] and all uh
+- [14:44.280] He's meeting with a lot of different
+- [14:46.120] people.
+- [14:47.120] But we're uh we are for the people of
+- [14:49.720] Venezuela. We're for the uh Venezuelan
+- [14:52.520] Americans. If you look at it
+- [14:54.720] we have them all in Florida right around
+- [14:56.600] the Doral area. That's where that's
+- [14:58.200] really they call it Little Venezuela,
+- [15:00.320] right?
+- [15:01.880] And uh they voted for me close to 100%.
+- [15:05.480] So we'll see what we can do to
+- [15:06.640] straighten out the situation in
+- [15:08.079] Venezuela. Venezuela is uh
+- [15:11.160] has been very unfortunate. I I was very
+- [15:13.520] surprised when I saw that Biden
+- [15:15.720] uh agreed to buy a lot of oil from
+- [15:17.600] Venezuela because Venezuela was just
+- [15:19.480] about finished. They
+- [15:21.320] the dictator
+- [15:22.680] and when that happened uh it brought him
+- [15:25.280] back to life, you know. Biden went out
+- [15:26.880] and they they buy
+- [15:29.240] millions of barrels of oil. I say,
+- [15:32.120] "What's that all about?"
+- [15:33.839] So we're not going to let that stupid
+- [15:35.160] stuff happen. So we'll see what happens.
+- [15:36.920] We're not happy with Venezuela. We don't
+- [15:38.600] like
+- [15:39.600] the way they've treated uh
+- [15:41.680] the Venezuelans at all. Mr. President,
+- [15:44.880] there have been some
+- [15:46.839] uh warnings or messages that government
+- [15:48.600] websites will be shut down this evening
+- [15:50.560] to scrub them of DEI content. Can you
+- [15:52.839] confirm that? The what's been shut down?
+- [15:54.600] Uh government websites, excuse me, will
+- [15:56.440] be shut down this evening to scrub them
+- [15:58.640] of DEI content. Can you confirm whether
+- [16:01.160] that's accurate and if there are any
+- [16:02.320] concerns
+- [16:03.000] know. It doesn't sound like a bad idea
+- [16:04.680] to me. DEI is would have ruined our
+- [16:07.000] country and now it's dead.
+- [16:09.320] I think DEI is dead. So if they want to
+- [16:11.200] scrub the websites, that's okay with me,
+- [16:13.000] but uh
+- [16:14.959] uh I can't tell you. I guess probably
+- [16:16.640] certain people handle it certain ways,
+- [16:19.200] I'll tell you who's very happy about it,
+- [16:20.600] the military. The real leaders, the real
+- [16:22.959] generals in the military, they're very
+- [16:24.520] happy about it.
+- [16:25.959] Uh Doug is very happy about it. He's got
+- [16:27.800] a big big uh
+- [16:30.040] group of people that are going to be
+- [16:31.240] working for them or really starting
+- [16:33.440] right now. They just got signed up and
+- [16:36.320] uh they're very happy about it. He had a
+- [16:37.680] lot of DEI. Everybody did, but he has
+- [16:40.640] not been a fan. It would have really it
+- [16:42.839] was really hurting our country badly.
+- [16:45.000] It's costing a lot of money, too. You
+- [16:46.440] see the kind of money we're talking
+- [16:47.640] about? Hundreds of millions of dollars
+- [16:49.600] for nonsense.
+- [16:51.360] Now we have a we have our country back
+- [16:53.120] now. Our country is back. It is a
+- [16:56.280] it's a nice thing to say. I've never
+- [16:57.560] seen such love. I've never had anything
+- [16:59.480] like it. I've never seen anything like
+- [17:00.959] it. Uh people are coming up, "Sir, thank
+- [17:03.160] you for bringing our country back. We
+- [17:04.839] were losing our country." And
+- [17:07.640] I think we're stronger now than we've
+- [17:09.040] been in
+- [17:10.360] many many decades. Mr. President, any
+- [17:12.320] update on your call with Vladimir Putin?
+- [17:17.560] Well, we'll be we'll be speaking. We've
+- [17:20.000] been we'll be speaking and I think we'll
+- [17:23.240] perhaps do something that'll be
+- [17:24.760] significant. We want to end that war.
+- [17:26.480] That war would have never started if I
+- [17:28.000] was president and we want to end that
+- [17:29.679] war. That war is a horrible war.
+- [17:32.040] Millions of young people are being
+- [17:33.679] killed. Mostly on the lines now. Mostly
+- [17:36.080] it's soldiers.
+- [17:37.800] But the cities have been largely
+- [17:39.280] destroyed, many of them.
+- [17:41.080] Uh they're like demolition sites.
+- [17:43.560] But the soldiers are just shooting at
+- [17:45.360] each other. You know, it's a very flat
+- [17:46.679] land. I said this the last time. Very
+- [17:48.679] very flat land. The only place
+- [17:51.000] that a bullet stops is when it hits a
+- [17:52.800] person.
+- [17:54.320] And they're hitting a lot of people.
+- [17:55.480] They're hitting a lot of soldiers, but
+- [17:56.760] on both sides uh
+- [17:59.240] you know, I think Russia would probably
+- [18:01.120] say close to 800,000 and Ukraine 6 or
+- [18:04.360] 700,000.
+- [18:06.960] And it's it's just a uh
+- [18:10.000] a senseless situation and
+- [18:12.360] it's got to stop. So whatever I can do
+- [18:14.320] to stop it and we are having
+- [18:16.200] discussions, yes.
+- [18:17.880] Are they
+- [18:19.000] already scheduled and ongoing?
+- [18:21.040] Already talking, yes.
+- [18:22.640] You So you've already spoken with
+- [18:23.920] Vladimir Putin?
+- [18:24.560] I wouldn't say that, but we are having
+- [18:26.320] very serious discussions about
+- [18:28.840] We are Well, I just don't want to say
+- [18:30.200] that. We're having very serious
+- [18:32.040] discussions about that war trying to get
+- [18:33.919] it ended.
+- [18:34.560] With Russia?
+- [18:36.120] With Russia, yeah. At the Department of
+- [18:38.080] Justice and the FBI, there are a number
+- [18:39.760] of high-level people who are being asked
+- [18:42.320] to resign or are being told they are
+- [18:44.760] going to be fired. Did you specifically
+- [18:46.800] request any actions at the Bureau or DOJ
+- [18:50.159] with respect to those employees?
+- [18:52.480] No, but we have some very bad people
+- [18:54.240] over there with the weaponized at a
+- [18:56.440] level that nobody's ever seen before.
+- [18:58.280] They came after a lot of people like me,
+- [19:00.120] but they came after a lot of people. No,
+- [19:02.440] I wasn't involved in it. I I'll have to
+- [19:05.040] see what is exactly going on after this
+- [19:07.760] is finished. But if they fired some
+- [19:10.360] people over there, that's a good thing
+- [19:11.880] because they were very bad. They were
+- [19:13.240] very corrupt people. Very corrupt and
+- [19:15.720] they hurt our country very badly with
+- [19:17.320] the weaponization.
+- [19:18.919] Uh they used uh
+- [19:20.880] They used the Justice Department to go
+- [19:22.760] after their political opponent which in
+- [19:25.240] itself is illegal.
+- [19:27.560] And obviously it didn't work.
+- [19:30.159] Are you going to impose tariff on the
+- [19:32.240] European Union? What does that mean? Are
+- [19:34.400] you going to impose tariff too on
+- [19:36.400] European Union like you did you are
+- [19:38.120] going to do for Mexico and Canada?
+- [19:40.360] Well, you're asking me a question
+- [19:42.640] because I'm sure you didn't hear
+- [19:44.960] am I going to impose tariffs on the
+- [19:47.360] European Union?
+- [19:49.159] Do you want the truthful answer or
+- [19:50.720] should I give you a political answer?
+- [19:53.240] Absolutely.
+- [19:55.600] Absolutely. The European The European
+- [19:57.760] Union has treated us so terribly. You
+- [19:59.880] promised Americans to try to reduce
+- [20:02.000] costs and so many of the products would
+- [20:04.320] be tariffed when they come into the
+- [20:06.440] country. The outgoing country is not
+- [20:08.400] paying the tariff. The
+- [20:10.640] buyers in the United States pay that and
+- [20:13.440] then
+- [20:14.480] that's passed on to consumers in most
+- [20:16.160] instances. Sometimes.
+- [20:17.840] How would you expect to have prices come
+- [20:20.840] down if you have such a broad plan for
+- [20:23.320] tariffs? And what do you say to the
+- [20:25.040] voters who want to see you reduce
+- [20:26.920] everyday costs?
+- [20:27.880] Well, let me just tell you that I got
+- [20:29.480] elected for a lot of reasons. Number one
+- [20:31.320] was the border. Number two was inflation
+- [20:33.160] cuz I had almost no inflation.
+- [20:35.640] And yet I charged hundreds of billions
+- [20:37.520] of dollars of tariffs to countries. And
+- [20:40.680] think of it, I had almost no inflation
+- [20:43.520] and took in
+- [20:45.880] $600 billion of money from other
+- [20:49.320] countries.
+- [20:50.880] And
+- [20:52.560] tariffs don't cause inflation. They
+- [20:54.080] cause success.
+- [20:55.920] It cause big success. So we're going to
+- [20:57.280] have great success. Uh there could be
+- [20:59.080] some temporary short-term disruption and
+- [21:01.760] people will understand that. I had that
+- [21:03.520] when I negotiated some of the good deals
+- [21:05.240] for the farmers. And unfortunately,
+- [21:07.040] those deals have been
+- [21:09.440] led astray by Biden and his people
+- [21:11.400] because they didn't enforce the deals.
+- [21:13.440] Uh we have a deal with China which is
+- [21:14.960] phenomenal for the farmers, but there
+- [21:16.360] was nobody to enforce it in the Biden
+- [21:18.760] administration. They let them get away
+- [21:20.920] with murder. So we're that's another
+- [21:22.360] thing we're going to be bringing. Do you
+- [21:23.720] think And they committed
+- [21:25.400] They committed to buying $50 billion
+- [21:27.480] worth of farm product and they did it
+- [21:29.480] when I was president. As soon as I left,
+- [21:31.320] they stopped doing it because there was
+- [21:32.760] nobody in Biden to enforce it. But the
+- [21:35.800] tariffs are going to make us very rich
+- [21:38.160] and very strong and
+- [21:40.440] we're going to treat other countries
+- [21:41.960] very fairly.
+- [21:43.280] Uh but if you think about it, other
+- [21:45.760] countries charge us tariffs. We don't
+- [21:48.080] charge them tariffs.
+- [21:49.720] And it's about time that that changes.
+- [21:51.800] So
+- [21:51.960] Sir, are you concerned about the market
+- [21:53.360] reaction around tariffs? No. Uh no.
+- [21:56.160] Tariffs The word tariff is a very
+- [21:58.040] misunderstood word. Word I've You've
+- [22:00.320] heard me say I say it kiddingly, but uh
+- [22:04.120] it's one of the most beautiful words
+- [22:06.400] in the dictionary. Really is.
+- [22:09.200] And we've been taken advantage of
+- [22:10.920] because others have charged us VATs. As
+- [22:13.120] an example, the European Union charges
+- [22:15.120] us 20% plus plus plus a VAT tax. Called
+- [22:18.679] the VAT tax or similar.
+- [22:20.560] And it costs us an absolute
+- [22:23.520] fortune. We are treated so badly. They
+- [22:25.360] don't take our cars.
+- [22:27.080] They don't take our farm products
+- [22:28.440] essentially. They don't take almost
+- [22:29.840] anything.
+- [22:31.040] And we have a tremendous deficit with
+- [22:32.679] the European Union. So we'll be doing
+- [22:34.240] something very substantial with the
+- [22:36.360] European Union. We're going to bring the
+- [22:38.520] level up to where it should be. And if
+- [22:40.960] you think of the European Union, then
+- [22:42.560] you go to NATO. It's largely the same
+- [22:45.280] group of countries.
+- [22:47.200] Until I came along. I mean, we were
+- [22:50.040] paying almost 100% of NATO only to get
+- [22:52.520] bad trade deals.
+- [22:54.360] And now uh
+- [22:56.240] it's been evened out, but very unfair
+- [22:58.240] having to do It was evened out pretty
+- [22:59.960] good. Actually, I did a good job. They
+- [23:01.679] paid
+- [23:03.440] $440 billion if you look at the
+- [23:06.160] Secretary General's report and he was
+- [23:08.160] here recently and he said that. He said
+- [23:10.160] one of the most amazing things I've ever
+- [23:11.880] seen is what
+- [23:13.280] President Trump was able to do with
+- [23:14.800] these countries of Europe of which he
+- [23:16.440] was in charge of them, but he couldn't
+- [23:17.880] get them to pay. I get I went over. I
+- [23:19.480] said, "You got to pay. If you don't pay,
+- [23:21.200] we're not going to protect you." It's
+- [23:22.280] very simple.
+- [23:23.679] But uh
+- [23:25.120] very unfair is with Ukraine because
+- [23:26.960] we're in for $300 billion plus and
+- [23:29.800] they're in probably for $100 billion.
+- [23:31.560] There's a $200 billion difference. And
+- [23:34.640] they need it more than we do. You know,
+- [23:36.320] we have an ocean in between. They don't.
+- [23:39.320] And so they're going to have to step it
+- [23:40.880] up a little bit.
+- [23:42.560] With efforts to reduce the federal
+- [23:44.320] workforce, whether it's offering
+- [23:46.840] what we've called the buyout package or
+- [23:48.600] other efforts, do you have any concerns
+- [23:50.720] that there will be employees broadly
+- [23:52.640] across the federal government who might
+- [23:54.080] take that up? And they're a part of the
+- [23:56.000] many different ways that agencies
+- [23:57.640] protect the public from food inspections
+- [24:00.160] to water safety to I know, but
+- [24:03.040] everybody's replaceable. And we'll get
+- [24:05.440] very good people to replace them if it
+- [24:07.320] turns out to be more than we thought.
+- [24:10.200] It could be a lot. It could be a little.
+- [24:11.600] We don't know. But we'd we'd love to
+- [24:13.160] have them leave. We're trying to
+- [24:14.480] remember this. We want them to go into
+- [24:16.240] the private sector.
+- [24:17.800] It's our dream to have everybody almost
+- [24:19.760] work in the private sector, not in the
+- [24:21.400] public sector.
+- [24:23.040] Uh we have many people Very few people
+- [24:24.960] came to work. They were you know, it
+- [24:26.480] started more or less with COVID, but
+- [24:28.160] actually even before COVID.
+- [24:30.120] But it started with uh with the COVID.
+- [24:32.240] They didn't come back.
+- [24:34.480] And then Biden let them get away with
+- [24:36.640] murder and they You know, we had
+- [24:39.360] federal workforce like 4% coming into
+- [24:41.679] the office.
+- [24:43.240] And that just doesn't work. You know,
+- [24:44.520] people could say it does, but it doesn't
+- [24:46.200] work. You have to be
+- [24:47.920] unified in a group in the office. It's
+- [24:49.880] just It it was crazy.
+- [24:52.040] You don't know what they're doing. And
+- [24:53.800] then at some point we may ask them to
+- [24:55.760] certify that they didn't have two jobs.
+- [24:58.200] Meaning, were they really getting a
+- [25:00.400] check from us, the government, and then
+- [25:02.240] were they also working a second job and
+- [25:04.200] a third job and you know, on on
+- [25:06.160] government time.
+- [25:07.920] And many of them will say that they did,
+- [25:10.440] you know, which is which is not legal,
+- [25:13.080] but it's a problem. It's a problem. No,
+- [25:15.800] we want to get that out. We want to
+- [25:17.000] clean it out. You know, people have been
+- [25:18.400] trying to reduce federal government now
+- [25:20.280] for
+- [25:21.760] 40 years, 45 years.
+- [25:24.040] And they haven't been able to do it. And
+- [25:25.520] this is a way of doing it I think very
+- [25:27.240] nicely. It's sort of a buyout, too.
+- [25:29.679] I think we're treating people very good.
+- [25:31.320] But
+- [25:32.560] people
+- [25:33.920] don't come
+- [25:35.320] to the office, they won't have a job
+- [25:37.640] starting on that very special date. So
+- [25:39.480] we'll see how that works out. I mean,
+- [25:40.840] nobody knows how that's going to turn
+- [25:42.240] out. Everybody might show up to the
+- [25:43.720] office and maybe a large number won't
+- [25:46.000] show up. But if they don't show up,
+- [25:47.800] we've accomplished a very serious goal.
+- [25:50.120] We're trying to reduce government. Does
+- [25:51.920] Mr. Musk or any of those associated with
+- [25:54.480] your DOGE
+- [25:56.040] effort, do they have any direct access
+- [25:58.600] through the government systems to how
+- [26:00.560] money is dispersed? No, nothing. No,
+- [26:03.040] they uh This has nothing to do also with
+- [26:05.640] the federal cutting. You know, with this
+- [26:06.960] federal cutting.
+- [26:08.240] Uh this is very separate. This is if you
+- [26:10.160] don't show up, you don't paid.
+- [26:12.880] Uh but DOGE I think
+- [26:15.120] great progress has been made with
+- [26:16.840] talking about cutting
+- [26:19.600] over a trillion dollars of waste.
+- [26:21.960] Talking about waste. We're not talking
+- [26:23.280] about we're going to
+- [26:24.679] love and cherish Social Security,
+- [26:26.480] Medicare, Medicaid. We're not going to
+- [26:27.920] do anything with that other than if we
+- [26:29.679] can find some abuse or waste, we'll do
+- [26:31.800] something, but the people won't be
+- [26:33.080] affected.
+- [26:34.320] Uh it'll only be more effective and
+- [26:36.840] better.
+- [26:37.920] And our country as our country gets
+- [26:39.440] richer,
+- [26:40.520] uh the people on Social Security,
+- [26:42.120] Medicare, Medicaid, those people are
+- [26:43.840] going to be more secure. If Biden had
+- [26:46.000] gotten elected, Social Security was
+- [26:47.720] going to fail because the country was
+- [26:49.280] failing. It was going to fail. The
+- [26:50.520] country was going to fail.
+- [26:52.320] And therefore, the Social Security,
+- [26:54.080] Medicare, Medicaid and all of the other
+- [26:55.840] things that you may get would not be
+- [26:58.800] able to be paid.
+- [27:00.320] Uh our country's getting very strong and
+- [27:02.520] you see it. I think more progress has
+- [27:04.080] been made in the last
+- [27:05.720] two or three weeks than has been made in
+- [27:07.880] the last four years. I think not only
+- [27:10.080] has more progress been made in the last
+- [27:11.679] four years, it's a forward deep
+- [27:13.360] progress. We went way backward as a
+- [27:16.120] country in so many different ways from
+- [27:18.040] woke to all of the other things that
+- [27:20.400] took place that were so bad. You look at
+- [27:22.440] Afghanistan, how embarrassing that was.
+- [27:24.880] I think Afghanistan really started the
+- [27:27.560] problem with Russia and Ukraine when
+- [27:29.240] Putin looked over and he saw how
+- [27:30.560] incompetently that was handled. I was
+- [27:33.040] getting out, but I was going to keep
+- [27:34.440] Bagram. Right now, China has Bagram.
+- [27:37.679] I was going to keep one of the biggest
+- [27:39.200] airbases in the world. They left it. But
+- [27:41.760] I was other than Bagram, I was going to
+- [27:43.440] get out. And I wasn't keeping Bagram for
+- [27:45.480] Afghanistan. I was keeping it for China
+- [27:48.160] because it's 1 hour away from where
+- [27:49.800] China makes its nuclear weapons.
+- [27:52.240] And we were keeping it. So
+- [27:54.160] we have a lot of great things happening
+- [27:55.640] in our country and we appreciated you
+- [27:57.360] here. And I'm really thrilled about Doug
+- [28:00.120] and I'm really thrilled about his friend
+- [28:01.920] Chris Wright who's
+- [28:03.360] a legend in the oil business, right?
+- [28:06.040] They keep telling me, Catherine, he's
+- [28:07.520] like a legend. And he's a legend, too,
+- [28:09.920] in a lot of businesses. And we have an
+- [28:12.320] amazing group of people working with us.
+- [28:14.280] This is a man behind me who became a
+- [28:16.600] tremendous success. He was not a was not
+- [28:19.320] a wealthy man. He didn't start off a
+- [28:20.800] wealthy man and he
+- [28:22.320] ended up a wealthy man. And And you
+- [28:24.200] know, that's a great talent and he's
+- [28:26.000] willing to
+- [28:27.280] sacrifice so much and to put it to work
+- [28:29.960] for our country. Watch the job he does
+- [28:31.800] in
+- [28:32.600] on the interior.
+- [28:34.679] But in particular on really making our
+- [28:37.320] country very very wealthy by utilizing
+- [28:39.640] it properly. And at the same time
+- [28:41.760] environmentally, he does it very It's
+- [28:43.400] He's very much an environmentalist. He's
+- [28:45.760] going to do it very carefully and very
+- [28:47.880] painstakingly good. But uh
+- [28:52.760] you just watch what happens in uh his
+- [28:56.120] compatriot, his friend, and and also
+- [28:58.440] considered the most talented man in the
+- [29:00.360] oil business is the head of the
+- [29:02.480] Department of Energy. They work
+- [29:04.000] together. It's almost like a
+- [29:05.080] partnership. It really is a partnership.
+- [29:07.640] And watch what that does for our
+- [29:09.120] country. It'll be fantastic thing to
+- [29:10.960] see. Thank you very much, everybody.
+- [29:12.640] Thank you, President. THANK YOU,
+- [29:14.080] PRESIDENT.
+- [29:15.200] THANK YOU, PRESIDENT.
+- [29:17.360] THANK YOU, PRESIDENT.
+- [29:19.280] THANK YOU, PRESIDENT. THANK YOU,
+- [29:20.360] PRESIDENT. LET'S GO. LET'S GO. LET'S GO.
+- [29:22.520] LET'S GO.
+- [29:23.560] LET'S GO.

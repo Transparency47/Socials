@@ -1,0 +1,145 @@
+<!-- source: https://www.youtube.com/watch?v=lkg-ssqjHhE -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: lkg-ssqjHhE -->
+<!-- date_published: 2025-10-29T09:50:11+00:00 -->
+<!-- date_accessed: 2026-06-02T02:42:18.195219+00:00 -->
+
+# Transcript: President Trump Participates in a Dinner Hosted by the President of the Republic of Korea
+
+- [00:01.839] there.
+- [00:03.919] Uh okay.
+- [00:07.919] >> Thank you very much for your
+- [00:09.760] participation at Heads of States. It is
+- [00:12.719] a great pleasure to be able to meet you
+- [00:14.799] at this table.
+- [00:17.279] President Trump has joined us today.
+- [00:22.000] We are all allies and friends of the US.
+- [00:27.920] The whole world is faced with multiple
+- [00:31.519] challenges and in these times
+- [00:34.559] collaboration and cooperation among
+- [00:36.719] states is more important than ever
+- [00:38.640] before.
+- [00:40.800] This is not a this is indeed a rare
+- [00:43.280] opportunity for us to gather.
+- [00:46.160] I hope it will be a great opportunity to
+- [00:48.320] listen to your great insights.
+- [00:51.440] in particular, President Trump has
+- [00:54.079] joined us and I do believe that it is
+- [00:56.640] very significant.
+- [01:01.039] >> As the host,
+- [01:06.159] I would like to wish each and every one
+- [01:08.960] of you prosperity and also world peace.
+- [01:12.240] Let me raise a toast
+- [01:17.520] >> for world peace and collaboration
+- [01:19.600] between states.
+- [01:30.400] >> I would also
+- [01:33.119] I would now like to turn the floor to
+- [01:35.439] President Trump for his remarks.
+- [01:43.840] Okay.
+- [01:46.560] >> Hello.
+- [01:48.799] >> So, uh, I'd like to thank everybody or I
+- [01:51.439] know you all either e either reasonably
+- [01:54.159] well or very well and we had a
+- [01:56.799] tremendous meeting today with South
+- [01:59.119] Korea. I think uh the meeting was uh was
+- [02:03.600] determined very much determined and we
+- [02:06.719] made our deal. We pretty much finalized
+- [02:09.360] a trade deal and we discussed some other
+- [02:12.000] things having to do with uh national
+- [02:14.319] security etc. And I think we came to a
+- [02:17.599] conclusion on a lot of on a lot of very
+- [02:19.440] important items. Uh we had a terrific
+- [02:22.720] meeting in Japan also and we concluded a
+- [02:26.480] trade deal very big one very big trade
+- [02:28.480] deal and uh I always say good for both
+- [02:31.520] countries. I think it really is great
+- [02:33.120] for both countries but uh I just wanted
+- [02:36.319] to thank you. You really you rolled out
+- [02:39.519] a red carpet that was a very good red
+- [02:41.280] carpet, a beautiful red carpet and uh
+- [02:44.319] giving me the honor of that magnificent
+- [02:48.480] piece of art because it really was a
+- [02:50.640] piece of art that you presented to me
+- [02:52.319] today and to be the first president of
+- [02:55.120] the United States that got that was
+- [02:56.800] really something very special. So, I
+- [02:58.959] appreciate it very much and uh I won't
+- [03:01.040] forget the trip and we'll be working
+- [03:03.360] together and you have a little bit of a
+- [03:05.360] cloud over your country and we're going
+- [03:06.720] to get that cloud solved. Uh you have a
+- [03:10.640] neighbor that hasn't been as nice as
+- [03:13.200] they could be and I think they will be.
+- [03:14.640] I know Kim Jong-un very well and I think
+- [03:18.080] things will work out very well. Tomorrow
+- [03:20.159] I meet with President Xi of China and I
+- [03:22.400] look forward to that and we've been
+- [03:24.800] talking a lot over the last month and I
+- [03:27.120] think we're gonna have something that's
+- [03:28.720] going to be very very satisfactory to
+- [03:31.200] China and to us. I think we're going to
+- [03:32.640] have a I think it's going to be a very
+- [03:34.319] good meeting. I look forward to it
+- [03:35.599] tomorrow morning. We meet and then I go
+- [03:38.640] back to the United States and then I go
+- [03:41.440] around the United States and the same
+- [03:43.360] thing happens. But we're doing very
+- [03:44.799] well. Our country is doing phenomenally
+- [03:46.640] well, better than I think it's ever
+- [03:48.560] done. And we hit new new highs in the
+- [03:50.560] stock markets. All of them. Every
+- [03:52.720] market's hit new highs. And u they have
+- [03:55.760] I think 48 times since I've been nine
+- [03:58.400] months. We hit 48 times we've hit new
+- [04:00.959] highs. And many of you are investors in
+- [04:03.599] the United States from the standpoint of
+- [04:05.360] stocks. You put a lot of money in our
+- [04:07.280] stocks. So you're doing very well. I'd
+- [04:08.720] like to congratulate you. In some cases,
+- [04:10.480] you've doubled your money in about a
+- [04:12.000] year. And I'm very impressed with you.
+- [04:14.560] Your your your voters are very impressed
+- [04:17.120] with you. But we have we've done
+- [04:18.959] amazingly well. I don't think there's
+- [04:20.320] ever been anything like it. And we're
+- [04:22.320] over 17 trillion probably up to 18
+- [04:24.800] trillion dollars of investment. Uh in
+- [04:27.280] the last four years of the last
+- [04:29.199] administration there were less than a
+- [04:30.800] trillion. And we're over 17 trillion.
+- [04:33.680] We're close to 18. I think we're going
+- [04:35.120] to be 21 or 22 trillion by the time I
+- [04:37.919] finish my first year. And there's never
+- [04:39.680] in history there's never been anything
+- [04:41.120] like that for any country. Not even
+- [04:42.639] close. And part of that is the national
+- [04:45.600] security you know given to us by the
+- [04:47.600] tariffs properly used tariffs very
+- [04:50.000] properly used and uh other countries as
+- [04:53.680] you know have used them against us but
+- [04:55.440] we we never chose to use them very much
+- [04:58.479] and uh we should have we should have and
+- [05:02.080] it's made a big difference. Our country
+- [05:03.680] is thriving. I think we have the hottest
+- [05:06.000] country anywhere in the world and a year
+- [05:08.240] ago we were a very troubled nation but
+- [05:11.520] we're not anymore. So, I I just uh I
+- [05:14.400] just think it's an honor to be with you.
+- [05:15.919] You've all done a fantastic job. You're
+- [05:17.680] fantastic leaders. We had a great
+- [05:19.840] meeting a week ago. You came all the way
+- [05:21.520] and now you came here, but this isn't
+- [05:23.280] quite as far. This is this time I
+- [05:26.160] >> This time I traveled far. But you've
+- [05:28.960] done a fantastic job. We're working
+- [05:30.720] together on rare earths, but we're
+- [05:32.560] working on a lot of things together and
+- [05:34.160] it's all working out very well. But I
+- [05:36.560] just want to thank you for your
+- [05:37.600] hospitality, Mr. President. and it's
+- [05:39.360] been great and it's an honor and we'll
+- [05:40.880] be back and we'll see you again and
+- [05:42.320] thank you very much.
+- [05:44.400] Thank you very much.
+- [05:47.153] [applause]

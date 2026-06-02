@@ -1,0 +1,616 @@
+<!-- source: https://www.youtube.com/watch?v=_E2vePkWoKY -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: _E2vePkWoKY -->
+<!-- date_published: 2025-10-18T23:00:35+00:00 -->
+<!-- date_accessed: 2026-06-02T02:43:16.753930+00:00 -->
+
+# Transcript: Vice President JD Vance Delivers Remarks at the 250th Anniversary for the United States Marine Corps
+
+- [00:11.670] Announcer: Ladies and gentlemen, please welcome the
+- [00:14.203] Vice President of the United States of America,
+- [00:17.599] JD Vance.
+- [00:22.570] ♪ (patriotic band music) ♪
+- [01:13.090] The Vice President: Hurrah, Marines.
+- [01:16.090] The Vice President: I didn't here ya, hurrah, Marines.
+- [01:20.270] God bless you, Marines.
+- [01:21.750] God bless, Camp Pendleton.
+- [01:23.010] It is so much fun and such an honor to be
+- [01:26.720] out here to celebrate 250
+- [01:29.030] years of United States Marines.
+- [01:35.620] Now, I gotta say, first of all, thank
+- [01:38.083] you to so many of the fine people
+- [01:40.355] who are here today who make
+- [01:42.517] this incredible event happen.
+- [01:44.841] And who every day, make our military the
+- [01:47.437] finest fighting force anywhere in the world.
+- [01:50.460] First of all, our great Secretary of War,
+- [01:52.850] Pete Hegseth, who gave a hell
+- [01:54.549] of a speech, if I might say so.
+- [01:56.560] Pete, where are you at?
+- [02:03.350] Now, he is a soldier, but are we proud
+- [02:05.275] of our Secretary of War, Marine Corps?
+- [02:09.810] Now, I will say, I was talking to Pete
+- [02:11.652] about this speech and thinking about what
+- [02:13.641] I said, and I realized that over my four
+- [02:16.111] years in the United States Marine Corps,
+- [02:18.730] I probably learned about a hundred
+- [02:21.245] jokes about United States Marines.
+- [02:24.770] And every single one of them Marines would
+- [02:27.602] mean the end of my political
+- [02:29.604] career if I told it up here today.
+- [02:34.220] I sent a few of them last night to
+- [02:35.974] my communication staff, and I said,
+- [02:38.000] can I tell this one?
+- [02:39.180] And they said, please, no, sir.
+- [02:41.650] Please, please do not tell that one.
+- [02:43.900] We're also happy to be joined by our great
+- [02:46.537] Secretary of the Navy John Phelan,
+- [02:48.940] thank you so much for your leadership and service.
+- [02:58.930] I got to give a shout-out to my beautiful
+- [03:01.284] wife, our great Second Lady,
+- [03:03.296] Usha Vance, with the Marine Corps hat.
+- [03:12.390] You know, I've been asked many times why
+- [03:14.795] did I want to run for and become Vice
+- [03:17.021] President of the United States?
+- [03:18.601] And there's a lot of answers,
+- [03:20.117] of course, to that question.
+- [03:22.570] I wanted to serve our wonderful
+- [03:24.551] Commander-in-Chief President Donald J. Trump
+- [03:27.080] and I know we're proud of him.
+- [03:33.350] And, of course, I wanted to serve the
+- [03:34.982] American people and make their
+- [03:36.294] lives better, but really
+- [03:38.280] deep down, I wanted the comment on the
+- [03:40.992] Marine Corps to have to salute a member of
+- [03:44.215] the E4 Mafia, and now he has to.
+- [03:53.955] And Marines, we have a great Marine
+- [03:56.146] Corps comment in General Eric Smith.
+- [03:58.440] General, thank you so much for everything you do.
+- [04:07.290] We got General Daniel Taylor.
+- [04:09.050] Where is General Daniel Taylor?
+- [04:12.590] Apparently he was sick today.
+- [04:15.570] We have got Admiral Gavin Duff here.
+- [04:19.330] Admiral, thank you for your service, sir.
+- [04:26.350] We have got Colonel John Caldwell
+- [04:29.932] and General Michael Nakanese.
+- [04:33.380] Did I pronounce that right?
+- [04:34.880] General, there we go.
+- [04:35.500] I did okay.
+- [04:36.660] I'm the Vice President, so you can't tell me I'm wrong.
+- [04:43.620] And, of course, Marines, I bring greetings
+- [04:46.427] today from our Commander-in-Chief, Donald J.
+- [04:49.500] Trump, and he wanted me to tell each and
+- [04:51.637] every single one of you that he's proud of
+- [04:54.680] you, that he loves you.
+- [04:56.270] And despite the Schumer shutdown, he
+- [04:58.506] is going to do everything he can to
+- [05:00.681] make sure you get paid exactly as you deserve.
+- [05:11.380] Now, I know we're here to talk about the
+- [05:13.053] Marine Corps, but I got to get just a
+- [05:14.700] little political, because congressional
+- [05:16.858] Democrats seem to want to keep the
+- [05:18.741] government shutdown, even though it would
+- [05:20.821] mean that a lot of you would not get your paycheck.
+- [05:23.340] But, as I told the President, just
+- [05:25.270] a couple of days ago, I said, sir,
+- [05:27.680] we have got to figure out how to pay
+- [05:29.627] these Marines, both for their sake.
+- [05:31.960] But also, of course, because if we don't
+- [05:34.216] pay our enlisted Marines, every bar in
+- [05:36.361] Southern California is going to go out
+- [05:37.881] of business, and we don't want that.
+- [05:46.820] Now, I've also got to give a special
+- [05:48.876] shout-out to the incredible display that
+- [05:51.310] we saw earlier today.
+- [05:52.900] It made my heart saying, as your Vice
+- [05:55.082] President, and it was a testament to the
+- [05:57.441] core strength and unbeatable power.
+- [05:59.840] It reminded me why I am so proud to have
+- [06:02.687] worn the uniform to be one among your
+- [06:05.945] ranks and to be the very first Vice
+- [06:07.899] President to have been a United States Marine.
+- [06:19.010] Now, for us, East Coast Marines, Camp
+- [06:21.266] Pendleton has always had a
+- [06:22.766] special place in our imagination.
+- [06:25.440] We heard the stories of the
+- [06:26.977] back-breaking hikes you all had to do.
+- [06:29.505] The West Coast Marines had to do in Camp Pendleton.
+- [06:32.060] You know it?
+- [06:35.320] Us East Coast Marines, we had the
+- [06:36.872] sand fleas, and you all had the hills.
+- [06:38.760] I don't know which was worse.
+- [06:47.060] These guys behind me have opinions.
+- [06:49.740] So let's give some credit to the amazing
+- [06:52.874] Marine units who pulled this off.
+- [06:55.760] First of all, to the incredible Marines of
+- [06:58.820] this base and the Marine Corps forces West
+- [07:01.881] who put on this display, let's give a
+- [07:03.828] round of applause to the incredible job they did.
+- [07:15.240] And I want to talk about some of those
+- [07:16.948] units because you all made me so proud.
+- [07:18.800] I know we must have some Marines
+- [07:20.994] from the first Marine Division.
+- [07:23.460] Where are you?
+- [07:27.590] You all did a hell of a job.
+- [07:29.040] How about the Marines from the third Marine Air Wing?
+- [07:34.630] I know we have some Marines from the first
+- [07:37.027] Marine Logistics Group, the lifeblood of the fight.
+- [07:39.710] Where are you all at?
+- [07:44.280] We've also got Marines from the first (inaudible)
+- [07:46.685] information group, the brain of the fight.
+- [07:49.470] Where are you all at?
+- [07:53.570] And we've also got, of course,
+- [07:55.488] men and women from Marine Corps
+- [07:57.471] installations West, the folks who keep the home front.
+- [07:59.971] Where are you?
+- [08:00.670] Marine Corps installations West.
+- [08:03.230] There we go.
+- [08:05.330] Now, I know you all know we cannot leave
+- [08:07.720] out our brothers and sisters of the seas,
+- [08:10.385] so we're proud to have all the sailors of
+- [08:12.989] the Navy's third fleet here to celebrate
+- [08:15.730] 250 years of Marines.
+- [08:17.650] Thank you.
+- [08:26.770] These sailors who go to war with
+- [08:28.490] us, they fight over the horizon.
+- [08:31.050] They stand shoulder-shoulder with
+- [08:32.953] Marines wherever the fight takes us.
+- [08:35.290] And if any group shares in the glory of
+- [08:37.883] the Marines, 250th birthday, it
+- [08:39.943] is our beloved Navy Corpsmen.
+- [08:42.180] Let's give a shout out to the Navy Corpsmen out there.
+- [08:44.570] We love them.
+- [08:52.440] And I know every Marine has had the story
+- [08:55.641] of walking into a corpsman's office barely
+- [08:58.921] alive, suffering the most severe illness
+- [09:01.352] you've suffered in your entire life.
+- [09:03.620] And they'll say, just go home,
+- [09:05.199] hydrate and take two motrin,
+- [09:06.692] and it'll work out just fine.
+- [09:08.260] So thank you to the corpsmen for taking
+- [09:11.421] care of us, but also toughening us up.
+- [09:14.950] And that's right, and a change of socks.
+- [09:18.220] A bottle of water, a change socks,
+- [09:20.280] and two motrin will fix any illness.
+- [09:25.560] So we are grateful Marines to be graced
+- [09:28.325] with the presence of some very special
+- [09:31.670] guests, people whose very lives contribute
+- [09:34.384] to the incredible Marine Corps legacy.
+- [09:37.590] Earlier, we all heard from Sergeant Dakota
+- [09:40.783] Meyer, who received the Medal of Honor in
+- [09:43.901] 2011 for extraordinary heroism in 2009.
+- [09:47.581] Are we proud of Sergeant Dakota Meyer?
+- [09:50.220] Yes, we are.
+- [09:58.985] And despite the constant reign of enemy
+- [10:01.307] fire, then Corporal Meyer made multiple
+- [10:03.631] runs across an ambush zone that day.
+- [10:07.020] Saving the lives of 36 American and
+- [10:09.834] Afghan troops; Dakota Meyer, we love you.
+- [10:13.205] We're proud of you.
+- [10:13.910] The very best of the Marine Corps
+- [10:15.390] and the very best of this country.
+- [10:25.520] We are also honored to be joined by
+- [10:27.956] American hero Charles Cran, who was a Navy
+- [10:30.881] corpsman attached to the fifth Marine
+- [10:33.161] Division when it landed at Iwo Jima.
+- [10:48.180] Now, as part of that force, this American
+- [10:50.800] hero watched the stars and stripes raised
+- [10:53.421] over Mount Sarabachi before being wounded
+- [10:55.910] on the seventh day of battle while tending
+- [10:58.760] to a Marine.
+- [11:00.320] For his valor, he was awarded the Silver
+- [11:02.928] Star, the Bronze Star, and the Purple Heart.
+- [11:06.140] Sir, we love you.
+- [11:07.180] Thank you for your service.
+- [11:18.800] The Marines love their corpsmen,
+- [11:20.450] and that's one of the very best.
+- [11:22.580] Another living legend we have with
+- [11:24.711] us today is Elmer Royce Williams,
+- [11:27.480] a Naval aviator who, while on combat
+- [11:29.924] patrol in the Korean War, suddenly found
+- [11:32.740] himself up against seven Soviet MiGs.
+- [11:36.960] Sir, thank you so much.
+- [11:39.000] God bless you and thank you.
+- [11:52.590] Now, we're going to let the brave
+- [11:53.928] Lieutenant take a seat, but I got
+- [11:55.298] to talk a little bit about him.
+- [11:56.351] I got to brag on him.
+- [11:58.190] Because despite the odds, Lieutenant
+- [12:00.300] Williams took down four of them in a
+- [12:02.411] single 35-minute dogfight, the longest
+- [12:05.359] dogfight in naval history, a record I
+- [12:08.231] believe that still stands to this day.
+- [12:10.660] Hurrah.
+- [12:19.910] Not only did he take four MiGs down,
+- [12:22.468] he demolished the MiGs reputation as an
+- [12:25.241] unbeatable aircraft and secured his place
+- [12:28.043] among the legends of American military aviation.
+- [12:32.320] And if you know, notice, we just talked
+- [12:34.990] about a great Marine and ground combat,
+- [12:38.290] a great Marine and aviation combat,
+- [12:40.618] and a great Marine, or I should say a
+- [12:43.180] great Navy corpsman who helps out our Marines.
+- [12:45.461] In other words, Marines can kick ass in
+- [12:47.820] every theater of combat and we do it every single day.
+- [13:00.040] And I finally got to give a shout-out to
+- [13:02.551] my dear friend, recently retired
+- [13:04.549] Master Sergeant Charles McKelvie.
+- [13:06.960] Chase, where are you at, man?
+- [13:09.920] Love you.
+- [13:10.520] Oh, he's got a beard already.
+- [13:12.060] Look at that.
+- [13:13.760] He's got the Marine Corps for three months.
+- [13:15.300] He's already got a beard longer than what I got.
+- [13:18.130] Now, Master Sergeant McKelvie and I served
+- [13:19.998] together at Cherry Point when we're both
+- [13:21.821] very young Marines and we've
+- [13:23.147] been good friends ever since.
+- [13:24.640] I call him Chase.
+- [13:26.340] Other Marines will tell you,
+- [13:27.827] Chase is an extraordinary person.
+- [13:30.075] The smartest, kindest Marine you'll ever meet.
+- [13:32.680] And those are descriptions I can personally attest to.
+- [13:36.300] Now, he was supposed to join me at my
+- [13:38.548] inauguration to become the Vice President
+- [13:41.041] last January, but tragically he lost
+- [13:43.441] his wonderful devoted wife, Jillian,
+- [13:46.100] to a terrible illness just days before.
+- [13:48.980] So, I want to tell you, Chase,
+- [13:50.340] in front of all these Marines,
+- [13:52.620] we're proud of you.
+- [13:54.040] We're thankful for you.
+- [13:55.130] I'm sorry I couldn't see you in
+- [13:56.364] January, but I'm glad to see you today, my friend.
+- [14:00.680] I love you, Semper Fi.
+- [14:12.941] I love you.
+- [14:13.460] Whatever your rank, whatever your station
+- [14:15.713] in the Marine Corps here at Camp Pendleton
+- [14:18.021] to commemorate this incredible 250th
+- [14:20.739] anniversary of our beloved Marine Corps.
+- [14:24.300] From these mountains and this water,
+- [14:26.958] Marines have deployed to every major fight
+- [14:30.061] of the last century, from island
+- [14:32.206] hopping across the Pacific, to Vietnam,
+- [14:35.140] (inaudible) city, to Kuwait, to Helmand, and beyond.
+- [14:39.700] And standing here, you can feel the weight
+- [14:42.986] of that history, the generations upon
+- [14:45.881] generations of Americans who cut their
+- [14:48.521] teeth at this base before boarding ships
+- [14:51.550] and carrying the American flag into battle.
+- [14:54.510] But that's exactly what Marines do.
+- [14:58.600] For two and a half centuries now,
+- [15:00.551] this beloved Corps has served as our
+- [15:02.681] nation's sharp edge, always forward
+- [15:05.633] deployed, always ready, and always faithful.
+- [15:09.980] My service in the Marine Corps
+- [15:11.927] was a huge part of my life.
+- [15:13.780] I would not be here today, I would not be
+- [15:15.916] the Vice President of the United States.
+- [15:18.240] I would not be the man I am today,
+- [15:19.935] were it not for those four years
+- [15:21.557] that I served in the Marine Corps.
+- [15:24.070] Now before I was enlisted, I was pretty
+- [15:26.569] terrified about the prospect of becoming a Marine.
+- [15:29.660] I'm sure that a lot of you can share that.
+- [15:32.620] I remember I had nightmares before I
+- [15:34.425] went to boot camp of drill instructors
+- [15:36.720] yelling at me, and being away from my
+- [15:38.683] family, and being constantly stretched
+- [15:40.701] well beyond my own physical limits.
+- [15:43.300] It's donning stuff, as all of you know,
+- [15:45.719] and as anyone who survived boot
+- [15:47.623] camp can tell you, it's all real.
+- [15:50.760] But my cousin Rachel, in particular, won
+- [15:53.191] one last shout out to a former Marine,
+- [15:56.300] in particular she pushed me to do it.
+- [15:58.730] A veteran of the Corps herself, she got it.
+- [16:02.260] She understood what joining does
+- [16:03.983] for a young man or a young woman.
+- [16:06.540] So she pushed me to go and talk to a
+- [16:08.766] recruiter, which I did, and I will
+- [16:10.901] never forget that conversation.
+- [16:13.420] Because at no point did he try to sell
+- [16:15.913] me on the United States Marine Corps.
+- [16:18.840] He warned me, he said, you don't enlist
+- [16:20.475] in the Marine Corps to make money,
+- [16:22.080] and you all know that's exactly right.
+- [16:26.330] He said he might even go to war,
+- [16:28.023] this was back in 2003, right after we invaded Iraq.
+- [16:31.560] But what he did tell me is that enlisting
+- [16:34.119] in the Marines would teach me many things,
+- [16:37.280] including discipline and the virtue of leadership.
+- [16:41.480] And that was appealing to me, and I
+- [16:43.716] know it's appealing to Marines today,
+- [16:46.280] and for every year of our 250-year history.
+- [16:49.201] Hurrah.
+- [16:54.470] But over the days that followed, what
+- [16:56.660] further dawned on me was that I needed
+- [16:58.840] to do this, not just for me, but for the nation.
+- [17:02.530] My country needed me just as sure as the
+- [17:04.960] country needs each and every one of you today.
+- [17:08.510] The September 11 attacks had
+- [17:10.190] occurred barely a year earlier.
+- [17:12.770] And as I weighed, what enlisting would
+- [17:15.386] mean, the crisis in Iraq was becoming a full out war.
+- [17:19.540] So I made the call.
+- [17:21.330] As an 18-year-old senior in the state of
+- [17:24.155] Ohio, it was one of the first times in my
+- [17:27.300] life that I recall feeling like
+- [17:29.505] the country actually needed me.
+- [17:32.450] And when I realized I had a responsibility
+- [17:35.472] to something so much greater than myself
+- [17:38.650] or even my family, and I had an
+- [17:40.782] obligation to act on that feeling of duty.
+- [17:44.570] And I know that's something that animates
+- [17:47.450] every single one of you, whether
+- [17:49.743] you're a private or a general.
+- [17:51.970] That spirit of service has been the spirit
+- [17:54.354] of the Marine Corps for two and a half centuries.
+- [17:58.710] So I just wanted to say, from the bottom
+- [18:01.270] of my heart, from one Marine to another,
+- [18:04.030] from the Vice President of the United
+- [18:05.965] States to the whole Marine Corps.
+- [18:08.020] Thank you for your service.
+- [18:10.090] We are proud of you and proud of your service.
+- [18:23.610] And I'm here today because I want to talk
+- [18:25.775] a little bit about the great Marine
+- [18:27.620] Corps tradition, 250 years of it.
+- [18:30.360] I want to talk about the tradition that
+- [18:32.388] all of us standing under this bright
+- [18:34.261] California sun, and man, it is bright.
+- [18:37.500] We all chose, however many years ago,
+- [18:40.090] to adopt that Marine Corps tradition as our own.
+- [18:44.000] A tradition in just three short
+- [18:46.480] weeks will reach its 250th year.
+- [18:49.790] Now, as many of you in this audience know,
+- [18:52.183] the Corps found its origins in the autumn of 1775.
+- [18:57.040] And if any of you may be familiar to you,
+- [18:59.832] a bar in Philadelphia called Tun Taven.
+- [19:06.030] The very first bar in the United States of
+- [19:08.444] America that would come to regret
+- [19:10.317] serving United States Marines.
+- [19:16.750] So here we are in Tun Tavern almost 250 years ago.
+- [19:23.410] And what we did in that moment was
+- [19:25.945] we answered the call of service.
+- [19:28.870] Because even before we had a declaration
+- [19:31.013] of independence, the Continental Congress
+- [19:33.211] organized an army and a navy to fight the
+- [19:36.005] British, but they recognized they needed
+- [19:38.731] something a little bit extra.
+- [19:40.640] They needed a force that could fight
+- [19:42.648] justice comfortably on land as it could on sea.
+- [19:45.850] That was able to move fast,
+- [19:47.587] strike hard, and hold its ground.
+- [19:50.210] So on November 10th, 1775 Congress
+- [19:53.098] resolved to raise two battalions
+- [19:55.858] of Continental Marines.
+- [19:58.330] Captain Samuel Nicholas established
+- [20:00.443] that first recruitment drive at Tun Tavern
+- [20:02.785] in Philadelphia in search of a few good men.
+- [20:05.980] He was seeking young, able-bodied
+- [20:08.290] citizens, men who relished the opportunity
+- [20:11.380] to fight tyrants, yes, but more
+- [20:13.244] importantly, who were eager to answer that
+- [20:15.771] first call of duty of a young nation.
+- [20:19.470] Just a few months later, Captain Nicholas
+- [20:22.160] was personally leading those Marines in a
+- [20:24.851] daring raid on New Providence,
+- [20:26.851] receiving British forts and supplies in the Bahamas.
+- [20:31.520] In two short years later, the Marines
+- [20:33.792] joined forces with the legendary John Paul
+- [20:36.371] Jones, the father of the American Navy,
+- [20:38.658] beginning a great tradition that has
+- [20:40.771] survived the entire term of our Marine
+- [20:43.474] Corps, that when the Marines and the Navy
+- [20:46.391] go to war together, they always
+- [20:48.761] fight well and they always win.
+- [20:59.650] The War of Independence set a blueprint
+- [21:02.226] that Marines follow to this day.
+- [21:04.880] Boldness in action, unity in purpose,
+- [21:07.725] and a lightning readiness to go
+- [21:10.166] wherever the nation required.
+- [21:12.960] In battle after battle, the United States
+- [21:15.516] Marine Corps has broken the backs of empires
+- [21:19.280] and toppled tyrants.
+- [21:21.020] You've hanged pirates.
+- [21:22.600] And hunted down America's foes across
+- [21:25.083] the seven seas and Pete turns out we're
+- [21:27.750] hunting some pirates today, aren't we?
+- [21:31.600] From Tripoli to the halls of Montezuma,
+- [21:34.711] from Bela Woods to Iwo Jima, and from
+- [21:37.741] chosen Reservoir to (inaudible), we Marines
+- [21:40.841] have repeatedly earned our reputation as
+- [21:44.170] the first to fight and the last to leave.
+- [21:47.000] And as all of you know, that legacy
+- [21:49.369] only grew stronger after 9/11.
+- [21:52.350] Within weeks after the attack, the
+- [21:54.740] 15th Marine Expeditionary Unit,
+- [21:57.200] the 15th MEU, already forward deployed on
+- [21:59.956] September the 11th, helped launch the most
+- [22:02.905] ambitious amphibious assault in the
+- [22:04.919] history of the United States of America.
+- [22:07.900] And that's just how Marines are wired.
+- [22:10.380] No matter where, no matter when,
+- [22:12.500] the Corps will always uphold its
+- [22:14.621] reputation for discipline and for unshakable focus.
+- [22:19.170] Now, I always think back to what Army
+- [22:21.203] Major General Frank Lowe had to
+- [22:22.834] say this about the Corps in 1952.
+- [22:26.320] The safest place in Korea was right behind
+- [22:29.620] a platoon of Marines, Lord, how they could
+- [22:32.921] fight and what a great testament
+- [22:34.579] to the United States Marine Corps.
+- [22:44.430] Because, while the world keeps changing,
+- [22:47.724] new weapons, new threats, and new ways in
+- [22:51.101] which we wage war, the nation will forever
+- [22:54.342] need the United States Marine Corps.
+- [22:57.740] And in the Trump administration, we
+- [23:00.106] know that the work you do protecting
+- [23:02.541] our country, putting your lives on the
+- [23:05.230] line to defend our way of life is at the
+- [23:08.460] heart of Marine Corps service.
+- [23:10.885] Now, when officials try to shift focus to
+- [23:13.678] mandating diversity quotas, or they try to
+- [23:16.541] inject partisan politics into the American
+- [23:19.287] Armed Forces, they impede the Marine
+- [23:21.641] Corps's ability to do its best work.
+- [23:24.001] And that's why the Secretary of War and
+- [23:26.221] the President of the United States have
+- [23:28.441] stood so firmly against that crap.
+- [23:31.330] Because when you can't operate at
+- [23:33.343] your best on the battlefield, it
+- [23:35.289] puts everybody's lives at risk.
+- [23:38.050] And it's why we're recentering the focus
+- [23:40.601] of all of our military, including the
+- [23:43.110] Marine Corps, on those timeless values of
+- [23:46.253] discipline, readiness, and faith in one another.
+- [23:50.900] Now, I remember when I was a young recruit
+- [23:53.370] in boot camp talking about how politically
+- [23:55.841] correct things got maybe over the last few
+- [23:58.361] years, and I compared it to
+- [24:00.059] my time in the Marine Corps.
+- [24:01.241] I remember I was lining up as a young
+- [24:03.898] recruit to go to church one Sunday
+- [24:06.341] morning, and back then there were two lines.
+- [24:09.870] There was the Catholic line, and
+- [24:11.320] there was the Protestant line.
+- [24:13.400] And I remember we all getting to
+- [24:14.812] our, we're all getting to our lines,
+- [24:16.460] and there's one recruit who's just
+- [24:18.236] kind of standing there by himself and,
+- [24:20.320] you know, the folks watching on TV may not
+- [24:23.004] realize that Marines refer to themselves
+- [24:25.561] in the third person when they're in recruit training.
+- [24:28.021] Because you have an earned the title of
+- [24:30.825] United States Marine, and so you have to
+- [24:33.701] say, this recruit instead of I.
+- [24:36.870] And so you've got this one recruit,
+- [24:38.308] standing out there by himself,
+- [24:39.840] and the drill instructor says,
+- [24:41.383] hey, what the hell are you doing?
+- [24:44.150] And the recruit says, this recruit is an
+- [24:46.747] atheist, and the drill instructor says,
+- [24:50.340] bullshit, get in the Catholic line.
+- [24:56.160] That didn't work in the Biden administration, Pete.
+- [24:59.400] That didn't work in the Biden
+- [25:00.891] administration, but now we recognize that
+- [25:03.001] it is not our diversity that makes us stronger.
+- [25:06.520] It is our common purpose.
+- [25:08.080] It is our common mission.
+- [25:09.450] And it is the fact that every single
+- [25:11.819] person here bleeds Marine Corps green.
+- [25:24.320] And I think that all of you should realize
+- [25:26.377] that from the President of the United
+- [25:28.290] States on down, this government is proud of you.
+- [25:33.050] It's proud of the tradition of the Marine
+- [25:35.219] Corps, and it's proud of the fact that
+- [25:37.380] that great tradition has custodians
+- [25:40.010] in each and every single person here,
+- [25:43.010] each and every single Marine who is serving today.
+- [25:46.160] And I hope that the proud Marine Corps
+- [25:48.464] tradition you heard Pete talk about this.
+- [25:51.290] Chesty Polar, Dan Daly, John Bassolone,
+- [25:54.150] all of these great Marine Corps heroes,
+- [25:57.390] they should inspire you through their
+- [25:59.610] action to be the very best Marine
+- [26:01.606] and the future that you can be.
+- [26:04.310] Now, I remember so many people who made my
+- [26:07.427] Marine Corps journey and made the
+- [26:09.986] country better in the process.
+- [26:11.371] I remember a gunnery sergeant
+- [26:13.438] who saved me from financial ruin.
+- [26:16.450] I was a young Lance Corporal.
+- [26:18.850] And I was going to go to an off base car
+- [26:22.544] dealership and buy a used car with a low,
+- [26:26.510] low dealer provided interest rate of 22 percent.
+- [26:34.090] These Marines behind me, you aren't
+- [26:35.542] supposed to nod your head at that part, guys.
+- [26:39.500] No 22 percent interest rate, so I had a gunny who
+- [26:43.464] was like, look, stop being a dipshit and
+- [26:47.241] go to Navy Federal Credit Union, get
+- [26:48.924] a better interest rate and then go and buy a car.
+- [26:51.280] And that's exactly what I did.
+- [26:55.370] I remember that gunny, and I remember a
+- [26:57.843] young Marine who was younger than I was.
+- [27:00.740] Chase knows who I'm talking about.
+- [27:02.300] A Puerto Rican Marine who grew up in New York City.
+- [27:08.670] You too, huh?
+- [27:11.800] A man I thought I had nothing in common
+- [27:14.238] with, but who I learned bled Marine Corps
+- [27:16.801] green just like I did, and who came to
+- [27:19.032] my inauguration as Vice President of the United States.
+- [27:22.910] I remember a Marine I served with, a
+- [27:24.858] guy whose political beliefs you might call far left.
+- [27:28.940] But despite the craziness of our politics
+- [27:31.370] today remains one of my best friends and
+- [27:33.741] as a man I would trust with my life.
+- [27:37.080] I remember the Marines raising the flag
+- [27:39.921] over Iwo Jima, etching an American memory,
+- [27:43.320] the importance of respecting and
+- [27:45.213] honoring our beautiful national symbol.
+- [27:48.500] I remember all my friends from the
+- [27:50.268] Marines, men and women, some of whom
+- [27:52.141] retired, and some of whom made the
+- [27:54.054] Marine Corps proud in the civilian world.
+- [27:57.120] I remember General Chuck Crulack,
+- [27:59.258] who I met at my cousin's boot camp graduation.
+- [28:02.860] He was a 31st commandant of the Marine
+- [28:05.137] Corps and I was probably 14 years old and
+- [28:07.960] I was taller than he was.
+- [28:09.920] But he was tough as nails.
+- [28:12.130] I met him as vice president by
+- [28:13.575] the way just a few months ago.
+- [28:15.610] He's still very short and he's still tough
+- [28:17.684] as nails and he still loves the Marine
+- [28:19.561] Corps as much as he did on his first day of service.
+- [28:22.960] Now he had a phrase, I'm sure you guys
+- [28:24.891] have heard it, he said that the most
+- [28:26.721] important thing the Marine Corps does for
+- [28:29.301] this nation is to win battles and
+- [28:31.409] to make United States Marines.
+- [28:34.270] Today, we remember a fallen Marine from
+- [28:37.515] the third Marine Air Wing, who died not
+- [28:40.761] far from here on a training mission.
+- [28:43.410] He died so recently as a matter of fact,
+- [28:45.346] I can't even say his name publicly,
+- [28:47.610] but I want all of us to know and send a
+- [28:50.087] message to his family that we remember
+- [28:52.501] them and we know that his Marine
+- [28:54.637] Corps service was not in vain.
+- [28:56.680] Let's give a hurrah for that fallen Marine.
+- [29:06.315] I know that all of us remember
+- [29:08.008] the friends who went off the war.
+- [29:10.430] And we particularly remember the ones who
+- [29:13.011] were mangled in combat or who never came home at all.
+- [29:18.010] Every single one of you has memories like this.
+- [29:21.370] Every single one of you is lucky
+- [29:23.487] enough to have friends like mine.
+- [29:25.920] Within each of you is your own Marine
+- [29:29.309] Corps legacy burning every single day.
+- [29:33.310] And because of that, every one
+- [29:35.661] of our fellow Marines lives on.
+- [29:38.590] As Gunnery Sergeant Hartman in Full Metal
+- [29:40.754] Jacket, we like Full Metal Jacket Marines?
+- [29:45.620] He said, but the Marine Corps lives on
+- [29:48.616] forever and that means you live forever.
+- [29:52.345] Our motto, Marines, is semper fidelis,
+- [29:55.204] which means in Latin always faithful.
+- [29:58.810] Though the shape of the battlefield will
+- [30:01.210] change, our nation will be just fine.
+- [30:03.670] So long as fellow Marines just like you
+- [30:06.077] remain faithful to that great Marine Corps legacy.
+- [30:09.950] My fellow Marines, you have the watch now.
+- [30:13.990] You honor that legacy by how
+- [30:15.454] you carry yourself in public.
+- [30:17.470] You honor it by how you treat your friends and family.
+- [30:20.280] You honor it by how you contribute to
+- [30:22.278] your communities and most importantly.
+- [30:24.950] You honor it and how you fight
+- [30:26.648] and win the nation's battles.
+- [30:29.010] So from one Vice President to an
+- [30:31.067] incredible United States Marine Corps,
+- [30:34.010] keep kicking ass, keep taking names.
+- [30:36.211] Semper fidelis, Marines, happy 250th birthday.
+- [30:39.510] God bless you.
+- [30:43.510] ♪ (rock music playing) ♪

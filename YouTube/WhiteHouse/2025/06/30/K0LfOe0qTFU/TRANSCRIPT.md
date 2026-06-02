@@ -1,0 +1,862 @@
+<!-- source: https://www.youtube.com/watch?v=K0LfOe0qTFU -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: K0LfOe0qTFU -->
+<!-- date_published: 2025-06-30T17:58:04+00:00 -->
+<!-- date_accessed: 2026-06-02T02:47:41.352709+00:00 -->
+
+# Transcript: Press Secretary Karoline Leavitt Briefs Members of the Media, June 30, 2025
+
+- [00:06.050] Karoline Leavitt: Good afternoon, everybody.
+- [00:08.290] Did everyone have a good weekend?
+- [00:10.110] Good. It's good to see you back here.
+- [00:11.460] We have another busy week. On a scheduling note, tomorrow,
+- [00:14.990] President Trump will travel to the great state of Florida
+- [00:17.910] to attend the opening of a new illegal alien detention center
+- [00:22.010] located at Dade-Collier
+- [00:23.700] Training in transition Airport alongside
+- [00:26.330] Secretary Kristi Noem, Governor Ron DeSantis,
+- [00:29.730] Congressman Byron Donalds, and other state and local leaders.
+- [00:32.600] We hope to see many of you there.
+- [00:34.450] The facility is in the heart of the Everglades
+- [00:37.030] and will be informally known as Alligator Alcatraz.
+- [00:40.820] There's only one road leading in,
+- [00:42.910] and the only way out is a one-way flight.
+- [00:46.040] It is isolated and surrounded by dangerous wildlife
+- [00:49.110] in unforgiving terrain.
+- [00:51.000] The facility will have up to 5,000 beds to house, process,
+- [00:55.170] and deport criminal illegal aliens.
+- [00:58.340] This is an efficient and low-cost way
+- [01:00.330] to help carry out the largest mass deportation campaign
+- [01:04.250] in American history.
+- [01:05.910] We are truly coming off a historic week
+- [01:09.560] of President Trump racking up win after win
+- [01:11.850] on behalf of the American people.
+- [01:14.100] President Trump restored peace through strength
+- [01:16.390] and acted decisively as commander
+- [01:17.760] in commander-in-chief
+- [01:18.990] to obliterate the immediate threat
+- [01:21.020] of the Iranian regime's nuclear capabilities,
+- [01:23.400] and then brokered a ceasefire between Israel and Iran,
+- [01:27.520] which continues to hold.
+- [01:29.380] Then the President traveled to the Netherlands
+- [01:31.800] and achieved a monumental win for the United States
+- [01:34.250] and the NATO alliance by getting our allies
+- [01:36.660] to dedicate 5 percent of their GDPs to military spending.
+- [01:41.310] As a result of President Trump
+- [01:42.990] unleashing American energy dominance,
+- [01:45.390] summer gas prices are at the lowest
+- [01:47.470] they have been in four years, heading into the July 4th week.
+- [01:52.140] And with the incoming Trump economic boom,
+- [01:54.750] the stock market continues to roar back with the S&P 500
+- [01:59.030] and the Nasdaq both hitting record highs.
+- [02:02.560] And on this point of an economic boom,
+- [02:04.590] I bring to you original correspondence
+- [02:06.830] from the President of the United States
+- [02:08.480] to our Fed chair, Jerome Powell.
+- [02:10.710] As the President has consistently stated,
+- [02:13.130] the American economy is booming.
+- [02:15.030] And there were so many economic analysts who said
+- [02:17.470] that this president's policies would drive our economy down,
+- [02:20.210] when in fact we have seen the opposite.
+- [02:22.340] We've seen a massive deregulation campaign
+- [02:24.440] take place.
+- [02:25.640] We've seen inflation completely diminished
+- [02:27.800] from where it was under the reckless
+- [02:29.680] spending in the bad policies
+- [02:31.360] of the previous incompetent administration.
+- [02:33.850] I would remind the Fed Chair
+- [02:35.460] and I would remind the entire world
+- [02:37.020] that this is a president who was a businessman first.
+- [02:39.920] And he knows what he is doing. He has a proven economic formula
+- [02:43.640] that worked in his first term as president
+- [02:45.930] and it is working again.
+- [02:47.490] The one problem that remains is high interest rates
+- [02:50.080] for the American people.
+- [02:51.360] The American people want to borrow money cheaply
+- [02:53.600] and they should be able to do that.
+- [02:54.950] But unfortunately, we have interest rates
+- [02:56.820] that are still too high.
+- [02:58.030] So the President sent this note to the Fed chair today.
+- [03:01.440] And if you look at this chart,
+- [03:02.690] this is a chart of all of the interest rates
+- [03:05.280] of many countries throughout the world.
+- [03:07.540] At the top of Switzerland,
+- [03:08.950] they're only paying a quarter for interest rates.
+- [03:11.320] Cambodia, Japan, Denmark, Thailand, Botswana,
+- [03:14.910] Barbados, Taiwan, Bulgaria, Cuba, Sweden, Morocco,
+- [03:19.250] Cabo Verde, South Korea, Algeria, Canada, Albania, Libya,
+- [03:24.480] Malaysia, China, New Zealand, Trinidad and Tobago, Czechia,
+- [03:28.840] Bolivia, Australia, Costa Rica, The Bahamas,
+- [03:31.610] Kuwait, Papua New Guinea, Bosnia, United Kingdom,
+- [03:34.770] and the UAE are all paying lower interest rates
+- [03:38.190] than the United States of America,
+- [03:39.660] which has one of the hottest
+- [03:41.260] and strongest economies in the world.
+- [03:43.910] The president sent this note to the Fed chair.
+- [03:46.420] It says, "Jerome, you are as usual too late.
+- [03:48.900] You have cost the USA a fortune and continue to do so.
+- [03:51.980] You should lower the rate by a lot.
+- [03:53.980] Hundreds of billions of dollars are being lost
+- [03:56.330] and there is no inflation." And the President is right.
+- [03:59.550] There is historically low inflation,
+- [04:01.620] thanks to his policies.
+- [04:03.580] And we will continue to drive down the cost of living
+- [04:05.870] in this country for Americans. We will continue to deregulate.
+- [04:09.600] And it's also incredibly important
+- [04:11.280] that we pass this One Big Beautiful Bill,
+- [04:13.050] which is the largest tax cuts in American history.
+- [04:17.590] And that's why the White House and the President himself
+- [04:20.520] have been in touch with lawmakers
+- [04:22.050] all weekend long to get this bill passed.
+- [04:25.630] And they're working very hard to do so.
+- [04:27.240] It remains a top priority for the President.
+- [04:29.690] And this bill has exposed the clear differences
+- [04:32.030] between Republicans in Democrats in 2025.
+- [04:35.350] The Democrats are doubling down on craziness
+- [04:37.410] and radical policies
+- [04:38.690] that are undermining the very fabric of our country.
+- [04:42.500] Just look at the Democrat nominee for New York City,
+- [04:44.760] Mayor Zohran Mamdani.
+- [04:46.860] He's a Democrat socialist, really a communist who proudly
+- [04:50.910] calls to defund the police, peddles anti-Semitism,
+- [04:54.930] praises pro-Hamas groups, wants Israel abolished,
+- [04:58.950] and believes wealthy Americans should not exist.
+- [05:01.520] Those are his words just as recent as this weekend.
+- [05:04.930] Meanwhile, under President Trump's leadership,
+- [05:06.760] Republicans are fighting tirelessly
+- [05:09.090] for everyday middle class
+- [05:10.570] working Americans who re-elected this president
+- [05:13.360] and were carrying out a revolution of common sense.
+- [05:15.800] And all of that is packed into this One Big Beautiful Bill.
+- [05:19.410] It delivers the largest middle
+- [05:20.820] and working class tax cuts in US history.
+- [05:24.450] It keeps America safe by funding the largest
+- [05:27.520] ever one-time investment in border security.
+- [05:30.460] It's enough to reverse the Biden border invasion.
+- [05:33.270] And every single Democrat is against that,
+- [05:35.280] against securing our border
+- [05:36.610] in deporting millions of criminal illegal aliens.
+- [05:39.410] The One Big Beautiful Bill also strengthens
+- [05:41.620] and protects Medicaid benefits
+- [05:43.610] despite what Democrats are saying,
+- [05:45.500] for eligible American citizens who rely on it
+- [05:48.500] like pregnant women, children, seniors,
+- [05:51.070] and people with disabilities, by eliminating waste, fraud,
+- [05:54.120] and abuse that threaten to destroy this program
+- [05:57.000] that was intended for the most vulnerable in our society.
+- [06:00.370] And every single Democrat in Congress
+- [06:02.500] is against rooting out that waste, fraud, and abuse
+- [06:05.460] in blocking the 1.4 million illegal aliens
+- [06:08.490] who are currently improperly receiving these benefits
+- [06:11.560] that should be going to American taxpaying citizens.
+- [06:14.590] The Democrats in Congress are more concerned
+- [06:16.910] with defending illegal aliens
+- [06:18.560] than they are hardworking Americans.
+- [06:21.570] And the big beautiful bill also revitalizes our military
+- [06:24.660] and enhances our defense capabilities,
+- [06:26.670] protects our country from emerging new threats
+- [06:29.280] by funding a cutting-edge missile defense system
+- [06:32.250] called the Golden Dome.
+- [06:34.400] And as we all know, the One Big Beautiful Bill
+- [06:36.480] makes the Trump tax cuts permanent.
+- [06:39.210] The White House and the President are adamant
+- [06:41.170] that this bill is passed
+- [06:43.000] and that this bill makes its way to his desk.
+- [06:45.040] Republicans need to stay tough
+- [06:47.000] and unified during the home stretch,
+- [06:49.540] and we are counting on them to get the job done.
+- [06:52.200] So with that, we will take questions.
+- [06:54.510] John Fredericks is in our new media seat today.
+- [06:56.380] John, thanks for being here. We'll kick it to you.
+- [06:58.260] The Press: Thank you, Karoline.
+- [06:59.470] Let's get to the One Big Beautiful Bill first.
+- [07:00.990] Karoline Leavitt: Sure.
+- [07:02.280] The Press: It appears now you're going to get at least
+- [07:03.990] 50 votes in the Senate. There'll be some amendments.
+- [07:07.450] What is the President's confidence level
+- [07:10.100] in getting 218 votes in the House
+- [07:12.860] by the end of this week in order for him to sign it on Friday?
+- [07:15.460] Karoline Leavitt: Well, look, we are very well aware.
+- [07:17.040] The president is very well aware that this bill needs
+- [07:19.610] to not only pass out of the Senate,
+- [07:21.100] but it needs to go back to the house.
+- [07:22.840] And we need the full weight of the Republican Conference
+- [07:25.460] to get behind. This bill and we expect them to,
+- [07:27.520] and we are confident that they will.
+- [07:29.220] The president has been working hand-in-hand
+- [07:31.240] with Senate Majority Leader Thune
+- [07:32.970] and also our House Republican leader
+- [07:35.140] or the Speaker of the House, I'm sorry, Mike Johnson,
+- [07:37.470] both of whom will be at the White House today
+- [07:39.370] to meet with the President yet again.
+- [07:40.940] I believe they were here this morning actually.
+- [07:42.650] The Press: I have one follow up.
+- [07:43.880] Karoline Leavitt: Sure.
+- [07:45.160] The Press: You outlined Jerome Powell and the note
+- [07:48.140] that the President just sent to him.
+- [07:51.220] There are many who believe that Powell has been politicized
+- [07:55.300] in a lot of different ways.
+- [07:57.470] The president has not been shy about acting on things
+- [08:00.180] that he believes in. Why not just fire Jerome Powell
+- [08:04.410] and put in somebody that is going to lower rates?
+- [08:06.840] Why wait?
+- [08:08.150] Karoline Leavitt: Well, it's a good question
+- [08:09.370] and one you can ask the President
+- [08:10.610] because that's a decision for him to make.
+- [08:12.340] But you're right to point out the politicization of the Fed,
+- [08:15.280] and it's very unfortunate for our country.
+- [08:17.330] But Jerome Powell cut rates numerous times
+- [08:19.670] ahead of the election when Joe Biden was in this Oval Office,
+- [08:22.900] but now he refuses to,
+- [08:24.190] and the economy is in a much better place.
+- [08:26.240] So there really isn't a good explanation for that,
+- [08:28.610] and the President is rightfully calling attention to it.
+- [08:30.580] The Press: Thank you. Karoline Leavitt: Kelly?
+- [08:31.840] The Press: Good afternoon.
+- [08:33.080] On Iran, the President posted on his social
+- [08:35.640] that he is not even talking to them anymore.
+- [08:38.910] When we were at NATO, he said he expected the US and Iran
+- [08:42.000] to have talks as early as this week
+- [08:44.320] and that he might even want to see a written agreement.
+- [08:47.190] What is the update now if he's saying he's not even talking?
+- [08:49.790] Karoline Leavitt: So as I told you
+- [08:51.050] from the podium last week, I said the administration
+- [08:53.470] and namely our Special Envoy, Steve Witkoff,
+- [08:56.030] has been in communication both directly
+- [08:58.180] and indirectly with the Iranians.
+- [08:59.750] That communication continues.
+- [09:01.170] The president himself has not talked to Iran,
+- [09:03.630] which he pointed out in his true statement.
+- [09:06.890] Peter?
+- [09:08.130] The Press: Thank you, Karoline.
+- [09:09.330] Does President Trump want Zohran Mamdani deported?
+- [09:13.870] Karoline Leavitt: I haven't heard him say that.
+- [09:15.220] I haven't heard him call for that,
+- [09:17.150] but certainly he does not want this individual to be elected.
+- [09:20.510] I was just speaking to him about it
+- [09:22.270] and his radical policies
+- [09:23.550] that will completely crush New York City,
+- [09:27.080] which is obviously a city that the President
+- [09:29.030] holds near and dear to his heart.
+- [09:30.380] The Press: There's this Congressman Andy Ogles.
+- [09:31.940] He wants the Attorney General Bondi
+- [09:33.270] to explore denaturalization proceedings
+- [09:36.110] because he thinks Mamdani could have misrepresented
+- [09:39.390] or concealed material support for terrorism
+- [09:43.080] based on rap lyrics he wrote in 2017.
+- [09:46.510] Does President Trump think this is a worthwhile use
+- [09:49.230] of the Attorney General's time?
+- [09:50.800] Karoline Leavitt: Well, I'll let the President speak to that.
+- [09:52.480] I have not seen those claims, but surely if they are true,
+- [09:55.270] it's something that should be investigated.
+- [09:57.150] The Press: And could President Trump see himself,
+- [09:59.680] you said you just talked to him about this,
+- [10:01.790] could he see himself working with a Mayor Mamdani?
+- [10:05.320] Somebody who on Meet the Press this weekend
+- [10:07.410] was given three chances to condemn
+- [10:09.440] the phrase globalize the intifada, but he couldn't.
+- [10:12.700] Karoline Leavitt: Yeah, look,
+- [10:14.020] the President is always willing to work with everyone.
+- [10:16.390] He's working with Democrats
+- [10:19.030] across the country, Democrat governors,
+- [10:20.820] and he said he'll work with people on the far left.
+- [10:23.610] He works with Republicans,
+- [10:24.960] he works with people in the middle.
+- [10:26.190] He wants to do what's right for America,
+- [10:27.660] but surely someone who holds these values
+- [10:29.730] and is quite literally a communist
+- [10:31.590] and condemns every value that makes this country great,
+- [10:35.170] common sense, law and order, low taxes, working hard
+- [10:38.620] and earning your keep in this country.
+- [10:41.240] He's against all of that and I think the President
+- [10:43.150] would find it difficult to work with someone like that.
+- [10:44.830] If he is elected,
+- [10:46.310] I'm sure you'll hear more from the President on that,
+- [10:48.040] but we'll have to see.
+- [10:49.260] Hopefully the voters of New York City choose wisely.
+- [10:53.380] The Press: Thanks, Karoline.
+- [10:54.620] The President last on Friday said
+- [10:56.720] that he was hopeful of a Gaza deal within the next week.
+- [11:00.860] Can you give us an update on any progress towards that,
+- [11:03.420] on any talks that the White House
+- [11:05.330] is having with Israel on that?
+- [11:06.900] Karoline Leavitt: Sure.
+- [11:08.140] Well, I know that Mr. Dermer is in Washington this week
+- [11:11.680] to meet with senior officials here at the White House.
+- [11:14.800] I also know that this administration
+- [11:17.170] is in constant communication with Israeli leadership
+- [11:21.090] and the President himself speaks frequently,
+- [11:22.950] as you know to Prime Minister Netanyahu.
+- [11:24.690] But this has been a priority for the President
+- [11:26.980] since he took office to end this brutal war in Gaza.
+- [11:30.210] It is because of this President that humanitarian aid
+- [11:33.400] is being brought into the region.
+- [11:35.970] It's heartbreaking to see the images that have come out
+- [11:38.160] from both Israel and Gaza throughout this war,
+- [11:41.470] and the President wants to see it end.
+- [11:43.060] He wants to save lives, however,
+- [11:45.730] the main priority for the President
+- [11:47.210] also remains to bring all of the hostages home out of Gaza.
+- [11:51.710] As you know, his tireless effort
+- [11:53.960] has brought home many of the hostages,
+- [11:56.120] including all of the American hostages who were held there.
+- [11:59.100] So he wants to see both things happen
+- [12:00.620] and we're continuing to work very hard to do those things.
+- [12:03.920] The Press: Yeah. Thanks, Karoline.
+- [12:05.210] What is the White House's response
+- [12:06.470] to Senator Tillis's criticism
+- [12:09.260] articulated from the Senate floor yesterday
+- [12:11.040] in which you said passing the big beautiful bill
+- [12:14.290] would betray President Trump's promise to protect Medicaid?
+- [12:18.570] Karoline Leavitt: Well, he is just wrong and the President
+- [12:21.790] and the vast majority of Republicans
+- [12:23.630] who are supportive of this legislation are right.
+- [12:26.620] This bill protects Medicaid as I laid out for you,
+- [12:29.350] for those who truly deserve this program,
+- [12:31.560] the needy, pregnant women, children,
+- [12:34.850] sick Americans who physically cannot work.
+- [12:37.800] And what it does is it ensures that able-bodied Americans
+- [12:42.120] who can work 20 hours a week are actually doing so,
+- [12:44.910] and that will therefore strengthen
+- [12:46.500] and protect those benefits for Americans who need it,
+- [12:49.390] as well as cutting out the waste, fraud and abuse,
+- [12:51.580] as well as getting 1.4 million illegal aliens
+- [12:53.850] off of the program.
+- [12:55.090] So all of those measures are actually going to protect it
+- [12:57.930] for those who need it.
+- [12:59.390] That's the President's position and that's what this bill does,
+- [13:01.560] and that's why Republicans need to vote for it
+- [13:03.400] and get it to the President's desk.
+- [13:04.820] The Press: What is that criticism
+- [13:06.070] from a Republican senator?
+- [13:07.670] Is that reason for concern for the passage of this?
+- [13:11.400] Karoline Leavitt: No, it's not. We're confident this bill
+- [13:12.850] is going to be back at the White House
+- [13:14.600] by the 4th of July. Steven?
+- [13:15.840] The Press: Thank you, Karoline.
+- [13:17.070] Two questions, on the New York mayoral race,
+- [13:19.120] does the President plan to make an endorsement?
+- [13:21.520] And secondly on Jerome Powell,
+- [13:23.840] a lot of the focus obviously has been on interest rates
+- [13:25.870] and him keeping them high,
+- [13:27.140] but a new controversy erupted today.
+- [13:31.110] My colleague first reported that he's facing,
+- [13:34.130] the Chairman Jerome Powell is facing accusations
+- [13:36.670] of lying to Congress,
+- [13:38.030] which is a potential crime about luxurious details
+- [13:41.480] of the Fed's $2.5 billion renovation project.
+- [13:46.300] Senator Lummis has called attention to this.
+- [13:48.020] Some experts want him to be investigated.
+- [13:50.970] Does the White House want these allegations investigated
+- [13:53.550] and found substantiated punished?
+- [13:56.960] Karoline Leavitt: I'll have to take a look at those allegations
+- [13:59.320] and I will raise them to the President's attention
+- [14:01.570] and let him speak on them himself.
+- [14:03.670] To your first question regarding the mayoral race,
+- [14:06.990] the President was asked that yesterday by Maria Bartiromo.
+- [14:09.870] He refused to give an endorsement,
+- [14:11.480] so you won't get one from me at this podium
+- [14:13.560] unless he wants me to do that. Philip, go ahead.
+- [14:17.710] And then I can go to you. Thanks.
+- [14:19.190] The Press: Thank you.
+- [14:20.420] The President said that he's working on a temporary pause
+- [14:22.920] for immigration enforcement in certain industries.
+- [14:25.380] I'm wondering what you can tell us
+- [14:26.790] about how he's determining
+- [14:28.370] which industries are deserving of a pass.
+- [14:31.360] He mentioned farmers, but what about say, construction workers?
+- [14:35.580] Shouldn't there just be one standard here?
+- [14:37.420] Karoline Leavitt: I don't have any more details
+- [14:38.860] to read out for you,
+- [14:40.100] but what I can tell you is that the White House
+- [14:42.170] is working closely every day
+- [14:44.330] with the Department of Agriculture
+- [14:45.900] as well as the Department of Homeland Security
+- [14:48.140] when it comes to work site enforcement.
+- [14:54.330] And the President's focus
+- [14:55.670] and the focus of this administration is of course
+- [14:58.420] to remove public safety threats from the streets
+- [15:00.570] and to deport as many of the illegal criminals,
+- [15:02.970] especially the violent criminals that we know are still here
+- [15:05.740] because of the previous administration.
+- [15:07.280] So that's the main priority and the goal.
+- [15:09.030] The Press: And then the President has already made cuts
+- [15:11.210] to the Office of the Director of National Intelligence,
+- [15:13.790] but now Senator Tom Cotton has put forward a bill
+- [15:16.100] that would cut the office by another 60 percent.
+- [15:19.600] What's the President's reaction to that legislation?
+- [15:22.070] And is this something that he would
+- [15:23.650] support those additional cuts?
+- [15:24.930] Karoline Leavitt: I don't know
+- [15:26.160] if the President's even aware of that legislation,
+- [15:28.560] but I will get you a response if he is aware
+- [15:31.460] and if he wants to respond to it.
+- [15:32.670] Go ahead.
+- [15:33.870] The Press: Thank you, Karoline.
+- [15:35.230] You mentioned the dangerous wildlife
+- [15:36.840] at the Alligator Alcatraz. Is that a design feature?
+- [15:40.270] Why is the President going with this mega bill
+- [15:42.440] in such a precarious position in the Senate?
+- [15:45.700] And then also, can you talk about the CDO estimate
+- [15:47.650] that it would add about 11 million uninsured?
+- [15:51.020] Karoline Leavitt: Well, look,
+- [15:52.260] when you have illegal murders and rapists
+- [15:55.810] and heinous criminals in a detention facility
+- [15:58.440] surrounded by alligators, yes,
+- [15:59.990] I do think that's a deterrent for them to try to escape.
+- [16:02.190] We do know that some of these illegal criminals have escaped
+- [16:05.230] from other detention facilities like one in New Jersey,
+- [16:07.630] which I know was recently reported on.
+- [16:09.250] So of course, we want to keep the American people safe
+- [16:11.890] and we want to remove these public safety threats
+- [16:13.890] from our streets,
+- [16:15.130] and we want to effectively detain them as best as we can.
+- [16:18.440] As for why the President is going,
+- [16:19.970] I think his trip to this detention facility
+- [16:22.360] actually underscores the need
+- [16:23.870] to pass the one big beautiful bill
+- [16:25.870] because we need more detention facilities across the country.
+- [16:28.940] The last administration let in nearly 20 million illegal people
+- [16:33.360] from all over the world,
+- [16:34.700] and this administration is focused
+- [16:36.260] on arresting and detaining them.
+- [16:38.130] But in comparison to that 20 million
+- [16:40.100] illegal criminal population in our country,
+- [16:42.850] we only have 7,000 ICE agents in the interior
+- [16:46.270] who are doing this very important work.
+- [16:48.230] And so we obviously need more personnel,
+- [16:50.680] we need more resources,
+- [16:51.940] and that's why we need to pass the one big beautiful bill.
+- [16:55.560] Yes, in the pink.
+- [16:57.220] The Press: Thank you. Thank you, [inaudible 00:16:36].
+- [16:59.000] Can you please share some details of China trade deal?
+- [17:01.410] Has the US agreed to ease some exports,
+- [17:06.600] technology export restrictions?
+- [17:08.340] Karoline Leavitt: Sure.
+- [17:09.590] Well, the final language that was agreed upon
+- [17:12.470] in both Geneva and in London was signed just past week.
+- [17:16.150] We can get you that final text of the agreement.
+- [17:18.060] Go ahead.
+- [17:19.310] The Press: Thank you, Karoline.
+- [17:20.520] Karoline Leavitt: Eman, and then behind you.
+- [17:21.760] The Press: Okay, thanks Karoline.
+- [17:23.020] So on Jay Powell, has the President got a short list
+- [17:26.300] of who he wants to see as Jay Powell successor,
+- [17:28.570] and is he going to name a successor
+- [17:30.350] as early as this summer?
+- [17:31.900] Karoline Leavitt: I won't get ahead of the President
+- [17:33.210] on any announcements on that.
+- [17:35.080] The Press: Does he like Scott Bessent for the job?
+- [17:36.540] Karoline Leavitt: Again, I won't get ahead of the President.
+- [17:38.200] The Press: And on TikTok, if you could real quick.
+- [17:39.790] He said yesterday he's got a buyer,
+- [17:41.840] but the question there is does he have a seller?
+- [17:43.850] And do you have any indication from the Chinese government
+- [17:46.030] that they've authorized a sale of TikTok
+- [17:47.690] to the US or do US buyers?
+- [17:48.910] Karoline Leavitt: What I can tell you
+- [17:50.190] is that these discussions with China
+- [17:51.910] regarding the sale of TikTok
+- [17:53.330] have been ongoing at the highest level,
+- [17:55.540] and they will continue.
+- [17:56.790] As you know, we have another 90 day extension
+- [17:59.390] and it's just to continue to work out this deal
+- [18:01.270] and make sure that TikTok stays on for the American people.
+- [18:03.830] That's the President's main goal,
+- [18:05.200] and this while protecting their privacy
+- [18:07.380] and their security. Behind you, go ahead.
+- [18:09.160] The Press: Thank you, Karoline.
+- [18:10.630] The President has been calling for
+- [18:12.190] [inaudible 00:17:51]
+- [18:13.540] in Gaza for two days and many posts.
+- [18:15.790] Who is blocking the deal? And one other thing,
+- [18:18.700] when he posted on Netanyahu's trial also he said
+- [18:22.170] The Press: -- it interferes with the negotiations
+- [18:24.370] on Iran and on Gaza. What did he mean by that?
+- [18:27.170] Karoline Leavitt: I'm sorry. To your second question?
+- [18:28.600] The Press: The second question,
+- [18:29.840] when he posted about the Israeli Prime Minister trial,
+- [18:32.820] he said it interferes with the negotiations on Gaza
+- [18:37.060] and on Iran. What did he mean by that?
+- [18:39.510] Karoline Leavitt: It interferes because it physically
+- [18:41.440] and logistically was interfering.
+- [18:43.450] The Prime Minister was slated to go to court last week
+- [18:46.670] when he's in the middle of negotiating a peace deal
+- [18:49.310] and bringing hostages out of a war-torn region.
+- [18:52.240] And so, the President was simply, I think,
+- [18:55.340] emphasizing his empathy that he has for Bibi Netanyahu
+- [18:58.730] and seeing what he's going through
+- [19:01.810] with his own judicial system in the state of Israel.
+- [19:04.680] Clearly the President knows that very well.
+- [19:07.650] He, too, was a victim of a judicial system
+- [19:10.930] that was trying to put him in jail, as you all know.
+- [19:13.660] You all covered it. But President Trump prevailed.
+- [19:16.000] That's why he's back in the Oval Office,
+- [19:17.540] and he believes that Bibi Netanyahu is a great leader
+- [19:20.380] for the people of Israel.
+- [19:21.980] The President just worked with him closely to end
+- [19:24.980] that 12 day war
+- [19:26.450] and to obliterate Iran's nuclear facility
+- [19:28.720] to take out that imminent threat,
+- [19:30.580] not just to the state of Israel,
+- [19:31.780] but also to the United States of America
+- [19:33.080] and the rest of the world,
+- [19:34.310] and he believes that Prime Minister Netanyahu
+- [19:36.040] should be praised for that. Go ahead.
+- [19:38.250] The Press: Thanks, Karoline.
+- [19:39.490] On the mega bill and the amendment
+- [19:41.510] that would limit Medicaid expansion
+- [19:43.600] under the Affordable Care Act,
+- [19:45.030] does the President want that amendment to pass?
+- [19:48.250] Karoline Leavitt: The President wants this bill to pass.
+- [19:50.240] Meredith?
+- [19:51.450] The Press: Hey. Thanks, Karoline.
+- [19:52.900] On trade, we have this looming July 9th deadline coming up.
+- [19:56.890] We heard the Treasury Secretary say
+- [19:59.120] that he expects to wrap up these trade deals by Labor Day.
+- [20:02.260] But when President Trump was asked yesterday
+- [20:04.400] about any extensions by July 9th,
+- [20:06.360] he said, I think that would be necessary.
+- [20:08.110] So is the President ruling out any extensions
+- [20:11.310] on trade for any nations,
+- [20:13.000] even if they're negotiating in good faith?
+- [20:14.630] Karoline Leavitt: Well, you heard from him directly.
+- [20:16.000] He said he did not think that it would be necessary.
+- [20:18.710] He is going to set the rates for many of these countries
+- [20:21.780] if they don't come to the table to negotiate in good faith,
+- [20:25.700] and he is meeting with his trade team this week to do that.
+- [20:29.920] Mary?
+- [20:31.210] The Press: Thanks, Karoline.
+- [20:32.410] I just watched a CNN segment on a new app called ICEBlock,
+- [20:35.410] and it appeared to be promoting this app
+- [20:37.800] where you can tell people where ICE agents are.
+- [20:40.520] Given the recent [inaudible].
+- [20:41.850] Karoline Leavitt: An app that tells people
+- [20:43.080] where ICE agents are?
+- [20:44.350] The Press: Yes. And given the rise,
+- [20:46.800] I believe a 500 percent increase in assaults on ICE agents,
+- [20:49.850] I wanted to see if you could comment on that
+- [20:51.460] and why CNN would be promoting such an app?
+- [20:54.150] Karoline Leavitt: Well, it's a very good question.
+- [20:55.500] I'll have to go back and watch the clip myself.
+- [20:57.500] But surely, it sounds like this would be an incitement
+- [21:00.920] of further violence against our ICE officers.
+- [21:02.880] As you know, as you've stated, there's been a 500 percent
+- [21:06.170] increase in violence against ICE agents,
+- [21:08.430] law enforcement officers across the country
+- [21:10.650] who are just simply trying to do their jobs
+- [21:13.430] and remove public safety threats from our communities.
+- [21:15.940] And that's something we, as Americans,
+- [21:17.780] including journalists at CNN who live in many of these cities
+- [21:21.100] where illegal aliens are hiding
+- [21:22.610] and were let in from the previous administration,
+- [21:25.030] should be very grateful for. So we haven't seen the clip.
+- [21:27.990] We'll take a look at it, but certainly it's unacceptable
+- [21:31.500] that a major network would promote such an app
+- [21:36.240] that is encouraging violence against law enforcement officers
+- [21:39.330] who are trying to keep our country safe.
+- [21:40.820] Shelby?
+- [21:42.040] The Press: I just wanted to get a clarification.
+- [21:43.600] On the Senator Rick Scott's amendment,
+- [21:45.900] it sounds like the President is agnostic
+- [21:48.360] about whether it's attached; is that accurate?
+- [21:50.420] Karoline Leavitt: Look, I'm not going to get into the details
+- [21:52.120] of the discussions that are ongoing right now,
+- [21:53.940] but the President wants these senators to come to a conclusion
+- [21:57.990] to get this bill back to the White House as soon as possible
+- [22:00.600] and make sure that it's a piece of legislation
+- [22:02.630] that can make its way back through the House, as well.
+- [22:04.480] So obviously, there's some ping-ponging
+- [22:06.770] between both sides of Capitol Hill right now,
+- [22:10.020] but that's why Senator Thune and Speaker Johnson
+- [22:12.640] are working with the President
+- [22:14.000] in lockstep every step of the way.
+- [22:15.410] The Press: Karoline?
+- [22:16.610] Karoline Leavitt: In the back. NewsNation, go ahead.
+- [22:17.920] The Press: Thanks, Karoline.
+- [22:19.880] Karoline Leavitt: In front of you. Yes.
+- [22:21.090] The Press: In front of me?
+- [22:22.320] Karoline Leavitt: Sure. I'll take both of you.
+- [22:23.540] The Press: The president did announce last week
+- [22:25.180] that the trade deal with India is closed,
+- [22:28.130] and this could happen anytime soon.
+- [22:29.860] Are there any roadblocks as of now?
+- [22:31.800] Are there any updates on that?
+- [22:33.690] And how does the President see this about China's role
+- [22:37.610] or its influence in the Indo-Pacific region?
+- [22:40.380] Karoline Leavitt: Sure. Yes.
+- [22:41.640] The President said that last week, and it remains true.
+- [22:43.870] I actually just spoke to our Secretary of Commerce about it.
+- [22:47.080] He was in the Oval Office with the President.
+- [22:48.840] They are finalizing these agreements,
+- [22:50.860] and you'll hear from the President
+- [22:52.600] and his trade team very soon when it comes to India.
+- [22:54.650] The Press: And China?
+- [22:55.930] How do we counter China on that front?
+- [22:58.960] Karoline Leavitt: Yes. I mean, look, India remains
+- [23:01.230] a very strategic ally in the Asia Pacific,
+- [23:04.290] and the President has a very good relationship
+- [23:06.010] with Prime Minister Modi, as you know,
+- [23:08.220] and he will continue to have that. Go ahead.
+- [23:10.150] The Press: Thank you, Karoline. On the Reconciliation Bill,
+- [23:12.450] Senator Tillis from the floor yesterday
+- [23:14.760] seemed to suggest President Trump
+- [23:16.270] was getting bad counsel on the effects of the bill.
+- [23:19.990] Is President Trump aware of the analyses,
+- [23:23.050] and there are several of these,
+- [23:24.400] that suggest if rural hospitals potentially close,
+- [23:28.770] if there are Medicaid patients in the millions
+- [23:31.500] that become ineligible for that?
+- [23:32.820] Karoline Leavitt: Yes.
+- [23:34.040] And that claim is just simply untrue.
+- [23:36.040] Rural hospitals comprise 7 percent of all hospitals
+- [23:39.190] spending on Medicaid, and that illustrates
+- [23:41.410] that they have not benefited from the massive increase
+- [23:43.680] of waste, fraud, and abuse under the Biden administration.
+- [23:46.810] So this bill strengthens Medicaid,
+- [23:49.040] it will protect those benefits that hardworking Americans need,
+- [23:54.010] and that's why the President wants this bill to pass.
+- [23:55.780] The Senator was wrong.
+- [23:57.000] The President put out a Truth social post addressing it,
+- [24:00.390] and then the Senator announced
+- [24:01.600] he's no longer running for office anymore.
+- [24:04.100] So I think that case has been closed,
+- [24:05.570] and the White House is continuing to focus
+- [24:07.640] on getting this legislation to the President's desk
+- [24:10.230] for his signature. Go ahead. Yes, you.
+- [24:13.520] The Press: Thank you so much.
+- [24:14.790] Karoline Leavitt: Well, you, and then you.
+- [24:16.000] There's confusion here.
+- [24:17.280] The Press: I have a question on Syria.
+- [24:18.500] Karoline Leavitt: Go ahead.
+- [24:19.770] The Press: The Syrian government get back to you
+- [24:20.980] that they are ready to join the Abraham Accord.
+- [24:23.290] Is there any discussion with the Syrian
+- [24:24.660] and Israeli government for having the security agreement,
+- [24:27.630] is the first question? And the second question,
+- [24:29.750] what's the end goal for talking with the Iranians?
+- [24:31.910] Is that only focused on the nuclear program?
+- [24:34.690] Or are they willing to speak about the other issues,
+- [24:38.210] like the proxy group and ballistic missiles
+- [24:41.220] or even trade with Iran?
+- [24:43.020] Karoline Leavitt: So as for discussions
+- [24:44.690] between Syria and Israel,
+- [24:46.250] you'll have to reach out to those respective governments.
+- [24:48.580] I can't comment on that.
+- [24:49.790] But what I can tell you is that this afternoon the President
+- [24:52.410] will be signing an executive order
+- [24:54.800] to terminate the United States' Sanctions Program on Syria,
+- [24:58.730] and this is in an effort to promote
+- [25:01.470] and support the country's path to stability and peace.
+- [25:04.750] The order will remove sanctions on Syria
+- [25:06.750] while maintaining sanctions on the former President Assad,
+- [25:10.300] his associates, human rights abusers,
+- [25:12.450] drug traffickers, persons linked to chemical weapons,
+- [25:15.060] activities, ISIS and their affiliates,
+- [25:17.610] and Iranian proxies.
+- [25:19.370] And this is, again, an action that the President promised
+- [25:22.200] and shocked the world with in Saudi Arabia
+- [25:24.550] because he's committed to supporting a Syria
+- [25:26.800] that is stable, unified,
+- [25:28.620] and at peace with itself and its neighbors.
+- [25:31.070] The President met with Syria's new president
+- [25:33.470] when we were in the Middle East, as you know.
+- [25:35.420] And so, this is another promise made and promise
+- [25:37.560] kept by this president to promote peace
+- [25:40.300] and stability in the region.
+- [25:41.500] The Press: Karoline? Karoline Leavitt: Go ahead.
+- [25:42.760] The Press: Thank you.
+- [25:43.980] Questions on two topics, if you don't mind.
+- [25:45.270] Karoline Leavitt: Sure.
+- [25:46.490] The Press: Iris Tao with NTD here. First on Canada.
+- [25:48.430] Canada says it's now dropping its digital services tax
+- [25:51.510] on American tech companies days after President Trump
+- [25:54.140] says he's holding all trade talks with Canada.
+- [25:56.650] First, what's the President's reaction to this?
+- [25:58.650] Can you tell us more about his call
+- [26:00.310] with Prime Minister Carney over the weekend?
+- [26:03.530] How did he get Carney to drop it?
+- [26:05.650] And also, what's the impact on American tech companies
+- [26:09.510] given this latest progress?
+- [26:10.710] As the President says, he has been fighting
+- [26:12.300] for American tech companies.
+- [26:13.960] Karoline Leavitt: It's very simple.
+- [26:15.310] Prime Minister Carney in Canada
+- [26:16.950] caved to President Trump in the United States of America.
+- [26:20.230] And President Trump knows how to negotiate,
+- [26:23.010] and he knows that he is governing the best country
+- [26:26.990] and the best economy in this world on this planet.
+- [26:30.280] And every country on the planet needs to have good trade
+- [26:32.880] relationships with the United States,
+- [26:34.630] and it was a mistake for Canada to vow to implement
+- [26:37.360] that tax that would've hurt our tech companies
+- [26:39.980] here in the United States.
+- [26:41.180] The President made his position quite clear
+- [26:43.390] to the Prime Minister
+- [26:44.640] and the Prime Minister called the President last night
+- [26:47.040] to let the President know that he would be dropping that tax,
+- [26:49.570] which is a big victory for our tech companies
+- [26:52.860] and our American workers here at home.
+- [26:54.870] The Press: And on Harvard, if you don't mind.
+- [26:56.290] Administration today formally accused Harvard
+- [26:58.920] of violating civil rights laws
+- [27:00.460] by not doing enough to fight anti-Semitism.
+- [27:03.510] We know that the President has talked to us
+- [27:06.050] before about Harvard potentially having a deal
+- [27:09.320] with administration in the coming days.
+- [27:11.170] Do you have an updated timeline for that?
+- [27:13.070] How's the negotiations going?
+- [27:14.850] And is more pressure needed for Harvard
+- [27:17.470] to take fighting anti-Semitism seriously?
+- [27:19.980] Karoline Leavitt: Well, there was quite a direct letter
+- [27:22.860] that was sent to Harvard this morning, as you know.
+- [27:25.730] The negotiations are taking place behind closed doors,
+- [27:28.520] so I won't comment on that.
+- [27:29.940] But what I will share with all of you
+- [27:32.060] for those who haven't seen it is the context of this letter,
+- [27:34.330] because I think it's very important.
+- [27:36.820] And this comes from the Department of Health
+- [27:38.560] and Human Services,
+- [27:39.810] which concluded after a thorough investigation
+- [27:42.320] that Harvard University is in a violent violation
+- [27:46.040] of Title VI of the Civil Rights Act,
+- [27:48.310] which prohibits discrimination on the basis of race, color,
+- [27:51.850] and national origin.
+- [27:53.390] And if you read some of the content of the investigation
+- [27:56.290] and what they found, the majority of Jewish students
+- [27:58.590] reportedly experienced negative bias
+- [28:01.860] or discrimination on their campus,
+- [28:03.670] while a quarter of Jewish students at Harvard
+- [28:06.260] felt physically unsafe,
+- [28:08.520] Jewish and Israeli students were assaulted and spit on,
+- [28:11.530] they hid their kippahs for fear of being harassed
+- [28:14.040] and concealed their Jewish identity
+- [28:15.620] from classmates for fear of ostracization.
+- [28:18.870] Images were widely circulated amongst the Harvard community
+- [28:21.900] that trafficked an obvious anti-Semitic tropes,
+- [28:24.800] including one that showed a dollar sign
+- [28:26.560] inside of a star of David,
+- [28:27.800] and the campus was vandalized with anti-Semitic stickers,
+- [28:31.370] including one that showed the Israeli flag
+- [28:33.220] with a swastika sticker.
+- [28:34.720] A Harvard campus was racked by demonstrations,
+- [28:37.030] as you all know, violent protests
+- [28:38.630] that violated the university's rules of conduct.
+- [28:42.800] The demonstrations called for genocide and murder,
+- [28:45.920] denied Jewish and Israeli students access
+- [28:48.660] to campus spaces.
+- [28:50.190] These are all facts that Harvard cannot dispute,
+- [28:52.780] and that's why the administration has found them
+- [28:55.220] in violation of Title VI
+- [28:57.030] and has threatened to withhold their federal funding
+- [28:58.950] because if you break federal law,
+- [29:00.690] you should not be receiving federal tax dollars.
+- [29:03.140] And so I rest my case on Harvard.
+- [29:05.040] Andrea.
+- [29:06.320] The Press: Yeah, so President Macron of France earlier today
+- [29:10.820] said that tariffs levied by powerful countries
+- [29:13.700] are often a form of blackmail
+- [29:16.600] and criticized the process that's under way.
+- [29:20.540] Didn't mention the United States specifically,
+- [29:23.490] but said that these tariffs
+- [29:24.840] are really hurting developing countries,
+- [29:26.770] so there's this big UN conference going on.
+- [29:30.080] What do you say to that? What does the President,
+- [29:33.500] was he aware of that comment and did he have any response?
+- [29:37.080] Karoline Leavitt: I think the President in the White House
+- [29:39.470] would certainly reject that characterization
+- [29:41.830] by Prime Minister Macron.
+- [29:44.300] Tariffs are an effective use of presidential power
+- [29:47.370] to bring back the middle class,
+- [29:49.860] to bring back our manufacturing industry,
+- [29:53.310] which was the backbone of our American economy,
+- [29:55.820] and has been hollowed out by globalist politicians
+- [29:58.630] who have caved to foreign countries
+- [30:00.210] instead of doing what's right for American workers.
+- [30:02.670] That's why the President is effectively utilizing
+- [30:05.500] his authority to wage tariffs into utilize tariffs
+- [30:09.020] and continues to be in discussions
+- [30:10.480] and negotiations on trade to do what's right for America.
+- [30:13.840] And Europe and the rest of the world
+- [30:15.170] might not be used to that,
+- [30:16.950] but President Trump is back in town
+- [30:18.550] and he's going to do what's right for our people
+- [30:20.140] and our country.
+- [30:21.340] The Press: Can I just follow up on Netanyahu?
+- [30:24.060] So there's a report in Israeli media
+- [30:26.180] that the Prime Minister will actually be here,
+- [30:28.790] that Netanyahu will be here today
+- [30:30.900] meeting with the President. Can you confirm that?
+- [30:32.490] Karoline Leavitt: I don't believe
+- [30:33.690] Prime Minister Netanyahu is here today.
+- [30:35.430] I think you guys would know about that by now.
+- [30:38.290] Unless there's something going on I don't know about,
+- [30:40.260] but I don't believe he is.
+- [30:41.510] I do know he has expressed interest
+- [30:43.260] in coming to Washington and meeting with the President,
+- [30:45.290] and we are working on a date for that.
+- [30:47.070] I do not believe it is today, but that would be fun.
+- [30:50.210] You never know in this White House, let's be honest.
+- [30:52.020] Go ahead.
+- [30:53.220] The Press: Thanks Karoline.
+- [30:54.510] Does the President support this new measure
+- [30:57.140] in the big beautiful bill
+- [30:58.900] that would impose steep new taxes on new wind
+- [31:02.560] and solar projects?
+- [31:04.360] Karoline Leavitt: I believe you're referring to the credits
+- [31:09.090] for wind and solar projects.
+- [31:11.490] The Press: No, I'm talking about the new tax.
+- [31:12.930] There's a new tax that it's estimated
+- [31:14.710] would add 10 to 20 percent to the cost of any new wind
+- [31:18.380] and solar projects that start after this year.
+- [31:20.890] Karoline Leavitt: Again, I don't want to comment
+- [31:22.170] on the specifics of provisions,
+- [31:23.830] but I'm sure the President will speak on that directly.
+- [31:26.670] Again, this is an ongoing process,
+- [31:28.370] the President continues to be very much engaged
+- [31:30.720] with the leadership in both the Senate and the House
+- [31:33.060] to get this bill back to his desk.
+- [31:34.450] The Press: Did the President ask for that provision,
+- [31:36.100] because the National Building Trades Union
+- [31:38.370] is saying that it's the equivalent of terminating
+- [31:40.920] more than 1,000 Keystone XL pipeline projects.
+- [31:43.990] Is that something that would concern him?
+- [31:45.600] Karoline Leavitt: Well, the President spoke
+- [31:46.860] on this yesterday in his interview
+- [31:48.610] and he said he understands that legislators
+- [31:50.570] want to protect jobs in their communities
+- [31:54.200] and in their districts.
+- [31:55.420] And so he understands why some of them
+- [31:57.900] are against this provision,
+- [31:59.200] but he also understands why people want the provision.
+- [32:01.390] So again, this is an ongoing deliberation and discussion
+- [32:03.920] and the President is engaged in this very much.
+- [32:05.570] Go ahead.
+- [32:06.800] The Press: Thanks, Karoline.
+- [32:08.170] We've been hearing from White House officials for weeks
+- [32:09.770] that you're close on trade deals with a number of countries.
+- [32:12.150] Can we get any update on which countries
+- [32:13.790] will have deals by the ninth
+- [32:15.020] and when they're making any announcements on that?
+- [32:16.660] Karoline Leavitt: I'll let the President
+- [32:17.860] and the trade team speak on it. The Press: And one more.
+- [32:19.280] Can you respond to the CBO estimates
+- [32:21.430] that the Senate bill would increase the deficit
+- [32:23.360] by nearly 3.3 trillion?
+- [32:25.240] Karoline Leavitt: This is one of the most fiscally
+- [32:26.690] conservative pieces of legislation
+- [32:28.430] that has ever made its way through Capitol Hill.
+- [32:30.210] There's $2 trillion in mandatory savings in this bill,
+- [32:34.590] and not only that, the projected growth
+- [32:36.830] that this bill will bring to our economy,
+- [32:38.860] it will be an economic boom.
+- [32:40.190] The Council of Economic Advisers has an analysis that shows
+- [32:44.170] that the bill will generate $4.1 trillion in economic growth
+- [32:48.880] and it will cut taxes,
+- [32:50.090] putting more money back into the American people's pockets.
+- [32:52.760] That's why this president wants this bill to pass,
+- [32:54.960] and I know he's busy working the phones
+- [32:56.540] and doing what he needs to do today to make it happen.
+- [32:58.740] So we'll see you all later. Thank you.
+- [33:00.200] We'll see you in Florida tomorrow.

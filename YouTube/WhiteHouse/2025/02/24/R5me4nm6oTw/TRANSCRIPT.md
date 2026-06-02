@@ -1,0 +1,192 @@
+<!-- source: https://www.youtube.com/watch?v=R5me4nm6oTw -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: R5me4nm6oTw -->
+<!-- date_published: 2025-02-24T14:52:29+00:00 -->
+<!-- date_accessed: 2026-06-02T01:29:32.367826+00:00 -->
+
+# Transcript: Swearing-In Ceremony of Kash Patel as Director of the Federal Bureau of Investigation
+
+- [00:07.900] [Applause]
+- [00:16.279] w
+- [00:18.070] [Applause]
+- [00:32.000] thank you
+- [00:33.120] all for being here today to celebrate
+- [00:36.760] cash
+- [00:38.000] Patel and I want to hurry and get him
+- [00:40.280] sworn in because I'm the happiest person
+- [00:42.440] today
+- [00:44.680] ever all right here we
+- [00:56.079] go please place your hand on the Gap and
+- [00:59.519] raise your right hand I do solemnly
+- [01:02.840] swear I GHA promote Patel do solemnly
+- [01:05.720] swear that I will support and defend the
+- [01:08.600] Constitution of the United States that I
+- [01:10.960] will support and defend the Constitution
+- [01:12.960] of the United States against all enemies
+- [01:16.159] foreign and domestic against all enemies
+- [01:18.400] foreign and
+- [01:19.799] domestic that I will bear true faith and
+- [01:22.960] allegiance to the same that I will bear
+- [01:25.119] true faith and allegiance to the same
+- [01:27.759] that I take this obligation freely and I
+- [01:30.240] take this obligation freely without any
+- [01:33.119] mental reservation or purpose of evasion
+- [01:35.960] without any mental reservation or
+- [01:37.600] purpose of evasion and that I will well
+- [01:40.640] and faithfully and that I will well and
+- [01:42.960] Faithfully discharge the duties of the
+- [01:45.479] office on which I am about to enter
+- [01:47.920] discharge the duties of the office of
+- [01:49.719] which I'm about to enter so help me God
+- [01:52.040] so help me God congratulations
+- [01:56.850] [Applause]
+- [02:17.080] wow wow wow
+- [02:20.000] wow uh first and foremost we were just
+- [02:22.640] with President Trump and I just want to
+- [02:24.680] thank him I know he's not here in the
+- [02:25.959] room right now but uh what a ride we
+- [02:28.360] have been on what a courageous Warrior
+- [02:30.440] and leader he has been and the faith and
+- [02:32.879] trust he has put in me to lead the FBI
+- [02:35.440] is the greatest honor that I'll ever
+- [02:36.760] have in my life and to General Bondi
+- [02:39.280] that sounds pretty freaking cool uh Pam
+- [02:43.519] you're my sister you're my mentor you're
+- [02:45.040] my friend um you're my boss and um the
+- [02:48.400] confidence you have placed in me I will
+- [02:49.879] never violate that trust the men and
+- [02:52.480] women of the FBI will be LED under your
+- [02:54.920] leadership um through one standard the
+- [02:57.800] Constitution so thank you for ting s
+- [03:05.599] p
+- [03:09.840] um oh man this is effing
+- [03:13.880] [Music]
+- [03:15.760] crazy so obviously you you don't get
+- [03:18.560] here alone you know I'm here because of
+- [03:20.840] God I'm here because of my family and
+- [03:22.720] I'm here because of my friends and
+- [03:24.480] you're literally in this room because
+- [03:26.200] you made it happen um my sister uh Nisha
+- [03:29.480] and my my nephew Aran flew in from
+- [03:31.799] London just to be here my beautiful
+- [03:33.720] girlfriend Alexis is here um yes I I
+- [03:38.760] agree um my aunts and uncles are here
+- [03:41.840] they've come from all over the country
+- [03:43.959] uh I've I am living the American dream
+- [03:47.560] and anyone that thinks the American
+- [03:48.760] dream is dead just look right here
+- [03:50.920] you're talking to a first generation
+- [03:52.280] Indian kid who's about to lead the law
+- [03:54.599] enforcement Community the greatest
+- [03:55.760] nation on God's green earth that can't
+- [03:57.720] happen anywhere else
+- [04:00.910] [Applause]
+- [04:06.120] to the Senators and the men and women of
+- [04:07.599] the United States House of
+- [04:08.640] Representatives you placed an enormous
+- [04:11.360] trust in me an enormous leap of faith um
+- [04:15.079] one that I didn't know that I could
+- [04:16.440] possibly earn back but I'm going to
+- [04:17.799] spend every single day on this job doing
+- [04:19.600] so the fact that you placed the
+- [04:21.519] confidence you did in me has inspired me
+- [04:24.160] to reach New Heights at this job I
+- [04:26.440] promised you the following there will be
+- [04:28.880] accountability within the FBI and
+- [04:31.199] outside of the FBI and we will do it
+- [04:33.520] through rigorous constitutional
+- [04:35.039] oversight starting this weekend
+- [04:37.820] [Applause]
+- [04:45.160] yeah this great we all used to live in
+- [04:47.280] the same freaking
+- [04:51.000] house yeah I don't have any prepared
+- [04:53.080] remarks I wish I could go around the
+- [04:54.520] room and you know tell the story about
+- [04:57.039] how each and every one of you have
+- [04:58.720] magically touched my life to put me in
+- [05:00.720] this position uh what a roller coaster
+- [05:03.080] ride it has been um I do know this we
+- [05:06.240] are in this room together because you
+- [05:07.840] guys have a love of country that is
+- [05:09.720] truly inspirational and it bleeds out
+- [05:12.280] everywhere we go and um if you look
+- [05:14.919] around this room you see civil servants
+- [05:17.000] you see Warriors you see attorneys you
+- [05:19.520] see great husbands and fathers and
+- [05:21.440] mothers and wives and we're fighting for
+- [05:24.600] the same thing our future our children
+- [05:27.880] this guy
+- [05:29.960] and uh there is no greater Mission uh I
+- [05:33.039] wish I had more words to thank every
+- [05:36.080] single one of you but every time I look
+- [05:37.520] at every single one of you you guys know
+- [05:38.919] the stories you can't
+- [05:41.759] tell more importantly the ones you can
+- [05:45.720] um you know this this is Pam and I were
+- [05:48.440] just talking in the back and we're were
+- [05:49.639] like do you believe this like you know
+- [05:52.720] we were on the campaign Trail together
+- [05:54.479] we were attorneys in the first
+- [05:55.440] Administration together now we're here
+- [05:57.880] she's the attorney general I'm the
+- [05:59.000] director of the FB gu like this is
+- [06:00.720] insane um and I don't really fully
+- [06:03.639] believe it yet um I hope to but um
+- [06:07.120] believe
+- [06:09.520] it
+- [06:11.120] um I'm just not here without you guys
+- [06:13.960] and uh look I know the media's in here
+- [06:19.120] and if you have a Target that Target's
+- [06:21.759] right here it's not the men and women at
+- [06:23.400] the FBI you've written everything you
+- [06:25.800] possibly can about me that's fake
+- [06:27.160] malicious slanderous and defamatory keep
+- [06:29.360] it coming Bring it on but leave the men
+- [06:31.319] and women the FBI out of it they deserve
+- [06:34.930] [Applause]
+- [06:43.199] better and for those of you think that
+- [06:45.199] there's going to be a two-tier system of
+- [06:46.560] justice not with attorney general Bondi
+- [06:48.840] there is a singular system of justice
+- [06:50.639] for all Americans and there will be
+- [06:53.520] accountability and the reason that this
+- [06:56.479] mission is so important is simply the
+- [06:58.080] following aund ,000 people last year
+- [07:01.919] raped a 100,000 people died of CCP
+- [07:05.680] fentol overdose and heroin
+- [07:08.240] 177,000 homicides violent crime is out
+- [07:12.000] of
+- [07:13.520] control we cannot have a United States
+- [07:16.680] of America where that is acceptable
+- [07:18.599] where someone dies every every 30
+- [07:21.000] minutes where someone ODS every seven
+- [07:23.319] where someone's raped every six that
+- [07:26.240] cannot be allowed to continue and it
+- [07:29.199] will not be allowed to continue our
+- [07:31.599] national security mission is equally as
+- [07:33.360] important anyone that wishes to do harm
+- [07:36.479] to our way of life and our citizens here
+- [07:38.879] or abroad will face the full Wrath of
+- [07:41.479] the Department of Justice and the
+- [07:42.560] Federal Bureau of Investigation and if
+- [07:44.360] you seek to hide in any corner of this
+- [07:46.599] country or any corner of this planet we
+- [07:48.879] will put on the world's largest Manhunt
+- [07:50.599] and we will find you and we will decide
+- [07:53.000] your end State not you we will uphold
+- [07:56.680] the Constitution we will uphold
+- [07:58.800] ourselves to the Constitution the men
+- [08:01.000] and women at the FBI I have your back
+- [08:03.479] because you have the backs of the
+- [08:04.680] American people you will H you will be
+- [08:07.199] held to the same high standard any
+- [08:10.039] deviation from that standard will not be
+- [08:12.599] tolerated at this Federal Bureau of
+- [08:14.479] Investigation the men and women at the
+- [08:16.520] FBI who make us safe deserve better and
+- [08:19.879] they are going to get it with our
+- [08:21.560] leadership and your support God Bless
+- [08:24.199] America and God bless every one of you I
+- [08:26.199] love this country
+- [08:29.639] w

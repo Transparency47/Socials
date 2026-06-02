@@ -1,0 +1,1535 @@
+<!-- source: https://www.youtube.com/watch?v=roPFrhEclsc -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: roPFrhEclsc -->
+<!-- date_published: 2026-01-16T16:27:58+00:00 -->
+<!-- date_accessed: 2026-06-02T02:39:02.417008+00:00 -->
+
+# Transcript: President Trump Participates in The Great, Historic Investment in Rural Health Roundtable
+
+- [00:09.580] Announcer: Ladies and gentlemen,
+- [00:10.790] the President of the United States,
+- [00:12.650] Donald J. Trump.
+- [00:15.280] ♪ (Hail to the Chief) ♪
+- [00:35.140] The President: Thank you very much.
+- [00:36.510] Please. This is a very important one today.
+- [00:40.760] We've worked on it long and hard;
+- [00:42.100] for years they've been working on it.
+- [00:44.840] And I see Kevin's in the audience
+- [00:47.170] and I just want to thank you.
+- [00:48.440] You were fantastic on television today.
+- [00:50.570] I actually want to keep you where you are,
+- [00:52.040] if you want to know the truth.
+- [00:53.640] Kevin Hassett is so good.
+- [00:54.960] I'm saying wait a minute, if I move them,
+- [00:57.110] these Fed guys, certainly the one we have now,
+- [00:58.930] they don't talk much, I would lose you.
+- [01:01.630] It's a serious concern to me.
+- [01:03.770] So, I just want to say thank you very much.
+- [01:05.300] You've done incredible. We don't want to lose him,
+- [01:08.490] Susie, we'll see how it all works out, OK?
+- [01:11.650] Thank you, Kevin, great job.
+- [01:14.400] And thank you for all being here
+- [01:16.120] as we discussed the largest investment in rural health care
+- [01:19.670] in American history. This is the big one.
+- [01:22.520] We're delighted to be joined by many incredible members
+- [01:25.240] of the health care community, including doctors, nurses
+- [01:28.140] and pharmacists from all across America.
+- [01:32.020] We're also very happy to have with us
+- [01:34.900] some very talented people,
+- [01:37.150] a man who is really good at this,
+- [01:39.650] extremely non-controversial, which is --
+- [01:41.910] I wanted somebody non-controversial.
+- [01:44.790] So, I chose Robert F. Kennedy, Jr.
+- [01:49.950] They had the whole shebang up.
+- [01:56.250] And he also happens to be a great guy.
+- [01:59.420] Brooke Rollins, who's doing a fantastic job at agriculture,
+- [02:02.950] and thank you. And how are the prices coming?
+- [02:04.510] Secretary Rollins: They're coming --
+- [02:05.800] sir, they're coming down.
+- [02:07.140] The President: Don't forget, we inherited a mess.
+- [02:08.950] Remember eggs?
+- [02:10.240] They were up four times higher than they ever were.
+- [02:13.320] And on my first day they said
+- [02:14.540] what are you going to do about eggs?
+- [02:15.830] I said I didn't cause the problem.
+- [02:17.150] We didn't cause -- we inherited a mess,
+- [02:19.400] but the prices are coming down.
+- [02:21.090] Secretary Rollins: Yes, sir, wholesale prices
+- [02:22.430] are down 86 percent,
+- [02:24.160] retail a little bit less than that.
+- [02:25.800] But yes, you're making America affordable again.
+- [02:27.820] The President: With you in charge,
+- [02:29.040] I have no doubt and I appreciate it. Thank you.
+- [02:31.010] Secretary Rollins: Thank you.
+- [02:32.230] The President: And administrator for the Centers for Medicare
+- [02:36.200] and Medicaid Services, a really good man,
+- [02:39.070] a really brilliant guy, Dr. Mehmet Oz.
+- [02:42.510] Thank you very much. Thank you, Dr. Oz.
+- [02:48.240] And thank you also to Governor Jim Pillen,
+- [02:51.530] Senator Dan Sullivan and Representatives Rob Bresnahan,
+- [02:56.350] Mike Lawler, John McGuire and Nick Begich.
+- [02:59.540] Thank you all for being here. Appreciate it very much.
+- [03:05.830] And we have other congressmen here
+- [03:07.300] I see and a couple of senators
+- [03:08.670] and we appreciate everybody being here.
+- [03:10.360] Everyone wants to be a part of this.
+- [03:12.660] It's so important, maybe, I don't know,
+- [03:15.300] for many people there's nothing more important.
+- [03:17.480] I would say maybe defense, you know, we need defense
+- [03:20.930] and we need offense too, by the way.
+- [03:23.110] As part of the Great Big, Beautiful Bill, we've increased
+- [03:26.620] and we have increased funding for the health care
+- [03:29.040] by an unprecedented $50 billion. That's rural health care.
+- [03:35.370] Nobody thought that was going to happen and we got it done.
+- [03:39.010] So, we have rural health care,
+- [03:40.520] for those that were trying to make a case
+- [03:42.890] that we weren't taking care of the rural community.
+- [03:45.160] I'm all about the rural community.
+- [03:46.850] We won the rural communities by numbers
+- [03:49.250] that nobody's ever won them before
+- [03:50.740] and we're taking care of those great people.
+- [03:53.270] So, we already did this.
+- [03:54.570] We increased funding for rural health care
+- [03:57.190] by an unprecedented record
+- [03:58.880] setting $50 billion over five years,
+- [04:02.420] which will benefit Americans in all 50 states.
+- [04:05.690] And this made possible and was made possible
+- [04:08.710] by cutting massive waste, fraud and abuse from Medicaid
+- [04:12.770] and reinvesting those funds to revitalize hospitals
+- [04:16.460] and our cherished rural communities
+- [04:18.150] and hospitals in rural communities.
+- [04:20.710] And I want to say with all of the fraud
+- [04:22.330] that we're seeing in Minnesota and California
+- [04:24.240] and other places,
+- [04:25.590] I actually think that if we do an unbelievable job,
+- [04:29.520] you could almost balance your budget, Kevin.
+- [04:31.730] If you take a look at the kind of numbers you're talking about,
+- [04:33.980] nobody ever saw anything like it.
+- [04:35.830] They're all corrupt politicians, from the governor of Minnesota
+- [04:39.460] to the governor of California to the --
+- [04:41.460] everybody. They're just corrupt politicians.
+- [04:44.430] And you're talking about hundreds of billions of dollars
+- [04:48.150] in fraud -- waste, fraud and abuse.
+- [04:51.910] But in fraud, you're talking
+- [04:53.240] about hundreds of billions of dollars.
+- [04:55.800] Under the Unaffordable Care Act, which is Obamacare.
+- [04:58.740] It's called the Unaffordable.
+- [05:00.100] It is unaffordable, remember that.
+- [05:03.580] Rural hospitals and communities were devastated
+- [05:06.170] by soaring costs and that continues.
+- [05:08.990] Despite colossal increases in government
+- [05:11.180] spending since Obamacare was passed,
+- [05:13.810] only seven percent of the annual Medicaid
+- [05:16.150] spending on rural hospitals has gone to rural hospitals.
+- [05:19.690] So, there's only a very little. They didn't care --
+- [05:23.270] Obama didn't care about the rural community,
+- [05:25.420] to be totally blunt.
+- [05:27.330] What he did care about is insurance companies
+- [05:30.350] and this was a bill to make insurance companies wealthy.
+- [05:32.820] And they did --
+- [05:34.070] they made insurance companies very wealthy.
+- [05:36.650] I would say they don't like me too much
+- [05:39.300] because they spent hundreds of billions of dollars
+- [05:42.390] and we're going to have that money spent to the people
+- [05:44.260] and given to the people,
+- [05:45.670] not we're going to circumvent the insurance companies.
+- [05:48.800] Partially as a result, rural health care facilities
+- [05:52.030] have suffered from low occupancy rates,
+- [05:55.200] workforce shortages and failing programs that put Band-Aids,
+- [05:59.910] literally put Band-Aids over the problems in those communities.
+- [06:03.820] And we're not going to have that.
+- [06:05.170] We're taking great care of them.
+- [06:06.990] With the Rural Health Transformation Program,
+- [06:10.470] we are getting rural communities the health support they need
+- [06:14.430] and we're getting it immediately.
+- [06:16.760] These funds will go to empowering rural hospitals,
+- [06:19.510] strengthening their workforce,
+- [06:20.880] modernizing facilities and technology.
+- [06:23.910] And ensuring that rural Americans get world class
+- [06:27.050] health care in their own community --
+- [06:29.780] right smack in their own community
+- [06:31.870] like they've never had it before.
+- [06:33.810] And they've been hurt very badly by the Unaffordable Care Act.
+- [06:37.860] Every single Democrat in Congress
+- [06:39.460] voted against the lifeline for rural communities.
+- [06:42.560] And I hope everyone knows this --
+- [06:44.800] and this is not about elections,
+- [06:46.180] but I hope you remember this in the midterms,
+- [06:48.090] because the Democrats are just so horrible
+- [06:52.610] toward the rural community.
+- [06:54.830] But I want to take a moment to thank the incredible
+- [06:57.440] House and Senate Republicans who worked so hard
+- [07:00.440] on making this historic investment possible.
+- [07:03.790] That's what they did and they did work hard.
+- [07:06.730] We, I don't think, got a Democrat vote, did we?
+- [07:11.100] Did we get one Democrat vote?
+- [07:13.480] We got all Republican votes. It was an amazing feat.
+- [07:17.260] And I want to thank Mike, our speaker of the House,
+- [07:20.900] Mike Johnson, and John Thune for really doing a great job.
+- [07:25.000] It was tough. You know, we have small majorities
+- [07:28.030] and I want to thank the Congressmen
+- [07:30.670] that are here for doing --
+- [07:32.560] in particular for working so hard and getting this done.
+- [07:34.990] Yesterday, I also announced our framework
+- [07:37.460] to lower health care prices for all Americans,
+- [07:40.370] including those in rural America.
+- [07:43.140] And we're calling it the Great Health Care Plan.
+- [07:46.310] You know, we had to come up with a name,
+- [07:47.980] and everybody wanted to say,
+- [07:49.240] oh, well, can we put something about lowering costs
+- [07:51.480] because we're lowering costs very substantially.
+- [07:54.480] So, I had Bobby and I had Oz, we had everybody in there,
+- [07:58.340] we had a whole group of people,
+- [08:00.080] and we were trying to come up with.
+- [08:01.880] So, we're saying the cost reduction plan
+- [08:04.780] that gives you good health care.
+- [08:07.920] And I said it's too long; it's not going to sell.
+- [08:11.190] I said we had more plans, and they wanted to get the words
+- [08:14.780] cost reduction in there, Lawler, especially you.
+- [08:18.700] They wanted cost reduction in.
+- [08:20.530] And then they wanted great health care,
+- [08:23.160] and I said, look, you can have one or the other,
+- [08:25.480] but it gets too long.
+- [08:26.710] We're talking about the name of a plan,
+- [08:29.140] so we got it down to seven or eight words,
+- [08:31.470] which is far too long. Nobody can remember that much.
+- [08:34.910] And I said how about just call it,
+- [08:37.310] because this is the great health care plan.
+- [08:41.390] Now a great plan has to be cost effective,
+- [08:44.810] otherwise it can't be a great plan.
+- [08:46.220] That's the way I looked at it.
+- [08:47.920] So, we have a very glamorous name.
+- [08:49.280] It's called the Great Health Care Plan,
+- [08:50.840] not the Unaffordable Care Act. I don't like that name.
+- [08:53.920] This is called officially the Great Health Care Plan.
+- [08:57.020] That means low price and great health care.
+- [08:59.230] So, you're going to have at a lower price, great health care.
+- [09:02.720] First, our proposal codifies
+- [09:04.710] the massive discounts on prescription drugs
+- [09:07.570] that my administration is achieving through
+- [09:09.630] our most favored nation provisions.
+- [09:13.880] OK, we can go into this,
+- [09:20.520] We can go into this for hours, but the bottom line is we'll be
+- [09:25.370] paying the lowest price of any nation in the world.
+- [09:28.980] Whoever is paying the lowest we match it.
+- [09:32.350] This could have been done years ago.
+- [09:33.860] I was going to do it in my first administration.
+- [09:36.670] So -- but when COVID came toward the end,
+- [09:39.530] I said I can't believe it wasn't the right --
+- [09:42.830] it wasn't exactly a good time to be doing it.
+- [09:45.740] But I said why isn't somebody doing it?
+- [09:48.070] And the reason they're not doing it
+- [09:49.400] is that no other nation would agree.
+- [09:51.620] France, as an example, paid 10 percent of what we paid.
+- [09:56.150] Germany was paying 13 or 14 percent what we paid.
+- [09:59.360] In other words, we paid many times more,
+- [10:01.620] not a little bit more, not 10 percent more,
+- [10:03.990] 10 times more.
+- [10:05.460] A pill would cost 10 times more in New York
+- [10:08.500] than it would cost in London as an example,
+- [10:11.200] than it would cost in Munich.
+- [10:13.310] And this went on for many decades.
+- [10:15.530] This was right from the beginning.
+- [10:17.840] And the reason it went on
+- [10:19.820] was a little bit of the health care companies,
+- [10:21.820] but it was other nations. And I understand that.
+- [10:23.740] If I were heading Germany, I'm not going to double
+- [10:25.720] and triple and quadruple my health care.
+- [10:28.360] They got the health care companies to pay,
+- [10:31.950] just took place over a long period of time,
+- [10:33.770] got worse and worse.
+- [10:35.330] And it just hit numbers that were just absolutely unsalable.
+- [10:39.130] And if you remember, the doctors in the audience remember this,
+- [10:42.110] they'd say, well, we have to do research and development.
+- [10:44.880] I said well, what about research and development for Germany?
+- [10:47.060] Well, we've decided to put up the --
+- [10:49.090] so the pill would cost five times more
+- [10:51.210] because of research and development
+- [10:53.400] and five times more for other reasons.
+- [10:54.980] They had all these phony reasons.
+- [10:57.370] And finally, I said to the health care companies,
+- [10:59.520] you can't do it anymore.
+- [11:02.190] We can't do it and it started really -- I tell the story.
+- [11:05.720] It wasn't meant to be funny. People find it funny.
+- [11:08.980] But a friend of mine who's a very smart guy, very,
+- [11:11.710] very rich, very powerful man actually.
+- [11:15.970] But he's very fat and he took the fat --
+- [11:19.100] I call it the fat drug. I won't give you which one.
+- [11:22.710] It was Ozempic. I won't tell you that.
+- [11:26.930] And he went to London on one of his many business trips.
+- [11:30.240] That's all he does is business.
+- [11:31.630] He can't walk across the street, but he's a great businessman.
+- [11:35.310] And he said president, president, I said what.
+- [11:38.890] He used to call me, Donnie, now he calls me president.
+- [11:42.250] So, I said you've come a long way,
+- [11:43.630] he says but I have a problem. What's your problem?
+- [11:47.280] In New York I pay $1,300 for this drug.
+- [11:51.350] Now this means nothing to him,
+- [11:53.080] this is like a penny out of your wallet,
+- [11:55.390] the guy's worth hundreds of millions, billions of dollars.
+- [11:59.650] He said and in London, sir, I pay just a fraction of that.
+- [12:04.850] I said, what are you paying? $87.
+- [12:08.450] I said, well, is it the same drug?
+- [12:10.940] I knew exactly what he was getting at because I've --
+- [12:13.680] you know, bothered me for a long time.
+- [12:15.500] He said it's the exact same drug and because of his wealth
+- [12:19.130] and his business smarts, he had to check.
+- [12:21.410] It was made in the same plant by the same company,
+- [12:24.920] it's identical.
+- [12:26.430] And here I pay $87 and in New York I pay $1,300.
+- [12:31.570] So, it was too much to bear because after I told him
+- [12:37.710] that the drug does not work on him
+- [12:39.990] because I saw him recently, he's actually fatter than ever.
+- [12:43.590] I said the drug is not working on you,
+- [12:46.270] you're going to have to go to something else,
+- [12:48.360] but it does work on a lot of people.
+- [12:50.550] And he said thanks, you make me feel good.
+- [12:53.210] I said, well, I've got to be truthful.
+- [12:55.500] Always tell the truth, right, Mr. Congressman?
+- [12:57.430] Oh, look, one of the great congressmen --
+- [13:01.030] two of the great congressmen.
+- [13:03.500] But the drug, we have to do something about it
+- [13:06.790] because that's the same with every --
+- [13:08.330] I would say, Bobby, every drug essentially,
+- [13:10.480] doesn't have to be in that proportion.
+- [13:11.790] In some cases, it's much worse because what happened --
+- [13:14.910] I might as well get off this crap
+- [13:16.410] because it doesn't explain it properly.
+- [13:18.530] Because what happened is these countries are very smart
+- [13:23.190] and the drug companies would go to them
+- [13:26.310] and they said, look, we're paying $10
+- [13:28.190] for the pill, we're not paying more, charge America.
+- [13:31.270] And this happened one time, then the next year,
+- [13:34.980] the next year, this is over 40 years.
+- [13:37.610] All of a sudden, they're paying $10 for a pill
+- [13:41.340] and we're paying like $130 for the same pill.
+- [13:46.390] It just happened over years, slowly,
+- [13:48.890] and it got to a point over the last 10,
+- [13:50.900] 12, 15 years where it just was unbearable.
+- [13:54.850] And I went to a great executive at Eli Lilly, the top man,
+- [14:00.320] he's a very smart guy, and I confronted him.
+- [14:03.470] And he had the same line that they always had,
+- [14:05.720] blah, blah, blah, research and development.
+- [14:08.390] I said, look, look, we've got to stop this nonsense.
+- [14:12.130] We're paying 10 times more for things than Europe.
+- [14:16.450] It's not research and development.
+- [14:17.780] And if it is research and development,
+- [14:19.240] they should pay their fair share of that too.
+- [14:22.190] And he said to me, and he's a great guy,
+- [14:24.140] he said, look, you're right, we can't defend it anymore.
+- [14:28.530] I said you're admitting it?
+- [14:29.880] Because these guys had a stand, all of them,
+- [14:33.040] they must have taken a class together, must have been --
+- [14:35.740] it's probably illegal what they did,
+- [14:37.280] Lawler, you'll check it, right?
+- [14:38.810] They must have gone to school together
+- [14:40.450] and said this is the way we're going to fight this crazy thing
+- [14:43.390] where the United States pays 10, 12, 13 times more for a drug,
+- [14:46.930] same drug, same drug made in the same plant.
+- [14:50.420] And he said here's the problem we have --
+- [14:53.580] the nations are brutal.
+- [14:55.520] When we go in and say we have to give you an increase,
+- [14:58.720] they say no, put it on America, we're not paying you anything.
+- [15:02.190] And they say it with such power,
+- [15:04.130] and they actually shut us off from selling the drug.
+- [15:07.400] And it just happened over and over again,
+- [15:10.020] got a little worse, a little worse, a little worse.
+- [15:11.900] All of a sudden, we're paying many times more for the same.
+- [15:14.290] I said it's not going to happen anymore.
+- [15:15.870] He said the problem is, sir, you'll never get
+- [15:17.590] the nations to agree. It's impossible.
+- [15:21.630] They're very tough, and they are,
+- [15:23.590] and they'd have to agree to a doubling
+- [15:25.440] or tripling of their drug prices in order to get you down
+- [15:29.050] because the world is a bigger place than us.
+- [15:31.550] So, it's not like you cut it in half.
+- [15:34.140] Actually, if they raised it a little bit,
+- [15:36.020] we'd go down a lot.
+- [15:37.930] You understand that; I think people understand that.
+- [15:40.020] So, you raise it like from $10 to $20 or $10 to $30,
+- [15:44.170] but we'd go from $130 down to $30 or down to $20.
+- [15:48.730] So -- because the numbers are much bigger,
+- [15:51.350] the numbers on their side are much bigger.
+- [15:52.910] So, they'd need a doubling or tripling or quadrupling.
+- [15:57.350] Now if you're the head of France,
+- [15:59.720] the last thing you want to do is say
+- [16:00.980] I'm going to quadruple the cost of a drug
+- [16:05.340] and that's the way it is. But I said, I know,
+- [16:08.280] but it's not fair and this has taken place.
+- [16:11.480] And the head of Eli Lilly, and I really mean it,
+- [16:14.540] an unbelievable executive, an unbelievable guy,
+- [16:17.330] one of the most successful companies.
+- [16:19.190] And who's, by the way,
+- [16:20.570] spending hundreds of billions of dollars right now.
+- [16:23.980] He's building -- he told me the other day;
+- [16:25.380] he's building six major plants in the United States.
+- [16:28.760] You know why he's doing that?
+- [16:30.140] Because of tariffs, he's doing that because of tariffs.
+- [16:33.440] Without tariffs he wouldn't be doing it.
+- [16:35.770] Nobody understood tariffs until I came along.
+- [16:38.850] Nobody understood -- other than President McKinley,
+- [16:42.190] he understood them a long time ago.
+- [16:44.130] And because of him we were the richest nation
+- [16:47.240] that we ever were at that period of time.
+- [16:50.010] And then when he died, he was assassinated,
+- [16:54.100] Teddy Roosevelt came over and he inherited a war chest
+- [16:57.480] and he built the Panama Canal,
+- [16:58.760] which is the single most expensive thing ever built
+- [17:03.620] in the history of the United States, relatively.
+- [17:06.420] We spent what would be the equivalent of $5 trillion
+- [17:10.020] building the Panama Canal.
+- [17:12.140] It was also the most successful thing probably
+- [17:14.260] we've ever built and to this day.
+- [17:16.580] And then Jimmy Carter gave it away for $1.
+- [17:19.360] This is the same theory we have on favored nations.
+- [17:22.330] The great Jimmy Carter, President Jimmy Carter
+- [17:24.270] gave it away for $1.
+- [17:26.280] We lost 38,000 men; in those days it was men,
+- [17:30.680] I hate to say this, but mostly men.
+- [17:33.110] They didn't have a lot of women workers on the Panama Canal,
+- [17:36.760] but we lost 38,000 people.
+- [17:40.020] They died from malaria and snakebites.
+- [17:43.100] It was a combination of -- they had a vicious snake,
+- [17:45.460] one of the most vicious. You get hit, you're dead.
+- [17:48.690] They died from snake bites, 38,000.
+- [17:51.690] They paid workers from the United States
+- [17:53.730] three times more than they made to come over to Panama and dig.
+- [17:58.050] For many of them, that was not a good deal.
+- [18:00.680] They died, 38,000. We gave it away for that.
+- [18:03.560] But that same stupidity having to do with the Panama Canal --
+- [18:07.430] and I could tell you about 100 other stories too,
+- [18:10.550] you don't have time.
+- [18:11.840] But that's what went into this whole thing
+- [18:14.860] with favored nations.
+- [18:16.440] So, Europe and other nations all over the world
+- [18:19.920] were getting drugs from the same plant,
+- [18:22.520] same factory, same everything, same location, everything,
+- [18:25.380] same company for a tiny fraction of what we're paying.
+- [18:29.400] So, our people were paying a tremendous amount.
+- [18:32.540] So, the gentleman from Eli Lilly and others,
+- [18:35.570] we had a meeting and they all finally put up their hands.
+- [18:38.760] You got us, we give up and they were great from that time.
+- [18:45.100] But we had a problem.
+- [18:46.860] The other nations weren't going for it.
+- [18:49.490] France turned it down, Germany turned it down,
+- [18:52.420] UK turned it down.
+- [18:54.310] European Union turned it down, the whole group,
+- [18:58.660] and they said there's nothing you can do about it, sir.
+- [19:01.370] And I said yes, there is.
+- [19:03.050] No, there isn't, you'll never be able to get them up, never.
+- [19:05.800] I mean, the whole industry is going to be torn apart.
+- [19:08.830] I said we'll get them up easily.
+- [19:10.700] Are you crazy? Of course, we'll get them up.
+- [19:12.210] That's what I do for a living, I get people up.
+- [19:14.900] So, I called -- I started with President Macron of France,
+- [19:19.600] a very nice person, I like him a lot.
+- [19:21.780] I hope he's listening because he doesn't believe that,
+- [19:23.510] but I do.
+- [19:24.760] He's a nice man and I said, Emmanuel, yes, Donald.
+- [19:30.620] Donald, thank you so much for calling.
+- [19:32.980] I said you're not going to like this call.
+- [19:35.270] You're going to have to get your drug prices up.
+- [19:37.200] No, no, no, no, no, I will not do that.
+- [19:40.040] I said, Emmanuel, we're paying 13 times more than --
+- [19:43.650] 13 times, not 13 percent,
+- [19:46.380] 13 times more than you are for this pill.
+- [19:49.400] I rattled off some numbers that are crazy.
+- [19:52.030] You know the numbers I'm talking about, Oz.
+- [19:54.120] Oz would give me some numbers. I'd say this is crazy.
+- [19:56.450] We're paying 10 times, 12 times, 13 times.
+- [19:59.480] No, no, no, no, I will not do that.
+- [20:01.240] I said, look, you've got to do it.
+- [20:03.120] 100 percent you're going to do it.
+- [20:05.080] No, no, Donald, I told you I will not do that.
+- [20:08.200] I said, here's the story, Emmanuel, if you don't do it,
+- [20:10.300] I'm going to put a 25 percent tariff
+- [20:12.130] on all goods, wine, champagnes
+- [20:14.020] and everything else coming into the United States of America.
+- [20:16.780] He said, Donald, I would love to do this for you.
+- [20:21.180] It would be a great honor to do it.
+- [20:23.790] And that's where it began.
+- [20:25.600] And I went through country after country.
+- [20:27.930] Susie was responsible for getting every one
+- [20:30.040] of those leaders on the -- Susie?
+- [20:33.680] By the way, stand up, Susie. She is doing such a good job.
+- [20:42.650] She's the first female chief of staff.
+- [20:47.080] And she might be the best chief of staff too,
+- [20:48.790] but she's doing a great job.
+- [20:50.020] Thank you, Susie. So, Susie --
+- [20:54.110] Susie got them on and I just went one after another.
+- [20:57.490] I called Germany. No, no, no, we will not do that.
+- [21:01.330] I said no, we're going to put a 25 percent tariff,
+- [21:03.890] which is by the way about seven times
+- [21:07.410] more than they would have to pay
+- [21:10.160] by raising their drug, like seven times.
+- [21:12.250] This wasn't like a little bit more seven times more.
+- [21:16.130] And I may do that for Greenland too.
+- [21:18.210] I may put a tariff on countries
+- [21:19.650] if they don't go along with Greenland
+- [21:20.890] because we need Greenland for national security.
+- [21:22.660] So, I may do that. I'll give you a little --
+- [21:24.290] I'll talk about -- I'll take you out of that.
+- [21:26.220] In fact, that will end up being the story.
+- [21:27.540] But actually, this is a much bigger story
+- [21:29.320] because we're reducing health care by numbers
+- [21:31.650] that you haven't seen.
+- [21:33.080] So, I spoke to the top 10 countries.
+- [21:35.960] They all said no and within about two minutes
+- [21:37.940] they all agreed and we were off to the races.
+- [21:41.070] And now we have favored nations,
+- [21:44.730] it's called most favored nations.
+- [21:47.520] So, if France is paying,
+- [21:50.260] let's say $20 or $30 instead of $10,
+- [21:54.000] we are going to pay that $20 or $30.
+- [21:55.810] We pay the lowest price, whatever the lowest price is.
+- [22:00.420] So, if France is paying $100,
+- [22:03.200] but Germany is paying $20, we pay what Germany pays.
+- [22:06.650] So, we go from a horrible situation on drugs,
+- [22:10.920] prescription drugs to the lowest price anywhere in the world.
+- [22:15.010] Is that a correct statement, Oz,
+- [22:16.590] because they're going to blame you if you --
+- [22:18.290] if you want to correct me, you can,
+- [22:19.660] but you know you won't be here for long if you do.
+- [22:21.410] Mehmet Oz: You're correct, Mr. President.
+- [22:23.600] The President: So, Oz has left employment --
+- [22:27.360] no, but is that a correct statement?
+- [22:29.120] Mehmet Oz: That's absolutely a correct statement,
+- [22:30.640] and that's what we want to codify
+- [22:32.490] in the Great Health Care Plan. That's why it's important.
+- [22:35.940] If the president's not here, there's a flight risk
+- [22:39.400] with these companies not obliging us anymore
+- [22:42.570] because I think it's the strength of your personality
+- [22:44.600] but also, they know you'll follow through with the threats
+- [22:46.750] if we don't act.
+- [22:47.950] So, we believe other countries will change their opinions
+- [22:49.810] and so drug companies,
+- [22:51.310] so we've got to get it into legislation.
+- [22:53.480] The President: Well, if you have the wrong president,
+- [22:55.100] the countries have tremendous influence over us.
+- [22:57.490] You know, they look, why did we go to an income tax system
+- [23:01.970] instead of a tariff system? We had the wealthiest nation.
+- [23:05.260] If you go back to the 1800s, 1887, we had money,
+- [23:12.270] so much money we didn't know what to do with it.
+- [23:14.500] But the countries at that time -- same, no different.
+- [23:17.550] They have a tremendous influence over this country,
+- [23:19.590] for whatever reason, I don't know, but they do.
+- [23:22.580] So, if you have the wrong president,
+- [23:23.830] they'll change the system in two minutes.
+- [23:25.260] I mean they'll change it.
+- [23:26.460] And the drug companies are very powerful too.
+- [23:28.310] You have to deal with them. In this case it was both.
+- [23:30.780] I mean, you had a problem with the drug companies,
+- [23:32.640] but you had a tougher problem in theory,
+- [23:35.150] other than the fact that I understood how to deal with them
+- [23:37.420] and I'm the tariff king.
+- [23:39.520] And the tariff king has done a great job.
+- [23:41.250] And I hope we win The Supreme Court case,
+- [23:42.910] because if we don't,
+- [23:44.450] it'd be a shame for our country, be a shame.
+- [23:49.050] We have a great, safe, beautiful country now,
+- [23:51.390] we're doing better than we've ever done.
+- [23:53.190] We had 42 stock market highs during the 11-month period
+- [23:56.440] that I've been here.
+- [23:57.800] It's never -- there's never been anything like it.
+- [23:59.480] The stock market's hitting a new high again today.
+- [24:01.950] So, it's been incredible.
+- [24:03.610] So, just to end it on this, because it's such a big subject
+- [24:06.520] and it can't be explained by reading --
+- [24:08.880] as good as my speechwriter is, he's fantastic,
+- [24:10.870] but he can't write it
+- [24:12.090] in one sentence what we're talking about.
+- [24:14.190] So, we're going to get most favored nations.
+- [24:16.520] We will be taking prescription drugs
+- [24:19.490] down to levels never even contemplated.
+- [24:22.470] And that's all great for health care
+- [24:24.930] because when you're paying a tiny fraction
+- [24:28.780] of what you had anticipated paying prior to today,
+- [24:32.720] prior to this month,
+- [24:33.970] this all took place over the last month and a half.
+- [24:36.890] And the sad part is that when we first announced it
+- [24:39.630] and we did it
+- [24:40.870] in a little bit less, more general form.
+- [24:43.050] When we first announced it, the Times did a story on page 22
+- [24:47.870] or something way back in the --
+- [24:49.240] a little story in the back of the newspaper.
+- [24:51.760] This is the biggest revolution in the history of medicine
+- [24:55.680] in this country because it's price.
+- [24:57.980] You're going to buy the drugs for a small fraction
+- [25:01.570] of what you were paying for them last month.
+- [25:04.730] And I tell the story of my first term,
+- [25:07.590] I was the one, after 28 years, that got drug prices down,
+- [25:11.350] it was either one-quarter or one-eighth of one percent,
+- [25:14.450] I got them down for the year, first time in 28 years.
+- [25:16.900] I was so proud of myself, I called a news conference.
+- [25:19.150] I said, ladies and gentlemen, for the first time in 28 years,
+- [25:25.230] drug prices have gone down for the year one-eighth of a point.
+- [25:31.130] In fact, I had a chart, it was the worst chart I've ever seen.
+- [25:33.560] It was a line that went from January to December,
+- [25:37.030] and it was dead straight. You had to get a little,
+- [25:40.630] you know, like a carpenter uses to,
+- [25:43.520] to see, I said this doesn't look good.
+- [25:45.840] It's not the greatest line,
+- [25:47.500] but I was proud of it because it did --
+- [25:49.160] it went down either a quarter of a point
+- [25:50.660] or an eighth of a point, tiny.
+- [25:53.460] And now think of what we're doing,
+- [25:55.540] we're bringing medicine down by many times.
+- [26:00.810] By many times, nobody's ever seen,
+- [26:03.410] and there are two ways of calculating.
+- [26:04.980] You could say 1,000 percent,
+- [26:06.500] 2,000 or you could say 90 percent or 80 percent.
+- [26:10.150] The Democrats want you to say 90 or 80.
+- [26:12.200] But there are two ways of calculating it.
+- [26:14.300] You understand that, Dan.
+- [26:15.960] And we'll take either way, it doesn't matter,
+- [26:19.120] but we'll be paying a tiny fraction.
+- [26:20.680] So, that's going to go into our plan.
+- [26:25.080] And what Oz said is very important, it's very important
+- [26:28.150] that whoever is in this office is strong and intelligent.
+- [26:33.930] And if they're not, they could -- you know, it could be ended.
+- [26:36.620] But what we want to do is we want to have it codified,
+- [26:39.000] so it's very hard to change.
+- [26:41.770] And that's all part of the process.
+- [26:43.250] I think it's the greatest revolution
+- [26:45.950] because its financial is,
+- [26:47.280] you know, a big part of the drugs.
+- [26:48.610] And all of the doctors sitting there
+- [26:50.440] know exactly what I'm talking about.
+- [26:52.040] They have their patients in Europe
+- [26:53.500] and they're saying, I can't believe it,
+- [26:54.820] I'm buying the same thing for, you know,
+- [26:57.410] 15 percent of what I pay in New York or in Chicago.
+- [27:01.800] And they're all nodding their heads, that's right.
+- [27:04.140] That's not going to happen anymore.
+- [27:06.530] We pay now just to end it.
+- [27:08.340] The lowest price in the world, whatever that is,
+- [27:12.950] that's what the United States of America will be paying.
+- [27:16.040] Isn't that an amazing long story?
+- [27:18.940] I was going to say long, boring -- it's not boring.
+- [27:20.560] To me it's long and exciting.
+- [27:22.860] It's the biggest thing to happen to health care.
+- [27:25.040] I don't think there's anything we can do.
+- [27:27.040] We can do all of our different methods,
+- [27:28.980] but there's nothing we can do that can ever top what we do.
+- [27:33.360] And the press should treat it fairly
+- [27:34.990] instead of not writing about it
+- [27:36.410] because they don't write about it because it's me.
+- [27:38.850] Primarily because it's me but also because it's Republican.
+- [27:42.190] And they don't write about it and they should be ashamed.
+- [27:44.990] But fortunately, the public understands it
+- [27:47.850] and that's why we won the election in a landslide.
+- [27:50.700] So, it's a great thing.
+- [27:52.630] Instead of Americans paying the highest drug prices
+- [27:57.030] anywhere in the world by far, by 10 times sometimes,
+- [28:01.580] we'll now pay the lowest cost paid by the lowest nation.
+- [28:05.220] So, the lowest nation, whatever that is,
+- [28:07.350] I hope they negotiate a great deal.
+- [28:09.580] I hope they -- somebody out there of all those nations
+- [28:12.260] are going to be a better negotiator than everybody else.
+- [28:14.940] And whatever they get we get, Mike.
+- [28:16.730] Is that pretty good? Look at Mike,
+- [28:18.580] even the first time I've ever seen him smile.
+- [28:23.260] And next our plan would reduce your insurance
+- [28:25.450] premiums by stopping government payoffs
+- [28:27.530] to big insurance companies
+- [28:28.890] and sending the money directly to the people.
+- [28:31.740] So, instead of -- and this started,
+- [28:34.570] and I'm not really a health care maven,
+- [28:36.560] but I was always a good businessman.
+- [28:38.130] It started -- I'm reading the paper
+- [28:39.430] and I see the money that the insurance companies
+- [28:41.780] were making from us on Obamacare,
+- [28:45.220] and they're up by 1,000 percent, 16 percent.
+- [28:48.530] I think one was up 1,723 percent -- 1,700 percent.
+- [28:53.970] And it's because of the massive amount of money
+- [28:56.310] that's sent to them by the United States government.
+- [28:59.190] And I said why don't we just send it directly
+- [29:01.190] to the people instead? And I made that statement.
+- [29:03.900] It was a commonsense statement. I didn't check with anybody.
+- [29:06.560] I didn't even call Oz or anybody. It just made sense.
+- [29:08.870] I made a statement and it went viral.
+- [29:11.250] Can you believe it? It was so popular.
+- [29:13.930] In other words, we cut out the insurance companies.
+- [29:17.220] They're making a fortune.
+- [29:18.660] And, you know, they're good people.
+- [29:20.080] They're business people.
+- [29:21.290] I don't blame them, but we cut them out.
+- [29:23.210] We pay the money directly to the people.
+- [29:27.630] The people love it. I said it -- you know,
+- [29:30.780] I said it as a nonprofessional in that business.
+- [29:33.490] And I made the statement like it was -- all of a sudden,
+- [29:35.770] it's like the biggest story, that one, the biggest story.
+- [29:39.650] And I get a call from Karoline, who's around here someplace.
+- [29:43.240] She said, sir, we're getting inundated. Margo called me too.
+- [29:47.310] Margo, you called me too. Margo. Everyone knows Margo.
+- [29:50.400] She's been here from the beginning,
+- [29:52.130] right from the beginning.
+- [29:53.440] But she said, sir -- both of them.
+- [29:55.680] They said, sir, we're being inundated.
+- [29:57.300] By what? You made a statement about health care
+- [29:59.740] being paid directly to the people,
+- [30:02.260] into health savings accounts or whatever you want,
+- [30:04.820] health care accounts.
+- [30:06.820] And I said, I did, what's the story?
+- [30:08.540] Said, it's -- it's crazy, it's blown up.
+- [30:14.140] People loved it. And so that's where we started.
+- [30:17.630] So Obamacare was designed to make insurance companies rich.
+- [30:22.460] It really was. I mean, maybe not knowingly at the time by Obama,
+- [30:26.040] because he didn't know much about this stuff.
+- [30:28.270] That was designed by other people in Congress
+- [30:29.790] that are total pros,
+- [30:30.990] that are bought off by the insurance companies.
+- [30:33.440] And the problem we'll have with this
+- [30:34.770] is we'll get no Democrat votes,
+- [30:36.320] even though it should be very bad --
+- [30:39.210] very bad for them if they don't. But maybe you'll get some.
+- [30:41.910] You'll call some of your friends, fellas.
+- [30:43.530] And Bob, you'll call some of your --
+- [30:46.060] your friends over on the other side.
+- [30:47.460] I don't know how they can reject it.
+- [30:48.770] It's just so popular. It's so compelling.
+- [30:51.500] So Obamacare was designed to make insurance companies rich
+- [30:54.510] with taxpayer subsidies. And I want that extra money
+- [30:57.560] straight to the health savings accounts for you.
+- [31:00.870] And you can choose your own health care.
+- [31:02.490] You go out and negotiate your own health care.
+- [31:04.280] It makes people entrepreneurs, many entrepreneurs.
+- [31:07.250] They'll pick the health care that's best for them,
+- [31:09.070] because it's so different.
+- [31:10.870] A young person, they need health care for different reasons,
+- [31:14.160] and an old person doesn't need certain things
+- [31:16.170] that a young person needs, and vice versa.
+- [31:20.280] To further reduce insurance premiums,
+- [31:22.120] my plan ends the giant kickbacks to insurance brokers
+- [31:25.710] and corporate middlemen.
+- [31:26.980] We're getting rid of the middlemen.
+- [31:28.340] How long have you heard, doctors,
+- [31:29.870] all these doctors over there. They look so smart.
+- [31:32.360] They're all brilliant people. I assume you're brilliant,
+- [31:34.560] otherwise, you wouldn't be here, right?
+- [31:35.850] I assume we have the best.
+- [31:37.110] Do we have the best of the doctors?
+- [31:38.610] I would imagine, right?
+- [31:40.100] Hey, how cool is the White House?
+- [31:42.450] OK? They're always in operating rooms.
+- [31:45.570] I wouldn't want to be in an --
+- [31:46.850] I don't like operating rooms, but they do.
+- [31:49.030] But how cool is the White House, right,
+- [31:50.840] the coolest place on earth. And this is where it all begins.
+- [31:54.820] This is where we came up with a little concept
+- [31:58.420] about a place called Venezuela. How did that work out?
+- [32:02.650] And this is going to be the same thing in terms of its precision,
+- [32:06.380] its importance is so big.
+- [32:08.180] It's going to work just like that.
+- [32:09.700] The winners -- Venezuela was so amazing.
+- [32:14.530] But I equate that to other things
+- [32:16.130] because we can do other things like that.
+- [32:18.080] It doesn't always have to be a Minnesota
+- [32:21.330] where everything is corrupt,
+- [32:23.350] where they have health care centers that nobody shows up
+- [32:25.490] and somebody is making millions of dollars,
+- [32:27.280] where they have daycare centers where there are no kids.
+- [32:30.180] It's a scam. It's a big scam. It's like a horrible thing.
+- [32:34.450] We have a country that was great.
+- [32:36.110] We have a country that's now great again.
+- [32:38.060] It's really -- it's really come a long way.
+- [32:40.080] Make America Great Again is almost going to be obsolete
+- [32:43.010] because our country is very close to --
+- [32:46.130] you know, we originally, we were going to keep America great.
+- [32:49.250] We may have to switch to keep America great,
+- [32:51.150] but I don't know, there's something about MAGA.
+- [32:52.790] We should never change it. Susie said, don't change.
+- [32:55.750] We like -- we like MAGA. Everybody likes MAGA.
+- [32:58.700] So we want to make this precision,
+- [33:01.110] just like a Venezuela,
+- [33:02.480] just like the attack on the Iran nuclear weapons,
+- [33:06.010] which wiped that out.
+- [33:07.290] Just like all of the other things we do, they're precision.
+- [33:10.280] We want to make it the opposite of Minnesota, California
+- [33:13.060] and all these places that are so badly run.
+- [33:15.770] So to further reduce insurance premiums,
+- [33:17.900] my plan ends the giant kickbacks to those insurance brokers
+- [33:21.480] and corporate middlemen
+- [33:22.760] that you've been hearing about for so long.
+- [33:25.290] It also funds the so-called cost-sharing reduction program
+- [33:29.190] to bring down the cost of the most common plans
+- [33:32.200] on the exchanges by more than 15 percent.
+- [33:36.080] And next, the great health care plan
+- [33:37.760] mandates unprecedented accountability
+- [33:40.820] and transparency from insurance companies
+- [33:43.760] and all health care providers.
+- [33:45.930] We want transparency.
+- [33:47.140] You're not allowed to ask a doctor
+- [33:48.550] how much is it going to cost.
+- [33:49.770] You're going to have your heart ripped out
+- [33:52.050] and you're not allowed to negotiate.
+- [33:54.430] This is a giant scam. It's, in certain ways --
+- [33:59.060] look, nothing can compare to Most Favored Nations.
+- [34:02.160] But when you give yourself the right to negotiate,
+- [34:04.100] you're not allowed to even ask how much it costs.
+- [34:05.830] You're supposed to go into a hospital
+- [34:07.170] and get operated on, then they send you a bill
+- [34:09.550] and you have to file for bankruptcy.
+- [34:11.010] I'm not going to let that happen.
+- [34:13.360] So we're going to have insurance companies
+- [34:15.650] and health care providers, going to have to have great --
+- [34:18.600] and hospitals, great transparency.
+- [34:20.670] The word transparency is a very important word.
+- [34:24.400] So they can't get away with ripping you off any longer.
+- [34:26.780] It requires insurance companies to make it easy
+- [34:29.080] for you to compare plans.
+- [34:31.360] You've got to be able to compare plans.
+- [34:32.930] You can't do that now. You're not allowed to do that.
+- [34:35.930] It's not even believable.
+- [34:37.160] I'll tell you what, I used to sit,
+- [34:39.270] before I was a politician, at home.
+- [34:40.790] And I used to say, how is that possible?
+- [34:43.260] Things -- things happen that I guess
+- [34:45.690] it's just the forces of nature, the forces of power
+- [34:49.910] and you end up with very, very badly treated people
+- [34:54.150] and I won't stand for it.
+- [34:56.040] But these forces are going to release
+- [35:00.690] an earthquake of reduced price health care.
+- [35:04.400] You're going to have massively reduced costs.
+- [35:06.200] This is no longer we're going to cut it
+- [35:07.670] by the famous one eighth of a point.
+- [35:10.220] You're going to have massively reduced health care
+- [35:13.440] and it's going to be massively better.
+- [35:15.410] You're going to have great health care
+- [35:16.890] at a much lower price, which is a -- the two things,
+- [35:19.480] we want great health care and we want low prices.
+- [35:21.520] You're going to have great health care at low price.
+- [35:23.840] Now you have terrible health care at a high price.
+- [35:28.650] You have horrible, horrible Obamacare health care.
+- [35:33.020] Like everything else he did, it was crap.
+- [35:36.040] It was a horrible plan. It was from day one.
+- [35:38.460] It should have never been approved.
+- [35:41.090] It was a very sad night
+- [35:42.690] that night when there was a thumb raised.
+- [35:45.240] Most importantly, we'll require any hospital or insurer
+- [35:48.980] who accepts Medicare or Medicaid to prominently post all prices.
+- [35:52.610] You're going to post your prices at their place of business,
+- [35:55.600] something they don't have to do,
+- [35:56.990] something they're not even allowed to do.
+- [35:59.950] We'll have the maximum price transparency
+- [36:02.250] and the cost will come down just by that,
+- [36:04.360] not even talking about Favored Nations.
+- [36:06.830] The price will come down. So just in conclusion,
+- [36:09.210] I'm calling on Congress to pass this framework into law
+- [36:13.140] so that we can get immediate relief to the American people,
+- [36:15.900] including rural America.
+- [36:17.190] And I hope to get Democrat votes.
+- [36:19.180] They know -- they saw it. I know a lot of Democrats
+- [36:22.610] and they say that plan is unbelievable.
+- [36:26.030] Are you going to vote? Well, I'm going to try.
+- [36:29.190] They have tremendous pressure on them, vote no, vote no.
+- [36:35.080] We have a couple of Republicans, Massie, Thomas Massie,
+- [36:38.170] always votes no. He's like -- something wrong with the guy.
+- [36:41.520] If you have any clinical psychiatrists in there,
+- [36:44.670] maybe go check out his mind, but he always votes no.
+- [36:47.400] He's a very bad person.
+- [36:48.790] He's a very bad Republican, bad American,
+- [36:50.870] when you always vote just vote no.
+- [36:53.030] Do you approve? No.
+- [36:55.260] You know, there's not a thing
+- [36:56.640] you can say to him either, Lawler.
+- [36:58.050] Look, Lawler wants to be nice.
+- [36:59.760] He likes to get along with everybody.
+- [37:01.230] I don't. I don't. But they vote, no, but so I don't know.
+- [37:05.300] You know, you have some people that are very --
+- [37:07.650] I call them Rand Paul Jr. Rand Paul always votes --
+- [37:09.960] I don't know why he votes no, but he just --
+- [37:11.950] I guess he thinks it's good politics.
+- [37:13.460] I got him elected twice.
+- [37:15.170] If I didn't endorse him, he wouldn't have been elected,
+- [37:17.040] but he doesn't reciprocate and I guess that's OK.
+- [37:20.860] But I want to hear now, if I could, from Dr. Oz,
+- [37:23.710] and then we're going to have Dan Sullivan
+- [37:25.280] say a few words and Rob and Mike.
+- [37:28.990] And governor, you're going to say a few words
+- [37:31.360] and we appreciate you being here very much.
+- [37:33.190] You're doing a fantastic job.
+- [37:35.710] I just want to leave by saying that this is the biggest thing
+- [37:40.220] to ever happen to health care in our country.
+- [37:42.780] It will not be covered that way by the fake news
+- [37:47.680] and that's a sad thing.
+- [37:49.620] It will probably not be voted positively by the Democrats
+- [37:52.950] and that's a sad thing. They all know how good it is.
+- [37:56.550] I think we can make health care into a Republican issue
+- [37:59.010] because the Republicans are going to be close
+- [38:01.100] to unanimous on this. It should be unanimous.
+- [38:03.270] Maybe we will be unanimous, but it'll be close.
+- [38:06.510] But we have a small majority.
+- [38:07.890] We probably need a little bit of help from the Democrats.
+- [38:10.430] So whatever we can do we're going to do it.
+- [38:13.950] It's the biggest thing to happen to health care,
+- [38:16.520] maybe from the beginning.
+- [38:18.090] So Oz, would you take it away, please? Thank you very much.
+- [38:21.200] Mehmet Oz: Mr. President -- Mr. President,
+- [38:29.140] thank you for standing up for American health care
+- [38:31.090] and I just want to underline
+- [38:32.320] this fundamentally important issue,
+- [38:33.880] we need Congress to help craft
+- [38:35.400] the Great America Health Care Plan.
+- [38:37.860] And the great health care plan will work.
+- [38:40.050] It's a brilliantly conceived framework.
+- [38:42.810] And as it comes to the American people
+- [38:44.500] and they understand it, they'll want it.
+- [38:46.110] And it should represent the analogous situation,
+- [38:49.160] similar to what you did so brilliantly last spring
+- [38:52.350] with the Working Families Tax Cut legislation
+- [38:54.270] that the president mentioned,
+- [38:55.850] has created the Rural Health Transformation Fund,
+- [38:58.580] which is why we're here today.
+- [39:00.120] I want to put a little bit of texture
+- [39:02.400] around why this is such an important issue,
+- [39:04.350] because the Rural Health Transformation Fund
+- [39:06.600] is the largest investment ever in American history
+- [39:11.240] in our rural communities.
+- [39:12.540] Unidentified: Yeah. How about that?
+- [39:20.960] Mehmet Oz: 50 percent increase
+- [39:22.640] in the amount of money that Medicaid,
+- [39:23.940] which Secretary Kennedy and I regulate,
+- [39:25.710] into our rural communities, $50 billion.
+- [39:29.050] You can do the math, it's $1 billion per state
+- [39:31.120] and that's an important factor because it got them competing.
+- [39:34.110] There are 60 million rural Americans,
+- [39:36.960] and these folks do not have access to the same care
+- [39:40.020] that's available in urban and suburban America.
+- [39:42.350] Their life expectancy,
+- [39:43.750] if they're in a vulnerable situation,
+- [39:45.220] is nine years shorter.
+- [39:47.830] Because your ZIP code actually is your destiny.
+- [39:50.550] It determines how long you're going to live.
+- [39:52.190] And we can make a dent in this,
+- [39:53.740] because the high rates of chronic disease and --
+- [39:56.730] and other ailments that plague our rural areas
+- [39:59.210] are often driven because we -- they don't have access to care.
+- [40:02.150] That's going to change because of this
+- [40:03.590] (Inaudible)
+- [40:04.900] legislation. And again, it's --
+- [40:07.390] similar teams, the same leadership, same president,
+- [40:11.220] same Congress that passed the Working Families Tax
+- [40:14.010] Cut legislation, which is incredibly popular
+- [40:15.850] around the country,
+- [40:17.070] and we'll make the Great Health Care Plan successful as well.
+- [40:20.520] From the day the legislation was signed to create this --
+- [40:23.980] this wonderful fund, this transformational fund,
+- [40:27.400] the team at CMS, which is under Secretary Kennedy,
+- [40:30.170] began working. And they're here today,
+- [40:31.490] Steph Carlton, outstanding chief of staff,
+- [40:33.760] Elena Chechi and Emily Chan, that day started working --
+- [40:36.870] it was July the 4th, by the way,
+- [40:38.590] on the specific vision for the program,
+- [40:40.530] how do you actually get the money
+- [40:41.790] out the door in six months.
+- [40:43.290] The president was insistent,
+- [40:44.560] he did not want the money in Washington.
+- [40:46.820] So we began working closely to make sure
+- [40:48.840] that we'd use the money not as a band aid,
+- [40:50.920] but to empower those closest to the challenges
+- [40:53.510] that rural patients face. And who are those people,
+- [40:56.380] the 50 people who know rural health care
+- [40:57.850] the best, the governors?
+- [40:59.720] They wanted the money out of Washington
+- [41:01.100] into the governor's hands
+- [41:02.410] and that was done in a remarkable way.
+- [41:04.720] The governors thought big. We have one here from Nebraska
+- [41:07.260] who was actually the first to start working on --
+- [41:09.450] on community engagement,
+- [41:11.410] which is part of that legislation as well.
+- [41:13.880] But we have to right-size health care in rural America,
+- [41:18.130] and that's an important phrase.
+- [41:20.130] All 50 states submitted amazing ideas
+- [41:22.240] to transform rural health care
+- [41:23.890] in ways that should have been done decades ago.
+- [41:26.620] The CMS team awarded each team
+- [41:28.170] their portion of the $50 billion investment
+- [41:31.100] precisely with the same precision
+- [41:32.900] that we took Venezuelan leadership,
+- [41:35.650] you know, convicted individual, and with Iran as well,
+- [41:38.470] the same precision on time before the end of the year
+- [41:41.010] and got it out of Washington into the States.
+- [41:43.010] Now I want to take a step back and do a little thought
+- [41:44.940] experiment, Mr. President, if you're willing to do this.
+- [41:48.200] If you -- and God forbid this happened,
+- [41:50.230] had turned your head the other way
+- [41:51.750] in Butler, Pennsylvania,
+- [41:54.140] it wouldn't have been an ear injury.
+- [41:57.110] Now, I've been to Butler. I'm from Pennsylvania.
+- [42:00.370] Butler General Hospital is a good hospital.
+- [42:02.170] They don't have neurosurgery there.
+- [42:04.330] If you have an injury to the head,
+- [42:06.040] you have a golden hour to get cared for.
+- [42:08.900] You were taken to Butler General Hospital.
+- [42:11.600] Because the injury, thankfully, was not as lethal
+- [42:14.440] as it was designed to be, it wasn't a problem.
+- [42:18.030] But if you had a head injury,
+- [42:19.390] you could have had your life saved.
+- [42:21.100] But without a neurosurgeon
+- [42:22.530] and there is no neurosurgeon in Butler General Hospital,
+- [42:25.270] unfortunately, you wouldn't have an option
+- [42:27.110] because Pittsburgh is a far, far ride away.
+- [42:29.900] That's the closest metropolitan area
+- [42:31.160] where there are lots of neurosurgeons.
+- [42:33.160] But with this bill, this legislation, rather,
+- [42:36.470] this funding of $50 billion, Pennsylvania got its share
+- [42:40.000] and they're going to be able to build telemedicine hookups,
+- [42:42.350] even telerobotic surgery
+- [42:44.020] that would allow an injured individual in a car accident
+- [42:47.020] or any other reason that has a head injury in Butler General
+- [42:49.670] and rural hospitals across the country,
+- [42:51.470] to be able to access the best care our nation has to offer,
+- [42:54.650] so rural America will not suffer.
+- [42:56.240] That's the promise of what this money offers to our nation.
+- [43:00.770] It's not just paying the bills,
+- [43:02.830] it's not just picking up the pieces.
+- [43:04.720] It's actually transforming,
+- [43:06.830] using technology we have widely available in urban America,
+- [43:09.920] the way we save lives in rural America.
+- [43:12.310] Each state competed aggressively,
+- [43:14.310] because for $1 billion, Mr. President,
+- [43:16.250] you'll fight pretty hard.
+- [43:17.660] And they gave us brilliant ideas
+- [43:19.640] that they're talking with each other about.
+- [43:21.600] So we're actually creating teams that now
+- [43:23.850] across state lines will connect, because they're all Americans
+- [43:27.260] and they base their advances on several pillars.
+- [43:30.080] Secretary Kennedy can talk about MAHA
+- [43:31.720] because there's MAHA elements to this as well,
+- [43:33.660] but very precisely, sustainable access.
+- [43:36.360] We asked states, how can we bring top care closer
+- [43:39.510] like in the thought experiment I gave you
+- [43:41.540] for Butler General in Pennsylvania?
+- [43:43.550] In North Carolina, their regional spoke models,
+- [43:46.180] which -- and hub and spoke
+- [43:47.430] means you've got a big hospital in the city
+- [43:49.530] and they adopt or work closely
+- [43:51.480] with some rural hospitals to solve --
+- [43:53.570] solve the challenges of fragmented care.
+- [43:56.190] And that actually works.
+- [43:57.530] You share administrative back office work.
+- [44:00.370] You group purchase your stuff. You save money.
+- [44:02.320] You exchange medical records.
+- [44:04.320] Alabama has no OB GYNs in many of their counties.
+- [44:09.440] So they're doing something pretty cool.
+- [44:11.430] They're actually having robots do ultrasounds
+- [44:14.150] on these pregnant moms.
+- [44:15.800] So we can actually get those images back to the big center,
+- [44:18.480] so we know if the child has a problem
+- [44:20.390] and we know if that mother is at risk.
+- [44:21.840] We have one of the highest maternal mortality rates
+- [44:24.870] in the world,
+- [44:26.340] in the country with the best medicine in the world.
+- [44:28.600] It's often stated, people ask,
+- [44:30.150] does health care stink in America,
+- [44:31.530] well, they don't like it.
+- [44:32.730] Would you leave America to get health care elsewhere?
+- [44:34.990] Nobody leaves.
+- [44:36.200] We have the best health care if you can get to it.
+- [44:37.870] We don't want rural America left behind anymore.
+- [44:40.480] As an aside, by the way,
+- [44:41.850] we've talked about the Most Favored Nation
+- [44:43.450] drug pricing, one of the first companies --
+- [44:46.920] areas we used Most Favored Nation
+- [44:49.070] drug pricing is fertility drugs.
+- [44:51.340] That's why we're going to have so many Trump babies,
+- [44:53.700] because we've dropped dramatically the most expensive
+- [44:56.150] part of the fertility space.
+- [44:57.880] And so America no longer will pay so many times more.
+- [44:59.790] In that case,
+- [45:01.010] it was 10 times more for the same fertility drugs
+- [45:03.760] that are available for moms who want to get pregnant in Europe.
+- [45:07.440] I want to thank Terri,
+- [45:08.660] who's here as a nurse practitioner,
+- [45:10.210] Andrew is a doctor, West Virginia, New Mexico.
+- [45:13.270] They're representatives of the workforce in rural America,
+- [45:15.990] but there are only two of them here representative
+- [45:18.470] because we don't have enough people working in rural America.
+- [45:21.080] It's a big challenge.
+- [45:22.320] So Delaware is creating its own medical school,
+- [45:25.320] their first ever medical school in a rural part of the state,
+- [45:28.390] so that can get more local talent
+- [45:30.050] that will stay local in those parts of Delaware.
+- [45:32.210] Michigan is launching the High School
+- [45:34.050] to Healthcare Pipeline Grant Program.
+- [45:36.350] They want to take kids out of high school in Michigan,
+- [45:38.370] local rural communities and get them into the system,
+- [45:41.220] get them trained as nurses, because they'll stay home
+- [45:43.840] because they're from those communities
+- [45:45.510] and they'll save lives for decades there.
+- [45:47.610] These are the types of programs
+- [45:49.020] that can get our rural communities
+- [45:50.390] and economies up to high gear
+- [45:53.530] and keep it that way long after this five year funding is done.
+- [45:57.340] And finally, tech innovation, rural communities
+- [45:59.720] would benefit the most from high tech advances,
+- [46:02.190] like we just discussed, possibly if there was a head trauma case.
+- [46:05.760] Many states want to partner
+- [46:06.990] with our CMS Data Interoperability Network.
+- [46:10.620] It was created by Amy Gleason, who spearheaded so much
+- [46:14.460] of the technology transformation in our government.
+- [46:17.350] It's going to support the president's pledge
+- [46:18.940] to provide transparency that he mentioned
+- [46:20.980] as part of the Great Health Care Plan and Congress
+- [46:23.730] can ensure these are all available for decades to come
+- [46:26.930] if we can get this legislation through.
+- [46:28.830] At the tech innovation forefront,
+- [46:30.390] just to give you a couple examples,
+- [46:31.660] Texas and Hawaii are making targeted investments
+- [46:34.520] in statewide telehealth, so everybody has telehealth,
+- [46:37.380] the best doctors for the best knowledge
+- [46:39.020] available where you are.
+- [46:40.480] We'll meet you where you are. If you're a vet and depressed
+- [46:42.710] and you're thinking of taking your life, we'll be there.
+- [46:45.100] Just let us know you're in trouble and we'll help.
+- [46:47.780] Alaska wants to deploy, and I'm going to hand it
+- [46:49.460] to Senator Sullivan in a second, wants to deploy unmanned
+- [46:52.280] pharmaceutical distribution kiosks
+- [46:54.660] and drones that will deliver medications.
+- [46:57.100] Because in the North Slope of Alaska,
+- [46:58.530] you can't get there this time of year.
+- [47:00.360] So these technologies, they exist.
+- [47:02.100] Why are we using them in Midtown Manhattan?
+- [47:03.730] We should use them in rural Alaska.
+- [47:06.040] This administration is committed to collaborating
+- [47:08.180] with all 50 states, all 50, red and blue,
+- [47:12.420] all 50 states to carry out bold plans
+- [47:14.960] to tackle the challenges that local communities face.
+- [47:18.010] We're not pouring funds blindly, however, into a broken system.
+- [47:21.370] We're going to carefully, precisely,
+- [47:23.080] as the president said, target this investment
+- [47:25.780] with health care front running rampant.
+- [47:27.830] And I was in Minnesota this week, Mr. President.
+- [47:29.900] It's worse than we've heard. But Minnesota, pardon the pun,
+- [47:33.050] is not -- is just the tip of the iceberg.
+- [47:34.970] California is the varsity team when it comes to fraud,
+- [47:37.360] waste and abuse.
+- [47:38.560] We're not going to let that happen.
+- [47:39.790] We want transparency for this $50 billion investment.
+- [47:42.940] We owe it to Capitol Hill. We owe it to this president
+- [47:46.020] and we want accountability to be a top priority.
+- [47:47.990] For that reason, we've offered --
+- [47:49.320] we've created an Office of Rural Health Transformation at CMS
+- [47:52.940] for long-term oversight. The office led by Elena Chechi.
+- [47:57.850] Elena, again, was one of the people
+- [47:59.440] who helped create this program in the forefront, will guide --
+- [48:01.930] she was in the first administration, Mr. President.
+- [48:04.000] She's going to guide states in implementing
+- [48:05.990] their rural health transformation plans,
+- [48:07.670] coordinate all the federal and state partnerships,
+- [48:10.520] making sure there's appropriate oversight.
+- [48:12.630] In addition, every single state
+- [48:14.030] is going to have a dedicated project officer.
+- [48:15.580] We will be there with you. We're going to help you.
+- [48:18.040] Please engage us. You've got lots of lives at risk.
+- [48:21.180] It's a true state federal partnership,
+- [48:23.070] unbelievable extraordinary milestone for health care.
+- [48:26.840] Your ZIP code will no longer dictate
+- [48:28.720] whether you have excellent health care.
+- [48:30.070] Your ZIP code will no longer be your destiny.
+- [48:32.240] It's not going to dictate your life expectancy.
+- [48:34.980] Mr. President, I cannot thank you enough for the leadership
+- [48:37.590] that it took to get this $50 billion investment
+- [48:40.360] in rural health care. They don't make a lot of noise.
+- [48:43.150] They just want to get the job done.
+- [48:44.440] You stood up for them in Congress.
+- [48:45.780] God bless you for making this possible.
+- [48:47.930] Please do it again.
+- [48:49.240] Please do it again for the great health care plan.
+- [48:51.370] Let me hand it to Dan Sullivan,
+- [48:53.040] who's a spectacular member of the Senate and obviously,
+- [48:55.520] Alaska, they're pretty rural.
+- [48:58.910] Dan Sullivan: Thank you. Thank you, Dr. Oz.
+- [49:00.990] And -- And Mr. President, I am very honored to be here.
+- [49:10.520] This is a really exciting day.
+- [49:12.530] I want to thank you, sir, and your team, worked really
+- [49:16.240] closely with Dr. Oz, Secretary Kennedy, many others.
+- [49:20.490] You know, this is a great example
+- [49:21.930] of how Congress working closely with your administration
+- [49:27.350] can achieve historic things.
+- [49:30.150] This is historic for our rural health care,
+- [49:34.360] certainly in the Working Families Tax Cuts Act.
+- [49:37.400] You combine it with what you were talking about, sir,
+- [49:41.010] in terms of drug price reductions for all Americans.
+- [49:47.120] So these are two things that are happening right now
+- [49:49.900] in our historic,
+- [49:51.130] and I agree 100 percent with you, Mr. President,
+- [49:53.680] hasn't got a lot of press even though it is historic.
+- [49:57.500] It's going to really impact people in rural America,
+- [50:00.320] especially my state, this fund that I want to talk about,
+- [50:04.500] but what you've done on the drug pricing is even --
+- [50:07.330] The President: Will you get Lisa Murkowski --
+- [50:08.680] Dan, will you get Lisa Murkowski to vote for it?
+- [50:10.060] Dan Sullivan: She voted for it?
+- [50:11.360] The President: No, are you going to get her to vote
+- [50:12.610] for the Great Big,
+- [50:14.040] Beautiful Health Care Bill that we're doing?
+- [50:15.660] Dan Sullivan: Oh, when we get that,
+- [50:16.890] I think MFN drug pricing, I bet every --
+- [50:19.450] every member of Congress votes for that.
+- [50:20.920] The President: No, are you going to get her to vote for it?
+- [50:22.410] Are you going to get her to vote for it?
+- [50:24.670] Dan Sullivan: We'll work on it, sir.
+- [50:25.930] Um -- we'll work on it.
+- [50:27.520] Uh, so let me actually talk a little bit
+- [50:30.660] about the context of what's going on in Alaska
+- [50:32.770] and how this -- and how this relates to it.
+- [50:36.150] You know, after four years of being locked up
+- [50:40.250] and shut down by the previous administration,
+- [50:43.420] we are on the cusp of achieving some huge goals in my state,
+- [50:48.440] that we've been working on for decades.
+- [50:49.900] We have this huge resource development boom going on,
+- [50:53.380] on the North Slope of Alaska.
+- [50:54.690] I was with a bunch of the Inupiat, Alaska Native
+- [50:59.770] people who live up there.
+- [51:01.100] They are so excited about what's happening there.
+- [51:03.690] We are, as you know, Mr. President, building icebreakers.
+- [51:06.970] We're home porting some of those in Alaska.
+- [51:10.230] We have huge historic infrastructure
+- [51:14.190] in economic and national security investments happening,
+- [51:18.470] in particular the gas line
+- [51:20.030] that you have championed so much, the big LNG project.
+- [51:23.580] All of these things are happening.
+- [51:25.120] It's really exciting.
+- [51:26.340] By the way, all of these issues I just talked about,
+- [51:29.140] all of those were in the Working Families Tax Cuts Act,
+- [51:32.410] so there's a lot of excitement.
+- [51:34.400] But Mr. President, in addition to a strong economy,
+- [51:37.720] the thousands of jobs that these projects are going to have,
+- [51:40.540] we have to have a strong health care system in every state.
+- [51:44.670] And rural Alaska, as you mentioned,
+- [51:46.950] as Dr. Oz mentioned, has often,
+- [51:49.950] almost always been an afterthought
+- [51:52.920] when it comes to investing in health care in America.
+- [51:58.620] And that's not happening anymore
+- [52:00.150] after the Working Families Tax Cuts Act.
+- [52:03.170] As you said, Mr. President, as Dr. Oz said,
+- [52:05.310] this is the biggest investment in rural health
+- [52:08.630] care in American history, $50 billion.
+- [52:12.430] The award the great State of Alaska
+- [52:14.860] was able to get working with Dr. Oz
+- [52:17.590] and the parameters of the bill was about $1.4 billion
+- [52:21.670] over five years to transform our health care system.
+- [52:26.310] So that's really exciting, but here's the big deal.
+- [52:29.840] This is not just about money.
+- [52:32.790] This bill isn't just about money.
+- [52:35.770] The reason it's so impactful is that it's focused
+- [52:40.260] on letting states and governors
+- [52:43.320] design the system that they need.
+- [52:46.980] Alaska has many unique healthcare challenges,
+- [52:50.000] Mr. President, as you know.
+- [52:52.000] But for decades, the mentality in Washington DC
+- [52:55.930] is this approach to one size fits all.
+- [52:58.720] DC tells every state, here's how you have to do it
+- [53:02.190] and it never works. It never works.
+- [53:04.560] It certainly doesn't work in my state.
+- [53:06.880] I'll just give you one example. The federal match on Medicaid,
+- [53:10.190] our state typically has the lowest match in the country,
+- [53:13.890] even though we have the highest health care costs
+- [53:15.690] and highest delivery costs in the country.
+- [53:17.830] The one size fits all doesn't work.
+- [53:21.500] This bill is different.
+- [53:23.180] This bill that we wrote with your administration
+- [53:26.230] is all about allowing states to design a system
+- [53:29.820] that works for them with CMS guidance.
+- [53:33.730] And this will be a generational opportunity for every state
+- [53:36.850] to bring health care closer to home
+- [53:40.210] to make it more responsive,
+- [53:42.020] responsive to the people who live in that state
+- [53:44.860] and make it more affordable.
+- [53:46.610] I'll just end with this, Mr. President.
+- [53:48.320] Like I said, a lot of excitement.
+- [53:50.080] We got Governor Dunleavy who sends his greetings.
+- [53:52.950] Uh, was hosting the stakeholders in Alaska,
+- [53:57.090] who are going to be applying for these funds,
+- [53:59.200] working with CMS and our state. Over the last couple of days,
+- [54:03.490] we have over 300 people coming to these meetings
+- [54:06.540] on how to use this transformation fund
+- [54:10.570] to better health care in Alaska.
+- [54:13.160] And this is going to help my constituents.
+- [54:14.680] It's going to to help every American
+- [54:16.700] and it is really exciting.
+- [54:18.120] And I want to thank, again, you, Mr. President, and your team.
+- [54:20.280] The President: Thank you, Dan. Appreciate it.
+- [54:21.570] Dan Sullivan: Thank you very much.
+- [54:22.990] The President: Thank you very much.
+- [54:24.230] We're going to have to go very fast.
+- [54:25.950] We're going to have to go very --
+- [54:27.350] we are way behind schedule
+- [54:28.930] and I have a couple of meetings that are very important,
+- [54:32.540] nothing more important than this, but let's go.
+- [54:34.880] Come on, Bob -- Rob?
+- [54:38.390] Rob Bresnahan: Fire round.
+- [54:39.590] The President: Please.
+- [54:40.800] Rob Bresnahan: Mr. President, thank you very much
+- [54:42.160] for having me here today.
+- [54:43.360] And I represent northeastern Pennsylvania,
+- [54:45.180] your governor from Scranton, Pennsylvania,
+- [54:46.720] so never had the opportunity to meet.
+- [54:48.620] But I inherited a very similar problem
+- [54:51.820] before I was even sworn into office.
+- [54:53.320] I had two hospitals, Moses Taylor and Regional in Scranton
+- [54:55.940] that were imminently facing closure.
+- [54:58.700] And it's been -- and working with Dr. Oz,
+- [55:00.940] Administrator Oz and the CMS team
+- [55:02.290] has been absolutely incredible on so many levels.
+- [55:05.530] And thank you again for intervening
+- [55:07.610] and shepherding us through that process.
+- [55:09.250] But when you're looking at Pennsylvania,
+- [55:11.150] we're going to receive over $193 million.
+- [55:14.210] In five years, it will be over $1 billion
+- [55:16.750] for the Commonwealth of Pennsylvania.
+- [55:18.120] And when you think about northeastern
+- [55:19.370] Pennsylvania clinics
+- [55:21.170] and regional hospitals, rural hospitals
+- [55:23.200] are the backbones of our communities.
+- [55:24.970] So making a targeted investment that is not just going to
+- [55:27.630] Band-Aid over poor operational procedures,
+- [55:30.360] it's going to actually transform rural healthcare,
+- [55:33.720] that's what we are so excited about.
+- [55:35.620] Pike County in my district is the largest growing county
+- [55:38.970] in the Commonwealth of Pennsylvania,
+- [55:40.380] where there's not a hospital.
+- [55:41.620] The nearest commute to a hospital
+- [55:42.860] is over 55 minutes away.
+- [55:44.150] So these are going to be funds that will be so imperative.
+- [55:47.720] Um, the unprecedented investment is going to be incredible
+- [55:50.790] and thank you for having me up here
+- [55:52.320] and being a part of this journey.
+- [55:53.670] The President: Thank you, Rob. Appreciate it.
+- [55:55.710] Mike Lawler: Thank you, Mr. President.
+- [55:57.160] Uh, this is a great opportunity to be here
+- [55:58.780] with you and your team.
+- [55:59.990] Dr. Oz has been a tremendous asset.
+- [56:01.980] The $50 billion commitment
+- [56:04.070] to rural health transformation is critical.
+- [56:07.300] New York State is going to see about $212 million
+- [56:10.010] in the first year,
+- [56:11.270] which is vital for workforce development,
+- [56:13.950] access to care, primary, behavioral,
+- [56:15.920] maternal emergency, telemedicine, etc.
+- [56:19.620] How did we -- uh, how were we able to do it,
+- [56:22.520] because we routed out waste, fraud and abuse in the system.
+- [56:26.200] And Democrats will just say we cut $1 trillion in Medicaid.
+- [56:29.080] That's not what we did.
+- [56:30.480] We said, you need to be eligible,
+- [56:33.020] you need to be a citizen, you need to uh work
+- [56:37.360] if you are able bodied without dependent children.
+- [56:40.180] We reined in the provider tax and state-directed payments,
+- [56:43.120] which have exploded over years. And we are taking this money,
+- [56:46.790] not only preserving Medicaid for the IDD community,
+- [56:49.610] our seniors, our children, our single mothers,
+- [56:52.090] but we're investing it in rural health.
+- [56:54.460] When you look at Obamacare,
+- [56:56.670] health insurance premiums have risen 96 percent
+- [56:59.740] since Obamacare took effect.
+- [57:01.640] Insurance revenues up 2,000 percent.
+- [57:04.150] Mr. President, you are 1,000 percent correct
+- [57:06.680] that the insurance companies are the problem.
+- [57:09.210] They wrote Obamacare. It's to their benefit
+- [57:11.770] and the American people are being screwed.
+- [57:13.950] And so we can get a bipartisan agreement
+- [57:16.620] on what you are trying to do.
+- [57:19.070] When it comes to lowering drug prices,
+- [57:20.640] I will tell you,
+- [57:21.850] one of the largest pharmaceutical companies
+- [57:23.750] is in my district in Westchester County.
+- [57:26.100] I met with them in 2024 and I said,
+- [57:28.420] what would you do to lower drug prices?
+- [57:30.650] And the response was, go after the European price controls.
+- [57:33.860] You are spot on, on taking on the price controls
+- [57:37.010] that have been put in place.
+- [57:38.360] Most Favored Nation is the single best thing
+- [57:40.820] we can do to lower prescription drug prices here in America.
+- [57:44.850] The pharmaceutical companies will tell you that privately.
+- [57:47.610] And that is the fundamental fact.
+- [57:49.260] We need to go after PBM reform.
+- [57:51.820] Associated health care plans, we put that on the floor.
+- [57:55.140] Every Democrat voted against it, every Republican for it.
+- [57:58.390] Those would reduce costs by 11 percent because businesses,
+- [58:02.570] small businesses would be able to pull together
+- [58:04.720] and purchase health care plans at a lower rate.
+- [58:07.670] We need to go after the PBMs
+- [58:10.480] and make sure that insurance companies
+- [58:12.220] are not owning providers and owning PBMs.
+- [58:15.160] That is what is driving up the cost of health care
+- [58:17.600] in this country. You've talked about IVF.
+- [58:20.410] I've been a big champion on this.
+- [58:21.860] We need to make sure the insurance companies cover it.
+- [58:24.490] I also have a tax bill
+- [58:25.810] to provide tax incentives to Americans.
+- [58:28.190] And what you have done to lower IVF costs
+- [58:30.590] on the drugs is critical
+- [58:32.410] and you are 1,000 percent correct on expanding HSAs.
+- [58:35.790] I fundamentally believe
+- [58:37.720] that we can address the issues with Obamacare,
+- [58:40.450] make sure that the American people
+- [58:42.740] have access to care at a lower rate.
+- [58:45.340] We can get a bipartisan agreement
+- [58:47.590] to address the EPTC with expansion of HSAs
+- [58:51.790] so that the money goes to the people
+- [58:53.680] and not the insurance companies.
+- [58:55.340] We are committed to working to get this done
+- [58:57.480] and I thank you for your leadership.
+- [58:58.780] The President: Thank you, Mike. Thank you.
+- [59:00.170] Governor (Inaudible)
+- [59:01.990] Jim Pillen: Mr. President, a gigantic thank you
+- [59:04.070] and thank you for your incredible leadership.
+- [59:06.430] Your courage gives me more courage to say it the way it is.
+- [59:11.880] We're working very hard in Nebraska
+- [59:13.270] to run government like a business.
+- [59:15.210] This investment into rural America,
+- [59:17.360] which, by the way, in all of Nebraska, you poll 85 percent.
+- [59:21.370] I don't know what the hell is wrong with the other 15,
+- [59:23.790] but you're -- 85 is a pretty good number.
+- [59:26.230] Uh, I think -- uh, be very, very brief.
+- [59:29.700] This plan will allow us to do common sense,
+- [59:32.880] pragmatic investments in rural Nebraska
+- [59:37.160] and they will be sustainable.
+- [59:38.940] We will make sure that we don't need another dollar
+- [59:42.900] after five years.
+- [59:44.570] We are working on simple things like food.
+- [59:48.200] Real food is good medicine.
+- [59:50.800] We're working on making sure that all of our veterans --
+- [59:53.940] Nebraska's 500 miles long, 250 miles wide,
+- [59:57.710] no longer are veterans
+- [59:59.460] going to have to drive to Omaha to get care.
+- [01:00:02.460] We're going to take care of our veterans at home.
+- [01:00:04.880] Investments and technology
+- [01:00:06.350] so we can educate our children in rural Nebraska
+- [01:00:09.110] to provide health care are really, really important issues.
+- [01:00:13.620] And I think that the other is we've developed
+- [01:00:16.810] what we call six regions,
+- [01:00:18.250] one Nebraska and that will focus and take advantage of those.
+- [01:00:22.590] So we're working on what we have
+- [01:00:24.970] and then being able to use these resources
+- [01:00:28.140] to also help us with mental health and drug care as well.
+- [01:00:32.150] So we're incredibly grateful. Nebraska, we work hard,
+- [01:00:36.100] we're about faith, family, hard work, the American dream
+- [01:00:39.090] and we don't ask for much help in rural Nebraska.
+- [01:00:42.160] So we're really grateful for this investment.
+- [01:00:43.860] The President: Thank you very much.
+- [01:00:45.180] Jim Pillen: Thank you.
+- [01:00:46.380] The President: Thank you. Thank you for being here.
+- [01:00:50.360] One minute.
+- [01:00:51.910] Secretary Rollins: How about 30 seconds?
+- [01:00:53.120] How about 30 seconds, sir?
+- [01:00:54.890] Uh, as a small town kid from Glen Rose, Texas,
+- [01:00:56.920] population 1,200 where I grew up,
+- [01:00:59.640] what you are doing today changes everything
+- [01:01:02.670] and on behalf of our farmers and ranchers in rural America,
+- [01:01:06.360] it is a new day and we're so grateful.
+- [01:01:08.680] The final thing I'll say is I think about Abraham Lincoln
+- [01:01:10.810] who also sat in this room
+- [01:01:12.100] and I think about other Presidents
+- [01:01:13.370] throughout American history, and you think about
+- [01:01:15.570] how the fundamental course of American history
+- [01:01:18.690] has changed in certain pivot points throughout history,
+- [01:01:22.510] I think about you as the peace president,
+- [01:01:26.000] eight wars solved, more coming.
+- [01:01:28.510] I think about you as the security president,
+- [01:01:31.690] a border that is secure for the first time
+- [01:01:33.980] in more than any time in American history.
+- [01:01:36.970] I think about you as the prosperity president.
+- [01:01:39.020] We talk about Kevin wages going up, poverty coming down.
+- [01:01:41.840] The President: We'll give her more than one minute. In fact --
+- [01:01:43.940] Secretary Rollins: Oh, no, I'm almost done.
+- [01:01:45.330] The President: She can --
+- [01:01:46.560] no, she can speak as long as she wants.
+- [01:01:48.900] Secretary Rollins: I'm almost done.
+- [01:01:51.280] The prosperity president and what's happening.
+- [01:01:54.430] Think about you as the affordability president.
+- [01:01:57.120] Everything is coming down. Inflation is coming down.
+- [01:02:00.160] The cost of groceries is coming down, fuel housing, etc.
+- [01:02:04.440] And sir, today, in the last two weeks,
+- [01:02:08.160] you will go down in history as the greatest president
+- [01:02:11.160] for the health of this country in history.
+- [01:02:14.550] Think about our new dietary guidelines
+- [01:02:16.310] from Bobby Kennedy and I,
+- [01:02:17.630] but with your leadership, putting real food back
+- [01:02:20.570] in the middle of our health care conversation.
+- [01:02:24.120] Whole milk for healthy kids
+- [01:02:25.650] with those dairy farmers two days ago.
+- [01:02:27.780] We were in Pennsylvania talking about it yesterday.
+- [01:02:30.420] And today, putting the patient
+- [01:02:33.050] and the doctor back in charge of health care
+- [01:02:36.420] with great leaders like Governor Pillen.
+- [01:02:38.260] God bless you, your leadership and all of our leaders.
+- [01:02:40.130] Thank you so much, sir.
+- [01:02:41.370] The President: Thank you very much, done a great job.
+- [01:02:44.910] And Terri and Andrew, thank you.
+- [01:02:46.990] Thank you very much for being here.
+- [01:02:48.370] I hear you're just outstanding people and have really helped.
+- [01:02:51.880] We appreciate it. Do you want to say something?
+- [01:02:53.650] Unidentified: Thank you, President Trump.
+- [01:02:54.850] And I would just echo everything that's been said here.
+- [01:02:57.430] Thank you very much for what you're doing.
+- [01:02:59.510] I'm from the northwest corner of New Mexico.
+- [01:03:01.850] We also work with the Navajo Nation.
+- [01:03:04.770] And so we have a lot of rural areas in our state
+- [01:03:09.420] and in our county. I'm also a county commissioner.
+- [01:03:12.570] So I take as being a nurse practitioner county commissioner
+- [01:03:16.470] with the heavy weight in order to see this happen.
+- [01:03:20.870] And it will help prevent -- produce accessibility,
+- [01:03:25.570] which is a huge thing. People have to drive for miles
+- [01:03:28.520] in order to see a health care provider, workforce,
+- [01:03:31.730] quality care and sustainability for our hospitals.
+- [01:03:35.600] That's what we're looking at. We meet next week as --
+- [01:03:38.550] uh, in Santa Fe with our legislators.
+- [01:03:42.040] And so that is -- we're going to be addressing
+- [01:03:44.420] the licensure compact as well.
+- [01:03:46.520] The President: And they've got to clean up their elections
+- [01:03:47.990] in New Mexico.
+- [01:03:49.280] Unidentified: We're working.
+- [01:03:50.490] The President: Because those elections are so corrupt,
+- [01:03:51.970] it's incredible. Unidentified: Okay.
+- [01:03:53.170] The President: If they clean it up,
+- [01:03:54.390] we win by a lot, but they are really corrupt elections.
+- [01:03:56.930] So I think if you want to do this,
+- [01:03:58.750] you have to tell them to start working on that.
+- [01:04:00.450] It's unbelievably one of the most corrupt states
+- [01:04:04.110] in terms of that.
+- [01:04:05.480] But you uncorrupt it, so I appreciate you being here today.
+- [01:04:07.510] Unidentified: Well, the northwest corner loves you.
+- [01:04:08.760] Thank you.
+- [01:04:09.980] The President: I know. I know it.
+- [01:04:11.200] I know we have a great love in New Mexico, but it's --
+- [01:04:14.220] the elections are so corrupt, not much you can do about it.
+- [01:04:17.020] We have that with numerous states.
+- [01:04:19.020] Thank you very much.
+- [01:04:20.750] Andrew, thank you very much. Do you have anything to say?
+- [01:04:23.200] Unidentified: Mr. President,
+- [01:04:24.400] thank you for having me here today.
+- [01:04:25.670] It's a -- it's an honor to be here to represent my community.
+- [01:04:28.080] I'm from northwest Georgia. I grew up in West Virginia
+- [01:04:30.790] to represent my colleagues and my profession.
+- [01:04:32.610] It's truly an honor.
+- [01:04:33.840] This is so important to our patients,
+- [01:04:36.030] to put the physician and the patient back together
+- [01:04:38.280] and take everything else out of the middle.
+- [01:04:40.590] I practice in cardiology, you know, having efficient,
+- [01:04:43.750] effective, high-quality care is so important
+- [01:04:46.570] and time is of the essence and patients
+- [01:04:48.330] need to be able to have close proximity
+- [01:04:49.760] to their doctors to get the care that they deserve.
+- [01:04:52.820] Quality of care shouldn't matter about the ZIP code.
+- [01:04:55.570] We should be able to do what we are best at
+- [01:04:57.550] and take care of our patients on an equal playing field
+- [01:04:59.690] and this certainly helps that.
+- [01:05:01.470] I greatly appreciate all that you've done
+- [01:05:03.220] for the American people. You are an inspiration to us.
+- [01:05:05.500] You make us believe no problem is too big to solve.
+- [01:05:08.180] I mean, you -- you are representative of that
+- [01:05:09.840] and I thank you for your leadership.
+- [01:05:11.490] Thank you for this opportunity to be here
+- [01:05:13.470] and thank you for putting health care at the forefront.
+- [01:05:15.210] It's so important to every patient
+- [01:05:16.850] and every family that we take care of.
+- [01:05:18.410] The President: Thank you very much, Andrew.
+- [01:05:19.680] Great job. Great job you both do, amazing.
+- [01:05:21.970] I've heard unbelievable things. And doctors, in particular,
+- [01:05:25.480] thank you very much for being here.
+- [01:05:27.080] We very much appreciate it.
+- [01:05:28.990] Thank you, everybody. It's a big story. Thank you.

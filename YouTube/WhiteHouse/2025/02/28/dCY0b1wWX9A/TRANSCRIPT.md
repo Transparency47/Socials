@@ -1,0 +1,735 @@
+<!-- source: https://www.youtube.com/watch?v=dCY0b1wWX9A -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: dCY0b1wWX9A -->
+<!-- date_published: 2025-02-28T13:56:09+00:00 -->
+<!-- date_accessed: 2026-06-02T02:53:15.992194+00:00 -->
+
+# Transcript: Vice President JD Vance Delivers Remarks at the National Catholic Prayer Breakfast
+
+- [00:28.960] e
+- [00:58.920] e
+- [01:28.920] e e
+- [02:24.760] heav seated undefeated highest in name
+- [02:28.440] that's who I
+- [02:41.330] [Applause]
+- [02:41.690] [Music]
+- [02:42.920] thank you all thank you
+- [02:45.000] please please uh please take a seat and
+- [02:48.560] uh I I will say that even though I in my
+- [02:52.280] private sector days was a technology
+- [02:54.239] investor in Silicon Valley I haven't
+- [02:56.159] quite figured out how to work my
+- [02:57.319] government computer yet so 30 days in
+- [02:59.959] I'm gonna have to Wing this a little bit
+- [03:01.760] because I uh thought about what I was
+- [03:03.760] going to say on the morning over here
+- [03:05.680] and that of course makes all the
+- [03:06.799] communication staff that are sitting
+- [03:08.519] backstage extremely nervous because they
+- [03:10.400] have no idea what I'm going to say and
+- [03:13.239] before I went on I talked to Luke who's
+- [03:15.040] one of my main Communications guys and I
+- [03:16.879] said Luke this is all off the Record
+- [03:18.879] right no one's going to say or know what
+- [03:21.120] I said today so I can just say whatever
+- [03:22.799] I want and I'm sure that none of you
+- [03:25.120] will leak it to axio so none of our
+- [03:26.799] friends in the media back there will
+- [03:28.200] stream it live so um let let me one just
+- [03:32.640] offer a few notes of appreciation first
+- [03:34.840] off to Moren Ferguson who's become a
+- [03:37.480] dear friend of mine and I know a great
+- [03:39.360] leader in this
+- [03:43.640] community uh she she and her husband
+- [03:45.840] Mike have been better and kinder to me
+- [03:48.319] than I deserve and my entire family has
+- [03:50.920] been the beneficiary of it especially in
+- [03:53.280] finding places to send my kids to school
+- [03:55.879] at the very last minute because I'm a
+- [03:57.480] bit of a procrastinator and Morin and
+- [04:00.159] Mike have been very helpful in in in
+- [04:02.000] helping us navigate the DC School
+- [04:03.840] environment for our young children and
+- [04:06.120] so we're grateful to them I want to give
+- [04:08.360] a shout out and a note of appreciation
+- [04:10.120] to Congressman Chris Smith from the
+- [04:12.000] great state of New Jersey who I know
+- [04:14.400] received the great
+- [04:17.639] award and and we're grateful to his
+- [04:19.799] leadership and grateful for his
+- [04:21.320] friendship and he is a very good guy so
+- [04:23.479] Chris I assume you're out there
+- [04:24.880] somewhere though I can't see you but
+- [04:26.560] congratulations man we're proud of you
+- [04:28.800] and I'm proud to be here with you I want
+- [04:30.759] to thank Mark Randall who of course has
+- [04:33.320] hosted an incredible breakfast for now
+- [04:37.720] what this is the 20th year I believe of
+- [04:41.080] of the National Catholic prayer
+- [04:42.360] breakfast and it seems like we're doing
+- [04:43.759] pretty good here with the National
+- [04:45.120] Catholic prayer breakfast and and of
+- [04:47.160] course this breakfast holds a very
+- [04:48.720] special place in my heart as Morin
+- [04:50.680] mentioned I came here yesterday or last
+- [04:52.720] year as a very young Senator not knowing
+- [04:55.280] how much my life would change and I'm
+- [04:57.800] thankful to God but also thankful to to
+- [04:59.840] the Friendship of the people in this
+- [05:01.120] room for helping us get there because I
+- [05:03.400] think that we have turned a new page in
+- [05:05.520] Washington DC and we are going to take
+- [05:08.160] advantage of the opportunity that God
+- [05:10.280] has given
+- [05:13.440] us so I I want to say a couple of words
+- [05:16.400] just about Trump Administration policy
+- [05:18.800] because while you're certainly not
+- [05:20.759] always going to agree with everything
+- [05:23.160] that we do in president Trump's
+- [05:24.960] Administration I feel very confident in
+- [05:27.400] saying that between protecting the
+- [05:29.919] rights of pro-life protesters between
+- [05:33.039] ensuring that we have an opportunity to
+- [05:35.000] protect the rights of The Unborn in the
+- [05:36.919] first place and importantly protecting
+- [05:39.680] the religious liberty of all people but
+- [05:41.800] in particular Catholics I think that we
+- [05:44.280] can say that President Trump though not
+- [05:46.280] a Catholic himself has been an
+- [05:48.400] incredibly good president for Catholics
+- [05:51.039] in the United States of
+- [05:58.120] America now we know of course the last
+- [06:00.560] Administration liked to throw people in
+- [06:02.560] jail for silently praying outside of
+- [06:04.960] pro-life clinics we know that they like
+- [06:06.639] to harass pro-life fathers of seven very
+- [06:09.440] often uh Catholic fathers for
+- [06:11.599] participating in the pro-life movement
+- [06:13.840] and we know that the last Administration
+- [06:15.720] wanted to protect taxpayer funded
+- [06:18.360] abortion right up until the moment of
+- [06:20.080] birth on every single one of those
+- [06:22.400] issues in 30 short days Donald J Trump
+- [06:26.000] has gone in the exact opposite direction
+- [06:28.560] and I am thankful for that and I'm sure
+- [06:30.360] that every single person in this room is
+- [06:32.120] thankful for that as
+- [06:39.360] well but but I actually want to talk
+- [06:41.960] about a couple of other things in
+- [06:43.599] particular you know one of the most
+- [06:45.240] important parts of President Trump's
+- [06:47.680] policy and where I think president
+- [06:49.160] Trump's policy is most in accord with
+- [06:52.960] Christen Christian social teaching and
+- [06:55.039] with the Catholic faith is that more
+- [06:57.120] than any president of my lifetime
+- [06:59.080] president Trump has pursued a path of
+- [07:01.599] peace and we very often I think ignore
+- [07:04.759] the way in which our foreign policy is
+- [07:07.400] either an instrument or an impediment to
+- [07:10.560] people all over the world being able to
+- [07:12.400] practice their faith and we know and as
+- [07:14.639] of course I learned in this breakfast
+- [07:16.199] last year I believe there were some
+- [07:18.160] Nigerian priests who were being P
+- [07:20.000] persecuted and were trying to protect
+- [07:21.840] their flock despite incredible
+- [07:24.039] persecution we know that some of the
+- [07:26.720] biggest groups that are persecuted all
+- [07:29.520] all over the world today are Christians
+- [07:31.800] and the Trump Administration promises
+- [07:33.680] you that whether it's here at home with
+- [07:35.280] our own citizens or all over the world
+- [07:37.639] we will be the biggest Defenders of
+- [07:39.360] religious liberty and the rights of
+- [07:41.120] conscience and I think those policies
+- [07:43.120] will fall to the benefit of Catholics in
+- [07:45.680] particular all over the
+- [07:53.680] world but but I I would say my friends
+- [07:55.960] that it's not enough simply to protect
+- [07:58.159] the rights of conscience to pursue
+- [08:00.800] funding opportunities and grantmaking
+- [08:02.919] opportunities that protect the rights of
+- [08:04.720] people to engage in religious conscience
+- [08:07.680] we also have to remember that often
+- [08:10.440] times the biggest impediments to
+- [08:12.400] religious liberty have not come through
+- [08:14.520] malice from the United States government
+- [08:16.919] but have actually come through
+- [08:18.240] carelessness and one of the things that
+- [08:20.360] I I have to be honest that I am I am
+- [08:22.360] most ashamed about is that in the United
+- [08:25.000] States of America sometimes it is our
+- [08:27.159] foreign Misadventures that lead to the
+- [08:30.240] eradication of historical Christian
+- [08:32.159] communities all over the world and so
+- [08:34.880] when President Trump talks about the
+- [08:36.919] need to bring peace whether it's in
+- [08:39.279] Russia and Ukraine whether it's in the
+- [08:41.039] Middle East we of course have to
+- [08:43.159] recognize that as a policy oriented
+- [08:45.800] towards saving lives and carrying out
+- [08:48.240] one of Christ's most important
+- [08:49.760] Commandments but I think we also must
+- [08:51.800] recognize it as an effort to protect the
+- [08:54.279] religious liberty of Christians because
+- [08:56.760] over the past 40 years it has often been
+- [08:59.600] historical Christian communities who
+- [09:01.680] bear the brunt of failed American
+- [09:03.839] foreign policy and that is in in in in
+- [09:06.519] my view perhaps the most important way
+- [09:09.000] in which Donald Trump has been a
+- [09:11.079] defender of Christian rights all over
+- [09:13.279] the world is he has a foreign policy
+- [09:16.240] that is oriented towards peace we have
+- [09:18.640] done it already so much in the in the
+- [09:20.680] past 30 days and I'm proud that we will
+- [09:22.920] work for peace all over the world in the
+- [09:25.480] remaining four years of President
+- [09:27.040] Trump's term and I think that's an
+- [09:28.320] important thing
+- [09:30.140] [Applause]
+- [09:36.240] now of course we're not always going to
+- [09:37.399] agree and I'm sure that there are people
+- [09:38.839] in this room who agree who who who who
+- [09:40.839] agree or disagree with with some of our
+- [09:43.079] views on foreign policy on any number of
+- [09:46.200] issues uh the one thing that I will
+- [09:48.560] promise you is that you're always going
+- [09:50.120] to have an open door with me and with
+- [09:52.200] the president I think that you've
+- [09:53.240] already seen that and if you haven't
+- [09:55.640] please come and bring your concerns and
+- [09:58.160] some of you have already brought many
+- [09:59.480] concerns to me over the last 30 days but
+- [10:02.399] also your attaboys because I I think
+- [10:04.440] that part of being a good presidential
+- [10:07.200] Administration for people of Faith all
+- [10:09.200] over the United States part of it is
+- [10:11.399] listening to people of faith when they
+- [10:14.000] have concerns and I think that it's
+- [10:16.160] important and I'll make this commitment
+- [10:17.760] to you in front of God and in front of
+- [10:19.680] all those television cameras back there
+- [10:21.800] that we will always listen to people of
+- [10:24.160] faith and people of conscience in the
+- [10:25.640] United States of America you have an
+- [10:27.720] open door to the Trump administ ation
+- [10:29.959] even and especially maybe when you
+- [10:32.240] disagree with us so please use that
+- [10:35.000] opportunity communicate with us when we
+- [10:36.839] get things right but also when we get
+- [10:38.519] things wrong and that is my solemn
+- [10:40.720] obligation but also my request because
+- [10:43.160] of course as I've learned with h all the
+- [10:45.920] during the campaign of course I got
+- [10:47.399] Secret Service protection and now it's
+- [10:49.040] bumped up now that I'm the vice
+- [10:50.279] president of the United States I live in
+- [10:51.920] a bubble ladies and gentlemen I live in
+- [10:54.000] a roaming bubble and wherever I go I'm
+- [10:57.000] surrounded by armed agents the only way
+- [10:59.760] to keep me honest and the only way to
+- [11:01.720] know what is actually affecting the real
+- [11:04.279] lives of people all over our country is
+- [11:06.600] for you to talk to us and so please
+- [11:09.000] consider that Open Door very much an
+- [11:10.720] invitation but also a request and I I I
+- [11:14.279] will say that you know I believe Moren
+- [11:17.639] and maybe this is wrong that I'm the
+- [11:19.320] first Catholic convert to ever be Vice
+- [11:21.480] President of the United States
+- [11:25.680] and I appreciate that
+- [11:31.600] I appreciate you guys clapping because
+- [11:34.040] it turns out there are some people on
+- [11:35.360] the internet who don't like Catholic
+- [11:36.839] converts and in
+- [11:38.480] fact there are some some some Catholics
+- [11:41.639] who appear not to like Catholic converts
+- [11:43.680] I've learned that the hard way but of
+- [11:45.680] course the gross majority of of my
+- [11:47.560] brothers and sisters in Christ have been
+- [11:49.200] incredibly welcoming and Incredibly
+- [11:51.200] charitable and and for that I'm I'm
+- [11:53.040] grateful and I I I wanted to just
+- [11:55.320] reflect on that on being a Catholic and
+- [11:58.519] particularly Catholic convert in public
+- [12:00.680] life in the hopes that maybe it would
+- [12:03.480] provide some wisdom or some guidance or
+- [12:05.880] maybe just some interesting stories for
+- [12:07.560] those of you who are enjoying your
+- [12:08.720] breakfast and you know one of the things
+- [12:10.560] that I I try to remind myself of as a
+- [12:12.800] convert is that there's a lot I don't
+- [12:14.920] know when I was a kid we used to call
+- [12:16.800] new converts to the faith baby
+- [12:18.560] Christians and I recognize very much
+- [12:20.880] that I am a baby Catholic that there are
+- [12:23.040] things about the faith that I don't know
+- [12:25.240] and so I try to be humble as best I can
+- [12:28.480] when I talk about the faith and publicly
+- [12:30.440] because of course I'm not always going
+- [12:32.120] to get it right and I don't want my
+- [12:35.120] inadequacies in describing our faith to
+- [12:38.000] fall back on the faith itself and so if
+- [12:40.160] you ever hear me pontificating about the
+- [12:42.480] Catholic faith please recognize it comes
+- [12:45.199] from a place of of of deep belief but it
+- [12:48.320] also comes from a place of not always
+- [12:51.399] knowing everything all the time and you
+- [12:55.040] know I say that of course I don't try to
+- [12:57.079] comment on every single Catholic issue I
+- [12:59.360] try not to get involved in The Civil
+- [13:01.399] Wars between Dominicans and Jesuits and
+- [13:04.079] Conservative Catholics and Progressive
+- [13:07.040] Catholics but as as Michael Corleone
+- [13:09.519] said in The Godfather sometimes they
+- [13:11.240] pull me back in
+- [13:13.320] sometimes sometimes I can't help I can't
+- [13:16.560] help but spout off I am a politician
+- [13:18.680] after all ladies and
+- [13:20.279] gentlemen but the the the the thing that
+- [13:23.000] I I have tried I I I've tried to to
+- [13:26.320] remind people of and the thing that I
+- [13:28.199] try to remind myself myself of is that
+- [13:29.920] what attracted me to the Christian faith
+- [13:32.720] and What attracted me to this church in
+- [13:35.519] particular is the recognition that Grace
+- [13:39.440] is not something that happens
+- [13:41.360] instantaneously it's something that God
+- [13:43.279] works in us over a long period of time
+- [13:46.199] sometimes many years and sometimes many
+- [13:47.959] decades you I I I think that when I I
+- [13:50.720] was a kid my assumption is that Grace is
+- [13:53.680] something where the Holy Spirit would
+- [13:55.279] come in and it would solve all of our
+- [13:58.000] problems and I learned the hard way as
+- [14:00.880] as a Catholic in in part by following
+- [14:03.399] the sacramental life as best as I could
+- [14:05.680] that Grace is very much a process that
+- [14:07.720] God works in us over time he makes us
+- [14:10.440] closer to him and makes us better people
+- [14:12.639] in the process and so when I first
+- [14:15.079] became a a Catholic you know I would
+- [14:17.639] probably go to confession every other
+- [14:19.320] week because I would fail to go to mass
+- [14:21.240] every other
+- [14:22.560] week and you know things would come up
+- [14:24.920] you'd have business trips you'd have you
+- [14:26.680] know the kids would get sick and I I I
+- [14:28.880] just just I just remember that this
+- [14:31.199] process of thinking okay if I don't go
+- [14:34.160] to church this week I'm going to have to
+- [14:35.800] go and talk to some stranger about
+- [14:37.440] everything that I did bad the last two
+- [14:39.040] weeks and that process worked in me a
+- [14:42.399] much better discipline a a much better
+- [14:46.079] prayerful life and you know I'm I I'm
+- [14:49.040] batting probably like 95% of Sundays now
+- [14:51.759] that I actually go to mass and so you
+- [14:54.160] know this is this is I think one of the
+- [14:56.600] Geniuses thank you
+- [14:58.880] [Applause]
+- [15:02.680] I I think this is one of the Geniuses of
+- [15:04.480] our faith is that it teaches us through
+- [15:07.120] repetition in some ways and it forms us
+- [15:10.519] through a process of course that is I
+- [15:12.279] think at the heart of the mystery of
+- [15:13.519] faith that somehow by practicing the
+- [15:16.279] sacraments even imperfectly as I
+- [15:18.680] certainly do God transforms us and while
+- [15:22.000] I am as imperfect a Christian as any
+- [15:23.880] person in this room I I really do feel
+- [15:26.680] that God is transforming me every single
+- [15:28.800] day
+- [15:29.519] and that's one of the great blessings of
+- [15:31.319] our faith and one of the great blessings
+- [15:32.920] of following the sacraments as I try to
+- [15:35.199] do and so thank you all for welcoming a
+- [15:37.240] convert into your ranks
+- [15:39.480] because I certainly benefit from it and
+- [15:43.319] my family does
+- [15:45.440] too you know the the second thing that I
+- [15:47.759] take from my Catholic faith is a
+- [15:49.560] recognition that the deepest and most
+- [15:51.920] important things are not Material
+- [15:54.000] they're not GDP they're not the numbers
+- [15:56.440] that we see in the stock market the real
+- [15:59.279] measure of Health in a society is the
+- [16:02.160] safety and stability and the health of
+- [16:05.120] our families and of our of our people we
+- [16:08.079] are in the business of
+- [16:14.440] course we're in the business of
+- [16:16.720] President Trump's administration of
+- [16:18.519] producing Prosperity but that Prosperity
+- [16:20.839] is a means to an end and that end is the
+- [16:23.959] flourishing hopefully of the life of
+- [16:26.360] every single citizen in the United
+- [16:28.519] States of of America that's why we care
+- [16:30.360] about these things and you know I I I I
+- [16:32.440] often remind myself that you know there
+- [16:34.920] have been times in the past where you
+- [16:37.319] know the GDP numbers were maybe moving
+- [16:39.240] in the right direction where the stock
+- [16:41.079] market was moving in the right direction
+- [16:42.680] but the United States of America was
+- [16:44.240] losing life expectancy I think that what
+- [16:47.600] what the Catholic Church calls me to do
+- [16:50.040] is to say that if the stock market's
+- [16:52.160] doing okay but people are literally
+- [16:54.319] dying and losing years off of their life
+- [16:57.399] then we have to do better as the country
+- [16:59.800] Catholicism Christianity at its root I
+- [17:02.639] think teaches our public officials to
+- [17:04.319] care about the Deep things the important
+- [17:06.520] things the protection of The Unborn the
+- [17:08.679] flourishing of our children and the
+- [17:10.600] health and the sanctity of our marriages
+- [17:12.640] and yes we care about Prosperity but we
+- [17:15.240] care about Prosperity so that we can
+- [17:17.439] promote the common good of every citizen
+- [17:19.799] in the United States of America
+- [17:21.970] [Applause]
+- [17:30.480] and when I think about the Deep things
+- [17:31.919] the things that really matter there were
+- [17:33.640] there was something really amazing that
+- [17:35.360] happened to me in November of
+- [17:41.200] 2024 all my friends were there all my
+- [17:43.880] family was there we were gathered
+- [17:45.559] together in a great moment of
+- [17:47.520] Celebration and of course I'm talking
+- [17:49.919] about when my seven-year-old chose to be
+- [17:52.480] baptized into the Christian faith and
+- [18:00.679] and and Yan is at school right now so he
+- [18:02.960] won't see this but as amazing as it was
+- [18:06.000] to win the election of course in
+- [18:07.440] November of 2024 and as amazing as it
+- [18:09.799] was to know that President Trump would
+- [18:12.320] become president again and would get to
+- [18:14.440] accomplish so many good things for the
+- [18:16.159] American people the thing that I was
+- [18:18.120] most excited about in November of 2024
+- [18:20.880] is that the week after we won the
+- [18:22.440] election my son chose to be baptized in
+- [18:25.039] the Christian faith now here's the basic
+- [18:27.640] idea and and for for those of you of
+- [18:30.120] course you all mostly are cradle
+- [18:32.200] Catholics I assume and typically we do
+- [18:34.280] water baptism of infants in the
+- [18:36.080] Christian in the Catholic Church very
+- [18:38.200] very early on but as many of you know I
+- [18:40.640] am part of an Interfaith marriage my
+- [18:42.880] wife though she comes to church with us
+- [18:45.200] almost every single Sunday she is not
+- [18:47.799] Catholic herself and so the bargain that
+- [18:50.440] we have struck is that we will raise our
+- [18:52.240] kids Catholic but we will let them
+- [18:54.120] choose the moment that they want to
+- [18:55.799] ultimately become baptized and if that's
+- [18:58.200] terrible SAE blame the Dominicans
+- [19:00.640] because they're the ones who came up
+- [19:01.840] with this
+- [19:07.120] scheme but my seven-year-old elected to
+- [19:11.200] become baptized and it was the proudest
+- [19:13.720] moment maybe that I've ever had as a
+- [19:16.080] father and he took it very seriously and
+- [19:18.400] he wanted to know what are the right
+- [19:19.720] things to say Dad what do I need to do
+- [19:21.799] what does this mean why is this
+- [19:23.440] important and it was an amazing thing
+- [19:25.640] for me to see my seven-year-old working
+- [19:27.600] through these things himself self and
+- [19:29.400] when I talk about the Deep things the
+- [19:31.200] important things that that that's what I
+- [19:33.039] I'm talking about of course we care
+- [19:35.240] about our economic indicators and of
+- [19:37.000] course we care about the wages of our
+- [19:39.240] citizens we care about those things
+- [19:41.520] because when our people are doing better
+- [19:43.240] they can have the kinds of moments that
+- [19:45.640] promote the kind of flourishing that all
+- [19:47.400] of us believe is the very core of a good
+- [19:50.400] human life and that of course in my case
+- [19:53.080] was watching my little seven-year-old
+- [19:54.600] son become baptized and so while again I
+- [19:57.360] will never be perfect I will always try
+- [19:59.679] to remind myself that the goal of our
+- [20:01.880] public policy is to promote the common
+- [20:04.000] good and I will fight for that every
+- [20:06.000] single day that I am a public official
+- [20:08.960] and that brings me to the final
+- [20:10.919] observation I'd like to make as a
+- [20:13.320] Christian a Catholic convert in public
+- [20:15.400] life is is that you know
+- [20:18.679] sometimes the Bishops don't like what I
+- [20:20.960] say
+- [20:30.320] and I'm sure by the way sometimes
+- [20:31.840] they're right and and sometimes they're
+- [20:33.320] wrong my my goal is not to litigate when
+- [20:37.159] I'm right and when they're wrong or vice
+- [20:39.520] versa my my goal is to maybe articulate
+- [20:43.000] the way that I think about being a
+- [20:46.200] Christian in public life when you also
+- [20:48.440] have religious leaders in public life
+- [20:50.960] who have a spiritual duty to speak on
+- [20:53.600] the issues of the day and the way that I
+- [20:56.360] I try to think about it is the the
+- [20:58.720] Catholic Church is a is is a kind of
+- [21:01.240] Technology it's a technology that was
+- [21:03.520] developed 2,000 years ago and it's
+- [21:05.840] coming into contact with a technology
+- [21:08.640] that's about 10 years old 20 years old
+- [21:11.000] and that's of course social media and
+- [21:13.320] what I I try to remind myself of is that
+- [21:16.760] the clergy are important spiritual
+- [21:19.240] leaders you'll sometimes hear people say
+- [21:21.240] well we'll let you know the clergy talk
+- [21:23.400] about matters of the church but we can
+- [21:26.200] ignore them when it comes to matters of
+- [21:27.679] public policy I I think that's the wrong
+- [21:29.279] way to look at it that's certainly not
+- [21:31.039] the right way to look at it for me but
+- [21:33.520] what I try to remind myself of is that
+- [21:36.279] we we we are not called as Christians to
+- [21:39.200] obsess over every social media
+- [21:41.919] controversy that implicates the Catholic
+- [21:44.120] Church whether it involves a clergy or a
+- [21:46.520] bishop or the Holy Father himself I
+- [21:49.559] think that we should could frankly take
+- [21:52.080] a page out of the books of our
+- [21:54.520] grandparents who respected our clergy
+- [21:57.600] who looked to them for guidance but
+- [21:59.799] didn't obsess and fight over every
+- [22:02.760] single word that came out of their mouth
+- [22:05.159] and entered social media I don't think
+- [22:07.360] that's good and I'm not again counseling
+- [22:09.760] all of you but I don't think it's good
+- [22:11.279] for us as Christians to constantly fight
+- [22:14.279] with one another over every single
+- [22:16.600] controversy in the church sometimes we
+- [22:19.039] should let this stuff play out a little
+- [22:20.720] bit and try to live our faith as best we
+- [22:23.279] can under the dictates of our faith and
+- [22:25.559] under the dictates of our spiritual
+- [22:27.080] leaders but not hold them to the
+- [22:29.320] standards of social media influencers
+- [22:31.919] because they're not and I
+- [22:39.679] think and and and that brings me of
+- [22:42.640] course to the last point that I want to
+- [22:45.720] make wi- which is that as you've
+- [22:48.159] probably seen publicly the Holy Father
+- [22:51.559] Pope Francis has criticized some of our
+- [22:54.600] policies when it comes to immigration
+- [22:57.679] again my goal here is not to litigate
+- [22:59.679] with him or any other clergy member
+- [23:01.440] about who's right and who's wrong you
+- [23:03.360] obviously know My Views and I will speak
+- [23:05.799] to them consistently because I think
+- [23:07.640] that I have to do it because it serves
+- [23:09.559] the best interest of the American people
+- [23:11.799] what what I what I want to do instead is
+- [23:14.480] reminds and and I I talked to a lot of
+- [23:17.520] Conservative Catholics and I talked to
+- [23:19.000] Progressive Catholics too and I think
+- [23:21.240] that sometimes a lot of Conservative
+- [23:23.279] Catholics are too preoccupied with their
+- [23:27.279] political criticism
+- [23:29.360] of a particular clergy member or the
+- [23:31.960] leader of the Catholic church and of
+- [23:34.279] course I'm not telling you that you're
+- [23:36.799] wrong because sometimes I I even agree
+- [23:39.559] with you I think that what I would say
+- [23:42.440] is that it's not in the best interest of
+- [23:44.480] any of us again to treat the religious
+- [23:47.440] leaders of our faith as just another
+- [23:50.240] social media influencer and I think
+- [23:52.480] frankly that goes in both ways if I can
+- [23:54.520] be so bold I think it's incumbent Upon
+- [23:56.720] Our religious leaders to recognize that
+- [23:59.039] in the era of social media people will
+- [24:01.279] hang on every single word that they
+- [24:03.279] utter even if that wasn't their
+- [24:05.080] intention and even if a given
+- [24:07.000] declaration wasn't meant for consumption
+- [24:09.600] in the social media age but every day
+- [24:13.159] since I heard of Pope francis's illness
+- [24:16.360] I say a prayer for the Holy Father
+- [24:18.360] because while yes I was uh certainly
+- [24:22.440] surprised when he criticized our
+- [24:25.360] immigration policy in in the way that he
+- [24:27.880] has
+- [24:28.919] I also know that the Pope I believe that
+- [24:31.919] the pope is fundamentally a person who
+- [24:35.159] cares about the flock of Christians
+- [24:37.679] under his under his leadership and he's
+- [24:40.399] the
+- [24:46.840] man and he's a man who cares about the
+- [24:49.399] spiritual direction of the faith and I I
+- [24:53.039] I I say this because every day me and my
+- [24:55.399] children have said a prayer for the Holy
+- [24:58.000] Father
+- [24:59.039] and we pray for his health and we pray
+- [25:01.159] for his comfort as he deals with what
+- [25:03.640] appears to be a a pretty serious health
+- [25:06.159] crisis and while yes some of our media
+- [25:09.600] and some of our social media influencers
+- [25:11.520] and even some of us fellow Catholics I
+- [25:14.000] think try to bring the Holy Father into
+- [25:17.039] every culture War battle in American
+- [25:20.080] politics I will always remember the Holy
+- [25:22.840] Father whether he he makes its way
+- [25:25.000] through this illness and I certainly
+- [25:26.360] hope that he does I will always remember
+- [25:28.120] the the Holy Father in March of
+- [25:34.120] 2020 at a time of incredible stress for
+- [25:38.679] really the entire world remember that
+- [25:40.200] was the height of the covid pandemic
+- [25:42.399] none of us knew how bad it was we heard
+- [25:45.399] reports from Italy of people dying in
+- [25:48.080] Mass on ventilators and personally I had
+- [25:51.559] just a few weeks earlier welcomed our
+- [25:53.799] second child into the world and so when
+- [25:57.320] when the co pandemic happened I had a
+- [25:59.520] three-week old baby at home and I went
+- [26:01.279] to Dick Sporting Goods and I bought 900
+- [26:03.679] rounds of ammunition and then I went to
+- [26:05.600] Walmart and I bought two bags of rice
+- [26:08.440] and I sat at home with my bags of rice
+- [26:10.440] and my my 900 900 rounds of ammunition
+- [26:13.600] and said all right we're just going to
+- [26:14.559] wait this thing
+- [26:17.240] out and and into that void when a lot of
+- [26:20.720] people didn't know how bad it was and of
+- [26:22.559] course thankfully the pandemic was not
+- [26:24.720] as bad as the very worst predictions it
+- [26:27.039] was quite bad but not as bad as the very
+- [26:29.120] worst predictions I think all of us can
+- [26:31.120] remember that moment of the Holy Father
+- [26:33.480] standing in an empty St Peter's Square
+- [26:36.279] holding the Eucharist above his head and
+- [26:38.840] giving a sermon that I return to
+- [26:42.559] consistently because it was incredibly
+- [26:46.000] meaningful to me at the time and it
+- [26:47.840] remains meaningful today and so if
+- [26:49.679] you'll forgive me I hope that you'll be
+- [26:51.520] okay with me reading just an excerpt of
+- [26:54.200] the homy that Pope Francis gave when
+- [26:57.840] evening had come which of course is from
+- [26:59.960] Mark
+- [27:02.440] 4:35 the gospel passage we have heard
+- [27:05.360] begins like this for weeks now it has
+- [27:08.000] been evening thick Darkness has gathered
+- [27:10.679] over our squares our streets and our
+- [27:13.200] cities it is taken over our lives
+- [27:16.600] filling everything with a deafening
+- [27:18.640] silence and a distressing void that
+- [27:21.559] stops everything as it passes by we feel
+- [27:25.120] it in the air we notice it in people's
+- [27:27.760] gestures
+- [27:28.720] their glances give them away we find
+- [27:31.279] ourselves afraid and lost like the
+- [27:33.799] disciples in the gospel we were caught
+- [27:35.919] off guard by an unexpected turbulent
+- [27:39.039] storm we have realized that we are on
+- [27:41.279] the same boat all of us fragile and
+- [27:44.240] disoriented but at the same time
+- [27:46.360] important and needed all of us called to
+- [27:49.080] row together each of us in need of
+- [27:51.760] comforting the other on this boat are
+- [27:55.120] all of us just like those disciples who
+- [27:57.600] spoke an iously with one voice saying we
+- [28:00.080] are perishing so we too have realized
+- [28:03.200] that we cannot go on thinking of
+- [28:04.679] ourselves but only together can we do
+- [28:07.399] this it is easy to recognize ourselves
+- [28:09.679] in this story what is harder to
+- [28:11.880] understand is Jesus's attitude while his
+- [28:15.039] disciples are quite naturally alarmed
+- [28:17.159] and desperate he is in the stern in the
+- [28:20.960] part of the boat that sinks first and
+- [28:23.640] what does he
+- [28:25.080] do in spite of the Tempest he sleeps on
+- [28:28.760] soundly trusting in the father this is
+- [28:31.840] the only time in the gospels we see
+- [28:33.480] Jesus sleeping when he wakes up after
+- [28:36.240] calming the wind and the waters he turns
+- [28:38.640] to the disciples in a reproaching voice
+- [28:41.640] why are you afraid have you no
+- [28:45.000] faith let us try to understand in what
+- [28:48.480] does the lack of the disciples Faith
+- [28:50.360] consist as contrasted with Jesus's
+- [28:54.200] trust they had not stopped believing in
+- [28:56.600] him in fact they called on him but we
+- [28:59.840] see how they call on him teacher do you
+- [29:02.840] not care if we perish do you not care
+- [29:05.640] they think that Jesus is not interested
+- [29:07.880] in them does not care about them one of
+- [29:10.240] the things that hurts us in our families
+- [29:12.080] most when we hear said is do you not
+- [29:15.159] care about me it is a phrase that wounds
+- [29:18.120] and unleashes storms in our hearts it
+- [29:20.360] would have shaken Jesus too because he
+- [29:23.519] more than anyone cares about
+- [29:25.840] us indeed once they have called called
+- [29:28.320] on him he saves his disciples from their
+- [29:31.159] discouragement the storm exposes our
+- [29:33.840] vulnerability and uncovers those false
+- [29:36.640] and Superfluous certainties around which
+- [29:39.399] we have constructed our daily schedules
+- [29:41.760] our projects our habits and priorities
+- [29:44.760] it shows us how we have allowed to
+- [29:46.440] become dull and feeble the very things
+- [29:49.080] that nourish sustain and strengthen our
+- [29:52.200] lives and our communities The Tempest
+- [29:54.679] lays bare all our prepackaged ideas and
+- [29:57.679] forgiveness forgetfulness of what
+- [29:59.240] nourishes our people's Souls all those
+- [30:01.880] attempts that anesthetize us with ways
+- [30:04.760] of thinking and acting that supposedly
+- [30:07.840] save us but instead Prov incapable of
+- [30:11.120] putting us in touch with our roots and
+- [30:14.000] keeping alive the memory of those who
+- [30:15.600] have gone before us we deprive ourselves
+- [30:18.720] of the antibodies we need to confront
+- [30:21.159] adversity and I think that is an amazing
+- [30:23.559] phrase that what we do so often in our
+- [30:27.080] lives in our public public life and our
+- [30:28.640] private lives is we deprive ourselves of
+- [30:31.679] the antibodies we need to confront
+- [30:34.279] adversity and that is how I will always
+- [30:37.519] remember the Holy Father is as a great
+- [30:40.640] Pastor as a man who can speak the truth
+- [30:43.440] of the faith in a very profound way at a
+- [30:46.640] moment of great crisis and so I would
+- [30:49.320] ask all of us if you would join me in
+- [30:52.320] this prayer for Pope Francis the name of
+- [30:55.440] the father and the Son and the Holy
+- [30:56.960] Spirit Almighty and generous God we
+- [30:59.840] thank you for your charity please Grant
+- [31:01.919] your mercy upon Pope Francis so he may
+- [31:03.960] be restored from sickness and guide us
+- [31:06.279] in watchful care we pray that you bless
+- [31:08.679] our holy father's doctors nurses and
+- [31:10.760] medical staff with wisdom and capability
+- [31:13.320] so that you may work through them to
+- [31:14.639] renew the health of your Shepherd
+- [31:16.720] through Christ Our Lord
+- [31:19.120] amen and I think that as I conclude my
+- [31:24.919] remarks
+- [31:26.159] here I'm not ever going to be perfect
+- [31:29.279] I'm never ever going to get everything
+- [31:30.919] right but I what I will try to do is to
+- [31:34.519] try to be the kind of leader who hopes
+- [31:37.960] who helps our shared civilization build
+- [31:41.080] those true antibodies against adversity
+- [31:44.360] and if the Holy Father can hear us I
+- [31:46.720] hope he knows that there are thousands
+- [31:49.440] of faithful Catholics in this room and
+- [31:51.399] millions of faithful Catholics in this
+- [31:53.320] country who are praying for him as he
+- [31:55.720] weathers his particular storm God bless
+- [31:58.240] you thank
+- [31:59.550] [Applause]
+- [32:07.100] [Music]
+- [32:26.840] you e

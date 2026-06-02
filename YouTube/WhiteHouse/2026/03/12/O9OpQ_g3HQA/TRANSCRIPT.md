@@ -1,0 +1,291 @@
+<!-- source: https://www.youtube.com/watch?v=O9OpQ_g3HQA -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: O9OpQ_g3HQA -->
+<!-- date_published: 2026-03-12T01:27:10+00:00 -->
+<!-- date_accessed: 2026-06-02T01:03:52.328063+00:00 -->
+
+# Transcript: President Trump Participates in a Site Visit at Thermo Fisher Scientific
+
+- [00:00.000] We're just talking about how the
+- [00:01.960] expansion is going
+- [00:03.880] and a lot of expansion because of Trump,
+- [00:06.440] I have to say.
+- [00:07.840] But
+- [00:08.600] I think the one year depreciation is
+- [00:10.480] great.
+- [00:11.600] One year expensing, everyone loves it.
+- [00:14.480] And you would get a little excursion. We
+- [00:16.360] had to take this little
+- [00:18.080] a couple of weeks, few weeks
+- [00:20.360] excursion, but it's been
+- [00:22.360] incredible. Our military's unbelievable,
+- [00:24.400] the job they're doing.
+- [00:26.080] I would say to put it mildly, way ahead
+- [00:27.920] of schedule.
+- [00:29.560] We've knocked out their navy, their
+- [00:32.119] military in all forms.
+- [00:34.760] We've knocked out just about everything
+- [00:36.320] there is, including their leadership.
+- [00:39.440] Twice. We knocked out twice their
+- [00:41.200] leadership.
+- [00:42.800] Now they have a new group coming up.
+- [00:44.200] Let's see what happens to them.
+- [00:46.400] But 47 bad years we suffered with them,
+- [00:49.240] not only us, the rest of the world.
+- [00:51.760] We're doing our job. So we had to take
+- [00:53.120] an excursion,
+- [00:54.920] but
+- [00:55.880] it's doing well. The market's holding up
+- [00:57.600] well.
+- [00:58.640] I think it would be hit a little bit,
+- [01:00.240] but we were hit probably less than I
+- [01:03.040] thought and we'll be back on track in
+- [01:05.080] pretty
+- [01:06.080] short while. Prices are coming down very
+- [01:08.520] substantially. Oil will be coming down.
+- [01:11.440] It's just a
+- [01:13.640] It's just a matter of war.
+- [01:16.040] It happens. Very You can almost predict
+- [01:18.280] it. I would say it went up a little bit
+- [01:19.920] less than we thought. It's going to come
+- [01:21.280] down more than we than anybody
+- [01:23.120] understands. Do you have any questions,
+- [01:25.240] Peter? Yes. You just said it is a little
+- [01:28.000] excursion and you said it is a war. So
+- [01:30.720] which one is it? Well, it's both. It's
+- [01:33.200] both. It's a
+- [01:34.760] an excursion that
+- [01:36.320] will keep us out of a war.
+- [01:38.640] And the war is going to be
+- [01:41.160] I mean, for them it's a war, for us it's
+- [01:44.720] going to be a lot easier than we
+- [01:45.840] thought.
+- [01:46.880] But think of it, they had thousands of
+- [01:48.600] missiles, 7, 8,000 missiles.
+- [01:51.000] We got many of them before they got to
+- [01:52.640] launch.
+- [01:53.840] They have drones all over the place. We
+- [01:55.480] got many Now we're knocking have the
+- [01:56.880] drug plants as you know, going fast.
+- [02:00.280] They started talking about mines, so
+- [02:02.840] we hit 28 mine ships as of this moment,
+- [02:05.360] 28.
+- [02:07.000] Like uh using the same weapon, the exact
+- [02:09.240] same weapon that we used against the
+- [02:11.720] drug dealers in the in the water. We
+- [02:14.000] have
+- [02:14.920] uh as an example, we had tremendous
+- [02:17.000] drugs pouring in through the water,
+- [02:18.280] through the sea.
+- [02:19.880] And now we have almost none. It's It's
+- [02:21.920] down 97%.
+- [02:24.160] The water. Now we'll do it through land.
+- [02:26.760] The land is easier than water.
+- [02:28.920] But this is a great honor being here.
+- [02:30.360] It's a great company. I've known it for
+- [02:31.959] a long time.
+- [02:33.600] And uh
+- [02:35.000] you have done a fantastic job and I'd
+- [02:36.959] like to congratulate you. Thank you.
+- [02:38.200] It's the colleagues work. SEE THE
+- [02:39.640] COLLEAGUES.
+- [02:41.131] >> [applause]
+- [02:48.920] >> I SEE IT'S MY COLLEAGUES, BUT
+- [02:51.880] What about people that just work for
+- [02:53.520] you? No, right? They're colleagues. 25
+- [02:55.880] years we've worked together. That's why
+- [02:57.280] he's doing so well. Congratulations.
+- [02:59.320] Great company. Thank you very much.
+- [03:01.560] Thank you. Great honor.
+- [03:02.720] Thank you. Thank you everybody.
+- [03:04.320] Gentlemen, we thought it would just be
+- [03:05.519] good to introduce some of our That's
+- [03:08.200] people in our team that haven't had a
+- [03:10.160] chance to say hello. Well, let's Let me
+- [03:12.120] have a picture with them. How about
+- [03:13.519] that?
+- [03:15.040] Come on, Peter. Take a picture.
+- [03:17.157] >> [laughter]
+- [03:17.920] >> Let's go. Let me get in a little circle
+- [03:19.400] of people. Some really good looking
+- [03:20.680] people.
+- [03:23.360] All right, let's go.
+- [03:31.160] Nobody knows what.
+- [03:37.560] Some great information about
+- [03:39.720] this incredible company. Please. Yeah.
+- [03:42.239] We produce 1.3 billion doses
+- [03:45.320] annual medicine and over 70% of that
+- [03:47.720] goes right here into the US for US based
+- [03:50.040] patients.
+- [03:51.200] We have a wide variety of therapeutic
+- [03:54.000] areas, cardiovascular, oncology,
+- [03:58.360] that we support out of this site.
+- [04:00.720] When products are complex or difficult
+- [04:02.720] to make, they come here. Which means
+- [04:04.520] it's reflective of the technical
+- [04:05.960] expertise and the workforce that we have
+- [04:08.360] here at this site.
+- [04:10.360] Um we are a manufacturing And we're
+- [04:12.160] taking this away from a lot of
+- [04:14.360] countries from all over the world and
+- [04:15.959] are making medicines and other things,
+- [04:18.120] and sometimes they're not doing a very
+- [04:19.959] good job of it.
+- [04:21.680] And sometimes they put us actually at
+- [04:23.520] risk, and we're taking that away.
+- [04:25.960] Actually, we'd like to thank you for
+- [04:27.320] that, for the reshoring efforts. We are
+- [04:29.320] actively reshoring 1.3 billion, and we
+- [04:31.400] are actively working with two customers,
+- [04:33.440] Merck is one of them, for a key profile
+- [04:35.560] product reshoring back to this facility.
+- [04:39.160] Uh Boehringer Ingelheim is another. Uh
+- [04:41.160] reshoring 1.3 billion between these two
+- [04:43.160] opportunities it will nearly double the
+- [04:44.640] manufacturing for this facility. So, we
+- [04:46.919] really appreciate the work that you're
+- [04:48.200] doing. And they're coming in, Merck is
+- [04:50.320] an example, they're building many
+- [04:51.600] factories, uh
+- [04:53.080] Pfizer, Lilly, they're all coming in
+- [04:55.560] building factories, but uh they're up
+- [04:57.880] here faster,
+- [04:59.520] and at some time in the future they'll
+- [05:01.960] probably be doing a little bit of what
+- [05:03.640] you're doing, maybe a lot, but in the
+- [05:05.480] meantime they can get here a lot faster
+- [05:07.360] by using
+- [05:09.080] this great company and other companies
+- [05:10.880] like this, but this great company. Thank
+- [05:13.400] you.
+- [05:14.240] Good job. Thank you very much. Um the
+- [05:16.760] other thing I would add is we are deeply
+- [05:18.280] invested in the community here in
+- [05:19.800] Cincinnati. Um we focus on all of our
+- [05:22.680] employees live here, we raise our
+- [05:24.040] families here. We're focused on job uh
+- [05:26.919] job development here. We partner with
+- [05:28.560] local universities as well as trade. In
+- [05:31.200] this facility you have everything from
+- [05:33.320] high school graduates all the way to
+- [05:34.840] PhDs. Um Alan and I are both examples of
+- [05:37.640] a co-op program right out of university.
+- [05:40.320] Um from this show very much develop this
+- [05:42.000] talent.
+- [05:43.360] And I spent three summers in the Queen
+- [05:45.520] City. Do they still call it the Queen
+- [05:47.080] City?
+- [05:47.360] >> Yes,
+- [05:47.560] >> they do, sir. In the Queen City and it
+- [05:49.480] was a great experience with my father. I
+- [05:51.720] was very young.
+- [05:53.200] And we had a little apartment
+- [05:55.240] house here, a little complex called
+- [05:57.000] Swifton Village. Yep. And it worked out
+- [05:59.760] very well.
+- [06:01.040] It's good.
+- [06:01.880] It's always good to get off to a good
+- [06:03.080] start. Thank you.
+- [06:05.040] You got to get a good start. If you
+- [06:06.360] don't do a good start, it gets a lot
+- [06:07.960] more difficult. But uh it was a great
+- [06:10.240] experience. I love Ohio.
+- [06:12.400] And Kentucky we're going to also, you
+- [06:14.280] know.
+- [06:15.080] It's Kentucky.
+- [06:16.320] And we won them both by a lot. By I
+- [06:18.720] think we can
+- [06:20.480] absolutely, without question, we can say
+- [06:22.520] by a landslide.
+- [06:24.440] And uh it's great to be back. Thank you.
+- [06:27.240] Thank you very much.
+- [06:28.640] And Dr. Oz is here.
+- [06:30.560] One of our real stars. Yeah.
+- [06:32.720] Mr. President, do you want to share with
+- [06:34.000] the our buddies that we're going to be
+- [06:36.200] sure about most-favored-nation pricing
+- [06:38.680] and why this is so important to our
+- [06:39.840] country? So, in the whole world, we were
+- [06:41.919] paying the most for drugs. We were
+- [06:43.480] paying more than any other nation by
+- [06:45.040] far. And I don't mean by a little bit,
+- [06:46.640] like double, triple, quadruple.
+- [06:49.000] I say I use it just as a basic example.
+- [06:51.320] A pill that would cost in London $10
+- [06:53.480] could cost
+- [06:54.680] $100 in New York. And
+- [06:57.280] uh through a lot of talent and a lot of
+- [06:59.600] Dr. Oz, too, and some of his people that
+- [07:01.960] are incredible.
+- [07:03.480] But I dealt with countries and with the
+- [07:05.960] pharmaceutical companies. And pharma was
+- [07:08.440] pretty easy because they thought
+- [07:10.360] we would never get it approved by the
+- [07:11.480] countries.
+- [07:12.760] So, they said, "Well, we're going to be
+- [07:14.080] okay with it." Which it wasn't.
+- [07:16.240] But in the end they were they were fine,
+- [07:18.160] really good.
+- [07:19.520] But in the end I used some very strong
+- [07:23.440] negotiating talent to get every single
+- [07:25.760] country to almost immediately approve.
+- [07:29.200] I threatened them with tariffs. I said,
+- [07:30.800] "Look, if you're not going to do this,
+- [07:32.760] uh you're going to take your medicine
+- [07:34.280] from $10 to 20.
+- [07:36.520] And you're going to bring us from 100
+- [07:38.200] down to 20.
+- [07:39.880] So, we're going to be now the lowest.
+- [07:41.440] We're going to be tied for the lowest
+- [07:43.360] anywhere in the world. We did the
+- [07:44.560] lowest. So, that's where we are right
+- [07:45.840] now. We went from the highest in the
+- [07:47.480] world
+- [07:48.680] to the lowest in the world.
+- [07:51.000] And I think it's the biggest thing to
+- [07:53.160] ever happen with medicine, certainly in
+- [07:55.400] terms of pricing.
+- [07:57.520] And you're a beneficiary of that, and
+- [07:59.120] it's it's made a big difference, but it
+- [08:01.440] makes a big difference with people that
+- [08:02.880] aren't paying the $100, they're paying
+- [08:05.680] that 20. They go from 100 to 20.
+- [08:08.520] And a country, France, are one of the
+- [08:10.760] countries will go from 10
+- [08:12.880] to 20. And they said, "We're not going
+- [08:14.120] to double our price." And they said,
+- [08:15.720] "Yes, you are." They said, "No, you're
+- [08:17.160] not." And
+- [08:18.400] and they said to me, "Uh look, uh what
+- [08:20.320] are you going to do?" I said, "I'm going
+- [08:21.640] to put very substantial tariffs if you
+- [08:23.880] don't do it."
+- [08:25.200] And they go into effect tomorrow
+- [08:26.520] morning.
+- [08:27.680] And they said, "Like we said, we're
+- [08:29.520] going to do it."
+- [08:30.960] And it was pretty amazing. Nobody can
+- [08:32.840] believe it all happened. And
+- [08:34.760] I guess other administrations tried, but
+- [08:38.240] they're not that competent, or they
+- [08:39.640] didn't try at all. I would say mostly
+- [08:42.240] they didn't try. I don't even think they
+- [08:43.560] tried.
+- [08:44.720] But we took it down there by 60, 70, 80,
+- [08:47.560] 90%.
+- [08:49.240] And nobody's ever There's never been a
+- [08:51.560] thing. 28 years, medicines only gone up.
+- [08:54.920] And we brought it down by in many cases
+- [08:57.360] 80% or
+- [08:59.640] So, it's an honor, and uh
+- [09:02.240] you're a big recipient cuz it's going to
+- [09:04.360] be a business, right?
+- [09:05.320] >> Absolutely.
+- [09:06.400] Thank you.
+- [09:06.760] >> really huge help to the American
+- [09:09.040] supply chain and ensuring domestic
+- [09:10.920] population. So, thank you very much.
+- [09:13.040] That's what we're doing. We're bringing
+- [09:14.080] it back to our country, where it should
+- [09:16.440] be. Thank you.

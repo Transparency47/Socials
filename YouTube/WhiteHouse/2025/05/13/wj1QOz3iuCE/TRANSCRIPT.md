@@ -1,0 +1,945 @@
+<!-- source: https://www.youtube.com/watch?v=wj1QOz3iuCE -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: wj1QOz3iuCE -->
+<!-- date_published: 2025-05-13T16:29:05+00:00 -->
+<!-- date_accessed: 2026-06-02T02:50:19.077234+00:00 -->
+
+# Transcript: President Trump Participates in a U.S.-Saudi Investment Forum
+
+- [00:00.500] ♪♪(God Bless the U.S.A.)♪♪
+- [01:15.245] (applause)
+- [02:28.490] The President: Well, thank you very much.
+- [02:29.890] It's an honor to be here.
+- [02:31.120] What a great place. What a great place.
+- [02:34.580] But more importantly, what great people.
+- [02:37.380] I want to thank his Royal Highness,
+- [02:39.000] the Crown Prince, for that incredible introduction.
+- [02:43.190] He's an incredible man. Known him a long time now.
+- [02:47.200] There's nobody like him. Thank you very much.
+- [02:49.780] Appreciate it very much, my friend.
+- [02:56.300] And it's a tremendous honor
+- [02:57.730] to return to this beautiful kingdom
+- [02:59.730] and be welcomed back with such extraordinary generosity
+- [03:03.250] and warmth.
+- [03:04.740] I've never forgotten the exceptional hospitality
+- [03:07.440] showed to us by King Salman.
+- [03:12.620] Talk about a great man. That is a great man,
+- [03:16.270] that is a great man, a great family.
+- [03:20.710] That visit took place exactly eight years ago.
+- [03:23.640] The graciousness of the royal family
+- [03:26.050] and the Saudi people is really unsurpassed
+- [03:29.100] no matter where you go.
+- [03:30.830] Let me also thank the countless ministers,
+- [03:33.230] government officials, business leaders,
+- [03:35.390] and distinguished guests for that warm welcome, very warm.
+- [03:40.470] I know so many of you.
+- [03:42.050] I'd like to call out all of your names,
+- [03:43.970] but we'd have a lot of problems.
+- [03:46.330] We'd be here for a long time. We don't want that.
+- [03:49.000] So don't be upset with this historic state visit.
+- [03:52.510] We celebrate more than 80 years of close partnership
+- [03:55.610] between the United States and the kingdom of Saudi Arabia.
+- [04:00.000] Ever since President Franklin Roosevelt
+- [04:02.060] met with King Salman's father,
+- [04:05.020] King Abdulaziz aboard the USS Quincy in 1945,
+- [04:11.350] the US-Saudi relationship has been a bedrock
+- [04:15.010] of security and prosperity.
+- [04:18.620] Today, we reaffirm this important bond
+- [04:21.710] and we take the next steps to make our relationship closer,
+- [04:25.000] stronger, and more powerful than ever before.
+- [04:27.960] It is more powerful than ever before.
+- [04:38.260] And by the way, it will remain that way.
+- [04:41.630] We don't go in and out like other people.
+- [04:44.370] It'll remain that way.
+- [04:50.720] I've come this afternoon to talk
+- [04:52.560] about the bright future of the Middle East,
+- [04:54.550] but first, let me begin by sharing the abundance
+- [04:57.630] of good news from a place called America.
+- [05:02.820] In less than four months,
+- [05:04.600] our new administration has achieved
+- [05:07.150] more than most other administrations accomplish
+- [05:10.810] in four years or even eight years.
+- [05:12.750] We've actually done, for the most part, more.
+- [05:16.230] The day I took office, we inherited…
+- [05:18.140] Thank you. Thank you. The day I took office,
+- [05:24.910] we inherited a colossal invasion on our southern border,
+- [05:29.730] an invasion like you'd never want to see here,
+- [05:32.930] nobody should ever want to see it.
+- [05:35.180] But within weeks, we slashed illegal border crossings
+- [05:38.090] to an all-time low down 99.999%.
+- [05:44.820] That's good even for this great gentleman
+- [05:47.480] standing right in front of me. That's a good number.
+- [05:54.300] We had hundreds of thousands of people.
+- [05:57.380] They came in at the same time last year,
+- [06:00.850] and last month we had in this massive border,
+- [06:05.700] three people that got in. That's quite a difference.
+- [06:12.140] And we have no choice but to get a lot of the people that came in
+- [06:15.450] because they were not the best people.
+- [06:17.810] They were, in many cases, very bad people.
+- [06:19.830] We're getting them out. We're getting them out very fast.
+- [06:22.070] We're bringing them back to where they came from.
+- [06:23.920] We have no choice.
+- [06:25.170] After years of military recruiting, shortfalls.
+- [06:28.860] Enlistments in the US armed forces
+- [06:32.110] are now the highest in 30 years
+- [06:34.270] because there is such an incredible spirit
+- [06:37.340] in the United States of America. We have tremendous spirit again.
+- [06:41.440] Just about a year ago, it was a big story, front page
+- [06:46.550] on every paper all over the world
+- [06:48.200] that nobody wanted to enlist in our military,
+- [06:50.800] meaning we were way under-enlisted.
+- [06:53.990] And just last week it came out
+- [06:56.760] that we had the strongest enlistment.
+- [06:59.710] They say 30 years, but probably it's maybe ever.
+- [07:03.750] They don't go back that far. It's the best.
+- [07:06.200] And that includes police officers,
+- [07:07.810] firemen, everything else.
+- [07:09.080] There's a great spirit in the United States right now.
+- [07:12.650] A brand-new poll from Rasmussen just showed
+- [07:16.320] that the number of Americans
+- [07:18.290] who believe the nation is on the right track…
+- [07:20.730] They have a right track, wrong track…
+- [07:23.290] Is now the highest in over 20 years.
+- [07:26.740] And it hasn't been anything like this
+- [07:29.810] because for many years it was the wrong track.
+- [07:33.470] And I can tell you for the last four years,
+- [07:35.100] it was definitely the wrong track,
+- [07:37.240] but it's the highest it's been in many, many years.
+- [07:39.920] We named the Gulf of Mexico into the Gulf of America,
+- [07:46.570] that was very popular other than perhaps with Mexico.
+- [07:52.810] And most importantly, for the people in this room,
+- [07:55.320] the days of economic misery under the last administration
+- [07:58.720] are rapidly giving way to the greatest economy
+- [08:01.320] in the history of the world. We are rocking.
+- [08:03.660] The United States is the hottest country,
+- [08:05.990] with the exception of your country,
+- [08:07.280] I have to say, right? I'm not going to take that on.
+- [08:13.280] No, Mohammed, I'm not going to take that on.
+- [08:17.080] Wouldn't that be a terrible thing
+- [08:18.370] if I made that full statement?
+- [08:20.130] But I will not do it. You're hotter.
+- [08:22.520] At least as long as I'm up here, you're hotter.
+- [08:25.920] But groceries, gasoline, energy,
+- [08:27.850] and all other prices are down, with no inflation.
+- [08:31.160] We have no inflation. In a few short weeks,
+- [08:34.410] we've created 464,000 brand-new jobs.
+- [08:39.420] Think of that. It's almost a half a million jobs created
+- [08:42.280] just in a matter of weeks.
+- [08:45.050] We just reached a historic trade agreement
+- [08:47.380] with the United Kingdom, and over the weekend
+- [08:49.780] we reached a breakthrough agreement with China,
+- [08:53.440] both outstanding deals.
+- [08:55.180] China's agreed we have to get it down.
+- [08:57.260] We have to get the little details down.
+- [08:59.010] And Scott, you're going to work on that very hard.
+- [09:01.460] But China's agreed to open up to the United States
+- [09:04.610] for trade and everything else.
+- [09:07.290] But they have to do it. So we'll see what happens.
+- [09:09.450] But we had a very, very good meeting
+- [09:11.740] with both of those countries.
+- [09:14.680] We are cutting 10 old regulations
+- [09:17.610] for every new regulation.
+- [09:19.000] We're getting rid of all of the red tape that is…
+- [09:23.780] So many, frankly, countries, as they get older,
+- [09:25.970] they develop a lot of red tape, and we're getting rid of it.
+- [09:28.720] We're getting rid of it at record levels.
+- [09:31.450] And I'm pleased to report that the United States Congress
+- [09:34.340] is on the verge of passing the largest tax
+- [09:36.530] cut and regulation cut in American history.
+- [09:39.960] We think we're in good shape to get that.
+- [09:41.920] And if we get that,
+- [09:43.190] that will be like a rocket ship for our country.
+- [09:46.500] In the first quarter of the year,
+- [09:47.870] the investment in America was up an astounding 22%.
+- [09:52.620] More than $10 trillion of new investments have been announced
+- [09:57.750] or are coming just since the election on November 5th.
+- [10:01.150] So think of that.
+- [10:02.420] In a very short period of time, we have over $10 trillion,
+- [10:08.720] and it could be much higher than that.
+- [10:10.720] Not everybody comes to the White House
+- [10:12.320] to have a news conference
+- [10:14.640] that they're going to be opening up in America,
+- [10:16.700] but they're all coming in at numbers
+- [10:18.950] that we've never seen before.
+- [10:21.290] If you take a look at other presidencies,
+- [10:25.270] they wouldn't do $1 trillion sometime in years.
+- [10:28.590] We did this in essentially two months because you have to say,
+- [10:32.420] we got into office and they gave me about a month
+- [10:36.090] to clean up and fix up the Oval Office,
+- [10:38.650] and after that, we started working,
+- [10:41.120] and the money is pouring in, the jobs are pouring in,
+- [10:44.190] the companies are pouring into our country
+- [10:46.020] like we've never seen before.
+- [10:47.310] There's never been anything like it.
+- [10:50.840] We let other people tariff us into losing a lot of money
+- [10:56.350] and a lot of jobs, and now we're tariffing them,
+- [11:00.580] and it's at a level that nobody's seen.
+- [11:05.690] It's a level that is making us a very much different country
+- [11:09.940] and a very different Republican Party.
+- [11:12.280] We won a tremendous victory in November.
+- [11:16.620] We won all seven swing states,
+- [11:18.510] the popular vote by millions and millions of votes.
+- [11:21.160] The electoral college, we won by 312 to 226.
+- [11:25.880] Remember, they said, "Well, we could get to 270,"
+- [11:29.720] and we got to 312. That's a big difference.
+- [11:32.530] And very importantly, we won counties throughout
+- [11:35.410] the United States, 2,660 to 451.
+- [11:41.720] That's why when you look at a map, they're all red.
+- [11:43.950] The whole country is red. Red stands for Republican.
+- [11:51.250] From the moment we started,
+- [11:53.950] we've seen wealth that just poured
+- [11:56.200] and is pouring back into America.
+- [11:59.300] Apple is investing $500 billion. Nvidia is investing.
+- [12:04.420] And I see my friend is here, Jensen, that's very good.
+- [12:07.470] Wherever you may be, I thank you very much
+- [12:09.830] because he's putting in $500 billion.
+- [12:13.040] TSMC is investing.
+- [12:19.050] Where is Jensen, by the way? Where is he? He's standing here.
+- [12:22.460] Where is he? I just saw Beth. Thank you very much, Jensen.
+- [12:25.670] I mean, Tim Cook isn't here, but you are.
+- [12:30.760] What a job you've done.
+- [12:32.690] He said he's got 99% of the chip market.
+- [12:35.540] I don't know. That's not easy to beat.
+- [12:39.280] But what a job you've done. Thank you.
+- [12:40.860] We are proud to have you in our country.
+- [12:42.870] You know that. Thank you for the investment.
+- [12:45.240] TSMC is investing $200 billion. And with this trip,
+- [12:49.930] we're adding over $1 trillion more in terms of investment
+- [12:54.310] and investment into our country and buying our products.
+- [12:58.640] Nobody makes military equipment like us.
+- [13:01.160] We have the best military equipment,
+- [13:02.650] the best missiles, the best rockets,
+- [13:04.570] the best everything. Best submarines, by the way.
+- [13:08.700] Most lethal weapon in the world.
+- [13:11.000] In addition to purchases of $142 billion
+- [13:15.910] of American-made military equipment
+- [13:18.020] by our great Saudi partners, the largest ever this week.
+- [13:22.770] There are multibillion-dollar commercial deals
+- [13:25.430] with Amazon, Oracle, AMD. They're all here.
+- [13:29.790] Uber, Qualcomm, Johnson and Johnson,
+- [13:33.350] and many, many more.
+- [13:37.410] So I want to congratulate everybody.
+- [13:39.150] So many great business executives, most of you I know.
+- [13:44.160] They were coming in about a month ago.
+- [13:46.400] They weren't that happy when they saw me,
+- [13:48.920] and now they're saying, "Sir, you're doing a great job.
+- [13:50.750] Thank you very much."
+- [13:52.500] It's amazing what a rising market will do.
+- [13:57.610] It's going to get a lot higher.
+- [13:58.870] In fact, I told people five weeks ago,
+- [14:02.470] "This is a great time to buy." I got criticized for that.
+- [14:04.760] Now they don't criticize me anymore.
+- [14:06.490] People should have listened.
+- [14:07.900] But it's going to go a lot higher.
+- [14:09.250] You're going to see.
+- [14:10.490] We've never had anything like this happen.
+- [14:12.230] It's an explosion of investment and jobs
+- [14:15.970] and great companies are coming in.
+- [14:17.800] Never seen anything like it.
+- [14:19.140] There's no better place to make a future
+- [14:22.340] or make a fortune or do anything frankly,
+- [14:26.350] than what we have in the United States of America
+- [14:29.340] under a certain President, Donald J. Trump.
+- [14:31.010] I have the right attitude.
+- [14:32.300] I have the same attitude that the people in the front row,
+- [14:34.380] second row, third row have.
+- [14:36.720] As you get back, perhaps they start to wane
+- [14:38.860] a little bit in terms of their view,
+- [14:41.730] but they understand,
+- [14:43.220] and we're doing what a lot of smart people would do.
+- [14:47.810] And we're not necessarily being politically correct.
+- [14:52.130] You saw what we did yesterday with healthcare.
+- [14:54.030] We've cut our healthcare by 50 to 90%.
+- [14:58.820] You're going to see drugs and pharmaceuticals
+- [15:00.920] come down at numbers that nobody has ever seen.
+- [15:04.610] And drugs, pharmaceuticals, we think will be dropping,
+- [15:09.080] and it'll be a redistribution of costs with other nations,
+- [15:13.740] which really took advantage of a very nice group of people
+- [15:17.350] that ran our country.
+- [15:19.120] But not only is this a time of incredible excitement
+- [15:22.160] in the United States. It's also an exhilarating period
+- [15:27.000] right here in the Arabian Peninsula.
+- [15:29.240] A beautiful place, by the way, a beautiful place.
+- [15:32.550] Exactly… Thank you.
+- [15:39.110] Exactly eight years ago this month
+- [15:41.060] I stood in this very room and looked forward to a future
+- [15:44.680] in which the nations of this region
+- [15:46.800] would drive the forces of terrorism and extremism,
+- [15:51.610] drive them right out of existence
+- [15:53.940] and take your place among the proudest,
+- [15:55.880] most prosperous, most successful nations anywhere in the world
+- [15:59.730] as leaders of a modern and rising Middle East.
+- [16:02.500] So exciting. So exciting.
+- [16:05.580] Mohammed, do you sleep at night? How do you sleep?
+- [16:09.800] Huh? Just thinking.
+- [16:17.500] What a job. He tosses and turns like some of us,
+- [16:22.010] tosses and turns all night,
+- [16:23.690] how do I make it even better, all night.
+- [16:26.200] It's the ones that don't toss and turn,
+- [16:28.020] they're the ones that will never take you to the promised land.
+- [16:30.810] Won't they? But you have done some job.
+- [16:34.880] True.
+- [16:39.410] But critics doubted that it was possible what you've done.
+- [16:42.330] But over the past eight years,
+- [16:43.950] Saudi Arabia has proved the critics totally wrong.
+- [16:47.180] The transformation that has occurred,
+- [16:49.640] even by these incredible business leaders,
+- [16:51.650] I mean you have the biggest leaders in business
+- [16:54.200] anywhere in the world standing right before us,
+- [16:57.240] but the transformation that has occurred under the leadership
+- [17:00.250] of King Salman and Crown Prince Mohammed
+- [17:04.920] has been truly extraordinary.
+- [17:06.910] Such a thing has I don't think ever happened before.
+- [17:10.390] I've never seen anything at that scale happen before.
+- [17:13.990] And I guess maybe you could say the United States
+- [17:18.740] is doing pretty well too,
+- [17:20.440] but I don't think too many people have seen
+- [17:22.800] that happen before.
+- [17:24.120] Majestic skyscrapers, the towers that I see,
+- [17:27.440] the difference between now and eight years ago.
+- [17:30.590] And eight years ago, it was very impressive.
+- [17:32.600] But the towers that I see rising,
+- [17:35.210] some of the exhibits that I was shown by Mohammed,
+- [17:39.730] if what I've seen there is just an amazing,
+- [17:44.360] it's amazing process, an amazing genius,
+- [17:47.250] so many people, architecture, but I have a feeling nowhere.
+- [17:51.130] I know where many of those ideas came from,
+- [17:54.730] happens to be sitting right in this room right before me.
+- [17:57.220] But the towers and all of the different…
+- [17:59.930] I've seen a lot of different towers.
+- [18:01.430] I didn't think there's any version of a tower
+- [18:05.200] that I haven't seen in one form or another.
+- [18:07.510] I just passed four exhibits.
+- [18:08.860] I have never seen anything like any of them.
+- [18:11.530] So it's going to be very exciting.
+- [18:16.850] And they sit among the ancient wonders
+- [18:20.810] of a growing and exciting city.
+- [18:23.470] It's really amazing.
+- [18:25.290] Riyadh is becoming not just a seat of government,
+- [18:29.240] but a major business, cultural,
+- [18:30.830] and high-tech capital of the entire world.
+- [18:34.050] The World Cup is here. Johnny, just stand up, Johnny.
+- [18:39.390] Johnny, thank you, Johnny.
+- [18:52.140] Great job, Johnny. Great job.
+- [18:54.550] But the World Cup and the World Expo
+- [18:56.930] will soon be coming here,
+- [18:58.660] just like the World Cup is coming to the United States.
+- [19:02.150] It's going to be really exciting next year.
+- [19:05.880] The engines of Formula 1 racing now roar
+- [19:08.290] through the streets of Jeddah in a historic milestone.
+- [19:12.500] Other industries recently surpassed oil.
+- [19:16.100] Think of it, all of your other industries
+- [19:18.420] now have surpassed oil.
+- [19:19.750] I don't know if a lot of people will understand
+- [19:23.310] what that means, it's so big.
+- [19:24.800] To make up a majority of the Saudi economy
+- [19:27.470] for the very first time ever, so think of that.
+- [19:30.360] Other industries are now bigger even than oil,
+- [19:32.820] which is always going to be a big monster.
+- [19:35.110] It's a big one, but that's a great tribute
+- [19:38.710] to you and economic development properly used.
+- [19:42.740] In other cities throughout the peninsula,
+- [19:44.540] places like Dubai and Abu Dhabi, Doha, Muscat,
+- [19:49.690] the transformations have been unbelievably remarkable.
+- [19:53.850] Before our eyes a new generation of leaders
+- [19:56.310] is transcending the ancient conflicts of tired divisions
+- [20:00.490] of the past and forging a future
+- [20:02.320] where the Middle East is defined by commerce,
+- [20:05.300] not chaos, where it exports technology, not terrorism,
+- [20:10.000] and where people of different nations, religions,
+- [20:12.680] and creeds are building cities together,
+- [20:15.920] not bombing each other out of existence.
+- [20:19.230] We don't want that.
+- [20:28.230] And it's crucial for the wider world
+- [20:30.760] to note this great transformation
+- [20:33.050] has not come from Western interventionalists
+- [20:37.530] or flying people in beautiful planes
+- [20:41.470] giving you lectures on how to live
+- [20:43.430] and how to govern your own affairs.
+- [20:45.530] No, the the gleaming marvels of Riyadh and Abu Dhabi
+- [20:49.890] were not created by the so-called nation-builders,
+- [20:52.690] neocons or liberal nonprofits like those who spent trillions
+- [20:57.630] and trillions of dollars failing to develop Kabul,
+- [21:03.900] Baghdad, so many other cities.
+- [21:06.410] Instead, the birth of a modern Middle East
+- [21:09.380] has been brought by the people of the region themselves,
+- [21:13.040] the people that are right here,
+- [21:14.300] the people that have lived here all their lives
+- [21:16.290] developing your own sovereign countries,
+- [21:19.510] pursuing your own unique visions,
+- [21:21.420] and charting your own destinies in your own way.
+- [21:25.220] It's really incredible what you've done.
+- [21:28.020] In the end the so-called nation-builders
+- [21:31.040] wrecked far more nations than they built,
+- [21:33.100] and the interventionalists were intervening in complex societies
+- [21:39.560] that they did not even understand themselves.
+- [21:41.890] They told you how to do it,
+- [21:43.230] but they had no idea how to do it themselves.
+- [21:46.740] Peace, prosperity,, and progress ultimately came not
+- [21:49.610] from a radical rejection of your heritage,
+- [21:53.170] but rather from embracing your national traditions
+- [21:56.310] and embracing that same heritage that you love so dearly,
+- [22:06.480] and it's something only you could do.
+- [22:09.240] You achieved a modern miracle the Arabian way.
+- [22:13.420] That's a good way.
+- [22:20.920] Today, the Gulf Nations have shown this entire region
+- [22:24.450] a path towards safe and orderly societies
+- [22:27.790] with improving quality of life, flourishing economic growth,
+- [22:31.800] expanding personal freedoms,
+- [22:33.390] and increasing responsibilities on the world stage.
+- [22:37.200] After so many decades of conflict,
+- [22:39.360] finally it is within our grasp
+- [22:41.230] to reach the future that generations before us
+- [22:44.870] could only dream about, a land of peace, safety,
+- [22:47.980] harmony, opportunity, innovation and achievement
+- [22:51.660] right here in the Middle East. So beautiful.
+- [22:54.020] It's such a beautiful thing that's happening.
+- [22:55.770] I guess the people that are here can't even really appreciate it
+- [23:00.440] because you see it happening,
+- [23:01.750] and it's when you come to a place
+- [23:04.650] that you haven't seen in five years
+- [23:06.230] or 10 years or 20 years, that it's even more incredible.
+- [23:09.980] When I left office just over four years ago,
+- [23:12.720] that future seemed almost impossible, what you've done.
+- [23:16.610] Together we had obliterated the killers of ISIS.
+- [23:20.950] We wiped them out,
+- [23:22.390] and terminated its founder and leader, al-Baghdadi.
+- [23:27.200] We had healed the divide in the Gulf Cooperation Council.
+- [23:32.210] It's a very big deal, and united the nations of the region
+- [23:35.910] to stand against the enemies of all civilization.
+- [23:39.620] We'd imposed unprecedented sanctions on Iran
+- [23:43.020] and starved the regime of resources to fund terror.
+- [23:47.130] They were unable to fund anything
+- [23:49.130] because they had no money left.
+- [23:50.990] They had no money, but the new administration came in
+- [23:54.790] and let them have a lot of money,
+- [23:56.310] and you saw what happened. It was not money well spent.
+- [24:00.140] And with the historic Abraham Accords that were so proud of,
+- [24:04.300] all the momentum was aimed at peace,
+- [24:07.990] and it aimed very successfully.
+- [24:09.700] It's been an amazing thing, the Abraham Accords.
+- [24:13.070] And it's my fervent hope, wish,
+- [24:15.500] and even my dream that Saudi Arabia,
+- [24:18.160] a place I have such respect for,
+- [24:19.980] especially over the last fairly short period of time
+- [24:23.680] what you've been able to do,
+- [24:24.930] but will soon be joining the Abraham Accords.
+- [24:27.520] I think it'll be a tremendous tribute to your country,
+- [24:31.000] and it will be something that's really going to be
+- [24:33.940] very important for the future of the Middle East.
+- [24:36.700] I took a risk in doing them,
+- [24:38.520] and they've been an absolute bonanza
+- [24:41.150] for the countries that have joined.
+- [24:43.550] The Biden administration did nothing for four years.
+- [24:46.540] We would have had it filled out,
+- [24:48.700] but it will be a special day in the Middle East
+- [24:50.890] with the whole world watching when Saudi Arabia joins us.
+- [24:54.150] And you'll be greatly honoring me,
+- [24:57.020] and you'll be greatly honoring all of those people
+- [24:59.790] that have fought so hard for the Middle East,
+- [25:01.840] and I really think it's going to be something special.
+- [25:04.170] But you'll do it in your own time,
+- [25:06.320] and that's what I want, and that's what you want,
+- [25:08.290] and that's the way it's going to be.
+- [25:10.300] When I left office, the only thing still standing
+- [25:12.760] between this region and its unbelievable potential
+- [25:16.130] was a small group of rogue actors and violent thugs
+- [25:20.730] seeking constantly to drag the Middle East backward
+- [25:23.830] and into havoc, mayhem, and indeed into war.
+- [25:28.190] Unfortunately instead of confronting
+- [25:30.200] these destructive forces,
+- [25:31.820] the last US administration chose to enrich them and empower them
+- [25:36.280] and give them billions and billions of dollars.
+- [25:39.300] The Biden administration,
+- [25:40.540] the worst administration in the history of our country,
+- [25:42.990] by the way, spurned our most trusted
+- [25:45.710] and longstanding Gulf partners.
+- [25:48.250] And I can say partners worldwide,
+- [25:51.530] one of our great, great partners,
+- [25:53.200] no matter who we look to,
+- [25:54.840] and we have great partners in the world,
+- [25:58.270] but we have none stronger
+- [26:00.410] and nobody like the gentleman that's right before me.
+- [26:04.900] He's your greatest representative,
+- [26:07.160] greatest representative.
+- [26:15.250] And if I didn't like him, I'd get out of here so fast.
+- [26:19.250] You know that, don't you? He knows me well. I do.
+- [26:22.790] I like him a lot. I like him too much.
+- [26:25.680] That's why we give so much, too much.
+- [26:29.080] I like you too much. Great guy.
+- [26:35.320] They lifted sanctions on Iran in exchange for getting nothing
+- [26:41.500] and sent the regime tens of billions of dollars
+- [26:43.920] to fund terror and death all over the world,
+- [26:46.320] and they laughed at him. They laughed at our leader,
+- [26:49.870] and they're still laughing at our leader.
+- [26:52.090] They thought him a fool,
+- [26:54.210] and they made nothing but trouble ever since,
+- [26:56.600] including the funding of October 7th,
+- [26:59.050] one of the worst days ever in the history of the Middle East,
+- [27:01.650] a horrible day.
+- [27:03.570] Biden removed the Houthis
+- [27:05.730] from the list of foreign terrorist organizations
+- [27:08.710] even while missiles and drones were being launched right here
+- [27:11.790] at your beautiful city of Riyadh and launched at ships
+- [27:15.860] if they happened to be sailing in the wrong location.
+- [27:19.370] The Biden administration's extreme weakness and gross
+- [27:22.440] incompetence derailed progress toward peace,
+- [27:26.080] destabilized the region,
+- [27:27.480] and put at risk everything we had worked
+- [27:29.780] so hard to build together.
+- [27:32.010] And when you think of the great achievements
+- [27:33.710] that you've made to do it
+- [27:34.930] in light of a pretty hostile administration,
+- [27:38.960] an administration that was not a believer,
+- [27:43.700] it makes your achievements even greater.
+- [27:45.700] It makes them even greater. You know that.
+- [27:52.200] But in a few short months since taking office,
+- [27:54.690] we have achieved the swift return
+- [27:56.610] of American strength at home and abroad.
+- [27:59.430] Now working with the vast majority of people
+- [28:01.650] in this region who seek stability and calm,
+- [28:04.840] our task is to unify against the few agents of chaos
+- [28:08.230] and terror that are left and that are holding hostage
+- [28:12.010] the dreams of millions and millions of great people.
+- [28:15.400] The biggest and most destructive of these forces
+- [28:17.920] is the regime in Iran,
+- [28:20.840] which has caused unthinkable suffering in Syria,
+- [28:23.710] Lebanon, Gaza, Iraq, Yemen and beyond.
+- [28:27.910] There could be no sharper contrast
+- [28:29.610] with the path you have pursued on the Arabian Peninsula
+- [28:33.950] than the disaster unfolding right across
+- [28:37.000] in the Gulf of Iran.
+- [28:40.590] Think of that. They wanted to name it that,
+- [28:43.500] I said, "They're not going to let them do that.
+- [28:45.970] Do you mind if I stop that?" I stopped it.
+- [28:48.640] We're not going to let that happen.
+- [28:56.460] While you have been constructing the world's tallest skyscrapers
+- [29:00.850] in Jeddah and Dubai, Tehran's,
+- [29:05.160] the year land marks are collapsing into rubble and dust.
+- [29:08.800] They had it going for a little while
+- [29:10.390] under a much different system,
+- [29:12.550] but those buildings are largely falling apart,
+- [29:16.290] falling down while you're building some of the world's
+- [29:19.020] biggest and most incredible infrastructure projects,
+- [29:23.320] buildings, all sorts of things you're building
+- [29:25.700] that nobody's ever even seen before.
+- [29:28.240] Iran's decades of neglect and mismanagement
+- [29:30.950] have left the country plagued by rolling blackouts,
+- [29:33.620] lasting for hours a day all the time you hear about it.
+- [29:38.860] While your skill has turned dry deserts into fertile farmland,
+- [29:42.290] Iran's leaders have managed to turn green farmland
+- [29:45.400] into dry deserts as their corrupt water mafia,
+- [29:50.340] let's call it the water mafia,
+- [29:51.930] to causes droughts and empty riverbeds.
+- [29:55.240] They get rich, but they don't let the people have any of it.
+- [29:59.290] And then of course there's the key difference
+- [30:01.360] at the root of it all,
+- [30:03.240] while the Arab states are focused on becoming pillars
+- [30:06.150] of regional stability and world commerce,
+- [30:08.860] Iran's leaders have focused on stealing their people's wealth
+- [30:12.860] to fund terror and bloodshed abroad.
+- [30:16.390] The most tragic of all,
+- [30:17.630] they have dragged down an entire region with them.
+- [30:21.900] Countless lives were lost in the Iranian effort
+- [30:25.120] to maintain a crumbling regime in Syria.
+- [30:28.230] Look at what happened with Syria.
+- [30:30.550] In Lebanon, their Hezbollah proxies have pillaged
+- [30:35.060] the hopes of a nation whose capital Beirut was
+- [30:38.380] once called the Paris of the Middle East.
+- [30:42.060] Can you imagine all of this misery
+- [30:44.750] and so much more was entirely avoidable, absolutely avoidable.
+- [30:50.890] And Mohammed knew that. He knew that.
+- [30:53.770] Smart people knew that.
+- [30:55.320] If only the Iranian regime had focused on building
+- [30:58.270] their nation up instead of tearing the region down.
+- [31:02.620] Yet I'm here today not merely to condemn
+- [31:05.070] the past chaos of Iran's leaders,
+- [31:07.820] but to offer them a new path
+- [31:09.520] and a much better path toward a far better
+- [31:12.960] and more hopeful future. As I've shown repeatedly,
+- [31:16.690] I am willing to end past conflicts
+- [31:18.830] and forge new partnerships for a better and more stable world,
+- [31:22.920] even of our differences may be very profound,
+- [31:25.610] which obviously they are, in the case of Iran,
+- [31:29.350] I have never believed in having permanent enemies.
+- [31:32.940] I am different than a lot of people think.
+- [31:35.850] I don't like permanent enemies,
+- [31:37.710] but sometimes you need enemies to do the job
+- [31:41.350] and you have to do it right. Enemies get you motivated.
+- [31:44.550] In fact, some of the closest friends
+- [31:47.120] of the United States of America
+- [31:49.210] are nations we fought wars against in generations past,
+- [31:53.220] and now they're our friends and our allies.
+- [31:56.900] I want to make a deal with Iran. If I can make a deal with Iran,
+- [32:00.600] I'll be very happy if we're going to make your region
+- [32:03.680] and the world a safer place.
+- [32:05.360] But if Iran's leadership rejects this olive branch
+- [32:08.340] and continues to attack their neighbors,
+- [32:10.800] then we will have no choice
+- [32:12.380] but to inflict massive maximum pressure,
+- [32:17.030] drive Iranian oil exports to zero, like I did before.
+- [32:21.620] Did you know that, they were a virtually bankrupt country
+- [32:27.460] because of what I did, they had no money for terror,
+- [32:30.260] they had no money for Hamas or Hezbollah
+- [32:33.700] and take all action required to stop the regime
+- [32:36.350] from ever having a nuclear weapon.
+- [32:39.470] Iran will never have a nuclear weapon.
+- [32:49.520] But with that said, Iran can have a much brighter future
+- [32:52.980] but will never allow America and its allies to be threatened
+- [32:57.070] with terrorism or nuclear attack.
+- [32:59.760] The choice is theirs to make.
+- [33:01.750] We really want them to be a successful country.
+- [33:04.400] We want them to be a wonderful, safe, great country,
+- [33:08.620] but they cannot have a nuclear weapon.
+- [33:10.320] This is an offer that will not last forever.
+- [33:14.870] The time is right now for them to choose, right now.
+- [33:18.090] We don't have a lot of time to wait.
+- [33:21.180] Things are happening at a very fast pace,
+- [33:23.790] they're happening right here.
+- [33:25.180] They're happening at a very fast pace,
+- [33:27.420] so they have to make their move right now, one way or the other.
+- [33:31.740] Make your move.
+- [33:33.160] As I said in my inaugural address,
+- [33:35.280] my greatest hope is to be a peacemaker
+- [33:37.870] and to be a unifier.
+- [33:40.190] I don't like war. We have the greatest military,
+- [33:43.630] by the way, in the history of the world.
+- [33:45.070] And I rebuilt our military in my first four years
+- [33:49.160] and rebuilt it into the most powerful military there is,
+- [33:55.230] and you saw that when I knocked out ISIS in three weeks.
+- [33:57.850] People said it would take four years, five years,
+- [34:00.430] we did it in three weeks.
+- [34:02.920] Just days ago, my administration successfully
+- [34:05.530] brokered a historic ceasefire
+- [34:07.380] to stop the escalating violence between India and Pakistan,
+- [34:12.560] and I used trade to a large extent to do it.
+- [34:15.110] I said, fellas, "Come on. Let's make a deal.
+- [34:18.000] Let's do some trading.
+- [34:19.970] Let's not trade nuclear missiles.
+- [34:22.460] Let's trade the things that you make so beautifully."
+- [34:26.530] And they both have very powerful leaders,
+- [34:28.900] very strong leaders, good leaders, smart leaders,
+- [34:32.500] and it all stopped.
+- [34:35.690] Hopefully it'll remain that way, but it all stopped.
+- [34:38.290] I was very proud of Marco Rubio
+- [34:40.840] and all of the people that worked so hard.
+- [34:42.850] Marco, stand up. You did on that. Thank you.
+- [34:45.480] JD Vance, Marco, the whole group worked with you,
+- [34:50.690] but it was a great job.
+- [34:53.030] And I think they're actually getting along.
+- [34:56.120] Maybe we can even get them together a little bit, Marco,
+- [34:59.340] where they go out and have a nice dinner together.
+- [35:01.850] Wouldn't that be nice?
+- [35:03.500] But we've come a long way
+- [35:05.330] and it could be millions of people could have died
+- [35:09.280] from that conflict that started off small
+- [35:13.110] and was getting bigger and bigger and bigger by the day.
+- [35:17.430] I've also been working relentlessly
+- [35:19.240] to end the terrible bloodshed
+- [35:20.760] between Russia and Ukraine and very importantly,
+- [35:24.750] talks are being held in Turkey later this week,
+- [35:27.880] probably on Thursday,
+- [35:29.870] and they could produce some pretty good results.
+- [35:33.180] Our people are going to be going there.
+- [35:34.550] Marco's going to be going there, others are going to be going,
+- [35:38.160] and we'll see if we can get it done.
+- [35:40.180] 5,000 people, young people for the most part,
+- [35:44.680] soldiers from Ukraine,
+- [35:46.570] soldiers from Russia, they're not from here
+- [35:48.910] and they're not from the United States,
+- [35:50.390] but they're souls. They're souls.
+- [35:53.050] I think usually mostly they're young, beautiful souls
+- [35:56.660] that left their parents waving goodbye,
+- [35:58.840] left their brothers and sisters, "Goodbye. I'll see you soon."
+- [36:02.410] And they got loaned to pieces.
+- [36:05.330] 5,000 on average a week are dying
+- [36:08.570] and people are dying elsewhere in the region,
+- [36:11.930] but tremendous numbers like we haven't seen
+- [36:14.930] since World War Two are dying and I want to stop it.
+- [36:19.360] I want to stop it. It's a horrible war.
+- [36:21.590] It would've never happened if I were president.
+- [36:25.260] That's a war that would've never happened.
+- [36:26.910] October 7th would've never happened if I were president
+- [36:29.820] because Iran had no money to pay Hamas or anybody else.
+- [36:33.640] They had no money.
+- [36:35.020] They were not looking to take care of them,
+- [36:36.720] they had to take care of themselves.
+- [36:38.270] They had no money. We stopped their oil effectively
+- [36:41.890] with the embargoes and sanctions.
+- [36:45.180] But let me take this opportunity
+- [36:46.780] to thank the Kingdom of Saudi Arabia
+- [36:49.020] for the constructive role
+- [36:50.850] that you've played in facilitating the Ukraine talks,
+- [36:53.990] and it really is… You've been amazing.
+- [36:57.430] You've made everything available to us.
+- [36:59.260] Thank you very much. Thank you.
+- [37:05.240] And if we get that settled,
+- [37:06.440] we'll pay a special tribute to what you've done.
+- [37:08.620] You really did lay a great groundwork.
+- [37:10.490] Thank you very much. Appreciate it.
+- [37:16.160] The West should not be dragging itself
+- [37:18.140] backward into another endless war in Europe,
+- [37:21.290] yet another endless war.
+- [37:23.820] We should stop the killing and work together
+- [37:26.290] to address the biggest long-term threats as one unbeatable team.
+- [37:31.460] Think of us as an unbeatable team.
+- [37:33.420] I mean, when you look at what you've done here,
+- [37:36.070] that's much more difficult than stopping stupidity.
+- [37:41.440] Think of it, it's stupidity.
+- [37:44.690] What you've done is much more difficult
+- [37:46.570] and you did it better than anybody else has ever done it.
+- [37:49.210] As President of the United States,
+- [37:54.620] my preference will always be for peace and partnership,
+- [37:58.950] whenever those outcomes can be achieved,
+- [38:01.210] always, it's always going to be that way.
+- [38:04.000] Only a fool would think otherwise.
+- [38:06.310] In recent years, far too many American presidents
+- [38:09.660] have been afflicted with the notion
+- [38:11.650] that it's our job to look into the souls of foreign leaders
+- [38:14.920] and use US policy to dispense justice for their sins.
+- [38:20.410] They loved using our very powerful military,
+- [38:24.650] and now it's really the most powerful it's ever been.
+- [38:26.990] We just are getting a budget approved,
+- [38:29.670] $1 trillion, the highest budget we've ever had in history
+- [38:34.000] for military, $1 trillion,
+- [38:36.850] and we're getting the greatest missiles, the greatest weapons,
+- [38:40.910] and I hate to do it, but you have to do it
+- [38:44.390] because we believe in peace through strength.
+- [38:46.600] You have to have the strength,
+- [38:47.950] otherwise bad things could happen.
+- [38:49.510] But hopefully, we'll never have to use any of those weapons.
+- [38:53.800] It seems to be an awfully big waste of money
+- [38:56.260] if you're never going to use them,
+- [38:57.650] but hopefully we'll never have to use them
+- [38:59.250] because the destructive power of some of those weapons
+- [39:02.570] are like nobody's seen before.
+- [39:05.930] I believe it is God's job to sit in judgment,
+- [39:08.870] my job, to defend America
+- [39:11.120] and to promote the fundamental interest of stability,
+- [39:15.680] prosperity, and peace. That's what I really want to do.
+- [39:19.340] I will never hesitate to wield American power
+- [39:22.380] if it's necessary to defend the United States
+- [39:25.070] or to help defend our allies,
+- [39:35.710] and there will be no mercy for any foe
+- [39:37.720] who tries to do us or them harm.
+- [39:41.440] We will have no mercy. They understand that.
+- [39:43.760] That's why I've been pretty lucky.
+- [39:46.080] A lot of people think, "He's looking to fight.
+- [39:49.070] He's looking to fight," and things get settled.
+- [39:51.020] It's an amazing thing when they really think you mean it,
+- [39:55.230] but we do. We have the greatest military,
+- [39:56.940] the strongest military, stronger than any…
+- [39:59.090] Nobody's even close.
+- [40:00.620] We have the best weapons in the world,
+- [40:03.170] but we don't want to use them.
+- [40:04.500] If you threaten America or our partners, however,
+- [40:07.650] then you'll be faced with overwhelming strength
+- [40:10.040] and devastating force.
+- [40:11.590] We have things that you don't even know about,
+- [40:13.670] you don't hear about,
+- [40:15.430] and if you did, you'd say, "Wow."
+- [40:18.140] In recent weeks following repeated attacks
+- [40:20.620] on American ships and freedom of navigation in the Red Sea,
+- [40:24.690] the United States military launched
+- [40:26.440] more than 1,100 strikes on the Houthis in Yemen.
+- [40:32.810] As a result, the Houthis agreed to stop.
+- [40:37.020] They said, "We don't want this anymore."
+- [40:39.810] It's the first time you've heard that from them too.
+- [40:41.770] They're tough, they're fighters.
+- [40:43.780] But just days ago we asked to cease targeting commercial.
+- [40:49.790] They were not going to be targeting commercial ships
+- [40:52.480] in any way, shape or form or anything American,
+- [40:56.260] and they were very happy that we stopped,
+- [41:00.120] but we had 52 days of thunder and lightning
+- [41:04.990] like they've never seen before.
+- [41:07.700] This was a swift, ferocious, decisive
+- [41:10.110] and extremely successful use of military force.
+- [41:13.480] Not that we wanted to do it,
+- [41:14.920] but they were shooting down ships.
+- [41:16.950] They were shooting at you.
+- [41:18.690] They were shooting at Saudi Arabia.
+- [41:20.600] We don't -- I don't want them shooting in Saudi Arabia,
+- [41:22.650] if that's okay. So we hit them hard.
+- [41:26.190] We got what we came for, and then we got out.
+- [41:29.860] Since January 20th,
+- [41:31.260] the US military has terminated 83 terrorist leaders
+- [41:35.200] operating across Iraq, Syria, and Somalia,
+- [41:37.900] including ISIS's number two global leader.
+- [41:42.520] You read about that just recently.
+- [41:44.270] With the help of Pakistan, we apprehended
+- [41:47.370] the ISIS terrorists responsible for the attack
+- [41:49.910] on 13 American service members at Abbey Gate.
+- [41:53.250] That horrible, horrible disaster.
+- [41:58.590] During this Afghanistan withdrawal,
+- [42:02.410] that's another thing that we don't even think
+- [42:04.330] about so much anymore.
+- [42:05.530] 13 died, but 42 were horribly wounded,
+- [42:08.420] but hundreds of people died overall,
+- [42:10.230] because I count the people on the other side.
+- [42:13.240] Hundreds of people, just grossly incompetent.
+- [42:16.510] It's probably why Putin decided to go into Ukraine,
+- [42:20.900] something he never would've done if I were president,
+- [42:23.380] but we wouldn't have had the problems of October 7th
+- [42:26.550] if I were president.
+- [42:27.840] We wouldn't have had Ukraine, Russia, if I were president,
+- [42:31.570] we wouldn't have had Abbey Gate
+- [42:33.120] because there wouldn't have been any reason.
+- [42:35.570] We were getting out, but we were getting out with dignity
+- [42:38.490] and with strength and power,
+- [42:41.000] but the way they got out was not good.
+- [42:43.620] I think it was the most embarrassing moment
+- [42:45.690] in the history of our country.
+- [42:48.120] And we've been working tirelessly
+- [42:49.650] to bring back all hostages held by Hamas.
+- [42:53.340] We brought back a lot already, but we're bringing back more.
+- [42:57.110] This weekend, we successfully negotiated the release
+- [42:59.850] of the last American hostage.
+- [43:02.660] Edan Alexander just came out a few hours ago,
+- [43:05.440] and we continue to work to get that war
+- [43:07.920] ended as quickly as possible.
+- [43:09.610] It's a horrible thing that's taking place.
+- [43:12.200] All civilized people must condemn
+- [43:14.230] the October 7th atrocities against Israel,
+- [43:17.670] which would never have happened, again,
+- [43:19.900] if you had probably a different president,
+- [43:22.240] but definitely if you had me as president.
+- [43:24.530] The people of Gaza deserve a much better future,
+- [43:36.600] but that will or can not occur as long as their leaders
+- [43:40.870] choose to kidnap, torture and target innocent men,
+- [43:43.780] women and children for political ends.
+- [43:45.860] The way those people are treated in Gaza,
+- [43:48.370] there's not a place in the world
+- [43:50.600] where people are treated so badly.
+- [43:52.130] It's horrible. After years of suffering,
+- [43:54.920] two of the nations most ravaged by terror
+- [43:58.540] are finally beginning to end their long nightmares
+- [44:01.190] under the new generation of leaders in Lebanon,
+- [44:06.190] where a friend of mine has just become the ambassador.
+- [44:09.600] He's going to be great.
+- [44:10.870] I said, "That could be a very dangerous job."
+- [44:13.030] He said, "I was born there. I'm Lebanese.
+- [44:15.400] I love that country."
+- [44:17.050] I said, "But it's very dangerous."
+- [44:19.100] This is a friend of mine from New York.
+- [44:22.200] I said, "But it's very dangerous.
+- [44:23.890] Are you sure you want to do it?"
+- [44:25.270] I never thought of him as being a warrior,
+- [44:27.170] but he is a warrior. He loves his country.
+- [44:29.800] He said, "If I'm injured or die,
+- [44:33.190] I'm dying for a country that I love."
+- [44:35.570] He grew up there.
+- [44:36.970] It's horrible what's happened in Lebanon,
+- [44:38.810] but you have a great ambassador, I can tell you that.
+- [44:41.070] And Lebanon, which has been endlessly victimized
+- [44:44.610] by Hezbollah and their sponsor, Iran,
+- [44:48.920] a new president and prime minister
+- [44:50.690] brought the first real chance
+- [44:52.610] in decades for a more productive partnership
+- [44:54.780] with the United States,
+- [44:56.040] and we're going to work with their new ambassador
+- [44:58.550] and everybody else, Marco,
+- [44:59.970] and we're going to see if we can really help them out
+- [45:01.840] and let them get over that very high grid
+- [45:06.400] that they're going to have to get over.
+- [45:08.320] My administration stands ready to help
+- [45:10.550] Lebanon create a future of economic development
+- [45:13.490] and peace with its neighbors.
+- [45:15.260] You have tremendous people in Lebanon, doctors, lawyers,
+- [45:19.400] great professional people. I hear it so many times.
+- [45:22.850] Likewise, in Syria, which has seen so much misery and death,
+- [45:28.150] there is a new government that will hopefully succeed
+- [45:32.670] in stabilizing the country and keeping peace.
+- [45:35.860] That's what we want to see in Syria.
+- [45:38.290] They've had their share of travesty,
+- [45:40.890] war, killing, many years.
+- [45:44.840] That's why my administration has already
+- [45:47.880] taken the first steps toward restoring normal relations
+- [45:51.380] between the United States and Syria
+- [45:53.880] for the first time in more than a decade.
+- [46:01.140] And I'm very pleased to announce that Secretary Marco Rubio
+- [46:05.560] will be meeting with the new Syrian foreign minister
+- [46:08.330] in Turkey later this week.
+- [46:09.920] And very importantly,
+- [46:11.690] after discussing the situation in Syria
+- [46:14.180] with the Crown Prince, your Crown Prince,
+- [46:23.200] and also with President Erdogan of Turkey
+- [46:26.980] who called me the other day
+- [46:28.520] and asked for a very similar thing,
+- [46:31.420] among others and friends of mine,
+- [46:33.540] people that I have a lot of respect for in the Middle East,
+- [46:36.410] I will be ordering the cessation of sanctions against Syria
+- [46:40.630] in order to give them a chance at greatness.
+- [47:22.310] Oh, what I'd do for the Crown Prince.
+- [47:27.290] The sanctions were brutal and crippling
+- [47:29.180] and served as an important, really an important function,
+- [47:33.860] nevertheless, at the time,
+- [47:35.430] but now it's their time to shine.
+- [47:37.310] It's their time to shine. We're taking them all off,
+- [47:39.500] and I think they're going to have,
+- [47:43.610] based on the people and the spirit
+- [47:45.070] and everything else that I'm hearing about,
+- [47:47.300] so I say good luck, Syria.
+- [47:48.500] You show us something very special
+- [47:50.480] like they've done frankly in Saudi Arabia.
+- [47:53.690] Okay? They're going to show us something special.
+- [47:56.060] Very good people.
+- [47:57.810] Everywhere we can,
+- [47:59.100] my administration is pursuing peaceful engagement,
+- [48:02.640] offering a strong and steady hand of friendship
+- [48:05.080] to all that will take it in good faith.
+- [48:08.770] Together we have made unprecedented strides
+- [48:13.030] and tremendous progress,
+- [48:16.090] and we're still just at the dawn of the bright new day
+- [48:19.390] that awaits for the people of the Middle East,
+- [48:21.610] the great, great people of the Middle East.
+- [48:24.730] If the responsible nations of this region seize this moment,
+- [48:29.350] put aside your differences
+- [48:30.820] and focus on the interest that unite you,
+- [48:33.780] then all of humanity will soon be amazed
+- [48:36.000] at what they will see right here
+- [48:38.540] in this geographic center of the world.
+- [48:41.560] It really is. It's like a center of the world,
+- [48:44.310] and the spiritual heart of its greatest faiths.
+- [48:49.010] For the first time in a thousand years,
+- [48:51.360] the world will look at this region
+- [48:53.350] not as a place of turmoil and strife and war and death,
+- [48:58.860] but as a land of opportunity and hope,
+- [49:00.990] just like you've done right here,
+- [49:02.490] a cultural and commercial crossroads of the planet.
+- [49:07.400] Security and stability will lift
+- [49:09.500] millions into lives of safety and success,
+- [49:12.760] and the nations of this region will be free
+- [49:15.650] to realize your highest destinies,
+- [49:18.250] honor your proud histories,
+- [49:19.870] harness amazing new opportunities,
+- [49:22.700] and bring incredible glory to Almighty God.
+- [49:27.190] People will come from all over the globe
+- [49:29.220] to be inspired by the cities you build,
+- [49:31.540] the businesses you create, the technologies you invent,
+- [49:35.410] and the beauty, talent and potential
+- [49:37.600] you unleash right in the hearts of your citizens.
+- [49:42.080] Each of you will be able to take tremendous pride in the legacy
+- [49:45.340] you will leave to your children because you will have given them
+- [49:49.160] the ultimate blessings of prosperity and peace.
+- [49:52.200] So important. In the United States,
+- [49:54.920] we've launched the Golden Age of America.
+- [49:58.130] It's the golden age. We see it. We see it with all that money,
+- [50:02.480] trillions and trillions of dollars pouring in,
+- [50:06.500] hundreds of thousands of jobs coming in with it.
+- [50:10.650] And with the help of the people of the Middle East
+- [50:14.550] and the people in this room, partners throughout the region,
+- [50:18.420] the golden age of the Middle East
+- [50:20.280] can proceed right alongside of us.
+- [50:23.300] We will work together, we will be together,
+- [50:26.460] we will succeed together, we will win together,
+- [50:30.240] and we will always be friends.
+- [50:39.220] Thank you.
+- [50:44.770] So Mohammed, I want to thank you again very much for having me
+- [50:47.500] and as a representative of what I think
+- [50:50.600] is the greatest nation in the world.
+- [50:53.450] We are with you all the way,
+- [50:54.850] and you have a tremendous future.
+- [50:57.150] Thank you very much.
+- [50:59.150] And please pay my respects to your father. Thank you very much.
+- [51:03.497] (applause)

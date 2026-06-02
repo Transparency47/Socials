@@ -1,0 +1,582 @@
+<!-- source: https://www.youtube.com/watch?v=03d2v6hZk_A -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 03d2v6hZk_A -->
+<!-- date_published: 2025-02-24T14:54:39+00:00 -->
+<!-- date_accessed: 2026-06-02T01:29:30.057342+00:00 -->
+
+# Transcript: President Trump Participates in a Ceremonial Swearing In of Secretary of Commerce Howard Lutnick
+
+- [00:00.399] thank you very much today I'm honored to
+- [00:03.199] swear in our next secretary of Commerce
+- [00:06.160] Mr Howard letnik I've known him a long
+- [00:08.280] time he's great guy I want to just
+- [00:10.840] congratulate Howard and Allison and Kyle
+- [00:13.440] Brandon Casey Ryan and your entire
+- [00:16.279] family wonderful family beautiful family
+- [00:19.600] Howard's one of the most experienced and
+- [00:21.359] talented Business Leaders of our time
+- [00:23.640] done a amazing job on Wall Street and
+- [00:25.840] far beyond but more importantly he's a
+- [00:28.560] patriot who loves our country and has
+- [00:30.279] shown tremendous courage and strength
+- [00:32.239] throughout his career Howard began at
+- [00:35.079] the fame caner Fitzgerald in 1983 and by
+- [00:38.120] the age of 29 he rose to become the
+- [00:40.280] president and
+- [00:41.600] CEO and one of the hottest firms on Wall
+- [00:44.680] Street much like myself Howard uh should
+- [00:47.920] not be here today on September 11th 2001
+- [00:51.600] Howard's company was at its absolute
+- [00:53.960] height doing unbelievable dominating
+- [00:56.640] Wall Street and stocks and bonds and
+- [00:59.320] trading from its headquarters on the
+- [01:02.320] 101st to the 105th floor he had the top
+- [01:06.200] three or four floors of the World Trade
+- [01:08.680] Center the North Tower of the World
+- [01:11.640] Trade Center and every day Howard got up
+- [01:15.200] and went to work early he'd always go in
+- [01:18.080] and he'd go to work early and uh he'd be
+- [01:20.840] there 6:00 in the morning and as you
+- [01:23.320] know the the hit was around 8:45 or
+- [01:26.520] something like that so he would have
+- [01:27.880] been there on almost any day other than
+- [01:31.159] what this because his wife was very
+- [01:32.840] angry at him because he wouldn't deliver
+- [01:36.439] his child to school she said you never
+- [01:39.079] take who is the child let me see where's
+- [01:41.560] the child the you saved your father
+- [01:44.159] child anymore you saved your father's
+- [01:46.360] life huh should hold that against you're
+- [01:49.360] going to leave him more than the other
+- [01:50.719] kids
+- [01:52.200] right well so he took he took what is
+- [01:56.479] your first name Kyle he took Kyle Kyle
+- [02:00.000] congratulations nice job but he took
+- [02:02.960] Kyle that one day to school after years
+- [02:05.560] he finally said okay I'll do it and
+- [02:08.239] that's the only time so he was actually
+- [02:10.679] riding down the wests side highway and
+- [02:12.400] he saw the plane hit and uh it's an
+- [02:15.400] amazing of the rest of history and your
+- [02:17.040] brother was in there too I think right
+- [02:19.239] and it was just a terrible it's a big
+- [02:21.000] story and every single caner Fitzgerald
+- [02:23.959] employee who was at work that day lost
+- [02:26.000] their lives which was almost 100% of the
+- [02:28.480] company and Howard lost more than 650
+- [02:32.360] friends because they were all friends
+- [02:33.599] they had a a really well unified just
+- [02:36.640] highly respected company a lot of talent
+- [02:38.599] in that company but the employees loved
+- [02:41.480] ones including his brother and best
+- [02:43.360] friend most people would have been
+- [02:45.920] defeated they would have probably gone
+- [02:48.879] on to not too much but Howard rebuilt
+- [02:51.640] the company step by step and as he did
+- [02:54.280] it he gave a tremendous amount of the
+- [02:56.040] profits and other things to the families
+- [02:59.000] of his col colleagues who were killed in
+- [03:00.959] the World Trade Center on that horrible
+- [03:04.000] day and it showed something about Howard
+- [03:06.560] that's really uh incredible his
+- [03:08.640] resilience it's a very few people could
+- [03:10.920] have done even thought of doing it but
+- [03:12.640] his resilience and tenacity have earned
+- [03:15.560] him the respect and admiration of
+- [03:17.760] everyone in the financial world but more
+- [03:19.680] importantly Howard understands from
+- [03:21.959] personal experience why we put America
+- [03:24.040] first because we love our families we
+- [03:26.560] love our fellow citizens and we love our
+- [03:28.480] country so much and he really loves this
+- [03:30.400] country and I wouldn't have done it if I
+- [03:32.400] didn't think so and he's got so many
+- [03:35.159] friends on New York and Wall Street and
+- [03:38.159] elsewhere and he has just really he's a
+- [03:41.080] relationship person and they're always
+- [03:43.720] the best and he's he's the best at it as
+- [03:46.799] Secretary of Commerce Howard will work
+- [03:48.760] tirelessly to protect our workers and
+- [03:51.720] our wealth and grow our economy into the
+- [03:54.920] strongest in the history of the world
+- [03:56.720] you know when he rebuilt the company it
+- [03:58.599] actually became much bigger and much
+- [04:00.439] stronger than the original company which
+- [04:02.200] is uh almost impossible to do it became
+- [04:05.400] hotter than even the original caner
+- [04:08.120] Fitzgerald but he's going to be
+- [04:09.799] unmatched as an emissary working to get
+- [04:12.400] jobs and Investments and his favorite
+- [04:15.680] word and I'm going to move him down to
+- [04:18.040] Fourth favorite word first is family
+- [04:19.799] love God not necessarily that order by
+- [04:22.800] the way I think let's put God first all
+- [04:25.360] right we'll put God first you know why
+- [04:27.160] because we don't want to take any
+- [04:28.759] chances that's why
+- [04:31.240] but uh I did that once I said I put I
+- [04:35.039] put tariff is my favorite word well and
+- [04:38.800] the the fake news went out and they
+- [04:40.360] really got me I'll tell you they said
+- [04:42.000] what about God family relationship a
+- [04:45.240] couple of words and I said you're right
+- [04:47.400] and so I made it now my fourth favorite
+- [04:49.240] word and Howard I think is you'll go
+- [04:51.199] along with me number four maybe even
+- [04:53.240] number five or six but he's uh he really
+- [04:56.560] understands something about business and
+- [04:58.120] we have been called by so many companies
+- [05:00.639] yesterday we had Tim Cook of appal in
+- [05:02.360] who's going to invest hundreds of
+- [05:03.680] billions of dollars in the country
+- [05:05.400] because of what we're doing and we have
+- [05:07.400] many many companies too too many to even
+- [05:09.720] mention they're coming roaring back into
+- [05:12.360] this uh country and it'll take maybe a
+- [05:15.520] little time but not that much time
+- [05:17.160] you're going to see things that you've
+- [05:18.240] never seen before at a level that you've
+- [05:20.120] never seen before and Howard's going to
+- [05:22.240] lead that charge and it'll uh help
+- [05:25.280] oversee the Tariff and trade agenda
+- [05:27.520] along with many other things will soon
+- [05:30.319] impose reciprocal tariffs because that
+- [05:32.479] means they charge us we charge them it's
+- [05:34.560] very simple whatever a company or
+- [05:37.720] country such as let's say India or China
+- [05:40.560] or any of them whatever they charge we
+- [05:42.440] want to be fair so reciprocal reciprocal
+- [05:44.960] meaning they charge us we charge them we
+- [05:47.520] haven't done that we've never done that
+- [05:49.000] we were getting ready to do it until Co
+- [05:51.520] hit we had the greatest economy in the
+- [05:53.120] history of the world and uh we were just
+- [05:56.400] getting started but uh the tariffing and
+- [05:59.280] going to be very interesting Howard's
+- [06:00.880] going to be in charge of it and I think
+- [06:02.160] you're going to see jobs and money
+- [06:04.039] flowing into the country like never has
+- [06:06.280] been seen before as we reduce inflation
+- [06:09.240] unleash energy bring down costs bring
+- [06:11.560] back manufacturing and lead the world in
+- [06:13.759] Innovation families will flourish and
+- [06:16.720] opportunities will Skyrocket we will
+- [06:18.960] Skyrocket like people haven't seen it's
+- [06:21.960] going to be a really big thing and I
+- [06:24.240] wouldn't feel the same confidence if I
+- [06:25.880] didn't have this man on my left and even
+- [06:28.240] though he spent a little bit of his time
+- [06:29.759] in life as a Democrat from New York I'm
+- [06:33.120] okay with it because I knew him during
+- [06:34.680] his Democrat days and that's okay but I
+- [06:38.039] just want to say that he is uh going to
+- [06:40.120] help very strongly make America wealthy
+- [06:42.960] again make America great again and
+- [06:45.160] there's nobody that can do the job
+- [06:46.680] better so Mr Secretary of Commerce I
+- [06:49.400] just welcome you abroad there's nothing
+- [06:52.080] you can do so big as this there is no
+- [06:54.000] deal you can do that's bigger every deal
+- [06:56.639] that's why you can never go back into
+- [06:57.960] business because it seems like small
+- [06:59.560] potatoes no matter how big it is
+- [07:01.240] including even caner Fitzgerald it's all
+- [07:03.960] small potatoes compared to what we're
+- [07:05.599] doing now so it's a great honor to have
+- [07:07.919] you and your family aboard thank you
+- [07:09.599] very much and thank you very much in
+- [07:11.599] particular thank you very
+- [07:19.879] much so first i' I'd like to thank you
+- [07:23.360] president trump it um it is the greatest
+- [07:26.919] honor to work for you uh to be with you
+- [07:30.160] to carry uh your name your leadership
+- [07:32.960] and your flag throughout the world um
+- [07:36.639] the Press has no idea who the gentleman
+- [07:39.680] to my left is they portray him in all
+- [07:42.520] sorts of ways uh but I know him as the
+- [07:47.879] smartest most thoughtful and most
+- [07:50.599] intuitive person I've ever met and uh it
+- [07:54.080] is really it's amazing uh to be in this
+- [07:57.000] room and and to work for him I have to
+- [07:59.599] my right my my friend jie Vance who was
+- [08:01.800] kind enough even to introduce me uh to
+- [08:04.879] the Senate and uh he gave me the
+- [08:06.680] greatest compliment he called me a good
+- [08:11.120] dude so um I have really the most
+- [08:14.400] wonderful family I have my wife Allison
+- [08:16.360] we've been married for 30 years and I
+- [08:19.080] always uh when I come home because I
+- [08:20.560] come home late at night I walk in the
+- [08:22.639] door and I yell hello greatest wife
+- [08:24.919] she's just an amazing girl uh my four
+- [08:27.639] children Kyle who you know has saved my
+- [08:29.800] life so now this is going to cost me
+- [08:31.519] dearly um my son Brandon my daughter
+- [08:34.440] Casey my son Ryan and my sister Edie my
+- [08:37.919] two brothers-in-law uh Gary and Rick uh
+- [08:41.240] my sister-in-law Abby I mean this is as
+- [08:43.680] beautiful a day as you could
+- [08:46.000] have the
+- [08:48.000] opportunity that the Trump
+- [08:49.920] Administration is going to bring to
+- [08:52.040] America is so extraordinary you know
+- [08:55.440] people think the golden age is a
+- [08:58.040] statement it's like saying Maga make
+- [09:00.880] America great again this is the greatest
+- [09:04.120] country on Earth it is such a great
+- [09:06.880] country that we can take care of our
+- [09:08.480] citizens and give them their social
+- [09:10.079] security we can take care of everyone
+- [09:11.959] and give them their Medicaid but we are
+- [09:13.880] going to get rid of so much waste Fraud
+- [09:16.160] and Abuse we're not going to hurt
+- [09:17.839] anybody but we're going to get rid of it
+- [09:19.760] and then we are going to grow this
+- [09:21.160] economy in a way that people have never
+- [09:23.120] seen and under the Trump Administration
+- [09:25.760] my goal and I'm happy to wear it on my
+- [09:27.760] shoulders is we are going to back
+- [09:29.399] balance the budget of the United States
+- [09:30.839] of America because Donald Trump
+- [09:33.519] understands Global business it's the
+- [09:35.279] first time you put in that chair the
+- [09:38.320] greatest businessman in the United
+- [09:40.320] States of America and I I just for one I
+- [09:42.279] have to tell you I cannot be more proud
+- [09:45.040] to serve my great friend and the
+- [09:47.320] greatest president in America Donald J
+- [09:49.880] Trump
+- [09:51.130] [Applause]
+- [10:00.839] so now we get to swear Howard in now
+- [10:04.040] where we need the actual we need to sign
+- [10:06.399] the commission first sign the commission
+- [10:07.720] first okay Mr President we sign the
+- [10:10.519] commission
+- [10:11.710] [Laughter]
+- [10:13.680] first I can't swear am men I guess until
+- [10:16.040] you sign the commission yes
+- [10:25.120] sir you ready you sure the last time
+- [10:29.000] change
+- [10:30.120] I get to work for you right here I mean
+- [10:31.760] what's better than this room never looks
+- [10:34.240] so beautiful how do you like the do look
+- [10:38.760] unbeliev the desk is a different desk
+- [10:41.360] it's one of seven but uh the Resolute
+- [10:44.760] desk is being renovated and refurbished
+- [10:47.959] after many many years of service it'll
+- [10:49.720] be back in 4 weeks in case anybody get
+- [10:52.800] St people
+- [11:03.320] okay you're
+- [11:07.100] [Applause]
+- [11:17.800] in all right now Howard come come next
+- [11:20.440] to your beautiful wife and your
+- [11:21.560] beautiful family
+- [11:23.079] here put your hand on the Bible raise
+- [11:25.519] your right hand and repeat after me I
+- [11:28.000] Howard lutnick I Howard letnik do
+- [11:30.200] solemnly swear do solemnly swear that I
+- [11:32.720] will support and defend the Constitution
+- [11:34.279] of the United States that will I will
+- [11:35.920] support and defend the Constitution of
+- [11:37.639] the United States against all enemies
+- [11:39.720] foreign and domestic against all enemies
+- [11:41.680] foreign and domestic that I will bear
+- [11:44.079] true faith and allegiance to the same
+- [11:46.079] and I will bear truth faith and
+- [11:47.639] allegiance to the same that I take this
+- [11:49.920] obligation freely I will take this
+- [11:52.639] obligation freely without any mental
+- [11:55.839] reservation without any mental
+- [11:57.680] reservation or purpose of evasion or
+- [11:59.680] purpose of evasion and that I will well
+- [12:01.880] and Faithfully discharge and I will well
+- [12:04.040] and Faithfully discharge the duties of
+- [12:06.079] the office on which I'm about to enter
+- [12:07.800] the duties of the office of which I am
+- [12:09.639] about to enter so help you God so help
+- [12:11.680] me God congratulations Mr
+- [12:23.199] secretary thank you very much Mr Mr
+- [12:26.360] President there are reports that um you
+- [12:29.560] were considering merging the United
+- [12:31.399] States Postal Service with the Commerce
+- [12:33.600] Department can you elaborate on if this
+- [12:35.440] is something you're considering we want
+- [12:36.600] to have a post office that works well
+- [12:38.880] and doesn't lose massive amounts of
+- [12:41.040] money and we're thinking about doing
+- [12:43.240] that and uh it'll be a form of a merger
+- [12:46.519] but it'll Remain the postal service and
+- [12:49.320] I think it'll operate a lot better than
+- [12:51.160] it has been over the years it's been a
+- [12:53.480] just a tremendous loser for this country
+- [12:56.120] tremendous amounts of money are being
+- [12:57.600] lost and we think we can do something
+- [12:59.800] that will be very good and keep it a
+- [13:03.360] very similar way but whether it's a
+- [13:05.800] merger or just using some of the very
+- [13:07.600] talented people that we have elsewhere
+- [13:10.079] so it doesn't lose so much it's losing a
+- [13:12.240] tremendous amount of money Mr President
+- [13:14.279] some members of Congress some members of
+- [13:16.279] Congress in red districts are facing
+- [13:18.079] push back from voters in town halls we
+- [13:20.079] know that Americans Americans voted for
+- [13:22.000] you on the immigration and the economy
+- [13:24.000] but these voters say they're angry and
+- [13:25.720] frustrated by these firings they don't
+- [13:27.519] like the work of Elon Musk and and these
+- [13:29.440] other actions what do you say to them
+- [13:31.480] who do you work for I work for ABC News
+- [13:33.199] sir who ABC News no
+- [13:37.120] wonder let me just tell you let me just
+- [13:39.480] tell you that I have today the highest B
+- [13:43.000] numbers I've ever had I have today the
+- [13:45.360] highest poll numbers of any Republican
+- [13:47.600] president ever we have even reject the
+- [13:50.240] Democrats but that's what I was just
+- [13:52.199] told and uh they like the job that we're
+- [13:54.920] doing they like the job that elon's
+- [13:56.480] doing he's doing something that a lot of
+- [13:58.040] people wouldn't have the courage to do
+- [14:00.079] we want to streamline our country we
+- [14:01.720] want to streamline because you know why
+- [14:03.360] because we want our country to Survive
+- [14:05.519] and Thrive and we're finding uh billions
+- [14:09.079] and billions of dollars of waste Fraud
+- [14:11.279] and Abuse billions and I mean numbers
+- [14:14.240] like you wouldn't believe and we haven't
+- [14:15.720] even started yet so uh it's actually
+- [14:18.959] just the opposite we've pulled it and
+- [14:21.519] people are thrilled they can't even
+- [14:22.920] believe it's happening and it won't
+- [14:24.639] affect many people it only affect the
+- [14:26.480] people that get caught stealing uh the
+- [14:29.399] waste Fraud and Abuse is at a level like
+- [14:31.639] nobody's ever seen it's been going on
+- [14:33.199] for years and all you have to do is look
+- [14:35.560] at the Social Security roles look at
+- [14:37.440] some of the things look at the way the
+- [14:38.880] money is going the Attorney General is
+- [14:41.160] looking into something environmental
+- [14:42.800] protection2
+- [14:44.759] billion uh and it's it's out and out
+- [14:47.680] fraud so uh I think the people are very
+- [14:50.399] happy yes Mr President I want to ask you
+- [14:52.320] about the um this week uh the secretary
+- [14:54.560] spent 4 hours with the European Union
+- [14:56.959] trade representative um the European
+- [14:59.199] Union has signal that they would lower
+- [15:00.680] tariffs and do a trade deal with the
+- [15:02.440] United States yeah the European Union
+- [15:03.959] wants to come back they've treated us
+- [15:05.560] very badly and the European Union wants
+- [15:07.880] to uh lower their tariffs because of the
+- [15:10.880] fact we were paying Fortune of tariffs
+- [15:13.199] we couldn't sell a car there we couldn't
+- [15:14.560] sell our farm products there they
+- [15:16.440] wouldn't take anything now all of a
+- [15:17.839] sudden they're being very nice and
+- [15:20.000] that's going to happen with a lot of
+- [15:21.199] others too the European Union is uh
+- [15:23.639] wanting to lower its barriers at very
+- [15:25.639] low levels they want to now bring their
+- [15:28.000] car number which was extremely high down
+- [15:30.399] to 2 and a half% which is the same thing
+- [15:32.240] that we charge that's reciprocal see
+- [15:35.000] that's what is happening reciprocal and
+- [15:37.959] I think it's a big start in the right
+- [15:39.560] direction with the European
+- [15:41.680] Union you called president zalinski of
+- [15:45.120] Ukraine a dictator do you think that
+- [15:47.279] President Putin of Russia is also a
+- [15:49.440] dictator I think that uh President Putin
+- [15:52.720] and uh president zalinski are gonna have
+- [15:55.399] to get together because you know what we
+- [15:57.079] want to stop killing millions of people
+- [16:00.440] you have young soldiers being killed if
+- [16:02.199] you saw the pictures that I saw of the
+- [16:03.720] battlefield from satellite you've never
+- [16:06.440] seen any pictures like that soldiers are
+- [16:09.040] being killed by the thousands a week
+- [16:11.079] thousands of soldiers a week as we speak
+- [16:13.399] they're they're being killed that's why
+- [16:15.160] I want to see a ceasefire and I want to
+- [16:16.920] get the deal done I think we have a a
+- [16:19.000] chance to get the deal done I had to
+- [16:20.839] make sure that Russia wanted to do it uh
+- [16:24.319] it's a war that would have never
+- [16:25.560] happened if I was president but it did
+- [16:27.600] happen so I got stuck with with it and I
+- [16:29.959] want to stop people from being killed
+- [16:31.639] you know it doesn't affect the United
+- [16:33.040] States very much it's on the other side
+- [16:34.680] of the ocean it does affect Europe and
+- [16:37.759] we put in three times more money we're
+- [16:39.560] in for 300 billion they're in for 100
+- [16:42.399] billion and you know Europe is also
+- [16:44.519] doing it in the form of a loan Biden
+- [16:46.880] just gave him money there was no loan
+- [16:49.120] there was no security there was no
+- [16:50.639] anything so we're going to either sign a
+- [16:53.440] deal or there's going to be uh a lot of
+- [16:56.519] problems with them so we're going to
+- [16:57.839] sign a deal to get security because we
+- [16:59.759] have to do that we're spending our
+- [17:01.639] treasure they're spending their blood
+- [17:03.800] they are and they're very brave and you
+- [17:06.679] know in every way you could imagine but
+- [17:09.360] we are spending our treasure on some in
+- [17:12.280] a country that's very very far away and
+- [17:14.959] it's okay but we have to be treated the
+- [17:17.079] same as Europe is being treated Europe
+- [17:18.880] gets their money back Europe is
+- [17:20.439] basically giving nothing because they
+- [17:22.439] get it back in the form of a loan and
+- [17:24.120] it's a guaranteed loan we don't get our
+- [17:26.400] money back and we're losing I mean we
+- [17:29.160] don't want to do that anymore so we're
+- [17:30.760] signing an agreement hopefully in the
+- [17:32.480] next fairly short period of time that
+- [17:35.200] will assure us that we'll get four or500
+- [17:37.520] billion dollar back we're in there for
+- [17:39.280] 300 billion now one other thing Europe
+- [17:43.000] is at 100 we're at 300 we think it has
+- [17:45.720] to equalize in other words they have to
+- [17:47.640] come up with more money because it has a
+- [17:49.919] big effect in Europe it doesn't have
+- [17:51.559] much of an effect in us because we have
+- [17:53.039] a big beautiful ocean in between but it
+- [17:55.960] does affect and Biden should have never
+- [17:58.039] gotten us into this mess we had an
+- [18:00.400] incompetent president who got us into a
+- [18:02.640] mess but we're going to get you out of
+- [18:04.480] it the same thing in the Middle East
+- [18:05.880] we're going to have some good news in
+- [18:07.000] the Middle East uh what happened
+- [18:09.440] yesterday the sight of those babies was
+- [18:12.720] not acceptable to anybody I nobody's
+- [18:15.240] seen anything like it Mr President are
+- [18:17.080] you going to Moscow there's a report out
+- [18:18.720] of France that you're going to Moscow on
+- [18:21.039] May 9th no no to join President Putin
+- [18:24.720] and then if I could sir just ask you
+- [18:25.919] about Cas Patel who's going to be sworn
+- [18:27.480] as soon as your FBI director
+- [18:29.559] um talk to us about your reaction to him
+- [18:31.720] getting sworn in and and the fact that
+- [18:33.960] many agents across the country are
+- [18:35.480] concerned that they will be fired in
+- [18:37.480] Mass for simply just doing their jobs no
+- [18:39.760] I think the agents are very happy about
+- [18:41.520] cash in fact the agents led the charge
+- [18:43.480] for cash one of the reasons I loved cash
+- [18:46.200] and wanted to put him in is because of
+- [18:47.840] the respect the agents had for him I
+- [18:49.559] think he's going to be I think he'll go
+- [18:51.200] down as the best ever at that position
+- [18:54.240] and uh it turned out he was very easy to
+- [18:56.480] get approved you know I was not sure
+- [18:58.280] he's tough guy strong guy he has his
+- [19:01.440] opinions and I wasn't sure he turned out
+- [19:03.320] to be very he went very smoothly I don't
+- [19:06.159] know if he's in the room now he's going
+- [19:07.320] to be in the room very short where is he
+- [19:08.960] El that I'm saying the right
+- [19:12.540] [Applause]
+- [19:14.080] thing I I can't speak too badly about
+- [19:17.240] him I better be
+- [19:18.960] careful I will say this about cash and
+- [19:21.480] Howard understands this the one of the
+- [19:24.240] reasons that I wanted him is because the
+- [19:26.520] agents love this guy and they respect
+- [19:29.159] this guy and this is what they wanted
+- [19:32.480] and even somebody like Trey gouty who's
+- [19:34.960] a very good guy but known as somewhat of
+- [19:37.520] a moderate person he came out and he
+- [19:40.480] came out with a statement that was so
+- [19:42.080] incredible he said cash is an incredible
+- [19:44.440] person people don't realize it when he
+- [19:46.880] said that there was no doubt left it was
+- [19:48.919] really a big statement made by somebody
+- [19:50.840] that's respected and on the moderate
+- [19:53.400] side and I will tell you I think cash is
+- [19:55.799] going to go down as maybe the best ever
+- [19:58.000] when it's all set done so I'm glad he's
+- [20:00.600] willing to do it thank
+- [20:02.919] you a little bit more you can you speak
+- [20:06.480] a little bit more about your meeting
+- [20:07.559] with Tim Cook you said that uh he was
+- [20:09.559] going to invest hundreds billions of
+- [20:11.120] dollars specific projects that he spoke
+- [20:12.840] to about all over the country all over
+- [20:15.159] the country going to start building he
+- [20:17.039] doesn't want to pay tariffs and he's
+- [20:18.799] going to start building but very big
+- [20:20.679] numbers you have to speak to him I
+- [20:21.880] assume they're going to announce it at
+- [20:23.120] some point but very big numbers he was
+- [20:24.679] here yesterday I met with him at length
+- [20:27.520] and uh Apple is coming here with
+- [20:29.720] tremendous dollars they're going to be
+- [20:31.240] spending a lot of money in the United
+- [20:33.080] States more than they've ever spent by a
+- [20:35.600] factor of probably
+- [20:38.520] 10 did you were reporting that um you
+- [20:41.159] were signing a member waiter to counter
+- [20:42.880] digital service taxes but we you speak I
+- [20:45.360] mean what are you doing reading it can't
+- [20:47.559] you just say it without having to read
+- [20:48.960] it my question yeah oh sure Bloomberg
+- [20:51.200] we're reporting that you're expected to
+- [20:53.080] sign tariffs or a memo later on tariffs
+- [20:56.039] on digital taxes is there any idea how
+- [20:58.200] high you might might go with we are
+- [20:59.559] going to be doing that digital what
+- [21:01.159] they're doing to us in other countries
+- [21:02.640] is terrible with digital so we'll be
+- [21:04.919] announcing that are we signing it maybe
+- [21:06.640] today today and we'll be so we'll talk
+- [21:09.280] about that in a little
+- [21:13.080] while put secretary in charge of the
+- [21:15.679] Postal Service he's going to look at it
+- [21:17.240] he's got a great business instinct which
+- [21:19.120] is what we need and he'll be looking at
+- [21:21.520] it and we think we can turn it around
+- [21:23.240] but it's it is the Postal Service I
+- [21:25.159] we're leaving the postal service but
+- [21:27.159] we're losing so much money money with
+- [21:28.960] the postal service and we don't want to
+- [21:30.559] lose that kind of money so the secretary
+- [21:33.000] and some others that have talent that
+- [21:34.600] kind of talent we'll be looking at close
+- [21:36.840] are you to a minerals agreement with
+- [21:38.840] Ukraine Mr President what how close are
+- [21:41.640] you to striking a minerals deal with
+- [21:43.919] pretty close I think they want it they
+- [21:46.039] feel good about it and uh it's a
+- [21:48.159] significant it's a big deal but they
+- [21:50.640] want it and it keeps us in that country
+- [21:52.799] and uh they're very happy about it but
+- [21:55.320] it's we get our money back this should
+- [21:57.320] have been signed long before we went in
+- [22:00.120] it should have been signed by Biden but
+- [22:02.400] Biden didn't know too much about what he
+- [22:04.200] was doing the war should have never
+- [22:06.200] happened number one when it did happen
+- [22:08.640] it could have been settled the first
+- [22:09.880] week or two weeks after that it got bad
+- [22:12.279] it got really bad but it should have
+- [22:14.240] been it should have never happened and
+- [22:16.320] it should have been settled and it could
+- [22:17.559] have been settled very easily at the
+- [22:19.159] beginning now it's tougher but we'll get
+- [22:21.320] it
+- [22:22.640] settled has elections Germany has
+- [22:25.000] elections on Sunday uh what are your
+- [22:27.080] thoughts what do you expect to happen
+- [22:28.720] the elections on Sunday who has
+- [22:30.159] elections Germany oh Germany I wish them
+- [22:33.200] luck we got our
+- [22:37.159] own thank you price thank you price
+- [22:39.960] thank you price

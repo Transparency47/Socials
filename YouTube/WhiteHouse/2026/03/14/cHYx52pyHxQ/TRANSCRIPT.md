@@ -1,0 +1,145 @@
+<!-- source: https://www.youtube.com/watch?v=cHYx52pyHxQ -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: cHYx52pyHxQ -->
+<!-- date_published: 2026-03-14T00:09:50+00:00 -->
+<!-- date_accessed: 2026-06-02T01:03:42.514403+00:00 -->
+
+# Transcript: President Trump Gaggles with Press at Joint Base Andrews, Mar. 13, 2026
+
+- [00:01.520] Hello, everybody.
+- [00:04.160] So, the situation in Iran is going very
+- [00:07.320] well. A lot of
+- [00:08.880] uh big hits today, a lot of big wins
+- [00:11.280] today, as you probably have heard
+- [00:12.840] militarily.
+- [00:14.360] And I think it's going very well, and uh
+- [00:18.240] it's a very good control. We'll see
+- [00:19.720] what's happening with the straits.
+- [00:22.000] Uh they continue to try and sabotage
+- [00:24.120] their own country in the Middle East,
+- [00:25.640] but uh it's been very, very strong
+- [00:27.880] militarily. President, what's your
+- [00:30.280] message to voters who may be concerned
+- [00:32.480] about the potential for rising gas
+- [00:34.320] prices?
+- [00:35.560] Well, I think your gas prices, as soon
+- [00:37.320] as that's over, going to come tumbling
+- [00:38.960] down along with everything else. I think
+- [00:40.560] it's going to be You're going to see a
+- [00:42.120] very big decrease in the price of
+- [00:44.720] gasoline, gas,
+- [00:46.560] uh anything having to do with energy uh
+- [00:48.960] as soon as this is ended. But we had to
+- [00:51.400] end the nuclear threat in the Middle
+- [00:53.240] East and throughout the world, and uh we
+- [00:55.440] will have done that. Mr. President, do
+- [00:57.240] you still expect unconditional
+- [00:59.280] surrender? And what does that mean to
+- [01:01.320] you, sir? To me, it means very simply
+- [01:03.360] that we are in a position of uh
+- [01:06.640] of dominance that nobody's ever seen
+- [01:08.480] before.
+- [01:09.560] And whether or not they're able to say
+- [01:11.240] the words or whether or not they're able
+- [01:13.320] to even fight, uh their navy is gone,
+- [01:15.760] their air force is gone, most of their
+- [01:18.080] military is gone, their big threat is
+- [01:21.080] gone in every way. They have no radar,
+- [01:23.880] they have no anti-aircraft
+- [01:26.440] weapons, for the most part weapons and
+- [01:28.680] for indefinitely. They have no way of of
+- [01:31.680] of determining what they call
+- [01:33.080] visibility.
+- [01:35.000] So, uh just about everything is gone,
+- [01:36.960] and you'll see that. But today, we've
+- [01:39.080] had some very, very big hits, very
+- [01:41.200] powerful hits. Mr. President, when will
+- [01:43.040] the Navy start escorting tankers through
+- [01:45.120] the Straits of Hormuz?
+- [01:46.840] Very soon. Mr.
+- [01:48.080] President, have you spoken with Chinese
+- [01:49.080] President Xi about the the Iran war? I
+- [01:52.520] have, and we're uh discussing a couple
+- [01:55.000] of different things with him. Not only
+- [01:56.840] that, but other things. Sir, on the on
+- [01:59.040] the Save Act, if uh Leader Thune cannot
+- [02:01.960] whip up the Republican support to either
+- [02:03.920] nuke the filibuster, reopen the
+- [02:05.640] government, and pass the Save Act, or
+- [02:07.600] somehow
+- [02:09.479] It's called the Save America Act. You're
+- [02:10.960] right, sir. Do you think if if Leader
+- [02:13.280] Thune can't accomplish that, do you
+- [02:14.760] think Senate needs a new leader?
+- [02:17.959] It's certainly a very popular thing. I
+- [02:19.560] don't think there's ever been a bill
+- [02:20.959] that's more popular than the Save
+- [02:22.640] America Act. It's voter ID. It's uh
+- [02:25.600] proof of citizenship. Uh it's things
+- [02:28.240] that are so popular. No men in women's
+- [02:30.959] sports. Uh no transgender mutilation of
+- [02:34.920] our children.
+- [02:36.240] Uh so many different things. It's so
+- [02:38.200] good. No uh
+- [02:40.160] no running around with the mail-in
+- [02:41.959] ballot nonsense that's gone on for so
+- [02:43.959] long that no other country does. No
+- [02:46.680] other country. We're going to clean up
+- [02:48.400] our elections. I don't think I've ever
+- [02:49.959] been involved in anything that's had the
+- [02:52.520] support of the Save America Act. So,
+- [02:54.959] we'll see what happens. How regularly
+- [02:56.640] are you speaking with uh Prime Minister
+- [02:58.600] Netanyahu? And are your objectives the
+- [03:01.360] same in terms of ending the war? I think
+- [03:03.959] they might be a little different, I
+- [03:05.360] guess, you know. They're different
+- [03:06.880] country than we are.
+- [03:08.600] But, he will tell you there's never been
+- [03:10.239] a power like the power of the United
+- [03:12.040] States. I built our military in my first
+- [03:14.160] term. Continued to do so, but I built
+- [03:17.440] our military and rebuilt it. It was in
+- [03:19.640] bad shape, just like the wall, just like
+- [03:22.360] the border,
+- [03:23.760] just like everything else in our
+- [03:25.040] country. It was all in bad shape, but I
+- [03:26.760] rebuilt the military in my first term,
+- [03:29.280] and
+- [03:30.120] we're using it in this term to, you
+- [03:31.840] know, really for the sake of good, for
+- [03:34.080] the sake of peace, and for the sake of
+- [03:35.920] safety and good. Do you talk daily?
+- [03:38.920] Do you speak with Netanyahu daily? Yeah.
+- [03:41.239] How How long now do you think the war is
+- [03:43.600] likely to last?
+- [03:44.800] >> tell you that. I mean, I have my own
+- [03:46.280] idea, but what good does it do? Uh it'll
+- [03:48.400] be as long as it's necessary. Uh
+- [03:51.920] they've been decimated. The country's
+- [03:54.440] their country's in bad shape. The whole
+- [03:56.320] thing is collapsing.
+- [03:58.200] If you read some of the fake news, it's
+- [04:00.120] like, "Oh, they're doing wonderfully."
+- [04:01.560] They're not doing wonderfully. They're
+- [04:02.800] doing the opposite. They're doing as bad
+- [04:05.280] as you can have. I would say this,
+- [04:07.760] I won't give you a time, but we're way
+- [04:09.720] ahead of schedule. Any comments on
+- [04:12.640] Way ahead of schedule. Didn't Putin make
+- [04:14.360] an offer to you this week that he would
+- [04:15.959] be willing to send in troops to take the
+- [04:18.200] uranium and store it? I can't talk to
+- [04:21.120] you about that. You made a post about
+- [04:22.560] Claudia Sheinbaum refusing your help in
+- [04:24.800] Mexico. What's your plan with Mexico?
+- [04:27.640] Well, she should not have refused my
+- [04:29.880] help. I offered to get rid of the
+- [04:31.480] cartels in Mexico, and for some reason
+- [04:34.240] she doesn't want to do that. I like her
+- [04:35.840] very much, but she should get rid of the
+- [04:38.080] cartels because the cartels are, whether
+- [04:40.760] we like it or not, the cartels are
+- [04:42.960] running Mexico. We can't have that.
+- [04:44.840] Thank you. Thank you.

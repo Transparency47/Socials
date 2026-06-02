@@ -1,0 +1,973 @@
+<!-- source: https://www.youtube.com/watch?v=KlcKb8shI3c -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: KlcKb8shI3c -->
+<!-- date_published: 2025-10-21T21:20:16+00:00 -->
+<!-- date_accessed: 2026-06-02T02:43:04.912279+00:00 -->
+
+# Transcript: President Trump Participates in a Diwali Celebration
+
+- [00:04.500] The President: (inaudible)
+- [00:07.373] (applause)
+- [00:11.047] The President: (inaudible) the whole world.
+- [00:17.470] IBM, the whole group, huh? What a wonderful culture
+- [00:21.640] and what a wonderful group of people.
+- [00:23.910] Thank you very much for coming, it's really nice.
+- [00:26.060] Thank you. Come on. I'll slide over here for some --
+- [00:33.320] For the media.
+- [00:34.620] I will tell you, this is a serious group of people.
+- [00:37.500] That's great. Thank you very much.
+- [00:45.920] Look at the people, huh?
+- [00:50.240] It's seriously the biggest business people
+- [00:52.060] anywhere in the world, so I think it's a great tribute.
+- [00:55.190] Whatever they're teaching you,
+- [00:56.490] they're teaching you well, right?
+- [00:58.540] Thank you very much.
+- [00:59.780] You're welcome to the White House as we celebrate Diwali
+- [01:04.410] because they said,
+- [01:05.660] "It has to be a very heavy emphasis on the V, Diwali,"
+- [01:09.460] the beautiful Hindu Festival of Lights,
+- [01:11.010] and that's what it is.
+- [01:12.210] It's a great festival and it's amazing people.
+- [01:15.620] I'm pleased to be joined
+- [01:16.830] by the director of the National Intelligence
+- [01:19.440] and a woman that's done a fantastic job,
+- [01:22.830] Tulsi Gabbard, wherever you may be, Tulsi.
+- [01:24.800] Hi, Tulsi. FBI director, Kash Patel,
+- [01:27.890] who's really hitting his stride, Kash. Where's Kash?
+- [01:30.750] Director Patel: I'm right here, sir.
+- [01:31.970] The President: He is hitting his stride.
+- [01:33.220] That's the way we like it.
+- [01:34.420] Assistant Attorney General, Harmeet Dhillon. Harmeet?
+- [01:36.660] Harmeet Dhillon: I'm right here, sir.
+- [01:37.950] The President: Hi, Harmeet. And Pastor Paula White.
+- [01:40.520] She's been fantastic.
+- [01:41.820] She's been with us right from the beginning.
+- [01:44.200] We're greatly honored to be joined
+- [01:45.480] by the Indian ambassador to the United States,
+- [01:49.300] Vinay Kwatra, and it's very nice.
+- [01:53.330] Vinay Kwatra: You pronounce it perfectly well.
+- [01:55.800] It wasn't too far off that.
+- [01:59.450] The President: And his wonderful wife.
+- [02:01.000] Thank you very much. It's great honor to have you.
+- [02:03.800] As well as our new ambassador to India,
+- [02:05.990] this is a nice easy name, Sergio Gor.
+- [02:08.540] Sergio Gor: Thank you.
+- [02:09.830] The President: Congratulations, Sergio.
+- [02:11.080] You're going to do a fantastic job.
+- [02:13.590] And thanks as well to incredible
+- [02:15.810] Indian-American business leaders.
+- [02:17.320] The biggest in the world really. If you look at these companies,
+- [02:20.590] what they've done, the biggest in the world.
+- [02:22.250] CEO of IBM, Arvind Krishna. And Arvind, congratulations.
+- [02:28.060] I know you're working hard on a couple of jobs
+- [02:29.870] that I'm watching and good luck with them, right?
+- [02:32.860] Good luck. It's amazing what you've done.
+- [02:36.400] Chairman and CEO of Adobe.
+- [02:39.230] And Adobe is big stuff, and that's Shantanu Narayen.
+- [02:44.190] Shantanu Narayen: Thank you.
+- [02:45.430] The President: Thank you very much, Shantanu.
+- [02:46.700] Nice to say and thank you very much.
+- [02:49.300] CEO of Micron Technology, we know what that is,
+- [02:52.750] Sanjay Mehrotra. Sanjay, nice to see you again.
+- [02:56.880] And CEO of Palo Alto Networks, Nikesh Arora.
+- [03:01.470] And I want to thank you very much for a great success.
+- [03:05.220] It's a hell of a group of people.
+- [03:07.380] And in addition to that, we have a lot of other
+- [03:09.230] tremendously-successful people gathered.
+- [03:12.580] On behalf of all Americans,
+- [03:13.950] let me also extend our warmest wishes to the people of India.
+- [03:18.120] I just spoke to your prime minister today.
+- [03:19.890] We had a great conversation and we talked about trade,
+- [03:23.180] we talked about a lot of things,
+- [03:24.620] but mostly the world of trade, he's very interested in that.
+- [03:28.710] Although we did talk a little while ago
+- [03:30.700] about let's have no wars with Pakistan.
+- [03:33.040] And I think the fact that trade was involved,
+- [03:36.970] I was able to talk about that.
+- [03:38.990] And we have no war with Pakistan and India
+- [03:41.310] and that was a very, very good thing,
+- [03:42.830] but he's a great person
+- [03:45.760] and he's become a great friend of mine over the years.
+- [03:48.140] In a few moments, we'll light the diya as a symbol of faith
+- [03:53.360] in the victory of light over darkness.
+- [03:55.590] It's a beautiful term, light over darkness,
+- [03:57.750] that's what it's all about.
+- [03:59.320] It's knowledge over ignorance and good over evil.
+- [04:03.780] During Diwali, the revelers recall ancient stories
+- [04:07.190] of enemies defeated,
+- [04:08.460] obstacles removed and captives freed.
+- [04:11.610] The glow of the diya flame reminds us
+- [04:15.090] to seek the path of wisdom and to work with diligence
+- [04:18.150] and to always give thanks for our many blessings.
+- [04:21.080] And we do have many blessings.
+- [04:22.390] Everybody in this room has many blessings.
+- [04:24.360] And even the, I'm not going to use the word fake news,
+- [04:28.820] I refuse to use it, media has some good blessings.
+- [04:33.880] One of the blessings is that you didn't have to stand
+- [04:35.990] in the mud outside anymore.
+- [04:37.710] You now have a beautiful stone surface,
+- [04:40.270] the identical color of the White House.
+- [04:42.630] For years, they had to stand, when we had press conference,
+- [04:45.090] in the mud because it was grass,
+- [04:47.450] and I decided to take care of that,
+- [04:49.200] so I think they appreciate it.
+- [04:51.460] As we look back in the past year,
+- [04:53.630] and really, look up to the next number of years
+- [04:57.340] and hopefully decades and centuries,
+- [04:59.600] we've got much to be thankful for.
+- [05:02.490] And think of it, a year ago, we were a dead country.
+- [05:05.490] This country was a dead country.
+- [05:07.940] And now, we're the hottest country anywhere in the world.
+- [05:09.960] These guys can testify to that
+- [05:11.390] because I watched their stock prices
+- [05:14.520] and they're like rocket ships, right?
+- [05:16.350] Do they ever stop? Let's keep it that way.
+- [05:18.550] Let's not talk about it.
+- [05:20.580] Let's just keep it that way. It's amazing.
+- [05:22.300] We have more than $17 trillion, they're part of the reason,
+- [05:26.500] more than $17 trillion of investment
+- [05:28.920] pouring into the United States.
+- [05:30.430] It's going to be, I believe, over $20 trillion
+- [05:33.960] by the time the year's up. And as an example,
+- [05:36.740] the last administration, less than a trillion dollars.
+- [05:40.280] In their four-year period, they had less than a trillion.
+- [05:44.660] Were going to have $20 trillion.
+- [05:46.720] We have over $17 trillion already,
+- [05:48.780] that's investment coming in.
+- [05:50.880] And I think it's largely for two reasons.
+- [05:52.830] We had a good election on November 5th,
+- [05:55.240] but maybe more importantly, of course,
+- [05:57.290] it wouldn't happen if that election result didn't happen.
+- [06:00.480] I think much more importantly, we have tariffs that you build
+- [06:03.460] in the United States, you don't have a tariff to pay.
+- [06:05.690] You build outside and you have to pay a tariff.
+- [06:07.630] And we're taking in money at a level
+- [06:10.010] that no other country has ever seen.
+- [06:11.840] There's never been a country, I don't think --
+- [06:13.870] Fellas, you agree with that? There's never been a country
+- [06:15.740] with an investment in less than a year,
+- [06:19.550] actually to be exact, less than nine months, of $17 trillion.
+- [06:24.660] And I know you're all participating, aren't you?
+- [06:28.860] So, that's really good stuff.
+- [06:31.000] The economy is roaring.
+- [06:32.330] The incomes are rising and small business confidence
+- [06:35.080] is at the highest level in over a decade.
+- [06:37.700] So, the confidence levels, which means something.
+- [06:42.500] Over the last 10 years,
+- [06:43.910] I don't think they go beyond that.
+- [06:46.480] We have the highest level of confidence in our economy.
+- [06:49.780] Gasoline prices are way down. Grocery prices are way down.
+- [06:54.210] Energy prices are way down. Mortgage rates are down.
+- [06:57.460] We have a real stiff at the Federal Reserve,
+- [06:59.950] I can't help that, but he's going
+- [07:01.990] to be leaving soon, and inflation has been defeated.
+- [07:05.510] But even though his rates are too high,
+- [07:09.660] the economy has been amazing.
+- [07:12.370] Our border is secure, totally secure.
+- [07:14.300] We had nobody, zero, nobody in the last four months
+- [07:17.890] coming through illegally,
+- [07:19.240] which is actually hard to believe
+- [07:20.470] because they give me those numbers,
+- [07:22.440] but essentially, it would be just about nobody.
+- [07:25.700] They actually say zero. That's actually hard to believe
+- [07:29.020] because when you had millions
+- [07:31.190] pouring across a year and a half ago, two years ago.
+- [07:33.840] But actually, we have it down to practically nobody.
+- [07:36.740] And they are coming in, but they're coming in legally.
+- [07:39.730] And we're forging peace all over the world.
+- [07:41.910] We're putting America first.
+- [07:43.410] We're getting everybody to get along,
+- [07:46.310] and I just got a call from the Middle East,
+- [07:49.290] we're doing very well there.
+- [07:50.530] We have many, many countries, as you know,
+- [07:52.870] signed onto peace in the Middle East,
+- [07:54.470] and nobody thought they'd ever see that happening.
+- [07:58.000] The Hamas situation where they're pretty violent people,
+- [08:02.870] I would say that we could put that out in two minutes.
+- [08:06.130] We're giving them a chance.
+- [08:08.140] They agreed that they'd be very good, very, very straight.
+- [08:14.580] They wouldn't be killing people and they have killed people.
+- [08:17.140] That wasn't the deal we made.
+- [08:18.410] But if they don't honor the deal,
+- [08:22.070] they'll be taken care of very quickly,
+- [08:23.770] but I'd rather not have to do that.
+- [08:25.920] But we have total peace in the Middle East.
+- [08:27.770] We have levels of friendship with everybody
+- [08:31.120] and every countries that hated each other now love each other.
+- [08:35.220] Nobody ever saw anything like it.
+- [08:36.800] I think you guys are pretty surprised over here, right?
+- [08:39.530] Farmit, you're surprised, but a lot of people are surprised.
+- [08:42.850] Are you guys surprised? Peace in the Middle East.
+- [08:44.540] You've been hearing about it for as long as you've been alive.
+- [08:47.730] Male Speaker: We do.
+- [08:48.940] The President: And it's been a lot longer than that.
+- [08:50.460] You're still pretty young,
+- [08:52.310] but we have peace in the Middle East,
+- [08:54.310] and so as we light the idea,
+- [08:57.080] we look forward to a new year and a greater peace
+- [08:59.960] and a greater everything for all of us.
+- [09:01.710] We want tremendous success, tremendous health.
+- [09:04.860] We're doing a lot of things in the world of health.
+- [09:07.600] And the autism situation is just crazy when you think of it.
+- [09:12.990] You go back 20 years, it was one in 20,000
+- [09:17.230] and now it's one in 12. Is that hard to believe?
+- [09:22.130] When I hear that number, it's not even believable.
+- [09:27.350] We think we're onto it.
+- [09:28.690] Bobby is doing a great job and Dr. Oz,
+- [09:31.030] all of them, they're really working hard.
+- [09:32.530] Nobody has ever seen anything like that,
+- [09:35.270] and it's been a very important factor for me.
+- [09:38.110] I just say you got to focus on that.
+- [09:39.900] We think we have a lot of the answers.
+- [09:41.650] We've announced a lot of the answers actually,
+- [09:43.620] but we're looking at many things.
+- [09:45.650] We've made tremendous progress.
+- [09:47.210] And maybe the thing we've done the best on
+- [09:49.960] is prices for our drugs.
+- [09:54.270] We have favorite nations now where other nations as you know
+- [09:58.100] we're paying a fraction,
+- [10:00.030] a small fraction of what we were paying.
+- [10:02.600] For many, many years this was happening.
+- [10:04.400] This was set up 30 years ago
+- [10:05.980] where we were paying 10 times more,
+- [10:09.220] 12 times more, five times more. Always tremendous numbers more.
+- [10:13.740] And I said, "We're not doing that anymore."
+- [10:17.130] And the drug companies have agreed
+- [10:18.560] and the countries have agreed.
+- [10:19.760] Now, if I didn't have tariffs,
+- [10:20.990] I wouldn't have been able to get it.
+- [10:22.270] I said, "Well, if you don't agree,
+- [10:23.490] we're going to charge you tariffs
+- [10:25.130] for more than the equivalent amount."
+- [10:27.780] And amazingly, everybody agreed.
+- [10:29.330] So our drug prices are going to be coming down 100 percent,
+- [10:33.250] 200 percent, 300, 400, 500 percent in some cases.
+- [10:37.150] A bill that costs $10 in London would cost $120 in --
+- [10:43.110] Think of it, $120 in New York or any place in this country.
+- [10:49.970] A drug that cost $86 in Berlin cost $1,300 in New York
+- [10:58.860] and throughout the United States.
+- [11:00.320] And we're not doing that anymore.
+- [11:01.780] So we're just not doing it anymore.
+- [11:05.590] And I think that's going to be huge for anything,
+- [11:10.920] Medicaid, Medicare, social security,
+- [11:14.160] anything having to do with health
+- [11:17.070] because the drug prices are going to be coming down.
+- [11:19.870] I tell the story of my last administration, my fourth year,
+- [11:24.080] I was so honored because I brought drug prices down.
+- [11:28.060] The first time in 28 years,
+- [11:29.590] prices were brought down by a certain amount.
+- [11:33.080] I'll tell you what the amount was in a second,
+- [11:35.290] but by a certain amount.
+- [11:36.590] And so at the beginning of the year to the end of the year.
+- [11:38.760] I actually brought them down.
+- [11:39.990] First time in 28 years it happened.
+- [11:42.220] And the number was one-eighth of 1 percent.
+- [11:45.330] That's all I say.
+- [11:46.540] But I was proud because first time it ever happened.
+- [11:50.040] And now I'm bringing prices down 600 percent,
+- [11:52.800] 700 percent, 900 percent, 200 percent.
+- [11:58.220] So I can't believe I actually had a news conference
+- [12:00.340] to celebrate one-eighth and one-quarter of 1 percent.
+- [12:05.090] But that was -- You learn, right?
+- [12:09.360] And you guys know more about favorite nations than anybody.
+- [12:11.750] So we're going favorite nations.
+- [12:13.140] We're demanding it and we've got it.
+- [12:15.640] As you know, we had Pfizer, we had the big companies.
+- [12:18.540] They were all agreed or close to agreeing,
+- [12:23.030] but the countries have agreed to.
+- [12:25.460] Actually the countries would be generally more difficult.
+- [12:28.610] If we didn't have the power of tariffs,
+- [12:30.280] they wouldn't have agreed. They would've said,
+- [12:31.690] "Nope, you got to pay 10 times more than what we paid."
+- [12:33.590] We were paying 10 and 12 times more than other countries
+- [12:36.560] for the exact same hill made in the exact same lab or factory.
+- [12:41.850] So it's an amazing thing.
+- [12:43.670] I think it's an absolute game changer.
+- [12:45.880] Nobody has ever even heard of anything like that.
+- [12:47.730] And you'll see the results over the next year,
+- [12:49.620] year and a half, and I think it's great.
+- [12:52.230] So I'd like to ask a person who has really been fantastic.
+- [12:57.000] We'll ask a few of the people to say a few words.
+- [12:59.100] You're on international television,
+- [13:01.410] so don't get nervous.
+- [13:03.400] Kash, would you say a few words, please?
+- [13:05.100] You've done a fantastic job.
+- [13:06.660] Director Patel: Well, thank you, Mr. President.
+- [13:07.860] It's an honor to be a first-generation Indian American
+- [13:10.580] whose parents lawfully immigrated this country.
+- [13:12.910] And under your leadership,
+- [13:14.110] so many more millions of Americans are living that dream.
+- [13:16.350] And to celebrate here in the Oval Office on Diwali,
+- [13:18.990] which you said rightfully so,
+- [13:20.840] it's the triumph of good over evil.
+- [13:22.620] It's just an incredible honor. It's incredibly humbling.
+- [13:24.970] Indian Americans around the world
+- [13:26.410] and Indians around the world are thrilled
+- [13:28.400] that you are such a profound leader
+- [13:30.930] in sharing this diversity with the world.
+- [13:33.130] And we can't thank you enough. And happy Diwali.
+- [13:34.970] The President: Thank you.
+- [13:36.190] Congratulations on everything. How about --
+- [13:38.750] A great company, IBM, he's taken this company from.
+- [13:42.320] It was a little troubled as I remember a few years ago,
+- [13:45.040] like 10 years ago to being one of the hottest companies
+- [13:48.300] anywhere in the world.
+- [13:49.560] Arvind, could you say a few words please?
+- [13:51.080] Arvind Krishna: Thank you, Mr. President.
+- [13:52.780] In the spirit of Diwali, we should also acknowledge
+- [13:55.780] all that the president and the administration
+- [13:57.730] is doing to really boost technology, innovation
+- [14:01.150] and that leading to economic growth.
+- [14:03.530] I want to point out people forget often how much public
+- [14:06.360] and private partnerships in the United States
+- [14:08.770] have mattered to boost technology.
+- [14:10.940] You look at semiconductors, you look at space,
+- [14:12.860] you look at the internet, mobile
+- [14:15.190] and hopefully quantum down the road.
+- [14:17.000] So, Mr. President, I'd like to thank you for all
+- [14:18.920] that you're doing to boost our technology leadership.
+- [14:21.600] The President: Well, you've done amazingly,
+- [14:23.210] and I just think it's incredible.
+- [14:24.690] I know exactly what you've been through
+- [14:26.290] because it was a troubled company until you came along
+- [14:29.480] and you made it very untroubled. You made it a rocket ship.
+- [14:32.970] So I congratulate you. Thank you very much.
+- [14:36.500] We have a very, very great company, Adobe.
+- [14:41.870] Shantanu, could you say maybe a few words please?
+- [14:44.520] Shantanu Narayen: Sure. Thank you, Mr. president.
+- [14:45.860] And first, it's such an honor to be here in the Oval Office
+- [14:50.500] and to celebrate Diwali, which for all of us growing up,
+- [14:53.980] as you pointed out was the victory over triumph,
+- [14:57.370] over evil, light over darkness.
+- [14:59.730] I think what you're doing, Mr. President,
+- [15:01.390] to have peace and prosperity and investment
+- [15:04.700] in this country is just amazing.
+- [15:07.400] And as a company, I think hopefully everybody here
+- [15:09.960] is using Photoshop in order to take all these pictures.
+- [15:13.550] But I would really like to thank you for your leadership
+- [15:15.800] and we will continue to invest in the US
+- [15:20.200] to make sure that we continue to drive innovation. Thank you.
+- [15:22.410] The President: And your investment has been very large.
+- [15:24.390] So how much have you invested
+- [15:25.960] and do you plan to invest in the US?
+- [15:27.920] Shantanu Narayen: As far as our investment is concerned,
+- [15:29.570] it's all intellectual property.
+- [15:30.860] It's people, so we make everything here.
+- [15:32.300] So that's the software.
+- [15:33.570] The President: That's good.
+- [15:34.770] Shantanu Narayen: And so we're a $20 billion revenue company now.
+- [15:37.340] One of the largest software companies
+- [15:38.880] in the world and headquarters is Silicon Valley.
+- [15:41.310] Thank you, Mr. President.
+- [15:42.640] The President: Fantastic job. How much are you investing, IBM?
+- [15:45.450] Arvind Krishna: 150 billion over the next five years,
+- [15:47.850] The President: 150 billion. That's good.
+- [15:49.730] Micron is doing pretty good.
+- [15:52.240] How's Micron doing? Okay? Pretty good?
+- [15:54.000] Sanjay Mehrotra: Mr. President,
+- [15:55.230] really a great honor to be here today
+- [15:57.130] celebrating Diwali with these excellent peers of ours
+- [16:01.300] from the tech industry. And Diwali stands for light,
+- [16:05.220] hope, renewal and the United States
+- [16:07.880] is light to the rest of the world.
+- [16:10.860] And particularly on the renewal piece,
+- [16:12.560] I just want to really applaud you and your team
+- [16:16.300] in terms of bringing Renaissance semiconductor
+- [16:19.340] manufacturing here to the US.
+- [16:21.570] So Micron is investing $200 billion, 150 --
+- [16:25.280] The President: 200 billion?
+- [16:26.480] Sanjay Mehrotra: $200 billion
+- [16:27.750] in leading-edge memory manufacturing.
+- [16:29.980] And in the course of next few years,
+- [16:32.220] we have 40 percent of our manufacturing here in the US.
+- [16:36.890] And this will add over the course of years,
+- [16:39.080] 90,000 jobs and $1.5 trillion impact to the economy.
+- [16:44.690] So we are very thankful to the support
+- [16:47.080] that we get from your team and, Mr. President,
+- [16:50.130] from you in terms of bringing memory here to the US.
+- [16:53.720] And memory is key with AI today, right?
+- [16:56.210] The President: Yeah. You always talk about memory.
+- [16:58.160] I have a good memory.
+- [17:00.330] But those machines have a better memory, right?
+- [17:02.250] No matter what you do.
+- [17:03.460] Sanjay Mehrotra: Absolutely.
+- [17:04.660] The President: It's fantastic, really fantastic.
+- [17:06.670] Nikesh, your Palo Alto is a hot one.
+- [17:11.720] And tell me about that. Go ahead please.
+- [17:14.410] Nikesh Arora: Mr. President, thank you for having me hear.
+- [17:16.180] It's a pleasure honor to celebrate Diwali with you.
+- [17:19.940] As my colleagues have said,
+- [17:21.210] it's the triumph of good over evil and prosperity.
+- [17:25.790] What you've done the last nine months
+- [17:27.420] in terms of making United States
+- [17:28.910] with the most business-friendly administrations
+- [17:32.340] and allowing us all opportunity to invest not just in technology
+- [17:36.160] but in our people, it's just amazing.
+- [17:37.890] We are now the largest cyber security company in the world
+- [17:39.890] and we just recently-
+- [17:41.110] The President: Wow, that's good.
+- [17:42.320] Nikesh Arora: We just recently spent $25 billion
+- [17:44.800] in sourcing technology.
+- [17:46.110] So all cyber security is made in the United States
+- [17:49.310] because we believe that the next passion in the world
+- [17:51.870] is going to be cyber war.
+- [17:53.490] And we just want to make sure we are prepared as a country
+- [17:56.010] and we make sure all of our companies
+- [17:57.630] and our critical infrastructure (inaudible).
+- [17:59.120] The President: Fantastic job. It's amazing what you've done.
+- [18:01.730] And all of these people --
+- [18:04.240] To me, they mean two things, big investment,
+- [18:06.220] but the big investment I like because of jobs,
+- [18:08.380] it's tremendous number of jobs that they've produced.
+- [18:12.090] Would you say a couple of things about your great company please?
+- [18:15.580] Male Speaker: Thank you, Mr. President.
+- [18:17.300] I'm with Stone Point Capital,
+- [18:19.300] private equity which I'm sure you know.
+- [18:21.330] The President: Yup.
+- [18:22.700] Male Speaker: We just raised a new $11.5 billion fund
+- [18:25.270] and we obviously invest very heavily
+- [18:28.220] in financial services technology.
+- [18:30.990] And so it's actually an honor to be here in the Oval Office
+- [18:35.760] with you. And as a fellow
+- [18:37.410] (inaudible) member too, I've always --
+- [18:39.030] The President: It's nice.
+- [18:40.330] Male Speaker: It's always a pleasure to be with you.
+- [18:41.720] And I got to tell you, you're the best president
+- [18:45.300] that I've ever seen and we're so proud of you.
+- [18:47.380] The President: Thank you.
+- [18:48.710] I'm glad I asked him to say something.
+- [18:52.040] Would you like to say something about the great job
+- [18:54.220] you're doing right here? Anybody back here?
+- [18:57.680] These are all incredible people that everybody looks --
+- [19:01.110] In the business world, everybody looks up to him.
+- [19:03.850] Please go ahead. Would you like to say something?
+- [19:06.350] Go ahead please.
+- [19:07.810] Male Speaker: Thank you for your leadership.
+- [19:09.010] The President: I love this, man I love this. I did ask him.
+- [19:13.610] Male Speaker: I'm running a tech business for 24 years.
+- [19:17.210] We build products on AI and machine learning.
+- [19:19.320] Thank you, Mr. President.
+- [19:20.520] The President: And it's going great, right?
+- [19:21.900] Male Speaker: Yes.
+- [19:23.120] The President: Good. How about over here?
+- [19:24.400] We have some very un-shy people.
+- [19:27.190] Farmit, how about saying a few words?
+- [19:28.830] Farmit: Well, thank you, Mr. President.
+- [19:30.080] It's a tremendous honor to have supported you three times
+- [19:32.920] and been part of your administration.
+- [19:35.160] And on this day of Diwali, I say on behalf
+- [19:37.290] of the United States Department of Justice
+- [19:39.550] that the message of the triumph of good over evil
+- [19:44.480] and knowledge over ignorance and justice over injustice
+- [19:48.560] is something that your administration is personifying
+- [19:50.860] and it's a tremendous honor to be part of it.
+- [19:53.090] Thank you very much for including us here today.
+- [19:54.900] The President: Then you're at the DOJ
+- [19:56.110] and doing a fantastic job, I hear.
+- [19:57.320] Farmit: Thank you, sir. The President: That's great.
+- [19:58.550] She's doing a good job, that's right?
+- [19:59.840] Farmit: She's doing outstanding.
+- [20:01.130] The President: And --
+- [20:03.740] Male Speaker: Yes, sir. Thank you very much.
+- [20:05.630] You are doing today what you have done
+- [20:08.320] throughout your time in service,
+- [20:09.720] is bringing people together from all across the country
+- [20:12.520] and all different backgrounds.
+- [20:13.930] And this day is, of course, very special to so many of us
+- [20:17.580] because while it is the celebration of hope
+- [20:21.320] and light and renewal,
+- [20:23.650] we can never forget that the source of that hope,
+- [20:26.110] light and renewal comes from God's love
+- [20:29.100] for every single one of us.
+- [20:30.680] And so, today we celebrate God, his love,
+- [20:33.580] and the blessings that he has shared with all of us.
+- [20:36.750] The President: Fantastic. Thank you all very much.
+- [20:38.360] Anybody like to say anything?
+- [20:40.370] Would you like to say something? Please.
+- [20:42.930] Male Speaker: Mr. President, let me start,
+- [20:44.840] first of all, by expressing a deep sense of gratitude
+- [20:49.380] for opening up White House Oval Office,
+- [20:53.410] your home, to mark Diwali's Festival of Lights,
+- [20:57.130] which is celebrated by over one-fifth of humanity.
+- [21:01.140] And as Kash said,
+- [21:02.350] you are showcasing the strength of diversity
+- [21:06.630] through this celebration. So, it's truly a great honor
+- [21:10.860] and thank you very much for that.
+- [21:12.910] May I also, on behalf of my prime minister
+- [21:15.260] and my own behalf, wish you and your loved ones
+- [21:18.450] a very, very happy Diwali greetings,
+- [21:21.720] particularly to over 5 million strong Indian diaspora
+- [21:25.110] in the US.
+- [21:26.380] The President: That's right.
+- [21:27.580] Male Speaker: And I'll close by making a wish,
+- [21:29.160] which is normally we do for Diwali.
+- [21:31.540] We wish that the light of Diwali
+- [21:33.990] continues to shine on your success
+- [21:36.420] and on the strength of India-US partnership.
+- [21:38.830] The President: Thank you very much.
+- [21:40.560] Spoke to him today, he's doing well and your country
+- [21:44.520] is doing very well. You know that.
+- [21:45.770] Male Speaker: Thank you, Mr. President.
+- [21:47.090] The President: So, we're supposed to light something,
+- [21:48.340] but I thought maybe because he's had such an outstanding year,
+- [21:51.370] I'm going to ask Arvind to maybe do the honors.
+- [21:54.340] Can you handle it for me, Arvind?
+- [21:56.410] I think you might do a better job than me,
+- [21:59.050] so if you could take care of that, it'd be great.
+- [22:26.820] He's done a good job.
+- [22:29.460] I didn't know you were supposed to do that.
+- [22:30.900] I'm glad I asked you to do it.
+- [22:38.390] Male Speaker: Would you like to come to light --
+- [22:39.860] The President: Yeah, if you want to.
+- [23:01.430] Thank you. Thank you all. Thank you.
+- [23:15.020] The Press: Mr. President, the meeting with Vladimir Putin
+- [23:17.750] is canceled or put on hold. Do you know what happened there
+- [23:21.220] and does that affect your decision
+- [23:23.180] whether or not to Tomahawks to-
+- [23:24.650] The President: No, no.
+- [23:25.850] I don't want to have a wasted meeting.
+- [23:27.470] I don't want to have a wasted time.
+- [23:28.790] So, I'll see what happens.
+- [23:30.040] But we did all of these great deals, great peace deals.
+- [23:35.400] They're all peace deals, agreements, solid agreements,
+- [23:38.020] every one of them. But this one, and I said,
+- [23:40.260] "Go to the line of battle or the battlefield lines.
+- [23:45.670] And you pull back and you go home
+- [23:47.960] and everybody takes some time off."
+- [23:50.730] Because you got two countries that are killing each other,
+- [23:53.420] two countries that are losing 5,000 to 7,000 soldiers a week.
+- [23:57.160] So, we'll see what happens. We haven't made a determination.
+- [24:00.520] The Press: Mr. President, (inaudible)
+- [24:02.140] the Justice Department to look into the federal investigations
+- [24:05.880] into you and look for compensation.
+- [24:07.760] And how much are you asking for?
+- [24:10.470] The President: Who's asking for what?
+- [24:11.720] The Press: Are you asking the Justice Department
+- [24:13.360] to pay your compensation?
+- [24:15.230] The President: Whose compensation?
+- [24:16.590] Whose compensation?
+- [24:17.810] The Press: The federal investigations into you,
+- [24:20.130] are you asking them to pay compensation, and how much?
+- [24:22.570] The President: Into me? I don't get any compensation.
+- [24:24.870] I do it for nothing. I gave up my salary. Into me?
+- [24:28.920] The Press: No, it's going to be the Justice Department.
+- [24:31.190] Are you asking them to pay you compensation
+- [24:34.780] for the federal investigations that happened to you?
+- [24:37.130] And how much are you asking for?
+- [24:38.450] The President: Well, I guess they probably owe me
+- [24:39.870] a lot of money for that.
+- [24:41.890] Probably, yeah, that's true. That's very interesting.
+- [24:44.130] No, I get no salary. I gave up my salary.
+- [24:46.860] It's a good salary, not as much as these guys make,
+- [24:49.910] but that's okay. It's a lot of money.
+- [24:52.790] And as you know, I didn't take it in the first four years.
+- [24:55.360] I've not taken it in these four years either.
+- [24:58.200] But as far as all of the litigation,
+- [25:00.610] everything that's been involved,
+- [25:02.050] yeah, they probably owe me a lot of money.
+- [25:04.060] But if I get money from our country,
+- [25:06.620] I'll do something nice with it, like give it to charity
+- [25:09.740] or give it to the White House, while we restore the White House
+- [25:12.420] and we're doing a great job in the White House.
+- [25:14.870] As you know, the ballroom is under construction.
+- [25:17.980] They've been trying to get it for 150 years
+- [25:20.150] and I think it's going to be fantastic,
+- [25:24.160] but we'll see what happens.
+- [25:25.870] We have numerous cases having to do
+- [25:28.820] with the fraud of the 2020 election.
+- [25:31.250] And because of everything that we found out,
+- [25:35.030] I guess they owe me a lot of money,
+- [25:37.110] but I'm not looking for money. I'm looking for really, I think,
+- [25:41.980] it's got to be handled in the proper way.
+- [25:44.680] If it's not handled in a proper way --
+- [25:46.570] We don't want it to happen again.
+- [25:48.360] We can never let what happened in the 2020 election
+- [25:51.980] happen again. We just can't let that happen.
+- [25:54.000] And so, I know Kesha's working on it,
+- [25:56.870] everybody's working on it.
+- [25:58.630] And certainly, Tulsi's working on it.
+- [26:01.710] We can't let that happen again to our country.
+- [26:03.840] Look at what's happened where you have millions of people
+- [26:06.870] being allowed to come into our country
+- [26:09.000] all because of a crooked election
+- [26:11.050] where they come from prisons, they come from jails,
+- [26:14.310] they come from mental institutions
+- [26:16.200] and insane asylum centers. They're drug dealers.
+- [26:19.310] The people that they've allowed to come into our country --
+- [26:22.180] We cleaned them out in Washington DC.
+- [26:24.130] We have a very safe capital right now.
+- [26:26.040] We have a capital that's as safe as it could be,
+- [26:28.710] but I don't know.
+- [26:29.920] I mean you'd have to ask the lawyers about that.
+- [26:32.610] The Press: (inaudible)
+- [26:35.380] a comment and a question please for you.
+- [26:39.080] First of all, you have just one billion-plus hearts
+- [26:43.160] around the globe, including in India,
+- [26:44.960] by celebrating the Diwali in the White House right here.
+- [26:48.540] And my other comment is, Mr. President --
+- [26:51.370] The President: I like his question already.
+- [26:54.840] The Press: -- in February, you and the White House staff
+- [26:58.580] gave a warm welcome to the prime minister of India,
+- [27:00.750] Mr. Narendra Modi. And after that,
+- [27:03.660] I decided to make a short trip to India for you.
+- [27:08.740] How popular you are in India.
+- [27:11.110] And I went there in a holiest also festival there.
+- [27:15.610] Millions of people were there.
+- [27:17.080] And also Prime Minister Narendra Modi
+- [27:19.080] was addressing a media event, 5,000 people.
+- [27:24.310] I was one of them there listening to him.
+- [27:27.930] And when I went to several states in India,
+- [27:32.170] what I found out, Mr. President,
+- [27:34.530] three people are more popular there,
+- [27:38.160] Prime Minister Narendra Modi,
+- [27:40.430] President Donald Trump, Mr. Kash Patel,
+- [27:43.760] and also, with the surprise of our White House
+- [27:47.330] press secretary, Karoline Leavitt.
+- [27:51.100] The President: She's doing good.
+- [27:52.430] She's doing good. She's a superstar.
+- [27:56.610] The Press: Mr. President, my question
+- [27:57.910] is you had a great relationship with the people of India
+- [28:02.370] when you visited India and with the Prime Minister of India,
+- [28:06.060] Narendra Modi, and also with the Indian-American community.
+- [28:09.840] Where do we stand today,
+- [28:11.590] all those generations from 45 to 47 in the future,
+- [28:14.540] Mr. President? Please, thank you.
+- [28:15.950] The President: Well, we stand great.
+- [28:17.210] And the people of India, I love the people of India
+- [28:19.440] and we are working on some great deals between our countries.
+- [28:23.270] I spoke to Prime Minister Modi today, as I mentioned before.
+- [28:26.680] And we just have a very good relationship.
+- [28:30.840] And he's not going to buy much oil from Russia.
+- [28:34.410] He wants to see that war end as much as I do.
+- [28:36.640] He wants to see the war end with Russia, Ukraine.
+- [28:39.600] And as you know, they're not going to be buying too much oil.
+- [28:42.560] So, they've cut it way back
+- [28:43.880] and they're continuing to cut away back.
+- [28:47.470] Yeah, please. Go.
+- [28:48.790] The Press: An appeals court recently ruled that
+- [28:50.350] you can send the National Guard into Portland, Oregon.
+- [28:53.020] Do you feel unfettered to send the National Guard
+- [28:55.710] into whatever city you want now?
+- [28:58.300] The President: Well, I guess so. That was the decision.
+- [29:00.440] If I can send the National Guard if I see problems.
+- [29:03.750] I looked at Portland over the weekend,
+- [29:05.310] the place is burning down, just burning down.
+- [29:08.160] We weren't there. We didn't spend much time there
+- [29:11.630] because we were waiting for that decision,
+- [29:13.900] but maybe that influenced the court.
+- [29:16.770] But you look at a place like Portland,
+- [29:19.540] it's ridiculous when they say that there's no problem.
+- [29:22.150] The place, it was on fire over the weekend.
+- [29:26.130] But we did, we won the case in Court of Appeals.
+- [29:29.610] I think it was a Ninth Circuit, so that's pretty good.
+- [29:33.900] And very strong opinion that we have the right
+- [29:36.510] to use the National Guard.
+- [29:38.020] You would think that would be common sense.
+- [29:39.610] We have the right to use the National Guard
+- [29:41.380] to put out trouble. Well, that's how I got elected,
+- [29:45.870] one of the reasons I got elected. Yes.
+- [29:47.450] The Press: Mr. President, what changed your mind
+- [29:50.030] after talking to Vladimir Putin between then and now?
+- [29:52.720] Why did you think that a Budapest summit
+- [29:55.130] might be wasted time?
+- [29:57.390] The President: Well, I didn't say it would
+- [29:59.340] and you never know what's going to happen.
+- [30:01.540] But a lot of things are happening
+- [30:04.670] on the war front with Ukraine and Russia.
+- [30:07.820] And we'll be notifying you over the next two days
+- [30:10.340] as to what we're doing.
+- [30:11.660] But a lot of things are happening.
+- [30:15.120] Yeah, please.
+- [30:16.320] The Press: Mr. President, on Ukraine,
+- [30:18.130] do you still see a chance for a ceasefire?
+- [30:20.330] And what is Putin asking for?
+- [30:21.660] The President: Say it again. What?
+- [30:22.910] The Press: Do you still see a chance for a ceasefire?
+- [30:25.390] And what is Putin asking for?
+- [30:27.890] The President: I do. Look, it's a vicious war.
+- [30:30.460] It doesn't really affect us. We sell equipment to them.
+- [30:33.350] We sell equipment to NATO and NATO gives it to Ukraine,
+- [30:36.880] but we don't pay anything anymore.
+- [30:38.710] Biden spent $350 billion.
+- [30:41.640] The war would've never happened if I were president,
+- [30:44.930] not even a million years.
+- [30:46.250] And Putin knows that too, would've never happened.
+- [30:49.070] But it did happen and I came in
+- [30:50.840] and I have to see if I can put it out.
+- [30:53.660] But it doesn't affect us because we're not losing soldiers there.
+- [30:57.270] Although, when I first came in,
+- [31:00.410] that could have ended, it's not going to happen,
+- [31:02.590] but it could have ended up in World War III.
+- [31:04.490] That was really out of control.
+- [31:06.780] So, now they're shooting and they're killing people.
+- [31:09.680] And I think Putin wants it to end
+- [31:12.710] and I think Zelenskyy wants it to end
+- [31:14.670] and I think it's going to end.
+- [31:16.320] The Press: Mr. President, Senator Schumer
+- [31:17.890] said he reached out to you
+- [31:19.160] about meeting on the government shutdown,
+- [31:20.860] will you meet with him before you leave for Asia on Friday?
+- [31:22.900] The President: Well, I will, actually.
+- [31:24.380] I'd love to meet with him.
+- [31:25.620] I just want them to open up the country first.
+- [31:27.930] The country is so hot right now
+- [31:30.850] and they've never voted against continuation.
+- [31:34.680] They've never done that.
+- [31:36.580] They're doing this because they have Trump derangement syndrome.
+- [31:39.270] But I would like to meet with both of them,
+- [31:42.600] but I set one little caveat.
+- [31:47.190] I will only meet if they let the country open.
+- [31:50.280] Let the country open.
+- [31:51.480] The people want to go back to work.
+- [31:52.960] They want to be served.
+- [31:54.650] They need the services of some people
+- [31:57.710] and a lot of people need the money, the payroll.
+- [32:00.090] So, I'll do it.
+- [32:01.390] As soon as they open up the country,
+- [32:02.610] I'd like to meet
+- [32:03.810] The Press: Just to be clear, you won't meet with them
+- [32:05.420] until the government's open.
+- [32:06.700] The President: The government has to be open, yeah.
+- [32:07.960] The government has to be open.
+- [32:11.380] You know how long it would take for them to do that.
+- [32:13.660] Just say, "Okay, government's open."
+- [32:15.380] That's it. There is nothing.
+- [32:16.700] The Press: How long do you think this could go?
+- [32:17.980] The President: They're not negotiating.
+- [32:19.220] What they're doing is saying they lost the negotiation,
+- [32:22.190] when we got the great big beautiful deal done,
+- [32:24.730] they lost that negotiation. Now they're saying,
+- [32:27.000] "Well, we want to get some of the things we lost."
+- [32:30.310] But the problem is the things they lost
+- [32:32.050] are very bad for our country.
+- [32:34.550] We don't want to have people come over
+- [32:36.460] from all over the world, from prisons and all
+- [32:38.500] and have them have their healthcare paid for.
+- [32:40.970] We want to take care of people
+- [32:42.810] that are American citizens and all.
+- [32:45.360] So they want $1.5 trillion of money
+- [32:50.040] to be wasted and jeopardize the healthcare of other people.
+- [32:52.910] We're not going to do that.
+- [32:54.130] So I would love to meet with them.
+- [32:57.360] We want the country open first. Yeah.
+- [32:59.910] The Press: Mr. President, a new poll shows
+- [33:01.570] that if Curtis Sliwa dropped out of the New York mayoral race,
+- [33:04.500] then Andrew Cuomo would only trail Mamdani by four points.
+- [33:08.020] Would you call Curtis Sliwa to drop out of the race
+- [33:10.190] so that can happen?
+- [33:12.660] The President: Well, I looked at the polls and looks like
+- [33:16.900] we're going to have a communist as the mayor of New York.
+- [33:20.070] It'll be very interesting. But here's the good news.
+- [33:22.310] He's got to go through the White House.
+- [33:24.970] Everything goes through the White House.
+- [33:26.550] At least this White House it does,
+- [33:28.680] and we'll have to see what happens.
+- [33:30.290] But if he dropped out, he's not going to win,
+- [33:33.910] and not looking too good for Cuomo either.
+- [33:37.470] But maybe, I don't know, if he dropped out
+- [33:39.130] maybe Cuomo would have a little bit of a chance,
+- [33:41.180] but not much because it looks like the lead is --
+- [33:45.570] It's not a great lead,
+- [33:46.800] but it is big enough that he should be able to win.
+- [33:49.020] So I don't know that I want to get involved.
+- [33:51.700] It's really a question of would
+- [33:53.240] I rather have a democrat or a communist?
+- [33:56.090] And I would rather have a democrat than a communist.
+- [33:58.750] The Press: Will you meet to Mamdani if he wins?
+- [34:01.820] The President: Yeah, I'll speak to him.
+- [34:03.990] I have an obligation to speak to him.
+- [34:05.840] But look, I love New York. I've always loved New York.
+- [34:08.600] I just can't believe a thing like this is happening.
+- [34:10.720] I left New York,
+- [34:12.440] and we had a Mayor de Blasio who was a disaster,
+- [34:17.440] but when I left, it was before he could really take hold.
+- [34:21.470] And boy, New York was a hot city
+- [34:23.180] and now it's sad to see what's happening, frankly.
+- [34:27.110] And with a communist in charge, look,
+- [34:30.220] you just go back a thousand years.
+- [34:32.690] I mean, it's been done many times, a thousand years.
+- [34:35.810] It's never worked once.
+- [34:37.030] So it's not going to work now either.
+- [34:41.210] The Press: You're building your ballroom right now.
+- [34:42.780] They're also building the Obama Presidential Library.
+- [34:45.070] I'm wondering if you've seen --
+- [34:46.400] The President: He needs help.
+- [34:47.620] The Press: Have you seen pictures of the architecture
+- [34:49.240] and what do you think of it?
+- [34:50.460] The President: Yeah. It's not too pretty.
+- [34:53.820] No, but it is closed. It stopped.
+- [34:56.080] They ran out of money.
+- [34:57.820] Means building a library slash museum,
+- [35:00.240] you call it some museum
+- [35:01.800] and usually they call it a library and a museum.
+- [35:05.820] That's the official name. And they're stuck.
+- [35:10.800] And he wanted only women in DEI to build it.
+- [35:13.600] Well, that's what they got.
+- [35:16.630] And the construction workers are standing out there and saying,
+- [35:19.330] "We want to be able to build it."
+- [35:20.610] You know, you have great --
+- [35:21.930] I built a great building in Chicago as you know.
+- [35:24.130] A big, beautiful building,
+- [35:26.110] one of the tallest buildings in the country.
+- [35:29.030] And we got it built very quickly, very well.
+- [35:31.200] And we used the construction workers of Chicago.
+- [35:33.590] They're great workers, they're great construction people,
+- [35:36.730] and I suggest that you get them involved,
+- [35:38.880] but they're hundreds of millions of dollars over budget.
+- [35:43.230] And I think it stopped.
+- [35:44.550] I'm reading these terrible stories,
+- [35:47.160] but that's the way our country was run under
+- [35:49.680] President Obama too. Nobody knew it.
+- [35:53.340] The Press: Thank you, Mr. President.
+- [35:54.620] Russia remains China's top crude oil supplier in September.
+- [35:59.030] Are you considering tariffs on China?
+- [36:04.200] The President: Well, I mean,
+- [36:06.250] you read the same papers as I do,
+- [36:08.060] but I don't have to read the papers,
+- [36:09.660] because I'm the one -- Right now, as of November 1st,
+- [36:13.200] China will have about 155 percent tariff put on it.
+- [36:18.740] And I don't think it's sustainable for them.
+- [36:21.430] So I want to be nice to China.
+- [36:24.120] But China's been very rough with us over the years,
+- [36:26.180] because we had presidents that weren't smart
+- [36:29.040] from a business standpoint. Some were good politicians,
+- [36:32.270] some weren't even good politicians,
+- [36:33.850] but they allowed China to take advantage of us
+- [36:35.980] and every other country to take advantage of us.
+- [36:38.850] If you see, I made a deal with the European Union.
+- [36:41.540] I made a deal with Japan, with South Korea.
+- [36:43.350] Made a lot of these deals that are great deals.
+- [36:45.750] And I was able to do it -- It's really national security.
+- [36:48.740] I was able to do it because of tariffs,
+- [36:51.110] and we're getting hundreds of millions,
+- [36:53.670] even trillions of dollars paid into the United States.
+- [36:56.140] We're a very rich country again.
+- [36:58.410] We'll start paying off debt. We'll do a lot of things.
+- [37:01.010] We'll probably make a distribution
+- [37:02.580] out of some of the tariff money.
+- [37:03.870] I think we're going to make a distribution
+- [37:06.480] over the next fairly short period of time to people,
+- [37:10.250] because we took in so much money from the tariffs.
+- [37:14.030] Just European Union, $650 billion.
+- [37:18.340] Japan, $550 billion. South Korea, 350 billion.
+- [37:23.030] That's even a lot of money for you guys, right?
+- [37:24.900] That's not bad, right?
+- [37:27.510] But no, we're taking in a lot of money
+- [37:29.970] and it keeps people like this here,
+- [37:33.080] because that's why they're coming in.
+- [37:35.800] You wouldn't be -- I mean, I'm not going to speak for you,
+- [37:37.780] but generally they won't be coming in
+- [37:39.260] if we're off on tariffs.
+- [37:40.470] They come in here and they don't have to pay any tariff.
+- [37:43.790] If they do it outside, they pay a lot of money,
+- [37:47.330] a lot of tariffs. The money comes to us,
+- [37:49.490] and in order not to pay the tariff,
+- [37:51.010] they come and they build here.
+- [37:52.230] That's why we have more plants under construction
+- [37:54.790] than we've ever had in the history of our country.
+- [37:57.890] And you wouldn't think it's complicated,
+- [37:59.420] but you would've thought somebody would've done
+- [38:00.880] this a long time ago, sitting in this beautiful seat
+- [38:04.190] behind what's called the Resolute Desk.
+- [38:06.230] You know that, right? This is a very famous --
+- [38:08.480] This is even more famous
+- [38:09.750] than any of your desks, your desks are very good.
+- [38:15.850] The Press: Follow up on her question to you,
+- [38:17.130] because the New York Times is reporting
+- [38:18.760] that your legal team is seeking $230 million
+- [38:21.830] from your own justice department now,
+- [38:23.520] in response to the investigations into you.
+- [38:25.460] The President: It could be.
+- [38:26.710] The Press: Is that something you want your legal team to do?
+- [38:28.110] The President: I don't know what the numbers are.
+- [38:29.310] I don't even talk to them about it.
+- [38:30.670] All I know is that they would owe me a lot of money,
+- [38:33.790] but I don't -- I'm not looking for money.
+- [38:35.210] I'd give it to charity or something.
+- [38:36.620] I would give it to charity, any money.
+- [38:38.460] But look, what they did, they rigged the election
+- [38:41.070] and as you know,
+- [38:42.770] we had in one case 60 Minutes had to pay us a lot of money.
+- [38:46.810] George Slopidopoulos had to pay us
+- [38:49.200] a lot of money and they already paid.
+- [38:51.090] They paid me a lot of money, because what they did was wrong.
+- [38:54.420] And when somebody does what's wrong --
+- [38:56.280] Now, with the country, it's interesting
+- [38:58.070] because I'm the one that makes a decision, right?
+- [39:00.580] And that decision would have to go across my desk.
+- [39:04.220] And it's awfully strange to make a decision
+- [39:06.170] where I'm paying myself.
+- [39:07.920] In other words, did you ever have one of those cases
+- [39:09.800] where you have to decide
+- [39:11.460] how much you're paying yourself in damages?
+- [39:13.960] But I was damaged very greatly and any money that I would get,
+- [39:16.910] I would give to charity.
+- [39:18.120] The Press: Thank you, Mr. President.
+- [39:20.310] The President: Please, go ahead.
+- [39:21.600] The Press: Is the Democrat party now more Zohran Mamdani's party
+- [39:26.010] than it is even leader Schumer's or leader-
+- [39:28.010] The President: Probably is. Yeah.
+- [39:31.470] Maybe he'll run for president in four years.
+- [39:33.290] You'll have a communist president.
+- [39:34.660] That would be interesting, right?
+- [39:36.290] I don't see it happening.
+- [39:37.950] I've always said you will never see --
+- [39:40.280] And I always talked about socialism.
+- [39:42.710] You will never see a socialist so-and-so.
+- [39:46.230] And I was right. I say it in speeches,
+- [39:47.960] "We will not have socialism in our country,"
+- [39:50.270] and I was right. Communism, yes, but socialism --
+- [39:52.480] In other words, they skipped socialism,
+- [39:54.210] and they went down to communism.
+- [39:56.460] No, he's a communist and he's going to be
+- [39:58.770] maybe the mayor of New York. I don't know.
+- [40:01.220] Polls are raw, but these polls seem to be pretty consistent,
+- [40:04.990] but he would be --
+- [40:06.330] I would say he would be the leader of the party.
+- [40:08.070] He's not Schumer. Schumer is shot. He's shot.
+- [40:11.200] This poor guy. I feel sorry for him.
+- [40:12.880] I known him for a long time, but I think he's mentally gone.
+- [40:17.260] He's been beat up by young radical lunatics.
+- [40:22.960] And I think Chuck Schumer is, he's gone.
+- [40:26.020] I really do. I think he's probably not going to run.
+- [40:29.810] It shows that he's losing in every poll.
+- [40:31.670] Now, this is hard -- He wants to meet with me.
+- [40:34.780] It's hard to be with a guy after I make a statement like that,
+- [40:37.840] but I'm just giving the facts.
+- [40:39.120] I think Chuck is probably finished.
+- [40:43.140] I know some people, democrats, that would be good.
+- [40:46.130] Some good politicians and some reasonable people.
+- [40:49.760] But I understand that they would not have a chance of getting --
+- [40:55.950] Even the concept of holding the torch,
+- [40:57.990] they're going to get it. But they have some people
+- [41:00.930] that I really believe they're low IQ people.
+- [41:03.710] They're stupid people, and they seem to be leading the party.
+- [41:07.270] So we'll see what happens.
+- [41:08.620] Look, the Republicans are strong.
+- [41:10.560] We have great leadership. We're very strong in every way
+- [41:14.200] and we're going to keep it that way.
+- [41:15.490] But we are really a strong party.
+- [41:17.390] Our party's grown magnificently. We've got --
+- [41:21.190] Look at all the union votes I got.
+- [41:22.890] Nobody thought that was ever possible.
+- [41:24.560] Look at the election where I won a popular --
+- [41:27.290] I've won everything. I won all seven swing states.
+- [41:30.120] If you win three or four swing states, you're doing great.
+- [41:32.360] I won all seven, by a lot.
+- [41:35.050] And I think the best thing when you look at districts,
+- [41:39.430] 2,700 versus 525, that's big.
+- [41:45.460] That's why the map shows all red.
+- [41:47.460] So we won at a tremendous landslide,
+- [41:49.970] and that's because people like our policy.
+- [41:52.140] I guess they like me, but they liked my policies.
+- [41:54.730] Strong borders, good education, low taxes.
+- [41:58.760] In the great big beautiful bill.
+- [42:00.300] We got the biggest tax cut in history.
+- [42:03.370] Not only no tax on tips, no tax on social security,
+- [42:07.120] no tax on overtime.
+- [42:08.910] We got the biggest tax cut in the history of our country
+- [42:12.530] in the bill that we just approved.
+- [42:15.030] And I think people see that and they like it,
+- [42:17.210] and that's why we're doing well. But they do not have leadership.
+- [42:20.440] Thank you very much everybody. Thank you very much.

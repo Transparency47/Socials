@@ -1,0 +1,303 @@
+<!-- source: https://www.youtube.com/watch?v=SgaVjksOo70 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: SgaVjksOo70 -->
+<!-- date_published: 2026-01-15T20:20:05+00:00 -->
+<!-- date_accessed: 2026-06-02T01:07:21.864145+00:00 -->
+
+# Transcript: The Story of America: The Faith of Our Founders
+
+- [00:02.745] (mix of famous American history quotes)
+- [00:45.445] Mark David Hall: I've been asked to say a few words about
+- [00:47.681] the religious faith of America's
+- [00:48.925] Founders and why it matters.
+- [00:52.050] Hi, I'm Mark David Hall, a professor in
+- [00:54.005] the Robertson School of
+- [00:55.110] Government at Regent University.
+- [00:57.800] Let me begin by observing that a lot of
+- [00:59.906] nonsense has been written about
+- [01:01.627] the faith of America's Founders.
+- [01:04.030] Scholars and popular authors alike
+- [01:06.347] routinely assert that they were
+- [01:08.461] enlightenment deists who desired to
+- [01:10.187] strictly separate church and state.
+- [01:13.100] Nothing could be further from the truth.
+- [01:15.860] On September 24, 1789, the House of
+- [01:17.915] Representatives approved what
+- [01:19.677] would become the First Amendment.
+- [01:22.040] In amendment that includes these important
+- [01:24.638] words, Congress shall make no law
+- [01:26.681] respecting an establishment of religion
+- [01:29.021] or prohibiting the free exercise thereof.
+- [01:31.481] Those who oppose religion in public life
+- [01:34.131] often point to this amendment as evidence
+- [01:36.781] that the Founders wanted to build a wall
+- [01:38.796] of separation between church and state.
+- [01:41.500] But consider this.
+- [01:42.981] The day after the House approved the first
+- [01:45.641] amendment, Elias Boudino, who laid working
+- [01:48.301] president of the American Bible Society,
+- [01:50.865] proposed that Congress asked President
+- [01:53.301] Washington to recommend a day of
+- [01:55.241] public thanksgiving and prayer.
+- [01:57.740] In response to objections by Aedanus Burke
+- [01:59.934] and Thomas Tucker, it's such a
+- [02:01.961] practice mimic European customs
+- [02:03.624] or should be done by the states.
+- [02:05.860] Connecticut's Roger Sherman justified the
+- [02:08.600] practice of thanksgiving on any single event.
+- [02:11.701] Not only as laudable in itself, but
+- [02:14.462] is warranted by a number of precedents in holy writ.
+- [02:18.680] For instance, the solemn thanksgiving and
+- [02:21.580] rejoicing which took place in the time of Solomon.
+- [02:25.480] The House agreed with Boudino
+- [02:27.171] in Sherman, as did the Senate.
+- [02:30.320] Congress requested that President
+- [02:32.077] Washington issue a Thanksgiving Day proclamation.
+- [02:34.900] He didn't have to, or he did.
+- [02:38.380] On October 3, 1789, Washington issued
+- [02:41.240] a proclamation, designating Thursday,
+- [02:44.300] November 26 as a national day
+- [02:46.050] of prayer and Thanksgiving.
+- [02:50.220] Whereas it is a duty of all nations to
+- [02:52.450] acknowledge the providence of Almighty
+- [02:54.681] God, to obey His will, to be grateful for
+- [02:57.632] His benefits, and to humbly implore His
+- [03:00.441] protection and favor, I do recommend the
+- [03:02.991] people of these states to the service of
+- [03:05.541] the great and glorious being who is a
+- [03:07.820] beneficent author of all the good that
+- [03:10.161] was, that is, or that will be, that
+- [03:12.401] we may then unite in rendering unto
+- [03:14.641] Him our sincere and humble thanks,
+- [03:16.860] and also that we may then unite in our
+- [03:19.540] most humble offerings and prayers and
+- [03:21.551] supplications to the great Lord and ruler
+- [03:23.781] of nations and beseech Him to pardon
+- [03:25.989] our national and other transgressions,
+- [03:28.520] to enable us all, whether in our public or
+- [03:31.112] private stations, to perform our several
+- [03:33.581] and relative duties properly and
+- [03:35.685] punctually, to render our national
+- [03:37.921] government a blessing to all people.
+- [03:44.355] President Washington encouraged prayer,
+- [03:47.712] but he did not attempt to compel it.
+- [03:51.250] America's Founders saw nothing wrong
+- [03:52.982] with civic leaders endorsing religious
+- [03:54.811] practices like prayer, but they had also
+- [03:57.023] come to a consensus that there must be no
+- [03:59.291] compulsion in matters of faith.
+- [04:01.510] In the late 18th century, 98% of Americans
+- [04:04.428] of European descent were Protestant,
+- [04:07.530] 2% were Roman Catholic, and there were
+- [04:10.127] about 2,000 Jews in four American cities.
+- [04:13.430] Although it is often claimed that many of
+- [04:15.333] the Founders were deists, that label may
+- [04:17.191] be applied to only a handful of individuals.
+- [04:20.870] Now, Protestants are people of
+- [04:22.298] the book, that is the Bible.
+- [04:24.210] So if faith was important to the Founders,
+- [04:26.143] one would expect them to make significant
+- [04:28.031] use of the scriptures in their political writings.
+- [04:30.790] And they did.
+- [04:32.570] Donald Bloods conducted an impressive
+- [04:34.462] study of the pamphlets, articles,
+- [04:36.151] and books on political subjects
+- [04:38.083] in late 18th century America.
+- [04:40.570] The study found that the Bible was cited
+- [04:42.874] far more often than any other book,
+- [04:45.090] article, or pamphlet at the time.
+- [04:47.390] Indeed, the Founders referenced the Bible
+- [04:49.617] more than all European authors combined, 34% to 22%.
+- [04:54.811] Think about that.
+- [04:56.090] 34% of all citations are to the Bible alone.
+- [05:00.150] Only 22% to enlighten them and thinkers
+- [05:02.410] as its John Locke, Montesquieu, or Adam Smith.
+- [05:06.110] Did the Founders' religious convictions
+- [05:07.930] make a difference in the creation of
+- [05:09.611] America's constitutional order?
+- [05:11.770] Absolutely they did.
+- [05:13.410] The Declaration of Independence,
+- [05:15.507] its central paragraph relies on a theological claim.
+- [05:20.310] We hold these truths to be self-evident,
+- [05:22.609] that all men are created equal,
+- [05:24.530] that they are endowed by the Creator with
+- [05:26.679] certain unalienable rights, that among
+- [05:28.671] these are life, liberty, and the pursuit of happiness.
+- [05:32.290] For almost all the Founders, God is the
+- [05:34.804] source of natural rights, and it is a
+- [05:37.191] primary duty of government to protect these rights.
+- [05:40.890] Many enlightenment thinkers in the era
+- [05:42.706] support a strong centralized government run by experts.
+- [05:46.130] But America's Founders would have nothing
+- [05:48.136] to do with this, because they
+- [05:49.547] believe that humans are sinful.
+- [05:52.090] In Federalist 51, James Madison observed
+- [05:54.798] that if men were angels, no
+- [05:56.632] government would be necessary.
+- [05:59.010] If angels were to govern men, neither
+- [06:01.313] external nor internal controls and
+- [06:03.431] government would be necessary.
+- [06:09.810] This led them to design a constitutional
+- [06:11.955] order characterized by the separation of
+- [06:14.101] powers, checks and balances in Federalism.
+- [06:18.820] Critically, the Founders believed that
+- [06:20.847] humans were created in the Amago dei,
+- [06:22.960] the image of God.
+- [06:24.260] In a 1793 Supreme Court opinion in
+- [06:26.527] Chisholm versus Georgia, Justice James
+- [06:29.061] Wilson, paraphrasing Psalm 139,
+- [06:31.705] observed that, man, fearfully and
+- [06:34.521] wonderfully made is a workmanship
+- [06:36.489] of his all-perfect Creator.
+- [06:38.600] He echoed this conviction in his law
+- [06:40.751] lectures, noting that innocent
+- [06:42.585] life must always be protected.
+- [06:44.640] He wrote with evident approval that,
+- [06:47.615] with consistency, beautiful, and
+- [06:50.261] deviating, human life from its
+- [06:52.402] commencement to its closed is
+- [06:54.507] protected by the common law.
+- [06:58.620] Many Founders were also coming to
+- [07:00.705] recognize that slavery fundamentally
+- [07:02.981] undermines the idea that all
+- [07:04.796] humans are created in God's image.
+- [07:07.400] And so they were coming to oppose it.
+- [07:09.200] This is why the Confederation Congress
+- [07:11.044] passed and the First Federal Congress
+- [07:12.841] reauthorized the Northwest Ordinance.
+- [07:16.220] A law that prohibits slavery in the
+- [07:18.443] territories, which became the states of
+- [07:20.921] Ohio, Michigan, Indiana, Illinois,
+- [07:23.194] Wisconsin, and part of Minnesota.
+- [07:26.000] As well, eight states north of Maryland
+- [07:28.620] abolished or put slavery on the
+- [07:30.707] path to extinction between 1777.
+- [07:32.961] and 1804.
+- [07:35.660] Finally, the Founders understood the
+- [07:37.554] Christian faith to require the robust
+- [07:39.501] protection of religious liberty for all.
+- [07:42.280] This is illustrated well by George Mason's
+- [07:44.811] draft of Article 16 of the Virginia
+- [07:46.921] Declaration of Rights, which reads, that
+- [07:49.861] as religion, or the duty which we owe
+- [07:52.581] to our divine and omnipotent creator,
+- [07:54.946] and the manner of discharge can be
+- [07:57.320] governed only by reason and conviction,
+- [07:59.550] not by force or violence, and therefore
+- [08:01.980] that all mention, enjoy the fullest
+- [08:03.748] toleration into the exercise of religion,
+- [08:06.480] according to the dictates of conscience,
+- [08:08.977] unpunished and unrestrained by the magistrate.
+- [08:12.380] Note how Mason's provision is grounded in
+- [08:14.994] the duty which we owe to our
+- [08:16.838] divine and omnipotent creator.
+- [08:18.501] Now, this is not a bad provision,
+- [08:20.883] but James Madison, in his first
+- [08:23.121] significant public act, objected to the
+- [08:25.162] use of the word toleration in the article,
+- [08:27.900] believing that in applied that religious
+- [08:29.723] liberty was a grant from the state
+- [08:31.277] that could be revoked at will.
+- [08:34.080] The Virginia Convention agreed an Article
+- [08:36.824] 16, which had a profound influence on
+- [08:39.301] subsequent state constitutions in the
+- [08:41.326] National Bill of Rights, was amended to
+- [08:43.461] remove the language of toleration, to
+- [08:45.681] make it clear that the free exercise
+- [08:47.839] of religion is a right, not a
+- [08:49.763] privilege granted by the state.
+- [08:54.500] By the end of the revolutionary era,
+- [08:56.406] every state constitution offered
+- [08:58.101] significant protection to religious liberty.
+- [09:00.880] The federal constitution of 1787 did not
+- [09:03.280] have a religious liberty provision per se,
+- [09:06.240] but Article 6 prohibits religious
+- [09:08.069] test for federal office.
+- [09:10.040] Now, some objected that this would allow
+- [09:11.753] non-Christian to be elected to federal office.
+- [09:14.680] Federalists conceded that this was a case,
+- [09:16.795] and many undoubtedly thought this outcome
+- [09:18.861] unlikely, but fortunately, they insisted
+- [09:21.531] on a constitution that did not favor one
+- [09:24.201] religious tradition over another.
+- [09:27.340] Anti-federalists thought the constitution
+- [09:29.302] did not sufficiently protect religious
+- [09:31.121] liberty, and they insisted that
+- [09:32.990] a Bill of Rights be added to it.
+- [09:35.580] In the face of popular outcry, the
+- [09:37.469] first Congress proposed in the state's
+- [09:39.581] ratified a constitutional amendment
+- [09:41.633] prohibiting Congress from making a law
+- [09:43.861] respecting an establishment of religion
+- [09:46.025] or prohibiting the free exercise thereof.
+- [09:48.875] This provision clearly bans Congress from
+- [09:51.276] creating a national church, and it goes
+- [09:53.561] well beyond protecting the freedom of worship.
+- [09:55.900] It insists that citizens have the
+- [09:57.724] right to the free exercise of religion.
+- [10:01.360] Not only did the Founders understand
+- [10:02.982] that religious liberty must be robustly
+- [10:04.741] protected, they've recognized the
+- [10:06.804] religious convictions of all
+- [10:08.636] Americans must be carefully guarded.
+- [10:11.360] I already mentioned Article 6's
+- [10:13.030] prohibition on religious tests,
+- [10:15.060] but let me close by returning to President Washington.
+- [10:17.341] In 1790, he wrote a letter to the Hebrew
+- [10:20.079] congregation in Newport, Rhode Island.
+- [10:23.200] Keep in mind, there were only about 2,000
+- [10:25.852] Jewish citizens in America, and they had
+- [10:28.441] little political economic power.
+- [10:30.940] As a matter of principle, not politics,
+- [10:34.252] President Washington insisted that all
+- [10:37.481] citizens possess a like liberty and
+- [10:39.413] conscience and the immunities of citizenship.
+- [10:42.010] It is now no more that toleration is
+- [10:44.315] spoken of, as if it was by the indulgence
+- [10:46.941] of one class of people that another
+- [10:48.820] enjoyed the exercise of their inherent natural rights.
+- [10:52.360] For happily, the government of the
+- [10:54.092] United States, which gives the bigotry no
+- [10:56.181] sanction to persecution, no assistance,
+- [10:58.838] requires only that they who live under its
+- [11:01.701] protection should demean themselves
+- [11:03.985] as good citizens, in giving it on all
+- [11:06.401] occasions their effectual support.
+- [11:09.260] Like James Madison, Washington emphasized
+- [11:11.978] that Americans have moved beyond
+- [11:14.101] toleration to respecting the inherent
+- [11:16.632] natural right of all people to
+- [11:18.728] the free exercise of religion.
+- [11:21.500] Washington closed this letter
+- [11:22.720] with the following paragraph.
+- [11:24.540] May the children of the stock of Abraham,
+- [11:27.240] who dwell on this land, continue to merit
+- [11:29.941] and enjoy the goodwill of the other
+- [11:32.077] inhabitants, while everyone shall sit and
+- [11:34.581] safety under his own vine and fig tree,
+- [11:36.731] and there shall be none to make him afraid.
+- [11:39.640] May the father of all mercy scatter white
+- [11:42.040] and not darkness in our past, and make us
+- [11:44.441] all in our several vocations useful
+- [11:46.764] here, and in his own due time
+- [11:48.734] and way everlastingly happy.
+- [11:51.040] There are nine scriptural
+- [11:52.464] references in this last paragraph.
+- [11:54.880] One of them is to mica for four, which
+- [11:56.931] reads, while everyone shall sit and
+- [11:58.821] safety under his own vine and fig tree,
+- [12:00.834] and there shall be none to make him afraid.
+- [12:03.680] This was George Washington's favorite Bible verse.
+- [12:06.360] He quoted or paraphrased it more
+- [12:08.135] than 50 times in his writings.
+- [12:10.680] Today, we give thanks for our founder's
+- [12:13.069] religious faith, and for their wisdom and
+- [12:15.581] foresight in protecting the sacred right
+- [12:17.658] of conscience in the first amendment.
+- [12:19.880] Now, it is up to every generation to
+- [12:22.234] protect these rights, to ensure that every
+- [12:24.981] American can sit under his own vine
+- [12:27.173] and fig tree and never be afraid.
+- [12:30.200] Thank you for joining me.
+- [12:38.861] ♪ (orchestral music playing) ♪

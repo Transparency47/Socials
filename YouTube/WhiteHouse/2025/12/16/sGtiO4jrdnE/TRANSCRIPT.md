@@ -1,0 +1,95 @@
+<!-- source: https://www.youtube.com/watch?v=sGtiO4jrdnE -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: sGtiO4jrdnE -->
+<!-- date_published: 2025-12-16T17:41:54+00:00 -->
+<!-- date_accessed: 2026-06-02T01:08:35.100016+00:00 -->
+
+# Transcript: MUST WATCH: VP Vance breaks down the economic mess inherited from Biden
+
+- [00:00.160] I'm a little surprised by when the
+- [00:02.720] Democrats talk all the time about
+- [00:06.080] affordability.
+- [00:08.800] >> Democrats say, you know, things aren't
+- [00:10.880] affordable. Th this isn't affordable.
+- [00:12.880] This has gotten more expensive. Drugs
+- [00:14.880] have gotten more expensive. Housing's
+- [00:16.400] gotten more expensive. And you know
+- [00:18.000] what? They're right. And it was because
+- [00:20.160] of them.
+- [00:22.160] >> It ain't that hard. If you go back to
+- [00:24.800] the four years of the Biden
+- [00:26.160] administration, why did housing get so
+- [00:28.800] expensive, double in price during the
+- [00:31.039] Biden administration? It's because Joe
+- [00:33.120] Biden let in 20 million illegal
+- [00:35.680] immigrants who took homes that all by
+- [00:37.920] right go to American citizens and to the
+- [00:40.320] people of this great state.
+- [00:46.559] When we talk about why did health care
+- [00:48.320] get so unaffordable during the Biden
+- [00:50.480] administration, it's because Joe Biden
+- [00:53.280] allowed prescription drug companies to
+- [00:55.520] take advantage of this country. You
+- [00:58.079] know, Europeans were paying way less for
+- [01:00.320] prescription drugs than our American
+- [01:02.399] citizens. It took Donald J. Trump to
+- [01:04.879] haul those pharmaceutical executives
+- [01:06.479] into the Oval Office and say, "No more.
+- [01:08.400] Europe's going to pay more for drugs and
+- [01:10.640] America's gonna pay less for drugs
+- [01:12.479] because we got to fight for the American
+- [01:14.000] people for a change.
+- [01:20.320] >> Why have rents gone down for four
+- [01:22.320] consecutive months? And I know they're
+- [01:23.680] still too high, but why have rents gone
+- [01:25.759] down for four consecutive months?
+- [01:27.600] Because we've we're starting to get
+- [01:29.600] those illegal aliens out of the United
+- [01:32.000] States of America, those criminals,
+- [01:34.159] those gang members, those people who are
+- [01:35.920] taken homes that ought by right go to
+- [01:38.000] the people in this room and your
+- [01:39.759] children and your grandchildren. It's
+- [01:41.920] simple economics. If you have fewer
+- [01:44.560] people, fewer illegal aliens trying to
+- [01:46.720] buy homes, that means American citizens
+- [01:48.880] are going to finally be able to afford a
+- [01:50.960] home again. It's very, very simple
+- [01:52.960] economics. When you ask why is it that
+- [01:55.439] we have trillions of dollars of new
+- [01:58.479] investment coming into the United States
+- [02:00.079] of America? Because we finally got a
+- [02:02.240] president who says if you're going to
+- [02:04.079] build in America, if you're going to
+- [02:05.759] invest in America, we're going to make
+- [02:07.360] it easy for you. But if you're not going
+- [02:09.200] to build anything in America, if you're
+- [02:10.640] going to try to ship an American job
+- [02:12.239] overseas, then we are going to penalize
+- [02:14.400] you for doing something overseas that
+- [02:16.959] you ought to do in the United States of
+- [02:18.480] America. That's why we've got so much
+- [02:20.319] money coming in.
+- [02:26.640] So if you look at every single
+- [02:28.720] affordability crisis that we talk about
+- [02:31.440] in the United States of America today,
+- [02:33.599] it's because we inherited a nightmare of
+- [02:36.879] an economy from Joe Biden. The highest
+- [02:39.280] peacetime debt and deficits in the
+- [02:41.440] history of the United States of America.
+- [02:43.599] That blows the door off inflation. The
+- [02:46.000] highest energy prices in the history of
+- [02:48.400] the United States of America. We are in
+- [02:50.480] one of the great energy regions in the
+- [02:53.440] entire world. Not just in America, in
+- [02:55.280] the entire world. You know why energy
+- [02:57.280] prices are lower? You know why gas
+- [02:59.120] prices have come down so much? Because
+- [03:01.200] we finally got an American president who
+- [03:03.519] wants to invest in American energy and
+- [03:06.080] American workers instead of green energy
+- [03:08.879] boondoggles that are produced overseas.
+- [03:17.440] So in all these things my point ladies
+- [03:19.519] and gentlemen is that we are making
+- [03:21.040] progress.

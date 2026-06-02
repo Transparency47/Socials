@@ -1,0 +1,933 @@
+<!-- source: https://www.youtube.com/watch?v=567EpNddcJI -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 567EpNddcJI -->
+<!-- date_published: 2025-11-04T19:02:37+00:00 -->
+<!-- date_accessed: 2026-06-02T02:42:09.325325+00:00 -->
+
+# Transcript: Press Secretary Karoline Leavitt Briefs Members of the Media, Nov. 4, 2025
+
+- [00:05.460] Karoline Leavitt: Good afternoon, everybody.
+- [00:06.760] The Press: Good afternoon.
+- [00:07.960] Karoline Leavitt: Nice to see you
+- [00:09.190] on this beautiful fall afternoon.
+- [00:11.530] We are now on day 35 of the Democrat government shutdown.
+- [00:17.480] The Democrat's obstructionism will break the record
+- [00:20.180] for the longest government shutdown
+- [00:22.610] in American history tonight.
+- [00:24.940] The Democrats are intentionally hurting American families,
+- [00:28.530] workers, and businesses with this shutdown
+- [00:31.200] to fight for free healthcare, for illegal aliens,
+- [00:34.400] and to appease their radical left-wing base.
+- [00:37.810] And it's a total disgrace.
+- [00:39.860] This past weekend, Americans traveling to weddings,
+- [00:42.860] funerals, vacations, and meetings,
+- [00:45.300] faced significant flight disruptions at airports
+- [00:48.140] across the country because of staffing shortages.
+- [00:51.630] On Sunday alone, more than 5,000 flights
+- [00:54.850] traveling to and from US airports were delayed.
+- [00:58.500] Since the Democrat shutdown began,
+- [01:00.490] four times as many staffing shortages
+- [01:02.970] have been reported at air traffic control facilities
+- [01:06.130] compared to last year.
+- [01:08.120] TSA checkpoint wait times ballooned past three hours
+- [01:11.690] at Houston's George Bush Intercontinental Airport,
+- [01:14.790] with some passengers enduring up to five hours in line.
+- [01:18.940] At nearby William P. Hobby Airport in Texas,
+- [01:21.940] security wait times are routinely exceeding one hour.
+- [01:25.630] More than 13,000 air traffic controllers
+- [01:28.380] are continuing to work without pay.
+- [01:30.980] Because of the Democrats, these men and women
+- [01:33.120] who keep our airspace safe
+- [01:34.700] and moving will miss a second paycheck in a row this Friday
+- [01:39.280] if Democrats refuse to open the government.
+- [01:42.210] Let me be clear to our incredible air traffic
+- [01:44.920] controllers across the country, President Trump and Republicans
+- [01:49.070] want you to get your paychecks. They want you to be paid.
+- [01:53.700] Please call on your Democrat senators
+- [01:55.880] and tell them to side with President Trump and Republicans
+- [01:59.150] to vote to reopen the government.
+- [02:02.200] Our nation's four largest airlines,
+- [02:04.390] United, Delta, American, and Southwest,
+- [02:07.630] have now all endorsed the Republican
+- [02:09.760] nonpartisan clean funding bill to end the government shutdown.
+- [02:14.380] Major unions collectively representing
+- [02:16.640] tens of thousands of pilots
+- [02:18.340] have also joined the airlines and calling on Democrats
+- [02:21.330] to pass the clean nonpartisan CR.
+- [02:24.010] The travel industry is also imploring Democrats
+- [02:26.680] to end the shutdown and reopen the government.
+- [02:29.170] Nearly 500 companies in groups in the travel business,
+- [02:32.230] including casinos, hotels, and convention bureaus,
+- [02:35.660] signed a public letter warning that America's travel economy
+- [02:39.160] has already lost $4 billion due to this Democrat shutdown.
+- [02:43.590] And they have called for the Republican CR
+- [02:46.260] to be passed saying, "Americans expect and deserve
+- [02:49.990] a fully functioning federal government
+- [02:52.580] during the peak holiday travel season."
+- [02:55.780] Never before have we seen private industry
+- [02:58.350] and union leadership so unified on the same issue
+- [03:02.020] rallying behind Republicans in such a vocal way.
+- [03:05.390] The Democrats have completely lost the plot.
+- [03:08.360] They are endangering the safety, prosperity,
+- [03:10.820] and livelihoods of millions of Americans.
+- [03:13.800] It's well pastime Democrats
+- [03:15.550] do what they did 13 times under Joe Biden
+- [03:19.270] and passed the clean funding bill extension.
+- [03:22.500] All we need are five Democrat senators
+- [03:24.890] to put country over party
+- [03:26.840] and vote to end this reckless shutdown.
+- [03:29.330] In other news,
+- [03:30.710] tomorrow will mark the one-year anniversary
+- [03:33.090] of President Trump's historic election victory
+- [03:36.090] where he won nearly 80 million votes,
+- [03:38.510] the popular vote in all seven swing states.
+- [03:41.420] This was the ultimate poll on November 5th.
+- [03:45.000] The President secured a mandate to make America great again
+- [03:47.740] and he has delivered in record time.
+- [03:50.380] Never before have we had a President
+- [03:52.270] who has kept their promises like President Trump has.
+- [03:54.790] I'd like to go over a few of those with you.
+- [03:57.030] In less than 10 short months, President Trump signed
+- [03:59.960] the largest middle-class tax cut in history,
+- [04:02.970] including no tax on tips, overtime, and social security
+- [04:06.540] to put more money back into the pockets of the American people.
+- [04:10.330] The President ended the southern border invasion
+- [04:13.330] of the Biden administration,
+- [04:15.320] made our border the most secure in history,
+- [04:17.530] and he is carrying out the largest mass deportation
+- [04:20.990] campaign of illegal aliens in our nation's history
+- [04:24.110] to protect our homeland just as promised.
+- [04:27.510] President Trump has aggressively taken on drug cartels
+- [04:30.300] by declaring them as foreign terrorist organizations
+- [04:33.690] and even blowing up narco terrorists
+- [04:35.640] who have tried to poison the American people
+- [04:37.990] with fentanyl and other illegal narcotics.
+- [04:41.030] President Trump defeated the Biden inflation crisis
+- [04:44.270] and he continues to implement a pro-growth,
+- [04:47.190] America first economic agenda
+- [04:49.500] to make America affordable again.
+- [04:51.750] And we are seeing the results of that every day.
+- [04:54.520] Inflation has remained low and steady, averaging just 2.5%
+- [04:59.110] compared to the painful average of 5% under Biden.
+- [05:03.050] And we know it was historically higher than that
+- [05:05.220] for most of President Biden's term.
+- [05:07.410] Meanwhile, real private sector wages
+- [05:09.780] are on track to rise by almost $1,500
+- [05:13.210] since President Trump took office.
+- [05:15.140] A significant change to the Biden years
+- [05:17.300] where private sector wages declined
+- [05:19.640] and were being wiped out by inflation.
+- [05:22.210] President Trump has ended the reckless war on American energy
+- [05:25.460] and unleashed energy dominance with gas prices
+- [05:28.300] now plummeting to their lowest average levels
+- [05:31.030] in more than four years.
+- [05:33.240] President Trump implemented powerful tariffs
+- [05:35.650] to rebalance America's trade deals,
+- [05:37.380] protect American workers, and returning our country
+- [05:40.300] to be a manufacturing superpower once again.
+- [05:44.660] As a result, the President has secured trillions
+- [05:47.140] and trillions of dollars in private
+- [05:49.090] and foreign investments into the United States,
+- [05:51.720] which are creating high-paying jobs
+- [05:54.350] for the greatest workforce in the world.
+- [05:56.950] The President has restored America's place
+- [05:59.130] as the leader of the free world through his unwavering
+- [06:01.860] peace-through-strength foreign policy
+- [06:03.850] that has already ended eight wars and counting.
+- [06:07.100] And the President ended illegal DEI
+- [06:09.090] initiatives in our federal government
+- [06:11.220] and is returning our country to a merit-based society
+- [06:15.020] based on common sense.
+- [06:16.870] President Trump protected opportunities for women
+- [06:19.260] and girls to compete safely and fairly
+- [06:21.910] by continuing to keep men out of women's sports.
+- [06:25.930] Americans have a President who works tirelessly,
+- [06:29.030] literally 24/ 7 to improve their lives
+- [06:32.060] and make our country better than it has ever been before.
+- [06:35.080] So with that today, we will open it up to questions
+- [06:37.300] and we will start with our independent journalist
+- [06:39.480] in our new media seat, Julio Rosas.
+- [06:41.640] Julio, please start. Thank you.
+- [06:43.530] The Press: Thanks, Karoline. So over the weekend in Mexico,
+- [06:46.750] a mayor in Michoacán, Carlos Manzo,
+- [06:49.110] he was assassinated while celebrating Dia de Muertos
+- [06:51.650] with his family.
+- [06:53.450] His assassination has sparked a lot of outrage.
+- [06:55.800] A lot of Mexicans are very upset.
+- [06:57.900] They're blaming President Claudia Scheinbaum
+- [06:59.860] for not taking the cartel threat seriously enough.
+- [07:03.510] Yesterday she said that once again,
+- [07:06.020] she's not going to allow any foreign military intervention
+- [07:08.530] to take on the cartels on Mexican soil
+- [07:10.500] and that Mexico is not going to pursue a drug war similar
+- [07:14.240] to what they've done in the past.
+- [07:15.850] So my question is President Trump satisfied
+- [07:19.010] with Claudia Scheinbaum's approach to cartels?
+- [07:21.180] And if not, has Manzo's assassination kind of opened up
+- [07:25.960] some new options for the United States
+- [07:28.180] to pursue regarding cartels?
+- [07:29.530] Karoline Leavitt: Well, first of all,
+- [07:30.920] with respect to this specific news item in this assassination
+- [07:35.940] that took place in Mexico, I know the Trump administration,
+- [07:38.550] we are aware of that and of course
+- [07:40.000] we condemn all political violence anywhere in all forms.
+- [07:44.310] As for Claudia Scheinbaum
+- [07:46.150] and the President's relationship with her,
+- [07:48.170] I think he has a lot of respect for her as President of Mexico.
+- [07:51.940] And he also really appreciates the coordination
+- [07:54.440] that she has provided to the Trump administration.
+- [07:56.600] I can't speak for her
+- [07:57.990] and what she's doing internally in her country.
+- [07:59.850] I can speak for the President in saying
+- [08:01.850] we are continually pushing Mexico
+- [08:03.920] to do more to tackle the drug trafficking
+- [08:06.560] and the drug cartels within their country.
+- [08:08.320] And we are working with them in any way that we can.
+- [08:11.120] And the President has obviously used
+- [08:12.840] the full range of executive options
+- [08:14.980] and his authorities to crack down
+- [08:17.020] on drug trafficking at our southern border
+- [08:19.500] and to designate these cartels
+- [08:21.320] as foreign terrorist organizations
+- [08:23.650] and additional actions as well.
+- [08:24.890] The Press: And just one more question.
+- [08:26.120] Karoline Leavitt: Sure.
+- [08:27.330] The Press: So at the Antifa Roundtable
+- [08:29.080] that we were at just last month, myself
+- [08:32.870] and the other panelists made the recommendation to the President
+- [08:36.240] for speaking of foreign terrorist organizations to have
+- [08:38.930] Antifa not just be domestic terrorist organization,
+- [08:41.540] but be designated as a foreign terrorist organization
+- [08:43.880] since they have cells in other countries.
+- [08:46.820] He mentioned to Secretary Rubio
+- [08:48.680] because he was in the room at the time to look into that.
+- [08:51.610] So I just wanted to see
+- [08:52.870] if there's an update on that recommendation.
+- [08:54.980] Karoline Leavitt: Sure.
+- [08:56.230] That process is most definitely taking place.
+- [08:58.170] I don't have any announcements for you on that today,
+- [09:00.350] but I can certainly assure you
+- [09:01.810] the administration is working on it
+- [09:03.900] and I'll check in on it and get back to you.
+- [09:05.620] Julio. It's a good question. Thank you very much. Jackie.
+- [09:08.760] The Press: Thank you, Karoline.
+- [09:10.120] Zohran Mamdani blamed the President for bomb threats
+- [09:14.290] and intimidation at polling locations.
+- [09:17.100] He said, quote, "Part of the general approach
+- [09:20.230] the Trump administration has taken to intimidate voters
+- [09:23.160] with baseless allegations of voter fraud
+- [09:25.060] as a means of trying to repress
+- [09:26.390] the voice of Americans across this country."
+- [09:28.290] I want to give you a chance to respond to that.
+- [09:30.320] Karoline Leavitt: Yeah, I saw those comments from Mamdani.
+- [09:32.800] I think they are completely irresponsible
+- [09:35.030] and they're based on zero evidence.
+- [09:37.360] And I think this is just another example
+- [09:39.480] of how the Democrat Party unfortunately
+- [09:41.370] stands for nothing.
+- [09:42.980] All they stand against is President Donald Trump.
+- [09:45.650] And I think it's quite sad to see that we have someone
+- [09:47.720] at the top of the ticket on an election day today
+- [09:50.260] saying such things about the President
+- [09:51.820] when he obviously had absolutely nothing to do
+- [09:53.680] with those threats.
+- [09:54.910] The Press: And on the shutdown, Democrats have been pretty quiet
+- [09:58.260] about the President's push for the nuclear option,
+- [10:01.570] terminating the filibuster.
+- [10:03.550] Is there any concern around here that Democrats might actually
+- [10:06.730] want Republicans to get rid of the filibuster
+- [10:08.760] so that one day when they're in power again,
+- [10:11.240] the door's already open for them to pack the Supreme Court,
+- [10:14.430] give statehood to DC and Puerto Rico,
+- [10:16.800] make mail-in balloting permanent,
+- [10:18.790] those kinds of things?
+- [10:19.990] Karoline Leavitt: I think the President has been
+- [10:21.270] very realistic
+- [10:22.480] and strong in his position on the filibuster.
+- [10:24.770] He's been very vocal about it. I just spoke to him about it.
+- [10:27.000] He feels really strongly about this.
+- [10:28.900] Republicans need to play tough and they need to play smart.
+- [10:31.450] That's how the President feels. And we know that Democrats,
+- [10:35.280] if they are ever given a chance at power again in this city,
+- [10:39.150] they will absolutely take away
+- [10:41.120] the filibuster from the United States Senate.
+- [10:43.370] In fact, you had 49 Democrats
+- [10:45.390] who already voted to do this before.
+- [10:46.980] The only reason it did not move forward
+- [10:49.380] was because you had two Democrats
+- [10:51.560] who are no longer in office
+- [10:53.050] because they were run out of town
+- [10:54.660] by the far-left radical base of their party.
+- [10:57.210] And so President Trump is very quite clear on this.
+- [11:00.540] He wants to see Republicans move
+- [11:02.460] as many good pieces of legislation
+- [11:04.710] for our country forward in the next three years
+- [11:07.480] of his administration as they possibly can.
+- [11:10.000] And the filibuster is one means to doing that.
+- [11:11.730] The Press: (inaudible) to Johnson and Thune about it.
+- [11:13.310] I know that they had both voiced some opposition.
+- [11:15.340] Have they been any conversations with them?
+- [11:18.050] Karoline Leavitt: He has. He's made his position
+- [11:19.750] to them very clear, both publicly and privately.
+- [11:21.700] (inaudible).
+- [11:23.020] The Press: Thanks so much. Can you help clear up
+- [11:24.600] some confusion about SNAP benefits?
+- [11:26.060] Karoline Leavitt: Sure.
+- [11:27.270] The Press: Because the President just posted that
+- [11:29.310] they will only be given out when the radical-left Democrats
+- [11:32.420] open the government and not before.
+- [11:35.030] But just yesterday, the administration said
+- [11:36.950] it would comply with the court order
+- [11:39.270] to expend the full amount of SNAP
+- [11:41.790] contingency funds by end of business day yesterday.
+- [11:44.870] So did the administration distribute
+- [11:47.850] that money or defy that court order?
+- [11:50.040] Karoline Leavitt: No, the administration is fully
+- [11:51.720] complying with the court order.
+- [11:53.100] I just spoke to the President about it.
+- [11:55.080] The recipients of these SNAP benefits need to understand
+- [11:57.590] it's going to take some time to receive this money,
+- [12:00.090] because the Democrats have forced the administration
+- [12:02.260] into a very untenable position.
+- [12:04.360] We are digging into a contingency fund
+- [12:06.950] that is supposed to be for emergencies,
+- [12:09.160] catastrophes for war. And the President does not want
+- [12:12.130] to have to tap into this fund in the future,
+- [12:13.950] and that's what he was referring to in his Truth Social post.
+- [12:16.790] So the Department of Agriculture,
+- [12:18.470] as for the latest SNAP payment in the judge's order,
+- [12:22.160] put out guidance to states today
+- [12:24.370] on how to get that money to the recipients of SNAP,
+- [12:28.590] but it's going to take some time.
+- [12:30.580] The best way to get the full amount of SNAP benefits
+- [12:33.790] to those beneficiaries is for Democrats
+- [12:36.360] to reopen the government.
+- [12:37.720] So to anyone who is a SNAP beneficiary at home
+- [12:41.190] who needs that assistance,
+- [12:42.400] and the President was just saying this is
+- [12:44.130] for people who are truly needy, who need food,
+- [12:48.070] who need this assistance from the United States government,
+- [12:50.230] Democrats are holding it up and making it difficult
+- [12:53.360] for the administration to get those payments out the door.
+- [12:55.880] So if you are at home and you want your SNAP benefits,
+- [12:58.400] call the Democrats and tell them to reopen the government.
+- [13:00.350] The Press: (inaudible)
+- [13:01.570] that contingency fund for the future,
+- [13:03.850] if this shutdown lingers on?
+- [13:05.480] Karoline Leavitt: Look, the President does not want
+- [13:06.930] to have to continue to dip into a contingency fund
+- [13:09.850] that doesn't even have enough money, by the way,
+- [13:11.920] to fund the full program.
+- [13:13.120] It takes 9 billion to get the full scale
+- [13:15.910] of the benefits out the door.
+- [13:17.460] This contingency fund only has about $5 billion in it.
+- [13:20.210] So again, Democrats need to reopen the government
+- [13:22.500] so we can get these benefits out the door
+- [13:24.090] for people who truly need them.
+- [13:25.420] Kate. The Press: Thanks.
+- [13:26.650] The President suggested that if Mamdani wins
+- [13:28.890] that he would cut federal funding to New York.
+- [13:31.010] How much funding would be impacted?
+- [13:32.650] What would be impacted there?
+- [13:33.880] Karoline Leavitt: Well, look, we won't get ahead
+- [13:35.120] of the election results,
+- [13:36.320] nor will I speak to what the President may do in the future.
+- [13:39.770] We'll see how tonight goes
+- [13:41.080] and then I'll let him speak on it further.
+- [13:42.700] The Press: And why did the administration
+- [13:43.960] exclude Democratic lawmakers?
+- [13:45.500] Last week there was a briefing about US strikes
+- [13:47.700] on alleged drug trafficking boats.
+- [13:49.630] Why were those Democrats excluded?
+- [13:51.910] Karoline Leavitt: The administration has briefed
+- [13:53.520] Congress on these matters eight separate times
+- [13:56.550] and Democrats have been included in those briefings.
+- [13:59.050] In fact, I know that Secretary Rubio
+- [14:00.940] will be on Capitol Hill tomorrow to brief the gang of 12,
+- [14:04.330] which includes Democrats as well.
+- [14:05.950] So the President has made it very clear
+- [14:08.030] if Senators want to understand the administration's operations
+- [14:11.910] against Narco drug traffickers,
+- [14:13.560] we are very happy to speak with them about that
+- [14:16.440] and we will continue to do so.
+- [14:17.680] But we've been incredibly transparent.
+- [14:19.250] As I said, there's been eight briefings on this topic
+- [14:21.890] with the ninth coming tomorrow. Rachel?
+- [14:24.090] The Press: Thanks, Karoline.
+- [14:25.590] There's been some reporting out there
+- [14:27.410] about the possibility of furloughed workers
+- [14:29.450] not getting back pay.
+- [14:30.840] We know that the President signed that bill
+- [14:32.400] into law in his first term.
+- [14:34.170] Does the administration guarantee
+- [14:35.410] that all furloughed workers will get back pay?
+- [14:38.040] Karoline Leavitt: This is something we are very much open
+- [14:39.950] to discussing with Democrats as part of the discussions
+- [14:43.220] about the continuing resolution to keep the government open.
+- [14:46.420] And it's something that Republicans
+- [14:47.710] are talking with Democrats about right now.
+- [14:49.190] I won't get ahead of those negotiations or discussions.
+- [14:51.440] The Press: So the discussion, that's a possibility
+- [14:53.010] that that may not happen even though it's law?
+- [14:55.320] Karoline Leavitt: I just said Republicans in the House
+- [14:57.210] are very much open to discussing this with Democrats.
+- [14:59.310] The Press: And just one last question.
+- [15:00.720] As this government shutdown now drives on,
+- [15:02.480] about to make history as the longest government shutdown
+- [15:04.590] in American history,
+- [15:05.890] can you talk about what the President is personally doing
+- [15:07.970] to try to see an end to this?
+- [15:10.420] Karoline Leavitt: He's pushing Republicans to keep voting
+- [15:12.620] and to keep opening up the Senate floor
+- [15:14.310] to vote for the clean continuing resolution.
+- [15:17.220] He had the Senate Majority Leader
+- [15:19.470] and the House Caucus Leader, Hakeem Jeffries,
+- [15:21.700] here at the White House to talk about this
+- [15:23.260] in the very early stages,
+- [15:24.500] to give them a chance to come to their senses
+- [15:27.040] and avoid this entire government shutdown at the very beginning.
+- [15:30.480] And they chose not to.
+- [15:31.940] And I think it's been very clear to everyone in this room
+- [15:35.240] and to everyone across the country
+- [15:37.210] that the Democrats are playing partisan politics
+- [15:39.780] with our United States federal government.
+- [15:42.200] And all Republicans have wanted to do
+- [15:43.840] for the last 35 days is reopen the government.
+- [15:47.030] That has been the President's position since day one.
+- [15:49.620] It is his position today on day 35.
+- [15:52.320] And all we need are five common sense Democrats
+- [15:55.010] have a little bit of courage
+- [15:56.340] and come to the table and vote with Republicans.
+- [15:58.890] I saw Senator John Fetterman on television last night
+- [16:01.900] saying that he hopes more folks in his party will step up.
+- [16:05.330] And we certainly agree with him on that point.
+- [16:07.230] Sure.
+- [16:08.430] The Press: Karoline, the President posted on Truth Social
+- [16:10.530] that the voting underway in California is, quote,
+- [16:13.370] "Rigged." What evidence does he have of that?
+- [16:15.840] And what does it mean that mail-in ballots in that state
+- [16:18.090] are under legal and criminal review?
+- [16:20.620] By whom and why? And also in this vein,
+- [16:23.150] does the White House still plan to issue
+- [16:24.790] an executive order banning mail-in voting,
+- [16:27.340] and what legal authority do you have to do that?
+- [16:29.490] Karoline Leavitt: The White House is working
+- [16:30.770] on an executive order
+- [16:31.970] to strengthen our elections in this country
+- [16:34.660] and to ensure that there cannot be blatant fraud.
+- [16:37.930] As we've seen in California
+- [16:39.260] with their universal mail-in voting system,
+- [16:41.700] it's absolutely true that there's fraud
+- [16:44.720] in California's elections. It's just a fact.
+- [16:47.030] The Press: What's the evidence?
+- [16:48.280] Karoline Leavitt: It is just a fact.
+- [16:49.480] They have a universal mail-in voting system,
+- [16:51.330] which we know is ripe for fraud. And if you want to deny that,
+- [16:55.170] I'm happy to provide you all of the evidence for it.
+- [16:57.180] I'd be glad to send that to you after this briefing.
+- [16:59.220] The Press: What does he mean by rigged?
+- [17:00.670] Karoline Leavitt: Fraudulent ballots that are being mailed
+- [17:03.520] in the names of other people, in the names of illegal aliens
+- [17:06.180] who shouldn't be voting in American elections.
+- [17:07.890] There's countless examples and we'd be happy to provide them.
+- [17:10.980] As for executive action, the White House is taking,
+- [17:13.170] yes, we are looking into that.
+- [17:14.640] And like any executive order, of course,
+- [17:16.620] any executive order the President signs
+- [17:18.350] is within his full executive authority
+- [17:20.760] and within the confines of the law.
+- [17:22.190] Steven?
+- [17:23.540] The Press: Thank you, Karoline.
+- [17:24.760] I've got two questions I'd like to ask you about New York,
+- [17:26.730] but first I'd like to ask you about breaking news
+- [17:28.790] from the Attorney General.
+- [17:30.500] She revealed just about an hour ago
+- [17:32.530] that the Biden Justice Department
+- [17:36.260] seized President Trump's official first term phone
+- [17:39.580] and subpoenaed his private phone records.
+- [17:42.930] Do you have a reaction to that? And also do we know
+- [17:44.530] if they actually got those private call records?
+- [17:47.060] Karoline Leavitt: I saw the Attorney General's
+- [17:48.420] post on that. For additional questions,
+- [17:50.170] I would refer you to the Department of Justice.
+- [17:52.000] But I think this is just further evidence
+- [17:54.400] of the egregious overreach and mechanization of government
+- [17:57.590] that took place under the previous White House
+- [18:00.080] against then-former President
+- [18:01.920] and now-President Donald J. Trump.
+- [18:04.630] It was a clear effort by the Bide White House
+- [18:06.890] and the Biden DOJ to go after the President,
+- [18:09.850] and this is just further evidence of that.
+- [18:11.890] The Press: (inaudible) New York.
+- [18:13.440] We've seen the President's messages that he's put out.
+- [18:15.990] But could you describe how he's feeling
+- [18:17.490] as a New Yorker watching this election?
+- [18:20.590] Karoline Leavitt: Well, the President is a New Yorker,
+- [18:22.260] and he loves New York. It is his home.
+- [18:24.880] He talks about that all of the time.
+- [18:26.510] And he's made his thoughts on this election
+- [18:29.070] quite clear I think himself. In the back. Yes. Go ahead.
+- [18:32.290] The Press: Thank you.
+- [18:33.600] Over the weekend, there were reports-
+- [18:35.120] Karoline Leavitt: I was going to you in the green,
+- [18:36.390] but go ahead. And then you can have your question.
+- [18:38.030] The Press: Thank you. Over the weekend,
+- [18:39.240] there were reports that President Trump was due
+- [18:40.920] to host President of Syria, Al-Sharaa on Monday.
+- [18:44.820] Do you have any preview for that meeting?
+- [18:47.220] Is he expected to invite him
+- [18:49.140] to join the U.S.-led anti-ISIS coalition?
+- [18:52.440] Karoline Leavitt: I can confirm that that meeting
+- [18:54.550] will be taking place here at the White House on Monday,
+- [18:56.770] and this is part of the President's efforts in diplomacy
+- [19:00.220] to meet with anyone around the world in the pursuit of peace.
+- [19:03.140] And as you know,
+- [19:04.420] when the President was in the Middle East,
+- [19:05.840] he made the historic decision to lift sanctions on Syria
+- [19:08.730] to give them a real chance at peace.
+- [19:10.920] And I think the administration, we've seen good progress
+- [19:13.740] on that front under their new leadership.
+- [19:16.800] And so, he will be here at the White House on Monday,
+- [19:18.810] and I'll let the President speak further on it on Monday.
+- [19:21.030] Yes. Go ahead.
+- [19:22.260] The Press: Thank you, Karoline. I was just curious.
+- [19:23.890] You had mentioned there that President Trump, as we know,
+- [19:26.180] has been speaking with Republican leaders in Congress
+- [19:29.490] about reopening the government.
+- [19:31.160] Is he involved in any other negotiations?
+- [19:33.380] Is he prepared to sign something
+- [19:34.970] if a deal does come out by the end of this week?
+- [19:37.840] On top of that, with SNAP benefits,
+- [19:40.150] does he have any authorities or considering any authority there
+- [19:43.930] to release more funds to help people
+- [19:45.520] who are desperately needing these benefits?
+- [19:47.520] Karoline Leavitt: So, look, I think I've already answered
+- [19:48.830] the question on SNAP.
+- [19:50.050] We are complying with the court's order,
+- [19:51.520] and we're getting that partial payment out the door
+- [19:53.980] as much as we can, and as quickly as we can.
+- [19:56.500] But it's going to take some time,
+- [19:57.880] because, again, this is a prorated payment
+- [20:00.340] that we're tapping into a contingency fund for.
+- [20:03.280] The best way to get those payments out the door
+- [20:05.000] is for Democrats to reopen the government.
+- [20:07.370] But, yes. The President is in constant communication
+- [20:10.200] with his friends on Capitol Hill.
+- [20:12.540] They know they call, he answers, he picks up the phone.
+- [20:16.140] He's a very transparent President in that way.
+- [20:18.720] And as soon as the Democrats
+- [20:20.460] pass the clean continuing resolution,
+- [20:22.380] President Trump will be here to sign it. Michael?
+- [20:24.890] The Press: Thank you, Karoline.
+- [20:26.130] President Trump has threatened to go into Nigeria,
+- [20:28.720] guns-a-blazing, if Nigeria's government
+- [20:32.000] does not stop the killing of Christians in that country.
+- [20:35.070] Has the White House heard back
+- [20:36.370] from Nigeria's government on this threat?
+- [20:39.630] Karoline Leavitt: As the President stated, Michael,
+- [20:41.640] if the Nigerian government
+- [20:42.930] continues to allow the killing of Christians,
+- [20:45.020] the United States will immediately stop
+- [20:47.140] all aid and assistance to Nigeria,
+- [20:49.530] and may take action to wipe out the Islamic terrorists
+- [20:53.280] who are committing these horrible atrocities,
+- [20:56.040] especially, against innocent women and children.
+- [20:58.680] I don't have any further announcements on that
+- [21:00.330] for you today,
+- [21:01.530] but I could assure you the President of the United States
+- [21:04.220] is watching this situation unfold very closely,
+- [21:07.230] as is our Secretary of State Marco Rubio.
+- [21:09.230] The Press: One more question, Karoline.
+- [21:10.520] President Trump has endorsed Andrew Cuomo
+- [21:12.480] in New York City's mayoral race.
+- [21:14.080] He has not by name endorsed Winsome Sears
+- [21:17.530] in Virginia's gubernatorial race. Why is that?
+- [21:21.310] Karoline Leavitt: Look, as you know from this podium,
+- [21:22.990] I'm quite limited in what I can say
+- [21:24.980] with regards to ongoing political elections.
+- [21:27.470] I think the President has spoken for himself
+- [21:29.730] in what he wants to see take place in these elections today.
+- [21:34.500] Lalit?
+- [21:35.730] The Press: Thank you.
+- [21:36.940] I would like to ask you about India and U.S. relationship.
+- [21:39.320] What is President's thoughts on the future of India/U.S.
+- [21:41.360] (inaudible)?
+- [21:42.570] Karoline Leavitt: I'm sorry. Lalit, can you repeat that?
+- [21:44.180] The Press: What is President's thoughts on future
+- [21:46.410] of India and U.S. relationship?
+- [21:48.810] Karoline Leavitt: I think he feels very positive
+- [21:50.270] and strongly about it. As you know,
+- [21:51.760] he recently a few weeks back spoke to Prime Minister
+- [21:54.440] directly when he celebrated in the Oval Office Diwali
+- [21:59.700] with many high-ranking Indian-American officials
+- [22:02.160] here at the White House.
+- [22:03.940] We have a great U.S. ambassador to India in Mr. Sergio Gor,
+- [22:08.560] who will represent our country very well.
+- [22:10.950] And the President and his trade team
+- [22:13.390] continue to be in very serious discussions with India
+- [22:16.410] with respect to that topic.
+- [22:17.660] So, I know the President has great respect
+- [22:19.890] for Prime Minister Modi,
+- [22:21.720] and they speak pretty frequently.
+- [22:24.520] The Press: Hi. Yes.
+- [22:25.790] With the air traffic controller crisis ongoing,
+- [22:28.270] Secretary Duffy said he will now start to cancel
+- [22:31.460] and ground flights next week to maintain safety.
+- [22:34.780] Should people fly next week given this new information?
+- [22:37.300] And is the administration encouraging people
+- [22:39.550] to stop flying altogether
+- [22:41.430] and look at alternative transportation modes?
+- [22:43.600] Karoline Leavitt: The administration is encouraging
+- [22:45.300] Democrats to reopen the federal government,
+- [22:48.040] so, this chaos and disruption
+- [22:50.130] to our air traffic control system
+- [22:51.730] in the United States of America stops.
+- [22:54.200] It is ridiculous that we have even gotten to this place,
+- [22:57.500] and that the Democrats have continued
+- [22:59.060] to shut down the government with 35 days.
+- [23:01.490] Our air traffic controllers continuing to work unpaid.
+- [23:04.470] Every single major airline in our country coming out
+- [23:07.700] and begging the Democrats to please reopen the government.
+- [23:11.060] And you had a Democrat staffer who was quoted,
+- [23:13.760] I believe in Politico a few weeks back,
+- [23:15.990] saying, "Short of planes falling out of the sky,
+- [23:19.440] we are not going to reopen the government."
+- [23:21.410] That is a reckless and dangerous statement from someone
+- [23:24.340] who didn't want to put their name on that statement,
+- [23:26.660] but we know it came from the Democrat Party.
+- [23:29.260] And I think we're very clear.
+- [23:30.900] We want to reopen the government,
+- [23:32.360] so, we can resume travel in the safest
+- [23:34.600] and most efficient way possible, especially as we head
+- [23:37.280] into the busiest travel season of the month.
+- [23:39.410] We have Thanksgiving in a few weeks.
+- [23:41.830] And so, Americans across the country
+- [23:44.600] need to make it very clear to their Democrat
+- [23:47.130] representatives that we want this government to be reopened,
+- [23:49.930] so, we can resume safe and efficient travel. Fran?
+- [23:53.770] The Press: Thanks, Karoline. As last I checked,
+- [23:55.630] the President still had not commented
+- [23:57.310] on the former Vice President Dick Cheney.
+- [24:00.060] Is the White House involved in funeral arrangements in any way?
+- [24:03.560] Does the President plan to speak at the funeral?
+- [24:05.970] Has he spoken to anyone in the Cheney family today?
+- [24:08.600] And does the White House have an opinion
+- [24:10.130] on whether or not the former vice
+- [24:11.380] President should lie in honor or state in the Capitol?
+- [24:14.170] Karoline Leavitt: I don't believe the White House
+- [24:15.550] is involved in that planning,
+- [24:16.760] or, at least, hasn't gotten to it yet.
+- [24:19.030] I know the President is aware of the former vice
+- [24:20.990] President's passing, and as you saw,
+- [24:23.230] flags have been lowered to half-staff
+- [24:24.790] in accordance with statutory law.
+- [24:26.210] Jasmine?
+- [24:27.570] The Press: Thank you.
+- [24:28.800] Back on the question of the filibuster,
+- [24:30.510] how much political capital is President Trump
+- [24:32.890] willing to expend to get Republicans
+- [24:35.420] to do what he's asking? Will we see him at the hill?
+- [24:38.500] Will he be calling folks over here?
+- [24:40.580] What exactly is President Trump
+- [24:42.220] planning to do outside of these Truth Socials
+- [24:44.860] and maybe some of these private conversations
+- [24:46.710] to get Republicans to fall in line?
+- [24:48.670] Karoline Leavitt: Look, I think you'll see.
+- [24:49.990] I think you'll see the President continue to engage very strongly
+- [24:53.530] and consistently with his friends on Capitol Hill.
+- [24:56.210] I don't have any meetings to read out for you at this time.
+- [24:58.610] But I think you should stay tuned,
+- [25:00.350] and keep your eyes on Truth Social on this matter.
+- [25:02.420] The President is making his position on it quite clear.
+- [25:04.500] And, again, he is right. Republicans need to play tough.
+- [25:08.340] We know that this is what the Democrats will do
+- [25:10.170] if they are ever given the keys to power again.
+- [25:13.260] And he wants to pass as many good pieces of legislation
+- [25:15.990] as we possibly can for our country and for our people.
+- [25:19.250] That includes election integrity reforms,
+- [25:22.180] it includes additional tax policy.
+- [25:25.230] It includes fixing our immigration system
+- [25:27.800] further in ways that only Congress can.
+- [25:30.280] And the President fears with a Democrat Party
+- [25:32.500] that is so radical,
+- [25:34.030] and opposes everything he does and everything he says,
+- [25:37.430] this is the only option for Republicans
+- [25:38.950] to move forward. Karen?
+- [25:40.200] The Press: And a second question.
+- [25:41.430] Sorry. And a second question.
+- [25:42.690] President Trump said to CBS in the 60 Minutes interview
+- [25:45.060] that he did not know the finance founder, which he pardoned.
+- [25:48.700] What exactly did he mean for that? I know it caused-
+- [25:50.570] Karoline Leavitt: He means he does not know him personally.
+- [25:52.710] He means he does not have a personal relationship
+- [25:54.490] with this individual. And when it comes to pardons,
+- [25:56.890] the White House takes them with the utmost seriousness,
+- [26:00.060] and the President understands the responsibility
+- [26:02.300] that he has as President to issue clemency
+- [26:05.080] and issue pardons to individuals who are seeking that.
+- [26:07.800] That's why we have a very thorough review process here
+- [26:11.000] that moves with the Department of Justice
+- [26:12.650] and the White House counsel's office.
+- [26:14.010] There's a whole team of qualified lawyers
+- [26:16.350] who look at every single pardon request
+- [26:18.810] that, ultimately, make their way up
+- [26:20.200] to the President of the United States.
+- [26:21.680] He's the ultimate final decision-maker.
+- [26:23.910] And he was very clear when he came into office
+- [26:26.440] that he was most interested in looking at pardoning individuals
+- [26:29.280] who were abused, and used by the Biden Department of Justice,
+- [26:33.880] and were over-prosecuted by a weaponized DOJ.
+- [26:37.390] And the individual you're referring to,
+- [26:39.080] that was, certainly, the case.
+- [26:40.520] Even the judge in his case said that the sentencing
+- [26:43.620] that the Biden administration was asking for was egregious,
+- [26:46.740] and went too far.
+- [26:48.030] And so, the President is correcting that wrong,
+- [26:50.350] and he has officially ended the Biden administration's war
+- [26:53.520] on the cryptocurrency industry.
+- [26:54.900] And I think that's the message he sent with this pardon.
+- [26:57.370] Karen, yes?
+- [26:58.600] The Press: Back on the issue of back pay
+- [27:00.520] for furloughed workers. You said that the White House
+- [27:02.580] is open to discussing that with Democrats,
+- [27:04.620] but what would that discussion even be?
+- [27:06.630] There was a law, the President signed it in 2019.
+- [27:09.460] What could a discussion look like?
+- [27:11.170] Why is that even open for discussion?
+- [27:12.640] Karoline Leavitt: Look, (inaudible), as I said,
+- [27:13.920] Republicans are talking about that with Democrats right now,
+- [27:16.270] and I don't want to get in the middle
+- [27:17.690] of those sensitive conversations.
+- [27:19.610] But as we've complied with the SNAP order,
+- [27:22.670] the White House,
+- [27:23.900] the administration is always going to comply with the laws.
+- [27:25.890] We're always going to comply with the ruling of judges
+- [27:28.940] across the country,
+- [27:30.330] but the Republicans are discussing this matter
+- [27:32.760] with Democrats right now.
+- [27:34.020] The Press: Why would there even be a consideration
+- [27:35.380] of not paying those workers though, Karoline?
+- [27:36.860] The Press: (inaudible).
+- [27:38.150] Big day in the Supreme Court tomorrow
+- [27:39.560] with President Trump's tariff policy facing a legal challenge.
+- [27:42.400] What's at stake with that case? And if the Supreme Court rules
+- [27:45.490] against the Trump administration,
+- [27:47.520] what is plan B for trade policy?
+- [27:49.690] Karoline Leavitt: I'll tell you the White House
+- [27:51.000] is always preparing for plan B.
+- [27:52.830] It would be imprudent of the President's advisors
+- [27:55.530] not to prepare for such a situation.
+- [27:57.710] With that said, we are 100% confident in the President
+- [28:02.130] and his team's legal arguments
+- [28:04.320] and the merits of the law in this case.
+- [28:06.940] And we remain optimistic that the Supreme Court
+- [28:08.950] is going to do the right thing.
+- [28:10.770] The importance of this case cannot be overstated.
+- [28:13.170] The President must have the emergency authority
+- [28:16.830] to utilize tariffs.
+- [28:18.030] Look at what President Trump has been able to do
+- [28:20.710] with the leverage and the power of tariffs.
+- [28:23.000] He's been able to sign peace deals all over the world
+- [28:26.060] and end global conflicts and literally save lives.
+- [28:29.170] He's been able to bring in trillions of dollars
+- [28:32.150] of investments into our country. In fact, this year alone,
+- [28:36.000] we are going to cut the deficit by $600 billion,
+- [28:41.090] namely because
+- [28:42.500] of the President's effective use of tariffs.
+- [28:44.950] And the President strongly believes that economic security
+- [28:48.240] is a matter of national security and tariffs
+- [28:50.630] have a lot to do with that.
+- [28:51.970] And this case is not just about President Trump.
+- [28:55.000] It's about the use of this emergency authorization
+- [28:57.990] for tariffs for future
+- [28:59.250] Presidents and administrations to come.
+- [29:00.960] And we're confident and hopeful
+- [29:02.870] that the Supreme Court will do the right thing.
+- [29:06.550] Kristen.
+- [29:08.150] The Press: Why did President Trump get an MRI
+- [29:10.240] during his recent visit (inaudible)?
+- [29:12.060] Karoline Leavitt: Look, as President Trump said,
+- [29:13.940] he would inquire with the physicians.
+- [29:15.220] I'll check back on that.
+- [29:16.460] But as the physical itself stated,
+- [29:18.220] Kristen, and as you all know,
+- [29:19.570] because you are all witness to it,
+- [29:21.250] every single day the President is in optimal physical health.
+- [29:24.500] This was a follow-up appointment
+- [29:25.840] and we provided a detailed readout of that physical.
+- [29:28.380] I'm happy to give it to you again and I can inquire further.
+- [29:30.510] The Press: With all due respect, an MRI
+- [29:31.830] is a very specific procedure.
+- [29:33.560] It's done on a part of the body looking for something specific.
+- [29:37.130] So it's not generally part of any kind of routine checkup.
+- [29:40.990] And in addition, President Trump has said
+- [29:42.460] that he wants to be transparent.
+- [29:43.780] He has told us to ask the doctors,
+- [29:45.250] which we have and have not heard back.
+- [29:47.200] Why don't we have more information on this?
+- [29:49.150] Karoline Leavitt: As I said, I'll check back for you.
+- [29:50.650] The Press: Karoline.
+- [29:51.890] Karoline Leavitt: Go ahead.
+- [29:53.330] The Press: Can you update us on the mediation efforts
+- [29:57.590] this administration is leading in Sudan,
+- [29:59.540] trying to achieve a ceasefire there?
+- [30:01.260] Karoline Leavitt: Sure. Yes.
+- [30:02.470] The United States is actively engaged in efforts
+- [30:04.910] to bring about a peaceful resolution
+- [30:07.350] to the terrible conflict in Sudan.
+- [30:09.530] We remain committed to working with our international partners,
+- [30:12.620] including quad members, Egypt, Saudi Arabia, the UAE,
+- [30:16.630] as well as others to lead a negotiated peace process
+- [30:19.810] that addresses both the immediate humanitarian crisis
+- [30:22.870] and the longer term political challenges.
+- [30:25.020] I actually spoke with Secretary Ruby
+- [30:26.690] about this this morning, as of course,
+- [30:28.490] there's been kind of an uptick in recent
+- [30:30.880] reporting on the matter, and he assured me
+- [30:32.950] that the administration is very much engaged.
+- [30:34.850] We're in pretty frequent communication
+- [30:36.980] with those Arab partners that I just mentioned,
+- [30:38.960] and we want to see this conflict come to a peaceful end
+- [30:42.300] just as we have with so many others,
+- [30:44.210] but the reality is it's a very complicated situation
+- [30:47.350] on the ground right now.
+- [30:48.550] Yes.
+- [30:49.780] The Press: Hi, yes.
+- [30:51.050] Just trying to go back into the subject of Mexico.
+- [30:53.300] Is a Trump administration planning to send U.S. troops
+- [30:56.340] to Mexico to combat drug cartels as reported by other outlets?
+- [30:59.720] Karoline Leavitt: That's not something
+- [31:01.090] I would confirm from this podium if it were happening.
+- [31:03.520] So I will not comment on that. Eamon.
+- [31:06.090] The Press: Thank you, Karoline. Why did the President decide
+- [31:08.270] not to go to the Supreme Court tomorrow?
+- [31:09.790] He'd indicated earlier that he might want to go
+- [31:11.350] and attend in person.
+- [31:12.660] Karoline Leavitt: Yeah.
+- [31:13.870] The Press: And now he's saying he's not going to go. Why?
+- [31:15.130] Karoline Leavitt: The President did have an interest
+- [31:16.640] in attending the Supreme Court hearing tomorrow,
+- [31:18.210] as I just expressed how important it is to him,
+- [31:21.010] the administration and the country, this case.
+- [31:24.190] But he is traveling to Miami tomorrow, as you all know,
+- [31:26.700] to give an economic address with the mayor of Miami
+- [31:30.090] and many global business leaders
+- [31:31.650] to talk about his historic success
+- [31:34.010] with the economy over the past 10 months
+- [31:36.050] and talk about sort of where we are headed
+- [31:38.080] as a country in terms of our economy.
+- [31:41.550] So he'll be traveling tomorrow on the road in Miami.
+- [31:44.280] That's why he won't be here, but Secretary Scott Bessent
+- [31:46.620] will be in attendance at the hearing tomorrow
+- [31:48.310] at the request of the President.
+- [31:51.950] The Press: He has said that he doesn't want to export
+- [31:53.960] the high end NVIDIA chips to China,
+- [31:56.060] but the Wall Street Journal reported yesterday
+- [31:57.590] that there was some question
+- [31:58.800] about whether the President would raise this
+- [32:00.290] as a possible concession with the Chinese side
+- [32:03.560] during his meeting with Xi Jinping.
+- [32:05.660] So does the White House consider NVIDIA
+- [32:07.150] chip exports to China to be a closed issue right now,
+- [32:10.710] or is this an ongoing negotiation
+- [32:12.400] between the United States, China, and NVIDIA at this point?
+- [32:15.300] Karoline Leavitt: The President has made his position
+- [32:16.590] on this very clear,
+- [32:17.810] both to the Chinese and also to all of you.
+- [32:19.950] He's answered this question directly.
+- [32:21.710] As for the most advanced chips, the Blackwell chip,
+- [32:23.930] that's not something we're interested
+- [32:25.280] in selling to China at this time.
+- [32:27.380] Annie.
+- [32:28.620] The Press: Does the President think
+- [32:30.540] the results of the Virginia or New Jersey community
+- [32:33.650] rail races tomorrow or statewide races tomorrow
+- [32:36.640] will in any way reflect a voter sentiment
+- [32:39.500] towards his administration?
+- [32:41.310] Karoline Leavitt: Look, Annie, I'm not at liberty
+- [32:43.470] to talk about the election results
+- [32:44.720] and I certainly won't get ahead of them.
+- [32:46.040] I'm not going to engage in hypotheticals
+- [32:47.750] that may or may not happen tonight.
+- [32:49.230] We'll have to watch and see.
+- [32:51.050] And I'm sure you'll hear directly
+- [32:52.280] from the President tomorrow on that point.
+- [32:53.740] The Press: (inaudible)
+- [32:54.940] SNAP just real quickly. Is there anything that prompted
+- [32:57.590] the President's tweet this morning?
+- [32:59.050] Because it did seem quite different
+- [33:01.320] from some of his other communications about SNAP.
+- [33:04.220] It seemed a little bit out of the left field.
+- [33:05.840] I'm just wondering if he had a conversation
+- [33:07.510] or if there's anything you're aware of that caused him
+- [33:09.770] to decide at around 11 o'clock to send out that message.
+- [33:13.280] Karoline Leavitt: Look, the President is constantly
+- [33:15.460] well-read on the news, as you know,
+- [33:17.420] and he's very much aware we are in day
+- [33:19.310] 35 of a government shutdown
+- [33:21.690] in which these SNAP benefits we're pushing them out the door.
+- [33:24.590] USDA put out that guidance to the states this morning.
+- [33:27.290] The President was aware of that
+- [33:28.520] and he wants to make it very clear
+- [33:30.280] that these benefits are in jeopardy
+- [33:31.850] because of the Democrats
+- [33:33.140] and they should just open the government
+- [33:35.140] so that we can continue getting these funds out the door
+- [33:37.370] in an easier and more efficient way.
+- [33:41.080] The Press: There's some new reporting
+- [33:42.410] that just dropped a few minutes ago,
+- [33:44.290] that the Trump administration is negotiating
+- [33:46.160] with the makers of Ozempic
+- [33:48.550] to sell some way loss trugs for $149 a month.
+- [33:51.400] That's according to the Wall Street Journal.
+- [33:53.140] Do you have any more information on that? Can you confirm that?
+- [33:55.390] Karoline Leavitt: I think the President has said himself
+- [33:57.520] in previous most favored nations announcements
+- [33:59.750] that this is something that the administration
+- [34:01.780] has been engaged in and looking into.
+- [34:04.020] I won't get ahead of the President
+- [34:05.240] on any future announcements,
+- [34:06.490] but I will echo his strong commitment
+- [34:09.180] to bringing down drug prices in this country.
+- [34:11.690] And you've heard it directly from Secretary Kennedy
+- [34:14.150] and Dr. Marty McCarry and his entire health
+- [34:16.680] and human services team, how committed the President
+- [34:19.940] is to bringing down the cost of drugs.
+- [34:22.870] And we're working with pharmaceutical companies
+- [34:24.650] to do that every day.
+- [34:25.920] The Press: Very quickly, Karoline, on SNAP,
+- [34:27.260] I know it's been asked and I know we just asked it,
+- [34:29.120] but I want to put a fine point on it.
+- [34:30.520] You talked about President's post here and he wrote that
+- [34:34.740] SNAP benefits will only be given when radical level
+- [34:37.220] Democrats open up the government.
+- [34:38.800] I understand your previous answers, but as written,
+- [34:42.460] how would that not violate the court order as it's written?
+- [34:45.120] Karoline Leavitt: I've now answered
+- [34:46.320] this question several times, Gabe.
+- [34:47.710] We are complying with the court's order.
+- [34:49.530] We are getting the payments out the door as quickly as we can.
+- [34:51.830] USDA sent the guidance to the state.
+- [34:53.930] The President is referring to future SNAP payments.
+- [34:56.310] He does not want to have to keep tapping in
+- [34:58.360] to an emergency fund and depleting it.
+- [35:00.800] In the case of a catastrophe in this country,
+- [35:03.580] he want to have those funds preserved as they should be.
+- [35:06.460] And he's made it very clear
+- [35:07.800] Democrats should reopen the government.
+- [35:09.330] I have one final positive note for all of you.
+- [35:12.590] I told you I would keep you posted
+- [35:14.380] when the White House would resume public tours.
+- [35:16.400] Well, I'm pleased to announce the Office of the First Lady
+- [35:19.150] has reopened the doors for public tours
+- [35:21.470] on Tuesday, December 2nd.
+- [35:23.410] There will be an updated route, of course,
+- [35:26.130] for guests in light of the ballroom construction
+- [35:28.880] that's taking place, but we very much look forward
+- [35:31.070] to celebrating the holiday season
+- [35:33.030] in the public and members of Congress
+- [35:34.800] and anyone who wants to come visit
+- [35:36.470] the First Lady's beautiful decorations is welcome
+- [35:38.840] to go to whitehouse.gov/visit to sign up for a tour.
+- [35:42.850] Thanks guys. We'll see you tomorrow.

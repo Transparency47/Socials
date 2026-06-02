@@ -1,0 +1,216 @@
+<!-- source: https://www.youtube.com/watch?v=ExHA5SjjtH4 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: ExHA5SjjtH4 -->
+<!-- date_published: 2025-08-11T19:39:02+00:00 -->
+<!-- date_accessed: 2026-06-02T01:17:55.982862+00:00 -->
+
+# Transcript: The Story of America: John Adams
+
+- [00:00.500] (mix of famous American history quotes)
+- [00:42.710] Lee Habeeb: It's commonly said about George Washington that
+- [00:44.780] he was the indispensable American,
+- [00:47.340] but there's ample evidence that John Adams
+- [00:49.650] may indeed be an indispensable American too.
+- [00:53.900] Though never a soldier,
+- [00:55.480] Adams fought for America's freedom
+- [00:57.860] in our nation's most important chapter.
+- [01:00.850] Few Americans in history
+- [01:02.110] have a political and diplomatic resume like Adams.
+- [01:05.690] Here's a list of some of the positions
+- [01:07.610] he held in public life.
+- [01:09.900] Massachusetts delegate to the Continental Congress.
+- [01:13.410] First U.S.
+- [01:14.720] Minister to the Netherlands and Great Britain,
+- [01:18.120] America's first vice president, and our second president,
+- [01:22.020] among many other prominent positions.
+- [01:25.940] Adams also authored several influential works on government,
+- [01:29.160] including, most notably,
+- [01:31.440] the Massachusetts Constitution of 1780,
+- [01:35.060] which he wrote alone, and which is, to this day,
+- [01:39.140] the oldest written constitution in the world.
+- [01:42.770] It served as a model for the U.S. Constitution.
+- [01:45.710] Specifically, its focus on separation of powers among
+- [01:49.340] and between the branches of government.
+- [01:52.780] But there's much more to Adams' life than his resume,
+- [01:56.500] including real accomplishments and crucial battles fought
+- [01:59.910] and won for his country. Though Adams was impatient
+- [02:03.750] and viewed as too tactless for legislative life,
+- [02:07.750] he was a ferocious behind-the-scenes operator
+- [02:10.770] and ended up playing a big part
+- [02:12.940] in the most momentous decisions in our nation's
+- [02:15.680] fight for independence and beyond.
+- [02:20.240] His decision to nominate George Washington
+- [02:22.770] as commander-in-chief of the colonial armies
+- [02:25.280] was as consequential an act as any he would perform.
+- [02:29.920] Adams first met Washington while the two served
+- [02:32.470] as delegates to the First Continental Congress.
+- [02:35.490] He was impressed with Washington's military experience
+- [02:38.820] and Washington's demeanor.
+- [02:41.020] And knew that to unify the colonies,
+- [02:43.350] he would need to choose someone to lead the Continental Army
+- [02:47.760] that was not a Yankee.
+- [02:51.060] Virginia was not just the richest colony, but the largest.
+- [02:54.350] And as David McCullough noted in his biography of Adams, quote,
+- [02:57.980] "the very proud Virginians felt they had a right to lead."
+- [03:02.680] In the Second Continental Congress,
+- [03:04.880] no delegate fought harder than Adams behind closed doors
+- [03:08.640] and on the House floor for the colonies
+- [03:11.370] to not merely sever ties with Great Britain,
+- [03:14.550] but declare independence outright.
+- [03:17.970] In May of 1776, it was Adams
+- [03:20.740] who called for the formal resolution for independence,
+- [03:23.710] and it was Adam who organized the committee
+- [03:25.470] charged with drafting the Declaration of Independence.
+- [03:29.260] Adams chose Thomas Jefferson. 33 years old at the time,
+- [03:33.690] and the youngest delegate for the task.
+- [03:36.440] He recognized Jefferson's ability to make words work above
+- [03:40.180] and beyond the call of common prose
+- [03:43.210] for what was to be the most important writing assignment
+- [03:47.450] in world history.
+- [03:49.720] After Adams and 55 others put their name to paper
+- [03:53.260] and pledged to each other their lives, fortunes,
+- [03:56.020] and sacred honor,
+- [03:57.510] Adam's penned these words to his bride
+- [03:59.490] Abigail about how that day should be remembered.
+- [04:03.790] "It ought to be commemorated as the day of deliverance
+- [04:06.850] by solemn acts of devotion to God Almighty.
+- [04:10.500] It ought be solemnized with pomp and parade,
+- [04:13.590] with shoes, games, sports, guns, bells, bonfires,
+- [04:17.130] and illuminations from one end of this continent to the other,
+- [04:20.920] from this time forward, forevermore."
+- [04:25.100] Any one of these accomplishments would have been enough
+- [04:28.080] for anyone's lifetime. But there were more.
+- [04:32.390] Adams played a pivotal role
+- [04:34.280] in the fight for independence on the diplomatic field,
+- [04:38.060] securing critical funding from the government of France
+- [04:41.550] and negotiating a loan from Dutch bankers
+- [04:44.080] of nearly two million U.S. Dollars.
+- [04:47.400] It was funding needed on the home front
+- [04:49.310] for provisions, arms,
+- [04:50.510] and munitions necessary to secure military victory
+- [04:54.460] in America and independence thereafter.
+- [04:58.440] Adams wrote of his efforts later in his life,
+- [05:01.720] "If this had been the only action of my life,
+- [05:05.140] it would have been well spent." And there were his efforts,
+- [05:08.840] along with John Jay and Benjamin Franklin,
+- [05:11.350] on the treaty that ended the Revolutionary War.
+- [05:14.710] The Treaty of Paris established the United States
+- [05:17.680] as an independent nation and doubled the size of America.
+- [05:23.780] Lest we forget,
+- [05:25.340] Adams served as the second president of the United States
+- [05:29.120] and managed to keep the nation out of war.
+- [05:32.190] No small task, given the events in France,
+- [05:35.510] which was experiencing a revolution of its own.
+- [05:41.550] Despite blistering attacks from his own party,
+- [05:44.480] particularly from Alexander Hamilton,
+- [05:47.010] Adams sent a peace commission to France
+- [05:49.030] with hopes of averting war.
+- [05:51.770] He succeeded, but at great personal cost.
+- [05:55.720] So what do we need to know about Adams
+- [05:57.560] to best understand the man?
+- [05:59.930] It's first important to understand where he was born
+- [06:03.740] and to whom. Adams was not born to wealth.
+- [06:08.680] His father made his living as a farmer and shoemaker
+- [06:11.080] in the quiet village of 2,000 people
+- [06:14.110] called Braintree, Massachusetts.
+- [06:16.720] Baptized in the church where his father served as a deacon,
+- [06:20.240] Adams learned from him
+- [06:21.450] the necessity and importance of hard work,
+- [06:24.370] good habits, and trustworthiness.
+- [06:27.310] Adams wrote these words about his father after he died.
+- [06:32.420] "A man of strict piety and great integrity.
+- [06:36.130] Much esteemed and beloved wherever he was known,
+- [06:39.180] which was not far his sphere of life being not extensive."
+- [06:46.040] The sphere of John Adams' life
+- [06:48.020] would extend far beyond Braintree
+- [06:50.410] to the great cities of America and Europe too.
+- [06:54.070] The turning point in Adams' life
+- [06:55.610] came in the form of a scholarship to Harvard
+- [06:58.500] at the age of 15.
+- [07:00.650] While there, Adams cultivated his appetite for reading,
+- [07:04.210] which lasted a lifetime.
+- [07:06.170] But it was his time debating that he discovered
+- [07:08.760] he'd make a better lawyer than preacher,
+- [07:11.570] much to his father's disappointment.
+- [07:14.710] After graduating in 1755, he pursued a legal career.
+- [07:19.090] Harvard Law wouldn't open its doors until 1817,
+- [07:22.380] so Adams did what aspiring lawyers did back then.
+- [07:25.590] He worked by day as a teacher to pay for his legal training
+- [07:28.720] with lawyers in and around Boston,
+- [07:31.090] launching his professional career in 1758.
+- [07:34.750] By 1770, he was one of the busiest lawyers in town.
+- [07:39.450] Then came the moment that tested Adam's commitment
+- [07:42.150] to the rule of law and provided posterity with a window
+- [07:46.050] into the character and courage of the man.
+- [07:49.310] At great risk to his practice,
+- [07:51.430] he chose to represent the Redcoats
+- [07:54.130] in the biggest case of his time, the Boston massacre trial.
+- [07:58.930] (battle cries)
+- [08:04.740] Adam's rhetorical skills were on full display
+- [08:07.410] as he described how the mob pelted the British soldiers
+- [08:11.060] with every species of rubbish.
+- [08:13.890] One soldier, he said, was beaten to the ground
+- [08:16.010] with a club rising up only to be beaten down again.
+- [08:20.350] "Do you expect he should behave
+- [08:22.000] like a stoic philosopher lost in apathy?"
+- [08:25.770] Adam's asked the jurors, and by proxy,
+- [08:29.110] the entire city of Boston.
+- [08:31.640] Adams then explained to the jurors
+- [08:33.460] that the presumption of innocence
+- [08:35.290] is the bedrock of any civil society.
+- [08:39.830] Better that many guilty persons escape unpunished
+- [08:43.520] than one innocent person should be punished.
+- [08:49.030] Adams closed his case quoting Algernon Sidney,
+- [08:52.420] the English political theorist
+- [08:53.680] who wrote Discourses Concerning Government,
+- [08:56.970] a textbook that profoundly influenced our Founding Fathers.
+- [09:02.790] "The law no passion can disturb,
+- [09:05.270] tis void of desire and fear, lust and anger.
+- [09:09.030] It does not enjoin that which pleases a weak, frail man,
+- [09:13.040] but without any regard to persons commands
+- [09:15.990] that which is good and punishes evil in all,
+- [09:20.240] whether rich or poor,
+- [09:21.670] high or low, tis deaf, inexorable, inflexible."
+- [09:26.730] The jury was out less than three hours.
+- [09:30.600] Six soldiers were acquitted.
+- [09:32.480] Two were found guilty of manslaughter.
+- [09:34.950] Adams suffered in the short term,
+- [09:36.940] losing half his law practice.
+- [09:38.950] But as time passed, his defense of the Redcoats
+- [09:41.960] enhanced his public standing.
+- [09:44.470] Years later, Adams concluded that this effort of his was
+- [09:47.730] "one of the most gallant, generous, manly,
+- [09:52.680] and disinterested actions of my whole life
+- [09:56.430] and one of the best pieces of service
+- [09:58.680] I ever rendered my country."
+- [10:01.740] It was a trial that taught us all that unpopular people
+- [10:05.220] or people we hate, and hate for good reason,
+- [10:08.590] must not be subject to the whims of the mob
+- [10:12.460] or prosecutors doing the mob's bidding.
+- [10:15.900] That single story, more than any other,
+- [10:18.960] embodied the nature and character of Adams
+- [10:22.910] and the country he would soon help to birth.
+- [10:29.320] The American Republic, after all,
+- [10:31.260] is built to protect the rights of Americans through law,
+- [10:34.480] not the mere opinions of man.
+- [10:37.030] In poor health in the summer of 1826,
+- [10:39.870] Adams, 90 years old at the time, was visited
+- [10:43.800] by some local leaders seeking a toast they could share
+- [10:47.340] for America's upcoming 50th birthday celebration.
+- [10:51.650] "I will give you independence forever."
+- [10:54.490] Asked if he would add to the toast,
+- [10:56.150] And Adams replied, not a word.
+- [11:01.520] Adams died on July 4th, 1826, not long after Jefferson,
+- [11:06.280] who died remarkably on the very same day, just hours earlier.
+- [11:11.460] His last words before dying, "Jeferson lives."
+- [11:15.980] In a letter to Abigail written decades earlier on a matter
+- [11:19.260] concerning the raising of their children, Adams wrote,
+- [11:24.030] "fire them with ambition to be useful,
+- [11:27.550] at great personal risk to his family health and wealth."
+- [11:30.780] Adams served his country like few others have before or after.
+- [11:35.710] What more could Adams have done to earn the honorific,
+- [11:38.700] indispensable American?
+- [11:40.890] It's a question worth asking and answering
+- [11:43.330] as we approach our nation's 250th birthday celebration.
+- [11:47.830] ♪ (light orchestral music) ♪

@@ -1,0 +1,95 @@
+<!-- source: https://www.youtube.com/watch?v=FNgmfbP0GHc -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: FNgmfbP0GHc -->
+<!-- date_published: 2025-11-20T16:29:07+00:00 -->
+<!-- date_accessed: 2026-06-02T01:10:03.857090+00:00 -->
+
+# Transcript: Road to Liberty: Battle of Brooklyn
+
+- [00:06.400] The first great test came here.
+- [00:08.680] Weeks after we declared ourselves free.
+- [00:11.680] If they took New York and shattered our
+- [00:13.280] army, the declaration would read like a
+- [00:15.400] rumor.
+- [00:18.340] >> [music]
+- [00:23.840] >> The British meant to command the harbor
+- [00:25.280] and the Hudson to split the colonies and
+- [00:27.000] end us early.
+- [00:28.560] Ours was simpler. Hold if we could, but
+- [00:31.720] above all, keep the army alive. First
+- [00:34.360] battle after [music] independence,
+- [00:35.600] General Washington's reputation stood on
+- [00:37.320] this field with us.
+- [00:40.610] >> [music]
+- [00:47.160] [music]
+- [00:52.400] [music]
+- [00:58.080] >> Our enemy moved in the dark.
+- [01:00.160] Columns without a word.
+- [01:06.400] We held a ridge of farms and woods, the
+- [01:08.680] ground between them and our stronghold
+- [01:10.720] in Brooklyn Heights.
+- [01:13.920] Our plan was stern and spare.
+- [01:16.040] The army divided, [music] half to
+- [01:17.400] Manhattan's works, half to these
+- [01:19.160] heights.
+- [01:20.360] If we could not throw them [music] back,
+- [01:21.720] we must at least not be destroyed.
+- [01:24.240] This army was a patchwork. Real soldiers
+- [01:26.640] having to serve alongside untrained
+- [01:28.120] farmers, shop keeps, and old men.
+- [01:31.680] Even those who had drilled, like the
+- [01:33.160] Maryland 400, were practically [music]
+- [01:34.840] boys who hadn't yet tasted battle. We
+- [01:37.360] expected a frontal assault. But the
+- [01:39.320] British pulled a hammer and anvil.
+- [01:41.360] Keeping our front engaged while a
+- [01:42.720] brigade slipped [music] undetected
+- [01:44.400] around us.
+- [01:48.360] The Hessians.
+- [01:50.080] German lead mercenaries, [music]
+- [01:51.480] drilled hard and feared for their cold
+- [01:53.440] work with the bayonet, came from behind.
+- [01:56.160] Before we knew it,
+- [01:57.720] we were surrounded.
+- [02:07.071] >> [music]
+- [02:17.551] [music]
+- [02:23.446] [music]
+- [02:29.341] [music]
+- [02:33.926] [music]
+- [02:35.720] >> They run our front and our back. Units
+- [02:37.520] buckled. Prisoners taken in bunches.
+- [02:41.360] From the heights, our commander judged
+- [02:42.840] the truth.
+- [02:43.920] This field must be lost to save the
+- [02:46.360] cause.
+- [02:51.120] Washington's command is clear. The main
+- [02:53.080] body must withdraw back across the East
+- [02:54.960] River to New York. I'll move with the
+- [02:56.840] first Maryland regiment and hold the
+- [02:58.240] line here.
+- [03:02.240] The Marylanders charged forward again
+- [03:03.680] and again into a wall of bayonets
+- [03:05.367] [music] and musket fire so that we could
+- [03:08.200] reach safety crossing the creek.
+- [03:10.720] I felt sure we were finished. Our only
+- [03:12.880] chance of escape would be from an act of
+- [03:15.360] God.
+- [03:18.760] Every craft we could find came out of
+- [03:20.560] hiding, all shipped and ready.
+- [03:23.200] We wrapped the wheels to quiet the
+- [03:24.360] creaks as we moved the guns. Behind us,
+- [03:26.480] the rear guards fed the decoy fires to
+- [03:28.440] fool the enemy's eyes.
+- [03:30.640] Province met discipline.
+- [03:33.360] In the fog, we kept the army.
+- [03:39.440] What I remember most [music] is not the
+- [03:40.600] miracle that saved us, but this.
+- [03:43.080] The line of young Marylanders who fought
+- [03:45.040] like Spartans holding their ground,
+- [03:46.800] muskets leveled,
+- [03:49.440] charging to their certain deaths so that
+- [03:51.360] we could live.
+- [03:55.600] Brooklyn taught me that liberty would
+- [03:56.960] not be won in a single volley, but in
+- [03:59.240] living to fight again.

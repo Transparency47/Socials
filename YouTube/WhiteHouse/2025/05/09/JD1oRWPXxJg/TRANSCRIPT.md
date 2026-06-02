@@ -1,0 +1,754 @@
+<!-- source: https://www.youtube.com/watch?v=JD1oRWPXxJg -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: JD1oRWPXxJg -->
+<!-- date_published: 2025-05-09T17:45:21+00:00 -->
+<!-- date_accessed: 2026-06-02T02:50:31.090213+00:00 -->
+
+# Transcript: Press Secretary Karoline Leavitt Briefs Members of the Media, May 09, 2025
+
+- [00:05.940] Karoline Leavitt: Good afternoon, everybody.
+- [00:08.400] Good to see all of you. Happy Friday.
+- [00:11.520] The President looks forward to embarking on his historic return
+- [00:15.120] to the Middle East, visiting Saudi Arabia, Qatar,
+- [00:18.140] and the United Arab Emirates next week,
+- [00:20.500] where he will focus on strengthening ties
+- [00:22.640] between our nations.
+- [00:24.380] Eight years ago, President Trump's first trip
+- [00:26.500] was to this same region of the world,
+- [00:29.110] where he introduced his bold,
+- [00:30.590] peace through strength foreign policy strategy.
+- [00:33.420] On that trip, the President laid out his goal
+- [00:35.660] of eradicating terrorism and extremism in the region,
+- [00:39.000] which he successfully accomplished over the course
+- [00:41.340] of his administration with the total defeat of ISIS
+- [00:44.690] and the historic signing of the Abraham Accords.
+- [00:47.950] Now, eight years later,
+- [00:49.550] President Trump will return to re-emphasize
+- [00:51.960] his continued vision for a proud, prosperous,
+- [00:55.130] and successful Middle East,
+- [00:56.930] where the United States and Middle Eastern nations
+- [00:58.910] are in cooperative relationships and where extremism is defeated
+- [01:02.870] in place of commerce and cultural exchanges.
+- [01:05.950] This trip ultimately highlights
+- [01:07.550] how we stand on the brink of the golden age
+- [01:09.700] for both America and the Middle East,
+- [01:12.030] united by a shared vision of stability,
+- [01:14.520] opportunity, and mutual respect.
+- [01:16.990] The President greatly looks forward
+- [01:18.440] to visiting with our brave men and women in uniform
+- [01:21.050] at our U.S. Air Base in Qatar throughout this trip.
+- [01:24.780] Yesterday, President Trump demonstrated the art of the deal
+- [01:27.820] and secured a historic trade agreement.
+- [01:30.350] Despite all of the naysayers who said no deals were coming.
+- [01:33.790] That, of course, turned out to be untrue.
+- [01:36.140] On the 80th anniversary of Victory Day for World War II,
+- [01:39.550] President Trump announced a great deal
+- [01:41.530] that provides American companies unprecedented access
+- [01:44.840] to the U.K. Markets
+- [01:46.330] while bolstering U.S. National security.
+- [01:49.200] This trade deal will massively expand
+- [01:51.150] U.S. market access in the United Kingdom,
+- [01:53.310] creating a $5 billion opportunity
+- [01:55.750] for new exports for U.S. Farmers, ranchers and producers.
+- [02:00.100] This includes more than $700 billion in ethanol exports
+- [02:03.960] and $250 million in other agricultural products
+- [02:07.840] like good old American beef.
+- [02:10.010] The deal commits the United States and United Kingdom
+- [02:12.680] to work together to enhance industrial
+- [02:14.730] and agricultural market access
+- [02:16.230] and strengthens American competitiveness.
+- [02:18.740] Importantly, the deal also ensures
+- [02:21.270] streamlined customs procedures for U.S. Exports.
+- [02:25.490] The UK will also be purchasing $10 billion of American-made
+- [02:29.670] Boeing planes as part of the deal.
+- [02:32.380] A trade agreement like this between the United States
+- [02:34.610] and the United Kingdom was being worked on for many years
+- [02:37.020] but continued to prove elusive.
+- [02:39.440] But because of President Trump's bold negotiating approach,
+- [02:42.330] he got it done.
+- [02:43.720] All of this happened because of President Trumps implementation
+- [02:46.950] of powerful tariffs to end the era of economic surrender
+- [02:50.470] and rebalance America's trading agreements.
+- [02:53.070] American workers and companies are the best in the world,
+- [02:55.920] and they finally have a president
+- [02:57.310] who has their backs, fights for them,
+- [02:59.860] and delivers good deals that puts them first.
+- [03:02.420] This is just the first of many trade deals to come.
+- [03:05.320] Get ready for more historic deals in our country
+- [03:07.740] to boom like never before.
+- [03:09.850] On that note, Treasury Secretary Scott Besson
+- [03:12.260] and Ambassador Jameson Greer
+- [03:13.680] will meet with the lead representatives
+- [03:15.170] on economic matters from the People's Republic of China
+- [03:18.030] over weekend in Switzerland. As President Trump has said,
+- [03:21.410] the United States and China have been talking for some time
+- [03:23.950] over the course of the administration,
+- [03:25.650] and now teams from both countries
+- [03:27.140] will meet in person to continue discussions.
+- [03:29.750] You can be certain that President Trump
+- [03:31.540] and his trade team will ensure we work to achieve
+- [03:34.470] the best deal possible for America.
+- [03:37.830] In other news, the Trump administration just announced
+- [03:40.280] a new incentive for illegal aliens
+- [03:42.090] living in the United State to self-deport.
+- [03:44.790] Eligible illegal aliens who now use the CBP home app
+- [03:47.650] to self-deport
+- [03:48.880] will receive a clear safe way to leave the United States.
+- [03:52.640] Their plane tickets home may be paid for
+- [03:54.870] and they will receive $1,000 stipend
+- [03:57.250] once we have confirmation that they have left our country.
+- [04:00.490] This new feature will allow illegal aliens
+- [04:02.740] to have a planned departure out of the country
+- [04:05.190] and to leave as soon as possible in a dignified way.
+- [04:08.250] If illegal aliens make the right decision here and submit
+- [04:10.940] their intent to depart through the CBP Home app
+- [04:13.310] and pass extensive vetting,
+- [04:15.090] they will be temporarily deprioritized
+- [04:17.110] for ICE detention and enforcement action
+- [04:19.090] before their scheduled departure.
+- [04:21.050] And leaving voluntarily in this matter may improve
+- [04:23.480] their legal immigration options in the future.
+- [04:26.270] This initiative will also save massive amounts of money
+- [04:29.010] for American taxpayers.
+- [04:31.010] Voluntary departures are much more cost-effective
+- [04:33.410] than traditional removals.
+- [04:35.060] By deploying the CBP Home app in this new way,
+- [04:37.890] President Trump is aiming to reduce the need
+- [04:39.940] for costly arrest, detentions, and court proceedings.
+- [04:43.300] Currently, the average cost of traditional removal
+- [04:45.700] is more than $17,000 per illegal alien.
+- [04:49.950] Our projections estimate that the use of the CBP Home app
+- [04:52.980] will massively reduce that financial burden
+- [04:55.510] by approximately 70 percent
+- [04:57.530] so taxpayer dollars can be redirected
+- [04:59.510] and our brave immigration law enforcement officers
+- [05:01.630] can focus on removing the most violent illegal aliens
+- [05:04.440] hiding in our communities.
+- [05:07.610] Finally, it was announced this morning
+- [05:09.340] that First Lady Melania Trump
+- [05:10.710] secured a $25 million investment in President Trump's budget
+- [05:14.790] to provide housing and support for youth
+- [05:16.630] transitioning out of foster care.
+- [05:18.970] And in recognition of the seventh anniversary
+- [05:21.850] of Mrs. Trump's Be Best initiative,
+- [05:23.930] the U.S. Department of Housing and Urban Development
+- [05:26.340] allocated funds toward the agency
+- [05:28.450] Foster Youth to Independence Program.
+- [05:31.470] Yesterday, Mrs. Trump hosted a special celebration of military
+- [05:34.790] Mothers with the President.
+- [05:36.380] Bringing together 150 military moms
+- [05:38.870] from around the country to recognize their service,
+- [05:42.060] not just in their home, but for our country.
+- [05:44.720] For those of you who were there at the events yesterday
+- [05:47.330] like I did, I have no doubt you will join me
+- [05:49.500] in recognizing how truly special those moments were.
+- [05:52.990] So let's get to questions. Here in our new media seat today
+- [05:55.720] is Andrew Egger, the White House correspondent for the Bulwark.
+- [05:58.780] The Bullwork is a new media company launched in 2019
+- [06:01.460] with hundreds of thousands of readers on Substack
+- [06:03.620] and more than a million subscribers on YouTube.
+- [06:05.850] Andrew, please kick us off and thanks for being here.
+- [06:07.900] The Press: Thank you for having me, Karoline.
+- [06:09.190] The President posted another ad this week for his
+- [06:11.540] Trump meme coin.
+- [06:12.830] The group that's running that coin is encouraging people
+- [06:14.980] to buy in order to win a dinner this month with the President.
+- [06:18.130] Why is the President planning to attend a dinner
+- [06:20.120] for the top investors in his coin?
+- [06:21.580] Karoline Leavitt: Look, the president is abiding
+- [06:23.210] by all conflict of interest laws.
+- [06:25.300] The president has been incredibly transparent
+- [06:27.120] with his own personal financial obligation throughout the years.
+- [06:30.160] The president is a successful businessman,
+- [06:31.870] and I think, frankly, it's one of the many reasons
+- [06:33.650] that people re-elected him back to this office.
+- [06:35.670] The Press: There are at least some people
+- [06:37.000] who are buying this coin who seem to view it
+- [06:38.570] as an opportunity to influence the president's views.
+- [06:40.630] There was a logistics company this week
+- [06:42.280] that said they would buy 20 million dollars in the coin
+- [06:44.740] in order to advocate for free trade between the U.S.
+- [06:46.790] And Mexico.
+- [06:48.010] If buyers are buying for that reason,
+- [06:49.320] are they wasting their money?
+- [06:50.560] Karoline Leavitt: Look, I can assure you the President acts
+- [06:52.390] with only the interests of the American public in mind,
+- [06:54.990] putting our country first
+- [06:56.190] and doing what's best for our country full stop.
+- [06:58.740] That's his intention and that's what he's focused on.
+- [07:01.340] Christine, good to see you here today. Welcome back.
+- [07:03.690] The Press: Thank you. Glad to be back.
+- [07:05.760] So on those China talks, what does President Trump
+- [07:08.780] expect to come out of those talks?
+- [07:11.330] And is he going to be disappointed
+- [07:12.620] if his team can't secure a deal?
+- [07:14.580] Karoline Leavitt: Well, look, the President is very confident
+- [07:16.260] in his Secretary of Treasury, Scott Besant,
+- [07:18.570] and, of course, Ambassador Jameson Greer,
+- [07:20.510] who has played an instrumental role
+- [07:22.030] in all of these trade negotiations as well.
+- [07:24.080] I think yesterday's success, the announcement of a trade deal
+- [07:27.020] with the United Kingdom, is a great first step.
+- [07:29.210] Again, many said in this room it couldn't be done.
+- [07:31.680] Now we are moving forward with many other countries.
+- [07:33.770] We're talking to dozens of our trading partners
+- [07:35.400] around the world.
+- [07:36.660] But of course China is a major country,
+- [07:40.320] a major player in this space.
+- [07:42.120] And the president has said, and he's right.
+- [07:44.640] China needs the United States of America.
+- [07:46.470] They need our markets, they need our consumer base.
+- [07:49.010] And Secretary Vestent knows that he's going to Switzerland
+- [07:52.490] this weekend with the full support and confidence
+- [07:55.170] and trust of the President here at home.
+- [07:58.460] The Press: Thanks very much Karoline. Two questions.
+- [07:59.890] First, can you give us an update on U.S. Efforts
+- [08:02.810] to mediate or have an impact on the conflict
+- [08:05.880] between India and Pakistan?
+- [08:07.710] Karoline Leavitt: I absolutely can this is something
+- [08:09.360] that the Secretary of State and of course
+- [08:11.410] now our national Security Advisor
+- [08:13.430] as well, Marco Rubio, has been very much involved in.
+- [08:16.340] The President has expressed he wants to see
+- [08:18.530] this de-escalate as quickly as possible.
+- [08:20.400] He understands these are two countries
+- [08:21.950] that have been at odds with one another for decades,
+- [08:24.540] long before President Trump was here in the Oval Office.
+- [08:28.740] However, he has good relationships
+- [08:30.300] with the leaders of both countries,
+- [08:31.710] and the Secretary of State Marco Rubia,
+- [08:34.180] I spoke to him just yesterday,
+- [08:35.430] he's been in constant communication
+- [08:37.250] with the leader of both countries
+- [08:39.050] trying to bring this conflict to an end.
+- [08:40.900] The Press: Just one other question.
+- [08:42.540] Yesterday we saw the news of the new pope.
+- [08:46.170] Before Pope Leo became Pope Leo,
+- [08:48.610] there were some critical comments that he made
+- [08:50.910] about President Trump and about Vice President Vance
+- [08:53.960] on his ex-account, then ex- account.
+- [08:56.890] Does the White House have any reaction to those comments?
+- [08:59.160] Karoline Leavitt: The President made his reaction
+- [09:00.650] to Pope Leo's announcement yesterday very clear.
+- [09:04.420] He is very proud to have an American pope.
+- [09:06.540] I think it was a surprise to everyone.
+- [09:08.220] I saw the news media was surprised to report
+- [09:10.060] on that yesterday,
+- [09:11.270] but it's a great thing for the United States of America
+- [09:13.180] and for the world, and we are praying for him.
+- [09:15.020] Great chance.
+- [09:16.290] The Press: Great. Thanks, Karoline.
+- [09:17.520] The president has been pretty firm
+- [09:18.860] on keeping these 145 percent tariffs
+- [09:21.290] in place on Chinese imports today via True Social.
+- [09:24.260] He said that he'd be possibly open
+- [09:26.310] to lowering those to 80 percent.
+- [09:28.640] Why the change, and how did the president land on 80?
+- [09:30.710] Karoline Leavitt: The President still remains with his position
+- [09:33.380] that he is not going to unilaterally
+- [09:35.170] bring down tariffs on China.
+- [09:36.460] We need to see concessions from them as well.
+- [09:38.730] And again, that's part of the reason
+- [09:40.030] that Secretary Besant is going to talk
+- [09:42.110] to his Chinese counterparts this weekend
+- [09:44.480] to start those discussions in person.
+- [09:47.040] As for the 80 percent number,
+- [09:48.410] that was a number the President threw out there,
+- [09:50.270] and we'll see what happens this weekend.
+- [09:51.560] And always in the effort of transparency,
+- [09:53.740] I'm sure you'll hear directly from the Treasury Secretary
+- [09:56.350] or the President after those negotiations conclude.
+- [10:00.100] Thank you.
+- [10:01.410] The Press: Why did the White House
+- [10:02.630] announce this deal with the UK
+- [10:04.260] before all of the details were finished?
+- [10:06.800] Karoline Leavitt: That's not true, actually.
+- [10:08.070] I saw the fact sheet. I saw a deal as well
+- [10:11.830] before the President brought all of you in the Oval Office
+- [10:14.310] in the effort of transparency.
+- [10:15.970] You had the President and the Prime Minister on the phone
+- [10:19.180] talking to all of directly about how this was a great deal,
+- [10:22.570] a phenomenal deal. And discussions will continue.
+- [10:25.720] But as I spoke to our Ambassador Greer yesterday,
+- [10:28.480] this is how trade deals work.
+- [10:29.980] You set an initial agreement. You set the framework.
+- [10:33.230] You set up the deal. And then, of course, you know.
+- [10:37.130] T's have to be crossed and I's have be dotted,
+- [10:39.160] but this deal is a good deal and the numbers are determined
+- [10:42.910] and all of the market access
+- [10:44.200] that I just discussed will remain.
+- [10:45.620] The Press: Does that mean that the 10 percent baseline
+- [10:48.170] is going to still be there at the end
+- [10:50.910] when all of the other details are ironed out.
+- [10:52.880] Karoline Leavitt: The President is committed
+- [10:54.160] to the 10 percent baseline tariff,
+- [10:55.650] not just for the United Kingdom, but for his trade negotiations
+- [10:58.470] with all other countries as well.
+- [11:00.010] The Press: Or the deals are done,
+- [11:01.810] like that is going to remain. The President did.
+- [11:03.760] Karoline Leavitt: The President is determined to continue
+- [11:05.800] with that 10 percent baseline tariff.
+- [11:07.180] I just spoke to him about it earlier.
+- [11:08.850] The Press: Thank you, Karoline.
+- [11:10.070] I'd like to ask about New York and about a personal matter.
+- [11:13.030] On New York, the mayor, Eric Adams, is here today.
+- [11:15.540] Can you tell us anything more about the visit,
+- [11:17.740] who initiated it, what they're talking about?
+- [11:19.490] And also, is there any comment from the White House
+- [11:21.380] on the air traffic control issues in New York?
+- [11:23.920] Karoline Leavitt: All I will say on Mayor Eric Adams
+- [11:25.910] is that he requested a meeting with the president
+- [11:27.890] and the president was willing to take it.
+- [11:29.960] If the president wishes to discuss
+- [11:31.410] his private meeting afterwards, I will let him do that himself.
+- [11:34.940] Yes, I'm glad you asked about the FAA.
+- [11:37.550] There was a glitch in the system this morning,
+- [11:39.460] especially at Newark Airport, as you all know.
+- [11:41.480] I spoke to the Department of Transportation.
+- [11:43.840] That glitch was caused by the same telecoms
+- [11:45.940] and software issues that were raised last
+- [11:48.270] Everyone everything went back online after the brief outage
+- [11:51.870] and there was no operational impact.
+- [11:54.390] DOT and the FAA are working to address
+- [11:56.930] this technical issue tonight to prevent further outages,
+- [12:00.360] as well as install new fiber
+- [12:01.790] from Newark Airport to Philadelphia.
+- [12:04.450] And the goal is to have the totality of this work done
+- [12:07.150] by the end of the summer.
+- [12:08.430] I want to add that this outage at Newark airport
+- [12:11.430] speaks to why the Secretary of Transportation yesterday
+- [12:14.500] made a massive announcement in investing
+- [12:17.840] in our aviation safety. In our telecom system.
+- [12:21.740] There's a four-part infrastructure plan
+- [12:24.450] that was released
+- [12:25.660] by the Secretary of Transportation yesterday
+- [12:27.620] to improve communication,
+- [12:28.860] surveillance, automation, and their facilities.
+- [12:31.920] They want to replace the antiquated telecom systems
+- [12:34.550] with new fiber, wireless, and satellite technologies,
+- [12:37.470] replace more than 600 radars,
+- [12:39.490] which have gone way past their life cycle,
+- [12:41.640] and address runway safety.
+- [12:43.310] They want to build six new air traffic control centers
+- [12:45.890] for the first time since the 1960s
+- [12:48.280] and replace towers as well.
+- [12:50.160] They want to implement new modern hardware and software
+- [12:53.970] for all traffic facilities
+- [12:55.170] to create a common platform system throughout the towers.
+- [12:58.550] These are much needed changes.
+- [13:00.060] This is a very bold plan by the Department of Transportation.
+- [13:03.640] I think it's unfortunate that the previous administration
+- [13:05.800] sat on their hands and did nothing,
+- [13:07.160] but how grateful we are that we have
+- [13:09.190] a Department of Transportation and a secretary and a president
+- [13:11.600] who's willing to take bold action and change.
+- [13:13.110] No matter care.
+- [13:14.320] The Press: No matter, Karoline, could I ask you?
+- [13:15.760] Thanks, Karoline.
+- [13:17.070] Just going back to India, Pakistan,
+- [13:18.880] can we expect President Trump to get in touch personally
+- [13:21.670] with the leaders of those countries
+- [13:23.300] to try and de-escalate this situation?
+- [13:26.680] Karoline Leavitt: If and when that happens,
+- [13:27.950] we will certainly let you know. Thanks, Karoline.
+- [13:31.410] I have a question with the Middle East trip.
+- [13:33.030] The Press: Will any of the president's family members,
+- [13:35.170] including Don Jr., Eric, or Derek Kushner,
+- [13:37.880] be joining him on the trip?
+- [13:39.420] Karoline Leavitt: I am not tracking any of
+- [13:40.670] the President's family members joining us at this time,
+- [13:43.060] but of course the First Family is welcome to come.
+- [13:44.830] I hope they would.
+- [13:46.080] They're great people, great to be around,
+- [13:47.580] but I'm not tracking them on the manifesto.
+- [13:49.070] The Press: And given that you noted
+- [13:50.450] he is a successful businessman,
+- [13:52.350] do you know if the president has any plans to meet
+- [13:54.500] with any of the folks involved
+- [13:55.790] with any the family businesses over there
+- [13:58.050] or see any of sites that are going to be?
+- [14:01.270] Karoline Leavitt: Not to my knowledge,
+- [14:02.480] and let me just get to the premise of your question
+- [14:04.270] that both of you have raised.
+- [14:05.490] I think it's frankly ridiculous that anyone in this room
+- [14:07.840] would even suggest that President Trump
+- [14:09.950] is doing anything for his own benefit.
+- [14:12.560] He left a life of luxury and a life
+- [14:14.950] running a very successful real estate empire
+- [14:17.580] for public service, not just once, but twice.
+- [14:20.740] And again, the American public re-elected him
+- [14:22.360] back to this White House
+- [14:23.640] because they trust he acts in the best interest of our country
+- [14:27.030] in putting the American people
+- [14:28.430] This is a president who is actually lost money
+- [14:30.660] for being president of the United States.
+- [14:32.190] I don't remember these same type of questions
+- [14:34.010] being asked of my predecessor about a career politician
+- [14:37.660] who was clearly profiting off of this office.
+- [14:39.380] That is not what President Trump does,
+- [14:41.150] and this White House holds ourselves
+- [14:42.560] to the highest of ethical standards.
+- [14:45.700] The Press: Thank you.
+- [14:46.960] There's this Reuters report that the U.S.
+- [14:49.090] Is in talks with Israel about an American-led
+- [14:52.100] post-war administration in Gaza.
+- [14:54.060] Is that accurate? Are these talks ongoing?
+- [14:56.710] Karoline Leavitt: We are in constant communication
+- [14:58.450] and dialog with our counterparts
+- [15:00.660] and our allies and friends in Israel.
+- [15:02.710] Ron Dermer was here at the White House
+- [15:04.330] yesterday meeting with members of President Trump's As
+- [15:07.460] for the situation in Gaza,
+- [15:08.940] the President and his entire national security team
+- [15:11.440] have made it very clear
+- [15:12.970] we want to see the hostages released from Gaza.
+- [15:15.880] That is a priority for this administration.
+- [15:18.200] As for what that looks like and even moving beyond that,
+- [15:20.900] I'm not going to get into details of Plans
+- [15:22.960] that, frankly, may or may not have even been proposed,
+- [15:25.390] but I can emphasize what the President
+- [15:28.190] holds closest in his heart right now,
+- [15:29.780] and that's the release of all of the hostages in Gaza.
+- [15:31.910] The Press: And then there's been some conservative push back
+- [15:33.500] to some of these salt tax, the salt tax cap.
+- [15:37.620] For instance, Majority Leader Steve Scalise
+- [15:39.790] said that bringing back the state
+- [15:41.000] and local tax deduction would essentially mean, quote,
+- [15:43.950] 45 states are subsidizing five states
+- [15:46.420] that have very high taxes imposed by leftist governors.
+- [15:49.970] Is he wrong?
+- [15:51.210] Is it fair to ask red Indiana to bail out blue New York.
+- [15:56.600] Karoline Leavitt: Well, look,
+- [15:57.840] this is an ongoing discussion on the Hill.
+- [16:00.690] There's a lot of disagreement on Capitol Hill
+- [16:02.280] right now about the SALT tax proposal,
+- [16:04.450] and we will let them work it out.
+- [16:06.080] As for the tax provisions and the reconciliation bill,
+- [16:08.920] the priorities of this president,
+- [16:10.600] he has made them incredibly clear.
+- [16:12.810] No tax on tips for our hardworking service workers.
+- [16:15.630] No tax social security for our well-deserving seniors
+- [16:18.930] who have worked their whole lives to pay into this system.
+- [16:22.200] No tax over time for hardworking.
+- [16:25.770] Americans as well, and there's a plethora of other priorities
+- [16:29.100] the President wants to see in this bill.
+- [16:31.450] Anyone who opposes this bill
+- [16:32.860] will be opposing the largest tax cut in American history.
+- [16:36.190] They will be voting to raise taxes
+- [16:38.460] by the tune of $4 trillion
+- [16:40.300] on the middle class of this country,
+- [16:42.350] and we look forward to holding them accountable for that.
+- [16:44.400] Everyone on Capitol Hill on both sides of the aisle
+- [16:46.810] should be supportive of the President's tax priorities.
+- [16:49.560] Follow-up on that? Go ahead.
+- [16:51.800] Go ahead and then I'll give you a follow-up.
+- [16:53.490] The Press: Thanks, Karoline.
+- [16:54.720] So, I want to follow up on the two social posts.
+- [16:57.080] So the President is saying 80 percent tariffs could come down.
+- [16:59.550] Just an announcement would be enough to lower those tariffs?
+- [17:02.790] Is that what he's looking for from the Chinese?
+- [17:05.490] Karoline Leavitt: That's not what the President said.
+- [17:07.250] He said that an 80 percent number may sound good to him,
+- [17:10.330] but again, he's in constant contact
+- [17:11.870] with our Secretary of Treasury,
+- [17:13.190] who will be leading his negotiations this weekend.
+- [17:15.070] The Press: And historically,
+- [17:16.340] the Chinese have made the meeting itself a win.
+- [17:20.090] What does a win look like out of these meetings
+- [17:22.230] for the president this weekend?
+- [17:24.220] Karoline Leavitt: A good deal for the American worker
+- [17:26.280] and the American people.
+- [17:27.750] The Press: Karoline, get back to the reconciliation bill.
+- [17:29.510] Can you just clarify the President's position
+- [17:31.600] a little bit specifically on the tax issue?
+- [17:34.120] Because in his Truth Social post,
+- [17:35.830] he said this morning that he would accept
+- [17:38.110] even a tiny tax increase for the rich,
+- [17:40.680] but then says Republicans probably shouldn't do it,
+- [17:42.780] but I'm okay if they do it. So what is it that he wants?
+- [17:45.700] Does he want them to increase the tax rates?
+- [17:48.410] Karoline Leavitt: The President wants tax cuts,
+- [17:50.440] the largest tax cuts in history.
+- [17:52.060] He wants to extend his historic tax cuts from 2017,
+- [17:55.390] and he wants to see all of the other tax priorities
+- [17:57.510] that I just laid out for you included in this bill as well.
+- [18:00.710] As for the policy proposal you're talking about,
+- [18:02.890] the President has said he himself personally
+- [18:05.290] would not mind paying a little bit more
+- [18:07.370] to help the poor and the middle class
+- [18:09.060] and the working class in this country.
+- [18:10.520] I think, frankly, that's a very honorable position,
+- [18:12.980] but again, these negotiations are ongoing on Capitol Hill.
+- [18:16.400] And the president will weigh in when he feels necessary.
+- [18:18.930] The Press: Urge them to have a higher bracket for top earners.
+- [18:22.370] Karoline Leavitt: The President has made his personal position
+- [18:24.460] on this matter clear.
+- [18:27.480] The President is in constant communication
+- [18:29.350] with leaders on the Hill.
+- [18:30.580] The Press: The President's trip to the Middle East.
+- [18:32.740] He's mentioned he wants to rename
+- [18:34.350] the Persian Gulf the Gulf of Arabia.
+- [18:36.500] Iran is now saying that doing
+- [18:38.230] so will bring the wrath of all Iranians.
+- [18:41.060] Can you talk about the support
+- [18:43.070] that the Gulf of Arabia has in the region
+- [18:44.760] and why this is important to the President?
+- [18:46.330] Karoline Leavitt: Well, first of all,
+- [18:47.550] the president has said he hasn't made a determination yet.
+- [18:49.810] That was in the news that you guys all asked him about it,
+- [18:52.730] and he said he wasn't quite sure.
+- [18:54.540] So he hasn't made a definitive decision on that yet.
+- [18:56.740] The Press: And secondly, Karoline,
+- [18:58.200] the President has shown support for South African refugees
+- [19:02.430] that are coming to the United States next week.
+- [19:04.330] Can you talk about what these refugees are fleeing
+- [19:06.970] and why this is a priority for the administration?
+- [19:09.000] Karoline Leavitt: Well, the President has actually
+- [19:10.270] signed an executive order on that matter, my office.
+- [19:12.980] Can you get it back to you, Michael?
+- [19:14.830] But this group in South Africa has faced racial persecution.
+- [19:19.620] In fact, the government there has vowed
+- [19:22.140] to take away their farmland that they own.
+- [19:26.020] And so the President talked significantly about this.
+- [19:28.520] As for further details on refugee
+- [19:31.310] claims and asylum claims,
+- [19:32.810] I would defer you to the State Department.
+- [19:34.360] Can I pull off one more? Go ahead. No, in front of you.
+- [19:38.340] The Press: Does the administration have any response
+- [19:40.830] to the news today that a federal judge
+- [19:42.360] has ordered the immediate release of Rumeysa Ozturk
+- [19:44.770] from detention, and particularly his comments
+- [19:46.670] that the government submitted no evidence
+- [19:48.750] other than an op-ed that Ozturk wrote last year?
+- [19:51.060] Karoline Leavitt: I will have to check in
+- [19:52.370] with the Department of Homeland Security
+- [19:53.710] on that particular case, but I think our overall feeling
+- [19:57.050] we've made quite clear that lower-level judges
+- [20:00.420] should not be dictating the foreign policy
+- [20:02.820] of the United States, and we absolutely believe
+- [20:05.070] that the President and the Department for Homeland Security
+- [20:07.350] are well within their legal rights
+- [20:09.330] to deport illegal immigrants.
+- [20:11.170] As for visa revocations, the Secretary of State
+- [20:14.370] has the right to do that as well.
+- [20:16.260] It is a privilege, not a right,
+- [20:17.640] to come to this country on a visa,
+- [20:18.980] but I'll check in on the specific case.
+- [20:20.530] My office will get you details.
+- [20:22.850] The Press: Karoline, yesterday the administration
+- [20:25.520] appears to have started dismantling
+- [20:27.340] the Consumer Product Safety Commission.
+- [20:29.360] This is the federal agency, an independent one,
+- [20:32.250] that does recalls and is responsible for product safety.
+- [20:35.890] Does the administration not believe that it's important,
+- [20:39.250] you know, to keep toys and cribs?
+- [20:41.150] I mean, you're a young mom off of the market.
+- [20:46.020] Karoline Leavitt: It's a federal agency within which branch?
+- [20:49.250] It's the executive branch.
+- [20:50.630] Who's the head of the executive branch?
+- [20:52.190] The President of the United States.
+- [20:55.010] He has the right to fire people within the executive branch.
+- [20:57.880] It's pretty simple answer.
+- [21:00.080] The Press: Thanks. One foreign policy one
+- [21:02.090] and then a domestic policy, I think, if I could.
+- [21:04.170] As far as the president's trip goes next week,
+- [21:07.050] is he planning to meet with the FIFA president
+- [21:09.240] in either Saudi Arabia or Qatar?
+- [21:11.020] And if so, could you give us some more details about that?
+- [21:13.470] Karoline Leavitt: The President has quite a few meetings
+- [21:15.380] with many people when he is there.
+- [21:17.580] We can certainly check at the itinerary
+- [21:19.090] and let you know if the FIFA president
+- [21:21.030] will be there next week. Frankly, I'm not quite sure,
+- [21:23.130] but we can certainly get you an answer.
+- [21:24.410] As you know, the President attended a FIFA task force
+- [21:26.750] meeting at the White House this
+- [21:29.080] The Press: On the domestic front,
+- [21:30.540] could you explain why the FEMA administrator
+- [21:33.120] was removed from his position this week?
+- [21:35.620] Karoline Leavitt: This is a personnel matter
+- [21:37.600] in regards to the Department of Homeland Security,
+- [21:39.630] but my understanding is that this individual testified
+- [21:43.880] saying something that was contrary to what the President
+- [21:46.700] believes in the goals of this administration
+- [21:48.570] in regards to FEMA policy.
+- [21:50.440] And so, of course, we want to make sure that people
+- [21:52.770] in every position are advancing the administration's goals.
+- [21:55.140] But as for specifics,
+- [21:56.370] I'd defer you to the Department of Homeland Security.
+- [21:58.570] We leave it up to our great cabinet secretaries
+- [22:00.410] when it comes to personnel matters.
+- [22:02.450] Sure, in the back.
+- [22:03.710] The Press: Thank you.
+- [22:05.150] The Press: Aid hasn't gone into Gaza in 10 weeks.
+- [22:08.000] Israel says that this is a policy to pressure Hamas
+- [22:10.430] and the negotiations, the ceasefire negotiations.
+- [22:13.270] Is this a policy that this administration supports?
+- [22:15.810] Karoline Leavitt: The President answered this this week.
+- [22:17.630] He said that he wants to ensure that aid can get into Gaza,
+- [22:20.420] but we have to do it in a responsible way
+- [22:22.610] to ensure it doesn't end up in the hands of terrorists.
+- [22:25.000] So this is something the administration
+- [22:26.780] is actively working on,
+- [22:27.980] and when we have a policy to announce on this definitively,
+- [22:31.790] we can certainly let you know.
+- [22:33.200] The Press: We talked about this effort for the U.S.
+- [22:35.060] To take over the distribution of aid in Gaza
+- [22:38.660] to exclude Israel,
+- [22:40.600] but also international organizations
+- [22:42.470] said this effort militarizes aid.
+- [22:46.380] Karoline Leavitt: I would reject that characterization
+- [22:48.620] by whatever groups you are citing.
+- [22:52.520] The Press: I want to get back to the First Lady,
+- [22:54.440] Melania Trump, dealing with foster children.
+- [22:56.890] That's an important component in American life
+- [22:59.970] to see what happens to the future of our children,
+- [23:01.960] particularly in foster care.
+- [23:04.040] Can you explain the significance of this development
+- [23:06.660] between the First lady
+- [23:08.420] and the housing and urban development?
+- [23:10.560] Karoline Leavitt: Yes, absolutely.
+- [23:11.830] It's millions of dollars that will go into a program
+- [23:14.190] that helps these children transition out of foster care
+- [23:17.380] to have productive and positive lives.
+- [23:20.060] And I'd like to share a personal story,
+- [23:21.980] since you asked if I may, I hope the First Lady won't mind.
+- [23:24.900] I was at an event in Florida last year
+- [23:28.600] and I was approached by a gentleman who was a foster dad
+- [23:32.680] and he had taken I think it was six or seven foster children.
+- [23:37.590] And he spoke to me, he had recognized me in my work
+- [23:40.270] for President Trump's campaign at the time,
+- [23:42.450] and the little boy who was with him
+- [23:44.390] talked about the personal relationship
+- [23:46.670] that he had with First Lady Melania Trump
+- [23:49.960] and the conversation she had had with him
+- [23:52.190] and how she really encouraged him to be the best
+- [23:54.660] that he could be during her first term
+- [23:56.220] here at the White House and how even after she
+- [23:58.930] and President Trump left the White House,
+- [24:00.450] she kept in very close touch with this young foster child.
+- [24:03.420] It was a touching moment. That I will never forget
+- [24:06.310] and it speaks to the heart of this First Lady
+- [24:08.940] and the great work that she is doing for foster children
+- [24:11.370] and this is certainly a very big announcement
+- [24:14.150] that I know our Secretary of Housing and Urban Development
+- [24:16.390] is in particular very excited about
+- [24:18.430] and we can certainly get you all the details on that program.
+- [24:21.720] The Press: Thanks a lot Carolyn.
+- [24:23.010] I want to ask you about the trade deal
+- [24:24.640] that the president announced yesterday with the UK
+- [24:27.200] as it relates to the auto sector.
+- [24:29.820] The trade group that represents the big three here in the US
+- [24:33.380] believes that it may put the big 3 automakers
+- [24:36.580] at a competitive disadvantage.
+- [24:38.490] What the trade group says is that it will now be cheaper
+- [24:41.530] to import a UK vehicle with very little American content.
+- [24:47.370] Than a USMCA-compliant vehicle imported from Mexico or Canada
+- [24:52.570] with just 50 percent American content.
+- [24:56.120] What's your response to that criticism
+- [24:58.660] coming from this trade group?
+- [25:00.040] Karoline Leavitt: Well, first of all,
+- [25:01.270] let's be clear about what the deal does.
+- [25:03.190] It sets a 10 percent rate on auto import ports
+- [25:06.470] for the first 100 cars that are imported
+- [25:08.920] into the United 100,000 cars, thank you.
+- [25:11.440] That would be very little, very few cars.
+- [25:13.450] 100,00 cars imported from the United Kingdom.
+- [25:16.230] After 100, 000 vehicles, it goes back up to a 25 percent tariff.
+- [25:20.610] And as for our US auto manufacturers,
+- [25:23.410] our auto industry,
+- [25:24.750] the president wants to put them on the best pedestal to compete.
+- [25:28.890] And by the way, if they produce vehicles right here
+- [25:31.300] in the United States of America, they will face no tariff at all.
+- [25:34.520] I would argue of any industry the president
+- [25:36.660] has spent more time talking to and listening to the concerns
+- [25:40.220] of our auto industry here at home,
+- [25:42.620] he hears them, he believes in them,
+- [25:44.710] he wants to see them produce their vehicles here
+- [25:47.100] in the Unites States of American.
+- [25:48.330] This is a good deal for them too. Is this a...
+- [25:50.090] The Press: Is this a model for European
+- [25:53.510] and Asian vehicles as well,
+- [25:55.460] what we see coming out of the UK trade deal with the U.S.?
+- [25:59.430] Karoline Leavitt: Look, all of these deals
+- [26:00.720] are going to be tailor-made.
+- [26:02.030] The President has said that from the beginning.
+- [26:03.800] It's very apropos that the first trade deal
+- [26:06.200] was announced between the United States and the United Kingdom,
+- [26:08.550] one of our oldest and greatest allies.
+- [26:10.700] But each country has unique concerns and challenges
+- [26:14.260] in terms of American industry.
+- [26:16.180] We need to open up markets in every single country,
+- [26:20.210] and obviously the needs are unique.
+- [26:21.880] So our trade team is looking at each country
+- [26:24.140] and the advantages that we can pursue for American industries
+- [26:27.380] and American workers. Sure. Happy Early Mother's Day.
+- [26:30.860] Oh, thank you. The President said yesterday
+- [26:32.810] that he would be speaking with Zelensky shortly.
+- [26:34.990] Did that call happen yesterday,
+- [26:36.580] or do we expect that to happen in the near term?
+- [26:38.340] The call happened yesterday.
+- [26:39.600] President Zelenski called the President to tell him
+- [26:42.940] that the critical minerals deal
+- [26:44.940] had passed the Parliament in Ukraine.
+- [26:47.020] I talked to the President about that call.
+- [26:48.800] He said it was very good and productive,
+- [26:50.900] and, of course, the critical minerals deal
+- [26:52.340] is great for Ukraine,
+- [26:54.090] but also, of course, for the United States of America
+- [26:56.180] and our taxpayers here. It was a good call,
+- [26:58.950] and they also spoke about, of course,
+- [27:00.970] the ceasefire that the President proposed,
+- [27:03.150] the 30-day ceasefire between Russia and Ukraine,
+- [27:06.100] which we know Europe is on board with
+- [27:07.780] and we hope both countries will agree to.
+- [27:09.470] Just on next week, do we expect President Putin,
+- [27:12.010] is there any chance that he could meet with Trump
+- [27:14.080] while he's in the region?
+- [27:15.490] The President answered this yesterday.
+- [27:17.260] Not going to happen. Question.
+- [27:18.960] The Press: Has he got any reaction
+- [27:20.250] from Zelensky or Putin on the proposal to cease fire?
+- [27:23.000] Is he satisfied by the reaction to that proposal?
+- [27:25.340] Karoline Leavitt: Not to my knowledge,
+- [27:26.570] but certainly if there is reaction and updates,
+- [27:28.800] I'm sure you'll hear directly from the President.
+- [27:30.670] The Press: Question, the President fired
+- [27:31.900] the Librarian of Congress. Why did he choose to do that?
+- [27:34.710] Karoline Leavitt: We felt she did not fit the needs
+- [27:36.170] of the American people.
+- [27:37.830] There were quite concerning things that she had done
+- [27:39.720] at the Library of Congress in the pursuit of DEI
+- [27:42.460] and putting inappropriate books in the library for children,
+- [27:46.040] and we don't believe that she was serving the interests
+- [27:48.430] of the American taxpayer well,
+- [27:49.790] so she has been removed from her position,
+- [27:51.430] and the President is well within his rights to do that.
+- [27:54.750] The Press: Thank you, Karoline. Happy Mother's Day as well.
+- [27:56.410] Karoline Leavitt: Thank you.
+- [27:57.650] The Press: President Trump ran on delivering
+- [28:00.660] the biggest tax cut in history. He got over 7 million votes.
+- [28:03.730] Right now, you've got a handful of obstructionists
+- [28:06.500] in the Republican conference that are saying
+- [28:09.180] they're not going to go along with his tax cut package.
+- [28:13.010] You just said those that don't will be held accountable.
+- [28:17.260] What is your description of being held accountable?
+- [28:19.920] Karoline Leavitt: Well, look,
+- [28:21.130] I think they'll be held accountable by the voters
+- [28:23.720] in their respective districts
+- [28:25.100] if they choose to vote for a tax hike
+- [28:28.140] to the tune of $4 trillion,
+- [28:30.090] which would raise taxes to thousands of dollars
+- [28:33.800] per household in this country.
+- [28:35.670] The President has great political instincts.
+- [28:38.280] That's why he's back in the Oval Office,
+- [28:39.870] and Capitol Hill should follow his lead.
+- [28:41.940] As for the President, speaking of him,
+- [28:43.630] he will be signing executive orders later this afternoon.
+- [28:46.310] We are happy to provide more information
+- [28:48.130] on those executive orders if you wish.
+- [28:49.980] Thank you for the Mother's Day wishes,
+- [28:51.540] and happy Mother's Day to all of the moms in the room.
+- [28:53.760] And don't forget to call your mom this Sunday.
+- [28:56.220] We'll see you guys later. Have a good weekend.

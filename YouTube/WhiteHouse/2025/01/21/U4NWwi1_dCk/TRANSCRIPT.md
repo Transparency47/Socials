@@ -1,0 +1,970 @@
+<!-- source: https://www.youtube.com/watch?v=U4NWwi1_dCk -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: U4NWwi1_dCk -->
+<!-- date_published: 2025-01-21T02:28:56+00:00 -->
+<!-- date_accessed: 2026-06-02T01:31:12.909602+00:00 -->
+
+# Transcript: Swearing-In Ceremony of Donald J. Trump, 47th President of the United States
+
+- [00:04.500] Male Speaker: Ladies and gentlemen,
+- [00:05.740] performing O America,
+- [00:07.750] please welcome the Armed Forces Chorus
+- [00:10.180] and America's tenor, Christopher DeMaccio.
+- [00:53.100] [singing O America]
+- [02:06.260] Male Speaker: The
+- [04:20.090] Honorable Jackie Barber,
+- [04:21.890] the clerk of the House of Representatives.
+- [04:24.210] The Honorable Kevin F McCumber. Mr. John Bessler.
+- [04:28.340] Mrs. Kelly Johnson, Mrs. Iris Wayne.
+- [04:31.200] Charles Schumer and Mrs. Jennifer Scalise.
+- [06:17.440] Ladies and gentlemen,
+- [06:18.760] escorting the president of the United States
+- [06:21.180] and the Vice president of the United States,
+- [06:23.730] ranking member of the Joint Congressional Committee
+- [06:25.910] on Inaugural Ceremonies, the Honorable Deb Fisher,
+- [06:29.420] House Democratic leader, the Honorable Hakeem Jeffries,
+- [06:32.910] and Senate Majority Secretary The Honorable Robert Duncan.
+- [06:53.670] Ladies and gentlemen,
+- [06:54.940] the President of the United States,
+- [06:57.060] the honorable Joseph biden Jr.
+- [06:59.710] And vice president of the United States.
+- [07:02.170] The honorable Kamala Davey Harris.
+- [07:47.990] Ladies and gentlemen, escorting the vice president elect,
+- [07:51.460] the executive director for the Joint Congressional Committee
+- [07:54.320] on Inaugural Ceremonies, Mr. Michael Wagner,
+- [07:57.530] Senate Deputy Sergeant at Arms and Doorkeeper.
+- [08:00.310] Jason Bell and House Deputy Sergeant at Arms.
+- [08:03.720] Mr. Sean Keating.
+- [08:28.010] Ladies and gentlemen,
+- [08:29.330] the vice president elect of the United States,
+- [08:32.030] the honorable J.D. Vance.
+- [09:51.930] Ladies and gentlemen, escorting the president elect,
+- [09:54.960] the staff director for the Joint Congressional Committee
+- [09:57.530] on Inaugural Ceremonies.
+- [09:59.050] Elizabeth Fera, House sergeant at Arms,
+- [10:01.920] the Honorable William P McFarland,
+- [10:04.460] Senate Sergeant at Arms and Doorkeeper,
+- [10:06.680] the Honorable Jennifer Hemingway,
+- [10:09.320] Senate Majority Leader, the Honorable John Thune
+- [10:12.680] and the Joint Congressional Committee
+- [10:14.600] on Inaugural Ceremonies.
+- [10:16.360] House Democratic Leader. The Honorable Hakeem Jeffries.
+- [10:19.910] House Majority Leader. The Honorable Steve Scalise.
+- [10:23.330] Speaker of the House of Representatives.
+- [10:25.610] The Honorable Mike Johnson. Senate Democratic Leader.
+- [10:29.430] The Honorable Charles E Schumer,
+- [10:32.080] Ranking Member of the Joint Congressional Committee
+- [10:34.370] on Inaugural Ceremonies.
+- [10:35.860] The Honorable Deb Fisher and chairwoman
+- [10:38.700] of the Joint Congressional Committee
+- [10:40.200] on Inaugural Ceremonies. The Honorable Amy Klobuchar.
+- [11:13.490] Ladies and gentlemen,
+- [11:14.820] the president elect of the United States,
+- [11:17.300] the Honorable Donald John Trump.
+- [12:43.730] Ladies and gentlemen, please be seated.
+- [13:21.700] Please welcome the chairwoman
+- [13:23.200] of the Joint Congressional Committee
+- [13:24.760] on Inaugural Ceremonies, the Honorable Amy Klobuchar.
+- [13:34.720] Ms. Klobuchar: Good morning, everyone.
+- [13:36.590] Welcome to the 60th presidential inauguration.
+- [13:41.680] Today, President elect Trump and Vice President elect Vance
+- [13:46.800] will take their oaths of office
+- [13:49.370] and we will witness the peaceful transfer of power
+- [13:53.210] at the heart of our democracy.
+- [14:02.160] For the past year,
+- [14:03.400] I've chaired the inaugural ceremony committee,
+- [14:06.510] which includes the leadership of Congress from both parties.
+- [14:11.230] We thank the committee and Capitol staff
+- [14:13.920] and law enforcement who worked so hard over the last year
+- [14:18.340] and especially the last three days.
+- [14:20.970] You've done a beautiful job
+- [14:22.600] and you have shown grace under pressure.
+- [14:32.750] Our theme this year is our Enduring Democracy.
+- [14:36.710] The presence of so many presidents
+- [14:39.300] and vice presidents here
+- [14:40.580] today is truly a testament to that endurance.
+- [14:44.510] We welcome President Biden and Dr. Biden.
+- [14:48.360] We welcome Vice President Harris and Doug Emhoff.
+- [14:51.790] President Obama, President Clinton and Secretary Clinton.
+- [14:56.560] President Bush and Laura Bush. Vice President Pence.
+- [15:00.870] Vice President Quayle and Marilyn Quayle.
+- [15:04.100] The justices of the United States Supreme Court
+- [15:07.740] are with us. All nine of them I counted.
+- [15:10.850] And, of course, the Trump and Vance families.
+- [15:14.770] This ceremony marks what will soon be
+- [15:18.030] 250 years of our democracy.
+- [15:22.010] It is the moment when leaders elevated
+- [15:24.810] by the will of the people
+- [15:26.670] promised to be faithful to our Constitution,
+- [15:29.760] to cherish and defend it.
+- [15:31.760] It is the moment when they become,
+- [15:34.120] as we all should be,
+- [15:36.030] the guardians of our country through war and peace,
+- [15:40.240] through adversity and prosperity.
+- [15:42.420] We hold this inauguration every four years,
+- [15:45.690] and today it falls on Martin Luther King Day.
+- [15:49.610] A further reminder that we must strive to uphold the values
+- [15:53.720] enshrined in our Constitution, the freedoms, the liberties.
+- [15:58.730] And as is inscribed
+- [16:00.750] on the entrance of the United States Supreme Court.
+- [16:04.130] Equal justice under law.
+- [16:14.000] But what makes this moment more than a passing ceremony
+- [16:18.100] is all who are watching it across the country.
+- [16:21.360] The people of this nation,
+- [16:23.240] the ordinary people doing extraordinary things.
+- [16:27.040] President Kennedy,
+- [16:28.300] who at one point worked as a senator in this building
+- [16:31.950] and would often walk through this very rotunda
+- [16:34.730] once said, in a democracy, every citizen,
+- [16:38.180] regardless of interest in politics, holds office.
+- [16:41.940] Every one of us is in a position of responsibility.
+- [16:46.780] With that responsibility of citizenship
+- [16:49.650] comes an obligation not to seek out malice.
+- [16:52.650] As President Lincoln once reminded us,
+- [16:55.760] but to view others with a generosity of spirit
+- [16:58.960] despite our differences.
+- [17:01.020] With that responsibility of leadership
+- [17:03.960] comes an obligation to stand our ground
+- [17:06.770] when we must and find common ground when we can.
+- [17:11.570] With everything swirling around us,
+- [17:13.860] the hot mess of division. It is on all of us.
+- [17:17.260] To quote an incredible songwriter
+- [17:19.450] who just happened to be born in my state
+- [17:22.470] to ensure that our nation's democracy
+- [17:25.720] is our shelter from the storm.
+- [17:29.600] There's a reason this ceremony takes place at the Capitol.
+- [17:34.460] In other countries, it might be in a presidential palace
+- [17:37.370] or a gilded executive office building.
+- [17:39.900] Here it is traditionally held at the Capitol, the people's house.
+- [17:44.620] It is a fitting reminder of the system of checks and balances
+- [17:49.120] that is the very foundation of our government.
+- [17:52.830] Three equal branches of government.
+- [17:56.710] That is how, for nearly 250 years,
+- [17:59.850] our great American experiment grounded in the rule of law,
+- [18:04.220] has endured.
+- [18:06.040] So as we inaugurate a new president and vice president.
+- [18:11.790] Let us remember that the power of those in this room
+- [18:17.020] comes from the people,
+- [18:19.180] the construction workers who build our country,
+- [18:22.630] the teachers and health care workers who nurture us,
+- [18:25.670] the troops defending our freedoms,
+- [18:28.620] and yes, the firefighters in Los Angeles
+- [18:32.240] putting themselves on the line for high.
+- [18:45.740] Our democracy's strength and grit must match theirs.
+- [18:52.100] May God bless our nation. Thank you.
+- [19:15.900] Female Speaker: Good afternoon.
+- [19:18.490] Endurance through the years is the ultimate test.
+- [19:22.820] To persevere through time is the truest measure of an idea,
+- [19:28.930] an institution, and a nation.
+- [19:33.050] Our founders wrote the Constitution
+- [19:35.760] so that America could withstand all the twists
+- [19:40.120] and turns of time. They wrote it to guide us
+- [19:44.780] and to preserve forever our right of life, liberty
+- [19:50.520] and the pursuit of happiness.
+- [19:53.100] But as much as the truths and principles
+- [19:56.180] enshrined in our Constitution remain the same,
+- [20:00.720] our democracy promises the American people the power
+- [20:05.070] to change, to chart their own destiny.
+- [20:10.350] That's the beauty. That is the importance of democracy.
+- [20:16.090] It allows the endurance,
+- [20:19.290] the permanence of a nation through change.
+- [20:23.700] It allows nations like our United States
+- [20:27.590] both to avoid the obstacles
+- [20:30.630] and to seize the opportunities God has placed before us all,
+- [20:36.730] while staying true to our founding principles.
+- [20:41.160] Today is our country's 60th inauguration ceremony.
+- [20:46.920] Like all the others before it, it is a celebration of our right
+- [20:51.520] to set our uniquely American course.
+- [20:55.720] The past several years have been trying times for many,
+- [21:00.330] many Americans and also for the nations of the free world
+- [21:05.640] that we humbly strive to lead.
+- [21:09.600] In November, Americans chose again
+- [21:12.530] to steer this nation towards greatness.
+- [21:15.910] The secure, safe and prosperous future
+- [21:20.520] that our founders envisioned for all of us.
+- [21:25.110] And today we celebrate not only their decision to do so,
+- [21:30.880] but also the simple right and wisdom of a free people
+- [21:37.030] to make their own choice.
+- [21:39.650] So that their nation might endure.
+- [21:43.400] And now allow me to welcome Archbishop Timothy Dolan
+- [21:48.260] and Reverend Franklin Graham, who will deliver our invocation.
+- [21:53.380] Please rise.
+- [22:06.160] Archbishop Dolan: Be still and know that I am God,
+- [22:10.380] Supreme among the nation, Supreme on the earth.
+- [22:14.530] Let us pray. Remembering.
+- [22:19.200] General George Washington on his knees at Valley Forge,
+- [22:22.730] recalling Abraham Lincoln at his second inaugural.
+- [22:27.740] With malice toward none, with charity for all,
+- [22:30.530] with firmness in the right
+- [22:31.820] as God gives us to see the right.
+- [22:35.460] Remembering General George Patton's instructions
+- [22:38.350] to his soldiers as they began the Battle of the Bulge
+- [22:41.230] eight decades ago.
+- [22:42.600] Pray, pray when fighting, pray alone.
+- [22:45.730] Pray with others. Pray by night. Pray by day.
+- [22:50.430] Observing the birthday of the Reverend Martin Luther King,
+- [22:54.430] who warned, without God, our efforts turned to ashes.
+- [23:00.100] We bless citizens of this one nation under God.
+- [23:05.030] Humbled by our claim that in God we trust.
+- [23:08.620] Gather indeed, this Inauguration Day to pray.
+- [23:12.640] For our president, Donald J. Trump,
+- [23:14.680] his family, his advisers, his cabinet, his aspirations,
+- [23:19.060] his vice president for the large blessings upon Joseph Biden.
+- [23:24.810] For our men and women in uniform,
+- [23:26.820] for each other whose hopes are stoked.
+- [23:30.360] This New Year. This Inauguration Day.
+- [23:34.340] We cannot air relying upon that prayer from the Bible
+- [23:38.800] upon which our president will soon place his hand
+- [23:41.400] and oath as we make our own the supplications
+- [23:45.030] of King Solomon for wisdom as he began his governance.
+- [23:51.050] God of our fathers.
+- [23:52.260] In your wisdom, you set man to govern your creatures,
+- [23:55.560] to govern in holiness and justice,
+- [23:58.050] to render justice with integrity.
+- [24:00.330] Give our leader wisdom. For he is your servant,
+- [24:04.280] aware of your of his own weakness and brevity of life.
+- [24:08.240] If wisdom which comes not from you be not with him,
+- [24:11.220] he shall be held in no esteem.
+- [24:13.480] Send wisdom from heavens that she may be with him.
+- [24:18.380] That he may know your designs.
+- [24:21.290] Please, God bless America. Please mend her every flaw.
+- [24:28.590] You are the God in whom we trust,
+- [24:30.550] who lives and reigns forever and ever.
+- [24:38.290] Amen.
+- [24:44.830] Reverend Graham: Mr. President, the last four years.
+- [24:48.650] There are times. I'm sure you thought it was pretty dark.
+- [24:52.790] But look what God has done.
+- [24:55.700] We praise him and give him glory.
+- [25:08.130] Let us pray.
+- [25:11.640] Our father and our God that I said,
+- [25:13.560] Blessed is the nation whose God is the Lord.
+- [25:18.270] As the prophet, Daniel prayed,
+- [25:19.930] Blessed be the name of God forever
+- [25:21.810] and ever for wisdom and miter his.
+- [25:26.360] He changes the times and the seasons.
+- [25:29.170] He removes kings, he raises up kings.
+- [25:32.880] He gives wisdom to the wise and knowledge
+- [25:35.620] to those who have understanding.
+- [25:38.050] Father today.
+- [25:40.810] As President Donald Trump takes the oath of office once again,
+- [25:45.120] we come to say thank you. Lord, our God.
+- [25:48.970] Father when Donald Trump's enemies thought
+- [25:51.520] he was down and out, you and you alone saved his life
+- [25:56.460] and raised him up with strength and power by your mighty hand.
+- [26:02.720] We pray for President Trump that you watch over,
+- [26:05.760] protect, guide, direct him.
+- [26:08.390] Give him your wisdom from your throne on high.
+- [26:13.500] We ask that you would bless him
+- [26:15.350] and that our nation would be blessed through him.
+- [26:19.230] We also ask that you have blessed protect Melania
+- [26:22.200] as first lady.
+- [26:23.920] We thank you for the beauty, the warmth and grace
+- [26:27.910] that she shows not only to this nation,
+- [26:31.090] but to the whole world.
+- [26:34.030] We thank you for Vice President elect
+- [26:36.020] J.D. Vance and his wife Lucia, and their young family.
+- [26:40.310] May he be a strength to President Trump,
+- [26:42.910] to stand beside him, to hold up his arms like Aaron
+- [26:46.180] held up arms of Moses in the midst of battle?
+- [26:49.790] The Prophet Samuel reminded the people
+- [26:52.590] it was you that brought them up from the land of Egypt.
+- [26:55.470] And he said,
+- [26:56.780] No, stand still that I may reason with you before the Lord.
+- [27:01.730] So, Father, we take this moment to stand still,
+- [27:05.220] to remember the great things
+- [27:06.490] that you have done for this nation.
+- [27:08.460] Thank you for the protection, the bounty,
+- [27:10.850] the freedoms that we so enjoy.
+- [27:16.290] We remember. To keep eyes fixed on you.
+- [27:20.830] And may our hearts be inclined to your voice.
+- [27:24.160] We know that America can never be great again
+- [27:27.120] if we turn our backs on you. We ask for your help.
+- [27:31.000] And we pray all of this in the name of the King of kings.
+- [27:34.040] The Lord of Lords.
+- [27:35.310] Your son, my Savior and our redeemer.
+- [27:38.840] Jesus Christ. Amen.
+- [27:41.610] Male Speaker: Ladies and gentlemen,
+- [27:42.870] please welcome Associate Justice Kavanagh
+- [27:45.130] to administer the vice presidential oath of office.
+- [28:27.410] Justice Kavanagh: Please raise your right hand
+- [28:29.820] and repeat after me.
+- [28:32.710] I, James David Vance, do solemnly swear.
+- [28:36.570] Mr. Vance: I, James David Vance,
+- [28:37.890] do solemnly swear.
+- [28:39.490] Justice Kavanagh: That I will support and defend
+- [28:41.570] the Constitution of the United States.
+- [28:43.930] Mr. Vance: That I will support and defend
+- [28:45.670] the Constitution of the United States.
+- [28:47.660] Justice Kavanagh: Against all enemies.
+- [28:49.160] Foreign and domestic.
+- [28:51.170] Mr. Vance: Against all enemies. Foreign and domestic.
+- [28:54.270] Justice Kavanagh: That I will bear true faith.
+- [28:56.290] Mr. Vance: That I will bear true faith.
+- [28:57.880] Justice Kavanagh: And allegiance to the same.
+- [28:59.570] Mr. Vance: And allegiance to the same.
+- [29:01.560] Justice Kavanagh: That I take this obligation freely.
+- [29:03.910] Mr. Vance: That I take this obligation freely.
+- [29:05.870] Justice Kavanagh: Without any mental reservation.
+- [29:07.930] Mr. Vance: Without any mental reservation.
+- [29:10.270] Justice Kavanagh: Or purpose of evasion.
+- [29:11.930] Mr. Vance: Or purpose of evasion.
+- [29:13.420] Justice Kavanagh: And that I will well
+- [29:15.220] and faithfully discharge.
+- [29:16.940] Mr. Vance: And that I will well and faithfully discharge.
+- [29:19.710] Justice Kavanagh: The duties of the Office.
+- [29:21.220] Mr. Vance: The duties of the office.
+- [29:22.460] Justice Kavanagh: On which I am about to enter.
+- [29:23.950] Mr. Vance: On which I am about to enter.
+- [29:25.280] Justice Kavanagh: So help me God.
+- [29:26.550] Mr. Vance: So help me God.
+- [29:27.760] Justice Kavanagh: Congratulations, Mr.
+- [29:28.990] Vice President.
+- [29:56.780] Male Speaker: Ladies and gentlemen, please welcome.
+- [29:58.630] Chief Justice Roberts to administer
+- [30:00.330] the presidential oath of office.
+- [30:21.240] Justice Roberts: Please raise your right hand
+- [30:22.830] and repeat after me.
+- [30:24.600] I, Donald John Trump, do solemnly swear.
+- [30:27.730] Mr. Trump: I, Donald John Trump do solemnly swear.
+- [30:30.560] Justice Roberts: That I will faithfully execute.
+- [30:32.990] Mr. Trump: That I will faithfully execute.
+- [30:34.990] Justice Roberts: The office of President of the United States.
+- [30:37.800] Mr. Trump: The Office of President of the United States.
+- [30:40.840] Justice Roberts: And will to the best of my ability.
+- [30:43.370] Mr. Trump: And will to the best of my ability.
+- [30:45.710] Justice Roberts: Preserve, Protect and defend.
+- [30:48.030] Mr. Trump: Protect and defend.
+- [30:49.240] Justice Roberts: The Constitution
+- [30:50.500] of the United States.
+- [30:51.710] Mr. Trump: The Constitution of the United States.
+- [30:53.690] Justice Roberts: So help me God. So help me God.
+- [30:55.680] Congratulations, Mr. Trump.
+- [37:32.580] Female Speaker: It is my honor and pleasure
+- [37:35.730] to introduce to you the 45th and the 47th President
+- [37:41.180] of the United States of America, Donald J. Trump.
+- [38:17.360] THE PRESIDENT: Thank you. Thank you very much, everybody.
+- [38:19.520] (Applause.) Wow. Thank you very, very much.
+- [38:24.160] Vice President Vance, Speaker Johnson,
+- [38:28.170] Senator Thune, Chief Justice Roberts,
+- [38:33.010] justices of the Supreme Court of the United States,
+- [38:39.500] President Clinton, President Bush,
+- [38:42.820] President Obama, President Biden,
+- [38:47.270] Vice President Harris, and my fellow citizens,
+- [38:52.930] the golden age of America begins right now.
+- [38:57.090] (Applause.)
+- [39:05.050] From this day forward, our country will flourish
+- [39:08.260] and be respected again all over the world.
+- [39:11.760] We will be the envy of every nation,
+- [39:13.870] and we will not allow ourselves
+- [39:15.750] to be taken advantage of any longer.
+- [39:20.050] During every single day of the Trump administration,
+- [39:23.750] I will, very simply, put America first.
+- [39:29.770] (Applause.)
+- [39:36.810] Our sovereignty will be reclaimed.
+- [39:40.180] Our safety will be restored.
+- [39:42.890] The scales of justice will be rebalanced.
+- [39:47.180] The vicious, violent, and unfair weaponization
+- [39:50.080] of the Justice Department and our government will end.
+- [39:55.270] (Applause.)
+- [40:02.080] And our top priority will be to create a nation
+- [40:05.090] that is proud, prosperous, and free.
+- [40:08.640] (Applause.)
+- [40:13.990] America will soon be greater, stronger,
+- [40:18.140] and far more exceptional than ever before.
+- [40:22.640] (Applause.)
+- [40:26.880] I return to the presidency confident and optimistic
+- [40:30.340] that we are at the start of a thrilling new era
+- [40:33.320] of national success.
+- [40:35.790] A tide of change is sweeping the country,
+- [40:38.270] sunlight is pouring over the entire world,
+- [40:41.610] and America has the chance
+- [40:43.120] to seize this opportunity like never before.
+- [40:47.060] But first, we must be honest about the challenges we face.
+- [40:51.240] While they are plentiful, they will be annihilated
+- [40:53.920] by this great momentum
+- [40:55.690] that the world is now witnessing in the United States of America.
+- [41:00.620] As we gather today,
+- [41:01.850] our government confronts a crisis of trust.
+- [41:05.240] For many years, a radical and corrupt establishment
+- [41:08.710] has extracted power and wealth from our citizens
+- [41:11.480] while the pillars of our society lay broken
+- [41:14.330] and seemingly in complete disrepair.
+- [41:18.370] We now have a government that cannot manage
+- [41:20.480] even a simple crisis at home while,
+- [41:23.090] at the same time, stumbling into a continuing catalogue
+- [41:26.410] of catastrophic events abroad.
+- [41:29.540] It fails to protect our magnificent,
+- [41:31.620] law-abiding American citizens but provides sanctuary
+- [41:35.900] and protection for dangerous criminals,
+- [41:38.420] many from prisons and mental institutions,
+- [41:41.800] that have illegally entered our country
+- [41:43.650] from all over the world.
+- [41:45.970] We have a government that has given unlimited
+- [41:48.220] funding to the defense of foreign borders
+- [41:51.390] but refuses to defend American borders
+- [41:54.390] or, more importantly, its own people.
+- [41:58.310] Our country can no longer deliver basic services
+- [42:01.100] in times of emergency, as recently shown
+- [42:04.650] by the wonderful people of North Carolina —
+- [42:08.040] who have been treated so badly —
+- [42:10.520] (applause)
+- [42:14.960] — and other states who are still suffering from a hurricane
+- [42:17.830] that took place many months ago or, more recently, Los Angeles,
+- [42:22.360] where we are watching fires still tragically burn
+- [42:26.470] from weeks ago without even a token of defense.
+- [42:31.280] They’re raging through the houses and communities,
+- [42:33.720] even affecting some of the wealthiest
+- [42:35.850] and most powerful individuals in our country —
+- [42:38.270] some of whom are sitting here right now.
+- [42:41.660] They don’t have a home any longer. That’s interesting.
+- [42:46.230] But we can’t let this happen.
+- [42:48.410] Everyone is unable to do anything about it.
+- [42:52.500] That’s going to change.
+- [42:54.320] We have a public health system
+- [42:55.710] that does not deliver in times of disaster,
+- [42:58.060] yet more money is spent on it
+- [43:00.230] than any country anywhere in the world.
+- [43:03.110] And we have an education system that teaches our children
+- [43:06.180] to be ashamed of themselves —
+- [43:07.790] in many cases, to hate our country
+- [43:10.210] despite the love that we try so desperately to provide to them.
+- [43:15.330] All of this will change starting today,
+- [43:18.930] and it will change very quickly.
+- [43:22.180] (Applause.)
+- [43:31.360] My recent election is a mandate to completely
+- [43:34.600] and totally reverse a horrible betrayal
+- [43:38.960] and all of these many betrayals that have taken place
+- [43:43.560] and to give the people back their faith,
+- [43:46.600] their wealth, their democracy, and, indeed, their freedom.
+- [43:51.990] From this moment on, America’s decline is over.
+- [43:58.880] (Applause.)
+- [44:07.370] Our liberties and our nation’s glorious destiny
+- [44:11.420] will no longer be denied.
+- [44:13.490] And we will immediately restore the integrity, competency,
+- [44:16.850] and loyalty of America’s government.
+- [44:20.530] Over the past eight years,
+- [44:21.780] I have been tested and challenged more
+- [44:23.610] than any president in our 250-year history,
+- [44:27.570] and I’ve learned a lot along the way.
+- [44:30.780] The journey to reclaim our republic
+- [44:34.120] has not been an easy one — that, I can tell you.
+- [44:37.930] Those who wish to stop our cause have tried to take my freedom
+- [44:43.460] and, indeed, to take my life.
+- [44:46.990] Just a few months ago,
+- [44:48.270] in a beautiful Pennsylvania field,
+- [44:50.210] an assassin’s bullet ripped through my ear.
+- [44:54.870] But I felt then and believe even more so now
+- [44:57.600] that my life was saved for a reason.
+- [45:01.370] I was saved by God to make America great again.
+- [45:06.570] (Applause.)
+- [45:12.710] Thank you. Thank you.
+- [45:19.500] (Applause.)
+- [45:25.640] Thank you very much.
+- [45:31.050] (Applause.)
+- [45:36.500] That is why each day
+- [45:37.700] under our administration of American patriots,
+- [45:42.750] we will be working to meet every crisis
+- [45:45.030] with dignity and power and strength.
+- [45:48.350] We will move with purpose and speed to bring back hope,
+- [45:52.310] prosperity, safety, and peace for citizens of every race,
+- [45:57.060] religion, color, and creed.
+- [46:00.460] For American citizens, January 20th, 2025,
+- [46:04.860] is Liberation Day.
+- [46:08.640] (Applause.)
+- [46:16.890] It is my hope that our recent presidential election
+- [46:19.780] will be remembered as the greatest
+- [46:21.870] and most consequential election in the history of our country.
+- [46:26.710] As our victory showed,
+- [46:27.920] the entire nation is rapidly unifying behind our agenda
+- [46:31.960] with dramatic increases in support from virtually
+- [46:34.970] every element of our society: young and old, men and women,
+- [46:39.490] African Americans, Hispanic Americans,
+- [46:41.930] Asian Americans, urban, suburban, rural.
+- [46:45.800] And very importantly, we had a powerful win
+- [46:48.430] in all seven swing states — (applause)
+- [46:51.180] — and the popular vote, we won by millions of people.
+- [46:56.760] (Applause.)
+- [47:00.420] To the Black and Hispanic communities,
+- [47:02.900] I want to thank you for the tremendous outpouring of love
+- [47:06.560] and trust that you have shown me with your vote.
+- [47:11.080] We set records, and I will not forget it.
+- [47:15.440] I’ve heard your voices in the campaign,
+- [47:17.460] and I look forward to working with you in the years to come.
+- [47:21.720] Today is Martin Luther King Day.
+- [47:23.560] And his honor — this will be a great honor.
+- [47:26.980] But in his honor, we will strive together
+- [47:30.050] to make his dream a reality.
+- [47:32.990] We will make his dream come true.
+- [47:36.170] (Applause.)
+- [47:41.680] Thank you. Thank you.
+- [47:49.990] Thank you. (Applause.)
+- [47:54.960] National unity is now returning to America,
+- [48:00.460] and confidence and pride is soaring like never before.
+- [48:05.180] In everything we do,
+- [48:06.470] my administration will be inspired
+- [48:08.610] by a strong pursuit of excellence
+- [48:10.560] and unrelenting success. We will not forget our country,
+- [48:15.280] we will not forget our Constitution,
+- [48:17.940] and we will not forget our God. Can’t do that.
+- [48:25.430] (Applause.)
+- [48:34.680] Today, I will sign a series of historic executive orders.
+- [48:38.970] With these actions,
+- [48:40.180] we will begin the complete restoration of America
+- [48:43.630] and the revolution of common sense.
+- [48:47.290] It’s all about common sense.
+- [48:49.610] (Applause.)
+- [48:51.260] First, I will declare a national emergency
+- [48:55.400] at our southern border.
+- [48:58.280] (Applause.)
+- [49:23.270] All illegal entry will immediately be halted,
+- [49:27.180] and we will begin the process of returning millions
+- [49:30.510] and millions of criminal aliens
+- [49:32.740] back to the places from which they came.
+- [49:36.600] We will reinstate my Remain in Mexico policy.
+- [49:42.560] (Applause.)
+- [49:47.280] I will end the practice of catch and release.
+- [49:51.060] (Applause.)
+- [49:54.670] And I will send troops to the southern border
+- [49:57.540] to repel the disastrous invasion of our country.
+- [50:01.550] (Applause.)
+- [50:06.230] Under the orders I sign today,
+- [50:08.420] we will also be designating the cartels
+- [50:11.910] as foreign terrorist organizations.
+- [50:20.250] (Applause.)
+- [50:32.010] And by invoking the Alien Enemies Act of 1798,
+- [50:38.300] I will direct our government
+- [50:39.820] to use the full and immense power of federal
+- [50:42.630] and state law enforcement to eliminate the presence
+- [50:45.540] of all foreign gangs and criminal networks
+- [50:48.950] bringing devastating crime to U.S. soil,
+- [50:53.420] including our cities and inner cities.
+- [50:57.410] (Applause.)
+- [51:03.490] As commander in chief, I have no higher responsibility
+- [51:06.700] than to defend our country from threats and invasions,
+- [51:10.180] and that is exactly what I am going to do.
+- [51:13.870] We will do it at a level that nobody has ever seen before.
+- [51:17.900] Next, I will direct all members of my cabinet
+- [51:20.330] to marshal the vast powers at their disposal
+- [51:23.530] to defeat what was record inflation
+- [51:26.560] and rapidly bring down costs and prices.
+- [51:30.800] (Applause.)
+- [51:36.630] The inflation crisis was caused by massive overspending
+- [51:40.140] and escalating energy prices, and that is why today
+- [51:43.870] I will also declare a national energy emergency.
+- [51:48.600] We will drill, baby, drill.
+- [51:53.040] (Applause.)
+- [52:11.250] America will be a manufacturing nation once again,
+- [52:15.050] and we have something that no other
+- [52:16.610] manufacturing nation will ever have —
+- [52:18.880] the largest amount of oil and gas
+- [52:21.010] of any country on earth —
+- [52:23.050] and we are going to use it. We’ll use it.
+- [52:27.220] (Applause.)
+- [52:30.060] We will bring prices down,
+- [52:32.570] fill our strategic reserves up again right to the top,
+- [52:37.060] and export American energy all over the world.
+- [52:41.380] (Applause.)
+- [52:45.810] We will be a rich nation again,
+- [52:48.290] and it is that liquid gold under our feet
+- [52:51.920] that will help to do it.
+- [52:54.260] With my actions today, we will end the Green New Deal,
+- [52:57.430] and we will revoke the electric vehicle mandate,
+- [53:01.070] saving our auto industry and keeping my sacred pledge
+- [53:04.570] to our great American autoworkers.
+- [53:08.780] (Applause.)
+- [53:19.440] In other words, you’ll be able to buy the car of your choice.
+- [53:25.050] We will build automobiles in America again
+- [53:27.380] at a rate that nobody could have dreamt possible
+- [53:30.080] just a few years ago.
+- [53:32.460] And thank you to the autoworkers of our nation
+- [53:35.110] for your inspiring vote of confidence.
+- [53:37.840] We did tremendously with their vote.
+- [53:40.200] (Applause.)
+- [53:42.930] I will immediately begin the overhaul of our trade system
+- [53:47.850] to protect American workers and families.
+- [53:51.540] Instead of taxing our citizens to enrich other countries,
+- [53:55.580] we will tariff and tax foreign countries
+- [53:59.320] to enrich our citizens.
+- [54:03.310] (Applause.)
+- [54:06.790] For this purpose,
+- [54:08.880] we are establishing the External Revenue Service
+- [54:15.000] to collect all tariffs, duties, and revenues.
+- [54:19.040] It will be massive amounts of money
+- [54:21.520] pouring into our Treasury, coming from foreign sources.
+- [54:26.340] The American dream will soon be back and thriving
+- [54:29.000] like never before.
+- [54:30.760] To restore competence and effectiveness
+- [54:33.350] to our federal government, my administration will establish
+- [54:37.730] the brand-new Department of Government Efficiency.
+- [54:42.990] (Applause.)
+- [54:54.020] After years and years of illegal
+- [54:56.200] and unconstitutional federal efforts
+- [54:58.400] to restrict free expression,
+- [55:00.750] I also will sign an executive order
+- [55:02.950] to immediately stop all government censorship
+- [55:06.340] and bring back free speech to America.
+- [55:10.880] (Applause.)
+- [55:26.620] Never again will the immense power of the state
+- [55:30.000] be weaponized to persecute political opponents —
+- [55:33.530] something I know something about.
+- [55:35.500] (Laughter.)
+- [55:36.900] We will not allow that to happen.
+- [55:38.860] It will not happen again.
+- [55:40.550] Under my leadership, we will restore fair, equal,
+- [55:43.900] and impartial justice under the constitutional rule of law.
+- [55:48.570] (Applause.)
+- [55:53.460] And we are going to bring law and order back to our cities.
+- [55:58.330] (Applause.)
+- [56:02.730] This week, I will also end the government policy
+- [56:06.500] of trying to socially engineer race and gender
+- [56:10.330] into every aspect of public and private life.
+- [56:15.110] (Applause.)
+- [56:21.240] We will forge a society that is colorblind and merit-based.
+- [56:27.720] (Applause.)
+- [56:32.470] As of today, it will henceforth be the official policy
+- [56:37.160] of the United States government that there are only two genders:
+- [56:41.340] male and female.
+- [56:44.400] (Applause.)
+- [57:00.730] This week, I will reinstate any service members
+- [57:03.710] who were unjustly expelled from our military
+- [57:06.370] for objecting to the COVID vaccine mandate
+- [57:09.220] with full back pay.
+- [57:12.990] (Applause.)
+- [57:23.280] And I will sign an order to stop our warriors
+- [57:26.070] from being subjected to radical political theories
+- [57:29.440] and social experiments while on duty.
+- [57:32.030] It’s going to end immediately.
+- [57:34.360] (Applause.)
+- [57:37.880] Our armed forces will be freed to focus on their sole mission:
+- [57:43.390] defeating America’s enemies.
+- [57:50.640] (Applause.)
+- [58:11.530] Like in 2017, we will again build the strongest military
+- [58:15.640] the world has ever seen.
+- [58:18.310] We will measure our success not only by the battles we win
+- [58:22.380] but also by the wars that we end —
+- [58:24.840] and perhaps most importantly, the wars we never get into.
+- [58:30.320] (Applause.)
+- [58:48.820] My proudest legacy will be that of a peacemaker and unifier.
+- [58:53.940] That’s what I want to be: a peacemaker and a unifier.
+- [58:57.680] I’m pleased to say that as of yesterday,
+- [58:59.710] one day before I assumed office, the hostages in the Middle East
+- [59:05.510] are coming back home to their families.
+- [59:09.780] (Applause.)
+- [59:27.690] Thank you.
+- [59:30.080] America will reclaim its rightful place
+- [59:32.840] as the greatest, most powerful, most respected nation on earth,
+- [59:37.160] inspiring the awe and admiration of the entire world.
+- [59:41.890] A short time from now,
+- [59:43.200] we are going to be changing the name of the Gulf of Mexico
+- [59:47.590] to the Gulf of America —
+- [59:49.130] (applause)
+- [59:50.330] — and we will restore the name of a great president,
+- [59:55.750] William McKinley, to Mount McKinley,
+- [59:58.650] where it should be and where it belongs.
+- [01:00:05.890] (Applause.)
+- [01:00:09.510] President McKinley made our country very rich
+- [01:00:13.650] through tariffs and through talent —
+- [01:00:16.360] he was a natural businessman —
+- [01:00:18.650] and gave Teddy Roosevelt the money
+- [01:00:20.380] for many of the great things he did,
+- [01:00:22.330] including the Panama Canal, which has foolishly been given
+- [01:00:26.880] to the country of Panama after the United Spates —
+- [01:00:31.130] the United States — I mean, think of this —
+- [01:00:33.060] spent more money than ever spent on a project before
+- [01:00:37.300] and lost 38,000 lives in the building of the Panama Canal.
+- [01:00:43.930] We have been treated very badly from this foolish gift
+- [01:00:46.730] that should have never been made,
+- [01:00:49.210] and Panama’s promise to us has been broken.
+- [01:00:53.220] The purpose of our deal and the spirit of our treaty
+- [01:00:56.770] has been totally violated.
+- [01:00:58.220] American ships are being severely overcharged
+- [01:01:03.750] and not treated fairly in any way, shape, or form.
+- [01:01:07.960] And that includes the United States Navy.
+- [01:01:11.350] And above all, China is operating the Panama Canal.
+- [01:01:14.990] And we didn’t give it to China.
+- [01:01:16.710] We gave it to Panama, and we’re taking it back.
+- [01:01:21.240] (Applause.)
+- [01:01:37.590] Above all, my message to Americans today
+- [01:01:40.150] is that it is time for us to once again act
+- [01:01:43.090] with courage, vigor,
+- [01:01:45.100] and the vitality of history’s greatest civilization.
+- [01:01:49.210] So, as we liberate our nation,
+- [01:01:50.870] we will lead it to new heights of victory and success.
+- [01:01:56.490] We will not be deterred.
+- [01:01:58.200] Together, we will end the chronic disease epidemic
+- [01:02:01.540] and keep our children safe, healthy, and disease-free.
+- [01:02:05.330] The United States will once again
+- [01:02:06.870] consider itself a growing nation —
+- [01:02:10.470] one that increases our wealth, expands our territory,
+- [01:02:14.450] builds our cities, raises our expectations,
+- [01:02:17.130] and carries our flag into new and beautiful horizons.
+- [01:02:21.740] And we will pursue our manifest destiny into the stars,
+- [01:02:24.860] launching American astronauts to plant the Stars and Stripes
+- [01:02:30.040] on the planet Mars.
+- [01:02:33.000] (Applause.)
+- [01:02:51.530] Ambition is the lifeblood of a great nation,
+- [01:02:55.910] and, right now, our nation is more ambitious than any other.
+- [01:03:01.150] There’s no nation like our nation.
+- [01:03:04.490] Americans are explorers, builders,
+- [01:03:06.770] innovators, entrepreneurs, and pioneers.
+- [01:03:10.470] The spirit of the frontier is written into our hearts.
+- [01:03:13.960] The call of the next great adventure
+- [01:03:17.630] resounds from within our souls.
+- [01:03:21.470] Our American ancestors turned a small group of colonies
+- [01:03:25.490] on the edge of a vast continent into a mighty republic
+- [01:03:29.610] of the most extraordinary citizens on Earth.
+- [01:03:32.930] No one comes close.
+- [01:03:35.350] Americans pushed thousands of miles
+- [01:03:37.400] through a rugged land of untamed wilderness.
+- [01:03:42.040] They crossed deserts, scaled mountains,
+- [01:03:44.090] braved untold dangers, won the Wild West,
+- [01:03:48.060] ended slavery, rescued millions from tyranny,
+- [01:03:51.770] lifted billions from poverty, harnessed electricity,
+- [01:03:55.000] split the atom, launched mankind into the heavens,
+- [01:04:00.060] and put the universe of human knowledge
+- [01:04:02.320] into the palm of the human hand.
+- [01:04:05.990] If we work together, there is nothing we cannot do
+- [01:04:08.860] and no dream we cannot achieve.
+- [01:04:12.030] Many people thought it was impossible for me
+- [01:04:15.260] to stage such a historic political comeback.
+- [01:04:19.430] But as you see today, here I am. The American people have spoken.
+- [01:04:29.000] (Applause.)
+- [01:04:43.370] I stand before you now as proof that you should never believe
+- [01:04:46.950] that something is impossible to do.
+- [01:04:49.910] In America, the impossible is what we do best.
+- [01:04:54.310] (Applause.)
+- [01:05:00.450] From New York to Los Angeles,
+- [01:05:03.070] from Philadelphia to Phoenix, from Chicago to Miami,
+- [01:05:06.930] from Houston to right here in Washington, D.C.,
+- [01:05:11.450] our country was forged and built by the generations of patriots
+- [01:05:15.520] who gave everything they had for our rights and for our freedom.
+- [01:05:21.400] They were farmers and soldiers, cowboys and factory workers,
+- [01:05:24.810] steelworkers and coal miners, police officers and pioneers
+- [01:05:29.350] who pushed onward, marched forward,
+- [01:05:32.110] and let no obstacle defeat their spirit or their pride.
+- [01:05:36.970] Together, they laid down the railroads,
+- [01:05:39.670] raised up the skyscrapers, built great highways,
+- [01:05:44.260] won two world wars, defeated fascism and communism,
+- [01:05:48.860] and triumphed over every single challenge that they faced.
+- [01:05:54.580] After all we have been through together,
+- [01:05:56.610] we stand on the verge of the four greatest years
+- [01:05:59.580] in American history.
+- [01:06:01.680] With your help, we will restore America promise
+- [01:06:05.620] and we will rebuild the nation that we love —
+- [01:06:07.890] and we love it so much.
+- [01:06:10.310] We are one people, one family,
+- [01:06:11.960] and one glorious nation under God.
+- [01:06:15.130] So, to every parent who dreams for their child
+- [01:06:18.650] and every child who dreams for their future,
+- [01:06:21.590] I am with you, I will fight for you,
+- [01:06:24.410] and I will win for you.
+- [01:06:26.600] We’re going to win like never before.
+- [01:06:29.990] (Applause.)
+- [01:06:36.170] Thank you. Thank you.
+- [01:06:43.450] (Applause.)
+- [01:06:46.000] Thank you. Thank you. (Applause.)
+- [01:06:49.410] In recent years, our nation has suffered greatly.
+- [01:06:52.500] But we are going to bring it back and make it great again,
+- [01:06:55.830] greater than ever before.
+- [01:06:59.010] We will be a nation like no other,
+- [01:07:00.700] full of compassion, courage, and exceptionalism.
+- [01:07:04.630] Our power will stop all wars and bring a new spirit of unity
+- [01:07:09.010] to a world that has been angry, violent,
+- [01:07:11.390] and totally unpredictable.
+- [01:07:14.120] America will be respected again and admired again,
+- [01:07:18.160] including by people of religion, faith, and goodwill.
+- [01:07:22.540] We will be prosperous, we will be proud,
+- [01:07:25.860] we will be strong,
+- [01:07:27.070] and we will win like never before.
+- [01:07:30.180] We will not be conquered, we will not be intimidated,
+- [01:07:34.710] we will not be broken, and we will not fail.
+- [01:07:38.390] From this day on, the United States of America
+- [01:07:41.090] will be a free, sovereign, and independent nation.
+- [01:07:44.760] We will stand bravely, we will live proudly,
+- [01:07:48.890] we will dream boldly,
+- [01:07:51.060] and nothing will stand in our way because we are Americans.
+- [01:07:54.780] The future is ours, and our golden age has just begun.
+- [01:08:00.170] Thank you. God bless America. Thank you all. Thank you.
+- [01:08:02.370] (Applause.)
+- [01:08:03.570] Thank you very much. Thank you very much. Thank you.
+- [01:08:11.730] (Applause.)
+- [01:08:26.040] Thank you.
+- [01:08:32.040] (Applause.)
+- [01:08:38.030] Male Speaker: Ladies and gentlemen,
+- [01:08:39.320] performing America the Beautiful.
+- [01:08:41.410] Please welcome the Armed Forces Chorus and Carrie Underwood.
+- [01:08:48.970] [singing
+- [01:10:44.400] America the Beautiful]
+- [01:12:19.110] Female Speaker: I now call on Rabbi Ari Berman,
+- [01:12:23.030] Pastor Lorenzo Sewell and Reverend Frank
+- [01:12:27.020] Mande to provide prayers of benediction.
+- [01:12:49.390] Rabbi Berman: Let us pray. Almighty God.
+- [01:12:57.260] Your prophet Jeremiah walked the streets of Jerusalem.
+- [01:13:01.670] And blessed its inhabitants with the Hebrew words Barak,
+- [01:13:05.640] I gather S.A. of Tama Hashem.
+- [01:13:09.350] Blessed is the one who trusts in God.
+- [01:13:14.450] Thousands of years later, this great nation
+- [01:13:16.860] which adopted these words as its motto.
+- [01:13:20.990] In God we trust.
+- [01:13:23.670] Stands at a moment of historic opportunity.
+- [01:13:28.080] Americans are searching for meaning.
+- [01:13:32.020] Our merciful Father.
+- [01:13:34.180] Help us rise to meet this moment.
+- [01:13:37.650] Bless President Donald J. Trump and Vice President Cheney.
+- [01:13:41.050] The events with the strength and courage to choose the right
+- [01:13:45.890] and the good unite us around our foundational biblical values
+- [01:13:52.040] of life and liberty, of service and sacrifice,
+- [01:13:57.350] and especially of faith and morality,
+- [01:14:00.530] which George Washington called the indispensable supports
+- [01:14:04.820] of American prosperity.
+- [01:14:07.510] Guide our schools and college campuses
+- [01:14:10.840] which have been experiencing such unrest.
+- [01:14:14.260] To inspire the next generation to pair progress
+- [01:14:18.100] with purpose,
+- [01:14:19.960] knowledge, with wisdom and truth with virtue.
+- [01:14:25.750] Hear the cry of the hostages. Both American and Israeli.
+- [01:14:32.460] Whose pain our president so acutely feels.
+- [01:14:37.810] We are so thankful for the three young women
+- [01:14:41.700] who yesterday returned home.
+- [01:14:44.750] And pray that the next four years brings peace to Israel
+- [01:14:48.840] and throughout the Middle East.
+- [01:14:52.160] Almighty God.
+- [01:14:54.370] Grant all Americans the opportunity to realize
+- [01:14:57.680] our shared dream of a life filled with peace and plenty.
+- [01:15:02.950] Health and happiness. Compassion and contribution.
+- [01:15:08.100] Stir within us the confidence to rise to this moment.
+- [01:15:13.540] For while we trust in God, God's trust is in us,
+- [01:15:18.590] the American people. America is called to greatness.
+- [01:15:23.980] To be a beacon of light and a mover of history.
+- [01:15:29.160] May our nation merit the fulfillment
+- [01:15:32.280] of Jeremiah's blessing.
+- [01:15:34.700] The like a tree planted by water.
+- [01:15:36.730] We shall not cease to bear fruit.
+- [01:15:39.840] May all of humanity experience your love and your blessing.
+- [01:15:46.040] May it be thy will. And let us say Amen.
+- [01:15:53.890] Pastor Sewell: Let us pray. For our 47th. President.
+- [01:15:56.720] Heavenly Father, we're so grateful
+- [01:15:58.600] that you gave our 45th and now our 47th President.
+- [01:16:03.620] A miracle.
+- [01:16:05.980] We are grateful that you are the one
+- [01:16:09.540] that have called him for such a time
+- [01:16:11.470] as this that America would begin to dream again.
+- [01:16:18.590] We pray that we would fulfill the true meaning of our creed.
+- [01:16:23.590] That we hold. These truths. To be self-evident.
+- [01:16:27.550] That all men are created equal.
+- [01:16:31.230] We pray that you use our president.
+- [01:16:34.330] That we will live in a nation.
+- [01:16:36.740] We will not be judged by the color of our skin
+- [01:16:40.980] but by the content of our character.
+- [01:16:45.410] Heavenly Father in the name of Jesus.
+- [01:16:47.380] We are so grateful today that You will use our 47th President.
+- [01:16:54.240] So we would sing with new meaning,
+- [01:16:56.490] My country tis of thee. Sweet Land of Liberty of thee
+- [01:17:02.360] I sing. Land where my father's died.
+- [01:17:06.510] Land of the pilgrim's pride from every mountainside.
+- [01:17:11.360] Let freedom ring.
+- [01:17:12.680] And because America is called to be a great nation.
+- [01:17:17.310] We believe that you will make this come true.
+- [01:17:21.000] So let freedom ring.
+- [01:17:23.570] From the prodigious hilltops of New Hampshire.
+- [01:17:26.970] Let freedom ring.
+- [01:17:29.270] From the mighty mountains of New York.
+- [01:17:32.460] Let freedom ring from the heightening Alleghenies
+- [01:17:36.230] of Pennsylvania.
+- [01:17:38.160] Let freedom ring from the snowcapped Rockies of Colorado.
+- [01:17:43.740] Let freedom ring from the curvaceous
+- [01:17:46.830] hilltops of California.
+- [01:17:49.090] But God, we're asking you. Not only that.
+- [01:17:52.320] Let freedom ring from Stone Mountain, Georgia.
+- [01:17:55.760] Let freedom ring from Lookout Mountain of Tennessee.
+- [01:17:59.830] Let freedom ring from every hill
+- [01:18:02.560] in every molehill in Mississippi,
+- [01:18:05.430] from every state, every city, every village and every hamlet.
+- [01:18:10.280] And when we let freedom ring,
+- [01:18:12.310] we will be able to speed up that day.
+- [01:18:15.250] All of your children, black men and white men,
+- [01:18:18.710] Protestant and Catholic, Jew and Gentile,
+- [01:18:22.440] will be able to sing in the meaning
+- [01:18:25.240] of that old Negro spiritual.
+- [01:18:27.730] Free at last. Free at last.
+- [01:18:31.750] Thank you, God Almighty. We are free at last.
+- [01:18:35.550] If you believe with the Spirit of the Lord is there is liberty.
+- [01:18:39.200] Come on. Put your hands together.
+- [01:18:41.690] And give your great God.
+- [01:19:07.980] Almighty and eternal God.
+- [01:19:10.990] Reverend Mande: We gather here today in reverence,
+- [01:19:13.580] joined in our shared hopes and dreams for our beloved nation.
+- [01:19:18.740] In this sacred moment of the inauguration
+- [01:19:21.050] of President Donald J. Trump and Vice President J.D.
+- [01:19:24.720] Vance, we turn our hearts to you,
+- [01:19:27.880] seeking your divine assistance and abundant blessings
+- [01:19:31.610] upon this pivotal moment in history.
+- [01:19:36.380] We come before you with profound gratitude
+- [01:19:39.350] for the many gifts you have bestowed upon our land.
+- [01:19:43.140] Thank you for the freedoms we cherish,
+- [01:19:45.260] for the strength of our communities
+- [01:19:47.450] and for the resilience of our spirit.
+- [01:19:50.770] And so our president and vice president
+- [01:19:52.830] embrace their newly appointed roles.
+- [01:19:55.760] We humbly implore.
+- [01:19:58.090] That your everlasting love and wisdom will envelop them.
+- [01:20:03.410] Grant them the clarity of mind
+- [01:20:05.210] to navigate the challenges that lie ahead
+- [01:20:08.910] and the compassion to serve all citizens
+- [01:20:11.390] with fairness and integrity.
+- [01:20:14.520] May their hearts be filled with a giving spirit
+- [01:20:18.090] and sincere understanding for those whom they represent.
+- [01:20:22.600] May they be beacons of hope in times of uncertainty.
+- [01:20:27.110] And prophetic voices in defending the dignity
+- [01:20:31.430] of all created life.
+- [01:20:34.540] We pray for a spirit of collaboration
+- [01:20:36.850] to flourish in our government and across our nation,
+- [01:20:40.200] fostering an environment where dialog
+- [01:20:43.200] and heartfelt listening will prevail
+- [01:20:46.280] over division or discord.
+- [01:20:49.700] May. Each decision made by our president and vice president.
+- [01:20:54.100] Reflect the values of justice and peace.
+- [01:20:58.530] As we embark on this new chapter,
+- [01:21:01.240] we also seek your comfort.
+- [01:21:03.160] God. For those who feel lost or disheartened.
+- [01:21:08.250] In this time of transition. May your light shine upon them.
+- [01:21:13.750] Reaffirming their belief in a brighter tomorrow.
+- [01:21:18.400] May we all strive to lift one another,
+- [01:21:20.980] supporting our fellow citizens with kindness and empathy,
+- [01:21:24.960] recognizing that together we can overcome any adversity.
+- [01:21:29.720] Grant is the strength to endure, the courage to face our fears
+- [01:21:34.830] and the clarity to see the light that remains,
+- [01:21:37.910] even when clouds of uncertainty may gather.
+- [01:21:42.720] Inspiring new leaders to be champions for the vulnerable
+- [01:21:47.490] and advocates for those whose voices are often silenced.
+- [01:21:52.660] May they pursue policies that promote the well-being of all.
+- [01:21:56.500] Seeking to build bridges that will foster unity and belonging.
+- [01:22:01.590] As we stand witness to this inauguration,
+- [01:22:04.770] we hold fast to the faith,
+- [01:22:07.810] to our faith in the goodness of each of us
+- [01:22:11.700] and the possibility of change. We trust that with your guidance
+- [01:22:16.220] so guide our nation can move forward
+- [01:22:18.880] to a future filled with promise, prosperity and understanding.
+- [01:22:24.930] And finally.
+- [01:22:26.810] We lift our hearts in gratitude for the beloved parents.
+- [01:22:33.080] President Trump. Without Mary and Fred Trump,
+- [01:22:36.940] this day would never be the miracle that has just begun.
+- [01:22:42.690] From their place in heaven.
+- [01:22:44.650] May they shield their son from all harm
+- [01:22:47.470] by their loving protection
+- [01:22:49.580] and give him the strength to guide our nation
+- [01:22:51.910] along the path that will make America great again.
+- [01:22:58.100] Let us go forth now with these words of President Trump's.
+- [01:23:03.500] Emblazoned on our hearts.
+- [01:23:06.420] As long as we have pride in our beliefs,
+- [01:23:09.560] courage in our convictions and faith in our God,
+- [01:23:13.580] then we will not fail. We stand tall. We stand proud.
+- [01:23:20.570] Because we are Americans and Americans kneel to God
+- [01:23:25.390] and to God alone. Amen.
+- [01:23:33.360] Pastor Sewell: Ladies and gentlemen,
+- [01:23:34.610] please remain standing for our national anthem.
+- [01:25:48.380] Pastor Sewell: Ladies and gentlemen,
+- [01:25:49.650] please remain at your seats
+- [01:25:51.210] while the president and official party
+- [01:25:53.030] depart the platform.

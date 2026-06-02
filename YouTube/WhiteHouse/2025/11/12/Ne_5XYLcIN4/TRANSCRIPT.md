@@ -1,0 +1,1511 @@
+<!-- source: https://www.youtube.com/watch?v=Ne_5XYLcIN4 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: Ne_5XYLcIN4 -->
+<!-- date_published: 2025-11-12T02:52:40+00:00 -->
+<!-- date_accessed: 2026-06-02T02:41:46.041212+00:00 -->
+
+# Transcript: Above, Below & Beyond: A Presidential Special
+
+- [09:29.620] The President: We gather to celebrate 250 years
+- [09:32.200] of strength, tenacity, and unwavering courage.
+- [09:35.240] The First Lady: Hoo-ah, Navy!
+- [09:38.090] The Vice President: Hoor-rah, Marines!
+- [09:39.430] Secretary Hegseth: The Navy and the Marine Corps
+- [09:41.610] embody the resilience of our country.
+- [09:44.380] Male Speaker: Two hundred and fifty years
+- [09:46.290] of United States Marine Corps
+- [09:47.960] The President: From the American Revolution until today,
+- [09:50.570] the story of the U.S. Navy is a tale of loyalty,
+- [09:53.260] sacrifice, and commitment stretching back 250 years.
+- [09:58.440] God bless the United States of America.
+- [10:07.510] Jocko Willink: 250 years.
+- [10:09.390] That's two and a half centuries of sailors
+- [10:11.800] and Marines answering the call.
+- [10:14.340] Not because it was easy, but because it mattered.
+- [10:17.680] Every generation has carried that torch through war,
+- [10:20.680] through peace, through uncertainty.
+- [10:23.230] It's not just history. It is legacy.
+- [10:26.680] Written in sweat, forged in discipline.
+- [10:30.430] The men and women who wear the uniform
+- [10:33.250] uphold that proud tradition. The mission has not changed.
+- [10:38.820] Protect freedom, defend our nation,
+- [10:41.860] and stand ready. This is who we are.
+- [10:45.660] This is 250 years of sailors and Marines holding the line.
+- [10:56.280] Male Speaker: The American colony
+- [10:57.510] stood at the brink of revolution.
+- [11:00.640] On land, our founding fathers had already established
+- [11:03.170] a Continental Army
+- [11:04.410] and entrusted its command to General George Washington.
+- [11:08.290] But they soon came to a sobering realization.
+- [11:11.330] Their war for independence could not be won by land alone.
+- [11:15.040] Several delegates of the Continental Congress understood
+- [11:17.710] that control of the seas was critical to breaking free
+- [11:20.930] from the grip of British tyranny.
+- [11:23.150] But not all delegates agreed.
+- [11:25.430] On October 3, 1775, when the Rhode Island delegation
+- [11:29.620] proposed the creation of a naval force
+- [11:32.100] supported by all 13 colonies. Maryland delegate Samuel Chase
+- [11:36.680] called it the maddest idea in the world.
+- [11:39.740] The objections were rooted in pragmatism,
+- [11:42.300] cost, lack of capacity,
+- [11:45.340] and fear of the far superior British Royal Navy,
+- [11:48.760] proven by their 200-year victory spree over the waves.
+- [11:52.830] The assured retribution from the tyrant
+- [11:54.920] King George fueled congressional trepidation.
+- [11:58.640] With Washington's support,
+- [11:59.980] the Continental Congress chose resolve over fear.
+- [12:04.030] On October 13th, 1775,
+- [12:06.800] it was authorized the outfitting of two armed vessels
+- [12:09.900] to intercept British supply ships
+- [12:12.050] for much needed gunpowder, weapons,
+- [12:14.460] and other critical materials.
+- [12:16.630] From that authorization, the United States Navy was born.
+- [12:21.310] Not from vast resources or naval supremacy,
+- [12:24.670] but from the bold determination of a young nation
+- [12:27.700] fighting for freedom.
+- [12:31.810] Male Speaker: Since the birth of the Corps,
+- [12:34.050] we have answered the call.
+- [12:37.110] Through every battle, every climb, and every place.
+- [12:44.400] No matter the odds, no matter the ops.
+- [12:49.330] We adapt, we overcome, and close with and destroy the enemy.
+- [12:56.130] We know the future will not be the same.
+- [12:59.480] But the one thing we know will always remain is the Marines.
+- [13:05.640] For 250 years, we have formed ranks and held the line.
+- [13:09.140] And we will for the next 250.
+- [13:15.140] Secretary Phelan: As Secretary of the Navy,
+- [13:16.380] I'm profoundly grateful to every individual
+- [13:18.630] who has served and to every sailor and marine
+- [13:20.790] who has stood to watch, past and present,
+- [13:23.360] in defense of our Republic.
+- [13:24.920] Let us honor the legacy of those who came before us.
+- [13:28.100] Let us reflect on the enduring spirit that began in 1775,
+- [13:32.830] because that spirit, one forged in honor,
+- [13:35.840] courage, and commitment, remains in all of us today.
+- [13:39.370] Thank you for joining me today
+- [13:40.640] to celebrate our shared heritage.
+- [13:42.750] May God bless you. The Navy Marine Corps team,
+- [13:45.670] and the United States of America.
+- [14:02.350] ♪ ("The Star Spangled Banner") ♪
+- [16:24.360] General Smith: Iwo Jima was critical.
+- [16:25.610] It was a turning point battle in World War II.
+- [16:28.500] It brought our bombers close enough
+- [16:30.130] to strike the Japanese home islands.
+- [16:31.870] And it was savage fighting.
+- [16:35.250] A couple of square miles of hell is what it was for them.
+- [16:38.890] And when they finally got to the top
+- [16:40.910] and they raised the flag on Iwo Jima,
+- [16:43.000] it guaranteed a Marine Corps for the next 500 years.
+- [16:47.570] Secretary Phelan: Marines don't wait for perfect conditions.
+- [16:50.530] They act with purpose, lead with confidence,
+- [16:53.710] and finish the mission.
+- [16:55.110] General Smith: The Marines just knew the mission
+- [16:56.540] was to take the island
+- [16:58.090] and that's all they needed to know.
+- [17:02.280] Secretary Hegseth: Through explosions, bullets,
+- [17:04.220] and screams of war, Marines have always kept going.
+- [17:09.790] Sergent Ruiz: We are unapologetic about who we are
+- [17:13.430] and what we are supposed to do for this country.
+- [17:16.450] General Smith: We fight for our Constitution.
+- [17:17.820] We defend our Constitution, but we fight for each other.
+- [17:20.700] We fight the Marine on our left and our right.
+- [17:25.930] Secretary Hegseth: Today, we celebrate
+- [17:27.170] their uncommon valor, the uncommon valor
+- [17:31.360] that comes with being a United States Marine.
+- [17:35.500] General Smith: Uncommon valor was a common virtue.
+- [17:41.630] Dakota Meyer: The principles of the Marine Corps of honor,
+- [17:43.100] courage, and commitment, it's not just a job,
+- [17:45.350] it's a cool t-shirt phrase, it is a way of life.
+- [17:47.890] It's not about weapons systems.
+- [17:50.220] Secretary Phelan: Or ships, it's about people and character.
+- [17:54.650] You earn the title Marine. You don't join the Marine Corps.
+- [17:57.770] You become a Marine.
+- [17:59.310] Dakota Meyer: You know, the Marine Corps
+- [18:00.550] doesn't promise you a title,
+- [18:01.990] it doesn't promised you a contract,
+- [18:04.210] it just promises you an opportunity to become a Marine.
+- [18:07.010] Secretary Phelan: The character of war is changing,
+- [18:09.340] but the character of Marines is not.
+- [18:14.370] Sergent Ruiz: When I see that statue,
+- [18:16.520] it represents the very best of the human dynamic
+- [18:19.750] at the worst place, hell on earth.
+- [18:22.140] General Smith: So today,
+- [18:23.420] as we stand in the shadow of these giants,
+- [18:28.630] we reflect on the last 250 years of battles fought and won,
+- [18:36.040] uniting every generation in an enduring purpose greater
+- [18:39.620] than self, a purpose rooted in sacrifice,
+- [18:45.450] sustained in brotherhood, and bound by love of country.
+- [18:54.080] Secretary Hegseth: Decades have passed.
+- [18:57.420] Marines still stand.
+- [19:01.520] Male Speaker: And we look to the future with confidence.
+- [19:07.840] Secretary Hegseth: Semper Fidelis Marines,
+- [19:10.400] may God bless you and the Republic you protect.
+- [19:20.710] General Smith: Once a Marine, always a Marine.
+- [19:31.200] Kellie Sbrocchi: When we're looking back, we're like,
+- [19:32.470] they were all the puzzle pieces that made this work.
+- [19:35.520] Jason Redman: Yes, and how we were,
+- [19:37.570] how we forged them into amazing warriors.
+- [19:40.870] Kellie Sbrocchi: That tenacity that's what's in our sailors
+- [19:42.850] and Marines. They have that tenacity
+- [19:44.750] and that's why it makes it so special.
+- [19:46.570] Jason Redman: Uncommon valor from,
+- [19:49.790] I dare say, common everyday individuals.
+- [19:52.420] That's what made the Continental Military back in the day.
+- [19:55.670] Everyday average citizens who stepped up and said,
+- [19:58.300] I am willing to serve,
+- [20:00.130] that's what built that uncommon valor.
+- [20:02.330] Kellie Sbrocchi: I think that's why it's so important
+- [20:04.950] is that we're not special, we're not special.
+- [20:07.670] I think we make this organization special
+- [20:11.160] but it's that grit that's gonna make our organization
+- [20:14.460] continue to thrive for another 250.
+- [20:16.370] Jason Redman: We are we are becoming the past.
+- [20:18.110] I'm a dinosaur you know I'm the past part of the 250 years
+- [20:22.670] but who will be the next man up for the future 250 years?
+- [20:26.940] Kellie Sbrocchi: It could be anyone.
+- [20:28.430] It could the person watching this video right now.
+- [20:31.070] The thing that's keeping them from this experience is fear.
+- [20:34.750] They're scared, they don't know. But I think that
+- [20:37.050] there's a little bit of excitement in that.
+- [20:38.800] And that adventure is going to want to inspire the next person.
+- [20:41.770] Jason Redman: You know,
+- [20:42.990] there was no part of the journey.
+- [20:44.810] I know for you or for me that at some time
+- [20:47.880] there wasn't a little bit of fear,
+- [20:49.170] a little bit of doubt. But I will tell you this,
+- [20:51.980] having done a lot of high speed dangerous things,
+- [20:55.030] there can be no courage without a little fear or doubt.
+- [20:58.620] They are the future. And they are the next man up.
+- [21:02.450] And I'll say this,
+- [21:03.700] carrying on the legacy of that uncommon valor,
+- [21:07.040] uncommon valor starts with one step.
+- [21:10.160] Kellie Sbrocchi: One step.
+- [21:15.710] Charles Nash: The Marine Corps has been making
+- [21:17.180] Marines as the historic iconic depot at Parris Island
+- [21:19.930] for 110 years.
+- [21:21.250] Male Speaker: Hardest thing you will ever learn
+- [21:23.190] in your entire life.
+- [21:24.410] Michael Gibson: Joint soldier gets on the bus,
+- [21:25.620] tells everyone to get off. Male Speaker: (inaudible)
+- [21:26.920] in the footprint from the right to the left.
+- [21:28.130] Michael Gibson: Thousands and thousands of Marines
+- [21:29.370] that came through here
+- [21:30.590] and all stood on the same yellow footprints.
+- [21:31.860] Male Speaker: Your heels are touching feet
+- [21:33.170] out of 45 degree angles,
+- [21:34.500] and your mouth is shut. Each day,
+- [21:37.570] you're going to discover something about yourself
+- [21:39.180] that you never knew existed.
+- [21:40.390] Male Speaker: You chose to undertake the arduous task
+- [21:43.920] of becoming a United States Marine, all right?
+- [21:47.970] Charles Nash: The Crucible is a grueling,
+- [21:49.620] 54-hour event to ensure they are ready
+- [21:52.160] to earn the title of United States Marine.
+- [21:59.670] The culminating event of the crucible was this morning
+- [22:02.400] where they were presented their Eagle Globe and Anchor
+- [22:04.280] for the first time.
+- [22:05.660] Male Speaker: If you feel like you need
+- [22:06.910] to be part of the Marine Corps,
+- [22:08.590] we'll take care of you. We'll show you how it's done.
+- [22:12.910] Female Speaker: Battle Stations is a capstone event
+- [22:14.530] for Navy recruits.
+- [22:16.000] It takes everything that they've learned throughout boot camp
+- [22:19.260] and puts it in some kind of scenario.
+- [22:24.070] Male Speaker: All of our general quarter scenarios are based
+- [22:25.950] on events that happened to ships throughout naval history.
+- [22:28.920] Female Speaker: It's not a teaching environment anymore.
+- [22:31.020] Now they've learned everything they've learned
+- [22:33.030] and now they have to apply it.
+- [22:34.520] Male Speaker: We have saved the shipmates!
+- [22:38.540] Male Speaker: If you don't work together as a team,
+- [22:40.480] nothing will get done in the Navy.
+- [22:41.770] It doesn't matter what the individual does,
+- [22:43.160] it matters what you do as a team.
+- [22:44.580] No one job runs the ship.
+- [22:47.070] Male Speaker: When the ship is in the middle of the ocean,
+- [22:48.740] any fire, any danger,
+- [22:50.530] they are the only ones to handle and take care of it.
+- [22:52.750] Male Speaker: When they come through here,
+- [22:53.980] it's not always clear just how important they are.
+- [22:57.700] By the end of the debrief reach scenario,
+- [22:59.690] it is really solidified for them.
+- [23:01.210] Piper Wash: The moment I took off the recruit ball cap
+- [23:03.180] and put on the Navy ball cap,
+- [23:04.900] I felt overwhelmed with a sense of pride
+- [23:07.640] for serving my country.
+- [23:09.180] Male Speaker: In the United States,
+- [23:10.940] there's power, force, and the American Constitution.
+- [23:14.670] The United States of America.
+- [23:16.660] Madison Cramer: I feel so much more confident
+- [23:18.470] now than I did yesterday.
+- [23:22.010] The Marines and Sailors at Officer Candidate School
+- [23:24.290] are some of the best in class.
+- [23:26.850] Dedicated, technical experts, wholly invested.
+- [23:30.310] Male Speaker: We challenge them mentally, physically,
+- [23:32.190] to make sure that they're able to function under pressure.
+- [23:36.430] Male Speaker: Through the coaching and mentorship phase,
+- [23:38.660] I work with the candidates to execute critical thinking.
+- [23:41.800] Combat is dynamic in nature.
+- [23:44.140] Male Speaker: I want to see how they perform because
+- [23:45.980] in the future it could be bullets going over their heads.
+- [23:54.950] Male Speaker: We take that a step further
+- [23:56.680] during their small unit leadership evaluation.
+- [23:59.000] The candidates are leading their own fire team
+- [24:01.060] through a problem set.
+- [24:02.370] Male Speaker: In the tree line
+- [24:03.590] and they have a very limited time
+- [24:05.280] to develop their own plan
+- [24:06.550] and then execute that plan to the best of their ability.
+- [24:10.390] Male Speaker: In the Marine Corps,
+- [24:13.110] we have a saying that the title's earned,
+- [24:14.490] it's never given.
+- [24:15.700] And it's something that's very, very special to us as Marines.
+- [24:18.210] They've earned that right to hold our emblem of the eagle,
+- [24:22.200] globe, anchor.
+- [24:26.750] Male Speaker: Congratulations.
+- [24:29.130] Male Speaker: That is the moment that person realizes
+- [24:31.090] that they have achieved it.
+- [24:33.720] And it's something that can never be taken away from us
+- [24:36.180] once we've earned that title of Marine.
+- [24:47.020] Madison Cramer: This isn't for everybody.
+- [24:48.550] The desire to serve, to be part of something bigger,
+- [24:51.790] to be a part of the most feared
+- [24:53.840] and revered war-fighting organizations in the world.
+- [24:57.000] The transformation starts from the moment
+- [24:59.080] that they step onto the yellow footprints,
+- [25:01.220] physically, mentally, spiritually, emotionally.
+- [25:05.130] When candidates graduate,
+- [25:06.770] they have met or exceeded the standard
+- [25:09.070] and go on to accomplish great things in our service.
+- [25:14.570] Jason Redman: Kellie, I got to tell you,
+- [25:22.350] one of the greatest honors of my life.
+- [25:23.780] Everybody always asks me, Jay,
+- [25:25.600] what's the biggest speaking engagement you've done?
+- [25:28.100] I was honored to do a forestall lecture series
+- [25:30.570] at the Naval Academy in 2015 to the student body.
+- [25:33.860] And it was so moving and impactful
+- [25:36.000] to think these young men and women
+- [25:38.260] are literally the future leaders of our great nation.
+- [25:41.370] They will shape the United States Navy
+- [25:43.560] and Marine Corps for generations to come.
+- [25:46.130] And Kellie, you are a Naval Academy graduate.
+- [25:48.810] You are part of that legacy.
+- [25:50.660] Kellie Sbrocchi: Yes, it taught me how to excel,
+- [25:52.550] but that's hard work.
+- [25:54.630] That's hard working your willingness
+- [25:55.950] to serve other people. That's what it's all about.
+- [25:57.490] Jason Redman: It unlocks the greatest leader
+- [26:00.600] that lives within you.
+- [26:02.380] If you are looking for that, the Naval Academy is calling you.
+- [26:06.750] Kellie Sbrocchi: I thought, if I get through this,
+- [26:08.440] what else can I get through in my life?
+- [26:11.360] And I got addicted to that ability
+- [26:13.380] to not just help evolve myself,
+- [26:16.730] but see the difference I can make in others.
+- [26:19.000] The Naval Academy is a whole person concept.
+- [26:22.270] It's moral, mental, and physical.
+- [26:24.700] You can't just be good at academics.
+- [26:26.400] You can just be go to athletics. You have to have integrity.
+- [26:29.360] You have lead with that heart to serve others.
+- [26:32.480] And you're leading sailors and Marines at the end of the day.
+- [26:35.720] So it's not just about survival,
+- [26:37.720] it's really about excellence and leading with that excellence
+- [26:41.850] and learning to become the best version of yourself for others.
+- [26:46.700] ♪ (Upbeat Music) ♪
+- [27:03.490] Anastasia Fleming: I wanted to be surrounded
+- [27:05.000] by people who were bright, who were outgoing,
+- [27:07.650] people who had the same goals as I did.
+- [27:09.740] That was the Neville Academy for me.
+- [27:11.710] Brody Boggs: And when I visited the United States Naval Academy
+- [27:13.520] for the first time, it just hit me.
+- [27:22.640] The culture, the people.
+- [27:24.270] This is the place for me to not only get an amazing education,
+- [27:28.270] but to also serve my country and become a better person.
+- [27:31.560] Morgan Lewis: It offers so many opportunities both academically
+- [27:34.620] and then professionally.
+- [27:35.950] You're gonna graduate with a well-paying job.
+- [27:38.040] You're going to be making a difference
+- [27:39.420] and standing for something that's greater than yourself.
+- [27:43.970] Tatum McDonald: It is just an incredibly special place to be
+- [27:47.480] and to live in and to get to walk the yard every single day.
+- [27:50.360] What a beautiful campus. I have met my best friends,
+- [27:53.990] I have meet amazing mentors that have taught me so much.
+- [27:58.430] Landon Robinson: All the amazing buildings,
+- [27:59.680] the amount of history comes from this place.
+- [28:01.980] And being able to be here with one of the best
+- [28:04.170] and brightest in the world, you just continue to grow.
+- [28:06.590] There's never a day where you're not proving yourself
+- [28:08.980] as a leader, as a midshipman.
+- [28:14.340] Morgan Lewis: The location, it's beautiful,
+- [28:15.600] right on the water.
+- [28:16.890] The fall, you get to see the leaves change.
+- [28:19.210] Blake Horvath: It's the prestige, it's the challenge,
+- [28:20.860] and it's about the opportunity to serve your country
+- [28:22.880] and do something more for yourself
+- [28:24.160] that really drew myself closer to this place.
+- [28:27.100] It's a feeling of pride, it a sense of accomplishment,
+- [28:29.600] and it a a sense opportunity of what I get to do afterwards.
+- [28:35.030] Landon Robinson: It's a 40-year decision,
+- [28:36.300] not a four-year decision. I heard that's a challenge,
+- [28:38.410] it's gonna make me a better person.
+- [28:39.760] I said this is the place for me.
+- [28:41.280] Secretary Hegseth: That's gonna be your life,
+- [28:42.570] not just in this game, but for the rest of your life
+- [28:44.630] when you're wearing a different kind of uniform.
+- [28:46.360] Tatum McDonald: From a young age,
+- [28:47.570] I always knew that I wanted to do something
+- [28:49.620] so much bigger with my life
+- [28:50.960] and I knew that there was a bigger purpose for me.
+- [28:53.560] Secretary Hegseth: Standards, discipline, accountability.
+- [28:55.810] It's the basics. It's blocking and tackling of leadership.
+- [29:00.070] That's what you're learning here.
+- [29:01.610] That's it your formations need. That's what the country needs.
+- [29:10.010] Blake Horvath: I think that's great about the Naval Academies.
+- [29:11.690] It allows you to grow in your leadership styles
+- [29:13.320] and try different things out and learn.
+- [29:15.040] Morgan Lewis: The Naval Academy just provided
+- [29:16.330] so many opportunities,
+- [29:17.550] both the things that you do on the yard,
+- [29:19.250] if it's on a sports team,
+- [29:20.470] or the different clubs that we have here.
+- [29:22.810] Brody Boggs: I've been on the parachute team
+- [29:24.020] since my freshman year.
+- [29:25.820] I love it. It's unlike any other sport.
+- [29:41.600] Dylan Huffman: Being at the Glee Club has been incredible.
+- [29:44.190] We took the tour around the country.
+- [29:45.680] You have people come up to you when you're done singing.
+- [29:47.520] They're just like, you have restored faith in our country.
+- [29:50.350] That's beautiful.
+- [29:51.590] Tatum McDonald: The dance captain has genuinely taught me
+- [29:53.900] a lot more about my leadership skills,
+- [29:55.760] getting to instill certain values of the Naval Academy.
+- [29:58.600] Those moments have really defined me as a leader.
+- [30:01.290] It is the perfect place to develop these leadership skills
+- [30:04.740] and to make a difference in the military,
+- [30:07.420] in the world, in fleet, wherever it is.
+- [30:10.000] Morgan Lewis: The leadership role
+- [30:11.200] that's meant the most to me here at the Academy
+- [30:12.960] is being 13th Company Commander.
+- [30:14.940] My company trusts me to make decisions
+- [30:17.110] that is going to better everyone around me.
+- [30:19.560] Brody Boggs: It's going to prepare me for the fleet
+- [30:21.340] and serving America
+- [30:22.570] because one day I will be in charge of sailors and Marines.
+- [30:26.200] My decisions will affect their lives
+- [30:28.700] and potentially could save their lives.
+- [30:30.440] Secretary Hegseth: What you do in those moments
+- [30:32.360] is what's going to be the difference
+- [30:33.850] between life and death for the men,
+- [30:35.430] for the Americans, for sailors, for SEALs,
+- [30:38.760] for Marines that you lead in the future.
+- [30:41.160] Dylan Huffman: Real leaders are the ones that step up
+- [30:42.730] and try to do the hard thing.
+- [30:44.560] Brody Boggs: The values and morals
+- [30:45.990] that have been instilled in me will last forever.
+- [30:49.180] Tatum McDonald: You get to be a part of something
+- [30:50.440] that is just so much bigger than yourself
+- [30:52.250] that you're not going to experience anywhere else.
+- [30:55.060] Secretary Hegseth: You chose something bigger than yourself
+- [30:56.550] on day one.
+- [30:57.760] That means something. You have my respect because of it,
+- [31:01.100] and I'm gonna make sure you have everything you need
+- [31:03.060] whenever you need it in the formations you have.
+- [31:07.490] Warriors, go Navy, let's go.
+- [31:11.410] ♪ (Navy Team Singing) ♪
+- [31:25.490] Adam Brian: One of the things that Blue Angels get to do week
+- [31:27.220] in and week out for 33 different show sites every single year
+- [31:31.460] is to showcase the teamwork and professionalism of the Navy
+- [31:33.940] and Marine Corps
+- [31:35.150] through flight demonstration and community outreach
+- [31:37.060] while inspiring culture of actions in service to country.
+- [31:40.600] To make the six F-18 Super Hornets fly and the C-130J
+- [31:43.970] Super Hercules takes an entire team effort.
+- [31:47.130] We have about 160 personnel on this team,
+- [31:49.720] but only nine of us at a given time are flying the aircraft,
+- [31:52.810] so the rest of them are in a support role.
+- [31:55.120] They come from the fleet, they are experienced,
+- [31:57.390] and they work day in and day out to make these machines fly
+- [32:01.090] and to put the show on for the public.
+- [32:03.060] They're experts at their craft, but they're even better people.
+- [32:06.040] They pump me up every day to do my job
+- [32:07.900] and make me a better commanding officer.
+- [32:13.600] Good one everyone,
+- [32:15.070] we are parked in reverse order for a normal walk down.
+- [32:17.420] Delta B in front of the craft, maneuvering Delta.
+- [32:21.220] We're in front of the crowd singing up
+- [32:22.610] the maneuvering Delta. (inaudible)
+- [32:24.100] Piper Wash: That was our 3106 (inaudible).
+- [32:27.465] Adam Brian: (inaudible), let's have
+- [32:29.080] a good one.
+- [32:41.130] Jocko Willink: Out there in the shadows, in the silence,
+- [32:45.560] there's a new battlefield. One you can't see.
+- [32:50.630] One where every click, every signal,
+- [32:54.380] and every line of code can tip the balance.
+- [32:57.810] The Navy dominates this battle space.
+- [33:00.850] Before the fleet sails, before the jets are launched,
+- [33:05.580] our cyber warriors are already there in stealth,
+- [33:09.740] securing the battlefield before the first shot is even fired.
+- [33:17.270] Admiral Berg: As we look at the modern fight increasingly.
+- [33:19.880] This is about maintaining dominance
+- [33:21.850] in the cyber and space domains as well as how they integrate in
+- [33:25.610] with the maritime domain, air and land domain.
+- [33:27.930] Male Speaker: Re-old ES on emissary UAV, bearing 246.
+- [33:30.890] Admiral Berg: The first shots in the future conflict
+- [33:33.450] will be in cyberspace.
+- [33:34.930] Female Speaker: There is potential zero-day
+- [33:36.410] vulnerability activity from the virus.
+- [33:38.820] Male Speaker: IT to notify the task force
+- [33:40.700] there is a zero-day exploit that goes live in an hour.
+- [33:43.830] Paul Edelman: Fights on in cyberspace
+- [33:45.060] has been for a long time.
+- [33:46.950] The adversary knows that it's something we depend on,
+- [33:50.190] and they go after it.
+- [33:51.470] Male Speaker: Mission is picking up
+- [33:52.710] so that means we got to step our game up
+- [33:54.880] Sabra Walton: Warfare is moving toward cyber operations.
+- [33:57.930] You have the ability to take down entire infrastructures
+- [34:00.870] with well-placed cyber attacks.
+- [34:02.680] Michael Gibson: Blycon, set CP-CON3.
+- [34:04.640] Mission package is ready for execution.
+- [34:07.590] Sabra Walton: Keeping our intelligence protected
+- [34:09.900] is the next step moving forward to fighting off adversaries.
+- [34:13.820] Paul Edelman: We're adversary focused, we're threat focused,
+- [34:16.500] and we're really looking at where are they trying to go,
+- [34:18.780] what are they're trying to accomplish against us,
+- [34:20.680] and how do we keep them from doing that.
+- [34:22.270] Male Speaker: So that means we gotta stay ready.
+- [34:23.480] Fire it up.
+- [34:24.720] Crew: Fire it Up. Male Speaker: Fire it up.
+- [34:25.940] Crew: Fire it up.
+- [34:27.150] Male Speaker: I think we're facing the greatest threat
+- [34:28.720] that we've seen in my lifetime,
+- [34:30.710] maybe in the history of the United States.
+- [34:34.800] Paul Edelman: The adversary is trying to degrade
+- [34:37.080] our capability, steal our information.
+- [34:39.950] We have to be on top of it every single day.
+- [34:41.840] Female Speaker: The strike group
+- [34:43.160] is preparing for a formation transit.
+- [34:44.560] Male Speaker: Working in this field of skills
+- [34:45.850] and qualities you have,
+- [34:47.090] first of all, you've got to be assertive.
+- [34:48.540] I think it's very important that you know
+- [34:50.090] what you're getting yourself into.
+- [34:51.590] Technology is constantly evolving,
+- [34:52.990] the way we communicate is evolving,
+- [34:54.320] so being able to learn, diversify yourself,
+- [34:56.890] and being able to accept those challenges
+- [34:58.460] that come along with it is going to help in the long run.
+- [35:00.840] Male Speaker: I believe the skills and personality traits
+- [35:02.670] that I possess are persistence and commitment.
+- [35:06.050] It allows me to be more focused on the Navy's mission.
+- [35:09.280] It allows me to get a top-tier warfighter in the cyber domain.
+- [35:13.400] Coordination with supported commanders,
+- [35:14.940] timing and tempo are complete.
+- [35:17.750] I believe that if anyone has the same mindset that I do,
+- [35:20.990] there's a spot for you on our team.
+- [35:26.810] Jocko Willink: The Navy fleet is only as strong
+- [35:28.370] as the people who maintain it.
+- [35:30.200] Ships and boats can't stay at sea forever.
+- [35:33.110] They need repair, they need overhaul.
+- [35:35.320] They need constant attention.
+- [35:37.210] Every bolt, every panel, every system matters.
+- [35:41.670] One mistake, one overlooked detail, and lives are at risk.
+- [35:46.320] That's why shipyards are the backbone of the fleet.
+- [35:49.790] The men and women who work here
+- [35:51.850] keep our ships ready and reliable.
+- [35:54.390] Let's take a closer look at the skill and dedication
+- [35:57.480] that make all this possible.
+- [36:10.920] Brad Gizar: So Norfolk Naval Shipyard,
+- [36:13.020] I consider the oldest naval shipyard.
+- [36:15.230] We were established November 1st, 1767,
+- [36:18.020] so that makes us 258 years old this November.
+- [36:22.110] Brandon Williams: We do nuclear overhaul of submarines
+- [36:24.020] and aircraft carriers
+- [36:25.490] with the ship fitter trade, so heavy steel work.
+- [36:27.700] We are working on the actual tools
+- [36:30.160] that the nation uses to live the way we live, right,
+- [36:34.240] and that just creates a great sense of pride
+- [36:37.450] in being able to be a part of that,
+- [36:38.790] whatever that part is.
+- [36:40.650] Preston Hall: I've been here 16 years,
+- [36:42.030] but I've been welding over 20 years.
+- [36:43.890] I start out teaching them how to weld,
+- [36:46.000] how to strike a knot,
+- [36:47.230] all the way until they come welders.
+- [36:50.560] Brad Gizar: When you sit back and you look
+- [36:51.950] at the size of the nuclear warships
+- [36:55.240] that we work on here, both submarines and carriers,
+- [36:57.730] and then you actually get to see what those ships are capable of,
+- [37:01.080] it really motivates me to come to work every day
+- [37:02.930] and really give back to the Navy.
+- [37:04.970] Secretary Phelan: We're the most dominant maritime force
+- [37:06.820] in the world,
+- [37:08.050] but we have areas that we need to improve on.
+- [37:10.220] Fixing the maritime industrial base
+- [37:12.880] and getting ship building back and teaching people
+- [37:15.620] to use their hands again in this country,
+- [37:17.950] I think is very, very important.
+- [37:19.740] You know, we've spent the last decade
+- [37:21.690] teaching people how to code.
+- [37:23.640] We're gonna spend the next decade
+- [37:25.060] teaching them how to use your hands.
+- [37:27.430] Morgan Dietzel: Sailors will work
+- [37:29.080] and they'll work hard.
+- [37:30.420] They are out there every day busting rusts,
+- [37:34.290] laying decks, painting spaces, fixing equipment,
+- [37:37.910] and making the ship better for themselves
+- [37:39.980] and then for future sailors
+- [37:41.230] that are gonna come on board the ship after them.
+- [37:43.290] We have to ensure that our ships and our aircraft
+- [37:46.560] across the spectrum are ready for any fight.
+- [37:49.720] The fact that we're making a difference
+- [37:51.060] downrange for the future sailors on this is fantastic.
+- [37:55.230] Secretary Phelan: Our evolution is not just about
+- [37:57.140] ships and systems,
+- [37:58.480] it's about culture. It's about people.
+- [38:00.970] And we have the best people in the world,
+- [38:03.150] and the best culture in the word is one that's going to be
+- [38:06.910] faster, more adaptable, and quicker.
+- [38:10.230] Brandon Williams: We got a lot of material,
+- [38:11.430] we got a lot of parts, we've got a lot of processes,
+- [38:13.200] but it's the people that do it, that make it.
+- [38:16.270] The people learn these trades and learn how to apply them
+- [38:19.400] and do some of the most amazing stuff that I've ever seen.
+- [38:32.870] Aaron Stagg: Military Sealift Command,
+- [38:34.230] our primary job and mission is to keep the Navy at sea.
+- [38:37.220] So we resupply them, rearmament, anything they need to make sure
+- [38:41.040] that they do not need to pull into port,
+- [38:42.740] we keep them at sea and in the fight.
+- [38:45.700] Morgan Dietzel: And our sailors, they need to be ready.
+- [38:47.240] They need to ready for anything. But that also means
+- [38:49.570] that our ships need to to be for anything
+- [38:54.990] Aaron Stagg: Merchant Mariners, for our position,
+- [38:56.760] we are professional sailors on that civilian side
+- [38:59.280] that comes out and facilitates
+- [39:00.810] the Navy's functionality on that DoD operation.
+- [39:03.540] We still have chain of command, but it's just that civilian-side
+- [39:06.870] versus the quote-unquote military aspect.
+- [39:09.890] It is pertinent that those crews work
+- [39:12.040] cohesively and hand-to-hand.
+- [39:13.430] So you have to be able to trust your crew,
+- [39:14.950] whether it's active duty or civilian.
+- [39:17.410] Male Speaker: A continued excellence is so important.
+- [39:19.500] It begins with the small things, following through on our tasks,
+- [39:24.380] it following through in our exercises,
+- [39:26.420] following through in our drills.
+- [39:29.390] Secretary Phelan: Train hard, work hard,
+- [39:32.030] and we have positioned the Navy and Marine Corps
+- [39:34.600] for the next 250 years
+- [39:36.730] to continue to be the most dominant maritime force.
+- [41:05.510] Chris Wyllie: My name is Chris Wylliey.
+- [41:06.860] I served as a United States Navy SEAL.
+- [41:08.940] Right now, we're standing in the Lieutenant Michael P.
+- [41:11.230] Murphy Navy SEAL Museum.
+- [41:14.490] This is a Naval Special Warfare Museum
+- [41:16.630] that encompasses the total history
+- [41:18.860] of Naval Special Warfare from 1942,
+- [41:21.610] where we were NCDUs for Navy Combat Demolition Units,
+- [41:25.150] UDT Frogmen, into SEALs, and then into the present day.
+- [41:29.950] I run the show here. I'm the executive director.
+- [41:32.820] You know, I've said this to you before,
+- [41:34.690] I am so happy to get together with you,
+- [41:37.560] and it's like a recharge.
+- [41:38.890] Drago Dzieran: Absolutely, but you know with the bond
+- [41:40.560] that we make because of our the job that we used to do
+- [41:44.290] where our lives depended on each other
+- [41:47.290] Chris Wyllie: I joke all the time with people.
+- [41:48.900] I said, look, if a van pulled up right now
+- [41:51.680] and they said, Chris, get in, you're back in the teams.
+- [41:55.460] I wouldn't even call my wife.
+- [41:58.040] I would be in the van going off to wherever we needed to go.
+- [42:01.530] And I probably would have texted her saying,
+- [42:03.260] hey, I'm in again, I'll catch up with you later.
+- [42:06.570] You know, but that's how much I miss it.
+- [42:07.980] I miss the camaraderie.
+- [42:09.480] Drago Dzieran: And yes the brotherhood
+- [42:10.960] that we create as a Navy SEALs
+- [42:13.080] is encompassed by the bigger brotherhood, right?
+- [42:16.360] The brotherhood of veterans of our military.
+- [42:24.480] Chris Wyllie: You know, in the museum,
+- [42:25.690] there's a ton of technology.
+- [42:27.530] There's so many things that come from the military.
+- [42:30.090] Drago Dzieran: People tend to think about,
+- [42:31.400] especially when they talk about the Navy,
+- [42:33.530] that this is just only ships and people on the ships,
+- [42:36.300] but there is so much more
+- [42:37.540] because the things that we develop,
+- [42:40.070] the GPS, the newest technology that eventually filters down
+- [42:43.740] to civilian population,
+- [42:45.780] it is designed, created by the Navy in the Navy labs.
+- [42:50.160] So we all benefit from it.
+- [42:52.600] Chris Wyllie: The everyday citizen has no idea
+- [42:54.860] where all of this technology that they take for granted,
+- [42:57.600] that they use every day, where it originated from.
+- [43:00.480] They don't.
+- [43:01.990] Drago Dzieran: The cell phones that we are using every day,
+- [43:04.890] it came from our Navy, it came from the labs.
+- [43:08.860] It's not only because we have ships and a lot of people,
+- [43:12.270] but also the technology that we can harness into our service,
+- [43:16.090] into service of our country, into the service of America.
+- [43:19.490] Chris Wyllie: So when you control the seas,
+- [43:20.750] you control the world.
+- [43:21.980] Drago Dzieran: Yes, absolutely.
+- [43:23.200] I think that's why it is also important
+- [43:25.380] to remind our civilian populations
+- [43:27.410] where this is coming from, why we are so powerful,
+- [43:29.750] so those demonstrations are very important.
+- [43:32.390] Chris Wyllie: Can't wait to see a demonstration like that.
+- [43:34.530] Drago Dzieran: Oh absolutely, I'm very excited about it, yes.
+- [43:38.380] ♪ (Upbeat Music) ♪
+- [43:55.460] Male Speaker: This is one of those jobs
+- [43:56.720] that the majority of people in the world don't get to see.
+- [44:05.980] Cheyenne Ferguson: There's nothing else
+- [44:07.210] that compares to this job, genuinely.
+- [44:09.680] The tempo, the adrenaline that you get from it.
+- [44:14.310] Kaleb Kirkland: Being on this ship,
+- [44:15.510] there's so much going on around you.
+- [44:17.500] Always launching planes,
+- [44:18.890] you're always in the middle of something.
+- [44:29.540] Male Speaker: On a single deployment,
+- [44:30.790] we could launch upwards of 14,000 aircraft.
+- [44:34.980] Cheyenne Ferguson: It's controlled chaos.
+- [44:36.240] We love to use that phrase.
+- [44:39.340] Male Speaker: We like to think
+- [44:40.650] that we're in control of the chaos,
+- [44:41.960] and because of the professionalism of our sailors,
+- [44:44.030] we really are.
+- [44:46.000] Justin Villarino: It's all about keeping cool,
+- [44:47.470] keeping a level head and yeah moving forward.
+- [44:57.980] Cheyenne Ferguson: You're constantly looking around.
+- [44:59.360] You're trying to think of scenarios.
+- [45:00.680] Hey, if this happens, what am I going to do?
+- [45:03.340] It really matures you as a person,
+- [45:06.040] helps you grow as a person.
+- [45:09.970] Zachary McNitt: When everybody does their job,
+- [45:11.780] that's how we get the job accomplished.
+- [45:13.910] Junior sailors on up to senior chiefs.
+- [45:16.090] Everybody does their jobs, everything runs smooth.
+- [45:19.420] Jeff Buschmann: All of the sailors that I lead,
+- [45:20.950] they're much smarter, much more mature than I was
+- [45:24.310] when I was 18 to 20 years old.
+- [45:26.770] Male Speaker: We are the best.
+- [45:28.090] Other countries may have aircraft carriers,
+- [45:30.670] but they don't operate efficiently
+- [45:32.530] the way we operate on a daily basis.
+- [45:39.210] Morgan Dietzel: We have to do this as a team.
+- [45:41.230] We succeed as a teams, we fail as a a team,
+- [45:43.710] and our sailors, they need to be ready.
+- [45:45.270] They need to ber ready for anything.
+- [45:49.170] Jocko Willink: The strength of the Navy
+- [45:50.940] isn't just steel and ships, but most important, people.
+- [45:56.010] And not just the people who serve,
+- [45:57.730] but their families that stand behind them.
+- [46:00.420] And no matter how many deployments I went on,
+- [46:02.910] no matter far apart I was from my family, we had a bond.
+- [46:07.910] And that bond ran throughout the SEAL community
+- [46:11.140] and throughout the military,
+- [46:12.800] the bond between the service members and the families.
+- [46:16.150] Next up, we're going to Little Creek, Virginia,
+- [46:18.640] where we're gonna see Connor Smith perform
+- [46:21.420] for the troops and strengthen that family bond.
+- [46:28.960] ♪ ("Creek will Rise" by Connor Smith) ♪
+- [48:42.160] Connor Smith: You all having some fun, yet?
+- [48:47.830] All right, let me tell you all the rest of the story.
+- [48:50.060] ♪ ("Creek will Rise" by Connor Smith) ♪
+- [49:54.910] Connor Smith: God bless the Navy,
+- [49:56.140] God bless our President, God bless this country,
+- [49:58.340] we love you guys so much.
+- [50:00.050] (cheers)
+- [50:03.550] Jocko Willink: The next story takes us beneath the surface
+- [50:06.160] to Navy Dive School,
+- [50:07.680] where precision, endurance, and teamwork define every breath.
+- [50:12.430] Down there, it's not just about strength,
+- [50:15.410] it's about focus, it' about trust.
+- [50:17.910] And for many, it is where they discover
+- [50:20.520] who they were meant to be.
+- [50:22.070] Because in the Navy, when you find your passion,
+- [50:24.560] you find you purpose.
+- [50:28.940] Male Speaker: Humans are supposed to be walking around
+- [50:30.820] on land,
+- [50:32.220] not diving hundreds of feet underwater.
+- [50:35.790] (military drill commands)
+- [50:51.230] Mark Powell: Between the roughly 60 Navy dive instructors
+- [50:54.860] that we have here at the schoolhouse,
+- [50:56.680] we have hundreds of years of experience.
+- [51:00.450] It's one big team effort to make the best students
+- [51:03.170] that we can and the best divers that we can.
+- [51:05.540] What you guys are going to do when we tell you,
+- [51:07.370] right, you're going to get in the water,
+- [51:08.940] you're gonna do your in-water checks,
+- [51:10.440] check each other for leaks.
+- [51:11.660] Gus Gazda: Here at the dive school,
+- [51:12.870] we want them to be comfortable underwater,
+- [51:15.250] first and foremost. We want them be familiar
+- [51:17.900] with all of the specific rigs and how they perform underwater.
+- [51:22.020] And we want him to be open-minded.
+- [51:23.980] Not everything that you face underwater
+- [51:26.100] is going to be by the book, black and white.
+- [51:28.530] You're going to have to get creative
+- [51:30.230] with the way you fix some problems underwater.
+- [51:35.220] Mark Powell: When they first check in here,
+- [51:36.450] they're doing aquatic adaptability,
+- [51:38.390] getting comfortable underwater or holding their breath.
+- [51:40.760] They go through emergency procedures
+- [51:42.790] so they know what to do and how to execute
+- [51:44.920] if something does go wrong.
+- [51:48.830] Everything we do here has a purpose,
+- [51:51.790] we're building their confidence
+- [51:52.990] to be the best Navy divers that they can be.
+- [52:06.290] Angel Mendeaz: My name is Angel Mendez.
+- [52:07.920] I'm a E5 and I'm an electrician's mate.
+- [52:10.630] See, I went to high school in Naples, Florida.
+- [52:13.030] Got into a really tight spot.
+- [52:14.530] Had like an injury while wrestling.
+- [52:15.770] It kind of took me out of working for a while.
+- [52:17.880] My buddy's dad called me up.
+- [52:19.670] He took me in around the same time I heard
+- [52:22.030] about the Navy and the Navy Dive program.
+- [52:26.500] There's a lot of people
+- [52:27.880] that start from different places in life,
+- [52:29.590] but when you come to dive school,
+- [52:30.980] everybody starts off at zero
+- [52:32.240] and everything you do from there you earn
+- [52:34.280] and that's yours to keep.
+- [52:35.690] Male Speaker: (inaudible)
+- [52:46.760] T1 on surface, T-1 okay!
+- [52:49.940] Gus Gazda: So the dive that usually
+- [52:51.520] gets all Navy divers kind of hooked on Navy diving
+- [52:53.860] is right here at school in the Gulf of America.
+- [53:00.210] Female Speaker: It can be pretty bumpy and fast,
+- [53:02.280] but it's actually one of my favorite parts about the job
+- [53:05.130] is actually that ride out to sea.
+- [53:09.280] Then once you get there, the boat will sort of moor down,
+- [53:12.580] and then you get strapped into your gear.
+- [53:17.030] Male Speaker: Check standby. Red, 1600. Green, 1800. Standby.
+- [53:21.260] Female Speaker: And then everyone takes turns
+- [53:23.200] entering the water.
+- [53:26.930] Mark Powell: You have to be locked in and dialed
+- [53:28.680] in all the time because diving is inherently dangerous.
+- [53:35.090] Gus Gazda: For us instructors,
+- [53:36.290] it's just cool to watch the wonder in the students' eyes
+- [53:39.750] when they're on their first dive ever.
+- [53:45.470] So we have a huge variety of commands
+- [53:47.750] that students can get assigned to out of school.
+- [53:50.610] Expeditionary, where we'll go support
+- [53:53.560] EOD, Navy SEAL, Recon, Marsok Marine.
+- [53:57.800] Salvage, where you train on techniques
+- [54:01.230] to salvage whatever it may be,
+- [54:03.680] a ship that sunk or aircraft that crashed into the water.
+- [54:07.480] And then the third is ship's husbandry.
+- [54:09.700] Basically just underwater mechanics to fix ships.
+- [54:13.020] We have husbandry bases all over the world
+- [54:15.720] and Navy divers would be there to fix the ship
+- [54:18.360] and get them back out on the water.
+- [54:24.300] Angel Mendeaz: It's just the best caliber of people
+- [54:26.610] you can find anywhere.
+- [54:27.900] Mark Powell: This is a brotherhood,
+- [54:29.110] a sisterhood of like-minded individuals.
+- [54:31.790] Larontaye Spates: When you're getting hounded,
+- [54:33.010] beat physically,
+- [54:34.250] and you're going through this immense amount of stress,
+- [54:36.280] you have no choice but to be closer to the ones next to you
+- [54:38.240] because that's the only way you will get through the next step.
+- [54:41.770] Michael Gibson: Twenty-three weeks ago,
+- [54:43.510] the members that you see before you set out
+- [54:45.480] to become basic and advanced
+- [54:47.410] underwater construction technicians.
+- [54:49.350] Male Speaker: So this is a huge milestone in their life
+- [54:51.400] as well as their career.
+- [54:53.040] They earned the right to call themselves a Navy Diver.
+- [54:58.000] Larontaye Spates: Oh, if everything goes as planned,
+- [54:59.290] I would hope to do this job for 20 years.
+- [55:01.690] That's how much I want to do this job.
+- [55:04.920] Angel Mendeaz: My whole entire dream
+- [55:06.270] is just to be on a job site,
+- [55:08.420] knuckles dragging, God willing, wrenching underneath water
+- [55:11.360] with a couple good guys by my side
+- [55:13.110] and doing the job that I love for the country that I live.
+- [55:15.880] This is like my piece of American pie
+- [55:17.320] that I'm chasing after.
+- [55:18.610] You know, I mean, this is my American dream
+- [55:20.330] being from like almost homeless to diving.
+- [55:22.540] It's really a blessing to be here.
+- [55:30.640] Adam Brian: Everyone is coming from the fleet,
+- [55:32.410] both the Navy and the Marine Corps,
+- [55:33.860] and we apply to be here.
+- [55:36.640] Everybody comes here at the top of their game
+- [55:38.390] and we make them even better,
+- [55:39.990] but every single person on this team
+- [55:41.540] buys into the fact that we are chasing
+- [55:43.880] a perfect flight demonstration.
+- [55:53.170] Our job when we do it,
+- [55:55.510] we put safety as our paramount objective.
+- [56:05.010] We train a tremendous amount here,
+- [56:07.400] but for our team, it's just as dangerous day one as it
+- [56:11.070] is at the very end of the season.
+- [56:13.530] And while we may get tighter in our formations
+- [56:16.390] and we get lower to the ground, we actually do those on purpose.
+- [56:19.340] We make the show more difficult for us to fly,
+- [56:22.510] so we have intense concentration.
+- [56:26.450] While perfection may be unattainable,
+- [56:28.760] the result when you try for perfection is excellent.
+- [56:32.840] It is the reason why we're here.
+- [56:35.650] It's the reason we're trying to showcase
+- [56:37.250] the team market professionalism of the Navy and Marine Corps.
+- [56:43.020] Chad Robichaux I'm Chad Robichaud,
+- [56:52.480] former Fort Shrecon Marine,
+- [56:53.950] founder of Mighty Oaks Foundation,
+- [56:55.770] and host of The (inaudible) Show.
+- [56:58.140] Dennis Price: I'm Dennis Price,
+- [56:59.450] former Force Recon Scout Sniper and CEO
+- [57:01.960] and founder of Heroes 3 Manny.
+- [57:04.710] Pretty awesome time in California, right?
+- [57:06.140] That was great, it was super awesome.
+- [57:07.440] Chad Robichaux And we witnessed a Marine Air Ground Task Force,
+- [57:10.430] essentially a MEF-level Marine Expeditionary Force event,
+- [57:13.790] the Fabius Assault, where we had aircraft carriers,
+- [57:17.150] LHDs, all launching the full ferocity
+- [57:21.260] of the United States Marine
+- [57:22.500] Corps to demonstrate for the Vice President
+- [57:24.440] of the United States and Secretary of War
+- [57:26.860] what the Marine Corps has been able to do for 250 years.
+- [57:29.840] It was an awesome show of force, even for the world to see.
+- [57:33.150] I've never in my 30 years being around the Marine Corp,
+- [57:35.480] have I felt that we had.
+- [57:37.950] As a fighting force, more support and more love
+- [57:40.640] from the top with this administration.
+- [57:42.300] If we go to war, we're going to war to win.
+- [57:48.620] Secretary Hegseth: Marines have been the tip
+- [57:49.890] of the spear of our armed forces
+- [57:51.250] and the vanguard of the fight for freedom.
+- [57:56.160] In those critical battles our nation has ever faced,
+- [57:58.990] it is often Marines, forged by unique traditions
+- [58:02.520] and tough as nails training who land first.
+- [58:08.010] We're the strongest, most powerful, most lethal,
+- [58:10.660] and most prepared military on the planet.
+- [58:14.390] Because you are that strength. You are that power.
+- [58:19.900] You are lethality. And you are prepared.
+- [58:25.800] ♪ (Intense Music) ♪
+- [58:31.830] Male Speaker: The Marine Corps is America's 9-1-1 force
+- [58:35.170] ready to respond to anything the country asks us to do.
+- [58:38.510] Male Speaker: The Marine Corps presented a unique challenge
+- [58:40.420] that no other branch had,
+- [58:42.190] that's steeped in history and tradition,
+- [58:44.280] and there's just a reputation to it.
+- [58:46.850] I'd say it was the best decision of my life.
+- [58:51.820] Chase Brahaney: It's just an opportunity for us
+- [58:53.250] to show our lethality,
+- [58:54.560] our commitment to warfighting readiness,
+- [58:56.260] and our excellence in mission accomplishment.
+- [59:03.130] All I can feel is pride and I'm so impressed by all the Marines
+- [59:07.340] that just executed their duties perfectly.
+- [59:10.860] Secretary Hegseth: Every American knows
+- [59:12.140] the truth of the phrase, Semper Fidelis, Always Faithful.
+- [59:18.040] The Vice President: For two and a half centuries now,
+- [59:19.870] this beloved Corps has served as our nation's sharp edge.
+- [59:25.310] Male Speaker: Always forward deployed, always ready,
+- [59:28.370] and always faithful.
+- [59:30.400] Secretary Hegseth: You, ladies and gentlemen,
+- [59:31.670] are the backbone of the United States military.
+- [59:35.270] You are set apart for a distinct purpose.
+- [59:39.220] You kill bad guys and break things for a living.
+- [59:43.170] You close with and destroy the enemy.
+- [59:47.870] Man, that is beautiful.
+- [59:53.820] President Trump has made our mission clear.
+- [59:56.340] America first, peace through strength,
+- [59:59.720] and common sense at every turn.
+- [01:00:02.090] We are the War Department, and you are warriors.
+- [01:00:08.670] Your strength is in your unity of purpose.
+- [01:00:12.000] It's in your shared mission.
+- [01:00:14.060] It's your oath to the Constitution.
+- [01:00:16.570] It's the bond that turns individuals
+- [01:00:18.780] into single-minded fighting units.
+- [01:00:24.430] Standards, discipline, accountability,
+- [01:00:27.860] war fighting, lethality, they live.
+- [01:00:31.940] Being here with you is the perfect way to mark
+- [01:00:35.410] 250 years of the beautiful and beloved
+- [01:00:39.840] United States Marine Corps.
+- [01:00:43.190] You make us proud. We have your back.
+- [01:00:48.150] Take a moment and remember where you are
+- [01:00:50.950] in the great American story. Your devil dogs, Leathernecks,
+- [01:00:56.310] United States Marines. Hurrah.
+- [01:01:05.510] Jocko Willink: When you think of naval aviation,
+- [01:01:07.180] you probably think of jets launching off of aircraft
+- [01:01:10.510] carriers and dogfights over the open ocean,
+- [01:01:14.300] but Marine aviation has to think about another aspect of combat,
+- [01:01:18.880] and that is supporting Marines on the ground.
+- [01:01:21.270] That's why they attend WTI, weapons and tactics
+- [01:01:25.410] instructor training in Yuma, Arizona.
+- [01:01:28.370] This is where the best of the best go to push themselves
+- [01:01:32.130] and their aircraft to the limit. This is Marine Air Unleashed.
+- [01:01:39.310] Brody Boggs: One of the great phrases
+- [01:01:40.630] that the Marine Corps always uses is,
+- [01:01:42.300] your plan never survives first contact.
+- [01:01:48.400] That is being a Marine.
+- [01:01:49.650] It's when the first thing fails, you don't stop, you keep going.
+- [01:01:53.040] You keep figuring it out so that when it doesn't happen,
+- [01:01:56.300] you can still make it happen.
+- [01:02:03.530] WTI is the weapons and tactics instructor course.
+- [01:02:07.110] It is the premier aviation school for the Marine Corps.
+- [01:02:28.080] We take the Marines that are at the top of their field
+- [01:02:32.040] and in a very short period of time,
+- [01:02:33.730] put them together in the same space
+- [01:02:35.320] and turn them into a cohesive fighting unit
+- [01:02:38.120] that is able to go and execute complex problems
+- [01:02:40.980] in a compressed timeline.
+- [01:02:45.720] Angel Mendeaz: The ability to step back and realize
+- [01:02:51.110] that requires a bunch of strangers
+- [01:02:54.140] to get together for service above self.
+- [01:03:01.820] And along the way, understanding
+- [01:03:05.960] and caring for the individual to the left or right of you.
+- [01:03:12.750] And getting to that same mission or purpose and executing
+- [01:03:20.090] with the propensity of violence and lethality.
+- [01:03:26.160] That's the change that happened to me.
+- [01:03:29.210] Brody Boggs: We've got Kovras, we've got 53s, we got MV-22s,
+- [01:03:33.290] we've Got Hueys, we Got C-130s, F-18s, F-35s,
+- [01:03:36.620] like everybody comes out here for this.
+- [01:03:38.860] But here you get to do it for real.
+- [01:03:41.060] You get to launch 30 plus aircraft
+- [01:03:44.550] to all go and accomplish a single objective,
+- [01:03:47.510] a team of excellent professionals
+- [01:03:51.400] who've managed to mesh together and continue to learn to be
+- [01:03:55.310] better and plan in more complex scenarios.
+- [01:03:58.050] How do you take what you are excellent at and support them?
+- [01:04:02.540] How do make sure that they are able to do their job
+- [01:04:05.330] to the max capacity
+- [01:04:06.930] Through how you're able to your job in the max Capacity
+- [01:04:10.680] and it's it's that integration.
+- [01:04:12.880] It's that bringing the different levels of excellence
+- [01:04:15.760] together that WTI is all about
+- [01:04:24.590] Jocko Willink: Marines take great care
+- [01:04:26.480] to address friends, family,
+- [01:04:28.320] and tradition, often by hosting warrior nights on base
+- [01:04:31.830] where Marines and their friends
+- [01:04:33.650] and family can relax over some good food.
+- [01:04:37.690] Up next, Ernest performs at a barbecue
+- [01:04:41.820] at Eight Deny Marine Barracks.
+- [01:04:44.070] Male Speaker: So please welcome my new favorite
+- [01:04:47.120] and your new favorite singer
+- [01:04:50.300] (inaudible) ERNEST!
+- [01:04:51.500] (applause)
+- [01:05:02.430] Ernest Smith: Oh man, let's have us a night.
+- [01:05:03.870] This song is called Blessed.
+- [01:05:10.500] ♪ ("Blessed" by ERNEST) ♪
+- [01:08:27.320] Ernest Smith: I'm so proud to be an American
+- [01:08:28.830] and I'm so happy to be here playing for you guys tonight.
+- [01:08:31.520] Happy birthday! Let's keep going!
+- [01:08:45.140] Thank you all so much. My name is Ernest,
+- [01:08:47.340] and I will continue to support our troops.
+- [01:08:50.210] Love you all!
+- [01:08:58.010] Adam Brian: The Blue Angels embody the best our Navy
+- [01:09:00.100] and Marine Corps has to offer.
+- [01:09:01.480] For the past 79 years we have spent
+- [01:09:04.700] that time refining the flight demonstration
+- [01:09:07.550] to the American public.
+- [01:09:09.120] It's important to show the country
+- [01:09:11.030] what an incredible team can accomplish together.
+- [01:09:24.670] If you want to eventually zip up this flight suit
+- [01:09:27.040] or become a maintainer or a support personnel on this team,
+- [01:09:30.270] you first have to do really well in school
+- [01:09:33.010] and then also learn how to be a good teammate.
+- [01:09:36.080] Learn how to serve and work on that team
+- [01:09:38.770] before you can learn how to lead one
+- [01:09:40.730] and then don't let anyone tell you that you can't do it.
+- [01:09:44.490] Every single person here wearing this crest
+- [01:09:46.490] on their chest earned this.
+- [01:09:48.310] They earned the right to be here and they work extremely hard
+- [01:09:51.130] every single day now that are here.
+- [01:09:52.890] Maybe even harder to keep it on their chest.
+- [01:10:06.930] Jocko Willink: Top Gun, you've seen the movie
+- [01:10:08.950] and you caught a glimpse of our pilots and their aircraft,
+- [01:10:12.740] but we're about to take you to the Top Gun school
+- [01:10:15.480] so you can witness the true power of our naval aviators
+- [01:10:19.950] and the most advanced aircraft in the world.
+- [01:10:25.770] Male Speaker: Here in Fallon,
+- [01:10:27.030] it's a unique place in the world.
+- [01:10:29.520] This is the coolest flying I think I'll ever do in my life.
+- [01:10:36.330] Male Speaker: It is a grind. Long days, hard days.
+- [01:10:41.120] You have to bring your best to belong.
+- [01:10:44.940] Adam Brian: Top Gun takes the cream
+- [01:10:46.560] of the crop from the Navy fleet
+- [01:10:48.010] and pushes them to their absolute limit.
+- [01:10:50.750] We have an extremely high bar that each student has to meet
+- [01:10:53.850] in order to earn their patch.
+- [01:10:58.200] Secretary Hegseth: We're reviving
+- [01:11:07.310] the warrior ethos, getting back to basics,
+- [01:11:10.050] stripping out the distractions and the debris,
+- [01:11:12.800] ensuring you have what you need, being the best of the best.
+- [01:11:15.670] That's what the President expects.
+- [01:11:17.750] That's we expect you to deliver.
+- [01:11:21.290] Brian Hall: From the time that they walk in,
+- [01:11:22.540] we kind of see that fear on their faces.
+- [01:11:24.300] Adam Brian: It is not a room of superheroes,
+- [01:11:26.710] it is normal men and women
+- [01:11:28.860] that just wanted to serve their country at the highest level.
+- [01:11:31.920] They put a lot of effort into coming here,
+- [01:11:34.080] but no matter how prepared they are
+- [01:11:35.890] in the back of their mind, they're still like,
+- [01:11:38.330] am I going to make it through?
+- [01:11:42.240] Brian Hall: Flying a tactical jet
+- [01:11:43.510] is unlike anything else that you can do in the entire world.
+- [01:11:49.620] Buckle up.
+- [01:12:04.420] Charles Nash: The underlying execution standards
+- [01:12:07.120] do not change.
+- [01:12:08.760] The ability to handle stress under pressure,
+- [01:12:11.110] the ability to adapt to a complicated mission set,
+- [01:12:14.590] and be brilliant at the basics.
+- [01:12:20.160] Adam Brian: We measure precision in everything we do.
+- [01:12:22.480] We measure it in the way we dress and our appearance,
+- [01:12:25.560] how we breathe flights. How we talk on the radio,
+- [01:12:31.970] how we execute combat tactics in the air.
+- [01:12:39.200] Brian Hall: It's healthy competition.
+- [01:12:40.670] It comes from just wanting to be as good as your friends.
+- [01:12:43.210] They're really outstanding Americans
+- [01:12:44.700] that you want to be like.
+- [01:12:46.800] Charles Nash: An opportunity to better a human.
+- [01:12:49.360] To invite into our team and to help us
+- [01:12:52.600] teach the next people how to kill better and not die better.
+- [01:13:01.910] Secretary Hegseth: Thank you first and foremost
+- [01:13:03.300] for everything you give to the country,
+- [01:13:05.700] that you and your families give, the sacrifice that it takes
+- [01:13:09.980] to be at this elite level of what you do.
+- [01:13:12.460] You are the ones that push the envelope.
+- [01:13:15.220] But what you inside these machines is decisive,
+- [01:13:19.080] and we salute you for that.
+- [01:13:28.670] Adam Brian: Every class, every individual faces challenges.
+- [01:13:32.890] Charles Nash: We take rough marble
+- [01:13:34.960] and we chisel it into something that we are proud of.
+- [01:13:39.460] Brian Hall: Topkin has created war fighters and leaders
+- [01:13:42.170] to make naval aviation
+- [01:13:43.760] the greatest fighting force in the world.
+- [01:13:47.060] You get to see how great people can really be.
+- [01:13:50.810] It's worth all the hard work to get there.
+- [01:13:54.740] Secretary Hegseth: You don't get 1776
+- [01:13:56.820] without those incredible Americans 250 years ago
+- [01:13:59.670] who understood that freedom had to be fought for.
+- [01:14:02.930] The weapons have always evolved,
+- [01:14:05.370] the Americans and that spirit has stayed the same
+- [01:14:08.480] and it lives in all of you.
+- [01:14:18.830] Brian Hall: The culture always demands excellence.
+- [01:14:24.690] Male Speaker: It's an honor to be able to strive
+- [01:14:26.460] to meet that standard every day and be the best that we can be.
+- [01:14:31.150] So that if we do engage in combat, we're prepared to win.
+- [01:14:43.580] Chris Wyllie: When you're a SEAL and you
+- [01:14:44.890] and you hear that the President of United States
+- [01:14:46.610] is coming to visit you on on the ship, right?
+- [01:14:50.060] It's a totally different feeling energy excitement,
+- [01:14:54.540] you know almost an adrenaline rush.
+- [01:14:55.960] Drago Dzieran: This is the man who actually rules entire world
+- [01:14:58.280] I would say.
+- [01:14:59.560] He's the most powerful man in the world.
+- [01:15:02.360] He's coming to visit us.
+- [01:15:03.570] He is coming actually we can show him
+- [01:15:06.170] some of our capabilities.
+- [01:15:07.670] We can demonstrate what we can do it
+- [01:15:10.420] and also why we are so powerful.
+- [01:15:12.570] Chris Wyllie: Right? You can feel it,
+- [01:15:14.100] you can sense it, everybody's excited,
+- [01:15:17.090] you know, it's it's they want to show him their best.
+- [01:15:20.340] That's what it that's what they want.
+- [01:15:21.840] They want to show the President of the United States,
+- [01:15:24.960] this is what I do. This is my ship.
+- [01:15:27.140] This is what i'm proud of, right?
+- [01:15:29.350] And I'm proud to serve and I think everybody is feeling that.
+- [01:15:40.710] Secretary Hegseth: I don't think I could imagine
+- [01:15:42.770] a more beautiful sight
+- [01:15:44.780] than looking at these incredible Americans
+- [01:15:47.210] on this backdrop on this ship on this day
+- [01:15:50.140] with our commander in chief on his way right now.
+- [01:15:58.450] Secretary Phelan: It's a really special thing
+- [01:15:59.890] to have the President and First Lady
+- [01:16:02.360] come visit us on a U.S. Aircraft carrier.
+- [01:16:07.350] Male Speaker: Every sailor is extraordinarily proud
+- [01:16:10.150] and wants to show off their ship, submarine, squadron
+- [01:16:14.650] to anybody who will come, but it's especially special
+- [01:16:17.590] when it's the President of the United States
+- [01:16:19.540] and the First Lady.
+- [01:16:20.880] Male Speaker: (inaudible) Commander-in-Chief).
+- [01:16:23.450] (applause)
+- [01:16:26.520] Secretary Phelan: The President took the time
+- [01:16:28.270] to address the crew,
+- [01:16:29.810] to spend time with all the sailors and marines,
+- [01:16:32.820] as did the First Lady.
+- [01:16:34.800] The President: We really appreciate it.
+- [01:16:36.140] On behalf of the First Lady who's with me,
+- [01:16:38.530] thank you very much everybody. We love the Navy.
+- [01:16:50.140] Male Speaker: I got to spend that whole afternoon with him
+- [01:16:52.300] and his wife,
+- [01:16:53.590] and got to show him just the extraordinary combat power
+- [01:16:57.400] the Navy can bring to bear. He was so inquisitive about it,
+- [01:17:02.480] question after question about why this, how does that work?
+- [01:17:06.000] To me, it was just so enjoyable to watch our Commander-in-Chief.
+- [01:17:11.110] Male Speaker: In order to be a superpower you need
+- [01:17:13.010] to be a sea power and nothing shows
+- [01:17:15.230] that more than a United States aircraft carrier.
+- [01:17:20.150] Male Speaker: Credible combat power
+- [01:17:22.020] with the resolve of our President,
+- [01:17:24.310] you get a peace through strength model out of that.
+- [01:17:30.280] Male Speaker: If people could see what I see in the Navy
+- [01:17:32.520] and Marine Corps every day,
+- [01:17:34.710] the renewed sense of optimism and faith
+- [01:17:36.990] in this country would be incredible.
+- [01:17:40.270] Male Speaker: Thanks for everything you do.
+- [01:17:45.910] Male Speaker: What's fascinating about the military
+- [01:17:47.790] is the purpose isn't about you.
+- [01:17:50.090] It's about the defense of the country
+- [01:17:52.100] and the person next to you.
+- [01:17:53.960] And that's a really great thing to see.
+- [01:17:56.530] And when you meet these young sailors and Marines,
+- [01:17:59.700] you see it every time.
+- [01:18:06.790] The First Lady: Hoo-rah, Navy!
+- [01:18:20.560] The President: We're gathered on this storied waterfront
+- [01:18:22.500] to celebrate 250 years of strength, tenacity,
+- [01:18:26.050] and unwavering courage. No matter where you go,
+- [01:18:30.660] there's nothing like the fighting force that we have.
+- [01:18:33.740] They have poured out their blood, sweat, and tears
+- [01:18:36.160] and offered their very lives
+- [01:18:37.700] to defend this land between the seas.
+- [01:18:41.480] Whatever our nation is threatened
+- [01:18:43.230] and whenever duty calls,
+- [01:18:45.140] American sailors will hoist our flag high and they will rally.
+- [01:18:50.630] Because of you, our Navy and our country
+- [01:18:52.950] will always be proud and mighty and free.
+- [01:18:57.000] Male Speaker: The work that the sailors do in the Navy
+- [01:18:59.870] is making my family safer for generations to come.
+- [01:19:04.660] Adam Brian: I love being a leader of men and women
+- [01:19:07.810] and I love to see that hard work.
+- [01:19:12.100] When everybody has high expectations for us,
+- [01:19:14.940] that drives us to succeed, that drives us to excel,
+- [01:19:18.430] and that drive, I think, is important every day.
+- [01:19:22.230] It's the honor of a lifetime to be a captain of the ship.
+- [01:19:26.970] The President: From the American Revolution until today,
+- [01:19:29.530] the story of the U.S. Navy is a tale of loyalty sacrifice
+- [01:19:33.640] and commitment stretching back 250 years.
+- [01:19:38.060] Sail fast, stay strong. Thank you.
+- [01:19:41.550] God bless our sailors and God
+- [01:19:43.710] bless the United States of America.
+- [01:19:45.840] Thank you very much everybody.
+- [01:19:48.810] (applause)
+- [01:19:54.960] Dave Hansen: My name is Dave Hansen,
+- [01:19:56.360] recently retired after 26 years in the SEAL teams.
+- [01:19:59.490] You're about to get a glimpse and day
+- [01:20:01.370] in the life of Naval Special Warfare.
+- [01:20:04.120] Whether it's a SEAL platoon coming over the beach
+- [01:20:06.260] as an assertion method,
+- [01:20:07.500] or SEAL and SWCC candidates at the obstacle course.
+- [01:20:10.920] The common ground is the same. It's teamwork, it's camaraderie,
+- [01:20:14.280] it is abandoning self and embracing team.
+- [01:20:18.320] Over the past few decades I've had the privilege,
+- [01:20:21.120] I've had the honor to serve alongside
+- [01:20:23.540] so many great teammates.
+- [01:20:25.070] Teammates who choose others over themselves at all times.
+- [01:20:29.250] Teammate who choose to serve this great nation.
+- [01:20:32.760] And this great nationwide is worthy of sacrifice.
+- [01:20:36.200] It's worthy of service.
+- [01:20:38.370] And I hope what you're about to see inspires you.
+- [01:20:44.710] It's always a good day
+- [01:20:45.910] when you're rolling with your teammates.
+- [01:20:50.500] I mean, who else gets to do this type of stuff,
+- [01:20:54.540] not too many people.
+- [01:20:58.040] In the heart of every frogman, you know,
+- [01:21:00.860] they all understand the only easy day was yesterday.
+- [01:21:03.390] Yesterday is the easiest day you'll ever have.
+- [01:21:05.400] Tomorrow, you have no idea what obstacle,
+- [01:21:07.350] what challenge, what it is you're going to face.
+- [01:21:12.590] Stuff is never as easy as it looks, right?
+- [01:21:16.760] Takes a lot of repetition, a lot time, a lotta work.
+- [01:21:22.650] It's not something that everybody embraces.
+- [01:21:32.330] Abandoned, self-embraced team,
+- [01:21:34.840] that is who these guys are at their core.
+- [01:21:37.810] You don't get a place at the table,
+- [01:21:39.990] you don't get a spot on that team
+- [01:21:42.760] if you put yourself above your team.
+- [01:21:51.290] I understand what it's like to be constantly committed
+- [01:21:54.970] to training, cruising around in their kit and gear
+- [01:21:58.640] and getting wet, seaweed all over you,
+- [01:22:00.760] getting sandy.
+- [01:22:05.820] It's just good to be around teammates who,
+- [01:22:09.120] that's the life they choose, you know?
+- [01:22:18.230] I am that man, it's a commitment to say I am able
+- [01:22:22.950] and willing to fulfill
+- [01:22:25.080] everything that's expected of me,
+- [01:22:27.240] who has that level of commitment.
+- [01:22:32.350] They seek to do something that ultimately
+- [01:22:35.030] put this great country above themselves.
+- [01:22:39.170] It's part of who you are. That's in your DNA.
+- [01:22:58.530] There's nothing we do that can be accomplished by one person.
+- [01:23:01.760] It's all about the team.
+- [01:23:03.360] That ingenuity and that creativity,
+- [01:23:05.740] that problem-solving,
+- [01:23:07.150] you get dudes from different walks of life
+- [01:23:08.890] and different places and everybody brings
+- [01:23:11.260] a little something different to the table.
+- [01:23:15.070] No matter what the challenge,
+- [01:23:16.450] whatever the task, difficult or not,
+- [01:23:18.910] I appreciate seeing guys who still do whatever it takes.
+- [01:23:29.400] This is what they live for. Looking forward to deploying,
+- [01:23:32.660] looking forward to whatever the next ridgeline is.
+- [01:23:35.400] This country's in safe hands
+- [01:23:36.760] when you got men like this standing by to serve.
+- [01:23:43.240] Jocko Willink: People sometimes say that the SEAL teams
+- [01:23:45.860] are the most feared force on the planet.
+- [01:23:48.180] But I can tell you, from a strategic perspective,
+- [01:23:51.350] the men and women on submarines are much more dangerous.
+- [01:23:55.500] They move unseen, strike without warning.
+- [01:23:58.880] They wait in the shadows, silent, lethal.
+- [01:24:02.470] The world may never see them,
+- [01:24:03.750] but make no mistake, they are always ready.
+- [01:24:06.800] That is the power beneath the surface.
+- [01:24:09.370] And that is the unseen edge that the Navy brings to any fight.
+- [01:24:15.210] Admiral Caudle: The Marine Corps and the Navy team is special.
+- [01:24:17.930] It's been in existence for 250 years.
+- [01:24:28.520] Cooper Parker: I'm under the water
+- [01:24:29.860] that's not supposed to be like that and then
+- [01:24:34.890] For people that don't know what we do,
+- [01:24:37.210] submarines play a huge role in homeland security.
+- [01:24:42.590] Male Speaker: Which means we're coordinating
+- [01:24:43.930] with surface ships and airplanes
+- [01:24:45.550] to track other vessels at sea, search and rescue,
+- [01:24:48.880] and then intelligence, surveillance, or reconnaissance.
+- [01:24:51.730] Admiral Caudle: And so we go around,
+- [01:24:53.030] we spy, we sneak around,
+- [01:24:55.270] and we can kill pretty much anything that floats.
+- [01:25:03.140] Michael Johnson: Other ships
+- [01:25:04.420] that don't have nuclear submarines,
+- [01:25:05.740] they can't stay out as long as we can.
+- [01:25:08.740] There's no battle of attrition that we're going to lose.
+- [01:25:11.230] The nuclear aspect is definitely about underwater supremacy.
+- [01:25:17.610] Gus Gazda: The Virginia class are fast attack submarines,
+- [01:25:20.680] and the Ohio class is a ballistic missile submarine.
+- [01:25:25.220] Male Speaker: Firetube One!
+- [01:25:26.490] Gus Gazda: The strength of the Ohio class
+- [01:25:28.040] is that it's able to operate underway
+- [01:25:31.260] for a long period of time.
+- [01:25:33.360] Dakota Meyer: We're ready to respond
+- [01:25:34.560] if the President says
+- [01:25:35.900] that we need to respond to defend the country.
+- [01:25:40.600] Justin Smith: My name is Justin Smith.
+- [01:25:41.980] I'm the principal assistant of the Navigator.
+- [01:25:44.830] I do the day-to-day operations
+- [01:25:46.270] planning out the hour-by-hour plan for the ship
+- [01:25:48.710] while underway for our 150-person crew
+- [01:25:51.380] and this $3 billion asset.
+- [01:25:54.380] When we train, we train like it's going to happen.
+- [01:25:56.960] And when it does happen, we do well because we trained for it.
+- [01:26:00.280] And really, it's drilling and killing.
+- [01:26:02.300] It's reps and sets. We're always finding problems.
+- [01:26:04.760] We're not letting problems find us.
+- [01:26:06.400] And that's the most important thing about being on a submarine
+- [01:26:09.540] is just continuously keeping yourself at your top.
+- [01:26:15.380] Gus Gazda: Onboard a submarine trust
+- [01:26:16.620] is incredibly important because of how small the crew is,
+- [01:26:20.390] and we must be able to count on each person
+- [01:26:24.290] to contribute their fullest for us
+- [01:26:26.700] to safely get home at the end of our mission.
+- [01:26:29.600] Male Speaker: There you go, I thought maybe you did.
+- [01:26:32.570] Gus Gazda: The days are long and hard
+- [01:26:34.080] whenever you're underway for months at a time.
+- [01:26:36.530] Dakota Meyer: It's the sacrifice that we make by
+- [01:26:38.580] having to go away for long periods of time
+- [01:26:40.710] without communications.
+- [01:26:41.970] Justin Smith: I'm away from my wife.
+- [01:26:43.200] I've been away from her for a lot of time
+- [01:26:45.300] and she also makes sacrifices too,
+- [01:26:47.430] sometimes greater than mine
+- [01:26:48.870] Dakota Meyer: Our whole job is strategic deterrence
+- [01:26:50.940] and not being found
+- [01:26:52.230] and not leaving a bread trail for someone to find us.
+- [01:26:56.090] Gus Gazda: But you know
+- [01:26:57.370] that you're doing something important.
+- [01:26:58.790] The thing that gives me a drive on a day-to-day basis
+- [01:27:01.460] is the fact that there's a real purpose
+- [01:27:03.390] to what we do each and every day.
+- [01:27:06.290] Male Speaker: And at the end of that ship,
+- [01:27:07.670] you're going to see a U.S. Flag flying and understand
+- [01:27:10.490] that this is the United States there,
+- [01:27:12.760] not just the United State's Navy,
+- [01:27:14.540] that our sovereignty is being projected there.
+- [01:27:24.960] Jocko Willink: The Navy and Marine Corps team
+- [01:27:27.160] is unstoppable.
+- [01:27:29.160] We project power around the world
+- [01:27:32.010] and we do it however we want.
+- [01:27:35.410] We work hard so that we are ready.
+- [01:27:38.170] Ready to defend our nation, ready to defend freedom
+- [01:27:42.560] and ready to project not just power,
+- [01:27:45.500] but hope throughout the world.
+- [01:27:47.560] That is what we do, that is what we do every day
+- [01:27:50.530] as part of the Navy and Marine Corps team,
+- [01:27:53.040] and that is why it is an absolute honor to serve.
+- [01:28:03.480] The Vice President: Boldness in action,
+- [01:28:05.300] unity in purpose,
+- [01:28:07.260] and a lightning readiness to go wherever the nation required.
+- [01:28:11.870] And battle after battle, the United States Marine Corps
+- [01:28:15.290] has broken the backs of empires, toppled tyrants,
+- [01:28:19.380] and hunted down America's foes across the seven seas.
+- [01:28:22.430] It reminded me why I'm so proud to have worn the uniform,
+- [01:28:28.660] to be one among your ranks, and to be the very first vice
+- [01:28:32.520] President to have been a United States Marine.
+- [01:28:35.750] The world keeps changing.
+- [01:28:37.990] The nation will forever need the United States Marine Corps.
+- [01:28:45.950] Jocko Willink: I had the honor of seeing Marines in action,
+- [01:28:50.590] real action.
+- [01:28:53.040] I saw with my own eyes the glory that is the Marine Corps.
+- [01:29:02.140] On many occasions, Marines aggressively answered the call
+- [01:29:08.330] and provided QRF and fire support that crushed the enemy
+- [01:29:13.450] and got my SEALs out of some pretty rough spots.
+- [01:29:17.330] And there is no doubt, no doubt that the lessons that we learned
+- [01:29:21.950] from those Marines made us more lethal and kept us alive.
+- [01:29:34.590] The Vice President: No matter where,
+- [01:29:35.830] no matter when,
+- [01:29:37.130] the Corps will always uphold its reputation for discipline
+- [01:29:40.830] and for unshakable focus.
+- [01:29:45.770] Our motto, Marines, is Semper Fidelis,
+- [01:29:48.740] which means always faithful.
+- [01:29:51.660] Though the shape of the battlefield will change,
+- [01:29:54.230] our nation will be just fine.
+- [01:29:56.560] So long as fellow Marines just like you remain faithful
+- [01:30:00.360] to that great Marine Corps legacy.
+- [01:30:05.570] Secretary Phelan: Be a man of principle.
+- [01:30:07.470] Fight for what you believe in.
+- [01:30:09.450] Live with integrity. Lead from the front.
+- [01:30:13.080] Be valorous on the field of battle
+- [01:30:15.450] and take responsibility for your actions.
+- [01:30:18.740] That is what it means to be a Marine.
+- [01:30:33.210] Jocko Willink: Despite all the people that fear
+- [01:30:36.500] the rise of evil in the world,
+- [01:30:39.960] despite all the people that are concerned
+- [01:30:43.170] about the future of freedom, and despite all the people
+- [01:30:47.510] that are concerned about the fate of our great nation,
+- [01:30:52.740] I can tell you this, I am not concerned at all.
+- [01:31:02.270] Because I know, there are some men,
+- [01:31:06.440] there are a few good men and women called Marines.
+- [01:31:13.760] And I know that you will never back down.
+- [01:31:17.820] I know, that you'll never surrender.
+- [01:31:20.370] I know you will uphold the ideals of this blessed country.
+- [01:31:26.520] And I KNOW that with fire, and steel, and sweat, and blood,
+- [01:31:35.020] you, every one of you, will uphold, the heroic ideals
+- [01:31:41.820] of the United States Marine Corps!
+- [01:31:46.660] The Vice President: So from one Vice President
+- [01:31:48.660] to an incredible United States Marine Corps,
+- [01:31:51.610] keep kicking ass, keep taking names.
+- [01:31:54.010] Semper Fidelis Marines, happy 250th birthday.
+- [01:31:58.060] Jocko Willink: Happy birthday, guns up, Semper Fi!
+- [01:34:19.860] No greater love exists
+- [01:34:22.070] than to lay down your life for your teammate.
+- [01:34:25.220] That bond, that commitment defines the Navy,
+- [01:34:29.840] the Marine Corps, and all who serve.
+- [01:34:32.930] Today, we honor the fallen whose courage and sacrifice
+- [01:34:37.270] built the legacy that we carry on.
+- [01:34:41.120] Our history is written in valor, remembrance,
+- [01:34:45.470] and in a song that echoes through generations.
+- [01:34:50.140] Up next, midshipmen from the Naval Academy
+- [01:34:53.920] offer a solemn rendition of Eternal Father,
+- [01:34:57.300] Strong to Save,
+- [01:34:58.920] a hymn that carries our pride and enduring spirit.
+- [01:35:03.650] ♪ (Choir Singing) ♪
+- [01:37:47.760] Male Speaker: Today's a special day
+- [01:37:48.960] because we just commissioned a couple hundred war dogs
+- [01:37:52.940] right here in front of you on this gorgeous Saturday morning.
+- [01:37:56.490] But that's not why today's a great day.
+- [01:37:58.990] Today's the great day because we live
+- [01:38:01.130] in the greatest country in the world,
+- [01:38:03.300] the United States of America.
+- [01:38:05.430] Charles Nash: I joined the Marine Corps
+- [01:38:06.700] because I wanted to serve my country.
+- [01:38:08.740] I wanted be a part of something bigger than myself
+- [01:38:11.270] and I felt that military service
+- [01:38:12.710] was a great way to give back to the nation
+- [01:38:14.370] that's given so much to many of us.
+- [01:38:16.510] Female Speaker: Good luck, Godspeed, and Semper Fidelis.
+- [01:38:26.200] Charles Nash: To all who shall see these presents, greeting!
+- [01:38:28.170] Multiple Speakers: Greeting!
+- [01:38:33.880] Piper Wash: I joined the Navy because my grandfather served
+- [01:38:36.250] and my brother is currently in the Navy.
+- [01:38:38.140] And I really look up to him as two of my biggest role models
+- [01:38:40.700] and I just wanted to serve my country.
+- [01:38:46.120] David Edeh: A lot of new recruits come here
+- [01:38:47.520] and they don't really know what the purpose is.
+- [01:38:49.040] You're going to discover something which will then
+- [01:38:51.050] imbue everyone else around you with the spirit to persevere
+- [01:38:54.140] and achieve more in life.
+- [01:39:07.630] Secretary Phelan: Leading the Department of the Navy
+- [01:39:08.900] has taught me a lot about American character.
+- [01:39:11.770] The American character is driven by resilience, ingenuity,
+- [01:39:15.650] and the relentless pursuit of excellence.
+- [01:39:19.010] And we see that every day when we look at our sailors
+- [01:39:22.120] and Marines. So good afternoon Marines.
+- [01:39:26.660] Based on your recent behavior,
+- [01:39:28.690] I needed to tell you this in person.
+- [01:39:30.560] You're being promoted.
+- [01:39:31.880] Congratulations and well deserved.
+- [01:39:36.150] I meet these incredible young men and women
+- [01:39:38.740] who could be doing so many other things
+- [01:39:41.640] and who are serving a higher purpose
+- [01:39:43.610] and it's just inspiring. It's a scary world out there.
+- [01:39:46.770] These people are working very, very hard jobs
+- [01:39:49.880] and with little recognition
+- [01:39:52.210] and we should be very proud and very appreciative of that.
+- [01:39:57.350] We don't offer you an easy job or an easy task,
+- [01:40:01.020] but we offer you a very rewarding one.
+- [01:40:03.430] If people could see what I see in the Navy
+- [01:40:05.710] and Marine Corps every day,
+- [01:40:07.850] the renewed sense of optimism and faith
+- [01:40:10.120] in this country would be incredible.
+- [01:40:29.210] The President: Very special hello
+- [01:40:30.550] to the greatest sailors anywhere in the seas,
+- [01:40:33.270] the incredible men and women of the United States Navy.
+- [01:40:36.970] Very special people. Thank you very much.
+- [01:40:40.540] Great honor to be here.
+- [01:40:43.600] I wanted to stop here to share my gratitude
+- [01:40:46.800] to every brave soldier, sailor, and Marine.
+- [01:40:50.550] And it's a true honor to be here
+- [01:40:52.220] with the thousands of our nation's finest sailors
+- [01:40:55.900] at the largest naval facility in the entire world.
+- [01:41:00.560] No enemy will ever even dream of threatening America's Navy.
+- [01:41:04.030] There's no Navy even close.
+- [01:41:06.160] From the American Revolution until today,
+- [01:41:08.650] the story of the U.S. Navy is a tale of loyalty sacrifice
+- [01:41:12.830] and commitment stretching back 250 years.
+- [01:41:17.520] We will protect our liberty, uphold our values,
+- [01:41:21.620] and defend our home.
+- [01:41:25.610] Today we pay tribute to Britt's heroic service
+- [01:41:28.710] and we proudly present him our nation's highest honor.
+- [01:41:32.650] In every era of conflict,
+- [01:41:34.020] the Navy has never failed to hunt, kill, and to win.
+- [01:41:37.280] You are a powerful warning to the world
+- [01:41:39.560] to never strike American soil.
+- [01:41:41.640] You are warning that everybody knows about,
+- [01:41:44.440] and nobody wants to play with.
+- [01:41:48.510] Damn the torpedoes, full speed ahead.
+- [01:41:57.180] (Chanting "U.S.A.").
+- [01:42:03.575] ♪ (Patriotic Military Band Music) ♪
+- [01:45:55.520] Voice of Franklin Roosevelt: Yesterday, December 7, 1941,
+- [01:46:01.880] a day which will live in infamy.
+- [01:46:05.670] ♪ (Patriotic Military Band Music) ♪
+- [01:47:03.130] Male Speaker: Tonight, the battle has been joined.
+- [01:47:06.430] ♪ (Intense Military Band Music) ♪
+- [01:49:04.100] Voice of Ronald Reagan: Strengthened by their courage,
+- [01:49:06.310] heartened by their value, and born by their memory,
+- [01:49:09.270] let us continue to stand for the ideals
+- [01:49:12.790] for which they lived and died.
+- [01:49:15.530] ♪ (Military Band Choir) ♪
+- [01:50:05.815] ♪ (Singing the Battle Hymn of the Republic) ♪
+- [01:53:04.650] Jocko Willink: Here's to another 250 years.
+- [01:53:07.950] The greatest country in the world,
+- [01:53:09.910] defended by the greatest fighting force
+- [01:53:12.090] the world has ever known. I've seen it with my own eyes.
+- [01:53:16.990] The courage, dedication, and tenacity
+- [01:53:20.110] of the men and women who serve in the U.S. Military.
+- [01:53:23.980] They dedicate their lives
+- [01:53:25.270] to something bigger than themselves.
+- [01:53:27.310] A mission, a team, a nation. Freedom is not free.
+- [01:53:32.230] It is earned again and again and again
+- [01:53:35.440] by those who came before us
+- [01:53:37.200] and by those who stand the watch today.
+- [01:53:39.390] Because of them, we live in a country
+- [01:53:41.300] that inspires the world, a country worth defending.
+- [01:53:45.050] This is their legacy. This is our responsibility.
+- [01:53:48.880] And this is the Navy and Marine Corps.
+- [01:53:52.330] Ready, relentless and unbroken today,
+- [01:53:56.250] tomorrow and for another 250 years.
+- [01:54:04.880] ♪ (Patriotic orchestral music) ♪

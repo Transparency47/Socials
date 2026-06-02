@@ -1,0 +1,1053 @@
+<!-- source: https://www.youtube.com/watch?v=mRBy-v6mn08 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: mRBy-v6mn08 -->
+<!-- date_published: 2025-08-25T17:40:03+00:00 -->
+<!-- date_accessed: 2026-06-02T02:45:17.542531+00:00 -->
+
+# Transcript: President Trump Participates in a Bilateral Meeting with the President of the Republic of Korea
+
+- [00:05.672] The President: That's a big crowd.
+- [00:07.006] This is a very large crowd.
+- [00:09.843] You get more than most countries, I have to say.
+- [00:12.045] This is very good crowd of the media.
+- [00:18.585] It's an honor to be with President Lee of South Korea.
+- [00:24.791] We've known each other and gotten along very well.
+- [00:27.694] We have some additional trade
+- [00:30.296] because I hear they want to renegotiate the deal,
+- [00:32.031] but that's okay. I don't mind that.
+- [00:35.034] That doesn't mean they're going to get anything,
+- [00:36.669] but I don't mind.
+- [00:37.904] But we're going have some very serious discussions
+- [00:40.206] about different things, including trade,
+- [00:44.644] where we do a lot of trade with South Korea, as you know.
+- [00:47.847] We are thinking about contracting some ships.
+- [00:52.585] They build them very well in South Korea.
+- [00:54.120] They're also thinking about coming to our country
+- [00:56.189] with some shipyards to start us
+- [00:58.992] on the process of building ships again.
+- [01:00.994] Do you know, at World War II, we'd build a ship a day,
+- [01:04.964] and today we don't build ships anymore, which is ridiculous.
+- [01:07.333] We're going to start that again.
+- [01:08.935] But we were the -- we were like you.
+- [01:11.204] We were building ships all the time for everybody.
+- [01:13.807] Again. Presidents, and people allowed that to slip by.
+- [01:18.511] And now we buy ships,
+- [01:19.813] but we're going to be buying ships from South Korea.
+- [01:21.881] But we're also going to have them make ships here
+- [01:24.517] with our people, using our people.
+- [01:27.086] And we're gonna go back into the shipbuilding business again,
+- [01:30.423] because really, essentially, we don't build ships anymore,
+- [01:32.926] which is ridiculous how that ever happened.
+- [01:35.762] But we were the best at it.
+- [01:37.497] And you can take a look at World War II,
+- [01:40.300] in particular, where we were doing virtually a ship a day.
+- [01:44.337] And it's hard to believe.
+- [01:45.672] These were tankers and different kinds of ships,
+- [01:47.874] but we were very active.
+- [01:49.409] And you see a lot of those shipyards sitting there idle,
+- [01:52.245] but they're not so idle anymore.
+- [01:53.646] And you're going to come in also,
+- [01:55.215] and you're going to be doing a lot ships in this country.
+- [01:57.951] So I look forward to that.
+- [01:59.552] But we have a lot other trade things here.
+- [02:01.621] A big purchaser of our military equipment.
+- [02:03.590] We make the best military equipment in the world,
+- [02:06.726] and we saw that recently with the --
+- [02:09.496] take a look at what we did with the B-2 bomber,
+- [02:11.865] which you have one right there. They gave that to me.
+- [02:14.000] I guess the company gave that to me, the B2 bomber.
+- [02:16.903] It was so, so successful in what took place
+- [02:21.307] in the little excursion that we made.
+- [02:23.343] Thirty-six hours, and it wiped out the --
+- [02:27.981] nobody has ever seen a thing like it.
+- [02:29.449] Thirty- six hours back and forth.
+- [02:31.818] Not a -- not a thing went wrong. Not a screw was missing.
+- [02:35.221] Not a bolt was missing, not a plane had --
+- [02:38.024] not even a little bit of a problem.
+- [02:40.293] And we actually had 52 tankers. We had many planes.
+- [02:43.863] But, you know, you looked at the B-2,
+- [02:45.398] the way they handled that.
+- [02:47.033] Every single bomb hit its target.
+- [02:49.235] So they understand that we make
+- [02:50.436] the best military equipment in the world.
+- [02:51.971] And South Korea is a big buyer of military equipment.
+- [02:55.308] And we're going to talk about that also.
+- [02:58.011] And we have many things to talk about, and I look forward to it.
+- [03:00.647] And it's a great honor to be with you.
+- [03:02.348] And congratulations on your election.
+- [03:04.651] That was a big one. And we're with you 100 percent.
+- [03:07.320] Thank you.
+- [03:08.555] Female Speaker: (speaking Korean)
+- [05:23.523] President Lee: (speaking Korean)
+- [05:47.013] Translator: Mr. President, let me begin by thanking you
+- [05:49.082] on behalf of the Korean people. I would like to thank you
+- [05:51.684] for giving your time for today's meeting.
+- [05:54.554] And I heard that you recently redecorated the Oval Office.
+- [05:58.057] And I would just like to say
+- [05:59.726] that it looks very bright and beautiful,
+- [06:02.095] and it has the dignity of America,
+- [06:05.098] and it symbolizes the new future and prosperity of America.
+- [06:10.470] President Lee: (speaking Korean)
+- [06:32.458] Translator: I believe that making America great again
+- [06:34.727] is your goal, and I believe that that is
+- [06:37.330] what is currently taking place in America.
+- [06:39.799] And I think the most symbolic thing of that
+- [06:42.235] is the Dow Jones Index,
+- [06:43.536] which reached a record high recently,
+- [06:45.371] although it went down a bit, but it reached a records high.
+- [06:48.307] And so I think that America is becoming great again.
+- [06:51.611] President Lee: (speaking Korean)
+- [07:03.356] Translator: So I believe that there is
+- [07:04.657] a renaissance taking place,
+- [07:06.392] not only in the shipbuilding sector,
+- [07:08.628] but also in the manufacturing industry.
+- [07:10.863] And I hope that Korea can be a part of that renaissance.
+- [07:14.600] President Lee: (speaking Korean)
+- [07:30.049] Translator: And one thing that I wanted to say to you
+- [07:32.552] is that America's role not as a keeper of peace,
+- [07:37.490] but a maker of peace is emerging more evidently.
+- [07:44.597] President Lee: (speaking Korean)
+- [07:56.609] Translator: Many wars in Europe, in Asia, in Africa,
+- [07:59.846] and in the Middle East are of coming to peace
+- [08:02.982] because of the role that you are playing.
+- [08:05.718] President Lee: (speaking Korean)
+- [08:14.994] Translator: So among the many world leaders,
+- [08:16.963] I believe that you are the only leader
+- [08:18.965] who has made such a great contribution
+- [08:28.007] to the world.
+- [08:45.992] And I would like to mention
+- [08:47.393] that the only remaining divided nation in the world
+- [08:53.399] is the Korean Peninsula.
+- [08:55.101] And I'd like to ask for your role
+- [08:56.869] in establishing peace on the Korean peninsula.
+- [08:59.505] So I look forward to your meeting
+- [09:01.574] with Chairman Kim Jong-un and construction of Trump Tower
+- [09:06.646] in North Korea and playing golf at that place.
+- [09:10.016] President Lee: (speaking Korean)
+- [09:14.086] Translator: I believe he will be waiting for you.
+- [09:16.455] President Lee: (speaking Korean)
+- [09:36.208] Translator: Korea was able to attain economic growth
+- [09:38.744] and development through our Ironclad Alliance.
+- [09:41.714] And going forward, I hope to develop our alliance
+- [09:44.317] into a future-oriented alliance
+- [09:46.285] that encompasses areas not only limited to security,
+- [09:49.755] but also the economy and science and technology.
+- [09:52.758] President Lee: (speaking Korean)
+- [10:00.900] Translator: The Korean people have great expectations
+- [10:02.468] for you, Mr. President.
+- [10:03.703] Thank you once again for your time.
+- [10:05.271] The President: Well, thank you very much.
+- [10:06.572] It's an honor to be with you. I will say that Kim Jong-un
+- [10:11.210] and I had a very good relationship,
+- [10:12.712] as you remember, and still do.
+- [10:15.348] And when I came in, I didn't know him.
+- [10:18.918] We had two summits, but we became very friendly.
+- [10:24.423] Respect. It was great respect.
+- [10:26.659] And it was not going to be that way
+- [10:28.194] had Hillary Clinton won the election.
+- [10:31.197] It would have been a disaster.
+- [10:33.232] But we think we can do something in that regard
+- [10:36.335] with respect to North and South,
+- [10:38.170] and I think you are much more prone to doing
+- [10:40.573] that than other leaders that I've been working with
+- [10:43.509] from South Korea. And we'll work on that.
+- [10:46.512] I think it's very good to work on it.
+- [10:48.080] If you remember, you were doing the Olympics,
+- [10:50.716] and there was a great time of hostility with North Korea,
+- [10:53.886] and you weren't selling tickets
+- [10:56.822] because nobody wanted to be blown up in the stadium
+- [10:59.025] during the opening ceremonies, right?
+- [11:01.460] And you were not selling tickets.
+- [11:03.195] And I was also, at my formative stage
+- [11:05.765] with North Korea and Kim Jong-un.
+- [11:08.968] And we were a little bit going at it
+- [11:12.671] about rocket man, little rocket man,
+- [11:15.207] everything back and forth. And it was really nasty.
+- [11:17.510] And then I got a call one day, and they wanted to get together.
+- [11:21.547] They wanted to talk. And we started talking.
+- [11:24.183] And then he said really brilliantly,
+- [11:26.485] he said, you know,
+- [11:27.787] the Olympics is going to be opening very soon,
+- [11:31.257] and we'd like to be a part of it.
+- [11:32.525] They actually put teams in it. You got along great.
+- [11:35.194] And, by the way, immediately upon that phone call,
+- [11:38.464] you started selling tickets,
+- [11:39.832] and it turned out to be a tremendous success.
+- [11:42.134] So it went from being empty stadiums
+- [11:43.803] because people were afraid to go
+- [11:45.471] because it was a target, potentially, to a great success.
+- [11:49.208] And I was very proud of that.
+- [11:50.776] You had one of the most successful Olympics,
+- [11:53.245] and now we have the Olympics coming to the U.S.
+- [11:56.449] So we're very happy about that.
+- [11:57.850] But that was a great honor to get involved
+- [11:59.919] and make the Olympics so successful.
+- [12:02.254] Female Speaker: (speaking Korean)
+- [13:32.945] President Lee: (speaking Korean)
+- [14:00.739] Translator: Mr. President,
+- [14:02.074] you mentioned about Chairman Kim.
+- [14:04.043] And thanks to your efforts,
+- [14:06.111] when you were in office during your first term,
+- [14:08.647] the situation on the Korean Peninsula was stable.
+- [14:11.817] But during the hiatus where you were out of office,
+- [14:16.188] North Korea developed further its nuclear
+- [14:19.058] and missile capabilities.
+- [14:20.826] And that led to a deterioration on the situation
+- [14:23.729] of the Korean peninsula.
+- [14:24.997] The President: And they wouldn't have done that.
+- [14:27.032] They would not have done that if I were president.
+- [14:30.769] It was not going to happen.
+- [14:36.909] Translator: I completely agree with you.
+- [14:38.644] President Lee: (speaking Korean)
+- [14:54.193] Translator: So when Kim Yo-jong,
+- [14:56.428] the deputy director of the Workers' Party of Korea,
+- [14:59.732] issued a statement denouncing South Korea,
+- [15:04.570] she mentioned about the not bad relationship
+- [15:08.340] between you and Chairman Kim Jong-un.
+- [15:10.843] And I believe that this is a sign
+- [15:12.344] that North Korea is waiting.
+- [15:14.246] President Lee: (speaking Korean)
+- [15:17.483] Translator: So I hope that you will usher in a new era of peace
+- [15:20.753] on the Korean Peninsula.
+- [15:22.755] The President: I will do that and we'll have talks.
+- [15:25.391] He'd like to meet with me.
+- [15:27.559] He didn't want to meet with Biden
+- [15:29.094] because he had no respect for Biden.
+- [15:31.363] But we look forward to meeting with him,
+- [15:32.831] and we will make relations better.
+- [15:35.801] You'll help that -- you had a lot of leaders.
+- [15:39.305] I've gone through a lot of leaders in South Korea.
+- [15:42.875] You know, it's been quick. You'll be there for a long time.
+- [15:46.245] But we, in the various leaders that I've dealt with
+- [15:49.448] and they were not approaching it properly,
+- [15:52.084] in my opinion, having to do with North Korea.
+- [15:54.353] But I think your approach is a much better one.
+- [15:58.023] Female Speaker: (speaking Korean)
+- [16:16.975] President Lee: (speaking Korean)
+- [16:36.495] Translator: So resolving this issue through my engagement
+- [16:39.331] is not an easy thing.
+- [16:41.266] And the only person that can make progress on this issue
+- [16:45.871] is you, Mr. President.
+- [16:51.944] So if you become the peacemaker,
+- [16:54.613] then I will assist you by being a pacemaker.
+- [16:58.984] The President: That's good.
+- [17:00.686] We can do big progress, I think, with North Korea. Absolutely.
+- [17:03.455] Female Speaker: (speaking Korean)
+- [17:04.690] The President: Okay? Thank you very much.
+- [17:10.796] Thank you, very much, good job. Okay, questions, please?
+- [17:15.701] The Press: Mr. President,
+- [17:17.002] when you met with Russian President Vladimir Putin,
+- [17:19.338] how soon did he say that he wanted to sit down
+- [17:22.141] with Ukrainian President Zelensky?
+- [17:23.675] Russia, as of now, says there's no meeting on the books
+- [17:25.811] and no agenda is set.
+- [17:27.012] The President: Well, that's going to be up to them.
+- [17:28.414] It takes two to tango, I always say it.
+- [17:30.749] And they should meet, I think, before I have a meeting
+- [17:34.453] and probably close the deal.
+- [17:36.455] But I think it's appropriate they meet.
+- [17:37.990] They do not exactly get along well, as you can understand.
+- [17:41.627] And I'm sure it's a meeting that perhaps he didn't like,
+- [17:45.564] but he wasn't happy about coming to the United States either.
+- [17:48.600] That was a big concession, and I appreciate the fact that he did.
+- [17:53.672] You know, I've always had a very good relationship
+- [17:56.341] despite a fake Russia, Russia, Russia haunt that we had.
+- [18:00.312] But we've always had a great relationship,
+- [18:02.047] very good relationship, strong relationship with Russia.
+- [18:05.484] That's a good thing, not a bad thing by the way,
+- [18:07.152] that's a very good thing.
+- [18:08.620] And it's good to get along with Kim Jong-un
+- [18:10.656] and it's going to get along with everybody
+- [18:12.724] including President Lee.
+- [18:15.093] It's good to get along and I get along with the foreign leaders.
+- [18:17.496] You see that with the --
+- [18:19.465] the biggest group of foreign leaders that we've ever had.
+- [18:22.000] Don't forget, the European Union was here,
+- [18:23.702] also representing a large group of countries just recently.
+- [18:28.273] So I believe that we're going to get that war straightened out.
+- [18:33.579] We're going get it done. I don't know that they'll meet.
+- [18:36.615] Maybe they will, maybe they won't.
+- [18:38.116] They'd like me to be at the meeting.
+- [18:39.485] I said, You guys ought to work it out.
+- [18:41.854] It's between you. It's not us. Now, in the meantime,
+- [18:44.590] we're not spending any money on, as you know, on Ukraine.
+- [18:47.759] We're selling military equipment to NATO.
+- [18:50.929] NATO now is taking in -- excuse me --
+- [18:53.899] NATO now is taking a large amount of money
+- [18:57.202] from the countries.
+- [18:59.037] They're taking in 5 percent of GDP versus 2 percent.
+- [19:03.342] They're paying the 5 percent. They never paid the 2 percent --
+- [19:05.744] most of them, or a lot of them. NATO has a lot money.
+- [19:09.615] We are selling military equipment to NATO at full price,
+- [19:12.885] and Nato is distributing that equipment to wherever they are.
+- [19:16.188] I mean, perhaps to Ukraine.
+- [19:18.423] So, NATO is working with Ukraine.
+- [19:20.626] Biden was giving hundreds of billions of dollars,
+- [19:23.061] just willy-nilly, just giving money.
+- [19:24.863] He had no idea where it was going.
+- [19:26.899] It was terrible what was happening.
+- [19:28.834] So, we're not involved anymore in terms of the cost.
+- [19:32.204] We're in for $350 billion. As you know,
+- [19:35.574] I also got the rare-earth deal done with Ukraine,
+- [19:39.645] which was worth much more than the $350 billion.
+- [19:42.581] But. I'm not interested in the money so much,
+- [19:45.250] even though we've done a great job in that regard.
+- [19:47.185] I'm interested in that.
+- [19:48.687] I'm interesting in stopping a war where,
+- [19:51.323] last week, 7,109 soldiers died, both Russian and Ukraine.
+- [19:58.697] Such a waste of life and humanity.
+- [20:01.600] They're not from this country.
+- [20:03.402] They're from any other country other than Ukraine,
+- [20:05.938] for the most part, other than Russia.
+- [20:09.575] But it's a very important thing to me to stop it.
+- [20:12.911] I stopped seven wars, wars that were raging.
+- [20:15.781] One for 31 years, the Congo and, as you know, Rwanda.
+- [20:20.953] One for 35 years. I don't have to go into them.
+- [20:24.122] You know the list better than I do.
+- [20:25.891] But we stopped a lot of wars,
+- [20:27.192] including, you think about it, Indian-Pakistan,
+- [20:30.562] which was probably two weeks away from being a nuclear war.
+- [20:33.999] They were shooting down airplanes all over the place.
+- [20:36.902] So I'm very proud of that.
+- [20:38.704] I thought this would be, in many ways, the easiest way.
+- [20:41.039] I have a very good relationship with Putin.
+- [20:42.708] I thought it would be the easiest one to stop,
+- [20:44.943] and it's really not. It's very complex.
+- [20:48.213] It's a very personal, from their standpoint.
+- [20:50.215] There's tremendous dislike, personally, between the two men.
+- [20:53.986] And we're going to have to straighten that out.
+- [20:55.754] But I would like to see them meet first.
+- [20:58.156] They'd like me to be there.
+- [20:59.458] I may be there, I may not. I'll see.
+- [21:02.160] But I wanted them to work out their differences first,
+- [21:04.396] because it is ultimately between them.
+- [21:06.698] And when that happens, I think we'll get an end.
+- [21:11.503] The Press: How long are you willing to let this play out
+- [21:13.605] and if they don't meet will there be consequences
+- [21:15.674] and how soon for Russia?
+- [21:16.942] The President: Yeah, there could be very big consequences,
+- [21:19.144] but we'll see what happens. There might be very consequences
+- [21:21.847] because this is something that has to end.
+- [21:23.949] This war would have never taken place,
+- [21:25.584] and for four years it didn't take place.
+- [21:27.686] But if I were president,
+- [21:28.920] this war would never have taken place.
+- [21:30.989] There has not been a war like this since the Second World War.
+- [21:34.059] This is the biggest thing that's happened
+- [21:36.495] in terms of warfare, wars.
+- [21:38.664] It's a whole new form of fighting.
+- [21:40.065] It's drone fighting. It's the drone war.
+- [21:42.334] No, a drone war never existed before.
+- [21:45.237] And we're actually studying it
+- [21:46.672] from the standpoint of Pete Hegseth and everybody.
+- [21:50.142] We're studying it and studying it very carefully.
+- [21:52.144] This is a whole new form of war. But it's a violent war.
+- [21:56.014] And there has been nothing like this
+- [21:57.549] since the Second World War.
+- [21:59.918] So we'll see what happens over the next week or two.
+- [22:02.187] And at that point, I'll step in very strongly.
+- [22:04.990] And if I have to be there, I will be there.
+- [22:07.592] And we'll either have a deal or we won't.
+- [22:10.996] But a lot of people are dying, and I want to get it stopped.
+- [22:16.835] The Press: Kim Jong-un wants to meet.
+- [22:18.203] When do you want to meet with him?
+- [22:20.038] When the North Korean leader wants to meet,
+- [22:21.573] how soon would you meet?
+- [22:22.874] The President: Yeah, we want to have a meeting.
+- [22:24.109] I'd like to have a meeting." I got along great with him.
+- [22:26.278] You know, you were there. We even had a press conference.
+- [22:29.314] He had his first press conference,
+- [22:30.982] Kim Jong-un had a press conference.
+- [22:33.185] This was a little different press conference.
+- [22:35.887] I said, have you done a press conference before?
+- [22:37.956] No. And you know what? He did great.
+- [22:41.393] It was a great press conference actually.
+- [22:43.128] It was historic. I doubt he's done one since.
+- [22:46.264] But I said would you like to meet the fake news?
+- [22:49.267] Because whatever you want to do, and they came in,
+- [22:51.903] and they come in like you've never seen anything like it.
+- [22:56.408] And then he said, enough. And that was the end.
+- [23:02.547] It ended very rapidly, but I think he had a good time.
+- [23:06.818] I look forward to meeting with Kim Jong-un
+- [23:09.354] in the appropriate future.
+- [23:14.192] The Press: Will you reduce the number of forces
+- [23:15.494] in South Korea so the United States
+- [23:17.362] can have more flexibility in the region?
+- [23:19.264] The President: Say it.
+- [23:20.532] The Press: Would you consider reducing the number
+- [23:22.200] of U.S. Forces in South Korea so that the United State
+- [23:24.503] can have more flexibility in the region?
+- [23:26.071] The President: Well, I want to say that now
+- [23:27.305] because we've been friends and we're friends,
+- [23:29.074] and look, we have a lot of people of the --
+- [23:31.543] we have over 40,000 troops in South Korea.
+- [23:34.446] As you know, South Korea agreed to pay
+- [23:37.482] for that during my last term, and then when Biden came in,
+- [23:40.285] they complained to Biden that I wasn't a nice person,
+- [23:43.155] and he agreed not to pay. He gave up billions of dollars.
+- [23:46.691] We were getting paid billions of dollar.
+- [23:49.361] But then Biden ended that for whatever reason.
+- [23:53.031] It's unbelievable that he did.
+- [23:55.200] But we have a very good relationship, militarily.
+- [23:59.504] They would say, but we gave you land.
+- [24:01.206] I said, no, you didn't. You leased us land.
+- [24:02.941] There's a big difference between giving and leasing.
+- [24:06.178] And maybe one of the things I'd like to do is ask them
+- [24:08.880] to give us ownership of the land where we have the big fort.
+- [24:11.950] You know, we spent a lot of money building a fort.
+- [24:14.519] And there was a contribution made by South Korea.
+- [24:16.755] But I would like to see if we could get rid of the lease
+- [24:19.324] and get ownership of land where we have massive military base.
+- [24:25.030] Okay.
+- [24:27.999] The Press: Thank you, Mr. President.
+- [24:29.434] How are you planning to make --
+- [24:30.836] I also want to ask this question to Mr. President Lee.
+- [24:32.771] The President: Who are you with?
+- [24:33.972] I'm Song Yu-jin. I'm from South Korea's Arirang TV.
+- [24:36.608] Thank you so much. So as mentioned earlier,
+- [24:39.344] United States is South Korea's most important
+- [24:41.346] and closest allies. So in this point of view,
+- [24:43.815] I would like to ask you and also President Lee,
+- [24:46.885] what do you think are the key ways
+- [24:48.386] to make the South Korea-U.S. Alliance greater?
+- [24:52.224] The President: Well, I think it's great now.
+- [24:53.592] You know, I feel very warmly toward South Korea.
+- [24:57.495] I will tell you that I have a lot of people in business
+- [25:01.233] that I deal with that are from South Korea, they love Trump,
+- [25:04.769] because they feel I've saved --
+- [25:06.504] I think you would have had a nuclear war if I weren't --
+- [25:08.707] I think would have a nuclear war in North Korea and South Korea
+- [25:12.644] I think that would have been a disaster.
+- [25:14.412] You're only 60 miles away from Seoul.
+- [25:16.014] They don't even need nuclear.
+- [25:17.282] They have their cannons, you know, Howitzers,
+- [25:19.117] and they have them buried in the mountain.
+- [25:21.019] You know what I'm talking about?
+- [25:22.754] And I think you would have had -- if I didn't --
+- [25:25.523] if I didn't win that election, if Hillary Clinton,
+- [25:28.193] crooked Hillary won that election.
+- [25:29.628] I think he would have been a nuclear war.
+- [25:32.030] It would have taken place and it would have been horrendous
+- [25:34.900] for everybody, including them.
+- [25:37.135] It would've been very bad for them
+- [25:38.370] because we would have to enter the picture
+- [25:41.273] and we are the most powerful nuclear country
+- [25:44.476] in the world by far. Russia's second, China's third,
+- [25:47.045] China is going to catch eventually five
+- [25:49.147] or six years they're working to catch.
+- [25:51.283] One of the things we're trying to do with Russia
+- [25:54.185] and with China is denuclearization.
+- [25:58.623] And it's very important.
+- [26:00.025] One of things I discussed with President Putin the other day,
+- [26:02.694] it wasn't just that, it was also other things.
+- [26:06.197] And I think the denuclearisation is a very -- it's a big aim,
+- [26:11.803] but Russia is willing to do it,
+- [26:13.738] and I think China is going to be willing to it too.
+- [26:16.908] We can't let nuclear weapons proliferate,
+- [26:20.879] we have to stop nuclear weapons. The power is too great.
+- [26:24.182] The Press: Mr. President,
+- [26:25.550] I'd like to ask you a further question
+- [26:27.085] about South Korea and U.S. Alliance.
+- [26:29.587] I'm Anna from the Korea Times.
+- [26:31.323] But I'd love to ask about the trade deal that's on the table.
+- [26:35.560] You mentioned about the shipbuilding industry,
+- [26:37.996] and President Lee mentioned about the manufacturing industry
+- [26:41.499] and what other areas or sectors
+- [26:43.668] that you intend to focus on this trade deal,
+- [26:46.438] because Korea is bringing in many investments
+- [26:49.174] and trade jobs as well.
+- [26:50.775] So I'd to know the -- opinions of both
+- [26:54.379] how to get a beneficial outcomes for both countries for the deal.
+- [26:58.750] The President: Well, we're going to get along great
+- [27:00.652] because we, you know, we really sort of need each other.
+- [27:04.923] We love what they do.
+- [27:06.391] We love their product. We love the ships.
+- [27:08.259] We love a lot of the things that they make.
+- [27:10.695] And they love what we have.
+- [27:12.163] We're dealing with them on Alaska
+- [27:13.898] having to do with the oil. You need oil and we have it.
+- [27:17.702] So we have a big advantage in that way.
+- [27:19.971] We have more oil and gas and coal and energy
+- [27:23.441] than any other country in the world by far.
+- [27:25.910] For whatever reason, God was very good to us.
+- [27:28.580] He gave us the greatest -- we didn't use it.
+- [27:30.215] We started to use wind. Wind doesn't work.
+- [27:33.651] They started to solar panels that took over the land
+- [27:36.154] all over the Midwest, where the farmers said,
+- [27:38.323] What happened to my land?
+- [27:39.891] They'd have a 10-mile-by-10-mile solar field
+- [27:42.861] that they couldn't farm -- the most valuable land,
+- [27:46.698] farming land in the world,
+- [27:47.899] probably the most vibrant in the word.
+- [27:50.135] And they put solar plants all over their place.
+- [27:52.337] It's ridiculous. Big, massive black fields of solar.
+- [27:55.940] That all comes out of China.
+- [27:57.575] Or plastic, all comes out of China.
+- [28:00.378] But we have the greatest amount of energy in the world,
+- [28:05.050] and we're dealing with South Korea,
+- [28:06.484] as you know, and Alaska.
+- [28:08.186] And we're going to be making a deal,
+- [28:09.621] a joint venture with South Korean.
+- [28:11.790] Japan is involved also, very strongly involved.
+- [28:14.793] So we have Japan and South Korea.
+- [28:16.728] And we are actually the closest.
+- [28:19.297] You know, it seems like quite far away.
+- [28:20.665] Alaska and Korea.
+- [28:21.933] But actually, it's right up the little ocean.
+- [28:25.003] Right up the Little Pacific Ocean.
+- [28:27.072] It's actually pretty close, relatively speaking,
+- [28:29.140] but we have more oil and gas and coal
+- [28:32.444] than any other nation in the world by far,
+- [28:34.813] and we're going to use it.
+- [28:36.047] And that's the thing that South Korea,
+- [28:38.016] I think, most wants from us, I would think.
+- [28:42.420] The Press: Would you go back to the DMZ
+- [28:44.823] to meet with the North Korean leader?
+- [28:46.191] The President: Say it.
+- [28:47.425] The Press: Would you back to DMZ
+- [28:48.960] to meet with the North Korea leader?
+- [28:50.295] The President: I loved it.
+- [28:51.529] Remember when I walked across the line
+- [28:53.064] and everyone went crazy?
+- [28:55.166] Especially Secret Service. I would say they were all crazy.
+- [28:58.570] And I looked into those windows. You know, the windows and glass?
+- [29:02.407] That you could only see if you looked direct,
+- [29:04.042] because there was all sorts of stuff.
+- [29:05.443] But I looked in and I saw more rifles
+- [29:07.378] pointing at me than you could.
+- [29:09.080] There were a lot of rifles in that building.
+- [29:11.850] The Secret Service was not happy.
+- [29:13.718] You know the buildings I'm talking about?
+- [29:16.287] The two blue buildings on each side.
+- [29:19.991] And I walked up the middle, and I looked in the window,
+- [29:22.127] and I saw more guns in that room than I've ever seen in my life.
+- [29:25.830] I looked at the other side, and it was the same thing.
+- [29:29.467] And yet, I felt safe. I felt saved
+- [29:31.436] because I have a great relationship with Kim Jong-un.
+- [29:34.706] I hope it stays that way. I think it will.
+- [29:36.774] I have -- I have very good relationship.
+- [29:38.543] I understand him.
+- [29:39.777] I spent a lot of free time with him,
+- [29:41.813] talking about things
+- [29:43.081] that we probably aren't supposed to talk about.
+- [29:46.017] And, you know, I just -- along with them really well.
+- [29:50.054] I think he has a country of great potential,
+- [29:52.323] tremendous potential.
+- [29:53.625] The Press: Is it possible you'll meet him this year
+- [29:55.593] or maybe next year?
+- [29:56.828] The President: Well, I'm meeting a lot of people.
+- [29:58.796] I mean, it's hard to say that,
+- [30:00.598] but I'd like to meet him this year.
+- [30:03.635] President Xi would like me to come to China.
+- [30:06.404] It's a very important relationship.
+- [30:08.973] As you know, we're taking a lot money in from China
+- [30:11.876] because of the tariffs and different things.
+- [30:14.012] And it's a very important relationship.
+- [30:16.814] We're going to get along good with China.
+- [30:18.950] I hear so many stories about,
+- [30:20.218] we're not going to allow their students,
+- [30:21.986] we're going to let their students to come in.
+- [30:23.955] We're going allow, it's very important, 600,000 students.
+- [30:27.125] It's very important, but we're going to get along with China.
+- [30:30.161] But it's a different relationship
+- [30:31.696] that we have now with China,
+- [30:32.897] it's much better relationship economically than it was before.
+- [30:36.634] With Biden, boy, what he allowed that,
+- [30:39.270] I mean, they just took him to the cleaners.
+- [30:41.005] You know the expression? They took him the cleanest.
+- [30:44.108] I'm sure they have an equal expression in South Korea,
+- [30:46.511] but -- but they took that guy out for a ride,
+- [30:49.547] like nobody's ever been ridden before. Terrible.
+- [30:52.650] But we have a very strong relationship, Howard,
+- [30:55.753] I would say, economically, with China now, getting much better.
+- [31:00.158] They have to give us magnets. If they don't give us magnet,
+- [31:03.328] then we have to charge them 200 percent tariff or something.
+- [31:06.564] You know? But we're not going to have a problem,
+- [31:08.733] I don't think, with that.
+- [31:10.535] I think that's perhaps behind us.
+- [31:12.537] You know, China intelligently went on the --
+- [31:15.039] sort of took a monopoly of the world's magnets.
+- [31:18.009] And nobody needed magnets until they convinced everybody
+- [31:20.812] 20 years ago, let's all do magnets.
+- [31:22.780] There were many other ways that the world could have done.
+- [31:25.049] But so far, it'll take us probably a year to have them.
+- [31:29.053] We're heavy into the world of magnets now,
+- [31:31.356] only from a national security standpoint.
+- [31:33.858] But we have a powerful thing. It's airplane parts.
+- [31:38.363] They have many Boeing jets.
+- [31:39.964] You know, they had 200 jets that didn't fly.
+- [31:42.800] And I've sent them all, based on his word.
+- [31:46.004] I sent them, all of the parts, so their planes can fly.
+- [31:50.041] I could have held them back.
+- [31:51.309] I didn't do that because of the relationship I have.
+- [31:54.646] And their planes are now flying.
+- [31:56.547] You know, we had 200 of their planes were unable to fly
+- [32:00.418] because we were not giving them
+- [32:02.320] Boeing parts purposely, because they weren't giving us magnets.
+- [32:05.823] Therefore, we weren't given them.
+- [32:07.225] But we have a much more powerful thing that's tariffs. We
+- [32:10.628] If we want to put 100 percent, 200 percent tariffs on it,
+- [32:13.464] we wouldn't do any business with China.
+- [32:15.800] And, you know, it would be okay, too, if we had to.
+- [32:18.102] But the magnet situation,
+- [32:21.205] we have tremendous power over them,
+- [32:22.740] and they have some power over us with magnets.
+- [32:24.409] We're going to have a lot of magnets
+- [32:26.177] in a pretty short period of time.
+- [32:28.513] In fact, we'll have so many, we won't know what to do with them.
+- [32:30.915] But you know the story.
+- [32:33.084] It's a very interesting history with magnets,
+- [32:35.086] and it really is because the President's,
+- [32:37.622] not being business people, they allowed that to happen.
+- [32:40.958] And they shouldn't have. But we have much more.
+- [32:44.929] I mean, look, in terms of playing the cards, we have --
+- [32:47.465] we have bigger and better cards than they do.
+- [32:50.034] But with that being said,
+- [32:51.302] I think we have a great relationship.
+- [32:53.037] I spoke to President Xi fairly recently.
+- [32:55.773] And at some point, probably during this year
+- [32:57.775] or shortly thereafter, we'll go to China.
+- [33:00.211] And I think, we're going to see a magnificent site.
+- [33:02.947] It's a great country.
+- [33:04.215] The Press: You and President Lee
+- [33:06.718] actually are planning to go to China.
+- [33:08.653] You've mentioned either this year or next year.
+- [33:10.755] Could you please share more details about your plans
+- [33:13.458] going to China and also President Lee?
+- [33:15.893] The President: Well, maybe we'll go together.
+- [33:17.261] Do you want to go together? We can share a plan.
+- [33:18.963] We'll save energy. We'll save --
+- [33:21.599] we'll save a little, you know, the ozone, the ozone layer.
+- [33:26.671] Remember, President Obama used to talk about the ozone layer,
+- [33:30.641] and then he'd fly to Hawaii to play a round of golf in the 747.
+- [33:35.580] The Press: Would you accept the invitation with --
+- [33:38.249] Female Speaker: (speaking Korean)
+- [33:41.853] The President: Well, it was sort of a joke,
+- [33:44.055] but if you want, you can --.
+- [33:48.059] Translator: I would like to go with -- .
+- [33:52.430] The President: If you want to go
+- [33:53.631] I'm going to get special permission.
+- [33:55.233] I'm sure you can do it.
+- [33:56.434] But we're going to have a great relationship with China.
+- [33:59.971] I mean, it's happening. You see it. It's happening
+- [34:04.509] They have some cards. We have incredible cards.
+- [34:07.111] But I don't want to play those cards.
+- [34:09.180] If I played those cards that would destroy China,
+- [34:11.349] I'm not going to play those cards.
+- [34:12.750] The Press: Mr. President, on the National Guard,
+- [34:14.285] you've talked a lot about Democratic-run cities
+- [34:15.853] and states.
+- [34:17.054] Would you also consider sending the National Guard
+- [34:19.424] into red states and red cities that are also seeing high crime?
+- [34:22.527] The President: Sure, but there aren't that many of them.
+- [34:24.762] If you look at the top 25 cities for crime,
+- [34:29.333] just about every one of those cities is run by Democrats.
+- [34:32.804] And you know, one of the bad things they did, cashless bail,
+- [34:35.206] if you look back on time,
+- [34:37.208] when they allowed a murderer out that afternoon,
+- [34:40.144] you know he'd kill somebody,
+- [34:41.512] and then a couple of hours later,
+- [34:43.014] he's walking the streets again,
+- [34:44.315] oftentimes killing again rapidly.
+- [34:47.118] Cashless bail is a disaster.
+- [34:48.653] You saw we had a news conference today on that.
+- [34:50.455] We're wiping it out in D.C. Immediately wiping it out.
+- [34:55.526] It started in New York, I must tell you.
+- [34:58.329] And it's been a horrible thing for crime,
+- [35:01.933] especially violent crime.
+- [35:03.468] So we're going to end cashless bail.
+- [35:04.969] Yes.
+- [35:08.172] The Press: When will you deploy to Chicago
+- [35:09.941] and how long are you keeping troops here in Washington, D.C.?
+- [35:14.979] The President: I really want to be appreciated.
+- [35:16.447] You know, when we go into a city and wipe out the crime.
+- [35:19.317] So, D.C., it sounds so horrible.
+- [35:21.853] I'm embarrassed to say it in front of you,
+- [35:23.387] because they don't have anything like this.
+- [35:26.023] Washington, D.C., sir, has not had a murder in 11 days.
+- [35:30.862] Now, he's saying that's a horrible thing to hear,
+- [35:34.465] because they're going to have murders forever.
+- [35:37.935] But Washington, D.C., if you go back and check.
+- [35:42.106] It's been many years since we went a week
+- [35:44.842] without having a murder.
+- [35:46.577] Now we haven't had -- and I would say that Washington,
+- [35:49.514] D.C., right now is much safer than Seoul.
+- [35:53.751] You know why? Because we have a friendly neighbor.
+- [35:56.554] We have more friendly neighbors.
+- [35:57.955] You have a different kind of problem.
+- [35:59.323] We all have different problems.
+- [36:01.092] But Washington, D.C., is a very safe city right now.
+- [36:04.562] People are going out to dinner. Restaurants are opening.
+- [36:07.498] Restaurants that were going to close
+- [36:08.733] are now going to stay open.
+- [36:11.335] Friends of mine are going out to dinner all the time.
+- [36:13.237] They didn't go out to diner for four years.
+- [36:15.106] It went rampant during the Biden years.
+- [36:18.309] By just rampant. That's why it --
+- [36:21.846] Suzy is very close to the mayor
+- [36:23.948] and has a lot of respect for her.
+- [36:25.182] But I view it maybe a little differently
+- [36:27.752] because the mayor would say that it's gotten better.
+- [36:30.521] For 30 years, it's got better. No, it has gotten worse.
+- [36:33.591] And the worst day of all
+- [36:35.092] was when we just got to office for the second time.
+- [36:38.629] And it's in very bad shape. So the mayor shouldn't be saying
+- [36:41.732] that violent crime has been getting better.
+- [36:44.969] It's been getting much worse.
+- [36:46.971] And the day I took office, it was the worst.
+- [36:49.140] And we did some minor things, made it a little bit better.
+- [36:51.943] But then we said, look, we got to stop it
+- [36:53.544] because too many people are getting killed.
+- [36:55.513] And we have not had a murder in 11 days. It sounds crazy.
+- [36:59.917] I hate to say this in front of this gentleman, who I respect,
+- [37:02.753] because they don't have murders for years.
+- [37:05.156] But we have no had a murderer in 11 days.
+- [37:08.426] And that's going to go on for a long time.
+- [37:10.828] And there will be, I guess, it'll happen a little bit.
+- [37:13.130] But we have a very safe city.
+- [37:15.366] This is one of the safer cities right now in the country.
+- [37:18.302] And in a short period of time, it will be like the border.
+- [37:20.771] Nobody came in through our border
+- [37:22.673] for the last 90 days, three months.
+- [37:24.875] We had zero illegal aliens from the Congo,
+- [37:28.913] from South America, from all over the world,
+- [37:31.983] from prisons coming in, pouring into our country.
+- [37:34.852] Nobody, not one person.
+- [37:37.088] And this is done by a liberal group, a liberal think tank.
+- [37:39.690] They do the work.
+- [37:40.958] Not one person has come into our country.
+- [37:43.194] Think of that. It's been amazing.
+- [37:45.296] And I didn't have to go back to Congress and ask --
+- [37:47.898] Biden could have done this by himself.
+- [37:49.533] I did. I said, close the borders.
+- [37:51.469] We had the great Tom Homan. We had Kristi, as you know.
+- [37:54.672] Kristi Noem, who did a fantastic job.
+- [37:57.308] She's doing a fantastic, job.
+- [37:59.777] Pete Hegseth has been -- incredible with the,
+- [38:03.481] as I call it, the Department of War.
+- [38:05.316] You know, we call it the Department of Defense,
+- [38:06.951] but between us, I think we're going to change the name.
+- [38:08.853] You want to know the truth?
+- [38:10.154] I think we're going to have some information on that, maybe soon.
+- [38:13.524] But I think because, you know, Department of Defense.
+- [38:17.261] We won the World War I, World War II.
+- [38:20.965] It was called the Department Of War.
+- [38:23.167] And to me, that's really what it is.
+- [38:27.271] Defense is a part of that.
+- [38:29.273] But I have a feeling we're going to be changing.
+- [38:32.143] I'm talking to the people. Everybody likes that.
+- [38:34.845] We had an unbelievable history of victory
+- [38:37.748] when it was Department of War.
+- [38:39.316] Then we changed it to Department of Defense.
+- [38:40.985] So that's a little thing.
+- [38:42.553] Has nothing to do with your country,
+- [38:44.055] but it's something that I think you're going to be hearing about
+- [38:47.391] or seeing about over the next couple of weeks.
+- [38:49.493] Probably that change is going to remain over the week or so.
+- [38:52.797] The Press: (inaudible)
+- [38:55.232] or one Korea waiting to be unified?
+- [38:57.101] The President: Well, I know it as two Koreas.
+- [38:58.536] I mean, I just -- you know, there was one Korea.
+- [39:00.404] It was a very large country and a very powerful country.
+- [39:04.408] And it was a country that went to war with China.
+- [39:06.544] President Xi explained it.
+- [39:08.512] Went to war China many times over the last 2,000 years.
+- [39:12.483] You had many -- I think he told me 51 times.
+- [39:15.519] So I remember I went to President Xi
+- [39:18.155] and said, you know, we're having a problem with North Korea.
+- [39:22.326] Straighten it out, would you please?
+- [39:23.828] He said, well, we have been to war with them.
+- [39:27.098] And I think he said 51 times.
+- [39:29.300] But at that time, it was the whole of Korea.
+- [39:30.901] It wasn't, you know, north and south.
+- [39:33.237] And after he explained it, I said,
+- [39:35.239] all right, not going to be that easy.
+- [39:36.540] I guess you're right. But, you have one Korea,
+- [39:39.276] it was a very big, powerful nation.
+- [39:42.379] Now you have two big, powerful nations,
+- [39:44.115] but you have essentially a wall in between.
+- [39:47.084] The Press: (inaudible)
+- [39:51.122] comments, posts and comments you made on South Korea
+- [39:55.326] earlier this morning, like raids on churches,
+- [39:58.562] going into U.S. Military base,
+- [40:01.031] a purge, a revolution, how do you think about it?
+- [40:05.236] President Lee: (speaking Korean).
+- [40:13.377] The President: I heard from Intel
+- [40:14.845] that there was a raid on churches.
+- [40:16.981] We're going to talk about that later.
+- [40:18.482] I haven't spoken about it yet, but will we meet?
+- [40:21.385] And, you know, that would be too bad if that's the case.
+- [40:23.354] But I did hear that from Intel,
+- [40:25.489] that there is a raid of churches, closing some churches.
+- [40:28.325] So we'll talk about it later. I can ask you now if you want.
+- [40:32.830] The Press: Mr. President --
+- [40:34.064] The President: Wait a minute, please.
+- [40:35.766] If you'd like.
+- [40:37.434] Because it didn't sound to me like South Korea.
+- [40:40.337] President Lee: (speaking Korean)
+- [41:28.285] Translator: So it hasn't been long since Korea
+- [41:30.621] has overcame the political turmoil
+- [41:33.490] following the self-coup by the former president.
+- [41:40.231] Currently, there is a fact-finding investigation
+- [41:43.567] by a special prosecutor
+- [41:44.902] that was appointed by the National Assembly.
+- [41:47.738] And this special prosecutor--
+- [41:49.440] The President: Is his name deranged Jack Smith
+- [41:51.642] by any chance?
+- [41:53.210] They took him from our country, they questioned him.
+- [41:55.446] Deranged Jack. He's a deranged, sick individual.
+- [41:58.616] But go ahead. Go ahead, please. I'm only kidding.
+- [42:05.256] Translator: That special prosecutor is not
+- [42:07.458] under my control and so the special prosecutor
+- [42:11.295] is conducting a fact-finding investigation
+- [42:14.265] and I would like to explain
+- [42:15.833] about what you said about U.S. Bases.
+- [42:20.471] They did not conduct a search and seizure of American bases
+- [42:23.941] but they looked into the control,
+- [42:26.410] the chain of command and the control system
+- [42:28.312] of the Korean military.
+- [42:31.682] The President: That's okay. We'll work it.
+- [42:33.250] I'm sure it's -- I am sure it is a misunderstanding,
+- [42:36.253] but, you know, there is a rumor going around about churches,
+- [42:38.923] raiding churches.
+- [42:40.324] So we'll talk -- I'm that's going to be --
+- [42:42.059] we'll work that out. Okay? Yeah, please go ahead.
+- [42:45.596] The Press: Mr. President, what conversations have you had
+- [42:47.564] with Israeli Prime Minister Benjamin Netanyahu
+- [42:49.466] about what is going on in Gaza? There was a UN-backed report
+- [42:52.236] that said there was a famine in Gaza.
+- [42:53.604] Based on what you know and what you've been briefed on,
+- [42:56.473] do you agree with that?
+- [42:57.875] The President: So, I mean, I deal with Bibi Netanyahu
+- [43:01.445] quite a bit,
+- [43:02.646] and we had great success, obviously, in Iran.
+- [43:05.716] We knocked out their nuclear threat.
+- [43:07.017] That would have been a horror show,
+- [43:08.252] having them have a nuclear weapon.
+- [43:09.753] They would have used it, too. We did very well there.
+- [43:14.024] Right now, they're talking about Gaza City.
+- [43:15.826] They're always talking about something.
+- [43:17.261] At some point, it's going to get settled.
+- [43:19.330] And I'm saying you better get it settled soon.
+- [43:21.131] You have to get it settle soon.
+- [43:23.000] And that means, you know, nobody can forget October 7th.
+- [43:26.203] People forget October 7th.
+- [43:27.404] That was one of the most brutal --
+- [43:28.706] I've seen some terrible things, some brutal things.
+- [43:31.275] That was about as bad as it gets.
+- [43:33.711] And nobody can forget that.
+- [43:35.279] With that being said, it's got to get over with.
+- [43:37.348] It's got get over because between the hunger
+- [43:40.484] and all of the other problems,
+- [43:41.885] worse than hunger, death, pure death, people being killed.
+- [43:45.689] And, you know, I'm the one that brought back the hostages,
+- [43:48.659] and I did it with that gentleman right there, Steve Witkoff,
+- [43:51.428] and with Marco.
+- [43:52.830] All of us, the whole team, we worked together.
+- [43:54.798] Even the trade people worked on it with us.
+- [43:57.201] And we brought back a lot of the hostages.
+- [43:59.169] Now we're left with -- would you say 20,
+- [44:01.105] Steve, or would you it's less than 20?
+- [44:03.540] Male Speaker: I hope it's 20.
+- [44:04.875] The President: He hopes it's one because some could be dead.
+- [44:08.212] That's what he means, I assume.
+- [44:09.913] So we have 20, but there's rumors that some could dead.
+- [44:13.851] It's a terrible situation over there.
+- [44:16.020] Terrible, terrible situation. But it's coming to a head.
+- [44:19.923] It's coming an end. And we are sending, you know,
+- [44:23.394] we sent $60 million of food over there just recently.
+- [44:28.332] And I don't even know if people know it,
+- [44:31.068] we distributed ourselves, we're giving a lot of food,
+- [44:34.738] spending a lot of money on food, getting it over there.
+- [44:36.740] We have a lot a food.
+- [44:37.941] We have lot of oil and we have a a lot,
+- [44:39.643] we have the greatest farmers in the world.
+- [44:41.345] So we have lot a a food,
+- [44:42.713] but we're sending a lot it over to Gaza
+- [44:46.650] and we're feeding a lot people.
+- [44:48.118] But with all of that being said, it's a lot of people defeated.
+- [44:51.088] And I think that we will have --
+- [44:52.656] I think within the next two to three weeks,
+- [44:54.425] you're going to have a pretty good, conclusive --
+- [44:59.163] a conclusive ending.
+- [45:00.831] And it's a hard thing to say because they've been fighting
+- [45:03.033] for thousands of years, if you want to know.
+- [45:05.869] That's a -- that's been a hotbed forever.
+- [45:08.806] But I think we're doing a very good job.
+- [45:10.908] But it does have to -- it does have to end,
+- [45:12.910] but people can't forget October 7th.
+- [45:19.716] The Press: Do you plan to attend APEC summit to be held in Korea?
+- [45:24.488] The President: A summit in South Korea?
+- [45:25.756] The Press: Yes, South Korea, in November.
+- [45:26.990] The President: I'd love to.
+- [45:28.192] Last time I spoke in front of your parliament,
+- [45:29.860] and I loved doing that. Beautiful, beautiful respect
+- [45:33.297] they had for our country and a beautiful room.
+- [45:35.999] I remember how beautiful it was, and I enjoyed doing it.
+- [45:39.036] No, I could see going.
+- [45:40.504] I think I'm going for a trade meeting
+- [45:42.206] to South Korea pretty soon. You're hosting a trade meeting,
+- [45:45.909] so I can sneak away from that trade meeting,
+- [45:47.911] and we'll go and do something for the President
+- [45:49.913] if he'd like me to do that. Okay?
+- [45:51.782] But so we'll be going there fairly soon.
+- [45:55.352] The Press: If you attend, then it's a good chance
+- [45:57.454] to meet up Kim Jong-un again, or maybe Xi Jinping?
+- [46:01.391] How do you think?
+- [46:03.060] The President: You mean set them up together?
+- [46:04.361] The Press: Yes.
+- [46:05.562] The President: That'd be interesting.
+- [46:07.264] We'll arrange a meeting between you and Kim Jong-un.
+- [46:09.867] Would you like that? I don't know.
+- [46:12.569] That's a very tough question right now.
+- [46:15.572] I don't know where that question is leading.
+- [46:18.075] Anyway, look, I get along great with Kim Jong Un.
+- [46:20.677] And whatever I can do having to do with South Korea
+- [46:24.281] and getting people together, it should --
+- [46:26.283] you should get together, right?
+- [46:29.720] Yes, ma'am. Look at her beautiful smile.
+- [46:36.126] And then she'll turn out to be the worst one in the room.
+- [46:38.595] The Press: Can I ask about (inaudible) project?
+- [46:41.565] (inaudible)
+- [46:45.669] The President: Yeah.
+- [46:46.970] Oh, yeah. Sure. We're going to do that.
+- [46:48.772] I think we're going do that very strongly.
+- [46:51.542] We're gonna have a big -- within a period of --
+- [46:53.877] you know, it takes a while. That's a hard one to start.
+- [46:56.280] Some companies, you can start easily.
+- [46:58.115] Shipbuilding is a tough one to start,
+- [47:00.017] but we'll be doing that. Now with that being said --
+- [47:04.121] We make the best submarines anywhere in the world.
+- [47:06.356] We make submarines.
+- [47:07.558] We're 25 years ahead of anybody else in submarines.
+- [47:10.994] So we do that. You know, we do.
+- [47:12.496] But we really gave up the shipbuilding industry
+- [47:14.831] foolishly many years ago.
+- [47:17.935] But we're going to start it up again.
+- [47:19.803] We're going be making our own ships again soon.
+- [47:22.706] Okay, how about one or two more?
+- [47:24.074] The Press: Mr. President, have you been briefed
+- [47:25.342] on the search of John Bolton's home and office from Friday?
+- [47:27.444] Have you been briefing on that?
+- [47:28.679] The President: I have not been briefed.
+- [47:29.880] No, I read it just like you did.
+- [47:32.849] I was never a fan of his. I thought he was stupid.
+- [47:35.752] I thought was, you know, a guy that only wanted to go into war.
+- [47:39.022] He liked killing people.
+- [47:40.591] I thought that he was essentially a bad guy,
+- [47:43.493] but I'm not involved in that.
+- [47:44.828] No, you'd have to ask Pam Bondi about that.
+- [47:49.266] The Press: Are more raids like that coming ,sir?
+- [47:51.702] Are more raids like the ones on John Bolton's house coming?
+- [47:54.571] The President: More raids? I don't know.
+- [47:56.640] You'd have to ask the Department of Justice.
+- [47:58.875] They raided my house, I can tell you that.
+- [48:01.478] They did a big raid on my house.
+- [48:02.813] They took away everything that wasn't pinned down,
+- [48:05.716] and they took away some of that, too.
+- [48:08.585] No, they raided Mar-a-Lago. They started that.
+- [48:11.888] These were bad people that we had in our government.
+- [48:14.758] They raided Mar- a-Laco. They went into my wife's area.
+- [48:18.629] They went in to my son's area, my young son.
+- [48:21.498] And what they did was a disgrace.
+- [48:25.235] But how did it work out?
+- [48:27.537] We're -- oh, I see. We're in the -- oh no.
+- [48:30.907] I guess it didn't work out too well for them, did it?
+- [48:33.610] They are bad people. They're sick.
+- [48:35.512] They're a sick people.
+- [48:37.014] And they came in with their guns into Mar-a-Lago.
+- [48:41.585] Like, 98 people. I wasn't there.
+- [48:43.687] Fortunately, I was in there. But they are --
+- [48:47.257] they are very evil, very sick people, that group.
+- [48:50.193] And they -- if they would have won the election,
+- [48:52.195] this country wouldn't exist, as we know it.
+- [48:54.564] This country would have been a failed country.
+- [48:57.134] And now it's the hottest country anywhere in the world by far.
+- [49:00.370] We are the hottest in the country by far by far, okay.
+- [49:03.707] The Press: (inaudible)
+- [49:06.943] presently met with the Japanese Prime Minister
+- [49:11.214] before this summit.
+- [49:13.050] So is there something to discuss regarding the cooperation
+- [49:17.621] among South Korea, U.S. and Japan?
+- [49:21.625] The President: I think so.
+- [49:22.926] Look, Japan is a great ally of us.
+- [49:25.095] And I had a little bit of a hard time
+- [49:26.730] getting you two together
+- [49:27.931] because you're still thinking about comfort women.
+- [49:30.367] Right? Comfort women.
+- [49:31.635] That's all they wanted to talk about, was comfort women,
+- [49:34.705] and I thought that was settled a few times over the decades.
+- [49:39.976] But there is an overlapping problem with that.
+- [49:46.183] Perhaps I'm wrong in saying it.
+- [49:48.118] Perhaps this isn't right, but the whole --
+- [49:52.089] issue of the women, comfort women, very specifically.
+- [49:56.493] We talked, and it was a very big problem for Korea,
+- [50:02.532] not for Japan.
+- [50:03.734] Japan was wanting to go. They want to get on.
+- [50:08.405] But Korea was very stuck on that. You understand?
+- [50:11.541] So, I don't know, perhaps you'd like to answer.
+- [50:14.044] It's a good question.
+- [50:15.946] It was hard getting Japan and Korea together
+- [50:20.016] because of what took place a long time ago.
+- [50:24.888] Japan wants to do it, I can say.
+- [50:26.757] Korea is a little bit more tenuous, please.
+- [50:30.060] President Lee: (speaking Korean)
+- [50:33.497] Translator: The trilateral cooperation
+- [50:47.477] among Korea, the U.S., and Japan is very important,
+- [50:51.515] and better Korea-Japan relations is also important
+- [50:54.418] for the Korea-U.S. relationship as well.
+- [50:58.455] President Lee: (speaking Korean)
+- [51:13.270] Translator: Because I know that, President Trump,
+- [51:14.638] that you put emphasis on bilateral cooperation,
+- [51:18.074] I made a visit to Japan before coming to the U.S.
+- [51:20.944] to settle the difficult issues that we have.
+- [51:25.115] The President: Well, Japan wants to get along very well with you.
+- [51:28.985] And I find them to be great people,
+- [51:30.587] great country, obviously,
+- [51:32.756] and they want very much to get along with South Korea.
+- [51:35.358] And you have something in common.
+- [51:36.660] You know, you want to solve the North Korea problem.
+- [51:40.497] But Japan very much wants to get along with you,
+- [51:43.200] and I'm sure they will.
+- [51:46.303] I find the people that I deal with to be wonderful people,
+- [51:50.040] as they do with you.
+- [51:51.508] President Lee: (speaking Korean)
+- [52:01.685] Translator: So when I visited Japan and met
+- [52:03.453] with Prime Minister Ishiba,
+- [52:05.322] I realized that many of the obstacles
+- [52:07.791] that existed between our two countries have now been removed.
+- [52:11.895] The President: During my term, we removed them during my term.
+- [52:15.699] There was an overlay a little bit,
+- [52:17.601] but we removed many of those obstacles during my term.
+- [52:21.905] And, you know, if you look at Prime Minister Abiy,
+- [52:26.576] who was a great man, he was a good friend of mine,
+- [52:29.045] and he was assassinated.
+- [52:30.847] But he felt very warmly toward your country,
+- [52:33.083] I can tell you that. And the current Prime Minister,
+- [52:37.020] who I've gotten to know very well, feels the same way.
+- [52:39.523] So I think you're going to have a great relationship with Japan.
+- [52:41.858] Steve, go ahead.
+- [52:43.093] The Press: To close a loop on Gaza,
+- [52:44.628] is there a diplomatic push underway
+- [52:46.530] to try to get all this to end?
+- [52:48.665] The President: Oh, there's a diplomatic wish?
+- [52:50.300] No, yes, there is. There has been.
+- [52:51.735] Yeah, sure. Right now.
+- [52:53.303] Steve, I would say a very serious diplomatic push.
+- [52:56.172] Marco or Steve?
+- [52:57.440] Marco, do you want to answer that first?
+- [52:58.675] Marco, do you want to answer that first?
+- [53:00.343] Secretary Rubio: Yeah, it's never stopped.
+- [53:02.546] We've always looked to find a solution there.
+- [53:04.247] Ultimately, as the President said, we want it to end.
+- [53:06.816] It has to end with no Hamas.
+- [53:11.154] The President: Steve, where are we?
+- [53:12.689] Secretary Steve: I would say that we wouldn't be anywhere but
+- [53:14.958] for the President's truth last week,
+- [53:16.893] which was a statement to Hamas
+- [53:18.528] that they better get their act together
+- [53:21.865] and get to the peace table.
+- [53:23.266] But for that, it would have been all stalled.
+- [53:25.302] So, as usual, he is the man who moves it.
+- [53:30.073] The President: Thank you. Thank you very much, everybody.

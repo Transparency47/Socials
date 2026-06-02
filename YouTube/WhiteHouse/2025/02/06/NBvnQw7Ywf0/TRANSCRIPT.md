@@ -1,0 +1,357 @@
+<!-- source: https://www.youtube.com/watch?v=NBvnQw7Ywf0 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: NBvnQw7Ywf0 -->
+<!-- date_published: 2025-02-06T17:39:47+00:00 -->
+<!-- date_accessed: 2026-06-02T01:30:27.437280+00:00 -->
+
+# Transcript: President Trump Hosts a Bilateral Meeting with the Prime Minister of the State of Israel
+
+- [00:00.500] The Press: [inaudible]
+- [00:03.390] The President: Let me talk to you later.
+- [00:04.670] The Press: Mr. President,
+- [00:05.880] you managed to get this deal done.
+- [00:07.190] Some say -- a lot of people say that the men who managed to do
+- [00:09.790] that should get a Nobel Peace Prize.
+- [00:11.740] Do you think that you'll be able to get
+- [00:13.430] all the hostages back home?
+- [00:14.950] So what would happen if you hear from these?
+- [00:16.380] The President: They will never give me a Nobel Peace Prize.
+- [00:19.900] The Press: What are the --
+- [00:22.010] The President: I deserve it,
+- [00:23.350] but they will never give it to me.
+- [00:26.980] The Press: They want to go forward.
+- [00:28.190] What needs to happen for normalization in Saudi Arabia?
+- [00:30.660] The President: We're going to see and we deal
+- [00:32.370] with a lot of people
+- [00:34.040] and we have steps to go yet, as you know.
+- [00:36.880] And maybe those steps go forward and maybe they don't.
+- [00:39.910] We're dealing with a very complex group
+- [00:41.570] of people situation and people. But we have the right man.
+- [00:45.990] We have the right leader of Israel.
+- [00:48.090] He's done a great job and we've been friends for a long time.
+- [00:52.520] We do a great job also.
+- [00:54.900] And I think I think we have a combination
+- [00:56.700] that's very admirable, actually.
+- [00:59.130] The Press: [cross talk]
+- [01:11.090] The Press: Mr. President,
+- [01:12.320] what would happen if you'll hear from the Israeli side today
+- [01:14.670] that they are not willing to go through with the deal
+- [01:17.070] to get all the hostages back? Only finish the war?
+- [01:19.020] The President: We'll see what happens, what ever happens.
+- [01:20.970] We'll be prepared to handle the situation by the Saudis.
+- [01:25.080] The Press: Is the president and.
+- [01:28.160] The Press: The Saudis demanding a Palestinian State.
+- [01:30.300] And I know. Demanding a path towards a Palestinian state
+- [01:34.080] or any other recognition of.
+- [01:35.300] The President: Demanding one thing.
+- [01:36.570] You know what it is? Peace. We want peace.
+- [01:39.620] We want people to stop being killed.
+- [01:42.170] That's everybody's demand for peace.
+- [01:45.760] And he wants peace also. Let's talk about this thing.
+- [01:48.240] It's politically possible in Israel
+- [01:50.580] to do this deal done at the end.
+- [01:53.720] To get the deal done. Yeah, sure it does it.
+- [01:55.800] But why wouldn't a deal get done in a deal can get done.
+- [01:58.360] We'll see what happens.
+- [01:59.710] We're dealing with very complicated people.
+- [02:02.540] But a deal can absolutely get done.
+- [02:10.010] The President: We'll see what happens.
+- [02:11.230] The Press: President Trump, President,
+- [02:12.700] Prime Minister Netanyahu.
+- [02:14.770] We heard Joe Biden involved Trump
+- [02:18.160] take credit for the hostage and the grand deal.
+- [02:22.000] Do you think he deserves more credit?
+- [02:25.130] Prime Minister Netanyahu: I think President Trump
+- [02:28.510] added great force and powerful leadership to this effort.
+- [02:33.310] I appreciate it. He sent a very good emissary.
+- [02:37.910] He's helped it along.
+- [02:39.590] And, you know, I'll just tell you,
+- [02:42.220] I'm happy that they're here.
+- [02:44.070] And I'm sure the president is happy that they're here.
+- [02:46.700] And I think that's about enough.
+- [02:48.720] The Press: Mr. Minister, what about the decision
+- [02:51.100] to hold the Israeli hostage held in the --
+- [02:53.100] Prime Minister Netanyahu: Report about the Israeli press
+- [02:54.910] taking the press conference in Israel, not in Washington?
+- [02:57.310] The Press: I will request a Prime Minister Netenyahu,
+- [03:04.620] do you support going forward with this deal
+- [03:07.260] of getting all the hostages out?
+- [03:08.680] Prime Minister Netanyahu: I support
+- [03:09.900] getting all the hostages out and meeting all our war goals.
+- [03:13.830] The Press: Can you do that?
+- [03:15.080] Including destroying Hamas's military
+- [03:18.080] and governing capabilities
+- [03:19.390] and making sure that Gaza never poses a threat to Israel?
+- [03:23.040] Are you willing to. All three.
+- [03:24.920] Are you willing to are you willing to go further?
+- [03:27.580] Are you willing you promise to? On the other hand, you don't.
+- [03:32.350] Prime Minister Netanyahu: I shouldn't talk to the president.
+- [03:33.560] Okay.
+- [03:34.800] The Press: I'll ask Ari. Do you agree with Trump's vision
+- [03:37.120] of getting all the hostages back home,
+- [03:39.070] even if it means to end the war?
+- [03:41.550] Prime Minister Netanyahu: Well, I'm not sure
+- [03:43.040] that your articulate incorrectly.
+- [03:45.260] What the president's visit is, you can ask.
+- [03:48.180] He can speak for himself. He does that very, very well.
+- [03:51.660] I have my own views. Three goals. Not one.
+- [03:55.960] Not two. Three goals.
+- [03:57.500] And I want to meet all three goals.
+- [03:59.630] I think the president can help enormously.
+- [04:01.680] He brings fresh thinking.
+- [04:05.910] The Press: How do people believe they do on the part of the deal?
+- [04:09.730] The President: It's a horrible thing.
+- [04:11.730] We can't forget it. I'll never forget it.
+- [04:14.230] And you can't forget it.
+- [04:15.930] Then some people want to put it out of their memory,
+- [04:18.360] but we're not going to ever let that happen.
+- [04:21.040] It was a horrible day, October 7th.
+- [04:23.270] It was a horrible it was a horrible period of time.
+- [04:26.680] And a lot of people like to pretend it didn't happen.
+- [04:29.260] It happened.
+- [04:30.600] A big group of people that like to pretend it didn't happen,
+- [04:33.700] like the Holocaust didn't happen.
+- [04:35.560] Same mindset.
+- [04:37.770] And now we're going to we're going to get this thing
+- [04:40.160] wrapped up and we're going to get it done.
+- [04:41.780] We're also dealing,
+- [04:43.370] I think, very successfully with Russia, Ukraine.
+- [04:45.940] We're going to hopefully get that one done at some point
+- [04:48.230] in the not too distant future.
+- [04:49.850] That's a complex problem also. But we we solve problems will.
+- [04:55.340] You know, when I left we had no problem.
+- [04:56.780] There was no Ukraine and Russia fighting.
+- [04:58.900] There was no October 7th. There was nothing.
+- [05:01.540] And some very poor leadership led to a lot of problems
+- [05:05.500] and a lot of death. And it's a shame.
+- [05:07.830] But we'll put it out. We'll put out the fires.
+- [05:09.820] We have a lot of fires. We'll put them out.
+- [05:11.740] The Press: To be like the peace plan you presented
+- [05:17.940] in January 22nd and 2020. Is this plan still on the table?
+- [05:22.120] The President: A lot of plans change with time
+- [05:23.920] and a lot of death has occurred since I left and now came back.
+- [05:28.850] This death occurred not while I was here,
+- [05:31.190] but well, somebody else was here.
+- [05:32.980] It shouldn't have happened.
+- [05:34.300] They shouldn't have allowed it to happen.
+- [05:35.860] It would have never happened. And that includes Russia.
+- [05:38.570] Ukraine would have never happened.
+- [05:40.080] Not even a little bit. Not even a chance.
+- [05:43.700] But now we are faced with a situation
+- [05:45.870] that's different in some ways better and in some ways worse.
+- [05:49.460] But we're faced with a very complex and difficult situation,
+- [05:53.510] but will solve will solve the problem.
+- [05:59.380] The Press: From Gaza and if not Jordan, Egypt.
+- [06:02.050] What other countries you think might accept Palestinians
+- [06:04.220] from Gaza?
+- [06:05.420] The President: Well, I think Jordan and Egypt will.
+- [06:07.320] I know they've spoken about it with you
+- [06:09.590] and they say they're not going to accept.
+- [06:11.480] They say they will,
+- [06:13.100] but I think other countries will accept also.
+- [06:15.660] I think that Gaza maybe is a demolition site right now.
+- [06:19.520] If you look at Gaza to all I mean,
+- [06:21.650] there's hardly a building standing.
+- [06:23.060] And the ones that are going to collapse,
+- [06:25.190] you can't live in Gaza right now.
+- [06:26.870] And I think we need another location.
+- [06:28.970] I think it should be a location
+- [06:30.290] that's going to make people happy.
+- [06:32.370] You look over that over the decades,
+- [06:35.180] it's all death in Gaza.
+- [06:36.800] This has been happening for years.
+- [06:38.330] It's all death. If we can get a beautiful area
+- [06:41.370] to resettle people permanently in nice homes
+- [06:44.590] and where they can be happy and not be shot, not be killed,
+- [06:47.780] not be knifed to death like what's happening in Gaza.
+- [06:51.640] And right now, you have in Gaza a very dangerous situation
+- [06:54.550] in terms of explosives all over the place,
+- [06:57.490] in terms of tunnels that nobody knows who's in the tunnel.
+- [07:00.720] The whole thing is a mess.
+- [07:03.170] And I think that if we can resettle
+- [07:05.320] and I believe we can do it in areas
+- [07:07.750] where the leaders currently say now,
+- [07:09.650] I mean, I've been saying that with Mexico
+- [07:12.060] having to do with the border and all of the things
+- [07:15.590] and you saw what happened, 10,000 soldiers
+- [07:17.850] and they're going to do a good job.
+- [07:19.790] I really believe that.
+- [07:21.040] And I believe Canada is going to do a good job also.
+- [07:23.210] They said the same thing
+- [07:24.430] and then they did something much different
+- [07:26.570] than what you are hearing.
+- [07:28.630] This is a very, very difficult situation,
+- [07:31.700] but we're going to get it.
+- [07:33.040] So I don't think people should be going back to Gaza.
+- [07:35.810] I think that Gaza has been very unlucky for them.
+- [07:39.520] They've lived like hell.
+- [07:40.800] They lived like you're living in hell.
+- [07:43.110] Gaza is not a place for people to be living.
+- [07:45.780] And the only reason they want to go back
+- [07:47.260] and I believe this strongly is
+- [07:48.470] because they have no alternative.
+- [07:49.780] What's the alternative?
+- [07:51.000] Go where there's no other alternative?
+- [07:53.100] If they had an alternative.
+- [07:54.610] They'd much rather not go back to Gaza
+- [07:56.640] and live in a beautiful alternative
+- [07:59.010] that's safe in the world.
+- [08:00.700] The Press: Outrageous that it would be able
+- [08:06.990] to interact with Palestinians,
+- [08:10.060] have the right to return to Gaza if they left while rebuilding.
+- [08:14.290] The President: It would be my hope
+- [08:15.570] that we can do something really nice,
+- [08:17.860] really good where they wouldn't want to return.
+- [08:20.100] Why would they want to return?
+- [08:21.780] The place has been hell. It's been one of the meanest,
+- [08:25.470] one of the meanest, toughest places on earth.
+- [08:29.150] And right now it's.
+- [08:31.020] It's -- I've seen every picture from every angle.
+- [08:34.600] Better than if I were there.
+- [08:36.530] And nobody can live there. You can't live there.
+- [08:38.610] And so we can build and we can build them
+- [08:41.300] through a massive amounts of money
+- [08:43.750] supplied by other people, very rich nations.
+- [08:47.710] And they'll they're willing to supply it
+- [08:50.050] if we can build something for them.
+- [08:51.550] And one of the countries and it could be Jordan
+- [08:54.140] and it could be Egypt, it could be other countries,
+- [08:56.530] and you could build four or 5 or 6 areas.
+- [08:59.020] It doesn't have to be one area, but you take certain areas
+- [09:02.210] and you build really good quality
+- [09:05.070] housing like a beautiful town,
+- [09:08.130] like some place where they can live and not die
+- [09:11.500] because Gaza is a guarantee that they're going to end up dying.
+- [09:14.350] The same thing's going to happen again.
+- [09:16.330] It's happened over and over again
+- [09:18.640] and it's going to happen again
+- [09:20.320] as sure as you're standing there, Peter.
+- [09:22.540] So I hope that we could do something
+- [09:25.700] where they wouldn't want to go back.
+- [09:27.190] Who would want to go back?
+- [09:29.380] They've experienced nothing but death and destruction.
+- [09:37.520] The President: I don't know.
+- [09:38.800] The Press: What would you do then?
+- [09:40.040] The President: Well, I don't think they're going to tell me.
+- [09:42.380] No. I think they're going to tell Biden no.
+- [09:46.860] And I think they're going to tell other people not.
+- [09:49.680] Only what happened. And I think there's a good chance.
+- [09:52.950] The Press: People will be thinking about all of them.
+- [09:54.720] The President: I mean,
+- [09:55.930] we're talking about probably a million.
+- [09:57.740] Seven people. Million. Seven, Maybe a million.
+- [10:00.920] But I think a lot of them
+- [10:02.180] I think they'll be resettled in areas
+- [10:03.980] where they can live a beautiful life
+- [10:05.520] and not be worried about dying every day.
+- [10:13.520] The Press: Palestinian.
+- [10:14.860] Mr. President, do you support building settlements,
+- [10:17.800] Jerusalem settlements in Gaza in the next two years,
+- [10:20.900] saying building settlements, Jewish settlements back in Gaza?
+- [10:24.190] I say we support this.
+- [10:25.770] The President: I don't see it happening.
+- [10:27.110] It's too dangerous for people. Nobody can go there.
+- [10:30.280] It's too dangerous. Nobody wants to be there.
+- [10:32.160] Warriors don't want to be there. Soldiers don't want to be there.
+- [10:35.780] How can you have people go back?
+- [10:37.020] You're saying go back into Gaza now.
+- [10:39.030] The same thing's going to happen.
+- [10:40.590] It'll only be death.
+- [10:41.810] The best way to do it is you go out
+- [10:43.870] and you get beautiful open areas
+- [10:46.770] with the sunlight coming through.
+- [10:49.600] The President: Something that they are not going
+- [10:51.690] to want in Gaza.
+- [10:52.920] They are not going to want to go back to Gaza.
+- [10:54.600] Prime Minister.
+- [10:55.890] The Press: What is your message to the families of the hostages?
+- [10:58.300] And look at this deal now,
+- [10:59.590] worried that this deal is going to go through.
+- [11:01.690] What do you say to them at this moment?
+- [11:03.240] Prime Minister Netanyahu: Same message I said
+- [11:04.440] from the beginning of the war.
+- [11:05.770] We'll get them out. We got them back.
+- [11:08.010] We got over 70%, close to 75% of the people
+- [11:12.370] who everybody believe will not get out.
+- [11:14.250] We got them in successive deals.
+- [11:16.350] And most recently, with the help of President Trump,
+- [11:18.760] we're not going to give up on any of them
+- [11:20.350] and we're not going to give up on our other war aims.
+- [11:22.770] Hamas is not going to be in Gaza
+- [11:25.680] and we're going to get everyone back.
+- [11:29.450] The Press: How optimistic are you about reaching
+- [11:31.060] about reaching phase two of the ceasefire?
+- [11:32.810] How optimistic is about that?
+- [11:34.110] Prime Minister Netanyahu: Well, we're going
+- [11:35.360] to try.That's one of the reasons
+- [11:37.270] one of the things we're going to talk about here.
+- [11:39.430] And if we if we can say, you know,
+- [11:41.780] when Israel and the United States
+- [11:43.900] were together and President Trump
+- [11:45.950] and I work together, you know, the chances go up a lot.
+- [11:50.420] It's wonderful when we all work together.
+- [11:52.140] Israel and the United States don't work together.
+- [11:55.260] That creates problems when the other side sees daylight
+- [11:58.360] between us and occasionally in the last few years.
+- [12:01.420] To put it mildly.
+- [12:03.460] The Press: They saw the last few days.
+- [12:04.980] It's more difficult when we would cooperate.
+- [12:08.460] The chances are good. One will say.
+- [12:17.790] The President: So you say Iran is so weak.
+- [12:19.370] I appreciate you saying that.
+- [12:20.780] You're not weak. They're very strong right now.
+- [12:23.070] And we're not we're not going to allow them
+- [12:25.370] to have a nuclear weapon. Very simple.
+- [12:27.660] You know, I signed a very strong proclamation.
+- [12:30.980] Iran was in big trouble when I left.
+- [12:33.690] They were broke. They didn't have money for Hamas.
+- [12:36.310] They didn't have any money for Hezbollah.
+- [12:38.370] You had no problem.
+- [12:39.710] October 7th could have never happened.
+- [12:41.710] When I left October 7th, could have never happened.
+- [12:44.780] And frankly, Russia and Ukraine,
+- [12:46.380] as I said, could never have happened.
+- [12:48.870] They became very strong, very fast.
+- [12:50.670] They sold massive amounts of oil to China
+- [12:52.940] and everybody else who would not buy the oil.
+- [12:55.850] When I was ready because we said don't buy the oil.
+- [12:58.900] And they became very rich very quickly.
+- [13:01.680] But then that week said,
+- [13:03.310] I wait this long doesn't mean they won't be weak.
+- [13:06.210] But you know what?
+- [13:07.600] We just don't want them to have a nuclear weapon.
+- [13:09.700] They can't have a nuclear weapon.
+- [13:12.650] The Press: When you the hundreds for once,
+- [13:14.770] you just try to do all that what you want.
+- [13:17.110] The President: You don't know what he wants.
+- [13:18.410] What do you what do you know about anything.
+- [13:20.950] The Press: That often is on the.
+- [13:22.310] President Trump is that often on the table?
+- [13:24.980] And Rob.
+- [13:26.190] The Press: I just talked about Jordan.
+- [13:28.160] The President: No. Could be other places to go in the Gulf.
+- [13:30.590] There are many people that have reached out.
+- [13:32.440] Many countries, many leaders of countries
+- [13:34.550] that have reached out that would like to participate.
+- [13:37.130] And that doesn't have to be Jordan and Egypt,
+- [13:38.930] but I think it would be also them and.
+- [13:44.140] The Press: Do you want to settle into a new office in Dallas?
+- [13:47.970] How would you describe it?
+- [13:49.230] The President: Well, I think it's mostly out.
+- [13:51.400] The Press: For an market.
+- [13:53.040] You will never because it will be empty.
+- [13:55.670] But the Palestinian Authority can it will gather.
+- [13:59.170] The President: What do you think?
+- [14:00.420] Well, it's had a pretty hard time, wouldn't you say?
+- [14:02.500] I'd say it's at a pretty bad time of it.
+- [14:04.900] The Press: The president of Qatar
+- [14:06.340] has criticized in the past
+- [14:08.370] as an undercurrent terrorism. So is the prime minister.
+- [14:10.510] Do you think they're part of the solution or part of the problem?
+- [14:13.320] The President: I think they're trying to help.
+- [14:14.820] Qatar is absolutely trying to help.
+- [14:17.930] I know him very well and they're doing everything they can.
+- [14:20.960] Very tough situation, but they are absolutely trying to help.
+- [14:24.220] The Press: Okay. Thank you.
+- [14:25.440] The President: Very much. Let's go.

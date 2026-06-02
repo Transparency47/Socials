@@ -1,0 +1,877 @@
+<!-- source: https://www.youtube.com/watch?v=rwodJlxkBCA -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: rwodJlxkBCA -->
+<!-- date_published: 2025-09-04T17:50:34+00:00 -->
+<!-- date_accessed: 2026-06-02T02:44:59.878238+00:00 -->
+
+# Transcript: First Lady Melania Trump Hosts a Meeting of the White House Task Force on AI Education
+
+- [00:01.368] Female Speaker: The First Lady of the United States.
+- [00:06.039] (applause)
+- [00:14.787] ♪ (Patriotic Music) ♪
+- [00:21.787] (applause)
+- [00:32.565] The First Lady: Good afternoon, and welcome
+- [00:34.534] to the White House.
+- [00:36.469] It's a beautiful event today.
+- [00:38.738] So thank you for joining me to address this
+- [00:42.308] important issue, Secretaries Wright,
+- [00:45.945] McMahon, Rollins, and Chavez-Deremer.
+- [00:50.683] It's wonderful to be here today alongside private
+- [00:53.753] sectors, leaders like Mr. Pichai, Mr. Karishma,
+- [00:59.526] Mr. Wilson and the many more visionaries from
+- [01:02.996] across industry.
+- [01:04.297] We are living in a moment of wonder and it is our
+- [01:09.502] responsibility to prepare children in America.
+- [01:15.742] Cars now steer themselves through our cities.
+- [01:19.946] Robots hold steady hands in the operating room and
+- [01:24.884] drones are defining the future of war.
+- [01:29.355] Innovations of first generation humanoids,
+- [01:32.992] factory automation, and autonomous vehicles have
+- [01:37.797] surged from private sector investment.
+- [01:41.534] Every one of these advancements is powered by
+- [01:46.105] AI.
+- [01:46.973] The robots are here.
+- [01:49.442] Our future is no longer science fiction.
+- [01:53.012] Data from the Bureau of Economic Analysis shows
+- [02:00.119] that AI innovation is clearly boosting America's
+- [02:04.591] GDP growth.
+- [02:07.026] Surely, this is not a trend.
+- [02:09.596] For AI, we'll serve as the underpinning of every
+- [02:13.266] business sector in our nation, including
+- [02:16.503] education, life sciences, finance, and design.
+- [02:22.976] In fact, I predict AI will represent the single
+- [02:27.180] largest growth category in our nation during this
+- [02:30.917] administration.
+- [02:32.719] And I won't be surprised if AI becomes known as the
+- [02:37.323] greatest engine of progress in the history of
+- [02:41.394] the United States of America.
+- [02:44.130] But as leaders and parents, we must manage
+- [02:49.135] AI's growth responsibly.
+- [02:52.338] During this primitive stage, it is our duty to
+- [02:56.876] treat AI as we would our own children, empowering
+- [03:03.249] but with watchful guidance.
+- [03:06.486] Today in this room is filled with the brightest
+- [03:10.557] minds of our time.
+- [03:12.058] As such, I challenge you to focus on three
+- [03:15.795] strategic priorities of AI's ecosystem so America
+- [03:21.134] can lead in shaping a new, magnificent world,
+- [03:25.972] infrastructure and energy, national security, and of
+- [03:31.077] course, talent.
+- [03:34.614] We must ensure America's talent, our workforce, is
+- [03:38.918] prepared to sustain AI's progress.
+- [03:42.689] And the Presidential AI Challenge is our first
+- [03:46.326] major step to galvanize America's parents,
+- [03:49.963] educators, and students with this mission.
+- [03:55.335] English is a new coding language for many.
+- [03:59.372] And with it, creativity will flow from every
+- [04:02.542] corner of America, sparking new industries,
+- [04:06.312] careers, and jobs.
+- [04:09.616] By supporting the Presidential AI Challenge,
+- [04:13.219] you are investing in our youth, America's next era
+- [04:18.024] builders.
+- [04:21.394] I would be remiss if I didn't thank our very
+- [04:23.997] determined director of the Office of Science and
+- [04:26.966] Technology Policy, Mr. Michael Kratsios:.
+- [04:31.604] Michael's vision will have a profound effect on how
+- [04:35.308] emerging technology shapes our future.
+- [04:38.978] Thank you, Michael.
+- [04:39.779] Director Kratsios: No, thank you Madam First Lady
+- [04:42.115] for your remarks and for hosting this second
+- [04:45.151] meeting of the White House Task Force on AI
+- [04:47.453] education.
+- [04:48.621] And thank you to all of my colleagues on the task
+- [04:51.090] force here, including Secretary McMahon,
+- [04:53.159] Secretary Rollins, Secretary Chavez-Deremer,
+- [04:55.862] Secretary Wright, and White House AI and Crypto
+- [04:58.665] Czar, David Sacks.
+- [05:00.900] We are thrilled also to welcome a new member of a
+- [05:03.269] task force today, Assistant to the President
+- [05:05.471] for the Office of the First Lady, Haley
+- [05:07.507] Harrison.
+- [05:08.174] Thank you for joining us.
+- [05:09.008] It is an honor to have the support and advice of the
+- [05:13.446] First Lady as we seek to implement the President's
+- [05:16.749] plans to give America's children the chance to
+- [05:19.352] learn how to navigate our ever-changing
+- [05:22.088] technological world.
+- [05:24.023] As AI reshapes how people learn, work and
+- [05:26.759] communicate, President Trump is committed to
+- [05:29.562] ensuring that Americans are equipped to lead the
+- [05:32.298] world in harnessing this technology for increased
+- [05:35.401] productivity and prosperity.
+- [05:38.371] To further that end, in April, the President
+- [05:40.339] signed an executive order focusing on the formation
+- [05:43.743] and promotion of AI educational and workforce
+- [05:47.046] development programs, especially for America's
+- [05:50.483] young people.
+- [05:52.118] Familiarity with how these exciting new tools work
+- [05:54.954] will, we hope, lay a very important foundation for a
+- [05:58.224] lifetime of innovation.
+- [06:00.860] That is why President Trump established this
+- [06:03.096] White House task force on AI education.
+- [06:05.565] And that is why this task force has helped put
+- [06:07.934] together the Presidential AI Challenge, which the
+- [06:10.737] First Lady launched just last week.
+- [06:12.605] And for that, thank you so much, Mrs. Trump.
+- [06:15.775] We are here today to talk about our future in the
+- [06:19.078] most real sense imaginable, how America's
+- [06:22.415] children can be prepared to build our country
+- [06:25.218] tomorrow with the cutting edge tools of today.
+- [06:29.222] We are proud and grateful to announce new steps in
+- [06:31.891] fulfilling the mission of this taskforce.
+- [06:34.360] And the President's vision for this AI challenge, as
+- [06:37.563] we welcome leaders from business, nonprofit, and
+- [06:40.933] education who are putting America's future first by
+- [06:45.204] pledging their resources to support AI training for
+- [06:49.108] American students, educators, workers, and
+- [06:52.578] families.
+- [06:53.746] So all of you here who are participating in the
+- [06:55.681] pledge, thank you for your generous pledges.
+- [06:59.652] The many contributors here today are committed to
+- [07:02.054] providing not only vital hardware, infrastructure,
+- [07:05.691] and education technology for students, but
+- [07:08.694] professional development opportunities for workers,
+- [07:11.164] for teachers, and for parents.
+- [07:13.866] Resources being made available include
+- [07:16.035] interactive lessons, educational toolkits,
+- [07:18.571] classroom guides, certifications, courses,
+- [07:20.873] workshops, webinars, and so much, so much more.
+- [07:24.510] We are also honored to be joined by representatives
+- [07:27.613] of parent groups who we trust will continue to
+- [07:30.817] provide invaluable advice.
+- [07:33.986] We are humbled by the responsibility you share
+- [07:36.589] with us in educating America's children, and
+- [07:39.792] very proud to seek your input and participation in
+- [07:43.196] every part of this effort.
+- [07:44.263] And as a new father of an eight week old, this means
+- [07:48.134] more to me than probably anything else we're
+- [07:50.069] talking about today.
+- [07:51.637] No one loves this nation's children and students like
+- [07:54.473] you do as their parents, who are each child's first
+- [07:57.877] teachers.
+- [07:59.779] Americans of all ages look forward to celebrating 250
+- [08:04.016] years of US independence next year and remembering
+- [08:07.854] our even longer national story of pilgrims,
+- [08:10.590] patriots, pioneers, conquering new frontiers
+- [08:13.726] and building a future for their posterity.
+- [08:16.863] Today, we are grateful for this opportunity to invest
+- [08:20.233] in our children's future in turn and to give this
+- [08:23.336] generation and generations of Americans to come the
+- [08:26.639] tools they need to master the frontiers of AI.
+- [08:31.410] Thank you all.
+- [08:32.345] And now, Secretary McMahon, would you like to
+- [08:34.180] say a few words?
+- [08:34.847] Secretary McMahon: Well, thank you very much.
+- [08:37.984] And what an honor it is to share the dais today with
+- [08:42.321] our First Lady and my former cabinet members and
+- [08:44.557] colleagues here today.
+- [08:46.259] I think AI is certainly one of those technologies
+- [08:49.462] that we must embrace, certainly because it is
+- [08:52.365] here.
+- [08:53.032] It is such a valuable tool.
+- [08:54.667] And we are certainly going to do our best to utilize
+- [08:57.803] it at the Department of Education.
+- [09:00.106] And I think we -- we are looking at our work in
+- [09:03.175] three AI areas.
+- [09:04.677] We are supporting current grantees.
+- [09:07.380] We are prioritizing future investments.
+- [09:10.049] And we're integrating AI in our own workforce at
+- [09:14.487] the department.
+- [09:15.554] So I am certainly, and maybe a little to the
+- [09:19.025] table later than some as an adapter, but clearly I
+- [09:22.461] certainly am now an adapter in utilizing some
+- [09:25.464] forms of AI, which I'm finding so incredibly
+- [09:28.134] helpful.
+- [09:29.135] And I bet that Baron is helping you with a little
+- [09:32.104] bit of this as well and maybe charging you a
+- [09:34.473] little bit with that, I would think so.
+- [09:36.409] In supporting our current grantees, we've issued a
+- [09:41.280] dear colleague letter telling anyone who has
+- [09:43.716] received an Ed grant that AI tools and technologies
+- [09:47.853] are allowable use of federal education funds.
+- [09:51.691] Our goal is to empower states and schools to
+- [09:54.427] begin exploring AI integration in a way that
+- [09:57.863] works best for their communities.
+- [09:59.765] And I'm next week actually going to go to the Alpha
+- [10:03.703] School in Austin, Texas to see AI in action in the
+- [10:08.975] school, so I'll be anxious to report back and see how
+- [10:11.811] that works.
+- [10:13.312] We are prioritizing future investments as I've now
+- [10:18.117] made AI one of my priorities as Secretary.
+- [10:22.288] This explicitly encourages the integration of AI in
+- [10:25.758] teaching, learning, and school operations.
+- [10:29.395] Any grant applications that come into the
+- [10:32.131] department that utilize AI will be more strongly
+- [10:36.068] considered for their grants, might get some
+- [10:39.305] bonus points for that.
+- [10:41.440] We want to integrate AI at Ed.
+- [10:43.843] We're exploring ways to utilize AI in our
+- [10:46.078] processes across the department, not to replace
+- [10:49.515] human judgment and work, but to make us more
+- [10:52.718] efficient and effective.
+- [10:54.353] And I think that should be a goal everywhere.
+- [10:57.289] Ed is fully aligned with the Presidential AI
+- [10:59.925] challenge and is encouraging students and
+- [11:02.695] educators to explore AI technologies with
+- [11:06.465] curiosity and with creativity.
+- [11:09.035] It's not one of those things to be afraid of.
+- [11:11.470] Let's embrace it.
+- [11:12.938] Let's develop AI-based solutions to real-world
+- [11:15.975] problems and cultivate an AI-informed, future-ready
+- [11:20.413] workforce.
+- [11:21.947] It strongly supports the pledge to America's youth.
+- [11:25.551] We are thankful to the folks in the room today
+- [11:27.987] and many others who have made commitments to expand
+- [11:31.390] AI access and understanding across
+- [11:34.427] schools, very important across all of the country.
+- [11:37.096] And as I am touring and visiting schools of, you
+- [11:41.167] know, all kinds of different schools around
+- [11:42.835] the country, I will be looking to see how AI is
+- [11:46.072] being utilized and totally impressed by what I'm
+- [11:48.774] seeing.
+- [11:50.109] We are helping schools prepare every school,
+- [11:53.446] every child, every student for the AI-driven world.
+- [11:57.016] Director Kratsios: Thank you.
+- [12:00.986] Secretary Rollins?
+- [12:02.088] Secretary Rollins: Well first of all, I will turn
+- [12:05.458] my microphone on.
+- [12:07.359] First of all I just want to say thank you all.
+- [12:09.762] I'm Brooke Rollins and what a joy to be up here
+- [12:12.631] with my fellow cabinet members.
+- [12:14.300] Michael Kratsios: you are just a visionary and I
+- [12:17.770] think back to the first term when we were able to
+- [12:21.874] work together.
+- [12:22.641] It's just incredible to see you lead and drive and
+- [12:26.345] cast a vision supported by so many incredible people
+- [12:29.482] here, and I know your team, but.
+- [12:31.217] But it's just a joy to see this incredible, perhaps
+- [12:34.420] one of the most important issues, if not the most,
+- [12:38.491] that we have to address and embrace and build as a
+- [12:42.962] culture, as a society, as America, it's so great.
+- [12:46.732] And to our incredible First Lady, it goes
+- [12:49.802] without saying that your strong and steady
+- [12:54.039] leadership in whatever you put your hand and your
+- [12:57.076] mind to is beyond.
+- [12:58.611] Beyond what any of us could have hoped or
+- [13:01.747] imagined in terms of your leadership, your ability
+- [13:04.517] to move mountains for what you believe is important.
+- [13:07.686] I saw it with your Be Best campaign in the first term
+- [13:11.991] and now to see you put your intellect and your
+- [13:14.426] heart and your work behind this is just incredibly
+- [13:19.198] encouraging.
+- [13:19.865] And as your friend, I'm just so grateful.
+- [13:21.967] So thank you for your leadership.
+- [13:23.736] And to all of our private sector partners in the
+- [13:26.105] room, I know we're going to get to hear from some
+- [13:27.806] of you.
+- [13:28.841] Many of you, again, we've worked together for some
+- [13:30.643] time, but this is the new Trump administration
+- [13:36.015] (inaudible) most vexing challenges facing America.
+- [13:39.318] So for those of you that have made this a priority
+- [13:46.125] in the private sector, we're just so, so grateful
+- [13:51.697] for your leadership and your willingness to lean
+- [13:56.635] in.
+- [13:57.303] And realizing that sometimes in our country,
+- [14:00.739] things can get fairly divisive, but your
+- [14:02.942] willingness to lean and to be part of the universal
+- [14:06.111] approach to solving these massive problems is just
+- [14:09.181] so appreciated.
+- [14:09.915] So thank you.
+- [14:11.083] I want to say that President Trump has been
+- [14:14.520] very clear.
+- [14:15.354] The United States will lead the world in
+- [14:18.023] artificial intelligence, period, full stop.
+- [14:21.727] Not China, not any of our other foreign adversaries,
+- [14:25.164] but America.
+- [14:26.865] And with the First Lady's leadership and the
+- [14:29.134] Presidential AI Challenge, we are making sure that
+- [14:32.805] our young people are ready to win that race.
+- [14:36.508] And I think that's why we're all here today.
+- [14:38.377] From my perspective, as the Secretary of
+- [14:41.313] Agriculture and hyper-focused on rural
+- [14:43.849] America and returning the golden age of prosperity
+- [14:46.986] to every corner of this great country, I would
+- [14:50.256] like to say that far too often, for those living
+- [14:53.759] and working in our rural parts of our country, that
+- [14:57.329] often those are left behind and do not always
+- [15:00.299] have the same access to the most recent
+- [15:03.068] technological innovations that our urban
+- [15:06.038] counterparts across the country do.
+- [15:07.806] We cannot let that happen with AI.
+- [15:11.543] The agricultural sector, who feeds and fuels and
+- [15:15.614] close the country, who provides the national
+- [15:18.784] security in terms of feeding ourselves and
+- [15:21.020] fueling ourselves, has the potential for a seismic
+- [15:25.024] shift driven by the integration of cutting
+- [15:28.227] edge technologies like AI.
+- [15:29.962] While AI has already made some inroads in our
+- [15:33.666] farming practices and with our farmers and ranchers.
+- [15:36.735] Its potential in agricultural education,
+- [15:39.338] and we're here to talk today about education, is
+- [15:42.074] equally transformative.
+- [15:43.575] From personalized learning experiences to predictive
+- [15:47.012] analytics for curriculum design, AI is reshaping
+- [15:50.716] how agricultural knowledge is imparted and absorbed.
+- [15:55.321] This is why USDA will leverage partnerships with
+- [15:58.057] 4-H, the Cooperative Extension System, and the
+- [16:01.360] National Future Farmers of America.
+- [16:03.829] To bring the Presidential AI challenge into the
+- [16:07.199] heart of rural America.
+- [16:09.335] With potential to reach nearly six million youth
+- [16:13.038] through 4-H and then one million through FFA, the
+- [16:17.076] sky really is the limit to change the future of rural
+- [16:21.413] American.
+- [16:22.581] Microsoft and FFA have already developed a
+- [16:25.150] partnership called Farm Beats for K through 12
+- [16:27.920] students, where they can work with environmental
+- [16:30.389] sensor systems to monitor soil moisture and detect
+- [16:34.360] nutrient deficiencies.
+- [16:36.195] These changes will make our farmers more efficient
+- [16:38.630] and make our food supply more nutritious.
+- [16:41.834] In addition to amplifying the Presidential AI
+- [16:44.503] Challenge with our partners, USDA is well
+- [16:47.606] prepared to support research, extension, and
+- [16:50.175] education activities that promote the use of
+- [16:53.045] artificial intelligence.
+- [16:54.880] In fact, USDA led the way in the first Trump
+- [16:57.783] administration through the creation of five AI
+- [17:01.353] research institutes at our amazing land grant
+- [17:04.690] institutions.
+- [17:05.958] This collaboration brought together government,
+- [17:08.360] academia, and industry and totaled over $100 million
+- [17:12.898] in investments in Trump one, five, six, seven
+- [17:16.235] years ago to research the use of AI in agriculture.
+- [17:20.906] In addition to the cutting edge research being
+- [17:23.308] conducted, a key tenet of these institutes is
+- [17:26.912] education and workforce development.
+- [17:30.149] We can point to many examples of this at USDA
+- [17:33.719] in supporting the training of an AI ready workforce.
+- [17:37.923] Last month we had an AI Institute for Resilient
+- [17:41.093] Agriculture at Iowa State University holding a
+- [17:44.463] workshop for over 250 farmers to show how the AI
+- [17:48.801] tools they develop can assist in pest
+- [17:51.270] identification and management.
+- [17:53.439] Also embedding AI education and
+- [17:55.674] apprenticeships into many of our USDA grant
+- [17:58.544] programs.
+- [17:59.311] While there is more work to be done and the sky is
+- [18:02.181] truly the limit, examples like Texas State
+- [18:05.551] University creating a technology and leadership
+- [18:08.120] education network focused on AI, providing
+- [18:11.490] apprenticeships courses and workshops to integrate
+- [18:14.793] precision agriculture, training youth and
+- [18:17.463] education about new agricultural technologies
+- [18:20.365] such as unmanned aerial systems at Tennessee State
+- [18:23.936] University, and over 600 high school students in
+- [18:27.072] Colorado.
+- [18:27.840] Being trained on advanced technologies for
+- [18:30.375] agriculture, like robotics and automation.
+- [18:35.147] As I wrap today, before I hand it over to my amazing
+- [18:38.550] colleague, Lori Chavez-Durimer, our
+- [18:40.185] Secretary of Labor, there is so much we can do.
+- [18:43.222] And I want to, again, send my heartfelt thanks to
+- [18:46.325] Michael Kratsios:, also to our incredible First Lady
+- [18:49.461] and her wonderful team and everything that has been
+- [18:52.564] done to get us to this point today.
+- [18:55.868] With the commitment of First Lady Mrs. Trump, and
+- [18:59.438] with the commitment of our industry partners who are
+- [19:01.340] sitting with us on the dais, but also in the
+- [19:03.175] audience, and of course, with President Donald
+- [19:06.211] Trump's leadership, tomorrow's workforce will
+- [19:09.281] be ready and leading the way in innovation.
+- [19:12.784] America's future will be stronger, more secure, and
+- [19:16.655] second to no one.
+- [19:18.123] The American dream will thrive and prosper like
+- [19:21.627] never before.
+- [19:22.528] And at the heart of all of that will be the American
+- [19:25.764] worker.
+- [19:26.431] So at this point, I'd love to turn it over to
+- [19:28.300] Secretary Chavez-Deremer to talk a little bit about
+- [19:30.736] that.
+- [19:31.403] Thank you all.
+- [19:32.070] Secretary Chavez-Deremer: Thank you, Brooke.
+- [19:33.539] Good afternoon.
+- [19:34.606] I'm Laurie Chavez-Deremer, and it's really an honor
+- [19:36.742] to be here on behalf -- Madam First Lady, thank
+- [19:40.279] you so much for what you're doing in the
+- [19:41.613] initiative.
+- [19:42.314] And on behalf of the American worker, we have a
+- [19:45.083] lot of exciting updates from the Department of
+- [19:47.252] Labor, and so I'll be brief.
+- [19:49.354] Under the direction of President Trump, the
+- [19:51.690] Department of Labor has taken on decisive action
+- [19:54.426] to make sure that we are promoting AI literacy and
+- [19:57.696] skills training.
+- [19:59.064] While the primary focus of this group is preparing
+- [20:01.333] our youth, the future youth.
+- [20:03.569] Congratulations.
+- [20:04.503] We are also advancing proposals to ensure all
+- [20:07.472] American workers are ready to thrive in an AI-driven
+- [20:10.943] economy.
+- [20:12.044] As you know, the President set out a goal to make
+- [20:14.146] America skilled again by providing more flexibility
+- [20:17.349] to state and local governments, including for
+- [20:20.085] artificial intelligence programs.
+- [20:22.621] Last month, the Labor Department issued guidance
+- [20:25.557] to state and local workforce agencies
+- [20:27.960] encouraging the use of Workforce Innovation and
+- [20:31.196] Opportunity Act.
+- [20:32.464] Some of you know it as WIOA funds, to help
+- [20:35.033] develop those AI skills.
+- [20:37.603] This new guidance also clarified that states can
+- [20:40.238] use their governor's reserve funds for AI
+- [20:42.641] learning opportunities, helping increase training
+- [20:45.477] across the public workforce system.
+- [20:48.213] To further promote AI training, we have
+- [20:50.182] developed a set of priorities to expand
+- [20:52.417] AI-related apprenticeship opportunities.
+- [20:55.253] It's part of a comprehensive workforce
+- [20:57.055] strategy that we just published with the
+- [20:59.191] Department of Commerce and Education titled America's
+- [21:02.427] talent strategy, equipping American workers for the
+- [21:05.497] golden age.
+- [21:07.199] On the job training programs will help fill
+- [21:09.234] the mortgage paying jobs that AI will create.
+- [21:13.639] While also enhancing the unique skills required to
+- [21:16.241] succeed in various industries, expanding
+- [21:19.211] these opportunities is a key component of our
+- [21:21.580] strategy to reach the President's goal of one
+- [21:24.783] million new active apprentices across the
+- [21:27.486] United States.
+- [21:28.887] And finally, the Department of Labor has
+- [21:30.689] been very proactive and engaging with industry
+- [21:33.425] leaders to start the dialog around what AI
+- [21:35.827] literacy looks like and how we can collaborate to
+- [21:38.630] help all American workers to succeed.
+- [21:41.533] My team has held dozens of meetings with industry
+- [21:43.735] stakeholders, as well as the governor's offices,
+- [21:46.672] state workforce agencies, and local workforce boards
+- [21:49.875] across the country.
+- [21:51.643] In the coming months, I will expect to have many
+- [21:54.746] more exciting announcements.
+- [21:56.515] We are working on developing the best
+- [21:58.984] practices for an effective AI literacy training and
+- [22:02.454] on a potential public-private
+- [22:04.089] partnerships that could play an important role in
+- [22:07.192] making AI training accessible to all American
+- [22:09.761] workers.
+- [22:10.829] I'd like to thank again the First Lady and
+- [22:13.031] everyone in this room for doing what you are all
+- [22:15.067] doing to prepare the American workforce for the
+- [22:17.502] jobs of the future.
+- [22:19.271] As I continue around my 50-state tour, and we've
+- [22:21.740] hit 32 states in the last five months, We'll
+- [22:24.309] continue to promote AI in its excellence.
+- [22:27.079] And it is going to be this initiative and this group
+- [22:29.748] and all of you out here in America to help us lead
+- [22:32.384] the way and tell those stories to the President.
+- [22:34.953] I look forward to the continuing collaboration
+- [22:36.788] and have confidence in this era of American AI
+- [22:40.258] dominance.
+- [22:41.159] Thank you.
+- [22:41.827] Secretary (inaudible).
+- [22:44.396] Secretary Wright: Thank you all for being here
+- [22:47.899] today for this just really, really important
+- [22:51.069] movement.
+- [22:52.104] At its essence, artificial intelligence takes
+- [22:55.107] electricity and turns it into intelligence
+- [22:58.677] empowering Americans.
+- [23:00.579] At the Department of Energy, my biggest focus
+- [23:03.315] seven days a week is how to grow our supply of
+- [23:06.351] electricity.
+- [23:07.519] Over the last 20 years, the United States has more
+- [23:09.788] than doubled our natural gas production and tripled
+- [23:12.924] our oil production.
+- [23:14.126] But have seen very little growth in our electricity
+- [23:17.295] production.
+- [23:18.163] We will not win at AI if we don't massively grow
+- [23:21.700] our electricity production.
+- [23:23.001] So that's taking a ship that hasn't moved much in
+- [23:25.504] a while and getting it supercharged.
+- [23:28.507] The other relevant activity we have at AI at
+- [23:31.510] the Department of Energy is through our national
+- [23:33.779] labs, we are working to take cancer from a death
+- [23:37.516] sentence for millions of Americans into manageable
+- [23:40.452] conditions across those by using the power of
+- [23:43.789] artificial intelligence.
+- [23:45.323] We're using artificial intelligence to harness
+- [23:47.259] fusion energy, something I worked on 40 plus years
+- [23:50.829] ago.
+- [23:51.763] We'll use it to understand the basic fabric of the
+- [23:54.533] universe.
+- [23:55.433] So these incredible scientific endeavors, but
+- [23:58.103] perhaps the killer app, the most important use of
+- [24:01.473] AI is for education and to fix one of the greatest
+- [24:05.243] American shortcomings, our K through 12 education
+- [24:08.380] system.
+- [24:09.247] I am so thankful and inspired by the First Lady
+- [24:12.884] to focus all of us.
+- [24:15.053] We've got to not leave our kids behind.
+- [24:16.888] We've been doing that for decades.
+- [24:18.590] We've got to fix our education system.
+- [24:21.026] AI is a transformative tool to do that.
+- [24:24.029] Michael Kratzios here is taking that bull by the
+- [24:26.298] horn and pushing it forward.
+- [24:28.533] I could not be more thrilled to be part of
+- [24:31.236] this effort.
+- [24:32.070] My wife and I have been in school trying to fix the
+- [24:35.040] school system for 30 years, through school
+- [24:37.142] choice, through school reform, through starting
+- [24:39.177] schools, through running camps, through doing
+- [24:41.313] everything we can.
+- [24:42.747] But with the leaders in this room and the
+- [24:44.549] leadership of the First Lady and Michael Kratsios,
+- [24:47.219] I think we can move the needle if we all dig deep
+- [24:50.355] in the next few years.
+- [24:51.823] God bless you and thank you for being here.
+- [24:53.425] Male Speaker: David?
+- [24:54.092] Male Speaker: All right, thank you.
+- [24:55.427] Everyone's already been thanked, but I also want
+- [24:56.761] to add my thanks to the First Lady for championing
+- [24:58.096] the Presidential AI Challenge and your clear
+- [24:59.464] dedication to America's school children.
+- [25:00.799] So thank you, Madam First Lady.
+- [25:01.466] And I also want to thank our OSTP Director, Michael
+- [25:04.803] Kratsios, for his tireless efforts leading this
+- [25:09.507] initiative as well, and also helping to make sure
+- [25:13.945] the U.S.
+- [25:14.613] dominates every part of the AI stack.
+- [25:15.947] From his first days in office this year,
+- [25:26.291] President Trump has shown visionary and decisive
+- [25:28.994] leadership in this critical technology of AI.
+- [25:32.497] And we've made, I think, amazing progress over the
+- [25:35.267] last seven months.
+- [25:36.067] There's been too many wins to list all of them here,
+- [25:38.637] but I want to just mention a few.
+- [25:41.273] In the first week of his administration, President
+- [25:42.974] Trump rescinded hundreds of pages of unnecessary
+- [25:45.844] regulation, burdensome and unnecessary regulation on
+- [25:49.381] our AI model companies and on our chip companies.
+- [25:52.317] And instead he, in lieu of that, he initiated the
+- [25:55.020] development of an AI action plan that we just
+- [25:56.955] released a few weeks ago.
+- [25:58.390] And at the action plans unveiling, this was on
+- [26:00.425] July 23rd, President Trump gave, I think, a momentous
+- [26:03.395] policy speech on AI, which is the most important
+- [26:06.631] speech that's been given on AI by any official.
+- [26:11.202] And he made the pillars of our AI policy being
+- [26:14.439] pro-innovation, pro-infrastructure,
+- [26:17.242] pro-export, and pro-worker.
+- [26:19.644] And he also signed three executive orders that day
+- [26:22.781] to help further this policy.
+- [26:24.482] The first was to make it easier to build new data
+- [26:27.686] centers and energy infrastructure.
+- [26:29.054] And thanks to President Trump's leadership, he's
+- [26:31.189] already attracted hundreds of billions of dollars of
+- [26:32.958] investment into the United States for data centers
+- [26:35.760] and energy and infrastructure.
+- [26:37.462] And as he likes to say, the U.S.
+- [26:40.298] Is the hottest country in the world right now,
+- [26:43.401] thanks to his leadership.
+- [26:45.103] The second executive order established the American
+- [26:47.806] AI Exports Program to ensure American leadership
+- [26:50.575] across the world.
+- [26:51.376] We want to make sure that the American tech stack
+- [26:54.112] wins internationally as well.
+- [26:56.614] And the Third Executive Order banned the federal
+- [26:58.883] government from procuring ideologically biased or
+- [27:02.454] woke AI.
+- [27:03.221] We want to make sure that AI only pursues truth,
+- [27:06.758] fairness, and impartiality.
+- [27:09.627] So I think those are just some of the amazing
+- [27:11.563] accomplishments that the administration has made
+- [27:13.732] over the last seven months.
+- [27:15.333] As we meet here to discuss AI education and
+- [27:18.036] empowering America's children, it's still the
+- [27:20.505] very early days of this incredible industry.
+- [27:22.774] And I'm reminded of what.
+- [27:24.275] President Trump said during that AI speech that
+- [27:27.012] he said that American AI is like a beautiful baby
+- [27:30.148] that's just been born.
+- [27:31.683] We have to grow that baby and let that baby thrive.
+- [27:33.985] And he's absolutely right about that.
+- [27:36.287] And we have to enable our children to thrive with
+- [27:39.391] it.
+- [27:40.258] And let me acknowledge that when it comes to the
+- [27:42.827] topic of AI, there is a lot of fear out there.
+- [27:45.463] Some people think that AI is going to take all of
+- [27:48.566] our jobs.
+- [27:49.234] I really don't think that's going to happen.
+- [27:51.236] I think AI is going to unleash a productivity
+- [27:53.405] boom like we've never seen.
+- [27:54.806] It's going to make all of us more productive.
+- [27:56.241] It's going to make our jobs more satisfying.
+- [27:58.543] And there's an online quote that's been flying
+- [28:00.512] around that says, you're not going to lose your job
+- [28:02.847] to AI, but you might lose your to someone who uses
+- [28:05.884] AI better than you.
+- [28:07.585] And I think there is some truth to that, that AI is
+- [28:10.288] going to be the ultimate boost for our workers and
+- [28:13.725] it is important that they learn from an early age
+- [28:17.128] how to use AI.
+- [28:18.530] And that's why it's critical that our children
+- [28:21.599] learn AI.
+- [28:22.801] And that why this program is so important to further
+- [28:27.305] AI education.
+- [28:28.173] And it's important, I think, to further it for
+- [28:31.076] school children in every part of America, every
+- [28:34.245] socioeconomic class or bracket, because this is
+- [28:37.849] really fundamental to equality of opportunity
+- [28:40.051] for every child in the country.
+- [28:42.654] And just finally, the last thing I want to say is
+- [28:44.956] just that I want to thank all of the companies that
+- [28:48.059] are here today who have made pledges to donate
+- [28:50.495] their resources to AI education.
+- [28:53.064] I think this is really important.
+- [28:54.399] President Trump, in his AI speech, called on our
+- [28:55.733] technology companies to promote a new spirit of
+- [28:57.068] patriotism and national loyalty, and that's what
+- [28:58.403] you're all doing here today.
+- [28:59.070] So I think that's fantastic.
+- [28:59.737] And I think, you know, each of your companies and
+- [29:01.106] the nonprofits who are here, today.
+- [29:02.440] They've recognized that the opportunity to serve
+- [29:03.775] your fellow citizens and help build a great
+- [29:05.110] American future.
+- [29:05.777] You're all in for America.
+- [29:06.444] We really appreciate that.
+- [29:07.112] You're putting America first and we look forward
+- [29:08.446] to hearing more about your contributions and I think
+- [29:09.814] we'll do that next.
+- [29:10.482] Thank you.
+- [29:11.149] Director Kratsios: Yeah, thank you so much, David.
+- [29:12.484] I think now we'll briefly hear from three of our
+- [29:21.593] more than 135 generous pledge signers, Arvind
+- [29:34.372] Krishna from IBM, Cameron Wilson from Code.org, and
+- [29:37.709] Sundar Pichai from Google each say a few words about
+- [29:40.879] their contributions.
+- [29:41.980] Sundari, Arvind, if you want to start.
+- [29:45.750] Arvind Krishna: Good afternoon, everyone.
+- [29:48.219] It's a privilege to be here and contribute to
+- [29:51.222] help build America's AI-ready workforce.
+- [29:54.359] Let me begin by first thanking the First Lady,
+- [29:56.995] Mrs. Melania Trump, for helping lead this effort
+- [30:00.331] and galvanize all of us into contributing, but
+- [30:02.700] also to President Trump for all of his efforts
+- [30:05.236] around AI, as David just spoke about.
+- [30:08.473] Let me also thank the cabinet members who are
+- [30:10.375] here for all the efforts that they are putting into
+- [30:12.911] helping build America's AI- ready workforce.
+- [30:17.815] Addressing the AI skills gap is going to be
+- [30:20.218] essential for us to achieve what we all want
+- [30:24.756] to with AI contributing to America's leadership, but
+- [30:28.426] also to America productivity.
+- [30:30.929] The President's AI action plan shows us the way to
+- [30:33.998] that future by empowering American workers to lead
+- [30:37.535] in the AI economy.
+- [30:39.337] As the plan highlights, U.S.
+- [30:41.272] Companies also have a central role to play in
+- [30:44.475] building this workforce.
+- [30:46.477] By partnering with government agencies,
+- [30:48.880] nonprofit organizations, and communities, as well
+- [30:53.384] as educators, we can deliver the training that
+- [30:56.955] meets the demands of the labor market.
+- [31:00.391] IBM has long embraced this collaborative approach,
+- [31:03.895] and we are fully committed to upholding this
+- [31:05.863] responsibility.
+- [31:07.599] We are proud to join the pledge by committing to
+- [31:10.902] train 2 million American workers in cutting-edge AI
+- [31:14.906] skills over the next three years.
+- [31:17.909] We will do this through a groundbreaking program
+- [31:21.112] called IBM SkillsBuild, which we launched to help
+- [31:25.483] expand access to AI education, but also to
+- [31:28.987] create pathways for these high-demand technical
+- [31:32.790] roles.
+- [31:34.325] A quick example, Zach Switzer is a high school
+- [31:37.962] teacher at the John Marshall School of IT in
+- [31:40.832] Cleveland.
+- [31:42.100] He used IBM SkillsBuild to acquire the foundation
+- [31:45.303] knowledge himself and then to give his students in
+- [31:49.040] turn that knowledge.
+- [31:51.209] These examples need to get multiplied a hundred and
+- [31:54.345] thousand fold in order to bring these AI skills into
+- [31:58.483] the communities.
+- [31:59.784] Teachers like Zach in schools across the country
+- [32:02.654] can access AI learning through IBM SkillsBuild,
+- [32:06.424] adopt the modules into the classroom and then help
+- [32:10.795] the students gain these valuable skills to take
+- [32:13.464] into the workforce, and hopefully find a great
+- [32:17.235] paying job.
+- [32:19.370] This is only one of many success stories, but when
+- [32:22.173] it comes to meeting the growing demand for AI, no
+- [32:25.076] organization can do it alone.
+- [32:27.211] This is why IBM is proud to be part of the
+- [32:29.547] President's program, and part of his national AI
+- [32:34.452] education initiative with its emphasis on
+- [32:37.055] collaboration across the different sectors.
+- [32:40.358] We look forward to working with the administration
+- [32:43.094] and with all of our partners to achieve these
+- [32:45.163] goals.
+- [32:45.897] Thank you.
+- [32:46.631] With that, Cameron Wilson of Code.org.
+- [32:48.933] Cameron Wilson: Thank you so much, and I deeply
+- [32:51.936] appreciate the invite today so that Code.org can
+- [32:55.073] come speak to you about our nonprofit work that
+- [32:57.742] we're doing around AI education.
+- [33:00.378] So just a few months ago, 450 CEOs, many of whom are
+- [33:05.049] in this room today, came together and called on
+- [33:09.287] states to require computer science and AI education
+- [33:14.125] for every student.
+- [33:14.992] Only 12 states do this today.
+- [33:16.761] These leaders really recognize the moment that
+- [33:21.232] we're in, which is AI education is the global
+- [33:25.002] competitiveness issue that faces us today.
+- [33:27.739] And we really need to meet this moment with an
+- [33:29.674] education system that provides students with AI
+- [33:34.145] education, and specifically, students
+- [33:36.347] really need learn how AI works.
+- [33:39.083] They really need understand the
+- [33:40.518] opportunities, the risks, the limits of AI, and the
+- [33:44.822] underlying computer science that is driving
+- [33:47.458] this innovation forward.
+- [33:49.327] Simply learning to use AI just won't be enough.
+- [33:52.363] We need to spark their curiosity and build their
+- [33:56.134] confidence so they can be agile as the workforce
+- [33:59.303] changes with AI or as AI changes itself.
+- [34:03.007] And we need to empower them so that they can
+- [34:05.977] envision and really express how they can shape
+- [34:09.347] a better future with AI.
+- [34:10.615] Steve Jobs had a great quote he used to have and
+- [34:14.919] it was why he loved to learn computer science
+- [34:17.155] because it taught him to think differently about
+- [34:18.923] problems.
+- [34:19.624] And that doesn't change in the age of AI.
+- [34:21.993] So both the Presidential AI challenge and the AI
+- [34:24.762] executive order recognize the moment that we're in.
+- [34:28.266] They will catalyze state led efforts to help
+- [34:31.235] modernize our education system.
+- [34:32.970] And I want to thank the White House and the First
+- [34:35.206] Lady's leadership on this because this is a priority
+- [34:38.342] we must place in our AI education system.
+- [34:40.678] Ever since Hadi Partovi and myself started, began
+- [34:44.315] the work about 12 years ago with Code.org, we've
+- [34:46.984] helped change the global education system by
+- [34:49.120] bringing computer science education to 100 million
+- [34:52.123] students worldwide.
+- [34:53.591] And we've passed policy reform to embrace and
+- [34:56.828] prioritize computer science, education for all
+- [34:59.530] 50 states.
+- [35:00.198] And now that changes with involving AI education
+- [35:04.035] with computer science.
+- [35:06.103] So we're the global leader that help bring together
+- [35:09.040] partners around students, and teachers, and
+- [35:11.676] administrators so that they can be part of this
+- [35:14.645] global education movement.
+- [35:16.347] And as part of the AI executive order, we're
+- [35:18.749] committing to evolving and expanding this movement by
+- [35:22.453] engaging 25 million learners, including
+- [35:25.356] students, and teachers, and parents in the hour of
+- [35:27.892] AI this year -- this would be for this school year.
+- [35:30.461] Our goal is to partner with 25 states over the
+- [35:33.898] next three years to help promote and build out AI
+- [35:36.801] pathways, AI standards, and the AI Education Act.
+- [35:40.505] We're developing and scaling a new, free open
+- [35:45.576] source high school course focused on AI, AI
+- [35:48.746] foundations, which we plan to have reach about
+- [35:50.948] 400,000 high school students in the US by
+- [35:53.684] school year '28.
+- [35:55.086] And we want to provide free open source computer
+- [35:58.389] science and AI learning for about 9 million
+- [36:00.358] students, K-8 students, by school year '28.
+- [36:05.062] Those are the things that we're committing to do to
+- [36:06.998] really transform our education system so that
+- [36:09.267] students can thrive in the age of AI.
+- [36:11.936] But we've always acted, at Code.org, with a broad
+- [36:15.172] community of partners, including teachers and
+- [36:17.375] administrators and parents and leaders across all
+- [36:19.477] levels of government from all different parties, and
+- [36:22.446] particularly with our lead partners, Microsoft,
+- [36:24.682] Google, and Amazon, have always been a really
+- [36:27.318] unique contribution to our coalition and numerous
+- [36:30.187] other companies that are in this room.
+- [36:32.957] Pulling together this broad coalition of leaders
+- [36:35.126] has been the unique strength that we've helped
+- [36:37.662] build this global movement.
+- [36:39.330] And with AI education, We have a chance to both
+- [36:41.866] reinvigorate and expand this movement so that we
+- [36:46.604] can fulfill our vision that every student has a
+- [36:49.674] chance to learn AI and computer science and
+- [36:52.710] modernize education.
+- [36:53.945] So we would love for any organization that wants to
+- [36:56.581] partner with us to help us bring computer science AI
+- [37:00.117] to the next hundred million students over the
+- [37:01.719] next decade.
+- [37:02.720] So thank you very much.
+- [37:04.422] And I want to turn it over to (inaudible)
+- [37:06.724] Sundar Pichai: Mrs. Trump, Director Kratzios,
+- [37:10.695] esteemed cabinet officials, hello, and it's
+- [37:13.064] a real honor for me to be here to support the First
+- [37:15.800] Lady's Presidential AI Challenge.
+- [37:18.135] I think you're really inspiring young people to
+- [37:20.471] use technology in extraordinary ways.
+- [37:22.273] It's a deeply important issue for us as a company.
+- [37:26.944] At Google, we see AI as the most profound way
+- [37:29.814] we'll deliver on our mission and transform
+- [37:32.516] knowledge and learning.
+- [37:34.285] We really imagine a future where every student,
+- [37:37.154] regardless of their background or location,
+- [37:39.557] can learn anything in the world in a way that works
+- [37:42.360] best for them.
+- [37:44.061] We've been really focused on this for decades.
+- [37:46.030] It's why we built Chromebooks for every
+- [37:48.065] classroom, why we have worked to make our AI
+- [37:51.469] model, Gemini, one of the best models for learning.
+- [37:55.239] It's way we are offering our Gemini for education
+- [37:57.942] to every high school in America.
+- [38:00.111] We are providing access to every high school student
+- [38:02.313] and every teacher with our best AI tools, including
+- [38:05.683] guided learning.
+- [38:07.351] We recently committed $1 billion over the next
+- [38:10.087] three years to support education and job training
+- [38:12.423] programs in the US.
+- [38:14.158] And today, I'm excited to share that $150 million of
+- [38:17.628] that $1 billion will go towards grants to support
+- [38:20.831] AI education and digital well-being.
+- [38:24.268] This includes support to Code.org to transform its
+- [38:27.304] curriculum and integrate new AI features.
+- [38:30.274] We're also providing support to the Flourish
+- [38:32.777] Fund to support nonprofits, helping you to
+- [38:35.446] aging out of the foster care system with tools to
+- [38:38.215] succeed in the workplace.
+- [38:40.284] For college students, our AI for Education
+- [38:42.953] Accelerator has expanded from 100 colleges and
+- [38:45.723] universities to 200, including the Texas A&M
+- [38:49.226] University System and Iowa's community colleges.
+- [38:53.264] And we've set up a centralized place for
+- [38:55.833] teachers and parents to get all our best AI
+- [38:58.269] training in one place, something we've heard can
+- [39:00.805] be really helpful.
+- [39:01.605] This is all in the service of helping the next
+- [39:04.375] generation to solve problems, fuel innovation,
+- [39:07.511] and build an incredible future.
+- [39:09.547] These are all goals we all share.
+- [39:11.716] We are incredibly thankful for the partnership and
+- [39:14.485] the leadership from the First Lady, the President,
+- [39:16.587] and the administration, and for showing us the
+- [39:18.756] way.
+- [39:19.423] Thank you.
+- [39:20.091] Director Kratsios: Thank you so much, Sundar, and
+- [39:22.460] thank you all to our distinguished guests.
+- [39:24.929] As we work to invest in America's children,
+- [39:27.832] America's future, we're really grateful for all of
+- [39:30.601] your support.
+- [39:31.569] For everyone out there, if you go to AI.gov, all of
+- [39:33.938] the tremendous contributions and
+- [39:35.639] commitments that everyone has made can be seen
+- [39:37.274] there, and I think it's going to be a really,
+- [39:39.777] really special thing for all students, parents, and
+- [39:41.879] educators this school year.
+- [39:43.814] And lastly, my special thanks once again to the
+- [39:46.917] First Lady for being here with us today.
+- [39:48.586] Thank you.
+- [39:50.221] So this concludes our White House Task Force on
+- [39:53.491] AI Education's second meeting and we very much
+- [39:55.930] look forward to working with all of you again soon.
+- [39:59.305] (applause)
+- [40:04.039] ♪ ("God Bless America" band rendition) ♪

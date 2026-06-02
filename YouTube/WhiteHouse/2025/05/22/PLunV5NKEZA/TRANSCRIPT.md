@@ -1,0 +1,845 @@
+<!-- source: https://www.youtube.com/watch?v=PLunV5NKEZA -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: PLunV5NKEZA -->
+<!-- date_published: 2025-05-22T17:48:44+00:00 -->
+<!-- date_accessed: 2026-06-02T02:49:31.559137+00:00 -->
+
+# Transcript: Press Secretary Karoline Leavitt Briefs Members of the Media, May 22, 2025
+
+- [00:04.950] Karoline Leavitt: Good afternoon, everybody.
+- [00:07.630] How are we?
+- [00:11.130] President Trump is saddened and outraged
+- [00:14.310] over the brutal murder of two Israeli
+- [00:16.680] embassy staff here in Washington D.C.
+- [00:19.470] Last night.
+- [00:20.780] Yaron Leshinsky and Sarah Milgram
+- [00:23.220] were a beautiful young couple.
+- [00:25.880] In fact, we learned that Yaron was planning to propose to Sarah
+- [00:29.160] next week in Jerusalem. Yaron's father, Daniel,
+- [00:32.870] spoke about the young couple's devotion
+- [00:34.820] for one another this morning.
+- [00:36.670] He said, they were in love, one for the other.
+- [00:40.260] The embassy told us they were like a star couple
+- [00:42.650] at the embassy.
+- [00:43.910] I never expected something like this.
+- [00:46.460] He had his whole life before him.
+- [00:49.380] These words, especially every parent knows,
+- [00:52.080] are heart wrenching.
+- [00:53.480] The evil of anti-Semitism must be eradicated from our society.
+- [00:58.810] I spoke to the Attorney General this morning.
+- [01:00.960] The Department of Justice will be prosecuting
+- [01:03.280] the perpetrator responsible for this
+- [01:05.100] to the fullest extent of the law.
+- [01:08.160] Hatred has no place in the United States of America
+- [01:11.690] under President Donald Trump. Everyone here at the White House
+- [01:15.650] is praying for the victims' friends
+- [01:17.250] and families during this unimaginable time.
+- [01:20.650] Now for some scheduling announcements.
+- [01:22.760] On Saturday morning, President Trump
+- [01:24.490] will deliver the commencement address
+- [01:26.100] at the United States Military Academy at West Point.
+- [01:29.350] On Monday, to commemorate Memorial Day,
+- [01:31.900] the President will visit Arlington National Cemetery
+- [01:35.300] and participate in a wreath-laying ceremony.
+- [01:38.280] The President will further honor our military next month,
+- [01:41.160] on June 14th, when he hosts the 250th anniversary
+- [01:45.710] of the United States Army,
+- [01:46.950] with a grand military parade celebration
+- [01:49.840] right here in our nation's capital.
+- [01:52.470] President Trump will be joined by veterans, active-duty troops,
+- [01:56.000] Wounded Warriors, Gold Star families,
+- [01:58.020] and patriotic Americans from across the country
+- [02:00.860] to celebrate our heroes who have kept us safe.
+- [02:04.320] Tickets for the parade and the celebration
+- [02:06.120] are available through the America 250 Commission's
+- [02:08.710] event registration portal.
+- [02:10.700] It will be a truly historic and special day for our country.
+- [02:14.930] After the parade, President Trump will travel
+- [02:16.980] to the G7 Leaders Summit in Canada
+- [02:19.070] from June 15th through the 17th.
+- [02:21.620] We will be sending additional logistics information
+- [02:24.980] out after the briefing.
+- [02:27.550] Last night, Republicans in the House
+- [02:29.420] passed the One Big Beautiful Bill Act,
+- [02:31.550] the most significant piece of legislation in years.
+- [02:35.880] There were a lot of good faith negotiations
+- [02:37.830] in the Republican conference leading up to the final passage,
+- [02:40.350] but as always, President Trump came in at the end
+- [02:43.140] to bring all sides together and get this deal done.
+- [02:47.200] This One Big, Beautiful Bill will implement
+- [02:49.590] President Trump's Make America Great Again agenda
+- [02:52.180] by delivering the largest tax
+- [02:54.060] cut in American history for middle-class families,
+- [02:57.010] the working class, and small businesses.
+- [02:59.740] The One Big Beautiful bill fulfills
+- [03:01.420] President Trump's promises of no tax on tips,
+- [03:03.990] which was applauded today by the CEO of Uber,
+- [03:06.970] no tax on overtime, a Made in America auto tax break,
+- [03:10.800] Trump savings accounts for newborn babies,
+- [03:12.980] and substantial tax cuts for our amazing seniors'
+- [03:16.130] Social Security benefits.
+- [03:18.120] The One Big Beautiful Bill will permanently secure the border
+- [03:21.250] by delivering the largest border security investment in history
+- [03:24.590] funding at least
+- [03:25.800] one million annual removals of illegal aliens
+- [03:28.540] to carry out the largest deportation campaign
+- [03:31.190] ever, finishing the Trump border wall,
+- [03:33.690] and giving pay raises and bonuses for our incredible
+- [03:36.520] ICE and Border Patrol agents.
+- [03:38.950] The One Big Beautiful Bill protects the Medicaid program
+- [03:41.720] and its benefits for the most vulnerable Americans
+- [03:44.110] that the program was designed for by kicking off
+- [03:46.900] 1.4 million illegal aliens from receiving benefits
+- [03:50.660] and implementing common-sense work requirements
+- [03:52.960] for abled-bodied Americans.
+- [03:55.370] The One Big Beautiful Bill also helps get our fiscal house
+- [03:58.470] in order by carrying out the largest deficit reduction
+- [04:01.390] in nearly 30 years with $1.6 trillion in mandatory savings.
+- [04:07.070] Every single Democrat in the House of Representatives
+- [04:09.670] who voted against all of these common sense
+- [04:12.320] and massively popular policies,
+- [04:14.650] the Democrat Party has never been more radical
+- [04:17.400] and out of touch with the needs of the American people.
+- [04:21.010] The One Big, beautiful bill is the final missing piece
+- [04:23.750] toward ushering the golden age of America.
+- [04:26.890] The Senate should pass this as quickly as possible
+- [04:29.720] and send it to President Trump's desk for a final signature.
+- [04:33.690] After today's briefing,
+- [04:35.070] President Trump will hold a Make America Healthy Again
+- [04:37.650] event alongside Secretary Kennedy
+- [04:39.930] and several other cabinet secretaries
+- [04:41.730] to unveil the MAHA Commission report.
+- [04:44.690] President Trump wants every child in America
+- [04:47.280] to grow up and to live a long and healthy life.
+- [04:51.070] That's why he's working alongside Secretary Kennedy
+- [04:53.680] to end the chronic disease epidemic
+- [04:56.010] to keep our children healthy, safe, and disease-free.
+- [05:00.140] The MAHA Commission Report is a historic assessment,
+- [05:03.330] the first of its kind,
+- [05:04.640] by any presidential administration
+- [05:07.190] of current evidence and research about the health crisis
+- [05:09.840] affecting America's children.
+- [05:11.980] This report is a review of pre-existing research
+- [05:14.930] to comprehensively assess what we understand
+- [05:17.450] about our health problems. And what we don't understand,
+- [05:20.700] and how we can find those answers.
+- [05:22.960] All of the findings will be based
+- [05:24.660] on the gold standard of science.
+- [05:26.850] And I think I speak for all MAHA moms across the country
+- [05:29.910] when I say we look forward to the President's event
+- [05:32.070] and remarks later this afternoon.
+- [05:34.850] And as we head into the Memorial Day weekend,
+- [05:37.020] a quick update on gas prices.
+- [05:39.170] According to the fuel savings platform GasBuddy,
+- [05:42.100] the national average price of gasoline
+- [05:44.020] is expected to be $3.08 on Memorial Day.
+- [05:47.170] We expect that to continue to decline
+- [05:49.040] because of the President's energy policies,
+- [05:51.310] but this is down from Memorial Day last year.
+- [05:54.040] And adjusted for inflation, it's the second cheapest price
+- [05:56.990] for a gallon of gas on Memorial Day since 2003,
+- [06:00.740] thanks to President Trump. And finally, in other news,
+- [06:04.540] the Department of Homeland Security
+- [06:06.000] conducted a deportation flight from Texas
+- [06:08.580] to remove vicious illegal criminals in the United States.
+- [06:12.830] All of these individuals
+- [06:15.570] All of these individuals were sent,
+- [06:17.420] or are trying to be sent, to a third country.
+- [06:19.950] And President Trump promised to get vicious,
+- [06:22.460] illegal, alien murderers,
+- [06:23.840] rapists, and pedophiles like these out of our country,
+- [06:26.860] and he is delivering, trying to deliver on this promise.
+- [06:31.160] But no matter how upset this makes Democrats,
+- [06:33.270] we will continue to deport these monsters
+- [06:35.420] to keep Americans safe.
+- [06:37.120] And here are the heinous individuals
+- [06:39.490] who were on that flight.
+- [06:41.490] A Cuban national convicted of homicide,
+- [06:44.010] armed robbery, false impersonation of an official,
+- [06:46.580] kidnapping and robbery strong arm.
+- [06:49.910] A Cuban national convicted of attempted
+- [06:51.970] first degree murder with a weapon.
+- [06:54.180] A citizen of Laos convicted of first degree murder and robbery.
+- [06:58.640] A Mexican national convicted of second degree murder.
+- [07:02.120] A citizen of South Sudan convicted of robbery
+- [07:05.130] and the possession of a firearm.
+- [07:07.730] A citizen of Burma, convicted of lascivious acts
+- [07:11.370] with a child less than 12 years old.
+- [07:14.100] A citizen of Burma convicted of first degree sexual assault
+- [07:17.240] involving a victim mentally and physical incapable of resisting.
+- [07:21.420] It's disgusting.
+- [07:22.830] And a Vietnamese national convicted of 1st degree murder.
+- [07:26.510] Now, a liberal activist district court judge
+- [07:29.240] in the city of Boston, Massachusetts is trying to force
+- [07:32.230] the President of the United States
+- [07:34.270] to bring these monsters back to our country.
+- [07:37.750] Judge Brian Murphy is ordering
+- [07:39.380] the Department of Homeland Security
+- [07:40.760] to give these illegal criminals 15 days
+- [07:43.650] to reopen their immigration cases
+- [07:45.440] with access to phones and attorneys.
+- [07:48.000] Every single one of these individuals,
+- [07:49.990] I will add, had final orders of removal from our country.
+- [07:55.230] And now Judge Murphy is forcing federal officials
+- [07:58.220] to remain in Djibouti for over two weeks,
+- [08:01.120] threatening our U.S. Diplomatic relationships
+- [08:03.750] with countries around the world,
+- [08:05.800] and putting these agents' lives in danger
+- [08:08.930] by having to be with these illegal murderers,
+- [08:11.520] criminals, and rapists. This is completely absurd.
+- [08:15.340] Judge Brian Murphy is not the Secretary of State.
+- [08:17.890] He is not a Secretary of Defense or the Commander-in-Chief.
+- [08:21.120] He is a district court judge in Massachusetts.
+- [08:24.600] He cannot control the foreign policy
+- [08:27.240] or the national security of the United States of America,
+- [08:30.400] and to suggest otherwise is being completely absurd.
+- [08:34.710] According to new reporting about this judge,
+- [08:36.550] he's a registered Democrat in Massachusetts
+- [08:38.600] who during his Senate confirmation hearings
+- [08:40.410] failed to disclose his ties to a radical left-wing organization
+- [08:43.970] that claimed the word illegal to describe illegal aliens
+- [08:46.470] was inherently prejudicial.
+- [08:49.260] This massive judicial overreach by Judge Murphy
+- [08:52.370] is part of the same opposition
+- [08:53.900] our administration has faced since day one.
+- [08:57.110] Radical left- wing judges are egregiously trying to stop
+- [09:00.190] President Trump from using his core constitutional powers
+- [09:03.130] as head of the executive branch and Commander-in-Chief.
+- [09:06.630] These judicial activists
+- [09:07.890] want to unilaterally stop President Trump
+- [09:10.030] from deporting foreign terrorists
+- [09:12.040] and keeping the American people safe.
+- [09:14.670] Nearly 80 million Americans re-elected this President
+- [09:17.200] to deport illegal criminals from our homeland,
+- [09:19.630] and polling consistently shows that 90 percent of Americans
+- [09:22.630] want illegal alien criminals,
+- [09:24.580] especially those with final orders
+- [09:26.220] of removal from our country,
+- [09:27.920] who have chosen to continue to stay here illegally,
+- [09:31.170] Americans want these people sent home.
+- [09:34.080] We hope the Supreme Court will continue to rein this
+- [09:36.500] in as soon as possible
+- [09:37.780] to restore proper constitutional order in our country.
+- [09:41.470] We'll take some questions.
+- [09:42.670] And here in our new media seat today, we have Jillian Michaels.
+- [09:45.560] She's a renowned personal health expert.
+- [09:47.350] I know all of you know her.
+- [09:48.630] I certainly do, watching fitness videos growing up
+- [09:51.510] and a media powerhouse who has continues to expand her reach
+- [09:54.350] with her podcast, Keeping It Real.
+- [09:56.750] Jillian, I know you're here today
+- [09:58.050] for the Make America Healthy Again event.
+- [09:59.840] We're proud to welcome you to the White House.
+- [10:02.260] Thanks for being in the briefing.
+- [10:03.670] Why don't you go ahead?
+- [10:04.950] The Press: Thank you for having me.
+- [10:06.660] As a MAHA yourself,
+- [10:08.470] how do you interpret the significance of this report
+- [10:11.420] in terms of delivering measurable health improvements
+- [10:14.970] for Americans and their kids?
+- [10:16.290] And what specific actions does the administration plan
+- [10:20.690] to take in response to it?
+- [10:22.960] Karoline Leavitt: Well, thank you for the question.
+- [10:24.910] Again, thank very much for being here.
+- [10:26.810] I would like to emphasize we held a call earlier today
+- [10:30.180] with Secretary Kennedy, Secretary Rawlins,
+- [10:32.280] Administrator Zeldin,
+- [10:33.740] and other officials at Health and Human Services
+- [10:36.090] to talk about the gravity of this report.
+- [10:38.120] When the President took office,
+- [10:39.510] he promised to make this country healthy again.
+- [10:42.200] And the President signed an executive order
+- [10:44.150] directing this commission.
+- [10:45.510] And now, less than 100 days later,
+- [10:47.160] the commission is delivering this report,
+- [10:49.530] It's another promise made, another promise kept.
+- [10:52.610] And the report identifies four major factors
+- [10:55.460] that are contributing to the rise
+- [10:57.290] in childhood chronic disease.
+- [10:59.070] Again, this is the first time the federal government
+- [11:01.250] has really recognized in a single report
+- [11:04.060] that we have a problem in our country.
+- [11:05.940] Our children are getting sicker, not healthier.
+- [11:08.810] This is not just a crisis, a health crisis,
+- [11:11.380] but it poses national security implications as well.
+- [11:14.180] And this administration is focused on ensuring
+- [11:17.350] we understand why.
+- [11:19.070] The four factors contributing to the report,
+- [11:21.390] as you will all hear from the President later,
+- [11:24.110] are number one, poor diet,
+- [11:26.300] a robust discussion about ultra-processed food
+- [11:28.860] that are dominating our children's diets,
+- [11:31.450] environmental chemical exposure, plastics, and other chemicals
+- [11:34.560] that are unfortunately a part of our daily American life.
+- [11:38.270] It talks about the lack of physical activity
+- [11:40.280] and chronic stress,
+- [11:41.560] and how technology-driven lifestyles are contributing
+- [11:44.240] to decline of our children's physical and mental health
+- [11:46.520] And then lastly,
+- [11:47.910] the report touches on the over-medicalization
+- [11:50.760] that's taking place in our American society,
+- [11:52.860] nowhere else in the world,
+- [11:54.090] but just right here in the United States of America.
+- [11:57.130] And the report directs the entire administration
+- [11:59.390] to understand why these issues are happening
+- [12:02.210] and what public policy can the administration implement
+- [12:05.470] to ensure that we are fostering a more healthy country
+- [12:08.410] for our children. So, I'll leave it at that
+- [12:10.560] and let the President and his team
+- [12:12.020] speak more about this historic report later.
+- [12:14.360] But this should be good news for everyone.
+- [12:16.510] I don't care what your politics are,
+- [12:18.200] we should all agree that we want our children
+- [12:20.020] to be healthy and safe,
+- [12:21.990] and we want food supply to be safe and healthy.
+- [12:24.530] We have the best farmers and ranchers in the world
+- [12:27.560] right here in the United States of America,
+- [12:29.930] and have the world's best workers and people,
+- [12:33.190] but unfortunately we have a health crisis
+- [12:34.830] that's been plaguing us for too long,
+- [12:36.570] and this report speaks to the heart of it.
+- [12:38.810] You're welcome. Thanks for being here.
+- [12:40.320] Garrett, go ahead.
+- [12:41.540] The Press: Karoline, you guys are very proud
+- [12:43.050] of your record on transparency.
+- [12:44.270] I have two transparency related questions for you.
+- [12:46.900] On the President's dinner tonight,
+- [12:48.870] will the White House commit to making a list
+- [12:50.710] of the attendees public so people can see who's paying
+- [12:54.070] for that kind of access to the President?
+- [12:55.750] Karoline Leavitt: Well, as you know, Garett,
+- [12:56.990] this question has been raised with the President.
+- [12:59.360] I have also addressed the dinner tonight.
+- [13:01.050] The President is attending it in his personal time.
+- [13:04.630] It is not a White House dinner.
+- [13:06.030] It's not taking place here at the White House.
+- [13:08.140] But certainly, I can raise that question
+- [13:10.130] and try to get you an answer for it.
+- [13:11.350] The Press: Okay, and on the Qatari aircraft,
+- [13:13.390] the Air Force has said they're going to classify
+- [13:16.150] all the information about the work that has to get done
+- [13:18.000] to bring it up to snuff to be Air Force One.
+- [13:20.760] Previous Air Force One contracts,
+- [13:22.530] including the one that the president entered into in 2018,
+- [13:25.650] are public. That's available knowledge.
+- [13:27.300] Will the White House commit to releasing
+- [13:29.340] who's doing that work and the cost of that work?
+- [13:31.490] I understand that some elements might be classified
+- [13:33.200] about specific systems,
+- [13:35.010] but we commit to release that basic information
+- [13:37.130] so people can see ultimately what this costs.
+- [13:39.070] Karoline Leavitt: Well, Garrett, as you know,
+- [13:40.360] that's a question for the Department of Defense
+- [13:42.190] and the United States Air Force,
+- [13:43.530] who is accepting this jet as part of their fleet.
+- [13:45.690] The Press: Declassify meaning what?
+- [13:46.890] Karoline Leavitt: So, well, you'll have to ask
+- [13:48.200] the Department of Defense in the United States Air Force
+- [13:50.450] who is accepting this jet as part of its fleet.
+- [13:54.050] The Press: The president can declassify
+- [13:56.040] anything that he wants.
+- [13:57.890] Has he looked to see if there are any records here
+- [14:02.760] that would contradict what we've been told
+- [14:04.460] about Joe Biden's decline?
+- [14:07.600] Karoline Leavitt: He has not directed
+- [14:10.230] anyone to my knowledge to look into that,
+- [14:13.120] but surely I can ask him if he intends to.
+- [14:16.560] I think the president has spoken on this pretty extensively,
+- [14:19.700] and I have spoken about it extensively
+- [14:22.130] from this podium as well,
+- [14:23.800] how it was truly one of the worst political scandals
+- [14:26.290] this country has ever seen,
+- [14:27.550] that the previous administration covered up the decline
+- [14:30.420] in the former president's mental and physical ability.
+- [14:34.330] And it's now all coming out.
+- [14:36.830] But the American people knew the truth
+- [14:38.390] and that's one of the many reasons
+- [14:40.020] why President Trump won the election on November 5th.
+- [14:42.280] The Press: And President Trump says, he basically thinks,
+- [14:45.030] unelected Biden staffers concealed his decline
+- [14:48.350] so that they could use the levers of power
+- [14:51.350] for their own personal gain.
+- [14:53.510] Karoline Leavitt: Look, that's not just the president
+- [14:54.810] thinking that, Peter. There's a new book out.
+- [14:56.900] I don't know if any of you have heard about it.
+- [14:59.060] Again, a little bit too late
+- [15:00.540] because the American people knew the truth
+- [15:02.090] on this from the very beginning.
+- [15:03.340] And there were reporters in this room,
+- [15:04.630] including some from your network.
+- [15:05.850] Peter, I'll give you a little bit of credit here,
+- [15:07.820] who have said that clearly Joe Biden's staffers
+- [15:10.310] were engaging in this cover up. So this is common sense.
+- [15:13.250] This isn't the president making it up.
+- [15:14.800] These are facts that are now finally being revealed.
+- [15:16.460] The Press: Right, and I'm not saying
+- [15:17.660] the president's making it up,
+- [15:18.930] but he specifically talks about the auto pen.
+- [15:21.150] He thinks that staffers were using this auto pen,
+- [15:23.780] is there some kind of like a badge
+- [15:26.380] that you have to swipe to use an auto pen?
+- [15:28.690] Is there a record of that?
+- [15:30.120] Karoline Leavitt: I can tell you here at this White House,
+- [15:32.790] the President signs any document that has legal implications.
+- [15:36.900] The President signs every executive order,
+- [15:39.240] he signs every proclamation,
+- [15:41.330] he sign pretty much every document
+- [15:43.560] that is needed for the President's signature,
+- [15:45.510] with the exception of maybe some letters to children.
+- [15:48.500] From what we have heard and seen,
+- [15:49.830] that was not the case in the previous administration
+- [15:52.010] and the President is raising good questions
+- [15:54.120] that are worth looking into.
+- [15:55.810] I'm going to take a sip of water,
+- [15:57.670] if that's okay with you guys. Go ahead.
+- [16:03.280] The Press: Did anyone in the White House
+- [16:04.620] or in the White House Counsel's Office
+- [16:06.770] advise the President against holding this sweepstakes,
+- [16:10.600] whereby people who spent the most money on his Trump coin
+- [16:16.120] would then have access to the President at this dinner?
+- [16:18.550] Karoline Leavitt: Again, the President
+- [16:19.800] has been asked about this. He has addressed this.
+- [16:22.890] I have also stated previously from this podium
+- [16:25.470] that the President is abiding by all conflict-of-interest laws
+- [16:28.390] that are applicable to the President.
+- [16:30.230] And I think everybody, the American public,
+- [16:32.970] believe it's absurd for anyone to insinuate
+- [16:35.570] that this President is profiting off of the presidency.
+- [16:38.670] This President was incredibly successful
+- [16:40.610] before giving it all up to serve our country publicly.
+- [16:44.440] And not only has he lost wealth,
+- [16:45.860] but he also almost lost his life.
+- [16:47.610] He has sacrificed a lot to be here,
+- [16:50.210] and to suggest otherwise is frankly completely absurd.
+- [16:52.400] Libby, go ahead.
+- [16:53.710] The Press: (inaudible)
+- [16:54.930] A round of nuclear talks between Iran and the U.S.
+- [16:59.020] is going to take place on Friday in Rome.
+- [17:01.600] What is the president anticipating ahead of that,
+- [17:04.530] and if a deal doesn't come from that meeting,
+- [17:07.630] is he going to walk away?
+- [17:08.840] Karoline Leavitt: Well, I'm glad you brought up Iran,
+- [17:10.450] because I do have an update.
+- [17:12.170] The President spoke to Prime Minister
+- [17:13.720] Benjamin Netanyahu today.
+- [17:16.070] They had a productive discussion.
+- [17:17.790] They discussed many things, including, of course,
+- [17:19.900] the tragic shooting that took place here in Washington, D.C.
+- [17:22.430] last night.
+- [17:23.630] But they also did talk about a potential deal with Iran,
+- [17:26.520] which the President believes is moving along
+- [17:28.930] in the right direction.
+- [17:30.520] And as the president told me, and he's told all of you,
+- [17:33.170] this deal with Iran could end in two ways.
+- [17:35.270] It could end in a very positive diplomatic solution,
+- [17:38.450] or it could end a very negative situation for Iran.
+- [17:41.310] So that's why these talks are taking place later this week.
+- [17:44.500] Yamiche, good to see you.
+- [17:47.860] The Press: The president showed a video
+- [17:49.410] that he said showed more than a thousand burial sites
+- [17:52.690] of white South Africans and he said were murdered.
+- [17:55.130] We know that that was not true
+- [17:56.380] and that the video wasn't doing that.
+- [17:57.610] So I wonder why did the president
+- [17:58.900] choose to show that --.
+- [18:00.140] Karoline Leavitt: What is not true, Yamiche?
+- [18:01.390] The Press: It's not the video was showing a burial site.
+- [18:03.710] It is unsubstantiated that that's the case.
+- [18:05.890] No, it's -- it is true that that video
+- [18:07.830] showed the crosses that represent
+- [18:10.620] The Press: (inaudible) the President claims.
+- [18:12.960] Karoline Leavitt: The video showed images of crosses
+- [18:16.330] in South Africa about white farmers
+- [18:19.390] who have been killed and politically persecuted
+- [18:22.360] because of the color of their skin,
+- [18:24.820] and those crosses are representing their lives.
+- [18:27.630] Those crosses are representing their lives
+- [18:29.960] and the fact that they are now dead
+- [18:31.640] and their government did nothing about it.
+- [18:33.620] Are you disputing that there is no?
+- [18:35.050] The Press: (inaudible)
+- [18:36.250] that the video showed what the president claimed it showed
+- [18:38.450] because it did not show that, but even more,
+- [18:39.810] what I'm asking you is, who at the White House...
+- [18:41.260] Karoline Leavitt: It did show that.
+- [18:42.460] It showed white crosses representing people who have
+- [18:44.370] perished because of racial persecution.
+- [18:46.780] The Press: The videos that the president shows
+- [18:48.680] and what protocols are in place
+- [18:50.070] when there's unsubstantiated information
+- [18:51.970] being put out for the world and world leaders to show.
+- [18:54.140] Karoline Leavitt: Yamiche, what's unsubstantiated
+- [18:55.600] about the video?
+- [18:56.840] The video shows crosses that represent the dead bodies
+- [19:00.230] of people who were racially persecuted by their government.
+- [19:02.980] In fact, the Associated Press, of all places,
+- [19:06.080] has a picture of that very monument
+- [19:08.470] and the caption from the Associate Press
+- [19:10.430] is each cross marks a white farmer
+- [19:12.680] who has been killed in a farm murder.
+- [19:15.130] So it is substantiated not just by that video
+- [19:18.170] and the physical evidence
+- [19:19.450] that everybody saw on display in the Oval Office,
+- [19:21.250] but also by another outlet in this room,
+- [19:22.550] the Associated Press.
+- [19:23.810] So you should take it up with them
+- [19:25.320] if you believe the claim is unsubstantiated.
+- [19:27.130] And that's a ridiculous line of questioning.
+- [19:29.230] John, go ahead.
+- [19:30.690] The Press: Thank you, Karoline.
+- [19:31.960] The Big Beautiful Bill now goes to the Senate.
+- [19:35.070] Karoline Leavitt: It does, yes.
+- [19:36.560] The Press: A lot of the Republican Senators
+- [19:38.710] have promised amendments
+- [19:41.650] that will water this thing down dramatically.
+- [19:45.090] What is the President's level of tolerance
+- [19:47.800] for their amendments to water it down
+- [19:50.120] and what will be the action taken for some of the amendments
+- [19:53.930] that the President does not --
+- [19:56.040] Karoline Leavitt: Well, the One Big Beautiful bill
+- [19:57.640] is named the One Big Beautiful Bill for a reason
+- [20:00.570] because it is a one big beautiful Bill
+- [20:02.860] that encompasses just about everything this president
+- [20:06.580] could want for the American public.
+- [20:08.250] It delivers on so many of his core campaign promises.
+- [20:11.870] So surely we want to see those campaign
+- [20:14.430] promises signed into law.
+- [20:16.410] And as the president put in his True Social post this morning,
+- [20:19.370] and as he said to me,
+- [20:20.830] we can celebrate this past the House for a couple of hours,
+- [20:23.670] but now it's time for the Senate to get to work.
+- [20:25.990] The President has great relationship
+- [20:27.420] with Senate Majority Leader Thune
+- [20:29.750] and, of course, so many friends on the Senate side of the Hill,
+- [20:32.690] and he's expecting them to get busy on this bill
+- [20:34.900] and send it to his desk as soon as possible.
+- [20:38.360] The Press: Given what the President said
+- [20:39.700] the other day of the salt cap,
+- [20:42.380] we don't want to benefit democratic governors.
+- [20:44.580] If the Senate was to reduce that salt cap
+- [20:47.370] or make any type of changes, would he support that
+- [20:50.020] or is this a situation where done is beautiful
+- [20:52.540] and he just wants to pass it?
+- [20:53.900] Karoline Leavitt: Well, look, it's a hypothetical question,
+- [20:55.690] obviously. Negotiations...
+- [20:57.890] Well, correct, and the bill passed, didn't it?
+- [21:00.550] So, now it's off to the Senate,
+- [21:01.860] where additional negotiations will take place,
+- [21:04.500] and we'll see how it goes.
+- [21:06.390] The Press: Karoline, two questions on the beautiful bill.
+- [21:08.710] One of the campaign promises from President Trump
+- [21:10.780] was no tax on Social Security. Now, due to congressional rules,
+- [21:14.150] that wasn't able to be included in this bill.
+- [21:16.400] How does the President plan to follow through
+- [21:18.870] on that campaign promise?
+- [21:20.180] Karoline Leavitt: Well, this bill did address taxes
+- [21:21.660] for our seniors.
+- [21:22.870] It actually allows them to take off significant money
+- [21:26.470] from their Social Security payments,
+- [21:27.880] get more money back, I should say,
+- [21:29.760] put more money in their pockets for various reasons.
+- [21:32.380] So this bill delivers on that promise.
+- [21:35.140] That's the view of the White House.
+- [21:36.500] The Press: You had two Republicans last night
+- [21:38.350] that voted against this bill, Congressman Massey and Davidson.
+- [21:41.870] Does the president think that they should be primary?
+- [21:43.920] Karoline Leavitt: I believe he does,
+- [21:45.170] and I don't think he likes to see grandstanders in Congress.
+- [21:47.580] What's the alternative,
+- [21:48.790] I would ask those members of Congress?
+- [21:50.330] Did they want to see a tax hike?
+- [21:52.030] Did they want to see our country go bankrupt?
+- [21:54.310] That's the alternatives by them trying to vote no,
+- [21:56.930] and the president believes the Republican party
+- [21:58.620] needs to be unified,
+- [21:59.900] and a vast majority of Republicans clearly are
+- [22:03.110] and are listening to the president.
+- [22:04.670] They are trusting in President Trump as they should,
+- [22:07.000] because there's a reason he's sitting in this Oval Office.
+- [22:09.790] It's because he's the unequivocal leader
+- [22:11.790] of the Republican Party.
+- [22:13.220] Not just a president for Republicans,
+- [22:14.990] but all Americans. The president's approval rating
+- [22:17.010] is at an all-time high right now,
+- [22:18.620] and it's because he knows how to deliver,
+- [22:21.590] and Republicans like Thomas Massey and others
+- [22:24.030] should take note.
+- [22:26.800] The Press: Building on the question about Social Security,
+- [22:29.280] the bill includes the President's promises
+- [22:31.670] to address taxes on tips and overtime.
+- [22:34.460] Can you say his feelings about the income cap?
+- [22:39.260] Is he satisfied where that landed?
+- [22:41.280] And also on a different matter,
+- [22:42.740] can you comment on the investigation
+- [22:45.070] that the Justice Department has into Andrew Cuomo?
+- [22:47.440] Karoline Leavitt: As for the first question,
+- [22:48.720] the President is clearly satisfied
+- [22:50.270] where the bill landed because it passed.
+- [22:52.180] Again, now it has to go to the Senate,
+- [22:53.820] so changes could certainly be made.
+- [22:55.830] As for your second question,
+- [22:57.100] I would defer you to the Department of Justice.
+- [22:58.980] Christian.
+- [23:00.190] The Press: Thanks Karoline. Can you explain the decision
+- [23:02.470] to totally shake up FEMA leadership
+- [23:05.640] just a week before hurricane season?
+- [23:08.000] Karoline Leavitt: You'd have to ask the Department
+- [23:09.330] of Homeland Security
+- [23:10.530] in terms of leadership, but certainly the administration
+- [23:13.860] and I know the National Security Council
+- [23:15.480] here at the White House
+- [23:16.680] is monitoring storms and natural disasters
+- [23:19.480] that are happening across the country at all times.
+- [23:21.750] We're briefed on those.
+- [23:23.020] The administration is briefed those and Secretary Noem
+- [23:25.500] is leading that effort for sure.
+- [23:30.000] The Press: Just following up on Warren Davidson,
+- [23:31.580] I wanted to read you his quote that he posted online.
+- [23:33.850] While I love many things in the bill
+- [23:35.190] promising someone else will cut spending in the future
+- [23:37.170] does not cut spending, deficits do matter
+- [23:39.360] and this bill grows them.
+- [23:40.720] Why should that get a Republican primary?
+- [23:42.860] Karoline Leavitt: This bill saves $1.6 trillion
+- [23:46.350] for the American taxpayer. It saves more than any bill
+- [23:49.490] that has ever passed Capitol Hill has.
+- [23:51.200] In fact, by double, the next bill saved $800 billion.
+- [23:54.310] This bill saved 1.6 billion dollars.
+- [23:56.780] So this is a very good bill for the American people,
+- [23:59.700] the American taxpayers.
+- [24:01.120] And I believe as an outlet put it with a headline
+- [24:03.770] this morning, it might have been Politico, actually.
+- [24:06.450] They wrote that the American people
+- [24:07.900] are going to be flush with cash
+- [24:09.450] when this thing is signed into law.
+- [24:10.920] And that's a good thing for American taxpayers.
+- [24:13.910] Sure.
+- [24:15.340] The Press: What is the president doing to win
+- [24:16.780] Senate passage by July 4th?
+- [24:18.400] And does that include work to eliminate carried interest
+- [24:20.960] and make business tax cuts permanent?
+- [24:22.620] Where is he on those issues?
+- [24:23.900] Karoline Leavitt: Well look, this bill literally just passed
+- [24:26.050] the House of Representatives,
+- [24:27.440] so now our team is suiting up for discussions
+- [24:30.670] with the Senate side of Capitol Hill.
+- [24:32.980] The President again said this morning
+- [24:34.630] he hopes to see this bill at his desk as soon as possible,
+- [24:37.080] and he'll be engaged in the process
+- [24:38.590] to get it through the Senate,
+- [24:39.870] just like he was to get through the House Of Representatives.
+- [24:41.790] The Press: What kind of assurances
+- [24:43.000] did he give the Freedom Caucus members
+- [24:44.700] to kind of ensure that this would get through last night,
+- [24:47.610] was changes to Fannie Mae and Freddie Mac
+- [24:49.900] part of that equation changes
+- [24:51.660] administratively to Medicaid as well?
+- [24:53.610] Karoline Leavitt: I was in that meeting yesterday
+- [24:54.860] with the president in House Freedom Caucus
+- [24:56.790] and he told them how he wants to be a cheerleader for them,
+- [24:59.390] a cheer leader for the Republican Party
+- [25:01.220] and for the country and Republicans
+- [25:02.970] faced a pivotal moment yesterday.
+- [25:04.710] They could have voted to bankrupt the country
+- [25:06.880] and increase taxes by four trillion dollars
+- [25:09.270] or they could vote for this one Big Beautiful Bill
+- [25:11.330] which cuts taxes and saves American taxpayers money
+- [25:15.100] and he put that proposition before them
+- [25:17.360] and clearly they heeded the call
+- [25:18.630] because the bill passed last night.
+- [25:20.300] Or this morning, rather.
+- [25:23.460] Every day is going into the next.
+- [25:26.380] The Press: Just curious,
+- [25:27.580] did the president raise the flow of aid into Gaza?
+- [25:31.090] Is he happy with where that situation is right now?
+- [25:33.140] Karoline Leavitt: Not to my knowledge,
+- [25:34.430] but I can certainly go back and check.
+- [25:36.650] The Press: Did you have any reaction to the Supreme Court's
+- [25:38.630] ruling about the religious charter school today,
+- [25:41.310] as well as Justice Tony Barrett's decision
+- [25:44.560] to recuse herself?
+- [25:46.090] Karoline Leavitt: We'll get you an answer on that case,
+- [25:47.600] specifically, sure.
+- [25:48.820] The Press: You mentioned the president
+- [25:50.060] has a good relationship with Leader Thune.
+- [25:51.690] Has he talked to him specifically about the plan
+- [25:53.610] to get this through the Senate?
+- [25:54.820] Does he plan or is he going to reach out to Republicans
+- [25:57.500] who have voiced concerns?
+- [25:58.740] Karoline Leavitt: Not to my knowledge,
+- [25:59.960] has he spoke into Leader Thune this morning,
+- [26:02.030] he very well could have.
+- [26:03.280] I just wasn't briefed on that call.
+- [26:04.650] We can go back and check for you.
+- [26:05.930] The President did speak to Prime Minister Netanyahu this morning.
+- [26:08.750] He also had a call with President Scheinbaum
+- [26:10.560] this morning he was receiving his intelligence briefing.
+- [26:13.080] He's been very busy all morning.
+- [26:15.000] But again, he certainly intends to remain active
+- [26:18.040] and engaged in these negotiations
+- [26:19.580] with the United States Senate to get this bill done.
+- [26:21.420] The Press: Following up on the dinner tonight,
+- [26:22.790] you mentioned this is not a White House dinner,
+- [26:24.430] but the President is always the President,
+- [26:26.400] and the Trump family is making money off of this.
+- [26:28.840] So can you just explain how is this not the President
+- [26:31.790] using the office to enrich himself?
+- [26:33.460] Karoline Leavitt: All of the president's assets
+- [26:34.760] are in a blind trust,
+- [26:35.990] which is managed by his children.
+- [26:37.330] And I would argue one of the many reasons
+- [26:40.480] that the American people re-elected
+- [26:42.130] this president back to this office
+- [26:43.490] is because he was a very successful businessman
+- [26:46.520] before giving it up to publicly serve our country.
+- [26:50.610] The Press: Thanks, Carolyn.
+- [26:51.860] Last week, the President told Rep.
+- [26:53.400] Fair that he trusts his people,
+- [26:55.080] but thinks that the official narrative on his assassination
+- [26:57.940] attempts are, quote, a little bit odd.
+- [27:00.310] FBI Deputy Director Dan Bongino
+- [27:02.580] said days later that there's no conspiracy to find.
+- [27:05.400] And as he put it, quote.
+- [27:07.290] The there-there that you're looking for is not there.
+- [27:10.600] My question is, is the President personally satisfied
+- [27:13.250] with the investigations into the attempts on his life?
+- [27:16.190] And does he agree with Deputy FBI Director,
+- [27:18.930] or does he think there's more to it?
+- [27:20.610] The Press: Well, in the lead up to your question,
+- [27:22.480] you answered your own question with the president's own words,
+- [27:24.840] and I'll leave it at that. Sure, go ahead, Haley.
+- [27:29.810] The Press: (inaudible)
+- [27:31.110] follow up on his call with Prime Minister Netanyahu
+- [27:35.290] (inaudible), does he feel like he has
+- [27:37.610] the Prime Minister's support in this effort at this point,
+- [27:41.810] or did the Prime Minster raise concerns
+- [27:43.850] to him in this conversation?
+- [27:45.620] Karoline Leavitt: I won't get further
+- [27:46.890] into the private discussion
+- [27:48.200] between the President and the Prime Minister,
+- [27:50.020] but surely they have a good relationship,
+- [27:52.300] one that's built on transparency and trust.
+- [27:54.760] And the President has made it very clear
+- [27:56.300] to not just Prime Minister Netanyahu
+- [27:58.000] but also the world that he wants to see a deal with Iran struck
+- [28:02.540] if one can be struck.
+- [28:03.830] He does not want to have to take the latter option,
+- [28:06.530] the more severe and negative option.
+- [28:08.370] He wants to see a deal. The President is a dealmaker
+- [28:11.170] and he believes strongly in diplomacy
+- [28:12.820] and he's made that To the Prime Minister,
+- [28:14.900] but also to all of you and, frankly, the rest of the world.
+- [28:18.200] The Press: Thank you, Karoline. Two questions.
+- [28:20.810] One on the terror attack last night
+- [28:22.350] and then another on the Big Beautiful Bill.
+- [28:24.620] Do you or President Trump
+- [28:26.100] have a message to politicians like Ilhan Omar,
+- [28:28.600] who only this morning explicitly avoided
+- [28:31.100] condemning this act of terror?
+- [28:32.980] Karoline Leavitt: It's despicable.
+- [28:34.230] And frankly, we have seen a rise in anti-Semitic protests,
+- [28:40.060] of pro-Hamas protests, of terrorist sympathizers.
+- [28:45.390] We saw them on our college campuses,
+- [28:48.130] and we've seen the Democrat Party turn a blind eye,
+- [28:51.560] and in some cases actually embrace
+- [28:53.430] such antisemitic illegal behavior.
+- [28:56.020] And that's why this administration has done
+- [28:57.690] more than any administration in history
+- [29:00.190] to crack down on antisemitism, as you know,
+- [29:02.350] in January when the President took office,
+- [29:04.450] he signed a new executive order to combat anti-Semitism.
+- [29:07.120] He created a commission focused on doing just that.
+- [29:10.720] The Justice Department announced their task force as well.
+- [29:13.720] The Secretary of State, Marco Rubio,
+- [29:15.870] has revoked thousands of student visas from campuses
+- [29:19.390] where these pro-Palestinian,
+- [29:20.950] pro-Hamas terrorist campus agitators
+- [29:24.420] and violent protests took place.
+- [29:27.220] And we've also withheld funding from those very campuses
+- [29:30.340] as well in an effort to combat anti-Semitism,
+- [29:32.950] so the President's made it very clear
+- [29:34.810] that such hatred will have no place in our country.
+- [29:36.950] The Press: And then on the Big Beautiful Bill,
+- [29:38.820] I know there's a provision in the House
+- [29:40.800] that defunds Planned Parenthood not only because of the fact
+- [29:44.270] that it's the nation's largest abortion provider,
+- [29:45.950] but also because it's, I think, the biggest distributor
+- [29:48.610] of transgender hormones right now,
+- [29:49.930] even to minors, according to Live Action.
+- [29:51.580] So is the President committed to making sure
+- [29:54.620] that provision stays in the Senate?
+- [29:56.840] Karoline Leavitt: The President has maintained
+- [29:58.590] a very clear commitment
+- [29:59.820] to ensuring that this administration
+- [30:01.760] and the American people's tax dollars
+- [30:03.990] are not funding any institution,
+- [30:06.240] that includes hospital systems that are funding
+- [30:08.950] the chemical castration and mutilation of children.
+- [30:12.070] We're not going to tolerate taxpayer dollars
+- [30:13.960] going to such efforts.
+- [30:16.080] The Press: Thanks Karoline.
+- [30:17.310] You mentioned at the top of the briefing
+- [30:18.700] that the migrants were to be sent to a third country.
+- [30:21.680] I was just wondering, could you share any more
+- [30:23.310] on which countries the administration
+- [30:25.320] has struck these agreements with
+- [30:26.590] and what that agreement with South Sudan
+- [30:28.780] specifically looks like?
+- [30:30.170] Karoline Leavitt: Well, first of all,
+- [30:31.380] I won't litigate foreign policy from the podium,
+- [30:34.860] but what I will reiterate is the absurdity of this
+- [30:38.700] ruling from a district court judge in Boston
+- [30:41.180] who is just creating new immigration laws
+- [30:44.280] out of thin air.
+- [30:45.620] This administration, let me be very clear
+- [30:48.140] because there have been a lot of fake headlines
+- [30:50.610] about this deportation flight over the last two days.
+- [30:53.700] This administration has complied with all court orders.
+- [30:57.750] And the individuals whose names I just revealed
+- [31:00.140] and whose criminal histories I just spoke of that
+- [31:02.800] are on this flight. Every single one of them
+- [31:05.540] had a final order of removal from our country.
+- [31:07.700] In fact, one of these violent illegal criminals
+- [31:10.920] had a finally order of remove given to him in 1999.
+- [31:15.370] It's two years after I was born.
+- [31:16.780] This individual, this criminal has been living in our country
+- [31:20.690] for an entire generation.
+- [31:23.140] And now we have a district court judge
+- [31:25.610] who is trying to tell the president
+- [31:27.310] and the secretary of state
+- [31:28.760] and the Secretary of Homeland Security
+- [31:30.770] that an illegal criminal murderer
+- [31:32.500] who's been hiding in the shadows in our country
+- [31:34.910] for nearly 30 years
+- [31:36.480] cannot be deported from United States soil.
+- [31:39.120] That not only is undermining our entire immigration system,
+- [31:43.890] but it is also undermining our diplomatic negotiations
+- [31:46.710] with countries around the world. How are countries on this earth
+- [31:49.840] supposed to trust the United States government?
+- [31:52.390] And these good-faith diplomatic negotiations,
+- [31:54.710] when these countries accept these repatriation flights,
+- [31:57.450] how are they supposed to trust us
+- [31:58.960] if we have radical district court judges
+- [32:01.260] who are going to say, no, you can't do that?
+- [32:03.430] And now these illegal criminal murderers and rapists
+- [32:06.760] have to sit in Djibouti with our ICE agents
+- [32:09.860] who now have to sit there for more than two weeks
+- [32:11.960] without the proper resources?
+- [32:13.660] This judge is not only undermining
+- [32:15.180] our immigration system,
+- [32:16.460] undermining out foreign policy and our national security.
+- [32:19.310] But this judge is undermining the safety of the ICE agents
+- [32:22.420] who are putting their lives on the line
+- [32:25.460] to remove this list of illegal criminal terrorists.
+- [32:29.370] It's truly despicable what's happening in our court system,
+- [32:31.700] and the president and this administration hope
+- [32:34.110] that the Supreme Court will do what it needs to do to rein
+- [32:36.470] in these liberal activist judges.
+- [32:38.040] And the Supreme court has already said
+- [32:39.970] it is well within the president's purview
+- [32:42.490] to dictate foreign policy,
+- [32:44.230] and a radical district court judge
+- [32:45.730] should not be getting in the way of that.
+- [32:47.400] We'll see you all later at the MAHA event. Thank you.
+- [32:49.960] The Press: Thanks, Karoline.

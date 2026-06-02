@@ -1,0 +1,935 @@
+<!-- source: https://www.youtube.com/watch?v=7W5RHSSYrd0 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 7W5RHSSYrd0 -->
+<!-- date_published: 2025-12-12T23:11:37+00:00 -->
+<!-- date_accessed: 2026-06-02T02:40:15.057385+00:00 -->
+
+# Transcript: President Trump Participates in a Bill Signing Ceremony, Dec. 12, 2025
+
+- [00:00.190] The President: Well, this is very exciting.
+- [00:01.540] This was one of the greatest moments
+- [00:03.180] in the history of US sports,
+- [00:04.770] I wouldn't say maybe for other countries
+- [00:07.340] who weren't so thrilled.
+- [00:08.620] But for US sports and we have a very exciting team of champions
+- [00:13.630] standing behind me, Mr. Attorney,
+- [00:16.430] could you read what we're doing right now and get it done?
+- [00:18.430] Will Scharf: Yes, sir.
+- [00:19.670] This is HR 452, the Miracle on Ice bill,
+- [00:22.290] the United States Congress has authorized three medals
+- [00:25.450] to be struck commemorating the historic victory
+- [00:27.900] of the United States' men's hockey team in 1980
+- [00:31.160] at the Lake Placid Olympics
+- [00:32.890] where they obviously defeated the Russians in the --
+- [00:34.980] the Soviet Union, excuse me,
+- [00:36.250] in the famous Miracle on Ice hockey game.
+- [00:38.750] This will serve as a fitting commemoration
+- [00:40.840] of that incredible achievement
+- [00:42.710] and will hopefully be a lasting memorial
+- [00:45.970] of that achievement going forward, sir.
+- [00:47.930] The President: This was an amazing event, pretty big.
+- [00:51.630] I mean, I don't know --
+- [00:52.920] there were some other upsets in the world.
+- [00:54.500] I haven't noticed them getting any of these, right?
+- [00:59.020] That's great. I mean, we don't use auto pens here.
+- [01:06.120] It's a great achievement.
+- [01:10.140] OK, wait a minute there. There you go, Mike.
+- [01:13.140] Will Scharf: Thank you, sir.
+- [01:23.690] The President: So great, right?
+- [01:25.670] Most of these people are too young to remember,
+- [01:27.800] but sports fans know it. Thank you very much.
+- [01:33.330] It's a great honor to have the media too.
+- [01:35.610] We're delighted to be joined today
+- [01:36.840] by two legends of American sports history
+- [01:39.600] and heroes for the entire nation,
+- [01:42.110] the 1980 US Olympic ice hockey team.
+- [01:46.390] This was one of the biggest moments
+- [01:48.250] that I've ever seen in sports and I like sports.
+- [01:51.210] These are the men who gave us one
+- [01:52.790] of the most storied athletic wins of all time.
+- [01:55.340] It's called the Miracle on Ice, and I guess that's what it was.
+- [01:59.260] Where -- with us today by players like Jim Craig,
+- [02:04.800] Steve Janaszak, Bill Baker, Dave Christian, Ken Morrow,
+- [02:09.640] Jack O'Callahan, Mike Ramsey, Neil Bratten, Mike Eruzione,
+- [02:18.640] Rob McClanahan, Buzz Schneider, Dave Silk,
+- [02:25.810] Phil Verchota and numerous others.
+- [02:29.870] And what I'd love for you to do, you know,
+- [02:31.610] when you have all of these media people,
+- [02:34.320] it's a nice slow afternoon. Nothing's too slow around here.
+- [02:38.440] I think we just did a very good job
+- [02:40.760] with Thailand and Cambodia. We had them stop.
+- [02:44.010] I've been saying I stopped eight wars,
+- [02:45.890] but they started shooting at each other two days ago.
+- [02:48.180] Wasn't good and we got it I think straightened out today.
+- [02:52.050] So Thailand and Cambodia is in good shape.
+- [02:54.990] So we get a lot done.
+- [02:56.690] Eight wars, nobody's ever stopped, eight wars,
+- [02:58.540] we have one more to go.
+- [03:00.280] The easiest one I thought would be a country
+- [03:03.140] that you're somewhat familiar with, Russia and Ukraine.
+- [03:08.020] But we're -- a lot of progress is being made even there.
+- [03:10.940] Could I ask you to just say your name
+- [03:12.530] and if you have anything to say, you could say that also?
+- [03:14.670] And then we'll get on with reading some of the stats.
+- [03:17.500] Ryan Suter: Yeah, my name is Ryan Suter.
+- [03:18.880] I'm here representing my dad, Bob, who passed away.
+- [03:22.970] It's a true honor for me to be a part of this
+- [03:25.610] and thank these guys
+- [03:27.000] for allowing me to be a part of their team
+- [03:29.380] and thank you for having this and hosting us.
+- [03:33.640] The President: Your father was some player incredible player.
+- [03:36.930] Do you -- did you ever play ice hockey?
+- [03:39.240] Ryan Suter: I did, yeah.
+- [03:40.730] The President: So let me ask you
+- [03:42.080] how good was he compared to his father?
+- [03:47.460] Unidentified: Mr. President,
+- [03:48.670] Ryan just played 21 years in the NHL.
+- [03:51.400] He played 1,500 games in the NHL.
+- [03:54.420] The President: Pretty comparable, though, right?
+- [03:56.160] Better, you think better?
+- [03:57.530] Unidentified: Yes, yes. His dad was tough.
+- [04:01.040] The President: Heard he might be.
+- [04:02.280] Ryan Suter: My dad was tougher but you're right.
+- [04:03.860] The President: Dad was tougher, but you got good genetics.
+- [04:08.080] You had a great career. How long did you play?
+- [04:09.560] Ryan Suter: I played 21 years.
+- [04:10.770] The President: Wow, yeah.
+- [04:11.980] Well, you look pretty good for a guy who played 21 years.
+- [04:15.190] Congratulations and great father.
+- [04:16.680] Ryan Suter: Thank you.
+- [04:17.890] The President: Great father. Please.
+- [04:20.150] Tarja Lewis: I'm Tarja Lewis and I'm here
+- [04:22.050] representing my dad, Mark Pavelich.
+- [04:24.400] Um, he, I'm so honored to be here.
+- [04:28.000] Um, I just -- I -- I'm at a loss for words to be honest,
+- [04:31.500] like I can't believe this is real
+- [04:34.090] and I want to say to you, President Trump.
+- [04:36.340] I know so many people from Duluth,
+- [04:39.220] Minnesota that love you and I just --
+- [04:40.570] The President: Ah, thank you.
+- [04:41.780] Tarja Lewis: Yes, yeah, you're -- thank you for having us here.
+- [04:44.340] The President: Thank you. And you had a great father.
+- [04:47.020] Tarja Lewis: Thank you so much.
+- [04:48.350] The President: A great, great player.
+- [04:49.890] So thank you very much. Thank you very much.
+- [04:56.570] Thank you for being here. Please go ahead.
+- [04:58.440] Ken Morrow: I'm Ken Morrow.
+- [04:59.640] Um, an honor to meet you, Mr. President.
+- [05:02.900] What a great win for our country and if people don't remember
+- [05:06.350] that's where the USA, USA chant started in Lake Placid.
+- [05:10.590] The President: That's right. Yeah. Yeah.
+- [05:12.190] I tried to take credit for that.
+- [05:13.710] Yeah, you had to bring that up, didn't you?
+- [05:18.520] That's the end of that. That's all right.
+- [05:20.580] Thank you very much.
+- [05:21.930] Jim Craig: Hi, I'm Jim Craig and it's an honor to be here.
+- [05:25.310] I'm so proud of all my teammates
+- [05:26.990] and what we're able to accomplish for our country
+- [05:29.140] and when you get a chance to represent your country,
+- [05:31.700] whether it's in the military or a sport
+- [05:34.010] and you do something really special like my team did
+- [05:36.440] and then be recognized many years later.
+- [05:38.960] So Mr. President, I want to thank you for your courage
+- [05:42.260] that you show the country every single day.
+- [05:43.750] The President: Thank you.
+- [05:45.020] Jim Craig: And for making our country safe again.
+- [05:47.430] The President: Thank you. Yeah, we're doing that.
+- [05:49.670] I appreciate that very much.
+- [05:50.990] I didn't know you were on that team.
+- [05:52.410] Kash Patel. You were on the team?
+- [05:53.650] Kash Patel: I was the trainer.
+- [05:54.860] Mike Eruzione: He was the trainer, sir.
+- [05:56.430] The President: That was great. Thank you for being here.
+- [06:01.230] He's doing a great job. Thank you, Kash, very much.
+- [06:05.060] Buzz Schneider: Buzz Schneider Mr. President,
+- [06:06.610] thanks for having us here. Thanks, Congressman Stauber,
+- [06:08.910] for writing legislation with Elise Stefanik and Tom Emmer.
+- [06:11.840] It's a privilege to be here
+- [06:13.110] and be accomplished a wonderful thing
+- [06:15.460] and I will say that I got 19 beautiful people I did it with.
+- [06:18.960] It was awesome. All good, solid people.
+- [06:20.520] Thank you.
+- [06:21.740] The President: Thank you. Thanks again.
+- [06:22.960] So you have to be solid. Thank you. Please?
+- [06:25.860] Neal Broten: Hi, I'm Neal Broten from Minnesota.
+- [06:27.690] Thank you. Mr. Trump.
+- [06:28.990] It's an honor, um, you celebrating us
+- [06:32.150] and I can't believe I'm even here.
+- [06:36.320] This is incredible.
+- [06:38.150] The President: It's an amazing office.
+- [06:39.500] Neal Broten: It's -- it's unbelievable.
+- [06:40.840] The President: Everybody that comes here,
+- [06:42.050] they can the biggest people in the world
+- [06:43.680] that come into this place and they go,
+- [06:45.350] wow, it's the Oval Office,
+- [06:47.120] mos,t most important office anywhere in the world,
+- [06:50.380] not even close. Thank you very much.
+- [06:52.730] Mike Eruzione: Mr. President, Mike Eruzione.
+- [06:55.050] On behalf of the team, we have a replica hat that we wore,
+- [06:59.340] the opening ceremonies in Lake Placid.
+- [07:02.490] We'd like you to have that.
+- [07:04.260] And more importantly I don't think words can explain
+- [07:07.410] how proud we are for what you've done for our team.
+- [07:09.910] The President: Thank you.
+- [07:11.230] Mike Eruzione: Thank you very much.
+- [07:12.430] The President: Let's see, what do I do with that strap?
+- [07:18.190] We got to take the picture.
+- [07:26.500] Do you remember a certain governor in Massachusetts
+- [07:29.540] when they put that helmet on? That was not good.
+- [07:32.580] Mike Eruzione: Michael Dukakis.
+- [07:34.220] The President: Michael Dukakis. They put that helmet on.
+- [07:36.980] That was the end of his political career. Okay.
+- [07:41.740] Mike Eruzione: But the honor that you bestowed upon our team,
+- [07:43.760] something that's incredible.
+- [07:45.030] The President: Thank you very much. I feel it.
+- [07:46.920] Jack O'Callahan: Mr. President, hello,
+- [07:48.140] I'm Jack O'Callahan from Charlestown, Massachusetts
+- [07:51.100] and I grew up on the battlefield of the --
+- [07:53.270] where the Battle of Bunker Hill was fought
+- [07:54.880] and that's where it all started.
+- [07:56.680] And thank you so much for having us here
+- [07:58.930] when we're a bunch of proud Americans
+- [08:01.360] and we're thrilled to be in your presence, sir.
+- [08:02.870] The President: Thank you very much.
+- [08:04.190] I'm thrilled to be with you guys.
+- [08:05.410] Winners, champions.
+- [08:07.480] Dave Silk: Mr. President.
+- [08:08.810] My name is Dave Silk and like Jack said,
+- [08:11.740] I'm a proud American. Thank you for having us here
+- [08:14.110] and thank you to all that put this on for us.
+- [08:16.580] I'm honored to be here.
+- [08:17.900] The President: Thank you. It's really nice. Thank you.
+- [08:20.070] Bill Baker: Mr. President, Bill Baker.
+- [08:21.860] I'm from Minnesota. I know that right now
+- [08:23.530] that doesn't ring very well with all things considered.
+- [08:27.240] Hopefully, we can get that turned around.
+- [08:28.940] The President: Do we have Somalians in the --
+- [08:31.300] any Somalians on the team?
+- [08:33.110] Unidentified: I don't think so.
+- [08:35.060] The President: Ilhan Omar.
+- [08:37.020] Bill Baker: The pride we felt in 1980 was incredible
+- [08:40.580] and we are starting to feel that again
+- [08:42.410] thanks to your leadership. Thank you very much.
+- [08:44.170] The President: Well, you know, Minnesota is a great place
+- [08:46.000] and this is a great leader right here from Minnesota.
+- [08:48.660] He loves it, not happy with what's going on up there.
+- [08:51.410] And I think he'll take care of that situation.
+- [08:53.150] We're all with you.
+- [08:54.390] Tom Emmer: With your help. Thank you.
+- [08:55.610] The President: No, no, you have my help.
+- [08:56.840] What's happening up there is a disgrace, it's a disgrace.
+- [09:00.760] Billions of dollars have been stolen,
+- [09:02.490] billions sent back to Somalia.
+- [09:04.970] And Tom can solve that problem better than anybody
+- [09:07.640] and you have the go ahead, right?
+- [09:09.060] Tom Emmer: Yes, sir.
+- [09:10.280] The President: Thank you very much.
+- [09:11.480] Thank you. What do you think of this team?
+- [09:13.270] Tom Emmer: This is the team that set the whole tone
+- [09:15.730] for this country back in 1980.
+- [09:18.180] It was the beginning of the great comeback,
+- [09:20.500] which by the way Donald J. Trump
+- [09:22.940] was the next beginning of the great comeback.
+- [09:25.380] So it's perfect that it's both you
+- [09:27.350] and this great team from 1980.
+- [09:29.830] The President: Thank you, Tom. You're doing a fantastic job.
+- [09:31.460] Really a great leader.
+- [09:32.720] We appreciate it, friend, and Jackie is a great spouse.
+- [09:37.410] Tom Emmer: Remember, that's her favorite.
+- [09:38.790] The President: That's right, that's true.
+- [09:40.470] That's what I heard, yeah. And, Elise, everybody knows.
+- [09:43.130] Elise is doing phenomenally well,
+- [09:45.350] really tremendous congresswoman
+- [09:47.390] and she's running for a little position
+- [09:50.660] called governor of New York
+- [09:51.890] and she's got a hell of a shot at it.
+- [09:54.210] That's all I can see.
+- [09:55.470] I see polls that look very good and we --
+- [09:59.350] uh, we could use you in New York.
+- [10:01.420] She's got a little competition and with a very good Republican.
+- [10:04.960] But she's a great Republican. So we'll see what happens.
+- [10:09.520] But Elise is respected by everybody.
+- [10:11.730] We appreciate it. Thank you.
+- [10:13.000] Elise Stefanik: Thank you so much, Mr. President.
+- [10:14.580] And as the representative for Lake Placid,
+- [10:16.310] this is so meaningful to my constituents
+- [10:18.650] and we are home of the Miracle on Ice
+- [10:20.200] and it's wonderful to be here with these teammates
+- [10:22.410] who just stood so proudly for team USA.
+- [10:25.710] The President: Thank you. Thank you, Elise.
+- [10:26.960] Thank you. Please.
+- [10:28.220] Dan Brooks: My name is Dan Brooks.
+- [10:29.420] Uh, I'm the son of Coach Herb Brooks.
+- [10:33.020] It's an honor to be here. Mr. President.
+- [10:34.520] Uh, my dad he believed uh he believed
+- [10:37.870] in the American hockey player he believed in his country.
+- [10:41.300] He loved this team. He loved his country.
+- [10:44.080] I wish he was here, but it's an honor for me
+- [10:46.070] to represent him. So thank you for having me.
+- [10:47.690] The President: Well, your father was
+- [10:48.920] a great guy. I knew him a little bit
+- [10:50.480] and he was an amazing coach. What he did was just incredible.
+- [10:55.130] Dan Brooks: He was tough, but fair.
+- [10:56.720] The President: He was tough. Was tough on you, yeah?
+- [10:59.840] Dan Brooks: I lived with him for 20 years.
+- [11:01.980] The President: But good, I would say my father was tough too.
+- [11:04.190] My father was tough, but good.
+- [11:05.840] Yeah, they were good people. Thank you.
+- [11:07.540] Dan Brooks: It was an honor to be his son.
+- [11:08.780] The President: Thank you very much.
+- [11:09.980] Thank you. He'd be very proud of you right now.
+- [11:12.540] Rob McClanahan: Rob McClanahan from Minnesota.
+- [11:15.170] I'm just echoing everybody else's words.
+- [11:17.630] It's an honor to be here
+- [11:19.500] and it's an honor to be a teammate of this great team.
+- [11:22.180] We had -- it's all about we and we're great teammates.
+- [11:25.400] The President: Yeah.
+- [11:26.680] That was really a perfect case of it.
+- [11:29.840] That team was a perfect case. Please.
+- [11:33.750] Unidentified: I'm honored to be here.
+- [11:34.990] I'm representing my brother, Mark, who died in 2024.
+- [11:38.730] I know he's looking down with a big smile on his face.
+- [11:41.740] The President: He is. Great player.
+- [11:43.400] Unidentified: Yeah, and I'm sure I am honored
+- [11:46.590] and I know he would be too. Thank you.
+- [11:48.350] The President: Thank you very much.
+- [11:50.720] Dave Christian: Mr. Trump,
+- [11:51.960] Dave Christian from Warroad, Minnesota, Hockeytown USA.
+- [11:57.920] The President: Convinced it's still? Is it?
+- [12:00.920] Dave Christian: It still is,
+- [12:02.150] but it's a privilege and an honor
+- [12:03.630] to be here with the greatest teammates anyone could have.
+- [12:07.980] The President: Thank you. Great honor. Great job.
+- [12:10.720] Mike Ramsey: Mr. President, Mike Ramsey.
+- [12:12.050] I'm also from Minnesota and Minneapolis
+- [12:15.390] is not Hockeytown, Minnesota.
+- [12:18.040] It's an honor to be here with my teammates and you.
+- [12:20.700] This is awesome.
+- [12:21.910] The President: That's great.
+- [12:23.140] Great to have you. Thank you very much.
+- [12:24.500] Steve Janaszak: Mr. President,
+- [12:25.730] Steve Janaszak also from Minnesota.
+- [12:27.630] White Bear, Lake Minnesota. Not as big as it sounds.
+- [12:31.440] Uh, I backed up Jimmy Craig
+- [12:33.360] and I want to thank all you guys for the job
+- [12:35.750] that you did pleasure to be a part of this team
+- [12:39.500] and luckiest guy in this team
+- [12:41.630] (inaudible).
+- [12:43.190] The President: Greg was pretty good, right?
+- [12:44.900] Unidentified: He had no goals tending
+- [12:46.860] and he did an awesome job.
+- [12:48.460] The President: Yeah, it's pretty good. That's great.
+- [12:50.810] Thank you very much. Great honor. Thank you.
+- [12:53.750] Phil Verchota: Well, I didn't know we had to talk.
+- [13:01.520] I'm speechless of course.
+- [13:02.920] But I'm originally from Duluth, Minnesota.
+- [13:06.850] And certainly, like all the other gentlemen here,
+- [13:12.410] we're having a wonderful, wonderful day.
+- [13:14.940] And just seeing the history of Washington DC
+- [13:17.660] and the invitation and the award is beyond what I could imagine.
+- [13:25.300] The President: Well, it's an honor.
+- [13:26.620] And so many people from Minnesota, it's something.
+- [13:29.750] There's a hockey -- good hockey blood, huh?
+- [13:32.900] So many people, a lot of the team.
+- [13:35.470] Congratulations. And Minnesota's going to be back. Right?
+- [13:38.700] It's going to be back. It's going to be back,
+- [13:43.450] got a little bad governor up there,
+- [13:45.460] a couple little problems, but it's going to be back.
+- [13:48.380] And unbelievable people in Minnesota.
+- [13:50.680] 45 years ago, this tremendous group of collegiate players
+- [13:54.920] and amateurs faced overwhelming odds against the Soviet Union
+- [13:59.230] in Lake Placid Winter Olympics.
+- [14:01.700] They say it was the greatest team ever put together --
+- [14:03.990] the Soviet team.
+- [14:05.370] They weren't saying that about you, but you were damn good.
+- [14:07.560] They were saying that team was unbeatable.
+- [14:10.610] The same month the USSR's hockey team had crushed our squad.
+- [14:15.260] They did a -- I guess an exhibition game of some kind,
+- [14:18.560] and it was not pretty -- 10 to 3.
+- [14:21.420] And people were not even looking forward to this game.
+- [14:25.840] Fellas, I hate to tell you.
+- [14:28.120] They like that that last 10 minutes were not fun.
+- [14:31.140] The Soviets had not lost an Olympic game since 1968
+- [14:35.130] and they were coming off a four straight gold record,
+- [14:38.950] gold medals.
+- [14:40.180] In '64 they won the gold, '68, '72 and '76.
+- [14:44.520] Other than that, they weren't that good, right?
+- [14:47.530] And this was supposed to be the best team they ever had.
+- [14:50.790] So, it wasn't looking too sharp
+- [14:53.130] for our great champions behind me.
+- [14:56.000] As one American sportswriter put it at the time,
+- [14:58.240] the whole world expected the Soviets to win, quote,
+- [15:01.340] unless the ice melts.
+- [15:04.070] So, that wasn't a very good statement.
+- [15:06.930] But then it began. Despite the long odds,
+- [15:09.570] the Team USA blazed through the group stage,
+- [15:12.930] beating other countries, went through them pretty easily,
+- [15:15.940] advancing to a long-awaited rematch against the USSR.
+- [15:20.050] Three times we went down by a goal,
+- [15:22.950] for most of the game they were down by a goal, three times.
+- [15:25.650] And then remarkable players put America back on top
+- [15:29.670] where we always wanted to be.
+- [15:31.090] Buzz Schneider -- he scored the opening goal,
+- [15:36.310] a slap shot from 50 feet. That's a big slap shot.
+- [15:42.860] That's a hell of a thing. How the hell did that happen?
+- [15:47.740] Was there a goal? I thought they had a good goal.
+- [15:49.580] Unidentified: They did have a good goal.
+- [15:50.780] The pass came across the ice. I caught it going the other way.
+- [15:53.350] The President: It just happened, right?
+- [15:55.620] Miracle, they call it. Thank you. It's a long one.
+- [15:59.950] How often does a 50 foot shot go in?
+- [16:02.310] Not too much. That one.
+- [16:04.540] Unidentified: When you have a little extra power,
+- [16:05.870] you're strong.
+- [16:07.140] The President: You were a strong guy.
+- [16:09.290] That's something, that puck was hit.
+- [16:11.430] We have a puck here. Does this mean anything
+- [16:13.780] or is this something they just gave me?
+- [16:15.300] Unidentified: I gave the SEI hockey pucks to the team.
+- [16:21.490] The President: I'll put it here on top of a piece of gold.
+- [16:25.290] In the second period,
+- [16:26.890] Jim Craig withstood a barrage of shots on goal
+- [16:30.110] and kept the dream alive. That's the guy, right?
+- [16:33.670] And then after a goal from team captain,
+- [16:36.130] Mike Eruzione, who's a fantastic guy.
+- [16:38.610] I know him from outside of hockey, we play golf.
+- [16:41.780] We were on a golf team together and we happened to win, right?
+- [16:43.880] Mike Eruzione: Yes, we did, sir.
+- [16:45.120] The President: We won. Mike Eruzione: Yes, we did.
+- [16:46.610] The President: I like my partner very much.
+- [16:49.380] But he put us up 4 to 3 midway through the third.
+- [16:52.120] These fighters held on to the longest
+- [16:54.490] 10 minutes of their lives.
+- [16:56.100] They call it the longest, most horrendous, scariest 10 minutes.
+- [17:00.710] Is that true?
+- [17:01.990] Because you couldn't believe that you were there.
+- [17:05.250] And they're leading by 1 and they got 10 minutes
+- [17:07.480] and just, please. Did anybody pray?
+- [17:12.430] Did you have time to pray?
+- [17:15.260] Unidentified: You just had to go out and play.
+- [17:16.490] The President: They're religious guys,
+- [17:17.730] but they didn't have a lot of time to pray,
+- [17:19.780] they were out on the ice
+- [17:21.940] to win one of the greatest comebacks in sports history.
+- [17:24.280] Really it was amazing. The observers in the arena
+- [17:28.400] noted it was the first time in his life
+- [17:31.050] that he heard the chant USA,
+- [17:33.120] USA, USA, which I don't like hearing,
+- [17:34.830] because I tell people that that had to do with Trump in 2016.
+- [17:42.170] Slightly after your big win, but no longer.
+- [17:44.710] That's the end of that, right? I can't use that one anymore.
+- [17:47.780] But I do remember them doing that exactly --
+- [17:49.980] for a long time they were doing that.
+- [17:52.200] This team united us and they inspired us.
+- [17:54.450] The United States was like brought to a level of sports
+- [17:57.930] that they've never seen,
+- [17:59.400] and they brought us Olympic glory
+- [18:01.110] that we celebrate to this day.
+- [18:02.990] Nobody thought it was possible.
+- [18:04.900] It really shows that anything's possible.
+- [18:07.320] Nobody thought that one was possible,
+- [18:09.090] but I want to congratulate you all.
+- [18:11.560] And now I'd like to invite Mike to say a few words
+- [18:14.100] and then Congressman Stauber, who introduced --
+- [18:17.120] and then we're going to speak from a couple of other people.
+- [18:21.170] I have to tell you our leader, I have to say that --
+- [18:24.180] Emmer is a very special leader,
+- [18:27.320] and I want you to maybe wrap it up
+- [18:29.110] and say something on behalf of your great state,
+- [18:32.030] in particular -- the country,
+- [18:33.410] but your great state in particular, OK?
+- [18:35.750] So, let's go, Mike.
+- [18:37.010] Mike Eruzione: Yes, again, Mr. President,
+- [18:38.430] to reiterate what we've all talked about,
+- [18:40.070] this is an absolute incredible honor.
+- [18:42.380] I've said this before.
+- [18:43.940] When you put a USA jersey on, you're playing for your country,
+- [18:46.450] you're not playing for your state,
+- [18:47.820] your town or your city.
+- [18:49.330] And what an honor it was for us to put that jersey
+- [18:51.600] on and accomplish what we accomplished.
+- [18:54.270] I've always said the gold medal is something that's incredible,
+- [18:56.380] but this is the frosting on the cake,
+- [18:58.620] to receive an award like this, an honor like this.
+- [19:02.260] Maybe that's the -- this is it, guys.
+- [19:04.090] I don't think there's anything else we can get.
+- [19:06.390] The President: There's nothing else.
+- [19:07.620] Mike Eruzione: This is just incredible.
+- [19:09.080] The President: There's nothing else.
+- [19:10.590] Mike Eruzione: This is it and thank you
+- [19:11.980] for making this happen.
+- [19:13.580] The President: Great. Thank you, Mike. Thank you.
+- [19:17.920] Pete?
+- [19:19.500] Pete Stauber: Mr. President,
+- [19:20.710] thank you for signing this piece of legislation.
+- [19:24.030] I first want to say on behalf of Congress,
+- [19:28.160] I want to thank Elise Stefanik and Tom Emmer
+- [19:31.230] for being co-sponsors of this piece of legislation.
+- [19:34.590] I also want to thank my staff, Ellie Esau in my office
+- [19:38.890] did a tremendous job getting this --
+- [19:42.540] to be able to pass the House and the Senate.
+- [19:45.050] I want to thank my staff.
+- [19:46.330] And Mr. President, it was 45 years ago,
+- [19:49.520] Friday, February 22, 1980, that the game of hockey changed.
+- [19:53.790] There was a 5 p.m. game, it was tape delayed.
+- [19:56.740] Those of us that were hockey players back then,
+- [19:59.630] this was a game changer.
+- [20:01.220] We couldn't find that USA jersey anywhere.
+- [20:05.290] It was sold out wherever it was.
+- [20:07.290] And so, I'm very proud to have led this,
+- [20:11.580] and I would be remiss
+- [20:12.970] if I didn't introduce my younger brother,
+- [20:15.970] Rob, who was the -- he was a gold medal coach
+- [20:19.280] for the 2018 women's Olympic gold medal team
+- [20:22.690] in Pyeongchang and Robbie's right over there.
+- [20:24.990] The President: Hi, Rob. Nice seeing you.
+- [20:26.240] Pete Stauber: So, Mr. President,
+- [20:27.500] I will just say that I'm in awe of these hockey heroes.
+- [20:33.040] And as we move forward, they changed the game of hockey.
+- [20:38.060] It was a powerful, dominant performance
+- [20:41.140] that this country needed.
+- [20:42.650] They beat the powerhouse Soviets.
+- [20:44.730] And as you know, you're continuing to do that today.
+- [20:48.540] And this was a great start of it.
+- [20:50.420] And for me, I'm very -- just privileged and proud
+- [20:53.860] to stand with these Olympic heroes
+- [20:56.370] that literally changed the nation
+- [20:58.450] and gave us the strength that we needed
+- [21:01.540] at the time our nation needed it.
+- [21:03.280] And to know these men here, they're humble,
+- [21:07.800] their humility is through the roof.
+- [21:10.570] And I just want to thank you for signing this.
+- [21:12.170] This means a lot to me personally,
+- [21:14.420] but it means more to the team.
+- [21:15.950] When I talked to them this afternoon, this was --
+- [21:18.500] as Mike just said,
+- [21:20.250] it's the cherry on top of what they did for this country.
+- [21:22.930] And thank you for signing it and I appreciate it.
+- [21:25.150] The President: Well, we love it and he's a --
+- [21:27.020] he was a really great hockey player, too.
+- [21:29.380] So, let me ask you a question,
+- [21:30.600] was your brother in this category of hockey player
+- [21:33.980] or slightly less?
+- [21:36.000] Pete Stauber: You want to answer that?
+- [21:39.210] He was smart. He was better than me.
+- [21:41.010] He was better than me. Robbie was a goaltender
+- [21:43.130] in the National Hockey League as well.
+- [21:44.390] The President: Wow, that's pretty good.
+- [21:45.590] Pete Stauber: That's much better than me.
+- [21:46.840] The President: That's a lot of good genetics
+- [21:48.060] in this whole thing,
+- [21:49.260] but you were a hell of a player too.
+- [21:50.570] Pete Stauber: Thank you, Mr. President.
+- [21:51.820] The President: Thank you, Pete. So, we're going to --
+- [21:53.890] Mike Eruzione: Mr. President,
+- [21:55.220] we would like to do one more thing,
+- [21:57.940] take a photo with our hats off.
+- [21:59.880] The President: Okay, let's go.
+- [22:02.850] Mike Eruzione: Folks from Minnesota are used
+- [22:06.400] to wearing hats.
+- [22:07.790] The President: Okay, straighten it out,
+- [22:09.700] guys, take a good one. You have Dan?
+- [22:12.220] Let's go, Dan. Get with it, Dan. Oh, here we go.
+- [22:19.310] Good photographers, you got a little off guard.
+- [22:27.900] It's a good photo. Good idea.
+- [22:44.150] So we're going to finish up with Tom Emmer
+- [22:45.910] and he's been just a fantastic a fantastic congressman,
+- [22:50.610] leader, person from Minnesota.
+- [22:52.010] Loves that state. Boy, do you love that state
+- [22:53.870] and they love you equally as much. Please.
+- [22:56.420] Tom Emmer: Thank you, Mr. President.
+- [22:57.650] First, I got to thank Pete Stauber
+- [22:59.790] as he's talking about humility.
+- [23:02.430] Uh, Pete Stauber, actually was in the --
+- [23:05.330] the White House as a national championship captain
+- [23:09.310] of a national championship hockey team back in the 1980s.
+- [23:12.130] The President: That's not bad. Not bad.
+- [23:13.330] Tom Emmer: And this is uh,
+- [23:14.560] this runs in the blood in Minnesota.
+- [23:16.930] Uh, this runs in our blood in Minnesota,
+- [23:19.090] but it's not about Minnesota,
+- [23:20.670] even though I will point out most of the guys
+- [23:22.700] are from Minnesota. But that's not the point.
+- [23:25.070] It doesn't matter if it's Massachusetts,
+- [23:27.660] Minnesota, Michigan, Wisconsin.
+- [23:30.500] Wherever players came from back then they were all Americans.
+- [23:34.320] That's what mattered and they were an inspiration
+- [23:36.470] and you know what it means to my state?
+- [23:38.130] It shows us that no matter how bad it gets,
+- [23:41.380] there's always a way to succeed if you're willing to try.
+- [23:44.460] I think Mike Eruzione said it earlier,
+- [23:46.480] if you think you're going to lose,
+- [23:47.990] you're probably not going to win.
+- [23:49.580] If you think you're going to compete
+- [23:51.100] and you're going to give it everything you've got,
+- [23:52.850] these men who are standing here
+- [23:54.490] and their colleagues who are not here,
+- [23:55.970] God bless them, those who couldn't be here
+- [23:57.960] and those who have departed, they reached the ultimate peak.
+- [24:02.540] And when they did it, as Pete pointed out,
+- [24:04.750] they lifted an entire country out of the ditch
+- [24:08.080] and set us off to an amazing several decades that followed.
+- [24:13.010] And it's not much unlike the 47th President
+- [24:16.510] of the United States.
+- [24:17.860] So I think it's entirely appropriate
+- [24:20.280] that you're doing this for these men, right?
+- [24:23.100] You're really doing it for the country
+- [24:24.710] and God bless you because Minnesota, I think,
+- [24:27.370] is going to experience a comeback because of you.
+- [24:29.670] The President: They're going to Minnesota's going to come back.
+- [24:31.840] And I'm just -- so I'm so impressed
+- [24:33.340] that so many of these champions come from Minnesota.
+- [24:35.440] It's amazing. It's it's a great place.
+- [24:37.310] Thank you very much.
+- [24:38.660] Tom Emmer: We engineered it.
+- [24:40.920] Unidentified: Well, the best players are from Minnesota.
+- [24:44.580] Tom Emmer: It starts again.
+- [24:45.820] The President: Well, thank you very much.
+- [24:47.050] Any questions for the --
+- [24:48.600] let's go to the players first, if you could?
+- [24:50.450] The Press: Thank you, Mr. President.
+- [24:51.710] First of all, it's a great honor
+- [24:53.000] to be in the room with all of you.
+- [24:54.970] I remember this game and it had a huge impact on me,
+- [24:58.660] you're heroes of mine.
+- [24:59.950] And it's really an honor to be in this room.
+- [25:02.900] Uh, Mike Eruzione. I have to ask you a question.
+- [25:05.580] What did it mean? I realize it was the semifinal game,
+- [25:09.400] but what did it mean to you at the time to beat the Soviets --
+- [25:13.450] to beat the Soviet Union?
+- [25:14.970] Mike Eruzione: Well, at the time it gave us an opportunity
+- [25:16.540] to play for a gold medal.
+- [25:18.230] Um, you know, people always talk about the Soviet game
+- [25:20.190] and the Soviet game and I know how important the Soviet game
+- [25:22.210] was from a political standpoint.
+- [25:23.570] We didn't know it at the time, we knew it after.
+- [25:25.810] But if we don't beat Finland,
+- [25:27.650] we're not having this conversation today.
+- [25:30.000] We're not here. As great as the Soviet victory was
+- [25:32.760] and it was an incredible victory,
+- [25:34.670] but if we lose to Finland, it would have been,
+- [25:36.860] God, if we only could have beat Finland.
+- [25:38.360] The President: What was the score?
+- [25:39.640] Mike Eruzione: Four to two.
+- [25:40.850] We were losing two to one going into the third period.
+- [25:42.920] The President: That would have been a downer.
+- [25:44.140] Mike Eruzione: So can you imagine
+- [25:45.480] we're not having this conversation.
+- [25:47.230] You are not inviting us to the White House.
+- [25:48.830] We are not receiving this honor if we don't beat Finland.
+- [25:51.470] So I think it speaks volumes of the team
+- [25:54.760] and the team that I played on to come back
+- [25:56.420] after such a great victory.
+- [25:58.150] We were ready to play Finland on Sunday
+- [26:00.520] and I think again a tribute to the team
+- [26:02.380] and the type of players that we have.
+- [26:03.850] Mike Eruzione: So years later, 45 years later,
+- [26:06.610] we realize how important that victory was against the Soviets.
+- [26:09.880] But I think a lot of us take great pride
+- [26:11.880] in knowing that we closed the deal by beating Finland.
+- [26:13.650] The President: If you didn't win that final game --
+- [26:14.890] Mike Eruzione: We're not here. The President: Nobody would --
+- [26:16.170] Mike Eruzione: We wouldn't have played golf.
+- [26:17.440] The President: You wouldn't be here.
+- [26:18.680] I would not have invited you, yeah.
+- [26:20.610] I would've said you're kidding me.
+- [26:22.030] Mike Eruzione: Yeah, happened to Finland?
+- [26:23.290] Unidentified: Mike would be driving Uber.
+- [26:24.640] The President: Yeah, that's very funny.
+- [26:30.130] There's truth to that.
+- [26:32.870] But you did, but you did win.
+- [26:34.430] The Press: What's the lesson for Ukraine,
+- [26:36.200] from this win from 45 years ago,
+- [26:39.790] when you defeated a Russian team against all odds?
+- [26:45.440] The President: Well, it's a similar situation, isn't it?
+- [26:47.850] Let's see what happens. We're working on seeing
+- [26:50.680] if we can make a deal right now, we're going to --
+- [26:52.290] we're going to see. We'll soon know, I guess.
+- [26:54.660] We're going to -- we're going to see a lot of death --
+- [26:57.870] last month, fellas,
+- [26:59.540] 25,000 soldiers were killed in Ukraine and Russia, 25,000.
+- [27:04.050] Can you imagine that?
+- [27:05.280] Mike Eruzione: Maybe we should send our team over.
+- [27:06.600] The Press: Mr. President, if I could.
+- [27:11.520] You guys were a team of amateurs.
+- [27:13.780] What do you think about the NIL,
+- [27:15.470] the deals that are being made with -- with players and --
+- [27:17.680] and they're hopping around schools?
+- [27:19.000] How do you think about that?
+- [27:20.340] Can I get about your thoughts on that?
+- [27:21.670] Mike Eruzione: My thoughts are, I don't like it.
+- [27:23.440] Um, I don't like the NIL. I don't like the -- the portal,
+- [27:26.530] but that's the state of college sports today.
+- [27:29.030] Um, and we have no control over that. I don't like it.
+- [27:32.170] And a lot of people that I spoke to don't like it either,
+- [27:34.550] but we -- we have no say.
+- [27:36.570] The President: Well, I think we maybe do have a say,
+- [27:38.650] I think that it's a disaster for college sports.
+- [27:41.230] I think it's a disaster for the Olympics
+- [27:44.010] because, you know, we're losing a lot of teams.
+- [27:45.630] The colleges are cutting a lot of their --
+- [27:48.390] they would call them sort of the lesser sports
+- [27:51.860] and they're losing them like at numbers, nobody can believe.
+- [27:55.540] And they were really training grounds, beautiful training,
+- [27:57.700] grounds hard working, wonderful young people.
+- [28:01.330] They were training grounds for the Olympics
+- [28:03.450] and a lot of these sports that were training so well
+- [28:05.780] would win gold medals because of it.
+- [28:08.020] Uh, those sports don't exist
+- [28:09.300] because they're putting all their money into football.
+- [28:11.090] And by the way, they're putting too much money into football
+- [28:14.110] because colleges don't make,
+- [28:16.390] even the most successful universities,
+- [28:18.390] don't make that much money.
+- [28:20.210] And you can't pay a quarterback $14 million
+- [28:22.590] to come out of high school.
+- [28:25.720] They don't even know he's going to be a very good player.
+- [28:28.230] They've tried a couple of times, $14 and $12 million
+- [28:32.200] and a couple of deals like that
+- [28:33.950] and the most successful colleges are losing money.
+- [28:36.980] And I think the NIL is a disaster for sports.
+- [28:42.440] It's horrible for the Olympics and it's --
+- [28:45.200] I think it's actually horrible for the players
+- [28:47.470] and you're losing all of these great sports.
+- [28:50.230] They're not college football or even basketball
+- [28:52.860] is being affected, basketball second.
+- [28:55.420] But even basketball is being affected.
+- [28:57.710] They're putting all of their money in
+- [28:59.210] and I know something about it. They will not be able to stop.
+- [29:03.320] You're going to have a college president.
+- [29:04.920] I'm telling you, sir. We give a guard $7 million.
+- [29:08.470] We're going to win the national championship
+- [29:10.300] and they'll give them seven and they won't win it
+- [29:12.620] and even if they do win it,
+- [29:13.980] colleges cannot afford to be paying the kind of salaries
+- [29:17.380] that you're hearing about.
+- [29:19.200] And frankly, if you didn't have a very strong salary cap in --
+- [29:23.100] in sports and even then in professional sports, it would --
+- [29:26.730] they'd all be out of business, everyone.
+- [29:29.340] You're going to have these colleges wiped themselves out
+- [29:32.760] and something ought to be done.
+- [29:34.230] And I'm willing to put the federal government behind it,
+- [29:37.000] but if it's not done fast,
+- [29:38.330] you're going to wipe out colleges,
+- [29:39.750] they're going to get wiped out,
+- [29:41.020] including ones that do well in football.
+- [29:43.150] They can't pay $12 million, $14 million, $10 million,
+- [29:46.820] $6 million for players. They won't be able to stop.
+- [29:51.170] They'll always be that one player.
+- [29:52.670] If they only have that player,
+- [29:53.890] they're going to win the national championship
+- [29:56.020] and they'll have 100 colleges thinking the same thing.
+- [29:59.250] Uh, colleges cannot afford to play this game
+- [30:02.370] and it's a very bad thing that's happening.
+- [30:04.350] The Press: Mr. President,
+- [30:05.670] you talked about the Soviet Union.
+- [30:06.910] I also want to ask about another country
+- [30:08.620] that you're targeting, which of course is Venezuela.
+- [30:10.880] Do you intend on seizing more oil assets from Venezuela?
+- [30:14.670] The President: I'm not going to tell you that.
+- [30:16.100] I mean, would -- it wouldn't be very smart for me
+- [30:18.060] to tell you that,
+- [30:19.280] you know, we're supposed to be a little bit secretive.
+- [30:21.320] You're a -- you're a very big time reporter
+- [30:23.830] and I don't think I want to tell a big time reporter
+- [30:26.410] or a small time reporter that, but we are knocking out drugs
+- [30:31.880] at levels that nobody's ever seen before.
+- [30:33.810] We knocked out 96 percent of the drugs coming in by water
+- [30:38.850] and nobody can figure out who the 4 percent,
+- [30:41.760] I wouldn't want to be the 4 percent either,
+- [30:43.390] but 96 percent of the drugs coming in by water.
+- [30:46.940] Every one of those boats you see get shot down,
+- [30:50.420] you just saved 25,000 American lives,
+- [30:53.310] but we knocked out 96 percent of the drugs coming in by water.
+- [30:57.390] And now we're starting by land and by land is a lot easier
+- [31:00.810] and that's going to start happening
+- [31:02.230] and we're not going to have people
+- [31:03.470] destroying our youth destroying our families.
+- [31:06.100] Forget about youth, everybody.
+- [31:08.530] You ever see a family with fentanyl or cocaine.
+- [31:12.090] Colombia has at least three cocaine factories.
+- [31:15.230] That's a different country.
+- [31:16.820] We're not happy about it, but we're stopping it
+- [31:19.380] and we've stopped it now on water.
+- [31:21.600] You don't even find boats on water.
+- [31:23.300] You don't even see fishing boats on water.
+- [31:25.580] You want to go fishing?
+- [31:27.950] Does anybody want to go fishing in that area?
+- [31:29.880] I don't think so. I just want to say
+- [31:32.510] this we have now a strong border,
+- [31:36.500] a year and a half ago
+- [31:37.720] we had millions of people pouring through.
+- [31:39.360] Now we have nobody coming in through our border
+- [31:42.050] and we have a strong country.
+- [31:43.790] We have a country that's respected
+- [31:45.270] and we're going to keep it that way
+- [31:46.820] and we're not going to let people kill
+- [31:48.880] 300,000 people a year with drugs.
+- [31:53.400] Yes, please.
+- [31:54.630] The Press: The fraud that you've been pointing out
+- [31:56.000] and talking about in Minnesota specifically.
+- [31:58.120] There have been some reports resurfacing
+- [31:59.890] and circulating even by your own administration
+- [32:02.610] alleging Ilhan Omar's marriage to her brother
+- [32:05.590] and this would be a fraudulent situation if there,
+- [32:08.550] in fact, is found to be fraud in a situation like that.
+- [32:11.150] Would you like to see her denaturalized or others
+- [32:13.250] who have similarly committed?
+- [32:14.460] The President: Well, I think she's very bad for our country.
+- [32:16.660] All she does is complain, complain, complain.
+- [32:20.020] She comes out of a country where they have no government,
+- [32:22.950] they have no military, they have no police,
+- [32:25.290] they got no, nothing. They don't have a country
+- [32:27.720] and they run around killing each other
+- [32:29.920] and then she comes over here.
+- [32:31.250] She tells the United States of America how it should be run.
+- [32:35.740] We don't want to hear from her. I don't want to hear from her.
+- [32:38.610] I don't want to speak for Emmer,
+- [32:39.830] but I don't think Emmer particularly was here,
+- [32:41.730] but don't say it because I don't want to get you in trouble, OK?
+- [32:44.700] Just be nice and easy, all right? I'll do it for you.
+- [32:47.370] That part I'll do, but I just want to say
+- [32:50.010] that there's nothing worse than a person that comes in
+- [32:54.240] and does nothing but bitch and comes from a place
+- [32:57.660] where she shouldn't be telling us what to do.
+- [33:00.540] She shouldn't be telling us, and everybody agrees with me.
+- [33:04.260] And what's happening in Minnesota with Somalia
+- [33:07.370] where billions of dollars is being stolen,
+- [33:10.320] right, like candy from a baby,
+- [33:13.030] we're not going to let that go on.
+- [33:14.660] And it's too great a state to have that happening.
+- [33:16.870] And guys like Tom Emmer and others, Pete Stauber --
+- [33:20.680] guys like them, they're going to stop it
+- [33:23.310] and they're going to be given the authority to stop it
+- [33:25.940] because this country is not going to put up with it anymore.
+- [33:30.590] The Press: You talked about land strikes happening soon.
+- [33:33.650] Is there anything at this point that can prevent that?
+- [33:35.920] And is the objective, if you make that decision --
+- [33:38.250] The President: I don't want to say that,
+- [33:39.470] but it's not only land strikes on Venezuela,
+- [33:42.510] it's land strikes on horrible people
+- [33:46.280] that are bringing in drugs and killing our people.
+- [33:49.710] You know, if we were in a war
+- [33:51.190] and we lost 300,000 people in a year --
+- [33:54.800] because that's what the real number is, it's not 100.
+- [33:57.000] You know, you keep hearing 100. And it's a lot worse than that
+- [34:00.180] because the families are devastated
+- [34:01.920] when they lose their child.
+- [34:03.800] If we were in a war, we lost 200,000 or 300,000,
+- [34:06.680] but I think it's more than 300,000.
+- [34:08.540] And that's a war --
+- [34:09.910] that's like a war that would be unparalleled.
+- [34:13.090] Nobody's ever seen anything like that
+- [34:14.800] and that's what's happening.
+- [34:16.050] So, it doesn't necessarily have to be in Venezuela,
+- [34:19.490] it's people that are bringing in drugs
+- [34:22.290] to our country are targets.
+- [34:27.110] The Press: At the end of this year,
+- [34:30.030] those extended Obamacare subsidies expire.
+- [34:34.180] What's your message to those 24 million Americans
+- [34:38.620] who will see their insurance premiums go up?
+- [34:40.890] The President: Don't make it sound so bad
+- [34:42.190] because, obviously, you're a sycophant for Democrats.
+- [34:47.930] You're obviously a provider of bad news for Republicans.
+- [34:51.930] Let me just say something. The Republicans --
+- [34:54.280] I think I can speak for Tom and most of the people.
+- [34:57.010] I think what most Republicans want to see
+- [34:58.960] is what I want to see.
+- [35:00.680] And I leave it to them and hopefully they're going
+- [35:02.520] to put great legislation on this desk right here.
+- [35:05.520] We want to see all of the money that's been squandered
+- [35:09.500] and given to insurance companies,
+- [35:10.980] because Obamacare is horrible health insurance,
+- [35:13.490] it's far too expensive, and it always has been.
+- [35:16.430] But what it really is,
+- [35:17.710] is a way of making insurance companies rich.
+- [35:20.760] We want the money not to be paid at all to insurance companies.
+- [35:24.560] You know, insurance companies have gone up 1,700 percent
+- [35:27.790] over a short -- meaning the stock --
+- [35:29.970] 1,700 percent over a short period of time.
+- [35:33.860] And they've taken in hundreds of billions
+- [35:36.650] and trillions of dollars.
+- [35:39.240] And we want the money to go to the people,
+- [35:41.660] they'll go in the form of an insurance account,
+- [35:44.930] health care account, or any other form that we can create.
+- [35:48.530] We have a lot of different forms.
+- [35:50.230] We want to give the money to the people
+- [35:51.880] and let the people buy their own great health care
+- [35:55.270] and they'll save a lot of money and it'll be great.
+- [35:58.220] Now the problem we have is that the Republicans are not
+- [36:01.720] at all controlled by the insurance companies,
+- [36:05.630] but you know who is? The Democrats.
+- [36:08.190] The Democrats have received hundreds of millions of dollars.
+- [36:12.810] They're totally controlled by the insurance companies,
+- [36:15.080] so we might not get too many of their votes.
+- [36:17.580] But I actually think we'd get some Democrat votes.
+- [36:21.210] So, I don't know how you feel about it, Tom.
+- [36:23.050] But everybody wants to see this happen -- everybody.
+- [36:27.120] You know, I put it out and all of a sudden,
+- [36:29.350] we've taken over in a positive way.
+- [36:31.210] The Republicans have taken over health care in a positive way.
+- [36:34.990] I want to see the billions of dollars go to the people,
+- [36:38.040] not to the insurance companies.
+- [36:39.730] And I want to see the people go out
+- [36:41.670] and buy themselves great health care,
+- [36:44.670] much better health care at very little cost.
+- [36:47.460] That's what I want and it's so simple.
+- [36:52.620] The Press: Thank you. A follow up on that.
+- [36:54.000] Many Congressional Republicans have said
+- [36:55.740] they won't vote for an Obamacare extension deal
+- [36:58.290] if it includes funding for abortion.
+- [37:00.760] Would you assure those Republicans
+- [37:02.310] that you will not propose --
+- [37:03.510] The President: Well, we're going to look into it.
+- [37:04.730] We're going to look into a lot of things.
+- [37:06.060] That's one of many factors.
+- [37:07.780] But what we do want to see is we want to see the money
+- [37:09.900] go to the people not to the insurance --
+- [37:14.190] Wait, wait, wait, you have to be nice and easy.
+- [37:17.750] She's very aggressive. Okay, please.
+- [37:19.530] The Press: Thanks, Mr. President.
+- [37:20.820] Can you tell us how this free economic zone
+- [37:23.100] would work in the Donbas in land that the Russians took by force?
+- [37:25.840] The President: Well, I don't want to do that now.
+- [37:27.310] It's a very complex situation,
+- [37:28.980] but it would work and a lot of people want to see it work.
+- [37:32.340] And we're going to -- all I want to do
+- [37:34.110] is I want to stop the death of 25,000 people a month.
+- [37:36.850] Go ahead.
+- [37:38.190] The Press: Thank you, Mr. President.
+- [37:39.580] There were new Epstein photos released today
+- [37:42.670] showing you and also Bill Clinton, Steve Bannon.
+- [37:45.610] What was your reaction to those new photos that were released?
+- [37:47.630] Well, I haven't seen them,
+- [37:48.870] but I mean everybody knew this man,
+- [37:50.470] he was all over Palm Beach, he has photos with everybody.
+- [37:52.870] I mean almost -- there are hundreds
+- [37:55.180] and hundreds of people that have photos with him.
+- [37:57.160] So, that's no big deal. I know nothing about it.
+- [38:00.260] The Press: How big a role do you want to personally play
+- [38:03.170] in the decision by the fed on interest rates?
+- [38:06.630] The President: Well, I've made a lot of money,
+- [38:08.750] I've been very successful,
+- [38:10.130] and I think my role should be at least that of a recommending.
+- [38:15.060] They don't have to follow what I say,
+- [38:16.560] but we're going to be choosing a new fed person
+- [38:18.940] in the pretty near future. But they went out --
+- [38:22.650] you know, they went out with 71 different people,
+- [38:25.590] all economists and Trump, I was 71.
+- [38:28.670] And of the 71 people, I got it right
+- [38:32.070] and one other person I think
+- [38:33.370] from the Wharton School of Finance,
+- [38:35.420] my alma mater, got it right.
+- [38:36.980] There were two people that got it right out of 71,
+- [38:38.800] but I was one of them.
+- [38:40.230] So, I think I certainly should have a role
+- [38:42.780] in talking to whoever the head of the fed is or the fed.
+- [38:46.400] I don't think -- you know in the old days it used to happen.
+- [38:49.350] Nowadays it's sort of they think it shouldn't happen.
+- [38:52.660] But I've done great.
+- [38:53.980] I've made a lot of money. I've been very successful.
+- [38:56.980] I think my voice should be heard.
+- [38:58.740] But I'm not going to make the decision based on that.
+- [39:01.330] I'll be making a decision over the next few weeks.
+- [39:04.240] Thank you all very much.

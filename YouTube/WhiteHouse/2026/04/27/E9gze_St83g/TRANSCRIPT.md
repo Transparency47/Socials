@@ -1,0 +1,626 @@
+<!-- source: https://www.youtube.com/watch?v=E9gze-St83g -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: E9gze-St83g -->
+<!-- date_published: 2026-04-27T17:31:31+00:00 -->
+<!-- date_accessed: 2026-06-02T02:34:51.053755+00:00 -->
+
+# Transcript: Press Secretary Karoline Leavitt Briefs Members of the Media, Apr. 27, 2026
+
+- [00:05.290] Karoline Leavitt: Good afternoon, everyone.
+- [00:08.170] Later today, President Trump and the First Lady will welcome
+- [00:11.310] King Charles and Queen Camilla
+- [00:13.100] for a state visit here at the White House.
+- [00:15.720] First Lady Melania Trump has led all of the preparation
+- [00:19.060] for the state visit, which will honor
+- [00:21.060] the longstanding and special relationship
+- [00:23.880] between the United States and the United Kingdom.
+- [00:27.160] As I told many of you on Friday afternoon,
+- [00:29.320] I thought that would be my last time
+- [00:31.160] taking your questions until after my maternity leave.
+- [00:34.810] But given the attempted assassination of the President's
+- [00:37.670] and "top Trump administration officials"
+- [00:40.830] as the depraved shooter noted in his manifesto
+- [00:43.960] at the White House Correspondents' Association
+- [00:46.090] Dinner on Saturday evening,
+- [00:47.980] I felt it was prudent to be here today
+- [00:50.030] to answer your questions and inform the American people
+- [00:53.070] about how the administration is responding to yet
+- [00:55.800] another attempt on President Trump's life.
+- [00:59.140] Saturday was supposed to be a joyful evening,
+- [01:01.610] celebrating free speech in the First Amendment
+- [01:04.010] with all of you, members of the press.
+- [01:06.680] Instead, the night was hijacked
+- [01:08.850] by a crazed anti-Trump individual
+- [01:11.450] who traveled across the country to assassinate the president
+- [01:15.230] and as many administration officials as possible.
+- [01:19.010] This is the third major assassination
+- [01:21.300] attempt against President Trump in two years.
+- [01:24.380] No other president in history has faced such repeated,
+- [01:27.930] serious attempts on his life.
+- [01:30.580] First and foremost, the President, the First Lady,
+- [01:33.450] and everyone in this White House are extraordinarily grateful
+- [01:37.250] to the brave law enforcement professionals
+- [01:39.600] who's spraying into action
+- [01:40.830] to apprehend the would-be assassin
+- [01:42.940] and keep all of us safe.
+- [01:44.800] The president would especially like to express his gratitude
+- [01:47.780] to the men and women of the United States Secret Service
+- [01:50.800] who acted with the utmost professionalism,
+- [01:53.490] courage, and sense of duty.
+- [01:56.140] This includes the heroic agent who took a bullet to the chest.
+- [01:59.860] Thankfully, he was saved by his bulletproof vest.
+- [02:03.040] Minutes after returning here
+- [02:04.560] to the White House to the Oval Office,
+- [02:06.490] despite fighting Secret Service to try to stay
+- [02:09.080] and keep the dinner going on Saturday,
+- [02:11.390] ahead of addressing you here in the briefing room,
+- [02:13.900] President Trump was intent on speaking to this brave agent
+- [02:17.200] to ensure he was okay,
+- [02:19.180] and the agent assured the President that he was.
+- [02:22.180] As you know, I was seated next to President Trump
+- [02:24.230] and the First Lady
+- [02:25.430] when the shots were fired before Secret Service
+- [02:27.670] swiftly moved us to safety backstage.
+- [02:30.390] The President's calm in the face of chaos,
+- [02:33.340] while yet another individual was trying to take his life
+- [02:36.810] was really remarkable to witness,
+- [02:38.800] and it's something I will never forget.
+- [02:41.390] President Trump is fearless, because he loves this country,
+- [02:45.190] and he is willing to put his own life on the line
+- [02:47.500] to deliver on the promises that he made to the American public
+- [02:50.730] who elected him here into the highest office in the land.
+- [02:55.090] And while we are blessed to have a fearless president,
+- [02:57.750] we should not live in a country
+- [02:59.760] where such constant fear of political violence
+- [03:02.450] permeates our society every single day.
+- [03:06.170] We can and we should have fierce disagreement in this country.
+- [03:10.620] As you all know, we disagree often,
+- [03:12.570] myself in this role and all of you in the news media,
+- [03:15.390] but those disagreements must remain peaceful.
+- [03:18.670] Debating, peaceful protesting and voting
+- [03:21.260] are how we need to settle disagreements, not bullets.
+- [03:24.900] Nobody in recent years has faced more bullets
+- [03:27.980] and more violence than President Trump.
+- [03:30.580] This political violence stems from a systemic demonization
+- [03:34.110] of him and his supporters.
+- [03:35.850] By commentators, yes, by elected members of the Democrat Party
+- [03:40.070] and even some in the media.
+- [03:42.460] This hateful and constant and violent rhetoric
+- [03:45.320] directed at President Trump day after day after day
+- [03:49.080] for 11 years has helped to legitimize this violence
+- [03:52.910] and bring us to this dark moment.
+- [03:55.520] Those who constantly, falsely label
+- [03:58.020] and slander the president as a fascist,
+- [04:00.380] as a threat to democracy and compare him to Hitler
+- [04:03.500] to score political points are fueling this kind of violence.
+- [04:07.560] The left wing cult of hatred against the President
+- [04:10.700] and all of those who support him and work for him
+- [04:13.770] has gotten multiple people hurt and killed
+- [04:16.690] and it almost did so again this weekend.
+- [04:20.040] When you read the manifesto of this shooter, ask yourselves,
+- [04:23.680] how different is the rhetoric from this almost assassin
+- [04:27.150] than what you read on social media
+- [04:29.410] and hear in various forums every single day?
+- [04:32.790] The answer, if you're being honest with yourself,
+- [04:35.210] is that there is no difference at all.
+- [04:37.720] Much of the manifesto of the would-be assassin
+- [04:40.090] is indistinguishable from the words
+- [04:42.570] that we hear daily from so many.
+- [04:45.510] For example, as the First Lady of the United States
+- [04:48.150] pointed out this morning,
+- [04:49.420] just two days prior to the shooting,
+- [04:51.730] ABC's Late Night host, Jimmy Kimmel,
+- [04:53.640] disgustingly called First Lady Melania Trump
+- [04:56.410] an expectant widow.
+- [04:58.210] Who in their right minds says a wife would be glowing
+- [05:01.120] over the potential murder of her beloved husband?
+- [05:04.050] And having experienced what I did with the First Lady
+- [05:06.220] on Saturday night,
+- [05:07.440] I can tell you that she was anything but that.
+- [05:10.250] This kind of rhetoric about the President,
+- [05:12.200] the First Lady and his supporters
+- [05:13.900] is completely deranged
+- [05:15.170] and it's unbelievable that the American people
+- [05:17.650] are consuming it night after night after night.
+- [05:21.200] As President Trump said on Saturday night at this podium,
+- [05:23.960] we as Americans must recommit ourselves
+- [05:26.460] to resolving our differences peacefully
+- [05:28.680] and uniting around the shared values
+- [05:30.680] that make our country great.
+- [05:33.030] The deranged lies and smears against the President,
+- [05:35.810] his family, his supporters have led crazy people
+- [05:39.000] to believe crazy things and they are inspired to commit violence
+- [05:43.120] because of those words. It has to stop.
+- [05:46.760] And one more point.
+- [05:48.290] Saturday night served as yet another reminder
+- [05:50.440] of how important it is
+- [05:51.720] to fund the Department of Homeland Security.
+- [05:54.430] It is shameful that the United States Congress
+- [05:57.170] has kept this vital agency defunded for 73 days,
+- [06:02.040] the longest shutdown of a federal agency in US history.
+- [06:06.350] The Secret Service is a vital component of DHS.
+- [06:09.050] It has been directly impacted
+- [06:10.650] by this reckless political gamesmanship.
+- [06:14.210] Everyone in this room who was there on Saturday night
+- [06:16.730] witnessed the heroes of Secret Service
+- [06:18.760] and federal law enforcement
+- [06:20.350] jump into action in the face of grave danger and uncertainty.
+- [06:24.310] Agents put their own lives in harm's way
+- [06:26.570] to protect the President, the First Lady,
+- [06:29.620] the Vice President and members of the cabinet.
+- [06:32.360] One agent can be seen in video footage
+- [06:34.620] literally jumping onto the stage,
+- [06:37.080] not knowing where the attacker was
+- [06:38.940] or where the bullets were coming from
+- [06:40.270] at that point to place his body
+- [06:42.400] in front of the President of the United States.
+- [06:45.190] These men and women are heroes. They perform their duties daily
+- [06:48.980] and they have children and families too,
+- [06:51.270] and they do it despite the political turmoil
+- [06:53.430] surrounding their agency.
+- [06:55.220] Make no mistake.
+- [06:56.570] This defunding of DHS should be a national scandal.
+- [07:00.710] If Republicans defunded DHS
+- [07:02.650] and we saw in another attempted assassination
+- [07:04.980] on a Democrat president,
+- [07:06.740] I would hope that the media coverage
+- [07:08.670] would be relentless and unforgiving,
+- [07:10.510] and I hope that it continues to be now.
+- [07:13.430] With the World Cup, America 250, the 2028 Olympics,
+- [07:17.150] and a presidential election all ahead,
+- [07:19.460] the Democrat's obstruction is placing an enormous
+- [07:22.200] and totally pointless burden on the Secret Service
+- [07:25.140] that can get more people killed. Enough is enough.
+- [07:28.890] There should be no further debate about this.
+- [07:31.330] Democrats need to do what President Trump
+- [07:33.530] has been calling on them to do for 73 days in a row
+- [07:37.010] and fund the Department of Homeland Security, period.
+- [07:40.820] This is a national emergency and every member of Congress
+- [07:43.970] needs to put their country over party
+- [07:46.580] and get the Department of Homeland Security funded.
+- [07:49.370] With that, I will take a few of your questions today.
+- [07:51.360] Daniel, thank you for being here.
+- [07:52.680] Why don't you kick us off?
+- [07:53.910] The Press: Thank you, Karoline.
+- [07:55.200] The president Saturday after the assassination attempt came here,
+- [07:58.100] he emphasized that law enforcement did their job,
+- [08:01.390] keeping everyone safe for dinner.
+- [08:03.320] House Speaker Mike Johnson came out and said
+- [08:04.990] he believes the President needs greater protection.
+- [08:07.570] What is the White House's message
+- [08:08.960] to the millions of Americans who wake up here today, nervous,
+- [08:12.710] uneasy about the safety of the President
+- [08:14.950] at events like this and safety of their cabinet members?
+- [08:17.900] Karoline Leavitt: Well, we certainly understand
+- [08:19.150] their fears and their worries.
+- [08:21.310] As you heard from the President himself,
+- [08:23.780] he continues to have trust
+- [08:25.520] in the United States Secret Service, as I just said.
+- [08:28.260] These are great men and women who are doing their jobs
+- [08:30.990] and performing their duties honorably.
+- [08:34.290] As we all witnessed on Saturday evening,
+- [08:36.700] within minutes,
+- [08:38.080] the President, the First Lady, the Vice President,
+- [08:40.480] members of the president's cabinet
+- [08:42.270] were ushered out of the room.
+- [08:43.640] The perpetrator who sought to inflict massive harm,
+- [08:46.860] as we all now know with the release of the manifesto
+- [08:50.090] on administration officials and the President himself
+- [08:53.230] was stopped at the security parameter that was set up.
+- [08:56.800] He tried to charge through it, as you saw on video,
+- [08:59.080] and he was quickly neutralized by Secret Service,
+- [09:01.480] and thank God that he was.
+- [09:02.950] With that said, obviously, the White House
+- [09:04.900] is always asking the tough questions
+- [09:07.340] and ensuring the safety of the President.
+- [09:09.220] I understand there will be a meeting early this week
+- [09:11.820] convened by the White House Chief of Staff, Susie Wiles,
+- [09:14.340] with top DHS leadership,
+- [09:16.310] members of the United States Secret Service
+- [09:18.180] and our own operations team here to ensure the safety
+- [09:21.320] and the security of the President
+- [09:22.530] as we do have many of these major events moving forward.
+- [09:25.640] So we're always monitoring operations and procedures,
+- [09:28.590] always asking the tough questions
+- [09:29.970] to ensure the President is safe
+- [09:31.870] and the American people should be assured
+- [09:33.570] there's no higher priority for the president
+- [09:36.100] and his staff than the President's safety.
+- [09:37.530] The Press: Karoline, on Friday,
+- [09:38.740] you said that you thought that gaggle out of the sticks
+- [09:41.180] would be your last one for your baby.
+- [09:43.700] Back in 2024 when the President
+- [09:45.400] had the attempt on his life in Butler,
+- [09:46.910] you cut your maternity leave short back then.
+- [09:49.980] You're obviously back here today after Saturday.
+- [09:52.640] Can you just elaborate a little bit why you felt
+- [09:54.990] it was important to be here to bring to the media
+- [09:57.250] and talk to the American people from the stand?
+- [09:59.760] Karoline Leavitt: Sure. It's sort of crazy timing
+- [10:02.170] when you put it that way for both children
+- [10:04.500] with two assassination attempts against the President.
+- [10:07.430] I'm honored to work in this job.
+- [10:09.130] I view this job as the President's spokesperson
+- [10:11.830] and the White House spokeswoman as public service.
+- [10:14.310] It's not just any job.
+- [10:15.820] I'm honored to do it and I'm honored to work
+- [10:17.950] and speak on behalf of President Trump
+- [10:19.770] who has faced unprecedented adversity and challenges,
+- [10:24.940] and I'm honored to work for him.
+- [10:26.360] And again, as I witnessed on Saturday night,
+- [10:28.260] just his dogged resolve and determination
+- [10:31.360] to get back onto the stage
+- [10:33.360] and he was pushing Secret Service
+- [10:35.500] and law enforcement to allow him to address.
+- [10:37.810] And that really, I think, hopefully gives the country
+- [10:41.580] the type of strength that we need.
+- [10:43.160] And I certainly know as his spokeswoman
+- [10:45.090] and I can speak on behalf of all of the staff
+- [10:46.980] here at the White House, the President inspires all of us
+- [10:49.550] to just keep going and keep fighting every day.
+- [10:51.010] The Press: Thanks, Karoline.
+- [10:52.280] Karoline Leavitt: Thanks, Daniel.
+- [10:53.510] And congrats to you on your new baby.
+- [10:54.730] The Press: Thank you so much.
+- [10:55.930] Karoline Leavitt: He's beautiful. Aisha.
+- [10:57.220] The Press: Just from the rhetoric,
+- [10:58.430] you mentioned the First Lady and Jimmy Kimmel.
+- [11:00.300] Jimmy Kimmel's comments were, "Mrs. Trump,
+- [11:02.990] you have a glow like an expectant widow."
+- [11:06.050] And he said these days before the shooting,
+- [11:07.870] but there does seem to be a normalization of rhetoric
+- [11:13.860] about assassinating this particular president.
+- [11:17.500] How can this administration try to put an end to this?
+- [11:22.400] Karoline Leavitt: Well, I think you heard it directly
+- [11:23.660] from the President on Saturday night, Aisha,
+- [11:26.130] that in his words, we need to recommit ourselves
+- [11:28.450] as a country to toning down the rhetoric
+- [11:31.820] and to unifying around what makes our country great.
+- [11:35.860] That's true of everyone who works in this White House,
+- [11:38.240] but as I said, it's also true of everyone who has a voice
+- [11:42.260] and a platform across this country,
+- [11:43.870] whether you're on television, a podcast host, people listen.
+- [11:50.080] And when you have mentally disturbed individuals
+- [11:52.040] across the country
+- [11:53.240] who are listening to this crazed rhetoric
+- [11:55.850] about the President day after day after day,
+- [11:58.590] it inspires them to do crazy things.
+- [12:00.550] And unfortunately, it's not just the media.
+- [12:03.530] It is the entire Democrat Party has made their pitch
+- [12:08.030] to voters across the country
+- [12:09.420] that Donald Trump poses an existential threat to democracy,
+- [12:12.760] that he is a fascist and that they compare him to Hitler.
+- [12:15.810] I mean, these are despicable statements
+- [12:17.530] that the American people have been consuming for years
+- [12:20.490] and so many mentally perturbed individuals
+- [12:23.120] are led to believe these words are truth
+- [12:25.510] and then are inspired to act on it.
+- [12:27.580] I have a whole host of examples
+- [12:29.280] that we can share with you after.
+- [12:31.100] It is pages and pages of major Democrat Party
+- [12:34.460] elected officials saying such as Rep Hakeem Jeffries
+- [12:38.390] just this April, this month said,
+- [12:40.630] "We are in an era of maximum warfare
+- [12:43.190] everywhere all the time."
+- [12:44.880] Governor Josh Shapiro said,
+- [12:46.220] "Heads need to roll within the administration."
+- [12:49.880] Senator Alex Padilla said,
+- [12:51.350] "People are 'dying' because of fear and terror
+- [12:54.330] caused by the Trump administration."
+- [12:56.360] Senator Elizabeth Warren, "President Trump is making
+- [12:58.750] the country look like a 'fascist state.'"
+- [13:01.780] Senator Adam Schiff saying President Trump
+- [13:03.810] using a dictator playbook.
+- [13:05.510] Senator Ed Markey calling President Trump
+- [13:07.890] a dictator saying that this administration's actions
+- [13:10.480] are authoritarianism on steroids.
+- [13:13.140] Governor JB Pritzker, "Never before in my life
+- [13:15.540] have I called for mass protest disruptions.
+- [13:18.110] These Republicans cannot know a moment of peace."
+- [13:21.610] You have Rep Pressley saying, "We'll see you in the streets."
+- [13:25.350] Rep Monica McIver, a Democrat representative on Capitol Hill,
+- [13:29.000] "We will not take this shit from Donald Trump.
+- [13:31.560] He thinks he's a dictator. We are at war."
+- [13:34.770] These are Democrat elected officials
+- [13:36.650] calling for war against the President of the United States
+- [13:39.480] and his supporters. I could go on and on, but again,
+- [13:42.350] when you have people in positions of power
+- [13:44.960] that are saying things like this,
+- [13:46.510] every single day for years, you are inspiring violence
+- [13:50.220] by people who are already mentally ill.
+- [13:51.630] And that's what we've seen against this president
+- [13:53.010] for far too long.
+- [13:54.360] The Press: (inaudible)
+- [13:55.560] this is disinformation and misinformation online.
+- [13:58.470] There will be bite-sized clips that will go viral to the point
+- [14:02.640] where there are Americans in this country
+- [14:05.060] that believe that what happened Saturday night was staged.
+- [14:08.660] How does this White House
+- [14:10.080] tackle that with social media companies out there,
+- [14:12.870] whether it's X, Facebook, Instagram?
+- [14:15.930] How do they work with these companies
+- [14:17.880] to make sure that doesn't get out of control?
+- [14:20.220] Karoline Leavitt: It's certainly a good question, Aisha.
+- [14:21.800] I don't have tangible answers for you
+- [14:23.780] on what we're doing with social media companies,
+- [14:25.960] if anything at all.
+- [14:27.220] What I will say is it's very important to us
+- [14:29.710] that we get the truth and the facts about this case
+- [14:32.450] and any case out there as quickly as possible
+- [14:35.080] to dispel some of that crazy nonsense
+- [14:37.350] that you do see running rampant online.
+- [14:40.740] And I think the Department of Justice and the FBI
+- [14:43.070] thus far have done a good job of disseminating the truth
+- [14:46.230] and the facts about this alleged attempted assassin,
+- [14:50.500] the perpetrator in this case,
+- [14:51.800] and I understand he'll be arraigned in court very soon.
+- [14:54.010] You all see that in the Department of Justice.
+- [14:56.250] We'll be giving a briefing and an update later today.
+- [14:58.900] So as far as we're concerned,
+- [15:00.160] just providing maximum transparency
+- [15:03.000] and hopefully people will believe the truth
+- [15:05.440] rather than the lies and the conspiracies
+- [15:07.200] that so often do go crazy on social media. Rachel.
+- [15:11.330] The Press: Karoline.
+- [15:12.610] Does the administration view this as a security failure,
+- [15:15.810] or did the protocols work as they were designed?
+- [15:18.410] Karoline Leavitt: The President has said
+- [15:19.640] he believes that the protocols worked.
+- [15:21.290] Again, you had a perpetrator
+- [15:22.640] who tried to breach the security parameter
+- [15:25.920] that was set up by Secret Service
+- [15:27.990] and he was running as fast as he could
+- [15:30.010] and was immediately neutralized moments later.
+- [15:32.580] And again, having been right up there on the stage
+- [15:34.700] with the President and the First Lady,
+- [15:36.230] I can tell you it was seconds before we were told to get down
+- [15:40.540] and it was seconds before we found ourselves
+- [15:42.540] in the holdroom backstage.
+- [15:44.240] It all happened literally within a matter of seconds.
+- [15:47.160] The President, the Vice President and the First Lady
+- [15:49.800] being pulled to safety.
+- [15:51.300] That is not done if there's a lapse.
+- [15:54.160] So Secret Service did their jobs well.
+- [15:56.040] They communicated with one another to remove the President
+- [15:58.870] and the Vice President to safety as quickly as they could,
+- [16:01.460] and obviously to neutralize the shooter as well.
+- [16:03.420] And thank God they did,
+- [16:04.620] because if that man was allowed into that ballroom,
+- [16:07.040] it would have been a much different scene.
+- [16:08.440] The Press: And just one more follow up
+- [16:09.660] on just how the White House could be rethinking
+- [16:12.010] security protocols going forward.
+- [16:13.700] I mean, we all remember
+- [16:15.120] after the attempted assassination in Butler,
+- [16:17.280] there were indoor rallies that were held after that.
+- [16:21.410] Is that out of the question
+- [16:22.780] changing any additional security protocols
+- [16:25.180] when it comes to how the President does these events
+- [16:28.010] that are outside of the White House?
+- [16:29.770] Karoline Leavitt: I definitely wouldn't say changes
+- [16:31.150] are out of the question.
+- [16:32.350] I think, again, that it's up to the White House here
+- [16:35.340] and we view it as a great responsibility
+- [16:37.100] to ensure the maximum safety of the President
+- [16:39.540] and the Vice President and the entire cabinet.
+- [16:41.760] And so we're always looking for ways to improve security.
+- [16:43.930] I think if you just sit here
+- [16:45.410] and say everything is perfect all the time,
+- [16:47.860] that's not a good way to operate.
+- [16:49.200] And so the White House will continue to engage with DHS
+- [16:52.060] and with Secret Service
+- [16:53.440] to find ways to improve and strengthen security.
+- [16:55.520] But as far as Saturday night is concerned,
+- [16:57.650] the President was satisfied with the response
+- [16:59.330] and he's very grateful to the men and women
+- [17:01.070] who provided the response for him
+- [17:02.630] and his wife and members of his team.
+- [17:06.420] Dian.
+- [17:07.650] The Press: Thanks, Karoline.
+- [17:09.000] The President has talked about rescheduling
+- [17:11.040] the dinner within 30 days.
+- [17:12.740] Does he have a specific venue in mind?
+- [17:15.100] And would he consider hosting it at the White House?
+- [17:17.550] Karoline Leavitt: Well, unfortunately,
+- [17:18.760] we don't have a room big enough here at the White House,
+- [17:21.240] which is another point to be made
+- [17:22.820] and the President is absolutely right.
+- [17:24.300] It's why the White House Ballroom project
+- [17:27.160] is not just a fun project for President Trump
+- [17:30.870] like you will read in the media.
+- [17:32.390] It is actually critical for our national security
+- [17:35.260] that a larger secure building on this complex,
+- [17:38.850] which is the most secure complex in the world
+- [17:41.380] is built to accommodate not only large amounts of guests,
+- [17:44.990] but also the President, the Vice President,
+- [17:46.750] members of the cabinet.
+- [17:47.990] The line of succession in this country
+- [17:50.210] should be able to gather freely in safety
+- [17:53.120] without the fear of threats or political violence.
+- [17:55.850] And the White House Ballroom will provide that,
+- [17:58.230] and so it's critical that we get this project done
+- [18:00.620] as quickly as possible. Phil.
+- [18:03.940] The Press: Thank you, Karoline.
+- [18:05.950] Two questions, if that's all right.
+- [18:07.410] First on the security situation on Saturday,
+- [18:10.430] kind of a follow-up here.
+- [18:11.760] Previous administrations have sent both the President
+- [18:14.720] and the Vice President to the dinner,
+- [18:17.420] but after the foiled attack on Saturday,
+- [18:19.670] if the dinner is rescheduled,
+- [18:21.710] would President Trump and Vice President JD
+- [18:24.270] Vance both plan on attending?
+- [18:27.350] And is it wise to have both of them in the same spot,
+- [18:32.810] given the presidential line of succession
+- [18:34.400] that you mentioned a second ago?
+- [18:35.670] Karoline Leavitt: It's definitely a good question,
+- [18:37.160] and I know that it's one that will be raised.
+- [18:39.050] I can assure you the President intends to attend the event
+- [18:42.810] as he has told all of you publicly.
+- [18:44.510] I don't want to rule in or out the Vice President's attendance,
+- [18:46.840] but certainly that's a conversation
+- [18:48.690] that will take place.
+- [18:52.140] The Press: Iran has proposed a mutual reopening of the Strait,
+- [18:55.520] leaving the nuclear discussion for later in the process.
+- [18:58.600] Given that the nuclear program has been a red line
+- [19:01.860] for this administration,
+- [19:03.480] would the President agree to that kind of phased negotiation?
+- [19:07.260] Karoline Leavitt: Well, only because it's been reported,
+- [19:08.850] I will confirm the President has met
+- [19:10.670] with his national security team this morning.
+- [19:12.830] The meeting may be ongoing, maybe not.
+- [19:14.480] I don't want to speak affirmatively,
+- [19:16.640] because I was prepping to come out here,
+- [19:18.960] but the proposal was being discussed.
+- [19:21.190] I don't want to get ahead of the President
+- [19:22.870] or his national security team.
+- [19:24.490] What I will reiterate is that the President's red lines
+- [19:27.060] with respect to Iran have been made very, very clear,
+- [19:30.240] not just to the American public, but also to them as well.
+- [19:33.150] The Press: (inaudible).
+- [19:34.570] Karoline Leavitt: I wouldn't say they're considering it.
+- [19:35.910] I would just say that there was a discussion
+- [19:37.470] this morning that I don't want to get ahead of
+- [19:39.470] and you'll hear directly from the President,
+- [19:41.120] I'm sure, on this topic very soon.
+- [19:43.060] The Press: I'm going to ask you about the fed chairman,
+- [19:45.380] but first, three assessment issue attempts in three years.
+- [19:48.910] Is this going to change the type of events
+- [19:50.820] that the president goes to?
+- [19:52.870] Karoline Leavitt: Well, again, that's going to be part of
+- [19:54.420] the conversations moving forward.
+- [19:55.920] But as you heard from President Trump,
+- [19:58.120] he does not want these deranged lunatics
+- [20:01.560] and these grave acts of political violence
+- [20:04.900] to change our American way of life.
+- [20:06.920] And I think it's a very brave thing for him to say.
+- [20:08.810] It'd be very easy for him to just hunker down here
+- [20:11.880] at the White House where he knows he's safe,
+- [20:13.490] but the President wants to be out across the country.
+- [20:16.110] He wants to go across the country to meet with Americans.
+- [20:19.300] He wants to celebrate the 250th birthday
+- [20:22.250] of our nation's anniversary this summer.
+- [20:24.260] As you know, we're gearing up for a big UFC fight here
+- [20:26.790] on the South Lawn. So there's many exciting events
+- [20:29.290] I know the President wants to be part of
+- [20:31.580] and will be part of moving forward.
+- [20:33.620] He's undeterred in that way,
+- [20:35.370] and it's something that inspires all of us here to keep going.
+- [20:39.050] The Press: Senator Tillis is now dropping his objection
+- [20:41.540] to allowing Kevin Warsh to be confirmed
+- [20:43.580] because the DOJ has closed their investigation.
+- [20:46.290] Is the President satisfied that a Inspector General
+- [20:49.870] report into the Federal Reserve
+- [20:51.710] is enough to look into these renovations?
+- [20:54.090] Karoline Leavitt: The President understands
+- [20:55.620] that the Inspector General has greater tools at their disposal,
+- [20:58.870] perhaps even more powerful than a grand jury
+- [21:01.340] to continue investigating
+- [21:02.910] the financial mismanagement of the Fed building,
+- [21:05.130] which is a priority for the President.
+- [21:06.970] Look, he's a builder himself.
+- [21:08.430] When he sees something has a lot of cost overruns,
+- [21:10.610] is taking too long
+- [21:11.890] and is this case ripping off the American taxpayer,
+- [21:14.440] he wants to get to the bottom of it.
+- [21:16.020] I understand Senator Tillis put out a statement
+- [21:18.460] saying he'll support Kevin Warsh's confirmation.
+- [21:21.000] That has been our position all along from day one.
+- [21:23.360] He is more than qualified for the job,
+- [21:25.030] and we look forward to working with the Senate
+- [21:26.760] on his swift confirmation process. Meagan.
+- [21:29.630] The Press: As a follow-up on Warsh,
+- [21:31.470] will the President be satisfied
+- [21:32.730] once the Fed's inspector general finishes that investigation,
+- [21:35.720] even if it finds no evidence of wrongdoing?
+- [21:38.080] Karoline Leavitt: Well, that's a hypothetical question.
+- [21:39.530] I'll let the President speak on it when we see the results.
+- [21:41.820] It's obviously far too early to say.
+- [21:44.290] The Press: As a follow-up, now that it looks like
+- [21:45.710] Warsh will be confirmed by the end of Jay Powell's term,
+- [21:48.280] does the President, is he still considering firing Jay Powell
+- [21:50.970] if he stays on as a governor after that?
+- [21:52.300] Karoline Leavitt: I haven't talked to him
+- [21:53.540] about it specifically,
+- [21:54.780] but I think the President will be satisfied
+- [21:56.490] once Kevin Warsh is confirmed as the Fed chair,
+- [21:58.970] which he should be. Karen.
+- [22:01.910] The Press: On Iran, the president had said last week
+- [22:04.270] that the US has started the process
+- [22:06.060] of clearing the Strait of Hormuz of mines.
+- [22:08.690] Do you have an update on how many have been removed
+- [22:11.510] and an estimate of how long that process could take?
+- [22:13.550] Karoline Leavitt: I don't,
+- [22:14.750] but I would defer you to the Pentagon on that
+- [22:16.110] and we'll make sure they get you an answer, Karen.
+- [22:17.640] The Press: It's an ongoing process though.
+- [22:19.040] It's still actually happening right now?
+- [22:21.030] Karoline Leavitt: Again, I would defer you to the Pentagon
+- [22:22.460] on anything with respect to clearing mines
+- [22:24.240] in the Strait of Hormuz.
+- [22:25.860] Fran. I'll come back to you after, but go ahead.
+- [22:29.210] The Press: I know that you said that the White House
+- [22:30.790] is reviewing the security protocols
+- [22:33.000] for things that could be done differently in the future.
+- [22:35.310] Have you identified anything so far
+- [22:37.900] that you would like to see done differently
+- [22:39.660] or ask the Secret Service to make any changes
+- [22:41.890] in the security protocols for the President,
+- [22:44.000] particularly at these large events
+- [22:45.590] that are taking place off the White House campus?
+- [22:47.950] Karoline Leavitt: Not yet, no. But as I said,
+- [22:49.450] there will be a meeting here at the White House
+- [22:51.580] in the earlier half of this week,
+- [22:53.200] so those conversations will take place.
+- [22:55.040] The Press: And on the line of succession-
+- [22:56.410] Karoline Leavitt: And I would also just add, look,
+- [22:58.320] the Secret Service does not detail their procedures
+- [23:01.770] or operations to the public for obvious reasons,
+- [23:04.120] because you have crazy people
+- [23:05.430] who try to hijack them and get around them.
+- [23:08.000] So these conversations will take place in private,
+- [23:10.160] but if adjustments need to be made to protect the President,
+- [23:12.870] they will be made.
+- [23:14.080] The Press: Just question.
+- [23:15.320] Does the White House discussed doing like it does,
+- [23:17.800] for instance, with a joint address to Congress
+- [23:19.820] for these large events
+- [23:21.040] and designating someone as the designated survivor
+- [23:23.530] for future large events that the cabinet attends?
+- [23:25.730] Karoline Leavitt: Well, those conversations
+- [23:27.050] ahead of the walk of dinner did take place,
+- [23:28.880] but there were several members of the cabinet
+- [23:31.280] in the line of succession who did not attend
+- [23:33.650] for various personal reasons.
+- [23:35.910] So designating one survivor was not necessary
+- [23:38.880] as we had several members who were not there already.
+- [23:40.590] The Press: Karoline,
+- [23:41.820] I know there's people was forced to dive under tables
+- [23:43.730] and fearing for their lives on a Saturday night,
+- [23:45.480] including many of the people in this room, myself included.
+- [23:47.790] What is the President's message
+- [23:49.280] to those people who experienced that terrible trauma
+- [23:52.920] and maybe are still fearful today?
+- [23:55.570] Karoline Leavitt: I think he would say,
+- [23:56.840] as he sort of did on Saturday night,
+- [23:58.760] coming in here in his tuxedo,
+- [24:01.260] we can't allow these crazy people to let us be afraid.
+- [24:04.580] We have to keep moving forward, showing up, doing our jobs,
+- [24:07.670] celebrating our country and doing what we know is right,
+- [24:10.460] but certainly we'd like to see the rhetoric
+- [24:13.310] against this president and his supporters tone down,
+- [24:15.840] because it is inspiring these crazy people across the country
+- [24:18.950] to target not just the president,
+- [24:20.750] but those who work for him
+- [24:22.000] and those who support him and it must end.
+- [24:23.710] The Press: Is he following
+- [24:24.950] the arraignment of the suspect today?
+- [24:26.210] Karoline Leavitt: Yes, he is.
+- [24:27.430] And I know you all want to follow that too,
+- [24:29.010] so it's happening in a few minutes,
+- [24:30.250] so I'll let you all go.
+- [24:31.460] The Department of Justice is also going to be speaking
+- [24:35.430] momentarily following the arraignment, and I hope,
+- [24:38.670] pray that this is the last time I speak to you for some time
+- [24:43.070] until after my maternity leave, so thank you guys.

@@ -1,0 +1,677 @@
+<!-- source: https://www.youtube.com/watch?v=o5KrJKqJmc4 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: o5KrJKqJmc4 -->
+<!-- date_published: 2026-05-12T00:10:35+00:00 -->
+<!-- date_accessed: 2026-06-02T02:33:58.129306+00:00 -->
+
+# Transcript: President Trump Participates in a Rose Garden Club Dinner
+
+- [00:03.100] Announcer: Ladies and gentlemen,
+- [00:04.330] the President of the United States,
+- [00:06.480] Donald J. Trump.
+- [00:09.140] ♪ ("God Bless the USA" by Lee Greenwood) ♪
+- [00:37.260] The President: We could have kept that going.
+- [00:38.590] What a great song.
+- [00:40.570] I won a lot of races with that song.
+- [00:42.770] Uh-oh. I thought that was a drone.
+- [00:47.170] They make them in all different sizes nowadays.
+- [00:49.420] They can be very destructive as you probably heard.
+- [00:52.610] So this is, oh, you can sit down.
+- [00:54.400] Come on. It's an honor.
+- [00:57.660] Now, if you found, if you find it really exciting,
+- [01:00.040] stand up, pop up again. But it's a great honor.
+- [01:03.420] Welcome. These are my friends. These people voted for me 98%.
+- [01:07.070] That we're looking for the other two.
+- [01:10.310] But I want to welcome you to the Rose Garden.
+- [01:11.950] You know, this is a whole new thing.
+- [01:13.350] This used to be grass.
+- [01:15.390] And took a little heat from my wife.
+- [01:18.180] She said "Darling, what did you do with my grass?"
+- [01:21.370] I said, "People got tired of standing in mud.
+- [01:24.910] You know, the White House,
+- [01:26.230] you don't realize it's, it's built on a wetland.
+- [01:28.810] So when it doesn't, it, it didn't have to rain.
+- [01:31.550] Uh, the grass was always soaking wet.
+- [01:33.420] If you had a news conference,
+- [01:35.210] the reporters who were back there,
+- [01:36.700] I think, the reporters, they walk out with their shoes.
+- [01:40.270] The female reporters in particular,
+- [01:41.970] they weren't thrilled.
+- [01:43.520] But I said, "We're going to get a gorgeous stone," which we did.
+- [01:47.270] "And we're going to put this up here."
+- [01:48.640] I don't know if you got this here.
+- [01:49.860] It's just completed with the granite, the black granite.
+- [01:52.790] And Mr. Secretary, right?
+- [01:54.250] You just, you saw it, you gave it your approval.
+- [01:57.020] Do we have a good news sec- --
+- [01:58.440] would you please stand up, Mark White?
+- [02:00.920] We have a great secretary.
+- [02:04.450] He's a great wrestler, by the way.
+- [02:05.990] You know, he's a championship wrestler.
+- [02:07.570] You don't want to fight him.
+- [02:09.120] But you don't know some of these guys
+- [02:10.600] might be able to take you, but probably not.
+- [02:14.170] I would be very disappointed in you if that happened.
+- [02:17.750] But we're honored to be joined by Vice President JD Vance.
+- [02:20.890] Where's JD? JD. Doing a terrific job.
+- [02:26.150] Thank you, JD. Interior Secretary Doug Burgum.
+- [02:31.910] Doug. And we'll be opening up the reflective pond.
+- [02:37.340] It's called the reflective pond.
+- [02:39.590] Goes from the Lincoln to the Washington,
+- [02:42.260] the Washington monument.
+- [02:45.380] And it goes all the way. It's 2,500 feet. Think of this.
+- [02:50.070] And President Obama, a man who was a great divider,
+- [02:56.430] president of, he, he spent 54 million trying to fix it,
+- [03:00.410] and it made it worse.
+- [03:01.680] They've been trying to get it fixed for the last 40 years.
+- [03:04.780] So I got involved with Doug.
+- [03:07.100] They were going to spend, think of this 350 to 400 million.
+- [03:10.730] You have to understand, it's longer
+- [03:12.550] than the tallest building in the world laying sideways.
+- [03:15.560] It's two empire state buildings, and it's almost 200 feet wide.
+- [03:18.890] It's a lot.
+- [03:20.110] It's a big area. It was going to take four years
+- [03:23.970] and it was going to cost 350 to 400 million.
+- [03:28.420] I said, "I think we can do it for less."
+- [03:30.740] So I called people that do swimming pools
+- [03:33.490] and I said, "Go take a look at it."
+- [03:35.540] They were going to take stone out.
+- [03:36.840] They were going to put new stone in.
+- [03:38.650] It would've taken forever.
+- [03:39.920] It would've taken three or four years.
+- [03:41.910] That's before overruns and over at cost.
+- [03:45.320] So they were for, think of this 350 million
+- [03:49.610] without cost overruns
+- [03:51.570] and four years versus three million dollars,
+- [03:56.640] and it'll be finished this week. Like, think of that.
+- [04:02.400] And somebody said, somebody said,
+- [04:05.690] and by the way, a very sophisticated job.
+- [04:07.860] They ground the stone. They ground everything.
+- [04:10.960] They sealed it. They did a lot. They had to have a good base.
+- [04:14.090] And because I read in the New York Times,
+- [04:16.080] we just gave a little paint job. This is not paint.
+- [04:18.630] This is highly sophisticated stuff.
+- [04:21.310] But I said,
+- [04:23.440] "Get me the heavy duty industrialized and it's thick."
+- [04:26.930] It's amazing. Actually amazing stuff.
+- [04:29.330] It'll be good for 50 years probably.
+- [04:33.130] So somebody said, "Well, it's not the same job."
+- [04:34.970] No, it's better. It's going to be beautiful.
+- [04:37.160] And I think we'll have it open, Doug,
+- [04:38.490] next week, sometime, next week, week after.
+- [04:41.590] So this would've been under construction for four years,
+- [04:45.460] cost all of that money.
+- [04:46.800] It would've been over 400 million dollars
+- [04:48.500] with cost overruns,
+- [04:49.740] which of course are a normal, a normal cost of building
+- [04:54.500] if you don't know what the hell you're doing.
+- [04:56.770] And we did it for a couple of million bucks,
+- [04:59.570] and we did it in one week. I said, "One week."
+- [05:02.610] That's not including the preparation,
+- [05:04.970] which was two weeks alone because it was so filthy, dirty.
+- [05:08.880] We were getting complaints from people.
+- [05:11.520] For years it's been dirty and disgusting and rotting,
+- [05:16.150] rotting garbage, and it's terrible.
+- [05:17.870] We took away 16 loads of garbage out of that
+- [05:21.890] only two feet deep pool. So, I just want to mention
+- [05:25.780] 'cause Doug has been great and he went with me 100%.
+- [05:29.300] So, we put this magnificent coating,
+- [05:31.530] it's almost complete, not a paint job.
+- [05:34.190] New York Times, fake New York Times.
+- [05:35.890] I call it the failing New York
+- [05:37.100] Times. They're losing subscribers.
+- [05:39.420] They're losing subscribers so badly,
+- [05:41.160] they don't know what the hell to do.
+- [05:43.060] But they said we did a paint job.
+- [05:44.530] We didn't do a paint job.
+- [05:45.990] The place would leak and we're going to have it totally sealed.
+- [05:49.770] It's basically, if you think of a swimming pool,
+- [05:52.940] a heavy swimming pool coating, and the pool person said,
+- [05:56.860] "Sir, we're going industrial." What is industrial?
+- [05:59.740] It's a heavy duty, it can handle anything.
+- [06:03.060] And it's going to be beautiful, beautiful color.
+- [06:05.360] I picked American flags.
+- [06:06.980] See the blue? I picked American flag.
+- [06:09.190] It was called American Flag Blue.
+- [06:11.170] I couldn't make up my mind. I had a hard time.
+- [06:16.220] I was having a very hard time, "And here the colors are, sir."
+- [06:19.850] There were like, 70 colors.
+- [06:21.440] I said, "Couldn't you give me three? 70's a lot."
+- [06:24.590] They had every color you could imagine.
+- [06:27.320] And they called them and they, I looked and looked.
+- [06:29.420] I said, "What is this?" "Sir, that's American Flag Blue."
+- [06:32.460] I said, "I'll take that one."
+- [06:34.270] And I think it's going to be beautiful
+- [06:36.810] and you're going to see something.
+- [06:38.750] So, this is, 1922 it was built
+- [06:41.570] and it was broken for most of the time.
+- [06:43.940] And you are now, with Doug and myself
+- [06:45.900] and the great staff you have and the people that did it.
+- [06:49.790] And by the way, these people did not work for me.
+- [06:52.500] They told, they said they worked for me, they didn't work for me.
+- [06:55.400] They come from a different part of the country.
+- [06:57.630] But but they were good.
+- [06:59.830] The people that worked for me recommended it,
+- [07:02.510] and they recommend we do it this way.
+- [07:03.950] But I recommended it to them
+- [07:05.430] because I'm very good at construction.
+- [07:07.670] So, we saved at least, think of it,
+- [07:10.240] I saved $349 million
+- [07:14.600] and I saved four years of construction,
+- [07:18.810] and the New York Times said I didn't bid it.
+- [07:21.110] I didn't bid it. Uh, it's unbelievable.
+- [07:24.450] It's unbelievable, but I had nothing to do.
+- [07:26.530] I blame Doug. They gave it out. I didn't even give it out.
+- [07:29.740] So, the other people we have,
+- [07:32.040] and we have some of the greatest people on earth here tonight,
+- [07:35.370] Homeland Security.
+- [07:36.970] The Homeland Security team has been unbelievable,
+- [07:39.520] I have to tell you.
+- [07:40.930] And I came up with an idea that I thought was brilliant.
+- [07:44.510] I think all my ideas were brilliant, actually.
+- [07:47.380] But this one, I knew I was brilliant.
+- [07:48.870] Then I got a call from Tom Holman,
+- [07:50.410] he wasn't thr- -- where's Tom? Is he here?
+- [07:52.800] I love Tom Homan, said I'm the greatest president in history.
+- [07:56.760] I said, "Tom, you can't do better than that?"
+- [07:59.440] Thank you, Tom. So, I get a call from Tom Homan,
+- [08:02.510] he didn't like it, but everyone else liked it.
+- [08:04.560] I wanted to change the name of ICE,
+- [08:08.960] which is a tough name, you know, to Nice,
+- [08:13.020] so that when the fake news reports,
+- [08:15.140] they said, "It was a nice day with Nice.
+- [08:18.930] We spent a beautiful day with Nice."
+- [08:21.120] I said, "You will screw them up so badly,
+- [08:23.600] they won't know what to do."
+- [08:25.270] But they said the people that worked there
+- [08:27.430] didn't like the name as much.
+- [08:29.460] I love the name. Hello, Jeanine.
+- [08:31.090] How are you doing? I love Jeanine.
+- [08:33.400] One of the greats of all time, in my opinion.
+- [08:35.620] I lived in New York when she was the toughest
+- [08:37.700] DA, fair, toughest fair DA.
+- [08:40.910] We had some tough ones, but they were crooked DAs like,
+- [08:44.530] sort of I would say like, a dirty cop.
+- [08:47.300] Like, Comey was a dirty cop, you know,
+- [08:49.150] and others were dirty cops.
+- [08:50.700] She was a clean cop, but she was tough and fair.
+- [08:53.960] So, we have Secretary of Homeland Security, Markwayne.
+- [08:56.650] So, stand up again, Markwayne, you love standing up.
+- [09:01.350] We have a man who's doing a great job, I'll tell you.
+- [09:03.750] I knew it because he kept me out of jail for years.
+- [09:08.730] Acting Attorney General, Todd Blanche,
+- [09:11.070] he kept me out of jail. They would indict me left
+- [09:13.730] and right, the crooked Democrats.
+- [09:16.430] You know, it's amazing, they impeach me, they indict me,
+- [09:19.790] and then when I get in office, if I say something like,
+- [09:22.760] "Well, maybe that should be looked into."
+- [09:25.960] Weaponization, I go through court cases, I win them,
+- [09:30.690] but because there were fake indictments.
+- [09:33.000] But when I even mentioned, like I said the other day
+- [09:36.940] that some of that stuff should be looked into,
+- [09:39.450] they said, "Weaponization, he's a terrible human being.
+- [09:42.520] Weaponization," right, (inaudible)?
+- [09:44.450] They blame me for weaponization. They are a crooked bunch
+- [09:48.500] and we want to keep it the way it is, what we have now.
+- [09:52.210] We have great law enforcement now.
+- [09:53.800] We have law enforcement that loves our country,
+- [09:56.230] not law enforcement that's sick and dangerous.
+- [09:59.600] White House
+- [10:01.030] Deputy Chief of Staff, Stephen Miller, who's fantastic.
+- [10:04.130] Stephen, thank you, Stephen. He's great.
+- [10:07.710] He's an MVP candidate, that's all I can say.
+- [10:11.810] FBI director Kash Patel, does he get enough publicity?
+- [10:14.820] If you could get a little more publicity, it'd be very,
+- [10:19.930] Thank you, Kash. DEA administrator, Terry Cole.
+- [10:23.120] Oh, what a job Terry's doing. What a job Terry's doing.
+- [10:29.530] So Terry, you know with all of them,
+- [10:32.050] Kash and Jeanine and everybody, we took Washington,
+- [10:35.550] DC, which was a very, very dangerous place, horrible.
+- [10:39.680] It was dangerous to,
+- [10:40.960] for four years under the Biden administration, Sleepy Joe.
+- [10:44.840] And we took it from a really dangerous,
+- [10:49.050] horrible situation into one of the safest cities
+- [10:54.300] anywhere in our country
+- [10:55.580] in a period of really a few months,
+- [10:58.240] and now it's just continued.
+- [11:00.190] And we have crime down by 90% in Washington,
+- [11:03.680] DC and I want to thank the National Guard.
+- [11:06.320] I want to thank our park police. I want to thank Doug Burgum.
+- [11:10.010] I want to to thank Kash and Jeanine.
+- [11:12.420] I got to thank Jeanine.
+- [11:14.340] But didn't thank Jeanine, I'd be in very big trouble.
+- [11:17.940] But you did a great job, everybody.
+- [11:19.780] We're proud of you.
+- [11:21.140] Look, the fake news, you showed up.
+- [11:23.950] They missed the best part.
+- [11:26.130] I want to thank also a friend of mine,
+- [11:28.560] Secret Service Director, Sean Curran.
+- [11:30.500] I see you back there, Sean. Thank you very much.
+- [11:35.560] And I thought you did a great job two weeks ago.
+- [11:37.620] You know why? Because I'm here, okay?
+- [11:40.700] We consider being here a success.
+- [11:44.170] And I, I'll tell you what,
+- [11:45.470] your people are all over the place.
+- [11:46.960] You know, you got a little, they no matter how well,
+- [11:49.800] no matter how well you do, they're going to find fault.
+- [11:52.610] But I, I will be the one to find fault
+- [11:54.900] if I think there was fault.
+- [11:56.150] They had great professional people,
+- [11:58.900] and they came out and within seconds,
+- [12:01.570] I saw them take JD by the shoulders
+- [12:03.900] and lift him up like he was a little boy.
+- [12:06.240] They -- I said, "How come they didn't lift me up so fast?"
+- [12:10.930] They lifted JD, got ripped out of the chair.
+- [12:13.340] That was a f- -- that was a, a View of the Week.
+- [12:16.450] But they did the job, JD, right? I think so.
+- [12:20.980] The director of the US Marshal Service, Gady Serraltas.
+- [12:25.620] Gady, where are you, Gady? Great job.
+- [12:28.500] And you, with what you've done in DC, you, the whole team.
+- [12:32.150] But I'm so proud of DC because,
+- [12:34.050] you know they all said that it really couldn't be saved.
+- [12:39.060] You got to remember, we took over 5,000 people out of here.
+- [12:42.470] There were career criminals.
+- [12:43.670] They came in through the border, through Joe Biden's open border.
+- [12:47.010] One of the dumbest things I've ever seen, open border.
+- [12:50.600] We had 6,000, thousands.
+- [12:53.210] I won't even go into numbers 'cause who knows?
+- [12:55.270] Who knows what they represent.
+- [12:56.570] But we had thousands of criminals.
+- [12:58.680] We had numerous murderers, people that were in for murder,
+- [13:01.420] people that were taken out of jails.
+- [13:03.360] They murdered more than one per- -- people, more than one person.
+- [13:07.260] And we got them out of here. We got them out and overall,
+- [13:11.100] I think we took over 5,000 people,
+- [13:13.040] career criminals out of DC. And one stat that's really good,
+- [13:17.890] that 2% of the people create 92% of the crime.
+- [13:23.430] And I love that stat because we can solve that problem.
+- [13:26.940] We get rid of 2%, and you get rid of your crime,
+- [13:29.200] and that's essentially what we did.
+- [13:30.660] We took a large number of people,
+- [13:33.030] but not incredibly large.
+- [13:35.020] We took, got them out and now we have a safe place.
+- [13:38.310] And you know, people that work in the White House,
+- [13:40.590] whenever I'm out people come up to me,
+- [13:42.790] and they say, "Thank you, sir."
+- [13:44.260] And I almost know what they, they mean.
+- [13:46.670] They say, "Thank you, sir."
+- [13:48.520] And I said, "I think I know go ahead. Thank me for what?"
+- [13:52.490] "You made Washington, DC safe. We live here.
+- [13:55.450] We couldn't leave our apartment. We couldn't go out to dinner.
+- [13:58.110] The restaurants were closing." I mean, it was horrible.
+- [14:01.570] Restaurants, half of the restaurants closed,
+- [14:03.530] you couldn't have run a restaurant.
+- [14:05.650] Even your car services,
+- [14:07.430] Uber, they being robbed when they were in the car.
+- [14:09.900] It was horrible. It was a horrible situation.
+- [14:12.910] And they come up to me and they say, "Thank you.
+- [14:15.390] It's a safe city again. We walk to work.
+- [14:17.310] We walk to the White House." They wouldn't even think
+- [14:19.470] about walking to the White House before.
+- [14:21.220] Now they all, I see them all over,
+- [14:23.020] walk into the White House.
+- [14:24.280] It's safe and it's a beautiful thing.
+- [14:26.600] And restaurants are opening. Restaurants are opening.
+- [14:31.490] Uh, it's, the place is like hot. It's very hot like our country.
+- [14:36.790] You know, our country was a dead country.
+- [14:38.770] We were a dead country,
+- [14:40.030] and a laughing stock all over the world.
+- [14:42.540] One and a half years ago we were dead as a doornail.
+- [14:45.150] We had no future. Our country was laughed at, disrespected.
+- [14:48.910] Our president was disrespected. He couldn't, he couldn't walk
+- [14:53.050] without falling down the damn stairs, I'd say.
+- [14:56.070] You know, some people thought it was funny.
+- [14:58.230] I didn't like it. I didn't like watching it.
+- [15:00.570] Should have never been there.
+- [15:02.900] And I'm very careful when I walk by the way
+- [15:05.400] because if I ever fall,
+- [15:06.740] I'm just, the fake news will, oh, they're going to have,
+- [15:09.870] that headline will go on for years, you know.
+- [15:13.190] Sometimes like I walk out of the plane late,
+- [15:15.500] I'm not looking to set any records.
+- [15:17.730] You go nice and easy.
+- [15:19.730] But we had a guy who's just, what a horrible president.
+- [15:23.670] We had a few of them, but he was a beauty.
+- [15:26.090] And we have safe now.
+- [15:27.490] We have a country that's respected all over the world.
+- [15:29.940] So think of it, we were a dead country a year and a half ago
+- [15:33.700] and now with the hottest country anywhere in the world,
+- [15:36.070] there's nobody close and our military is great.
+- [15:38.820] We are kicking ass.
+- [15:43.550] Another great guy, ATF Director Robert Cicada.
+- [15:46.960] Robert, thank you very much. Thank you.
+- [15:48.930] Thank you, Robert. Good job.
+- [15:51.990] And Chief of the US Park Police Scott Bract.
+- [15:55.230] Where's Scott? Scott. Thank you, Scott.
+- [15:57.620] All the way back there, Scott. That's very nice.
+- [16:01.640] And I'm pleased to report that the US Park Police
+- [16:04.430] Officer, Ryan McDermott,
+- [16:06.960] who recently took a bullet in the line of duty
+- [16:09.310] will soon be returning to work, getting better.
+- [16:12.220] It's going to be all 100% in a short period of time,
+- [16:15.680] so we want to pay our respect to Robert.
+- [16:20.100] We're grateful also to be joined
+- [16:21.770] by the President of the National Fraternal
+- [16:23.910] Order of Police, Patrick Yoes.
+- [16:26.190] I'll tell you how I know Patrick.
+- [16:27.880] I'll tell you, you know what I'm going to say, Patrick.
+- [16:30.110] I got a call, early on I've said I'm going to run.
+- [16:33.740] I ran the first time I won.
+- [16:35.020] I ran the second time, I won by even more.
+- [16:37.940] Unfortunately, they rigged the election.
+- [16:40.480] And then I said, because we did so good,
+- [16:42.510] I said, "Well if I didn't think we did, I wouldn't have run."
+- [16:45.760] I ran the third time.
+- [16:46.960] I got a call from a guy named Yoes.
+- [16:48.700] I said, "Who the hell is that?"
+- [16:50.400] He's the head of the Fraternal Order of Police.
+- [16:53.080] He said, "Sir, I'd like to endorse you
+- [16:54.570] on behalf of the Fraternal Order."
+- [16:56.790] I said, "How many people are you?"
+- [16:58.320] Remember, he, he said, "412,000."
+- [17:01.460] I said, "I'll accept that."
+- [17:03.340] "I'll accept. That's pretty good."
+- [17:05.280] Thank you very much. Patrick, I don't forget that.
+- [17:07.270] I figured what the hell is this guy?
+- [17:09.290] Where is he working?
+- [17:10.690] Who is he? I have no idea who he is.
+- [17:12.550] He said, "412,000 police."
+- [17:14.460] I said, "I like you very much. I never forgot to call."
+- [17:18.370] President of the National Sheriff's Association,
+- [17:21.360] Chris West, and a great guy.
+- [17:23.230] Thank you, Chris. Thank you very much.
+- [17:26.490] President of the National Border Patrol Council, my friend.
+- [17:30.370] This guy, for years, along with others,
+- [17:34.890] he worked on the border.
+- [17:36.140] He never got a call from the borders are.
+- [17:38.020] The borders are was Kamala, who is, by the way,
+- [17:40.470] leading the polls in the Democrat.
+- [17:42.930] She's leading all Democrats,
+- [17:44.380] which tells you they're not deep.
+- [17:46.180] They're not too deep.
+- [17:48.040] Can you believe that she's leading?
+- [17:50.160] So he never got a call. Where the hell are you?
+- [17:53.350] There he is. Uh, so in four years,
+- [17:56.290] did you ever get a call from Kamala like,
+- [17:57.860] "How are we doing on the border?"
+- [17:59.110] She never went there, she never called,
+- [18:00.680] but she did a, quite a good job.
+- [18:02.830] We had about 25 million people come through,
+- [18:05.450] totally unchecked, unvetted, murderers, killers,
+- [18:08.870] drug dealers, drug addicts all over the place, right?
+- [18:12.770] Mental people from mental institutions, insane asylums.
+- [18:17.220] We had 11,888 murderers come through.
+- [18:21.930] Other than that, it was quite a nice situation.
+- [18:25.030] And she never once called and I said,
+- [18:27.320] "Boy, that's a big story of the fact that she never called.
+- [18:30.310] She never called you one time. Is that right? Never one time.
+- [18:33.700] She was the border czar. She was great.
+- [18:35.320] She would have made a great president,
+- [18:36.610] but she's leading in the polls and we have to respect that.
+- [18:41.470] We have to respect it. I just hope she gets that.
+- [18:44.670] President of, how about, how about Gavin Newsome though?
+- [18:47.330] He went out and he said he's a stupid person.
+- [18:49.230] He got bad test marks, he got bad this, he got bad that.
+- [18:52.490] He can't read a speech. In other words, well,
+- [18:54.840] I'm not reading too much of the speech either.
+- [18:57.370] But said he can't read a speech. He's not a smart person.
+- [19:03.080] He said, "I'm dumb just like all the people in this room."
+- [19:06.260] And now he was accused of being a racist.
+- [19:08.260] I mean, that was the stupidest,
+- [19:09.780] this guy, what he said is so bad.
+- [19:13.010] It was the worst interview I've ever seen
+- [19:14.970] by a professional politician
+- [19:17.450] and he's running and he's in second place.
+- [19:19.890] So we got a lot of a lot of beauties out there, JD.
+- [19:23.640] I en- -- I envy you and other people.
+- [19:26.580] I don't know. Who's, who's it going to be?
+- [19:28.650] Is it going to be JD? Is it going to be somebody else?
+- [19:30.870] I don't know.
+- [19:32.380] Who does, does anybody have, okay, let's go.
+- [19:34.230] You ready? Who likes JD Vance? Who likes Marco Rubio?
+- [19:44.910] All right. Sounds like a good ticket.
+- [19:47.960] JD is a perfect, that was a perfect ticket.
+- [19:52.560] By the way, I do believe that's a dream team,
+- [19:54.370] but these are minor details. That does not mean you have
+- [19:57.760] my endorsement under any circumstance.
+- [20:01.190] But you know, it's a perfect,
+- [20:02.500] it was a big and then a very nice,
+- [20:05.860] I think it sounds like presidential candidate
+- [20:09.270] and vice presidential candidate. Uh, president
+- [20:12.840] of the Federal Law Enforcement Officers Association,
+- [20:16.210] Mathew Silverman, another winner.
+- [20:18.900] Thank you, Mathew. Good to see you, Mathew.
+- [20:22.160] So we're gathered here tonight and it's exciting,
+- [20:24.380] because this place was not properly taken care of.
+- [20:29.500] I was told by my wife, "You have to act presidential,
+- [20:32.710] so don't use foul language." I won't.
+- [20:34.710] Therefore, normally I would have said it was a shit house,
+- [20:37.870] but I, I don't want to say that.
+- [20:40.680] The columns were falling down. The plaster was falling off.
+- [20:45.570] You made a speech and I was saying,
+- [20:47.330] "Couldn't you fix up the paint job up there?"
+- [20:49.360] You know, it looked a, and this place is tippy top now,
+- [20:53.010] including all the brand new, beautiful stone.
+- [20:55.220] I paid for it myself.
+- [20:56.850] All of the stone, all of the different things we have
+- [20:59.420] and we're bringing the White House back to shape.
+- [21:02.700] I don't know if you got to walk into the, the marble,
+- [21:06.000] the Statu- -- it's called Statuario.
+- [21:08.710] Uh, the statuary marble.
+- [21:10.300] The white, I don't know if you got to walk in there.
+- [21:12.230] They probably see your law enforcement.
+- [21:14.090] They don't want you to walk into the house.
+- [21:15.780] They want to keep you as far away as possible.
+- [21:18.220] But it's beautiful, bookmatched.
+- [21:21.090] And I spent a lot of time on bringing this house back
+- [21:24.490] because this house was in very bad shape.
+- [21:26.590] Those walls were in horrible shape.
+- [21:28.230] I'm looking at them now. Look at them. They're perfect.
+- [21:30.610] The plaster was falling off and it was terrible.
+- [21:33.320] It's a White House. It's got to look incredible.
+- [21:35.650] It's got to be in pristine.
+- [21:36.970] And the big thing is we're building a ballroom in the back,
+- [21:39.320] which will be,
+- [21:40.600] I think, the most beautiful ballroom anywhere in the world.
+- [21:43.510] You'll never see anything like it.
+- [21:44.800] And it'll also be very safe.
+- [21:47.020] It's going to be a very safe ballroom.
+- [21:49.230] It's got glass this thick. It's amazing.
+- [21:51.440] The glass is this thick, like six inches thick
+- [21:54.170] and you look through it
+- [21:55.670] and you can see as perfectly as though it weren't there.
+- [21:58.470] Now, how'd they do that?
+- [21:59.970] I don't know, but it's at the highest level of safety
+- [22:03.880] and you won't have a situation like you
+- [22:05.750] had two weeks ago on Saturday night.
+- [22:08.940] We gathered here to begin police week, very important.
+- [22:12.200] My friends, I won about 98% of the police in this country
+- [22:17.300] and we're trying to figure out who were the other 2%,
+- [22:19.960] because nobody can figure that one out.
+- [22:21.570] Figure that.
+- [22:22.960] And we pay tribute to the heroes who keep America safe
+- [22:26.510] and they are heroes indeed. This week especially,
+- [22:29.670] our thoughts turned to the office
+- [22:31.340] who gave their lives and the line of duty
+- [22:33.990] to all of the incredible police officers, sheriffs, sheriffs,
+- [22:37.420] deputies, law enforcement officers, all law enforcement.
+- [22:42.090] We want to thank you.
+- [22:43.360] I thank you from the bottom of my heart.
+- [22:45.140] I respect nobody more than I respect you.
+- [22:48.240] Without you, we have bedlam.
+- [22:50.360] Without you, we have, without you, we have Somalia.
+- [22:54.280] Okay? A fine place where we have a Congresswoman
+- [22:57.730] who brilliantly came over to the country by marrying her brother.
+- [23:03.390] That was the first law she broke.
+- [23:04.720] That was the least of them.
+- [23:06.580] And she comes from a country where they have nothing
+- [23:09.910] but crime, bedlam, filth, a horrible place.
+- [23:14.090] They say it may be the worst place.
+- [23:16.250] Comes to our country and then she tells us
+- [23:18.180] how to run the United States of America.
+- [23:21.000] It's an amazing thing, Ilhan Omar.
+- [23:24.440] It's an amazing thing how they can get away with it
+- [23:27.100] and the people don't want that to happen,
+- [23:29.970] and hopefully you'll figure it out,
+- [23:33.050] but a very terrible thing.
+- [23:34.270] I can't stand it.
+- [23:35.510] She says, "The Constitution gives me certain rights."
+- [23:38.660] Go back to your own country, talk about a constitution.
+- [23:41.230] They don't have, they don't have a constitution. They never will.
+- [23:45.460] That's why upon taking office I signed an executive order
+- [23:48.510] directing the Attorney General who is doing a great job,
+- [23:52.110] by the way, McGee. You're doing a great job, Todd.
+- [23:58.230] He's been good that anyone convicted of killing
+- [24:01.810] a police officer should face the death penalty, 100%.
+- [24:08.290] That's an easy one.
+- [24:10.350] From day one, my administration has made public safety
+- [24:13.610] and the support of our law enforcement
+- [24:15.810] our absolute highest priority.
+- [24:18.310] Last year the murder rate saw its single largest decline
+- [24:23.130] in recorded history to the lowest level in over 125 years.
+- [24:27.890] Before where my father was born, my father, I had a great father.
+- [24:31.650] Before my father was born, 125 years ago,
+- [24:35.160] 1900, the year 1900, Janine, pretty good, right?
+- [24:38.590] Probably because they don't want to mess around with you.
+- [24:41.390] You haven't been there quite that long.
+- [24:43.610] I deployed our National Guard and federal law enforcement
+- [24:46.840] to restore law and order to our most dangerous cities,
+- [24:50.220] including, as I said, right here in Washington, D.C.
+- [24:53.980] And as we prepare for America's 250th anniversary celebration,
+- [24:59.000] we're planning a large public safety surge here in Washington.
+- [25:02.710] We're going to have it nice and safe.
+- [25:04.630] And we're going to also, if requested,
+- [25:06.580] help other cities like Los Angeles, New York.
+- [25:10.090] They're fools if they don't ask for help, absolute fools.
+- [25:13.910] Since I took office, our administration has made
+- [25:16.340] nearly 200,000 criminal arrests nationwide,
+- [25:19.550] a record, and we're getting them off the streets
+- [25:22.120] and putting them in jail, or, in many cases,
+- [25:24.830] sending them back to their lovely countries
+- [25:26.980] where they came from.
+- [25:28.470] And sometimes their country will say,
+- [25:30.130] "We don't want them. We're not taking them."
+- [25:31.560] I'll say, "That's okay."
+- [25:32.770] Slap about a 25% tariff on their country,
+- [25:35.210] and they call back,
+- [25:36.550] "We would love to have them back immediately."
+- [25:39.410] In addition, the Department of Homeland Security
+- [25:42.060] has removed nearly 615,000 illegal alien criminals
+- [25:46.640] from our country for the past 12 months in a row.
+- [25:50.050] Think of that.
+- [25:51.350] Zero illegal aliens have been admitted to the United States
+- [25:54.770] through our southern border and that's a, think of that.
+- [26:01.050] Think of that. Zero.
+- [26:03.650] And you know, the people that make those charts are inclined
+- [26:07.910] toward being a Democrat or a new name
+- [26:11.600] I came up with yesterday was a Dumbocrat
+- [26:13.690] because I was talking about this guy,
+- [26:16.040] I think that could be a good one.
+- [26:17.460] And I've come up with some extraordinary names,
+- [26:20.410] but I was talking about Hakeem Jeffries.
+- [26:22.360] He's a low IQ person.
+- [26:24.360] And he was asking, he was talking about all these things.
+- [26:29.130] He was saying things that were so stupid,
+- [26:31.280] so basic and so stupid.
+- [26:33.480] He called our Supreme Court illegitimate.
+- [26:35.590] I don't agree with our Supreme Court all the time,
+- [26:37.570] I can tell you that,
+- [26:39.240] but you can't call it illegitimate.
+- [26:41.060] If I ever said that, you can imagine
+- [26:42.820] what would have happened, but there wasn't a big stir.
+- [26:46.200] But he was talking and I said, "You know, he's a dumb guy."
+- [26:48.260] And then I said, "He's a Dumbocrat."
+- [26:49.770] And I don't know if people are going to like that term or not.
+- [26:52.570] It maybe catches on and maybe it doesn't, but it's true.
+- [26:55.550] Their policies are insane
+- [26:57.790] and they would drive our country into ruin
+- [27:00.410] and we've got to do great in the midterms.
+- [27:02.670] And if we don't, they will do everything
+- [27:04.490] they can to destroy our country.
+- [27:06.030] There's something wrong with them.
+- [27:07.350] The flow of deadly fentanyl across our border is down,
+- [27:11.210] by the way, by over 60%, which is a record.
+- [27:14.160] Nobody ever thought it was even possible.
+- [27:16.470] And coming in by sea, it's down by 97%.
+- [27:21.470] And again, we're trying to find the 3%
+- [27:23.510] because we consider them to be among the bravest people
+- [27:26.020] anywhere in the world.
+- [27:27.620] Anybody willing to get into one of those boats
+- [27:29.600] after what they've witnessed,
+- [27:31.280] we would consider them to be among the bravest in the world.
+- [27:35.090] These gains have been the result and,
+- [27:36.920] and what a job our military and others
+- [27:39.540] are doing with respect, is that right, Paul,
+- [27:42.010] with respect to drugs coming in by sea.
+- [27:44.470] Meaning drugs coming in by water,
+- [27:46.670] by the ocean, by the sea.
+- [27:47.900] A lot of people don't know what I mean by sea.
+- [27:50.540] They think I'm talking about vision.
+- [27:51.790] I'm not, I'm talking about sea, like the sea.
+- [27:54.510] These gains have been the result of our administration
+- [27:57.100] bringing together law enforcement at every level
+- [27:59.990] through our new Homeland Security Task Force,
+- [28:02.360] including ICE, or, as I call it, NICE.
+- [28:06.580] CBP, Homeland Security, the US Marshals,
+- [28:10.810] the ATF, the FBI and state
+- [28:13.190] and local police are all incredible patriots,
+- [28:16.140] are incredible people.
+- [28:17.940] I also want to recognize one hero
+- [28:20.420] who exemplifies the amazing courage
+- [28:22.480] our police officers show each and every day,
+- [28:25.450] Assistant Chief Aaron Edwards from the NYPD,
+- [28:29.190] New York's finest.
+- [28:30.480] Where's Aaron? Where are you, Aaron?
+- [28:32.620] Great. Hello, Aaron. Good looking guy.
+- [28:38.510] I love the NYPD. Uh, great people.
+- [28:41.830] They've got to be respected by our elected officials.
+- [28:45.970] They have to be respected. Last March, he was on duty
+- [28:49.320] when there were clashing protestors
+- [28:52.150] outside of Gracie Mansion and two radical Islamic
+- [28:55.530] terrorists through explosive devices into the crowd,
+- [28:58.780] violently into the crowd.
+- [29:01.210] He reacted instantly, jumping over a metal barricade
+- [29:04.120] and sprinting to apprehend one of the men.
+- [29:07.880] As fate would have it, this 23-year-old veteran
+- [29:11.040] of the New York PD was inspired to join the force
+- [29:14.840] when he saw police running into Twin Towers on September 11th
+- [29:19.420] and had a profound impact, 2001.
+- [29:22.840] And now he's helped arrest terrorists
+- [29:25.300] from all over the world, some really bad ones.
+- [29:27.610] So I just want to say Assistant Chief Edwards,
+- [29:30.490] I want to thank you very much.
+- [29:31.810] I've heard about your record. Your record is very legendary.
+- [29:34.600] Congratulations. Thank you very much.
+- [29:39.290] That's great. So this Police Week,
+- [29:42.320] we pray for the families of our fallen officers,
+- [29:45.020] those great, great families.
+- [29:47.000] And we thank the heroes who wear the badge
+- [29:49.340] and risk their lives every day on behalf of our nation.
+- [29:52.930] You are restoring the foundation of law
+- [29:54.890] and order for our country and to our country.
+- [29:57.520] You're amazing people.
+- [29:58.870] You don't really understand, one thing,
+- [30:01.070] you don't know how much res- -- uh, respect.
+- [30:03.520] People respect you. They love you.
+- [30:06.890] You don't hear that, but they all feel it.
+- [30:09.770] I know it, and they tell me about it all the time
+- [30:12.510] as much as anybody else and more.
+- [30:15.360] So I just want to welcome you as great professionals,
+- [30:19.420] as unbelievable people and patriots
+- [30:21.900] to the beautiful White House,
+- [30:24.070] the new and improved White House.
+- [30:26.500] And it's an honor to be with you.
+- [30:28.560] And I said, "I'm very busy tonight.
+- [30:30.720] I don't have time for dinner."
+- [30:32.590] And they said, "Oh, it's the police we're honoring."
+- [30:35.880] "Oh, I'll have dinner."
+- [30:37.760] So I'm going to join you for dinner.
+- [30:39.180] Is that okay? I'll set aside,
+- [30:41.660] I'll set aside the Iranians for an evening.
+- [30:45.030] I'll put the Iranians aside
+- [30:46.380] and we're going to have a little dinner.
+- [30:47.820] So I want to thank you all,
+- [30:49.250] you're really specially just amazing people.
+- [30:51.780] Thank you very much for being here. Thank you.
+- [30:55.080] (applause)

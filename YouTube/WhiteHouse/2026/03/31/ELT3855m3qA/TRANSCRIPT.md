@@ -1,0 +1,979 @@
+<!-- source: https://www.youtube.com/watch?v=ELT3855m3qA -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: ELT3855m3qA -->
+<!-- date_published: 2026-03-31T22:19:57+00:00 -->
+<!-- date_accessed: 2026-06-02T02:35:45.237720+00:00 -->
+
+# Transcript: President Trump Signs an Executive Order, Mar. 31, 2026
+
+- [00:04.630] The President: Well, thank you very much.
+- [00:05.940] This was a meeting set up very proudly by us
+- [00:09.860] having to do with voter integrity
+- [00:11.590] and mail-in ballots
+- [00:13.090] and stopping the massive cheating that's gone on.
+- [00:17.670] And so, we're going to be signing an executive order.
+- [00:20.080] It's -- I believe it's foolproof
+- [00:22.800] and maybe it'll be tested, maybe it won't.
+- [00:25.120] I think it's very obvious what's said.
+- [00:27.440] And I'll ask Will Scharf to start off, attorney,
+- [00:31.010] a great talent, very brilliant young man.
+- [00:33.390] And if you could discuss it
+- [00:35.560] and then I'm going to ask Howard Lutnick
+- [00:37.190] to say a few words, and then I'm going to sign it
+- [00:39.160] and we'll take a couple of questions, OK?
+- [00:40.420] Thank you.
+- [00:41.670] Will Scharf: Mr. President, as you said,
+- [00:42.900] you have in front of you an executive order
+- [00:44.620] that deals with a number of issues
+- [00:46.170] relating to election integrity.
+- [00:48.400] As you've consistently identified,
+- [00:50.120] two of the biggest problems we have with election integrity
+- [00:52.650] in this country are, one, inaccurate voter rolls
+- [00:55.810] that allow ineligible people to vote in various federal
+- [00:59.180] and state elections all over the country.
+- [01:01.250] And secondarily, you've consistently identified
+- [01:03.950] that vote by mail in this country
+- [01:06.120] has become rife with fraud.
+- [01:07.740] People returning ballots who aren't eligible
+- [01:10.440] to return ballots, ballots being sent to people
+- [01:13.420] who aren't confirmed to be eligible voters.
+- [01:15.710] So, what this executive order is going to do is,
+- [01:17.850] one, we're going to take federal data.
+- [01:20.200] We're going to ensure that each state's election officials
+- [01:23.340] are provided with a comprehensive view
+- [01:25.730] of who the eligible voters in their jurisdiction actually are,
+- [01:29.570] allowing them to properly verify
+- [01:31.490] that everybody voting in their elections
+- [01:33.640] is legally able to vote.
+- [01:35.620] And then it orders the Postmaster General,
+- [01:37.920] the US Postal Service,
+- [01:39.890] to take bold new measures to verify that ballots,
+- [01:43.860] both being sent to people are being sent
+- [01:45.740] to people who are eligible to vote,
+- [01:47.490] and then the ballots being returned
+- [01:49.240] are being properly returned by eligible voters only.
+- [01:52.440] And we believe that, combined,
+- [01:54.140] the measures in this executive order
+- [01:56.030] will help secure elections in the future
+- [01:57.870] and ensure that the many abuses on our election system
+- [02:00.730] in the past aren't repeated in future elections.
+- [02:02.980] The President: Right. Howard?
+- [02:04.710] Howard Lutnick: So the fundamentals of our democracy
+- [02:07.050] are built on voter integrity, right?
+- [02:09.470] We all need it. You've said it time and time again.
+- [02:12.410] It's a total agreement amongst everybody, so here's the idea.
+- [02:17.160] The states, right, run these elections.
+- [02:19.960] They will -- if they want to use the US mail,
+- [02:23.240] US Postal Service, they're going to get a code,
+- [02:26.620] a barcode from the US Postal Service,
+- [02:29.050] and they're going to put that on the envelope
+- [02:31.380] and we will have one envelope per vote.
+- [02:34.230] None of this time where we have no idea,
+- [02:36.480] there's no observers to mail,
+- [02:38.090] there's no envelopes, there's no certainty.
+- [02:40.510] That's all going to go away.
+- [02:41.950] And what the president is doing today
+- [02:43.840] is he's going to make sure
+- [02:45.040] that mail-in ballots are safe, secure and accurate.
+- [02:50.300] And we'll have a clear distinction,
+- [02:52.650] if you voted by mail,
+- [02:54.230] you will have it on the envelope,
+- [02:55.880] obviously not on the ballot,
+- [02:57.560] but on the envelope, so we will know,
+- [02:59.320] a million mail-in ballots, there'll be a million envelopes,
+- [03:02.450] and you'll be able to know exactly, correctly,
+- [03:05.610] that citizens voted.
+- [03:07.820] The President: And this came up with some great legal minds.
+- [03:10.790] They looked at the various documents
+- [03:12.780] and everything that was going on,
+- [03:14.180] because the cheating on mail-in voting is --
+- [03:16.700] is legendary. It's horrible what's gone on
+- [03:19.900] and it's very clearly covered, very, very clearly.
+- [03:24.120] So I think this will help a lot with elections.
+- [03:27.890] We'd like to have voter ID.
+- [03:29.620] We'd like to have proof of citizenship,
+- [03:31.480] and that will be another subject for another time.
+- [03:33.930] We're working on that.
+- [03:35.220] You would think it would be easy.
+- [03:36.430] It's a 98 percent issue for Republicans.
+- [03:38.460] It's 86 percent -- a thing just came out, a poll,
+- [03:42.570] and it's 86 percent with Republicans and Democrats,
+- [03:45.960] not leaders, because the leaders of the Democrats cheat
+- [03:49.640] and the only people that don't want to do voter ID
+- [03:51.820] are people that cheat.
+- [03:53.050] There's no other reason for it.
+- [03:54.910] Proof of citizenship, they want to be able to cheat.
+- [03:56.970] There's no reason.
+- [03:58.230] They have all sorts of reasons, excuses, but it's all nonsense.
+- [04:01.140] They want to cheat.
+- [04:02.550] But the Democrats themselves are very high,
+- [04:04.960] it's a very positive, very -- very good thing.
+- [04:07.550] The Democrat voters, the Democrat leaders,
+- [04:10.690] guys like Schumer, who are corrupt,
+- [04:12.960] they want to use it for cheating
+- [04:14.430] because their policy is so bad with --
+- [04:16.810] think of their policy, open borders for everybody,
+- [04:19.040] where people pour into our country
+- [04:20.450] from countries all over the world.
+- [04:21.710] Think of that. You look at just take any issue, take anything --
+- [04:27.710] everything they have is so crazy.
+- [04:30.010] But the fact that they don't want to sign voter ID
+- [04:32.600] is another issue. It's a big issue.
+- [04:34.540] The fact that they don't have proof of citizenship,
+- [04:37.650] that they want transgender for everybody,
+- [04:40.880] that they want men in women's sports.
+- [04:44.060] So the only way, they assume,
+- [04:46.090] the only way they can win is to cheat.
+- [04:48.420] When you have men in women sports,
+- [04:50.000] it's fine, it's wonderful.
+- [04:51.200] By the way, I worked very hard with the Olympic Committee
+- [04:54.060] and got that terminated for the Olympics, very nice.
+- [04:57.280] Now girls won't have to get beat up in the boxing ring
+- [04:59.510] like they did last time.
+- [05:00.790] If you saw those fights, two people that transitioned
+- [05:05.020] beat the hell out of everyone, out of other people, women.
+- [05:09.070] It was not a pretty sight to watch.
+- [05:10.790] So I worked very hard with the Olympic Committee,
+- [05:14.120] and we were able to get that out.
+- [05:15.320] So the Olympics will not have men in women's sports.
+- [05:18.640] But these are the things that they vote on
+- [05:21.630] and that's why we're having a problem with them.
+- [05:23.650] They don't want ICE because they don't want people
+- [05:26.190] to be taken out of our country that are murderers,
+- [05:28.630] that are drug dealers
+- [05:30.100] and that are people from mental institutions,
+- [05:33.100] the criminally insane. These are not nice people.
+- [05:36.240] And it's a -- it's amazing.
+- [05:39.930] I just -- it's not even believable.
+- [05:41.790] If you go back -- if you go back 12, 13, 15, 20 years,
+- [05:48.020] that we even have to bring up a subject like there
+- [05:51.180] will be no trans mutilation.
+- [05:56.150] We don't want any transgender,
+- [05:58.310] gender mutilization of our children.
+- [06:00.200] We don't want to have people pouring into our country
+- [06:02.920] from other countries all over the world,
+- [06:04.640] where prisons are opened up --
+- [06:07.030] all over the world, they're opened up
+- [06:09.040] and they pour into our country, murderers, 11,888 murderers.
+- [06:16.020] Think of that.
+- [06:17.330] We got many of them out. And by the way, Washington,
+- [06:20.520] DC just set a new record for safety,
+- [06:22.950] and I'm sure you know that, because, Peter,
+- [06:25.510] when you walk down the street, you're not mugged lately.
+- [06:28.760] But it just -- it's a very safe city now.
+- [06:31.740] We took great pains to make it that way,
+- [06:34.770] but it actually happened pretty quickly.
+- [06:36.450] Within three months, it was good.
+- [06:37.830] Within four months, it was very good.
+- [06:39.420] Within five months, it was great.
+- [06:40.820] Now it's better than it ever was, and so Washington,
+- [06:43.840] DC is now considered a very, very safe city.
+- [06:46.940] We removed almost 4,000 people, just so you understand.
+- [06:50.360] You know, an interesting stat is that two percent
+- [06:54.450] of the people create more than 90 percent of the crime.
+- [06:59.950] And the good thing about that is when you get rid of two percent,
+- [07:02.820] it's not that many, you don't have a lot of crime.
+- [07:06.040] But Washington DC, we're very proud of.
+- [07:08.120] We're very proud of Memphis,
+- [07:09.370] Tennessee and Louisiana, New Orleans is unbelievable.
+- [07:14.480] They had the safest -- they just finished their Mardi Gras --
+- [07:17.010] the Mardi Gras.
+- [07:18.820] They had the safest Mardi Gras in 58 years.
+- [07:22.630] The governor just called me. Jeff Landry just called me.
+- [07:25.770] He said it's the safest Mardi Gras in 58 years
+- [07:28.960] because of us.
+- [07:30.600] And really, Chicago should call and say we'd like help.
+- [07:34.340] New York should call.
+- [07:35.620] They've had a lot of problems, that we want help.
+- [07:39.030] Los Angeles should call and probably will.
+- [07:41.200] I think they have to.
+- [07:42.450] Now, we're going to have to do something
+- [07:44.410] when it comes World Cup time,
+- [07:46.070] and we're going to have to force ourselves upon them,
+- [07:48.370] which we have the right to do,
+- [07:49.640] because we don't want to have any crime.
+- [07:51.190] We don't want to have any problems for the Olympics
+- [07:52.970] and the World Cup and even for 250.
+- [07:56.460] So with all of that,
+- [07:58.000] I'm very happy to be signing the voter integrity,
+- [08:01.710] and I think it's going to be really great.
+- [08:04.560] So if you don't mind, I will take some time
+- [08:07.050] and I'll make the signature absolutely perfect,
+- [08:09.960] so it looks very good. So far, so good.
+- [08:24.230] OK. So that's a big deal, very proud of it.
+- [08:29.620] And I think -- I don't know how it can be challenged.
+- [08:31.920] (Inaudible) probably challenge it.
+- [08:33.410] You may find a rogue judge, got a lot of rogue judges,
+- [08:37.370] very bad, bad people, very bad judges
+- [08:40.530] but that's the only way that can be changed.
+- [08:43.050] And hopefully, we'll win on appeal if it is, but I don't --
+- [08:46.160] I don't see how anybody can challenge it.
+- [08:48.810] I don't see how they can challenge it.
+- [08:50.930] And remember, it's about voter integrity.
+- [08:52.890] We want to have honest voting in our country.
+- [08:56.160] Because if you don't have honest voting, you can't have,
+- [08:59.570] really, a nation, if you want to know the truth.
+- [09:01.620] Howard, I'll give that to you.
+- [09:03.430] Do you have any questions? Please.
+- [09:05.540] The Press: Yes, Mr. President, as you know,
+- [09:08.360] there's issues right now with DHS
+- [09:10.380] not being funded and Coast Guard is one of them,
+- [09:12.460] which is very important,
+- [09:14.780] especially for things going on in the Strait of Hormuz
+- [09:16.850] and here in our own country.
+- [09:19.250] You have the power to transfer control
+- [09:21.750] from the Department of Homeland Security to the Navy.
+- [09:25.860] Are you considering doing that?
+- [09:27.480] The President: No, I have a lot of powers to do things,
+- [09:29.160] and we use the powers where appropriate.
+- [09:32.030] Sometimes you don't have to use those powers.
+- [09:34.360] They're a little severe,
+- [09:36.020] and then people accuse me of being a king.
+- [09:38.700] You see, the king, this is the new one.
+- [09:40.970] They tried -- they've been trying for a long time,
+- [09:44.270] including four years where I was out of office,
+- [09:46.680] watching how badly this country was run,
+- [09:49.530] but they've been trying for a long time.
+- [09:51.780] You know, what they really are doing
+- [09:53.140] is they want to have people coming into our country.
+- [09:55.320] They want to have open borders.
+- [09:56.660] They want to have criminals coming into our country.
+- [09:59.220] They want to have people unchecked,
+- [10:01.350] unvetted coming into our country,
+- [10:02.960] that you can look at and say, this is not good.
+- [10:06.170] And that's what happened.
+- [10:07.370] They allowed 25 million people into our country.
+- [10:09.590] Many of those people were criminals.
+- [10:11.240] Many of them were drug dealers and murderers
+- [10:14.640] and people that were let out of mental institutions,
+- [10:18.930] prison populations. In some countries -- the Congo,
+- [10:22.210] almost its entire prison population
+- [10:25.320] was allowed to come into the United States of America,
+- [10:29.210] the Congo.
+- [10:30.750] Many of the countries in South America,
+- [10:32.950] they emptied their prisons out into our country.
+- [10:35.110] This was under Biden.
+- [10:37.140] And nobody can tell me that's a good thing.
+- [10:38.900] And yet, they haven't changed their ways,
+- [10:40.980] because if they ever took power, they would open up the borders
+- [10:43.800] and they would let people pour in and destroy our country.
+- [10:46.570] So I have many powers, but I don't have to use them.
+- [10:49.260] I mean, only in severe cases. Yeah.
+- [10:51.400] The Press: Mr. President, thank you.
+- [10:53.080] If you were able to sign the executive order
+- [10:56.060] to pay the TSA agents, why not do the same for FEMA
+- [11:00.450] and other agencies within the Department of Homeland Security?
+- [11:02.940] The President: Well, FEMA is different because FEMA --
+- [11:04.350] I really believe that it's fine,
+- [11:06.670] but I think it's very inefficient.
+- [11:08.310] I think, you know, we have smart governors
+- [11:10.750] and one way to tell
+- [11:12.680] whether or not they're smart is how well they do.
+- [11:14.910] FEMA is a very expensive way of trying to put out a problem.
+- [11:20.920] But what I'd rather do is let the states do it
+- [11:23.500] and help them financially, but let the states do it.
+- [11:25.990] In other words, you'll have a hurricane in Florida
+- [11:29.670] and people will come from Alaska.
+- [11:31.180] They haven't been to Florida.
+- [11:32.990] By the time they get used to it, you know, problem can be solved.
+- [11:36.570] So I've never been a big fan of FEMA.
+- [11:38.180] I like to keep it local. I like to see governors
+- [11:40.980] and neighboring states help each other as opposed to FEMA.
+- [11:44.760] FEMA is very expensive and it really doesn't get the job done.
+- [11:48.820] You know, in North Carolina, they did a terrible job
+- [11:51.690] until I became elected a second time.
+- [11:54.650] And I went and, you know, we had that tremendous water flow.
+- [11:57.390] There was a water hurricane, the likes of which no --
+- [11:59.550] but it's in.
+- [12:00.760] Land areas that never had lakes all of a sudden had lakes
+- [12:03.710] that you couldn't even get to it.
+- [12:05.140] And actually, we were helped by Elon Musk with the communication
+- [12:08.870] with his great communication system that worked very well.
+- [12:12.690] We're very lucky, saved a lot of lives.
+- [12:14.870] But no, we've got to do things right
+- [12:18.930] and you don't do them right we shouldn't do them at all.
+- [12:21.530] Yeah, please.
+- [12:22.750] The Press: Thank you, President Trump.
+- [12:24.740] After you said today that the Iran war may be ending soon,
+- [12:27.430] the stock market closed much higher.
+- [12:29.360] Do you have thoughts on that?
+- [12:30.620] And also, a judge just ordered you
+- [12:32.420] to stop construction of the ballroom.
+- [12:34.210] Are you planning to stop?
+- [12:35.770] The President: Well, we'll appeal that,
+- [12:36.990] but it's not -- I don't know, it's basically --
+- [12:40.690] I mean, I wrote it -- part of his opinion.
+- [12:44.770] But basically, he's saying I need Congressional approval.
+- [12:48.130] And he's so wrong. This is being financed privately.
+- [12:52.870] It's a donation that's being given by companies,
+- [12:56.610] very rich companies, very rich people,
+- [12:59.330] so that 450 years they've wanted a ballroom here.
+- [13:03.290] We're going to have the finest ballroom,
+- [13:04.830] I believe, anywhere in the world.
+- [13:06.760] And he said, we need Congressional approval.
+- [13:09.270] Well, they don't get Congressional approval
+- [13:10.750] from the White House.
+- [13:12.020] When they do things they don't --
+- [13:13.290] especially when you don't -- we didn't ask for any tax money.
+- [13:15.700] We have no tax -- this is taxpayer free.
+- [13:18.780] We have no taxpayer putting up $0.10.
+- [13:22.010] And I see right here, I just wrote it out,
+- [13:25.230] he said we need Congressional approval.
+- [13:27.460] Well, we've built many things at the White House over the years,
+- [13:30.370] they don't get Congressional approval
+- [13:31.920] when they build in the White House,
+- [13:33.260] it's totally separate.
+- [13:34.870] And especially when it's a donation.
+- [13:37.270] I mean, the ballroom is a donation.
+- [13:39.530] It's gotten great reviews,
+- [13:40.770] people love it and presidents for 150 years
+- [13:43.950] have wanted this ballroom to be built.
+- [13:45.590] Because when we have President Xi or other presidents
+- [13:48.340] or prime ministers coming, we don't have a big room.
+- [13:51.050] We have the East Room, which is very small.
+- [13:54.110] And he said, we need Congressional approval.
+- [13:57.010] He also said, but this is positive for us,
+- [14:00.600] I'm allowed that --
+- [14:02.430] meaning we are allowed to continue building
+- [14:05.710] as necessary to, let's see, what is that?
+- [14:12.630] To cover the safety and security
+- [14:16.600] of the White House and its grounds.
+- [14:18.500] So, it says here very carefully, the safety and security
+- [14:22.380] have to be protected of the White House grounds.
+- [14:24.170] Well, that's what we're doing,
+- [14:25.410] because everything's bulletproof glass, etc., etc.,
+- [14:28.820] including the ballroom.
+- [14:31.380] And then it goes construction and all of the things necessary.
+- [14:36.600] It says personal safety of the president
+- [14:39.570] and his staff are a part of that.
+- [14:41.170] So, it talks about that we're allowed to continue building.
+- [14:45.000] In other words, he put an order on
+- [14:46.790] and even that he gave 14 days.
+- [14:48.310] But we don't need it because that's what we're doing.
+- [14:50.680] He's allowed to continue building as necessary
+- [14:54.640] and when it talks about the safety
+- [14:57.220] and security of the White House and its grounds.
+- [15:01.390] So, just so you know, I wrote some of the thing down.
+- [15:04.200] We have a drone proof roof,
+- [15:06.770] and it talks about the president and his staff.
+- [15:10.090] Well, we have a lot of bulletproof glass.
+- [15:12.140] The White House was built a long time ago.
+- [15:14.740] This has the highest level of --
+- [15:17.070] in fact, they call this graph -- this grass --
+- [15:22.600] the glass, it's bulletproof, and it's ballistic proof.
+- [15:28.960] It's very thick, it's like that, and it's going 45 feet high
+- [15:34.720] and every window is covered, every door is covered.
+- [15:37.420] The roof is drone proof.
+- [15:39.210] We have secure air handling systems --
+- [15:41.740] you know, bad things happen in the air if you have bad people.
+- [15:45.950] We have bio defense all over.
+- [15:49.320] We have secure telecommunications
+- [15:54.840] and communications all over.
+- [15:57.620] We have bomb shelters that we're building.
+- [16:01.480] We have a hospital and very major medical facilities
+- [16:07.630] that we're building.
+- [16:09.090] We have all of these things, so that's called --
+- [16:12.130] I'm allowed to continue building as necessary.
+- [16:15.140] So, think of that, for the safety of the president,
+- [16:19.000] so we have all these things.
+- [16:20.420] So, on that we're OK. Where he's totally wrong,
+- [16:25.560] and he made a statement that's fine,
+- [16:28.040] but where are we at? I'll give you an example.
+- [16:30.830] You have right here $300 million to $400 million,
+- [16:34.550] depending on finishes. If I use very expensive marble,
+- [16:38.810] if I use very expensive wall coatings, if I --
+- [16:41.820] I could bring it up to $400 million.
+- [16:44.210] Otherwise, we're right now ahead of schedule, we're under budget.
+- [16:48.080] But depending on finishes from $300 million to $400 million
+- [16:52.750] are being given by great people, people that you all know,
+- [16:57.210] rich people, rich companies, big companies.
+- [17:00.160] They wanted to see this built because every president
+- [17:02.920] literally for 150 years has needed a space like this.
+- [17:06.600] Many of you have gone to the tent
+- [17:08.260] when we have a president of a big country
+- [17:10.930] or somebody being honored of great distinction,
+- [17:14.530] and they sit in a tent. And if it rains, you get soaked
+- [17:17.040] because the grass gets wet here very fast.
+- [17:19.810] It's a very wet area. They used to call it a wetland,
+- [17:23.450] but I guess they don't do that for the White House
+- [17:25.090] but it's essentially a wetland.
+- [17:27.080] And when it rains, you're in trouble.
+- [17:28.920] The water can go up to 3 to 4 inches over their shoes.
+- [17:32.430] That's not a good feeling for prince what --
+- [17:34.940] who was Prince Charles, who will be here next couple of weeks
+- [17:40.490] is King Charles, who's a great guy.
+- [17:42.200] We don't want him to sit in a pool of water.
+- [17:46.440] And they've been wanting this for a hundred -- think of it,
+- [17:48.530] 150 years and we're building it, and it's covered perfectly.
+- [17:52.710] What's not covered perfectly
+- [17:54.170] is the fact that the judge said we need Congressional approval.
+- [17:58.500] Many things have been built in the White House
+- [18:00.200] that haven't gotten Congressional approval,
+- [18:02.590] especially when the money is being
+- [18:04.290] not put up by the taxpayer,
+- [18:05.620] the taxpayers are not putting up a dime.
+- [18:08.310] This building was necessary for many years by the fact
+- [18:11.270] that I've built many ballrooms,
+- [18:13.390] I've built many things, and I know how to build.
+- [18:15.330] I'm not building the Federal Reserve,
+- [18:16.720] where the guy spending $4 billion
+- [18:18.300] for a tiny little building --
+- [18:19.600] $4 billion for the Federal Reserve building.
+- [18:24.880] That contractor is going to be one of the richest men
+- [18:27.020] anywhere in the world
+- [18:28.260] after he finishes the Federal Reserve.
+- [18:30.240] The man is totally incompetent, Jerome "Too Late"
+- [18:33.730] Powell is totally incompetent,
+- [18:36.340] and he's got to get out of office pretty fast.
+- [18:38.960] He's doing a bad job, but he's also done a bad job
+- [18:41.270] in shepherding the construction of that building.
+- [18:43.540] Do you know they ripped down a part of that building
+- [18:45.260] and it was a nice --
+- [18:46.500] they say it's one of the nicest buildings in Washington.
+- [18:48.890] They ripped it down.
+- [18:51.610] So, we feel -- and we don't feel,
+- [18:53.680] we know that Congressional approval
+- [18:55.840] is not necessary to put up a ballroom.
+- [18:59.280] And many things have been built on the site;
+- [19:01.150] they've never gotten Congressional approval.
+- [19:04.590] And especially when the money is all put up,
+- [19:07.260] this is all donations
+- [19:09.210] by people that love our country, that love the White House
+- [19:11.910] and that feel it was very necessary.
+- [19:13.300] The Press: Mr. President,
+- [19:14.510] a couple of questions for you on Iran.
+- [19:16.200] But first, one that affects Americans here at home,
+- [19:18.360] gas prices. Today they hit $4.
+- [19:22.190] The President: We have $4, yeah, and we have a country
+- [19:23.840] that's not going to be
+- [19:25.080] throwing a nuclear weapon at us in six months.
+- [19:26.570] The Press: Of course,
+- [19:27.780] but Americans are feeling the effects
+- [19:29.140] in the interim of this operation.
+- [19:30.370] The President: And they're also feeling a lot safer.
+- [19:32.060] The Press: What is the plan to bring them back down?
+- [19:34.170] The President: All I have to do is leave Iran,
+- [19:36.350] and we'll be doing that very soon,
+- [19:37.760] and they'll come tumbling down. And stock prices were up today
+- [19:42.340] almost to a record because they know two things.
+- [19:47.470] Number one, we have a safe country.
+- [19:49.590] We had to take a little detour
+- [19:51.200] because we had a madman named Khamenei,
+- [19:53.410] who sadly is no longer with us.
+- [19:56.470] And we had regime change already.
+- [19:58.700] We've knocked out one regime,
+- [20:00.080] then we knocked out the second regime.
+- [20:01.710] Now we have a group of people that's very --
+- [20:04.060] that are very different. They're much more reasonable,
+- [20:06.130] I think much more -- much less radicalized.
+- [20:09.660] We have had regime change.
+- [20:11.550] We're dealing with people that are much more rational
+- [20:15.100] and it's amazing what we've done.
+- [20:18.170] We had to make a little detour,
+- [20:19.580] so when the stock market broke all records
+- [20:22.900] just a few weeks ago, when it hit 50,000 on the Dow,
+- [20:26.310] 7,000 on the S&P, I said to the American people,
+- [20:30.970] it's time that we make a little detour
+- [20:32.720] because we have a madman that wants a nuclear weapon.
+- [20:35.290] And if we didn't knock him out with a B-2 bomber,
+- [20:37.390] we would have a nuclear weapon right now.
+- [20:39.900] It would have been used before this, before today,
+- [20:44.330] and you may not be standing there asking that question, OK?
+- [20:47.630] So, I think we have a country that understands that.
+- [20:50.490] I see CNN did a poll
+- [20:51.990] and they talked about voters or MAGA voters,
+- [20:54.310] and my poll came out at 100 percent.
+- [20:57.250] Nobody covers that, Paul.
+- [20:58.810] They had another poll where I was at 92 percent approval?
+- [21:02.510] I think that the people understand it.
+- [21:05.410] We'll be leaving very soon.
+- [21:07.330] And if France or some other country
+- [21:09.950] wants to get oil or gas,
+- [21:12.860] they'll go up through the Strait and --
+- [21:16.590] the Hormuz Strait, they'll go right up there
+- [21:18.890] and they'll be able to fend for themselves.
+- [21:21.090] I think it will be very safe, actually,
+- [21:22.560] but we have nothing to do with that.
+- [21:24.280] What happens to the Strait
+- [21:25.700] we're not going to have anything to do with
+- [21:27.360] because these countries, China, China will go up
+- [21:30.740] and they'll fuel up their beautiful ships,
+- [21:33.240] and they'll leave and they'll take care of themselves.
+- [21:35.560] There's no reason for us to do it. We hit them hard.
+- [21:38.060] We got rid of a lot of the radicalized lunatics
+- [21:41.070] along the Strait.
+- [21:42.510] But if they want something -- but I would say that
+- [21:45.380] within two weeks maybe, two weeks, maybe three.
+- [21:49.410] We're hitting them very hard.
+- [21:50.750] Last night, we knocked out tremendous amounts of missile
+- [21:53.780] making facilities,
+- [21:55.280] as you probably read or wrote. We knocked out --
+- [21:57.560] The Press: We'll be gone in two or three weeks,
+- [21:58.860] is that what you mean? The President: Excuse me?
+- [22:00.080] The Press: Pardon me for interrupting. Will be --
+- [22:01.470] the US will be gone or done with the war in two weeks?
+- [22:04.100] The President: I think two or three weeks.
+- [22:05.360] Yeah. We leave.
+- [22:06.600] Because there's no reason for us to do this.
+- [22:08.410] Look, problem with the strait, a guy can take a mine,
+- [22:11.610] drop it in the water and say, oh, it's unsafe.
+- [22:14.890] It's not like you're taking out an army
+- [22:16.760] or you're taking out a country, or you -- they can drop it.
+- [22:19.650] Or you can take a machine gun from the shore
+- [22:21.280] and shoot a few bullets at a ship,
+- [22:23.580] or maybe an over-the-shoulder missile, small missiles.
+- [22:29.450] That's not for us. That'll be for France.
+- [22:32.900] That'll be for whoever's using the strait.
+- [22:35.270] But I think when we leave, probably that's all cleared up.
+- [22:37.880] Today, I heard tremendous numbers of ships
+- [22:39.910] were sailing through.
+- [22:41.470] Uh, we're negotiating with them right now.
+- [22:44.110] Uh, they've been -- again, we have had regime change.
+- [22:46.680] Now, regime change was not one of the things I had as a goal.
+- [22:50.260] I had one goal, they will have no nuclear weapon,
+- [22:53.530] and that goal has been attained.
+- [22:55.210] They will not have nuclear weapons,
+- [22:57.980] but we're finishing the job.
+- [22:59.860] And I think within maybe two weeks,
+- [23:02.330] maybe a couple of days longer to do the job
+- [23:05.620] but we want to knock out every single thing they have.
+- [23:08.210] Now, it's possible that we'll make a deal before that
+- [23:11.330] because we'll hit bridges and we've hit some.
+- [23:13.720] We'll hit some bridges,
+- [23:15.010] got a couple of nice bridges in mind.
+- [23:17.540] Uh, but if they come to the table, that'll be good.
+- [23:20.860] But it doesn't matter whether they come or not.
+- [23:23.160] We've set them back. It'll take 15 to 20 years
+- [23:26.750] for them to rebuild what we've done to them.
+- [23:29.160] They have no navy. They have no military.
+- [23:32.050] They have no air force. They have no telecommunications
+- [23:34.880] they have no anti-aircraft systems. They have no leaders.
+- [23:38.080] You know, their leaders are all gone.
+- [23:39.640] That's why we have regime change.
+- [23:41.030] We have nice -- new leaders. Peter.
+- [23:42.590] The Press: Thank you, President Trump.
+- [23:43.860] You talked about how the ballroom needs
+- [23:45.620] to have a drone-proof roof.
+- [23:47.600] The President: Right, right.
+- [23:48.990] The Press: There have been drone swarms
+- [23:51.050] flying over sensitive military installations in the US
+- [23:53.380] over the last couple of weeks.
+- [23:54.700] The President: Yeah.
+- [23:55.910] The Press: The reports are they don't look commercial
+- [23:57.740] and they can't be jammed.
+- [23:59.560] Is this another country's military?
+- [24:02.010] The President: I don't think so. We have a great system of --
+- [24:05.270] do you notice that over the last four or five days,
+- [24:07.120] you haven't seen very many drone hits, right?
+- [24:09.190] We have some unbelievable anti-drone weaponry
+- [24:11.700] that's incredible.
+- [24:13.480] But you want to have, like for instance, the ballroom,
+- [24:15.350] we have a very powerful steel, very steel roof
+- [24:18.860] with other things in it and you want to have --
+- [24:21.720] if you're building a building for security,
+- [24:23.710] like just like judge's opinion,
+- [24:25.510] you have to have security for the president and his staff.
+- [24:28.260] Uh, they have -- you need heavy, strong ceilings.
+- [24:33.010] You need seriously thick, bulletproof ballistic glass,
+- [24:38.350] and we have that. Uh, other buildings don't.
+- [24:41.470] You know, modern -- fairly modern buildings
+- [24:43.710] don't have that they have roofs that are weak
+- [24:45.440] and they have regular glass windows.
+- [24:47.710] The Press: There was this incident down
+- [24:49.070] at Barksdale, though,
+- [24:50.320] where apparently a whole swarm of drones
+- [24:52.670] for a couple hours was over the flight line.
+- [24:54.750] There's a lot of really important planes down there.
+- [24:56.650] The President: Yeah.
+- [24:57.920] The Press: How concerned are you that this is something --
+- [24:59.850] some other country just scoping out
+- [25:01.150] (Inaudible)
+- [25:02.350] The President: Yeah, I know about it.
+- [25:03.630] They've -- they've checked that out
+- [25:04.860] and they've gotten to the bottom of it.
+- [25:08.030] You know, you have a lot of people now
+- [25:11.180] that fly these things all over the place
+- [25:13.100] and we're coming down very hard on them,
+- [25:15.810] but we're able to take them out.
+- [25:17.310] Militarily, we're able to take them out very easily.
+- [25:20.080] And the new thing is lasers.
+- [25:21.430] You know, the lasers are becoming very, very effective.
+- [25:24.650] You hit a drone and it melts in air.
+- [25:26.810] It's a beautiful thing to see.
+- [25:28.760] If it's coming at you, having a laser is a very nice thing.
+- [25:32.100] But we have -- uh, there are methods
+- [25:34.910] of defending against drones.
+- [25:36.320] I mean, the advantage from the standpoint of defense
+- [25:38.600] is they don't go very fast, relative to a F-22,
+- [25:43.350] that plane right over there.
+- [25:45.450] They go very slow.
+- [25:47.010] They can be also shot out of the air by,
+- [25:49.010] you know, high-quality aircraft,
+- [25:50.420] which we have more than anybody ever had.
+- [25:52.960] The Press: And just (Inaudible)
+- [25:54.520] there was a viral video this week,
+- [25:56.220] I don't know if you saw it, of Army helicopters
+- [25:57.870] hovering near Kid Rock's house in Nashville.
+- [25:59.360] Did you see that video?
+- [26:00.630] The President: I didn't see it, no,
+- [26:01.860] but I'm sure they had a good time.
+- [26:03.130] The Press: Well, so the army just said
+- [26:04.340] the crews of these helicopters
+- [26:05.700] have been suspended. What do you think of that?
+- [26:07.840] The President: Well, it depends. Are they --
+- [26:09.800] well, they probably shouldn't have been doing it, yes.
+- [26:11.660] You're not supposed to be playing games, right?
+- [26:13.470] But I'd take a look at it.
+- [26:15.850] They like Kid Rock. I like Kid Rock.
+- [26:17.630] Maybe they were trying to defend him, I don't know.
+- [26:20.230] The Press: Does Iran have to make a deal --
+- [26:21.590] does Iran have to make a deal for the US
+- [26:23.960] to end its operation in Iran?
+- [26:25.240] The President: No, no.
+- [26:26.570] Iran doesn't have to make a deal.
+- [26:28.160] Iran doesn't have to make a deal, no.
+- [26:30.310] Yeah, I've spoken to a lot of people.
+- [26:32.390] It's a -- it's a new regime. They are much more accessible.
+- [26:36.870] They are right.
+- [26:38.130] You know, they said, we have a present for you,
+- [26:40.190] Mr. President, out of respect. And they said -- wait a minute.
+- [26:43.520] Do you want me to answer the question?
+- [26:44.920] You're a fresh person.
+- [26:47.190] You know, we've had a lot of problems with you, haven't we?
+- [26:50.450] Uh, no, they don't. You asked me a question.
+- [26:52.470] No, they don't have to make a deal with me.
+- [26:54.900] When we feel that they are, for a long period of time,
+- [26:59.310] put into the stone ages,
+- [27:01.280] and they won't be able to come up with a nuclear weapon,
+- [27:05.580] then we'll leave.
+- [27:06.830] Whether we have a deal or not, it's irrelevant.
+- [27:09.220] Now, it's possible that we'll have a deal
+- [27:11.650] because they want to make a deal.
+- [27:13.220] They want to make a deal more than I want to make a deal.
+- [27:15.840] But in a fairly short period of time, we'll be finished.
+- [27:19.110] They will not be able to do a nuclear weapon for years.
+- [27:22.690] And when they are ready, maybe in a long time from now,
+- [27:26.990] able to do a nuclear weapon,
+- [27:29.350] you'll have a president that will be like me
+- [27:31.740] and that he will go there
+- [27:33.130] and he'll knock the hell out of them again.
+- [27:35.100] Because they cannot have a nuclear weapon.
+- [27:37.060] They are very radicalized people.
+- [27:40.180] They're very sick leaderships. And I will say, though,
+- [27:42.930] that the leadership we're dealing with now,
+- [27:44.980] the new regime, because we have a new regime,
+- [27:47.720] and the new regime is much better than the past.
+- [27:50.750] Yeah.
+- [27:51.990] The Press: Mr. President,
+- [27:53.260] the Iranian government threatened
+- [27:54.970] a bunch of US companies today in the region,
+- [27:57.420] including Google, Apple. Is the --
+- [27:59.860] The President: With what?
+- [28:01.140] What did they threaten them with, BB guns, or what?
+- [28:03.580] They don't have much left to threaten.
+- [28:05.570] The Press: My question for you is, are you --
+- [28:06.800] is the US -- The President: I don't know.
+- [28:08.030] What are they -- you made a statement.
+- [28:09.620] What did they threaten them with?
+- [28:11.010] I don't know. Go ahead, tell me, how did they threaten them?
+- [28:14.410] The Press: All I know is that they threatened them, sir.
+- [28:16.140] The President: What does that mean?
+- [28:18.110] They said something nasty?
+- [28:20.320] The Press: Is the government in touch with these companies?
+- [28:22.350] Are you helping to backstop them?
+- [28:23.860] The President: You don't even know what the threat was.
+- [28:25.470] What was the threat? I haven't heard it.
+- [28:27.450] What was the threat?
+- [28:28.740] Did they say they're going to blow them up,
+- [28:30.090] they're going to hit them -- they're not --
+- [28:31.350] you know what they're not going to do,
+- [28:32.790] they're not going to hit them with a nuclear weapon.
+- [28:35.080] The Press: Is it something you're concerned about, sir?
+- [28:36.770] The President: No.
+- [28:37.980] The Press: Iran's IRGC issues a warning
+- [28:39.450] that they will target 18 US technology companies
+- [28:41.940] if the US continues targeted assassinations
+- [28:44.180] of Iranian leaders beginning on April 1st.
+- [28:46.720] Those companies included NVIDIA, Apple, Microsoft.
+- [28:49.220] The President: Most of those people are dead already.
+- [28:50.840] Yeah, Peter.
+- [28:52.080] The Press: I got one. Your son Eric posted a photo
+- [28:54.740] of what will be the Trump Presidential Library.
+- [28:56.450] The President: Yeah.
+- [28:57.730] The Press: It's a huge skyscraper.
+- [28:59.420] Is that -- is that all a library?
+- [29:01.060] What else is going in there?
+- [29:02.340] The President: Well, it's a library.
+- [29:03.560] It's a museum or a library. It's a presidential,
+- [29:05.690] but I wouldn't start it till I'm out of office.
+- [29:09.290] I don't believe in building libraries or museums.
+- [29:11.490] It's really like the Barack Hussein Obama
+- [29:14.320] one in Chicago, not a good location,
+- [29:17.390] and it's a very unattractive building that's seriously late,
+- [29:20.870] and seriously over budget.
+- [29:24.320] I think you're going to see a great one here
+- [29:26.050] and it'll go up on time, on budget,
+- [29:29.280] best location, in Miami.
+- [29:30.720] Best -- they say it's the best block in Miami
+- [29:32.130] and the state worked with us.
+- [29:33.430] The Press: Will people live there?
+- [29:34.660] Will people live in the floors --
+- [29:35.940] The President: No, it's going to be most likely a hotel,
+- [29:37.770] you know, this concept.
+- [29:38.990] Could be office, but it's most likely going to be a hotel
+- [29:41.360] with a beautiful building underneath
+- [29:43.890] and a 747 Air Force One in the lobby,
+- [29:48.240] which is going to be a trick.
+- [29:49.700] The Press: And the Supreme Court tomorrow
+- [29:51.240] is going to hear arguments about your executive order
+- [29:54.180] trying to get rid of birthright citizenship.
+- [29:56.920] The President: And I'm going.
+- [29:58.240] The Press: You're going to go to the Supreme Court tomorrow?
+- [29:59.720] The President: I think so. I do.
+- [30:00.960] The Press: And just sit there and listen?
+- [30:02.200] The President: Because I have listened to this argument
+- [30:03.840] for so long
+- [30:05.070] and this is not about Chinese billionaires
+- [30:08.070] who are billionaires from other countries
+- [30:10.430] who all of a sudden have 75 children or 59 children,
+- [30:13.840] in one case, or 10 children, becoming American citizens.
+- [30:18.490] This was about slaves. And if you take a look,
+- [30:21.540] slaves, we're talking about slaves from the Civil War.
+- [30:25.300] And if you take a look at when it was filed,
+- [30:28.580] all of this legislation, all of this,
+- [30:30.840] everything having to do with birthright citizenship,
+- [30:33.850] it was at the end of the Civil War.
+- [30:36.100] The reason was it had to do with the babies of slaves
+- [30:40.690] and the protection of the babies of slaves.
+- [30:43.500] It didn't have to do with the protection
+- [30:45.680] of multi-millionaires and billionaires
+- [30:48.770] wanting to have their children get an American citizenship it
+- [30:52.740] is the craziest thing I've ever seen.
+- [30:54.560] It's been so badly handled by legal people over the years.
+- [30:59.130] If you look at the original birthright citizenship papers,
+- [31:04.390] they all happened right after the Civil War
+- [31:07.010] the reason was it had to do with the babies of slaves.
+- [31:11.140] And hopefully, it's going to say --
+- [31:12.590] because our country is being scammed.
+- [31:15.720] We're getting all of these people,
+- [31:17.500] they're selling the rights to them.
+- [31:19.050] People are making a living --
+- [31:20.330] a big living, getting hundreds of thousands
+- [31:23.080] and even millions of dollars from bringing people in
+- [31:27.110] and saying, congratulations, your whole family
+- [31:29.560] is going to be a citizen of the United States of America.
+- [31:33.440] That's not what it was for.
+- [31:34.690] It wasn't for billionaires bringing people in or family in.
+- [31:38.310] It was for the children of slaves.
+- [31:42.740] And what you really have to do,
+- [31:45.070] and I don't think the lawyers talk about it as much,
+- [31:47.980] look at when the Civil War ended and look at the date of
+- [31:51.660] when this was enacted. OK.
+- [31:54.380] The Press: Have you ever been in the Supreme Court before?
+- [31:56.060] Is this going to be the first time going to the Supreme Court?
+- [31:58.030] The President: No. I went once before, the opening --
+- [31:59.610] The Supreme Court in the last administration.
+- [32:02.310] The Press: And which justices
+- [32:03.700] will you be listening for most closely?
+- [32:05.760] The President: I love a few of them,
+- [32:08.590] I don't like some others.
+- [32:10.710] And you know, you say what you want,
+- [32:13.250] but you can have the ones that were appointed
+- [32:15.120] by Barack Hussein Obama and Biden.
+- [32:18.570] I don't care how good your case is,
+- [32:20.380] you can have the greatest case ever,
+- [32:22.760] they're going to rule against you, they always do
+- [32:26.070] and it's not supposed to be that way.
+- [32:28.510] Now, the Republicans tend to be very different,
+- [32:32.430] they want to show how honorable they are.
+- [32:34.880] So, a man can appoint them, and they can rule against him.
+- [32:37.510] They're so proud of it, we're so proud we ruled against
+- [32:40.160] Trump, we're so proud, we're above it.
+- [32:44.320] There are those that say, that's wonderful;
+- [32:46.640] and there are those that say, they're so stupid.
+- [32:50.910] But the Democrats never fail at one thing.
+- [32:55.920] When Barack Hussein Obama or when Biden appoints somebody,
+- [32:59.590] they go along that line.
+- [33:01.420] You can have the greatest case in history and almost --
+- [33:06.130] I guess I have to say almost, maybe I don't have to say it --
+- [33:10.460] almost without fail,
+- [33:12.560] those people, four of them, sometimes five of them,
+- [33:18.990] but four of them will vote against you,
+- [33:20.730] you don't have a chance.
+- [33:21.960] You don't have a chance.
+- [33:23.460] And that's not what the court system is.
+- [33:25.770] Now, the Republican appointees tend to go --
+- [33:28.670] and this has been long before me,
+- [33:30.080] this has been for many years.
+- [33:32.910] Some people would call it stupidity;
+- [33:34.740] some people would call it disloyal.
+- [33:36.200] Some people would say they're right in doing it.
+- [33:38.650] And I don't mind being right,
+- [33:39.970] but the other side almost never does it -- almost.
+- [33:43.260] I think you could find maybe a couple of instances,
+- [33:45.260] almost never does.
+- [33:47.330] When a Democrat appoints a judge --
+- [33:49.180] and I'm talking about judges, not just justices --
+- [33:52.680] you go before some of these Democrat judges in Washington,
+- [33:57.420] DC, you don't have a chance.
+- [34:01.210] That's why I gave pardons to hundreds of people
+- [34:03.700] that were so badly treated having to do with J6.
+- [34:08.820] Yeah. Oh, do you have a question?
+- [34:13.890] Let's go, I didn't see you over there.
+- [34:15.750] You've been so nice.
+- [34:16.960] Here we go, now she's going to hit me with a bad one.
+- [34:19.630] Go ahead.
+- [34:20.860] The Press: On the SAVE America Act, Mr. President,
+- [34:22.390] do you still think it's going to pass?
+- [34:23.640] Were you signing --
+- [34:24.890] The President: I don't know, it's the craziest thing.
+- [34:26.210] The Democrats are totally against it.
+- [34:28.550] Again, they're unified.
+- [34:30.210] I think maybe we'd have Fetterman,
+- [34:32.380] who I have a lot of respect for.
+- [34:34.350] But the Democrats are unified against it,
+- [34:37.430] and you need Democrat votes,
+- [34:39.930] unless you do something smart called the filibuster,
+- [34:42.290] terminate the filibuster, which they should do,
+- [34:44.440] Republicans should do that.
+- [34:45.760] But there are a couple of Republicans
+- [34:47.220] that maybe they're not so smart
+- [34:50.190] because the Democrats will do it in the first day in office,
+- [34:52.620] maybe the first hour.
+- [34:53.850] It's a question, will it be the first hour or the first day.
+- [34:57.020] So, who can believe that a person --
+- [35:03.190] you can't even get it to the floor --
+- [35:04.660] that a person wouldn't vote for --
+- [35:07.250] think of it, for citizenship,
+- [35:09.340] proof of citizenship for voter identification.
+- [35:14.850] And we also added one, we added mail-in ballots.
+- [35:17.450] Mail-in ballots with exceptions for the military,
+- [35:20.460] for people that are sick,
+- [35:22.450] people that are traveling, the disabled.
+- [35:25.020] We have very generous exceptions,
+- [35:27.910] but who would believe that that would be possible
+- [35:29.960] not to get those things to vote for?
+- [35:31.460] And then we added Best of Trump, we added no men in women sports,
+- [35:36.720] different subject, but we added that,
+- [35:38.110] and we said no transgender mutilation of our children.
+- [35:42.320] These are all 90, 95, maybe 98 in some cases,
+- [35:48.930] maybe 99 in terms of those first two.
+- [35:53.580] If you talk about the first two, I think a 98,
+- [35:58.130] 99 percent voter identification, right?
+- [36:01.840] Wouldn't you think?
+- [36:03.070] Don't you think it's nice -- with picture?
+- [36:05.510] Wouldn't you think it's nice?
+- [36:07.630] When the Democrats had their convention,
+- [36:09.390] I remember it so well,
+- [36:11.850] you had to have identification to get into the arena
+- [36:15.080] and they had a card
+- [36:16.370] that was bigger than most of their chests.
+- [36:19.210] And it had everything; it had their picture.
+- [36:21.360] And if you didn't have that card, they threw you away.
+- [36:26.050] In New York City recently, we had a big snowstorm.
+- [36:29.700] Mayor Mamdani, he called out for people to shovel snow.
+- [36:36.210] But you had to give identification with picture.
+- [36:40.630] If you didn't have --
+- [36:41.960] and it wasn't one identification,
+- [36:43.970] you had to have two.
+- [36:45.660] So, to shovel snow in New York City,
+- [36:48.070] you need identification, double with picture.
+- [36:51.350] But to vote, which is maybe our most cherished thing,
+- [36:54.680] you don't need --
+- [36:56.070] they don't want voter ID, the Democrats,
+- [36:58.930] because they want to cheat.
+- [37:00.500] The problem is we need their votes;
+- [37:02.080] in order to get it you need their votes.
+- [37:03.810] And look, they know their policy is so bad
+- [37:09.310] they know that if they gave those votes,
+- [37:11.010] they might never win another election.
+- [37:13.060] So, they're fighting like hell. They're actually fighting
+- [37:16.520] for their survival because their policy --
+- [37:20.320] the Republicans have great policy,
+- [37:22.990] smart policy, strong borders, low interest rates, low taxes.
+- [37:27.320] We just gave you the largest tax cut in history.
+- [37:30.280] All these great policies, you know,
+- [37:32.090] we want a strong military.
+- [37:33.410] Look at our military. We have the strongest military.
+- [37:35.470] Look what happened in Venezuela. It was so incredible.
+- [37:39.950] People said the greatest military maneuver
+- [37:41.810] they've ever seen.
+- [37:43.260] Look what's happening in Iran. We're just --
+- [37:45.990] I mean, we're totally unchecked, everything's been bombed out.
+- [37:50.460] They have no anti-aircraft protection;
+- [37:52.850] they have no nothing.
+- [37:55.100] They don't have anything.
+- [37:57.020] Look at our military; the Democrats don't want that.
+- [38:00.120] And when I read the fake New York Times,
+- [38:01.810] you take a look at it,
+- [38:03.280] it's like, oh, they're putting up a good fight.
+- [38:05.270] They're not putting up a fight.
+- [38:06.470] They're not even shooting at us, OK?
+- [38:08.870] We have planes -- planes are just ruling the sky.
+- [38:13.030] We have airplanes, those two,
+- [38:16.960] those two, we have airplanes, nice, right?
+- [38:19.480] Lincoln with a little modern touch.
+- [38:22.430] The great Benjamin Franklin with a little modern touch.
+- [38:25.760] But think of it, they are roaming the skies over Tehran,
+- [38:30.240] they're not even being shot at
+- [38:32.330] because their equipment's been totally decimated.
+- [38:35.720] They have nothing to shoot.
+- [38:37.850] We have -- they have no Navy; they have no anything.
+- [38:41.100] And just think about this, they have no Navy,
+- [38:44.150] they have no military, they have no nothing.
+- [38:47.550] They're losing, they admit they're losing,
+- [38:49.970] they're begging to make a deal.
+- [38:52.220] And if you read the fake New York
+- [38:53.530] Times, a corrupt newspaper, where I'm suing them
+- [38:56.540] and I think I should do very well.
+- [38:58.640] But you would almost think, who's winning?
+- [39:02.370] It's so fraudulent.
+- [39:04.150] But just to finish up with the New York
+- [39:06.660] Times, if you read The New York
+- [39:08.230] Times prior to my election victory,
+- [39:11.480] including the first one and the second one too,
+- [39:15.520] I won three times. I won three times convincingly.
+- [39:20.330] But let's go to the third victory.
+- [39:22.480] If you read the New York
+- [39:23.700] Times, you would say, oh, Trump's going to lose.
+- [39:26.940] But I won in a landslide. I won the popular vote,
+- [39:30.080] I won the Electoral College in a massive number, right?
+- [39:33.390] Massive. I won the counties, 86 percent of the counties,
+- [39:38.150] I won all of these different things.
+- [39:40.730] Winning the popular vote for a Republican
+- [39:42.710] is pretty amazing. But if you read the New York
+- [39:45.830] Times for months and months and months,
+- [39:48.710] you were hearing, oh, Trump, he's doing so badly.
+- [39:53.830] We have to straighten out our media.
+- [39:55.720] The reason their circulation is way down --
+- [39:58.060] the New York Times' circulation has gone way down. Washington
+- [40:02.340] Post is almost extinct. The papers that are being
+- [40:07.240] dishonest -- papers generally -- people don't believe the media.
+- [40:12.500] And to finish, I got 93 percent bad publicity,
+- [40:17.580] some people say 97, but between 93 and 97.
+- [40:21.400] A person that gets 97 percent of bad stories --
+- [40:25.460] maybe Karoline's doing a poor job, I don't know.
+- [40:27.600] She's my rep -- you're doing a terrible job.
+- [40:31.230] Should we keep her? I think we'll keep her.
+- [40:33.250] But I get 93 to 97 percent bad press, fake press, all fake.
+- [40:39.270] I won in a landslide.
+- [40:41.200] When you get 93 to 97, bad stories, bad press,
+- [40:46.800] and you win in a landslide, you know what that says?
+- [40:49.320] People don't believe the press.
+- [40:51.830] And when people don't believe the press,
+- [40:53.530] that's a very bad thing for our country.
+- [40:55.710] And when you look at, let's say, the New York Times
+- [40:57.690] or the Washington Post, the stories are so fake.
+- [41:01.390] Wall Street Journal too, a lot of bad stories.
+- [41:03.990] I don't know what happened to them, but they're bad.
+- [41:06.450] Their circulation went way down, Wall Street Journal.
+- [41:08.840] I don't know if you saw the numbers that came out yesterday.
+- [41:11.470] New York Times, way down;
+- [41:12.900] Wall Street Journal, way down; Washington
+- [41:15.130] Post, number one, way down --
+- [41:17.510] because people don't believe them anymore.
+- [41:20.040] And until they get -- it's not the paper, it's not the --
+- [41:22.820] it's that they have no credibility anymore,
+- [41:25.850] which is a very sad thing for our country.
+- [41:27.670] Thank you very much, everybody.

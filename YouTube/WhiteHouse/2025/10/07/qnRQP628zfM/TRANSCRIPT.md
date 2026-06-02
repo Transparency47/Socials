@@ -1,0 +1,768 @@
+<!-- source: https://www.youtube.com/watch?v=qnRQP628zfM -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: qnRQP628zfM -->
+<!-- date_published: 2025-10-07T16:43:02+00:00 -->
+<!-- date_accessed: 2026-06-02T02:43:51.789756+00:00 -->
+
+# Transcript: President Trump Participates in a Bilateral Meeting with the Prime Minister of Canada
+
+- [00:01.570] President Trump: Well, thank you very much everybody.
+- [00:03.000] It's an honor to have the Prime Minister of Canada,
+- [00:06.380] Mark Carney, who I have made very popular.
+- [00:09.630] He's an extremely popular prime minister
+- [00:12.790] and I'm very honored to do it because I like him.
+- [00:15.120] Right from the beginning I've liked him
+- [00:16.520] and we've had a good relationship.
+- [00:18.530] We have some natural conflict,
+- [00:20.190] but we will probably work that out.
+- [00:23.210] But we've had a very strong relationship.
+- [00:26.400] Your hosting of the various countries that showed up,
+- [00:29.810] that was a beautiful job you did and I appreciate it very much.
+- [00:32.960] We're going to be talking about trade,
+- [00:34.740] we're going to be talking about a lot of different things.
+- [00:36.600] We'll certainly be talking about Gaza.
+- [00:38.900] We're in very serious negotiations to,
+- [00:42.910] I guess you could say,
+- [00:44.300] depending on the way you count, 3,000 years,
+- [00:46.980] you could say 500 years, you could say --
+- [00:50.290] It's been raging for a long time
+- [00:52.910] and I think there's a possibility
+- [00:54.500] that we could have peace in the Middle East.
+- [00:56.110] It's something even beyond the Gaza situation.
+- [00:59.810] We want a release of the hostages immediately, et cetera.
+- [01:03.510] And so our team is over there now,
+- [01:06.610] another team just left and other countries,
+- [01:09.770] literally every country in the world has supported the plan.
+- [01:13.110] I don't think there's anybody that hasn't actually,
+- [01:16.050] not that I've seen,
+- [01:17.480] but there's a real chance that we could do something.
+- [01:20.550] So you may have some questions on that later.
+- [01:23.140] But in the meantime we'll spend some time
+- [01:24.780] and we'll make some deals and we'll do some things
+- [01:27.860] that are good for both of our countries.
+- [01:29.330] And Mark, it's an honor to have you.
+- [01:30.570] Thank you very much.
+- [01:31.780] Prime Minister Carney: Thank you very much, Mr. President,
+- [01:33.120] if I may, you kindly hosted me
+- [01:36.260] and some of my colleagues a few months ago
+- [01:37.880] and I said, at the time, you are a transformative president.
+- [01:42.650] And since then, the transformation in the economy,
+- [01:46.630] unprecedented commitments of NATO partners
+- [01:48.930] to defense spending,
+- [01:50.200] peace from India-Pakistan, through to Azerbaijan-
+- [01:52.940] Armenia, disabling Iran is a force of terror.
+- [01:57.060] And now, and I'm running out of time,
+- [01:58.580] but this is many respects, the most important.
+- [02:01.550] What you created-
+- [02:02.800] President Trump: The merger of Canada and the United States.
+- [02:04.140] Prime Minister Carney: No. That wasn't where I was going.
+- [02:08.360] No. But on this solemn day of commemoration
+- [02:13.250] of the horrific attacks of October 7th,
+- [02:17.150] for the first time in decades,
+- [02:19.900] hundreds of years, thousands of years,
+- [02:21.280] this prospect of peace that you've made possible,
+- [02:23.760] Canada stands foursquare behind those efforts
+- [02:26.760] and we'll do whatever we can to support that.
+- [02:28.450] President Trump: Very nice. Thank you, Mark, very much.
+- [02:30.200] Any questions?
+- [02:31.570] The Press: Mr. President, is there any --
+- [02:36.290] what would it take for you to draw or lower your tariffs
+- [02:39.810] on Canadian sectors including aluminum and steel?
+- [02:42.160] President Trump: Well, we're going to be talking about that
+- [02:43.600] with the Prime Minister
+- [02:45.220] and we'll be talking about tariffs,
+- [02:46.430] we'll be talking about a lot of that.
+- [02:47.700] But that's for a little bit later on.
+- [02:49.720] I want to just acknowledge our great ambassador.
+- [02:54.500] Is he doing a good job?
+- [02:55.730] Prime Minister Carney: He's doing a good job.
+- [02:56.930] President Trump: Otherwise I'll get him out of there so fast.
+- [02:59.280] No you have a (inaudible) --
+- [03:04.110] The Press: Is it the White House's position
+- [03:05.690] that furloughed workers should be paid for their back pay?
+- [03:10.530] President Trump: I would say it depends on
+- [03:11.840] who we're talking about. I can tell you this,
+- [03:13.920] the Democrats have put a lot of people
+- [03:16.170] in great risk and jeopardy,
+- [03:17.940] but it really depends on who you're talking about.
+- [03:19.950] But for the most part,
+- [03:21.180] we're going to take care of our people.
+- [03:22.890] There are some people that really don't deserve
+- [03:24.650] to be taken care of
+- [03:25.860] and we'll take care of them in a different way.
+- [03:27.850] Okay? Thank you.
+- [03:31.100] The Press: Mr. President, in your opinion,
+- [03:33.910] why has Canada and the United States
+- [03:35.540] failed to reach an agreement up until now?
+- [03:38.410] President Trump: Well, it's a complicated agreement.
+- [03:40.370] More complicated maybe than any other agreement we have on trade
+- [03:43.780] because we have natural conflict.
+- [03:46.890] We also have mutual love.
+- [03:48.440] We have great love for each other.
+- [03:50.610] I love Canada and the people of Canada,
+- [03:52.960] and Mark feels the same way about here.
+- [03:55.960] The problem we have is that they want a car company
+- [03:59.130] and I want a car company,
+- [04:00.390] meaning the US wants a car company,
+- [04:02.640] and they want steel and we want steel.
+- [04:06.310] So in other countries they're very far away
+- [04:10.390] and there's no problem, you can compete and you can do.
+- [04:13.890] We don't like to compete
+- [04:15.310] because we sort of hurt each other when we compete.
+- [04:17.960] And so we have a natural conflict.
+- [04:20.490] It's a natural business conflict. Nothing wrong with it.
+- [04:23.780] And I think we've come a long way over
+- [04:25.180] the last few months actually, in terms of that relationship.
+- [04:28.940] So when it comes to trade,
+- [04:31.720] the United States was always giving everything,
+- [04:34.730] they gave everything to Canada,
+- [04:37.290] they would let car companies leave here and go to Canada.
+- [04:41.570] But that hurts the United States.
+- [04:43.310] And other presidents didn't see that,
+- [04:45.660] they weren't business oriented,
+- [04:47.120] they might've been good politicians in some cases,
+- [04:49.870] not in all cases, they were bad at both.
+- [04:52.590] But it's a very natural conflict
+- [04:55.950] and it's something that we're working on. Yes.
+- [04:57.530] The Press: Mr. President,
+- [05:00.160] Canada has offered a lot of compromise this summer.
+- [05:03.240] Are you willing today to offer some compromise to Canada
+- [05:05.900] maybe on steel and aluminum?
+- [05:07.390] President Trump: Well, we've made compromise
+- [05:08.840] and we've made some compromise even on steel,
+- [05:12.370] but we have the same basic authority and the same basic --
+- [05:17.080] This could be also a little bit of a conflict
+- [05:19.070] with other countries all over the world on steel
+- [05:21.800] because we want to make our own steel.
+- [05:23.400] We don't want to bring steel in for the most part.
+- [05:25.390] But we will bring it in and we do bring it in,
+- [05:27.390] we continue to bring it in from Canada,
+- [05:29.700] but there is a tariff to pay.
+- [05:32.600] And I think that would be a normal thing to say.
+- [05:35.080] But we've come a long way.
+- [05:37.340] I think, Howard, we can truly say.
+- [05:38.930] Do you want to make a comment on that?
+- [05:40.750] Secretary Lutnick: Well, I think the opportunity
+- [05:42.110] to work together,
+- [05:43.520] but as you've said, there's conflict.
+- [05:46.340] Why do we make cars in Canada?
+- [05:48.840] You've called that out and you've addressed that.
+- [05:51.120] So there are places we should work together
+- [05:52.850] and there are places that we have natural conflict.
+- [05:54.990] President Trump: It's a tough situation
+- [05:56.190] because we want to make our cars here.
+- [05:58.420] At the same time, we want Canada to do well making cars.
+- [06:02.440] So we're working on formulas and I think we'll get there.
+- [06:07.940] The Press: (inaudible)
+- [06:12.170] Canadians are refusing to go to the U.S.,
+- [06:14.610] the numbers are down like 23 percent
+- [06:16.940] in the first seven months of the year.
+- [06:18.480] What do you say to Canadians
+- [06:19.700] that don't want to go to the U.S. now
+- [06:21.550] because of your 51st state talk, because of the trade war,
+- [06:24.450] the tariffs, and fear (inaudible) --
+- [06:25.680] President Trump: I understand that.
+- [06:26.930] Look, I understand that.
+- [06:28.170] And Americans don't want to buy cars that are made in Canada.
+- [06:31.320] I mean, we have the same conflict.
+- [06:33.310] So, it's something that will get worked out.
+- [06:38.560] There's still great love between the two countries,
+- [06:41.480] but American people want product here, they want to make it here.
+- [06:48.280] Detroit was emptied out and moved to Canada
+- [06:50.190] and moved to Mexico,
+- [06:51.470] moved to other places, not just Canada.
+- [06:54.410] And now they're all moving back. They're moving back.
+- [06:59.080] Right now, I was just telling Mark, we have 17 trillion,
+- [07:01.630] but it's really much higher,
+- [07:03.030] that was as of a couple of months ago.
+- [07:04.510] Prime Minister Carney: Yep. Yep.
+- [07:05.720] President Trump: We have over $17 trillion
+- [07:08.140] being invested now in the United States.
+- [07:09.920] As an example, Biden,
+- [07:12.730] he was the worst president we've ever had,
+- [07:14.540] but they had less than 1 trillion in four years.
+- [07:18.890] We have more than 17 trillion in eight months.
+- [07:23.210] Eight months.
+- [07:24.670] And I think that number is going to be 21, $22 trillion.
+- [07:28.460] There's never been anything like that
+- [07:29.770] in the history of the world for any country.
+- [07:31.510] Not even close.
+- [07:33.030] If you did 1 trillion in a year, that's pretty good.
+- [07:36.250] We're going to do over 20,
+- [07:38.850] and it's coming in with AI, it's coming in with auto plants.
+- [07:41.950] We're building auto plants, a lot of auto plants in the US.
+- [07:44.710] It's coming in for a lot of reasons.
+- [07:46.840] It's coming in because of the fact,
+- [07:48.810] I think the November 5th election was a big factor
+- [07:51.280] and I think the tariffs are a big factor.
+- [07:54.210] And again, we want Canada to do great,
+- [07:57.850] but there's a point at which we also want the same business.
+- [08:01.790] We're competing for the same business.
+- [08:03.680] That's the problem.
+- [08:04.980] That's why I keep mentioning one way to solve
+- [08:07.600] that problem is a very easy way,
+- [08:09.420] but we're competing for the same business.
+- [08:11.600] He wants to make cars, we want to make cars,
+- [08:13.840] and we're in competition.
+- [08:15.880] And the advantage we have is we have this massive market.
+- [08:19.060] So it's quite an advantage.
+- [08:21.950] The Press: (inaudible)
+- [08:28.530] Mr. President, can we talk about Portland for a second?
+- [08:30.870] Are you planning to invoke the Insurrection Act
+- [08:33.930] and that would be a very long-standing war of law
+- [08:38.070] that's been on the books?
+- [08:39.380] President Trump: Yeah.
+- [08:40.650] Well, it's been invoked before, as you know.
+- [08:43.420] If you look at Chicago, Chicago is a great city
+- [08:45.870] where there's a lot of crime
+- [08:47.530] and if the governor can't do the job, we'll do the job.
+- [08:50.050] It's all very simple.
+- [08:53.050] They probably had 50 murders in Chicago over the last five,
+- [08:59.010] six, seven months, many people were shot.
+- [09:01.830] And then, the governor gets up and he says,
+- [09:03.350] "Well, we can handle it."
+- [09:04.610] They can't handle it, they don't know what they're doing.
+- [09:06.880] The mayor is grossly incompetent,
+- [09:08.470] he's at a 4 percent approval rating in Chicago.
+- [09:12.000] He's at a 4 percent lowest approval rating,
+- [09:14.680] lower than even de Blasio had,
+- [09:16.350] which is hard to believe, in New York.
+- [09:18.500] I thought de Blasio would always maintain that record,
+- [09:20.930] but the Chicago guy is even lower.
+- [09:23.230] So I think that we want safe cities.
+- [09:28.440] If you look at D.C., you would, right now, Mark,
+- [09:31.010] you could go out, take your family out to dinner,
+- [09:33.580] you could walk right down the middle of the street,
+- [09:35.810] there is no crime in D.C.
+- [09:39.670] When I got here, this place was a raging hellhole,
+- [09:43.750] where people would come from Canada,
+- [09:45.360] people would come from other places,
+- [09:46.830] and end up getting shot. Nobody's being shot.
+- [09:51.110] The National Guard's been unbelievable,
+- [09:54.150] they are strong, tough guys.
+- [09:56.570] We won something at the Supreme Court,
+- [09:58.270] which is a big deal, merit.
+- [10:00.430] Everything now in this country is merit-based.
+- [10:02.720] I didn't think I'd ever see it again.
+- [10:04.970] And we have our soldiers are merit-based too,
+- [10:07.740] and they're central casting.
+- [10:08.940] And they walk through that town, and I'll tell you what,
+- [10:11.540] this place is safe, it's beautiful.
+- [10:13.740] Now, we're in Memphis and the same thing's happening,
+- [10:16.010] you're getting the reports, the bad guys that say,
+- [10:18.940] "We don't want anything to do with this."
+- [10:21.210] And we're removing many people.
+- [10:22.850] In D.C., we took out 1,700 career criminals
+- [10:30.110] and sent them back to the countries
+- [10:31.680] from which they came, mostly let out by Biden
+- [10:34.720] and his people that had an open border policy.
+- [10:38.000] And Canada, you suffered because of that too,
+- [10:40.970] because they'd come here and they'd go into Canada also.
+- [10:44.610] So we're like a buffer for that in terms of --
+- [10:48.640] Canada suffered greatly by Biden and the policy of open border,
+- [10:53.510] totally unchecked, totally unvetted,
+- [10:56.610] and these people were -- If you got 5 percent, 2 percent,
+- [10:59.720] now you were getting a lot of bad people.
+- [11:01.200] Prime Minister Carney: And now
+- [11:02.430] we're tightening the border, yep.
+- [11:03.730] President Trump: And we now have a closed border.
+- [11:05.650] Yep, you've done well.
+- [11:06.870] We have a closed border, and it's a really closed border.
+- [11:10.760] In fact, for four months,
+- [11:12.480] I don't even know if this is possible,
+- [11:13.900] but the figures were released,
+- [11:16.630] zero people were able to come into the United States
+- [11:19.700] from the southern border, zero.
+- [11:22.440] And as you know, we've taken a very hard stand on drugs,
+- [11:25.390] this is also benefiting you. We call them the water drugs,
+- [11:30.560] the drugs that come in through water.
+- [11:32.710] They're not coming, there are no boats anymore.
+- [11:34.980] Frankly, there are no fishing boats.
+- [11:36.320] There's no boats out there, period,
+- [11:37.930] if you want to know the truth.
+- [11:39.280] We're saying, "Does anybody go fishing anymore?"
+- [11:42.120] The fact is we've probably saved at least 100,000 lives,
+- [11:47.190] American lives, Canadian lives,
+- [11:49.430] by taking out all those boats coming in.
+- [11:54.020] And now they don't come in that way anymore,
+- [11:55.930] now they'll come in other ways,
+- [11:57.670] and we're not going to allow that either.
+- [11:59.880] So we've done a great job on that.
+- [12:02.950] But on crime, Chicago's a great city,
+- [12:06.390] but you can't be a great city if you have murders
+- [12:08.780] and if you have a lot of problems, and they do.
+- [12:12.070] And they have an incompetent policy,
+- [12:14.060] just like they had open border policy, anybody could come in.
+- [12:17.280] They came in from prisons,
+- [12:19.210] they came in from mental institutions,
+- [12:21.300] drug dealers, they came in from all over the place,
+- [12:23.660] and we don't have that anymore.
+- [12:25.940] This country is becoming very -- We're a very strong country.
+- [12:29.680] Look, financially speaking,
+- [12:31.640] I would say that because of the tariffs,
+- [12:34.030] because of the election, because of the policy,
+- [12:36.060] because of the Great Big Beautiful Deal,
+- [12:38.750] I added the word great, because it really is,
+- [12:42.410] it's the biggest bill ever passed
+- [12:44.300] in the history of our country, we don't need another bill.
+- [12:47.280] It's the biggest tax cuts, the biggest --
+- [12:50.230] When you think no tax on tips, no tax on Social Security,
+- [12:53.870] no tax on overtime for the people.
+- [12:56.630] But far beyond that,
+- [12:57.940] what it does is it incentivizes auto plants and AI
+- [13:01.290] and all of the things that --
+- [13:02.950] Nobody's ever passed a bill like it.
+- [13:04.460] We don't need another bill, we don't need any more bills.
+- [13:06.590] I said, "Let's get it all at once."
+- [13:08.880] I was greatly helped by our speaker, Mike Johnson,
+- [13:12.730] and by the Senate.
+- [13:14.560] I'll tell you what, John Thune's been --
+- [13:17.490] Both of those guys have been incredible.
+- [13:19.260] And we got a bill passed that we really -- I said, "
+- [13:22.200] Let's see if we can get it all done,"
+- [13:24.870] because these Democrats are like insurrectionists,
+- [13:28.190] they're so bad for our country,
+- [13:30.090] their policy is so bad for our country.
+- [13:32.420] I said, "Let's see if we can get it all done in the --"
+- [13:35.450] And everybody said, "It's not doable."
+- [13:37.600] Because it's the biggest bill ever passed
+- [13:39.290] in the history of our country, and we got it all done.
+- [13:41.980] We don't need anything else, we've got everything we want.
+- [13:44.090] And now, because of that, that's a big reason
+- [13:47.530] why the companies are coming in, one-year depreciation,
+- [13:50.670] one-year write-off, one-year expensing.
+- [13:53.170] Nobody's ever seen anything like it.
+- [13:57.210] So they're coming in from all over the world.
+- [13:59.560] But to have a great country, you can't have crime,
+- [14:03.540] and we don't have crime.
+- [14:05.440] But we have cities where there's tremendous crime,
+- [14:08.110] and Chicago's one of them,
+- [14:09.860] and if the governor can't straighten it out,
+- [14:12.040] we'll straighten it out. Thank you.
+- [14:18.860] President Trump: A question for the Prime Minister?
+- [14:21.680] The Press: Mr. Prime Minister, I'd like to know,
+- [14:23.540] how come the UK and the European Union
+- [14:26.340] have succeeded to sign deals and bring the tariffs down,
+- [14:29.550] and Canada still hasn't been able to do the same?
+- [14:32.000] President Trump: Yeah, because they're not located
+- [14:33.650] right next to each other.
+- [14:36.820] In many cases, it's much better and easier, but please.
+- [14:39.960] Prime Minister Carney: Yeah, if I may,
+- [14:42.080] let's be clear about the relationship
+- [14:43.560] as it stands right now. We are the second-largest
+- [14:46.350] trading partner of the United States.
+- [14:47.700] We do a lot of trade going across the border
+- [14:50.110] where we're cooperating, first thing.
+- [14:52.130] Secondly, we are the largest foreign investor
+- [14:54.420] in the United States,
+- [14:55.710] half a trillion dollars in the last five years alone,
+- [14:57.850] probably $8 trillion in the next five years
+- [15:01.130] if we get the agreement that we expect to get.
+- [15:04.720] Thirdly, there are areas, as the President just said,
+- [15:07.410] where we --
+- [15:08.940] Conflict, maybe not so much conflict, we compete,
+- [15:11.380] there are areas where we compete,
+- [15:12.850] and it's in those areas
+- [15:14.450] where we have to come to an agreement that works.
+- [15:18.440] But there are more areas where we are stronger together,
+- [15:21.380] and that's what we're focused on,
+- [15:22.650] and we're going to get the right deal,
+- [15:24.000] the right deal for America,
+- [15:25.240] the right deal, obviously, from my perspective, for Canada.
+- [15:33.850] President Trump: Including one thing that --
+- [15:36.490] easy. Wait, wait, wait.
+- [15:38.060] So one thing where we are working very closely
+- [15:41.130] is the Golden Dome, that's the protective mechanism,
+- [15:45.530] and you see how that works, it's unbelievable.
+- [15:48.940] Ronald Reagan wanted to have it, and at that time,
+- [15:51.840] they didn't have the technology, even close to the technology,
+- [15:54.850] but he was advanced. And we'll be working together
+- [15:58.500] on a Golden Dome for the two countries,
+- [16:01.340] and it's something that I think is going to be very important,
+- [16:04.370] especially when you look at the world,
+- [16:05.740] you look at what's happening, we want to have that protection.
+- [16:08.780] It's really amazing, the technology is unbelievable.
+- [16:14.860] The Press: Mr. President, why do you say some federal workers
+- [16:18.370] should not get their back pay, why do you say some --
+- [16:20.430] President Trump: Well, you're going to have to figure
+- [16:21.760] that out, okay?
+- [16:23.000] Ask the Democrats that question. Go ahead.
+- [16:27.080] The Press: Mr. President, just to follow up there,
+- [16:28.880] the law says that when the government is reopened,
+- [16:31.710] that workers will receive their back pay,
+- [16:33.930] so are you going to defy the law there or what --
+- [16:35.940] President Trump: I follow the law,
+- [16:37.370] and what the law says is correct,
+- [16:39.530] and I follow the law. I always --
+- [16:43.020] The Press: Mr. President,
+- [16:44.340] will Canada be leaving empty-handed,
+- [16:46.280] or Mr. Carney be leaving Washington
+- [16:49.220] with a deal on tariffs?
+- [16:50.540] President Trump: I think they're going to be very happy.
+- [16:52.060] We have a lot of things that we're working on
+- [16:54.170] that people don't talk about.
+- [16:55.920] They talk about competitiveness, he's a very competitive person,
+- [17:03.210] and they talk about things that we don't necessarily agree on.
+- [17:07.740] But I think they're going to walk away very happy,
+- [17:09.560] I think so.
+- [17:15.140] The Press: Mr. President,
+- [17:16.360] on all your trade deals that you've signed,
+- [17:17.850] there's been a minimum tariff that countries have got.
+- [17:20.440] When USMCA gets renegotiated, do you want a minimum tariff
+- [17:23.250] on goods between Canada and the US?
+- [17:25.320] President Trump: Well, we're going to have tariffs
+- [17:26.800] between Canada, and they have them with us.
+- [17:30.490] I will say, with our pharmas, as you know,
+- [17:33.010] they went up to as much as 400 percent,
+- [17:35.530] 250 percent, 300 percent,
+- [17:37.170] and even one at 401 percent, we found one,
+- [17:39.130] having to do with a very small product,
+- [17:41.100] but it was high.
+- [17:42.420] The Press: But you (inaudible) Canada.
+- [17:43.700] President Trump: So we've always had tariffs
+- [17:44.980] between the two of us.
+- [17:46.260] And actually, Canada was charging us very high tariffs
+- [17:49.900] on our agricultural things,
+- [17:51.520] a lot of our agricultural product,
+- [17:53.760] and that's one of the things that we talk about
+- [17:55.500] for bringing that down.
+- [17:56.970] So this is a mutual thing, but we've been charged tariffs.
+- [18:00.830] Look, we are the king of being screwed by tariffs,
+- [18:04.010] just so you understand,
+- [18:05.230] and I'm not talking about with Canada,
+- [18:06.580] I'm talking about with countries all over the world.
+- [18:08.990] When you look at Europe, when you look at China,
+- [18:12.020] when you look at all of the --
+- [18:15.980] Almost every country charge the U.S.
+- [18:18.630] We didn't charge them because we were led
+- [18:21.100] by stupid people, in many cases. Stupid people.
+- [18:23.820] They took advantage of our country.
+- [18:25.660] They're not taking advantage of us anymore.
+- [18:27.950] If you looked at European Union, they're all my friends.
+- [18:30.910] I don't blame them. I blame our presidents.
+- [18:32.850] I blame our past presidents and business leaders.
+- [18:37.650] But we are the king of countries
+- [18:42.970] that have been taken advantage of for many, many years.
+- [18:46.650] We've been paying trillions and trillions of dollars
+- [18:49.130] and receiving nothing. Nothing at all.
+- [18:51.560] As an example, prior to the deal with Europe
+- [18:54.080] where they pay a lot of money,
+- [18:56.620] but they're happy and I'm happy, the deal was good.
+- [18:59.540] It's a fair deal. But it wasn't fair.
+- [19:02.210] You couldn't put a car into Europe.
+- [19:04.060] You couldn't sell your agriculture into Europe.
+- [19:06.030] You couldn't do anything.
+- [19:07.410] And now we have it so that it's open.
+- [19:10.810] We charge them tariffs.
+- [19:12.450] We didn't charge them tariffs for car.
+- [19:14.030] They charge us tremendous.
+- [19:15.690] I said to Angela Merkel once, I said,
+- [19:17.800] "How many cars have gone to Germany from the United States?"
+- [19:21.270] And she said, "Well, I don't believe any."
+- [19:23.590] And I said, "You're right. You're right.
+- [19:25.710] Well, that doesn't happen anymore."
+- [19:27.910] And they're paying a fair amount.
+- [19:29.360] It's just a fair amount.
+- [19:30.650] It's not -- I could ask for much more.
+- [19:32.820] It's a fair amount.
+- [19:34.170] But the United States now is using the same thing
+- [19:37.110] that they've used on us.
+- [19:38.340] And I just can't believe it's taken presidents
+- [19:41.640] so long to do this.
+- [19:43.650] And again, we're going to treat people fairly.
+- [19:45.160] We're going to especially treat Canada fairly,
+- [19:47.880] but I can't believe it's taken so long
+- [19:49.940] where we get charged and don't charge them.
+- [19:53.620] Japan was a good example. We made a deal with Japan.
+- [19:55.770] You saw that, Mark. Prime Minister Carney: Yeah.
+- [19:56.970] President Trump: A deal with Japan.
+- [19:58.230] It's a much different deal than we've had in the past,
+- [20:00.970] but they would send us millions of cars.
+- [20:04.000] No charge. We weren't allowed to send them cars.
+- [20:07.340] We sent them no cars.
+- [20:09.420] I doubt you had one car go into --
+- [20:12.290] Because we were restricted. They didn't want our cars.
+- [20:15.620] Same thing with Europe, same thing with other places.
+- [20:19.200] All we do now is fairness.
+- [20:20.850] But fairness leads us to the most successful country
+- [20:25.420] there's ever been.
+- [20:26.840] We have some advantages over other countries,
+- [20:29.740] and we do have a great market.
+- [20:31.570] We have an amazing market. But you know what?
+- [20:33.680] If I let this go, if we didn't win this election,
+- [20:37.420] if we had these people that were running,
+- [20:39.690] that were ruining our country,
+- [20:41.370] destroying our country with their open borders
+- [20:43.750] and men playing in women's sports and transgender
+- [20:47.140] from everybody and windmills all over the place,
+- [20:50.820] if we allowed that to go on for another couple of years,
+- [20:54.230] we would be -- I'm not sure that we'd even have a country.
+- [21:06.210] Yeah, Brian?
+- [21:08.310] By the way, I'm not sure we would've even had a country.
+- [21:10.780] And now we have the most successful country in the world.
+- [21:12.960] Brian? The Press: Yes, sir.
+- [21:14.200] What is your message to Democrats
+- [21:15.700] ahead of a next vote to open up the government?
+- [21:18.220] The American people are saying, "Open the damn government."
+- [21:21.060] What's your message to them right now?
+- [21:22.610] President Trump: Well, they're the ones that started it.
+- [21:24.220] They're the ones that have it.
+- [21:25.500] And it's almost like a kamikaze attack by them.
+- [21:29.630] You want to know the truth? This is like a kamikaze attack.
+- [21:34.600] They almost -- They have nothing to lose.
+- [21:37.990] They've lost the elections.
+- [21:40.010] They've lost the presidential election in a landslide.
+- [21:43.300] I saw the other day where Kamala said,
+- [21:45.460] "This was a very close election."
+- [21:48.070] This was one of the biggest sweeps that anybody's ever had.
+- [21:50.900] Won the popular vote by millions,
+- [21:52.670] won the electoral college by a massive amount.
+- [21:56.730] They said if I got 270, that would be great.
+- [22:02.000] But I got, I think, 312 or 315 and they got 220.
+- [22:07.630] So we won that. But we won counties.
+- [22:10.110] The big thing is counties. So out of all of the counties,
+- [22:13.500] thousands and thousands, we got 2,500.
+- [22:16.840] They got 525. It was a landslide and we listened.
+- [22:21.620] Oh, yes, it was close.
+- [22:23.520] It was one of the greatest victories ever.
+- [22:25.640] And it was a mandate to do what we're doing.
+- [22:28.250] And I hope, and Mark wants this as much as I do,
+- [22:33.040] we are very close to making a deal on the Middle East
+- [22:36.230] that will bring peace to the Middle East.
+- [22:38.460] After all of these years of millions and millions,
+- [22:42.780] tens of millions of people being killed,
+- [22:44.620] there's a chance to bring peace to the Middle East.
+- [22:46.980] In addition to that, I made seven other deals
+- [22:49.170] and they were great,
+- [22:51.160] and where things are happening with respect to Russia, Ukraine.
+- [22:55.390] That's one that last week, Mark, 7,812 people were killed.
+- [23:01.100] Soldiers. Mostly soldiers. But 7,000 -- more than 7,000,
+- [23:05.370] almost 8,000 soldiers were killed.
+- [23:07.810] It's a crazy thing.
+- [23:10.020] I thought that would've been one of the easy ones.
+- [23:12.470] I get along very well with Putin,
+- [23:14.690] and I thought that would've been --
+- [23:15.930] I'm very disappointed in him
+- [23:18.070] because I thought this would've been an easy one to settle.
+- [23:20.440] But it's turned out to be maybe tougher than the Middle East.
+- [23:24.090] We'll see what happens with the Middle East.
+- [23:25.670] The Middle East -- go ahead. Behind. Yes?
+- [23:37.930] The Press: Is the fentanyl crisis over with Canada,
+- [23:39.520] which is the Canadian border?
+- [23:40.800] President Trump: Is what?
+- [23:42.040] The Press: The fentanyl crisis.
+- [23:43.660] President Trump: No, it's not over.
+- [23:45.120] I think it's never going to be over, frankly.
+- [23:46.970] But they've done -- Canada's worked hard
+- [23:49.000] and they've done a much better job than in the past.
+- [23:52.560] We have very few people
+- [23:54.610] coming in through our southern border, too.
+- [23:56.770] We've worked with Canada and we've worked with Mexico,
+- [23:59.700] so we've made it a lot better.
+- [24:01.290] Prime Minister Carney: Look, any is too much.
+- [24:05.260] Any is too much (inaudible).
+- [24:07.100] President Trump: Yeah. Wait.
+- [24:09.760] Prime Minister Carney: On Fentanyl,
+- [24:11.090] any amount is too much.
+- [24:12.620] So we've gotten it down. It's down substantially.
+- [24:14.770] It's less than 1 percent, but look, it's still too much.
+- [24:16.760] It's too much at home in Canada.
+- [24:17.990] President Trump: A lot of people.
+- [24:19.200] Prime Minister Carney: Yeah. We got to stamp it out.
+- [24:23.210] The Press: On USMCA, are the two of you both committed
+- [24:26.230] to seeing it through in the renegotiation
+- [24:28.010] of that deal that you made?
+- [24:29.500] President Trump: Well, we can renegotiate it
+- [24:30.840] and that would be good.
+- [24:32.080] Or we could just do different deals.
+- [24:33.710] We're allowed to do different deals.
+- [24:34.970] If we were, we might make deals
+- [24:36.260] that are better for the individual countries.
+- [24:39.510] I don't care. I want to make whatever the best deal
+- [24:41.580] is for this country and also very much with Canada in mind.
+- [24:44.720] Yeah, go ahead, please. Go ahead, sir.
+- [24:50.450] The Press: Sir, on China,
+- [24:52.370] what more can the United States and Canada
+- [24:54.690] do together to counter China?
+- [24:58.530] President Trump: Well, you have to be able to compete.
+- [25:00.050] They're a great competitor. And Mark and I both know that,
+- [25:03.320] and you have to be able to compete.
+- [25:04.680] We have big advantages over China
+- [25:06.430] for lots of different reasons,
+- [25:07.950] and I think we're doing very well with China.
+- [25:10.570] I get along very well with President Xi.
+- [25:12.450] I'm going to be meeting him in a few weeks, as you know.
+- [25:15.360] I'll be meeting him in South Korea.
+- [25:17.600] But we've had a very good relationship for a long time.
+- [25:21.130] But you have to be able to compete.
+- [25:22.430] To do well with China, if you can't compete,
+- [25:25.320] you're not going to do well with China.
+- [25:26.720] And Canada's very competitive. I can tell you that.
+- [25:29.690] Canada's a very competitive country,
+- [25:31.450] and I think Canada's done very well over the years with China.
+- [25:33.880] Prime Minister Carney: Yeah.
+- [25:35.100] Yeah, we have, but we'll do better together on that.
+- [25:41.990] The Press: On the Middle East,
+- [25:43.670] what guarantees are you giving your Arab partners
+- [25:47.250] that Israel will not resume its offensive
+- [25:50.170] after the hostages are released?
+- [25:51.960] President Trump: Well, the primary guarantee
+- [25:53.370] is once this deal happens,
+- [25:55.070] if it does happen, look, they're in negotiations right now,
+- [25:58.010] we are going to do everything possible.
+- [25:59.570] We have a lot of power,
+- [26:00.940] and we're going to do everything possible
+- [26:02.550] to make sure everybody adheres to the deal.
+- [26:04.990] Okay?
+- [26:08.600] The Press: Are you concerned about the delays at airports?
+- [26:10.580] And how do you see the shutdown lately?
+- [26:12.010] President Trump: Oh, sure.
+- [26:13.240] I mean, they're all Democrat delays.
+- [26:15.790] There are delays at the airport. That's standard.
+- [26:17.820] And again, this is something that we've --
+- [26:20.720] every day we put forth a bill, just a continuation,
+- [26:24.480] it's a very simple thing to sign and very simple to do.
+- [26:27.760] And I really think that these are people
+- [26:29.710] that I think they have nothing to lose.
+- [26:32.220] They have a party that's out of control.
+- [26:33.880] They have no leader. Nobody knows who the leader is.
+- [26:36.730] I look at people with very low IQs, like Crockett, this woman,
+- [26:39.970] Crockett, I never met her, but she's a low-IQ individual.
+- [26:44.260] I look at AOC talking about how,
+- [26:46.850] "If they want to negotiate, they can come to my office."
+- [26:49.410] She's not in that position to do that, and
+- [26:52.170] Who the hell is she to say that?
+- [26:54.020] And then I watched Nancy Pelosi not knowing what to do.
+- [26:56.560] I watched their leadership.
+- [26:58.970] Look, Schumer is petrified of a primary
+- [27:01.750] because he's not going to win
+- [27:02.960] probably against anybody in a primary.
+- [27:06.140] Schumer did the right thing, but he handled it badly.
+- [27:10.520] Originally, a year ago, he did probably the right thing,
+- [27:13.950] but he handled it badly.
+- [27:16.110] I think Schumer is incapable of making a deal.
+- [27:18.780] They are a mess. They're a party that has no leadership.
+- [27:23.770] And they have no policy.
+- [27:27.030] I think we have great leadership,
+- [27:28.770] but we also have great policy. We have strong borders.
+- [27:32.190] We have no men in women's sports.
+- [27:34.830] I mean, basic things.
+- [27:38.180] We're not going to take your child away
+- [27:39.800] and change the sex of your child.
+- [27:42.590] We're not going to do things like that.
+- [27:44.440] What they're doing to the country is so incredible,
+- [27:46.650] and they got away with it with all their woke crap,
+- [27:49.700] and now it's stopped.
+- [27:51.090] And we have a country that's based on common sense,
+- [27:53.920] and strength, and intelligence.
+- [27:58.240] The United States of America, and I say it all the time,
+- [28:01.690] other leaders have told me this, Mark hasn't yet,
+- [28:03.920] but I think he would, a year ago we were a dead country,
+- [28:07.770] and now we are the hottest country anywhere in the world.
+- [28:11.040] Maybe Canada. I'll give Canada, because I do like Canada.
+- [28:14.940] But we're the hottest country in the world right now.
+- [28:17.150] There's never been a country
+- [28:18.440] that has the kind of money coming into it.
+- [28:20.490] There's never been anything like this.
+- [28:22.490] There's never been a country that,
+- [28:24.980] if you get take a trillion dollars,
+- [28:27.140] that would be unbelievable.
+- [28:29.230] We're going to have over $20 trillion
+- [28:31.690] invested in this country.
+- [28:33.350] There's never been anything like what you're seeing,
+- [28:36.140] and it's based on good policy,
+- [28:37.830] and common sense, and leadership. Yeah.
+- [28:44.620] The Press: Mr. President,
+- [28:45.970] what is Canada giving you in return?
+- [28:47.510] You say Mr. Carney is going to be leaving Washington happy.
+- [28:49.430] What's Canada giving you in return?
+- [28:50.630] President Trump: Well, you'll find out,
+- [28:51.850] but I think the people of Canada,
+- [28:54.130] they will love us again. Most of them still do.
+- [28:57.040] If you say only 25 percent.
+- [29:00.350] I assume a lot of them. I think they love us.
+- [29:07.450] And you know what, I'm not the biggest hockey fan,
+- [29:11.410] but I like it a lot.
+- [29:12.900] And I watched some of the greatest hockey games
+- [29:15.560] I've ever -- how good were those games, right?
+- [29:17.340] The Press: Yeah, very good.
+- [29:18.550] We're coming down for the World Series, Mr. President.
+- [29:20.820] President Trump: Oh good.
+- [29:30.900] Yeah, go.
+- [29:32.180] The Press: Mr. President,
+- [29:33.380] will you sign a trade deal with Canada
+- [29:34.800] that doesn't include supply-managed goods like dairy,
+- [29:37.470] for example, the federal government's --
+- [29:39.500] President Trump: Well, a deal would include dairy.
+- [29:40.930] I mean, it's going to include everything.
+- [29:42.210] We'll do a comprehensive.
+- [29:45.870] The Press: Mr. President, have you identified programs
+- [29:48.390] to eliminate under this shutdown?
+- [29:50.850] President Trump: Oh, sure, sure.
+- [29:52.070] The Press: Which ones?
+- [29:53.280] President Trump: I'm not going to tell you,
+- [29:54.490] but we'll be announcing it pretty soon.
+- [29:56.030] But we have a lot of things that we're going to eliminate,
+- [29:57.930] and permanently eliminate.
+- [30:00.570] One of the things that we have as some advantage,
+- [30:03.790] you could say, but because of the shutdown,
+- [30:06.330] which I think they made a big mistake,
+- [30:07.870] we're able to take out billions
+- [30:10.230] and billions of dollars of waste, fraud, and abuse.
+- [30:13.220] And they've handed it on a silver platter.
+- [30:16.590] And Russell Vought,
+- [30:17.960] he's a serious person, very serious person.
+- [30:20.430] And he's sitting there and he's getting ready to cut things.
+- [30:24.130] And this is something that was handed to us by,
+- [30:26.600] I assume, Schumer.
+- [30:27.800] I just don't know if Schumer has any power anymore.
+- [30:30.900] I look at your leadership. I don't know who to speak to.
+- [30:34.770] I'll tell you what, I'm getting calls from Democrats
+- [30:37.160] wanting to meet.
+- [30:38.670] I never even heard their names before,
+- [30:40.820] and they're claiming to be leader.
+- [30:42.100] The Democrats have no leader. They remind me of Somalia.
+- [30:49.890] And I met the president of Somalia.
+- [30:51.580] I told him about the problem he's got.
+- [30:53.860] I said, "You have somebody from Somalia
+- [30:55.630] who's telling us how to run our country from Somalia."
+- [30:58.670] I said, "Would you like to take her back?"
+- [31:00.900] He said, "No, I don't want her."
+- [31:03.030] Okay, you know who I'm talking about?
+- [31:05.350] The Press: (inaudible).
+- [31:06.550] President Trump: Say it again.
+- [31:07.890] The Press: How many permanent jobs are you talking
+- [31:09.150] about (inaudible).
+- [31:10.430] President Trump: Well, I'll be able to tell you
+- [31:11.890] that in four or five days if this keeps going on.
+- [31:14.410] If this keeps going on, it'll be substantial,
+- [31:18.080] and a lot of those jobs will never come back.
+- [31:23.110] You're going to have a lot closer
+- [31:24.490] to a balanced budget, actually.
+- [31:30.760] The Press: Is there anything the Prime Minister
+- [31:32.160] has done that's making it more difficult to reach a deal?
+- [31:33.930] President Trump: Say it?
+- [31:35.150] The Press: Is there anything that the Prime Minister has done
+- [31:36.630] that's making it more difficult or easier to reach a deal?
+- [31:38.980] President Trump: No, I think he's a great prime minister.
+- [31:42.180] He could represent me anytime.
+- [31:45.890] No, he is a very strong, very good leader.
+- [31:50.300] He's a nice man, but he could be nasty.
+- [31:52.660] He could be very nasty. Maybe as nasty as anybody.
+- [31:58.450] Let me put it this way, I can tell you this,
+- [32:00.900] because I deal with lots of leaders all over the world,
+- [32:03.800] he is a world-class leader.
+- [32:07.440] He's a man that knows what he wants,
+- [32:09.750] and I'm not surprised to see that he won the election
+- [32:12.430] and won it substantially.
+- [32:14.090] And I would think he's more popular now.
+- [32:16.280] He's a good man.
+- [32:17.510] He does a great job, and he's a tough negotiator.
+- [32:25.550] The Press: So then, what's holding things up?
+- [32:26.930] If he's a great man, and you want to do a deal
+- [32:28.720] with Canada, why aren't you?
+- [32:30.330] President Trump: Because I want to be a great man, too.
+- [32:32.420] (laughter)
+- [32:35.420] Thank you very much.
+- [32:40.920] (indistinct background chatter)

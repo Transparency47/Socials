@@ -1,0 +1,847 @@
+<!-- source: https://www.youtube.com/watch?v=pz8nYP6mE10 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: pz8nYP6mE10 -->
+<!-- date_published: 2025-10-17T18:15:32+00:00 -->
+<!-- date_accessed: 2026-06-02T02:43:19.649031+00:00 -->
+
+# Transcript: President Trump Participates in a Bilateral Lunch with the President of Ukraine
+
+- [00:01.060] The President: Well, thank you very much, everybody.
+- [00:02.530] It's an honor to be with a very strong leader,
+- [00:07.540] a man who has been through a lot,
+- [00:10.820] and a man I've gotten to know very well,
+- [00:12.870] and we've gotten along really very well.
+- [00:15.400] And we had a big call yesterday, as you know,
+- [00:17.410] with President Putin, and we'll be talking about it.
+- [00:20.350] President Zelensky of Ukraine has endured a lot.
+- [00:25.250] I mean, he really has. He's endured a lot.
+- [00:27.930] And we've endured it with him, to be honest.
+- [00:30.220] It's a -- it's been a long time,
+- [00:32.720] and I think we're making great progress.
+- [00:35.420] So we're going to be talking about that today.
+- [00:37.180] We'll be talking about what took place yesterday
+- [00:39.760] with my phone call with President Putin.
+- [00:42.690] And I think that things are coming along pretty well.
+- [00:46.670] It began with Alaska,
+- [00:47.950] where I think certain guidelines were discussed,
+- [00:52.340] and we want to see if we can get this done.
+- [00:54.340] This was long ago into the Biden administration.
+- [00:57.790] And I came here and we inherited this
+- [01:02.230] and we'd like to see if we could finish it, end it.
+- [01:06.140] We want it ended.
+- [01:07.520] So many people have died in this war,
+- [01:11.500] and we're going to get it ended,
+- [01:13.770] so I just want to thank you all very much.
+- [01:16.820] If you have a couple of questions, go ahead, please.
+- [01:20.210] In fact, before I do that,
+- [01:21.480] let me just ask the President to say a few words.
+- [01:23.930] Thank you, President.
+- [01:26.750] President Zelensky: Glad to meet you again, Mr. President.
+- [01:28.550] Thank you very much for the invitation.
+- [01:30.890] Again, my congratulations with your successful ceasefire
+- [01:33.460] in the Middle East.
+- [01:34.670] The President: Thank you.
+- [01:35.960] President Zelensky: Yeah, and you did it,
+- [01:37.490] and I think this is a momentum
+- [01:39.630] to finish Russia's war against Ukraine.
+- [01:42.040] I think that, yes, we understand
+- [01:45.000] that Putin is not ready, I think not ready.
+- [01:49.030] But I think, that I'm confident that with your help
+- [01:53.890] we can stop this war. And we really need it.
+- [01:57.440] We see that they don't have successful steps
+- [02:01.110] on the battlefield, and it's good.
+- [02:02.690] I think that (inaudible)
+- [02:04.230] with now, but a lot of losses.
+- [02:06.530] They have a lot of losses in the economy and people,
+- [02:10.320] and I think this is a very important moment.
+- [02:13.550] And I wanted to thank you, Mr. President,
+- [02:16.610] after our phone calls.
+- [02:18.590] Yesterday I had a good opportunity to meet
+- [02:21.660] with the big American energy companies,
+- [02:24.630] and they are ready to help up.
+- [02:27.540] Yes, after all, these attacks on our infrastructure,
+- [02:30.720] Russian attacks, and et cetera.
+- [02:32.380] And I had also meetings. Thanks to your team,
+- [02:36.450] we had meetings with good military companies.
+- [02:40.660] We spoke about air defense,
+- [02:42.100] and I want to share it with details where we are.
+- [02:46.240] Thank you. Thank you so much.
+- [02:47.920] The President: Thank you very much.
+- [02:50.320] And I think it looks beautiful in his jacket.
+- [02:52.480] Isn't it beautiful?
+- [02:54.020] I hope people notice it's a good --
+- [02:55.810] it's actually very stylish. I like it. Please, go ahead.
+- [03:00.310] The Press: Under the Biden administration,
+- [03:02.010] the White House was fearing of a possible escalation
+- [03:04.640] that were not allowing the Ukrainians
+- [03:06.180] to strike into Russia, fearing off this escalation.
+- [03:10.110] Would your administration allow Ukrainians
+- [03:12.560] strike deep into Russia?
+- [03:13.860] The President: We're going to be talking about that.
+- [03:15.690] That's something we'll be talking about.
+- [03:17.550] You're right, it's an escalation,
+- [03:18.970] but we'll be talking about that.
+- [03:20.410] The Press: (inaudible)
+- [03:21.660] President Zelensky join you in Hungary
+- [03:23.660] to meet President Putin?
+- [03:25.640] The President: Because it's a leader that we like.
+- [03:29.200] We like Viktor Orban. He likes him. I like him.
+- [03:33.190] It's a country that's a safe country.
+- [03:36.170] He's done a very good job.
+- [03:38.100] He's been a very leader in the sense of running his country.
+- [03:42.360] He doesn't have a lot of the problems
+- [03:43.850] that other countries have.
+- [03:45.090] And so we've decided that we'll be going to be
+- [03:49.990] with Viktor Orban, and he will --
+- [03:53.000] I think he'll be a very good host.
+- [03:58.330] Yeah, it's in Hungary. Yeah, we're doing Hungary, yeah.
+- [04:02.550] (inaudible) trilateral meeting or just you and Putin?
+- [04:06.620] The President: To be determined, but I would say,
+- [04:08.280] most likely, it's going to be a double meeting.
+- [04:12.760] It'll be a double meeting,
+- [04:14.090] but we will have the President Zelensky in touch.
+- [04:20.140] There's a lot of bad blood with the two presidents,
+- [04:24.090] and I'm not speaking out of turn when I say it.
+- [04:26.300] It's a very difficult situation.
+- [04:28.720] You know, we just settled the war
+- [04:30.450] after thousands of years, I guess.
+- [04:32.850] People say anywhere from 500 to 3,000 years.
+- [04:36.660] And I was in rooms, as you saw, because you were with me.
+- [04:40.650] A lot of you were me last week with leaders
+- [04:43.120] that didn't like each other, but they were able to get along.
+- [04:47.540] These two leaders do not like each.
+- [04:52.430] We want to make it comfortable for everybody.
+- [04:54.500] So one way or the other, we'll be involved in threes,
+- [04:59.970] but it may be separated.
+- [05:02.270] The Press: (inaudible)
+- [05:06.670] doesn't agree to peace in Hungary --.
+- [05:08.600] The President: What does he -- what? Where are you from?
+- [05:10.830] The Press: From Ukraine.
+- [05:13.340] The President: Good, yeah.
+- [05:14.740] The Press: What if President Putin doesn't agree
+- [05:17.590] (inaudible)
+- [05:18.830] in Hungary? What do you do then? Do you have --
+- [05:21.570] The President: Well, let's see what happens.
+- [05:22.880] I mean, you know, what if? I think he will.
+- [05:25.780] I think that President Putin wants to end the war,
+- [05:29.420] or I wouldn't be talking this way.
+- [05:31.480] I think, he wants to the war.
+- [05:32.700] I spoke to him yesterday for two and a half hours.
+- [05:35.730] We went through a lot of details.
+- [05:37.240] He wants to get it ended.
+- [05:38.900] I think the President Zelensky wants to it ended,
+- [05:41.350] now we have to get done.
+- [05:42.900] The Press: (inaudible)
+- [05:47.130] and although I love asking you questions,
+- [05:48.930] today my question is for President Zelensky.
+- [05:51.280] The President: Sure. Go ahead, please.
+- [05:52.550] The President: Thank you.
+- [05:53.800] Our President, President Zelinski,
+- [05:55.560] President Trump, just broke a peace deal
+- [05:58.130] in the Middle East that all Americans,
+- [05:59.980] both sides of the aisle, are very proud of.
+- [06:02.270] But to meet that deal, both side had to make concessions.
+- [06:05.280] Our President has stuck out his neck
+- [06:07.040] in many ways to make a peace deal for your for as well.
+- [06:10.380] What specific concessions are you willing
+- [06:12.300] to make to end this war with Russia?
+- [06:14.020] Will you give up joining NATO?
+- [06:15.880] Americans have foreign war fatigue,
+- [06:17.910] and our President, as he said, we need our tomahawks too.
+- [06:23.240] President Zelensky: To me?
+- [06:24.560] The Press: Yes, you President Zelensky.
+- [06:27.470] The President: That's some question.
+- [06:29.430] President Zelensky: So many questions in one.
+- [06:31.060] Thank you very much for your question.
+- [06:32.400] First of all, I think we need to sit and speak.
+- [06:36.140] The second point, we need ceasefire.
+- [06:39.770] Even now, you see in the Middle East,
+- [06:41.690] it's very difficult to hold a ceasefire everywhere,
+- [06:45.150] in every war, it is very difficult.
+- [06:47.820] We want this, Putin doesn't want.
+- [06:51.040] That's why we need pressure on him.
+- [06:53.130] We will speak with the President today what we need.
+- [06:56.920] We understand what we need.
+- [06:59.110] To push Putin to negotiation table.
+- [07:02.860] And as I said previously,
+- [07:04.730] so we are ready to speak in any kind of format,
+- [07:07.370] bilateral, trilateral, doesn't matter.
+- [07:09.580] Matter, just peace. This is important.
+- [07:13.300] And we don't speak about NATO or NATO
+- [07:17.650] for Ukrainians is very important.
+- [07:20.110] Of course, it's our decision,
+- [07:23.230] decisions of allies to decide where we are.
+- [07:25.930] The Press: But are you willing to give up on NATO?
+- [07:27.520] President Zelensky: The most important thing,
+- [07:29.520] the most important thing for people in Ukraine,
+- [07:32.190] which are under each day's attacks,
+- [07:35.000] to have really strong security guarantees,
+- [07:39.190] NATO is the best. But weapon is very important,
+- [07:43.570] allies on our side is very important,
+- [07:45.410] and between us, for us, bilateral security guarantees
+- [07:49.670] between me and President Trump is very important.
+- [07:54.350] I don't know. We didn't speak with details about it.
+- [07:57.140] But this is the most important document
+- [08:00.010] because United States is very strong.
+- [08:04.310] The Press: President Trump,
+- [08:05.520] you are the middle man right now,
+- [08:07.270] hoping to end this conflict.
+- [08:08.730] Who is doing a better job negotiating,
+- [08:11.380] President Zelensky or President Putin?
+- [08:13.760] The President: I think they're both doing a great job
+- [08:15.370] in that sense. We have to get it done.
+- [08:18.700] We've got to take some of the hatred of each other.
+- [08:22.040] You know, they don't like each other,
+- [08:23.950] I say that in front of President Zelensky,
+- [08:26.860] but I say it in front President Putin, too.
+- [08:28.740] They have tremendous bad blood.
+- [08:31.590] It really is what is holding up, I think, a settlement.
+- [08:34.790] I think we're going to get it done,
+- [08:37.190] and we have to make it long-lasting,
+- [08:39.420] as I said in the Middle East, everlasting, right?
+- [08:41.860] Everlasting.
+- [08:43.270] And the Middle East is a much more complicated situation.
+- [08:48.410] You know, we had 59 countries involved,
+- [08:50.390] and every one of them agreed.
+- [08:52.430] And it's, you know, it's sort of amazing.
+- [08:54.340] Most people didn't think that was doable.
+- [08:57.620] This is going to be something
+- [08:58.840] I really believe that's going to get done.
+- [09:00.590] I had a very good talk yesterday with President Putin.
+- [09:02.820] I think he wants to get it done.
+- [09:06.600] The President: Right behind you, when we were in Israel
+- [09:08.850] with President Trump earlier in the week,
+- [09:10.220] we heard a lot about the difference in diplomacy
+- [09:13.260] between President Trump and President Joe Biden before him.
+- [09:17.070] What do you see is the biggest difference in diplomacy
+- [09:19.840] between President Trump and President Biden?
+- [09:25.140] President Zelensky: President Trump
+- [09:27.200] has a big chance now to finish this war.
+- [09:31.560] President Biden now is not the president,
+- [09:35.060] so he doesn't have a chance to finish the war.
+- [09:38.520] And President Trump is really showed for the world
+- [09:45.020] that he can manage this fire in the Middle East,
+- [09:48.920] and that's why I hope that he will do this,
+- [09:51.080] and we will also have such big success for Ukraine
+- [09:55.280] is a big chance,
+- [09:56.730] and I hope that President Trump can manage it.
+- [10:00.660] The President: I would say the biggest difference is one
+- [10:02.620] is extremely competent
+- [10:04.710] and the other one is grossly incompetent
+- [10:08.970] The Press: Sir, a few weeks ago in New York, when you two met,
+- [10:12.050] you said that you think Ukraine could ultimately take back
+- [10:14.100] all the territory that it's lost so far.
+- [10:15.450] Do you still think that's the case, or do you think
+- [10:16.910] there'll have to be some sort of swap in territory?
+- [10:18.210] The President: You never know.
+- [10:19.410] Look, you know, war is very interesting.
+- [10:20.780] You never know, do you? You just never know with war.
+- [10:23.950] War and peace, but you never know. Please.
+- [10:28.890] The Press: Russia calls Tomahawk supply to Ukraine
+- [10:32.030] as an escalation, yet it continues using
+- [10:34.680] similar cruise missiles like Caliber and --
+- [10:38.100] The President: Who are you with?
+- [10:39.790] The Press: Ukraine.
+- [10:41.130] The President: You -- Ukraine.
+- [10:42.700] The Press: But Russia continued even using the cruise missiles
+- [10:47.300] and also nuclear-capable ballistic missiles in Ukraine
+- [10:50.320] since 2022.
+- [10:53.190] So do you consider providing Ukraine
+- [10:54.890] with the Tomahawk or similar missiles
+- [10:58.490] as an opportunity to equalize the possibilities of Ukraine
+- [11:02.820] and Russia and push Moscow to the negotiation table?
+- [11:06.100] The President: Yeah, sure.
+- [11:07.310] We're going to be talking about that.
+- [11:08.670] That's why we're here. Fair question.
+- [11:11.870] Exactly as he told you to say it.
+- [11:14.070] But we're going be talking it about it.
+- [11:16.140] Okay? Yeah, please.
+- [11:17.410] The Press: There's a message to India and Hungary
+- [11:19.330] who are still --
+- [11:20.880] The President: You said India and Hungary?
+- [11:23.090] That's an interesting -- India and Hungary.
+- [11:26.320] It's an interesting combination.
+- [11:27.590] The Press: (inaudible)
+- [11:28.850] refuse to stop buing Russian oil.
+- [11:31.420] The President: Well, India is not going to be
+- [11:34.560] buying Russian oil anymore.
+- [11:37.130] And Hungary is sort of stuck, because they have one pipeline.
+- [11:41.070] It's been there for years and years and year.
+- [11:43.430] And they're inland. They don't have sea.
+- [11:45.250] They don't have sea,
+- [11:46.490] and I spoke with the very great leader of Hungary.
+- [11:51.430] And they are, you know, it's very hard for them to get oil.
+- [11:54.470] I understand it. Hungary's in a very interesting position
+- [11:59.510] because they can't have ports,
+- [12:00.870] you know, they're surrounded by land.
+- [12:03.550] So we'll see what happens there.
+- [12:05.070] But India will not be buying oil from Russia.
+- [12:10.200] They've already de-escalated
+- [12:11.940] and they've more or less stopped.
+- [12:14.420] They're pulling back.
+- [12:15.730] They bought about 38 percent of the oil,
+- [12:18.360] and they won't be doing it anymore.
+- [12:20.750] The Press: Mr. President, First Lady Melania Trump
+- [12:22.980] has been helping you in achieving peace in Ukraine.
+- [12:24.950] The President: Who has?
+- [12:26.200] The Press: First lady Melania Trump
+- [12:27.540] is helping in returning abducted Ukrainian children
+- [12:31.320] from Russian captivity. President Zelensky,
+- [12:33.940] do you appreciate those efforts, how do you assess them,
+- [12:36.360] and did you ask her to step in and to help you?
+- [12:39.260] The President: Now she wanted to do it.
+- [12:40.570] She's very strongly about the children.
+- [12:43.390] And she's done a really good job,
+- [12:48.080] I think, in bringing it to the fore.
+- [12:51.160] You know, we have a lot of children involved.
+- [12:53.070] Now, some people say it's 20,000,
+- [12:56.170] and some people it's 300.
+- [12:58.730] There's a big difference between that, so nobody really knows.
+- [13:01.200] But she felt very strongly about the kids.
+- [13:05.010] She thinks about the children all the time.
+- [13:07.060] The Press: President Trump,
+- [13:08.940] if you okay Tomahawks to Ukraine,
+- [13:13.510] what's going to happen if the United States is in a conflict,
+- [13:17.190] and we need the Tomahawks?
+- [13:18.960] The President: Well, that's a problem.
+- [13:20.700] We need Tomahawks and we need a lot of other things
+- [13:24.400] that we've been sending over the last four years to Ukraine.
+- [13:27.760] We've been, you know, we gave them a lot.
+- [13:30.250] Now we have a different situation.
+- [13:31.570] We send it to the European Union.
+- [13:33.110] They pay for it and all that, and they have plenty of money.
+- [13:36.360] But we -- it's beyond the money. You know, We need tomahawk,
+- [13:40.540] so we need lot of weapons that we're sending to Ukraine,
+- [13:43.590] and one of the reasons we want to get this war over
+- [13:45.700] is exactly that.
+- [13:47.870] It's not easy for us to give you're talking
+- [13:49.660] about massive numbers of very powerful weapons.
+- [13:53.440] So that's one of the things we'll be talking about.
+- [13:55.860] Hopefully they won't need it.
+- [13:57.130] Hopefully we'll able to get the war over with
+- [13:59.110] without thinking about Tomahawks.
+- [14:04.700] I think we're fairly close to that.
+- [14:06.840] President Zelensky: Can I say -- just to understand,
+- [14:10.860] so for today, of course, we want to finish this war,
+- [14:15.370] but the war is another technological war.
+- [14:18.500] You don't use just tomahawks.
+- [14:20.720] If you want to target a military goal,
+- [14:24.690] you need thousands of drones.
+- [14:26.970] It goes together with such missiles.
+- [14:29.180] Ukraine has such thousands of our production drones,
+- [14:33.140] but we don't have Tomahawks. That's why we need tomahawks.
+- [14:36.360] But the United States is a very strong production.
+- [14:41.730] And the United State has tomahawks
+- [14:43.980] and other missiles, very strong missiles.
+- [14:46.550] But they can have our thousands of drones.
+- [14:49.800] That's where we can work together,
+- [14:51.790] where we strengthen American production.
+- [14:55.430] The Press: And so just so that I understand.
+- [14:57.050] So you're suggesting kind of a trade.
+- [14:59.920] If President Trump okays tomahawk missiles
+- [15:02.470] to help you launch --
+- [15:04.230] President Zelensky: Yes, it's about military goals,
+- [15:06.220] it is only about military goals.
+- [15:07.990] The Press: Right, but then you would authorize
+- [15:09.920] some kind of an exchange where the U.S. gets --
+- [15:12.600] President Zelensky: Yes, we have proposition.
+- [15:15.000] We have (inaudible) with our drones.
+- [15:17.310] The Press: President Trump,
+- [15:18.560] I don't mean to be brokering an arms deal here,
+- [15:20.740] but is that something that you would be interested in,
+- [15:23.040] Ukrainian drones?
+- [15:24.940] The President: We are, yeah, we would.
+- [15:26.540] We have a lot of drones right now.
+- [15:28.210] We build our own drones, but we also buy drones from others.
+- [15:32.910] And they make a very good drone.
+- [15:34.460] I mean, drone warfare has really come to the fore
+- [15:37.750] over the last couple of years because of this war.
+- [15:41.820] I will say, there's nothing like the jets.
+- [15:44.160] You know, we locked out a lot drones in Israel.
+- [15:47.520] We were knocking them out for Israel.
+- [15:50.180] And we were doing it with extremely fast
+- [15:52.310] and powerful jets.
+- [15:54.220] Following the drones and knocking the hell out of them.
+- [15:57.240] So it's, you know, if we've we know a lot about the drones
+- [16:00.820] that we know about the great jets, the great ones.
+- [16:04.380] The ones well -- and the b-52s
+- [16:06.480] which were totally under there was stealth.
+- [16:08.630] They were undetectable
+- [16:10.150] So we have a lot of different weapons.
+- [16:12.460] And you know we I have an obligation also though
+- [16:14.380] to make sure
+- [16:15.620] that we're completely stocked up as a country
+- [16:19.860] because you never know what's going to happen
+- [16:22.680] In war and peace, right?
+- [16:23.950] You never know what's going to happen.
+- [16:25.970] So we're going to be talking about Tomahawks.
+- [16:28.410] And we'd much rather have them not need
+- [16:32.600] Tomahawks. Would much rather the war be over, to be honest.
+- [16:36.900] Because, you know, we're in it to get the war over.
+- [16:38.730] We're not -- we're selling a lot of different types of weapon,
+- [16:45.360] as you know to the European Union.
+- [16:47.740] We're in not in it for that. We're it in it get it over.
+- [16:49.710] We're losing thousands of people a week.
+- [16:51.990] Thousands of people, Russian, Ukrainian, and mostly soldiers.
+- [16:56.040] I mean, mostly soldiers, but we're in it to see that end.
+- [17:00.650] And if we can end quickly, and I think we can.
+- [17:03.580] I mean I had a very good talk yesterday.
+- [17:05.240] We're going to be talking about it,
+- [17:07.180] but I had very productive talk yesterday with President Putin.
+- [17:09.950] We'll see what happens.
+- [17:11.580] But the war in the Middle East was far more complicated.
+- [17:15.040] We got that one done, and, I think, we have a good chance.
+- [17:18.720] I think President Zelensky wants it done,
+- [17:21.020] and I think President Putin want it done.
+- [17:24.210] Now all they have to do is get along a little bit.
+- [17:27.380] The Press: Can you give us an update
+- [17:31.140] on the trade negotiations with China?
+- [17:33.330] The President: Yeah, I will.
+- [17:34.550] And I'm going to let Scott do that.
+- [17:36.730] But I think we're doing very well.
+- [17:39.800] I think were getting along with China.
+- [17:42.130] China would like to have something.
+- [17:44.030] As of this moment, we'll be meeting in a couple of weeks.
+- [17:46.400] We'll meeting in South Korea, myself.
+- [17:48.510] The Press: (inaudible)
+- [17:49.790] The President: I think so.
+- [17:51.000] It looks like it's going forward.
+- [17:52.210] I think, so they want to meet.
+- [17:54.190] We like to meet I have a very good relationship
+- [17:57.060] with President Xi and we're going to see what happens.
+- [18:00.620] But, you know, for years,
+- [18:02.190] we were taken advantage of by China very badly.
+- [18:06.510] We were losing hundreds of billions of dollars
+- [18:08.750] a year to China.
+- [18:10.130] We really built their military, if you think about it.
+- [18:13.190] The kind of money that presidents
+- [18:15.130] allowed to be lost to China was just insane.
+- [18:19.650] And then when I came into office, as you know,
+- [18:21.510] I put very severe tariffs.
+- [18:23.310] So we took in hundreds of millions of dollars
+- [18:25.620] in my first term from China.
+- [18:28.030] Biden let that go because it was so much.
+- [18:30.010] He let it continue, but he gave all sorts of exceptions.
+- [18:34.860] And by the time you looked at it, Scott,
+- [18:36.490] I would say it wasn't the same thing.
+- [18:39.770] He would give an exception for anything.
+- [18:43.120] If you got up and went out to dinner,
+- [18:44.650] he'd give you an exception. So it wasn't the same.
+- [18:47.400] But I put on very serious tariffs.
+- [18:50.390] So we took in hundreds of billions of dollars.
+- [18:53.020] And then we, I left office. The election was rigged.
+- [18:56.320] I left the office, and that was the story.
+- [18:58.310] Now I come back and we are in a very strong position
+- [19:02.500] because of tariffs.
+- [19:03.780] We're in a very powerful position
+- [19:05.910] because of the fact that we have tariffs.
+- [19:07.710] If we didn't have tariffs,
+- [19:08.910] we would be in a very weak position.
+- [19:11.540] We would be at a weakened state.
+- [19:14.070] But with tariffs, we've made hundreds of billions of dollars,
+- [19:17.350] not only from China, but from others.
+- [19:19.610] And China wants to talk, and we like talking to China.
+- [19:23.160] So, we have a very good relationship,
+- [19:25.210] and we're going to be meeting in South Korea couple of weeks.
+- [19:30.000] And I just got back from a long trip.
+- [19:31.760] I'm going on another long trip.
+- [19:33.620] And Scott, do you want to say a few words on that, please?
+- [19:35.880] Secretary Bessent: Yes sir,
+- [19:37.080] so the entire relationship stems from the great respect
+- [19:40.390] that the two leaders have for each other.
+- [19:42.730] China did a substantial, unprovoked escalation last week.
+- [19:48.030] We were unable to get in touch with them.
+- [19:49.600] Since then it's been IMF World Bank Week.
+- [19:52.900] They have had working-level people here.
+- [19:55.820] There have been meetings.
+- [19:57.170] The Vice Premier, who is my counterpart,
+- [19:59.460] and I will be speaking this evening at around 8.30, 9:00.
+- [20:04.670] And then he and I and a delegation will meet in Malaysia
+- [20:09.040] probably a week from tomorrow
+- [20:10.860] to prepare for the two presidents to meet.
+- [20:14.150] So I again, I think that things have de-escalated.
+- [20:18.880] We hope that China will show the respect
+- [20:22.210] that we have shown them.
+- [20:23.840] And I am confident that President Trump,
+- [20:26.680] because of his relationship with President Xi,
+- [20:29.040] will be able to get things back on a good course.
+- [20:31.600] The Press: Is the hope for that meeting with you
+- [20:33.350] and President Xi some kind of trade deal then?
+- [20:35.330] The President: Could be.
+- [20:36.710] Look, I think we're in a very strong position.
+- [20:38.720] I think we're a very strong position.
+- [20:42.180] We're getting, as you know, as of November 1st,
+- [20:45.300] I could move it up if I wanted,
+- [20:48.530] uh 100 percent tariff over and above what we get now.
+- [20:52.080] So that would make it about 157 percent.
+- [20:56.130] And China doesn't want that.
+- [20:58.100] And they want to talk and we're talking.
+- [21:00.870] And I think will make a deal that will be good for both.
+- [21:03.350] I think we will do something. But you have to understand,
+- [21:07.350] we never got anything from China.
+- [21:09.300] It was a one-way street.
+- [21:10.850] For many years, for decades, it was a one- way street.
+- [21:14.140] And they became rich because of the United States.
+- [21:16.510] And frankly, presidents said, let's be nice, they didn't know.
+- [21:20.640] They just didn't know.
+- [21:21.980] They didn't understand what was happening to them.
+- [21:23.920] But I understood it.
+- [21:25.210] I understood it long before I ran for politics.
+- [21:27.470] I used to watch in amazement at how stupid our country was,
+- [21:32.050] how stupid they were. And we're not stupid anymore.
+- [21:35.900] And that includes with the European Union.
+- [21:37.830] That includes with Japan and South Korea.
+- [21:40.820] All we want to do is be treated fairly.
+- [21:43.300] But the fairly is hundreds of billions
+- [21:46.590] and even trillions of dollars coming into the United States.
+- [21:49.440] And it's our national security is secure because of tariffs.
+- [21:54.860] If we didn't have tariffs, we would have no national security.
+- [21:59.020] So it's very important.
+- [22:00.270] The Press: Will you seek China's help
+- [22:01.500] in ending the war in Ukraine
+- [22:03.020] (inaudible)?
+- [22:04.230] The President: I'll be discussing that,
+- [22:05.710] but I'd love to see it ended before that.
+- [22:09.070] I mean, I think we have a chance of ending the war quickly
+- [22:12.630] if flexibility is shown on behalf.
+- [22:16.070] And again, we're not losing people.
+- [22:18.380] The United States is not -- we're losing people,
+- [22:20.940] we are not spending money, we are getting paid
+- [22:22.820] for the, you know, ammunition and missiles
+- [22:25.430] and everything else that we're sending to the European Union --
+- [22:29.230] European Union, but to NATO. But it's very similar.
+- [22:33.350] If you look at the countries, I mean, it's very similar,
+- [22:36.500] and we just made a very fair trade deal
+- [22:38.510] with the European Union and what we wanted,
+- [22:41.230] and we made a good deal with NATO, too.
+- [22:43.100] You know, they pay for all of this.
+- [22:45.650] That's not what we're in this for.
+- [22:46.860] We're in it to save thousands of lives every week.
+- [22:51.800] Thousands and thousands of life. That's why we're it.
+- [22:56.200] And I think we have a very good chance
+- [23:00.190] of bringing this war to a conclusion.
+- [23:03.650] The Press: (inaudible)
+- [23:07.940] a lot of people could agree to that.
+- [23:09.340] The President: Thank you.
+- [23:10.580] The Press: I'm speaking as someone who lost
+- [23:12.100] my father in a war, so I know the human cost.
+- [23:14.860] What would your advice be to American leaders,
+- [23:17.420] to world leaders, to neocons, to TV hosts
+- [23:21.680] who often speak about conflict in abstract or strategic terms,
+- [23:25.680] rather than the human costs and the human terms?
+- [23:28.570] The President: Look, my only statement
+- [23:29.860] is we have to get together.
+- [23:31.110] It's a very small group of people.
+- [23:33.240] It's the president, the president and the president.
+- [23:36.190] Okay? Three presidents. And I'm the mediator president.
+- [23:40.830] And I am mediating, not an easy situation.
+- [23:43.370] It should be easy, but it's a lot easier
+- [23:46.240] when people understand each other,
+- [23:48.420] when they get together, and when they like each other.
+- [23:50.340] We don't necessarily have that situation
+- [23:53.270] as far as like is concerned.
+- [23:55.170] Maybe it can turn around. Maybe it cannot.
+- [23:58.090] But in the meantime,
+- [24:00.000] we'll have them keep a little bit of distance,
+- [24:01.840] and we're going to see if we can get it done.
+- [24:04.030] This is number nine, okay? This will be number nine for me.
+- [24:10.260] I've solved eight, including the Middle East.
+- [24:13.000] I've soled eight.
+- [24:14.660] This, I thought, would have been among the easiest.
+- [24:18.590] We solved -- President Putin mentioned yesterday, Armenia.
+- [24:21.640] You know, all of the different wars he said.
+- [24:23.900] And it was amazing because we --
+- [24:26.000] but the big one that he was surprised
+- [24:28.570] that we were able to settle was the Middle East.
+- [24:30.190] He thought it was incredible.
+- [24:31.410] He was very generous in that sense.
+- [24:34.140] This should be something we're able to settle,
+- [24:36.260] and I think we will be able to settle it.
+- [24:39.370] Brian?
+- [24:40.610] The Press: On that note, you will go down
+- [24:42.170] as the peacemaker, no doubt, and you will resolve this war --
+- [24:46.500] The President: Well, you know, we resolved eight others.
+- [24:49.020] It's funny how people say that. If you get this one,
+- [24:51.940] every time I do one, they forget about that one.
+- [24:55.520] I solved eight wars. Go to Rwanda and the Congo,
+- [24:59.920] talk about India and Pakistan, look at Thailand,
+- [25:05.640] look at all of the wars that we solved.
+- [25:08.110] And every time, I solve one,
+- [25:09.410] they say if you solve the next one,
+- [25:12.040] you're going to get the Nobel Prize.
+- [25:13.520] I didn't get a Nobel Prize, somebody got it.
+- [25:15.770] It was a very nice woman, very nice.
+- [25:18.510] I don't know who she is, but she was very generous.
+- [25:23.640] I don't care about all that stuff.
+- [25:25.310] I just care about saving lives.
+- [25:27.070] But this will be number nine. But every time I solve one,
+- [25:30.000] they say, sir, if you solve one more,
+- [25:32.360] you're going to be known as a peacekeeper.
+- [25:33.950] So, to the best of my knowledge,
+- [25:35.430] we've never had a president that solved one war.
+- [25:38.620] Not one war, Bush started a war.
+- [25:41.580] A lot of them start wars, but they don't solve the wars.
+- [25:43.880] They don't settle them. And especially when they're not,
+- [25:47.190] when they have nothing to do with us.
+- [25:48.990] I sell almost, I guess, just about all of these wars
+- [25:52.000] had nothing to do with us.
+- [25:53.720] But I saved tens of millions of lives.
+- [25:56.160] The Prime Minister of Pakistan said
+- [25:58.300] I saved millions of lives in interceding on Pakistan.
+- [26:02.980] And you look at Pakistan and India as an example.
+- [26:06.090] That would have been a bad one.
+- [26:07.390] Two nuclear nations, right? So I say this.
+- [26:11.630] This is pretty much the last one,
+- [26:14.240] although I do understand that Pakistan attacked
+- [26:16.920] or there is an attack going on with Afghanistan.
+- [26:20.290] That's an easy one for me to solve if I have to solve it.
+- [26:23.070] In the meantime, I have to run the USA.
+- [26:25.000] But I love solving wars. You know why?
+- [26:27.070] I like stopping people from being killed.
+- [26:29.600] And I've saved millions and millions of lives.
+- [26:32.370] And I think we're going to have success with this war.
+- [26:36.000] The Press: This is, President Zalesky,
+- [26:41.210] this is your third time over here.
+- [26:43.280] And by the way, you look excellent.
+- [26:44.760] President Zelensky: Thank you, sir.
+- [26:46.150] Thank you for it.
+- [26:48.990] The Press: This is your third time here.
+- [26:50.520] How different sitting across from the President
+- [26:52.850] is this time versus the two previous times
+- [26:55.710] here at the White House,
+- [26:57.050] and how confident are you hearing the success rate
+- [27:00.230] of solving these prior wars
+- [27:02.310] that you think he can get this war solved?
+- [27:04.820] President Zelensky: First of all,
+- [27:06.130] about suits, the same suit
+- [27:09.100] because the same president, it's very simple.
+- [27:12.410] The next president will have another suit.
+- [27:15.770] Yes, about our relations with President Trump,
+- [27:20.480] I think we have important dialogs,
+- [27:24.880] and I think, we began to understand each other, yes,
+- [27:30.980] and I know that President is briefed very well
+- [27:35.120] about the situation in the battlefield
+- [27:37.390] and he knows a lot what's going on
+- [27:39.090] in the battle field in Ukraine
+- [27:41.550] and I think it really helps when you know a lot of things,
+- [27:45.140] a lot details about one or another war it helps a lot
+- [27:53.220] but we are still in the war.
+- [27:54.870] The Press: (inaudible)
+- [27:58.780] not meeting their commitment. You pointed out Spain,
+- [28:02.030] they said that like it's impossible --
+- [28:03.790] The President: No, Spain has not come through,
+- [28:05.560] no, Spain has not been loyal to NATO.
+- [28:08.650] Spain has been, they're the only one.
+- [28:11.470] Everyone went up to, as you know,
+- [28:13.770] I mean, you were at 2 percent
+- [28:15.960] and they all went up to 5 percent,
+- [28:17.410] but Spain disagreed with that.
+- [28:22.980] Spain should be reprimanded for that.
+- [28:25.140] I think it's very bad that they did that,
+- [28:27.010] but that's up to them. That's up NATO and Spain.
+- [28:30.140] The Press: (inaudible)
+- [28:32.690] they cannot be expelled from NATO --
+- [28:35.010] The President: Can they or not?
+- [28:36.210] The Press: They cannot according to the (inaudible)
+- [28:37.630] but they also claim that they are protected
+- [28:39.200] by the European Union umbrella for trade.
+- [28:42.580] The President: The other people, many of the other countries
+- [28:44.560] are in the European Union too, they're not complaining.
+- [28:54.670] Please, go ahead.
+- [28:55.900] The Press: Thank you, Mr. President.
+- [28:57.740] Do you think you can carry the momentum
+- [28:59.460] from the Middle East deal over to this deal?
+- [29:01.500] If so, how does that (inaudible)?
+- [29:02.790] The President: Yeah, I do.
+- [29:04.010] I think we carry a lot of momentum,
+- [29:05.250] a lot of credibility.
+- [29:06.480] Getting Middle East done was very important.
+- [29:08.310] Nobody thought it could be done.
+- [29:09.640] That was one nobody thought could be done,
+- [29:11.690] and we got it done.
+- [29:13.240] And a lot of that was the big hit
+- [29:15.540] that we put on Iran with respect to the nuclear they took.
+- [29:21.290] That was an unbelievable military maneuver,
+- [29:25.200] the B-2s, and many other planes involved,
+- [29:27.570] by the way, but the B2s.
+- [29:29.960] Yeah, I think nobody expected that to happen.
+- [29:32.570] And 59 countries involved,
+- [29:36.170] and these were countries, very diverse.
+- [29:38.720] You had Arab, Muslim, Jewish, you had every kind of,
+- [29:42.120] you had to every country, Christian.
+- [29:44.600] You had every country of many countries involved
+- [29:46.800] and we got that done.
+- [29:48.160] And we got it done pretty swiftly
+- [29:50.000] after we set the table properly.
+- [29:52.860] We had to set the table properly.
+- [29:55.760] This should be one that we got done.
+- [29:58.280] And I think the table is set properly here now.
+- [30:01.550] And it will be a great honor to get it done.
+- [30:05.830] And the Ukrainian people are great
+- [30:08.480] and the Russian people are great.
+- [30:11.320] And obviously, they have much in common, as we understand.
+- [30:14.260] They have a lot in common.
+- [30:15.710] So it'll be a greater honor to it done, yeah.
+- [30:19.610] The Press: On Venezuela,
+- [30:20.990] there are survivors from your latest boat strike.
+- [30:23.740] What happens to those survivors?
+- [30:25.510] The President: Well, I'll ask Marco to discuss that possibly.
+- [30:29.230] Secretary Rubio: Yeah, it's well known
+- [30:30.490] there's an ongoing narco-terrorist operation
+- [30:34.060] the United States has been conducting.
+- [30:35.860] As far as details of any recent strikes,
+- [30:38.190] we're not prepared here to announce all those details,
+- [30:40.390] but you'll get that information here very shortly.
+- [30:42.320] The Press: And how are there survivors
+- [30:43.560] when these are meant to be lethal attacks?
+- [30:45.940] Secretary Rubio: Yeah, again, I mean, we're undertaking
+- [30:47.600] these operations against narco-terrorists.
+- [30:49.240] That's what these are. These are terrorists.
+- [30:50.570] Let's be clear.
+- [30:52.830] But as far as the details of any recent operations,
+- [30:55.010] when we are prepared to announce those,
+- [30:57.310] we will, as the President has consistently done.
+- [30:59.330] So you may get something on that later today.
+- [31:02.880] The President: Let me -- that was in a submarine, right?
+- [31:06.890] We attacked a submarine.
+- [31:08.990] And that was a drug-carrying submarine built specifically
+- [31:15.710] for the transportation of massive amounts of drugs,
+- [31:19.230] just so you understand.
+- [31:20.530] This was not an innocent group of people.
+- [31:22.800] I don't know too many people that have submarines.
+- [31:25.650] And that wasn't an attack on a drug carrying,
+- [31:30.350] loaded up submarine. Yeah.
+- [31:33.870] The Press: On Putin, is it your belief,
+- [31:35.380] as Mr. Zelensky said yesterday,
+- [31:37.590] that the threat of Tomahawks and costs,
+- [31:40.330] as Secretary Hegseth put it,
+- [31:41.960] is that bringing him to the table,
+- [31:43.690] the fact that it's kind of a carrot and stick?
+- [31:45.340] The President: I don't know what's bringing him to –
+- [31:46.970] I think he wants to make a deal, that's all.
+- [31:49.000] I can't tell you what's bring him.
+- [31:50.460] Sure, the threat of that is good,
+- [31:52.420] but the threat is always there.
+- [31:57.300] Tomahawks are very dangerous weapons.
+- [31:59.820] They're incredible weapons.
+- [32:02.030] If you like warfare, it's one of the most accurate –
+- [32:05.990] you know, we used –
+- [32:07.540] we at 30 tomahawks in Iran after the B-2s did their damage.
+- [32:11.690] We sort of gave it a little capper
+- [32:13.870] with 30 tomahawks from a submarine.
+- [32:16.540] Quite far away, actually, but they're an amazing weapon.
+- [32:19.470] They're a very powerful weapon,
+- [32:21.480] but they are a very dangerous weapon.
+- [32:22.960] And it could mean big, you know, escalation.
+- [32:26.160] It could mean a lot of bad things can happen.
+- [32:30.780] Tomahawks are a big deal.
+- [32:33.230] But one thing I have to say, we want tomahawks also.
+- [32:36.930] We don't want to be giving away things
+- [32:39.880] So we need to protect our country.
+- [32:42.690] We have a very strong country right now.
+- [32:44.550] We have the greatest military in the world.
+- [32:47.840] We have greatest weapons in the world.
+- [32:49.870] I want to get this war over.
+- [32:51.920] The Press: (inaudible)
+- [32:55.660] tunnel to connect Russia and Alaska, are you interested?
+- [32:58.740] The President: I just heard about it.
+- [32:59.990] A tunnel from Russia to Alaska. I just heard about that one.
+- [33:04.040] That's an interesting one. We'll have to think about that.
+- [33:06.760] I hadn't heard that. We just did a nice road in Alaska
+- [33:09.880] that's going to get us to a lot of minerals.
+- [33:11.610] And we have a piece of it, a good piece of the ownership
+- [33:14.610] because of the fact we made it possible.
+- [33:16.300] But this came up yesterday, a tunnel from Russian to Alaska,
+- [33:21.060] that's an interesting.
+- [33:22.350] What do you think of that, Mr. President?
+- [33:23.840] Do you have any ideas? How do you like that idea?
+- [33:27.490] President Zelensky: I'm not happy with it.
+- [33:28.710] The President: I don't think you're going to like it.
+- [33:30.380] I don't think he liked it. I don think you like it.
+- [33:32.830] The Press: Do you think that Vladimir Putin --
+- [33:35.040] do you think that Putin is serious? Your gut instinct.
+- [33:37.790] The President: Well, we had a senator that wanted,
+- [33:40.470] remember, from Hawaii.
+- [33:41.760] She wanted a tunnel from the mainland to Hawaii.
+- [33:45.700] Then she said, well, we can't do that,
+- [33:47.340] so we're going to build a railroad to Hawaii,
+- [33:49.600] do you remember? She's a current sitting senator, a Democrat.
+- [33:53.090] She wants a railroad, to go to Hawaii right?
+- [33:56.160] You know who that is, right?
+- [33:57.420] She's another -- she's another beauty.
+- [34:01.640] Yeah, please.
+- [34:02.950] The President: On your meeting with Putin,
+- [34:05.250] aren't you concerned that maybe the Russian President
+- [34:08.070] is trying to buy himself more time?
+- [34:13.100] The President: I've been played all my life by the best of them,
+- [34:16.410] and I came out really well.
+- [34:20.160] So it's possible, yeah, a little time. It's all right.
+- [34:23.480] But I think that I'm pretty good at this stuff.
+- [34:26.650] I think he wants to make a deal.
+- [34:29.140] I made eight of them. I'm going to make it a ninth.
+- [34:31.750] I think he wants to make the deal.
+- [34:33.100] The Press: Do you consider Russia to be a paper tiger.
+- [34:35.330] Do you think judging by the state of this economy --
+- [34:37.880] The President: Well, I think that he should have won the war
+- [34:40.510] in a week, yeah, I do think.
+- [34:43.000] And if we didn't give the anti-tank missiles,
+- [34:47.240] as you know, the javelins, they call them,
+- [34:50.880] they got stuck in the mud, they would have been in Kiev
+- [34:54.570] very quickly, they were heading to Kiev.
+- [34:56.770] So, you know in war you have a lot of luck too, you, know,
+- [35:01.280] people, weather has won war and the cold and the heat
+- [35:05.250] and all things take place in war,
+- [35:07.830] but that was a very interesting moment
+- [35:10.140] when the tanks started rolling and some brilliant generals
+- [35:12.990] said, let's go through the mud
+- [35:14.310] instead of going down the highway, right?
+- [35:16.590] So they got a little bit lucky.
+- [35:18.400] But you know where they really got lucky?
+- [35:20.050] I gave javelins.
+- [35:21.410] That wasn't given by Barack Hussein Obama.
+- [35:23.630] He gave them sheets. You know, there's a statement,
+- [35:26.610] Obama gave them sheets and I gave them the javelins.
+- [35:29.750] And the Javelins are a devastating weapon.
+- [35:35.290] That wasn't given by Obama. That was given by Trump,
+- [35:38.640] because at the time it was Obama.
+- [35:41.380] That was giving by me.
+- [35:44.350] So it was like one of those things.
+- [35:47.630] And you had hundreds of them.
+- [35:49.960] Hundreds of them, they're a devastating weapon.
+- [35:52.200] We have a lot of devastating weapons.
+- [35:53.770] I'd rather not use them. But that was a big moment.
+- [35:56.400] You know, when the tanks got stuck, they got stuck.
+- [36:02.380] And call it luck or call it talent.
+- [36:04.900] I'm not sure what you'd call it, but it was a big moment in time.
+- [36:08.290] The President: Do you think Democrats will give you credit
+- [36:12.000] when you finally end this war,
+- [36:13.560] like they did with the war in the Middle East?
+- [36:15.330] The President: I think right now the Democrats
+- [36:17.140] are really damaged, mentally damaged.
+- [36:20.570] They want to take 1.5 trillion with a T, trillion dollars,
+- [36:25.480] and give it to people that invaded our country.
+- [36:28.690] They came into our country illegally from prisons,
+- [36:32.560] from mental institutions, gang members.
+- [36:35.880] They want give them health care
+- [36:38.000] and take it away from our citizens.
+- [36:39.270] We're not going to do that.
+- [36:40.510] $1.5 trillion they want to destroy.
+- [36:43.180] They want to destroy our healthcare system.
+- [36:45.070] We're not going to let that happen.
+- [36:46.710] The Press: (inaudible)
+- [36:49.660] present CIA operations in Venezuela
+- [36:51.180] (inaudible)
+- [36:52.380] The President: Well, I wouldn't say that,
+- [36:53.670] but some interesting things are happening around the world,
+- [36:57.240] I'll say that.
+- [36:58.460] The Press: (inaudible)
+- [36:59.680] has been reporting that Maduro offered everything
+- [37:03.880] in his country, all the natural resources.
+- [37:06.000] He even recorded a message to you
+- [37:07.490] in English recently offering mediation.
+- [37:10.470] What (inaudible) to stop that?
+- [37:12.420] The President: He has offered everything.
+- [37:14.340] He's offered everything. You're right. You know why?
+- [37:17.380] Because he doesn't want to fuck around with the United States.
+- [37:20.730] Thank you, everybody. Thank you, everybody.

@@ -1,0 +1,108 @@
+<!-- source: https://www.youtube.com/watch?v=U2SxsVV1D2Y -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: U2SxsVV1D2Y -->
+<!-- date_published: 2025-10-26T02:16:55+00:00 -->
+<!-- date_accessed: 2026-06-02T02:42:52.985998+00:00 -->
+
+# Transcript: President Trump Arrives in Kuala Lumpur, Malaysia
+
+- [00:10.559] And now here it is ladies and gentlemen
+- [00:13.360] the moment that we have been waiting
+- [00:14.960] for. The door of Air Force One has
+- [00:17.359] opened and emerging now. President of
+- [00:19.760] the United States of America Donald
+- [00:22.320] Trump.
+- [00:24.720] Stepping out from the aircraft cabin.
+- [00:26.800] The president pauses briefly at the
+- [00:28.880] doorway, acknowledging the ceremonial
+- [00:31.039] reception that awaits him below. The
+- [00:33.360] bright Malaysian sun reflects off the
+- [00:36.079] Air Force One, creating a striking image
+- [00:37.840] of power and diplomacy. A moment that
+- [00:39.840] will be remembered in both nations
+- [00:41.600] history.
+- [00:53.520] And there it is, a historic moment
+- [00:55.280] captured live here at complex Bungaraya,
+- [00:57.520] Koala Lumpur International Airport. A
+- [00:59.760] warm handshake just now between Prime
+- [01:02.160] Minister and President of the United
+- [01:04.640] States.
+- [01:19.920] And now both leaders, Prime Minister
+- [01:22.000] Datriano Ibrahim and President Donald
+- [01:24.080] Trump walk side by side along the red
+- [01:26.640] carpet here at complex Bungaraya. It is
+- [01:29.759] a graceful moment of diplomacy, a
+- [01:32.159] gesture of friendship that speaks of
+- [01:33.759] mutual respect between ASEAN, Malaysia
+- [01:37.840] and the United States.
+- [01:57.119] Following the ceremonial honors, Prime
+- [01:59.280] Minister Datsriano Ibrahim is
+- [02:00.960] introducing President Donald Trump to
+- [02:03.040] members of the Malaysian cabinet and
+- [02:05.040] senior government officials gathered
+- [02:07.040] here at the complex Bugaraya.
+- [02:33.920] And this is indeed a rare and historic
+- [02:36.480] moment unfolding live here at complex
+- [02:39.200] Buraya. For the very first time, Prime
+- [02:41.680] Minister Datiano Ibrahim and President
+- [02:43.599] Donald Trump stand together. Two leaders
+- [02:45.920] from two nations meeting face to face on
+- [02:48.239] Malaysian soil.
+- [02:51.040] It is a scene filled with significance.
+- [02:53.280] the convergence of leadership,
+- [02:55.200] experience and vision. And for Malaysia
+- [02:58.000] and ASEAN, this meeting represents
+- [03:00.319] continuity and confidence in global
+- [03:02.720] diplomacy. For the United States, it
+- [03:05.680] reaffirms the strength of friendship and
+- [03:07.440] cooperation with a steadfast partner in
+- [03:10.159] Southeast Asia.
+- [03:24.560] >> And the exchange between the two leaders
+- [03:26.400] is warm, courteous, and genuine. You can
+- [03:29.760] see the mutual respect, a reflection of
+- [03:32.319] Malaysia's diplomatic grace and the
+- [03:34.560] American spirit of engagement. Moments
+- [03:37.519] like this, though brief, carry the
+- [03:40.480] weight of decades of partnerships and
+- [03:42.640] the promise of future collaboration.
+- [04:11.760] And what a wonderful site we are
+- [04:13.360] witnessing right now at Complex Muraya.
+- [04:15.360] In rare and light-hearted moment,
+- [04:16.959] President Donald Trump has joined the
+- [04:18.400] Malaysian dancers, moving to the
+- [04:20.239] cheerful rhythm of the ensemble. A
+- [04:23.440] spontaneous gesture of goodwill that
+- [04:25.280] instantly lights up the ceremony.
+- [04:38.720] >> No, you're not going anywhere. You're
+- [04:40.000] going to stay right here. You have to.
+- [04:42.320] >> You're stuck now until he gets in the
+- [04:43.759] car.
+- [04:44.880] >> Right here. Right here.
+- [05:08.240] >> You see this? behind
+- [05:13.199] behind.
+- [06:44.240] ceremony continues. We can see Prime
+- [06:47.600] Minister Datsrian Ano Ibrahim and
+- [06:49.280] President Donald Trump engaging in a
+- [06:51.520] light and friendly conversation here on
+- [06:53.360] the tarmac of complex Bungaraya.
+- [07:22.800] Okay.
+- [07:34.160] And parked nearby is the presidential
+- [07:35.840] limousine, the family black state car
+- [07:37.840] known worldwide for its security and
+- [07:39.440] symbolism. And beside it,
+- [07:43.360] the Malaysian prime minister's vehicle,
+- [07:46.880] ready to lead the convoy.
+- [07:49.360] Both are surrounded by tight yet
+- [07:51.039] discreet coordination from the Royal
+- [07:52.880] Malaysia Police, the US Secret Service,
+- [07:55.039] and the airport security personnel.
+- [08:02.160] Now both Prime Minister Datriano Ibrahim
+- [08:04.400] and President Donald Trump enter the
+- [08:06.879] vehicle the multicate doors closing
+- [08:10.319] gently behind them.
+- [08:12.639] In just a moment, the convoy will depart
+- [08:14.960] from complex Mongaraya making its way
+- [08:17.280] toward
+- [08:19.840] Koala Lumpur Convention Center
+- [08:22.800] where the ceremony will continue.

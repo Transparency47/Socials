@@ -1,0 +1,1549 @@
+<!-- source: https://www.youtube.com/watch?v=PzsmWY4ETK8 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: PzsmWY4ETK8 -->
+<!-- date_published: 2025-12-10T21:18:37+00:00 -->
+<!-- date_accessed: 2026-06-02T02:40:23.578026+00:00 -->
+
+# Transcript: President Trump Participates in a Roundtable, Dec. 10, 2025
+
+- [00:00.970] The President: Well, thank you very much.
+- [00:02.260] It's been an interesting day from the standpoint of news.
+- [00:08.640] As you probably know, we've just seized a tanker
+- [00:13.800] on the coast of Venezuela, a large tanker, very large.
+- [00:18.800] Largest one ever seized actually.
+- [00:21.710] And other things are happening, so you'll be seeing that later
+- [00:26.310] and you'll be talking about that later with some other people.
+- [00:29.650] Very excitingly for me and for the country,
+- [00:33.360] we've just launched the Trump Gold Card.
+- [00:39.340] About 30 minutes from now, the site goes up and all funds
+- [00:44.870] go to the United States government.
+- [00:46.930] It could be a tremendous amount of money.
+- [00:49.420] It'll also be able to have people like this keep,
+- [00:52.190] as an example, just one example, there are a lot of examples,
+- [00:54.770] people just buying them. It's somewhat like a green card
+- [00:58.740] but with big advantages over a green card.
+- [01:02.310] And companies are going to be able to go
+- [01:04.530] to the Wharton School of Finance,
+- [01:08.280] the Stern Business School, Harvard, MIT,
+- [01:13.850] wherever you may get your students, any school,
+- [01:17.250] and you're able to buy a card
+- [01:20.410] and keep that person in the United States actually.
+- [01:22.810] So there's certainty because a lot of --
+- [01:25.240] I've heard from Tim Cook of Apple
+- [01:28.280] and I've heard from a lot of people,
+- [01:30.410] some of the people at this table,
+- [01:32.470] that essentially in the United States,
+- [01:34.640] you can't keep the student.
+- [01:35.900] You can't hire people from the best colleges
+- [01:38.870] because you don't know whether or not you can keep the person.
+- [01:41.220] They come and have the people get out,
+- [01:44.400] they throw the person out of the country,
+- [01:45.990] you graduate number one from your college
+- [01:47.810] and there's no way of guaranteeing --
+- [01:50.800] I guess you could say, there's no way of guaranteeing
+- [01:53.390] that they're able to stay in the country.
+- [01:55.910] Howard, maybe you'll give a little description
+- [01:58.600] of the Trump Gold Card, please, sir.
+- [02:01.170] Howard Lutnick: Sure.
+- [02:02.550] So for an individual, it's $1 million
+- [02:06.020] and for a corporation, it's $2 million.
+- [02:09.390] And as the president said, for a corporation,
+- [02:13.500] they spend $2 million, they can then have an employee,
+- [02:18.450] full vetting, the best vetting the government has ever done.
+- [02:21.760] $15,000 vetting to make sure
+- [02:24.990] these people absolutely qualify to be in America.
+- [02:28.860] Absolutely qualify.
+- [02:30.660] And then the company can keep them here,
+- [02:33.520] and they have a path to citizenship.
+- [02:36.170] Obviously they have to be perfect people in America,
+- [02:39.320] and having passed the vetting after five years,
+- [02:42.260] they'll be available to become citizens
+- [02:44.270] and then the corporation can put someone else on the card.
+- [02:47.040] So for a company, they can keep putting people on the card,
+- [02:50.800] one person per card;
+- [02:52.330] and for the individual, it's a million dollars,
+- [02:54.870] and it's a gift to the United States of America
+- [02:58.180] to help America be great again under Donald Trump.
+- [03:03.270] The President: And it's really two gifts,
+- [03:04.560] it's a gift of getting somebody great coming into our country
+- [03:09.220] because we think this will be some tremendous people
+- [03:12.020] that wouldn't be allowed to stay.
+- [03:13.440] They graduate from college, they have to go back to India,
+- [03:15.690] they have to go back to China, they have to go back to France,
+- [03:19.210] they have to go back to wherever they came
+- [03:21.130] from, very hard to stay.
+- [03:23.110] It's a shame, it's a ridiculous things.
+- [03:25.290] We're taking care of that.
+- [03:26.510] The companies are going to be very happy.
+- [03:28.920] I know Apple's going to be happy,
+- [03:30.710] but a lot of the companies --
+- [03:32.050] Nobody talked to me more about it than Tim Cook.
+- [03:37.680] He said, "It's a real problem,"
+- [03:40.140] and it's not going to be a problem anymore.
+- [03:41.840] As you know, they used to send people up to Canada
+- [03:44.510] and other places, other countries,
+- [03:45.990] so we solved that.
+- [03:47.700] And the other thing is it'll take in,
+- [03:49.170] we think probably billions of dollars
+- [03:51.990] that will go to the Treasury of the United States,
+- [03:54.160] that will go to an account where we can do things positive
+- [03:59.240] for the country. So it'll be a great thing.
+- [04:00.850] We'll take it, I think, billions of dollars,
+- [04:05.780] many billions of dollars even. So that's very exciting.
+- [04:12.180] The Trump accounts are doing really well.
+- [04:16.220] We have a man on my right, Michael Dell,
+- [04:18.850] who's an extraordinary person.
+- [04:20.400] His wife is even more extraordinary,
+- [04:23.300] I think I can say that.
+- [04:24.560] They have such a good relationship.
+- [04:26.100] You know what? She's an extraordinary person.
+- [04:27.830] Michael Dell: Absolutely. Yes, sir.
+- [04:29.070] The President: A great wife. But they're two great people.
+- [04:31.780] And as you know last week,
+- [04:33.620] Michael contributed $6,250,000,000.
+- [04:39.120] And this is just something that's so special.
+- [04:43.160] So many people are in love with that.
+- [04:46.110] He understood it right from the beginning.
+- [04:48.250] It was his idea
+- [04:50.140] and he understood it right from the beginning.
+- [04:51.930] Could you give maybe just a little description
+- [04:53.910] of why you loved it for such a long period of time?
+- [04:56.960] And we were able to get it
+- [04:58.220] through the great big, beautiful bill, basically.
+- [05:00.580] That's what gave us the authorization to do it.
+- [05:03.560] Michael, please.
+- [05:04.760] Michael Dell: Yeah, absolutely, sir.
+- [05:05.960] So when we first heard about this idea,
+- [05:09.530] the idea was that the government would give $1,000
+- [05:14.500] to a newborn baby in an account that they would own,
+- [05:19.670] and it would go in essentially the S&P 500 and compound.
+- [05:23.800] And when the child becomes 18,
+- [05:25.760] they could use that money to go to college,
+- [05:29.330] to buy a home, to start a business,
+- [05:31.580] to continue saving.
+- [05:33.590] And I thought that was a great idea,
+- [05:36.400] I thought that'd be great if companies
+- [05:39.310] matched the government's contribution,
+- [05:40.960] which we're doing and a lot of the companies around the table
+- [05:43.290] have committed to doing that.
+- [05:45.160] And also the thought about this is,
+- [05:49.010] wow, this is going to be like a platform
+- [05:51.570] for families and communities and philanthropists
+- [05:56.050] to contribute to those accounts.
+- [05:58.520] And so we originally started with the idea of,
+- [06:02.500] "Well, what if we gave some money to all the kids
+- [06:07.750] in our home state of Texas," right?
+- [06:10.260] We thought that would be a nice thing to do.
+- [06:11.830] The President: That's still a lot.
+- [06:13.070] Michael Dell: Yeah, yeah, there is.
+- [06:14.660] 1 out of 10 new kids in America born in Texas.
+- [06:17.870] The President: Yeah, it's pretty good.
+- [06:19.220] Michael Dell: Happened to be a fan of the state of Texas.
+- [06:22.040] But anyway, we thought about it some more
+- [06:24.520] and we thought this is going to be something really special.
+- [06:29.010] And we have a foundation, it focuses on children,
+- [06:31.340] it's been around for 26 years, and we said,
+- [06:33.760] "Well, why don't we go bigger?"
+- [06:35.050] And so we talked about it and now
+- [06:38.920] that the Investment America Act is a law, which that in itself
+- [06:45.050] is a incredible thing that occurred,
+- [06:49.140] it does create a platform and we were super happy
+- [06:53.280] to announce that we would give $250.
+- [06:59.760] We arrived at $250 because next year
+- [07:03.670] will be the 250th birthday of America,
+- [07:06.110] and 25 million children,
+- [07:07.530] we thought that was a nice thing to do
+- [07:09.560] because it would include most of the children
+- [07:13.550] that are 10 and under,
+- [07:16.070] that are not part of the government program,
+- [07:18.140] that live in zip codes where the median income
+- [07:21.720] is less than $150,000.
+- [07:23.780] And that was also an important part of our contribution.
+- [07:27.320] And I do believe there will be
+- [07:28.660] a number of other large gifts announced.
+- [07:32.770] I've already spoken with a few that will be announcing gifts
+- [07:36.250] at the state level and more to come.
+- [07:40.390] The President: Yeah. It's amazing.
+- [07:41.950] And it's amazing the vision you have,
+- [07:43.590] but that's why you're so successful, frankly.
+- [07:46.320] And to think that Michael started off with
+- [07:50.170] not a lot of money, I would say, right?
+- [07:52.190] Not too much, very little.
+- [07:55.380] And he can give a gift of 6,250,000,000,
+- [07:59.890] and I know he said he's going to do a lot more,
+- [08:03.880] it's pretty amazing.
+- [08:05.220] It's really a beautiful thing to watch.
+- [08:08.440] So great for our country.
+- [08:10.270] So we have the Trump accounts are doing really well
+- [08:12.650] and it's become, I have to tell you,
+- [08:14.470] just everyone's talking about them
+- [08:16.500] beyond what I would have even thought.
+- [08:19.210] And it's going to make some young people
+- [08:23.110] relatively very wealthy.
+- [08:25.110] And in some cases, they could really be off to a great start.
+- [08:30.010] So some people have had that advantage
+- [08:32.100] and some people haven't, but it's a wonderful thing.
+- [08:34.670] Thank you to you and your beautiful wife.
+- [08:36.200] Thank you very much.
+- [08:37.440] Michael Dell: Thank you, sir.
+- [08:38.830] The President: So it's a pleasure to welcome
+- [08:40.060] so many brilliant minds and distinguished business leaders
+- [08:42.720] back to the White House. I love these brilliant minds,
+- [08:45.780] including Michael Dell of Dell Technologies,
+- [08:49.800] who makes a great product.
+- [08:52.250] And I want to thank him for what he's done,
+- [08:55.300] what we just discussed, the accounts.
+- [08:58.420] We also are grateful to be joined by Enrique Lores of HP.
+- [09:04.570] So thank you very much, Enrique. Great job you're doing.
+- [09:08.980] Antonio Neri of HP Enterprise. Thank you very much.
+- [09:13.680] What's the difference between HP and HP Enterprise?
+- [09:16.530] Antionio Neri: We focus on the cloud security
+- [09:18.600] networking and large systems.
+- [09:20.960] The President: The cloud's good.
+- [09:22.770] People have done very well with the cloud.
+- [09:25.030] That's great.
+- [09:26.910] Arvind Krishna of IBM, who's actually become,
+- [09:31.990] I would say, a legend, the job he's done.
+- [09:34.370] He's taken the stock from a rather low price
+- [09:36.800] to a very nice price.
+- [09:39.210] I won't say high because I'm sure you're going to say
+- [09:40.970] it's going to go up a lot more, am I right?
+- [09:42.630] Arvind Krishna: Uh-huh.
+- [09:43.880] The President: So I can't say a high price,
+- [09:45.700] but he took IBM into a new stratosphere
+- [09:49.020] that nobody I think saw.
+- [09:51.690] If you go back to before when he took over the company,
+- [09:57.030] nobody would have even imagined that you'd be able to do
+- [09:59.300] what you've done, so congratulations.
+- [10:00.930] Become a good friend.
+- [10:03.860] Christiano Amon of Qualcomm, and thank you very much.
+- [10:09.930] Congratulations on its success.
+- [10:12.180] I know a lot about your company, you've done amazing.
+- [10:16.240] And executive director of the Technology CEO Council,
+- [10:20.290] Bruce Mehlman. So thank you very much.
+- [10:27.820] I think that these people know each other.
+- [10:30.490] We're going to be talking
+- [10:31.780] a little bit about technology today,
+- [10:33.560] and we'll take a few of your questions about technology.
+- [10:37.030] I'm sure you probably won't have too many of those questions,
+- [10:39.060] you'll be asking about some other things, right, Bruce?
+- [10:42.210] Our administration is committed
+- [10:43.720] to total dominance in technology.
+- [10:46.250] Right now we're leading artificial intelligence
+- [10:49.370] by a lot.
+- [10:51.650] And I think you look at what's going up
+- [10:55.750] and we're writing rules, regulations.
+- [10:58.520] We want to keep it at the federal government level,
+- [11:00.550] so it's simple for the company, is very important, frankly.
+- [11:04.750] And I think we're pretty well committed.
+- [11:07.430] I spoke to some of the senators today,
+- [11:10.320] and I think we're committed to do that.
+- [11:12.450] We want to make it as simple as possible,
+- [11:15.130] as easy because you're competing with some very big sources,
+- [11:18.930] and we want to stay number one by a lot.
+- [11:21.910] We're leading the world and building new data centers
+- [11:24.460] and new semiconductor and chip manufacturing facilities
+- [11:27.970] and new capacity for AI.
+- [11:30.300] And we're unleashing all of the forms,
+- [11:32.150] literally all forms of energy and natural gas
+- [11:34.990] and oil to clean, beautiful coal
+- [11:37.440] and safe, reliable, nuclear power.
+- [11:40.210] And I'm giving them approval to,
+- [11:42.040] when they build these massive plants that cost $50 billion --
+- [11:46.260] It used to be that for $50 million,
+- [11:48.380] you could build a nice little shopping center,
+- [11:51.020] but for $500 million, you could build
+- [11:53.490] one of the biggest, most beautiful centers,
+- [11:56.510] and now they're talking about $50 billion.
+- [11:58.710] So explain that one. These buildings are --
+- [12:04.000] There's never been anything like that.
+- [12:06.380] So you're all involved in that, it's pretty amazing.
+- [12:11.760] One year ago, our country was considered dead
+- [12:14.400] by many leaders throughout the world,
+- [12:16.660] and now we have what's called the hottest country
+- [12:18.430] anywhere in the world.
+- [12:19.680] We're the hottest country in the world right now.
+- [12:21.530] 10 months, it took us.
+- [12:23.350] I thought it was going to take longer, Michael.
+- [12:25.840] I didn't think we were going to have this success this soon.
+- [12:28.860] We have over $18 trillion being invested, much of it by --
+- [12:34.700] Like you're in for a lot.
+- [12:35.990] What's the number that you're looking at?
+- [12:37.480] Arvind Krishna: 150.
+- [12:38.760] The President: 150 billion?
+- [12:40.070] Arvind Krishna: Yes.
+- [12:41.290] The President: That's good. I don't know, Mike.
+- [12:42.490] Am I allowed to ask you? You already gave 6,250,000,000.
+- [12:47.230] Have you stated a number that you're at for investment,
+- [12:50.340] future investment?
+- [12:52.540] Michael Dell: Well, if I think about all the investment
+- [12:57.540] that we make with the American companies
+- [13:00.090] that are adding capacity,
+- [13:01.980] particularly around semiconductors,
+- [13:05.130] it's several hundred billion dollars.
+- [13:07.050] The President: (inaudible). It's pretty good.
+- [13:12.680] It makes the six billion sound very, very small.
+- [13:17.540] That's very good.
+- [13:18.760] Antonio, what about you guys? What about you and Reyke?
+- [13:23.190] How's that going? Have you announced a number or anything?
+- [13:27.720] Antionio Neri: No, I'm actually happy to share it with you,
+- [13:30.030] over the next few years, we're going to invest
+- [13:31.850] an additional 3.5 billion buildings,
+- [13:33.770] secured manufacturing.
+- [13:35.730] We build the largest supercomputer
+- [13:37.130] for the United States government
+- [13:38.770] that supports both the DOD and DOE.
+- [13:41.310] So in the next 18 months,
+- [13:42.950] we're going to build the largest five supercomputers
+- [13:46.240] that will keep United States ahead of the game,
+- [13:49.230] both in life science and AI,
+- [13:51.470] but also to keep ahead owning the entire stack
+- [13:54.700] at the national security level.
+- [13:56.250] The President: Great. Are you doing this separately?
+- [13:57.890] Are you doing that together or separate?
+- [14:00.190] Enrique Lores: No, we are totally separate company.
+- [14:01.730] The President: Totally separate, wow.
+- [14:03.010] Enrique Lores: From our side, we invest in the U.S.
+- [14:04.740] around $18 billion per year. So you look at the next five,
+- [14:08.510] it will be close to $100 billion.
+- [14:11.270] And we are going to be investing in AI
+- [14:14.470] (inaudible) the edge, not only on data centers,
+- [14:16.870] but how to make AI available to customers in PCs,
+- [14:20.750] in headsets, in devices that they will be using every day
+- [14:23.380] which is (inaudible)-
+- [14:24.600] The President: So it's over $100 billion.
+- [14:26.080] Enrique Lores: Yes.
+- [14:27.340] The President: And you're doing well, HP
+- [14:28.540] is doing really well.
+- [14:29.770] Enrique Lores: Yes. The President: That's great.
+- [14:30.980] Enrique Lores: We're competing hard with Mike,
+- [14:32.260] but we're doing well.
+- [14:33.540] The President: Are you direct competitors?
+- [14:34.850] Enrique Lores: Yes.
+- [14:36.110] Howard Lutnick: That's it, that's why there are different
+- [14:37.930] sides of the table, sir.
+- [14:40.560] The President: The old days would say,
+- [14:41.880] "Why don't you make a deal?"
+- [14:43.110] I guess now it's not so easy to make a deal.
+- [14:44.630] Michael Dell: We can have an arm wrestling match now.
+- [14:46.940] (inaudible) want to.
+- [14:48.540] The President: And, Christiano, you've been amazing, right?
+- [14:50.410] Your company with the investments.
+- [14:51.880] How are you doing within this?
+- [14:53.110] Christiano Amon: We're doing great.
+- [14:54.310] I think, Mr. President, you have a great decision,
+- [14:56.730] and I think when you drove our company
+- [14:59.650] to continue to be innovating,
+- [15:01.050] and I think we're doing very good.
+- [15:02.530] We've been, in addition to doing phones, I think we're now --
+- [15:05.990] Our chips are going to every car company in the world,
+- [15:08.730] all the car companies.
+- [15:11.290] We're entering into the robotics.
+- [15:14.260] There's a lot of growth in robotics and the data center,
+- [15:17.150] new smart glasses
+- [15:18.740] is going to be the future mobile devices, industrial.
+- [15:21.740] I think a lot of the drive towards manufacturing
+- [15:24.450] the country is driving a lot of technology
+- [15:26.460] for smart manufacturing. We're making chips for that.
+- [15:28.900] So I think we're very excited. And I think like Michael,
+- [15:32.260] I think the number of industries our chips are being enabling
+- [15:35.980] is driving hundreds of billions of dollar investments.
+- [15:38.160] And most important for us,
+- [15:40.520] semiconductor manufacturing is very important,
+- [15:43.590] so we are going to be customer of the fabs
+- [15:47.590] that are being built in the United States by TSMC
+- [15:50.190] and Samsung, so we're just going to keep going forward.
+- [15:53.670] Michael Dell: Yeah, those investments are very important,
+- [15:55.250] and we are all customers of those fabs.
+- [15:57.810] Christiano Amon: Those two are my customers too.
+- [15:59.700] The President: Memory stuff? Memory?
+- [16:01.190] Christiano Amon: We know the memory.
+- [16:02.450] We do a lot of the processes.
+- [16:03.690] The President: Who's the king of memory?
+- [16:05.600] Christiano Amon: It's Micron and SK Hynix.
+- [16:07.990] The President: Micron's another one doing very well.
+- [16:10.010] That's great.
+- [16:11.280] Yeah, I heard you're doing fantastically. Congratulations.
+- [16:13.850] Christiano Amon: Thank you. Thank you, Mr. President.
+- [16:15.850] The President: The stock market has set a 51 --
+- [16:18.660] Think of this, 51 all-time record highs
+- [16:21.280] during the last 10 months, 51. You guys are big beneficiaries.
+- [16:26.300] You're setting the records, right?
+- [16:28.290] It's amazing. 51 times we've hit a new high.
+- [16:31.880] And in the history of our country,
+- [16:34.030] if you think about it, 51 times during the last 10 months.
+- [16:37.650] And, Bruce, let me ask you, you pull these people all together,
+- [16:41.350] how's it looking for technology?
+- [16:43.960] Bruce Mehlman: A lot of global competition,
+- [16:45.860] but you'd rather be playing our hand
+- [16:47.460] than any other hand in the world.
+- [16:48.900] The President: I think so.
+- [16:50.990] We have a good hand right now, don't we?
+- [16:54.710] Joe Biden secured just really much less
+- [16:58.030] than a trillion dollars of new investments in four years,
+- [17:02.110] and in 10 months, we secured more than $18 trillion.
+- [17:04.790] So 18 times the amount in 10 months,
+- [17:07.450] what they did in four years,
+- [17:09.210] and they would have gone negative,
+- [17:11.360] they were heading toward negative.
+- [17:12.660] In other words, not a trillion dollars,
+- [17:16.220] but it could have been three or four or five trillion less
+- [17:18.770] because people were leaving. So it was a big turnaround.
+- [17:22.630] In 10 months, the $18 trillion, it's a record.
+- [17:26.300] There's never been a country
+- [17:27.630] that's gotten anywhere near that.
+- [17:30.350] In the Middle East, when I left the Middle East,
+- [17:32.050] we brought back $3 trillion
+- [17:33.680] and lots of Boeing airplanes, like 300.
+- [17:36.740] And Boeing gave me the award for the greatest salesmen
+- [17:39.010] in the history of Boeing,
+- [17:40.640] which was a nice little award, lovely little plaque.
+- [17:43.320] I think I've sold 1,000 Boeing planes, can you believe it?
+- [17:46.680] Now all they have to do is make them.
+- [17:48.760] Okay? They got to make them, but they will.
+- [17:51.910] But we have made historic trade deals with the United Kingdom,
+- [17:56.470] China, Indonesia, Vietnam, Japan,
+- [17:59.090] the EU, Malaysia, Cambodia, El Salvador,
+- [18:02.950] Argentina, Ecuador, Guatemala, Switzerland,
+- [18:06.440] Lichtenstein, Thailand, and South Korea and many others.
+- [18:11.990] And a lot of it's based on the November 5th election result,
+- [18:15.790] which was a massive victory.
+- [18:18.080] We won all seven swing states, the popular vote.
+- [18:22.250] We won the electoral college by a landslide.
+- [18:24.530] We won the counties.
+- [18:26.950] The counties, they do it. I don't know.
+- [18:29.310] To me, it's the most accurate of all in many ways.
+- [18:34.010] We're at 2,700 counties against 525.
+- [18:39.960] That's pretty good, Christiano?
+- [18:41.450] Cristiano Amon: Pretty good.
+- [18:42.670] The President: 2,700 against 525.
+- [18:45.370] 525. That's why when you see the maps are all red,
+- [18:49.550] except for two little blue lines on the right
+- [18:52.210] and the left side of the map.
+- [18:54.110] They're probably changing too. Americans are great builders.
+- [18:58.430] And then the Trump administration,
+- [18:59.910] America's once again,
+- [19:01.150] a country where innovators get a green light.
+- [19:03.630] You have the greatest innovators in the world at this table
+- [19:08.190] and representing a lot of their friends
+- [19:10.130] who are competitors and friends, but we're really on a big move
+- [19:15.900] to get rid of red tape so they can run their businesses
+- [19:19.780] and not have to wait 10 years for an approval.
+- [19:22.410] In the old days, getting some of these approvals for plants
+- [19:25.670] that are already being built would have taken 10, 15,
+- [19:29.730] even 20 years prior to rejection.
+- [19:32.140] You get rejected. You'd work 20 years
+- [19:34.420] and then you'd lose five to four.
+- [19:37.060] And we're getting plants approved in a matter of weeks.
+- [19:41.520] The biggest plants ever built in a matter of weeks.
+- [19:45.110] For every new regulation,
+- [19:46.800] we're slashing more than 10 old regulations.
+- [19:49.930] So we're not allowing regulations
+- [19:53.420] unless they slash 10 old regulations.
+- [19:56.950] We did that in the first term
+- [19:58.690] and we cut more regulation than any administration ever.
+- [20:02.950] In our first term, we have the all time record.
+- [20:05.090] I think we're exceeding it here.
+- [20:06.990] In fact, now it's one in 24 is the number we're at.
+- [20:12.210] It's one in 10 you have to do,
+- [20:13.790] otherwise we're not letting you do it.
+- [20:15.940] But we're actually up to one in 24,
+- [20:18.040] so we get rid of 24 regulations for every one.
+- [20:20.770] That's not a bad deal, right?
+- [20:23.000] And it's been very exciting actually,
+- [20:25.400] but including we're allowing
+- [20:27.810] 100 in the great big, beautiful deal.
+- [20:30.730] We're allowing 100 percent
+- [20:32.710] expensing for capital expenditures,
+- [20:34.660] including investments in factories
+- [20:36.410] and equipment and structure. So including even structure.
+- [20:41.070] So that if Michael goes out and builds a factory,
+- [20:44.600] you can take it against tax immediately.
+- [20:47.290] The whole thing, you don't have to wait 38 years
+- [20:49.310] or do it over 38 year period.
+- [20:52.290] And I think that's what made the first tax cut,
+- [20:55.190] which we, by the way, got extended in this tax cut.
+- [20:59.330] And you added up it's the biggest tax
+- [21:00.950] cut in the history of our country.
+- [21:03.700] But I think that the expensing factor,
+- [21:06.370] and it's good for 10 years to --
+- [21:08.510] I think that maybe was the reason
+- [21:11.020] that so much growth was -- There were other reasons,
+- [21:14.910] but so much growth was gotten in the first term.
+- [21:18.450] So earlier this year, I said that the challenges of our time
+- [21:21.370] demand and new spirit of patriotism
+- [21:23.400] and national loyalty in Silicon Valley,
+- [21:26.400] smart people, and from the whole technology sector,
+- [21:30.310] and that patriotism is on huge display
+- [21:33.190] here in this room with some of the most brilliant people.
+- [21:36.330] And I'd now like to ask Secretary Howard Lutnick
+- [21:39.410] to say a few words and OSTP Director Michael Kratsios.
+- [21:45.660] Also, say a few words and I look forward to hearing from Michael
+- [21:49.530] a little bit about this subject, Christiano, welcome.
+- [21:53.560] And
+- [21:54.760] Arvind, you'll say something, and I appreciate it.
+- [21:57.680] And anybody else wants to say a couple of words, feel free.
+- [22:01.090] Good job. So why don't we start with Howard, please?
+- [22:04.680] Howard Lutnick: So the key to America's success
+- [22:07.960] is the amazing innovators that we have.
+- [22:10.860] I mean, we have invented everything from the light bulb,
+- [22:14.810] transistor, GPUs.
+- [22:16.610] We are on the edge of everything and we need to keep being
+- [22:21.020] on the edge of the people at this table
+- [22:23.010] and this industry is why America's great.
+- [22:26.890] We need to build here. For too many years, we innovated
+- [22:31.880] and we let everyone else build our stuff.
+- [22:34.790] And we just can't do it anymore. So with President Trump
+- [22:37.600] coming and winning the election on November 5th,
+- [22:40.560] we changed that and now we're going to build it here.
+- [22:43.140] You've done everything you can and you've heard trillions
+- [22:46.340] and trillions of dollars of technology
+- [22:48.440] build coming home to America to protect and defend us
+- [22:52.310] and use our innovations here.
+- [22:55.170] You're driving interest rates lower
+- [22:56.730] and you're going to continue to drive them lower.
+- [22:58.570] That makes it cheaper.
+- [22:59.790] It makes it more exciting to build here.
+- [23:01.700] You're blowing out the regulatory deep state
+- [23:05.150] so that people can build here and do it fast.
+- [23:07.280] And the last thing is because of our investment in energy
+- [23:10.740] and drive down the cost of energy for all Americans,
+- [23:13.960] including the people who are building here,
+- [23:16.020] drive down the cost of energy.
+- [23:17.440] It's great for America. Put all of that together
+- [23:20.310] and you're going to see the greatest growth
+- [23:23.540] the United States of America's ever seen.
+- [23:25.160] You're going to see north of 4 percent next year,
+- [23:27.730] and then it's going to go up from there to fives and sixes.
+- [23:30.620] This president's going to drive the greatest GDP growth
+- [23:33.190] led by the tech sector coming home and driving growth.
+- [23:38.770] The President: Well, thank you.
+- [23:39.980] One of the things I'd like to say
+- [23:41.380] just before going over to Michael, and this Michael,
+- [23:45.570] and then we'll have this, Michael.
+- [23:47.020] But one of the things I'd like to say is in the old days,
+- [23:50.970] when you announced really good results in this country,
+- [23:54.550] the stock market went up, and that's the way it should be.
+- [23:59.360] And we're going back to that,
+- [24:01.560] because otherwise you can never really attain true greatness.
+- [24:06.490] In other words, GDP at four, "Oh, four is so high,
+- [24:10.100] let's raise interest rates and kill it."
+- [24:12.660] And we're going to go back to the old days.
+- [24:14.910] When we announced great results,
+- [24:16.810] it doesn't mean we're going to raise interest rates
+- [24:18.660] and try and kill it.
+- [24:19.930] It means that instead of 4 percent GDP or 3 percent,
+- [24:24.550] which I said it's so wonderful, 3 percent,
+- [24:27.510] it should be able to be 20 or 25 percent.
+- [24:29.690] I don't know why it can't be.
+- [24:31.370] You shouldn't kill it.
+- [24:33.050] And so we hope that if this country announces great results,
+- [24:38.980] because you're going to see great results
+- [24:40.630] over the next couple of years, all these plants,
+- [24:44.040] and I'm not just talking about AI,
+- [24:45.470] we have the biggest number of auto plants planned.
+- [24:50.070] Toyota just announced $10 billion in plants built,
+- [24:55.610] various couple of locations, few locations in the country,
+- [24:59.050] just a little while ago. They're all coming here.
+- [25:01.730] They're coming here because of tariffs
+- [25:03.070] because they don't want to pay tariffs,
+- [25:04.320] but they're coming here because of the election and the mindset.
+- [25:08.190] But when we announced good results,
+- [25:11.530] the market should go up.
+- [25:13.450] Now, it's when you announce good results, Michael,
+- [25:15.560] the market goes down because they say,
+- [25:16.950] "Oh, that means things are good.
+- [25:18.290] That means we're going to kill it by raising interest rates."
+- [25:21.600] I think it's really wrong.
+- [25:22.800] It should be the opposite of what it is now.
+- [25:25.240] It should be the way it used to be.
+- [25:27.320] We announced good results.
+- [25:28.620] The market should go up and we should keep driving it up
+- [25:31.460] and have it keep going up
+- [25:33.290] and let it be much, much bigger, much, much better.
+- [25:37.250] And growth doesn't mean inflation.
+- [25:41.600] They're always afraid that we have --
+- [25:43.790] And if there is inflation, that's okay,
+- [25:45.560] then we can slow it down.
+- [25:47.980] But we should be able to do a lot better than three and four.
+- [25:52.400] We're scheduled to be at 4 percent, which is pretty amazing
+- [25:55.030] because we have a dead head, fed hair.
+- [26:00.000] I mean, this guy, the head of the Federal Reserve is a stiff,
+- [26:05.550] and you fight that. It's amazing.
+- [26:09.340] We fight that, and yet interest rates are going down
+- [26:14.860] except with him, not too much.
+- [26:17.390] He did, I would say a rather small number
+- [26:22.410] that could have been doubled, at least doubled.
+- [26:24.320] And that's the other thing.
+- [26:25.540] I think the rates for the United States,
+- [26:27.220] they're always the lowest in the world,
+- [26:28.680] because without us, there is no world.
+- [26:31.280] Without this economy, there's no world.
+- [26:33.990] You could go to some of these wonderful countries
+- [26:36.010] that you think are so great.
+- [26:37.270] Well, one of the reasons they're great is
+- [26:38.720] because we allowed them to get rich off of us.
+- [26:43.820] We didn't charge them anything. You look at some of the deals,
+- [26:46.870] I don't want to say use Switzerland as an example,
+- [26:49.910] but Switzerland paid almost nothing
+- [26:52.380] in terms of a tariff or tax
+- [26:55.280] or whatever you want to call it, license.
+- [26:57.530] They paid nothing and they're paying now.
+- [27:01.140] They're paying a fair amount. I had them at 39 percent,
+- [27:04.940] but I decided to be nice. I was nice.
+- [27:07.600] And I think they like us a little bit better,
+- [27:10.070] but the money you're talking about is enormous.
+- [27:12.450] Our country is a very rich country,
+- [27:14.790] but if we do well, the market should go up
+- [27:17.170] and the value of our country should go up.
+- [27:19.700] And if we do poorly, the market then should go down.
+- [27:23.940] It shouldn't be the opposite.
+- [27:25.870] And if we go up, we should encourage it to go up more.
+- [27:28.770] And those numbers, when you say 3 percent of GDP
+- [27:32.810] or 4 percent of GDP, they should be much higher.
+- [27:35.310] So I wanted to say it, I do say it, I believe it.
+- [27:41.600] And we have to get a mindset
+- [27:43.920] that when a country's doing well,
+- [27:45.470] you don't want to kill the growth.
+- [27:46.920] That's what they're doing. They kill the growth.
+- [27:49.160] I don't know if you guys even agree with that.
+- [27:50.810] They kill the growth because they're so afraid of inflation,
+- [27:53.390] but you can have tremendous growth without inflation.
+- [27:56.430] Everything goes up with the growth,
+- [27:58.410] but that's not inflation.
+- [28:00.610] So I think we can do much better than traditional numbers.
+- [28:04.420] And you see that. You see that with what we're doing.
+- [28:07.260] We're leading in everything.
+- [28:09.610] And now, and remember this, as far as prices are concerned,
+- [28:13.430] and they talk about affordability,
+- [28:16.610] I inherited the worst inflation in the history of our country.
+- [28:19.950] They say it was 48 years, but I say it was in history.
+- [28:22.580] What difference? It's 48 years, they were telling me.
+- [28:26.550] They said I was being inaccurate because I said the history.
+- [28:29.550] I think 48 years is a long time, but it's actually, I disagree.
+- [28:32.560] I think it's in history. So in the Biden administration,
+- [28:35.760] I inherited the worst inflation in the history of our country
+- [28:40.020] or 48 years and prices were very, very high.
+- [28:44.880] I brought the prices down. We had yesterday, three states
+- [28:48.890] where oil was at $1.99 a gallon. How about that?
+- [28:54.770] And with these guys, it was $4, four and a half dollars.
+- [28:59.210] In California, it was like $7
+- [29:01.200] because that's a badly run state,
+- [29:03.530] but the price for oil and gas and everything else,
+- [29:07.650] the price of gasoline was four and a half, $5.
+- [29:13.380] And we just hit $1 and then we broke $2.
+- [29:16.040] I was looking forward to that couple of states, three states.
+- [29:19.740] And I will say that when that happens, oil and gas
+- [29:24.710] and energy is so big, it's so big a category,
+- [29:27.410] you don't even know what number two is.
+- [29:28.840] There is no number two.
+- [29:30.710] And when you have the prices coming down
+- [29:32.810] for energy like that,
+- [29:34.730] you've killed inflation and you're lowering prices.
+- [29:37.570] So I inherited very simply the highest prices in history,
+- [29:43.530] and I'm bringing them down really fast, led by energy.
+- [29:48.170] And when energy comes down, everything else comes down.
+- [29:50.950] But I've only been here a short while
+- [29:53.320] and we gave them a beautiful, beautiful thing
+- [29:55.480] and they destroyed it.
+- [29:57.060] They would have destroyed our country
+- [29:58.550] had they been allowed to stay.
+- [30:00.180] If we didn't win this election, if we had Kamala,
+- [30:04.440] who's the same as Joe, low IQ people,
+- [30:08.830] but if we had Kamala, you would have a country
+- [30:13.090] that would be right now and ruins.
+- [30:14.820] I believe that 100 percent.
+- [30:18.010] Things would be in a state like nobody's ever seen before,
+- [30:22.560] worse than anything you've ever imagined,
+- [30:25.170] worse than 1929, in my opinion.
+- [30:28.270] Instead, we have the hottest country in the world
+- [30:30.030] and we're going to keep it that way.
+- [30:31.430] But just to finish, we inherited high prices.
+- [30:35.160] We're bringing them down very rapidly
+- [30:37.680] and we're bringing them down to very, very good levels.
+- [30:40.520] They'll soon be down at very good levels.
+- [30:43.050] Michael, please go ahead.
+- [30:44.440] Michael Kratsios: Absolutely, as everyone in this room
+- [30:47.280] probably knows very well,
+- [30:48.640] leadership in science and technology
+- [30:50.570] has been foundational to our economic and national security
+- [30:53.960] for four decades.
+- [30:55.380] And because of the policies that you have championed
+- [30:58.370] and the private sector partnerships that you have made,
+- [31:01.020] America currently is leading the world in S&T
+- [31:03.960] and it's benefiting all Americans every day.
+- [31:06.840] The one thing that I want to remind this group of,
+- [31:08.690] and many of you know,
+- [31:10.270] the president has been arguing for American leadership in AI
+- [31:13.280] well before ChatGPT was even invented.
+- [31:16.690] The president signed executive order
+- [31:18.310] on artificial intelligence leadership in 2019,
+- [31:21.500] which set the stage for the revolution
+- [31:23.510] that we're seeing today.
+- [31:25.210] In the past year, we've built on that.
+- [31:27.330] We signed out the AI Action Plan in July of this year,
+- [31:29.980] which the president launched here in Washington
+- [31:31.980] along with three EOs.
+- [31:33.870] And I know a lot of that effort is around creating
+- [31:36.010] a regulatory environment
+- [31:37.220] to allow for companies like yours to thrive
+- [31:39.420] and for the applications that you build to have
+- [31:41.730] the biggest impact on Americans every day.
+- [31:44.320] So thank you for everything that you do.
+- [31:45.900] And I know we're going to keep working together
+- [31:47.290] to make sure that America is the home
+- [31:48.640] for the next great technological discoveries.
+- [31:51.130] The President: Thank you, Michael. And Michael.
+- [31:54.030] Michael Dell: Thank you, sir.
+- [31:55.770] Well, look, we greatly appreciate
+- [31:58.730] the focus the administration
+- [32:00.230] has on lowering energy costs and energy
+- [32:04.980] is the substrate of manufacturing
+- [32:08.740] at the industrial level
+- [32:10.010] and really incredibly important input to the economy.
+- [32:15.700] We can't be competitive without a super low cost energy industry
+- [32:23.490] and had a great meeting earlier today with Secretary Wright
+- [32:27.140] and really appreciate all the work that he's been doing.
+- [32:30.250] This is of course incredibly important when it comes to AI
+- [32:34.580] because it does consume a great deal of power.
+- [32:38.650] All the semiconductor manufacturing
+- [32:40.290] consumes a great deal of power. Another big area of focus for us
+- [32:45.870] is how we can take all this great AI technology,
+- [32:51.740] the AI stack of the innovative companies
+- [32:55.930] here in the United States and sell that around the world.
+- [32:59.890] And I'd like to ask Arvind
+- [33:01.920] to speak a little bit more about this.
+- [33:05.610] Arvind.
+- [33:07.030] Arvind Krishna: Thank you. So Mr. President, first,
+- [33:09.560] we really would like to thank you
+- [33:10.860] for everything you're doing for economic growth,
+- [33:12.960] as you said.
+- [33:14.160] I completely agree with the economic growth
+- [33:16.320] that drives a lot of other benefits to everything else.
+- [33:20.410] We also want to thank you for all the work
+- [33:22.120] you're doing on deregulation
+- [33:23.690] and making things easier for business
+- [33:26.200] to participate in that growth. Michael spoke of the AI stack.
+- [33:31.120] It's incredibly important that under the action plans
+- [33:34.990] that you have laid out and Michael Kratsios just spoke of,
+- [33:37.970] we really help promote the AI stack,
+- [33:41.370] which is not semiconductors only.
+- [33:43.530] Those are incredibly important, but the semiconductors,
+- [33:46.520] it's software, it's the systems which many of us here build,
+- [33:50.630] and it is the software applications on top.
+- [33:53.340] The ability to take those to all our friends in countries,
+- [33:57.870] so all the friendly countries is going to be very, very important
+- [34:01.970] and we wish to work with your government
+- [34:04.260] to make sure that we can do that
+- [34:06.520] because otherwise we are afraid that competing countries
+- [34:09.460] are going to be able to get that stack.
+- [34:12.170] So we would say that.
+- [34:14.350] The President: Anything that you're looking at that
+- [34:17.210] we can help you with so that you create a bigger and better IBM
+- [34:22.010] and hire a lot more people? Anything you need?
+- [34:24.740] Arvind Krishna: A few countries.
+- [34:26.270] We'll speak to members of your administration
+- [34:28.180] to make sure that those can go
+- [34:30.120] and that barriers get lowered for being able to do it quickly.
+- [34:33.210] We agree guardrails are necessary,
+- [34:35.230] but lower barriers would be very, very helpful.
+- [34:38.950] The President: You mean tariffs?
+- [34:40.180] Arvind Krishna: No.
+- [34:41.390] The President: Because are they tariffing you any,
+- [34:45.360] making your life difficult?
+- [34:46.680] Are they doing anything else to make your life difficult?
+- [34:49.290] Arvind Krishna: It's the ability to take certain systems
+- [34:51.340] which have semiconductors inside them into these countries.
+- [34:54.910] So right now, because we have controls
+- [34:57.760] on where all the semiconductors can go,
+- [34:59.430] then the entire system is restricted.
+- [35:02.020] That's what we want to do. The same as-
+- [35:03.720] The President: How many countries do that?
+- [35:06.130] Arvind Krishna: Probably a half dozen.
+- [35:09.870] The President: I can tell you the countries already. I know.
+- [35:11.410] Arvind Krishna: Yes.
+- [35:12.690] The President: I know every country very well,
+- [35:14.560] and we have ways of combating that quickly,
+- [35:17.090] so you'll let me know.
+- [35:19.090] Arvind Krishna: And the last part I'd like to say is,
+- [35:20.470] I'd also like to thank you for all that you're doing
+- [35:22.890] to help modernize government itself,
+- [35:25.430] because we think that that's incredibly important.
+- [35:27.580] We know you've made a number of announcements,
+- [35:29.820] but a couple that I'd just like to point out,
+- [35:31.950] we worked with Commissioner Frank Bisignano
+- [35:34.590] to help make social security better.
+- [35:36.640] So I would like to thank you for your help on that,
+- [35:39.220] and we'll work with him on making IRS-
+- [35:41.190] The President: He's done a fantastic job.
+- [35:42.440] Arvind Krishna: Yes, Frank's great.
+- [35:43.670] The President: He's done a great job.
+- [35:44.870] Frank, he's had a great career,
+- [35:46.160] actually left a tremendous career
+- [35:49.230] where his salary I think was 100 times greater than it is now.
+- [35:53.370] And he was at JPMorgan Chase and he's doing a fantastic.
+- [35:56.420] He did a great job at social security quickly.
+- [35:58.870] Arvind Krishna: And we hope
+- [36:00.090] Male Speaker: Hope to help them replicate
+- [36:01.290] that now at our results.
+- [36:02.910] The President: Very good. Thank you very much. Good job.
+- [36:05.290] Christiano, please.
+- [36:06.490] Christiano Amon: Yes. Just a few points.
+- [36:08.390] First of all, Mr. President, thank you for your vision.
+- [36:11.450] Thank you for understanding the importance
+- [36:13.370] of the American private sector and industry,
+- [36:16.920] I think, and the growth of the economy.
+- [36:19.080] I want to just build on some of the things
+- [36:20.680] that were said by my colleagues. I think we have built probably
+- [36:25.820] one of the most advanced technologies in the world,
+- [36:28.780] and part of it is because I think the commitment
+- [36:31.420] to innovation that we have in the country,
+- [36:33.250] but also the fact
+- [36:35.020] that it has been America technology for the world.
+- [36:38.340] So, I think we have an incredible opportunity.
+- [36:41.020] When I think about what Michael said about exporting AI,
+- [36:48.110] I had conversation with Secretary Howard.
+- [36:50.610] Now that their trade deal's been made
+- [36:52.520] is an opportunity to really build on those trade deals
+- [36:55.580] and export, I think, America technology.
+- [36:58.760] And, also, as we think about the technology,
+- [37:01.550] it's an important vector to drive the re-industrialization,
+- [37:04.860] I think, of the country with technology.
+- [37:07.240] So, we're incredibly excited about that.
+- [37:09.280] I think, there's a big opportunity.
+- [37:11.340] I think it's the next wave of growth
+- [37:15.220] that we can build on those trade agreements,
+- [37:17.310] and I think it resonates what also Arvin
+- [37:20.460] said about the importance of American technology stack.
+- [37:23.050] And then, I was just going to finish with two points.
+- [37:25.350] There are two exciting things
+- [37:26.660] happening in the world of technology coming right now.
+- [37:28.790] One is, as AI become the new form of computing,
+- [37:32.780] AI is going not only to the data center,
+- [37:35.120] but to everything, to cars, to PCs,
+- [37:37.510] and we see now the ability to run models
+- [37:40.960] that you can only run AI in the data center.
+- [37:43.270] You can run that on a micro-computer,
+- [37:45.430] on a computer for Enrique, on a server,
+- [37:48.650] with small server on premise.
+- [37:50.830] So, I think we're going to see the proliferation of AI.
+- [37:54.010] The other one is 6G.
+- [37:55.920] We had made commitment working with your administration,
+- [37:58.790] working with FCC, we're going to accelerate 6G.
+- [38:02.250] We're working to launch first in the world in LA Olympics,
+- [38:06.900] and I think that's another opportunity for America
+- [38:09.610] to lead in the next wireless evolution.
+- [38:12.270] So, thank you. I thank you for the opportunity.
+- [38:15.100] Thank you for the partnership,
+- [38:16.480] and we're going to be hard at work,
+- [38:18.030] I think, driving that agenda.
+- [38:19.490] The President: So, we're into 6G now.
+- [38:22.160] I just finished 5G.
+- [38:23.760] I was a leader on 5G, getting that done,
+- [38:26.850] and now they're up to six.
+- [38:28.630] Let's do it again. What does that do?
+- [38:30.010] Give you a little bit deeper view into somebody's skin.
+- [38:34.440] See how perfect that is? I like the cameras the old days.
+- [38:38.430] So, they just had a nice feature.
+- [38:40.910] Now they cover every little, let's see, Michael,
+- [38:43.100] you're in good shape. You're not going to --
+- [38:45.090] But I tell you, so, the six is coming, huh?
+- [38:48.150] Christiano Amon: It's coming.
+- [38:49.430] The President: Does it ever end? And what happens?
+- [38:51.770] You'll be into seven, right?
+- [38:53.680] Before six gets old, you'll be into seven.
+- [38:55.340] Christiano Amon: Yes.
+- [38:56.570] The President: Anybody have anything else to say? Anybody?
+- [38:59.380] Unidentified: I think the other thing is,
+- [39:01.190] we want to thank you as well
+- [39:02.510] for the openness of your organization and your team.
+- [39:06.910] We always find people that wants to hear what we need
+- [39:09.370] and is willing to design programs that will support that.
+- [39:12.320] So, thank you for-
+- [39:13.540] The President: Well, we hear it is.
+- [39:14.740] Certainly, we want you to just dominate the whole world
+- [39:18.620] in terms of what you do.
+- [39:19.820] It's a very important world, and you're doing that.
+- [39:22.000] We're making it easy for you.
+- [39:23.380] And that means you're going to do it faster.
+- [39:25.360] It's more jobs. A lot of good things happen.
+- [39:28.410] Right? Go ahead, please.
+- [39:30.270] Unidentified: Mr. President, you may not recall,
+- [39:32.260] but in your first term,
+- [39:33.640] you actually sponsor the Department of Energy
+- [39:37.530] to build the largest systems ever built,
+- [39:39.830] and thanks to your sponsorship, the Department of Energy
+- [39:42.250] owns the three top supercomputers in the world
+- [39:45.420] and we build it with them, and these are system
+- [39:47.590] that can do quintillion operations per second.
+- [39:51.150] And that means we can solve a lot of -- solve problems.
+- [39:58.170] So, now we're going to build the next generation again.
+- [40:00.140] The President: Good. Sounds good to me.
+- [40:01.960] Any questions please?
+- [40:03.710] The Press: Thank you.
+- [40:04.910] Can you explain a little more about this Venezuelan oil tanker
+- [40:08.640] and share a little more information?
+- [40:10.500] The President: Well, I'll let the people do it,
+- [40:11.890] but you see the result,
+- [40:13.160] and I guess they probably have released the pictures by now
+- [40:16.460] or pretty soon.
+- [40:18.910] You'll discuss that with the appropriate people later on,
+- [40:21.380] but no, it was seized for a very good reason.
+- [40:26.820] The Press: There's a new proposal from DHS
+- [40:28.360] that would see tourists from a lot of countries
+- [40:30.190] have to hand over five years of social media history
+- [40:33.160] to public to get a tourist visa.
+- [40:35.300] Are you concerned at all that if that's implemented,
+- [40:37.270] there would be a decline in tourism next year?
+- [40:39.230] And then, what sort of material do you-
+- [40:40.810] The President: No. No, we're doing so well.
+- [40:42.360] We just want people to come over here and be safe.
+- [40:45.040] We want safety. We want security.
+- [40:46.680] We want to make sure we're not letting the wrong people
+- [40:50.350] come into our country.
+- [40:51.770] We're getting rid of a lot of bad ones from jails,
+- [40:54.840] from mental institutions. Drug dealers.
+- [40:58.890] We're getting a lot of bad people, murderers.
+- [41:01.860] 11,888 murderers, half of them,
+- [41:06.500] almost exactly half of them committed more than one murder.
+- [41:10.990] We're getting rid of them.
+- [41:12.430] In some cases, we don't even want to get them out.
+- [41:14.580] We put them in jail because we're afraid
+- [41:16.060] they're going to come back into our country.
+- [41:17.600] We're not going to let them back in.
+- [41:18.920] So, we've taken a very tough stand.
+- [41:21.060] And, you see where we've been, like Washington, D.C.
+- [41:24.350] now, people walk down the streets,
+- [41:25.820] they go into restaurants at night, it's beautiful.
+- [41:28.350] It's like this beautiful thing to see because,
+- [41:31.370] until I got here, this was a very, very bad place.
+- [41:35.080] We had a terrible thing happen two weeks ago
+- [41:37.600] with terrorism with regard to two national guardspeople
+- [41:41.580] that are so phenomenal. One is no longer with us.
+- [41:44.680] And one, amazingly, we weren't looking with great hope on that,
+- [41:51.070] that Andrew, and today, he got out of bed, actually.
+- [41:55.740] Got stood up, didn't say anything.
+- [41:57.500] It's a little early, but the chances of Andrew,
+- [42:02.150] other than his mother who said, "Nope, he's going to be okay."
+- [42:05.220] His mother was the most positive person,
+- [42:08.160] and could be that she'll be right.
+- [42:10.690] It's pretty amazing, made progress.
+- [42:15.200] Both of them were so badly hurt.
+- [42:17.090] We never thought that one could survive.
+- [42:19.640] So, it looks like Andrew's doing pretty well.
+- [42:21.790] The Press: The winner of the Nobel Prize,
+- [42:24.610] that he gave the prize to you, the Nobel Peace Prize,
+- [42:27.560] and she had Venezuelan,
+- [42:28.850] great race to make it to the ceremony.
+- [42:31.330] There is a risk she could be arrested, actually.
+- [42:33.080] What would happen if she's arrested?
+- [42:34.540] What message do you send
+- [42:35.840] or would you send to Nicolás Maduro?
+- [42:38.160] The President: Well, arrested by who?
+- [42:39.400] The Nobel Prize Committee?
+- [42:41.840] That's probably the ones that would arrest.
+- [42:44.570] I don't know anything about it. She was very gracious.
+- [42:46.960] She said, "I should have gotten the Nobel Prize."
+- [42:49.910] I mean, I'm doing this to save lives.
+- [42:51.740] I'm not doing it for any other reason.
+- [42:54.090] But no, I don't like if she would be arrested.
+- [42:57.710] I wouldn't be happy with it.
+- [43:01.590] The Press: Senate Republicans currently have
+- [43:03.300] a healthcare proposal that would take away,
+- [43:06.450] let those ACA subsidies expire,
+- [43:08.620] and then put about $1,000 in people's HSAs.
+- [43:11.650] Do you think that is enough money
+- [43:13.460] and how do you ensure that people
+- [43:14.870] who will see those tax subsidies expire
+- [43:17.820] won't see their healthcare costs skyrocket?
+- [43:20.590] The President: Well, the Unaffordable Care Act,
+- [43:22.060] which is Obamacare,
+- [43:23.300] they call it now the Unaffordable
+- [43:24.600] because it's unaffordable.
+- [43:26.410] It used to be called the Affordable,
+- [43:27.840] but it was never affordable.
+- [43:29.060] It was always bad. It was basically designed
+- [43:31.120] for the benefit of insurance companies,
+- [43:33.690] and what we're doing is we want all of the billions
+- [43:37.310] and billions of dollars that went to insurance companies
+- [43:39.870] to go directly to the people
+- [43:42.000] and they can buy their own healthcare, and people love it.
+- [43:46.710] I don't know if the Democrats are going to approve it
+- [43:48.580] because they want the insurance companies to make money.
+- [43:50.570] It was a scam.
+- [43:51.770] Obamacare was a scam, but we're going to see.
+- [43:55.380] I mean, we, the Republicans, I can tell you,
+- [43:58.080] want the money to go to the people,
+- [44:00.750] and we're winning that battle.
+- [44:03.280] The Democrats having a hard time with it
+- [44:05.050] because they're in the pocket of the insurance companies.
+- [44:07.030] Yes, please do.
+- [44:08.310] The Press: You spoke to some European leaders today,
+- [44:10.410] I think, sir, about your -- The President: I did.
+- [44:11.680] The Press: Could you tell us about that,
+- [44:12.930] and is there a new revised peace plan that Ukraine has presented?
+- [44:17.480] The President: The leaders of France,
+- [44:19.720] we spoke to, and Germany and UK.
+- [44:23.930] All very good leaders, very good friends of mine,
+- [44:26.930] and we discussed Ukraine in pretty strong words,
+- [44:31.910] and we'll see what happens.
+- [44:33.960] I mean, we're waiting to hear answers before we progress.
+- [44:38.110] We're not spending any money in Ukraine.
+- [44:40.540] We're selling basically missiles and everything else to NATO,
+- [44:46.110] and NATO is paying us,
+- [44:47.440] and then they distribute it to who they want.
+- [44:49.640] I guess they're mostly distributing to Ukraine,
+- [44:53.840] but we're not spending money.
+- [44:55.910] But, we are, we're spending a lot of time and a lot of effort,
+- [44:59.950] because last month, 27,000 soldiers were killed.
+- [45:02.960] Both, think of it, 27 -- If you take a football game
+- [45:07.650] and take half the stadium, that's 27,000.
+- [45:11.410] So, 27,000 soldiers were killed,
+- [45:13.540] Russian and Ukrainian soldiers were killed,
+- [45:16.240] and I want to see that stop. We'll find out.
+- [45:18.410] Look, there are a lot of things happening right now.
+- [45:20.750] A lot of people say it's closer than it's ever been.
+- [45:24.220] It's a war that would have never started.
+- [45:25.750] If I were president, would have never started.
+- [45:27.730] It's a war that should never have started,
+- [45:30.140] but we'll have it figured out
+- [45:32.490] I think within a pretty short period.
+- [45:34.410] The Press: You say, "Very strong terms," sir.
+- [45:36.130] Can you explain that?
+- [45:38.240] The President: Well, I think we had some little disputes
+- [45:42.390] about people,
+- [45:44.880] and we're going to see how it turns out,
+- [45:47.850] and we said before we go to a meeting,
+- [45:50.250] we want to know some things.
+- [45:53.030] They would like us to go to a meeting
+- [45:55.520] over the weekend in Europe and we'll make a determination
+- [46:01.410] depending on what they come back with.
+- [46:04.520] We don't want to be wasting time.
+- [46:07.250] Sometimes, you have to let people fight it out,
+- [46:09.990] and sometimes you don't.
+- [46:11.220] But the problem with letting people fight it out is,
+- [46:13.390] you're losing thousands of people a week.
+- [46:17.130] It's ridiculous. The whole thing is ridiculous.
+- [46:19.160] The Press: Mr. President, two questions.
+- [46:20.400] One, the oil tanker, who owns that oil tanker?
+- [46:23.700] The President: You'll get that information later.
+- [46:25.340] The Press: Okay. And have you spoken to Maduro
+- [46:26.620] since your last conversation? The President: No.
+- [46:27.900] The Press: Has it only been one conversation?
+- [46:29.160] The President: No, no.
+- [46:30.380] The Press: And when you say that the European leaders
+- [46:31.670] want to have a meeting over the weekend,
+- [46:33.070] are you talking about with Zelenskyy or with them?
+- [46:35.890] The President: With Zelenskyy and us.
+- [46:37.880] The Press: And you said in an interview yesterday
+- [46:40.140] that you think it's time for Zelenskyy
+- [46:42.220] to start accepting things.
+- [46:44.100] What things are you talking about?
+- [46:45.930] The President: I think he has to be realistic,
+- [46:47.560] and I do wonder about how long
+- [46:51.260] is it going to be till they have an election.
+- [46:54.690] It's a democracy. It's a long time.
+- [46:57.190] They haven't had an election in a long time.
+- [46:59.700] It's losing a lot of people,
+- [47:01.920] and it's possible that the people,
+- [47:04.340] and if you look at the polls,
+- [47:06.350] I will say 82 percent, there was a poll that came out.
+- [47:08.890] 82 percent of the people are demanding a settlement be made.
+- [47:14.040] Ukrainian people, they want to see a settlement be made.
+- [47:16.890] I understand that they're losing
+- [47:18.830] thousands and thousands of people a week.
+- [47:20.910] They want to see it ended. And I do say, at what point,
+- [47:25.840] when do they have an election in Ukraine?
+- [47:28.640] That's not casting dispersions on anybody,
+- [47:31.730] but they do have a massive corruption situation
+- [47:35.070] going on there.
+- [47:36.330] And they do say, when are they --
+- [47:39.260] People are asking this question. When do they have an election?
+- [47:42.390] Are they going to have an election?
+- [47:44.550] Or are they going to just keep it going like this?
+- [47:47.500] So, I think it's time to get that war settled,
+- [47:50.500] and I think it's a war that can be settled,
+- [47:54.330] but it takes two to tango.
+- [47:57.040] The Press: What about the new owners of Warner Bros Discovery
+- [48:00.200] to make changes at CNN, big changes,
+- [48:02.240] and if you've spoken to Jared about it,
+- [48:03.790] what are you doing with him
+- [48:05.000] or are you just sort of waffling him off a little bit?
+- [48:06.650] The President: So, what do you want to know?
+- [48:07.910] The Press: What changes do you want to see at CNN
+- [48:09.120] under new ownership?
+- [48:10.340] The President: Well, I'm not involved in that.
+- [48:11.600] I will be probably involved, maybe involved in the decision.
+- [48:14.840] It depends. You have some good companies bidding on it.
+- [48:19.250] I think the people that have run CNN
+- [48:21.790] for the last long period of time are a disgrace.
+- [48:26.000] I think it's imperative that CNN be sold
+- [48:29.080] because you certainly wouldn't want to put people,
+- [48:33.830] just leave those people with some money, good money,
+- [48:37.050] and CNN, so that they can spend
+- [48:39.450] even more money spreading poison,
+- [48:41.520] because it's lies, it's a disgrace.
+- [48:43.940] So, I wouldn't want to see the same company end up with CNN,
+- [48:48.690] the same company with money,
+- [48:50.730] because right now, they don't have too much money,
+- [48:53.210] but they have value, I guess, based on the bids.
+- [48:55.550] They've got value. But I think CNN should be sold
+- [48:59.690] because I think the people that are running CNN right now
+- [49:03.850] are either corrupt or incompetent.
+- [49:06.190] The Press: That'll be a factor in the decision making,
+- [49:07.860] because you -- we've got some very serious --
+- [49:09.480] The President: Well, in my mind, but I can be talked out of that
+- [49:12.410] by some very talented people, though we have antitrust people.
+- [49:16.200] But I just think that the people
+- [49:18.510] that have run CNN into the ground,
+- [49:20.890] by the way, nobody watches, very few people watch.
+- [49:23.820] I don't think they should be entrusted
+- [49:25.320] with running CNN any longer.
+- [49:27.000] So, I think any deal, it should be guaranteed
+- [49:31.750] and certain that CNN is part of it, or sold separately.
+- [49:36.240] But I don't think the people that are running
+- [49:37.780] that company right now and running CNN,
+- [49:40.370] which is a very dishonest group of people,
+- [49:45.180] I don't think that should be allowed to continue.
+- [49:47.080] I think CNN should be sold along with everything else.
+- [49:49.910] The Press: Sir, may I say,
+- [49:51.150] you spoke about affordability earlier in your remarks
+- [49:53.530] and yesterday in Pennsylvania. How much more can we expect
+- [49:56.240] to see you on the road delivering that message,
+- [49:58.480] and are you worried at all about the Democrats
+- [50:00.660] winning a couple more things in Miami and Georgia?
+- [50:03.130] The President: I don't worry about it.
+- [50:04.460] It's like, statistically, it's amazing.
+- [50:07.550] When you win the presidency,
+- [50:08.870] even if you win by a landslide like we did,
+- [50:11.100] and even if you do a good job, and some people say we've done
+- [50:13.990] the best opening 10 months in history,
+- [50:16.660] in the history of the presidency, I think we have.
+- [50:19.720] Who's done better? We ended eight wars.
+- [50:22.600] We have the strongest economy. We have $18 trillion coming in,
+- [50:27.280] which is more than any country had times I think five or six.
+- [50:30.390] 18 trillion is a lot even in your standard, right?
+- [50:32.260] The Press: Yes, sir.
+- [50:33.560] The President: Even for that guy,
+- [50:34.790] 18 trillion's big numbers,
+- [50:36.460] but we have $18 trillion coming in.
+- [50:39.240] Pretty amazing, right?
+- [50:40.680] I think Qualcomm would be very impressed
+- [50:42.730] if they had even a little piece of that.
+- [50:46.970] So, we've done a great job, but for whatever reason,
+- [50:51.010] and nobody's been able to give me an answer,
+- [50:52.780] when you win the presidency, you seem to lose the midterms.
+- [50:56.700] Even if you win the presidency by a lot
+- [50:59.000] and you do a great job as president.
+- [51:01.290] Some presidents have done good and they've lost.
+- [51:05.110] I think it's two times in the last many,
+- [51:07.250] many years it's been won.
+- [51:10.310] I don't know why. It doesn't make sense.
+- [51:12.030] Usually I can figure things out,
+- [51:13.440] but I don't know why, but that seems to be --
+- [51:15.730] But, other than that, we should win because we're doing great.
+- [51:19.840] The economy is roaring.
+- [51:21.100] I think the economy's only going to go better
+- [51:24.050] with all this money pouring in.
+- [51:25.840] We have factories being built, and forget about AI.
+- [51:28.230] We have AI more than anybody. We're leading AI by a lot,
+- [51:32.290] but we have many car companies
+- [51:34.040] coming in from Canada, from Mexico.
+- [51:37.420] They're closing up. They're coming in from Mexico.
+- [51:39.510] They're coming in from Canada, from Japan, from Europe,
+- [51:43.950] all over Europe, Germany, all over Europe.
+- [51:47.430] I mean, we're doing great.
+- [51:48.650] But, for whatever reason, it doesn't matter how well
+- [51:52.310] they're doing, good and bad, and the bad you understand,
+- [51:54.980] but even when a president is doing well,
+- [51:57.750] they seem to not do well in the midterms,
+- [52:00.160] so, we're going to try and change that.
+- [52:01.670] There should be no reason for it.
+- [52:03.420] If anybody at the table can figure out,
+- [52:05.730] Bruce, a nice psychological reason.
+- [52:09.850] So, I want to win, and winning the midterms is important.
+- [52:17.220] People want us to win the midterms,
+- [52:18.930] and I think we have great spirit.
+- [52:21.800] We should win the midterms. Yeah.
+- [52:23.530] The Press: Mr. Trump, under Joe Biden's administration,
+- [52:26.120] during COVID specifically,
+- [52:27.840] Biden removed the safety standards on abortion drugs.
+- [52:30.270] Now I'm hearing from a lot of pro lifers
+- [52:31.860] that they're very anxious
+- [52:33.080] because yesterday Bloomberg reported
+- [52:34.630] that your FDA is slow walking a review of the abortion drugs
+- [52:37.910] that Secretary Kennedy promised.
+- [52:39.430] The President: Yeah, I don't know about --
+- [52:40.690] The Press: How soon do you want to see that be implemented?
+- [52:42.290] The President: I'll find out. I'll ask them.
+- [52:44.510] Because I don't think they're slow walking anything,
+- [52:46.600] but I'll find out. Yeah.
+- [52:48.640] The Press: Any update on the clashes
+- [52:50.740] between Thailand and Cambodia, sir?
+- [52:52.390] The President: Yeah, I think I'll have to make a phone call.
+- [52:54.700] I was going to say that the Thailand and Cambodia,
+- [52:57.080] one of the eight that I settled,
+- [52:58.890] they've been fighting for a long time.
+- [53:01.250] They've been fighting for a very long time.
+- [53:02.910] Many, many, many decades, but I got along great with both.
+- [53:07.300] I found they were two great leaders,
+- [53:10.060] two great people, and I settled it once.
+- [53:13.490] I think I can do it pretty quickly.
+- [53:15.080] I think we're scheduling a phone call tomorrow.
+- [53:18.500] The Press: With both leaders?
+- [53:19.760] The President: With Thailand. With Thailand, if you --
+- [53:23.390] Just to answer, Steve, with Thailand and Cambodia,
+- [53:28.670] I think I can get them to stop fighting.
+- [53:32.310] Who else can do that? Think of it. Settled eight wars.
+- [53:37.850] Every once in a while, one will flame up again
+- [53:40.020] and I have to put out that little flame.
+- [53:41.700] I have to put it out, but we're going to put it out again.
+- [53:44.170] So, I think I'm scheduled to speak to them tomorrow
+- [53:46.670] and see if I can --
+- [53:49.120] It was unfortunate what happened.
+- [53:50.890] I mean, I know exactly what happened.
+- [53:52.350] It got it started a little bit,
+- [53:53.820] but we'll see if we can put it out.
+- [53:56.300] The Press: We're interested in the seizure of this tanker.
+- [53:58.530] What happens to the oil? Where does it go? What port --
+- [54:00.910] The President: Well, we keep it, I guess.
+- [54:02.880] The Press: Where does it go? What port does it go to?
+- [54:04.810] The President: Well, you have to follow the tanker.
+- [54:06.820] You're a good newsman, just follow the tanker.
+- [54:10.160] Follow it. Get a helicopter and follow the tanker.
+- [54:13.580] But I assume we're going to keep the oil.
+- [54:16.840] The Press: Mr. President, on Fed Chair,
+- [54:18.190] Kevin Hassett to say we're going to announce your decision
+- [54:20.080] within the next two weeks. Is that correct?
+- [54:22.780] The President: Maybe.
+- [54:24.010] The Press: Are you doing your interviews with finalists today?
+- [54:26.670] The President: Well, I'm meeting with Kevin Warsh today,
+- [54:28.530] so I'm meeting with them.
+- [54:30.950] I sort of have a very good idea what I'm looking for.
+- [54:33.880] Again, I'm looking for somebody
+- [54:36.630] that will be honest with interest rates.
+- [54:39.640] I just want honesty. Our rate should be much lower.
+- [54:42.960] Our rate should be the lowest rates in the world.
+- [54:45.460] Because all these countries that you see with low rates,
+- [54:50.030] many of them are low because of us,
+- [54:52.170] because they suck so much money out of us.
+- [54:54.800] But that's not happening anymore.
+- [54:56.630] We should have the lowest rates in the world.
+- [54:58.560] And without us, none of them really exist as an economy.
+- [55:02.160] I mean, I can show you these really prime,
+- [55:04.980] really wonderful countries. They've had nothing but success.
+- [55:08.250] It's because they took so much out of the United States.
+- [55:11.600] I mean, it's one of those little problems.
+- [55:15.900] I want to see that when we do well,
+- [55:18.370] we're rewarded for doing well,
+- [55:20.040] not the way it's been for the last pretty long period of time.
+- [55:25.960] The Press: Are you asking these finalists
+- [55:27.230] to pledge to lower rates if they become the Chair?
+- [55:29.790] The President: No. I'll be asking questions,
+- [55:31.240] and I'll be able to figure it out.
+- [55:33.200] The Press: We have three countries sending drugs
+- [55:34.680] to the US, Mexico, Venezuela, and Colombia.
+- [55:37.730] Can you talk to the president of Mexico?
+- [55:39.720] You already talked to Nicolás Maduro.
+- [55:41.550] Have you considered talking to the president of Columbia
+- [55:43.850] who you call a drug dealer?
+- [55:45.960] The President: No, I haven't really thought
+- [55:47.160] too much about him.
+- [55:48.370] He's been fairly hostile to the United States.
+- [55:52.220] I haven't give him a lot of thought.
+- [55:53.930] He's going to have himself some big problems
+- [55:57.370] if he doesn't wise up.
+- [56:00.290] Columbia is producing a lot of drugs.
+- [56:02.550] They have cocaine factories that they make cocaine,
+- [56:05.340] as you know, and they sell it right into the United States.
+- [56:07.740] So he better wise up, or he'll be next.
+- [56:10.870] He'll be next too. I hope he's listening.
+- [56:14.520] He's going to be next. Yes.
+- [56:17.710] Because we don't like people when they kill people.
+- [56:20.440] They sell drugs, they kill them in the United States.
+- [56:22.730] And Columbia is a major manufacturer of drugs,
+- [56:27.650] meaning cocaine in particular, as you know.
+- [56:30.870] The Press: Thank you, Mr. President.
+- [56:32.180] The President: Thank you.
+- [56:33.420] The Press: Multiple House Republicans in recent weeks,
+- [56:35.620] days, have been critical of Speaker Mike Johnson.
+- [56:38.400] I wanted to ask you if you're still confident in the speaker
+- [56:40.330] to keep his conference together ahead of the midterms,
+- [56:42.640] and how often are you speaking about him?
+- [56:44.080] The President: I think Mike Johnson is great.
+- [56:46.370] He's had a majority of two, three, four.
+- [56:50.830] Then back to two. We actually had one.
+- [56:54.180] So we were one heart attack away from disaster.
+- [56:58.460] So everybody prayed for everybody's health.
+- [57:01.690] I think Mike Johnson's been a fantastic speaker.
+- [57:03.930] I mean, a very hard job,
+- [57:05.230] because when you have a small majority,
+- [57:07.190] and we got the biggest Bill in the history of our country
+- [57:10.620] approved, the Great, Big, Beautiful Bill.
+- [57:12.260] I call it the Great, Big, Beautiful Bill.
+- [57:14.040] There are different names for it,
+- [57:15.470] but to me it's a Great, Big, Beautiful Bill,
+- [57:17.430] because it gives the biggest tax cuts in history,
+- [57:20.280] the biggest regulation cuts in history.
+- [57:23.250] No tax on tips, no tax on social security,
+- [57:26.790] no tax on overtime.
+- [57:28.840] I think Mike Johnson's been a great speaker.
+- [57:30.960] I think few people could have done that job.
+- [57:33.490] The Press: Do you want to see another big package move
+- [57:35.770] through Capitol Hill in the next year?
+- [57:37.410] The President: Well, we don't need it,
+- [57:38.640] because we got everything.
+- [57:39.880] This was supposed to be 17 Bills.
+- [57:43.690] I think it was my idea,
+- [57:44.890] but with the concurrence of people
+- [57:46.630] that have done this a long time.
+- [57:47.930] And I said, "Why don't we make it one Bill,
+- [57:50.600] because it's very hard to get things
+- [57:52.080] approved by the Democrats." And it worked out,
+- [57:54.960] because there was something good for everybody.
+- [57:57.350] If we would have done 17 Bills,
+- [57:58.970] we wouldn't have gotten a third of them approved.
+- [58:01.950] It was something great for everybody in the one,
+- [58:04.990] the Great, Big, Beautiful Bill. Brian?
+- [58:06.420] The Press: Yes. Good to see you Mr. President.
+- [58:07.640] The President: Hi.
+- [58:08.880] The Press: Follow up on the event last night
+- [58:10.160] in Pennsylvania. Huge crowd turned out there.
+- [58:11.950] The President: Yeah, big crowd.
+- [58:13.180] The Press: It seemed like rally Trump
+- [58:15.260] was in prime condition last night. You enjoyed it.
+- [58:17.460] Can you just give me your thoughts on that?
+- [58:19.050] Then I do have a question on the gold card.
+- [58:21.630] The President: Last night was amazing in Pennsylvania.
+- [58:23.650] We had a tremendous crowd. It was like freezing.
+- [58:26.790] And the thousands of people on the sidewalk
+- [58:29.960] trying to get in on the streets.
+- [58:32.220] It was an amazing evening, actually.
+- [58:34.730] And I think people really enjoyed it.
+- [58:36.790] I enjoyed it. You could tell that.
+- [58:38.220] The Press: I can tell that you enjoyed it.
+- [58:39.430] The President: I enjoyed it. Everyone did.
+- [58:40.900] Well, it's easy to enjoy when you do a good job.
+- [58:43.200] And when you can talk about things in a very positive way,
+- [58:46.920] it's hard not to say.
+- [58:49.220] We have potentially the greatest economic boom
+- [58:52.700] in the history of the world. It's being built right now.
+- [58:56.890] And when it opens, there will be nothing ever in history
+- [59:01.190] like what's happening in our country.
+- [59:03.430] And Washington, D.C. is safe, and Memphis is now.
+- [59:09.740] Look at Memphis. Crime is down 60 percent in Memphis.
+- [59:13.100] We just got there three weeks ago.
+- [59:15.920] And we're going to have New Orleans.
+- [59:20.220] New Orleans, we just sent a group of people there
+- [59:24.490] and crime is down 28 percent in about three days.
+- [59:30.870] No, we do a good job.
+- [59:32.720] And these are central casting people.
+- [59:34.320] These people are, they're very tough people if they have to be.
+- [59:38.280] They're very good. They're great patriots,
+- [59:40.000] but they are the toughest,
+- [59:41.860] and they don't take any nonsense.
+- [59:45.120] And every place we go, we knock down crime.
+- [59:48.750] Too bad that we're not invited more into Chicago,
+- [59:52.680] because we could save Chicago very quickly.
+- [59:56.140] But even that, we're doing it on a minimal basis
+- [59:58.920] until, at some point we'll just go in
+- [01:00:01.280] and do what we have to do if the governor does it wise up.
+- [01:00:04.870] They got a bad governor, they have a bad mayor.
+- [01:00:08.030] I would say they're both incompetent.
+- [01:00:09.920] But it's hard to believe that people don't want to stop crime.
+- [01:00:12.370] We could stop the crime in Chicago in about two weeks.
+- [01:00:16.230] Go ahead.
+- [01:00:17.610] The Press: My question is on the gold card.
+- [01:00:20.460] I apologize if I missed the answer to this.
+- [01:00:22.340] Is there a limit to how many gold cards
+- [01:00:25.180] these companies can buy?
+- [01:00:26.400] The President: Howard?
+- [01:00:27.620] Howard Lutnick: So the program
+- [01:00:29.460] is part of the already approved visas.
+- [01:00:32.660] So we're just going to have great people
+- [01:00:36.000] come into this country. The average green card holder
+- [01:00:40.030] earned less than the average American.
+- [01:00:42.880] So they were more likely to be on the dole
+- [01:00:46.010] and be on our assistance programs than average Americans.
+- [01:00:50.220] And the ideas from President Trump, he wants to raise it,
+- [01:00:53.120] bring in the best people into America.
+- [01:00:55.140] So same visas, but now just full of the best people.
+- [01:01:01.660] The President: Basically, it's a green card,
+- [01:01:03.930] but much better. Much more powerful.
+- [01:01:07.070] A much stronger path. And a path is a big deal.
+- [01:01:11.610] They have to be great people, but much stronger path.
+- [01:01:14.630] And it also, in addition to that, helps companies,
+- [01:01:17.240] because not only for companies,
+- [01:01:18.620] but if IBM gets somebody number one in his class
+- [01:01:24.650] at the Wharton School of Finance,
+- [01:01:26.790] and you're dying to get the person,
+- [01:01:28.480] but you can't guarantee the person stays in the country,
+- [01:01:31.000] because oftentimes they'll say, "I'm sorry, sir.
+- [01:01:34.050] You got to get out of here. You have 24 hours"
+- [01:01:36.850] And you say, "Where's my employee?"
+- [01:01:39.600] Now IBM can buy a card, and that employee can be there
+- [01:01:43.390] for essentially a very long period of time.
+- [01:01:49.270] It's so needed for the companies.
+- [01:01:51.730] It's needed for others.
+- [01:01:53.270] But really it's basically a much better form of a green card.
+- [01:01:59.040] And you can't get green cards. They are impossible to get.
+- [01:02:02.240] This is much better than a green card. Yeah.
+- [01:02:03.840] The Press: Yes, sir.
+- [01:02:05.070] Did you tell Bruce Blakeman not to run for governor,
+- [01:02:07.050] or that he should think about not running for governor?
+- [01:02:09.840] The President: I haven't spoken to --
+- [01:02:11.720] First of all, he's a friend. She's a friend.
+- [01:02:14.030] These are two great people running.
+- [01:02:16.970] In a way, I hate to see them running against each other.
+- [01:02:19.370] I hope they're not going to be damaging each other.
+- [01:02:22.380] But Elise is fantastic.
+- [01:02:23.840] And Bruce, they're two fantastic people.
+- [01:02:26.980] And I always hate it
+- [01:02:30.050] when two very good friends of mine are running,
+- [01:02:33.680] and I hope there's not a lot of damage done.
+- [01:02:35.840] Sometimes it works the other way.
+- [01:02:37.260] The victor ends up being much stronger because of it.
+- [01:02:39.920] A lot of times that happens in politics.
+- [01:02:41.900] The Press: (inaudible)
+- [01:02:43.100] a couple of months to actually see who performs?
+- [01:02:45.860] The President: Well, I think in New York,
+- [01:02:47.310] we have a convention toward the end of February,
+- [01:02:49.520] and I think you'll know pretty much at the end
+- [01:02:51.430] of February what's going to happen.
+- [01:02:53.250] And I'll probably have to do what I want to do,
+- [01:02:57.720] but I hope that he's running now, as you know,
+- [01:03:00.800] and she's running.
+- [01:03:02.160] We have two very talented people.
+- [01:03:04.470] Either one should win against the Democrats.
+- [01:03:09.530] The Press: Mr. President, every other legacy story
+- [01:03:11.870] lately focuses on one of your cabinet members
+- [01:03:13.670] predicting that you're going to hire this one,
+- [01:03:15.240] or you're going to get rid of that one.
+- [01:03:16.610] Of all your cabinet members,
+- [01:03:17.840] who would you perceive as the most under attack?
+- [01:03:21.250] The President: Well, I think my cabinet's fantastic.
+- [01:03:23.460] I read the same stories that I'm unhappy with this one
+- [01:03:26.060] or that one, and I'm not.
+- [01:03:27.390] I think the cabinet's done a great job.
+- [01:03:30.760] I read a story that I was unhappy with Pete,
+- [01:03:34.360] because he was attacking drug dealers.
+- [01:03:37.560] I said, "That's not exactly right."
+- [01:03:39.700] I would say very much the opposite.
+- [01:03:41.410] Pete Hegseth has been phenomenal.
+- [01:03:44.620] I read a story recently, I'm unhappy with Christie.
+- [01:03:49.720] I'm so happy with her. I mean, we have a closed --
+- [01:03:52.230] We have a border that's the best border
+- [01:03:54.330] in the history of our country.
+- [01:03:56.110] Why would I be unhappy? She's fantastic, actually.
+- [01:03:59.380] No, we have a fantastic cabinet. Really fantastic cabinet.
+- [01:04:04.160] I mean, Lutnick, I'll have to think about.
+- [01:04:06.040] No, I'm kidding.
+- [01:04:10.090] He's doing great.
+- [01:04:11.400] Well, Howard's done really well, and Scott's done really well.
+- [01:04:15.420] We have just a fantastic cabinet.
+- [01:04:18.390] I'll tell you who's doing a great job, is Linda McMahon.
+- [01:04:22.030] We're bringing education back to the states where it belongs.
+- [01:04:24.990] Education is going,
+- [01:04:26.760] "We can't do any worse than we're doing right now.
+- [01:04:28.920] Let the states run it."
+- [01:04:30.150] If you go back to some of our states that have run so well,
+- [01:04:33.980] so good, I would say 40 of them.
+- [01:04:38.080] And then you'll have trouble with five,
+- [01:04:39.760] and you'll have bigger trouble with another five.
+- [01:04:43.230] But you have 35 or 40 states that will run education
+- [01:04:46.640] as good as Norway or Denmark, Sweden.
+- [01:04:52.530] We have some, the heads of the list are Denmark,
+- [01:04:57.830] Norway, Sweden, a few others.
+- [01:05:00.970] I think if you go to Iowa and you go to Indiana
+- [01:05:04.520] and you go to, I can name a lot of states,
+- [01:05:09.790] I think it would be almost the equivalent or maybe better.
+- [01:05:13.810] But you can't run a school system in Iowa
+- [01:05:17.200] from Washington, D.C. Yeah.
+- [01:05:19.940] The Press: Sir, the Gaza planning,
+- [01:05:21.880] when do you expect to amount members of the board of peace,
+- [01:05:25.200] the leadership of that?
+- [01:05:26.430] The President: Well, we'll do it early next year.
+- [01:05:28.530] And the board of peace are going to,
+- [01:05:30.300] it'll be one of the most legendary boards ever.
+- [01:05:33.350] Everybody wants to be on it. It's mostly going to be,
+- [01:05:36.140] I guess, we weren't thinking about it that way,
+- [01:05:38.400] but they want to all do it.
+- [01:05:41.430] Basically, it'll be the heads of the most important countries.
+- [01:05:49.140] They all want to be on. It wasn't really planned.
+- [01:05:51.720] We thought we were going to get very distinguished people
+- [01:05:54.160] that do that kind of thing for a living.
+- [01:05:57.400] But really it looks like it's turning out to be,
+- [01:05:59.710] they want to be on, the heads,
+- [01:06:00.910] the kings and the presidents, prime ministers.
+- [01:06:05.640] They all want to be on the board of this.
+- [01:06:07.740] The Press: Mr. President, (inaudible)
+- [01:06:09.480] to last night's rally, can you clarify,
+- [01:06:11.660] you have called the affordability crisis
+- [01:06:14.210] as a Democratic hoax,
+- [01:06:15.430] but you also want to make America affordable again --
+- [01:06:17.480] The President: No, the word that they use is a hoax,
+- [01:06:20.550] because they're the ones that cause the problem.
+- [01:06:23.950] No, I'm talking about when you're trying to say
+- [01:06:25.810] it a different way.
+- [01:06:27.070] No, it's pretty simple though if you listen.
+- [01:06:30.640] It's a hoax, where they created the problem.
+- [01:06:35.440] They're the ones that gave the high prices.
+- [01:06:37.670] So when they use the word affordability,
+- [01:06:39.940] they shouldn't be using that word,
+- [01:06:41.390] because they're the ones that created this problem.
+- [01:06:44.750] They created the highest inflation in history,
+- [01:06:47.590] and they created the highest prices in history.
+- [01:06:50.480] And now we have to get those things down.
+- [01:06:53.990] But when they go, they look and they say, "Affordability."
+- [01:06:56.080] They never discussed it.
+- [01:06:57.300] They just say, "The election's about affordability."
+- [01:07:00.600] Well, it may very well be.
+- [01:07:02.410] I think it's also about still the border.
+- [01:07:04.070] You have to remember the job.
+- [01:07:05.620] The sad thing is for seven months,
+- [01:07:08.720] we've had no people come through our border.
+- [01:07:10.960] Nobody can even believe it. Zero people.
+- [01:07:14.290] And the people that do that are largely Democrats,
+- [01:07:16.790] which the people that do the stats.
+- [01:07:19.800] We've had no people come in, other than coming in legally.
+- [01:07:23.810] But if you take a look, and nobody wants to talk about that.
+- [01:07:26.920] In fact, last night I said, "Let me talk about the border."
+- [01:07:29.690] My own people told me,
+- [01:07:30.920] "Sir, nobody cares about the border anymore.
+- [01:07:32.750] You've fixed the problem."
+- [01:07:34.370] I said, "Do I get a little credit
+- [01:07:36.750] for fixing a disaster where millions of people a month
+- [01:07:41.680] would flow into our country from prisons and from gangs
+- [01:07:45.530] and from drug dealers and mental institutions?"
+- [01:07:49.980] They say, "Sir, you fixed the border. Nobody cares."
+- [01:07:53.900] I say, "But I care."
+- [01:07:55.250] It's sad when you fix something and then you can't even use it.
+- [01:07:58.110] You can't talk about it.
+- [01:07:59.350] My own people don't want to talk about it anymore.
+- [01:08:02.160] But very simply,
+- [01:08:05.930] the Democrats created the worst crisis of inflation
+- [01:08:12.080] that this country has ever had.
+- [01:08:13.940] And with that came the highest prices that we've ever had.
+- [01:08:17.540] And I'm fixing it.
+- [01:08:19.280] The Press: Mr. President, has Secretary Hegseth
+- [01:08:21.410] told you why he hasn't released the video of the second strike?
+- [01:08:24.650] The President: No, he hasn't. I thought that issue was dead.
+- [01:08:28.020] Surprised you're bringing at up. You must be CNN.
+- [01:08:30.540] The Press: Lawmakers are still talking about it on the Hill.
+- [01:08:32.290] The President: Are you CNN? Are you CNN?
+- [01:08:33.610] The Press: I am with CNN.
+- [01:08:34.870] The President: Oh, I'm shocked to find out.
+- [01:08:36.070] The Press: The lawmakers are still talking
+- [01:08:37.290] about it on the Hill.
+- [01:08:38.560] The President: Well, I'll tell you,
+- [01:08:39.760] I don't know about lawmakers.
+- [01:08:40.970] Which lawmakers are you talking about?
+- [01:08:42.220] The Press: Most of the press are talking about
+- [01:08:43.480] trying to release it.
+- [01:08:44.730] The President: You mean the people that you work for,
+- [01:08:46.350] the Democrats?
+- [01:08:47.890] You know you work for the Democrats, don't you?
+- [01:08:49.760] You're basically in arm of the Democrat Party.
+- [01:08:53.760] Thank you very much, everybody.
+- [01:08:55.190] I appreciate it. Thank you. Thank you very much.

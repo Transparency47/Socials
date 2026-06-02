@@ -1,0 +1,656 @@
+<!-- source: https://www.youtube.com/watch?v=REqL7qXJcIg -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: REqL7qXJcIg -->
+<!-- date_published: 2026-05-18T18:27:49+00:00 -->
+<!-- date_accessed: 2026-06-02T02:33:44.713237+00:00 -->
+
+# Transcript: Vice President JD Vance Delivers Remarks in Kansas City, Missouri
+
+- [00:03.410] Announcer: Ladies and gentlemen, please welcome
+- [00:05.770] the Vice President of the United States, JD Vance.
+- [00:10.810] (cheers and applause)
+- [00:26.075] ♪ (rock music playing) ♪
+- [00:37.340] (cheers and applause)
+- [00:43.605] (Audience chants "USA")
+- [00:51.420] The Vice President: Thank you. Wow. Thank you, all. Thank you.
+- [00:59.490] What did they give this crowd to drink before they got here?
+- [01:05.960] Semper fidelis, sir. It's great to be here in Kansas City.
+- [01:09.400] We're so thrilled. I've got -- but before I get started,
+- [01:13.780] I got a few notes of appreciation.
+- [01:15.900] First of all, it is amazing to be
+- [01:18.650] in this great Milbank manufacturing facility.
+- [01:22.120] Do we love our American workers
+- [01:24.160] and the people who make our stuff?
+- [01:32.790] So I was talking to the owners beforehand
+- [01:35.140] and they were telling me that COVID,
+- [01:37.320] you saw such a ramp up in business need and business use,
+- [01:40.570] and it reminds me that, you know,
+- [01:42.670] while a lot of us try to forget the craziness
+- [01:44.820] that was COVID five, six years ago,
+- [01:47.090] there were a lot of people
+- [01:48.450] who are sitting at home on a laptop,
+- [01:50.700] doing absolutely nothing and collecting a paycheck.
+- [01:53.350] And there were a lot of people who had to come to work
+- [01:55.970] and build the things Americans need.
+- [01:58.300] They didn't get to sit at home and do nothing.
+- [02:00.760] You guys came to work, and we're proud of you for it,
+- [02:03.350] and we're grateful.
+- [02:12.650] So in addition, we have some of my favorite elected leaders
+- [02:15.940] in all of the United States here.
+- [02:18.210] And so I want to make sure that each of them
+- [02:19.930] get a proper shout out.
+- [02:21.130] First of all, I think that you all have, maybe,
+- [02:24.500] in the great state of Missouri,
+- [02:26.120] the very best United States senator.
+- [02:28.250] I'm not going to get in trouble for saying that, am I, Eric?
+- [02:39.820] And -- and if -- and if you do not
+- [02:41.960] have the best senator in all the United States,
+- [02:45.620] you've got tied for the best Senator with Dr. Roger Marshall.
+- [02:49.410] So let's give a shout out to Doc Marshall and to Eric Schmidt.
+- [02:58.700] But we're pretty close to your --
+- [03:00.130] we're pretty close to where you would call home, right, doc?
+- [03:02.090] Roger Marshall: Very close.
+- [03:03.320] The Vice President: Very close. OK. Good, good.
+- [03:04.580] We love -- we love Doc Marshall; we love Eric Schmidt.
+- [03:07.490] Uh, Eric is a better baseball player,
+- [03:10.130] but if you need health care,
+- [03:12.570] count on Doc Marshall, not Eric Schmidt.
+- [03:14.180] All right. We got Congressman Jason Smith.
+- [03:16.960] Where is Jason Smith? Good to see you, Jason.
+- [03:24.360] Congressman Mark Alford.
+- [03:25.580] Where is Mark at? Mark, raise your hand.
+- [03:27.160] Thank you. Good to see you, man. The great governor, Mike Kehoe.
+- [03:33.780] Where is Mike Kehoe? Governor, thank you.
+- [03:41.650] Now, when we had that great
+- [03:42.970] Supreme Court case that said a crazy thing,
+- [03:46.150] like maybe we shouldn't discriminate against people
+- [03:48.240] based on race, right, very common sense,
+- [03:51.000] maybe we should build our Congressional districts
+- [03:52.960] to represent people rather than representing racial groups.
+- [03:56.880] Mike Kehoe -- Mike Kehoe jumped into action,
+- [04:00.860] and working with the Congressional leadership here
+- [04:03.630] in the state of Missouri,
+- [04:05.410] gave us a brand-new Congressional District five,
+- [04:08.460] which I believe we're sitting in right now.
+- [04:10.710] Is that right? OK.
+- [04:18.920] And I also want to give a word of gratitude
+- [04:20.980] to Secretary of State Denny Hoskins.
+- [04:22.860] Where is Denny at? Denny, are you here?
+- [04:25.010] There we go.
+- [04:30.520] Denny, that is a nice blazer, man.
+- [04:34.300] If you -- Eric knows,
+- [04:36.520] if you wore that blazer into the Oval Office,
+- [04:38.100] the President of the United States
+- [04:39.380] would take special note of you.
+- [04:41.440] Um, I will tell you that the president,
+- [04:44.590] he will note if you're not wearing --
+- [04:46.940] if you're wearing anything other than a solid navy blue jacket.
+- [04:51.290] And I learned this the hard way, not just that,
+- [04:54.020] but, you know, he likes more conservative dress.
+- [04:56.150] I learned this the hard way last year,
+- [04:58.390] because it's tradition for the vice president
+- [05:00.560] to welcome the Irish Prime Minister
+- [05:03.180] every Saint Patrick's Day.
+- [05:04.430] So we do this -- we do this big thing at our house,
+- [05:06.480] at the Naval Observatory,
+- [05:08.020] and then we do a meeting at the Oval Office.
+- [05:09.840] And I decided to wear my shamrock socks
+- [05:13.010] to welcome the Irish prime minister.
+- [05:15.490] And we're sitting down in front of God and everybody,
+- [05:17.580] and probably a hundred TV cameras,
+- [05:19.330] on a live press conference.
+- [05:21.000] And the president starts his remarks
+- [05:22.540] and he looks over and he says,
+- [05:23.900] what is going on with those socks?
+- [05:27.350] So I learned the hard way,
+- [05:28.710] dress conservatively around the president of the United States.
+- [05:31.850] But thank you all for what you're doing and here's --
+- [05:34.300] here's some good news. Ladies and gentlemen,
+- [05:37.380] we are bringing the United States of America back,
+- [05:40.270] and it's starting right here in the great state of Missouri.
+- [05:50.410] Now, I want to talk about just a few of the things
+- [05:52.420] that we've been doing
+- [05:53.620] to try to rebuild the United States of America.
+- [05:55.970] Because I'm 41 years old, and for my entire life,
+- [05:59.490] the story of my hometown,
+- [06:01.400] the story of great manufacturers, like this one,
+- [06:04.780] is that they were shedding jobs instead of creating jobs,
+- [06:08.200] and that workers were suffering instead of thriving.
+- [06:11.120] And that we saw factories in our own hometowns
+- [06:14.420] and our own home states closing down
+- [06:17.470] instead of rebuilding and adding.
+- [06:19.550] And what Donald Trump has done in just 18 months,
+- [06:22.470] with the support of the great Congressional leadership
+- [06:24.870] that's here today, is that we have made it great
+- [06:27.790] to build in the United States of America once again,
+- [06:30.630] we're investing in the United States of America once again,
+- [06:33.830] and we're investing in American workers.
+- [06:43.570] Now, that is not an accident, my friends.
+- [06:45.420] It didn't happen through accident.
+- [06:47.590] It happened through the deliberate decisions
+- [06:50.400] of the President of the United States
+- [06:52.130] and some of these Congressional leaders here today.
+- [06:54.600] You ask yourself, how is it
+- [06:56.380] that we shocked economists' expectations,
+- [06:58.990] and we added 123,000 jobs just last month.
+- [07:03.930] How is it that we've seen the biggest growth
+- [07:06.420] in manufacturing employment
+- [07:07.900] last quarter that we have seen in this country
+- [07:10.300] since Donald J. Trump was president the first time?
+- [07:13.460] How is it that we've seen our construction workers
+- [07:16.440] and our manufacturers benefit from this
+- [07:18.890] great American economic recovery?
+- [07:21.100] And it's simple.
+- [07:22.350] We decided to put American businesses and most importantly,
+- [07:26.290] American workers first for a change.
+- [07:29.230] We decided to fight for you instead of fight against you,
+- [07:32.520] which is what way too many leaders have been doing.
+- [07:41.770] And let me just give you some examples.
+- [07:43.480] Unfortunately, because this is a new Congressional district,
+- [07:46.840] I do not have an incumbent Democrat
+- [07:49.310] where I can talk about all the terrible things
+- [07:51.120] they've been doing in Washington, DC.
+- [07:53.420] We've got a new -- we've got a new Congressional district
+- [07:57.590] and what that means is,
+- [07:58.860] I can't talk about the fact that last year,
+- [08:03.200] when we passed the Working Families Tax Cuts
+- [08:05.650] that Jason Smith authored, and these guys fought for,
+- [08:10.260] you know, every single Congressional Democrats,
+- [08:13.470] save, I believe one, voted against it.
+- [08:16.010] When we decided to put more money in your pocket,
+- [08:19.100] every single Congressional Democrat,
+- [08:21.320] except one, a guy in Maine, voted against it.
+- [08:24.740] When we voted to reinvest in Missouri's
+- [08:27.630] manufacturing workers,
+- [08:29.360] every single Congressional Democrat,
+- [08:31.310] save one, voted against it. Here's the simple fact,
+- [08:34.570] if you want Congressional leadership
+- [08:36.740] that fights to lower your taxes,
+- [08:38.690] that fights to put more money in your pockets and fights
+- [08:41.220] to protect your jobs,
+- [08:42.790] the only game in town is Donald J. Trump
+- [08:45.940] and Congressional Republicans.
+- [08:47.350] We're fighting for you every single day.
+- [08:58.260] Now, that legislation provides the biggest tax cut
+- [09:01.520] for working-class Missourians that we have ever seen
+- [09:04.670] in the history of the United States of America.
+- [09:07.430] And Jason, it wasn't easy, was it?
+- [09:10.130] It should have been.
+- [09:11.330] It should have been simple to get Democrats
+- [09:13.680] to vote for more money in your pockets.
+- [09:15.740] It should have been simple to get Democrats to vote
+- [09:18.440] for protecting rural health care.
+- [09:20.170] You know, we had $30 billion in that legislation
+- [09:23.980] to stop the closures that we saw under the Biden administration,
+- [09:27.720] of all of these rural health care clinics.
+- [09:29.900] But instead of fighting for you,
+- [09:31.880] they decided to fight against you.
+- [09:33.620] And the simple reason is because the Democratic Party
+- [09:35.920] in Washington, DC,
+- [09:37.190] I hate to say it, ladies and gentlemen,
+- [09:39.020] it is not the Democratic Party
+- [09:40.930] that my mamaw and papa belonged to.
+- [09:43.150] It's not the Democratic Party that was patriotic
+- [09:46.550] and believed in supporting working people.
+- [09:49.000] It's the Democratic Party that has been given over,
+- [09:51.720] unfortunately, to a lot of crazy people.
+- [09:55.310] You can say that.
+- [09:56.550] I won't, ma'am.
+- [10:00.120] Because while I believe -- I'm fundamentally --
+- [10:02.100] Eric Schmidt knows this, I'm fundamentally an optimist
+- [10:04.730] about the United States of America.
+- [10:06.250] I believe that we have dedicated and patriotic people,
+- [10:09.290] whether they've got a D next to their name,
+- [10:11.520] an R next to their name, or whether they're independent.
+- [10:14.530] But as much as the historical Democrat Party,
+- [10:17.710] and I'm sure a lot of Missouri Democrats
+- [10:19.610] love this country, Congressional Democrats
+- [10:22.190] have lost their minds in Washington, DC.
+- [10:32.010] Everything that we do, everything that we try to do
+- [10:34.770] to make our streets safer, to close down the border,
+- [10:37.270] to try to give more money in your pocket,
+- [10:38.970] every time we try to do something,
+- [10:41.040] the Democratic leadership in Washington fights us
+- [10:43.410] every step of the way.
+- [10:44.800] And you don't have to take my word for it.
+- [10:47.370] I'd like Ð I'd ask you to go back -- if you --
+- [10:49.040] if you ever are confused about the priorities
+- [10:52.780] of Congressional Democrats, I invite you to go back
+- [10:55.870] and watch the state of the Union address
+- [10:58.080] of just a few months ago. It feels like a long time ago.
+- [11:01.240] But the cool thing about the State of the Union,
+- [11:02.790] being vice president of the United States,
+- [11:04.160] is I get the best seat in the House.
+- [11:06.460] Now, the downside of it is you get the best leg workout,
+- [11:09.350] because for two hours, it's stand up,
+- [11:11.020] sit down, stand up, sit down.
+- [11:13.410] But here's the thing, when we had some very simple things,
+- [11:17.500] some things that you would expect, every American,
+- [11:20.260] whether they're a Democrat or Republican
+- [11:22.220] to stand and cheer for, Democrats sat on their hands.
+- [11:25.530] When we had a 6-year-old girl,
+- [11:27.040] a beautiful, little girl who had been wounded
+- [11:29.570] by an illegal alien criminal -- she was there.
+- [11:32.610] We were celebrating her.
+- [11:33.820] She was so happy, this beautiful, little girl.
+- [11:35.900] She was hugging her dad and proud
+- [11:38.060] to be in the United States Congress.
+- [11:39.910] And the president called her out, and what happened?
+- [11:42.450] Congressional Democrats sat on their hands.
+- [11:45.480] And when the president of the United States --
+- [11:47.750] when the president of the United States said,
+- [11:49.310] ladies and gentlemen,
+- [11:50.530] I'm going to just restate a simple principle,
+- [11:53.160] if you believe the purpose of the American government
+- [11:56.540] is to stand up for American citizens
+- [11:59.030] rather than illegal alien criminals,
+- [12:00.920] I'd like you to stand up and cheer.
+- [12:02.590] And what happened?
+- [12:03.840] Every single Congressional Democrat sat on their hands.
+- [12:09.970] You got to ask yourself, what's wrong with a party
+- [12:13.790] that will not stand up and cheer for a 6-year-old little girl
+- [12:16.820] who's been wounded by an illegal alien criminal?
+- [12:19.630] What is wrong with a party that will not stand up
+- [12:23.120] and cheer for a closed border?
+- [12:25.220] What party will not stand up and cheer for the simple principle
+- [12:29.500] that me and Eric Schmidt and Doc Marshall and Jason Smith
+- [12:33.170] and everybody else, Mark, we stand
+- [12:36.070] and we ought to fight for you, not illegal alien criminals?
+- [12:39.600] That's a simple principle that everybody should agree with.
+- [12:51.500] But I sit there.
+- [12:52.780] I'm behind the president of the United States.
+- [12:54.620] And it's not just that they sit on their hands,
+- [12:56.790] it's that there's no courage and no leadership.
+- [12:59.310] Because when the president says, stand and cheer
+- [13:02.310] if you believe the purpose of our government
+- [13:04.140] should be to fight for the American citizenry,
+- [13:06.520] I look over and all these Democrats
+- [13:08.620] get very uncomfortable.
+- [13:09.970] You know, they're shifting uncomfortably in their seats.
+- [13:12.400] And they're looking around and they're looking for approval
+- [13:15.520] from Nancy Pelosi to stand and cheer for a basic principle,
+- [13:19.350] or to stand and cheer for that innocent 6-year-old girl.
+- [13:22.090] And ladies and gentlemen, I think a very simple principle
+- [13:24.950] is that anybody who cannot stand for an innocent 6-year-old girl
+- [13:29.520] who survived a violent attack,
+- [13:31.440] anybody who cannot stand for you,
+- [13:33.900] for your rights and for your prosperity,
+- [13:36.460] we ought to send them the hell out of Washington, DC,
+- [13:38.590] and send people to actually represent us.
+- [13:50.680] And that's what's going to happen.
+- [13:52.110] I don't know; do we know who's running yet in this open
+- [13:54.710] Congressional seat that we just created?
+- [13:58.980] Who is it? Taylor Burks. OK.
+- [14:01.430] Taylor Burts, we wish you the best of luck.
+- [14:03.190] We got somebody, Mike? Micah Beebe.
+- [14:06.350] Mike, congratulations.
+- [14:07.570] We're -- we're rooting for any good Republican in this seat.
+- [14:10.940] But I don't know who the Democrat's going to be.
+- [14:12.840] We probably don't know who the Democrat's going to be.
+- [14:15.500] Who is it? OK. I don't know who that is.
+- [14:20.720] But here's the thing. Here's the thing about this,
+- [14:24.450] that person, I guarantee you -- I'm going to make a prediction.
+- [14:27.500] I'm going to play JD Vance, the profit.
+- [14:31.900] Coming up, October, November,
+- [14:33.920] you're going to see television advertisements
+- [14:36.120] and you're going to see radio advertisements.
+- [14:37.630] You're going to hear them.
+- [14:38.850] And what they're going to tell you
+- [14:40.380] is that this person who's running,
+- [14:42.710] he's not like all the other Congressional Democrats
+- [14:45.130] in Washington, DC. He actually cares about you.
+- [14:48.320] He's willing to work with President Trump
+- [14:50.130] and the Republicans to get things done.
+- [14:52.810] And I guarantee you, that person is going to run
+- [14:55.550] pretending that he fights for you and in reality,
+- [14:58.730] he's going to get there and fight for Nancy Pelosi,
+- [15:01.020] because that's what Congressional Democrats do.
+- [15:03.470] That's what they have to do in order
+- [15:05.060] to get their campaign contributions
+- [15:07.150] and the support from the interest groups.
+- [15:09.040] They have to promise not to fight for you;
+- [15:11.510] they've got to promise to fall in line behind Nancy Pelosi.
+- [15:14.950] And that's why they sit on their hands.
+- [15:16.850] That's why they refuse to clap and cheer
+- [15:18.730] for the simple principle
+- [15:20.090] that your government ought to fight for you.
+- [15:22.130] And that's why we cannot let those people
+- [15:25.450] anywhere near Congressional leadership in Washington, DC.
+- [15:38.870] You know, at the State of the Union,
+- [15:40.180] the president gave me a very cool job.
+- [15:42.430] He decided to make me in charge of the fraud task force
+- [15:46.960] that we've been going after in Washington.
+- [15:53.930] And every -- we are. And every day -- and every day,
+- [15:58.330] people ask me, they'll say, is that a hard job?
+- [16:00.460] And the president of United States will say,
+- [16:02.070] you know, how are we doing finding fraud today?
+- [16:03.840] And I'll say, you know, honestly,
+- [16:05.790] fighting fraud in Washington, DC,
+- [16:08.090] it's a little bit like fishing in a barrel
+- [16:11.500] with a nuclear weapon. It is the easiest thing to find.
+- [16:16.020] Every single day, my staff will bring me new reports
+- [16:19.050] of the ways that you're being defrauded.
+- [16:21.100] And there are all these -- look, there's a simple principle
+- [16:23.900] that I have, which is,
+- [16:25.240] if you are committing fraud against the American people,
+- [16:27.900] you ought to go to prison.
+- [16:38.300] If you are a public official
+- [16:40.840] and you're not fighting against fraud,
+- [16:42.660] you ought to have your money taken away,
+- [16:44.410] because you should not be able to steal from all of you
+- [16:46.900] and give it to fraudsters.
+- [16:50.110] So -- and the thing I've learned about fighting fraud
+- [16:55.400] is that it is the ultimate non-victimless crime.
+- [16:58.770] There are at least two victims every time a fraudster
+- [17:01.650] takes advantage of our public programs.
+- [17:03.290] Number one, you are the victims.
+- [17:05.550] When you pay your taxes, you ought to expect
+- [17:08.970] that it's going to go to the people
+- [17:10.490] that the law says it's going to go to.
+- [17:12.110] That's number one.
+- [17:13.320] But number two, when you pay into a program,
+- [17:15.470] let's say you pay -- you pay your taxes,
+- [17:17.610] and you know it's going to go to the food stamp program
+- [17:19.990] to ensure that low-income children
+- [17:22.200] actually have the ability to eat.
+- [17:24.350] You expect that money to go to a child
+- [17:27.240] to keep that child from being hungry.
+- [17:29.220] You do not expect it to go to a Somali fraudster,
+- [17:32.200] because Governor Tim Walz of Minnesota
+- [17:34.280] is not doing his job. But --
+- [17:43.930] But here's the thing, every single day,
+- [17:46.270] we are finding fraudsters all over this country
+- [17:49.610] who are getting rich off of your generosity
+- [17:52.470] and are taking food from the mouths of poor children.
+- [17:55.920] And that is what must stop and that is what we're stopping
+- [17:59.030] with the fraud task force. Just --
+- [18:01.160] just last week, we actually prosecuted a fraudster
+- [18:04.580] who was stealing people's check information,
+- [18:07.090] stealing their identity and writing bad checks.
+- [18:10.080] And that person was from Detroit.
+- [18:11.450] You know where we prosecuted him,
+- [18:12.940] right here in the Western District of Missouri,
+- [18:15.050] and that person's going to prison.
+- [18:22.830] Let me tell you a story about a teacher,
+- [18:24.420] a teacher who went to an assisted living facility,
+- [18:27.010] a person who served children her entire life.
+- [18:30.990] She goes into an assisted living facility,
+- [18:33.590] and a fraudster manages to get a court
+- [18:36.340] to appoint him as her power of attorney.
+- [18:39.530] So this woman, over a lifetime of hard work and dedication,
+- [18:43.180] she saves $750,000.
+- [18:46.790] That's meant to go to her medical bills.
+- [18:48.860] That's meant to go to pay her assisted living bills.
+- [18:51.910] And this guy slowly, over time, steals from her,
+- [18:55.850] lives large off of her generosity,
+- [18:58.470] and she doesn't even realize it until one day,
+- [19:01.200] she gets kicked out of her assisted living facility
+- [19:04.580] because a fraudster was paying himself
+- [19:06.920] instead of paying her bills. Ladies and gentlemen,
+- [19:09.710] this has happened thousands and thousands of times
+- [19:13.360] all over the United States of America.
+- [19:15.720] And for four years, you had a president
+- [19:18.270] and an administration
+- [19:19.600] who encouraged the fraudsters to take advantage of you.
+- [19:22.870] Well, now you've got a president and an administration
+- [19:25.450] who encourages those fraudsters to go to prison,
+- [19:28.580] which is exactly where they belong.
+- [19:38.850] When somebody steals $1.4 billion
+- [19:41.840] from the Medicaid program,
+- [19:43.380] that is theft from you, and that's theft from people
+- [19:46.750] who deserve to be able to go see a doctor.
+- [19:49.320] When people steal billions of dollars
+- [19:51.140] from the Medicare program,
+- [19:52.630] that is theft from you and it's also theft from the people
+- [19:55.830] who use the Medicare program to pay their bills.
+- [19:58.890] When somebody steals money from a program
+- [20:01.840] that's meant to benefit autistic school children,
+- [20:04.830] that's theft from you and it's also theft from those children
+- [20:08.600] who depend on those services.
+- [20:10.300] One of the things I love about our country
+- [20:12.890] is that we're a generous people. We look after one another.
+- [20:15.590] If we see a kid who's starving, we don't say,
+- [20:18.880] you're on your own, we say, we're going to help you out.
+- [20:21.900] But that American generosity of spirit
+- [20:24.730] depends on having leaders who take care of those kids
+- [20:28.220] and who protect your money.
+- [20:30.580] And what we had for four years
+- [20:32.270] was leaders who promoted the fraud.
+- [20:34.520] Ladies and gentlemen, now we have leaders who promote you,
+- [20:39.120] who fight for you, who fight for your tax dollars
+- [20:41.880] and fight for the kids who need those programs.
+- [20:44.710] And ladies and gentlemen, the only way to do that
+- [20:47.230] is to send the fraudsters to prison,
+- [20:49.750] and that's where they belong.
+- [20:58.840] Now, I want to leave you with one final thought before we --
+- [21:03.330] you know, we have to hit the road
+- [21:04.720] I got to head back to Washington.
+- [21:06.050] As much as I'd like to stay for some Kansas City barbecue,
+- [21:09.120] duty calls.
+- [21:11.870] You know, the two places where I'd say --
+- [21:14.080] they always say they have the best barbecue,
+- [21:16.750] are Kansas City and Memphis, Tennessee.
+- [21:24.210] So who has the best barbecue, Kansas City or Memphis?
+- [21:29.380] All right. I'll tell that to our --
+- [21:32.400] I'll tell that to our Tennessee friends,
+- [21:33.810] but I think you're a little biased.
+- [21:35.080] If I'm being honest, you're just a little biased.
+- [21:37.310] But here's the thought I want to leave you with.
+- [21:39.070] I think, like a lot of you,
+- [21:40.810] I didn't grow up with a silver spoon,
+- [21:42.460] I didn't grow up with everything handled -- handed to me.
+- [21:44.440] I was raised by a mamaw and papa.
+- [21:47.290] My papa was a union steelworker for 40 years,
+- [21:50.550] and my mamaw was the person who kept --
+- [21:52.570] who took care of me when --
+- [21:54.200] when drug addiction made it hard for --
+- [21:55.760] for my own mom to take care of me herself.
+- [21:58.080] And one of the things that I always remember
+- [21:59.770] is that mamaw would often struggle,
+- [22:01.570] and she would often try to, you know, penny-pinch,
+- [22:04.330] like a lot of people do.
+- [22:05.670] She would she would decide sometimes, you know,
+- [22:07.560] this month I'm going to have to cut back on medications
+- [22:10.370] in order to afford groceries,
+- [22:11.760] or the next month, she'd do the opposite.
+- [22:13.880] A lot of these debates, a lot of these conversations
+- [22:16.800] that people have to have when things get tight.
+- [22:19.480] And I remember as I was growing up in Middletown, Ohio,
+- [22:23.190] I'd read the newspaper,
+- [22:24.980] or I'd just drive down the street,
+- [22:26.470] and I'd see another factory that employed one of my friends' dads
+- [22:30.370] was closing down.
+- [22:31.700] Instead of adding jobs, they were shedding jobs.
+- [22:35.140] And I remember thinking to myself, why is it like this?
+- [22:38.540] Why is it that we have leaders who allow our jobs
+- [22:41.130] to get shipped to Mexico and China?
+- [22:42.730] Why is it that we have leaders
+- [22:44.430] who don't fight for hard-working taxpayers like my grandmother,
+- [22:47.720] but fight for the people who are getting rich
+- [22:50.310] by defrauding the system?
+- [22:52.050] And I realized it was a simple question
+- [22:54.270] of political leadership.
+- [22:56.080] The reason why those people were not fighting for you,
+- [22:59.600] the reason why they were sending jobs overseas,
+- [23:01.870] the reason why China and Mexico were building
+- [23:05.290] while the United States was shrinking,
+- [23:07.210] it was a simple, simple question of political leadership.
+- [23:11.840] You had people in Washington who weren't fighting for you.
+- [23:15.430] And what I aim to do, and what the president of United States
+- [23:18.370] aims to do every single day,
+- [23:20.180] is to be a president who fights for you,
+- [23:23.240] who fights for your jobs, who fights for your tax dollars,
+- [23:26.880] who fights for your money and fights for your safety.
+- [23:30.370] Now, I happen to believe that one of the things
+- [23:32.650] that really made America great,
+- [23:34.580] and that we got away from the last few years,
+- [23:36.440] is that whether you were rich or poor, you had public safety.
+- [23:40.050] We had security in our neighborhood.
+- [23:41.440] We didn't grow up with a lot of money.
+- [23:43.130] We didn't grow up with a lot of extra benefits
+- [23:45.890] but you know what we had,
+- [23:47.090] because the police were empowered to do their job
+- [23:49.560] and my little town in southwestern Ohio,
+- [23:51.990] is that we had safety.
+- [23:53.510] I felt like I could walk down the street
+- [23:55.080] without getting mugged or robbed.
+- [23:57.540] That was a good thing.
+- [24:04.200] And what happened under the Biden administration
+- [24:06.290] is that we allowed, not rich people,
+- [24:09.730] because rich people can afford private security,
+- [24:12.170] we allowed normal Americans to feel less safe
+- [24:15.430] and less secure in their communities.
+- [24:17.170] We saw murder rates, rapes, violence,
+- [24:20.840] armed robberies at historic levels.
+- [24:23.830] And in just 18 months under Donald Trump's leadership,
+- [24:26.810] by empowering our local law enforcement
+- [24:29.230] and empowering the police officers who keep us safe,
+- [24:31.950] we have the murder rate at the lowest level in 127 years.
+- [24:46.930] But, my friends, the thing that I realize is all these issues,
+- [24:50.520] they're policy issues that matter.
+- [24:53.390] Of course, we care about giving you more of your tax money back.
+- [24:56.800] Of course we care about everybody rich, poor,
+- [24:59.380] or in the middle, being able to walk down
+- [25:01.500] their neighborhood streets and safety.
+- [25:03.180] We care about adding jobs rather than subtracting jobs.
+- [25:07.310] But all of these things are policy issues.
+- [25:10.320] They are symptoms of a deeper cause.
+- [25:12.920] And that cause is that Donald J. Trump loves this country.
+- [25:16.910] He loves the people who make this country great,
+- [25:19.410] and he wants you all to thrive. Here's the problem
+- [25:22.420] with today's Democratic Party in Washington, DC.
+- [25:25.200] It's not just that they want higher taxes, though they do.
+- [25:28.050] It's not just that they voted
+- [25:29.350] against the Working Families Tax Cut, though they did.
+- [25:31.690] It's not just that they empowered the criminals,
+- [25:34.550] which is why we saw such high murder rates
+- [25:36.730] under Joe Biden's leadership.
+- [25:38.590] The problem is that they don't think that they fight for you.
+- [25:42.520] What makes them passionate, what really gets them fired up,
+- [25:45.650] listen to them talk. Do they get fired up
+- [25:48.240] about putting more money in your pocket, no.
+- [25:50.620] Do they get fired up about supporting
+- [25:52.200] our local law enforcement to keep you safe, no.
+- [25:55.040] What brings them to tears, what makes them angry,
+- [25:58.290] what makes them yell and scream and holler is illegal aliens.
+- [26:03.670] If you actually ask, you actually look --
+- [26:06.310] judge them not by what they say,
+- [26:07.890] but by what they do and their emotions,
+- [26:10.200] what they reveal to you
+- [26:12.160] is that they believe they exist on this earth,
+- [26:15.180] they believe their jobs exist in Washington,
+- [26:17.490] DC not to fight for you and for your jobs,
+- [26:20.440] but to fight for illegal immigrants
+- [26:22.010] and the fraudsters who get rich from the system.
+- [26:24.680] That is not a policy difference,
+- [26:26.800] that's a difference in who you represent
+- [26:29.420] and who you fight for.
+- [26:31.060] Now, here's what I'm never going to promise you.
+- [26:32.820] You know, just these four leaders who had to step away
+- [26:35.660] because they're going to fly back with me to Washington, DC.
+- [26:39.130] They're going to disagree about policy issues.
+- [26:40.850] Even the four of them are not going to vote the right way
+- [26:44.240] or the wrong way on every single issue.
+- [26:45.850] They're going to have disagreements,
+- [26:47.180] even among themselves. I'm not asking you to support
+- [26:50.320] Congressional Republican leadership
+- [26:51.980] because you agree with everything
+- [26:54.130] Republicans do in Congress.
+- [26:55.950] I get frustrated with them from time to time.
+- [26:58.110] By the way, pass the SAVE Act.
+- [27:00.050] That's something they need to do.
+- [27:14.570] But even I'm not going to tell you
+- [27:16.880] I'm right about everything, except maybe I am, but I'm not.
+- [27:22.350] You're going to disagree with me from time to time.
+- [27:24.010] Of course you are. You're going to disagree
+- [27:25.340] with the president of the United States from time to time.
+- [27:27.980] That is the nature of living in a society
+- [27:30.860] with this big and diverse a population as we have.
+- [27:34.170] So I'm not asking you to vote for Republicans
+- [27:36.760] because we're right about everything.
+- [27:38.900] I'm asking you to vote for Republicans
+- [27:40.660] because at least we know who we fight for,
+- [27:43.420] and we fight for you.
+- [27:44.990] And I'm asking you -- And I'm asking you --
+- [27:51.530] and I'm asking you to vote against Democrats
+- [27:53.600] because they don't know who they fight for.
+- [27:55.740] Or if they do know, they're fighting for illegal aliens
+- [27:58.610] and they're fighting for fraudsters.
+- [28:00.350] You know, we've gotten no help from Congressional Democrat
+- [28:03.690] leadership on this anti-fraud task force.
+- [28:06.410] And with the exception, we actually have,
+- [28:08.090] to their credit,
+- [28:09.330] a few of the blue states have been helpful
+- [28:11.420] in fighting against fraud.
+- [28:13.090] A few of the blue state governors
+- [28:14.500] and their leaders have been helpful,
+- [28:16.440] but by and large, most of the big city states,
+- [28:20.370] excuse me, the big city mayors and the big state governors,
+- [28:23.720] they have fought tooth and nail against our anti-fraud efforts.
+- [28:28.140] You ask yourself, how does -- how do we get there?
+- [28:30.410] How do we get to a political party
+- [28:32.030] that promotes fraud and illegal immigration?
+- [28:34.680] And the simple fact is that this is not
+- [28:37.150] my grandparents' Democrat party. Something has changed.
+- [28:41.080] Something is profoundly different
+- [28:43.570] about the modern leadership of today's Democrat Party.
+- [28:46.720] And so I'm not going to ask you to agree with us on every issue,
+- [28:50.490] because that would be impossible.
+- [28:52.190] What I will ask you is,
+- [28:54.010] if you want to make America great,
+- [28:56.100] if you want to protect your jobs
+- [28:57.750] and hopefully build jobs in this beautiful factory,
+- [29:01.130] if you want to make our streets even safer,
+- [29:03.650] if you want to rebuild the American dream
+- [29:05.960] for the next generation,
+- [29:08.250] vote against the crazy leadership in Washington, DC.
+- [29:13.340] Vote for --
+- [29:20.990] Vote against the Congressional leadership
+- [29:23.670] that will stand up and say,
+- [29:24.990] we care more about illegal aliens
+- [29:26.840] than we do American citizens,
+- [29:28.660] and vote for the leaders in Congress
+- [29:31.540] who have promised that they're going to fight for you.
+- [29:34.050] Because I'll tell you, as much as I sometimes am frustrated
+- [29:38.410] with what happens in Washington, DC,
+- [29:40.690] the difference could not be more clear.
+- [29:42.860] There is one set of leaders who fight for you;
+- [29:45.410] that's the Congressional Republicans.
+- [29:47.300] And there is one set of leaders
+- [29:48.990] who seems to relish fighting for illegal aliens
+- [29:52.370] over the people who built this country.
+- [29:54.490] So let me -- let me leave you with just one final thought.
+- [29:58.570] I remember -- and I think a lot of you are probably like this.
+- [30:01.370] I remember driving through my hometown
+- [30:05.170] and thinking to myself, why is it that --
+- [30:08.750] that we struggle while other people seem to thrive?
+- [30:11.690] Why is it that if you try to work the system,
+- [30:15.290] you seem to make a lot of money,
+- [30:16.500] but if you work hard and play by the rules,
+- [30:18.210] the leadership seems to punish you?
+- [30:20.840] What I promise you every single day is that the president
+- [30:24.750] and the vice president of the United States,
+- [30:26.230] the president and vice president of this administration,
+- [30:29.530] we wake up trying to see this country
+- [30:32.590] through the eyes of a kid like me.
+- [30:34.830] We wake up trying to protect your job.
+- [30:37.620] We wake up trying to make your community safer.
+- [30:40.540] We wake up every single day recognizing
+- [30:43.330] that we have the coolest jobs anywhere in the world,
+- [30:46.480] because this is the greatest country anywhere in the world.
+- [31:01.640] So what I'm going to tell you, is because you come up
+- [31:04.750] and every day you work hard and play by the rules,
+- [31:07.890] we're going to fight for your tax dollars.
+- [31:09.790] Because you just want to raise your children
+- [31:12.190] in safety and security,
+- [31:13.950] we're going to fight for local law enforcement.
+- [31:16.040] Because you want to build great things
+- [31:18.450] at this beautiful factory,
+- [31:19.790] we're going to fight for great American manufacturers
+- [31:22.630] and the workers that they employ.
+- [31:24.340] Ladies and gentlemen, you make America great
+- [31:27.550] and we will not stop fighting for you.
+- [31:29.210] God bless you and thank you for having me.
+- [31:32.520] (applause)
+- [31:39.755] ♪ (country music playing) ♪

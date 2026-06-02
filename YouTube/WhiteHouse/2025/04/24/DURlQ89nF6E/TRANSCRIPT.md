@@ -1,0 +1,629 @@
+<!-- source: https://www.youtube.com/watch?v=DURlQ89nF6E -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: DURlQ89nF6E -->
+<!-- date_published: 2025-04-24T18:24:25+00:00 -->
+<!-- date_accessed: 2026-06-02T02:51:28.963506+00:00 -->
+
+# Transcript: President Trump Participates in a Bilateral Meeting with the Prime Minister of Norway, Apr. 24, 2025
+
+- [00:07.900] President Trump: I'm doing very well I think on both,
+- [00:23.880] we've had some pretty good movement in every respect.
+- [00:28.210] The war is very important that it ends with…
+- [00:31.100] I used to say 2,500 people a week dying, young people.
+- [00:36.200] Mostly soldiers from Russia and Ukraine.
+- [00:40.180] And we want to end that war. We want to end it quickly.
+- [00:45.600] And I think we've made a lot of progress.
+- [00:48.040] And we'll see what happens.
+- [00:49.430] This next few days is going to be very important.
+- [00:52.250] Meetings are taking place right now.
+- [00:55.140] Additionally, we talked about trade, and we will definitely…
+- [01:01.170] We get along very well on trade. We'll do something.
+- [01:04.320] But I think the Prime Minister knows that over the years
+- [01:08.650] United States has been very good to a lot of people,
+- [01:12.580] and it's time for us to benefit also.
+- [01:17.150] So we're going to have a good relationship on trade,
+- [01:19.260] and we discussed other things also.
+- [01:22.180] But Mr. Prime Minister,
+- [01:23.600] it's an honor to have you at the White House.
+- [01:25.800] Thank you very much.
+- [01:27.440] Prime Minister Støre: Well, thank you, Mr. President.
+- [01:29.600] This year is 200 years
+- [01:30.850] since the first immigration from Norway to the US.
+- [01:34.940] We come here early in your term, appreciate that you take time.
+- [01:38.350] We have highlighted that very close cooperation.
+- [01:41.040] We are allies.
+- [01:42.260] We look after security in the north, in the Arctic.
+- [01:45.010] A lot of confidence between our services.
+- [01:48.720] We have discussed in detail the war in Ukraine.
+- [01:52.820] I have saluted the President for his initiative
+- [01:55.840] to make progress towards something
+- [01:58.600] that can be a ceasefire
+- [02:00.210] and an end to this terrible conflict.
+- [02:01.710] It is a complex picture,
+- [02:03.170] but it needs political will and push,
+- [02:05.900] and we have exchanged ideas on that.
+- [02:07.780] And then I think the President and his team
+- [02:09.550] have been open to hear our perspectives.
+- [02:12.940] And on trade we have also emphasized that we can benefit,
+- [02:19.000] both of us, by trading.
+- [02:20.530] And we can be complementary. And we can find good solutions.
+- [02:24.990] But first of all, I appreciate, Mr. President,
+- [02:26.710] the spirit and the tone of this conversation,
+- [02:28.870] which has been confirmation of a very strong partnership.
+- [02:32.680] President Trump: Thank you very much.
+- [02:34.210] Appreciate it. Any questions? Yes?
+- [02:37.340] The Press: Can I ask you first, Mr. President,
+- [02:40.710] have you spoken about the tariffs
+- [02:42.260] that you want imposed on Norway?
+- [02:43.580] Is there a chance that you can lower
+- [02:44.820] [inaudible]?
+- [02:46.020] President Trump: We spoke about trade,
+- [02:47.490] and we understand each other very well.
+- [02:49.290] I think we'll have no problem.
+- [02:50.530] The Press: Do you think that you can get an agreement
+- [02:51.850] [inaudible]?
+- [02:53.050] President Trump: I think we'll have no problem
+- [02:54.270] whatsoever with Norway.
+- [02:55.480] The Press: [inaudible]
+- [02:56.680] Mr. President, did you discuss a possible visit to Norway?
+- [02:59.730] Did you to discuss a possible visit
+- [03:01.280] for President Trump to Norway?
+- [03:02.510] President Trump: We didn't, but I love it.
+- [03:04.090] I mean, I've been there.
+- [03:05.960] And it is a beautiful place they have.
+- [03:08.590] Prime Minister Støre: But I told the President
+- [03:09.840] that he's receiving us early in the term,
+- [03:12.500] he's welcome to visit Norway. We would like to have him.
+- [03:15.300] And it will be another way
+- [03:17.430] of emphasizing this strong friendship.
+- [03:19.770] The Press: [inaudible]
+- [03:22.510] Norway has been a staunch supporter of Ukraine
+- [03:26.370] since the Russian invasion in 2022.
+- [03:29.800] Has something been discussed here today
+- [03:33.130] that may have altered your views on things?
+- [03:36.330] President Trump: No. We want to…
+- [03:37.610] Very simply, I have no allegiance to anybody.
+- [03:41.140] I have allegiance to saving lives.
+- [03:43.010] And I want to save a lot of lives.
+- [03:44.470] A lot of young people's, mostly young people.
+- [03:46.820] It's the war. It's the soldiers. And if we can do that…
+- [03:50.440] I've also… As you know, I got started
+- [03:52.910] because the money that's been spent on this war is insane.
+- [03:56.940] It should have never happened.
+- [03:58.540] And it would have never happened if I were president.
+- [04:01.380] But Biden spent $350 billion on this, and it's a shame.
+- [04:08.230] And that's what got me involved.
+- [04:10.150] And then I looked at… And I see the results.
+- [04:12.460] It's horrible. It's a killing field.
+- [04:15.680] 5,000 soldiers a week on average.
+- [04:19.980] And we want to stop that.
+- [04:21.220] We both want to stop that for a lot of reasons,
+- [04:23.800] but I would say that is my number one reason.
+- [04:27.070] The Press: [inaudible]
+- [04:28.840] Russia that we will get Russia to accept the deal
+- [04:33.170] that also Ukraine and Europe
+- [04:35.520] is [inaudible]?
+- [04:36.750] President Trump: I think so. Yeah, I do.
+- [04:38.220] I believe they will accept.
+- [04:40.180] And I think we're going to get this over with.
+- [04:41.990] I hope so. Soon.
+- [04:43.220] The Press: [inaudible]
+- [04:44.450] President, you continue to lack support from NATO
+- [04:48.700] allies in your goal of obtaining Greenland.
+- [04:51.380] How will you proceed if you don't get that support?
+- [04:53.670] President Trump: Well, Greenland's
+- [04:54.910] going to be interesting, but that's for another day.
+- [04:57.560] I think we need that for international peace.
+- [04:59.080] The Press: What are you expecting of your allies-
+- [05:00.430] President Trump: And if you don't have that,
+- [05:01.650] I think it's a big threat to our world.
+- [05:04.220] So I think Greenland is very important
+- [05:05.720] for international peace. Yeah, please go ahead.
+- [05:07.630] The Press: Mr. President, this morning in Truth
+- [05:09.500] social post you used the words, "Vladimir, stop."
+- [05:13.300] That seemed like a slightly different message,
+- [05:15.850] a personal message. What is your level
+- [05:18.340] of frustration with President Putin?
+- [05:20.010] President Trump: I didn't like last night.
+- [05:21.340] I wasn't happy with it.
+- [05:23.130] And we're in the midst of talking peace
+- [05:25.310] and missiles were fired. And I was not happy with it.
+- [05:29.200] That's what I meant. And that's… [inaudible].
+- [05:31.785] The Press: [inaudible].
+- [05:33.140] President Trump: I assume that's what you mean.
+- [05:34.390] I assume that's what you…
+- [05:35.630] The Press: Sorry, if the bombs keep falling,
+- [05:38.750] will you consider additional sanctions toward Russia
+- [05:41.100] or what will you do if President Putin
+- [05:42.650] [inaudible].
+- [05:43.850] President Trump: I'd rather answer that question in a week.
+- [05:45.540] I want to see if we can have a deal.
+- [05:47.500] No reason to answer it now, but I won't be happy.
+- [05:49.860] Let me put it that way. Things will happen.
+- [05:52.440] The Press: Mr., President,
+- [05:53.770] why are you not putting more pressure on Russia?
+- [05:55.760] I know a lot of Europeans [inaudible].
+- [05:57.130] President Trump: Putting a lot of pressure.
+- [05:58.420] You don't know what pressure I'm putting on Russia.
+- [06:00.260] They're dealing.
+- [06:01.500] You have no idea what pressure I'm putting on Russia.
+- [06:03.310] We're putting a lot of pressure.
+- [06:04.550] The Press: Can you maybe tell us then,
+- [06:05.770] what kind of [inaudible].
+- [06:06.970] President Trump: We're putting a lot of pressure on Russia,
+- [06:08.790] and Russia knows that,
+- [06:10.010] and some people that are close to it know,
+- [06:11.640] or he wouldn't be talking right now.
+- [06:14.100] The Prime Minister understands that better than anybody.
+- [06:16.500] He wouldn't be talking right now.
+- [06:17.770] He's talking and we're putting a lot of pressure.
+- [06:20.320] I think he wants to make a deal.
+- [06:21.560] We're going to find out very soon.
+- [06:22.800] But it takes two to tango, and you have to have Ukraine
+- [06:27.200] want to make a deal too. And they're being hit very hard
+- [06:31.000] and I do believe they want to make a deal.
+- [06:33.840] [inaudible].
+- [06:35.855] The Press: [inaudible]
+- [06:38.420] you said that the Ukraine have to give some territory
+- [06:45.380] to win peace, among them Crimea. Do you stand by that?
+- [06:49.440] And I know that former NATO general secretary today
+- [06:55.040] has told you that he does not agree,
+- [06:57.240] and he believes in territorial integrity of the Ukraine.
+- [07:01.880] How do you deal with that with your allies
+- [07:03.520] and do you stand by that Ukraine have to give
+- [07:05.070] [inaudible].
+- [07:06.300] President Trump: Former secretary general happens
+- [07:08.020] to be right here.
+- [07:10.190] So they can't put words in his mouth.
+- [07:14.510] He's been a great general frankly,
+- [07:17.250] because that's what you are. Really, you're a general.
+- [07:19.850] But he's been a great secretary general.
+- [07:21.490] We had a tremendous relationship, very successful.
+- [07:25.080] And I think he could speak for himself. He's right here.
+- [07:28.550] The Press: But do you still agree
+- [07:29.940] that Ukraine have to give some territory away to win peace?
+- [07:34.980] President Trump: Well, it depends what territory.
+- [07:36.460] They've been fighting. They've lost a lot of territory.
+- [07:39.320] And we'll do the best we can.
+- [07:41.480] Working with Ukraine, we'll do the best we can.
+- [07:44.390] But they lost a lot of territory.
+- [07:46.380] When you say Crimea, that was handed over
+- [07:49.450] during a president named Barack Hussein Obama.
+- [07:52.730] That had nothing to do with me, Crimea.
+- [07:54.870] That was 11 years ago with Obama.
+- [07:58.650] And they made a decision. There wasn't a bullet fired,
+- [08:02.510] there was no fighting, there was no anything.
+- [08:04.380] They just handed it over.
+- [08:05.580] Now they say, "Well, can you get it back?"
+- [08:08.580] I think that's going to be a very difficult thing to do.
+- [08:11.530] That was given by Barack Obama
+- [08:14.050] when he was president, not by Donald Trump.
+- [08:15.690] The Press: Thank you, Mr. President.
+- [08:16.920] The Press: Mr. President, you had a long meeting,
+- [08:18.180] Mr. President- The Press: [inaudible]
+- [08:19.430] you had a peace proposal that you put on the table.
+- [08:20.980] It's a 30-day ceasefire proposal.
+- [08:22.540] Your national security team
+- [08:23.940] presented it to both Ukraine and Russia.
+- [08:26.480] Two months ago,
+- [08:27.690] Ukraine agreed to that ceasefire proposal immediately.
+- [08:31.560] Russia has not. And my question is,
+- [08:34.100] is Russia the obstacle to peace based upon that?
+- [08:37.040] Just getting to that 30-day ceasefire.
+- [08:39.040] President Trump: I don't think so.
+- [08:40.430] I think that they both want peace right now.
+- [08:42.390] They're ready to do something. We'll see what happens.
+- [08:45.550] Complicated, very complicated.
+- [08:47.650] But I think they are both very much looking to make a deal.
+- [08:51.330] Marco, what would you say?
+- [08:52.620] Secretary Rubio: Well, first of all,
+- [08:53.860] what was put before our partners
+- [08:55.860] was options to discuss about things
+- [08:57.900] that it would take to end a war.
+- [08:59.610] This war is endable.
+- [09:00.870] Both sides just have to agree to it.
+- [09:02.320] We've shown them a pathway forward.
+- [09:03.610] We've discussed those ideas. It was a good meeting yesterday.
+- [09:05.590] There'll be good meetings over the weekend.
+- [09:07.290] We've shown them the finish line.
+- [09:08.650] We need both of them to say yes.
+- [09:10.240] But what happened last night with those missile
+- [09:11.820] strikes should remind everybody of why this war needs to end.
+- [09:14.490] It's horrible those missiles landed.
+- [09:15.780] What's worse is there are today people that were alive yesterday
+- [09:18.770] that are not alive today, because this war continues.
+- [09:21.500] And the President wants to stop it.
+- [09:23.160] And everyone should be thanking the President
+- [09:24.550] for being a peacemaker and trying to save lives.
+- [09:25.870] (09:05)
+- [09:27.150] That's what we're trying to do here.
+- [09:28.700] It's not our war. We didn't start it, as you know,
+- [09:30.740] but we're trying to end the dying.
+- [09:32.480] We're trying to end the destruction.
+- [09:34.390] And we've shown the path forward.
+- [09:36.750] We can see the finish line,
+- [09:37.980] but both of them have to get there.
+- [09:39.330] We're going to do everything we can to help them get there,
+- [09:41.050] but they have to ultimately say yes. Both of them.
+- [09:42.800] President Trump: And we are using a lot of pressure on both.
+- [09:45.000] If you think we're just in there because we're nice people,
+- [09:47.570] and we are nice people,
+- [09:48.770] but we're using a lot of pressure on both.
+- [09:50.720] The Press: What concessions, Mr. President,
+- [09:53.380] and to your national security team,
+- [09:54.720] what concessions has Russia offered up thus far
+- [09:58.620] to get to the point where you're closer to peace?
+- [10:01.670] President Trump: Stopping the war.
+- [10:03.590] Stopping taking the whole country.
+- [10:06.750] Pretty big concession.
+- [10:08.780] The Press: Mr. President,
+- [10:10.800] if you are going to take down the tariffs,
+- [10:14.340] what do you want Norway to buy more of from the US?
+- [10:19.460] President Trump: To buy more?
+- [10:21.170] Well, you don't need snow, you don't need skis,
+- [10:24.960] you don't need ski champions either, right?
+- [10:26.930] You have a lot of them.
+- [10:29.340] We just want to keep the relationship the way it is.
+- [10:32.580] We've had a great relationship,
+- [10:34.420] I think now maybe closer than ever.
+- [10:36.090] But we've had a great relationship with Norway.
+- [10:38.430] I think just keep it the way it is.
+- [10:40.680] You can't do better.
+- [10:42.070] The Press: Really? Not even buy, say a [inaudible].
+- [10:44.040] President Trump: Well, if they want to give us
+- [10:45.320] some additional concessions, that's okay.
+- [10:47.460] You can't do much better. Yes. Yes.
+- [10:48.890] The Press: Mr. President,
+- [10:50.100] you've had a long meeting with Norway today.
+- [10:52.840] You said that Norway is doing a lot of things right,
+- [10:55.140] but on the Ukraine,
+- [10:56.370] if I can ask both you and the Prime Minister,
+- [10:58.740] did you find common ground today on Ukraine and the peace plan?
+- [11:02.250] President Trump: Totally. It's totally common ground.
+- [11:04.790] The Prime Minister can speak about it,
+- [11:06.730] but I can just say he wants to see people stop
+- [11:09.890] dying more than anything else.
+- [11:12.190] And he'd like to see it end. He's going to help us end it.
+- [11:15.890] Prime Minister Støre: [inaudible]
+- [11:18.510] can I say that to move towards an end of this war,
+- [11:23.330] US engagement is critical,
+- [11:25.240] and President Trump made that possible.
+- [11:27.450] That is clear, that is obvious. It's really happening.
+- [11:30.900] Now the important thing is that both parties have to know
+- [11:33.700] that they have to deliver
+- [11:34.970] and they have to feel the pressure to deliver.
+- [11:38.450] Ukraine is under attack. They are defending themselves.
+- [11:42.970] Lives are being lost.
+- [11:45.080] And we believe very firmly that there needs to be a ceasefire,
+- [11:48.820] the initiative taken by the US some time ago.
+- [11:51.500] It needs to be respected.
+- [11:53.660] And then to move on to something which both parties can own.
+- [11:56.910] That is the complicated part in such a dramatic war.
+- [12:01.540] And here I believe Europeans and Americans working together,
+- [12:04.460] as we do much closer now,
+- [12:06.390] and I salute the team of President Trump
+- [12:08.400] of being open in that process.
+- [12:10.510] We had a good discussion on this today.
+- [12:12.840] And then we have to move on and we cannot lose time
+- [12:15.470] because this is too much drama happening.
+- [12:17.640] One thing is people losing their lives,
+- [12:19.570] but it is a bad thing for Europe
+- [12:21.960] and it's a bad thing for the world
+- [12:23.450] to having such a broad conflict going on.
+- [12:26.310] It can have ramifications far beyond Ukraine.
+- [12:30.300] The Press: [inaudible]
+- [12:33.230] Mr. President, if… I forgot my question now.
+- [12:40.600] I wanted to ask about [inaudible].
+- [12:42.040] President Trump: It's all right. It happens to the best of us.
+- [12:43.600] The Press: It happens sometimes. Yeah.
+- [12:45.240] No, Mr. President, I wanted to ask about the…
+- [12:48.620] Oh, well, actually,
+- [12:50.090] Zelenskyy has said that he wants more Patriot missiles.
+- [12:54.200] So far there has been no response from the United States.
+- [12:58.230] If you as the United States
+- [12:59.580] decides to pull out of negotiating for peace,
+- [13:02.790] trying to go for peace,
+- [13:04.310] does that also mean a no on Patriot missiles,
+- [13:07.370] a no on sharing intelligence with Ukraine?
+- [13:10.910] President Trump: Let's see what happens.
+- [13:12.180] I think we're going to make a deal.
+- [13:13.960] And if we make a deal, that'll be wonderful.
+- [13:15.580] We won't have to worry about your question.
+- [13:17.710] You can ask that question in two weeks and we'll see.
+- [13:21.530] But I think we're getting very close.
+- [13:23.940] The Prime Minister feels the same way
+- [13:25.660] and we'll hopefully not have to answer that question.
+- [13:28.710] The Press: Mr. President, Norway is the third country
+- [13:33.200] to be officially invited to the White House
+- [13:35.830] after Liberation Day.
+- [13:38.270] Why did you invite Norway so soon to the White House?
+- [13:41.780] President Trump: Because I like them.
+- [13:44.170] And I like your Prime Minister.
+- [13:45.620] And I like the way your government runs.
+- [13:48.630] And I respect the King. He's highly respected in Norway.
+- [13:52.870] It's a great thing. Not an easy thing to do.
+- [13:56.170] He's done a great job. Yeah.
+- [13:58.030] The Press: Would you like an invitation to visit the King?
+- [14:01.400] President Trump: Absolutely. You get me that invitation.
+- [14:03.890] Prime Minister Støre: I just told the President
+- [14:05.090] he's welcome to visit Norway.
+- [14:08.400] President Trump: Yeah, please.
+- [14:09.640] The Press: You said before that you
+- [14:11.660] like the Norwegian petroleum fund,
+- [14:14.320] and I'm wondering if that has been up for discussion today,
+- [14:17.660] the way that we have structured our
+- [14:21.280] [inaudible 00:14:02].
+- [14:22.480] Prime Minister Støre: Well this fund was created
+- [14:25.050] in the late 1990s
+- [14:26.380] to save for future generations the income from oil and gas.
+- [14:30.900] Norwegians should continue to work as hard, dedicate,
+- [14:34.750] innovate, and move forward, despite having these incomes,
+- [14:38.150] which we happen to be in the period or history
+- [14:40.610] where we can harvest.
+- [14:41.820] And we have transferred that into investments,
+- [14:44.510] half of them, by the way, here in the United States.
+- [14:47.310] So I think this is a model which we have been able to explore.
+- [14:51.100] If we can share experiences,
+- [14:53.040] and we do with our colleagues in the US.
+- [14:56.380] You never copy this one-to-one,
+- [14:59.430] but there can be techniques and way of working
+- [15:02.520] that we have used in organizing our fund.
+- [15:07.730] Jens Stoltenberg was the finance minister
+- [15:09.670] when the first dollar entered that fund.
+- [15:12.630] So he's a safe hand to have as a finance minister today.
+- [15:15.620] What are you saying?
+- [15:16.850] President Trump: No, and as you said, Mr. Prime minister,
+- [15:19.000] we are ready to sit down with the US
+- [15:21.540] to also work with them on
+- [15:23.310] if they want to establish a sovereign wealth fund,
+- [15:25.520] because we have a good experience with our fund.
+- [15:28.160] And I think that one example of how we work together
+- [15:31.640] with United States is that half of the fund,
+- [15:34.720] close to 1 trillion US dollars
+- [15:37.490] are invested in the United States,
+- [15:40.510] mainly in equity, but also some in fixed income,
+- [15:43.690] including government funds.
+- [15:45.530] This is an expression of trust in the United States
+- [15:49.690] expressed by the strong investment
+- [15:51.230] of the sovereign wealth fund.
+- [15:52.510] Then just briefly on Ukraine, since it was mentioned,
+- [15:55.690] we had a very good and extensive discussion about Ukraine.
+- [15:58.630] The path forward to peace. And as the Prime Minister said,
+- [16:02.310] we commend the US for pushing forward
+- [16:04.540] to try to find a negotiated solution.
+- [16:06.970] At the same time, we need to continue to support Ukraine
+- [16:10.400] and therefore I'm proud that Norway has actually tripled
+- [16:14.010] the military support to Ukraine. And this year we will allocate
+- [16:18.500] close to 8 billion US dollars to Ukraine.
+- [16:21.480] That will strengthen them
+- [16:22.760] and also their hand on the negotiating table.
+- [16:24.490] Prime Minister Støre: If I may add to that,
+- [16:25.870] if there's a peace and there will be a peace,
+- [16:28.270] we have a common responsibility
+- [16:29.720] in securing democratic Ukraine for the future.
+- [16:32.230] And the best security guarantee they can have
+- [16:34.790] is the ability to defend themselves.
+- [16:36.490] And we are investing in that.
+- [16:37.700] The Press: Mr. Prime Minister, if I may-
+- [16:39.100] The Press: [inaudible]
+- [16:40.300] as it relates to tariffs, Mr. President,
+- [16:42.050] when you unveiled your reciprocal tariffs
+- [16:44.570] on April the second,
+- [16:45.830] the tariff rate for Norway was 15%.
+- [16:49.970] Based upon your conversations
+- [16:51.670] that you've had today with the Prime Minister,
+- [16:54.190] do you see that tariff rate coming down
+- [16:56.930] from what you proposed just a few weeks ago?
+- [17:00.080] President Trump: Well, they have a great fund of $2 trillion.
+- [17:03.870] It's a big fund. And they don't have any debt.
+- [17:07.580] So I think they'd probably be willing to pay us
+- [17:09.720] more than that, I hope.
+- [17:11.360] The Press: [inaudible] Mr. President-
+- [17:13.240] President Trump: Yes.
+- [17:14.450] The Press: …in 2018, your former Secretary of State, Mike Pompeo,
+- [17:17.190] called for an end to Russian occupation of Crimea.
+- [17:20.690] Why does this administration,
+- [17:22.340] why has this administration changed its stance
+- [17:25.040] on territorial concessions for Crimea?
+- [17:27.290] President Trump: Well, the war started.
+- [17:28.530] It would've never started if I were president.
+- [17:30.650] This is a war that is horrible, horrible…
+- [17:33.870] All wars are horrible. This one is in particular bad.
+- [17:37.420] And I don't know that you can ever say
+- [17:39.950] there's going to be a winner to this
+- [17:41.500] because so many lives have been lost.
+- [17:44.590] Not only soldiers, a lot of lives have been lost.
+- [17:48.420] I think that we want to do one very simple thing.
+- [17:53.070] It would've never happened if I were president,
+- [17:55.190] zero chance it was going to.
+- [17:56.650] And it didn't. People say, "How do you know that?"
+- [17:58.960] Number one, it didn't happen. We never even discussed it.
+- [18:01.730] I would talk to Putin about it. It was the apple of his eye.
+- [18:05.340] Ukraine was the apple of Putin's eye.
+- [18:07.200] But there was never even a thought that he'd go in.
+- [18:11.170] And I think he understood that I would not be happy if he did.
+- [18:15.060] And it was only when I got out.
+- [18:17.560] And when you mentioned what happened to Ukraine years ago
+- [18:21.500] under President Obama and a vice president
+- [18:24.390] that was also president later, unfortunately for this country,
+- [18:28.840] what happened is large chunks of land were given up
+- [18:33.010] and it was called Crimea.
+- [18:35.810] And that was a big thing. That was a big moment.
+- [18:39.400] But this isn't my war. This is Biden's war.
+- [18:42.690] This is a war that Biden was president
+- [18:46.530] when this war happened.
+- [18:48.360] But I'm trying to put out the fire.
+- [18:50.100] And I think we'll be successful.
+- [18:51.600] And if we do, we're going to save a lot of lives.
+- [18:53.400] Otherwise…
+- [18:54.610] And the Prime Minister had a statement.
+- [18:56.320] He said, "This is just a point in time."
+- [18:59.150] We're very lucky because this is a point…
+- [19:00.860] And if this doesn't happen,
+- [19:02.060] if this could go on for a long time,
+- [19:04.780] The Press: Mr. President, will you have meetings
+- [19:06.680] with other world leaders when you're in Rome, sir?
+- [19:08.800] The Press: [inaudible] future Democrat president?
+- [19:11.690] President Trump: I don't think he will.
+- [19:12.890] I think he wants to make peace. I think he wants to end it.
+- [19:17.340] And I feel pretty confident of that.
+- [19:18.960] But we're going to know pretty soon.
+- [19:21.350] The Press: [inaudible]
+- [19:24.070] will you have meetings with other world leaders
+- [19:25.810] when you're in Rome?
+- [19:27.050] President Trump: Yes, I will.
+- [19:28.260] The Press: Which leaders do you want to meet, sir?
+- [19:30.590] President Trump: Well, I'd like to meet them all.
+- [19:32.230] That would be nice.
+- [19:33.550] I'd like to take care of all of them,
+- [19:34.840] but we have many of them there and they all want to meet.
+- [19:38.180] They want to meet about trade.
+- [19:40.110] And we are making some great inroads and great deals.
+- [19:44.230] You might want to speak about that, Mr. Secretary.
+- [19:46.450] Secretary Rubio: We had a very successful bilateral meeting
+- [19:49.120] with Republic of South Korea today.
+- [19:52.240] We may be moving faster than I thought,
+- [19:55.700] and we will be talking technical terms
+- [19:58.280] as early as next week as we reach an agreement
+- [20:01.870] on understanding as soon as next week.
+- [20:04.070] So South Koreans came early, they came with their A game.
+- [20:08.390] And we will see if they follow through on that.
+- [20:11.540] The Press: [inaudible]
+- [20:14.420] do you think you deserve the Nobel Peace Prize
+- [20:16.420] if you manage to [inaudible].
+- [20:17.800] President Trump: Do I deserve the Nobel-
+- [20:19.180] The Press: If you manage to create peace
+- [20:20.550] [inaudible].
+- [20:21.750] President Trump: Well, maybe for the Abraham Accords.
+- [20:23.220] I don't want to get ahead of myself on this one.
+- [20:25.320] But they say for the Abraham Accords…
+- [20:28.060] And by the way, speaking of that,
+- [20:29.430] we're going to be filling it up.
+- [20:30.790] A lot of countries want to come into the Abraham Accords.
+- [20:33.500] We have four.
+- [20:34.830] And Biden did nothing on that one too.
+- [20:37.640] It's the same four.
+- [20:39.390] But they're great countries and they were brave doing it
+- [20:41.730] and it's worked out very well.
+- [20:43.050] And we're going to be filling up the Abraham Accords.
+- [20:45.580] They're going to be,
+- [20:46.810] I think filling it up, Marco, very rapidly.
+- [20:49.540] Marco, could you say something about that?
+- [20:51.990] Secretary Rubio: There's great, enormous opportunity
+- [20:53.820] to grow the Abraham Accords.
+- [20:55.210] But I would just point to one thing,
+- [20:56.970] of all the leaders in the world today,
+- [20:58.410] no leader is working harder to prevent wars
+- [21:00.760] or end them than President Trump is right now.
+- [21:03.710] That's why we're talking to Iran.
+- [21:04.920] That's why we're engaged with Ukraine and Russia.
+- [21:07.280] It's the desire prevent these wars from breaking out
+- [21:09.560] and to end the ones that exist already.
+- [21:11.420] And again, I just think it's tremendous for our country
+- [21:14.580] to be led by a president who desires to bring peace
+- [21:17.410] and establish peace and protect peace.
+- [21:19.470] So it's hard work.
+- [21:24.310] President Trump: Marco just mentioned something
+- [21:26.400] that maybe we should talk about for just a second,
+- [21:29.320] if we could, Mr. Prime Minister. And you're involved in it too
+- [21:31.970] because you've been involved in the world and peace.
+- [21:35.530] But I think we're doing very well with respect to Iran,
+- [21:39.850] and we're having very serious meetings.
+- [21:43.420] And there are only two options.
+- [21:45.380] And the one option is not a good option.
+- [21:47.920] It's not a good option at all.
+- [21:51.570] And I think we're doing very well on an agreement with Iran.
+- [21:56.650] But that one… We're doing a lot of things, I will say.
+- [21:59.740] But that one is well on its way.
+- [22:02.860] We could have a very, very good decision
+- [22:05.560] and a lot of lives will be saved.
+- [22:07.720] The Press: Mr. President [inaudible].
+- [22:09.090] President Trump: Yeah, please.
+- [22:10.560] The Press: Mr. President, on the economy,
+- [22:11.830] there was a slowdown as it relates to home sales
+- [22:14.920] in the month of March. The slowest pace since 2009.
+- [22:18.590] Is that an economic indicator,
+- [22:20.170] and perhaps the Treasury Secretary
+- [22:21.910] can weigh in on this as well, is that an economic indicator
+- [22:24.880] that concerns you about the broader US
+- [22:26.180] [inaudible]?
+- [22:27.380] President Trump: No, they had very good numbers
+- [22:28.590] on housing today. Extremely good numbers.
+- [22:30.860] And that's despite interest rates.
+- [22:32.630] Because if you look at what happened, everyone said,
+- [22:35.610] oh, I said I was going to get prices down.
+- [22:37.910] I did. Energy just hit $1.98 in a couple of states.
+- [22:42.520] It's way down. Energy's down, and we're about $64 a barrel.
+- [22:47.590] When I came in and we were looking at $89, $90, $95.
+- [22:51.370] And by the way, that helps us solve the war too.
+- [22:53.590] Having those energy prices is a big incentive for Russia
+- [22:58.120] to also agree with solving the war problem.
+- [23:01.940] Groceries are down.
+- [23:03.600] When I was with you two months ago,
+- [23:06.530] you were complaining about eggs.
+- [23:08.950] I said, I just got here. I've been here for…
+- [23:11.230] I was here for about a week when the press started saying
+- [23:14.480] about eggs have gone through the roof.
+- [23:15.930] I said, I just got here. Tell me about eggs.
+- [23:18.350] And they have been. They went through the roof.
+- [23:20.380] And you couldn't get them.
+- [23:21.680] So we just had a big Easter egg hunt at the White House.
+- [23:25.580] Thousands and thousands of eggs, and the price was down 87%.
+- [23:30.710] So we did a great job. Housing is doing very well.
+- [23:34.820] We should lower interest rates. That's the Fed.
+- [23:37.450] I hope they lower interest rates.
+- [23:38.930] That's the smart thing to do. Be ahead a little bit,
+- [23:41.090] although already it's a little bit late.
+- [23:43.450] But in the end, we just have a great country.
+- [23:45.930] We have a very strong country and we have every other country…
+- [23:49.200] I can't think of one country
+- [23:50.520] that doesn't want to negotiate a deal.
+- [23:53.320] And they either negotiate a deal
+- [23:55.840] or we set a deal that we think is fair.
+- [23:58.120] Because we don't have to go through all of these…
+- [24:00.910] It would be physically impossible.
+- [24:02.930] You have so many people that really understand it,
+- [24:05.840] which is a very small group of people here.
+- [24:08.600] And we are going to at some point just set prices for deals.
+- [24:14.240] Some will be tariffed. Some treated us very unfairly,
+- [24:18.120] they'll be tariffed higher than others.
+- [24:20.510] But we've been ripped off for many, many years.
+- [24:22.500] The United States has been ripped off like no country
+- [24:24.950] probably in the history of the world
+- [24:26.400] has been ripped off for 45, 50 years.
+- [24:30.190] And countries have gone rich
+- [24:31.990] by doing that with the United States.
+- [24:34.520] We've taken care of their militaries.
+- [24:36.190] And military is another subject we talk about.
+- [24:38.360] We're not going to make that subject to any of the deals.
+- [24:41.300] But you know, you know the same countries that I do
+- [24:43.950] where we virtually take care of their military
+- [24:46.420] and then don't get treated fairly on trade.
+- [24:48.530] So the people… And I don't blame those countries.
+- [24:51.440] I blame the people that sat at that beautiful desk
+- [24:54.010] right behind you.
+- [24:55.410] Because those people didn't do the job for this country.
+- [24:59.390] And they let us lose $4 billion a day on trade.
+- [25:04.170] We were losing 4, 5 billion dollars
+- [25:06.100] a day on trade when I got here.
+- [25:08.180] And now we're going to be much better than breaking even.
+- [25:12.250] And we're going to be making 4 or 5 billion dollars
+- [25:14.590] a day on trade.
+- [25:16.810] But I don't blame any country, not the worst of them.
+- [25:20.810] And we were abused by countries.
+- [25:22.910] I blame the president of the United States
+- [25:25.530] that happened to be sitting when these deals were made.
+- [25:28.560] Disgraceful.
+- [25:29.760] When I was here, we had a great four years.
+- [25:31.700] We had the most successful economy in the history
+- [25:33.900] of our country my first term.
+- [25:36.220] And we were very tough on trade. And with China, as you know,
+- [25:39.000] they paid hundreds of billions of dollars in tariffs.
+- [25:42.560] But nobody else ever did that.
+- [25:44.000] China paid not 10 cents to any other president.
+- [25:48.670] But not only China.
+- [25:50.250] Virtually every country got away with murder,
+- [25:53.800] and we just can't let that happen.
+- [25:57.100] Thank you very much everybody. Thank you very much.
+- [25:59.450] Appreciate it. Thank you very much.

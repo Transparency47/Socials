@@ -1,0 +1,1128 @@
+<!-- source: https://www.youtube.com/watch?v=TPGIFsbjtCA -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: TPGIFsbjtCA -->
+<!-- date_published: 2025-04-07T22:37:51+00:00 -->
+<!-- date_accessed: 2026-06-02T01:28:13.711823+00:00 -->
+
+# Transcript: President Trump Participates in a Bilateral Meeting with the Prime Minister of Israel, Apr. 7, 2025
+
+- [00:00.200] The President: Thank you very much.
+- [00:01.430] It's an honor to have a very, very special person.
+- [00:05.660] I've dealt with him for a long time;
+- [00:07.220] Benjamin Netanyahu, prime
+- [00:09.000] Minister of Israel, and we had lunch together.
+- [00:13.660] We had meetings together,
+- [00:15.220] along with his very capable staff,
+- [00:18.540] and I think we've come up
+- [00:20.270] to some pretty good solutions and conclusions
+- [00:23.820] and we'll be working a little bit after this.
+- [00:25.860] And then I assume you're going back home?
+- [00:27.660] Prime Minister Netanyahu: Yes.
+- [00:28.880] The President: This is a quick stop, in and out,
+- [00:31.390] but we appreciate you being here.
+- [00:32.960] And we are a friend of Israel, as you know.
+- [00:35.690] I would say that I'm by far the best
+- [00:38.370] President that Israel has ever even thought of seeing.
+- [00:42.190] And it's an honor to be so, and to be so thought of.
+- [00:47.110] Many friends in Israel. They are not in an easy area.
+- [00:51.570] It doesn't go easy, but we are helping them and likewise,
+- [00:56.320] they've been helping us very much.
+- [00:58.410] And so we'll see how it all works out.
+- [01:00.100] But we had great discussions today,
+- [01:02.320] I think on the obvious subject of Iran
+- [01:05.580] and also the less obvious subject with respect to Israel
+- [01:09.430] and that's trade. And I think the Prime Minister
+- [01:12.860] is going to tell you a little bit about trade
+- [01:14.370] and what they're doing for the United States.
+- [01:16.180] So I want to thank you all for being here.
+- [01:17.610] Thank you very much.
+- [01:18.960] Prime Minister Netanyahu: Thank you.
+- [01:20.160] The President: Benjamin. Thank you very much.
+- [01:21.440] Prime Minister Netanyahu: Thank you, Mr. President.
+- [01:22.930] Thank you, Donald. Thank you.
+- [01:26.060] Mr. President. I want to first thank you
+- [01:27.840] for inviting me again to the White House.
+- [01:32.320] You've been a remarkable friend of the state of Israel.
+- [01:36.270] You stand by us. You're standing with us.
+- [01:38.800] You are a great, great champion of our alliance,
+- [01:43.530] and you actually do the things that you say you do.
+- [01:47.770] And I think that people respect that enormously.
+- [01:50.930] I certainly do and the people of Israel do,
+- [01:53.460] and I think the Jewish people do as well.
+- [01:55.650] We just saw your representative in the Department of Justice
+- [01:59.940] fighting anti-Semitism;
+- [02:02.200] standing up for Israel in international forums.
+- [02:05.140] I just want you to know from the heart,
+- [02:06.900] it's deeply, deeply appreciated.
+- [02:09.360] As you said, we have the opportunity to talk today
+- [02:11.450] about many subjects. First, if I can mention tariffs.
+- [02:16.360] It's a subject of some interest today.
+- [02:19.410] I can tell you that I said to the President
+- [02:21.900] a very simple thing.
+- [02:23.770] We will eliminate the trade deficit with the United States.
+- [02:27.980] We intend to do it very quickly.
+- [02:30.080] We think it's the right thing to do,
+- [02:32.290] and we're going to also eliminate trade barriers,
+- [02:36.040] a variety of trade barriers that have been put up unnecessarily,
+- [02:39.380] and I think Israel can serve as a model for many countries
+- [02:43.770] who ought to do the same.
+- [02:45.600] I recognize the position of the United States.
+- [02:49.140] It says we are allowing other countries to put tariffs on us,
+- [02:54.700] but we don't put tariffs on them.
+- [02:56.770] And I'm a free trade champion.
+- [02:58.810] And free trade has to be fair trade
+- [03:00.680] and I think that's basically the position
+- [03:03.490] that you have put forward, Mr. President.
+- [03:05.840] We are going to eliminate the tariffs and rapidly.
+- [03:09.650] I had the opportunity to speak to Secretary Lutnick yesterday.
+- [03:14.280] We talked about how we could affect this quickly
+- [03:17.180] and I hope to bring the solution very quickly.
+- [03:19.690] We're not talking about intentions.
+- [03:22.180] We're not talking about just words.
+- [03:25.080] We're talking about results and those results
+- [03:27.460] are going to come back. That's the first.
+- [03:29.110] The President: Thank you very much.
+- [03:30.320] That's very nice. Thank you.
+- [03:31.540] Prime Minister Netanyahu: Thank you.
+- [03:32.760] The Press: Mr. President. What about the hostages?
+- [03:35.440] The President: Let him finish.
+- [03:36.750] Prime Minister Netanyahu: Didn't finish.
+- [03:37.960] Begin.
+- [03:39.630] We spoke about not only the hostages, but about Gaza.
+- [03:44.510] The hostages obviously is a human story
+- [03:48.000] of just unbearable agony.
+- [03:51.750] I speak to the families. I spoke to them yesterday.
+- [03:54.600] Spoke to another one when I was in Hungary before I came here.
+- [03:58.000] I speak to them every day. They're in agony.
+- [04:01.260] The hostages are in agony, and we want to get them all out.
+- [04:05.630] Steve Witkoff, President Trump's very able representative,
+- [04:09.430] helped us get a deal that got 25 out.
+- [04:12.130] We're working now on another deal that we hope will succeed
+- [04:16.410] and we're committed to getting all the hostages out,
+- [04:18.440] but also eliminating the evil tyranny of Hamas in Gaza
+- [04:25.750] and enabling the people of Gaza
+- [04:27.760] to freely make a choice to go wherever they want.
+- [04:30.940] I mean, they should have that choice.
+- [04:32.850] And the President put forward a vision,
+- [04:34.560] a bold vision, which we discussed as well,
+- [04:38.230] including the countries that might be amenable
+- [04:42.720] and are amenable to accepting Palestinians
+- [04:45.940] have their free choice, if they choose to go there,
+- [04:48.670] and I think that's the second thing that we discussed.
+- [04:52.040] But the hostages came right on top.
+- [04:55.220] We also discussed the situation in Syria.
+- [05:01.990] We've had neighboring relations with Turkey
+- [05:04.200] that have deteriorated
+- [05:05.500] and we don't want to see Syria being used by anyone,
+- [05:08.640] including Turkey, as a base for attack in Israel.
+- [05:11.550] Turkey is a country
+- [05:14.150] that has a great relationship with the United States.
+- [05:18.570] The President has a relationship with the leader of Turkey.
+- [05:21.960] We discussed how we can avoid this conflict
+- [05:25.070] in a variety of ways.
+- [05:26.310] And I think we can't have a better interlocutor
+- [05:30.540] than the President of the United States for this purpose.
+- [05:33.390] And of course, we also discussed Iran.
+- [05:35.730] Look, we're both united in the goal
+- [05:39.150] that Iran does not ever get nuclear weapons.
+- [05:42.100] If it could be done diplomatically,
+- [05:44.060] in a full way the way it was done in Libya,
+- [05:46.480] I think that would be a good thing.
+- [05:48.980] But whatever happens, we have to make sure
+- [05:50.770] that Iran does not have nuclear weapons.
+- [05:54.180] That's the end of my speech.
+- [05:59.340] The President: We're having direct talks.
+- [06:01.530] Wait a minute. Wait, wait, wait.
+- [06:03.310] We're having direct talks with Iran and they've started.
+- [06:08.730] It'll go on Saturday.
+- [06:10.260] We have a very big meeting and we'll see what can happen.
+- [06:13.940] And I think everybody agrees that doing a deal
+- [06:17.330] would be preferable to doing the obvious.
+- [06:21.750] And the obvious is not something that I want to be involved with,
+- [06:25.590] or frankly that Israel wants to be involved with,
+- [06:28.160] if they can avoid it.
+- [06:29.420] So we're going to see if we can avoid it.
+- [06:31.450] But it's getting to be very dangerous territory
+- [06:36.070] and hopefully those talks will be successful.
+- [06:38.540] And I think it would be Iran's best interest.
+- [06:41.180] If they are successful, we hope that's going to happen.
+- [06:46.260] And we had just a lot of good talks on a lot of things.
+- [06:48.370] I appreciate very much what you said about the tariffs.
+- [06:50.540] We've been ripped off and taken advantage
+- [06:53.140] of by many countries over the years
+- [06:55.560] and can't do it anymore. We just can't do it anymore.
+- [06:58.670] We can't be the stupid people anymore.
+- [07:01.330] And it's all because of the people that sat in this seat,
+- [07:05.050] right here. Not your seat, but this seat.
+- [07:07.930] They allowed things to happen to our country
+- [07:09.920] that they shouldn't have allowed to happen on trade
+- [07:12.320] and other things. Many other things.
+- [07:13.860] I mean, look at what's happened with our last president
+- [07:16.820] where he allowed millions of people
+- [07:18.660] to come into our country with an open border.
+- [07:21.770] Who would want an open border? How stupid is that?
+- [07:25.100] But he allowed millions and millions of people
+- [07:28.070] and of the millions,
+- [07:29.410] and I think it was 21 million people,
+- [07:31.800] but let's say three of them were serious criminals,
+- [07:34.490] serious murderers and drug dealers
+- [07:37.160] and gang members and people from jails.
+- [07:39.150] All the jails emptied out right into our country,
+- [07:42.410] right along the open border on Mexico; generally the Mexico.
+- [07:47.000] They came in from Canada too, by the way, a lot.
+- [07:49.940] But generally speaking on the southern border.
+- [07:53.750] And what a shame it is
+- [07:55.220] that we are now working very hard to get them out;
+- [07:57.420] get the criminals out, get the murderers out,
+- [08:00.070] the drug dealers, the mentally insane.
+- [08:02.360] Get them out.
+- [08:03.720] They dropped them mentally insane in our country too.
+- [08:06.540] And this was all done by the Biden administration.
+- [08:08.870] It's a disgrace that we have to work so hard.
+- [08:11.770] And then we have judges that try and protect these people,
+- [08:14.520] but they didn't protect us when the people were being let in.
+- [08:17.750] But to get them out is never easy with these people.
+- [08:20.160] So I think we're doing a great job.
+- [08:23.500] The border is the best it's ever been.
+- [08:26.140] Even as strong as it was, I had a great solid border.
+- [08:29.910] I think it might even be tougher right now and stronger.
+- [08:33.430] So people are coming into our country,
+- [08:35.380] but they're coming in legally.
+- [08:36.730] We have a legal process and we have that moving along properly
+- [08:40.380] because we need people to come into our country,
+- [08:42.260] but we want people that can love our country
+- [08:44.730] and cherish our country. So that's where we are.
+- [08:47.730] And with that, any questions?
+- [08:53.770] The Press: Would you be open to a pause in tariffs
+- [08:56.020] to allow for negotiations?
+- [08:57.870] The President: Well, we're not looking at that.
+- [08:59.750] We have many, many countries
+- [09:01.480] that are coming to negotiate deals with us.
+- [09:04.350] And they're going to be fair deals.
+- [09:06.720] In certain cases, they're going to be paying
+- [09:09.490] substantial tariffs. They'll be fair deals.
+- [09:12.660] As you know, I spoke this morning
+- [09:14.140] with the Prime Minister of Japan
+- [09:17.510] and we had a very good conversation.
+- [09:19.020] They're coming. And I said, one thing,
+- [09:21.330] you're going to have to open up your country
+- [09:22.820] because we sold no cars, like zero cars in Japan,
+- [09:27.130] and they sold millions of cars into our country.
+- [09:30.670] They don't really take our agriculture;
+- [09:32.480] a little bit of it just to keep us slightly happy,
+- [09:34.710] but they don't take what they're supposed to be taking.
+- [09:36.960] So we have a great relationship with Japan.
+- [09:39.360] We're going to keep it that way. But they're coming in to meet
+- [09:41.960] and other countries are coming in.
+- [09:45.050] With China, as you know against my statement,
+- [09:48.820] they put a 34% tariff on above
+- [09:53.040] what their ridiculous tariffs were already.
+- [09:56.020] And I said, "If that tariff isn't removed
+- [09:58.590] by tomorrow at 12 o'clock, we're putting a 50% tariff
+- [10:02.220] on above the tariffs that we put on."
+- [10:05.490] So they've gone for years, they become a rich country
+- [10:07.930] because of people, again that were in the White House
+- [10:10.740] that allowed this to happen.
+- [10:13.460] Hundreds of billions of dollars a year
+- [10:15.050] that'd make on us on trade and it shouldn't be that way.
+- [10:17.980] And have a great relationship with President Xi.
+- [10:21.310] I hope it's going to stay that way.
+- [10:23.070] I have great respect for China,
+- [10:24.960] but they can't do this with just…
+- [10:26.860] We're going to have one shot at this and no other
+- [10:30.110] President's going to do this, what I'm doing.
+- [10:32.420] And I'll tell you what, it's an honor to do it
+- [10:35.540] because we have been just destroyed,
+- [10:38.740] what they've done to our system.
+- [10:40.940] We have 36 trillion of debt for a reason.
+- [10:44.320] And the reason is that people allowed it to get that way.
+- [10:47.740] So we'll be talking to China.
+- [10:51.430] We'll be talking to a lot of different countries.
+- [10:54.460] And I think if we can make a really fair deal
+- [10:59.510] and a good deal for the United States,
+- [11:01.150] not a good deal for other, this is America first.
+- [11:04.160] It's now America first.
+- [11:06.070] And we didn't put America first. We put America last.
+- [11:08.490] The people that were in the Oval Office put America last
+- [11:11.990] and we're not going to stand for it.
+- [11:18.660] Go ahead. Go ahead.
+- [11:21.930] The Press: Two questions.
+- [11:23.130] Do you expect any of these deals to be made before April 9th?
+- [11:26.820] And secondly, there've been some mixed messages
+- [11:28.770] from your administration.
+- [11:30.180] You're talking about negotiations
+- [11:31.610] and yet others in your administration
+- [11:33.150] are saying that these tariffs are actually permanent.
+- [11:35.630] What is the actual?
+- [11:37.470] The President: They can both be true.
+- [11:39.740] They can be permanent tariffs,
+- [11:41.660] and they can also be negotiations
+- [11:43.400] because there are things that we need beyond tariffs.
+- [11:45.380] We need open borders. We almost had a deal with China
+- [11:49.250] where we're going to open up China.
+- [11:50.600] It was almost done.
+- [11:51.890] Some of you remember it during my first term,
+- [11:54.560] and it was very disappointing. We ended up making a great deal;
+- [11:57.280] 50 billion worth of product were sold.
+- [12:00.440] 50 billion. You'd like that in Israel.
+- [12:02.980] And I made that deal, but it wasn't the deal that I wanted.
+- [12:05.630] It was… The deal that I wanted was that,
+- [12:08.370] plus they were going to open up China,
+- [12:10.540] so that our companies could go into China
+- [12:12.670] and compete with other countries
+- [12:15.790] and China for a large number of people.
+- [12:19.380] And at the very end, that deal was terminated
+- [12:22.390] and we went to a piece of the deal.
+- [12:25.590] And so there are a lot of things outside of tariffs,
+- [12:28.340] but tariffs are very important.
+- [12:29.890] But there are a lot of things like opening up countries
+- [12:32.650] that were totally closed.
+- [12:33.940] China's essentially a closed country.
+- [12:36.780] In fact, it is a closed country.
+- [12:39.280] And what they do is they charge tariffs,
+- [12:41.370] so that if you sell cars or if you sell anything,
+- [12:45.370] nobody's going to buy it because the price is out of control.
+- [12:48.050] But that's true with a lot of other countries also.
+- [12:50.120] So we are going to get fair deals and good deals
+- [12:53.370] with every country.
+- [12:54.770] And if we don't, we're going to have nothing to do with them.
+- [12:56.720] They're not going to be allowed to participate
+- [12:58.560] in the United States.
+- [13:01.280] [cross talk from reporters]
+- [13:17.310] The President: Go ahead.
+- [13:18.670] The Press: Many of Palestinian Americans who voted for you,
+- [13:20.710] voted for you and not for Biden
+- [13:22.190] because you've promised them to end the war in Gaza.
+- [13:24.850] The President: That's right. Very honored by that vote, too.
+- [13:27.640] The Press: The war is still going on
+- [13:28.970] and there's no hostage deal. Do you have any update on that?
+- [13:32.040] The President: Well, I'd like to see the war stop.
+- [13:33.590] And I think the war will stop at some point
+- [13:35.940] that won't be in the too distant future.
+- [13:38.110] Right now we have a problem with hostages.
+- [13:39.960] We're trying to get the hostages out.
+- [13:41.570] We got quite a few of them out, but it's a long process.
+- [13:44.860] It shouldn't be that long.
+- [13:46.640] We have a big problem that we've done.
+- [13:49.080] I think I'll ask Pete to maybe talk about it for a second
+- [13:51.790] because a lot of people are asking the Houthis.
+- [13:54.640] We've been very tough and very successful militarily.
+- [13:58.780] We've really damaged them badly.
+- [14:02.790] These were people shooting down ships and other things,
+- [14:05.440] by the way, flying objects like airplanes,
+- [14:09.320] and we've put a major hurt on the Houthis,
+- [14:13.650] which nobody's been able to do.
+- [14:15.040] We've really hit them hard and they know it,
+- [14:19.500] and they don't know what to do.
+- [14:21.330] And it's every night, night after night.
+- [14:24.110] And we've gotten many of their leaders and their experts,
+- [14:28.220] they're experts on missiles. They actually make missiles.
+- [14:30.970] Nobody thought that, but they make missiles.
+- [14:33.570] They're highly sophisticated and they're very tough,
+- [14:37.120] but they've been very badly damaged.
+- [14:39.500] Nobody else was able to do that.
+- [14:40.910] But Pete, you want to discuss that, please?
+- [14:42.480] Mr. Hegseth: Yes, sir.
+- [14:43.700] It's been a bad three weeks for the Houthis,
+- [14:47.210] and it's about to get worse.
+- [14:48.760] It's been a devastating campaign,
+- [14:50.130] whether it's underground facilities,
+- [14:52.680] weapons, manufacturing, bunkers,
+- [14:54.770] troops in the open, air defense assets,
+- [14:57.350] we are not going to relent.
+- [14:58.930] And it's only to get more unrelenting
+- [15:01.190] until the Houthis declare they will stop shooting at our ships.
+- [15:04.140] And we've been very clear at the Iranians as well.
+- [15:08.100] They should not continue to provide support to the Houthis.
+- [15:11.220] And that message has been made very clear.
+- [15:13.310] So we have a lot more options
+- [15:15.350] and a lot more pressure to apply.
+- [15:16.910] And we know, because we see the reports,
+- [15:18.940] how devastating this campaign has been on them,
+- [15:20.930] and we will not relent.
+- [15:22.220] The President: We have a great military.
+- [15:23.480] There's no military like our military.
+- [15:26.440] And despite Biden having given a lot,
+- [15:29.840] but nevertheless a pretty small piece,
+- [15:31.980] but it was a lot of our military away in Afghanistan.
+- [15:36.420] And one of the dumbest situations, I think,
+- [15:39.150] and maybe the most embarrassing situation
+- [15:41.390] we've ever been involved in,
+- [15:42.720] that short period of time in Afghanistan,
+- [15:46.260] what a disgrace that was.
+- [15:48.080] But left a lot of our military behind.
+- [15:51.110] Left, you see them in their annual parades
+- [15:54.870] where they're parading trucks that are armor-plated
+- [15:57.280] and different things that they kept,
+- [15:58.570] but it's many billions of dollars we left behind.
+- [16:01.870] But despite that, we have a tremendous military.
+- [16:05.440] That was a very small portion,
+- [16:07.110] because we rebuilt the military during my first term.
+- [16:10.490] And we have great things happening with our military.
+- [16:15.640] We also essentially approved a budget,
+- [16:19.870] which is in the facility, you'll like to hear this,
+- [16:22.400] of a trillion dollars, $1 trillion.
+- [16:25.550] And nobody's seen anything like it.
+- [16:27.550] We have to build our military. And we're very cost-conscious,
+- [16:31.070] but the military is something that we have to build
+- [16:33.410] and we have to be strong,
+- [16:34.630] because you got a lot of bad forces out there now.
+- [16:37.290] So we're going to be approving a budget,
+- [16:40.090] and I'm proud to say actually the biggest one
+- [16:42.010] we've ever done for the military.
+- [16:44.470] We're cutting other things that were under DOGE,
+- [16:47.880] but under a lot of other.
+- [16:49.860] When you look at a woman getting $2 billion for environmental
+- [16:54.740] and it had nothing to do with environmental,
+- [16:57.040] and they had $100 in the bank
+- [16:58.530] and they give her 2 billion, many, many of those cases,
+- [17:01.860] all that stuff is going to be cut out.
+- [17:03.370] But we are getting a very, very powerful military.
+- [17:07.220] We have things under order now,
+- [17:09.260] the likes of which we've never had before.
+- [17:11.140] We've never had the kind of aircraft,
+- [17:14.200] the kind of missiles, anything that we have ordered.
+- [17:18.770] And it's in many ways too bad that we have to do it
+- [17:21.850] because hopefully we're not going to have to use it.
+- [17:23.980] But the military is very, very powerful
+- [17:26.470] and it's going to remain that way.
+- [17:33.060] Go ahead, please. Yes, Greene.
+- [17:34.330] The Press: Thank you, Mr. President.
+- [17:35.530] I want to ask you about Iran
+- [17:38.710] because this is the first time we hear that the US
+- [17:41.210] [inaudible].
+- [17:42.560] Could you give us some more information at what level-
+- [17:47.950] The President: High level. Very high level.
+- [17:49.550] Yeah. We're dealing with the Iranians.
+- [17:52.050] We have a very big meeting on Saturday
+- [17:54.590] and we're dealing with them directly.
+- [17:56.520] A lot of people say,
+- [17:57.720] "Oh, maybe you're going through surrogates
+- [17:59.560] or you're not dealing directly.
+- [18:00.760] You're dealing through other countries."
+- [18:02.490] No, we're dealing with them directly.
+- [18:03.850] And maybe a deal's going to be made.
+- [18:06.100] That'll be great.
+- [18:07.360] Got to be, it would be really great for Iran.
+- [18:10.220] I can tell you that.
+- [18:11.690] But hopefully we're not going to have to get into that.
+- [18:14.930] We are meeting very importantly on Saturday
+- [18:18.120] at almost the highest level, and we'll see how it works out.
+- [18:21.230] Please.
+- [18:22.460] The Press: How do you ensure Mr. President
+- [18:24.090] that these tariffs don't drive US trading partners
+- [18:27.570] into the hands of the Chinese?
+- [18:29.380] The President: I'm not worried about it.
+- [18:30.630] I'm not worried about it.
+- [18:31.850] They want to be in the hands of the US,
+- [18:33.830] they don't want to be in the hands of the Chinese.
+- [18:35.590] And the Chinese have turned out
+- [18:37.820] to be really not very good at that.
+- [18:40.800] People that are with us, they're with us.
+- [18:43.540] But we cannot be taken advantage of any longer.
+- [18:47.520] I used to watch these deals for years.
+- [18:48.900] I've been talking about it for years.
+- [18:50.250] I've been talking about it for 35 years,
+- [18:52.970] how our country is being ripped off.
+- [18:56.430] Which, 30 years ago it was Japan,
+- [18:59.620] then it was something else,
+- [19:01.240] then it was another group, then it was China.
+- [19:03.280] China's doing the best job of it, frankly.
+- [19:07.010] And it's just not going to happen.
+- [19:08.610] Not going to happen.
+- [19:14.010] The Press: Mr President, you said that the US has said
+- [19:17.120] that they have offered zero-for-zero tariffs on cars
+- [19:20.940] and industrial goods. Is that not enough?
+- [19:23.290] The President: Well, the EU, no, it's not.
+- [19:25.330] The EU has been very tough over the years was.
+- [19:29.580] I always say it was formed to really do damage
+- [19:33.380] to the United States in trade. That's the reason it was formed.
+- [19:36.830] It was formed with all of the countries from Europe,
+- [19:40.040] I guess most of them, not all of them,
+- [19:41.650] but most of them, and they formed together
+- [19:44.110] to create a little bit of a monopoly situation
+- [19:47.670] to create a unified force
+- [19:49.400] against the United States for trade.
+- [19:52.230] So they have NATO, which is largely the same countries,
+- [19:56.450] and they took advantage of us dollar-
+- [20:00.000] wise and militarily until I got there.
+- [20:02.870] I was able to get $600 billion from NATO where they paid NATO
+- [20:08.090] because most of these nations weren't even paying.
+- [20:10.210] We were paying for NATO.
+- [20:11.410] So we're paying them to guard them militarily
+- [20:14.420] and they're screwing us on trade.
+- [20:16.040] So that's not a good combination.
+- [20:18.570] So now it's really turned around. It's the opposite.
+- [20:22.460] And the European Union's been very bad to us.
+- [20:26.870] They don't take our cars, like Japan in that sense.
+- [20:30.120] They don't take our agricultural product.
+- [20:32.630] They don't take anything practically.
+- [20:35.060] And yet they send millions of cars in a year.
+- [20:37.910] Mercedes-Benz, Volkswagen, BMWs.
+- [20:41.160] They're sending millions and millions of cars into the US.
+- [20:44.350] But we don't have a car that's been sold
+- [20:46.940] to the European Union or other places,
+- [20:49.220] but let's go for the European Union.
+- [20:52.110] And it's not going to be that way.
+- [20:53.430] It's got to be fair and reciprocal.
+- [20:55.780] It's got to be fair. It's not fair.
+- [20:58.340] We have a deficit with the European Union of $350 billion
+- [21:04.460] and it's going to disappear fast.
+- [21:06.170] And one of the reasons,
+- [21:07.500] and one of ways that that can disappear easily and quickly
+- [21:10.620] is they're going to have to buy our energy from us
+- [21:12.460] because they need it.
+- [21:13.700] They're going to have to buy it from us.
+- [21:15.350] They can buy it, we can knock off $350 billion in one week.
+- [21:20.050] They have to buy and commit to buy alike amount of energy.
+- [21:24.160] And we have that.
+- [21:25.540] We have more energy than any country in the world.
+- [21:27.860] I don't know if you know that. He knows everything,
+- [21:30.010] but the one thing he may not know,
+- [21:31.810] we have more energy than any country in the world.
+- [21:34.030] We have more of every kind of energy, every form of energy.
+- [21:37.820] From oil and gas to coal.
+- [21:40.240] And people talk about, I call it beautiful clean coal.
+- [21:44.580] As you know, Germany is opening up a coal plant a week.
+- [21:48.920] They tried the windmills and it didn't work.
+- [21:50.980] They tried all the other solutions
+- [21:52.630] and they were ready to go out of business.
+- [21:54.530] Now they're doing a coal plant a week.
+- [21:56.200] China is now up to two coal plants,
+- [21:59.830] they're opening two major coal plants
+- [22:02.000] every single week in China, all over China.
+- [22:04.990] And then we're not allowed to use coal.
+- [22:07.390] Well, we have clean, beautiful coal more than anybody else.
+- [22:10.340] We have oil and gas more than anybody else.
+- [22:13.030] We have the most energy of any country in the world,
+- [22:15.240] including Saudi Arabia, including everybody, by a lot.
+- [22:18.920] And I took it to number one. We were number three.
+- [22:21.800] And I took it to number one during my administration.
+- [22:25.080] And the reason that we were hurt so badly,
+- [22:27.530] and the reason that we went into such incredible inflation
+- [22:31.830] during Biden is energy.
+- [22:33.250] It was also their bad spending, but energy,
+- [22:36.780] because they played around with this incredible thing
+- [22:40.080] that we had built, this administration had built,
+- [22:43.420] and the energy costs went through the roof.
+- [22:45.290] And when that went up, everything else followed.
+- [22:47.200] Now, if you look at what's happening,
+- [22:49.310] you got to see this today.
+- [22:51.510] I said, "We're going to try and get groceries down."
+- [22:53.820] An old-fashioned term, but a beautiful term.
+- [22:56.780] Eggs, so when I got in, the press went absolutely crazy.
+- [23:01.230] The first week they said, "Eggs have quadrupled in price."
+- [23:04.500] I said, "I just got here. Tell me about it."
+- [23:07.200] And Brooke Rollins and our team did a great job,
+- [23:09.770] and eggs are down now 79%, and they're all over the place.
+- [23:14.380] And this was a problem that somebody else
+- [23:16.570] would've taken a long time to cure.
+- [23:19.510] We have energy is down, we have interest rates are down.
+- [23:23.370] We have groceries, meaning food is down.
+- [23:26.670] We have everything is down at levels
+- [23:28.730] that nobody ever thought possible.
+- [23:30.670] Energy looks like it's going to be in the $2.50/gallon range
+- [23:35.290] and maybe below that for a car, so for gasoline.
+- [23:39.300] So we are really doing amazing. We are cutting prices
+- [23:44.930] because prices got so high people couldn't live.
+- [23:48.740] The prices for groceries, the prices for standard groceries,
+- [23:52.980] standard things were going through the roof.
+- [23:54.760] They couldn't live.
+- [23:56.100] And now those prices are coming down, so call them groceries.
+- [23:59.280] But that's down, energy's down, and interest rates are down.
+- [24:03.290] Everything's down. And the interest rates,
+- [24:05.640] the beauty there is when we refinance debt,
+- [24:08.370] debt has become such a big factor in this country.
+- [24:11.010] We're going to start paying debt off
+- [24:13.440] with tariffs and other things. But it's such a big factor
+- [24:16.970] because the interest rate's so high.
+- [24:18.880] Well now that's coming way down.
+- [24:20.660] So our budget's going to look a lot better
+- [24:22.310] because interest costs are way down.
+- [24:25.070] And I guess I've done that. Okay.
+- [24:27.940] Go ahead, please.
+- [24:32.220] The Press: Many Israelis are watching you now on live show.
+- [24:33.940] The President: Good.
+- [24:35.170] The Press: What is your specific way-
+- [24:36.410] The President: I hope they like me.
+- [24:37.660] The Press: -- getting the hostages out
+- [24:38.990] from the horrific captivity?
+- [24:40.550] The President: Yeah, we are trying very hard
+- [24:41.800] to get the hostages out. We're looking
+- [24:45.380] at another ceasefire. We'll see what happens.
+- [24:48.250] But we want to get the hostages out.
+- [24:50.650] The Israeli people want the hostages out,
+- [24:53.210] more than anything they want the hostages out.
+- [24:55.990] This man is working very hard with us to do that.
+- [24:58.970] I don't know, I hope he's being appreciated
+- [25:01.210] because he's been a great leader.
+- [25:02.880] He's working very, very hard on the hostages
+- [25:05.200] and many other things.
+- [25:06.880] And there are plenty of things you have to work on.
+- [25:09.400] It's a tough place in the world.
+- [25:11.110] Prime Minister Netanyahu: I have a good partner.
+- [25:12.370] The President: Yeah, you do have a good partner and so do we.
+- [25:14.780] We're working very hard on the hostages.
+- [25:19.570] The Press: If you're going to negotiate
+- [25:20.930] a new dealing with Iran, can you elaborate
+- [25:23.450] how it's going to be more effective than the JCPOA?
+- [25:26.940] The President: Well I can't really say that,
+- [25:28.490] but I think it'll be different and maybe a lot stronger.
+- [25:32.870] But they were so happy when we made that first deal
+- [25:35.590] because we did get a lot out.
+- [25:38.190] I had people right in this office,
+- [25:39.640] this beautiful Oval Office,
+- [25:40.900] they came in 10 people, hostages, you know that.
+- [25:44.380] And I said to them, "So how was it?"
+- [25:46.840] And the stories they told me, as an example, I said to them,
+- [25:52.310] "Was there any sign of love?" You were there. 10 people.
+- [25:56.230] It's only 10, but it's pretty representative.
+- [25:59.260] "Did the Hamas show any signs of help or liking you?
+- [26:05.550] Did they wink at you?
+- [26:06.810] Did they give you a piece of bread extra?
+- [26:08.880] Did they give you a meal on the side,
+- [26:11.480] like you think of doing, like what happened in Germany,
+- [26:14.920] what happened elsewhere? People would try and help people
+- [26:18.190] that were in unbelievable distress.
+- [26:21.240] They said, "No."I said, "All of them," I said,
+- [26:24.090] "did they ever wink at you like 'You'll be okay.
+- [26:26.370] You're going to be okay'?"
+- [26:27.570] "No, they didn't do that. They'd slap us."
+- [26:30.270] Their hatred is unbelievable.
+- [26:33.110] And the lives. They lived in a pipe.
+- [26:35.390] Not really a tunnel, it was a pipe,
+- [26:37.650] and they always thought they were suffocating,
+- [26:39.410] they were going to suffocate.
+- [26:41.060] And then they'd open up the pipe and it was 3 1/2 feet high.
+- [26:45.810] We hear tunnel is bad, but pipes are worse.
+- [26:48.410] And the stories I heard were incredible. But.
+- [26:51.230] I just said, "Was there any sign of potential love or affection?"
+- [26:55.350] And there were none whatsoever. It was amazing to me.
+- [26:57.960] There was nothing like, "Here, take this.
+- [27:00.280] It's a little extra meal," or something.
+- [27:02.590] They lived like hell. I don't know.
+- [27:06.670] They were amazing to me, because they seemed to be pretty normal.
+- [27:10.080] They weren't scarred,
+- [27:11.850] but I guarantee underneath they have to be scarred.
+- [27:15.120] And one was there for 356 days.
+- [27:18.540] Another was there for about 180 days, a long time.
+- [27:23.550] These are people that have been really, really horribly treated.
+- [27:27.190] I've never seen anything like it actually.
+- [27:28.740] I was very surprised to hear the answer.
+- [27:32.260] The Press: Thank you, Mr. President.
+- [27:33.650] Are there two or three countries that are on your list
+- [27:37.060] that you feel are farther along
+- [27:39.270] in getting their tariffs lowered?
+- [27:43.050] The President: Well, I think there are many
+- [27:44.630] that want to get rid of tariffs right now.
+- [27:47.480] European Union, I mean, as badly as they've treated us,
+- [27:51.010] they've brought their car tariffs essentially off.
+- [27:54.510] I guess they brought it down to two and a half,
+- [27:56.080] and I hear maybe to nothing.
+- [27:59.110] But it's not only tariffs, it's non-monetary tariffs.
+- [28:02.040] It's tariffs where they put things on that
+- [28:04.570] make it impossible for you to sell a car.
+- [28:06.260] It's not a money thing.
+- [28:07.840] They make it so difficult, the standards and the tests.
+- [28:11.490] They drop a bowling ball on the top of your car
+- [28:13.980] from 20 feet up in the air, and if there's a little dent,
+- [28:17.060] they say, "No, I'm sorry. Your car doesn't qualify."
+- [28:19.610] When the same car from Germany or anything would dent likewise.
+- [28:23.420] Unless you're going to have an army tank, it's going to dent.
+- [28:26.530] So they come up with rules and regulations
+- [28:29.070] that are just designed for one reason,
+- [28:32.450] that you can't sell your product in those countries
+- [28:36.040] and we're not going to let that happen.
+- [28:38.360] Those are called non-monetary barriers.
+- [28:41.430] They make barriers that are so tough
+- [28:43.530] that it's impossible to qualify. So tariffs are a big part of it,
+- [28:48.300] but there's another big part of it, and that's barriers.
+- [28:51.880] They also do something else.
+- [28:53.420] They manipulate their currency and they drive it down.
+- [28:56.510] They want to drive it… They want to have low currencies.
+- [28:59.470] It sounds better to have a high currency,
+- [29:01.100] a strong dollar or whatever,
+- [29:02.830] but they bring their currency down.
+- [29:06.880] And when it competes with our currency,
+- [29:08.510] it's very hard to sell a tractor.
+- [29:10.410] It's very hard to sell product because their currency is low
+- [29:14.950] and ours is much higher, relatively.
+- [29:18.400] And so it makes it very hard.
+- [29:19.740] I speak to a lot of companies
+- [29:21.810] that do business, tractor companies,
+- [29:23.880] and they say it's so hard to sell
+- [29:26.500] because what they've done is they've lowered the yen
+- [29:28.680] or they've lowered the yuan or they've lowered their currency
+- [29:32.000] so that it's very hard to compete.
+- [29:34.440] We don't want that either.
+- [29:36.260] So we have a lot of things that we're talking about,
+- [29:38.810] but we're going to fix it properly
+- [29:40.790] and it's going to be fair to everybody.
+- [29:42.600] And in the end, I think we're going to have a world
+- [29:44.480] that does a lot better,
+- [29:46.270] but they have to respect the United States.
+- [29:48.170] And nobody but me would do this. Nobody but me would do this.
+- [29:51.780] It would nice to serve a nice easy term,
+- [29:55.770] but we have an opportunity
+- [29:57.070] to change the fabric of our country.
+- [29:58.920] We have an opportunity to reset the table on trade.
+- [30:03.030] We lose billions of dollars.
+- [30:05.600] We lose close to $2 trillion a year on trade.
+- [30:09.450] We lose a trillion dollars a year to China, a trillion.
+- [30:12.820] We lose hundreds of billions of dollars a year
+- [30:17.010] on trade to China.
+- [30:19.220] We lose hundreds of billions of dollars overall,
+- [30:23.860] probably close to $2 trillion. Why would we do that?
+- [30:28.640] Number one, why would we do that?
+- [30:30.220] And then you have to say, "Is it sustainable?"
+- [30:32.010] Then you hear about all of the people that say,
+- [30:33.890] "Well, deficits."
+- [30:35.090] If we have a deficit with the country,
+- [30:36.830] or if the country has a big surplus with us.
+- [30:39.350] China has a massive surplus that they take
+- [30:42.360] and they spend on their military.
+- [30:43.770] Well, we don't want that. I don't want them to take $500,
+- [30:47.040] $600 billion a year and spend it on their military.
+- [30:51.680] I don't want them spending money on their military
+- [30:54.060] and I shouldn't have to spend money.
+- [30:55.330] We shouldn't have to spend it either,
+- [30:57.470] because hopefully, and I said this to President Xi,
+- [30:59.970] hopefully it's money that we're never going to use.
+- [31:01.980] In other words,
+- [31:03.220] because we're not going to use those incredible weapons
+- [31:05.630] that we have and that they have. We don't want that.
+- [31:08.730] So it's going to be very interesting.
+- [31:12.320] It's the only chance our country will have to reset the table
+- [31:18.530] because no other president would be willing
+- [31:21.230] to do what I'm doing or to even go through it.
+- [31:24.290] Now, I don't mind going through it
+- [31:25.630] because I see a beautiful picture at the end,
+- [31:29.220] but we are making tremendous progress
+- [31:31.360] with a lot of countries,
+- [31:33.280] and the countries that really took advantage of us
+- [31:35.980] are now saying, "Please negotiate."
+- [31:38.490] You know why? Because they're getting beaten badly
+- [31:42.050] because of what's happening. They're getting beaten badly.
+- [31:44.650] They're being devalued as countries.
+- [31:47.520] But it's the only chance
+- [31:48.970] we're going to have to reset the table on trade.
+- [31:51.940] And when we do, we're going to come out unbelievably well.
+- [31:54.360] We're going to have a strong country economically again,
+- [31:57.260] and we're going to have those factories
+- [31:59.070] that are empty all over the United States.
+- [32:01.530] We've lost 90,000 plants and factories. Think of this.
+- [32:07.590] You wouldn't think it's possible.
+- [32:09.000] 90,000 plants and factories since NAFTA,
+- [32:12.590] which was by the way, the worst trade deal ever developed,
+- [32:15.950] ever had by any country anywhere, NAFTA.
+- [32:18.540] And I terminated NAFTA.
+- [32:19.850] Everybody said it would be impossible, and I terminated.
+- [32:22.680] Through Congress, we terminated it.
+- [32:24.560] You had to get it through Congress. It was a trap.
+- [32:27.140] It was a horrible thing, and we got it done
+- [32:29.640] and we went to the USMCA, which was much better.
+- [32:33.010] The problem is they cheat. They cheat like crazy.
+- [32:36.500] Canada cheats, Mexico cheats, just one of those things.
+- [32:40.740] But we are resetting a table and we're going to have great trade,
+- [32:44.950] and we're going to have a very strong country.
+- [32:46.960] Our country is going to be at a level
+- [32:48.450] that has maybe never been, or maybe…
+- [32:52.420] Our country was the strongest,
+- [32:53.950] believe it or not, from 1870 to 1913.
+- [32:58.270] You know why? It was all tariff- based. We had no income tax.
+- [33:02.490] Then in 1913, some genius came up with the idea of
+- [33:05.530] "Let's charge the people of our country,
+- [33:07.680] not foreign countries that are ripping off our country."
+- [33:11.540] And the country relatively was never that kind of wealth.
+- [33:17.190] We had so much wealth, we didn't know what to do with our money.
+- [33:20.300] We had meetings, we had committees,
+- [33:23.710] and these committees worked tirelessly to study one subject.
+- [33:29.060] "We have so much money, what are we going to do with it?
+- [33:31.320] Who are we going to give it to?"
+- [33:33.020] And I hope we're going to be in that position again.
+- [33:38.850] The Press: Mr. President, do you plan to reduce the tariffs
+- [33:41.250] that your government put on Israeli goods, 17%?
+- [33:43.440] The President: On where?
+- [33:44.670] The Press: On Israeli goods. The 17%. Do you plan-
+- [33:47.440] The President: Well, we're talking
+- [33:48.660] about a whole new trade. Maybe not. Maybe not.
+- [33:52.430] Don't forget, we help Israel a lot.
+- [33:55.190] We give Israel $4 billion a year. That's a lot.
+- [33:58.590] Congratulations, by the way. That's pretty good.
+- [34:01.800] But we give Israel billions of dollars a year.
+- [34:05.150] Billions. It's one of the highest of…
+- [34:08.370] And we give a lot of countries money.
+- [34:12.080] You wouldn't believe it if I said
+- [34:13.520] we give Afghanistan a lot of money
+- [34:16.950] because that was a Biden deal, another Biden deal.
+- [34:18.830] Not only did he embarrass us with that,
+- [34:20.720] but they give them billions of dollars, Afghanistan.
+- [34:25.890] But no, we take good care of our friends
+- [34:28.890] and we don't take care of our enemies.
+- [34:30.560] We're not taking care of our enemies anymore.
+- [34:32.540] But we do take care of our friends.
+- [34:36.380] The Press: For the times of Israel,
+- [34:37.890] the IDF is fighting to get into the Gaza Strip.
+- [34:39.640] I, myself, might be called up in a month.
+- [34:41.380] Do you think that's the way to pressure Hamas to get to a deal?
+- [34:44.370] Do you think blocking humanitarian aid
+- [34:45.970] is also an affective pressure?
+- [34:47.240] The President: Well, you know how I feel about the Gaza Strip.
+- [34:49.230] I think it's an incredible piece of important real estate,
+- [34:54.380] and I think it's something that we would be involved in.
+- [34:58.120] But having a peace force like the United States there,
+- [35:02.400] controlling and owning the Gaza Strip would be a good thing.
+- [35:05.720] Because right now all it is, is for years and years,
+- [35:08.700] all I hear about is killing and Hamas and problems.
+- [35:12.470] And if you take the people,
+- [35:14.160] the Palestinians and move them around to different countries,
+- [35:17.000] and you have plenty of countries that will do that,
+- [35:20.280] and you really have a freedom zone.
+- [35:23.540] You call it the freedom zone. A free zone.
+- [35:26.330] A zone where people aren't going to be killed every day.
+- [35:28.490] That's a hell of a place. You know what I call it?
+- [35:31.970] A great location that nobody wants to live in
+- [35:34.860] because they really don't.
+- [35:36.150] And when they have good living,
+- [35:39.150] real living where Hamas and all of the problems they have,
+- [35:43.460] the level of death on the Gaza Strip is just incredible.
+- [35:47.690] And I've said it.
+- [35:49.910] I don't understand why Israel ever gave it up.
+- [35:52.340] Israel owned it. It wasn't this man.
+- [35:54.350] So I can say it. He wouldn't have given it up.
+- [35:56.450] I know him very well. There's no way.
+- [35:59.270] They took oceanfront property
+- [36:01.190] and they gave it to people for peace.
+- [36:03.390] How did that work out? Not good.
+- [36:06.380] The Press: Sorry, Mr. President.
+- [36:07.610] Is the immigration plan still on the agenda?
+- [36:11.110] The President: Which immigration?
+- [36:12.620] The Press: Gaza. Gaza.
+- [36:14.820] The President: All it is a concept
+- [36:17.000] that I had that I think is good, and now people are copying it.
+- [36:20.080] Maybe do you want to tell them?
+- [36:21.380] People are talking about the Trump plan.
+- [36:23.140] Gee, why do we do that?
+- [36:25.200] Would you like to answer that question?
+- [36:27.200] Prime Minister Netanyahu: I think what the president
+- [36:28.400] talked about is first of all, to give people a choice.
+- [36:32.690] Gazans were closed in and any other place,
+- [36:35.510] including in arenas of battle,
+- [36:37.840] I mean, whether it's Ukraine or Syria
+- [36:39.820] or any other place, people could leave.
+- [36:43.110] Gaza was the only place where they locked them in.
+- [36:45.950] We didn't lock them in. They're locked in.
+- [36:48.440] And what is wrong with giving people a choice?
+- [36:51.960] Now, we've been talking,
+- [36:53.600] including over lunch about some countries.
+- [36:55.860] I won't go into them right now,
+- [36:58.630] that are saying if Gazans want to leave,
+- [37:01.760] we want to take them in.
+- [37:03.370] And I think this is the right thing to do.
+- [37:07.870] It's going to take years to rebuild Gaza.
+- [37:09.700] In the meantime, people can have an option.
+- [37:12.080] President has a vision.
+- [37:13.510] Countries are responding to that vision or working on it.
+- [37:16.270] I hope we'll have good news for you.
+- [37:19.610] The President: I will say people love…
+- [37:21.100] Excuse me. People really do love that vision.
+- [37:24.210] It's a long-term vision.
+- [37:25.530] But so importantly is to have that be a safe field,
+- [37:30.800] because you're right smack in the middle of the Middle East.
+- [37:33.520] You're right along Israel.
+- [37:34.750] It should have never ever been given away.
+- [37:37.110] It shouldn't have been given away by Israel.
+- [37:39.570] I don't know why they did it. I mean, I do know why,
+- [37:41.580] because they were promised peace,
+- [37:42.900] but that didn't work out too well
+- [37:44.350] because it's one of the most dangerous pieces of land
+- [37:47.380] anywhere in the world.
+- [37:49.000] Gaza is one of the most dangerous places in the world.
+- [37:52.100] So they gave it away for a good intention
+- [37:54.280] and it didn't work out that way.
+- [37:56.170] And a lot of people like my concept,
+- [37:59.720] but there are other concepts that I like too.
+- [38:02.760] And there's some concepts I don't like.
+- [38:04.570] You know what I don't like? The way it is now.
+- [38:06.630] Because right now it's a dangerous death trap,
+- [38:09.180] Gaza. Yeah?
+- [38:12.170] The Press: Thank you, sir. Can you talk a little bit
+- [38:13.720] about your potential meeting with Vladimir Putin?
+- [38:16.550] Do you still plan to meet with him?
+- [38:18.680] Could that happen in Saudi Arabia?
+- [38:20.640] And maybe you could elaborate as well a little bit
+- [38:22.300] on not providing tariffs on Russia, sir.
+- [38:25.010] The President: So the reason
+- [38:27.000] we're not talking about tariffs with Russia
+- [38:29.220] is because we're not doing business essentially with Russia
+- [38:32.310] because they're in a war.
+- [38:34.110] And I'm not happy about what's going on with the bombing
+- [38:38.560] because they're bombing like crazy right now.
+- [38:40.990] They're bombing. I don't know what's happening there.
+- [38:43.230] That's not a good situation.
+- [38:45.370] So we're meeting with Russia, we're meeting with Ukraine,
+- [38:49.130] and we're getting close,
+- [38:50.470] but I'm not happy with all the bombing
+- [38:52.160] that's going on the last week or so.
+- [38:55.270] Horrible. It's a horrible thing. It's a horrible thing.
+- [39:02.140] The Press: Can countries negotiate to get below 10%?
+- [39:04.660] The President: In terms of tariffs?
+- [39:07.050] The Press: In terms of tariffs, yes.
+- [39:09.920] The President: Look, we've been ripped off and taken advantage
+- [39:13.270] of for 40, 50, 60 years and the reason we got ripped off
+- [39:19.340] and the way they did it was tariffs.
+- [39:21.600] They would charge tariffs, massive numbers of dollars.
+- [39:25.310] And when you look at China, when I took over,
+- [39:29.750] it was at $507 billion, they were making.
+- [39:33.450] I call it making, a lot of people say,
+- [39:35.090] "Oh, it doesn't mean anything, having a surplus."
+- [39:37.040] It means a lot in my opinion,
+- [39:38.960] it's almost like a profit or loss statement.
+- [39:41.540] And when I took over was $507 billion that China was,
+- [39:47.220] this is originally, first term,
+- [39:49.870] and we were very, very tough on them
+- [39:52.590] because they were taking that money
+- [39:54.610] and they were building a military with it.
+- [39:56.700] Then when Biden came in,
+- [39:58.080] he let them get away with murder.
+- [39:59.380] He had no idea.
+- [40:00.620] I'll tell you what, that man had no idea what was happening,
+- [40:02.520] whether it was the border or China or anything else,
+- [40:05.300] he had no idea what was going on.
+- [40:08.090] And they went wild. China went wild,
+- [40:12.210] and the money they make is ridiculous.
+- [40:14.800] Okay? It's just not going to happen.
+- [40:16.680] And hopefully we'll get along with China.
+- [40:18.160] If we do, that's great,
+- [40:19.420] and if we don't, that's okay too,
+- [40:21.390] but we can't let that continue because that's an abuse.
+- [40:25.310] They abused the poor people that sat in this seat,
+- [40:28.990] that poor Biden.
+- [40:30.270] He was abused by them. They took advantage of him.
+- [40:33.200] And I'm surprised. They have smart people.
+- [40:35.860] They were radical left lunatics, but they're smart.
+- [40:38.620] I'm surprised they'd allow that to happen.
+- [40:42.890] But we are going to bring great trade
+- [40:46.850] and we're going to be fair to other countries.
+- [40:49.010] And I will say this,
+- [40:51.680] virtually every country wants to negotiate.
+- [40:55.670] If I didn't do what I did over the last couple of weeks,
+- [40:59.580] you wouldn't have anybody want to negotiate.
+- [41:01.690] We would've gone to these countries, "You want to talk?
+- [41:03.730] And they were, well, "We don't want to talk."
+- [41:05.570] Now they're coming to us.
+- [41:07.810] They're offering things like, even Bibi, and this is unrelated
+- [41:11.250] because it's a different kind of a relationship,
+- [41:13.720] but he started off our conversation today
+- [41:15.650] that he's cutting all of the tariffs,
+- [41:17.610] he's cutting everything.
+- [41:18.930] He's going to get down to a free base.
+- [41:20.510] He's going to do things that,
+- [41:22.380] in all fairness, other countries,
+- [41:24.600] if they said that would never even thought about doing it,
+- [41:27.790] now they're offering things to us
+- [41:30.610] that we would've never even thought of asking them for
+- [41:34.570] because they're experiencing a lot of hurt,
+- [41:38.300] and the hurt is that they've taken advantage of us
+- [41:40.850] and we finally fought back.
+- [41:43.300] Tariffs will make this country very rich.
+- [41:45.440] We're rich anyway, but we're rich in a certain way.
+- [41:49.110] We have $36 trillion in debt, I want to get rid of it
+- [41:53.750] and we can do it quickly with proper deals.
+- [41:57.460] So when countries don't allow us to sell our product,
+- [42:01.710] but we allow them to sell their product,
+- [42:04.130] when they charge us massive amounts of money
+- [42:06.450] for the privilege of going into their country,
+- [42:09.160] those days are over.
+- [42:10.750] [inaudible] Yeah, go ahead, sir?
+- [42:16.050] The Press: Me?
+- [42:17.290] The President: Yeah, he sounds so surprised.
+- [42:19.010] The Press: Thank you, Mr. President.
+- [42:21.110] On Iran, two questions, please.
+- [42:23.140] First, you can give us more details
+- [42:24.740] about where the meeting on Saturday is going?
+- [42:26.210] The President: I can't tell you that.
+- [42:27.490] I can just tell you there's a major meeting
+- [42:29.410] going on between us and Iran,
+- [42:33.430] and that'll take place on Saturday and it's at top level.
+- [42:36.590] The Press: And second question about this,
+- [42:39.790] a lot of people think that those talks
+- [42:41.510] are not going to lead anywhere
+- [42:42.890] because the Iranians will never give up
+- [42:44.340] [inaudible].
+- [42:45.610] The President: I think that's a possibility too.
+- [42:48.250] The Press: If diplomacy fails,
+- [42:50.240] is the United States under your leadership
+- [42:52.310] ready to take military action to destroy the Iran nuclear program
+- [42:57.240] and remove this threat?
+- [43:00.460] The President: I think if the talks
+- [43:01.660] aren't successful with Iran,
+- [43:04.930] I think Iran is going to be in great danger.
+- [43:07.430] And I hate to say it, great danger
+- [43:09.630] because they can't have a nuclear weapon.
+- [43:11.160] The Press: So is that a yes?
+- [43:12.380] The President: It's not a complicated formula.
+- [43:15.880] Iran cannot have a nuclear weapon.
+- [43:17.330] That's all there is. Can't have it.
+- [43:18.590] The Press: Is the US ready [inaudible]?
+- [43:19.880] The President: Right now we have countries
+- [43:21.140] that have nuclear power that shouldn't have it,
+- [43:24.250] but I'm sure we'll be able to negotiate out of that too
+- [43:27.940] as part of this later on down the line.
+- [43:30.790] But Iran cannot have a nuclear weapon.
+- [43:33.800] And if the talks aren't successful,
+- [43:38.160] I actually think it'll be a very bad day for Iran,
+- [43:41.030] if that's the case. Yeah?
+- [43:42.280] The Press: Mr. President on manufacturing [inaudible].
+- [43:44.170] The President: Yeah, please?
+- [43:45.410] The Press: Mr. President,
+- [43:46.630] was October 7th the deathblow of the two-state solution?
+- [43:49.820] And would you consider classifying
+- [43:51.740] the Palestinian authority
+- [43:53.080] as a terrorist organization for its continued
+- [43:55.520] [inaudible] terror financing payments?
+- [43:57.310] The President: So October 7th was a horrible day
+- [43:59.700] that some people, they deny it.
+- [44:02.410] Now, I can't believe they deny it from the standpoint of it,
+- [44:04.830] they do it because they think it's good politically,
+- [44:07.410] but I've seen the tapes.
+- [44:09.070] I've seen things that you don't want to see.
+- [44:11.340] October 7th was a horrible day and it will go down
+- [44:14.460] as one of the really bad days in the history of the world.
+- [44:19.170] It was a horrible, horrible thing that happened.
+- [44:24.020] They grabbed some of these people,
+- [44:25.330] I'll give you an example,
+- [44:26.900] when I was with the 10 hostages a few weeks ago,
+- [44:30.520] I said, "So how many are there?" "59."
+- [44:33.710] I said, "Oh, 59, so we can get 59."
+- [44:36.850] They sort of knew the territory pretty good.
+- [44:39.950] And I said, "How are they doing?"
+- [44:42.560] They said, "Well, only 24 are living. The rest are dead."
+- [44:46.890] And these are young people largely, young people don't die.
+- [44:50.420] Young people have an amazing ability to live.
+- [44:53.710] They can live through horrible things.
+- [44:56.090] But these are young people.
+- [44:57.920] And when they said that 24 are living and the rest are dead,
+- [45:01.960] and I've had parents come up,
+- [45:03.830] Israeli parents, largely, we have some Americans,
+- [45:06.910] and I guess we have one left, Alex, we have the one left.
+- [45:13.350] But I've had Israeli parents come up to me at events
+- [45:18.180] and say, "My son is there." I said, "Well, how's he doing?"
+- [45:21.560] "Well, he's dead, but would you do me the biggest favor ever?
+- [45:25.600] Could you bring his body back home?"
+- [45:27.700] They talked about a young dead boy
+- [45:30.420] and a young dead girl like they were living
+- [45:35.490] and that could have something to do with religion
+- [45:37.650] that could have something to do with,
+- [45:39.300] I guess, maybe any parent would be, but I was surprised.
+- [45:43.300] They said, "Sir, my son is dead,
+- [45:46.430] it is just as important to bring that body back home,"
+- [45:50.020] I asked that question, "as if he were alive."
+- [45:53.710] So you have a lot of them dead
+- [45:55.850] and we'll be able to bring them back.
+- [45:58.380] But it's a horrible thing that's happened.
+- [46:00.700] These are largely young people, some old ones too, frankly,
+- [46:04.250] and those people have lived in hell.
+- [46:05.770] When the second group that came out,
+- [46:08.480] they looked like they just got out of a concentration camp.
+- [46:12.120] They looked exactly like the pictures
+- [46:14.220] that I see from the 1940s, the concentration camps.
+- [46:19.030] And then they got a little bit better,
+- [46:21.910] but that second group, those people came out
+- [46:24.800] and "I said, this is unbelievable.
+- [46:26.430] We're going back into a chapter in history
+- [46:29.110] that is one of the worst ever." It's really very bad.
+- [46:32.920] The Press: [inaudible].
+- [46:37.090] Mr. President, you said it could take two years
+- [46:39.800] to get American manufacturing fully up to speed
+- [46:42.270] in response to these tariffs. What happens in the meantime?
+- [46:45.260] Should America be prepared to potentially for years of
+- [46:47.250] [inaudible 00:46:49] disruption.
+- [46:49.000] The President: We have now $7 trillion,
+- [46:53.190] think of this, seven trillion of commitments from companies
+- [46:57.360] wanting to go in from Apple to many, many companies-
+- [46:59.210] The Press: But that takes time.
+- [47:00.510] The President: -- many from Taiwan.
+- [47:01.720] What?
+- [47:02.950] The Press: It takes time to [inaudible].
+- [47:04.170] The President: Of course it takes…
+- [47:05.390] Well are you asking me a question
+- [47:06.610] or are you telling me? Yeah, it takes time.
+- [47:08.700] You got to build a thing called the factory,
+- [47:11.580] you have to build your energy, you have to do a lot of things.
+- [47:15.070] I'm giving them energy,
+- [47:16.520] we're going to let them build their own power plants.
+- [47:20.420] Essentially they're going to be in charge of the power plant
+- [47:23.070] because our power is not reliable enough.
+- [47:27.640] You have a grid that's old and susceptible to a lot of things,
+- [47:31.130] including bombing and weather and a lot of other things.
+- [47:34.910] And we're going to give them record timing
+- [47:36.940] in terms of approvals of electric plants,
+- [47:39.620] most of them want to build electric plants.
+- [47:41.110] We need massive amounts of electricity
+- [47:43.040] if we're going to compete with China and others.
+- [47:46.100] And interestingly, we're way ahead right now
+- [47:48.150] in the AI race with China,
+- [47:50.810] but the way we lose that race is if we can't give them electric.
+- [47:54.350] But we have more plants being built,
+- [47:56.110] we have everything, we're doing so great
+- [47:59.360] and we want to keep it that way.
+- [48:01.140] And tariffs will be an important part of it.
+- [48:03.640] But one of the other things,
+- [48:04.950] Lee Zeldin is doing a fantastic job,
+- [48:06.800] head of environmental protection,
+- [48:09.180] and he's doing very rapid approvals for people to get,
+- [48:12.710] for big companies, that are going to build a plant
+- [48:16.000] that's going to cost billions of dollars
+- [48:18.630] and we're going to get them their approvals.
+- [48:20.320] They have to be environmentally perfect, everything good,
+- [48:22.710] but they're going to be in record time,
+- [48:24.300] a matter of months versus a matter of many, many years.
+- [48:28.520] The Press: [inaudible].
+- [48:31.650] The President: Go ahead.
+- [48:32.910] The Press: Yeah, [inaudible].
+- [48:36.130] Turkey claims it will stabilize the situation in Syria.
+- [48:39.870] The President: Turkey?
+- [48:41.240] The Press: Yeah.
+- [48:42.820] Israel doesn't want Turkey to influence Syria.
+- [48:45.930] What do you think?
+- [48:47.140] Do you think Turkey's influence in Syria
+- [48:49.440] can actually make it a better,
+- [48:51.730] more peaceful country or vice versa?
+- [48:53.530] The President: Well, I have great relations
+- [48:55.810] with the man named Erdogan. Have you heard of him?
+- [48:58.650] And I happen to like him and he likes me.
+- [49:00.580] And I know the press will get very angry.
+- [49:02.450] He likes Erdogan, but I do. And he likes me.
+- [49:05.210] And we've never had a problem.
+- [49:07.090] And we've gone through a lot and we've never had a problem.
+- [49:11.220] As you remember, we got our minister back from Turkey,
+- [49:13.920] you remember that?
+- [49:15.340] And this was a big deal at the time.
+- [49:18.890] And we got him back and I told the Prime Minister, I said,
+- [49:23.680] "Just maybe if you have a problem with Turkey,
+- [49:26.910] I really think I'm going to be able to work it out.
+- [49:28.970] I have a very, very good relationship with Turkey
+- [49:32.560] and with their leader,
+- [49:34.400] and I think we'll be able to work it out."
+- [49:36.420] So I hope that's not going to be a problem.
+- [49:37.900] I don't think it will be a problem.
+- [49:39.600] Now, with that being said, I believe it was Turkey,
+- [49:41.930] and I said that to him, I said it, I said,
+- [49:46.350] "Congratulations, you've done what nobody
+- [49:48.940] has been able to do in 2000 years.
+- [49:50.690] You've taken over Syria with different names,
+- [49:54.160] but same thing." I said, "You've taken it over."
+- [49:56.810] He's taken it over through surrogates.
+- [49:58.780] He goes, "No, no, no, no, no, no, it was not me."
+- [50:01.760] I said "It was you, but that's okay.
+- [50:04.170] You don't have to say." "Well, it sort of maybe was me."
+- [50:07.460] But what he did, look, he's a tough guy and he's very smart,
+- [50:11.420] and he did something that nobody was able to do.
+- [50:14.860] You got to hand it to him.
+- [50:17.080] Any problem that you have with Turkey,
+- [50:19.090] I think I can solve.
+- [50:20.810] I mean, as long as you're reasonable,
+- [50:22.330] you have to be reasonable. We have to be reasonable.
+- [50:24.480] Thank you very much, everybody. Appreciate it. Thank you.

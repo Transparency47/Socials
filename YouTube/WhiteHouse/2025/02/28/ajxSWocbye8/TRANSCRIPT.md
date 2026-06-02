@@ -1,0 +1,1248 @@
+<!-- source: https://www.youtube.com/watch?v=ajxSWocbye8 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: ajxSWocbye8 -->
+<!-- date_published: 2025-02-28T22:04:53+00:00 -->
+<!-- date_accessed: 2026-06-02T01:29:25.241461+00:00 -->
+
+# Transcript: President Trump and Ukrainian President Zelenskyy in Oval Office, Feb. 28, 2025
+
+- [00:00.350] President Trump: Well, thank you very much.
+- [00:01.610] It's an honor to have President Zelenskyy of Ukraine
+- [00:05.730] and we've been working very hard, very close.
+- [00:08.320] So we've actually known each other for a long time.
+- [00:10.410] We've been dealing with each other
+- [00:12.050] for a long time and very well.
+- [00:14.650] We had little negotiations spat,
+- [00:17.050] but that worked out great I think for both countries,
+- [00:20.080] I think for the world actually, beyond both countries.
+- [00:23.600] And we have something that is a very fair deal
+- [00:28.040] and we look forward to getting in
+- [00:30.330] and digging, digging, digging and working
+- [00:32.430] and getting some of the rare earth.
+- [00:35.290] But it means we're going to be inside
+- [00:36.860] and it's a big commitment from the United States
+- [00:40.240] and we appreciate working with you very much,
+- [00:43.740] and we will continue to do that.
+- [00:45.770] We have had some very good discussions with Russia.
+- [00:49.310] I spoke with President Putin,
+- [00:51.780] and we're going to try and bring this to a close.
+- [00:54.030] It's something that you want and that he wants.
+- [00:55.870] We'll have to negotiate a deal,
+- [00:58.120] but we've started the confines of a deal
+- [01:00.350] and I think something can happen.
+- [01:03.590] The big thing is the number of soldiers,
+- [01:07.990] mostly at this point, but soldiers being killed.
+- [01:10.290] You're losing thousands of soldiers.
+- [01:11.970] So on both sides we're losing a lot of soldiers
+- [01:14.040] and we want to see it stop
+- [01:16.520] and we want to see the money get put to different kinds of use,
+- [01:19.810] like rebuilding; the rebuilding.
+- [01:22.320] And we're going to be working very hard.
+- [01:24.940] But we've had a lot of very good conversations.
+- [01:27.210] I will say until we came along,
+- [01:29.230] the Biden administration didn't speak to Russia whatsoever.
+- [01:32.590] They didn't speak to anybody.
+- [01:33.850] They just allowed this to continue.
+- [01:36.750] And I will say that… I'll say in front of you,
+- [01:40.650] you've heard me say it a thousand times,
+- [01:42.760] if I were president, this war would've never happened.
+- [01:45.150] We would've had a deal negotiated for you
+- [01:46.940] without having to go through what you've gone through.
+- [01:50.850] But your soldiers have been unbelievably brave.
+- [01:54.230] We've given them great equipment, but they…
+- [01:55.970] somebody has to use the equipment,
+- [01:57.350] they've been unbelievably brave and we give them great credit.
+- [02:01.880] This was supposed to be over very quickly,
+- [02:04.490] and here we are three years later.
+- [02:07.700] So I give tremendous credit to your generals
+- [02:10.720] and your soldiers and yourself in the sense
+- [02:13.610] that it's been very hard fighting, very tough fighting.
+- [02:18.480] They're great fighters
+- [02:20.260] and you have to be very proud of them from that standpoint.
+- [02:22.310] President Zelenskyy: I'm very proud.
+- [02:23.520] President Trump: But now we want to get it over with.
+- [02:25.450] It's enough, right, if we want to get it over with.
+- [02:27.810] So it's an honor to have you here.
+- [02:30.540] Thank you very much for coming.
+- [02:31.770] We're going to sign the agreement at the conference
+- [02:36.280] in the East Room in a little while right after lunch.
+- [02:40.640] And we'll be having lunch together.
+- [02:42.080] We're also discussing some other things
+- [02:45.080] and we appreciate everybody being here.
+- [02:47.090] It's somewhat of an exciting moment,
+- [02:49.580] but the really exciting moment is where we get to…
+- [02:52.530] when they stop the shooting and we end up with the deal.
+- [02:54.930] And I think we're fairly close to getting that,
+- [02:56.810] and an honor to have you.
+- [02:59.020] And please, like to say something.
+- [03:01.520] President Zelenskyy: Yeah, thank you so much, Mr. President.
+- [03:03.650] Thank you for invitation.
+- [03:05.790] And really, I hope that this document,
+- [03:10.080] first document will be first step
+- [03:11.760] to real security guarantees for Ukraine.
+- [03:14.080] Our people, our children really count on it.
+- [03:17.810] And of course we count that America will not stop support.
+- [03:21.620] Really, for us, it's very important to support
+- [03:24.780] and to continue it.
+- [03:26.340] I want to discuss it with details
+- [03:28.290] for them during our conversation.
+- [03:30.510] And of course the infrastructure or security guarantees.
+- [03:33.890] Because for today, I understand what Europe is ready to do.
+- [03:37.770] And of course I want to discuss with you
+- [03:39.550] what United States will be ready to do.
+- [03:42.300] And I really count on your strong position to stop Putin.
+- [03:47.440] And you said that enough with the war.
+- [03:49.570] I think that is very important then to say these words to Putin
+- [03:53.690] at the very beginning, at the very beginning war,
+- [03:56.290] because he's a killer and terrorist.
+- [03:58.030] But I hope that together we can stop him.
+- [04:01.050] But for us, it's very important to save our country,
+- [04:05.320] our values, our freedom and democracy.
+- [04:09.500] And of course no compromises with the killer
+- [04:13.170] about our territories, but it'll be later.
+- [04:16.040] And of course, what I wanted…
+- [04:18.220] We spoke about it by phone
+- [04:19.650] with you about the drones' production.
+- [04:21.930] We have very good drones production,
+- [04:23.590] I think the best one in the world for today
+- [04:25.730] because of the war. Yes.
+- [04:27.970] And of course, we need very much the air defense.
+- [04:32.380] You have the best air defense in the world,
+- [04:34.510] and really you helped us under attacks of Russians.
+- [04:37.840] And I want to speak how we can exchange the licenses.
+- [04:41.170] We're open to share the licenses of all our drones
+- [04:44.530] with you, of course, with the United States.
+- [04:46.500] And we need licenses for quick production of air defense.
+- [04:49.950] Even after the war, we need our nation to be calm,
+- [04:54.100] that we are secure.
+- [04:55.470] That's why we need this air shield.
+- [04:57.840] And of course about this,
+- [05:00.700] I want to speak about the contingents.
+- [05:02.730] I think that France and UK already spoke to you,
+- [05:06.680] and we know that Europe is ready,
+- [05:08.310] but without United States,
+- [05:09.940] they will not be ready to be as strong as we need.
+- [05:14.670] And the last point,
+- [05:16.750] last but not least, about exchange,
+- [05:19.020] about our people and children.
+- [05:21.280] And you know that this crazy Russian,
+- [05:23.140] that they've stolen 20,000 of children, Ukrainian children.
+- [05:27.210] They changed their names,
+- [05:29.070] they changed their families, relatives,
+- [05:32.690] and now they're in Russia. We want to bring them back.
+- [05:36.560] And really, it's a big, big dream task and goal for me
+- [05:40.390] and end our wars.
+- [05:43.050] By the way, Mr. President, we brought, we exchanged,
+- [05:46.260] we, yes, released more than
+- [05:48.170] 4,000 warriors from Russian prison,
+- [05:51.250] but there are thousands more in the prison.
+- [05:55.040] I wanted to share with you some images.
+- [05:58.630] How… Can I now?
+- [06:02.590] President Trump: Yeah. Please. Please.
+- [06:03.820] President Zelenskyy: Some minute,
+- [06:05.030] one minute, one minute.
+- [06:06.780] I just you to understand in what circumstances,
+- [06:10.350] in what situation they are
+- [06:11.830] and what the attitude of Russia to our prisons.
+- [06:14.890] That guys, just you… Before and after.
+- [06:19.720] And you see before and after, just you to understand.
+- [06:23.040] Now thousands of such guys, ladies and men there, and that…
+- [06:28.370] So they don't eat. They beat them
+- [06:30.200] and they do a lot of bad things.
+- [06:38.050] Even during the war, there are rules.
+- [06:40.090] Everybody knows there are rules during the war.
+- [06:42.630] These guys, they don't have any rules.
+- [06:44.930] You see that 50, 60 kilograms left and a lot of such things.
+- [06:51.130] And I didn't want to show you
+- [06:53.030] what the changes with images of children
+- [06:56.330] because I will just share with you.
+- [06:59.170] And I mean, it's looking tragic.
+- [07:02.490] President Trump: Yeah, that's tough stuff.
+- [07:04.150] President Zelenskyy: Yeah. I wanted very much to give you,
+- [07:06.560] and you see?
+- [07:07.850] President Trump: Yeah.
+- [07:09.120] President Zelenskyy: This is Pastor, by the way.
+- [07:10.510] They stolen pastors because it's not Russian church.
+- [07:13.300] They stolen pastors and moved pastors to the prison.
+- [07:17.300] At the end of last year, we brought three pastors
+- [07:21.690] and we could exchange them. This is pastor, you see?
+- [07:26.960] President Trump: Yeah. It's tough.
+- [07:28.160] President Zelenskyy: Yeah.
+- [07:29.440] So I mean this I wanted to show you and this…
+- [07:31.980] So thank you very much.
+- [07:33.360] President Trump: We want to get that ended, right?
+- [07:34.630] President Zelenskyy: Yeah, yeah, of course.
+- [07:35.840] Of course, we will.
+- [07:37.070] President Trump: And I think we will.
+- [07:38.360] I think we will. And-
+- [07:40.020] President Zelenskyy: We have to, of course.
+- [07:41.350] President Trump: Do you have any questions, please?
+- [07:42.640] [cross talk]
+- [07:43.840] President Trump: Yeah, please.
+- [07:46.280] The Press: Thank you, Mr. President.
+- [07:47.670] How much money is the US going to put into the fund
+- [07:50.820] that is being created today
+- [07:52.140] and how does this provide long-term security for Ukraine?
+- [07:55.680] President Trump: Well, we don't know exactly how much
+- [07:57.390] because we're going to be putting some money in a fund
+- [08:00.520] that we're going to get from the raw earth
+- [08:02.720] that we're going to be taking and sharing in terms of revenue.
+- [08:06.040] So it's going to be a lot of money,
+- [08:07.550] will be made from the sale and from the use of raw earth.
+- [08:11.200] And as you know, our country doesn't have much raw earth.
+- [08:14.050] We have a lot of oil and gas,
+- [08:16.740] but we don't have a lot of the raw earth.
+- [08:19.570] And what we do have is protected by the environmentalists,
+- [08:22.850] but that could be unprotected. But still, it's not very much.
+- [08:27.010] They have among the best in the world in terms of raw earth.
+- [08:31.100] So we're going to be using that, taking it,
+- [08:34.750] using it for all of the things we do in including AI
+- [08:38.140] and including weapons and the military.
+- [08:40.320] And it's really going to very much satisfy our needs.
+- [08:43.750] So it was something that just worked out really well.
+- [08:46.850] We have a lot of oil and we have a lot of gas.
+- [08:48.790] We have a lot, but we don't have raw earth.
+- [08:50.710] So this has just about every component of the raw earth
+- [08:55.710] that we need for computers, for all of the things we do.
+- [08:58.280] The Press: And-
+- [08:59.480] President Trump: This puts us in great shape.
+- [09:00.720] The Press: And on long-term security for Ukraine,
+- [09:02.420] how does this provide us?
+- [09:03.660] President Trump: I think they're going to have great luck.
+- [09:05.330] I think once we make the agreement
+- [09:06.750] that's going to be 95% of it,
+- [09:08.910] they're not going to go back to fighting.
+- [09:11.450] I've spoken with President Putin, and I think…
+- [09:15.060] I feel very strong…
+- [09:16.310] I've known him for a long time,
+- [09:18.090] and I feel very strongly that they're very serious about it,
+- [09:22.270] and we'll make a deal.
+- [09:23.570] And when the deal is made, I don't think…
+- [09:25.490] We talk about security.
+- [09:26.760] Everyone's talking about the other day,
+- [09:28.160] all they talked about was security.
+- [09:29.460] I said, "Let me make the deal first."
+- [09:31.390] I have to make the deal first.
+- [09:32.770] I don't worry about security right now,
+- [09:35.310] we have to have a deal because right now, last week,
+- [09:37.850] 2000 soldiers died on both sides; 2000.
+- [09:41.810] And they're losing a thousand, 2000, 3000 a week.
+- [09:45.920] So as we sit here and we talk,
+- [09:47.390] people are getting shot and dying on the battlefield.
+- [09:50.920] And they're not American soldiers,
+- [09:53.360] but they're Russian soldiers and they're Ukrainian soldiers.
+- [09:56.620] And we want to be able to stop it,
+- [09:58.760] and we want to be able --
+- [10:00.030] also to spend money on other things.
+- [10:01.920] We don't want to… This is a tremendous amount of money.
+- [10:04.550] And what the Biden administration did was terrible.
+- [10:08.230] They were giving money, but he had no security on the money.
+- [10:10.850] Europe, as you know, gave much less money,
+- [10:13.000] but they had security. It was in the form of a loan.
+- [10:15.870] They get their money back. And we didn't.
+- [10:17.290] And now at least we're protected
+- [10:20.210] because the American taxpayer has to be protected too.
+- [10:22.770] But this is an incredible agreement for Ukraine
+- [10:28.830] because we have a big investment in their country now,
+- [10:32.350] and what they have, very few people have.
+- [10:36.410] And we're able to really go forward
+- [10:38.960] with very, very high-tech things
+- [10:40.800] and many other things, including weaponry,
+- [10:43.400] weaponry that we're going to use in many locations,
+- [10:46.470] but that we need for our country.
+- [10:48.320] The Press: Mr. President?
+- [10:49.530] President Trump: This allows us to do this.
+- [10:50.880] The Press: Mr. President?
+- [10:52.120] Will you continue… Will you continue-
+- [10:53.540] President Zelenskyy: Sorry. Sorry.
+- [10:54.780] The Press: … sending military aid?
+- [10:55.980] President Trump: Yes, go ahead, please.
+- [10:57.560] President Zelenskyy: If I can just… Yes.
+- [11:00.350] In the document, there is one of the very important points
+- [11:03.540] if we speak about business and investment.
+- [11:06.460] We never had LNG terminals in Ukraine.
+- [11:10.030] This document will open… I mean, the next document…
+- [11:12.590] But anyway, here we see in the framework,
+- [11:16.130] we see a really good will for this.
+- [11:17.850] LNG terminals for us is very important
+- [11:20.100] and I think for security of European continent.
+- [11:23.870] We have the biggest storage, gas storage.
+- [11:27.070] We have the biggest in Europe, yes.
+- [11:29.940] Yes, and we can use it.
+- [11:31.540] Use it for LNG, use it for LNG and we will do it.
+- [11:35.450] And really we can help Europe because Europe really helped.
+- [11:39.260] President Trump said that they made less support,
+- [11:43.240] but they're our friends
+- [11:45.260] and they are our very supportive partners.
+- [11:48.130] They really gave a lot, Mr. President.
+- [11:51.190] President Trump: Oh-
+- [11:52.420] President Zelenskyy: Really, they did.
+- [11:53.670] President Trump: I gave a lot, but they gave much less.
+- [11:55.330] President Zelenskyy: No.
+- [11:56.560] President Trump: Much less.
+- [11:58.510] President Zelenskyy: No, no.
+- [12:00.220] President Trump: Okay.
+- [12:01.490] President Zelenskyy: Okay. The Press: Mr. President?
+- [12:07.880] President Trump: Yes, please.
+- [12:09.590] The Press: Mr. President Trump,
+- [12:10.900] you have repeatedly called the deal with Ukraine
+- [12:13.620] as a historical one,
+- [12:15.990] and as a President of the United States,
+- [12:18.360] you make historical decision in other issues
+- [12:21.820] which affect America and other world.
+- [12:24.700] So what place in the world history do you want to take,
+- [12:29.770] and do you associate yourself
+- [12:33.190] with any famous historical figures?
+- [12:38.340] President Trump: Yeah, I'd say George Washington,
+- [12:39.950] Abraham Lincoln.
+- [12:41.600] I would say I'm far superior to George Washington
+- [12:45.110] and Abraham Lincoln.
+- [12:46.760] Now, you know I'm only kidding, right?
+- [12:48.670] Because when I say that the fake news is going to go wild.
+- [12:51.360] They're going to say he considers himself
+- [12:53.090] to be better than Washington.
+- [12:54.740] But you never know. You never know.
+- [12:57.320] I don't compare myself to anybody,
+- [12:59.850] I'm here to do a job.
+- [13:01.430] We've had a great 35 days or whatever it might be,
+- [13:04.840] a month, a little more than a month.
+- [13:07.380] We've accomplished tremendous amounts.
+- [13:10.080] Not only this, this would be a very great achievement
+- [13:12.560] if we could get the war stopped
+- [13:14.790] and get them back to normalization.
+- [13:17.010] I think that's going to happen.
+- [13:18.940] We've had very good talks on both sides, as you know.
+- [13:21.230] But I think we've done a very good job just generally.
+- [13:25.020] If you look at all of the things we've done in 30 days,
+- [13:27.960] they're saying there's never been a first month
+- [13:35.270] like we've had,
+- [13:36.470] and this is one of the very important things.
+- [13:38.210] This to me is one of the most important things
+- [13:40.000] because we have tremendous death taking place as we speak,
+- [13:44.650] and I don't want to have that.
+- [13:46.840] Think of the parents, whether they're in Russia or Ukraine,
+- [13:50.520] think of the parents of all these people
+- [13:52.130] being killed needlessly.
+- [13:54.200] President Zelenskyy: They came to our territory.
+- [13:55.750] President Trump: Should have never started.
+- [13:57.850] If I were president, this would've never started.
+- [14:05.400] The Press: Will you continue sending military aid to Ukraine
+- [14:09.940] after the US signs this agreement with Ukraine?
+- [14:13.100] President Trump: Yeah, we're going to be continuing-
+- [14:14.470] The Press: And a question to President Zelenskyy.
+- [14:16.000] Do you feel like the US is on your side,
+- [14:19.080] that President Trump is on your side at this moment?
+- [14:26.050] President Trump: Go ahead.
+- [14:27.290] President Zelenskyy: What do you think?
+- [14:28.490] President Trump: He wants to know do you think that…
+- [14:30.670] It's sort of a stupid question
+- [14:32.750] because I guess we wouldn't be here if I wasn't.
+- [14:37.880] President Zelenskyy: I think that United States on our side
+- [14:40.610] from the very beginning of occupation,
+- [14:43.340] and I think that President Trump on our side,
+- [14:46.970] and of course [inaudible 00:14:54]
+- [14:49.310] I'm sure that United States President will not stop support.
+- [14:53.690] This is crucial for us. It's important for us.
+- [14:57.080] And president speaks about the people
+- [14:59.930] and the soldiers which are dying,
+- [15:01.560] but they came to our territory.
+- [15:02.960] They came to our land, they began this war
+- [15:05.540] and they have to stop.
+- [15:07.190] And I think this is the question with…
+- [15:11.180] Really the most important question.
+- [15:13.290] Can President Trump, I hope yes,
+- [15:16.070] with some other allies to stop Putin,
+- [15:21.870] withdraw these troops from our land.
+- [15:24.350] And I think that you asked about the history
+- [15:26.630] about [inaudible]
+- [15:27.870] I think that if president or when he will stop Putin,
+- [15:32.000] if President Trump will bring peace to our country,
+- [15:35.180] I think he will be on this wall, I think.
+- [15:38.730] President Trump: We've had very, very good talks.
+- [15:42.620] The Press: Mr.President. President Zelenskyy just said
+- [15:48.210] that there'll be no compromises with Vladimir Putin.
+- [15:53.570] I just wanted to ask both of you, firstly,
+- [15:56.350] are there compromises that you think that President Zelenskyy
+- [15:58.890] is going to have to make and President Zelenskyy
+- [16:00.940] is there anything that you might think
+- [16:02.770] you may be able to offer or bring to the table,
+- [16:04.520] for example, elections.? Thank you.
+- [16:06.240] President Trump: I think you're going to have
+- [16:07.580] to always make compromises.
+- [16:09.350] You can't do any deals without compromises.
+- [16:11.700] So certainly he's going to have to make some compromises,
+- [16:14.020] but hopefully they won't be as big as some people
+- [16:17.420] think you're going to have to make.
+- [16:18.780] That's all. That's all we can do.
+- [16:20.100] I'm here as an arbitrator,
+- [16:22.260] as a mediator to a certain extent
+- [16:23.860] between two parties that have been very hostile,
+- [16:27.660] to put it mildly, they've been very hostile.
+- [16:29.470] This has been a vicious war. It's been a vicious war.
+- [16:33.170] It's a very level battlefield and those bullets go out
+- [16:36.400] and as I've said many times,
+- [16:38.180] we're talking about it with Pete,
+- [16:40.420] many times the only thing
+- [16:41.730] stopping those bullets is a human body.
+- [16:44.650] And in the case we're talking about,
+- [16:46.160] generally young human bodies are stopping a lot of bullets.
+- [16:49.730] It's dead level. That's why it's great farmland,
+- [16:52.480] it's great land, it's great farmland,
+- [16:54.350] but there's very little protection against the bullets
+- [16:58.150] and other things that are being shot.
+- [17:00.440] So all I can do is see if I can get everybody at the table
+- [17:05.210] and get an agreement
+- [17:06.450] and I think we're going to end up with an agreement.
+- [17:08.050] Otherwise, I wouldn't probably be even here today.
+- [17:10.580] The Press: Mr. President, I've got two questions for you.
+- [17:16.880] You think ultimately your legacy will be the peacemaker
+- [17:20.380] and not the president that led this country into another war
+- [17:24.820] and ended foreign wars? And I've got a question-
+- [17:27.060] President Trump: I hope it will.
+- [17:28.280] I mean, I hope I'm going to be remembered as a peacemaker.
+- [17:34.390] This would be a great thing if we could do this.
+- [17:36.250] I'm doing this to save lives more than anything else.
+- [17:39.310] Second is to save a lot of money,
+- [17:40.740] but I considered that to be far less important.
+- [17:44.300] Thank you, Brian for that question.
+- [17:45.780] It was a nice question.
+- [17:47.750] I hope I'll be known and recognized as a peacemaker.
+- [17:51.020] This would be a great thing to solve.
+- [17:52.420] This is a very dangerous situation.
+- [17:55.540] This could lead to a third world war.
+- [17:58.590] This was headed in the wrong direction.
+- [18:01.350] If this election were lost, if we didn't win this election,
+- [18:04.970] and by the way, we won it by a lot,
+- [18:06.760] that was a mandate. We won every swing state.
+- [18:09.080] We won the popular vote by millions and millions of votes.
+- [18:12.340] We won everything.
+- [18:14.170] The districts, you look at the areas of red,
+- [18:17.170] take a look at a map.
+- [18:18.500] This was a big mandate and this was one of the things,
+- [18:22.250] I said, "We're going to get this thing settled."
+- [18:25.300] If we didn't win, I think this could've very well ended up
+- [18:28.770] in a third world war
+- [18:30.060] and that would not have been a good situation.
+- [18:33.120] What was your second question?
+- [18:34.460] The Press: My second question for President Zelenskyy.
+- [18:37.650] Why don't you wear a suit? Why don't you wear a suit?
+- [18:41.330] You're the highest level in this country's office
+- [18:44.180] and you refuse to wear a suit. Do you own a suit?
+- [18:48.040] President Zelenskyy: You have problems?
+- [18:49.650] The Press: Yeah, a lot of Americans have problems
+- [18:51.010] with you not respecting the dignity of office.
+- [18:52.390] President Zelenskyy: Really?
+- [18:53.610] Perhaps I will wear a costume after this war will finish.
+- [18:58.270] Yes, maybe something like yours.
+- [19:00.650] The Press: Maybe something like this?
+- [19:01.940] Yes, sir. That be great.
+- [19:03.170] President Zelenskyy: Maybe something better.
+- [19:04.940] I don't know. We will see.
+- [19:06.940] Maybe something cheaper than, yeah.
+- [19:08.760] The Press: Thank you.
+- [19:09.990] President Zelenskyy: Thank you, thank you.
+- [19:12.960] The Press: Thank you, President Trump.
+- [19:14.250] You said yesterday that you have-
+- [19:15.500] The Press: Mr. President are you going to send more arms
+- [19:17.530] to Ukraine in case there's no peace?
+- [19:20.570] President Trump: Yeah, we're going to have arms to Ukraine.
+- [19:22.610] Yeah, sure. Hopefully I won't have to send very much
+- [19:25.170] because hopefully we're going to have it finished.
+- [19:27.450] We're looking forward to finishing this quickly.
+- [19:30.940] We're not looking forward to sending a lot of arms.
+- [19:33.230] We're looking forward to getting the war finished
+- [19:34.930] so we can do other things.
+- [19:38.120] But we very much appreciate the agreement
+- [19:40.670] because we needed what they had
+- [19:42.360] and our country is now treated fairly.
+- [19:46.110] Biden didn't do that.
+- [19:47.360] Biden, he didn't know what the hell he was doing.
+- [19:49.410] This should have never happened. This should have never started.
+- [19:52.130] But sure the answer is yes,
+- [19:55.090] but hopefully we won't have to send much
+- [19:57.350] because I'm looking forward to getting it done quickly.
+- [20:02.270] Very quickly.
+- [20:03.530] The Press: Does that mean you'll provide security guarantees,
+- [20:05.360] Mr. President?
+- [20:06.860] President Trump: I don't want to talk about security yet
+- [20:08.470] because I want to get the deal done.
+- [20:10.330] You fall into the same trap like everybody else a million times.
+- [20:13.400] You said over and over. I want to get the deal done.
+- [20:16.160] Security is so easy. That's about 2% of the problem.
+- [20:20.360] I'm not worried about security.
+- [20:21.680] I'm worried about getting the deal done.
+- [20:23.780] The security is the easy part.
+- [20:25.390] Security is very nice. Everybody stops shooting.
+- [20:28.500] And now will Europe put people there?
+- [20:30.070] I know France is going to, I know the UK is going to,
+- [20:33.960] I know other countries are going to
+- [20:35.500] and they happen to be right next door.
+- [20:37.280] We haven't committed, but we could conceivably.
+- [20:39.650] We have security in a different form.
+- [20:41.770] We'll have workers there digging,
+- [20:44.290] digging, digging, taking the raw earth
+- [20:47.200] so that we can create a lot of great product in this country.
+- [20:51.670] So in that sense you have something
+- [20:53.250] but we haven't determined that yet.
+- [20:55.250] I will say in speaking to France,
+- [20:58.980] and they were here as you know last week
+- [21:00.820] and just the other day,
+- [21:03.800] they have committed to a lot of security.
+- [21:07.100] I don't think you're going to need much security.
+- [21:08.650] I think once this deal gets done, it's over.
+- [21:10.840] Russia is not going to want to go back
+- [21:12.190] and nobody's going to want to go back.
+- [21:13.530] The Press: President Zelenskyy is shaking his head
+- [21:14.760] [inaudible].
+- [21:15.610] President Trump: When this deal ends.
+- [21:16.810] I really believe this deal is going to be over.
+- [21:18.120] President Zelenskyy: [inaudible] Yeah, thank you.
+- [21:19.360] Thank you so much [inaudible].
+- [21:20.650] President Trump: Question? Yeah, please, go ahead.
+- [21:21.850] Go ahead.
+- [21:23.120] The Press: Mr. President, thank you.
+- [21:24.950] You hosted McCron and Keir Starmer
+- [21:26.330] at the White House this past week,
+- [21:27.840] both of whom praised your courage and conviction
+- [21:30.250] to lead the pathway towards peace.
+- [21:31.490] President Trump: Yes.
+- [21:32.690] The Press: Part of that involved though re-engaging Russia
+- [21:35.200] in diplomatic relations,
+- [21:36.640] something that previous leaders lacked the conviction to do.
+- [21:39.150] So what gave you the moral courage and conviction
+- [21:41.510] to step forward and lead that?
+- [21:42.890] President Trump: Well, I love this guy.
+- [21:44.240] Who are you with?
+- [21:45.500] The Press: One American News, sir.
+- [21:46.730] President Trump: Well, that's why I like him.
+- [21:48.360] One American News does a great job.
+- [21:50.640] I like the question. I think it's a very good question.
+- [21:53.910] It's a pathway to peace.
+- [21:56.190] It's a pathway to getting something solved.
+- [21:59.470] And I feel that as the head of this country,
+- [22:01.550] I have an obligation to do that. Plus, we're very much involved.
+- [22:05.660] We got involved. It's too bad we got involved
+- [22:09.440] because there should have been no involvement
+- [22:10.940] because there should have been no war.
+- [22:12.710] And there shouldn't have been October 7th.
+- [22:15.050] That would've never happened. As you know, Iran was broke,
+- [22:17.960] they had no money to give to Hezbollah,
+- [22:19.870] they had no money to give to Hamas.
+- [22:22.160] They were stone-cold broke and then under Biden
+- [22:25.260] they became rich as hell.
+- [22:27.650] They went from no money to $300 billion
+- [22:32.290] in a period of four years
+- [22:34.470] and they gave a lot of that money away.
+- [22:36.100] And you see what happened.
+- [22:37.340] And that's a real mess also that we hope to be able to solve.
+- [22:41.620] But no, I appreciate your question very much.
+- [22:44.450] It's just I feel I have an obligation to try
+- [22:46.770] and do something to stop the death.
+- [22:51.050] President Zelenskyy: If I can answer.
+- [22:52.390] Yes, if I can answer. Sorry.
+- [22:53.620] President Trump: Please, go ahead.
+- [22:54.830] President Zelenskyy: Please, please.
+- [22:56.060] President Trump: And I do like your clothing by the way.
+- [22:57.640] President Zelenskyy: Really?
+- [22:59.440] President Trump: I think he's a great guy by the way.
+- [23:01.230] But I don't know if you two like each other, but you know what?
+- [23:04.550] I think he's dressed beautifully.
+- [23:06.470] I think he's dressed beautifully.
+- [23:07.810] President Zelenskyy: No, no, I like this guy.
+- [23:09.010] I don't know him.
+- [23:10.230] So I have more serious things than answer on side question.
+- [23:13.460] I will answer on more serious questions if I can.
+- [23:16.440] Yeah. So please about security guarantees
+- [23:20.100] and about the ceasefire.
+- [23:21.910] We can't just speak about ceasefire and speak and speak.
+- [23:25.130] It will not work.
+- [23:26.690] Just ceasefire will never work because I'm like the president.
+- [23:30.990] I have this experience and not only me, Ukraine,
+- [23:35.300] before my presidency from the 2014 Putin broken 25 times.
+- [23:41.120] 25 times. He broken his own signature 25 times,
+- [23:46.810] he broken ceasefire, it was [inaudible]
+- [23:48.390] President Trump: But he never broke to me.
+- [23:49.650] He never broke to me.
+- [23:50.890] President Zelenskyy: No, no. You were the president.
+- [23:52.380] President Trump: He never broke to me.
+- [23:54.390] President Zelenskyy: In 2016 you been the president,
+- [23:56.470] Mr. President. You've been the president.
+- [23:58.200] But he had, of course, not with you,
+- [24:01.240] but he had during those period,
+- [24:03.500] he had conversations with our side and we had Normandy format,
+- [24:08.060] the France, Germany, Ukraine, and Russia.
+- [24:10.360] And he broken 25 times.
+- [24:12.410] That's why we will never accept just ceasefire.
+- [24:16.390] It will not work without security guarantees.
+- [24:19.000] Security guarantees, maybe president is right
+- [24:21.890] about this document and other, but this document is not enough.
+- [24:25.680] Strong army is enough because his soldiers afraid.
+- [24:29.060] Putin's soldiers afraid of our soldiers when we strong enough.
+- [24:32.490] If we are not strong enough, we are empty,
+- [24:35.280] if our storage is empty, we can't defend our land.
+- [24:39.630] Today, all the world knows that we have meeting, yes?
+- [24:44.670] Why he's using ballistic?
+- [24:46.720] Putin today using ballistic on our hospital schools
+- [24:49.790] and et cetera. Ballistic.
+- [24:51.940] So he knows that we are here
+- [24:53.480] and that President Trump really have good will to stop this war.
+- [24:59.600] And you hear now the president, so why he's using?
+- [25:02.810] So he doesn't want to stop. He doesn't want.
+- [25:05.470] But I hope that we will do it, really we'll do it.
+- [25:08.160] Security. When we speak about security guarantees,
+- [25:10.820] when the Europeans are ready for contingents,
+- [25:14.190] they need USA backstop.
+- [25:18.000] If they will not be United States,
+- [25:19.830] we will not never have any strong contingents
+- [25:22.700] from the Europeans
+- [25:23.980] because they don't want to divide alliance connection
+- [25:27.000] between the United States, the main and strongest ally,
+- [25:31.510] and Europeans.
+- [25:32.830] This is crucial. This is supportive.
+- [25:34.840] That what we want to speak about very much.
+- [25:37.750] This is very important and air defense.
+- [25:41.430] So air defense, really we have big deficit with all the systems
+- [25:45.550] and we need to provide this. We need it very much.
+- [25:49.650] Otherwise, Putin will never stop and will go further and further.
+- [25:53.710] It doesn't work. He hates us.
+- [25:56.390] It's not about me, he hate Ukrainians.
+- [25:58.720] He thinks that we are not a nation.
+- [26:01.340] He thinks and he shared his thoughts,
+- [26:03.210] I think maybe with your team also?
+- [26:04.480] I don't know.
+- [26:05.690] But with all the Europeans, in media, official,
+- [26:08.410] and not, he always said that there is no such country,
+- [26:12.780] such nation, such language and such life, like Ukrainian.
+- [26:17.100] No, he really doesn't respect all the Ukrainians,
+- [26:21.300] and he wants destroy us.
+- [26:25.570] And you are right Mr. President, that's [inaudible 00:26:33].
+- [26:29.130] This document, maybe other documents,
+- [26:31.820] it's very good start, very good,
+- [26:33.760] but it will not enough to stop this person.
+- [26:37.560] The Press: Should Russia pay to rebuild Ukraine?
+- [26:39.020] The Press: Mr. President under these…
+- [26:41.680] The Press: Should Russia pay to rebuild Ukraine?
+- [26:43.780] President Zelenskyy: They have to pay.
+- [26:45.100] This is the rule. This is rule of the war.
+- [26:47.760] This is the rule of the war.
+- [26:49.360] During all the centuries, all the history,
+- [26:51.490] this is the rule of the war. Who began, those pay.
+- [26:55.360] The Press: Do you agree President Trump?
+- [26:56.660] President Zelenskyy: This is the rule. Putin began this war.
+- [26:58.840] He has to pay all money for invasion. He has to pay.
+- [27:02.550] Of course some Russian assets, what we have in Europe,
+- [27:07.410] about 300 billions.
+- [27:08.800] We can use them. We can use for invasion
+- [27:11.730] and buy military support from the United States also.
+- [27:14.820] We can do it, but it's not enough. It's not.
+- [27:18.050] The Press: Do you envision the trilateral [inaudible]
+- [27:22.440] wouldn't end President Zelensky?
+- [27:24.010] President Trump: Wait one second.
+- [27:25.230] The Press: I ask this question that you didn't flag
+- [27:27.580] because I wanted to know if you want to position yourself
+- [27:31.260] in the middle between Russia and Ukraine…
+- [27:33.320] President Trump: Yes. The Press: Or only Ukraine's…
+- [27:35.160] President Trump: No, I'm in the middle.
+- [27:36.520] I want to solve this thing. I'm for both.
+- [27:39.360] I want to get it solved
+- [27:41.110] and it's wonderful to speak badly about somebody else,
+- [27:46.460] but I want to get it solved. If we can solve it, great.
+- [27:49.990] If we can't solve it, they're going to have to fight it out
+- [27:52.260] and who knows what's going to happen,
+- [27:54.580] but I want to see it get solved.
+- [27:56.280] The Press: May I follow up?
+- [27:57.600] One more question about US troops in Europe.
+- [28:00.700] After Russian invasion of Ukraine,
+- [28:04.300] your predecessor sent additional troops to Eastern Europe,
+- [28:07.480] including Poland, my country.
+- [28:09.730] Are you committed to keeping these troops
+- [28:13.560] on the eastern flank of NATO in the future?
+- [28:18.890] President Trump: I'm very committed to Poland.
+- [28:21.070] I think Poland has really stepped up
+- [28:23.090] and done a great job for NATO.
+- [28:24.800] As you know, they paid more than they had to.
+- [28:27.480] They are one of the finest groups of people
+- [28:30.420] I've ever known. I'm very committed to Poland.
+- [28:32.920] The Press: What about Baltics?
+- [28:34.150] President Trump: Poland's in a tough neighborhood you know?
+- [28:35.840] The Press: What about Baltics, the Baltics?
+- [28:38.330] President Trump: The Baltics, they got a lot of,
+- [28:42.130] it's a tough neighborhood too, but we're committed.
+- [28:45.060] We're going to be very committed and we're committed to NATO,
+- [28:48.370] but NATO has to step up
+- [28:49.670] and the Europeans have to step up more than they have
+- [28:52.430] and I want to see them equalize
+- [28:53.830] because they are in for far less than we're in
+- [28:56.990] and they should be at least equal.
+- [28:59.170] You understand that?
+- [29:00.410] Why is the United States, we have an ocean in between.
+- [29:03.400] Why is the United States in for so much more money
+- [29:05.760] and other things as Europe?
+- [29:08.660] With that being said, and as you said,
+- [29:10.600] they've also been obviously very helpful,
+- [29:13.160] but we have put in far more than they have
+- [29:16.080] and I think they should equalize.
+- [29:18.220] The Press: Mr. President, [inaudible].
+- [29:19.560] President Trump: Please go ahead.
+- [29:20.780] The Press: Going to ask you about the agreement again today.
+- [29:22.350] What changed between the first time that Secretary Bessent
+- [29:25.230] gave President Zelensky
+- [29:26.790] the agreement and today for the signing?
+- [29:28.640] President Trump: We made a deal.
+- [29:30.890] And I'm just, I'm a business person.
+- [29:33.710] We made a deal. That's what changed.
+- [29:36.460] I didn't think we were going to make a deal
+- [29:38.900] and we ended up making the deal. So that changed.
+- [29:41.660] The Press: Mr. President,
+- [29:43.050] what and how do you envision a trilateral summit
+- [29:44.810] with President Zelensky and Putin under these circumstances?
+- [29:46.670] President Trump: I don't know.
+- [29:47.890] Well, they don't like each other.
+- [29:49.190] I can tell you that they do not like each other.
+- [29:52.360] This is not a love match and it's unfortunate.
+- [29:55.640] That's why you're in this situation.
+- [29:58.480] The United States should not have allowed this to happen.
+- [30:01.840] Okay?
+- [30:03.090] The United States run by a man that didn't know much.
+- [30:08.520] I'm going to be very nice. Run by an incompetent person.
+- [30:13.160] Very incompetent person.
+- [30:14.870] Should never have allowed this to happen.
+- [30:17.330] I've stopped wars, I've stopped many wars.
+- [30:19.880] My people will tell you I stopped wars
+- [30:21.360] that nobody ever heard about.
+- [30:22.640] I stopped wars before they ever started.
+- [30:25.390] You can look at some of, some of…
+- [30:28.100] I could give you a lot of nations
+- [30:29.520] that would tell you right now they were probably going to war.
+- [30:31.760] I could tell you right now there's a nation thinking about
+- [30:34.860] going to war on something that nobody in this room
+- [30:37.930] has ever even heard about.
+- [30:39.440] Two smaller nations, but big still. Still big.
+- [30:42.690] And I think I've stopped it,
+- [30:45.330] but this should have never happened.
+- [30:46.810] The Press: Mr. President…
+- [30:48.030] President Zelenskyy: [inaudible].
+- [30:49.230] Sorry, just a second. About any negotiations…
+- [30:54.050] First of all, I want really to tell you,
+- [30:56.610] and I think that everybody understand that Ukraine,
+- [31:00.460] more than Ukrainians, nobody wants to stop this war,
+- [31:03.670] but the future, any negotiations,
+- [31:06.470] it's understandable that two sides of the war,
+- [31:11.720] not Russia and the United States because this is not the war
+- [31:14.860] between Russia and the United States.
+- [31:16.620] This is war of Russia against Ukraine and Ukrainian people.
+- [31:20.290] So these two sides will be,
+- [31:23.740] any way will be at the negotiation
+- [31:26.130] and negotiation table.
+- [31:27.480] Then of course, United States like the strongest partner
+- [31:31.660] of the Ukraine and of course Europe.
+- [31:34.850] I think Europe is very important.
+- [31:36.510] I want to speak about it with the President.
+- [31:39.160] Yes. Europe is very important for us
+- [31:41.190] because we really defend Europe for today,
+- [31:43.600] all Europeans are really recognized
+- [31:46.940] that we are defending the line
+- [31:49.210] and they have real life and our people are dying.
+- [31:51.890] That's why they helped us. And also it's about the need.
+- [31:56.250] Yes, between…
+- [31:57.550] Like the President said, you have big nice ocean.
+- [32:01.670] Yes, between us, but if we will not stay,
+- [32:05.820] Russia will go further to Baltics
+- [32:08.010] and to Poland by the way. But first to the Baltics.
+- [32:10.960] It's understandable for them
+- [32:12.800] because they've been in the USSR,
+- [32:17.970] one of the republics of the USSR,
+- [32:19.860] and Putin wants to bring them back to his empire.
+- [32:23.020] It's a fact.
+- [32:24.220] And when he will go there, if will not stay,
+- [32:26.810] you'll fight your American soldiers.
+- [32:30.480] It doesn't matter do you have ocean or not.
+- [32:33.610] Your soldiers will fight.
+- [32:34.890] The Press: Mr. President,
+- [32:36.130] would you be willing to visit Ukraine?
+- [32:37.440] Maybe Kiev or Odessa, which is known to be a 30-year
+- [32:39.710] [inaudible].
+- [32:40.960] President Zelenskyy: It was my question.
+- [32:42.620] President Trump: I'm sorry.
+- [32:44.150] I don't want to talk about Odessa now.
+- [32:46.280] Let's not talk about Odessa.
+- [32:47.710] I want to talk about making a deal, getting peace.
+- [32:50.910] We don't have to talk about Odessa,
+- [32:53.100] but a lot of cities have been destroyed.
+- [32:55.200] A lot of cities that are not recognizable.
+- [32:58.110] There's not a building standing.
+- [32:59.680] President Zelenskyy: Oh, no.
+- [33:00.920] You have to come Mr. President. You have to come and to look.
+- [33:04.000] No, no, no. We have very good cities.
+- [33:06.520] Yes, a lot of things have been destroyed,
+- [33:08.490] but mostly cities alive and people work
+- [33:12.940] and children go to school. Sometimes it's very difficult,
+- [33:15.500] sometimes closer to the front line.
+- [33:17.930] Children have to go to underground schools or online.
+- [33:21.370] But we live, Ukraine is fighting and Ukraine lives.
+- [33:25.710] This is very important and maybe it's Putin
+- [33:28.240] who sharing this information that he destroyed us.
+- [33:32.160] He lost 700,000 people, 700,000 soldiers.
+- [33:36.480] He lost everything. Yes.
+- [33:38.700] The Press: Mr. President.
+- [33:39.970] The Press: Mr. President, one more.
+- [33:42.930] President Trump: Please go ahead.
+- [33:44.180] The Press: When did you last speak with President Putin
+- [33:46.060] and what did he say that…?
+- [33:47.380] President Trump: A couple of days ago.
+- [33:48.580] The Press: And what did he tell you
+- [33:49.810] that gave you the assurance that he wanted peace?
+- [33:51.930] President Trump: Well, that's what I do.
+- [33:53.200] My whole life is deals, I know pretty good.
+- [33:57.140] And I really, I've known him for a long time.
+- [34:00.340] I've dealt with him for a long time.
+- [34:02.440] He had to suffer through the Russia hoax.
+- [34:05.120] You know, Russia, Russia, Russia was a hoax.
+- [34:07.490] It was all Biden. It was nothing to do with him.
+- [34:10.090] So he had to suffer through that and he was able to do that.
+- [34:14.140] I think that he wants to make a deal
+- [34:16.240] and he like to see it end.
+- [34:18.770] That's all I do, that's what I do.
+- [34:20.110] My whole life, that's what I do is make deals.
+- [34:22.990] I'm in the middle of a mess because this is a real mess.
+- [34:26.890] It's a very dangerous one. If this doesn't get solved now,
+- [34:31.240] it's not going to get solved for a long time.
+- [34:33.110] So I hope we're going to get it solved.
+- [34:35.210] In the back please.
+- [34:36.510] The Press: Thank you, Mr. President.
+- [34:37.760] Prime Minister [inaudible 00:34:44]
+- [34:39.130] repeatedly that his government believes in free speech
+- [34:41.520] and was not engaged in the censorship,
+- [34:43.860] but his country's government arrests
+- [34:45.280] people for memes and thought crimes.
+- [34:47.420] And even more worrisome is pressuring
+- [34:49.880] American companies to censor Americans on its behalf.
+- [34:54.480] How can he be a reliable, trustworthy partner
+- [34:56.800] when he says things that are demonstrably false
+- [34:58.980] on such an important topic?
+- [35:00.190] President Trump: Well, we actually spoke to him
+- [35:01.400] about that yesterday
+- [35:02.720] and we thought they took it very much too far.
+- [35:05.780] JD was very strong on it. So was I, so was Marco,
+- [35:11.290] and we've been speaking to him about it.
+- [35:12.810] Marco, would you like to say something about that?
+- [35:14.310] Mr. Rubio: Yeah.
+- [35:15.580] We have concerns obviously with the conduct of,
+- [35:17.820] particularly as it impacts Americans,
+- [35:19.910] and there's real concern that American speech,
+- [35:21.810] which is online, could fall into the hands of British
+- [35:24.760] or any country's jurisdiction.
+- [35:26.440] And so this is a point the Vice President made of Munich,
+- [35:29.290] and I think it's a very compelling one
+- [35:30.640] that what unites us with Europe
+- [35:32.390] as much as anything else is these shared values
+- [35:34.340] and one of them being free speech.
+- [35:36.430] And so if Americans are threatened by it.
+- [35:38.630] We're going to need to take action in that regard.
+- [35:41.350] The Press: Mr. President.
+- [35:43.590] President Trump: Its actually a very important question.
+- [35:45.550] Vice President Vance: We spoke about this in detail
+- [35:46.860] with the Prime Minister,
+- [35:48.090] the Foreign Secretary and others at lunch yesterday,
+- [35:50.660] and I know that Secretary of Commerce Lutnick
+- [35:53.580] followed up in private meetings last night.
+- [35:56.210] This is really important.
+- [35:57.600] We believe Americans have the right to speak their mind.
+- [36:00.290] Even if we in this room disagree with them,
+- [36:02.080] they have the right to speak their mind
+- [36:03.710] and the public square,
+- [36:04.910] which is often online these days,
+- [36:06.840] and we're going to defend that right
+- [36:08.280] as it pertains to American companies
+- [36:09.880] and American citizens vigorously if we have to.
+- [36:12.820] I do think that under the President's leadership,
+- [36:14.700] we're going to find common ground with our friends
+- [36:17.140] in the UK on this question, but it remains to be seen.
+- [36:20.310] The principle that will guide us
+- [36:21.730] is we believe in free speech in this country
+- [36:24.440] and we'll fight for it for American citizens.
+- [36:26.710] The Press: Mr. President on the deal,
+- [36:28.030] is there any other oil and gas component to the deal?
+- [36:29.970] Is it all…?
+- [36:31.190] President Trump: A little bit. We'll see.
+- [36:32.500] The Press: On LNG?
+- [36:33.710] President Trump: But we're not really looking for that so much.
+- [36:35.330] We got a lot. We have more than anybody in the world by far,
+- [36:38.610] so no, we're not talking about it too much,
+- [36:40.200] but a little bit.
+- [36:41.440] I think it affects also, but for the most part, no.
+- [36:45.440] The Press: And sir, is there any agreement from Ukraine
+- [36:48.900] to purchase US LNG
+- [36:51.720] as part of the deal or is that on the table at all?
+- [36:54.070] President Trump: No, we don't need that.
+- [36:55.960] The Press: Mr. President, I just wanted to ask you about…
+- [36:57.820] You just mentioned that you guys spoken
+- [36:59.340] to Vladimir Putin a couple of days ago.
+- [37:00.910] Just to be clear, that's a new call, not the one that you…
+- [37:04.020] President Trump: I've spoken to him on numerous occasions.
+- [37:06.970] The Press: Okay, and how was the latest call?
+- [37:08.970] What did you discuss? How did it go?
+- [37:12.460] President Trump: Are you serious with that question?
+- [37:13.880] The Press: I'd love to know.
+- [37:15.140] President Trump: It went well.
+- [37:16.600] I think we're going to have a deal.
+- [37:18.420] The Press: On the minerals deal, Mr. President.
+- [37:19.790] Some of those minerals are in the east of Ukraine,
+- [37:21.760] not far from the front lines
+- [37:23.160] and in areas that Russia has occupied.
+- [37:25.820] Will you direct President Putin to withdraw his forces
+- [37:28.520] from those areas if there's US interest?
+- [37:30.410] President Trump: Well, we'll take a look at the time.
+- [37:32.230] We have a lot of area.
+- [37:34.330] It's a very big area we're talking about,
+- [37:36.170] so we'll take a look. I'll study that and I'll see.
+- [37:38.280] The Press: And who would protect those minerals
+- [37:39.750] if they are US interests, would that be Ukrainian forces?
+- [37:41.300] European forces?
+- [37:42.520] President Trump: They will be protected.
+- [37:43.740] The agreement will protect them.
+- [37:44.980] The Press: US forces? President Trump: The agreement.
+- [37:46.180] Yeah, we're signing an agreement.
+- [37:47.710] The Press: Right, but what if Russia tries to invade
+- [37:49.410] or there's Russian [inaudible]?
+- [37:50.690] President Trump: I just told you
+- [37:51.940] I don't think that's going to happen.
+- [37:53.340] And if that were going to happen, I wouldn't make a deal.
+- [37:55.290] If I thought that was going to happen, I wouldn't make a deal.
+- [37:57.560] The Press: Some people may wonder why…
+- [37:58.810] President Trump: You know, they ought to focus on CNN,
+- [38:00.520] on survival, not asking me these ridiculous questions.
+- [38:04.370] The Press: Why do you have the confidence that…
+- [38:05.690] President Trump: Focus on surviving cause
+- [38:07.220] CNN's got such low ratings.
+- [38:08.820] I don't think they're going to survive.
+- [38:11.440] Let's go. Please go ahead.
+- [38:13.750] The Press: I already mentioned Poland,
+- [38:16.830] that Poland was under Russian control
+- [38:20.140] for decades after the Second World War.
+- [38:22.860] When I was a kid, I looked at the United States
+- [38:25.610] not only as a most powerful country,
+- [38:29.550] richest country in the world,
+- [38:31.040] the country that has great music,
+- [38:33.020] great movies, great muscle cars, but also as a force for good.
+- [38:39.820] And now I'm talking with my friends in Poland
+- [38:41.930] and they are worried that you align yourself
+- [38:44.830] too much with Putin. What's your message for them?
+- [38:50.400] President Trump: Well, if I didn't align myself
+- [38:52.240] with both of them, you'd never have a deal.
+- [38:55.590] President Trump: You want me to say
+- [38:57.670] really terrible things about Putin,
+- [38:59.370] and then say, "Hi, Vladimir, how are we doing on the deal?"
+- [39:02.200] That doesn't work that way. I'm not aligned with Putin.
+- [39:05.240] I'm not aligned with anybody.
+- [39:06.530] I'm aligned with the United States of America,
+- [39:08.840] and for the good of the world. I'm aligned with the world,
+- [39:12.980] and I want to get this thing over with.
+- [39:14.360] You see the hatred he's got for Putin.
+- [39:16.170] It's very tough for me to make a deal with that kind of hatred.
+- [39:18.780] He's got tremendous hatred.
+- [39:20.470] And I understand that, but I can tell you,
+- [39:22.690] the other side isn't exactly in love with him either.
+- [39:28.070] So it's not a question of alignment.
+- [39:30.700] I'm aligned with the world, I'm aligned with Europe.
+- [39:36.530] I want to see if we can get this thing done.
+- [39:39.290] You want me to be tough?
+- [39:40.570] I can be tougher than any human being you've ever seen,
+- [39:43.110] I'd be so tough.
+- [39:45.120] But you're never going to get a deal that way.
+- [39:46.750] So that's the way it goes. All right, one more question.
+- [39:50.460] Vice President Vance: I will respond to this.
+- [39:51.670] So look. For four years in the United States of America,
+- [39:54.640] we had a president who stood up at press conferences
+- [39:57.050] and talked tough about Vladimir Putin,
+- [39:59.410] and then Putin invaded Ukraine and destroyed
+- [40:02.230] a significant chunk of the country.
+- [40:04.080] The path to peace and the path to prosperity
+- [40:07.440] is maybe engaging in diplomacy.
+- [40:10.290] We tried the pathway of Joe Biden,
+- [40:12.820] of thumping our chest
+- [40:14.160] and pretending that the President
+- [40:16.060] of the United States's words mattered
+- [40:18.450] more than the President of the United States's actions.
+- [40:21.130] What makes America a good country
+- [40:23.030] is America engaging in diplomacy.
+- [40:25.280] That's what President Trump is doing.
+- [40:26.850] President Zelenskyy: Can I ask you?
+- [40:28.080] Vice President Vance: Sure.
+- [40:29.300] President Zelenskyy: Yeah? Vice President Vance: Yeah.
+- [40:30.590] President Zelenskyy: Okay. So he occupied it, our parts.
+- [40:35.600] Big parts of Ukraine, parts of East and Crimea.
+- [40:40.670] He occupied it on 2014.
+- [40:45.310] During a lot of years, I'm not speaking about just Biden,
+- [40:48.660] but those time was Obama, then President Obama,
+- [40:52.790] then President Trump, then President Biden,
+- [40:55.050] now President Trump, and God bless,
+- [40:57.690] now President Trump will stop him.
+- [40:59.680] But during 2014, nobody stopped him.
+- [41:02.420] He just occupied and took.
+- [41:04.290] He killed people, you know? What the contact line-
+- [41:06.590] President Trump: 2015.
+- [41:07.790] President Zelenskyy: 2014.
+- [41:09.060] Vice President Vance: 2014 to 2015.
+- [41:10.880] President Trump: 2014. I was not here.
+- [41:12.570] Vice President Vance: That's exactly right.
+- [41:13.830] President Zelenskyy: Yes, but during 2014 till 2022
+- [41:19.250] was the situation the same.
+- [41:21.100] People are been dying on the contact line.
+- [41:24.150] Nobody stopped him.
+- [41:25.640] You know that we had conversations with him.
+- [41:28.260] A lot of conversation.
+- [41:29.530] My bilateral conversation, and we signed with him. Me.
+- [41:33.640] Like a new president in 2019, I signed with him the deal.
+- [41:39.150] I signed with him, Macron, and Merkel.
+- [41:42.000] We signed ceasefire. Ceasefire.
+- [41:44.860] All of them told me that he will never go.
+- [41:48.550] We signed him gas contract. Gas contract.
+- [41:52.710] Yes, but after that, he broken this ceasefire.
+- [41:56.140] He killed our people and he didn't exchange prisoners.
+- [41:59.950] We signed the exchange of prisoners, but he didn't do it.
+- [42:04.260] What kind of diplomacy, JD, you are speaking about?
+- [42:07.580] What do you mean?
+- [42:08.850] Vice President Vance: I'm talking
+- [42:10.090] about the kind of diplomacy
+- [42:11.370] that's going to end the destruction of your country.
+- [42:12.780] President Zelenskyy: Yes, but if you do not stop-
+- [42:14.020] Vice President Vance: Mr. President.
+- [42:15.220] Mr. President, with respect, I think it's disrespectful
+- [42:17.090] for you to come into the Oval Office
+- [42:18.300] and try to litigate this in front of the American media.
+- [42:20.660] Right now, you guys are going around
+- [42:22.640] and forcing conscripts to the front lines
+- [42:24.930] because you have manpower problems.
+- [42:26.970] You should be thanking the president
+- [42:28.480] for trying to bring it into this conflict.
+- [42:30.250] President Zelenskyy: Have you ever been to Ukraine
+- [42:31.480] that you say what problems we have?
+- [42:33.410] Vice President Vance: I have been to-
+- [42:34.750] President Zelenskyy: Come once.
+- [42:36.200] Vice President Vance: I've actually watched
+- [42:37.530] and seen the stories,
+- [42:39.080] and I know that what happens is you bring people.
+- [42:41.560] You bring them on a propaganda tour, Mr. President.
+- [42:44.600] Do you disagree that you've had problems
+- [42:46.170] bringing people into your military?
+- [42:47.490] President Zelenskyy: Do we have problems?
+- [42:48.690] I will answer it. I will answer it.
+- [42:49.930] Vice President Vance: And do you think that it's respectful
+- [42:51.160] to come to the Oval Office of the United States of America
+- [42:53.570] and attack the administration
+- [42:54.920] that is trying to prevent the destruction of your country?
+- [42:56.970] President Zelenskyy: A lot of questions.
+- [42:58.260] Let's start from the beginning.
+- [42:59.570] Vice President Vance: Sure.
+- [43:00.790] President Zelenskyy: First of all,
+- [43:01.990] during the war, everybody has problems.
+- [43:04.530] Even you, but you have nice ocean and don't feel now.
+- [43:08.320] But you will feel it in the future.
+- [43:10.200] God bless you will not have a war.
+- [43:11.540] President Trump: You don't know that. You don't know that.
+- [43:14.790] Don't tell us what we're going to feel.
+- [43:16.680] We're trying to solve a problem.
+- [43:17.940] Don't tell us what we're going to feel.
+- [43:19.240] President Zelenskyy: I'm not telling you,
+- [43:20.490] I'm answering on this question.
+- [43:21.720] President Trump: Because you're in no position to dictate that.
+- [43:22.920] President Zelenskyy: That's exactly what you're doing.
+- [43:24.170] President Trump: You're in no position to dictate
+- [43:26.920] what we're going to feel.
+- [43:28.240] President Zelenskyy: You will. You will feel influence.
+- [43:29.590] President Trump: We're going to feel very good.
+- [43:30.790] We're going to feel very good and very strong.
+- [43:32.770] President Zelenskyy: I'm telling you, you will feel influence.
+- [43:34.300] President Trump: You're right now not in a very good position.
+- [43:36.780] You've allowed yourself to be in a very bad position,
+- [43:39.140] and he happens to be right about it.
+- [43:40.610] President Zelenskyy: From the very beginning
+- [43:41.810] of the war, I was-
+- [43:43.040] President Trump: You're not in a good position.
+- [43:44.290] You don't have the cards right now.
+- [43:46.390] With us you start having cards. But right now you don't-
+- [43:48.240] President Zelenskyy: We're not playing cards.
+- [43:49.550] I'm very serious, Mr. President. I'm very serious.
+- [43:51.160] President Trump: You're playing cards. You're playing cards.
+- [43:52.540] You're gambling with the lives of millions of people.
+- [43:54.070] President Zelenskyy: I'm the president in a war.
+- [43:55.350] President Trump: You're gambling with World War III.
+- [43:57.430] You're gambling with World War III.
+- [43:59.210] President Zelenskyy: What do you [inaudible]
+- [44:00.420] President Trump: And what you're doing
+- [44:01.630] is very disrespectful to the country,
+- [44:04.450] this country, that's backed you
+- [44:07.000] far more than a lot of people said they should have.
+- [44:08.760] President Zelenskyy: I'm with all respect to your country.
+- [44:10.000] I'm with all Respect.
+- [44:10.770] Vice President Vance: Have you said thank you once,
+- [44:12.000] this entire meeting?
+- [44:12.510] President Zelenskyy: A lot of times.
+- [44:12.910] Vice President Vance: No.
+- [44:13.050] In this entire meeting, you said thank you today?
+- [44:14.440] President Zelenskyy: Even today. Even today.
+- [44:15.640] Vice President Vance: You went to Pennsylvania and campaigned
+- [44:17.220] for the opposition in October.
+- [44:18.430] President Zelenskyy: What? What are you speaking about?
+- [44:19.700] Vice President Vance: Offer some words of appreciation
+- [44:21.140] for the United States of America
+- [44:22.950] and the president who's trying to save your country.
+- [44:27.500] President Zelenskyy: Please. You think that
+- [44:29.700] if you will speak very loudly about the war, you can-
+- [44:32.300] President Trump: He's not speaking loudly.
+- [44:33.500] He's not speaking loudly. Your country's in big trouble.
+- [44:35.150] President Zelenskyy: Can I answer him? Can I answer-
+- [44:36.410] President Trump: Wait a minute.
+- [44:37.610] No no, you've done a lot of talking.
+- [44:38.980] Your country is in big trouble.
+- [44:40.370] President Zelenskyy: I know. I know.
+- [44:41.580] President Trump: You're not winning.
+- [44:42.790] You're not winning this.
+- [44:44.070] You have a damn good chance of coming out okay because of us.
+- [44:46.720] President Zelenskyy: Mr. President,
+- [44:47.960] we are staying in our country, staying strong.
+- [44:50.480] From the very beginning of the war, we've been alone.
+- [44:53.150] And we are thankful. I said thanks in this cabinet,
+- [44:55.390] and not only in this cabinet. I said thank you.
+- [44:57.070] President Trump: We gave you through,
+- [44:58.270] this stupid president, $350 billion.
+- [45:00.320] President Zelenskyy: You voted for your president.
+- [45:01.680] You voted for your president.
+- [45:02.880] President Trump: We gave you military equipment,
+- [45:04.090] and your men are brave,
+- [45:05.290] but they had to use our military.
+- [45:06.530] President Zelenskyy: Yes. What about
+- [45:07.800] [inaudible] You invited me to speak
+- [45:10.670] President Trump: If you didn't have our military equipment,
+- [45:13.090] this war would have been over in two weeks.
+- [45:15.110] President Zelenskyy: In three days.
+- [45:16.350] I heard it from Putin,
+- [45:17.590] in three days. This is something-
+- [45:18.890] President Trump: Maybe less.
+- [45:20.120] President Zelenskyy: In two weeks. Of course, yes.
+- [45:21.420] President Trump: It's going to be a very hard thing
+- [45:22.780] to do business like this, let me tell you.
+- [45:24.840] Vice President Vance: Just say thank you.
+- [45:26.480] President Zelenskyy: I said a lot of times
+- [45:28.140] thank you to American people.
+- [45:29.870] Vice President Vance: Accept that there are disagreements,
+- [45:31.600] and let's go litigate those disagreements
+- [45:33.650] rather than trying to fight it out in the American media
+- [45:36.540] when you're wrong. We know that you're wrong.
+- [45:38.420] President Trump: But you see, I think it's good
+- [45:39.730] for the American people to see what's going on.
+- [45:41.320] Vice President Vance: I understand, sir. I understand.
+- [45:42.590] President Trump: I think it's very important.
+- [45:43.880] That's why I kept this going so long.
+- [45:46.440] You have to be thankful. You don't have the cards.
+- [45:48.310] President Zelenskyy: I'm thankful.
+- [45:49.580] President Trump: You're buried there, your people are dying.
+- [45:51.190] President Zelenskyy: I can tell you…
+- [45:52.430] I know. Don't, please, Mr. President-
+- [45:53.630] President Trump: You're running low on soldiers.
+- [45:54.840] Listen. You're running low on soldiers.
+- [45:56.790] It would be a good thing-
+- [45:58.090] President Zelenskyy: Mr. President.
+- [45:59.350] President Trump: Then you tell us,
+- [46:00.560] "I don't want a ceasefire. I don't want a ceasefire.
+- [46:02.980] I want to go and I want this." Look.
+- [46:06.380] If you could get a ceasefire right now,
+- [46:08.160] I tell you you'd take it so the bullets stopped flying
+- [46:09.840] and your men stop getting killed.
+- [46:11.140] President Zelenskyy: Of course. Of course
+- [46:12.390] we want to stop the war. But I said-
+- [46:13.610] President Trump: But you're saying
+- [46:14.810] you don't want a ceasefire. I want a ceasefire.
+- [46:16.010] President Zelenskyy: But I said to you with guarantees.
+- [46:17.230] President Trump: Because you'll get a ceasefire
+- [46:18.460] faster than an agreement.
+- [46:19.690] President Zelenskyy: Ask our people about ceasefire,
+- [46:21.240] what they think. It doesn't matter for you what
+- [46:23.100] [inaudible]
+- [46:24.300] President Trump: That wasn't with me. That wasn't with me.
+- [46:26.370] That was with a guy named Biden who was not a smart person.
+- [46:28.890] That was with Obama.
+- [46:30.200] President Zelenskyy: But this is your president.
+- [46:31.410] It was your president.
+- [46:32.640] President Trump: Excuse me. That was with Obama,
+- [46:34.060] who gave you sheets, and I gave you Javelins.
+- [46:36.020] President Zelenskyy: Yes.
+- [46:37.230] President Trump: I gave you the Javelins to take out
+- [46:38.960] all those tanks.
+- [46:40.180] Obama gave you sheets. In fact, the statement is,
+- [46:44.110] Obama gave sheets and Trump gave Javelins.
+- [46:48.170] You got to be more thankful,
+- [46:50.240] because let me tell you, you don't have the cards.
+- [46:52.640] With us, you have the cards,
+- [46:54.660] but without us, you don't have any cards.
+- [46:56.720] The Press: One more question to Mr. Vice President.
+- [46:58.960] I'm sorry, here.
+- [47:00.170] President Trump: It's going to be a tough deal to make,
+- [47:02.420] because the attitudes have to change.
+- [47:04.940] The Press: What if Russia breaks ceasefire?
+- [47:07.270] What if Russia breaks these talks?
+- [47:09.970] What do they do them?
+- [47:11.180] I understand that it's a heated conversation, right?
+- [47:13.230] [inaudible]
+- [47:14.430] President Trump: What are you saying?
+- [47:15.720] Vice President Vance: She's asking,
+- [47:16.950] what if Russia breaks the ceasefire?
+- [47:19.140] President Trump: What if anything?
+- [47:20.370] What if a bomb drops on your head right now?
+- [47:22.220] The Press: But they have [inaudible]
+- [47:23.420] President Trump: Okay. What if they break it?
+- [47:25.640] I don't know. They broke it with Biden,
+- [47:27.350] because Biden, they didn't respect him.
+- [47:28.990] They didn't respect Obama. They respect me.
+- [47:31.960] The Press: But [inaudible]
+- [47:33.160] President Trump: Let me tell you,
+- [47:34.370] Putin went through a hell of a lot with me.
+- [47:35.790] He went through a phony witch hunt
+- [47:37.580] where they used him and Russia…
+- [47:40.040] "Russia, Russia, Russia." You ever hear of that deal?
+- [47:43.450] That was a phony Hunter Biden, Joe Biden scam.
+- [47:47.070] Hillary Clinton, shifty Adam Schiff.
+- [47:49.840] It was a Democrat scam.
+- [47:52.510] And he had to go through that, and he did go through it.
+- [47:55.140] We didn't end up in a war, and he went through it.
+- [47:58.020] He was accused of all that stuff.
+- [47:59.520] He had nothing to do with it.
+- [48:00.790] It came out of Hunter Biden's bathroom.
+- [48:04.140] It came out of Hunter Biden's bedroom.
+- [48:07.210] It was disgusting. And then they said, "Oh. Oh.
+- [48:11.280] The laptop from hell was made by Russia."
+- [48:14.920] The 51 agents.
+- [48:16.660] The whole thing was a scam, and he had to put up with that.
+- [48:19.400] He was being accused of all that stuff.
+- [48:22.260] All I can say is this.
+- [48:24.200] He might have broken deals with Obama and Bush,
+- [48:27.550] and he might have broken him with Biden.
+- [48:29.080] He did, maybe.
+- [48:30.330] Maybe he didn't, I don't know what happened.
+- [48:32.430] But he didn't break them with me.
+- [48:33.880] He wants to make a deal.
+- [48:35.100] I don't know if you can make a deal.
+- [48:37.160] The problem is, I've empowered you to be a tough guy,
+- [48:41.470] and I don't think you'd be a tough guy
+- [48:43.540] without the United States. And your people are very brave-
+- [48:45.720] President Zelenskyy: Thank you.
+- [48:46.990] President Trump: … but you're either going to make a deal
+- [48:48.640] or we're out,
+- [48:49.890] and if we're out, you'll fight it out.
+- [48:52.610] I don't think it's going to be pretty,
+- [48:54.440] but you'll fight it out. But you don't have the cards.
+- [48:57.920] But once we sign that deal,
+- [48:59.830] you're in a much better position.
+- [49:01.680] But you're not acting at all thankful,
+- [49:03.690] and that's not a nice thing.
+- [49:05.070] I'll be honest, that's not a nice thing.
+- [49:07.050] All right, I think we've seen enough.
+- [49:08.610] What do you think? Yeah.
+- [49:09.990] The Press: What's this negotiation
+- [49:11.200] [inaudible]
+- [49:12.400] President Trump: This is going to be great television,
+- [49:13.830] I will say that.
+- [49:16.160] All right. We'll see what we can do about putting it together.
+- [49:20.790] Thank you.

@@ -1,0 +1,760 @@
+<!-- source: https://www.youtube.com/watch?v=jMiAE9X-Wig -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: jMiAE9X-Wig -->
+<!-- date_published: 2025-02-07T20:01:50+00:00 -->
+<!-- date_accessed: 2026-06-02T02:53:59.158993+00:00 -->
+
+# Transcript: President Trump Holds a Press Conference with Prime Minister Shigeru Ishiba of Japan
+
+- [00:16.520] The President: Thank you very much.
+- [00:17.970] Prime Minister Ishiba: [foreign language]
+- [00:20.150] The President: Thank you very much.
+- [00:21.350] It's a great honor to be with the Prime Minister.
+- [00:23.250] We had a picture taken a little while ago and it was so nice,
+- [00:26.020] I thought I'd present it to you on stage.
+- [00:29.500] And you're [inaudible 00:00:23]
+- [00:31.910] I wish I was as handsome as him, but I'm not.
+- [00:41.540] Prime Minister Ishiba: Thank you.
+- [00:46.340] Okay, thank you. Oh. Beautiful.
+- [00:55.870] The President: Remember that day.
+- [00:58.070] Thank you very much everybody.
+- [01:02.040] I'm delighted to welcome Japanese Prime Minister
+- [01:05.220] Ishiba, Shigeru to the White House for the first time.
+- [01:09.110] And prime minister, it's an honor to have you with us.
+- [01:12.050] A great honor. Japan is a great country.
+- [01:14.630] Thank you very much.
+- [01:16.880] Japan is strong and proud.
+- [01:18.250] It's a nation that is home to one of the great civilizations
+- [01:21.480] in the history of the world.
+- [01:23.310] For nearly 80 years, the American-Japanese people
+- [01:26.070] have enjoyed a friendship like few others,
+- [01:29.180] have had a great friendship across the vast ocean.
+- [01:31.700] And found ourselves united by bonds of history,
+- [01:35.880] commerce, culture, mutual admiration and great respect.
+- [01:42.040] After our meeting today,
+- [01:43.370] I'm confident that the cherished alliances
+- [01:45.770] between our two countries
+- [01:48.330] and others also will continue to flourish along
+- [01:51.980] and into the future of the military cooperation
+- [01:55.690] between the United States and Japan
+- [01:57.510] as one of our closest security partnerships.
+- [02:00.930] And it's one of the closest we have anywhere in the world.
+- [02:04.820] Our service members work together every day
+- [02:07.030] to defend our common interests.
+- [02:09.770] Japan is committed to double its defense spending by 2027
+- [02:14.060] compared to my first term.
+- [02:16.430] They've invested a lot of money because of my first term.
+- [02:20.180] We worked on that very hard with Shinzo.
+- [02:22.860] You know, the great Shinzo Abe,
+- [02:26.260] and we look forward to seeing even more so.
+- [02:30.030] Shinzo and I worked very, very long and hard,
+- [02:32.370] and those numbers are very reflective after my first term,
+- [02:37.810] and now they're going up very substantially
+- [02:39.920] based on our conversations today.
+- [02:42.350] In addition to being vital for our shared security,
+- [02:45.660] Japan is one of the top purchases
+- [02:47.470] of U.S. military exports and equipment.
+- [02:50.620] And I'm pleased to say that this week my administration approved
+- [02:53.880] nearly a billion dollars in foreign military sales to Tokyo.
+- [02:59.650] The United States is totally committed
+- [03:01.640] to the security of Japan.
+- [03:03.450] We will extend the full strength of American deterrence
+- [03:06.970] capabilities and defense of our friend and ally 100%.
+- [03:13.440] In the years to come, the Prime Minister and I
+- [03:15.160] would be working closely together
+- [03:16.780] to maintain peace and security.
+- [03:19.610] And I also say peace through strength
+- [03:22.270] and all over the Indo-Pacific.
+- [03:24.110] And to that end, we also remain committed to the effort
+- [03:27.670] I began in my first term to ensure safety and stability
+- [03:31.110] on the Korean Peninsula.
+- [03:34.350] Prime Minister Ishiba and I spoke long
+- [03:39.990] and hard about a vital economic relationship
+- [03:42.540] between our two countries
+- [03:43.840] and the continuance of that relationship.
+- [03:46.030] The United States and Japan trade over $300 billion
+- [03:49.880] in goods and services each year.
+- [03:52.480] Japan has invested nearly $800 billion
+- [03:55.100] and that's going to go up very,
+- [03:56.410] very substantially in the coming months,
+- [03:59.470] more than any other country.
+- [04:01.550] And they're going to have some competition.
+- [04:03.820] We have a lot of people coming in
+- [04:05.290] and investing in the United States.
+- [04:06.960] I think the feeling throughout the world
+- [04:11.000] has never been stronger about this country.
+- [04:13.660] As a result of our victory in 2024,
+- [04:16.480] the Presidential election,
+- [04:17.820] the Japanese investment and technology giant,
+- [04:20.470] SoftBank announced plans to invest between $100
+- [04:24.420] and $200 billion.
+- [04:25.640] And we have many other companies investing that number,
+- [04:30.010] higher than that number, some a little bit less.
+- [04:32.090] But we have trillions of dollars of investment
+- [04:34.370] pouring into our country now
+- [04:36.020] that you didn't have just a short while ago.
+- [04:39.100] Today, our teams discussed how our two nations can do
+- [04:43.200] even more to stay on the cutting edge of artificial intelligence
+- [04:47.030] along with the quantum computing, semiconductors
+- [04:50.610] and other critical technologies. And they're coming out.
+- [04:54.240] The problem with technology of that kind
+- [04:56.090] it's obsolete in about two days,
+- [04:57.840] so we have to start all over again.
+- [04:59.740] It doesn't last long.
+- [05:01.000] We agreed to cooperate even more closely to combat
+- [05:04.370] the Chinese economic aggression, which is quite aggressive.
+- [05:09.000] I'm also pleased to announce that Japan
+- [05:11.010] will soon begin importing historic new shipments
+- [05:13.950] of clean American liquefied natural gas in record numbers.
+- [05:18.500] There'll be record numbers.
+- [05:20.730] With our Secretary of the Interior, we were talking.
+- [05:25.180] I think Doug is here. Hello, Doug.
+- [05:27.130] Please stand up, Doug. Doug Burgum, everybody.
+- [05:32.220] We're talking about the pipeline in Alaska,
+- [05:34.710] which is the closest point of major oil
+- [05:38.290] and gas to Japan by far,
+- [05:40.730] less than half the distance of any other location.
+- [05:43.550] We're talking about a joint venture of some type
+- [05:46.530] between Japan and us having to do with Alaska oil and gas.
+- [05:50.860] And that's very exciting.
+- [05:52.210] They're very excited about it, and so are we.
+- [05:54.590] As we deepen our economic relationship,
+- [05:56.710] I made clear that the United States
+- [05:58.480] will be conducting trade with all countries
+- [06:00.590] based on the principle of fairness and reciprocity.
+- [06:05.080] Chronic trade deficits not only undermine our economy,
+- [06:10.270] they really do and we're going to get rid of the trade.
+- [06:13.080] We have a trade deficit with Japan of over $100 billion,
+- [06:16.260] but we're going to work that out.
+- [06:17.770] And I think very quickly, frankly,
+- [06:20.210] we can do it just on oil and gas.
+- [06:21.830] We can work it out.
+- [06:23.040] So we intend to do it very quickly.
+- [06:25.660] We both understand that.
+- [06:27.480] And as America welcomes new foreign investment,
+- [06:30.220] we also want to ensure that companies
+- [06:32.750] build their products and factories here in America,
+- [06:35.450] not simply buy the assets that we have.
+- [06:39.880] And Japan is going to be opening up auto plants.
+- [06:43.730] New auto plants are being built currently as we speak.
+- [06:46.840] They've just been started. Toyota is one.
+- [06:50.800] Nissan is going to be doing something very exciting
+- [06:53.940] about U.S. Steel.
+- [06:56.460] They'll be looking at an investment
+- [06:58.030] rather than a purchase. Like the idea.
+- [07:00.250] U.S. Steel is a very important company to us.
+- [07:04.280] It was the greatest company in the world for 15 years,
+- [07:07.050] many years ago, 80 years ago.
+- [07:09.490] And we didn't want to see that leave.
+- [07:13.190] And it wouldn't actually leave.
+- [07:14.710] But the concept psychologically not good.
+- [07:18.040] So they've agreed to invest heavily in U.S.
+- [07:21.420] Steel as opposed to own it. And that sounds very exciting.
+- [07:24.870] And we're going to meet with Nissan next week,
+- [07:27.410] the head of Nissan.
+- [07:28.690] Very great company, and they'll work out the details.
+- [07:31.920] I'll help. I'll be there to mediate and arbitrate.
+- [07:36.320] Then I had the privilege of working closely
+- [07:38.260] with the Great Prime Minister, as you know,
+- [07:40.690] and you know him very well, Shinzo Abe,
+- [07:42.510] the longest-serving prime minister in Japan's history.
+- [07:46.770] Likewise, I expect that this prime minister
+- [07:49.900] is going to be a great one.
+- [07:51.220] I really believe that he's going to be a great one.
+- [07:53.080] I've gotten to know him, for not long,
+- [07:56.250] but I can see what they have.
+- [07:58.710] He's got the qualities of greatness.
+- [08:02.030] He's going to do a fantastic job for Japan
+- [08:04.930] and for the Japanese people.
+- [08:07.050] And I'd like now to invite the Prime Minister
+- [08:09.100] to say a few words and then we'll take some questions.
+- [08:12.590] Mr. Prime Minister, thank you. Thank you very much.
+- [08:16.240] Prime Minister Ishiba: [as interpreted]
+- [08:20.920] Mr. President Trump.
+- [08:22.990] I would like to sincerely thank you
+- [08:25.310] for inviting me to the White House today,
+- [08:28.190] immediately following your inauguration.
+- [08:31.320] I also thank you for your very warm hospitality.
+- [08:36.240] I have come to Washington, D.C.
+- [08:39.180] with the hope of having a face-to-face meeting
+- [08:43.330] and deepening our mutual understanding
+- [08:45.900] at this early date with President Trump,
+- [08:49.430] who is now leading the United States,
+- [08:52.140] the most important country for Japan's diplomacy and security,
+- [08:57.670] and aligning our perspectives and visions
+- [09:00.790] that Japan and United States should pursue.
+- [09:03.610] What What should we do to advance the national interests
+- [09:09.530] of both of our countries in synergy
+- [09:12.730] and to realize peace and prosperity in the Indo-Pacific?
+- [09:17.570] I am convinced that the answer lies in further
+- [09:22.550] strengthening the strong and unwavering Japan-U.S. alliance
+- [09:28.050] to achieve a free and open Indo-Pacific.
+- [09:33.050] President and I concurred to strengthen the deterrence
+- [09:37.420] and response capabilities of the alliance
+- [09:40.120] and to work closely in addressing strategic challenges
+- [09:44.160] that both countries are facing in this region.
+- [09:47.100] I conveyed to the President that Japan,
+- [09:49.660] as an ally of the United States,
+- [09:52.190] is ready to share responsibilities
+- [09:55.230] and to play its own role.
+- [09:57.530] I also reiterated Japan's unwavering commitment
+- [10:02.320] to fundamentally reinforcing its defense capabilities
+- [10:06.620] and reconfirmed the unwavering commitment
+- [10:09.930] by the United States to the defense of Japan.
+- [10:13.550] We reaffirmed that Article 5 of the Japan-US
+- [10:17.760] Treaty of Mutual Cooperation and Security
+- [10:20.980] applies to the Senkaku Islands.
+- [10:24.660] With half of the world's population
+- [10:27.180] and approximately 60% of the world's GDP,
+- [10:32.150] the Indo-Pacific serves as the engine of growth
+- [10:35.950] and vitality for Japan,
+- [10:37.720] the United States, and the world.
+- [10:39.960] The president and I also concurred
+- [10:42.770] that the United States and Japan
+- [10:44.620] will make further efforts in a wide range of areas,
+- [10:48.830] working hand-in-hand together to realize a free and open
+- [10:52.720] Indo-Pacific. In this context,
+- [10:54.810] we also concurred to further advance cooperation
+- [10:58.960] of the multi-layered networks of the like-minded countries,
+- [11:03.200] including the Quad, and trilateral cooperation
+- [11:06.400] with the Republic of Korea and the Philippines.
+- [11:09.460] We also discussed Japan-United States cooperation
+- [11:13.750] to bring about growth and prosperity.
+- [11:16.340] Economic cooperation, including on economic security,
+- [11:19.700] is important from the perspective
+- [11:22.170] of strengthening alliance cooperation.
+- [11:25.450] Japan is the closest economic partner of the United States,
+- [11:30.840] and has been the world's largest investor
+- [11:34.510] in the United States for five consecutive years.
+- [11:38.860] Also, with the inauguration of President Trump,
+- [11:42.700] the momentum for Japanese companies to invest
+- [11:45.490] in the United States is growing even stronger.
+- [11:49.810] Today, I conveyed my willingness to cooperate together
+- [11:53.830] to elevate Japan's investment in the United States
+- [11:57.380] to an unprecedented amount of $1 trillion.
+- [12:03.870] President Trump and myself also concurred to elevate
+- [12:08.490] the Japan-US partnership to an even higher level
+- [12:13.000] through improving business environment
+- [12:15.680] and increasing bilateral investment in employment,
+- [12:19.510] strengthening each other's industries,
+- [12:22.170] leading the world in developing advanced technologies,
+- [12:26.000] such as AI and leading-edge semiconductors,
+- [12:28.960] and strongly promoting efforts to harness the energy
+- [12:33.990] of the growing market in the Indo-Pacific region.
+- [12:41.680] We also confirmed that we will cooperate
+- [12:45.620] to strengthen energy security between the two countries,
+- [12:49.630] including increasing exports of United States'
+- [12:52.990] liquefied natural gas to Japan in a mutually beneficial manner.
+- [12:57.990] Regarding foreign exchange,
+- [13:00.060] as in the first Trump administration,
+- [13:03.000] close discussions will continue between Japanese
+- [13:05.760] and the US finance ministers who are experts in this field.
+- [13:11.050] We also held candid discussions on challenges
+- [13:13.930] the Indo-Pacific region is facing.
+- [13:16.270] We confirmed that we are resolved
+- [13:17.950] not to allow unilateral attempts
+- [13:19.600] to change the status quo by force or coercion,
+- [13:22.700] and to oppose such attempts in the East and South China Seas
+- [13:25.900] in order to fully defend a free and open Indo-Pacific.
+- [13:34.350] We also reiterated the importance of peace
+- [13:37.320] and stability across the Taiwan Strait.
+- [13:41.170] Regarding North Korea,
+- [13:43.090] we affirmed the need to address its nuclear and missile program,
+- [13:47.100] which poses a serious threat to Japan, the US, and beyond,
+- [13:52.720] and that Japan and the US will work together
+- [13:54.910] toward the complete denuclearization of North Korea.
+- [13:59.480] As the abductees and their families continue to age,
+- [14:03.280] I conveyed my strong sense of urgency
+- [14:05.520] and determination directly to President Trump,
+- [14:08.540] and gained his renewed strong support
+- [14:10.700] for the immediate resolution of the abductions issue.
+- [14:16.680] While this was my first face-to-face meeting
+- [14:18.860] with President Trump,
+- [14:21.320] we were able to openly and frankly exchange views,
+- [14:25.570] and our meeting turned out to be very productive and meaningful.
+- [14:34.660] As a result of today's meeting,
+- [14:36.840] which marked a new departure for the Japan-US relations,
+- [14:40.920] we are issuing a Japan-US Joint Leaders' Statement.
+- [14:45.920] This document will serve as a compass for further cooperation
+- [14:50.230] between our two countries.
+- [14:52.900] On the basis of these deliverables,
+- [14:55.920] I look forward to working together with President Trump,
+- [14:59.210] who I respect immensely,
+- [15:00.890] to usher in a new golden age of Japan-US relations.
+- [15:07.810] I look forward to welcoming you to Japan,
+- [15:13.080] and I'm very excited about that prospect.
+- [15:15.760] Thank you, Mr. President.
+- [15:18.290] The President: Thank you very much.
+- [15:22.600] Thank you. Any questions, please? Peter?
+- [15:26.510] The Press: President Trump, I have two on DOGE.
+- [15:29.700] Elon Musk said today, "I love Donald Trump
+- [15:33.120] as much as a straight man can love another man."
+- [15:37.230] What does the First Lady think about that?
+- [15:39.260] The President: Oh, I think she'll be okay with it somehow.
+- [15:41.560] The Press: Yes, yes.
+- [15:43.220] So, Democratic lawmakers are really upset
+- [15:47.510] that DOGE engineers have access to Treasury's payments systems.
+- [15:53.840] The Senate [inaudible 00:15:43] wrote a letter to Susie Wiles,
+- [15:56.540] they're saying that these systems are used to disburse
+- [15:59.690] trillions of dollars each year,
+- [16:01.500] and contain everyday Americans' personal information,
+- [16:03.970] like Social Security numbers, home addresses, bank accounts.
+- [16:07.770] Why does DOGE need all of that?
+- [16:10.130] The President: Well, it doesn't, but they get it very easily.
+- [16:12.430] We don't have very good security in our country,
+- [16:14.220] and they get it very easily. And what we're doing,
+- [16:16.520] if you look at what has just taken place,
+- [16:20.220] with respect to some of the investments
+- [16:22.640] that have been made on another agency
+- [16:24.870] that people have been talking about for years,
+- [16:26.570] but nobody did anything about it,
+- [16:28.930] it's absolutely obscene, dangerous, bad, very costly.
+- [16:34.470] Virtually every investment made is a con job.
+- [16:38.500] There's nothing of value to anybody,
+- [16:41.930] unless there's a kickback scheme going on, which is possible.
+- [16:45.940] And we're going to be doing more and more of that.
+- [16:47.720] We're going to be looking at Department of Education,
+- [16:49.800] we're going to be looking at even our military.
+- [16:52.040] We're going to be looking at tremendous amounts of money,
+- [16:54.430] Peter, being spent on things
+- [16:57.020] that bear no relationship to anything and have no value.
+- [17:01.100] We're talking about trillions of dollars.
+- [17:03.050] It will be, in the end,
+- [17:04.380] trillions of dollars being absolutely wasted,
+- [17:07.230] and perhaps illegally.
+- [17:09.130] I would say certainly in many cases illegally,
+- [17:11.580] but perhaps illegally overall.
+- [17:14.360] And I'm very proud of the job that this group of young people,
+- [17:18.080] generally young people,
+- [17:19.400] but very smart people, they're doing.
+- [17:21.480] They're doing it at my insistence;
+- [17:23.660] it would be a lot easier not to do it,
+- [17:25.810] but we have to take some of these things
+- [17:28.370] apart to find the corruption,
+- [17:29.720] and we've found tremendous corruption.
+- [17:31.500] The Press: You mentioned the Department of Education;
+- [17:32.960] what did you think when you saw Democratic lawmakers
+- [17:35.360] trying to get into the Department of Education
+- [17:38.270] earlier today?
+- [17:39.500] The President: Oh, I see the same ones.
+- [17:40.810] I see Maxine Waters, a lowlife.
+- [17:42.740] I see all these people. They don't love our country.
+- [17:46.030] They don't love our country. We want great education.
+- [17:49.110] So, they ranked 40 countries in education.
+- [17:51.990] We're ranked dead last. Dead last.
+- [17:54.400] But the good news is we're number one in one category.
+- [17:58.040] You know what that is? Cost per pupil.
+- [18:00.720] We spend more per pupil than any other country in the world.
+- [18:04.790] You look at Norway, Denmark, Sweden,
+- [18:07.550] various countries all up and down, Finland.
+- [18:10.720] China does very well in education.
+- [18:13.160] And then you look at us, we spend much more money
+- [18:15.280] than they do per pupil or any other way,
+- [18:18.660] but we spend much more money than they do.
+- [18:20.430] And yet we're ranked this year,
+- [18:23.740] Biden's last year, congratulations,
+- [18:25.580] Joe, we're ranked dead last.
+- [18:28.610] So, what I want to see is education.
+- [18:30.700] Number one, I like choice. We all like choice.
+- [18:33.410] But beyond choice, long beyond choice,
+- [18:35.410] I want to see it go back to the states.
+- [18:37.110] Where great states that do so well have no debt,
+- [18:41.020] they're operated brilliantly.
+- [18:42.400] They'll be as good as Norway or Denmark or Sweden
+- [18:45.250] or any of the other highly-ranked countries.
+- [18:47.290] They'll probably have 30, I figure 35 to 38 states
+- [18:51.070] will be right at the top, and the rest will come along.
+- [18:54.220] They'll have to come along, competitively.
+- [18:56.100] And by the way, we'll be spending a lot less money
+- [18:58.590] and we'll have great education.
+- [19:00.080] The Press: As part of this DOGE cost-cutting effort,
+- [19:02.830] one of the DOGE engineers
+- [19:04.190] was fired for some inappropriate posts.
+- [19:07.190] The vice president said, "Bring him back."
+- [19:09.970] What do you say?
+- [19:11.180] The President: Well, I don't know about the particular thing,
+- [19:13.120] but if the vice president said that, did you say that?
+- [19:15.040] The Vice President: I did say that.
+- [19:16.240] The President: I'm with the vice president.
+- [19:17.730] Thank you, Peter.
+- [19:18.960] The Press: [inaudible].
+- [19:20.200] The President: Yeah, go ahead, please.
+- [19:21.660] Yes, red dress?
+- [19:22.890] The Press: Red dress?
+- [19:24.090] Thank you so much, Mr. President.
+- [19:27.030] Just how strong do you want Japan's military to be?
+- [19:31.090] And do you specifically hope that their increased military
+- [19:34.450] spending will deter China and North Korea?
+- [19:37.680] What did you talk about that today?
+- [19:39.670] The President: Well, I want our military
+- [19:41.000] to be the strongest.
+- [19:42.210] I also don't mind spending so much money on the military
+- [19:46.070] because we build it here, it's made in the USA.
+- [19:48.010] All made in the USA.
+- [19:50.480] You know, I rebuilt our military during my first term,
+- [19:54.150] did a great job.
+- [19:55.490] We left some of it behind in Afghanistan,
+- [19:57.730] stupidly, there was no reason for that,
+- [19:59.410] but it was still as much as it was,
+- [20:01.840] it was billions and billions of dollars.
+- [20:03.720] But it was a small part of it.
+- [20:05.910] But we're going to have the strongest military by far,
+- [20:08.880] we have great people.
+- [20:10.140] I want to congratulate Pete Hegseth
+- [20:12.220] for having gone through the gauntlet.
+- [20:14.480] He went through a lot, but he got through
+- [20:16.760] and he's going to be a tremendous…
+- [20:18.160] I have no doubt he's going to be a tremendous leader
+- [20:21.010] and other of the leaders sitting here in their own fields,
+- [20:24.840] we're going to do something very, very, very great
+- [20:27.960] and we expect great things.
+- [20:29.170] But I expect the strongest military by far in the world,
+- [20:32.330] far stronger than China, far stronger than anybody,
+- [20:35.150] and that's the way it is. Thank you very much.
+- [20:38.510] Would you like to ask a question?
+- [20:39.790] Please. Go ahead.
+- [20:45.700] The Press: Thank you, Mr. President.
+- [20:46.970] The President: Thank you.
+- [20:48.390] The Press: This is Hiramatsu from Nippon Television.
+- [20:51.530] My question, let me ask two quick questions.
+- [20:54.820] First, this is the first meeting
+- [20:57.180] between Mr. President and Prime Minister Ishiba.
+- [21:00.570] So what kind of impression do you have on him?
+- [21:03.540] And number two, do you have an idea
+- [21:06.430] or do you have a plan to impose tariff against Japan so far?
+- [21:10.860] Thank you.
+- [21:13.330] The President: I think that he is going
+- [21:15.230] to be a great prime minister.
+- [21:16.660] I think he's a very strong man, very, very strong.
+- [21:18.850] I have great respect for him.
+- [21:20.170] I've known him for a long time through reputation.
+- [21:23.960] Shinzo Abe thought the world of him,
+- [21:26.190] and I think he's going to do a fantastic job as Prime Minister.
+- [21:31.230] Very strong person. I wish he wasn't so strong,
+- [21:34.860] I wish he was a little bit weaker than that,
+- [21:36.510] but that's what I got.
+- [21:37.930] I have to get strong guys all the time.
+- [21:40.040] He's going to be a Prime Minister.
+- [21:42.230] I also, in terms of tariffs, we're going to have tariffs,
+- [21:47.300] mostly reciprocal tariffs where we go with…
+- [21:50.330] And I'm going to be probably meeting
+- [21:51.840] on that Monday or Tuesday
+- [21:53.840] and have an announcement, probably a news conference,
+- [21:56.600] but probably reciprocal tariffs where a country pays so much,
+- [22:01.370] it charges us so much and we do the same.
+- [22:04.080] So very reciprocal
+- [22:05.870] because I think that's the only fair way to do it.
+- [22:07.860] That way, nobody's hurt.
+- [22:10.950] They charge us, we charge them, it's the same thing.
+- [22:14.140] And I seem to be going in that line
+- [22:16.240] as opposed to a flat-fee tariff.
+- [22:23.500] Yes, go. Please. Please go ahead.
+- [22:26.020] Why don't you go ahead?
+- [22:33.450] The Press: This is Ota from Yomiuri Shimbun newspaper.
+- [22:36.920] I have a question for Prime Minister Ishiba.
+- [22:39.290] This is your very first summit meeting.
+- [22:41.690] What was your impression of President Trump?
+- [22:43.780] Were you able to build a good relationship
+- [22:47.060] of trust and confidence?
+- [22:48.670] In Northeast Asia there are many challenges, China,
+- [22:52.450] North Korea and so forth.
+- [22:54.080] And with President Trump, what did you appeal to him
+- [22:57.700] and what kind of understanding were you able to obtain?
+- [23:00.660] On the economic field
+- [23:02.240] there is the acquisition of US Steel by Nippon Steel
+- [23:06.900] and there are expansion of import of LNG.
+- [23:10.280] What were the communication discussions did you have
+- [23:12.900] with President Trump for the $1 trillion of investment
+- [23:16.740] from Japan investment? What was his reaction?
+- [23:19.890] What about your communication on tariff front?
+- [23:24.710] Prime Minister Ishiba: This is the first time that I met
+- [23:26.570] with President Trump in person.
+- [23:30.710] So, this was the first time meeting face to face,
+- [23:34.820] but for many, many years I have watched him on television.
+- [23:40.500] So, I was so excited to see such a celebrity on television
+- [23:46.890] to see in person. On television he is frightening,
+- [23:53.900] and he has a very strong personality,
+- [23:58.380] but when I met with him,
+- [24:01.010] actually he was very sincere and very powerful
+- [24:06.700] and with strong will for the United States
+- [24:11.620] as for the whole world.I was able to feel that.
+- [24:18.040] This is not the sort of polishing
+- [24:22.520] or trying to suck up to him for the world peace
+- [24:27.530] and for the regional stability
+- [24:29.690] that both of our countries need to play a role
+- [24:34.520] and make our endeavors and responsibility.
+- [24:38.470] As for the increase of our defense expenditures,
+- [24:42.570] it is not that we are told by the United States to do so.
+- [24:45.930] Japan, on our own, on our own decision
+- [24:49.820] and on our own responsibility,
+- [24:52.240] we need to increase our defense expenditures.
+- [24:55.620] But of course, we need to communicate and consult
+- [24:58.400] with the United States,
+- [25:00.160] but the responsibility is with Japan
+- [25:02.550] and the decision is with Japan.
+- [25:05.400] Now on the tariffs, that, if it is mutually beneficial,
+- [25:14.570] tariffs need to be set.
+- [25:18.430] And as for Japan, as Mr. President has introduced to us,
+- [25:23.950] an unprecedented investment will be made from Japan
+- [25:27.680] to the United States
+- [25:29.030] and so many jobs will be created.
+- [25:32.190] So, $1 trillion is the target,
+- [25:37.550] and this will be to the benefit of the United States,
+- [25:40.440] but also to the benefit of Japan as well.
+- [25:44.610] Investment is mutually beneficial.
+- [25:47.930] So be it with US Steel, as Mr. President says,
+- [25:52.410] it is not acquisition, it is investment.
+- [25:57.230] So, the Japanese technology will be provided,
+- [26:01.830] and the better-quality products
+- [26:04.010] will be manufactured in the United States and US
+- [26:09.450] Steel will make products which will contribute
+- [26:12.310] not only to the United States and Japan,
+- [26:14.310] but also to the whole world.
+- [26:16.430] It is not one-sided, it will be reciprocal.
+- [26:20.360] It will be mutually beneficial.
+- [26:22.780] And I believe we were able to share on this
+- [26:25.980] and that is the biggest result that I have seen today.
+- [26:30.830] The Press: Mr. President.
+- [26:32.090] The President: Thank you very much.
+- [26:33.290] Go ahead please. Yeah.
+- [26:34.780] The Press: Thank you, Mr. President.
+- [26:37.350] Edward Lawrence from Fox Business.
+- [26:39.650] I wanted to ask you about that US Steel deal.
+- [26:42.210] So you're saying, is this a restructuring
+- [26:45.460] of the deal that's happening and then will you-
+- [26:47.590] The President: They're doing it as an investment,
+- [26:49.680] no longer a purchase.
+- [26:51.750] I didn't want it purchased, but investment, I love.
+- [26:55.100] And they're going to do a big investment subject
+- [26:57.390] to getting the deal done,
+- [26:59.100] and they'll be doing a big, I'm okay with that, sure.
+- [27:02.540] And for the prime minister, what was your argument
+- [27:05.180] to the president related to US Steel?
+- [27:06.820] And one more on tariffs, Mr. President, if I could.
+- [27:11.470] You said on tariffs that you'd like them to be
+- [27:13.540] reciprocal back and forth.
+- [27:15.130] What was the reception from the Japanese prime minister
+- [27:18.230] when you said that or when you talked about?
+- [27:19.840] The President: Well, we didn't discuss tariffs too much.
+- [27:21.500] We really discussed many other things,
+- [27:23.150] including the pipeline in Alaska,
+- [27:24.940] which I think is going to be
+- [27:26.260] maybe the most exciting thing with Doug and Chris.
+- [27:30.120] We discussed that at length, the pipeline.
+- [27:32.560] I mean, it seemed to be of great interest to them.
+- [27:36.040] We have potentially more oil and gas
+- [27:39.610] than in Saudi Arabia just in Alaska.
+- [27:42.960] The most of any country in the world,
+- [27:44.540] it's big asset for the United States,
+- [27:46.160] but we haven't used it.
+- [27:47.680] We go to Venezuela, we go to other places to take oil and gas
+- [27:50.870] and we have more than anybody.
+- [27:53.200] It's an amazing phenomenon that took place
+- [27:55.480] over the last four years. Nobody understands it,
+- [27:57.690] including people that were in charge
+- [28:00.160] have no clue what they were doing.
+- [28:02.030] So it was a big problem.
+- [28:04.260] They were surprised actually too.
+- [28:05.590] They were saying why didn't they…
+- [28:08.550] They wouldn't sell them. LNG, wouldn't sell it.
+- [28:11.700] Japan wanted buy LNG. And Biden wouldn't sell it.
+- [28:15.840] And I'm trying to figure that one out.
+- [28:17.840] Maybe it was the environment. You might ask that question,
+- [28:22.270] he's curious about that himself, I think.
+- [28:27.150] Thank you very much.
+- [28:29.910] If you want to answer that about LNG,
+- [28:33.190] that the United States wouldn't sell you LNG.
+- [28:43.550] Prime Minister Ishiba: That was a really unfortunate thing.
+- [28:46.840] But the current administration,
+- [28:50.060] I'm sorry, the previous administration was not allowing
+- [28:53.420] the LNG to be exported to us.
+- [28:56.180] I believe that President Trump on the day of his inauguration
+- [29:00.180] allowed us to resume this importing.
+- [29:03.730] I think this is something that is really wonderful for us
+- [29:07.930] and as the country of Japan,
+- [29:11.390] we are interested in importing not just LNG,
+- [29:14.610] but also bioethanol,
+- [29:16.620] ammonia and other resources at a stable price,
+- [29:21.470] a reasonable price from the United States.
+- [29:26.150] We also want to improve the trade deficit
+- [29:30.260] that the US has towards Japan.
+- [29:32.630] So if we are able to buy those at a stable
+- [29:36.910] and reasonable price,
+- [29:38.240] I think it would be a wonderful situation.
+- [29:41.590] And for that I'm very appreciative to President Trump
+- [29:45.170] and we also look forward to LNG and hope that it's a success.
+- [29:53.740] The President: I want to just say that…
+- [29:55.030] or the ethanol, I always going to be very happy.
+- [29:57.520] All of the Nebraska, all of our farm states
+- [29:59.900] are going to be very happy.
+- [30:01.170] They want ethanol, and we'll be able to provide it
+- [30:04.190] to our farmers who I like and they like me.
+- [30:07.750] I think they're going to be very, very happy.
+- [30:09.970] We've opened the sale of LNG immediately.
+- [30:13.400] Actually, we did it a few days ago,
+- [30:15.090] and right now, not only China, everybody wants to buy it.
+- [30:19.860] We have more than anybody and they're all buying it.
+- [30:22.010] But Japan, in particular, we're very happy
+- [30:24.420] that they're going to start immediately
+- [30:26.870] and we can supply it to the world,
+- [30:28.640] but we're supplying it to Japan,
+- [30:31.020] and they could always be right up in the front of the line.
+- [30:33.540] Yeah, go ahead. Please. Go ahead.
+- [30:35.440] The Press: Thank you so much.
+- [30:36.660] Mr. Prime Minister, I have a question for you as well,
+- [30:38.370] but Mr. President, I'll start with you.
+- [30:40.440] Quickly to follow up on what Peter was asking,
+- [30:42.430] have you directed Elon Musk to review Pentagon spending,
+- [30:45.250] given it's the biggest discretionary
+- [30:46.790] spending in the federal budget?
+- [30:48.050] The President: [inaudible]
+- [30:49.250] education, just about everything.
+- [30:51.650] We're going to go through everything.
+- [30:53.190] It was so bad with what we just went through,
+- [30:56.180] this horrible situation we just went through.
+- [30:58.440] And I guess 97% of the people have been dismissed,
+- [31:02.320] and it was very, very unfortunate.
+- [31:04.060] You're not going to find anything like that,
+- [31:05.670] but you're going to find a lot.
+- [31:07.530] And I've instructed him to go check out education,
+- [31:10.870] to check out the Pentagon, which is the military,
+- [31:13.740] and sadly, you'll find some things that are pretty bad.
+- [31:16.470] But I don't think proportionately,
+- [31:18.140] you're going to see anything like we just saw.
+- [31:20.760] The Press: FBI has turned over a list
+- [31:22.440] to the Justice Department of the FBI agents
+- [31:24.570] who worked on the January 6th rioters cases.
+- [31:27.150] Are you planning to fire the FBI agents
+- [31:29.150] who worked on those investigations?
+- [31:31.080] The President: No, but I'll fire some of them
+- [31:32.820] because some of them were corrupt.
+- [31:34.410] I have no doubt about that.
+- [31:36.500] I got to know a lot about that business, that world.
+- [31:40.020] I got to know a lot about that world
+- [31:41.700] that we had some corrupt agents
+- [31:43.180] and those people are gone or they will be gone,
+- [31:45.770] and it'll be done quickly, and very surgically.
+- [31:51.010] Did you have a question for the Prime Minister?
+- [31:55.620] Talk up.
+- [31:56.830] The Press: Are those the ones that worked
+- [31:58.060] on January 6th rioters cases?
+- [31:59.270] The President: I don't know. I don't know.
+- [32:00.680] We have some that are very corrupt and we don't like that.
+- [32:03.310] We're going to bring back the reputation of the FBI.
+- [32:06.500] Kash Patel is going to do a great job,
+- [32:08.870] and we're going to bring back the reputation of the FBI
+- [32:11.550] which has been hurt very badly,
+- [32:12.940] it has been devastated over the last four years.
+- [32:19.140] The Press: You have just been meeting for the first time
+- [32:20.680] with President Trump.
+- [32:21.930] Last administration famously did not have,
+- [32:24.040] hardly any, if at all, contact with North Korea.
+- [32:26.970] President Trump certainly did the last time he was in office.
+- [32:29.320] Would you like to see him resume that contact
+- [32:32.300] and also that in-person meeting
+- [32:33.940] that he had with the North Korean leader, Kim Jong Un?
+- [32:45.740] Prime Minister Ishiba: That is something that the United States
+- [32:48.020] needs to determine on its own,
+- [32:50.010] and it's not something that we should request.
+- [32:56.180] Having said that, for example in Vietnam or Singapore,
+- [33:03.620] the President of the United States,
+- [33:08.960] President Trump was able to meet with Kim Jong Un.
+- [33:13.140] I think that's a very positive development.
+- [33:19.440] Now that President Trump is in power again,
+- [33:23.990] if we are able to move towards resolving issues
+- [33:27.480] with the North Korea, I think it would be agreed,
+- [33:31.440] and of course for us
+- [33:34.360] that includes not only denuclearization,
+- [33:36.850] but also resolving the abductee issue.
+- [33:40.860] And so, not only the victims of the abductees,
+- [33:46.320] but also their families too are aging,
+- [33:49.010] and so our time is limited,
+- [33:51.610] so if the President of the United States,
+- [33:54.690] if President Trump is able to resolve this issue…
+- [33:59.650] We do understand that it's a Japan issue first and foremost.
+- [34:02.500] Having said that,
+- [34:03.730] we would love to continue to cooperate with them.
+- [34:06.440] The President: It's actually a good question,
+- [34:08.100] and we will have relations with North Korea
+- [34:10.520] and with Kim Jong Un.
+- [34:11.800] I got along with him very well as you know.
+- [34:13.500] I think I stopped the war.
+- [34:15.210] And if I wouldn't have won that particular election,
+- [34:18.080] you would've ended up in a very bad situation.
+- [34:22.560] But I did, and we had a good relationship,
+- [34:25.060] and I think it's a very big asset
+- [34:27.370] for everybody that I do get along with him.
+- [34:30.310] I mean, I get along with him, he gets along with me,
+- [34:32.420] and that's a good thing, not a bad thing.
+- [34:34.410] And I can tell you that Japan likes the idea
+- [34:38.730] because their relationship is not very good with him.
+- [34:41.940] And if I can have a relationship with not only him,
+- [34:45.670] but other people throughout the world
+- [34:47.860] where there seem to be difficulties,
+- [34:49.850] I think that's a tremendous asset for the world,
+- [34:52.210] not just the United States. Go ahead.
+- [34:54.070] The Press: I have a question for you
+- [34:56.040] and for the Prime Minister as well.
+- [34:57.700] Mr. President,
+- [34:59.060] I wonder what you make of the criticism from Democrats
+- [35:01.320] that these staff reductions, the cuts that Elon Musk and DOGE
+- [35:04.010] are doing are an unlawful power grab?
+- [35:06.690] Is there anything you've told Elon Musk cannot touch?
+- [35:11.470] The President: Well, we haven't discussed that much.
+- [35:13.540] I'll tell him to go here, go there, he does it.
+- [35:15.730] He's got very capable group of people.
+- [35:18.790] Very, very capable.
+- [35:20.860] They know what they're doing, and they'll ask questions,
+- [35:23.690] and they'll see immediately as somebody gets tongue-tied,
+- [35:26.180] that they're either crooked or don't know what they're doing.
+- [35:29.800] We have very smart people going in
+- [35:31.460] so I've instructed him go into education,
+- [35:34.450] go into military, go into other things as we go along,
+- [35:37.760] and they're finding massive amounts of fraud,
+- [35:39.970] abuse, waste, all of these things.
+- [35:43.490] But I will pick out a target and I say, "Go in."
+- [35:48.060] There could be areas that we won't,
+- [35:49.870] but I think everything's fertile.
+- [35:51.970] We're a government. We have to be open.
+- [35:54.230] And as an open government,
+- [35:56.440] you could say maybe some high intelligence or something,
+- [35:59.900] and I'll do that myself if I have to,
+- [36:02.400] but generally speaking, I'll just say,
+- [36:05.830] but he will be looking at education pretty quickly,
+- [36:08.100] and he will be looking at military.
+- [36:10.920] The Press: Most of federal spending is Social Security,
+- [36:13.110] Medicare programs, like that.
+- [36:14.490] Would you like to see him look at those programs as well?
+- [36:16.510] The President: Well, they don't really have to be looked
+- [36:18.490] at by him. They can be looked at by us.
+- [36:20.340] Social Security will not be touched.
+- [36:22.030] It'll only be strengthened.
+- [36:23.920] We have illegal immigrants on Social Security
+- [36:26.760] and we're going to find out who they are and take them out.
+- [36:29.690] We have illegal immigrants in other…
+- [36:33.670] Medicare, we've found a lot of bad people.
+- [36:36.960] A lot of people that shouldn't be on that
+- [36:39.080] were put on through California.
+- [36:41.380] They come, a lot of them come out of California.
+- [36:43.860] We're not going to stand for that,
+- [36:45.210] so we're going to strengthen our Social Security, et cetera.
+- [36:49.440] We're not going to touch it other than to make it stronger,
+- [36:52.070] but we have people that shouldn't be on,
+- [36:53.530] and those people we have to weed out.
+- [36:55.340] Most of them, or many of them so far,
+- [36:57.060] have been illegal immigrants.
+- [36:58.810] They shouldn't even be in the country.
+- [37:00.140] Do you have a question for the Prime Minister?
+- [37:02.370] The Press: I do. Mr. Prime Minister,
+- [37:03.630] the President's affinity for tariffs is well known.
+- [37:06.830] If the US places tariffs on the Japanese imports,
+- [37:09.660] would Japan retaliate?
+- [37:11.830] Prime Minister Ishiba: [foreign language]
+- [37:22.070] I'm unable to respond to a theoretical question.
+- [37:25.470] That's the official answer that we have.
+- [37:29.110] The President: That's a very good answer.
+- [37:31.890] Very good answer. Wow, that's very good.
+- [37:35.420] He knows what he is doing. Thank you very much, everybody.
+- [37:45.130] Thank you.
+- [37:46.480] Thank you, everybody

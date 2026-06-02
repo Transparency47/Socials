@@ -1,0 +1,254 @@
+<!-- source: https://www.youtube.com/watch?v=gjHj4gwdv9E -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: gjHj4gwdv9E -->
+<!-- date_published: 2025-03-28T00:27:49+00:00 -->
+<!-- date_accessed: 2026-06-02T02:52:18.271459+00:00 -->
+
+# Transcript: President Trump Participates in the White House Iftar Dinner
+
+- [00:05.390] [Applause]
+- [00:22.880] Thank you very much.
+- [00:38.879] Hello,
+- [00:39.960] Lindsay. Nice to see
+- [00:42.520] you. And you'll like it. Good evening
+- [00:44.800] and welcome to this
+- [00:47.320] magnificent dinner. Very special. As we
+- [00:50.640] honor the Islamic Holy Month of Ramadan,
+- [00:53.680] let me begin by saying to our Muslim
+- [00:55.600] friends, of which I have many tonight,
+- [00:57.680] and I think we have many all over the
+- [00:59.280] world based on the results in Michigan.
+- [01:01.760] other
+- [01:02.680] places. But I just want to say hello to
+- [01:06.080] all of the people that supported us so
+- [01:09.000] strongly, Ramadan
+- [01:15.479] Mubarak. We're grateful to be joined by
+- [01:18.479] Director of National Intelligence Tulsi
+- [01:21.280] Gabbard. Tulsi, thank you very
+- [01:25.240] much. Deputy Secretary of State Chris
+- [01:28.400] Landau. Chris, thank you Chris.
+- [01:30.759] Congratulations, by the
+- [01:32.840] way. Deputy Special Envoy Morgan
+- [01:36.400] Ortegus.
+- [01:38.200] Morgan. Hi,
+- [01:40.840] Morgan. A very good friend of mine who I
+- [01:43.200] just endorsed actually, Senator Lindsey
+- [01:45.200] Graham.
+- [01:46.290] [Applause]
+- [01:48.680] Lindsay. Congressman Abe Hammeday. And
+- [01:53.680] thank you. Thank you, Abe. Good job.
+- [01:56.799] counselor to the president, Alina Haba,
+- [01:59.119] and gonna be the US attorney in New
+- [02:01.280] Jersey. Very
+- [02:03.479] importantly, great job, Pastor Paula
+- [02:06.240] White, my friend for a long time, and
+- [02:08.640] somebody that's done an incredible job
+- [02:10.640] with faith and all of the uh things that
+- [02:14.319] so many in this room stand for. Paula
+- [02:16.640] White, thank you, Paula.
+- [02:21.440] and a uh person that Paula would have a
+- [02:23.760] hard time uh not being with. I would say
+- [02:26.959] Jenny would be about impossible for you,
+- [02:29.200] right? But Jenny K is here and she's
+- [02:31.440] been incredible. The faith office
+- [02:33.200] director and right out of the White
+- [02:35.200] House, right, Jenny, hi Jenny, how are
+- [02:38.920] you? And a great friend of mine, Mossad
+- [02:42.000] Bulas. Mossad, how are
+- [02:44.599] you? Thank you. I also want to extend a
+- [02:47.760] very special thanks to the hundreds of
+- [02:49.519] thousands of Muslim Americans who
+- [02:51.440] supported us in record numbers in the
+- [02:53.840] 2024 presidential election. It was
+- [02:56.440] incredible. Uh we started a little slow
+- [02:59.599] with you, but we came along and by the
+- [03:01.840] time that election was finished, we
+- [03:03.920] figured we uh we went up like a rocket
+- [03:06.480] ship. So, I just want to thank everybody
+- [03:08.080] very much for that. That was great.
+- [03:12.080] And in particular, I want to thank two
+- [03:14.879] great gentlemen. Uh the mayor of Hemp
+- [03:17.879] Tramik, Michigan Hem Tramik, how are
+- [03:21.440] you, Mr. Mayor? And he's done a great
+- [03:24.000] job as mayor and he's done a great job
+- [03:25.680] with his support of us. And uh Mr. Ammer
+- [03:29.360] Gallib and thank you very much. It was
+- [03:31.440] such a tremendous endorsement right at
+- [03:33.680] the right time. Your timing was
+- [03:35.519] excellent. Thank you very much. and uh
+- [03:38.959] you'll be the next ambassador to Kuwait
+- [03:41.200] and you're going to have a great time
+- [03:42.720] with Kuwait. Wonderful people and it's a
+- [03:45.360] great place. So, congratulations. Really
+- [03:47.519] terrific. You're going to love them and
+- [03:48.720] they're going to love you and they're
+- [03:50.640] going to love you. Thank you very much.
+- [03:52.480] Congratulations to as well as the mayor
+- [03:55.040] of Dearborn Heights, Mr. Bill Bazy.
+- [03:58.920] Bill, good job, Bill. And Bill actually
+- [04:02.319] is going to be the next ambassador to
+- [04:04.840] Tunisia. And that's big stuff. Those
+- [04:07.200] guys, you you're very upwardly mobile.
+- [04:09.280] You're doing very well. That's great.
+- [04:11.519] You're gonna have a tremendous time.
+- [04:13.120] Both great countries and enjoy it. Every
+- [04:17.040] day, we're keeping our promises to the
+- [04:18.880] Muslim community. My administration is
+- [04:21.040] engaged in relentless diplomacy to forge
+- [04:24.240] a lasting peace in the Middle East,
+- [04:26.479] building on the historic Abraham
+- [04:28.240] Accords, which everybody said would be
+- [04:30.080] impossible. And now we're going to start
+- [04:31.440] filling them out because, as you know,
+- [04:33.919] Biden did nothing to fill them out. We
+- [04:35.759] did absolutely. We had the four great
+- [04:37.520] countries and uh nothing happened uh
+- [04:41.120] despite the importance of the Abraham
+- [04:42.880] Accords, but I have a feeling it's going
+- [04:44.320] to fill out very quickly. It's already
+- [04:46.080] people are talking already about it.
+- [04:48.160] They should have had them long long ago.
+- [04:50.720] It should have been done. We're rapidly
+- [04:53.120] defeating inflation by reducing energy
+- [04:55.440] costs and even uh slashing the price of
+- [04:59.040] eggs by 50%. Doesn't sound like much,
+- [05:01.759] believe me.
+- [05:04.000] You know, when I got here, I was I was
+- [05:05.680] in one week and I was being hit by the
+- [05:08.639] fake news media. They were saying, "Egg
+- [05:10.880] prices have quadrupled." I said, "I just
+- [05:12.960] got here. I didn't even know." I said,
+- [05:14.240] "What's what's the problem with eggs?"
+- [05:16.320] But the problem with eggs was Joe Biden.
+- [05:18.560] That was the problem. He let them get
+- [05:20.000] out of control. And as you probably saw
+- [05:22.720] last uh last month, they went down 35%
+- [05:25.919] and the quantity uh is so much that I
+- [05:28.880] don't know. I think they're going to go
+- [05:29.759] down a lot further. We have a total of
+- [05:31.759] over 50% in a few weeks. Lindsay, I'd
+- [05:34.080] say that's pretty good. And nobody wants
+- [05:36.320] to talk about it. Now they don't want to
+- [05:37.759] talk about it. They talked about it when
+- [05:39.520] it went up under somebody else, but when
+- [05:41.199] it went down under me, they don't want
+- [05:42.639] to talk. So, we have to talk ourselves.
+- [05:45.039] If they won't say it, we have to say it,
+- [05:47.039] right? I learned that a long time ago.
+- [05:49.120] We're fighting for parents' rights and
+- [05:51.360] school choice, and we're stopping
+- [05:52.800] schools from indoctrinating children
+- [05:55.919] with transgender ideology. Something
+- [05:58.320] which the people of this room are not
+- [05:59.919] happy about. I know that for a fact. And
+- [06:02.560] uh it's a shame what's happened, but
+- [06:04.240] we're turning it around and turning it
+- [06:05.840] around at levels that nobody can even
+- [06:08.000] believe. I signed an order also, and I
+- [06:10.479] think very importantly also in
+- [06:12.000] particular for people in this room,
+- [06:13.840] we're keeping men out of women's sports.
+- [06:16.560] Is that okay? Men out of women's
+- [06:19.800] sports. The Muslim community was there
+- [06:22.319] for us in November. And while I'm
+- [06:24.000] president, I will be there for you. I'm
+- [06:26.319] going to be there for you. And uh I
+- [06:28.240] think you know that. And our two great
+- [06:29.680] mayors understand that. I said that I
+- [06:32.080] would see you after and I saw you after
+- [06:34.080] and uh I think you're doing better than
+- [06:36.240] we are. You're doing better than
+- [06:37.520] anybody. So, it's so it's so great. I'm
+- [06:39.600] so glad you're here. But as we approach
+- [06:41.759] the end of uh Islamic Holy Month of
+- [06:45.080] Ramadan, we're also deeply honored to be
+- [06:47.600] joined by many of the international
+- [06:49.600] friends and partners, including the
+- [06:51.199] ambassador from Saudi Arabia to the
+- [06:53.840] United States, a very, very special
+- [06:56.639] woman, Princess Reema. Princess, thank
+- [06:59.280] you. Thank
+- [07:01.000] you. Great. Say hello to everybody. It's
+- [07:04.400] great to see you. Thanks as well to the
+- [07:06.800] ambassadors and chiefs of mission from
+- [07:09.919] the United Arab Emirates from Jordan,
+- [07:13.360] Egypt, Kuwait, Qar, Pakistan, Malaysia,
+- [07:17.479] Brunai, Bahrain, Iraq, Oman, Morocco,
+- [07:23.319] Indonesia, Algeria, Djibouti, Cameroon,
+- [07:28.000] Lebanon, Nigeria, Gene, Tanzania, Kenya,
+- [07:33.759] the Mald dives.
+- [07:35.520] Libya, Sagal, Bangladesh, and we have a
+- [07:38.479] few others. I'm sorry if I forgot, but I
+- [07:40.639] am going to be in big trouble if I did,
+- [07:42.720] but uh that's a pretty good group of
+- [07:44.479] people represented tonight. Wouldn't you
+- [07:46.080] say, Senator? I think
+- [07:49.240] so. And we're greatly honored by your
+- [07:52.479] presence this evening. I just really
+- [07:54.240] want to thank you all. It's a special
+- [07:55.680] group. I look forward to it. You know,
+- [07:57.440] we have long days, not like other people
+- [08:00.000] that had this position. I work long
+- [08:02.479] hours. And I said tonight after making
+- [08:05.440] three calls for people running for
+- [08:07.440] office, uh they call them telet town
+- [08:09.520] halls and they're not easy to do. And uh
+- [08:12.319] I said, "Well, now I go home and can
+- [08:15.840] relax." They said, "No, you can't,
+- [08:18.520] sir. You're seeing your friends from
+- [08:20.960] lots of different places, and that's
+- [08:22.720] okay." As soon as I found out who they
+- [08:24.240] were, I said, "All right, that's okay."
+- [08:26.160] But Ramadan is a season of spiritual
+- [08:28.639] reflection and self-restraint. Every day
+- [08:31.039] during the sacred ninth month of the
+- [08:33.360] Islamic calendar, Muslims fast from dawn
+- [08:36.560] to dusk, deepening their focus on prayer
+- [08:38.959] and devotion to God. So nice. Then
+- [08:41.839] Muslims all over the world join family
+- [08:43.760] and friends each night and sundown to
+- [08:46.240] give thanks to the Almighty and break
+- [08:48.480] their fast with an ifar dinner just like
+- [08:51.519] this one. This is what we have tonight.
+- [08:53.200] Right, Paula? I hope you like it. If you
+- [08:55.440] don't like it, don't complain. Okay.
+- [08:58.480] You're still in the White House, right?
+- [09:00.720] We're all in the White House together.
+- [09:02.720] So, how bad can that be? So, tonight we
+- [09:05.200] gather with the goodwill and the
+- [09:06.640] gratitude for God's many blessings. And
+- [09:08.720] that's what it's all about. This
+- [09:10.640] tradition exemplifies the beautiful
+- [09:12.480] spirit of all three Abrahamic faith and
+- [09:16.399] the spirit that inspires us to seek
+- [09:18.560] happiness and prosperity at home and
+- [09:20.880] peace for the entire world. We're all
+- [09:22.880] looking for peace for the entire world.
+- [09:25.519] When I was in Michigan, I met with so
+- [09:27.279] many leaders of faith and uh I said,
+- [09:30.320] "What about your attitude here, your
+- [09:32.959] attitude there? All of the attitudes and
+- [09:35.360] all of the things I heard." They said,
+- [09:36.920] "Sir, all we want is peace." Right? You
+- [09:40.160] remember, Mr. Mayor? I said, "But I
+- [09:42.640] understand you don't mind death." They
+- [09:44.880] said, "No, sir. We want to live. We want
+- [09:47.200] to live and we want to be happy and we
+- [09:48.880] want to love everybody." And I actually
+- [09:51.680] uh it was a very
+- [09:53.480] inspirational period of time for me and
+- [09:55.600] I want to thank you also for introducing
+- [09:57.839] me to so many of your friends. It was
+- [09:59.600] absolutely incredible. Thank you very
+- [10:01.360] much. To our Muslim friends, I look
+- [10:03.920] forward to working with each of you to
+- [10:05.600] achieve a brighter and more hopeful
+- [10:07.360] future. And I think together we're going
+- [10:09.519] to do great. You're going to make
+- [10:10.560] strides like you've never made. You have
+- [10:12.240] somebody in the White House that loves
+- [10:14.160] you. Thank you all very much. And now
+- [10:16.000] we'll have a little dinner. Have a
+- [10:18.079] little dinner. Thank you. Thank you very
+- [10:20.160] much.

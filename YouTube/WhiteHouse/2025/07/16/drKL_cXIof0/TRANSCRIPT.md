@@ -1,0 +1,487 @@
+<!-- source: https://www.youtube.com/watch?v=drKL-cXIof0 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: drKL-cXIof0 -->
+<!-- date_published: 2025-07-16T00:42:09+00:00 -->
+<!-- date_accessed: 2026-06-02T01:20:24.475790+00:00 -->
+
+# Transcript: President Trump Gaggles with Press at Joint Base Andrews, July 15, 2025
+
+- [00:02.890] The President: Hello, Doug. Hello, everybody.
+- [00:05.600] How are you? We had a big day in Pittsburgh.
+- [00:08.060] $92 billion, but it's going to be closer to $100 billion
+- [00:13.290] is going to be invested by the biggest financial people
+- [00:17.240] in the world where we had everybody there from Larry Fink
+- [00:21.090] to everybody else you could imagine.
+- [00:24.060] And it was a really great day, and a very productive day.
+- [00:29.180] I think we're over now, as a country,
+- [00:30.950] we're over $15 trillion of investment
+- [00:34.630] and there's never been anything like that.
+- [00:36.300] In the history of our country,
+- [00:38.150] there has not been anything like it or even close.
+- [00:41.400] So okay, do you have any questions?
+- [00:43.690] The Press: Mr. President, are you --
+- [00:44.910] Mr. President, you announced the Indonesia deal today.
+- [00:47.090] You announced the Indonesia trade deal today.
+- [00:49.210] How many more trade deal beyond the letter
+- [00:51.500] will you announce before August first?
+- [00:53.540] Or --
+- [00:56.220] The President: We're working on probably five or six.
+- [00:58.910] Of the five or six,
+- [01:00.190] I'm not sure I really want to do them, you know.
+- [01:02.010] You want somebody that knows how to negotiate,
+- [01:05.370] but we'll probably have two or three.
+- [01:08.110] You know, we insist on opening up the country,
+- [01:10.260] which is a big deal.
+- [01:11.800] Indonesia was great. He's a great president.
+- [01:15.260] We made a, a terrific deal where they opened up
+- [01:17.670] the entire country to trade with the United States.
+- [01:20.950] We weren't allowed to go in and trade.
+- [01:24.000] I think something similar will happen with i-
+- [01:26.460] with, I would say India, and we have a couple of others.
+- [01:30.800] But I have to tell you, for the most part,
+- [01:32.720] I'm very happy with the letters, you know.
+- [01:35.150] The letters are a deal, you know.
+- [01:36.740] I can't explain it any better. The letters are a deal.
+- [01:40.110] The press doesn't want to pick that up,
+- [01:42.780] but I will veer from those deals on occasion
+- [01:45.560] when somebody is willing.
+- [01:47.190] Like if Japan would open up their country,
+- [01:49.230] they don't do that. They just don't do that.
+- [01:51.900] And I don't either,
+- [01:53.370] I don't subscribe to it one way or the other,
+- [01:56.350] but they won't do that.
+- [01:57.880] So, we might just stick with a letter.
+- [01:59.990] But South Korea is inclined to maybe do that,
+- [02:02.340] so we'll, we'll let you know, but we have letters out.
+- [02:05.240] Every time I send out a letter, essentially that's a deal.
+- [02:08.380] The Press: Mr. President, are the, are --
+- [02:09.760] but with, with, with the date you gave, August 1st,
+- [02:12.330] with the date that you gave of August 1st,
+- [02:14.270] why stick with the date
+- [02:15.580] if your thing that you're not able --
+- [02:16.920] The President: You know, payments,
+- [02:18.120] payments start on August 1st.
+- [02:20.040] The only thing about that's really sacred about August 1st
+- [02:23.190] is that's when payments start.
+- [02:25.360] So, they have to start paying billions of dollars
+- [02:28.620] to you and people.
+- [02:29.840] Are you a citizen of the country?
+- [02:31.080] The Press: Yes, sir.
+- [02:32.320] The President: All right, good. You'll be very happy
+- [02:33.720] 'cause you're going to be getting a lot of money.
+- [02:35.940] Just like they found a budget surplus,
+- [02:38.840] we have a budget surplus of $25 billion.
+- [02:42.230] Everyone said, "How did that happen?
+- [02:43.590] It hasn't happened in many years."
+- [02:45.570] It happened because of good management and tariffs.
+- [02:48.300] The Press: Mr. President. Do you have, sir --
+- [02:49.760] Do you plant to release -- sorry.
+- [02:51.280] Do you plan to release more details with Vietnam,
+- [02:53.920] China deals?
+- [02:55.140] You're, is there going to be a paperwork release to the public?
+- [02:57.350] The President: Well, I might.
+- [02:58.590] I don't think it matters how much you release of the deal.
+- [03:02.510] We have a Vietnam deal.
+- [03:04.980] And I would say that that deal is being pretty well set.
+- [03:10.110] Again, that's an opening of their country.
+- [03:11.940] They've opened it up.
+- [03:13.140] Just so you know, these were closed countries.
+- [03:14.970] They were wonderful people, wonderful leaders,
+- [03:17.770] very strong, smart leaders,
+- [03:19.700] but their countries were closed to us,
+- [03:21.890] but our country wasn't closed to them.
+- [03:24.540] And so, I said, "You gotta open up your country."
+- [03:26.920] So, we're going to see.
+- [03:28.180] But the Vietnam deal, we may open it.
+- [03:30.180] I mean, I don't know. I can't tell you.
+- [03:31.750] Is it necessary?
+- [03:33.000] Howard Lutnick: No.
+- [03:34.210] The President: Yeah, I don't think so.
+- [03:35.460] The Press: Mr. President, on Ukraine,
+- [03:36.900] why did you settle on giving Putin another 50 days?
+- [03:39.530] It seems like he's had a lot of time to come even close --
+- [03:41.430] The President: I don't think it's,
+- [03:42.640] I don't think it's a long time.
+- [03:44.040] I think really the question should be asked,
+- [03:46.240] why did Biden get us into that ridiculous war?
+- [03:49.090] Why did Biden bring us there?
+- [03:51.120] That should never, ever have happened that war.
+- [03:53.880] This is Biden's war. I'm just trying to end it
+- [03:56.530] because we're saving a lot of lives.
+- [03:58.370] The Press: Why do you think his opinion will change in 50 days
+- [04:00.700] when it hasn't over the last six months?
+- [04:03.250] The President: A lot of opinions change very rapidly.
+- [04:04.870] Might not be 50 days, might be much sooner than 50 days.
+- [04:07.640] The Press: Well, to that end,
+- [04:08.870] when do you think the first Patriot missiles,
+- [04:10.480] some of these weapons that our allies supply --
+- [04:12.060] The President: They're going to --
+- [04:13.350] they're already being shipped.
+- [04:14.550] The Press: From what countries?
+- [04:15.760] The President: They're coming in from Germany,
+- [04:16.990] and then replaced by Germany.
+- [04:18.560] And in all cases, the United States gets paid back in full.
+- [04:23.170] So what's happening is, you know, is the European Union,
+- [04:27.690] if you look, mostly European Union stuff,
+- [04:30.420] but let's put it in, in the form of NATO.
+- [04:32.840] It's very similar,
+- [04:34.160] but NATO is going to pay us back for everything.
+- [04:36.650] In some cases, we're going to be paid back
+- [04:38.840] by countries of the European Union directly.
+- [04:42.920] But we're always getting our money back in full,
+- [04:46.090] so we're not going to have any more investment to make.
+- [04:48.640] We're getting our money back in full.
+- [04:51.040] And if we can make a deal, that'd be great.
+- [04:53.760] We're saving 5 or 6,000 soldiers a week.
+- [04:56.740] They're Russian and they're Ukrainian soldiers.
+- [04:58.870] They're not American soldiers.
+- [05:00.870] And we won't have boots on the ground,
+- [05:03.090] but it's a shame, 5,000.
+- [05:06.820] Last week they say 7,100 soldiers,
+- [05:10.310] both Russian and Ukraine were killed.
+- [05:13.450] The Press: Can I ask you about Iran?
+- [05:14.720] Have you seen any progress in talks with Iran?
+- [05:16.660] We haven't really heard about that in a while.
+- [05:18.370] The President: Well, they want to talk.
+- [05:19.860] I'm in no rush to talk. They would like to talk.
+- [05:23.590] I'm in no rush to talk because we obliterated their site.
+- [05:27.550] They'd have to start all over.
+- [05:28.910] In fact, it's so obliterated to the point
+- [05:31.910] that it's not usable anymore.
+- [05:33.840] They'd have to pick a different mountain.
+- [05:36.520] That mountain is so blown up inside and so unstable
+- [05:41.910] that they would have to pick a different mountain.
+- [05:44.030] Ours -- our people really did the job.
+- [05:45.470] Yes, please.
+- [05:46.680] The Press: On the Fed, sir.
+- [05:48.640] Would you fire Jerome Powell over the Treasury renovation?
+- [05:51.810] The President: Well, he spent two
+- [05:53.150] and a half million dollars building this place.
+- [05:56.220] I have to say this, I think he's terrible.
+- [05:59.780] I think he's a total stiff.
+- [06:02.130] But the one thing I didn't see him
+- [06:03.590] is a guy that needed a palace to live in.
+- [06:06.280] You talk to the guy, it's like talking to a nothing.
+- [06:09.590] It's like talking to a chair.
+- [06:11.520] No personality, no high intelligence, no nothing.
+- [06:15.700] But the one thing I would've never guessed is
+- [06:17.660] that he would be spending two and a half billion dollars
+- [06:21.320] to build a little extension onto the Fed.
+- [06:23.090] The Press: Is that a fire-able offense, sir?
+- [06:24.350] The President: Nobody's ever seen that.
+- [06:25.580] I think it sort of is because
+- [06:27.570] if you look at his testimony to the House,
+- [06:31.300] to the Senate, you take a look at the testimony, it's under
+- [06:34.280] (inaudible)
+- [06:35.480] That whole thing is, and he's not,
+- [06:37.490] you know, he's not talking about the problem.
+- [06:39.440] It's a big problem. Two and a half billion
+- [06:41.700] and that's two and a half billion now.
+- [06:44.120] That's going to be a lot more money
+- [06:45.750] than two and a half billion to expand and with all of that
+- [06:49.510] to house thousands of people to give him information.
+- [06:53.040] And yet, out of the 71 economists,
+- [06:55.870] and they included me, me and one other person got it right.
+- [07:00.450] I got it right.
+- [07:01.770] And one other genius got it right.
+- [07:04.460] They had everybody else was wrong,
+- [07:06.140] 69 were wrong, and two were right.
+- [07:08.540] I was one of them.
+- [07:09.840] And I don't have a lot of people.
+- [07:11.690] I have our -- I have Doug, I have a few people.
+- [07:15.810] He has thousands of people and he got it wrong.
+- [07:19.310] No, I think when you spend two and a half billion dollars
+- [07:23.470] on really a renovation, I think it's pretty disgraceful.
+- [07:26.950] The Press: On the (inaudible) sir -- sir, have you-
+- [07:28.570] have you spoken to President Putin
+- [07:30.720] since your announcement yesterday?
+- [07:32.460] The President: No, I have not.
+- [07:33.840] The Press: Do think when you speak to him on the phone,
+- [07:35.960] does he say that he wants peace?
+- [07:37.190] The President: Yeah, he does.
+- [07:38.450] The Press: What does he -- what does he say to you?
+- [07:39.830] The President: He says he wants peace.
+- [07:41.100] He does.
+- [07:42.380] No (inaudible) all talk and no act.
+- [07:43.770] The Press: You believe him?
+- [07:44.980] The President: But you know, if you think about it, India,
+- [07:46.730] Pakistan, we did so many.
+- [07:49.020] The Congo, and I mean look at- look at the deals we've made.
+- [07:52.260] We made all these peace deals.
+- [07:55.040] Look at Rwanda, it was an impossible deal
+- [07:57.230] to make with the Congo. I made that.
+- [07:59.400] I made all of these deals, Serbia, Kosovo,
+- [08:02.670] and here's the one deal and actually Vladimir called me up.
+- [08:07.160] He said, "I'd love to help you with respect
+- [08:10.660] to making a deal with a couple of them."
+- [08:13.980] Like Iran. "I'd love to help you."
+- [08:16.410] I say, "Vladimir, I only want to help with one deal, Russia,
+- [08:20.510] because you're the only deal
+- [08:22.640] that we're not doing too well on."
+- [08:25.260] He oftentimes, oftentimes he said, no, he wants peace.
+- [08:30.140] And I think he does. I hope he does.
+- [08:31.770] We're going to find out soon.
+- [08:33.130] And it could be before the 50 days.
+- [08:34.720] The Press: Mr. President, twice yesterday
+- [08:36.120] when you were talking about this,
+- [08:37.440] you mentioned conversations you had with the First Lady
+- [08:40.250] after talking with President Putin.
+- [08:42.180] Has she influenced your thinking on this at all?
+- [08:45.070] The President: She's very smart. She's very neutral.
+- [08:48.670] She's very neutral in a sense. She's sort of like me.
+- [08:51.780] She'd like to see people stop dying.
+- [08:54.320] You know, people said, "Are you for one side or another?"
+- [08:56.910] I'm for the side of people stopping dying.
+- [08:59.870] We have 5,000, 6,000 and 7,000 people a week at least
+- [09:05.700] and that doesn't include people from the cities and towns
+- [09:09.380] that are having rockets lobbed in there.
+- [09:12.480] I mean, people are dying in the cities and towns too.
+- [09:15.190] But we're talking about 7,100 in the last eight days died.
+- [09:21.950] And I'm for- I'm for stopping that
+- [09:23.760] The Press: On the
+- [09:25.030] (inaudible), sir. Is Scott Bessent your Treasury Secretary,
+- [09:28.220] your number one option whenever Jerome Powell leaves or --
+- [09:30.770] The President: Well, he is an option.
+- [09:32.160] The Press: Is he your top option?
+- [09:33.370] And he is very good?
+- [09:34.600] The President: Well, he is not because I like the job
+- [09:36.170] he is doing. That's why he's not --
+- [09:38.190] (inaudible) I like the job.
+- [09:39.550] I don't know if he was on the plane.
+- [09:40.940] Was he on the plane? (inaudible)
+- [09:42.710] Maybe he wasn't, but I do like the job he's done.
+- [09:45.980] So in that sense, probably he's not that much of an option.
+- [09:50.020] Scott's been great. He's been terrific.
+- [09:51.870] He did a good job today.
+- [09:53.980] He's a very soothing part -- you know?
+- [09:56.230] It's soothing. All right.
+- [09:57.980] The Press: Mr. President,
+- [09:59.310] (inaudible) the pharmaceutical (inaudible)
+- [10:00.690] The President: The pharmaceuticals will be tariffed
+- [10:02.840] probably at the end of the month.
+- [10:04.850] And we're going to start off with a low tariff
+- [10:07.460] and give the pharmaceutical company a year or so to build.
+- [10:11.520] And then we're going to make it a very high tariff because --
+- [10:15.410] We got to move them and look, there's two ways you do it.
+- [10:18.290] You make money and- or- and/or you have them move here
+- [10:22.600] so they don't have to pay the tariff.
+- [10:24.260] Those are the two ways.
+- [10:25.470] The pharmaceutical companies are moving back to America
+- [10:28.870] where they should be.
+- [10:30.970] The Press: Semiconductor sir, that in the same timeline,
+- [10:33.510] the semiconductor tariff?
+- [10:35.280] The President: Similar, actually less complicated,
+- [10:39.430] but similar, semiconductors and chip.
+- [10:42.530] The Press: Mr. President, I know you've urged people to move on,
+- [10:44.480] but I'm curious,
+- [10:45.730] why do you think your supporters in particular
+- [10:47.880] have been so interested in the Epstein story?
+- [10:49.540] The President: I don't understand --
+- [10:50.780] The Press: So upset about how it's been handled.
+- [10:52.000] Why do you think that is?
+- [10:53.240] The President: I don't understand it.
+- [10:54.460] Why they would be so interested in --
+- [10:56.340] He's dead for a long time.
+- [10:58.930] He was never a big factor in terms of life.
+- [11:02.690] I don't understand what the interest
+- [11:04.820] or what the fascination is. I really don't.
+- [11:08.300] And the credible information's been given.
+- [11:11.280] Don't forget, we went through years of the Mueller witch hunt
+- [11:14.030] and all of the different things.
+- [11:15.810] The Steele dossier, which was all fake,
+- [11:19.090] all that information was fake.
+- [11:20.960] But I don't understand why the Jeffrey Epstein case
+- [11:24.020] would be of interest to anybody.
+- [11:25.960] It's pretty boring stuff. It's sordid, but it's boring.
+- [11:29.640] And I don't understand why it keeps going.
+- [11:33.130] I think well, really, only pretty bad people,
+- [11:36.610] including fake news, want to keep something like,
+- [11:38.790] like that going.
+- [11:40.000] The President: But credible information, let them give it.
+- [11:42.680] Anything that's credible. I would say let them have it.
+- [11:47.190] The Press: Mr., Mr. President, a question on AI.
+- [11:49.980] How do you want Americans to think about it?
+- [11:52.350] Are you concerned about job loss or privacy,
+- [11:56.120] or do you think this is a new technology?
+- [11:57.740] The President: What's interesting,
+- [11:59.110] because we need jobs. We need a lot of people to work.
+- [12:03.980] You know, we're building, we're going to be building
+- [12:05.660] very shortly hundreds of factories, including AI.
+- [12:09.010] We're building a lot of car factories.
+- [12:10.830] They're all coming in from other countries
+- [12:12.570] now in order to avoid paying the tariffs.
+- [12:15.430] And we need people working.
+- [12:17.480] The President: So if AI can help us with that,
+- [12:19.940] that's a positive.
+- [12:21.280] 'Cause we're not going to have enough workers
+- [12:22.800] to take care of it if we don't create something.
+- [12:25.260] So whether it's robots or whether it's AI,
+- [12:28.690] we need somebody to take care of.
+- [12:30.050] Do you agree with that?
+- [12:31.280] Howard Lutnick: I agree. So many jobs to fill.
+- [12:33.730] I mean, think about $15 trillion dollar.
+- [12:36.640] That's 5 million people working in these factories,
+- [12:40.390] building them, great high-paying jobs in America
+- [12:43.360] that President Trump has brought back.
+- [12:45.180] So those jobs, of course, are in the wing.
+- [12:48.920] So let's go, let's train America and let's get it going.
+- [12:52.760] The President: What do you (inaudible)
+- [12:54.610] That, what would you say about this job?
+- [12:56.230] Doug Burgum: Well, I think what, what AI as Howard
+- [12:58.010] and the President said,
+- [12:59.240] we're going to need more workers in this country
+- [13:01.010] because President Trump is the greatest economic developer
+- [13:04.410] that this country's ever had,
+- [13:05.980] that's brought back this record amount
+- [13:07.690] of foreign direct investment
+- [13:09.370] and a record amount of US investment
+- [13:11.310] going back into job creation.
+- [13:13.280] But the mix is going to change.
+- [13:15.220] AI will take jobs away like software development
+- [13:17.940] 'cause AI can write code.
+- [13:19.800] But AI can't wire a building, do plumbing.
+- [13:22.280] I mean, the kids go into the trades today,
+- [13:24.710] they're all going to be making 150 grand
+- [13:26.510] and they'll have amazing lives,
+- [13:28.340] build companies, start businesses.
+- [13:30.390] I mean, this is, this is part of the boom of America
+- [13:33.210] because middle class, working class,
+- [13:35.320] working Americans have, will never have had it as good.
+- [13:37.600] They have a lower taxes, lower regulation
+- [13:39.970] and more opportunities to go to work to build things.
+- [13:42.680] The President: We need people. We really need,
+- [13:44.670] 'cause we're building so many factories in the country.
+- [13:47.470] And so AI can help with that.
+- [13:49.310] But what also is going to help are going to be robots.
+- [13:52.250] You know, the robots I think are going to be a big deal
+- [13:54.720] and that's going to help also.
+- [13:56.020] The Press: On Russian sanctions, sir,
+- [13:57.870] on the, the secondary tariffs,
+- [13:59.460] are you concerned that secondary tariffs
+- [14:01.530] on buyers of Russian oil will hurt American consumers,
+- [14:03.740] higher gas prices --
+- [14:04.970] The President: I don't think so.
+- [14:06.190] I think that whole thing is going to go away eventually.
+- [14:08.850] It should have gone away. And Putin does say,
+- [14:10.660] "Oh, I want peace. I want peace,"
+- [14:12.480] but so far he hasn't lived up to that.
+- [14:14.420] So I think it's going to go away.
+- [14:15.870] But we're going to find out soon.
+- [14:17.180] We're going to find out soon.
+- [14:18.450] The Press: Can you give us more details on the sanctions?
+- [14:20.700] Is it 100 percent sanctions?
+- [14:22.120] The President: No, I don't want to do that.
+- [14:23.350] But they're very biting, they're very significant
+- [14:26.160] and they're going to be very bad for the countries involved.
+- [14:28.850] I mean, they'll be very, very powerful
+- [14:31.350] and very bad for the countries involved.
+- [14:34.090] And I hope we don't have to pull that string and maybe we won't.
+- [14:37.770] We'll see. Gotta end. Gotta stop the killing.
+- [14:41.530] The Press: Mr. President, were you frustrated today
+- [14:42.920] that the House wasn't able to move on that crypto legislation?
+- [14:45.250] The President: No.
+- [14:46.480] You know, the interesting thing is that 12 votes were votes
+- [14:49.610] where they wanted it to be stronger
+- [14:52.140] in terms of crypto people. I figured.
+- [14:55.120] Oh, wow. That's sort of interesting.
+- [14:56.990] 'cause I was focused really on today's meeting,
+- [14:59.130] not that, but the interesting is the votes,
+- [15:02.280] so negative votes were because they wanted it to be,
+- [15:05.220] and the safeguards, they wanted it
+- [15:06.490] to be stronger for people with Bitcoin or crypto.
+- [15:11.010] They wanted more strength, which is interest.
+- [15:13.480] The Press: What do you want to refine in the UK trade deal?
+- [15:16.490] The President: We have a little bit discussed,
+- [15:19.390] but the deal is really very well done.
+- [15:21.120] But I'll meet with the Prime Minister,
+- [15:22.530] we have a good relationship,
+- [15:24.360] and I think it's going to be --
+- [15:26.040] And it'll be very shortly,
+- [15:28.040] and it'll be probably in Aberdeen, Scotland.
+- [15:30.740] The Press: (inaudible) Mr. President, at the event
+- [15:32.160] (inaudible)
+- [15:33.440] when state decide statutes, would you like
+- [15:34.760] (inaudible) gerrymanders?
+- [15:35.960] The President: Say it again.
+- [15:37.340] The Press: When state decide statutes,
+- [15:38.560] would you like Republicans to redraw the Congressional?
+- [15:40.570] The President: Well, there's about four of them.
+- [15:41.840] I'll let you figure that one out.
+- [15:43.410] (laughs) But we have about four of them.
+- [15:45.440] In three cases it's one,
+- [15:47.730] and in one case it's two or three.
+- [15:50.940] And Texas would be five.
+- [15:52.230] The Press: Are you concerned California will turn around,
+- [15:53.810] and do the same thing?
+- [15:55.090] The President: Well, we'll fight them.
+- [15:56.320] You know, they're so corrupt in California,
+- [15:57.880] (laughs) you never know what's going to happen.
+- [15:59.420] But we've done pretty well in the courts in California,
+- [16:02.100] as you see, we're batting about a thousand, ultimately.
+- [16:06.340] We start off a little slow (laughs)
+- [16:07.720] and then we get a lot of hits.
+- [16:09.290] The Press: Mr. President,
+- [16:10.490] you said today at the event in Pittsburgh
+- [16:12.860] that if it wasn't for Mr. Lutnick and Mr. Bessent
+- [16:15.860] who want to do more deals,
+- [16:17.660] that you would basically just go with the letters.
+- [16:19.720] You've said that a few different times.
+- [16:21.230] I just want to clarify,
+- [16:22.720] do you just want to go with the tariffs, and- and --
+- [16:24.840] The President: No, I think they would like
+- [16:26.070] to make deals more than me. I'm satisfied with --
+- [16:29.840] but they would like to make deals more than me.
+- [16:32.320] I'm not saying they're wrong, I'll put it nice.
+- [16:34.410] I in my opinion, he and Scott,
+- [16:37.680] and maybe even Doug to a certain extent.
+- [16:40.410] You're more like me, I think.
+- [16:41.770] But, they would like to make deals more than me.
+- [16:43.760] I'm very happy with the deals the way they are.
+- [16:45.490] Doug Burgum: (inaudible)
+- [16:46.690] The President: Those are very -- right?
+- [16:48.030] Those are very simple deals that --
+- [16:50.020] Whatever the percentage is.
+- [16:51.670] And we base that in a lot of things,
+- [16:53.220] including the deficit and, you know, various things.
+- [16:55.990] And we, you know, I think it's a much faster way.
+- [16:59.610] Don't forget we'll be releasing a letter soon,
+- [17:02.380] talking about many countries that are much smaller,
+- [17:06.660] where you're not going to do letters per se.
+- [17:08.380] You might do an individual letter,
+- [17:09.750] but it's going to go very quickly.
+- [17:11.310] And the number will also be less.
+- [17:12.640] The Press: Which countries are those?
+- [17:13.860] The President: These are countries that are --
+- [17:16.420] many of them, you know, like 200 countries.
+- [17:19.240] You understand --
+- [17:20.490] Howard Lutnick: Arabian countries,
+- [17:21.740] (inaudible) African countries.
+- [17:23.070] You have a huge amount of countries that are small
+- [17:25.460] and the President's just going to deal with them
+- [17:27.480] sort of the way he thinks is the right way to deal with them.
+- [17:29.530] A big class.
+- [17:30.740] The President: We'll, we'll, probably set one tariff
+- [17:32.380] for all of them.
+- [17:33.600] The Press: Over 10 percent? Over 10 percent tariff?
+- [17:35.500] The President: Probably a little over 10 percent, yeah.
+- [17:37.290] The Press: Fifteen? 20?
+- [17:38.550] The President: We don't do a lot of business,
+- [17:39.840] but we do, you know, it's still significant.
+- [17:41.770] The Press: What about Israel, Mr. President?
+- [17:43.160] Is that related to your other --
+- [17:44.730] like the Gaza negotiations, is that tied up in other issues?
+- [17:47.810] The President: No, I think Israel's going to be --
+- [17:50.300] Israel's going to be fine.
+- [17:51.580] We had a great victory with Israel.
+- [17:53.620] That was a great, great victory.
+- [17:55.540] What we did with the B-2 bombers and all of that.
+- [17:59.520] And, you know, I never thought of it,
+- [18:01.780] but so many people are thanking me.
+- [18:03.500] They say, "No president had the guts to do it."
+- [18:06.440] Because, you know, this has been going on for 25 years.
+- [18:09.370] In fact, when the pilots came to the Oval Office,
+- [18:11.510] they said, "Sir, we and our predecessors
+- [18:14.880] have been working on this attack for 25 years."
+- [18:19.930] Have a good time, everybody.
+- [18:22.010] Thank you. Thank you very much.

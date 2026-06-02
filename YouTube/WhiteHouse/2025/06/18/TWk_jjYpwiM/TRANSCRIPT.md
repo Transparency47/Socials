@@ -1,0 +1,987 @@
+<!-- source: https://www.youtube.com/watch?v=TWk-jjYpwiM -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: TWk-jjYpwiM -->
+<!-- date_published: 2025-06-18T15:32:43+00:00 -->
+<!-- date_accessed: 2026-06-02T01:23:51.690526+00:00 -->
+
+# Transcript: President Trump Participates in New Flagpole Installation on South Lawn
+
+- [00:12.130] The President: The White House opened about 1800,
+- [00:15.790] a little before that, just a tad.
+- [00:19.270] And I've always said,
+- [00:20.590] why doesn't it have a flagpole through the grass?
+- [00:23.340] They got a flagpole from the --
+- [00:24.720] they have a little one on top, a very little one.
+- [00:27.670] This is about the largest you'll ever see.
+- [00:32.280] And it's tapered.
+- [00:33.920] It's at a quality that you guys rarely get to even put up.
+- [00:37.470] They do that for a living. They're incredible people.
+- [00:40.740] I don't know them, but I love them.
+- [00:43.170] And I would bet that they all voted for Trump.
+- [00:45.390] I mean, I don't know for a fact, but I think so.
+- [00:48.270] But we're about to lift it, and we also have one going on
+- [00:51.220] what's called the front or the north.
+- [00:53.290] We have one going there, identical.
+- [00:55.560] So, we'll have one on this side of the building.
+- [00:57.420] We'll have on on that side of the building properly placed.
+- [01:00.930] In this case, we had a lot of choices
+- [01:02.420] putting it on that hill, putting it in different places.
+- [01:05.650] It's such a beautiful pole. We thought we'd put it here.
+- [01:07.780] I mean it always looks -- it's best when it's near
+- [01:10.340] (inaudible).
+- [01:11.550] I put it right near. I have a similar pole.
+- [01:14.600] And these are the best poles anywhere in the country.
+- [01:17.770] Or in the world, actually. They're tapered.
+- [01:21.220] They have the nice top.
+- [01:24.080] You know, I don't know if you people are esthetic.
+- [01:25.850] You know they're the fake news.
+- [01:27.050] I don't know about this. I don't know about it.
+- [01:29.140] But it's a very exciting project to me.
+- [01:30.890] And then, at 11:00 we're lifting the flag.
+- [01:33.870] But we're going to lift the pole now,
+- [01:35.200] and then they're going to the other side, get that,
+- [01:36.960] and we're going to do, I think, two flag liftings.
+- [01:39.540] We'll be putting it up at 11:00 on here,
+- [01:41.890] and a couple of minutes later on the other side.
+- [01:43.810] We'll start here at 11:00.
+- [01:45.630] So that'll be very nice and very patriotic.
+- [01:47.790] We're doing well as a country.
+- [01:49.850] If the Fed would ever lower rates,
+- [01:51.650] you know, we'd buy debt for a lot less.
+- [01:53.950] It's a shame. This guy, I have a guy --
+- [01:55.550] do you ever have a guys that's not a smart person
+- [01:57.710] and you're dealing with him and you have to deal with him?
+- [01:59.650] He's not as smart as that.
+- [02:00.990] He's worried about inflation. I said, that's right.
+- [02:02.700] If there's inflation in six months or nine months,
+- [02:04.840] you lower the rates, you raise the rates.
+- [02:07.140] You can do whatever you want, Brian, right?
+- [02:09.400] So let's say there's rampant inflation, which there's none.
+- [02:12.830] You know what? There is a success.
+- [02:14.980] I got a call from Congress last night.
+- [02:16.650] Sir, there's a problem. I said, What is it? Money is pouring in.
+- [02:20.070] We don't know how to account for it.
+- [02:22.220] I said check the tariffs.
+- [02:23.940] Eighty-eight billion dollars came in from tariffs.
+- [02:26.370] No inflation.
+- [02:27.870] And it's going to get even more so.
+- [02:30.170] I know what I'm doing.
+- [02:31.440] So we have a stupid person, frankly, at the Fed.
+- [02:34.590] He probably won't cut today.
+- [02:36.270] Europe had 10 cuts, and we had none.
+- [02:40.300] And I guess he's a political guy. I don't know.
+- [02:42.280] He's a political guy who's not a smart person,
+- [02:45.130] but he's costing the country a fortune.
+- [02:47.430] So what I'm going to do is,
+- [02:49.550] you know, he gets out in about nine months.
+- [02:51.160] He has to -- he gets fortunately terminated.
+- [02:54.160] Biden -- I would have never reappointed him.
+- [02:55.910] Biden reappointed. I don't know why that is,
+- [02:57.890] but I guess maybe he was a Democrat.
+- [03:00.210] You know, he got great advice from Mnuchin on this one.
+- [03:03.170] Great advice. But he's done a poor job.
+- [03:07.400] So we have no inflation. We have only success.
+- [03:10.760] And I'd like to see interest rates get down.
+- [03:12.550] Now, Biden did a lot of very short-term debt.
+- [03:16.400] So we have short- term debt coming down.
+- [03:18.690] And because of this guy's rates, you know,
+- [03:21.450] if he'd lowered it a point, I'd pay about a point less.
+- [03:24.510] Then if he lowered two points, I'd paid about two points less.
+- [03:27.990] And that's for 10 years, 12 years, 15 years, five years.
+- [03:32.110] It's hundreds of billions -- it's even trillions of dollars.
+- [03:36.930] That we're going to lose because of this too late --
+- [03:39.400] they call him too late Powell because he's always too late.
+- [03:42.090] I mean, if you look at him, every time I did this,
+- [03:44.380] I was right 100 percent. He was wrong.
+- [03:47.090] Maybe I should go to the Fed.
+- [03:48.790] Am I allowed to appoint myself, Doug?
+- [03:50.250] I don't know. Am I allowed to appoint my self at the Fed?
+- [03:52.980] I do a much better job than these people.
+- [03:55.690] So anyway, we should be two points lower.
+- [03:57.540] It'd be nice to be two and a half points lower.
+- [04:00.070] We'd be saving $800 billion, $700 billion.
+- [04:05.270] That's a lot of money.
+- [04:06.990] For nothing, for absolutely nothing.
+- [04:09.510] We'd save six, seven, 800 billion dollars.
+- [04:13.870] We have, I think we're 38th now in interest,
+- [04:17.090] and we should be number one. We should be the lowest.
+- [04:20.020] But, and by the way, if he's worried about inflation,
+- [04:22.810] that's okay. I understand that.
+- [04:24.310] I don't think there's going to be any.
+- [04:25.820] So far, there hasn't. We have almost no inflation.
+- [04:28.720] We've done a great job.
+- [04:30.340] We had -- when I came in, we had a lot of inflation.
+- [04:33.260] We went through four years of the highest inflation
+- [04:35.820] and the history of our country with Sleepy Joe Biden.
+- [04:39.860] And Sleepy Jo.
+- [04:42.500] And he didn't know what the hell he was doing.
+- [04:44.510] And so we had the highest inflation
+- [04:47.700] we've ever had in the history of our country.
+- [04:50.750] And then it came down because when I got elected,
+- [04:52.520] it started dropping
+- [04:53.730] because people understood that I knew what I was doing,
+- [04:56.310] but now we have a man that just refuses to lower the Fed.
+- [05:00.450] Just refuses to do it. And he's not a smart person.
+- [05:04.450] I don't even think he's that political.
+- [05:06.030] I think he hates me, but that's okay. He should.
+- [05:08.890] He should. I call him every name in the book,
+- [05:10.530] trying to get him to do something.
+- [05:11.800] I've been nice to him. I do it always,
+- [05:13.680] (inaudible) how to sell.
+- [05:15.050] I've be so nice to them fellas, you wouldn't be --
+- [05:16.900] like, let's have dinner. Too late, I've gone too late.
+- [05:20.360] Come on, too late, let us have dinner.
+- [05:21.910] I do every way in the book. I'm nasty, I'm nice.
+- [05:25.580] Nothing works, he's like just a stupid person.
+- [05:29.530] But I don't expect anything, maybe he does a little bit.
+- [05:33.140] We should be two and a half points out of it.
+- [05:34.610] Remember, Europe had 10 cuts. We had none.
+- [05:38.710] We're paying more rate, more interest
+- [05:40.810] than a lot of European nations that can't carry our suitcase.
+- [05:46.040] I'm going to be nice. This is another expression.
+- [05:48.270] You know what the other expression,
+- [05:49.710] can't carry your you-know-what
+- [05:51.430] but I shouldn't use it in front of the fake news.
+- [05:54.080] So it's very sad to see it.
+- [05:55.580] And what I'm going to do is I'm going to go very short-term,
+- [05:59.160] like six months, seven months, eight months.
+- [06:00.760] Wait until this guy gets out.
+- [06:02.760] Get the rates way down, and then go long term.
+- [06:05.710] Because we have a tremendous appetite for our debt.
+- [06:09.460] Because our country is doing well.
+- [06:10.730] But think of it, I got a call from Congress three nights ago.
+- [06:14.040] Sir, we can't account for the money coming in.
+- [06:16.810] I said, that's a good problem.
+- [06:18.240] You know, the bad problem is we don't have any money.
+- [06:21.100] They can't account. There's so much more money
+- [06:22.940] than we thought is coming into the Treasury.
+- [06:26.040] We don't know where it's coming from, sir.
+- [06:28.100] I said check out the tariffs. He calls back about a day later.
+- [06:31.860] Wow, I think you were right.
+- [06:34.320] I was right. That's nothing. You haven't seen anything yet.
+- [06:36.780] More importantly than the money coming in,
+- [06:38.920] we have factories being built -- AI, auto factories.
+- [06:42.780] Two of them stopped yesterday in Mexico, you read,
+- [06:46.620] and they're coming here
+- [06:47.960] because they don't want to pay the tariffs.
+- [06:49.310] They can't pay the tariffs. It doesn't work.
+- [06:51.650] So, I just want to wish you a lot of luck
+- [06:55.150] with the new flagpole. We have two of them.
+- [06:57.300] And we're going to do this one now,
+- [06:58.750] then we're gonna do the other one at 11 o'clock or so.
+- [07:00.700] We're going to have a flag raising, which would be great.
+- [07:03.400] And I got to get these guys back to work.
+- [07:05.600] They're making a fortune.
+- [07:06.800] They're standing around making a fortune.
+- [07:09.870] But remember, there's somewhere in this group,
+- [07:12.260] there's somebody that is going to captivate
+- [07:14.910] some movie producer.
+- [07:17.290] Not Harvey Weinstein, but Harvey's seen a better day.
+- [07:22.290] So it won't be Harvey, but it will be somebody.
+- [07:24.050] And they'll say, that guy is perfect for a movie.
+- [07:28.140] And you're going to become a star,
+- [07:29.390] and your friends are going to call you,
+- [07:30.630] and you won't even return their phone call anymore.
+- [07:32.580] He'll say what do you do for a living?
+- [07:34.980] I put up flagpoles. I'm not even going to talk to you.
+- [07:38.190] I'm a big movie star. So, some way you may have that.
+- [07:41.980] Anyway, let's have a good -- they call it a lifting.
+- [07:46.710] They also use another word, but I'm going to use that word.
+- [07:49.010] Do you know what that is? The word -- it starts with an E.
+- [07:52.750] You know what the word is?
+- [07:54.350] If I ever used it, I'd be run out of town by you people.
+- [07:57.680] All right. So, enjoy it.
+- [07:58.940] Doug, you're going to get some good --
+- [08:00.270] he's going to win another Nobel Prize,
+- [08:01.960] I think, for this picture.
+- [08:03.630] So, maybe the flag will be even more exciting.
+- [08:05.900] But this is pretty exciting. That's some equipment.
+- [08:08.380] I'll tell you what. Look at that flag.
+- [08:10.550] That's so beautiful equipment.
+- [08:12.750] It's nothing like America. Have a good time.
+- [08:14.800] The Press: Mr. President,
+- [08:16.130] have you been given to answer questions
+- [08:17.610] about whether you are moving closer
+- [08:19.950] or you believe that the U.S.
+- [08:21.200] Is moving closer to striking Iranian nuclear facilities?
+- [08:24.070] Where's your mindset on that?
+- [08:25.370] The President: Well, obviously, I can't say that, right?
+- [08:27.390] You don't seriously think I'm going to answer that question.
+- [08:30.010] Will you strike the Iranian nuclear component
+- [08:33.730] an what time, exactly, sir? Sir, would you strike it?
+- [08:37.630] Would you please inform us so we can be there and watch?
+- [08:41.100] You don't know that I'm even going to do it.
+- [08:42.760] You don't know. I may do it, I may not do it.
+- [08:44.750] I mean, nobody knows what I'm going to do.
+- [08:46.140] I can tell you this, that Iran's got a lot of trouble.
+- [08:51.430] And they want to negotiate.
+- [08:53.570] And I said, why didn't you negotiate with me before?
+- [08:55.850] All this death and destruction, why didn't you negotiate?
+- [08:58.730] I said to people, why didn't you negotiate with me two weeks ago?
+- [09:03.240] You could have done fine. You would have had a country.
+- [09:07.360] It's very sad to watch this.
+- [09:09.140] I mean, I've never seen anything like it.
+- [09:11.380] So, you know, everyone thought it was going to be the reverse.
+- [09:13.920] I didn't -- I didn't think so.
+- [09:15.580] And I was telling them, you got to do something,
+- [09:18.160] you got to negotiate. And at the end, last minute,
+- [09:21.120] they said, no, we're not going to do that.
+- [09:22.740] And they got hit. Remember, 60 days,
+- [09:25.330] and then came the 60 --
+- [09:26.700] 61 is going to become a very famous number.
+- [09:28.910] That was one hell of a hit, that first hit.
+- [09:31.400] That was one hell of a hit. Not sustainable, to be honest.
+- [09:34.260] That's where -- it ended on the first night. Yes?
+- [09:36.380] The Press: Is it too late though?
+- [09:37.670] Do you think it's too late
+- [09:38.940] to now make a deal with the government?
+- [09:40.650] The President: The only thing too late is Powell.
+- [09:43.400] Powell's too late. Too late Powell.
+- [09:44.750] The Press: Have the Iranians
+- [09:46.030] reached out to you, Mr. President?
+- [09:47.290] The President: What?
+- [09:48.490] The Press: Have the Iranian's reached out you?
+- [09:49.770] The President: Yes.
+- [09:50.980] The Press: And what did they say?
+- [09:52.530] The President: I said it's very late.
+- [09:53.790] It's very late, you know?
+- [09:56.680] I said it's very late to be talking.
+- [10:02.610] I don't know.
+- [10:03.860] There's a big difference between now and a week ago, right?
+- [10:06.840] The Press: Mr. President, you just about said we may meet.
+- [10:10.090] This is about Vance and Witkoff possibly going to talk with
+- [10:12.510] (inaudible).
+- [10:13.710] The President: (inaudible) just about anybody.
+- [10:14.950] They even suggested they come to the White House.
+- [10:16.700] It's a big difference.
+- [10:19.200] But they've suggested that they come to the White house.
+- [10:22.710] That's, you know, courageous,
+- [10:25.100] but you know, it's like not easy for them to do.
+- [10:28.170] But they suggested, because I can't go now
+- [10:30.190] because of what's going on.
+- [10:31.500] I had to come back early from the G7, which was terrific,
+- [10:33.990] by the way, in Canada. Really terrific. Good people.
+- [10:36.410] The Press: Is there a possibility of next week
+- [10:38.060] or sooner that you're -- these officials --
+- [10:39.950] The President: Well, I don't know how much longer
+- [10:41.260] it's going to go on. They're totally defenseless.
+- [10:44.060] They have no air defense whatsoever.
+- [10:47.620] Totally captured.
+- [10:49.140] You know, we've totally captured the air, Brian.
+- [10:51.950] The Press: You've been fairly compassionate
+- [10:53.600] towards the Iranian people --.
+- [10:55.640] The President: It's human. They're human beings.
+- [10:56.920] I know a lot of people from Iran, from New York,
+- [10:59.040] from Washington, mostly from New York.
+- [11:01.290] They're incredible people. They're smart.
+- [11:03.680] They are energetic.
+- [11:05.030] They can be difficult, but so can you.
+- [11:07.750] You know? No, they're great people.
+- [11:09.420] They're smart people,
+- [11:11.180] and those people are getting the hell beat out of them now.
+- [11:15.080] And it's really a shame. It's so stupid.
+- [11:17.640] It's so stupid. This is another one.
+- [11:19.270] You know, Russia and Ukraine are so stupid,
+- [11:21.390] would have never happened if I was President.
+- [11:23.780] You guys agree with that?
+- [11:25.150] Would have never happen if I were President.
+- [11:27.970] Putin would have never done it.
+- [11:29.250] And I spoke to him yesterday, and I said, you know,
+- [11:32.020] he actually offered to help mediate.
+- [11:33.750] I said do me a favor. Mediate your own.
+- [11:36.080] Let's mediate Russia first, okay?
+- [11:38.630] I said, Vladimir, let's mediate Russia first.
+- [11:41.390] You can worry about this later.
+- [11:43.420] But I think that's going to work out, too.
+- [11:46.280] But so many people have been killed.
+- [11:48.870] The big thing with that one is far more people are dead
+- [11:52.470] than have been reported in the Ukraine-Russia.
+- [11:55.370] Many, many more people. A building falls down.
+- [11:58.020] They say nobody was hurt.
+- [12:00.390] The Press: What does unconditional surrender mean?
+- [12:02.850] The President: Well, you know what it means.
+- [12:04.620] Unconditional surrender. Two very simple words.
+- [12:06.510] Very simple. Unconditional surrender.
+- [12:08.850] That means I've had it.
+- [12:10.440] Okay, I've had it, I give up, no more.
+- [12:13.690] Then we go blow up all the, you know,
+- [12:15.420] all the nuclear stuff that's all over the place.
+- [12:18.950] No, they had bad intentions.
+- [12:20.210] You know, for 40 years, they've been saying,
+- [12:22.920] death to America, death to Israel,
+- [12:24.850] death to anybody else that they didn't like.
+- [12:27.330] They were bullies. They were schoolyard bullies,
+- [12:33.000] and now they're not bullies anymore,
+- [12:34.430] but we'll see what happens.
+- [12:35.670] Look, nothing's finished until it's finished.
+- [12:37.290] You know wars are very complex. A lot of bad things can happen.
+- [12:40.430] A lot of turns are made. So I don't know.
+- [12:42.790] I wouldn't say that we won anything yet.
+- [12:45.650] I would say that we sure as hell made
+- [12:48.150] a lot of progress and we'll see.
+- [12:50.530] The next week is going to be very big,
+- [12:52.070] maybe less than a week, maybe less.
+- [12:54.510] But is there anybody here that said it would be okay
+- [12:56.800] to have to have a hostile, very, you know, zealots really,
+- [13:02.150] but to have a hostile country have a nuclear weapon
+- [13:05.140] that could destroy 25 miles,
+- [13:09.530] but much more than that, could destroy other nations
+- [13:12.030] just by the breeze blowing the dust.
+- [13:14.450] You know, that dust blows to other nations,
+- [13:16.250] and they get decimated.
+- [13:17.470] This is just not a threat you can have.
+- [13:19.660] And we've been threatened by Iran for many years.
+- [13:22.750] And if you go back and look at my history,
+- [13:24.800] if you go 15 years,
+- [13:26.170] I was saying, we cannot let Iran get a nuclear weapon.
+- [13:29.400] I've been saying it for a long time.
+- [13:31.330] I mean it more now than I ever meant.
+- [13:33.670] Yeah.
+- [13:34.950] The Press: Question on deportations, Mr. President.
+- [13:36.730] You said last week that changes would be coming for farmers
+- [13:39.880] who've seen a lot of the workers they rely on taken away.
+- [13:43.340] But then DHS said this week
+- [13:44.940] that worksite enforcement would remain in place.
+- [13:50.490] The President: Look, we've got to get the bad people
+- [13:52.080] out of here first, and we're doing that.
+- [13:53.490] We're taking them out by the thousands.
+- [13:55.150] Murderers, drug dealers,
+- [13:58.170] people that are mentally insane from insane asylums.
+- [14:01.530] What they gave to us, fellas, they -- do we have anybody
+- [14:04.920] (inaudible)
+- [14:06.130] ee've known all these people for a long time.
+- [14:10.020] Any illegal immigrants in here? If they would, they'll find out.
+- [14:14.140] They'll be checking you, and you won't believe it.
+- [14:17.180] Your whole life will be destroyed
+- [14:18.630] because of this press conference.
+- [14:20.450] They'll destroy these people.
+- [14:22.030] I didn't want to tell them that before this.
+- [14:24.660] They'll end up being, he's a so-and-so.
+- [14:27.440] This one is from you-know-where.
+- [14:30.890] I think you're going to be okay. I'll be right behind you.
+- [14:36.010] Far behind you, far behind you! I'll right behind.
+- [14:39.060] No, look, we have to take care of our farmers.
+- [14:41.830] We have to take care of people that run leisure hotels.
+- [14:44.690] I mean, we've got to take of them.
+- [14:46.930] But most importantly,
+- [14:48.180] we have to get the criminals out of our country.
+- [14:50.740] And Biden let in thousands and -- 11,888 murderers.
+- [14:56.040] Many of them murdered more than one person.
+- [14:58.220] Can you believe it?
+- [14:59.450] Almost 50 percent of them murdered more that one person,
+- [15:02.260] and he let them into our country!
+- [15:03.990] They emptied out the jails of countries
+- [15:05.860] from all over the world, from the Congo, from Venezuela.
+- [15:09.120] From all over the place.
+- [15:10.340] They emptied out, there's just many of them.
+- [15:11.900] I would, if I were running one of the countries,
+- [15:13.830] I would have emptied my prison population into the U.S.,
+- [15:17.140] and many countries did.
+- [15:18.830] And we're getting them out, okay?
+- [15:20.590] We're getting him out. Thank you very much.
+- [15:22.410] Let's watch this. Brian, go ahead.
+- [15:24.330] The Press: I'll just do a follow up on the immigration question?
+- [15:26.600] Can you comment on the impact of the Trump card,
+- [15:28.730] and how much revenue does it potentially cost?
+- [15:30.270] The President: Yeah, we have a thing called the Trump card.
+- [15:32.920] This has not been done before or thought of.
+- [15:35.780] And for five million dollars, this is usually people
+- [15:39.220] that would either be working for companies,
+- [15:41.120] like Apple I think is going to buy a lot of them,
+- [15:43.460] because they can't get people into the country.
+- [15:45.190] You know, if you come in through the southern border,
+- [15:46.760] you have no problem. You can be a criminal,
+- [15:48.890] you can be a drug dealer, and you have not problem.
+- [15:50.650] But if you go and graduate number one in your class
+- [15:53.520] from a great school, you cant get a job
+- [15:55.330] because there's no access to getting here.
+- [15:59.440] You can't get a green card.
+- [16:01.420] So, we're going to sell that to people,
+- [16:05.190] in some cases, wealthy, and some cases not wealthy.
+- [16:07.440] They'll be paid for by universities.
+- [16:09.960] Look at Harvard. They've got $53 billion.
+- [16:14.520] That whole thing is coming to an end.
+- [16:16.600] It's amazing what we found out.
+- [16:19.180] What a disgrace? They have $53 million.
+- [16:22.550] We gave them five, six, and, some people say,
+- [16:24.710] it's as much as $9 billion over a short period of time.
+- [16:28.950] So that's very much coming to an end.
+- [16:30.710] They want to make a deal more than --
+- [16:32.680] I would say Harvard wants to make deal more then
+- [16:34.840] Iran wants to make a a deal, and Iran wants to make the deal.
+- [16:39.150] But, I mean, a lot of things -- look,
+- [16:41.680] a lot of thing are happening on a lot of fronts, Brian.
+- [16:44.990] A lot of good things are happening.
+- [16:47.250] And frankly, you know, it's a little bit of a --
+- [16:49.970] as we used to say, liberal. Now they say progressive.
+- [16:52.320] I use the word liberal. Progressive is too nice a word
+- [16:54.640] because they're destroying the country.
+- [16:56.860] They're really destroying these --
+- [16:58.370] the liberal politicians are destroying our country.
+- [17:00.780] Look what they've done during Biden's four years, doesn't it?
+- [17:04.050] We're working on -- I mean, so much of our effort
+- [17:06.660] goes to getting people out of the country
+- [17:08.290] that should have never been here in the first place.
+- [17:10.870] What he -- what he's done to this country -- it's not him.
+- [17:12.960] He had no idea what was going on.
+- [17:14.270] Everybody knows that. It's other people.
+- [17:17.310] It's Lisa and this one and that --
+- [17:19.380] all these people, all the scum that was around the Oval --
+- [17:23.600] you know, the Oval Office or --
+- [17:25.610] around the beautiful resolute desk,
+- [17:27.290] telling this guy, here, do this, do that,
+- [17:29.650] and not even telling him.
+- [17:31.330] They'd just go over to the auto pen and sign
+- [17:33.510] whatever the hell they wanted to sign.
+- [17:35.270] Because say what you want about Biden.
+- [17:36.600] He wasn't for open borders.
+- [17:38.380] He wasn't for transgender for everybody.
+- [17:40.490] He wasn't for men playing in women's sports.
+- [17:44.200] But he has no idea what the hell -- he has no idea.
+- [17:47.490] And they were very upset. They wanted Bernie Sanders.
+- [17:51.870] And after about a week of this guy
+- [17:53.250] they said, wait a minute, we just hit gold.
+- [17:56.400] This guy has no clue. He'll do anything we tell him.
+- [17:59.530] And then they realize they don't even have to get permission.
+- [18:02.520] They just go up to the auto pen. That's a subversion.
+- [18:06.580] That's the takeover of our government.
+- [18:09.150] And you people ought to start looking at it. That's takeover.
+- [18:11.910] Not only did they cheat. I guess you saw it yesterday.
+- [18:14.260] It came out with China and the license plates.
+- [18:17.510] Tens of thousands of cards.
+- [18:20.080] They used those cards to vote on the second election,
+- [18:22.530] my second, the one 2020.
+- [18:25.310] Because as everybody here knows, I won that election by a lot.
+- [18:28.940] But the only good thing I can say is,
+- [18:30.400] this is a much more historic term
+- [18:33.490] than I think I could have had as a second term.
+- [18:35.410] This is a more historic election.
+- [18:38.570] And now we're going to put up a beautiful flagpole,
+- [18:40.730] and we're going to put up the flag.
+- [18:43.080] And I hope you enjoy it.
+- [18:44.280] And let's see how real people work.
+- [18:47.780] These are real people. You're not real people,
+- [18:49.470] because your job is so easy. Okay? Thank you very much.
+- [18:52.010] The Press: Ms. President, how tall is the flagpole?
+- [18:54.270] The President: Close to 100 feet.
+- [18:55.500] The Press: Real quick on Pakistan,
+- [18:56.740] you have meetings today with the Pakistan
+- [19:02.960] (inaudible).
+- [19:05.670] What are you looking forward to achieving diplomatically?
+- [19:08.360] The President: Well, I stopped a war between Pakistan.
+- [19:11.570] I love Pakistan. I think Modi is a fantastic man.
+- [19:15.020] I spoke to him last night.
+- [19:16.270] We're going to make a trade deal with Modi of India.
+- [19:21.770] But I stopped the war between Pakistan and India.
+- [19:25.460] This man was extremely influential
+- [19:27.690] in stopping it from the Pakistan side,
+- [19:30.060] Modi from the India side, and others.
+- [19:33.540] And they were going at it, and they're both nuclear countries.
+- [19:35.990] I got it stopped. I don't think I had one story.
+- [19:37.750] Did I have one story written about it?
+- [19:39.670] I stopped a war between two major nations,
+- [19:42.480] major nuclear nations. I don't think I have a story
+- [19:45.610] written about it, but that's okay.
+- [19:47.530] You know why? The people know. The people know.
+- [19:50.560] Did anybody write that story about the war?
+- [19:53.280] Did you write it? Did you write it?
+- [19:55.910] The Press: Of course.
+- [19:57.180] (talking simultaneously)
+- [20:01.650] The Press: Any adjustments that need to be made
+- [20:03.440] for Marine One departures in (inaudible)?
+- [20:05.450] The President: No, no, we put it so that Marine One
+- [20:07.030] is very far away.
+- [20:08.320] We did it in conjunction with the Air Force,
+- [20:10.850] with everybody, and everybody signed off on it.
+- [20:13.770] We know we have to have it far away, it's very far from --
+- [20:17.020] Marine One's out there. It's out in the field.
+- [20:20.180] So you have to a certain distance.
+- [20:21.590] We're about three times that distance, okay?
+- [20:23.590] Thank you very much, everybody.
+- [20:24.940] The Press: (inaudible)
+- [20:26.180] you told Prime Minister Netanyahu
+- [20:28.420] about getting involved?
+- [20:29.700] Female Speaker: Thank you, press.
+- [21:00.080] The President: You have a good view over there?
+- [21:01.400] If you want, you can come over here.
+- [21:02.930] Come on over here, come on over here.
+- [21:18.160] The Press: Mr. President,
+- [21:19.430] what do you say to the Supreme Leader of Iran
+- [21:21.800] who says yes, he will not surrender?
+- [21:24.450] The President: I say good luck.
+- [21:29.000] The Press: When does your patience run out?
+- [21:30.810] The President: It's already run out.
+- [21:32.590] That's why we're doing what we're doing.
+- [21:35.830] They had 60 days and a big, you know, 60 days,
+- [21:38.380] plenty of time, and they made a mistake.
+- [21:41.230] Honestly, they made a mistake. Their country's in ruins.
+- [21:45.020] (inaudible)
+- [21:46.350] people are dead. They shouldn't be dead.
+- [21:54.910] Come on over here, you don't have to ruin your shoes.
+- [21:57.480] That's why we're changing the grass.
+- [22:00.190] (inaudible)
+- [22:12.690] You know, when they're outside, they're very noisy,
+- [22:14.780] they snap in the wind.
+- [22:16.610] The Press: Mr. President,
+- [22:18.920] this is a personal project for you, sir?
+- [22:22.310] The President: It is, yeah. Well, I'm paying for it.
+- [22:24.140] The Press: Did you spend your own money on it?
+- [22:25.580] The President: Yeah. The Press: Wow.
+- [22:27.690] The President: I'd say each pole was like $50,000.
+- [22:29.760] The Press: Are you going to update the ballroom?
+- [22:32.280] The President: Yeah, we start pretty soon.
+- [22:34.000] We have a beautiful ballroom. Good question.
+- [22:37.350] Right here, see it?
+- [22:40.430] (inaudible) goes from here all the way.
+- [22:42.260] See the big piece of land over here?
+- [22:44.820] Goes all the way over to there.
+- [22:47.570] We're using one of the top architects.
+- [22:49.800] The Press: How large will the flag speak?
+- [22:52.490] The President: They're big, they're beautiful, they are big.
+- [22:56.290] The Press: Mr. President, do you still intend to go to
+- [22:59.060] (inaudible)?
+- [23:00.260] The President: Yeah (inaudible).
+- [23:03.420] Amazing equipment, isn't it, when you think, huh?
+- [23:06.640] What they do, the mind, what they can develop.
+- [23:09.620] Now, look, these are -- they don't know what we're doing.
+- [23:13.290] They don't know it's tough, it's easy.
+- [23:14.870] They just want to put up flags and go to work.
+- [23:17.260] These are great workers.
+- [23:18.580] The Press: What gave you the idea to do this?
+- [23:20.300] The President: I've had it for a long time.
+- [23:22.490] The -- the first time I had it, but, you know,
+- [23:25.490] you guys were after me, I said I had to focus.
+- [23:28.830] I was the hunted, and now I'm the hunter.
+- [23:32.470] It's a big difference. Big difference.
+- [23:34.960] But he was the same no matter what.
+- [23:36.740] The Press: Yeah, it is surprising
+- [23:39.240] that out of all the presidents we've had,
+- [23:42.320] this has never taken place. It's crazy.
+- [23:45.290] The President: Look, there's a little flagpole
+- [23:46.610] that's like 15 feet high. A little tiny flag up top.
+- [23:50.690] This is the real deal. This is best you can get.
+- [23:52.910] There's nothing like this.
+- [23:55.100] You know, most of her 20 feet, 25 feet.
+- [23:58.020] This is close to 100 feet.
+- [24:00.660] And I think it's a great location.
+- [24:02.750] When you put it out there, people don't appreciate it.
+- [24:05.840] And then we're going to do a flower bed around it.
+- [24:07.650] Beautiful flower bed. Bigger than that.
+- [24:10.780] So you have the pole and then you have the flowers.
+- [24:13.600] The Press: When are you going to come out here
+- [24:14.830] and hit some golf balls?
+- [24:17.720] When you find time in your schedule.
+- [24:19.330] The President: Thirty-five club championships.
+- [24:20.900] You all know that. Thirty-five club championships,
+- [24:23.390] I haven't hit a ball in three weeks, four.
+- [24:26.450] The Press: It's time to get out there.
+- [24:29.150] The President: Been a little busy.
+- [24:30.800] Would you rather have me be doing what I'm doing in the end.
+- [24:34.970] See, the way they have that hoisting is great.
+- [24:37.410] Because if you lift it up from one --
+- [24:40.350] you have to lift it from the bottom.
+- [24:42.730] You have to get it there. But if you lifted it from --
+- [24:45.220] without that, the whole thing would split.
+- [24:49.430] Because it's in big sections, and they connect so incredibly.
+- [24:55.610] The Press: Mr. President, while we're watching could I ask
+- [24:57.150] when was the last time you spoke with Governor Newsom?
+- [25:00.350] The President: Well, the phone call
+- [25:01.720] that he said I didn't make,
+- [25:03.030] that I documented, did you see that?
+- [25:05.040] I haven't spoken to him.
+- [25:07.900] The Press: That was the last time.
+- [25:09.120] The President: That was the last time.
+- [25:10.400] The Press: Any changes to the troops being deployed there?
+- [25:12.460] The President: I won the case yesterday.
+- [25:13.820] I didn't read that I won it,
+- [25:15.130] because I don't think anybody wrote it.
+- [25:16.480] They only write it when I lose it.
+- [25:20.490] Did you notice I won that case?
+- [25:22.230] The Press: Ninth Circuit.
+- [25:23.470] The President: You know what's interesting here?
+- [25:25.610] Is that when it goes in, they then put sand inside.
+- [25:29.740] And if they use dirt or anything else other than sand,
+- [25:32.040] it rots out the pole over a period of years.
+- [25:35.300] But the sand, for some reason, chemically, just works.
+- [25:40.610] It gives you flexibility.
+- [25:42.460] And it doesn't do anything to the cask. It's amazing.
+- [25:45.920] So watch when -- so that's -- that's nine feet deep.
+- [25:50.070] And then -- boy, it's a beautiful --
+- [25:52.200] that's a perfect ball for this.
+- [25:53.400] The Press: Oh, so it's going nine feet down.
+- [25:54.620] The President: It goes nine feet down.
+- [25:56.270] And then, there's nothing in there right now.
+- [26:00.410] Just a tube grows 9 feet down.
+- [26:02.710] And when they fill it, they fill with sand.
+- [26:05.270] Pure sand. Absolutely pure sand.
+- [26:07.890] If they didn't, the chemicals do,
+- [26:10.440] you know, they work on it, on the bottom part.
+- [26:12.470] Is that interesting to anybody?
+- [26:15.400] The Press: Well, you're a builder.
+- [26:17.820] The President: Oh much better. First of all, it looks better.
+- [26:20.690] I mean, I've never seen it, at least.
+- [26:22.410] This is the newest and the greatest.
+- [26:24.460] I've never seen it at Mar-a-Lago.
+- [26:26.690] I have a similar pole, not quite as tall as this,
+- [26:30.040] but the rope's on the outside. And you hear that rope banging.
+- [26:34.830] The Press: What's that little thing
+- [26:36.050] sticking up at the top, sir?
+- [26:38.180] You see the little thing, sticking out?
+- [26:39.680] The President: The ball?
+- [26:40.970] The Press: Yeah, the bar.
+- [26:45.630] The President: Oh, I see.
+- [26:46.940] That's so they can hook up the ropes.
+- [26:49.380] They put the rope in later.
+- [26:51.020] The Press: Sometimes you see an eagle on top of the flagpole.
+- [26:52.870] The President: I like this though.
+- [26:54.080] This is a little more classy. I'm a big eagle person,
+- [26:57.750] as you probably would know, but this looks better.
+- [26:59.820] The Press: Mr. President, can you share some of
+- [27:02.500] what you've told Israel's Prime Minister Netanyahu?
+- [27:08.060] The President: I said keep going.
+- [27:09.430] I speak to him every day. He's a good man, doing a lot.
+- [27:12.910] Been very unfairly treated by his country, I think.
+- [27:15.650] Very unfairly, too.
+- [27:17.380] The Press: Have you given him any indication
+- [27:18.810] that you may seek to aid them more than you have already?
+- [27:22.620] The President: No, I haven't. So far he's done a good job.
+- [27:26.550] He has been treated very unfairly.
+- [27:29.690] He's a wartime president
+- [27:31.110] and he's going through this nonsense.
+- [27:32.520] It's ridiculous.
+- [27:34.440] The Press: Sounds like you had a good meeting with him.
+- [27:36.160] The President: With who?
+- [27:37.410] The Press: Yeah, your National Security Council.
+- [27:38.930] The President: Very good meeting, yeah.
+- [27:40.250] The Press: Anything that came up in particular that --
+- [27:42.370] The President: Little things, big things,
+- [27:43.580] but it's been working well. Do you see how straight that is?
+- [27:48.910] Look, they put that dead straight,
+- [27:51.350] and then they pour in the sand. It's amazing, right?
+- [27:54.780] Who would think you have to have sand
+- [27:56.070] and it's got to be very pure sand.
+- [27:58.070] The Press: I know you enjoy being President.
+- [27:59.390] But you ever miss building things?
+- [28:00.590] The President: I love construction, yeah.
+- [28:02.250] The Press: It's in your heart, isn't it?
+- [28:03.560] The President: Well, I love it. I know it better than anybody.
+- [28:06.270] When I see a train,
+- [28:08.660] a railroad going from San Francisco to L.A.,
+- [28:11.890] I think it's 100 times over. That's incredible.
+- [28:14.580] One of the most incompetent things.
+- [28:16.000] That's Newscum.
+- [28:17.230] The Press: And why do they keep funding that?
+- [28:18.950] The President: I think we're not going to anymore.
+- [28:20.170] In fact, a little bit of a story.
+- [28:22.480] We're not gonna fund that. It's just out of control.
+- [28:25.030] First of all, it doesn't go where it's supposed to.
+- [28:27.380] It's supposed go from L. A.
+- [28:29.150] To San Francisco. Now because they don't have any money.
+- [28:32.100] They've spent -- what is it, 30, 40 times more than it was
+- [28:35.170] (inaudible)
+- [28:36.500] And they made it much shorter,
+- [28:38.240] because it no longer goes into the cities.
+- [28:40.000] It stops miles outside of the city.
+- [28:42.890] The Press: If you were a builder and you went 34 times
+- [28:45.090] over the budget, you would be fired, right?
+- [28:47.440] The President: If you went one time,
+- [28:48.650] if you went a half a time over the
+- [28:49.860] (inaudible).
+- [28:51.150] So see what they're doing, they're unwrapping the sand.
+- [28:53.920] It's all pure sand.
+- [28:55.130] And if it weren't pure sand, it would eat away at the metal.
+- [28:58.320] The Press: Mr. President,
+- [28:59.640] with the rail funding in California,
+- [29:01.360] will your recent dust-ups with Governor Newsom
+- [29:03.400] impact additional wildfire relief out there?
+- [29:06.170] They've requested many millions.
+- [29:08.990] The President: The man's incompetent.
+- [29:10.770] You shouldn't have fires like that.
+- [29:12.860] You clean the floor of your forest,
+- [29:14.740] and you won't have any forest fires.
+- [29:16.100] You know, Austria has very, very flammable trees.
+- [29:19.370] They don't have forest fires because they clean the floors.
+- [29:21.500] They maintain their forest. Good impact.
+- [29:25.070] You know, hatred is never a good thing in politics,
+- [29:30.270] when you don't like somebody, don't respect somebody.
+- [29:32.640] It's harder for that person to get money if you're on top.
+- [29:36.740] But he's done a bad job.
+- [29:37.960] The Press: How will you ensure that --
+- [29:39.170] The President: I'll tell you one thing,
+- [29:40.390] if I didn't bring in the military to Los Angeles,
+- [29:43.730] you wouldn't even have a city. You probably wouldn't be here.
+- [29:45.690] You'd be covering the riots in Los Angeles.
+- [29:48.940] Oh, we got a great ruling, as you know,
+- [29:50.480] yesterday from the judge.
+- [29:53.180] If we didn't get the military in Los Angles,
+- [29:55.460] you would have maybe no city. You'd have just what you have
+- [29:59.860] with the housing burned to the ground.
+- [30:02.770] See what they're doing is they take this out.
+- [30:06.190] The Press: With the ruling yesterday, does that mean --
+- [30:09.840] The President: Go ahead, you were going to ask
+- [30:11.220] (inaudible)?
+- [30:12.430] The Press: With the ruling yesterday,
+- [30:13.370] does that mean you're more empowered
+- [30:14.610] to send the National Guard to other cities as well?
+- [30:15.960] Maybe New York?
+- [30:17.190] The President: I don't think I'm more empowered.
+- [30:18.450] I always thought I wasn't empowered.
+- [30:20.170] It would be shocking, really.
+- [30:22.310] Only a guy like Newscum would even ask for it.
+- [30:24.210] You know, he should be thanking me instead of fighting.
+- [30:27.130] Newsom, he wouldn't have a city.
+- [30:28.600] Right now, it would be burning to the ground.
+- [30:30.110] We'd have people running all over, throwing rocks.
+- [30:32.930] Did you see them breaking up the concrete?
+- [30:34.610] Because we caught the bricks.
+- [30:36.080] They were bringing bricks, heavy bricks, red bricks,
+- [30:39.140] by the bag, five or six big bags that guys could hide.
+- [30:42.370] Strong guys that could hardly even carry them.
+- [30:44.030] They're going to hand them out
+- [30:45.260] to people to throw at the police.
+- [30:47.310] And, by the way, the chief of police in Los Angeles
+- [30:50.970] said that we needed the help.
+- [30:53.110] If we didn't have the help, we would have been in trouble.
+- [30:55.140] Now, he changed his mind four days later.
+- [30:57.140] (inaudible) a little bit.
+- [30:59.610] But they -- and he actually needed it more than --
+- [31:03.880] but we did a great job. We quelled that thing.
+- [31:06.090] And the fact that we are even there thinking about going in,
+- [31:09.130] they won't bother with it anymore.
+- [31:11.370] They'll go someplace else. But we'll be there, too.
+- [31:14.860] We'll be wherever they go, we're going to be.
+- [31:16.670] The Press: Did you see the main numbers for immigration?
+- [31:18.850] The President: Yeah, great numbers.
+- [31:20.240] The Press: Zero.
+- [31:21.450] The President: Yeah, we had zero.
+- [31:22.660] Did you see that, everybody? Zero.
+- [31:24.660] The Press: I was gonna ask that.
+- [31:25.950] The President: She's on our side now.
+- [31:27.160] Because most people don't want to ask you that.
+- [31:28.640] The Press: Well, she said -- she told early
+- [31:30.040] (inaudible) you see the main numbers.
+- [31:31.430] Zero. How is that even possible?
+- [31:33.240] The President: Because we really have a tight border.
+- [31:35.050] Now, we have let a lot of people in, but they came in legally.
+- [31:39.080] They actually have to take a little test,
+- [31:40.560] and they have to say, I love America,
+- [31:42.190] and you don't mind the things like that.
+- [31:44.030] The Press: Mr. President,
+- [31:45.230] can you talk about extending TikTok again?
+- [31:47.780] The President: Yeah, we'll be extending it.
+- [31:49.000] We're going to extend it.
+- [31:50.390] We're probably going to make a deal.
+- [31:52.230] I think we'll need China's blessing on it.
+- [31:54.830] I think they'll bless it.
+- [31:57.690] The Press: How was Prime Minister Carney, towards you?
+- [31:59.690] The President: Very good. It couldn't have been nicer.
+- [32:02.290] We enjoyed the Canada stay a lot.
+- [32:04.880] And I had to come back, obviously,
+- [32:07.460] for all that's happening in the Middle East,
+- [32:09.610] but I got everything done. He's a good man.
+- [32:12.610] I think Carney's a great man.
+- [32:14.280] Very well -- a good representative of Canada.
+- [32:16.180] The Press: You think he's liked by the people?
+- [32:17.590] The President: I think so, yeah.
+- [32:18.790] The Press: Mr. President,
+- [32:20.070] have you given the Iranians an ultimatum?
+- [32:25.980] The President: You could say so. They know what's happening.
+- [32:29.440] Maybe you could call it the ultimate --
+- [32:31.770] the ultimate ultimatum, right?
+- [32:35.460] The Press: What essentially was that, though?
+- [32:36.740] The President: Oh, I don't want to say,
+- [32:37.950] look, I mean, give me a break.
+- [32:40.890] The Press: What is the First Lady doing?
+- [32:42.210] The President: I would say to the --
+- [32:44.250] she's doing great. She's doing great.
+- [32:47.390] She's really enjoying it. Barron's enjoying it.
+- [32:52.580] All my kids are enjoying it, actually.
+- [32:55.010] Pretty hot out here, isn't it?
+- [32:57.860] The Press: What's muggier, the D.C.
+- [32:59.270] Or West Palm Beach in the summer?
+- [33:00.670] The President: I think this is muggier.
+- [33:02.600] This is a muggy, this (inaudible).
+- [33:04.530] The Press: Mr. President,
+- [33:05.770] could I ask you about the Paramount deal
+- [33:07.420] and the merger with Skydance and the other things?
+- [33:10.410] What's holding that up and do you see
+- [33:12.190] that being resolved any time soon?
+- [33:13.640] The President: I hope so.
+- [33:14.840] Ellison's great. They'll do a great job with it.
+- [33:18.010] So, what they did is they interviewed --
+- [33:19.720] 60 minutes -- they interviewed Kamala.
+- [33:22.820] Her answer was horrendous.
+- [33:24.030] I would say, election-threatening.
+- [33:25.520] This is the day before the election.
+- [33:28.030] Her answer was election
+- [33:29.400] threatening it was so incompetent.
+- [33:31.520] So, the took the entire answer out,
+- [33:33.840] and they took another answer to another question,
+- [33:36.060] and put it in.
+- [33:37.660] And they did that, I understand, a number of times.
+- [33:40.170] But you don't have to do it a number times.
+- [33:42.490] The main question they asked.
+- [33:44.420] And we caught them, and they're very embarrassed by it.
+- [33:48.150] And they're working on a settlement now.
+- [33:50.130] But think of it, did you ever hear of that one before?
+- [33:52.360] They took the entire, every word, threw it out,
+- [33:55.930] put another answer.
+- [33:57.190] Do you think they'd do that for me?
+- [33:59.310] The Press: I think it happens daily.
+- [34:01.490] The President: Well, I've never seen it.
+- [34:02.840] I thought I'd seen everything. That I've ever seen.
+- [34:05.770] It's very embarrassing. The head of 60 Minutes got fired.
+- [34:09.430] The head CBS got fired, they're all getting fired.
+- [34:13.300] The Press: Do you think the deal will not --.
+- [34:14.650] The President: See what they're doing here.
+- [34:15.870] Wait. This is -- only if you're in construction is it exciting.
+- [34:19.290] See, they have to get it perfectly straight.
+- [34:22.120] And once it's perfect, then they pour in the sand
+- [34:25.210] and it's there for 100 years.
+- [34:28.660] The Press: Mr. President, as the Senate works on the Big,
+- [34:30.780] Beautiful Bill, it seems like SALT
+- [34:32.150] is going to be a really big issue
+- [34:33.390] between Senate Republicans and House Republicans.
+- [34:34.860] The President: Well, I hope it's not.
+- [34:36.070] The Press: So what are you telling senators?
+- [34:37.310] Because the New York Republicans on the House side
+- [34:38.970] are making clear that that's the red line for them.
+- [34:41.920] The President: If it were a red line,
+- [34:43.230] then get ready for a 68 percent tax increase and 1929
+- [34:49.660] because we're taking care of that issue, too.
+- [34:51.800] You know what that is.
+- [34:55.410] The debt ceiling, we have to move the debt.
+- [34:58.370] If we don't move the debt, you know,
+- [35:00.190] you violate governance, it's a terrible thing.
+- [35:02.200] Actually, Pocahontas even agreed with me on that.
+- [35:05.430] She's been wanting to get rid of the debt ceiling
+- [35:07.170] because she said it's too violent. It is violent.
+- [35:11.950] So, I mean, anybody that votes against it,
+- [35:15.400] they voted to give a 59 --
+- [35:17.340] a 68 percent tax increase, and many other bad things.
+- [35:21.530] There would be no money for the border.
+- [35:23.220] We have billions of dollars
+- [35:25.180] allocated to immigration to border,
+- [35:27.030] keeping criminals out, getting criminals out there.
+- [35:30.860] If that doesn't pass, you'll get a 68 percent tax increase.
+- [35:35.270] And I would say this,
+- [35:36.510] any senator that votes against it,
+- [35:39.170] and that includes Democrats.
+- [35:40.570] I think they'll be finished in politics.
+- [35:42.510] The Press: On SALT specifically,
+- [35:43.730] do you think Senate Republicans or House Republicans
+- [35:46.230] will have to bend more in order to get the bill at (inaudible).
+- [35:48.280] The President: I don't know.
+- [35:49.520] We're going to see how it works out.
+- [35:50.760] It's a very difficult issue, to be honest with you.
+- [35:53.600] It's very difficult, and I understand both sides,
+- [35:55.780] but we just have to see.
+- [35:57.000] Hopefully, a compromise or something is going to be made,
+- [35:59.220] but it's a very difficult issues.
+- [36:01.830] But remember that, you know, people say, what do you think?
+- [36:06.110] 68 percent tax, so with all those numbers
+- [36:08.870] I told you how well the economy is doing,
+- [36:10.470] it all gets wiped out.
+- [36:12.050] You'd have the largest tax increase in history by far,
+- [36:15.090] by three times.
+- [36:17.000] If they don't get the Big, Beautiful deal.
+- [36:19.460] I always say the Great, Big,
+- [36:20.790] Beautiful deal I put the word great in there.
+- [36:23.180] The Press: It's going to be a great,
+- [36:24.540] great Big, Beautiful Bill.
+- [36:25.890] The President: If we get that passed,
+- [36:27.100] it'll be the best, one of the greatest pieces.
+- [36:29.050] And that's just the beginning of a lot of things
+- [36:31.990] that are going to happen because we're going to get numbers down.
+- [36:34.600] We're going to them way down. That's the beginning.
+- [36:36.780] That's our big first step. But that's a big --
+- [36:38.390] that's the most important piece of legislation.
+- [36:41.100] In terms of dollar value and everything else,
+- [36:43.130] there's nothing as big as that.
+- [36:44.770] You know, they thought that might be seven
+- [36:46.450] or eight bills it's all in one.
+- [36:48.290] The Press: Speaking of taxes, starting in July 1st,
+- [36:50.930] California is upping their tax on gasoline again per gallon.
+- [36:54.560] I mean that's --
+- [36:55.780] The President: Well, you know, I beat the California mandate.
+- [36:57.690] Congress just passed a bill ending it. It was terrible.
+- [37:00.450] So what they were saying, everybody by 2030
+- [37:03.000] has to have an electric car and people don't want it.
+- [37:05.340] I'm all for electric cars, but you have to want one.
+- [37:07.600] And right now, it's about 7 percent,
+- [37:10.830] but they were forcing everybody to have it.
+- [37:12.460] I ended, you now, I ended that.
+- [37:14.100] And now they're coming out with more.
+- [37:15.630] No, in California.
+- [37:16.910] You know, we've got some gas stations
+- [37:19.090] where, just two weeks ago, it was $1.98, $1.99.
+- [37:23.430] We've got the gas down below,
+- [37:24.870] and we have this little situation,
+- [37:27.040] which will drive it up a little bit, but very little.
+- [37:29.850] And it's going to come down again.
+- [37:32.330] Going to give people a lot of extra money.
+- [37:34.180] Groceries are down.
+- [37:35.750] Eggs are down, you know, the eggs.
+- [37:37.590] They hit me the first week about eggs.
+- [37:40.130] But, no, I think that, well, look, you know what I do
+- [37:44.390] whenever I talk about Gavin Newscum?
+- [37:46.750] I say, look at the railroad.
+- [37:48.540] Look at the railroad. It's not even possible.
+- [37:52.360] You think he comes out and sees the construction workers?
+- [37:54.250] I don't think so.
+- [37:55.480] The Press: I don't think he put an American flag
+- [37:56.820] in front of the Capitol in Sacramento either.
+- [37:59.200] The Press: Mr. President, how much of the supporters
+- [38:00.850] are split on the U.S. response to --.
+- [38:04.280] The President: Who are you with?
+- [38:05.550] The Press: CNN.
+- [38:07.770] The President: Fake news. Fortunately nobody watches.
+- [38:10.620] Is anybody watching CNN nowadays?
+- [38:13.310] I haven't seen it in a long time.
+- [38:15.270] The Press: So some of your supporters
+- [38:16.600] are wary of the U.S. getting involved in another war
+- [38:21.710] and some believe that we should support it.
+- [38:23.290] The President: Do you ever ask a positive question at CNN?
+- [38:25.590] My supporters are more in love with me today,
+- [38:28.340] and I'm in love them more than they were even at election time,
+- [38:31.260] where we had a total landslide.
+- [38:35.790] We had -- you know, we won all seven swing states.
+- [38:37.770] Did CNN report that?
+- [38:38.990] We won all -- seven out of seven,
+- [38:40.550] whichever one said would be almost impossible.
+- [38:43.350] And we won by millions of votes.
+- [38:45.510] We won 2,750 districts versus 505 districts.
+- [38:51.600] Think of that, 2,750 versus 505. And CNN?
+- [38:59.230] The Press: I think what she might be alluding to
+- [39:01.190] is the base is going to stay with you regardless.
+- [39:03.960] And you've gone through different
+- [39:05.590] (inaudible) regardless.
+- [39:06.850] But some of the people on the base
+- [39:08.410] don't want a long-term war.
+- [39:09.860] They're afraid that we're going to get into a long-term war.
+- [39:11.670] The President: We're not looking for a long term,
+- [39:13.010] we're looking, it's only -- I only want one thing,
+- [39:15.850] Iran cannot have a nuclear weapon.
+- [39:17.520] That's it. I'm not looking long-term, short-term.
+- [39:19.760] And I've been saying that for 20 years.
+- [39:21.520] I've been saying it as a civilian
+- [39:23.080] who got a lot of publicity, people would cover it.
+- [39:25.620] Very simply, Iran cannot have a nuclear weapon.
+- [39:29.440] It's not a question of anything else.
+- [39:31.250] And if you did, you wouldn't have much of a country
+- [39:33.720] because they would use it on us and they'd use it other people
+- [39:36.650] and they would be a terror all over the world.
+- [39:39.140] So I may have some people that are a little bit unhappy now,
+- [39:42.580] but I have some that are very happy.
+- [39:44.300] And I have people outside of the base
+- [39:45.780] that can't believe that this is happening.
+- [39:47.340] They're so happy.
+- [39:48.820] And there was a poll that just came out today,
+- [39:50.960] and my approval rating is the highest it's ever been.
+- [39:53.570] All I'm doing is saying you can't have a nuclear weapon.
+- [39:56.010] And I tried to do it nicely.
+- [39:57.430] And then on day 61, I said, let's go,
+- [40:01.040] because we can't let that happen.
+- [40:02.690] And I've been saying it for 20 years.
+- [40:05.150] Okay, I'm going to leave. Thank you very much.

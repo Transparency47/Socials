@@ -1,0 +1,747 @@
+<!-- source: https://www.youtube.com/watch?v=MYvIaYGT-ZM -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: MYvIaYGT-ZM -->
+<!-- date_published: 2025-10-13T17:32:09+00:00 -->
+<!-- date_accessed: 2026-06-02T02:43:34.399923+00:00 -->
+
+# Transcript: President Trump Delivers Remarks to World Leaders
+
+- [00:13.500] Translator: Kindly be seated.
+- [00:19.790] In the name of God, the Gracious, the Most Merciful,
+- [00:22.590] Your Excellencies,
+- [00:24.010] Your Majesties, Excellences, and Highnesses.
+- [00:27.260] Peace be upon you and God's blessings.
+- [00:29.280] I welcome you all to Sham al-Sheik Peace Summit
+- [00:35.560] at this historic milestone where we all together
+- [00:39.610] have witnessed the reaching of Sham al Sheik agreement
+- [00:42.800] on ending war in Gaza
+- [00:45.320] and the birth of a glimpse of hope.
+- [00:47.990] That such deal ends an agonizing chapter
+- [00:52.640] in the history of mankind and opens the door,
+- [00:56.820] ushering in a new era of peace and stability
+- [00:59.730] in the Middle East.
+- [01:01.630] The deal offers a better moral to the conflict,
+- [01:08.470] fatigued and strained regional populations.
+- [01:11.800] And now, we receive the valorous peace leaders
+- [01:19.720] that attained peace in the entire world.
+- [01:23.750] Allow me to invite His Excellency
+- [01:26.880] the American President Donald Trump
+- [01:30.110] to join the peace- lovers leaders.
+- [01:35.520] Leaders who advocate for peace in the world.
+- [01:42.010] (applause)
+- [02:02.740] Translator: And I would like to express
+- [02:05.380] our profound appreciation
+- [02:09.730] to your Excellency at this critical circumstance
+- [02:14.240] reflected in your proposed plan for ending this tragic war
+- [02:19.290] during which humanity incurred significant losses.
+- [02:22.310] I would to thank our partners in United States, Turkey,
+- [02:28.210] and Qatar for their dedicated efforts.
+- [02:31.100] And I reiterate our support and aspiration
+- [02:33.730] to the execution of this plan,
+- [02:35.780] creating the essential political horizon
+- [02:38.170] for the implementation of the two-state solution,
+- [02:41.210] for it is the only pathway to the fulfillment
+- [02:43.820] of the legitimate ambition of both Palestinian and Israeli
+- [02:47.200] peoples turning over the conflict page
+- [02:50.240] and safely live them.
+- [02:52.180] Excellency President,
+- [02:53.840] you have demonstrated that genuine leadership
+- [02:56.790] doesn't mean war waging,
+- [02:58.730] rather the ability to bring it to a halt.
+- [03:01.350] We trust your leadership
+- [03:03.550] that is capable to carry out the current deal
+- [03:06.240] and to execute your entire stage plan.
+- [03:09.750] Excellency President, let the Gaza war
+- [03:12.550] be the last of wars in the Middle East.
+- [03:15.600] Majesties, Excellencies, and Highnesses,
+- [03:19.200] Egypt launched a peace trajectory in the middle east
+- [03:23.150] nearly half a century ago, specifically in November 1977.
+- [03:29.910] When the late President Anwar Sadat,
+- [03:32.580] may God shower him with his mercy,
+- [03:34.960] took unprecedented steady moves in the history of the region
+- [03:39.120] and initiated the historic visit to Jerusalem.
+- [03:43.380] Since that moment, Egypt has established a new era,
+- [03:47.050] granting prosperity a chance for life
+- [03:50.810] and proved that people's security
+- [03:53.290] is not only realized by military force.
+- [03:56.590] Today, Egypt along with its sisterly Arab
+- [04:00.550] and Islamic states,
+- [04:01.760] reiterate that peace remains our strategic option.
+- [04:05.540] Experience showed over the past decades
+- [04:09.010] that this option cannot be founded
+- [04:12.500] except through just and equal rights.
+- [04:16.290] Based on this, and if the whole regional populations
+- [04:20.700] have always been relishing
+- [04:22.650] the right to their independent nations.
+- [04:26.200] The Palestinian people is not an exception.
+- [04:29.250] They too have the right to self-determination
+- [04:32.640] and to aspire for a future where war doesn't loom over.
+- [04:38.100] Own the right to enjoy freedom
+- [04:40.700] and to live in their independent state,
+- [04:43.650] a state that lives side by side with Israel in peace, security,
+- [04:48.310] and mutual recognition.
+- [04:50.520] Peace is not only crafted by governments, but also by --
+- [04:55.600] built by peoples when they realized
+- [04:58.080] that yesterday's rivals could be tomorrow's partners.
+- [05:02.900] I avail this opportunity to appeal to the Israeli people.
+- [05:08.500] I say, let us turn this historic moment into a new beginning
+- [05:13.470] of just some peaceful coexistence prevailing life.
+- [05:18.580] Allow us to look forward together to a better future
+- [05:21.300] for the sons of our nations together.
+- [05:24.670] Stretch out our hands for our cooperation
+- [05:27.570] towards just and durable peace
+- [05:29.480] for the entire regional populations.
+- [05:31.980] Excellency President Trump, let us pose at the scenes
+- [05:36.490] of overwhelming relief and happiness,
+- [05:39.190] whether down the streets in Gaza or in Israel alike,
+- [05:43.250] or in the entire world
+- [05:45.450] after reaching the war-ending agreement.
+- [05:49.050] Thanks to your wise initiative,
+- [05:52.320] it is another evidence to the people's
+- [05:55.390] (inaudible) is peace.
+- [05:58.870] We value as well your interest in resuming life in Gaza.
+- [06:03.510] Egypt will work with the United States
+- [06:06.380] and in coordination with all partners
+- [06:08.860] during the forthcoming days to lay down the common grounds
+- [06:13.050] for proceeding towards the strip reconstruction without delay.
+- [06:18.620] In this context, we are willing to host early recovery,
+- [06:22.340] reconstruction, and development conference,
+- [06:25.840] which will be based on your plan for ending the war in Gaza,
+- [06:29.720] in order to provide livelihoods
+- [06:32.710] and to give hope to the Palestinians on their lands.
+- [06:36.050] Peace cannot be completed until hands are extended
+- [06:39.700] for rebuilding in the aftermath of devastation.
+- [06:44.650] Majesties, Excellencies, and Highnesses,
+- [06:47.370] we look ahead to a bright future to our region.
+- [06:52.740] As its cities are built on hope, rather on burying the memories
+- [06:58.040] of its inhabitants under the rubble,
+- [07:00.200] we have a unique and historic opportunity at hand.
+- [07:03.680] It might be the last to come to a Middle East free
+- [07:06.960] from whatever menacing its stability and progress.
+- [07:10.470] A Middle East where its populations
+- [07:13.240] relish peace and decent existence
+- [07:15.380] within its secured borders and safeguarded rights.
+- [07:19.030] A Middle East that is invincible to terrorism and radicalization,
+- [07:23.400] a Middle Eastern free from mass destructive weapons.
+- [07:26.440] This is the very new Middle East,
+- [07:28.690] that Egypt envisions to be embedded in collaboration
+- [07:32.160] with regional and international partners.
+- [07:35.780] Today's agreement paves the way for that,
+- [07:39.270] and it should be cemented and implemented in all its stages,
+- [07:43.640] and to reach the implementation of the state solution
+- [07:47.970] enduring our joint vision, exemplifying coexistence
+- [07:51.750] among the regional populations,
+- [07:53.410] even exemplifying integration among all its states.
+- [07:57.470] Honorable attendees, before I conclude my speech,
+- [08:00.540] and in appreciation to President Donald Trump's efforts,
+- [08:03.990] I would like to declare
+- [08:05.490] before the August attendees Egypt's decree
+- [08:08.560] to decorate His Excellency with the Order of the Nile,
+- [08:13.000] the highest state honor among Egyptian decorations.
+- [08:16.740] It is awarded to heads of states
+- [08:19.140] and to those who render great services to humankind.
+- [08:23.010] Thank you all.
+- [08:31.090] Now I invite the honorable guest to deliver his speech.
+- [08:35.870] Excellency President Trump kindly proceed.
+- [08:38.750] The floor is yours.
+- [08:41.310] (applause)
+- [08:57.920] The President: Well, thank you very much
+- [08:59.490] and that was a great honor.
+- [09:00.800] I appreciate it very much, Mr. President.
+- [09:03.420] Mr. General, Mr. President. Great general, great president.
+- [09:06.870] Thank you very much.
+- [09:09.790] This is the day that people across the region
+- [09:12.560] and around the world have been working,
+- [09:14.920] striving, hoping, and praying for.
+- [09:17.720] They have done things over the last month
+- [09:21.730] that I think were really unthinkable.
+- [09:24.410] Nobody thought this could happen.
+- [09:26.770] With the historic agreement we've just signed,
+- [09:29.730] those prayers of millions have finally been answered.
+- [09:33.610] As you know, the hostages have been returned and further work
+- [09:38.230] goes on having to do with the, sadly to say, bodies.
+- [09:43.220] Together we've achieved what everybody said was impossible.
+- [09:47.340] At long last, we have peace in the Middle East.
+- [09:49.980] And it's a very simple expression,
+- [09:51.870] peace in the Middle East.
+- [09:53.370] And we've heard it for many years,
+- [09:54.750] but nobody thought it could ever get there and now we're there.
+- [09:57.730] I want to congratulate everybody
+- [10:00.330] sitting in these first few rows and standing behind me.
+- [10:03.420] I don't know why they chose to stand,
+- [10:05.130] but I promise I'll make it short.
+- [10:07.290] Okay? We are not going to keep you standing for long.
+- [10:10.120] These are great leaders.
+- [10:11.730] After years of suffering and bloodshed,
+- [10:13.890] the war in Gaza is over.
+- [10:16.900] Humanitarian aid is now pouring in,
+- [10:19.030] including hundreds of truckloads of food
+- [10:21.350] and medical equipment and other supplies.
+- [10:23.990] Much of it paid for by people in this room.
+- [10:27.540] Civilians are returning to their homes.
+- [10:29.470] The hostages are reuniting. I mean, it's beautiful.
+- [10:32.800] I'm just watching it backstage. The level of love and sorrow.
+- [10:37.940] I've never seen anything like it.
+- [10:40.480] It's amazing when you see they haven't seen their mother,
+- [10:44.470] their father, they haven't seen them in such a long time
+- [10:48.870] and they lived in a tunnel, very little tunnel, very deep,
+- [10:53.480] and the level of love is just incredible.
+- [10:55.840] It's a beautiful thing to see.
+- [10:57.580] In one sense, it's so horrible that it could have taken place,
+- [11:00.090] but in another sense, it's so beautiful
+- [11:01.870] to see a new and beautiful day is rising
+- [11:04.870] and now the rebuilding begins.
+- [11:07.200] The rebuilding is maybe going to be the easiest part.
+- [11:10.960] I think we've done a lot of the hardest part
+- [11:13.270] because the rest comes together. We all know how to rebuild
+- [11:16.060] and we know how to build better than anybody in the world.
+- [11:19.200] I want to express my tremendous gratitude
+- [11:21.750] to the Arab and Muslim nations
+- [11:23.710] who helped make this incredible breakthrough possible,
+- [11:27.790] and you really did. To President el-Sisi of Egypt,
+- [11:31.790] who is so generously hosting us today.
+- [11:34.880] And I want to thank you for the outstanding job
+- [11:38.340] your country is doing in so many different ways
+- [11:41.310] and for helping us so much with this peace agreement.
+- [11:44.900] I also want to thank the president
+- [11:46.960] for the escort of six fighter jets.
+- [11:50.180] Oh, we looked out the window.
+- [11:51.440] We said, "I hope they're friendly."
+- [11:52.690] And they turned out to be very friendly.
+- [11:54.970] But we had three on each side and they are beauties right out
+- [11:57.870] of the great really American manufacturing hub.
+- [12:02.410] We make the greatest military equipment in the world.
+- [12:05.030] We have the strongest military in the world by far.
+- [12:08.340] And I knew exactly what those planes were
+- [12:10.610] and I knew exactly how much you paid for those planes too.
+- [12:14.370] You paid a lot, but you got a pretty good deal
+- [12:17.170] and they are great planes, and we just appreciated,
+- [12:19.350] that was quite an escort in. It was very impressive.
+- [12:23.260] But Air Force One, really,
+- [12:26.490] it was covered with Egyptian desert.
+- [12:29.770] Just a few months ago, if you think about it,
+- [12:32.040] just a few months ago it was Egyptian desert
+- [12:34.590] and now it was just a few feet off our window
+- [12:37.640] and it was a spectacular site and I appreciate it very much.
+- [12:41.000] Really, that was pretty good. You got our people by surprise.
+- [12:43.800] I don't know if they were thrilled right at the beginning,
+- [12:46.690] but they were thrilled as we sailed along
+- [12:50.210] very calmly and safely.
+- [12:51.490] And I'm deeply honored to receive from you,
+- [12:54.510] Egypt's highest state honor, the Order of the Nile.
+- [12:58.090] The Nile is so beautiful, so magnificent.
+- [13:01.670] It's such a beautiful title. The Order of the Nile.
+- [13:04.290] Thank you very much Mr. President.
+- [13:05.870] Appreciate it. Great honor.
+- [13:10.540] I also want to give a very special
+- [13:12.670] thanks to the Amir of Qatar, a man who's outstanding.
+- [13:16.700] He's been a friend of mine for a long time.
+- [13:18.400] Long before politics. Long before politics.
+- [13:21.480] And he's a fantastically respected man.
+- [13:24.820] His Highness Sheikh Tamim is respected by everybody.
+- [13:30.100] He's respected by everybody and in the most positive way,
+- [13:34.850] not only because of power, because of his heart.
+- [13:37.480] He's got a tremendous heart and he's a great leader
+- [13:40.350] and his country loves him.
+- [13:41.680] Thank you very much for being here. It's an honor.
+- [13:44.190] (applause)
+- [13:47.430] Let me also express our condolences to the Qataris
+- [13:51.630] on the tragic car crash
+- [13:53.110] that claimed the lives of your cherished diplomats,
+- [13:56.550] some of whom were known by our people
+- [13:58.810] and they were supposed to be incredible people.
+- [14:00.850] So please extend our sorrow and best wishes.
+- [14:05.470] That was tough. That was really tough.
+- [14:08.500] On this extraordinary occasion, I also want to give our sincere
+- [14:12.760] thanks to President Erdogan of Turkey.
+- [14:15.420] He's always there when I need him.
+- [14:16.870] He is such a tough guy.
+- [14:18.190] He is tough as you can be, but we love him.
+- [14:21.230] And when they have a problem with you,
+- [14:22.880] they always call me to handle it and usually I come through.
+- [14:26.880] We just have a good relationship,
+- [14:28.380] but we have from the beginning.
+- [14:30.290] And so I want to thank you very much
+- [14:31.880] and say hello to your wife, your beautiful wife,
+- [14:33.890] and it's great to be with you.
+- [14:36.280] Always there when I need him. He's always there.
+- [14:39.370] Thank you very much, Mr. President.
+- [14:42.970] And I also want to thank,
+- [14:45.050] I just spoke to him on the phone.
+- [14:47.010] His Royal Highness Crown Prince Mohammed of Saudi Arabia,
+- [14:50.160] special friend of mine.
+- [14:52.630] Boy, he's come so long and so far
+- [14:55.780] and he's doing a fantastic job for his country,
+- [14:58.680] and I want to just thank him. And his Highness,
+- [15:01.710] Sheikh Mohammed of the United Arab Emirates is here.
+- [15:07.490] Where? He's here someplace.
+- [15:11.140] Well, oh, he's not here, but he's here in spirit.
+- [15:16.070] I can tell you that. And he's been another one.
+- [15:18.580] He's been absolutely incredible and we appreciate it very much.
+- [15:23.260] And his Majesty, King Abdullah of Jordan.
+- [15:27.010] And thank you very much, King Abdullah of Jordan.
+- [15:31.240] He's here. Thank you. Thank you. Thank you very much.
+- [15:37.870] You really have been a great help
+- [15:39.150] and we appreciate it. Appreciate it.
+- [15:41.980] Prime Minister Sharif of Pakistan.
+- [15:45.970] Also, I have to say my favorite field marshal from Pakistan,
+- [15:49.570] who's not here, but the Prime Minister is here
+- [15:52.430] and you're going to give his regards.
+- [15:54.470] Where are you? There you go. Thank you very much.
+- [15:58.500] Do you want to say what you said to me the other day?
+- [16:01.710] Come. Would you like to say what you said the other day?
+- [16:04.120] I think it was so nice. Please.
+- [16:08.000] President Shehbaz Sharif: Thank you very much.
+- [16:09.850] My dear President Trump, my dear brother,
+- [16:16.280] President Fattah al-Sisi of Egypt,
+- [16:22.730] Majesties, Highness', Excellencies,
+- [16:28.760] Leading Gentlemen, as-salamu alaykum
+- [16:32.690] and a very good evening. Well, I would say today
+- [16:39.030] is one of the greatest day in contemporary history
+- [16:45.740] because peace has been achieved after untiring efforts.
+- [16:54.600] Efforts led by President Trump, who is genuinely a man of peace.
+- [17:05.190] Who has relentlessly and untiringly worked
+- [17:11.170] throughout these months, day in and day out,
+- [17:15.260] to make this world a place to live with peace and prosperity.
+- [17:23.920] I would say that Pakistan had nominated
+- [17:30.990] President Donald Trump for Nobel Peace Prize,
+- [17:38.770] for his outstanding extraordinary contributions
+- [17:43.220] to first stop war between India and Pakistan,
+- [17:49.340] and then achieve ceasefire along with his very wonderful team.
+- [17:57.700] Today again, I would like to nominate this great president
+- [18:05.900] for Nobel Peace Prize,
+- [18:09.430] because I genuinely feel that he's the most genuine
+- [18:17.730] and most wonderful candidate for Peace Prize
+- [18:23.030] because he has brought not only peace in South Asia,
+- [18:28.270] saved millions of people their lives.
+- [18:33.140] And today, here in Sharm el-Sheikh,
+- [18:38.210] achieving peace in Gaza
+- [18:41.570] is saving millions of lives in the Middle East.
+- [18:46.220] Mr. President, I would like to salute you
+- [18:50.050] for your exemplary leadership, visionary leadership.
+- [18:56.540] And I think that you are the man
+- [18:59.860] this world needed most at this point in time.
+- [19:04.260] World would always remember you as a man who did everything,
+- [19:10.430] went out of the way to stop seven and today, eight wars.
+- [19:16.960] I would like to thank my very dear brother Sheikh Tamim.
+- [19:24.050] He's a Al ash-Sheikh who has really worked very hard
+- [19:29.690] along with others to achieve peace in this region.
+- [19:33.180] My very dear brother, President Tayyip Erdogan,
+- [19:37.780] his Majesty, King Abdullah,
+- [19:41.730] and of course my very dear brother Mohamed bin
+- [19:44.860] Zayed of UAE and of course my very dear brother
+- [19:49.730] Crown Prince of Saudi Arabia.
+- [19:52.890] And he has also been very, very helpful
+- [19:57.320] and contributed very valuably in this wonderful peace process.
+- [20:03.220] Ladies and gentlemen, I wouldn't want to take more of your time.
+- [20:07.690] Suffice to say, had it not been for this gentleman,
+- [20:14.330] who knows, India and Pakistan are both nuclear powers.
+- [20:19.710] Had he not intervened along with his wonderful team,
+- [20:24.090] during those four days, the war could have escalated to level,
+- [20:29.740] who would've lived to tell what happened.
+- [20:33.170] And similarly, here in this part of the world in Middle East,
+- [20:37.900] Mr. President, your valuable contribution
+- [20:42.050] along with President Sisi,
+- [20:44.560] I think history will remember in golden words.
+- [20:49.050] I wouldn't say more accept. God bless you.
+- [20:54.140] God give you long life to serve like this for all time to come.
+- [20:58.770] Thank you very much.
+- [21:01.170] (applause)
+- [21:08.250] The President: Wow, I didn't expect that.
+- [21:10.550] Let's go home. There's nothing more I have to say.
+- [21:12.890] Goodbye everybody.
+- [21:14.600] That was really beautiful and beautifully delivered.
+- [21:17.230] Wow, thank you very much.
+- [21:19.490] Also with us is President Prabowo,
+- [21:22.920] a very incredible man of Indonesia.
+- [21:25.800] (applause)
+- [21:27.180] President? Come here. Great job.
+- [21:38.090] President Abbas of The Palestinian Authority.
+- [21:41.410] See, we have them all. We have them all.
+- [21:44.470] (applause)
+- [21:46.190] Great. It's good to have you.
+- [21:50.210] And so many others. Really, I have a list here.
+- [21:53.940] This first three rows and what's standing behind me.
+- [21:56.760] I don't know why they chose to stand, but it's there.
+- [21:59.740] They're going to be very famous tomorrow, all of them.
+- [22:03.650] We have the Arab League is represented by his Excellency,
+- [22:08.100] and thank you very much for being here.
+- [22:11.460] Thank you very much. We have Armenia.
+- [22:16.050] Oh, and Azerbaijan.
+- [22:18.950] That's a little war that we stopped.
+- [22:21.350] That's a little war. There they are.
+- [22:22.930] Look at them, they're sitting.
+- [22:24.180] When I met with them, it was in the Oval Office.
+- [22:27.740] They fought for like 31 years or some crazy number,
+- [22:31.760] and they had one sitting on that side of the Oval Office,
+- [22:33.960] one sitting -- by the time we finished in one hour,
+- [22:36.050] they were both hugging each other and now they're friends
+- [22:39.030] and they're getting along great.
+- [22:40.420] Look at it. So I want to thank you both.
+- [22:42.630] That's incredible. Really incredible.
+- [22:45.530] (applause)
+- [22:48.360] So you have Armenia and you have Bahrain, you have Canada.
+- [22:52.820] It's so great to have -- in fact, the President called
+- [22:57.920] and he wanted to know if it's worthwhile.
+- [23:01.000] He knew exactly what it was. He knew the importance.
+- [23:04.330] Where's Canada, by the way? Where are you?
+- [23:08.790] He knew the importance of this.
+- [23:10.260] He said, "I want to be there." So many people have done that.
+- [23:13.370] They called. I mean, they heard about it.
+- [23:15.490] And these are not people that can do that very easily.
+- [23:17.480] They have pretty big schedules, to put it mildly.
+- [23:19.440] The most powerful people.
+- [23:21.240] And I appreciate you being here very much, Mr. President.
+- [23:25.000] Fantastic. Fantastic.
+- [23:27.780] And Cyprus, Egypt, the European Union,
+- [23:33.000] it's a lot of countries.
+- [23:34.770] France, thank you very much, Emmanuel.
+- [23:38.450] I would imagine Emmanuel standing someplace behind me.
+- [23:41.070] Where is he? I can't believe it.
+- [23:43.470] You're taking a low-key approach today.
+- [23:47.850] He's my friend. That's great. Good job.
+- [23:51.440] Thank you very much. Emmanuel.
+- [23:53.730] Germany, the new Chancellor of Germany,
+- [23:59.110] he's easy to spot because he's very tall
+- [24:02.120] and he's very smart and he's doing a fantastic job
+- [24:04.640] for his country. Appreciate it very much.
+- [24:06.430] And congratulations. A big election.
+- [24:08.250] That was a big one that was going to change things.
+- [24:11.860] Greece, we have Greece. We have Hungary.
+- [24:15.820] Oh, Victor, where is Victor? Victor. Victor. We love Victor.
+- [24:20.520] Victor, I call him. I put the little accent on it.
+- [24:24.970] You are fantastic. All right.
+- [24:26.600] I know a lot of people don't agree with me,
+- [24:28.300] but I am the only one that matters.
+- [24:30.040] What you are fantastic. He's a great leader.
+- [24:33.690] I endorsed him the last election he had,
+- [24:35.650] and he won by 28 points.
+- [24:38.090] So you're going to do even better this time
+- [24:41.400] if you have another election,
+- [24:43.320] and you're going to do great and we appreciate it
+- [24:45.490] and we're behind you 100 percent.
+- [24:46.890] That's Hungary. India is a great country
+- [24:51.030] with a very good friend of mine at the top,
+- [24:53.230] and he's just done a fantastic job.
+- [24:57.850] And I think that Pakistan and India
+- [25:01.150] are going to live very nicely together, right?
+- [25:08.520] That's not a very -- They are. They are.
+- [25:12.770] And the two great, I tell you, leaders.
+- [25:14.970] Great leaders as far as I'm concerned.
+- [25:17.990] Indonesia, we covered.
+- [25:19.560] And I just want to say that's a big country, a powerful country.
+- [25:24.930] It does unbelievably well, and it's great to have you.
+- [25:28.100] Iraq, we have Iraq.
+- [25:30.210] With lots of oil, they have so much oil,
+- [25:32.120] they don't know what to do with it.
+- [25:34.030] That's a big problem when you have so much,
+- [25:35.770] you have no idea what to do with it.
+- [25:37.880] So, thank you very much for -- Thank you very much.
+- [25:41.450] Italy, we have a woman, a young woman, who's --
+- [25:45.930] I'm not allowed to say it because usually it's the end
+- [25:48.240] of your political career if you say it.
+- [25:49.880] She's a beautiful young woman.
+- [25:51.220] Now, if you use the word "Beautiful" in the United States
+- [25:54.520] about a woman, that's the end of your political career,
+- [25:56.820] but I'll take my chances. Where is she? There she is.
+- [26:00.730] You don't mind being called beautiful, right?
+- [26:02.840] Because, you are. Thank you very much for coming.
+- [26:05.050] We appreciate it.
+- [26:06.680] She wanted to be here and she's incredible.
+- [26:08.600] And they really respect her in Italy.
+- [26:11.890] She's a very successful politician.
+- [26:16.430] We have Norway. Oh, Norway, (inaudible), Norway.
+- [26:21.850] What happened Norway? What happened?
+- [26:25.720] Where's Norway? Where is he? We have Johnny.
+- [26:29.870] We're going to the World Cup.
+- [26:31.150] I can't tell you that. Where's Norway?
+- [26:34.170] I don't think he wants to stand --
+- [26:35.430] Oh, he's back there. We have Norway.
+- [26:39.190] Oman. Again, we have Paraguay.
+- [26:44.010] We have a really fantastic representative
+- [26:48.830] from Saudi Arabia.
+- [26:50.220] Thank you very much. I'll tell you what,
+- [26:53.060] and this time we get you the best seat.
+- [26:54.770] He always gets the best seat, he deserves the best seat.
+- [26:58.000] But, what a great place it is. Spain, where's Spain?
+- [27:04.740] Are you guys working on him with respect to the GDP?
+- [27:09.350] We'll get close. We'll get close.
+- [27:10.990] But, fantastic job you're doing. And UAE, which is great.
+- [27:18.480] United Kingdom. Where's United Kingdom?
+- [27:21.350] Where's (inaudible)-
+- [27:22.690] Speaker 10: (inaudible).
+- [27:23.900] Speaker 9: Come here. Is everything going good?
+- [27:26.410] Speaker 10: Very good.
+- [27:27.660] Speaker 9: It's very nice of you here.
+- [27:29.450] These people all came on 20 minute notice.
+- [27:34.470] And I think it's fantastic.
+- [27:35.990] And we have so many others, and just so many others.
+- [27:38.690] And it's such a compliment to what we're doing,
+- [27:41.950] because what we've done is something very unique
+- [27:44.100] and very special. So, it's perhaps the wealthiest
+- [27:48.300] and most powerful group of nations
+- [27:50.820] ever assembled at one time, which is a big thing.
+- [27:53.970] We have achieved together in recent days
+- [27:57.330] a change that really is historic
+- [27:59.810] and it's going to be remembered forever.
+- [28:01.710] And I want to thank the American team for their amazing work.
+- [28:05.860] And I want to thank, I think he'll go down
+- [28:08.620] as the greatest Secretary of State
+- [28:10.320] in the history of our country. I really believe that.
+- [28:12.170] Marco, I wouldn't say it, Marco Rubio.
+- [28:14.000] I wouldn't say it. Maybe I would.
+- [28:17.790] You're doing a great job.
+- [28:19.080] I'll tell you he's on course to do it.
+- [28:22.270] We've done a lot of work in nine months.
+- [28:24.380] We've done a lot of work.
+- [28:25.660] I say that, one year ago, a little more, but one year ago,
+- [28:32.570] America, the United States of America was in --
+- [28:36.060] I say it was a dead country.
+- [28:38.500] The king told me. And I used that.
+- [28:41.160] He said, "Sir, one year ago, it was a dead country.
+- [28:43.860] Today you have the hottest country anywhere in the world."
+- [28:46.110] And it is, it's the hottest country.
+- [28:47.520] So, many investors are here.
+- [28:49.460] We have over $17 trillion being invested in the United States,
+- [28:53.510] which is a record that nobody has ever beaten.
+- [28:56.870] I don't think anybody will.
+- [28:58.150] And we still have four months to go before it's a year.
+- [29:02.520] So, in eight months we have over 17 trillion.
+- [29:05.680] We're actually very close to $18 trillion.
+- [29:07.930] Has never been -- As an example, the previous administration
+- [29:11.270] had less than 1 trillion over four years.
+- [29:16.260] We're close to breaking $18 trillion in eight months.
+- [29:19.330] That's pretty amazing. No country's ever done that.
+- [29:23.220] I want to also thank special envoy,
+- [29:25.040] Steve Witkoff and my son-in-law and a great guy, Jared Kushner.
+- [29:30.590] And I even have my daughter here.
+- [29:32.240] Ivanka. Ivanka, please stand up. Ivanka's here. Wow.
+- [29:35.980] (applause)
+- [29:39.700] Thank you. Thank you, Ivanka. We have a great team,
+- [29:42.310] and we have, as you know, General Raizin Caine.
+- [29:45.170] We have John Radcliffe. We have Tom Barrack.
+- [29:48.270] We have really a lot of good talent.
+- [29:51.240] We have Pete Hegseth, who's now Department of War
+- [29:55.140] as opposed to Department of Defense.
+- [29:56.840] We made a little change. Somehow I like the name better,
+- [29:59.640] so do you, so do a lot of people.
+- [30:02.160] But, the momentous breakthrough
+- [30:03.530] that we're here to celebrate tonight
+- [30:05.520] is more than the end of the war in Gaza.
+- [30:08.270] It's with God's help it'll be the new beginning
+- [30:10.830] for an entire beautiful Middle East.
+- [30:14.590] From this moment forward,
+- [30:15.880] we can build a region that's strong,
+- [30:17.720] and stable, and prosperous,
+- [30:19.160] and united in rejecting the path of terror once and for all.
+- [30:23.810] We want to get rid of the terror and get onto other things.
+- [30:27.540] There are many other things in life that's so good.
+- [30:30.540] The final sprint to this deal began less than three weeks ago
+- [30:33.910] on the sidelines of the United Nations in New York.
+- [30:36.910] I met with many of the people in this room.
+- [30:40.190] And it all just started coming together.
+- [30:42.100] I've known so many of you for so long,
+- [30:43.980] you friends of mine, you're great people.
+- [30:46.170] I have a couple I don't like in particular,
+- [30:48.200] but I won't tell you who.
+- [30:49.640] I have actually a few of them I don't like at all.
+- [30:52.820] But, you'll never find out who they are.
+- [30:55.770] Maybe you will come to think of it.
+- [30:58.530] But, I have most of you who I like a lot
+- [31:00.770] and I respect a lot. Maybe that's more important.
+- [31:03.720] We listened and we exchanged ideas,
+- [31:06.330] and we kept pushing forward until the job was done.
+- [31:08.920] And the first steps to peace are always the hardest.
+- [31:12.360] And today we've taken them and we've put them all together
+- [31:14.910] and we've come up with this beautiful mix
+- [31:17.690] like nobody thought was possible.
+- [31:19.430] And as you know, I've just come from Israel.
+- [31:22.300] It was an amazing day to watch the hostages come in,
+- [31:25.780] and to watch all of the other things
+- [31:27.780] and do all of the other things that we did.
+- [31:30.510] And like all of us here this evening,
+- [31:32.880] the Israeli people are overjoyed that the war has ended.
+- [31:36.400] Many of you have had dancing in the streets,
+- [31:38.430] they had dancing in the streets,
+- [31:40.650] and they've been dancing for weeks now
+- [31:42.520] once they heard about this
+- [31:43.730] and they heard that it was even a possibility.
+- [31:47.110] They're related at the arrival of the hostages
+- [31:50.150] and excited to begin this new chapter for the entire region.
+- [31:53.330] And it's going to be that.
+- [31:54.610] And they are going to be great partners.
+- [31:57.450] And I hope everybody's going to join the Abraham Accord.
+- [32:02.010] I like to say the Avraham -- I love Avraham,
+- [32:06.610] but somehow it doesn't sound as good when I say it as it does
+- [32:09.420] when some of my other friends say it,
+- [32:10.990] who too are from the region.
+- [32:12.890] But, we're going to get a lot of people
+- [32:14.330] joining the Abraham Accord.
+- [32:15.870] We have the four great nations that did it early on
+- [32:19.160] and they stayed with it.
+- [32:20.770] And then you had the Biden administration,
+- [32:22.670] which is the worst administration
+- [32:24.770] in the history of our country.
+- [32:26.210] And obviously they did nothing on that, and anything else.
+- [32:29.890] And so, it stayed at four. And now a lot of people,
+- [32:32.510] even today they're talking about all joining up.
+- [32:35.520] So, so many people have talked to me about that.
+- [32:37.630] And it's going to be a great tribute
+- [32:39.530] to really the United States.
+- [32:42.290] The United States has worked very hard in the Middle East,
+- [32:44.640] so it would be a tribute to us, and to Jared, and to Steve,
+- [32:48.330] and to all of the people, Marco,
+- [32:50.280] all of the people that have worked so hard on that.
+- [32:52.580] And it really is going to bring --
+- [32:54.040] It's going to guarantee that it all stays together.
+- [32:58.030] And you're going to do well
+- [32:59.280] because the four nations do very well.
+- [33:01.710] They do extremely as --
+- [33:03.470] They're wealthy, but they're a lot wealthier because of it.
+- [33:06.770] So, I hope everybody's now joining up.
+- [33:08.690] Now we have no excuses. We don't have a Gaza
+- [33:11.460] and we don't have an Iran as an excuse.
+- [33:13.730] That was a good excuse, but we don't have that anymore.
+- [33:16.990] All the momentum now is toward a great glorious
+- [33:20.020] and lasting peace,
+- [33:21.720] and our commitment to fulfilling the 20-point plan
+- [33:24.600] we developed together, will be the crucial foundation
+- [33:28.120] for achieving that bright future.
+- [33:29.970] And it's being worked on right now as we speak.
+- [33:32.540] And we're actually in stage three and four.
+- [33:35.190] It's not going to be just divided down so simply.
+- [33:38.500] We can be long advanced
+- [33:40.370] on some of the things that we say we're going to do.
+- [33:43.380] We can take them out of order in a positive way.
+- [33:45.630] And we've shown how it can be done with responsible nations
+- [33:49.440] like the people in this room,
+- [33:50.880] these incredible people in this room,
+- [33:52.920] setting aside their differences, seeking common ground
+- [33:56.270] and pursuing a better world for all of us.
+- [33:59.130] And that spirit's my dream that we all get together
+- [34:02.630] and enjoy our life.
+- [34:05.250] And we're going to put some of you on the Board of Peace.
+- [34:09.110] Everybody wants to be on the Board of Peace.
+- [34:10.960] They said, "Would you be the chairman?"
+- [34:12.300] I say, "I'm pretty busy too."
+- [34:14.220] But, whatever we can do to have peace
+- [34:16.160] in the Middle East, it's worth it.
+- [34:17.500] But, everybody wants to go on the Board of Peace,
+- [34:19.610] so we're probably going to enlarge it.
+- [34:21.290] We're going to get -- And the leaders, the top people,
+- [34:23.790] the top leaders, they want to be on the Board of Peace.
+- [34:26.180] A beautiful term. At first, I wasn't sure,
+- [34:29.820] and then I realized how beautiful it is.
+- [34:32.230] And for the people of Gaza, the focus now must be
+- [34:35.440] on restoring the basics of a good life.
+- [34:38.390] We're going to have a lot of money coming into Gaza,
+- [34:40.630] and a lot of rebuilding and building.
+- [34:42.510] It's not so much rebuilding.
+- [34:43.760] It's really building, cleaning up, and building.
+- [34:46.960] And I'm pleased to announce that numerous countries
+- [34:49.600] of great wealth, and power, and dignity of come forward
+- [34:52.810] to me just today, and over the last week,
+- [34:55.810] to say they want to help in the reconstruction of Gaza
+- [34:59.500] putting up whatever money is necessary
+- [35:01.580] and the money is, of course, it's a lot of money,
+- [35:04.570] but it's not much compared to the value
+- [35:06.630] or the wealth of these tremendous countries.
+- [35:09.700] And they are ensuring stability and success in the Middle East.
+- [35:13.670] So, when you think about it's a very, very small amount of money
+- [35:17.640] is necessary, relatively speaking.
+- [35:20.660] And as those commitments are made,
+- [35:23.020] I'm going to let the world know who is doing it,
+- [35:26.490] because they really deserve great credit for doing it,
+- [35:29.150] and they're going to do something
+- [35:31.380] that's really monumental.
+- [35:32.760] This is a monumental day. This is a monumental moment
+- [35:35.440] in the history of the world beyond the Middle East.
+- [35:39.440] We've all agreed that supporting Gaza must be done
+- [35:43.430] to lift up the people themselves,
+- [35:45.400] but we don't want to fund anything having to do
+- [35:48.960] with the bloodshed, hatred, or terror
+- [35:52.090] as has happened in the past. And for the same reason,
+- [35:55.530] we're also agreed that Gaza's reconstruction
+- [35:58.040] requires that it be demilitarized
+- [36:01.310] and that a new honest civilian police force
+- [36:03.830] must be allowed to create a safe condition
+- [36:06.590] for the people in Gaza.
+- [36:09.410] As I said earlier, I intend to be a partner
+- [36:11.980] in securing a better future. We're going to be working --
+- [36:15.710] You're going to be working with the United States,
+- [36:17.700] and we're going to make sure that the Middle East
+- [36:20.410] is going to be a safe and secure place.
+- [36:22.500] It's a very important place in the world, means so much.
+- [36:25.670] So, many people who said the Middle East --
+- [36:28.250] And this has been going for many, many decades.
+- [36:30.790] I've read it many times,
+- [36:31.990] that World War III will begin in the Middle East.
+- [36:35.230] It's not going to happen. That's not going to happen.
+- [36:37.620] There was a time that you would've thought it could have,
+- [36:39.540] but it's not going to happen.
+- [36:40.780] There won't be World War III, hopefully at all,
+- [36:43.820] but it's not going to start in the Middle East.
+- [36:45.490] We're not going to have a World War III if we're smart.
+- [36:48.050] Never be a World War III.
+- [36:50.200] Our work begins right here and right now.
+- [36:52.580] From ancient times, this region has been extraordinarily mixed
+- [36:58.330] with respect to people, culture, religions,
+- [37:02.150] all of the different elements of national characters
+- [37:05.870] unlike maybe anywhere else on Earth.
+- [37:08.300] And for 3,000 years there's been conflict, for whatever reason
+- [37:13.430] there's been tremendous conflict, always conflict.
+- [37:16.990] But today, for the first time anyone can remember,
+- [37:19.260] we have a once-in-a-lifetime chance
+- [37:21.120] to put the old feuds and bitter hatreds behind us.
+- [37:24.130] And that's why so many people in this room,
+- [37:28.320] they didn't get along.
+- [37:29.560] Some did, some didn't. But, they're getting along now.
+- [37:31.860] This has brought the people together.
+- [37:33.240] This is the first time the Middle East crisis
+- [37:35.630] has brought people together
+- [37:36.910] as opposed to driving them apart,
+- [37:39.520] and to declare that our future will not be ruled
+- [37:42.140] by the fights of the generations past, which is foolish.
+- [37:46.200] So, together let us continue in the spirit of cooperation
+- [37:49.690] and goodwill that has finally brought us
+- [37:52.220] to this incredible historic breakthrough.
+- [37:56.140] If we do together,
+- [37:58.790] we will reach the Middle East's incredible destiny,
+- [38:02.250] a safe, and prosperous,
+- [38:03.590] and beautiful crossroads of culture and commerce,
+- [38:06.510] faith in humanity and geographic center.
+- [38:09.630] This will be the geographic center of the world.
+- [38:12.690] So, I just want to thank everybody for being here.
+- [38:15.280] I want to thank you all for what you've done,
+- [38:17.950] and for this quick, quick notice,
+- [38:19.660] it all came together just at one little period
+- [38:23.150] it just came together.
+- [38:26.150] The greatest deals happened that way.
+- [38:27.780] If you do anything about deals,
+- [38:29.260] that's all I've done all my life is deals.
+- [38:31.710] The greatest deals just sort of happen.
+- [38:34.150] And that's what happened right here.
+- [38:35.550] And maybe this is going to be the greatest deal of them all.
+- [38:38.050] Not just nation-building,
+- [38:39.860] not just having to do with this or the political whims.
+- [38:45.200] This will be maybe the greatest deal of them all, period.
+- [38:48.720] And I want to thank all of you, and all of these great nations,
+- [38:51.620] and this region for what it's gone through
+- [38:54.880] and all of the fights it's had, life over death,
+- [38:58.630] and hope over strife, and harmony over hatred.
+- [39:02.410] That's what we want. We want it to be that way,
+- [39:04.720] because together we're going to forge a magnificent,
+- [39:08.050] great, and enduring peace.
+- [39:10.260] I want to just end by saying, God bless you all.
+- [39:12.760] God bless the Middle East. God bless your countries.
+- [39:16.360] And God bless you. Thank you very much everybody.
+- [39:19.300] Thank you. Thank you very much. Thank you.
+- [39:23.560] (applause)
+- [39:27.930] Thank you very much.
+- [39:29.920] So, if we could ask the media to leave
+- [39:32.440] and we're going to have a little conversation
+- [39:34.170] with all of these great leaders. It will take five minutes.
+- [39:37.650] And we'll just talk for a couple of minutes.
+- [39:40.010] But, if we could ask the media to leave would be great.
+- [39:43.490] Thank you very much. Thank you.

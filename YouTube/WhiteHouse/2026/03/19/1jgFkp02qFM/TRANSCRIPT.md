@@ -1,0 +1,528 @@
+<!-- source: https://www.youtube.com/watch?v=1jgFkp02qFM -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 1jgFkp02qFM -->
+<!-- date_published: 2026-03-19T16:27:07+00:00 -->
+<!-- date_accessed: 2026-06-02T02:36:25.334346+00:00 -->
+
+# Transcript: President Trump Participates in a Bilateral Meeting, Mar. 19, 2026
+
+- [00:19.640] The President: Well, thank you very much, everybody.
+- [00:21.170] It's great to have you.
+- [00:22.380] And we have a very special person,
+- [00:24.630] just won a tremendous election in a record-setting fashion.
+- [00:29.190] See, we have something in common.
+- [00:31.460] And I was very proud and honored to endorse the prime minister
+- [00:36.300] because of the fact that I thought she was really good.
+- [00:39.510] I thought she did a fantastic job.
+- [00:41.930] I respect her a lot, so I gave her an endorsement.
+- [00:44.670] And she had the most successful election,
+- [00:50.480] in my opinion, in the history of Japan,
+- [00:52.990] won by the most ever.
+- [00:55.300] So we have a very popular, powerful woman
+- [00:58.340] and she's a great woman. We have a very fine relationship
+- [01:01.910] and we're going to be talking about trade
+- [01:03.920] and many other things.
+- [01:06.330] And it's an honor to have you. Thank you very much. 18 00:01:10,390 --> 00:01:10,000 Thank you very much.
+- [01:11.420] (speaking Japanese)
+- [01:51.600] Sanae Takaichi: Thank you for inviting me
+- [01:54.260] to the White House today.
+- [01:56.010] The President: Thank you.
+- [01:59.160] Sanae Takaichi: At this time, we --
+- [02:04.990] given the current situation --
+- [02:10.260] The President: Oh, please. Yes, absolutely.
+- [02:12.200] We have a very good interpreter, who I've known for --
+- [02:15.660] who I've known for a long time.
+- [02:21.510] (speaking Japanese)
+- [02:31.000] Right now situations in the Middle East
+- [02:34.420] and also the entire world we are actually experiencing
+- [02:38.310] a very severe security environment.
+- [02:41.610] (speaking Japanese)
+- [02:46.510] And also the global economy
+- [02:48.560] is now about to experience a huge hit
+- [02:52.620] because of these developments.
+- [02:55.990] (speaking Japanese)
+- [03:09.310] But even against that backdrop,
+- [03:11.220] I firmly believe that it is only you, Donald,
+- [03:15.410] who can achieve peace across the world.
+- [03:19.720] (speaking Japanese)
+- [03:26.770] And to do so, I am ready to reach out
+- [03:31.150] to many of the partners in the international community
+- [03:34.860] to achieve our objective together.
+- [03:37.260] (speaking Japanese)
+- [03:39.650] So today, I came here at the White House
+- [03:42.440] to directly convey this message to you.
+- [03:46.800] (speaking Japanese)
+- [03:57.410] And speaking of the situation in Iran,
+- [04:00.500] Iran's development of nuclear weapons must never be allowed.
+- [04:05.110] And that is why we, Japan, have been urging them
+- [04:09.170] and also reaching out to other partners in the world.
+- [04:13.380] (speaking Japanese)
+- [04:30.870] In addition, Japan condemns Iran's actions
+- [04:34.240] such as attacking the neighboring region
+- [04:36.960] and also the de facto or effective closure
+- [04:39.960] of the Strait of Hormuz.
+- [04:41.800] As a matter of fact, my fellow minister,
+- [04:43.970] Minister Motegi, Foreign Minister Motegi
+- [04:46.490] also had the direct exchange
+- [04:49.880] with the Iranian foreign minister
+- [04:52.130] and urged Iran to stop such activities.
+- [04:55.190] (speaking Japanese)
+- [04:56.390] The President: Yeah, yeah, you let me know.
+- [04:59.810] You can let me know.
+- [05:02.150] (speaking Japanese)
+- [05:23.010] And also, the security environment
+- [05:24.750] in the Indo Pacific region
+- [05:26.940] is also becoming increasingly severe.
+- [05:30.070] Donald, you have shown deep trust in Japan,
+- [05:34.100] and also the unwavering commitment
+- [05:35.890] to the Japan-US alliance.
+- [05:37.690] Once again, thank you very much for that.
+- [05:41.850] (speaking Japanese)
+- [05:48.680] And today, I look forward to having a discussion
+- [05:52.240] on how we can cooperate to make our two nations,
+- [05:56.260] both Japan and the United States,
+- [05:58.320] stronger and more prosperous.
+- [06:01.370] (speaking Japanese)
+- [06:06.500] And I also brought specific proposals
+- [06:09.150] to calm down the global energy market.
+- [06:13.390] (speaking Japanese)
+- [06:29.110] So, today, I really look forward to having our discussion
+- [06:33.260] particularly focusing on our collaboration
+- [06:36.000] in economic security in the important areas
+- [06:39.470] such as energy and rare earth minerals.
+- [06:42.450] And also, I look forward to discussing with you
+- [06:45.900] how we can make our two economies
+- [06:48.390] stronger moving forward.
+- [06:49.590] Thank you very much.
+- [06:50.790] The President: Thank you very much,
+- [06:52.010] and you're doing a great job.
+- [06:53.490] Again, congratulations on the biggest win
+- [06:56.930] in the history of Japan.
+- [06:58.260] That's not bad. That's a pretty long history.
+- [07:01.430] That's a large nation with really --
+- [07:04.890] with a great reputation, but it's a tremendous victory.
+- [07:09.210] Congratulations to everybody, very, very proud of you.
+- [07:13.680] Very proud of you. We've become friends
+- [07:16.120] and I'm very proud of the job you've done.
+- [07:18.790] It's not easy. Any questions, please.
+- [07:23.840] The Press: Mr. President, are you fully satisfied
+- [07:26.290] with the level of support that you're getting from Japan
+- [07:28.480] on Iran, including around minesweepers?
+- [07:31.340] Well, we're going to be speaking about it today.
+- [07:33.730] (Speaking to translator) Go ahead, you can go.
+- [07:45.190] We're doing -- we're going to be speaking about it today.
+- [07:49.210] We've had tremendous support and relationship
+- [07:51.700] with Japan on everything. And I believe that,
+- [07:54.590] based on statements that were given to us yesterday,
+- [07:58.350] the day before yesterday having to do with Japan,
+- [08:01.880] they are really stepping up to the plate.
+- [08:04.330] Yes.
+- [08:16.090] Unlike NATO. Please.
+- [08:19.790] The Press: Mr. President,
+- [08:21.090] do you intend to lift sanctions on Iranian oil?
+- [08:23.750] And do you intend to potentially put US troops
+- [08:26.940] or more troops in the region?
+- [08:28.730] The President: No. I'm not putting troops anywhere.
+- [08:31.610] If I were I certainly wouldn't tell you,
+- [08:34.630] but I'm not putting troops --
+- [08:35.940] and we will do whatever is necessary to keep the price.
+- [08:41.310] I actually thought when I did this --
+- [08:42.920] look, the Dow just hit 50,000 a couple of weeks ago.
+- [08:47.930] They said that couldn't happen for four years.
+- [08:49.900] It wouldn't happen in my term.
+- [08:51.240] It's such an outrageous thing because I said it would happen.
+- [08:54.690] I didn't know it was going to happen that fast
+- [08:56.310] but just hit 50,000 and we did that in one year, not four.
+- [09:01.600] S&P had just hit 7,000.
+- [09:04.260] They said that was even more impossible
+- [09:06.480] than the Dow hitting 50,000, and we did that in one year.
+- [09:09.660] So, it was all done.
+- [09:11.070] Everything was going great, the economy was great,
+- [09:13.380] oil prices were very low, gasoline was dropping to --
+- [09:17.050] I mean we had $1.99, $1.85, we had great everything.
+- [09:22.820] And I saw what was happening in Iran
+- [09:24.870] and I said I hate to make this excursion,
+- [09:27.890] but we're going to have to do it.
+- [09:29.580] And I actually thought the numbers would be worse.
+- [09:31.790] I thought that it would go up more than it did.
+- [09:35.430] But we're doing this excursion and, when it's completed,
+- [09:38.710] we're going to have a much safer world.
+- [09:40.370] And the prime minister agrees with me on this;
+- [09:42.990] she considers it to be terrible what Iran did.
+- [09:45.240] I think every country does, just about every country does.
+- [09:48.350] Iran is a serious threat to the world,
+- [09:50.290] to the Middle East and to the world
+- [09:52.440] and everybody agrees with me.
+- [09:54.760] I think virtually every country agrees with me on that.
+- [09:57.940] So, I wanted to put out that fire and I said,
+- [10:02.410] you let me do that, oil prices will go up,
+- [10:04.610] the economy will go down a little bit.
+- [10:06.610] I thought it would be worse, much worse actually.
+- [10:09.570] I thought there was a chance it could be much worse.
+- [10:11.380] It's not bad and it's going to be over with pretty soon.
+- [10:13.940] We've obliterated their Navy.
+- [10:15.910] We've obliterated their -- just about everything there is
+- [10:19.020] to obliterate, including leadership.
+- [10:21.420] Their Navy's gone, their Air force is gone,
+- [10:23.450] their anti-aircraft equipment is gone.
+- [10:25.760] We're flying wherever we want.
+- [10:28.380] We have no -- nobody even shooting at us.
+- [10:31.250] They have -- I mean, and as you know, their leadership is gone.
+- [10:37.100] Their leaders are gone, they pick new leaders,
+- [10:39.580] they're gone, they pick new leaders, they're gone.
+- [10:42.170] And now they're looking for new leaders again.
+- [10:45.630] We can take out the island anytime we want.
+- [10:50.410] I call it the little island that sits there,
+- [10:52.830] so totally unprotected.
+- [10:54.810] And we've taken out everything but the pipes.
+- [10:57.240] We left the pipes because to rebuild the pipes
+- [10:59.690] would take years for them to do.
+- [11:03.480] But we are -- I would say we are substantially ahead of schedule.
+- [11:09.200] And I had to do this, I had a -- I call it an excursion.
+- [11:12.750] I had to take this little excursion
+- [11:15.100] and do something that no other president
+- [11:17.660] had the courage to do and everybody wanted to do it,
+- [11:20.400] but they never had the courage to do and I don't blame them.
+- [11:23.070] I'm not blaming them.
+- [11:25.050] It was left to me, and we've done a great job.
+- [11:26.930] Our military is incredible. We have an incredible military.
+- [11:30.500] We have the strongest military in the world by far.
+- [11:33.060] We have the greatest equipment in the world by far.
+- [11:35.250] In fact, Japan buys our equipment,
+- [11:37.880] buys a lot of it and we're honored by that.
+- [11:40.530] And that's one of the things we'll be talking.
+- [11:42.210] They want to buy a lot of the military equipment.
+- [11:45.160] So, it's just an honor to have the prime minister.
+- [11:47.020] We've had a tremendous relationship.
+- [11:49.290] OK. I think she's going to have to go first before you.
+- [11:56.860] Is that OK. Do you understand? It's very good, I'll tell you.
+- [12:02.490] I mean, it's so nice that we don't have to sit through.
+- [12:04.670] No, it's very good. I haven't picked up your language.
+- [12:08.160] So, the next time you come,
+- [12:10.820] I'll have your language mastered.
+- [12:12.970] All right. Go ahead.
+- [12:14.250] The Press: If the war is almost over,
+- [12:16.580] why is the Pentagon going to ask Congress
+- [12:19.140] for an additional $200 billion?
+- [12:21.480] The President: Well, we're asking for a lot of reasons
+- [12:23.040] beyond even what we're talking about in Iran.
+- [12:27.310] This is a very volatile world and the military equipment,
+- [12:33.300] the power of some of this weaponry is unthinkable.
+- [12:37.530] You don't even want to know about it.
+- [12:39.280] Oh, you could end this thing in two seconds if you wanted to,
+- [12:43.070] but we are being very judicious.
+- [12:47.360] What we want to do -- don't forget, Biden gave away --
+- [12:50.070] I rebuilt the military in my first term.
+- [12:52.800] Biden gave away so stupidly to Afghanistan a lot.
+- [12:57.000] He didn't want to move it.
+- [12:58.200] He was too lazy, too stupid to move it.
+- [13:00.970] But it was a very small amount.
+- [13:03.220] It was a lot, but it was very small relative
+- [13:05.200] to what I purchased and what I built.
+- [13:07.720] We want to have a good --
+- [13:08.960] we want to have vast amounts of ammunition,
+- [13:13.240] which we have right now. We have a lot of ammunition,
+- [13:15.770] but it was taken down by giving so much to Ukraine.
+- [13:19.630] They gave so much.
+- [13:21.080] You know, Biden gave $350 billion worth of cash
+- [13:24.780] and military equipment to Ukraine
+- [13:27.680] and he didn't rebuild anything.
+- [13:29.650] Fortunately, we have a lot -- we have a tremendous --
+- [13:32.390] unlimited supply of what you call
+- [13:34.960] middle and upper middle armaments,
+- [13:39.750] and military (Inaudible)
+- [13:41.820] munitions, armaments, but munitions in particular.
+- [13:45.810] At the high end, we have a lot, but we're preserving it.
+- [13:48.320] We don't really need it.
+- [13:49.970] But we're building our manufacturers
+- [13:52.670] of military equipment
+- [13:54.630] are building at a level they've never seen before,
+- [13:56.490] they've never done before.
+- [13:57.700] Pete's in charge of it with all of us, really.
+- [14:01.160] But Pete's been very, very strong on it.
+- [14:04.060] The general and Pete, myself, the whole group.
+- [14:07.080] And Raytheon is building four factories.
+- [14:10.460] Lockheed is building five or six factories.
+- [14:12.870] And they're building them fast
+- [14:15.230] because we had a very tough meeting with them.
+- [14:17.160] They were going out and buying back stock
+- [14:19.870] for $51 billion in one case.
+- [14:22.640] They spent $51 billion buying back stock.
+- [14:25.290] Now they're not allowed to do that.
+- [14:27.290] And they are now building a tremendous --
+- [14:31.840] there's never been anything like it,
+- [14:33.140] what's taking place right now. So, we're in very good shape,
+- [14:36.720] but we want to be in the best shape,
+- [14:39.470] the best shape we've ever been in.
+- [14:40.860] We were that -- you know, when I rebuilt the military,
+- [14:42.700] we were in great shape.
+- [14:43.920] And then Biden blew it. And he didn't do anything.
+- [14:46.440] He didn't build -- he didn't do anything.
+- [14:49.420] And if you listen to the Democrats,
+- [14:50.950] they don't even want to have a military.
+- [14:52.420] Now you see how important it is,
+- [14:55.540] but we have the strongest military in the world.
+- [14:58.970] We have the best equipment.
+- [15:00.270] We make by far the best equipment.
+- [15:01.880] And the other night,
+- [15:03.500] they had 114 rockets shot at a certain location
+- [15:07.550] and out of 100 highly sophisticated rockets,
+- [15:10.730] out of 114 sophisticated rockets,
+- [15:13.960] every single one of them was shot down with our equipment,
+- [15:17.910] all our equipment. It's amazing, actually, how good it is.
+- [15:20.330] So we want to be sure and it's a small price
+- [15:22.980] to pay to make sure that we stay tippy top.
+- [15:28.430] The Press: Mr. President,
+- [15:29.670] the treasury secretary this morning
+- [15:30.930] said there were defections among Iranian leadership.
+- [15:32.880] Are you aware of that?
+- [15:34.120] And is there anybody the US can work with
+- [15:35.740] as a leader going forward?
+- [15:36.970] The President: Well, we have a man
+- [15:38.190] named the treasury secretary here,
+- [15:39.650] so maybe maybe he wants to discuss it.
+- [15:42.570] Does anybody know? Do you know who he is, central casting?
+- [15:48.230] Scott Bessent: Yeah.
+- [15:49.520] So we are seeing the defections at all levels
+- [15:54.090] as they're starting to sense what's going on with the regime.
+- [15:57.450] It doesn't get reported here in the US very well,
+- [16:00.290] but we are trouncing them from the air
+- [16:03.180] and the regime will probably collapse within itself.
+- [16:06.460] At treasury, we've seen where they've wired their money
+- [16:08.160] out of the country.
+- [16:09.530] We're coming for that.
+- [16:10.740] We're going to get it back to the Iranian people.
+- [16:13.240] The President: And are you seeing defections?
+- [16:14.540] Scott Bessent: Yes, sir.
+- [16:16.130] The President: There's a lot of military defections also.
+- [16:18.500] You have a lot of military defections in Iran.
+- [16:21.830] I don't -- hey, I don't blame them.
+- [16:23.300] The Press: Thank you, Mr. President.
+- [16:24.510] Have you talked to Prime Minister Netanyahu
+- [16:26.760] about attacking the oil and gas fields?
+- [16:28.340] The President: Yeah, I did. I did.
+- [16:29.540] I told him, don't do that, and he won't do that.
+- [16:32.500] We didn't discuss -- you know, we do --
+- [16:34.660] uh, we're independent, we get along great it's coordinated.
+- [16:39.260] But on occasion, he'll do something
+- [16:41.180] and if I don't like it and so we're not doing that anymore.
+- [16:44.560] The Press: And the last one, if I could.
+- [16:45.890] The Fed chairman told me yesterday
+- [16:47.810] that he plans to stay until a new Fed chairman is confirmed
+- [16:52.380] and he also plans to stay on the board
+- [16:53.890] until the investigation into the Federal Reserve is done.
+- [16:56.440] The President: Well, he's under investigation
+- [16:57.860] because he's building a building
+- [16:59.230] for hundreds of billions of dollars
+- [17:00.880] more than it's supposed to cost.
+- [17:02.650] The building you see over there is under budget
+- [17:05.820] and ahead of schedule. That's the ballroom.
+- [17:08.020] The ballroom is a much bigger building.
+- [17:10.760] It's a much more complex building than what he's doing
+- [17:13.490] and it's at a fraction of the cost.
+- [17:16.380] Something is going on, whether it's contractors --
+- [17:18.900] that's what I do best in the world, I build.
+- [17:20.760] I build great buildings. I've always done it
+- [17:23.460] and I build them under budget and ahead of schedule.
+- [17:26.690] They could have $4 billion --
+- [17:28.660] this is a renovation job for $ 4 billion.
+- [17:31.650] And if you look at the building, it's not even --
+- [17:33.900] I don't know if Kevin Warsh
+- [17:35.690] is ever going to be able to move into it.
+- [17:37.440] It's been under construction for years.
+- [17:40.510] It's the most expensive building ever built.
+- [17:44.190] Now, I know it's gross incompetence
+- [17:46.530] because I happen to think he's grossly incompetent.
+- [17:48.910] Today, certainly you should be lowering interest rates.
+- [17:51.340] All right? Certainly, who would not lower them?
+- [17:54.300] But he's stubborn and he's got Trump Derangement Syndrome,
+- [17:57.870] but a lot of people have that.
+- [17:59.260] You know, it's not a curable disease, but --
+- [18:02.970] but he's also building --
+- [18:05.190] he should be lowering rates immediately,
+- [18:07.940] but he won't do that because he's --
+- [18:10.200] he's a stubborn, incompetent person
+- [18:12.430] and that's a bad thing.
+- [18:13.770] You know, when you're stubborn and incompetent,
+- [18:15.560] I think it's the worst combination
+- [18:17.290] and he's also not a smart person,
+- [18:19.610] but he's building a complex over there
+- [18:23.140] that's under his jurisdiction.
+- [18:25.360] He started it and it's out of control.
+- [18:29.110] It's billions of dollars for a little building.
+- [18:32.360] I could have done that building
+- [18:33.740] and made it beautiful for $25 million, $25 million
+- [18:38.870] and it would have been beautiful.
+- [18:41.290] Look, what I've done at the White House, fixing it up.
+- [18:43.260] And I mean, the place was in bad shape,
+- [18:46.330] you see the floors and everything.
+- [18:48.280] It was in bad shape. I could have --
+- [18:49.780] I could have made that building beautiful for $25 million.
+- [18:54.380] They're spending $4 billion. All right?
+- [19:00.110] So it's, uh -- there is criminality.
+- [19:05.300] Maybe it's with the contractor, but --
+- [19:07.990] because I know more about contractors
+- [19:09.680] than any human being, maybe that's ever lived.
+- [19:11.750] But that contractor is a very rich man.
+- [19:14.970] Whoever the contractor is, and we know,
+- [19:17.210] but whoever the contractor is, is an extremely rich man.
+- [19:21.050] He's going to make --
+- [19:23.230] I mean, he could make billions of dollars.
+- [19:24.870] I don't -- I'm hearing numbers from $3 billion to $4 billion.
+- [19:30.300] That would make it the most expensive building
+- [19:32.420] on a square foot basis ever built in history
+- [19:35.410] and you're not even building a building.
+- [19:37.020] It's a renovation. The exterior skin is staying,
+- [19:40.480] the steel is staying, the structure.
+- [19:44.000] So all I want to do is bring out to the public
+- [19:47.840] that this guy is an incompetent --
+- [19:49.900] he's a very incompetent guy and he may be a dishonest guy,
+- [19:53.770] but somebody dishonest because there's no way that building
+- [19:56.170] could be $3 billion to $4 billion.
+- [20:04.410] Please.
+- [20:05.680] The Press: Mr. President, you just mentioned Japan.
+- [20:08.210] The President: This looks like one of your people right here.
+- [20:10.390] The Press: Thank you.
+- [20:11.620] The President: Is he good or bad?
+- [20:13.550] Is he a good reporter or --
+- [20:16.000] Sanae Takaichi: So-so.
+- [20:19.760] The President: Looks like a nice guy. Go ahead.
+- [20:21.570] The Press: Mr. President, you just mentioned Japan
+- [20:23.890] is stepping up.
+- [20:26.610] What kind of support do you expect from Japan in the future?
+- [20:33.000] The President: Look, I expect Japan to step up
+- [20:35.200] because, you know, we have that kind of relationship,
+- [20:37.930] and we step up for Japan.
+- [20:39.580] We have 45,000 soldiers in Japan.
+- [20:43.080] We have -- uh, we spend a lot of money on Japan.
+- [20:45.470] So -- and we've had that kind of a relationship.
+- [20:48.050] So I expect -- I'm not surprised that they would step up.
+- [20:51.290] We don't need much.
+- [20:52.510] We don't need anything. I mean, honestly,
+- [20:54.300] we don't need anything from Japan or from anyone else,
+- [20:56.750] but I think it's appropriate that people step up.
+- [20:59.910] In the case of Japan, I hear they get
+- [21:02.330] more than 90 percent of their oil through the Strait.
+- [21:07.040] So that's a big reason to step up.
+- [21:09.830] I mean, we've -- we've demolished --
+- [21:12.780] that country is close to demolished.
+- [21:15.110] The only thing is the Strait.
+- [21:16.900] It's very hard, you could take two people
+- [21:18.370] and they could drop little bombs in the water
+- [21:20.650] and they're holding things up.
+- [21:22.460] Uh, we don't want that to happen.
+- [21:25.030] But honestly, Japan, China Europe,
+- [21:29.770] parts of Europe get a lot of their oil through the Strait.
+- [21:32.480] We get none, practically. We're less than one percent.
+- [21:36.390] We don't have to be any percent. We don't even --
+- [21:38.380] I think we do it just to be nice,
+- [21:41.200] but we -- think of it. We don't use the Strait.
+- [21:45.330] We're defending the Strait for everybody else.
+- [21:48.130] And then in the case of NATO,
+- [21:51.300] they don't want to help us defend the Strait
+- [21:53.010] and they're the ones that need it.
+- [21:55.650] But now they're getting much nicer
+- [21:57.030] because they're seeing my attitude.
+- [21:58.480] They're getting much nicer, but it's --
+- [22:00.630] as far as I'm concerned, it's too late.
+- [22:03.160] You know, UK wants to send aircraft carriers now
+- [22:08.250] and I said, I want the aircraft carriers before the war.
+- [22:12.370] I don't want them after the war is won.
+- [22:14.660] They want to send me aircraft carriers after the wars --
+- [22:17.320] there's practically nobody to shoot at them.
+- [22:19.520] You know, their missile count is down --
+- [22:21.000] Pete, maybe you could discuss it,
+- [22:23.000] by about 90 something percent. The drones are way down
+- [22:26.890] and the factories are being demolished. Maybe --
+- [22:28.540] Secretary Hegseth: Yes, sir.
+- [22:29.750] Our missile -- missiles being shot are down
+- [22:32.910] over 90 percent since the beginning.
+- [22:35.110] Uh, one-way attack drones, down 90 percent since the beginning,
+- [22:37.970] which is a reflection of overwhelming firepower.
+- [22:40.580] But you mentioned the most important part, Mr. President,
+- [22:42.720] their defense industrial base.
+- [22:44.450] If you can't make more of it in the future,
+- [22:46.550] then you have a limited supply.
+- [22:48.040] And so we're going after all of their defense contractors
+- [22:50.730] that make all of their exquisite weapons and ensuring
+- [22:53.380] that even if they wanted to rebuild more launchers
+- [22:55.860] or more missiles, they couldn't in the future.
+- [22:58.170] And that's a level of devastation for their military
+- [23:00.370] that they've never seen before.
+- [23:02.200] The President: So we have, in literally two weeks,
+- [23:05.400] we've demolished their Navy, their air force.
+- [23:08.360] All technology is gone,
+- [23:10.360] all communication is gone and all of the leaders are gone.
+- [23:14.580] Other than that, they're doing quite well.
+- [23:17.060] OK. How about one more question for the prime --
+- [23:20.000] for the prime minister.
+- [23:21.700] Let me pick a beautiful-looking person from --
+- [23:24.650] a beautiful person from Japan,
+- [23:27.020] a question for the prime minister.
+- [23:28.400] Go ahead. Yeah.
+- [23:30.710] Oh, he doesn't believe he's beautiful.
+- [23:32.360] Oh. He sounded shy. Go ahead, please.
+- [23:37.670] The Press: (Inaudible)
+- [23:38.990] Japan and US are very a good friend, but one question.
+- [23:43.890] Why didn't you tell US Allies in Europe and Asia, like Japan,
+- [23:50.120] about the war before attacking Iran?
+- [23:51.840] So, we are very confused about -- we Japanese citizens.
+- [23:55.210] The President: Well, one thing,
+- [23:56.490] you don't want to signal too much, you know.
+- [23:58.720] When we go in, we went in very hard
+- [24:01.370] and we didn't tell anybody about it because we wanted surprise.
+- [24:05.670] Who knows better about surprise than Japan, OK?
+- [24:09.540] Why didn't you tell me about Pearl Harbor, OK?
+- [24:13.680] Right? He's asking me --
+- [24:17.170] no, you believe in surprise I think much more so than us
+- [24:21.430] and we had to surprise them and we did.
+- [24:24.810] And because of that surprise, we knocked out --
+- [24:26.840] the first two days we probably knocked out
+- [24:29.350] 50 percent of what we and much more than we anticipated doing.
+- [24:33.790] So, if I go and tell everybody about it,
+- [24:36.340] there's no longer a surprise, right?
+- [24:39.170] OK. One more for the prime minister, please.
+- [24:44.090] Are you going for the prime minister?
+- [24:45.440] The Press: Yes, and for you too.
+- [24:46.810] The President: Go ahead for the prime minister.
+- [24:48.010] The Press: Thank you very much. Japan (Inaudible)
+- [24:49.510] Press. Japan's biggest concern is China.
+- [24:53.570] Now they are giving us export control
+- [24:57.870] and very harsh terms to criticize us.
+- [25:02.380] So, could you -- will you plan to bring up relationship
+- [25:08.640] between Japan and China while you are there?
+- [25:16.120] The President: Well, I'll be going to China very quickly.
+- [25:19.230] But I think I'd really like to have the prime minister
+- [25:23.570] talk about China because I know they have
+- [25:25.230] a little bit of an edgy relationship.
+- [25:27.140] And I'd just like to know where it stands.
+- [25:29.560] How are you doing with China? So, please.
+- [25:32.980] (speaking Japanese)
+- [25:56.130] So, first of all, Japan has been consistently open
+- [26:00.120] to dialog with China.
+- [26:02.520] And also, second, we have been addressing our relations
+- [26:07.780] with China in a calm manner.
+- [26:10.250] And also, speaking of the US-China relationship,
+- [26:14.100] my sincere hope is that the relationship
+- [26:17.780] will be something conducive for regional security
+- [26:21.460] and also ensuring the global supply chain in the world.
+- [26:25.730] Once again, I would like to reiterate that Japan
+- [26:28.390] has been consistently open to dialog with China.
+- [26:33.040] The President: And I think we're going to have a great trip.
+- [26:35.740] The trip has been postponed for about a month and a half.
+- [26:39.610] It's been reset and we look forward to it.
+- [26:43.470] And I'll be speaking Japan's praises
+- [26:47.390] when I'm in China with President Xi.
+- [26:50.350] But we have -- but we're going to have some good talks today
+- [26:53.960] and I think mostly about trade
+- [26:56.110] because they want to do a lot of trade.
+- [26:57.520] They're a tremendous purchaser of our energy,
+- [27:00.960] our oil, gas from in particular Alaska.
+- [27:05.440] Because Alaska, believe it or not, is very close.
+- [27:07.600] It's much closer than any other source.
+- [27:09.380] It's just -- it seems a little cold compared to --
+- [27:12.440] but it's just a short trip.
+- [27:19.570] We'll be discussing trade
+- [27:21.090] and a lot of the talk will be about energy.
+- [27:23.680] Thank you very much, everybody.

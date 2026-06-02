@@ -1,0 +1,621 @@
+<!-- source: https://www.youtube.com/watch?v=RNgOLNy9low -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: RNgOLNy9low -->
+<!-- date_published: 2025-03-26T17:39:54+00:00 -->
+<!-- date_accessed: 2026-06-02T02:52:24.248139+00:00 -->
+
+# Transcript: Press Secretary Karoline Leavitt Briefs Members of the Media, Mar. 26, 2025
+
+- [00:05.090] Ms. Leavitt: Good afternoon everybody.
+- [00:07.340] Good to see you all. Since Inauguration Day,
+- [00:10.180] President Trump has secured trillions of dollars
+- [00:13.030] in private and foreign investments.
+- [00:15.770] Every single day, more money is pouring into our country,
+- [00:19.870] which will create more jobs for hardworking Americans.
+- [00:23.310] Today, Schneider Electric pledged to invest more
+- [00:26.100] than $700 million in the United States
+- [00:29.240] to boost American energy infrastructure and AI.
+- [00:32.870] On Monday, Hyundai announced a $20 billion investment
+- [00:36.830] in the United States,
+- [00:38.100] including $5.8 billion for a new steel plant in Louisiana,
+- [00:42.680] which will create nearly 1,500 high paying jobs.
+- [00:46.610] President Trump is truly turning America
+- [00:48.840] back into a manufacturing superpower.
+- [00:52.100] Yesterday, President Trump
+- [00:53.630] marked National Medal of Honor Day
+- [00:55.390] by meeting with 21 of our nation's
+- [00:57.640] bravest heroes and incredible patriots
+- [01:00.460] who have been awarded the highest military honor.
+- [01:03.720] Beautiful picture.
+- [01:05.050] The president also signed a historic executive
+- [01:07.340] order to protect the integrity of American elections
+- [01:10.580] by strengthening voter citizenship verification
+- [01:13.470] and banning foreign nationals
+- [01:15.000] from interfering in US elections.
+- [01:17.640] These are the common sense solutions
+- [01:19.800] that only Democrats could oppose.
+- [01:22.520] But voters deserve elections
+- [01:24.060] they can trust and critical confidence is being restored
+- [01:27.240] thanks to President Trump's leadership.
+- [01:29.610] Later this afternoon, in the East Room,
+- [01:31.600] President Trump will mark Women's History Month
+- [01:33.940] by honoring the exceptional women around our country,
+- [01:37.130] including the highly talented women
+- [01:38.870] in his administration and his cabinet.
+- [01:41.650] And on an additional scheduling update,
+- [01:43.530] the president will hold a press conference
+- [01:45.360] in the Oval Office today at 4:00 PM
+- [01:48.030] to announce tariffs on the auto industry,
+- [01:50.920] and I will leave that to him to make that announcement later.
+- [01:54.280] Unfortunately, all of this good is happening for our country,
+- [01:57.680] this administration is working hard
+- [01:59.490] on behalf of the American public every day,
+- [02:01.810] but the mainstream media continues to be focused
+- [02:04.800] on a sensationalized story
+- [02:06.550] from the failing Atlantic magazine
+- [02:08.780] that is falling apart by the hour.
+- [02:11.690] Here are the facts. The National Security Advisor
+- [02:14.960] has taken responsibility for this matter
+- [02:17.540] and the National Security Council immediately said,
+- [02:20.770] alongside the White House Counsel's Office,
+- [02:23.250] that they're looking into how a reporter's number
+- [02:25.770] was inadvertently added to this messaging thread.
+- [02:28.900] We have said all along that no classified material
+- [02:32.450] was sent on this messaging thread.
+- [02:34.590] There were no locations, no sources, or methods revealed,
+- [02:38.260] and there were certainly no war plans discussed.
+- [02:41.820] The Atlantic has even admitted this themselves.
+- [02:44.840] Their release of these internal messages validates the truth,
+- [02:48.120] which we have been saying all along.
+- [02:50.750] If this story proves anything, it proves that Democrats
+- [02:54.190] and their propagandists in the mainstream media
+- [02:56.930] know how to fabricate, orchestrate,
+- [02:59.180] and disseminate a misinformation campaign quite well.
+- [03:02.540] And there's arguably no one in the media
+- [03:04.910] who loves manufacturing and pushing hoaxes
+- [03:07.460] more than Jeffrey Goldberg.
+- [03:10.000] Goldberg is an anti-Trump hater. He is a registered Democrat.
+- [03:14.170] Goldberg's wife is also a registered Democrat
+- [03:17.040] and a big Democrat donor who used to work under who?
+- [03:20.470] Hillary Clinton.
+- [03:21.830] This is the same Jeffrey Goldberg
+- [03:23.530] who infamously lied about weapons of mass destruction
+- [03:26.390] to get us into the Iraq war, which cost trillions of dollars
+- [03:29.710] and thousands of American soldiers.
+- [03:31.810] And how else has Goldberg discredited himself?
+- [03:34.710] By absurdly claiming that President Trump
+- [03:37.830] was Vladimir Putin during the 2016 campaign,
+- [03:41.000] by peddling the Russia, Russia,
+- [03:42.580] Russia hoax that tried to hijack President Trump's first term,
+- [03:46.580] by inventing the suckers and losers hoax
+- [03:48.770] to help Joe Biden in the 2020 election,
+- [03:51.910] by peddling a hoax about President Trump
+- [03:54.070] involving gold star families to help Kamala Harris
+- [03:57.330] in the 2024 election,
+- [03:59.470] which our campaign at the time vigorously denied.
+- [04:02.660] Jeffrey Goldberg didn't care.
+- [04:04.820] There's more, but we don't have all day,
+- [04:06.710] and we can now add this Signal hoax to this very long list.
+- [04:10.520] The real story here is the overwhelming success
+- [04:13.630] of President Trump's decisive military action
+- [04:16.590] against Houthi terrorists. On March 15th,
+- [04:20.160] President Trump ordered a series of military operations
+- [04:23.270] against the terrorist Houthis to defend
+- [04:25.450] US shipping assets in the Red Sea,
+- [04:27.900] restore freedom of navigation for international shipping,
+- [04:31.150] and defend the United States from enemy threats.
+- [04:34.280] United States forces successfully struck dozens
+- [04:37.840] of targets across Houthi controlled territory.
+- [04:41.320] And as a result of these actions,
+- [04:42.910] several Houthi leaders were killed,
+- [04:45.000] including the Houthi drone chief,
+- [04:46.940] his deputy, and several of their drone experts
+- [04:49.530] and other key leaders.
+- [04:51.570] We also destroyed command and controlled facilities,
+- [04:54.400] weapons manufacturing facilities,
+- [04:56.290] and advanced weapons storage locations.
+- [04:58.900] And it's important to remember why this powerful action
+- [05:02.050] took place in the first place.
+- [05:04.170] Because of Joe Biden's incompetence
+- [05:06.330] and pathetic weakness on the world stage for years,
+- [05:09.840] the Houthi terrorists grew emboldened.
+- [05:12.430] Immediately after taking office in 2021, Joe
+- [05:15.610] Biden removed the Iran-backed Houthis
+- [05:17.690] from the Foreign Terrorist Organization
+- [05:19.590] and Specifically Designated Global Terrorist List.
+- [05:23.170] Did anybody in this room ask the Biden administration
+- [05:25.780] at the time why they made such a stupid mistake?
+- [05:29.270] This reckless action undid the designation
+- [05:31.800] put in place by President Trump during his first term,
+- [05:34.670] and what followed was predictable and devastating.
+- [05:38.120] The Houthis targeted US military ships and aircraft,
+- [05:41.350] hit commercial ships, including US flagged vessels,
+- [05:44.680] threatened our personnel overseas,
+- [05:46.530] and attacked our allies in the region.
+- [05:49.270] This resulted in more than a year
+- [05:51.260] of US flagged commercial ships
+- [05:52.900] being prevented from safely sailing through the Suez Canal,
+- [05:56.320] the Red Sea, and the Gulf of Aden.
+- [05:59.060] This had a massive negative impact on global trade
+- [06:01.860] of the economic security of the United States.
+- [06:04.650] Joe Biden was the commander-in-chief,
+- [06:07.040] and he sat on his hands
+- [06:09.020] while the United States of America was bullied
+- [06:11.390] and embarrassed by terrorists.
+- [06:13.690] President Trump and his team are putting a stop to these threats
+- [06:17.010] and restoring American strength around the world.
+- [06:20.220] The Trump peace-through-strength approach
+- [06:22.460] means no terrorist force will stop American commercial
+- [06:25.790] and naval vessels from freely
+- [06:27.300] sailing the waterways of the world.
+- [06:29.940] But unfortunately, this is not what the Democrats and the media
+- [06:33.080] want to talk about.
+- [06:34.550] They are focused on a coordinated campaign
+- [06:37.350] to try and sow chaos in this White House.
+- [06:40.140] And this has been the most successful first two months
+- [06:42.940] of any administration ever,
+- [06:44.840] which is exactly why they are doing this.
+- [06:47.160] We are not going to bend in the face of this insincere outrage.
+- [06:50.980] And here's just one example of how bad faith
+- [06:53.200] the Democrats criticisms are. Democrat Senator Mark Warner
+- [06:56.890] is hysterical over the use of Signal,
+- [06:59.840] which is an approved decrypted app,
+- [07:01.460] in the killing of Houthi terrorists.
+- [07:03.630] But Senator Warner himself used Signal to work with a lobbyist
+- [07:07.580] for a Russian oligarch to connect the disgraced
+- [07:12.380] Steele dossier author who started the Russia hoax,
+- [07:16.190] which Jeffrey Goldberg later reported on.
+- [07:18.250] How ironic.
+- [07:19.590] We're not going to lose Focus of the bottom line,
+- [07:22.100] which is that Joe Biden's weakness enabled and emboldened
+- [07:24.950] Houthi terrorists, and President Trump's strength
+- [07:27.350] and resolve eliminated those terrorists.
+- [07:30.650] Here in our new media seat today, we have Lyndsay Keith.
+- [07:33.370] She is the managing editor for Merit TV
+- [07:35.810] and serves as their White House correspondent.
+- [07:38.580] Merit TV launched one year ago and creates and distributes
+- [07:41.410] content across diverse platforms.
+- [07:43.770] We're glad to have you with us, Lyndsay. Please kick us off.
+- [07:45.780] The Press: Thank you, Karoline.
+- [07:47.010] I appreciate this opportunity for Merit TV.
+- [07:50.160] Two questions if I may.
+- [07:51.560] One on Signal, one on the economy.
+- [07:53.130] Ms. Leavitt: Sure.
+- [07:54.340] The Press: On Signal, how comfortable is the President
+- [07:57.670] with what was shared so far,
+- [07:59.630] now that the chain has been released?
+- [08:01.510] Ms. Leavitt: The President's view on all of this
+- [08:03.910] remains the same today as it did yesterday.
+- [08:06.670] And I think it speaks volumes
+- [08:08.030] about the leadership of this president,
+- [08:09.760] that he went directly to all of you,
+- [08:11.390] members of the Press Corps. He was asked,
+- [08:13.740] "Do you want someone else to go out and do a briefing?"
+- [08:15.810] And he said, "No, I will tackle this story. I will discuss it.
+- [08:19.590] The people need to hear from me about this situation."
+- [08:22.340] And so, his thoughts on this remain the same today.
+- [08:25.060] He has placed great trust in his National Security team.
+- [08:29.280] And as for the usage of Signal, as the President said yesterday,
+- [08:32.810] as the CIA director has testified under oath,
+- [08:35.480] this is an approved app. It's an encrypted app.
+- [08:38.670] The Department of Defense, the Department of State,
+- [08:40.740] the CIA has it loaded onto government phones
+- [08:43.320] because it is the most secure and efficient way
+- [08:46.090] to communicate. As for, again,
+- [08:48.300] the original situation in this messaging thread,
+- [08:50.640] the National Security Council, the White House Counsel's Office
+- [08:53.010] continues to look into how this mistake,
+- [08:55.480] which the National Security Advisor has owned, occurred.
+- [08:58.590] And the president has ensured they are doing that.
+- [09:00.660] The Press: On the economy,
+- [09:01.910] consumer confidence hit a four-year low this month.
+- [09:05.500] Can you help explain to the American people
+- [09:08.030] how tariffs will help them in the long run?
+- [09:10.080] Ms. Leavitt: Yeah, absolutely.
+- [09:11.370] And I'm grateful for the question the American public
+- [09:13.830] will hear later this afternoon from the President
+- [09:16.550] directly on the topic of tariffs.
+- [09:18.620] And as you all know, April 2nd day,
+- [09:20.400] President Trump has proudly dubbed it
+- [09:21.980] Liberation Day for our country.
+- [09:24.620] What he means by that is it will be a day
+- [09:26.970] where the United States of America
+- [09:28.400] will no longer be ripped off by nations around this world.
+- [09:31.890] It will be a day where Americans finally see free
+- [09:34.620] and fair trade practices restored.
+- [09:37.920] We are no longer going to allow our allies, our competitors,
+- [09:40.650] and our adversaries to take advantage of American workers.
+- [09:43.880] And if you think about your hometown in the state
+- [09:45.850] that you grew up,
+- [09:47.070] Main Street looks a lot different today
+- [09:49.270] than it did many years ago.
+- [09:50.920] And President Trump wants to restore America
+- [09:53.300] as a manufacturing superpower around the globe.
+- [09:55.910] He wants products to be made right here in our great country
+- [10:00.040] with great hardworking American hands
+- [10:02.400] that will ultimately result in higher wages
+- [10:05.050] and more money in the pockets of the American people.
+- [10:07.910] And he's also, in addition to tariffs,
+- [10:10.540] also determined to pass tax cuts later this year,
+- [10:13.480] as he did successfully in his first term,
+- [10:15.330] to put even more money back into the pockets
+- [10:17.450] of hardworking Americans. Peter.
+- [10:19.340] The Press: Karoline, if I can ask you very quickly
+- [10:20.790] about the information we've seen,
+- [10:22.540] just to set the predicate to all this,
+- [10:23.950] has the president been briefed and physically seen the…
+- [10:27.870] He's seen all the details of the chat as printed by the Atlantic?
+- [10:29.890] Ms. Leavitt: I just spoke to the President about it, yes.
+- [10:31.230] The Press: Okay.
+- [10:32.460] Then let me ask you, if I can, very quickly.
+- [10:33.880] In the chat, Pete Hegseth, the Defense Secretary,
+- [10:36.750] details F-18s, Tomahawks,
+- [10:39.600] as some of the weapons that were used.
+- [10:41.260] He details the timing involved for this,
+- [10:43.830] all of which occurred 31 minutes before,
+- [10:46.010] as he says, F-18s would launch.
+- [10:49.020] The DoD manual details classified information
+- [10:52.150] as significant military plans saying that is secret,
+- [10:55.320] that that's classified.
+- [10:56.520] So what about, there are no methods, there are no sources,
+- [11:00.120] but that's not what determines what's classified.
+- [11:02.800] So what is it about what Pete Hegseth wrote
+- [11:05.630] that makes you say this is not classified?
+- [11:07.730] Ms. Leavitt: Well, it's not just me saying that, Peter.
+- [11:09.270] It's the Secretary of Defense himself
+- [11:11.880] who was saying this as well.
+- [11:13.400] And he put out a very strong statement earlier today
+- [11:16.270] listing all of the things that were not included
+- [11:18.760] in that message that he sent to the group.
+- [11:20.820] And again, this message,
+- [11:22.080] there was no classified information transmitted.
+- [11:24.220] There were no war plans discussed.
+- [11:26.410] Why did the Atlantic downgrade their allegation
+- [11:29.560] about war plans to attack plans? They're now playing word games
+- [11:33.110] because they know this was sensationalist spin
+- [11:35.510] from a reporter who is well known for doing this.
+- [11:37.940] We have said all along, no war plans were discussed,
+- [11:40.120] no classified material was sent.
+- [11:42.270] You have the Secretary of Defense saying that.
+- [11:44.170] You have the Director of the CIA,
+- [11:45.840] the Director of National Intelligence,
+- [11:47.430] the FBI Director, all testifying to that under oath,
+- [11:50.900] and they should be trusted with that.
+- [11:52.230] The Press: To be clear, Americans can make the decision
+- [11:53.850] for themselves, but whether… You said it's not war plans.
+- [11:58.340] Would you characterize these as military plans,
+- [12:02.490] military operation plans?
+- [12:03.880] Ms. Leavitt: I would characterize
+- [12:05.130] this messaging thread as a policy discussion,
+- [12:07.850] a sensitive policy discussion surely,
+- [12:10.040] amongst high-level cabinet officials and senior staff.
+- [12:13.130] And I'm so glad, Peter,
+- [12:14.540] that you said the American public
+- [12:16.010] can decide for themselves.
+- [12:17.440] Because I think the American public
+- [12:18.810] should decide for themselves
+- [12:20.260] based on the outcome of this operation.
+- [12:22.710] And what happened in this operation?
+- [12:24.750] Terrorists that were allowed to run wild
+- [12:26.760] by the Biden administration were killed
+- [12:29.150] because of the direction
+- [12:30.370] and the determination of this president and his team.
+- [12:33.670] And this message also shows,
+- [12:35.300] this messaging thread also proved
+- [12:37.500] that President Trump has an incredibly dynamic team
+- [12:40.530] who is working incredibly hard,
+- [12:42.420] flying all over the world to secure world peace
+- [12:45.520] and to fix up the foreign policy crises
+- [12:48.680] that the previous administration left for this team to inherit.
+- [12:51.670] The Press: So to be clear, we all in this room
+- [12:53.080] and around the country would agree
+- [12:54.310] that we're glad no American service members were harmed
+- [12:56.630] and we're glad that the mission was a success.
+- [12:58.550] We'll stipulate that.
+- [12:59.820] But the President said that Pete Hegseth said
+- [13:02.060] none of this was classified.
+- [13:03.370] So given the president has seen it now
+- [13:05.230] and given the president understands
+- [13:06.680] that significant military plans are deemed classified as secret,
+- [13:11.230] how does the president view none of this,
+- [13:13.270] which details times, and weapons,
+- [13:16.380] and more as being not classified?
+- [13:18.650] Ms. Leavitt: I've already been asked and answered
+- [13:20.140] this question.
+- [13:21.370] The president's thoughts on this remain the same today
+- [13:23.720] as they were yesterday-
+- [13:24.930] The Press: On what basis, I'm asking.
+- [13:26.130] Ms. Leavitt: … as well as the Secretary of Defense.
+- [13:28.130] This question has been asked and answered.
+- [13:29.630] There was no classified material discussed. Jackie?
+- [13:31.290] The Press: On what basis, I was asking.
+- [13:32.520] Ms. Leavitt: Go ahead Jackie.
+- [13:33.780] The Press: Thank you, Karoline.
+- [13:35.390] So why aren't launch times on a mission strike classified?
+- [13:41.270] Ms. Leavitt: Again, I would defer you
+- [13:42.590] to the Secretary of Defense's statement
+- [13:44.120] he put out this morning.
+- [13:45.350] There were various reasons he listed,
+- [13:47.280] things that were not included in that messaging thread,
+- [13:49.430] that were not classified.
+- [13:50.730] And again, going back to the American public,
+- [13:52.880] do you trust the Secretary of Defense,
+- [13:55.060] who was nominated for this role,
+- [13:56.560] voted by the United States Senate into this role,
+- [13:58.670] who has served in combat,
+- [14:00.240] honorably served our nation in uniform?
+- [14:02.340] Or do you trust Jeffrey Goldberg,
+- [14:04.290] who is a registered Democrat
+- [14:05.580] and an anti-Trump sensationalist reporter?
+- [14:08.080] This president and this National Security team
+- [14:10.290] are putting our national security
+- [14:12.690] and the American people first.
+- [14:14.130] We are restoring American strength around the world,
+- [14:16.800] and the results of this operation speak for themselves.
+- [14:19.210] The Press: Putting aside Jeffrey Goldberg, though,
+- [14:20.740] just for American service members who are going to have
+- [14:23.780] to carry out these missions in the future,
+- [14:27.740] I guess the message that's coming from the response
+- [14:30.680] to all this that we're hearing
+- [14:32.130] is that nothing sensitive happened.
+- [14:35.340] And I guess the logical conclusion of that is that
+- [14:37.930] if these messages had gone out publicly prior to the launch,
+- [14:43.770] that that wouldn't have been a risk to service members?
+- [14:46.160] I don't know that they're comfortable with that.
+- [14:47.830] So can you explain, had these messages been published,
+- [14:53.350] would the plans have moved forward?
+- [14:56.050] Would the launch have still taken off?
+- [14:57.540] Ms. Leavitt: What I can tell you is that the president,
+- [14:59.550] as the Commander-in-Chief of our United States Armed Forces,
+- [15:02.600] and Secretary Pete Hegseth, who is an incredible man
+- [15:06.000] and a war fighter himself,
+- [15:07.780] take the lives of our American service members
+- [15:10.540] with the utmost responsibility,
+- [15:12.390] and they would never do anything intentionally
+- [15:15.390] to put their lives at risk.
+- [15:18.370] And again, they're working hard on that every single day,
+- [15:21.150] and we are protecting our service members
+- [15:23.260] while also restoring peace throughout this globe.
+- [15:26.320] It's something the previous administration has not done.
+- [15:29.110] And I would just add one more point.
+- [15:31.600] We are not going to be lectured about national security
+- [15:35.170] and American troops by Democrats in the mainstream media
+- [15:38.650] who turned the other cheek when the Biden administration,
+- [15:41.790] because of their incompetence,
+- [15:43.300] left 13 service members dead in Afghanistan,
+- [15:46.310] and not a single person in the previous administration
+- [15:49.100] was held accountable for that botched withdrawal.
+- [15:51.980] Joe Biden said, in fact, it was a great operation.
+- [15:55.210] That is despicable.
+- [15:56.500] It's unacceptable to this president
+- [15:58.310] and this Secretary of Defense.
+- [15:59.780] The National Security Advisor has taken responsibility
+- [16:02.420] for this inadvertent number
+- [16:03.730] being added to the messaging thread.
+- [16:05.540] But above all, we take the lives of our troops, safety, security,
+- [16:09.320] prosperity around the globe with the utmost seriousness.
+- [16:11.330] The Press: On Goldberg's intentions, do you believe that-
+- [16:12.710] Ms. Leavitt: Jennifer, go ahead.
+- [16:13.940] The Press: -- he would release that
+- [16:15.140] to embarrass the administration ahead of the worldwide threats?
+- [16:17.200] Ms. Leavitt: Jennifer, go ahead.
+- [16:18.610] The Press: Given what you've said about the president's trust
+- [16:21.520] in his National Security team,
+- [16:23.420] can you say definitively that no one will lose their jobs?
+- [16:26.560] No one will lose their job at all
+- [16:27.990] because of this Signal situation?
+- [16:29.480] Ms. Leavitt: What I can say definitively
+- [16:30.830] is what I just spoke to the president about,
+- [16:32.790] and he continues to have confidence
+- [16:34.260] in his National Security team. Go ahead.
+- [16:37.130] The Press: One more. Can I ask one more, Karoline?
+- [16:38.640] On the targets in Yemen on March 15th,
+- [16:41.920] can you say, were 100% of the targets
+- [16:44.900] that were planned for March 15th, were they all destroyed?
+- [16:48.380] Because that would be an indication,
+- [16:49.800] if some of them were moved, or they were not all hit,
+- [16:52.370] that maybe perhaps some of the enemies were able
+- [16:55.200] to get some of the information in that Signal thread.
+- [16:56.930] Ms. Leavitt: What I can say about the operation
+- [16:58.750] is what the Department of Defense has put out there.
+- [17:00.810] I would refer to them for any further operational details.
+- [17:04.530] But there have been more than 100 strikes conducted
+- [17:07.870] against Houthi targets and they have hit key
+- [17:11.580] Houthi leaders, air defense systems,
+- [17:13.420] commanding control nodes, headquarters,
+- [17:15.620] weapons manufacturing and storage facilities.
+- [17:18.000] And these operations will continue
+- [17:19.930] until the freedom of navigation in our seas is restored
+- [17:23.580] and US shipping can safely transmit
+- [17:25.290] without the fear of attack.
+- [17:26.820] And again, we believe that this has been
+- [17:28.680] a very successful operation thus far,
+- [17:30.910] and it will continue until this administration
+- [17:33.180] feels it no longer has to,
+- [17:34.730] and these terrorists have been taken out,
+- [17:36.330] which again, is something
+- [17:37.640] previous administration should have done.
+- [17:39.100] But they didn't, and now we've inherited this crisis.
+- [17:40.900] Steven.
+- [17:42.100] The Press: Thank you, Karoline.
+- [17:43.380] I'd like to clarify something about the investigation
+- [17:45.600] and also ask about some conservative commentary
+- [17:48.430] on the investigation. Mike Waltz said last night
+- [17:50.770] that he had spoken to Elon Musk about figuring out
+- [17:53.760] how Jeffrey Goldberg's number got in his phone.
+- [17:56.290] You mentioned the NSC
+- [17:57.580] and the White House Counsel's Office investigating.
+- [17:59.230] Can you just clarify who is investigating,
+- [18:01.320] who's leading that?
+- [18:02.690] And also Dave Portnoy, who endorsed President Trump,
+- [18:07.850] said today that he thinks that Mike Waltz should leave.
+- [18:10.840] Could you respond to that?
+- [18:12.900] Ms. Leavitt: Sure. Great respect for Dave Portnoy,
+- [18:15.230] but I just answered that previous question from Jennifer.
+- [18:18.730] As for your original question about who's leading,
+- [18:21.230] looking into the messaging thread,
+- [18:24.090] the National Security Council,
+- [18:25.470] the White House Counsel's Office,
+- [18:26.840] and also, yes, Elon Musk's team.
+- [18:28.880] Elon Musk has offered to put his technical experts on this
+- [18:32.480] to figure out how this number was inadvertently added
+- [18:35.040] to the chat, again, to take responsibility
+- [18:37.030] and ensure this can never happen again.
+- [18:38.410] Caitlin.
+- [18:39.700] The Press: I have two questions,
+- [18:40.910] one on a follow-up on something you just said.
+- [18:42.540] But since we have these messages released
+- [18:44.290] and you said that the president
+- [18:45.720] has now personally reviewed them.
+- [18:48.100] At the chat, at one point, Pete Hegseth wrote,
+- [18:50.670] "1415: Strike Drones on Target," and in all caps, he said,
+- [18:54.380] "This is when the first bombs will definitely drop."
+- [18:57.660] Does the president feel that he was misled
+- [19:00.110] by his national security advisors,
+- [19:01.390] whoever it was that told him
+- [19:02.620] there was no classified information in there,
+- [19:04.240] now that he's seen these messages.
+- [19:05.870] Ms. Leavitt: I've now been asked and answered
+- [19:07.490] this question three times by the both of you,
+- [19:09.630] and I've given you my answer.
+- [19:10.840] The president feels the same today as he did yesterday.
+- [19:13.310] The Press: Sorry, I might follow up
+- [19:14.560] on what you had just said.
+- [19:15.760] Ms. Leavitt: No. Go ahead, Philip.
+- [19:16.990] Caitlin, I'm not taking your follow-up.
+- [19:18.330] The Press: I have a follow on something you
+- [19:19.540] just said though, Karoline.
+- [19:20.800] Ms. Leavitt: Caitlin, I'm not taking your follow-up.
+- [19:22.570] Philip, go ahead. I have called on you. Thank you.
+- [19:24.350] The Press: The vice president
+- [19:25.690] seemed to express some frustration
+- [19:27.150] that Europe wasn't doing more to police waterways
+- [19:29.530] in their backyard, noting in that Signal thread
+- [19:31.920] that 40% of European trade goes through the Suez Canal.
+- [19:36.240] Does the president share that opinion and frustration?
+- [19:39.030] And then going forward, should the Europeans be responsible
+- [19:42.770] for policing that waterway?
+- [19:44.000] Ms. Leavitt: Well, the president was asked
+- [19:45.230] this question yesterday by the pool in the Cabinet Room
+- [19:47.700] and he answered this question.
+- [19:48.920] He said, yes, he believes that Europe has been,
+- [19:52.050] as the vice president put it,
+- [19:54.030] freeloading on the backs of American taxpayers
+- [19:56.600] and off the backs of the United States of America,
+- [19:59.430] and he wants to ensure that Europe pays their fair share.
+- [20:01.720] He's always been very honest and upfront about that.
+- [20:04.450] And I think the vice president
+- [20:05.720] shares those concerns with him as well.
+- [20:07.220] The Press: And then, one more.
+- [20:08.470] Ms. Leavitt: Sure.
+- [20:10.740] The Press: Enlisted soldiers, sailors,
+- [20:12.750] and marines would face consequences
+- [20:15.250] if they shared this type of information
+- [20:17.820] inadvertently with a reporter.
+- [20:20.620] Can you tell us more why the president is
+- [20:22.370] so willing to give Mike Waltz a mulligan here?
+- [20:25.450] Ms. Leavitt: Again, I have now been asked
+- [20:26.990] and answered the same question
+- [20:28.300] using different language multiple times.
+- [20:30.550] If anybody has another question,
+- [20:31.870] there's a lot of different things going on in the world.
+- [20:34.160] We have tariffs possibly being implemented later today.
+- [20:37.200] The president is going to talk about that
+- [20:38.610] at 4:00 this afternoon.
+- [20:40.740] Sure, go ahead.
+- [20:42.180] The Press: Okay. Thank you for taking my question.
+- [20:43.530] I wanted to first and foremost thank the administration
+- [20:46.030] for the election integrity executive order,
+- [20:48.450] because so many journalists for four years
+- [20:50.560] were banned from talking about this very subject.
+- [20:52.510] So thank you to the administration for that.
+- [20:55.170] My question is, yesterday, President Trump,
+- [20:57.100] when signing the order said that there was more to come
+- [20:59.060] when it comes to election integrity.
+- [21:01.010] Would that include same-day voting
+- [21:03.720] and hand-counted paper ballots?
+- [21:06.330] And why are Democrats so against election integrity measures,
+- [21:10.000] like, obviously, proof of citizenship,
+- [21:13.370] when it comes to voting in the United States election?
+- [21:15.770] Ms. Leavitt: Well, it's a very good question.
+- [21:17.110] You'll have to ask the Democrats why they're against
+- [21:19.030] so many common-sense things, not just mandating voter ID.
+- [21:22.170] Why are they against men in women's sports?
+- [21:23.970] Why are they against deporting foreign terrorists
+- [21:26.820] from American soil who have been designated
+- [21:29.450] a foreign terrorist organization?
+- [21:30.810] I'm referring to Tren de Aragua.
+- [21:32.460] As for the election integrity executive order
+- [21:34.550] that the president signed yesterday,
+- [21:36.340] this is in an effort to restore trust in American elections.
+- [21:39.700] There were more than 10 steps taken,
+- [21:41.470] 10 executive actions taken throughout this one order.
+- [21:44.270] It directs the department, or the attorney general,
+- [21:46.790] rather, and Homeland Security to prevent non-citizens
+- [21:49.750] from any involvement in administering elections.
+- [21:52.070] There's also another host of actions.
+- [21:53.890] We can provide the fact sheet for you,
+- [21:55.240] but it's a very strong election integrity executive order.
+- [21:58.670] And the president would also like to see
+- [22:00.100] Congress do something about this very important issue.
+- [22:02.190] The Press: About Judge Goldstein-
+- [22:03.770] Ms. Leavitt: Sure, go ahead.
+- [22:05.130] The Press: Karoline, the Republicans and Democrats
+- [22:07.460] alike have been expressing some concern about the frequency
+- [22:10.750] of which senior Trump officials have been using this Signal app.
+- [22:14.870] Has there been discussion whether there'll be a review
+- [22:17.710] about how often they use Signal, and if you could explain to us
+- [22:21.950] how they might be considering other applications
+- [22:25.920] to get away from something like this happening again?
+- [22:28.240] Ms. Leavitt: Sure. Well, again, first of all,
+- [22:29.800] Signal has been an approved app for government use.
+- [22:32.620] It's an encrypted app.
+- [22:33.840] And as I said, it's the most safe
+- [22:36.060] and efficient way of communicating,
+- [22:38.500] especially when people can't be in a skiff
+- [22:41.180] or inside a room physically together.
+- [22:43.410] I think as the president said yesterday,
+- [22:45.540] he wishes that everybody could be in the room
+- [22:47.610] and it's our goal to ensure that everybody can be.
+- [22:50.810] But again, no classified information
+- [22:52.610] was discussed in this chat.
+- [22:53.890] And any time classified information
+- [22:56.110] is discussed amongst high-level officials
+- [22:58.080] across this administration,
+- [22:59.540] secure lines of communication are used,
+- [23:02.170] including by the way, our special envoy,
+- [23:05.380] Steve Witkoff, who I understand,
+- [23:07.000] the Wall Street Journal erroneously reported
+- [23:09.580] that he was on this Signal chat
+- [23:11.020] on a personal device while in Moscow.
+- [23:12.820] That is absolutely false.
+- [23:15.090] Steve Witkoff did not have his personal device,
+- [23:17.230] nor did he have his government device with him.
+- [23:19.530] He was given a classified protected server
+- [23:22.850] by the United States government,
+- [23:24.480] and he was very careful about his communications
+- [23:26.920] when he was in Russia.
+- [23:28.130] So rest assured to the American public,
+- [23:30.310] this administration is taking every precaution
+- [23:33.130] when it comes to protecting our national security.
+- [23:35.690] And that's why the American people
+- [23:36.900] re-elected this president.
+- [23:38.130] Because they know that our national security
+- [23:40.120] is in good hands with the President of the United States.
+- [23:43.050] Speaking of the vice president,
+- [23:44.400] I understand he's going to be speaking any moment now.
+- [23:47.290] I would hate to counter program
+- [23:48.640] the Vice President of the United States.
+- [23:50.490] You'll also hear from the president at 3:00.
+- [23:52.670] He will be honoring Women's History
+- [23:54.280] at the Women's History Month celebration.
+- [23:56.260] We have a lot of great women across our cabinet
+- [23:59.040] who will be in attendance, so we'll see you all there.
+- [24:00.820] And then you'll also hear from the president again at 4:00
+- [24:03.460] when he talks about tariffs.
+- [24:04.780] So plenty of time for more questions.
+- [24:06.590] Sorry, it's a bit shorter today, guys. We'll see you later.
+- [24:08.690] The Press: Why was Jeffrey Goldberg's number
+- [24:10.280] in Michael Waltz's phone
+- [24:11.480] if he's registered democrat and anti-Trump reporter?

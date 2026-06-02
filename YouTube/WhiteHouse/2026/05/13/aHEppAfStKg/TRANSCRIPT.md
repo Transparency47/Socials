@@ -1,0 +1,1404 @@
+<!-- source: https://www.youtube.com/watch?v=aHEppAfStKg -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: aHEppAfStKg -->
+<!-- date_published: 2026-05-13T19:05:55+00:00 -->
+<!-- date_accessed: 2026-06-02T02:33:55.187712+00:00 -->
+
+# Transcript: Vice President JD Vance’s Press Conference on Anti-Fraud Initiatives
+
+- [00:09.500] The Vice President: Good afternoon, everybody.
+- [00:10.700] How we doing? Good. Good to see you all.
+- [00:14.670] So as you know, the President just landed in China
+- [00:16.900] a few hours ago.
+- [00:20.030] You may know that, because of Secret Service protocols,
+- [00:22.250] that I don't travel outside of the country
+- [00:24.200] with the President of the United States.
+- [00:25.780] So on days today,
+- [00:27.130] I sometimes feel like Macaulay Culkin in Home Alone.
+- [00:29.480] I walk into the White House
+- [00:30.770] and it's very quiet and no one's there,
+- [00:32.640] and it takes me a second to realize exactly what's going on.
+- [00:35.470] But we've got a very big announcement today,
+- [00:36.950] actually a number of big announcements,
+- [00:38.290] and looking forward to hearing from Andrew
+- [00:40.570] and Dr. Oz and Kim about that.
+- [00:43.090] But let me just say that we've been hard at work
+- [00:45.400] over the last several months
+- [00:47.950] trying to make sure that we take care of the people's money
+- [00:50.200] and trying to make sure that the services that exist
+- [00:52.240] for the betterment of our fellow citizens,
+- [00:54.640] whether they're low income kids
+- [00:55.870] who need access to food resources,
+- [00:57.410] whether they're low income families
+- [00:58.700] who need access to medical benefits,
+- [01:00.550] that those programs are protected
+- [01:01.830] for the people who actually need them,
+- [01:03.400] that they don't exist to enrich fraudsters,
+- [01:05.280] but they exist for the American people
+- [01:07.290] for whom Congress has said they're entitled.
+- [01:10.100] And that's exactly what this Fraud Task Force is about.
+- [01:12.910] One of the things that I thought going into it,
+- [01:15.100] but that I've learned about fraud
+- [01:16.870] is that it always has two fundamental victims.
+- [01:19.020] The first victim is the American taxpayer
+- [01:21.170] who has generously paid into these programs
+- [01:23.260] in an effort to give their fellow citizens a leg up.
+- [01:25.950] But it also has, as its victims,
+- [01:28.140] the people who are meant to benefit from these programs
+- [01:31.150] who are not able to benefit or maybe are benefiting less
+- [01:34.860] because of what a disaster some of the fraud
+- [01:38.850] has brought in these programs.
+- [01:40.380] And let me just give you a few concrete examples
+- [01:42.900] of what we're worried about, of what we're targeting
+- [01:45.670] and also what we're going to do to solve some of these problems.
+- [01:47.790] So first, we're announcing that the federal government
+- [01:51.180] is deferring $1.3 billion in Medicaid reimbursements
+- [01:56.030] from the state of California.
+- [01:57.700] And the simple reason is because the state of California
+- [01:59.830] has not taken fraud very seriously,
+- [02:01.710] and because of that,
+- [02:02.990] we see a lot of the consequences that I just referenced.
+- [02:05.360] And again, let me highlight the fact
+- [02:07.600] that this really is two separate victims.
+- [02:10.770] So there are California taxpayers and American taxpayers
+- [02:14.480] who are being defrauded
+- [02:15.680] because California isn't taking its program seriously,
+- [02:19.650] but also you have people who've been prescribed medications
+- [02:23.590] that they don't even need.
+- [02:24.940] Sometimes they've had drugs put into their bodies
+- [02:27.390] that they don't need because fraudsters
+- [02:29.560] have actually encouraged false prescriptions
+- [02:32.530] and false administration to medications.
+- [02:34.260] So think about this.
+- [02:35.500] You're just a person trying to go see a doctor.
+- [02:37.330] You assume that your doctor is doing the right thing,
+- [02:40.390] but these fraudulent healthcare providers are getting rich
+- [02:43.670] by giving people medications they don't even need.
+- [02:46.330] It's a defrauding of the American taxpayer,
+- [02:48.820] but it's a violation of the trust that should exist
+- [02:51.100] between every American
+- [02:52.780] and the people who prescribe the medications.
+- [02:55.480] That's one thing that we're targeting.
+- [02:58.330] And this is why we're taking this action
+- [02:59.890] is because we want California to get serious about this fraud.
+- [03:02.930] The second thing I want to talk about,
+- [03:04.210] and it requires a little bit of background explanation,
+- [03:06.880] is that we are going to very aggressively encourage
+- [03:11.580] the states to take Medicare fraud more seriously.
+- [03:14.350] So I think a lot of you understand,
+- [03:15.840] but for those of you watching at home who don't appreciate this,
+- [03:19.020] the Medicaid system that exists in the United States
+- [03:21.880] is really 50 separate systems.
+- [03:24.290] The federal government pays most of the Medicaid money,
+- [03:26.980] but then each of the individual states
+- [03:29.000] actually administers the Medicaid program.
+- [03:31.820] Now, we have red states and blue states
+- [03:35.140] that go after fraud aggressively,
+- [03:37.330] but we also unfortunately have some states,
+- [03:39.790] mostly blue states, unfortunately,
+- [03:41.960] that do not take Medicaid fraud very seriously.
+- [03:44.820] So you have what's called Medicaid fraud control units
+- [03:48.200] or MFCUs.
+- [03:49.880] These anti-fraud units within the Medicaid program,
+- [03:54.070] we generously, meaning the federal government
+- [03:55.980] generously gives these fraud control units many,
+- [03:59.550] many billions of dollars across the United States of America
+- [04:02.320] so that they can take Medicaid fraud seriously.
+- [04:05.160] But let me just give you an example to highlight
+- [04:07.190] how absurd some of these Medicaid fraud programs
+- [04:10.670] are because they're not actually being used at all.
+- [04:14.080] This is a tool. This is a tool that we want the states to use,
+- [04:16.760] but unfortunately, a lot of states
+- [04:18.220] aren't using these tools at all.
+- [04:20.020] Let me highlight this with just a couple of separate statistics.
+- [04:23.180] So the Hawaii Medicaid fraud -- Excuse me.
+- [04:27.810] The Hawaii Medicaid program has received billions
+- [04:31.620] and billions of dollars from the federal taxpayers.
+- [04:34.100] And, of course, Hawaii taxpayers have paid in a lot of money
+- [04:36.890] into this program over the last years as well.
+- [04:41.170] Guess how many convictions or indictments
+- [04:43.770] has Hawaii had over the last few years
+- [04:46.710] in its Medicaid fraud program? The answer is zero.
+- [04:50.270] Not a single indictment, not a single conviction
+- [04:52.850] because the administrators of the Hawaii program
+- [04:56.240] just don't take it seriously.
+- [04:57.710] They don't think that fraud is a big enough problem.
+- [05:00.390] They don't care about protecting resources.
+- [05:02.260] They don't care about protecting that Medicaid program.
+- [05:04.410] So what does that mean?
+- [05:05.660] That means that if you're committing fraud
+- [05:07.210] and Medicaid in Hawaii, at least up until now,
+- [05:10.690] hopefully now they're going to take it seriously,
+- [05:12.740] you have had effectively free reign
+- [05:14.620] from the government of Hawaii
+- [05:15.830] to commit as much fraud as you want.
+- [05:18.400] That is a complete disgrace.
+- [05:20.140] In New York, which does a little bit better,
+- [05:22.550] but not by much, New York has had nine indictments
+- [05:27.600] over the last year. Nine indictments.
+- [05:30.110] That's a $100 billion Medicaid program just in New York
+- [05:34.040] and you've had nine indictments.
+- [05:35.550] Indiana, which has about a third of the population
+- [05:38.470] of the state of the New York has had more than four times
+- [05:41.900] as many indictments over the same period.
+- [05:44.640] So do we think, does anybody here seriously think
+- [05:47.790] that the good people of Indiana
+- [05:49.410] are 12 times more likely to commit fraud
+- [05:51.950] than the people of New York?
+- [05:53.170] No, of course not. That's absurd.
+- [05:55.010] What is happening is that the people in,
+- [05:56.990] excuse me, the leadership in New York
+- [05:58.840] are just not taking the fraud issue seriously.
+- [06:01.960] They're not using these anti-fraud control units
+- [06:04.600] to actually investigate and indict the fraud.
+- [06:07.530] So what are we going to do to fix that?
+- [06:09.670] Today, we are sending, across 50 Medicaid programs,
+- [06:14.220] we are sending letters that will require them to show
+- [06:16.930] that they are effectively
+- [06:18.250] and aggressively prosecuting Medicaid fraud in their states.
+- [06:21.780] And if they do not,
+- [06:23.160] if they do not aggressively prosecute Medicaid fraud,
+- [06:25.900] we are going to turn off the money
+- [06:27.850] that goes to these anti-fraud units.
+- [06:29.710] And I want to say a couple things about this.
+- [06:32.040] You may think, obviously, this is a Republican administration.
+- [06:34.260] We're all proud Republicans up here.
+- [06:36.510] You may think that this is purely a red state
+- [06:38.260] or blue state issue. That's actually not true.
+- [06:40.510] We see Medicaid fraud issues in Ohio,
+- [06:43.540] the state that I used to represent
+- [06:44.820] in the United States Senate. We also see Medicaid issues,
+- [06:48.980] fraud issues in a state like Maryland,
+- [06:50.560] which is obviously a very blue state.
+- [06:52.390] But both Ohio and Maryland have worked with us
+- [06:55.430] to take this issue seriously.
+- [06:57.320] They've worked with the guys behind me.
+- [06:58.890] They've worked with our entire team
+- [07:00.850] to make sure that they take fraud seriously.
+- [07:03.330] Again, this does not have to be a red state
+- [07:05.600] or a blue state issue.
+- [07:06.900] This is just basic good government.
+- [07:09.700] However, states like California, states like Hawaii,
+- [07:12.280] states like New York have completely not taken
+- [07:15.810] the fraud issue seriously in the Medicaid program.
+- [07:17.860] And so for those states
+- [07:19.840] that refuse to get serious about fraud,
+- [07:22.120] we are going to turn off that anti-fraud money.
+- [07:24.500] And if we continue to find problems,
+- [07:27.090] we can turn off other resources
+- [07:28.780] within their state Medicaid programs as well.
+- [07:31.270] Our goal here is not to do that.
+- [07:33.190] We don't want to turn off any money.
+- [07:35.440] What we want to do is ensure
+- [07:36.990] that people are taking fraud seriously.
+- [07:38.750] We want to protect Medicaid, we want to protect Medicare,
+- [07:41.770] but we can't do that if the states
+- [07:43.470] that are administering those programs
+- [07:45.450] are allowing those programs to be fleeced by fraudsters.
+- [07:48.400] So we encourage, whether it's California
+- [07:50.630] or New York or Maryland or Ohio,
+- [07:52.860] we encourage people to work with us.
+- [07:54.620] We want to help you use technology and other tools
+- [07:57.670] to get rid of the fraud, to get to the root of the fraud.
+- [08:00.130] We want to help you.
+- [08:01.420] But we can only help these state programs
+- [08:03.310] if those state programs are willing to help themselves.
+- [08:05.810] So these letters are the first step,
+- [08:07.950] the first effort to try to force these states
+- [08:10.050] to get serious about prosecuting fraud
+- [08:12.360] and that's exactly what we're doing.
+- [08:14.390] Let me just talk about one final issue here.
+- [08:18.080] We see a lot of fraud in the home healthcare
+- [08:21.340] and in the hospice care system. I think Dr. Oz
+- [08:23.500] will probably talk a little bit more about that.
+- [08:25.620] But again, you have to appreciate that this fraud issue
+- [08:28.490] is fundamentally theft from the taxpayer,
+- [08:31.390] but also theft from people who need these programs.
+- [08:34.880] Just last month, a California psychotherapist,
+- [08:37.560] a woman who had spent 40 years treating patients,
+- [08:41.600] helping patients, helping people deal with problems,
+- [08:44.270] found out that her Medicare program had been turned off,
+- [08:47.570] that she did not have access to the resources
+- [08:50.260] that she had been paying into for her entire life.
+- [08:52.900] Why? Because a fraudster had stolen her identity
+- [08:56.660] and signed her up for healthcare services that she didn't need,
+- [08:59.700] and so she had been turned off of the healthcare services
+- [09:04.080] that she did need.
+- [09:05.760] This happens way too much in the United States of America
+- [09:09.330] and it happens because, until recently,
+- [09:11.420] we did not have a government or an administration
+- [09:13.610] that actually took the fraud program
+- [09:15.610] and took anti-fraud prevention seriously.
+- [09:18.710] So let me just close with one final observation here.
+- [09:21.600] First of all, why are we doing this now?
+- [09:23.810] Why weren't we doing this two years ago?
+- [09:25.460] And the simple answer is because we didn't have a president
+- [09:27.690] and we didn't have an administration
+- [09:28.970] who took fraud seriously.
+- [09:30.590] So I want to thank the President of the United States,
+- [09:32.470] though I know he's busy in China.
+- [09:34.140] All of these efforts, all of these things that we're finding
+- [09:37.140] are because we have a president who has told us,
+- [09:39.620] "Take the fraud issue seriously, get to the root of it,
+- [09:42.510] and turn off the money when we find out
+- [09:44.160] that money's going to fraudsters."
+- [09:45.540] So that's exactly what we're doing.
+- [09:47.480] But I just want to say that for me,
+- [09:49.430] and I think for a lot of people who are involved in this effort,
+- [09:52.200] this is very personal
+- [09:53.670] because I'm not just the Vice President of the United States.
+- [09:56.240] I come from a family and I grew up in a family
+- [09:59.380] where we sometimes benefited from these programs.
+- [10:01.980] The generosity of the American people
+- [10:03.700] is one of the most amazing things about our country.
+- [10:06.880] I think all of us, of course, just passed tax day.
+- [10:10.210] None of us like paying our taxes, but we do it.
+- [10:13.150] And why do we do it?
+- [10:14.350] Because we know that it goes to give a bite
+- [10:16.730] to a low income family that can't afford food.
+- [10:19.280] We know that it goes to pay the military who keep us safe.
+- [10:22.800] We know that it goes to some essential services.
+- [10:25.620] But that trust, that trust in our government,
+- [10:28.610] that trust in our institution,
+- [10:30.330] it depends on us taking that trust seriously.
+- [10:34.770] How long are people going to pay into programs
+- [10:37.060] if they know that that money doesn't go to a low income kid
+- [10:39.940] who needs healthcare,
+- [10:41.270] but that money goes into a fraudster getting rich?
+- [10:44.820] This doesn't work and this doesn't make sense
+- [10:47.250] unless we take fraud seriously.
+- [10:49.000] So I'm proud to be part of an effort in our government.
+- [10:51.990] I'm proud to lead the effort in our government
+- [10:53.970] to finally take fraud seriously.
+- [10:55.890] We want to protect these programs for the kids
+- [10:57.860] and the families who need them.
+- [10:59.150] We want to ensure that the American taxpayer
+- [11:01.090] isn't getting fleeced.
+- [11:02.360] And I'd say just a few months into it, gentlemen,
+- [11:04.500] we've done a very, very good job.
+- [11:06.500] Let's keep it up.
+- [11:07.750] So let me turn it over now to Andrew Ferguson,
+- [11:10.240] who's the executive director of our anti-fraud task force.
+- [11:13.360] Andrew has done an amazing job.
+- [11:15.060] But I have to give a special shout out,
+- [11:16.600] not just because she's my fellow Ohioan,
+- [11:18.250] to Kim, who has probably found more fraud
+- [11:21.900] and has saved the American taxpayer
+- [11:23.830] more money than any single official within the government
+- [11:27.100] over the last three months. Kim, you have been an all star.
+- [11:29.690] We're proud to have you on the team. Thank you, guys.
+- [11:35.470] Andrew Ferguson: Well, I couldn't have put it better
+- [11:37.070] than the Vice President did.
+- [11:38.400] The only reason that what happened today happened
+- [11:42.020] is because President Donald Trump took this issue
+- [11:45.150] seriously that has plagued this country for decades
+- [11:48.740] and is committed to an all of government approach.
+- [11:51.060] And so to him is to who the credit goes.
+- [11:55.200] But the Vice President deserves tremendous credit here.
+- [11:57.440] It's hard to get the whole machinery of government moving.
+- [12:01.010] You need someone with the Vice President's abilities,
+- [12:03.390] with his gravitas,
+- [12:04.640] and with his determination to drive at these issues.
+- [12:07.530] That's the other reason we're here today.
+- [12:08.980] And while I'm at it, I want to thank Dr. Oz and Kim Brandt.
+- [12:12.340] A lot of the fraud problems are at HHS
+- [12:14.950] and these two have committed countless hours,
+- [12:18.140] night and day, their staffs,
+- [12:19.690] their resources to getting at these problems and fixing it.
+- [12:22.930] And where the states are unwilling to do their jobs
+- [12:25.920] and fix these problems, Dr. Oz and Kim
+- [12:28.890] have stepped up to take care of it.
+- [12:30.550] I also, he's not up here today,
+- [12:31.870] but I want to thank March Bell as well.
+- [12:34.160] He's the Inspector General of HHS.
+- [12:36.500] A lot of the work we're going to have to do
+- [12:38.600] to get the state's back in line
+- [12:40.580] and stopping fraud is going to go through March's office,
+- [12:44.220] that you'll see his signature on the letter
+- [12:46.030] that went to the state Medicaid control units today.
+- [12:48.760] There's going to be a lot of work
+- [12:50.150] happening in the IG's office
+- [12:51.370] and we are really pleased to partner with him.
+- [12:54.070] It's a shame we have to be up here at all,
+- [12:56.090] and with all due respect to the press,
+- [12:57.490] with this room full of reporters.
+- [12:59.760] It should not have taken a brave kid with a cell phone camera
+- [13:03.160] to point the American people at this issue.
+- [13:05.640] This is the result of decades of corruption,
+- [13:09.020] particularly in blue states like Hawaii,
+- [13:11.260] like the Vice President was just explaining, California,
+- [13:13.750] Minnesota, and New York,
+- [13:15.210] that have taken tens of billions of dollars
+- [13:18.220] to pay lawyers to go after Medicaid fraud
+- [13:21.120] that just simply have not done it at all.
+- [13:23.760] That's the whole point of these programs.
+- [13:25.800] If we have these cooperative federalism programs,
+- [13:28.010] we love federalism, we want to partner with states,
+- [13:30.410] we love subsidiarity,
+- [13:31.850] but if the states are going to participate in this,
+- [13:34.000] they have to protect their own citizens
+- [13:36.100] when they get access to these dollars.
+- [13:38.180] And not only are these dollars
+- [13:40.010] supposed to go to fight Medicaid fraud,
+- [13:41.820] I want to shine a light on the real human dimension
+- [13:44.890] of the complete negligence and malfeasance
+- [13:47.340] of some of these states here.
+- [13:48.930] One of the things they are obliged by law to do
+- [13:51.410] is stop elder abuse.
+- [13:52.850] That is one of the express commands
+- [13:54.780] that Medicaid fraud control units are given
+- [13:57.130] is you are supposed to police Medicaid abuse
+- [14:00.740] and elder abuse in the Medicare system too,
+- [14:04.010] where so many of America's elderly citizens receive care.
+- [14:07.710] And so when the states just take this money
+- [14:10.150] and turn it into a jobs program for blue state lawyers,
+- [14:13.330] they are effectively participating in the elder abuse
+- [14:16.740] in those states,
+- [14:17.940] because the American people turned over their money
+- [14:20.610] to these state programs to protect their parents
+- [14:22.850] and their grandparents from elder abuse.
+- [14:24.860] And if you aren't doing it,
+- [14:26.370] you are effectively participating in that process.
+- [14:29.720] The Vice President highlighted this problem
+- [14:31.880] that we have in Medicaid,
+- [14:33.470] which is if a fraudster takes your identity,
+- [14:35.820] signs you up for benefits,
+- [14:38.250] when you go to try to get the actual benefits you need,
+- [14:40.870] you can be denied them. This is a problem we have found
+- [14:44.070] all over the federal government in benefits programs.
+- [14:48.720] I mean, imagine, we have examples of this,
+- [14:51.490] a mother on SNAP benefits, going to the grocery store
+- [14:54.720] and trying to scan her EBT card
+- [14:56.700] to get groceries for her children,
+- [14:58.360] and some gang somewhere in California took her identity,
+- [15:02.120] maxed out her EBT card,
+- [15:03.840] and so her children are going to go hungry
+- [15:05.850] because of fraud that no one in the states is policing.
+- [15:09.410] And that is why what we are doing today is so important.
+- [15:13.060] The states should be our partners with this.
+- [15:15.500] We want to partner with the states,
+- [15:17.170] but what we aren't going to do,
+- [15:19.050] as stewards of the American taxpayer dollar,
+- [15:21.610] is to send those dollars, billions of them,
+- [15:25.040] to the states to line the pockets of state attorneys
+- [15:28.250] general who don't want to participate
+- [15:30.140] in protecting our benefits programs
+- [15:32.320] so that the people who really need them,
+- [15:34.350] the people that the American people have agreed to part
+- [15:37.760] with their hard earned dollars to help, to defend, to protect,
+- [15:41.360] and to get through hard times actually get the money.
+- [15:44.180] And if the states don't want to cooperate for the first time,
+- [15:47.570] HHS, the Fraud Task Force, the Vice President and the rest
+- [15:50.810] of the federal government are going to tell you,
+- [15:53.000] "Cooperate or lose your funds and we will do the job for you,"
+- [15:56.570] because at the end of the day,
+- [15:58.050] if the states won't protect American citizens,
+- [16:00.350] the President of the United States
+- [16:01.850] and the Vice President will.
+- [16:03.440] And that is why I am so honored
+- [16:05.170] to be able to participate in this process
+- [16:07.450] because this is ultimately about making sure
+- [16:10.220] not only that we aren't stolen from as taxpayers,
+- [16:13.290] but the American people who are entitled to this,
+- [16:16.430] for Medicaid and for Medicare,
+- [16:18.100] people who have paid into these programs their entire lives
+- [16:21.490] actually get the benefits that they are entitled to.
+- [16:24.550] And with that, I'm going to turn it over to Dr. Oz
+- [16:26.350] to talk about all of the efforts at HHS.
+- [16:31.200] Administrator Oz: Thank you, Andrew.
+- [16:32.420] Mr. Vice President, thank you for the leadership,
+- [16:34.440] the spirited desire to harness a group of stallions.
+- [16:37.610] They're back there, by the way,
+- [16:38.990] if we're going to see the men and women
+- [16:40.280] who are leading the task force, they're at the back of the room,
+- [16:42.100] but they've done all the work that allowed us to come up here.
+- [16:44.930] In February, we had the largest anti-fraud announcement from CMS
+- [16:49.640] the day after the State of the Union address
+- [16:51.470] in which the President created this task force
+- [16:54.400] and appointed the Vice President to lead it.
+- [16:57.260] Today's effort is larger.
+- [17:00.120] It's much larger and there's a reason for that.
+- [17:02.710] Half of the fraud, we believe, in the federal government
+- [17:05.360] could be coming out of healthcare services.
+- [17:07.920] We're a large rhino that can be stabbed
+- [17:11.720] effortlessly by foreign governments,
+- [17:14.420] syndicated criminal entities, and smaller time operators,
+- [17:18.160] who can take advantage of the system with,
+- [17:19.810] as Andrew pointed out,
+- [17:21.040] as little as a Medicare beneficiary number,
+- [17:23.870] which is basically a credit card to defraud this system.
+- [17:27.240] Unfortunately, that results in about $100 billion
+- [17:29.830] of estimated theft just for Medicare and Medicaid.
+- [17:33.080] That, just to put it in the context of affordability,
+- [17:35.240] which is a very important subtext of this discussion,
+- [17:38.310] we would be able to double the life expectancy
+- [17:41.280] of the Medicare trust fund
+- [17:42.700] if we could deal with the fraud issues just in Medicare.
+- [17:45.600] So anyone who's out there working their tail off,
+- [17:47.580] hoping Medicare will be there with them and for them--
+- [17:49.990] And we know many young Americans don't think
+- [17:51.910] that's going to be the case, it will be the case.
+- [17:53.690] If we take the fraud out,
+- [17:54.920] it'll be there for you and your children as well.
+- [17:57.410] And stopping this as a means
+- [17:58.870] of extending the Medicare Trust Fund is a noble purpose,
+- [18:00.690] but as has been pointed out by the Vice President
+- [18:03.760] and Mr. Ferguson, it is about the human costs,
+- [18:06.860] because if these fraudsters are willing to take your money,
+- [18:09.000] they will definitely steal your life
+- [18:10.940] and take your health along the way.
+- [18:12.400] So let's transition to the five major actions.
+- [18:14.330] I'm going to go through them in order,
+- [18:15.780] and I'll share them with Kim, who her nickname is Killer Kim.
+- [18:19.310] Mr. Vice President, you'll learn why in a second.
+- [18:21.750] She is unstoppable.
+- [18:23.000] And you want federal employees like Kim out there like
+- [18:26.570] Bulldogs going after this fraud. It's right there for us to find,
+- [18:29.190] and if we have partnership with the states,
+- [18:30.780] it'll help a lot. First-
+- [18:32.010] The Vice President: We need a better nickname for her
+- [18:33.440] if she's going to work in healthcare.
+- [18:34.720] Administrator Oz: She's a Buckeye.
+- [18:36.330] She's a Buckeye, so I gave her a choice.
+- [18:39.290] Is that a typical name in Ohio?
+- [18:41.660] The Vice President: Not that I've ever heard of.
+- [18:43.890] Administrator Oz: Okay. California Medicaid deferral
+- [18:47.170] that the Vice President mentioned is $1.34 billion.
+- [18:51.230] Their submissions of Medicare records and the backup estimates
+- [18:56.290] are generating major red flags for us,
+- [18:58.900] and we have looked carefully at these records.
+- [19:00.590] We are allowed to audit looking back for a quarter.
+- [19:04.010] Dan Brillman, Caprice Knapp, who lead the Medicaid program,
+- [19:06.910] spearheaded this effort, and with a great team.
+- [19:10.940] We've discovered $630 million in billing from the folks
+- [19:14.340] who are egregiously the top 5% of outliers in billing.
+- [19:18.650] This is numbers so big, you can't imagine anyone billing
+- [19:21.220] for these numbers of patients and that much for each patient.
+- [19:24.020] And so, we're asking California
+- [19:25.230] to clarify for us how it got there.
+- [19:27.390] Second big area of observation is when you bill within a state,
+- [19:32.810] you should be comparable to the states around you.
+- [19:35.500] But in California, that's not been the case.
+- [19:37.410] In California, the growth of spending
+- [19:40.000] in personal care services,
+- [19:41.330] in home services is twice the rate of the average
+- [19:45.180] of the rest of the country. Let me say that again.
+- [19:47.560] The rest of the country is one number.
+- [19:49.470] California is twice that number in its growth rate.
+- [19:52.660] We estimate there's $500 million
+- [19:55.480] that could be at risk taken from federal taxpayers.
+- [19:58.390] That means people in New Mexico, which is a blue state,
+- [20:01.140] are paying extra taxes so that California can get away
+- [20:04.140] with something that they can't defend.
+- [20:05.620] So there's $500 million there we're going to defer
+- [20:07.560] so they can show us
+- [20:09.460] more convincingly why that's the case.
+- [20:11.700] And there's another $200 million
+- [20:13.570] that we're stopping in questionable expenditures.
+- [20:15.910] Much of that is linked to immigration-related costs,
+- [20:19.390] folks who are undocumented.
+- [20:20.730] And we're not sure why we're paying for this.
+- [20:22.350] And as you know from the Working Families Tax Cut legislation--
+- [20:25.040] Which I'm going to emphasize is a program that saved Medicaid.
+- [20:29.340] The President and Congress saved Medicaid
+- [20:31.100] with that bill, that became legislation.
+- [20:33.660] There's another $200 million at risk there.
+- [20:35.180] Added together, $1.34 billion.
+- [20:37.760] It's the largest deferral we've ever made.
+- [20:39.900] We're making it for a good reason.
+- [20:41.380] We'd like the state to at least come to the table and explain
+- [20:44.760] to us how these outlier payments have been generated.
+- [20:48.380] Second major issue is home healthcare fraud
+- [20:50.620] and hospice fraud. So let's just clear this up.
+- [20:52.910] Hospice, end-of-life, designed 40 years ago,
+- [20:55.720] a beautiful program that's designed to take care of you
+- [20:58.160] because you have cancer
+- [20:59.400] and you're not going to survive more than six months.
+- [21:01.390] To do that, the federal government says,
+- [21:03.640] "We're going to trade your Medicare benefit
+- [21:06.320] for hospice benefit." So you give up Medicare,
+- [21:09.750] because why would you want to have coverage for things
+- [21:11.930] you're never going to use? You're dying.
+- [21:13.760] You want to die with dignity and grace.
+- [21:15.660] It's a beautiful program.
+- [21:17.110] Unfortunately, in California and other states,
+- [21:20.670] fraudsters have stolen your Medicare number, taken it,
+- [21:24.690] and given you hospice you didn't want,
+- [21:26.650] which means if you get sick and go to the ER,
+- [21:28.180] you're not getting care.
+- [21:29.510] And you can't even find out what happened
+- [21:30.800] because you weren't in the mix of this.
+- [21:32.230] There have been a lot of people
+- [21:34.040] complaining about this over the years,
+- [21:35.910] including people that should have been listened to,
+- [21:37.620] like the Auditor General of California,
+- [21:39.810] who, in 2022, raised this issue to the current governor,
+- [21:42.530] and for some reason, they have not taken action.
+- [21:45.090] Unfortunately, we have a reality that,
+- [21:47.010] again, we've got to face, a third of all hospices,
+- [21:50.350] a third of all these programs in the entire country
+- [21:53.020] are in Los Angeles.
+- [21:54.470] Ask yourself, how is that possible?
+- [21:55.900] It's not.
+- [21:57.180] There are not that many people dying in Los Angeles.
+- [21:59.260] We're not talking about California, just Los Angeles.
+- [22:01.800] So Kim and the team, with Janine Wigo,
+- [22:04.690] and a bunch of other great folks,
+- [22:06.120] went through the list of all the people,
+- [22:07.940] and we believe that at least half of the hospices
+- [22:10.330] in the entire area around Los Angeles are fraudulent,
+- [22:14.120] and today, we announced 800 of those hospices
+- [22:17.420] have been suspended.
+- [22:18.720] That's getting us close to where we think we should be.
+- [22:21.660] 800 hospices that last year charged the federal taxpayer
+- [22:24.930] $1.4 billion will no longer be paid.
+- [22:28.480] Mr. Vice President, if your core business was shut down
+- [22:31.160] by the federal government, would you call?
+- [22:32.570] The Vice President: Yes.
+- [22:33.830] Administrator Oz: You would call.
+- [22:35.040] Crickets. We have less than 20 who have complained.
+- [22:38.270] We're not even sure those are legitimate.
+- [22:40.020] 800 hospices shut down and we're not hearing much.
+- [22:43.630] It's crickets out there.
+- [22:44.880] So we believe we're on the right path here.
+- [22:47.320] Next is a nationwide moratorium on all new hospice
+- [22:51.360] and home healthcare. Why is that possible?
+- [22:52.900] Because when we squeeze the balloon in California
+- [22:55.980] and slow their growth of hospice,
+- [22:57.870] and now take away the payments to 800 hospices,
+- [23:02.100] we know what those fraudsters do.
+- [23:03.860] They move to nearby Nevada. Next door,
+- [23:05.900] Nevada has a sevenfold increase in hospice already.
+- [23:08.290] Arizona, Texas, they're moving across the country.
+- [23:10.740] So we're today announcing a moratorium nationally,
+- [23:14.050] there will be no new hospices or home healthcare
+- [23:16.770] opened in this country.
+- [23:18.240] If you have the program now, you can keep it.
+- [23:20.350] You can go to ones that already exist.
+- [23:21.920] We're not taking away any services,
+- [23:23.190] but there will be no new ones,
+- [23:24.620] licenses granted until we can figure out
+- [23:26.740] a better way of working across government.
+- [23:28.800] Let me highlight this, because what Andrew,
+- [23:30.420] who's leading, and the Vice President,
+- [23:31.760] who are chairing this task force, it's very simple.
+- [23:33.920] You have CMS, you have OIG, March Bell sitting over there,
+- [23:36.780] you have the Department of Justice,
+- [23:38.210] you have the FBI, you have Treasury.
+- [23:39.430] You put those things together, you make a powerful fist,
+- [23:42.290] and that's the fist we're going to punch through bureaucracies
+- [23:44.970] and realities that are stopping our ability
+- [23:46.890] to protect the American people.
+- [23:48.270] I'm going to leave you one last thought,
+- [23:49.840] and then I want to ask Kim to cover some of the issues
+- [23:52.310] around the MFCAs and the Medicaid war room
+- [23:54.880] that she's creating. It is a reality that states
+- [23:59.010] are all over the place in their desire
+- [24:00.380] to partner with the Vice President in this task force.
+- [24:02.750] There was a letter sent out two weeks ago
+- [24:04.730] asking every single state to respond within 10 days
+- [24:07.060] to whether or not they will be willing
+- [24:08.590] to revalidate their providers.
+- [24:10.480] What that means is if you're providing home
+- [24:12.310] healthcare services, which are unlicensed people
+- [24:14.750] providing services in undocumented areas
+- [24:17.310] that are unverifiable right now in many instances,
+- [24:19.650] basically, you're having your kids
+- [24:21.140] carry the groceries upstairs for you,
+- [24:23.030] these are services your family used to provide for you.
+- [24:25.360] We asked all the states to work with us to validate
+- [24:28.060] if these are legitimate services from legitimate providers.
+- [24:30.960] Every single state responded.
+- [24:32.820] So contrary to the narrative around red and blue,
+- [24:34.830] every state wants to protect their citizens.
+- [24:37.230] Some are just more competent or brave enough
+- [24:39.220] to actually make those steps.
+- [24:40.630] And for some reasons, as you heard today,
+- [24:42.310] California has been lax in this endeavor.
+- [24:44.490] We hope this wake-up call will be heard loudly
+- [24:46.600] across the beautiful state of California,
+- [24:48.270] whose people we're trying to protect,
+- [24:50.410] sometimes from their own leaders.
+- [24:52.000] Kim?
+- [24:54.820] Kim Brandt: So when we took office a little over a year ago,
+- [24:57.770] we were looking at the fraud and abuse issue,
+- [24:59.320] and saw that it was all pay and chase.
+- [25:01.250] We were going after the money after it
+- [25:02.710] was already out the door.
+- [25:03.940] And so, we thought there surely has to be a better way.
+- [25:06.220] So we created the Medicare fraud war room,
+- [25:08.600] where we looked at claims in real time before they were paid
+- [25:11.570] so that we could determine were they legitimate,
+- [25:13.850] were there the outliers that we've heard examples of today,
+- [25:16.970] and how could we stop it?
+- [25:18.490] Over the past year, since the Medicare war room
+- [25:20.600] started on March 31st of last year,
+- [25:22.370] we have stopped over $2 billion from going out the door,
+- [25:25.670] just by targeting those high-risk providers.
+- [25:28.750] Recently, a couple of weeks ago,
+- [25:30.250] we've decided to take it a step further,
+- [25:32.070] and we're now doing a Medicaid war room.
+- [25:34.070] And what's unique about this is it's the first time
+- [25:36.230] that we've ever partnered across the board
+- [25:38.620] with our law enforcement partners,
+- [25:40.370] the HHS OIG, DOJ, the states,
+- [25:43.910] the MFCAs, the Medicare fraud control units,
+- [25:46.190] all working together for the first time
+- [25:48.810] to look at Medicaid claims in real time
+- [25:51.220] and be able to determine how we can stop those payments
+- [25:53.930] from going out the door,
+- [25:55.160] to stop the instances of an 89-year-old woman
+- [25:57.900] who had over 5,000 skin substitutes,
+- [26:00.380] or to stop the types of things
+- [26:01.700] that are just really aberrantly ridiculous.
+- [26:04.410] So what we've done is we have data analysts,
+- [26:06.480] we have forensic auditors, we have law enforcement people
+- [26:09.610] all coming together in a virtual room.
+- [26:11.750] It's not an actual room like you think of on TV.
+- [26:14.390] But they're all in a virtual room,
+- [26:16.010] where they are looking at this in real time,
+- [26:18.110] and then making determinations about how we can shut
+- [26:20.590] those bad guys down and how we can take action.
+- [26:23.970] And what has happened is we are now
+- [26:25.320] using our administrative authorities,
+- [26:27.320] payment suspensions, overpayments,
+- [26:29.720] civil monetary penalties,
+- [26:31.120] and the HHS OIG exclusion authority
+- [26:33.720] to really be able to take action against these people,
+- [26:36.450] and make it so that we can hopefully bring that money back
+- [26:38.970] where it needs to and never let it go out the door.
+- [26:41.810] The key is we want to keep it
+- [26:43.460] so that it can provide the services
+- [26:45.250] for the people who most need it and who most benefit from it,
+- [26:48.390] and stop the bad actors from getting all the benefit.
+- [26:51.210] Thank you.
+- [26:52.630] The Vice President: Thank you, Kim.
+- [26:53.910] So Dr. Oz, I want to make sure I understand this well.
+- [26:55.830] So you're saying that we kicked off 800 fraudulent
+- [26:58.990] healthcare providers off of the Medicare system,
+- [27:01.050] and not a single one of them called the government and said,
+- [27:03.040] "Hey, you made a mistake"?
+- [27:04.350] Administrator Oz: We've had a handful of calls.
+- [27:05.620] We're not sure they're legitimate yet.
+- [27:07.450] But it's less than 20 out of 800, and we're auditing them.
+- [27:10.300] The Vice President: Unbelievable.
+- [27:11.510] So at least 780 are not even trying to claim
+- [27:16.260] that they're not fraudulent. And again, those are businesses
+- [27:19.050] that we were giving hundreds of millions,
+- [27:20.830] in some cases, billions of dollars to,
+- [27:23.340] not to provide services, but to make a fraudster rich.
+- [27:25.900] It's just completely insane.
+- [27:27.320] It drives home the scale and scope of the problem.
+- [27:29.360] Okay. We'll take a few questions.
+- [27:30.860] I will say the ground rules are I will take the easy questions.
+- [27:34.400] Any hard questions are for Dr. Oz. Yes.
+- [27:38.120] The Press: Monica Alba with NBC News.
+- [27:39.450] I want to ask you first on the issue of fraud.
+- [27:42.340] As you're saying, if the administration is calling
+- [27:44.840] to specifically withhold Medicaid payments,
+- [27:47.510] why should the people who rely on those payments
+- [27:50.390] suffer the consequences for a state's failure
+- [27:52.900] to go after bad actors?
+- [27:54.140] And I have another question for you after.
+- [27:55.570] The Vice President: So I want to be clear here.
+- [27:56.810] We're talking about withholding the Medicaid fraud
+- [27:59.290] enforcement payments that go to the state bureaucrats.
+- [28:01.850] We're not talking about withholding people's benefits.
+- [28:04.250] We're talking about turning off the resources
+- [28:06.730] that the state government should be using to police fraud.
+- [28:10.170] And then, instead,
+- [28:11.430] we're going to use those resources ourselves,
+- [28:13.030] because we're actually taking the fraud issue very seriously.
+- [28:15.600] But I do think it raises a very important issue.
+- [28:17.370] There are going to be some,
+- [28:18.910] I'm sure, some politicians who say,
+- [28:23.440] "What you're doing here is harming the Medicaid program."
+- [28:27.600] We're trying to save the Medicaid program
+- [28:29.650] from dysfunctional state bureaucrats.
+- [28:31.710] If you allow hundreds of millions, billions,
+- [28:34.880] even more money to go out the door,
+- [28:37.110] not to healthcare services for low-income families,
+- [28:39.930] but to fraudsters, you eventually
+- [28:41.810] are going to destroy the Medicaid program.
+- [28:43.600] So this is why we say red state, blue state,
+- [28:46.340] this does not need to be a political or a partisan issue.
+- [28:49.230] We want to work with you to eliminate fraud
+- [28:51.270] and make these programs last longer
+- [28:52.870] for the people who truly need them.
+- [28:54.170] The Press: Thank you.
+- [28:55.370] And can I ask you, Mr. Vice President,
+- [28:57.070] when approaching the war with Iran,
+- [28:59.600] do you agree with the President's position,
+- [29:01.820] that Americans' financial situations
+- [29:04.310] should not be a consideration in that decision-making process?
+- [29:07.360] The Vice President: Well, I don't think
+- [29:08.640] the President said that.
+- [29:09.920] I think that's a misrepresentation
+- [29:11.200] of what the President said.
+- [29:12.430] But look, I agree with the President,
+- [29:13.810] that Iran should not have a nuclear weapon.
+- [29:15.600] We're obviously engaged in a very aggressive
+- [29:18.420] and very engaged diplomatic process
+- [29:20.430] to try to ensure that that doesn't happen.
+- [29:22.430] And the President has a lot of options,
+- [29:23.750] as he's said repeatedly.
+- [29:24.970] There are options diplomatically.
+- [29:26.490] There are options on the military side.
+- [29:28.370] But the fundamental goal here
+- [29:29.680] is the President wants to make the world safe,
+- [29:32.160] but particularly the American people safe
+- [29:34.470] from Iran having a nuclear weapon.
+- [29:36.130] And one final point I'll say on that is nuclear proliferation
+- [29:40.020] is one of those challenges that people don't realize
+- [29:43.310] it's the biggest threat to America's national security,
+- [29:46.190] and it's not obvious until it is.
+- [29:48.610] Because what happens if Iran gets a nuclear weapon?
+- [29:50.800] Then multiple Gulf Arab countries
+- [29:52.600] are going to want to get a nuclear weapon.
+- [29:54.190] Then multiple countries from there
+- [29:55.420] are going to want to get a nuclear weapon.
+- [29:57.130] The goal of preventing nuclear proliferation
+- [30:00.150] is probably the single most important thing that we can do
+- [30:03.060] to keep our people safe for the long term.
+- [30:05.160] It's absolutely a worthy goal.
+- [30:06.870] But of course, the President and I and the entire team,
+- [30:09.250] we care about the American people's financial situations.
+- [30:11.910] It's one of the reasons why we passed
+- [30:13.800] the Working Families Tax Cut.
+- [30:15.050] It's one of the reasons why we're so focused on fraud.
+- [30:17.490] We care about how the American people are doing economically.
+- [30:20.370] We've also got a number of other challenges, of course.
+- [30:22.190] The President has to confront all these challenges
+- [30:24.640] simultaneously. Yeah.
+- [30:27.260] The Press: Thank you.
+- [30:29.610] Edward Lawrence from Fox Business.
+- [30:31.780] On fraud, the savings that you find among all of these states,
+- [30:36.680] what impact could that have on a federal deficit?
+- [30:39.200] The Vice President: Well, I think
+- [30:40.480] it'd have a very big impact. But a lot of it does depend on
+- [30:42.970] how well the states work with us.
+- [30:44.450] We think we're going to be much more effective
+- [30:46.050] if we're working with California
+- [30:47.630] as opposed to fighting California
+- [30:49.610] over every billion dollars of Medicaid fraud
+- [30:52.070] that exists in their system.
+- [30:53.430] I mean, there could be tens of billions,
+- [30:55.340] hundreds of billions of fraudulent payments
+- [30:57.880] within the California system,
+- [30:59.480] if you count what's going to illegal aliens,
+- [31:01.320] if you count what's going to people, fraudulent businesses,
+- [31:04.220] if you count what's not going to the people who actually need it,
+- [31:07.190] but going to fraudsters.
+- [31:08.470] We would find that money a lot easier
+- [31:09.980] if California was working with us,
+- [31:11.740] which is why we've taken some of these steps.
+- [31:13.800] And the letters fundamentally are outreach.
+- [31:16.480] We're going to the states and saying,
+- [31:17.970] "Here are the things that we can do
+- [31:19.450] to work on this issue together."
+- [31:21.350] And of course, if they don't work with us,
+- [31:22.830] there are going to be penalties.
+- [31:24.310] We don't want to get there. We want to work with these guys.
+- [31:26.970] You heard Dr. Oz say this earlier,
+- [31:28.740] I've looked at the numbers myself, it's true.
+- [31:30.760] If you just deal with the fraud issue,
+- [31:32.850] you can prolong the Medicare and Medicaid
+- [31:35.280] trust funds well into the future.
+- [31:37.480] So it does have a significant budgetary impact,
+- [31:39.780] whether that's hundreds of billions of dollars
+- [31:41.660] or maybe even more, we're not going to know
+- [31:43.530] until we do the work, but we're going to do the work.
+- [31:45.280] The Press: Yeah. If I could, on China-
+- [31:46.720] The Vice President: Let's do one question from each person.
+- [31:49.590] Go ahead. We can do both of you guys.
+- [31:53.240] The Press: Thank you.
+- [31:54.580] The Vice President: You guys can fight for who goes first.
+- [31:56.110] The Press Okay. Do you want to go first?
+- [31:58.010] The Press: Sure.
+- [31:59.400] Mr. Vice President, Reagan Reese with The Daily Caller.
+- [32:02.790] What's your reaction to the alleged home
+- [32:05.000] health fraud in Ohio,
+- [32:06.320] and why do you think this is happening in a red state?
+- [32:09.430] And just a question of clarification.
+- [32:12.570] You mentioned that some states aren't cooperating.
+- [32:14.490] What does that look like?
+- [32:15.700] Are they not responding to your calls?
+- [32:17.680] Are they stonewalling you guys? If you could expand on that.
+- [32:20.220] The Vice President: So I'll let Dr. Oz
+- [32:21.440] go into the details a little bit.
+- [32:22.690] But on the Ohio issue in particular,
+- [32:25.320] look, this happens everywhere.
+- [32:26.790] We're a big country, hundreds of billions of dollars
+- [32:29.270] goes out the door every single month
+- [32:30.810] from the federal government,
+- [32:32.070] and inevitably, you're going to have people
+- [32:33.850] who try to take advantage of it.
+- [32:35.670] What bothers me is not that you have a few fraudsters out there,
+- [32:38.960] it's that the government hasn't taken seriously pushing it back.
+- [32:41.350] You're always going to have bad people.
+- [32:42.980] You're always going to have a few bad apples
+- [32:45.070] try to take advantage of the system.
+- [32:46.850] What's so unique about this country
+- [32:49.480] until recently is that we didn't take that seriously.
+- [32:52.330] We didn't try to push back against the fraud,
+- [32:54.200] and that's what's changed.
+- [32:55.410] When I talk about cooperating with these various states,
+- [32:58.210] and again, we've had some good cooperation
+- [32:59.930] with both red states and blue states,
+- [33:03.210] it's very context-specific.
+- [33:04.940] For example, let's say that we know
+- [33:07.250] we have a number of fraudulent Medicare or Medicaid providers,
+- [33:10.920] working with the federal government to identify
+- [33:13.010] who those are to kick them off the roles
+- [33:15.020] so that when those fraudulent companies
+- [33:17.370] submitted reimbursement,
+- [33:18.710] they don't actually get any money in return.
+- [33:20.280] Now, sometimes the federal government
+- [33:21.830] has a better perspective on that,
+- [33:23.130] sometimes the states do.
+- [33:24.610] But that's one example of ensuring that local providers
+- [33:28.420] that are fraudulent are not able to get reimbursed
+- [33:31.060] or are not able to get access to the resources.
+- [33:32.690] That's just one example.
+- [33:34.060] Dr. Oz, I'm sure you probably have a hundred more
+- [33:36.000] in that brain of yours.
+- [33:38.200] Administrator Oz: Very succinctly, Minnesota,
+- [33:39.860] which we announced the deferment there
+- [33:41.430] when the Vice President and I
+- [33:42.680] were in this room several months ago, sued us,
+- [33:45.900] and we're trying to get them to wake up to a problem.
+- [33:48.770] The amount that we deferred was a small percentage
+- [33:50.910] of their rainy day fund.
+- [33:52.440] They sued us and sought a temporary restraining order.
+- [33:54.690] That's not what a partner does.
+- [33:56.080] The judge did not give them a temporary restraining order.
+- [33:58.720] We're going to California now in part
+- [34:00.170] because we couldn't get them to respond on things
+- [34:02.300] that we think they should have taken proactive steps on.
+- [34:04.260] If they've been warned for at least four years
+- [34:06.090] by their own auditor general
+- [34:07.940] that there's a massive problem with hospice
+- [34:09.570] and they don't deal with it,
+- [34:10.850] it pollutes the entire ecosystem.
+- [34:12.560] It creates corruption that rots the foundation of who we are.
+- [34:15.250] So on the 19th of December,
+- [34:17.630] after it had gone through all the different processes,
+- [34:20.010] the State Department of Health in California
+- [34:23.370] was going to mandate, by the first of the year,
+- [34:25.940] that you cannot have more than one hospice per provider.
+- [34:29.250] This is a red flag issue.
+- [34:30.540] Why would a doctor need to have 20 hospices?
+- [34:32.630] You have one hospice, do it right.
+- [34:34.090] They do 20 hospices because they're taking bribes,
+- [34:36.090] they're selling their license and their soul.
+- [34:38.470] For reasons we don't understand, and I'd love to pose
+- [34:40.490] that right here to the state of California,
+- [34:41.900] someone very senior in their government
+- [34:43.610] pulled down that rule, never let it issue,
+- [34:46.480] and we never got help from them.
+- [34:47.930] That's why we went out the first week of January to say,
+- [34:50.910] "What's going on here?"
+- [34:52.130] And we find out that, as the Vice President mentioned,
+- [34:54.200] the Medicare fraud detection units
+- [34:55.410] sometimes are not being enabled to do their jobs.
+- [34:57.750] These are the kinds of behaviors that people take
+- [34:59.720] when they're trying to hide the ball.
+- [35:01.240] And the question I'd love to ask the media
+- [35:02.800] to opine amongst yourselves,
+- [35:04.240] we're debating it as a task force,
+- [35:05.820] is do the governors always feel that fraud in Medicaid
+- [35:09.690] is a flaw,
+- [35:10.920] or are there sometimes some reasons
+- [35:13.370] why it might be a benefit,
+- [35:15.550] might be a feature of the way they're running Medicaid?
+- [35:18.160] The same way we have to stop legalized money
+- [35:19.840] laundering through state-directed payments
+- [35:22.020] and provider taxes and the Working Families Tax
+- [35:24.020] Cut legislation, we are concerned that some governors
+- [35:26.610] see these programs as jobs programs,
+- [35:29.150] and their downstream impact of that
+- [35:30.680] that resembles political patronage,
+- [35:32.040] that we're very serious about.
+- [35:33.820] The Press: Mr. Vice President, thank you so much,
+- [35:35.820] Leonardo Feldman with Newsweek.
+- [35:37.830] Can you tell me a little bit about,
+- [35:39.530] the President has been toying this idea of a joint ticket
+- [35:42.630] between you and Rubio, what do you think about that?
+- [35:46.080] The Vice President: Oh, man.
+- [35:48.070] What I think is there are few topics
+- [35:51.340] that I want to talk about less than what office
+- [35:55.250] I'm going to run for years down the road
+- [35:57.120] when I'm having a good time
+- [35:58.760] and trying to do good work in the job
+- [36:00.310] that the American people already elected me to do.
+- [36:02.480] Look, I've answered this question
+- [36:04.930] probably in any number of ways.
+- [36:06.750] I love Marco. I think he's a great Secretary of State.
+- [36:09.150] He's become a very, very dear friend,
+- [36:11.260] but I think both of us are very much focused
+- [36:12.990] on accomplishing the American people's business right now.
+- [36:15.770] If I was the American people,
+- [36:17.690] there are few things that I would hate more
+- [36:19.990] than a person who's barely been in one office for a year
+- [36:22.680] and a half who's angling for a job two
+- [36:24.400] and a half years down the road. Let's do a good job now. We are.
+- [36:27.820] We just got to keep at it. Go ahead.
+- [36:30.250] The Press: Just a quick follow-up on that.
+- [36:31.640] The Vice President: Oh God.
+- [36:33.030] The Press: I have a fraud question.
+- [36:34.260] This is Kit with CNN.
+- [36:36.010] It's not us who are bringing this up.
+- [36:37.560] A couple of days ago, Trump made this statement
+- [36:40.440] to people in the Rose Garden. Why do you think he does that?
+- [36:42.540] Do you think it's a little bit of toying with you
+- [36:45.060] both over your succession?
+- [36:47.670] Why do you think he brings that up, just number one?
+- [36:50.360] The Vice President: Well, I just don't think it sounds
+- [36:52.460] like the President of the United States
+- [36:54.480] to have a televised competition
+- [36:56.950] for who would succeed him as his apprentice.
+- [36:58.870] I just think that's not at all
+- [37:00.770] what you would expect the President to do.
+- [37:02.800] But no, look, I think the President,
+- [37:04.550] he's always been fascinated by politics.
+- [37:06.890] If you talk to him, he was fascinated by politics 30 years
+- [37:10.170] before he ever ran for office.
+- [37:11.620] So I think it's natural for him to joke around
+- [37:14.010] with us a little bit, to play around with the idea.
+- [37:15.810] But I can tell you the President
+- [37:17.240] is as focused as any of us on making sure
+- [37:19.280] we do as good of a job now for the American people.
+- [37:21.150] The Press: (inaudible)
+- [37:22.350] can you preview your trip to Maine tomorrow?
+- [37:25.190] You said that you're going to combat fraud.
+- [37:26.950] What are you going to be announcing
+- [37:28.230] and are you engaging in good faith
+- [37:29.800] with the governor there about efforts?
+- [37:32.060] She said that she responded to a CMS letter.
+- [37:34.020] Just curious if there's any back and forth between you both.
+- [37:36.160] The Vice President: Yeah, there's been
+- [37:37.400] some back and forth.
+- [37:38.640] We'd love to have a better conversation,
+- [37:39.850] a better relationship and to work very deliberately
+- [37:42.080] on this question of fraud, and certainly have an open hand,
+- [37:45.300] have an open heart in this White House
+- [37:46.760] to working with anybody, including the Governor of Maine.
+- [37:49.310] I'm not going to tell you everything I'm going
+- [37:50.990] to say tomorrow in Maine because if I did that,
+- [37:52.730] why would I go to Maine tomorrow?
+- [37:53.970] But I'm looking forward to it.
+- [37:55.250] It's a beautiful time of year to be in the State of Maine.
+- [37:58.660] We're going to campaign a little bit with Paul LePage
+- [38:01.510] and talk about the fraud efforts that we have going on
+- [38:04.050] and talk about a few other things as well.
+- [38:05.530] Thank you.
+- [38:06.730] The Press: Thank you, Mr. Vice President.
+- [38:08.450] This is Elizabeth Mitchell with the Daily Signal.
+- [38:10.480] The Fraud Task Force and ICE
+- [38:12.020] identified more than 10,000 alleged cases of fraud
+- [38:15.090] in the Optional Practical Training Program.
+- [38:17.510] Some Republicans have been calling for this program
+- [38:19.520] to end in light of this.
+- [38:20.860] Is the Trump administration looking into changes
+- [38:23.860] to this program in light of the fraud?
+- [38:25.740] The Vice President: Sorry.
+- [38:27.310] Changes to which program in particular?
+- [38:29.270] The Press: The Optional Practical Training Program.
+- [38:32.130] The Vice President: So we're looking
+- [38:33.720] into a lot of this stuff,
+- [38:35.170] and the fundamental question obviously is
+- [38:38.100] we want to save the American people money,
+- [38:39.630] but we're also trying to preserve programs
+- [38:41.310] that exist for the benefit of the American people.
+- [38:43.530] We're also trying to make sure that we do this
+- [38:45.280] in a way that's defensible,
+- [38:46.600] that's not going to get challenged in a court,
+- [38:48.070] or if it does get challenged in a court,
+- [38:49.780] where we can defend things. So Dr. Oz,
+- [38:51.640] do you want to say anything about that particular program?
+- [38:54.060] We're looking at everything.
+- [38:55.720] I will tell you that once a week I get an update from Andrew
+- [38:59.050] and from the team on the number of things
+- [39:01.060] that we found in the Anti-Fraud Task Force, and it's shocking.
+- [39:04.830] People, I go on the road
+- [39:06.050] and talk to a lot of folks out there.
+- [39:09.450] I was in Iowa last week
+- [39:10.660] and one of the most common questions I got was,
+- [39:13.390] is the anti-fraud thing, is it hard?
+- [39:16.390] And I'm almost confused by the question
+- [39:17.820] because unfortunately there's so much fraud
+- [39:19.960] in the federal government.
+- [39:21.160] There was so much that we allowed to accumulate
+- [39:23.170] over the four years of the Biden administration,
+- [39:25.320] and frankly, probably over 40 years
+- [39:27.230] of bad American governance.
+- [39:28.740] There is so much fraud for us to go after.
+- [39:31.060] What we're trying to do is go after the highest value targets
+- [39:34.240] and the things that preserve these programs
+- [39:35.780] for the American people. Yes, sir.
+- [39:40.010] The Press: Breccan Thies with The Federalist. Thank you.
+- [39:44.380] You said that administrators, they don't care
+- [39:48.130] or that they're neglectful with the funding,
+- [39:51.070] but does your team think that there are bureaucrats
+- [39:54.230] in federal or state governments
+- [39:55.470] who are actually complicit in helping fraudsters?
+- [39:58.800] The Vice President: Well, we think it's possible.
+- [40:00.910] I don't want to prejudge these things,
+- [40:02.370] but we've certainly seen reports of, for example,
+- [40:05.030] Gavin Newsom in California or Tim Walz in Minnesota
+- [40:07.330] getting these reports that there were fraudulent activities
+- [40:10.080] happening in their states and then looking the other way.
+- [40:12.210] Whether that rises to the level of criminal conduct,
+- [40:14.490] I don't know, but we're certainly looking into it
+- [40:16.380] because as much as we care about protecting these programs,
+- [40:19.250] we also care about ensuring that federal and state officers
+- [40:22.870] aren't violating the law.
+- [40:24.110] And if they are violating the law,
+- [40:25.330] then of course we have to prosecute them.
+- [40:26.700] That's an important part of equal justice under law.
+- [40:28.830] So we're looking into this stuff,
+- [40:30.200] but I can't commit to it because unlike the last administration,
+- [40:34.230] we tend to only prosecute people
+- [40:35.810] when they've actually violated the law,
+- [40:37.510] not just because they have the wrong political affiliation.
+- [40:40.330] Yeah, go ahead.
+- [40:41.950] The Press: Dead Americans on food stamps.
+- [40:44.200] I'll take it. I'll do this again.
+- [40:45.500] Dead Americans on food stamps. You mentioned the other day,
+- [40:47.930] 186,000 dead Americans, to your knowledge,
+- [40:51.800] are receiving food stamps.
+- [40:53.510] Are you confident that you can get that number down to zero?
+- [40:55.760] The Vice President: Well, I want to be clear.
+- [40:57.690] I don't actually think 186,000 dead Americans
+- [41:00.860] are receiving food stamps
+- [41:02.100] because that would be impossible.
+- [41:03.340] I don't think that we have 186,000 ghosts
+- [41:05.240] walking into the grocery store and achieving benefits.
+- [41:08.460] I think that we have people who are claiming
+- [41:10.410] that they are getting food stamp benefits.
+- [41:13.540] They're using the identity of a dead person.
+- [41:15.380] So it's very much a living person.
+- [41:16.700] It's a living fraudster who's stealing the identity
+- [41:18.880] of a dead American.
+- [41:20.230] I just want to be very clear about that.
+- [41:22.410] But look, we know this is happening.
+- [41:25.150] We think that it's costing the American people
+- [41:27.330] hundreds of billions of dollars.
+- [41:28.560] By the way, another hidden cost of fraud
+- [41:31.260] is that it drives up the cost of goods for everybody.
+- [41:33.550] Because if you've got hundreds of billions of dollars
+- [41:35.710] chasing food that is going to dead Americans,
+- [41:39.560] living fraudsters, that's going to raise costs for everybody.
+- [41:42.380] So it actually is one of these things that has multiple,
+- [41:44.940] multiple victims,
+- [41:46.160] including the fact that it's driving up the cost of good
+- [41:48.800] for other Americans. Yes, all the way in the back.
+- [41:51.110] The Press: Just one question on the Chinese-
+- [41:52.310] The Vice President: No, sorry, man.
+- [41:53.510] You got two, I think.
+- [41:55.830] I really like your jacket, but still only one question.
+- [41:58.370] I'm going to stick to my role here.
+- [42:00.780] The Press: Thank you, Mr. Vice President.
+- [42:02.060] Daniel Baldwin, One America News.
+- [42:03.430] You spoke a little bit about states cooperating
+- [42:06.290] and that was a big theme the first time you and Dr. Oz
+- [42:08.960] came here and spoke to us about the Minnesota Medicare payments.
+- [42:11.240] The Vice President: Sure.
+- [42:12.530] The Press: You referenced Maryland as a blue state
+- [42:14.320] that's cooperating.
+- [42:15.540] You mentioned red states that were cooperating.
+- [42:17.400] Have you guys been successful in putting up any guardrails
+- [42:20.470] with states that have cooperated thus far
+- [42:22.900] and what do those guardrails look like?
+- [42:24.910] The Vice President: Well, the biggest guardrail
+- [42:26.190] is the one that we announced today,
+- [42:27.840] which is that if you have all of this money
+- [42:29.900] that's going for Medicare fraud prevention
+- [42:32.230] or Medicaid fraud prevention
+- [42:33.520] and you're not actually using it,
+- [42:34.740] we're going to take that money back
+- [42:35.980] and use it with our prosecutors and our investigators to ensure
+- [42:38.770] that we're actually looking at fraud.
+- [42:40.370] And then what that would do eventually is it would allow us
+- [42:43.040] to actually engage in some other enforcement actions.
+- [42:45.830] If they're not taking the anti-fraud stuff seriously,
+- [42:48.100] then there are some additional steps
+- [42:49.540] that we can take beyond that.
+- [42:50.770] I think the approach that we've tried to take really
+- [42:52.660] has been collaborative.
+- [42:54.100] We've tried to identify with the states,
+- [42:55.880] "Here are some examples of some very bad fraud.
+- [42:58.400] Here are some things that you can do to fix it.
+- [43:00.690] Here are some ways that we're willing to use
+- [43:02.110] our resources to help you."
+- [43:03.850] And again, most states have been pretty good.
+- [43:06.340] There have been a few, unfortunately, very large states
+- [43:08.810] that collect a lot of money in federal revenue
+- [43:10.910] and I think a lot of us know why that is.
+- [43:12.550] You have political leadership
+- [43:14.790] that doesn't like the idea of cooperating
+- [43:17.140] with a Republican administration,
+- [43:19.110] even though it's a very common sense,
+- [43:20.680] good government principle.
+- [43:22.090] I think you have some people who know
+- [43:23.420] that a lot of their constituencies,
+- [43:25.240] maybe some of their donors, are getting rich from fraud.
+- [43:27.590] But regardless, red state or blue state,
+- [43:29.400] we're going to go after it.
+- [43:30.750] We have to. This is so important.
+- [43:33.010] We're not going to have a generous country
+- [43:35.450] if Americans think that they're paying their taxes,
+- [43:38.000] not to needy people but to fraudsters.
+- [43:40.470] That's fundamentally what we're trying to fix
+- [43:42.630] is rebuilding America's trust, that when you pay your taxes,
+- [43:45.790] when you send money to a program,
+- [43:47.480] it's actually going to the people it's supposed to go to.
+- [43:50.700] It's a fundamental principle of good governance.
+- [43:52.920] It shouldn't be anything Republican or Democrat.
+- [43:55.170] It's just good government. Yep. Go ahead.
+- [44:00.780] The Press: Taylor with Spectrum, good to see you.
+- [44:02.220] The Vice President: Good to see you.
+- [44:03.420] The Press: You've emphasized a lot how you want
+- [44:04.860] this not to be partisan
+- [44:06.550] and you're going to look at red and blue states.
+- [44:08.950] The President, when he posted about you
+- [44:10.790] becoming the Fraud Czar last month,
+- [44:13.020] he wrote, "The focus will be everywhere
+- [44:16.120] but primarily in those blue states
+- [44:17.920] where crooked Democrat politicians
+- [44:20.050] have had a free-for-all."
+- [44:21.400] I'm curious, as you guys have been
+- [44:22.730] trying to interact with these states,
+- [44:24.180] do you worry that the President's remarks
+- [44:26.450] like that undercut the efforts for this not to be partisan
+- [44:29.440] and that could lead to resistance?
+- [44:30.880] The Vice President: No, I don't worry about that
+- [44:32.110] because he's talking about crooked governors.
+- [44:33.770] And of course, if you have a crooked governor,
+- [44:35.280] they're not going to work with us
+- [44:36.520] and we're going to have to use other tools
+- [44:38.100] to ensure that they do.
+- [44:39.330] But I think that there are a lot of governors,
+- [44:40.810] Democrat and Republican,
+- [44:42.020] who recognize that this is a very serious problem,
+- [44:44.850] that we're offering resources to try to help solve that problem.
+- [44:48.120] And I think a lot of them recognize that, yeah,
+- [44:49.850] they've got maybe a few crazy people in very far left states,
+- [44:53.230] but most people, most Americans, want to solve this problem.
+- [44:56.500] And I've actually been gratified by the fact
+- [44:58.110] that we've gotten a lot of cooperation
+- [44:59.370] from across the political spectrum.
+- [45:00.780] One other point about cooperation,
+- [45:02.070] we're not there yet,
+- [45:03.300] but one of the things we're going to do
+- [45:04.630] on the fraud task force is, look, we're learning.
+- [45:07.140] We're learning a lot about the way the government operates.
+- [45:09.360] Andrew is-- I almost feel bad for him
+- [45:12.520] sometimes because he comes to me once a week and says,
+- [45:15.710] "Here's this bureaucratic hurdle"
+- [45:17.260] or "Here's a wall that I'm running into
+- [45:19.310] that I would have never known even existed
+- [45:21.790] until we started to take this fraud stuff very seriously."
+- [45:24.690] So we've learned a lot over the last six months.
+- [45:26.980] We are eventually going to realize
+- [45:28.740] that there are tools that we do not have,
+- [45:30.660] that there are things that we need to do that Congress
+- [45:33.220] is going to have to step in and cooperate on us.
+- [45:35.380] I think that's going to be a big question of bipartisanship
+- [45:37.820] and common sense is when we identify some tools
+- [45:40.600] that we need to more fully go after the fraud problem,
+- [45:43.810] is Congress willing to play a ball
+- [45:45.440] or are they going to fight us every step of the way?
+- [45:47.330] I hope they play a ball.
+- [45:48.750] Partisanship is crazy in this town,
+- [45:51.020] but again, this is such a common sense thing
+- [45:53.650] that I would hope that everybody would want
+- [45:55.260] to protect the American taxpayer's money.
+- [45:56.820] Go ahead.
+- [46:00.470] The Press: Jennifer Jacobs, CBS News.
+- [46:02.320] On Iran, can you tell us where negotiations stand?
+- [46:05.170] The President before he left for Beijing
+- [46:06.850] called the latest proposal unacceptable.
+- [46:09.100] So is the US even talking to the Iranians right now
+- [46:12.140] or where are things at this point?
+- [46:13.910] The Vice President: So look,
+- [46:15.200] obviously these negotiations are very sensitive.
+- [46:17.140] I'm not going to tell you everything
+- [46:18.470] because we're trying to have a productive conversation.
+- [46:21.600] I spent a good amount of time on the phone
+- [46:23.280] with both Jared Kushner and Steve Witkoff this morning,
+- [46:25.720] a number of our friends in the Arab world this morning.
+- [46:28.620] Look, I think that we are making progress.
+- [46:30.740] The fundamental question is, do we make enough progress
+- [46:33.240] that we satisfy the President's red line?
+- [46:35.480] And the red line is very simple: he needs to feel confident
+- [46:38.690] that we've put a number of protections
+- [46:40.480] in place such that Iran will never have a nuclear weapon.
+- [46:43.280] That is the question. Do we meet that threshold or not?
+- [46:46.220] I think that we've made a lot of progress since we left Pakistan.
+- [46:48.910] I thought we made some progress in Pakistan,
+- [46:50.790] but we've made more since then,
+- [46:52.460] but that is fundamentally what we're negotiating towards
+- [46:55.800] is we want to be able to look at the American people in the eye
+- [46:58.250] and say with confidence that you are not going to have to worry
+- [47:01.030] about this very, very dangerous regime
+- [47:03.810] having access to the most dangerous weapons in the world.
+- [47:05.930] That's the goal that we're focused on.
+- [47:07.380] Again, there's a lot of ways to accomplish that goal.
+- [47:10.080] The President has set us off on the diplomatic pathway for now
+- [47:12.730] and that's what I'm focused on. Yep.
+- [47:16.370] The Press: Got it, thanks.
+- [47:17.580] The Vice President: We'll do a couple more here.
+- [47:18.970] The Press: Thanks a lot.
+- [47:20.280] There was pushback from Senate Republicans yesterday
+- [47:22.570] in the conference meeting about the cost of the ballroom,
+- [47:24.910] which has ballooned to about a billion dollars
+- [47:26.530] for the security aspect.
+- [47:28.700] Is there an IG either for GSA or the Treasury who would
+- [47:32.850] or should be eyeballing that project,
+- [47:34.520] and how do we make sure it doesn't balloon
+- [47:36.130] like some of these other government building projects?
+- [47:39.120] The Vice President: Well, I'm sure
+- [47:40.370] because of the nature of the project,
+- [47:41.970] you're going to have inspector generals who look at this,
+- [47:44.080] who look at the auditing, who look at the accounting,
+- [47:45.660] who make sure that this is done in a good way.
+- [47:47.020] I will say the President of the United States
+- [47:48.400] is a very good builder,
+- [47:49.720] and the reason why this is expensive
+- [47:53.130] is not because of the ballroom. The reason this is expensive
+- [47:56.090] is because of the security precautions necessary,
+- [47:59.240] things that have nothing to do with the ballroom itself
+- [48:01.370] but have to do with the actual security infrastructure
+- [48:03.320] on the White House.
+- [48:04.600] We saw a couple of weeks ago what can happen
+- [48:07.250] when you gather the President of the United States
+- [48:08.960] and a number of people
+- [48:10.270] who are in the line of succession in the same room.
+- [48:12.730] We almost had something very terrible happen.
+- [48:14.390] And thanks to the Secret Service
+- [48:16.180] and their incredibly quick response,
+- [48:17.980] we didn't have a terrible thing happen.
+- [48:19.450] But one of the things it's taught us
+- [48:20.970] is that we've got to update. And there are things, frankly,
+- [48:23.120] I wouldn't even talk about in a public forum.
+- [48:27.660] Sorry, there are parts of our national security
+- [48:29.680] and there are parts of the international world
+- [48:32.860] that are very, very dangerous,
+- [48:34.650] and the President needs to be protected.
+- [48:36.520] The senior officials in our government need to be protected,
+- [48:38.940] and that's fundamentally what this is all about
+- [48:40.930] is ensuring that on the White House grounds
+- [48:43.230] we have what's necessary to protect the President,
+- [48:45.610] whether he's engaged in a state dinner,
+- [48:47.250] which of course is an important part of
+- [48:48.490] the President's functions,
+- [48:49.740] or whether he's engaged in the day-to-day functions
+- [48:51.430] of being President of the United States.
+- [48:53.450] Go ahead.
+- [48:56.590] The Press: Thank you, Mr. Vice President.
+- [48:58.110] My question is, what's your message to Americans
+- [49:00.650] as the Iran War continues to impact the economy,
+- [49:03.330] especially after yesterday's inflation report?
+- [49:06.270] The Vice President: Well, my message to Americans
+- [49:08.230] is we know that we have a lot of work to do
+- [49:12.340] in order to deliver on the prosperity
+- [49:14.450] that the American people deserve.
+- [49:16.340] The President is hyper aware of this.
+- [49:18.370] I'm hyper aware of this. We talk about it all the time.
+- [49:21.130] We know that the American people inherited
+- [49:24.070] a very bad inflation crisis.
+- [49:25.700] Yes, the inflation number last month was not great,
+- [49:28.500] but take it back to the May of 2023
+- [49:32.810] and the Biden administration, or take it back to even further.
+- [49:35.710] We're not seeing anything like what we saw
+- [49:38.150] under the Biden administration,
+- [49:39.710] and that's a problem in and of itself.
+- [49:42.220] Because what it means is that a lot of Americans
+- [49:44.070] saw their wages eaten away under the Biden administration.
+- [49:46.650] They saw the values of their paycheck eaten away
+- [49:49.180] during the Biden administration.
+- [49:50.690] And one of the things we were elected to do, of course,
+- [49:52.410] was to fix that problem.
+- [49:53.870] And I promise you the President is laser focused every day
+- [49:56.860] on fixing that problem. Now what I will also say
+- [49:59.510] is that whether it's the working family's tax cuts,
+- [50:02.290] putting more money in the pockets of the American people,
+- [50:04.870] whether it's bringing a lot of investment
+- [50:06.410] into the United States
+- [50:07.650] so that we can build the factories
+- [50:08.900] and the jobs of the future, the President's laser focused.
+- [50:12.030] This stuff does take time. In the same way
+- [50:14.390] that the Biden administration's inflation crisis ate away
+- [50:17.620] at workers' paychecks for four years,
+- [50:19.730] it's going to take us a little bit of time
+- [50:21.330] before we get workers in a position where we feel like
+- [50:24.230] we can look them in the eye and say,
+- [50:25.860] "You are much, much better off,"
+- [50:27.370] but that's what we're trying to do.
+- [50:28.680] We're going to keep on working at it.
+- [50:30.000] I think we've made a lot of progress.
+- [50:31.500] If you look at the average household wage increase
+- [50:33.760] since Donald Trump became President,
+- [50:35.550] it's gone up, but we came from a pretty deep hole,
+- [50:39.080] meaning a pretty deep hole of the Biden administration,
+- [50:41.370] we're digging ourselves out of it.
+- [50:42.810] And what I want is for us to completely dig out of that hole
+- [50:46.280] and then to build a brighter and better
+- [50:48.590] and more prosperous future with the American people.
+- [50:50.370] That's what they elected us to do
+- [50:51.910] and that's very much what we're focused on.
+- [50:53.820] Sir.
+- [50:56.320] The Press: Thank you, Mr. Vice President.
+- [50:57.810] Can we quantify the amount of fraud
+- [51:00.270] that's related to illegal immigrants
+- [51:02.340] and what are the asks of California
+- [51:04.220] and these other states? What can they do to claw back
+- [51:06.160] some of this money that's being deferred?
+- [51:09.130] The Vice President: I don't know that you can quantify it
+- [51:10.910] because it's so hard to keep track of all of the criminal
+- [51:14.610] migrants who are taking advantage of our system.
+- [51:16.630] They're taken advantage by -- The average criminal migrant
+- [51:19.450] that we have in an American prison
+- [51:20.790] is costing us 60,000 to $120,000 a year
+- [51:24.110] depending on the location.
+- [51:25.570] They're collecting healthcare benefits.
+- [51:27.310] A couple of states, California, New York in particular,
+- [51:30.350] they actually allow illegal aliens
+- [51:32.600] to benefit from the American people's healthcare programs,
+- [51:36.080] which is just a disgrace and just a travesty.
+- [51:38.540] If you go into an emergency room,
+- [51:40.800] you should know that you're waiting in line
+- [51:42.920] with other American citizens,
+- [51:45.110] not with people who have been placed to the front of the line
+- [51:47.740] by a fraudulent Medicaid program in California,
+- [51:49.920] but that's what's happening.
+- [51:51.230] We know this is what's happening,
+- [51:52.830] and again, it's driving up costs for everybody.
+- [51:55.310] It's making it harder to access healthcare
+- [51:57.960] and it's absolutely fleecing the American taxpayer.
+- [52:00.840] It is a lose, lose, lose proposition.
+- [52:03.690] I've seen efforts to try to quantify this.
+- [52:05.730] I think the answer is hundreds of billions of dollars a year,
+- [52:09.230] whether it's 300 or six,
+- [52:10.920] it is a lot of money between Medicare, Medicaid,
+- [52:15.450] food stamps, prison fees,
+- [52:18.100] everything that goes into the criminal migrant problem
+- [52:20.880] in the United States of America, it's a lot of money.
+- [52:23.490] And again, I talk about the American people.
+- [52:25.600] We're a generous country, we're a generous people.
+- [52:28.530] I love that about this country, but part of that generosity
+- [52:31.950] is that it extends to our fellow Americans.
+- [52:34.940] We cannot give Medicare and Medicaid benefits
+- [52:37.480] to everybody all over the world.
+- [52:39.120] It's going to bankrupt those programs.
+- [52:41.210] They ought to belong to Americans first,
+- [52:43.070] and that to me
+- [52:44.310] is the fundamental meaning of America First
+- [52:46.800] is that all of us take a look at our programs,
+- [52:50.080] take a look at the fraud and we say,
+- [52:52.280] "How do we ensure that the federal government works
+- [52:55.190] for the American people first?"
+- [52:56.610] That's what we're doing every single day
+- [52:58.150] and we're going to keep at it. Thank you guys.

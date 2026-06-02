@@ -1,0 +1,1853 @@
+<!-- source: https://www.youtube.com/watch?v=t_EA2nOvi3A -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: t_EA2nOvi3A -->
+<!-- date_published: 2026-05-11T16:24:13+00:00 -->
+<!-- date_accessed: 2026-06-02T02:34:03.716563+00:00 -->
+
+# Transcript: President Trump Participates in a Maternal Healthcare Event
+
+- [00:14.700] The President: Well, thank you very much, everybody.
+- [00:16.210] It's an honor. This is very important.
+- [00:17.890] A lot of important things happening
+- [00:20.170] in our country right now, but we're doing very well.
+- [00:24.290] Most healthcare plans do not cover these benefits,
+- [00:27.200] but today I'm pleased to announce
+- [00:28.880] that the Department of Labor
+- [00:31.120] is issuing a new rule to formally create
+- [00:33.370] a fertility benefit option for employers
+- [00:36.680] that can be offered to all employees
+- [00:38.580] outside of their normal health insurance plans.
+- [00:41.320] It's a big deal, and they were not properly taken care of.
+- [00:45.070] Katie Britt knows that better than anybody.
+- [00:47.760] Who called me and said --
+- [00:50.640] I must say I shouldn't admit this, but the first time
+- [00:52.790] I really heard about the fertility was through Katie.
+- [00:55.070] She said, sir, we have to do something.
+- [00:56.740] And I'm a quick study, so I learned everything
+- [00:59.430] there is to learn in about three, four minutes.
+- [01:02.410] And I became the father of fertility.
+- [01:04.990] Katie Britt: Congratulations. That is true.
+- [01:06.430] The President: No, it just made a lot of sense to me.
+- [01:07.980] She explained it well. And you --
+- [01:09.960] I hope you tell that story, what happened to you,
+- [01:11.850] that you were virtually attacked with a bad --
+- [01:14.410] with a bad ruling from a court.
+- [01:16.450] They gave a very bad ruling, as you remember, in Alabama.
+- [01:19.320] Katie Britt: You stepped in and saved the day,
+- [01:20.790] and made sure that we had nationwide access to IVF
+- [01:23.720] and have done so much since then and we are so grateful.
+- [01:25.670] The President: We had a --
+- [01:26.890] we had something passed within two days after that,
+- [01:29.060] so it was really pretty amazing.
+- [01:30.520] You don't see that happen very often.
+- [01:32.640] But this will be supplemental option available
+- [01:34.850] to those who need it,
+- [01:36.050] much like vision or dental insurance,
+- [01:39.060] so we're bringing it right down into the mainstream.
+- [01:42.300] By offering coverage for care at every step,
+- [01:45.590] the fertility journey is a very interesting one, very complex.
+- [01:50.220] It was, and we're making it much simpler.
+- [01:52.560] This will hopefully reduce the number of couples
+- [01:54.830] who ultimately need to resort to IVF,
+- [01:58.810] because challenges can be identified
+- [02:01.050] and addressed very early in the process.
+- [02:03.470] This is a new benefit.
+- [02:04.960] This is a benefit that so many people have called me about.
+- [02:07.700] I mean, it's incredible.
+- [02:09.640] Oz and Bobby, I can tell you we speak about it a lot.
+- [02:12.190] So many people have called me about we have to do this.
+- [02:14.480] They've been waiting for it for a long time.
+- [02:17.500] But this is a new benefit or an option
+- [02:19.370] that will be a major help for millions of American moms
+- [02:23.330] that will result in more beautiful American babies.
+- [02:25.920] We like that.
+- [02:27.200] To further reduce the cost of fertility care,
+- [02:29.660] my administration has negotiated unprecedented
+- [02:33.020] most favored nation agreements with all of the world's leading
+- [02:36.460] pharmaceutical companies and nations.
+- [02:38.910] You think that was easy?
+- [02:40.110] That was not easy, the nations in particular, I tell you.
+- [02:43.630] I had to challenge them with tariffs.
+- [02:45.770] You don't want to give us what you want?
+- [02:47.420] I'm putting tariffs on your nation.
+- [02:48.930] Sir, we'll give it to you immediately --
+- [02:50.980] which actually -- you think Biden could do that?
+- [02:54.000] I don't think so, nor -- nor did he try, Bobby, right?
+- [02:56.990] They didn't even try.
+- [02:58.270] Secretary Kennedy: They did not.
+- [02:59.480] The President: They had never tried anything.
+- [03:01.140] One drug commonly used in IVF has gone from, as an example,
+- [03:05.450] $966 to $168, a difference of 500 percent.
+- [03:13.450] This is the most incredible thing.
+- [03:15.160] It -- it's not talked about by the fake news.
+- [03:17.680] It's sad, because it's the biggest thing to happen,
+- [03:19.610] I think, that we're getting drug prices --
+- [03:22.460] prescription drug prices down by 4, 500 percent or,
+- [03:26.030] depending on the way you want to phrase the question,
+- [03:28.260] you could say 4, 5, 600 percent, Oz,
+- [03:30.920] and you could also say 80 percent, 70 percent, etc.
+- [03:34.710] It all depends on the way you phrase the question.
+- [03:36.870] I like the 500 better.
+- [03:39.030] And since we launched that website
+- [03:40.890] just a few months ago, it's called
+- [03:43.170] TrumpRX.gov, it's through the roof.
+- [03:47.200] Is that a -- is that a correct statement, Oz?
+- [03:48.960] And by -- will you tell them that was your idea to call it
+- [03:50.810] Trump? It wasn't mine.
+- [03:52.040] Administrator Oz: It was --
+- [03:53.260] the president did not propose that name,
+- [03:55.120] but everyone else thought it was a great idea.
+- [03:56.670] It is working spectacularly well,
+- [03:58.130] incredibly effective at so many things.
+- [04:00.260] And there's not an American around buying medication
+- [04:02.580] who should not check TrumpRX.gov first.
+- [04:05.190] It, we propose, Mr. President,
+- [04:07.130] is going to save us $600 billion over the next decade,
+- [04:10.610] the kinds of savings we're going to achieve
+- [04:12.250] from the most favored nation drug pricing
+- [04:13.730] that Secretary Kennedy organized.
+- [04:15.830] The President: And the media doesn't write about it.
+- [04:18.110] If somebody -- if a Democrat proposed it,
+- [04:21.360] it'd be front page news every day
+- [04:22.930] for the rest of your life.
+- [04:24.220] The media, they don't want to write about it.
+- [04:26.260] Think of it. We're reducing drug prices by 500,
+- [04:30.900] 600 percent or 80 percent or 75 percent any way --
+- [04:35.840] it's all -- it's all about the phrasing of the question.
+- [04:39.540] And the media doesn't write about it.
+- [04:41.050] It's amazing. It's so sad. It's so biased.
+- [04:44.270] And that's why the media, their approval rating went down
+- [04:48.310] just today 12 percent. You're at 12 percent.
+- [04:51.090] That's why I got elected with 97 percent bad stories.
+- [04:54.600] I won in a landslide because you have no credibility.
+- [04:57.600] So, I wish the media would write about it.
+- [04:59.400] It's probably the biggest story.
+- [05:01.260] Certainly it's got to be maybe the biggest story in medicine,
+- [05:04.850] if you think, I mean, when you get drug reduction prices
+- [05:08.020] of 60, 70, 80 percent.
+- [05:11.730] A pill that costs a -- $10 in Germany costs --
+- [05:18.660] in New York City costs $130, $140.
+- [05:22.540] Now the pill is going to go to $20 in Germany
+- [05:24.900] and $20 for us.
+- [05:26.150] So, those -- we're going to have the lowest prices
+- [05:27.890] anywhere in the world, and I can't --
+- [05:30.530] we can't get a story about it. They won't write it.
+- [05:33.230] It's the biggest medical story there is,
+- [05:35.460] and we cannot get a story about it.
+- [05:38.300] I think I'm going to ask Walmart for a little help,
+- [05:40.410] if you don't mind --
+- [05:42.150] Because you people seem very good.
+- [05:44.030] You'd get very good publicity, I think, if you --
+- [05:46.660] if you could explain the trick and let me know.
+- [05:50.200] But since we launched the website
+- [05:51.590] just a few months ago, over 19,000
+- [05:53.810] Americans have used those fertility medicines
+- [05:56.300] and discounts and saved more than $15 million
+- [06:00.130] just in a short period of time, a very -- matter of weeks.
+- [06:03.680] The Council of Economic Advisers projects
+- [06:05.920] that the number will rise to $4.6 billion dollars
+- [06:11.200] over a fairly small number of years.
+- [06:14.880] Nobody's ever seen anything like this.
+- [06:17.300] And we had to get the countries.
+- [06:18.720] First we had to get the companies.
+- [06:22.970] And the companies were pretty good, but they --
+- [06:25.010] they knew I couldn't get the countries,
+- [06:26.770] so they didn't care that much.
+- [06:27.980] I think I -- we -- when we got the countries,
+- [06:30.820] I think they said what's going on?
+- [06:32.100] And yet, they've done fine.
+- [06:34.520] They do more business and they do it from -- it's --
+- [06:37.650] they made it up in volume, right?
+- [06:39.390] They made it up in volume, as the old -- old story went.
+- [06:44.100] There are many other ways our administration
+- [06:46.570] is supporting moms and women.
+- [06:48.110] We passed the largest working family tax cuts
+- [06:51.480] in American history by far.
+- [06:54.040] We passed the largest tax cuts not only for women,
+- [06:56.530] for everybody, but for women, so many working women.
+- [06:59.530] We passed the largest tax cuts in history.
+- [07:03.420] We also made a historic investment in rural health
+- [07:06.080] with $50 billion distributed across all 50 states.
+- [07:10.010] And that gives each state a lot of money
+- [07:12.750] over the next five years.
+- [07:14.060] $10 billion has already been distributed.
+- [07:16.270] And you see the results
+- [07:17.560] all over the rural part of the United States,
+- [07:20.570] which I'm proud to say I won by about 80 percent of the vote.
+- [07:24.340] And many states are investing in improving maternal healthcare.
+- [07:29.070] Every Democrat in Congress voted against this historic funding.
+- [07:32.650] The Democrats, well, they suffer from Trump derangement syndrome,
+- [07:36.210] to be honest.
+- [07:37.410] They don't even know what they're looking at.
+- [07:38.900] They can't even see straight. But I have a new way out.
+- [07:42.650] I'm going to propose something the opposite of what I want,
+- [07:46.630] and we will have massive amounts of legislation.
+- [07:50.750] No, just all I have to do is say we will not build the wall.
+- [07:55.650] Administrator Oz: Diabolically clever.
+- [07:57.020] The President: No, I'm going to do it, Katie.
+- [07:58.220] We'll play them.
+- [07:59.450] Katie Britt: I think you're onto something.
+- [08:00.690] The President: I'm going to go the opposite.
+- [08:01.940] Whatever is bad, I'm going to go for it,
+- [08:04.170] and they'll approve what's good, finally.
+- [08:05.920] No, they -- they've got serious Trump derangement syndrome,
+- [08:09.060] which actually is a disease.
+- [08:11.280] I'm hearing it -- is actually a disease.
+- [08:13.570] It's an honor.
+- [08:15.220] Today, we're also enacting groundbreaking child
+- [08:17.680] care reforms to improve federal child care programs,
+- [08:20.490] including Head Start and Child Care Development
+- [08:23.610] Fund that goes to each state. It's big stuff.
+- [08:28.110] These reforms will give states more flexible,
+- [08:31.520] lower costs, increase options,
+- [08:33.800] and empower parents to choose what care works best for them.
+- [08:38.180] There's a lot of options that you're going to have.
+- [08:39.800] Under this plan, you have, I think, pretty much maximum --
+- [08:42.390] Heidi, I think maximum options and that's what we're looking
+- [08:47.320] for, maximum options at the lowest cost.
+- [08:49.710] And you've got a cost that if you were here a year ago,
+- [08:53.520] or if you were here like during the last administration,
+- [08:56.160] you're talking about a cost that would be 8
+- [08:58.680] to 10 times more expensive than what we're doing,
+- [09:01.130] and same exact -- same exact prescription,
+- [09:04.380] same exact medicine, same care at 10 percent.
+- [09:09.540] It'll also free up child care
+- [09:11.450] funding for hundreds of thousands of additional children
+- [09:13.990] and support stay-at-home parents.
+- [09:17.330] In recognition of this ambitious agenda
+- [09:19.880] to support American mothers,
+- [09:21.210] today we're announcing a new website
+- [09:24.500] that is online right now. It's moms.gov., moms.gov.
+- [09:30.760] You couldn't have put that in the Trump deal?
+- [09:33.260] You had to give me a new one, competition?
+- [09:35.590] This guy. He wants to make me work so hard.
+- [09:39.920] So explain moms.gov, would you, please, Dr. Oz?
+- [09:43.580] Administrator Oz: Well, we're going to have a whole discussion
+- [09:45.030] about it a little bit later. If we could we have --
+- [09:48.120] we want Katie to speak a bit about the first issue
+- [09:50.020] you mentioned and --
+- [09:51.220] but moms.gov is a beautiful site.
+- [09:52.470] Folks ought to check it right now while we're talking.
+- [09:54.110] Katie Britt: Yeah, you really should,
+- [09:55.320] and it's -- it's pretty incredible,
+- [09:56.800] something that Senator Rubio and I tried to do, sir,
+- [09:59.850] but you're the one who actually did it, um, along with --
+- [10:02.330] The President: Well, I like TrumpRX.gov.
+- [10:04.320] I'm a friend of moms.
+- [10:07.460] I love moms, but I like TrumpRX.gov.
+- [10:10.470] You put me in there.
+- [10:11.850] I got to make sure -- it gives me competition now.
+- [10:14.760] (Inaudible)
+- [10:16.040] that's all right. We're only kidding.
+- [10:17.370] I have to say we're kidding, otherwise, they'll do,
+- [10:19.530] Trump and Oz had a major dispute and Bobby broke them up.
+- [10:23.420] It was a terrible, terrible dispute.
+- [10:27.210] These people.
+- [10:28.510] I encourage every mom to visit this new page,
+- [10:30.960] where they will find helpful information
+- [10:32.660] about addressing clinical care,
+- [10:34.940] pregnancy resources, nutrition tips,
+- [10:38.350] TrumpRX and Trump accounts.
+- [10:40.830] Trump accounts has been amazing for the kids.
+- [10:44.110] Michael and Susan Dell,
+- [10:46.180] they put in six $6,000,250 million,
+- [10:51.310] started it, and that's another one that's gone through --
+- [10:53.610] the Trump accounts, where young kids,
+- [10:56.060] they turn 18 or 20 or 21,
+- [10:57.900] and they -- they feel like -- they feel like a billionaire.
+- [11:00.750] You used to say a millionaire, now you say a billionaire,
+- [11:03.530] but they certainly feel rich
+- [11:05.840] as opposed to having absolutely nothing.
+- [11:07.650] It's so popular.
+- [11:08.850] So -- so many people -- we have people --
+- [11:11.410] in one case, took over the entire state, of Ohio,
+- [11:15.020] putting up the money for every kid in the state of Ohio.
+- [11:18.850] Supporting the journey of American moms at every stage
+- [11:21.700] is so important to the success of our nation.
+- [11:24.030] I'd now like to ask Senator Katie Britt --
+- [11:26.940] she's the one that got me into this, I have to tell you.
+- [11:30.220] I hope she always remains loyal to me
+- [11:32.110] so I can continue to support her.
+- [11:34.580] I would hate to go against her.
+- [11:36.480] That -- that will never happen, Katie, right?
+- [11:38.450] Katie Britt: That's right, sir.
+- [11:39.690] The President: But say just a just a few words.
+- [11:41.420] She's really a fantastic woman
+- [11:42.780] she's a great Senator and I got lucky.
+- [11:46.640] I was supporting somebody else and then I realized
+- [11:49.660] that the somebody else wasn't very good.
+- [11:51.970] And I said, who's that young woman I met
+- [11:53.860] that was so impressive?
+- [11:55.160] They said, her name is Katie Britt.
+- [11:57.370] I said, let me talk to her.
+- [11:58.640] I talked to her, I endorsed her, she won in a landslide
+- [12:02.560] and you've been winning in landslides ever since.
+- [12:04.580] So you've been doing a great job, Katie.
+- [12:06.370] Thank you very much. Katie Britt: Thank you.
+- [12:07.620] The President: I thought I should explain it.
+- [12:08.850] Katie Britt: Thank you.
+- [12:10.060] The President: Say a few words, Katie's going to say,
+- [12:11.720] and followed by Monique Pruitt and then Olivia Walton,
+- [12:16.390] then Dr. Oz and Dr. Dorothy Fink and Dr. Alex Adams.
+- [12:22.380] And he'll speak not too long,
+- [12:23.820] because I am being waited on by a large group of generals,
+- [12:31.990] and that's also important, you know, having to do --
+- [12:36.530] having to do with the absolutely lovely country of Iran.
+- [12:39.580] That's the way they pronounce.
+- [12:40.910] Katie Britt: All right.
+- [12:42.140] Well, we will -- we will get started then.
+- [12:44.100] Mr. President, thank you for your work.
+- [12:45.720] Um, we are here, guys,
+- [12:46.940] this is another example of promises made, promises kept.
+- [12:50.060] I mean, we look at what President Trump did
+- [12:52.090] when we dealt with this issue in Alabama.
+- [12:54.020] He stepped up to the plate immediately
+- [12:55.830] to make sure that we had nationwide access to IVF,
+- [12:59.360] to making sure that we had comprehensive
+- [13:01.540] fertility treatment so that men and women who --
+- [13:04.070] couples who were longing for their child
+- [13:07.060] could continue to have that hope and also have that reality.
+- [13:09.940] Today doubles down on that yet again.
+- [13:12.040] I mean, we see the savings
+- [13:13.490] that have happened across the country,
+- [13:15.390] and I've had more and more people come up to me
+- [13:17.550] and tell me a story about what it has saved them
+- [13:20.150] but we also know that there was opportunity
+- [13:21.770] for continued growth.
+- [13:22.970] President Trump saw that and he acted on it.
+- [13:25.110] So now more people are going
+- [13:26.420] to have access through their employer,
+- [13:28.050] just like they would dental or vision insurance.
+- [13:31.060] And there are people right now who this is out of reach
+- [13:33.610] because of affordability and President Trump
+- [13:35.760] is bringing that back in.
+- [13:37.340] When you look at the comprehensive nature
+- [13:38.770] of what we're doing today
+- [13:40.000] and coming on the heels of Mother's Day,
+- [13:42.080] I mean, we are thrilled to support mothers everywhere,
+- [13:44.760] whether it's that mom that is getting to experience
+- [13:47.630] growing life for the very first time,
+- [13:49.950] or the one chasing toddlers or wrangling teenagers,
+- [13:53.590] or being there when their adult child calls for advice.
+- [13:57.620] Moms are the heartbeats of our families, our communities,
+- [14:00.800] and our country. President Trump knows that,
+- [14:03.120] and he's made sure we've created a comprehensive culture of life.
+- [14:06.660] That's what you see right now with moms.gov.
+- [14:09.320] Moms.gov was something that then Senator Rubio and I
+- [14:13.200] talked about doing with Senator Cramer
+- [14:14.870] and now Senator Schmidt.
+- [14:16.100] But of course, President Trump is actually the one
+- [14:18.300] to put it into action.
+- [14:19.700] It supports moms through the prenatal,
+- [14:21.340] postpartum and early childhood development
+- [14:23.780] stages of motherhood. Also, as we tackle rural health.
+- [14:27.310] Look, I stand up here in front of you,
+- [14:29.050] not only as a mom of two,
+- [14:31.090] but also as someone who lives in the great state of Alabama,
+- [14:33.460] where about 28 percent of women live in maternal care desert.
+- [14:38.220] The work that we did in the working families tax cuts,
+- [14:40.670] guys, that hits it head on. We have an opportunity now
+- [14:43.980] to reach those who haven't been reached.
+- [14:46.410] When we look at maternal mortality rates,
+- [14:48.380] we continue to invest in the research
+- [14:50.490] that will help us resolve that issue,
+- [14:52.650] but also in the women that deal with --
+- [14:55.720] with so many issues during their pregnancy.
+- [14:57.430] We want them to be supported.
+- [14:59.540] And then in addition to all of that, child care.
+- [15:02.710] So we know, last year alone,
+- [15:05.050] you had about 455,000 women leave the workforce
+- [15:08.620] due to affordability and accessibility of child care.
+- [15:11.100] We've often said, and the president
+- [15:12.610] and I have talked about this,
+- [15:13.840] if you have or want the opportunity to stay home,
+- [15:16.190] we want that for you.
+- [15:18.220] But if you want or need the opportunity
+- [15:20.230] to reenter the workforce
+- [15:21.640] and want to be a part of building back America,
+- [15:24.140] like President Trump is doing,
+- [15:25.630] we don't want affordability or accessibility
+- [15:27.460] to be an impediment to that. So not only at his direction,
+- [15:30.440] and I was proud to lead the effort
+- [15:31.650] in the working families tax cuts to modernize the tax code,
+- [15:34.690] to make sure that child care was front and center
+- [15:36.840] for the first time since Ronald Reagan.
+- [15:38.850] Sir, you're the first one to do it.
+- [15:40.930] But today, that comprehensive nature
+- [15:43.080] of whether you're staying home
+- [15:44.470] or you're in a faith-based provider,
+- [15:46.120] or you have a child care center that --
+- [15:48.270] that you lovingly send your child to during the day
+- [15:51.180] as you work to provide for your family,
+- [15:53.710] today, that is easier as a result
+- [15:55.940] and we are proud of what that means for the economy.
+- [15:58.570] We know 24 percent of young families --
+- [16:01.880] or young families spend about 24 percent
+- [16:03.920] of their annual income on child care.
+- [16:05.490] So, Mr. President, thank you for all that you've done
+- [16:07.810] creating a comprehensive culture of life.
+- [16:09.490] This is -- this is really groundbreaking.
+- [16:10.950] The President: Thank you.
+- [16:12.210] So do you see now why I endorsed her so
+- [16:14.800] (Inaudible)
+- [16:16.100] and always will. I'd be afraid not to.
+- [16:19.010] She also is married to the largest human being --
+- [16:21.090] Katie Britt: He's right there, sir.
+- [16:22.560] The President: Her husband is great.
+- [16:24.040] He's a 11-year player in the NFL, an all-star,
+- [16:28.480] and one of the greatest college football players
+- [16:32.390] ever and what he does, so -- and he's --
+- [16:33.930] and he's a fantastic person,
+- [16:35.360] both two really fantastic people.
+- [16:37.880] Uh, Monique Pruitt speaks about TrumpRX.
+- [16:40.620] Monique Pruitt: Yes, sir.
+- [16:41.950] Well, thank you, Mr. President and Senator Britt,
+- [16:44.630] for all the work and the teams
+- [16:45.980] that have done so much around this.
+- [16:47.430] This is a very important topic; so glad to be here.
+- [16:50.120] I personally use Trump
+- [16:51.880] and I've saved thousands of dollars on my medication.
+- [16:54.890] Um, as President Trump mentioned,
+- [16:56.790] a lot of insurances did not cover
+- [16:58.300] this looks like they will be now.
+- [16:59.990] So that's wonderful. Thank you.
+- [17:02.110] Um, even so, some don't cover the medication portion
+- [17:04.410] that can be a separate pharmaceutical cost.
+- [17:07.190] So TrumpRX has brought a lot of the prices of medications down.
+- [17:11.650] Um, for me personally,
+- [17:12.890] Gonal-F has been one of the main medicines
+- [17:16.440] that people use for egg retrievals,
+- [17:19.270] and that, I could not find it anywhere,
+- [17:21.710] on any other website or for cheaper.
+- [17:24.070] So thank you so much to you guys for doing all the work.
+- [17:26.900] We really appreciate it from the IVF community.
+- [17:29.140] The President: It's been amazing,
+- [17:30.370] isn't it, the difference in cost?
+- [17:32.760] It's -- it's just incredible.
+- [17:34.250] I mean, you're talking about something
+- [17:36.320] where it goes down five, six, seven times.
+- [17:39.630] And I tell the story often. My first -- I was so proud.
+- [17:42.610] My first term, one eighth of one percent,
+- [17:46.110] I reduced drug costs during my third year,
+- [17:49.300] one eighth of one percent.
+- [17:50.990] And it's the first time in 28 years that prices went down.
+- [17:53.880] And I was so proud to have a news conference that --
+- [17:57.030] you remember that?
+- [17:58.260] Secretary Rollins: I was there. Yes.
+- [17:59.490] The President: I'd like to just say
+- [18:00.730] that prices have gone down one eighth of one percent,
+- [18:03.650] which is the first time in 28 years
+- [18:06.230] that prices have gone down for prescription drug prices
+- [18:09.020] (Inaudible)
+- [18:10.320] I was so proud of that and -- now I reduced it by 500 percent.
+- [18:15.040] Perhaps that's experience. I always knew that, you know,
+- [18:18.020] we were being just absolutely decimated.
+- [18:21.660] But, you know, I was hunted. I was the hunter.
+- [18:25.180] Now I'm the -- you know, I was -- I was the hunted then,
+- [18:28.730] and I had to devote a lot of time to that.
+- [18:30.580] Otherwise, I wouldn't have been too effective.
+- [18:32.670] If I was out of office, I wouldn't have been so -- we --
+- [18:36.070] I was hunted by some very bad people.
+- [18:37.740] Now I'm the hunter.
+- [18:38.940] It's much better when you're the hunter.
+- [18:40.930] But these are bad people,
+- [18:42.140] and they'll give you no support at all,
+- [18:45.630] no matter how good it is. I mean, as an example,
+- [18:48.170] I don't know what the numbers are,
+- [18:49.370] but if we go to Congress to get something approved,
+- [18:52.920] which we get, but you can say
+- [18:56.480] that we're going to reduce drug prices by 80 percent
+- [18:59.580] and we won't get one Democrat vote.
+- [19:02.520] I don't know how they get away with it.
+- [19:04.120] That's why we call them the Dumb-ocrats.
+- [19:06.050] We have a new name. they're Dumb-ocrats
+- [19:08.120] because they're dumb. They're dumb people.
+- [19:09.580] And -- and -- and they just -- they just can't do it. I --
+- [19:13.860] I've been waiting so long for them to change,
+- [19:17.030] but they just keep losing.
+- [19:19.010] And they're going to keep losing with their --
+- [19:20.990] with their policies.
+- [19:22.200] But we reduced prices by 70, 80 percent.
+- [19:25.270] And it's such a big -- it's such a big deal.
+- [19:28.360] I'd like to ask Olivia Walton,
+- [19:30.520] who's here with her very handsome husband, Tom --
+- [19:34.290] thank you, Tom, for being here. Thank you very much.
+- [19:36.740] And you're going to speak about maternal healthcare.
+- [19:39.710] Administrator Oz: Mr. President,
+- [19:40.930] I'm going to introduce Olivia, if you're --
+- [19:42.550] before we leave the last topic, the leader of EMD Serono,
+- [19:45.750] which makes one of the most important fertility drugs,
+- [19:47.810] is here. Just to remind you,
+- [19:49.080] because you've been giving different percentages,
+- [19:50.980] the least price of getting a product
+- [19:52.920] is one-tenth of what it used to be, so one-tenth.
+- [19:56.860] Forget about the percentages.
+- [19:58.180] That's an easy number to remember.
+- [19:59.560] And then the fact that we were paying ten times
+- [20:01.220] more for that same drug in America is embarrassing.
+- [20:04.350] It changed under the president.
+- [20:05.960] And presidents have long -- known it for a long time,
+- [20:08.780] but it takes guts to take on important lobbies.
+- [20:10.560] The President: So, why didn't they get it done?
+- [20:12.870] Administrator Oz: Well, the main reason is they were intimidated.
+- [20:14.570] They were scared.
+- [20:15.800] The President: Or incompetent.
+- [20:17.020] Administrator Oz: Or incompetent.
+- [20:18.310] But I've had plenty of conversations with the president
+- [20:20.080] when he says he doesn't care
+- [20:21.360] and he wants to do the right thing,
+- [20:22.640] and this is a good example.
+- [20:24.250] The President: Excuse me. Katie Britt's husband's here.
+- [20:28.460] I just spotted -- spotted this very large, handsome guy.
+- [20:31.470] What's going on here? Great guy. Ok, go ahead.
+- [20:34.660] Administrator Oz: So, let -- let me speak a little bit
+- [20:36.190] about the reality that 1 in 3 Americans are under-babied.
+- [20:39.360] What does under-babied mean?
+- [20:40.890] That means that you either don't have any children
+- [20:42.840] or you have less children than you --
+- [20:44.140] than you would normally want to have.
+- [20:45.800] And to Katie's point, we have a crisis
+- [20:47.510] that's causing our fertility rate to drop below 1.5.
+- [20:50.360] The replacement rate is 2.1. So, we're way below what we need
+- [20:53.610] just to replace the people that we have in America.
+- [20:57.010] And one of the challenges is that rural America,
+- [20:59.580] where there's 60 million people, have a mortality rate --
+- [21:02.540] a maternal mortality rate when they have babies
+- [21:04.680] that's about 30 percent higher
+- [21:06.550] than if you live in an urban area.
+- [21:08.380] One of the ways the president wanted to address
+- [21:10.040] this was creating something in the working families tax
+- [21:12.230] cut legislation,
+- [21:13.460] which is, I think, the most ambitious, fantastic program
+- [21:17.040] ever written to help fix the healthcare system.
+- [21:19.170] The president saved Medicaid
+- [21:20.850] in the working families tax cut legislation.
+- [21:22.830] He also invested, with Congress's help,
+- [21:24.670] and Senator Britt and her colleagues voted for this,
+- [21:26.830] so did all the House,
+- [21:28.090] to put in $50 billion into rural healthcare.
+- [21:31.670] That's 10 billion a year for the next five years.
+- [21:33.600] All the money went out the door on time,
+- [21:35.570] and it's being used for incredibly beneficial advances
+- [21:39.410] to help Americans living in rural America
+- [21:41.440] have babies safely.
+- [21:42.970] Your zip code should not determine your mortality rate
+- [21:45.180] if you're having a baby. That is going to change.
+- [21:47.440] There's a great program in southern Alabama.
+- [21:49.260] They call it LA, Lower Alabama.
+- [21:50.810] Katie Britt: I'd -- I love that you know that.
+- [21:52.180] Administrator Oz: Yes. I've been there.
+- [21:53.700] And that is --
+- [21:54.930] that is allowing us to use these new ultrasound probes now.
+- [21:58.050] If you don't have an obstetrician in your county,
+- [22:00.110] because in many counties in Los --
+- [22:01.630] in LA, which is Lower Alabama, that's -- that is the case.
+- [22:05.140] We have states, and all the governors are embraced on this,
+- [22:08.270] investing a lot of money training more people
+- [22:10.150] to work in rural America.
+- [22:11.690] And we're also using telehealth tools.
+- [22:13.690] So, you have big, sophisticated urban centers
+- [22:16.670] adopting smaller facilities and clinics
+- [22:19.010] so they can help moms deliver babies wherever they may live.
+- [22:21.700] You don't have to drive across state to get there.
+- [22:23.850] Now, as great as this all is,
+- [22:25.200] and as fantastic as it has been to have 50 governors --
+- [22:27.440] in this case, Mr. President,
+- [22:28.850] even the Democratic governors are on board,
+- [22:30.520] it's such a good offer.
+- [22:32.410] It's such a beautiful way of keeping your people
+- [22:34.910] healthy that everyone's embraced this program.
+- [22:37.220] We still can't do it by ourselves.
+- [22:38.760] We have to invest in the American people.
+- [22:41.200] We have to have governors and private sector partners
+- [22:44.700] that make this happen, as well as --
+- [22:46.020] and I hope the secretary can speak to this in a moment,
+- [22:48.150] because MAHA is probably vital to this effort.
+- [22:50.710] You have to get moms healthy enough
+- [22:52.150] to do the most creative thing the universe knows,
+- [22:54.420] which is making babies.
+- [22:55.760] So, Olivia, maybe you can take the message
+- [22:57.440] around the private sector involvement and how you're --
+- [22:59.270] you and your family have gotten involved in this
+- [23:00.910] and led the way,
+- [23:02.190] and maybe talk about MAHA afterwards.
+- [23:03.810] Olivia Walton: Sure, I would -- I would love to.
+- [23:05.130] And first, thank you so much, Mr. President.
+- [23:07.000] Thank you, Dr. Oz.
+- [23:08.240] And thank you, Secretary Kennedy.
+- [23:09.780] Thank all of you for making maternal health
+- [23:11.700] really a national priority.
+- [23:13.610] It's an honor to be here today with all of you.
+- [23:15.820] This $50 billion in rural health funds,
+- [23:18.580] this really represents a transformative opportunity
+- [23:22.120] to invest in maternal healthcare.
+- [23:23.860] Administrator Oz: And in fact,
+- [23:25.180] it's what's given us the confidence
+- [23:26.960] to launch healthy Moms, Healthy Babies America,
+- [23:29.760] which is our campaign. It is bipartisan.
+- [23:32.190] Dr. Oz is right.
+- [23:33.590] Democratic governors across the country
+- [23:35.320] are also very interested in doing this.
+- [23:37.580] We have a simple goal.
+- [23:38.790] We want to cut the US maternal death rate
+- [23:40.720] in half in five years.
+- [23:42.760] That sounds audacious, but I am confident we can do it.
+- [23:45.780] I am confident because we have the federal leadership,
+- [23:48.510] because President Trump wants to make America
+- [23:50.620] the best place to have a baby.
+- [23:52.790] I'm confident because we now have this $50 billion,
+- [23:55.780] money that's already going out to the states,
+- [23:57.990] that we can actually leverage to pay for some of this.
+- [24:00.550] And I'm confident because, honestly,
+- [24:01.940] we know how to fix this.
+- [24:03.530] The vast majority of infant and maternal death is preventable.
+- [24:08.400] We know the solutions. Maternal health is rural health.
+- [24:12.190] You heard the numbers from Dr. Oz.
+- [24:14.230] I'm here today as a mother from Arkansas.
+- [24:16.150] I have three young kids. I live in a very rural state.
+- [24:18.910] And I'm thrilled to say Governor Sanders
+- [24:20.610] is taking maternal health head on
+- [24:22.520] and has made some incredible progress.
+- [24:24.740] But in rural America, it is hard to have a baby right now.
+- [24:27.580] It's hard to get care.
+- [24:28.890] We have moms driving for hours to get to the OB.
+- [24:32.220] Most moms don't have the time to do that,
+- [24:33.860] and a lot of moms don't have the money to do that either.
+- [24:36.000] And then after they have the baby,
+- [24:38.220] they're not going back for any kind of checkup.
+- [24:40.680] For those of you who know who've had a baby,
+- [24:42.840] what's the standard of care?
+- [24:44.190] They say come back in six weeks. It's not a good idea.
+- [24:48.630] You all know how precarious those precious few weeks are.
+- [24:52.970] You need help sooner than that. And by the way,
+- [24:55.280] not all this care has to be done by an OB.
+- [24:57.700] It can be done with doulas and nurses and midwives,
+- [25:00.720] folks in your community.
+- [25:02.080] They can work with the doctor.
+- [25:03.760] As Dr. Oz said, there is virtual care.
+- [25:06.310] The solutions really do exist, and now is the time
+- [25:09.030] to get serious about this stuff and scale it.
+- [25:12.150] So, we are uniting business leaders with policy maker,
+- [25:15.640] healthcare providers, faith leaders.
+- [25:17.570] We believe there's a great opportunity
+- [25:19.110] for faith leaders to pay a big --
+- [25:20.730] play a bigger role in taking care of babies postpartum.
+- [25:23.430] And I'm just grateful to be here.
+- [25:24.810] I really believe --
+- [25:26.050] I know you're meeting with the generals,
+- [25:27.340] and we appreciate you keeping our country safe.
+- [25:30.600] Investing in maternal healthcare is the most strategic investment
+- [25:34.090] we can make in the future of American prosperity.
+- [25:37.700] The President: Hey, Tom, she did very well.
+- [25:39.020] What do you think? I'd give her a 10, maybe a 12.
+- [25:42.200] I'll give her 12 out of --
+- [25:44.250] so, when is she running for office?
+- [25:47.270] You know the nice thing? I was just listening as Olivia
+- [25:49.250] was doing -- she's so respected, and she doesn't need this.
+- [25:53.080] She doesn't need to come here and go --
+- [25:54.670] and she goes around and checks hospitals and does things.
+- [25:58.030] She really doesn't need it at all.
+- [25:59.700] She could be doing anything she wants, anything.
+- [26:03.090] And I think it's fantastic, and thank you very much.
+- [26:04.800] Olivia Walton: That's very kind of you. Thank you.
+- [26:06.040] The President: Thank you very much.
+- [26:07.250] Olivia Walton: Thank you, sir. The President: Really beautiful.
+- [26:08.750] Ok, we have Dr. Fink.
+- [26:12.180] Where is -- Dr. Fink, how are you?
+- [26:13.770] Dorothy Fink: So good to see you.
+- [26:15.000] The President: Nice to see you. Go ahead.
+- [26:16.220] Dorothy Fink: Well, thank you, Mr. President,
+- [26:17.430] for your ongoing support of maternal and infant health.
+- [26:21.080] We recognize that the health of women
+- [26:23.120] and mothers are so deeply interconnected.
+- [26:26.550] That's why we launched
+- [26:27.780] the Perinatal Improvement Collaborative
+- [26:29.600] during the first Trump administration
+- [26:31.690] an effort that has continued to this day
+- [26:33.700] to improve health outcomes for moms and babies.
+- [26:37.380] Through this nationwide network of hospitals,
+- [26:40.550] we are using real data and proven clinical practices
+- [26:43.720] to protect mothers and newborns.
+- [26:46.660] In the Perinatal Improvement Collaborative hospitals,
+- [26:49.630] we have reduced maternal mortality by 41.5 percent,
+- [26:54.180] which is truly incredible.
+- [26:56.140] And this is compared with a 5.9 percent
+- [26:58.500] decline in benchmark hospitals over the same period of time.
+- [27:03.280] Our goal is to have every hospital in America doing this,
+- [27:06.150] and we're thrilled to be partnering
+- [27:07.780] with Heartland Forward to make this happen.
+- [27:10.610] We really want every woman to have a healthy delivery
+- [27:13.560] and a healthy baby and to make the United States
+- [27:16.250] the healthiest place in the world to give birth.
+- [27:18.080] The President: Thank you.
+- [27:19.360] Dorothy Fink: Yes.
+- [27:20.600] And I'll also add in that you all
+- [27:22.180] and the Trump administration have taken historic steps
+- [27:25.840] to really strengthen support for American mothers and families.
+- [27:29.480] With the launch of moms.gov, we're highlighting
+- [27:31.660] all of the policy achievements that both you,
+- [27:33.660] President Trump, and Secretary Kennedy
+- [27:35.740] have advanced to support moms and babies.
+- [27:38.670] Moms.gov is the first of its kind resource
+- [27:41.370] that offers all sorts of guidance and information
+- [27:43.770] to support the health and well-being of mothers
+- [27:46.570] and their families.
+- [27:48.320] Moms.gov also really helps support expecting parents
+- [27:51.250] who are navigating difficult or unexpected pregnancies.
+- [27:55.490] We are committed to supporting women's
+- [27:57.030] health throughout motherhood and at every stage of life.
+- [28:00.280] Supporting women's health is not just a policy,
+- [28:03.090] it's a promise.
+- [28:04.810] We know that healthy mothers help build healthy families,
+- [28:07.650] and that healthy families build a healthy America.
+- [28:10.530] So, I want to thank you, Mr. President, Secretary Kennedy
+- [28:13.040] and everyone here for your support of women's health.
+- [28:16.350] The President: Thank you, Doctor, very much, very much.
+- [28:18.760] Well done. It's well done.
+- [28:20.890] Doctor Adams, please, about child care.
+- [28:23.490] Alex Adams: Thank you, Mr. President.
+- [28:24.690] This Mother's Day, we recognize the reality
+- [28:26.910] for millions of Americans.
+- [28:28.170] And that's, child care has become too expensive,
+- [28:30.960] too difficult to find,
+- [28:32.250] and too disconnected from the needs of working families.
+- [28:35.460] For years, Washington's answer has always been the same,
+- [28:37.770] more bureaucracy, more mandates, and higher costs for everyone.
+- [28:41.830] President Trump, you are taking a different approach.
+- [28:44.400] Under your leadership, we're advancing the child care
+- [28:46.310] reform package that puts parents back in charge
+- [28:49.640] and we're going to do three primary things.
+- [28:52.640] First, we're restoring parental choice.
+- [28:54.670] That means bringing faith-based providers back to the table
+- [28:57.770] and it means recognizing the vital role
+- [28:59.820] played by home-based providers,
+- [29:01.640] relatives and parents who choose to stay home
+- [29:04.850] during the earliest years of their children's lives.
+- [29:07.480] Second, we are cutting unnecessary red tape,
+- [29:10.400] red tape that forced providers to close,
+- [29:12.960] limited access to care,
+- [29:14.240] and made it harder for working families
+- [29:16.180] to find the support they needed.
+- [29:17.420] We're moving away from one size fits all federal mandates
+- [29:20.950] and instead empowering parents
+- [29:23.530] to meet their child's unique needs.
+- [29:25.650] And then third, we're strengthening accountability
+- [29:27.890] to ensure taxpayer dollars are protected from fraudsters.
+- [29:31.690] Under the Biden administration,
+- [29:33.070] they essentially backed the Brinks truck up to states
+- [29:35.520] and sent the security home.
+- [29:36.790] We think Americans deserve better.
+- [29:38.930] We will ensure that these funds go to families
+- [29:41.310] who truly need support.
+- [29:43.520] Our goal is simple more affordable options,
+- [29:46.000] more providers, more choices for parents,
+- [29:48.240] and more accountability for taxpayers.
+- [29:50.350] Mr. President, your pro-family agenda
+- [29:52.410] recognizes a simple truth,
+- [29:54.370] strong families build a strong nation.
+- [29:56.290] And if I could just end on a personal note.
+- [29:58.530] Mr. President, I want to thank you for your leadership
+- [30:00.270] and everybody up here for their leadership on fertility issues.
+- [30:03.080] My beautiful baby girl, Emerson, is a product of IVF,
+- [30:07.380] and I thank you for your leadership on that issue,
+- [30:09.480] and sharing the joy of parenthood with many,
+- [30:11.950] many more American families. Thank you, sir.
+- [30:13.730] The President: Well, thank you very much, Doctor.
+- [30:15.140] It's great to know.
+- [30:16.540] It's been really successful under this administration.
+- [30:21.470] And again, Katie, you were so helpful.
+- [30:24.100] Bobby, do you have something to say?
+- [30:26.150] Secretary Kennedy: Very, very briefly, Mr. President.
+- [30:29.020] I just want to stress how what a huge win
+- [30:31.500] for the MAHA movement and for the pro-life movement.
+- [30:35.050] The moms.gov, TrumpRX is -- it is one stop shopping for IVF,
+- [30:40.470] for prenatal care, for postnatal care,
+- [30:43.650] for nutrition, for baby formula and, of course, for .
+- [30:48.370] We have, as Dr. Oz pointed out,
+- [30:50.060] a fertility crisis in this country right now.
+- [30:53.220] We just found out that we've dropped out of 1.57 percent.
+- [30:58.060] The replacement rate is 2.1. 100 years ago, we were at 3.27,
+- [31:04.050] so more than double that we are today.
+- [31:06.830] We are approaching the cataclysmic rates
+- [31:09.990] that Japan and China are now experiencing
+- [31:12.920] that is threatening their economy.
+- [31:15.250] It's a threat not only to our economy,
+- [31:17.070] to our national security,
+- [31:18.340] it's a direct threat to our Social Security
+- [31:20.750] trust fund, the Medicare Trust Fund.
+- [31:24.560] President Trump has directed my agency
+- [31:27.770] to find out the cause of the fertility crisis.
+- [31:30.960] And that as part of this program,
+- [31:33.340] we're looking at the impact of metabolic challenges,
+- [31:36.830] which directly affect fertility, of obesity,
+- [31:41.750] which affects fertility, of endocrine disruptors,
+- [31:45.500] of pesticides, of this toxic soup
+- [31:48.750] that are our young women are walking around today
+- [31:51.480] to try to figure it out.
+- [31:53.280] The fertility crisis for women began in 2007.
+- [31:57.980] For men, in 1970, men had twice the sperm count,
+- [32:02.450] as our teenagers do today.
+- [32:05.470] This is an existential crisis for our country.
+- [32:08.930] We had a series of presidents
+- [32:12.730] that were trying to discourage childbirth
+- [32:15.590] and motherhood in this country.
+- [32:16.910] We now have a President that is trying to encourage it
+- [32:19.280] and I want to thank you again for your leadership.
+- [32:21.700] Thank you very much, Bobby.
+- [32:23.000] And there's another word, autism,
+- [32:25.630] that we're very much involved with.
+- [32:27.510] And I have my own ideas, but -- but Oz and Bobby
+- [32:31.880] and everybody that really focused on it very hard.
+- [32:36.250] Uh, I think in a certain way, you know,
+- [32:38.110] I would like you to look at the payment schedules, Bobby,
+- [32:40.700] because I think it's -- I think it's very skewed
+- [32:42.500] because of the payment schedules.
+- [32:43.780] The President: You understand what I mean?
+- [32:45.060] Secretary Kennedy: Yes.
+- [32:46.260] Administrator Oz: We're bringing you some ideas, Mr. President.
+- [32:47.520] The President: I think it has to be --
+- [32:48.770] I think it's crazy. I think that's what's happening.
+- [32:50.480] Can't -- can't pay more for that to a doctor.
+- [32:53.160] I mean, every -- every person around is going to have autism.
+- [32:57.620] That's what's happening, so -- I really believe
+- [33:00.400] that that's a very badly skewed. But more importantly --
+- [33:04.040] but I would like that done immediately.
+- [33:06.440] But more importantly, I think that some great progress
+- [33:10.170] has been made as to why -- you know, what --
+- [33:12.510] what is this thing that's happening all over the world,
+- [33:15.780] but here, what is it --what's going on?
+- [33:19.000] And there has to be something because,
+- [33:21.160] you know, it's spiked so much over the last 10 years.
+- [33:24.210] It's spiked.
+- [33:25.970] Over the last 15 years, it's gone up many, many times
+- [33:29.210] and I think it's a very important thing to mention.
+- [33:31.640] I mention it all the time having to do with other subjects,
+- [33:34.400] and then I bring in autism.
+- [33:36.270] Anything having to do with medical,
+- [33:37.740] I always bring in autism. Uh, on another topic,
+- [33:42.260] we're looking very seriously at natural 7OH
+- [33:46.660] and getting that approved natural 7OH,
+- [33:50.490] and we'll take a look at that very strongly.
+- [33:52.360] I think Oz and everybody, were looking to see
+- [33:55.660] if we can do something there.
+- [33:57.010] A lot of people are asking for it
+- [33:59.310] and thank you very much for the work on that.
+- [34:03.150] And with that, do you have any questions?
+- [34:04.980] The Press: Mr. President, you mentioned
+- [34:06.800] that you're going to be meeting with the generals on Iran.
+- [34:09.800] You rejected a deal from Iran over the weekend.
+- [34:12.170] Can you tell us anything about that proposal?
+- [34:14.120] And what, if any, effort will be made to break this down?
+- [34:17.430] The President: It was just unacceptable.
+- [34:19.680] You know, a lot of people said, well, does he have a plan?
+- [34:22.780] Yeah, of course, I do have a plan.
+- [34:24.160] I have the best plan ever.
+- [34:25.450] I mean, Iran has been defeated militarily totally.
+- [34:28.840] Uh, they have a little left.
+- [34:30.050] They probably built up during this period of time.
+- [34:32.340] We'll knock that out in about a day, but I have a plan.
+- [34:35.660] You know what that is, a very simple plan.
+- [34:37.260] I don't know why you don't say it like it is.
+- [34:39.730] Iran cannot have a nuclear weapon.
+- [34:42.650] They're very dangerous. They're very volatile.
+- [34:45.380] It's a terrible thing that's happened over there.
+- [34:48.540] They've killed 42,000 people in the last two months, 42,000.
+- [34:53.820] At least that's what we know of, 42,000 people.
+- [34:56.810] They killed numerous people over the last week,
+- [34:59.970] but they killed 42,000 people a month ago,
+- [35:03.730] a month and a half ago.
+- [35:05.320] They were unarmed protesters, not at all violent protesters
+- [35:10.710] and they started taking them out, shooting them.
+- [35:13.540] So we're not going to let them -- that's the plan.
+- [35:15.750] You know, people say, what's the plan?
+- [35:17.490] The plan is very simple.
+- [35:18.730] The blockade, first of all, was a part of military genius,
+- [35:24.320] just like Venezuela was military genius.
+- [35:26.390] We have the greatest military in the world, by far,
+- [35:29.400] and we're stocked up with great ammunition.
+- [35:31.840] We have much better stuff than we did two months ago
+- [35:35.010] when we first did the attack, which knocked them for a loop.
+- [35:38.460] But very simple, Iran cannot have a nuclear weapon.
+- [35:43.710] They can't have it.
+- [35:44.970] And if they did have it, the Middle East would be gone,
+- [35:47.070] Israel would be gone, and they'd hit Europe probably next.
+- [35:50.310] We're doing this service to the world
+- [35:52.560] and this has gone on for 47 years.
+- [35:54.550] Other presidents and leaders of other countries
+- [35:57.210] that have the power should have done it, but they didn't do it.
+- [36:00.550] But it's a very simple plan,
+- [36:02.870] Iran cannot have a nuclear weapon,
+- [36:04.480] and they won't have a nuclear weapon.
+- [36:05.960] And they didn't -- and they didn't want to go that far.
+- [36:08.190] If you -- if you can believe it, they didn't -- how stupid?
+- [36:12.130] Are they stupid people? They didn't want to believe it.
+- [36:14.660] They think that, well, I'll get tired of this
+- [36:16.660] or I'll get bored, or I'll have some pressure.
+- [36:18.200] But there's no pressure. There's no pressure at all.
+- [36:21.500] We're going to have a complete victory.
+- [36:23.510] We've already, in theory, had a complete victory
+- [36:25.650] from the military standpoint.
+- [36:27.090] Their military -- look, their Navy is dead.
+- [36:29.500] They have 150 -- they had 159 ships.
+- [36:32.440] Right now they have zero, other than little speedboats
+- [36:34.670] that go around that got taken out,
+- [36:36.070] eight a day by us. They have no air force.
+- [36:40.730] They have no anti-aircraft.
+- [36:42.020] Now, they probably put the shoulder jobs
+- [36:44.470] on into service over the last three weeks, probably.
+- [36:50.380] But essentially, they have no anti-aircraft,
+- [36:52.470] they have no radar.
+- [36:54.030] And frankly, their leaders have been killed
+- [36:56.100] at the first level, second level and half of the third level.
+- [36:59.580] And then they come back and they want to negotiate
+- [37:03.750] and they give us a stupid -- it's a stupid proposal.
+- [37:06.780] And nobody would take it.
+- [37:07.980] Although Obama would have taken it.
+- [37:09.420] Biden would have taken it.
+- [37:10.660] What they took it was far worse, so we stopped them twice.
+- [37:14.030] We stopped them when I terminated the worst deal
+- [37:15.740] probably ever made
+- [37:17.010] in the history of our country in terms of defense.
+- [37:19.680] That was the Iran nuclear deal by Barack --
+- [37:24.260] penned by Barack Hussein Obama.
+- [37:26.210] That would have given Iran a nuclear weapon within a year.
+- [37:29.290] They would have had it years ago.
+- [37:31.570] I terminated that in my first term.
+- [37:33.180] And then when that beautiful plane right there hit them hard,
+- [37:37.380] we really hit them hard and they told me,
+- [37:39.840] I want to just tell you this because they like to say,
+- [37:41.840] oh, well, maybe it wasn't that hard.
+- [37:44.680] Iran told me very strongly
+- [37:46.530] because they intend to give us the nuclear dust, as I call it.
+- [37:49.990] It's easier than talking about other terms
+- [37:52.410] because it's a term everyone --
+- [37:53.800] but the nuclear dust, which is what we hit.
+- [37:56.720] They told me, number one, you're getting it,
+- [37:59.420] but you're going to have to take it out,
+- [38:00.840] because the site was so obliterated
+- [38:04.380] that there's only one or two countries
+- [38:06.310] in the world that could get it.
+- [38:08.500] It's so deep and got hit so hard that there's no --
+- [38:11.940] the way they have the equipment to move it.
+- [38:13.470] You and China are the only two countries
+- [38:16.370] in the world that could take it out.
+- [38:18.770] So, we talked about it,
+- [38:20.060] and they said you'll have to take it out because we --
+- [38:21.980] we don't have the capability of doing it.
+- [38:24.330] So, for those people that like to say
+- [38:26.030] that those great pilots in those great planes --
+- [38:29.300] where we just ordered 22 more of them,
+- [38:31.410] new and improved,
+- [38:33.310] that those great pilots didn't do their job.
+- [38:37.270] They did their job at 1:00 in the morning with no moon,
+- [38:40.190] no light, no nothing.
+- [38:41.740] Every single bomb hit its targets.
+- [38:43.610] And then, as you know, we shot some incredible things.
+- [38:50.620] There's things that nobody else has.
+- [38:52.360] Nobody has a military like we have.
+- [38:54.350] We shot the Tomahawks from a submarine 200 miles away
+- [38:58.850] and that went on top of it.
+- [39:00.240] But every one of those -- including the Tomahawks,
+- [39:03.140] every one of those weapons and -- and shots hit perfectly.
+- [39:08.210] And they said to me -- just to put it on the record,
+- [39:10.710] they said to me there are only two countries
+- [39:13.660] in the entire world
+- [39:15.320] that could ever get that stuff out of there,
+- [39:17.210] because we don't have the equipment and nobody else,
+- [39:20.070] they said China and the United States.
+- [39:22.970] So, I just want to let you know those pilots
+- [39:25.600] did an unbelievable job,
+- [39:28.080] very dangerous job at 1:00 in the morning.
+- [39:30.810] Think of it, no -- no moon, no nothing.
+- [39:33.640] We had no light purposely.
+- [39:36.200] And every single one of those bombs
+- [39:38.380] went right down an air chute
+- [39:40.680] in a granite mountain and exploded.
+- [39:43.620] And they are unable to get it even if they wanted to.
+- [39:47.460] But we're not going to take a chance,
+- [39:48.770] so that's part of the deal.
+- [39:49.990] The Press: So, sir -- (Inaudible)
+- [39:51.560] -- agreed to allow the removal of all their enriched uranium?
+- [39:55.030] The President: Yeah. Yeah. Well, they did two days ago.
+- [39:57.010] I -- they didn't -- ok? They did two days ago.
+- [40:01.660] They said you're going to have to take it.
+- [40:03.190] We were going to go with them, but they changed their mind
+- [40:06.160] because they didn't put it in the paper.
+- [40:07.930] So, when they sent us this document
+- [40:09.470] that we waited four days for they should have taken
+- [40:11.570] ten minutes to do, rat -- it's -- look, very simple.
+- [40:14.400] We get that.
+- [40:15.720] They guarantee no nuclear weapons
+- [40:18.660] for a very long period of time
+- [40:20.700] and a couple of other minor things.
+- [40:22.200] But they just can't get there.
+- [40:23.690] So they agree with us and then they take it back.
+- [40:26.830] Like, they -- they said to us that it was so badly --
+- [40:31.590] obliterated was the word they actually used.
+- [40:33.870] That was my original word.
+- [40:35.560] Then it got challenged by some of the fake news.
+- [40:38.260] But -- and it wasn't challenged with any knowledge.
+- [40:40.750] It was just challenged, like they were hoping
+- [40:43.300] that this wouldn't have been so successful.
+- [40:46.350] No, it was obliterated.
+- [40:48.640] We have the greatest military in the world.
+- [40:51.290] I built it largely in my first term.
+- [40:53.960] And I didn't know I'd be using it
+- [40:55.920] quite this much in my second term.
+- [40:58.280] But very simply, when they say does he have a plan,
+- [41:02.120] yeah, I have a plan. The plan is very simple.
+- [41:04.650] You know, in war you have to change.
+- [41:06.150] You have to be flexible. You have a lot of plans,
+- [41:08.950] but you have to do different plans in different days.
+- [41:11.090] But I have a great plan. But the plan is they --
+- [41:14.220] they cannot have a nuclear weapon.
+- [41:16.070] And they didn't say that in their letter.
+- [41:18.120] The Press: Mr. President, (Inaudible)
+- [41:20.260] changes that you've talked about in Iran,
+- [41:23.420] is this still a leadership
+- [41:24.690] that you believe you can negotiate with --
+- [41:26.160] The President: Yeah.
+- [41:27.370] The Press: And ultimately reach a peace deal with?
+- [41:28.570] The President: I think so. Well, you have two.
+- [41:29.830] You have the moderates and you have the lunatics.
+- [41:33.040] And I think the moderates are more respected.
+- [41:37.060] The lunatics want to fight til the end.
+- [41:38.830] You know, they're -- there will be a very --
+- [41:40.240] it'll be a very quick fight.
+- [41:42.170] But you -- I call them -- you have --
+- [41:45.010] just like our country, we have lunatics too.
+- [41:47.040] We have -- I call them lunatics. I call them stupid people, too.
+- [41:52.160] But in Iran, they have the moderates.
+- [41:53.740] They're dying to make a deal. And then you have the lunatics.
+- [41:56.270] And I guess they're a little bit afraid of the lunatics.
+- [41:58.200] But -- and why not?
+- [42:01.210] The -- the level of ferocity for protests, you know, the --
+- [42:06.410] the people are watching it.
+- [42:07.900] They want to go out in the streets.
+- [42:09.350] They have no weapons. They have no guns.
+- [42:12.190] We thought the Kurds were going to give us weapons,
+- [42:14.010] but the Kurds disappointed us. The Kurds take, take, take.
+- [42:17.680] They have a great reputation in Congress.
+- [42:19.480] Congress says, oh, they fight so hard.
+- [42:21.320] No, they fight hard when they get paid.
+- [42:23.740] So, I'm very disappointed in the Kurds.
+- [42:26.230] But they were given -- I --
+- [42:28.720] I said it wasn't going to work, by the way.
+- [42:30.270] I guess I have to say it. I --
+- [42:32.540] I disagreed with what they did. They gave it --
+- [42:34.580] I said they'll never get there, and I was right.
+- [42:37.090] I like to be right. In this case, too bad.
+- [42:39.750] But we sent some guns with ammunition.
+- [42:43.930] And they was supposed to be delivered, but they kept it.
+- [42:47.000] I said they're going to keep it. But what -- what do I know?
+- [42:49.860] I've only been doing this a short period of time.
+- [42:51.500] What do I know?
+- [42:52.740] The Press: Mr. President, for the time being,
+- [42:53.970] the ceasefire remains in place?
+- [42:55.190] The President: What?
+- [42:56.430] The Press: For the time being, the ceasefire remains in place?
+- [42:58.920] The President: It's unbelievably weak, I would say.
+- [43:02.930] I would call it the weakest right now
+- [43:06.450] after reading that piece of garbage they sent us.
+- [43:08.810] I didn't even finish reading it.
+- [43:10.630] I said I'm not going to waste my time reading it.
+- [43:13.300] I would say it's one of the weakest.
+- [43:15.150] Right now it's on life support.
+- [43:17.250] They understand. These are all medical people.
+- [43:20.320] Dr. Oz, life support is not a good thing, do you agree?
+- [43:22.930] Administrator Oz: Bad prognostic.
+- [43:24.190] The President: I would say the ceasefire
+- [43:25.440] is on massive life support
+- [43:28.310] where the doctor walks in and says, sir,
+- [43:32.050] your loved one has approximately a 1 percent chance of living.
+- [43:37.200] Yeah? Daniel, go ahead.
+- [43:39.070] The Press: Yep.
+- [43:40.280] The President: One of the best reporters in Washington.
+- [43:41.970] Go ahead. The Press: Thank you, sir.
+- [43:43.210] Dr. Oz referenced this little earlier,
+- [43:44.900] two questions on healthcare, if I can.
+- [43:46.490] The Council of Economic Advisers released a report
+- [43:48.900] saying that the most favored nation drug deals
+- [43:51.620] will generate about $529 billion
+- [43:54.350] in domestic savings over the next ten years
+- [43:57.410] across all markets.
+- [43:58.830] How transformative are these deals?
+- [44:00.490] The President: And makes -- and makes people better.
+- [44:01.800] The Press: Yeah, it does.
+- [44:03.040] How transformative are these deals for millions of Americans?
+- [44:06.550] And do you believe that the most favored nation drug deals
+- [44:09.890] are the Republicans' golden ticket to the midterms?
+- [44:13.060] The President: I think the Republicans
+- [44:14.340] should walk away with the midterms.
+- [44:16.050] Now, typically, whoever is president,
+- [44:19.070] they vote the other way. Nobody knows this.
+- [44:21.200] Do we have a psychiatrist in the group? Nobody knows why.
+- [44:24.740] Because I think we've had the best president --
+- [44:26.620] a lot of people have said -- even some radical left lunatics
+- [44:29.750] have said that we've had the best presidency,
+- [44:32.150] the best first year of any president.
+- [44:33.650] Look, I stopped eight wars,
+- [44:35.250] got the largest tax cuts in history,
+- [44:37.030] the largest regulation cuts in history,
+- [44:38.890] all the things we've done, so many --
+- [44:41.100] like, all of this that we've done.
+- [44:42.510] Medically we've done so much.
+- [44:45.620] You know, we did a thing called Right to Try in my first.
+- [44:48.560] And I could never understand it when I was a civilian,
+- [44:51.420] which wasn't so long ago.
+- [44:52.770] I haven't been doing it that long.
+- [44:54.080] But I -- I always used to marvel at the fact that,
+- [44:57.000] if they had a great drug and it had to go through the FDA
+- [45:01.370] and the FDA guarded it and said you can't use it,
+- [45:05.070] and if a person was terminally ill
+- [45:06.850] and the drug was showing great promise,
+- [45:09.370] the person's terminally ill,
+- [45:11.140] they wouldn't give it to the person
+- [45:12.360] because they didn't want to hurt the person.
+- [45:14.410] And I said, well, we need something on that.
+- [45:16.550] And it was very important to me,
+- [45:17.750] and I had no idea it would be so hard to get.
+- [45:20.200] But we got it in total. We got it in full.
+- [45:22.760] It's called Right to Try, that if you're terminally ill,
+- [45:26.510] you have the right to try a drug that has not gone
+- [45:30.110] even anywhere near final
+- [45:32.270] if it shows even a little promise,
+- [45:34.560] and we've saved thousands of lives.
+- [45:36.230] It was very hard to get because the insurance companies
+- [45:38.400] didn't want it. The doctors didn't want it
+- [45:40.190] because the doctors didn't want to be blamed.
+- [45:43.200] The drug companies didn't want it
+- [45:44.900] because, if it didn't work,
+- [45:46.220] they didn't want it on their record.
+- [45:47.810] So, what we did is we said
+- [45:49.500] we're not going to count it on your record.
+- [45:51.220] If somebody's terminally ill and they take --
+- [45:53.100] the drug doesn't work, we're not going to count it on your --
+- [45:55.410] we'll have another record, you know, a little smaller one
+- [45:57.460] that not a lot of people look at,
+- [45:59.320] but we're not going to count it on your record.
+- [46:00.870] So, Right to Try has -- has been one of the great successes.
+- [46:04.330] Again, nobody talks about it.
+- [46:05.800] We've saved thousands of lives, Oz.
+- [46:08.720] But you know what is maybe even more important?
+- [46:11.320] We've learned very quickly that some drugs work
+- [46:13.340] and some drugs don't.
+- [46:14.620] In other words, some drugs -- take a person
+- [46:17.030] who's terminally ill, and -- and there are numerous cases,
+- [46:22.510] and without waiting seven years, ten years,
+- [46:25.080] we -- by the way, we think we've cut it in half.
+- [46:27.090] But -- but you do need a period of time.
+- [46:29.760] Without waiting many, many years,
+- [46:32.830] we know the drug works
+- [46:34.130] because we've taken people that were dead --
+- [46:36.180] we had a person given the last rites, gone.
+- [46:40.620] The kids are crying, and started them on this drug
+- [46:45.220] and the person became better.
+- [46:47.320] It works, you know, and some don't work.
+- [46:50.350] But you learn really fast.
+- [46:51.860] It's called the ultimate test, I think, right?
+- [46:54.020] You know, they test all these things.
+- [46:55.840] They use animals all over the place.
+- [46:58.240] They use everything to test. A person's going to die.
+- [47:02.030] So, they didn't want it
+- [47:04.260] because they didn't want to be sued for --
+- [47:06.270] you know, the drug companies
+- [47:07.490] didn't want to be sued if it didn't work.
+- [47:08.920] The country didn't want to be sued.
+- [47:10.700] So, I got everybody into a room
+- [47:12.100] and I said we're going to do this.
+- [47:13.460] But if anybody uses it, they have to sign a document.
+- [47:16.230] They sign a very strong document
+- [47:18.070] that they're not going to sue the doctor,
+- [47:19.830] they're not going to sue the country,
+- [47:22.110] they're not going to sue the manufacturer,
+- [47:24.090] the pharmaceutical company.
+- [47:25.610] They're not going to sue anybody.
+- [47:27.040] But we're going to give it a shot.
+- [47:28.600] It has been -- Right to Try, it's been so successful.
+- [47:30.920] It's been amazing nobody talks about it,
+- [47:33.490] but everyone knows how successful it is.
+- [47:34.920] Administrator Oz: Mr. President, there was a young man
+- [47:36.330] that we visited on, actually in Los Angeles,
+- [47:38.970] who's taking advantage of this program.
+- [47:40.550] Katie actually spoke to him by phone.
+- [47:41.890] He's from Alabama, that -- he reached out to you directly,
+- [47:44.990] and this is the same program that benefited him.
+- [47:46.910] And just to put numbers on that Council of Economic Advisers,
+- [47:49.770] it's between, you know, 500 and whatever it was,
+- [47:51.860] 30 million that you said, and $700 billion in savings.
+- [47:55.120] So -- but we estimate it's $600 billion in total savings.
+- [47:57.950] And the impact on the American people, Mr. President,
+- [47:59.680] is 1 in 3 Americans leave a drug store
+- [48:01.610] without their medication because they can't afford it,
+- [48:04.260] even though they got a doctor's prescription
+- [48:05.780] and they know they can make a difference in their lives.
+- [48:07.790] That will no longer happen
+- [48:09.080] with the most favored nation drug pricing.
+- [48:10.670] And we're giving drugs like the-- the --
+- [48:12.580] which, as you call it, the fat shot.
+- [48:14.330] The weight loss drugs to all beneficiaries of Medicare,
+- [48:17.450] every senior in America
+- [48:18.680] can get them for $50 starting on July 1st.
+- [48:21.610] These are just inconceivably good prices,
+- [48:23.950] and they're so good, in fact,
+- [48:25.160] that we actually saved the taxpayer money
+- [48:26.640] by reducing the downstream effects of obesity,
+- [48:29.220] diabetes, and hypertension.
+- [48:30.500] Mr. President, all possible because you took brave action.
+- [48:32.850] And again, the question we should be asking ourselves
+- [48:34.450] is why did --
+- [48:35.680] why didn't this happen a decade ago?
+- [48:37.110] Katie, what do you think about that young man?
+- [48:38.700] Katie Britt: That he is --
+- [48:39.980] um, he has a new lease on hope and it's because of you.
+- [48:43.980] I talked to his parents and they said,
+- [48:45.880] we feel so good about our country
+- [48:47.760] that we literally have the president
+- [48:49.760] and Dr. Oz and Secretary Kennedy doing everything possible
+- [48:53.160] to give our son a fighting chance.
+- [48:55.300] They said before, you know, no one was listening,
+- [48:57.830] but you, Mr. President, took action.
+- [48:59.390] And Will Roberts, he -- that is such a --
+- [49:02.300] he such a great young man. He's inspired so many people.
+- [49:04.340] The President: (Inaudible)
+- [49:05.540] nobody talks about -- thousands of people, but --
+- [49:08.450] but it's also like this incredible laboratory
+- [49:12.330] of people that are -- they're finished.
+- [49:14.860] They're terminally ill. They're not going to live.
+- [49:17.710] And weren't given -- and this went on for years.
+- [49:19.790] You know, this went on, Madam Secretary,
+- [49:22.700] you're doing such a good job with prices, agriculture.
+- [49:25.970] How's the beef doing? Got to get the beef down.
+- [49:27.580] Secretary Rollins: We're working on it.
+- [49:28.890] The President: It's the only thing.
+- [49:30.090] We got to get the beef down. But -- but --
+- [49:31.350] Secretary Rollins: It's becoming more affordable.
+- [49:32.610] The President: This was -- this was so incredible
+- [49:35.430] because -- and I marveled at it for 30 years.
+- [49:39.100] I'd say, why -- I have friends that were terminally ill.
+- [49:43.400] You'd meet people; they were really in bad shape,
+- [49:46.200] they weren't going to make it, and they couldn't get a drug
+- [49:48.260] that looked like it was going to work.
+- [49:50.100] They couldn't get it. They asked me to get it.
+- [49:52.860] You have contacts, you know, could you get it?
+- [49:55.360] Couldn't get it. You go to jail if you get it.
+- [49:57.610] And they're going to die.
+- [49:58.810] They'd die three weeks later, four weeks later
+- [50:01.380] and we're saving a lot of people that were gone,
+- [50:03.530] that were terminally ill.
+- [50:04.980] And -- and what we're doing is producing almost immediately --
+- [50:07.700] you know, you can almost immediately approve these drugs.
+- [50:11.420] But it was very -- you know, look, legally it was a disaster
+- [50:13.890] because everybody would be sued.
+- [50:15.940] The problem is somebody would die and then they blame the drug
+- [50:18.530] and then the drug company gets sued,
+- [50:20.020] the doctors, the country gets sued.
+- [50:21.970] You know, a member of the family goes crazy.
+- [50:24.660] And -- and you're settling for millions of dollars
+- [50:27.630] because you killed somebody
+- [50:28.960] that was going to be dead in two weeks.
+- [50:30.810] So I did that, and I'm very proud of it.
+- [50:34.100] The other thing, Doctor mentioned the fat drug.
+- [50:37.610] So think of it, $87 that would sell in London
+- [50:42.640] and $1,300 in New York
+- [50:46.870] for the exact same box made --I won't name the company,
+- [50:51.020] made by the same company in the same facility,
+- [50:55.080] $87 in London, $87 in Heidelberg, $87 in Paris,
+- [51:03.790] $1,370, in New York.
+- [51:06.690] Secretary Rollins: It's true.
+- [51:07.910] The President: And this went on for a long time.
+- [51:09.910] And I will say, you know, he could be a famous guy.
+- [51:12.700] He's begging me not to release his name.
+- [51:15.540] He's a very highly neurotic, very fat --
+- [51:19.210] sort of a fat slob, I would call him,
+- [51:21.190] but he's a brilliant man. We know many of those people.
+- [51:24.620] He's a brilliant guy, actually, but he said, president,
+- [51:28.270] what the hell's going on here?
+- [51:30.700] He didn't need the money, he's rich as hell,
+- [51:32.650] but he just couldn't understand
+- [51:34.220] why he had to pay so little in London.
+- [51:35.900] He went to London and he couldn't understand it.
+- [51:38.850] He said, this is crazy.
+- [51:40.460] And it actually motivated me in a certain way
+- [51:42.780] because he was very smart. He -- he did a study.
+- [51:45.170] He actually sent his people and he traced this medicine
+- [51:49.500] and he found out it was --
+- [51:50.790] the box here is the same box as he had in New York.
+- [51:53.670] It was made in the same plant and it cost, you know,
+- [51:57.240] 10 times more here than it did in London.
+- [52:00.070] And -- and that -- there are worse stories than that.
+- [52:03.430] And I said, that's it, it's over --
+- [52:05.310] we're going to do it. That got me really motivated.
+- [52:08.270] He's begging me not to release his name
+- [52:10.200] because he is a well-known person,
+- [52:12.800] and I so destroyed his reputation
+- [52:15.720] in terms of his physicality that he just doesn't want me --
+- [52:19.650] I said, you know, you've had a big impact on medicine
+- [52:22.530] because you got -- you got to be better
+- [52:24.550] than any normal person could have, you know?
+- [52:26.950] He said, no, I don't want -- OK. Yeah, please.
+- [52:29.450] The Press: What do you hope
+- [52:30.750] to get out of the summit in China?
+- [52:33.070] And how much has the war in Iran changed the agenda?
+- [52:35.120] The President: A lot -- a lot.
+- [52:36.360] Look, I have a great relationship with President Xi.
+- [52:38.550] We're doing a lot of business, but it's smart business.
+- [52:40.480] We used to be taken advantage of for years
+- [52:43.730] with our previous presidents,
+- [52:45.600] and now we're doing great with China.
+- [52:47.000] We make a lot of money with China.
+- [52:48.580] I have a great relationship with President Xi,
+- [52:52.170] and I think you can see that with the fact that in Hormuz,
+- [52:55.440] they get a big percentage,
+- [52:56.820] 40 percent of their oil from Hormuz.
+- [52:59.280] There's been no ships coming in,
+- [53:01.930] no nasty ships coming in that we end up in skirmishes with.
+- [53:06.760] There's been -- he'd like to see it get done.
+- [53:09.060] He doesn't want to see -- I'll tell you what, look,
+- [53:10.780] I respect him a lot and hopefully he respects me.
+- [53:14.670] He didn't respect our previous government,
+- [53:16.410] that I can tell you. The guy couldn't talk.
+- [53:19.770] It was ridiculous, how that ever happened.
+- [53:22.600] Our country has hurt so badly the last four years.
+- [53:25.570] You know, I say it all the time.
+- [53:28.200] It was the king of Saudi Arabia but everybody says,
+- [53:30.560] we were a dead country a year and a half ago
+- [53:33.370] and now we're the hottest country anywhere in the world.
+- [53:35.800] And you know that better than anybody.
+- [53:37.220] You know, you see that. Olivia sees that.
+- [53:40.260] You see it in the numbers. Look at the numbers.
+- [53:42.420] Look at the stock market. The stock market is now higher
+- [53:45.050] than it was when this war started.
+- [53:47.720] So I thought that would go down 20, 25 percent.
+- [53:50.620] I was -- it was fine. You know, I'm willing to --
+- [53:54.350] I'm willing to say terrible expression, take a bullet.
+- [53:59.020] It's a terrible expression, especially when it's used by me.
+- [54:02.920] But I am. I'm willing to take a bullet for the country.
+- [54:06.050] And I said, look, the stock market's going to go down,
+- [54:08.750] but we're going to have a -- a threat of lunatics, having --
+- [54:13.610] they're lunatics, having a nuclear weapon.
+- [54:16.440] I deal with them. I deal with them.
+- [54:18.030] I say it to them. I say, you people are crazy.
+- [54:21.450] I deal with them. They talk differently.
+- [54:24.310] I say, you're crazy.
+- [54:26.040] You're crazy people. You're nuts.
+- [54:27.620] You're not having a nuclear weapon.
+- [54:29.370] They think they can talk me into it and they're not.
+- [54:32.720] They don't do very well with it, but they know how I feel.
+- [54:35.610] They can't have a nuclear weapon.
+- [54:37.030] They would use it within an hour after getting it.
+- [54:40.510] If the Obama deal wasn't terminated by me,
+- [54:43.250] they would have had it six years ago,
+- [54:46.230] and they would have used it immediately on Israel
+- [54:48.900] and also the rest of the Middle East.
+- [54:50.550] You saw that when they started shooting rockets.
+- [54:52.940] Nobody thought Saudi Arabia and Qatar and UAE
+- [54:56.010] were going to get hit, or Kuwait, Bahrain.
+- [54:59.960] I think it was a tremendous strategic mistake
+- [55:03.960] and they wasted those missiles.
+- [55:05.370] We have the Patriots that knocked them down every time.
+- [55:08.180] You know, we had -- I told the story.
+- [55:10.150] We have -- we were shot at, one of our great assets,
+- [55:13.480] happened to be a ship, great ship.
+- [55:15.630] 111 missiles going at very high rates
+- [55:19.370] of speed, sophisticated equipment
+- [55:22.080] and, you know, that's all they did is missiles,
+- [55:24.120] thousands of missiles.
+- [55:25.390] Who has -- who does this,
+- [55:26.740] except for people that are looking for trouble?
+- [55:29.600] We had 111 shot at one of our ships
+- [55:33.320] over a very short period of time.
+- [55:35.460] Out of 111 missiles going at 3,000 miles an hour,
+- [55:40.500] all 111 missiles were knocked down into the ocean,
+- [55:45.830] prior -- long prior to arriving at the target.
+- [55:49.670] And the cool guys -- the coolest guys are the guys that do this.
+- [55:53.390] They're not brawn, they're brain.
+- [55:55.490] They sit there, missile shot -- you got to see it happening.
+- [55:58.560] Missiles coming --
+- [55:59.790] they got like about 13 seconds to make a decision.
+- [56:02.510] It's not like, gee, let's figure it out.
+- [56:04.930] They make a wrong calculation, you know, you lose some --
+- [56:09.600] a lot of men, a lot of men and a lot of billion dollars,
+- [56:14.490] times ten, ships.
+- [56:16.120] So -- but there's a level of coolness
+- [56:18.670] that missile shot, they look,
+- [56:20.830] bah-bah-bah-bah-bah-bah- bah-bah=bah
+- [56:22.940] and, you know, they're going heading 47 degrees north,
+- [56:28.690] 1,300 feet going 3,000 miles an hour.
+- [56:33.820] OK. We have it in our sight. Fire, boom. 10 seconds left.
+- [56:41.280] Let me tell you, they need smart people.
+- [56:43.880] These people are smart.
+- [56:45.450] And they're so smart that they're cool.
+- [56:47.000] You know, under the calculations,
+- [56:48.500] for some people, are very tough for other people, not so tough.
+- [56:53.510] You know, about one percent. There's not too many.
+- [56:56.210] Uh, there's not too many people around like that.
+- [56:59.330] I say, uh -- I call --
+- [57:00.850] a lot of times I'll call these gunners
+- [57:02.470] because they're phenomenal geniuses,
+- [57:05.000] you know, where did you go to school?
+- [57:06.470] I went to MIT. Where did you go to school?
+- [57:08.290] I went to the best schools, smart, got to be very smart.
+- [57:12.710] We have the greatest military in the world. OK.
+- [57:15.380] The Press: Mr. President, back to motherhood.
+- [57:17.730] Your One Big Beautiful Bill --
+- [57:18.950] The President: I like that,
+- [57:20.780] because this is about motherhood,
+- [57:22.840] not about the beautiful country of Iran.
+- [57:25.340] Go ahead.
+- [57:26.550] The Press: Yes. Thank you all for being here.
+- [57:27.810] You're One Big, Beautiful Bill defunded Planned Parenthood
+- [57:30.160] for one year but that expires on this July 4th.
+- [57:33.880] Would you like Congress to use reconciliation --
+- [57:35.530] The President: Well, we're going to see what happens
+- [57:36.790] if Congress has now negotiated.
+- [57:39.150] Uh, we've been very good for the people that want it,
+- [57:42.850] for the people that are here and we'll see how that goes.
+- [57:46.250] It's been a very thorny -- to put it --
+- [57:48.580] to put it mildly, it's been a very thorny issue.
+- [57:51.580] Uh, it's -- it's all under negotiation right now.
+- [57:54.180] Yes, ma'am. Go ahead, please.
+- [57:57.230] The Press: Thank you, Mr. President.
+- [57:59.640] What do you think about the handling
+- [58:01.720] of the hantavirus by the US?
+- [58:03.770] The President: I think fine.
+- [58:05.060] The Press: Do you do you regret withdrawing from the WHO,
+- [58:09.020] given that --
+- [58:10.230] The President: No, I'm glad --
+- [58:12.030] so we were paying the World Health Organization
+- [58:17.030] $500 million a year.
+- [58:19.550] Look, it's a lot of money, but in the overall scope,
+- [58:21.550] it's not that much, but it's a lot of money.
+- [58:23.790] And we weren't being treated well
+- [58:27.150] and they were making the wrong diagnoses.
+- [58:29.740] I was the one that said it came from Wuhan.
+- [58:31.730] They didn't say that.
+- [58:33.010] They refused to say that
+- [58:34.220] because they were totally owned by China.
+- [58:36.960] So I was saying it came from Wuhan.
+- [58:39.680] They didn't want to say that. Now it's turned out --
+- [58:41.440] I think it's conclusive that it came from --
+- [58:43.770] but I said that on the first day,
+- [58:45.970] because I saw satellite pictures with body bags
+- [58:48.410] all over Wuhan, literally all over Wuhan.
+- [58:52.080] So I said that they lied to me or they didn't know.
+- [58:55.920] So we were paying for -- let's say, 350 million people,
+- [59:01.250] we were paying $500 million a year
+- [59:04.370] to the World Health Organization.
+- [59:05.640] That's a lot of money.
+- [59:06.840] What the hell are they going to do with that kind of money?
+- [59:09.050] And China is paying $39 million a year for 1.4 billion people.
+- [59:15.130] So I said, you know, you got your story wrong
+- [59:17.690] because we should be paying about $10 million,
+- [59:20.960] not $500 million.
+- [59:22.910] And they were willing to negotiate,
+- [59:24.700] but it was so popular when I pulled out.
+- [59:26.830] They gave us all the wrong information.
+- [59:28.340] On COVID, they were totally wrong.
+- [59:31.080] And I look today and I saw the same doctor that was there.
+- [59:34.060] He's a good politician.
+- [59:35.370] I don't know how the hell he kept his job,
+- [59:36.860] but he was there telling us about this.
+- [59:39.190] Now, the one thing with this one
+- [59:41.380] is that it's much harder to catch.
+- [59:44.120] And we've had it for a long --
+- [59:45.490] we've it's been around for a long time.
+- [59:47.200] People are very familiar with it.
+- [59:48.620] So, you know, I hope it's fine.
+- [59:51.550] All I can do is everything that a president can do, which is --
+- [59:55.760] which is actually somewhat limited.
+- [59:57.120] But -- but it seems like it is not easy to spread.
+- [01:00:04.020] In fact, it's, in certain ways, very hard to spread.
+- [01:00:07.940] It's been -- we've -- we've lived with it for years,
+- [01:00:10.330] many years and we think we're in very good shape.
+- [01:00:12.400] We're very careful.
+- [01:00:13.640] And Nebraska has done a fantastic job they have a --
+- [01:00:17.370] a place there that those doctors are unbelievable,
+- [01:00:21.740] the job they've done. Yeah, please.
+- [01:00:23.060] The Press: Mr. President,
+- [01:00:24.270] are you going to suspend the federal gas tax?
+- [01:00:26.830] The President: Yeah, I'm going to reduce until the --
+- [01:00:30.340] let me tell you, as soon as this is over with,
+- [01:00:33.350] Iran, as soon as it's over,
+- [01:00:34.660] you're going to see gasoline and oil drop like a rock.
+- [01:00:39.630] It's going to be dropping down like a rock.
+- [01:00:43.070] I mean, already, look, just on the basis of --
+- [01:00:47.060] you know, things have happened.
+- [01:00:49.120] When it first came about 20 percent of the oil
+- [01:00:53.760] came out of Hormuz. That's a lot.
+- [01:00:56.540] But, you know, with time, it's like, they go into Texas,
+- [01:01:01.790] they go into Louisiana, they go into Alaska,
+- [01:01:04.330] a lot of Alaska, Alaska's, you know, sort of it seems like
+- [01:01:07.200] very far away from the -- from Asia,
+- [01:01:10.380] but it's actually a relatively short trip
+- [01:01:13.820] by comparison to other locations they have to go to, to get oil.
+- [01:01:17.490] And they go to Alaska.
+- [01:01:19.480] In fact, our big problem is we're building bigger docks,
+- [01:01:22.640] docking, you know, dock to fill up.
+- [01:01:24.700] But we have -- uh, we become very big on the filling station.
+- [01:01:29.210] We're a big filling station.
+- [01:01:31.150] And what's happening is when this first --
+- [01:01:35.080] when people heard about losing
+- [01:01:36.520] Hormuz, they said, oh, this is -- it's genius.
+- [01:01:40.560] They're finding other locations. And some of those people,
+- [01:01:43.710] I spoke to them, companies and countries,
+- [01:01:46.540] some of those people are going to continue to go to Texas.
+- [01:01:48.860] They like it better. They said it's an extra 45 minutes.
+- [01:01:52.890] They like it better.
+- [01:01:54.840] And it's sort of amazing, you know, it found its way.
+- [01:01:59.020] So a lot of people thought oil would go to $250, $300.
+- [01:02:01.540] It's not.
+- [01:02:02.870] I mean, today it's at less than $100.
+- [01:02:05.420] Think of that. Now, when this ends,
+- [01:02:09.450] you're going to see a drop like a rock.
+- [01:02:11.230] The Press: How long are you going to suspend
+- [01:02:12.760] that tax for then?
+- [01:02:14.020] The President: Until it's appropriate.
+- [01:02:15.260] Yeah, till it's appropriate.
+- [01:02:16.480] The Press: How soon?
+- [01:02:17.680] The President: It's a -- you know,
+- [01:02:18.880] it's a small percentage,
+- [01:02:20.170] but it's a, you know, it's still money.
+- [01:02:21.460] The Press: Mr. President, do you still believe
+- [01:02:23.400] a diplomatic solution is possible with Iran,
+- [01:02:26.350] or do you only have military options left?
+- [01:02:28.270] The President: No, I think it's very possible.
+- [01:02:31.360] Look, I've had a deal with them four or five times.
+- [01:02:33.230] They change their mind.
+- [01:02:35.060] They're very dishonorable people, the leadership.
+- [01:02:38.630] Don't forget, it's the third level.
+- [01:02:40.680] The first level is gone. They were unreasonable.
+- [01:02:43.990] The second level was more reasonable.
+- [01:02:45.740] The third level, nobody wants to be president.
+- [01:02:47.790] You know? They say, who wants to be president?
+- [01:02:50.460] There's -- nobody raises their hand, you know?
+- [01:02:52.730] But we're they just -- they changed their mind.
+- [01:02:56.850] I've had that in business many times.
+- [01:02:58.770] You know, the mind changes, you call them.
+- [01:03:00.450] They -- these people, you make a deal
+- [01:03:02.200] and then the next day
+- [01:03:03.410] they send you a document that takes --
+- [01:03:05.810] that takes five days to get there,
+- [01:03:08.750] when it should have been there in 20 minutes.
+- [01:03:10.430] You know, it's a pretty simple document.
+- [01:03:12.440] And they will never have a nuclear weapon. Yeah.
+- [01:03:14.090] The Press: Thank you, sir.
+- [01:03:15.330] I was speaking with Claire Lai this morning.
+- [01:03:16.930] She's the daughter of Jimmy Lai,
+- [01:03:18.320] and she told me that she's been praying
+- [01:03:19.970] and hoping that you'll be the one that brings her dad home.
+- [01:03:22.240] She says, of any administration,
+- [01:03:24.200] she thinks you're the one that could do it.
+- [01:03:25.990] The President: You said Jimmy Lai?
+- [01:03:27.220] The Press: Jimmy Lai's daughter.
+- [01:03:28.460] The President: And there's another gentleman,
+- [01:03:30.640] a minister, pastor, as you know, over there.
+- [01:03:33.260] I'll bring them both home.
+- [01:03:35.540] I brought it up before. Jimmy Lai, I brought up.
+- [01:03:38.200] The other one, I just heard about this morning,
+- [01:03:39.970] actually and I do bring that up. You know, we've gotten --
+- [01:03:44.490] I don't know if you've been reading John Cole,
+- [01:03:46.300] who's a great lawyer.
+- [01:03:47.720] He he was a tobacco lawyer. He's a great, great guy.
+- [01:03:52.050] I won't say he's an older guy
+- [01:03:53.500] because he may be offended by that, but he is.
+- [01:03:55.510] He's a little older, a little older,
+- [01:03:57.710] and he's a wise man, actually, made a fortune with the tobacco.
+- [01:04:01.420] He did the first tobacco lawsuit, and he's a great man.
+- [01:04:04.760] And he he's brought back hundreds of people
+- [01:04:08.720] out of various Belarus.
+- [01:04:11.280] You know, you read about that. We -- we had --
+- [01:04:14.090] and the leader has been fantastic,
+- [01:04:16.390] but somebody has to ask him. Biden never asked, we asked.
+- [01:04:20.120] And we were getting hundreds of people
+- [01:04:22.280] out of confinement and prisons
+- [01:04:25.240] that shouldn't be there, and hundreds.
+- [01:04:26.920] And many of them aren't even citizens of the United States.
+- [01:04:30.280] They're people that have been captured in some form,
+- [01:04:33.150] ministers and people that are really innocent people,
+- [01:04:36.490] and they're being held captive.
+- [01:04:39.500] And I bring up Jimmy Lai -- now, Jimmy Lai, you know, did --
+- [01:04:43.450] you know he caused a lot of bedlam.
+- [01:04:46.830] I don't know. It's like saying to me
+- [01:04:50.840] if Comey ever went to jail, would you let him out?
+- [01:04:56.090] I -- that's -- it might be a hard one for me.
+- [01:04:58.190] Does that make sense?
+- [01:04:59.580] It might be hard, you know, because he's a dirty cop.
+- [01:05:03.030] But Jimmy Lai isn't that way.
+- [01:05:04.470] But Jimmy Lai, he caused lots of turmoil for China.
+- [01:05:10.750] He tried to do the right thing. He wasn't successful.
+- [01:05:13.050] He went to jail and people would like him out
+- [01:05:15.290] and I'd like to see him get out too.
+- [01:05:17.660] So I'll bring him up again. I have brought him up.
+- [01:05:20.580] And there's another gentleman, a pastor, as you know,
+- [01:05:24.100] with a beautiful daughter and son-in-law
+- [01:05:26.820] that would like to see him get out.
+- [01:05:28.250] I'm going to bring his name up too.
+- [01:05:29.480] The Press: Mr. President, what about Taiwan?
+- [01:05:30.850] Do you expect Taiwan to come up in your negotiation --
+- [01:05:32.760] The President: Yeah, it always comes up.
+- [01:05:34.440] Um, yeah, it always comes up.
+- [01:05:36.280] It's, uh -- I used to say Ukraine would --
+- [01:05:40.600] you know, for years you never even heard the word Ukraine.
+- [01:05:42.820] It was never going to happen.
+- [01:05:44.750] And it was handled so badly, Ukraine,
+- [01:05:47.720] Ukraine should have never come up.
+- [01:05:49.550] They lost last month, 25,000 soldiers,
+- [01:05:52.230] both sides, 25,000.
+- [01:05:54.120] They're losing on average 25,000 soldiers.
+- [01:05:56.490] It's like a meat grinder. It's horrible, what's happening.
+- [01:05:59.390] That would have never happened.
+- [01:06:00.700] Had the election not been rigged,
+- [01:06:02.200] that would have never happened.
+- [01:06:04.200] Uh, and Putin and I would talk about it,
+- [01:06:05.810] but there was never any -- he would have never done it.
+- [01:06:10.000] Um, Taiwan, I equate it a little bit to that.
+- [01:06:14.430] If you have the right president, I don't think it will happen.
+- [01:06:16.780] I think we'll be fine.
+- [01:06:18.010] I have a very good relationship with President Xi
+- [01:06:20.690] because I don't want that to happen.
+- [01:06:23.700] Very far away, very, very far -- we're distant, 9,500 miles.
+- [01:06:29.920] You know, we're 9,500 miles. He's 67 miles.
+- [01:06:34.960] It's a little bit of a difference.
+- [01:06:36.460] But, you know, there's a lot of --
+- [01:06:38.520] there's a lot of support for Taiwan from Japan
+- [01:06:41.190] and from countries from that area.
+- [01:06:43.400] The Press: Do you think we should still be
+- [01:06:44.710] selling them weapons,
+- [01:06:46.000] the United States should be selling --
+- [01:06:47.210] The President: Well, I'm going to have that discussion
+- [01:06:48.430] with President Xi.
+- [01:06:49.730] President Xi would like us not to
+- [01:06:52.550] and I'll have that discussion.
+- [01:06:53.810] That's one of the many things I'll be talking about.
+- [01:06:56.690] We'll have a -- you know, he and I have gotten along well,
+- [01:06:59.210] other than with COVID.
+- [01:07:00.450] I -- you know, I was not -- I was --
+- [01:07:04.220] I was just not accepting of what happened with COVID.
+- [01:07:06.730] But other than that, he and I have had --
+- [01:07:09.300] he's a great gentleman.
+- [01:07:10.690] I find him to be an amazing -- an amazing man.
+- [01:07:15.590] And when I say that, the press always says,
+- [01:07:17.420] oh, that's terrible that he called --
+- [01:07:19.280] you know, he runs 1.4 billion people with a pretty iron fist.
+- [01:07:24.330] He's, uh -- he loves his country,
+- [01:07:27.080] I can tell you that, President Xi.
+- [01:07:28.640] I look forward to being there.
+- [01:07:30.740] And if he felt anything, we wouldn't --
+- [01:07:32.660] we wouldn't be doing it.
+- [01:07:34.560] But a lot of good things can happen.
+- [01:07:36.960] No, we'll be talking about -- I mean, he'll bring up Taiwan,
+- [01:07:41.030] I think, more than I will. But I -- I think that, um,
+- [01:07:44.950] our discussion will be a little bit about --
+- [01:07:47.810] a little bit about energy
+- [01:07:49.600] and about the very beautiful country of Iraq.
+- [01:07:54.320] And by the way, Iran is a beautiful country,
+- [01:07:56.450] but it's got people running it now
+- [01:07:58.040] that shouldn't be there, perhaps. Yeah.
+- [01:08:00.270] The Press: Mr. President, just a couple questions.
+- [01:08:01.870] Outside of these amazing benefits from employers for IVF,
+- [01:08:05.130] there are a lot of women out there
+- [01:08:06.620] who either they work part-time
+- [01:08:08.760] or they self-pay for health insurance --
+- [01:08:11.910] cheaper IVF for those women?
+- [01:08:14.190] The President: And what would you like to know for IVF?
+- [01:08:16.530] The Press: For IVF, bring it down to the cost
+- [01:08:18.470] that's associated -- The President: I don't know.
+- [01:08:19.680] Olivia, could you answer that question, please?
+- [01:08:22.330] Olivia Walton: We're trying to make --
+- [01:08:23.540] The President: We're putting her through a little training here,
+- [01:08:25.010] Tom, to see whether or not she's got it.
+- [01:08:28.200] I have no doubt she does. Go ahead.
+- [01:08:29.810] Olivia Walton: Just a softball from the president.
+- [01:08:31.390] And healthy moms, healthy babies in America --
+- [01:08:33.030] The President: I said, let's give this one to Olivia.
+- [01:08:34.290] Olivia Walton: We are focused on making America
+- [01:08:36.230] the safest and best place to have a baby.
+- [01:08:39.560] Um, the IVF question, I think you probably better hit
+- [01:08:42.000] by Senator Britt and Dr. Fink and others.
+- [01:08:44.890] Katie Britt: Yeah, so what we're trying to do
+- [01:08:46.240] is obviously make sure that people have greater access
+- [01:08:49.220] and the affordability goes down. We did that, obviously,
+- [01:08:51.930] with what you saw from the president last year
+- [01:08:53.500] and the two different announcements he made.
+- [01:08:55.480] Um, we've seen you know, over --
+- [01:08:57.960] gosh, I mean, thousands of people have more --
+- [01:09:00.250] more access um, with regards to affordability.
+- [01:09:02.830] I think we've saved about $15 million,
+- [01:09:05.110] but we know that this is going to go up
+- [01:09:06.530] to the tens of billions of dollars
+- [01:09:08.950] with what we're doing here.
+- [01:09:10.270] With being able to allow employers to do this,
+- [01:09:13.060] we think it will ultimately drive down
+- [01:09:14.930] to each and every person.
+- [01:09:16.650] So that is the point, the more that people are able --
+- [01:09:19.760] we want to get -- as Secretary Kennedy said,
+- [01:09:21.340] we want to get to root causes as well,
+- [01:09:23.240] so we want to make sure that we are treating the --
+- [01:09:25.980] the entire issue,
+- [01:09:27.220] not just putting a Band-Aid on it and moving on.
+- [01:09:29.230] We want people who want to bring life into the world
+- [01:09:31.190] to have that opportunity.
+- [01:09:32.530] We do believe that this will do that.
+- [01:09:33.870] So a combination of allowing this to be available,
+- [01:09:37.310] but then also the affordability element.
+- [01:09:39.440] I think it's down, as he said, I mean, some --
+- [01:09:42.580] some of these drugs down 80 percent from a year ago,
+- [01:09:44.790] some down 40 percent over a year ago
+- [01:09:47.350] so it's a really exciting time and we do think
+- [01:09:49.330] that this will ultimately be able to reach all Americans.
+- [01:09:51.330] The President: But a lot of people
+- [01:09:52.620] don't realize it's available.
+- [01:09:54.260] I spoke to people, they don't know about the Trump --
+- [01:09:59.480] they don't know about any of these things
+- [01:10:01.580] that, you know, when you --
+- [01:10:02.870] where you're saving so much money
+- [01:10:04.550] where they can actually afford it.
+- [01:10:06.020] You know, when you get prices down
+- [01:10:07.690] to just a tiny fraction of what they used to be,
+- [01:10:11.250] that's one of the reasons.
+- [01:10:12.450] I don't need it for myself. I get enough publicity,
+- [01:10:15.110] but I needed to inform the public.
+- [01:10:17.840] A lot of people --
+- [01:10:19.090] like, your question is a good question,
+- [01:10:20.400] but a lot of people don't know IVF and so many other things
+- [01:10:23.930] that could help them that they assume it's so expensive
+- [01:10:27.540] it's not within their price range,
+- [01:10:28.950] and they're not going to be able to afford it
+- [01:10:30.310] or even think about it and then they hear about these numbers.
+- [01:10:34.140] And in addition, there's some help
+- [01:10:35.510] that we give them beyond even the low numbers.
+- [01:10:37.330] Administrator Oz: Mr. President, only one in three Americans know
+- [01:10:40.250] what trump.gov does. It would be a great service --
+- [01:10:43.060] I know he gives you a lot about this
+- [01:10:44.680] not getting reported on appropriately,
+- [01:10:47.950] but there is no excuse to buy a drug in America
+- [01:10:50.220] and not check trump.gov
+- [01:10:51.840] just to make sure you're getting the best price.
+- [01:10:53.770] Just think of it as a transparency site.
+- [01:10:55.510] And sir, you know, we've got tens of millions of people
+- [01:10:57.460] who are going to it but,
+- [01:10:58.660] you know, there's hundreds of millions of Americans,
+- [01:11:00.400] so we have got to get Americans to realize.
+- [01:11:01.840] You mentioned fertility.
+- [01:11:03.760] Fertility drugs are probably a third of the cost
+- [01:11:06.110] of the entire process. For those to drop by 90 percent
+- [01:11:09.690] dramatically changes the equation.
+- [01:11:11.050] They're private companies who are now taking advantage
+- [01:11:13.350] of the whole group of individuals
+- [01:11:15.340] who can get access to fertility medications
+- [01:11:17.600] and the treatments that go with them.
+- [01:11:19.410] As the services get better, we make them more affordable,
+- [01:11:21.970] we'll have more Trump babies.
+- [01:11:23.260] Katie Britt: Yeah, and we hope that it lays the groundwork
+- [01:11:25.040] there so that anyone has the ability to receive these.
+- [01:11:28.140] And also remember, this is all on moms.gov as well.
+- [01:11:30.710] I mean, that's one thing we're trying to do,
+- [01:11:32.300] is make sure that we are pushing people
+- [01:11:33.830] to all of these resources,
+- [01:11:35.060] because when you either want to have a child
+- [01:11:37.270] or you find out you have a child, you know,
+- [01:11:39.110] sometimes that's a very exciting thing.
+- [01:11:40.550] Sometimes, you know, it's -- you're a little overwhelmed.
+- [01:11:43.170] We want all of those resources to be in one spot
+- [01:11:45.500] so that we can help these women in their journey to motherhood.
+- [01:11:48.300] The President: And when people hear how inexpensive
+- [01:11:50.350] it is relative, you know, they can't even think about it.
+- [01:11:52.530] Now, all of a sudden, they say, I can afford that,
+- [01:11:54.930] and they get help also in affording it.
+- [01:11:57.220] There are ways of getting help to afford even those low prices.
+- [01:12:00.900] How about one more last question, please
+- [01:12:02.950] The Press: Thank you, Mr. President.
+- [01:12:04.670] What do you say to infectious diseases experts
+- [01:12:07.840] who say they are worried
+- [01:12:09.230] the country may not be prepared to deal
+- [01:12:11.030] with something like hantavirus because of all the HHS,
+- [01:12:14.620] you know, funding and staffing cuts?
+- [01:12:16.970] The President: Well, I think we take care of that.
+- [01:12:18.300] Doc, you want to answer that?
+- [01:12:19.620] Administrator Oz: It's just not true.
+- [01:12:20.880] Jay Bhattacharya has taken this task on.
+- [01:12:23.090] Secretary Kennedy is involved with them.
+- [01:12:24.630] You can speak to him, perhaps even better than,
+- [01:12:26.410] frankly, best in the room but the country's prepared
+- [01:12:29.000] and the CDC is focused on it and --
+- [01:12:30.520] and the agency is --
+- [01:12:32.300] is well aware of the opportunities
+- [01:12:33.730] to actually treat this problem,
+- [01:12:34.990] not just try to prevent it in the future,
+- [01:12:36.360] but treat it if it happens.
+- [01:12:37.730] Administrator Oz: Now, Secretary?
+- [01:12:38.950] Secretary Kennedy: Yeah.
+- [01:12:40.150] I mean, we've had CDC teams on it from day one.
+- [01:12:44.450] I was speaking with the University of Nebraska
+- [01:12:46.680] since the second day of the outbreak.
+- [01:12:49.270] I was speaking with Governor Pillen of Nebraska.
+- [01:12:52.640] We had a CDC team at Tenerife
+- [01:12:55.580] we had airplanes ready to take the patients,
+- [01:12:59.040] the 17 patients off the vessel and transport.
+- [01:13:05.270] Two of them went to Atlanta. One of those was symptomatic.
+- [01:13:09.910] They are in a biocontainment lab in Atlanta.
+- [01:13:13.470] The other 16 are now in Nebraska.
+- [01:13:17.350] One of them is symptomatic. He is in a biocontainment lab.
+- [01:13:21.020] The other ones are being tested and supervised,
+- [01:13:24.060] given plans for going home.
+- [01:13:26.530] We have this under control and we're not worried about it.
+- [01:13:30.270] The Press: But the CDC took four days after the WHO
+- [01:13:34.330] issued its, you know, alert. Why was it?
+- [01:13:38.030] Why -- why did it take the US four days to issue an alert?
+- [01:13:41.920] Secretary Kennedy: It's not true.
+- [01:13:43.250] We -- as soon as we determined that the virus was out there,
+- [01:13:46.440] we issued an alert. The alert means nothing --
+- [01:13:49.340] The President: (Inaudible) very quickly. I saw the alert.
+- [01:13:52.580] Give me a break. They acted very, very quickly.
+- [01:13:55.330] And it looks like and, you know,
+- [01:13:56.980] you can't bet anybody's life on it,
+- [01:14:00.130] but it looks like it's just a disease that we've had around
+- [01:14:03.540] in a very small way for a long time.
+- [01:14:05.960] Not a good one to catch because, you know,
+- [01:14:08.160] it's a very severe disease if you catch it,
+- [01:14:09.720] but it's very hard to catch.
+- [01:14:10.950] Daniel, did you have a question?
+- [01:14:12.230] The Press: One last one.
+- [01:14:13.430] Senator Britt mentioned the website moms.gov.
+- [01:14:15.390] One of the policies that's on there are the Trump accounts.
+- [01:14:18.180] Right, they're getting ready to go live this summer.
+- [01:14:20.090] When you speak to young parents, this is one of the policies
+- [01:14:22.660] they repeatedly bring up about how impactful
+- [01:14:24.790] it will be for them. Can you just talk about
+- [01:14:26.770] why Americans need to know about this,
+- [01:14:28.580] and how important it is for younger parents
+- [01:14:30.520] to give their kids a head start?
+- [01:14:31.900] The President: So we've done more for young parents,
+- [01:14:33.850] I guess it's the way you could say it, great, beautiful term,
+- [01:14:36.850] but we've done more for young parents
+- [01:14:38.920] than any administration ever in history.
+- [01:14:41.460] And we're going to continue to do so.
+- [01:14:43.960] This is -- look at the people up here.
+- [01:14:46.330] They're all brilliant. I'm one of the young ones.
+- [01:14:49.740] You know, I'm -- I'm a similar age
+- [01:14:52.530] to all of you, very similar. I feel the same as them.
+- [01:14:56.060] I actually feel -- you know, I don't know that this is --
+- [01:14:59.380] I feel the same as I did 50 years ago. It's crazy.
+- [01:15:04.460] Uh, someday, there'll be a day when that won't happen.
+- [01:15:07.380] I'll let -- I'll let Bobby and Oz know.
+- [01:15:09.110] You know, it's not quite the same.
+- [01:15:11.560] But I feel literally the same. I don't know why.
+- [01:15:14.040] I'm not -- it's not because I eat the best foods.
+- [01:15:16.180] Maybe, though, they are the best foods.
+- [01:15:17.570] Who knows what the best foods are?
+- [01:15:18.970] Maybe -- maybe junk food is good and the other food is no good.
+- [01:15:22.350] I know people that eat the best food.
+- [01:15:25.100] They go to a restaurant, they have celery
+- [01:15:27.410] and I don't want --
+- [01:15:28.710] and I'll have steak and everything else.
+- [01:15:31.030] And I say, how are you doing?
+- [01:15:33.440] Well, it's over for me, at a young age.
+- [01:15:37.900] And all they do is watch --
+- [01:15:39.170] I know many, many people that all they do
+- [01:15:41.420] is watch their weight, their this, their that,
+- [01:15:44.410] and they kicked the bucket and here we are.
+- [01:15:47.320] I feel great. Thank you, (Inaudible)
+- [01:15:49.450] Thank you very much everybody. Have a good time.

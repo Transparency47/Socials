@@ -1,0 +1,1038 @@
+<!-- source: https://www.youtube.com/watch?v=yGoDK8bVB9k -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: yGoDK8bVB9k -->
+<!-- date_published: 2025-04-08T20:56:04+00:00 -->
+<!-- date_accessed: 2026-06-02T02:52:02.836152+00:00 -->
+
+# Transcript: President Trump Participates in an Unleashing American Energy Executive Order Signing Event
+
+- [01:24.920] The President: Strong.
+- [01:26.300] They're strong and they're great.
+- [01:27.870] These are great people and thank you very much.
+- [01:30.640] This is a very important day to me
+- [01:34.030] because we're bringing back an industry
+- [01:37.860] that was abandoned despite the fact
+- [01:41.300] that it was just about the best,
+- [01:43.230] certainly the best in terms of power, real power,
+- [01:47.040] and I'm very honored to be doing this.
+- [01:51.480] The countries went to beautiful, clean coal
+- [01:55.630] and they've stayed there for many years, like China.
+- [01:58.940] China's opening two plants every week.
+- [02:02.780] Germany went green, very green.
+- [02:05.740] They went so green they almost went out of business.
+- [02:09.400] Germany was finished. They went to wind.
+- [02:12.190] The wind wasn't blowing too much.
+- [02:14.370] And they went to all sorts of other things.
+- [02:16.480] The Green New Scam hit Germany too.
+- [02:18.750] And guess what? Now they're back to coal.
+- [02:21.800] They're opening up coal plants all over Germany.
+- [02:24.620] We're the ones that aren't doing it.
+- [02:26.660] I call it beautiful, clean coal.
+- [02:28.180] I tell my people, "Never use the word coal
+- [02:30.180] unless you put beautiful, clean before it."
+- [02:33.380] Right, Doug? So we call it beautiful, clean coal.
+- [02:37.360] Beautiful, clean coal.
+- [02:42.270] Thank you.
+- [02:43.590] Today, we're taking historic action
+- [02:45.640] to help American workers, miners, families, and consumers.
+- [02:49.650] We're ending Joe Biden's war on beautiful,
+- [02:51.790] clean coal once and for all.
+- [02:53.670] And it wasn't just Biden it was Obama and there were others,
+- [02:58.800] but we're doing the exact opposite.
+- [03:02.380] And all those plants that have been closed
+- [03:05.140] are going to be opened if they're modern enough,
+- [03:08.540] or they'll be ripped down and brand new ones will be built.
+- [03:12.350] We're going to put the miners back to work.
+- [03:14.210] And I said I was going to do this
+- [03:16.600] and I've said it loud and clear
+- [03:19.490] and it's time to do it and we need it.
+- [03:22.320] And I look at these people behind me,
+- [03:25.230] I don't want to have any arm-wrestling contests
+- [03:27.140] with any of them,
+- [03:29.010] but they've had a little more practice
+- [03:30.670] with the lifting things, I will say.
+- [03:33.880] But they are great people.
+- [03:35.080] And I know them indirectly and directly for a long,
+- [03:38.540] that includes you guys, for a long time
+- [03:42.010] and they're great people and with great families
+- [03:45.060] and come from areas of the country that we love
+- [03:50.240] and we really respect.
+- [03:51.960] And I want to thank Secretary Doug Burgum
+- [03:55.120] for doing such an incredible job.
+- [03:57.420] From the day I met him
+- [03:58.660] I knew I wanted to have him in my cabinet.
+- [04:01.870] He took a shot at running and he was so good and so solid
+- [04:06.130] that he made no news and that was good.
+- [04:10.560] But I saw him and I saw his beautiful wife, Catherine,
+- [04:13.730] and I said that they're going to be a team,
+- [04:16.440] they're a great team
+- [04:17.700] and they're going to be working for this country someday.
+- [04:21.340] And one of the first people I called after I won.
+- [04:24.600] So thank you very much.
+- [04:25.910] And along with the energy secretary, Chris Wright,
+- [04:29.340] and I was going to make Doug actually the energy secretary.
+- [04:33.340] And he said, "Sir, you have one person
+- [04:35.130] who's much better than me at this.
+- [04:37.130] Chris Wright." I said, "Who the hell is Chris Wright?
+- [04:39.020] I have no idea who he is."
+- [04:40.970] And then I learned that he's the most respected person
+- [04:43.450] in the energy business by far, far and away.
+- [04:47.230] For Doug to say that, Doug's got a big ego,
+- [04:49.100] it was very tough for him to say that.
+- [04:51.210] Catherine Rose, right?
+- [04:52.530] Catherine, you said, "Wow, I've never heard that before."
+- [04:54.840] But Chris, you guys are fantastic.
+- [04:56.820] Stand up. All three of you. Please, stand up.
+- [05:11.530] That's a great team. It's no better team than that.
+- [05:14.410] And they're going to produce energy
+- [05:16.230] the likes of which nobody's seen before.
+- [05:18.220] We need to do the AI,
+- [05:21.730] all of this new technology that's coming online.
+- [05:25.560] We need more than double the energy,
+- [05:27.670] the electricity that we currently have.
+- [05:29.410] You take all of the electricity in the country right now
+- [05:32.760] for houses, for buildings, for everything.
+- [05:35.690] We need to more than double it to be number one.
+- [05:39.160] We're now way ahead of everybody at AI.
+- [05:42.530] China's in second place but way behind
+- [05:46.290] and they're going to be producing a lot of energy
+- [05:48.730] and a lot of electricity for this.
+- [05:50.590] And so are we.
+- [05:51.820] And we're going to get approvals very fast.
+- [05:54.290] And I would say the man that's almost comparable to you
+- [05:58.320] in terms of the importance to this,
+- [05:59.900] maybe he's even more comparable,
+- [06:01.680] I hate to tell you a guy named Lee Zeldin,
+- [06:04.440] who's a friend of mine for a long time.
+- [06:18.420] Lee was a great lawyer and he ran for office
+- [06:21.680] and he won immediately.
+- [06:23.230] I gave him a very important endorsement.
+- [06:25.800] He won for Congress in an area that was unwinnable.
+- [06:28.040] He couldn't have.
+- [06:29.410] They were all saying was he wasting his time?
+- [06:31.370] That's Democrat territory. And I liked Lee and New Lee,
+- [06:36.770] and he ended up winning the seat in a massive upset.
+- [06:40.770] Nobody knew what happened actually.
+- [06:42.320] And then he was there for a long time.
+- [06:45.520] How many years were you there? Eight.
+- [06:47.950] Eight years. Was very popular. And then he almost ran,
+- [06:52.590] he almost won the governorship of New York, which is very …
+- [06:55.780] Lost by a few points, which was an amazing run.
+- [06:58.900] And I said, "We've got to get you in with us in some form."
+- [07:01.970] And we did.
+- [07:03.220] And he's head of the environmental agency,
+- [07:05.920] EPA ,and doing a great job.
+- [07:08.870] And I said, "If we have a nuclear power plant, Lee,
+- [07:13.660] can you get it approved in less than a month?"
+- [07:17.810] He said, "I'll do it faster."
+- [07:19.630] And by the way, he'll do a fast job,
+- [07:21.460] but he's going to do also a great job.
+- [07:23.050] It's going to be an important job.
+- [07:24.340] We don't even smile about it.
+- [07:26.730] But I've been involved in the approval process
+- [07:29.520] for a long time having been in real estate,
+- [07:31.940] and you go years and years and years for absolutely nothing.
+- [07:36.720] And even in those days,
+- [07:38.380] I used to say this whole thing could have been approved
+- [07:40.400] in a week or two weeks or three weeks,
+- [07:42.220] and it would have been just as good.
+- [07:44.090] But they take you down on the path
+- [07:45.800] and you'd spend years waiting
+- [07:47.740] and then sometimes you get rejected.
+- [07:49.330] I wasn't rejected too much. I was the king of zoning.
+- [07:51.790] I did well but it was such nonsense.
+- [07:54.980] It was so terrible. The process was so terrible.
+- [07:58.560] But this is the big leagues now
+- [07:59.990] and he's the head person in the whole country
+- [08:02.470] and I appreciate it and appreciate you doing it.
+- [08:05.550] And already they're respecting you very greatly.
+- [08:08.670] So thank you very much, Lee. Great job.
+- [08:19.240] So we have a lot of senators and congressmen and women,
+- [08:22.270] and I'm going to just introduce the ones that I see here
+- [08:26.490] because it's always a problem when I do this.
+- [08:28.890] I leave one or two out and that's the end.
+- [08:30.570] I never get their vote again. I never get their vote.
+- [08:33.300] It takes years to recover but we'll give it a shot
+- [08:36.060] because Senator John Barrasso,
+- [08:38.350] who's my friend and a great gentleman,
+- [08:40.930] thank you very much, John, for being here.
+- [08:47.220] Thank you, John.
+- [08:48.460] Cynthia Lummis, fantastic woman who believes like I do.
+- [08:52.610] She believes like I do in these people, right?
+- [08:55.590] She believes in them maybe even more than I do.
+- [08:58.050] That's pretty good from day one.
+- [08:59.470] Thank you, Cynthia. You're doing a fantastic job.
+- [09:02.350] Kevin Kramer, my friend. Where is Kevin?
+- [09:05.540] Because Kevin, I think he was here,
+- [09:10.860] he had a problem and I just will pay my respects.
+- [09:13.780] He wanted to be here so badly but he had a difficult problem
+- [09:17.230] that he's working through. And we all love Kevin.
+- [09:20.880] John Hoeven.
+- [09:22.080] John, thank you very much. Thank you very much.
+- [09:28.730] Steve Daines. Thank you, Steve.
+- [09:33.950] Steve is a picker of great candidates.
+- [09:36.360] He picked a guy named Tim Sheehy who's here.
+- [09:38.930] Where's Tim? Where's Tim? Thank you Tim.
+- [09:42.470] And Tim Sheehy has turned out to be a wonderful senator
+- [09:46.750] and that was your pick and we went with it and you were right.
+- [09:50.540] And we have a great one in Tim.
+- [09:52.680] So thank you Tim, and thank you Steve.
+- [09:55.750] Shelly Moore Capito. Shelly, thank you very much.
+- [10:01.340] West Virginia. From West Virginia.
+- [10:03.820] She has to like, you have no choice.
+- [10:05.510] Even if you didn't like it, you have to like it all right.
+- [10:08.170] But they were doing a number on you.
+- [10:10.430] They were doing a number on you with the coal stuff.
+- [10:12.610] And you have not only coal but you have among the best coal
+- [10:17.230] anywhere in the world. So thank you very much.
+- [10:19.870] A friend of mine for a long time,
+- [10:21.270] I'm the one that got him to change his religion in a sense.
+- [10:25.150] He changed the party. He went from a Democrat.
+- [10:28.150] I said, "Jim, you're not a Democrat."
+- [10:30.690] But he changed a Republican
+- [10:32.010] and he is one of the most popular Republicans
+- [10:34.100] and one of the most popular political leaders
+- [10:36.220] in the country. Jim Justice.
+- [10:37.970] I call him Big Jim. Big Jim Justice.
+- [10:41.660] You look good, Jim. And he was in the business,
+- [10:47.260] and so am I doing the right thing?
+- [10:48.750] You would know better than anybody in this room.
+- [10:50.530] Am I doing the right thing, Jim?
+- [10:51.950] Male Speaker: You're doing the right thing.
+- [10:53.180] The President: I think so, right?
+- [10:54.430] Male Speaker: All over the place.
+- [10:55.660] The President: Thank you very much, Jim.
+- [10:57.360] Cindy Hyde-Smith, Cindy, thank you.
+- [11:00.990] Very good. Good job. People are going to be happy.
+- [11:05.320] And all friends of mine, Mike Lee.
+- [11:07.780] Mike, thank you very much.
+- [11:12.450] We have a lot of people from Congress,
+- [11:14.560] congressmen and women representatives.
+- [11:17.370] Morgan Griffith. Morgan, thank you.
+- [11:19.650] Thank you very much. Bruce Westerman.
+- [11:23.980] Bruce, thank you, Bruce. Bob Latta. Bob Latta.
+- [11:30.320] Thank you, Bob. Good job. Troy. Balderson.
+- [11:34.600] Troy, haven't seen you in a long time since that early race.
+- [11:39.230] I endorsed him before anyone knew who he was
+- [11:42.060] and he ended up winning.
+- [11:43.620] That was another surprise, right? That was a long time ago.
+- [11:48.330] Yep. You're doing a great job. Thank you very much, Troy.
+- [11:50.880] Carol Miller.
+- [11:52.130] Carol, thank you, Carol, West Virginia.
+- [11:56.650] Riley Moore. Riley. Hi, Riley. Thanks.
+- [12:02.230] Mike Bost. Mike, thank you very much.
+- [12:06.640] Troy Downing. Troy, thank you. Oh, he has something.
+- [12:11.410] What is that? Coal? Is there coal in that bag?
+- [12:14.860] Mr. Downing: Even better. It's [inaudible].
+- [12:16.310] The President: I'll take it. I like it.
+- [12:17.610] I'll take it right now. Thank you very much.
+- [12:20.360] Hal Rogers. Hal, thank you. Thank you, Hal.
+- [12:26.790] Andy Barr. Thank you, Andy.
+- [12:28.730] Good luck with everything. I hear good things.
+- [12:31.950] Troy Downing. Troy, thank you. Thank you, thank you.
+- [12:38.130] Thank you very much, Troy. Hal Rogers. Oops.
+- [12:42.160] Harriet Hageman. Harriet. Hi.
+- [12:46.680] How are you, Harriet? We just left Harriet.
+- [12:49.520] This is one of the finest attorneys you will ever see.
+- [12:52.000] I have seen her in action and she is brutal.
+- [12:55.930] I never want her against me. That I can tell you.
+- [12:59.150] Dan Muser. Dan, thank you, Dan. Thanks, Dan.
+- [13:03.860] Good job you're doing. Wesley Hunt, my friend too.
+- [13:07.720] Wesley, great. I love your commercial.
+- [13:11.240] Pete Stauber. Pete, thank you, Pete.
+- [13:16.100] Great hockey player he was, right?
+- [13:17.910] Great hockey player.
+- [13:20.070] And a great gentleman just broke the record of Wayne Gretzky.
+- [13:23.930] The great one is Wayne Gretzky,
+- [13:25.550] but we have another great one too, huh?
+- [13:27.490] Just broke the record. It was great.
+- [13:29.780] Governor Greg Gianforte. Greg. Nice to see you.
+- [13:35.680] Good, Greg. Thank you very much, Greg.
+- [13:38.040] Bill Lee. Bill, thank you very much.
+- [13:42.420] Patrick Morrissey, West Virginia just got elected.
+- [13:48.070] Mark Gordon. Mark, thank you. Thank you very much.
+- [13:54.130] And we have a lot of others
+- [13:55.630] and I'm in trouble because I can't, I don't know.
+- [13:58.960] I've got five or six others that I see quickly.
+- [14:01.100] But I'm just not going to do it.
+- [14:02.460] Don't hold it against me because we have to get back
+- [14:05.190] to the most important people in the room,
+- [14:07.070] these people, you know that, right?
+- [14:16.060] So the energy workers and the coal miners
+- [14:20.600] in the area that I'm standing on,
+- [14:23.190] and that's a lot of weight on this platform
+- [14:25.210] so I don't know what's going to happen.
+- [14:27.220] I hope it's structurally designed for you guys.
+- [14:29.370] I don't know. But we have just really well-deserving,
+- [14:34.670] great American patriots,
+- [14:36.500] and it's such an honor to be here
+- [14:39.630] and making such a big move, such a bold move in energy.
+- [14:44.250] Because for years, people would just bemoan this industry
+- [14:51.180] and decimate the industry for absolutely no reason.
+- [14:55.520] Because with modern technology
+- [14:57.560] and all of the other things that we do,
+- [15:00.210] it's one of the great, great forms of energy.
+- [15:02.700] That's why other countries, leading countries are using it.
+- [15:05.880] Some exclusively.
+- [15:07.660] For four long years, Joe Biden and Congressional Democrats
+- [15:10.970] tried to abolish the American coal industry.
+- [15:13.390] They did everything in their power
+- [15:15.440] while he was awake, which wasn't much.
+- [15:18.080] Shutting down dozens of coal plants,
+- [15:22.640] banning coal leases on federal lands,
+- [15:24.900] and putting thousands and thousands of coal miners
+- [15:28.310] out of work,
+- [15:30.340] destroying their lives, actually.
+- [15:31.890] Destroying their lives.
+- [15:33.130] I'll never forget when I went to West Virginia,
+- [15:35.940] which I won by 48 points I think, right?
+- [15:38.600] Big Jim, I won by 48 points? But in the first campaign,
+- [15:45.900] where Hillary Clinton was about four states too early
+- [15:49.650] and she was talking about how bad coal was
+- [15:52.670] and how they were going to teach coal miners
+- [15:54.930] how to make widgets and gadgets and technology,
+- [15:58.370] which they didn't want to do, they want to mine.
+- [16:00.160] One thing I learned about the coal miners,
+- [16:01.710] that's what they want to do.
+- [16:02.990] You could give them a penthouse on Fifth Avenue
+- [16:05.860] and a different kind of a job and they'd be unhappy.
+- [16:07.910] They want a mine coal, that's what they love to do.
+- [16:10.070] And she was going to put them in a high-tech industry,
+- [16:13.620] where you make little cell phones and things.
+- [16:17.080] I don't know. Do you think you'd be good at that?
+- [16:18.680] I don't know. You don't want to be.
+- [16:24.010] And she was brutal about three weeks before,
+- [16:27.060] but then she had a problem.
+- [16:28.360] She went to West Virginia looking for votes,
+- [16:30.340] and that was a bad situation. You remember that?
+- [16:35.190] And there was a coal miner around the table
+- [16:37.870] with his family, and he was in tears
+- [16:40.530] because of what they had done to him and his family,
+- [16:43.910] and I hope he's still around.
+- [16:45.360] But that man made quite an impression on the world
+- [16:47.640] and the public,
+- [16:49.030] and we ended up winning, in a great election,
+- [16:52.350] but we ended up winning by a lot.
+- [16:54.600] The Democrat's Green New Scam killed jobs
+- [16:57.080] and sent prices soaring here in America.
+- [16:59.800] But meanwhile, China opened two coal plants every single week,
+- [17:04.850] and other countries likewise,
+- [17:06.860] went very strongly back into coal
+- [17:09.150] and some of them never got off.
+- [17:11.270] Those are the ones that didn't have the problems.
+- [17:13.660] The Biden energy policy was to put America last.
+- [17:16.550] We want to be last. We got to be last.
+- [17:18.780] Not a good policy.
+- [17:20.050] Under my administration, we're putting America first.
+- [17:22.730] It's very simple.
+- [17:24.030] America's always going to be first.
+- [17:26.290] On my first day in office, I terminated the Green New Scam.
+- [17:29.920] I declared the National Energy Emergency
+- [17:32.730] and withdrew from the unfair one-sided, an extremely costly
+- [17:36.170] to the United States-only Paris Climate Accord.
+- [17:47.440] Under the Paris Climate Accord, we had a terrible situation.
+- [17:52.300] We would've paid over a trillion dollars.
+- [17:55.560] Think of it, over a trillion dollars,
+- [17:57.320] and Russia was paying almost nothing.
+- [17:59.530] Russia had a 1992 standard. China was paying nothing.
+- [18:04.870] China didn't kick in until 2035.
+- [18:08.310] This was five years ago, so they didn't kick in for many years.
+- [18:12.750] India had no standard whatsoever,
+- [18:15.480] but we had the highest standard you could imagine.
+- [18:17.730] We had to start paying from day one
+- [18:19.900] and we had to pay lots of money. We paid for everything.
+- [18:23.700] So, I was not a big fan of the Paris Accord,
+- [18:27.890] and I let it be known and I got out of it early.
+- [18:30.340] Then, they went back into it, and now we get back out of it.
+- [18:34.110] And hopefully, we can be there for a long time,
+- [18:37.170] a long time because it was a scam
+- [18:39.120] to take money away from the United States
+- [18:42.340] and actually hurt us very badly with coal and with other things.
+- [18:46.010] Now, under the executive order
+- [18:48.000] that I will sign in a few moments
+- [18:50.480] we're slashing unnecessary regulations
+- [18:52.740] that targeted the beautiful clean coal.
+- [18:56.320] We will rapidly expedite leases for coal
+- [18:59.040] mining on federal lands,
+- [19:00.490] and these two gentlemen are going to do a real job of it.
+- [19:03.200] You've already started. And we'll streamline permitting.
+- [19:06.350] We will end the government bias against coal
+- [19:08.860] and we're going to unlock the sweeping authorities
+- [19:12.130] of the Defense Production Act
+- [19:17.040] to turbocharge coal mining in America.
+- [19:19.310] They made it impossible to…
+- [19:21.160] Impossible. A friend of mine has a plant.
+- [19:25.600] He said, "It's a shame. I'm ripping it down
+- [19:27.770] and I'm replacing it with another form of energy."
+- [19:31.090] I won't tell you because it's also very good,
+- [19:32.730] but it's not as powerful as this.
+- [19:35.190] He said, "The plant I'm building,
+- [19:37.300] the new plant is literally half as good."
+- [19:42.690] It's not probably even as good environmentally, but he said,
+- [19:46.440] "It produce half the power for more money, much more money.
+- [19:49.930] It'll never compete with that beautiful plant
+- [19:51.620] I have down the road,"
+- [19:52.830] which was really a modernized coal plant.
+- [19:54.740] Well, he'll be happy to know that he can open
+- [19:56.410] that plant up very quickly and it's going to produce a lot.
+- [19:59.480] But he was complaining.
+- [20:00.730] He said, "This is so much better."
+- [20:02.080] He wasn't doing that as politicing me,
+- [20:04.690] he was doing that because that's what he felt.
+- [20:06.880] And he knew every form of energy we talked about
+- [20:09.450] that he knew every form of energy.
+- [20:12.130] But our government is going to do something
+- [20:15.180] that's very different,
+- [20:18.000] and I don't think even you two know about this.
+- [20:20.650] This was my idea from about 15 minutes before I got up here.
+- [20:28.010] We're going to guarantee that we have a strong business
+- [20:33.030] for many years to come,
+- [20:35.480] that your coal companies and your miners
+- [20:38.380] don't get all excited about their jobs.
+- [20:40.350] And then, should a radical left liberal become president,
+- [20:46.410] they end the business right away and somebody's built a plant
+- [20:49.240] and spent hundreds of millions of dollars in building a plant
+- [20:52.650] and the plant is going to be closed
+- [20:55.540] because a Democrat got in or a liberal got in.
+- [20:58.190] They're opposed to coal and Republicans
+- [21:00.860] are very much for it, clean coal.
+- [21:03.390] And we're going to give a guarantee
+- [21:07.060] that the business will not be terminated
+- [21:09.630] by the ups and downs of the world of politics.
+- [21:13.390] So, should somebody come in to this very important office
+- [21:16.770] and say,
+- [21:18.010] "Oh, well, you spent hundreds of millions of dollars
+- [21:20.770] and you guys have given up your life
+- [21:23.190] because you want to be in coal,
+- [21:25.370] and then all of a sudden you don't have a life anymore
+- [21:27.250] because it's what you know the best,"
+- [21:29.040] that's not going to happen.
+- [21:30.320] We're going to give a guarantee that it's not going to happen.
+- [21:32.470] So, that if somebody comes in, they cannot change it at a whim.
+- [21:35.850] They're going to have to go through hell
+- [21:38.080] to close you up, all right? So, that's pretty good.
+- [21:40.490] We're going to give that in the form of a guarantee
+- [21:42.440] that we're writing on right now structurally
+- [21:44.510] and from a legal standpoint.
+- [21:46.970] So, your investments are going to also be protected
+- [21:57.340] and you're going to have no reason
+- [21:59.250] to be concerned about your future,
+- [22:00.950] your life, or your investment if you're a miner,
+- [22:04.890] as this great governor was a miner, actually.
+- [22:07.180] He was one of the larger coal miners.
+- [22:09.880] He could fit up here very easily, Big Jim.
+- [22:12.940] But he was a great success,
+- [22:15.170] but they were very, very tough on him,
+- [22:18.500] and he did a beautiful job with a beautiful product.
+- [22:22.310] Already under our leadership, the Department of Interior
+- [22:25.350] has approved the expansion of the Spring Creek
+- [22:27.950] Mine in Montana, supporting 280 coal-mining jobs
+- [22:32.200] and unlocking over 40 million tons of coal.
+- [22:35.200] And there's more to come, Spring Creek, it's a big one.
+- [22:41.710] And there's more to come in the states of
+- [22:43.620] Wyoming, Alabama, Utah, North Dakota and many others.
+- [22:46.850] West Virginia,
+- [22:48.190] I can't believe they didn't put West Virginia down.
+- [22:50.210] It's lucky I mentioned that, right?
+- [22:52.830] Can you imagine if I didn't mention West Virginia?
+- [22:55.170] I would've been in big trouble. They didn't mark it down here.
+- [22:58.470] It's good to have a president like that
+- [23:00.490] that can pick that up, right?
+- [23:02.040] Do you think Joe Biden would've picked that up?
+- [23:03.810] I don't think so.
+- [23:05.040] "Gee, they didn't mention West Virginia."
+- [23:07.190] I don't think so. I don't think he'd be standing up here either.
+- [23:10.660] The value of untapped coal in our country
+- [23:13.000] is 100 times greater
+- [23:14.460] than the value of all the gold at Fort Knox,
+- [23:17.730] and we're going to unleash it
+- [23:19.070] and make America rich and powerful again.
+- [23:21.910] Under this order, I'm also directing Secretary Wright
+- [23:24.650] to use billions of dollars in federal funding
+- [23:26.980] to invest in the next generation of coal technology,
+- [23:30.280] which is an amazing technology
+- [23:32.130] in terms of getting the full potential of coal
+- [23:35.130] and also doing it in a very clean environmental way.
+- [23:39.190] Pound-for-pound coal is the single most reliable,
+- [23:42.000] durable, secure,
+- [23:43.330] and powerful form of energy there is on Earth today.
+- [23:46.590] It's a big statement. You never hear those statements.
+- [23:49.910] You've never heard that before from a politician, have you?
+- [23:52.520] Well, maybe from that politician,
+- [23:54.030] but from not too many. But that's the way it is.
+- [23:57.160] I say it again, pound-for-pound coal
+- [24:00.090] is the single most reliable, durable, secure,
+- [24:03.570] and powerful form of energy.
+- [24:05.860] It's cheap, incredibly efficient, high density,
+- [24:08.610] and it's almost indestructible. You could drop a bomb on it
+- [24:12.700] and it's going to be there for you to use the next day,
+- [24:15.700] which you can't say with any other form of energy,
+- [24:20.170] virtually indestructible.
+- [24:22.010] Most importantly, we have more of it here in America
+- [24:24.560] than anywhere else on Earth.
+- [24:26.510] We have more coal than any other country.
+- [24:29.150] You go to Australia, they have fantastic amounts of coal.
+- [24:32.230] You know who they sell it to? China. They sell it to China.
+- [24:35.710] They're nearby, they sell a lot of it to China.
+- [24:38.730] But we have more than anywhere else on Earth.
+- [24:40.720] We also have more liquid gold than anywhere on Earth.
+- [24:44.270] So, we're really an energy behemoth,
+- [24:46.820] but we're unleashing that also. That's going to be another part,
+- [24:50.280] but I didn't even want to mention that.
+- [24:52.210] It's not down here because I didn't want to mention…
+- [24:54.290] Today's about clean, beautiful coal.
+- [24:57.920] So, I'm going to give this to you, this big guy.
+- [24:59.830] Should I give it to him?
+- [25:01.110] Male Speaker: Yeah. The President: You take that.
+- [25:02.900] Male Speaker: Thank you, Mr. President.
+- [25:14.080] The President: For example,
+- [25:15.380] we believe possible to extract enormous amounts
+- [25:18.480] of critical minerals and rare earths,
+- [25:20.530] which we need for technology and high technology
+- [25:24.010] in the process of coal mining,
+- [25:26.040] making America the mineral superpower
+- [25:30.210] of the world, actually.
+- [25:31.890] In addition, I'm instructing the Department of Justice
+- [25:34.450] to identify and fight every single unconstitutional state
+- [25:38.530] or local regulation
+- [25:39.830] that's putting our coal miners out of business.
+- [25:42.510] And we are withdrawing all of those objections
+- [25:46.540] from our government today. It's all being withdrawn.
+- [25:49.500] So, all of you people that have been fighting for your lives,
+- [25:53.240] we are withdrawing all of that today.
+- [25:55.910] We have excellent lawyers, excellent.
+- [25:58.130] Have you noticed that lots of law firms
+- [25:59.980] have been signing up with Trump, $100 million,
+- [26:05.510] another $100 million for damages that they've done.
+- [26:12.770] But they give you $100 million and then they announced that,
+- [26:15.760] "But we have done nothing wrong."
+- [26:17.000] And I agree they've done nothing wrong, but what the hell?
+- [26:19.220] They give me a lot of money
+- [26:20.420] considering they've done nothing wrong.
+- [26:22.940] And we'll use some of those people,
+- [26:24.970] some of those great firms.
+- [26:26.420] They are great firms too. They just had a bad moment,
+- [26:30.000] but we're going to use some of those firms
+- [26:32.520] to work with you on your leasing and your other things,
+- [26:35.860] and they'll do a great job.
+- [26:37.860] I think they're going to do a fantastic job.
+- [26:40.880] And for those of you that want to know,
+- [26:43.180] the tariffs, you've been hearing about tariffs.
+- [26:45.160] We're taking in almost $2 billion a day in tariffs,
+- [26:49.420] $2 billion a day.
+- [26:51.250] And we're doing very well in making,
+- [27:00.570] I call them tailored deals, not off the rack.
+- [27:02.830] These are highly-tailored deals.
+- [27:05.760] Right now, Japan is flying here to make a deal.
+- [27:09.430] South Korea is flying here to make a deal
+- [27:12.040] and others are flying here.
+- [27:13.750] I mean, my only problem is I'm not sure I have enough…
+- [27:15.890] We're going to have to use those great law firms,
+- [27:18.470] I think, to help us with that.
+- [27:20.820] But we're going to probably do that, actually.
+- [27:24.040] We're going to use them and we're getting them
+- [27:25.730] for the right price because we need a lot of talent.
+- [27:30.300] We have a lot of countries
+- [27:32.010] coming in that want to make deals.
+- [27:34.180] If I told them about making those deals two years ago
+- [27:37.070] or three years ago or five years ago,
+- [27:39.380] they'd be laughing at us. Now, they're all signing up.
+- [27:42.710] Mike, you know that.
+- [27:44.190] So, it's going to be a great thing.
+- [27:45.840] But we're taking, think of that, $2 billion a day.
+- [27:49.210] That's a lot of money.
+- [27:50.410] That's a lot of money even in the coal businesses, isn't it?
+- [27:53.190] It's lot of money.
+- [27:55.010] And America's going to be very rich again very soon.
+- [27:57.340] You're going to see that happening.
+- [27:58.720] You see it all along.
+- [28:00.970] And so, that whole situation that it was somewhat explosive,
+- [28:06.940] but if we didn't do that,
+- [28:09.320] we wouldn't be talking the way we're talking right now.
+- [28:11.490] It's been amazing what's happened.
+- [28:13.360] Sometimes you have to mix it up a little bit,
+- [28:15.150] but we've had great consideration.
+- [28:19.300] We've had talks with many, many countries, over 70,
+- [28:24.250] they all want to come in.
+- [28:25.570] Our problem is can't see that many that fast,
+- [28:29.570] but we don't have to because as you know,
+- [28:31.080] the tariffs are on and the money is pouring in
+- [28:35.010] at a level that we've never seen before
+- [28:37.610] and it's going to be great for us.
+- [28:39.890] It's going to be great for other countries.
+- [28:41.430] We've been ripped off and abused by countries
+- [28:44.560] for many years with the tariff situation.
+- [28:47.240] They've used tariffs against us.
+- [28:50.110] We didn't use tariffs against them in any way.
+- [28:53.150] I mean, we just didn't use them of any monumental proportion.
+- [28:57.170] And so, we are doing it now.
+- [28:59.610] We have tariffs on cars, we have tariffs on lumber,
+- [29:04.490] tariffs on steel and aluminum. Steel plants are going up
+- [29:09.240] because of it all over the country.
+- [29:11.580] We have 25% tariffs on steel and aluminum.
+- [29:14.740] And I think the steel workers like me
+- [29:17.920] even more than the coal miners like me,
+- [29:19.810] I'm pretty sure that that's true.
+- [29:22.480] Instead of having no steel business, I put them on…
+- [29:25.610] Originally, in my first term, we wouldn't have had
+- [29:28.120] one steel mill in the United States
+- [29:29.950] if I didn't do that, and now we upped it.
+- [29:32.550] And not only are we taking it a lot of money,
+- [29:37.870] but we're protecting our workers, our steel workers.
+- [29:40.110] We're protecting our steel industry.
+- [29:42.410] And one thing you know,
+- [29:43.650] that steel and things like steel, you need
+- [29:46.370] because you need it from a defense standpoint,
+- [29:49.590] you need steel for your tanks
+- [29:51.660] and your planes and your everything.
+- [29:53.180] And certain industries you can get away with not having,
+- [29:56.110] but others you need and steel is one you need.
+- [29:58.240] So, I want to let you know that's in full force and effect.
+- [30:01.930] And literally, as we speak…
+- [30:04.130] I spoke to executives in the steel industry
+- [30:07.670] over the last few days, and they're all coming in
+- [30:10.460] to build plants in the United States of America
+- [30:12.900] because if you build them in the United States,
+- [30:15.710] you have no tariffs to pay.
+- [30:16.990] There are no tariffs to pay, zero.
+- [30:19.600] If you build them outside using outside labor
+- [30:22.100] and hurting our businesses, and you send your product in,
+- [30:25.590] And you have to pay a price for that
+- [30:28.720] and they will be having tariffs, as you know.
+- [30:33.530] It's an amazing thing.
+- [30:35.350] This has been something used against us for many years
+- [30:39.720] by other countries, China in particular, but others.
+- [30:43.290] Not just China, others, and taken advantage of us,
+- [30:46.730] ripped us off and left us for dead frankly,
+- [30:50.600] and I believe if I didn't become your president,
+- [30:53.810] I believe that this country would've had problems
+- [30:56.490] like they've never had before
+- [30:57.910] because it was serious damage in so many other ways.
+- [31:01.380] Not only the border where people came rushing into our country
+- [31:04.660] from prisons and jails and mental institutions,
+- [31:07.630] murderers, drug dealers,
+- [31:10.770] and some vicious, vicious criminals.
+- [31:14.150] 11,088 murderers came into our country.
+- [31:18.040] We have to get them out. We're getting them out. 11,088.
+- [31:21.210] Of that number, half committed murder on more than two people,
+- [31:25.470] more than two people,
+- [31:27.660] and this is what they allowed into our country
+- [31:29.480] with their open border policy of lunacy
+- [31:32.620] and we're taking care of that just like
+- [31:34.480] we're taking care of you today. We're taking care of that.
+- [31:38.080] I want to thank Kristi Noem and Tom Homan
+- [31:41.510] for doing an unbelievable job.
+- [31:43.760] The whole thing is, the job they're doing is incredible.
+- [31:46.960] It's really an unforced error, should have never happened
+- [31:50.750] that we have to be spending such time and resources, Mr. Senator,
+- [31:55.720] on getting people out of our country that shouldn't be here.
+- [31:59.490] I mean literally from mental institutions
+- [32:01.640] and insane asylums were opened up and emptied into our country.
+- [32:05.870] Prisons from all over the world. Not just South America.
+- [32:09.080] Prisons from, think of this, from Africa, the Congo,
+- [32:12.920] A lot of people from the Congo.
+- [32:14.480] Prisons in the Congo, prisons from Asia,
+- [32:17.900] from all over were opened up
+- [32:21.250] and I knew that when I heard it was an open border policy.
+- [32:23.590] I said, "If you do that, every country
+- [32:25.560] is going to be dumping people
+- [32:27.610] that they don't want into our country,"
+- [32:29.530] and that's what's happened, but we're cleaning it out.
+- [32:32.390] And the courts, we had a good decision,
+- [32:35.970] as you know from the Supreme Court allowing us to do that.
+- [32:38.860] We have judges that didn't want us to do it.
+- [32:40.640] We have judges that wanted the very evil gang members
+- [32:44.750] from Tren de Aragua and MS-13,
+- [32:47.930] they didn't want them taken out of the country
+- [32:50.760] and put in very powerful prisons.
+- [32:53.720] When you look, you've all seen those clips.
+- [32:56.070] Pretty amazing clips, but I want to thank El Salvador.
+- [32:59.990] They've done an incredible job,
+- [33:01.920] but we've been fortunately winning those cases.
+- [33:04.100] But we have judges that are out of control that say,
+- [33:07.740] "Oh, bring them back, bring them back."
+- [33:09.130] We don't want them back. We don't want them back.
+- [33:11.530] Can you imagine? You spend all of that time, energy,
+- [33:13.890] and money on getting them out
+- [33:16.000] and then you have a judge that sits there,
+- [33:17.490] a local judge who sits there, federal judges sits there
+- [33:21.240] and says, "No, no, bring them back."
+- [33:23.750] One was brought back or they want to bring him back
+- [33:28.510] because he wasn't a member of Tren de Aragua,
+- [33:33.040] he was a member of MS-13,
+- [33:34.930] which is just as bad, so they misidentified him,
+- [33:38.070] but it sounds to me like he was a member of MS-13
+- [33:41.140] so they want him brought back
+- [33:42.880] because he wasn't treated properly.
+- [33:46.660] We got to be smart.
+- [33:47.930] Our country's got to get a lot smarter than it is,
+- [33:50.010] but we have to give the people that are to do this kind of work
+- [33:54.630] and it's not pleasant work. We have to give them the option
+- [33:59.570] of making our country great again
+- [34:00.840] and that's what they're doing
+- [34:02.130] and I have great respect for those people
+- [34:04.150] and they're doing it out of love.
+- [34:05.790] They could get a much easier job.
+- [34:07.570] They're doing it out of love for our country.
+- [34:09.350] It's so important.
+- [34:10.590] Just like I'm doing this with coal today
+- [34:12.610] for love for our country.
+- [34:14.920] Earlier this afternoon I signed another executive
+- [34:18.330] order to strengthen our electric grid
+- [34:20.500] by ensuring that coal-fired power plants
+- [34:23.640] are always available to meet surging demand for electricity.
+- [34:28.100] Unlike wind and solar,
+- [34:29.430] coal plants can run 24 hours a day in rain, sleet or snow,
+- [34:34.180] and you will not be subject
+- [34:36.370] to the incredible blackout situation
+- [34:39.420] that's taking place in California
+- [34:41.200] where they have blackouts all the time.
+- [34:44.120] It's an amazing thing with California.
+- [34:46.140] They have blackouts and brownouts at levels
+- [34:49.310] that nobody's ever seen before and all they want to do
+- [34:52.620] is keep going the way they're going
+- [34:54.630] and they're doing a very poor job.
+- [34:57.830] As you probably heard,
+- [34:59.060] I released billions of gallons of water
+- [35:02.300] going in from upstate California,
+- [35:05.260] from the most northern parts of California.
+- [35:10.620] Probably comes in from Canada to a certain extent.
+- [35:14.130] Thank you very much, Canada. We appreciate it.
+- [35:16.800] And I released it.
+- [35:19.250] It was being sent out to the Pacific Ocean.
+- [35:21.410] I've been working on Gavin
+- [35:23.610] and some of the politicians for years
+- [35:25.580] and they didn't want to do that
+- [35:27.610] because they were protecting a smelt,
+- [35:29.450] a fish that was perhaps in trouble,
+- [35:33.340] but it's not unique to that area,
+- [35:35.960] and because of that, you had fires.
+- [35:40.900] Nobody's ever seen anything like what happened.
+- [35:43.330] Think of what it would've been like
+- [35:44.810] if you had fire hydrants that had water in them.
+- [35:48.080] If you had sprinkler systems in houses.
+- [35:50.490] A lot of these luxury houses
+- [35:51.810] where they had beautiful sprinkler systems,
+- [35:53.600] there was no water.
+- [35:55.540] They had no water to put out the fires.
+- [35:57.220] Water is very good for putting out fires.
+- [35:59.470] They just didn't learn it.
+- [36:01.470] But we now have millions of gallons,
+- [36:04.120] billions, actually they say, of gallons of water
+- [36:06.460] pouring into California from the Pacific Northwest.
+- [36:13.550] I guess they would say mostly Pacific Northwest,
+- [36:15.870] but other parts of the northern sections of California
+- [36:19.330] and beyond, and it's a beautiful thing to see.
+- [36:22.160] I saw picture of it this morning.
+- [36:23.580] The water's just flowing down there.
+- [36:25.290] I said, " Why didn't they do this?
+- [36:27.150] I told them to do it my first term.
+- [36:28.930] I said, 'Do it,'" and I don't know.
+- [36:32.510] I think the second term is just more powerful.
+- [36:34.960] They do it.
+- [36:36.240] When I say do it, they do it, right?
+- [36:38.660] And we actually had to do some pretty strong things
+- [36:43.620] to get them to open it up.
+- [36:45.750] Think of this, they had all that water pouring out
+- [36:47.720] right into the Pacific. They had a big valve,
+- [36:49.620] like a giant valve as big as this room,
+- [36:52.340] and they turned the valve, takes one day to turn it
+- [36:55.570] and they face it toward the Pacific Ocean and the water,
+- [36:58.090] all that was coming down,
+- [36:59.440] all millions and millions of gallons coming down.
+- [37:02.060] They put it into the Pacific Ocean,
+- [37:04.470] which for the Pacific Ocean is like a drop of water,
+- [37:07.680] but for California it would've been unbelievable.
+- [37:10.540] So we did it. I'm very proud of the fact that we did it.
+- [37:13.270] We did that against a lot of heat
+- [37:15.860] and a lot of environmental nonsense.
+- [37:18.520] From now on, we'll ensure that our nation's
+- [37:21.080] critically needed coal plants,
+- [37:22.680] as an example, remain online and fully operational.
+- [37:26.240] They're always going to be operational and again,
+- [37:28.920] we're going to have guarantees that government
+- [37:31.540] cannot close them down,
+- [37:33.490] close you down and destroy your lives.
+- [37:36.170] To that end, I'm also instructing Secretary Wright
+- [37:38.980] to save the Cholla coal plant in Arizona,
+- [37:44.160] big plant, which has been slated for destruction.
+- [37:47.670] We're going to keep those coal miners on the job,
+- [37:50.460] going to tell them to just remain calm
+- [37:53.440] because we're going to have that plant opening
+- [37:56.500] and burning the clean coal, beautiful clean coal
+- [38:00.830] in a very short period of time. You know all about that, right?
+- [38:11.410] That's a big one.
+- [38:12.670] As part of our historic deregulatory efforts
+- [38:15.750] this afternoon,
+- [38:17.080] I'm also granting immediate relief to 47 companies operating
+- [38:20.930] 66 coal plants, very big ones all over the country,
+- [38:25.720] recusing and making them available for coal production
+- [38:31.750] almost in the immediate future, but we're going to be crushing
+- [38:34.760] Biden-era environmental restrictions.
+- [38:38.420] These are restrictions that made it impossible,
+- [38:41.220] impossible to do anything having to do frankly with energy
+- [38:45.410] even beyond coal. It's really beyond even coal.
+- [38:49.420] We have clean air, we have clean water,
+- [38:52.100] and now we have clean coal
+- [38:53.950] and at the same time we're going to do other things
+- [38:57.130] and with other forms of technology
+- [38:59.610] and also energy like our country has never really seen before
+- [39:04.960] and never been known to do before
+- [39:06.670] because of all sorts of restrictions
+- [39:08.670] having to do with the Green New Scam,
+- [39:11.480] which by the way was devised
+- [39:12.790] by somebody that never even studied.
+- [39:14.880] You know that? They never even studied anything to do
+- [39:17.440] with the environment. It was a young congresswoman.
+- [39:20.910] She came up with the idea and based on that,
+- [39:23.810] I guess we only have…
+- [39:25.600] Well, actually we should have all been gone
+- [39:27.320] because they gave us only a few years left on Earth,
+- [39:30.490] right, Greg? We were going to be gone.
+- [39:33.340] We're all going to be gone. The environment.
+- [39:35.650] Now, what they have to worry about
+- [39:36.970] is the nuclear nuclear heat.
+- [39:39.920] They don't have to worry about environmental heat.
+- [39:42.150] They have to worry about nuclear heat
+- [39:44.410] and if we're smart, we're working on that right now
+- [39:46.800] with others having to do with Iran and some other countries,
+- [39:52.470] but that's the heat you're going to have to worry about.
+- [39:55.810] You don't have to worry about, the air is getting warmer.
+- [39:59.770] The ocean will rise one-quarter of an inch
+- [40:02.150] within the next 500 to 600 years
+- [40:05.570] giving you a little bit more waterfront property.
+- [40:09.540] These guys can handle that.
+- [40:10.810] The nuclear we have a bigger problem with, right?
+- [40:13.490] So we're going to make sure that that's safe.
+- [40:15.580] We're going to make sure that that's safe.
+- [40:17.810] With us today are some of the amazing workers
+- [40:20.120] who will benefit from these policies,
+- [40:21.880] the policies that we're doing and so proud of doing,
+- [40:25.860] including Jeff Crowe, a miner from West Virginia.
+- [40:28.990] Jeff, will you come up and say a few words?
+- [40:31.510] Jeff, come on up.
+- [40:36.500] Mr. Crowe: Thank you.
+- [40:43.340] Good afternoon, Mr. President. I want to first thank you
+- [40:47.640] for having me and my fellow miners here.
+- [40:50.480] It is an honor and a privilege to be a part of today's events.
+- [40:54.070] I believe this past November that America clearly spoke
+- [40:57.720] about what we wanted for our country.
+- [41:00.150] It is reassuring for Americans to have a president in office
+- [41:04.090] who will truly put the United States of America
+- [41:06.370] above all else. Thank you.
+- [41:16.920] With putting America first,
+- [41:18.890] you have spoken numerous times about energy independence.
+- [41:22.260] I believe most don't understand the importance of that.
+- [41:25.340] Coal is one of the major factors in energy independence
+- [41:28.540] and accounts for a large portion of America's energy.
+- [41:31.760] Coal is one of the most reliable
+- [41:33.530] and cheapest forms of electricity.
+- [41:36.090] For too long, coal has been a dirty word
+- [41:39.070] that most were afraid to speak about.
+- [41:41.310] Most of those that would speak negatively about coal
+- [41:44.160] do so from an uneducated standpoint,
+- [41:46.980] many are unaware of the engineering and technology
+- [41:49.560] that are used in today's mining to create
+- [41:52.040] a clean, energy-efficient product.
+- [41:54.860] All of this is done while using the safest practices
+- [41:57.300] in the industry. Speaking for West Virginia,
+- [42:00.780] coal provides approximately 50,000 jobs
+- [42:03.760] for those that work in the mines
+- [42:05.220] and the businesses that support them.
+- [42:07.370] It also accounts for over 50% of West Virginia's export product.
+- [42:12.190] To name a few, we employ engineers,
+- [42:15.380] teachers, physical therapists, accountants, truck drivers,
+- [42:19.970] high school and college graduates.
+- [42:22.090] All of these occupations and graduates
+- [42:24.150] have turned to the coal industry
+- [42:25.540] to provide a better way of life for them and their families.
+- [42:28.830] Everyone in our industry works long hours and days
+- [42:31.550] to provide a reliable energy product
+- [42:33.750] and too many times it goes unnoticed.
+- [42:36.400] I've personally worked in the industry for 23 years.
+- [42:39.680] I choose to do this daily to provide my wife and children
+- [42:42.430] with a life that they deserve.
+- [42:44.750] Prior administrations have done all they could
+- [42:46.820] to eliminate the coal industry.
+- [42:50.340] Sorry, one second. I'm getting there.
+- [42:52.740] In my opinion, they have done so
+- [42:54.600] with an unethical and uneducated approach,
+- [42:57.590] but we are still strong.
+- [42:59.120] We are still here and we are still needed
+- [43:01.340] in order to make America great again.
+- [43:14.820] Having a president and an administration
+- [43:17.150] that understands the need and importance of coal
+- [43:19.680] is more than appreciated.
+- [43:21.440] It gives the industry a form of reassurance
+- [43:24.100] to know that we have a president in place that supports us.
+- [43:27.340] For my family, to the over 3000 employees of AC&R,
+- [43:31.310] and for the coal companies, miners and businesses
+- [43:34.300] throughout our great country that rely on the coal industry,
+- [43:37.040] we say thank you for your continued support.
+- [43:48.550] I personally thank you for what you do for our country
+- [43:51.100] and for our industry.
+- [43:52.360] It has been my pleasure to be here today
+- [43:54.970] to help you usher in the golden age of America.
+- [43:56.890] The President: That's great.
+- [43:58.090] Mr. Crowe: Thank you.
+- [43:59.360] The President: You did a good job.
+- [44:10.330] Mr. Crowe: Thank you.
+- [44:21.970] The President: You did a good job.
+- [44:24.390] Let me have that speech. I want to have that.
+- [44:26.310] Mr. Crowe: Yes, sir.
+- [44:27.660] The President: You had a couple of good lines in there.
+- [44:29.030] I want to keep them. No. Actually, what I want to do,
+- [44:31.520] I'm going to sign it for you because I think he worked hard.
+- [44:35.350] Look at it and look how good his eyes must be to read that.
+- [44:40.920] Mr. Crowe: I lost it once.
+- [44:45.670] The President: And hopefully you can sell it tonight
+- [44:47.240] for a lot of money.
+- [44:50.070] Mr. Crowe: No, sir. I'll keep that one.
+- [45:00.390] The President: That's great. Thank you very much.
+- [45:16.060] Thank you very much, Jeff, and also with us
+- [45:18.480] is Tony Campbell of the East Kentucky Power Cooperative
+- [45:22.270] and Tony's quite a gentleman
+- [45:25.420] and very respected in the industry.
+- [45:27.150] Come on up, Tony. Thank you.
+- [45:37.940] Mr. Campbell: Mr. President,
+- [45:39.140] on behalf of East Kentucky Power Cooperative,
+- [45:41.350] the National Rural Electric Cooperative Association
+- [45:44.720] and Electric Cooperatives across this America,
+- [45:47.520] thank you for your leadership
+- [45:48.910] to restore American energy dominance.
+- [45:51.700] Electric co-ops keep the lights on
+- [45:53.700] for 42 million Americans across 56% of the land mass.
+- [45:59.190] We are owned by the communities and businesses.
+- [46:01.420] We serve and provide electricity to growing communities,
+- [46:05.260] new data centers and manufacturing plants.
+- [46:08.310] Mr. President, electric co-ops are powering America
+- [46:12.000] and we are proud to partner with you
+- [46:14.200] and your administration to power America into the future.
+- [46:27.950] Our electric cooperatives in Kentucky understands
+- [46:30.830] the importance of reliable, affordable,
+- [46:33.280] and American-made energy, especially coal and natural gas.
+- [46:37.820] Coal fuels most of the electricity
+- [46:40.700] generated by our cooperative.
+- [46:43.030] America must keep coal plants open and running
+- [46:45.460] to ensure reliable electricity when we need it most.
+- [46:49.530] To meet growing demand over the next decade
+- [46:51.800] and ensure fuel security,
+- [46:54.670] America will need more always available
+- [46:57.850] electric generation power, such as coal,
+- [47:01.650] and we want to recognize the hard-working American men,
+- [47:05.960] women that support our mission.
+- [47:08.340] To all America's line workers, our coal miners,
+- [47:12.200] thank you for your dedicated service to our country.
+- [47:26.340] Affordable and reliable electricity
+- [47:28.390] is a cornerstone of our economy,
+- [47:30.850] especially American manufacturing.
+- [47:33.530] However, too many government leaders have pushed policies
+- [47:37.130] that have made our electric grid significantly less reliable
+- [47:41.520] and our energy too expensive. That begins to change now.
+- [47:52.980] Your actions today will prevent the premature
+- [47:56.220] closing of essential power plants
+- [47:59.190] and help us meet tomorrow's energy needs,
+- [48:02.110] and they will help us continue to deliver reliable,
+- [48:05.090] safe, and affordable electricity.
+- [48:08.000] Mr. President, thank you in particular
+- [48:10.000] for providing immediate, much-needed relief
+- [48:12.670] from the Biden EPA regulations
+- [48:15.350] that would force the shutdown of critical coal units.
+- [48:26.280] Finally, I want to say congratulations
+- [48:28.480] on the all-star energy team you've assembled.
+- [48:31.270] Electric co-ops have already been working
+- [48:33.500] with Secretaries Bergram,
+- [48:35.240] Wright and Rawlins and Administrator Zeldin,
+- [48:38.670] and we are excited for all we can accomplish together.
+- [48:42.070] Mr. President, thank you again for your actions today
+- [48:45.280] and for your support for the electric cooperatives
+- [48:47.450] as we worked to keep the lights on in America.
+- [49:08.710] Thank you.
+- [49:11.340] The President: Thank you, Tony. Thank you very much, Tony.
+- [49:14.520] Appreciate it. Every day under the Trump administration,
+- [49:18.350] we will continue to lower costs for American families,
+- [49:21.420] create jobs for American workers,
+- [49:24.120] and very importantly, unlock unlimited amounts
+- [49:26.880] of affordable American energy, including, as I said,
+- [49:30.500] and I'll say for the last time, beautiful, clean coal.
+- [49:35.670] Our country is blessed.
+- [49:43.000] Our country is blessed
+- [49:44.330] with the most abundant natural resources on earth
+- [49:47.260] as nobody has what we have and we're going to use it.
+- [49:51.270] We're going to use it in a very responsible way.
+- [49:54.330] Together we're going to tap that magnificent potential
+- [49:57.250] to give our people the glorious future that they deserve,
+- [50:00.450] better than they've ever had in the past.
+- [50:02.200] I mean, they had a good future, a little.
+- [50:04.650] If you look 20 years ago,
+- [50:06.160] they thought they had a good future
+- [50:08.140] and it was ripped away from them.
+- [50:09.530] Torn away from them with nonsense
+- [50:11.880] and we're not going to let that happen.
+- [50:13.410] This is going to be a glorious future for them.
+- [50:15.990] I want to thank everybody for being here,
+- [50:17.850] and I want to thank you and you and you
+- [50:20.820] and that whole group and our senators, by the way,
+- [50:23.600] and our great congressmen and women
+- [50:26.350] for being here in such a large number
+- [50:28.210] because you've been helping us make these decisions.
+- [50:30.540] These are big decisions and this is a really big one
+- [50:33.680] and this is one that's going to be…
+- [50:35.620] I think we're going to look back with great pride
+- [50:38.120] at what we've done today,
+- [50:39.430] not just in putting people to work,
+- [50:41.230] but at really reawakening our country
+- [50:44.640] and thank you very much and thank you all for being here.
+- [50:49.730] Thank you very much.
+- [51:05.860] Come on up.
+- [51:07.090] Male Speaker: Mr. President.
+- [51:08.290] The President: Yes, this first one.
+- [51:09.680] Male Speaker: We have four items prepared for your signature
+- [51:11.990] this afternoon, sir.
+- [51:13.690] The first of these executive orders
+- [51:16.180] may be one of the most significant executive orders
+- [51:18.760] of your administration thus far.
+- [51:21.070] This directs all departments and agencies
+- [51:23.660] of the federal government to end all discriminatory policies
+- [51:29.060] against the coal industry. This ends the leasing moratorium
+- [51:32.900] that prevents new coal projects on federal land
+- [51:36.220] and it's going to accelerate all permitting and funding
+- [51:39.430] for new coal projects to allow the coal industry
+- [51:41.940] to flourish under your leadership, sir.
+- [51:43.540] The President: That's great. Thank you.
+- [52:08.250] Male Speaker: Sir, there are currently dozens
+- [52:09.890] of coal plants in America
+- [52:11.650] that are in imminent danger of being forced
+- [52:14.100] to close based on unscientific and unrealistic policies
+- [52:19.020] enacted by the Biden administration.
+- [52:21.530] What we're going to do is essentially impose a moratorium
+- [52:25.030] on those policies taking effect to protect coal plants
+- [52:28.420] that are currently operating to ensure
+- [52:30.200] that they're able to continue producing power
+- [52:32.720] and continue providing jobs to Americans in the coal industry.
+- [52:35.580] The President: Right. Thank you very much.
+- [53:03.920] Male Speaker: Sir, you've made grid reliability and security
+- [53:07.730] a key focus of this administration.
+- [53:10.390] This executive order is going to promote grid security
+- [53:13.370] and reliability by ensuring in part
+- [53:16.370] that our grid policies are focused on secure
+- [53:19.830] and effective energy production and energy transmission
+- [53:24.090] as opposed to woke policies
+- [53:26.270] that discriminate against secure sources of power
+- [53:29.880] like coal and other fossil fuels.
+- [53:58.470] Lastly, sir, one of the biggest problems
+- [54:00.900] we have in this space is democrat states,
+- [54:04.700] radical leftist states enacting policies
+- [54:08.770] and enacting an agenda that discriminates against coal,
+- [54:13.430] against secure sources of energy.
+- [54:16.060] Many of these policies are unconstitutional and illegal,
+- [54:19.620] and with this executive order,
+- [54:21.030] you're going to be instructing your Department of Justice
+- [54:23.880] to vigorously pursue and investigate these state policies
+- [54:28.310] that we believe are illegal or unconstitutional.
+- [54:31.120] The President: Good. Thank you.
+- [54:45.050] Male Speaker: Congressman of Illinois thanks you.
+- [54:48.250] The President: Thank you very much. Great job.
+- [54:49.870] He went to Harvard when Harvard was good.
+- [54:52.390] It was a while ago.

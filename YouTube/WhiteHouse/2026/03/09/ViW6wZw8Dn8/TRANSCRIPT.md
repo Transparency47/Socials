@@ -1,0 +1,743 @@
+<!-- source: https://www.youtube.com/watch?v=ViW6wZw8Dn8 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: ViW6wZw8Dn8 -->
+<!-- date_published: 2026-03-09T22:29:28+00:00 -->
+<!-- date_accessed: 2026-06-02T02:36:50.264074+00:00 -->
+
+# Transcript: President Trump Holds a Press Conference, Mar. 9, 2026
+
+- [00:06.380] The President: Hello, everyone. Thank you very much.
+- [00:09.410] It's been a very big two days, I have to say.
+- [00:13.940] And we'll be heading back to Washington, DC right after this.
+- [00:19.360] And I'd like to wish everyone a very good evening.
+- [00:21.870] And over the weekend, the United States military
+- [00:25.490] and the Israeli Defense Forces continued
+- [00:28.220] Operation Epic Fury very successfully.
+- [00:31.650] Over the past nine days, we've carried out
+- [00:33.770] some of the most powerful and complex military strikes
+- [00:37.750] and maneuvers the world has ever seen.
+- [00:40.830] Now you add that up to all of the other things,
+- [00:43.380] Midnight Hammer, getting rid of the nuclear threat from Iran,
+- [00:48.640] which was a big moment in history, in my opinion.
+- [00:52.270] And the great success we've had in Venezuela
+- [00:55.640] and all other places.
+- [00:56.930] Every place we've gone, we've had tremendous success.
+- [01:01.240] But while we're doing all of these things,
+- [01:03.530] we're achieving major strides
+- [01:06.290] toward completing our military objective.
+- [01:09.900] And some people could say they're pretty well complete.
+- [01:12.620] We've wiped every single force in Iran out, very completely.
+- [01:19.350] Most of Iran's naval power has been sunk.
+- [01:23.670] It's on the bottom of the sea. It's almost 50 ships.
+- [01:28.190] I was just notified, it's 51 ships.
+- [01:30.760] I didn't know they had that many didn't last very long
+- [01:35.040] and these are fighting vessels, they're meant to fight,
+- [01:39.310] but they're not meant to fight against us.
+- [01:41.820] We continue to target Iran's drone and missile capabilities.
+- [01:45.330] Their drones are way down.
+- [01:47.280] Their drone manufacturing has been hit starting today.
+- [01:51.920] We know all of the places they manufacture the drones
+- [01:54.930] and they're being hit one after another.
+- [01:57.780] Their missile capability is down to about 10 percent, maybe less.
+- [02:03.290] We're also hitting where they make missiles
+- [02:05.610] and where they deliver missiles.
+- [02:07.850] We've struck over 5,000 targets to date,
+- [02:11.270] some of them very major targets
+- [02:13.540] and we've left some of the most important targets for later
+- [02:16.230] in case we need to do it, if we hit them,
+- [02:18.640] it's going to take many years for them to be rebuilt.
+- [02:22.530] Having to do with electricity production
+- [02:25.620] and many other things.
+- [02:27.120] So we're not looking to do that if we don't have to,
+- [02:31.050] but they're the kind of things that are very easy to hit,
+- [02:33.040] but very devastating if they are hit.
+- [02:36.080] We are waiting to see what happens before we hit them.
+- [02:39.870] We could take them all out in one day,
+- [02:42.960] but it's all resulting in a 90 percent decline
+- [02:45.930] in various things.
+- [02:48.310] But, in particular, Iranian missile launchers
+- [02:52.610] and 83 percent drop in drone launchers
+- [02:55.280] as you know the drone launchers are -- are pretty well shot.
+- [03:00.590] But we're at over 90 percent decline
+- [03:02.720] in the Iranian missile launchers
+- [03:04.910] which is very hard to reproduce and very hard to get.
+- [03:09.710] And usually what we were able to do through great uh equipment
+- [03:15.040] and a lot of smart people as soon as they sent
+- [03:18.620] a missile up from a launcher,
+- [03:20.080] we were able to knock out that launcher
+- [03:21.910] within a period of five minutes
+- [03:24.050] or less, accurately, right on the noggin.
+- [03:28.510] So now we have low cost interceptors effectively
+- [03:31.300] combating Iranian drones and our B-2.
+- [03:34.180] Bombers recently dropped dozens of 2,000 pound bombs
+- [03:38.530] to destroy missile launchers,
+- [03:40.400] all over Iran and buried deep under Iranian soil.
+- [03:45.550] In many cases, the soil was no match
+- [03:48.780] and we're also annihilating the manufacturing base
+- [03:51.860] that the regime uses to build drones and missiles
+- [03:55.110] at a rate that nobody thought was possible.
+- [03:57.440] We're knocking them out. We know where they all are.
+- [03:59.990] We're knocking them out very quickly.
+- [04:02.650] We're ahead of our initial timeline by a lot.
+- [04:05.800] I would say that we probably would not have thought
+- [04:08.280] after a month we'd be here.
+- [04:10.700] In addition to the fact that we've taken out
+- [04:12.820] the leadership uh twice and maybe three times
+- [04:18.660] and we, as you know, we want to be involved.
+- [04:22.270] We don't want another president that maybe wouldn't be willing
+- [04:24.890] to do what I'm willing to do for the good of the world,
+- [04:27.280] for the good of our nation to be stuck with the situation
+- [04:30.320] in five years or ten years from now.
+- [04:32.910] So we think they should put a president in
+- [04:35.770] or the head of the country in that's going to be able
+- [04:38.790] to do something peacefully for a change.
+- [04:40.580] They've been doing this for 47 years,
+- [04:42.780] killing people for 47 years,
+- [04:45.570] whether it's the barracks or even the USS Cole,
+- [04:48.460] where they were involved very strongly.
+- [04:51.030] They always denied it, but they were very strongly involved
+- [04:54.690] in all of the people
+- [04:55.960] that died through the roadside bombs died in --
+- [04:59.180] are right now walking around with no legs,
+- [05:01.400] no arms a face that's been so badly damaged.
+- [05:05.990] The Iranian regime has been attacking Americans
+- [05:08.920] and spreading terror for 47 years.
+- [05:12.040] And despite these countless opportunities
+- [05:14.260] to renounce their nuclear ambitions,
+- [05:16.540] which they had just a short while ago,
+- [05:19.850] they told Mr. Witkoff who is standing right over here.
+- [05:23.940] They said uh, they actually said we want to keep building,
+- [05:28.320] essentially in a nutshell,
+- [05:30.680] we want to continue to build nuclear weapons
+- [05:34.300] if we didn't knock out midnight hammer.
+- [05:36.280] If we didn't knock out there Iranian potential,
+- [05:38.720] if we didn't do that with Midnight Hammer,
+- [05:41.420] they would have had a nuclear weapon.
+- [05:42.930] They would have used it long before.
+- [05:44.340] Now and at a minimum, Israel would have been annihilated.
+- [05:48.690] It was very lucky that we had the courage to do
+- [05:52.330] that that we had the talented pilots
+- [05:55.260] and the great equipment the B-2 bombers are unbelievable.
+- [05:58.570] We ordered 25 more by the way,
+- [06:01.310] the newer better version, it's --
+- [06:04.900] uh, we have the greatest military in the world.
+- [06:08.230] We have the greatest equipment in the world by far.
+- [06:10.900] You see that no matter where we go,
+- [06:13.360] you still need the people to operate it and to use it.
+- [06:17.040] And those are the people that we cherish
+- [06:19.260] even after we obliterated their key
+- [06:21.670] nuclear sites in Operation Midnight Hammer.
+- [06:24.860] They never negotiated in good faith.
+- [06:27.610] They still continue to say we want to build nuclear,
+- [06:31.050] we want enrichment at levels that were unacceptable
+- [06:34.750] and they even turned down an offer
+- [06:36.300] for unlimited free nuclear fuel forever for civilian purposes.
+- [06:41.490] We had people offering them free nuclear fuel.
+- [06:45.710] They weren't interested in that
+- [06:47.130] because they wanted to build a nuclear weapon.
+- [06:50.170] So instead the regime was trying to reconstitute
+- [06:53.850] its weapons program at a different site.
+- [06:56.790] They couldn't go back to where they were.
+- [06:58.750] The three sites that we obliterated,
+- [07:01.230] but they were starting work at another site,
+- [07:03.120] a different site, different kind of a site
+- [07:06.340] and that was protected by granite.
+- [07:09.260] They wanted it protected.
+- [07:10.640] Granite's pretty good,
+- [07:12.280] but they wanted it protected by a lot deeper.
+- [07:16.390] They wanted to go a lot deeper and they started the process
+- [07:19.610] while rapidly building conventional ballistic missiles.
+- [07:23.100] They were going to do it all at the same time.
+- [07:24.790] They threatened our overseas bases
+- [07:27.180] and soon could have reached even our homeland.
+- [07:31.010] The regime's intention was to use
+- [07:32.870] this exponentially growing ballistic missile threat
+- [07:36.120] to make it virtually impossible
+- [07:37.620] to prevent them from obtaining a nuclear weapon.
+- [07:40.960] So as you probably saw, they had a tremendous number of missiles,
+- [07:46.200] most of which are now being used or destroyed
+- [07:50.250] and very unsuccessfully used because we have been able
+- [07:53.970] for the most part to shoot them all down.
+- [07:55.880] What incredible technology.
+- [07:57.840] The patriots have been, unbelievable and other things
+- [08:02.330] and the laser technology that we have now is incredible.
+- [08:05.360] It's coming out pretty soon.
+- [08:07.460] We're literally lasers will do the work of --
+- [08:10.480] at a lot less cost, do the work of what the patriots are doing
+- [08:14.440] and what other things are doing.
+- [08:16.760] The situation was very quickly approaching
+- [08:19.580] the point of no return and the United States
+- [08:22.490] found it intolerable, in my opinion,
+- [08:25.040] based on what Steve, and Jared and Pete
+- [08:29.100] and others were telling me. Marco was so involved
+- [08:32.170] That I thought that they were going to attack us.
+- [08:34.320] I thought they would -- if we didn't do this
+- [08:36.610] at the time we did it,
+- [08:37.850] I think they had in mind to attack us
+- [08:39.460] and if you notice they did something
+- [08:41.390] which was very foolish, very stupid, I would say.
+- [08:44.080] They attacked their neighbors and their neighbors
+- [08:46.850] were largely neutral or at least weren't going to be involved
+- [08:53.610] and they got attacked and it had the reverse effect.
+- [08:57.240] The neighbors came onto our side and started attacking them
+- [09:01.680] and actually quite successfully. If you look at Saudi Arabia,
+- [09:07.170] you look at UAE, Qatar and others,
+- [09:11.440] but they were strong and they were smart,
+- [09:13.620] but they got attacked.
+- [09:15.370] Nobody -- when I first heard it,
+- [09:16.600] I said no, somebody made a mistake.
+- [09:18.880] There was no mistake.
+- [09:20.120] UAE had over a thousand missiles shot at it,
+- [09:23.970] knocked them almost all down when the very first day
+- [09:27.860] I came down the escalator in 2015,
+- [09:30.020] I said, quote, "I will stop.
+- [09:32.670] Iran from getting nuclear weapons."
+- [09:35.610] And all I'm doing is keeping my promise.
+- [09:37.740] Think of that. That was in 2015, I said it, it was a threat then
+- [09:42.490] and a much bigger threat now, but no longer a threat,
+- [09:46.350] not for a long time anyway. We want to keep it that way.
+- [09:49.620] As we continue Operation Epic Fury.
+- [09:52.300] We're also focused on keeping energy
+- [09:55.350] and oil flowing to the world
+- [09:58.060] and I will not allow a terrorist regime
+- [10:00.040] to hold the world hostage
+- [10:01.790] and attempt to stop the globe's oil supply.
+- [10:04.030] And if Iran does anything to do that they'll get hit at a much,
+- [10:07.800] much harder level.
+- [10:09.380] I will take out those targets that were easy
+- [10:12.600] and that I mentioned just before will take them out so quickly.
+- [10:15.920] They'll never be able to recover
+- [10:17.480] ever if they want to play that game.
+- [10:20.220] They better not play that game.
+- [10:21.520] In the long run, oil supplies will be dramatically more secure
+- [10:25.040] without the threat of Iranian ships,
+- [10:27.460] drones, missiles, nuclear, menace or anything.
+- [10:31.860] So the Strait of Hormuz is going to remain safe.
+- [10:37.460] We have a lot of Navy ships there.
+- [10:39.140] We have the best equipment in the world,
+- [10:42.190] inspecting for mines. Again, most of their ships
+- [10:46.170] are down at the bottom of the sea,
+- [10:48.070] but we will we will hit them so hard
+- [10:51.540] that it will not be possible for them or anybody else
+- [10:54.740] helping them to ever recover that section of the world.
+- [10:58.190] They do anything.
+- [10:59.630] In recent years, the regime and its terror proxies
+- [11:03.260] have launched attacks on hundreds of commercial vessels.
+- [11:07.250] We're putting an end to all of this threat once and for all.
+- [11:10.010] And the result will be lower oil prices,
+- [11:12.970] oil and gas prices for American families.
+- [11:16.940] We've done that, we've done it. We brought it very low.
+- [11:19.030] This was just an excursion into something that had to be done.
+- [11:23.650] We're getting very close to finishing that too.
+- [11:25.660] In the meantime, during this brief disruption,
+- [11:28.630] the United States is offering political risk insurance
+- [11:31.400] to any tankers operating in the Gulf.
+- [11:33.240] So, we're putting up risk insurance.
+- [11:35.790] We'll perhaps go alongside of them for protection.
+- [11:41.690] We don't think it'll be necessary, if it is.
+- [11:44.850] And if they do anything, the price will be incalculable.
+- [11:49.950] It will be so great
+- [11:52.060] that they will have wished they never did it.
+- [11:54.900] Because you have to keep the straits flowing.
+- [11:58.160] With all of that, it affects other countries,
+- [12:00.290] much more than it does the United States.
+- [12:02.000] It doesn't really affect us. We have so much oil.
+- [12:04.440] We have tremendous oil and gas, much more than we need.
+- [12:08.800] We have Venezuela now as our new partner, great partner.
+- [12:12.100] They've worked out so wonderful.
+- [12:14.340] We're working with the administration, the president.
+- [12:17.990] And it's a massive source of oil, gas, everything.
+- [12:23.850] But we're in a very good position,
+- [12:28.660] but very unfair to other parts of the world,
+- [12:30.580] like China as an example.
+- [12:31.820] I mean, we're doing this for the other parts of the world,
+- [12:34.590] including countries like China.
+- [12:36.450] They get a lot of their oil through the straits.
+- [12:40.250] So we're doing this.
+- [12:41.600] We have a very good relationship with President Xi and China.
+- [12:44.480] I'm going there in a short period of time.
+- [12:47.400] And we're protecting the world
+- [12:50.140] from what these lunatics are trying to do,
+- [12:54.080] and very successfully, I might add.
+- [12:56.400] We're also waiving certain oil-related sanctions
+- [12:59.960] to reduce prices.
+- [13:01.510] So we have sanctions on some countries.
+- [13:03.340] We're going to take those sanctions off
+- [13:05.770] until this straightens out.
+- [13:07.450] Then who knows, maybe we won't have to put them on;
+- [13:09.280] there'll be so much peace.
+- [13:11.250] But when the time comes, the US Navy and its partners
+- [13:13.700] will escort tankers through the strait, if needed.
+- [13:16.750] I hope it's not going to be needed,
+- [13:18.320] but if it's needed, we'll escort them right through.
+- [13:21.690] And we have the greatest minesweeping ability.
+- [13:23.960] We have the greatest ships in all of the --
+- [13:26.630] we know exactly where their place --
+- [13:28.610] we'll get them out of there very fast.
+- [13:30.030] But we hope we don't have any of that.
+- [13:32.040] And again, if they do that, if they play that game,
+- [13:34.530] we're going to hit them at a level that --
+- [13:36.010] that they have not seen before.
+- [13:38.390] So we're winning very decisively.
+- [13:42.470] We're way ahead of schedule. It's -- our military
+- [13:46.760] is the greatest in the world, with the greatest equipment
+- [13:49.100] and the greatest people in the world.
+- [13:51.170] Nobody's ever seen anything like it.
+- [13:53.620] Iran's -- it's a very powerful country.
+- [13:55.440] They were going to take over the Middle East.
+- [13:57.390] If we did not hit them,
+- [13:59.130] they were going to take over the Middle East.
+- [14:00.800] They had thousands and thousands --
+- [14:02.510] since their last hit,
+- [14:04.840] they had thousands and thousands of missiles and everything else.
+- [14:08.890] Most are now destroyed,
+- [14:11.120] but they were going to take over the Middle East.
+- [14:12.960] Those weapons were aimed at Middle Eastern countries
+- [14:17.300] that had nothing to do with this.
+- [14:19.650] They were going to take over the Middle East
+- [14:21.090] and they were going to try and destroy Israel.
+- [14:23.660] So, we stopped it with good timing,
+- [14:26.420] and we're very proud to be involved in this
+- [14:29.650] and it's going to be ended soon.
+- [14:32.100] And if it starts up again, they'll be --
+- [14:35.250] they'll be hit even harder.
+- [14:37.730] Thank you very much for being here.
+- [14:39.000] Go ahead. Any questions?
+- [14:43.140] Go ahead.
+- [14:44.450] The Press: Do you approve of Iran's new supreme leader?
+- [14:47.540] And secondly, can you tell us more about your call
+- [14:50.390] with Russian President Vladimir Putin today?
+- [14:52.590] What did you discuss? The President: Yes.
+- [14:53.840] Yes, I had a very good call with President Putin.
+- [14:57.550] We had a lot of people on the line from our side,
+- [14:59.580] from his side. We were talking about Ukraine,
+- [15:02.700] which is just a never-ending fight.
+- [15:05.900] And when -- look, there's tremendous hatred
+- [15:09.550] between President Putin and President Zelenskyy.
+- [15:12.270] They can't seem to get it together.
+- [15:15.340] But I think it was a positive call on that subject
+- [15:17.780] and we obviously talked then about the Middle East,
+- [15:20.580] and he wants to be helpful.
+- [15:24.870] I said, you could be more helpful
+- [15:26.420] by getting the Ukraine-Russia war over with;
+- [15:29.470] that would be more helpful. But we had a very good talk
+- [15:32.640] and he wants to be very constructive.
+- [15:34.090] Yeah.
+- [15:35.320] Yes. Yeah, please.
+- [15:38.540] The Press: Thank you, Mr. President.
+- [15:39.820] On Iran, you called it an excursion.
+- [15:41.970] You said it would be over soon.
+- [15:43.620] Are you thinking this week it will be over?
+- [15:45.460] Are you talking about days?
+- [15:46.730] The President: No. But I think soon.
+- [15:48.460] Very soon. Look, everything they have is gone,
+- [15:52.060] including their leadership.
+- [15:54.250] In fact, there are two levels of leadership
+- [15:56.410] and even actually, as it turns out more than that,
+- [15:58.720] but two levels of leadership are gone.
+- [16:01.150] Most people have never even heard about the leaders
+- [16:03.130] that they're talking about.
+- [16:04.370] So it's obviously been very -- very powerful, very effective.
+- [16:09.120] The Press: With respect to Cuba,
+- [16:11.510] you said that Cuba wants to make a deal.
+- [16:12.980] The President: Yes.
+- [16:14.180] The Press: What would the United States
+- [16:15.420] get in return for that
+- [16:17.140] and why should Americans trust Marco Rubio to negotiate it?
+- [16:20.320] The President: Well, Marco Rubio is doing a great job.
+- [16:22.470] I think he's going to go down
+- [16:23.750] as the greatest secretary of state in history.
+- [16:26.760] Look at what we've done as a -- as a presidency.
+- [16:29.880] Look at what we've done as an administration.
+- [16:33.450] They trust Marco, and so do the American people trust.
+- [16:39.130] He's been successful no matter where he's been.
+- [16:41.780] The President: He also speaks to language,
+- [16:43.150] which is always nice and always helpful.
+- [16:45.820] But he's dealing and it may be a friendly takeover.
+- [16:49.500] It may not be a friendly takeover.
+- [16:50.910] It wouldn't matter because they're really in --
+- [16:53.170] they're down to as they say, fumes.
+- [16:58.490] They have no energy. They have no money.
+- [17:02.880] They're in deep trouble on a humanitarian basis.
+- [17:06.830] And we don't want to see that, but they were very, very bad
+- [17:10.860] to a lot of people, as you know,
+- [17:12.250] and a lot of people living -- the Cuban American vote,
+- [17:15.320] which I got at record levels very important to --
+- [17:20.000] those people are very important to me.
+- [17:21.520] I know -- I know what they went through.
+- [17:22.750] They went through hell.
+- [17:24.100] Some of them have gone on to be
+- [17:25.800] some of the most successful people in the country.
+- [17:28.490] Cuban American business people,
+- [17:30.450] some of them are like the most successful in the country.
+- [17:34.600] And a lot of them are friends of mine
+- [17:35.970] because I've been fighting this battle with them
+- [17:37.630] for a long time.
+- [17:38.850] The Castro regime was brutal, but they lived off Venezuela.
+- [17:42.520] Now, they don't live off -- Venezuela sends them no energy,
+- [17:46.530] no fuel, no oil, no money, no nothing.
+- [17:49.210] They lived without Venezuela. They couldn't have made it.
+- [17:51.580] And we cut them off from everything else.
+- [17:54.150] So yeah, they're going to make either a deal
+- [17:58.240] or we'll do it just as easy anyway.
+- [18:01.200] Yeah. Please, go ahead.
+- [18:04.260] The Press: There's footage that shows
+- [18:06.840] that an American missile strike
+- [18:08.780] and a Tomahawk missile likely destroyed
+- [18:12.580] that Iranian girls' school. So will the Americans --
+- [18:15.340] will the US accept any responsibility for that strike?
+- [18:17.570] The President: Well, I haven't seen it
+- [18:18.810] and I will say that the Tomahawk,
+- [18:20.500] which is one of the most powerful weapons around
+- [18:22.820] is used by --
+- [18:24.030] you know, is sold and used by other countries. You know that.
+- [18:28.420] And whether it's Iran, who also has some tomahawks.
+- [18:32.030] They wish they had more.
+- [18:33.690] But whether it's Iran or somebody else,
+- [18:36.040] the fact that a tomahawk, a tomahawk is very generic.
+- [18:38.650] It's sold to other countries.
+- [18:40.710] But that's being investigated right now.
+- [18:44.950] Yeah, please.
+- [18:46.200] The Press: Thank you. Thank you.
+- [18:48.560] Mr. President, you said the war is, quote, very complete,
+- [18:51.320] but your defense secretary says this is just the beginning.
+- [18:54.110] So which is it? And how long should Americans
+- [18:55.970] be prepared for this war to last for?
+- [18:57.190] The President: Well, I think you could say both,
+- [18:58.420] the beginning.
+- [18:59.620] It's the beginning of building a new country,
+- [19:01.620] but they certainly -- they have no navy.
+- [19:03.360] They have no air force.
+- [19:05.020] They have no anti-aircraft equipment.
+- [19:09.010] It's all been blown up. They have no radar.
+- [19:11.650] They have no telecommunications and they have no leadership.
+- [19:15.590] It's all gone.
+- [19:17.110] So you know, you could look at that statement.
+- [19:19.590] We could -- we could call it a tremendous success.
+- [19:22.850] Right now as we leave here, I could call it,
+- [19:25.470] or we could go further and we're going to go further.
+- [19:29.310] But the big risk on that war has been over for three days.
+- [19:36.400] We wiped them out the first -- in the first two days.
+- [19:39.790] When you think about it, it's incredible.
+- [19:42.130] We wiped out a big navy, very powerful navy.
+- [19:46.100] You know, these were ships, these were serious ships.
+- [19:47.950] These were ships that you buy when you want to win battles.
+- [19:50.930] They're all -- they're all on the bottom floor.
+- [19:54.030] The sailors are all running off the ships
+- [19:55.780] they refuse to get on the ships.
+- [19:58.990] The Air Force is gone, everything's gone.
+- [20:00.830] The missiles are down to a trickle.
+- [20:02.880] The drones are down to probably 25 percent
+- [20:07.390] and they'll soon be down to nothing.
+- [20:08.780] We'll have the --
+- [20:10.010] where they manufacture the drones are under fire.
+- [20:12.740] As we speak, they're being hit.
+- [20:15.780] So the rest is going to be a determination as to my attitude,
+- [20:21.240] along with the people in the Trump administration,
+- [20:23.420] what we want to do. Thank you.
+- [20:27.630] Yeah, please.
+- [20:28.870] The Press: Can I ask you, you mentioned you were going to
+- [20:30.320] waive certain additional oil waivers or sanctions;
+- [20:32.780] can you talk a little bit more
+- [20:34.060] about that and address in particular --
+- [20:35.820] The President: Well, we're looking to keep
+- [20:37.070] the oil prices down.
+- [20:38.390] We went artificially up because of this excursion
+- [20:41.820] into a very positive thing. I mean, this was an excursion
+- [20:45.300] that a lot of people wouldn't have done.
+- [20:47.210] I knew oil prices would go up if I did this
+- [20:49.570] and they've gone up
+- [20:51.350] probably less than I thought they'd go up,
+- [20:54.080] but I don't think anybody thought
+- [20:55.420] we were going to be this quickly successful.
+- [20:57.420] This was a military success,
+- [21:00.100] the likes of which people haven't seen.
+- [21:03.030] We have the best military. We have the best equipment.
+- [21:06.420] We have, I believe, the best generals.
+- [21:09.810] We have the best. And this went very quickly.
+- [21:13.720] Uh, we talked about that with President Putin.
+- [21:16.940] He was very impressed with what he saw
+- [21:19.600] because nobody's ever seen anything quite like it.
+- [21:22.340] You know, Iran was a very powerful military country
+- [21:26.350] with all of the missiles.
+- [21:27.600] Now you had the double attack.
+- [21:29.540] You had the original attack with us in Israel
+- [21:32.330] and that knocked him for a loop. Then you had the B-2 bombers
+- [21:35.180] which took out their nuclear capability
+- [21:37.750] and they would have had a nuclear weapon
+- [21:39.400] within two weeks to four weeks
+- [21:41.550] and they would have used it long before this press conference.
+- [21:45.130] And we might have had a much different press conference
+- [21:47.890] if we had a press conference at all.
+- [21:50.730] But it's been amazing.
+- [21:52.830] The military success that we've had is truly unprecedented.
+- [22:00.560] The Press: You said you've told your congressional colleagues
+- [22:02.930] that you will not sign any piece of legislation
+- [22:05.250] until the SAVE America Act is passed.
+- [22:07.230] Does that include the confirmation of Senator Mullin
+- [22:09.810] as your next DHS secretary?
+- [22:11.190] Does that mean a DHS funding bill?
+- [22:13.310] And Senator Thune said today, it's not a matter of whether
+- [22:16.150] or not your Republican colleagues agree
+- [22:17.950] with the policy, it's about changing the process,
+- [22:20.310] in other words getting rid of the filibuster to get there.
+- [22:22.130] The President: So in order to get it,
+- [22:23.380] you're going to need Democrat votes
+- [22:25.080] and what we're saying is the SAVE America, not the SAVE Act,
+- [22:29.390] which nobody knew what it was the SAVE America Act.
+- [22:32.320] The SAVE America Act and that's voter ID.
+- [22:37.210] We want voter ID. When a voter --
+- [22:39.110] we want to be able to see a picture of the voter.
+- [22:41.720] We want to be able to see that the voter is legitimate.
+- [22:44.960] We want, very importantly, confirmation that this voter
+- [22:50.280] is a citizen of the United States of America
+- [22:53.420] and we want no in -- no mail in ballot scams.
+- [22:57.580] So we have exceptions for the military, for sick,
+- [23:01.090] for disabled
+- [23:02.350] and for people that are away on business trips or whatever.
+- [23:07.250] Even vacations will be very liberal in that.
+- [23:09.990] We've added two things to it, no men and women sports
+- [23:12.610] and no transgender mutilation of our children.
+- [23:16.730] We don't want our -- the -- it's utilization of our children
+- [23:21.730] and we don't want that. So, we added those two things.
+- [23:24.580] That's the five points. We have five very good points.
+- [23:28.920] Uh, it polls at 86 percent with Democrats, think of that.
+- [23:34.390] The overall vote is 86 percent with Republicans it's 98 percent
+- [23:40.410] And the only one opposed to it is a Democrat leadership
+- [23:43.520] because they cheat, they want to cheat.
+- [23:46.040] So we added those two points. We're going for the gold
+- [23:49.540] and we're going to have to fight like hell.
+- [23:51.690] Now, certain things will happen, certain things will take place.
+- [23:55.410] I'm here to do a great job for the country.
+- [23:58.080] But we don't have a country if we're going to have elections
+- [24:00.540] that are so corrupt and so dishonest
+- [24:03.850] like we've witnessed over the last period of time.
+- [24:08.330] You know, as an example few,
+- [24:12.430] I mean, virtually nobody has like we --
+- [24:15.770] nobody has a system of mail in ballots
+- [24:19.360] like we have no other country in the world.
+- [24:21.180] France went away from it, they all went, you know why?
+- [24:23.830] Because it's corrupt and Jimmy Carter when he had a commission.
+- [24:26.950] Frankly, I think it's probably the best thing Jimmy Carter did.
+- [24:30.010] He said you can't have mail-in voting
+- [24:32.740] because it's inherently dishonest
+- [24:34.950] and it's turned out to be totally dishonest
+- [24:36.790] and we're going to fight for it. Yeah?
+- [24:38.510] The Press: Thanks so much for taking our questions.
+- [24:41.690] Has Iran activated any sleeper cells inside the US?
+- [24:46.060] There's reports that they have pressed that trigger button
+- [24:49.330] to activate those cells at least abroad.
+- [24:50.790] The President: Well, we've been --
+- [24:52.030] they've been trying for a long time,
+- [24:53.520] we've been very much on top of it.
+- [24:55.750] Uh, one of the things we have to do is get the Democrats
+- [24:58.440] to stop the Democrats shutdown because as you know,
+- [25:01.450] the apparatus that looks into that Schumer and the Democrats
+- [25:05.680] have shut it down,
+- [25:07.270] which tells you they probably hate our country a lot.
+- [25:09.780] But the Democrats have to open that up,
+- [25:12.420] but we've got very, very good intelligence into that.
+- [25:15.550] We know a lot of different things that have happened
+- [25:17.930] that have been very bad.
+- [25:19.530] A lot of them came in during the Biden open border period,
+- [25:23.810] but we have them under uh, we've got them.
+- [25:28.260] We've -- we're watching every single one of them.
+- [25:30.860] Yeah, we know a lot about them.
+- [25:33.400] The biggest problem we have is the Democrat shutdown.
+- [25:36.390] We know a lot about them,
+- [25:38.190] but the shutdown doesn't allow us to do
+- [25:40.270] what we have to do.
+- [25:41.530] The Press: The supreme leader, do you have to take him out?
+- [25:44.830] Does he have a target on his back?
+- [25:46.300] The President: You mean the new Supreme leader?
+- [25:48.250] You mean the son?
+- [25:50.160] Well, I don't want to -- I don't want to say that,
+- [25:52.160] but, you know, I was disappointed
+- [25:54.250] because we think it's going to lead
+- [25:56.510] to just more of the same problem for the country.
+- [25:58.730] So, I was disappointed to see their choice.
+- [26:03.510] The Press: Thank you. Thank you, sir.
+- [26:05.300] You said you have someone in mind
+- [26:06.570] to be the new Iranian leadership,
+- [26:08.080] if not the ayatollah's son.
+- [26:10.160] What are you looking for in that person?
+- [26:11.710] Are you looking at someone internal given
+- [26:13.340] that you just said that their leadership has been?
+- [26:15.200] The President: I like the idea of you know internal and eternal
+- [26:19.630] come to think of it,
+- [26:20.950] but I like the idea of internal because it works well.
+- [26:26.090] I mean, I think we've proven that so far in Venezuela
+- [26:29.420] we have a woman Delcy who has been,
+- [26:33.540] you know, president of the country, very respected,
+- [26:35.680] very doing a great job and it's, you know, no disruption.
+- [26:40.410] We had, as you remember Iraq where everybody got fired,
+- [26:44.920] the military got fired, the police got fired,
+- [26:47.680] the politicians got fired.
+- [26:49.620] There was nobody and you know what they turned into ISIS,
+- [26:54.410] and we don't want that. We don't want that.
+- [26:56.210] So uh, I would like to see people that are inside go now.
+- [27:00.860] They talk about the son of the shah.
+- [27:03.600] They talk about other people, but, you know,
+- [27:05.610] has it been there in many, many years?
+- [27:08.120] Uh, we have a formula that's been very good so far
+- [27:13.150] and I think it will continue to be good.
+- [27:14.770] The relationship is extraordinary with Venezuela,
+- [27:17.640] smart country.
+- [27:19.440] We've taken out 100 million barrels of oil.
+- [27:23.020] It's right now in Houston
+- [27:25.370] being taken care of and made so beautiful.
+- [27:30.250] And you have to see this at work.
+- [27:32.230] They have it's -- it's brought to the refineries,
+- [27:35.380] it's being refined in Houston,
+- [27:37.950] which has made exactly for that product.
+- [27:41.190] And so far, but it's 100 million barrels of oil.
+- [27:45.130] And now they have another 100 million barrels coming.
+- [27:48.420] And it's like a partnership.
+- [27:50.360] We're getting along so well with them.
+- [27:52.710] It's great for Venezuela
+- [27:54.000] and it's great for the United States.
+- [27:57.920] Yeah, please go ahead.
+- [27:59.890] The Press: Mr. President, you just suggested
+- [28:02.110] that Iran somehow got its hands on a tomahawk and bombed,
+- [28:05.100] its own elementary school on the first day of the war.
+- [28:07.520] But you're the only person in your government saying this.
+- [28:09.530] Even your Defense Secretary wouldn't say that
+- [28:11.220] when he was asked standing over your shoulder
+- [28:13.380] on your plane on Saturday.
+- [28:14.920] Why are you the only person saying this?
+- [28:16.330] The President: Because I just don't know enough about it.
+- [28:18.200] I think it's something that I was told is under investigation,
+- [28:22.690] but tomahawks are -- are used by others, as you know.
+- [28:26.960] Numerous other nations have tomahawks they buy them from us.
+- [28:30.800] But I will certainly whatever the report
+- [28:33.340] shows I'm willing to live with that report.
+- [28:36.670] Yeah, please.
+- [28:39.000] The Press: You said earlier that we've already won in many ways,
+- [28:41.700] but we haven't won enough.
+- [28:43.310] What do you consider enough? What's your baseline --
+- [28:45.820] The President: Where they're not going to be
+- [28:47.940] starting the following day
+- [28:49.230] to develop a nuclear weapon where they'll look at that man
+- [28:53.580] and some other people from the administration and say,
+- [28:56.430] all right, we're not going to do it.
+- [28:58.480] They were not willing to say that.
+- [29:00.770] And when Steve called up and he said that to me,
+- [29:03.290] I said, well, here we go, let's do it the hard way.
+- [29:07.250] But the hard way I think is probably the easy way.
+- [29:10.200] When basically I can see that they will no longer
+- [29:13.470] have any capacity whatsoever
+- [29:15.330] for a very long period of time of developing weaponry
+- [29:20.680] that could be used against the United States,
+- [29:23.690] Israel or any of our allies.
+- [29:25.930] We have great allies in the Middle East,
+- [29:27.610] great countries that are allies
+- [29:30.680] and they were staying out of it until they got hit.
+- [29:33.260] Someday, they'll have to do a story why did he do that?
+- [29:35.560] Why did they do that?
+- [29:37.350] But they were going to hit them if I didn't hit them first,
+- [29:40.020] they were going to hit our allies first.
+- [29:42.550] I believe upon information and belief
+- [29:47.050] but I believe that he was going to uh he was --
+- [29:51.100] they were going to take over the Middle East.
+- [29:52.570] They were looking to take over the Middle East.
+- [29:55.240] Now, had Operation Midnight Hammer not taken place,
+- [30:00.270] that was definite because they would have had a nuclear weapon
+- [30:04.340] within a matter of weeks, but that took place.
+- [30:07.110] That was a setback.
+- [30:08.640] But look at the number of missiles
+- [30:10.470] they were able to buy and make over the last six months.
+- [30:15.190] And those missiles were aimed at various countries.
+- [30:18.550] And when you look at 1,000 --
+- [30:20.050] over 1000 missiles shot at like UAE,
+- [30:23.740] they were looking to take over the Middle East.
+- [30:25.320] We got there first. Lucky.
+- [30:26.840] I'll tell you what the Middle East
+- [30:28.250] and those countries are very rich countries
+- [30:29.900] are very lucky that I was president
+- [30:32.000] instead of somebody else.
+- [30:34.310] The Press: Mr. President,
+- [30:35.600] are there any points of disagreement
+- [30:37.310] between yourself and your vice president
+- [30:39.660] when it comes to US action in Iran?
+- [30:41.750] The President: I don't think so, no.
+- [30:43.040] No, we get along very well on this. He was a --
+- [30:46.740] I would say philosophically a little bit different than me.
+- [30:51.090] I think he was maybe less enthusiastic about going,
+- [30:57.490] but he was quite enthusiastic.
+- [31:00.320] But I felt it was something we had to do.
+- [31:03.210] I didn't feel we had a choice.
+- [31:04.710] If we didn't do it, they would have done it to us.
+- [31:06.850] I felt based on the negotiations that were being had by
+- [31:10.480] Steve Witkoff and Jared Kushner and Marco and Pete
+- [31:15.130] and everybody was involved,
+- [31:16.690] I felt that they were going to --
+- [31:18.650] that they were looking to tap us along before they hit.
+- [31:20.980] And I thought they were going to hit and if they hit us first,
+- [31:23.090] that would have been a very bad thing.
+- [31:25.030] 'Uh, in the back, please. In the back.
+- [31:26.810] The Press: Sir, you said you were considering
+- [31:29.170] seizing the Strait of Hormuz. Is there a timeline --
+- [31:33.620] (Inaudible)
+- [31:34.880] The President: About the strait, you mean?
+- [31:36.090] The Press: Yeah, sure.
+- [31:37.310] The President: Yeah. Well, I want to keep it open.
+- [31:39.090] I want to keep it good.
+- [31:40.510] You know, it doesn't pertain to us so much
+- [31:42.570] as it does to China.
+- [31:43.790] We're really helping China here, and other countries,
+- [31:48.070] because they get a lot of their energy from the states.
+- [31:52.660] But hey, look, we have a good relationship with China.
+- [31:55.400] It's my honor to do it. Yeah.
+- [31:57.210] The Press: The new supreme leader,
+- [31:59.750] you have called him an unacceptable choice.
+- [32:02.610] So does he have a target on his back?
+- [32:04.110] And how can you say that --
+- [32:05.430] The President: I don't want to say whether or not he does
+- [32:06.940] because that would be inappropriate.
+- [32:08.410] But hey, look, I had a target on my back
+- [32:10.660] because, as you people wrote pretty well,
+- [32:13.800] they caught the assassin that was after me.
+- [32:17.860] So, we just got them first, but they caught the assassin.
+- [32:21.190] They have him now in custody, that was after me.
+- [32:23.370] So you know, but, uh --
+- [32:25.950] People don't like to mention that,
+- [32:27.170] but they -- they did catch him
+- [32:28.380] and I'd like to congratulate our military, secret service,
+- [32:32.040] FBI, all of the people that worked on that.
+- [32:33.930] But they did. Yeah, please.
+- [32:37.790] Go ahead. No, go ahead, please.
+- [32:39.160] The Press: Thank you, Mr. President.
+- [32:40.410] You promised the Iranian people you would help them,
+- [32:42.310] but it sounds like you're willing to end
+- [32:43.740] this fight after your military objectives have wrapped up.
+- [32:46.700] Isn't that a betrayal of the people?
+- [32:48.350] The President: Will I help them?
+- [32:49.820] I'd like to if they can behave, but they've been very menacing.
+- [32:54.240] You know, they're great people. They have an amazing population.
+- [32:58.930] It's amazing, smart, brilliant, energetic.
+- [33:03.540] They have a great -- I'd love to help them,
+- [33:05.430] but they have to be in a system that allows them to be helped.
+- [33:08.790] And right now, they're in a system that only allows failure
+- [33:12.090] and I don't want that.
+- [33:14.460] And I want a system that's not going to be attacking us.
+- [33:17.040] We want a system that can lead to many years of peace.
+- [33:21.130] And if we can't have that,
+- [33:22.370] we might as well get it over with right now.
+- [33:24.300] Yeah, please.
+- [33:25.500] The Press: Mr. President, as of today,
+- [33:26.700] there have been eight US military fatalities
+- [33:28.780] associated with the war in Iran.
+- [33:30.200] The President: Right.
+- [33:31.420] The Press: How many American deaths
+- [33:32.780] are you willing to have in this war?
+- [33:35.790] The President: Well, as I said before,
+- [33:37.980] when you have conflicts like this,
+- [33:40.020] you always have death. And I was at Dover yesterday,
+- [33:43.970] I met the parents and they were unbelievable people.
+- [33:46.830] They were unbelievable people,
+- [33:48.130] but they all had one thing in common.
+- [33:49.850] They said to me one thing, every single one,
+- [33:52.490] finish the job, sir, please finish the job.
+- [33:57.830] And I'll leave you at that. Thank you very much, everybody.
+- [34:02.080] Thank you.

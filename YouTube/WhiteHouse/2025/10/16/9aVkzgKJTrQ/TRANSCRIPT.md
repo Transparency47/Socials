@@ -1,0 +1,140 @@
+<!-- source: https://www.youtube.com/watch?v=9aVkzgKJTrQ -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 9aVkzgKJTrQ -->
+<!-- date_published: 2025-10-16T15:47:28+00:00 -->
+<!-- date_accessed: 2026-06-02T01:12:56.733738+00:00 -->
+
+# Transcript: DEMOCRAT SHUTDOWN: Americans call on Democrats to reopen the government
+
+- [00:00.080] My name is Jesse Fly. I farm in
+- [00:01.600] northeast Arkansas. The government
+- [00:03.040] shutdown is currently putting great a
+- [00:05.200] great stress on our operation. This
+- [00:07.440] stress becomes larger every day. We urge
+- [00:10.160] Congress to reopen the government. Every
+- [00:13.599] day this doesn't happen. It punishes us.
+- [00:16.560] My name is Joe McDaniel. I'm a cotton
+- [00:18.320] farmer from Typton County, Tennessee.
+- [00:20.320] We're about halfway through with our
+- [00:21.439] cotton harvest this fall. Uh but this
+- [00:23.199] year with the government shutdown, we're
+- [00:24.560] not able to get our cotton class and
+- [00:26.400] enrolled in the USDA loan program. We
+- [00:28.800] need the government open. We need USDA
+- [00:30.560] and its programs to help us cash flow
+- [00:32.640] and to market this crop because we can't
+- [00:34.399] sell with prices where they are.
+- [00:36.160] >> My name is Katherine Bulan and I'm an
+- [00:38.079] Iowa farmer and every day is not getting
+- [00:40.399] better for hardworking Americans.
+- [00:42.239] Families like mine are stretching every
+- [00:44.079] dollar while Washington plays politics.
+- [00:46.559] >> As a farmer in central Iowa, I'm telling
+- [00:49.680] you that every day the government is
+- [00:51.840] shut down. Hardworking Americans
+- [00:54.079] continue to suffer. My name is Buddy
+- [00:56.480] Hughes and I'm a small builder developer
+- [00:58.640] from Lexington, North Carolina. I'm here
+- [01:01.199] today to urge Congress to end this uh
+- [01:05.519] shutdown as as soon as possible because
+- [01:08.479] any federal program that touches housing
+- [01:12.080] from loan processing to block grants is
+- [01:15.119] slowing down.
+- [01:15.920] >> We got about 18,000 Ians that are going
+- [01:18.720] to not get paid soon. We're going to
+- [01:20.640] lose our SNAP benefits. I'm a wife to an
+- [01:23.439] air traffic controller. We are already
+- [01:26.080] seeing the effects of of it on our
+- [01:29.360] family.
+- [01:29.840] >> Hello, my name is Mike Franklin. I'm a
+- [01:31.360] firefighter at Joint Base Mer and all in
+- [01:33.680] Arlington, Virginia. This government
+- [01:35.759] shutdown is causing much unneeded stress
+- [01:38.159] for a job that is already stressful. Not
+- [01:40.079] knowing when the next paycheck is coming
+- [01:41.759] is terrifying. We all have rent due, car
+- [01:44.320] payments, mortgages, um, and overall
+- [01:47.200] need to provide for our families. My
+- [01:49.119] name is Bryce Morgan, president of IFF
+- [01:51.520] Local F88
+- [01:53.360] Federal Firefighters for Ripad Air Force
+- [01:55.200] Base. With the already recognized
+- [01:57.520] efficiencies in our pay and hours
+- [01:59.600] worked, we are currently being forced to
+- [02:02.399] work for no pay until a budget or
+- [02:05.920] continuing resolution passes Congress.
+- [02:08.560] I'm asking Congress to reach an
+- [02:10.080] agreement for the budget so we the ones
+- [02:12.400] who support the missions at military
+- [02:14.319] installations
+- [02:15.840] can have a burden lifted and get back to
+- [02:18.239] normaly of our everyday lives.
+- [02:20.400] >> Hi, my name is Wes and I'm a federal
+- [02:22.640] firefighter. My crew and I are still
+- [02:24.400] reporting for duty every day protecting
+- [02:26.319] lives, property, and our nation. But
+- [02:28.400] during a government shutdown, we're
+- [02:30.080] doing it without pay. We're essential
+- [02:33.360] employees so we don't get to stay home.
+- [02:36.800] We're proud to serve, but our families
+- [02:39.280] are struggling while Congress fails to
+- [02:41.040] do its job.
+- [02:43.280] To every member of Congress, your
+- [02:46.080] decisions have real consequences.
+- [02:48.720] We are here when America needs us.
+- [02:51.680] Please come together and fund the
+- [02:53.760] government.
+- [02:54.160] >> I'm Kelly Durk, wife of Lieutenant
+- [02:56.000] Gregory Durk with the Mid-Atlantic Navy
+- [02:58.000] Regional Fire Department. My husband
+- [03:00.160] protects our military bases every single
+- [03:02.080] day. Fires, medical emergencies, you
+- [03:04.080] name it. He doesn't get to stop just
+- [03:05.680] because the government shut down.
+- [03:07.360] Federal firefighters keep showing up for
+- [03:09.200] this country. It's our time our
+- [03:10.800] government shows up for them with fair,
+- [03:12.319] on-time pay for the work they've already
+- [03:14.000] done.
+- [03:14.400] >> My name is Josh, a federal firefighter
+- [03:16.239] with 18 years of service to the federal
+- [03:18.560] government.
+- [03:20.400] I'm a husband and father of three, and
+- [03:22.800] the conversations I have recently had
+- [03:24.480] with my wife are ones that I thought
+- [03:26.159] would never have to happen.
+- [03:28.879] and not knowing when my next paycheck is
+- [03:30.720] coming has had us talk about possibly
+- [03:34.080] cancelling my son's upcoming birthday
+- [03:36.239] party. Please, we ask that you do what
+- [03:39.120] you can. We've done our part. We show up
+- [03:42.000] to work. We do our job. We just ask that
+- [03:44.400] you please find a resolution.
+- [03:46.879] >> My name is Matthew Silverman and I serve
+- [03:48.640] as the national president for the
+- [03:49.920] Federal Law Enforcement Officers
+- [03:51.440] Association representing almost 35,000
+- [03:54.400] federal agents and officers. As you
+- [03:56.400] know, our federal agents and officers
+- [03:58.159] are on the streets on a daily basis
+- [04:00.640] ensuring the safety of all of our
+- [04:02.560] citizens. And right now, they are doing
+- [04:04.959] this without being paid. I have received
+- [04:08.239] over a 100 phone calls and emails
+- [04:10.560] explaining to me that these members are
+- [04:13.680] unsure if they are going to be able to
+- [04:15.360] pay their bills, pay their mortgage, or
+- [04:17.759] put food on the tables for their
+- [04:19.759] families.
+- [04:20.639] >> I'm Ross Vieira. As a military veteran,
+- [04:23.919] I see firsthand how the government
+- [04:25.919] shutdown isn't just political games.
+- [04:29.360] It's hurting real families.
+- [04:31.759] We are struggling as the services are
+- [04:34.479] stalled and our nation's security is
+- [04:36.560] compromised.
+- [04:38.479] This is not a time for partisan games.
+- [04:42.240] And the Democrats need to stop holding
+- [04:44.479] everything hostage and reopen the
+- [04:46.720] government now.

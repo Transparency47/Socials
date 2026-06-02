@@ -1,0 +1,798 @@
+<!-- source: https://www.youtube.com/watch?v=xr8czDU76Fs -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: xr8czDU76Fs -->
+<!-- date_published: 2025-11-07T01:07:52+00:00 -->
+<!-- date_accessed: 2026-06-02T02:42:00.532826+00:00 -->
+
+# Transcript: President Trump Participates in a Dinner with Central Asian Countries
+
+- [00:44.120] The President: Well, thank you very much, everybody.
+- [00:45.640] And I'm delighted to be hosting this group of very, very --
+- [00:49.870] really distinguished people and leaders.
+- [00:53.350] A few leaders can even compete
+- [00:55.340] with the people around this table.
+- [00:58.030] They're from Central Asia,
+- [00:59.710] and it's a magnificent part of the world.
+- [01:02.340] It's also a strong part. It's a tough part.
+- [01:06.730] And there's nobody tougher or smarter
+- [01:09.960] than the people we have gathered tonight.
+- [01:11.850] I'd like to thank Vice President J.D.
+- [01:14.040] Vance and Secretary Rubio,
+- [01:17.300] Secretary Bessent, Special Envoy Steve Witkoff,
+- [01:20.610] Ambassador Sergio Gore going to India very shortly.
+- [01:24.050] Congratulations, Sergio.
+- [01:26.240] And Rick Grinnell has always done a fantastic job.
+- [01:28.920] Thank you, Rick, very much.
+- [01:31.040] And Senators Jim Risch and Steve Daines for being here.
+- [01:35.770] We have some other people coming in in a little while.
+- [01:38.380] Very distinguished people.
+- [01:39.660] I've just completed a series of outstanding bilateral meetings
+- [01:43.730] with these leaders in the Oval Office
+- [01:45.550] to discuss our ties
+- [01:47.320] with this very important part of the universe.
+- [01:52.390] We're strengthening our economic partnerships,
+- [01:54.820] improving our security cooperation,
+- [01:56.870] and expanding our overall bonds. A tremendous amount of trade
+- [02:00.770] was done just in the last little while.
+- [02:03.360] Lots of great products, military products,
+- [02:06.390] and otherwise are being bought. From the United States.
+- [02:09.310] We make the best military equipment by far in the world,
+- [02:11.880] and they understand it.
+- [02:13.080] Really, they've understood it for a while,
+- [02:16.110] ever since I've been in office,
+- [02:17.390] where we rebuilt completely our military.
+- [02:20.490] I want to thank all of the leaders for being here
+- [02:23.600] and for their dedication
+- [02:25.070] to a strong relationship with the USA.
+- [02:28.340] The nations of Central Asia, known as the C5,
+- [02:31.950] sit at the historical and geographic crossroads of world.
+- [02:36.860] These nations were once home to the ancient Silk Road
+- [02:40.250] connecting east and west.
+- [02:42.990] Great history. Tremendous, beautiful history.
+- [02:46.620] Today, their location in the heart of Eurasia
+- [02:48.870] gives them incredible importance and unbelievable potential.
+- [02:53.170] Sadly, previous American Presidents
+- [02:55.370] neglected this region completely.
+- [02:58.480] It's an unbelievable region. And by the way,
+- [03:00.650] it happens to be an extremely wealthy region, too.
+- [03:03.870] But we are fixing that mistake,
+- [03:05.540] and I'm committed to making America's partnership
+- [03:07.930] with each of these countries stronger than ever before.
+- [03:10.350] And I've had a relationship along before this.
+- [03:13.240] We've had great relationship with some of the leaders
+- [03:15.650] sitting at the table,
+- [03:17.260] and I understand the importance of this region.
+- [03:19.290] One of the most important regions people
+- [03:21.190] just a lot of people don't know that
+- [03:23.340] or didn't know that one of the key items on our agenda
+- [03:26.670] is critical minerals.
+- [03:27.950] In recent weeks, my administration
+- [03:29.840] has strengthened American economic security
+- [03:32.730] by forging agreements with allies and friends
+- [03:35.660] across the world to broaden our critical mineral supply chain.
+- [03:39.370] We had a great relationship and a great meeting
+- [03:41.320] with President Xi of China.
+- [03:43.600] And we went to also, as you know,
+- [03:45.630] our new and fantastic Prime Minister of Japan.
+- [03:50.650] Take a look. What we've done is pretty amazing.
+- [03:54.660] We were with the President of South Korea.
+- [03:57.410] We went to Malaysia and lots of other places.
+- [04:00.420] Had a lot of meetings while in South Korea.
+- [04:04.160] And I think it was a tremendous period of time.
+- [04:06.380] We took in at least $2 trillion pouring into our country.
+- [04:10.550] There's never been anything like it.
+- [04:12.080] We have almost $18 trillion of investment.
+- [04:16.790] And by the time we finish out our first year,
+- [04:19.230] we probably will have about $20 or $21 trillion,
+- [04:22.930] with a T, trillion dollars of investment,
+- [04:25.250] and there's never anything like that
+- [04:27.050] in the history of the world.
+- [04:28.320] Not just. The United States of this
+- [04:31.470] is really the world we're talking about,
+- [04:33.200] nor has anything been close. It's a great honor.
+- [04:36.610] I've had a very talented team next to me,
+- [04:39.580] but it's a great honor to have that kind of economic power.
+- [04:45.610] This was helped greatly by tariffs.
+- [04:47.550] It was helped by November 5th, which was the election,
+- [04:51.130] Presidential election.
+- [04:53.290] But our countries and the countries
+- [04:55.750] that we're dealing with,
+- [04:57.140] they're promoting security, stability.
+- [04:59.930] And everything else that you can imagine for the entire world.
+- [05:03.490] Three months ago, my administration also broke it,
+- [05:06.170] a historic peace agreement
+- [05:07.980] between nearby Armenia and Azerbaijan,
+- [05:11.700] one of the eight wars that we ended in eight months.
+- [05:15.070] At that time, eight months,
+- [05:16.290] we're looking to end one more, if that's possible.
+- [05:18.560] Russia and Ukraine. We haven't gotten there yet,
+- [05:21.840] but I think we've made a lot of progress.
+- [05:24.340] As I said at the time that Historic Accord
+- [05:26.880] includes the construction of the new Trump route.
+- [05:29.520] It's such a beautiful thing. They named it after me.
+- [05:33.520] I really appreciate it. It's actually a big deal.
+- [05:36.630] But it's the new trump route for international peace.
+- [05:40.370] This is a road that's being carved
+- [05:43.920] and goes through some of the most important places
+- [05:48.170] anywhere in the world,
+- [05:49.940] some of the more important places
+- [05:52.140] economically also anywhere in the world.
+- [05:55.370] Which will boost commercial activity
+- [05:57.290] on the other side of the Caspian Sea,
+- [05:59.270] helping nations throughout Central Asia.
+- [06:01.860] I'm optimistic that each of the countries here today
+- [06:04.280] will reap the benefits of peace if they embrace the opportunity
+- [06:08.030] that we've unleashed with the agreement.
+- [06:12.530] Some of the country's we're talking about
+- [06:14.550] and some of the county's represented here
+- [06:16.520] are going to be joining the Abraham Accords.
+- [06:19.700] The Abraham Accord and those announcements
+- [06:22.070] will be made over the next little while.
+- [06:24.260] The Abraham Accords are very sought after right now.
+- [06:28.320] We're going to be announcing some very important countries
+- [06:31.190] that are joining,
+- [06:32.520] and for Jared and for Steve Witkoff.
+- [06:37.130] We appreciate the great job you've done.
+- [06:38.820] This evening, I'm also delighted to report
+- [06:41.540] that Kazakhstan has officially agreed,
+- [06:44.850] and that's official now, as of about 15 minutes ago,
+- [06:50.420] a tremendous country with a tremendous leader.
+- [06:54.300] Has officially joined the Abraham Accords.
+- [06:58.180] And I just want to thank you, Mr. President.
+- [06:59.960] It's a great honor.
+- [07:01.170] It's tremendous honor to have you. Really great.
+- [07:04.190] Once again, I'm grateful that each of these respected leaders
+- [07:08.040] has made the trip to Washington.
+- [07:10.460] And I'm delighted to continue our conversation over dinner.
+- [07:13.710] We're going to have a little working dinner, short one.
+- [07:17.140] They've been flying a long way. It's long flight.
+- [07:20.770] But we're going to have a.
+- [07:22.400] Quick but very fruitful dinner. I want to thank the media.
+- [07:25.500] You've covered it very fairly, and it's really a great honor
+- [07:29.360] to be with these incredible leaders.
+- [07:31.790] These are highly respected people.
+- [07:33.960] And there's no games.
+- [07:35.290] They don't play games, I want tell you that.
+- [07:37.960] So maybe I'd like to ask you, Mr. President,
+- [07:40.400] to say a few words, if you'd like,
+- [07:42.320] and we can go through the list of the five,
+- [07:44.860] and then we'll have a little dinner, please.
+- [07:50.350] President Tokayev: Mr. President,
+- [07:52.010] first of all, I would like to express my sincere gratitude
+- [07:55.850] to you for convening this truly historic meeting
+- [08:00.400] at the White House.
+- [08:02.400] And under your steadfast leadership,
+- [08:05.610] this summit marks the beginning of a new era of interaction
+- [08:11.110] between the United States and Central Asia.
+- [08:15.780] Precisely one year ago you achieved a landslide victory
+- [08:22.750] in historic election which was absolutely clean and fair
+- [08:29.490] and once again my congratulations thank you
+- [08:33.970] and my strong belief that Mr. President
+- [08:38.960] you are the great leader statesman sent
+- [08:43.510] by haven to bring common sense and traditions
+- [08:49.480] that we all share and value back into the United States policy,
+- [08:57.860] either domestic or foreign.
+- [09:01.460] Therefore, millions of people in so many countries
+- [09:05.350] are so grateful to you.
+- [09:07.520] And I'm convinced that your wise and bold policy
+- [09:12.070] needs to be strongly supported worldwide.
+- [09:16.170] Under your presidency,
+- [09:18.080] America is ushering in a new golden age.
+- [09:22.460] I commend your far-sighted vision
+- [09:25.800] of making America great again.
+- [09:29.340] This inspires me to pursue target-oriented strategy
+- [09:35.620] towards building just and strong Kazakhstan
+- [09:40.120] on the basis of my concept, law and order.
+- [09:45.560] As President of peace, you, Mr. Trump,
+- [09:49.650] brought to an end eight wars just within eight months.
+- [09:57.810] Thus, you have evidently reinforced America,
+- [10:03.450] its role as a pillar of international stability.
+- [10:08.210] Mr. President,
+- [10:09.480] I highly appreciate your unwavering support
+- [10:13.770] to advancing Kazakh-American multi-faceted cooperation.
+- [10:18.970] As early as in your first term in the White House,
+- [10:24.060] our relations have been legally fixed
+- [10:26.830] as enhanced strategic partnership.
+- [10:30.800] United States is the largest investor with over $100 billion
+- [10:38.130] in our economy as its perpetuum mobile.
+- [10:43.180] Our trade turnover has doubled in recent years
+- [10:47.430] and is approaching $5 billion.
+- [10:50.490] We cover almost 25% of America's domestic uranium demand.
+- [10:58.750] Kazakhstan has become a home country
+- [11:01.330] for 600 American companies.
+- [11:04.810] So I think that it's a very good figure.
+- [11:10.370] And during my visit alone,
+- [11:12.700] our businesses are concluding deals worth over $17 billion,
+- [11:19.290] paying the way for even greater B2B partnership.
+- [11:24.040] So my political will to seize all those unique opportunities.
+- [11:33.320] And this wheel is firm, is irreversible,
+- [11:38.090] and I will keep all important issues
+- [11:40.860] under my personal attention.
+- [11:42.930] I have no doubts that we have very bright future
+- [11:47.380] as it comes to our bilateral cooperation.
+- [11:49.160] Thank you.
+- [11:50.460] The President: Thank you, Mr. President.
+- [11:51.660] Great job, too. Thank you very much.
+- [12:01.770] Uzbekistan Translator: Esteemed Mr. Trump,
+- [12:03.570] we highly value your personal contribution
+- [12:07.320] to reboot process of C5 plus one.
+- [12:10.770] Before that, none of the Presidents
+- [12:13.020] of United States of America
+- [12:14.610] never treated Central Asia as you do.
+- [12:17.770] Me personally and all my colleagues are grateful to you.
+- [12:21.930] We felt your close attention, your attitude,
+- [12:26.670] and it means a lot for us. Thank you very much for that.
+- [12:30.430] In reality, indeed, I'd like to repeat myself.
+- [12:33.860] I've told you that already.
+- [12:35.180] In Uzbekistan, we call you the President of the world.
+- [12:39.870] You've done a lot.
+- [12:41.350] You were able to stop eight wars.
+- [12:44.280] And I'm sure that I'm convinced
+- [12:46.800] that the war between Russia and Ukraine
+- [12:49.450] can be only stopped by you.
+- [12:51.120] And we are very much hopeful for that.
+- [12:53.390] Today's summit shows that the United States of America,
+- [12:57.290] foresees Central Asia as key partner.
+- [13:01.460] Together we develop a future which is based on trust
+- [13:06.150] and pursuance to creation. I have a number of proposals.
+- [13:14.090] I would like to establish a permanent secretariat
+- [13:16.570] and place it based on rotations
+- [13:19.080] in different countries of Central Asia.
+- [13:21.400] Number two, to establish Coordination Council
+- [13:24.850] on Investments and Trade.
+- [13:26.780] And to provide for the systemic dialog
+- [13:29.940] between public authorities and companies.
+- [13:33.200] We think that the idea to establish
+- [13:36.250] a central Asian investment partnership
+- [13:38.590] would be a good idea.
+- [13:40.130] So we were able to agree on that in 2020.
+- [13:45.600] We are ready to continuously work with the U.S.
+- [13:48.670] On establishing communication and energy projects,
+- [13:56.490] to link Central Asia and Europe, applying and using Trump route.
+- [14:04.510] Three-year plan has been established,
+- [14:06.720] as I told you already,
+- [14:08.210] to implement our investment program
+- [14:10.620] for 34 billion US dollars. Those are large projects,
+- [14:15.170] and we've discussed it with you already both in New York
+- [14:18.710] and today I've mentioned it to you.
+- [14:20.710] So we have strong perspective. Once again.
+- [14:24.820] I would like to express my deepest gratitude
+- [14:28.210] for all that has been already done.
+- [14:32.000] And we will take back a lot of results from this summit.
+- [14:38.180] It is a landmarking summit,
+- [14:41.730] and your attitude towards all of us
+- [14:45.510] means your great support to us to strengthen Central Asia
+- [14:50.380] and to strengthen the partnership
+- [14:52.460] between Central Asia and you, the U.S.,
+- [14:55.770] C5 plus one have to become efficient mechanism
+- [14:59.560] of our practical partnership.
+- [15:01.860] And I propose to host our next summit in 2026 in Samarkand
+- [15:07.840] to establish this further.
+- [15:09.740] I'm pretty sure that I'm convinced, Mr. Trump,
+- [15:13.500] that under your leadership, it will be a strong partnership.
+- [15:17.650] Thank you very much for your attention
+- [15:19.700] and we will be well prepared for the summit in Samarkand.
+- [15:24.470] The President: Thank you, Mr. President.
+- [15:32.110] Tajikistan Translator: President Donald Trump,
+- [15:33.870] I thank you very much for invitation to participate
+- [15:37.760] in today's very important high-level commemorative meeting
+- [15:42.600] in the format of C5
+- [15:44.440] Plus One, the Settlement of the United States.
+- [15:47.670] You play a remarkable and highly commendable role
+- [15:50.970] in ensuring peace and stability
+- [15:53.500] in conflict-ridden regions around the world
+- [15:57.410] and your peaceful efforts are worthy of praise,
+- [16:00.680] and I extend my Heartful congratulations to you,
+- [16:03.660] Mr. President. And today, our collaboration,
+- [16:06.590] our wide-ranging bilateral cooperation
+- [16:09.670] covers different areas, trade, economy, security.
+- [16:13.540] As it comes to our security cooperation,
+- [16:16.100] we particularly have an excellent cooperation
+- [16:18.960] on counterterrorism,
+- [16:20.550] fighting extremism, and the drug trafficking.
+- [16:24.130] Mr. President, over 70 companies with American investment
+- [16:29.160] are operating in Tajikistan today.
+- [16:31.520] And ninety-three percent of my country is mountainous,
+- [16:35.940] and we have an abundance of natural resources,
+- [16:38.400] particularly water, hydropower, critical minerals,
+- [16:42.530] and rare earth materials.
+- [16:44.460] Tajikistan is a home for 13,000 glaciers,
+- [16:48.980] and approximately 60 percent of sent glacial water resources
+- [16:53.520] originate in Tajikstan. And our countries reach
+- [16:57.170] in strategically important minerals include
+- [17:00.430] including rare earth minerals and critical materials.
+- [17:04.290] Tajikistan is a member of both the European Union's
+- [17:07.530] Critical Raw Materials Club
+- [17:09.730] and the United States Mineral Security
+- [17:12.360] Partnership Instrument.
+- [17:15.110] And according to the United State Geological
+- [17:18.890] Survey, our country ranks the second in the world
+- [17:22.560] in terms of antimony production
+- [17:24.970] and is currently the largest producer of metallic antimony
+- [17:29.080] which is the United States are deeply interested in
+- [17:33.260] and we have a brilliant cooperation on this
+- [17:35.640] and last year antimony accounted for 97 percent
+- [17:39.600] of Tajikistan total exports to the to the United states.
+- [17:44.270] In 2024 Tajikastan produced
+- [17:47.330] and exported 17 000 tons of metallic antimoney
+- [17:51.660] primarily to the United States and the activities of
+- [17:56.940] Anzor joint venture and Anzorb metallurgical company
+- [18:00.760] in Tajikistan with American investment by ComSap,
+- [18:07.050] American company exemplify of a strong
+- [18:09.640] and long enduring collaboration.
+- [18:12.150] However, there are still many opportunities
+- [18:14.760] in terms of trade and investment,
+- [18:17.200] and we are interested in expanding economic
+- [18:21.680] and trade cooperation between other countries.
+- [18:25.150] So there is a good opportunity to cooperate
+- [18:27.870] in creating new generation of sustainable
+- [18:30.130] artificial intelligence data centers.
+- [18:33.540] And since we have a brilliant cooperation with FINAVA
+- [18:37.360] Air Company, since 2008 Tajikistan Somoneo
+- [18:41.440] Company had purchased eight mid-size
+- [18:44.280] Boeing aircraft with a total volume of $440 million.
+- [18:49.150] And this company is expected to receive
+- [18:51.630] two more mode in Boeing 737 MAX 8 aircraft next year.
+- [18:55.760] And the total commercial package of Boeing
+- [19:00.160] with a summoner yet exceeds 3 billion US dollars.
+- [19:06.590] And American companies, we have excellent cooperation
+- [19:13.190] with American companies over the last 20 years.
+- [19:16.420] And the American companies
+- [19:17.800] they're particularly interested in antimony
+- [19:20.890] and many rare earth minerals where Tajikistan,
+- [19:23.750] which Tajikastan is, has abundant resources.
+- [19:27.290] And Tajikestan among the central Asian countries
+- [19:31.560] as a very rich boundless potential
+- [19:36.150] and resources in critical minerals.
+- [19:39.030] And we are very keen to continue closely our cooperation
+- [19:43.100] on security items which we are so concerned for so far.
+- [19:46.400] And I wish you every bit of luck
+- [19:47.910] and to your endeavors as a peaceful,
+- [19:50.120] as a President of peace.
+- [19:51.990] Kyrgyzstan Translotor: (inaudible)
+- [20:03.440] representatives.
+- [20:04.990] For me, it's a great pleasure for me
+- [20:07.080] to have a bilateral meeting with President His Excellency Donald
+- [20:13.410] Trump to participate in the C5 Plus one. First and foremost,
+- [20:18.310] I would like to express my sincere gratitude
+- [20:20.730] to President Donald Trump
+- [20:22.510] for his kind invitation and warm hospitality
+- [20:25.280] and this opportunity to speak about important topics.
+- [20:30.190] Kyrgyzstan. Values, the United States of America
+- [20:35.950] is one of the important partners in foreign policy.
+- [20:39.590] During our bilateral meeting,
+- [20:41.010] we discussed some actual topics of the Kyrgyz-U.S.
+- [20:45.700] Relations as well as the strengthening cooperation
+- [20:50.990] between the Central Asian countries.
+- [20:54.220] With regard to Kyrgiz-American relations,
+- [20:56.430] I would like to emphasize four main areas economy
+- [20:59.150] and investment.
+- [21:00.610] Including tourism, hydropower development,
+- [21:03.810] digital economy, artificial intelligence,
+- [21:07.010] and information technology,
+- [21:09.510] ensuring peace and security and stability.
+- [21:12.140] In this context, I wish to highlight
+- [21:14.110] the significant contribution made by President Donald Trump
+- [21:17.840] to strengthening global stability
+- [21:20.460] to ending conflicts in different parts of the world.
+- [21:27.110] When I started my office of the President,
+- [21:30.550] I identified the main priority as resolved border issues
+- [21:35.160] with our neighboring states
+- [21:37.690] in the spirit of good neighborhoodness.
+- [21:40.880] Today, after five years, I am pleased to note
+- [21:43.570] that together with my counterparts,
+- [21:46.120] we have successfully achieved this goal,
+- [21:48.880] most importantly through peaceful means.
+- [21:52.410] As a result, the role of Central Asia in global politics
+- [21:55.370] has grown substantially and major powers
+- [21:58.990] have shown increasing interest in cooperation with the region.
+- [22:03.280] The C5-plus-1 format has become an important platform
+- [22:07.040] for advancing political dialog. And I'm very glad about that.
+- [22:13.420] I would like to express my special appreciation
+- [22:16.120] to your Excellency President Donald Trump
+- [22:18.990] for initiating and hosting today's summit.
+- [22:22.420] And we really feel warm hospitality.
+- [22:27.710] We highly value this step and regard it as a demonstration
+- [22:31.420] of the United States' goodwill and commitment
+- [22:34.230] toward Central Asia and friendship.
+- [22:37.000] I am confident that our joint efforts will lead to concrete,
+- [22:40.720] mutually beneficial outcomes for both nations and people.
+- [22:43.950] Thank you very much for your attention.
+- [22:46.470] The President: Thank you very much.
+- [22:47.820] Thank you very much.
+- [22:56.350] Translator: I thank you, Mr. President.
+- [22:58.810] First of all, I would like to express my deep gratitude,
+- [23:03.120] Mr. President, for the invitation.
+- [23:08.360] Attend this C5 Central Asia plus U.S. Summit.
+- [23:14.670] We consider.
+- [23:18.870] We recognize the good results they made
+- [23:21.130] since the development of this format
+- [23:24.160] and of course expand the cooperation
+- [23:29.260] in such strategically important areas as security,
+- [23:32.320] economy, energy, and environment.
+- [23:35.080] We believe that the results of this summit will lead us
+- [23:39.690] to further expansion of multi-phase cooperation
+- [23:44.080] between Central Asia and the United States of America.
+- [23:47.460] I do appreciate, Mr. President, for your warm hospitality.
+- [23:51.770] I do you appreciate it.
+- [23:55.250] The President: Thank you very much,
+- [23:56.530] and thank everybody.
+- [23:58.140] We'll have a little more to discuss,
+- [24:00.740] but a lot of progress has been made today.
+- [24:02.510] And it's a great honor to have you with us
+- [24:05.190] in the United States of America. Thank you.
+- [24:07.540] And to the media, maybe a couple of questions,
+- [24:11.260] ideally on this topic. Please.
+- [24:17.380] The Press: Kazakhstan and the U.S.
+- [24:18.740] have signed over $17 billion
+- [24:21.850] in new deals in aviation, minerals, in digital technology.
+- [24:26.270] In your view, which area of this partnership matters most?
+- [24:30.230] And second question, President Trump,
+- [24:32.330] when can we report that you will be the first U. S.
+- [24:35.720] President to visit Kazakhstan? When will you be our guest?
+- [24:39.440] The President: I think it's very possible that we'll do that.
+- [24:42.060] And I think all of those are very important items
+- [24:45.070] when you think of it, right?
+- [24:47.420] You never know from year to year.
+- [24:48.990] One becomes more important than the other,
+- [24:50.570] but they're all important.
+- [24:51.810] And your country has great natural resources
+- [24:55.420] and a great President. Very great President, okay?
+- [25:00.110] Thank you very much. Yes, please.
+- [25:02.800] The Press: (inaudible)
+- [25:05.560] we are just expecting Jackson-Weinick amendment.
+- [25:14.700] The President: No, go ahead. Yeah, go ahead.
+- [25:16.080] Speaker 10 (inaudible)
+- [25:17.810] Jackson-Bannock is overdue to be repealed
+- [25:22.280] with the help of the President, with working with the President.
+- [25:25.330] We are going to get that repealed
+- [25:27.510] in the very near future.
+- [25:29.360] The President: Okay? Thank you very much.
+- [25:31.260] Yes, please.
+- [25:33.730] The Press: On this topic, Kazakhstan already
+- [25:36.760] has diplomatic relations with Israel.
+- [25:38.930] Can you talk about the significance of this agreement
+- [25:41.700] in terms of what it would signal to the region
+- [25:44.390] as Gaza moves toward rebuilding?
+- [25:46.470] And on the shutdown, there's been discussion
+- [25:48.710] about potentially a deal,
+- [25:50.590] but it would involve rehiring the federal workers
+- [25:52.980] who were laid off. What's your opinion of that?
+- [25:55.000] The President: Well, we're going to see about the shutdown.
+- [25:56.530] Look, the shutdown is caused by the Democrats,
+- [25:59.530] and we're not going to spend a trillion dollars
+- [26:02.190] or one and a half trillion dollars on healthcare
+- [26:04.390] for people that came into our country illegally,
+- [26:06.310] many of them from prisons
+- [26:07.580] and many of them drug dealers and murderers, 11,888 murderers.
+- [26:13.060] We're not doing that. So we'll see about that.
+- [26:15.740] We shouldn't -- they should have,
+- [26:17.910] as they've done always in the past,
+- [26:19.720] it should have just been extended.
+- [26:21.010] It could have been extended very easily,
+- [26:23.170] And it should have been. Yes, please.
+- [26:24.640] The Press: Is there an agreement
+- [26:25.880] between the Abraham Accords of significance, sir,
+- [26:28.270] given that they already
+- [26:29.570] have the diplomatic relations with Israel,
+- [26:31.310] what this agreement is supposed to signal?
+- [26:33.300] The President: Do you want to answer that please?
+- [26:37.560] The Vice President: Yeah, so I think
+- [26:39.860] the diplomatic significance
+- [26:41.330] is that it gives a great momentum to the Abraham Accords.
+- [26:43.550] And to recap for those who are listening
+- [26:46.810] who don't want to appreciate,
+- [26:48.110] the Abraham Accords of course is the historic agreement
+- [26:50.570] struck by the President in the first term
+- [26:52.630] to rebuild the alliance structure
+- [26:54.260] and the relationships between Israel
+- [26:56.260] and a number of the majority Muslim countries
+- [26:59.590] in that region of the world.
+- [27:01.330] What the President has done is actually signaled
+- [27:03.830] that the momentum of the Abraham Accords is alive
+- [27:07.100] and well in the second administration.
+- [27:08.960] I think it's not just going to be Kazakhstan,
+- [27:10.660] but also a number of other countries
+- [27:11.870] that join in the months to come.
+- [27:13.400] So it's a great signal, a great act of friendship,
+- [27:16.190] and a great sign that the Abraham Accords alive and well.
+- [27:21.630] Secretary Rubio: I think that's the wrong way to analyze it.
+- [27:23.250] There's a lot of countries
+- [27:24.490] that have diplomatic relations with one another.
+- [27:26.220] The Abraham Accords is a partnership.
+- [27:28.670] It's an enhanced relationship beyond just diplomatic relations
+- [27:31.780] and having embassies in each other's capitals.
+- [27:34.030] It is, and it's not just with Israel,
+- [27:35.480] it's with all the other countries
+- [27:36.770] that are part of the accord,
+- [27:38.010] you're now creating a partnership
+- [27:39.320] that brings special and unique economic.
+- [27:43.100] Development on all sorts of issues
+- [27:45.890] that they can work on together.
+- [27:47.620] So that's really the benefit of it and the strength of it
+- [27:50.460] is to have majority Muslim countries,
+- [27:52.790] the Jewish state, able to partner on things
+- [27:55.550] to show the world that it is possible.
+- [27:57.150] The President: Essentially, we've really expanded
+- [27:58.610] the Abraham Accords,
+- [27:59.810] and one of the reasons is we are right now in negotiations
+- [28:03.110] or talks with many countries that really wanted to come in
+- [28:07.880] but they couldn't because of the status of Iran.
+- [28:10.040] When Iran had a possibility of nuclear weapons,
+- [28:13.090] which they do not have now,
+- [28:14.960] when Iran was the bully of the Middle East,
+- [28:18.700] let's call it the bully the Middle east,
+- [28:20.590] which it isn't anymore, they had a hard time going against that.
+- [28:25.090] I understand that. Now that.
+- [28:26.790] Iran has been very much decimated
+- [28:29.060] in terms of their nuclear and in terms their regular
+- [28:32.240] because of the actions we took with those beautiful B-2 bombers
+- [28:35.260] and other things. People really want to come in,
+- [28:38.680] and so we are in very active discussions
+- [28:41.630] with the more traditional potential members
+- [28:43.980] of the Abraham Accords.
+- [28:45.510] The four originals are phenomenal,
+- [28:47.070] and they're doing really well.
+- [28:48.370] They're making a lot of money with trade
+- [28:50.430] and other things being in the Abraham accords.
+- [28:52.740] And we're expanding it a little bit.
+- [28:54.370] When a few of these countries come in.
+- [28:57.030] That's a great expansion.
+- [28:58.810] And these are very substantial countries.
+- [29:00.500] So we consider that a great honor.
+- [29:02.750] It was brought to our attention that they wanted to do that,
+- [29:05.010] and we think that's great.
+- [29:06.220] So it's really an expansion of the Abraham Accords, okay?
+- [29:12.450] The Press: Thank you so much for your time, sir,
+- [29:13.880] on these important issues.
+- [29:15.690] I wanted to hear if you have an update
+- [29:17.380] on the Russian oil sanctions.
+- [29:19.100] We're seeing reports that the exports are way down.
+- [29:22.380] So how do you think that could affect the war in Ukraine,
+- [29:25.680] the United States' interests,
+- [29:27.020] and your partners here tonight, too?
+- [29:28.690] The President: Well, I can say that the exports from Russia
+- [29:31.380] are way down.
+- [29:32.670] We'd just like to see an end to the war.
+- [29:34.290] We'd love to see and end to that war.
+- [29:35.860] So many people are being killed.
+- [29:37.170] A lot of Russian soldiers are being killed.
+- [29:39.690] So we think at some point they are going to get very smart,
+- [29:42.650] and they're going to do that.
+- [29:43.940] So, yeah, Russian exports are substantially down.
+- [29:49.210] The Press: (inaudible)
+- [29:52.030] on foreign policy is in particular
+- [29:53.920] related to South and Central Asia and China.
+- [29:57.070] The President: Well, look, we had a tremendous meeting,
+- [29:59.690] as you know, with President Xi and China.
+- [30:02.350] And my doctrine would be denuclearization
+- [30:05.380] because we have enough nuclear. We're number one.
+- [30:08.140] Russia is number two. China is number three.
+- [30:11.430] Way behind, but they'll be even in four or five years.
+- [30:13.590] They're, you know, working overtime on nuclear weapons.
+- [30:17.930] I think that denuclearization would be a great thing.
+- [30:21.480] We could blow up the world 150 times.
+- [30:24.290] There is no need for this.
+- [30:26.060] So, I really think we're going to have --
+- [30:28.270] I've spoken to President Putin about it,
+- [30:29.970] I've spoken to President Xi about it.
+- [30:32.500] And everybody would like to spend all of that money
+- [30:36.180] on other things -- people that really --
+- [30:38.220] you know, things that can benefit people now.
+- [30:41.300] So I think something like that could happen --
+- [30:43.510] the denuclearization.
+- [30:45.090] It's really -- I want peace, I want peace through strength,
+- [30:47.900] but we want peace all over the world,
+- [30:49.520] and we're very close to getting it.
+- [30:51.470] We had a lot of wars raging. That people didn't know about.
+- [30:54.550] Now they're not raging anymore. We have one left,
+- [30:56.640] and we're going to hopefully get that taken care of.
+- [30:59.900] Yes, sir, go ahead.
+- [31:01.100] The Press: Do you have an update
+- [31:02.320] on how soon that international stability force
+- [31:04.880] may be on the ground in Gaza?
+- [31:07.300] The President: Very soon. It's going to be very soon.
+- [31:09.070] And Gaza is working out very well.
+- [31:11.750] And you haven't been hearing too much about problems.
+- [31:14.030] And I'll tell you, we've had countries that have volunteered,
+- [31:17.680] if there's a problem with Hamas, as an example,
+- [31:20.010] or a problem anything, they volunteered to,
+- [31:22.310] on a single basis, go in and take care of it.
+- [31:25.330] We have very powerful countries in this coalition.
+- [31:27.690] And it's not, you know, this is a
+- [31:30.070] Because I've heard some of the press saying,
+- [31:31.790] well, it's a very tentative or it's not tentative.
+- [31:34.350] This is a very strong piece.
+- [31:35.710] This is peace in the Middle East.
+- [31:37.700] Hamas is a small part of it, very, very small part.
+- [31:41.540] And if they don't do as they said,
+- [31:43.680] if they do not behave,
+- [31:45.380] then they've got themselves a big problem,
+- [31:47.800] a really big problem like they've never had.
+- [31:50.640] But so far it seems to be working out very well.
+- [31:53.130] But that's a small of what we're talking about.
+- [31:55.370] That's a part of Gaza. You're going to have a very –
+- [31:58.730] I think we can say, Marco, we have a strong peace.
+- [32:01.410] This is a strong piece.
+- [32:02.610] We have many countries involved in the Middle East.
+- [32:05.360] Essentially, these countries are all involved.
+- [32:07.230] They want to see peace in the middle east.
+- [32:09.460] And Marco, what would you say about that?
+- [32:11.410] The President: No, I think that's right, Mr. President.
+- [32:12.950] You deserve a tremendous amount of credit
+- [32:14.200] for making that possible. And now I think the only reason
+- [32:16.660] why it's going to continue to happen
+- [32:18.120] is because of the President's role in this.
+- [32:20.190] So there's work being done at the United Nations now
+- [32:22.380] to come up with a resolution
+- [32:23.610] that creates the framework internationally
+- [32:25.910] so that these countries who are all volunteering,
+- [32:27.610] as you know, Mr President,
+- [32:28.900] to be a part of the stabilization force.
+- [32:31.170] Can come aboard, but they need this U.N. Mandate
+- [32:34.170] in order to be able to do it,
+- [32:35.530] and we've made a lot of progress over the last few days,
+- [32:37.440] and Jared Kushner and Steve Woodcock
+- [32:39.980] have been working very hard on that,
+- [32:41.500] and today was a good day on that front.
+- [32:46.070] The President: Go ahead, please. Fox.
+- [32:47.480] The Press: Will you discuss the Abraham Accords
+- [32:49.070] when you meet with the President of Syria?
+- [32:53.030] The President: Well, we're going to meet.
+- [32:54.690] And I think he's doing a very good job.
+- [32:56.620] It's a tough neighborhood, and he's a tough guy.
+- [33:00.530] But I got along with him very well,
+- [33:02.420] and a lot of progress has been made with Syria.
+- [33:04.680] That's a -- that's a tough one.
+- [33:06.930] But a lot progress has been made.
+- [33:08.670] You know, we took the sanctions off at the request of Turkey,
+- [33:11.490] at the request of, actually, Israel,
+- [33:14.070] at the request a few different countries,
+- [33:16.990] and we took the sanctions off to give them a chance.
+- [33:20.270] And frankly, Iran has been asking
+- [33:22.220] if the sanctions could be lifted.
+- [33:23.700] Iran has got very heavy U.S. sanctions,
+- [33:26.160] and it makes it really hard for them to do
+- [33:28.420] what they'd like to be able to do.
+- [33:29.670] And I'm open to hearing that, and we'll see what happens,
+- [33:33.010] but I would be open to it.
+- [33:34.250] But we did take the sanctions off Syria
+- [33:36.880] in order to give them a fighting shot.
+- [33:38.640] And I think so far they're --
+- [33:40.370] I think he's doing a very good job so far.
+- [33:43.270] Fox?
+- [33:45.700] The Press: A federal judge said
+- [33:47.110] tonight that the administration has to fully fund
+- [33:49.780] SNAP. It's the latest in the back and forth,
+- [33:52.540] and the Justice Department said they're going to appeal it.
+- [33:55.190] What's your message to folks as they work this out in the courts
+- [33:58.750] and in Congress as we're heading into Thanksgiving?
+- [34:02.050] The President: You want to go with it.
+- [34:03.880] The Vice President: Look, Jackie,
+- [34:05.080] it's an absurd ruling because you have a federal judge
+- [34:07.960] effectively telling us what we have to do in the midst
+- [34:11.270] of a Democrat government shutdown,
+- [34:13.190] which what we'd like to do is for the Democrats
+- [34:15.110] to open up the government, of course,
+- [34:16.320] then we can fund SNAP,
+- [34:17.530] and we can also do a lot of other good things
+- [34:19.050] for the American people. But in the middle of a shutdown,
+- [34:21.590] we can't have a Federal Court telling the President
+- [34:24.160] how he has to triage the situation.
+- [34:26.280] We're trying to keep as much turned on
+- [34:29.270] we're trying to keep it going as much going as possible.
+- [34:31.520] The President and the entire administration
+- [34:33.300] are working on that, but we're not going to do it
+- [34:35.730] under the orders of a federal judge.
+- [34:38.170] We're going to do according to what we think we have to do
+- [34:42.090] to comply with the law, of course,
+- [34:43.940] but also to actually make the government work for people
+- [34:47.380] in the midst of the Democrat government shutdown.
+- [34:49.590] If they would like to end this,
+- [34:51.330] we would welcome working with them
+- [34:53.970] to end the government shutdown,
+- [34:55.690] and then we wouldn't have to triage what we're going to fund
+- [34:58.280] and what we are not going to fund.
+- [34:59.690] And the last thing that I'll say is.
+- [35:01.270] The American people are, unfortunately,
+- [35:03.220] about to start suffering some very real consequences
+- [35:05.700] because of the shutdown.
+- [35:07.010] In the past, when you had a government shutdown,
+- [35:09.740] you would have, under the Obama administration,
+- [35:11.950] they would lean into all of the problems
+- [35:13.740] it was going to cause for the American people
+- [35:15.570] at the beginning of the shut down.
+- [35:17.200] The President has told us
+- [35:18.500] to keep as much going as humanly possible,
+- [35:21.730] but after 30 days of this thing, 40 days of thing,
+- [35:24.930] you're going to start seeing very real travel delays.
+- [35:27.210] That's because the Democrat government shutdown.
+- [35:29.180] You're going to start seeing snap benefits run out.
+- [35:31.260] That's because the Democrat government shut down.
+- [35:33.340] They should stop the charade and open up the government.
+- [35:35.990] That's what we want them to do.
+- [35:37.400] We've been asking them to it for 40 days. It's time.
+- [35:39.850] The President: And you know, one other thing,
+- [35:41.230] our country has to remain very liquid
+- [35:43.230] because problems, catastrophes, wars,
+- [35:46.740] could be anything. We have to remain liquid.
+- [35:48.860] We can't give everything away based on a number.
+- [35:53.810] Here's an example. When I was President,
+- [35:56.500] the number that you're talking about
+- [35:58.020] was a tiny fraction of what it is now.
+- [36:00.900] Biden went totally crazy.
+- [36:02.360] Gave it to anybody that would ask.
+- [36:04.160] Gave to people that were able-bodied, had no problem.
+- [36:07.550] Anybody that would have asked, we get the number.
+- [36:09.400] And it's many times the number of people around.
+- [36:12.470] This wasn't meant for that.
+- [36:14.440] It was meant for people that had real problems.
+- [36:17.320] In many cases, people that would down and out,
+- [36:19.790] people that could be saved.
+- [36:21.130] It wasn't for people who could do whatever they want.
+- [36:24.050] The people that say, well, I don't think I'll work.
+- [36:25.810] I'll just, you know, collect this money.
+- [36:28.460] Take a look at the number of what it was
+- [36:30.150] during my administration
+- [36:31.480] and what it was during the Biden administration.
+- [36:34.580] It went up many, many times my first term.
+- [36:37.760] One other thing, a number came out today that was amazing.
+- [36:42.690] Walmart. I trust Walmart.
+- [36:44.630] Arkansas, great place, Arkansas, a great company, Walmart.
+- [36:48.910] They announced today with -- after many years,
+- [36:51.830] they do this every year for many years
+- [36:54.310] that Thanksgiving for the United States of America,
+- [36:58.790] under Donald Trump as President,
+- [37:00.820] is 25 percent less for Thanksgiving meal,
+- [37:05.420] with all the trimmings than it was under
+- [37:08.040] Sleepy Joe Biden's administration.
+- [37:10.710] So, we talk about affordability.
+- [37:13.570] I think that's the best chart. That's better than a poll.
+- [37:15.860] That's good than anything I can think of.
+- [37:18.310] So, Walmart, which everybody trusts,
+- [37:20.320] and I trust, and everybody trusts Walmart.
+- [37:23.180] They're not looking to do anything
+- [37:24.530] except give the numbers. And they have for many years.
+- [37:27.100] They talk about the cost of Thanksgiving
+- [37:29.640] and the cost of living through Thanksgiving
+- [37:32.360] and enjoying Thanksgiving. For Joe Biden,
+- [37:36.300] it was 25 percent more than it is for me at a later time.
+- [37:41.510] Our energy costs are way down,
+- [37:43.030] our groceries are way down, everything is way down.
+- [37:46.360] And the press doesn't report it.
+- [37:48.600] The press reports whatever the con people say.
+- [37:51.410] You know, I called the Democrats.
+- [37:53.190] Con men and women, they make up numbers.
+- [37:56.390] But when you look at the 25 percent reduction
+- [37:59.050] in costs for Thanksgiving between Biden and me,
+- [38:02.680] meaning this administration, that's a tremendous number.
+- [38:05.110] That's a tremendously --
+- [38:06.460] it's the biggest reduction in cost
+- [38:09.310] in the history of that chart or whatever it is they do,
+- [38:13.300] that they do a synopsis of everything.
+- [38:16.540] They cover every element of Thanksgiving meals.
+- [38:20.460] 25 percent down.
+- [38:22.060] So I don't want to hear about the affordability,
+- [38:24.640] because right now we're much less.
+- [38:26.150] If you look at energy,
+- [38:27.410] we're getting close to $2 a gallon gasoline.
+- [38:30.500] With Biden, it was $4.50, $5.00. Another thing, inflation.
+- [38:35.380] We had the worst inflation in the history of our country.
+- [38:38.470] Now we have virtually no inflation at all.
+- [38:40.510] It's down at a very low number and a very normal number.
+- [38:44.670] So the afford ability is much better with the Republicans.
+- [38:47.480] The only problem is the Republicans don't talk about it.
+- [38:50.550] And Republicans should start talking about it
+- [38:53.150] and use their heads because we have great numbers.
+- [38:56.180] We have great -- and they're going to only get better.
+- [38:58.640] When all these jobs open up, all these factories open up
+- [39:01.530] that are being built all over our country --
+- [39:04.950] I mean, we are building auto plants.
+- [39:06.590] We're building A.I. plants. We're leading in A.I.
+- [39:08.800] over China and everybody else.
+- [39:11.030] When all of these plants start opening,
+- [39:12.650] we're going to have a revolution,
+- [39:14.920] a positive revolution, economic revolution like never before.
+- [39:18.730] Thank you very much, everybody. Thank you.
+- [39:24.530] Thank you.

@@ -1,0 +1,415 @@
+<!-- source: https://www.youtube.com/watch?v=3jBdDTv5G20 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 3jBdDTv5G20 -->
+<!-- date_published: 2025-08-21T21:56:19+00:00 -->
+<!-- date_accessed: 2026-06-02T02:45:26.464975+00:00 -->
+
+# Transcript: President Trump Joins Law Enforcement and Military Personnel in Washington, D.C.
+
+- [00:01.160] The President: What a nice group.
+- [00:02.400] Thank you. Thank you. Got to be very careful.
+- [00:07.956] You don't want to slip or fall like somebody else I know.
+- [00:10.560] We don't want that to happen.
+- [00:13.830] Where are we going, Margo, over here?
+- [00:17.260] Hello, everybody. It's great to be with you.
+- [00:19.010] You guys are doing a fantastic job and gals
+- [00:22.310] doing an amazing job, and we appreciate it.
+- [00:25.320] The numbers are down like we wouldn't believe,
+- [00:28.330] but we believe it. Where do I stand here?
+- [00:33.140] Right where? Okay, hello.
+- [00:37.860] It's a healthy, attractive- looking group of people.
+- [00:42.860] Well, I just want to thank everybody very much
+- [00:45.050] for being here. I wanted to do this.
+- [00:47.620] We've had some incredible results.
+- [00:50.820] The results have come out, and it's like a different place.
+- [00:54.770] It's like different city. It's the capital.
+- [00:57.630] It's going to be the best in the world.
+- [00:59.170] We're going to do what you're doing with law enforcement.
+- [01:02.050] And very importantly, also, we're going to physically do it.
+- [01:04.660] We're go back to Congress for some money,
+- [01:07.770] and we're going to redo a lot of the pavement,
+- [01:10.560] a lot the medians, a lot of the --
+- [01:12.970] the graffiti is all coming off real fast.
+- [01:15.090] It's going to come down real fast,
+- [01:17.110] we're working with Clark Construction there.
+- [01:19.430] One of the big ones.
+- [01:20.650] They're the biggest here by far, actually.
+- [01:23.210] And we're going to be not so much building,
+- [01:25.640] it's cleaning and fixing and redoing
+- [01:28.420] and putting brand-new surfaces down on your roads and streets.
+- [01:31.830] And when people come in from the airport
+- [01:34.300] all the way to the Capitol,
+- [01:35.530] the White House, or any place else they go in,
+- [01:37.340] they're going say, boy, this place is spotless.
+- [01:39.850] So we're doing that. Most importantly, though,
+- [01:41.730] we're going to have a crowd of people
+- [01:43.750] that are going to be happy.
+- [01:45.020] You know, I've received more phone calls from people
+- [01:48.420] in the last four days than I ever have.
+- [01:51.460] I've been here now four years plus.
+- [01:54.220] And, by the way, I think we had about the best seven months,
+- [01:57.320] they're saying, that any President has had.
+- [01:59.590] We've done a lot of work. We've did a lot good work,
+- [02:02.240] including the biggest tax cuts that you've ever had.
+- [02:04.850] I know you guys don't care about taxes,
+- [02:06.580] so you don't about saving a little tax,
+- [02:08.860] but you saved a lot a tax, actually.
+- [02:11.270] But We've had a great, great period of time.
+- [02:14.450] But I've never received so many phone calls
+- [02:17.240] thanking me for what we've done in Washington,
+- [02:20.150] D.C., from people that haven't gone to a restaurant
+- [02:22.770] literally in four years. And they said,
+- [02:26.130] you know, what you've done is it's unprecedented
+- [02:29.590] because what they said was just unsafe.
+- [02:33.600] We couldn't do it. We'd go out
+- [02:35.640] and you'd see the stories, you'd read the stories.
+- [02:38.430] You'd see all of the things that are happening.
+- [02:40.790] And they said, we just --
+- [02:42.340] we couldn't -- we couldn't stand it, sir.
+- [02:44.340] And now I take my wife and my kids to dinner.
+- [02:47.440] One of them said he's gone out four nights in a row,
+- [02:50.660] and he hadn't gone out for four years.
+- [02:53.250] So it's a great tribute to you.
+- [02:55.600] And when I look at you people, I understand why,
+- [02:58.830] because they -- there's no games, right?
+- [03:00.720] We're not playing games. We're going to make it safe.
+- [03:03.410] And we're going then go on to other places.
+- [03:05.570] But we're going to stay here for a while.
+- [03:06.970] We want to make this absolutely perfect.
+- [03:09.050] It's our capital.
+- [03:10.630] And I guess it used to be many years ago safe,
+- [03:14.920] but it's certainly not had a very good run.
+- [03:18.370] And you got to be strong,
+- [03:19.670] you got be tough, you got to do your job.
+- [03:21.590] Whatever it takes to do you job, you've got to do your jobs.
+- [03:24.540] But the crime numbers are way down.
+- [03:26.170] I'm looking at -- you saw some of the stats.
+- [03:28.020] They just read them out to me inside.
+- [03:30.060] They're numbers that we haven't seen here ever.
+- [03:33.950] Actually, ever. And I think it's probably --
+- [03:37.470] right now, to me, I feel very safe now
+- [03:40.060] and I'm hearing people are very safe,
+- [03:41.550] but I know within two weeks it's going to be, bam,
+- [03:44.780] it's going to be at a level that's even far superior.
+- [03:48.290] So I just came, I just wanted to thank you
+- [03:50.480] while you're doing incredible. You're incredible people.
+- [03:53.590] You make the country run, frankly.
+- [03:55.350] You make whole place run.
+- [03:57.450] We're going to have the best capital ever.
+- [04:00.640] We're going to have the --
+- [04:01.890] it is going to look better than it ever did.
+- [04:03.530] Even at the White House, I'm building a ballroom.
+- [04:05.880] They've been after a ballroom for 150 years,
+- [04:08.940] but they never had a real estate guy as a president.
+- [04:10.980] You know, I've done a lot of ballrooms,
+- [04:12.950] and we're going to make this one the best of them all.
+- [04:14.720] But we're doing a real job.
+- [04:17.430] As far as the country is concerned,
+- [04:19.990] we're respected again.
+- [04:21.880] We had a country that was laughed at a year ago.
+- [04:24.240] They would think they thought they couldn't understand
+- [04:26.070] what was happening, and it's about leadership.
+- [04:28.940] But we had a county that was a dead country in many ways.
+- [04:34.070] Went to Saudi Arabia, I went to Qatar, I went to UAE.
+- [04:37.660] We came back with $5.1 trillion of investment in this country.
+- [04:42.410] And we're over $17 trillion.
+- [04:44.060] Now, a lot of you don't know what that means.
+- [04:46.370] And nobody knows what it means
+- [04:48.230] because it's never happened before.
+- [04:49.760] In five months, because really it's a five month
+- [04:53.060] even though we're here seven,
+- [04:54.380] but we started five months ago in terms of investment.
+- [04:57.700] And we have, because they see what's happened to country.
+- [05:01.310] We're going to be over $17 trillion,
+- [05:03.290] trillion with a T, dollars of investment.
+- [05:06.150] There's never been anything close.
+- [05:07.580] If we did $1 trillion in a year,
+- [05:11.840] and we're talking about over a five-month period,
+- [05:13.960] maybe six months if you look at it,
+- [05:15.510] but over$ 17 trillion,
+- [05:18.820] we're building plants, auto plants, AI plants,
+- [05:22.180] all sorts of plants all over the country.
+- [05:24.490] I'm giving them the right.
+- [05:25.850] Lee Zeldin has done a fantastic job.
+- [05:28.320] We're given the right to build electric plants.
+- [05:30.580] They've become almost like a public utility
+- [05:33.230] because we have old grids.
+- [05:34.950] We have a lot of stuff that's old.
+- [05:36.210] We wouldn't be able to compete with China AI.
+- [05:38.980] And now we're totally leading the AI race
+- [05:41.210] and the artificial intelligence.
+- [05:43.500] It's a big deal, and it's the hottest thing
+- [05:45.850] there is for probably in 35, 40 years.
+- [05:49.110] It's -- a lot people don't know what it is.
+- [05:50.790] Just trust me, it's very hot. It's big.
+- [05:53.250] But they need massive amounts of electricity.
+- [05:55.610] They need more electricity than we have right now
+- [05:58.380] in the whole country, servicing everything.
+- [06:00.310] In other words, we have to at least
+- [06:02.320] double it up to be competitive and to be leading.
+- [06:07.170] And we're more than doubling it up.
+- [06:08.630] And what I'm doing
+- [06:09.840] is I'm letting all of these very rich companies,
+- [06:13.160] and they've got nothing but they got a lot of money,
+- [06:15.830] and they want to invest it in the United States.
+- [06:17.890] And they're building big plants,
+- [06:19.150] but they're building electric plants with it.
+- [06:20.960] I said, you build your building
+- [06:24.120] and these are buildings that cost $30, $40,
+- [06:26.330] $50 billion when you include everything that's inside,
+- [06:29.370] all the technology.
+- [06:31.040] I said, I'm going to let you build electric plants
+- [06:33.540] to fire your own electricity.
+- [06:36.040] And anything that you have left over,
+- [06:37.670] you sell it back into the grid. So all of these big factories
+- [06:41.600] that are being built are building
+- [06:43.030] their own electric plants fired by oil and gas.
+- [06:46.460] They're not fired by wind, by the way,
+- [06:48.030] because wind doesn't work, but we won't say that.
+- [06:50.560] It destroys everything. It looks terrible.
+- [06:53.380] It's a very expensive form of energy.
+- [06:56.210] And we're not doing the wind. We're going back to fossil fuel.
+- [06:59.050] I hope not too many of you people are going to be upset,
+- [07:01.310] but we have to go back to what works.
+- [07:03.430] We can't be foolish.
+- [07:05.360] But we are -- we're building massive electric plants
+- [07:08.410] all over the country. The companies are building,
+- [07:10.720] and then they sell it back into the grid.
+- [07:13.190] But we're build numbers that nobody has ever seen.
+- [07:15.540] We're auto plants. We have many auto plants going up,
+- [07:18.390] whereas during the last four years, as you know,
+- [07:21.420] We had like none. We people weren't investing here.
+- [07:25.080] So they weren't invest and they were leaving.
+- [07:27.190] But I just finished by saying this.
+- [07:29.190] So I was with the King of Saudi Arabia,
+- [07:31.730] I was all of the NATO leaders a couple of weeks ago.
+- [07:35.580] And they are putting up not 2 percent, but 5 percent.
+- [07:40.990] They said 5 percent of GDP, that's a lot of money.
+- [07:44.280] They'll have trillions of dollars put up.
+- [07:46.350] They were putting up 2, but they weren't paying it.
+- [07:48.180] Now they're putting up 5 and they're all paying it
+- [07:50.830] And they all said the same thing.
+- [07:52.430] They said, one year ago, your country was dead.
+- [07:56.780] We never thought it was coming back.
+- [07:58.730] And now you have the hottest country anywhere in the world.
+- [08:02.260] These are the leaders of other countries,
+- [08:03.970] the prime ministers and the presidents.
+- [08:05.750] All, every one of them said essentially the same things.
+- [08:08.710] Said we had a dead country, and we were. We felt that way.
+- [08:11.790] And we were, and this place was emblematic of it
+- [08:15.030] with the crime, the horrible crime.
+- [08:16.530] And you know. I watch these phony reports.
+- [08:18.910] Oh, we were on the way back. They weren't on the back.
+- [08:21.640] It was worse than ever, just a short while ago.
+- [08:25.010] But now it's going to be -- I think now, right now,
+- [08:27.830] it's better than it has been in years.
+- [08:29.970] And in a couple of weeks,
+- [08:31.260] it's got to be even far better than that.
+- [08:33.040] And everybody is safe now. Everybody feels safe.
+- [08:35.970] And they're all coming in. And people are now coming in,
+- [08:38.120] they're making reservations to come in,
+- [08:39.860] and they want to be in Washington, D.C.
+- [08:42.290] One of the things we're going to be redoing is your parks.
+- [08:44.810] I'm very good at grass because I have
+- [08:46.250] a lot of golf courses all over the place.
+- [08:47.940] I know more about grass than any human being,
+- [08:51.010] I think, anywhere in the world.
+- [08:52.940] And we're going to be regressing all your parks,
+- [08:55.180] all brand-new sprinkler systems,
+- [08:56.980] the best that you can buy, just like Augusta.
+- [09:00.130] No, it'll look like Augusta.
+- [09:02.260] It'll look more importantly like Trump National Golf Club.
+- [09:04.720] That's even better.
+- [09:06.190] But we're going to have all brand-new, beautiful grass.
+- [09:09.470] You know, like everything else, grass has a life.
+- [09:11.530] Do you know that? Grass has a live.
+- [09:13.790] You know we have a life, and grass has life.
+- [09:16.440] And the grass here died about 40 years ago.
+- [09:19.920] So we're going to be rebuilding all of your parks,
+- [09:22.230] and it's going to happen fast.
+- [09:23.490] It's going to go up like a miracle.
+- [09:25.080] So you do the job on safety,
+- [09:27.140] and I'll get this place fixed up physically.
+- [09:29.750] And we're be so proud of it. At the end of six months,
+- [09:32.220] but let's say at the end of a year
+- [09:34.700] this place will be maxed out in terms of beauty.
+- [09:37.170] You'll have all new surfaces. You'll all new medians.
+- [09:40.460] Everything is going to look beautiful.
+- [09:42.000] A lot of your signs are going to be taken down.
+- [09:43.790] They've been up for 40 years. They look like hell.
+- [09:46.460] They look they're barely standing up.
+- [09:47.940] They're falling off their holders.
+- [09:51.690] And we're going to have all-new everything.
+- [09:53.550] And I want to just thank Doug
+- [09:54.850] for doing such an incredible job.
+- [09:56.590] You've been unbelievable. You're a popular guy.
+- [09:59.760] No, he's an amazing guy. He's an amazing guy.
+- [10:03.120] Everybody loves him. We love you.
+- [10:04.950] And his wife is so incredible.
+- [10:06.480] But thank you very much. I appreciate it.
+- [10:08.130] And Pam, thank you, very much, what a job.
+- [10:11.280] She's -- people don't realize -- they're going to see.
+- [10:14.360] She'll go down as the greatest Attorney General we've had.
+- [10:17.840] I really mean it, too. And where's my Kristi,
+- [10:20.280] your dear? Thank you very, much. She's been incredible.
+- [10:24.990] And she can ride a horse like nobody.
+- [10:27.920] She gets on those horses. She rips those horses around.
+- [10:31.770] But I want to thank you very much.
+- [10:33.170] And Steve Miller, so, so fantastic.
+- [10:36.450] And Todd, Todd Blanche, who's been with me so long,
+- [10:40.680] and he's one of the best lawyers you'll ever find.
+- [10:43.620] And we're having a lot of victories.
+- [10:44.910] I had a victory today.
+- [10:48.690] They stole $550 million from me with a fake case,
+- [10:53.430] and it was overturned.
+- [10:54.650] They said this was a fake case, it's a terrible thing.
+- [10:58.320] But that's a nice victory, you know? I mean, it is not bad.
+- [11:01.510] You know, we all have our limits,
+- [11:04.060] but this was terrible thing they've done.
+- [11:06.300] It was a witch hunt.
+- [11:07.690] And I've had more witch hunts than any human being,
+- [11:09.770] I think, in history. And here we are.
+- [11:11.720] We're the President of the United States,
+- [11:13.590] so it didn't work out too well for them.
+- [11:15.190] But maybe now it's turned a little bit.
+- [11:17.490] These are very dishonest people. We have to fight.
+- [11:19.620] We have win, because we have to win.
+- [11:21.850] And you people are winners, and I just think it's really
+- [11:24.950] it's such an honor to be with you.
+- [11:26.660] And we're going to make Washington, D.C., great again.
+- [11:29.760] We're making our country great again,
+- [11:31.440] the country is very close to being great.
+- [11:34.140] When they say it's the hottest country in the world,
+- [11:35.830] they mean it.
+- [11:37.080] And this Capitol is right now, after four days, five days,
+- [11:41.040] it's at a level that you haven't seen in a long time,
+- [11:42.920] and it's all because of you.
+- [11:44.160] So I want to thank you all very much.
+- [11:45.600] It's an honor to be with you, and we'll always be with you.
+- [11:48.910] We're going to be you for as long as I'm around,
+- [11:52.190] you're going be treated -- there's nobody more important.
+- [11:54.680] And thank you very much for being here. Thank you.
+- [11:56.980] Thank you very much. Doug, would you like to say something?
+- [12:00.740] (applause)
+- [12:05.140] Male Speaker: President Trump,
+- [12:06.970] on behalf of everybody that's here in law enforcement,
+- [12:09.850] I think I absolutely want to extend the gratitude to you,
+- [12:13.380] because under your leadership,
+- [12:14.740] you're bringing back respect for this profession.
+- [12:17.190] I know that wherever you go, and some of these folks know,
+- [12:19.910] wherever you in the country, whenever I've been with you,
+- [12:22.450] backstage before you speak, who do you get a picture with?
+- [12:25.510] Local law enforcement.
+- [12:26.810] The federal folks that are there.
+- [12:28.670] You have always, in turn,
+- [12:30.090] your entire life supported law enforcement
+- [12:32.160] and that makes a difference. These people know that.
+- [12:34.910] And the other thing, of course, for everybody here,
+- [12:36.930] President Trump's ended six wars.
+- [12:39.480] He's brought taxes down, regulations down.
+- [12:43.130] He's he's brought record foreign investment
+- [12:45.600] like he was talking about.
+- [12:46.800] He's done all of those things in six months.
+- [12:49.250] But what does he really care about?
+- [12:50.640] You hear him talk about the wars.
+- [12:51.890] He wants to end the killing.
+- [12:53.950] And here in D.C., he wants to the killing,
+- [12:56.140] he wants the end in every city in America,
+- [12:58.260] because if we're the greatest country in the world,
+- [12:59.870] you shouldn't be afraid to be able to go out for dinner.
+- [13:01.720] He cares about the people that live in this city
+- [13:03.680] and in every city.
+- [13:04.890] And that's why this is happening right now
+- [13:06.620] and this is what leadership looks like that
+- [13:08.320] in a matter of a week,
+- [13:10.240] this is a message to every city in the country
+- [13:12.210] and it's a message too every capital
+- [13:15.280] in the world that America,
+- [13:16.710] the greatest country in the world
+- [13:18.160] is going to have the most beautiful capital
+- [13:20.110] and the safest capital in world because of all of you.
+- [13:22.590] So thank you everybody that's here tonight.
+- [13:24.110] Thank you, President Trump, for making it all possible.
+- [13:25.840] (applause)
+- [13:27.040] Pam Bondi: Thank you very much. Thank you. Thank you all.
+- [13:31.860] President, I'm looking at all these faces.
+- [13:34.120] They're out here every single night.
+- [13:36.380] I'm getting to know everyone on a first-name basis.
+- [13:39.140] All of our great Metro PD,
+- [13:40.970] General Blanchard with the Guard,
+- [13:43.000] all of our federal agencies are out here.
+- [13:45.320] Our amazing Park Police,
+- [13:47.000] they are working hand in hand to make D.C. safe.
+- [13:50.450] They're out here working midnights, every night,
+- [13:52.520] because they love our country, they love our city,
+- [13:54.590] and they love you. They're all telling me that.
+- [13:56.190] Are we going to get the meet --
+- [13:57.440] look at them getting the thumbs up.
+- [13:58.700] They're are all out here going,
+- [13:59.910] are we going to meet the President?
+- [14:01.180] I told you.
+- [14:02.800] So, and I think you brought some food for him,
+- [14:04.470] didn't you, President?
+- [14:05.680] The President: So we have great hamburgers
+- [14:07.180] cooked by the White House.
+- [14:08.940] And we have pizza that I said don't do it in the White House
+- [14:12.260] because we went to a place that makes the best pizza.
+- [14:14.510] So we'll concede, but we have a lot of it.
+- [14:17.010] So we're going to have some fun.
+- [14:18.340] We'll eat, and I'll eat with you.
+- [14:20.170] And we're going to have a little fun.
+- [14:21.560] We're going celebrate, but then we're going to get back to work,
+- [14:24.330] and we're going to take care of these criminals.
+- [14:25.920] We're going to put them where they have to be.
+- [14:28.260] You're going say, don't play around with us.
+- [14:30.930] Don't play with us.
+- [14:32.210] So let's go have something to eat.
+- [14:33.530] You're going to like the hamburgers.
+- [14:34.910] Would you rather have hamburgers from the White House or pizzas
+- [14:37.590] from a good place, huh?
+- [14:39.230] I think you want -- oh, they want the hamburgers.
+- [14:41.610] Have a good time, everybody. Thank you very much.
+- [14:43.750] Kristi, thank you very much, darling.
+- [14:45.560] Thank you, everybody. Thank you.
+- [14:48.380] (applause)
+- [14:55.590] (indistinct conversation)
+- [15:01.900] The President: Judge Jeanine is here, she's unbelievable.
+- [15:05.960] What did -- oh, we have Leo. Leo 2.0. Whoa.
+- [15:11.510] Judge, didn't I see you over there.
+- [15:14.040] It's lucky I spotted her. It's lucky I spotted here.
+- [15:17.980] I would have been in big trouble.
+- [15:19.250] And Leo, you know, Leo 2 .0. We love Leo.
+- [15:22.290] He's a great prosecutor, that's for sure.
+- [15:24.700] You know, they both started off really as law enforcement
+- [15:27.700] and top lawyers and judges and law enforcement.
+- [15:31.280] And that's how they became famous.
+- [15:33.010] Then they went into show business and everyone thought,
+- [15:35.190] gee, were they real? But they were the real deal.
+- [15:37.830] And you're both doing great. Thank you very much.
+- [15:39.810] Pam, do you want to say something or Jeanine?
+- [15:43.710] Jeanine Pirro: Yeah, I just want to say thank you to all of you.
+- [15:46.310] Every night when you hit the street,
+- [15:48.350] you make a difference not just for us,
+- [15:51.080] but for everyone in the district.
+- [15:53.040] They are grateful for what you do.
+- [15:54.860] They are thankful.
+- [15:56.380] And I am making sure that we back the blue to the hilt.
+- [16:01.530] Every arrest you make, we're going to the longest way
+- [16:05.190] to make sure that we charge in those cases.
+- [16:08.250] So God bless you and thank you for what do.
+- [16:10.670] You're making a difference.
+- [16:12.190] And Mr. President, without you, no one would even have tried.
+- [16:15.970] So thank you.
+- [16:17.650] (applause)
+- [16:20.290] Male Speaker: Thirty seconds.
+- [16:21.840] We have the greatest president in our lifetime
+- [16:25.140] protecting this country, and you guys have done a great job.
+- [16:28.420] And I have the privilege to work
+- [16:30.080] with the greatest attorney general in Pam Bondi.
+- [16:32.860] This team really appreciate you. We want to thank you.
+- [16:36.920] You are doing the work that makes this country great,
+- [16:39.910] protecting America.
+- [16:41.680] Thank you very much, and God bless you.
+- [16:44.170] (applause)
+- [17:00.170] (indistinct conversation)

@@ -1,0 +1,1244 @@
+<!-- source: https://www.youtube.com/watch?v=dLhUDEOIdks -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: dLhUDEOIdks -->
+<!-- date_published: 2025-06-09T19:51:55+00:00 -->
+<!-- date_accessed: 2026-06-02T02:48:44.020681+00:00 -->
+
+# Transcript: President Trump Participates in Invest America Roundtable
+
+- [00:13.120] Announcer: Ladies and gentlemen,
+- [00:14.370] the President of the United States.
+- [00:16.910] ♪ (Hail to the Chief) ♪
+- [01:06.730] The President: We've had some exciting days in the last week,
+- [01:10.080] I would say. Mostly good.
+- [01:13.180] Some of the things you're reading about in Los Angeles,
+- [01:15.550] thank goodness we sent out some wonderful National Guard.
+- [01:20.570] They've really helped in a lot of problems
+- [01:24.010] they were having out there.
+- [01:26.140] They were afraid to do anything, and we sent out the troops,
+- [01:29.980] and they've done a fantastic job.
+- [01:32.040] So I want to thank them very much.
+- [01:34.420] I also want to thank you for being here
+- [01:36.490] as we discuss one of the most exciting parts of the one
+- [01:40.090] Big Beautiful Bill.
+- [01:41.630] It is indeed a Big, Beautiful Bill,
+- [01:44.330] and it's doing very well.
+- [01:46.270] The Trump accounts, as they call it, pilot program,
+- [01:49.490] which will make it possible for countless American children
+- [01:52.660] to have a strong start in life
+- [01:55.010] at no cost to the American taxpayer.
+- [01:57.490] Absolutely no cost. It's going to have huge impact.
+- [02:01.560] I want to thank House Speaker Mike Johnson
+- [02:03.590] for number one, being a great Speaker.
+- [02:06.700] And number two, perhaps slightly less important,
+- [02:09.690] for being here today. Thank you, Mike.
+- [02:13.210] Along with Chairman Jason Smith, who's fantastic,
+- [02:16.320] and Representatives French Hill, August Pfluger, Blake Moore,
+- [02:21.030] Rob Bresnahan, and Frank Lucas. Thank you all, fellas.
+- [02:25.250] Thank you very much. We appreciate it very much.
+- [02:29.240] Thanks as well to many top business leaders
+- [02:31.560] from Invest America CEO.
+- [02:34.480] Council. It's been a wonderful council.
+- [02:36.690] They've come up with some fantastic ideas.
+- [02:38.620] We're putting them into use.
+- [02:40.610] They're really the greatest business minds we have today.
+- [02:43.060] These men and women lead large, successful companies,
+- [02:46.680] and they're committed to contributing
+- [02:48.740] millions of dollars to the Trump account.
+- [02:51.580] And it's really going to be something incredible
+- [02:55.210] for children
+- [02:56.900] and for their employees, in many cases.
+- [02:59.990] Here's how the accounts work.
+- [03:01.410] For every U.S. citizen born after December 31st, 2024,
+- [03:07.320] before January 1st, 2029, the federal government
+- [03:11.450] will make a one-time contribution of $1,000
+- [03:15.910] into a tax-deferred account
+- [03:17.780] that will track the overall stock market.
+- [03:20.060] In other words, it'll be pegged to an index
+- [03:22.680] that we'll pick, right, Michael?
+- [03:24.110] We'll pick it. We'll a good one.
+- [03:25.800] Maybe you should be the index. I'd like to have that.
+- [03:29.260] These kids would be very wealthy if that were the case.
+- [03:31.180] That would be a good idea.
+- [03:32.410] I think we might do that, Michael Dell.
+- [03:35.150] These accounts will be private property
+- [03:37.090] controlled by the child's guardians.
+- [03:40.350] And in many cases, those guardians will be the parents.
+- [03:42.940] We think probably the parents will be the guardians.
+- [03:46.520] They'll be open for additional private
+- [03:48.110] contributions each year from family, friends,
+- [03:50.480] parents, employers, churches, private foundations, and more.
+- [03:54.420] This is a pro-family initiative
+- [03:55.960] that will help millions of Americans
+- [03:57.650] harness the strength of our economy
+- [04:00.030] to lift up the next generation.
+- [04:01.890] And they'll really be getting a big jump on life,
+- [04:04.660] especially if we get a little bit lucky
+- [04:07.110] with some of the numbers
+- [04:08.520] and the economies into the future.
+- [04:11.390] In addition to the substantial financial benefits
+- [04:14.270] of investing early in life, extensive research
+- [04:16.930] shows that children with savings accounts
+- [04:19.590] are more likely to graduate high school in college,
+- [04:22.840] buy a home, start a business,
+- [04:24.530] and are less likely to be incarcerated.
+- [04:28.790] Trump accounts will contribute to the lifelong success
+- [04:32.000] of millions of newborn babies.
+- [04:34.460] They'll are fully -- and this will be very interesting,
+- [04:37.410] I think, for everybody to hear --
+- [04:38.770] they are fully funded through targeted reforms
+- [04:41.900] in the One Big Beautiful Bill,
+- [04:43.880] like the $1.7 trillion in mandatory savings,
+- [04:47.250] welfare reforms, to stop waste and fraud,
+- [04:50.590] a 3.5 percent remittance tax, and more.
+- [04:55.310] And it's just a part of that. The One Big Beautiful bill
+- [04:58.070] is among the most important pieces of legislation
+- [05:00.490] in our country's history.
+- [05:01.740] I don't think there's ever been anything bigger,
+- [05:04.900] and I think it's going to go down
+- [05:06.530] as certainly one of the most things we'll ever have done.
+- [05:11.320] In addition to the largest tax
+- [05:13.820] cuts in the history of our country,
+- [05:16.890] including the most powerful border security measures ever,
+- [05:20.520] it delivers major economic relief
+- [05:22.400] to the American workers' families.
+- [05:24.910] And there are so many things rebuilding our military.
+- [05:28.060] We built it just eight years ago.
+- [05:31.620] We started and did a great job,
+- [05:34.090] but now we have to rebuild it again, plus technology change.
+- [05:36.970] All of a sudden, it's about drone.
+- [05:39.010] You know, we have a new form of warfare.
+- [05:40.770] It's drone warfare. So a lot of things change.
+- [05:44.090] We did a good job with the military,
+- [05:45.600] but now, we're going to have to do some little tweaks,
+- [05:48.840] to put it mildly.
+- [05:50.490] And we'll be doing that, and we have it all nicely funded.
+- [05:54.990] I look forward to signing this into law.
+- [05:57.910] It's really something that we're having such an opportunity.
+- [06:01.510] And I have to say, he's here with us.
+- [06:03.110] He's a person that I've admired for a long time.
+- [06:07.530] You take a look at what he's done and followed his record.
+- [06:11.500] And it's Dell Chairman Michael Dell.
+- [06:13.650] He's done such an incredible job.
+- [06:16.270] It's, as a business person, I study business people,
+- [06:20.240] and that's a perfect one to study.
+- [06:22.020] It's a -- it should be almost mandatory reading.
+- [06:24.990] So I want to congratulate you on that.
+- [06:26.670] And thank you for the idea, because you're the first one
+- [06:28.730] that really brought this to my attention.
+- [06:30.810] I know that you and your friends
+- [06:32.230] have been talking about it for a long time,
+- [06:34.700] but other presidents didn't get it done, Michael, right?
+- [06:37.100] So we got it done. Congratulations.
+- [06:40.620] Michael Dell: Thank you very much.
+- [06:41.850] Sure. I want to also give some recognition
+- [06:45.220] to my friend, Brad Gerstner,
+- [06:46.520] who helped get us all organized and actually.
+- [06:49.850] The President: Thank you very much.
+- [06:52.300] Good. And also, we have with us
+- [06:54.170] a very powerful man in the world of business,
+- [06:57.860] CEO David Solomon of Goldman Sachs.
+- [07:00.780] David, thank you very.
+- [07:02.630] David Solomon: Thank you for having me here.
+- [07:04.020] Thank you. Thank you, very much, Uber CEO, Dara Khosrowshahi.
+- [07:10.020] Where is Khosrowshahi?
+- [07:11.220] Dara Khosrowshahi: Right here.
+- [07:12.510] The President: Where? Thank you so much.
+- [07:14.080] That's a hell of a name, but you've done a hell of a job.
+- [07:17.640] So that's appropriate.
+- [07:20.190] And also, again, Chairman Smith for doing such a good job.
+- [07:23.150] Nobody knows taxes better than Chairman Smith.
+- [07:26.110] When we have a problem, Mike,
+- [07:27.380] we go to see Chairman Smith, right?
+- [07:29.670] So I want to thank you very much,
+- [07:31.580] Dara and Chairman Smith -- I appreciate it.
+- [07:34.740] So I'd like to begin by asking Speaker Johnson
+- [07:38.360] to say a few words, and I think then
+- [07:42.080] we're going to go to Michael Dell, David Solomon.
+- [07:44.640] We're going go to Dara, and then to Chairman Smith.
+- [07:47.790] Thank you very much.
+- [07:49.340] Speaker Johnson: Mr. President, thank you so much
+- [07:50.670] for your bold visionary leadership.
+- [07:52.440] It is the key to all of this great success
+- [07:54.500] that we are achieving, and the One Big Beautiful Bill,
+- [07:57.020] it is not an overstatement to say it will be
+- [07:58.590] one of the most consequential pieces of legislation
+- [08:00.700] in the history of Congress.
+- [08:01.940] There's a lot in here, and by extension,
+- [08:05.190] or I would say it is an extension of the figure
+- [08:08.080] who I believe will be the most consequential president
+- [08:10.560] of the modern era, if not all of American history,
+- [08:12.260] and that's the gentleman sitting to my left.
+- [08:13.510] So I want to thank you for that.
+- [08:14.750] The President: Thank you very much.
+- [08:15.960] That's a beautiful statement. I like him too.
+- [08:22.350] Speaker Johnson: It's a statement of objective fact,
+- [08:24.240] and every working American understands,
+- [08:27.350] I think, the principle behind this concept
+- [08:29.910] that we're discussing today. If you have a 401K,
+- [08:32.970] you understand the power of investing early for the future.
+- [08:36.680] Trump accounts take that same principle,
+- [08:39.340] and they apply it from the very beginning of Americans' lives.
+- [08:42.940] It's a pretty simple concept.
+- [08:44.820] The families that opt in will receive
+- [08:46.490] a one-time payment of $1,000
+- [08:48.580] to a Trump account that parents can contribute to.
+- [08:51.710] It's bold, transformative policy
+- [08:54.000] that gives every eligible American child
+- [08:56.200] a financial head start from day one.
+- [08:59.580] Republicans are proud to be the party.
+- [09:01.580] We always have been that supports life
+- [09:03.350] and families and prosperity and opportunity.
+- [09:06.270] And Trump accounts are all about
+- [09:07.470] setting up the next generation for success.
+- [09:10.750] For future Americans, this early investment
+- [09:13.230] could really be the game changer.
+- [09:14.750] It could be a difference.
+- [09:15.970] It could pave the way for paying their way through college
+- [09:19.920] or buying their first home or starting a business
+- [09:23.480] even when they're young.
+- [09:24.990] So even $1,000 at birth will put these Americans
+- [09:28.960] in a better position than over half of American adults
+- [09:33.030] who sadly have no retirement savings at all.
+- [09:35.430] So this would be a remedy to that great problem.
+- [09:38.490] And it will encourage the free market.
+- [09:40.800] It will encourage.
+- [09:42.840] Investment and understanding of capitalism.
+- [09:45.810] All these things that we want to foster
+- [09:47.860] among the American people,
+- [09:49.250] so that the economy and individual lives can flourish.
+- [09:52.120] Of course, none of this happens unless we pass our One Big,
+- [09:54.160] Beautiful Bill through Congress.
+- [09:56.040] And we have at stake the largest tax increase in American history
+- [09:59.370] if we fail to deliver.
+- [10:01.200] And we will not have this rocket fuel to the U.S. Economy
+- [10:04.300] and that's why this is so very important.
+- [10:06.390] Passing this pro-growth legislation
+- [10:08.040] will help every single American.
+- [10:10.010] From Trump accounts, this is one of the components of it
+- [10:12.790] eliminating taxes on tips and overtime,
+- [10:14.990] to reducing red tape on Main Street.
+- [10:18.010] And the One Big Beautiful Bill is going to drive prosperity,
+- [10:20.150] it's going to create jobs across the country.
+- [10:22.040] It will make all boats rise, wages will go up,
+- [10:24.460] job participation levels will go up.
+- [10:26.710] We'll have more opportunity,
+- [10:28.840] more economic opportunity for more people,
+- [10:31.190] so you can climb up that ladder to the next step.
+- [10:34.450] The typical family with two children
+- [10:35.860] is going to see their take-home pay increase
+- [10:37.510] by up to $13,300 a year.
+- [10:40.200] That's real money to real people.
+- [10:42.120] This legislation is geared for hardworking Americans,
+- [10:45.280] and it is going to help everybody.
+- [10:47.090] And we are excited to deliver it.
+- [10:48.690] It can't happen soon enough.
+- [10:50.440] We are very close now to that finish line.
+- [10:52.490] After about 14 months' worth of work that's gone into this,
+- [10:56.010] we're excited that we're almost there.
+- [10:57.920] Mr. President, thanks again for your leadership
+- [10:59.400] to all the great leaders around this table
+- [11:00.920] for all that they invest to our economy
+- [11:02.730] and our country and its government.
+- [11:04.870] And I will, as we say in the House, I'll yield back.
+- [11:07.110] The President: Thank you very much, Mike.
+- [11:08.400] I appreciate it. And again, for a great job.
+- [11:11.120] Thank you, very much. Michael, please?
+- [11:12.720] Michael Dell: Please.
+- [11:13.920] Thank you so much, Mr. President.
+- [11:15.250] I believe this is an incredible moment for all of us here today.
+- [11:18.810] And it's wonderful to be with some of the leaders
+- [11:20.980] of the most successful companies in the world
+- [11:23.930] as we come together to invest in the future of our country.
+- [11:27.190] We see the Invest America Act
+- [11:29.600] and the establishment of these Trump accounts
+- [11:32.400] as a simple yet powerful way to transform lives.
+- [11:36.320] Decades of research have shown
+- [11:38.090] that giving children a financial head
+- [11:39.830] start profoundly impacts their long-term success.
+- [11:43.510] With these accounts, children will be much more likely
+- [11:45.890] to graduate from college, to start a business,
+- [11:48.430] to buy a home and achieve lifelong financial stability.
+- [11:52.120] Dell Technologies is proud to be one of the very first companies
+- [11:55.550] to support the Invest America Act,
+- [11:57.940] a bill that provides every child with $1,000
+- [12:00.550] seed investment account at birth.
+- [12:02.520] This is a straightforward step with enduring benefits.
+- [12:06.470] Following your inspiring lead, Mr. President,
+- [12:08.500] Dell Technologies will match
+- [12:09.890] the government's contributions dollar for dollar,
+- [12:12.780] for every child born to a Dell team member.
+- [12:17.090] This isn't just a new benefit,
+- [12:18.420] this is investment in our people,
+- [12:20.090] their families, our communities, and America's future.
+- [12:24.190] And it embodies our core belief
+- [12:25.680] that opportunity should begin at birth.
+- [12:28.440] My wife Susan and I, also through our family foundation,
+- [12:31.520] have been closely studying the Invest America Act.
+- [12:34.820] And assuming that it becomes law,
+- [12:36.610] we expect to make a very significant gift.
+- [12:39.720] We view this as -- we view this initiative
+- [12:42.280] as a powerful platform for philanthropic innovation
+- [12:46.000] aimed at helping children thrive wherever they come from,
+- [12:50.420] particularly those families
+- [12:51.820] who have been historically left behind.
+- [12:54.110] Mr. President, you articulated it perfectly.
+- [12:56.060] These Invest America accounts will give
+- [12:58.380] every new American child a genuine opportunity
+- [13:01.630] to participate
+- [13:02.950] in history's greatest engine of economic growth,
+- [13:06.230] the American economy. The funds in these accounts,
+- [13:10.560] invested in American enterprise and innovation,
+- [13:13.370] will grow over time into substantial nest eggs,
+- [13:16.710] providing support for education, home ownership,
+- [13:19.910] and starting families.
+- [13:21.760] The ability of families, friends, benefactors,
+- [13:24.330] and employers to match the government's generosity
+- [13:27.600] amplifies the life-changing potential of this initiative.
+- [13:30.900] Thank you, Mr. President,
+- [13:32.110] for your visionary leadership on this critical issue.
+- [13:35.260] These Invest America accounts will profoundly impact
+- [13:38.320] countless young Americans, ensuring they truly benefit
+- [13:42.190] from what Abraham Lincoln described
+- [13:44.270] as the right of every American,
+- [13:46.150] the right to rise. Thank you.
+- [13:48.510] The President: Thank you very much, Michael.
+- [13:50.200] We really have come a long way
+- [13:51.510] since you came to see me about six months ago
+- [13:54.280] with your beautiful wife. We had a nice talk.
+- [13:56.920] I said, that sounds pretty good. Let's think about that.
+- [14:00.060] And it's everybody I've spoken to about it
+- [14:03.080] they can't even believe it. And because of great politicians
+- [14:07.770] and political leaders like we have,
+- [14:10.150] I think this is going to go quickly,
+- [14:13.310] very well and very quickly. So, I appreciate it.
+- [14:15.760] Thank you very much. David Solomon, please.
+- [14:21.660] David Solomon: Thank you, Mr. President.
+- [14:23.710] I'm thrilled to be here with everyone and excited
+- [14:25.890] to participate in this important and timely discussion.
+- [14:29.670] I'd also like to acknowledge the efforts
+- [14:32.050] of so many in Congress on this very significant issue,
+- [14:35.130] and in particular, the members here,
+- [14:37.310] and particularly the leadership of Senator Cruz
+- [14:39.260] and Representative Moore,
+- [14:40.500] who've played a big role in helping drive this forward.
+- [14:43.470] We also wouldn't be here today
+- [14:45.690] without the leadership of Brad Gerstner and Michael Dell
+- [14:48.910] in really having the vision, the energy, the passion,
+- [14:51.380] the commitment to help move this forward.
+- [14:53.340] So thank you both.
+- [14:54.670] There are many reasons why the United States
+- [14:56.800] has the largest and most dynamic
+- [14:58.820] and most innovative economy in the world.
+- [15:01.650] But one of the most important is the fact that our system
+- [15:04.920] of democratic capitalism incentivizes a culture
+- [15:08.270] that does not penalize people for taking risks.
+- [15:11.270] In fact, it incentivizes people to have a vision to go out
+- [15:14.160] and attract funding
+- [15:15.550] that's necessary to make their vision a reality.
+- [15:19.010] It is no mistake that many
+- [15:20.310] of the most important innovative companies in the world today
+- [15:22.440] started in a parent's garage or on a college campus
+- [15:25.500] or in any one of a number of unlikely places
+- [15:27.560] in the United States.
+- [15:29.180] One of my worries is that our current system,
+- [15:32.060] one of my worry is that our current
+- [15:33.530] and future generations of young people
+- [15:35.720] don't fully appreciate and aren't as educated as well
+- [15:38.470] as they can be on markets and capitalism.
+- [15:40.860] And while capitalism is not perfect,
+- [15:42.760] it helps fuel the American dream.
+- [15:45.380] This initiative gets at the core of binding
+- [15:48.510] those future generations to the benefits
+- [15:51.270] and the potential of America's great companies and markets.
+- [15:55.240] Early childhood investments have far-reaching benefits,
+- [15:57.980] and Goldman Sachs is proud to support this initiative.
+- [16:01.180] This is an exciting opportunity for public-private partnership
+- [16:04.650] and for both communities and companies
+- [16:07.160] to invest in young people, the future of America.
+- [16:10.890] Once we see the Invest in America Act
+- [16:12.650] signed into law, Goldman Sach would be excited
+- [16:15.290] to further support this invest in America initiative.
+- [16:18.880] We believe passionately in our capital markets.
+- [16:21.470] They're an enormous competitive strength for the United States.
+- [16:24.420] And we know that our economy's future vitality
+- [16:27.020] is dependent on young people
+- [16:28.480] understanding the power of investing for the long term
+- [16:31.210] and sharing in the benefits of ideas
+- [16:33.450] that bring value to the lives of people around the world.
+- [16:36.430] Thank you, Mr. President, for helping drive this forward.
+- [16:38.730] And I look forward to continued partnership on this effort.
+- [16:41.460] The President: Thank you very much, David.
+- [16:43.420] Dara, please.
+- [16:46.630] Dara Khosrowshahi: Good afternoon, everyone.
+- [16:48.190] Thank you, Mr. President, for hosting us here today.
+- [16:51.570] It's an incredible honor to be here in a place
+- [16:53.750] that symbolizes
+- [16:54.990] the very opportunity that has defined my life.
+- [16:58.710] Thank you, Brad. Thank you, Michael, for your vision.
+- [17:02.180] We all strive to build something that lasts,
+- [17:04.340] and the Invest America Act is a legacy
+- [17:07.350] that is going to last for generations.
+- [17:10.210] President Trump, thank you for your leadership.
+- [17:11.820] Your support is going turn this powerful idea
+- [17:15.140] into powerful reality for millions of young Americans.
+- [17:19.650] And I was nine years old when I came to this country
+- [17:21.690] and my family arrived in America
+- [17:23.990] having fled the Iranian Revolution.
+- [17:27.650] We had lost everything that we had built.
+- [17:31.120] But we gained something far more valuable here.
+- [17:34.450] We gained a chance to rebuild again.
+- [17:37.120] We had a close-knit family,
+- [17:38.730] we had access to world-class education,
+- [17:41.600] and we had the one thing that fuels every American dream,
+- [17:45.220] and that's hope.
+- [17:47.060] So what if we could bottle up that hope?
+- [17:48.790] What if we can give that same power of hope,
+- [17:50.770] real, tangible hope,
+- [17:53.020] that comes from having a stake in your own future
+- [17:55.750] and a stake in the best companies in the world
+- [17:59.390] to every single child that's born in this country.
+- [18:03.510] That's the promise of the Invest America Act.
+- [18:06.350] It's not just an account, it's a launch pad.
+- [18:09.410] It puts the unstoppable engine of compounding
+- [18:13.010] to work for our kids,
+- [18:14.620] building a future for them from day one.
+- [18:19.150] This mission is personal to me, and it's core to us at Uber.
+- [18:22.610] Every day, we see people using our platform
+- [18:25.170] to create opportunities for themselves,
+- [18:27.350] to save for a home, to pay for tuition,
+- [18:30.670] to build their own American dream one trip at a time.
+- [18:35.270] And that's why Uber is so proud to support this bill,
+- [18:38.450] which also includes benefits for millions of Uber drivers
+- [18:41.650] and couriers in the form of no tax on tips.
+- [18:44.930] Mr. President, our earners are grateful for your support.
+- [18:48.720] The President: Thank you very much.
+- [18:49.950] Right? What a great job. You know, when you think
+- [18:53.230] we're doing a lot of work on Iran right now,
+- [18:56.260] and I see that what you just said,
+- [18:58.240] you came here and they took it all away from you
+- [19:01.050] and you started and you've become one of the biggest
+- [19:02.920] anywhere in the world. What a great story that is.
+- [19:04.590] Dara Khosrowshahi: Thank you very much, Mr. President.
+- [19:05.860] The President: Congratulations.
+- [19:07.060] Dara Khosrowshahi: I wish you all the success there.
+- [19:08.350] The President: I thank you very much.
+- [19:09.590] We'll need it. We're going to need it for that.
+- [19:10.910] That's it.
+- [19:12.170] Dara Khosrowshahi: They're tough negotiators.
+- [19:13.370] The President: They're great negotiators, among the best.
+- [19:16.120] Look at you. Thank you very, much.
+- [19:17.930] Appreciate it, Dara. Jason, please.
+- [19:21.010] Jason Smith: Thank you, Mr. President.
+- [19:22.340] I want to first start off
+- [19:25.020] by thanking you for your leadership,
+- [19:27.740] your vision, your commitment to workers
+- [19:31.910] and families throughout this country.
+- [19:34.960] The One Big Beautiful Bill
+- [19:36.160] would not have been possible without you,
+- [19:39.540] and it delivers the largest tax cut in U.S. History,
+- [19:44.370] the largest mandatory spending cuts in U.S. history,
+- [19:50.080] the most significant welfare reforms in U.S. History,
+- [19:54.020] and the largest one-time investment in border security.
+- [19:57.390] So it's things to be extremely proud about.
+- [20:01.420] Representing Southeast Missouri, I'm extremely proud
+- [20:04.950] of how you're delivering for working families.
+- [20:08.140] No tax on tips.
+- [20:09.820] A waitress like the waitress in Nevada
+- [20:13.500] that talked to you about no tax on
+- [20:16.130] and the other four hundred four million
+- [20:19.240] tipped employees in the country,
+- [20:21.870] they will see an extra $1,700 in their paycheck
+- [20:25.580] because of the no tax on tips.
+- [20:27.020] That's significant for someone who's just trying
+- [20:29.520] to put food on their table and clothes on their backs.
+- [20:32.590] The linemen working overtime to restore power
+- [20:36.020] will get an additional $1,750 into their paycheck.
+- [20:42.070] Seniors will get $72 billion in tax cuts.
+- [20:47.170] The Trump investment accounts.
+- [20:49.490] Will be a game changer for new parents,
+- [20:53.060] even before their newborn baby can walk or talk.
+- [20:58.480] Their child will have money saved to one day
+- [21:02.370] learn a trade, start a business, or to buy a home.
+- [21:07.170] Every child, every child born under this policy
+- [21:11.840] will have a better shot at a future.
+- [21:15.860] It does not matter if they live on a city block.
+- [21:20.120] Or on a county road,
+- [21:21.860] this will make a significant difference to their lives,
+- [21:26.040] and it's because of your leadership, Mr. President,
+- [21:28.490] and we say thank you.
+- [21:30.100] The President: Well, thank you very much, Jason.
+- [21:31.580] And hopefully, we're going to get that through.
+- [21:33.310] And we have a certain date picked up, an ideal date.
+- [21:36.690] If it takes a little longer, that's okay.
+- [21:38.300] But ideally, we'll get by a certain day.
+- [21:41.570] And again, I think it's one of the most important pieces
+- [21:44.300] of legislation we've ever had before us
+- [21:47.110] and that the country has ever had.
+- [21:49.480] I'd like to ask, if I might, Brad Gerstner,
+- [21:51.860] one of most successful people in our country,
+- [21:55.290] a friend of Michael very much.
+- [21:57.760] And my Michael has great respect.
+- [21:59.810] And if you don't mind, Brett,
+- [22:01.350] I'd like you to say a few words, please.
+- [22:03.320] Thank you.
+- [22:04.610] Brad Gerstner: Well, first, it's a great honor
+- [22:06.030] and privilege to be here.
+- [22:08.080] We wouldn't be here without your leadership.
+- [22:10.680] And for me personally, to be with my son,
+- [22:14.340] Lincoln Gerstner happens to be named
+- [22:17.940] after the gentleman over your right shoulder.
+- [22:21.490] The President: Where is Lincoln? He's good looking.
+- [22:24.020] He's much better looking than you. What happened?
+- [22:27.500] Brad Gerstner: Hey, we all want our kids
+- [22:28.790] to be better than ourselves.
+- [22:31.730] But it was around our small kitchen table
+- [22:35.610] that this idea was really born. I Started off like Jason Smith
+- [22:40.940] in a small rural town in Indiana.
+- [22:43.370] My dad had lost everything in 1978
+- [22:46.000] trying to start an auto parts company
+- [22:48.560] when the Japanese were tearing apart our auto industry.
+- [22:52.350] We had double-digit interest rates and inflation,
+- [22:54.800] our family mortgage the house to keep the company
+- [22:57.730] going and ultimately lost everything.
+- [23:00.260] So I know a little something about starting with nothing.
+- [23:03.280] And I know what it felt like.
+- [23:05.370] That first time you had a little skin in the game,
+- [23:08.340] where you thought you had shot.
+- [23:10.070] You went from nothing to something.
+- [23:13.080] And like Dara said, that is the great story of America.
+- [23:17.360] The promise that there's mobility,
+- [23:19.160] the promise we can move up that ladder.
+- [23:21.840] But today, we've moved to a society of dependency.
+- [23:28.540] I saw somebody answer the White House's tweet on this today
+- [23:32.530] by saying the answer to socialism is more capitalism.
+- [23:37.460] This is more Capitalism.
+- [23:39.400] This is aligning every child in America
+- [23:42.920] with the upside of free markets and the benefits.
+- [23:46.260] And that is your Main Street agenda, Mr. President.
+- [23:49.740] No tax on tips, that doesn't help rich folks.
+- [23:52.660] That helps the people who feel left out and left behind.
+- [23:55.970] No tax on over time, no tax --
+- [23:58.300] or deduction on Social Security and the Trump accounts, right,
+- [24:02.670] that everybody in this room are here
+- [24:04.690] and we've been working so hard on,
+- [24:06.080] but would never come to fruition without your leadership,
+- [24:09.520] those will change the game forever.
+- [24:11.910] It makes America an ownership society again,
+- [24:15.950] because all of those kids will see the benefit of compounding.
+- [24:18.860] If you start with a thousand bucks and $750
+- [24:22.800] is added a year by parents, grandparents, by churches,
+- [24:27.010] by the companies in this room who will all contribute
+- [24:29.970] to the accounts to the kids of their employees,
+- [24:32.190] by the great philanthropists in America.
+- [24:34.250] I think $750 is a low estimate per year.
+- [24:37.490] The President: I think so.
+- [24:38.700] Brad Gerstner: But if you do that,
+- [24:40.780] by age 18, Mr. President, these are worth $50,000.
+- [24:45.600] By age 30, they're worth $175,000,
+- [24:49.910] and if you it every year of your life,
+- [24:52.030] at age 50, they're a worth a million bucks.
+- [24:55.490] You are giving the shot for every American
+- [24:57.940] to feel like they're in the game again.
+- [25:00.110] Part of America with that economic mobility,
+- [25:02.650] that dream that led Michael Dell
+- [25:04.560] to start Dell Computer in his dorm room,
+- [25:07.040] Dara to feel like he had a shot after coming here from Iran,
+- [25:10.220] and a couple poor kids from Missouri and Indiana
+- [25:12.970] to make it to where we are today.
+- [25:14.430] So thank you for your leadership.
+- [25:16.930] This would not happen without the reconciliation bill
+- [25:19.510] and the work of the many in this room
+- [25:21.670] but spearheaded by the Speaker and Jason Smith,
+- [25:24.970] the Big Beautiful Bill.
+- [25:26.170] This is the vehicle to get the Invest America Act passed.
+- [25:28.770] So thank you, sir.
+- [25:30.060] The President: Thank you very much, Brad. Great job.
+- [25:32.730] And nobody knew I was going to call you.
+- [25:35.160] He might have done the best job of the group.
+- [25:37.110] I've got to think about that, Mike.
+- [25:39.090] Good recommendation, Michael. Does anybody have any questions?
+- [25:43.020] I think it's something that's really got to be talked about
+- [25:45.860] because it's somewhat of a miracle
+- [25:48.390] that we're close to pulling it off. Please.
+- [25:50.400] The Press: What's the latest estimate
+- [25:51.860] on when you think the Big Beautiful Bill will pass?
+- [25:57.100] Speaker Johnson: We put Independence Day
+- [25:59.130] as a self-imposed deadline,
+- [26:00.720] and we certainly hope, I believe,
+- [26:02.310] we can still meet that. It's up to the Senate.
+- [26:03.900] The bill's in the Senate's hands now,
+- [26:05.340] but spoke with Leader Thune as recently as last night.
+- [26:08.840] He's feeling very optimistic.
+- [26:10.300] You see the Senate going through the same deliberations
+- [26:12.240] we went through in the House,
+- [26:13.640] except we had 14 months to do it.
+- [26:15.300] They've got a truncated time period to get that done.
+- [26:17.330] But as you all know, I've encouraged my dear friends
+- [26:20.300] and colleagues over there, don't modify it too much,
+- [26:23.050] because we've got very delicate balance that we reached,
+- [26:25.260] It took us a long time to get there.
+- [26:27.320] And we don't want to upset that balance too much.
+- [26:29.420] So they're putting their fingerprints on it.
+- [26:31.010] I think, I hope it will be a light touch
+- [26:32.530] and they'll send it back and we'll get this thing done
+- [26:34.210] and get to the President's desk.
+- [26:35.650] The President: And really, we have tremendous spirit.
+- [26:37.750] I've never seen anything like it.
+- [26:39.050] There's just an unbelievable.
+- [26:41.030] We'll always have a couple of people.
+- [26:43.770] I don't want to use the word grandstanders.
+- [26:45.570] I'd never use such a word.
+- [26:46.810] But you'll always that a little bit.
+- [26:48.960] But maybe you won't even have that.
+- [26:51.440] Who knows? There's tremendous spirit for this bill.
+- [26:55.190] I think, like, we haven't seen very much Jason, right?
+- [26:57.860] We haven't see too much.
+- [26:59.150] So I think it's going to go pretty quickly.
+- [27:01.830] The Press: (inaudible)
+- [27:03.510] Prime Minister Netanyahu. You just mentioned Iran.
+- [27:05.910] Did you discuss Iran?
+- [27:07.120] The President: Very well. We discussed a lot of things.
+- [27:09.600] The Press: Did you discuss the Gaza war?
+- [27:10.810] The President: Yeah, we discussed a lot of things,
+- [27:12.420] and it went very well.
+- [27:13.910] Very smooth. We'll see what happens.
+- [27:15.410] You know, we're trying to do something
+- [27:17.920] with a country we just spoke about, Iran.
+- [27:21.950] I think you should negotiate this.
+- [27:23.210] You might be better.
+- [27:24.430] I think I'm going to send you today.
+- [27:25.660] What a good idea.
+- [27:26.880] This could have been the idea of the day.
+- [27:28.610] We'll have Dara get up and negotiate.
+- [27:30.850] They are good negotiators, but they're tough.
+- [27:32.880] Sometimes they can be too tough. That's the problem.
+- [27:35.810] So we're going to make a deal
+- [27:39.130] so that there's no destruction and death.
+- [27:43.020] And we've told them that, and I've told him that,
+- [27:44.970] and I hope that's the way it works out,
+- [27:46.490] but it might not work out that way.
+- [27:48.690] We'll soon find out. Yeah, please.
+- [27:51.720] The Press: You were talking about unrest in American cities.
+- [27:53.930] You said, quote, we have to go by the laws.
+- [27:56.510] We can't call in the National Guard
+- [27:58.270] unless we're requested by a governor.
+- [28:00.570] What changed now? Why is this situation different
+- [28:03.250] to not consult with Governor Newsom about this?
+- [28:05.140] The President: Well, the biggest change from that statement
+- [28:06.630] is we have an incompetent governor,
+- [28:08.180] so I talked about governors,
+- [28:09.810] but I didn't talk about he's an incompetent governor.
+- [28:12.090] Look at the job he's doing in California.
+- [28:14.440] He's destroying one of our great states.
+- [28:16.370] And if I didn't get involved, if we didn't bring the guard in,
+- [28:20.220] and we would bring more in if we needed it,
+- [28:22.100] because we have to make sure there's going to be
+- [28:24.470] law and order. You had a disaster happening.
+- [28:29.140] And they now admit it was a disaster.
+- [28:30.810] I watched the chief yesterday, who's a good man, by the way.
+- [28:34.430] And he said, well, we're lucky we did this
+- [28:36.980] because they were overwhelmed. You saw what was happening.
+- [28:41.160] So we did the right thing. Everybody agrees to that.
+- [28:44.510] But you have a governor who let the city burn down
+- [28:47.030] and didn't want water to be sent down to him.
+- [28:50.220] I mean, I sent billions of gallons of water.
+- [28:54.010] I wanted to do it in the first term.
+- [28:55.930] He wouldn't do it over, I don't know,
+- [28:57.840] they have environmental reasons,
+- [28:59.130] but there were no environmental reasons.
+- [29:01.800] I think it's just a political philosophy.
+- [29:04.300] But it's lucky for the people in Los Angeles and in California
+- [29:09.240] that we did what we did. We got it just in time.
+- [29:12.440] It's still simmering a little bit,
+- [29:14.840] but not very much. Yeah, please.
+- [29:16.190] The Press: (inaudible)
+- [29:17.410] warrant for his arrest.
+- [29:19.050] What crime has Governor Newsom committed?
+- [29:21.470] The President: What crime has he committed?
+- [29:24.180] I think his primary crime is running for governor
+- [29:27.920] because he's done such a bad job.
+- [29:30.090] What he's to that state is like what Biden did to this country.
+- [29:34.540] And that's pretty bad. It's a wrong philosophy.
+- [29:39.970] Thousands, hundreds of thousands of illegal immigrants,
+- [29:42.700] many of them prisoners.
+- [29:44.450] They're taking up your health care.
+- [29:45.780] They're taken up your space in schools.
+- [29:47.580] They're taking up your hospital.
+- [29:49.870] And in many cases, they're criminals.
+- [29:52.420] And we have to do something about it.
+- [29:54.910] And we're doing something about.
+- [29:56.290] I want to thank the incredible patriots
+- [29:58.990] of ICE and Tom Holman, who has been incredible.
+- [30:02.370] And Kristi Noem, likewise incredible.
+- [30:06.450] The job they're doing.
+- [30:08.090] And it's like an unforced error. There was no reason for this.
+- [30:11.530] 21 million people were allowed into our country.
+- [30:14.780] And many of those people were criminals.
+- [30:17.330] And it is a shame.
+- [30:18.530] It's a shame, but we're getting them out.
+- [30:20.970] And I will say, I think it's a 95-to-5 issue,
+- [30:25.570] just like so many other issues, 95-5.
+- [30:28.660] And the Democrats lost an election in a landslide
+- [30:31.610] because they're on the wrong side of the issues.
+- [30:34.460] I mean, it's not even conceivable.
+- [30:38.060] Somebody would do the kind of things that he did.
+- [30:40.110] And then, you know, you talk about projects.
+- [30:43.040] They want to build a train going from San Francisco to L.A.,
+- [30:46.440] and it's costing hundreds of billions of dollars
+- [30:49.530] more than they thought it was going to cost.
+- [30:51.030] It's not even believable.
+- [30:52.440] To Brad and to people sitting here,
+- [30:54.820] would you believe that a train it was gonna cost X dollars,
+- [30:58.770] and it might be 100 times X?
+- [31:01.900] Brad Gerstner: Would have paid for this
+- [31:03.420] for about 50 million American children,
+- [31:06.720] 50 million American children
+- [31:08.090] instead of a three-mile train track that never got built.
+- [31:11.380] The President: We could have put Lincoln in charge
+- [31:12.940] with no experience, he would have done a good job.
+- [31:15.780] I guarantee you that. All right, please, Peter.
+- [31:17.950] The Press: Mr. President,
+- [31:19.180] have you gotten an update from your negotiating ---
+- [31:20.940] The Press: Thank you, thank you, President Trump.
+- [31:22.340] So it seems like Gavin Newsom likes the attention
+- [31:25.880] that he's getting right now from you.
+- [31:28.180] It seems like he does.
+- [31:30.350] He -- if you look at recent history somebody
+- [31:33.480] who was running for president,
+- [31:35.100] you, who got arrested and had a mugshot
+- [31:37.370] you could make the argument
+- [31:38.600] that politically that wound up helping you.
+- [31:41.350] Are you worried at all at this moment?
+- [31:44.280] They're talking about him getting arrested
+- [31:46.000] could be helpful to his political prospects,
+- [31:49.240] because a lot of people think he wants to be sitting
+- [31:51.270] right where you are.
+- [31:52.670] The President: Well, in my case, it was a witch hunt,
+- [31:54.020] and everybody knew it.
+- [31:55.280] And I was able to explain that during the process,
+- [31:57.590] otherwise I wouldn't be sitting here right now.
+- [31:59.430] And it was total witch hunt.
+- [32:00.890] It's proven to be a witch hunt, and you see what's happened.
+- [32:03.730] In his case, it really is very obvious you look
+- [32:06.170] at what's happened between the fires, between it.
+- [32:10.740] I could name ten things right now,
+- [32:12.780] we talk about the trains,
+- [32:13.990] we talk all of the costs in California,
+- [32:17.610] you talk about all of people that are flowing
+- [32:19.750] and destroying life for everyone else.
+- [32:22.040] So no, I don't think it's going to help him.
+- [32:24.440] I think it's actually very bad for him.
+- [32:26.000] The Press: And right around the time
+- [32:27.200] that we were walking in here,
+- [32:28.830] the governor and the state attorney general said
+- [32:32.290] that they're going to sue you for sending the National Guard,
+- [32:34.780] and they're saying there's no invasion,
+- [32:36.120] there's not rebellion.
+- [32:37.520] The President is trying to manufacture
+- [32:39.320] chaos and crisis on the ground for his own political ends.
+- [32:43.440] Federalizing the California National Guard
+- [32:45.480] is an abuse of the President's authority under law.
+- [32:49.520] The President: Well, you know, it's interesting.
+- [32:51.120] You watch the same clips as I did.
+- [32:53.280] Cars burning all over the place, people riding.
+- [32:55.720] And by the way, we stopped it.
+- [32:57.410] We were able to make it much better.
+- [32:59.440] But it still looked pretty bad.
+- [33:00.680] And in watching clips last night,
+- [33:03.750] people were saying, this is really a big problem.
+- [33:06.600] And until we went in, if we didn't do the job,
+- [33:08.710] that place would be burning down
+- [33:10.110] just like the houses burned down.
+- [33:11.970] They were in big trouble last night.
+- [33:13.380] Peter, you knew it. And the night before that.
+- [33:17.080] And I feel we had no choice.
+- [33:19.270] I don't want to see happen what happened
+- [33:23.080] so many times in this country. I watched Minneapolis burn.
+- [33:26.870] I watched -- look at what happened
+- [33:28.560] in so many different parts of California.
+- [33:31.330] You take a look at what happened in San Diego.
+- [33:34.150] There's so many places where we let it burn.
+- [33:37.840] We want it to be politically correct.
+- [33:39.460] We want to be nice. We want be nice to the criminal.
+- [33:43.250] And what you're doing is destroying the fabric
+- [33:45.090] of our life in this country. And now we did the right thing.
+- [33:48.180] We've been given credit by people
+- [33:50.310] that I would least suspect.
+- [33:52.810] I would say that some of the people that came in
+- [33:55.300] and said, thank goodness, they said, some of them,
+- [33:58.760] thank God that Trump got involved.
+- [34:01.420] And I'm very happy I got involved,
+- [34:03.100] and I think Gavin, in his own way,
+- [34:05.480] is probably happy I get involved.
+- [34:07.280] Yeah, go ahead.
+- [34:08.550] The Press: What do you make of the fact
+- [34:09.750] that he says you want a civil war on the streets of America?
+- [34:15.040] The President: No, it's just the opposite.
+- [34:16.600] I don't want a civil war.
+- [34:18.230] Civil war would happen if you left it to people like him.
+- [34:22.460] And I liked him. You know, I always got along with him.
+- [34:24.860] Never had a problem with him, but he's grossly incompetent.
+- [34:28.860] Okay.
+- [34:32.130] The Press: Have you gotten an update
+- [34:33.360] from your team in London negotiating --.
+- [34:34.650] The President: What? Louder.
+- [34:35.850] The Press: Have you gotten an update from your team
+- [34:37.420] in London negotiating the China trade talks?
+- [34:41.570] The President: We are doing well with China.
+- [34:46.090] China is not easy. Just like your home country
+- [34:51.380] is not easy there, I think we're doing very well.
+- [34:55.860] They're over there now. I'm only getting good reports.
+- [34:57.880] It's a little early, but they'll be calling in soon.
+- [34:59.800] In fact, probably when I get back,
+- [35:01.920] I'll have my first call from them.
+- [35:03.390] We want to open up China.
+- [35:06.450] And if we don't open up China, maybe we won't do anything,
+- [35:09.550] but we want to open up China.
+- [35:10.890] It'll be a great thing for China,
+- [35:12.180] a great for the rest of the world.
+- [35:14.130] The Press: Are you willing to lift export controls
+- [35:16.350] when it comes to China?
+- [35:17.670] Did you give your negotiators any sort of limitation?
+- [35:21.170] The President: China has been ripping off the United States
+- [35:24.010] for many years. Nobody charged them 10 cents.
+- [35:28.570] No president had the courage to charge China
+- [35:30.900] for whatever reason. They didn't want to do it.
+- [35:33.520] I took in hundreds of billions of dollars
+- [35:35.890] I put on tariffs on China when I got in first term.
+- [35:39.600] And we took in hundred of billions of dollars,
+- [35:42.130] and then I did it again. But I did for a lot of others.
+- [35:45.720] If you look at the stats,
+- [35:47.460] the deficit last month was cut in half.
+- [35:50.710] Everybody was shocked. I wasn't shocked.
+- [35:52.970] I think a lot of the people at this table
+- [35:54.510] weren't because they saw the billions of dollars
+- [35:56.460] that were pouring in.
+- [35:57.820] And the tariffs hadn't even started yet, just about.
+- [36:00.240] They were in cars.
+- [36:01.640] They were in some countries at a very minor level.
+- [36:04.820] And we cut the deficit in half.
+- [36:07.930] And it was a big story a couple of days ago.
+- [36:10.030] They said, I don't believe --
+- [36:11.320] one of the announcers on a business network went wild.
+- [36:15.100] Said, I can't believe these numbers.
+- [36:16.810] Those numbers are good.
+- [36:18.040] The numbers are going to be very good.
+- [36:19.300] I think we're going to have a great four years.
+- [36:21.320] You know, we had the greatest economy in history
+- [36:23.420] during my four years,
+- [36:24.710] I think this one's going to blow it away.
+- [36:29.780] The Press: Do you have a message for Greta Thunberg
+- [36:31.720] and did she come up on your call with the prime minister today?
+- [36:34.310] The President: Well, she's a strange person.
+- [36:35.830] She's a young, angry person. I don't know if it's real anger.
+- [36:38.410] It's hard to believe, actually. But I saw what happened.
+- [36:43.420] She's certainly different. Anger management.
+- [36:46.470] I think she has to go to an anger management class.
+- [36:50.370] That's my primary recommendation for her.
+- [36:52.400] The Press: Was she kidnapped by Isreal as she says?
+- [36:56.370] The President: I find it,
+- [36:57.730] I think Israel has enough problems
+- [36:59.350] without kidnapping Greta Thunberg.
+- [37:01.940] The Press: And secondly, are you --
+- [37:03.190] The President: Is that what she said?
+- [37:04.390] She was kidnapped by Israel?
+- [37:05.650] The Press: Yes, sir.
+- [37:06.860] Are you going to get rid of the Tesla
+- [37:08.220] and the Starlink service
+- [37:09.810] that you have here at the White House?
+- [37:11.660] The President: No, I haven't heard that.
+- [37:13.070] I mean, I may move the Tesla around a little bit,
+- [37:15.660] but I don't think we'll be doing that with Starlink.
+- [37:17.900] It's a good service.
+- [37:19.180] The Press: Where are you going to move it to?
+- [37:20.810] Move it around, what do you mean?
+- [37:22.250] The President: I have a lot of locations.
+- [37:25.880] I have so many locations,
+- [37:27.490] I don't know what to do with them all.
+- [37:30.160] The Press: Did you ever see Elon Musk get physical
+- [37:34.140] with the Treasury Secretary?
+- [37:35.650] The President: No, I didn't. They did have an argument,
+- [37:40.960] but I didn't see a lot of physicality there.
+- [37:44.680] The Press: There was this New York Times report
+- [37:47.170] that he did not want to talk about,
+- [37:49.260] Elon Musk, that alleged that he,
+- [37:51.610] towards the end of his time in the White House,
+- [37:53.510] was blurring the lines
+- [37:54.750] between recreational use of drugs and medicinal.
+- [37:58.460] Do you think he ever had drugs here at the White house?
+- [38:00.250] The President: I really don't know,
+- [38:01.450] I don't think so, I hope not.
+- [38:03.580] Look, I wish him well, you understand,
+- [38:05.080] we had a good relationship
+- [38:06.930] and I just wish him well, very well actually.
+- [38:11.660] The Press: About aid in Gaza. You mentioned now the flotilla.
+- [38:14.730] Do you have a response at all about Israel
+- [38:16.410] intercepting this boat? And can you give us an update
+- [38:18.920] on what's happening to the entry of aid into Gaza right now?
+- [38:22.910] We've had people being shot by Israeli forces
+- [38:25.740] who are trying to get aid
+- [38:27.230] from the Gaza Humanitarian Foundation.
+- [38:29.450] The President: Gaza right now is in the midst
+- [38:31.240] of a massive negotiation between us and Hamas and Israel
+- [38:36.610] and Iran, actually, is involved.
+- [38:39.710] And we'll see what's going to happen with Gaza.
+- [38:41.710] We want to get the hostages back.
+- [38:43.200] That's all I can tell you. Yeah, please, in the back.
+- [38:47.240] The Press: You said yesterday when asked by a reporter
+- [38:48.780] that it was not insurrection taking place,
+- [38:50.680] but then on True Social a bit later,
+- [38:52.370] you said they were insurrectionist.
+- [38:54.300] The President: You're talking about in LA?
+- [38:55.640] The Press: Yes sir, in L.A.
+- [38:56.880] The President: I wouldn't call it quite an insurrection,
+- [38:58.810] but it could have led to an insurrection.
+- [39:00.220] I mean, that was a serious -- that was a lot of that
+- [39:03.230] was a lot of harm that was going on last night.
+- [39:05.550] I watched it very closely
+- [39:07.900] and it was amazing that the job that the National Guard did.
+- [39:12.440] And by the way, the police were working very hard also,
+- [39:15.620] but you know, the police are given instructions
+- [39:18.560] to be politically correct.
+- [39:19.850] I said, no, no. You don't have to be politically correct,
+- [39:21.940] you have to do the job.
+- [39:23.150] The Press: On Elon Musk,
+- [39:24.390] do you plan to speak to him on the phone any time soon?
+- [39:26.290] The President: Which one?
+- [39:27.510] The Press: Elon Musk.
+- [39:28.760] Do you plan to speak to him on the phone anytime soon?
+- [39:33.240] The President: I haven't really thought about it, actually.
+- [39:35.800] I would imagine he wants to speak to me.
+- [39:37.700] I would think so.
+- [39:39.080] If I were him, I'd want to speak to me,
+- [39:40.650] but maybe he's already called. You'd have to ask him.
+- [39:43.700] Ask him whether or not he's already called.
+- [39:45.900] I'd have no problem with it.
+- [39:48.690] The Press: If he called you would (inaudible)?
+- [39:49.990] The President: Well, I don't want to say that,
+- [39:51.280] but you know, but I would imagine he'd want to talk to me.
+- [39:54.800] The Press: Mr. President?
+- [39:56.070] The President: Yeah, please.
+- [39:57.410] The Press: You were supposed to get a counterproposal
+- [39:59.160] from Iran today.
+- [40:01.200] Have you gotten that proposal? And what is the main impediment?
+- [40:04.190] The President: We have a meeting with Iran on Thursday,
+- [40:06.270] so we're going to wait until Thursday.
+- [40:07.810] The Press: And what's the main impediment to getting a deal?
+- [40:10.590] The President: Well, they're just asking for things
+- [40:12.690] that you can't do.
+- [40:15.230] They don't want to give up what they have to give up.
+- [40:16.980] You know what that is. They seek enrichment.
+- [40:21.140] We can't have enrichment. We want just the opposite.
+- [40:25.660] And so far, they're not there.
+- [40:29.620] I hate to say that because the alternative
+- [40:32.690] is a very, very dire one, but they're not there.
+- [40:36.510] They have given us their thoughts on the deal.
+- [40:40.520] And I said, you know, it's just not acceptable.
+- [40:43.360] The Press: (inaudible) today when you spoke?
+- [40:46.500] The President: I would say, yeah.
+- [40:47.740] I don't know what else I can talk about. The weather?
+- [40:51.800] Pretty much, pretty much, that's the main topic, yeah.
+- [40:55.500] We talked about Lebanon also.
+- [40:57.450] The Press: What about Lebanon?
+- [40:59.180] The President: Well, Lebanon is working very hard.
+- [41:00.750] They have a great new ambassador that I put there.
+- [41:04.700] A man I know very well. He's very smart.
+- [41:06.390] I didn't even know he was Lebanese.
+- [41:07.930] And I said, why would you want Lebanon?
+- [41:10.810] He said, I was born there. I love it. I love the people.
+- [41:14.090] I said you know, it's very dangerous going to Lebanon.
+- [41:16.520] There are some ambassadorships that are wonderful.
+- [41:18.590] There are some that are dangerous.
+- [41:19.880] I said -- Michelle, his name is. It's a he.
+- [41:23.900] Michelle. Very elegant man.
+- [41:26.320] And I said, why would you want this?
+- [41:28.440] And he said, because I love my country and I love those people.
+- [41:31.220] I said it's very dangerous. He goes, I don't care.
+- [41:34.260] This is not a man that lived in danger.
+- [41:35.860] He's a very successful man from here.
+- [41:38.610] And he wanted to be the ambassador despite probably
+- [41:41.940] a very dangerous situation he's going into.
+- [41:44.730] You see what's going on.
+- [41:46.750] But I had great respect for that.
+- [41:49.680] He loves that country. He loves it.
+- [41:51.140] He was born there. He loves the country. Yeah.
+- [41:54.150] The Press: You've got a big beautiful parade
+- [41:56.430] coming up on Saturday.
+- [41:57.760] The President: We do.
+- [41:58.960] The Press: What's your biggest expectations for that?
+- [42:01.060] And I've got a second question in regards to Gavin Newsom.
+- [42:04.490] Go ahead and talk about the big, beautiful parade.
+- [42:07.160] The President: It's such a -- thank you, Brian --
+- [42:08.750] it's such an, I think, important moment for this country.
+- [42:14.730] You know, two weeks ago
+- [42:16.660] I was calling people back and forth with leaders,
+- [42:19.340] including President Putin, including French President,
+- [42:24.170] including lots of different people,
+- [42:26.610] and all of them said we're celebrating victory
+- [42:29.810] in World War II.
+- [42:32.160] And I said, wow, isn't that amazing?
+- [42:34.660] We're the only one that wasn't celebrating,
+- [42:36.430] and we're the one that won the war.
+- [42:38.660] Now, Russia did help.
+- [42:39.920] They did lose 51 million people, in all fairness.
+- [42:42.960] People would say, oh, he's sticking up for Russia.
+- [42:45.580] No, they lost 51 million.
+- [42:48.310] And, you know, can't forget that.
+- [42:51.430] But France was celebrating.
+- [42:55.340] And as you know Hitler made a speech at the Eiffel Tower.
+- [42:59.420] But when I spoke to President Macron, he said,
+- [43:01.460] oh, we are celebrating the great victory of World War II.
+- [43:04.160] And I think that's great that he was doing it.
+- [43:06.350] But we're the one that won it, and we weren't celebrating.
+- [43:09.210] I said to myself, you know, isn't that crazy?
+- [43:11.800] And I said, I think it's time for us
+- [43:13.100] to celebrate a little bit.
+- [43:14.800] You know, we've had a lot of victories.
+- [43:16.240] We won two World Wars, and then we go out
+- [43:19.400] and change the name of the forts where we won the wars.
+- [43:21.990] You go out, we win World Wars from Fort Robert E.
+- [43:25.540] Lee from Fort Bragg from all the different forts,
+- [43:28.950] and what do we do? We change the name of the forts
+- [43:31.110] because we want to be politically correct.
+- [43:33.680] So a lot of them we're changing back.
+- [43:35.410] You probably noticed Fort Bragg and others.
+- [43:38.540] But I think it's a time to celebrate our military.
+- [43:42.000] You know, we've rebuilt our military largely.
+- [43:45.800] Little low on ammunition.
+- [43:48.070] That's because it goes out very fast to other countries,
+- [43:50.590] one in particular, but we'll get that back very quickly.
+- [43:55.410] But we have a military the likes of which nobody has.
+- [43:58.010] Nobody comes close. We have the best equipment in the world.
+- [44:00.790] We make the best equipment in the world.
+- [44:03.290] There's no military like our military.
+- [44:05.180] We showed that with ISIS.
+- [44:06.390] I was told by the television generals
+- [44:08.790] it would take four years to win, and we did it in three weeks.
+- [44:12.270] And it was headed by General Raisin Cain,
+- [44:14.970] who is now the chairman of the Joint Chiefs of Staff.
+- [44:17.680] He's great. Just left him.
+- [44:20.680] Now, I think it's time that we celebrate.
+- [44:23.220] And I sort of have to laugh at these people.
+- [44:25.500] Well, you know, you're going to spend a lot of money.
+- [44:28.790] A lot of that money is being paid for by me
+- [44:30.780] and people that make donations. I don't know if you know that.
+- [44:33.240] A lot it won't even come out of the military.
+- [44:35.100] I think I can say that, Susie, right?
+- [44:37.380] We have people putting up money to do it.
+- [44:39.890] Not that it's necessary,
+- [44:41.090] because I think it's a great expenditure.
+- [44:43.520] We have many tanks.
+- [44:44.850] We have all sorts of new ones and very old ones.
+- [44:47.970] Old from World War I and World War II.
+- [44:50.900] So it's really a celebration of the Army.
+- [44:53.360] So the Army is a year older than the country.
+- [44:57.110] So next year, we celebrate 250 years,
+- [44:59.580] but we're celebrating the Army on Flag Day.
+- [45:02.480] And it's not my birthday. It is my birthday,
+- [45:04.130] but I'm not celebrating my birthday
+- [45:05.480] I'm celebrating Flag Day, it happens to be the same day.
+- [45:08.600] So I take a little heat,
+- [45:10.370] but Flag Day is the appropriate date.
+- [45:13.030] And we're celebrating 250 years of the Army, a great service.
+- [45:18.370] And remember, you know, think of it, we won so much.
+- [45:21.510] We won. World War I, World War II, so much else.
+- [45:25.880] And then we became politically correct.
+- [45:29.810] But I can only tell you that I was told
+- [45:31.960] that ISIS would take anywhere from four to five years.
+- [45:35.670] And we did it in three weeks.
+- [45:36.930] You were there, you watched, right?
+- [45:38.910] We have the greatest military in the world.
+- [45:40.510] Nobody can beat us.
+- [45:41.800] As long as we have our right leadership,
+- [45:44.020] nobody can beat us if we have stupid people
+- [45:46.050] running it like you had in Afghanistan.
+- [45:49.740] When you look at that, first of all,
+- [45:50.990] Afghanistan should have been an easy victory as a war,
+- [45:53.330] but we were so, so sad the way we fought.
+- [45:56.880] It's so ridiculous.
+- [45:58.390] We fight not to win, but we didn't used to be that way.
+- [46:02.320] And we're celebrating because I think the day in Afghanistan
+- [46:07.180] was the saddest period of time
+- [46:09.330] in the history of our country that was run by a Biden mess
+- [46:13.150] with bad generals like Milley and others.
+- [46:16.380] They were bad. They were incompetent generals.
+- [46:18.440] I know all the good ones and the bad ones.
+- [46:20.100] We got rid of most of the bad one.
+- [46:22.470] But it was time to celebrate, and that's what we're doing.
+- [46:24.740] So it's on June 14th,
+- [46:27.830] and it's going to be a parade the likes of which I don't know
+- [46:31.170] if we've ever had a parade like that.
+- [46:32.710] It's going be incredible.
+- [46:34.050] We have -- even though it's the Army,
+- [46:36.150] we have a lot of those Army airplanes flying over the top,
+- [46:39.700] and we have tanks all over the place,
+- [46:41.900] So we have thousands and thousands of soldiers
+- [46:45.490] going to bravely march down the streets.
+- [46:48.570] It's going to be a beautiful day, I think.
+- [46:50.400] And we're going to celebrate our country.
+- [46:52.050] The Press: You spoke of leadership,
+- [46:54.100] and real quickly, speaking of Gavin Newsom,
+- [46:56.360] is he the right leader for California,
+- [46:59.030] considering how massive their economy is
+- [47:01.120] and all these U.S. Investments coming in?
+- [47:03.670] Is he the the right governor and leader
+- [47:07.100] for the future of California and for U.S. Investment?
+- [47:08.930] The President: I don't think he is.
+- [47:10.170] I mean, I think he's done a terrible job and you know,
+- [47:12.610] he's a guy I always got along with him.
+- [47:14.350] You look at his past statements about me.
+- [47:16.430] I was a great president I always took care of California,
+- [47:19.610] you know all that. But I'm just talking on results.
+- [47:23.230] You know, here's the advantage of beautiful weather.
+- [47:25.600] Maybe the best weather of any state when you think about it.
+- [47:30.090] Beautiful weather, beautiful ocean,
+- [47:31.640] beautiful everything. You have all the advantages
+- [47:34.490] and he didn't take advantage of that
+- [47:36.350] and he's let people come in by the millions
+- [47:40.180] who are overrunning your hospitals,
+- [47:42.590] your education system,
+- [47:45.560] and your police are being overrun.
+- [47:47.820] Look at what's happened.
+- [47:50.950] He should only be happy I sent in the military,
+- [47:53.200] because if I didn't send them in,
+- [47:54.470] you would have had a problem there,
+- [47:56.610] the likes of which we haven't seen in a long time.
+- [47:59.050] Yeah, please. Thank you, Brian, very much.
+- [48:01.030] The Press: On supersonic flight -- on supersonic flight.
+- [48:02.980] The President: Supersonic flight.
+- [48:04.270] The Press: Yes, sir.
+- [48:05.550] I know you just signed an executive order on it.
+- [48:07.460] Do you want to see a supersonic Air Force One
+- [48:09.200] in the next ten years or so?
+- [48:11.280] The President: Well, I don't care too much about that,
+- [48:13.080] but I would like to see --
+- [48:14.410] you know if you think about it flight,
+- [48:16.440] the word flight is an interesting word,
+- [48:18.170] but it's probably the only category
+- [48:21.410] where we've actually gone backwards
+- [48:23.850] because we used to have the Concorde
+- [48:25.780] and we could fly to London, Brad, very quickly and nicely
+- [48:30.590] and today it takes you two times and three times as long.
+- [48:33.870] It's the only thing where we've regressed.
+- [48:36.350] By the way, the Concorde, to my way of thinking,
+- [48:38.650] to this day, Michael,
+- [48:39.920] because you're very much into esthetics, I know,
+- [48:43.010] but to this day it was one of the most beautiful pieces of art
+- [48:47.390] I've ever seen. It was a piece of art.
+- [48:49.110] The beauty of the Concorde. It was the most beautiful plane.
+- [48:51.340] But it was, you know, got you there in half the time.
+- [48:55.930] Now you spend a lot of time and there's no reason for it.
+- [49:01.110] Because, you, know, they have the sonic boom.
+- [49:02.690] It's not a huge problem,
+- [49:03.930] but they have the sonic-boom thing pretty well figured out.
+- [49:07.700] The technology changes, the change in the skin,
+- [49:11.450] the change in weight, all of the other things.
+- [49:14.030] There's no reason why we shouldn't do great.
+- [49:15.860] So we are making it possible for them to do supersonic
+- [49:20.230] and get us back on the track. I mean, we've -- think of it.
+- [49:23.080] Thirty years ago, we actually had planes
+- [49:25.110] that flew much faster than we do now.
+- [49:27.250] It took you half the time to get to a location.
+- [49:30.040] So we've regressed, and we're going to progress.
+- [49:36.570] Right, sort of an amazing, amazing thing, isn't it, though?
+- [49:40.000] We've gone backwards. On Wall Street, they haven't done that.
+- [49:43.070] If Goldman Sachs was like that,
+- [49:44.690] you wouldn't have Goldman Sach's anymore.
+- [49:48.320] Yeah, please.
+- [49:49.690] The Press: Are you planning to deploy Marines in California
+- [49:51.840] to address the situation in Los Angeles?
+- [49:53.740] Are you going to deploy marines in California?
+- [49:56.110] The President: We'll see what happens.
+- [49:57.320] I mean, I think we have it very well under control.
+- [50:01.140] I think it would have been a very bad situation.
+- [50:03.640] It was heading in the wrong direction.
+- [50:05.530] It's now heading in right direction.
+- [50:07.220] And we hope to have the support of Gavin,
+- [50:09.690] because Gavin is the big beneficiary
+- [50:11.700] as we straighten out his problems.
+- [50:13.210] I mean his state is a mess.
+- [50:15.150] And I'd like to get somebody involved in the rail,
+- [50:17.570] because, look, personally, it should have never been built,
+- [50:20.620] because you can fly there for $2,
+- [50:22.330] and what are you doing? They're doing that.
+- [50:24.310] You could drive, you could do lots of different things.
+- [50:26.460] You know, if they did a study, if you gave every passenger
+- [50:31.940] the finest limousine service in the history of our world,
+- [50:35.500] the most expensive chauffeur-driven,
+- [50:38.150] white-glove limousine service back and forth,
+- [50:41.130] we would've saved billions of dollars
+- [50:43.110] as opposed to building this monstrosity that's going up.
+- [50:46.530] And I've never seen anything,
+- [50:47.890] you know, I've seen cost overruns.
+- [50:49.820] I'm a person -- I always done well on cost over runs.
+- [50:52.800] I don't have them.
+- [50:54.040] But I will tell you, I have never seen cost overruns.
+- [50:56.640] You see them where they're 20 percent more,
+- [50:58.210] 50 percent or 100 percent more. These are thousands of percent.
+- [51:02.570] Nobody even knows, they have no idea.
+- [51:04.400] And it was supposed to be from San Francisco to Los Angeles.
+- [51:09.000] Well, they just made it way outside of Los Angeles,
+- [51:11.730] where it's stopping in the middle of,
+- [51:14.340] I don't want to say nowhere,
+- [51:15.620] because I happen to like one of those little cities very much,
+- [51:18.850] but it's way short of the destination.
+- [51:22.400] Our government to saying,
+- [51:23.710] you know, why are we involved in this thing?
+- [51:25.470] It's been handled so badly before him,
+- [51:28.180] but he really blew it.
+- [51:29.710] So, you know, all right, one more question.
+- [51:31.890] The Press: (inaudible)
+- [51:33.580] to any of the discussions that were had there
+- [51:35.140] and the purpose of that retreat. Your time at Camp David.
+- [51:36.930] The President: On what?
+- [51:38.150] The Press: Your time at Camp David,
+- [51:39.350] can you speak to what discussions
+- [51:40.960] were had their and the purposes of that retreat?
+- [51:43.390] The President: Well, I don't want to speak to discussions.
+- [51:45.080] I mean, I told you what we were there for a little bit.
+- [51:48.390] We had discussions on many topics.
+- [51:50.370] We had a group of people, a large group of people,
+- [51:53.900] including generals and admirals and lots of others.
+- [51:57.500] And all I can say is our country is in great shape.
+- [51:59.910] We're in great shape economically.
+- [52:03.240] The bill that Mike and Jason
+- [52:05.000] and all the people are working on
+- [52:06.690] is going to be, I think, amazing.
+- [52:09.080] I think it's going to one of the most important pieces
+- [52:11.170] of legislation we've ever had in this country.
+- [52:14.140] It's going to do things that you wouldn't believe.
+- [52:16.100] And we're going to, you know, I have a very simple phrase.
+- [52:19.360] We ran an election on very simple words.
+- [52:22.320] Make America great again. That's what we're doing.
+- [52:25.070] We're making it great. We're make it safe.
+- [52:26.800] We're making it beautiful.
+- [52:28.580] And we making it very wealthy again.
+- [52:30.900] You know, wealth is okay.
+- [52:32.520] You need wealth to take care of lots of other people.
+- [52:36.300] We have to make our country better.
+- [52:38.350] Where it has to heal from four years of abuse,
+- [52:41.540] our country was abused badly by a very incompetent person
+- [52:47.730] and a group of people that weren't incompetent,
+- [52:49.730] but they were radical left lunatics.
+- [52:52.350] And they ran the country with an auto pen.
+- [52:55.170] And I hope that law enforcement's
+- [52:58.740] looking at that very seriously.
+- [53:00.150] That's like a takeover of our country in a certain way
+- [53:03.080] because this guy had no idea what he was doing.
+- [53:05.090] You saw that during the debate. You saw it in other cases.
+- [53:08.280] I mean, he had no idea. I should.
+- [53:10.120] Years ago, by the way, 40 years ago, he had no --
+- [53:13.250] he was bad 40 years ago. We're not just talking about --
+- [53:17.440] and they always like to say age, but it's not age.
+- [53:19.340] I know people -- 88, 89, 92.
+- [53:22.980] Bernie Marcus, who just passed away, was 95.
+- [53:25.500] I spoke to him a year before. He was 100 percent --
+- [53:28.670] it's not age, it's something else.
+- [53:30.540] But whatever it is, you can't have that in this country.
+- [53:33.080] The damage he's done to this country is unbelievable.
+- [53:35.920] But the good news is we've got much of it fixed already,
+- [53:40.940] and the rest of it will happen.
+- [53:42.350] Thank you all very much. Thank you.
+- [53:44.640] Female Speaker: Thanks guys. Let's go back out this way.

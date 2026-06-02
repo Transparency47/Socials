@@ -1,0 +1,31 @@
+# YouTube / WhiteHouse / 2025-07-09
+
+- Posts: 9
+
+- [22:46 UTC - President Trump Participates in a Multilateral Lunch with African Leaders](iD1TsZrluFo/)
+  - Source: https://www.youtube.com/watch?v=iD1TsZrluFo
+  - [00:00.570] The President: Well, thank you very much, everybody, - [00:01.980] for being with us today. - [00:04.370] And I want to thank you, all of these great leaders, - [00:0...
+- [21:19 UTC - President Trump’s ICE Took Out the Trash](KV43YG9jwfQ/)
+  - Source: https://www.youtube.com/watch?v=KV43YG9jwfQ
+  - [00:00.080] We're going to not stop doing what the - [00:02.159] American people elected this president - [00:03.919] to do. - [00:04.400] I offered any one of you a rent-free -...
+- [21:18 UTC - President Trump’s ICE Took Out the Trash](jTdcQ3Iv10g/)
+  - Source: https://www.youtube.com/watch?v=jTdcQ3Iv10g
+  - [00:00.080] We're going to not stop doing what American  people elected this President to do. - [00:04.280] If I offered any one of you, a rent free home, - [00:07.200] with no t...
+- [17:52 UTC - President Trump Participates in a Multilateral Lunch with African Leaders](fVDNHD5IEeQ/)
+  - Source: https://www.youtube.com/watch?v=fVDNHD5IEeQ
+  - [00:12.559] Hello, Peter. - [00:13.440] Hey, President Trump. How you doing? - [00:14.960] I'm good, thank you. - [00:18.800] Been pretty busy. - [00:21.279] Now it's Africa. - [...
+- [15:31 UTC - White House Chief of Staff Susie Wiles on working in the White House: "It is superhuman pace."](gGzBjqd2Dbo/)
+  - Source: https://www.youtube.com/watch?v=gGzBjqd2Dbo
+  - [00:00.080] He never stops working. And so when you - [00:02.960] combine a work ethic that's unparalleled - [00:06.240] with a wish list that's very long and an - [00:09.440] ap...
+- [13:42 UTC - No more catch-and-release—ONLY CATCH AND DEPORT!](GegJYNKVpEw/)
+  - Source: https://www.youtube.com/watch?v=GegJYNKVpEw
+  - [00:00.240] 70% of those who we've arrested under - [00:02.960] this administration have either been - [00:05.520] convicted of a crime or have pending - [00:08.160] criminal cha...
+- [13:41 UTC - No more catch-and-release—ONLY CATCH AND DEPORT!](4E_9wIcvKuo/)
+  - Source: https://www.youtube.com/watch?v=4E_9wIcvKuo
+  - [00:00.240] 70% of those who we've arrested  under this administration have - [00:04.480] either been convicted of a crime  or have pending criminal charges. - [00:09.040] We're...
+- [00:24 UTC - President Trump’s America = Law and Order!](otOUAveNjBU/)
+  - Source: https://www.youtube.com/watch?v=otOUAveNjBU
+  - [00:00.160] Since President Trump took office, ICE - [00:02.480] has been committed to removing the worst - [00:04.720] of the worst. We've seen them arrest - [00:07.279] hundred...
+- [00:24 UTC - President Trump’s America = Law and Order!](2nJPIdeorAc/)
+  - Source: https://www.youtube.com/watch?v=2nJPIdeorAc
+  - [00:00.160] Since President Trump took office, - [00:02.080] ICE has been committed to  removing the worst of the worst. - [00:06.000] We've seen them arrest hundreds of  illegal...

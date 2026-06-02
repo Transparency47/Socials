@@ -1,0 +1,1164 @@
+<!-- source: https://www.youtube.com/watch?v=xqnyP6mUI7w -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: xqnyP6mUI7w -->
+<!-- date_published: 2025-05-30T22:46:29+00:00 -->
+<!-- date_accessed: 2026-06-02T02:49:02.969249+00:00 -->
+
+# Transcript: President Trump Delivers Remarks on U.S. Steel Deal
+
+- [00:05.080] Announcer: Ladies and gentlemen, please welcome the 45th and 47th
+- [00:09.260] President of the United States, Donald J. Trump.
+- [00:13.010] ♪ ("God Bless the U.S.A." by Lee Greenwood) ♪
+- [02:32.830] (applause)
+- [02:39.830] (crowd chanting "U.S.A.")
+- [02:45.830] The President: Thank you very much.
+- [02:47.110] What a group of people.
+- [02:48.470] We love this group. You voted for me.
+- [02:51.350] They never had a chance in Pennsylvania.
+- [02:53.640] They never even had a chance.
+- [02:56.400] But I'm thrilled to be back in this beautiful Commonwealth
+- [02:59.490] at the legendary Mon Valley Works Irvin plant --
+- [03:05.720] Irvin plant with a proud, Pennsylvania patriots
+- [03:09.150] who are the heart and soul of us steel.
+- [03:12.160] Thank you. Very much. That's great.
+- [03:14.510] Oh, you're going to be happy. You're going to be happy.
+- [03:17.910] There's a lot of money coming your way.
+- [03:20.040] It's a lotta money.
+- [03:21.990] You're going to say, please, sir,
+- [03:23.220] we don't want this kind of success.
+- [03:24.960] It's too much, sir. We can't take it.
+- [03:27.020] Please, we beg you. We don't need this much success.
+- [03:29.830] But we do, really, don't we? We're going to be so successful.
+- [03:33.130] You have just -- you have just started.
+- [03:35.550] You're going to watch.
+- [03:36.810] We're here today to celebrate a blockbuster agreement
+- [03:39.830] that will ensure the storied American company stays and --
+- [03:44.110] American company, you're going to stay an American company.
+- [03:46.750] You know that, right?
+- [03:49.740] But we're going to have a great partner.
+- [03:52.810] We're going a have a partner, and I have to tell you,
+- [03:55.220] Japan has been a tremendous friend of mine
+- [03:57.790] during my years as president, and then we had a little hiatus.
+- [04:02.470] We had a rigged election.
+- [04:04.370] But then we won, and we said, let's make it too big to rig,
+- [04:07.760] and they made it too to rig.
+- [04:09.880] And this is a much more powerful term
+- [04:12.590] that we could have ever had the other way.
+- [04:14.160] So a lot of things.
+- [04:15.390] God was looking down on us all for a lot of reason,
+- [04:18.180] including right there, a lot of reasons.
+- [04:21.780] We were blessed and you're going to be blessed.
+- [04:24.070] You're going to see that it will keep its headquarters
+- [04:26.690] in the great city of Pittsburgh, Pennsylvania,
+- [04:28.960] where it belongs.
+- [04:30.550] (applause)
+- [04:35.710] For generations, the name United States Steel
+- [04:38.690] was synonymous with greatness,
+- [04:40.820] and now it will again be synonymous with greatness.
+- [04:44.450] That's what it's going to be.
+- [04:47.260] The best and strongest steel on Earth
+- [04:49.360] will forever be made in America and made in Pennsylvania.
+- [04:56.580] And I want to thank a man that I saw right
+- [04:59.470] at the beginning of this whole thing during my first term,
+- [05:04.120] as we call it, U.S. Steel President Dave Barrett.
+- [05:08.340] Dave, thank you very much, wherever you may be.
+- [05:11.430] Wherever you may. Thank you, Dave.
+- [05:16.560] And he came to the White House,
+- [05:17.980] and he said, sir, we're in trouble.
+- [05:20.520] We need help.
+- [05:22.010] He was put there to save the company, right?
+- [05:24.760] I remember it so well, like yesterday,
+- [05:26.670] he was put there, they hired him to save the company.
+- [05:29.940] And he came up and he said, we need help, sir.
+- [05:34.750] I said, what can we do?
+- [05:36.040] Because all the steel companies were going south.
+- [05:38.240] They were all in trouble, he said.
+- [05:40.430] If you could get tariffs, sir, and save this company.
+- [05:44.030] And I thought about it. I studied it up real quick.
+- [05:46.370] It took me about two minutes.
+- [05:48.380] And I said, Dave, I think we're going to make you very happy.
+- [05:51.090] And we did make you happy, didn't we?
+- [05:52.490] We saved the company.
+- [05:53.720] We put 25 percent tariffs on your company.
+- [05:59.130] So we had protection.
+- [06:00.770] We were protected from outside horrible influence,
+- [06:04.720] including dumping, where they were dumping steel
+- [06:06.960] all over the United States.
+- [06:09.000] We saved it. It was a great honor.
+- [06:10.620] And Dave was really the first one
+- [06:12.000] that brought it to my attention, and I appreciate it, Dave.
+- [06:14.790] You did a good job. You did a good job.
+- [06:17.930] (applause)
+- [06:19.670] He more than saved the company. He made the company great.
+- [06:22.110] This will be a great company in a very short period of time.
+- [06:25.270] Also, the Vice Chairman of Nippon Steel, Takahiro Mori.
+- [06:30.370] Takahiro, thank you very much.
+- [06:32.410] (applause)
+- [06:33.890] He's a great guy. Highly respected.
+- [06:37.880] He's highly respected all over the world
+- [06:39.870] for what he's done with steel.
+- [06:41.070] He's going to make this is going to be his pet project.
+- [06:44.480] It's going to be great. Thank you, Takahiro.
+- [06:46.240] I appreciate it. We're also pleased to be joined
+- [06:49.150] by a man who has done a fantastic job.
+- [06:51.350] He's central. I always say he's central casting.
+- [06:54.870] Treasury Secretary Scott Bessent.
+- [06:57.150] Where is Scott? Central casting. Thanks, Scott.
+- [07:03.890] We had a good report today. I don't know if you saw.
+- [07:07.340] The numbers were through the roof,
+- [07:08.820] and there was no inflation.
+- [07:10.330] And they said, you know, Trump was right again.
+- [07:13.100] And we're all saying, oh, inflation, inflation.
+- [07:15.240] We're taking in billions and billions of dollars
+- [07:18.720] and tariffs and other things,
+- [07:20.460] and we're keeping our competitive nations.
+- [07:23.230] We're keeping them -- they're competitors.
+- [07:25.920] And we are keeping them totally at bay.
+- [07:27.780] And we right now have the hottest nation.
+- [07:31.370] Anywhere in the world.
+- [07:32.670] And six months ago, we had a nation that was dying.
+- [07:35.970] We had a nationwide that was cold as ice.
+- [07:38.570] And now we have the hottest,
+- [07:39.970] most talked-about nation anywhere in world.
+- [07:43.680] (applause)
+- [07:46.330] Anywhere. Good job, Scott.
+- [07:50.780] Also, Secretary of Labor, Lori Chavez de Rimer.
+- [07:55.450] Lori, thank you very much.
+- [07:58.610] Highly recommended by the Teamsters
+- [08:00.780] and a couple of others, I have to tell you.
+- [08:03.190] And I said, I'll take that. I'll take that.
+- [08:06.350] But she's been fantastic.
+- [08:07.770] Also, we have some incredible congressmen and women.
+- [08:11.110] Mike Kelly. Where's Mike?
+- [08:14.850] He's wearing a shirt today. A lot of times he doesn't.
+- [08:17.140] If it's cold, he doesn't' wear shirts.
+- [08:19.210] Thank you, Mike. Dan Muser,
+- [08:21.790] who I hear is going to maybe be running for governor.
+- [08:25.200] That's what I hear. I hear there's a rumor about that.
+- [08:29.900] There's a rumor about that, another man.
+- [08:33.030] Good luck with that, Dan, and I'll tell you,
+- [08:34.480] if that's your decision, you've got my support.
+- [08:37.480] You know that, right?
+- [08:39.160] If you run, you got my support. But he's been at --
+- [08:42.340] Guy, don't you think he's been a great congressman?
+- [08:45.370] He's been a great congressman.
+- [08:47.630] And if you run, you have my support totally, and you'll win.
+- [08:51.230] You'll win, the people are going to get it real fast.
+- [08:53.930] Thank you very much. Good luck.
+- [08:56.600] Guy Reschenthaler, who is a fantastic person
+- [09:02.810] with a very good friend of mine today,
+- [09:04.630] and I appreciate you coming together.
+- [09:06.510] And Guy, thank you very,
+- [09:08.450] what a job you've done from the beginning, right?
+- [09:11.200] We never had a problem from day one, you and I, though.
+- [09:14.470] Thank you very much, Guy. Great job.
+- [09:16.680] Mike Rooley. You know Mike? Where's Mike? Mike?
+- [09:21.060] Thank you, Mike. Great job you're doing.
+- [09:23.630] Thank you. Really, really good. And another friend of mine,
+- [09:27.620] a great hockey player, actually, Pete Stauber.
+- [09:30.640] Pete, thank you. What a great hokey player.
+- [09:33.870] He was the real deal, right?
+- [09:35.120] Pete, he'll even admit it. He's going to admit it!
+- [09:38.630] Pennsylvania Senate President Pro Tem Kim Ward.
+- [09:43.080] Thank you. Good job, Kim. Good job. Thank you.
+- [09:50.710] A woman who's an incredible writer, actually.
+- [09:52.870] She understands what they call the Rust Belt.
+- [09:55.690] We won't be able to call this section a Rust Belt anymore.
+- [09:58.640] It'll be a Golden Belt. It'll a Golden Dome, right?
+- [10:02.350] It'll part of a Golden dome
+- [10:03.980] that we're building to save everybody's lives.
+- [10:06.870] But this is a woman who is really fantastic.
+- [10:08.920] She's a brilliant writer. She just got signed up by,
+- [10:11.820] of all groups, the Washington Post.
+- [10:14.170] That's big time. Selena Zito. Where's Selena?
+- [10:18.790] She's around here. Selena, thank you.
+- [10:21.240] She understands you people and me better than we do.
+- [10:26.580] She understands us, and she got it
+- [10:28.280] right from the beginning with Trump, didn't you, Selena?
+- [10:31.050] She said right early on, guess what?
+- [10:33.080] He's going to win.
+- [10:34.620] That was when people were saying, really, is he running?
+- [10:36.810] He's only doing this for fun.
+- [10:38.260] She said, no, he's going to win. And I wouldn't say it's fun,
+- [10:41.940] but boy, are we doing progress, right?
+- [10:43.890] We're making big progress.
+- [10:48.080] So you have a couple of people here that I wanted to introduce
+- [10:51.190] because you know being a guy that's watched a lot of football
+- [10:55.770] this man had tremendous courage he had a lot of grit
+- [11:00.070] and everybody knows
+- [11:01.880] he wasn't the largest person on the field at all
+- [11:04.230] but he was in many ways the most courageous Rocky Blier.
+- [11:08.340] Rocky come up here.
+- [11:10.190] Rocky, come up here, come up here.
+- [11:15.070] Come up here Rocky, he's such a great, great heart.
+- [11:20.930] Come on up here, Rocky. Wow.
+- [11:25.600] And two other people I want to bring up
+- [11:27.260] because I'm a fan of your Steelers
+- [11:30.350] and I happen to think a really good quarterback
+- [11:32.730] is a man named Mason Rudolph,
+- [11:35.030] and I think he's going to get a big shot.
+- [11:37.600] He's tall, he is handsome, got a great arm.
+- [11:41.400] And I have a feeling he's going to be the guy.
+- [11:45.340] So Mason Rudolph, come up here.
+- [11:48.130] And also a safety who's an absolute killer,
+- [11:51.770] Miles Killebrew. Do you know Miles?
+- [11:54.300] Come on up here, Miles. Come on up here, fellas.
+- [12:13.490] Male Speaker: Mr. President, on behalf of U.S. Steel
+- [12:18.330] and to the people of Pittsburgh, more importantly, though,
+- [12:21.830] to all the Steelers fans that are here this evening.
+- [12:26.740] (applause)
+- [12:29.810] I have the honor of making you an honorary Pittsburgh Steeler
+- [12:36.570] and would like to present to you, your jersey, as --
+- [12:43.350] (applause)
+- [12:48.430] with the number 47 as the 47th President of the United States,
+- [12:52.720] a number that hangs in the National Football League
+- [12:56.220] Hall of Fame,
+- [12:57.830] I'd like to present to this to a Hall of fame President.
+- [13:03.210] Please accept it. (applause)
+- [13:05.060] The President: Thank you very much, thank you.
+- [13:16.030] Mason Rudolph: Listen, I'm honored to be here
+- [13:17.920] with a great stealer legend like Rocky Blyer,
+- [13:20.110] somebody who fought for our country in Vietnam
+- [13:22.880] and came back and played some great football
+- [13:27.190] with the black and gold.
+- [13:29.520] Awesome to be a part of this big investment in Pittsburgh.
+- [13:32.150] Go Steelers.
+- [13:33.720] (applause)
+- [13:38.820] Miles Killebrew: How about this present of ours, huh?
+- [13:43.920] Just wanted to say God bless you
+- [13:45.210] President Trump and God bless you Pittsburgh.
+- [13:48.860] (applause)
+- [13:58.910] The President: Thank you very much, everybody.
+- [14:00.790] It's a great group of people.
+- [14:02.740] And he did have a lot of courage, didn't he?
+- [14:04.480] Not that big. He's like, okay.
+- [14:06.130] I said, Rocky, I've had you up to here.
+- [14:08.280] But, boy, does he have a heart, right?
+- [14:10.250] Hearts. It's all about the heart.
+- [14:12.650] Also, Senator Dave McCormick,
+- [14:14.530] who had a great election victory,
+- [14:16.780] and he sends his regards.
+- [14:19.180] He's trying to get a certain bill
+- [14:21.330] through that's going to give you the largest tax cuts in history,
+- [14:25.220] and we got to get it done.
+- [14:26.500] So, thank you to Dave. He has been great.
+- [14:30.050] Perhaps most importantly, let me thank the tough,
+- [14:32.400] hardworking members of the United States Steelworkers
+- [14:35.450] Local 2227
+- [14:38.370] and the United State Steelworkers Local 1219
+- [14:42.850] and the United State Steel Workers Local 1557.
+- [14:47.650] You people are amazing and look what you've been able to do.
+- [14:51.320] Look what you have been able to do.
+- [14:53.680] (applause)
+- [14:55.330] This is a big deal today. This is big deal.
+- [14:59.800] You know, I have to tell you about Nippon.
+- [15:02.150] They kept asking me over and I kept rejecting it.
+- [15:05.150] No way. No way, no way.
+- [15:07.600] And after about four times, they said, you know,
+- [15:10.910] these people really want to do a great thing.
+- [15:12.700] They want to -- they really want it.
+- [15:14.870] And they're putting up, you know billions of dollars,
+- [15:17.540] and they're going to do this plant and other plants.
+- [15:19.670] And it's great.
+- [15:21.410] And you're going have control. You're going maintain control.
+- [15:25.110] And nobody would put up money like that.
+- [15:27.420] And every time,
+- [15:28.740] Dave, I think you'll say, every time they came in,
+- [15:31.340] the deal got better and better and better for the workers.
+- [15:33.990] Because I didn't give a damn about anybody else,
+- [15:36.090] if you want to know the truth.
+- [15:37.640] And the rest of them, they'll take care of themselves.
+- [15:41.530] But for the work, and I have no doubt that Nippon and Dave
+- [15:46.460] and everybody else, we're all working together.
+- [15:48.340] They're not going to be in Washington.
+- [15:49.780] They're not going to be watching over it.
+- [15:51.820] And it's going to great.
+- [15:53.290] This unbelievable spirit for what you're doing.
+- [15:56.640] And I'm telling you, you're going to find out
+- [15:58.900] that the great people of Japan -- and we love them.
+- [16:03.120] You know, Shinzo Abe was my friend.
+- [16:05.060] He was a great Prime Minister of Japan.
+- [16:08.200] And unfortunately, he's no longer with us.
+- [16:10.710] You know what happened with Shinzo.
+- [16:12.730] But he was a good friend of mine and an amazing man.
+- [16:16.470] And it's an amazing country,
+- [16:17.990] and you're going to have a tremendous relationship.
+- [16:20.340] So, thank you very much. We very much appreciate it.
+- [16:24.090] Very much appreciated.
+- [16:25.380] (applause)
+- [16:26.640] For more than 124 years, the men and women of U.S.
+- [16:30.470] Steel have poured the molten metal
+- [16:32.500] and forged the tempered beams
+- [16:34.610] that built America's railroads, bridged mighty rivers,
+- [16:38.590] and raised up towering skyscrapers
+- [16:40.910] like the ones we have in New York.
+- [16:44.160] One hundred stories high and much higher than that,
+- [16:48.220] the city of Pittsburgh used to produce more sealed
+- [16:51.510] and most entire countries could produce.
+- [16:55.070] And it wasn't even close,
+- [16:56.450] but our steel workers know better than anyone.
+- [16:58.710] Decades of Washington betrayals and incompetence
+- [17:03.380] and stupidity and corruption
+- [17:05.500] cost this region over 100,000 steel jobs,
+- [17:09.910] and they've melted away just like butter melts away.
+- [17:14.120] Between the year 2000 and 2016,
+- [17:17.190] more than half of all the job at Pittsburgh.
+- [17:20.450] Iron and steel mills were obliterated.
+- [17:22.790] They were just absolutely taken away.
+- [17:25.810] Like, just taken away like you take away candy from a baby.
+- [17:30.520] When I came into office eight years ago,
+- [17:32.490] I proclaimed a simple but crucially important principle.
+- [17:36.430] If you don't have steel, you don't have a country.
+- [17:39.580] You don't a have country, you can't make a military.
+- [17:42.530] What are we going to do?
+- [17:43.790] Say, let's go to China to get our steel for the Army tanks
+- [17:46.860] and for the boats and ships. A strong steel industry
+- [17:50.360] is not just a matter of dignity or prosperity and pride.
+- [17:54.410] It's, above all, a matter of national security, and it is.
+- [18:05.000] You're going to see some amazing things here.
+- [18:08.050] That's why I fought for the American steel worker
+- [18:10.700] like no president has ever fought before.
+- [18:13.070] That's I won your votes like no president has ever won before.
+- [18:17.840] And right from the beginning, it didn't take long.
+- [18:19.980] You got it right from the beginning.
+- [18:21.530] I think before I even opened my mouth,
+- [18:23.250] because even as a private citizen,
+- [18:25.230] I used to fight and say,
+- [18:26.580] what are you letting all of these countries come in
+- [18:29.630] and steal your jobs, bring them to other countries?
+- [18:32.040] Why do you let that happen?
+- [18:33.770] Not only here, but all over the country.
+- [18:36.460] In 2018, I imposed historic tariffs on foreign steel,
+- [18:40.950] and the results were amazing.
+- [18:43.150] You wouldn't have this plant right now if I didn't put on 25-
+- [18:47.410] and 50-percent tariffs. They were dumping steel,
+- [18:50.500] as you know, from China and from all over world.
+- [18:52.810] They were jumping it all over our country.
+- [18:54.730] Dumping it. And it was bad steel.
+- [18:56.840] It was garbage.
+- [18:58.270] But it was steel, and it was cheap as hell.
+- [19:01.480] And it was a terrible thing.
+- [19:02.860] And you wouldn't have had any steel mills.
+- [19:05.810] I don't think, Dave, they'd have a steel mill open in the country
+- [19:08.570] if we didn't do the tariffs.
+- [19:10.260] And it was just in time. It was just in time
+- [19:13.960] they were closing up as fast as you can count.
+- [19:17.430] In a few short years, domestic steel production
+- [19:20.060] surged by more than 10 million tons.
+- [19:22.260] Imports from your foreign competitors
+- [19:24.830] dropped by 24 percent almost immediately.
+- [19:28.930] And more than $15 billion of investment
+- [19:31.700] poured into American steel throughout the United States,
+- [19:34.570] all because you had a president
+- [19:36.980] who stood up for our steel workers
+- [19:38.680] and put America first. I'm very proud of that one.
+- [19:42.110] (applause)
+- [19:43.410] I stood up for everyone else, too.
+- [19:49.160] But then came four calamitous years of a president
+- [19:54.070] who obviously wasn't doing the job.
+- [19:57.910] I'm trying to be nice. You don't have to be nice.
+- [20:01.580] But what he did to this country is a disgrace
+- [20:04.350] between the borders.
+- [20:05.680] Millions and millions of people are pouring through our borders
+- [20:09.250] from all countries all over the world.
+- [20:10.890] They came from the jails of the Congo.
+- [20:14.010] They came from all over South America.
+- [20:16.100] Prisons, gangs, drug dealers, drug merchants.
+- [20:21.070] They came for mental institutions.
+- [20:22.750] They're mentally insane.
+- [20:24.000] They were pouring into our country by the millions.
+- [20:27.880] They allowed this to happen to our country.
+- [20:30.780] But we're moving them out, and we're moving them fast,
+- [20:33.100] and were bringing them back to where they came from.
+- [20:35.590] We're having a lot of problems with the liberal judges
+- [20:38.290] in courts, the radical-left, crazy judges.
+- [20:41.660] That, you know, they come in without courts.
+- [20:44.530] They pour into our country, totally unvetted and unchecked.
+- [20:48.450] Nobody checked them. Nobody had any idea who they were.
+- [20:51.770] 11,888 of them were murderers.
+- [20:56.030] Fifty percent of those over 11,000 people
+- [20:59.860] that were murderous,
+- [21:01.070] 50 percent murdered more than one person.
+- [21:04.350] And these people were allowed to come into our country
+- [21:06.670] by the Democrats.
+- [21:09.170] You can never forget what they've done.
+- [21:11.100] And it's a single -- we've beaten inflation.
+- [21:13.380] Look at what we've done, look at the numbers that came out,
+- [21:16.040] the prosperity -- everything is good.
+- [21:18.450] First time ever -- right track, wrong track.
+- [21:21.770] We're on the right track. First time in 28 years.
+- [21:27.620] But they allowed -- they allowed that to happen.
+- [21:30.440] I built almost 700 miles of wall.
+- [21:32.500] If we didn't have the wall,
+- [21:33.790] we could have never done what we did.
+- [21:35.490] Over 700 miles.
+- [21:37.490] But still, they came because they didn't want to finish.
+- [21:40.020] They didn't want to close up any gap --
+- [21:42.420] the gaps that we had to keep so that we could get
+- [21:45.480] our equipment out, so we could get through.
+- [21:47.340] They didn't want to put up the final stages.
+- [21:50.290] It would have taken three weeks to put the final stages.
+- [21:53.160] They said, no, we don't want the wall built.
+- [21:56.420] And I thought they were kidding, but they weren't.
+- [21:58.250] They wanted open borders,
+- [21:59.650] and what they led into our country
+- [22:01.650] can never be forgotten. The last administration
+- [22:05.350] granted tens of thousands of job-killing tariff exemptions
+- [22:09.630] to your foreign competitors.
+- [22:11.640] So they were afraid to take down the tariffs that I imposed
+- [22:16.270] because it was so good for our country, so much money.
+- [22:20.290] But what they did do, think of this,
+- [22:21.920] they gave exemptions,
+- [22:23.200] and they were so broad and so deep.
+- [22:26.070] And I guess you saw that.
+- [22:27.580] But the exemptions that they gave allowed foreign competitors
+- [22:31.490] to come in and steal our industry,
+- [22:33.510] steal our jobs, and bring them back home
+- [22:37.430] and bring them home by the boatload.
+- [22:39.210] Crippling imports of foreign steel skyrocketed
+- [22:42.970] over the last four years,
+- [22:44.600] like you have never seen before, by over 30 percent.
+- [22:48.210] That's an incredible, crazy number.
+- [22:50.920] And imports of steel and rebar from Mexico
+- [22:53.710] exploded by more than thousand percent.
+- [22:58.540] We were getting our steel from Mexico,
+- [23:01.030] we were getting our steel Canada,
+- [23:03.430] we're getting our steal from every place but right here.
+- [23:07.350] It was then that we announced
+- [23:09.650] the crown jewel of our steel industry,
+- [23:11.870] U.S. Steel was being sold into foreign hands
+- [23:15.210] with no protections for our great steel workers.
+- [23:18.510] And I said there's no way we're going to let that happen
+- [23:21.630] when I was watching over you. You don't even know it.
+- [23:25.170] I was watching over you. Best people.
+- [23:29.520] You're the best people. You built this country.
+- [23:32.640] You know, you people built this county.
+- [23:34.330] You people and others like you built this countryside.
+- [23:37.880] By the time I came into office, many feared that the Mon Valley
+- [23:41.440] would lose up to 3,000 steel jobs,
+- [23:44.430] that U.S. Steel would close.
+- [23:46.200] And it was a fixture of the Pittsburgh skyline.
+- [23:50.460] It may never live for another week.
+- [23:52.920] We had times we thought we were going to live,
+- [23:55.190] you weren't living for another week,
+- [23:57.500] but I promised the people of Western Pennsylvania
+- [24:00.100] that I would never ever let that happen
+- [24:02.520] and as president I kept that promise.
+- [24:05.220] Boy did I keep that promise.
+- [24:07.470] (applause)
+- [24:13.420] So soon after initially taking office,
+- [24:15.820] I imposed powerful 25 percent tariffs
+- [24:18.540] on all foreign steel and ended each and every one
+- [24:22.740] of the Biden exceptions and exclusions.
+- [24:25.880] And today, I have a major announcement.
+- [24:28.230] And are you ready to hear this? (cheers)
+- [24:32.320] This is on behalf of Scott, Secretary of Treasury,
+- [24:36.610] Howard Lutnick, Secretary of Commerce,
+- [24:40.970] and all of the great geniuses and people we have working.
+- [24:43.980] And they are smart,
+- [24:45.290] but I don't think you'd be a good steelworker, Scott.
+- [24:47.360] I'm sorry. I'm going to have to put
+- [24:49.870] a little more muscle content into that guy.
+- [24:53.170] But he's great. He's great at what he does.
+- [24:56.080] We are going to be imposing. A 25 percent increase.
+- [25:01.770] We're going to bring it from 25 percent to 50 percent,
+- [25:05.050] the tariffs on steel, into the United States of America,
+- [25:09.210] which will even further secure
+- [25:13.910] the steel industry in the United States.
+- [25:17.130] Nobody's going to get around that.
+- [25:19.700] So we're bringing it up from 25 percent.
+- [25:23.870] We're doubling it to 50. And that's a loophole.
+- [25:27.970] And, by the way, I have to tell you,
+- [25:30.380] I believe that this group of people
+- [25:32.430] that just made these investments right now are very happy
+- [25:35.900] because that means that nobody
+- [25:37.130] is going to be able to steal your industry.
+- [25:40.160] It's at 25 percent, they can sort of get over that fence.
+- [25:45.080] At 50 percent, they could no longer get over the fence.
+- [25:48.130] So congratulations to everybody
+- [25:51.090] and to you for making a great deal.
+- [25:53.900] You just made a better deal, right?
+- [25:58.860] I said to the group,
+- [26:00.090] would you rather have a 40 percent increase?
+- [26:02.390] Because I was thinking about 40 when I came.
+- [26:05.500] I said, would rather have 40 percent or a 50 percent?
+- [26:08.320] They said, we'll take 50.
+- [26:10.730] I said I had a feeling you were going to say that.
+- [26:13.820] So congratulations. Also congratulations to Dave
+- [26:16.960] because you got this whole thing started.
+- [26:18.880] Congratulations. Great job. Great job.
+- [26:24.140] The people here understand the word tariff.
+- [26:28.140] And you understand it better than the people on Wall Street.
+- [26:30.840] But now the people of Wall Street are finding out.
+- [26:32.880] They're saying, wow, you know, Trump was right.
+- [26:34.760] You saw today they had an announcer,
+- [26:37.680] Joe Kiernan, CNBC, Maria Bartiromo,
+- [26:42.080] who's so fantastic on Fox Business.
+- [26:44.810] And they were saying, you, know,
+- [26:46.240] Trump was, right, look at these numbers.
+- [26:48.030] The numbers got released today at 8:00 in the morning,
+- [26:51.710] and it showed no inflation
+- [26:54.610] and tremendous income jumps for workers
+- [26:58.080] and for the people of our country,
+- [27:00.090] and they go, wow, he was right. He was right, but you knew that.
+- [27:05.630] You knew that before Wall Street.
+- [27:07.750] The workers knew that we don't want America's future
+- [27:11.120] to be built with shoddy steel from Shanghai.
+- [27:13.830] We want it built with the strength
+- [27:16.410] and the pride of Pittsburgh.
+- [27:17.900] It's Pittsburgh steel, it's U.S. Steel,
+- [27:20.490] and it's going to be something even more special
+- [27:22.750] when you get all that.
+- [27:24.210] Billions of dollars of new equipment
+- [27:26.010] that they're going to be investing right here.
+- [27:27.640] Billions and billions of dollars.
+- [27:32.350] Since I opposed our steel tariffs,
+- [27:35.020] and you know I said that tariff to me
+- [27:36.710] is the most beautiful word in the dictionary.
+- [27:40.490] I love the word so much. I've always loved it.
+- [27:42.480] For 40 years I've loved it, for 40 years,
+- [27:44.420] I didn't understand
+- [27:46.170] why people weren't in this country using tariff.
+- [27:48.870] They use tariffs to kill us.
+- [27:50.890] They used tariffs to take our businesses,
+- [27:52.990] not only steal, other businesses, too.
+- [27:55.440] And we never knew how to use tariffs back,
+- [27:58.490] because we had people in the White House
+- [28:00.050] that either didn't care or weren't very smart or both.
+- [28:04.350] And it really starts with the White house.
+- [28:05.900] It's very simple. It starts with a White house,
+- [28:07.770] but I said, it's my favorite word in the dictionary,
+- [28:11.650] the word tariff,
+- [28:13.220] and I got slaughtered in the fake news.
+- [28:15.880] I got killed. They said, what about love?
+- [28:19.480] What about wife and family? What about God, they said.
+- [28:24.750] So they made the word tariff be my fourth favorite word.
+- [28:30.090] And now I have no complications. It's my fourth-favorite word.
+- [28:34.590] God, wife, family, all of the different things.
+- [28:39.030] But they did. It's not even believable.
+- [28:41.510] I said, tariff is my favorite word,
+- [28:43.430] and I got slaughtered by these people.
+- [28:46.500] But we've had a lot of fun.
+- [28:47.870] We've jousted for a long time with the fake news.
+- [28:51.490] But companies all over the world
+- [28:53.020] have announced nearly $10 billion
+- [28:55.190] in new investments in steel, just in steel alone.
+- [28:59.090] But the Nippon investment we're announcing today
+- [29:01.750] blows them all away with a record setting.
+- [29:04.290] And this was just heard of.
+- [29:06.560] We just came out a little while ago.
+- [29:09.750] $14 billion commitment to the future of this company.
+- [29:13.690] So that's. That is the single largest investment.
+- [29:21.740] That's the single-largest investment of any kind
+- [29:25.750] in any industry. So not only steel.
+- [29:29.350] Go all the way back. You go into fracking.
+- [29:31.720] You go in to anything you want to go into
+- [29:33.500] because you're a good fracking state, too.
+- [29:35.690] We love fracking, by the way. But think of this.
+- [29:38.940] Think of this, the largest investment of any kind
+- [29:43.110] in the history of the Commonwealth of Pennsylvania.
+- [29:46.240] And we also will be the largest investment
+- [29:48.600] in the history of American steel industry.
+- [29:51.720] There's never been a $14 billion investment
+- [29:56.170] in the steel industry in the United States of America.
+- [30:01.630] (applause)
+- [30:07.720] And Pittsburgh will very soon be respected around the world
+- [30:10.900] as this steel city again.
+- [30:13.410] So I want to congratulate you. I want congratulate you all.
+- [30:20.060] As part of this monumental commitment,
+- [30:22.230] Nippon will also invest $2.2 billion
+- [30:25.190] to increase steel production here in the Mon Valley Works,
+- [30:28.830] specifically allocated to Mon Valley,
+- [30:31.540] along with $200 million for the Advanced Technology Research
+- [30:36.180] and Development Center
+- [30:38.020] that's being built already in Pennsylvania.
+- [30:40.170] So I want to congratulate you.
+- [30:41.890] And in addition, another $7 billion
+- [30:45.790] to modernize steel mills, expand ore mines.
+- [30:49.340] And build state-of-the-art facilities in Indiana,
+- [30:52.990] Minnesota, Alabama, and Arkansas.
+- [30:56.420] So I want to thank you, and congratulations to those states.
+- [31:01.120] Congratulations.
+- [31:03.810] And the bulk of these expenditures will be made
+- [31:06.220] in the next 14 months. It's going to happen fast.
+- [31:08.640] You're going to be very busy watching trucks go back
+- [31:12.060] and forth loaded up with cash or its equivalent.
+- [31:17.130] And it will create and save over 100,000 American jobs,
+- [31:21.200] including 14,000 jobs in Pennsylvania.
+- [31:23.970] Thank you. Very good.
+- [31:28.400] And, by the way, your local union --
+- [31:31.590] I won't talk about your national union,
+- [31:33.300] because I don't think he knows
+- [31:35.920] what the hell he's talking about.
+- [31:38.970] But your local Union, I want to tell you, is so unbelievable.
+- [31:43.740] They've been great. I have to tell that.
+- [31:46.560] This is an incredible deal for American steelworkers,
+- [31:49.350] and it includes vital protections
+- [31:51.070] to ensure that all steelworkers will keep their jobs
+- [31:54.470] at all facilities in the United States
+- [31:56.990] will remain open and thriving.
+- [32:01.460] (applause)
+- [32:08.900] U.S. Steel will maintain --.
+- [32:12.320] (crowd chanting "U.S.A.")
+- [32:22.760] I don't want to fight with those guys.
+- [32:24.480] They look pretty. I'll never fight them.
+- [32:27.790] U.S. Steel will maintain all of its current
+- [32:30.870] operating blast furnaces at full capacity
+- [32:33.760] for a minimum of the next 10 years.
+- [32:36.660] And we have that as a commitment.
+- [32:38.030] But I don't even think that's --
+- [32:40.130] I don't even think you have to worry about that.
+- [32:43.620] You're not going to have to even think about that, frankly.
+- [32:45.780] It won't matter, because they're going to be here
+- [32:47.250] for a long time -- a lot longer than that.
+- [32:49.670] There will be no layoffs and no outsourcing whatsoever.
+- [32:52.970] And every U.S.
+- [32:54.300] Steelworker will soon receive a well-deserved $5,000 bonus.
+- [32:59.220] (applause)
+- [33:00.650] That's very nice. Thank you very much.
+- [33:05.410] That's great. That's important.
+- [33:08.470] For what you've gone through, you've got through a lot.
+- [33:10.670] It's closing. It's not closing. It's opening.
+- [33:12.960] And you want to stay here.
+- [33:14.500] People say, well, we'll move to another place
+- [33:16.040] and we'll do chips.
+- [33:17.280] So we'll do something like chips.
+- [33:18.890] Somehow, you don't want to do chips.
+- [33:20.240] I'm looking at these giant guys with the giant arms.
+- [33:23.220] You're not going to like doing chips.
+- [33:25.700] Most importantly, U.S.
+- [33:26.900] Steel will continue to be controlled by the USA,
+- [33:30.630] otherwise, I wouldn't have done the deal.
+- [33:32.420] I wouldn't have done it.
+- [33:33.760] But the USA and we're going to be working together
+- [33:36.900] and you're going to look at your board.
+- [33:38.440] You have a great board.
+- [33:40.140] And we're going to have an amazing alliance.
+- [33:44.360] In this audience are many of the incredible workers
+- [33:47.130] who will really be bringing our steel industry
+- [33:50.020] roaring back to life. And it's going to roar,
+- [33:52.760] including a man who has supported me
+- [33:55.180] from the very beginning,
+- [33:56.500] the founder and steelworker of Steelworkers for Trump.
+- [34:00.680] In this area, I have some of these guys. They're great.
+- [34:03.630] And I had somebody in Michigan that was so great.
+- [34:07.320] I love that guy. And I love this guy.
+- [34:09.900] He's been with me from the beginning.
+- [34:12.020] Brian Pavlik.
+- [34:13.570] Brian, come up here. Come up here, Brian.
+- [34:17.240] Brian's been with us from the beginning.
+- [34:19.480] Oh, look at him. Big guy.
+- [34:25.090] Brian Pavlik: Thank you.
+- [34:30.930] It's a great day to be an American steelworker.
+- [34:37.880] It's an honor to be on the stage with my hero
+- [34:41.610] and the greatest president ever, Donald J. Trump.
+- [34:51.450] Hello, my name is Brian Pavlak.
+- [34:53.790] I'm a third-generation steelworker
+- [34:56.150] and the president and founder of Steelworkers for Trump.
+- [35:00.210] The attempted assassination
+- [35:03.170] of then-president candidate Donald J. Trump
+- [35:07.330] prompted me to establish Steelworkers for Trump,
+- [35:10.120] our membership now exists to 2.5K.
+- [35:17.600] In my opinion, President Trump has demonstrated
+- [35:21.120] remarkable support for the American steel industry,
+- [35:24.670] surpassing the collective efforts
+- [35:27.220] of all other presidents combined.
+- [35:30.310] (applause)
+- [35:35.170] Through tariffs, he has fought
+- [35:36.830] to keep still being made in America
+- [35:40.020] rather than being dumped onto us by China.
+- [35:49.060] Through this deal, he has fought to keep us billions of dollars
+- [35:53.510] in investments who will secure jobs for generations to come.
+- [36:02.620] Thank you, President Trump, for your commitment
+- [36:05.620] to revitalizing the American steel industry
+- [36:08.940] and restoring its greatness
+- [36:10.850] and in making American steel great again.
+- [36:16.310] (applause)
+- [36:23.900] The President: Thank you, Brian. Great guy.
+- [36:26.860] And he was with me right from the beginning,
+- [36:28.490] I think, Brian, right from day one.
+- [36:30.060] And I appreciate it. We won't forget it either.
+- [36:32.940] So let me also bring up, real fast,
+- [36:34.870] a few guys that I met backstage that I was very impressed with.
+- [36:38.620] Jack, Jason, Scott, Donald, and Kurt.
+- [36:41.860] Come on up here, fellas. Get up here. Come on, up here.
+- [36:45.900] These guys are great. Come on. They're happy people.
+- [36:52.140] (applause)
+- [37:00.490] Male Speaker: Thank you, Mr. President.
+- [37:03.940] I'm not prepared, but I can tell you,
+- [37:07.260] I would rather be nowhere than where I am today
+- [37:11.900] with all of my US Steel family, friends,
+- [37:14.570] and everybody that I love. Thank you very much.
+- [37:17.670] Thank you, Mr. Berg. Thank you, Mr. Morey.
+- [37:19.710] Most of all, thank you Donald J. Trump.
+- [37:23.760] (applause)
+- [37:34.070] Jason Zugui: We did it.
+- [37:38.980] I want to thank everyone for coming.
+- [37:40.570] Today is a great day.
+- [37:42.630] For those of you who don't know me,
+- [37:44.090] my name is Jason Zugui. I'm the former president,
+- [37:46.990] current vice president of Local 2227,
+- [37:50.000] and I've worked at this great plant for 28 years.
+- [37:53.990] I'm a third generation steel worker working for U.S. Steel.
+- [37:57.570] And by the way, I'm damn proud of that.
+- [38:07.230] When we decided to stand up
+- [38:08.850] for the men and women of the Mon Valley,
+- [38:10.550] we knew it wasn't going to be easy.
+- [38:12.750] Almost every day there were obstacles in our way.
+- [38:15.770] At any point we could have chosen to give up,
+- [38:17.730] but we are steelworkers
+- [38:19.010] and giving up just isn't something we do.
+- [38:22.600] These investments will ensure steel will be made right here
+- [38:25.660] in Pittsburgh for years to come.
+- [38:27.960] And I want to take this time to thank a lot of people
+- [38:31.140] that were crucial to getting this partnership
+- [38:33.070] to the finish line.
+- [38:34.820] First and foremost, I want to thank God
+- [38:36.850] for giving me the strength, courage,
+- [38:38.380] and wisdom to fight day after day.
+- [38:42.680] (applause)
+- [38:46.370] I want to thank my family for their support.
+- [38:53.510] They were always patient with me
+- [38:55.310] when I'd be constantly on the phone night
+- [38:57.290] after night discussing this partnership,
+- [39:00.060] talking to politicians or easing the mind of a union member.
+- [39:05.420] I want to thank Jack Maskell.
+- [39:08.520] We've been together from the beginning through this.
+- [39:11.920] (applause)
+- [39:16.920] From the many meetings together,
+- [39:18.780] DC trips that were nothing but business
+- [39:21.130] to just brainstorming daily. Thank you, my brother.
+- [39:24.530] There's no one I'd rather have gone to this fight with.
+- [39:27.530] We did it. And I told you how bad I hate to lose.
+- [39:32.940] And we won, brother.
+- [39:34.560] (applause)
+- [39:40.310] To the guys from Clareton and ET
+- [39:42.330] that fought side by side with us from the beginning.
+- [39:45.110] It was an honor and I'll never forget our journey.
+- [39:49.410] I want to thank the local mayors who stood toe to toe with us
+- [39:52.650] from the beginning. We greatly appreciate it.
+- [39:55.600] (applause)
+- [40:01.600] Mayor Kelly, thank you,
+- [40:04.070] and thank you for your friendship, sir.
+- [40:08.120] I want to thank my Union brothers and sisters
+- [40:10.190] for believing in us and trusting us to get this done.
+- [40:13.740] My campaign slogan when I ran for office was,
+- [40:16.330] I will fight for you.
+- [40:20.560] I hope that I've proved that to you.
+- [40:22.450] It was my honor.
+- [40:30.760] Selena Zito, thank you.
+- [40:34.270] From the wonderful articles you wrote in the social media post
+- [40:37.410] and everything you have done behind the scenes,
+- [40:39.690] you are a rock star, thank you.
+- [40:42.170] (applause)
+- [40:47.200] Senator Kim Ward, thank you for fighting for us
+- [40:50.050] as hard as you did. You were one feisty lady,
+- [40:53.550] and I say that with the utmost respect,
+- [40:56.470] and we appreciate it
+- [40:58.670] (applause)
+- [41:00.090] T he state of Pennsylvania and your constituents
+- [41:04.120] are so proud to have you represent us. Thank you.
+- [41:08.510] Chris Hall, just a small town guy from Chalfont
+- [41:11.840] that made it out and wanted to give back to his community.
+- [41:14.760] Thank you for your words of wisdom
+- [41:16.270] and unwavering support for your community.
+- [41:19.050] You did a good thing.
+- [41:20.660] (applause)
+- [41:25.680] Congressman Dan Muser, you took our meeting in D.C.
+- [41:29.700] personally and never wavered after that meeting.
+- [41:32.630] You fought for us in public and that means the world to us.
+- [41:35.560] We will never forget your support
+- [41:37.480] and you can count on ours as well.
+- [41:38.980] Thank you.
+- [41:40.600] (applause)
+- [41:46.160] Mr. Morey, I love this guy.
+- [41:49.660] Thank you for taking the time to listen to our concerns
+- [41:52.080] and always making yourself available to answer
+- [41:54.080] all of our questions.
+- [41:55.530] This man has been disrespected and didn't deserve that.
+- [41:58.750] And I feel horrible that that happened to you.
+- [42:00.920] We will do everything in our power
+- [42:02.300] to see that never happens again.
+- [42:04.070] You have my word.
+- [42:05.630] These investments are life-changing
+- [42:07.620] for all the men and women here today and for our communities.
+- [42:10.870] I personally look forward to working with you
+- [42:12.590] for years to come. Thank you.
+- [42:15.520] (applause)
+- [42:21.730] I want to thank the men from New York and D.C.
+- [42:23.870] That called me every day, every day.
+- [42:27.490] They gave me breaking news, advice,
+- [42:29.250] and guidance through this process.
+- [42:30.930] You might have been behind the scenes,
+- [42:32.290] but you definitely had a hand in getting this partnership
+- [42:34.410] to the finish line. Paul, Curtis, Chris, thank you.
+- [42:39.140] (applause)
+- [42:44.830] U.S. Senator Dave McCormick.
+- [42:46.780] I met the Senator at a Trump rally in Latrobe
+- [42:49.320] before we were both getting ready to speak.
+- [42:51.680] He introduced himself to me
+- [42:52.890] and asked about the Nippon merger
+- [42:54.550] and what I thought about it.
+- [42:55.920] Well, as you know, I'm pretty passionate about it,
+- [42:58.640] and let him know that.
+- [43:00.100] He told me, after I win, you will be my first meeting.
+- [43:03.330] I was his first meeting, he kept his promise.
+- [43:06.530] (applause)
+- [43:12.170] He asked all the tough questions during the meeting,
+- [43:15.460] and he gathered the facts.
+- [43:17.860] We met again last week to touch base,
+- [43:19.670] and took it from there.
+- [43:20.970] Without his help, this partnership doesn't get done.
+- [43:23.550] Thank you, Senator, from the bottom of my heart.
+- [43:26.040] (applause)
+- [43:29.980] And last but not least, President Trump, what can I say?
+- [43:34.100] I never doubted you'd be there for us when we needed you.
+- [43:37.070] When our international endorsed Harris,
+- [43:38.810] we decided to take a stand for what we believed was right.
+- [43:42.830] That was to come out publicly and boldly in support of you.
+- [43:47.160] Although we aren't public speakers,
+- [43:48.770] we tucked our fears aside
+- [43:49.990] and did what any proud American would do.
+- [43:52.210] We thank you every day for risking your life
+- [43:54.450] and laying it all on the line for this country.
+- [43:57.940] (applause)
+- [44:06.730] I knew you wouldn't let us down,
+- [44:08.230] and for that I will be forever grateful.
+- [44:11.080] From every steelworker that supports you
+- [44:12.890] and every family you saved,
+- [44:14.650] I want to say thank you Mr. President
+- [44:16.230] for making U.S. Steel great again.
+- [44:18.590] (applause)
+- [44:24.260] God bless America, God bless U.S. Steel. Thank you.
+- [44:28.780] (applause)
+- [44:35.800] Don German: So my name is Don German.
+- [44:37.240] I am the plant manager for this Urban Works here.
+- [44:40.730] I had 35 years with U.S. Steel.
+- [44:42.860] I'm a first generation U.S. Steel worker.
+- [44:45.580] It is an honor to host you, Mr. President, today.
+- [44:49.810] And let me tell you, it was a lot of work,
+- [44:51.350] but it was well worth it.
+- [44:53.930] But I will always tell people that, you know,
+- [44:56.520] it is for the workers that are out on this floor.
+- [44:58.980] It is for our families that are here to support us.
+- [45:02.230] It is the community members and our community
+- [45:05.380] and our state and our country.
+- [45:07.680] And I thank you from the bottom of my heart.
+- [45:11.380] (applause)
+- [45:19.280] Kurt Barshak: Good afternoon.
+- [45:20.530] As you know me, I'm Kurt Barshak.
+- [45:22.300] I'd like to just tell Mr. President,
+- [45:26.200] the day I started at U.S. Steel,
+- [45:29.170] my supervisor at the blast furnace told me, kid,
+- [45:33.390] what are you doing here?
+- [45:35.610] Do you think this mill will be here?
+- [45:38.880] Look at Homestead. Look at Duquesne.
+- [45:42.340] They're not here. You're wasting your time.
+- [45:45.330] And I can stand here years later and think about our children,
+- [45:51.130] our grandchildren, our great-grandchildren.
+- [45:54.730] They're going to have family-sustaining,
+- [45:57.350] good-paying jobs all because of President Trump.
+- [46:02.260] Thank you, President Trump, thank you.
+- [46:05.980] (applause)
+- [46:29.840] The President: Great people. These are great people.
+- [46:36.860] I want to just say, I mean, I just saw them.
+- [46:40.050] I think this is their 156th rally.
+- [46:44.000] I don't know what the hell their husbands are doing,
+- [46:46.170] but they come from North Carolina,
+- [46:47.830] the beautiful women of North Carolina.
+- [46:51.250] They're over here.
+- [46:52.700] And I just want to thank them very much
+- [46:54.510] for being here with us. It's been unbelievable.
+- [46:57.870] This is 126 or something like that.
+- [47:04.970] And, you know, they're happily married,
+- [47:06.770] from what I understand. But I'll tell you what,
+- [47:08.540] that must be a little bit of a strain on the relationship.
+- [47:11.850] They've followed me all over the world for nine years now.
+- [47:16.230] And go to so many rallies,
+- [47:17.530] and we appreciate -- it's called love.
+- [47:18.950] And there's so much love in this room.
+- [47:20.780] It's incredible. The men and women here today,
+- [47:24.250] they work every day to keep America powerful and strong.
+- [47:27.490] And for decades, you watched as one globalist politician
+- [47:31.060] after the next sold you out and sent your dreams to China
+- [47:35.790] and to many other foreign countries.
+- [47:37.470] But now you finally have a president
+- [47:39.390] who's working for you and fighting for you.
+- [47:41.750] And we're going to be watching over you.
+- [47:43.170] This is going to so successful.
+- [47:45.320] You're going be so proud of this.
+- [47:46.590] This is going to be a very big day.
+- [47:48.640] I hope it's going to be one of the biggest days in your life.
+- [47:51.800] I don't want it to be the biggest, you know?
+- [47:53.570] You got marriage, you got children.
+- [47:55.610] I guess we got to give that to them and give that to you.
+- [47:58.460] But this is going to be truly
+- [47:59.740] one of the biggest days in your life.
+- [48:01.200] I feel sincerely I have such confidence
+- [48:03.150] in this group of people.
+- [48:10.680] Since my election, we've created nearly half a million new jobs,
+- [48:14.890] including 10,000 manufacturing jobs,
+- [48:17.930] and those numbers are going through the roof.
+- [48:20.270] We're going to have close to $11 trillion
+- [48:24.200] invested in new investments in the United States.
+- [48:27.070] And you can look at other years.
+- [48:29.210] There's never been anything like that.
+- [48:30.930] And, by the way, that's essentially in two months,
+- [48:33.330] not four months,
+- [48:34.570] because it took me a little time to get acclimated.
+- [48:37.930] But over the last two, two-and-a-half months,
+- [48:40.910] we're over $11 trillion is going to be coming.
+- [48:44.230] Apple is spending $500 billion to invest in America,
+- [48:49.090] not in China. Nvidia, $500 million.
+- [48:53.600] TSMC, if you look at this one. TSMC, and this is a company,
+- [48:59.510] the biggest in the world for chips, $200 billion at least.
+- [49:03.990] Amazon, $4 billion, Johnson& Johnson, $55 billion.
+- [49:09.920] Merck, Stellantis,
+- [49:11.460] General Motors are putting in billions
+- [49:13.650] and billions of dollars. We have it all done.
+- [49:17.060] It's going to be all with very little inflation.
+- [49:19.900] In fact, it was 2.1 percent in April.
+- [49:23.350] Way down, you went through.
+- [49:25.950] Inflation that was probably the greatest inflation
+- [49:29.240] in the history of our country over the last four years
+- [49:32.300] and now we have it down to around 2 percent.
+- [49:34.510] Grocery prices are down,
+- [49:36.560] mortgage rates are down energy prices are down,
+- [49:40.740] and gasoline prices over Memorial Day weekend
+- [49:43.690] were the lowest they have been since 2003.
+- [49:48.150] Think of that.
+- [49:49.400] (applause)
+- [49:50.880] In fact, in a couple of states, gasoline, $1.98 a gallon.
+- [49:56.680] When have you heard that number lately?
+- [49:59.660] Income soared in April up 0.8 percent,
+- [50:02.960] almost triple expectations,
+- [50:05.100] and we achieved the largest drop in consumer prices
+- [50:08.990] and the largest increase in consumer confidence
+- [50:12.190] since the pandemic,
+- [50:13.500] and actually probably about 20 years before the pandemic.
+- [50:17.460] Last month, we also cut the trade deficit in half,
+- [50:21.200] and that's the story of today.
+- [50:23.150] They can't believe it. The numbers just came.
+- [50:25.510] We cut -- before we even get started, actually --
+- [50:28.300] we cut it in half -- the trade deficits.
+- [50:30.610] And, very importantly,
+- [50:31.840] I've stopped the invasion of illegal aliens
+- [50:34.590] who are undercutting your wages and stealing your jobs.
+- [50:42.030] You saw that last month, 99.999 percent.
+- [50:48.000] Can you imagine? That was our cut.
+- [50:50.660] It's been -- the border is closed, but it's open.
+- [50:53.800] And it'll always be open to people
+- [50:55.820] that want to come into our country legally.
+- [50:58.160] We want to have people come in legally,
+- [50:59.790] but we don't want to them
+- [51:01.640] come in the way they're allowed to come in.
+- [51:04.450] We've ended the flood of criminals, gang members,
+- [51:07.020] murderers, drug dealers, and human traffickers,
+- [51:09.730] and we're sending them back to the places from which they came.
+- [51:14.360] And the future of American workers
+- [51:17.040] is only getting brighter.
+- [51:18.760] I said before, and I'll say it again,
+- [51:20.550] we have the hottest country right now in just four months.
+- [51:24.940] But actually, you have to go back to November 5th.
+- [51:28.170] Since November 5th, that was election day,
+- [51:30.460] we had the greatest election victory, they say, in 129 years.
+- [51:34.840] The most consequential election in 128 years.
+- [51:39.250] I don't know what 129 was, but we'll see.
+- [51:42.070] We'll check it out later on. We'll find out.
+- [51:44.710] Must have been something pretty good.
+- [51:46.210] But we have the most consequential.
+- [51:48.810] We won every swing state. We won the popular vote.
+- [51:52.400] We won the district's 2,750 to 505.
+- [51:58.680] We're doing a job, and you're doing the job,
+- [52:00.660] and it's only because of you
+- [52:01.900] that we could have had that success.
+- [52:03.470] We're right now on the verge of passing
+- [52:06.340] the largest working-class tax cuts in American history.
+- [52:09.940] We've got to get that beautiful,
+- [52:11.740] big bill, beautiful, beautiful as it is.
+- [52:16.200] We've got to get it passed. The Senate, call your senators.
+- [52:20.340] And I'll tell you, you have great people representing you.
+- [52:23.520] You're senators, you're congressmen.
+- [52:26.460] You have great people.
+- [52:27.720] Every single Democrat House member
+- [52:29.630] voted to impose the largest tax hike in history.
+- [52:32.670] The Democrats are voting for the largest,
+- [52:35.610] highest tax hike in history, I've never heard of it before.
+- [52:39.920] Meanwhile, our one big, beautiful bill
+- [52:42.560] will keep income taxes at their current rates
+- [52:45.460] and deliver no tax on tips, no tax on overtime,
+- [52:49.620] and no tax on Social Security for our seniors.
+- [52:54.130] (applause)
+- [52:59.850] And we're going to make the interest payments,
+- [53:01.530] as you know, on cars.
+- [53:03.270] We're going to take the car payments,
+- [53:04.830] and we're going to make them --
+- [53:06.030] those interest payments, you buy a car, you borrow money.
+- [53:09.000] We're going make interest payments tax-deductible.
+- [53:12.020] But only if the car is made in America,
+- [53:14.410] and that means made with American steel
+- [53:17.060] and steel from U.S. Steel.
+- [53:20.330] And we're permanently expanding the child tax credit,
+- [53:23.640] and we're creating a special Trump account
+- [53:26.010] for every newborn child,
+- [53:27.410] starting them off with a $1,000 credit
+- [53:31.140] to be invested over the course of their life.
+- [53:33.260] A little baby is born.
+- [53:34.590] They're going to start off with $1.000.
+- [53:37.080] And if we do a good job of investing their money,
+- [53:39.240] we're going go with one of the investing guidelines.
+- [53:43.490] Who the hell knows if they're any good,
+- [53:44.910] but they have a chance to be very rich.
+- [53:46.630] It's going to be a very cute to see.
+- [53:48.390] We're going to follow it very closely.
+- [53:50.900] And, critically, the bill includes
+- [53:52.590] the largest reductions to wasteful
+- [53:54.550] spending in a generation or more,
+- [53:56.840] slashing more than $1.6 trillion in waste, fraud, and abuse.
+- [54:05.140] And the one big beautiful bill and get out there
+- [54:07.370] and get your congressman and your senators
+- [54:09.580] and any other senator or congressman you know,
+- [54:12.110] get them to vote for it
+- [54:13.390] because the Democrats are willing to vote
+- [54:16.190] against the biggest tax deduction
+- [54:21.220] or tax decrease in history.
+- [54:23.740] This is the biggest cut, think of it,
+- [54:26.610] in the history of our country.
+- [54:28.550] If it doesn't get approved, you're going to have
+- [54:31.120] a 68 percent tax increase, lots of luck.
+- [54:35.690] And the Democrats would rather have you have a tax increase,
+- [54:39.870] think of that, of 68 percent.
+- [54:42.160] They would rather that happen than vote for a bill
+- [54:45.070] where you get the biggest tax cut.
+- [54:46.720] So there's something wrong.
+- [54:48.380] You know, all my life, I grow up, I watch politics.
+- [54:51.270] And I've always watched politicians say,
+- [54:53.000] we will cut your taxes, we will --
+- [54:55.410] these Democrats want to raise your taxes.
+- [54:57.810] And in theory, a 68 percent increase.
+- [55:01.440] One other thing I did -- and you probably saw it last week.
+- [55:05.500] You know, we pay the highest drug prices
+- [55:08.650] and pharmaceutical prices anywhere in the world by far.
+- [55:12.140] Other countries pay sometimes one-tenth of what we pay,
+- [55:15.380] a pill that costs $20.
+- [55:18.520] We spend $200, $250, $270 in many cases.
+- [55:24.060] It's the most unfair thing I've ever seen.
+- [55:27.250] And last week, I did what had to be done,
+- [55:30.080] And it wasn't easy against the biggest lobby.
+- [55:33.130] Anywhere probably in the world most powerful lobby,
+- [55:35.670] the drug companies, and I'm not even calling them bad,
+- [55:38.880] but they were able to do things.
+- [55:40.240] They're going to be fine, by the way.
+- [55:41.550] They're just going to stabilize.
+- [55:43.470] But we're going now to call a favorite nations
+- [55:46.220] where we will pay the lowest price anywhere in the world,
+- [55:50.010] and they have to match it.
+- [55:51.470] We will be cutting your drug bill by 85 and even 90 percent.
+- [55:57.290] (applause)
+- [55:58.900] You know, I was very proud in my first administration,
+- [56:02.410] you may have remembered.
+- [56:03.740] I called for a major press conference
+- [56:06.030] because we were the first --
+- [56:08.140] I was the first one in 28 years to lower drug prices.
+- [56:11.830] They were lowered one-quarter of 1 percent
+- [56:15.360] over a period of a year. And I was so proud of that
+- [56:18.810] because nobody had ever had an administration
+- [56:21.880] where prices of drugs went down.
+- [56:24.250] One quarter of 1 percent, not much.
+- [56:27.040] Now we're going to be lowering your drug costs by 90 percent,
+- [56:30.680] by 85 percent, by 75 percent,
+- [56:33.900] by numbers that nobody's ever heard of before.
+- [56:36.510] We will be paying equal to the lowest price of drugs
+- [56:40.750] and pharmaceuticals anywhere in the world.
+- [56:44.160] Have fun, because that's a lot of money.
+- [56:46.770] That's going to bring down Medicare.
+- [56:50.000] It's going bring down the cost of -- think of it, Medicaid.
+- [56:54.250] It's going to have an effect on everything,
+- [56:55.870] but it's going have the biggest effect on your wallet.
+- [56:58.140] You're going to be saving a tremendous amount of money.
+- [57:00.870] And nobody else would do that but me.
+- [57:03.330] I have taken on some rather harsh critics over that,
+- [57:07.390] because, again, that's the biggest lobby.
+- [57:09.270] They spend billions and billions
+- [57:11.250] and millions of dollars a year not to have that done.
+- [57:14.520] But I said it's really time to do it.
+- [57:16.270] So you're going have to lowest drug prices
+- [57:18.190] anywhere in the world. With one big, beautiful bill,
+- [57:21.850] we will protect over 7 million jobs,
+- [57:24.250] raise take-home pay for American families
+- [57:26.620] by up to $13,000 per household,
+- [57:30.840] and reduce taxes for working-class Americans
+- [57:33.670] by as much as 13 percent. Those are big numbers.
+- [57:36.910] The bill will also remove
+- [57:39.010] 1.4 million illegal aliens from Medicaid
+- [57:42.450] and protect the programs for truly needy Americans.
+- [57:51.820] And it includes funding to hire 3,000 new Border Patrol agents
+- [57:56.520] and 10,000 new ICE agents.
+- [57:59.000] And these people like you, these are heroes.
+- [58:01.860] The jobs they have done,
+- [58:03.820] they go into areas that are so dangerous.
+- [58:06.030] It's unbelievable, but they're tough, they're smart,
+- [58:08.500] and they love our country. So I want to just thank ICE,
+- [58:12.200] and I want thank the Border Patrol,
+- [58:13.770] and I want to thank law enforcement in general.
+- [58:16.690] They've been incredible.
+- [58:18.020] (applause)
+- [58:19.260] Really incredible.
+- [58:22.820] And I'll never forget our firemen.
+- [58:24.660] I don't know if we have firemen here today,
+- [58:26.940] but we're never going to forget our firefighters.
+- [58:28.970] They do a great job. Over the past four months,
+- [58:31.740] we've accomplished more than most administrations.
+- [58:34.230] It's even four years or even eight years.
+- [58:37.480] We've done this in four months.
+- [58:38.820] We've something on spirit and optimism and pride,
+- [58:42.800] which is sweeping across our land.
+- [58:44.800] And with the announcement,
+- [58:46.100] it's surging like never before here in Western Pennsylvania.
+- [58:50.010] Remember, the entire world is watching us today.
+- [58:52.280] I'm making a speech, and I have millions and millions.
+- [58:54.470] Look at all the fake news back there.
+- [58:55.870] Look at that. There you are.
+- [58:58.010] That's a lot of fake news come to think of.
+- [59:01.040] Now, it's -- they've been pretty good to us here.
+- [59:04.590] They've, you know, gave us a reasonably accurate display.
+- [59:08.460] But all over the world -- look at that --
+- [59:10.460] all over world, they're watching your local region
+- [59:13.330] and how well it's doing
+- [59:14.640] and how it's going to do for generations,
+- [59:16.910] the workers of this region.
+- [59:18.720] Have always been there for our country when we needed you most.
+- [59:23.410] You built this country from Pittsburgh to Pottstown,
+- [59:26.540] from Bethlehem to Hopewell, and from Washington County
+- [59:30.840] to right here in western Mifflin.
+- [59:33.760] The foundries and blast furnishes of Pennsylvania
+- [59:37.670] have smashed foreign armies,
+- [59:39.220] strengthened the hulls of the world's greatest Navy,
+- [59:42.720] raised up majestic cities, won two world wars.
+- [59:46.730] And made America into the richest, strongest,
+- [59:49.220] the most powerful country on the face of the Earth.
+- [59:52.500] And it's suffered greatly over the last four years,
+- [59:55.140] but we're going to get it back, and we're going to get it fast.
+- [59:58.400] It's almost back already. It suffered though. It suffered.
+- [01:00:03.950] I'm not going to make any excuses.
+- [01:00:06.670] It suffered with incompetent, radical-left lunatics.
+- [01:00:10.720] But under our leadership, we're making it richer,
+- [01:00:12.970] stronger, and more powerful than ever before.
+- [01:00:15.720] And that's why I want to thank you very much.
+- [01:00:17.570] And thank you, Prime Minister, and thank everybody.
+- [01:00:20.400] They all knew what was happening here.
+- [01:00:23.820] With the help of patriots like you,
+- [01:00:25.530] we're going to produce our own metal,
+- [01:00:27.990] unleash our own energy, secure our own future,
+- [01:00:31.270] build our country, control our destiny.
+- [01:00:34.230] And we are once again going to put Pennsylvania steel
+- [01:00:38.000] into the backbone of America like never before.
+- [01:00:41.760] (applause)
+- [01:00:46.060] The golden age of America has only just begun,
+- [01:00:49.910] and together we are going to make America great again,
+- [01:00:54.790] greater than ever before.
+- [01:00:57.450] Thank you very much, Pennsylvania,
+- [01:00:59.300] and God bless America. Thank you, very much. Thank you.
+- [01:01:03.890] (applause)
+- [01:01:06.165] ♪ ("YMCA" by the Village People) ♪

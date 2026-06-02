@@ -1,0 +1,1519 @@
+<!-- source: https://www.youtube.com/watch?v=pqzh65k7ekw -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: pqzh65k7ekw -->
+<!-- date_published: 2026-01-07T17:31:20+00:00 -->
+<!-- date_accessed: 2026-06-02T02:39:20.608911+00:00 -->
+
+# Transcript: Press Secretary Karoline Leavitt Briefs Members of the Media, Jan. 7, 2026
+
+- [01:18.010] Karoline Leavitt: Hello, everybody.
+- [01:18.660] Good morning.
+- [01:19.870] The Press: Good morning.
+- [01:21.110] Karoline Leavitt: Yes. Come on up everyone.
+- [01:23.560] Lovely officials with me today. All right.
+- [01:28.010] Dr. Carson, come on up. Thank you so much.
+- [01:30.640] Good morning and happy new year everybody.
+- [01:32.260] It's great to see you.
+- [01:33.480] It's great to be with a very packed room.
+- [01:35.190] I'm sorry we kept you all very busy over the holiday break.
+- [01:39.390] And I know there is a lot of news out there today,
+- [01:42.280] both here at home and around the world.
+- [01:44.050] I will be happy to take all of your questions
+- [01:46.450] on all of that news.
+- [01:48.020] But first, I'm really honored to be standing up here today
+- [01:51.160] with esteemed members of the President's cabinets
+- [01:53.670] and his health team to make an important announcement
+- [01:56.610] with respect to the President's domestic promise
+- [01:59.190] to make America healthy again as we kick off the new year.
+- [02:03.300] In less than a year in office,
+- [02:04.700] the President and his incredible MAHA team
+- [02:07.420] have made real progress on this front.
+- [02:10.190] Here are just a few of the significant
+- [02:12.240] MAHA achievements thus far.
+- [02:14.570] More than a dozen food manufacturers
+- [02:17.040] and trade associations
+- [02:18.450] have made commitments to remove artificial and petroleum
+- [02:21.860] based food dyes from their products.
+- [02:24.280] The Trump administration took strong action
+- [02:26.550] to bar hospitals from performing dangerous,
+- [02:29.520] irreversible, life-altering transgender procedures
+- [02:33.340] on children.
+- [02:34.580] The Trump administration announced funding awards
+- [02:37.040] to states through the Rural Health Transformation Program,
+- [02:40.830] an unprecedented $50 billion investment established
+- [02:44.800] under President Trump's One Big Beautiful Bill.
+- [02:47.830] The Trump administration has also worked with 18 states
+- [02:51.070] across the country to ban junk food purchases
+- [02:54.030] using SNAP benefits starting this year.
+- [02:56.430] And thank you for leading that effort, Secretary Rollins.
+- [02:59.580] Additionally, President Trump took historic action
+- [03:02.450] to secure most favored nation drug pricing
+- [03:05.990] and secured deals with major pharmaceutical companies
+- [03:09.430] to massively lower the cost of prescription drugs.
+- [03:13.190] And those effects are being implemented as we speak.
+- [03:16.470] Americans are going to continue to see the result
+- [03:19.250] of these incredible deals the President cut.
+- [03:21.510] And I know President Trump and this team behind me
+- [03:23.400] worked incredibly hard to lower those drug costs for Americans.
+- [03:27.660] On Monday, the CDC adopted common sense
+- [03:30.400] updates to America's childhood vaccination schedule
+- [03:33.720] based solely on the gold standard of science.
+- [03:36.850] This action empowers parents and physicians
+- [03:39.240] to make the best individualized decisions
+- [03:41.960] to protect our children
+- [03:43.760] while also restoring much needed confidence
+- [03:46.050] in our public health system.
+- [03:47.830] And as a MAHA mom myself, I'm very grateful for that.
+- [03:50.600] So thank you, Secretary Kennedy. To build on this progress,
+- [03:53.940] the Trump administration is now updating
+- [03:56.260] federal nutrition standards and guidelines
+- [03:58.870] to ensure that Americans have the most accurate,
+- [04:02.120] data-driven information
+- [04:03.470] supported by science and hard facts,
+- [04:06.090] not special interests or partisan ideology.
+- [04:09.550] President Trump has tasked
+- [04:10.960] two of the great individuals behind me,
+- [04:13.100] USDA Secretary Rollins and HHS Secretary Kennedy,
+- [04:16.860] with collaborating on this vitally important project.
+- [04:19.850] And today they are here to officially unveil the 2025
+- [04:23.580] to 2030 dietary guidelines for America.
+- [04:27.080] These new guidelines are informed by the best
+- [04:29.310] and most reliable research on health and nutrition,
+- [04:32.660] particularly as it relates to the role of our diets
+- [04:35.380] and the prevalence of chronic disease in the country.
+- [04:39.770] These guidelines are easy to read and understand
+- [04:42.680] so every American, young and old can access this information
+- [04:46.770] that literally has the power to change lives.
+- [04:49.810] But these are not just an updated guideline.
+- [04:52.630] These are the foundation to all federal food programs
+- [04:56.210] in our country.
+- [04:57.430] These new guidelines are going to update the food
+- [04:59.790] that is served to America's children in our public schools,
+- [05:03.480] to the plates that are served to our great men
+- [05:05.510] in uniform in our military,
+- [05:07.940] our veterans in the food that they are consuming at the VA.
+- [05:11.260] And these new guidelines
+- [05:12.530] are also going to impact nutritional programs
+- [05:14.970] for the needy in our country, such as WIC and Head Start.
+- [05:18.990] Unfortunately, for decades, federal dollars
+- [05:21.850] has promoted low quality, highly processed foods
+- [05:25.380] that lead to scores of long-term health issues,
+- [05:28.420] which means Americans have gone broke
+- [05:31.110] because of these health issues.
+- [05:32.910] Faulty dietary guidelines of the past
+- [05:35.090] stacked the deck against healthy eating and food options
+- [05:38.120] for everyday American families,
+- [05:39.810] which has fueled the chronic disease epidemic
+- [05:42.550] and jacked up the healthcare costs of households
+- [05:45.160] across the country.
+- [05:46.590] This failed approach in our public health system ends today.
+- [05:50.120] When these guidelines are followed,
+- [05:51.860] Americans will be saving themselves thousands of dollars.
+- [05:55.670] If we want to cut healthcare costs in our country,
+- [05:58.730] we must become a healthier country.
+- [06:01.330] According to the CEA, poor diet is the root cause of obesity,
+- [06:05.490] which accounts for $400 billion in medical spending each year.
+- [06:10.210] A healthier America will lead to a more affordable America.
+- [06:14.240] The new dietary guidelines from the Trump administration
+- [06:16.770] will ensure federal dollars go to real food
+- [06:19.300] to improve public health
+- [06:20.740] and therefore save the American people their hard-earned cash
+- [06:25.440] over the course of their lives.
+- [06:27.220] So with that, I am going to hand it over to Secretary Kennedy.
+- [06:30.260] The great people behind me will give remarks
+- [06:32.420] and then we'll get into Q&A.
+- [06:34.010] For the officials that are here on this specific topic,
+- [06:36.850] they will leave because they're all very busy people,
+- [06:39.020] and then I will open it up to Q&A with the rest of you
+- [06:41.400] on the rest of the news in the world.
+- [06:43.560] So thank you, and we'll start with Secretary Kennedy.
+- [06:45.640] Secretary Kennedy: Thank you, Karoline.
+- [06:51.610] Today marks a decisive change in federal nutrition policy
+- [06:55.160] made possible by President Trump's leadership
+- [06:57.940] and the work of MAHA moms and public health
+- [07:00.620] advocates who demanded reform.
+- [07:03.790] Today, in accordance with President Trump's directive,
+- [07:06.970] Brooke and I will release the dietary guidelines
+- [07:10.800] for Americans 2025 to 2030, the most significant reset
+- [07:17.260] of federal nutrition policy in history.
+- [07:21.010] These guidelines replace corporate-driven assumptions
+- [07:24.760] with common sense goals and gold standard scientific integrity.
+- [07:29.450] These new guidelines will revolutionize
+- [07:31.960] our nation's food culture and make America healthy again.
+- [07:36.410] For decades, Americans have grown sicker
+- [07:38.540] while healthcare costs have soared.
+- [07:40.980] The reason is clear.
+- [07:42.200] The hard truth is that our government has been lying to us
+- [07:46.250] to protect corporate profit taking,
+- [07:49.030] telling us that these food-like substances
+- [07:52.260] were beneficial to public health.
+- [07:54.710] Federal policy promoted and subsidized highly processed
+- [07:58.110] foods and refined carbohydrates
+- [08:00.940] and turned a blind eye to the disastrous consequences.
+- [08:05.450] Today, the lies stop.
+- [08:07.770] The new guidelines recognize that whole nutrient-
+- [08:10.810] dense food is the most effective path to better health
+- [08:15.080] and lower healthcare costs.
+- [08:17.610] Protein and healthy fats are essential
+- [08:20.910] and were wrongly discouraged in prior dietary guidelines.
+- [08:24.470] We are ending the war on saturated fats.
+- [08:28.520] Diets rich in vegetables and fruits reduce disease
+- [08:33.550] risk more effectively than many drugs.
+- [08:36.680] Whole grains outperform refined carbohydrates.
+- [08:41.040] Added sugars, especially sugar sweetened beverages,
+- [08:43.940] drive metabolic disease.
+- [08:46.260] And today, our government declares war on added sugar.
+- [08:50.790] Highly processed foods loaded with additives,
+- [08:53.500] added sugar, and excess salt damage health
+- [08:56.100] and should be avoided.
+- [08:58.160] As Secretary of Health and Human Services,
+- [09:01.080] my message is clear, eat real food.
+- [09:04.680] Nothing matters more for healthcare outcomes,
+- [09:07.410] economic productivity, military readiness, and fiscal stability.
+- [09:13.430] Dietary guidelines shape dozens of federal feeding programs,
+- [09:17.070] including Head Start.
+- [09:19.020] These standards affect 45 million school
+- [09:22.060] lunches every day,
+- [09:24.470] meals for 1.3 million active duty service members,
+- [09:29.070] and food served to nine million veterans in VA hospitals.
+- [09:33.480] Today begins the work of aligning those programs
+- [09:36.160] with affordable, whole, nutrient-dense food.
+- [09:40.680] Implementation requires coordination
+- [09:43.190] across the government.
+- [09:45.020] I'm working with many of my fellow cabinet secretaries
+- [09:48.410] to deliver results. I want to thank Bobby Mukkamala.
+- [09:53.410] Thank you very much, who is the President
+- [09:56.100] of the American Medical Association
+- [09:58.030] for committing to mobilize the medical community on nutrition.
+- [10:02.380] And I thank also the American Academy of Pediatrics
+- [10:05.670] for partnering on this effort.
+- [10:08.400] I also look forward to working with Dr. Jay Bhattacharya
+- [10:11.450] and Dr. Marty Makary to fund
+- [10:14.010] and prioritize rigorous nutrition research
+- [10:17.930] at the NIH and at the FDA.
+- [10:21.590] The stakes are measurable and severe.
+- [10:24.800] A Johns Hopkins analysis estimates that 48 percent
+- [10:28.940] of every federal taxpayer dollar now goes to healthcare.
+- [10:34.230] The CDC reports that 90 percent of healthcare
+- [10:37.150] spending treats chronic disease.
+- [10:40.290] That means that 40 percent, 40 cents of every dollar
+- [10:43.990] that taxpayers pay in this country
+- [10:46.440] is going to treat diseases
+- [10:49.290] that could be averted through good food.
+- [10:52.560] The United States has the highest obesity
+- [10:54.900] and type two diabetes rate in the developed world.
+- [10:58.340] We spend three times more per capita
+- [11:00.410] than the European Union on healthcare
+- [11:04.840] yet our life's expectancy is five years lower,
+- [11:08.460] largely due to diet related chronic disease.
+- [11:12.240] Our childhood obesity rate
+- [11:13.980] is five times higher than countries like France.
+- [11:17.170] One third of US teens have prediabetes,
+- [11:20.060] over 35 percent are overweight
+- [11:23.090] or obese and 20 percent of young adults
+- [11:25.880] have non-alcoholic fatty liver disease.
+- [11:29.040] 77 percent of military aged Americans
+- [11:33.230] are ineligible for military service
+- [11:36.490] because of diet related conditions.
+- [11:39.980] If a foreign adversary
+- [11:41.820] sought to destroy the health of our children,
+- [11:45.070] to cripple our economy, to weaken our national security,
+- [11:49.810] there would be no better strategy
+- [11:51.800] than to addict us to ultra-processed foods.
+- [11:55.310] It's shocking that our own government
+- [11:57.050] helped to drive these cataclysmic changes in our diet.
+- [12:00.830] The damage is real.
+- [12:02.120] It is preventable and President Trump has ordered it to end.
+- [12:06.630] If the United States reduced obesity,
+- [12:09.470] type two diabetes, heart disease and Alzheimer's,
+- [12:13.130] the Japanese levels,
+- [12:14.900] we would save approximately $600 billion a year.
+- [12:19.450] About 50 percent of Medicare's projected long-term deficit
+- [12:24.530] or $5,000 per family annually.
+- [12:28.300] Current policy worsens the problem.
+- [12:31.000] 42 million Americans rely on SNAP
+- [12:34.370] or common purchases include sugary drinks, candy, and chips.
+- [12:38.830] 78 percent of SNAP recipients are enrolled in Medicaid
+- [12:42.910] and 90 percent of Medicaid
+- [12:44.470] spending goes to chronic disease.
+- [12:48.550] These incentives raise healthcare costs
+- [12:51.040] and undermine health. This must change.
+- [12:55.070] A new framework centers on protein and healthy fats,
+- [12:59.050] vegetables, fruits, and whole grains,
+- [13:01.370] and you can see the food pyramid here.
+- [13:09.870] It's upside down, a lot of you will say,
+- [13:13.200] but it was actually upside down before, and we just righted it.
+- [13:18.520] For the first time,
+- [13:19.720] the dietary guidelines directly address ultra-processed foods
+- [13:24.530] and set firm sugar limits and federal procurement,
+- [13:27.880] driving a significant reduction in added sugar in school meals.
+- [13:32.260] I want to thank President Trump for his leadership
+- [13:35.480] and the partners committed to ensuring
+- [13:37.380] that federal food dollars support real food
+- [13:40.260] and better health. Thank you.
+- [13:44.610] And I want to introduce my partner and a friend,
+- [13:48.600] Brooke Rollins,
+- [13:50.290] who is an extraordinary collaborator on this.
+- [13:52.950] Secretary Rollins: Thank you.
+- [13:55.610] Well, good morning, everyone.
+- [13:57.420] Happy New Year. What a honor to be here.
+- [14:00.660] I think this is Karoline's first press conference back
+- [14:04.160] and what a great way to start the new year, 2026.
+- [14:08.760] I want to thank Secretary Kennedy.
+- [14:11.180] Your commitment to the wellbeing of Americans
+- [14:15.040] is such a blessing to this nation.
+- [14:17.670] We have been working on these new dietary guidelines
+- [14:20.470] really since almost day one.
+- [14:22.660] Bobby and I were voted on on the same day
+- [14:25.720] and sworn in on the same day.
+- [14:27.180] So, I think the partnership from minute one
+- [14:30.230] has been real and extraordinary. As Secretary Kennedy mentioned,
+- [14:35.320] America is in the middle of the worst chronic health crisis
+- [14:38.270] in our nation's history.
+- [14:39.910] Over 40 percent of the roughly 73 million children
+- [14:43.670] in the United States
+- [14:44.960] have at least one chronic health condition,
+- [14:48.240] and nearly 90 percent of healthcare
+- [14:50.270] spending goes toward treating people with chronic disease.
+- [14:54.140] Secretary Kennedy mentioned that,
+- [14:55.620] but it is really important to keep underscoring that fact.
+- [14:58.830] This crisis is unacceptable.
+- [15:01.400] It prevents Americans from living healthy and happy lives.
+- [15:05.220] And for decades, decades under both Republicans and Democrats,
+- [15:09.760] federal incentives have promoted low quality,
+- [15:13.280] highly processed foods and pharmaceutical interventions
+- [15:16.490] instead of prevention. As a result, nutrient dense,
+- [15:20.690] whole foods grown by America's farmers
+- [15:24.160] and ranchers have been increasingly displaced.
+- [15:28.040] The Trump administration is acutely aware of this danger,
+- [15:31.610] and today this announcement is making a major step
+- [15:35.210] in doing something about it.
+- [15:37.050] Thankfully, the solution is simple
+- [15:39.020] and should be non-controversial. Eat real food.
+- [15:43.390] This is the main message of the new dietary
+- [15:45.380] guidelines for Americans 2025 to 2030,
+- [15:49.020] which encourage households and schools
+- [15:51.370] to prioritize whole nutrient dense foods.
+- [15:55.060] That means more protein, more dairy, more healthy fats,
+- [15:59.680] more whole grains, more fruits and vegetables,
+- [16:02.490] whether they are fresh, frozen, canned, or dried.
+- [16:06.560] We are finally putting real food
+- [16:08.410] back at the center of the American diet.
+- [16:11.530] Real food that nourishes the body,
+- [16:13.490] restores health, fuels energy, and builds strength.
+- [16:17.500] This pivot also leans into the abundant,
+- [16:20.010] affordable and healthy food supply
+- [16:22.310] already available from America's incredible farmers and ranchers.
+- [16:27.210] By making milk, raising cattle and growing wholesome fruits,
+- [16:31.340] vegetables, and grains,
+- [16:32.820] they hold the key to solving our national health crisis.
+- [16:36.990] And President Trump is mobilizing government
+- [16:39.100] to ensure families across America
+- [16:41.640] have greater access to these healthy foods.
+- [16:45.090] In the past 12 months, inflation has slowed and wages
+- [16:48.590] have risen for the first time in five years.
+- [16:52.210] Under President Trump's leadership,
+- [16:53.790] prices for everyday staples are declining
+- [16:57.650] and more help is on the way.
+- [16:59.860] Recent data show that fruits, vegetables, dairy,
+- [17:02.740] and proteins, including eggs, pork, and ground beef,
+- [17:06.310] are becoming even more affordable every day
+- [17:08.890] for our American people.
+- [17:11.200] American households enjoy the most affordable
+- [17:13.900] and abundant food in the world,
+- [17:16.290] and today's release only reinforces that reality.
+- [17:19.680] A healthy meal is within reach for all American families.
+- [17:24.550] These new dietary guidelines are a framework
+- [17:27.030] which is meant to be customized to meet the needs,
+- [17:29.270] the preferences,
+- [17:30.530] and the financial status of all American families.
+- [17:34.060] For example, a meal including such items
+- [17:36.740] as pork or eggs or whole milk or cheese,
+- [17:40.600] tomatoes, other fresh and frozen fruits and vegetables,
+- [17:43.810] whole grain bread, corn tortilla can cost today
+- [17:47.600] right around $3 for that meal, $3.
+- [17:51.330] And soon, USDA will finalize our stocking standards,
+- [17:55.170] which means that those businesses in America
+- [17:57.870] that take the SNAP benefit,
+- [17:59.660] what they are required to stock in order to take that benefit…
+- [18:03.370] By the way, that's almost 250,000 retailers across America
+- [18:08.230] that very soon we will be finalizing that rule
+- [18:11.020] that will mandate all 250,000 retailers in America
+- [18:15.940] double the type of staple foods that they provide
+- [18:19.360] for America's SNAP households.
+- [18:21.730] This means healthier options will be in reach
+- [18:23.900] for all American families, regardless of circumstance
+- [18:27.450] at levels never seen before in our country.
+- [18:31.160] These dietary guidelines are foundational
+- [18:33.050] to so many USDA programs
+- [18:34.990] and their introduction marks the first step
+- [18:38.040] in connecting America's schools and dinner plates
+- [18:41.520] to the best of American agriculture.
+- [18:44.230] Make no mistake, under President Trump's leadership,
+- [18:46.830] we are restoring common sense.
+- [18:49.100] We are restoring scientific integrity,
+- [18:51.590] and we are restoring accountability to federal food
+- [18:55.200] and health policy. The new guidelines are all about
+- [18:58.070] putting the wellbeing of Americans first,
+- [19:00.860] exactly where it should have been all along.
+- [19:04.910] This is the foundation that will make America healthy again,
+- [19:08.250] not just for those of us alive today,
+- [19:10.560] but for our children and our children's children
+- [19:13.060] and those coming behind.
+- [19:15.140] I want to end by saying God bless American families.
+- [19:17.870] God bless the American farmer and rancher,
+- [19:20.300] and God bless America.
+- [19:21.680] What an honor now to introduce another great partner
+- [19:24.310] in this incredible work, and that is Dr. Mehmet Oz.
+- [19:27.320] Thank you.
+- [19:29.960] Administrator Oz: Congratulations
+- [19:31.260] to Secretary Rollins, Secretary Kennedy,
+- [19:33.560] and do want to express my appreciation
+- [19:35.660] for what the President has done overall
+- [19:38.380] to increase the affordability of healthcare.
+- [19:41.160] The biggest accomplishment perhaps for the health system,
+- [19:45.810] abilities to drop down prices last year
+- [19:47.950] was the most favored nation drug pricing that Karoline mentioned.
+- [19:51.220] These are incredibly effective at reducing the costs,
+- [19:53.310] for example,
+- [19:54.590] of what the President calls the fat shot,
+- [19:57.280] the Ozempic, GLP-1 category of medications.
+- [20:01.430] We dropped them dramatically,
+- [20:03.450] but the best way to reduce drug spend in America
+- [20:06.330] is to not need the drugs in the first place.
+- [20:08.820] What you're hearing today with these dietary guideline
+- [20:11.040] adjustments are going to be massively effective
+- [20:13.680] and not just dropping the need for us
+- [20:15.050] to buy these weight loss drugs,
+- [20:16.840] but buy these expensive drugs for autoimmune problems.
+- [20:20.040] We have evidence that food is medicine
+- [20:21.640] when it comes to conditions from various mental health
+- [20:24.630] issues from the Alzheimer's and depression
+- [20:27.040] to fundamental realities of how children's learn in school.
+- [20:30.340] So, the question then becomes,
+- [20:31.720] what is this actually going to do in dollars and cents?
+- [20:34.510] And I had the group at CMS run some numbers for us
+- [20:38.780] to try to give you concrete assessments
+- [20:40.510] of how much this will drop the spend
+- [20:42.810] that the federal taxpayer must make for Medicare and Medicaid.
+- [20:45.960] And I'm more optimistic today than ever that
+- [20:47.890] we can address the critical,
+- [20:50.020] the fast rising rate of healthcare expenses in America
+- [20:52.620] because of movements like this.
+- [20:54.370] Right now, we're increasing health expenditures in America
+- [20:57.030] at roughly twice the rate of the GDP growth.
+- [21:00.170] We will correct that if we can get America to be healthier,
+- [21:03.020] because you can't be a wealthy nation
+- [21:04.720] without being a healthy nation.
+- [21:06.020] So, two numbers for you to remember.
+- [21:07.620] The first is $30 billion. Why? 30 percent of healthcare costs
+- [21:11.520] are directly attributable to obesity.
+- [21:13.880] I'm not talking about indirect associated expenses
+- [21:16.170] which are also present, but a very conservative number,
+- [21:18.710] 30 percent are directly attributed to obesity.
+- [21:21.060] That's about $300 billion a year for just Medicare,
+- [21:24.680] just Medicare.
+- [21:25.960] If we were to affect obesity by 10 percent,
+- [21:28.270] which is an incredibly conservative
+- [21:30.070] and justifiable assumption that has been born out
+- [21:33.140] in evidence-based dietary experiments and trials,
+- [21:37.080] just that alone is $30 billion of reduction
+- [21:39.850] of expenses for Medicare. That's also obviously correlated
+- [21:44.630] with Medicaid reduction in spending.
+- [21:46.290] In Medicaid, it's a different opportunity
+- [21:48.120] because in Medicaid, we educate children.
+- [21:49.800] 53 percent of children in America
+- [21:51.620] are covered by Medicaid or CHIP.
+- [21:53.550] And we have programs to teach kids
+- [21:55.240] and their parents what to eat, how to eat,
+- [21:57.220] and how to make these dietary guidelines
+- [21:59.350] that Secretary Kennedy have crafted
+- [22:01.930] with their teams into practice.
+- [22:04.180] It will dramatically change the natural history
+- [22:06.820] of how children are able to participate in life.
+- [22:08.800] But let me give you one last number.
+- [22:11.150] If we're able to get the average
+- [22:13.030] American who today retires on average at age 61,
+- [22:17.450] get them just to work one year longer
+- [22:19.650] because they feel so vital, so strong,
+- [22:21.770] so bullish about their future
+- [22:23.070] because they're feeding their bodies nutrients
+- [22:25.490] that are essential to their high functioning productivity,
+- [22:29.790] we will increase the overall GDP of our nation
+- [22:32.930] by trillions of dollars.
+- [22:35.190] So we will reduce healthcare expenses at the same time
+- [22:37.890] we jazz up the US economy with trillions of dollars
+- [22:40.920] created by the productivity of American workers.
+- [22:43.410] God bless you both for making the DGA feasible
+- [22:46.180] and making it perhaps the wisest investment
+- [22:48.230] we could make in our communities.
+- [22:50.060] Marty Makary is one of my closest friends,
+- [22:52.350] the powerful leader of the FDA who's been taking brave steps
+- [22:55.990] along the line and has additional insights.
+- [22:58.150] Marty Makary: Thanks. Thank you, Dr. Oz.
+- [23:01.770] Today marks the beginning of the end
+- [23:03.720] of an era of medical dogma on nutrition.
+- [23:07.570] For decades, we've been fed a corrupt food pyramid
+- [23:11.780] that has had a myopic focus on demonizing natural,
+- [23:15.340] healthy, saturated fats,
+- [23:16.980] telling you not to eat eggs and steak
+- [23:19.390] and ignoring a giant blind spot. Refined carbohydrates,
+- [23:23.910] added sugars, ultra processed food.
+- [23:26.780] This study in JAMA now shows that 60 percent
+- [23:30.540] to 70 percent of kids
+- [23:33.260] are getting their calories from ultra-processed foods.
+- [23:36.520] That's an epidemic.
+- [23:38.080] We now have a generation of kids
+- [23:41.300] addicted to refined carbohydrates, low in protein.
+- [23:45.640] They are literally nitrogen negative
+- [23:48.090] because we've used old flawed studies that used urine nitrogen
+- [23:52.480] to estimate body protein metabolism,
+- [23:56.160] and they missed the mark.
+- [23:57.420] The old guidelines had such a low protein recommendation
+- [24:02.440] that we are increasing that by 50 percent to 100 percent.
+- [24:04.910] Kids need protein. The old protein guidelines
+- [24:08.710] were to prevent starvation and withering away.
+- [24:13.150] These new protein guidelines
+- [24:14.770] are designed for American kids to thrive,
+- [24:17.900] and they're based on science, not on dogma.
+- [24:21.070] We have 40 percent of our kids now with a chronic disease.
+- [24:25.520] It is not their fault.
+- [24:27.410] This is something that is the result of bad advice
+- [24:31.190] from the government and a medical establishment
+- [24:33.970] that for decades pedaled research
+- [24:36.330] from a flawed 1960s model.
+- [24:39.760] Today, we are setting the record straight.
+- [24:42.960] This is not a willpower problem of our nation's kids.
+- [24:46.280] This is something adults have done to kids
+- [24:47.990] and we're going to fix it. And so, as Dr. Oz said,
+- [24:51.810] the best way to lower drug prices
+- [24:54.060] is for people to stop taking drugs they don't need.
+- [24:58.100] We are going to finally address the root causes
+- [25:00.640] of our broken healthcare system,
+- [25:02.140] insulin resistance and general body inflammation advanced
+- [25:06.680] by the protein poor, micronutrient poor, ultra-
+- [25:10.830] processed, refined carbohydrate diet
+- [25:13.060] that kids are addicted to today.
+- [25:15.540] And so, on behalf of the Food and Drug Administration,
+- [25:19.740] we are proud to be a part of this.
+- [25:21.740] We are grateful to be contributing to this work.
+- [25:24.670] Thank you, Secretary Rollins. Thank you, Kyle Diamantas,
+- [25:28.500] the best deputy commissioner for food
+- [25:32.220] at the FDA the agency has ever had.
+- [25:34.940] This is a historic day in America.
+- [25:36.760] Thank you. Karoline.
+- [25:38.340] Karoline Leavitt: Thank you so much.
+- [25:39.680] Thank you.
+- [25:40.890] I hope everyone's inspired to go eat a salad
+- [25:42.700] for lunch after this briefing.
+- [25:45.020] If anybody has questions on this topic,
+- [25:46.810] we will take a few and then we'll get into the topic.
+- [25:48.820] We'll start with our new media seat.
+- [25:50.230] If you have a question on this topic today,
+- [25:52.180] Jayme Franklin, she comes from The Conservateur.
+- [25:54.610] Why don't you kick us off?
+- [25:55.920] The Press: Yeah. First of all, Karoline,
+- [25:57.180] congratulations on your pregnancy.
+- [25:58.780] We're so excited for you.
+- [26:00.030] Karoline Leavitt: Thank you.
+- [26:01.310] The Press: MAHA moms across the country, including myself,
+- [26:03.370] are just so excited by what this administration is doing
+- [26:06.310] to make our kids healthy again.
+- [26:08.080] But we do have concerns when it comes to these blue states
+- [26:11.710] pushing back on a lot of progress
+- [26:13.690] that we're making as an administration.
+- [26:15.560] And particularly, we're really excited that you guys
+- [26:17.420] revise and streamline this vaccine schedule.
+- [26:20.180] However, what we have seen is that these blue states,
+- [26:23.280] whether it be no tax on tips,
+- [26:25.200] no tax on overtime or pushing back on immigration,
+- [26:27.880] they continue to stop your guys' progress.
+- [26:30.400] So, what has been the response from these blue states?
+- [26:32.410] Because MAHA moms enrolling our kids in school,
+- [26:33.960] this is a big issue
+- [26:35.210] and we celebrate what you guys are doing,
+- [26:36.850] but we want to have it even in the blue states as well.
+- [26:42.410] Secretary Kennedy: I mean,
+- [26:43.610] my hope is that we only released these earlier,
+- [26:47.320] two days earlier. I'm sorry.
+- [26:53.080] Secretary Rollins: Duck is also high in protein.
+- [26:54.680] Karoline Leavitt: That's an interesting --
+- [26:57.170] Secretary Rollins: Duck is a good thing to eat, everybody.
+- [26:59.030] Secretary Kennedy: We only released the new vaccines
+- [27:03.270] schedule two days ago. The vaccine schedule,
+- [27:06.840] there's nothing compulsory in it.
+- [27:09.230] Everybody, I've always promised
+- [27:10.940] I'm not going to take people's vaccines away from them.
+- [27:13.910] People who want to get vaccines,
+- [27:15.670] everybody who wants them can get all of the vaccines
+- [27:18.060] that were on the old schedule.
+- [27:20.160] They will all be paid for by the Vaccines for Children program
+- [27:24.940] or for the insurance the same as before.
+- [27:27.720] We release guidelines that we think are optimal
+- [27:31.170] to public health. They're the same core vaccines
+- [27:35.280] that are required by the European community.
+- [27:39.570] And those nations all have much better health
+- [27:42.630] outcomes than we do.
+- [27:44.430] And they're based on their best science
+- [27:46.880] and also on their conviction
+- [27:50.020] that when you put too many vaccines on the program,
+- [27:52.810] it actually reduces compliance. It reduces uptake.
+- [27:59.140] And so we want to maximize the uptake of vaccines
+- [28:02.220] by making sure that Americans know that we are
+- [28:05.910] making recommendations that are science-based,
+- [28:08.370] that are common sense, that are grounded in science.
+- [28:12.190] And right now, that's the best science that we have.
+- [28:14.880] And again, there's three categories of vaccine.
+- [28:18.420] One is the core schedule,
+- [28:19.930] which resembles the European countries.
+- [28:23.960] The second is for people who have vulnerabilities
+- [28:27.810] for high risk, and that doesn't change at all.
+- [28:30.940] And then the third is shared decision making,
+- [28:33.270] which any vaccine that was on the old schedule,
+- [28:36.210] you can continue to get.
+- [28:37.590] So, people will make their own choices,
+- [28:41.050] and that's what democracy is about.
+- [28:45.640] Secretary Rollins: I asked the boss, Karoline,
+- [28:46.950] for permission to add a little bit to this
+- [28:48.640] because I think it's really important.
+- [28:49.890] And by the way, Jayme, what a superstar you are.
+- [28:51.720] It's so fun to see you in this seat, Jayme Franklin.
+- [28:55.440] The blue state question is a really important one.
+- [28:57.710] And for those of us that are running agencies
+- [29:00.000] with these programs,
+- [29:01.230] I mean, I've talked to a lot of you already about
+- [29:03.460] how we have 22 blue states
+- [29:05.110] that won't give us their SNAP data
+- [29:06.990] so that we can figure out
+- [29:08.320] and ensure that those who really need these programs
+- [29:10.810] are actually getting these programs.
+- [29:12.320] Clearly, you all have been writing
+- [29:13.570] about Minnesota, California's next.
+- [29:15.950] We're looking at New York, some other states.
+- [29:17.890] The amount of fraud in all of these programs
+- [29:20.980] is absolutely stunning.
+- [29:22.890] And the challenge is, I mean, for Medicaid, et cetera,
+- [29:25.570] I know Dr. Oz, you've talked a lot about that.
+- [29:27.700] This is a significant problem.
+- [29:29.280] And I think who's really harmed in all of this conversation
+- [29:33.030] and when these blue states aren't partnering with us
+- [29:35.600] to try to do this right is we say blue states and red states,
+- [29:39.040] but in those states, there are all kinds of our citizenry
+- [29:42.880] and that aren't all Democrat or aren't all Republican.
+- [29:45.950] We had a poll that just came out
+- [29:47.420] that had about 85 percent of all Americans believe
+- [29:51.650] that states should turn their data over on SNAP
+- [29:54.370] so that we can figure out where the fraud is
+- [29:56.390] and ensure these programs are going where they need to go.
+- [29:59.760] So my request of these blue states
+- [30:03.370] and these blue state governors is partner with us.
+- [30:05.760] Let us figure out how to do this better.
+- [30:07.640] Let us make sure that whether it's the vaccine schedule
+- [30:10.530] or the SNAP program or the Medicaid program
+- [30:12.690] or the childcare program,
+- [30:14.310] that we are doing everything we can to protect every tax dollar,
+- [30:18.110] but to also ensure those who need it the most,
+- [30:20.160] the most vulnerable in our society,
+- [30:22.110] are getting the programs they need versus those
+- [30:24.910] who A, are not even supposed to be here,
+- [30:26.510] or B, are cheating the system.
+- [30:29.500] Karoline Leavitt: Jeff.
+- [30:30.770] The Press: Thanks, Karoline.
+- [30:32.040] One of the changes that was made had to do with alcohol.
+- [30:34.940] Secretary Kennedy or Dr. Oz,
+- [30:36.460] could you explain the science behind the new language
+- [30:39.690] on not saying two drinks for men
+- [30:41.800] and one drink for a woman every day would be healthy,
+- [30:44.180] and whether or not the industry
+- [30:45.910] had an impact on the language of moderation versus
+- [30:49.720] just saying "alcohol is not healthy
+- [30:52.110] and you shouldn't drink it"?
+- [30:55.000] Administrator Oz: So alcohol is a social lubricant
+- [30:58.000] that brings people together. In the best case scenario,
+- [31:01.090] I don't think you should drink alcohol,
+- [31:02.740] but it does allow people an excuse to bond and socialize.
+- [31:06.370] And there's probably nothing healthier
+- [31:07.860] than having a good time with friends in a safe way.
+- [31:10.250] If you look at the blue zones, for example,
+- [31:11.840] around the world where people live the longest,
+- [31:14.050] alcohol is sometimes part of their diet.
+- [31:16.070] Again, small amounts taken very judiciously
+- [31:19.030] and usually in a celebratory fashion.
+- [31:20.970] So there is alcohol on these dietary guidelines,
+- [31:23.610] but the implication is don't have it for breakfast.
+- [31:26.730] This should be something done in a small amount
+- [31:29.220] with hopefully some kind of an event
+- [31:31.300] that might have alcohol at it.
+- [31:34.100] But they general move away from two glasses of men,
+- [31:36.840] one glass to women. There was never really good data
+- [31:39.240] to support that quantity of alcohol consumption.
+- [31:42.320] That data was probably primarily confused with broader data
+- [31:45.380] about social connectedness.
+- [31:47.760] Karoline Leavitt: Take a couple more. John.
+- [31:49.300] The Press: Thanks a lot, Karoline.
+- [31:50.520] Secretary Rollins, I'm curious about with these guidelines,
+- [31:54.670] they're not mandates, they're guidelines.
+- [31:57.110] What are the practical effects of these guidelines
+- [32:00.230] on public schools all across the country?
+- [32:04.100] Secretary Rollins: Thank you, John.
+- [32:05.350] It's good to see you. Today begins the first day
+- [32:07.980] now in a recalibration of the rules,
+- [32:10.910] whether it's school lunches,
+- [32:12.370] whether it's the SNAP program, whether it's the --
+- [32:14.560] veterans were mentioned, our prison system,
+- [32:17.620] that now we begin the process of implementing
+- [32:20.130] and redrafting the rules
+- [32:21.460] to reflect what this new dietary guidelines for Americans
+- [32:25.950] actually is doing to our food system.
+- [32:28.180] So there is a lot of work to do. Nothing changes overnight.
+- [32:33.330] But as I think we've proven,
+- [32:34.910] this administration moves very, very quickly on all fronts,
+- [32:38.230] seven days a week, 365 days a year.
+- [32:41.310] And so you'll begin to see some real changes coming very soon.
+- [32:45.270] As everyone is aware, for many of our most vulnerable
+- [32:49.860] in the margins in our communities,
+- [32:52.980] the school lunch is often the best place for our children
+- [32:56.830] to get the healthiest meal.
+- [32:59.090] Hopefully with stocking standards and reworking SNAP
+- [33:01.560] and the SNAP waivers we've done, that begins to change too.
+- [33:04.020] But right now, that is going to be the single most important,
+- [33:08.060] from my perspective,
+- [33:09.330] move forward is the school lunches
+- [33:11.320] and making sure that we're getting the right amount,
+- [33:13.620] the best amount and most nutrient-dense
+- [33:15.310] foods into the schools. Thank you.
+- [33:16.740] The Press: You also mentioned, Secretary Rollins,
+- [33:18.600] cost when you had your remarks a little bit earlier.
+- [33:22.540] Is eating healthier more cost-effective?
+- [33:25.240] Is it cheaper than just having a diet of processed foods?
+- [33:30.540] Secretary Rollins: I had a whole chart to show you,
+- [33:32.880] but left it in the back, unfortunately,
+- [33:35.860] that yes indeed that eating healthy for the most part,
+- [33:39.820] we've got a hundred simulations is actually less expensive.
+- [33:43.920] The challenge comes is the access to those healthy foods,
+- [33:47.450] especially in parts of America where they have food deserts.
+- [33:51.680] They don't have a H-E-B or a Kroger or a Central Market.
+- [33:54.660] These are all Texan grocery stores,
+- [33:56.310] but whatever's similar across the country.
+- [33:59.210] But that is why these stocking standards in SNAP
+- [34:01.780] are so important.
+- [34:03.000] So if you have a economically-challenged family
+- [34:09.280] and the only place they're getting their food
+- [34:11.070] is the 7-Eleven,
+- [34:12.540] we have a longer-term important policy priority,
+- [34:15.300] and that is getting grocery stores
+- [34:16.860] into these lower margin communities.
+- [34:18.930] But for now, requiring those retailers,
+- [34:22.320] those 250,000 retailers across America,
+- [34:25.340] to double their stocking of healthier foods,
+- [34:28.480] that will allow us to immediately
+- [34:30.220] get these better foods into all communities,
+- [34:33.140] but especially the most vulnerable.
+- [34:34.670] Thank you, John.
+- [34:35.900] Secretary Kennedy: Let me just add something to that.
+- [34:38.520] Brooke and I are working on a program.
+- [34:39.990] Affordability is the priority for the President,
+- [34:44.800] and we know we have to make it easy and accessible
+- [34:48.440] for healthy foods for every American.
+- [34:52.050] And we believe we can do that. We think affordable food
+- [34:55.390] is within reach of every American family.
+- [34:58.460] We are working on a education and information program
+- [35:05.830] that will allow American families all over the country
+- [35:08.660] to come onto our website and find healthiest foods
+- [35:13.010] at the lowest cost for themselves.
+- [35:15.320] And also just add this, the idea that a cheap meal
+- [35:19.920] made of processed food is cheap is an illusion
+- [35:23.780] because you're paying for it on the back end.
+- [35:26.260] You're paying for it with diabetes,
+- [35:28.010] with obesity, with illness.
+- [35:30.840] And if you internalize that cost of the meal,
+- [35:34.950] it would be a tiny fraction of the long-term cost
+- [35:38.330] of eating bad food.
+- [35:40.120] Karoline Leavitt: We'll take one more, in the white blazer.
+- [35:41.820] The Press: Thank you, Karoline.
+- [35:43.060] Secretary Kennedy, you mentioned healthy fats,
+- [35:45.730] but also ending the war on saturated fats.
+- [35:48.840] Can you clarify how much saturated fats
+- [35:52.240] Americans should be consuming?
+- [35:54.340] Secretary Kennedy: I'm going to let Marty take that
+- [35:56.200] since he wrote a book about it.
+- [35:58.520] Marty Makary: The old dogma in the 1960s
+- [36:00.930] when Eisenhower had his heart attack
+- [36:02.510] and Ancel Keys said it was the saturated fat,
+- [36:05.550] that's never been substantiated.
+- [36:07.470] And so that flawed research has become dogma over the years,
+- [36:11.410] and eventually the conversation was sidelined.
+- [36:14.740] In this new guidance, we are telling young people, kids,
+- [36:19.730] schools, you don't need to tiptoe around fat and dairy.
+- [36:22.710] You don't need to push low fat milk to kids.
+- [36:27.610] And we are maintaining the 10 percent of calories
+- [36:30.070] as saturated fat in the guidance.
+- [36:32.680] The real issue is protein,
+- [36:34.920] the fact that 60 to 70 percent of the calories of kids today
+- [36:38.380] in America is ultra-processed food.
+- [36:41.900] These are the issues that have become giant blind spots
+- [36:44.170] where we're now putting attention.
+- [36:45.540] And we hope that there are conversations
+- [36:47.370] in every school board in America,
+- [36:48.840] in every church and synagogue and house of worship,
+- [36:51.840] every home in America will now have conversations.
+- [36:54.350] We've got to talk about school lunch programs,
+- [36:56.840] not just putting six-year-olds on Ozempic.
+- [36:59.500] Food can be curative.
+- [37:00.900] We've got to talk about the microbiome
+- [37:02.740] and fiber and healthy whole grains
+- [37:04.870] and the good soil that food comes from
+- [37:07.230] and the healthy, clean waters and good farming techniques.
+- [37:10.230] So that's the focus of this guidance. Thank you.
+- [37:12.380] Karoline Leavitt: Great.
+- [37:13.770] Some of you may be wondering why Dr. Carson is here.
+- [37:16.270] He is our national nutrition advisor
+- [37:18.490] working alongside Secretary Kennedy,
+- [37:20.290] and he's played a big role in this effort.
+- [37:21.820] So I want to thank you so much, Dr. Carson,
+- [37:23.770] for being here today.
+- [37:25.260] And thank all of you for being here today.
+- [37:27.190] I know you're all very busy people,
+- [37:28.740] and these people have a lot of questions on things
+- [37:31.220] other than diet, I'm sure.
+- [37:32.570] So I'm going to get to work
+- [37:34.050] and thank you guys so much for coming.
+- [37:35.930] Secretary Rollins: Thanks everybody.
+- [37:37.310] Karoline Leavitt: Thank you.
+- [37:38.670] (inaudible), please. Thanks. Okay. Thanks.
+- [37:41.750] All righty. Great.
+- [37:47.290] Does anyone have any questions? Rachel, why don't you start?
+- [37:51.280] The Press: Thank you, Karoline. The President has been adamant
+- [37:54.060] that he is now in charge of Venezuela,
+- [37:56.110] but Delcy Rodriguez said the government of Venezuela
+- [37:58.800] runs her country, no one else, saying, quote,
+- [38:00.800] "There's no external agent governing Venezuela."
+- [38:03.900] So which one is it?
+- [38:06.030] Karoline Leavitt: Let me just be very clear.
+- [38:07.320] This is the first time that I've addressed Venezuela
+- [38:09.340] from the podium since being back and since the historic
+- [38:12.910] and incredibly successful military operation,
+- [38:15.340] law enforcement operation conducted by our United States
+- [38:18.590] military that you all saw
+- [38:20.040] and the world witnessed last week.
+- [38:22.380] The skill, the might of the United States military
+- [38:25.340] and our country under the leadership of this President
+- [38:28.360] is on full display to the rest of the world.
+- [38:30.750] And let's just set the record straight.
+- [38:32.540] There isn't another military in the world
+- [38:34.380] who could have pulled off this operation.
+- [38:36.370] There is not another President in the world
+- [38:38.670] or in our nation's history
+- [38:40.000] who had the courage to authorize such a mission.
+- [38:43.610] And I think the world has taken notice
+- [38:45.120] that America is truly back.
+- [38:47.020] With respect to Venezuela,
+- [38:48.530] the Trump administration led by Secretary Rubio,
+- [38:52.400] the vice President and the President's
+- [38:54.450] entire national security team is in close correspondence
+- [38:57.420] with the interim authorities in Venezuela.
+- [38:59.870] We obviously have maximum leverage
+- [39:02.620] over the interim authorities in Venezuela right now,
+- [39:05.090] and the President has made it very clear
+- [39:07.140] that this is a country within the Western Hemisphere,
+- [39:11.260] close by the United States,
+- [39:13.080] that is no longer going to be sending illegal drugs
+- [39:16.060] to the United States of America.
+- [39:17.520] It's no longer going to be sending
+- [39:19.090] and trafficking illegal people and criminal cartels
+- [39:22.350] to kill American citizens as they have in the past.
+- [39:25.450] And the President is fully deploying his peace
+- [39:27.620] through strength foreign policy agenda.
+- [39:30.180] So we're continuing to be in close coordination
+- [39:32.160] with the interim authorities and their decisions are going
+- [39:36.120] to continue to be dictated by the United States of America.
+- [39:38.600] The Press: Just one follow up
+- [39:39.800] when you talk about that leverage there.
+- [39:41.800] Has the Venezuelan government fully committed
+- [39:44.020] to turning over its oil to the United States indefinitely,
+- [39:47.120] and what happens if they do not?
+- [39:48.350] Karoline Leavitt: Well, as you saw,
+- [39:49.570] the President announced last night, this was a deal.
+- [39:52.040] This was a deal made by the President and his team
+- [39:54.430] with the Venezuelan interim authorities.
+- [39:56.720] This will benefit both the American people
+- [39:58.520] and the Venezuelan people.
+- [40:00.050] And Secretary Wright and the Department of Energy
+- [40:02.070] are working with the interim authorities
+- [40:04.030] and also with the private oil industry to execute
+- [40:07.120] on this historic energy deal
+- [40:09.000] that's not only good for the United States,
+- [40:10.600] but it's also going to revive the prosperity,
+- [40:12.630] the safety, the security of both the United States and Venezuela
+- [40:15.990] as well. Ed.
+- [40:17.190] The Press: Following up on the oil part of this,
+- [40:19.010] 30 to 50 million barrels of oil,
+- [40:21.410] how exactly is that going to work?
+- [40:23.800] You're getting it out of Venezuela
+- [40:25.140] into the United States?
+- [40:26.380] Karoline Leavitt: Yes. The Press: And then what?
+- [40:27.680] Karoline Leavitt: That's exactly right.
+- [40:28.880] So as you know, Ed, as the President announced last night,
+- [40:30.920] this was the sanctioned oil
+- [40:32.470] that was basically just sitting in barrels,
+- [40:34.420] sitting on ships because of the effective quarantine
+- [40:37.280] of the United States of America.
+- [40:38.870] And the interim authorities have agreed to release
+- [40:41.140] that oil to the United States,
+- [40:42.580] so it will be arriving here at home very soon.
+- [40:45.990] The United States government has already begun
+- [40:47.740] marketing Venezuelan crude oil in the global marketplace
+- [40:50.860] for the benefit of the United States,
+- [40:52.330] engaged the world's leading commodity marketers,
+- [40:54.990] key banks to execute and provide financial support
+- [40:58.100] for these crude oil and crude product sales.
+- [41:01.140] All proceeds from the sale of Venezuelan
+- [41:03.070] crude oil and products
+- [41:04.380] will first settle in US controlled accounts
+- [41:06.970] at globally-recognized banks
+- [41:08.900] to guarantee the legitimacy and integrity
+- [41:11.110] of the ultimate distribution of proceeds
+- [41:13.450] and those funds will be dispersed
+- [41:15.880] for the benefit of the American people
+- [41:17.660] and the Venezuelan people at the discretion
+- [41:19.830] of the United States government.
+- [41:21.220] The Press: It sounds like it requires
+- [41:22.480] a lot of private sector engagement and agreement
+- [41:25.380] from the oil industry and the banking industry.
+- [41:27.050] Karoline Leavitt: That's right.
+- [41:28.320] The Press: Do you have that yet?
+- [41:29.530] Karoline Leavitt: There's a lot of private sector engagement
+- [41:30.970] that's happening right now. As you know, Secretary Wright,
+- [41:33.500] our energy secretary who's heading up this big project,
+- [41:36.270] is in Florida today meeting with some of these oil executives.
+- [41:39.390] And as we confirmed earlier,
+- [41:40.780] they will also be at the White House later this week.
+- [41:42.600] So they are absolutely eager to invest.
+- [41:44.850] They're eager about these opportunities.
+- [41:47.140] And Secretary Wright
+- [41:48.610] is a very well knowledgeable guy when it comes to oil and energy,
+- [41:52.120] and he's the perfect man for the job.
+- [41:53.410] The Press: Another corner of the world,
+- [41:54.620] real quick on Iran.
+- [41:55.970] Karoline Leavitt: Go ahead.
+- [41:57.200] The Press: So just to follow up on the oil,
+- [41:59.580] 30 to 50 million barrels is an initial tranche,
+- [42:02.800] if you will, and then what happens after that?
+- [42:04.770] What are the plans going forward?
+- [42:06.650] Karoline Leavitt: I won't get ahead of the plans
+- [42:08.390] that the President and his team
+- [42:09.870] are currently speaking with the interim authorities about,
+- [42:12.220] but rest assured, there is a long-term plan here.
+- [42:15.040] Secretary Rubio and the entire team
+- [42:17.070] are working diligently on it,
+- [42:18.310] and this is just sort of the first action
+- [42:20.000] that you all are seeing. Ed.
+- [42:23.180] The Press: So in order to get these oil companies
+- [42:25.030] to invest billions in Venezuela, how will the US reassure
+- [42:28.670] that their workers will be safe in Venezuela?
+- [42:31.000] Could there be troops involved?
+- [42:32.840] Karoline Leavitt: At this point in time, as you know,
+- [42:34.250] there are no troops on the ground in Venezuela.
+- [42:36.470] The President, of course, reserves the right
+- [42:38.230] to use the United States military if necessary.
+- [42:40.600] It's not something he wants to do.
+- [42:42.460] Diplomacy is always the first option.
+- [42:44.040] As you saw, he tried that with Nicolas Maduro,
+- [42:46.560] but unfortunately he was an illegitimate dictator
+- [42:49.180] and an unserious person.
+- [42:50.490] And so President Trump
+- [42:52.060] authorized this law enforcement operation,
+- [42:54.240] and now Nicolas Maduro is sitting in a prison cell
+- [42:55.960] in New York.
+- [42:57.230] So certainly the President is going to do
+- [42:58.960] what's in the best interest of the American people,
+- [43:01.370] and that includes workers from our energy
+- [43:03.250] and oil industry as well.
+- [43:04.460] The Press: With that meeting tomorrow,
+- [43:05.750] what is the message the President
+- [43:07.080] is going to give to the oil executives,
+- [43:08.440] and what does he want to hear?
+- [43:09.830] Karoline Leavitt: Well, the meeting is on Friday,
+- [43:11.300] and it's just a meeting to discuss
+- [43:13.950] obviously the immense opportunity
+- [43:15.780] that is before these oil companies right now.
+- [43:17.570] Steven.
+- [43:18.960] The Press: Thank you, Karoline. And congratulations again.
+- [43:21.130] Karoline Leavitt: Thank you.
+- [43:22.360] The Press: The New Yorker had a story yesterday
+- [43:24.300] on the vice President, and it questioned his, quote,
+- [43:27.810] "notable absence on Venezuela." And the sub-headline asked,
+- [43:31.360] "Was the vice President's exclusion
+- [43:33.080] from the operation of Venezuela
+- [43:34.410] an expression of this anti-interventionist ideology
+- [43:38.700] or political calculation?"
+- [43:40.910] Would you be able to discuss the vice
+- [43:42.270] President's role in Venezuela policy?
+- [43:44.370] Karoline Leavitt: I did see that report in The New Yorker,
+- [43:46.120] and quite frankly, I laughed out loud
+- [43:48.020] because it's very clear it's a fake report
+- [43:50.530] that's trying to sow distrust and division
+- [43:53.110] amongst the President and his team.
+- [43:55.180] Let me just be very clear.
+- [43:56.460] The vice President has been involved in all policy.
+- [44:00.000] He is the right-hand man of the President
+- [44:02.110] on all policy matters, including Venezuela policy.
+- [44:05.310] He was of course read in and deeply involved
+- [44:07.960] in this operation from the very beginning,
+- [44:10.180] and he was present on the night of the operation
+- [44:12.670] via secure communication at a different location
+- [44:15.920] as to not damage the operational secrecy of this mission
+- [44:20.520] that was so incredibly important
+- [44:22.810] to ensure that this mission could be carried out
+- [44:24.850] successfully without endangering our troops.
+- [44:28.430] Sure.
+- [44:30.280] The Press: The US seized a tanker recently.
+- [44:33.600] Russia specifically asked the United States
+- [44:36.230] not to seize that tanker.
+- [44:39.540] Does this action risk a larger conflict with Russia?
+- [44:43.260] Karoline Leavitt: I believe you're referring
+- [44:44.570] to the Bella 1 tanker that was seized this morning.
+- [44:47.680] The Department of Justice and the Department of Homeland
+- [44:50.010] Security in coordination with the Department of War
+- [44:52.550] did announce that seizure this morning
+- [44:54.710] for violations of US sanctions.
+- [44:56.820] I've spoken about the enforcement
+- [44:59.650] of our sanctions policy
+- [45:01.040] at the podium prior to the new year,
+- [45:04.750] and this administration is going to fully enforce
+- [45:07.650] the sanction policy of the United States.
+- [45:09.810] The vessel this morning was seized in the North Atlantic
+- [45:12.090] pursuant to a warrant issued by a US federal court
+- [45:15.110] after being tracked,
+- [45:16.770] and this was a Venezuelan shadow fleet vessel
+- [45:19.570] that has transported sanctioned oil.
+- [45:21.440] And the United States of America under this President
+- [45:23.840] is not going to tolerate that. I would also just add the vessel
+- [45:26.730] had a judicial seizure order in the crew.
+- [45:29.510] So that means the crew is now subject to prosecution
+- [45:32.110] for any applicable violation of federal law,
+- [45:34.590] and they will be brought to the United States
+- [45:36.110] for such prosecution if necessary. Kelly.
+- [45:38.530] The Press: Karoline, happy new year to you.
+- [45:39.900] Karoline Leavitt: Thank you. You too.
+- [45:41.130] The Press: I'd like to talk to you
+- [45:42.360] about a couple of things real quickly.
+- [45:43.600] The first question about the Venezuelan people.
+- [45:46.070] As you know, there's some eight million Venezuelans here,
+- [45:48.970] some of them celebrating in the streets.
+- [45:50.790] There are Venezuelans on the ground
+- [45:52.630] who are concerned about their safety.
+- [45:54.630] What does the Trump administration…
+- [45:57.040] What is it doing to actually help people
+- [46:00.010] in Venezuela understand
+- [46:01.620] that they will be secure throughout this transition?
+- [46:04.450] Karoline Leavitt: I think the fact
+- [46:05.670] that this President actually followed through
+- [46:08.330] on the long-held promise of the United States of America,
+- [46:11.760] the bipartisan promise to take down
+- [46:14.250] the illegitimate Maduro regime,
+- [46:16.730] should give assurance to the Venezuelan people
+- [46:19.510] and also Venezuelan Americans who fled this communist regime
+- [46:23.140] for a better life here at home, that this is a President
+- [46:25.770] who is serious about taking down illegitimate regimes
+- [46:29.720] and who is also serious about securing the security
+- [46:32.800] of the United States of America,
+- [46:34.390] including the Venezuelan American people.
+- [46:36.570] And I would just add that this is something
+- [46:38.570] that not just Republicans and President Trump
+- [46:40.610] have talked about for a very long time,
+- [46:42.730] but it is also something that Democrats have advocated for.
+- [46:45.940] In 2020, Chuck Schumer said that, at the time,
+- [46:51.030] President Trump had not brought an end to the Maduro regime,
+- [46:53.530] the Maduro regime is more powerful today
+- [46:56.000] and more entrenched today than it was when the President began.
+- [46:59.010] Now you hear Chuck Schumer out there saying,
+- [47:00.720] "This is reckless. The American people
+- [47:02.830] and the Venezuelan people should be in fear."
+- [47:04.890] But this is something that Chuck Schumer has long advocated for.
+- [47:08.050] Senator Chris Van Hollen, same thing,
+- [47:10.490] had said that the United States is going to use its leverage
+- [47:13.740] and influence to push for negotiations to transition
+- [47:16.350] to the truly elected leader. This was under President Biden.
+- [47:19.770] "We know Maduro and his cronies
+- [47:21.320] don't want to go quietly into the night.
+- [47:23.120] The US needs to work to ratchet up the pressure."
+- [47:26.080] Now, Senator Holland says it's an illegal act of war
+- [47:29.400] to get rid of Nicolas Maduro.
+- [47:31.100] So the hypocrisy is really astounding here,
+- [47:33.000] and thank you for giving me an opportunity to point it out.
+- [47:35.600] Kayla. I mean, sorry, go ahead. Yes.
+- [47:38.700] The Press: So there are reports that the administration
+- [47:40.570] is demanding that Venezuela cut ties with China,
+- [47:43.160] Russia, Iran, and Cuba. Can you confirm?
+- [47:45.670] Karoline Leavitt: I'm sorry?
+- [47:47.140] The Press: Reports that the administration
+- [47:48.590] has essentially demanded
+- [47:49.800] that Venezuela cut ties with China,
+- [47:51.890] Russia, Iran and Cuba, can you confirm that?
+- [47:54.770] Karoline Leavitt: Well, those alleged demands
+- [47:57.090] were made in a classified briefing by Secretary Rubio.
+- [48:00.270] And I know that there's a lot of leaks
+- [48:01.780] coming out of these classified briefings,
+- [48:03.110] so I'm not going to confirm or deny
+- [48:04.940] or get into what the secretary has said in classified settings
+- [48:07.800] to members of Congress.
+- [48:09.360] But I think that the administration has made
+- [48:11.300] it quite clear to the interim authorities in Venezuela
+- [48:13.910] that this is the Western hemisphere
+- [48:15.500] and American dominance
+- [48:16.790] is going to continue under this President.
+- [48:19.040] The Press: (inaudible)
+- [48:20.330] ask, there have also been reports
+- [48:22.140] that the US could potentially buy Greenland
+- [48:24.560] as one potential option on the table.
+- [48:27.550] What would such an offer look like?
+- [48:29.550] Is there anything monetarily you could provide any details there?
+- [48:32.470] Karoline Leavitt: Well, that's something that's currently
+- [48:34.050] being actively discussed by the President
+- [48:36.120] and his national security team.
+- [48:38.070] And I would point out that the acquisition of Greenland
+- [48:40.900] by the United States is not a new idea.
+- [48:42.980] This is something that
+- [48:44.250] Presidents dating back to the 1800s
+- [48:46.440] have said is advantageous for America's national security.
+- [48:49.890] The President has been very open and clear with all of you
+- [48:52.680] and with the world that he views it
+- [48:54.400] in the best interest of the United States
+- [48:56.360] to deter Russian and Chinese aggression in the Arctic region.
+- [49:01.550] And so that's why his team is currently talking about
+- [49:03.770] what a potential purchase would look like.
+- [49:06.470] Jackie.
+- [49:07.680] The Press: Thank you, Karoline. Following up on Greenland,
+- [49:09.980] why not rule out taking it by military force?
+- [49:13.540] Karoline Leavitt: I know that past Presidents and past leaders
+- [49:16.250] have often ruled things out.
+- [49:18.690] They've often been very open about ruling things in
+- [49:23.370] and basically broadcasting their foreign policy strategy
+- [49:26.330] to the rest of the world, not just to our allies,
+- [49:28.350] but most egregiously, to our adversaries.
+- [49:31.790] That's not something this President does.
+- [49:33.790] All options are always on the table for President Trump
+- [49:36.690] as he examines what's in the best interest
+- [49:38.410] of the United States.
+- [49:39.660] But I will just say that the President's first option
+- [49:42.970] always has been diplomacy. Again, look at Venezuela.
+- [49:47.000] He tried ardently to strike a good deal with Nicolás Maduro
+- [49:50.660] and he told him,
+- [49:51.890] "I will use the United States military
+- [49:53.580] and you will not like it if you don't take such a deal."
+- [49:56.760] And look at what happened. With respect to Iran,
+- [49:59.310] the President said the same thing, right?
+- [50:00.920] He tried to have serious interest in a deal
+- [50:04.770] with the Iranian regime
+- [50:06.030] with respect to their nuclear capabilities.
+- [50:08.470] They were not interested.
+- [50:09.920] And so Operation Midnight Hammer happened,
+- [50:11.710] which was another remarkable military success
+- [50:14.600] under the leadership of this commander in chief.
+- [50:16.830] So the President keeps his options open,
+- [50:18.910] but diplomacy is always the first.
+- [50:20.250] The Press: Very quickly,
+- [50:21.470] just one additional follow up on that.
+- [50:22.950] Does the President recognize Denmark's ownership
+- [50:27.520] as part of the kingdom?
+- [50:29.490] Because there have been some Republican senators
+- [50:32.270] questioning the claim that Denmark has to Greenland.
+- [50:36.340] Is the President in that camp with them
+- [50:38.360] questioning the legality of-
+- [50:40.100] Karoline Leavitt: I have not heard him question
+- [50:41.410] it personally,
+- [50:42.700] but you're welcome to ask him yourself
+- [50:44.010] next time you have the chance.
+- [50:45.240] The Press: (inaudible)
+- [50:46.470] being lifted for Venezuela. We got to lift some sanctions
+- [50:48.420] to let the oil come in.
+- [50:49.700] Can you talk about that just very briefly?
+- [50:50.980] Karoline Leavitt: Yeah.
+- [50:52.250] So the US is selectively rolling back sanctions
+- [50:54.620] to enable the transport and the sale of Venezuelan crude
+- [50:57.600] and oil products to the global markets.
+- [50:59.370] Yes, Annie.
+- [51:01.050] The Press: Thank you.
+- [51:02.670] There are some reports from Venezuela
+- [51:04.360] that the country's leaders are cracking down
+- [51:06.870] on the population, specifically suppressing public expression
+- [51:11.520] of support from Maduro's ouster.
+- [51:14.460] Is that kind of behavior consistent
+- [51:16.300] with what the President wants to see?
+- [51:18.520] How the President wants to see the leaders
+- [51:20.390] to take on the population?
+- [51:21.610] Karoline Leavitt: It would not be consistent.
+- [51:22.860] And I'll let the President's national security team
+- [51:24.710] speak further on that.
+- [51:25.940] I know they are well aware in tracking. Kelly.
+- [51:28.380] The Press: Two questions.
+- [51:29.750] One, on the seized vessels, the Bella, the Sophia,
+- [51:32.100] can you tell us where they're headed?
+- [51:33.770] What happens to any existing cargo?
+- [51:36.260] And you reference personnel potentially facing prosecution.
+- [51:39.690] That's one thing I'd like to follow on.
+- [51:41.110] Karoline Leavitt: Yes. On the bella.
+- [51:42.310] The Press: Yes. Okay.
+- [51:43.590] And on Annie's question, if I could also ask,
+- [51:45.720] does the administration believe that the interim regime
+- [51:48.830] should release all political dissidents and prisoners
+- [51:52.740] and return detained Americans?
+- [51:54.690] Karoline Leavitt: That's not a question
+- [51:55.900] that I've personally spoken about to the President with.
+- [51:58.820] So I will let him answer that question.
+- [52:00.930] I don't want to make new policy at this podium today
+- [52:03.000] with respect to Venezuela.
+- [52:04.720] With respect to the two ships that you mentioned,
+- [52:06.740] I spoke with you about the Bella One.
+- [52:09.000] There was another vessel this morning, the Sophia,
+- [52:12.890] that in coordination with the Department of War,
+- [52:14.960] the Department of Homeland Security apprehended it.
+- [52:17.430] This is a stateless, sanctioned, dark fleet motor tanker,
+- [52:21.810] and this occurred without incident.
+- [52:24.150] This vessel was operating in international waters
+- [52:26.680] and conducting illicit activities in the Caribbean Sea.
+- [52:29.910] The US Coast Guard is escorting the Sophia
+- [52:33.210] to the United States for final disposition.
+- [52:35.890] To answer your question, Kelly, directly.
+- [52:38.410] This was through Operation Southern Spear.
+- [52:40.940] The Department of War is unwavering in its mission
+- [52:43.340] to crush illicit activity in the Western hemisphere.
+- [52:46.460] And as the President has repeatedly stated,
+- [52:48.960] we're going to defend our homeland and restore security
+- [52:51.300] and strength across the Americas.
+- [52:53.120] Dasha. Dasha, go ahead.
+- [52:54.410] The Press: Karoline, thank you and happy new year.
+- [52:55.710] Karoline Leavitt: Thanks, you too.
+- [52:56.930] The Press: Two questions, one on Venezuela,
+- [52:58.180] one on Greenland. You repeatedly at the podium
+- [53:00.440] called the current leadership in Venezuela,
+- [53:02.500] interim leadership.
+- [53:03.910] There are Republicans and Democrats
+- [53:05.500] alike that say they want to see elections in Venezuela.
+- [53:08.110] The President has said it's too soon to do that right now,
+- [53:11.060] but is there a timeline for elections in Venezuela?
+- [53:13.610] Is he committed to seeing that this year, for example?
+- [53:15.680] Karoline Leavitt: You just said the President
+- [53:16.910] has answered that question.
+- [53:18.130] So I will reiterate what the President has said
+- [53:20.340] a few times now to all of you, which is that it's too premature
+- [53:23.600] and too early to dictate a timetable
+- [53:25.600] for elections in Venezuela right now.
+- [53:27.880] The Press: Karoline, you just talked to Jackie
+- [53:30.130] about diplomacy first, right?
+- [53:31.840] The Days have repeatedly said they are willing to collaborate
+- [53:34.470] on all of the concerns that the President has,
+- [53:36.220] whether it's more troops,
+- [53:37.840] mineral rights, intelligence sharing.
+- [53:39.780] Why does the President feel he needs to own Greenland
+- [53:43.380] and put out the threat of military action
+- [53:45.890] when this could be done through diplomacy?
+- [53:48.690] Karoline Leavitt: Well, who said diplomacy
+- [53:50.270] isn't taking place behind the scenes, Dasha?
+- [53:51.960] I mean, the President is interested in diplomacy.
+- [53:54.410] His national security team is as well.
+- [53:57.020] And of course, he's always willing to pick up the phone
+- [53:58.850] for everybody and hear out their concerns,
+- [54:01.100] but the President is the President
+- [54:02.670] of the United States of America
+- [54:03.890] and he's always going to be very clear
+- [54:05.730] about what he views as being in our nation's best interest.
+- [54:08.800] Reagan.
+- [54:10.120] The Press: Thanks, Karoline.
+- [54:11.320] I have a question for you on Venezuela,
+- [54:12.790] and then I'd love to ask you about Minnesota and Tim Walz.
+- [54:15.360] Karoline Leavitt: Sure.
+- [54:16.600] The Press: On Venezuela, I'm wondering,
+- [54:18.250] does the administration hope to start sending more Venezuelan
+- [54:21.180] migrants back home or have them self-deport
+- [54:23.960] if the situation in the country improves?
+- [54:27.610] Karoline Leavitt: As far as I'm concerned,
+- [54:29.210] the policies of the Trump administration
+- [54:31.030] and the Department of Homeland Security
+- [54:32.350] have not changed. All those illegally present in the country
+- [54:35.680] are subject to deportation.
+- [54:37.670] And I would just like to add how we got here.
+- [54:41.640] The President was very clear on the campaign
+- [54:44.840] to the American public, and it's one of the many reasons
+- [54:47.120] they resoundingly reelected him back to this office,
+- [54:50.030] that he was not only going to crush foreign drug cartels,
+- [54:53.970] but that he was not going to stand by
+- [54:55.710] and watch as the illegitimate Venezuelan regime
+- [54:59.440] was sending illegal criminals and gang members and rapists
+- [55:05.210] and murderers to our country,
+- [55:06.990] which happened to the tune of thousands
+- [55:09.030] under the previous administration and President.
+- [55:11.390] And so there could be nothing more America
+- [55:13.380] first than this operation that took place last week.
+- [55:16.510] And I would just remind all of you in this room
+- [55:18.030] that there were innocent Americans
+- [55:19.410] like who lost their lives
+- [55:20.640] at the hands of dangerous Venezuelan criminals
+- [55:21.970] who lost their lives at the hands
+- [55:23.600] of dangerous Venezuelan criminals
+- [55:25.800] who were sent here by the Maduro regime.
+- [55:27.870] And that has been the President's north star
+- [55:30.050] and guiding principle throughout his entire policy
+- [55:33.320] since January 20th.
+- [55:34.820] The Press: Tim Walz in Minnesota,
+- [55:36.950] does the administration believe that Tim Walz
+- [55:39.010] potentially dropped out of the governor's race
+- [55:40.910] because he could be under criminal investigation?
+- [55:44.380] Karoline Leavitt: I don't know
+- [55:45.640] if there's a criminal investigation.
+- [55:47.160] If there was, I wouldn't be able to comment on it from up here,
+- [55:49.830] to be honest with you.
+- [55:51.050] But I think Tim Walz probably dropped out of the race
+- [55:53.150] because he realizes he no longer
+- [55:54.410] has the support of the people of his own state,
+- [55:57.220] which is a remarkable downfall considering
+- [55:59.120] he was the number two on the Democrat party's ticket
+- [56:01.660] just about a year ago.
+- [56:03.610] When it comes to Minnesota, the fraud that we have seen,
+- [56:06.340] the wide scale of fraud is really remarkable.
+- [56:10.210] It's egregious.
+- [56:11.540] I would encourage every single journalist in this room
+- [56:15.510] to go to Minnesota and to cover it yourselves.
+- [56:18.070] As for the Trump administration,
+- [56:19.800] we have officials who have been on the ground almost every day.
+- [56:22.330] Secretary Nome was there yesterday.
+- [56:24.310] Secretary Bessent will be traveling there
+- [56:26.050] later this week to talk about the fraud
+- [56:28.240] and to do a round table on this very topic.
+- [56:30.480] And I would just like to leave you with an update.
+- [56:32.730] To date, the Department of Justice
+- [56:34.250] has charged 98 total defendants
+- [56:36.460] in several Medicaid fraud and related case programs.
+- [56:39.620] 64 were convicted and 85 of the 98
+- [56:43.260] charged were of Somali dissent.
+- [56:45.920] The GOJ has also issued over 1,700 subpoenas
+- [56:51.380] executed over 130 search warrants
+- [56:54.130] and they have now added more attorneys to their office
+- [56:57.730] there to absorb the case flow.
+- [56:59.960] DHS is on the ground going door to door
+- [57:02.130] conducting large scale criminal and HSI investigations.
+- [57:05.620] They have also sent approximately 2,000 agents
+- [57:08.910] to Minneapolis to assist with law enforcement
+- [57:11.770] and immigration enforcement.
+- [57:13.260] As I said, Secretary Nome was on the ground yesterday.
+- [57:15.990] The Department of Health and Human Services
+- [57:17.640] has also begun requiring a justification
+- [57:20.360] and photo evidence for all childcare
+- [57:22.340] related payments nationwide,
+- [57:24.230] and they required Minnesota to conduct
+- [57:25.990] a full audit of all childcare centers.
+- [57:28.850] They also froze $185 million in funding to Minnesota.
+- [57:33.930] And Dr. Oz, who was just here, also notified Governor Walz.
+- [57:37.230] They're going to begin auditing Medicaid recipients
+- [57:39.960] and deferring payments on claims
+- [57:41.490] based on waste, fraud, and abuse.
+- [57:43.820] The Department of Labor is also conducting a targeted
+- [57:46.480] review of Minnesota's unemployment program.
+- [57:49.370] Department of Agriculture requiring Minnesota
+- [57:52.720] to conduct recertification for SNAP recipients,
+- [57:56.090] and HUD has launched investigations
+- [57:58.060] into the public housing.
+- [57:59.400] SBA has also suspended nearly 7,000 borrowers
+- [58:03.460] amid suspected fraudulent activity.
+- [58:05.640] So with all of that, rest assured,
+- [58:07.850] this is an all hands on deck effort
+- [58:09.890] from the entire administration to get to the bottom of this
+- [58:12.840] and to ensure that the ripping off of taxpayers
+- [58:15.510] in the state of Minnesota, and it won't just be Minnesota.
+- [58:18.330] It'll be any state across this country
+- [58:20.010] where fraud has taken place
+- [58:21.770] and we are protecting law-abiding,
+- [58:23.430] taxpaying American citizens. Phil.
+- [58:26.430] The Press: Thank you, Karoline. Just to follow up on Greenland,
+- [58:28.810] there are treaties already on the books
+- [58:30.650] that give the United States access to the island.
+- [58:33.900] They can construct and maintain military bases there.
+- [58:38.150] We can house personnel on the island.
+- [58:39.990] The US has control of landings, takeoffs, anchorages, et cetera.
+- [58:44.370] So I'm curious if you could just spell out
+- [58:46.680] for the American public.
+- [58:48.290] What specifically would the US gain
+- [58:50.500] by taking control of Greenlight
+- [58:52.080] that the US doesn't already have access to right now?
+- [58:56.660] Karoline Leavitt: More control over the Arctic region
+- [58:59.710] and ensuring that China and Russia
+- [59:02.850] and our adversaries cannot continue their aggression
+- [59:05.820] in this very important and strategic region.
+- [59:08.480] And there would be many other benefits as well that again,
+- [59:10.560] the President and his national security team
+- [59:12.700] are currently talking about. Jeff. I'll give you another one.
+- [59:17.620] The Press: That question on a foreign policy.
+- [59:21.430] Are you concerned about increasing tensions with Russia
+- [59:24.440] because of the tanker seizures?
+- [59:27.440] And how does the US action in Venezuela
+- [59:32.660] impact the ongoing relationship with China
+- [59:35.420] and the President's relationship with President Xi?
+- [59:38.860] Karoline Leavitt: I think the President has very open,
+- [59:42.070] honest, and good relationships
+- [59:43.720] with both President Putin of Russia
+- [59:45.370] and also President Xi of China.
+- [59:47.460] He has spoken with them numerous times, as you know,
+- [59:50.190] since coming to office about a year ago,
+- [59:51.980] and I believe that those personal relationships
+- [59:54.070] are going to continue.
+- [59:55.360] But as for the President and the United States,
+- [59:57.850] he's going to enforce our policy
+- [01:00:00.190] that's best for the United States of America.
+- [01:00:01.980] And with respect to these ship seizures,
+- [01:00:04.110] that means enforcing the embargo against all dark fleet vessels
+- [01:00:07.510] that are illegally transporting oil
+- [01:00:10.020] and only legitimate commerce,
+- [01:00:11.520] to answer your question much earlier, Rachel,
+- [01:00:13.670] determined by the United States is going to be permitted.
+- [01:00:16.510] And that's the policy of this administration
+- [01:00:18.210] and he's not afraid to implement it.
+- [01:00:20.150] The Press: (inaudible). Just one more standback.
+- [01:00:22.750] Last one. I remember asking the President
+- [01:00:24.550] at the very beginning of his term
+- [01:00:26.600] if he was committed to Article five and NATO and he said yes.
+- [01:00:30.010] Has his stance on NATO or his commitment to NATO changed?
+- [01:00:33.620] Karoline Leavitt: Did you see his statement earlier today?
+- [01:00:35.550] He said, "We will always be there for NATO
+- [01:00:37.310] even if they are not there for us."
+- [01:00:39.180] And I think that answers your question directly. Yes.
+- [01:00:43.110] The Press: Just to follow up on what Jeff was saying there,
+- [01:00:45.080] will the President commit
+- [01:00:46.320] that if any NATO members are attacked,
+- [01:00:48.280] the United States would (inaudible)
+- [01:00:49.780] Karoline Leavitt: Again, the President addressed
+- [01:00:50.990] this directly himself this morning
+- [01:00:52.970] after seeing the coverage from all of you
+- [01:00:55.700] in this room on television and he made it very clear.
+- [01:00:59.230] We're always going to be there for NATO,
+- [01:01:00.980] even if they have not done right by the United States of America.
+- [01:01:04.280] And they have finally increased their defense
+- [01:01:07.830] spending at the request of this President,
+- [01:01:10.810] but it was only because of this President that they did that.
+- [01:01:13.970] Take a couple more. Michael, go ahead.
+- [01:01:15.470] The Press: Thank you, Karoline. Happy New Year. Congratulations.
+- [01:01:16.990] Karoline Leavitt: Thank you. You too.
+- [01:01:18.270] The Press: So two questions.
+- [01:01:19.490] One on healthcare, one on Mexico.
+- [01:01:20.700] On healthcare, President says he wants
+- [01:01:22.630] Republicans to be flexible on the Hyde Amendment
+- [01:01:25.330] in order to pass healthcare legislation.
+- [01:01:28.130] What is the White House's message to pro-life voters
+- [01:01:30.600] who say federal funding for abortion
+- [01:01:32.750] goes against their values?
+- [01:01:34.190] Karoline Leavitt: Well, the President did not change
+- [01:01:35.700] the administration's policy.
+- [01:01:37.090] It was President Trump who signed an executive order
+- [01:01:40.070] protecting the Hyde Amendment.
+- [01:01:41.780] It's the Trump administration that has taken multiple actions
+- [01:01:44.840] on various fronts to ensure that taxpayer dollars
+- [01:01:47.890] are not funding the practice of abortion.
+- [01:01:50.520] What the President was saying yesterday
+- [01:01:51.960] was Republicans and frankly, Democrats too,
+- [01:01:54.800] need to show a little bit more flexibility
+- [01:01:56.880] so we can actually get something done
+- [01:01:59.300] with respect to the issue of healthcare.
+- [01:02:01.500] Republicans have amazing ideas.
+- [01:02:03.480] The President himself, as we spoke about earlier,
+- [01:02:06.100] has launched this most favored nation drug pricing initiative,
+- [01:02:09.010] has cut good deals with big pharma.
+- [01:02:11.090] He wants to see Republicans and Democrats too,
+- [01:02:13.370] if they're willing, codify those executive orders into law
+- [01:02:16.360] so that these good deals can remain
+- [01:02:18.260] and these prices can continue
+- [01:02:19.580] to be lowered long after this President
+- [01:02:21.610] and this deal maker in chief is gone.
+- [01:02:23.990] President's talked a lot about health savings accounts
+- [01:02:26.610] and giving more money back to the healthcare consumer
+- [01:02:29.420] rather than to these giant insurance companies.
+- [01:02:31.910] And he's been very outspoken and tough on them too.
+- [01:02:34.530] And I think you'll see more and hear more from him
+- [01:02:36.750] directly on that issue. So he wants to see Congress
+- [01:02:39.570] get something done with respect to healthcare,
+- [01:02:41.900] and that was the point that he was driving home yesterday.
+- [01:02:44.310] The Press: Karoline, President Trump says the drug cartels
+- [01:02:46.920] are running Mexico.
+- [01:02:48.660] What action does he need to see Mexico's President,
+- [01:02:51.300] Claudia Sheinbaum take to prove
+- [01:02:52.840] that she's in control of that country,
+- [01:02:54.380] in control of those cartels?
+- [01:02:56.050] And does the White House believe she's able to do that
+- [01:02:58.120] without US intervention?
+- [01:02:59.490] Karoline Leavitt: Look, I think the President
+- [01:03:00.760] was speaking very candidly and frankly about the reality
+- [01:03:04.100] on the ground in Mexico. Haley.
+- [01:03:05.590] The Press: Karoline, happy new year.
+- [01:03:06.840] Karoline Leavitt: Thanks, you too.
+- [01:03:08.120] The Press: I wanted to ask you about the seized tanker,
+- [01:03:09.760] the Bella. There were reports before this
+- [01:03:11.540] that Russia had sent a submarine to assort it.
+- [01:03:13.970] Was there any engagement with that submarine?
+- [01:03:16.030] And then was the deconfliction aligned with Russia
+- [01:03:18.750] used ahead of boarding that?
+- [01:03:20.170] Karoline Leavitt: Again,
+- [01:03:21.460] this was a Venezuelan shadow fleet vessel
+- [01:03:24.650] that has transported sanctioned oil.
+- [01:03:26.490] The vessel was deemed stateless after flying a false flag
+- [01:03:30.610] and it had a judicial seizure order.
+- [01:03:32.720] And that's why the crew will be subject to prosecution.
+- [01:03:36.030] Mary.
+- [01:03:37.230] The Press: Thanks Karoline.
+- [01:03:38.610] On Columbia, the President talked in the week
+- [01:03:41.950] and suggested that he'd be open to an operation there.
+- [01:03:44.620] Should the President of Columbia
+- [01:03:46.030] be expecting Delta force anytime soon?
+- [01:03:48.570] And then I have another one for you on California.
+- [01:03:50.220] Karoline Leavitt: That would be a very unwise question for me
+- [01:03:52.230] to answer, to weigh into. What's your next question?
+- [01:03:54.460] The Press: On California,
+- [01:03:55.680] can you share any more about the fraud investigation?
+- [01:03:58.650] The President said that there was one.
+- [01:04:00.570] Who's being investigated and where is it starting?
+- [01:04:03.450] Karoline Leavitt: Again, this is going to be a all hands
+- [01:04:05.450] on deck government-wide effort.
+- [01:04:07.070] The President has directed all agencies across the board
+- [01:04:10.320] to look at federal spending programs in not just Minnesota,
+- [01:04:13.510] but also in the state of California to identify fraud
+- [01:04:16.870] and to prosecute to the fullest extent of the law,
+- [01:04:19.370] all those who have committed it. Take one more. Sure.
+- [01:04:23.180] The Press: Thank you.
+- [01:04:24.470] Karoline, yesterday was the five-year anniversary
+- [01:04:27.040] of January 6th. Democrats and mainstream media
+- [01:04:29.820] continued to push their big lie that it was an insurrection
+- [01:04:32.830] and that police officers died that day.
+- [01:04:35.120] The reality is that four Trump supporters died on January 6th
+- [01:04:38.040] and two women were killed by January 6th police.
+- [01:04:41.050] Everybody knows Ashli Babbitt was shot in cold blood
+- [01:04:43.300] by Capitol Police Officer Michael Byrd,
+- [01:04:45.120] but there was another woman.
+- [01:04:46.360] Her name was Rosanne Boyland from Georgia,
+- [01:04:48.650] and she was pepper balled, gassed,
+- [01:04:49.960] and ultimately truly beaten with a stick
+- [01:04:52.120] by January 6th police officer, Lila Morris.
+- [01:04:55.010] The Biden administration and mainstream media lied
+- [01:04:57.200] and told Americans Rosanne Boyland
+- [01:04:58.700] died of a drug overdose on Capitol steps.
+- [01:05:01.530] Her family is now asking for an investigation.
+- [01:05:04.100] Is the administration aware of the circumstances of her death
+- [01:05:07.130] and will there be an investigation finally?
+- [01:05:09.240] Karoline Leavitt: Well, for an investigation,
+- [01:05:10.870] I will have to defer you to either the FBI
+- [01:05:12.950] or the Department of Justice,
+- [01:05:14.250] and I'm sorry to have to do that.
+- [01:05:15.940] But with respect to all of the facts that you just laid out,
+- [01:05:18.620] the White House relished the opportunity yesterday
+- [01:05:21.040] to actually create a new website
+- [01:05:23.000] to share the facts with the American public,
+- [01:05:25.320] but also all those in this room.
+- [01:05:26.760] We knew the media would be covering January 6th quite a bit
+- [01:05:30.100] because they think it's something
+- [01:05:31.580] that the American people are still believing their lies on.
+- [01:05:33.880] They think it's something that still helps their case
+- [01:05:36.120] against this President, obviously not,
+- [01:05:38.190] or else he wouldn't have been reelected
+- [01:05:39.810] in an overwhelming fashion in November of last year.
+- [01:05:43.130] And so I would encourage
+- [01:05:44.440] everyone to take a look at that website.
+- [01:05:46.220] It's quite well done and thank you all very much.
+- [01:05:48.160] It's great to be back with you.

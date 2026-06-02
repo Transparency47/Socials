@@ -1,0 +1,686 @@
+<!-- source: https://www.youtube.com/watch?v=swQUiRO9aZM -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: swQUiRO9aZM -->
+<!-- date_published: 2026-05-28T18:45:36+00:00 -->
+<!-- date_accessed: 2026-06-02T02:33:11.509760+00:00 -->
+
+# Transcript: Secretary of the Treasury Scott Bessent Briefs Members of the Media, May 28, 2026
+
+- [00:04.130] Secretary Bessent: Good afternoon, everyone.
+- [00:05.330] The Press: Good afternoon.
+- [00:06.550] Secretary Bessent: Good.
+- [00:07.790] Like to say it's a pleasure to be here today.
+- [00:09.430] This is my warm up for my Senate and House hearings next week,
+- [00:13.170] so I don't want anyone yelling reclaim my time.
+- [00:17.850] So, let's start out with Trump accounts.
+- [00:20.670] Trump accounts, I believe, are the most important benefit
+- [00:23.150] for young people since the GI Bill.
+- [00:25.630] Today the app is now available on all major platforms,
+- [00:28.980] bringing the president's vision directly to American homes.
+- [00:33.410] Nearly six million American children
+- [00:35.290] have been signed up for Trump accounts,
+- [00:37.390] which will launch on July 4th. And I would encourage all of you
+- [00:41.550] to go to trumpaccount.gov to sign up.
+- [00:45.470] We had an historic tax filing season.
+- [00:48.120] We passed the largest tax cuts in American history.
+- [00:51.080] The average refund this filing season is nearly $3,300,
+- [00:54.650] an 11 percent increase from last year.
+- [00:56.970] And importantly, very importantly,
+- [00:59.220] 62 million returns, 44 percent,
+- [01:02.210] claimed at least one of the president's signature tax cuts:
+- [01:06.170] no tax on tips, no tax on overtime,
+- [01:08.710] the reduced taxes on Social Security benefits.
+- [01:14.310] 85 percent of our seniors pay no taxes,
+- [01:17.320] and the auto deductibility on loans for American cars.
+- [01:22.320] And to remind everyone, Democrats --
+- [01:24.330] every Democrat voted against those programs.
+- [01:28.630] We've had sustained and resilient GDP growth.
+- [01:31.570] Real GDP has risen 2.6 percent over the past four quarters.
+- [01:35.850] Atlanta Fed's GDP
+- [01:37.520] Now predicts 3.8 percent for this quarter, second quarter.
+- [01:43.580] The US energy dominance -- part of our resilience
+- [01:47.920] stems from our energy dominance.
+- [01:49.940] Natural gas is down. That's why I believe,
+- [01:52.690] and the futures market is showing us,
+- [01:54.580] oil will be lower than pre-conflict levels.
+- [01:57.510] We are more resilient to energy price fluctuations
+- [02:00.080] due to President Trump's energy dominance
+- [02:02.550] and deregulatory agenda.
+- [02:04.410] The United States is now the world's largest energy exporter.
+- [02:07.930] The United States has never exported so much energy
+- [02:11.640] or produced so much energy. Main Street prosperity,
+- [02:14.990] the average 401(k) is up almost $30,000
+- [02:18.590] since President Trump's inauguration.
+- [02:20.600] President TrumpRx has already saved Americans
+- [02:23.110] over $600 million.
+- [02:24.890] I'm sure all of you will want to report on that.
+- [02:27.360] And the unemployment rate remains low at 4.3 percent.
+- [02:31.440] So, with that, I'm happy to ask questions.
+- [02:35.730] I will mention the -- three weeks ago,
+- [02:38.530] I got an honorary degree from University of South Carolina.
+- [02:41.230] So, if you really want to get a question,
+- [02:42.700] you can call me Dr. Bessent. So --
+- [02:46.030] The Press: Dr. Bessent,
+- [02:47.650] (Inaudible)
+- [02:52.030] Secretary Bessent, I want to start with these Trump accounts.
+- [02:54.340] You know, there's a lot of people,
+- [02:55.750] a lot of working class Americans,
+- [02:57.250] that maybe don't have the financial expertise
+- [02:59.560] when it comes to stock markets and investing in general.
+- [03:03.390] In what ways do you --
+- [03:04.640] are you guys simplifying this for all those Americans
+- [03:07.210] so that it's not just for one class of people,
+- [03:09.580] but all Americans can -- can have it?
+- [03:11.440] Secretary Bessent: Well, that's a great question,
+- [03:12.790] because 38 percent of Americans have no exposure to equities.
+- [03:17.570] They don't share in the great innovation,
+- [03:19.970] the machine that is the American economy,
+- [03:23.870] our great capital markets, which drives the --
+- [03:27.420] our prosperity. So, if your child is born
+- [03:31.860] during President Trump's administration,
+- [03:33.800] Treasury puts in $1,000 as a seed investment.
+- [03:37.930] We've also created six learning pods,
+- [03:41.070] so you can go online to the app that went up today and learn.
+- [03:45.910] And I think that this is going to be --
+- [03:48.200] you know, I've been a big proponent of financial literacy,
+- [03:51.070] and I think this is going to be one of the greatest
+- [03:53.970] real-time financial literacy educations in history,
+- [03:57.520] because it won't be -- oh, like, there --
+- [04:00.700] there's a street in New York called Wall Street.
+- [04:02.480] This is what -- I don't really understand what happens there.
+- [04:05.570] An American family is going to be able to look
+- [04:07.370] on their phone every day and see.
+- [04:10.280] And, you know, I think it's going to drive people
+- [04:12.980] to try to understand what they've got here.
+- [04:15.430] I think we're going to create a generation of shareholders.
+- [04:19.500] So, Ed?
+- [04:21.170] The Press: Thank you, Mr. Secretary.
+- [04:22.670] I guess first, well, we're starting to see
+- [04:24.500] the disruption of the oil supply through the Strait of Hormuz
+- [04:27.780] affect economic data.
+- [04:30.180] You know, first, is there a deal on the table
+- [04:33.250] for a 60 day ceasefire to continue that?
+- [04:35.630] And then second, how fast could inflation
+- [04:38.750] then recede or retreat, or is inflation sticky
+- [04:41.430] because the PCE was at a three year high?
+- [04:44.930] Secretary Bessent: Well, first of all, PCE today,
+- [04:47.530] month over month was 0.2, which was -- we're --
+- [04:50.810] we're looking at decimal points. But the estimate was 0.3,
+- [04:53.970] so one month doesn't a trend make.
+- [04:56.710] And what we've seen is actually oil prices
+- [05:00.120] are down about 10 percent in May.
+- [05:02.320] There're almost 2,000 ships waiting to come out of the gulf.
+- [05:06.150] And I think the oil market's going to be very well
+- [05:08.570] supplied on the other side of this,
+- [05:10.790] and that we could see prices come down very quickly.
+- [05:13.130] We saw the UAE, the -- leave OPEC, so I --
+- [05:17.510] I would expect, on the other side of this,
+- [05:19.670] that gasoline prices will follow the -- the --
+- [05:21.620] The Press: But is there an agreement on the table?
+- [05:23.140] Secretary Bessent: Sorry?
+- [05:24.390] The Press: Is there an agreement with Iran on the table?
+- [05:27.570] Secretary Bessent: The teams have been going back and forth.
+- [05:29.810] And President Trump has made it very clear,
+- [05:32.040] he talked about it at the cabinet meeting,
+- [05:34.100] that he -- he has several red lines.
+- [05:37.510] And Iran has to turn over their highly enriched uranium.
+- [05:42.140] They cannot pursue a nuclear weapon.
+- [05:44.030] And the Strait of Hormuz, back to your question on energy,
+- [05:47.510] has to free transit.
+- [05:49.670] Navigation of the seas has to be free and open as it was before.
+- [05:53.670] So, he's not going to take a bad deal.
+- [05:55.550] He's going to make a great deal for the American people.
+- [06:00.840] So, Peter, I --
+- [06:02.120] The Press: Thank you, Dr. Bessent.
+- [06:03.570] Secretary Bessent: Yep.
+- [06:05.020] The Press: Would -- how long until we see your signature
+- [06:08.530] next to President Trump's face on a $250 bill?
+- [06:13.990] Secretary Bessent: Well, again, as Treasury Secretary, I --
+- [06:17.530] I have two mandates for US currency.
+- [06:20.110] At present, the -- no living person can be on US currency
+- [06:25.200] and the currency must say in God we trust.
+- [06:28.000] So, right now, there is proposed legislation that --
+- [06:31.670] in front of the House, in front of the Senate
+- [06:33.510] to change the first requirement
+- [06:35.740] so that a living person, Donald J Trump,
+- [06:38.620] could be on the $250 bill.
+- [06:40.790] So, it's all in the hands of the --
+- [06:45.250] it's all in -- up on Capitol Hill.
+- [06:47.760] And at Treasury, we prepare things in advance.
+- [06:52.120] So, we have prepared in advance that --
+- [06:55.120] if the legislation is passed. But we will stick to the law.
+- [07:00.410] The Press: Something that came up yesterday
+- [07:01.800] also at the cabinet meeting,
+- [07:03.030] President Trump said Oman will behave just like everybody else
+- [07:07.280] or we will have to blow them up.
+- [07:09.630] Are you guys back there in the West Wing
+- [07:11.040] making plans for a new war with Oman?
+- [07:14.580] Secretary Bessent: Again, I think the president
+- [07:16.320] wanted to punctuate freedom of navigation in the strait.
+- [07:20.480] I had a call with the Omani ambassador this morning,
+- [07:23.790] and he assured me that there were no plans
+- [07:26.390] for tolling the strait.
+- [07:28.440] As he said, our countries have had 200 years of good relations.
+- [07:31.720] He wants to have another 200 more.
+- [07:34.150] And I told him that this was a nonstarter.
+- [07:38.010] And he did not want to risk either the Omani individuals
+- [07:42.290] or Omani financial institutions getting sanctioned.
+- [07:45.710] Yes, please.
+- [07:48.670] The Press: Thank you, Mr. Secretary.
+- [07:50.110] Is it in the US interest to waive some sanctions on Iran
+- [07:54.100] or to unfreeze some of their assets
+- [07:56.340] before Iran has made concrete promises
+- [08:00.300] about getting rid of their nuclear program?
+- [08:02.650] Secretary Bessent: Again, I'm not going
+- [08:03.930] to preview the deal. But I would think that the --
+- [08:07.830] things would go very slowly the -- in terms of that.
+- [08:11.510] So, you know, we'll see. Right. Justine?
+- [08:15.660] The Press: Just to follow up on that,
+- [08:16.890] because it's our understanding that the US has committed
+- [08:19.100] to discussing the matter of sanctions relief
+- [08:21.080] during this negotiation period. So, just to be clear,
+- [08:23.620] is sanctions relief for Iran on the table?
+- [08:26.930] Secretary Bessent: Again, it is a multifaceted agreement,
+- [08:30.450] and nothing is going to be on the table
+- [08:33.790] until we see the Strait of Hormuz open
+- [08:36.540] and the Iranians agree that the --
+- [08:40.660] they have to turn over the -- the highly enriched uranium
+- [08:44.410] and that they can't have a nuclear program.
+- [08:46.490] And -- and to be clear here, that this administration --
+- [08:51.070] President Trump has done something
+- [08:52.460] that no other administration is able to do.
+- [08:55.190] We have gotten the Iranians to talk about their nuclear program
+- [08:58.790] and to perhaps commit to not having one.
+- [09:01.530] That has never happened before. It had been off the table.
+- [09:04.810] So, I think when you look at the results of the kinetic action,
+- [09:08.230] of our economic pressure,
+- [09:09.620] it has worked to bring them to the table
+- [09:11.700] and have a discussion on this.
+- [09:14.300] The Press: Mr. Secretary, I just want to follow up.
+- [09:16.430] You said that the teams have been going back and forth.
+- [09:19.910] But can you confirm whether or not a tentative agreement
+- [09:22.550] has been reached in these negotiations with Iran?
+- [09:26.190] Secretary Bessent: Again, everything depends
+- [09:27.910] on what the president wants to do.
+- [09:30.590] And President Trump is not going to make a bad deal
+- [09:33.450] for the American people, for the US.
+- [09:37.040] And he was very clear at the cabinet meeting on the --
+- [09:40.860] yesterday what he wants. Yep.
+- [09:45.800] The Press: Doctor, you -- Carol from LindellTV. I'm sorry.
+- [09:49.470] Did I steal this question? Because I'm not that person.
+- [09:51.330] Secretary Bessent: That was you.
+- [09:52.530] The Press: Ok. Thank you so much.
+- [09:54.360] Thank you for taking my question.
+- [09:55.580] Carol from LindellTV.
+- [09:57.000] I really want to get your thoughts on digital currency.
+- [09:59.080] A lot of our viewers are increasingly worried
+- [10:01.450] that digital currency
+- [10:02.690] could one day be used to track people's
+- [10:04.630] spending or limit personal freedom.
+- [10:07.140] What's your philosophy on that?
+- [10:08.630] And what safeguards is the Treasury
+- [10:10.750] and this administration putting in place
+- [10:12.650] to make sure new digital payment systems
+- [10:14.480] protect Americans' privacy and freedoms in the future?
+- [10:17.370] Secretary Bessent: Well, so this administration
+- [10:18.810] has been very clear
+- [10:20.030] there will be no central bank digital currency,
+- [10:22.070] which I think the -- is --
+- [10:24.790] would be the first step toward tracking.
+- [10:26.620] So, we have taken that off the table.
+- [10:28.450] We've passed stablecoin legislation with --
+- [10:30.700] bipartisan, and the CLARITY Act is now up on the Hill,
+- [10:34.350] and I think it has bipartisan support.
+- [10:36.770] And the most important thing we can do
+- [10:39.190] is to make digital assets come into the United States,
+- [10:43.750] make the US the home.
+- [10:46.000] Our regulation, our best practices
+- [10:49.200] are what will ensure good standards for these.
+- [10:52.130] When you look at digital assets, all the nonsense that happens,
+- [10:55.250] all the things you read about,
+- [10:57.090] that's because it's the wild, wild west offshore.
+- [10:59.510] So, we got to bring it onshore.
+- [11:01.140] So, I would encourage the House and the Senate to get CLARITY
+- [11:04.870] done. Jack?
+- [11:07.950] The Press: Dr. Bessent,
+- [11:11.670] a lot of people talking about the IRS settlement and --
+- [11:15.970] which has been rolled over now into this weaponization fund
+- [11:19.960] over at DOJ.
+- [11:21.390] Wanted to get your comment on the decision process,
+- [11:24.820] as much as you can tell, how that settlement came to be,
+- [11:27.670] how it was rolled over to DOJ, and then the process for how --
+- [11:32.000] for those funds now as it's played out.
+- [11:33.910] Secretary Bessent: Good. So, thank you.
+- [11:35.170] Thank you for the question.
+- [11:36.500] This is going to be the only question
+- [11:37.860] I'll take on this matter today. So, there's ongoing litigation,
+- [11:41.500] so it'd be inappropriate for me to comment.
+- [11:44.230] President Trump is a great American
+- [11:46.530] who has endured more than ten years,
+- [11:48.560] ten years of nonstop harassment and weaponization from the --
+- [11:52.250] federal and state government actors.
+- [11:54.540] The -- a bad actor at the IRS
+- [11:57.570] leaked more than 400,000 tax returns,
+- [12:00.380] including the Trump family, all the employees,
+- [12:04.380] and that's how we got here now.
+- [12:06.050] No American should be targeted for political reasons,
+- [12:08.630] and every citizen deserves fair treatment
+- [12:10.730] and full protection of the law.
+- [12:12.420] The Department of Justice represented Treasury
+- [12:15.460] and the IRS in this matter,
+- [12:17.230] and I'm going to have to refer any questions
+- [12:19.410] to Acting Attorney General Todd Blanche.
+- [12:26.420] The Press: Thanks. So, President Trump has said
+- [12:28.540] that we can expect interest rates
+- [12:30.040] to come down very quickly a number of times
+- [12:31.980] in the last week,
+- [12:33.310] but the market at the moment does --
+- [12:35.690] probably does not expect any rate cuts this year.
+- [12:37.830] You know, JP Morgan said this, Morgan Stanley and so on.
+- [12:41.410] So, who is right, the president or the market?
+- [12:45.970] Secretary Bessent: Well, I think -- again, I --
+- [12:48.530] I believe that we will get -- get through the --
+- [12:52.490] this challenging period now the -- on higher prices.
+- [12:56.020] On the other side of this, I've said publicly
+- [12:58.610] that I think we'll be back to substantial disinflation.
+- [13:01.680] But most importantly, I think we've got the Warsh Fed now.
+- [13:06.240] It's a new day at the Fed.
+- [13:08.020] The Treasury secretary and the Fed chair
+- [13:10.570] have lunch or breakfast every week.
+- [13:12.580] I had my first breakfast with Chair Warsh this morning,
+- [13:15.710] and I believe that he will do the right thing
+- [13:18.430] to balance inflation and growth. Yep.
+- [13:25.220] The Press: Thank you. Thank you, Secretary Bessent.
+- [13:27.750] I hope you were calling on me.
+- [13:29.130] Secretary Bessent: Yes.
+- [13:30.380] The Press: So, I -- I'd like to ask you
+- [13:31.950] if you could provide a little more detail
+- [13:33.430] on what you're doing to shut down Iran's airlines.
+- [13:36.330] And also, on sanctions relief,
+- [13:38.090] a senior administration official briefed reporters
+- [13:40.560] over the weekend that sanctions relief
+- [13:42.790] will be commensurate with nuclear concessions.
+- [13:45.520] But at some point, if the enriched uranium is given up,
+- [13:48.740] should we expect pallets of cash to be flown to Iran?
+- [13:51.300] Could you describe how that looks?
+- [13:52.630] Secretary Bessent: Well, a -- a couple of things.
+- [13:55.030] On -- on the airlines, one --
+- [13:56.520] one thing that we're not going to do
+- [13:58.300] is restrict movement for religious reasons.
+- [14:01.170] So, Iranians who want to make the pilgrimage the --
+- [14:05.030] to Mecca and Medina will be allowed.
+- [14:07.130] We will also allow valid humanitarian reasons.
+- [14:10.990] But the -- the other thing we can do is that,
+- [14:13.780] when these airlines fly, they have to be refueled.
+- [14:16.040] They sell tickets. They pay landing fees.
+- [14:18.510] Anyone who accepts those we will sanction.
+- [14:21.270] So, they should be very clear
+- [14:23.510] that the state-owned Iranian airlines,
+- [14:26.170] they are outlaws and cannot do this.
+- [14:29.400] The Press: Thank you, Mr. Secretary.
+- [14:33.980] Since you're the white House briefer today,
+- [14:36.290] I know you've been asked this already,
+- [14:37.880] but I'm wondering if you can just confirm on the record
+- [14:40.820] that there is a tentative deal that has been agreed
+- [14:43.420] for a 60 day extension of the ceasefire
+- [14:45.770] and then a continuation of nuclear talks.
+- [14:48.510] Secretary Bessent: Again, it's always a mistake
+- [14:50.150] to get out ahead of the president.
+- [14:52.190] So, it is all going to be the president's decision.
+- [14:55.360] I think that we -- we can see that the president
+- [14:58.760] very clearly stated out -- stated his three --
+- [15:03.000] the open the strait, highly enriched uranium,
+- [15:06.810] no nuclear program. So -- Yeah.
+- [15:12.100] The Press: Are those things part of the --
+- [15:13.740] the temporary deal right now, sir?
+- [15:16.080] Are those three aspects that you just outlined
+- [15:18.010] part of the temporary deal that has been agreed?
+- [15:20.400] Secretary Bessent: That --
+- [15:21.660] if there can be no deal without those,
+- [15:23.970] why would there be a deal without those?
+- [15:26.040] The Press: Mr. Secretary,
+- [15:27.330] thank you so much for taking the time.
+- [15:30.820] President Trump at the cabinet meeting
+- [15:32.670] said he thought that reducing fraud
+- [15:34.330] would help to balance the budget.
+- [15:36.320] You put out the goal of getting the deficit to 3 percent of GDP.
+- [15:41.960] What's your timeline for achieving that?
+- [15:43.960] And how do you think the --
+- [15:45.840] what can you say to make the market,
+- [15:47.580] given where rates are, like kind of process
+- [15:49.770] kind of what your plan and agenda is?
+- [15:51.430] Secretary Bessent: Well, the GAO numbers, not my numbers,
+- [15:54.180] believe that there's about $500 billion a year of fraud.
+- [15:57.300] So, could we very quickly get $250 billion of that --
+- [16:02.960] the budget deficit is approximately $1.8 trillion,
+- [16:07.030] so that would reduce the deficit substantially.
+- [16:10.910] If we could get that $500 billion number,
+- [16:13.280] you know, I think it would engender confidence.
+- [16:15.730] You'd probably also go into a virtuous cycle
+- [16:19.230] as the budget deficit narrowed, interest rates would go down.
+- [16:23.400] No one reports it, but last year
+- [16:26.040] we actually had a fiscal contraction.
+- [16:28.590] Just to remind everyone,
+- [16:29.930] we inherited the worst budget deficit in history --
+- [16:33.570] in history when we were not in a recession or not at war,
+- [16:37.620] 6.7 percent.
+- [16:39.430] We brought that down to about 5.5 or 5.4 percent this year,
+- [16:43.670] I think we can stay on a good trajectory.
+- [16:49.250] The Press: Mr. Secretary, without an executive order,
+- [16:51.850] does the US government have adequate defenses in place
+- [16:54.820] to address the risk created by Anthropic's new AI models?
+- [17:00.300] Secretary Bessent: We have great collaboration
+- [17:02.000] between all of the labs that have the large language models,
+- [17:05.580] but between the US government and the labs.
+- [17:11.690] The Press: Thank you, Mr. Secretary. Is it me?
+- [17:13.530] OK, thank you, Mr. Secretary, appreciate it.
+- [17:16.970] First, did you speak with the president before this briefing?
+- [17:19.750] Did he show any willingness to this 60-day ceasefire extension?
+- [17:24.130] Secretary Bessent: I didn't see the president today.
+- [17:25.580] The Press: I just want to follow up.
+- [17:27.270] When can Americans, the average American --
+- [17:29.380] and can the US economy work for the average American
+- [17:32.580] without a deal with Iran?
+- [17:35.690] Secretary Bessent: Again, I believe we've already seen
+- [17:38.100] oil prices come down substantially.
+- [17:42.330] We are pumping more oil than we've ever seen before.
+- [17:46.240] And I as I said, these are short-term challenges
+- [17:50.540] that we will get over, and I think we'll move forward.
+- [17:53.280] In the white.
+- [17:54.610] The Press: Mr. Secretary, just to follow up.
+- [17:56.990] Secretary Bessent: No, no, in the white.
+- [17:58.320] The Press: Thank you, Mr. Secretary, appreciate it.
+- [18:00.240] Given how much this upcoming midterm election
+- [18:03.580] will hinge on the economy,
+- [18:05.260] what did you think about President Trump's comments
+- [18:07.280] in the cabinet meeting yesterday
+- [18:09.200] saying he didn't care about the midterms?
+- [18:12.550] Secretary Bessent: So, you're calling President Trump
+- [18:13.970] a statesman.
+- [18:15.880] You're saying that he is taking a statesman like position,
+- [18:19.130] that he has a core belief,
+- [18:22.920] and he believes that the most important thing
+- [18:25.730] is for Iran never to have a nuclear weapon.
+- [18:28.790] So, I believe both things can be true,
+- [18:33.330] that we can do well in the midterms,
+- [18:35.880] that we perhaps have the makings of a deal here.
+- [18:41.080] And I believe that -- and look, the economy,
+- [18:45.750] it is challenging now, but unemployment is still low,
+- [18:52.210] tax refunds were high and consumer
+- [18:54.990] spending is still quite high.
+- [18:56.810] So, in my private business over the years,
+- [18:59.780] I always looked at what were consumers doing,
+- [19:02.780] not what they were saying
+- [19:04.120] and I'm in constant contact with the banks.
+- [19:07.460] And every income quintile is still doing well.
+- [19:14.360] The Press: Thank you, Mr. Secretary.
+- [19:15.670] On the $250 bill, Mr. Secretary,
+- [19:19.440] you said the legalities of it are up on Capitol Hill,
+- [19:22.050] but I just wonder what your opinion is personally.
+- [19:24.380] Do you think it's a good idea for the president
+- [19:26.710] to put his face on American bills?
+- [19:28.270] Secretary Bessent: Again, the president doesn't do it,
+- [19:29.680] the House and the Senate have to do it.
+- [19:37.460] The Press: Secretary Bessent,
+- [19:38.820] what are the remaining assurances
+- [19:41.040] that President Trump needs to see in order for him
+- [19:44.150] to sign off on the agreement with Iran?
+- [19:48.340] Secretary Bessent: I don't think it could be clear.
+- [19:51.930] Yes.
+- [19:54.330] The Press: You're following in the footsteps,
+- [19:55.930] the podium there, of Secretary Rubio and Vice President Vance.
+- [19:59.750] There's been quite a lot of talk
+- [20:01.040] about their possible presidential ambitions.
+- [20:04.140] Does your presence here today indicate
+- [20:05.570] that we might see you running in 2028?
+- [20:07.830] Secretary Bessent: No, I think it just means
+- [20:09.350] they've run out of things on the food chain.
+- [20:13.240] The Press: Secretary Bessent, there has been some back
+- [20:15.410] and forth over the last several days
+- [20:16.720] and also with the US attacking Iranian drones yesterday.
+- [20:21.110] This morning, CENTCOM put out a statement
+- [20:23.020] that Iran had launched a ballistic missile towards
+- [20:25.090] Kuwait, calling it an egregious ceasefire violation.
+- [20:28.770] How can the administration still argue
+- [20:30.550] that a ceasefire is in effect?
+- [20:33.120] Secretary Bessent: Again, with the Iranian government
+- [20:36.720] we did not have regime change, but we changed the regime.
+- [20:40.390] As President Trump said at the cabinet meeting,
+- [20:42.730] as we've said other times,
+- [20:44.950] the first layer of leadership was eliminated,
+- [20:48.830] the second layer, and we're now at the third layer.
+- [20:51.670] And the way to think about it is the Iranian government,
+- [20:54.670] such as it is, is three pillars.
+- [20:57.730] It is the elected government, it is the IRGC,
+- [21:01.820] and it is the clerics,
+- [21:03.120] and they are having trouble communicating.
+- [21:05.570] So, we are being patient.
+- [21:09.750] We do not have unlimited patience.
+- [21:11.730] President Trump always prefers a peace deal.
+- [21:14.400] So, everything we have done thus far has been defensive
+- [21:18.280] and, at present, that is what we will continue doing.
+- [21:21.710] But if President Trump doesn't think he can get a peace deal,
+- [21:24.070] then kinetic is back
+- [21:29.940] The Press: Thank you, Mr. Secretary.
+- [21:31.750] Are you hopeful that the oil prices will go down
+- [21:34.990] once this conflict is over
+- [21:36.840] given the fact that the Strait of Hormuz remains closed,
+- [21:39.600] and by the time this oil gets to the major markets,
+- [21:42.300] could be two or three months?
+- [21:45.050] Secretary Bessent: Again, we see that the market,
+- [21:48.120] I believe, is very well supplied right now,
+- [21:50.480] the market seems to be going into balance for itself.
+- [21:54.230] So, I think that as the strait opens up,
+- [21:57.840] we're going to see this burst of ships come out.
+- [22:00.270] So, we may actually see how quickly can it be refined,
+- [22:04.050] how quickly can it get to its destination?
+- [22:10.040] The Press: Elina Shirazi from the Daily Mail.
+- [22:11.760] You wrote resilience on your cabinet note meetings.
+- [22:14.640] Several times a photographer zoomed into it.
+- [22:17.040] Are you trying to keep the president calm?
+- [22:19.070] Are you trying to keep yourself calm?
+- [22:20.790] Why did you write all those notes?
+- [22:22.520] Secretary Bessent: So, people could look over my shoulder,
+- [22:24.020] photograph them, and think they got a scoop?
+- [22:29.920] The Press: Is the United States
+- [22:31.370] considering a reconstruction program for Iran
+- [22:34.720] if a deal is signed?
+- [22:36.500] Secretary Bessent: Again, I think
+- [22:38.280] we've got to get to the deal before we get to the other side,
+- [22:41.950] before we get to the -- you in the pink.
+- [22:44.830] The Press: In the red?
+- [22:46.040] Secretary Bessent: No, in the pink.
+- [22:47.250] The Press: In the pink. Thank you.
+- [22:48.470] Cristina Londono with Telemundo Network.
+- [22:50.690] Mr. Secretary, how effective do you believe
+- [22:53.580] the current Treasury restrictions have been
+- [22:56.060] in pressuring the Cuban government?
+- [22:58.590] And also, if you're in the room when those talks are being held,
+- [23:02.220] are there any plans to either tighten the sanctions
+- [23:05.450] or to ease the sanctions against the Cuban government
+- [23:08.150] to get some type of change?
+- [23:09.930] Secretary Bessent: Again, that's going to be up to --
+- [23:11.610] that's going to be up to the Cuban government,
+- [23:13.550] that they can go up, they can go down.
+- [23:16.340] We've tried to get humanitarian aid in,
+- [23:19.010] and the regime rejected it
+- [23:22.780] because they wanted to go through their corrupt system.
+- [23:26.210] So, they could go up, they could go down, it's carrot and stick.
+- [23:31.520] Secretary Rubio is doing a fantastic job
+- [23:34.460] of managing this process and we at Treasury
+- [23:38.010] are working with him. In the red.
+- [23:41.860] The Press: Thank you.
+- [23:43.140] Reagan Reese with the Daily Caller.
+- [23:44.470] I want to ask you about Antifa.
+- [23:46.500] In October, the Treasury Department
+- [23:48.010] started working with the FBI
+- [23:49.570] to investigate who's funding Antifa.
+- [23:52.200] Can you give us an update on that investigation?
+- [23:55.100] How close are you guys to finding out who's funding it?
+- [23:58.320] Secretary Bessent: It is ongoing;
+- [23:59.520] we've made substantial progress,
+- [24:01.070] and I think in the weeks and months ahead,
+- [24:03.430] we're going to have a lot to report.
+- [24:05.660] One thing that did go the underreported
+- [24:08.150] that I would point out to all of you is the IRS
+- [24:10.830] is now giving guidance on the Form 990,
+- [24:15.270] which nonprofits -- they have to file.
+- [24:18.290] And we are going to encourage or demand
+- [24:22.680] that nonprofits know their grant recipients.
+- [24:27.300] So, if a grant recipient is violent,
+- [24:30.850] the if they are suppressing people's rights,
+- [24:34.020] then you are responsible for that
+- [24:36.570] and I think that's a very good first step.
+- [24:42.510] The Press: There is new government data that shows
+- [24:44.420] that Americans are now saving a smaller share of their incomes
+- [24:47.690] than at any time over the past four years.
+- [24:49.680] Are you seeing signs that American households
+- [24:52.210] are dipping into their savings to pay
+- [24:53.930] for the higher costs of things like gas and groceries?
+- [24:56.850] And does data like that concern you right now?
+- [24:59.590] Secretary Bessent: So, academic literature would tell you
+- [25:02.450] a lower savings rate can mean one of two things:
+- [25:06.460] kind of the doom review that you took
+- [25:08.380] or that people have more confidence,
+- [25:10.580] or it could be something else.
+- [25:13.060] Because, for instance, stock market gains or 401(k) gains
+- [25:17.900] might not show up in savings so they're looking at that,
+- [25:20.680] think that they can draw down their household savings.
+- [25:27.910] The Press: You're obviously concerned about the risks
+- [25:30.270] posed by advanced AI models like
+- [25:32.670] (Inaudible) two critical infrastructure.
+- [25:34.400] The financial sector is concerned as well.
+- [25:37.000] What types of changes are being considered
+- [25:40.280] to the AI executive order so it could pass?
+- [25:42.890] And do you believe that an AI executive order
+- [25:45.380] needs to include the pre public access for government?
+- [25:49.840] Secretary Bessent: Again, we're working very closely
+- [25:52.340] with the large language labs. They've been excellent partners
+- [25:57.060] and we are going to get a solution
+- [25:59.720] that solves for the maximum calculus.
+- [26:02.000] What we want to do --
+- [26:03.490] the US is the AI leader in the world;
+- [26:06.110] we're an AI superpower.
+- [26:07.650] China is second, they are trailing substantially.
+- [26:10.810] We want to make sure that we keep that lead.
+- [26:13.030] So, we are working on the exact calculus
+- [26:15.620] between innovation and safety,
+- [26:18.740] and we want to optimize for that.
+- [26:21.790] So, you and the glasses.
+- [26:31.310] No, you don't have glasses on, you don't have glasses.
+- [26:34.150] The Press: Thank you for taking my question.
+- [26:35.800] There was a report this morning that Justice Alito's son
+- [26:39.180] is working in your department.
+- [26:41.280] Can you confirm that that's the case?
+- [26:42.700] And if so, do you believe that that means that he should be --
+- [26:47.010] that the justice should recuse himself
+- [26:48.570] from cases that involve your department?
+- [26:51.430] Secretary Bessent: I am sure that Mr. Alito
+- [26:52.840] follows all legal and ethical guidelines.
+- [26:54.980] And I can assure you that at Treasury,
+- [26:57.010] we follow all the legal and ethical guidelines.
+- [27:00.690] The Press: Thank you, Mr. Secretary,
+- [27:02.030] I have two questions for you.
+- [27:03.260] But just to follow on what you said about the --
+- [27:04.590] Secretary Bessent: You didn't call me doctor,
+- [27:05.790] so you'll only get one.
+- [27:07.000] The Press: Well, I'll shoot for two.
+- [27:10.020] You said that it's up to Congress
+- [27:11.420] if the president's face is on a $250 bill.
+- [27:13.800] But it is actually the Washington Post
+- [27:15.340] that's reporting two political appointees
+- [27:16.910] from the Treasury Department
+- [27:18.410] who have asked agencies to be ready to do that.
+- [27:21.330] Do you think politically it's a good idea
+- [27:22.980] to put his face on a $250 bill
+- [27:25.290] when people are struggling to afford gas and groceries?
+- [27:27.660] Secretary Bessent: Again, I don't really understand
+- [27:29.090] this Washington Post article that --
+- [27:31.350] who here is from the Post?
+- [27:32.810] Yeah, terribly written, terribly edited.
+- [27:35.140] Because basically what it says is that
+- [27:38.360] Treasury is following the law
+- [27:40.430] and that we created the bill and that it's up to Congress,
+- [27:43.680] but that we follow the bill and it's up to --
+- [27:45.690] I didn't really understand what the story was, but anyway.
+- [27:47.770] The Press: (Inaudible)
+- [27:48.970] appointees aren't involved in that,
+- [27:50.380] two of your political appointees?
+- [27:51.590] Secretary Bessent: Yeah, of course,
+- [27:52.850] but we prepare for everything if it gets passed.
+- [27:55.760] Just like we were ready six months in advance
+- [27:58.260] for the One Big, Beautiful Bill for tax guidance.
+- [28:01.240] So, we have to prepare in advance;
+- [28:03.720] you can't draw something up the day before.
+- [28:05.340] The Press: Politically do you think
+- [28:06.570] it's a good idea, though,
+- [28:07.820] when people are struggling to afford gas and groceries?
+- [28:10.080] Secretary Bessent: Look, I think it has --
+- [28:11.650] I think that it's bifurcated.
+- [28:14.200] Do you think we should have a 250th anniversary celebration?
+- [28:19.120] The Press: Well, that's happening anyway,
+- [28:20.450] but putting the president's face on a $250 bill is a choice.
+- [28:22.400] Secretary Bessent: No, no, no, no,
+- [28:23.620] but, Caitlin, it's not happening anyway,
+- [28:25.050] it's happening because it's being funded
+- [28:27.970] by private citizens,
+- [28:29.170] by the federal government, by state governments,
+- [28:30.880] by municipal governments to celebrate our country.
+- [28:33.690] And I don't think that there's anything untoward
+- [28:37.320] about having the president of the United States,
+- [28:39.400] the person who was president of the United States
+- [28:41.470] on the 250th anniversary bill.
+- [28:53.650] The Press: On Russia sanctions --
+- [28:54.900] What you just commented on there, Mr. Secretary,
+- [28:56.720] about the $1.8 billion fund.
+- [28:58.400] Is it accurate that the general counsel
+- [28:59.900] of the Treasury Department resigned over that?
+- [29:02.670] Secretary Bessent: I will not be taking any other questions
+- [29:04.660] means I will not be taking any other questions.
+- [29:08.200] The Press: Sir, given the scale of the assault from Russia
+- [29:11.880] on Kyiv in recent days,
+- [29:13.390] and the fact that diplomacy seems to have settled down,
+- [29:17.450] there are no diplomatic talks happening
+- [29:19.200] right now between Russia, Ukraine or the US.
+- [29:21.300] What about sanctions?
+- [29:22.510] Is the US considering sanctions on Russia at this time?
+- [29:26.460] Secretary Bessent: Well, the US --
+- [29:27.700] this administration has put the hardest sanctions
+- [29:30.350] on Russia of any country.
+- [29:32.730] So, let's review what how the sanctions regime has gone
+- [29:39.930] since the Russian action on Ukraine.
+- [29:44.630] The Biden administration put on very,
+- [29:48.030] what I would call, mild sanctions
+- [29:50.130] because they were worried about gasoline prices
+- [29:52.840] going up into an election.
+- [29:54.580] It would be unstatesmanlike sanctions
+- [29:58.260] that probably the worst national security adviser
+- [30:00.600] in the history of the country, Jake Sullivan,
+- [30:02.660] in an act of bravery on his way out the door in January,
+- [30:07.560] raised the sanction level
+- [30:09.090] the on behalf of the Trump administration,
+- [30:12.110] we let those in situ when we took office.
+- [30:16.700] Fast forward to October,
+- [30:18.910] and President Trump instructed me
+- [30:21.660] to sanction the two largest Russian oil companies,
+- [30:25.470] Lukoil and Rosneft, which we did.
+- [30:28.500] No other government has done that.
+- [30:30.850] So, no one has done more sanctions
+- [30:33.490] than the Trump administration on Russian oil.
+- [30:42.250] Yeah, no, yeah, no, no, here. Who wants to own this?
+- [30:50.050] Gray hair? No. Gray hair.
+- [30:53.280] No, you don't have gray hair. Well, maybe you do.
+- [30:58.250] The Press: Thank you, Mr. Secretary.
+- [31:00.840] When you have breakfast this morning with the Fed Chair,
+- [31:03.990] did you request that the fed lower interest rates?
+- [31:06.930] Secretary Bessent: I had breakfast
+- [31:08.190] with Chair Powell 41 times, and I never did that.
+- [31:15.080] OK, last question.
+- [31:19.000] The Press: Governor Gavin Newsom has floated this idea
+- [31:21.580] of a 100 percent state tax on Californians
+- [31:24.050] who receive money from President Trump's anti-weaponization fund.
+- [31:28.070] Your response to the governor's call for
+- [31:29.740] (Inaudible) tax?
+- [31:31.010] Secretary Bessent: There's no cure for stupid.
+- [31:35.740] Okay, thank you all.

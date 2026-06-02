@@ -1,0 +1,394 @@
+<!-- source: https://www.youtube.com/watch?v=B9jKFpRokJ4 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: B9jKFpRokJ4 -->
+<!-- date_published: 2025-06-18T20:32:22+00:00 -->
+<!-- date_accessed: 2026-06-02T01:23:46.904151+00:00 -->
+
+# Transcript: President Trump Meets with the Juventus Football Club
+
+- [00:00.520] The President: Thank you very much.
+- [00:01.730] We have a great team behind us.
+- [00:03.050] Juventus of Italy and a friend of mine is the owner of the team
+- [00:07.890] He's a fantastic businessperson, a young guy
+- [00:11.470] And I think it's got the longest string of ownership
+- [00:13.810] of just about any sports franchise,
+- [00:15.720] but it does have the record in soccer.
+- [00:17.980] That's John Elkann, I think you know John
+- [00:21.580] Elkann is a man that has done a fantastic job
+- [00:26.320] in the automobile industry, comes from a lineage of winners.
+- [00:30.270] And you have Gianni Infantino, as you know,
+- [00:32.520] and he's going to have the World Cup here.
+- [00:34.240] We have a game tonight. The game is -- where is it?
+- [00:37.840] Over in D.C. -- the stadium.
+- [00:40.230] And it's totally sold out, I hope, right?
+- [00:42.030] Okay, good.
+- [00:43.290] Well, and you have two great American players on this team.
+- [00:47.310] And would you just -- where are you, my American players?
+- [00:50.640] Oh, we're here. They're fantastic.
+- [00:52.240] So, good luck.
+- [00:53.750] I hope you're going to be the two best players on the field.
+- [00:57.510] Well, I just so I just thought you might want to ask questions,
+- [01:00.170] anything about the World Cup or the game tonight.
+- [01:02.840] But anything about the World Cup would be great
+- [01:04.740] and Johnny's right here. So anybody have any questions?
+- [01:08.630] And I hope you like the --
+- [01:10.360] well, I'm a little you know, I -- he's a friend of mine.
+- [01:13.210] It's hard to go against him to be honest with you,
+- [01:15.770] but they have a good team. Who are you playing tonight?
+- [01:18.290] Male Speaker: We're playing against the Emirate team.
+- [01:21.280] The President: Oh, that's good.
+- [01:24.370] Well, they spend a lot of money, right?
+- [01:26.240] They pay a lot money, yeah, that's probably --
+- [01:28.440] is it a strong team, a good team tonight?
+- [01:30.890] Male Speaker: All teams are good.
+- [01:32.160] It's the best teams in the world who are here in America.
+- [01:33.810] The President: Right, Johnny, you think?
+- [01:35.010] Male Speaker: The best teams in the world are here.
+- [01:36.540] The President: They're all good.
+- [01:37.830] Well, we raised the American flag for you guys today.
+- [01:40.710] It looks nice out there, doesn't it?
+- [01:43.070] Beautiful. Even you agree, right?
+- [01:45.610] I think so. Do you agree now? Most of you agree.
+- [01:50.790] So, do you have any questions, please?
+- [01:52.790] The Press: Do you know the latest on the evacuations
+- [01:54.240] out of Israel, Mr. President?
+- [01:55.580] The President: No.
+- [01:56.830] No, we're having a meeting in an hour.
+- [01:58.670] We have a meeting downstairs in one hour. Yep.
+- [02:01.010] The Press: Mr. President, on Iran,
+- [02:03.270] if regime change does happen, if the regime falls,
+- [02:06.750] do you have a plan for what you think would happen?
+- [02:09.840] The President: I have a plan for everything,
+- [02:11.190] but we'll see what happens. Got a ways to go.
+- [02:14.280] They should have, look, they should have made the deal.
+- [02:16.120] I had a great deal for them. They should've made that deal.
+- [02:18.830] 60 days, we talked about it,
+- [02:20.330] and in the end, they decided not to do it.
+- [02:23.440] And now they wish they did it. And they want to meet,
+- [02:26.750] but it's, you know, it's a little late to meet.
+- [02:28.660] But they want meet, and they want come to the White House.
+- [02:31.290] They'll even come to White House.
+- [02:32.540] So we'll see. I may do that. But it's a shame it wasn't --
+- [02:37.390] could have been done the easy way.
+- [02:39.140] The Press: Do you think the regime there could fall?
+- [02:41.630] The President: Sure, anything could happen, right?
+- [02:44.330] Sure, that could happen.
+- [02:46.540] Yeah, please.
+- [02:48.200] The Press: The Senate Judiciary Committee
+- [02:49.550] is holding a hearing on who exactly was running
+- [02:51.330] the White House under Joe Biden. Who do you think that was?
+- [02:54.510] The President: I think the auto pen ran the White House.
+- [02:57.370] You know, we have an auto pen president before me.
+- [03:00.390] I think it's one of the greatest scandals
+- [03:03.460] in the history of this country, one of biggest scandals.
+- [03:07.580] He wasn't making a decision. He was never for open borders,
+- [03:10.940] where people came in from all over the world,
+- [03:13.480] from prisons and gangs and drug dealers
+- [03:16.160] and all of that, mentally -- the mentally insane.
+- [03:19.980] He was not for that. He was for open borders.
+- [03:22.790] And he was never, if you think,
+- [03:24.110] he was for transgender for everybody,
+- [03:27.070] or men playing in women's sports.
+- [03:31.130] You know, have you ever had women --
+- [03:33.850] could a woman make your team, fellas?
+- [03:35.520] Tell me, you think? You're being nice.
+- [03:39.710] What do you think, think a woman could make the team?
+- [03:42.470] General managers, what do you?
+- [03:46.210] The Press: We have a very quick women's team, though.
+- [03:47.980] The President: You do have, right.
+- [03:49.910] But they should be playing with women, don't they?
+- [03:51.980] You know, it's one of those things, one of the things.
+- [03:54.920] See, they're very diplomatic.
+- [03:56.800] The Press: In making your decision on Iran,
+- [03:59.470] obviously there's been a change from
+- [04:00.840] when you were pursuing a diplomatic negotiation
+- [04:02.580] now (inaudible)
+- [04:03.850] very open to the idea of potentially taking U.S. action.
+- [04:06.670] Obviously, you're not going to tell us that.
+- [04:08.280] Can you walk us through what contributed to that change,
+- [04:11.060] how you got to where you are and making your decision now?
+- [04:13.980] The President: Well, I think it started the first night.
+- [04:15.880] I mean, you know, that first night was devastating.
+- [04:18.810] And it really knocked the one side off, as you know.
+- [04:23.280] Devastating, a devastating evening, day.
+- [04:27.900] And it pretty much proceeded that way.
+- [04:30.200] I have a meeting in the war room in a little while.
+- [04:34.760] Situation room, as some people call it.
+- [04:37.760] So we're going to meet, we're gonna see.
+- [04:39.700] We're in the midst of a -- it's a terrible thing.
+- [04:41.680] I hate to see it. I hate to see all that death.
+- [04:43.600] So much death and destruction.
+- [04:46.020] But death, primarily. That's what I hate to see.
+- [04:48.750] The Press: Does that mean you haven't made a decision
+- [04:50.300] yet on what to do?
+- [04:52.770] The President: I have ideas as to what to do,
+- [04:54.090] but I haven't made a final.
+- [04:55.290] I like to make the final decision one second
+- [04:57.510] before it's due, you know, because things change.
+- [04:59.470] I mean, especially with war, things change with war.
+- [05:02.210] It can go from one extreme to the other.
+- [05:04.880] War is very bad.
+- [05:07.140] There was no reason for this to be a war.
+- [05:08.680] There was no reason for Russia, Ukraine.
+- [05:11.570] A lot of wars, there was no reasons for.
+- [05:14.430] You look right up there, I don't know,
+- [05:15.750] see the Declaration of Independence,
+- [05:17.700] and I say, I wonder if you, you know,
+- [05:20.830] the Civil War always seemed to me
+- [05:22.930] maybe that could have been solved
+- [05:24.820] without losing 600,000 plus people.
+- [05:28.530] So a lot of -- it's very sad to see,
+- [05:31.780] it was very sad to see what's happening.
+- [05:34.120] But with that being said, I would say right now Israel,
+- [05:38.630] from the standpoint of winning a war,
+- [05:41.310] is doing pretty well. Yeah, please.
+- [05:42.640] The Press: Mr. President, in your meeting today
+- [05:45.630] with the Chief of Staff of (inaudible)
+- [05:47.340] Army, did you talk about Iran? Did that come up?
+- [05:50.160] Yeah. Can you share on that meeting?
+- [05:51.470] The President: Yeah.
+- [05:52.670] Well, they know Iran very well, better than most,
+- [05:56.460] and they're not happy about anything.
+- [06:00.660] It's not that they're bad with Israel.
+- [06:02.780] They know them both, actually, but they probably --
+- [06:05.570] maybe they know Iran better.
+- [06:08.460] But they see what's going on, and he agreed with me.
+- [06:13.430] The reason I had him here, I wanted to thank him
+- [06:15.030] for not going into the war, just, you know, ending the war.
+- [06:18.620] And I want to thank, as you know,
+- [06:24.350] Prime Minister Modi just left.
+- [06:26.040] Just a little while ago, just left,
+- [06:28.050] and we're working a trade deal with India.
+- [06:30.660] We're working in a trade with Pakistan.
+- [06:33.280] And they were both here, but I was with Modi a few weeks ago.
+- [06:36.810] He was here, actually.
+- [06:39.040] But now we speak to him, and I'm so happy.
+- [06:42.350] There was a deal that two smart people.
+- [06:45.530] Plus, you know, they had people on their staff, too.
+- [06:48.010] But two smart people, two very smart people
+- [06:50.390] decided not to keep going with that war.
+- [06:52.030] That could have been a nuclear war.
+- [06:53.330] Those are two nuclear powers. Big ones.
+- [06:56.310] Big, big nuclear powers, and they decided that.
+- [06:59.430] So I was honored to meet him today.
+- [07:01.580] The Press: (inaudible)
+- [07:02.780] how does the travel ban from certain countries
+- [07:09.520] affect the fans coming in for the games
+- [07:12.780] or is that not a consideration?
+- [07:14.780] The President: Johnny, go ahead.
+- [07:16.710] Johnny Elkann: No, it's not a concern for us,
+- [07:20.050] for the games now and the Club World Cup.
+- [07:21.890] Everything has been done in a very smooth way.
+- [07:23.920] We have an excellent, excellent collaboration,
+- [07:26.010] of course, with the President,
+- [07:27.240] but with the task force in particular.
+- [07:29.100] For next year, the World Cup, we have one more year to work,
+- [07:32.760] and the learnings that we have this year
+- [07:34.590] with the Club Word Cup,
+- [07:35.800] which is historic, as it is to all the Americans,
+- [07:38.140] because it's the first ever Club World Cup,
+- [07:40.660] and it's played in the United States of America.
+- [07:43.340] So the learnings we'll have for this,
+- [07:44.680] we'll apply them next year.
+- [07:46.540] The President: And they're largely sold out.
+- [07:47.770] So I don't know.
+- [07:49.240] I don't think I don't think he's too worried about the travel ban
+- [07:52.310] He doesn't know what the travel bin is I don't think.
+- [07:54.360] Johnny, tell me what the Travel Ban is.
+- [07:56.870] He doesn't know what it is. He's largely sold-out.
+- [07:59.670] Like tonight, it's totally -- I've had friends.
+- [08:01.550] They heard about this meeting.
+- [08:03.210] They said can you get me tickets?
+- [08:04.500] I don´t know if I can get tickets.
+- [08:05.720] He won't give them to me.
+- [08:07.000] Maybe John will give him to me. Yeah, please.
+- [08:09.430] Male Speaker: Mr. President, two questions, if I could.
+- [08:11.010] One about Iran and one domestically.
+- [08:13.450] With Iran, what's your message to Americans
+- [08:15.430] both here and abroad who are not only concerned
+- [08:18.050] about the U.S. potentially getting involved
+- [08:20.010] in another conflict in the Middle East,
+- [08:21.450] but worry about the potential for retaliation here at home?
+- [08:23.880] The President: Yeah, well,
+- [08:25.100] I don't want to get involved either,
+- [08:26.430] but I've been saying for 20 years,
+- [08:28.480] maybe longer, that Iran cannot have a nuclear weapon.
+- [08:31.650] I've been saying it for a long time.
+- [08:33.530] And I think they were a few weeks away from having one.
+- [08:36.790] And they had to sign a document.
+- [08:38.800] I think they wished they signed it now.
+- [08:40.370] It was a fair deal.
+- [08:42.380] And now it's a harder thing to sign, you know?
+- [08:44.170] There's a lot of water over the dam.
+- [08:47.560] But, you, know, it's very -- I say it very simply --
+- [08:51.840] Iran can't have a nuclear weapon.
+- [08:54.210] Too much devastation and they'd use it, you know.
+- [08:57.490] I believe they'd used it.
+- [08:58.760] Others won't use it, but I believe they'd use it.
+- [09:01.370] So that's it. It's very simple as far as I'm concerned.
+- [09:04.160] They can't have a nuclear weapon
+- [09:05.530] Male Speaker: And then domestically,
+- [09:06.760] Missouri Senator Josh Hawley
+- [09:08.120] came out this week as the lead sponsor of a bill
+- [09:10.320] to raise the federal minimum wage to $15 an hour.
+- [09:13.360] It stands out because he's a Republican.
+- [09:15.920] There's still 20 states that have it at $7.25.
+- [09:19.270] Do you support the legislation or do you --
+- [09:20.830] The President: Well, I haven't seen it.
+- [09:22.070] I'd have to speak to Josh. He's a very good friend of mine.
+- [09:26.490] That's interesting that Josh did that.
+- [09:28.100] I'm going to have to think about that one.
+- [09:31.990] Some people agree with it. Some people don't.
+- [09:33.920] You know, some people say it really turns away business.
+- [09:37.110] Restaurants close. A lot of things happen.
+- [09:39.200] Other people agree.
+- [09:40.490] I'd have to speak to Josh, he's a good guy.
+- [09:43.170] The Press: Mr. President, (inaudible)
+- [09:46.210] the possibility of an Iran deal,
+- [09:48.110] is the destruction or the dismantling of
+- [09:51.040] (inaudible) nuclear enrichment center,
+- [09:52.710] is that a prerequisite for a deal?
+- [09:54.190] Is that A red line?
+- [09:55.590] The President: No, it's just something that people
+- [09:57.060] talk about having.
+- [09:58.290] We're the only ones that have the capability to do it,
+- [10:00.500] but that doesn't mean I'm going to do at all.
+- [10:03.290] Yeah, we have the best military equipment in the world.
+- [10:05.790] You see that with this fight.
+- [10:08.060] We have planes that are undetectable,
+- [10:09.880] flying around like, you know,
+- [10:12.820] nobody's able to see them stealth.
+- [10:15.170] You guys want to be stealthy tonight.
+- [10:16.830] You know, you can be stealth. You'll never lose, right?
+- [10:19.690] But these are incredible planes and weapons.
+- [10:22.580] We have the best weapons in the whole world.
+- [10:24.960] By far, nobody close and we're --
+- [10:28.300] we're I mean certain countries take advantage of that.
+- [10:32.140] Israel has incredible weaponry, so we'll see what happens.
+- [10:36.490] I have not -- I have been asked about it by everybody,
+- [10:41.080] but I haven't made a decision
+- [10:42.390] The Press: Mr. President, you talked earlier today
+- [10:44.100] about having daily conversations with Prime Minister Netanyahu.
+- [10:49.110] How have those conversations weighed on you
+- [10:52.440] in terms of getting more involved?
+- [10:55.180] You've been lobbying for the U.S. to get more involved.
+- [10:57.770] Has that had an impact in kind of your evolution, sir?
+- [11:01.470] The President: Look, we talk,
+- [11:02.700] and I'd like to see everything done.
+- [11:05.170] I would have preferred having just an agreement,
+- [11:07.780] a strong agreement, you know,
+- [11:09.140] a verifiable agreement.
+- [11:11.720] But it was such a shame. They were so close.
+- [11:15.640] You know, Iran was very close to signing
+- [11:17.330] what would have been a very good agreement for them.
+- [11:19.990] And maybe that could still happen, I guess.
+- [11:22.780] They do want to come and see us.
+- [11:24.000] They want to see me in the White House.
+- [11:25.240] That's a big statement. But it's very late.
+- [11:29.280] The Press: Is it enough of a statement to hold off?
+- [11:32.600] The President: We're going to see what happens.
+- [11:33.810] We're going to see what happens.
+- [11:35.560] Ending it as soon as you can would be good.
+- [11:39.080] The Press: Have you closed the door on meeting with them?
+- [11:40.700] The President: No.
+- [11:41.920] The Press: Okay, so it's still open to them coming here.
+- [11:44.000] The President: Yeah, I mean, they asked if they could come.
+- [11:45.810] We'll see if that happens.
+- [11:47.050] It's not that easy for them to come.
+- [11:48.490] They can't get out.
+- [11:49.790] You know, they're in Iran, and in one case,
+- [11:52.840] the guy wanted to come so badly, but he can't get out
+- [11:55.530] because there's bombs dropping all over the place.
+- [11:57.970] The Press: Have you seen the Tucker Carlson
+- [11:59.750] and Senator Ted Cruz interview? It seems like this issue
+- [12:01.960] on whether or not the United States should strike
+- [12:03.930] is kind of dividing a lot of your supporters.
+- [12:08.020] The President: No, my supporters are for me.
+- [12:10.270] My supporters are America First and Make America Great Again.
+- [12:13.970] My supporters don't want to see Iran have a nuclear weapon.
+- [12:17.690] Tucker's a nice guy.
+- [12:18.910] He called and apologized the other day
+- [12:21.500] because he thought he said things
+- [12:22.850] that were a little bit too strong,
+- [12:25.020] and I appreciated that. And Ted Cruz is a nice guy.
+- [12:27.920] I mean, he's been with me for a long time.
+- [12:29.750] I'd say once the race was over,
+- [12:31.190] he has been with ever since, right?
+- [12:33.410] But Very simple.
+- [12:37.120] If they think that it's okay for Iran to have a nuclear weapon,
+- [12:41.310] then they should oppose me, but nobody thinks it's okay.
+- [12:44.390] People that don't want -- I don't want to fight either.
+- [12:46.550] I'm not looking to fight.
+- [12:48.230] But if it's a choice between fighting
+- [12:50.060] and them having a nuclear weapon,
+- [12:52.740] you have to do what you have do.
+- [12:55.320] Maybe we won't have to fight, don't forget.
+- [12:56.930] We haven't been fighting.
+- [13:00.230] We add a certain amount of genius to everything,
+- [13:02.310] but we haven't been fighting at all.
+- [13:05.620] Israel's done a very good job with that.
+- [13:08.020] But we'll see what happens.
+- [13:10.420] The bottom line is they can't have nuclear.
+- [13:12.700] And if Ted, I can't imagine that Ted Cruz says it's okay
+- [13:15.670] for Iran to have nuclear, including Tucker.
+- [13:18.890] I don't think Tucker says it's okay.
+- [13:20.710] The problem is, then they get themselves into a thing.
+- [13:23.050] They don't want them to have a nuclear,
+- [13:24.560] but then they say, well, we don't want to fight.
+- [13:27.030] Well, you're going to have to make a choice,
+- [13:28.540] because it's possible that you're going to fight for them
+- [13:31.090] not to have nuclear.
+- [13:32.800] And it's interesting, because I did ask Tucker.
+- [13:35.330] I said, well are you okay with nuclear weapons
+- [13:39.380] being in the hands of Iran? And he sort of didn't like that.
+- [13:42.780] He didn't want to really to -- but he sort didn't like that.
+- [13:45.630] And I said well, if it's okay with you,
+- [13:48.920] then you and I do have a difference.
+- [13:51.410] But it's really not okay with him.
+- [13:54.140] Therefore, you may have to fight, and maybe it'll end.
+- [13:56.880] And maybe it will end very quickly.
+- [13:59.220] But there's no way that you can allow,
+- [14:01.110] whether you have to fight or not,
+- [14:02.810] you can allow Iran to have a nuclear weapon
+- [14:04.940] because the entire world will blow up.
+- [14:08.140] Not going to let that happen.
+- [14:09.790] The Press: Mr. President, you had a bit of a row
+- [14:11.910] with President Emmanuel Macron in France
+- [14:14.370] the other day in the G7 --
+- [14:15.650] The President: No, he's a nice guy.
+- [14:17.080] Look, he said I was going back home to make a ceasefire.
+- [14:23.550] Not a cease fire. We're long beyond cease fire
+- [14:26.820] and I said why do you say that? Why would you say cease fire?
+- [14:30.140] It's a bad term to use because a cease fire
+- [14:32.710] means like everything's going swimmingly.
+- [14:34.400] We'll take a little time off. It's not.
+- [14:36.610] We're not looking for a cease fire.
+- [14:37.960] We are looking for total complete victory.
+- [14:40.780] Again, you know what the victory is.
+- [14:43.220] No nuclear weapon.
+- [14:45.900] So I thought it was a very badly worded statement by him
+- [14:49.200] and obviously I let him know that.
+- [14:50.550] The Press: On the southern border,
+- [14:51.830] you've had record low numbers for the month of May,
+- [14:54.200] 95 apprehensions, zero releases
+- [14:56.980] compared to that of the previous administration
+- [14:58.990] exactly a year ago, so more than 60,000 releases.
+- [15:02.470] What do you attribute that success to?
+- [15:04.570] The President: I like you. Who are you with?
+- [15:05.900] The Press: Turning Point U.S.A.
+- [15:07.190] The President: Well, they're very good.
+- [15:08.400] Turning point. Charlie, very good, that's --
+- [15:12.070] see, that what I call a good question, fellas.
+- [15:14.300] One out of 10, John, one out of ten,
+- [15:16.570] but that's a really good question.
+- [15:18.930] No, we had record good numbers on the border.
+- [15:21.700] And people are coming in, but they have to come in legally.
+- [15:24.270] Like some of these guys behind me,
+- [15:25.600] they have come in legally.
+- [15:26.960] And if they come in, legally, we want them.
+- [15:28.550] They have to say they love America.
+- [15:30.360] They love our country.
+- [15:31.910] And if they can't say that, we don't want them.
+- [15:34.520] Thank you very much, very nice. Thank you, very much everybody.
+- [15:37.550] Female Speaker: Thank you, press.

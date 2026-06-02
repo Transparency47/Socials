@@ -1,0 +1,939 @@
+<!-- source: https://www.youtube.com/watch?v=KLhVAWzOP5c -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: KLhVAWzOP5c -->
+<!-- date_published: 2025-12-14T21:03:52+00:00 -->
+<!-- date_accessed: 2026-06-02T01:08:42.660059+00:00 -->
+
+# Transcript: President Trump Delivers Remarks at a Christmas Reception
+
+- [00:00.500] ♪ (festive music playing) ♪
+- [00:05.700] The President: Hello, Doctor. How are you?
+- [00:07.940] Hello, everybody. This is so great.
+- [00:10.630] And before we begin, however,
+- [00:12.540] I want to just pay my respects to the people.
+- [00:17.810] Unfortunately, two are no longer with us.
+- [00:21.170] Brown University, nine injured.
+- [00:23.840] And two are looking down on us right now from heaven.
+- [00:28.120] And likewise in Australia, as you know,
+- [00:31.430] that was a terrible attack. 11 dead, 29, badly wounded.
+- [00:36.580] And that was an anti-Semitic attack, obviously.
+- [00:40.240] And it I just want to pay my respects to everybody.
+- [00:44.240] I must say in Syria also. We had an attack in Syria
+- [00:50.480] and we had three great patriots terminated by bad people
+- [00:57.610] and not the Syrian government. It was ISIS.
+- [01:00.010] Syrian government fought by our side.
+- [01:02.400] The new president fought by our side.
+- [01:04.150] But I just want to pay my respects to the families.
+- [01:08.710] We also had three injured,
+- [01:10.500] but two of them are already out of the hospital
+- [01:13.310] and one's going to be okay. But we lost three.
+- [01:16.950] So it was a rough, it was a rough day.
+- [01:20.990] But to Australia and the Prime Minister,
+- [01:24.940] to everybody that we know so well,
+- [01:26.580] we get along with so well.
+- [01:28.570] We have a great relationship.
+- [01:29.800] That's a terrible situation going on over there.
+- [01:33.150] Think of that.
+- [01:34.640] And Brown University, great school.
+- [01:38.330] Great s- -- great, really one of the greatest schools
+- [01:41.230] anywhere in the world. Things can happen.
+- [01:44.220] So to the nine injured, get well fast.
+- [01:47.700] And to the families of those two that are no longer with us.
+- [01:51.540] I pay my deepest regards and respects
+- [01:54.290] from the United States of America.
+- [01:57.040] Thank you very much. It's a very important thing to say.
+- [02:00.500] And we mean it. I can tell you in Syria,
+- [02:06.860] there will be a lot of damage done to the people that did it.
+- [02:10.790] They got the person, the individual person,
+- [02:12.850] but there'll be big damage done. And the other supposedly,
+- [02:18.510] they call them a person of interest,
+- [02:20.050] so I'll keep it along those lines
+- [02:22.430] so we don't get ourselves in any trouble,
+- [02:24.330] but they have a person of interest at Brown.
+- [02:27.340] And in Australia, you probably read,
+- [02:29.540] they've it's been, it's been a very, very brave person,
+- [02:33.560] actually, who went and attacked frontally uh,
+- [02:38.120] one of the shooters and saved a lot of lives.
+- [02:40.930] So very brave person who's right now in the hospital,
+- [02:44.390] pretty seriously wounded.
+- [02:46.430] So I, great respect to that man that did that.
+- [02:50.540] Uh, but we're here for a different reason.
+- [02:53.230] We're here to celebrate Christmas
+- [02:56.030] and to celebrate, and I think today
+- [02:58.460] we can first say loudly we celebrate Hanukkah,
+- [03:02.970] because that was such a horrible attack.
+- [03:04.630] That was a purely anti-Semitic attack.
+- [03:08.000] And to really celebrate the new year,
+- [03:11.050] we have an amazing couple of achievements.
+- [03:14.730] We've taken in more investment money
+- [03:17.120] than any country has ever taken in by four times.
+- [03:19.850] There's never been anything like it.
+- [03:22.300] And I like to say
+- [03:24.840] that was because of the November 5th election,
+- [03:27.570] but and it was to an extent
+- [03:29.910] because without the November 5th election,
+- [03:32.380] you would've had a president that didn't have the courage
+- [03:34.760] to use tariffs the way they should be used.
+- [03:36.540] And because of the tariffs, we've taken in more than 18,
+- [03:40.480] think of this, $18 trillion.
+- [03:42.090] There's never been anything like it.
+- [03:43.830] As an example, the previous administration,
+- [03:47.040] Sleepy Joe Biden,
+- [03:48.780] took in less than 1 trillion in four years.
+- [03:51.900] We took in more than 18 trillion in 10 months.
+- [03:56.770] I'd say that's pretty good, right?
+- [03:58.390] I'd say that's pretty good.
+- [04:00.200] And if you go back, if you go back into history,
+- [04:03.240] there's never been a country that's taken
+- [04:05.130] in more than $3 trillion, and we have over 18.
+- [04:08.060] That's again, because they don't want to pay tariffs.
+- [04:11.230] So in order not to pay tariffs, they come in
+- [04:13.500] and they build their plant in the United States.
+- [04:15.590] It's pretty simple.
+- [04:17.160] And it's been pretty amazing, actually.
+- [04:20.800] Uh, we have some very special people here,
+- [04:23.600] and because I believe in families so strongly,
+- [04:27.650] I think I should introduce.
+- [04:29.410] Uh, we have Don, we have his children.
+- [04:34.720] We have Vanessa, her children, Kai, Tristan, Spencer, Chloe.
+- [04:40.380] Uh, where's, you know, Kai's a great golfer.
+- [04:42.300] Has anyone ever, oh, there she is.
+- [04:44.920] Hi, Kai. Put your hand up, Kai.
+- [04:46.980] Can you beat, can you beat your grandpa in golf?
+- [04:54.090] Can Kai beat her grandpa on golf?
+- [04:55.660] I don't know. But she's great.
+- [04:59.920] Uh, Chloe is going to be amazing,
+- [05:02.650] and all of them, they're great athletes. They're really great.
+- [05:05.790] So I just want to welcome Don and I want to welcome Vanessa.
+- [05:13.020] I want to welcome the kids.
+- [05:15.110] And Bettina, who's with Don is so, such a fantastic person.
+- [05:19.810] Where's Bettina? She's a great athlete, too.
+- [05:22.060] She's like, where are you?
+- [05:24.020] You, you, I hear you're a really good athlete.
+- [05:27.260] So that's very nice. But so I just had to do that,
+- [05:29.850] but then I'm going to tell you about some other people
+- [05:31.800] that are here because it's amazing.
+- [05:33.620] We have a man who just won the US Open in Golf.
+- [05:37.360] He hits a long ball, slightly longer than me.
+- [05:44.150] I used to think I hit a long ball
+- [05:45.530] until I played with him.
+- [05:47.390] But everybody feels that way, even the touring pros.
+- [05:49.540] He's the longest hitter in golf. He's the longest hitter.
+- [05:51.570] Much more importantly, he putts great, he chips great.
+- [05:55.110] He hits the ball dead straight. It's tough.
+- [05:57.800] When you're the longest, straightest hitter
+- [05:59.700] that putts the best and chips the best,
+- [06:02.930] typically you're going to do quite well,
+- [06:04.470] and he does quite well.
+- [06:06.140] He just signed a contract for like 200 million
+- [06:08.830] for for playing golf,
+- [06:11.240] you're paying a guy hundreds of millions of dollars.
+- [06:13.770] And he's, he's a fantastic person.
+- [06:16.140] You know what he's got though better than all of his game?
+- [06:18.270] The head. He's got the head is better than anything.
+- [06:22.700] He knows how to win.
+- [06:23.980] Where's Bryson DeChambeau? Is he here? Bryson.
+- [06:27.460] Come, come up here, Bryson. Come on. Come on, Bryson.
+- [06:31.580] I want to ask, why is he longer? Look at him.
+- [06:34.260] Now, if you rip off the jacket,
+- [06:35.610] you'll see the muscles are serious,
+- [06:37.210] but, but we don't have to rip off jackets.
+- [06:40.230] Come on up here. Say hello. Hi, Bryse.
+- [06:42.510] Bryson DeChambeau: Great to see you, Mr. President.
+- [06:43.840] The President: The current US Open Champion. Please.
+- [06:48.220] Bryson DeChambeau: My goodness.
+- [06:49.990] Well, I did not know I was going to be coming up here today,
+- [06:53.650] but I got to say thank you.
+- [06:55.950] And what the President done in his term
+- [06:58.970] has been incredible, right?
+- [07:00.400] It's the greatest economy that we've ever had.
+- [07:02.050] And just, just to be serving on the President's Council,
+- [07:05.160] Sports Fitness and Nutrition has been such an honor.
+- [07:07.330] And the First Lady, you look so beautiful, by the way.
+- [07:11.080] And I'll say cheers to the greatest economy
+- [07:16.110] that we've had in a long, long time.
+- [07:20.140] And Merry Christmas to everybody.
+- [07:22.330] Um, you kids look awesome down there.
+- [07:26.460] I think that when I was a kid,
+- [07:29.450] I never imagined that I'd even be up here.
+- [07:31.660] How is this even possible?
+- [07:33.410] So, it's, it's been a beautiful moment.
+- [07:35.260] I'm going to cry, actually,
+- [07:36.530] because I don't even know why I'm up here speaking.
+- [07:39.890] The President: He hasn't cried in a long time.
+- [07:41.280] Bryson DeChambeau: No, no, not, not since the, not since --
+- [07:43.130] The President: He's not, he's not a big crier.
+- [07:44.400] Bryson DeChambeau: Not since the US Open, but --
+- [07:45.690] The President: He makes, he makes other people cry.
+- [07:47.800] Bryson DeChambeau: I got to tell you, what,
+- [07:50.710] what everybody's doing here is incredible for the country,
+- [07:52.810] and I got to thank the President of the United States.
+- [07:55.200] He is such an, an amazing human being, more importantly,
+- [07:59.310] as I've gotten to know him over the past decade now, almost.
+- [08:03.450] What he's done, not just for our country,
+- [08:05.650] but just for every single person that he goes and interacts
+- [08:08.160] with is absolutely incredible.
+- [08:10.950] I can't tell you how many times I've been around him,
+- [08:13.210] and him just look up to,
+- [08:14.480] or look over to a kid and be like,
+- [08:16.170] "How are you doing? You l- -- you're doing so great. Love you.
+- [08:19.700] Keep going forward. Keep growing in life."
+- [08:21.920] It's unbelievable what he does for families and for kids.
+- [08:24.590] And for that, I say thank you and Merry Christmas to you guys.
+- [08:27.830] It's so amazing.
+- [08:29.150] The President: How is my -- how is my golf game?
+- [08:31.080] Bryson DeChambeau: His golf game,
+- [08:32.330] look, his iron play
+- [08:33.530] is actually probably better than mine right now.
+- [08:35.240] I'll tell you that right now.
+- [08:38.130] I can hit it a little farther, but --
+- [08:39.510] The President: His is slightly longer.
+- [08:40.750] Bryson DeChambeau: Just a little bit.
+- [08:41.950] But his putting has gotten really good lately.
+- [08:43.730] I played with Gary Player and Masasan
+- [08:47.030] of which he made so many putts when we played together,
+- [08:50.650] together for Gary his 90th.
+- [08:52.030] Um, but anyway, he's a great golfer, better human being,
+- [08:55.200] and you definitely we, we're all so lucky to have him
+- [08:58.070] as the President of the United States,
+- [08:59.630] so thank you guys.
+- [09:00.870] The President: Thank you very much.
+- [09:03.130] Bryson DeChambeau: Thank you.
+- [09:04.400] The President: So Bryson, coming up the 18th fairway
+- [09:06.720] needed a par to win the US Open.
+- [09:09.620] He pulled his drive, which is a little bit unlike him,
+- [09:12.630] and he had a horrible lie. He was in a bush.
+- [09:15.490] This is not good, because it looked like
+- [09:18.310] it was going to be a routine, but it's hard to finish.
+- [09:20.330] You know, winning is not easy. And especially with golf.
+- [09:24.300] So he pulled his drive a little bit, hit it about 360,
+- [09:26.960] but he pulled it, and he was in a bush.
+- [09:30.210] He chopped it out. It was actually an amazing shot.
+- [09:33.690] He, many of the golfers , who have,
+- [09:35.250] who saw this whole thing? Did , yes, right?
+- [09:37.920] Actually, all my friends are saying I saw it.
+- [09:40.410] He chopped it out of the bush,
+- [09:42.390] moved it forward 100 yards into a sand trap.
+- [09:46.010] So now he's 60 yards away. If you know anything about golf,
+- [09:49.260] that's the worst shot you can have.
+- [09:51.580] In fact, the pros don't even practice it
+- [09:53.430] because there's no way to figure it out.
+- [09:55.670] So he has 60 yards. What was it? 54 yards to be exact, I think.
+- [09:59.880] 54, or like about that. 54 yards.
+- [10:03.040] That's the worst thing that can happen.
+- [10:05.200] Behind the green is the clubhouse.
+- [10:07.530] If you go there, you have a two-stroke penalty,
+- [10:09.440] you lose the US Open.
+- [10:11.120] In front of the green is the worst bushes you've ever seen.
+- [10:14.440] So he has to either putt it on the green or he's dead.
+- [10:18.510] So his caddy who was a great caddy
+- [10:21.410] wanted him to play way left
+- [10:23.600] and take two long putts and get into a playoff.
+- [10:27.460] Bryson said, "No, we got to go for the win."
+- [10:30.520] He takes like an open face nine iron or wedge,
+- [10:34.790] which normally you wouldn't use. It's a very hard shot.
+- [10:37.740] And he hits it four feet from the hole.
+- [10:41.840] Now, for a golfer, they would say,
+- [10:45.820] "That's not so good because they have to sink a four footer
+- [10:48.640] because they can't sink four footers."
+- [10:50.710] That guy can sink four footers.
+- [10:52.540] So he still had a four-foot putt
+- [10:54.170] that broke a few inches to the right,
+- [10:56.320] which is considered harder when, than breaking to the left.
+- [10:59.590] He stood over the ball, hit it, went into the hole,
+- [11:02.160] he wins the US Open.
+- [11:03.470] So that's called a champion's heart.
+- [11:05.950] So it's great to have you. You're a great champion.
+- [11:07.870] Won a lot of, you won a lot of golf.
+- [11:09.960] US amateur, a lot of, lot of tournaments.
+- [11:13.150] And you know, you're just at the beginning of your great,
+- [11:15.220] you know, your age is where they really become great.
+- [11:18.230] 31, 32 years old, that's when if you look statistically,
+- [11:22.640] they do the best from 31, 32 to 40, except for Vijay.
+- [11:27.570] Vijay won all of his tournaments from 40 to 50.
+- [11:30.540] Vijay's the one unique player, right?
+- [11:32.090] Bryson DeChambeau: Yes.
+- [11:33.360] The President: He became great at 40,
+- [11:35.050] but you're at the exact perfect age, so great.
+- [11:37.620] You're a great champion. Thank you.
+- [11:39.320] It's great that you're here.
+- [11:40.970] Maybe I'll take a chipping lesson from him.
+- [11:43.870] He's a good -- So I also want to thank Casey,
+- [11:48.530] I want to thank you for being here.
+- [11:49.920] James Blair, I want to thank you.
+- [11:51.570] Where's James? What a job he's done.
+- [11:54.200] You have your beautiful family, James?
+- [11:56.500] This guy is so good. You know, I wasn't sure.
+- [11:59.930] He was very quiet and I kept hearing he's very quiet,
+- [12:03.680] but I'd hear from other people he's a total political genius,
+- [12:06.370] but I didn't see it because he was always,
+- [12:07.870] I don't know what it was.
+- [12:09.110] Maybe he was intimidated by the Office of the President.
+- [12:12.190] But I heard he was like this brilliant guy,
+- [12:14.030] I'm telling you, sir.
+- [12:15.260] And then they gave him a very high position.
+- [12:16.720] I said, "He's so quiet." They said, "He's not quiet, sir.
+- [12:21.060] Maybe he's quiet around you. He's not quiet."
+- [12:23.270] And that was two years ago.
+- [12:25.060] And you know what? He's not quiet. He's incredible.
+- [12:28.290] The job you've done. Thank you, James.
+- [12:29.810] James Blair: Thank you, sir.
+- [12:31.030] The President: Great. Is the other James there?
+- [12:33.510] Because you have two James'. They're both great.
+- [12:35.990] So I used to call him Big James and Little James.
+- [12:39.930] But the problem is he's not little at all.
+- [12:42.780] And I don't think people like being called Little James,
+- [12:45.840] but I meant it very affectionately.
+- [12:47.750] But Big James is like 6'7" and he weighs like 320.
+- [12:51.940] So he's big compared to almost anybody.
+- [12:53.570] So then I said, "Okay, I'll change it.
+- [12:56.460] I'll call him Big James and I'll call him Brilliant James."
+- [13:00.680] But that's a real slight on Big James now.
+- [13:03.760] So I just keep calling him James and whoever comes.
+- [13:06.770] But you've done a great job and I appreciate it.
+- [13:08.530] I know you're working on that situation for appointments
+- [13:11.400] and that's, that'll be great.
+- [13:12.900] Pull that off.
+- [13:14.210] Uh, Naomi, thank you very much from Bedminster.
+- [13:16.630] Naomi is here. She does a fantastic job.
+- [13:19.580] And I want to thank you. I want to thank Erin Elmore.
+- [13:23.570] Is Erin here? Erin, come here, Erin.
+- [13:26.800] She's marrying the most powerful man in the administration.
+- [13:31.190] She's getting married to the Great Dan Scavino.
+- [13:33.270] Is Dan here, or is he working?
+- [13:34.470] Erin Elmore: He's working.
+- [13:35.710] The President: He's too big. Come on up here, Erin.
+- [13:37.710] You think Dan has bad taste? You won't believe this.
+- [13:40.690] Mickie Gallagher, another great golfer is here.
+- [13:42.810] He's the head pro at Bedminster
+- [13:44.400] and he's , yeah, come on up here, Erin.
+- [13:47.280] You know the First Lady?
+- [13:48.530] Erin Elmore: How are you? Nice to see you. How are you?
+- [13:50.160] Thank you (inaudible)
+- [13:51.360] The President: Want to say a couple of words?
+- [13:52.940] Because she's a great hostess.
+- [13:54.330] She does , she hosts professionally everything
+- [13:57.770] and she's the best.
+- [13:59.320] But now she's probably going to , let's see.
+- [14:00.750] Erin Elmore: Uh-oh.
+- [14:01.990] The President: Is she going to choke?
+- [14:03.460] Is she going to be the opposite of Bryson?
+- [14:06.340] Say a couple. Great. You look great.
+- [14:08.430] Erin Elmore: Thank you, Mr. President, First Lady,
+- [14:10.210] and to everyone, Merry Christmas.
+- [14:13.210] Thank you so much for having me. It's an absolute honor.
+- [14:15.650] I got to fly here today with Vanessa and all of the kids,
+- [14:18.700] and you just have such a wonderful family.
+- [14:21.130] Everyone is amazing, and polite, and smart,
+- [14:24.730] and athletic, and talented.
+- [14:26.570] So you guys have done a truly amazing job
+- [14:28.360] and it's a testament to your family.
+- [14:30.200] And I think this party is really special
+- [14:31.830] because my son is here, my sister is here,
+- [14:34.000] and the holidays and Christmas are truly about family.
+- [14:36.980] And thank God that we have a president
+- [14:39.140] and a first lady who puts our families first,
+- [14:41.460] who puts America first.
+- [14:43.260] And that's why we get to have this special, amazing,
+- [14:46.990] beautiful Christmas season the way that it is.
+- [14:48.860] And I thank God every day that President Trump
+- [14:51.390] won November 5th of last year,
+- [14:53.160] and I think we keep making America great again.
+- [14:56.550] For all of these people here today,
+- [14:58.320] our children, our families.
+- [15:00.380] So thank you so much for having me.
+- [15:02.230] And thank you, President and First Lady.
+- [15:03.820] The President: Thank you, Erin. Thank you. Great.
+- [15:05.440] Now you know what I'm talking about.
+- [15:06.820] You did a good job. I don't know.
+- [15:09.390] Scavino is great, but without that big power,
+- [15:12.190] do you think that she would have been interested in --
+- [15:14.310] James, I don't know.
+- [15:15.910] I think the power is the thing that did it, right?
+- [15:19.400] He's a, he's a great guy.
+- [15:20.770] You got a great guy. I think the best.
+- [15:22.360] Erin Elmore: And he looks great these days.
+- [15:23.560] The President: He's a handsome guy, right?
+- [15:25.000] Look at her. She's, now she's defending him.
+- [15:28.300] Thank you. Erin, thank you very much.
+- [15:29.800] Thank you, darling. Great job. I appreciate it.
+- [15:33.140] Uh, so Mickie Gallagher, where's Mickie?
+- [15:35.920] Mickie, from one of the , now, he's a great player too.
+- [15:40.750] Probably Mickie would agree
+- [15:42.320] that he's not quite as good as Bryson.
+- [15:45.020] He's the head pro at Bedminster,
+- [15:47.530] one of the most respected professionals,
+- [15:49.440] the most like in New Jersey.
+- [15:51.090] Forget, he's like a king. And he's a really good golfer.
+- [15:55.170] But we've given up with the tour stuff, right, Mickie?
+- [15:59.730] Mickie Gallagher: We've given up.
+- [16:02.100] The President: When, when you see somebody
+- [16:03.320] who's 100 yards longer, you say, "Let's go,
+- [16:06.050] let's go back to hiring golf pros all over the place."
+- [16:08.960] Right? Thank you, Mickie, for being here.
+- [16:10.970] And he is a great golfer. Uh, really terrific lawyer.
+- [16:14.250] He's been with me for a long time.
+- [16:15.830] I think he's got his family with him and his family's great.
+- [16:18.650] Alan Garten. Where's Alan? Alan, nice to see you, Alan.
+- [16:23.650] Boy, are we winning cases or losing?
+- [16:25.830] I think we're winning.
+- [16:27.210] I guess we're winning because here we are, right?
+- [16:28.960] Alan Garten: It's a good work. (Inaudible)
+- [16:30.200] The President: That's good. Well, you've done a great job
+- [16:32.110] and look at that beautiful baby, huh?
+- [16:33.650] That boy, he's not a baby anymore, right?
+- [16:36.030] Good. Good. Thank you, Alan.
+- [16:38.630] Is your wife here who he happened to meet on the job?
+- [16:43.590] He met on the job.
+- [16:45.550] You know, we're not supposed to do that stuff,
+- [16:47.670] but they got along very well. I said, "the hell with it."
+- [16:52.720] We have very flexible rules in the Trump organization.
+- [16:55.920] I said, "You know, those two seem to be too --"
+- [16:57.770] She's a great lawyer.
+- [16:59.450] I don't know, she may be a better lawyer than you, Alan,
+- [17:01.320] I hate to tell, but I noticed they came into my office
+- [17:04.160] and they were extraordinarily friendly, you know?
+- [17:06.440] Like they'd walk in two separate lawyers and we,
+- [17:10.090] it's strange when they walk into my office
+- [17:11.990] and they're holding hands, you know?
+- [17:13.210] It's like, I said, "What the hell's going on over here?"
+- [17:15.320] Right?
+- [17:16.520] So Alan, I just want to thank you for doing a great job,
+- [17:19.970] both of you for doing a great job,
+- [17:21.560] and congratulations on the family and everything.
+- [17:24.550] A man who's really fantastic.
+- [17:26.950] He started off as a speech, a speech writer.
+- [17:30.300] And my problem is I didn't stick to his speech that much,
+- [17:33.430] but whenever I stuck to his speech,
+- [17:35.860] I would never get myself into trouble.
+- [17:38.320] But he's one of the greatest speech writers in the world.
+- [17:41.750] And together with his partner, Ross, they form a team that,
+- [17:45.800] you know, they've been with me right from the beginning.
+- [17:47.580] Vince, are you here, Vince? Oh, there you are, Vince.
+- [17:50.420] It's, it's amazing the way you blended in.
+- [17:52.990] He wants to blend in. And now, he's doing something
+- [17:56.140] I think that's going to be the most exciting job of all.
+- [17:59.260] And Ross is doing really well.
+- [18:02.470] They split up probably the first time.
+- [18:04.160] You know, they've always been a team.
+- [18:05.480] They, they wrote, they love each other.
+- [18:07.770] They got along so well for so many years.
+- [18:09.790] And I said, "You know we have a couple of jobs."
+- [18:12.980] Rich, Vince is unbelievable on policy.
+- [18:16.160] And we have a policy thing
+- [18:17.660] that's going to be unbelievable happening.
+- [18:20.680] Should I announce it or should I keep it quiet?
+- [18:23.720] I put Vince in charge of the triumphal arch.
+- [18:26.520] We're building an arc like the Arc de Triomphe.
+- [18:29.280] And we're building it by the Arlington Bridge,
+- [18:32.470] the Arlington Cemetery opposite the Lincoln Memorial.
+- [18:38.100] You could say Jefferson, Washington,
+- [18:39.750] everything because they're all right there.
+- [18:42.080] And it's something that is so special.
+- [18:45.470] Uh, it will be like the one in, in Paris,
+- [18:48.590] but to be honest with you, it blows it away.
+- [18:50.920] Blows it away in every way.
+- [18:53.290] And Vince came in one day and his eyes were teaming.
+- [18:57.360] I mean, he couldn't believe how beautiful.
+- [19:00.220] It was -- he saw it and he wanted to do that.
+- [19:02.950] That's your primary thing.
+- [19:04.150] There is nothing that can compete with that.
+- [19:06.400] It's the only city in the world that's of great importance
+- [19:10.210] that doesn't have a triumphal arch.
+- [19:11.980] You know what that is.
+- [19:13.550] And this one is going to blow them all away.
+- [19:15.690] The one that people know mostly
+- [19:17.090] is the Arc de Triomphe in Paris, France.
+- [19:21.020] And we're going to top it by, I think, a lot.
+- [19:24.600] The only thing they have is history.
+- [19:26.450] You know, 1860 is something I always say
+- [19:29.480] the one thing you can't compete with,
+- [19:30.960] but eventually we'll have that history too.
+- [19:33.270] But we're going to have something that li- --
+- [19:35.090] the likes of which has, has never been done before.
+- [19:38.750] And it's been waiting for 200 years, literally.
+- [19:42.970] I think the Civil War got in the way of it.
+- [19:45.460] You know, the opening, they actually have the four,
+- [19:48.540] they have four columns,
+- [19:49.790] four small columns with the eagles on top.
+- [19:52.330] And they have the circle, you know,
+- [19:53.820] before on the other side from the Lincoln.
+- [19:57.230] And it's so unbelievable. It's so unbelievable.
+- [20:00.910] It's been waiting for hundreds of years,
+- [20:03.520] and they were going to build on it a couple of times.
+- [20:06.200] It never happened.
+- [20:07.590] But it's a circle that's been waiting to have
+- [20:11.000] the arc built on it.
+- [20:13.140] And I think we're very far along.
+- [20:15.060] I think you might want to show it
+- [20:16.550] to the National Trust, if you'd like.
+- [20:19.060] You might want to show it to a couple of people,
+- [20:20.900] take a look at it, because I've always gotten
+- [20:23.000] really along well with the National Trust.
+- [20:24.750] So take a look and show it to them, and start,
+- [20:27.200] and maybe they give you some good ideas too, okay?
+- [20:29.360] But I'm proud of you,
+- [20:30.630] and I'm really especially proud of the job you've done.
+- [20:33.010] From day one, he and his partner, Ross,
+- [20:36.120] have been writing really great speeches.
+- [20:38.920] And I just wish I stuck with them a little bit more often.
+- [20:42.800] But we go on and off those speeches, right?
+- [20:46.180] And I think ultimately that's the best combination, right?
+- [20:49.180] So one of the greatest in the world,
+- [20:50.890] the two of those guys, the greatest.
+- [20:52.900] Then we have a man who, to me,
+- [20:54.560] this is the most interesting story.
+- [20:56.730] Boy, do you look like Ivanka? Has anyone ever told you that?
+- [20:59.770] I'm looking, I'm saying, "Is that Ivan- --"
+- [21:03.070] Could you just turn around for the camera?
+- [21:04.550] Does she look, does she look like Ivanka?
+- [21:07.580] It's the most unbelievable thing.
+- [21:09.870] Uh, so I wouldn't, I didn't want to take a chance.
+- [21:12.400] I say, "Is that Ivanka?" You look just like Ivanka,
+- [21:15.730] which is a great compliment, actually.
+- [21:18.160] So we have a doctor in the White House named Dr. James Jones.
+- [21:22.640] Can I tell the story?
+- [21:23.950] James Jones: Please, sir.
+- [21:25.160] The President: And he's a great doctor,
+- [21:26.360] highly respected by so many people.
+- [21:28.190] He's helped so many people.
+- [21:29.870] I've had people come to the White House
+- [21:31.590] and they were so sick.
+- [21:33.140] I've had people come to the White House
+- [21:34.670] along with your partner.
+- [21:35.900] You got to , well, you have a lot of partners.
+- [21:38.110] You have Walter Reed Medical Center,
+- [21:39.540] which I think is the best in the world.
+- [21:41.400] They've seen things that nobody wants to see, right?
+- [21:43.250] James Jones: Yes, sir.
+- [21:44.490] The President: They have doctors have told me,
+- [21:47.470] "If you can get out of here, you've seen it all."
+- [21:49.650] And that's why they produce
+- [21:50.870] some of the best doctors in the world.
+- [21:52.930] Well, Dr. James Jones is a great doctor.
+- [21:56.170] He was the White House doctor during the Obama administration
+- [22:00.390] and during the Trump administration.
+- [22:04.010] Uh, and I guess during a little bit of maybe, no, those two?
+- [22:09.580] Because we had, we had somebody else named Doc Ronnie
+- [22:12.780] who actually got a glimpse of Obama in there too.
+- [22:14.930] Is that Doc Ronnie back there? No. Doc Ronnie did all three.
+- [22:20.600] And he said Trump is in the best health of all.
+- [22:22.590] He had, he had Bush, he had Obama, he had Trump.
+- [22:26.700] He, he didn't have Biden. He didn't have Biden.
+- [22:29.980] But Dr. James went on a trip to Peru
+- [22:36.020] with the two Obama girls.
+- [22:38.770] They wanted to go hiking in, in Peru.
+- [22:43.410] Was it Peru? In Peru.
+- [22:47.420] And it's known for being a rather rough place
+- [22:52.200] in terms of physical creatures crawling around.
+- [22:55.900] 28,000 people die a year from a snake bite, a certain snake.
+- [23:00.740] It's a viper, right?
+- [23:02.580] It's said to be the most poisonous snake in the world.
+- [23:05.900] And he made a comment and somebody else told him
+- [23:09.060] that's very dangerous in that area to go hiking.
+- [23:12.590] And the guide said, "Oh, don't worry, we never see that snake.
+- [23:16.340] It's over-exaggerated."
+- [23:18.040] Even though 27, 28,000 people a year die.
+- [23:21.250] That's not over-exaggerated. Because when they lift the rice
+- [23:25.280] and the this and the that out of the water, they get hit.
+- [23:27.620] And if you get hit, it's automatic death.
+- [23:30.710] So he goes out and he's -- in your last day, right,
+- [23:34.310] you're getting ready to come back.
+- [23:35.770] For two weeks, they're traipsing around in Peru.
+- [23:39.040] And he's got to follow them
+- [23:40.400] because he's the White House doctor.
+- [23:41.890] And he's with the two young ladies who I'll bet are nice.
+- [23:45.230] You actually said they were very nice young ladies too.
+- [23:47.350] I'll bet they are.
+- [23:48.560] And final day, final two hours, he gets hit by a viper, right?
+- [23:57.430] This is a terrible Christmas story,
+- [23:58.980] but it's a hell of a story
+- [24:00.220] because I'll tell you what happened.
+- [24:02.010] He gets hit with a viper
+- [24:04.150] and he was, the viper missed him.
+- [24:08.540] It hit his jacket, a very thick jacket
+- [24:12.060] and spread all of the venom all over the place.
+- [24:14.400] It went all over.
+- [24:16.310] But that wasn't good enough for the viper.
+- [24:18.060] The viper hit him a second time,
+- [24:19.530] and this time it got him on the arm.
+- [24:21.970] And so I think probably the only reason you made it,
+- [24:25.960] even though making it took him two years to make it.
+- [24:29.220] But they read him the last rites.
+- [24:31.740] He was gone on three different occasions.
+- [24:33.780] They thought he was dead.
+- [24:35.660] And you know, it takes only a minute.
+- [24:39.400] And because of Doc Ronnie Jackson, he knew.
+- [24:43.510] They called in and he was at the White House
+- [24:47.500] and he knew from the description
+- [24:50.070] and the location what kind of a snake it was.
+- [24:53.940] And they had the venom just in case.
+- [24:57.090] But the venom rarely works. It's so powerful this snake.
+- [24:59.670] It's said to be the most poisonous.
+- [25:01.160] That, the black mamba,
+- [25:03.860] the brown mamba and the viper from Peru.
+- [25:07.050] You do not want to play games, okay?
+- [25:10.130] And I'm telling this story because my son,
+- [25:11.860] Don, this is a hell of a ,
+- [25:13.540] you heard, did you hear this story, Don?
+- [25:15.890] And so he's he's being read
+- [25:21.520] his rights and his, this is, they, they thought
+- [25:25.680] he was dead three times, three different times.
+- [25:28.160] They carried him out, feeding him the anti-venom.
+- [25:32.110] And over a period of months, he was unconscious
+- [25:35.800] for a long time, many weeks, and he made it.
+- [25:41.180] I asked him, "How you doing today?"
+- [25:44.130] He said, "Is it perfect?"
+- [25:45.490] Look how quiet everybody is. You know?
+- [25:48.250] You know, it's funny, when you talk about snakes
+- [25:50.160] and things like that, that people find it interesting.
+- [25:55.350] Would anybody like to go and, go to Peru
+- [25:58.160] and walk around the forest with,
+- [26:00.510] he says, "No, no, thank you. No thank you."
+- [26:02.940] I'll say, "No, thank you." But this was a real,
+- [26:06.660] did they ever find the snake, by the way?
+- [26:08.020] James Jones: They did find it.
+- [26:09.250] The President: Oh, they did find it?
+- [26:10.450] What did they do?
+- [26:11.850] James Jones: They took care of it.
+- [26:13.070] The President: You know, normally,
+- [26:14.270] normally the environmentalists and the animal rights people
+- [26:18.280] would say, "Oh, leave it alone. It's such a wonderful --"
+- [26:21.440] Okay. Usually they say, "Leave it alone.
+- [26:23.150] Such a wonderful, leave the sharks alone.
+- [26:25.110] Don't touch the sharks. They're wonderful.
+- [26:26.780] I love the sharks." Right?
+- [26:28.920] I don't feel that way, but that's okay.
+- [26:30.950] Just lost about one vote, that's all.
+- [26:33.400] But, so he, he got better.
+- [26:35.830] And here's the story, the purpose of this story
+- [26:37.980] is that he wrote a book nine years ago, would you say?
+- [26:41.600] This was nine years ago?
+- [26:42.830] James Jones: Three years ago.
+- [26:44.050] The President: Three years. The book is three years old.
+- [26:46.410] And it was okay. It sold about two copies.
+- [26:49.670] But it had a hell of a cover,
+- [26:51.800] and it has a cover of the White House
+- [26:53.510] and this vicious snake, and it is vicious.
+- [26:57.950] Teeth like this, this, those fangs.
+- [27:01.010] These are not fangs you want, you know,
+- [27:02.990] sucking on your arm, right?
+- [27:04.530] As you had. By the way, what did you do?
+- [27:06.740] When that snake was on your arm,
+- [27:09.290] you tried to get it off your arm,
+- [27:10.750] I guess, naturally. What was happening?
+- [27:13.030] James Jones: I rolled off, sir, so I don't remember it.
+- [27:15.400] The President: You mean it, it hit you that hard
+- [27:16.900] that it knocked you out immediately?
+- [27:18.360] James Jones: Yes, sir.
+- [27:19.590] The President: It's unbelievable.
+- [27:20.830] So he wrote a book three years ago,
+- [27:24.310] and the book was fine, you know, it's like every other book.
+- [27:26.470] It didn't sell too much, but it was interesting.
+- [27:28.680] But I heard the story
+- [27:29.940] and I'm fascinated by stories of wildlife,
+- [27:32.550] because I have a theory. Wildlife always wins.
+- [27:36.010] That's what my theory is. We can play games, you know?
+- [27:40.060] I'm saying this for my son, by the way,
+- [27:41.690] because I have a son who would rather be in the jungle
+- [27:44.550] than any place on earth.
+- [27:46.800] When I kick the bucket someday, he'll be, I, I figure, Bettina,
+- [27:50.110] I think he'll be here for about two days.
+- [27:54.250] He'll go and pay his respects and we'll say, "Where's Don?"
+- [27:57.430] He'd rather be in some jungle or some,
+- [28:00.620] and he's a really good hunter.
+- [28:02.050] But remember this, wildlife always wins,
+- [28:05.590] unfortunately, as in this case.
+- [28:07.980] So what happened, Dr. Jones wrote a book,
+- [28:12.170] and the book was amazing.
+- [28:14.130] I said, "I want to get that book."
+- [28:15.670] And I got it. And the cover is unbelievable.
+- [28:19.220] You'll see it on Truth Social. It's on Truth Social.
+- [28:21.640] I put out a statement that this book is great.
+- [28:24.220] The story is incredible.
+- [28:25.800] Took him like two years to recover.
+- [28:28.910] And I think he's, he, he said he's,
+- [28:32.250] he's lost something, but not up here.
+- [28:34.470] I don't care if you've lost something physically,
+- [28:37.040] but as long as the head is good.
+- [28:38.690] Did you lose anything from the brain?
+- [28:40.130] James Jones: No, sir.
+- [28:41.350] The President: Good. Okay. Then that's all I care about.
+- [28:42.790] I don't give a damn about the use of your arm.
+- [28:44.960] James Jones: My wife might tell a different story.
+- [28:46.290] The President: Your wife is, your wife, just,
+- [28:48.080] oh, where is his wife? Oh, look at that. Wow.
+- [28:50.910] James Jones: She's back here somewhere.
+- [28:53.000] The President: Where is -- where is the wife of Dr. Jones?
+- [28:56.140] I just want to know, did he lose anything mentally?
+- [28:58.700] Because if he did, I want,
+- [28:59.910] I don't, I no longer want him as my doctor.
+- [29:02.530] Then, no, he's an unbelievable doctor.
+- [29:04.440] No, here's the bottom line. So you had this book.
+- [29:08.070] He gets a call two days ago.
+- [29:09.670] I put out a Truth Social yesterday.
+- [29:11.560] I've sold a lot of bestsellers when I like people.
+- [29:14.850] I put it out, great book, bop, bop, bop,
+- [29:16.720] picture of this viper coming like boom from the White House.
+- [29:21.020] And his publisher calls him.
+- [29:24.200] Said, "Doctor, what happened? What's going on?"
+- [29:26.890] He said, "We're being in the --"
+- [29:28.170] Did they sell 100,000? What's the number?
+- [29:30.350] James Jones: 100,000, sir.
+- [29:31.610] The President: They sold 100,000 books.
+- [29:34.540] It's the number one bestseller. Can you believe it?
+- [29:38.890] Did you know? It's the number one bestselling book.
+- [29:43.910] Can you believe that? (Audience replies "No")
+- [29:45.620] So now you're a bestselling author.
+- [29:47.030] Now he can quit the White House and --
+- [29:49.400] But anyway, he's a great doctor with a terrible,
+- [29:51.760] that was a terrible experience.
+- [29:53.080] I mean, you went through hell for years, right?
+- [29:54.730] And, and the power
+- [29:57.620] is incredible, of animals, you know?
+- [30:00.890] Power is incredible. You got hit.
+- [30:02.600] And we tell you, a lot of respect.
+- [30:04.580] Uh, the chances of living from that snake
+- [30:06.910] are substantially less than 1%.
+- [30:09.330] And that's only if you have the venom.
+- [30:11.610] Even if you have the venom, you don't live.
+- [30:14.370] And this guy's living.
+- [30:15.620] But I have a feeling that first blow missing,
+- [30:18.450] that was, I assume there was a lot less going in, right?
+- [30:21.390] So, but it just --
+- [30:22.610] James Jones: I think the good Lord (inaudible)
+- [30:23.830] The President: I -- he said the good Lord saved him.
+- [30:27.390] I can maybe say that too.
+- [30:30.670] Every once in a while, I get that throbbing feeling.
+- [30:32.870] I say, "Thank you very much." You know?
+- [30:35.020] So we're in maybe a similar position.
+- [30:37.550] But you're a great doctor and I appreciate it.
+- [30:39.690] I just think it's an incredible story.
+- [30:41.110] Go buy his book, but it's an incredible story.
+- [30:43.360] 100,000 books sold in a day and a half.
+- [30:46.220] That's incredible, right? It's an amazing story.
+- [30:48.750] I want to just explain a couple of things
+- [30:50.960] and then I'm going to just leave
+- [30:52.770] by saying have a great Christmas,
+- [30:54.340] but our country is doing really well.
+- [30:57.450] We inherited a mess from Biden and the Biden administration.
+- [31:01.960] We had the worst inflation in the history of our country.
+- [31:04.770] The worst inflation in the history of our country,
+- [31:08.060] prices were the highest they ever were.
+- [31:10.880] And what we're doing is bringing them down.
+- [31:13.540] We now have, inflation is totally neutralized.
+- [31:17.160] We may get it a little bit lower.
+- [31:18.380] You don't want to get it too, you don't want deflation.
+- [31:20.150] Deflation is in many ways worse than inflation,
+- [31:23.830] but we have a record-setting, we have more people, on Friday.
+- [31:27.100] We had more people working on Friday
+- [31:29.020] than at any time in the history of our country.
+- [31:31.310] Think of that.
+- [31:32.570] Wages have gone up by more than inflation.
+- [31:36.450] First time that's happened in many years.
+- [31:38.960] We are doing great. And prices are coming down.
+- [31:42.170] And the Democrats use this word called affordability.
+- [31:44.990] They look at the camera, and they say,
+- [31:46.880] "What are you going to do for that?" "Affordability."
+- [31:49.460] They keep saying, "Affordability"
+- [31:50.920] Well, they're the ones that caused the problem, okay?
+- [31:53.730] They're the ones that caused the problem.
+- [31:55.620] That's all they're de, they're good at cheating
+- [31:57.190] in elections, very good at cheating.
+- [31:58.940] They're professionals at cheating,
+- [32:00.830] because we won in 2016 by a lot. The election was rigged in 2020.
+- [32:05.300] We have all the ammunition, all the stuff,
+- [32:06.800] and you'll see it come out.
+- [32:08.020] It's coming out in, in truckloads.
+- [32:11.030] But then we won again in 2024 with an election
+- [32:14.830] that we call too big to rig.
+- [32:16.620] And we were eating big in the polls, but I said,
+- [32:18.950] "Go out and vote. You got to go out and vote.
+- [32:22.280] Make it too big to rig."
+- [32:24.240] And that's exactly , they tried to rig it,
+- [32:26.060] but they couldn't do it. It was too big to rig.
+- [32:28.160] Too many votes. And we won every single swing state.
+- [32:31.350] We won by millions of votes. We won the popular vote.
+- [32:34.660] We won the college, electoral college.
+- [32:38.590] We won something else by a lot.
+- [32:40.460] We won something else that was amazing,
+- [32:42.280] and that's called districts.
+- [32:44.160] So the country is divided up into thousands of districts.
+- [32:49.080] We won 2,750 to 525.
+- [32:56.400] That's why when you look at a map of the election,
+- [32:58.550] the entire map is red other than two little blue stripes
+- [33:01.570] along the outer edge.
+- [33:03.140] What one is California, one's New York.
+- [33:05.660] And California's election, New York also,
+- [33:08.160] but California more than any other place is so rigged.
+- [33:12.150] It's such a rigged election.
+- [33:13.380] You know, we won the Hispanic vote.
+- [33:15.370] So a lot of people say Republican
+- [33:16.780] wouldn't win California,
+- [33:17.980] but I won the Hispanic vote. I won in Miami.
+- [33:21.020] The, think of that. In Miami, I won the Hispanic vote.
+- [33:24.090] Along the Texas border, I won every single city or town
+- [33:30.470] touching the Texas border, and they're 85 to 90% Hispanic.
+- [33:34.880] We won the Hispanic vote.
+- [33:37.090] If the vote in California was legitimate,
+- [33:39.850] which is not, they have 38 million ballots,
+- [33:43.500] everything is mail-in voting.
+- [33:45.220] They mail out 38 million ballots, and they come in.
+- [33:49.390] Where the hell do they go and where do they come from?
+- [33:51.740] It's a rigged election in California,
+- [33:54.120] because we would win California by a lot.
+- [33:56.950] And again, they feel,
+- [33:58.250] feel they have the advantage with Hispanic.
+- [34:00.030] They don't, because I won Hispanic vote.
+- [34:02.680] So we are, we did something that was amazing.
+- [34:07.040] We made a comeback and we got the most Republican votes
+- [34:10.910] in the history of elections.
+- [34:12.630] We won Texas by more votes than anybody's ever gotten to this.
+- [34:16.010] Well, I did number one, number two,
+- [34:17.710] and three, all three I did in Texas and Alabama
+- [34:20.910] and many other states. We won.
+- [34:23.100] In many states, we have the all-time record for votes.
+- [34:26.740] And it was just a great election.
+- [34:28.180] This was a great election.
+- [34:30.280] Uh, and you had long since recovered from the viper bites,
+- [34:33.410] so you acknowledge that this was a great,
+- [34:35.130] because I said, "I want that guy that's my doctor."
+- [34:37.570] And it's true. And your partner is so great.
+- [34:39.960] He's such a great guy.
+- [34:41.360] So I just want to say this was an amazing period of time.
+- [34:46.120] Our country has been turned around much faster
+- [34:47.840] than I thought.
+- [34:49.220] If you would have told me that 10 months in,
+- [34:51.050] we would have over 18 trillion with a T, not billion,
+- [34:54.680] but $18 trillion coming in. And they're coming in.
+- [34:58.610] It's all, they're building car plants,
+- [35:00.290] they're building AI plants,
+- [35:01.670] they're building everything at a level that we've never seen,
+- [35:04.420] that no country has ever seen before.
+- [35:07.240] Now I assume that's going to start.
+- [35:08.700] It's already showing up,
+- [35:10.200] but I assume that it's going to start showing up.
+- [35:13.070] I'll be picking a new head of the Fed soon.
+- [35:15.500] Our Fed person is absolutely, despite him, we have numbers
+- [35:21.450] that really nobody's ever seen, Vince, right?
+- [35:24.550] Despite him, we have numbers that nobody's ever seen before.
+- [35:28.290] Uh, we're, we're fighting through him
+- [35:30.800] and we'll soon have a good head of the Fed
+- [35:32.370] who's going to want to see interest rates go down,
+- [35:34.720] but we're fighting through higher interest rates,
+- [35:36.510] but the interest rates are coming down despite him.
+- [35:39.290] He's a, an incompetent, he's an incompetent person
+- [35:42.530] who suffers from Trump derangement syndrome, okay?
+- [35:45.350] It's one of those little problems.
+- [35:46.600] We have many of them, but we're fighting through that stuff.
+- [35:49.600] And we have a country that potentially is geared
+- [35:52.520] to have the most incredible golden years ever.
+- [35:56.120] We're going to have, it's the golden age.
+- [35:57.720] I say it's the golden age of America.
+- [35:59.410] When these factories and plants open up by the thousands Toyota
+- [36:03.420] just announced they're going to spend $10 billion
+- [36:05.650] building plants to make Toyotas.
+- [36:08.730] So they're coming from Germany, they're coming from Japan,
+- [36:11.670] they're coming from Canada. Many factories are coming in
+- [36:15.700] because there's, they don't have,
+- [36:17.880] they don't want to pay tariffs. Very simple.
+- [36:19.670] They're coming in and they're spending a tremendous,
+- [36:22.090] they're spending hundreds of billions of dollars.
+- [36:24.840] Our car industry lost 58% of their capacity over the years.
+- [36:30.820] They went to Europe, they went to Mexico, Japan,
+- [36:34.000] they went all over. They went to South South Korea.
+- [36:38.590] And now it's just the opposite. They're all coming back.
+- [36:41.450] We're going to, we have an age that's coming up,
+- [36:43.700] the likes of which I don't think this country has,
+- [36:46.810] this country has never seen.
+- [36:48.730] And I just look so forward to the results.
+- [36:52.700] You're going to see results in six months to a year.
+- [36:55.470] I think you'll see results we've never had anything like it.
+- [36:58.960] Again, there's never been any country. China, wonderful.
+- [37:03.380] I have a great relationship with President Xi.
+- [37:06.140] China's never seen it. Nobody's ever seen it.
+- [37:08.640] And by the way, we're leading in AI by a lot.
+- [37:11.590] AI is a big deal.
+- [37:13.220] And we're leading in AI by a lot.
+- [37:15.640] And the big problem was electricity.
+- [37:17.950] But I allow our plants, in other words,
+- [37:20.360] all of these geniuses that are building
+- [37:22.100] a 60 billion dollar, billion, 60 billion dollar plant,
+- [37:25.960] I allow them to build their own electric capacity
+- [37:29.140] as part of the plant,
+- [37:30.340] and that solved the problem with the old grid.
+- [37:32.860] So they're able to do things
+- [37:34.130] that nobody thought they'd be able to do.
+- [37:36.080] We're getting them very fast approvals,
+- [37:37.640] and many of those plants are right now being built.
+- [37:39.650] So we have things happening like nobody's ever seen before.
+- [37:43.820] We have a great country.
+- [37:45.020] It's a great time to have Christmas.
+- [37:46.970] And I just want to introduce a person who's very outstanding.
+- [37:50.940] She is a great person, a highly respected woman.
+- [37:54.470] Every time I make a speech, I see signs,
+- [37:56.570] "We love our first lady. We love our first lady."
+- [37:59.550] They love our first lady. What can I do?
+- [38:02.310] I don't like it because I think they like her
+- [38:04.150] more than they like me and I am not happy about it.
+- [38:06.610] I am not happy,
+- [38:07.840] but we're going to have to have a discussion about this.
+- [38:10.060] But they love our first lady.
+- [38:11.320] And you know Melania did all of these decorations
+- [38:16.120] and she's gotten great reviews.
+- [38:17.600] The first year she did the trees,
+- [38:19.050] they were, that's right. The first year, year one,
+- [38:23.810] she did the trees that were white
+- [38:25.440] and they were so, you know, snow, beautiful.
+- [38:28.340] And the fake news hit her hard.
+- [38:30.540] The next year, they were red, gorgeous red. They hit her hard.
+- [38:35.240] The next year, there were another color, they hit her.
+- [38:37.210] I said, "Baby, do me a favor. Do me a favor.
+- [38:39.980] Make the trees green. Let them just be green.
+- [38:43.100] They're so beautiful. Let them be green."
+- [38:45.500] Anyway, she has gotten the greatest reviews I've ever seen.
+- [38:48.980] And nobody's ever gotten reviews like this for the White House.
+- [38:53.400] I actually like the white ones better, but (Inaudible)
+- [38:55.290] I going to -- She has done a great job,
+- [38:57.900] and maybe I'll ask her to say a few words.
+- [38:59.560] She loves you all. Thank you very much.
+- [39:04.880] The First Lady: Good afternoon. Welcome to the White House.
+- [39:07.750] Uh, it's nice to see familiar faces.
+- [39:10.290] First of all my thoughts and prayers
+- [39:12.680] go to the families of people who lost the loved ones
+- [39:18.630] around the world in this difficult time.
+- [39:22.550] Uh, we are celebrating here Christmas
+- [39:24.370] and I'm thinking about them what they're going through.
+- [39:27.600] So my heart is with them.
+- [39:30.930] I would like that you enjoy today, the White House.
+- [39:34.180] It's a special place.
+- [39:36.050] And we have a Santa visiting today.
+- [39:39.020] I hope you saw him.
+- [39:40.730] And if not, go to visit him in the green room,
+- [39:43.770] the family's room, a game room. Uh, he's waiting for you.
+- [39:47.390] You could take a pictures and maybe whisper to him
+- [39:50.800] what you would like to have as a present for Christmas.
+- [39:55.320] So enjoy the time.
+- [39:57.100] Wishing you Merry Christmas and a very happy new year
+- [40:00.490] and all the best to your families. Thank you.
+- [40:04.950] (applause)
+- [40:06.690] And I just want to say, go, you're here for a reason.
+- [40:10.790] It's to celebrate Christmas and all of the holidays
+- [40:14.150] and the success of America. But we have the best chefs here.
+- [40:18.270] You are going to love that food, so go and get the food.
+- [40:21.490] Everybody wants to come to the Christmas party.
+- [40:23.590] I have made so many enemies
+- [40:25.570] because you can only have so many.
+- [40:27.550] And I've made so many enemies because I'm saying,
+- [40:29.380] "I'm sorry, we're just not able to accommodate you."
+- [40:31.700] I don't necessarily say it myself, but our people do.
+- [40:34.910] And I think it's 10 to one, Vince, 10 to one.
+- [40:37.740] Uh, the one gets in and the 10 don't.
+- [40:39.820] Though this is not a good, politically,
+- [40:41.880] this is not a good thing, but you're here.
+- [40:44.000] The food is phenomenal. Go eat. Merry Christmas.
+- [40:46.870] Happy Hanukkah, and really have a fantastic year.
+- [40:50.510] We're going to have a great year.
+- [40:52.270] Thank you very much, everybody. Thank you.
+- [40:55.930] ♪ (Christmas music playing) ♪

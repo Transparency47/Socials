@@ -1,0 +1,292 @@
+<!-- source: https://www.youtube.com/watch?v=symBqoJt2YI -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: symBqoJt2YI -->
+<!-- date_published: 2025-08-04T13:18:26+00:00 -->
+<!-- date_accessed: 2026-06-02T01:18:58.467387+00:00 -->
+
+# Transcript: President Trump Gaggles with Press at Lehigh Valley International Airport, Aug. 3, 2025
+
+- [00:00.930] The President: Okay, thank you very much.
+- [00:03.440] We had a very good weekend in many respects.
+- [00:06.780] We're seeing phenomenal numbers in terms of the business
+- [00:11.260] we do with other countries
+- [00:13.060] and the business we do within our own country.
+- [00:16.020] I mean, really phenomenal numbers.
+- [00:18.430] We'll be announcing a new statistician
+- [00:21.460] sometime over the next three or four days.
+- [00:24.470] We had no confidence.
+- [00:25.940] I mean the numbers were ridiculous, what she announced,
+- [00:28.750] but that was just one negative number.
+- [00:30.780] All of the numbers seem to be great,
+- [00:33.170] and so we'll see how that comes out.
+- [00:35.230] And if you remember, just before the election,
+- [00:38.370] this woman came out with these phenomenal numbers
+- [00:41.480] on Biden's economy. Phenomenal numbers.
+- [00:47.520] And then, right after the election
+- [00:49.550] they announced that those numbers were wrong.
+- [00:53.270] And that's what they did the other day.
+- [00:54.810] So, it's a scam, in my opinion.
+- [00:57.880] My opinion is just -- it's just additional scam.
+- [01:01.650] The Press: On Russia, Mr. President,
+- [01:02.990] can you say, have those nuclear submarines
+- [01:06.260] been deployed yet to face Russia?
+- [01:09.310] The President: I've already put out a statement
+- [01:10.930] and the answer is they are in the region.
+- [01:13.260] Yeah, where they have to be.
+- [01:14.640] The Press: Is it the [crosstalk] message will be to the Russians,
+- [01:18.360] is there anything they can do to avoid sanctions at this point?
+- [01:22.020] The President: Yeah, get --
+- [01:23.280] a deal where people stopped getting killed.
+- [01:25.150] They had a number that just came out
+- [01:27.630] that a tremendous number of Russian soldiers
+- [01:31.140] are being killed.
+- [01:32.450] And likewise, Ukraine, a lower number,
+- [01:34.410] but still thousands and thousands of people.
+- [01:37.690] And now we're adding towns where they're being hit by missiles.
+- [01:41.330] So, it's a lot of people being killed in that ridiculous war.
+- [01:45.080] And, you know, we stopped a lot of countries from war.
+- [01:49.500] India and Pakistan. We stopped a lot of countries,
+- [01:53.120] and we're going to get that one stopped, too.
+- [01:56.530] Somehow, we're going to get that ones stopped.
+- [01:58.040] That's a really horrible war.
+- [01:59.940] You know, you heard about Cambodia and Thailand.
+- [02:04.010] We got that one done.
+- [02:05.850] We got the Congo, which was going on for 31 years.
+- [02:10.600] Rwanda. That one's done. We stopped a lot of wars.
+- [02:15.620] This is the one we seem to be --
+- [02:18.480] this should be the easiest to stop, and it's not.
+- [02:21.550] I mean, Rwanda and Congo were going on 31 years
+- [02:24.540] and I got it stopped.
+- [02:26.310] Eight million people dead, at least.
+- [02:28.860] That's what they have, but I think the number is much higher.
+- [02:32.170] And the leaders of each country,
+- [02:33.780] Rwandan and the Congo, they were great.
+- [02:36.510] They were great, and they wanted it stopped;
+- [02:39.340] 31 years it went on. We stopped a lot of wars.
+- [02:43.380] Serbia, Kosovo was going to be happening,
+- [02:48.120] and I don't believe it will now, so we stopped that one, too.
+- [02:50.670] Yes.
+- [02:51.900] The Press: You said you had more of an update to give us
+- [02:53.600] on Gaza, on the Gaza trip. Can you give us anything now?
+- [02:56.530] The President: Only that we want the people fed.
+- [02:59.200] And we're the only country that's really doing that.
+- [03:01.120] We're putting up money to get the people fed,
+- [03:03.040] and Steve Witkoff is doing a great job.
+- [03:05.460] And we want Israel to get them fed.
+- [03:08.890] We're giving some pretty big contributions, basically,
+- [03:13.370] to purchase food so the people can be fed.
+- [03:17.430] We don't want people going hungry,
+- [03:19.010] and we don’t want people to starve.
+- [03:21.080] And there's some bad things happening.
+- [03:23.440] The Press: Have you seen the evidence of a genocide in Gaza?
+- [03:26.720] The President: I don't think -- it's sad.
+- [03:28.080] Look, they're in a war. There -- some horrible things
+- [03:31.840] happened on October 7th, as you know.
+- [03:33.850] It was a horrible, horrible thing.
+- [03:35.930] One of the worst I've ever seen.
+- [03:37.150] I've seen a lot of bad things in some president,
+- [03:39.840] in terms of wars and potential wars.
+- [03:42.330] I mean, if you look at the one that we just stopped,
+- [03:47.260] we had thousands of people being dead
+- [03:49.470] already at the border between Thailand and Cambodia.
+- [03:52.980] Thousands of people.
+- [03:55.340] And, I mean, I've seen some bad things,
+- [03:56.860] but that October 7th with Hamas was really, really bad.
+- [04:01.830] The Press: Mr. President,
+- [04:03.100] can you give us an update on Steve Witkoff in Russia,
+- [04:06.080] and what happens on Friday if the deadline comes and Russia
+- [04:10.380] has not agreed to a ceasefire?
+- [04:11.810] The President: Well, there'll be sanctions,
+- [04:13.050] but they seem to be pretty good at avoiding sanctions.
+- [04:15.420] You know, they're wily characters,
+- [04:18.200] and they're pretty good at avoiding sanctions.
+- [04:20.600] So, we'll see what happens.
+- [04:21.940] But Steve is focused right now on the border in terms of,
+- [04:26.590] we're talking about with Gaza, getting people fed.
+- [04:29.680] And he may be going, I think, next week
+- [04:31.970] Wednesday or Thursday, may be going to Russia.
+- [04:34.590] They would like to see him. They've asked that he meet.
+- [04:37.420] So, we will see what happened.
+- [04:38.770] The Press: Mr. President,
+- [04:40.000] what advice do you have for Republicans on Capitol Hill
+- [04:43.490] heading into midterms? What do they need to do?
+- [04:45.760] What can they do to, you know hold --?
+- [04:47.560] The President: Well, one of the things
+- [04:48.790] they're going to be talking about pretty soon
+- [04:50.320] are the tremendous drop in drug prices.
+- [04:54.250] You know, we've cut drug prices by 1,200,
+- [04:56.960] 1,300, 1 ,400, 1,500 percent.
+- [05:00.670] I don't mean 50 percent, I mean 1,400, 1,550 percent,
+- [05:04.720] because we're going favorite nations.
+- [05:06.460] We want the same price as Europe gets.
+- [05:08.890] We want to the same prices other country gets.
+- [05:11.100] And over the years, 25, 30 years ago,
+- [05:13.650] it started where they were charging us much more.
+- [05:16.920] I put an end to it, you know,
+- [05:18.270] with a letter that you saw last week.
+- [05:19.800] So, I think that's going to be a point.
+- [05:21.770] I don't know how anybody could win an election
+- [05:23.560] if they're on the other side of that issue.
+- [05:26.670] So, we'll be dropping drug prices.
+- [05:28.430] It'll start over the next two to three months by 1,200, 1,300,
+- [05:32.850] and even 1,400 percent and 500 percent,
+- [05:36.600] but not just 50 percent or 25 percent,
+- [05:39.730] which normally would be a lot, because the rest of the world
+- [05:42.980] pays much less for the identical drug.
+- [05:46.340] And we're going to be paying the same thing.
+- [05:47.950] We're going have a favorite nation.
+- [05:49.480] We will pay as low as the lowest nation in the world.
+- [05:52.520] The Press: And then, Mr. President,
+- [05:53.730] I think it just came out $29 billion in July
+- [05:56.460] taken in in tariff revenue.
+- [05:58.780] You know, could we see a potential rebate here
+- [06:00.830] and what would that look like and who would qualify?
+- [06:03.440] The President: Well, we're going to pay down debt.
+- [06:04.780] We have a lot of money coming in,
+- [06:06.180] much more money than the country's ever seen,
+- [06:09.210] by hundreds of billions of dollars.
+- [06:12.950] And there could be a distribution or a dividend
+- [06:15.430] to the people of our country.
+- [06:17.270] I would say for people that would be middle-income people
+- [06:20.080] and lower-income people, we could do a dividend.
+- [06:22.670] But one of the things we're going to be doing
+- [06:24.620] is reducing debt.
+- [06:26.370] But we have hundreds of billions of dollars
+- [06:29.200] pouring into our country now.
+- [06:30.580] We should have done this many years ago.
+- [06:33.110] And I did it in my first term with China.
+- [06:35.100] We didn't get to the rest because COVID hit.
+- [06:37.910] And you couldn't really go to France and Spain and Italy
+- [06:42.190] and say, let's --
+- [06:43.430] you know, let's start talking about some tariffs.
+- [06:46.420] But China was paying us
+- [06:48.500] hundreds of billions of dollars in tariffs,
+- [06:51.530] and we did it then. Then Biden screwed it all up.
+- [06:55.090] He screwed everything he touched.
+- [06:56.340] He screwed it up. Thank you.
+- [06:58.610] The Press: Mr. President, will you endorse
+- [07:00.420] Winsome Earle-Sears in the Virginia governor's race?
+- [07:04.030] The President: Yeah, I would. I mean, I would.
+- [07:05.470] I think probably she's got a tough race.
+- [07:07.270] She should -- she shouldn't have.
+- [07:10.150] But because the candidate she's running against
+- [07:14.020] is not very good.
+- [07:15.690] But I think she's going to tough race, but I would, yeah.
+- [07:20.420] The Press: When will you swear in Jeanine Pirro
+- [07:22.920] to be the U.S. Attorney for D.C.?
+- [07:24.900] The President: -- swear in Jeanine Pirro,
+- [07:26.940] who's going to be fantastic in what she does in D.C.
+- [07:31.050] over the next very short period of time.
+- [07:33.910] I think she's going be fantastic.
+- [07:35.520] Don't forget, Jeanine Pirro was a great judge
+- [07:38.510] and a great prosecutor.
+- [07:40.190] And because she was so good -- I was there.
+- [07:42.390] She was an amazing prosecutor and judge.
+- [07:46.140] And because she was good,
+- [07:47.540] they drafted her into show business, and she did fantastic.
+- [07:50.680] You know, the Five was the number one show, etc., etc.
+- [07:53.930] Now, Jeanine Pirro was also really good at that.
+- [07:57.960] But her real love is exactly what she's doing.
+- [08:00.600] And that's what made her such a success in show business.
+- [08:04.010] So, Jeanine Pirro is going to be amazing.
+- [08:06.490] And I'll swear her in as soon as we can swear her in,
+- [08:09.920] we need her. She's going to amazing.
+- [08:12.360] The Press: Mr. President, are you happy
+- [08:13.710] with how the Rose Garden turned out,
+- [08:15.470] and will you have some kind of event?
+- [08:16.940] The Rose Garden, are you happy how it turned out?
+- [08:19.440] The President: Great reviews on the Rose Garden.
+- [08:20.790] And we had to do it.
+- [08:22.040] As an example, when we had a press conference,
+- [08:24.950] you'd sink into the mud.
+- [08:26.930] And there was grass, and it was very wet.
+- [08:29.040] Always wet, damp, but wet.
+- [08:31.550] And if it rained, it would take three,
+- [08:32.840] four, five days for it to dry out.
+- [08:36.430] And we couldn't use it for really the intended purpose.
+- [08:38.980] So, whether they had events or they had news conferences,
+- [08:42.430] we couldn't use it.
+- [08:44.030] And it's a beautiful white stone,
+- [08:45.610] and it's the stone that's the same color
+- [08:47.660] as the White House itself.
+- [08:49.740] And because it's very white, it's going to reflect the heat.
+- [08:52.870] It's not going to be very hot, like if you had a dark stone.
+- [08:56.160] So, yeah, we've gotten great reviews on the Rose Garden.
+- [08:59.130] The Press: Do you have any update on the search
+- [09:01.150] for the Federal Reserve Board? Have you been interviewing them?
+- [09:04.380] The President: Yeah, no, I have a couple of people in mind.
+- [09:06.090] I'll be announcing somebody
+- [09:08.100] for the filling of the person that left.
+- [09:11.510] A woman left, as you know, who was a,
+- [09:13.960] I guess a Biden appointment, either Biden or Obama,
+- [09:18.210] but I think a Biden Appointment.
+- [09:20.260] And she left early, and I think she left
+- [09:21.970] because she agreed with me on interest rates,
+- [09:24.340] and yet they were on the other side of the ballpark.
+- [09:26.580] Right? So, I'll announcing
+- [09:28.850] that probably over the next couple of days.
+- [09:34.430] The Press: Mr. President, one more on tariffs here.
+- [09:36.480] As you continue, you know, to pile up these trade deals,
+- [09:39.490] are you kind of gaining more leverage over countries
+- [09:42.070] that haven't come out and made a deal?
+- [09:44.670] The President: I'm not looking for leverage.
+- [09:46.120] I'm looking for fairness.
+- [09:48.210] We want reciprocal as much as possible.
+- [09:50.970] Sometimes reciprocal would be too much for them to handle
+- [09:54.110] because it would be a much bigger number.
+- [09:57.680] But we want to see some reciprocity.
+- [10:00.720] We want to see reciprocal wherever we can.
+- [10:02.770] And all I can say is this,
+- [10:04.870] our country will be taking in hundreds of billions of dollars.
+- [10:08.700] You just said it.
+- [10:09.930] Already, we're taking in, you know,
+- [10:11.510] billions and billions of dollars.
+- [10:13.170] And it was very unfair.
+- [10:14.890] The world treated us very unfair,
+- [10:17.210] but the next big move is going to be the price of drugs,
+- [10:21.460] because you could buy something in London or in Germany,
+- [10:24.960] someplace in Germany or many countries,
+- [10:28.520] where it's one-tenth, one-third, one-fourth,
+- [10:33.200] but sometimes one-tenth the price of what it costs
+- [10:36.230] to buy it in New York or some other place.
+- [10:38.580] And we're not doing that anymore.
+- [10:40.050] We're not allowing that anymore. That started many years ago
+- [10:43.910] when people were asleep at the wheel in this country,
+- [10:47.840] and they allowed that to happen, and I'm stopping it.
+- [10:50.470] The Press: I'm a UN ambassador.
+- [10:51.740] Will that still be a cabinet-level position,
+- [10:53.330] sir, or not?
+- [10:54.530] The President: I don't know. I haven't determined that yet.
+- [10:56.710] That's a good question. I'll make a decision.
+- [10:59.420] He's a very good guy, but I'll makes a decision.
+- [11:01.930] The Press: Mr. President, what is your relationship
+- [11:03.890] with Laura Loomer? What kind of influence?
+- [11:05.380] The President: Who?
+- [11:06.630] The Press: With Laura Loomer, what kind of influence
+- [11:08.100] does she have in the White House?
+- [11:09.340] The President: I think she's very nice.
+- [11:10.550] I mean, I know she's known as a radical right,
+- [11:13.750] but I think Laura Loom is a very nice person.
+- [11:16.170] I've known her for a long time,
+- [11:18.300] and, you know, personally, I think that she's a patriot.
+- [11:21.630] And she gets excited because of the fact that she is a patriot,
+- [11:24.740] and she doesn't like things going on
+- [11:27.390] that she thinks are bad for the country.
+- [11:29.380] I like her.
+- [11:31.580] The Press: Mr. President, actress Sydney Sweeney,
+- [11:33.900] it came out this weekend that she was a registered Republican.
+- [11:36.900] Any thoughts on that? The President: Who was?
+- [11:38.320] The Press: Sydney Sweeney,
+- [11:39.560] she's like a very hot actress right now.
+- [11:41.030] The President: She's a registered Republican?
+- [11:42.290] The Press: Yes.
+- [11:43.560] The President: Oh, now I love her ad.
+- [11:45.460] Is that right, is Sydney Sweeney ad?
+- [11:48.100] You'd be surprised at how many people are Republicans.
+- [11:52.070] That's what I wouldn't have known,
+- [11:53.360] but I'm glad you told me that.
+- [11:56.120] If Sydney Sweeney is a registered Republican,
+- [11:59.690] I think her ad is fantastic.
+- [12:01.610] Okay, thank you very much, everybody.
+- [12:03.700] The Press: Thank you, Mr. President.

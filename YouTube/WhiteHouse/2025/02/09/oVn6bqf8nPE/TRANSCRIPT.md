@@ -1,0 +1,715 @@
+<!-- source: https://www.youtube.com/watch?v=oVn6bqf8nPE -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: oVn6bqf8nPE -->
+<!-- date_published: 2025-02-09T23:47:53+00:00 -->
+<!-- date_accessed: 2026-06-02T01:30:08.372324+00:00 -->
+
+# Transcript: President Trump Signs Proclamation Regarding Gulf of America Day
+
+- [00:00.610] The President: Hello, everybody.
+- [00:01.870] The Press: Hello, sir.
+- [00:03.150] The President: How are you? Nice to see you.
+- [00:06.310] Are you all set? We're flying over right now,
+- [00:10.710] we're flying over a thing called the Gulf of America,
+- [00:14.520] and I'm signing a proclamation
+- [00:16.640] and perhaps you could define that.
+- [00:19.050] The Press: This is a proclamation declaring today,
+- [00:21.660] February 9th, 2025, as the first ever Gulf of America Day.
+- [00:26.870] This follows the president's executive order
+- [00:29.200] issuing a name change from the Gulf of Mexico
+- [00:32.330] to the Gulf of America.
+- [00:34.640] The President: And we're flying right over it right now.
+- [00:37.230] So we thought this would be appropriate,
+- [00:40.590] even bigger than the Super Bowl. This is a big thing.
+- [00:43.910] And almost everybody now has assented to that-
+- [00:48.520] The Press: Attention on board, ladies and gentlemen,
+- [00:50.300] if you could please direct your attention
+- [00:51.710] out the right side of the aircraft,
+- [00:53.790] Air Force One is currently in international waters,
+- [00:56.360] the first time in history
+- [00:57.690] flying over the recently renamed Gulf of America.
+- [01:01.640] Please enjoy the flight
+- [01:03.000] and we are now about to head westbound to Super Bowl LIX.
+- [01:07.160] The President: Wow. He did that well.
+- [01:12.940] Isn't that nice? Make America great again, right?
+- [01:17.170] That's what we care about. Okay, here we go.
+- [01:31.210] So this is a famous pen now, and we'll put it with something,
+- [01:36.660] I'll ask you to do whatever you think
+- [01:39.550] we should do with it, Mr. Secretary.
+- [01:41.990] Do you want to talk about Doug, secretary of the interior
+- [01:45.200] and also working with Chris Wright
+- [01:47.660] on extracting vast amounts of oil and gas
+- [01:52.110] and making our country rich?
+- [01:54.280] Would you like to say something, Doug?
+- [01:55.840] Mr. Burgum: Well, with the Gulf of America,
+- [01:57.570] this historic day, we want to thank President Trump,
+- [02:00.830] his executive order is what set this in motion.
+- [02:04.230] We signed a secretarial order as secretary of interior
+- [02:08.230] directing the US Geologic Survey,
+- [02:11.200] who is responsible for the database,
+- [02:13.480] which is the geographic names informational system.
+- [02:17.580] And so just prior to this signing,
+- [02:20.200] if you will, the button was pushed.
+- [02:21.760] It became official with this proclamation to call today
+- [02:25.800] Gulf of America Day, but now it's going out.
+- [02:28.680] As we're sitting here right now,
+- [02:30.830] our team is calling all the map providers.
+- [02:33.290] So Google Maps, Apple Maps, all the map people,
+- [02:36.590] that change will take effect this afternoon
+- [02:39.760] to Gulf of America.
+- [02:41.090] So, again, fantastic. Thank you, President Trump,
+- [02:44.520] for setting this all in motion with your executive order.
+- [02:46.720] It's an exciting, exciting, fun day and great to do this
+- [02:50.090] as we're flying over the Gulf of America.
+- [02:53.810] The President: We thought it would be very appropriate.
+- [02:55.920] We thought it would be appropriate.
+- [02:57.310] Catherine, thank you very much for being here.
+- [03:00.170] You've been a very important part of his life.
+- [03:02.030] And who knows what would've happened to him without you.
+- [03:05.910] It might not have been good. Here you go. Okay.
+- [03:10.740] The Press: Have you talked to Mexico about this?
+- [03:14.080] Did they-
+- [03:15.300] The President: Actually, interestingly,
+- [03:16.530] I've never spoken to them about it.
+- [03:18.480] It was our call and I have not spoken to them about…
+- [03:22.090] I've spoken about many other things,
+- [03:23.800] but I haven't really talked to them about this.
+- [03:25.310] They have never brought it up.
+- [03:27.140] I'm a little surprised at that, but they've never brought it up.
+- [03:30.080] The Press: Sir, can you tell us about your conversation
+- [03:31.950] with Vladimir Putin?
+- [03:33.470] The President: I don't want to hear that name.
+- [03:34.800] We're trying to end that war. [inaudible 00:03:36]
+- [03:36.940] that would've never happened if I were president.
+- [03:39.460] Would've never happened.
+- [03:41.210] But we're making progress, but I can't tell you.
+- [03:44.530] The Press: You suffered a couple of court losses, Mr. President,
+- [03:46.230] and JD Vance said judges aren't allowed
+- [03:48.070] to control the executive power. What's your take on that?
+- [03:50.140] The President: Well, we're going to see what happens.
+- [03:51.520] We have a long way to go.
+- [03:52.730] And we're talking about fraud, waste, abuse,
+- [03:58.000] and when a president can't look for fraud,
+- [04:00.030] and waste, and abuse, we don't have a country anymore.
+- [04:02.400] So we're very disappointed with the judges
+- [04:05.280] that would make such a ruling. But we have a long way to go.
+- [04:09.010] We have to find all of the fraud that's going on.
+- [04:11.550] We have tremendous fraud, tremendous waste,
+- [04:14.510] and tremendous abuse, and theft, by the way.
+- [04:19.270] And the day you're not allowed to look for theft and fraud,
+- [04:21.840] et cetera, then we don't have much of a country.
+- [04:24.710] So no judge should frankly be allowed to make that decision.
+- [04:30.720] It's a disgrace.
+- [04:31.930] The Press: Mr. President, Gulf of America, Canada,
+- [04:35.630] Greenland, Gaza, all these are very muscular foreign policy.
+- [04:40.000] How does this align with America First?
+- [04:42.480] The President: Because it makes us bigger,
+- [04:43.700] stronger, and better, and more protective.
+- [04:46.560] We need Greenland because of national security,
+- [04:51.090] international security, world security, world fees,
+- [04:55.090] and we'll have to do that.
+- [04:58.140] Canada, we'll see what happens with Canada,
+- [05:00.070] but the people of Canada would be paying
+- [05:01.950] less than half of the tax. If you look at the tax,
+- [05:05.060] they're going to be paying less than half the tax.
+- [05:07.880] They don't pay very much for military,
+- [05:09.580] and the reason they don't pay much
+- [05:11.320] is they assume that we're going to protect them.
+- [05:13.890] That's not an assumption they can make
+- [05:15.640] because why are we protecting another country?
+- [05:18.160] Now I love the people of Canada, we have a great relationship,
+- [05:21.520] but if they became our 51st state,
+- [05:23.600] it'd be the greatest thing they could ever do.
+- [05:25.880] It'd be unbelievable. It would be a cherished state.
+- [05:29.150] And think of how beautiful that country would be
+- [05:31.890] without that artificial line running right through it.
+- [05:34.790] Somebody drew it many years ago with a ruler, just a line.
+- [05:38.750] You look at how beautiful that is,
+- [05:40.350] wow, it would be very exciting, but if you look at Canada
+- [05:44.080] and would be cherished as a 51st state.
+- [05:47.420] They don't pay their share of military and NATO.
+- [05:50.140] They pay very little for military.
+- [05:52.170] They're not protected at all.
+- [05:54.060] And the reason is they think we're going to protect them.
+- [05:56.910] The other thing is we subsidize them
+- [05:59.130] to the tune of about $200 billion a year.
+- [06:02.800] If we stop doing that,
+- [06:04.110] if we stop allowing them to make cars through tariffs
+- [06:07.180] and other things, cars, trucks,
+- [06:09.030] et cetera, what they make, they're not viable as a country.
+- [06:13.740] The Press: So would you agree
+- [06:15.020] that it's a more aggressive foreign policy
+- [06:17.720] than your first term? And why is that?
+- [06:19.900] The President: It's more aggressive.
+- [06:21.940] It's better. Why?
+- [06:23.860] Because I think I've had a lot of experience.
+- [06:27.120] And in my first term, I was fighting everybody
+- [06:29.220] because they were very aggressive toward me.
+- [06:32.390] I always said survival and taking care of the country,
+- [06:35.450] not necessarily in that order.
+- [06:37.970] But I had to take care of the country,
+- [06:39.410] but I had a bunch of lunatics like Pelosi
+- [06:41.750] and all of these people,
+- [06:43.040] they fought me, fought me, fought me, and we won.
+- [06:47.480] And I had a lot of other things that were going on there.
+- [06:50.270] This time, it's much more… They've lost their confidence.
+- [06:54.650] I think they've lost the respect of the American people
+- [06:57.160] with men participating
+- [06:59.450] in women's sports with open borders,
+- [07:01.670] with transgender for everybody,
+- [07:03.960] for all the things that they're doing is so bad
+- [07:07.050] when you allow people to empty their jails
+- [07:09.660] into your country with prisoners,
+- [07:11.450] killers, their mental institutions,
+- [07:14.510] and insane asylums into our country.
+- [07:18.480] This is what they're doing.
+- [07:20.000] When you allow gang members from Venezuela,
+- [07:22.230] but many other countries coming into our country,
+- [07:24.940] we're getting them all out now. They've lost their credibility,
+- [07:28.630] but they've also lost their confidence.
+- [07:30.420] So I have more time to do what I want to do.
+- [07:34.640] So we're making our country larger,
+- [07:36.980] we're making our country stronger.
+- [07:39.420] And in the case of Canada, if this should happen,
+- [07:42.290] I don't know how they can do it without us.
+- [07:44.760] Because without the US, Canada really doesn't have a country.
+- [07:48.520] They do almost all of their business with us.
+- [07:51.500] And if we say we want our cars to be made in Detroit,
+- [07:55.100] with a stroke of a pen, I can do that.
+- [07:57.600] And other things in addition to that,
+- [08:01.190] would not allow Canada to be a viable country.
+- [08:05.320] The Press: Mr. President,
+- [08:06.540] you said you're going to honor first responders today,
+- [08:09.730] but you pardoned hundreds of people
+- [08:11.980] who assaulted first responders. Why did you do that?
+- [08:14.080] The President: Who? [inaudible]?
+- [08:15.390] The Press: You were going to meet
+- [08:17.500] with first responders today,
+- [08:19.710] but you pardoned people who assaulted first responders-
+- [08:22.910] The President: I pardoned people that were assaulted themselves.
+- [08:26.080] They were assaulted by our government.
+- [08:28.320] I pardoned J6 people who were assaulted by our government.
+- [08:33.750] That's who assaulted… And they were treated unfairly.
+- [08:37.410] There's never been a group of people in this country,
+- [08:39.780] outside of maybe one instance that I can think of,
+- [08:42.930] but I won't get into it,
+- [08:44.500] that were treated more horribly than the people of J6.
+- [08:48.650] So, no, they didn't assault. They were assaulted.
+- [08:53.860] And what I did was a great thing for humanity.
+- [08:56.350] They were treated very, very unfairly.
+- [08:58.250] There's never been an incident like it.
+- [09:01.800] The Press: Two more policy questions.
+- [09:03.270] On Putin, again, you realize if you don't clarify
+- [09:05.720] that everyone's going to assume you're talking to
+- [09:08.100] President Putin regularly, are you-
+- [09:09.850] The President: [inaudible].
+- [09:11.090] It makes sense, but I don't want to talk about it.
+- [09:13.170] And if we are talking,
+- [09:14.370] I don't want to tell you about the conversation.
+- [09:15.980] It's too early.
+- [09:17.210] But I do believe we're making progress.
+- [09:19.460] We want to stop the Ukraine-Russia war,
+- [09:22.580] and I want to stop it just
+- [09:23.940] because I hate to see all these young people being killed.
+- [09:27.620] The soldiers are being killed by the hundreds of thousands.
+- [09:31.120] The Press: So you're starting to put together a plan
+- [09:33.030] for a peace formula or for some resolution?
+- [09:35.580] The President: We're talking to both sides. Yeah.
+- [09:37.390] The Press: Okay. And then on Japan,
+- [09:39.350] are you okay with having a foreign country
+- [09:41.240] having a controlling interest in US Steel company?
+- [09:44.140] The President: Well, let's look at this.
+- [09:47.040] When I came here, they were going to buy it,
+- [09:48.730] and Biden was going to approve it.
+- [09:50.250] All of a sudden, Biden didn't because
+- [09:51.850] he heard I wasn't going to.
+- [09:53.480] I don't want US steel being owned by a foreign country-
+- [09:58.650] The Press: Controlling interest is okay?
+- [09:59.910] The President: They don't have a controlling…
+- [10:01.200] They have an investment.
+- [10:02.940] All they're going to have is an investment.
+- [10:05.500] I don't mind an investment in a company,
+- [10:09.250] but especially US Steel… US Steel, for 15 years,
+- [10:12.960] was the greatest company in the world,
+- [10:14.690] the greatest number-one company in the world.
+- [10:17.410] And I'm not going to let another country buy.
+- [10:19.990] We had a great meeting on that,
+- [10:21.530] but they are allowed to invest in it, and that's different.
+- [10:24.960] The Press: Mr. President, on tariffs, sir,
+- [10:26.350] you've talked about reciprocal tariffs coming in this week.
+- [10:28.950] Can you tell us a little bit more about that?
+- [10:30.760] And are you announcing a plan for it this week or will-
+- [10:35.400] The President: I'll be announcing probably
+- [10:36.790] Tuesday or Wednesday
+- [10:38.030] at a news conference, reciprocal tariffs.
+- [10:40.210] And very simply, it's if they charge us, we charge them.
+- [10:43.550] That's all.
+- [10:44.780] The Press: When is it going into effect, sir?
+- [10:46.610] The President: Almost immediately.
+- [10:48.100] But I'll be announcing the details of it, highly detailed,
+- [10:51.710] and it'll be great for everybody including the other countries.
+- [10:55.500] But if they are charging us 130%
+- [10:58.190] and we're charging them nothing, it's not going to stay that way.
+- [11:01.520] The Press: Is this on every country?
+- [11:03.370] The President: Every country will be reciprocal.
+- [11:06.010] The Press: Mr. President, can you confirm that-
+- [11:07.390] The President: It won't affect everybody
+- [11:08.700] because there's somewhere, we have similar tariffs,
+- [11:11.870] but the ones that are taking advantage of the United States,
+- [11:14.620] we're going to have a…
+- [11:15.890] It's reciprocity. It's reciprocal.
+- [11:18.150] We're going to have a reciprocal tariff.
+- [11:19.550] But we'll have a news conference Tuesday or Wednesday.
+- [11:22.740] The Press: And just on the steel question,
+- [11:24.370] just so I understand it correctly-
+- [11:25.740] The President: We'll also be announcing steel tariffs
+- [11:27.210] on Monday.
+- [11:29.040] The Press: Tomorrow?
+- [11:30.330] The President: Monday. Yeah, tomorrow.
+- [11:31.640] The Press: What countries will those go on?
+- [11:33.050] The President: Everybody. Steel.
+- [11:34.420] The Press: Including Canada and Mexico-
+- [11:35.630] The President: Yeah, any steel coming into the United States
+- [11:38.350] is going to have a 25% tariff.
+- [11:41.100] The Press: What about aluminum, sir?
+- [11:42.380] The President: Aluminum too.
+- [11:44.490] The Press: 10% [inaudible]? The President: No, 25%.
+- [11:45.850] The Press: 25 for aluminum-
+- [11:47.120] The President: 25. For both.
+- [11:48.350] The Press: For both.
+- [11:49.550] And on steel, sir, are you ruling out
+- [11:50.900] then Nippon Steel having a 51% stake or higher,
+- [11:54.730] they won't have a majority stake?
+- [11:56.420] The President: Nobody can have a majority stake for US Steel.
+- [11:58.800] They can for other companies, but not for US Steel.
+- [12:01.790] I think you agree with that, Doug. Right?
+- [12:03.540] US Steel was one of our great companies.
+- [12:06.150] And through a lot of stupidity, and bad government,
+- [12:08.680] and also bad management of the company,
+- [12:11.530] it lost that luster.
+- [12:13.500] But it's going to gain it back, and tariffs are going to help.
+- [12:16.430] Tariffs are going to make it very successful again,
+- [12:19.140] and I think it is good management now. Yeah.
+- [12:22.010] The Press: Sorry, may I ask one, please?
+- [12:24.930] Can you confirm that you'll be meeting with MBS
+- [12:27.730] and Sisi of Egypt soon?
+- [12:29.440] Will that be at the White House or-
+- [12:30.980] The President: Well, I'll be meeting
+- [12:32.210] with all of them numerous times, by the way,
+- [12:34.430] but I'll be meeting with all of them.
+- [12:36.750] And, yeah, I think that it's a big mistake to allow people,
+- [12:39.670] the Palestinians or the people living in Gaza,
+- [12:42.610] to go back yet another time.
+- [12:45.100] And we don't want Hamas going back.
+- [12:47.990] And think of it as a big real estate site,
+- [12:51.750] and the United States is going to own it
+- [12:54.330] and we'll slowly, very slowly, we're in no rush, develop it.
+- [12:58.930] We're going to bring stability to the Middle East,
+- [13:01.080] to a totally war-torn part of the Middle East.
+- [13:05.420] And part of the Middle East has caused tremendous problem.
+- [13:09.120] Tremendous problem. The Gaza Strip.
+- [13:11.840] And we'll own it… It's totally demolished right now.
+- [13:14.150] It's a demolition site. It'll be reclaimed.
+- [13:18.510] It'll be leveled out, fixed up. There won't be anybody there.
+- [13:22.990] Hamas won't be there. We'll be building through
+- [13:26.820] other of the very rich countries in the Middle East.
+- [13:29.860] They'll be building some beautiful sites for the people,
+- [13:33.350] for the Palestinians to live in.
+- [13:36.470] They'll be living in harmony and peace
+- [13:38.370] probably for the first time in hundreds of years.
+- [13:41.750] The Press: And just to clarify, I know you don't want to tell us
+- [13:43.880] about your conversation with President Putin,
+- [13:46.110] but can you clarify whether you had that
+- [13:48.060] since you've been in office
+- [13:50.710] or whether it happened before you became president?
+- [13:52.540] The President: I've had it. Let's just say I've had it.
+- [13:54.360] The Press: As president-
+- [13:55.600] The President: And I expect to have many more conversations.
+- [13:58.270] We have to get that war ended. It's going to end.
+- [14:01.130] And we have to get it ended,
+- [14:02.360] and we have to get it ended soon.
+- [14:03.870] Should have never happened.
+- [14:05.110] Would've never happened if I was president.
+- [14:06.650] The Press: Mr. President, a couple of years ago,
+- [14:08.380] your vice president suggested that if the Supreme Court rules
+- [14:12.390] in a way you don't like, just let them enforce it.
+- [14:15.090] Do you agree with that?
+- [14:16.640] The President: Say the last part.
+- [14:18.190] The Press: The vice president suggested that
+- [14:20.350] if the Supreme Court rules in a way that you don't like,
+- [14:23.790] they can just enforce it by themselves.
+- [14:25.600] Do you agree with that?
+- [14:27.070] The President: I don't know even what you're talking about.
+- [14:29.650] Neither do you. Who are you with?
+- [14:31.900] The Press: HuffPost, sir.
+- [14:33.170] The President: Who? The Press: HuffPost.
+- [14:34.410] The President: No wonder. I thought they died.
+- [14:37.290] Are they still around? I haven't read them in years.
+- [14:39.870] I thought that died. All right, go ahead.
+- [14:42.630] The Press: On security clearance,
+- [14:43.980] as you've been yanking a lot of them,
+- [14:45.430] why does it make the country safer
+- [14:46.680] to take away the AG's security clearance
+- [14:48.690] and is that a form of retribution, which is-
+- [14:50.110] The President: If there's somebody now,
+- [14:53.350] if there are people that we don't respect,
+- [14:55.250] if there are people that we thought
+- [14:56.660] that were breaking the law,
+- [14:58.270] okay, very close to it in previous years, we do it.
+- [15:01.770] And we've done it with some people.
+- [15:04.210] We've done it with Biden himself.
+- [15:07.270] Biden himself.
+- [15:09.330] We think our country is not as safe if you gave him clearance,
+- [15:13.440] we don't think he knows what he's doing.
+- [15:15.150] And what he's done to this country is a disgrace.
+- [15:17.830] And what he's done in terms of allowing criminals,
+- [15:21.530] murderers, drug lords into our country,
+- [15:24.050] people from mental institutions into our country,
+- [15:27.090] he should be ashamed of himself.
+- [15:28.710] The Press: Is that a legally valid reason-
+- [15:30.350] The Press: On deportations, there's been some reporting
+- [15:32.140] that you've been upset
+- [15:33.360] that there haven't been more deportations.
+- [15:35.190] Can you clarify that?
+- [15:36.430] The President: I think they're doing an incredible job.
+- [15:38.030] It's very tough. Deportations, finding murderers is not easy.
+- [15:42.920] Some of them are actually very smart.
+- [15:45.230] They shouldn't be in our country.
+- [15:47.130] We had beautiful… We just set records for closure.
+- [15:51.270] We have the strongest border
+- [15:53.220] we've had in many years since my term,
+- [15:56.690] but maybe even for many, many years, decades before that.
+- [16:01.910] No, they're doing an amazing job.
+- [16:05.700] I think Tom Homan is doing an amazing job.
+- [16:08.930] Kristi Noem is doing an amazing job.
+- [16:11.540] But it's not easy finding murderers
+- [16:13.840] who know they're being looked for.
+- [16:16.270] But we're sending out thousands of people.
+- [16:19.140] We're getting rid of thousands of criminals from our country.
+- [16:22.920] The Press: [inaudible]
+- [16:24.120] you expect to meet him in person anytime-
+- [16:26.310] The President: Where?
+- [16:27.650] The Press: Putin, do you anticipate meeting
+- [16:28.890] with him in person?
+- [16:30.130] The President: I would imagine I would be meeting with Putin,
+- [16:31.680] yes, at the right time.
+- [16:33.720] I think at the right time, at the appropriate time.
+- [16:36.130] The Press: Mr. President, back on Gaza,
+- [16:37.870] the White House press secretary told us last week
+- [16:42.370] that you're committed to rebuilding Gaza.
+- [16:45.210] Steve Witkoff said that process would take 10 to 15 years.
+- [16:49.620] Does your commitment to rebuilding Gaza
+- [16:51.960] extend beyond your time in office?
+- [16:54.480] The President: I'm committed to buying and owning Gaza.
+- [16:58.570] As far as us rebuilding it,
+- [17:00.620] we may give it to other states in the Middle East
+- [17:03.050] to build sections of it.
+- [17:05.260] Other people may do it through our auspices,
+- [17:08.430] but we're committed to owning it, taking it,
+- [17:11.850] and making sure that Hamas doesn't move back.
+- [17:14.790] There's nothing to move back into.
+- [17:16.530] The place is a demolition site.
+- [17:22.330] The remainder will be demolished.
+- [17:24.440] Everything's demolished.
+- [17:25.670] I mean, you can't live in those buildings right now.
+- [17:27.770] They're very unsafe.
+- [17:29.310] But we'll make it into a very good site
+- [17:32.510] for future development by somebody.
+- [17:35.300] We'll let other countries develop parts of it.
+- [17:37.460] It'll be beautiful.
+- [17:38.710] People can come from all over the world and live there,
+- [17:41.840] but we're going to take care of the Palestinians.
+- [17:44.320] We're going to make sure they live beautifully,
+- [17:45.950] and in harmony, and in peace, and that they're not murdered.
+- [17:48.750] This has been the most dangerous site
+- [17:51.120] anywhere in the world to live in.
+- [17:53.030] Hamas has been a disaster.
+- [17:54.860] And by the way, I have to tell you
+- [17:56.410] that I watched the hostages come back today
+- [18:00.800] and they looked like Holocaust survivors.
+- [18:04.680] They were in horrible condition. They were emaciated.
+- [18:09.570] It looked like many years ago, the Holocaust survivors.
+- [18:15.580] And I don't know how much longer we can take that,
+- [18:19.450] when I watch that.
+- [18:21.000] I know we have a deal where we're supposed to get,
+- [18:22.950] they dribble in and keep dribbling in,
+- [18:25.910] but they are in really bad shape.
+- [18:28.010] They have been treated brutally, horribly.
+- [18:30.770] Even the ones that came out earlier,
+- [18:32.300] they were in a little bit better shape,
+- [18:33.660] but, mentally, they were treated so badly.
+- [18:37.280] Who could take that?
+- [18:39.580] At some point, we're going to lose our patience.
+- [18:43.210] When I see that scene that I saw today
+- [18:45.290] with people coming out of helicopters
+- [18:48.680] and airplanes that are emaciated,
+- [18:51.420] that look like they haven't had a meal in a month,
+- [18:55.740] no reason for that.
+- [18:57.000] And I don't know how much longer we can take it.
+- [18:59.040] The Press: Do you mean you want to
+- [19:00.330] [inaudible] the hostages-
+- [19:01.550] The President: I don't know how long we can take it.
+- [19:03.410] When I watched people that were healthy people
+- [19:07.590] a reasonably short number of years ago,
+- [19:10.130] and you look at them today,
+- [19:12.030] they look like they've aged 25 years.
+- [19:16.060] They literally looked like the old pictures
+- [19:18.940] of Holocaust survivors.
+- [19:20.470] The same thing. I mean, the same thing.
+- [19:23.370] And I don't know how long we're going to take that.
+- [19:27.260] The Press: Mr. President,
+- [19:28.460] have you gotten some advancement in your proposals
+- [19:32.070] for some of the Gulf or Arab nations
+- [19:33.980] to take some of the Palestinian people?
+- [19:36.290] And if not, what do you think the reason is
+- [19:38.990] for their hesitance? Is there some very honest reason
+- [19:41.900] that they've even told you privately
+- [19:43.560] or that you think why they're hesitant
+- [19:45.210] to take the Palestinian people?
+- [19:47.130] The President: Why are they hesitant to take them?
+- [19:49.310] Because they never spoke to me.
+- [19:51.950] They spoke to other people, they didn't speak to me.
+- [19:54.440] When they speak to me, they're going to take them.
+- [19:56.320] The Press: Is it because they think
+- [19:57.520] that you would not allow them to return to Gaza?
+- [19:59.590] Is that part of it?
+- [20:00.880] The President: They don't want to return to Gaza.
+- [20:02.750] If we could give them a home in a safer area,
+- [20:06.430] the only reason they're talking about returning to Gaza
+- [20:09.420] is they don't have an alternative.
+- [20:11.020] When they have an alternative,
+- [20:12.310] they don't want to return to Gaza.
+- [20:14.230] If they had a home that was safe
+- [20:16.310] where you don't have Hamas threatening them,
+- [20:19.340] killing them, torturing them,
+- [20:22.040] they'd rather not return to Gaza.
+- [20:23.950] But right now, Gaza is the only alternative.
+- [20:26.690] As far as the other regions,
+- [20:28.830] the only reason they maybe don't act enthusiastic
+- [20:31.500] is they haven't talked to me.
+- [20:32.920] They talk to other people, but not to me.
+- [20:34.530] When they talk to me, they'll be enthusiastic.
+- [20:36.160] The Press: And then on spending,
+- [20:37.870] you found some maybe questionable expenditures
+- [20:40.250] or Elon Musk has found them-
+- [20:41.540] The President: Not some questionable.
+- [20:43.600] The whole country looks like it's a fraud.
+- [20:46.290] It's fraud, waste, abuse, but it's a tremendous fraud.
+- [20:50.860] And what Elon and his group of geniuses
+- [20:53.740] have found is unbelievable. It's unbelievable.
+- [20:57.890] And that's just in USAID.
+- [21:01.030] Soon, we're going into education.
+- [21:03.820] You'll find the same thing, but bigger.
+- [21:06.040] Soon, we're going into the military
+- [21:08.040] and you're going to find a lot of bad things happening there.
+- [21:11.280] You'll find it because our government
+- [21:13.820] has not functioned properly for many, many years,
+- [21:16.570] and we're going to make it function properly.
+- [21:19.580] We're even looking at treasuries.
+- [21:21.060] There could be a problem.
+- [21:22.310] You've been reading about that with treasuries,
+- [21:25.060] and that could be an interesting problem
+- [21:26.730] because it could be that a lot of those things don't count.
+- [21:30.150] In other words, that some of that stuff
+- [21:32.570] that we're finding is very fraudulent,
+- [21:35.970] therefore maybe we have less debt than we thought of.
+- [21:37.940] Think of that.
+- [21:39.230] So a lot of things are happening.
+- [21:40.960] But Elon's doing an excellent job.
+- [21:43.200] We started with 12 guys with high IQs
+- [21:46.040] and now we have 100 guys with very high IQs.
+- [21:49.050] The Press: Do you think Congress has failed to do their oversight
+- [21:51.350] or do you think your first administration,
+- [21:52.990] some of your cabinet agencies failed to-
+- [21:54.490] The President: I think everybody failed.
+- [21:55.790] I think everybody failed.
+- [21:57.600] The Press: Why does Elon's financial disclosure
+- [21:59.480] remain secret?
+- [22:02.820] The President: Because nobody's looking at that.
+- [22:04.240] We're looking at all the corruption that's taken place.
+- [22:06.820] I mean, his financial disclosure is largely the number of shares
+- [22:11.120] that he's got in very public companies,
+- [22:12.960] and that's not secret at all.
+- [22:14.830] If you read that, you'll see a lot.
+- [22:16.890] I mean, he talks about his whole thing.
+- [22:18.420] I read one where it really gave a very good history of him,
+- [22:22.590] but basically it's a number of shares
+- [22:24.450] times a certain stock price.
+- [22:26.120] The Press: So why is that not public?
+- [22:27.980] The President: It is public. All you have to do is read it.
+- [22:32.170] The Press: On USAID, sir, what is the message to countries
+- [22:35.430] that depend on humanitarian aid distributed through USAID?
+- [22:39.330] What is your message to those countries, sir?
+- [22:43.060] The President: The few that have been legitimate in terms
+- [22:45.840] of getting legitimate money
+- [22:47.320] will probably put it through the State Department.
+- [22:49.550] It'll be handled by Marco Rubio,
+- [22:51.770] a highly respected man, Secretary of State.
+- [22:55.150] There's no reason for USAID… When you look at the politicians
+- [22:59.260] that have been in there sucking the blood out of it,
+- [23:01.740] when you look at all of the fake deals…
+- [23:03.890] I mean, look, all you have to do
+- [23:06.210] is get a list of all of the things,
+- [23:08.160] you can see it by the heading. It's fake, it's fraudulent.
+- [23:12.340] It's probably kickbacks where they send the money,
+- [23:15.720] and then it gets kicked back to the person that sent it.
+- [23:18.750] So the ones that are good, and there are not many of them,
+- [23:21.190] but the ones that are good, and there are some,
+- [23:23.740] will probably have that be handled by Marco Rubio
+- [23:26.800] in the State Department.
+- [23:28.120] The Press: Will they take on some of the USAID workers or-
+- [23:31.190] The President: They could. They could if they like.
+- [23:33.110] The Press: Will it still be called USAID,
+- [23:34.580] Mr. President, or will it-
+- [23:36.710] The President: I don't know that it's going to exist.
+- [23:38.390] Why would you need it?
+- [23:39.630] The State Department can take care of it.
+- [23:41.250] The Press: Do you think the amount of spending
+- [23:42.570] on foreign aid will decrease also with just the number of
+- [23:45.190] [inaudible]?
+- [23:46.390] The President: It should decrease.
+- [23:47.590] Yeah. I hope it decreases.
+- [23:48.950] The Press: Yeah. By how much-
+- [23:50.420] The President: When we have $36 trillion in debt
+- [23:54.310] and we're taking care of countries that are very rich
+- [23:57.200] and sending aid to countries, in some cases,
+- [23:59.600] that are rich, in some cases, they're not rich,
+- [24:02.150] but, no, it should very much decrease.
+- [24:04.940] The Press: Mr. President, will the-
+- [24:06.320] The President: But it won't be the scams that you've seen.
+- [24:08.310] The Press: [inaudible]
+- [24:09.540] NIH put out a memo on Friday night.
+- [24:12.060] It's going to cut four billion from the percentage
+- [24:14.710] that they pay to universities, and public colleges,
+- [24:17.200] and all those things, not foreign countries.
+- [24:19.440] Four billion, is that okay to take off-
+- [24:21.320] The President: Sure. Sure. It could be okay.
+- [24:23.290] You have to look at the university.
+- [24:24.900] Some are legit.
+- [24:27.340] You could also say, "Why are we giving money to Harvard
+- [24:30.330] when it's got a $50 billion endowment, 50 billion,
+- [24:34.440] and yet they don't use that endowment
+- [24:36.020] to help their students?"
+- [24:37.550] The Press: This is for research like biomedical research
+- [24:39.050] [inaudible] The President: That's fine.
+- [24:40.410] Look, we want to take care of research.
+- [24:42.040] We want to do a lot of things.
+- [24:43.460] But when you look at the USAID and you look at all the things
+- [24:47.220] and all the scams that was, with…
+- [24:50.580] I don't have to go through it now,
+- [24:51.830] but I'll get you a list and you'll see, one after another,
+- [24:55.870] there were very few legitimate. It was the opposite.
+- [24:58.510] Usually, you find something wrong, 1 out of 100,
+- [25:02.080] but this is the opposite.
+- [25:03.850] Here, almost everything was wrong.
+- [25:05.970] You find very few that were good.
+- [25:07.590] But there were some that were good.
+- [25:09.040] That'll be handled by the State Department, I assume.
+- [25:11.430] That's not final yet,
+- [25:12.660] but I think the best would be Marco Rubio
+- [25:15.130] at the State Department. One or two more.
+- [25:16.870] The Press: [inaudible]
+- [25:18.110] spending too much on launch services?
+- [25:21.070] Is the Pentagon spending too much
+- [25:22.520] for launch services to space?
+- [25:25.690] The President: I think space is going
+- [25:26.890] to be a very important element.
+- [25:28.730] I'm the one that came up with Space Force.
+- [25:31.700] I'm very proud of it. Biden tried to get out of it
+- [25:34.630] and he was really rebuked by the military.
+- [25:37.550] I think space is going to be
+- [25:38.890] one of the most important things we do.
+- [25:40.760] It's going to be all about space, especially defense.
+- [25:44.310] So space is very important.
+- [25:46.430] The Press: Mr. President,
+- [25:47.660] would you accept Palestinian refugees into the United States
+- [25:51.290] since you're looking to other countries to accept-
+- [25:53.640] The President: I think it's a very far distance
+- [25:55.290] for them to travel,
+- [25:57.470] but I'd have to look at individual cases.
+- [25:59.640] But I do think that coming into the United States…
+- [26:02.280] We've taken a lot of people.
+- [26:03.970] But coming into the United States,
+- [26:05.660] it's a long way for them to travel.
+- [26:07.970] They're far away from their families,
+- [26:09.650] and their friends, and everything else.
+- [26:11.630] I think they'd be very happy staying in the general area,
+- [26:16.590] in a place that was safe, where they could be safe,
+- [26:18.780] and lead a good life.
+- [26:20.900] They don't want to go back to Gaza.
+- [26:22.570] As I said, I've said it a lot,
+- [26:24.660] they only go back because they have no alternative.
+- [26:27.760] They don't want to go back to Gaza.
+- [26:29.650] So we'll see. We hope that we'll be helped by Egypt,
+- [26:32.340] we hope that we'll be helped by Jordan,
+- [26:33.980] we hope that we'll be helped by other countries.
+- [26:36.530] We hope that some of the Saudi Arabia
+- [26:40.580] and others can spend some money on it.
+- [26:43.050] They have tremendous amounts of money
+- [26:44.460] and they'll spend some money
+- [26:45.660] on making people comfortable and safe.
+- [26:49.780] The Press: One question about the Super Bowl.
+- [26:51.690] You're going to the game.
+- [26:53.480] One of the big things that you've done so far in office
+- [26:56.080] is cracking down on DEI.
+- [26:58.220] I saw that the NFL commissioner said, I think this week,
+- [27:01.270] that they're happy with their diversity program.
+- [27:04.360] What's your take on that?
+- [27:05.690] Would you like to see any changes there?
+- [27:07.130] The President: I don't know what the diversity program is,
+- [27:09.340] to be honest. I know Roger very well.
+- [27:13.450] I'd have to look at what he said he's happy with.
+- [27:16.430] He was happy also with the flag
+- [27:19.490] and a lot of other things that didn't work out too well.
+- [27:23.140] We'll have to see what he was happy with.
+- [27:24.800] But right now, that's… You know what the law is.
+- [27:28.710] The law is the law, and it changed,
+- [27:30.770] and it's been backed up by the US Supreme Court.
+- [27:33.910] But we'll see.
+- [27:36.430] There are a lot of interesting things going on right now.
+- [27:39.060] I'll tell you what, there's a light over the United States.
+- [27:42.820] People are happy. They're more confident.
+- [27:47.720] The approval ratings for this country
+- [27:51.080] have gone through the sky.
+- [27:53.240] More than at any time, we've had approval ratings
+- [27:56.040] that there's never been anything like it.
+- [27:57.710] We've never seen 49 points up… 49 points up.
+- [28:02.060] And I think there's a light actually long
+- [28:05.580] beyond this country, all over the world.
+- [28:07.400] I've been called by other leaders.
+- [28:09.550] They said, "Sir, there's a light over our country right now.
+- [28:12.820] There's a light over the world." We got rid of a horrible
+- [28:17.260] and totally inept administration.
+- [28:20.370] An administration where the president wouldn't even go
+- [28:22.970] and do a Super Bowl interview.
+- [28:25.630] For four years, he didn't do a Super Bowl interview.
+- [28:29.460] I did. You'll see it in about one or two hours.
+- [28:33.600] The Press: What is your analysis of the football game?
+- [28:34.970] The Press: [inaudible]
+- [28:36.170] opinion, sir, on whether the referees
+- [28:37.420] have been throwing the games to the Chiefs all season?
+- [28:38.790] The President: I don't believe that,
+- [28:39.990] and I don't [inaudible].
+- [28:40.850] The Press: Why do you want to be chairman-
+- [28:42.060] The Press: What is your analysis of the game?
+- [28:43.270] What are you [inaudible 00:28:42]?
+- [28:44.480] The President: Well, I think you're going to have
+- [28:45.710] a great game. It's two great teams.
+- [28:47.340] Who knows who's going to win. You have great players though.
+- [28:50.570] You have really superstars playing in both teams.
+- [28:52.730] So I think it's going to be a great game.
+- [28:54.630] The Press: Why do you want to be chairman
+- [28:56.000] of the Kennedy Center board?
+- [28:57.790] The President: Because I want to make sure it runs properly.
+- [29:01.010] We don't need woke at the Kennedy Center.
+- [29:03.290] We don't need… Some of the shows were terrible.
+- [29:05.860] They're a disgrace that they were even put on.
+- [29:08.340] So I'll be there until such time as it gets to be running right-
+- [29:11.320] The Press: Have you seen any shows there?
+- [29:12.560] How do you know they're terrible?
+- [29:14.100] The President: I didn't go. No. I got reports.
+- [29:15.470] It was so bad I didn't want to… I didn't want to go.
+- [29:18.350] There was nothing I wanted to see.
+- [29:19.990] Thank you very much, everybody.
+- [29:24.190] I look forward [inaudible].

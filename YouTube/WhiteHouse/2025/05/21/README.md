@@ -1,0 +1,34 @@
+# YouTube / WhiteHouse / 2025-05-21
+
+- Posts: 10
+
+- [23:29 UTC - South Africa Persecution: "When it gets exposed, it'll get fixed."](Kbl3ynSXFfw/)
+  - Source: https://www.youtube.com/watch?v=Kbl3ynSXFfw
+  - [00:00.160] This is a very serious situation. And if - [00:03.120] we had a real news or a real press or - [00:05.279] media, we don't have that because they - [00:07.680] won't...
+- [23:29 UTC - South Africa Persecution: "When it gets exposed, it'll get fixed."](nTyCnt2JNLw/)
+  - Source: https://www.youtube.com/watch?v=nTyCnt2JNLw
+  - [00:00.160] This is a very serious situation. - [00:02.800] And if we had a real news or real press, media, - [00:06.240] we don't have that because  they won't talk about this....
+- [21:38 UTC - POTUS Receives a Jersey from the UF Men’s Basketball Team🐊🇺🇸](Y_WhSOeFbiE/)
+  - Source: https://www.youtube.com/watch?v=Y_WhSOeFbiE
+  - [00:00.000] Mr. President, thank you so much. And uh - [00:01.920] to show a token of our appreciation, we - [00:04.240] have an autographed team basketball and - [00:06.560] a a...
+- [20:52 UTC - President Trump Welcomes the 2025 Men's NCAA Basketball Champions, The University of Florida Gators](9IIH9WTHHz8/)
+  - Source: https://www.youtube.com/watch?v=9IIH9WTHHz8
+  - [00:07.050] Announcer: Ladies and gentlemen, the President of the - [00:09.401] United States, accompanied by head coach Todd Golden. ♪(Hail to the Chief)♪ - [00:30.920] The Pres...
+- [17:46 UTC - President Trump Brings TV Into Oval Office to Show South African President Proof of Persecution](CDF4GMBwbGE/)
+  - Source: https://www.youtube.com/watch?v=CDF4GMBwbGE
+  - [00:00.000] The President: Turn the lights down. - [00:01.668] Turn the lights down and just put this on. - [00:04.270] It's right behind you, Johan. - [00:07.407] (recording pla...
+- [17:45 UTC - SHOWN IN THE OVAL OFFICE: Proof of Persecution in South Africa](FLDl3mblm_c/)
+  - Source: https://www.youtube.com/watch?v=FLDl3mblm-c
+  - [00:00.000] Julius Malema: There's nothing you can do, there's - [00:02.153] nothing this Parliament can do. - [00:04.140] With or without you, people are going to occupy land. -...
+- [17:27 UTC - President Trump Participates in a Bilateral Meeting with the President of South Africa](4cy_HJ2wRZs/)
+  - Source: https://www.youtube.com/watch?v=4cy-HJ2wRZs
+  - [00:22.021] The President: Thank you very much, everyone. - [00:23.423] It's a great honor to be with the President of South Africa, - [00:28.762] President Ramaphosa. - [00:30.8...
+- [14:39 UTC - National Economic Council Director on trade deal negotitations.](TXrwlnNiH7I/)
+  - Source: https://www.youtube.com/watch?v=TXrwlnNiH7I
+  - [00:00.080] There's a lot going on in the world as - [00:01.680] you know and and there's been a lot of - [00:02.960] focus over the last couple of days in - [00:04.480] the Whit...
+- [00:41 UTC - The Golden Dome Missile Defense Shield](NcNqHaAZsHs/)
+  - Source: https://www.youtube.com/watch?v=NcNqHaAZsHs
+  - [00:00.400] Thank you for being here in the Oval - [00:02.240] Office as we make a historic - [00:04.080] announcement about the Golden Dome - [00:06.000] Missile Defense Shield....
+- [00:41 UTC - The Golden Dome Missile Defense Shield](xWxN_qObfI/)
+  - Source: https://www.youtube.com/watch?v=-xWxN_qObfI
+  - [00:00.400] Thank you for being here in the  Oval Office as we make a historic - [00:04.080] announcement about the Golden  Dome missile defense shield. - [00:07.120] We will tru...

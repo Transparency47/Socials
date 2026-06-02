@@ -1,0 +1,967 @@
+<!-- source: https://www.youtube.com/watch?v=-8tKKyrCmSY -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: -8tKKyrCmSY -->
+<!-- date_published: 2025-05-29T17:57:27+00:00 -->
+<!-- date_accessed: 2026-06-02T02:49:09.267828+00:00 -->
+
+# Transcript: Press Secretary Karoline Leavitt Briefs Members of the Media, May 29, 2025
+
+- [00:04.671] Karoline Leavitt: Hello, everybody.
+- [00:07.407] How are you?
+- [00:08.174] Wow, a packed room today.
+- [00:11.277] Last night, the Trump administration faced
+- [00:13.813] another example of judicial overreach.
+- [00:16.883] Using his full and proper legal authority,
+- [00:19.386] President Trump imposed universal tariffs
+- [00:21.788] and reciprocal tariffs on liberation day
+- [00:24.324] to address the extraordinary threats to
+- [00:26.793] our national security and economy posed
+- [00:29.496] by large and persistent annual U.S.
+- [00:31.931] goods trade deficit.
+- [00:32.665] The United States has run a trade
+- [00:35.268] deficit of goods every year since 1975.
+- [00:39.172] In 2024, our trade deficit in goods
+- [00:42.242] exceeded One trillion dollars.
+- [00:45.478] Everybody agrees this is unacceptable.
+- [00:48.314] President Trump is delivering on his
+- [00:50.583] promise to fix this problem and he has
+- [00:53.019] taken a long overdue and much needed bold
+- [00:56.055] stance for American workers after decades
+- [00:59.125] of our manufacturing base being hollowed out.
+- [01:03.062] The President's rationale for imposing
+- [01:04.898] these powerful tariffs was legally sound
+- [01:06.900] and grounded in common sense.
+- [01:09.269] President Trump correctly believes that
+- [01:11.204] America cannot function safely long-term
+- [01:13.273] if we are unable to scale advanced
+- [01:15.442] domestic manufacturing capacity,
+- [01:17.911] however, our own secure critical supply
+- [01:19.879] chains and our defense industrial base is
+- [01:21.948] dependent on foreign adversaries.
+- [01:24.717] Three judges of the U.S.
+- [01:26.286] Court of International Trade disagreed and
+- [01:28.421] brazenly abused their judicial power to
+- [01:30.523] usurp the authority of President Trump.
+- [01:32.826] To stop him from carrying out the mandate
+- [01:34.794] that the American people gave him.
+- [01:36.696] These judges failed to acknowledge that
+- [01:38.498] the President of the United States has
+- [01:40.233] core foreign affairs powers and authority
+- [01:42.502] given to him by Congress to protect the
+- [01:44.871] United States economy and national security.
+- [01:47.874] Congress had created the National
+- [01:49.309] Emergency Act to provide the congressional
+- [01:51.144] framework to strike down improper IEPA use.
+- [01:54.147] In any questions over whether President
+- [01:56.149] Trump improperly imposed these IEPA
+- [01:57.951] tariffs were already adjudicated in
+- [01:59.919] Congress following liberation day.
+- [02:02.155] Congress firmly rejected an effort led
+- [02:04.224] by Senator Rand Paul and Democrats to
+- [02:06.226] terminate the President's reciprocal tariffs.
+- [02:08.661] The courts should have no role here.
+- [02:10.630] There is a troubling and dangerous trend
+- [02:12.532] of unelected judges inserting themselves
+- [02:14.667] into the Presidential decision-making process.
+- [02:17.237] America cannot function if President Trump
+- [02:19.572] or any other President for that matter has
+- [02:21.908] their sensitive diplomatic or trade
+- [02:24.110] negotiations railroaded by activist judges.
+- [02:27.347] President Trump is in the process of
+- [02:28.982] rebalancing America's trading agreements
+- [02:31.150] with the entire world.
+- [02:32.218] bringing tens of Billions of dollars in
+- [02:34.420] tariff revenues to our country and
+- [02:36.322] finally ending the United States of
+- [02:38.291] America from being ripped off.
+- [02:40.426] These judges are threatening to undermine
+- [02:42.262] the credibility of the United
+- [02:43.463] States on the world stage.
+- [02:45.331] The administration has already filed an
+- [02:47.233] emergency motion for a stay pending appeal
+- [02:49.369] and an immediate administrative stay
+- [02:51.037] to strike down this egregious decision.
+- [02:53.439] But ultimately the Supreme Court must
+- [02:55.241] put an end to this for the sake of our
+- [02:57.443] Constitution and our country.
+- [02:59.812] With Congress returning next week it's
+- [03:01.581] critical that Senate Republicans maintain
+- [03:03.616] the momentum and quickly pass
+- [03:04.984] the One Big Beautiful Bill.
+- [03:06.686] The One Big Beautiful Bill will truly
+- [03:08.821] make America safe and prosperous.
+- [03:11.357] The One Big Beautiful Bill includes the
+- [03:13.326] largest border security investment ever.
+- [03:15.962] That's why the law enforcement groups are
+- [03:17.830] lining up to encourage its swift passage.
+- [03:20.266] The national fraternal order of police,
+- [03:22.101] the largest police union in the country
+- [03:24.370] just endorsed key provisions of the Bill.
+- [03:26.906] The FOP President announced their strong
+- [03:29.008] support, saying the One Big Beautiful Bill
+- [03:31.744] act is more than legislation.
+- [03:33.413] It is a promise kept to the public safety
+- [03:35.448] officers across the country in a bold step
+- [03:37.517] toward an economy that respects rewards
+- [03:39.953] and uplifts the people who keep it safe.
+- [03:42.989] And the national Border Patrol Council,
+- [03:45.224] which represents nearly 20,000 Border
+- [03:47.327] Patrol agents hailed the legislation as well.
+- [03:50.463] The group's President said this
+- [03:52.031] legislation provides a once in a
+- [03:53.633] generation investment in the border
+- [03:55.168] security of our great country and
+- [03:56.603] with a Bill make America safer.
+- [03:58.571] The One Big Beautiful Bill will guarantee
+- [04:00.607] we can permanently have the safest,
+- [04:02.408] strongest and most secure immigration
+- [04:04.644] system in American history.
+- [04:06.946] I also want to take the opportunity to
+- [04:08.615] debunk some false claims that have been
+- [04:10.350] circulating in the press about this Bill.
+- [04:12.952] The blatantly wrong claim that the One Big
+- [04:14.754] Beautiful Bill increases the deficit is
+- [04:16.456] based on the congressional budget office
+- [04:18.458] and other scorekeepers who use shoddy
+- [04:20.326] assumptions and have historically been
+- [04:22.295] terrible at forecasting across Democrat
+- [04:24.364] and Republican administrations alike.
+- [04:26.766] For example, just before Congress enacted
+- [04:29.235] the original Trump tax cuts at the end of
+- [04:31.738] 2017, the same CBO projected that growth
+- [04:34.941] would average a mere 1.9
+- [04:36.909] percent over the next 10 years.
+- [04:39.812] However, by 2019, actual growth had surged to 3.4
+- [04:42.849] percent once the Trump tax cuts
+- [04:45.218] went into effect, exceeding the CBO
+- [04:47.153] forecast by nearly two full percentage points.
+- [04:50.423] The CBO's latest forecast makes the same
+- [04:52.859] anemic growth assumptions as they did in 2017.
+- [04:56.095] Missing the impact of the One Big Beautiful Bill.
+- [04:59.198] The CBO assumes long-term GDP growth of an anemic 1.8
+- [05:02.068] percent and that is absurd.
+- [05:04.137] The American economy is going to boom like
+- [05:06.105] never before after the One
+- [05:07.240] Big Beautiful Bill is passed.
+- [05:09.375] The largest middle-class tax cut in
+- [05:11.444] history, massive deregulation in the most
+- [05:13.913] aggressive domestic energy exploration
+- [05:15.915] ever will fuel small businesses,
+- [05:18.317] further boost private investment,
+- [05:19.952] increase workers' wages and
+- [05:21.254] supercharge economic growth.
+- [05:23.089] The Council of Economic Advisors has
+- [05:24.857] factored in the effects of all these
+- [05:26.592] pro-growth policies and estimated in their
+- [05:28.961] own analysis that growth will average 3
+- [05:31.130] percent in the long run after the One Big
+- [05:33.066] Beautiful Bill is passed, which is nearly
+- [05:34.967] double the ridiculous CBO projection.
+- [05:37.670] This higher growth would result in $4.1
+- [05:39.939] trillion in additional
+- [05:41.240] revenue over the next 10 years.
+- [05:43.843] Between the common-sense spending reforms
+- [05:45.545] contained in the One Big Beautiful Bill
+- [05:47.146] and the robust economic growth that
+- [05:48.981] will be generated as a result of it,
+- [05:50.950] there will be no increase to the deficit.
+- [05:53.319] The same analysis from the CEA shows just
+- [05:55.455] how this historic package will
+- [05:57.023] unleash prosperity and ignite a
+- [05:58.758] blue-collar boom across America.
+- [06:01.494] But if the radical Democrats get their way
+- [06:03.463] and the One Big Beautiful Bill does
+- [06:05.064] not pass, Americans will face a
+- [06:07.066] whopping $4 trillion tax hike.
+- [06:09.302] This is unacceptable to President Trump.
+- [06:11.471] President Trump will not allow Democrats
+- [06:13.606] to massively raise Americans taxes.
+- [06:15.975] Senate Republicans must get this Bill passed.
+- [06:19.645] Failure is not an option.
+- [06:21.247] The American people are counting us.
+- [06:22.715] on us, on Republicans, to deliver.
+- [06:25.985] In other news, despite all the doom
+- [06:27.653] casting from the media, Americans are
+- [06:29.455] growing more and more optimistic about
+- [06:31.157] the economy under this President.
+- [06:33.359] Consumer confidence surged in May,
+- [06:34.961] with the Biggest monthly jump in four
+- [06:36.696] years, smashing expectations.
+- [06:39.332] According to the release from the
+- [06:40.800] Consumer Confidence Index, the increase in
+- [06:43.236] confidence was broad-based across all
+- [06:44.871] age group's, income groups, and political affiliations.
+- [06:47.974] Our country is clearly heading in the
+- [06:49.709] right direction under President
+- [06:51.177] Trump's bold leadership.
+- [06:52.478] For the first time in history of Rasmussen
+- [06:54.647] polling, a majority of Americans believe
+- [06:56.682] the country is on the right track.
+- [06:59.285] It's unsurprising because the President
+- [07:01.387] is fulfilling the promises he
+- [07:02.955] made to the American people.
+- [07:04.991] Here at our new media seat today,
+- [07:06.726] we have the editor-in-chief of the
+- [07:09.162] Federalist, Molly Hemingway.
+- [07:10.530] The Federalist is led by Molly and Sean
+- [07:12.398] Davis and provides fearless journalism and
+- [07:14.433] coverage of politics and culture to
+- [07:16.335] millions of readers all over the world.
+- [07:18.771] Thank you for being here, Molly, and
+- [07:19.972] why don't you please kick us off.
+- [07:21.073] The Press: Thank you, Karoline.
+- [07:22.175] Thank you.
+- [07:23.009] In the first Trump administration,
+- [07:25.611] there was an effort to stymie the agenda
+- [07:29.282] of Trump through the Russia collusion
+- [07:31.050] hoax, perpetuated by many people
+- [07:32.852] of the media, including some people in here
+- [07:35.154] or the media outlets they represent
+- [07:37.190] and other Democrats as well.
+- [07:38.825] The second Trump administration,
+- [07:40.193] to reference what you said at the
+- [07:43.596] beginning, seems to be subject to an
+- [07:45.698] effort to stymie the agenda
+- [07:47.200] using rogue, lower-court judges.
+- [07:50.036] You mentiOned that the Supreme Court could
+- [07:52.305] and should do something to
+- [07:53.673] reign in his lower-court judges.
+- [07:55.908] Also, Congress could do something about it.
+- [07:58.010] But they don't seem terribly interested in it.
+- [08:00.046] It also seems there's not much of an
+- [08:02.014] actual coordinated effort from this White
+- [08:04.650] House to take and tackle this effort from
+- [08:06.986] judges, Democrats and other people using
+- [08:09.288] these judges, to stymie the agenda.
+- [08:11.524] Is there an actual effort by this
+- [08:14.327] White House to tackle this
+- [08:16.629] issue in a comprehensive way?
+- [08:18.297] And if so, what is it?
+- [08:19.232] Karoline Leavitt: There is an effort by this administration
+- [08:21.868] to tackle these rogue judges and the
+- [08:25.605] injunctions and the blockades that we have
+- [08:27.807] faced in our broken judicial system in every case.
+- [08:30.977] I mean, we have seen time and time again,
+- [08:32.712] these lower district court judges ruling
+- [08:35.114] against this administration and the
+- [08:36.515] President's basic executive authority and powers.
+- [08:38.918] And this administration is fighting every
+- [08:40.519] single One of those battles in court,
+- [08:41.988] including already the block that came down
+- [08:45.224] from the tariff court, the IEPA court last night.
+- [08:48.995] And as on my way out here to the briefing
+- [08:51.163] room, I understand that there was another
+- [08:53.366] district court judge right here in Washington, D.C.
+- [08:55.434] who ruled against the
+- [08:56.702] President's tariff power.
+- [08:58.271] And I will get to the heart of your
+- [08:59.939] question and I'm glad that we are
+- [09:01.540] addressing this in the room today because
+- [09:03.276] nationwide injunctions ordered against
+- [09:04.877] the first Trump administration.
+- [09:07.113] Trump 1.0.
+- [09:08.247] Account for more than half of the
+- [09:09.782] injunctions issued in this country since 1963.
+- [09:13.853] And President Trump had more injunctions
+- [09:16.088] in One full month of office in February
+- [09:18.624] then Joe Biden had in three years.
+- [09:21.727] And let me roll through some of these
+- [09:23.329] radical injunctions to paint the picture
+- [09:25.197] for the American people at home.
+- [09:27.366] These are not just talking points.
+- [09:29.201] These are real judges in the court of law
+- [09:31.637] who are trying to block the President's
+- [09:34.407] power and the policies that he was elected to enact.
+- [09:37.209] For example, a court ordered the Trump
+- [09:39.145] administration to return already deported
+- [09:41.247] terrorist aliens back to the United States.
+- [09:43.883] A court has ruled the Trump administration
+- [09:45.851] can't even temporarily pause our refugee programs.
+- [09:48.788] courts prohibited the Trump administration
+- [09:50.756] from eliminating federal funding for child
+- [09:52.758] transgender surgery and mutilation,
+- [09:54.627] a practice that the American
+- [09:56.062] people overwhelmingly reject.
+- [09:58.898] A court also held that the Trump
+- [10:00.266] administration could not ban people
+- [10:01.834] experiencing gender dysphoria or mental
+- [10:03.669] health issues from serving in the military.
+- [10:06.339] Ridiculous.
+- [10:07.773] Courts prohibited the removal of
+- [10:09.208] transgender women from women's prisons
+- [10:11.043] despite potential physical harm to
+- [10:13.312] real women in those prisons, biological women.
+- [10:16.549] Northern District of California judge
+- [10:18.718] issued an absurd ruling that the President
+- [10:21.187] cannot fire people within the executive
+- [10:23.589] branch without Congress passing a Bill,
+- [10:26.058] even though Congress has expressly
+- [10:27.793] authorized the President through the
+- [10:29.628] Office of Personnel Management to
+- [10:31.163] authorize reductions in force across agencies.
+- [10:34.200] A court also ordered the Trump
+- [10:35.568] administration to rehire thousands of
+- [10:37.336] already fired employees in several cases.
+- [10:39.705] A federal judge blocked the Trump
+- [10:41.207] administration from defunding
+- [10:42.541] the Department of Education.
+- [10:43.509] Another signature campaign promised that
+- [10:45.411] this President has the power to implement.
+- [10:47.713] Courts ordered the Trump administration
+- [10:49.382] could not eliminate funding for illegal DEI programs.
+- [10:52.718] Hence, the word illegal.
+- [10:53.786] These are illegal programs to begin with.
+- [10:55.654] And now the courts are trying to say
+- [10:57.089] this President can't roll them back.
+- [10:58.591] And a district court judge prohibited the
+- [11:00.459] President from issuing any categorical funding freezes.
+- [11:03.763] And then another court ordered on top of
+- [11:05.598] that the administration makes $2 Billion
+- [11:07.767] of payments in 36 hours.
+- [11:09.969] These are just a few of the ridiculous
+- [11:12.304] orders that we have seen from lower
+- [11:14.907] district court judges every day.
+- [11:35.594] and we hope that the Supreme Court
+- [11:38.497] will weigh in and rein them in.
+- [11:41.333] from the President that we need
+- [11:42.601] to comply with the court's orders.
+- [11:45.471] He's made that very clear, but
+- [11:46.005] we're going to fight them in court.
+- [11:46.639] And we're going to win on the merits of
+- [11:48.207] these cases because we know we are acting
+- [11:49.842] within the President's legal and executive authorities.
+- [11:52.745] And thanks for being here.
+- [11:54.046] Okay. The Press: Thank you Karoline.
+- [11:55.414] Question on tarrifs, but first
+- [11:56.682] actually some foreign policy news.
+- [12:01.887] Some local Israeli media is reporting
+- [12:03.322] that Prime Minister Netanyahu told hostage
+- [12:04.990] families that he's accepted a 60 day truce offer.
+- [12:09.028] So can you confirm, has Israel and Hamas agreed to a truce?
+- [12:12.398] Karoline Leavitt: I can confirm that special envoy Witkoff
+- [12:14.867] and the President submitted a ceasefire
+- [12:17.503] proposal to Hamas that Israel backed
+- [12:19.705] and supported Israel signed off on this
+- [12:22.942] proposal before it was sent to Hamas.
+- [12:24.009] I can also confirm that those discussions
+- [12:26.679] are continuing and we hope that a
+- [12:28.848] ceasefire in Gaza will take place so
+- [12:30.683] we can return all of the hostages home.
+- [12:32.685] And that's been a priority from this
+- [12:34.053] administration from the beginning.
+- [12:35.387] I won't comment further as we are
+- [12:36.722] in the midst of this right now.
+- [12:38.090] The Press: Just to be clear, you don't
+- [12:39.158] know if Hamas is accepted (inaudible).
+- [12:40.593] Karoline Leavitt: Not to my knowledge, but certainly if that
+- [12:42.795] becomes case and the ceasefire goes into
+- [12:44.864] effect, you'll hear it directly from
+- [12:46.665] myself, the President or special envoy Witkoff.
+- [12:49.668] And on tariffs, Kevin (inaudible) earlier
+- [12:51.470] this morning he brushed off a legal ruling
+- [12:53.439] called a hiccup and he said that trade
+- [12:55.875] deal negotiations would continue.
+- [12:58.844] Why would other countries continue these
+- [13:00.980] trade deal negotiations given the ruling?
+- [13:03.249] Karoline Leavitt: Because other countries around the world
+- [13:05.417] have faith and the negotiator-in-chief
+- [13:07.520] President Donald J.
+- [13:08.621] Trump.
+- [13:09.054] And they also probably see how ridiculous
+- [13:11.323] this ruling is and they understand that
+- [13:14.126] the administration is going to win.
+- [13:14.894] And we intend to win.
+- [13:15.828] We already filed an emergency appeal.
+- [13:17.630] We expect to fight this battle.
+- [13:18.864] all the way to the Supreme Court.
+- [13:20.366] These other countries should also know and
+- [13:22.001] they do know that the President
+- [13:23.202] reserves other terrorist authorities.
+- [13:26.138] Section 232, for example, to ensure that
+- [13:28.574] America's interests are being
+- [13:30.409] restored around the world.
+- [13:31.744] But I can confirm that our Ambassador for
+- [13:33.546] Trade, Jamison Greer, already heard from
+- [13:35.414] countries around the world this morning.
+- [13:36.749] He said they intend to continue
+- [13:38.250] with these negotiations.
+- [13:40.352] Peter.
+- [13:40.686] The Press: Thank you, Karoline.
+- [13:42.054] So many of the President's plans
+- [13:43.589] right now are being blocked by courts.
+- [13:46.158] If the courts are going to be the Ones
+- [13:48.661] who are shaping policy, does the President
+- [13:51.430] wish he would have just become a judge instead?
+- [13:54.400] Karoline Leavitt: I think the President would take
+- [13:56.168] this job over being a judge.
+- [13:57.870] And certainly the President is
+- [13:59.038] acting within his authority.
+- [14:00.139] He wishes judges would do the same.
+- [14:02.074] The Press: The courts are basically telling you guys
+- [14:03.542] they think that the White House's
+- [14:04.944] policies, the President's policies,
+- [14:07.046] are in some way against the law.
+- [14:09.281] So why can't President Trump ask the
+- [14:11.450] Republicans that control the House
+- [14:13.419] and the Republicans that control the
+- [14:15.521] Senate just to make a new law?
+- [14:18.090] Karoline Leavitt: Well, these laws have already been granted
+- [14:20.226] to the President by the Constitution and
+- [14:22.361] by laws that have been previously passed.
+- [14:24.096] I'll give you another example.
+- [14:25.764] For instance, we've been blocked in
+- [14:28.133] court for the revocation of visas from
+- [14:31.237] individuals who have the privilege of
+- [14:32.738] studying in the United States of America.
+- [14:34.707] Secretary of State Rubio has simply used
+- [14:37.343] his authority to revoke those
+- [14:39.311] visas to revoke that privilege.
+- [14:41.046] And we've seen the courts try to block that.
+- [14:43.249] So if these judges want to be the
+- [14:44.550] Secretary of State, or they want to be the
+- [14:46.585] President, they can run for office.
+- [14:47.286] themselves.
+- [14:47.853] It should be the other way around.
+- [14:48.887] But all of the actions the President has
+- [14:51.423] taken rely on legal authorities that have
+- [14:54.793] already been granted to him
+- [14:55.761] by our nation's existing laws.
+- [14:56.862] The Press: And on a different topic, there are some
+- [14:58.530] folks in President Biden's inner circle
+- [15:00.132] who are now in talks with Republicans in
+- [15:02.434] Congress to give interviews about how they
+- [15:04.837] may have handled President Biden's decline.
+- [15:08.040] Is the President satisfied with aides only
+- [15:11.143] sitting for these transcribed interviews?
+- [15:14.680] Or would he also like to see some kind of testimony
+- [15:18.450] from the former First Lady, Dr. Biden.
+- [15:20.552] Karoline Leavitt: I think, frankly, the former First Lady
+- [15:22.321] should certainly speak up about what she
+- [15:24.156] saw in regards to her husband and
+- [15:26.325] when she saw it and what she knew.
+- [15:29.028] Because I think anybody looking again at
+- [15:31.363] the videos and photo evidence of Joe Biden
+- [15:34.233] with your own eyes and a little bit of
+- [15:35.968] common sense can see this was a clear cover-up.
+- [15:38.570] And Jill Biden was certainly complicit in that cover-up.
+- [15:43.175] There are documentation video evidence
+- [15:45.210] of her clearly shielded Your husband away
+- [15:47.446] from the cameras that were just on The View last week.
+- [15:50.215] She was saying everything is fine.
+- [15:51.784] She's still lying to the American people.
+- [15:53.552] She still thinks the American public are
+- [15:55.254] so stupid that they're going to believe her lies.
+- [15:58.057] And frankly, it's insulting
+- [15:59.024] and she needs to answer for it.
+- [16:00.392] The Press: Thank you, Karoline.
+- [16:01.694] President Trump was asked what he thought
+- [16:03.829] about Elon Musk's claim that the Big,
+- [16:06.198] Beautiful Bill increases the budget
+- [16:08.367] deficit and undermines the work of DOGE.
+- [16:11.070] And the President didn't actually
+- [16:13.038] comment on those remarks.
+- [16:14.840] He just talked about the need to support the Bill.
+- [16:16.842] So what does the President
+- [16:18.310] think about what Elon Musk said?
+- [16:20.446] Karoline Leavitt: Well, the President is very proud of the
+- [16:22.514] One Big, Beautiful Bill and he wants to see it pass.
+- [16:25.317] He wants the Senate to get to work on it
+- [16:26.919] and send it to his desk as quickly as possible.
+- [16:29.822] Of course, as you know, Elon Musk
+- [16:31.256] announced last night his departure as an
+- [16:33.125] official special government employee
+- [16:34.827] from the Trump administration.
+- [16:36.528] We thank him for his service.
+- [16:38.197] We thank him for getting DOGE off of the
+- [16:40.232] ground and the efforts to cut waste
+- [16:42.067] fraud and abuse will continue.
+- [16:44.636] The Press: So he doesn't have any comment about
+- [16:46.605] Musk saying it adds to the deficit
+- [16:48.540] and it undermines all his work.
+- [16:49.775] Karoline Leavitt: The President commented on this.
+- [16:51.677] I commented on it.
+- [16:52.711] I told you that this Bill saves 1.6
+- [16:54.780] trillion dollars according to the Council
+- [16:57.349] of Economic Advisors and the analyses
+- [16:59.184] that the President believes in.
+- [17:01.253] So he gave a comment.
+- [17:02.287] I give a comment just because
+- [17:03.222] you don't like that comment.
+- [17:04.189] It doesn't mean it's not a comment.
+- [17:05.691] The Press: Thanks, Karoline.
+- [17:06.692] I'm back on trade.
+- [17:08.460] I know you said the White House is
+- [17:09.695] going to fight this ruling in court.
+- [17:10.996] Is the administration actively reviewing
+- [17:13.465] other avenues, other options, to carry out
+- [17:16.034] the President's trade policy?
+- [17:17.669] Karoline Leavitt: The President's trade policy will continue.
+- [17:20.606] We will comply with the court orders,
+- [17:22.307] but yes, the President has other legal
+- [17:24.009] authorities where he can implement tariffs.
+- [17:26.412] However, it does not dispute the fact
+- [17:28.781] that the President was right to declare a
+- [17:31.450] national emergency when it came to
+- [17:32.885] fentanyl and when also when it came to our
+- [17:34.753] crippling deficits and the lack of
+- [17:36.855] critical supply chains here at home.
+- [17:39.091] That is the reasoning for the President's
+- [17:40.859] tariffs and the court didn't
+- [17:42.060] dispute those facts by the way.
+- [17:44.296] And there have been other courts that
+- [17:45.831] have reaffirmed the President's position.
+- [17:47.599] In fact, a ruling in federal court earlier
+- [17:49.435] this month shows that the administration
+- [17:51.403] is in the right said we will win on appeal.
+- [17:53.605] A federal district judge and Florida ruled
+- [17:55.507] that IEPA in fact does grant the President
+- [17:57.543] the authority to unilaterally impose tariffs.
+- [17:59.912] In 20 years ago, I will add, they are not a court.
+- [18:03.248] The New York Times editorial board
+- [18:05.150] responded to the January 2005 trade deficit of
+- [18:08.253] 58.3 Billion by writing an
+- [18:10.122] editorial entitled Dangerous Deficits.
+- [18:13.158] And since then, our trade
+- [18:14.226] deficit has more than doubled.
+- [18:15.594] The U.S.
+- [18:16.228] trade deficit in January totaled a whopping 131.4
+- [18:19.631] Billion.
+- [18:20.933] So people on both sides of the aisle,
+- [18:23.202] pundits, lawyers, legal scholars,
+- [18:25.971] politicians have all agreed
+- [18:27.172] that it is a national emergency.
+- [18:28.907] Our trade deficits and our lack of
+- [18:30.909] critical supply chains here at home is
+- [18:33.245] just President Trump was the first
+- [18:34.947] President to actually act on it to restore
+- [18:37.282] that wealth and that prosperity
+- [18:38.517] to the United States of America.
+- [18:39.818] And it's very unfortunate that the courts
+- [18:41.453] are now blocking his attempts to do that.
+- [18:43.455] The Press: Has the administration then reached the
+- [18:44.890] point where you are actually asking your
+- [18:46.692] economic advisors to start reviewing other
+- [18:48.360] avenues that will let the President trade
+- [18:50.329] policy, or do you want to just see
+- [18:51.597] this legal process take place for now?
+- [18:52.998] Karoline Leavitt: We can walk and chew gum at the same time.
+- [18:54.867] We are doing both.
+- [18:56.001] Josh.
+- [18:57.436] The Press: (inaudible) says that President met with the Fed
+- [18:59.204] chair earlier, are you able to give us any
+- [19:01.340] read-out of that meeting?
+- [19:03.709] And also says that they just go to the economy.
+- [19:05.177] I imagine President might have
+- [19:06.879] shared views on rates as well.
+- [19:09.515] Karoline Leavitt: Sure.
+- [19:10.582] I can share with you that we saw the
+- [19:12.351] President and I both saw the statement
+- [19:14.386] that the Fed put out after the meeting.
+- [19:16.355] That statement is correct.
+- [19:17.823] However, the President did say that he
+- [19:19.925] believes the Fed chair is making a mistake
+- [19:22.227] by not lowering interest rates,
+- [19:23.762] which is putting us at an economic disadvantage
+- [19:26.365] to China in other countries.
+- [19:28.100] And the President has been very
+- [19:29.668] vocal about that, both publicly.
+- [19:31.570] And now I can reveal privately as well.
+- [19:34.373] PPL Can you speak at all about his plans for
+- [19:36.441] that position, but whether he would seek to move
+- [19:39.578] J. Powell out of that position or
+- [19:40.846] keep him in until his term ends?
+- [19:56.094] Karoline Leavitt: I'm not suggesting that I'm just simply
+- [19:59.164] stating the fact that the President
+- [20:02.000] has other legal authorities he
+- [20:03.435] can use to implement tariffs.
+- [20:06.838] And the administration is
+- [20:07.105] willing to use those as you know.
+- [20:07.539] We already have applied Section
+- [20:09.141] 232 tariffs on specific industries.
+- [20:10.976] Yes, thank you.
+- [20:13.145] The Press: (inaudible) needed one and a half to two weeks to
+- [20:15.847] determine whether or not he believed
+- [20:17.849] Vladimir Putin wanted peace.
+- [20:20.719] He has been in office now for four months.
+- [20:23.322] What does he believe is going to happen
+- [20:24.590] in the next One and a half to two weeks
+- [20:25.891] that would change his opinion?
+- [20:27.859] Karoline Leavitt: Well, is my understanding and it is our
+- [20:29.628] hope that Russia and Ukraine will engage
+- [20:31.730] in direct talks and negotiations next week in Istanbul.
+- [20:36.034] And we believe that meeting is going to take place.
+- [20:37.903] And that is a meeting the President
+- [20:39.338] encouraged and urged for these two sides
+- [20:41.406] to come together and negotiate directly.
+- [20:43.542] And the President has been clear from the
+- [20:45.344] very beginning of this conflict that he
+- [20:48.080] wants to see this conflict solved on the
+- [20:49.681] negotiating table, not on the battlefield.
+- [20:51.516] And he's told that to both leaders
+- [20:53.018] again, both publicly and privately.
+- [20:55.153] So hopefully next week it will
+- [20:56.588] move the ball forward in this.
+- [20:58.557] The Press: (inaudible) going to participate in those conversations?
+- [21:01.259] Karoline Leavitt: I will -- we will let you know if the
+- [21:02.728] President plans to send a representative.
+- [21:07.099] I'm not tracking that at this
+- [21:07.899] time to Kelly in the back.
+- [21:08.634] Sure.
+- [21:09.635] The Press: I wanted to just clarify once and for
+- [21:11.570] all if the Qatari jet, is a sale or the gift
+- [21:13.805] because the Qatari government is asking the U.S.
+- [21:15.974] to clarify that the jet pending transfer
+- [21:18.276] was initiated by the Trump administration.
+- [21:21.113] So is this something that the
+- [21:22.481] White House is going to do?
+- [21:24.750] Karoline Leavitt: The amount of questions we've received
+- [21:26.518] and we've been incredibly clear.
+- [21:28.353] And I have answered this.
+- [21:29.488] The President has answered this.
+- [21:31.356] The Department of Defense has answered this.
+- [21:32.791] This is a government to government
+- [21:35.093] gift transfer from the Qatari's to the
+- [21:37.796] Department of Defense to the United States Air Force.
+- [21:40.165] It is now in their hands.
+- [21:41.667] And for further details on where
+- [21:42.934] that stands, I would defer you to the
+- [21:44.736] Department of Defense and the United States Air Force.
+- [21:46.271] I have nothing more for you on that.
+- [21:48.573] The Press: Thanks, Karoline.
+- [21:49.641] Two questions.
+- [21:50.475] One on the Big, Beautiful Bill.
+- [21:51.777] One on immigration.
+- [21:53.378] Yesterday, Trump said, we'll be negotiating that Bill.
+- [21:57.315] And I'm not happy about certain aspects of
+- [21:59.451] it, but I'm thrilled by other aspects of it.
+- [22:02.120] Wondering if you could, you know,
+- [22:03.655] share any specifics on that.
+- [22:05.323] And on immigration,
+- [22:06.191] do you know how many illegal migrants have
+- [22:08.760] taken Trump's voucher program so
+- [22:10.896] far and have deported themselves?
+- [22:12.898] Karoline Leavitt: I believe it's in the thousands of those
+- [22:15.500] who have chosen the way, the easier route
+- [22:18.303] of self-deportation.
+- [22:20.272] And we certainly encourage all illegal
+- [22:21.907] aliens who are present within our homeland
+- [22:24.076] to take that option.
+- [22:25.410] It's a much more pleasant option than being deported.
+- [22:27.279] And we will deport you if you're here illegally.
+- [22:28.947] That's our intention.
+- [22:30.515] As for the first question, what the
+- [22:32.317] President was speaking about
+- [22:33.785] is how this is a great Bill.
+- [22:35.187] However, it has come as a result of a hard negotiation.
+- [22:40.492] It's difficult to get things dOne on
+- [22:42.060] Capitol Hill, but thanks to President Trump
+- [22:44.663] this Bill is moving in the right direction.
+- [22:46.832] And thanks to House Republicans and the
+- [22:48.300] leadership over there as well who did a
+- [22:49.801] great job mediating both sides of the
+- [22:51.570] caucus to move this Bill to the Senate.
+- [22:53.872] And now the President, again, has told his
+- [22:55.540] friends on the Senate side as it's already
+- [22:58.343] engaged in those conversations to get that
+- [23:00.045] Bill back to his desk as soon as possible.
+- [23:01.947] Sure.
+- [23:02.013] The Press: Thank you.
+- [23:05.050] Has this administration been briefed about
+- [23:06.718] the incident that happened in Gaza during
+- [23:09.121] on Tuesday during the rollout of the Gaza
+- [23:10.956] Humanitarian Foundation, distribution of
+- [23:12.891] aid to Palestinian's there?
+- [23:15.560] And should there be a ceasefire,
+- [23:17.162] will this administration continue to rely
+- [23:19.364] on this foundation for the
+- [23:20.699] distribution of aid to civilians?
+- [23:24.469] Karoline Leavitt: Are you referring --
+- [23:25.270] what incident are you referring to?
+- [23:26.872] When the aid was rolled out to
+- [23:29.174] Gaza for the first time in many months and
+- [23:31.643] meals and food was given to hungry people.
+- [23:34.412] Thanks to President Trump.
+- [23:35.647] Yes, we were briefed on that plan.
+- [23:38.884] The President was the reason that that aid
+- [23:41.119] went into Gaza and he got the Israelis to
+- [23:43.455] support that plan.
+- [23:45.157] And I would add that the previous
+- [23:47.425] administration rejected such a plan to
+- [23:50.228] ensure that these starving and devastated
+- [23:52.631] people in the Gaza Strip were given
+- [23:54.933] humanitarian aid and assistance.
+- [23:56.735] And it was the previous administration
+- [23:58.403] that tried to build this pier, if you all remember it.
+- [24:00.839] It was brought to my attention this morning.
+- [24:02.140] And I thought that's a good point.
+- [24:03.308] Why don't I bring that up?
+- [24:04.810] Because there's been so much criticism.
+- [24:06.344] In fact, it was on the front page of a
+- [24:08.079] newspaper this morning about the criticism
+- [24:10.315] for this President having a humanitarian
+- [24:12.584] heart and giving people badly needed food and supplies.
+- [24:15.821] Nobody wanted to talk about how the
+- [24:17.556] previous administration failed in that endeavor.
+- [24:20.325] They built this pier that cost $230 million.
+- [24:23.395] It lasted about 20 days.
+- [24:24.930] And more than 60 U.S.
+- [24:26.865] service members were injured, as a part
+- [24:29.968] of this floating aid peer that did
+- [24:32.838] nothing for the people of Gaza.
+- [24:34.372] The President is opening up his
+- [24:35.807] humanitarian heart to get aid into the
+- [24:38.009] region while his team simultaneously
+- [24:40.011] negotiates a ceasefire and the return of all hostages.
+- [24:44.115] As we are moving the ball forward in
+- [24:45.116] a positive direction for all people,
+- [24:46.151] the President wants to see peace for all people.
+- [24:48.854] Jasmine?
+- [24:49.254] The Press: Thanks so much, Karoline.
+- [24:51.256] I noticed an investigation found that the
+- [24:53.058] hallmark MAHA Commission report that was
+- [24:55.927] released last week, cite
+- [24:56.928] studies that appear to not exist.
+- [24:58.296] We know that because in part we reached
+- [25:00.265] out to some of the listed authors who said
+- [25:02.434] that they didn't write the studies cited.
+- [25:04.703] So I want to ask, does the White House
+- [25:06.371] have confidence that the information
+- [25:08.039] coming from HHS can be trusted?
+- [25:10.442] Karoline Leavitt: Yes, we have complete confidence in
+- [25:12.544] Secretary Kennedy and his team at HHS.
+- [25:15.280] I understand there were some formatting
+- [25:17.015] issues with the MAHA report that are being
+- [25:18.950] addressed in the report will be updated.
+- [25:20.886] But it does not negate the substance of
+- [25:23.622] the report, which as you know is One of
+- [25:26.958] the most transformative health reports
+- [25:28.460] that has ever been released by the federal government.
+- [25:30.695] And is backed on good science that has
+- [25:32.697] never been recognized by the federal government.
+- [25:35.901] The Press: Can you talk about what tools or research
+- [25:38.136] goes into production of these kinds of reports?
+- [25:41.006] For instance, is it AI that's used
+- [25:42.474] to put together these reports?
+- [25:45.210] Karoline Leavitt: I can't speak to that.
+- [25:47.245] I would defer you to the Department
+- [25:48.413] of Health and Human Services.
+- [25:49.414] What I know is just what I told you.
+- [25:51.850] Lindsey?
+- [25:52.183] The Press: Thank you, Karoline.
+- [25:53.451] Many small businesses that we've talked to
+- [25:55.921] since the tariffs have been in place have
+- [25:58.990] said what would really help them is a
+- [26:00.859] long-term plan so that they can catch up.
+- [26:03.128] In light of what's happened now,
+- [26:04.729] this trade war with the courts.
+- [26:07.265] How will that impact this 90 day window?
+- [26:09.601] Will you guys be adjusting that?
+- [26:11.403] And how can you help relieve
+- [26:12.537] some of these small businesses?
+- [26:14.105] Karoline Leavitt: Well, I would say nobody understands the
+- [26:16.775] needs of business owners and nobody has
+- [26:19.411] the backs of our small business
+- [26:21.112] community more than President Donald J. Trump.
+- [26:23.949] He believes I've heard him talk about this
+- [26:26.017] with small business owners himself that
+- [26:27.986] small businesses are truly the
+- [26:29.521] backbOne of our American economy.
+- [26:31.556] And that's why the President is
+- [26:32.791] supporting the One Big Beautiful Bill.
+- [26:34.626] So for those you spoke to who are asking
+- [26:36.661] for a long-term plan, Big tax
+- [26:38.129] cuts are coming their way.
+- [26:39.397] You know, tax on tips, no tax on overtime
+- [26:41.333] for their workers, more mOney in their pockets.
+- [26:44.269] Their bottom lines will be larger.
+- [26:46.271] They can pay their people more wages are
+- [26:47.739] going to go up and inflation
+- [26:48.707] will continue to come down.
+- [26:50.308] We've already seen energy prices
+- [26:52.310] plummeting as a result of this President's
+- [26:54.646] economic and energy agenda that he has
+- [26:56.414] been implementing across the federal
+- [26:58.116] government, reducing burdensome regulation.
+- [27:01.152] All of that is good news for small
+- [27:02.821] business owners across the country.
+- [27:04.556] That's why they strongly support the President.
+- [27:06.391] And that's the Trump economic plan that is underway.
+- [27:10.028] And again, you're emphasizing, I
+- [27:11.830] believe, the need to pass the One Big
+- [27:14.165] Beautiful Bill and the President
+- [27:15.433] wants to see that happen.
+- [27:16.534] Sure.
+- [27:17.268] The Press: We you still work within that 90-day
+- [27:19.304] window for these trade negotiations.
+- [27:22.207] Karoline Leavitt: Again, as far as we're concerned, our
+- [27:23.942] trade agenda is moving forward and
+- [27:25.577] we've already heard from countries around
+- [27:27.212] the world today who will continue to
+- [27:30.148] negotiate in good faith with the United
+- [27:31.216] States so we can cut good trade deals on
+- [27:32.317] behalf of the American people and we
+- [27:34.019] fully expect to win this case in court.
+- [27:35.887] Sure.
+- [27:38.156] The Press: On the Golden Dome, the President
+- [27:39.190] put it out to this number of $61 Billion.
+- [27:40.992] How did he arrive at that?
+- [27:42.127] Is that the number it will cost to protect
+- [27:44.095] Canada and is it negotiable or where did it come from?
+- [27:47.232] Karoline Leavitt: I can certainly ask the President and I
+- [27:48.867] can check in with our research team and
+- [27:50.535] we'll get you the facts on that number.
+- [27:52.337] But the Golden Dome is certainly a
+- [27:54.172] significant investment in our nation's
+- [27:56.708] national security and homeland security to
+- [27:58.576] protect Americans, all of you in
+- [27:59.978] this room from future threats.
+- [28:01.780] The Press: (inaudible) have that Canadian has been
+- [28:03.748] talking in good faith about paying to be in it?
+- [28:06.351] I know that's what I'm interested in.
+- [28:07.085] Karoline Leavitt: Well, the President has certainly
+- [28:09.020] expressed to the Canadians how we are
+- [28:11.156] essentially subsidizing their national defense.
+- [28:13.224] He brought it up in his meeting
+- [28:14.626] with their new leader here.
+- [28:16.027] And as you know, we'll be traveling
+- [28:18.029] to Canada next month for the G7.
+- [28:20.065] So I expect that topic of discussion
+- [28:22.133] to come up on that trip as well.
+- [28:24.669] The Press: Thanks, Karoline.
+- [28:28.139] There was a May Day U.S.A rally in Seattle
+- [28:30.408] that happened over the weekend that's
+- [28:33.445] evolved into some protests and riots.
+- [28:35.380] The Seattle Mayor Herrell said that it
+- [28:37.949] was a far-right rally held here to provoke
+- [28:40.852] a reaction by promoting beliefs that are
+- [28:42.887] inherently opposed to our city's values,
+- [28:45.090] which he defined as LGBT values.
+- [28:47.292] I know the FBI is looking into this, but
+- [28:48.993] the President reached out to the mayor
+- [28:50.662] at all asking to apologize for this.
+- [28:52.997] And is this something that the
+- [28:54.199] administration would consider an
+- [28:55.467] example of anti-Christian bias?
+- [28:58.403] Karoline Leavitt: I'm not aware of that case.
+- [29:00.805] I know the FBI is looking into it, but
+- [29:02.440] I'm not aware of any phOne calls the
+- [29:04.008] President may or may not have
+- [29:05.376] made to the mayor of that city.
+- [29:07.412] And then on the doge, we know
+- [29:08.580] that Elon Musk is leaving.
+- [29:09.848] Do you have an updated leadership
+- [29:11.783] structure for who is leading the group?
+- [29:14.452] Is (inaudible) involved and what is its new mission now?
+- [29:18.022] Karoline Leavitt: Well, the entire cabinet is involved.
+- [29:21.059] And I spoke to the President about it this morning.
+- [29:23.228] And the entire cabinet understands the
+- [29:24.996] need to cut government waste, fraud, and abuse.
+- [29:27.398] And each cabinet secretary at their
+- [29:28.800] respective agencies is committed to that.
+- [29:30.602] That's why they were working hand in hand with Elon Musk.
+- [29:33.037] And they'll continue to work with the
+- [29:34.906] respective DOGE employees who have
+- [29:36.908] onboarded as political appointees
+- [29:38.543] at all of these agencies.
+- [29:40.211] So surely the mission of DOGE will continue.
+- [29:42.614] And many DOGE employees are now
+- [29:44.182] political appointees and employees of our government.
+- [29:47.652] And the best of my knowledge, all of them
+- [29:49.554] intend to stay and continue this important work.
+- [29:51.956] The Press: Is there a doge leader taking the place of Mr. Musk?
+- [29:55.193] Karoline Leavitt: Well, again, the DOGE leaders are each and
+- [29:56.828] every member of the President's cabinet and
+- [29:58.496] the President himself who is
+- [29:59.731] wholeheartedly committed to cutting waste
+- [30:01.566] fraud, and abuse from our government.
+- [30:04.769] The Press: There's conflicting reports
+- [30:05.970] over the Middle East right now.
+- [30:07.338] Saudit television network Al-Araabia
+- [30:09.040] saying that Israel and Hamas have agreed
+- [30:10.909] to a 60-day cease-fire.
+- [30:14.479] Sources with Hamas saying that has not been agreed to.
+- [30:15.246] If and when that does happen, will we
+- [30:16.915] be expecting here something from
+- [30:18.116] President Trump announcing that?
+- [30:20.251] Karoline Leavitt: As I said earlier, yes, indeed.
+- [30:22.820] If there is an announcement to be made,
+- [30:23.988] it will come from the White House.
+- [30:25.023] The President, myself, or Special Envoy Whitkoff.
+- [30:29.060] The Press: One Big Beautiful Bill.
+- [30:30.595] President says he's not happy with all aspects of it.
+- [30:33.698] What changes would he like to see be made?
+- [30:36.034] Can this Bill be both Big and Beautiful?
+- [30:39.270] Karoline Leavitt: It is a One Big Beautiful
+- [30:41.172] Bill as the name rings true.
+- [30:43.508] And the President, as I said, is currently
+- [30:46.144] working with his friends in the Senate who
+- [30:48.746] have some recommendations for the Bill.
+- [30:51.849] Those negotiations and discussions are
+- [30:53.451] continuing, but the President's ultimate
+- [30:55.153] priority is to get this Bill
+- [30:56.321] back to his desk for signature.
+- [30:58.289] And the President's priority is in this Bill.
+- [31:01.626] Are not negotiable in terms of the tax
+- [31:02.961] priorities he wants to see and the large
+- [31:04.329] tax cuts in the border investments
+- [31:06.431] that are currently in this Bill.
+- [31:08.900] He is not going to allow them to
+- [31:10.301] go away for the American people.
+- [31:12.270] Sure, go ahead.
+- [31:13.471] The Press: Yes, I wanted to ask you about, as
+- [31:15.139] the President has spoken to any of
+- [31:16.941] these foreign leaders about these
+- [31:18.643] agreements that have been reached
+- [31:21.779] specifically the case of the United Kingdom.
+- [31:23.181] There is already an agreement in place
+- [31:24.983] after this decision in the court in New York?
+- [31:27.218] Karoline Leavitt: Has the President talked
+- [31:28.219] to foreign leaders about what?
+- [31:29.220] The Press: About the court decision in New York.
+- [31:31.689] Karoline Leavitt: Which court decision in New York?
+- [31:33.524] The Press: The trade court decision.
+- [31:33.992] Karoline Leavitt: Oh, the trade court decision.
+- [31:37.829] He did speak to the leader of Japan this
+- [31:39.364] morning, and he said that was a very
+- [31:40.732] good call and a good discussion.
+- [31:42.367] And as I said, the President's cabinet
+- [31:44.802] Secretary Lutnick Secretary
+- [31:47.772] Bessant, and Ambassador Jameson Greer,
+- [31:49.540] have all been in touch with their
+- [31:53.344] counterparts in countries around the world
+- [31:54.145] to let them know the United States will
+- [31:54.912] still be at the negotiating table.
+- [31:56.681] And we still expect countries
+- [31:57.849] around the world to treat us fairly.
+- [31:59.817] Again, I will just close by saying that
+- [32:02.053] how ridiculous it is that we've been ripped off.
+- [32:05.123] Our middle class has been hollowed out.
+- [32:06.891] Our manufacturing base has left and gone overseas.
+- [32:09.160] Jobs have been off shore.
+- [32:11.095] And now, no court did anything about that.
+- [32:13.898] No court did anything about hundreds of
+- [32:15.500] thousands of people being put out of work,
+- [32:17.602] about thousands of factories being
+- [32:19.337] closed down, about our deficits going to
+- [32:21.773] dangerous levels, as the New York Times has said.
+- [32:23.975] But now a court is trying to stop a
+- [32:25.476] President from trying to correct
+- [32:26.844] those wrongs of the past.
+- [32:28.346] And this administration will continue to do that.
+- [32:31.182] It's a promise the President made to the
+- [32:32.717] American people, and it's a
+- [32:33.584] promise they elected him on.
+- [32:35.286] We will win this battle in court,
+- [32:37.255] and the President will implement his
+- [32:39.390] America First Trade policies.
+- [32:41.159] Thank you, everyOne.
+- [32:43.194] The Press: (inaudible) the U.S.
+- [32:44.996] Steel situation towards the United States.
+- [32:45.930] Karoline Leavitt: I can tell you the President greatly
+- [32:47.498] looks forward to going to Pittsburgh,
+- [32:50.702] Pennsylvania, where he will discuss this
+- [32:52.904] historic deal and discuss
+- [32:54.305] American jobs and American steel.
+- [32:56.074] And we hope to see you all there.
+- [32:57.408] Thanks, guys.

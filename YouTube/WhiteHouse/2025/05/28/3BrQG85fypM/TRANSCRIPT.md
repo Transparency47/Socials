@@ -1,0 +1,586 @@
+<!-- source: https://www.youtube.com/watch?v=3BrQG85fypM -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 3BrQG85fypM -->
+<!-- date_published: 2025-05-28T16:43:31+00:00 -->
+<!-- date_accessed: 2026-06-02T02:49:15.333708+00:00 -->
+
+# Transcript: Vice President JD Vance Delivers Remarks at Bitcoin 2025 Conference
+
+- [00:02.680] Male Speaker: Wow.
+- [00:06.641] Wow. Wow.
+- [00:07.801] Wow.
+- [00:09.860] You know, I've been to a lot of Bitcoin
+- [00:11.710] conferences, but this is definitely the
+- [00:13.835] biggest crowd I've ever seen.
+- [00:15.880] Holy cow.
+- [00:19.840] So, you know, what's cool about this
+- [00:21.953] conference is that it's all about making history.
+- [00:25.040] So, you know, we're making history because
+- [00:26.867] this is the biggest Bitcoin conference we've ever done.
+- [00:29.310] We're expecting 35,000 people to be here today.
+- [00:37.530] We're making history because this is the
+- [00:39.383] first Bitcoin conference to ever happen
+- [00:41.191] over a hundred thousand dollar Bitcoin prices.
+- [00:43.991] (applause)
+- [00:47.660] You know, a year ago in Nashville,
+- [00:50.212] we made history when we had candidate Donald J. Trump
+- [00:54.290] come and address this crowd.
+- [01:00.240] He made us some promises.
+- [01:02.070] He promised to end the war on crypto.
+- [01:05.260] He promised to free Ross Ulrich.
+- [01:11.670] He promised to never sell our Bitcoin.
+- [01:14.850] He promised this strategic Bitcoin reserve.
+- [01:20.920] And he promised to make America the
+- [01:23.537] Bitcoin superpower of the world.
+- [01:31.240] In a hundred days, promises may promises kept.
+- [01:39.000] And today we're going to make a little
+- [01:41.011] bit of history this morning by having the
+- [01:43.530] first ever sitting vice president of
+- [01:45.752] the United States of America address
+- [01:47.965] the global Bitcoin community.
+- [01:50.091] (applause)
+- [01:55.410] Are you ready?
+- [01:56.791] (applause)
+- [02:01.120] With that, join me in welcoming the Vice
+- [02:04.066] President of the United States of America, JD Vance.
+- [02:09.191] ♪ (music playing) ♪
+- [02:41.325] The Vice President: Thank you.
+- [02:42.351] Thank you all.
+- [02:44.130] Thank you.
+- [02:44.631] Well, first of all, I want to thank --
+- [02:47.226] please, please, please, thank you guys.
+- [02:50.050] Take your seats.
+- [02:52.750] And, you know, the secret service is a
+- [02:54.370] little bit nervous because I told them
+- [02:55.991] these Bitcoin guys really like guns.
+- [03:00.530] But... they really like the president
+- [03:02.414] vice president of the United States too.
+- [03:04.510] So I think we're doing okay.
+- [03:12.580] So I first have to thank David Bailey.
+- [03:14.790] Grateful for everything that you've
+- [03:16.754] done for the Bitcoin community.
+- [03:19.360] Thanks in particular for what you did for
+- [03:21.668] me and the president helping us get from
+- [03:23.921] candidacy to the White House because we've
+- [03:26.328] done, I think, a lot of good in the past 120 days.
+- [03:30.360] And I don't think we could have
+- [03:31.244] done it without David's support.
+- [03:32.180] I want to also thank the...
+- [03:34.521] Winkle-Voss brothers, Tyler and Cameron.
+- [03:38.880] These guys are out here somewhere.
+- [03:44.450] Who... I gotta say, Tyler and Cameron,
+- [03:46.790] I think really helped break the dam in
+- [03:49.230] Silicon Valley because if you remember,
+- [03:51.034] you go back to June or July of last year.
+- [03:53.090] It feels like forever ago.
+- [03:54.750] It's not even a year ago.
+- [03:56.270] We're Silicon Valley, you know, people
+- [03:58.289] whisper in private that they
+- [03:59.991] were going to support Donald Trump for president.
+- [04:01.900] They would talk about the fact
+- [04:03.667] that Democrats had gone too crazy.
+- [04:05.770] We're going to get Gary Gensler the hell
+- [04:07.212] out of there, but they weren't quite
+- [04:08.511] willing to say, but they weren't quite
+- [04:12.041] willing to say at least not publicly
+- [04:15.480] that they were going to take the
+- [04:17.253] big step and support Donald J. Trump
+- [04:19.210] and Cameron and Tyler Winklevoss.
+- [04:21.490] I think they were some of the first big
+- [04:23.586] names in Silicon Valley to take that step
+- [04:25.791] and all whole host of people followed them.
+- [04:28.050] So Cameron and Tyler, thank you for that.
+- [04:35.250] And of course, I want to thank the good
+- [04:37.431] people at Coinbase, the organizers of this
+- [04:39.781] event, and everybody who made
+- [04:41.521] this incredible event possible.
+- [04:43.860] It's great to be here with Bitcoin at
+- [04:46.000] 108,000, at least when I checked this
+- [04:48.141] morning, and as Vice President of the
+- [04:49.801] United States, it's great to be here.
+- [04:51.801] (applause)
+- [05:00.490] Now, you guys know I get to meet a lot of
+- [05:03.112] exciting people in my job, but it's been
+- [05:05.671] quite a while since I've been to a
+- [05:07.758] conference with this level of energy.
+- [05:10.480] I mean, hell, you guys came out here at 9:00 a.m.
+- [05:12.970] after a long night, I'm sure in Las Vegas.
+- [05:15.130] You can't do that without a lot of good
+- [05:17.889] energy, but I promise I'm not just saying
+- [05:20.915] that to juice my own meme coins.
+- [05:26.110] But I think it's wrong actually
+- [05:27.550] to call this just a conference.
+- [05:29.130] This isn't a conference of people.
+- [05:31.230] This is a movement, and I'm proud
+- [05:32.910] to stand you with you here today.
+- [05:34.590] (applause)
+- [05:42.180] And I think this conference, this
+- [05:44.249] movement of people is where the future of
+- [05:46.821] cryptocurrency in this great country gets decided.
+- [05:50.400] So let's start by making one thing abundantly clear.
+- [05:53.950] That future is going to be decided by
+- [05:56.967] the people by you, not by unelected bureaucrats.
+- [06:07.700] Now, as you all probably know,
+- [06:08.976] you've got a star-studded lineup here
+- [06:10.551] today, including several of my
+- [06:12.177] colleagues in the Trump administration.
+- [06:15.510] David Bo Hester, I know you're all out there.
+- [06:18.390] It's great to be among so many friends and allies.
+- [06:22.430] So, I want to speak for just a few minutes
+- [06:24.991] about a few things, and I want to talk a
+- [06:27.431] little bit about what we've done
+- [06:29.105] in the Trump administration.
+- [06:30.845] I want to give you a rundown of what this
+- [06:33.118] administration is doing on digital assets policy.
+- [06:36.570] But I also want to talk about some of
+- [06:38.420] the principles that help guide
+- [06:39.960] us as we develop this policy.
+- [06:42.310] But before that, I want to speak about why
+- [06:44.990] I'm personally optimistic about crypto and
+- [06:47.671] what it means for the American people.
+- [06:50.110] People ask me why I tend to be bullish on
+- [06:52.410] the future of innovation in this country.
+- [06:55.110] Now, I spend enough time in Silicon Valley
+- [06:57.517] to recognize the difference between good tech.
+- [07:01.110] Technology that boosts our
+- [07:02.455] productivity, makes our lives richer.
+- [07:05.120] That grounds us in the real world and
+- [07:07.150] compliments our day-to-day lives.
+- [07:09.410] That's the good technology.
+- [07:10.671] But there's also some bad technology out there.
+- [07:13.670] And when it comes to crypto, I think the
+- [07:15.719] last several years have made it clear
+- [07:17.595] that we're talking about genuine,
+- [07:19.940] ground up innovation, one that's already
+- [07:22.729] improving the well-being of tens of
+- [07:25.171] millions of our fellow citizens.
+- [07:27.150] I believe it's 50 million Americans
+- [07:29.865] own Bitcoin, and I believe that's going
+- [07:31.705] to be 100 million before too long.
+- [07:40.120] But it's not just about Bitcoin and
+- [07:41.923] about the value that's been generated,
+- [07:44.160] the wealth that's been generated by so
+- [07:45.943] many millions of our fellow citizens.
+- [07:48.030] Through decentralized finance,
+- [07:50.244] crypto has transformed how
+- [07:52.168] Americans transact with one another.
+- [07:55.280] It's expanded access to banking for
+- [07:57.560] many who may not otherwise have had it.
+- [08:00.580] And every single day, I feel like I see
+- [08:02.823] some groundbreaking new use of blockchain
+- [08:05.280] tech, whether it's in supply chain
+- [08:07.424] management, whether it's in hospitals,
+- [08:10.295] or whether it's in changing how we
+- [08:12.328] track and store patients' private health records.
+- [08:16.600] But for each of these new forward-looking
+- [08:19.320] applications, I also feel like there's an
+- [08:22.041] incredibly value conservative
+- [08:24.091] element to crypto technology.
+- [08:26.920] And that's as a hedge.
+- [08:28.890] Crypto is a hedge against bad policymaking
+- [08:31.785] from Washington, no matter what parties in control.
+- [08:35.620] It's a hedge against skyrocketing
+- [08:38.073] inflation, which is eroded, still savings
+- [08:41.121] rate of Americans over the last four years.
+- [08:44.700] And as you all know well, it's a
+- [08:46.954] hedge against a private sector that's
+- [08:49.561] increasingly willing to discriminate
+- [08:51.817] against consumers on the basis of their
+- [08:54.261] basic beliefs, including their politics.
+- [09:04.870] That includes, of course, debaking users
+- [09:07.650] for Second Amendment advocacy or for ties
+- [09:10.525] to the first Trump administration.
+- [09:13.150] And Canada, the government did the same
+- [09:15.639] to kill those big truck driver protests in 2022.
+- [09:19.900] Less than a week later, they succeeded.
+- [09:22.300] The protests were over.
+- [09:24.690] But maybe most importantly, I see crypto
+- [09:27.279] as a hedge against one of the most
+- [09:29.481] dangerous trends in the digital era
+- [09:31.724] in both the public and private sector.
+- [09:34.780] And that's of elites who, rather than
+- [09:37.599] innovate themselves, prefer to simply take
+- [09:40.801] over and co-opt cutting-edge technologies
+- [09:43.626] to assert their control over other people.
+- [09:53.230] And I know we believe this in this room.
+- [09:55.420] That's not Bitcoin.
+- [09:56.840] It'll never be Bitcoin.
+- [09:58.580] And you guys are going to make sure that happens.
+- [10:01.580] (applause)
+- [10:07.390] But as you know, there's a new sheriff
+- [10:09.540] in town because after four years of
+- [10:11.720] mistreatment and outright hostility led
+- [10:14.508] by Democrat regulators, lawmakers
+- [10:16.802] in this country have a choice.
+- [10:20.460] Will we lead our nation into a future of
+- [10:23.350] financial sovereignty, of innovation and
+- [10:26.290] of prosperity, or will we let unelected
+- [10:29.184] bureaucrats and foreign competitors
+- [10:31.566] write the rules for us?
+- [10:33.570] And I'm here today to say loud and clear,
+- [10:36.638] with President Trump, crypto finally has a
+- [10:39.781] champion and an ally in the White House. *
+- [10:51.520] In our administration, we understand
+- [10:53.623] the full potential of the digital assets
+- [10:55.961] industry, not just as an investment,
+- [10:58.692] not just as a flashy technology,
+- [11:01.480] but as a simple and driver of
+- [11:03.410] personal liberty for all our citizens.
+- [11:06.140] And we are dedicated to seeing that promise fulfilled.
+- [11:09.620] The way that we see it, the people in
+- [11:11.840] this room are the digital
+- [11:13.304] pioneers of the American economy.
+- [11:15.640] And that's why our administration is doing
+- [11:18.059] something a little unusual in Washington.
+- [11:21.280] We're listening to all of you as
+- [11:23.093] you blaze the trail of innovation.
+- [11:25.920] The innovators in this room are
+- [11:27.863] making people's lives better.
+- [11:30.340] You're pushing boundaries and solving
+- [11:32.222] problems, injecting unprecedented
+- [11:33.950] transparency into how we do commerce.
+- [11:37.100] And the way we see it, you all deserve a
+- [11:39.773] similar level of transparency and clarity,
+- [11:42.890] and most of all, you deserve respect
+- [11:45.430] and support from your government, not
+- [11:48.041] bureaucrats trying to tear you down. *
+- [11:57.190] Now, that means a few substantive concrete steps.
+- [12:00.110] And of course, the first and
+- [12:01.711] most important of those steps is straightforward.
+- [12:04.100] We've got to clean up the wreckage
+- [12:06.676] that the last administration left us.
+- [12:09.640] And since day one, that is exactly
+- [12:11.550] what we've been trying to do.
+- [12:13.680] Our administration, we prioritize
+- [12:15.708] eliminating the rules, the red tape,
+- [12:17.921] and the lawfare that we saw aimed
+- [12:20.120] at crypto by our predecessors.
+- [12:22.820] We're ending the weaponization of federal
+- [12:25.366] regulations against this community.
+- [12:28.180] To put it simply, Operation Choke Point
+- [12:30.934] 2.0 is dead and it's not coming
+- [12:33.269] back under the Trump administration.
+- [12:35.580] (applause)
+- [12:42.060] And by the way, it's crazy that
+- [12:43.426] was ever even controversial.
+- [12:44.920] The idea of using the regulatory power of
+- [12:48.289] the government to crush an industry and to
+- [12:51.741] crush people who espoused a view that you didn't like.
+- [12:54.761] It's crazy, but let my words today
+- [12:57.198] serve as Operation Choke Point.
+- [12:59.980] Let me serve as it's obituary.
+- [13:05.120] Now, this --
+- [13:06.520] Now, this is my vow to every single person here.
+- [13:09.840] You will never see this administration
+- [13:12.192] trying to handicap your community or
+- [13:14.421] diminish the impact it's had on the economy.
+- [13:17.630] Instead, we reject the Biden
+- [13:19.986] administration's legacy of death by a
+- [13:23.101] thousand enforcement actions.
+- [13:26.220] We reject regulators.
+- [13:30.680] Maybe the most important thing that we did
+- [13:33.098] for this community, we reject regulators
+- [13:35.401] and we fired Gary Gensler and we're
+- [13:37.212] going to fire everybody like him. *
+- [13:47.630] And we know that people like Gary Gensler,
+- [13:50.095] the game that they play, is that under the
+- [13:52.561] pretense of consumer protection,
+- [13:55.382] they attack every single effort to
+- [13:58.530] democratize our financial markets and that is over.
+- [14:02.520] America.
+- [14:06.500] I grew up in a working class family.
+- [14:08.220] I believe that America is a place where
+- [14:10.669] anyone should be able to make a fortune,
+- [14:13.360] no matter where you grew up, what
+- [14:15.144] degree you may or may not have.
+- [14:17.425] And in recent years, I'm hard-pressed
+- [14:19.374] to think of a better place to do so than
+- [14:21.481] right here in the digital assets industry.
+- [14:24.780] Now, our second substantive step is we're
+- [14:27.130] trying to create a clear, pro (inaudible) legal
+- [14:29.481] framework for stablecoins in this country.
+- [14:32.200] And I know we've got some solid allies in Congress.
+- [14:34.580] Is Cynthia Lummis out there
+- [14:35.872] today or she already go home?
+- [14:38.500] Well, you know, I was supposed to have
+- [14:40.860] dinner last night with Cynthia Lummis.
+- [14:43.440] We had a little event yesterday.
+- [14:45.200] And I looked around, I said,
+- [14:46.320] where the hell is Cynthia Lummis?
+- [14:48.310] And somebody said, well, she's
+- [14:49.565] got a dinner she had to go to.
+- [14:50.920] And I said, I'm the Vice President.
+- [14:53.140] Unless she's having dinner with the
+- [14:54.576] President, Cynthia does not have an excuse
+- [14:56.650] to skip this event.
+- [14:58.420] But we love Cynthia and I know that
+- [15:00.133] she's one of the great advocates for your
+- [15:02.340] industry in the United States Congress.
+- [15:04.580] (applause)
+- [15:12.570] Now, I know led by Cynthia and other great
+- [15:14.941] legislators, Congress is hard at work
+- [15:17.031] getting the genius act passed and across
+- [15:19.776] the president's desk as quickly as possible.
+- [15:22.860] And that's an important step.
+- [15:25.480] It's with good reason because regulatory
+- [15:28.139] uncertainty in this country has pushed way
+- [15:31.005] too much stablecoin activity
+- [15:32.871] overseas over the last few years.
+- [15:35.720] Now, somebody said to me yesterday that
+- [15:38.903] Bitcoin has done so much over the last few
+- [15:42.331] years with so many headwinds.
+- [15:44.710] Wouldn't it be nice to have a government
+- [15:46.417] that provided some tailwinds to one of the
+- [15:48.360] fastest growing industries in our country?
+- [15:50.170] And that's what we aim to do.
+- [15:58.090] And once the Genius Act is enacted,
+- [16:00.313] it's poised to vastly expand the use of
+- [16:02.791] stablecoins as a digital payment system
+- [16:05.223] for millions of our fellow Americans.
+- [16:08.230] It'll also protect coin holders and inject
+- [16:10.750] further transparency into the market.
+- [16:13.570] And let me be emphatic on one other point.
+- [16:16.290] In this administration, we do not think
+- [16:18.707] that stablecoins threaten the integrity of
+- [16:21.311] the United States dollar, quite the opposite.
+- [16:29.765] In fact, we view them as a force
+- [16:32.515] multiplier of our economic might.
+- [16:36.250] Dollar peg stablecoins, particularly once
+- [16:39.024] Genius is enacted, is only going to help
+- [16:41.731] the American economy and it's only
+- [16:43.281] going to help the American dollar.
+- [16:45.650] So, again, we're optimistic that the
+- [16:47.623] Senate is able to move quickly on passing
+- [16:49.871] a clean genius act and for the
+- [16:51.671] House to follow up and do the same.
+- [16:54.330] And of course, once that happens, our
+- [16:55.966] great President Trump will sign it
+- [16:57.595] into law the minute it comes across his desk.
+- [17:03.310] Now, when that's happened, when the
+- [17:06.668] administration will then fully shift to
+- [17:10.510] our third priority, which is to enact
+- [17:12.840] a transparent and tailored regulatory
+- [17:15.270] framework for digital assets.
+- [17:17.550] One that's pro innovation and fully
+- [17:19.659] incorporates crypto into the mainstream economy.
+- [17:23.130] And again, I've talked to so many
+- [17:24.718] of you over the last couple of days.
+- [17:26.700] And the consistent fear that I hear with
+- [17:28.872] all the great things that have happened
+- [17:31.140] over the last couple of months.
+- [17:34.130] The consistent fear that I hear is that
+- [17:36.191] there's still this perception that digital
+- [17:38.560] assets are not welcome in the mainstream
+- [17:40.914] economy and let me promise you that
+- [17:43.001] our effort to change the policy
+- [17:45.387] is purely about changing that.
+- [17:48.000] We want our fellow Americans to know that
+- [17:51.048] crypto and digital assets and particularly
+- [17:54.171] Bitcoin are part of the mainstream
+- [17:56.491] economy and are here to stay.
+- [17:58.591] (applause)
+- [18:06.120] Now, we think the way to do that
+- [18:08.207] legislatively because, again, I hope that
+- [18:11.030] our party is in charge for a long
+- [18:13.180] time, but nothing is ever guaranteed in politics.
+- [18:16.720] So the best way to ensure that crypto is
+- [18:19.160] part of the mainstream economy is through
+- [18:21.735] a market structure bill that champions and
+- [18:24.626] doesn't restrict the extraordinary value
+- [18:27.430] that Bitcoin and other digital assets represent.
+- [18:30.860] Right now, in this Congress and with
+- [18:33.456] this administration, we have a once in a
+- [18:36.540] generation opportunity to unleash
+- [18:38.854] innovation and use it to improve the lives
+- [18:41.801] of countless American citizens.
+- [18:44.420] But if we fail to create regulatory
+- [18:46.954] clarity now, we risk chasing this $3
+- [18:49.561] trillion industry offshore in search of a
+- [18:52.311] clear jurisdiction and President Trump is
+- [18:55.061] going to fight to make ure that does not happen.
+- [19:04.390] About this, by locking in smart pro
+- [19:06.923] innovation rules of the road, we can also
+- [19:10.090] make sure that Democrats or anybody else
+- [19:12.711] never wage another war on the crypto community.
+- [19:21.760] Now, I've already hit my time here,
+- [19:23.466] but before I head back to Washington,
+- [19:25.750] let me offer you just a few bits of advice
+- [19:28.402] and a few thoughts on where this industry is going.
+- [19:31.500] This is one politician's perspective,
+- [19:33.878] so take it for what it's worth.
+- [19:35.930] Maybe a little bit less than one Bitcoin right now.
+- [19:40.450] But let me say a few things.
+- [19:41.930] First of all, I remember when I ran for
+- [19:43.402] Senate the first time I had to
+- [19:44.422] ever enter politics back in 2022.
+- [19:47.410] And one of the frustrations, honestly,
+- [19:49.603] that I had with the crypto community as a
+- [19:51.971] person who was one of the only people
+- [19:53.800] running for office who actually own
+- [19:55.980] Bitcoin, and I still own a
+- [19:57.280] fair amount of Bitcoin today.
+- [20:04.420] Think about this.
+- [20:05.360] This is during that campaign, that's 2021 and 2022.
+- [20:09.100] This feels like an eternity ago,
+- [20:10.563] but it was only four years ago,
+- [20:12.170] is that I recognize what so many advocates
+- [20:14.923] of Bitcoin recognize, which is what the
+- [20:17.481] Biden administration was doing.
+- [20:19.320] What Gary Gensler was doing was a
+- [20:21.443] disaster, and yet there didn't seem to be
+- [20:24.280] any real organization pushing back
+- [20:26.000] against it at the political level.
+- [20:28.120] And let me say that part of the reason
+- [20:29.896] that I'm standing here, part of the reason
+- [20:31.960] that Bernie Moreno defeated Sherrod
+- [20:34.268] Brown in the Senate campaign last year,
+- [20:37.160] is because you guys got organized and
+- [20:39.734] got involved in American politics,
+- [20:42.230] and I'm grateful to you for that.
+- [20:46.970] But there's a lesson to take from that
+- [20:49.592] experience, which is that unless you guys
+- [20:52.421] get involved in politics, politics
+- [20:55.491] is going to ignore this industry.
+- [20:59.160] Now you took a big step in 2024, and
+- [21:01.527] I tell you every victory that we win,
+- [21:04.460] it's only a provisional victory.
+- [21:07.120] One of my great mentors in Silicon Valley
+- [21:10.085] always told me that Bitcoin, that the
+- [21:12.761] crypto community was about exit, and
+- [21:15.046] artificial intelligence was about voice.
+- [21:18.100] Well, I know that a lot of people in
+- [21:20.483] 2024 in this community chose voice.
+- [21:22.960] You chose to speak up and you chose to get
+- [21:25.221] involved, and I believe you changed the
+- [21:27.321] trajectory of our country because of it.
+- [21:30.140] But you got to keep on choosing voice.
+- [21:32.790] Bitcoin, of course, is people call it digital gold.
+- [21:36.140] But while Bitcoin is digital, none of you are.
+- [21:41.220] None of us are.
+- [21:42.880] What happens in the world of politics,
+- [21:44.996] what happens in the world of bureaucracy,
+- [21:47.880] it will affect even the most
+- [21:49.512] transformational and valuable technologies
+- [21:52.310] if we don't make the right decisions.
+- [21:55.200] So the first piece of advice, the first
+- [21:57.756] thing that I'd ask you is to take the
+- [22:00.280] momentum of your political involvement
+- [22:03.417] in 2024 and carry it forward to 2026 and beyond.
+- [22:07.520] Don't ignore politics because I guarantee
+- [22:10.167] it, my friends, politics is not going to
+- [22:12.645] ignore this community, not now and not in the future.
+- [22:22.720] The second thing that I want to toss out
+- [22:25.086] there is that we have to start thinking of
+- [22:27.720] the long-term strategic implications of Bitcoin.
+- [22:31.750] Bitcoin is owned by about 50 million Americans.
+- [22:34.110] A lot of Americans have made a lot of
+- [22:36.067] money, have created a lot of wealth for
+- [22:38.230] themselves, and that's a great thing.
+- [22:40.380] But I actually think that where Bitcoin
+- [22:43.702] is going is as a strategically important
+- [22:47.111] asset for the United States over the next decade.
+- [22:49.650] It's one of the reasons why President
+- [22:51.927] Trump, with the help of our great AI guy,
+- [22:54.730] David Sacks, it's one of the reasons
+- [22:56.697] why we started the Bitcoin Reserve.
+- [22:59.330] Because we want to put in motion the
+- [23:02.277] strategic importance of Bitcoin
+- [23:04.963] for the United States government.
+- [23:06.820] We know that the PRC doesn't like Bitcoin.
+- [23:11.070] The People's Republic of China doesn't like Bitcoin.
+- [23:13.730] Well, we should be asking ourselves, why is that?
+- [23:16.210] Why is our biggest adversary such an opponent of Bitcoin?
+- [23:20.470] And if the Communist Republic of China is
+- [23:23.090] leaning away from Bitcoin, then maybe the
+- [23:25.960] United States ought to be leaning into Bitcoin.
+- [23:28.250] And that's one of the things
+- [23:29.370] that we're going to be doing.
+- [23:37.590] But that's not a vice president
+- [23:39.098] standing up here and talking at you.
+- [23:41.130] The way that Bitcoin is involved in
+- [23:43.506] the strategic future of our country,
+- [23:46.150] that's got to be a two-way conversation.
+- [23:48.490] And so when I talk about getting involved
+- [23:50.540] in politics, one of the things that you
+- [23:52.640] guys got to do is continue to give us
+- [23:55.206] feedback and continue to tell us the ways
+- [23:58.125] in which Bitcoin can play a positive role
+- [24:00.395] in the strategic future of this country.
+- [24:02.910] I know that Bitcoin policy Institute
+- [24:05.070] is working on this very topic now,
+- [24:07.185] but all of you have got to be
+- [24:08.662] involved in this conversation.
+- [24:10.610] Because I don't think any of us want to
+- [24:12.640] wake up in a country ten years from now
+- [24:14.970] that is less wealthy and less prosperous
+- [24:17.444] because we made bad decisions today.
+- [24:20.050] We're going to make the right decisions,
+- [24:22.118] but that depends on you guys
+- [24:23.563] being part of the conversation.
+- [24:25.370] So be part of that conversation.
+- [24:32.350] And here's -- and here's the third
+- [24:33.710] thought that I want to leave you with.
+- [24:35.270] You know, one of the ways you hear this
+- [24:37.521] stated is that crypto is fundamentally a
+- [24:39.831] conservative or right leaning technology
+- [24:42.310] and artificial intelligence is
+- [24:44.270] fundamentally less leaning or a communist technology.
+- [24:47.350] Now I think that overstates things
+- [24:48.895] a little bit in both directions,
+- [24:50.950] but there's a fundamental element of truth to it.
+- [24:53.231] Now I haven't been involved in the
+- [24:55.577] day-to-day operations of a technology
+- [24:58.230] company in about four years since I
+- [25:00.127] entered politics for the very first time.
+- [25:02.640] But what I've noticed is that very smart
+- [25:05.624] right-wing people in tech tend to be
+- [25:08.311] attracted to Bitcoin and crypto and very
+- [25:11.234] smart left-wing people in tech
+- [25:13.510] tend to be more attracted to AI.
+- [25:16.050] Again, that's a gross generalization.
+- [25:18.190] It's an overstatement, but
+- [25:19.421] there's an element of truth to it.
+- [25:21.180] But what I'd ask you all is to remember
+- [25:23.977] that what happens in AI is very much going
+- [25:26.991] to affect in good and bad ways what happens to Bitcoin.
+- [25:31.530] And of course what happens to Bitcoin is
+- [25:33.762] very much going to affect what happens in AI.
+- [25:37.240] So while this is certainly a Bitcoin
+- [25:39.423] conference, and I know we're all proud of
+- [25:42.085] what you guys have accomplished over the
+- [25:44.078] last ten years, my final piece of advice
+- [25:46.470] is to make sure you're keeping tabs on and
+- [25:49.120] staying involved in what's happening with
+- [25:51.771] artificial intelligence because I don't
+- [25:54.364] want Bitcoin to be negatively
+- [25:56.370] affected by what happens in AI.
+- [25:58.170] And most importantly, I don't want America
+- [26:00.437] to be negatively affected by what happens in AI.
+- [26:03.270] And the best way to ensure that smart
+- [26:06.045] people are at the AI conversation is to
+- [26:09.020] ensure that Bitcoin is part of the
+- [26:10.835] artificial intelligence conversation.
+- [26:13.210] Our administration is committed to it.
+- [26:15.010] I want you guys to be committed to it as well.
+- [26:17.210] (applause)
+- [26:25.230] I just want to say in the next few
+- [26:26.664] years in the Trump administration,
+- [26:28.062] we've accomplished a lot.
+- [26:29.790] But we have plans to continue to make big
+- [26:32.811] progress for this industry and for the
+- [26:35.760] American people who rely on it.
+- [26:37.520] The whole of government, we're going to need your help.
+- [26:39.890] We're going to need your guidance.
+- [26:41.090] We're going to need your encouragement.
+- [26:42.655] And at times, yes, because this is
+- [26:44.683] politics, our politicians are
+- [26:46.453] going to need your pressure.
+- [26:48.380] So, have fun this week.
+- [26:50.790] But keep the pressure up.
+- [26:52.270] And we'll do great things together for
+- [26:54.427] our industry, but most importantly for the
+- [26:56.811] cause of personal freedom and
+- [26:58.411] the United States of America.
+- [27:00.110] God bless you guys and thanks for having me.
+- [27:02.910] ♪ (music playing) ♪

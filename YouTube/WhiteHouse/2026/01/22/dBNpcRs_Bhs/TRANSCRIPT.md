@@ -1,0 +1,866 @@
+<!-- source: https://www.youtube.com/watch?v=dBNpcRs-Bhs -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: dBNpcRs-Bhs -->
+<!-- date_published: 2026-01-22T20:12:52+00:00 -->
+<!-- date_accessed: 2026-06-02T02:38:47.279126+00:00 -->
+
+# Transcript: Vice President JD Vance Delivers Remarks in Minneapolis, Minnesota, Jan. 22, 2026
+
+- [00:09.890] The Vice President: Good afternoon, everybody.
+- [00:11.190] How we doing?
+- [00:12.840] Good, so I want to thank the law enforcement officers behind me
+- [00:16.210] for being here. I'll answer a few questions,
+- [00:18.330] but I want to say just a few things at the outset,
+- [00:21.120] just about what I've learned today
+- [00:22.620] and what I'm trying to do here.
+- [00:24.020] First of all, I want to give a shout out
+- [00:26.750] to the Annunciation school shooting families
+- [00:29.260] because the last time I was in Minneapolis,
+- [00:31.220] it was, of course, to meet with some of those families.
+- [00:33.120] I understand that a couple of the students
+- [00:35.220] have made near miraculous recoveries and just.
+- [00:37.860] That was a very special moment for me
+- [00:39.330] to be invited into that community at a time of grief.
+- [00:41.900] And I hope that all of them know
+- [00:43.710] that though I didn't get to see them this particular time,
+- [00:45.770] I've been thinking about them and their families quite a bit.
+- [00:48.490] Now, to talk about what I am here to do,
+- [00:51.150] which is federal law enforcement to enforce our immigration laws,
+- [00:54.860] I want to say just a few things.
+- [00:56.090] First of all, I wanted to meet with business leaders,
+- [00:59.210] with ICE officers, with local law enforcement
+- [01:01.570] to try to understand a little bit better what's going on.
+- [01:04.770] So that we can tone down the temperature a little bit,
+- [01:07.080] reduce the chaos,
+- [01:08.310] but still allow us, as a federal government,
+- [01:11.200] to enforce the American people's immigration laws.
+- [01:13.140] That is the purpose of my visit.
+- [01:14.350] Now this is step one or step two of that process.
+- [01:16.760] There's going to be a lot of work
+- [01:18.120] that follows through from here. I'm happy to talk about that.
+- [01:21.030] But I think I learned a few things that were very important.
+- [01:23.030] So number one, one of the things I learned
+- [01:25.680] is that the guys behind me are doing an incredible job.
+- [01:29.080] And frankly, a lot the media is lying about the job
+- [01:31.610] that they do every single day. Now it doesn't mean
+- [01:34.250] that there aren't occasionally stories out there,
+- [01:36.320] there aren't t occasionally videos out there
+- [01:38.040] that suggest that these guys,
+- [01:40.030] or at least some of the people who work for them,
+- [01:41.930] are not doing everything right,
+- [01:43.430] but very often if you look at the context of what's going on,
+- [01:46.790] you understand that these people are under an incredible amount
+- [01:49.540] of duress, an incredible number of chaos,
+- [01:52.160] and because of a few very far left agitators,
+- [01:55.900] A lot of these guys are unable to do their jobs
+- [01:58.420] without being harassed. Without being doxed
+- [02:00.640] and sometimes without being assaulted.
+- [02:01.930] That's totally unacceptable.
+- [02:03.550] And that's one of the things that I want to send a message
+- [02:05.590] to is yes, come out and protest, protest me,
+- [02:08.310] protest our immigration policy, but do it peacefully.
+- [02:11.400] If you assault a law enforcement officer,
+- [02:13.650] the Trump administration and the Department of Justice
+- [02:15.850] is going to prosecute you to the fullest extent of the law.
+- [02:18.820] And I wanted to show some support for these guys
+- [02:20.750] who frankly are operating in a very, very tough environment.
+- [02:24.320] I heard a lot of stories today about that.
+- [02:26.470] That I think drives home just how chaotic
+- [02:28.820] the environment on the ground here has already gotten.
+- [02:30.530] For example, did you know that within the last,
+- [02:33.150] I think, week or so, maybe even more recently than that,
+- [02:36.250] you had a couple of ICE officers who were off duty,
+- [02:39.270] who had been doxed online,
+- [02:40.580] who were sitting and having a meal
+- [02:42.320] at a restaurant in Minneapolis
+- [02:43.700] when a bunch of agitators showed up,
+- [02:45.930] locked the door,
+- [02:47.220] made them feel like they were in danger for their lives,
+- [02:50.100] and then, of course, it was federal law enforcement officers
+- [02:52.590] who had to come up,
+- [02:53.790] lower the temperature on the situation.
+- [02:55.670] And actually get those two off-duty officers
+- [02:58.060] to a point of safety. Now imagine if you would,
+- [03:01.330] your life and your perspective on law enforcement,
+- [03:05.590] if you can't even go to a restaurant
+- [03:07.660] without some agitators locking the door
+- [03:09.910] and making you feel like your life is in danger.
+- [03:12.270] That is the environment that has been created,
+- [03:14.380] I think, by a lot of very, frankly, far left people,
+- [03:19.630] but also by some of the state
+- [03:21.010] and local law enforcement officials.
+- [03:22.930] Who could do a much better job in cooperating and working.
+- [03:26.300] And by the way, I'm not talking about the cops,
+- [03:28.790] who these guys told me on the ground,
+- [03:30.460] the cops are very sympathetic to what they're dealing with.
+- [03:32.720] I'm talking about the state
+- [03:33.940] and local elected law enforcement officials
+- [03:36.860] who could a lot better job
+- [03:38.950] in making their lives a little bit easier.
+- [03:40.800] And in the process, they would make the lives
+- [03:43.300] of all Minneapolis residents easier.
+- [03:45.270] And that's what we want.
+- [03:46.570] We want to be able to enforce the immigration laws
+- [03:48.630] on the one hand, while on the other hand,
+- [03:50.660] We want to make sure that people in Minneapolis
+- [03:52.280] are able to go about their day.
+- [03:53.550] And I want to say just one last point on this.
+- [03:56.620] So I heard from a business leader today
+- [03:58.670] who told me a very tough story.
+- [03:59.970] And I think so much of what's gone wrong in Minneapolis
+- [04:03.020] is people not trying to understand
+- [04:04.770] the perspective of somebody else.
+- [04:07.190] Try to understand what somebody else is experiencing,
+- [04:10.350] whether they're a law enforcement officer
+- [04:12.200] or anybody in the community here in Minneapolis.
+- [04:14.360] So they told me this story about this manufacturing facility.
+- [04:19.810] An illegal immigrant was being arrested.
+- [04:22.430] And as these employees are going into the manufacturing facility,
+- [04:25.600] all of a sudden an illegal immigrants shows up.
+- [04:28.110] They don't know it's an illegal immigration.
+- [04:29.540] And then a bunch of ICE officers descend.
+- [04:31.480] Now these people just want to go to work.
+- [04:32.850] They want to go work safely. And now all of the sudden,
+- [04:35.290] there's a major law enforcement operation
+- [04:36.920] happening right outside their place of business.
+- [04:39.380] Now from one perspective,
+- [04:40.780] I certainly understand why a business leader
+- [04:43.170] or why an employee would say, well, what's going on?
+- [04:45.300] It's a little scary no matter your position in life.
+- [04:47.880] If a bunch of cop cars show up and they're arresting somebody.
+- [04:51.150] Now, the additional context is that we know
+- [04:54.210] that people online have been encouraging illegal immigrants
+- [04:58.330] that one way they can evade arrest
+- [05:00.540] is by showing up at a legitimate place of business,
+- [05:03.440] making it impossible for these guys
+- [05:05.380] to actually enforce their immigration laws.
+- [05:07.600] So while I can understand the perspective of somebody
+- [05:10.670] who doesn't want to see an arrest
+- [05:11.940] happen at their place of work,
+- [05:13.570] I can also understand the prospective
+- [05:15.320] of our immigration enforcement officers.
+- [05:17.420] Who have to do their job and can't allow a heckler's
+- [05:20.800] veto over our immigration enforcement.
+- [05:23.750] And so much of what's gone wrong is the failure to do that,
+- [05:26.480] and here's the point.
+- [05:29.630] We can do a good job of enforcing our immigration laws
+- [05:32.940] without the chaos, but it actually requires
+- [05:35.160] the cooperation of state and local officials.
+- [05:37.870] If you look at blue cities and blue states,
+- [05:40.500] red cities and red states,
+- [05:41.820] you go to Austin, Texas or Memphis, Tennessee.
+- [05:45.470] The state of Texas, obviously a very red state,
+- [05:47.720] or the state of Tennessee, a very read state,
+- [05:49.740] but you've got blue cities within those states,
+- [05:51.750] you do not have this level of chaos.
+- [05:53.850] The reason why things have gotten so out of hand
+- [05:56.790] is because of failure of cooperation
+- [05:59.540] between the state and local authorities
+- [06:02.620] and what these guys are trying to do.
+- [06:04.440] We have a ton of resources, a ton of ICE agents in this city
+- [06:07.750] right now that I would rather us not have.
+- [06:10.030] I'd love to send those guys home.
+- [06:12.000] They're not even doing targeted immigration enforcement.
+- [06:14.950] They are trying to protect ICE officers
+- [06:17.970] who are doing immigration enforcement
+- [06:19.990] because when a crowd surrounds them and these guys call 911,
+- [06:23.460] the local officials,
+- [06:24.710] the local cops have been told to stand down.
+- [06:27.060] So we have people here
+- [06:28.460] who aren't even doing immigration enforcement.
+- [06:30.480] They're doing force protection
+- [06:32.090] so that if a rioter tries to ruin the life
+- [06:35.020] or assault an ICE officer, they're actually protected.
+- [06:38.710] Now why doesn't it make more sense for the local cops?
+- [06:42.200] To get involved in that situation,
+- [06:43.670] why not just have the mayor or the local officials
+- [06:46.710] tell the police officers, you know what,
+- [06:48.710] if an ICE officer is being assaulted
+- [06:51.090] by a far left agitator,
+- [06:52.740] you are invited, you should actually help them.
+- [06:55.970] That's what would work out in any normal situation,
+- [06:58.740] and that's what happens in nearly every jurisdiction
+- [07:02.000] red or blue in the United States of America.
+- [07:04.560] The reason it hasn't happened here
+- [07:06.760] is because the local authorities have been told,
+- [07:09.070] stand down, do not help ICE.
+- [07:11.400] Promote the violence, promote the agitation,
+- [07:13.820] but don't do anything to lower the temperature
+- [07:15.800] and lower the chaos. That's a problem.
+- [07:18.060] Here's another example of how the lack of cooperation
+- [07:21.400] between state and local officials
+- [07:24.430] makes it harder for us to do our job
+- [07:26.300] and turns up the temperature. Let's say, for example,
+- [07:29.110] we have a criminal migrant who is a sex offender.
+- [07:32.160] And let's say that we've got to go and arrest
+- [07:34.350] that person who, Democrat or Republican,
+- [07:36.530] wants a sex-offender living in their community,
+- [07:39.080] I would assume, I would hope. That most people don't.
+- [07:42.000] But because they're an illegal alien,
+- [07:43.650] we don't know their last address.
+- [07:45.390] We may have known their address three years ago,
+- [07:47.610] but we don't know their address now.
+- [07:49.630] What we'd like to do is talk to local officials
+- [07:52.170] and say, you know what? According to the Medicaid rules,
+- [07:57.170] where was the last address this person was domiciled?
+- [08:00.270] Or according to a SNAP application,
+- [08:01.950] a food stamps application,
+- [08:03.520] maybe that could give us insight to where this person is today.
+- [08:06.470] Or maybe they had some local court trouble.
+- [08:08.260] We could go to the local courthouse
+- [08:09.870] or even the local jail
+- [08:11.400] and try to find where this criminal sex offender is today.
+- [08:14.950] The local authorities have been told do not cooperate.
+- [08:18.170] So these guys are trying to go out and enforce the law.
+- [08:20.600] They're trying to arrest sex offenders,
+- [08:22.370] but they're trying do it in an environment
+- [08:24.370] where local officials have been told do no help them,
+- [08:27.070] do not provide intelligence
+- [08:28.710] about where these sex offenders might be.
+- [08:30.610] This is disgraceful.
+- [08:32.340] And there are a lot of things that all of us
+- [08:33.940] could do better to lower the temperature,
+- [08:35.480] but the number one thing that I learned today
+- [08:37.500] is that the best way
+- [08:38.740] to facilitate reasonable enforcement of the law,
+- [08:42.200] but also to lower chaos in Minneapolis
+- [08:45.230] would be for state and local officials to cooperate.
+- [08:47.720] Now I will say, on one final positive note,
+- [08:51.190] I actually think that there's some hope,
+- [08:53.480] some reason to think that's there's going to be
+- [08:55.360] better cooperation in the weeks and months to come.
+- [08:57.850] I think that because I've talked
+- [08:59.240] to some of the local officials here,
+- [09:00.610] I think there reasons to believe.
+- [09:02.520] That these people are going to step up
+- [09:04.060] and actually ask the cops to protect our officers
+- [09:07.210] when they're being assaulted.
+- [09:08.410] Who are going to ask the local courts to cooperate
+- [09:11.270] with getting criminal sex offenders out of our community.
+- [09:13.970] That's a good thing. That's the good news.
+- [09:15.780] And that's something I'm going to work on
+- [09:17.260] when I get back to Washington.
+- [09:18.860] But please, if you're a local official,
+- [09:21.890] if you are the mayor of this town,
+- [09:23.910] if you have any influence over those people,
+- [09:26.950] just tell them to cooperate.
+- [09:28.730] Because we could have immigration enforcement
+- [09:31.070] Operate as smoothly. And without the chaos
+- [09:33.920] that we see in Austin, Texas, or Memphis, Tennessee,
+- [09:36.910] or even rural parts of the state of Minnesota,
+- [09:39.290] all we need is a little cooperation.
+- [09:41.200] I guarantee you, we're going to do the best to be professional,
+- [09:44.350] to respect people's rights,
+- [09:46.040] to not do anything that we don't have to do
+- [09:48.480] in order to enforce immigration laws,
+- [09:50.510] but it would make our lives a lot easier,
+- [09:53.020] it would our officers a lot safer,
+- [09:55.130] and it would Minneapolis much less chaotic
+- [09:57.880] if we had a little bit of cooperation
+- [09:59.540] from the state and local officials.
+- [10:00.930] With that. I'll shut up and take some questions.
+- [10:02.760] Thank you guys.
+- [10:05.430] The Press: A local school district here is alleging
+- [10:07.010] ICE agents
+- [10:08.300] detaining a five-year-old after preschool on Tuesday.
+- [10:11.410] We've also seen multiple American citizens
+- [10:13.840] detained by ICE,
+- [10:15.480] harassed by ICE in the last six weeks.
+- [10:18.060] Are you proud of how your administration is conducting
+- [10:21.410] this immigration crackdown here in Minnesota?
+- [10:23.640] The Vice President: Well, I'm proud of the fact
+- [10:24.850] that we're standing behind law enforcement
+- [10:26.980] and I'm proud of fact that were enforcing the country's laws.
+- [10:29.570] But you know, you asked a question
+- [10:30.850] about this five-year-old kid.
+- [10:32.080] I actually saw this terrible story
+- [10:34.190] while I was coming to Minneapolis.
+- [10:35.980] We just left Toledo, Ohio this morning
+- [10:38.040] for an economic messaging event.
+- [10:39.510] And I see this story and I am a father of a five-
+- [10:41.950] year-old actually, a five year old little boy.
+- [10:43.730] And I think to myself, oh my God, this is terrible.
+- [10:46.120] How did we arrest the five year- old?
+- [10:47.660] Well, I do a little bit more follow up research
+- [10:49.610] and what I find
+- [10:50.840] is that the five-year-old was not arrested.
+- [10:53.490] That his dad was an illegal alien,
+- [10:55.850] and then when they went to arrest his illegal alien father,
+- [10:59.220] the father ran.
+- [11:00.630] So the story is that ICE detained a five-year-old.
+- [11:04.280] Well, what are they supposed to do?
+- [11:05.780] Are they supposed to let a five year old child freeze to death?
+- [11:08.640] Are they not supposed to arrest an illegal alien
+- [11:11.920] in the United States of America?
+- [11:13.330] If the argument is that you can't arrest people
+- [11:16.460] who have violated our laws because they have children.
+- [11:19.760] Then every single parent
+- [11:21.030] is going to be completely given immunity
+- [11:23.220] from ever being the subject of law enforcement,
+- [11:26.070] that doesn't make any sense.
+- [11:27.440] No one thinks that makes any sense,
+- [11:29.380] now there are so many of these cases like that
+- [11:31.680] where if you just understand the context,
+- [11:33.870] there have been a number of situations
+- [11:35.270] that I've looked into personally where I say,
+- [11:36.940] wait a second, we don't want ICE arresting American citizens,
+- [11:41.130] they're supposed to be enforcing the immigration laws
+- [11:43.800] against illegal aliens. So then I look into it
+- [11:46.350] and I find out the American citizen who was arrested.
+- [11:49.490] Took a swing at an ICE officer, you can't have that happen.
+- [11:53.070] And of course they have to defend themselves.
+- [11:55.240] And of of course, they have the right to detain somebody
+- [11:57.930] who assaults a law enforcement officer.
+- [12:00.190] Now, this is my point.
+- [12:02.460] Do we want these things to happen?
+- [12:04.080] Do we these arrests to be so chaotic?
+- [12:07.450] No, we don't. These guys want least of all.
+- [12:10.170] But if we had a little cooperation from local
+- [12:12.940] and federal, excuse me, from local state officials,
+- [12:15.560] I think the chaos would go way down in this community.
+- [12:20.130] Go ahead.
+- [12:22.650] The Press: After the Renee Goode shooting, sir,
+- [12:24.810] the administration seemed to --.
+- [12:26.080] The Vice President: Yeah, well, you can go next.
+- [12:29.730] The Press: After the Renee Good shooting, sir,
+- [12:34.540] the administration seemed to suggest
+- [12:36.110] that ICE officers enjoyed near-complete immunity.
+- [12:39.290] But today you told the Washington Examiner
+- [12:41.660] that when appropriate the administration
+- [12:43.340] might take disciplinary actions against ICE agents.
+- [12:46.210] So is that a change of opinion,
+- [12:47.730] and if so, why the change of tone?
+- [12:49.500] The Vice President: No, I didn't say,
+- [12:50.710] and I don't think any other official
+- [12:51.980] within the Trump administration
+- [12:53.260] said that officers who engage in wrongdoing
+- [12:55.810] would enjoy immunity. That's absurd.
+- [12:57.270] What I did say is that when federal law enforcement officers
+- [13:00.320] violate the law, that is typically something
+- [13:02.060] that federal officials would look into.
+- [13:04.120] We don't want these guys to have kangaroo courts.
+- [13:06.480] We want them to actually have real
+- [13:08.140] due process, real investigation.
+- [13:09.820] Because again, sometimes they're accused of wrongdoing
+- [13:12.330] and it turns out when you
+- [13:15.760] But of course we're going to investigate these things.
+- [13:17.800] Of course we are investigating the Renee
+- [13:19.280] Good shooting, but we're investigating them
+- [13:21.740] in a way that respects people's rights
+- [13:23.890] and then ensures that if somebody did something wrong,
+- [13:26.250] yes, they're going face disciplinary action,
+- [13:28.030] but we are not going to judge them
+- [13:29.400] in the court of public opinion.
+- [13:31.050] I've spoken at length on this particular case.
+- [13:33.130] I think that Renee Good's death is a tragedy.
+- [13:35.650] I also think that she rammed an ICE officer with her car.
+- [13:38.790] So the tragedy here is multi-layered.
+- [13:42.480] The tragedy is there was a misunderstanding.
+- [13:44.290] The tragedy that Renee Goode lost her life.
+- [13:46.690] The tragedy you have ICE officers
+- [13:49.040] who are going into communities
+- [13:50.460] where they're worried that if they call 911,
+- [13:52.780] no one's going to come to help them.
+- [13:54.370] That is what produces this terrible situation
+- [13:57.570] and it's something state and local officials
+- [13:59.670] here in Minnesota could solve.
+- [14:01.640] Yes, sir.
+- [14:02.870] The Press: (inaudible)
+- [14:04.920] tomorrow, especially in regards to cooperation and values.
+- [14:08.530] It's a shame that kids have to get pulled off in all this.
+- [14:11.070] And, you know, towards that, sir.
+- [14:13.950] The Vice President: You know, it is a shame that kids
+- [14:15.280] have to get caught up in this.
+- [14:16.560] I am speaking at March for Life tomorrow.
+- [14:18.080] I'm pro-life and I'm very excited to speak there.
+- [14:19.790] I want to talk about local law enforcement,
+- [14:21.490] but, you know, I mean, look, I am, as a child,
+- [14:25.990] I saw people in my family get arrested.
+- [14:27.880] It's terrible. It's heartbreaking.
+- [14:30.070] It's chaotic. It's traumatic for the kids.
+- [14:32.780] I can recognize that
+- [14:34.120] and I can that we got to support these kids.
+- [14:36.140] Well, on the other hand, saying that just because
+- [14:37.960] you're a parent doesn't mean that you get complete immunity
+- [14:41.030] from law enforcement.
+- [14:42.320] And I think we have to hold both of those thoughts
+- [14:44.060] in our head at the same time.
+- [14:45.310] We've got to be sympathetic to the kids
+- [14:46.900] who are caught up in some of these enforcement actions.
+- [14:49.470] We've also got to say we have to enforce the law without bias,
+- [14:53.430] with fairness, but we've got to enforce the law.
+- [14:55.400] The Press: (inaudible)
+- [14:56.600] what was happening out there a week ago,
+- [15:02.200] and their mayor said they hadn't heard about
+- [15:05.430] (inaudible) local agencies (inaudible)?
+- [15:11.560] The Vice President: You said there was an altercation
+- [15:12.990] in St. Cloud?
+- [15:17.840] The Press: That ICE did not communicate with them
+- [15:19.540] ever in the city.
+- [15:20.790] (inaudible) operations, (inaudible)
+- [15:22.180] did not know about the operation at the time.
+- [15:24.340] Could you talk a little bit about proactive communication?
+- [15:26.890] The Vice President: Yeah, it's actually,
+- [15:28.340] it is one of the takeaways.
+- [15:29.560] I've talked with these guys before we came on the stage,
+- [15:31.480] but during our round table
+- [15:32.760] and some of the other conversations we've had.
+- [15:34.530] Communication, we absolutely want
+- [15:37.010] to ensure there's good communication
+- [15:38.630] between federal officials and state and local officials.
+- [15:41.020] And I'm sure that we can do better on that.
+- [15:42.670] We absolutely want make sure that we are communicating,
+- [15:45.850] but that also requires a two-way street.
+- [15:47.540] And that's the point that I make about state
+- [15:49.340] and the local officials,
+- [15:50.640] these guys will absolutely communicate
+- [15:52.730] with state and global officials.
+- [15:54.200] They'll tell people if they have to do an enforcement operation
+- [15:58.100] in a particular municipality.
+- [15:59.940] But part of that is they also want to ensure
+- [16:02.420] that if they're communicating about their whereabouts,
+- [16:05.000] that's not being used as a weapon against them.
+- [16:06.770] Sometimes they tell people where they're going
+- [16:08.870] and then they find out that their agents' faces
+- [16:10.690] are on Reddit
+- [16:12.680] or on some social media thread saying, here's this guy,
+- [16:15.570] we know he's going to be at this place at this exact time.
+- [16:18.170] So that communication has got to be a two-way street.
+- [16:20.540] These guys are going to communicate
+- [16:21.970] with business leaders,
+- [16:23.280] with local officials, with state officials.
+- [16:25.690] We also need the local officials and state officials
+- [16:27.860] to do a good job of protecting people
+- [16:30.420] when they're in their communities.
+- [16:31.900] We're not asking, by the way,
+- [16:33.420] we don't want any police officer in this community,
+- [16:36.630] in this state, to help us do immigration enforcement.
+- [16:39.140] We've got that, but if a protester shows up
+- [16:43.870] and that protester turns violent
+- [16:45.450] against our immigration officers,
+- [16:46.980] we really, really need
+- [16:48.660] the cooperation of our local partners.
+- [16:50.790] We haven't gotten it yet, but I think if we do,
+- [16:52.930] we really can lower the temperature.
+- [16:54.480] The Press: (inaudible)
+- [16:55.750] to answer a few questions about the judges' warrants.
+- [17:03.050] What do you think people can (inaudible)?
+- [17:08.640] The Vice President: Yeah, so I saw that story
+- [17:10.860] and the story is like so much
+- [17:12.530] that I read in the mainstream media.
+- [17:13.830] It's missing a whole lot of context
+- [17:15.420] and we appreciate the context. It makes sense.
+- [17:18.210] No one is saying look, there are exceptions.
+- [17:21.130] For example, a crazy exception.
+- [17:23.490] If somebody is fired at from inside a house,
+- [17:26.430] they don't need a warrant to go inside that person's house.
+- [17:28.820] There are very narrow exceptions to the warrant requirement
+- [17:32.350] where law enforcement officers don't meet a,
+- [17:34.330] you know, a warrant. If for example,
+- [17:36.690] they're an imminent threat with their lives.
+- [17:38.570] But what we've said and what ICE has proposed,
+- [17:41.150] what the Department of Homeland Security
+- [17:42.810] really has proposed in the Department of Justice
+- [17:45.250] is that we can get administrative warrants
+- [17:47.350] to enforce administrative immigration law.
+- [17:50.500] Now, it's possible, I guess, that the courts will say no.
+- [17:52.580] And of course, if the courts say no,
+- [17:53.910] we would follow that law.
+- [17:55.550] But nobody is talking about doing immigration enforcement
+- [17:57.770] without a warrant.
+- [17:59.030] We're talking about different types
+- [18:00.580] of warrants that exist in our system.
+- [18:02.410] Typically what happens, not always,
+- [18:04.480] but typically in the immigration system,
+- [18:06.570] Those are handled by administrative law judges,
+- [18:09.390] so we're talking about getting warrants
+- [18:10.890] from those administrative law judges.
+- [18:12.980] And then, of course, with other cases,
+- [18:14.500] you get judges, or you get warrants, from a judge.
+- [18:17.160] That's very consistent with the practice of American law.
+- [18:19.870] I'm sure the courts will weigh in on that,
+- [18:21.680] but we're never going to enter somebody's house
+- [18:23.820] without some kind of a warrant,
+- [18:25.560] unless, of course, somebody's firing on an officer,
+- [18:28.360] or they have to do something in order
+- [18:29.920] to protect themselves. Go ahead.
+- [18:31.670] The Press: Do you believe that (inaudible)
+- [18:33.880] work with an administrative form,
+- [18:35.830] or would that be a violation?
+- [18:37.760] The Vice President: Well, our understanding
+- [18:38.960] is that you can enforce the immigration laws
+- [18:41.720] of the country under an administrative order
+- [18:45.380] if you have an administrative order.
+- [18:46.650] That's what we think. That's our understanding of the law.
+- [18:48.510] That's our best faith attempt to understand the law,
+- [18:50.930] again, this is something courts will weigh in on.
+- [18:53.140] I won't speak to that,
+- [18:54.370] but yes, most immigration law in our country
+- [18:57.190] is not done through the criminal system with the judge,
+- [18:59.660] it's done through the administrative law system.
+- [19:02.020] We're going to continue that practice
+- [19:03.270] just as they did in the Biden administration
+- [19:05.190] or any other administration.
+- [19:07.420] The Press: Was there anything that you heard on the talk today
+- [19:10.080] that would cause you(inaudible)
+- [19:11.460] the President to evoke the Interaction Act,
+- [19:13.800] and then also did you (inaudible)
+- [19:15.940] talk to the ICE agent who's involved in this?
+- [19:19.850] The Vice President: I did not talk to him today,
+- [19:21.200] I talked to some of his colleagues,
+- [19:23.410] you know your question on the Insurrection Act is interesting.
+- [19:26.270] I've tried to understand this as well as I possibly could
+- [19:29.530] and my understanding is what the Insurrection Act,
+- [19:32.030] what invoking the Insurrection Act
+- [19:33.610] would allow the federal government to do,
+- [19:35.860] is that would allow the federal government
+- [19:37.560] to use the military for local law enforcement operations.
+- [19:40.690] Right now we don't think that we need that.
+- [19:42.930] Now the president could change his mind,
+- [19:44.340] of course things could get worse,
+- [19:45.890] but right now we think that federal law enforcement officers
+- [19:49.280] can do the job of federal law enforcement.
+- [19:51.390] Now what I do worry about again is that the chaos gets worse
+- [19:54.680] if more and more ICE agents start getting assaulted
+- [19:56.860] if other law enforcement officers start getting assault
+- [19:59.390] that would be a real problem.
+- [20:01.080] But again, we have so much federal
+- [20:03.820] law-enforcement resources here right now.
+- [20:05.510] We have so many people here that we do not want to have here.
+- [20:08.730] I do not want so many ICE officers
+- [20:10.930] in Minneapolis right now,
+- [20:12.260] I mean good it's really, really freaking cold outside,
+- [20:15.280] but they're here not even to enforce immigration laws,
+- [20:18.500] but to protect the people from the rioters,
+- [20:21.090] that's an absurd state of affairs,
+- [20:22.700] and we wouldn't need it
+- [20:23.920] if we had a little bit more cooperation
+- [20:26.050] from the Minneapolis Police Department.
+- [20:27.740] Again, the Minneapolis police department,
+- [20:29.560] my understanding is that the actual beat cops on the ground,
+- [20:33.130] they would love to help out,
+- [20:34.540] but they're being told by somebody,
+- [20:35.880] I don't know if it's Mayor Frey,
+- [20:37.170] they're told by someone not to cooperate at all.
+- [20:40.240] What kind of a person tells their local police,
+- [20:43.470] don't protect somebody
+- [20:44.740] if they're being assaulted by a rioter.
+- [20:46.400] It's crazy, and it's got to stop. Yes.
+- [20:49.450] The Press: (inaudible)
+- [20:50.790] this week, local law enforcement
+- [20:52.120] accused federal agents of racial profiling.
+- [20:54.510] Why are there so many US citizens
+- [20:56.040] being caught up in this operation?
+- [20:58.280] The Vice President: Well, I think your question
+- [20:59.580] assumes something that's not necessarily an evidence,
+- [21:01.800] which is that when there are American citizens
+- [21:04.270] who have been caught up in some of these enforcement operations,
+- [21:06.420] very often it is people who have assaulted
+- [21:08.640] a law enforcement officer. They're not being arrested
+- [21:12.380] because they violated the immigration laws.
+- [21:14.520] They're being arrested, because they punched
+- [21:16.090] a federal law enforcement officers.
+- [21:17.770] That is a totally reasonable thing.
+- [21:19.780] Now, to the accusation of racial profiling,
+- [21:22.090] you know, look, it's something that we take very seriously.
+- [21:24.460] We will take accusations of racial profiling.
+- [21:27.780] Back to Washington will certainly look into them
+- [21:29.810] as they come up,
+- [21:31.020] but this is not a group that's going around
+- [21:33.090] and looking for people who violated the law
+- [21:35.560] based on skin color. They're looking for the people
+- [21:38.400] who have violated the actual law,
+- [21:40.120] the law of our immigration system in this country,
+- [21:42.820] and so long as we had more cooperation,
+- [21:44.630] I think they could do these things
+- [21:45.970] in a much more targeted way.
+- [21:47.550] They would actually know where some of the bad guys are.
+- [21:49.610] I mean, again, you hear things that are hard to believe,
+- [21:53.760] but I've confirmed that they're true.
+- [21:55.610] Sex offenders, sex offenders,
+- [21:58.140] who were trying to get off the streets,
+- [21:59.950] who the local officials won't tell us
+- [22:02.310] their last known address.
+- [22:03.880] So then the local official say, oh my God,
+- [22:06.720] these guys are doing widespread targeted enforcement operations,
+- [22:10.000] when in reality, we would love to just go to one house.
+- [22:12.920] The local officials will tell us which one house to go to.
+- [22:19.690] The Press: To that question, the local police chiefs
+- [22:22.220] have said their own off-duty officers,
+- [22:25.400] so police officers, are being targeted
+- [22:28.920] because they are a person of color
+- [22:30.490] and asked to show their papers.
+- [22:32.930] Is that a concern of the administration
+- [22:35.040] or the Department of Homeland Security?
+- [22:36.620] Local law enforcement says their own officers are being targeted
+- [22:40.050] and they describe it as quote
+- [22:41.460] "civil rights violations in our streets."
+- [22:43.800] The Vice President: So I saw one story about this
+- [22:45.590] and one local police officer who said this.
+- [22:47.970] And look, certainly is it a concern?
+- [22:49.410] Absolutely. The first thing we have to figure out
+- [22:51.180] is whether it happened or not. And then if it happened,
+- [22:53.560] whether there is a good explanation
+- [22:55.120] or a bad explanation, of course, if somebody violated the law,
+- [22:58.290] if somebody racially profiled,
+- [22:59.850] if somebody violated the rights of one of our fellow citizens,
+- [23:03.040] that is something we will take very seriously.
+- [23:04.840] What I also would say is that many of the most viral stories
+- [23:08.790] of the past couple of weeks
+- [23:10.280] have turned out to be at best, partially true.
+- [23:13.510] So we want to try people based on reality,
+- [23:17.010] based on the truth, based on context.
+- [23:19.390] We're not going to prejudge people
+- [23:20.990] just because of viral social media story
+- [23:22.930] that turned out to be half false.
+- [23:24.860] The Press: I have a quick question
+- [23:27.160] about the roundtable that happened,
+- [23:30.560] did you invite anybody with an opposing point of view
+- [23:33.530] to get an idea of why people are upset here?
+- [23:36.010] (inaudible)
+- [23:37.290] follow up. Have you reached out to Governor Walz
+- [23:39.630] at all in an attempt to turn down the temperature.
+- [23:41.710] The Vice President: So, I haven't talked
+- [23:43.060] to Governor Walz on this particular trip.
+- [23:45.710] A number of members of our administration,
+- [23:47.540] I believe our chief of staff, spoke to the governor
+- [23:49.270] and has been in constant contact with his staff
+- [23:51.510] over the past week. We've been, in my office,
+- [23:54.880] in constant with people here on the ground in Minneapolis.
+- [23:57.430] There were certainly people at our roundtable
+- [23:59.480] with opposing views and, like, I don't even know,
+- [24:01.870] you know, whether it's public, but yes, we met with people
+- [24:05.420] with opposing views here at the roundtable.
+- [24:07.300] I wanted to get a perspective from everybody
+- [24:09.360] But also, of course, offer my opinion
+- [24:11.200] that with a little bit more cooperation,
+- [24:12.690] we could lower the chaos.
+- [24:13.900] We're going to keep on doing that.
+- [24:15.140] If Governor Walsh wants to call me,
+- [24:16.890] we'll absolutely continue talking.
+- [24:18.620] I will say that my sense of this situation,
+- [24:21.700] having talked to these guys for a long time,
+- [24:23.420] is this is primarily a law enforcement issue.
+- [24:25.650] This is the attorney general. This is local mayor.
+- [24:29.120] This is all of the organs of local and state law enforcement.
+- [24:32.360] That's who we focus on.
+- [24:33.570] But we've certainly been in communication
+- [24:35.020] with the governor and his office as well. Yeah.
+- [24:38.310] The Press: The local enforcement obviously hasn't been
+- [24:40.600] really helping out with the agents
+- [24:42.640] who have been installed (inaudible).
+- [24:44.400] What's the plan if nothing changes there here locally
+- [24:46.650] and this operation has attracted thousands of agents?
+- [24:49.530] Are there any plans to go to any other cities from here?
+- [24:52.570] The Vice President: Well right now we're focused on Minneapolis
+- [24:54.200] because that's where we have the highest concentration of people
+- [24:56.800] who have violated our immigration laws
+- [24:58.330] and that's also frankly where we see the most assault
+- [25:01.180] of our law enforcement officers. Our plan is very simple.
+- [25:04.120] If you assault a federal law enforcement officer,
+- [25:05.760] we're going to do everything
+- [25:07.110] that we can to put you in prison.
+- [25:08.350] It's very simple and most of these protesters,
+- [25:10.630] as much as I may disagree with their politics,
+- [25:12.740] most of them have been peaceful,
+- [25:14.990] but a lot of them had not been peaceful.
+- [25:16.990] And if you go and storm a church,
+- [25:19.170] if you're going and assault a law enforcement officer.
+- [25:21.600] We're going to try very hard.
+- [25:23.210] We're going to use every resource
+- [25:24.690] of the federal government to put you in prison.
+- [25:26.430] Respect people's rights.
+- [25:27.950] Respect people rights to worship.
+- [25:29.810] Respect people right to do their job without being assaulted.
+- [25:32.730] If you follow that basic principle,
+- [25:34.640] the Trump administration is going to do everything
+- [25:36.280] that we can to protect your rights.
+- [25:37.910] But if you go after somebody, if you assault somebody,
+- [25:40.860] if you make a nine-year-old girl cry
+- [25:42.810] because you walked into her church and harassed her,
+- [25:45.370] we're going to go after you with every single tool that we have.
+- [25:48.350] The Press: (inaudible)
+- [25:52.820] about making Americans more safer,
+- [25:55.110] so what do you say to people who are in Minnesota
+- [25:57.340] who say it's the overwhelming presence
+- [25:59.370] of ICE officers and federal officers
+- [26:01.240] and their tactics that are making them feel less safe?
+- [26:04.290] The Vice President: Well, one thing I would say is,
+- [26:05.640] first of all, we saw in 2025 the biggest one year
+- [26:09.180] drop in murders in the history of the United States of America,
+- [26:12.590] significant reductions in violent crime.
+- [26:14.620] The reason why we have less violent crime
+- [26:16.250] is really two reasons.
+- [26:17.500] Number one, because we're enforcing the immigration laws
+- [26:20.200] and getting very violent criminals out of our country.
+- [26:22.600] And number two, because were enforcing our criminal laws
+- [26:25.100] and putting guys who assault and murder behind bars.
+- [26:28.030] This is part of a broad effort to make us safe
+- [26:30.490] and the chaos that people seeing and I understand
+- [26:32.870] there is frustration of the chaos.
+- [26:35.020] I'd say that we're doing everything
+- [26:37.010] that we can to lower the temperature,
+- [26:38.690] and we would like federal and local, excuse me, state
+- [26:41.360] and local officials to meet us halfway.
+- [26:43.470] So much so --
+- [26:45.050] The Press: (inaudible)
+- [26:48.100] are you saying that they're not seeing the tactics
+- [26:51.070] or the presence of the officers --
+- [26:52.370] The Vice President: Look, I'm sure that people are seeing
+- [26:53.770] a lot of things that would make any member
+- [26:55.740] of our national community feel very upset.
+- [26:57.910] But I also think that if you understand this in context,
+- [27:00.830] this is the inevitable consequence of a state
+- [27:03.640] and local government that have decided
+- [27:05.440] that they're not going to cooperate
+- [27:06.900] with immigration enforcement at all.
+- [27:08.390] In fact, they're going to aggressively not cooperate.
+- [27:11.400] So here's a basic illustration of this.
+- [27:14.390] If you are an ICE officer and you have to arrest
+- [27:17.960] a person who's committed assault and is also an illegal alien.
+- [27:21.320] But the state and local officials
+- [27:22.580] won't help you identify that person.
+- [27:24.630] Many of the things that people in Minneapolis
+- [27:27.840] are seeing that give them pause,
+- [27:29.740] that frustrate them, that worry them,
+- [27:31.420] that make them feel like things are too chaotic,
+- [27:33.480] many of these things are coming from the fact
+- [27:35.560] that there's no cooperation with state and local law enforcement.
+- [27:39.370] And I guess what I would tell people,
+- [27:41.020] again, many of whom are justifiably concerned
+- [27:43.510] and worried about what they're seeing in their communities is,
+- [27:45.760] why are we not seeing it anywhere else?
+- [27:48.140] We're seeing this level of chaos only in Minneapolis.
+- [27:51.500] L.A. And Chicago, we had some problems there.
+- [27:54.450] Pretty much every jurisdiction where these guys are operating,
+- [27:57.790] you don't see the same level of chaos,
+- [27:59.680] you don't see the same levels of violence,
+- [28:01.510] you don see the problems that we're seeing in Minneapolis.
+- [28:04.620] Maybe the problem is unique to Minneapolis,
+- [28:06.870] and we believe that it is.
+- [28:08.160] And it's a lack of cooperation between state
+- [28:10.870] and local law enforcement and federal law enforcement.
+- [28:13.630] Sir.
+- [28:15.960] The Press: ICE has been operating here for years
+- [28:18.380] with less pushback than we're seeing right now.
+- [28:21.050] And even the St. Paul police chief recently said
+- [28:23.320] is there not a way to find common ground
+- [28:25.340] without scaring the hell out of people in the community.
+- [28:27.580] Those are his words.
+- [28:29.070] And I just wonder with this Operation Metro Surge,
+- [28:31.780] is any part of it meant to send a formal political message
+- [28:35.370] to the leaders here in Minneapolis
+- [28:37.310] and the state of Minnesota?
+- [28:38.530] And I know you talked about you've been in touch
+- [28:40.280] with the governor's offices and the mayor's offices,
+- [28:43.480] but why have you not been able to speak to them directly?
+- [28:47.980] Have they not been willing to do so?
+- [28:49.540] The Vice President: Well, look,
+- [28:50.740] I have spoken to some of the people
+- [28:52.220] in Minnesota directly. I spoke to some them today.
+- [28:54.350] I've spoke to others in the past.
+- [28:56.130] And again, our staff has been in very direct contact
+- [28:58.360] with pretty much every official with any influence
+- [29:00.860] or any power in Minneapolis.
+- [29:02.190] But no, we're not trying to send a political message.
+- [29:03.930] We're trying to enforce the law.
+- [29:05.500] And unfortunately, what has happened
+- [29:06.860] is that as we've enforced the law,
+- [29:09.070] there's been this weird reaction,
+- [29:12.280] again, unique to this city. This is not a common thing
+- [29:15.100] across the United States of America.
+- [29:16.440] There's been a very unique,
+- [29:18.110] very Minneapolis specific reaction
+- [29:19.980] to our enforcement of federal immigration laws.
+- [29:22.020] What I'm trying to do here today is understand why that is.
+- [29:25.130] What is it about Minneapolis that has become so chaotic?
+- [29:28.400] What are the specific types of cooperation that we need?
+- [29:30.810] Look, I don't need Tim Walz or Jacob Frey
+- [29:32.290] or anybody else to come out
+- [29:33.570] and say that they agree with JD Vance
+- [29:35.530] or Donald Trump on immigration, I just don't need that.
+- [29:37.960] What I do need them to do is empower their local officials
+- [29:42.520] to help our local or help our federal officials out in a way.
+- [29:46.520] Where this can be a little bit less chaotic
+- [29:48.420] and it can be little bit more targeted.
+- [29:50.140] Like if we're trying to find a sex offender,
+- [29:52.060] tell us where the guy lives.
+- [29:53.620] Simple things like that, simple changes
+- [29:56.020] in how they're approaching immigration enforcement
+- [29:58.470] would make this work a lot better.
+- [30:00.280] It would make Minneapolis' streets a lot safer.
+- [30:03.000] It would this whole thing a lot less traumatic
+- [30:05.530] for this community. I'll take one more question.
+- [30:08.850] The Press: You've said that it's time
+- [30:10.170] to turn down the temperature.
+- [30:11.880] Does that include changes to both ICE and community tactics
+- [30:15.780] that we've seen employed on the streets,
+- [30:17.630] including less-than- legal tactics
+- [30:19.750] (inaudible) ?
+- [30:21.000] Beyond that, what is the federal government's role
+- [30:23.630] in turning down the temperatures?
+- [30:25.480] And the Minnesota Department of Corrections
+- [30:27.820] says that its own officers have been cooperating
+- [30:30.480] with ICE all along, handing over criminals
+- [30:33.750] (inaudible) to ICE officials.
+- [30:36.600] And you can see that there is some cooperation
+- [30:39.490] with the (inaudible).
+- [30:40.720] The Vice President: Yeah, look, if I was going to list
+- [30:41.980] the five agencies locally and statewide
+- [30:44.250] that I'm most worried about,
+- [30:45.530] I wouldn't put the Department of Corrections on that list.
+- [30:47.820] I think that while there are certain things
+- [30:49.740] we'd like to see more from them,
+- [30:51.320] they've hardly been the worst offenders.
+- [30:52.660] You agree with that guys?
+- [30:53.890] That's a fair, that's a fair assessment.
+- [30:56.420] But I think you talked about tactics,
+- [30:58.700] you talked about the response to things.
+- [31:00.770] Look, we don't want to employ tactics.
+- [31:06.890] We don't want to employ the kind of tactics
+- [31:08.660] that are only necessary
+- [31:09.900] when violence is committed against officers.
+- [31:11.720] That is these guys' directive,
+- [31:13.830] and that's what we're going to try to do.
+- [31:15.680] And again, the president said this a couple of days ago,
+- [31:18.570] whenever you have a law enforcement operation,
+- [31:20.580] even if 99.99% of the guys do everything perfectly,
+- [31:24.490] you're going to have people that make mistakes.
+- [31:26.220] That is the nature of law enforcement.
+- [31:28.220] What I do think that we can do
+- [31:29.870] is working with state and local officials.
+- [31:32.790] We can make the worst moments of chaos much less common.
+- [31:36.350] And all they've got to do is meet us halfway.
+- [31:39.260] These guys want to communicate with them.
+- [31:41.400] They want to talk to the local business leaders.
+- [31:43.810] Many of these guys, many of the people standing behind me
+- [31:46.100] are members of the Minneapolis community.
+- [31:48.070] Many of the officials that I met today
+- [31:49.770] who work in federal immigration enforcement,
+- [31:51.830] this is their home. They love this place.
+- [31:54.400] These are their neighbors.
+- [31:55.730] They want this to work a lot more smoothly.
+- [31:58.220] I think that we can get there.
+- [31:59.860] We just got to work at it a little bit
+- [32:01.480] and we need some cooperation. From state and local officials.
+- [32:04.500] Last thing that I'll say is I just hope they give it.
+- [32:06.470] This is a beautiful city. I've only been here a few times.
+- [32:09.540] I love it, even in this weather.
+- [32:10.890] I love Minneapolis. We could do a lot better.
+- [32:13.810] We could a lot more with more cooperation.
+- [32:16.470] The Trump administration, the directive that I got
+- [32:18.740] from the President of the United States
+- [32:20.040] is meet these guys halfway.
+- [32:22.080] Work with them so that we can make
+- [32:24.080] these immigration enforcement operations successful
+- [32:26.980] without endangering our ICE officers
+- [32:28.930] and so that can turn down the chaos.
+- [32:30.990] A little bit, at least. I think a lot, actually.
+- [32:33.880] But for us to do that,
+- [32:36.460] we need some help from the state and local officials.
+- [32:38.650] We will keep on working with them.
+- [32:40.060] And so long as they're willing to work with us,
+- [32:41.880] they will always find a partner in public safety
+- [32:44.520] and law enforcement in the Trump administration.
+- [32:46.310] Thank you all.

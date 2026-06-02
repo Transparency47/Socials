@@ -1,0 +1,879 @@
+<!-- source: https://www.youtube.com/watch?v=50-8fwZdnCQ -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 50-8fwZdnCQ -->
+<!-- date_published: 2025-11-17T20:27:21+00:00 -->
+<!-- date_accessed: 2026-06-02T02:41:33.830017+00:00 -->
+
+# Transcript: President Trump Meets with the White House Task Force on the FIFA World Cup 2026
+
+- [00:03.540] The President: Well, thank you very much, and good afternoon.
+- [00:06.180] I'm delighted to welcome FIFA President Gianni Infantino,
+- [00:11.050] one of the greatest men of sport.
+- [00:14.040] He's an amazing man; he's done an incredible job with FIFA.
+- [00:16.900] Gianni Infantino: Thank you.
+- [00:18.110] The President: Congratulations on the job.
+- [00:19.650] I hear you're setting records for the World Cup.
+- [00:22.200] We'll talk about it,
+- [00:24.510] but setting records in ticket sales for the World Cup,
+- [00:29.420] and we love having you back at the White House,
+- [00:31.310] Gianni and everybody
+- [00:33.790] that's with you;
+- [00:34.990] you guys have done fantastically.
+- [00:37.000] I also want to thank Vice President JD Vance.
+- [00:40.400] JD, wherever you may be. Where is JD?
+- [00:43.420] He's coming right over.
+- [00:46.120] Marco Rubio was doing a fantastic job,
+- [00:49.580] and Secretary Kristi Noem was doing a fantastic job
+- [00:53.380] as well as Representative Darin LaHood.
+- [00:56.260] Thank you all very much. Hi, Darren.
+- [00:58.770] This past summer, the United States hosted
+- [01:00.810] the 2025 FIFA Club World Cup, and it was great.
+- [01:06.820] I actually went to a match, and it was amazing.
+- [01:09.980] That was a big success too, wasn't it?
+- [01:11.590] It was sort of like a preview of what's to come,
+- [01:15.530] and now we're getting ready for an even bigger event next year
+- [01:20.420] as we host the official 2026 FIFA World Cup.
+- [01:23.760] That's the big one, the World Cup Tournament.
+- [01:26.530] This will be a once-in-a-lifetime opportunity
+- [01:29.110] even for our country
+- [01:30.360] because, frankly, this goes to countries; everybody wants it.
+- [01:37.580] I guess it's going all over the world.
+- [01:39.640] Do you know who's getting it the next time around?
+- [01:43.380] Who's getting it? Has that been selected?
+- [01:45.310] Gianni Infantino: The next one will be Morocco, Spain,
+- [01:47.840] and Portugal.
+- [01:49.220] The President: That's good.
+- [01:50.450] Gianni Infantino: With three matches
+- [01:51.700] at the beginning in South America:
+- [01:52.910] Argentina, Uruguay, and Paraguay.
+- [01:54.350] And the one after will be Saudi Arabia in 2034.
+- [01:56.640] The President: Wow, that's great.
+- [01:57.870] Wow. That's great. Well, we have the king coming;
+- [02:00.950] the crown prince is coming tomorrow.
+- [02:03.620] This will be a once-in-a-lifetime opportunity
+- [02:05.680] to showcase the greatness
+- [02:06.970] of American world-class athletic competition
+- [02:09.980] as we celebrate our nation's 250th year.
+- [02:14.420] The World Cup will also be
+- [02:15.890] an incredibly significant economic opportunity
+- [02:18.830] for countless American workers and businesses.
+- [02:21.840] It's expected to drive more than $30 billion, Gianni;
+- [02:26.050] I don't know about that. That sounds like a lot of money.
+- [02:28.680] Gianni Infantino: It's true. The President: Are you sure?
+- [02:29.880] Gianni Infantino: 100 percent.
+- [02:31.090] The President: How much does the country get out of that?
+- [02:32.910] Gianni Infantino: 15 billion.
+- [02:34.120] The President: Twenty percent. (inaudible).
+- [02:35.340] Get, like, a percentage of the gross or anything?
+- [02:39.140] Gianni Infantino: That's for negotiation.
+- [02:40.340] The President: That's right.
+- [02:41.580] And it's going to create nearly 200,000 jobs for America.
+- [02:46.490] Since the creation of the White House FIFA
+- [02:48.720] task force earlier this year,
+- [02:50.850] Secretary Rubio's team at the State Department
+- [02:53.440] has worked tirelessly with the Department of Homeland Security
+- [02:56.990] to ensure that soccer fans from all around the world
+- [03:00.730] are properly vetted and able to come to the United States
+- [03:04.240] next summer easily. Before I took office,
+- [03:07.020] it would often take a year to get a travel visa,
+- [03:10.360] but because of the administration's hard work,
+- [03:13.460] now in more than 80 percent of the world -- think of that --
+- [03:17.120] the wait time for a visa is 60 days or less.
+- [03:20.340] For those who intend to join us for the World Cup,
+- [03:23.150] I strongly encourage you to apply right away,
+- [03:26.690] and I want to thank the FIFA Task Force
+- [03:28.950] and Secretary Rubio for the great job.
+- [03:31.750] Marco is doing a fantastic job in many ways too.
+- [03:34.930] So I want to just thank you all for a great job, Marco.
+- [03:36.650] You're doing a great job.
+- [03:37.920] Secretary Rubio: Thank you.
+- [03:39.180] The President: Beyond even this.
+- [03:40.520] We're also creating what we're calling
+- [03:42.070] the FIFA Prioritized Appointment Scheduling System.
+- [03:46.250] That's a hard one for most people to remember,
+- [03:49.360] but it's there nevertheless.
+- [03:51.430] And this will allow World Cup ticket holders
+- [03:54.330] with long wait times to opt with FIFA
+- [03:56.830] for a prioritized interview,
+- [04:00.000] and I've directed my administration
+- [04:02.560] to do everything within the power
+- [04:04.710] to make the 2026 World Cup an unprecedented success.
+- [04:10.510] I think it's going to be the greatest.
+- [04:12.580] And we are setting records on ticket sales;
+- [04:16.490] nobody's ever really, and FIFA has never really --
+- [04:19.830] If you look at the numbers,
+- [04:21.910] nobody's ever seen anything like the kind of numbers we're doing,
+- [04:25.420] the early ticket sales through the roof,
+- [04:27.480] and much of it is even sold out. So congratulations, Gianni.
+- [04:31.370] And I'd like to ask Johnny to say a few words.
+- [04:34.040] He's really done an incredible job.
+- [04:35.950] He's got unbelievable spirit and personality
+- [04:38.650] and talent and intelligence,
+- [04:40.790] I always like to say because it's all a part of it,
+- [04:43.390] but the job you've done is based
+- [04:46.200] on what's happening unprecedented.
+- [04:47.670] Thank you, Gianni.
+- [04:48.900] Gianni Infantino: Thank you. Thank you, President.
+- [04:51.610] Thank you very much.
+- [04:52.870] I would like to start really by thanking you,
+- [04:55.610] Mr. President, Secretary Rubio, Secretary Noem, Andrew,
+- [05:00.650] your entire team for approving
+- [05:04.490] and making this very important announcement today.
+- [05:09.430] The FIFA Pass is being announced,
+- [05:15.120] a prioritized appointment scheduling system.
+- [05:20.740] That's the way people will remember it.
+- [05:22.940] So if you have a ticket for the World Cup,
+- [05:25.450] you can have a prioritized appointment to get your visa
+- [05:29.470] because we said it the very first time
+- [05:31.840] we met Mr. President: America welcomes the world.
+- [05:35.690] America will welcome the world here.
+- [05:37.930] Next year we will have between six
+- [05:41.560] and seven million tickets sold for the matches.
+- [05:46.000] We'll have between five and 10 million people
+- [05:48.350] coming to America from all over the world
+- [05:51.550] to enjoy the World Cup. And with this FIFA Pass,
+- [05:56.470] we can make sure that those who buy a ticket
+- [05:59.940] that are legitimate football fans or soccer fans,
+- [06:03.710] they can come and attend the World Cup
+- [06:06.890] in the best conditions, starting from getting their visa
+- [06:11.440] and then coming, of course in the country to enjoy.
+- [06:15.020] You mentioned the economic impact,
+- [06:16.650] the 30 billion, 200,000 jobs,
+- [06:18.650] and this is just for the World Cup.
+- [06:20.110] And we'll build on that.
+- [06:22.330] To make soccer even greater here,
+- [06:25.840] you are the number one country in the world,
+- [06:29.380] the United States of America, Mr. President.
+- [06:31.680] You have to be the number one country
+- [06:34.210] as well in the number one sport in the world.
+- [06:37.040] So we have to work for that, and we will do that,
+- [06:41.630] and the World Cup will be very,
+- [06:43.930] very significant in this respect.
+- [06:45.130] So a big, big thank you to you,
+- [06:46.950] to the White House task force, to everyone involved,
+- [06:50.700] and we are celebrating the next year,
+- [06:55.140] not just the 250 years,
+- [06:57.070] but also the greatest and most inclusive World Cup ever.
+- [07:02.470] We'll have six billion people watching.
+- [07:04.680] We have the draw coming up on the 5th of December
+- [07:08.040] here at the Kennedy Center in Washington, D.C.,
+- [07:10.770] one billion people watching the draw
+- [07:14.370] to find out who plays whom and where.
+- [07:16.440] We have 32 teams already qualified;
+- [07:20.200] by tomorrow night we'll have 42 out of 48 qualified.
+- [07:24.330] So a quarter of the world will be here,
+- [07:27.690] and we are looking very much forward to it.
+- [07:30.140] So thanks for the support. Thanks for the great work
+- [07:33.380] and always happy to be here at home, if I can say that.
+- [07:38.240] The President: You are. There's your beautiful trophy;
+- [07:40.620] right there you are. And a big part of it too.
+- [07:44.330] Marco, would you say if you wish?
+- [07:45.690] Secretary Rubio: Yeah, thank you, Mr. President.
+- [07:47.120] First of all, for getting the games,
+- [07:48.470] because this happened in your first term
+- [07:50.330] when the cup came here, and it's a major undertaking.
+- [07:53.310] So we've deployed over 400 additional consular officers
+- [07:56.810] around the world to deal with that.
+- [07:58.610] In some cases doubling the size of the consular
+- [08:00.950] presence in our embassies in certain countries.
+- [08:03.620] And the good news now is that in about 80 percent of the world,
+- [08:06.000] you can get an appointment within 60 days.
+- [08:07.790] It used to take half a year or longer,
+- [08:10.400] and now you can get in less than two months,
+- [08:13.280] where in places it took over a year;
+- [08:15.230] in places, for example, like Brazil and Argentina,
+- [08:18.420] it took over a year to get an appointment.
+- [08:20.130] Now you can get in less than two months.
+- [08:21.690] So our advice to everybody is if you have a ticket
+- [08:24.280] for any of the games, you need to apply.
+- [08:26.230] If you haven't done so as soon as possible,
+- [08:27.830] don't wait until the last minute.
+- [08:29.270] Your ticket is not a visa.
+- [08:30.510] It doesn't guarantee admission to the U.S.;
+- [08:32.170] it guarantees you an expedited appointment.
+- [08:34.060] You're still going to go through the same vetting.
+- [08:35.840] We're going to do the same vetting
+- [08:37.480] as anybody else would get. The only difference here
+- [08:39.750] is we're moving them up in the queue;
+- [08:41.630] we're moving them up faster.
+- [08:42.960] But my advice to everyone that's watching around the world
+- [08:45.820] is if you intend to come to the games,
+- [08:47.520] you have to have a ticket.
+- [08:48.730] You need to apply. Apply as soon as possible.
+- [08:50.320] You're going to get your interview
+- [08:51.610] within six to eight weeks and move forward from there.
+- [08:56.490] Don't wait until the last minute to do it. Thank you.
+- [08:59.700] The President: Mr. Congressman, would you like to say something?
+- [09:01.680] Darin LaHood: Well, first of all, Mr. President,
+- [09:03.100] none of this would've happened without your leadership
+- [09:04.940] securing this during your first term.
+- [09:07.000] I tell my colleagues all the time,
+- [09:08.250] "This will be the largest sporting event
+- [09:09.670] in the history of the world."
+- [09:10.920] We expand from 32 to 48 teams for the first time ever.
+- [09:14.310] We're doing it with Mexico and Canada,
+- [09:15.780] but obviously the 11 host cities
+- [09:17.840] will be here in the United States,
+- [09:19.320] and it's going to have a $30 billion impact
+- [09:21.490] economically in this country.
+- [09:23.350] And so it has been a team effort by everybody.
+- [09:25.910] But I also want to thank President Infantino
+- [09:28.280] and obviously you, Mr. President,
+- [09:29.580] and your entire team, Andrew and Nick and everybody.
+- [09:32.610] It is going to be an unbelievable
+- [09:34.130] sporting event next summer.
+- [09:35.500] The President: It's going to be great.
+- [09:36.940] Going to be great.
+- [09:38.160] Andrew, would you like to say something?
+- [09:40.580] Then we'll have somebody much more important say --
+- [09:43.100] Andrew: Much more important. And honestly, without her work,
+- [09:45.520] without Secretary of State Rubio's work
+- [09:47.750] and the State Department, this would not happen.
+- [09:49.770] Without your leadership and your vision,
+- [09:51.980] this would not have happened. I think two key points.
+- [09:54.360] One: The Secretary of State already highlighted this
+- [09:56.540] is a welcoming message to the world
+- [09:58.720] without going around the safety
+- [10:00.190] and security procedures.
+- [10:01.840] It's so key to make sure that this World Cup is safe
+- [10:04.530] and secure and The White House Task Force
+- [10:06.790] is working every day to make sure that's the case.
+- [10:09.260] And also, as Congressman LaHood said,
+- [10:11.270] the economic benefits for American businesses,
+- [10:14.180] both small and large, from a $30 billion event like this.
+- [10:18.610] So really, thanks to all The White House Task Force
+- [10:20.900] members from Secretary Rubio to Secretary Noem
+- [10:24.040] to notice of funding opportunities
+- [10:25.670] that went out to the cities and states last month
+- [10:28.000] were really key from the safety and security perspective,
+- [10:31.120] to deputy chief of staff
+- [10:32.840] Luna, who is integral in this whole process,
+- [10:35.570] to The White House Task Force members
+- [10:37.190] that are standing in the back of the room
+- [10:39.070] today, that couldn't be here,
+- [10:40.580] without your hard work, this would not have happened.
+- [10:43.070] And I really can't thank you enough for really the best team
+- [10:46.650] I've ever been a part of.
+- [10:47.900] And also to FIFA, to the President Gianni
+- [10:50.500] Infantino, my good friend,
+- [10:51.790] Carlos Cordeiro, your desire to make this World Cup
+- [10:55.690] the best yet, it's contagious.
+- [10:57.710] Every single day I come in and think,
+- [10:59.590] "What can we do to make this even better?"
+- [11:01.830] And Mr. President, your vision, more than anything.
+- [11:04.730] I think it takes a unique visionary to be able to go
+- [11:07.940] and see a sporting event and realize that this can be
+- [11:11.170] one of the greatest cultural events in world history.
+- [11:14.780] And I think there are very few people,
+- [11:16.460] aside from the 45th and 47th
+- [11:18.480] President of the United States, Donald J. Trump,
+- [11:20.470] that can do that undertaking. So thank you.
+- [11:22.420] The President: Thank you very much.
+- [11:24.060] Secretary Noem: Mr. President, thank you for Andrew.
+- [11:25.910] Thank you for making him the head of our FIFA task force.
+- [11:28.770] He's fantastic. And Nick has been a rock star
+- [11:32.090] in facilitating all of our meetings,
+- [11:33.850] getting everybody together,
+- [11:35.080] and making sure that we're prepared to host this event.
+- [11:37.680] And it's going to be the world's largest sporting event
+- [11:41.530] ever hosted and it's happening under your leadership.
+- [11:43.890] So, every department has been working,
+- [11:46.760] but the Department of Homeland Security
+- [11:48.370] is working on making sure people can travel here safely.
+- [11:51.340] They know that they're welcome to the United States,
+- [11:53.660] that each of these events will be cooperative events
+- [11:56.980] with our cities to make sure that security needs are met.
+- [11:59.470] We put out over $600 million
+- [12:02.020] worth of grants to the 11 host cities,
+- [12:04.040] that they'll have the advantage to partner on technologies,
+- [12:07.180] and screening technologies,
+- [12:09.450] drone technology, counter-UAS as well will be implemented.
+- [12:13.640] So we'll be prepared to host it safely,
+- [12:15.910] but also with Marco's leadership at the State Department,
+- [12:18.750] making sure that people that come in on these tourist
+- [12:20.890] visas are coming in thoroughly vetted,
+- [12:23.470] just like anyone who would travel here,
+- [12:25.600] and they would come and enjoy our country
+- [12:27.390] and then they would go home and go home in a timely manner.
+- [12:30.200] So we're excited about that
+- [12:31.600] and we're excited to partner with you, Mr. President,
+- [12:34.650] on creating memories for people around the world
+- [12:36.880] that will make them not just fall in love
+- [12:38.500] with the United States,
+- [12:39.750] but also fall in love with the sport soccer.
+- [12:41.690] The President: Well, thank you.
+- [12:42.890] How many games are there, Gianni, total?
+- [12:45.060] Male Speaker: Total 104 games.
+- [12:47.340] Meaning 104 Super Bowls in one month.
+- [12:51.310] This is the magnitude of the event.
+- [12:53.580] The President: It's going to be the biggest sporting event
+- [12:57.150] we've ever had. It's like having 104,
+- [12:59.440] or even if you cut it in half, 50, 60 Super Bowls, right?
+- [13:03.400] That's okay, Gianni. Any questions?
+- [13:06.670] The Press: President, can you just take us
+- [13:08.020] through this FIFA Pass idea
+- [13:10.210] that you guys are talking about here?
+- [13:12.020] How exactly is it going to work for ticket holders
+- [13:14.250] to this big event that United States is hosting?
+- [13:16.160] The President: I'll let my guys do that,
+- [13:17.390] because they can do it much better.
+- [13:18.940] Either one of you two.
+- [13:20.180] Nick, would you like to talk about it?
+- [13:21.460] Male Speaker: Sure. Well, Mr. President,
+- [13:22.670] without your leadership, this would not happen.
+- [13:24.770] In 10 months we have a system
+- [13:26.370] that's going to welcome the world.
+- [13:27.710] The greatest host in the history of the world
+- [13:29.450] is going to host the world here.
+- [13:30.660] Basically, this system allows folks
+- [13:32.980] with a FIFA ticket purchased through FIFA
+- [13:35.590] to go through the FIFA portal that is then
+- [13:37.720] going to get prioritized with the State Department,
+- [13:39.930] so that those appointments are going to be
+- [13:42.020] had before existing appointments so that people,
+- [13:44.580] when they buy tickets, they have confidence
+- [13:46.620] that they're going to be able to come to the games
+- [13:48.500] and spend their money and travel this country
+- [13:50.410] and do all the things that they want to do and enjoy the game.
+- [13:52.180] So it's an incredible vision
+- [13:53.600] that the president executed here.
+- [13:55.140] Within 10 months, we started with really not that much.
+- [13:58.060] And so, this whole team here with the president's guidance
+- [14:00.410] has made this possible.
+- [14:01.770] It's going to be the greatest games
+- [14:03.000] in the history of the world.
+- [14:04.200] The President: Okay. Do you have that?
+- [14:05.430] The Press: Yes. Yes, sir.
+- [14:07.340] The President: You've got two comments, right?
+- [14:09.150] Daniel, please. Daniel?
+- [14:10.750] Male Speaker: Mr. President, yep,
+- [14:12.170] you are talking about the economic impact of this,
+- [14:15.090] billions and billions of dollars.
+- [14:16.400] This builds on the framework and the groundwork
+- [14:18.590] that you've built already up for a major year in 2026,
+- [14:22.240] deregulation, energy independence,
+- [14:24.830] tax cuts, historic amounts of private sector investments.
+- [14:28.540] What do you envision for the 2026 economy
+- [14:31.650] when this event comes to town next year too,
+- [14:33.920] on top of everything else?
+- [14:35.760] The President: Yeah, it's just a huge economic boon to this.
+- [14:39.290] We had a little shutdown that was caused by the Democrats
+- [14:42.410] and this will make up for it many times over, so that's good.
+- [14:45.900] But I think it's the importance of the event all over the world.
+- [14:49.350] The world is watching. And it really is,
+- [14:51.040] it's like having many Super Bowls, actually.
+- [14:53.950] Each game is almost a Super Bowl.
+- [14:55.730] Some of them are,
+- [14:57.280] I guess you could say bigger than Super Bowls.
+- [14:59.220] I guess when you get to the finals,
+- [15:01.340] it's of that level or more.
+- [15:03.770] Male Speaker: Much more.
+- [15:05.130] The President: Worldwide, I think it's going to be more.
+- [15:07.090] So that's great. When Gianni and I made the deal,
+- [15:10.280] I never thought I was going to be president,
+- [15:11.940] because I was supposed to be retired by that time,
+- [15:15.850] and I got a little lucky. So I'm very honored to have it.
+- [15:20.880] And we have the Olympics coming too.
+- [15:22.540] That'll be great. And the 250?
+- [15:25.720] 250 is going to be right out on the lawn.
+- [15:27.450] You're going to have a UFC event with Dana White and his people.
+- [15:30.640] He's going to have the greatest car they've ever assembled.
+- [15:33.850] I was talking to Dana White the other day,
+- [15:36.170] and they're going to have the greatest car
+- [15:37.640] they've ever assembled, Gianni,
+- [15:38.860] so you'll be sitting up there with me there.
+- [15:41.780] We'll be watching it,
+- [15:43.000] so right opposite the front door of The White House.
+- [15:45.730] That's going to be on June 14th.
+- [15:47.750] So it's really going to be an amazing period of time,
+- [15:50.600] but this is something very, very special.
+- [15:53.520] World Cup, all my life I've heard about it. Yeah.
+- [15:55.300] The Press: Mr. President, I have a question about Venezuela,
+- [15:56.860] but can I just first ask?
+- [15:58.060] The health of the president is always news.
+- [15:59.380] Your voice sounds a little rough.
+- [16:00.620] Are you feeling all right?
+- [16:01.820] The President: I feel great.
+- [16:03.110] I was shouting at people because they were stupid
+- [16:06.560] about something having to do with trade in a country,
+- [16:11.240] and I straightened it out,
+- [16:13.120] but I blew my stack at these people.
+- [16:16.390] The Press: Well, it sounds like there's a follow up there,
+- [16:17.990] but can I ask you about Venezuela? You suggested --
+- [16:19.600] The President: It sounds like what?
+- [16:20.830] The Press: It sounds like there's a follow up there.
+- [16:22.150] Can I ask you about Venezuela?
+- [16:23.410] The President: I thought you said there was a polyp,
+- [16:24.670] and I said -- I don't want to hear that. Okay.
+- [16:30.050] The Press: You suggested you've made a decision
+- [16:31.700] about what you want to do next up as well.
+- [16:33.210] I understand you don't want to tip your hand.
+- [16:34.770] Was there anything you're ready to rule out at this point?
+- [16:37.260] Are you ruling out US troops on the ground?
+- [16:39.060] The President: No, I don't rule out that,
+- [16:40.390] I don't rule out anything.
+- [16:41.610] We just have to take care of Venezuela.
+- [16:43.170] They dumped hundreds of thousands of people
+- [16:46.610] into our country from prisons.
+- [16:48.140] Nobody knows better than this young lady right here.
+- [16:50.900] She has done an incredible job with Tom Holman,
+- [16:53.390] and all of your people, amazing.
+- [16:56.160] We have a tight border right now, nobody comes in,
+- [16:59.230] but we had millions of people pouring through.
+- [17:01.260] A year ago we had millions of people
+- [17:03.010] pouring through our border,
+- [17:04.680] and many of them came from Venezuela,
+- [17:06.580] including Tren de Aragua, the gang.
+- [17:09.390] And I guess what I'm hearing, Christy,
+- [17:10.840] is that's a Hispanic gang as there is anywhere in the world?
+- [17:13.710] Secretary Noem: It's the worst. Absolutely, they're the worst.
+- [17:16.320] The President: I mean, they're worse than MS-13?
+- [17:17.730] Secretary Noem: They're killers, they massacre people.
+- [17:19.420] They cut them up into pieces
+- [17:20.670] and they bury them in their communities
+- [17:23.080] where they grew up. They're horrible people.
+- [17:24.670] The President: And we had a lot of them.
+- [17:25.880] And many of them, most of them,
+- [17:27.920] pretty soon most of them are going to be out.
+- [17:31.230] But they said to me, "We're a dumping ground."
+- [17:33.510] So I'm not in love with the people running Venezuela.
+- [17:37.220] I love Venezuela, I love the people of Venezuela,
+- [17:40.090] but what they've done to this country --
+- [17:41.830] And I really say this, what Biden and the Democrats
+- [17:44.480] have done to this country can never ever be forgotten.
+- [17:47.930] The Press: You suggested Maduro wants to talk.
+- [17:49.700] Are you prepared to speak with him directly?
+- [17:51.530] Would you commit to doing that before you ordered strikes?
+- [17:54.020] The President: Yeah, I probably would talk to him.
+- [17:55.490] Yeah, I talk to everybody.
+- [17:56.880] Male Speaker: Mr. President, (inaudible)
+- [17:58.380] Garrett. Was that what you were referring to? Was that India?
+- [18:01.060] The Press: Rebecca Zucker with Blaze News.
+- [18:02.390] So in a recent interview, you had made some remarks
+- [18:04.480] about H-1B visas. You said-
+- [18:05.730] The President: About what?
+- [18:06.960] The Press: About H-1B visas.
+- [18:08.170] You said that there were certain talents
+- [18:10.010] that Americans needed to outsource to foreign workers.
+- [18:12.190] Could you clarify me-
+- [18:13.540] The President: Until they learned that.
+- [18:14.770] Yeah. For instance, if you're going to be making chips,
+- [18:17.830] we don't make chips too much here anymore,
+- [18:19.710] but we are going to be. In a period of a year,
+- [18:23.680] we're going to have a big portion of the chip market.
+- [18:26.410] But we have to train our people how to make chips,
+- [18:28.770] because we didn't do it. We used to do it,
+- [18:30.980] and then foolishly, we lost that business to Taiwan.
+- [18:33.710] Very, very foolishly.
+- [18:34.910] Because if they had a president that thought like I did,
+- [18:39.920] they would not have let that happen.
+- [18:42.100] But it's all coming back.
+- [18:45.130] Within a few years, we're going,
+- [18:47.200] and not because of the CHIPS Act.
+- [18:49.980] The CHIPS Act was a disaster for this country.
+- [18:53.750] We gave away billions of dollars to other countries
+- [18:56.940] and other locations and companies,
+- [18:59.840] and all they did was rob our money.
+- [19:02.620] But because of tariffs, the chips are coming back,
+- [19:06.170] chipmakers are all coming back,
+- [19:08.140] and I think within a very short period of time,
+- [19:09.860] we're going to have, maybe even the majority of the chip-making
+- [19:12.820] in the world will be right in the United States
+- [19:15.710] where it should have been all along.
+- [19:17.820] But because we had people that didn't believe in tariffs,
+- [19:20.300] and they believed in them,
+- [19:21.560] they didn't know how to use them.
+- [19:23.500] We would've had nobody leaving our country right now.
+- [19:27.500] And I said, you have almost 100 percent of the chips
+- [19:29.850] are made in Taiwan. It's so disgraceful.
+- [19:33.280] The good news is it's all coming back.
+- [19:34.980] Yeah, please. The gentleman in the back.
+- [19:37.200] The Press: Thank you, Mr. President.
+- [19:38.490] I wanted to just follow up on Venezuela.
+- [19:40.840] In these talks with Maduro,
+- [19:42.640] is there anything that he could say or do
+- [19:46.150] that would allow you to feel
+- [19:49.650] like he could stay with your support?
+- [19:51.600] Is there anything that he could say that you would be,
+- [19:53.760] "Okay, you can stay."?
+- [19:55.460] The President: It's hard to say that.
+- [19:56.800] The question is a little bit tricky.
+- [19:59.960] I don't think it was meant to be tricky.
+- [20:01.410] It's just that, look, he's done tremendous damage
+- [20:04.490] to our country, primarily because of drugs,
+- [20:07.390] but really because we have that problem
+- [20:08.910] with other countries too. But more than any other country,
+- [20:13.250] the release of prisoners into our country has been a disaster.
+- [20:16.860] He's emptied his jails. Others have done that also.
+- [20:21.310] He has not been good to the United States,
+- [20:25.190] so we'll see what happens.
+- [20:26.860] At a certain period of time I'll be talking to him.
+- [20:29.400] The Press: Mr. President
+- [20:30.680] (inaudible) can I just follow up?
+- [20:32.350] You mentioned your voice and you were shouting about trade.
+- [20:35.310] Which country in particular upset you?
+- [20:37.320] Was it India (inaudible)?
+- [20:38.590] The President: No, no, no. A country wanted to try
+- [20:40.320] and renegotiate the terms of their trade deal,
+- [20:43.720] and I wasn't happy about it.
+- [20:45.280] The Press: Well, which country was it? People want to know.
+- [20:47.170] The President: Why would I say that to you?
+- [20:49.210] I can't believe it.
+- [20:50.750] The Press: Mr. President on the World Cup, if you would,
+- [20:52.620] Seattle and the World Cup, the new mayor-elect of Seattle
+- [20:55.940] is a Democratic socialist. Seattle has six --
+- [20:58.670] The President: Or beyond. I watched her.
+- [21:01.090] That's more than socialism.
+- [21:02.520] The Press: Right. Seattle has six World Cup games.
+- [21:04.250] How close are you going to be watching that city
+- [21:06.530] with the crime in that city?
+- [21:08.580] The President: Well, if we think --
+- [21:09.860] and I'll have to speak to Gianni about this,
+- [21:11.680] but if we think that the mayor of LA is incompetent,
+- [21:15.500] everybody knows that.
+- [21:16.700] You know that I was there, I guess, two years ago,
+- [21:20.850] and we got all the federal permits taken care of.
+- [21:23.390] Far more complex than the state permits and the city permits.
+- [21:28.010] And Lee Zeldin, who's a superstar,
+- [21:29.900] got everything taken care of.
+- [21:32.330] The toughest part having to do with the fires.
+- [21:35.120] That should have never happened. If they let the water come in,
+- [21:37.760] that wouldn't have happened, right?
+- [21:39.710] Do you know that people aren't building their houses yet?
+- [21:42.400] I mean, can you imagine that?
+- [21:44.320] And if we didn't go in early on, Chris, I think we can say it --
+- [21:48.330] Well, the head of their police department said it,
+- [21:51.750] they were unable to handle it.
+- [21:53.030] You would've had -- Not only did you have the fires,
+- [21:54.950] but you would've had total insurrection in Los Angeles.
+- [21:59.910] And if we didn't go in and the head of --
+- [22:02.020] you know the gentleman?
+- [22:03.230] He said it and he said it strongly,
+- [22:04.890] he said we could not have done it
+- [22:06.370] without the federal government. We did a great job.
+- [22:10.380] If we think there's going to be the sign of any trouble,
+- [22:13.950] I would ask Gianni to move that to a different city.
+- [22:16.400] We have a lot of cities that would love to have it,
+- [22:19.780] number one, and we'll do it very safely.
+- [22:22.560] So if we think there's a problem in Seattle
+- [22:24.610] where you have a very, very liberal/communist mayor --
+- [22:28.410] I would say certainly beyond just liberal.
+- [22:30.890] I watched her over the weekend. Wow.
+- [22:33.290] That's another beauty we got there.
+- [22:35.560] But if we think there's going to be a problem, we'll --
+- [22:38.860] Gianni, can I say we will move?
+- [22:40.410] I don't think you're going to have this problem,
+- [22:42.110] but we're going to move the event to someplace
+- [22:43.780] where it's going to be appreciated and safe.
+- [22:46.740] Gianni Infantino: Yeah, well, I think safety and security
+- [22:49.120] is the number one priority for a successful World Cup.
+- [22:54.860] We can see today that people have trust in the United States,
+- [22:59.200] when we see at the ticket sales.
+- [23:03.120] We sold, I mean, record-breaking figures of tickets,
+- [23:06.860] almost 2 million already sold out of 2 million
+- [23:09.900] that we have been selling.
+- [23:11.180] This is because people they know that they will be coming here
+- [23:15.080] and they will experience a safe and secure World Cup.
+- [23:19.000] This is the responsibility, of course,
+- [23:20.330] of the government, of Secretary Noem, of everyone.
+- [23:25.300] And obviously, I mean, we will discuss,
+- [23:30.080] we are working together, we have a task force for this.
+- [23:32.950] And we must ensure that all fans coming from abroad
+- [23:36.990] or being here,
+- [23:38.260] they can experience a celebration
+- [23:41.130] of coming together of the sport,
+- [23:45.230] and this goes only with 100 percent safety.
+- [23:51.580] Secretary Noem: We are communicating
+- [23:52.870] with all these mayors
+- [23:54.080] about what their responsibilities are.
+- [23:55.660] They know the safety and security of these events
+- [23:58.430] is their number one responsibility.
+- [24:00.240] And we'll be there, the president's always there
+- [24:02.150] to keep Americans safe. But he also makes sure
+- [24:04.860] the people that know their responsibilities
+- [24:07.300] and that they're prepared to host these events
+- [24:09.560] and do so in a safe manner.
+- [24:12.310] The President: Go ahead, please.
+- [24:15.880] The Press: There was some news this morning
+- [24:17.760] from an Axios report
+- [24:19.520] that Senator Ted Cruz was laying the groundwork
+- [24:21.840] for a potential 2028 presidential run.
+- [24:24.340] Could I get your reaction to,
+- [24:25.710] could you see yourself supporting Senator Cruz?
+- [24:27.310] The President: Well, he's a friend of mine.
+- [24:28.530] I mean, I haven't spoken to him about that.
+- [24:30.360] It's a little early.
+- [24:31.580] It's three and a quarter years, that's a long time.
+- [24:34.440] But he's a very good guy. He's a very good friend of mine.
+- [24:38.350] You remember we had quite a campaign against Ted
+- [24:42.890] and it worked out quite nicely.
+- [24:44.240] Let's see, where are we? Oh, we're in the Oval --
+- [24:46.740] But I'm not that surprised to hear that.
+- [24:54.960] The Press: Mr. President, on the tariff exemptions,
+- [24:57.070] you had some recently on a variety of different goods.
+- [24:59.900] I'm wondering, are you ruling out, going forward,
+- [25:02.410] no more exemptions on products?
+- [25:04.070] You were mentioning a disagreement earlier.
+- [25:05.590] I'm wondering what you're thinking.
+- [25:06.790] The President: We've taken in hundreds of millions of dollars
+- [25:08.590] in tariff money.
+- [25:09.870] We're going to be issuing dividends later on,
+- [25:13.120] somewhere prior to probably in the middle of next year,
+- [25:16.190] a little bit later than that, of thousands of dollars
+- [25:19.200] for individuals of moderate-income, middle-income,
+- [25:24.420] we're going to pay down debt.
+- [25:26.050] We have a lot of money from tariffs.
+- [25:28.190] If we didn't have tariffs this nation
+- [25:29.660] would be in serious trouble,
+- [25:31.540] and we've taken in tremendous amounts of money.
+- [25:35.450] And you know what's more important than that?
+- [25:37.150] We've protected our businesses from being raided
+- [25:39.950] like we did with the chip business.
+- [25:41.500] Now we're bringing them all back.
+- [25:43.330] But we had a hundred percent of the chip industry
+- [25:46.270] and then they left.
+- [25:47.570] They went mostly to Taiwan and South Korea,
+- [25:49.710] but mostly Taiwan, and they have almost a hundred percent.
+- [25:54.050] And we're going to have, within a short period of time,
+- [25:55.920] a big percentage of the chip business, they're coming back.
+- [25:58.900] Because of tariffs, because they don't want to pay the tariffs.
+- [26:01.130] Because the tariffs will be very steep
+- [26:03.790] if they don't come back and they've committed to come back.
+- [26:08.810] As you probably heard, Apple is now up to $700 million.
+- [26:13.250] We have Nvidia at $600 billion.
+- [26:16.550] We have tremendous amounts of money pouring in.
+- [26:19.130] Our country has become amazing again
+- [26:22.510] and really, really rich again.
+- [26:24.490] I will say this, we have a decision we're waiting for.
+- [26:29.340] It's a very big decision. The numbers that we've taken in,
+- [26:33.530] if you talk about investments, is trillions.
+- [26:36.330] Not with a B, not within M, millions,
+- [26:41.260] but trillions of dollars.
+- [26:44.500] I can't imagine having to give that money back
+- [26:49.390] on something that we're allowed to do.
+- [26:50.840] And the ones that are fighting us are countries, largely.
+- [26:54.200] They're back in countries that have been ripping us off
+- [26:56.780] for years, using tariffs to rip us off,
+- [26:59.850] and now we're able to defend ourselves.
+- [27:02.610] It really is a matter of national security
+- [27:04.620] because economic security is national security.
+- [27:08.310] So I think you're going to see another thing happening.
+- [27:12.110] I think you'll see food prices,
+- [27:13.860] they've come down very substantially since Biden,
+- [27:16.950] but I think you're going to see food prices
+- [27:18.460] coming down very substantially.
+- [27:19.720] The Press: Mr. President, on Saudi Arabia.
+- [27:21.630] Tomorrow, you're hosting Saudi Arabia.
+- [27:23.930] Are you planning to sell F-35s to Saudi Arabia?
+- [27:27.560] The President: Yeah.
+- [27:28.800] The Press: I mean, and also are you going to be looking
+- [27:30.060] at doing a similar security agreement like you did
+- [27:31.480] with (inaudible)?
+- [27:32.680] The President: Yeah, no, I am planning on doing that.
+- [27:33.880] The Press: They've got (inaudible) --
+- [27:35.080] The President: They want to buy them,
+- [27:36.470] they've been a great ally.
+- [27:37.860] They've got to like us very much.
+- [27:39.740] Look at the Iran situation,
+- [27:41.480] what we did in terms of obliterating their --
+- [27:45.860] We obliterated their nuclear capability.
+- [27:48.510] Yeah, I will say that we will be doing that.
+- [27:51.330] We'll be selling F-35s, yeah.
+- [27:53.070] The Press: Can you clarify something you posted
+- [27:54.930] on Truth Social last night? You urged House Republicans
+- [27:57.840] to vote in favor of this Epstein release bill
+- [27:59.440] they're going to vote on tomorrow.
+- [28:00.680] The President: Yeah.
+- [28:01.900] The Press: I just want to be super clear on your position.
+- [28:03.540] Do you want to see that pass the Senate?
+- [28:05.100] Would you sign that bill if it gets to your desk?
+- [28:08.080] The President: I do want to -- Here's what I want.
+- [28:11.870] We have nothing to do with Epstein, the Democrats do.
+- [28:14.770] All of his friends were Democrats.
+- [28:17.120] You look at this, Reid Hoffman,
+- [28:18.540] you look at Larry Summers, Bill Clinton,
+- [28:21.730] they went to his island all the time,
+- [28:23.270] and many others, they're all Democrats.
+- [28:25.850] All I want is I want for people to recognize the great job
+- [28:29.860] that I've done on pricing, on affordability,
+- [28:33.020] because we brought prices way down,
+- [28:34.670] but they're going way lower. On energy, on ending eight wars
+- [28:39.890] and another one coming pretty soon, I believe.
+- [28:43.190] We've done a great job and I hate to see
+- [28:45.670] that deflect from the great job we've done.
+- [28:50.030] So I'm all for it. We've already given 50,000 pages.
+- [28:54.520] You do know that.
+- [28:56.150] Unfortunately, like with the Kennedy situation,
+- [28:58.630] with the Martin Luther King situation,
+- [29:01.840] not to put Jeffrey Epstein in the same category,
+- [29:04.770] but no matter what we give, it's never enough.
+- [29:07.080] With Kennedy, we gave everything and it wasn't enough.
+- [29:10.250] With Martin Luther King,
+- [29:11.520] we gave everything and it's never enough.
+- [29:14.630] We've already given, I believe the number is 50,000 pages.
+- [29:19.630] 50,000 pages. And it's just a Russia, Russia,
+- [29:23.690] Russia hoax as it pertains to the Republicans.
+- [29:26.110] Now, I believe that many of the people that we --
+- [29:30.780] some of the people that we mentioned are being looked
+- [29:33.650] at very seriously for their relationship to Jeffrey Epstein.
+- [29:38.370] But they were with him all the time.
+- [29:39.790] I wasn't. I wasn't at all. And we'll see what happens.
+- [29:44.110] What I just don't want Epstein to do
+- [29:47.110] is detract from the great success of the Republican Party,
+- [29:51.550] including the fact that the Democrats
+- [29:54.420] are totally blamed for the shutdown.
+- [29:56.170] They cost our country
+- [29:57.450] hundreds of billions of dollars with that,
+- [30:00.010] and a lot of inconvenience. They can do whatever they want.
+- [30:05.950] The Press: You would sign (inaudible)?
+- [30:07.330] The President: We'll give them everything.
+- [30:08.780] Sure, I would. Let the Senate look at it,
+- [30:11.760] let anybody look at it,
+- [30:13.120] but don't talk about it too much,
+- [30:14.560] because honestly I don't want to take it away from us.
+- [30:18.040] It's really a Democrat problem.
+- [30:20.310] The Democrats were Epstein's friends, all of them.
+- [30:24.620] And it's a hoax. The whole thing is a hoax.
+- [30:27.210] And I don't want to take it away from, really,
+- [30:30.290] the greatness of what the Republican Party
+- [30:32.900] has accomplished over the last period of time.
+- [30:34.860] Yeah, please?
+- [30:36.120] Speaker 9: (inaudible)
+- [30:37.330] the shutdown is now over and administration officials
+- [30:41.480] had said, when the shutdown ends,
+- [30:43.190] they'll re-evaluate the farmer relief.
+- [30:44.910] Now we have the deal with China.
+- [30:47.780] So is the administration still looking to dish out
+- [30:50.790] farmer relief now that the government is back-loaded?
+- [30:54.460] The President: I'm always going to help our farmers.
+- [30:55.770] The Press: Are you still looking to do (inaudible)?
+- [30:57.100] The President: I would do that, yeah.
+- [30:58.510] If they need relief, we'll be there for them.
+- [31:00.420] We're going to always be for our farmers.
+- [31:02.410] Yeah, please, at the back?
+- [31:03.670] The Press: Mr. President.
+- [31:04.900] Just speaking of the economic impacts of FIFA
+- [31:07.830] and possibly moving to another city,
+- [31:09.830] some games, if you feel there's crime.
+- [31:11.650] Is there a timeline that you would do that?
+- [31:13.560] Because these cities, there's sponsorships,
+- [31:15.800] there's economic impacts for these communities.
+- [31:17.640] The President: Sure.
+- [31:18.850] Well, the governors are going to have to behave.
+- [31:21.290] The mayors are going to have to behave.
+- [31:22.960] In the case of California, you have a problem.
+- [31:27.260] You have high crime, and you have a place
+- [31:30.330] that just suffered great fires and everything else,
+- [31:32.840] and they didn't do a very good job.
+- [31:34.600] And if we didn't go in from the crime standpoint,
+- [31:37.620] you would've had a disaster.
+- [31:39.810] It was not going to be handled properly.
+- [31:41.680] It wasn't able to be.
+- [31:44.110] The head of the police said without, as I said,
+- [31:46.470] without the federal government, they could not have done it.
+- [31:48.560] So here's the story. I love Los Angeles.
+- [31:52.560] If they want help during this,
+- [31:54.610] I would love to send in National Guard
+- [31:57.270] or whoever's necessary to help them.
+- [31:59.210] I want it to be great.
+- [32:00.520] I'd love it to be in Los Angeles.
+- [32:01.920] I love the place. It's a natural for Los Angeles.
+- [32:05.800] If we think there's going to be crime,
+- [32:08.550] if we are obstructed by the governor,
+- [32:11.030] and maybe he won't obstruct, maybe it'll be great,
+- [32:13.500] but I'd love him for him to call and say,
+- [32:16.020] "We'd like to have some extra help."
+- [32:18.160] Because if there's even a hint of a problem,
+- [32:21.300] we want to get in there before the problem occurs.
+- [32:24.060] We want to make it totally safe for Johnny and FIFA,
+- [32:27.190] and all of the great people that are going to be there.
+- [32:29.780] And I think that's going to happen.
+- [32:31.430] I would be honored to help California
+- [32:35.660] if they're going to have a problem.
+- [32:37.140] And if they think they're going to have a problem,
+- [32:38.760] they should say so.
+- [32:40.080] We can be in there in 24 hours notice and do a great job.
+- [32:45.290] The Press: (inaudible)
+- [32:47.650] by the end of the year, by the end of the first quarter?
+- [32:50.950] The President: Well, I think if they would tell us now,
+- [32:52.450] they're not going to have a problem,
+- [32:54.180] because if we go in, they don't have a problem.
+- [32:55.830] Look at D.C. There's no crime in D.C.
+- [32:57.730] anymore, and D.C. was a mess. If they want us to go in,
+- [33:03.340] I'd like them to tell us right now.
+- [33:05.540] But if we go in, there will be no problem.
+- [33:07.230] There will be no crime.
+- [33:08.480] The Press: What's the message then to local businesses
+- [33:10.410] who are considering sponsoring --
+- [33:12.190] The President: Tell you governor to ask for federal help?
+- [33:15.410] We'd love to help them.
+- [33:17.000] The Press: (inaudible)
+- [33:19.000] also potentially launching strikes in Mexico
+- [33:22.330] or putting American troops or American personnel into Mexico
+- [33:25.040] to deal with the with the cartels?
+- [33:26.300] The President: Would I want strikes in Mexico to stop drugs?
+- [33:29.900] It's okay with me.
+- [33:31.660] Whatever we have to do to stop drugs.
+- [33:35.460] I looked at Mexico City over the weekend.
+- [33:37.390] There's just some big problems over there.
+- [33:40.630] If we had to, would we do there
+- [33:42.400] what we've done to the waterways?
+- [33:44.760] There's almost no drugs
+- [33:46.120] coming in through our waterways anymore.
+- [33:48.150] Isn't it down like 85 percent?
+- [33:49.490] Secretary Noem: It is, sir.
+- [33:50.710] The President: I don't know who the 15 percent would is.
+- [33:52.530] It wouldn't be you.
+- [33:53.930] Secretary Noem: No, that's for sure.
+- [33:55.210] The President: No, I think it's been --
+- [33:58.290] you would say that's a big signal?
+- [33:59.640] Secretary Noem: Absolutely.
+- [34:00.870] The President: We have almost no drugs
+- [34:02.430] coming into our country by the sea, by the waterways.
+- [34:07.730] And you know why? Okay. It's pretty obvious.
+- [34:11.050] Would I do that on the land cars?
+- [34:16.720] Look, every boat we knock out, we save 25,000 American lives.
+- [34:21.460] Not to mention the destruction of families.
+- [34:24.790] These families are decimated forever.
+- [34:27.580] The mother, the father, the children,
+- [34:30.360] they never recover really from it
+- [34:32.290] when you lose somebody like the way they do.
+- [34:35.060] If you lose them, but the way they die is horrible.
+- [34:39.380] So when we knock out a boat and we saved 25,000 lives,
+- [34:42.360] that's great. Now, do I feel the same way
+- [34:45.430] about the corridors that they use?
+- [34:47.680] We know every one of them.
+- [34:49.520] Every one of those corridors is under major surveillance.
+- [34:52.910] Secretary Noem: Absolutely.
+- [34:54.170] The President: We have nobody
+- [34:55.410] coming in through our southern border,
+- [34:57.450] but we know exactly how they get their things here,
+- [35:00.880] how they get the drugs here, fentanyl, cocaine.
+- [35:05.220] Colombia has cocaine factories where they make cocaine.
+- [35:09.380] Would I knock out those factories?
+- [35:11.310] I would be proud to do it, personally.
+- [35:13.600] I didn't say I'm doing it, but I would be proud to do it,
+- [35:17.290] because we're going to save millions of lives by doing it.
+- [35:20.770] The Press: Would you need or seek Mexico's permission though?
+- [35:23.700] The President: I wouldn't answer that question.
+- [35:26.450] I've been speaking to Mexico, they know how I stand.
+- [35:30.460] We're losing hundreds of thousands of people to drugs.
+- [35:34.330] So now we've stopped the waterways,
+- [35:35.970] but we know every route. We know every route.
+- [35:38.880] We know the addresses of every drug lord.
+- [35:41.940] We know their address, we know their front door.
+- [35:45.580] We know everything about every one of them.
+- [35:47.720] They're killing our people. That's like a war.
+- [35:50.560] Would I do it? I'd be proud to.
+- [35:52.320] I'd probably go into Congress and say, "Hey."
+- [35:54.550] And you know what? The Democrats and the Republicans
+- [35:56.840] would both agree, unless they're crazy,
+- [36:00.800] and they are a little crazy on the Democrat side.
+- [36:04.580] But we have lost hundreds of thousands of people
+- [36:09.830] a year, death.
+- [36:11.310] And that's not talking about family destruction,
+- [36:13.500] that's talking about death.
+- [36:15.330] And much of it comes through Mexico.
+- [36:17.980] So let me just put it this way, I am not happy with Mexico.
+- [36:21.270] Thank you very much, everybody.

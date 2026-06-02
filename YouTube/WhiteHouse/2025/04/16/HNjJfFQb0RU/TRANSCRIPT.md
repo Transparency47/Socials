@@ -1,0 +1,370 @@
+<!-- source: https://www.youtube.com/watch?v=HNjJfFQb0RU -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: HNjJfFQb0RU -->
+<!-- date_published: 2025-04-16T23:36:57+00:00 -->
+<!-- date_accessed: 2026-06-02T02:51:47.149689+00:00 -->
+
+# Transcript: President Trump Participates in an Easter Prayer Service and Dinner
+
+- [00:54.480] Male Speaker: Please welcome, Charles Billingsley
+- [00:59.120] Mr. Billingsley: Let's start this evening by bowing our heads
+- [01:10.880] and I'm gonna sing a prayer for us. [singing]
+- [03:17.300] I want to wish you all a very happy
+- [03:19.600] Easter, and Mr. President,
+- [03:21.600] we want to just thank you for your strong stance
+- [03:24.710] and for honoring Easter the way it should be honored,
+- [03:27.630] so we're very grateful sir, thank you.
+- [03:30.520] I want give you an old song, yes sir?
+- [03:47.380] By the way, this is Adam Lancaster here on the piano,
+- [03:49.970] and it is truly an honor to be here.
+- [03:52.530] And I want to give you a little song
+- [03:54.100] that's to the tune of the old Italian aria
+- [03:56.100] O Sole Mio, but several years back,
+- [03:59.250] a man put Christian lyrics to it,
+- [04:01.440] and so the first verse is about Christmas,
+- [04:03.250] and the second verse is about
+- [04:04.580] Easter, and I want give it to you.
+- [04:07.020] [singing] Bless the Lord.
+- [08:14.610] Pastor White: Thank you so much, Charles. Absolutely beautiful.
+- [08:19.290] And it's an honor to have every one of you
+- [08:21.280] join us here at the beautiful
+- [08:23.270] White House with President Trump and the White House
+- [08:27.300] Faith Office, and to have the world join us
+- [08:30.040] right now as we're streaming. I am very honored.
+- [08:32.980] It's actually the honor of my life.
+- [08:34.830] President Trump, I've been with you 24 years,
+- [08:37.620] and to be appointed and to serve as the senior advisor to you
+- [08:41.350] for the faith for the White House
+- [08:43.710] Faith Office .and our Faith Director, Jenny
+- [08:46.420] Korn, here, it is our honor to serve you all.
+- [08:49.980] And we've actually had over 1,000 faith leaders
+- [08:53.160] in through the White house in just this short time period.
+- [09:01.810] As Christians, it is our most holy time.
+- [09:04.180] We are going to have Great Friday on this Friday,
+- [09:07.820] and then, of course, Resurrection Sunday.
+- [09:10.540] And tonight, we gather not only to celebrate,
+- [09:13.250] but to remember before there was a crown of glory,
+- [09:17.160] there was crown of thorns.
+- [09:19.440] And before the joy of Sunday morning,
+- [09:22.750] there was the agony of Friday afternoon.
+- [09:26.550] Jesus, the Lamb of God, willingly gave himself.
+- [09:31.200] He was betrayed. He was beaten. He was mocked. He was spit upon.
+- [09:37.290] He was crucified unjustly under the Roman law,
+- [09:41.590] nailed to that cross, not for his sin,
+- [09:45.410] but for our sin.
+- [09:47.410] And the Bible declares that greater love
+- [09:49.340] has no one than this,
+- [09:51.440] to lay down one's life for one's friend.
+- [09:55.230] And that's what Jesus did.
+- [09:57.940] Not out of obligation, but out of pure love.
+- [10:02.730] He took our place, and he bore our shame.
+- [10:06.960] He hung between heaven and earth,
+- [10:09.490] arms stretched out wide, as if to say,
+- [10:12.840] this is how much I love you. When he said, it is finished,
+- [10:17.820] it means it is perfectly perfect and completely complete.
+- [10:21.680] It was not a cry of defeat. He was not defeated.
+- [10:26.020] He was declaring that the debt that had to be paid
+- [10:30.900] for the fall of man,
+- [10:32.730] had been paid by the perfect sacrifice,
+- [10:35.980] the spotless lamb of God, and that debt was paid in full.
+- [10:42.640] And because of that cross, no sin is too great,
+- [10:47.240] no person is too lost, and no night is too dark.
+- [10:52.300] His blood still saves. His sacrifice still speaks.
+- [10:59.020] And tonight...
+- [11:00.300] Before we rejoice over the stone that has been rolled away,
+- [11:04.820] I wanna take a moment as we reverence the Savior
+- [11:09.400] who laid down his life.
+- [11:11.350] He paid it all so we could live free and forgiven forever.
+- [11:17.810] Father God, I come to you in the name of Jesus and I
+- [11:20.370] thank you that on that dark day of Good Friday,
+- [11:25.550] the Bible declares that before the foundations were laid,
+- [11:28.370] the Lamb of God was slain, that you had a plan,
+- [11:31.260] not to leave us lost or hopeless or helpless,
+- [11:34.470] but to rescue us, to save us.
+- [11:37.070] And we thank you for the price that was paid,
+- [11:40.770] for the blood that was shed.
+- [11:42.640] I'm reminded of the old hymn, what can wash away my sin?
+- [11:46.610] Nothing but the blood of Jesus.
+- [11:49.200] And what can make me whole again?
+- [11:51.640] Nothing but blood of the Jesus.
+- [11:53.910] So I give you praise and glory in Jesus' name.
+- [11:58.170] And it's my great honor to introduce my dear friend
+- [12:01.390] and a great man of God to all of us.
+- [12:04.110] He is such a hero of faith. And if you ever talk to him,
+- [12:08.260] he says, I'm just a sinner saved by grace.
+- [12:11.330] He's not going to leave us on the cross,
+- [12:13.870] but Reverend Franklin Graham is going to talk to us
+- [12:16.840] about that wonderful resurrection.
+- [12:18.980] Franklin.
+- [12:28.530] Reverend Graham: Thank you, Paula,
+- [12:31.770] and thank you, Mr. President, for inviting us here.
+- [12:36.240] And I think I can speak on behalf of all of us,
+- [12:39.740] how grateful we are.
+- [12:43.260] Your leadership and standing tall, standing firm.
+- [12:50.020] There's been a spiritual drought in this city
+- [12:54.580] the last few years and in this house.
+- [12:58.420] And so I'm very grateful for the Easter declaration
+- [13:03.440] that you put out.
+- [13:06.230] Thank you. Let us pray.
+- [13:11.350] Our Father and our God, we come tonight to say thank you.
+- [13:17.440] Thank you for sending your Son, Jesus Christ,
+- [13:21.880] to this earth to take our sins.
+- [13:29.660] That he died on the cross shedding his own blood for each
+- [13:33.150] and every one. Buried in a tomb of sin.
+- [13:40.050] But on the third day, you raised Him to life.
+- [13:44.600] And Father, we know that if we confess our sins and repent
+- [13:49.760] and believe on the name of your Son,
+- [13:51.650] the Lord Jesus Christ, we shall be saved.
+- [13:55.590] And Father it's my prayer tonight
+- [13:59.000] that many people this Easter would turn from their sins
+- [14:04.730] and by faith believe on name of Your Son.
+- [14:07.530] And it's His name that we pray. Amen.
+- [14:16.160] I was told to introduce the president.
+- [14:17.870] It feels so dumb to have to introduce the President
+- [14:23.070] of the United States in his own house,
+- [14:26.830] but ladies and gentlemen, what a privilege, isn't it,
+- [14:29.670] to have the President of the U.S.
+- [14:31.630] Invite us here. So Mr. President, please.
+- [14:35.080] The President: Thank you very much.
+- [14:46.730] Thank you, everybody. Thank you.
+- [14:52.990] Thank you very much. It's a real honor.
+- [14:56.170] And we've all worked very hard to get here.
+- [14:59.370] And I want to thank you for the tremendous support that we had.
+- [15:03.570] Just about 88 percent. I'd say that's good.
+- [15:06.850] I said, why didn't we hit 90, but it's pretty good.
+- [15:10.290] And all friends and everybody in this room
+- [15:12.570] is a very special friend.
+- [15:14.070] I want pay great homage to the White House.
+- [15:19.260] There's no place like it. I've been in many houses.
+- [15:21.730] I've seen the nicest of the nice,
+- [15:23.240] and there's nothing like it and really what it represents.
+- [15:28.160] And being here with you in the middle of Holy Week
+- [15:30.770] as we remember two of the most monumental events
+- [15:34.210] in all of history,
+- [15:35.870] the death and the resurrection of Jesus Christ.
+- [15:39.720] I want to thank Pastor Paula White
+- [15:42.700] and Reverend Franklin Graham, all of the incredible,
+- [15:47.230] respected -- highly respected --
+- [15:51.010] members of clergy and friends,
+- [15:54.950] just friends, friends of great faith.
+- [15:58.430] Many thanks as well to Secretary of State Marco Rubio,
+- [16:01.810] who's been fantastic.
+- [16:03.950] Many faith leaders that are here tonight.
+- [16:07.230] Angel Mom, Patty Morin, who has been through hell.
+- [16:10.200] Where is Patty? Patty? Stand up, Patty.
+- [16:15.870] Yes, your incredible daughter,
+- [16:24.830] and your daughter is looking down on Patty today.
+- [16:28.830] This was some day for you. We appreciate it, Patty,
+- [16:32.250] and we're all with you 100 percent.
+- [16:34.430] And you are indeed an angel, Mom.
+- [16:36.830] Thank you very much.
+- [16:39.370] And a very special thanks to Charles Billingsley
+- [16:42.630] for the magnificent performance. Thank you, Charles.
+- [16:47.210] Mr. Billingsley: Thank you.
+- [16:50.730] The President: Nearly 2,000 years ago,
+- [16:52.300] during the sacred week,
+- [16:53.600] the living Son of God entered Jerusalem in triumph.
+- [16:57.630] Soon after, the Savior of mankind,
+- [16:59.770] who brought truth and light into the world,
+- [17:02.150] was betrayed, arrested, and tried, beaten,
+- [17:05.210] and nailed to a cross, and crucified.
+- [17:09.010] For our sake, He gave up His life.
+- [17:10.890] And as the very great Reverend Billy Graham once said,
+- [17:17.200] God proved His love on the cross.
+- [17:20.460] When Christ hung and bled and died,
+- [17:23.900] it was God saying to the world, I love you.
+- [17:27.780] Those are beautiful words from a great man,
+- [17:30.030] Franklin, right? A great man.
+- [17:32.390] Franklin's an incredible father. I went to Yankee Stadium
+- [17:35.410] with my father many years ago to watch your father.
+- [17:38.980] And you think we have big crowds today?
+- [17:42.440] It was some crowd. Never forget it.
+- [17:45.080] So, thank you very much.
+- [17:46.360] And thank you for being here, Franklin.
+- [17:47.770] Thank you very much.
+- [17:49.200] Three days, your father would be very proud of you, by the way.
+- [17:52.140] Incredible job you've done. Three days later,
+- [17:58.450] Christ's followers found the empty tomb.
+- [18:00.870] Jesus had defeated darkness and death,
+- [18:03.720] and promised new life to all of humankind.
+- [18:07.620] And that's what we celebrate each year at Easter,
+- [18:09.840] as we joyfully proclaim on Sunday,
+- [18:12.730] He is risen. The death and resurrection of Jesus
+- [18:16.280] are the essence of the Christian faith.
+- [18:19.570] Whether rich or poor, healthy or sick, young or old,
+- [18:22.500] or in times of peace or war,
+- [18:25.320] Christians everywhere find solace
+- [18:27.240] and hope in the knowledge that Christ died for them
+- [18:32.040] and that they could be united with Him in heaven.
+- [18:37.950] And that's what we want. That's what all want.
+- [18:41.120] The Miracles of Holy Week
+- [18:42.520] set in motion a transformation in human existence.
+- [18:47.680] Countless millions of Americans
+- [18:49.560] have been moved by Christ's example
+- [18:51.990] to heal the sick, defend their families,
+- [18:54.820] lift up their communities, and make our country stronger,
+- [18:57.870] better, and greater than ever before.
+- [19:01.010] With God's grace over these past three months,
+- [19:04.340] and we have had a great three months.
+- [19:07.080] They say maybe the best three months
+- [19:09.450] ever for a President and an administration.
+- [19:15.640] It was really great, we have fantastic people,
+- [19:18.760] and they're people that believe like you do.
+- [19:22.320] But we've achieved more than most administrations.
+- [19:25.150] They've been saying do in four years
+- [19:26.920] or even eight years, just in a short period of time.
+- [19:30.300] And I think there's a whole new spirit in our country,
+- [19:32.380] and I think that there's whole new respect for our country.
+- [19:34.480] Our country was not respected five months ago, six months ago.
+- [19:38.770] Although, I think November 5th did a lot,
+- [19:41.590] to get that respect, Franklin.
+- [19:45.040] I think it was a big day. I hope it is going to go down
+- [19:48.400] as one of the most important days
+- [19:49.900] in the history of our country, November 5th.
+- [19:53.230] We're restoring our prosperity, securing our borders.
+- [19:56.370] We're rebuilding the U.S. Military.
+- [19:59.370] I did it once, and now I'm going to do it again,
+- [20:01.910] and even more so.
+- [20:03.750] We're standing up for a persecuted Christian
+- [20:07.620] and so many Christians
+- [20:08.980] that have been persecuted all over the world.
+- [20:11.590] So horrible what's happened. And defending religious liberty,
+- [20:15.550] we had nobody fighting for our Christians
+- [20:17.460] and other parts of the world
+- [20:18.720] that were being so incredibly destroyed,
+- [20:22.740] killed, injured. But they died, so many died.
+- [20:29.620] You wouldn't think that could happen in this time,
+- [20:32.260] in this sort of modern time.
+- [20:34.710] I proudly created the White House Faith Office
+- [20:37.010] and a brand new DOJ task force
+- [20:39.800] to eradicate anti-Christian bias.
+- [20:42.770] And there is anti-Christian.
+- [20:44.520] You don't hear about that very much,
+- [20:45.990] but there is antichristian bias.
+- [20:48.880] We're stopping the radical indoctrination in our schools
+- [20:53.600] and supporting school choice.
+- [20:55.670] And we're going to be moving our Education Department
+- [20:58.840] and various educational departments
+- [21:01.070] down to the states where they belong.
+- [21:04.010] We spend more money per pupil than any country in the world.
+- [21:07.460] And we don't get the answer.
+- [21:08.740] We are in the lower, lower tier of 40 nations,
+- [21:13.270] the 40 nations that they rate. And I think when we do this,
+- [21:17.820] it's going to make a tremendous difference.
+- [21:19.680] Think of it, we spend more per pupil
+- [21:22.180] than any country in the world,
+- [21:23.550] and yet it's... Denmark and Norway, Sweden.
+- [21:27.980] Even China does very well in the top 10.
+- [21:31.110] And so we can't blame it on size.
+- [21:33.500] We're big. China is really big.
+- [21:36.110] And we're going to be there. We're going be there soon.
+- [21:39.160] When the states run their education department,
+- [21:41.970] instead of some bureaucrat in Washington,
+- [21:43.820] it's going to make a very big —
+- [21:45.770] I think it's gonna make a great big difference.
+- [21:51.800] And I also, and this was a very easy one for me,
+- [21:54.550] I guess some people still fight it,
+- [21:56.360] because I saw on television today
+- [21:59.190] a Democrat congressman fighting so hard.
+- [22:03.100] I banned men from women's sports.
+- [22:05.020] Seems easy.
+- [22:12.180] And I signed an executive order making it official
+- [22:15.240] and the official policy of the United States
+- [22:17.700] that God created two genders, male and female.
+- [22:23.510] That's not too difficult.
+- [22:28.580] So there's so much to celebrate this Easter.
+- [22:31.270] This is really, I hope,
+- [22:32.570] going to be one of the great Easter's ever,
+- [22:35.070] because we have something going that
+- [22:37.460] I don't think this country has seen in 100 years.
+- [22:40.740] And as we gather with family and friends,
+- [22:42.720] we'll not forget the true source of our joy and our strength.
+- [22:45.970] America has put our trust in God.
+- [22:48.930] It will always be in God we trust.
+- [22:51.550] We will never change that.
+- [22:53.480] You know there's a movement to change it.
+- [22:55.080] It will not happen. We won't let that happen.
+- [22:58.870] Can you imagine a movement to change that, Robert?
+- [23:03.620] You're not happy about that when you hear that.
+- [23:05.750] He's getting angrier and angrier.
+- [23:08.450] We can get angry, too, can't we, huh?
+- [23:11.540] No, it's never going to change.
+- [23:12.870] And with God's help, we can overcome every challenge,
+- [23:17.120] triumph over every evil, and restore the spirit of faith
+- [23:21.180] in the United States for generations to come.
+- [23:24.800] We have a very simple slogan. Make America great again.
+- [23:28.520] And that's exactly what we're doing.
+- [23:30.340] We're making America great, again.
+- [23:32.740] And I like to say, I like add
+- [23:34.420] that I really believe greater than ever before.
+- [23:38.300] So, once again, let me wish you
+- [23:39.910] all a very joyful and blessed Easter.
+- [23:42.450] And I would now like to ask Pastor Jensen Franklin,
+- [23:47.720] a supporter, right from day one. He's been here, I think, Paula,
+- [23:51.650] from the first moment that we started.
+- [23:55.230] And who would have known that it was going to turn out this way.
+- [23:57.680] But the support I've had from evangelicals, Christians,
+- [24:02.280] and everybody, people of faith, really, has been incredible.
+- [24:06.100] I believe it's been unprecedented, actually,
+- [24:08.400] by a lot, not just by a little bit.
+- [24:11.810] So, Pastor Franklin, if you would, please come up.
+- [24:14.160] Thank you very much. Thank you for your support.
+- [24:16.900] Thank you.
+- [24:20.040] Pastor Franklin: Thank you. It makes me very proud.
+- [24:25.570] I was sitting there and I saw the card
+- [24:28.950] they gave me where I was sitting at table one
+- [24:32.830] from Eastern North Carolina originally.
+- [24:37.640] God called me to preach out in a cornfield and to be here.
+- [24:45.430] Being honored to represent ministers across the nation.
+- [24:52.710] Don't get an opportunity like this.
+- [24:55.430] We wanna say thank you.
+- [24:58.090] This is so, you don't have to do this.
+- [25:00.150] You're too busy to do these. But we wanna say, thank you,
+- [25:05.020] we see all that you do, all your family goes through.
+- [25:08.360] And we're so thankful God
+- [25:11.580] assigned an angel to stand between you and that bullet.
+- [25:20.330] God be with you.
+- [25:24.050] And Jesus walked into a room like this with religious leaders
+- [25:30.120] named Peter, James, John, Matthew, Mark, Luke.
+- [25:34.910] And some might have been on the back table
+- [25:37.660] and some might have been watching in a ministry somewhere
+- [25:41.000] that nobody's never heard of and you pastor 50 people
+- [25:44.220] and you do it with all of your heart for the glory of God.
+- [25:48.340] And Jesus walked into a meeting like this with,
+- [25:52.780] and he took a.
+- [25:54.780] Pot of water and he went from table to table
+- [25:59.410] washing the feet giving dignity and honor
+- [26:05.520] to everyone and also washing and cleansing
+- [26:09.610] and that's what this is all about this week
+- [26:12.600] and to have a president and his first lady
+- [26:15.590] make a statement like you made on social media about this week,
+- [26:20.310] you just don't understand how God is using you.
+- [26:23.980] There's a movement going on in our churches, Mr. President,
+- [26:26.940] and I think this group here can testify.
+- [26:29.510] We've never had attendance like we're having.
+- [26:31.920] We're running over. Our buildings are packed.
+- [26:34.760] God is moving in this nation mightily,
+- [26:38.770] and we're thankful for that.
+- [26:41.860] And if you're watching right now and you're broken
+- [26:44.020] and you are hurting and you'r lonely
+- [26:45.630] or maybe you're in a hospital room or you're wondering,
+- [26:49.370] And is there any more to life than this?
+- [26:54.060] You need Jesus. He's not a religion to us,
+- [26:57.970] and we don't do this for careers.
+- [27:01.690] But he bled and he died, and he rose from the dead
+- [27:05.180] to give us all that blessed hope.
+- [27:08.090] And I thank him for it. Lord, we love you.
+- [27:10.450] We thank you. We're so honored.
+- [27:13.350] And we pray for President Trump and First Lady Melania
+- [27:17.000] and their precious family.
+- [27:19.400] We do hold them up in this room tonight,
+- [27:22.070] And we believe that you're
+- [27:23.860] You have them in a bubble of protection.
+- [27:26.730] Keep them and watch over them.
+- [27:28.530] Give them wisdom. Give them favor.
+- [27:31.180] And let your goodness and your mercy
+- [27:35.190] reign in this nation like never before.
+- [27:37.840] And we'll give you the praise. Bless this food.
+- [27:40.120] Bless this evening. In Jesus' name we pray.
+- [27:43.120] Amen. Thank you.

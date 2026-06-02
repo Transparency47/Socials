@@ -1,0 +1,871 @@
+<!-- source: https://www.youtube.com/watch?v=k4MJL-UF7D0 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: k4MJL-UF7D0 -->
+<!-- date_published: 2025-10-27T18:12:07+00:00 -->
+<!-- date_accessed: 2026-06-02T01:12:18.328460+00:00 -->
+
+# Transcript: President Trump Gaggles with Press on Air Force One, Oct 27, 2025
+
+- [00:00.450] The President: Hello everybody.
+- [00:01.730] The Press: How you doing, Mr. President?
+- [00:03.020] The President: How're you? Bumpy weather way up in the air.
+- [00:07.060] A little bit bumpy.
+- [00:08.940] So what's the word? Do you have any questions.
+- [00:10.850] The Press: Sir, could you tell us a little bit about
+- [00:12.810] how the Lula meeting went yesterday?
+- [00:14.880] The President: Very good. We had a good meeting.
+- [00:16.640] We'll see what happens.
+- [00:17.900] I don't know if anything's going to happen, but we'll see.
+- [00:20.680] They'd like to do a deal. We'll see.
+- [00:22.510] Right now they're paying, I guess, 50 percent tariff.
+- [00:26.620] But we had a great meeting. It's happy birthday.
+- [00:28.590] I want to wish the President happy birthday. Okay?
+- [00:33.250] It's his birthday today, did you know that?
+- [00:35.640] He's a very vigorous guy actually,
+- [00:37.310] and I was very impressive.
+- [00:39.770] But today's his birthday, so happy birthday.
+- [00:42.160] All right. Would you let him know please.
+- [00:43.750] The Press: Mr. President,
+- [00:45.000] a couple more questions on tariffs.
+- [00:46.640] Secretary Bessent and Jamieson Greer.
+- [00:49.020] The President: He's right here. Where is he?
+- [00:51.040] He's right here. The handsome guy behind me.
+- [00:52.770] The Press: Hi, Mr. Secretary.
+- [00:54.000] You said you're near a framework to prevent --
+- [00:55.730] The President: Stand right over here.
+- [00:56.960] Wait, let me just give him a little room.
+- [00:59.750] He's doing a good job. No, get over here.
+- [01:02.350] We also have Marco here.
+- [01:04.850] The Press: Can you give us a status
+- [01:06.140] on the preliminary talks with the Chinese,
+- [01:08.070] and where that sets things up for Thursday's meeting?
+- [01:11.490] Secretary Bessent: So we had a very good meeting, Jamieson,
+- [01:13.910] myself, with our counterpart, the vice Premier,
+- [01:16.120] and we have a framework for President Trump,
+- [01:21.060] President Xi to decide on.
+- [01:23.740] And we discussed a wide range of things from tariffs,
+- [01:29.260] trade, fentanyl, substantial purchase
+- [01:33.280] of US agricultural products --
+- [01:35.700] The Press: And rare earths?
+- [01:36.900] Secretary Bessent: And rare earths.
+- [01:38.810] The President: But nothing has been agreed to yet.
+- [01:40.970] The Press: How do you feel?
+- [01:42.180] The President: We feel good. We feel good.
+- [01:44.160] I feel better that this guy's got nice broad shoulders.
+- [01:47.250] If the plane makes a big turn or something,
+- [01:49.250] I'm grabbing his shoulder.
+- [01:50.470] You know what? Why don't you stay over here.
+- [01:53.520] Marco, where are you?
+- [01:54.760] Come on over here. We'll go over here.
+- [01:57.380] I think you have some more room for yourself.
+- [02:01.350] I got a good team.
+- [02:02.560] This is the greatest team ever assembled.
+- [02:04.500] Do you know that if I were an elected President,
+- [02:07.790] in my opinion, every automobile company in the United States
+- [02:12.420] would be either bankrupt, or very close to it.
+- [02:15.190] And instead they're hitting record highs.
+- [02:17.110] Their stock is through the roof. You saw Ford,
+- [02:19.980] and you saw General Motors yesterday go up big.
+- [02:23.050] It's all because of tariffs. If it weren't tariffs,
+- [02:25.470] it'd be just like it's been for the last 30 years,
+- [02:28.680] where we lost about 52 percent of our automobile
+- [02:32.490] manufacturing business.
+- [02:34.220] In my opinion, whether it be now, or very shortly,
+- [02:38.360] if it weren't for what I've done as President,
+- [02:40.700] every automobile company in America would be bankrupt.
+- [02:44.880] Instead, they're doing phenomenal business.
+- [02:46.670] That's all because of tariffs. All right.
+- [02:49.170] The Press: On the flight yesterday you said,
+- [02:50.500] no, you're too social about the Canada Tariffs.
+- [02:53.260] Can you walk through when you expect those to take effect,
+- [02:56.070] and can I ask why --
+- [02:57.330] The President: No, no, we're going to let them know.
+- [03:01.360] Ronald Reagan loved tariffs. He used them sparingly,
+- [03:05.180] which he probably would make a mistake --
+- [03:07.560] He made a mistake in that.
+- [03:09.190] And again, I was the biggest fan of Ronald Reagan,
+- [03:11.700] but on finance, on trade, it wasn't his strong suit,
+- [03:17.810] but he liked tariffs.
+- [03:19.140] And they totally changed that to say that he didn't
+- [03:22.440] because they're catering to the Supreme Court.
+- [03:25.000] Because Canada has been ripping us off for a long time,
+- [03:28.080] and they're not going to rip us off anymore.
+- [03:29.830] Canada has been ripping us off for a long time.
+- [03:33.320] One of the most difficult countries
+- [03:34.870] to deal with has been Canada.
+- [03:36.380] As much as I love Canada itself, and the people of Canada,
+- [03:40.370] they've just had a lot of bad representatives.
+- [03:42.560] They did a fake ad yesterday. They were caught.
+- [03:45.190] The Ronald Reagan Foundation was the one that caught them,
+- [03:49.160] and it was totally the opposite of what they said.
+- [03:51.700] So I don't like that. That's dirty pool.
+- [03:54.450] You can't do that.
+- [03:56.070] And let me just tell you, they shouldn't have done it.
+- [03:59.290] They've apologized and they said we're going to take the ad down.
+- [04:02.290] Well, they did it, but they did it very late.
+- [04:04.460] They let it play for another two nights,
+- [04:06.790] and now they took that ad down.
+- [04:08.890] So I don't know when it's going to kick in, we'll see.
+- [04:11.860] But I don't really want to discuss it.
+- [04:14.050] Let's go.
+- [04:15.450] The Press: Mr. President, that was an ad run
+- [04:17.890] by a provincial government in Canada.
+- [04:19.330] Why are you mad with the federal government?
+- [04:20.730] The President: I don't care.
+- [04:21.940] Because whether it's provincial or Canada itself,
+- [04:24.220] they all knew exactly what the ad was.
+- [04:27.010] The Prime Minister knew, everybody knew.
+- [04:29.640] The Prime Minister knew what the end was, before I went on.
+- [04:31.670] The Press: Will you see him?
+- [04:32.880] In the effect, do you want to meet with him?
+- [04:35.040] The President: I don't want to meet with him, no.
+- [04:36.410] I'm not going to be meeting with him for a while, no.
+- [04:38.620] I'm very happy with the deal we have right now with Canada.
+- [04:41.160] We're going to let it ride.
+- [04:42.420] The Press: While we have secretary back in here,
+- [04:43.680] could we ask about the Fed search as well?
+- [04:45.570] Where are you on interviewing candidates for a new chair?
+- [04:48.080] Secretary Bessent: We're down to five.
+- [04:49.730] We're obviously traveling a lot now.
+- [04:52.180] We're going to continue.
+- [04:53.500] We're going to do a second round,
+- [04:54.930] and we hope to present a good slate to the President
+- [04:58.230] right after Thanksgiving. It'll ultimately be his choice.
+- [05:02.900] I think he's got some very strong --
+- [05:05.160] The President: I'm thinking about him for Fed,
+- [05:06.460] what do you think?
+- [05:07.730] The Press: Thinking about Secretary Bessent?
+- [05:08.990] The President: I'm thinking about Marco,
+- [05:10.230] I'm thinking about Jamieson.
+- [05:12.020] I'm thinking about a lot of people.
+- [05:14.660] The Press: I think Stephen Miller.
+- [05:15.880] The President: We do have a lot of --
+- [05:17.080] Stephen Miller. How about Stephen Miller?
+- [05:18.960] We have a lot of candidates that want the job.
+- [05:20.740] The Press: When do you think you'll make a decision?
+- [05:22.090] The President: I think it's the world's easiest job,
+- [05:24.420] but to get it right, you have to be very smart.
+- [05:26.700] And we have a person that's not at all smart
+- [05:28.390] right now, unfortunately.
+- [05:29.660] He should have been much lower, much sooner.
+- [05:31.890] That's why we call him Jerome -- too late -- Powell.
+- [05:36.860] The Press: Russia said this week that they tested a new missile
+- [05:40.240] that can go more than 8,000 miles.
+- [05:42.600] Is that saber -- rattling for you? What is that?
+- [05:46.050] The President: They know we have a nuclear submarine,
+- [05:48.530] the greatest in the world, right off their shores.
+- [05:50.620] So it doesn't have to go 8,000 miles.
+- [05:53.360] And they're not playing games with us.
+- [05:55.570] We're not playing games with them either.
+- [05:59.290] We test missiles all the time, but we do have a submarine,
+- [06:03.510] a nuclear submarine, we don't need to go 8,000 miles.
+- [06:08.140] And I don't think it's an appropriate thing for Putin
+- [06:11.160] to be saying either, by the way. You ought to get the war ended.
+- [06:14.960] A war that should have taken one week is now
+- [06:17.730] in its, soon, fourth year.
+- [06:20.060] That's what he ought to do instead of testing missiles.
+- [06:24.690] The Press: Mr. President, should the EU use frozen Russian assets
+- [06:29.260] to help pay for defense of Ukraine?
+- [06:31.300] The President: I don't know. This you have to ask EU.
+- [06:32.650] I'm not involved in that. That's up to EU.
+- [06:35.100] The Press: Are you considering additional sanctions
+- [06:37.050] against Russia?
+- [06:39.490] The President: You'll find out.
+- [06:40.980] The Press: So Mr. President shipbuilding has been
+- [06:42.680] a big part of your trade deals with both South Korea and Japan.
+- [06:46.910] Why is it so important to increase our shipbuilding
+- [06:49.930] to counter China?
+- [06:52.330] The President: Well, pretty obvious answer to that
+- [06:54.150] because we want more ships.
+- [06:55.580] We're going to be back in the shipbuilding industry.
+- [06:58.390] We have a lot of companies coming into our country now.
+- [07:02.250] They're going to start building. We have the shipyards available.
+- [07:05.520] In World War II,
+- [07:06.720] we were the biggest in the world in shipbuilding.
+- [07:08.620] And then over the years we went wokey and stupid and weak,
+- [07:12.980] and we started buying ships from everybody,
+- [07:15.720] and we lost that industry.
+- [07:18.230] But we'll get that industry back.
+- [07:19.600] We were the best at it,
+- [07:21.230] and we'll soon be very good at it, if not the best.
+- [07:24.490] The Press: What are you going to announce in Japan?
+- [07:26.090] Can you give us any preview?
+- [07:27.370] The President: We're going to just announce great friendship.
+- [07:29.660] I look forward to meeting the new Prime Minister.
+- [07:32.620] I hear phenomenal things. She was a great ally,
+- [07:35.900] and friend of Shinzo Abe, who was my friend,
+- [07:39.980] the former prime minister, and he was great.
+- [07:42.800] He was one of my best -- He was one of the best.
+- [07:44.710] And in the group, he was one of the best.
+- [07:46.790] Really best. And I know they were very close
+- [07:50.190] and I think philosophically they were close, which is good.
+- [07:53.000] It's going to be very good.
+- [07:54.210] That really helps Japan, and the United States.
+- [07:56.420] I think she's going to be great.
+- [07:57.880] The Press: Which CEOs are going to come to your dinner tomorrow?
+- [08:00.540] Can you say what companies --
+- [08:01.760] The President: I'd rather not say. You'll see tomorrow.
+- [08:04.410] The Press: Are you planning to sign the final deal
+- [08:06.320] on TikTok on Thursday when you meet --
+- [08:08.370] The President: We might. We might.
+- [08:10.780] That'll be one of the things we're discussing.
+- [08:12.600] Somebody reported, it's been approved recently.
+- [08:15.440] We got an original approval from President Xi.
+- [08:18.770] I expect we'll have an approval,
+- [08:20.090] but I'd rather wait till a couple of days to let you know.
+- [08:23.340] The Press: Is it part of the grand deal coming --
+- [08:25.040] The President: No, but it is something
+- [08:26.320] we're going to talk about.
+- [08:27.970] The Press: 75 percent tariffs on China,
+- [08:30.320] is the understanding from both countries
+- [08:32.980] that will remain regardless of --
+- [08:34.540] The President: No, I don't want to tell you
+- [08:35.810] what the understanding is
+- [08:37.010] because what we understood yesterday
+- [08:39.340] or two days ago or even today, is not going to be necessarily
+- [08:42.470] what it's going to be in two days.
+- [08:43.940] We're going to have a great talk.
+- [08:46.700] I have a lot of respect for President Xi.
+- [08:48.440] I like him a lot, he likes me a lot, I believe.
+- [08:51.390] And respects me, and I think he respects our country a lot.
+- [08:54.500] And we're going to have -- I think we're going to have
+- [08:56.470] a successful transaction for both countries.
+- [08:58.550] The Press: Sir, have you been briefed
+- [08:59.940] on the incident on the Nimitz,
+- [09:01.280] both the fighter jet and the helicopter?
+- [09:03.470] The President: Yeah, I've heard of that. Yeah.
+- [09:04.770] The Press: Do you know what happened there? Was that --
+- [09:06.480] The President: They're going to let me know pretty soon.
+- [09:07.930] I think they should be able to find out.
+- [09:09.930] It could be bad fuel.
+- [09:11.370] I mean it's possible it's bad fuel.
+- [09:12.650] Very unusual that that would happen to be --
+- [09:14.020] The Press: You don't think there was foul play or anything?
+- [09:15.370] The President: No, I don't think so.
+- [09:16.220] The Press: Security thing or anything.
+- [09:17.470] The President: No. I don't think so.
+- [09:18.680] They think it might be bad fuel. We're going to find out.
+- [09:20.330] Nothing to hide. We'll find out.
+- [09:21.750] The Press: Sir, has there been a snag in terms
+- [09:23.590] of the South Korea trade talks? How is that going?
+- [09:25.860] The President: No, I don't think so.
+- [09:27.130] Scott, is it?
+- [09:28.820] Secretary Bessent: No, there are just a lot of details
+- [09:30.400] to work out.
+- [09:31.670] It's a very complicated deal and I think we're very close.
+- [09:36.110] The Press: Do you expect to finalize that on Wednesday
+- [09:38.140] or will it maybe not quite be done?
+- [09:40.030] Secretary Bessent: I think not quite,
+- [09:41.970] but I think the overall framework
+- [09:44.440] is done for just crossing the Ts, dotting the Is.
+- [09:49.330] That's what ambassador of Korea's team does
+- [09:52.000] and nobody's better at it than they are.
+- [09:54.190] The President: You want to say something?
+- [09:55.490] Male Speaker: Sure. So with the Korea deal,
+- [09:57.860] there are a few parts to this.
+- [09:59.080] There's some national security -- related issues,
+- [10:01.270] which are really not in my real house
+- [10:03.770] and we have some pure trade issues
+- [10:05.090] where they've had some non --
+- [10:06.630] terror barriers to us for a long time
+- [10:08.910] and we've resolved a lot of those, so that's great.
+- [10:10.920] And then there's another piece
+- [10:12.210] which is really about investment going forward.
+- [10:15.100] The Koreans have a great plan to invest in US shipbuilding,
+- [10:17.550] even more than they've already done it,
+- [10:19.480] and so they're talking right now frankly about how to implement
+- [10:22.940] Korean investment in the United States
+- [10:24.790] in the best way to make sure that we're --
+- [10:26.830] The President: And especially towards shipbuilding.
+- [10:28.590] We're very much involved
+- [10:30.410] in getting the shipbuilding going again,
+- [10:32.360] which really we should have never lost.
+- [10:35.080] Years ago they lost that. Many decades ago.
+- [10:38.540] But we were number one.
+- [10:40.700] We'll be either number one or right up the round -- up.
+- [10:43.790] China's making a lot of ships. I take my hat off to them.
+- [10:47.410] Now they wouldn't if we had that situation
+- [10:49.540] where we charged, essentially, a fee,
+- [10:52.660] but we're not looking to hurt their shipbuilding in this.
+- [10:57.350] The Press: Have the Koreans asked for any EPs
+- [10:59.880] and guarantees after that immigration raid?
+- [11:02.360] The President: No, but you know how I feel.
+- [11:03.620] I was very much opposed.
+- [11:06.330] When they come in and they're making very complex machinery,
+- [11:09.130] equipment things, they're going to have to bring some people in,
+- [11:12.670] at least at the initial phase. In that case it was batteries.
+- [11:17.290] Batteries are very complex
+- [11:18.640] and they're actually very dangerous to make.
+- [11:20.860] You can't just pick people off an unemployment line and say,
+- [11:24.140] "We just opened up a $2 billion battery factory."
+- [11:27.960] So we've got an understanding. And this is with the world.
+- [11:34.540] By the way, this is not just with South Korea, this is --
+- [11:37.300] When they come into our country --
+- [11:38.520] We have a lot of factories being built by outside,
+- [11:41.350] by foreign interests.
+- [11:43.000] When they come in, some of these factories
+- [11:46.190] make very, very complex, very highly sophisticated equipment.
+- [11:51.030] They've got to bring people in with them for a period of time.
+- [11:54.140] They'll teach our people how to do it,
+- [11:55.960] but even for a fairly long period of time,
+- [11:57.900] they're going to need expertise to be successful.
+- [12:00.220] And we're going to let people know.
+- [12:01.710] I'm letting them know right now
+- [12:03.540] that when they come into our country,
+- [12:06.160] we can expect to see them bring in with them
+- [12:09.150] some very talented people
+- [12:10.710] that have been doing it for many years.
+- [12:12.540] They'll teach our people how to do it.
+- [12:13.970] Our people will be just as good as they are
+- [12:16.260] within a period of time and it'll be a phase -- out.
+- [12:19.250] But we want them to bring in experts
+- [12:22.140] and that's the way it is.
+- [12:23.630] The Press: Mr. President, what visa would they come under
+- [12:25.660] and for how long would that be?
+- [12:26.950] The President: We're going to have that set.
+- [12:28.200] We're doing a whole new plan for that.
+- [12:31.680] But what you can expect. Let's say they come in.
+- [12:34.580] For instance, we have massive number of chip companies.
+- [12:38.350] In particular, one the biggest by far
+- [12:40.190] and the biggest in the world coming in.
+- [12:42.540] You can't expect them to make unbelievably complex chips
+- [12:46.700] and computers and other things
+- [12:48.920] and pick people off the unemployment line
+- [12:50.800] that haven't worked in five years.
+- [12:54.410] So I want them to come in with talented people
+- [12:57.740] and it'll be a slow phase -- out.
+- [13:00.520] The Press: Did I hear you right when you said
+- [13:01.920] you were opposed to the way that raid in Georgia was hit?
+- [13:05.460] The President: I was opposed to getting them out.
+- [13:08.480] And in fact before they got out they were pretty well -- set.
+- [13:11.290] But before they got out I said they could say they went,
+- [13:14.580] they left and they're going to be coming back.
+- [13:16.320] The Press: Right. Did you see the results
+- [13:17.550] from the Argentina election? It looks like Milea's party --
+- [13:19.830] The President: Wow. What a great question that is.
+- [13:22.250] I love that question 'cause that was a big win in Argentina.
+- [13:25.800] I want to congratulate the victor
+- [13:28.460] and he was a big victor
+- [13:29.790] and he had a lot of help from us.
+- [13:32.760] He had a lot of help.
+- [13:34.100] I gave him a very strong endorsement
+- [13:37.900] and it was really unexpected to have a victory of that --
+- [13:41.810] Some people thought it would be hard to win
+- [13:44.250] and not only did he win, he won by a lot.
+- [13:46.580] So Argentina, that was a great thing
+- [13:49.000] and I give Scott and I gave James
+- [13:50.840] and everybody, Marco, a lot of credit for that
+- [13:53.180] because we are sticking
+- [13:55.420] with a lot of the countries in South America.
+- [13:58.240] We're focused very much on South America
+- [14:00.910] and we're getting a real strong handle in South America
+- [14:03.280] in a lot of ways,
+- [14:04.500] including the fact that we don't want their drugs.
+- [14:06.950] We don't want drugs coming into our country
+- [14:08.920] and you're seeing them.
+- [14:10.130] The Press: You suggested that you might not receive,
+- [14:11.810] maybe with the swaps plan
+- [14:13.780] or with the changes to beef purchases,
+- [14:16.110] depending on the result of that election.
+- [14:18.240] The President: Well, we'll see. We'll see.
+- [14:19.560] We're going to take care of our ranches one way though.
+- [14:21.580] We have two situations. The ranches, for 35 years,
+- [14:25.430] have done very poorly, the cattle people.
+- [14:28.140] They've done very, very poorly and now they're doing well
+- [14:30.630] but the price is up.
+- [14:32.230] So what I can see happening is we're going to take some beef
+- [14:34.990] because I have to get the price down.
+- [14:37.100] Most prices are down.
+- [14:38.400] If you look at energy and all the --
+- [14:40.350] I have things down, but beef is high
+- [14:43.010] and the cattle ranches are doing good.
+- [14:44.620] They backed me from day one. What we're going to do
+- [14:47.590] is we're going to make sure that they don't get hurt,
+- [14:50.100] but we have to also make sure that I get the prices down.
+- [14:53.020] I want to get the prices down like
+- [14:55.080] I did with eggs, like I did with lots of others.
+- [14:57.680] We had a couple of them where, when I first took over,
+- [15:00.520] eggs were double and quadruple what they were.
+- [15:03.260] That was Biden's fault.
+- [15:04.640] A lot of this is Biden's fault too
+- [15:07.130] and we're going to get the price of beef down
+- [15:10.460] and I'm going to make sure the cattle ranches don't get hurt.
+- [15:13.150] The Press: Mr. President,
+- [15:14.400] you talked about North Korea on your way here.
+- [15:16.830] Have you heard anything back from Kim Jong Un?
+- [15:18.590] The President: I haven't mentioned it.
+- [15:19.790] I haven't said anything.
+- [15:21.110] But I'd love to meet with him if he'd like to meet.
+- [15:24.070] I got along great with Kim Jong Un.
+- [15:25.830] I liked him. He liked me.
+- [15:27.660] If he wants to meet, I'll be in South Korea.
+- [15:29.400] The Press: So you'd extend your trip
+- [15:30.690] in order to try to meet?
+- [15:32.000] The President: Say again?
+- [15:33.200] The Press: Would you extend your trip in Asia
+- [15:34.670] in order to meet with him?
+- [15:35.910] The President: Well, I hadn't thought of it,
+- [15:37.120] but I think the answer would be, yeah, I would do that.
+- [15:41.080] Sure. It's our last stop, so it's pretty easy to do.
+- [15:45.290] Yeah, I would do that.
+- [15:46.520] The Press: When you do meet with him, sir --
+- [15:48.080] The President: With Kim Jong Un.
+- [15:49.300] The Press: Yes. What does the US have to offer me?
+- [15:50.850] The President: Well, I didn't say I was meeting with him,
+- [15:52.180] but if he'd like to meet, I'm around.
+- [15:53.900] I'll be in South Korea so I could be right over there.
+- [15:56.790] The Press: But what could the US offer him at this point?
+- [16:00.200] The President: Well, we have sanctions.
+- [16:02.780] That's pretty big to start off with.
+- [16:04.320] I would say that's about as big as you get.
+- [16:06.840] The Press: Anything as like an inducement to do a deal?
+- [16:08.490] The President: No, I don't know.
+- [16:09.710] I just had a good relationship with him.
+- [16:11.470] I would love to see him if he wants to,
+- [16:13.860] if he even gets this message. We haven't mentioned that.
+- [16:17.980] Anybody knows I'm going over there.
+- [16:19.900] If he'd like to meet, I'd love to meet him.
+- [16:22.180] The Press: Are you concerned about flights
+- [16:24.450] being halted at LAX
+- [16:25.980] due to shortages for air traffic controllers?
+- [16:28.890] Is there a way we can pay them?
+- [16:30.730] The President: Yeah, there is,
+- [16:31.990] but the Democrats should just do a simple extension.
+- [16:34.610] That's the best way. The Democrats are holding it up.
+- [16:38.020] They want $1.5 trillion for people that came out
+- [16:41.220] of prisons or illegal aliens that come into our country.
+- [16:44.760] We don't want to do that 'cause that will really hurt
+- [16:48.020] the healthcare that we have in our country and frankly,
+- [16:51.590] we'd like to see better healthcare period.
+- [16:54.610] We're not looking to do that.
+- [16:56.630] The Democrats can solve that problem
+- [16:58.390] with air traffic control.
+- [16:59.590] All they have to do is say, "The country is open."
+- [17:03.180] We only need five votes. The Republicans are with us.
+- [17:05.960] We only need five votes. So let's see what happens.
+- [17:08.530] I would imagine that gets taken care of,
+- [17:10.770] not only the controllers, but other people too.
+- [17:15.420] The Press: How is your relationship
+- [17:16.690] with Elon these days and is there
+- [17:17.980] (inaudible)
+- [17:19.180] The President: I think it's good. You saw that.
+- [17:20.530] During Charlie's beautiful tribute, Elon came up.
+- [17:24.160] It's good with Elon. I like Elon.
+- [17:25.760] I've always liked Elon. Elon is good.
+- [17:27.980] The Press: Have you talked to him since the memorial?
+- [17:33.120] The President: On and off a little bit.
+- [17:34.370] Yeah. Very little. Nothing much.
+- [17:36.200] Look, he's a nice guy and he's a very capable guy.
+- [17:40.880] I've always liked him. He had a bad spell.
+- [17:43.170] He had a bad moment.
+- [17:45.540] It was a stupid moment in his life, very stupid.
+- [17:48.150] I'm sure he'd tell you that.
+- [17:49.490] But I like Elon and I suspect I'll always like him.
+- [17:53.530] The Press: Sir, what are your thoughts
+- [17:54.760] on the continued protests
+- [17:56.360] outside immigration centers in -- there is in Chicago?
+- [17:59.790] The President: Well, when people come into our country illegally,
+- [18:02.710] especially in terms of speed, the very bad ones, murderers --
+- [18:06.460] Because we've had murderers
+- [18:07.740] came in through the Biden administration.
+- [18:10.050] We have very tight borders now, but we had open borders.
+- [18:14.280] Incredibly we had open borders. What were they thinking?
+- [18:18.110] But we have murderers. Over 11,000 murderers came in,
+- [18:21.140] many of them murdered more than one person.
+- [18:23.420] We want those people out.
+- [18:25.100] We want people that were in prisons,
+- [18:27.510] we want them to go back to their prison, not our prison.
+- [18:30.460] We want them out, and we'll get them out, get them all out.
+- [18:33.510] It was really a terrible mistake that was made.
+- [18:37.690] When you think of it, so much of our time
+- [18:40.560] is spent on that subject, and it's a big subject,
+- [18:43.500] because it's probably 20 or 25 million people,
+- [18:46.130] the real number, and of the 25 million people,
+- [18:48.920] it's millions of people should not be here.
+- [18:52.160] Now, all of them shouldn't be here if they came in illegally,
+- [18:55.100] but we have to get the criminals out.
+- [18:58.240] Washington D.C. is doing great. Memphis is starting to do great,
+- [19:01.650] we just started there two weeks ago.
+- [19:04.140] Any place we touch is going to do well.
+- [19:06.550] If I were a governor, I'd say, "Please, get your people in.
+- [19:10.610] Whether it's National Guard or the military, get them in."
+- [19:14.020] And as you know, we've been winning those cases.
+- [19:16.520] The Press: Is there a deadline for San Francisco to get their
+- [19:19.490] (inaudible)
+- [19:20.960] The President: Yeah, I'd like to do it,
+- [19:22.300] but I have a lot of very important people
+- [19:25.790] that are really into San Francisco
+- [19:27.630] that are really trying to do it themselves.
+- [19:30.160] I said, "We can do it better,"
+- [19:32.350] because we have a strong group, a tough group,
+- [19:34.650] a group that has powers that other people don't have.
+- [19:37.210] Locally you don't have the powers
+- [19:38.770] that the federal government has,
+- [19:40.530] and we can do a better job of it faster.
+- [19:43.380] But I listened to a few of the people.
+- [19:46.630] Jensen, who's fantastic, from Nvidia as you know,
+- [19:50.180] and Mark from (inaudible)
+- [19:52.750] magazine among a lot of other things, right?
+- [19:54.990] He's a good man.
+- [19:56.560] And they would love to give it a shot,
+- [19:58.560] and I say, "Go ahead, do it."
+- [20:00.750] And I would have done that with Chicago,
+- [20:02.270] but Chicago is very far along the way.
+- [20:05.540] We have to do something with that.
+- [20:07.740] I have a lot of friends influential in Chicago.
+- [20:10.840] If they call me, maybe I do the same thing.
+- [20:12.880] But we have to save Chicago immediately.
+- [20:15.910] We could do that pretty easily, but we have to get in quickly.
+- [20:18.800] The Press: (inaudible) back to Argentina, quickly.
+- [20:20.130] The President: Yeah.
+- [20:21.330] The Press: What do you think the state
+- [20:22.590] of the fiscal situation is there now?
+- [20:24.670] Do you think you'll have to do another deal?
+- [20:26.290] The President: Well, we have the all-time expert right here.
+- [20:28.260] I think right now we've made a lot of money
+- [20:30.130] based on that election, because the bonds have gone up,
+- [20:33.120] their whole debt rating has gone up.
+- [20:35.050] That election made a lot of money for the United States.
+- [20:38.830] Now we're not in that for money per se,
+- [20:40.750] but if you look at the value of the bonds, the debt --
+- [20:43.790] Scott, go ahead.
+- [20:45.130] Secretary Bessent: Yeah, I think
+- [20:46.380] the great victory in this election,
+- [20:48.040] President Milei, I think, is going to expand his coalition,
+- [20:53.840] and they have some big refinancings next year,
+- [20:57.000] but the Argentinian people have spoken.
+- [21:01.430] They know that the U.S. is their ally thanks to President Trump,
+- [21:05.020] we're behind them,
+- [21:06.330] and that they're going to be able to fix their fiscal
+- [21:11.190] and keep on the road.
+- [21:13.100] He's working against a hundred years of bad policies,
+- [21:17.400] and he's going to break them
+- [21:18.750] thanks to support for the United States.
+- [21:20.470] (inaudible)
+- [21:21.670] The President: And we're helping other South American countries
+- [21:23.420] also, as you know.
+- [21:24.660] The Press: Will they need more support,
+- [21:25.910] or would you consider it, if they need it?
+- [21:27.320] The President: We might.
+- [21:28.580] Yeah, we would consider it, I think.
+- [21:30.390] We think they'll be in good shape.
+- [21:31.660] Secretary Bessent: Yeah, we think the market's
+- [21:33.170] going to do it from here, now that he's gotten over this.
+- [21:35.800] As I always said, this was a bridge.
+- [21:38.020] We've bridged him thanks to President Trump's support.
+- [21:40.860] He did better than anyone ever expected.
+- [21:43.030] The Peronists said, "It wasn't a fair election,
+- [21:45.900] because we were running against Donald Trump too."
+- [21:48.780] And now I think the market is going to take care of itself,
+- [21:52.700] and it's going to have a lot of confidence in his policies
+- [21:55.210] and the way forward.
+- [21:56.490] The President: The polls were very wrong on that election.
+- [21:59.320] I mean, the polls really got it wrong.
+- [22:01.050] That was an election they said was going to be lost,
+- [22:04.030] and not only was it won, but it was won by a lot.
+- [22:07.930] And maybe we did help. I hope we helped.
+- [22:10.560] The Press: Sir, for you or Secretary Rubio.
+- [22:13.200] Over the weekend, Israel assassinated a military official
+- [22:16.940] of the Palestinian Islamic Jihad movement.
+- [22:19.410] Does that violate the ceasefire law between Israel and Hamas,
+- [22:22.550] or are they treated as a separate group?
+- [22:24.530] Secretary Rubio: You talking about the strike
+- [22:25.820] against the Palestinian Jihad individual?
+- [22:27.240] The Press: Yes.
+- [22:28.480] Secretary Rubio: Yeah, look, Israel didn't surrender
+- [22:29.910] its right to self -- defense.
+- [22:31.750] Obviously the ceasefire is based on obligations on both sides.
+- [22:35.050] By the way, we'd also like to see
+- [22:36.280] Hamas speed up the return of hostage bodies.
+- [22:39.430] We still have 13 hostages, two Americans included.
+- [22:42.510] But we don't view that as a violation of the ceasefire.
+- [22:44.850] They have a right (inaudible)
+- [22:46.070] there's an imminent threat to Israel,
+- [22:47.890] and all the mediators agree with that.
+- [22:49.670] The President: How transparent is the Trump administration?
+- [22:53.420] You got Scott, you got Jamieson, you got Marco.
+- [22:57.800] We're not saying, "Please don't ask this question."
+- [23:00.780] You can ask anything you want.
+- [23:02.600] There's never been anything like this.
+- [23:04.310] Do you agree with that?
+- [23:05.550] The Press: Well, I just want to ask a clarifying question
+- [23:07.480] from my earlier thing. You said five fed candidates.
+- [23:10.540] That's Waller (inaudible)
+- [23:13.260] Warsh, Rieder, and Bowman, right?
+- [23:17.310] Secretary Bessent: Rieder. Rieder. And Bowman.
+- [23:21.790] The Press: Bowman. (inaudible)
+- [23:23.660] surprise six occasionally (inaudible)
+- [23:25.980] The President: Well, he likes what he's doing to
+- [23:27.380] (inaudible)
+- [23:28.700] I don't think you could --
+- [23:29.980] You couldn't pull him out of there no matter what.
+- [23:32.620] It's like Caroline. How's Caroline doing?
+- [23:34.590] Good? Would you say she's doing good, or just okay?
+- [23:36.700] I think she's doing.
+- [23:38.090] The Press: She's been very gracious
+- [23:39.330] (inaudible)
+- [23:40.530] The President: She's doing very good.
+- [23:41.840] The Press: (inaudible) back here.
+- [23:42.830] Secretary Bessent: Yes. The President: Yes.
+- [23:44.060] Without her we wouldn't be here right now. She's doing great.
+- [23:46.380] The Press: When do you think you'll make a decision on
+- [23:47.670] (inaudible)
+- [23:48.870] The President: I'd say maybe by the end of the year.
+- [23:51.660] Secretary Bessent: Yeah, before Christmas. Right around --
+- [23:53.300] The President: I think by the end of the year,
+- [23:54.700] early next year. But by the end of the year.
+- [23:56.310] We want to get Too -- Late out as soon as possible.
+- [23:59.860] We want to be too early with Too-Late.
+- [24:02.570] The Press: Sir, Steve Bannon said in a recent interview
+- [24:04.690] that there could be plans for you to be able to run
+- [24:07.210] and potentially win a third term in 2028.
+- [24:09.730] Is that something you'd be willing to challenge
+- [24:11.450] (inaudible)
+- [24:12.660] The President: Well, I haven't really thought about it.
+- [24:14.730] We have some very good people, as you know,
+- [24:17.500] but I have the best poll numbers I've ever had.
+- [24:20.800] I mean, I just solved eight wars, and a ninth is coming.
+- [24:25.030] I believe Russia -- Ukraine will happen.
+- [24:28.310] But we just left, and when you look at the treaty
+- [24:31.810] we just did, that was a war that was --
+- [24:34.460] Thousands of people were already shot at the border,
+- [24:38.050] and when you look at what we just did, was pretty amazing.
+- [24:41.360] Pretty amazing. We got a lot of good credit,
+- [24:43.870] and I really have to thank Malaysia for that,
+- [24:46.780] because the prime minister
+- [24:48.260] and everybody really helped get the two countries together.
+- [24:51.620] But it was quite a great peace treaty.
+- [24:56.120] But that was one of eight, and makes me feel good.
+- [25:01.640] It's millions of people that we save.
+- [25:03.550] I saved the lives of millions of people.
+- [25:06.000] That's what's important. Yeah.
+- [25:07.620] The Press: Who are the very good people?
+- [25:10.520] The President: They are good people.
+- [25:11.740] The Press: You said that for 2028,
+- [25:13.010] they're very good people.
+- [25:14.230] The Press: Who are they?
+- [25:15.450] The President: Well, we have great people.
+- [25:16.660] Well, I don't have to get into that,
+- [25:17.960] but we have one of them standing right here.
+- [25:20.690] We have J.D. Obviously the vice President is great.
+- [25:24.590] I think Marco is great.
+- [25:26.910] I'm not sure if anybody would run against us.
+- [25:29.820] I think if they ever formed a group,
+- [25:31.230] it would be unstoppable.
+- [25:33.520] I really do, I believe that. I would love to do it.
+- [25:37.690] And I have my best numbers ever. It's very terrible.
+- [25:40.090] I have my best numbers, if you read it.
+- [25:42.990] The Press: Not ruling out --
+- [25:45.110] The President: Am I not ruling it out?
+- [25:46.500] You'll have to tell me.
+- [25:47.710] All I can tell you is that we have a great group of people,
+- [25:50.990] which they don't.
+- [25:52.540] They have Jasmine Crockett, a low IQ person.
+- [25:55.080] They have -- AOC's low IQ. You give her an IQ test --
+- [26:00.870] Have her pass the exams that I decided to take
+- [26:05.160] when I was at Walter Reed.
+- [26:07.160] Those are very hard. They're really aptitude tests,
+- [26:10.810] I guess in a certain way, but their cognitive tests.
+- [26:14.050] Let AOC go against Trump.
+- [26:16.720] Let Jasmine go against Trump. I don't think Jasmine --
+- [26:20.140] The first couple of questions are easy.
+- [26:21.760] A tiger, an elephant, a giraffe, you know.
+- [26:24.810] When you get up to about five or six,
+- [26:26.550] and then when you get up to 10 and 20 and 25 --
+- [26:30.430] They couldn't come close
+- [26:31.640] to answering any of those questions.
+- [26:33.530] The Press: (inaudible)
+- [26:34.760] Walter Reed mentioned advanced medical imaging.
+- [26:37.940] Did you get an MRI? Can you tell us what that was?
+- [26:40.020] The President: I did, I got an MRI. I was perfect.
+- [26:41.450] Yep. I gave you the full results.
+- [26:44.250] We had an MRI in the machine, the whole thing,
+- [26:50.590] and it was perfect, yeah.
+- [26:51.820] The Press: Yeah. Can you say what in particular they were?
+- [26:53.810] The President: You could ask the doctors.
+- [26:55.720] In fact, we have doctors traveling with us,
+- [26:58.270] but I think they gave you a very conclusive --
+- [27:00.830] Nobody has ever given you reports like I gave you.
+- [27:04.480] And if I didn't think it was going to be good either,
+- [27:06.810] I would let you know negatively
+- [27:09.160] I wouldn't run, I'd do something.
+- [27:10.730] But the doctor said some of the best reports for the age,
+- [27:15.660] some of the best reports they've ever seen.
+- [27:17.590] The Press: One theory on how you might try to serve a third term
+- [27:21.300] is that you could run as the vice President.
+- [27:23.140] The President: Yeah, I'd be allowed to do that.
+- [27:24.420] The Press: Is it the White House or the White House
+- [27:26.040] Councils or your legal position, I guess, (inaudible) do that?
+- [27:28.870] The President: No. You'd be allowed to do that,
+- [27:30.130] but I wouldn't do that. I think --
+- [27:31.340] The Press: You're ruling that out.
+- [27:32.590] The President: -- it's too cute.
+- [27:33.830] Yeah, I would rule that out because it's too cute.
+- [27:35.750] I think the people wouldn't like that.
+- [27:37.250] It's too cute. It wouldn't be right.
+- [27:41.210] The Press: A golf -- related question, do you mind?
+- [27:45.080] You're personally the most difficult shot for you in golf?
+- [27:49.800] The President: You mean right now?
+- [27:51.120] The Press: Well, yeah. How will you play it?
+- [27:53.050] The President: The most difficult shot?
+- [27:54.520] It used to be chipping, but I become a very good chipper.
+- [28:00.960] I hit them all pretty good. I'm a pretty good golfer.
+- [28:04.130] I won 38 club championships.
+- [28:06.310] That's pretty good. Pretty much I hit.
+- [28:10.280] I'm very solid, very consistent, pretty long.
+- [28:14.140] I mean, I hit the ball pretty long.
+- [28:15.980] I play with Gary Player.
+- [28:17.270] You know Gary's 90 and he shot 70
+- [28:20.140] with me the last time we played, which is pretty amazing.
+- [28:23.140] From 60 is pretty good. Putting is pretty good.
+- [28:27.110] Yeah. I'd say putting used to be the best,
+- [28:30.500] but I'd say putting is pretty good.
+- [28:32.820] The Press: Sir, can I ask just one more trade question.
+- [28:34.630] There were some tweaks to the Vietnam deal
+- [28:37.390] where they're going to have some zero --
+- [28:38.940] tariff items that can come into the United States.
+- [28:41.580] Why was that change made?
+- [28:42.980] The President: I don't know.
+- [28:44.530] The Press: There's a handful of things like coffee,
+- [28:46.090] et cetera,
+- [28:47.320] the type of stuff we don't make in the United States or pro.
+- [28:49.590] The President: No, we don't make.
+- [28:50.860] The Press: (inaudible) we can. So it makes sense
+- [28:52.650] if people are going to do a deal with us,
+- [28:54.310] we'll give them a good deal there.
+- [28:55.510] But overall 20 percent on Vietnam.
+- [28:58.110] The President: And we want to get coffee down a little bit.
+- [29:00.310] The Press: So just to clarify, technically,
+- [29:01.660] that was stuff that was at 20 and now will be brought to zero.
+- [29:04.970] The Press: Well, it's just brought
+- [29:06.180] to whatever congressional level of tariff there is, right?
+- [29:08.950] I mean, we have a huge deficit with Vietnam.
+- [29:12.400] And so they've taken down all their tariffs
+- [29:14.110] to zero on everything.
+- [29:15.370] The President: All gone.
+- [29:16.590] The Press: All the non-tariff barriers gone.
+- [29:17.900] They're going to accept all our autos,
+- [29:19.210] all our standards, all of that. We have 20 percent on them.
+- [29:21.360] The President: Which by the way, people said impossible to get.
+- [29:22.950] The Press: They did say impossible.
+- [29:24.240] The President: They're all gone. The Press: Yep, yep.
+- [29:25.580] And so we just have a few items like that
+- [29:27.420] that we can't grow or extract from the ground in the United --
+- [29:29.750] certain spices, right, if we don't grow in America,
+- [29:31.460] that kind of thing.
+- [29:32.700] The Press: How worried are you still about the risk of trans --
+- [29:34.620] shipping through Vietnam from China?
+- [29:36.760] Male Speaker: So part of the deal,
+- [29:38.580] they've agreed to a duty evasion agreement with us.
+- [29:41.920] And if we catch them doing it,
+- [29:43.170] we can charge additional 40 percent.
+- [29:44.610] Right. The Press: On top of the 20.
+- [29:45.900] Male Speaker: That's right. Yeah.
+- [29:47.180] And that's an executive order that's already in place.
+- [29:49.570] The President: You guys have a very interesting couple of days.
+- [29:52.320] We have Japan and then we have South Korea,
+- [29:55.460] but we have China coming.
+- [29:57.020] It's going to be very interesting.
+- [29:58.820] I have a lot of respect for President Xi
+- [30:00.700] and we are going to --
+- [30:02.890] I think we're going to come away with the deal.
+- [30:04.850] But I really feel good.
+- [30:08.190] Our country's doing so well economically.
+- [30:10.400] It's doing so incredibly well.
+- [30:12.430] The Democrats should let it open.
+- [30:14.260] I guess they don't do that because it's doing so well.
+- [30:16.190] It's too bad.
+- [30:17.420] But on the macro scale,
+- [30:20.520] it's not having that kind of an effect.
+- [30:22.620] We just want people to get paid. We think it's very unfair.
+- [30:25.430] And how about the man that put up $130 million
+- [30:29.700] to make sure our military got paid?
+- [30:31.570] The Press: You won't tell who he is?
+- [30:32.840] The President: I won't tell you. I won't tell you.
+- [30:34.120] The Press: Isn't it (inaudible)?
+- [30:35.380] The President: But this is a person that called me
+- [30:36.720] that said,
+- [30:37.920] "Sir, I'd like to make a contribution of any difference
+- [30:41.580] needed for the United States military."
+- [30:43.430] I said, "I don't know. That could be a big number."
+- [30:46.340] And we worked it out. It was about $130 million.
+- [30:48.820] And he wrote a check for $130 million
+- [30:52.250] because he's an unbelievable patriot.
+- [30:54.510] And that's what it's all about.
+- [30:55.830] So we're going to have a good time over the next two days.
+- [30:58.760] Get a little rest.
+- [31:00.000] The Press: (inaudible) World Series at?
+- [31:02.360] The President: I haven't been watching it too much,
+- [31:04.010] the World Series. No.
+- [31:05.600] I'm disappointed they didn't put Pete Rose in.
+- [31:08.510] I said, "Put Pete Rose in before he dies.
+- [31:10.660] He had over 4,000 hits." They didn't do it.
+- [31:14.040] And with all the gambling you see now,
+- [31:15.820] I mean, give me a break. They didn't put Pete Rose in.
+- [31:18.740] I asked the commissioner,
+- [31:19.960] "Put Pete Rose in, Commissioner,"
+- [31:21.870] long before he died. Like a year before he died.
+- [31:25.180] They didn't get it done. Should have gotten it done.
+- [31:29.890] Pete Rose was a great baseball player.
+- [31:32.620] The Press: One quick one, just you said yesterday
+- [31:34.460] that you might invite China to Mar --
+- [31:35.690] a -- Lago.
+- [31:36.910] The President: Yeah. The Press: When would that be?
+- [31:38.410] The President: Well, sometime after --
+- [31:39.790] We pretty much agreed that I'll be going to China.
+- [31:42.860] The Press: When is that?
+- [31:44.150] The President: In the earlier part of the year.
+- [31:45.690] The Press: Okay.
+- [31:46.930] The President: And President Xi will be coming
+- [31:48.500] into maybe Washington or Palm Beach
+- [31:50.380] or someplace sometime after that.
+- [31:52.700] The Press: Vietnam said that you accepted
+- [31:54.180] an invitation there as well. Do you plan on visiting Vietnam?
+- [31:56.350] The President: Well, he invited me.
+- [31:57.550] If I can, I will.
+- [31:58.750] We have a good relationship with Vietnam.
+- [32:01.190] Look, they've made a lot of money
+- [32:02.970] with the United States over the years with Presidents.
+- [32:05.820] Said, "Really didn't know what they were doing."
+- [32:08.830] But now as you know, Vietnam is not charging us tariffs
+- [32:11.820] and that's a big step.
+- [32:13.730] And based on that, I would. That's a big move.
+- [32:16.510] The Press: For Friday, Ambassador Greer launched a 301
+- [32:18.640] on whether China reneged on its phase one deal.
+- [32:21.630] Is that part of these talks? Would you pause that?
+- [32:24.300] How connected is that to the Thursday talks to talks to
+- [32:26.070] (inaudible)?
+- [32:27.270] The President: It may be a part of the talk,
+- [32:28.530] but it may be a part of just the negotiation.
+- [32:30.760] The Press: That was a separate deal from before
+- [32:32.490] and there's a lot of view in the United States
+- [32:34.830] that they didn't keep aspects of that deal.
+- [32:36.330] So we're just looking into it as --
+- [32:39.000] That's continuing, but we're really focused on --
+- [32:40.640] The President: If all works out well,
+- [32:41.860] I'm sure they'll be able to talk us out of it.
+- [32:43.450] You agree?
+- [32:44.680] Male Speaker: We'll see. The President: I think so.
+- [32:45.910] Male Speaker: It's up to you, sir.
+- [32:47.160] The President: I have a feeling they'll talk us out of it.
+- [32:48.760] The Press: You long said that you have a great relationship
+- [32:51.180] with Xi Jinping. You really get along.
+- [32:52.700] The President: Yeah.
+- [32:53.930] The Press: Could you just elaborate on that?
+- [32:55.310] What about your relationship is so great and what about him
+- [32:57.300] (inaudible)?
+- [32:58.500] The President: I just like it.
+- [32:59.700] Obviously, that was hurt pretty badly by COVID
+- [33:04.650] when COVID came in through Wuhan.
+- [33:07.030] Everybody knows that.
+- [33:08.280] I always said, and I said it right from the beginning.
+- [33:11.220] So that had an impact but an impact for a lot of reasons.
+- [33:14.600] Number one, we didn't get to speak as much
+- [33:16.510] because we're all busy getting out of that nightmare.
+- [33:20.210] But no, I think I have a very good relationship,
+- [33:23.070] as good as anybody.
+- [33:24.270] And I would say that likewise with him.
+- [33:27.080] Thank you very much everybody.
+- [33:28.500] The Press: Thank you, Mr. President.
+- [33:29.960] Appreciate it.

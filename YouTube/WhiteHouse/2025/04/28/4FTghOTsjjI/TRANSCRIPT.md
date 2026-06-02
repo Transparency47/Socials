@@ -1,0 +1,378 @@
+<!-- source: https://www.youtube.com/watch?v=4FTghOTsjjI -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 4FTghOTsjjI -->
+<!-- date_published: 2025-04-28T20:40:30+00:00 -->
+<!-- date_accessed: 2026-06-02T02:51:16.485553+00:00 -->
+
+# Transcript: President Trump Participates in a Visit of the 2025 Super Bowl Champions - The Philadelphia Eagles
+
+- [00:00.400] Great job everybody. Oh, you must be
+- [00:02.800] big,
+- [00:08.920] huh? You get the hat.
+- [00:13.440] Well, thank you very much everybody.
+- [00:15.120] It's an honor to be with this incredible
+- [00:17.920] group of champions. Great team. And
+- [00:20.640] we're thrilled to welcome everyone to
+- [00:22.880] the White House, special place, and to
+- [00:26.000] celebrate Super Bowl 59 champion, the
+- [00:28.880] Philadelphia Eagles.
+- [00:30.860] [Applause]
+- [00:35.920] And it's uh that was a special day. That
+- [00:38.480] was a big one. But the uh Eagles have
+- [00:41.760] turned out to be an incredible team, an
+- [00:44.360] incredible group with a fantastic coach
+- [00:48.079] and coaches and having you at the White
+- [00:51.440] House is very, very special and
+- [00:53.920] important and we appreciate you being
+- [00:56.160] here. And I think what we're going to do
+- [00:58.399] is on occasion when we have a really
+- [01:01.280] great championship team, we bring them
+- [01:03.760] over to the Oval Office after we're
+- [01:06.080] finished and they get a chance to look
+- [01:08.320] at some incredible real estate and some
+- [01:12.479] we have a little a little present for
+- [01:14.560] each and every one of them and it's a
+- [01:17.119] terrific present. So, we're going to do
+- [01:18.720] that for this team. Okay? And we'll do
+- [01:20.960] that. We'll walk down to the Oval Office
+- [01:23.320] and who knows, one of them may soon be
+- [01:27.280] sitting in that seat. You know, they
+- [01:29.759] become famous and we sure as hell know
+- [01:31.680] they're good athletes now. They have to
+- [01:33.200] have some other ability and they do. And
+- [01:35.759] we'll see what happens. But I especially
+- [01:37.680] want to recognize the Eagles owner,
+- [01:39.920] chairman, and CEO, Jeffrey Lur. Where is
+- [01:42.920] Jeffrey? Jeffrey, where is Jeffrey?
+- [01:46.240] Where is he?
+- [01:55.040] He's my neighbors,
+- [01:57.799] right? And he's a good neighbor as well
+- [02:01.119] as your general manager, Howie Roseman.
+- [02:03.840] Howie
+- [02:12.480] and your spirited coach Nick
+- [02:15.400] Serani. Nick, you are spirited.
+- [02:20.879] Thank you, Nick.
+- [02:23.360] Well, you know, a lot of people they
+- [02:24.800] doubted. Well, they always doubt
+- [02:26.640] championship teams and then they become
+- [02:29.360] championship teams. They never doubt
+- [02:30.879] them again. But, uh, Nick proved the
+- [02:34.080] doubters wrong and brought the Vince
+- [02:36.400] Lombardi Trophy back to Philadelphia and
+- [02:39.239] convincingly. We also have to recognize
+- [02:41.680] the Eagles head of security. You know,
+- [02:44.160] this is a guy they say he loves Trump.
+- [02:47.360] This is a guy and I had Seaquan give him
+- [02:50.160] a big beautiful hat last night because
+- [02:53.120] I've been hearing about this guy. He
+- [02:54.720] likes Trump. His name is Dominic
+- [02:58.000] Deandro. Big Dom and he's sort of a
+- [03:01.840] legend.
+- [03:04.080] Come here, Don. Come here.
+- [03:06.800] Say a few words. I I hear this guy's
+- [03:09.519] just Come here. I just like to say thank
+- [03:11.920] you. We're honored to be here. Thank
+- [03:13.760] you, uh, President Trump. And that's it.
+- [03:16.000] Go birds. Thank you
+- [03:17.720] guys. Thank you, Zach. Thank you. Thank
+- [03:19.920] you.
+- [03:22.000] He's a big part of the team. That's what
+- [03:24.239] I hear. But I want to thank also some
+- [03:27.200] incredible talent and representatives
+- [03:29.760] for our country. Uh Pam Bondi is here.
+- [03:32.480] She's doing such a great job on
+- [03:34.480] television this morning, too, Pam. She's
+- [03:37.319] incredible. Lori Chavez Darmer,
+- [03:41.200] Secretary of Labor. Scott Turner, Hood.
+- [03:45.920] Hello, Scott. You're doing good. I want
+- [03:49.760] to thank you all for being here. Senator
+- [03:51.519] Dave McCormack. David, thank you. Good.
+- [03:54.560] Come on up here, David. Come on.
+- [03:57.720] Representatives
+- [03:59.799] Robnahan, Brian Fitzpatrick, Ryan
+- [04:03.640] McKenzie, Dan Muer, Burgess Owens, Lloyd
+- [04:08.599] Smucker, GT Thompson, and Jeff Van Drew.
+- [04:12.560] And we have a lot of other congressmen
+- [04:14.640] here, but I have no idea who they are
+- [04:16.799] because I can't see you and all these
+- [04:18.840] people, but I apologize. See, they'll
+- [04:21.600] never speak to me again now. They'll be
+- [04:23.840] angry, but I just don't know who you
+- [04:25.759] might be right
+- [04:27.080] now. As well as Pennsylvania Attorney
+- [04:30.240] General Dave Sunday. Thank you, Dave.
+- [04:33.199] Good job,
+- [04:34.360] Dave. And Treasurer Stacy Gered. Thank
+- [04:37.759] you very much. Thank you, Stacy. have a
+- [04:40.560] lot of a lot of great politicians out
+- [04:43.080] there. For Eagles fans, the road to this
+- [04:46.080] day has been long, but the journey has
+- [04:48.639] been well worth it. I would say Jeffrey,
+- [04:51.520] that was a great journey for you, huh?
+- [04:53.360] It was great for you and for everybody
+- [04:55.199] else. And it's uh look at the size of
+- [04:57.840] this guy. This
+- [04:59.240] guy, you know, when we walked up, I
+- [05:01.520] said, you know, you just stay here a
+- [05:03.280] little bit. I'll walk up in front of you
+- [05:04.800] cuz I didn't want to get anywhere near
+- [05:06.400] the size of you.
+- [05:08.880] And and the greatness as a player, too,
+- [05:10.880] that I can tell you. Two years ago, the
+- [05:13.520] Eagles came incredibly close to football
+- [05:16.240] immortality in Super Bowl 57. You
+- [05:19.039] remember that game? But after a hard
+- [05:21.280] fought game, you suffered a really
+- [05:23.039] heartbreaking loss to the Kansas City
+- [05:25.280] Chiefs by just three points. It looked
+- [05:27.759] like you had the game. This past year,
+- [05:30.000] the Eagles were determined to get it
+- [05:31.919] back. and get it back. They did. The
+- [05:34.320] season started off slow, but you soon
+- [05:37.199] caught fire with your great coach
+- [05:38.960] inspiring you and you got the ball to
+- [05:41.520] your superstar running back who I met
+- [05:44.160] yesterday. And I want to tell you, he is
+- [05:46.479] he's a handsome guy, but I wouldn't want
+- [05:49.600] to tackle him, Saquon Barkley. Where's
+- [05:52.720] Saquon?
+- [05:58.000] I offered him a ride on Air Force One.
+- [06:02.560] He's great. I got to know him a little
+- [06:04.160] bit. I offered him a ride on Air Force
+- [06:06.479] One because I was coming down and
+- [06:09.680] usually they say, "No, no, I don't think
+- [06:11.840] so." He said, "I'll take it,
+- [06:14.280] sir." And he loved it. We loved being
+- [06:17.280] together. He's a great He's a great
+- [06:19.039] young guy and an incredible football
+- [06:21.680] player. Seaquin had a season for the
+- [06:23.520] ages, running behind the most powerful
+- [06:25.600] offensive line in the NFL. featuring
+- [06:30.800] That's true. That's pretty. That's
+- [06:32.560] That's what this It's a big group. We're
+- [06:35.199] going to introduce him. Jordan Meahhata.
+- [06:39.650] [Applause]
+- [06:47.280] Thank you.
+- [06:49.120] These are big
+- [06:51.160] people. Landon Dickerson.
+- [06:54.210] [Applause]
+- [07:01.759] Sixtime Pro Bowler right tackle Lane
+- [07:04.400] Johnson. That's six time.
+- [07:07.960] Wow, that's pretty good. How is he? Is
+- [07:11.599] he better than you guys? I don't know.
+- [07:13.039] Oh yeah.
+- [07:15.120] Six time pro. That's pretty good. In
+- [07:18.479] week nine against Jacksonville, Sequin
+- [07:20.880] performed football magic while racking
+- [07:22.880] up a total 119 yards, 99 yards, almost
+- [07:27.039] 200 yards, two touchdowns. In the second
+- [07:30.160] quarter, he caught the ball, dodged two
+- [07:32.639] tacklers, and then hurdled backward over
+- [07:34.720] another diving defender, sending him
+- [07:37.599] flying through Saquon's legs. You
+- [07:40.560] remember that one? I said, "Oh, that's a
+- [07:42.319] dangerous play." But he doesn't care
+- [07:45.120] about danger on the football field. And
+- [07:47.919] by the way, I have to tell you
+- [07:49.400] something. I was with the Giants and the
+- [07:52.400] head coach and some people and I said,
+- [07:54.479] "Do anything you have to, but don't lose
+- [07:57.319] Seaquan." They lost
+- [07:59.960] Seaquan. That was not good. They I
+- [08:02.960] called that one. That was that was an
+- [08:04.879] easy one to call because he played damn
+- [08:06.879] well for the Giants. I can tell you
+- [08:08.479] that. But he made his uh he made the
+- [08:11.120] right decision because it it is a team
+- [08:13.520] sport and he has great people in this
+- [08:15.360] team. This unforgettable display of
+- [08:18.080] athleticism will soon be seen in
+- [08:20.800] highlight reels and you've seen a lot of
+- [08:22.639] it. I've seen that game numerous times.
+- [08:25.360] They play it over and over. It was an
+- [08:26.960] amazing game, the final game and a
+- [08:29.039] little bit surprising that either team
+- [08:31.440] would have won by so much. But
+- [08:33.120] ultimately, Squan rushed for more than
+- [08:35.959] 2500 yards in the regular season and
+- [08:38.719] playoffs combined an NFL record. Think
+- [08:41.039] of that, all those years. and he was
+- [08:43.839] named NFL offensive player of the year.
+- [08:48.000] That's pretty
+- [08:49.480] good. His golf isn't quite as good.
+- [08:58.640] So, I want to congratulate him. What a
+- [09:00.640] what a guy. Complimenting Saquon's
+- [09:03.839] historic season was an incredible year
+- [09:05.839] from star quarterback Jaylen Herz. and
+- [09:08.959] he really had played a he had a great
+- [09:11.600] season and a great game. Finished with
+- [09:13.680] 32 touchdowns on the year, turning in
+- [09:16.720] one stellar performance after another.
+- [09:19.360] Terrific guy and a terrific player. On
+- [09:22.080] defense, the Eagles finished the regular
+- [09:24.000] season with the fewest yards allowed per
+- [09:26.080] game, thanks in large part to talented
+- [09:28.240] young stars like safety Reed
+- [09:31.040] Blankenship. Where's Reed?
+- [09:33.840] [Applause]
+- [09:39.519] Say something. Come on. Say do this guy.
+- [09:42.800] I don't have a lot to say, but uh go
+- [09:44.959] Birds even in DC. So, congratulations.
+- [09:48.880] Congratulations.
+- [09:52.640] And on defense, the Eagles finished is
+- [09:57.120] uh is really legendary because I think
+- [09:59.680] probably it's been one of the greatest
+- [10:01.360] finishes in football history in week 11
+- [10:04.399] against Washington. Reed had 10 tackles
+- [10:07.600] overall and an interception in the
+- [10:09.680] fourth quarter to seal the win. It was a
+- [10:12.800] big one. That was a rough game for the
+- [10:15.360] uh for the opposing team. That's one of
+- [10:17.760] those that you don't sleep very well,
+- [10:19.600] but you guys came back and you did an
+- [10:21.600] incredible job just to get through. The
+- [10:24.240] Eagles ended the regular season at 14
+- [10:26.560] and three with only three playoff games
+- [10:29.519] standing in the way of the Super Bowl in
+- [10:31.519] New Orleans. After beating the Green Bay
+- [10:34.800] Packers in the first game, the Eagles
+- [10:36.560] won a close one against the Los Angeles
+- [10:39.040] Rams. All good games. Then in the NFC
+- [10:42.000] Championship game against Washington,
+- [10:44.560] Sequin took his very first hand off for
+- [10:47.200] a 60 yard touchdown and then added
+- [10:49.279] another touchdown minutes
+- [10:52.440] later. And you know, Squan's a good
+- [10:54.880] golfer, but he's a much better football
+- [10:56.480] player in case you had in case you had
+- [10:58.560] any thoughts of uh doing something else.
+- [11:01.480] Sequin soon, thanks to 55 points on the
+- [11:05.040] day, the Eagles punched their ticket to
+- [11:06.959] a Super Bowl rematch with the Kansas
+- [11:08.959] City Chiefs. And you know what happened?
+- [11:10.640] It was an incredible game. A little
+- [11:12.959] surprising, but right from the beginning
+- [11:14.720] in the first quarter of the big game,
+- [11:17.040] which I was there, I watched in person,
+- [11:20.000] I was there along with Taylor Swift. How
+- [11:22.240] did that work
+- [11:23.800] out? How did that one work out? The
+- [11:26.959] Eagles scored a touchdown on their
+- [11:29.040] signature play, the tush
+- [11:31.959] push. You know what that is? Or is some
+- [11:35.440] I hope they keep that play, coach. I
+- [11:37.200] don't know. Well, you know, they're
+- [11:40.560] they're talking about getting rid of
+- [11:42.399] that play. I understand they should keep
+- [11:44.240] it. What do you think, Squan? I like it.
+- [11:45.920] We have guys like this pushing you
+- [11:47.440] around a little bit. I like it. It's
+- [11:49.760] sort of exciting and different. I would
+- [11:51.760] like to see something done. I'd like to
+- [11:53.440] go back to the regular kickoff. However,
+- [11:56.240] we don't like that kickoff where
+- [11:57.839] nobody's moving. The ball's in the air,
+- [11:59.680] nobody's moving. But I won't ask the
+- [12:01.839] coach or Lane or any of the people about
+- [12:04.240] that. But as a fan, I don't know. I'm
+- [12:06.639] not sure. Jeffrey or some of the people
+- [12:09.760] they call it the brotherly shove. You
+- [12:12.000] know the other. Meanwhile, the ferocious
+- [12:14.480] Eagles defense pressured the Chief's
+- [12:16.480] offense on almost every snap, causing
+- [12:19.120] six snaps, sacks, and three turnovers,
+- [12:22.000] including a phenomenal interception
+- [12:24.399] return for the touchdown by a
+- [12:26.399] spectacular rookie Cooper
+- [12:29.720] Dene. Cooper, come on up here.
+- [12:40.720] Good job.
+- [12:42.800] Cooper made the play of his life and he
+- [12:44.720] did it on his 22nd birthday. Wow, you're
+- [12:47.200] a young guy,
+- [12:48.600] huh? A short time later, a touchdown
+- [12:51.360] pass right before halftime and another
+- [12:53.519] one in the third quarter helped put the
+- [12:55.360] game on ice. And at the final whistle,
+- [12:58.399] the green and white confetti rained down
+- [13:01.519] on the scoreboard. It was
+- [13:03.800] 40-22 and uh I think maybe the Eagles
+- [13:07.440] themselves were surprised, but boy, they
+- [13:09.279] played great. They looked unbeatable. It
+- [13:11.839] was a great moment for an incredible
+- [13:14.399] group of people throughout their
+- [13:16.480] extraordinary season. The amazing group
+- [13:18.639] of Warriors, and that's what they are.
+- [13:20.320] They're really modern-day warriors.
+- [13:22.360] Inspired the world with incredible
+- [13:24.880] spirit, athletic dominance, and
+- [13:26.959] exceptional teamwork. And you made the
+- [13:29.760] Eagles fans everywhere really very
+- [13:31.839] proud. Whether you're an Eagle fan or
+- [13:34.000] not, they were proud to watch a team of
+- [13:36.320] such great power and dominance. And uh
+- [13:39.600] you really have a whole life to lead and
+- [13:42.480] you can say you've you've done it.
+- [13:44.320] You've done something that very few
+- [13:45.839] people are able to do. We've seen a lot
+- [13:47.600] of great teams, Lane and Coach. We've
+- [13:50.399] seen a lot of great teams, but they
+- [13:52.079] don't ever get to where you've already
+- [13:54.160] gotten. And you're a young guy to be
+- [13:56.000] coach. Well, I'd like to be his manager
+- [13:58.000] right now. I'd like to be pick up my
+- [14:00.880] little 10% for doing
+- [14:04.120] nothing. So, I want to congratulate once
+- [14:06.959] again and uh let me just say fly Eagles
+- [14:10.160] fly. Right.
+- [14:16.160] And with that, I want to bring up one of
+- [14:18.079] the great offensive linemen really of
+- [14:20.880] all time. When you're sixtime allpro,
+- [14:23.600] that's really something. and Lane
+- [14:25.600] Johnson, come up and say a few words.
+- [14:27.600] Congratulations. You're really something
+- [14:29.440] special. Thank you.
+- [14:34.639] Move this up a little bit. Thank you,
+- [14:35.920] Mr. President, for allowing us to be
+- [14:37.519] here, uh, sending us the invitation. Um,
+- [14:40.000] what an incredible year it was for us.
+- [14:42.000] Really having the chance to play the
+- [14:44.399] team that we lost to a couple years
+- [14:46.240] before, um, and come through. But, uh, I
+- [14:49.120] want to thank Mr. Lur just for creating
+- [14:50.959] a championship organization and culture.
+- [14:53.920] um Howie Roseman putting the time in,
+- [14:55.760] everybody on the coaching staff, um just
+- [14:58.160] what a wonderful season it was. And uh
+- [15:01.040] we're not done. We're ready ready for
+- [15:02.560] another round. So, thank y'all and uh go
+- [15:05.770] [Applause]
+- [15:10.519] Birds. Yes, sir.
+- [15:13.760] Yeah. Thank you, uh Mr. President, for
+- [15:15.600] having us here. We also appreciate the
+- [15:17.760] uh endorsement for the tush push. We
+- [15:19.920] really appreciate that. And go Birds.
+- [15:27.519] Jeffrey, maybe you could say a few
+- [15:29.199] words. You've done an amazing job in
+- [15:31.279] putting this team together. Come on up.
+- [15:33.199] Thanks.
+- [15:37.120] Thanks, Mr. President. Um, you know,
+- [15:39.440] it's truly an honor to be here. I
+- [15:40.880] remember as a little boy the
+- [15:42.160] championship teams that came to the
+- [15:43.680] White House and I never dreamed we'd be
+- [15:46.000] able to, you know, have a team and be as
+- [15:48.639] good as this. And this was a dominant
+- [15:50.480] team with incredible culture. Everything
+- [15:53.360] we all believe in as the best human
+- [15:55.519] values, selflessness, humility,
+- [15:58.279] teamwork, talent, discipline, everything
+- [16:01.519] that we all strive for this team
+- [16:03.839] incorporated. So, thank you for the
+- [16:05.759] hospitality today and uh go birds.
+- [16:19.040] That's great. Thank you. Wow,
+- [16:22.880] that's
+- [16:25.639] pretty good. Thank you.
+- [16:48.240] He's going to help.
+- [17:03.280] [Applause]
+- [17:10.240] Heat. Heat.

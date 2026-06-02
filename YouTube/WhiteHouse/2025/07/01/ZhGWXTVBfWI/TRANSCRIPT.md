@@ -1,0 +1,300 @@
+<!-- source: https://www.youtube.com/watch?v=ZhGWXTVBfWI -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: ZhGWXTVBfWI -->
+<!-- date_published: 2025-07-01T20:41:00+00:00 -->
+<!-- date_accessed: 2026-06-02T01:21:44.448622+00:00 -->
+
+# Transcript: President Trump Arrives Dade - Collier Training and Transition Airport, July 01, 2025
+
+- [00:02.060] The President: Hello everybody.
+- [00:03.380] The trip was nice and the job they've done is fantastic
+- [00:08.230] and this is what you need
+- [00:09.440] and Ron worked beautifully with Kristi
+- [00:12.270] and all of the people at Homeland Security
+- [00:14.490] and got it done in how many days?
+- [00:16.520] Governor DeSantis: Eight days.
+- [00:17.880] All new facility was up and running so --
+- [00:21.280] The Press: Is this a model going forward, Mr. President?
+- [00:23.000] The President: It can be.
+- [00:24.260] I mean, you don't always have land so beautiful and so secure.
+- [00:28.320] You have a lot of bodyguards and a lot of cops
+- [00:31.420] that are in the form of alligators.
+- [00:32.870] You don't have to pay them so much.
+- [00:34.760] But I wouldn't want to run through the Everglades for long.
+- [00:38.370] We'll keep people where they're supposed to be.
+- [00:40.620] This is a very important thing.
+- [00:43.360] We're setting records at the border.
+- [00:44.960] You know, we had no people come through last month.
+- [00:47.700] Zero. No people.
+- [00:49.530] But we're going to keep it that way.
+- [00:50.990] So Ron did great, and I want to thank him.
+- [00:53.700] Governor DeSantis: Well, look, we
+- [00:54.950] -- thank you, Mr. President. Thanks for your leadership.
+- [00:56.890] The border, you did that quicker than -- we knew you'd do it,
+- [01:00.310] but you did it so quick, which is great.
+- [01:02.270] But Biden led in how many millions,
+- [01:04.700] and you got to take care of them.
+- [01:06.170] And so this is one example of state operating this.
+- [01:10.490] The feds are approving it, supporting it.
+- [01:12.600] We're also going to have 2,000 more at Camp Landing,
+- [01:15.620] which is our National Guard site.
+- [01:17.660] And we're the only state in the country
+- [01:19.280] that mandates our state and locals,
+- [01:21.590] law enforcement, to cooperate with ICE.
+- [01:23.420] And it's made a huge difference. On any given day,
+- [01:27.040] Florida constitutes about 20 percent
+- [01:29.910] of all immigration arrests nationwide,
+- [01:32.420] and that's just because of the partnership that we have.
+- [01:34.490] So I think it's great that the president's here.
+- [01:37.720] What I would just say is don't let Florida be the only state.
+- [01:41.170] We've got very red states that should be doing this
+- [01:44.390] just as much as Florida's doing.
+- [01:46.310] That will increase their numbers and then what happens
+- [01:49.310] is you'll have a lot of people that will deport on their own
+- [01:52.180] because they don't want to end up in an alligator alcatraz
+- [01:54.730] or some of those other places.
+- [01:56.020] So I think this is a model but we need other states to step up.
+- [01:59.380] The Press: I was going to ask you,
+- [02:00.670] would this be enticing for other states
+- [02:03.040] to come up with their own?
+- [02:04.280] The President: They are doing it.
+- [02:05.490] We have Louisiana doing it big, Alabama is doing it.
+- [02:08.040] We have a lot of states, they seem to be red states,
+- [02:11.330] not too many blue states, for whatever reason, you know,
+- [02:14.740] but the red states Republican run states are doing.
+- [02:18.120] The blue states don't do very well at security
+- [02:20.420] and policing, unfortunately. What would you say, Kris?
+- [02:23.320] Secretary Noem: You know, I would say that exactly right.
+- [02:24.980] The governor here has been fantastic
+- [02:26.700] in forming this partnership
+- [02:28.360] with the Department of Homeland Security.
+- [02:30.240] We were looking at different contracts
+- [02:32.920] with different vendors and thought,
+- [02:34.360] why not go straight to our governors
+- [02:36.220] and ask them to help us solve this problem.
+- [02:38.050] Florida was unique in what they presented to us
+- [02:41.540] and I would ask every other governor
+- [02:43.390] to do the exact same thing.
+- [02:44.960] This is unique because we can hold individuals here,
+- [02:47.600] they can have their hearings.
+- [02:49.490] Get due process and then immediately be flown back home
+- [02:51.970] to their home countries
+- [02:53.220] and their home countries are welcoming them
+- [02:55.440] They're setting up loans for houses.
+- [02:57.630] They've got food assistance.
+- [02:59.510] They're helping to facilitate welcoming them home
+- [03:01.820] I just got home from Panama, Costa Rica, Guatemala, Honduras,
+- [03:05.620] and they're all excited about getting their individuals
+- [03:08.680] back home from the United States.
+- [03:10.630] The President: And there is a lot of self-deporting.
+- [03:12.650] That's one thing I was actually surprised.
+- [03:14.380] But a lot self-supporting,
+- [03:15.600] and when you have something like this, even more so.
+- [03:18.140] So I'd ask Ron one question.
+- [03:19.950] I flew over the Everglades. We did a little circle.
+- [03:22.100] I said, let me see. That's a big piece of land.
+- [03:24.290] I think it's 25 minutes to fly around.
+- [03:27.480] Is there potential for enlargement
+- [03:30.340] or additional facilities out here?
+- [03:32.060] Governor DeSantis: There may be.
+- [03:33.440] I mean, I think what we're doing is
+- [03:35.240] because this is an important part of Florida,
+- [03:37.630] we're using the existing footprint of this airport.
+- [03:40.390] So when you guys go over there, you'll see all the beds,
+- [03:43.570] the medical, the galley, everything is on the concrete.
+- [03:47.180] We're not using any of the other stuff.
+- [03:49.340] Now, as you'll see, there's a lot of concrete,
+- [03:51.120] so they're very well maybe. I know Secretary Noem
+- [03:54.020] and her team have said as soon as the president departs,
+- [03:58.100] we'll be open to start receiving folks.
+- [04:00.380] And so we'll see what the tempo is.
+- [04:02.520] We do have the 2000 in Northeast Florida
+- [04:04.680] that will open very soon. So it is possible to do.
+- [04:07.750] One of the things I think that is exciting about this
+- [04:10.430] is we're offering up our National Guard
+- [04:13.170] and other folks in Florida
+- [04:14.940] to be deputized to be immigration judges.
+- [04:17.430] We're working with the Department of Justice
+- [04:19.250] for the approvals. I'm sure Pam will approve.
+- [04:21.470] But then you have,
+- [04:22.700] I'll have a National Guard judge advocate here.
+- [04:25.520] Someone has a notice to appear,
+- [04:27.460] Biden would tell them to come back in three years and appear.
+- [04:30.310] Now you'll be able to appear in like a day or two,
+- [04:32.650] so they're not going to be detained
+- [04:33.900] hopefully for all that long.
+- [04:35.410] We'll have people here in this facility that can make,
+- [04:38.310] you know, it's a bureaucracy.
+- [04:39.740] The president's got to deal with the bureaucracy.
+- [04:41.280] Now that Supreme Court ruling was good
+- [04:43.490] because that's going to allow him to be able
+- [04:44.990] to exercise Article 2 the way
+- [04:46.400] Founders intended, but you still have bureaucracy.
+- [04:48.960] So we want to cut through that
+- [04:50.450] so that we have an efficient operation
+- [04:52.570] between Florida and DHS
+- [04:54.780] to get the removal of these illegals done.
+- [04:57.180] The Press: Are you going after the worst of the worst,
+- [05:00.440] or are you now arresting anyone who is here?
+- [05:02.080] The President: We're doing the worst of the worst,
+- [05:03.360] always first.
+- [05:05.010] And I think it's great government, what we've done.
+- [05:07.760] And nobody can ever forget what this group of people,
+- [05:10.530] Biden or whoever it was --
+- [05:11.970] because, you know, it probably wasn't even Biden.
+- [05:13.740] I don't think he knew what the hell he was doing.
+- [05:15.620] Biden -- whoever it is, what this --
+- [05:17.410] what this groups of people --
+- [05:19.010] a small group that circled the Resolute Desk --
+- [05:21.970] what they did to this country. Think of it. What your time --
+- [05:25.030] well, all the time, you have to waste doing this.
+- [05:27.450] It's an unforced error. We had nothing.
+- [05:29.360] We had no problem with this.
+- [05:31.250] There was never anything like this.
+- [05:32.540] We had great borders. It was bad when I came in.
+- [05:35.070] Within three months, I fixed them.
+- [05:36.590] This is in 2016. Now I come in.
+- [05:38.850] The difference is, this was 20 times worse.
+- [05:43.700] Their open-border policy did so much damage to our country,
+- [05:47.400] and we're fixing it. But the effort and the money
+- [05:50.440] and all the things that it takes to fix it,
+- [05:52.410] it was just like an unforeseen error.
+- [05:54.190] The Press: Mr. President, in 2018,
+- [05:55.640] you suggested putting alligators in the Rio Grande
+- [05:58.840] to prevent crossings in Texas.
+- [06:01.240] Is this a dream come true for you?
+- [06:03.700] The President: Well, I was thinking about that, I must say.
+- [06:05.420] It was meant more as a joke, but the more I thought of it,
+- [06:08.340] the more it liked it, if you want to know the truth.
+- [06:10.960] And they were seriously -- they were actually crocodiles.
+- [06:14.190] They were crocodiles from Africa.
+- [06:15.930] They are a step beyond.
+- [06:18.210] But, no, that was really meant as a joke,
+- [06:20.130] but a lot of people liked it,
+- [06:21.580] and a lot of people think we should do it, frankly?
+- [06:23.850] The Press: The Senate, it appears,
+- [06:25.100] is about to vote on your Big Beautiful Bill.
+- [06:26.530] The President: I hear we're doing well, Ron.
+- [06:27.760] I hear we're going well.
+- [06:29.010] The Press: Are you confident this can get done
+- [06:30.230] by the 4th of July?
+- [06:31.440] The President: I don't know what does confident mean
+- [06:32.720] when you're like -- when you have one vote
+- [06:35.020] and you have a hundred people going to vote I think so.
+- [06:38.730] I think it's going to be the greatest bill ever passed
+- [06:41.620] even for you as an example
+- [06:43.350] Tremendous amount of Homeland Security money.
+- [06:46.100] Oh tremendous amount.
+- [06:47.790] It's going keep the border secure because you know,
+- [06:49.820] we have them secure now But we need to build more wall.
+- [06:53.090] I built almost 600 miles of wall.
+- [06:55.090] We need more wall.
+- [06:56.680] And all of that's covered in this bill.
+- [06:58.740] This bill is amazing for everybody.
+- [07:01.070] It's an amazing bill for Florida, too.
+- [07:03.140] Really great for Florida.
+- [07:04.840] The Press: Are there concerns about the Medicaid cuts, though?
+- [07:06.960] The President: No, no, we're not going to be playing
+- [07:08.230] with Medicaid.
+- [07:09.450] Only waste, fraud, and abuse, yeah.
+- [07:11.710] Yeah, the Democrats have it wrong.
+- [07:13.580] Yeah, waste, fraud and abuse.
+- [07:15.750] In fact, if you look at what's gone on, we've gone way back.
+- [07:19.200] We take care of Medicaid. We take of Medicare.
+- [07:21.980] They will blow Medicare and Medicaid
+- [07:24.410] because they have no idea what they're doing.
+- [07:26.850] Just like they don't have any idea
+- [07:28.520] what they did on the border, they have idea.
+- [07:30.950] Medicaid is in big trouble with the Democrats.
+- [07:33.300] The Press: (inaudible)
+- [07:34.500] loses their health care coverage.
+- [07:36.230] That is because of waste, fraud, and abuse.
+- [07:37.730] The President: Waste, fraud -- only waste, fraud, and abuse,
+- [07:39.600] which is what everybody wants.
+- [07:41.100] The Press: That Russia has about 50,000 troops
+- [07:43.550] stationed outside of Sumi in Ukraine.
+- [07:46.280] What will you do if Russia authorizes an offensive?
+- [07:49.740] The President: We'll see what happens.
+- [07:51.230] I'm watching it very closely.
+- [07:52.830] The Press: Mr. President,
+- [07:54.980] about Prime Minister Netanyahu's visit next week,
+- [07:57.850] what are you hoping to get out of that?
+- [07:59.410] Do you think there'll be any progress?
+- [08:00.640] The President: It's going to be a very quick celebration.
+- [08:02.570] We had a great hit. It was an obliteration.
+- [08:06.170] Okay, now it turns out it wasn't an obliteration.
+- [08:08.490] You know, they demeaned --
+- [08:09.770] CNN mostly and the New York Times, fake New York times.
+- [08:12.930] They demean these great soldiers.
+- [08:15.500] They went over there, 17 hours flying,
+- [08:18.570] and they hit bullseye after bullseyes after bulls-eye.
+- [08:22.440] It all blew up. Everybody saw it.
+- [08:24.760] Then they get back, and CNN said,
+- [08:26.840] well, they did okay, but maybe it wasn't.
+- [08:29.310] Let me tell you, it was beyond obliteration.
+- [08:32.090] They can't -- nobody can even get down there.
+- [08:33.980] The tunnels are busted. Everything fell into the well.
+- [08:37.430] It was a total and complete obliterations.
+- [08:39.690] And we should celebrate these heroes.
+- [08:41.740] And what I'm doing is I'm bringing them, Ron,
+- [08:43.880] we're bringing them to Florida or to the White House.
+- [08:46.280] I gave them their choice.
+- [08:47.480] I think they're going to take the White House.
+- [08:48.820] Governor DeSantis: Probably.
+- [08:50.040] The President: I shouldn't tell you this.
+- [08:51.290] The Press: Mr. President, there's going to be a new bill
+- [08:53.160] called Make American Elections Great Again,
+- [08:56.880] forcing the U.S. Census Bureau to redo the census
+- [09:00.500] to actually get an account of how many Americans
+- [09:03.830] with proof of citizenship are in our area,
+- [09:06.300] in our country, redistributing some of the House districts.
+- [09:08.870] Your thoughts on that?
+- [09:10.110] The President: Well, I'll speak for both.
+- [09:11.500] We love it. You're going to like this one.
+- [09:13.870] I know all about it.
+- [09:15.140] We want to bring our elections back.
+- [09:17.790] The election in 2020 was rigged. Millions and millions of votes.
+- [09:21.060] It had to do with COVID and a lot of things,
+- [09:22.710] but it really had to with their crooked people.
+- [09:24.840] The Democrats are very good at cheating on elections.
+- [09:27.820] And that's why I said too big to rig.
+- [09:29.440] They tried this one too.
+- [09:31.160] But after about 902, they gave up too many votes.
+- [09:34.240] Too big to rig. Ron would love it, I would love.
+- [09:37.940] Kristi would love That's what they have to do.
+- [09:40.290] They have to bring it back. And we have to look, you know,
+- [09:42.680] Ron, they include anybody that happens to be in your state.
+- [09:47.110] Governor DeSantis: California, that California
+- [09:49.080] would lose like five seats
+- [09:50.420] if they did a fair census. And even beyond that,
+- [09:53.470] the Biden census gyps Florida of at least one seat.
+- [09:57.380] We only got one seat in the last census.
+- [09:59.940] Are you trying to tell me
+- [10:01.440] that Florida only had one seat in that?
+- [10:04.140] We should have had at least two. Texas should have another one.
+- [10:06.930] That could be the difference
+- [10:08.220] in the House of Representatives and the majority.
+- [10:10.910] So I would love for them to redo the for '26.
+- [10:15.140] My legislature will redistrict those lines.
+- [10:17.850] We'll get it to where it's fair, but as it's right now
+- [10:20.460] this country is not fairly apportioned
+- [10:22.830] I've got so many more millions of people in Florida
+- [10:25.560] that have representation because of that flawed census.
+- [10:29.320] The President: I think it's going to do very well.
+- [10:30.870] A lot of people, I don't know if you've heard about it,
+- [10:32.970] it's like it's captivated the country.
+- [10:35.720] Everybody wants it.
+- [10:37.100] It's going get in, it's going to pass,
+- [10:38.650] and we're going to be very happy.
+- [10:39.940] The President: Elon Musk is ripping into this bill again.
+- [10:42.070] Are you concerned that Republicans
+- [10:43.670] are going to be swayed by Musk and his money?
+- [10:45.320] The President: I don't think so.
+- [10:46.530] I think what's going to happen is DOGE
+- [10:47.990] is going to look at Musk.
+- [10:49.320] And if DOGE looks at Musk, we're going to save a fortune.
+- [10:52.160] Thank you very much, everybody.
+- [10:53.780] I don't think you should be playing that game with me.
+- [10:55.630] The Press: Mr. President, July 9th (inaudible).
+- [10:58.370] The President: Thank you, very much everybody.

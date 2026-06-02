@@ -1,0 +1,545 @@
+<!-- source: https://www.youtube.com/watch?v=0c6pm6393C4 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 0c6pm6393C4 -->
+<!-- date_published: 2025-04-23T09:34:45+00:00 -->
+<!-- date_accessed: 2026-06-02T01:27:19.955210+00:00 -->
+
+# Transcript: President Trump Swears In the Chairman of the Securities and Exchange Commission
+
+- [00:00.240] The President: Well, thank you very much.
+- [00:01.460] And today we are very thrilled to swear
+- [00:03.850] in the new chairman of the Securities
+- [00:07.240] and Exchange Commission, Paul Atkins.
+- [00:09.690] He's a fantastic man and with great experience,
+- [00:13.610] but above all, he's very smart.
+- [00:15.880] Congratulations to Paul, his wife,
+- [00:18.230] Sarah, and his entire family who are with us today.
+- [00:20.930] Thank you very much and congratulations.
+- [00:22.380] Mr. Atkins: Thank you.
+- [00:23.600] The President: Great job. That's great, Sarah.
+- [00:29.330] We're also grateful to be joined by our Secretary of the Treasury
+- [00:33.130] who's doing a… it's the easiest job.
+- [00:35.060] I think it's probably the easiest job
+- [00:36.880] right now in government, would you say?
+- [00:38.970] Companies are coming out of the…
+- [00:40.510] Countries are coming from all over,
+- [00:42.810] they want to just sign, sign, sign.
+- [00:44.490] We're doing okay.
+- [00:45.870] But you're doing really well. Thank you very much.
+- [00:48.890] Scott's going to be doing the swearing in.
+- [00:51.570] No one in America is more highly qualified
+- [00:53.730] to lead the SEC in this exciting time than Paul.
+- [00:57.300] He's devoted his entire life to the cause of free, clear,
+- [01:00.470] pro-growth and pro-innovation securities markets.
+- [01:05.350] After graduating very, very high in his class,
+- [01:08.330] I will tell you, Vanderbilt University
+- [01:10.100] School of Law,
+- [01:11.340] Paul began a distinguished career
+- [01:12.990] practicing securities law in New York City,
+- [01:16.410] before joining the staff of the SEC in the 1990s.
+- [01:20.900] In 2002, Paul was appointed as the commissioner of the SEC,
+- [01:26.410] a commissioner, and rode that to a fare-thee-well.
+- [01:31.260] He was so respected.
+- [01:32.460] It was a role which he promoted economic freedom
+- [01:36.110] and represented the agency at the US-EU
+- [01:39.430] Trans-Atlantic Economic Council.
+- [01:41.860] Highly respected, the World Economic Forum
+- [01:44.390] and the Trans-Atlantic Business Dialogue.
+- [01:48.070] After completing his term in 2008,
+- [01:50.620] Paul began a successful consulting practice
+- [01:53.220] and continued to advocate for a common-sense approach
+- [01:56.720] to securities regulation, extremely complicated stuff,
+- [02:00.360] and he put a lot of common sense and saneness into it,
+- [02:05.280] without heavy-handed bureaucracy
+- [02:07.280] and the harming of investors and workers
+- [02:10.570] and consumers, and frankly, our country itself.
+- [02:13.630] Paul has also been a leader
+- [02:15.060] in the emerging crypto and blockchain industries
+- [02:18.300] and served as co-chair of the Digital Chambers Token Alliance.
+- [02:23.000] He's the perfect man to lead this agency
+- [02:25.070] at a time when crypto-innovators are urgently in need of,
+- [02:29.210] and they want so badly… they want it to happen…
+- [02:32.590] regulatory certainty and clear rules of the road.
+- [02:36.570] In addition to helping build this new framework
+- [02:38.950] that will allow the United States
+- [02:40.700] to maintain its financial and technological dominance
+- [02:43.500] long into the future,
+- [02:45.320] Paul will end the weaponization of the SEC
+- [02:47.820] and stop the lawless enforcement practices
+- [02:50.830] that occurred during the Biden administration.
+- [02:53.520] They were vicious people.
+- [02:55.450] They were vicious and horrible for our country.
+- [02:58.270] Paul is passionate about protecting American liberty
+- [03:01.200] and American economic leadership,
+- [03:03.510] and we are truly grateful and honored
+- [03:05.450] that he has answered the call of public service,
+- [03:08.460] as he always has. He's a man that just…
+- [03:11.800] we were looking for the right person
+- [03:13.930] for this very important job
+- [03:15.250] and just he was at the top of everyone's list.
+- [03:19.480] So Paul, I want to congratulate you and your family.
+- [03:21.910] You have an incredible family.
+- [03:23.370] And you have an incredible father and husband,
+- [03:26.320] I can say that I think with…
+- [03:27.810] I'm pretty sure I'm right about that,
+- [03:29.320] if I'm not, please speak up now.
+- [03:31.750] So thank you very much, Sarah. Thank you very much.
+- [03:34.050] And I'll ask Scott to come up and do the swearing-in.
+- [03:35.820] Thank you.
+- [03:37.090] Mr. Atkins: Thank you, sir.
+- [03:38.290] The President: Thank you, everybody.
+- [03:42.390] Mr. Bessent: Place your hand on the Bible, please.
+- [03:48.950] I-
+- [03:50.170] Mr. Atkins: I, Paul Atkins…
+- [03:51.910] Mr. Bessent: … do solemnly swear-
+- [03:53.190] Mr. Atkins: … do solemnly swear-
+- [03:54.400] Mr. Bessent: … that I'll support and defend-
+- [03:55.890] Mr. Atkins: … that I'll support and defend-
+- [03:57.510] Mr. Bessent: … the Constitution of the United States-
+- [03:59.340] Mr. Atkins: … the Constitution of the United States-
+- [04:01.160] Mr. Bessent: … against all enemies-
+- [04:02.430] Mr. Atkins: … against all enemies-
+- [04:03.660] Mr. Bessent: … foreign and domestic.
+- [04:04.890] Mr. Atkins: … foreign and domestic.
+- [04:06.210] Mr. Bessent: That I will bear true faith-
+- [04:08.200] Mr. Atkins: That I will bear true faith-
+- [04:09.690] Mr. Bessent: … and allegiance to the same.
+- [04:10.980] Mr. Atkins: … and allegiance to the same.
+- [04:12.550] Mr. Bessent: That I take this obligation freely-
+- [04:14.650] Mr. Atkins: That I take this obligation freely-
+- [04:16.570] Mr. Bessent: … without any mental reservation-
+- [04:18.420] Mr. Atkins: … without any mental reservation-
+- [04:20.280] Mr. Bessent: … or purpose of evasion.
+- [04:21.530] Mr. Atkins: … or purpose of evasion.
+- [04:23.140] Mr. Bessent: And that I will well-
+- [04:24.360] Mr. Atkins: That I will well-
+- [04:25.560] Mr. Bessent: … and faithfully discharge-
+- [04:27.160] Mr. Atkins: … and faithfully discharge-
+- [04:28.470] Mr. Bessent: … the duties of the office-
+- [04:29.960] Mr. Atkins: … the duties of the office.
+- [04:31.170] Mr. Bessent: … on which I'm about to enter.
+- [04:32.810] Mr. Atkins: … on which I'm about to enter.
+- [04:34.030] Mr. Bessent: So help me God. Mr. Atkins: So help me God.
+- [04:35.650] Mr. Bessent: Congratulations.
+- [04:36.890] Mr. Atkins: Thank you very much. Thank you.
+- [04:44.880] Well, thank you all very much
+- [04:46.430] and especially thank you, Mr. President.
+- [04:48.830] I'm really honored by your trust and confidence
+- [04:51.780] that you've placed in me to head the SEC.
+- [04:55.170] But I really must say the Oval Office has never looked better.
+- [04:59.230] One could really describe it as glistening,
+- [05:01.520] and I've heard stories about it and it's true.
+- [05:03.360] It's the touch of a confident president
+- [05:05.750] leading with optimism towards an American golden age.
+- [05:08.340] The President: Thank you.
+- [05:09.560] Mr. Atkins: So thank you for that.
+- [05:11.500] And so to my wife, Sarah, and to our sons,
+- [05:14.780] Stuart, Peter and Henry,
+- [05:17.180] thank you all for your steadfast love and support.
+- [05:20.110] I'm grateful for the sacrifices that each of you have made
+- [05:23.380] to enable me to serve America. And thanks to Secretary Bessent
+- [05:27.670] for administering the oath as well.
+- [05:30.290] But a note about my family real quickly.
+- [05:32.030] Today would've been my father's 114th birthday.
+- [05:36.800] Colonel Atkins was a veteran of World War II and Korea.
+- [05:40.990] And yesterday would've been my late mother's birthday.
+- [05:44.230] So it seems altogether fitting to honor them
+- [05:47.840] and the example that they've set
+- [05:49.610] so that their son could stand here speaking to you all today.
+- [05:53.660] So to my friends, my family,
+- [05:55.240] my colleagues who've worked with me throughout my career
+- [05:58.560] and helped make my appointment by President Trump
+- [06:01.210] even possible, thank you for your work and dedication.
+- [06:04.770] There are many who quietly serve the nation
+- [06:07.210] in mostly unsung roles,
+- [06:08.900] and I continue to be the beneficiary
+- [06:10.630] of your professionalism and good judgment.
+- [06:14.220] So at the helm of the SEC,
+- [06:16.250] I can confidently say it is a new day.
+- [06:19.490] It's time for the SEC to end its waywardness
+- [06:22.900] and return to its core mission that Congress set for it:
+- [06:26.130] investor protection, fair, orderly,
+- [06:28.390] and efficient markets and capital formation.
+- [06:31.300] I will work to protect investors from fraud,
+- [06:33.600] keep politics out of how our securities laws
+- [06:37.050] and regulations are applied,
+- [06:38.960] and advance clear rules of the road
+- [06:40.940] that encourage investment in our economy
+- [06:43.420] to the benefit of Americans.
+- [06:45.680] A top priority of my chairmanship
+- [06:47.290] will be to provide a firm regulatory foundation
+- [06:50.210] for digital assets through a rational,
+- [06:53.300] coherent, and principled approach.
+- [06:55.820] We will work to ensure that the United States
+- [06:58.990] is the best and most secure place in the world
+- [07:01.620] to invest and to do business.
+- [07:02.990] So Mr. President, again,
+- [07:04.670] thank you very much for your graciousness
+- [07:06.730] and extending such a warm welcome to my family
+- [07:09.420] and me today in this storied room.
+- [07:12.170] I look forward to working with you,
+- [07:14.030] with colleagues in your administration,
+- [07:16.450] and with Congress to advance your agenda
+- [07:19.150] to bolster the economy and build on US leadership
+- [07:22.210] of the global markets. So thank you very much.
+- [07:23.820] The President: Thank you. Congratulations.
+- [07:25.060] Mr. Atkins: Thank you very much. Thank you, sir.
+- [07:26.270] The President: Thank you very much.
+- [07:27.510] Mr. Atkins: Pleasure.
+- [07:28.740] The President: Any questions for Paul?
+- [07:30.310] The Press: Mr. Atkins, if I may? The President: No.
+- [07:31.710] The Press: Can you provide a…
+- [07:33.480] I guess what is your sense of how the CFTC
+- [07:36.300] and the SEC will differ when it comes to crypto regulation?
+- [07:40.280] Mr. Atkins: I hope that we won't.
+- [07:42.240] Brian Quintenz, whom the president has nominated,
+- [07:45.180] is a great guy. I've known him for years
+- [07:47.250] and I intend to work closely with him,
+- [07:50.210] and I really look forward to his leadership there.
+- [07:53.020] I think there's no reason why the two agencies
+- [07:55.840] can't be working cheek to jowl on these issues
+- [07:59.670] for the American investor and the American economy.
+- [08:02.320] The Press: Mr. Atkins, do you have a view on China's
+- [08:04.810] [inaudible]?
+- [08:06.950] Mr. Atkins: Well, that's a subject of statute,
+- [08:10.840] and Congress has acted
+- [08:12.250] and I mean I look forward to diving into those issues.
+- [08:16.220] The Press: Mr. Atkins, do you have a sense,
+- [08:17.970] will the Democratic commissioner conclude in her role?
+- [08:21.590] Mr. Atkins: I [inaudible]…
+- [08:22.830] But her term, I guess goes through…
+- [08:26.200] well, it ended last year and I guess she can hold over
+- [08:29.800] till the end of the year. So it's up to Mr. President
+- [08:33.840] and then Congress to deal with that.
+- [08:37.340] The Press: Mr. President-
+- [08:38.690] The President: Liz.
+- [08:39.900] The Press: … on China, your press secretary
+- [08:41.150] has suggested that some progress is being made.
+- [08:43.860] Are negotiations actively underway,
+- [08:46.260] and do you agree with Secretary Bessent
+- [08:48.380] who has suggested that the current standoff with China
+- [08:51.240] is not sustainable?
+- [08:54.100] The President: We're doing fine with China.
+- [08:55.530] We're doing fine with, I think, almost every country.
+- [08:58.760] Everybody wants to have involvement
+- [09:01.250] with the United States, as you know.
+- [09:03.800] We were losing $5 billion a day
+- [09:07.260] when during the Biden administration
+- [09:09.220] during that last year was a horror show,
+- [09:11.100] what they were doing on trade. $5 billion a day.
+- [09:14.680] And now we have it down to a very low number
+- [09:16.730] because we're getting 25%
+- [09:18.450] from the automobile industry, from autos.
+- [09:21.530] We're getting 25% for steel, 25% for aluminum,
+- [09:26.800] and we're getting the baseline of 10%.
+- [09:29.650] And think of it, we're losing almost $2 trillion on trade
+- [09:33.990] and those days are gone.
+- [09:35.220] We're not going to do that again.
+- [09:36.420] We're not going to let that happen.
+- [09:37.740] We're being ripped off by almost,
+- [09:39.490] I don't say every, but very close to every country,
+- [09:42.750] everywhere in the world,
+- [09:44.750] just being ripped off left and right.
+- [09:47.110] He had no leadership,
+- [09:48.380] he had people that didn't know what they were doing.
+- [09:50.820] And we're going to turn the country around.
+- [09:52.890] We have a very nice phrase, Make America Great Again.
+- [09:55.370] That's what we're going to do.
+- [09:56.690] And it's going to start with trade.
+- [09:59.040] We're doing really well.
+- [10:00.360] I see the stock market was up nicely.
+- [10:02.270] But this is a transition period
+- [10:06.180] and it's going to be a little while,
+- [10:08.580] but we are doing well with every country.
+- [10:11.210] Ultimately, we have something they want
+- [10:13.790] and you have to view it that way.
+- [10:15.260] We have something they want and they want very badly,
+- [10:18.740] and it's going to be they're coming in,
+- [10:21.570] they're taking treasure,
+- [10:22.820] they're taking jobs when they do that and they have to pay.
+- [10:26.440] And they don't have to pay if they come in
+- [10:27.860] and create their own jobs.
+- [10:30.240] If they do their product here, if they build their product
+- [10:33.110] or make their product in the United States,
+- [10:35.290] we have absolutely no tariffs and we welcome people.
+- [10:38.610] But we're taking in a lot of money from tariffs
+- [10:42.520] and our country's getting stronger all the time
+- [10:44.710] because the other was not sustainable.
+- [10:47.180] The Press: Mr. President, on China-
+- [10:48.390] It started with China-
+- [10:49.790] Are you going to play hardball with them?
+- [10:51.800] Are you going to mention Covid? [inaudible]-
+- [10:53.340] The President: Well, I'm not going to say…
+- [10:54.650] no, I'm not going to mention Covid.
+- [10:56.060] I'm not going to say,
+- [10:57.340] "Oh, I'm going to play hardball with China.
+- [10:58.950] I'm going to play hardball with you, President Xi."
+- [11:01.380] No. No. We're going to be very nice.
+- [11:04.130] They're going to be very nice and we'll see what happens.
+- [11:07.180] But ultimately, they have to make a deal
+- [11:09.030] because otherwise they're not going to be able to deal
+- [11:12.740] in the United States, so we want them involved.
+- [11:15.740] But they have to, and other countries have to make a deal.
+- [11:18.980] And if they don't make a deal, we'll set the deal.
+- [11:20.680] The Press: [inaudible]-
+- [11:21.890] The President: Because we're the ones that set the deal.
+- [11:25.010] Scott and Howard and myself and others,
+- [11:29.420] we're going to be setting the deal
+- [11:31.270] and it'll be a fair deal for everybody and it'll be…
+- [11:35.060] I think it's a process that's going to go pretty quickly.
+- [11:37.160] We've spoken to many, many countries
+- [11:39.580] and we're getting their views on things.
+- [11:42.080] You know there are a lot of things, they have VAT taxes,
+- [11:44.830] they have everything you can have.
+- [11:48.050] Don't forget, as an example, the European Union
+- [11:50.170] was set up to take advantage of the United States.
+- [11:53.340] That's why it was set. And they've done that,
+- [11:56.420] but they're not doing that anymore. Yeah?
+- [11:58.140] The Press: Mr. President,
+- [12:00.890] will you prevent Hamas from having any role
+- [12:02.820] in governing a post-war Gaza
+- [12:04.870] and will Hamas have to be permanently eradicated
+- [12:07.680] for a ceasefire to be reached?
+- [12:08.970] The President: Well, we're not going to let Hamas do that,
+- [12:11.210] and we're going to see what happens with Gaza.
+- [12:13.970] But we've made a lot of progress in the Middle East, tremendous.
+- [12:17.470] Should have never happened.
+- [12:18.940] That date, that very special date,
+- [12:21.050] October 7th, should have never happened.
+- [12:22.910] It would've never happened if I were president.
+- [12:25.470] But we'll be stopping that whole situation.
+- [12:27.060] Yeah, please.
+- [12:28.300] The Press: Earlier today Treasury Secretary Bessent
+- [12:30.370] suggested that with the tariff rate as high as they are now,
+- [12:33.010] it's effectively an embargo of trade
+- [12:34.890] between the United States and China.
+- [12:36.280] Do you see it that way?
+- [12:37.490] The President: That's true. A 145% is very high
+- [12:40.380] and it won't be that high. It's not going to be that high.
+- [12:44.400] It got up to there, we were talking about fentanyl,
+- [12:46.670] where various elements built it up to 145.
+- [12:51.410] No, it won't be anywhere near that high.
+- [12:53.300] The Press: What level do you think it'll come down to?
+- [12:54.800] If you have [inaudible 00:13:26]-
+- [12:56.040] The President: It'll come down substantially,
+- [12:57.280] but it won't be a zero. It used to be zero.
+- [13:01.040] We were just destroyed. China was taking us for a ride
+- [13:05.750] and it's just not going to happen.
+- [13:08.760] We're going to be very good to China.
+- [13:10.300] I have a great relationship with President Xi.
+- [13:13.250] But they would make billions and billions
+- [13:16.990] and billions of dollars a year and they would build
+- [13:20.760] their military out of the United States
+- [13:22.650] and what they made, so that won't happen.
+- [13:24.730] But they're going to do very well
+- [13:26.340] and I think they're going to be happy
+- [13:27.790] and I think we're going to live together very happily,
+- [13:30.610] and ideally work together.
+- [13:32.400] So I think it's going to work out very well.
+- [13:34.700] But no, it's at 145%,
+- [13:36.520] there will not be anywhere near that number.
+- [13:38.540] The Press: Mr. President, [inaudible].
+- [13:42.540] On the work that your team is doing on the border,
+- [13:45.330] are you happy with the rate of deportations right now?
+- [13:48.130] The President: Oh, it's amazing what they've done
+- [13:49.380] on the borders. Thank you for the question,
+- [13:51.300] because honestly, it's one of the great successes we have.
+- [13:54.740] Virtually, nobody coming in illegally.
+- [13:56.620] We do have people coming in legally
+- [13:58.420] because we want people to come in.
+- [14:00.410] But we have nobody coming in through the border, virtually,
+- [14:03.940] that we were having hundreds of thousands of people
+- [14:07.470] a month come in under Biden. And they came in from prisons,
+- [14:10.840] they came in from mental institutions,
+- [14:12.720] they came in from gangs in Venezuela
+- [14:15.140] and other countries all over the world,
+- [14:17.180] not just South America.
+- [14:19.380] They were emptying their prisons into the United States.
+- [14:22.160] Venezuela emptied its prisons out.
+- [14:24.710] But many countries emptied their prisons into…
+- [14:27.580] The Congo, as an example, in Africa,
+- [14:30.110] emptied their prisons into the United States
+- [14:32.750] and we're getting them out.
+- [14:34.520] And I hope we get cooperation from the courts
+- [14:37.470] because we have thousands of people that are ready to go out
+- [14:41.930] and you can't have a trial for all of these people.
+- [14:45.960] It wasn't meant… The system wasn't meant
+- [14:47.910] and we don't think there's anything that says that.
+- [14:50.680] Look, we are getting some very bad people,
+- [14:53.490] killers, murderers, drug dealers, really bad people,
+- [14:57.950] the mentally ill, the mentally insane.
+- [15:01.250] They emptied out insane asylums into our country.
+- [15:03.830] We're getting them out.
+- [15:05.110] And a judge can't say, "No, you have to have a trial.
+- [15:09.990] The trial's going to take two years."
+- [15:11.740] And no, we're going to have a very dangerous country
+- [15:16.260] if we're not allowed to do what we're entitled to do.
+- [15:19.190] And I won an election based on the fact
+- [15:21.140] that we get them out and we've done an amazing job.
+- [15:23.320] Look, everybody admits, even the radical left,
+- [15:27.520] we have got the strongest border we've ever had,
+- [15:30.410] even stronger than what I had it for four years.
+- [15:32.910] We had a great border, we solved the problem.
+- [15:35.860] But actually, it's a tad stronger,
+- [15:38.490] which is, I don't know if that's disappointing or not to me,
+- [15:40.990] I have to tell you.
+- [15:42.230] I beat my own record, but I appreciate the question.
+- [15:46.530] The Press: [inaudible]
+- [15:50.730] The President: Thank you, Daniel.
+- [15:52.130] The Press: [inaudible]
+- [15:58.580] prices down as well.
+- [16:00.130] Can you talk about how you've managed to lower prices
+- [16:03.480] [inaudible]?
+- [16:05.040] The President: Well, thank you, Daniel.
+- [16:06.240] The question is about prices.
+- [16:08.190] The prices are going down, not going up.
+- [16:10.660] One of the big things is energy is going down.
+- [16:13.450] I see that we had a couple of states
+- [16:15.030] where gasoline was at a dollar and 98 cents a gallon.
+- [16:19.770] Nobody thought they'd see that for years maybe.
+- [16:23.810] And that's a big thing.
+- [16:25.540] And we opened up our wells, we opened up our drilling.
+- [16:28.250] We have more product now for sale.
+- [16:31.600] And we're also going to be
+- [16:32.930] selling outside of the country to a large extent.
+- [16:35.380] It's going to bring down our deficits,
+- [16:37.230] largely going to bring down our deficits.
+- [16:39.090] But if you remember my first week
+- [16:41.850] I was standing here, Paul,
+- [16:43.160] and they were screaming about eggs.
+- [16:44.740] The cost of eggs have gone through the roof.
+- [16:47.040] They were up like 500… crazy like four or five times,
+- [16:51.630] and we won't have eggs for Easter, they were saying.
+- [16:53.620] There'll be no eggs. You can't order eggs.
+- [16:55.690] They wanted a sort of plastic in the shape of eggs.
+- [16:59.350] Well, yesterday we had 48,000 people at the Easter hunt.
+- [17:05.050] They call it the Easter Roll at the White House
+- [17:08.300] and we had all eggs.
+- [17:09.790] And as you know, the cost of eggs has come down like 93,
+- [17:13.830] 94% since we took office.
+- [17:16.380] And they're pretty much normally priced now.
+- [17:19.690] Great job, our Secretary of Agriculture,
+- [17:22.090] Brooke Rollins did a very good job.
+- [17:23.480] But groceries have come down. It's all coming down.
+- [17:26.920] The only thing that hasn't come down,
+- [17:29.120] but it hasn't gone up much, are interest rates
+- [17:31.130] and we think the Fed should lower the rate.
+- [17:33.300] We think that it's a perfect time to lower the rate
+- [17:37.020] and would like to see our chairman be early or on time
+- [17:41.530] as opposed to late. Late's not good.
+- [17:44.610] The Press: Mr. President [inaudible]-
+- [17:45.840] The President: I don't want to talk about that,
+- [17:47.150] 'cause I have no intention of firing him.
+- [17:48.740] The Press: No intention [inaudible]-
+- [17:49.960] Mr. President, there are reports that you're considering
+- [17:52.180] doing something for moms across the country,
+- [17:54.390] giving them some type of bonus for them to have a child.
+- [17:57.040] Are you considering that or are you
+- [17:58.420] [inaudible]-
+- [17:59.620] The President: Sounds like a good idea to me.
+- [18:00.850] Yeah, please.
+- [18:02.060] The Press: To clarify, you have no intention
+- [18:03.550] of firing Jerome Powell because
+- [18:05.050] [inaudible]
+- [18:06.260] Kevin Hassett, a few days ago,
+- [18:07.690] said that you and people in the White House
+- [18:09.590] were studying this idea of possibly
+- [18:11.780] [inaudible]. Do you have any plans on doing it?
+- [18:14.240] The President: None whatsoever.
+- [18:15.940] Never did. The press runs away with things.
+- [18:18.830] No, I have no intention of firing him.
+- [18:21.180] I would like to see him be a little more active
+- [18:24.740] in terms of his idea to lower interest rates.
+- [18:28.400] This is a perfect time to lower interest rates.
+- [18:31.740] If he doesn't, is it the end?
+- [18:33.390] No, it's not. But it would be good timing.
+- [18:36.710] It could have taken place earlier.
+- [18:39.040] But no, I have no intention to fire him.
+- [18:40.790] The Press: When was the last time you talked to him, sir?
+- [18:42.910] The President: I don't want to comment on that.
+- [18:44.110] That doesn't matter.
+- [18:46.610] The Press: When can we expect the Epstein documents
+- [18:48.850] to be released? The rest of them.
+- [18:50.220] The President: Which documents?
+- [18:51.460] The Press: The Epstein files.
+- [18:52.690] The President: I don't know.
+- [18:53.920] I'll speak to the attorney general about that.
+- [18:55.850] I really don't know.
+- [18:57.090] I know that we've done the RFK, the Kennedy, Martin Luther King
+- [19:02.310] is out there very shortly, so we'll find out.
+- [19:06.750] And we've really, really announced
+- [19:10.830] we're doing them in full transparency.
+- [19:14.070] When we did JFK, people were saying,
+- [19:17.630] "Oh, maybe it wasn't all."
+- [19:18.920] It was all, and people actually went up to the office
+- [19:22.170] and they looked at some things
+- [19:23.550] that were not really easily available
+- [19:26.890] and they were amazed that we gave it all.
+- [19:29.430] And I don't know if it solved any problems for people.
+- [19:33.300] People still have questions one way or the other,
+- [19:35.160] but that I'm not…
+- [19:36.380] But 100% of all of these documents are being delivered.
+- [19:39.460] Yeah, please.
+- [19:40.710] The Press: Mr. President,
+- [19:41.960] you said you're ultimately going to make a deal with China,
+- [19:44.240] but where do things stand right now?
+- [19:45.620] Have you talked to them? The Secretary-
+- [19:47.000] The President: I think my relationship-
+- [19:48.270] The Press: [inaudible]. The President: Yeah.
+- [19:49.470] My relationship with President Xi is great.
+- [19:51.660] The Press: Will you talk?
+- [19:53.510] The President: It's been great for a long time.
+- [19:54.910] We've had a very good relationship
+- [19:56.450] and I think we'll make a deal with China.
+- [19:58.400] The Press: Mr. President, in this meeting with-
+- [19:59.680] The President: If we don't make a deal, we'll set it.
+- [20:01.210] We'll just set the number
+- [20:02.430] and think they'll want to be a part of the United States.
+- [20:05.470] We're doing great.
+- [20:07.110] This is the golden age, as Paul said.
+- [20:08.900] We're talking about the golden age.
+- [20:10.370] It'll never be a time like this, in my opinion.
+- [20:13.700] And China wants to be a part of that too.
+- [20:17.060] The Press: [inaudible]
+- [20:19.620] investigation, are you getting intelligence briefings?
+- [20:22.020] And do you think Wall Street will really [inaudible]?
+- [20:23.840] The President: I have. I have.
+- [20:26.560] I'll keep that to myself. It's very personal.
+- [20:30.340] The Press: Are you concerned about the impact of tariffs
+- [20:31.880] on the [inaudible 00:21:02]
+- [20:33.110] force of just a sharp drawdown in Chinese and North Korean
+- [20:34.600] [inaudible 00:21:06]?
+- [20:35.840] The President: No. I think that everyone's
+- [20:37.040] going to do well in this country because of tariffs.
+- [20:39.760] We have $7 trillion of investment already.
+- [20:44.730] You can go back many years and for a whole year
+- [20:47.160] they haven't had anywhere near that.
+- [20:48.570] Mostly, they'd be well under a trillion dollars of investment
+- [20:52.490] and we've got 7 trillion.
+- [20:54.560] We really started five weeks ago.
+- [20:57.720] And in just a few weeks, literally,
+- [20:59.730] we have 7 trillion, which is a record for a year.
+- [21:02.040] There's never been a year with that much.
+- [21:04.290] And that's coming in, I think for two reasons it's coming in,
+- [21:06.540] because of an election that people liked
+- [21:08.970] and it's coming in because of tariffs.
+- [21:10.880] And if you look at Apple,
+- [21:13.080] Apple's going to start building here.
+- [21:15.830] Right now they're in China, mostly.
+- [21:18.130] $500 billion, we have, all of the computer chip companies,
+- [21:23.120] they're coming in at levels that nobody's ever seen before,
+- [21:26.390] as you know.
+- [21:27.920] Jensen came in for $500 billion, you saw that.
+- [21:31.590] A great guy, highly respected.
+- [21:33.300] Mr. Wei, coming in for 200, $250 billion.
+- [21:38.060] Nobody's ever seen anything.
+- [21:39.440] And the auto companies are coming in.
+- [21:41.690] I can name eight right now already,
+- [21:45.190] auto plants that are either starting
+- [21:47.410] or about ready to start construction.
+- [21:49.320] There's never been…
+- [21:50.560] And the United Auto Workers and the non-union workers
+- [21:54.550] in the automobile industry, they love Trump and I love them.
+- [21:58.880] Thank you all very much. Thank you.
+- [22:00.400] Congratulations, Paul.

@@ -1,0 +1,659 @@
+<!-- source: https://www.youtube.com/watch?v=7qSdL-fVlfY -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 7qSdL-fVlfY -->
+<!-- date_published: 2026-01-16T21:12:17+00:00 -->
+<!-- date_accessed: 2026-06-02T02:38:59.629961+00:00 -->
+
+# Transcript: President Trump Participates in the Southern Boulevard Dedication Ceremony
+
+- [00:00.500] ♪ (Hail to the Chief) ♪
+- [00:55.980] Representative Weinberger: Good afternoon.
+- [00:57.280] Thank you all for being here.
+- [01:02.260] Well, I am honored to stand before you as the sponsor
+- [01:06.310] of the legislation that established
+- [01:07.930] President Donald J. Trump Boulevard.
+- [01:14.220] But I have to be honest and give credit where credit is due.
+- [01:17.950] Where's my husband?
+- [01:19.150] Just after the election, my husband, Eric, actually said,
+- [01:22.010] Meg, you need to rename Southern Boulevard
+- [01:24.910] President Donald J. Trump Boulevard.
+- [01:30.170] And I immediately maybe snapped at him and said,
+- [01:32.970] Eric, give me a few minutes, I'm a freshman.
+- [01:35.300] I need some time.
+- [01:36.640] But after a few minute to process,
+- [01:39.490] I realized he was right, which is rare in our marriage.
+- [01:42.020] I might point that out.
+- [01:44.530] But I realized that it also needed to happen.
+- [01:46.350] This was something that was a great idea.
+- [01:49.040] I'm in this role because of our good friend
+- [01:52.020] who is here today, FHP director, Dave Kerner, had a...
+- [01:59.250] He reached out to me and told me,
+- [02:01.190] our state needs more servant leaders that care.
+- [02:04.510] And I'm here because President Trump spoke common sense
+- [02:07.700] when common sense was completely under attack.
+- [02:12.330] So I'm so grateful to be a warrior here for you, sir.
+- [02:16.510] And to, honestly, I never thought I'd be in this role.
+- [02:21.770] Just a mom rescuing a lot of animals
+- [02:24.120] and listening to you speak, President Trump.
+- [02:26.320] You speak common sense.
+- [02:28.110] You speak exactly what the people want
+- [02:30.670] and have been wanting to hear for many, many years.
+- [02:32.660] Thank you, thank you.
+- [02:37.040] When I first filed the language though,
+- [02:39.240] I was told it wasn't allowed, that we couldn't do this.
+- [02:42.620] But I am the youngest of four and my father
+- [02:44.530] did coin me the nudge.
+- [02:45.770] So it served me well in the Florida house determination.
+- [02:50.700] I will have to tell you that.
+- [02:55.160] It was not just me, there were so many members
+- [02:57.460] that we would kind of, the bill naming,
+- [02:59.900] the process is so interesting.
+- [03:01.230] It was first my bill, it rolls into the road naming bill
+- [03:04.770] and from there it goes to the House and the Senate.
+- [03:09.780] So there's so many people that are involved.
+- [03:12.290] Representative, I mean, Speaker Perez,
+- [03:14.260] you're such an incredible supporter.
+- [03:20.120] In fact, in your inaugural remarks,
+- [03:22.620] you said this is a member-driven process,
+- [03:24.690] and this is exactly what this is, a member driven process.
+- [03:28.420] This was exactly how it played out.
+- [03:30.230] We had Representative Nix, Representative Brannon, Senator,
+- [03:35.480] President Albritton in the Senate,
+- [03:37.520] and other senators, and so many members,
+- [03:39.480] and staff that really worked hard to make this happen.
+- [03:43.510] I'm a woman of faith, and I wanna say, Romans 13,
+- [03:45.980] seven says, give honor and respect to all.
+- [03:49.970] Those whom it is due.
+- [03:51.360] And President Trump, today we're doing exactly that.
+- [03:55.130] We need to honor and respect you and your family
+- [03:57.230] for everything that you have done for us in our country.
+- [03:59.890] So thank you. I want to say.
+- [04:07.210] Thank you to all the officials that voted
+- [04:09.210] and helped make this happen.
+- [04:10.970] It doesn't just even happen in this state.
+- [04:12.710] As I learned as a freshman,
+- [04:14.050] you have to then go through many municipalities,
+- [04:16.080] which was a learning process for me as well.
+- [04:18.910] But I want to thank my staff, Kate, Lex, and Alexander.
+- [04:21.940] You guys are all rock stars.
+- [04:23.270] I'm so grateful to have you part of my team.
+- [04:30.390] President Donald J. Trump Boulevard
+- [04:32.240] now stands as a permanent reminder for courage,
+- [04:34.690] leadership, and unapologetic patriotism.
+- [04:37.620] I am proud to have played a role to make that happen.
+- [04:40.670] And I'm looking forward to the airport
+- [04:42.420] where greatness takes off.
+- [04:50.450] You like that, where greatness takes off?
+- [04:54.630] It is truly my honor
+- [04:57.280] to introduce the most incredible president of our lifetime,
+- [05:00.550] President Donald J. Trump.
+- [05:03.400] (applause)
+- [05:16.570] The President: That is something that's very special,
+- [05:18.900] that was a beautiful introduction.
+- [05:21.000] And it was from the heart; I could see that.
+- [05:23.300] Sometimes I get introduced not from the heart.
+- [05:25.760] We know that. We know about that, Danny.
+- [05:28.350] But this was amazing to see so many dignitaries,
+- [05:32.920] political leaders from Florida and beyond.
+- [05:35.810] It's really nice.
+- [05:37.320] It looks very nice that you're carrying it.
+- [05:41.080] That's beautiful. Thank you. Wow, that's the real deal.
+- [05:45.870] Thank you very much, we appreciate it.
+- [05:48.540] All top people in this room, really amazing people.
+- [05:52.430] And we have a lot of media back there
+- [05:54.200] and we appreciate that you're here.
+- [05:56.060] We very much appreciate that you're here.
+- [05:58.000] See, I'm being nice today to the media.
+- [05:59.710] I think I have -- but a very special
+- [06:02.860] thanks to State Representative Meg Weinberger,
+- [06:06.560] the job she's doing is amazing.
+- [06:10.660] And she's going to do very well politically.
+- [06:13.120] I used to tell her, I don't know, that's a tough race.
+- [06:15.200] That's a tough race but go do it.
+- [06:17.620] And she did it and she won.
+- [06:19.060] And then a lot of people
+- [06:20.830] didn't think she was going to be able to win,
+- [06:22.570] beating people that were doing it for a long time.
+- [06:25.270] You weren't doing it for a long time.
+- [06:26.750] But you've become a veteran very fast
+- [06:30.080] and you've done very well.
+- [06:31.750] Congratulations. We appreciate it.
+- [06:33.980] They call her MAGA Meg.
+- [06:35.890] And now and now when you have that you can never lose a race.
+- [06:40.050] You can't lose. People just didn't understand
+- [06:42.520] that you can't lose a race, right, with that.
+- [06:44.370] Thank you, darling.
+- [06:45.660] Where's your husband, by the way?
+- [06:46.910] Where is he? Eric? Meg Weinberger: My arm candy.
+- [06:48.510] The President: Wow, great job.
+- [06:49.920] Thank you very much for that reference.
+- [06:52.440] That was a very important reference.
+- [06:53.900] Thank you, Eric, very much.
+- [06:55.140] And speaking of Eric, I have Eric Trump right here --
+- [06:59.650] Who's a great guy.
+- [07:02.500] He's a great young guy and he's done a fantastic job.
+- [07:06.420] When I'm away, I don't know, I've looked at --
+- [07:10.150] I see things happening all over the world and him --
+- [07:12.990] the whole family has been so terrific.
+- [07:14.840] But Eric has been right there at the front,
+- [07:16.580] and I appreciate it very much.
+- [07:17.850] He's a great boy. We love that boy.
+- [07:21.520] We love that boy. Thank you, honey, appreciate it.
+- [07:24.390] And I'm thrilled to be back in my home state of Florida
+- [07:27.330] and this truly incredible privilege.
+- [07:30.010] I moved down here, I love New York,
+- [07:31.650] but it was just -- just worked that way.
+- [07:34.080] And you know, we won Florida so much
+- [07:37.360] and by so big and it's been --
+- [07:39.640] and it continues, just continues.
+- [07:42.070] We even have Club 47 here.
+- [07:43.680] Look at these Representatives. It used to be Club 45,
+- [07:48.360] then they said I think we're going to change it to Club 47
+- [07:50.970] and we're having a good time.
+- [07:52.680] Let me tell you, we're doing really --
+- [07:54.700] we're doing a job for our country.
+- [07:56.000] We're saving our country
+- [07:57.240] because if they would have gotten in this country
+- [07:59.610] would have been a place known as Venezuela on steroids.
+- [08:04.450] It would have been in big trouble.
+- [08:07.020] So, we did job and so many of the people,
+- [08:10.180] Gina, so many of the people in the room,
+- [08:13.530] they helped so much, it's incredible.
+- [08:15.820] So, I'm tremendously honored that the main boulevard
+- [08:18.750] from Palm Beach International Airport
+- [08:20.660] to the beautiful Mar-a-Lago is being renamed in my honor.
+- [08:24.130] That's a very important stretch.
+- [08:26.390] A lot of people, a lot of important people --
+- [08:28.730] and I don't care if they're important or not,
+- [08:30.280] but important and not important people travel on that road.
+- [08:34.070] But I love the people of Florida.
+- [08:35.580] I love the entire Palm Beach area.
+- [08:37.370] I've been here for a long time,
+- [08:39.170] and I want to thank you all for being here.
+- [08:41.410] I'll remember this amazing gesture for the rest of my life
+- [08:44.570] and in particular, Meg and Eric
+- [08:46.230] and all of the people that worked so hard for this.
+- [08:50.370] I also want to thank a man who's amazing.
+- [08:52.320] He's an administrator.
+- [08:53.560] He's one of the most talented people in the country
+- [08:56.420] at what he does. Joe Abruzzo. He's here someplace.
+- [08:59.630] Joe? What a talented guy.
+- [09:04.250] There's nobody better in the whole country at what he does
+- [09:06.930] and what he does is not easy.
+- [09:08.960] But everybody respects him and everybody listens to him
+- [09:11.680] and he's got great values.
+- [09:13.950] But he's got a great sense of design
+- [09:16.340] and everything else that you need.
+- [09:17.650] You need a lot of capability in that job,
+- [09:20.360] and you have every bit of it. Thank you, Joe, very much.
+- [09:23.040] I appreciate it. Thank you. And who is that young lady?
+- [09:26.490] Unidentified: (Inaudible)
+- [09:28.140] The President: Thank you very much.
+- [09:29.690] Fantastic. It's good to have you both.
+- [09:31.960] Let me also express my gratitude
+- [09:33.790] to all of the members of the Florida House,
+- [09:35.900] many of whom I've gotten to know over the years,
+- [09:38.400] and the Senate -- incredible people.
+- [09:41.220] I mean, literally incredible people --
+- [09:44.360] who united behind the legislation
+- [09:46.260] granting me this great honor
+- [09:47.660] including the Speaker of the House,
+- [09:49.170] Danny Perez, who I think has a hell of a future.
+- [09:52.040] I don't know what you're doing, Danny, but what a future.
+- [09:54.980] Wow. Because he has an unlimited political future.
+- [09:59.580] But whatever you choose, I'm behind you 100 percent.
+- [10:02.610] You know that, Danny. Thank you for a great job, great job.
+- [10:07.450] And state Senate President Ben Albritton.
+- [10:11.210] I want to thank you, Ben. Good job you're doing.
+- [10:15.160] Everybody's respected in this group.
+- [10:16.770] You know, they get along down in Florida,
+- [10:18.860] although I can't say that's necessarily always the case.
+- [10:21.490] I guess you probably have a couple of people
+- [10:23.260] that you're maybe not as friendly with,
+- [10:25.590] but you are great people.
+- [10:27.160] Ben, thank you very much. I appreciate it.
+- [10:29.680] Along with state Representatives Danny Nix,
+- [10:33.230] Chuck Brannan, Chip LaMarca, Mike Redondo, Juan Carlos Perez
+- [10:40.290] and state Senator Debbie Mayfield.
+- [10:43.430] Thank you all for being here. Thank you. Thank you very much.
+- [10:48.480] And we're also pleased to be joined
+- [10:50.850] by many distinguished guests including Congressman --
+- [10:53.650] a friend of mine for a long time, Brian Mast.
+- [10:59.630] Thank you, Brian. What a great guy.
+- [11:02.970] People love that guy.
+- [11:05.170] And another friend of mine and somebody --
+- [11:07.060] I mean you talk about attorney generals;
+- [11:09.300] there's no better attorney general than this one.
+- [11:11.840] He better win this race because I think he's going to --
+- [11:14.030] we're four, I'm 407 and 0,
+- [11:16.250] and I gave him my strongest endorsement and --
+- [11:20.560] James Uthmeier.
+- [11:22.100] So, where is James? Thank you. Thank you. Thank you.
+- [11:27.850] Thank you very much. You're doing good.
+- [11:30.580] How are the polls doing? Pretty good?
+- [11:32.610] It's a blowout, but let's not say
+- [11:34.080] that let's say you're winning by one or losing by one,
+- [11:37.050] doesn't make any difference, get them out to vote, right?
+- [11:39.660] It was an honor to endorse you and congratulations.
+- [11:43.310] Doing a great job. And I want to thank Ron too
+- [11:47.470] because Ron has been really behind this with Meg
+- [11:50.180] and everybody else.
+- [11:51.440] And we did have his backing 100 percent.
+- [11:53.720] I appreciate it. And it's a great honor.
+- [11:56.770] Thank you very much. See you.
+- [11:59.220] Florida Agricultural Commissioner, Wilton Simpson,
+- [12:02.050] who I've been with for a long time, right?
+- [12:05.190] I've been with him for a long time and I appreciate it.
+- [12:08.770] Thanks, Will, I appreciate it very much.
+- [12:10.580] Executive Director of the Florida Department
+- [12:12.830] of Highway Safety and Motor Vehicles,
+- [12:14.910] Dave Kerner, who had so much to do with this.
+- [12:18.510] Thank you. Thank you, Dave.
+- [12:22.540] Mayor of Palm Beach, Danielle Moore.
+- [12:24.810] She's a terrific woman.
+- [12:26.260] Where is Danielle? Thank you, Danielle.
+- [12:30.350] We're working on a little project,
+- [12:32.640] nice, beautiful, clean, crisp water, right?
+- [12:35.710] And she's leading it and she's incredible just like her mother
+- [12:38.350] was incredible and is -- oh, where's mom?
+- [12:41.470] I want to see mom -- oh, you look good,
+- [12:44.570] you look very good. I haven't seen --
+- [12:47.560] a former mayor of Palm Beach and highly respected.
+- [12:51.490] Who's respected more, you or your mother?
+- [12:53.280] I don't know, it's pretty close, right, pretty close.
+- [12:55.740] She says mom is respected more. That's good.
+- [12:58.120] A daughter better say that, right? Thank you, darling.
+- [13:01.350] Appreciate it. That's great. Thank you, Danielle.
+- [13:03.410] I'm glad you told me she was here.
+- [13:06.030] Former Mayor Lesly Smith is here who's great and a very --
+- [13:10.350] formally a very good golfer.
+- [13:11.590] I think she's still a good golfer.
+- [13:12.940] Lesly, where's Lesly? Lesly? Thank you very much, Lesly.
+- [13:17.620] Lesly Smith: (Inaudible)
+- [13:18.860] The President: Thank you.
+- [13:20.100] Thank you, darling. I appreciate it.
+- [13:22.450] We've known each other for a long time.
+- [13:24.430] Incredible people.
+- [13:26.170] And the members of the Palm Beach Town Council are here.
+- [13:29.080] Thank you all very much. You do a great job.
+- [13:30.950] You love the town. I love the town too.
+- [13:33.810] I had a lot of choice on towns, and I said this is the town
+- [13:37.100] I want to be in. So, we all love it
+- [13:39.420] and it's an honor to have saved Mar-a-Lago.
+- [13:42.910] You know, most of these great houses went down,
+- [13:45.650] they went down rapidly and they were subdivided
+- [13:49.450] into 25 homes, etc., etc.
+- [13:52.160] And I'll tell you what, this was an honor.
+- [13:54.850] But they like me because I saved the house.
+- [13:58.100] Somebody said they like me
+- [13:59.350] because you're a great president,
+- [14:00.610] but they like you more because I saved Mar-a-Lago.
+- [14:03.390] Saving Mar-a-Lago was to them more important.
+- [14:05.960] Unidentified: Saved America.
+- [14:07.180] The President: Thank you very much.
+- [14:08.420] I like you, thank you very much. Mayor of Palm Beach County,
+- [14:15.240] who I endorsed by the way, Sarah Baxter.
+- [14:18.180] Sarah. Hi, Sarah. Congratulations, Sarah.
+- [14:22.940] So, we're at 407 and 0;
+- [14:24.430] we have to make sure that you're going to --
+- [14:25.870] but I think it's going to work out very well.
+- [14:27.280] Congratulations.
+- [14:28.570] You had so many people that said you got to be with her,
+- [14:30.850] I said I am, I am. So, good luck with the election.
+- [14:34.000] I know it's going to work out very well.
+- [14:35.400] Thank you. Good luck.
+- [14:37.860] The members of the county commission
+- [14:40.300] and the West Palm Beach City Commission,
+- [14:43.580] who are unbelievable people, they love the area.
+- [14:47.050] They just -- they work hard and they're good.
+- [14:49.930] Where are you? Can you raise your hands a little bit?
+- [14:52.170] Great, great, great, great, great.
+- [14:55.070] Thank you. Thank you. Great job you're doing.
+- [14:59.270] You know, we're all working together, this place.
+- [15:02.070] We have -- we're working on a little water project
+- [15:04.660] and if we can get the water perfect, that'll be great.
+- [15:06.950] Mayor, you're -- you're heading it up
+- [15:08.440] from this part of the world,
+- [15:09.710] and I know they're working in West Palm Beach, in the area.
+- [15:12.420] And we'll see whether it's desalinization or filtering.
+- [15:15.780] There's a couple of different ways we can do it.
+- [15:18.260] But whatever we can do, I think it would be great.
+- [15:20.120] We're working along with West Palm Beach also.
+- [15:22.160] So thank you and thank you, Mayor.
+- [15:25.380] Dan Newlin is here and Gina Loudon is here
+- [15:29.200] and Linda Stotch is here
+- [15:31.390] and Larry and Sue Snowden is -- are here.
+- [15:34.280] Thank you, Larry and Sue. Thank you.
+- [15:37.160] And basically, just sort of like everybody's here,
+- [15:40.820] and it's really something special.
+- [15:42.510] We're pleased to be in the same legislation,
+- [15:47.940] as it renames another section of Southern Boulevard,
+- [15:50.770] in a very nice section indeed,
+- [15:52.420] I know it well, in honor of three brave motorcycle
+- [15:55.180] deputies from the Palm Beach Sheriff's Office
+- [15:57.380] who were killed last year in a horrific accident, horrible.
+- [16:01.670] It was a horrible situation, but I saw a lot of --
+- [16:06.510] I saw so much love.
+- [16:07.760] I saw everybody in this room was there,
+- [16:09.440] plus, plus, plus, at our -- we had a ceremony in honor
+- [16:13.880] of these three incredible people.
+- [16:15.810] Corporal Luis Paez Jr., who is just --
+- [16:21.520] Luis Paez was somebody who was loved
+- [16:24.200] and respected by so many people.
+- [16:26.200] They all said, thank you for being there in honor of her
+- [16:29.020] and Deputy Sheriff Ralph Butch
+- [16:32.130] Waller Jr. and Deputy Sheriff Ignacio Dan Diaz.
+- [16:37.250] The three of them, what happened to them, this was unbelievable.
+- [16:40.900] The ceremony was one of the most beautiful and saddest ceremonies
+- [16:44.460] that I've ever attended, but I was deeply honored to be there.
+- [16:49.120] On May 1st, I bestowed the honor of first ever --
+- [16:53.310] these were medals that were worked on by my son,
+- [16:56.930] Eric, very hard. We had a great jeweler.
+- [17:00.480] Can I say the name of the jeweler?
+- [17:02.970] Tiffany.
+- [17:04.500] And they -- they came up with a really incredible medal.
+- [17:09.920] And it's called the Medal of Sacrifice,
+- [17:12.980] and they did a beautiful job.
+- [17:14.350] And it was really led by Eric Trump.
+- [17:15.980] So I want to thank you, Eric, too.
+- [17:17.900] Thank you.
+- [17:21.810] And unfortunately, when events --
+- [17:23.810] certain events happen like that,
+- [17:25.320] and they do happen, they do happen,
+- [17:27.200] they shouldn't happen but they do happen,
+- [17:28.920] we're going to do the medal ceremony
+- [17:31.220] and it's going to be something special.
+- [17:33.880] So today, we pay tribute to them and to those --
+- [17:37.570] to the loved ones.
+- [17:38.840] Some of their family members are here
+- [17:40.490] and we love their family members, what they went through.
+- [17:43.650] Those deputies will live in our hearts forever.
+- [17:45.740] In Florida, we'll remember them always
+- [17:47.540] with the PBSO Motor Men Highway, PBSO Motor Men Highway.
+- [17:54.380] It's great, beautiful thing.
+- [17:56.210] I'm going to see it every time I go up that road.
+- [17:59.110] Today's dedication ceremony for President Donald J.
+- [18:01.960] Trump Boulevard is special meaning to me
+- [18:04.740] because I've always had the unique bond
+- [18:07.270] with the great state of Florida. We had tremendous success here.
+- [18:12.230] I've been part of the community for more than 40 years.
+- [18:15.800] We won big here in Florida all three times.
+- [18:18.300] We set every record every time.
+- [18:20.490] And in 2024, we swept 61 of 67 Florida counties.
+- [18:24.740] Nobody's ever done that, and carried the state
+- [18:27.610] by almost two million votes, which is the record.
+- [18:31.990] And then I was followed also from the governor's standpoint,
+- [18:36.160] with Ron, who did fantastically also.
+- [18:38.910] And we really -- we've turned this state --
+- [18:41.120] there are a few Democrats in this room.
+- [18:42.730] I don't want to get into this,
+- [18:43.950] but we've turned the state extraordinarily red,
+- [18:47.010] I would say, wouldn't you say?
+- [18:48.960] You'll find out. You're going to see.
+- [18:51.380] But over the past 12 months, Florida's trust and confidence
+- [18:54.270] has really paid off because you made a correct choice.
+- [18:57.870] One year ago, we were -- I say it, a dead country.
+- [19:00.790] The king of Saudi Arabia -- I was over in Saudi Arabia,
+- [19:03.190] getting money for the -- for the country.
+- [19:06.060] He put up $2 trillion, gave us --
+- [19:09.300] I'd like to invest in the United States, $2 trillion.
+- [19:12.170] It's a lot of money.
+- [19:13.670] And then I went to Qatar, $2 trillion.
+- [19:15.930] And I went to the United Arab Emirates, Mohammed, $2 trillion.
+- [19:22.490] So, we took in $6 trillion. That's why we have $18 trillion,
+- [19:25.630] because we got $6 trillion from three countries.
+- [19:27.310] That helps, right? Laura, is that right? Hi, Laura.
+- [19:30.950] Laura Loomer: Good to see you.
+- [19:32.210] The President: Boy, you are something. What spirit you have.
+- [19:37.090] Laura Loomer, thank you, honey, for being here. I appreciate it.
+- [19:40.820] She said -- you know, she can be a little nasty,
+- [19:42.950] but to me, she's always nice. So that's all that matters.
+- [19:45.720] I want her to stay that way too.
+- [19:48.330] But uh, I was over there and he looked at me,
+- [19:51.870] the king of Saudi Arabia,
+- [19:53.150] he said, you know, I can't believe it.
+- [19:55.170] This was a few months ago,
+- [19:57.320] took back all that money for the country.
+- [19:58.900] He said, I can't believe this is happening
+- [20:01.650] because one year ago you were a dead country
+- [20:04.610] and now you're the hottest country in the world.
+- [20:06.600] And I use that quote all over.
+- [20:08.890] And it's true. We were a dead country
+- [20:11.230] and now we are the hottest country anywhere in the world.
+- [20:14.610] We're taking in more income than any country.
+- [20:18.500] We're doing better than any country.
+- [20:20.080] The stock market's doing better than anyone's ever seen before.
+- [20:23.730] We have the best stock market we've ever seen.
+- [20:25.870] 401-Ks are doing better than they've ever done before.
+- [20:28.600] They're up 78 percent in many cases.
+- [20:32.010] But starting on day one,
+- [20:33.250] we fully secured our Southern Boulevard
+- [20:35.270] and stopped the -- and think of it,
+- [20:38.420] as we were securing Southern Boulevard,
+- [20:40.320] making Florida great,
+- [20:41.770] we're also securing a thing called the southern border
+- [20:44.710] and making that great.
+- [20:45.910] And we stopped the invasion of our country.
+- [20:48.750] So Florida's been ahead of our time.
+- [20:51.840] Florida was ahead.
+- [20:53.080] It led the way, but we stopped the --
+- [20:55.710] this was an invasion on our border.
+- [20:58.390] And you know, I don't know if this is correct
+- [20:59.890] because it can't be correct. It's too good.
+- [21:02.290] But for the last eight months, there have been no people
+- [21:05.810] that came into our country illegally.
+- [21:07.940] Now, I don't know if that's possible.
+- [21:10.700] How do you go from 25 million people in four years,
+- [21:14.560] to zero people? But the people, Wilton,
+- [21:17.910] the people that report this are Democrats,
+- [21:21.230] so it must be true. I mean, they got --
+- [21:23.420] but it's like eight months now and they report it every month.
+- [21:27.490] No people came into our country, so I don't know, illegally.
+- [21:31.670] A lot of people are coming in legally.
+- [21:33.430] They're going through a process,
+- [21:34.830] but we don't want the illegal coming in.
+- [21:37.090] You look at what's happening in Minnesota, it's so sad.
+- [21:40.190] And it's so sad because ICE --
+- [21:41.970] you know, ICE is taking out murderers.
+- [21:44.540] They're taking out drug lords.
+- [21:46.370] They're taking out people from mental institutions,
+- [21:48.880] bringing them back to their country.
+- [21:50.950] They're taking out the roughest -- roughest people,
+- [21:53.710] Tren de Aragua.
+- [21:55.490] The jails are emptied out from Venezuela.
+- [21:57.560] Now I like Venezuela very much. I say good things.
+- [22:00.900] I don't talk about Venezuela in a negative.
+- [22:02.870] I think it's a wonderful country.
+- [22:04.880] We just -- uh, we just were -- it's very interesting.
+- [22:08.290] It was -- it's so much different.
+- [22:09.880] It's changed so much in literally a week.
+- [22:13.610] Uh, it was one of the great military maneuvers of all time.
+- [22:17.080] It was like, flawless.
+- [22:18.430] It was one of the greatest of all time.
+- [22:21.420] But we're dealing with a new president.
+- [22:24.940] We're dealing with a lot of the people
+- [22:27.150] that were running the country and they had --
+- [22:29.870] our first thing is they said, we have 50 million barrels.
+- [22:34.120] Hard to believe, Eric.
+- [22:35.580] I said, is there such a thing as 50 million barrels?
+- [22:37.910] 50 million barrels of oil.
+- [22:40.770] And we have to get it processed immediately
+- [22:43.940] because we have no room.
+- [22:45.490] Will you take it? I said, we'll take it.
+- [22:47.560] I didn't have to consult with anybody on that.
+- [22:50.220] I didn't have to call up our great attorney general.
+- [22:52.420] I said, we will take it.
+- [22:54.620] And it's the equivalent of $5.2 billion.
+- [22:57.950] That was the first day
+- [22:59.310] and it's now traveling nicely to the United States.
+- [23:02.510] And we've had a great relationship with the people
+- [23:05.250] that that are currently the -- they call --
+- [23:08.820] they say the interim president and everybody else.
+- [23:11.220] And it's been -- I think a lot of pressure has been released,
+- [23:14.800] because, you know, that was a great country 20 years ago.
+- [23:17.100] And then it went bad because it had the wrong system.
+- [23:19.860] It had bad system.
+- [23:21.450] And we can't ever fall into a position where we have that --
+- [23:24.530] where we have that system
+- [23:25.760] because that system isn't going to work.
+- [23:27.210] That system can make a lot of people
+- [23:28.770] that are good people, bad people or incompetent people.
+- [23:32.260] But we passed the largest tax cuts in history,
+- [23:34.850] the largest regulatory cuts in history
+- [23:37.460] and the largest spending cuts in history.
+- [23:39.330] And that got done, we call it the Great Big, Beautiful Bill.
+- [23:42.770] We have no tax on tips, no tax on Social Security,
+- [23:46.590] no tax on overtime. People that buy a car,
+- [23:49.840] they get a deduction now on their interest,
+- [23:51.730] if they buy a car and borrow money, it never happened before.
+- [23:55.090] You know, rich people got used to taking deductions.
+- [23:58.310] People in middle-class situations
+- [24:00.700] or lower than middle class,
+- [24:03.030] they never got deductions on anything. They can now.
+- [24:05.360] I think it's going to have a huge impact.
+- [24:07.460] We're building more factories in the United States
+- [24:09.870] now than at any time in our history,
+- [24:12.270] and we have $18 trillion being invested.
+- [24:16.500] We have $18 -- think of that, $18 trillion,
+- [24:19.570] more than any country has ever had by five times.
+- [24:23.960] Think of that. There's never been anything even close.
+- [24:26.210] $3 trillion is the record.
+- [24:29.150] We're going to be, I think, at over $18 trillion.
+- [24:31.520] Through 10 months, it was $18 trillion.
+- [24:33.720] We could crack $20 trillion by the time we have our first year,
+- [24:37.890] which will be in a little while, January 20th.
+- [24:41.340] So I just -- uh, I mean, it's been -- it's been amazing.
+- [24:45.310] We also did a couple of other things.
+- [24:47.130] Critical race theory and transgender insanity
+- [24:49.950] is out of our schools and out of our lives.
+- [24:53.110] And -- and we got men out of women's sports,
+- [24:57.580] officially out of women's sports.
+- [25:02.570] And everyone said, well, that's an 80/20 issue.
+- [25:04.910] No, that's a 98/2 issue. I don't even think it's 98/2.
+- [25:09.390] Military recruitment is setting records.
+- [25:11.500] A year ago, uh -- and now you have to go a year
+- [25:15.360] and a half ago, I guess, but a year ago,
+- [25:18.500] military recruitment was at an all-time low
+- [25:20.980] and that included for police and firemen.
+- [25:23.600] And now military recruitment, police and firemen
+- [25:26.240] is the highest it's ever been.
+- [25:27.930] We have never had this many people apply for jobs,
+- [25:30.430] we've never seen anything like it.
+- [25:32.900] And we hire now on a merit-based system
+- [25:35.170] because we won the court case, the Supreme Court case.
+- [25:37.600] Everything is based on merit. So, we get people in merit
+- [25:41.520] as opposed to putting people in jobs
+- [25:43.110] that maybe shouldn't be there.
+- [25:45.050] Whether it's nice or not, it's how our country grew.
+- [25:47.520] It's how our country became great.
+- [25:49.040] So we have a merit-based system.
+- [25:53.230] In less than a year, we made eight piece deals
+- [25:55.670] and ended the war in Gaza.
+- [25:57.050] We have peace in the Middle East.
+- [25:58.400] Nobody thought that was going to be possible.
+- [26:00.650] We stopped India and Pakistan from fighting,
+- [26:03.870] two nuclear nations, they say many millions of people.
+- [26:06.580] The -- the Pakistani prime minister
+- [26:09.240] said Donald Trump saved at least 10 million people
+- [26:12.660] and it was amazing and it's an honor.
+- [26:17.700] And we obliterated Iran's nuclear enrichment capacity
+- [26:20.940] with Operation Midnight Hammer.
+- [26:23.250] That was another operation that was incredible.
+- [26:25.670] And then you have Al Baghdadi, we got out.
+- [26:28.930] That's a founder of ISIS, was rebuilding ISIS.
+- [26:31.540] We got him and Soleimani.
+- [26:33.460] He's the one that -- the roadside bomb.
+- [26:36.310] And frankly, he was a strong general
+- [26:38.900] that maybe we wouldn't have been so successful.
+- [26:40.930] I think we would have,
+- [26:42.200] but maybe we wouldn't have been so successful
+- [26:44.590] in Iran had he been around, but he destroyed a lot of lives
+- [26:48.950] and a lot of young people that walk around with no legs,
+- [26:52.280] no arms, a face that was just -- you know, just smashed.
+- [26:55.970] He was the father of the roadside bomb
+- [26:58.010] and he knew how to do it. We got him.
+- [27:00.470] And as I announced earlier this month from right here
+- [27:02.710] at Mar-a-Lago, we apprehended the outlaw known
+- [27:06.250] as dictator Nicolas Maduro of Venezuela
+- [27:11.300] for his crimes against the United States
+- [27:13.510] and the rest of the world.
+- [27:15.900] And actually, no other nation in the world could have done that
+- [27:18.360] and they actually admit that there's no other nation
+- [27:20.610] could have done what we did a week ago.
+- [27:22.810] Every single day of my administration,
+- [27:25.170] I will continue to put America first
+- [27:27.300] and fight for the great state of Florida.
+- [27:29.870] I love this state, special place.
+- [27:31.990] I don't know. It's just special. You know it. I know it.
+- [27:34.560] A lot of people know because a lot of people are coming here.
+- [27:37.390] So that when people see that the beautiful sign
+- [27:40.650] is all lit up nice at night
+- [27:42.390] and it says Donald J. Trump Boulevard,
+- [27:45.580] they'll be filled with pride, just pride,
+- [27:47.590] not in me, pride in our country, pride in this state,
+- [27:50.940] because our nation will be stronger, richer
+- [27:53.060] and more successful, which is what it is right now.
+- [27:55.990] We're stronger, richer and more successful
+- [27:58.260] than we have ever been before.
+- [28:00.350] And I didn't know, the biggest surprise
+- [28:01.980] is that we could do this quickly.
+- [28:03.280] I thought it would take us a couple of years, maybe,
+- [28:05.980] but we did it very quickly. I mean, it's been 11 months,
+- [28:09.720] and we've never had anything like it.
+- [28:12.140] More factories, more everything,
+- [28:13.740] there's never been anything like what we've done.
+- [28:16.160] And that means car factories too, not just the AI.
+- [28:18.500] The AI is unbelievable, what's happening there.
+- [28:21.430] We're leading China by a lot,
+- [28:22.740] but we're building more car factories
+- [28:24.790] than at any time in the history of our country.
+- [28:26.930] Who would think that?
+- [28:30.060] And that's largely because of tariffs.
+- [28:32.060] They don't want to pay the tariffs.
+- [28:33.570] It's pretty simple formula.
+- [28:34.830] You know, China became powerful because of that.
+- [28:37.580] They don't want to pay the tariff,
+- [28:38.790] but it only works, really, here. It works best here.
+- [28:41.250] What a lot of people don't understand,
+- [28:42.820] it doesn't work in most countries,
+- [28:44.270] but here it works great. So because of that,
+- [28:46.990] we have more things happening than we've ever had
+- [28:49.010] and I think you're going to see an explosion.
+- [28:50.810] You already see it, in all fairness,
+- [28:52.390] but this next year could be just an explosion of success.
+- [28:57.060] So once again, I want to express my gratitude to every official
+- [29:00.570] who contributed to this great honor, in particular,
+- [29:03.070] Meg, who's an incredible -- what a future.
+- [29:05.440] She's got a good future too, daddy, right?
+- [29:08.020] Right? Come on.
+- [29:14.130] And I want to thank, especially, my son and I
+- [29:17.670] want to thank the great people of Florida.
+- [29:19.930] This is just an amazing day for me and it's an amazing place
+- [29:24.060] and we're going to have three more great years,
+- [29:26.810] but hopefully, we're going to have many,
+- [29:28.510] many decades of greatness in this country.
+- [29:31.140] We have it off to the right start.
+- [29:32.800] Thank you all very much, what an honor.
+- [29:34.880] Thank you. Thank you. Thank you very much.
+- [29:37.800] Good luck. Thank you, fellas.
+- [29:52.520] (cheers and applause)
+- [30:00.020] The President: That's a serious sign.
+- [30:03.280] Well, you want to come up here? Look at that. Come on.
+- [30:05.510] I don't know if you're going to compete with it.
+- [30:07.240] Well, this is -- all of a sudden,
+- [30:09.270] you're looking a little bit -- a little bit squeezy here.
+- [30:17.120] Wow. I love that.
+- [30:19.500] The greatest president in our lifetime.
+- [30:21.920] Wilton, how old are you? That's not very (inaudible).
+- [30:25.570] And you do a great job too. Thank you very much.
+- [30:28.040] Appreciate it.
+- [30:30.350] (applause)
+- [30:37.460] Thank you all very much.
+- [30:38.850] You know, we have a wedding here now.
+- [30:41.100] So they said, sir, is there any way you can move it quickly?
+- [30:43.530] I said, I'm not moving it quickly. We're not.
+- [30:45.920] And the people getting married are outside and they said,
+- [30:48.220] take your time, sir, this is an honor.
+- [30:50.300] So, it's sort of cute. Have a good time.
+- [30:52.130] Thank you, everybody. Thank you.

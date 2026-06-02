@@ -1,0 +1,496 @@
+<!-- source: https://www.youtube.com/watch?v=omP3GPxaVog -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: omP3GPxaVog -->
+<!-- date_published: 2025-03-07T21:09:37+00:00 -->
+<!-- date_accessed: 2026-06-02T02:53:03.567333+00:00 -->
+
+# Transcript: President Trump Delivers Remarks at the White House Digital Assets Summit
+
+- [00:03.760] The President: Thank you very much.
+- [00:06.340] (Applause.)
+- [00:13.420] Well, thank you very much everyone.
+- [00:15.050] Great honor to have you.
+- [00:17.370] I know you’ve all been working very hard and very successfully.
+- [00:22.090] And it’s a wonderful place, the White House.
+- [00:26.440] I want to begin -- is Gianni here from World Cup?
+- [00:29.400] I want to thank you for this election,
+- [00:31.220] and they just had a presentation in the Oval Office,
+- [00:34.410] and I thought this was such a beautiful --
+- [00:38.240] this is the trophy. This is a big deal.
+- [00:39.850] The World Cup is the biggest sporting event.
+- [00:41.840] And Gianni Infantino is my friend for a long time.
+- [00:46.490] And during my first term,
+- [00:49.500] we worked out a deal to get the World Cup.
+- [00:51.580] And then, because of lots of interesting things
+- [00:55.350] that happened,
+- [00:57.140] I ended up being president when it showed up.
+- [00:59.550] I was always disappointed I wasn’t going to make it.
+- [01:02.190] I was going to serve eight straight.
+- [01:03.920] Instead, we did it the -- we did it the hard way,
+- [01:06.490] but maybe the more important way.
+- [01:08.960] So, I will be with you as president, Gianni.
+- [01:11.470] So, maybe you could just say a few words
+- [01:14.810] and show how beautiful the World Cup trophy is.
+- [01:18.430] Thank you. Mr. Infantino: (Inaudible.)
+- [01:19.740] The President: Yeah, sure. Please.
+- [01:23.900] Mr. Infantino: This is -- The President: Yeah.
+- [01:25.230] Mr. Infantino: -- the famous key.
+- [01:26.450] The President: That’s a great key.
+- [01:28.350] Mr. Infantino: You want to open it, President, or shall I?
+- [01:29.960] The President: Well, you go ahead.
+- [01:31.230] (Laughter.) I trust you.
+- [01:33.620] Mr. Infantino: So, this is the new trophy
+- [01:35.350] of a new competition.
+- [01:36.680] It’s called the FIFA Club World Cup --
+- [01:39.220] the 32 best clubs in the world
+- [01:41.470] with the absolute best players in the world.
+- [01:44.660] And for the first time in history,
+- [01:46.450] this competition takes place in United States.
+- [01:49.670] Opening game on the 14th of June --
+- [01:51.870] The President: Right. Mr. Infantino: --
+- [01:53.080] opening day in Miami.
+- [01:54.450] Final on on the 13th of July, this year,
+- [01:57.250] in New York/New Jersey. But it’s not that.
+- [01:59.540] The trophy is special because it has a key
+- [02:04.750] and because, as you can see, if I manage to do it --
+- [02:15.530] it’s a bit tricky. (Inaudible.)
+- [02:18.330] The President: Wow.
+- [02:20.030] Mr. Infantino: So, this is trophy.
+- [02:21.870] It is a trophy which represents --
+- [02:24.280] and that’s why I think it’s interesting
+- [02:26.830] to show this trophy exactly in this forum here,
+- [02:29.170] because it represents the past,
+- [02:32.350] but it’s also projected to the future.
+- [02:34.600] There is no other sports trophy which looks like that.
+- [02:39.700] It has engraved a history of the game of soccer --
+- [02:43.420] or football, as we call it --
+- [02:45.900] the participating teams on the first edition,
+- [02:49.100] the stadiums --
+- [02:50.330] beautiful stadiums in the United States --
+- [02:52.500] the United States of America
+- [02:53.770] where this competition will take place.
+- [02:56.800] So, at the same time, past, present,
+- [03:00.130] and projected for the future.
+- [03:01.880] And if I may, President, say another two words
+- [03:04.920] and then I let you work.
+- [03:07.440] I’d like to congratulate the president
+- [03:10.110] and the administration for --
+- [03:11.790] not only for the World Cup -- the Global Cup, the World Cup,
+- [03:15.900] and the great work done, but also for this initiative
+- [03:20.590] that you are speaking about here.
+- [03:22.300] If I may add something in this respect,
+- [03:25.430] I’m not an expert at all, but FIFA, as you know,
+- [03:29.990] is a brand which is globally known and a very strong brand.
+- [03:37.240] The soccer economy in the world is worth around
+- [03:40.710] $170 billion a year.
+- [03:42.990] Seventy percent of that, Mr. President, is in Europe.
+- [03:46.580] So. imagine the potential that there is around the world,
+- [03:51.070] only in soccer, if we develop it.
+- [03:54.470] And so, FIFA is very, very interested,
+- [03:59.250] under my presidency, to develop a FIFA coin --
+- [04:03.320] to do it from here, from America,
+- [04:07.620] and to conquer the 5 billion soccer fans in the world.
+- [04:11.270] So, if there is anyone here who is interested
+- [04:13.480] to team up with FIFA -- (laughter) --
+- [04:15.740] here we are together with the United States of America,
+- [04:18.950] and we will conquer the world of soccer with the FIFA coin.
+- [04:22.580] Thank you very much.
+- [04:24.150] The President: Thank you. That coin -- (applause)
+- [04:30.690] -- that coin may be worth more than FIFA in the end.
+- [04:34.900] It could be quite a coin, actually.
+- [04:36.350] (Laughter.)
+- [04:37.560] Anyway, thank you, Gianni. Great job.
+- [04:39.290] I just thought you should see this trophy,
+- [04:40.850] because it’s really --
+- [04:42.050] you know, it’s the biggest sporting event in the world,
+- [04:44.030] and we have it here,
+- [04:46.200] and we appreciate being selected.
+- [04:48.300] Thank you very much, Gianni. You do a fantastic job.
+- [04:51.720] And welcome to the first-ever White House
+- [04:54.300] Digital Asset Summit. I know that many of you
+- [04:57.860] have been fighting for years for this,
+- [05:02.380] and it’s an honor to be with you at the White House.
+- [05:06.540] I want to thank the White House AI and crypto czar, David Sacks.
+- [05:11.190] Treasury secretary -- this is David right here,
+- [05:14.670] in case you don’t know. You know David.
+- [05:17.490] And a man who’s doing a great job
+- [05:19.490] as the secretary of Treasury, Scott Bessent,
+- [05:25.050] who’s right here. Scott, thank you very much.
+- [05:28.040] Commerce secretary, Howard Lutnick --
+- [05:29.890] wherever you may be, Howard.
+- [05:31.100] Mr. Sacks: Right there. The President: Hi, Howard.
+- [05:32.330] Secretary Lutnick: How are you?
+- [05:33.550] The President: He’s doing some interesting work right now
+- [05:35.760] with all that’s going on.
+- [05:37.530] He’s right in the middle of it, and doing a great job.
+- [05:40.150] Thank you.
+- [05:41.350] SBA Administrator Kelly Loeffler. And hi, Kel.
+- [05:46.830] SEC Commissioner Hester Peirce. Thank you, Hester.
+- [05:52.670] Acting CFTC Chairman Caroline Pham.
+- [05:59.560] House Majority Whip Tom Emmer. Hello, Tom.
+- [06:03.470] Representative Emmer: Hello, Mr. President.
+- [06:04.670] The President: Representative Bryan Steil, thank you.
+- [06:07.820] Representative Steil: Thank you.
+- [06:09.110] The President: Bryan, thank you very much.
+- [06:10.780] Digital Assets Council Director Bo Hines.
+- [06:14.430] Good, Bo. Great job.
+- [06:16.250] And many other distinguished guests.
+- [06:17.610] We have a lot of very distinguished people
+- [06:19.140] around the table. Some of them will be speaking.
+- [06:22.410] I want to thank Marco Rubio also, who’s right over there.
+- [06:26.320] And we have tremendous people very interested in this subject.
+- [06:30.720] And last year, I promised to make America
+- [06:33.420] the Bitcoin superpower of the world
+- [06:35.400] and the crypto capital of the planet.
+- [06:37.660] And we’re taking historic action to deliver on that promise.
+- [06:41.220] As you know around the table, yesterday,
+- [06:44.330] I signed an executive order officially
+- [06:46.210] creating our Strategic Bitcoin Reserve,
+- [06:50.110] and this will be a virtual Fort Knox for digital gold
+- [06:54.220] to be housed within the United States Treasury.
+- [06:57.120] Right? That’s a big thing, Scott.
+- [06:59.020] (Applause.) That’s good.
+- [07:10.180] The federal government is already among
+- [07:12.400] the largest holders of Bitcoin, as you know --
+- [07:16.310] really one of the largest holders in the world,
+- [07:19.170] with as many as 200,000 Bitcoin obtained via civil law
+- [07:24.070] and various other forms of law
+- [07:26.380] and including enforcement actions.
+- [07:29.310] These existing holdings
+- [07:30.610] will form the foundation of the new reserve.
+- [07:34.040] Unfortunately, in recent years, the U.S. government
+- [07:36.560] has foolishly sold tens of thousands of additional Bitcoin
+- [07:40.780] that were worth billions and billions of dollars
+- [07:43.780] had they not sold them. But they did sell them,
+- [07:45.840] mostly during the Biden administration,
+- [07:48.730] and not a good thing to have done.
+- [07:51.840] From this day on, America will follow the rule
+- [07:54.160] that every Bitcoin knows very well, never sell your Bitcoin.
+- [07:57.790] That’s a little phrase that they have.
+- [07:59.720] I don’t know if that’s right or not.
+- [08:01.540] Who the hell knows, right?
+- [08:03.760] (Laughter and applause.)
+- [08:08.320] Who knows? Who knows?
+- [08:10.150] But so far, it’s been right, and let’s keep it that way.
+- [08:14.790] The Treasury and Commerce departments
+- [08:17.040] will also explore new pathways to accumulate
+- [08:19.560] additional Bitcoin holdings for the reserve,
+- [08:22.160] provided it’s done at no cost to the taxpayers.
+- [08:25.590] We don’t want any cost to the taxpayers.
+- [08:27.950] In addition, my order directs federal agencies
+- [08:30.950] to conduct an inventory of all crypto assets
+- [08:34.150] currently held by the U.S. government and determine
+- [08:36.710] how they can be transferred easily to the Treasury.
+- [08:41.220] Non-Bitcoin digital assets will be held
+- [08:44.720] at a new U.S. digital assets stockpile
+- [08:47.740] where they will be managed properly.
+- [08:50.750] My administration also is working to end
+- [08:52.960] the federal bureaucracy’s war on crypto,
+- [08:55.440] which was really going on pretty wildly during Biden,
+- [08:58.880] until the election came about.
+- [09:01.180] About five months before the election,
+- [09:03.640] he became a big fan
+- [09:05.370] because he heard how many people were in favor of it
+- [09:08.210] and how many people love it and respect it.
+- [09:11.900] But I guess it didn’t work out too well for him.
+- [09:15.120] People understood what was going on.
+- [09:17.430] And paved the way for groundbreaking innovations
+- [09:20.000] in institutional finance.
+- [09:22.230] Under the Bitcoin administration,
+- [09:23.840] regulators strongarmed banks. I mean, they really did.
+- [09:27.530] They strongarmed banks into closing the accounts
+- [09:30.320] of crypto businesses and entrepreneurs,
+- [09:32.570] effectively blocking some money transfers to and from exchanges,
+- [09:36.800] and they weaponized government against the entire industry.
+- [09:40.410] But I know that feeling also.
+- [09:42.390] (Laughter.) Maybe better than you do.
+- [09:44.500] (Laughter.)
+- [09:45.710] All of that will soon be over.
+- [09:47.670] And we are ending Operation Choke Point 2.0.
+- [09:50.110] (Applause.)
+- [09:51.310] Participant: Hear, hear!
+- [10:01.070] The President: No, some people really suffered.
+- [10:02.730] It was ridiculous what they were doing.
+- [10:04.710] But in the end, they came around,
+- [10:08.100] but they came around for the wrong reasons.
+- [10:10.110] They came around only because they wanted votes
+- [10:13.060] and they saw that tens of millions of people are --
+- [10:16.810] you know, were against them because of what they were doing.
+- [10:19.930] I also want to express my strong support
+- [10:22.000] for the efforts of lawmakers in Congress
+- [10:24.210] as they work on bills to provide
+- [10:26.280] regulatory certainty for dollar-backed stablecoins
+- [10:30.230] and the digital assets market.
+- [10:32.830] They’re working very hard on that.
+- [10:34.390] This is a tremendous opportunity for economic growth
+- [10:37.370] and innovation in our financial sector
+- [10:39.960] and will really go a long way.
+- [10:43.180] I think there’s going to be a tremendous --
+- [10:46.300] we feel like pioneers, in a way --
+- [10:47.850] a tremendous method of growth.
+- [10:50.840] And things are very much tied,
+- [10:54.440] and we want to keep it that way -- the U.S. dollar --
+- [10:57.200] long into the future. We’re going to keep it that way.
+- [10:59.740] I hope lawmakers will send that legislation to my desk
+- [11:03.690] before August recess, if they can.
+- [11:06.830] And they’re very much working with you.
+- [11:09.370] And you know a lot of them, and a lot of them were committed
+- [11:12.410] right from the very beginning.
+- [11:14.140] So, I just want to congratulate you all
+- [11:15.950] for being at the White House today.
+- [11:17.570] And a man who knows more about Bitcoin and AI
+- [11:20.890] and just about everything else than anybody -- David Sacks.
+- [11:24.390] And I’d like to have you say a few words, David.
+- [11:27.350] Mr. Sacks: Thank you, Mr. President.
+- [11:28.670] We’re all here today because of your leadership,
+- [11:30.660] your vision, and your generosity.
+- [11:32.160] And I really want to thank you for that.
+- [11:35.160] I -- we’re also here because of your desire
+- [11:37.250] to make America great
+- [11:38.570] and to introduce a golden age in America,
+- [11:40.910] including for digital assets.
+- [11:42.500] And we’re here because of your love of -- of innovators
+- [11:45.370] or, as you might say, high-IQ people.
+- [11:46.780] The President: Yeah, high-IQ people.
+- [11:47.980] (Laughter.)
+- [11:48.330] Mr. Sacks: We know you lo- -- love high-IQ people.
+- [11:49.560] The President: We like them. Mr. Sacks: And we have --
+- [11:50.770] we have about 30 of them here in the room today.
+- [11:52.200] These are the top people in the --
+- [11:53.680] in the digital asset industry.
+- [11:55.990] And I -- and one other thing that I think that you love is --
+- [11:58.820] is legal fairness.
+- [12:00.680] This is an industry that was subjected
+- [12:02.210] to prosecution and persecution
+- [12:03.830] for the last four years, horrible lawfare,
+- [12:06.490] and nobody knows what that feels like better than you do.
+- [12:10.010] So, we really appreciate the fact
+- [12:11.920] that you understand legal fairness
+- [12:13.590] and that you’re always willing to fight for the right --
+- [12:16.300] for the right thing, for legal fairness.
+- [12:17.790] You never back down. You stand defiant,
+- [12:19.800] even in the face of an assassin’s bullet.
+- [12:21.900] It’s an inspiration to everyone in this room, I think.
+- [12:23.690] The President: Thank you.
+- [12:24.990] Mr. Sacks: So, it’s an honor -- (applause).
+- [12:26.300] The President: That’s very nice. Thank you. Thank you.
+- [12:34.640] Mr. Sacks: So, I just want to say, it’s --
+- [12:35.860] it’s an honor to work for you.
+- [12:37.090] It’s an honor to -- to work for a president who --
+- [12:39.000] who works every day to get so much done
+- [12:40.510] on behalf of the American people.
+- [12:41.790] Your administration is moving at tech speed.
+- [12:43.620] It’s really amazing.
+- [12:44.820] It’s actually faster than any startup
+- [12:46.350] that I’ve been a part of. (Laughter.)
+- [12:47.620] Is -- your administration moves even faster.
+- [12:49.820] So, I just want to say thank you for having me be a part of it.
+- [12:52.750] I’ve enjoyed every minute of it, I love working for you,
+- [12:55.200] and thank you again for this opportunity.
+- [12:57.150] The President: Thank you, David, very much. Appreciate it.
+- [12:59.250] Mr. Sacks: And -- (applause).
+- [13:02.340] The President: Scott.
+- [13:03.570] Mr. Sacks: And now I just want to pass the ball
+- [13:05.610] to Secretary Bessent to say something.
+- [13:07.230] The President: Scott.
+- [13:11.600] Secretary Bessent: David.
+- [13:13.220] So, the -- today, when President Trump
+- [13:17.030] has signed the executive order to Establish
+- [13:19.990] the Strategic Bitcoin Reserve and Stockpile,
+- [13:22.810] we’re going to position the United States
+- [13:24.520] as a leader among nations in the digital asset strategy.
+- [13:28.570] It’s important for the United States to recognize this fact
+- [13:31.730] and get ahead of the other nations in the digital age.
+- [13:35.310] We applaud the president’s direction
+- [13:37.530] to use the digital assets
+- [13:38.940] already in possession of the nation,
+- [13:41.110] and we are going to establish this Bitcoin reserve.
+- [13:44.660] We will use this authority to augment
+- [13:47.070] the assets side of the United States balance sheet.
+- [13:50.450] As I’ve said many times,
+- [13:52.370] President Trump is creating assets for the American people,
+- [13:56.280] while most past presidents have created debt.
+- [13:59.860] And a large part of this asset program
+- [14:02.520] can be in digital assets.
+- [14:05.820] We are going to end the regulatory weaponization
+- [14:08.980] against digital assets.
+- [14:10.700] The Biden administration’s actions
+- [14:12.700] did nothing other than publish and -- punish innovators,
+- [14:16.830] and that all of you have made it here today
+- [14:19.480] is really a testament to your fortitude.
+- [14:22.490] Much of Treasury’s responsibility in this order
+- [14:25.230] relates to the tax code
+- [14:26.540] and determinations around risk waivings.
+- [14:29.200] And I’m here to assure you that we are going to work
+- [14:32.010] with the controller of the currency, the IRS,
+- [14:35.300] and we’re going to resend
+- [14:36.810] and amend all applicable previous guidance.
+- [14:40.670] And we are going to put a lot of thought
+- [14:43.130] into the stablecoin regime.
+- [14:45.170] And as President Trump has directed,
+- [14:48.940] we are going to keep the U.S.
+- [14:50.990] the dominant reserve currency in the world,
+- [14:53.300] and we will use stablecoins to do that.
+- [14:55.690] Thank you. (Applause.)
+- [14:57.030] The President: Thank you, Scott.
+- [15:01.750] Howard.
+- [15:05.000] Secretary Lutnick: Technology is at the foundation
+- [15:09.610] of the Trump presidency.
+- [15:12.220] He understands technology, he embraces technology,
+- [15:16.290] and he’s going to use technology to drive America forward.
+- [15:21.210] The blockchain and Bitcoin technology
+- [15:24.390] are a key part of that thinking and embracing that.
+- [15:29.580] And here today shows how much a leader
+- [15:33.950] the Trump administration and our president is.
+- [15:36.310] He understands it. He embraces it.
+- [15:38.980] As you said, you’re a pioneer in this place,
+- [15:42.000] and this is where we’re going.
+- [15:43.670] We’re using the blockchain. We’re using Bitcoin.
+- [15:47.010] We are going to use digital assets to pound forward,
+- [15:49.990] and Donald Trump is leading the way.
+- [15:52.010] Can’t be more proud of you today.
+- [15:53.260] The President: Thank you very much.
+- [15:54.520] Thank you, Howard. (Applause.)
+- [15:59.940] Kelly, go ahead, please.
+- [16:01.690] Administrator Loeffler: Thank you, Mr. President.
+- [16:03.040] This is truly a historic day. And as a crypto founder,
+- [16:06.460] I couldn’t be more proud to be part of your administration.
+- [16:10.080] You’re moving at the speed of tech, for sure.
+- [16:12.780] And I will just say, it’s gr- --
+- [16:14.380] a great day to have the war on not just crypto,
+- [16:16.950] but the war on innovation done. And under your administration,
+- [16:20.540] we are truly going to enter under the gold --
+- [16:22.670] into the golden age.
+- [16:23.920] And I’ll just say, as the administrator of the SBA:
+- [16:27.130] Small business is a tremendous network
+- [16:29.590] that crypto can be deployed against,
+- [16:31.990] and so the SBA is open to crypto.
+- [16:35.110] So, I look forward to working with
+- [16:37.250] all of the leaders in this room to advance your efforts here.
+- [16:40.380] Thank you. (Applause.)
+- [16:41.710] The President: Thank you, Kelly. Thank you very much.
+- [16:45.520] Tom, please.
+- [16:47.370] Representative Emmer: Well, Mr. President,
+- [16:48.730] I want to say thank you.
+- [16:50.210] I want to thank you for the amazing team
+- [16:52.060] that you put together. I want to thank you for David.
+- [16:54.350] I mean this -- this kind of a meeting --
+- [16:56.640] no one in this room could have envisioned
+- [16:58.290] this just a couple years ago.
+- [17:00.120] You are the one that has the vision.
+- [17:01.580] You’re the one that did --
+- [17:02.790] said we are going to do 21st century finance
+- [17:05.410] right here in the United States of America.
+- [17:07.740] I’ve been doing this for nine years.
+- [17:09.860] It is amazing how far we’ve come,
+- [17:11.830] and that’s a credit to you, Mr. President, and your leadership.
+- [17:14.780] And God bless you for doing this,
+- [17:16.140] because it’s going to make a huge difference
+- [17:18.000] with everything else you’re doing.
+- [17:19.430] And, by the way, Americans love it.
+- [17:22.120] They’re going crazy. Thank you, sir.
+- [17:23.490] The President: Thank you, Tom. Thank you very much.
+- [17:25.370] (Applause.)
+- [17:26.940] Thank you. Thank you very much.
+- [17:29.090] Anybody else?
+- [17:30.470] Mr. Sacks: (Inaudible.)
+- [17:31.670] The President: Go ahead, please.
+- [17:32.890] Mr. Sacks: Does anyone want to say a couple of words?
+- [17:35.310] Cameron or Tyler, do you want to --
+- [17:36.610] Mr. Armstrong: I’ll say --
+- [17:37.840] The President: You’re very shy in front of the cameras.
+- [17:39.050] Mr. Sacks: Actually, Cam- -- Cameron, I --
+- [17:40.250] I think you said something earlier
+- [17:41.540] that I thought was really profound.
+- [17:42.820] You said that a year ago you thought it would be
+- [17:44.790] more likely that you’d end up in jail than at the White House.
+- [17:48.370] Do you -- not to put you on the spot,
+- [17:49.990] because you didn’t do anything wrong,
+- [17:51.380] but that was the environment a year ago.
+- [17:52.790] (Laughter.)
+- [17:54.060] The President: Hi, fellas.
+- [17:55.350] Mr. Sacks: But do you guys want to say something,
+- [17:57.480] either one of you?
+- [17:58.800] Mr. Cameron Winklevoss: Sure. That was actually
+- [18:00.070] Tyler who said that. (Laughter.) But -- but --
+- [18:02.100] Mr. Sacks: Sorry. I still -- I still get mixed up.
+- [18:04.770] Mr. Cameron Winklevoss: But yeah,
+- [18:05.980] we never thought that we’d be --
+- [18:07.260] get attacked the way we did in our backyard
+- [18:10.130] after trying to do the right thing for so many years
+- [18:13.610] and always trying to raise the bar
+- [18:15.660] with respect to regulation.
+- [18:17.200] So, it’s truly wonderful to see how things have changed
+- [18:20.800] and how the pendulum has swung back in the way that it has.
+- [18:25.050] And we’ve always felt that the U.S. should lead in Bitcoin
+- [18:28.820] and crypto and it’s ours to sort of lead and win.
+- [18:32.990] And it’s just wonderful what President Trump
+- [18:35.820] has been doing with this,
+- [18:37.810] and we look forward to working together.
+- [18:39.910] And thanks for inviting us, David, and setting this up.
+- [18:43.240] The President: Thank you. Thank you both.
+- [18:45.120] Please.
+- [18:47.990] Mr. Tyler Winklevoss: I was just going to say
+- [18:49.270] thank you, Mr. President.
+- [18:51.470] Cameron takes credit for a lot of my things I say,
+- [18:53.970] so it’s not the first time. (Laughter.)
+- [18:55.690] But the U.S. won the Internet, and the U.S. should win crypto.
+- [19:01.000] So, thank you for your leadership on this.
+- [19:02.590] The President: Thank you both very much.
+- [19:04.270] High-IQ individuals around this table.
+- [19:06.780] That’s what I always say, we need high IQ.
+- [19:09.320] So, thank you very much.
+- [19:10.530] Would anybody like to say anything?
+- [19:12.050] Mr. Armstrong: Sure. The President: Please.
+- [19:13.480] Mr. Sacks: Okay. We’ll come around.
+- [19:15.490] Mr. Nazarov: I just want to express my deep gratitude
+- [19:18.870] for the seriousness with which you’re approaching our industry
+- [19:22.790] and how you’re actually helping guide it in the right direction.
+- [19:25.980] I work with many central banks in other countries.
+- [19:27.800] And when I was working there,
+- [19:29.060] I was wondering why I, as an American citizen,
+- [19:30.990] can’t help the United States financial system
+- [19:33.360] reach this higher level
+- [19:35.080] that the world is on course towards generally.
+- [19:37.150] The President: Right.
+- [19:38.370] Mr. Nazarov: And so, I’m very grateful
+- [19:39.610] that finally there’s been a new level
+- [19:41.650] of kind of common sense and --
+- [19:43.420] and adoption of -- of these ideas.
+- [19:45.810] Me and the other people in this room
+- [19:47.190] do believe that the crypto, blockchain, Web3 infrastructure
+- [19:50.980] is the next iteration of the financial system,
+- [19:53.940] and I think that the U.S. should have its leadership position
+- [19:56.680] continue in that new financial system.
+- [19:58.960] And I’m -- I’m very, very happy to see people like David Sacks,
+- [20:02.230] Secretary Bessent, Secretary Lutnick
+- [20:04.300] taking this very seriously with their time,
+- [20:05.870] and very grateful to them too.
+- [20:07.320] So, I’m -- I’m just overjoyed to see this,
+- [20:10.100] and I think it is a big part
+- [20:11.930] of how the U.S. can continue its role
+- [20:14.080] in the global financial system. So, thank you.
+- [20:16.710] The President: Thank you very much.
+- [20:18.570] I thought it was very important
+- [20:19.970] that we stay in the front of this one.
+- [20:23.350] This is a big one.
+- [20:25.020] And as you know, China is pushing forward
+- [20:27.620] and very strongly as usual, but we’re way in the lead --
+- [20:32.270] as we are in AI and other things --
+- [20:34.440] and we want to stay there.
+- [20:36.030] So, I thought this was very important.
+- [20:37.660] And we have some brilliant people
+- [20:39.200] sitting around this table,
+- [20:41.300] and it’s an honor to have you involved,
+- [20:43.290] but we want to stay at the forefront of everything.
+- [20:47.020] And this is a very important day in your lives.
+- [20:49.340] I know you worked -- some of you -- very long,
+- [20:51.800] long before people really understood what was happening.
+- [20:55.000] And so, I congratulate you. But this is a big day.
+- [20:57.430] Being in the White House is a big deal,
+- [20:59.940] and you have great support.
+- [21:01.440] Thank you all very much. Thank you very much.
+- [21:04.050] (Applause.)
+- [21:07.240] Thank you. Please. Thank you very much.
+- [21:10.470] Thank you, media. Thank you. Please.

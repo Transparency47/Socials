@@ -1,0 +1,830 @@
+<!-- source: https://www.youtube.com/watch?v=Xfvh4CGhVDU -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: Xfvh4CGhVDU -->
+<!-- date_published: 2025-07-29T17:58:07+00:00 -->
+<!-- date_accessed: 2026-06-02T02:46:28.085384+00:00 -->
+
+# Transcript: President Trump Gaggles with the Press on Air Force One, July 29, 2025
+
+- [00:00.700] The President: Hello, everybody.
+- [00:01.910] I hope you had a good time in beautiful Scotland.
+- [00:05.040] Did a lot of work with the European Union and yesterday
+- [00:09.290] I spent pretty much a whole day with the Prime Minister of UK
+- [00:15.240] and we had a lot of good discussions.
+- [00:18.720] Although I see something came up today, which is interesting.
+- [00:21.970] So, go ahead. Hello.
+- [00:23.270] The Press: Hi, Mr. President.
+- [00:24.510] [inaudible] – Can we ask about that
+- [00:26.290] [inaudible] on Gaza?
+- [00:27.580] Keir Starmer has just announced the UK will recognize
+- [00:30.580] Palestinian sovereignty in September,
+- [00:32.990] if Israel does not commit to a ceasefire,
+- [00:34.980] ease the suffering in Gaza,
+- [00:36.710] and commit to a long-term solution
+- [00:38.640] that would deliver the two-state solution in the Middle East.
+- [00:40.850] Did you know that was coming? What did you discuss?
+- [00:43.140] The President: No, we never discussed it, surprisingly,
+- [00:44.900] it was never really discussed.
+- [00:46.540] Maybe a little bit at the news conference,
+- [00:48.310] but he was discussing it with you.
+- [00:50.560] We never did discuss it and we have no view on that.
+- [00:54.740] We're going to get a lot of money to the area
+- [00:57.140] so they can get some food.
+- [00:58.500] He's going to also, I think the European Union
+- [01:02.060] is going to put up money too for food
+- [01:04.820] and hopefully it's going to be properly distributed,
+- [01:07.580] and it will be, I think it will be.
+- [01:09.140] We have some pretty good response on people
+- [01:12.470] for the distribution of the food.
+- [01:15.190] The Press: Mr. President.
+- [01:16.480] The President: We want to take it one thing at a time.
+- [01:19.030] They need food and they need people
+- [01:20.800] to be able to get them the food.
+- [01:22.640] The Press: But to follow up on that,
+- [01:23.940] is there any use at all in pressuring Israel
+- [01:26.830] now to come to some sort of longer-term solution?
+- [01:28.430] [inaudible]-
+- [01:29.630] The President: Well, you could make the case
+- [01:30.830] that you're rewarding people,
+- [01:32.220] that you're rewarding Hamas if you do that.
+- [01:35.890] And I don't think they should be rewarded,
+- [01:37.760] so I'm not in that camp to be honest.
+- [01:41.460] We'll let you know where we are in,
+- [01:42.800] but I am not in that camp.
+- [01:44.110] The Press: Mr. President.
+- [01:45.320] The President: Because if you do that,
+- [01:46.600] you really are rewarding Hamas and I'm not about to do that.
+- [01:49.500] The Press: Mr. President,
+- [01:50.730] you mentioned setting up food centers.
+- [01:53.210] When can we expect to see those food centers?
+- [01:54.840] The President: Very soon. Very soon.
+- [01:56.320] So we said $60 million.
+- [01:57.950] It's a lot of money for food, a lot of money,
+- [02:00.420] that can take care of people for a long time.
+- [02:02.880] And we want to make sure it's being spent properly
+- [02:07.970] and part of the spending is the distribution.
+- [02:12.460] If you know, a lot of money's been sent by other countries,
+- [02:15.170] but nothing compared to us,
+- [02:18.060] but a lot of things have been stolen.
+- [02:20.370] They send money, they send food and Hamas steals it,
+- [02:23.900] so it's a tricky little game,
+- [02:25.610] but we're going to make sure we have some very good people.
+- [02:28.650] They're going to be watching it.
+- [02:30.070] The Press: Who is going to be
+- [02:31.290] running those food centers for you
+- [02:32.540] and what kind of oversight can we expect?
+- [02:33.810] The President: Well, we're going to be dealing with Israel
+- [02:35.550] and we think they can do a good job of it.
+- [02:37.860] And they want to do it.
+- [02:39.140] The Press: Of monitoring the food centers?
+- [02:40.420] The President: No, they want to do it, the food centers.
+- [02:42.280] They want to preside over the food centers
+- [02:45.140] to make sure the distribution is proper.
+- [02:48.010] The Press: [inaudible]
+- [02:49.260] great time seeing that beautiful course,
+- [02:50.610] but there's some critics who say this was a promotional trip
+- [02:52.880] for you and your business.
+- [02:54.140] The President: What?
+- [02:55.380] The Press: That it promoted you and your business personally.
+- [02:56.950] What do you say to them?
+- [02:58.230] The President: I haven't heard that.
+- [02:59.440] No, I haven't heard that.
+- [03:01.670] Did you get to see my drive in the first hole?
+- [03:03.830] The Press: You hit it straight and pretty high.
+- [03:05.070] The President: I did. Pretty long. It's pretty long.
+- [03:08.660] That's no Joe Biden, let me tell you.
+- [03:12.560] That's not Biden, right? That was a good drive.
+- [03:16.100] The Press: When did you last
+- [03:17.380] speak to Prime Minister Netanyahu?
+- [03:18.620] And when will you speak to him again?
+- [03:19.900] The President: Two days ago.
+- [03:21.150] The Press How many?
+- [03:22.490] The President: Two days ago.
+- [03:23.700] The Press: Do you think you'll –
+- [03:24.980] The President: I said we sent money
+- [03:26.710] and I want to make sure the money is spent wisely,
+- [03:29.020] and it's spent judiciously,
+- [03:31.520] and that food is distributed in a proper manner.
+- [03:34.170] And he wants to do that.
+- [03:35.390] The Press: Mr. President,
+- [03:36.610] you've talked about moving Palestinians out of Gaza.
+- [03:39.780] You said that in the past. Do you still support that idea?
+- [03:42.030] The President: Well, it's a concept
+- [03:43.260] that some people fell in love with it and some people don't.
+- [03:46.570] We really have to see how it all works out before we do that.
+- [03:49.130] But you could do something spectacular,
+- [03:52.770] but that's a different concept.
+- [03:55.260] You could also probably do it if you left some –
+- [03:57.490] some are leaving automatically, you know that.
+- [03:59.800] Some would like to leave. I think many would like to leave
+- [04:02.540] if they were given an alternative,
+- [04:03.940] they really have no alternative now.
+- [04:06.200] But certainly that was a concept
+- [04:07.690] that was really embraced by a lot of people,
+- [04:12.460] but also some people didn't like that.
+- [04:14.810] The Press: Prime Minister Starmer,
+- [04:16.120] he was critical of Israel
+- [04:19.330] and said more pressure needed to be put on Israel
+- [04:21.900] to allow food to get in at speed.
+- [04:25.540] Do you feel that Israel is a good-
+- [04:29.840] The President: I think Israel wants to do it actually.
+- [04:32.450] I think Israel wants to do that. They're going to want to,
+- [04:35.310] and I can tell you that they want to do it.
+- [04:38.250] They don't want Hamas stealing the money or stealing the food,
+- [04:41.220] and that's what they've been doing.
+- [04:42.670] The Press: Do you think Israel can be trusted
+- [04:44.300] to allow more food in faster?
+- [04:45.780] The President: Look, I think Israel wants to do it,
+- [04:48.040] and they'll be good at doing it.
+- [04:50.130] If they do it, and if they really want to do it,
+- [04:52.000] and I think they do, they'll do a good job.
+- [04:54.250] The food will be properly distributed.
+- [04:56.320] The Press: There's a perception maybe that Keir Starmer
+- [04:58.090] didn't do so well in the press conference yesterday.
+- [05:01.750] Do you have any words of support for him?
+- [05:03.760] The President: I thought he did well in the press conference
+- [05:06.890] and I think they made a good deal.
+- [05:09.080] I think we all made a good deal.
+- [05:13.230] Why, are you hearing otherwise, I guess?
+- [05:15.180] The Press: Yeah.
+- [05:17.010] And I think the feeling is that he was maybe a little weak
+- [05:20.180] and didn't really have very strong answers
+- [05:22.170] and maybe wasn't entirely honest
+- [05:23.810] about free speech and immigration.
+- [05:25.350] The President: I don't know. I like him. I think he's good.
+- [05:27.040] I think he's a great representative for UK.
+- [05:29.530] I haven't heard that.
+- [05:31.420] The Press: In your meeting with John Swinney today,
+- [05:33.430] did you offer to drop tariffs on Scotch whisky?
+- [05:36.100] The President: No, we really didn't discuss it much,
+- [05:38.580] but I have a lot of respect for him.
+- [05:40.560] The Press: Mr. President [inaudible]
+- [05:41.780] The President: And I didn't have a lot of respect
+- [05:43.140] for the woman that preceded him.
+- [05:44.580] I thought she was terrible as a first minister of Scotland.
+- [05:48.160] But I think John is doing a very good job as first minister.
+- [05:51.610] The Press: Mr. President,
+- [05:53.570] your treasury secretary and Howard Lutnick,
+- [05:56.020] secretary of commerce – China talks wrapped today.
+- [05:59.320] Any sort of reaction coming out of the meeting?
+- [06:01.570] They're extending the truce.
+- [06:04.010] Are you pleased with that? Would you like to concede?
+- [06:05.940] The President: I just had a phone call from Scott Bessent
+- [06:09.920] and had a very good meeting with China and it seems that
+- [06:13.440] – They're going to brief me tomorrow.
+- [06:14.960] We'll either approve it or not,
+- [06:17.650] but he felt very good about the meeting,
+- [06:21.820] better than he felt yesterday.
+- [06:24.000] Yesterday, I said, "Here we go again. Here we go again."
+- [06:27.790] But today it worked out very well.
+- [06:29.390] The Press: And I saw-
+- [06:30.620] The President: I think the result is probably pretty.
+- [06:32.360] The Press: I saw a report from Reuters that India
+- [06:34.500] is preparing to face higher U.S. tariffs between 20 and 25%.
+- [06:40.220] Is that what you're tracking
+- [06:41.520] or what do you think the rate will be for India?
+- [06:43.100] The President: That they are going to pay 25%?
+- [06:44.880] The Press: Yeah, the India's preparing to face
+- [06:46.250] higher U.S. tariffs between 20 and 25%.
+- [06:48.670] The President: Yeah, I think so. Look, India's been –
+- [06:51.340] They're my friends and he's my friend
+- [06:54.560] and the end of the war with Pakistan
+- [06:56.590] at my request, and it was great. And Pakistan did also.
+- [07:00.900] We did a lot of great settlements,
+- [07:04.740] including the recent one, as you know,
+- [07:06.400] with Cambodia, blah, blah, blah. So that was a great one.
+- [07:11.790] I think that's been pretty well finalized now, right?
+- [07:14.140] The Press: I don't know. I'm asking you.
+- [07:15.440] The President: Did I do a good job in that one?
+- [07:17.670] I did a good job in about five different wars.
+- [07:21.230] Do you think I'll get credit for it?
+- [07:22.660] No. Will I get credit for it? She'll say yes. No.
+- [07:27.300] The Press: Is the deal with India finalized?
+- [07:29.940] The President: No, it's not.
+- [07:31.320] The Press: Okay, so what rate are you expecting it to be?
+- [07:32.930] The President: Oh, we're going to see,
+- [07:34.160] we're going to see, but India's been a good friend.
+- [07:36.750] But India has charged basically more tariffs
+- [07:40.220] than almost any other country. You know that, right?
+- [07:43.900] Over the years.
+- [07:46.310] But now I'm in charge and you just can't do that.
+- [07:49.730] I think the trade deals are working out very well,
+- [07:51.710] hopefully for everybody.
+- [07:52.920] But for the United States, they're very, very good.
+- [07:55.510] The Press: Mr. President, The Wall Street Journal
+- [07:57.210] case lawyers are seeking to depose Robert Murdoch.
+- [08:00.430] Rupert Murdoch, pardon me.
+- [08:02.270] Can you say what the lawyers hope to get out of that?
+- [08:04.180] The President: Oh, I don't know.
+- [08:05.390] We're going to see, it's in the lawyer's hands.
+- [08:08.060] I've been treated very unfairly
+- [08:09.440] by The Wall Street Journal and everything.
+- [08:11.480] I don't know. They even hired people
+- [08:13.330] from The Washington Post,
+- [08:14.660] third-rate reporters, gossip-type reporters.
+- [08:17.970] It's all gossip.
+- [08:19.890] And I've been treated badly by The Wall Street Journal.
+- [08:22.260] I would've assumed that Rupert Murdoch controls it,
+- [08:24.740] but maybe he does, maybe doesn't.
+- [08:27.160] They are talking to us about doing something,
+- [08:29.610] but we'll see what happens.
+- [08:31.400] Maybe they would like us to drop that and so we'll see.
+- [08:36.890] The Press: Does that mean they're settling [inaudible]?
+- [08:39.750] The President: Yeah, they want to settle it.
+- [08:41.010] The Press: With money involved?
+- [08:42.220] The President: No, he's treated us wrong.
+- [08:44.620] When I get treated unfairly, I do things about it,
+- [08:48.010] so we'll see what happens.
+- [08:50.520] The Press: On Gaza, last week,
+- [08:51.760] you were rather dismissive of President Macron
+- [08:53.950] when he recognized the Palestinian state.
+- [08:55.530] Today, you saying –
+- [08:56.840] The President: No, The Press: [inaudible]-
+- [08:58.080] The President: That's his opinion.
+- [08:59.280] He could have an opinion. It doesn't mean I have to agree.
+- [09:01.900] Emmanuel's a good man. He works hard.
+- [09:04.240] Got a lot to say about everything.
+- [09:05.470] [inaudible]-
+- [09:06.670] The Press: But now you're saying you're not taking a view
+- [09:08.780] on Sir Keir Starmer's announcement.
+- [09:10.680] Does that mean you [inaudible]?
+- [09:11.980] The President: No, I guess,
+- [09:13.240] Starmer's doing the same as Macron, right?
+- [09:15.700] He's, basically, is he's saying the same thing.
+- [09:17.550] I think so. Essentially, they're saying the same thing.
+- [09:21.250] And that's okay. But it doesn't mean I have to agree.
+- [09:23.880] The Press: Mr. President,
+- [09:25.270] you said yesterday your falling out with Jeffrey Epstein
+- [09:27.990] was over him taking some of the workers from your business,
+- [09:31.390] but your administration in the past said
+- [09:32.990] that you threw him out because he was a creep.
+- [09:35.010] So can you explain that discrepancy?
+- [09:36.400] The President: Well, maybe they're the same thing.
+- [09:37.930] It's sort of a little bit of the same thing.
+- [09:40.300] But, no, he took people that worked for me
+- [09:42.250] and I told him don't do it anymore
+- [09:43.790] and he did it and I said, "Stay the hell out of here."
+- [09:47.220] The Press: What did they do –
+- [09:48.440] [inaudible] – Sorry, go ahead.
+- [09:49.700] So is that what was meant by being a creep?
+- [09:51.880] The President: Who are you with?
+- [09:53.200] The Press: Me? The President: Yeah.
+- [09:54.480] The Press: I'm the travel pole, but I'm with NBC News.
+- [09:56.590] The President: NBC? NBC fake news.
+- [09:59.650] Okay. NBC is one of the worst. What else do you have?
+- [10:03.230] The Press: I was on the new Air Force One.
+- [10:05.500] When do you expect to be flying on the new Air Force One?
+- [10:09.000] The President: I think by, let's say, February, maybe.
+- [10:10.550] The Press: Maybe [inaudible]-
+- [10:11.760] The President: Much sooner than the others.
+- [10:12.960] The others are being built. Long time build.
+- [10:15.820] That's a long time build. Now they're not normal 747s.
+- [10:20.380] They have a lot of things on them
+- [10:22.030] that another plane wouldn't have,
+- [10:24.480] but we'll get this one a year-and-a-half,
+- [10:26.400] two years earlier.
+- [10:27.930] The Press: How much will it cost to retrofit it?
+- [10:29.990] The President: I don't know. That's up to the military.
+- [10:32.700] I don't know. I really don't know.
+- [10:33.930] I haven't been involved. It's their plane.
+- [10:36.780] It's the Air Force. They'll be spending an amount of money.
+- [10:41.870] It is a different plane because it becomes for military use.
+- [10:45.100] But I don't know what the number.
+- [10:46.380] The Press: There have be questions
+- [10:47.580] about whether the amount
+- [10:48.820] that it'll cost hundreds of millions of dollars,
+- [10:50.750] whether that's worth it considering
+- [10:52.750] how little time you'll be able to use it?
+- [10:55.400] The President: Well, it's a great plane.
+- [10:58.110] It's one of the best planes in the world.
+- [11:01.220] The Air Force is going to have it.
+- [11:02.750] We're going to have a great 747. We need it.
+- [11:06.710] If you look at this plane, it's what?
+- [11:08.200] Is it 32, 34, 35? I don't know. It's old.
+- [11:12.890] It's a good plane, but it's old.
+- [11:15.650] Can't get parts for it anymore. It's very hard to get parts.
+- [11:18.880] They have to go and take from the older planes.
+- [11:21.690] So it was time.
+- [11:23.190] When you look at 747s and the heads of state from,
+- [11:28.090] especially the Arab countries, you look at Saudi Arabia,
+- [11:31.740] from some of those countries, and you put it next to this,
+- [11:36.520] it doesn't show well for the United States.
+- [11:38.650] And if you remember,
+- [11:40.040] it was Obama that wanted to get the plane.
+- [11:42.010] He was the one ready to sign a contract.
+- [11:44.980] And because he wanted to sign it,
+- [11:46.560] I assumed they paid too much
+- [11:48.630] and I was able to get about a billion seven off the price.
+- [11:52.960] Maybe a billion five to a billion
+- [11:54.690] seven off the price for the exact same plane.
+- [11:57.740] And they're building it,
+- [11:59.100] but they're taking a lot longer than they should have taken.
+- [12:01.900] The Press: There's a report that a Secret Service agent
+- [12:03.700] tried to get his wife on a support plane for this mission.
+- [12:05.540] The President: I just heard that.
+- [12:06.770] That's a weird deal.
+- [12:08.130] The Press: Yeah. [inaudible]-
+- [12:09.380] The President: He was going to leave the wife in the car?
+- [12:11.750] Wouldn't you think that might be a little dangerous?
+- [12:13.980] I don't know if that has proper compression.
+- [12:16.900] I don't know. That's a strange one.
+- [12:19.920] I just heard that two minutes ago.
+- [12:22.440] I think Sean's taking care of it.
+- [12:23.870] The Press: Mr. President, you talked on Ruissa
+- [12:25.070] [inaudible]-
+- [12:26.070] The President: Is that a serious story?
+- [12:27.360] The Press: I think it's [inaudible]-
+- [12:28.590] The President: They were going to keep her in the car
+- [12:29.910] and she's going to be in a freighter?
+- [12:32.270] The Press: Well, you tell me the details on how [inaudible]-
+- [12:33.960] The President: Those freighters don't have, you know –
+- [12:35.210] The Press: He was going to keep her in the car?
+- [12:36.780] Tell us how it was going to work.
+- [12:38.750] The President: I don't want to get involved,
+- [12:40.090] but it's a strange story. I just heard that one.
+- [12:42.380] The Press: Mr. President. [inaudible]- Mr. President.
+- [12:43.980] Mr. President, you said that you were going to set the new –
+- [12:47.260] The British farmers are so grateful
+- [12:49.980] for what you said yesterday about the importance of farming,
+- [12:52.960] because we have changed inheritance tax, death taxing.
+- [12:56.120] The President: Well, farmers are so important.
+- [12:58.080] Some farmers, they liked what I said
+- [13:00.600] on a couple of things yesterday. I'm a big farmer person.
+- [13:05.480] I love the farmers. I think they're great.
+- [13:07.860] And we have to steer the laws so the farmers
+- [13:11.480] don't get hurt in our country and in their country.
+- [13:14.740] But Europe has a big immigration problem.
+- [13:17.120] But they also liked when I said that they have
+- [13:19.620] one of the worst mayors anywhere in the world in London.
+- [13:22.740] He's a horrible mayor, nasty guy.
+- [13:26.140] Stupid guy, in my opinion.
+- [13:27.750] But he's a nasty man and I want nothing to do with him.
+- [13:31.400] But I didn't think it was a big statement
+- [13:33.670] and so many people said, "Thank you for saying that."
+- [13:37.500] He's a bad guy. Khan is his name, I guess?
+- [13:40.900] He's done a lousy job. I can tell you that.
+- [13:43.010] The Press: [inaudible]- The President: Terrible mayor.
+- [13:44.320] The Press: Mr. President. [inaudible]- Mr. President.
+- [13:45.540] The President: But people liked it so much when I said that.
+- [13:47.440] The Press: Mr. President, yesterday you mentioned
+- [13:50.340] that you would change the Russia deadline to 10 to 12 days.
+- [13:55.570] Has that started yet?
+- [13:57.240] Or when can we see the official statement
+- [13:59.000] that that is the new deadline?
+- [14:00.320] The President: I'll tell you what.
+- [14:01.530] I'll give it to you now. Do you want a big scoop?
+- [14:02.800] The Press: Yes, please.
+- [14:04.090] The President: Everybody else close your ears.
+- [14:05.350] Okay? You ready? The Press: I'm ready.
+- [14:06.870] The President: 10 days from today.
+- [14:08.140] The Press: Got it. The President: Okay?
+- [14:09.440] The Press: Got it. The President: Good.
+- [14:10.710] The Press: Have you communicated-
+- [14:11.930] The President: We have a scoop. The Press: Thank you.
+- [14:13.140] The President: And then we're going to put
+- [14:14.360] on tariffs and stuff.
+- [14:15.630] And I don't know if it's going to affect Russia
+- [14:17.900] because he wants to obviously probably keep the war going.
+- [14:22.020] But we're going to put on tariffs,
+- [14:24.380] the various things that you put on.
+- [14:25.890] The Press: [inaudible]- And-
+- [14:27.110] The President: It may or may not affect them, but it could.
+- [14:28.750] The Press: Are you [inaudible] – Have you [inaudible]
+- [14:30.100] – Have you spoken to any of the families
+- [14:31.680] of the victims of the Manhattan shooting?
+- [14:34.020] The President: I don't want to tell you that.
+- [14:36.220] I don't want to tell you that.
+- [14:37.590] The Press: Have you spoken to Mayor Adams?
+- [14:39.440] The President: Boy, that's a bad one.
+- [14:41.030] That's a bad one. But I won't tell you about that.
+- [14:43.210] The Press: Have you talked to Mayor Adams?
+- [14:44.550] Have you spoken with Mayor Adams?
+- [14:45.780] The President: I have, yeah.
+- [14:47.010] The Press: One of the other things our readers
+- [14:48.320] liked from yesterday
+- [14:49.810] was when you were talking quite forcefully
+- [14:51.500] about illegal immigration in the United Kingdom.
+- [14:53.140] The President: Yeah.
+- [14:54.380] The Press: One of the big political flashpoints
+- [14:55.670] is migrant hotels, where people are being put up
+- [14:58.830] while their claims are processed.
+- [15:00.560] People see it as a source of security –
+- [15:01.970] The President: In beautiful luxury hotels.
+- [15:04.170] The Press: They also think there's low security
+- [15:05.950] and it's a problem for their communities.
+- [15:07.870] Is that appropriate or does Britain
+- [15:09.450] need an Alligator Alcatraz?
+- [15:11.410] The President: It's not an Alligator.
+- [15:12.650] It's just that they're putting people in luxury hotels
+- [15:16.330] and other people that are working their asses off
+- [15:18.960] are living from hand to mouth and not living the same way.
+- [15:23.190] I mean, I looked at some of the hotels they're using.
+- [15:25.920] And they've done it in our country also.
+- [15:28.940] They've put them in the best hotels anywhere in the world,
+- [15:32.710] because they could get rooms there.
+- [15:34.930] Thousands of dollars a night
+- [15:37.340] and other people are living out of the streets,
+- [15:39.190] including our veterans. They can't get a room.
+- [15:41.840] Our veterans are living on the streets.
+- [15:43.910] There are pictures of our veterans
+- [15:45.400] standing right by the door where they're walking in to live
+- [15:49.310] and the veterans are sitting out on the sidewalk
+- [15:51.830] in front of a fancy hotel
+- [15:53.980] and the illegals are coming in into that hotel
+- [15:57.240] and staying there for a week. It's no good.
+- [16:00.440] The Press: Just to button up on Mar-a-Lago,
+- [16:01.790] you're saying that Jeffrey Epstein
+- [16:03.130] poached two of your staffers? Who were they? Were they young –
+- [16:04.860] The President: Yeah, I don't want to say two
+- [16:06.080] or I don't want to say any number.
+- [16:07.310] You're talking about many years ago.
+- [16:08.510] But, yeah, he took people and because he took people I said,
+- [16:11.820] "Don't do it anymore. They work for me."
+- [16:14.220] And he took – Beyond that, he took some others.
+- [16:18.260] And once he did that, that was the end of him.
+- [16:20.020] The Press: And were they young women?
+- [16:21.390] [inaudible]-
+- [16:22.590] The President: When they steal people, I don't like it.
+- [16:24.000] The Press: [inaudible]- Did anybody ever go to prison
+- [16:26.770] for a social media post?
+- [16:29.680] The President: Are you saying
+- [16:31.000] that that's taking place in the UK?
+- [16:32.740] The Press: Yeah. [inaudible]- The President: Is it really?
+- [16:34.120] The Press: Oh yeah.
+- [16:35.320] The President: I mean, I'm hearing that.
+- [16:37.640] Well, I looked at it yesterday.
+- [16:39.380] Well, they said they canceled truth social.
+- [16:41.910] I'll bet it's un-canceled very quickly.
+- [16:43.510] The Press: [inaudible]-
+- [16:43.920] The President: I'll bet it's [inaudible]-
+- [16:45.150] The Press: [inaudible] powers [inaudible]
+- [16:46.380] – there are new digital [inaudible].
+- [16:47.650] The President: No, it's a little different. It's different.
+- [16:48.910] I see it in some countries that you would never suspect it.
+- [16:51.620] Not only there. I've seen it in other countries
+- [16:54.290] where they're like bread and pudding countries, I think,
+- [16:57.900] and then all of a sudden they become somewhat violent.
+- [17:00.830] When people go socialistic
+- [17:02.560] or when you get the radical left or the left going in,
+- [17:06.420] the countries actually become very mean.
+- [17:09.830] They become two things,
+- [17:11.080] mean and incompetently run, simultaneously.
+- [17:15.990] How is Caroline doing? Is she doing a good job?
+- [17:18.090] The Press: [inaudible].
+- [17:19.310] The President: Look at her. She's such a star.
+- [17:20.920] Come on, Caroline. Come here.
+- [17:23.010] The Press: Chloe wanted to watch, sir.
+- [17:24.820] The President: Chloe, do you want to come over?
+- [17:26.520] Chloe, she's a great golfer, a great talented golfer.
+- [17:31.260] She's probably the most talented golfer, other than Kai,
+- [17:33.900] but I think it's about the same, right?
+- [17:35.450] Don't you think?
+- [17:36.780] The Press: [inaudible]- Chloe: Yeah, [inaudible]-
+- [17:38.020] The President: She hits the ball long.
+- [17:39.700] This little girl has a lot of muscle, right?
+- [17:41.480] Chloe: Yeah. The President: So-
+- [17:42.750] The Press: Did you have a nice weekend?
+- [17:43.960] The President: And she wins every tournament
+- [17:45.210] she plays in of her age.
+- [17:46.950] The Press: Did you have a fun weekend?
+- [17:48.200] You had a fun weekend?
+- [17:49.400] Chloe: Yes, very fun.
+- [17:51.010] The President: You love golf, right?
+- [17:52.400] Chloe: Yes.
+- [17:53.620] The President: But she's a great athlete.
+- [17:54.820] The Press: How did the golf course play today?
+- [17:56.240] The President: Great. The Press: And be honest.
+- [17:57.440] Did anyone in your foursome hit that massive bunker on the 9th?
+- [18:01.520] The President: That is a massive bunker.
+- [18:02.820] Fortunately, nobody did. Well.
+- [18:04.600] I played, two of the guys were pros and really good players.
+- [18:08.050] One of them won the tournament last year
+- [18:10.830] and you can see they were very good players.
+- [18:13.560] The Press: Who at the moment holds the course record?
+- [18:16.510] The President: Well, we played a first round.
+- [18:18.540] Let's see, we only played one round.
+- [18:21.310] This was our first round, so I'd have to go into that exactly.
+- [18:25.050] But they're two really good players.
+- [18:28.510] One of them is the one who, you know the story?
+- [18:33.520] Beam, you know who that is?
+- [18:35.590] The Press: You have to tell me.
+- [18:36.810] The President: He took Tiger, I guess 18 holes.
+- [18:40.230] Tiger went wild with his punting,
+- [18:42.360] meaning he started dropping punts from all over the place
+- [18:46.090] and Tiger took him, but that's the quality.
+- [18:48.470] They're really good players. Those two guys were
+- [18:52.110] – And terrific guys, two terrific guys.
+- [18:53.930] We had a good time, but I was watching.
+- [18:57.510] The only shot that mattered to me
+- [18:58.910] was the driver of the first hole because if I would've missed it,
+- [19:03.160] you would not have let me forget it.
+- [19:05.450] The Press: Did you take a bit of a practice
+- [19:06.790] on the driving range beforehand?
+- [19:08.560] The President: I hit some – Yeah, I did.
+- [19:09.870] I hit some balls on the driver. It's a great course.
+- [19:12.610] It's a great course. It's been fantastic.
+- [19:15.330] You know, I built one and then I had to build this one.
+- [19:18.960] Otherwise you would've lost your zone again
+- [19:20.690] for a certain period of time to build it.
+- [19:22.490] So they built it, it opened.
+- [19:24.900] My son did a very good job of building it.
+- [19:26.660] The Press: You said you thought
+- [19:27.960] it would be the last dune course.
+- [19:29.330] Were you talking about environmental regulations?
+- [19:31.660] The President: Yeah. We obey the regulations,
+- [19:34.890] the environmental regulations. You really want to.
+- [19:38.300] And it's top of the line. It's really.
+- [19:40.730] The pros were saying this as good
+- [19:42.050] as any course they've ever played.
+- [19:44.340] It's as good as it gets.
+- [19:45.580] The Press: The course was surrounded by windmills.
+- [19:47.690] Did you talk to Swarmer about the windmills?
+- [19:49.400] The President: I did, yeah.
+- [19:50.610] I think windmills are a disgrace.
+- [19:52.100] I think they hurt everything they touch.
+- [19:54.860] They're ugly. They're very inefficient.
+- [19:58.390] It's the most expensive form of energy there is.
+- [20:02.060] People hate it when they become visible from their house.
+- [20:05.650] When you see them from a house,
+- [20:07.040] the value goes down by 50% and more.
+- [20:09.720] They make noise.
+- [20:10.960] When they're out in the ocean they're bad for the sea life.
+- [20:13.530] Very bad for the whales, obviously,
+- [20:15.340] because they wash up and shore nine times
+- [20:18.640] more than they did without them.
+- [20:20.980] No, they are really bad and they cost a lot of money.
+- [20:24.090] You know, there's not a wind farm
+- [20:25.420] that's put up without subsidies.
+- [20:27.450] Instead of making money, what they should do
+- [20:29.900] is open up the whole North Coast oil.
+- [20:34.780] They have tremendous oil right there, right where we play.
+- [20:40.710] And they made it impossible for people to drill.
+- [20:44.610] It's crazy.
+- [20:47.530] I mean, that's one of the best oil areas in the world.
+- [20:50.790] They've made it impossible for people to take it out.
+- [20:53.840] Instead, they put up these ugly windmills
+- [20:55.840] all over the country and all over the world.
+- [20:58.980] I don't know what it is. Nobody likes them.
+- [21:00.940] They have the greatest lobby,
+- [21:02.560] but I think I'm starting to get to it now.
+- [21:05.900] They're bad energy. They look bad.
+- [21:07.870] They killed the birds. They're really terrible things.
+- [21:11.060] And it's the most expensive energy of any energy there is.
+- [21:15.780] And in fact, every – I mean, not every,
+- [21:18.520] I guess, I don't know, maybe some,
+- [21:20.140] but almost every windmill
+- [21:21.850] put up needs subsidy from the government.
+- [21:24.420] So instead of making money, they lose money.
+- [21:27.030] And that's why UK energy costs are very high
+- [21:30.010] because when we were flying over to the plane,
+- [21:31.750] they're all over the place.
+- [21:33.270] It's terrible. It's a terrible thing.
+- [21:35.460] I'll say it till I can't speak anymore.
+- [21:38.710] But I think we are having an impact
+- [21:40.990] and they're starting to take a lot of windmills down.
+- [21:43.590] I mean, they're literally starting to take them down.
+- [21:46.050] They don't work. They're bad and they're too costly.
+- [21:49.090] And every year you see them up there,
+- [21:50.910] the government is paying a lot of money.
+- [21:53.500] Whereas if you have oil,
+- [21:55.300] if you have other forms of energy, you make money on it.
+- [21:58.570] In other words, you bring down taxes.
+- [22:01.190] The Press: Well, your friend Bryson DeChambeau said
+- [22:03.400] that LIV tour players weren't playing enough links golf.
+- [22:07.510] Is that something we might see at –
+- [22:09.290] The President: Well, links golf is just different golf.
+- [22:12.450] It's quite a bit different. I love Bryson. Bryson's great.
+- [22:15.430] He's a great player, very powerful guy.
+- [22:18.120] Long hitter, great putter, great everything.
+- [22:20.430] And it's interesting, he plays well in a links course.
+- [22:24.410] The Press: But is that in the future for the greatest 36?
+- [22:27.000] The President: Oh, yeah.
+- [22:28.210] I mean, look, we have a tournament this weekend there
+- [22:31.760] and we have another tournament next weekend, big tournaments.
+- [22:35.410] And we're looking to get the Irish open at Doonbeg.
+- [22:38.930] I have a course at Doonbeg in Ireland.
+- [22:41.310] And we have a lot of great tournaments coming to mind.
+- [22:45.230] I build the best courses.
+- [22:47.020] The Press: [inaudible]
+- [22:48.240] The President: That's not only said by me,
+- [22:49.450] that's said by everybody.
+- [22:50.710] The Press: Back to Russia, sir.
+- [22:51.990] Since you made the announcement of the 10 to 12 days,
+- [22:54.770] have you gotten any feedback or any officials
+- [22:57.060] gotten any feedback that had had a response
+- [23:00.900] that Russia is going to do something?
+- [23:03.040] The President: No, I haven't yet.
+- [23:04.280] I haven't had any response. It's a shame.
+- [23:08.090] So I used to say to you, "5,000 people die a week."
+- [23:13.070] Now it's 7,000 people are dying a week.
+- [23:16.640] Mostly Ukrainian and Russian soldiers,
+- [23:19.580] but people also from having bombs dropped on their head.
+- [23:23.720] It’s a disgusting war.
+- [23:25.650] The Press: How worried are you on the oil markets
+- [23:27.460] if you were to put sanctions on Russia?
+- [23:29.310] The President: I don't worry about it.
+- [23:30.880] We have so much oil in our country.
+- [23:33.030] We'll just step it up even further.
+- [23:35.190] I mean oil is down pretty low right now.
+- [23:38.170] We'll step it up even further.
+- [23:39.800] The Press: One of the – Sorry.
+- [23:41.260] I heard you mention compression.
+- [23:42.770] How were you feeling out there when you were playing?
+- [23:44.690] How did you feel? I think it's the first time you played
+- [23:46.580] since you saw the dog, right?
+- [23:47.910] The President: I felt good. I thought it was great.
+- [23:49.400] I thought the course was great.
+- [23:51.430] It looks even more beautiful than I thought.
+- [23:54.570] We did the first one 11 years, 12 years ago,
+- [23:58.440] and it's gotten tremendous reviews.
+- [23:59.960] It's one of the best courses in the world.
+- [24:01.650] And I had the other piece of land to do this
+- [24:05.560] one also on the ocean and the North Sea.
+- [24:10.600] And by the way, the North Sea is the exact term for the oil.
+- [24:14.350] They have among the greatest reserves.
+- [24:18.160] It's tremendous. And they're not using it.
+- [24:20.940] Instead, they're putting up these stupid windmills.
+- [24:23.010] It's so crazy.
+- [24:24.250] UK could reduce their energy costs by 70%
+- [24:29.800] if they would use the North Sea oil.
+- [24:31.840] It just doesn't make sense.
+- [24:35.190] It's just not a Liberal thing to do,
+- [24:37.030] but it's becoming more of a Liberal thing to do.
+- [24:40.210] I love being out there. It was great. Good feeling.
+- [24:42.650] The Press: Mr. President, UK and the US
+- [24:44.490] both have increasingly unhealthy populations.
+- [24:47.320] The President: Is that what they say?
+- [24:48.900] The Press: Yeah. We do.
+- [24:50.130] The President: Well, I can see it.
+- [24:51.450] The Press: I'm interested in the work that –
+- [24:52.890] The President: No, I can see it.
+- [24:54.090] The Press: make America healthy again.
+- [24:55.320] The President: I can see it.
+- [24:56.570] I should think about it for myself.
+- [24:59.720] Bobby is doing a great job. People are loving Bobby Kennedy
+- [25:03.150] and the whole group, Dr. Ross, Marty Makary.
+- [25:07.430] We have a fantastic group and you're going to see
+- [25:10.110] a lot of things happening over the next couple of months.
+- [25:12.480] I mean, true activists.
+- [25:14.410] And they're going with the science.
+- [25:18.980] And if you take a look at some of the problems,
+- [25:22.000] some of the diseases that are coming up to a level
+- [25:25.730] that we've never seen before, there's something wrong.
+- [25:28.330] There's something wrong
+- [25:29.550] and I think we're going to solve the problem.
+- [25:32.100] But he's really working hard.
+- [25:35.150] All we're doing now is stats, statistics.
+- [25:38.260] And I think we're going to make a big change.
+- [25:40.620] We're going to save a lot of lives.
+- [25:42.300] You know, when the babies are born
+- [25:44.510] and they end up having problems that they've never had before
+- [25:49.030] and by 15 and 20 times more.
+- [25:52.460] So there's something wrong and we're going to find
+- [25:54.170] what it is pretty soon. We think pretty soon.
+- [25:56.570] The Press: Mr. President,
+- [25:57.860] Epstein has a certain reputation, obviously.
+- [26:00.830] Just curious, were some of the workers
+- [26:03.050] that were taken from you, were some of them young women?
+- [26:05.810] The President: Were some of them?
+- [26:07.180] The Press: Were some of them young women?
+- [26:09.020] The President: Well, I don't want say,
+- [26:10.310] but everyone knows the people that were taken.
+- [26:14.590] And it was, the concept of taking people
+- [26:19.090] that work for me is bad.
+- [26:20.800] But that story has been pretty well out there.
+- [26:23.680] And the answer is yes, they were.
+- [26:25.300] The Press: Yes, they were young women?
+- [26:26.630] What did they do? The President: In the spa.
+- [26:27.860] The Press: In the jobs in the spa?
+- [26:29.090] The President: Yeah, people that work in the spa.
+- [26:30.450] I have a great spa, one of the best spas
+- [26:32.300] in the world at Mar-a-Lago.
+- [26:34.140] And people were taken out of the spa, hired by him.
+- [26:37.940] In other words, gone.
+- [26:39.840] And other people would come and complain,
+- [26:42.880] "This guy is taking people from the spa."
+- [26:45.070] I didn't know that.
+- [26:46.320] Then when I heard about it, I told him, I said,
+- [26:48.810] "Listen, we don't want you taking our people."
+- [26:51.170] Whether it was spa or not spa.
+- [26:53.410] I don't want him taking people. He was fine.
+- [26:56.990] And then, not too long after that he did it again,
+- [26:59.750] and I said, "Out of here."
+- [27:01.870] The Press: Mr. President, did one of those stolen persons,
+- [27:06.120] does that include Virginia Giuffre.
+- [27:10.560] The President: I don't know. I think she worked at the spa.
+- [27:15.120] I think so. I think that was one of the people, yeah.
+- [27:18.610] He stole her.
+- [27:20.450] And by the way, she had no complaints about us,
+- [27:22.730] as you know, none whatsoever.
+- [27:25.450] The Press: We've seen how good your security detail
+- [27:28.290] is this weekend and the team around you are amazing.
+- [27:30.600] The President: They've done a good job.
+- [27:31.840] The Press: Amazing. Do you have any answers yet,
+- [27:34.480] as to what happened with the assassination attempt.
+- [27:37.410] Having seen them in action it seems remarkable
+- [27:39.140] that that was –
+- [27:40.450] The President: You mean the assassination with –
+- [27:43.410] They just weren't as good that day.
+- [27:45.600] They had a bad day.
+- [27:47.040] They should have had a roof that was unpatrolled.
+- [27:52.170] They should have had coordination
+- [27:53.530] with the local police
+- [27:54.730] because, you know, you had a lot of talk going on.
+- [27:57.890] You had the woman screaming,
+- [27:59.110] "There's a man up there with a gun."
+- [28:01.400] And a number of people were screaming,
+- [28:03.280] "There's a guy up there with a gun,"
+- [28:04.690] and they didn't have –
+- [28:07.180] The one group wasn't hooked into the other group.
+- [28:11.480] I'll tell you, the Secret Service shooter,
+- [28:13.590] David, was amazing, because in four seconds, it was over.
+- [28:19.070] And if this lunatic was allowed to keep shooting,
+- [28:21.970] because they had tens of thousands of people there,
+- [28:25.670] so a lot of people could have been killed.
+- [28:27.790] We lost a great person and two people very badly injured.
+- [28:32.430] But the shooter, one bullet.
+- [28:35.130] Think of that, one bullet from a very far distance.
+- [28:38.800] It's amazing.
+- [28:40.030] The Press: Has it changed you? The President: So, he was great.
+- [28:41.370] The Press: Do you feel like he's changed you as a person?
+- [28:44.470] The President: I don't know. Maybe and maybe not,
+- [28:46.660] but I like to not think about it.
+- [28:51.220] It affects some people greatly. I can't afford to be affected,
+- [28:55.090] because I have a job to do, so I like not to think about it.
+- [28:57.860] The Press: Does it not go?
+- [28:59.140] The President: I think about it too much,
+- [29:00.340] it's probably not a good thing.
+- [29:02.120] The Press: Does it not go through your mind at all,
+- [29:03.590] in the morning? Like this morning when you're outside?
+- [29:05.340] There's a crowd and –
+- [29:06.600] The President: I don't think about it.
+- [29:07.820] I think you see the kind of protection now.
+- [29:13.130] I think they're very good. It's a whole different level.
+- [29:15.810] Look, these people went to Biden,
+- [29:18.230] and Biden's people, and asked for more help
+- [29:21.360] because I was having rallies.
+- [29:22.720] 60,000, 70,000 people. I had 115,000 people.
+- [29:28.810] And Biden would have two people. Nobody wanted to see the guy.
+- [29:33.300] And he'd have a bigger security detail than I had.
+- [29:36.500] And they were asking, Sean and the various people
+- [29:39.380] were asking for more people, and they were denied.
+- [29:43.770] So they denied them. And so you could make that case.
+- [29:47.530] I don't think they've made that case well,
+- [29:49.200] because I knew for a fact
+- [29:51.250] that they were asking for more people a lot.
+- [29:55.290] They have said it, but not that publicly.
+- [29:57.970] But they wanted more people,
+- [29:59.200] and the Biden people would not give it to them.
+- [30:01.280] And we had massive crowds. You were there.
+- [30:04.270] We would have routinely 50, 60, 70,000 people.
+- [30:08.840] And he would have nobody,
+- [30:11.920] he couldn't fill the circles, the eight circles,
+- [30:15.140] and he didn't need very many people.
+- [30:18.260] And so that was a problem too.
+- [30:21.590] The Press: Can I ask about the first lady?
+- [30:23.240] You mentioned a couple of weeks ago,
+- [30:24.990] her role in talking to you about the war in Ukraine.
+- [30:27.470] Perhaps a big part of your evolution in thinking,
+- [30:30.570] have you discussed the crisis in Gaza and the terrifying
+- [30:32.510] [inaudible] –
+- [30:33.710] The President: I have, she thinks it's terrible
+- [30:35.630] and she sees the same pictures that you see,
+- [30:38.580] and that we all see. And I think everybody,
+- [30:40.920] unless they're pretty cold-hearted
+- [30:43.860] or worse than that, nuts, there's nothing you can say
+- [30:48.410] other than it's terrible when you see the kids,
+- [30:51.110] and those are kids, whether they talk starvation or not,
+- [30:54.160] those are kids that are starving.
+- [30:59.090] I mean, they are starving.
+- [31:00.730] And you see the mothers, they love them so much
+- [31:02.720] and there's just nothing they seem to be able to do.
+- [31:05.420] They got to get them food and we're going to get them food.
+- [31:07.730] The Press: Do you plan to attend
+- [31:08.980] the G20 summit this year in South Africa?
+- [31:10.880] The President: I don't think so, no.
+- [31:12.100] I think maybe I'll send somebody else,
+- [31:14.770] because I've had a lot of problems with South Africa
+- [31:17.720] and they have some very bad policies,
+- [31:21.580] very, very bad policies,
+- [31:24.020] like policies where people are being killed,
+- [31:26.660] a lot of people are being killed.
+- [31:28.490] So I think I probably won't.
+- [31:29.700] The Press: Any updates –
+- [31:30.930] The President: I'd like to, but I don't think I will.
+- [31:32.810] The Press: Any update on when you'll meet with President Xi?
+- [31:35.610] When can we expect that?
+- [31:36.920] The President: Oh, he wants to meet.
+- [31:38.130] And I look forward to the meeting too.
+- [31:40.770] But I would say before the end of the year,
+- [31:43.730] I mean, just to go full circle,
+- [31:46.680] so we had a very good meeting today.
+- [31:48.920] If you would've asked me the question yesterday,
+- [31:50.890] no, it wasn't looking too good. I would've said
+- [31:54.180] – Maybe I might've said nothing,
+- [31:56.400] but I might've also said it wasn't going too good.
+- [31:58.760] I just heard from Scott
+- [32:00.000] that the meeting went very well today with China.
+- [32:03.380] Thank you all very much. Enjoy the flight. Thank you.
+- [32:06.430] The Press: Thank you.

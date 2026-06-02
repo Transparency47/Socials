@@ -1,0 +1,366 @@
+<!-- source: https://www.youtube.com/watch?v=9K5N6cYCy3M -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 9K5N6cYCy3M -->
+<!-- date_published: 2025-08-25T22:01:36+00:00 -->
+<!-- date_accessed: 2026-06-02T01:17:20.162218+00:00 -->
+
+# Transcript: President Trump Delivers Remarks, Aug. 25, 2025
+
+- [00:00.640] The President: But I just want to say
+- [00:02.120] I'm really honored to be with you again,
+- [00:03.840] and we'll be with each other for a long time,
+- [00:07.080] and your loved ones are looking down,
+- [00:08.820] and they're very proud.
+- [00:10.160] This is the new and improved Oval Office.
+- [00:13.600] We had an Oval office, which was still the Oval Office,
+- [00:16.810] so I don't want to disrespect it,
+- [00:18.280] but now it's very special,
+- [00:20.550] and you see what's happened, and everyone loves it.
+- [00:24.020] It's all the real deal, 24-karat gold,
+- [00:27.070] and people come from all over.
+- [00:31.300] I do believe they're serious. They're not rolling their eyes,
+- [00:33.890] you know, the roller of the eyes.
+- [00:35.990] But we don't have any of them.
+- [00:37.900] And we brought the pictures up. They were in the vaults.
+- [00:40.730] Those are pictures of some of our great presidents,
+- [00:42.900] a lot of them, and they were in the vault for over 100 years,
+- [00:46.920] in many cases. And they were just there.
+- [00:49.770] Beautiful pictures. Works of art.
+- [00:51.790] Lincoln, Washington, Thomas Jefferson, Andrew Jackson.
+- [00:56.510] That's Monroe, the Monroe document.
+- [01:00.790] All mostly great presidents. We have a couple of --
+- [01:04.680] Benjamin Franklin, not a president,
+- [01:07.210] but we figure he'd make the cut.
+- [01:11.680] Discovered electricity, a couple of other things.
+- [01:14.450] But we have a lot of great presidents.
+- [01:17.480] But think of it. They've been down there.
+- [01:19.080] There's George Washington, the big one.
+- [01:21.530] They've down there for, in some cases,
+- [01:23.790] much more than 100 years. And we brought them out.
+- [01:26.540] I went through the vaults myself.
+- [01:27.960] I spent hours down there looking.
+- [01:30.080] That's in between Russia, Ukraine, China,
+- [01:33.930] all the other stuff. We do it.
+- [01:36.250] I want to thank Doug Collins for being here, the Secretary,
+- [01:38.740] who's done an unbelievable job. Thank you very much.
+- [01:41.830] And, J.D., thank you very much. You've been fantastic.
+- [01:44.820] And all of the others. Pete, good.
+- [01:47.210] We did a little thing with Pete about Secretary of War today,
+- [01:49.910] and it seemed to be well received.
+- [01:51.750] We'll do it a couple of more times.
+- [01:53.010] And if everyone likes it, we'll make that change, Pete.
+- [01:55.520] You'll decide.
+- [01:57.020] But I just want to thank everybody for being here.
+- [02:00.160] Very special to me. A very special day.
+- [02:02.780] Four years is a very special time.
+- [02:05.410] And now it's lightening up, but it'll never be really light.
+- [02:08.540] But there are some great souls
+- [02:12.050] that are looking down on you right now.
+- [02:14.320] And they're very proud of their parents
+- [02:15.830] and brothers and sisters and -- but moms and dads especially.
+- [02:20.280] That's what I seem to have dealt with mostly.
+- [02:22.330] It's a tough -- there's nothing tougher.
+- [02:24.420] So thank you very much.
+- [02:25.620] And the media, I want to thank you
+- [02:26.880] because you've been very respectful
+- [02:28.210] of this group of people. And they deserve it.
+- [02:30.910] They went through hell for no reason.
+- [02:32.690] It should have never happened.
+- [02:34.170] And I'm going to sign the proclamation now,
+- [02:37.070] We will have our
+- [02:39.190] We will have a very special proclamation
+- [02:42.410] done and completed, okay?
+- [02:54.760] That's a good one.
+- [02:56.460] That's our good one, we rate them.
+- [02:59.970] I don't put them under the auto pen.
+- [03:01.390] I don't say, here, have the auto-pen sign
+- [03:04.940] it, right? We don't do that.
+- [03:06.820] I don't know how anybody was allowed to do that,
+- [03:08.990] they actually weren't.
+- [03:11.880] Female Speaker: Thank you, sir.
+- [03:13.240] The President: Good one, right?
+- [03:14.820] Yes, a couple of good questions today.
+- [03:17.210] It's been very fair, actually.
+- [03:19.840] Okay. Do you have any questions on this subject, please?
+- [03:22.990] The Press: Mr. President,
+- [03:24.200] the defense secretary has ordered
+- [03:26.730] a review of the Afghanistan withdrawal, that is ongoing.
+- [03:30.450] I'm curious if you have any update on that review.
+- [03:33.240] And then for the families,
+- [03:34.750] I know that there was frustration
+- [03:36.160] with previous investigations on Capitol Hill.
+- [03:38.890] Are you satisfied with the speed of this investigation thus far?
+- [03:43.750] The President: Pete, do you want to answer that?
+- [03:45.240] Secretary Hegseth: Yes, sir.
+- [03:46.650] On behalf of this beautiful group,
+- [03:48.380] on behalf of these families,
+- [03:49.700] on behalf your loved ones who fought for our nation,
+- [03:52.790] America deserves answers as far as what happened in Afghanistan.
+- [03:56.620] The military needs to answer for what happened in Afghanistan,
+- [03:59.400] so upon the President's direction,
+- [04:01.530] immediately we initiated an investigation,
+- [04:03.650] which showed that there needed an even deeper dive.
+- [04:06.260] So Sean Parnell, our Pentagon spokesman,
+- [04:07.950] who himself is an Afghanistan veteran,
+- [04:09.960] is leading this effort. It's a top priority for us.
+- [04:13.150] We're getting access to all documents necessary.
+- [04:15.790] Why decisions were made, why they weren't made,
+- [04:18.310] why certain force protection measures were ignored.
+- [04:21.090] Again, there's never been accountability for this.
+- [04:23.910] It's something that Joe Biden allowed to happen
+- [04:25.890] that never should have happened. Any objective observer knows
+- [04:28.940] that's not how you leave a country,
+- [04:30.770] and certainly these families know better than anyone else.
+- [04:33.330] These families deserve answers.
+- [04:34.670] We're going to be honest about it.
+- [04:35.940] We're gonna get to the bottom of it.
+- [04:37.170] Sean Parnell, an Afghanistan vet,
+- [04:38.440] is leading it,
+- [04:39.640] and we're doing it on behalf of the American people.
+- [04:41.250] So I would anticipate middle of 2026.
+- [04:44.440] That's how thorough of a review we're doing.
+- [04:46.690] Hopefully a little bit sooner, but we're going into everything
+- [04:49.100] to get an understanding of what happened.
+- [04:51.720] The President: So we remember these great 13 souls,
+- [04:54.420] but we also remember the people that were so badly injured.
+- [04:58.630] Our soldiers -- 32 of them, approximately.
+- [05:01.630] And we're in contact with them always, also.
+- [05:05.970] But they lost arms and legs,
+- [05:07.480] and their faces were blown to pieces,
+- [05:09.900] and they're incredible. And they suffer with it.
+- [05:13.510] And so we understand that. Should have never happened.
+- [05:15.860] Should have been allowed to have happened.
+- [05:18.100] And they were in the wrong -- the wrong place.
+- [05:22.300] Bagram was the place to be.
+- [05:23.960] Big, massive airfield with hundreds of acres
+- [05:26.980] surrounding it. Nobody could get near it.
+- [05:29.760] And who would not have done that?
+- [05:31.180] But we had a bunch of incompetent people
+- [05:33.240] running our country.
+- [05:35.710] So, we are going to talk for a little while.
+- [05:39.990] We'll talk about people that I've gotten to know,
+- [05:42.990] the sons and daughters and others that died
+- [05:46.740] and and there were hundreds of people that died that day,
+- [05:49.320] hundreds from many from the other side needlessly also
+- [05:53.750] They did nothing to hurt anybody But that was it.
+- [05:57.860] That was a terrible day and I think it was the worst day
+- [06:01.220] and in many ways the most embarrassing day
+- [06:03.100] in the history of our country and yet at the same time
+- [06:05.860] we learned so much that
+- [06:08.410] It's you know we call it a big lesson.
+- [06:10.650] It won't happen again.
+- [06:11.930] I think like that can never be allowed to happen again, Doug,
+- [06:15.510] would you like to say something, please?
+- [06:17.030] You've been so fantastic at the VA. I appreciate it.
+- [06:19.430] Doug Collins: Thank you, Mr. President.
+- [06:20.720] For these families here,
+- [06:21.920] I think you expressed the nation's grief of what happened.
+- [06:25.170] And we saw just a tragic mistake that was there,
+- [06:26.870] someone who has been in the military.
+- [06:28.260] I was in Iraq and others.
+- [06:29.800] Afghanistan, when you saw that withdrawal,
+- [06:31.310] but what you suffered went through.
+- [06:32.890] And for those that you've mentioned,
+- [06:34.100] Mr. President, who are injured, who took the VA,
+- [06:37.040] the Department of Defense, we're taking care of those folks
+- [06:39.120] and we're going to continue to do so at your direction.
+- [06:41.660] But with the families, it's just one of those things
+- [06:43.700] is a place that never goes away.
+- [06:45.550] But I know from this President, as he's made a commitment,
+- [06:47.840] that that memory will not be forgotten.
+- [06:49.680] And the Cabinet understands that and our American people
+- [06:51.660] understand that because of what you've done.
+- [06:52.970] The President: And this is actually our biggest
+- [06:54.200] gathering today.
+- [06:55.640] So you must have heard Oval Office,
+- [06:57.430] and you said, I want to get there and
+- [06:58.980] (inaudible) in the Oval Office, but it is --
+- [07:00.600] and it is a special place. But this is our biggest
+- [07:03.730] gathering in terms of the numbers.
+- [07:06.240] Everybody here -- because it was always be --
+- [07:08.340] you know, somebody couldn't be. Everybody's here.
+- [07:10.850] And that's -- that's a great honor.
+- [07:12.240] I think it's a good honor.
+- [07:13.470] JD, do you want to say a couple of words, please?
+- [07:15.740] The Vice President: Oh, sir, I just echo what you said.
+- [07:17.140] We're so honored to have all of you here.
+- [07:18.500] I know that days like today can't make the hurt go away,
+- [07:21.930] but hopefully four years on,
+- [07:23.350] we could start to remember with fondness
+- [07:25.870] and with a little bit of joy
+- [07:27.180] the people that were taken from us were so proud of you.
+- [07:29.220] We were so proud of your loved ones
+- [07:30.600] for giving their life for our country.
+- [07:32.450] I think importantly today,
+- [07:34.080] this is a rectification of a wrong.
+- [07:36.250] The fact that the President United States
+- [07:38.290] lost your loved one's through incompetence,
+- [07:41.330] but never acknowledged it and your government
+- [07:43.390] never actually put pen to paper to say,
+- [07:45.500] we're grateful for your sacrifice.
+- [07:47.480] We correct that wrong today and we're gonna keep on
+- [07:49.800] fighting to understand, as Pete said,
+- [07:51.200] what happened so it never happens to another family again.
+- [07:53.400] But God love you all. God bless you.
+- [07:55.020] We're so thrilled to have you here
+- [07:56.510] in the People's Oval Office.
+- [07:59.200] The President: And I don't think they ever heard from Biden
+- [08:02.440] or anybody, did they? Nobody ever even called.
+- [08:06.890] It's a terrible thing we suffered through
+- [08:08.560] for four years, so needlessly. Yes, ma'am.
+- [08:10.960] The Press: I wanted to ask about veterans,
+- [08:12.350] and I wanted to say I'm so sorry for all of your loss.
+- [08:15.070] And I know we've covered it in the media,
+- [08:16.620] but I can't imagine what you all have been through,
+- [08:18.180] and thank you for being here.
+- [08:19.880] I wanted ask, just on behalf of those veterans
+- [08:22.360] who served in Afghanistan and Iraq,
+- [08:24.360] and everyone talked about this in the Oval previously,
+- [08:26.690] about making sure care for those, for example,
+- [08:28.690] exposed to burn pits while serving.
+- [08:30.950] Making sure that they have the care.
+- [08:32.690] Are you considering maybe a streamlined service
+- [08:34.600] like the World Trade Center healthcare program?
+- [08:36.290] And maybe the veteran's secretary can comment, too.
+- [08:38.790] But are you considering something like that to make sure
+- [08:41.030] because it seems like they're struggling to get care.
+- [08:43.050] The President: We take care of our vets.
+- [08:44.270] Nobody loves their vets more than me,
+- [08:45.900] and we take good care of vets, great care of our vets.
+- [08:48.710] Do you want to just say a couple of words
+- [08:50.570] about what we're doing, Doug?
+- [08:51.900] Doug Collins: Yes, sir, Mr. President.
+- [08:53.110] Through the PACT Act ,through others of the burn pit,
+- [08:54.940] which is something I've been under as well.
+- [08:56.520] We're streamlining following the Congress direction,
+- [08:58.950] but we're also adding more services.
+- [09:00.880] We've included a lot who have been -- who have applied.
+- [09:03.500] We're also stream lining our backlog
+- [09:05.070] under President Trump's direction.
+- [09:06.370] Also, we took that backlog that was under President Biden
+- [09:09.330] was up at over two hundred sixty thousand.
+- [09:10.930] We're down now, Mr. President,
+- [09:12.190] good to say that under one hundred and fifty thousand
+- [09:14.340] in just a little over six months.
+- [09:15.580] So we're making sure that what was bogged up
+- [09:17.490] in a bureaucratic system,
+- [09:18.730] we're stream lining it so they get that care quicker.
+- [09:20.940] And we're making sure that it is what they need.
+- [09:23.300] And then we're also doing that in our hospitals as well,
+- [09:25.500] so they get that quicker not only in our hospital
+- [09:28.150] but in our community as well.
+- [09:29.460] That's been the biggest difference.
+- [09:30.690] We're about the veteran at VA, not about the bureaucracy,
+- [09:32.950] so we are making progress there.
+- [09:34.590] The President: And the VA has a 93 percent approval rating.
+- [09:38.270] It was down in the low 40s when we did.
+- [09:41.510] So I had pretty close to that in the first term.
+- [09:44.430] We had a great first term, and it was pretty close to that.
+- [09:48.140] And then they took over and it went down into the 30s
+- [09:50.770] and 20s and 40s,
+- [09:53.460] but it went down at one point to 28 or 29 percent,
+- [09:56.040] which is terrible.
+- [09:57.370] They gave away choice and accountability.
+- [10:01.100] Choice, meaning you have the way to, as a veteran,
+- [10:04.090] you can go and you can choose who your doctor is,
+- [10:07.120] et cetera, et cetera. They gave that up.
+- [10:08.830] And accountability is getting rid of the people
+- [10:10.790] that were sadists
+- [10:12.370] and really bad people that abused our veterans
+- [10:14.980] and really badly abused them.
+- [10:16.620] And they got rid of both of them,
+- [10:18.020] and we put them back.
+- [10:19.230] I couldn't believe when they did it.
+- [10:21.110] And anyway, but we're now --
+- [10:22.320] you've blown everybody away, Doug -- at 93 percent.
+- [10:24.930] So we're 93 percent approval for our vets.
+- [10:28.590] And I like that, so that's good.
+- [10:31.600] The Press: (inaudible) how do you plan to do that?
+- [10:34.010] It requires an act of Congress
+- [10:35.310] to rename the Defense Department to the Department of War.
+- [10:37.760] The President: We're just going to do it.
+- [10:38.960] I'm sure Congress will go along if we need that.
+- [10:40.840] I don't think we even need that,
+- [10:42.150] but if we need that I'm sure Congress will go long.
+- [10:45.950] You know, that was the name when we won World War I,
+- [10:50.460] we won World War II, we won everything.
+- [10:53.970] And just to me seems like just a much more appropriate.
+- [10:58.470] The other is defense is too defensive.
+- [11:01.600] And we want to be defensive,
+- [11:03.240] but we want to be offensive, too, if we have to be.
+- [11:05.350] So it just sounded to me better.
+- [11:07.920] Really like a better name. Steve, go ahead.
+- [11:09.570] The Press: (inaudible)
+- [11:10.770] meeting with President Lee of South Korea,
+- [11:12.310] did you end up talking about trade
+- [11:13.880] and did you reach any conclusions?
+- [11:15.340] The President: Yeah, I think we have a deal done.
+- [11:18.190] They had some problems with it, but we stuck to our guns.
+- [11:22.230] We are going to -- they're going to make the deal
+- [11:25.080] that they agreed to make. And he's a very good guy,
+- [11:28.300] a very good representative for South Korea.
+- [11:31.530] It's a big trade deal.
+- [11:32.750] You know, it's the biggest deal they've ever made by far,
+- [11:34.800] but it's one of the biggest deals ever made.
+- [11:36.370] The biggest deal ever made
+- [11:37.570] is the one with the European nations, as you know.
+- [11:42.160] The Europe deal is -- The biggest deal ever made.
+- [11:44.950] I think it's the biggest deal ever made, period.
+- [11:48.050] And they pay us $950 billion
+- [11:52.300] coming into this country and lots of other things.
+- [11:54.820] They're going to buy $750 billion worth of our oil and gas
+- [11:58.810] and all of the other things, so it's amazing.
+- [12:02.520] Our country is doing so well, so strong now.
+- [12:05.990] And you saw where the tariffs came in,
+- [12:08.920] four trillion dollars, four trillion dollars.
+- [12:11.970] And they just, the CBO, they just announced it.
+- [12:15.840] I told them that was going to happen,
+- [12:17.130] but they refused to give us credit for it.
+- [12:19.020] Now they're giving us credit because the money is flowing in.
+- [12:22.440] They just found $31 billion that nobody knew where it came from.
+- [12:26.660] And I said, check the tariff shelf.
+- [12:29.250] They said, how did you know this is where it came from?
+- [12:31.550] Well, we're taking in a lot.
+- [12:33.770] Look, we were abused by tariffs for many years.
+- [12:37.410] Nobody in this country got it.
+- [12:38.950] Nobody -- no president got it until I came along.
+- [12:41.880] Nobody got it. We were abused by other countries.
+- [12:45.240] We're -- China, I mean, take a look.
+- [12:46.640] That's what they --
+- [12:47.930] what they did is essentially what I'm doing,
+- [12:52.440] but we're doing it at a better scale,
+- [12:55.140] and we're making up for lost time.
+- [12:56.830] And we're also making sure a lot of these countries
+- [12:59.320] respect us for doing it.
+- [13:01.270] They couldn't believe what they got away with.
+- [13:02.780] I mean, I was so -- I told a couple of people,
+- [13:05.030] what do you think he said? One of them, a prime minister,
+- [13:07.320] he said to me, I can't believe we got away with it so long.
+- [13:12.380] Just couldn't believe it.
+- [13:14.270] I'll tell you what, Prime Minister Abe,
+- [13:16.070] who was great at Japan, who was,
+- [13:17.800] fortunately, assassinated, he used to say,
+- [13:20.320] I can't believe we got away with this for so long, you know?
+- [13:22.890] They'd send millions of cars in,
+- [13:24.970] and we weren't allowed to send one car.
+- [13:27.370] They wouldn't accept one car in Japan.
+- [13:29.050] And yet they would send millions and millions of cars
+- [13:32.050] into our country. No tax, no nothing.
+- [13:35.020] So, no, we're just doing the right thing.
+- [13:36.830] And it's making our country rich and beautiful,
+- [13:42.210] and it's very important.
+- [13:44.590] I felt so foolish for years watching this take place.
+- [13:47.590] You know, we did it in my first term with China.
+- [13:49.440] We took in hundreds of billions of dollars of tariffs.
+- [13:52.300] But when COVID came back, we focused on that.
+- [13:54.210] We did a really good job.
+- [13:55.410] But the whole world suffered with that one.
+- [13:57.260] It was a terrible thing.
+- [13:59.180] So we couldn't be tariffing countries.
+- [14:01.190] And if you looked at what happened
+- [14:02.830] to France and Spain and Italy and all,
+- [14:05.090] I'm not going to go say, by the way, we want tariffs.
+- [14:08.310] So -- but now we do say that. And it's -- it's tremendous.
+- [14:12.060] And we're respected. We're the most respected we've ever been.
+- [14:15.130] Thank you very much, everybody. I appreciate it. Thank you.

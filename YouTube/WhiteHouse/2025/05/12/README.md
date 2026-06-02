@@ -1,0 +1,34 @@
+# YouTube / WhiteHouse / 2025-05-12
+
+- Posts: 10
+
+- [23:50 UTC - President Trump Blew Up The Democrat Corrupt Drug Pricing Scheme](UZHCi_oMco/)
+  - Source: https://www.youtube.com/watch?v=_UZHCi_oMco
+  - [00:00.320] drug companies are charging Americans - [00:02.639] three, four, five, even in some cases 10 - [00:05.200] times more than they charge for the same - [00:08.000] drug...
+- [23:49 UTC - Exposing The Democrat Corrupt Drug Pricing Scheme](lhsYLgDPV9Y/)
+  - Source: https://www.youtube.com/watch?v=lhsYLgDPV9Y
+  - [00:00.000] These companies are putting profits - [00:01.439] ahead of people. Pharmaceutical drug - [00:03.120] prices are astronomically high. Too - [00:05.759] high. Way too h...
+- [23:46 UTC - President Trump Blew Up The Democrat Corrupt Drug Pricing Scheme](N6xhdXWkuGg/)
+  - Source: https://www.youtube.com/watch?v=N6xhdXWkuGg
+  - [00:00.320] Drug companies are charging Americans three, four, - [00:03.440] five, even in some cases, ten times more  than they charge the same drugs overseas. - [00:09.360] Peo...
+- [23:45 UTC - Exposing The Democrat Corrupt Drug Pricing Scheme](pGW18lu7_fM/)
+  - Source: https://www.youtube.com/watch?v=pGW18lu7_fM
+  - [00:00.000] These companies are putting  profits ahead of people. - [00:02.240] Pharmaceutical drug prices are  astronomically high, too high, - [00:06.320] way too high, and som...
+- [20:22 UTC - President Trump Signs Executive Order: "Drug Prices Will Come Down"](ZFzwTtdRywo/)
+  - Source: https://www.youtube.com/watch?v=ZFzwTtdRywo
+  - [00:00.040] The President: Starting today, the United States - [00:01.580] will no longer subsidize - [00:02.940] the health care of foreign countries - [00:04.760] and will no l...
+- [18:36 UTC - First Lady Melania Trump: Mother's Day](iWKcbVOQp_0/)
+  - Source: https://www.youtube.com/watch?v=iWKcbVOQp_0
+  - [00:00.610] The First Lady: Motherhood. The life-changing event - [00:05.190] that makes women invincible and exposed at the same time. - [00:10.350] Military mothers in America...
+- [16:38 UTC - Sec. Kennedy on Prescription Drug Pricing: 'This is an extraordinary day...'](TJ4Lg48mPNk/)
+  - Source: https://www.youtube.com/watch?v=TJ4Lg48mPNk
+  - [00:01.120] This is uh this is an extraordinary day. - [00:04.400] This is an issue that you know I grew up - [00:06.720] in the Democratic party and every major - [00:09.679] De...
+- [16:25 UTC - POTUS on South Africa: "It's a genocide"](GJClVK8evHs/)
+  - Source: https://www.youtube.com/watch?v=GJClVK8evHs
+  - [00:00.160] because they're being killed and uh we - [00:03.120] don't want to see people be killed. Now, - [00:05.440] South Africa leadership is coming to see - [00:07.359] me,...
+- [15:47 UTC - POTUS signed an EO which will deliver dramatically lower drug prices for the American people.](WVlp0msOTu8/)
+  - Source: https://www.youtube.com/watch?v=WVlp0msOTu8
+  - [00:00.000] Here is the uh bill. Bobby, come on over - [00:02.159] here. Now you're talking - [00:06.590] [Applause] - [00:09.400] about Thank you very much, everybody.
+- [14:59 UTC - President Trump Holds a Press Conference with the Secretary of Health and Human Services](u2Ftw_VuedA/)
+  - Source: https://www.youtube.com/watch?v=u2Ftw_VuedA
+  - [00:01.040] The President: Thank you, very much. - [00:02.390] Thank you, everybody. It's a big day. Should be fun. - [00:07.630] I don't know. You'll maybe find reasons why it's...

@@ -1,0 +1,31 @@
+# YouTube / WhiteHouse / 2025-05-23
+
+- Posts: 9
+
+- [23:19 UTC - MAGA Minute, May 23, 2025](4jjLTryW7A/)
+  - Source: https://www.youtube.com/watch?v=_4jjLTryW7A
+  - [00:00.480] Hey everybody, happy Friday. It was - [00:02.480] another very busy week here at the White - [00:04.799] House with President Trump. Let's go - [00:06.480] through it...
+- [20:04 UTC - TAKE IT DOWN ACT SIGNED INTO LAW 🇺🇸](BPxOUIiHmjk/)
+  - Source: https://www.youtube.com/watch?v=BPxOUIiHmjk
+  - [00:00.560] It’s an honor to join you here today  for the signing of the Take It Down Act. - [00:06.560] As First Lady, my BE BEST initiative is  focused on improving children’s...
+- [19:00 UTC - President Trump Signs Four Executive Orders on Nuclear Energy: A Huge Day For the Nuclear Industry](Vkk5XOIoc4A/)
+  - Source: https://www.youtube.com/watch?v=Vkk5XOIoc4A
+  - [00:00.080] Thank you, President Trump. This is a - [00:01.600] huge day for the nuclear industry. Uh - [00:03.679] mark this day on your calendar. Uh this - [00:05.839] is going...
+- [18:31 UTC - President Trump Signs Executive Orders in the Oval Office,  May 23, 2025](O9rCTRL6vmQ/)
+  - Source: https://www.youtube.com/watch?v=O9rCTRL6vmQ
+  - [00:09.670] The President: Well, thank you very much. - [00:10.920] We have a very big announcement today. - [00:12.710] It has to do with nuclear, energy, and other things. - [0...
+- [17:42 UTC - Memorial Day Weekend Sees The Lowest Gas Prices in Years](jMoXungjEt4/)
+  - Source: https://www.youtube.com/watch?v=jMoXungjEt4
+  - [00:00.080] Meanwhile, some good news for your - [00:01.680] wallet. This Memorial Day weekend, we're - [00:03.760] looking at the cheapest gas prices since - [00:06.200] 2021. T...
+- [16:48 UTC - MAKE AMERICA HEALTHY AGAIN 🇺🇸](r0ZuyPUNSHs/)
+  - Source: https://www.youtube.com/watch?v=r0ZuyPUNSHs
+  - [00:00.160] We need to make sure that our children are  going to live as long, if not longer, than us. - [00:04.960] Every mother wants this country to be the best it - [00:07.84...
+- [16:43 UTC - Vice President JD Vance Addresses the Naval Academy’s Class of 2025](bfFOQbqR0cw/)
+  - Source: https://www.youtube.com/watch?v=bfFOQbqR0cw
+  - [00:12.900] Announcer: Ladies and gentlemen, the Honorable J.D. Vance, - [00:15.460] Vice President of the United States of America, - [00:18.250] accompanied by Vice Admiral Yve...
+- [01:43 UTC - The Make America Healthy Again Report, May 22, 2025](xa777hE_B74/)
+  - Source: https://www.youtube.com/watch?v=xa777hE-B74
+  - [00:00.080] Four months ago, I created the - [00:01.680] Presidential Commission to Make America - [00:03.600] Healthy Again. And today, the Commission - [00:05.520] officially d...
+- [01:42 UTC - The Make America Healthy Again Report, May 22, 2025](Rw4A9gdNiM0/)
+  - Source: https://www.youtube.com/watch?v=Rw4A9gdNiM0
+  - [00:00.080] Four months ago, I created the Presidential  Commission to Make America Healthy Again, - [00:04.320] and today, the Commission officially delivers  its first report o...

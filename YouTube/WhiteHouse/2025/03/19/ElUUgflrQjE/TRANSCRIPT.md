@@ -1,0 +1,903 @@
+<!-- source: https://www.youtube.com/watch?v=ElUUgflrQjE -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: ElUUgflrQjE -->
+<!-- date_published: 2025-03-19T17:58:41+00:00 -->
+<!-- date_accessed: 2026-06-02T02:52:42.145240+00:00 -->
+
+# Transcript: Press Secretary Karoline Leavitt Briefs Members of the Media, Mar. 19, 2025
+
+- [00:01.530] Ms. Leavitt: Good afternoon, everybody.
+- [00:03.610] How are we? It's a newsy day indeed.
+- [00:06.830] And last night we saw the very best of America.
+- [00:10.690] After spending nearly 300 days
+- [00:13.260] aboard the International Space Station,
+- [00:15.810] Butch Wilmore and Suni Williams are back on earth.
+- [00:19.530] These two incredible astronauts
+- [00:21.410] were only supposed to be up there for eight days,
+- [00:24.490] but because of the Biden administration's
+- [00:26.680] lack of urgency,
+- [00:28.130] they ended up spending nine months in space.
+- [00:31.990] Joe Biden's lack of courage to act boldly
+- [00:34.690] and decisively was a big reason
+- [00:36.740] why Butch and Suni did not make it back until yesterday.
+- [00:40.580] But President Trump doesn't waste time.
+- [00:43.220] Immediately after taking office,
+- [00:45.320] president Trump directed Elon Musk in SpaceX
+- [00:47.990] to rescue these brave astronauts alongside NASA.
+- [00:51.940] The President also called the acting administrator of NASA
+- [00:55.070] and told her to bring the astronauts home
+- [00:57.020] as soon as possible.
+- [00:58.620] As acting administrator, Janet Petro said herself yesterday,
+- [01:02.520] "Per President Trump's direction,
+- [01:04.290] NASA and SpaceX worked diligently
+- [01:06.950] to pull the schedule a month earlier."
+- [01:09.820] The President looks forward to welcoming Butch and Suni
+- [01:12.290] to the Oval Office when they are recovered.
+- [01:14.800] This historic mission brings new meaning
+- [01:16.900] to President Trump's promise to always look out
+- [01:19.480] for the forgotten man and woman. On another important matter,
+- [01:23.520] yesterday, President Trump and President Putin
+- [01:25.910] spoke about the need for peace
+- [01:27.700] and a ceasefire in the Ukraine War.
+- [01:30.400] Both leaders agreed this conflict needs to end
+- [01:32.700] with a lasting piece
+- [01:34.210] and also stress the need for improved bilateral relations
+- [01:37.290] between the United States and Russia.
+- [01:39.540] President Trump also spoke with President Zelensky this morning
+- [01:42.840] to align both Russia and Ukraine
+- [01:44.900] in terms of their needs and requests.
+- [01:47.950] As President Trump has said repeatedly,
+- [01:50.170] the precious lives and money that both Ukraine and Russia
+- [01:53.250] have been spending in this war
+- [01:54.700] would be better spent on the needs of their people.
+- [01:57.810] This terrible conflict would have never started
+- [02:00.270] with President Trump in charge,
+- [02:02.140] but he's determined to end it once and for all.
+- [02:05.860] President Trump also promised maximum transparency
+- [02:08.810] and a commitment to rebuild the trust of the American people
+- [02:12.010] in our intelligence community.
+- [02:14.360] Part of that promise was to fully release
+- [02:16.280] previously classified records related to the assassination
+- [02:19.440] of Former President John F. Kennedy,
+- [02:21.670] and he made that happen yesterday.
+- [02:23.820] This historic release consisted of approximately 80,000 pages
+- [02:28.080] of previously classified records that are now published.
+- [02:32.010] The records are available to access either online
+- [02:34.920] at archives.gov/JFK or in person
+- [02:39.260] accessible to the American people
+- [02:40.820] at the National Archives in College Park, Maryland.
+- [02:44.570] Records that are currently only available
+- [02:46.270] for in-person viewing are being digitized
+- [02:48.900] and will be uploaded in the coming days.
+- [02:51.630] On another note, positive economic data
+- [02:53.850] continues to pour in showing the immediate impact
+- [02:56.700] of President Trump's pro-growth agenda.
+- [02:59.390] After suffering a steep decline
+- [03:01.150] in the final year of the Biden administration,
+- [03:03.850] the manufacturing sector came roaring back in February.
+- [03:07.970] Industrial production surged in February,
+- [03:10.630] these are new numbers, at a greater three times rate
+- [03:15.480] than the expectations to its highest ever recorded level.
+- [03:19.790] And President Trump's laser focus on massive deregulation
+- [03:23.250] and unleashing our domestic energy industry
+- [03:25.950] is leading to stabilities for Americans bottom line.
+- [03:29.270] As Newsweek summed it up today,
+- [03:31.310] gas prices are plummeting under President Trump.
+- [03:34.910] And the Trump administration
+- [03:36.550] continues to make American communities
+- [03:38.360] safer through our ongoing mass deportation campaign
+- [03:41.680] of illegal alien criminals.
+- [03:43.760] Yesterday, FBI director Kash Patel
+- [03:46.400] announced the agency captured another fugitive
+- [03:48.730] from its 10 most wanted list,
+- [03:51.120] securing the extradition of Francisco Javier Roman-Bardales,
+- [03:55.180] a key senior leader of the brutal MS-13 gang,
+- [03:59.090] and the brave men and women of ICE
+- [04:00.860] also arrested a number of dangerous aliens
+- [04:03.570] across the country in recent days.
+- [04:05.720] You will see them on this screen.
+- [04:07.630] ICI San Francisco just arrested a citizen of Guatemala,
+- [04:10.790] convicted of sexual battery.
+- [04:12.980] ICE New Orleans arrested a citizen of Ecuador,
+- [04:15.820] convicted of rape in Suffolk County, New York.
+- [04:19.150] ICE Atlanta arrested a citizen of Mexico,
+- [04:21.930] convicted of assault by strangulation.
+- [04:25.030] ICE Dallas arrested a citizen of Mexico,
+- [04:27.520] convicted of assault with a firearm
+- [04:29.450] and rape with a foreign object.
+- [04:32.600] ICE Houston arrested a citizen of Guatemala,
+- [04:34.970] convicted of indecent sexual contact with a child in Texas.
+- [04:39.100] These are heinous criminal alien monsters
+- [04:42.210] who the previous administration allowed to flood
+- [04:44.370] into our country.
+- [04:45.830] And every time President Trump and his team deport one of them,
+- [04:48.850] our country becomes safer.
+- [04:51.030] Finally, before I open it up to questions,
+- [04:52.970] I want to tout how successful our efforts have been
+- [04:55.470] in filling out President Trump's administration.
+- [04:58.140] There have been a record number of 281
+- [05:00.900] Senate confirmed nominations
+- [05:03.290] already with another 280 in process.
+- [05:07.120] Here at the White House, OPM and GSA,
+- [05:10.110] we have filled 100% of the total number of slots,
+- [05:14.290] and this is a record number of placements in the first
+- [05:16.830] 58 days of any administration and a testament to the caliber
+- [05:21.430] and the sheer quantity of talented people
+- [05:24.250] who want to work for President Trump
+- [05:26.100] to make America great again.
+- [05:28.530] Here in our new media seat today, we have Katie Pavlich.
+- [05:31.740] Katie is the editor of Townhall.com,
+- [05:34.420] which is a subsidiary of Townhall Media.
+- [05:37.070] It's a leading conservative news and opinion outlet
+- [05:39.390] based right here in Washington,
+- [05:40.950] D.C with writers and journalists reporting around the country.
+- [05:45.080] Last year, Townhall Media had 60 million unique users
+- [05:48.440] and 1.4 billion page views with a broad reach
+- [05:51.790] on a number of social media platforms.
+- [05:54.080] With that, Katie, please kick us off.
+- [05:55.850] The Press: Thank you, Karoline. Really appreciate it.
+- [05:57.410] Ms. Leavitt: Sure. The Press: Thank you.
+- [05:58.680] So given the back and forth with this US District Judge
+- [06:00.800] and the administration's use of the Alien Enemies Act,
+- [06:03.640] does the President plan to send new and additional flights
+- [06:06.860] of Venezuelan gang members,
+- [06:08.720] now designated as foreign terrorists,
+- [06:10.350] from the US to El Salvador or elsewhere?
+- [06:13.170] Can Americans expect to see those flights sometime soon?
+- [06:15.700] Ms. Leavitt: Americans can absolutely expect
+- [06:17.390] to see the continuation of the mass deportation campaign
+- [06:20.820] that has been successfully led by this President,
+- [06:23.330] Secretary of Homeland Security, Kristi Noem,
+- [06:25.940] and also our Secretary of State, Marco Rubio.
+- [06:29.060] Since you brought up the judges, I would like to point out
+- [06:32.190] that the judges in this country are acting erroneously.
+- [06:36.550] We have judges who are acting as partisan activists
+- [06:40.520] from the bench. They're trying to dictate policy
+- [06:43.630] from the President of the United States.
+- [06:45.540] They are trying to clearly slow-walk
+- [06:48.350] this administration's agenda, and it's unacceptable.
+- [06:51.630] As the President said last night,
+- [06:53.030] we will continue to comply with these court orders.
+- [06:55.030] We will continue to fight these battles in courts,
+- [06:58.040] but it's incredibly apparent that there is a concerted effort
+- [07:01.890] by the far left to judge shop,
+- [07:04.380] to pick judges who are clearly acting as partisan activists
+- [07:08.550] from the bench in an attempt to derail this President's agenda.
+- [07:12.360] We will not allow that to happen.
+- [07:13.810] And not only are they usurping the will of the President
+- [07:16.860] and the Chief Executive of our country,
+- [07:18.930] but they are undermining the will of the American public,
+- [07:21.750] tens of millions of Americans who duly elected this President
+- [07:25.470] to implement the policies
+- [07:26.930] that are coming out of this White House.
+- [07:28.300] The Press: And then one more question,
+- [07:29.530] Senate Minority Leader Chuck Schumer
+- [07:30.970] said yesterday that he was united with Democrats
+- [07:34.410] and working against Americans
+- [07:35.770] who "Their attitude is, I made my money all by myself.
+- [07:39.330] How dare your government take my money from me?
+- [07:41.740] Or, I built my company with my bare hands.
+- [07:43.810] How dare your government tell me how to treat my customers?"
+- [07:46.670] What does the President's response to this
+- [07:48.180] given his upcoming tax agenda
+- [07:50.170] and need to work on Capitol Hill?
+- [07:51.760] Ms. Leavitt: Well, we certainly hope that Democrats
+- [07:53.420] all of a sudden are for more money
+- [07:55.200] in the pockets of the American public.
+- [07:57.030] The President has made it incredibly clear
+- [07:59.050] that he is committed to tax cuts,
+- [08:01.090] he is committed to passing a big reconciliation
+- [08:03.680] package later this year,
+- [08:05.330] ending no taxes on tips, taxes on overtime,
+- [08:07.790] no taxes on Social Security for our hardworking seniors.
+- [08:11.210] And we encourage everybody on Capitol Hill
+- [08:13.620] to support that when it comes to the finish line,
+- [08:16.380] especially Democrats who clearly need a boost
+- [08:18.360] from the American public right now,
+- [08:19.880] their approvals are at an all-time record low.
+- [08:22.350] Thanks for being with us, Katie. Gary?
+- [08:24.160] The Press: I have one other question,
+- [08:25.390] but I want to follow up on Katie's question actually.
+- [08:27.010] You said the mass deportation campaign would continue,
+- [08:29.810] but she asked about the flights specifically.
+- [08:31.800] Will those flights to El Salvador continue
+- [08:34.000] while this case is being appealed?
+- [08:35.390] Ms. Leavitt: We don't have
+- [08:36.660] any flights planned specifically,
+- [08:38.370] but we will continue with the mass deportations.
+- [08:40.790] And I would just like to point out
+- [08:42.180] that the judge in this case is essentially trying to say
+- [08:45.440] that the President doesn't have the executive authority
+- [08:48.650] to deport foreign terrorists from our American soil.
+- [08:52.880] That is an egregious abuse of the bench.
+- [08:56.100] This judge does not have that authority.
+- [08:58.380] It is the opinion of this White House
+- [09:00.110] and of this administration,
+- [09:01.420] and that's why we're fighting this in court,
+- [09:03.720] and it's very, very clear that this is an activist judge
+- [09:07.840] who is trying to usurp the President's authority.
+- [09:09.770] Under the Alien Enemies Act, the President has this power,
+- [09:12.780] and that's why this deportation campaign has continued.
+- [09:15.780] And this judge, Judge Boasberg, is a Democrat activist.
+- [09:20.180] He was appointed by Barack Obama.
+- [09:22.260] His wife has donated more than $10,000 to Democrats,
+- [09:26.100] and he has consistently shown his disdain
+- [09:28.540] for this president and his policies,
+- [09:30.070] and it's unacceptable.
+- [09:31.330] The Press: You took me right where I wanted to go
+- [09:32.580] about the idea that these people are all foreign terrorists,
+- [09:34.540] but Judge Boasberg was originally appointed
+- [09:36.200] by George W. Bush and then elevated by Barack Obama.
+- [09:39.730] I just feel like I should clear that up.
+- [09:41.370] Ms. Leavitt: Well, let me just say something
+- [09:42.610] to that effect, Garrett.
+- [09:44.080] 67% of all of the injunctions in this century
+- [09:48.700] have come against which president?
+- [09:50.070] Donald J. Trump.
+- [09:51.300] Let me say that again, 60% of the injunctions
+- [09:54.730] by partisan activists in the judicial branch
+- [09:57.380] have come against President Donald Trump,
+- [09:59.260] and 92% of those have been from Democrat-appointed judges.
+- [10:04.140] This is a clear concerted effort by leftists
+- [10:07.740] who don't like this president
+- [10:09.360] and are trying to impose or slow down his agenda.
+- [10:14.270] The Press: So given that,
+- [10:15.680] do you think it's a good use of Congress's time
+- [10:18.340] and the president's political capital
+- [10:20.210] to try to impeach and remove a federal judge,
+- [10:22.220] which would take 67 votes you're unlikely to get in the Senate?
+- [10:25.490] Ms. Leavitt: Well, look, the president has made it clear
+- [10:27.290] that he believes this judge in this case should be impeached,
+- [10:30.260] and he has also made it clear that he has great respect
+- [10:32.710] for the Chief Justice John Roberts,
+- [10:34.890] and it's incumbent upon the Supreme Court
+- [10:37.040] to rein in these activist judges.
+- [10:39.190] These partisan activists
+- [10:40.650] are undermining the judicial branch by doing so.
+- [10:43.710] We have co-equal branches of government for a reason,
+- [10:46.010] and the President feels very strongly about that.
+- [10:49.510] The Press: What options does the president have to…
+- [10:52.510] He says he's going to follow court orders,
+- [10:54.610] he wouldn't defy a court order,
+- [10:56.210] but he's raised these concerns about these judges
+- [10:58.110] acting in such a partisan way.
+- [11:00.340] What option does he have to ensure
+- [11:03.090] that his agenda continues to move forward
+- [11:05.110] while this is ongoing and the judges appear
+- [11:07.640] to be trying to just block and delay and impede?
+- [11:09.630] Ms. Leavitt: Well, you're right.
+- [11:10.860] They are trying to block, delay and impede.
+- [11:13.120] This is lawfare. The president is no stranger to it.
+- [11:16.620] He faced it in his campaign,
+- [11:17.990] and this is a continuation of the lawfare
+- [11:20.350] that President Trump faced as a candidate,
+- [11:22.530] and he's now unfortunately facing as a president.
+- [11:25.340] Clearly, these partisan activists in the judicial branch
+- [11:27.580] didn't get the memo on November 5th
+- [11:29.530] when the American people overwhelmingly re-elected
+- [11:31.880] this president to continue with mass deportations.
+- [11:34.510] So White House counsel and the Department of Justice
+- [11:37.370] are working on this. They're appealing these cases,
+- [11:39.680] and we will continue to use the full weight
+- [11:42.520] of the White House counsel's office
+- [11:44.360] and the President's team of lawyers to fight this in court
+- [11:47.000] because we know we will win
+- [11:48.250] even if we have to go all the way to the Supreme Court.
+- [11:50.160] The Press: One more on PDA,
+- [11:52.160] Andy McCarthy said in an interview with Hugh Hewitt,
+- [11:55.430] he certainly agrees with what the president
+- [11:56.970] is trying to do with the Alien Enemies Act,
+- [11:58.920] but he's not sure that the law is completely on his side.
+- [12:02.660] He cites some previous Supreme Court rulings
+- [12:05.260] dealing with enemy combatants in wartime,
+- [12:07.720] says that even they have a right
+- [12:09.890] to challenge their detention in court.
+- [12:12.290] He raised concern also that while TDA has been designated
+- [12:15.640] as a terrorist organization,
+- [12:17.210] these individuals hadn't been prosecuted for terrorism.
+- [12:20.670] So my question is, will the President ask Congress
+- [12:24.600] potentially to declare war on these cartels
+- [12:28.150] for the invasion that he's talked about
+- [12:29.520] so that he's on stronger legal footing?
+- [12:31.580] Ms. Leavitt: Well, we absolutely disagree with the legal opinion
+- [12:34.120] of the individual that you mentioned.
+- [12:35.740] We would not have moved forward with this
+- [12:37.110] if we didn't believe the president.
+- [12:38.390] This was within the president's executive authority
+- [12:41.710] to continue with this mass deportation effort
+- [12:44.630] under the authority provided to him under the Alien Enemies Act.
+- [12:48.340] And when you read the act as I did last time at the podium,
+- [12:51.250] a predatory incursion is absolutely what has happened
+- [12:54.780] with Tren de Aragua. They have been sent here
+- [12:56.710] by the hostile Maduro regime in Venezuela
+- [12:59.750] and the president immediately upon taking office
+- [13:02.170] designated TDA as a foreign terrorist organization,
+- [13:05.790] and under this act, it is within the president's authority
+- [13:08.600] to deport these terrorists.
+- [13:10.080] And anybody trying to defend these terrorists
+- [13:13.570] who have now been sent off of American soil
+- [13:16.100] should talk to the families of the individuals
+- [13:18.680] who these heinous monsters have killed and have raped.
+- [13:21.750] If you talk to those families, they are so heartened
+- [13:24.960] by the president's decision to take tough action
+- [13:27.280] and to use his executive authority,
+- [13:29.190] something that no other president has been willing to do
+- [13:31.930] because President Trump does what he says he's going to do,
+- [13:34.320] and he's deporting these foreign terrorists from American soil
+- [13:36.860] to secure our homeland, and he's within his rights to do that.
+- [13:39.130] Jennifer.
+- [13:40.340] The Press: On Tesla, very quickly on Tesla,
+- [13:42.080] there's a website that's trying to dox
+- [13:44.900] Tesla owners across the country
+- [13:46.470] and saying they're only going to take down personal information
+- [13:49.010] when people show that they've sold their cars.
+- [13:51.940] What's the administration going to do about that?
+- [13:53.910] Ms. Leavitt: I haven't seen that website,
+- [13:55.350] but we certainly think it's despicable,
+- [13:57.240] the violence that has taken place against Tesla,
+- [13:59.590] the company, its employees, and also just Americans
+- [14:02.620] who have chosen to drive an electric vehicle.
+- [14:05.050] Many of them are Democrats by the way.
+- [14:07.330] Democrats were big supporters of Tesla and of electric vehicles
+- [14:10.880] until Elon Musk decided to vote for Donald Trump.
+- [14:13.530] So we would like Democrats to also come out and condemn
+- [14:16.720] this heinous violence that we have seen,
+- [14:18.310] and I believe the Attorney General has said
+- [14:19.860] she's investigating these incidents
+- [14:21.490] as acts of domestic terrorism. Jennifer
+- [14:23.710] The Press: On Ukraine, can you say,
+- [14:25.100] is the White House going to pause
+- [14:27.650] foreign military aid or intelligence
+- [14:30.070] sharing with Ukraine as Russia says it's pushing for?
+- [14:33.570] And then I have a follow-up on the Federal Trade Commission.
+- [14:35.540] Ms. Leavitt: Sure. When it comes to Ukraine,
+- [14:37.660] I do have a statement for you
+- [14:39.190] from the National Security Advisor
+- [14:40.640] and also the Secretary of State.
+- [14:42.430] First, I'd like to reiterate what the president said earlier
+- [14:44.870] following his call with President Zelensky this morning.
+- [14:48.120] He said he just completed a very good telephone call
+- [14:50.890] with President Zelensky.
+- [14:52.400] It lasted approximately one hour.
+- [14:54.740] Much of the discussion was based on a call made yesterday
+- [14:57.390] with President Putin in order to align both Russia and Ukraine
+- [15:00.980] in terms of their requests and needs.
+- [15:03.010] We are very much on track,
+- [15:04.630] and I will ask Secretary of State,
+- [15:06.030] Marco Rubio and Mike Walz
+- [15:07.520] to give an accurate description of the points discussed.
+- [15:10.110] That statement will be put out shortly
+- [15:11.530] while I have that statement for you right here,
+- [15:13.870] bear with me as I read it.
+- [15:16.190] Today, President Trump and Ukraine's
+- [15:18.190] President Vladimir Zelensky
+- [15:19.570] had a fantastic phone conversation.
+- [15:21.910] President Zelensky thanked President Trump
+- [15:23.900] for a productive start for the work of the Ukrainian
+- [15:26.480] and American teams in Jeddah on March 11th.
+- [15:29.420] The meeting of the senior officials from both nations
+- [15:31.580] significantly helped in moving toward ending the war.
+- [15:34.710] President Zelensky thanked President Trump
+- [15:36.650] for the support of the United States,
+- [15:38.560] especially the Javelin missiles that President Trump
+- [15:40.980] was first to provide in his efforts towards peace.
+- [15:44.360] The leaders agreed Ukraine and America will continue
+- [15:46.860] working together to bring about a real end to the war,
+- [15:49.900] and that lasting peace under President Trump's leadership
+- [15:52.610] can be achieved.
+- [15:54.530] President Trump fully briefed President Zelensky
+- [15:56.730] on his conversation with Putin and the key issues discussed.
+- [16:00.300] They reviewed the situation in Kursk
+- [16:02.130] and agreed to share information
+- [16:03.580] closely between their defense staffs
+- [16:05.730] as the battlefield situation evolved.
+- [16:08.150] President Zelensky asked for additional air defense systems
+- [16:10.930] to protect his civilians,
+- [16:12.300] particularly Patriot missile systems,
+- [16:14.820] and President Trump agreed to work with him
+- [16:16.660] to find what was available, particularly in Europe.
+- [16:20.350] The two leaders also agreed
+- [16:21.700] on a partial ceasefire against energy.
+- [16:24.290] Technical teams will meet in Saudi Arabia
+- [16:26.510] in the coming days to discuss broadening the ceasefire
+- [16:29.090] to the Black Sea on the way to a full ceasefire.
+- [16:32.990] They agreed this could be the first step
+- [16:34.540] toward the full end of the war in ensuring security.
+- [16:37.540] President Zelensky was grateful
+- [16:39.110] for the president's leadership in this effort
+- [16:41.060] and reiterated his willingness to adopt a full ceasefire.
+- [16:44.700] President Trump also discussed Ukraine's electrical supply
+- [16:47.720] and nuclear power plants.
+- [16:49.400] He said that the United States could be very helpful
+- [16:51.920] in running those plants with its electricity
+- [16:53.910] and utility expertise.
+- [16:55.820] American ownership of those plants
+- [16:57.550] would be the best protection for that infrastructure
+- [16:59.830] and support for Ukrainian energy infrastructure.
+- [17:03.020] President Zelensky also thanked President Trump
+- [17:05.190] for continuing to push humanitarian concerns,
+- [17:07.800] including the exchange of prisoners of war.
+- [17:10.530] He noted they had just had a successful exchange
+- [17:12.860] and thanked the president for his leadership on that.
+- [17:16.070] President Trump also asked President Zelensky
+- [17:17.850] about the children
+- [17:19.110] who had gone missing from Ukraine during the war,
+- [17:21.820] including the ones that had been abducted,
+- [17:24.180] and President Trump promised to work closely with both parties
+- [17:27.090] to help make sure those children were returned home.
+- [17:30.180] They agreed all parties must continue the effort
+- [17:32.510] to make a ceasefire work.
+- [17:34.240] The presidents noted the positive work of their advisors
+- [17:36.890] and representatives, especially Secretary Rubio,
+- [17:39.410] national Security Advisor, Mike Waltz,
+- [17:41.560] Special Envoy Kellogg, and others.
+- [17:43.920] The presidents instructed their teams to move ahead
+- [17:46.100] with the technical issues related to implementing
+- [17:48.290] and broadening the partial ceasefire.
+- [17:50.590] The presidents instructed their advisors and representatives
+- [17:53.080] to carry out this work as quickly as possible.
+- [17:55.690] The presidents emphasized that in further meetings,
+- [17:58.070] the teams can agree on all necessary aspects
+- [18:00.820] of advancing toward lasting peace and security.
+- [18:03.980] That is a lengthy statement that was just given to me,
+- [18:05.940] so thanks for bearing with me.
+- [18:07.200] Our office will of course provide this after.
+- [18:10.090] And as you know, as I just pointed out in the statement,
+- [18:12.280] the President's team of negotiators
+- [18:13.920] and national security experts
+- [18:15.670] will be heading to Saudi again later this week
+- [18:18.150] to continue working on in ironing out the details.
+- [18:20.490] But I would just like to emphasize
+- [18:22.260] we have never been this close to peace
+- [18:24.310] and it's only because of President Trump
+- [18:25.840] that we are here.
+- [18:27.060] I think a couple of years ago, as you all reported on the war,
+- [18:29.630] it was incomprehensible to have a partial ceasefire
+- [18:33.470] in this conflict. And today, that is true
+- [18:35.770] because of the leadership of this President.
+- [18:37.820] Mary?
+- [18:39.030] The Press: You said they agreed to closely share information
+- [18:41.750] between their defense staffs.
+- [18:43.570] Does that mean all intelligence sharing will continue?
+- [18:46.600] So the White House is rejecting Russia's request to pause that?
+- [18:50.210] Ms. Leavitt: Intelligence sharing in terms
+- [18:51.910] of defense for Ukraine
+- [18:53.190] will continue to be shared. Mary?
+- [18:55.290] The Press: Thanks, Karoline. I have two questions.
+- [18:56.760] One on the United States Institute of Peace
+- [18:58.640] and then on the Supreme Court, if that's okay?
+- [19:00.240] Ms. Leavitt: Sure.
+- [19:01.520] The Press: So on the United States Institute of Peace,
+- [19:03.190] this is a little bit wild,
+- [19:04.410] I understand the old president refused to leave.
+- [19:07.270] After he was removed from his position,
+- [19:09.220] he barricaded himself in his offices,
+- [19:11.440] had to be escorted out by police,
+- [19:13.330] left the building without Wi-Fi, telephones, elevators, and more,
+- [19:17.420] and is now telling media that DOGE broke in
+- [19:20.790] and illegally removed him.
+- [19:22.330] So can you comment on this sequence of events
+- [19:24.600] and specify did DOGE illegally enter?
+- [19:27.850] Ms. Leavitt: I'm really glad you brought this up, Mary.
+- [19:29.810] We were made aware of this story by individuals at DOGE,
+- [19:36.030] at Elon Musk's team and also at the State Department
+- [19:38.630] who were unable to access this building,
+- [19:41.990] and it became very clear that there was a concerted effort
+- [19:45.350] amongst the rogue bureaucrats
+- [19:47.570] at the United States Institute of Peace
+- [19:49.180] to actually physically barricade themselves
+- [19:51.420] essentially inside of the building
+- [19:53.460] to prevent political appointees of this administration
+- [19:57.320] who work at the direction of the President of the United States
+- [20:00.680] to get into the building.
+- [20:01.920] There was a piece in the Daily Caller,
+- [20:03.810] thank you for sharing the truth on this, about what happened.
+- [20:07.270] Staff contacted the NPD
+- [20:09.640] in an attempt to prevent DOGE personnel from entering.
+- [20:12.520] They barricaded the doors, they also disabled telephone lines,
+- [20:17.810] internet connections,
+- [20:19.070] and other IT infrastructure within the building.
+- [20:21.510] They distributed flyers internally,
+- [20:24.590] encouraging each other to basically prevent
+- [20:28.050] these individuals from accessing the building.
+- [20:30.210] I use this to say this is what DOGE
+- [20:33.560] and this administration is facing.
+- [20:35.020] It's a resistance from bureaucrats
+- [20:36.860] who don't want to see change in this city.
+- [20:39.170] President Trump was elected on an overwhelming mandate
+- [20:41.920] to seek change and implement change
+- [20:44.120] and this is unacceptable behavior.
+- [20:45.430] The Press: Thank you.
+- [20:46.650] And just really quick on the Supreme Court.
+- [20:48.070] I know it's been almost three years now
+- [20:49.680] since the leak of the draft
+- [20:50.880] Dobbs opinion to Politico actually,
+- [20:53.480] a leak which sparked protesting
+- [20:54.740] outside the homes of the justices
+- [20:56.220] and even brought on one attempted assassination attempt.
+- [20:59.250] I know Justice Alito said
+- [21:00.560] that it made the justices targets for assassination,
+- [21:03.590] but yet the Supreme Court has not tracked down any leaker.
+- [21:06.130] Does the White House have interest
+- [21:07.500] in finding out who that leaker was
+- [21:09.130] and can you comment on that at all?
+- [21:11.090] Ms. Leavitt: I know generally speaking,
+- [21:12.370] the President has an interest in finding leakers
+- [21:14.870] and he believes it's unacceptable
+- [21:16.930] and it's the position of this administration,
+- [21:18.680] you've seen the Secretary of Homeland Security
+- [21:21.090] has taken tough action at her agency.
+- [21:23.680] Leaking is unacceptable to this President
+- [21:25.620] and to the leaders across the board in this Cabinet,
+- [21:27.790] especially when it puts people in harm's way. Sure.
+- [21:30.050] The Press: Thank you, Karoline.
+- [21:31.340] A mom whose daughter was forced to change in a locker room
+- [21:34.540] with a biological male at school filed a complaint with the DOJ.
+- [21:38.310] How will the Trump DOJ deal with violations
+- [21:40.630] of President Trump's orders
+- [21:41.970] protecting women and girls like this?
+- [21:43.680] Ms. Leavitt: I would defer you to the Department of Justice
+- [21:45.320] on that specific case,
+- [21:46.550] but the president has made it incredibly clear,
+- [21:49.260] it is the policy of this administration
+- [21:51.310] that there are only two genders, male and female,
+- [21:53.830] only two sexes rather, male and female,
+- [21:56.640] and that we are not going to tolerate such behavior
+- [21:59.680] by men pretending to be women.
+- [22:02.650] The President will continue to strongly stand
+- [22:04.720] for the rights of women and girls,
+- [22:06.290] not just in sports and on athletic fields,
+- [22:08.590] but also in private spaces like locker rooms and bathrooms.
+- [22:11.720] Sure. Go ahead.
+- [22:12.950] The Press: Thank you. On the FTC, two quick questions.
+- [22:14.820] Can you explain the President's thinking in his decision
+- [22:17.170] to fire the two Democratic commissioners,
+- [22:19.370] especially given that Mark Meador is on track
+- [22:21.920] to be confirmed next week
+- [22:23.640] and there would be Republican majority?
+- [22:25.040] My biggest question is, why now?
+- [22:27.030] Ms. Leavitt: Sure.
+- [22:28.260] Because the time was right to let these people go
+- [22:30.610] and the President absolutely has the authority to do it
+- [22:33.540] and they were given ample notice in a letter
+- [22:35.560] that I believe your outlet reported on.
+- [22:37.820] So it pretty much explains exactly
+- [22:39.690] why this administration chose to let those individuals go.
+- [22:42.150] The Press: Is the ultimate goal to get this to the Supreme Court
+- [22:44.200] to try to overturn the 1935 precedent?
+- [22:46.520] Ms. Leavitt: The goal was to let these individuals go.
+- [22:48.310] If we have to fight it all the way to the Supreme Court,
+- [22:50.160] we certainly will. Rachel?
+- [22:52.250] The Press: Back to those deportation flights
+- [22:53.560] to El Salvador,
+- [22:54.780] can the administration provide any more details
+- [22:57.120] on how authorities determine that each of those men
+- [22:59.570] were in fact members of a gang?
+- [23:01.430] And if the White House can publish images,
+- [23:03.930] photos, videos of those men,
+- [23:06.280] why can't the administration just release basic information,
+- [23:08.630] like their identities and names?
+- [23:10.020] Ms. Leavitt: We are not going to reveal operational details
+- [23:12.540] about a counterterrorism operation,
+- [23:15.020] but what I can assure you, as I said on Monday,
+- [23:17.280] we have the highest degree of confidence
+- [23:19.560] in our ICE agents and our customs
+- [23:21.460] and border patrol agents who have committed their lives
+- [23:24.890] to targeting illegal criminals in our country,
+- [23:27.820] particularly foreign terrorists.
+- [23:30.410] And they had great evidence and indication.
+- [23:32.770] They have the highest degree of professionalism,
+- [23:34.910] and they were 100% confident in the individuals
+- [23:38.450] that were sent home on these flights
+- [23:39.850] and in the President's executive authority to do that.
+- [23:41.720] The Press: Just to follow up, I know in the last briefing
+- [23:43.530] you've cited privacy concerns
+- [23:44.970] as a reason why the administration
+- [23:46.570] may not be able to reveal the identities.
+- [23:48.750] What exactly are the privacy rights of immigrants
+- [23:51.700] who were deported that the administration says
+- [23:53.850] were dangerous enough to be sent to El Salvador
+- [23:55.890] and sent in a prison?
+- [23:57.130] Ms. Leavitt: Again, as I just said,
+- [23:58.340] we're not going to reveal the operational details
+- [24:00.320] of a counterterrorism operation for quite obvious reasons.
+- [24:04.040] We're trying to combat terrorism here
+- [24:05.740] in the United States of America. Jeff?
+- [24:07.340] The Press: If I could ask something else
+- [24:08.570] about the phone call yesterday.
+- [24:09.940] There was a couple different readouts from the Kremlin
+- [24:12.370] and the US on a couple of different points,
+- [24:14.200] one was energy and infrastructure.
+- [24:17.300] The US statements said energy and infrastructure,
+- [24:19.950] the Kremlin said energy infrastructure.
+- [24:22.250] What is your understanding
+- [24:23.470] of what the actual substance of that disagreement was?
+- [24:26.800] Then I have one other question on that.
+- [24:28.300] Ms. Leavitt: I would defer you to the readout
+- [24:29.500] that was provided by the White House.
+- [24:30.970] That's our understanding and that's the truth.
+- [24:32.660] The Press: And if I could ask a question
+- [24:33.930] about the judge as well,
+- [24:35.430] how does a president define a bad judge?
+- [24:37.850] Is it just someone who disagrees with him?
+- [24:39.270] Ms. Leavitt: No.
+- [24:40.480] The Press: And is that a dangerous president
+- [24:41.700] in this case?
+- [24:42.900] Because this is a temporary ruling from Judge Boasberg
+- [24:45.350] that he could ultimately rule in your favor.
+- [24:47.650] Is he setting up a standard here
+- [24:49.650] for calling for the impeachment of a judge
+- [24:51.680] who may ultimately rule on your side?
+- [24:54.700] Ms. Leavitt: No, it has nothing to do with disagreeing
+- [24:57.660] with the President on policy.
+- [24:59.040] It's with disagreeing with the constitution and the law
+- [25:01.770] and it's trying to usurp the authority
+- [25:03.980] of the executive branch of this country.
+- [25:06.130] It's having baseless reasoning for these injunctions
+- [25:09.310] and it's a clear effort by these judges
+- [25:12.470] to slow roll this president's agenda.
+- [25:15.040] And if you just look at the injunctions
+- [25:16.900] that this president has faced,
+- [25:18.440] deporting foreign terrorists from our homeland,
+- [25:21.480] hiring and firing of Executive branch employees
+- [25:26.210] when the President is the executive
+- [25:28.060] of the executive branch.
+- [25:29.950] You also see an injunction by a partisan activist judge
+- [25:34.080] when it comes to the Secretary of Defense
+- [25:36.190] trying to determine the readiness of our troops
+- [25:39.650] and the qualifications of our troops and our armed forces.
+- [25:43.130] Does a single district court judge
+- [25:44.820] really have more authority
+- [25:46.290] over the commander-in-chief and the Secretary of Defense
+- [25:48.990] to determine who should serve in our United States Armed forces?
+- [25:52.500] Absolutely not.
+- [25:53.770] Anyone who has taken a basic civics lesson
+- [25:56.670] can understand that and it's ridiculous
+- [25:59.000] lawfare that we are witnessing. And it's-
+- [26:00.810] The Press: The President said he supports…
+- [26:02.720] I'm sorry, the President said he respects the chief justice here.
+- [26:06.850] Does he respect him specifically on this case
+- [26:10.320] and this opinion or respects him overall?
+- [26:12.380] And has he spoken to any other Supreme Court justices about it?
+- [26:14.800] Ms. Leavitt: The President respects Chief Justice Roberts
+- [26:17.020] overall.
+- [26:18.240] He just expressed that to me in the Oval Office,
+- [26:20.630] but it's also quite clear that the Supreme Court needs to rein
+- [26:23.850] in these judges who are acting as partisan activists,
+- [26:26.700] and they are undermining the judicial branch
+- [26:29.500] and it's a dereliction of duty on their behalf. Deanna?
+- [26:31.700] The Press: And how would you rein them in?
+- [26:33.070] Ms. Leavitt: Deanna, go ahead.
+- [26:34.280] The Press: Thank you so much, Karoline.
+- [26:35.510] On the call with Zelenskyy,
+- [26:36.750] did they discuss the minerals deal at all?
+- [26:38.960] Is that back on the table?
+- [26:40.280] And what do the Ukrainians have to do
+- [26:41.730] to get that back on the table
+- [26:43.550] and then one on the Russia call as well?
+- [26:45.020] Ms. Leavitt: Again, I just provided
+- [26:46.310] a very lengthy readout of the call
+- [26:48.360] that was provided by the Secretary of State
+- [26:50.300] and the National Security Advisor,
+- [26:52.550] and now we have moved beyond the economic minerals deal.
+- [26:55.800] We are at a place of peace. We're at a partial ceasefire
+- [26:58.450] and we're moving towards a full ceasefire
+- [27:00.540] and a long-standing peace in this conflict.
+- [27:02.860] And that's great news for the American public.
+- [27:04.550] The Press: The Kremlin readout mentioned that Trump and Putin
+- [27:07.410] spoke about potential U.S.-Russia hockey games,
+- [27:10.790] and the Kremlin readout also said that Russia wanted the U.S.
+- [27:15.820] To stop U.S. intelligence and U.S. funding to Ukraine.
+- [27:19.950] The president has said that that conversation did not happen.
+- [27:23.140] Just wondering if you can get us any more clarity on that,
+- [27:25.550] and also, again, if it's energy infrastructure,
+- [27:28.400] or if it's energy and infrastructure,
+- [27:30.780] because I think there is a big difference between that.
+- [27:32.700] Ms. Leavitt: Again, as for the readouts of the call,
+- [27:35.130] I would defer you to ours.
+- [27:36.910] And when it comes to the topic of hockey, it did come up.
+- [27:40.680] However, we're more interested in securing a peace deal
+- [27:43.210] than scheduling hockey games right now.
+- [27:44.910] Sean?
+- [27:46.130] The Press: Hey, about the deportation flight,
+- [27:47.830] so was it the president himself
+- [27:49.770] who directed the planes to stay in the air
+- [27:52.220] after the judge ordered them to turn back?
+- [27:54.650] Ms. Leavitt: The president invoked
+- [27:57.110] the Aliens Enemies Act with a proclamation,
+- [27:59.630] which then directed the Department of Homeland Security
+- [28:02.210] and the Department of State
+- [28:03.490] to move forward with the plan of action.
+- [28:05.140] And as I said yesterday,
+- [28:06.640] all of the planes that were subject to the judge's
+- [28:09.380] written order took off
+- [28:10.660] before the order was submitted in court.
+- [28:13.250] I was asked and answered that question
+- [28:14.660] multiple times yesterday. Kate, go ahead.
+- [28:16.950] The Press: Is the president still considering
+- [28:18.710] pressuring Russia with sanctions or tariffs
+- [28:20.750] to try to get a full ceasefire?
+- [28:22.370] And is there any kind of deadline or timeline
+- [28:24.530] that the White House has in mind for
+- [28:26.400] when that pressure might ramp up?
+- [28:27.940] Ms. Leavitt: Again, the president
+- [28:29.190] had a nearly two-hour long call with President Putin yesterday.
+- [28:32.430] We provided a readout of that call,
+- [28:34.560] and we have his negotiating team heading to the Middle East
+- [28:37.400] this week to continue these discussions
+- [28:39.150] in regards to sanctions and any other details,
+- [28:41.480] I'm not going to give a readout of those from this podium.
+- [28:43.640] The Press: And on TikTok,
+- [28:44.860] is Oracle the leading contender for a deal?
+- [28:47.010] And would the U.S. back a deal that keeps TikTok's algorithm
+- [28:50.660] and the underlying technology still in Chinese hands?
+- [28:53.200] Ms. Leavitt: As President Trump does so well,
+- [28:55.150] we don't get ahead of ourselves
+- [28:56.470] when we are in the midst of the art of the deal.
+- [28:58.950] So when the president and this team
+- [29:01.050] are ready to announce a deal on TikTok,
+- [29:03.100] which is a high priority for the president,
+- [29:05.230] we will make that known. I've seen that reporting,
+- [29:06.980] but I'm not going to comment on it just yet.
+- [29:08.750] Sure, go ahead.
+- [29:09.980] The Press: Thank you Press Secretary Leavitt.
+- [29:11.260] Some prominent Trump supporters have been making the case
+- [29:13.310] that Derek Chauvin deserves a pardon.
+- [29:15.390] They argue that he did not receive a fair trial.
+- [29:17.960] Joe Biden and other Democrats actually implied
+- [29:20.220] that he was guilty while the trial was going on.
+- [29:22.790] BLM rioters had these jurors under immense threat
+- [29:25.690] and pressure, mainstream media,
+- [29:27.760] frankly, many news outlets here today are complicit here.
+- [29:31.150] They chose to ignore the autopsy report.
+- [29:33.750] They chose to ignore the full body camera footage.
+- [29:36.680] They decided to slander Derek Chauvin as a racist cop instead.
+- [29:40.280] Does the administration believe
+- [29:41.560] Derek Chauvin received a fair trial,
+- [29:43.100] and will they consider a pardon moving forward?
+- [29:45.110] Ms. Leavitt: The president has been asked
+- [29:46.350] and answered this question.
+- [29:47.570] He said it's not something he's considering at this time.
+- [29:49.510] Philip?
+- [29:50.740] The Press: Thank you. Two questions first,
+- [29:52.470] just a follow-up on the readouts from those calls.
+- [29:56.040] When it comes to the discrepancies between the U.S
+- [29:58.370] and Russian readout of that call
+- [30:00.150] between President Trump and Putin,
+- [30:02.470] is it the President's assessment
+- [30:04.330] is something that's getting lost in translation,
+- [30:06.100] or does he believe that the Russians
+- [30:07.380] are trying to play games here?
+- [30:08.690] Ms. Leavitt: Nope. The president believes in his team
+- [30:10.290] that put the readout out,
+- [30:11.490] and he also put his own out on Truth Social.
+- [30:13.320] We've been incredibly transparent
+- [30:14.750] about all of the president's calls with foreign leaders,
+- [30:16.930] and again, I would defer you to the readout.
+- [30:18.570] The Press: And then following up on --
+- [30:19.770] Ms. Leavitt: Michael.
+- [30:21.300] The Press: Thank you Karoline. The White House said yesterday
+- [30:24.500] that gas prices across the U.S.
+- [30:26.360] Have fallen for the fourth straight week,
+- [30:27.870] 34 states now seeing gas under $ 3 a gallon.
+- [30:31.090] This limited ceasefire with Ukraine
+- [30:34.490] regarding oil refineries, energy,
+- [30:36.380] will that affect gas prices here in the U.S.?
+- [30:39.370] Ms. Leavitt: Well, it's certainly the president's
+- [30:41.020] hope that gas prices will continue to fall,
+- [30:42.870] and he's working every single day to ensure that we do.
+- [30:45.400] As you just mentioned, there's been very encouraging data,
+- [30:48.120] inflation is cooling, and gas prices are falling.
+- [30:50.630] The president has established a National Energy
+- [30:52.840] Dominance Council,
+- [30:54.050] and it's ultimately the president's goal,
+- [30:55.940] and this administration is working hard
+- [30:57.400] on it every single day,
+- [30:58.680] to increase our energy production
+- [31:00.530] right here in the United States of America,
+- [31:02.640] to have a Trump energy boom like we saw in our first term,
+- [31:06.320] which will not only lead to lower fuel prices here at home,
+- [31:08.990] but also lessen the rate of inflation
+- [31:11.320] that was created by the previous administration.
+- [31:13.370] The Press: One more on Tesla Karoline.
+- [31:15.020] Tim Walz, Governor Walz saying last night,
+- [31:17.330] he frequently checks Tesla's stock, in doing so,
+- [31:20.710] to quote, "Give me a little boost during the day."
+- [31:23.650] How should Americans view politicians
+- [31:25.800] who take pride in the downfall of an American car company?
+- [31:29.270] Ms. Leavitt: I think that's quite sad,
+- [31:30.650] but I think Governor Walz is living a sad existence
+- [31:34.020] after his devastating defeat on November 5th.
+- [31:36.880] Reagan, go ahead.
+- [31:38.920] The Press: Thank you Karoline. Across the country,
+- [31:41.200] Tesla cars are being lit on fire, dealerships
+- [31:44.010] are being shot up,
+- [31:45.220] Molotov cocktails are being used.
+- [31:47.370] There was a website posted yesterday
+- [31:49.110] that shared the addresses of private Tesla owners,
+- [31:52.110] and reportedly have Kash Patel's information on it.
+- [31:55.030] AG Bondi has called this acts of domestic terrorism.
+- [31:58.100] Does the White House have any indication
+- [32:00.190] that this is some sort of coordinated movement,
+- [32:02.300] or that it's being funded by some outside group?
+- [32:04.610] And do you know if the investigation by the DOJ
+- [32:06.940] is being investigated as incidents of organized terror?
+- [32:10.710] Ms. Leavitt: I believe the Attorney General
+- [32:12.040] has made her comments clear on that.
+- [32:13.960] She is investigating these events
+- [32:15.700] as acts of domestic terrorism, and we fully condemn them.
+- [32:19.490] And as I said earlier to Jackie's question,
+- [32:22.340] we think it's despicable what is happening
+- [32:24.490] to not just this American company,
+- [32:26.170] but also their innocent employees,
+- [32:27.690] and again, innocent Americans who drive these vehicles,
+- [32:30.810] we condemn it wholeheartedly.
+- [32:32.590] Sure.
+- [32:33.890] The Press: More than 24,000 workers and 18 agencies
+- [32:37.010] are in the process of being reinstated;
+- [32:39.390] what is your message to these workers,
+- [32:41.270] and can you assure them they won't be fired again
+- [32:43.960] as the administration directs agencies to do more layoffs?
+- [32:46.740] Ms. Leavitt: Well, the administration
+- [32:47.950] is complying with the court's order.
+- [32:49.730] Again, as I have spoken about repeatedly,
+- [32:51.660] we think it's despicable that we have judges
+- [32:54.480] acting as judicial activists, partisan activists,
+- [32:57.250] trying to dictate who the President of the United States,
+- [33:00.010] the executive of the executive branch can hire and fire.
+- [33:03.490] We have never seen anything like this.
+- [33:05.630] We are fighting this in court, and we will continue to fight it
+- [33:08.830] all the way to the Supreme Court if we have to.
+- [33:12.260] And as for federal employees,
+- [33:13.830] it's been the very common-sense position of this president
+- [33:17.140] and the administration that bureaucrats here
+- [33:19.910] in Washington D.C.
+- [33:21.240] need to show up to the office just like the rest of America.
+- [33:24.610] Middle-class Americans, from doctors,
+- [33:27.310] to business owners, to teachers, to law enforcement officers
+- [33:30.700] have to show up to their offices every single day.
+- [33:33.180] And the president has made it a clear priority
+- [33:35.580] that people in this city have to do the same.
+- [33:37.690] And we also continue to be committed
+- [33:40.030] to reducing the scale of our workforce,
+- [33:42.510] and to reducing the size of our federal bureaucracy
+- [33:44.970] here in Washington D.C. to save taxpayers money.
+- [33:47.500] Annie, go ahead.
+- [33:48.730] The Press: Thanks so much. In the statement that you read,
+- [33:52.190] you referenced the president's interest
+- [33:54.660] in helping return Ukrainian children to their parents,
+- [33:58.690] to their families.
+- [33:59.920] There's an organization that provides intel and information
+- [34:03.990] about those children that, their aid has been cut,
+- [34:07.260] it's a Yale University program that used foreign aid,
+- [34:10.390] and I'm curious if as part of this new thinking with Ukraine,
+- [34:14.450] that aid might be unfrozen?
+- [34:16.010] Ms. Leavitt: I have no updates about that
+- [34:17.520] or that specific program at this time.
+- [34:19.310] Karen?
+- [34:20.610] The Press: Thanks, Karoline. Just to follow up on your answer
+- [34:22.610] to the question on the minerals deal,
+- [34:23.850] you said that the White House
+- [34:25.240] has moved beyond the minerals deal.
+- [34:27.330] What does that mean, is that no longer on the table?
+- [34:30.020] Ms. Leavitt: Nope. It means the minerals deal
+- [34:31.250] was that first set of framework that you all saw
+- [34:33.530] in that very public meeting with President Zelensky
+- [34:35.670] and President Trump in the Oval Office.
+- [34:37.370] We are now focused on a long-term peace agreement.
+- [34:40.420] As you know on that deal, or that meeting
+- [34:43.020] between President Zelensky and President Trump,
+- [34:45.640] the Ukrainian president at the time
+- [34:47.350] wasn't talking about a greater peace deal.
+- [34:49.930] We are now at that place where we are talking about that.
+- [34:52.270] So we've moved beyond
+- [34:53.480] just the economic minerals deal framework,
+- [34:55.550] and we're looking at a lasting ceasefire.
+- [34:57.610] Right now. We're at a partial ceasefire, but again,
+- [35:00.110] the president is sending his highly skilled, intelligent,
+- [35:02.970] and experienced team to Saudi Arabia later this week
+- [35:06.160] to continue fighting for peace in this conflict.
+- [35:08.870] And I would just reiterate one more time,
+- [35:10.600] we have never been closer to peace than we are today.
+- [35:13.730] Thank you very much, everybody. We'll see you later.

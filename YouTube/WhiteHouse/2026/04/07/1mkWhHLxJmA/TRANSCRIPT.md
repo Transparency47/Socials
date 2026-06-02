@@ -1,0 +1,760 @@
+<!-- source: https://www.youtube.com/watch?v=1mkWhHLxJmA -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 1mkWhHLxJmA -->
+<!-- date_published: 2026-04-07T12:27:16+00:00 -->
+<!-- date_accessed: 2026-06-02T02:35:28.846606+00:00 -->
+
+# Transcript: Vice President JD Vance Delivers Remarks with Prime Minister Viktor Orbán of Hungary
+
+- [00:16.460] Unidentified: Good afternoon, ladies and gentlemen.
+- [00:20.240] Good afternoon. Ladies and gentlemen,
+- [00:21.680] I'd like to respectfully welcome you all.
+- [00:24.110] And I'd especially like to welcome His Excellency
+- [00:27.470] JD Vance, Vice President of the 50th
+- [00:30.620] Vice President of United States of America,
+- [00:33.650] at this press conference
+- [00:35.270] on the occasion of his visit to Hungary.
+- [00:37.920] I'd also like to thank Prime Minister Viktor
+- [00:40.090] Orban, Hungarian and American delegation members.
+- [00:42.740] I'd like to ask.
+- [00:44.200] Prime Minister Viktor Orban to deliver his statements.
+- [00:47.170] Prime Minister Orbán: Good afternoon, ladies and gentlemen.
+- [00:49.100] If you'll allow me,
+- [00:50.330] I'm going to speak in my mother tongue, Hungarian.
+- [00:54.210] I'd like to respectfully and cordially welcome
+- [00:58.690] Vice President Vance in Hungary.
+- [01:02.640] The last time a vice president from the US visited Hungary
+- [01:06.160] it was 35 years ago,
+- [01:08.270] and we haven't had such a high ranked
+- [01:12.110] American dignitary in Hungary for 20 years.
+- [01:15.460] And 20 years, that's quite a long period of time.
+- [01:19.440] With the election of President Trump,
+- [01:21.920] I believe a golden era has been ushered in in our relations.
+- [01:27.010] We have enumerated the year of records
+- [01:30.310] was 2025 in terms of economic cooperation.
+- [01:34.180] '26 also is increasing impetus.
+- [01:37.760] We have increased our turnover with 50 percent.
+- [01:42.460] And we had 30 American companies announce FDI
+- [01:48.390] to the tune of 100 billion Hungarian forints.
+- [01:51.250] We've also strengthened our cooperation,
+- [01:54.530] expanded it with space technology and defense.
+- [02:01.210] We owe gratitude to President Trump and Vice President Vance
+- [02:06.230] for standing by Hungary during the past years.
+- [02:09.760] The United States of America
+- [02:11.060] is the strongest country in the world,
+- [02:13.230] and I am happy to say that they are our allies today.
+- [02:18.500] The peace and the security of Hungary,
+- [02:20.610] therefore, is guaranteed. Ladies and gentlemen,
+- [02:23.520] we also discussed the fact that Europe is heading
+- [02:28.440] towards one of the worst energy crises of all times.
+- [02:32.180] We are seeing drastic price hikes,
+- [02:35.190] and if we do not take measures on time,
+- [02:39.610] we are going to see a shortage of energy, oil and gas.
+- [02:43.840] And in this situation, it is especially important
+- [02:47.500] that we have the energy cooperation
+- [02:50.090] between the US and Hungary,
+- [02:51.880] without which we would not be able
+- [02:54.030] to guarantee the energy needs of Hungary,
+- [02:58.400] and we could not cap our utility prices.
+- [03:02.130] We have talked about the United States' efforts
+- [03:05.230] to achieve peace.
+- [03:06.670] Hungary has always supported the US and President Trump
+- [03:10.140] personally in this peace effort.
+- [03:12.840] We've been living in the shadows of a war for four years now,
+- [03:16.360] and we are convinced that if President Trump
+- [03:20.030] were the president in 2022,
+- [03:22.720] there would not be a war now, it would not have started.
+- [03:26.090] And if the Europeans, especially Brussels,
+- [03:29.270] would not be blocking the peace efforts of the president,
+- [03:33.030] peace would prevail --
+- [03:34.920] would have been reinstated in Ukraine for a long time already.
+- [03:38.790] I've also explained to the vice president
+- [03:40.850] that Hungary is experiencing very, very, very harsh
+- [03:45.150] and very open interference by foreign security services
+- [03:50.790] into our elections.
+- [03:52.250] This is why we especially welcome
+- [03:54.590] the decisions of the president of the United States of America,
+- [03:58.430] with which he has closed the financial taps
+- [04:04.260] that supported interference
+- [04:06.070] into the elections of other countries.
+- [04:08.170] I've been waiting for a long, long time for this meeting,
+- [04:11.250] and I'm very grateful that we met today.
+- [04:15.270] I am grateful that we were able to discuss
+- [04:17.670] with the vice president the pressing issues,
+- [04:21.630] the great issues of Western civilization.
+- [04:24.350] I am not sharing any secret when I say
+- [04:26.450] that there is a continuous discussion between us,
+- [04:29.090] an exchange of experiences related to government work,
+- [04:32.550] especially in four areas: one, migration;
+- [04:35.570] number two, gender ideology; number three, family policy;
+- [04:39.450] and number four, global security.
+- [04:42.340] Because in these areas/fields Hungary
+- [04:45.090] has amassed substantial experiences
+- [04:47.700] and quite an extended network of contacts
+- [04:50.790] in Eastern Europe and the Balkans.
+- [04:53.170] And as a result of our discussions today,
+- [04:55.720] we have agreed that it is in the interest of both parties
+- [05:00.380] to continue this cooperation
+- [05:02.160] and that the strategic cooperation
+- [05:03.690] between the two countries is going to be continuous
+- [05:06.460] and will be continued.
+- [05:09.310] Thank you very much for honoring us
+- [05:10.770] with your presence for coming to Hungary.
+- [05:12.970] Unidentified: Mr. Prime Minister,
+- [05:14.670] thank you very much.
+- [05:16.040] And now I ask JD Vance to deliver his statement.
+- [05:21.070] The Vice President: Well, thank you,
+- [05:22.320] Prime Minister, first of all,
+- [05:23.630] and thanks to the people of Hungary for welcoming me.
+- [05:26.700] This is a beautiful city, a city that I've been to once
+- [05:29.200] before on a personal trip probably five or six years ago.
+- [05:33.220] And I remember the first time
+- [05:34.740] that I came to this beautiful country,
+- [05:37.010] my wife was about 20 weeks pregnant with our second child,
+- [05:41.410] and now we've come back to Budapest,
+- [05:43.570] and my wife is 20 weeks pregnant with our fourth child.
+- [05:45.700] So, there's an interesting way
+- [05:47.360] in which our trips to Hungary have rhymed.
+- [05:49.390] I also want to thank the president of the United States,
+- [05:51.520] who, of course, is a dear friend of Prime Minister Orbán
+- [05:53.680] and a very strident supporter of Prime Minister Orbán,
+- [05:56.630] because together, the president of the United States
+- [05:58.610] and the prime minister of Hungary
+- [05:59.840] have been able to do amazing things.
+- [06:01.670] And we're here because we want to celebrate
+- [06:03.060] those amazing things,
+- [06:04.350] we want to build upon those amazing things
+- [06:06.060] and, of course, I want to help as much
+- [06:07.970] as I possibly can the prime minister
+- [06:09.670] as he faces this this election season,
+- [06:12.680] which I believe is happening in just about a week,
+- [06:15.420] the election to elect the next prime minister of Hungary.
+- [06:18.970] Now, I don't expect, of course, the people of Hungary
+- [06:21.100] to listen to the vice president of the United States,
+- [06:23.100] that's not primarily why I'm here.
+- [06:25.620] But I did want to send a signal to everybody,
+- [06:27.940] particularly the bureaucrats in Brussels,
+- [06:29.920] who have done everything they can
+- [06:31.920] to hold down the people of Hungary
+- [06:33.790] because they don't like the leader
+- [06:36.070] who has actually stood up for the people of Hungary.
+- [06:37.700] And I think it's important to say that.
+- [06:40.460] There are so many things that we could point to,
+- [06:42.380] there are so many economic pieces of cooperation,
+- [06:44.590] so much investment that's come into Hungary
+- [06:46.900] from the United States. I think Viktor Orbán
+- [06:48.700] has been the single most profound leader in Europe
+- [06:52.190] on the question of energy security and independence.
+- [06:55.360] It is funny to watch prime ministers and leaders
+- [06:59.020] in some of the Western European capitals
+- [07:00.780] talk about the energy crisis
+- [07:03.020] when, frankly, they should have been following the policies
+- [07:05.380] of Viktor Orbán in Hungary.
+- [07:07.440] And if they had, the energy crisis
+- [07:09.300] that they're experiencing would be a lot less bad,
+- [07:11.790] because what's going on in Hungary right now
+- [07:14.010] is that while, yes, energy prices are elevated,
+- [07:16.260] they are far less elevated here
+- [07:17.770] than they are almost anywhere else in Europe.
+- [07:19.670] And that's because of the leadership of the man
+- [07:21.650] who's standing next to me.
+- [07:22.880] And I think that leadership can provide a model
+- [07:25.160] to the continent. We want Europe to be successful.
+- [07:28.920] We want European families to be able to afford
+- [07:31.130] to heat their homes and to build great things.
+- [07:33.530] We want Europe to be energy independent
+- [07:36.520] and even energy dominant,
+- [07:38.050] but it's not going to be energy secure
+- [07:40.080] if it continues to follow the failed policies of the past.
+- [07:42.660] And so, I think Viktor has been a great example
+- [07:44.960] in charting a course that could lead to a better,
+- [07:47.750] more prosperous and more energy secure Europe.
+- [07:50.690] There's a lot of other cooperation in technology
+- [07:53.020] and artificial intelligence and manufacturing.
+- [07:55.200] There are so many ways in which the United States and Hungary
+- [07:58.640] have been great economic partners,
+- [08:00.450] and that partnership has really accelerated
+- [08:02.810] over the past couple of years
+- [08:04.520] under President Trump's leadership.
+- [08:06.200] But ladies and gentlemen, I'm not here primarily, Viktor,
+- [08:08.770] because of the economic cooperation
+- [08:11.140] between our countries.
+- [08:12.370] I'm here because of the moral cooperation
+- [08:15.350] between our two countries.
+- [08:16.640] Because what the United States and Hungary
+- [08:19.010] together represent, under Viktor's leadership
+- [08:21.180] and under President Trump's leadership,
+- [08:23.050] is the defense of Western civilization.
+- [08:25.860] The defense of the idea
+- [08:27.190] that children should be able to go to school
+- [08:29.020] and get educated and not indoctrinated.
+- [08:31.130] The defense of the idea that European and American families
+- [08:34.590] should be able to transport themselves
+- [08:36.760] and be able to afford to heat and cool their homes.
+- [08:39.860] The defense of the idea that we are founded
+- [08:43.060] on a certain Christian civilization
+- [08:45.180] and Christian values
+- [08:46.450] that animate everything from freedom of speech
+- [08:48.580] to rule of law, to respect for minority rights
+- [08:51.390] and protection of the vulnerable.
+- [08:53.530] There is so much that unites the United States and Hungary,
+- [08:56.280] and unfortunately, there have been too few people
+- [08:59.130] who have been willing to stand up
+- [09:00.450] for the values of Western civilization.
+- [09:02.680] Viktor Orbán is the rare exception
+- [09:04.600] that has unfortunately proved the rule,
+- [09:06.360] that's one of the reasons why I'm here.
+- [09:08.790] I'm here because Viktor is a statesman,
+- [09:11.470] and we have seen so much talk in European capitals
+- [09:16.230] about the need to end the war in Russia and Ukraine,
+- [09:19.150] and we certainly agree with it.
+- [09:20.560] The war would have never started under President --
+- [09:22.330] if President Trump had been president four years ago.
+- [09:25.660] But now that it has started, probably the two leaders
+- [09:28.690] who have done the most to actually end
+- [09:30.340] that destructive conflict have been Donald J. Trump
+- [09:32.900] and Viktor Orbán in Hungary.
+- [09:34.710] And they've done it through diplomacy,
+- [09:36.700] through talking to people, through trying to understand
+- [09:38.760] what the Ukrainians and the Russians
+- [09:40.090] need to end the war.
+- [09:41.300] We're going to continue to participate in that process,
+- [09:43.990] but I think that it is a testament
+- [09:45.740] to the people of Hungary
+- [09:47.250] that your country of 10 million people.
+- [09:49.490] But I'm telling you, I've sat in all the rooms,
+- [09:51.640] and I've been on all the phone calls,
+- [09:53.320] your leadership has been a far,
+- [09:55.490] far more important and constructive partner for peace
+- [09:58.340] than almost anyone anywhere else in the world.
+- [10:00.920] And that is a great testament, I think, to the to the wisdom
+- [10:04.090] and the courage of the people of Hungary.
+- [10:05.840] And then finally, I just want to say something --
+- [10:07.940] one final observation about this election.
+- [10:11.550] What has happened in this country,
+- [10:14.570] what has happened in the midst of this election campaign,
+- [10:17.850] is one of the worst examples of foreign election interference
+- [10:21.720] that I've ever seen or ever even read about.
+- [10:24.480] The bureaucrats in Brussels have tried
+- [10:26.810] to destroy the economy of Hungary,
+- [10:29.540] they have tried to make Hungary less energy independent,
+- [10:34.070] they have tried to drive up costs for Hungarian consumers,
+- [10:37.780] and they've done it all because they hate this guy.
+- [10:40.560] But I think that what the people of Hungary,
+- [10:42.360] what I would encourage them to do
+- [10:44.150] is ask themselves the question, not who's pro or anti Europe,
+- [10:48.350] not who's pro or anti the United States of America,
+- [10:50.910] but who is pro-you?
+- [10:52.480] Who is pro the people of Hungary?
+- [10:54.430] In my experience, I've seen a guy
+- [10:56.440] who has ferociously advocated for the interests of Hungary;
+- [10:59.530] I'm here to help him in this in this campaign cycle.
+- [11:03.170] And yet when I sat down with Victor,
+- [11:04.670] we didn't talk about politics we talked about baba, baba, baba --
+- [11:07.740] here are five things that we need,
+- [11:09.970] that the Hungarian people need from the United States
+- [11:12.240] in order to further our partnership
+- [11:14.290] and in order to achieve prosperity.
+- [11:16.180] That's the kind of leadership that is needed.
+- [11:18.770] And on everything from digital censorship,
+- [11:21.570] why are bureaucrats in Brussels telling social media companies
+- [11:26.960] what information they're giving to Hungarian voters?
+- [11:29.940] I think the voters of Hungary are adults,
+- [11:33.030] they are sovereign in their own country,
+- [11:34.730] and they should be able to look at whatever information
+- [11:36.750] they would like to about the election
+- [11:38.520] without somebody in a faraway capital
+- [11:40.670] treating them like children.
+- [11:42.320] Sovereignty, democracy are fundamentally
+- [11:45.340] about the people choosing.
+- [11:46.750] And part of the reason why we're here and part
+- [11:48.360] of the reason why the president of United States sent me here
+- [11:50.790] is because we think the amount of interference
+- [11:53.090] that's come from the bureaucracy in Brussels
+- [11:55.960] has been truly disgraceful.
+- [11:58.420] I won't tell the people of Hungary how to vote.
+- [12:00.750] I would encourage the bureaucrats in Brussels
+- [12:03.120] to do the exact same thing.
+- [12:04.400] So, Viktor, thank you and it's good to see you.
+- [12:08.660] We'll take a couple of questions. Do you want to --
+- [12:10.570] Unidentified: Thank you, Mr. Vice President.
+- [12:12.460] We have time for a couple of questions.
+- [12:14.210] The first two goes to the Hungarian side
+- [12:16.010] and then the floor is yours, Mr. Vice President.
+- [12:20.440] So, the first question goes to Hungarian television
+- [12:23.560] (Inaudible).
+- [12:29.060] The Press: Thank you very much, and good afternoon.
+- [12:30.510] I would not like to stand up
+- [12:31.790] because of the cameras, thank you.
+- [12:33.150] I have two questions; one is to Mr. Prime Minister,
+- [12:35.490] and the other one is to Mr. Vice President.
+- [12:37.410] From the Prime Minister I would like to ask
+- [12:39.130] if they touched upon the possibilities
+- [12:41.840] of ending the Russian Ukrainian war during the negotiations.
+- [12:45.410] And from the Vice President,
+- [12:46.750] I would like to ask you to comment
+- [12:49.010] on the threats of President Zelenskyy towards Hungary
+- [12:52.900] and personally towards Viktor Orbán.
+- [12:54.910] Thank you.
+- [12:57.770] Prime Minister Orbán: OK.
+- [13:02.850] We did touch upon the Russian Ukrainian war,
+- [13:07.060] which is a painful subject.
+- [13:12.600] We're talking about a war waged between two Christian countries;
+- [13:19.750] moreover, in the territory of Europe.
+- [13:23.880] So, these two sentences actually set out how serious this war is.
+- [13:31.630] And I have always really looked up
+- [13:37.330] on the president of the United States.
+- [13:39.870] I'm talking about the current president, obviously.
+- [13:41.900] That from the first moment onwards,
+- [13:44.900] he regarded these two dimensions as most important.
+- [13:49.570] In Europe two orthodox,
+- [13:52.250] deeply Christian countries are waging a war
+- [13:55.880] where tens and hundreds of thousands of people die
+- [14:01.850] and become injured for life.
+- [14:03.270] This is so terrible that you have to stop it at all costs.
+- [14:08.690] And since the United States, prior to President Trump,
+- [14:13.690] was in favor of this war,
+- [14:16.660] for us, the current position of the United States
+- [14:20.570] is indeed very valuable because it is fundamentally pro-peace.
+- [14:25.340] So, if a Hungarian and a US politician meet,
+- [14:28.910] they cannot avoid talking about the Russian Ukrainian war.
+- [14:33.380] Moreover, this war is being waged
+- [14:34.900] in the neighborhood of Hungary.
+- [14:37.520] Hungarians also die in this war,
+- [14:40.860] since in the current territory of Ukraine multiple Hungarians
+- [14:45.980] live who are drafted,
+- [14:50.080] occasionally with brutal coercive measures,
+- [14:53.340] they are taken to the front where they die.
+- [14:56.750] So, you cannot avoid talking about the Russian-Ukrainian war
+- [15:01.170] during such a meeting, especially
+- [15:03.090] so because previously the president of the United States
+- [15:07.030] had initiated a peace summit between the US and Russia,
+- [15:11.900] and he recommended as a venue for these talks,
+- [15:14.870] Budapest, the capital of Hungary,
+- [15:16.630] which is the, perhaps,
+- [15:19.860] only possible venue in Europe and Hungary agreed to that.
+- [15:25.300] In fact, I must say that up to the level
+- [15:30.640] of the technical preparation of this meeting,
+- [15:33.470] we negotiated on those with both the president
+- [15:35.950] of the United States and the president of Russia.
+- [15:38.060] And Hungary remains ready so that
+- [15:42.540] if the US and Russia believe that a peace summit is required
+- [15:47.340] between the two of them,
+- [15:48.910] then Budapest will be happy to provide itself as a venue
+- [15:52.210] for that meeting and we are available.
+- [15:58.920] And that's all I can say to you.
+- [16:00.450] The Vice President: Thank you for your willingness to host.
+- [16:01.840] And just to answer your question --
+- [16:03.160] so, I I'm not aware of President Zelenskyy
+- [16:07.400] threatening Viktor Orbán.
+- [16:08.910] I know that there have been a lot of people
+- [16:11.040] who have threatened Viktor -- and have, frankly,
+- [16:12.930] not just threatened the people of Hungary,
+- [16:15.280] but have actually tried to exact costs on the people of Hungary
+- [16:18.320] because their leadership has been one of the few
+- [16:22.310] that's been wise and smart about the conflict
+- [16:24.700] between Russia and Ukraine.
+- [16:26.020] Now, look, you don't have to defend the morality of the war.
+- [16:30.170] I think Viktor has, I certainly have,
+- [16:31.830] the president of United States has condemned the invasion.
+- [16:33.930] We don't like the war, we want it to stop.
+- [16:35.930] That's not the question.
+- [16:37.270] The question is, how do you make it stop?
+- [16:39.560] And the answer is not by politicians
+- [16:41.740] who stand at microphones and beat their chest
+- [16:43.680] and act tough when somebody else's children
+- [16:45.950] are going off to fight in a conflict,
+- [16:47.740] you do it through sustained diplomacy.
+- [16:50.510] And so, I'd ask the people of Hungary, and not just hungry,
+- [16:52.790] but the people all across Europe,
+- [16:54.600] what is the alternative to peace?
+- [16:56.870] Is it to continue feeding young men into this terrible,
+- [16:59.770] terrible war
+- [17:00.980] to continue this completely ridiculous cycle of violence?
+- [17:04.700] Or is it to get serious about diplomacy?
+- [17:07.010] Is it to continue to have skyrocketing energy prices
+- [17:09.940] to the point where European economies
+- [17:11.980] are on the verge of collapse?
+- [17:13.290] Or is it to sit down and get serious
+- [17:15.140] about a peaceful resolution?
+- [17:16.430] The reason the president of the United States
+- [17:18.030] has been so dedicated about this is not
+- [17:20.300] because it affects us as personally as it
+- [17:22.250] does the people of Hungary or Europe.
+- [17:23.680] In fact we're much more insulated, as all of you know,
+- [17:26.720] from what's going on in Russia-Ukraine
+- [17:28.260] than most countries anywhere else in the world.
+- [17:30.980] The president has asked us to work so diligently on it
+- [17:34.050] because he knows that it's bad, it's bad for commerce,
+- [17:36.600] it's bad for morality, it's bad for human life.
+- [17:39.360] We need to actually engage in some real diplomacy.
+- [17:42.520] Viktor has been better at anybody at helping us understand
+- [17:45.910] what is the Ukrainians need and was it what is it
+- [17:48.200] that the Russians need in order to achieve peace?
+- [17:50.990] We're going to keep on working on that process.
+- [17:52.600] As you've all heard the president say,
+- [17:54.850] this war has been the hardest
+- [17:56.350] of all the wars that he's worked on to solve,
+- [17:58.350] but we're going to keep on working at it,
+- [17:59.830] the president has ordered us to keep on working at it.
+- [18:02.410] But we need people -- we need people in Europe
+- [18:05.830] who understand the stakes and understand
+- [18:08.340] how to get this negotiation done.
+- [18:09.900] Victor's been a great part of it,
+- [18:11.300] which is why the president asked him about the Budapest summit,
+- [18:13.610] because I think if we're ever going to
+- [18:14.990] get these leaders together,
+- [18:16.410] this is the perfect place to do it --
+- [18:17.800] a place of real statesmanship, a place that has shown itself
+- [18:20.710] very willing to be a positive force for peace.
+- [18:25.680] Unidentified: Thank you very much.
+- [18:27.030] The second question goes to Patriota, Noemi Nahmet.
+- [18:32.920] The Press: Thank you very much. Good afternoon to you.
+- [18:34.940] I have one question to each of the participants.
+- [18:39.560] Mr. Orbán, you have mentioned the serious energy crisis
+- [18:43.570] that we are facing.
+- [18:45.090] The ships that have been able to pass the Strait of Hormuz
+- [18:49.160] are just reaching Europe now.
+- [18:50.860] Now that there is no oil coming from Russia or from Middle East,
+- [18:54.990] what do you think will happen with Europe, with Hungary,
+- [18:58.940] and what can the Hungarian American energy cooperation
+- [19:01.760] mean for Hungary?
+- [19:04.700] And what do you think,
+- [19:06.020] will Brussels also lift the sanctions on the Russian energy?
+- [19:12.240] Unidentified: If I may, please.
+- [19:14.060] So, according to recent US intelligence reports,
+- [19:19.070] Ukraine may have interfered in the American elections,
+- [19:22.840] helping the Democrats.
+- [19:24.490] It has also come to light that the Ukrainian intelligence
+- [19:28.230] treats Hungary as an operational zone as well.
+- [19:31.150] What kind of political motivation
+- [19:33.340] could be behind Ukraine targeting conservative,
+- [19:37.580] patriotic political forces,
+- [19:39.240] both in the United States and in Hungary?
+- [19:41.640] Thank you very much.
+- [19:46.230] Prime Minister Orbán: I think there is definitely
+- [19:47.540] a new situation in Europe.
+- [19:49.690] But the Hungarian elections are perhaps tightening our horizon,
+- [19:56.980] restricting our horizon.
+- [19:58.260] Therefore, we're not paying as much attention
+- [20:00.230] because of the elections to the developments, of course,
+- [20:03.390] because we Hungarians are mainly preoccupied
+- [20:05.630] with the outcome of the elections next Sunday.
+- [20:08.560] However, there is something
+- [20:09.920] that is going to change everything that's happening.
+- [20:12.980] The thing is that the strategy that the Europeans have followed
+- [20:20.160] to support Ukrainians so far has ended, has failed.
+- [20:24.450] This strategy has failed at the start already.
+- [20:29.790] It was an extremely strange idea to actually help the Ukrainians
+- [20:36.600] and try to bring about a situation
+- [20:39.300] where the protracted war puts Russia in such dire straits
+- [20:45.660] economically that, in the end, the Ukrainians,
+- [20:49.510] from the perspective of the Ukrainians
+- [20:51.150] and the Europeans who support them, they will be --
+- [20:56.000] the Russians will be forced to sit down with them
+- [20:58.340] in a weakened status that is preferable for the opposition.
+- [21:04.180] However, to wage an economic war
+- [21:05.840] against a country that has unlimited energy resources
+- [21:11.360] and has unlimited raw materials,
+- [21:14.220] while those waging the economic war do not have energy
+- [21:18.530] and do not have raw materials was a very strange idea.
+- [21:21.940] And for some time, they might have believed
+- [21:24.510] that the sanctions levied on Russia in the end
+- [21:28.780] will be enough to actually win this economic war.
+- [21:32.100] But what is happening now is all of a sudden,
+- [21:35.180] everything has gained importance what the Russians dispose of.
+- [21:39.670] And suddenly they are in a much more favorable position
+- [21:42.420] than they used to be before ever.
+- [21:44.620] So, the Ukrainian --
+- [21:47.230] the support of Ukrainians' strategy has basically failed
+- [21:51.500] but now we are concentrating on the elections.
+- [21:53.980] That's why perhaps less attention was paid to this.
+- [21:56.750] But we will be faced with an absolutely new situation
+- [21:59.670] after the Hungarian elections.
+- [22:02.950] The Hungarian situation is difficult,
+- [22:05.420] I do not want to make a secret of it
+- [22:07.750] because it was first at the end of 2022
+- [22:11.710] that the Ukrainians closed/ blockaded the gas pipeline
+- [22:16.610] that was bringing gas from Russia to Hungary.
+- [22:19.520] We managed to fend that off with the TurkStream,
+- [22:23.350] but just now, not much before the elections,
+- [22:26.060] and I think because of the upcoming elections,
+- [22:28.610] and in the hope of having a pro-Ukrainian government
+- [22:32.110] elected into office,
+- [22:33.910] they actually blockaded our oil pipeline as well.
+- [22:36.820] The oil pipeline that is the umbilical cord
+- [22:39.520] of the Hungarian economy coming from Russia,
+- [22:42.010] the main supply route coming from Russia.
+- [22:45.520] Consequently, Hungary has had to tap into her reserves.
+- [22:49.920] There's two things we are doing.
+- [22:51.270] On the one hand, they have closed us off from oil.
+- [22:54.190] We have to supply the Hungarian economy,
+- [22:56.540] Hungarian consumers with fuel and with energy,
+- [23:00.910] and we have to force the Ukrainians
+- [23:02.460] to reopen the pipeline, and we have a plan to do that.
+- [23:06.160] We are actually executing that step by step.
+- [23:08.950] And at the end of this,
+- [23:10.470] I am convinced after the national forces
+- [23:14.970] win the election here in Hungary,
+- [23:16.900] that there will be no option left for the Ukrainians
+- [23:19.300] than to lift this blockade,
+- [23:21.010] to reopen the pipeline and Hungary
+- [23:23.250] can just go back to normal operation.
+- [23:26.360] These are my -- well, I wouldn't say hope, these are my plans,
+- [23:30.580] this is how it's going to happen.
+- [23:32.910] The Vice President: So, to answer your question,
+- [23:34.300] yes, we're certainly aware that there are elements
+- [23:36.130] within the Ukrainian intelligence services
+- [23:38.080] that tried to put their thumb on the scale of American elections,
+- [23:40.530] on Hungarian elections. This is just what they do.
+- [23:43.430] This is part of the cost of doing business
+- [23:45.330] within some elements of their system.
+- [23:47.210] I try to remind myself that Ukraine,
+- [23:49.250] like the United States, is a very complicated place.
+- [23:51.840] There are good people and there are bad people,
+- [23:53.420] there are people that try to interfere in other's elections,
+- [23:55.440] and there are people who actually just say,
+- [23:57.320] you know what, we believe in sovereignty for everybody,
+- [23:59.710] and that's what we support.
+- [24:02.230] For example, there were people in the Ukrainian system
+- [24:04.280] who were campaigning with Democrats
+- [24:05.940] literally in the weeks before the presidential election
+- [24:08.540] where Donald Trump won very comfortably in November of 2024.
+- [24:12.930] So, I'm aware of that stuff.
+- [24:14.950] But, you know, I don't think Viktor
+- [24:16.500] lets that stuff get to him,
+- [24:17.760] I don't let that stuff get to me.
+- [24:19.110] We're here to try to solve the problems
+- [24:20.830] for the people that we represent.
+- [24:22.510] And whatever certain elements within the Ukrainian system
+- [24:25.350] think about me or think about anybody else,
+- [24:27.610] I really believe it's in the best interest of Ukraine,
+- [24:30.340] the best interest of Europe and Hungary,
+- [24:31.820] the best interest of the United States for this war
+- [24:33.740] to come to as rapid of a close as possible.
+- [24:37.110] You know, this is -- the seeds of this war,
+- [24:39.850] the seeds of this conflict were actually planted well
+- [24:42.010] before the fighting started,
+- [24:43.910] and they were planted when European leaders
+- [24:46.230] decided that they were going to go
+- [24:47.700] so deep into a particular energy economy
+- [24:51.400] that they were going to cut themselves off
+- [24:53.010] from oil and natural gas that came from the east.
+- [24:56.510] That was a huge mistake then,
+- [24:57.780] and it's obvious that it's a huge mistake now.
+- [25:00.010] And it's funny, when I hear people accuse my president,
+- [25:04.310] for example, of being pro-Russia,
+- [25:06.690] my president has done more to help Europe
+- [25:10.380] out with energy and liquid natural gas
+- [25:12.430] than anybody in the world, which weakens Russia.
+- [25:14.900] Because we would love our allies
+- [25:16.430] and our friends to pursue smart energy policies
+- [25:19.250] so their consumers can pay less money.
+- [25:21.190] But also, when, God forbid, there's a conflict,
+- [25:23.730] they can rely on us
+- [25:25.150] rather than another country for the energy that they need.
+- [25:27.950] So, it's so funny to me that very often the very people
+- [25:31.480] who accuse this or that leader of being pro-Russia
+- [25:34.430] are the very people who created an energy weak economy in Europe
+- [25:39.110] to begin with.
+- [25:40.380] And that is done more than anything to make Ukraine
+- [25:43.380] weak and Russia strong.
+- [25:44.700] We just want the killing to stop.
+- [25:46.540] We want to get back to commerce.
+- [25:48.100] We recognize there's a lot of difficult issues,
+- [25:50.290] but the way to solve those issues is to talk to one another
+- [25:52.880] and to actually engage in the hard work of diplomacy.
+- [25:56.580] Unidentified: Mr. Vice President, two questions.
+- [25:57.900] It's your call, please. The Vice President: Sure.
+- [25:59.110] So, I want to call on a couple of members of my pool
+- [26:01.100] because they traveled all night and are here with us.
+- [26:04.270] So, let's start with Natalie at the Washington Post.
+- [26:10.560] The Press: Thank you, Mr. Vice President.
+- [26:12.280] The clock is ticking to tonight when the deadline looms
+- [26:16.480] for avoiding bombing infrastructure in Iran
+- [26:20.360] to the stone ages, as the president has said.
+- [26:23.050] Do you have any new information to believe
+- [26:26.190] that a deal can be reached by then?
+- [26:28.180] And secondly, there's been some rhetoric
+- [26:29.960] from this administration,
+- [26:31.170] your administration, about this war,
+- [26:35.670] God supporting the United States in this war
+- [26:37.590] and the strikes against Iran being part of God's will.
+- [26:41.200] Do you agree with that? And what do you make of the idea
+- [26:43.800] that God is on the side of the US in these strikes?
+- [26:46.940] The Vice President: Well, so you asked
+- [26:48.270] if there's new information,
+- [26:50.840] and I don't unless I have a text message from Steve --
+- [26:53.860] I do have a text message from Steve Witkoff,
+- [26:56.300] wouldn't you like to know the subject of this message?
+- [26:58.360] But no, I need to read it first before I talk about it.
+- [27:01.610] But here's -- what time is it in the United States right now?
+- [27:06.760] OK, that makes sense. All right, OK.
+- [27:10.680] So, Natalie, on this question of the deal,
+- [27:13.660] I really think there are two pathways,
+- [27:15.280] the president's been very clear about this.
+- [27:17.410] There are two pathways that this thing
+- [27:18.940] is ultimately going to end. First of all, the United States
+- [27:21.180] has largely accomplished its military objectives.
+- [27:23.840] There are still some things that we'd like to do,
+- [27:25.450] for example, an Iranian ability to manufacture weapons
+- [27:28.200] that we'd like to do a little bit more work on militarily.
+- [27:30.890] But fundamentally, the military objectives
+- [27:32.830] of the United States have been completed.
+- [27:34.440] So, that means, as the president has said,
+- [27:37.090] very shortly this war is going to conclude.
+- [27:39.390] And I think the nature of the conclusion
+- [27:41.180] is ultimately up to the Iranians.
+- [27:42.530] I think there really are two pathways,
+- [27:43.990] and I'm oversimplifying this a little bit.
+- [27:46.140] But I think pathway one is where the Iranians decide
+- [27:48.950] they're going to be a normal country.
+- [27:50.410] They're not going to fund terrorism anymore;
+- [27:51.960] they're going to be part of the of the world system
+- [27:54.390] of commerce and exchange.
+- [27:56.160] And that's going to mean much better things
+- [27:58.600] for them economically, it's going to mean better things
+- [28:00.500] for the peace and safety of the world,
+- [28:02.400] it's going to mean a lot of good things
+- [28:03.930] for a lot of people all over the planet.
+- [28:06.460] That's option A, OK?
+- [28:07.880] Option B is that the Iranians don't come to the table
+- [28:11.190] and they stay committed to terrorism,
+- [28:13.210] to terrorizing their neighbors, not just Israel,
+- [28:15.160] but, of course, their Arab neighbors too.
+- [28:17.160] Then the economic situation in Iran
+- [28:19.530] is going to continue to be very, very bad
+- [28:21.390] and, frankly, it will probably get worse.
+- [28:22.760] And so, what the president has asked his entire team to do,
+- [28:25.470] particularly Steve Witkoff and Jared Kushner,
+- [28:27.850] is to figure out what are the contours of a potential deal.
+- [28:31.440] What are they willing to do? Because militarily,
+- [28:33.730] it frankly doesn't matter one way or the other to us,
+- [28:36.190] it's fundamentally a question
+- [28:37.540] of what does this look like afterwards?
+- [28:39.270] And that has been what the negotiation has been focused on.
+- [28:42.200] And the president's also been very clear that
+- [28:44.400] while the Iranians are trying to exact as much economic costs
+- [28:48.070] through the Straits of Hormuz,
+- [28:49.730] the United States has the ability
+- [28:51.440] to extract much greater economic costs on Iran than on --
+- [28:55.550] than Iran has an ability to extract costs on us
+- [28:59.030] or on our friends in the world.
+- [29:00.390] So, I hope that they're smart. The president has set a deadline
+- [29:03.210] for about 12 hours from now in the United States.
+- [29:05.710] We're going to find out
+- [29:07.020] but there's going to be a lot of negotiation between now and then
+- [29:09.530] and I'm hopeful that it gets to a good resolution.
+- [29:12.100] The second question you asked about, is God on our side,
+- [29:16.320] is God on whose side?
+- [29:18.520] I think my attitude towards military conflict
+- [29:20.800] has always been to pray that we're on God's side.
+- [29:24.330] And my own view is that we're doing this
+- [29:26.860] for the right reasons.
+- [29:28.180] We're doing this because we don't want a regime
+- [29:31.330] that has committed acts of terrorism
+- [29:33.760] to have the world's most dangerous weapon,
+- [29:36.070] because that would mean a lot of innocent people dead.
+- [29:38.780] I certainly hope that God agrees with the decision
+- [29:41.910] that Iran shouldn't have a nuclear weapon,
+- [29:43.840] but I'll keep praying about it.
+- [29:45.390] And if he gives me a good answer,
+- [29:46.920] you'll be the first to know, Natalie. Next question.
+- [29:52.680] Let's see, I think we have Reuters and AP.
+- [29:59.530] Let's do Reuters. OK, good.
+- [30:04.460] I checked my earpiece to see if somebody on my staff
+- [30:06.620] would tell me who I should call on, but nobody answered.
+- [30:09.150] This is just Hungarian. So, go ahead.
+- [30:12.500] The Press: Thank you, Mr. Vice President. This is (Inaudible)
+- [30:14.700] from Reuters; I have a couple of questions.
+- [30:17.260] I do think you have to read that text,
+- [30:19.230] because we have reporting that the United States
+- [30:22.470] is striking some targets in Kharg Island.
+- [30:26.020] You did say that the military objectives of this war
+- [30:29.120] have been achieved.
+- [30:30.360] So, could you help us understand why the president
+- [30:33.480] is still threatening to attack every bridge
+- [30:37.280] and every power plant in Iran?
+- [30:40.570] You also said that this will wrap up soon,
+- [30:43.710] but yesterday in his press conference
+- [30:46.200] when he was asked about a timeline,
+- [30:48.000] he did not give a specific timeline.
+- [30:50.700] And he had said four to six weeks
+- [30:52.340] and we're now in week six. Do you have a specific timeline?
+- [30:56.710] Excuse me, these are spontaneous questions.
+- [30:58.120] The Vice President: That's a lot of questions.
+- [30:59.330] The Press: OK, I'll stop --
+- [31:00.570] I mean, the Hungary question is this --
+- [31:03.320] if Prime Minister Orbán loses, do you commit --
+- [31:06.680] does the United States commit to working with the new leader?
+- [31:09.910] Will you have a Golden Age relationship
+- [31:12.350] with the new leader? Thank you so much.
+- [31:14.040] The Vice President: Well, of course,
+- [31:15.270] we're going to work with whoever wins the Hungarian election
+- [31:18.120] because we love the people of Hungary
+- [31:19.540] and it's an important relationship.
+- [31:20.790] But Viktor Orbán is going to win the next election in Hungary,
+- [31:23.680] so I feel very confident about that
+- [31:25.520] and about our continued positive relationship.
+- [31:27.220] Viktor, is that right?
+- [31:28.440] Prime Minister Orbán: That's the plan.
+- [31:29.650] The Vice President: OK, all right.
+- [31:30.850] So, you asked about Kharg Island.
+- [31:33.180] My understanding, having talked to Pete
+- [31:35.980] and General Caine about this,
+- [31:37.630] is that we were going to strike some military targets
+- [31:40.700] on Kharg Island. I believe we have done so.
+- [31:42.410] The president's deadline has been followed by us
+- [31:46.300] and everybody else. And he said very clearly,
+- [31:48.590] we're not going to strike energy and infrastructure targets
+- [31:50.920] until the Iranians either make a proposal
+- [31:53.630] that we can get behind or don't make a proposal.
+- [31:56.080] But he's given them until Tuesday at 8:00.
+- [31:57.930] So, I don't think the news on Kharg Island
+- [32:01.220] represents a change in strategy or represents any change
+- [32:03.890] from the president of the United States.
+- [32:05.270] He continues to say the deadline is 8:00
+- [32:07.350] and the deadline is for what?
+- [32:09.400] Fundamentally, what Iran is trying to do,
+- [32:11.520] because they've been defeated militarily,
+- [32:13.010] is they're trying to extract as much economic pain
+- [32:16.010] on the world as possible.
+- [32:17.320] And the president of the United States
+- [32:18.870] is a man who recognizes leverage,
+- [32:20.890] that if the Iranians want to exact a certain amount of pain,
+- [32:24.750] the United States has the ability to exact much,
+- [32:26.980] much greater pain.
+- [32:28.230] The president doesn't want to do that, I don't want to do that,
+- [32:30.830] that's why we're negotiating so aggressively.
+- [32:33.000] But fundamentally, the ball is in the Iranians' court.
+- [32:35.680] Now, I think the president has talked about this.
+- [32:38.190] One thing I will say is that the Iranians are not --
+- [32:41.610] they were not the fastest negotiators
+- [32:44.010] before the war started,
+- [32:45.430] and they are certainly not the fastest negotiators now.
+- [32:47.640] So, we recognize there's some delay sometimes
+- [32:50.630] in transmitting messages from one person to another,
+- [32:53.470] but we feel confident that we can get a response --
+- [32:56.310] whether it's positive or negative,
+- [32:57.690] we're going to get a response from the Iranians
+- [32:59.330] by 8:00 tonight.
+- [33:00.670] I hope they make the right response,
+- [33:02.640] because what we really want is we want a world
+- [33:06.360] where oil and gas is flowing freely,
+- [33:08.780] where people can afford to heat their homes
+- [33:10.240] and cool their homes,
+- [33:11.470] where people can afford to transport themselves to work.
+- [33:13.970] That's not going to happen if the Iranians are engaged
+- [33:16.910] in acts of economic terrorism.
+- [33:18.370] So, they've got to know we've got tools in our toolkit
+- [33:21.620] that we so far haven't decided to use.
+- [33:23.480] The president of the United States can decide to use them,
+- [33:26.360] and he will decide to use them
+- [33:27.930] if the Iranians don't change their course of conduct.
+- [33:32.650] I think that's it.
+- [33:36.850] Unidentified: Thank you very much,
+- [33:38.190] Mr. Prime Minister, Mr. Vice President.
+- [33:40.060] That concludes our press conference.
+- [33:41.490] Thank you very much for being with us and goodbye.
+- [33:45.210] (applause)

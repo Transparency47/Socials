@@ -1,0 +1,463 @@
+<!-- source: https://www.youtube.com/watch?v=IvgGnWcxRhE -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: IvgGnWcxRhE -->
+<!-- date_published: 2026-02-01T03:38:11+00:00 -->
+<!-- date_accessed: 2026-06-02T01:06:01.964135+00:00 -->
+
+# Transcript: President Trump Gaggles with Press on Air Force One En Route Palm Beach, FL, Jan. 31, 2026
+
+- [00:00.780] The President: Hello everybody.
+- [00:01.980] The Press: How you doing, Mr. President?
+- [00:03.190] The President: I'm very good.
+- [00:04.480] We had a good time at the Alfalfa dinner.
+- [00:06.490] And we did well, I hope we did well,
+- [00:09.530] but it was very good. Tremendous people. So what's up?
+- [00:13.450] The Press: Sir, could you give us an update
+- [00:15.000] on where your thinking is right now with Iran, if you are --
+- [00:17.930] have made a final decision on what you want to do there?
+- [00:19.900] The President: I mean, I certainly can't tell you that,
+- [00:21.480] but we do have very big, powerful ships in,
+- [00:24.820] heading in that direction as you know.
+- [00:27.840] I can't tell you.
+- [00:29.280] But I hope,
+- [00:30.590] I hope they negotiate something that's acceptable.
+- [00:33.540] The Press: Saudi Arabia commencements
+- [00:35.400] are quickly submitted in the US backs office strike.
+- [00:38.030] That will be important to Iran.
+- [00:39.990] What's your reaction to that, sir?
+- [00:41.720] The President: Some people think that and some people don't.
+- [00:43.770] Well, we could make a negotiated deal
+- [00:46.860] that would be satisfactory with no nuclear weapons
+- [00:49.970] that said they should do that, but I don't know that they will.
+- [00:52.720] But they are talking to us. Seriously talking to us.
+- [00:56.780] The Press: (inaudible)
+- [00:59.610] The President: What about it?
+- [01:00.860] The Press: (inaudible) The President: I did.
+- [01:02.680] The Press: (inaudible) talk about?
+- [01:04.650] The President: Well, I've been with Jeb Bush.
+- [01:06.050] The Press: Jeb?
+- [01:07.250] The President: I only saw Jeb. I think you mean Jeb.
+- [01:09.050] The Press: Oh, okay.
+- [01:10.280] The President: No, I introduced him.
+- [01:11.490] Nice, he's a good fella. And he's been very nice to me
+- [01:14.610] in the last six months. I don't know what happened.
+- [01:16.420] But he was very nice. We had a good time.
+- [01:19.240] The Press: Mr. President,
+- [01:20.670] on your federal on your fed nominee,
+- [01:22.820] who's Kevin Warsh why are you willing to wait
+- [01:26.350] for Senator Thom Tillis to leave the Senate,
+- [01:28.960] essentially, until I guess you have to, Senator Tillis
+- [01:31.660] (inaudible)
+- [01:32.860] The President: For Tillis? I didn't say I wouldn't,
+- [01:34.380] but I, I mean, he's leaving the Senate for a reason
+- [01:37.370] because what he asked for didn't get done.
+- [01:40.720] So it's one of those things.
+- [01:42.050] I think he may get Democrat votes soon, I think.
+- [01:44.650] He's so good that he'll probably get Democrat votes.
+- [01:48.180] He should. He's very good.
+- [01:50.590] My choice, my Fed choice should get Democrat votes.
+- [01:53.730] The Press: Do you have a sense of what he's going to do
+- [01:55.930] as far as interest rates are concerned?
+- [01:57.370] The President: I hope he's going to lower them.
+- [01:58.610] I mean, if you watch him on television, you know,
+- [02:00.630] because I watch interviews and statements,
+- [02:02.960] I hope he's going to lower,
+- [02:04.260] but, you know, he's going to have to do what he wants.
+- [02:06.640] The Press: Did he tell you -- did he make any commitment?
+- [02:08.090] The President: No, no commitments.
+- [02:09.290] I don't want to do that.
+- [02:10.500] I could do that, I guess, if I wanted to.
+- [02:12.550] I didn't. I basically not --
+- [02:14.120] I mean, he was, he's a very high quality person.
+- [02:16.700] He should have no trouble getting --
+- [02:18.230] The Press: Mr. President, did you make that comment
+- [02:21.960] at the dinner about the (inaudible) sue Warsh --
+- [02:23.910] The President: About what?
+- [02:25.160] The Press: About suing Warsh (inaudible)
+- [02:26.420] he's going to lower interest rates?
+- [02:28.140] The President: Yes, it's a roast.
+- [02:30.370] It's a roast. It's a comedy thing.
+- [02:32.320] The Press: So it's a joke?
+- [02:33.540] The President: And I -- of course. So it was all comedy.
+- [02:35.290] The Press: And then on a more serious note,
+- [02:36.650] you know, you're suing the IRS.
+- [02:38.470] Can you talk a little bit about what it's like to be
+- [02:41.650] on both sides of a lawsuit?
+- [02:42.950] The President: It's very interesting.
+- [02:44.170] I have another one where I, you know,
+- [02:45.590] I've virtually won the Mar-a-Lago break-in suit.
+- [02:48.370] And you know, I have to work out some kind of a settlement.
+- [02:52.180] I'm supposed to work out a settlement with myself.
+- [02:55.610] Because, you know, when the FBI broke in,
+- [02:57.090] we sued when I was, before I was president, I sued.
+- [03:00.710] And obviously it was a very good suit.
+- [03:02.980] And I have that one and I have to work out the settlement.
+- [03:07.000] The Press: (inaudible) on how to handle that at all?
+- [03:09.250] The President: Yeah, I think what we'll do
+- [03:10.630] is do something for charity. Well, you know, we're thinking
+- [03:14.230] about doing something for charity,
+- [03:15.620] where I'll give money to charity.
+- [03:17.260] We could make it a substantial amount, nobody would care
+- [03:19.510] because it's going to go to numerous very good charities.
+- [03:25.080] The Press: And, sir, is there (inaudible)
+- [03:26.710] today about Minneapolis
+- [03:28.350] and how by not seeing federal authorities
+- [03:31.720] can intervene (inaudible)
+- [03:33.190] The President: On what?
+- [03:34.530] The Press: Secretary Noem not to --
+- [03:35.930] not to set the DHS in Democratic states?
+- [03:37.800] The President: Yeah.
+- [03:39.050] No, I let them ask us if they want help.
+- [03:40.780] You know, they're always complaining.
+- [03:42.310] If you go in, they complain. They complain no matter what.
+- [03:46.240] You know, we brought crime to the lowest point
+- [03:48.250] in the history of our country, 125 years, 1900, think of it.
+- [03:52.830] Year, think of that, 1900. Can you imagine?
+- [03:56.490] We have the lowest crime in the history of our country,
+- [03:58.450] despite the fact that our country was riddled
+- [04:01.210] with a lot of bad people from the Biden open border,
+- [04:04.870] but we've taken a lot of them out.
+- [04:06.150] We're at the lowest point in history.
+- [04:07.900] We have the least number of murders
+- [04:11.970] in the recorded history of our country.
+- [04:13.920] That's incredible.
+- [04:16.130] But we want -- I want the, I mean, honestly,
+- [04:19.740] the crime ridden cities are all Democrat run cities.
+- [04:23.720] And if they want help, they have to ask for it
+- [04:26.380] because if we go in, all they do is complain.
+- [04:29.260] But if they want help, they can ask for it.
+- [04:30.970] And they're going to need help.
+- [04:32.740] Los Angeles, as an example, we went in, we solved it.
+- [04:36.300] The chief law enforcement officer in Los Angeles
+- [04:39.110] said they couldn't have done it without the federal government.
+- [04:42.050] A week later, he said they didn't need
+- [04:43.510] the federal government, you know?
+- [04:44.760] So we don't want that.
+- [04:46.010] If they want help, they'll ask but they have to say please.
+- [04:49.640] The Press: On DHS funding, sir,
+- [04:50.980] the Democrats made three demands.
+- [04:52.750] They say they want no roaming patrols,
+- [04:54.850] they want established rules for use of force,
+- [04:56.340] and they want masks off (inaudible)
+- [04:57.630] The President: I'm not talking about it.
+- [04:58.890] It's not appropriate yet.
+- [05:00.140] We have to let a little time go by, but we'll talk about it.
+- [05:03.050] But, you know, we want, I got elected for law enforcement,
+- [05:06.600] for the border, for the economy,
+- [05:08.670] things I've done a great job with.
+- [05:09.990] I mean, when you have the lowest crime rate
+- [05:12.770] in the history of our country recorded in 125 years,
+- [05:17.660] to be exact, so I fulfill so much we'll have to talk about
+- [05:22.360] that over the next three or four days.
+- [05:23.990] The Press: Mr. President,
+- [05:25.720] what did you think of the latest update for the Epstein files,
+- [05:28.560] and do you think your critics will be satisfied with,
+- [05:30.510] with (inaudible)
+- [05:31.760] The President: Well, they should be,
+- [05:33.000] because it looked like this guy, Wolff, who's a writer,
+- [05:34.990] was conspiring with Epstein to do harm to me.
+- [05:39.510] And I didn't see it myself,
+- [05:41.030] but I was told by some very important people
+- [05:43.300] that not only does it absolve me,
+- [05:45.910] it's the opposite of what people were hoping,
+- [05:48.520] you know, the radical left,
+- [05:50.210] but that Wolff, who's a third-rate writer,
+- [05:52.910] was conspiring with Jeffrey Epstein
+- [05:55.670] to hurt me politically or otherwise.
+- [05:59.440] And that came through loud and clear.
+- [06:01.730] So we'll probably sue Wolf on that.
+- [06:06.900] And maybe the Epstein estate, I guess.
+- [06:08.910] I don't know, but we're going to certainly sue Wolf.
+- [06:10.580] The Press: You want to sue the Epstein estate?
+- [06:12.050] The President: Well, you may, I guess so,
+- [06:13.920] because he was conspiring with Wolf
+- [06:16.390] to do harm to me politically. That's not a friend.
+- [06:20.450] The Press: About your plan for Venezuela, the oil sir --
+- [06:22.110] The President: You okay down there?
+- [06:23.350] You okay?
+- [06:24.660] I don't want to -- right on top of you.
+- [06:26.790] The Press: You said that the profits will be split,
+- [06:28.460] but the, the US and Venezuela are both benefiting.
+- [06:30.410] What's Venezuela's share of the oil profits going to be?
+- [06:32.820] The President: Well, we haven't discussed that,
+- [06:34.020] but we're getting along very well
+- [06:35.220] with the leadership of Venezuela
+- [06:36.720] and they're doing a really good job.
+- [06:38.630] We're going to be selling a lot of oil.
+- [06:40.190] And we'll take some and they'll take a lot.
+- [06:42.860] And they're going to do very well.
+- [06:44.240] They're going to make more money than they've ever made.
+- [06:46.970] And it's going to be beneficial to us.
+- [06:48.310] We're going to, we're going to really --
+- [06:50.740] I think what Venezuela is really going to turn around.
+- [06:52.780] You know, I opened up the airspace over in Venezuela
+- [06:56.500] so that now people from Venezuela
+- [06:58.580] came from Venezuela here.
+- [07:00.590] They're going to be able to go back for the first time,
+- [07:02.420] go back to Venezuela and stay perhaps.
+- [07:06.150] Or go back and see their relatives,
+- [07:08.430] go for a short ring there.
+- [07:10.090] The Press: But sir, is, do you think China's
+- [07:11.550] going to get their money back from all the money
+- [07:13.160] they lent to Venezuela previously?
+- [07:14.370] The President: I don't know.
+- [07:15.580] I don't know anything about that,
+- [07:16.900] but I'll tell you why China is welcome to come in
+- [07:19.450] and would make a great deal on oil.
+- [07:22.060] You know, we welcome China. Uh, we've already made a deal.
+- [07:25.620] India's coming in and they're going to be
+- [07:28.140] buying Venezuelan oil as opposed to buying it from Iran.
+- [07:32.990] So we've already made that deal, the concept of the deal.
+- [07:36.170] But China's welcome to come in and buy oil.
+- [07:38.000] The Press: But on Venezuela, do you think that Machado
+- [07:41.660] should be able to return to Venezuela?
+- [07:43.450] The President: I'd love to be able to do something with it
+- [07:45.300] and maybe putting the sides together doing something.
+- [07:48.660] I think she's a very fine person.
+- [07:50.920] And I, but I think I have to say at the same time,
+- [07:53.750] the current leadership is doing a very good job.
+- [07:57.220] The Press: Did you have, did you have any knowledge
+- [08:00.100] of the arrest of Don Lemon before having (inaudible)?
+- [08:01.830] The President: No, I don't know anything
+- [08:03.060] about the Don Lemon thing, but he's a sleazebag.
+- [08:05.460] Everyone's known that. He's a wash-up.
+- [08:07.840] Probably from his standpoint,
+- [08:10.910] the best thing that could happen to him,
+- [08:12.310] he's getting a, you know, he had no viewers.
+- [08:14.310] He had, he was a failure, he was a failed host.
+- [08:17.400] And now he's in the news.
+- [08:20.290] I didn't know anything about him.
+- [08:21.900] The Press: So what's your response to Claudia Sheinbaum's
+- [08:24.150] warning that the embargo or the, the restriction on Cuban oil,
+- [08:27.910] oil to Cuba could cause a humanitarian crisis there?
+- [08:31.240] The President: Well, it doesn't have to be
+- [08:32.530] humanitarian priceless.
+- [08:33.940] I think they probably would come to us
+- [08:35.890] and want to make a deal. So Cuba would be free again.
+- [08:39.560] They'll come to us, they'll make a deal.
+- [08:41.980] But Cuba really, they've got a problem.
+- [08:45.400] You know, they have a problem. I know so many people from Cuba,
+- [08:48.520] but we have a lot of people in the United States
+- [08:50.710] right now that would love to go back to Cuba
+- [08:53.240] and we'd like to work that out.
+- [08:54.570] The Press: What do you want to see from Cuba?
+- [08:55.840] I mean, what do you need to see to make that kind of deal?
+- [08:57.260] The President: Oh, we'll work a deal.
+- [08:58.500] I think we're going to work a deal with Cuba.
+- [08:59.870] I think, you know, we'll be kind
+- [09:01.550] if they have a situation that's very bad for Cuba.
+- [09:05.590] They have no money, they have no oil.
+- [09:06.890] The -- Venezuela, they live off Venezuelan money and oil,
+- [09:12.250] and none of that's coming now.
+- [09:14.010] And then the president of Mexico,
+- [09:17.570] President Sheinbaum was very good.
+- [09:19.370] And I said, "Look, we don't want you sending oil there."
+- [09:21.820] And she's not sending them.
+- [09:23.350] The Press: (inaudible)
+- [09:24.550] are there plans for Washington, D.C.'s or the Washington Post
+- [09:29.190] reported that you're considering an arch that's 250 feet high.
+- [09:34.450] Can you talk a little bit about that?
+- [09:36.100] And perhaps – you could say that might be a little bit
+- [09:37.950] too large on this (inaudible)?
+- [09:39.150] The President: We're, we're considering an arc.
+- [09:41.130] It's like the Arc de Triomphe in Paris.
+- [09:45.460] And so for 200 years they wanted to build an arc.
+- [09:51.010] There are 57 cities throughout the world that have them.
+- [09:54.480] We're the only major city, Washington, D.C.,
+- [09:56.970] that doesn't the circle prior to the bridge,
+- [10:00.070] you know, the Arlington Bridge
+- [10:02.520] has been waiting for hundreds of years to have this done.
+- [10:06.280] In fact, there are four eagles that got built,
+- [10:09.490] but it was interrupted by a thing called the Civil War.
+- [10:13.390] And so it never got built.
+- [10:14.660] Then they almost built something in 1902, but it never happened.
+- [10:18.730] So we're, we have an unbelievable arc
+- [10:22.370] that I think will be the most beautiful in the world
+- [10:24.670] being built there and going to be built there.
+- [10:26.510] The Press: It's 250 feet?
+- [10:28.050] The President: I don't know what the height is.
+- [10:29.390] It, it's just appropriate for the site.
+- [10:32.120] Uh, we're setting up a committee
+- [10:33.860] and the committee's going to be going over it,
+- [10:35.660] but it'll be substantial.
+- [10:37.590] I'd like it to be the biggest one of all.
+- [10:39.940] We're the biggest, most powerful nation.
+- [10:41.970] I'd like it to be the biggest one.
+- [10:45.610] It's a very exciting job, actually.
+- [10:47.840] They've been waiting for many years, just like the ballroom.
+- [10:51.400] Uh, for 150 years, they've wanted a ballroom.
+- [10:53.600] Now we're going to put up the most beautiful ballroom
+- [10:57.270] anywhere in the world, as far as I'm concerned.
+- [10:59.400] And a real, and I could have built a much bigger one.
+- [11:02.280] I didn't want to do that.
+- [11:03.490] I wanted to be in keeping with,
+- [11:05.200] I didn't want it to be taller than the White House, et cetera.
+- [11:08.370] So I wanted it to be in keeping,
+- [11:09.790] but it's a really beautiful building done
+- [11:12.440] by some of the best architects in the world, the ballroom.
+- [11:16.480] Likewise, the arc I think it's going to be great.
+- [11:20.080] We're just setting up a committee now for New York.
+- [11:22.000] The Press: With the money from the lawsuit
+- [11:23.260] that you may settle with yourself
+- [11:25.260] go towards paying for that arch
+- [11:27.440] (inaudible)
+- [11:28.640] The President: Well, we hadn't thought of it,
+- [11:29.920] but we're going to probably, you know what I mean?
+- [11:34.060] It's sort of a strange position because I have a lawsuit
+- [11:38.510] like the break-in of Mar-a-Lago.
+- [11:40.890] And I paid myself that somehow will never look good.
+- [11:45.820] So what I added other people, a lot of people,
+- [11:48.880] a lot of outside people said, "what a great idea,"
+- [11:52.390] because nobody cares how much if it goes to good charities.
+- [11:54.730] So you settle by giving charities a lot of money,
+- [11:58.210] and I think we're going to do something like that,
+- [12:00.290] we're looking to do something like that.
+- [12:01.690] The Press: Is charity deeds to pay for the ballroom
+- [12:03.340] and for the arch?
+- [12:04.540] The President: No, I don't think either of those do.
+- [12:05.900] I'm talking about American Cancer Society.
+- [12:09.010] A lot of very, I think they should be
+- [12:11.130] probably established charities.
+- [12:14.820] I would say established and respected charities.
+- [12:17.980] The Press: On (inaudible), you had (inaudible)
+- [12:19.330] those secondary tariffs on countries
+- [12:20.710] doing business with Iran.
+- [12:22.250] We haven't seen those yet. What are you pulling off on?
+- [12:24.640] The President: Well, we're going to say, look,
+- [12:25.840] we have a lot of things happening right now with Iran.
+- [12:27.840] We have a tremendous fleet going in that direction,
+- [12:30.780] and they're talking to us. So a lot of things could happen.
+- [12:33.720] The Press: And the Canada tariffs, sir,
+- [12:34.990] that you talked about, are those coming?
+- [12:37.230] The President: Well, that was on the airplanes.
+- [12:38.550] Are you talking about (inaudible)?
+- [12:39.780] The Press: No, about the, the China deal that they,
+- [12:41.200] they did.
+- [12:42.400] The President: Oh, well, if, if they do a deal with China,
+- [12:44.230] yeah, we'll do something very substantial,
+- [12:46.140] because we can't, look,
+- [12:47.370] I have a great relationship with China presidency,
+- [12:49.780] but we don't want China to take over Canada.
+- [12:52.530] And if they make the deal that he's looking to make,
+- [12:56.320] China will take over Canada.
+- [12:59.340] And the first thing they're going to do, end ice hockey.
+- [13:03.120] The Press: So speaking of China, sir
+- [13:04.540] there was a, a military purge in that country a week ago.
+- [13:08.180] What do you make of that?
+- [13:10.320] The President: Well, as far as --
+- [13:11.630] you're talking about China?
+- [13:12.920] The Press: Yeah. The --
+- [13:14.120] The President: As far as I'm concerned,
+- [13:15.420] there's one boss in China that's presidency.
+- [13:17.620] That's the person I'm dealing with.
+- [13:20.580] The Press: It -- are there any concerns about stability or --
+- [13:23.330] The President: No, I think presidency is the boss.
+- [13:27.090] I, I watch it very closely, and he's highly respected in China.
+- [13:31.200] He's the boss.
+- [13:34.040] The Press: One second. Who exactly are you seeing
+- [13:39.490] (inaudible)? The President: Where?
+- [13:41.030] The Press: In Cuba. Where are you thinking
+- [13:42.400] (inaudible)?
+- [13:43.600] The President: We're starting to talk to Cuba.
+- [13:44.860] Yeah. We're starting -- but they need help.
+- [13:47.360] On a humanitarian basis, we're starting to talk to Cuba.
+- [13:51.230] I would like, don't think a lot of people that live
+- [13:52.940] in our country are treated very badly by Cuba.
+- [13:55.830] And we want them to be, they all voted for me,
+- [13:58.350] and we want them to be treated well.
+- [14:00.390] We'd like to be able to have them go back
+- [14:02.140] to home to their country,
+- [14:03.500] which they haven't seen their family,
+- [14:05.480] their country for many, many decades.
+- [14:09.270] So we'll work that, I'll be able to work that out. Yes.
+- [14:11.880] The Press: Do you have any updates of what's happening
+- [14:13.560] with Greenland negotiations
+- [14:16.250] (inaudible)?
+- [14:19.280] The President: Are you talking about on Greenland?
+- [14:20.640] The Press: Yeah.
+- [14:21.920] The President: (inaudible)? Yeah.
+- [14:23.120] We're -- we have started a negotiation.
+- [14:25.830] And I think it's pretty well agreed to.
+- [14:28.000] I mean, they want us to do it.
+- [14:30.410] I think it's going to be a good deal for everybody.
+- [14:32.180] Very important deal.
+- [14:33.380] Actually, from a national security point of view,
+- [14:36.450] very, very important deal.
+- [14:37.690] I think we're going to make a deal.
+- [14:38.910] The Press: Mr. President, back to your post on ICE protests,
+- [14:42.060] what did you mean when you said people
+- [14:43.960] will suffer an equal or greater consequence?
+- [14:46.500] The President: Well, if they do anything bad to our people,
+- [14:48.920] they will be -- they will have to suffer.
+- [14:50.870] I'm sorry. If they start spitting in people's faces,
+- [14:55.870] punching our people, punching our soldiers,
+- [14:58.550] our patriots they'll, --
+- [15:00.660] they will get taken care of in at least an equal way.
+- [15:05.490] They're not going to do that like you know,
+- [15:08.430] you see it, the way they treat our people.
+- [15:10.980] And I said, you're allowed, if somebody does that,
+- [15:13.330] you can do something back.
+- [15:14.610] You're not going to stand there and take it.
+- [15:17.210] If somebody spits in your face
+- [15:19.500] that will not be a pleasant thing for the person that's
+- [15:22.470] (inaudible). We're not letting people spit
+- [15:24.750] in our soldier's face as they stand in attention
+- [15:27.960] and they're not allowed to do anything.
+- [15:29.600] If they throw bricks at a car and at, you know,
+- [15:32.180] one of our vehicles, and our very expensive vehicles
+- [15:36.130] they're going to be met with very, very serious force.
+- [15:38.790] The Press: Sir, do you think it's good having lots of cameras
+- [15:40.600] on these kinds of incidents
+- [15:41.800] between law enforcement and the people?
+- [15:43.380] The President: I think it would help law enforcement,
+- [15:45.020] but I'd have to talk to them.
+- [15:46.950] I'm going to be talking to them tomorrow.
+- [15:49.030] Actually, I think it would help law enforcement.
+- [15:50.680] You know, that works both ways. But I think, overall,
+- [15:53.580] I think it's 80 percent in favor of law enforcement.
+- [15:56.920] The Press: Who are you talking to tomorrow on law enforcement?
+- [15:58.830] The President: A lot of people.
+- [16:00.060] I'm speaking to Christian, speaking to Tom Holman,
+- [16:02.200] a lot of people. We have it in good shape.
+- [16:04.660] And, you know, Minnesota crime is way down
+- [16:07.800] because of what we've done.
+- [16:09.140] We've taken out thousands of criminals.
+- [16:11.670] What we want in Minnesota, we want them to open their jails
+- [16:14.800] and give us their criminals, and we're gone.
+- [16:18.440] That's all we want, and they're going to have to do it.
+- [16:21.680] The Press: How are you feeling about Secretary Noem here in the
+- [16:23.730] (inaudible), the matters in the last quarter?
+- [16:25.390] The President: Well, she's doing great.
+- [16:26.590] I mean, we have a closed quarter.
+- [16:28.660] We've taken out thousands and thousands of killers
+- [16:32.080] and murderers and everything else.
+- [16:34.000] Removed her from our country by the tens of thousands,
+- [16:37.920] and we have the crime rate that's the lowest in history.
+- [16:40.660] You know, I didn't do the crime rate sense.
+- [16:42.210] It just came out yesterday that we have the lowest crime rate
+- [16:47.110] in the history of our country.
+- [16:48.850] So how's she doing? I think she's doing well.
+- [16:50.590] And she's a good person. She works hard.
+- [16:53.030] Tom Holman is a star. You know, he's incredible.
+- [16:55.900] I mean, the guy's incredible.
+- [16:57.680] He's got an unbelievable, he's (inaudible),
+- [16:59.150] and yet everybody likes him, both sides, so he's been great.
+- [17:03.980] But he said to me just tonight, he said,
+- [17:05.970] "Look, they've got to open up their prisons
+- [17:08.760] and give us their criminals and their murderers
+- [17:11.030] and their drug lords
+- [17:12.240] and, you know, and we'll take care of them."
+- [17:15.190] And that's why crime is down in Minnesota.
+- [17:17.160] Not because of anything they did,
+- [17:18.600] it's because of what we did.
+- [17:20.080] Same thing in Chicago. We have crime down in Chicago,
+- [17:23.130] and most people don't even know we're there,
+- [17:24.840] but we're there doing a good job.
+- [17:26.730] We have crime down all over the nation.
+- [17:28.680] Thank you very much, everybody.
+- [17:30.370] The Press: Thank you, sir.
+- [17:34.360] The President: That's a very dangerous shot he's got.
+- [17:38.960] It's got to be the worst shot on the (inaudible).
+- [17:40.860] That's all right. Have a good time.
+- [17:42.770] The Press: Thank you, sir.

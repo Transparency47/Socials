@@ -1,0 +1,400 @@
+<!-- source: https://www.youtube.com/watch?v=jVYTmxCVNXI -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: jVYTmxCVNXI -->
+<!-- date_published: 2025-02-07T22:20:12+00:00 -->
+<!-- date_accessed: 2026-06-02T01:30:11.162030+00:00 -->
+
+# Transcript: President Trump Hosts a Bilateral Meeting with the Prime Minister of Japan
+
+- [00:00.520] President Trump: Thank you very much.
+- [00:01.810] It's a great honor to be with Prime Minister Ishiba of Japan.
+- [00:06.200] He is a highly respected man, doing a fantastic job.
+- [00:10.250] The people of Japan like him a lot. It's good.
+- [00:14.300] And it's a real honor to have him in the Oval Office.
+- [00:17.960] It's the first time he's been into the Oval Office.
+- [00:21.490] And when people come in here the first time,
+- [00:23.700] they say they like to look for a little while and that
+- [00:27.410] - and he did.
+- [00:28.680] And it was -- this represents some of our best presidents
+- [00:33.760] and but it represents a lot of other things also.
+- [00:36.140] But up on the wall we have some of our best presidents
+- [00:38.610] over the years
+- [00:40.220] and people enjoy it very much and they enjoy being here.
+- [00:42.870] And it's a great honor to have you.
+- [00:44.600] Thank you very much.
+- [00:45.940] Female Speaker: [foreign sp]
+- [01:14.060] Prime Minister Ishiba: [foreign sp] The Honorable.
+- [01:42.340] Mr. President, thank you very much for inviting me
+- [01:45.980] to the White House today.
+- [01:47.220] From the bottom of my heart, I would like to express
+- [01:49.250] my sincere appreciation for the invitation.
+- [01:55.850] [foreign sp] For Mrs. Aki Abe.
+- [02:13.920] You kindly delivered your photo book for me.
+- [02:18.440] And on that, you gave me an autograph.
+- [02:21.940] You wrote a peace for me.
+- [02:23.900] And I was really touched by your message.
+- [02:27.620] [foreign sp]
+- [02:33.900] And I realize that the word peace represents
+- [02:36.870] what you care about women.
+- [02:52.230] [foreign sp]
+- [03:02.420] And I vividly remember what you had to experience
+- [03:06.460] during the presidential election.
+- [03:08.220] I remember that was last July.
+- [03:10.300] There was an assassination attempt.
+- [03:12.800] And I was very touched by your undaunted presence
+- [03:17.170] that you stood up
+- [03:18.490] and also you raised your fists high in the sky.
+- [03:22.670] [foreign sp]
+- [03:34.210] And behind you there was a star spangled banner
+- [03:37.660] with the blue sky,
+- [03:38.900] and that specific photo will be remembered.
+- [03:42.940] It was one of the most unforgettable scene
+- [03:46.890] in the photo.
+- [03:49.000] [foreign sp]
+- [04:13.530] And as I looked at the photo,
+- [04:16.410] I realize that through that experience,
+- [04:19.690] you realize your mission.
+- [04:22.090] Namely, you are going to win the election
+- [04:25.230] and also you are going to pursue your signature
+- [04:27.770] initiative of Make America Great Again.
+- [04:30.900] And also you will redouble your efforts
+- [04:33.190] to bring peace to the world.
+- [04:35.590] And that is why God saved you in that experience.
+- [04:40.170] Thank you.
+- [04:42.120] [foreign sp]
+- [05:02.800] And I understand that you have been advocating
+- [05:05.620] the key signature initiative, Make America Great Again.
+- [05:09.300] And I understand that that actually reflects
+- [05:12.820] your deep compassion to the forgotten men and women.
+- [05:18.750] [foreign sp] And just like here,
+- [05:48.050] since I took office as prime minister of Japan,
+- [05:51.730] I have been advocating my goal of regional revitalization
+- [05:57.880] and also local revitalization in Japan as well.
+- [06:03.010] In many of these suburban areas and rural areas,
+- [06:06.120] we do see many forgotten man or woman.
+- [06:10.930] And I do hope to bring dream and hope for them.
+- [06:18.380] [foreign sp] At this juncture,
+- [06:42.940] I am proud of the very good relationship
+- [06:46.510] between Japan and the United States.
+- [06:49.990] There is a very close partnership, and I do believe
+- [06:53.660] that it is Mr. President and Prime Minister Shinzo Abe,
+- [06:58.830] who laid the foundation for such a robust relationship
+- [07:02.030] between our two countries.
+- [07:04.880] [foreign sp]
+- [07:23.040] So as we move forward, together with Mr. President
+- [07:26.730] and also together with the United States,
+- [07:29.410] Japan and myself are determined to work hand in hand
+- [07:33.730] to bring peace to the world
+- [07:35.590] and also enable people to have their dreams and their hope.
+- [07:43.760] President Trump: Thank you very much.
+- [07:45.070] That was beautiful. And I just want to say
+- [07:47.010] that Shinzo is a great friend of mine.
+- [07:50.380] So sad. I was -- I couldn't have felt worse
+- [07:53.810] when that happened in that horrible event.
+- [07:57.410] But he also was a friend of yours
+- [07:59.070] and he had tremendous respect for you.
+- [08:01.530] And we would talk about the different people in Japan.
+- [08:05.060] He had tremendous respect for you, as does Mrs. Abe.
+- [08:08.730] And when she came and visited at Mar a Lago,
+- [08:13.490] she was terrifically impressed by the job you're doing.
+- [08:17.700] And I thought it was very nice.
+- [08:18.930] But Shinzo had tremendous regard for you.
+- [08:21.940] And I know that you were a good friend of his, too.
+- [08:24.040] So it is an honor on his behalf
+- [08:26.760] even to say it's just an honor to be with all of you.
+- [08:30.090] He was a good friend of mine. He was a wonderful man.
+- [08:32.770] Female Speaker: [foreign sp]
+- [09:16.960] Prime Minister Ishiba: [foreign sp]
+- [10:01.650] Not only among politicians,
+- [10:03.140] but also among the general public
+- [10:05.430] as well as business leaders.
+- [10:07.160] There are many that are anxiously waiting
+- [10:10.530] for your comeback. And let me say one example.
+- [10:14.390] Mr. Akio Toyota, CEO of Toyota.
+- [10:17.740] He's actually my friend from high school,
+- [10:20.330] as well as college days.
+- [10:22.000] And he confessed to me that he was also anxiously
+- [10:26.130] waiting for your victory and your comeback.
+- [10:29.710] [foreign sp] And when I talk to him,
+- [10:45.310] he has shared with me his future plan
+- [10:48.740] to announce more investment to the United States
+- [10:52.380] and also to create more jobs in the United States.
+- [10:57.870] [foreign sp]
+- [11:23.880] Another example is the SoftBank Group CEO.
+- [11:28.120] [inaudible], who happens to be a long time friend of mine.
+- [11:33.480] Foreign Minister. Minister Ibya [phonetic sp.].
+- [11:35.820] He also had a chance to see me together
+- [11:39.820] with Mr. Altman, CEO of Open AI.
+- [11:44.410] And Masa also shared his vision
+- [11:47.530] to bring more investment to the United States.
+- [11:52.760] [foreign sp]
+- [12:02.020] Japan has been the largest investor for the United States
+- [12:06.490] in the last five consecutive years.
+- [12:10.810] [foreign sp] And building upon that,
+- [12:16.950] we are ready to further increase
+- [12:19.220] our investment to the United States.
+- [12:23.750] [foreign sp]
+- [12:43.510] And also there is another good news
+- [12:46.390] that I would like to deliver to you.
+- [12:48.550] Japanese automaker Isuzu has a plan to create a factory
+- [12:55.200] in the United States in the near future.
+- [12:59.800] [foreign sp]
+- [13:17.090] And as I touched upon the example of Toyota,
+- [13:20.110] they also have another to expand their dreams
+- [13:25.600] as well as start to upgrade to your factories
+- [13:28.440] in the near future. And as far as I understand,
+- [13:31.730] there is one factory to be fully operational
+- [13:37.030] starting the month of April this year.
+- [13:42.290] President Trump: Well, thank you very much.
+- [13:43.520] And we're going to be working on that.
+- [13:45.250] And I think your auto factories are going to do very well.
+- [13:48.440] We have a lot of companies
+- [13:50.800] coming into the United States to build autos
+- [13:53.300] because of what we've done with taxation.
+- [13:56.700] And I know they're going to do very well
+- [13:59.040] and say hello to Mr. Toyota,
+- [14:02.200] who's somebody I met over there and became friendly with.
+- [14:06.820] Terrific man. All of all of these people so great.
+- [14:11.150] Such a great country. We do want to work on a deficit.
+- [14:14.190] We have about $100 billion deficit with Japan,
+- [14:18.420] which I'm not surprised because you very good negotiators,
+- [14:20.880] I will say.
+- [14:22.160] But we want to work on that and get that down to even equality.
+- [14:25.880] I call it let's be equal.
+- [14:27.910] So I think we'll be able to do that pretty easily.
+- [14:31.230] And that's pretty much what I want to do.
+- [14:34.030] I want to get other countries also to equality
+- [14:38.920] with the United States in terms of deficits.
+- [14:41.690] And I think we'll be able to do that very routinely.
+- [14:44.450] Female Speaker: [foreign sp.]
+- [15:58.540] President Trump: To what extent from North Korea today, sir,
+- [16:02.850] will always be a topic, especially with Japan.
+- [16:06.780] We will be discussing North Korea
+- [16:09.250] and many other things we spending pretty much today.
+- [16:13.990] But that's always a topic.
+- [16:15.580] The Press: Mr. President, you changed your mind
+- [16:17.210] about the sale of U.S. Steel?
+- [16:19.950] President Trump: No, I think we're going to be
+- [16:21.190] discussing that today. No, I haven't.
+- [16:23.730] And I hear we have some pretty good information on that.
+- [16:26.900] You might want to go.
+- [16:28.350] The Press: [inaudible]
+- [16:34.560] The Press: Have you got tariffs an option
+- [16:38.380] if the deficit doesn't get to equilibrium to the quality?
+- [16:41.270] President Trump: Yes.
+- [16:42.540] The Press: So.
+- [16:45.780] Mr. President, can you discuss what your plan
+- [16:48.060] is for reciprocal trade?
+- [16:49.950] Are you planning to be on that today?
+- [16:52.830] President Trump: I'll be announcing that next week.
+- [16:54.980] Reciprocal trade so that we're treated
+- [16:57.030] evenly with other countries.
+- [16:58.760] We don't want any more, any less.
+- [17:01.420] So I'll be announcing that next week
+- [17:04.460] and many other things having to do not
+- [17:06.930] even with trade, but other things.
+- [17:08.600] But I'll be talking about reciprocal trade
+- [17:10.860] sometime next week.
+- [17:12.130] We'll have a news conference and will lay it out pretty simple.
+- [17:17.260] The Press: Every single country?
+- [17:19.150] President Trump: It affects everybody. So reciprocal.
+- [17:22.230] Yeah, we'll be talking about that next week.
+- [17:24.960] Prime Minister Ishiba: [foreign sp] I understand
+- [18:00.760] that the key point in this regard
+- [18:02.920] is to think that we're mutually beneficial.
+- [18:07.840] That means that would benefit the development
+- [18:10.410] of the United States as well as the development of Japan.
+- [18:14.400] And I do hope that whatever measures and actions
+- [18:19.240] should meet this criteria,
+- [18:21.790] meaning that serving the interests of both countries.
+- [18:25.070] But as to specifics, I understand
+- [18:26.960] that we are going to have further discussion.
+- [18:29.530] President Trump: That's correct.
+- [18:30.750] The Press: Mr. President,
+- [18:31.990] are there any specific concessions
+- [18:33.660] that you will be asking for from Japan that you can share?
+- [18:36.420] President Trump: I will be happy.
+- [18:37.810] I think it will be very easy for Japan.
+- [18:40.160] We have a fantastic relationship.
+- [18:42.630] I don't think we'll have any problem whatsoever.
+- [18:44.660] They want fairness also.
+- [18:47.140] I think some of the most popular people got some juice
+- [18:52.790] and here is some good old fashioned in a good way,
+- [18:54.960] let's put it that.
+- [18:56.740] The Press: Mr. President,
+- [18:57.980] your reaction to the new Time magazine cover
+- [19:00.840] that has Elon Musk sitting behind your Resolute desk?
+- [19:05.550] The Press: [foreign sp]
+- [19:14.040] President Trump: Is Time magazine still in business?
+- [19:20.530] Elon is doing a great job,
+- [19:23.390] he's finding tremendous fraud and corruption and waste.
+- [19:27.200] You see it with the USAID, but you're going to see it
+- [19:30.580] even more so with other agencies in other parts of government.
+- [19:34.410] He's got a staff that's fantastic.
+- [19:37.200] He's wanted to be able to do this for a long time.
+- [19:39.860] Everybody else knew it was existed,
+- [19:42.710] but I think never so much.
+- [19:44.520] When you look at USAID, that's a that's a fraud.
+- [19:50.060] The whole thing is a fraud.
+- [19:51.360] Very little. Very little. Being put to good use.
+- [19:55.270] Every single line that I look at in terms of events
+- [19:59.610] and transactions is either corrupt or ridiculous.
+- [20:04.600] And we're going to be doing that throughout government.
+- [20:07.110] And I think we're going to be very close to balancing budgets
+- [20:10.290] for the first time in many years.
+- [20:11.680] I think we're going to be very close to in addition
+- [20:14.920] to money's coming in from tariffs, etc., etc..
+- [20:17.780] But, you know, he's doing a very good job.
+- [20:19.260] I'm very happy with it.
+- [20:20.640] Prime Minister Ishiba: What do you mean?
+- [20:21.840] The Press: The eagle must come from the podium for us
+- [20:23.490] to ask him some questions. Mr. President.
+- [20:27.480] Will you put Elon Musk up on the podium for us
+- [20:29.880] to ask him some question? Sure.
+- [20:31.100] The Press: I will be. He is. He's not shy. He loves you.
+- [20:34.510] The Press: Any further deliberations on Gaza
+- [20:36.490] or the timetable for a takeover?
+- [20:39.700] President Trump: No, No deliberations.
+- [20:40.980] It's been very well received
+- [20:42.530] where basically the United States
+- [20:44.190] would view it as a real estate transaction,
+- [20:47.500] where we'll be an investor in that part of the world
+- [20:51.230] and no rush to do anything would need anybody
+- [20:54.170] there would be supplied and given to us by Israel.
+- [20:57.750] We'll watch. In terms of security,
+- [21:00.700] we're not talking about boots on the ground or anything,
+- [21:02.740] but I think we'll the fact that we're there,
+- [21:05.340] that we have an investment there,
+- [21:06.950] I think would go a long way to creating peace.
+- [21:11.340] We don't want to see everybody move back
+- [21:13.720] and then move out in ten years.
+- [21:15.090] This has been going on for 50 years, much more than that.
+- [21:20.120] We just want to see stability that would be having us
+- [21:22.910] have that particular peace in that particular location
+- [21:28.460] I think would show great stability
+- [21:29.970] and would would lead to greater stability in the area
+- [21:32.930] for very little money, very little price.
+- [21:36.060] And we wouldn't need soldiers at all
+- [21:38.750] that would be taken care of by others.
+- [21:40.740] And the investments are taken care of by others also.
+- [21:43.740] So for no investment,
+- [21:45.570] I mean virtually no investment whatsoever,
+- [21:48.200] it would bring stability to the area
+- [21:51.060] and others can invest in it later on.
+- [21:53.740] But we're in no rush on it. There's absolutely no rush.
+- [21:56.930] The Press: President Trump and the national security threat
+- [22:00.300] And how do you plan to collaborate on AI Energy.
+- [22:02.500] The Press: Deep sea?
+- [22:03.750] Do you believe it's a national security threat?
+- [22:06.370] President Trump: No, I think it's happening.
+- [22:07.700] I mean, it's it's a technology that's happening.
+- [22:10.920] It's very it's actually I think
+- [22:12.820] it's I think we're going to benefit if it's correct,
+- [22:14.860] what's going on now that it'll be a lot less expensive.
+- [22:18.750] The AI we're talking about will be a lot less expensive
+- [22:22.750] than people originally thought. That's a good thing.
+- [22:24.990] I view that as a very good development, not a bad thing.
+- [22:27.820] President Trump: Mr. President, Mr. President,
+- [22:29.500] on autos, specifically, in your first term,
+- [22:31.960] you tried to term autos. Is that on the table still?
+- [22:35.060] Are you trying to do that in your second.
+- [22:36.470] President Trump: Administration auto tariff?
+- [22:38.640] Yeah, sure. That's that's always I think it's a very big deal
+- [22:43.300] because we are you know,
+- [22:44.860] we have cases where we don't supply autos
+- [22:47.150] and other countries do.
+- [22:48.640] And, you know, we have to equalize it.
+- [22:51.240] We have to stabilize it and equalize.
+- [22:53.660] The Press: Will you come away from President Advance,
+- [22:55.400] meet with President Zelensky next week while he's in Europe?
+- [22:59.680] President Trump: I will probably be meeting
+- [23:01.060] with President Zelensky next week
+- [23:02.890] and I will probably be talking to President Putin.
+- [23:06.140] I'd like to see that warrant for one primary reason
+- [23:09.480] that killing so many people
+- [23:10.910] is losing millions of people on a battlefield.
+- [23:14.760] In this case, mostly the battlefield.
+- [23:16.530] You have 8 or 900,000 Russian soldiers
+- [23:20.240] are dead or injured and very badly wounded.
+- [23:22.920] And the same thing with Ukraine.
+- [23:25.050] You have probably 700,000 with Ukraine.
+- [23:27.990] The numbers they gave a little bit lower than that,
+- [23:30.080] but I believe those numbers aren't correct.
+- [23:32.560] I'd like to see it.
+- [23:33.950] And just on a human basis, it's terrible what's going on.
+- [23:38.800] They have open fields with no protection.
+- [23:41.460] The only thing a bullet can hit is a human body
+- [23:43.680] and the human body dies as soon as it gets hit.
+- [23:46.780] Now, I'd like to see that.
+- [23:48.010] And it's a ridiculous war would have never started
+- [23:50.220] if I were president.
+- [23:51.460] That war would have never started.
+- [23:53.610] Putin would not have started that war if I were president.
+- [23:56.840] And by the way, you wouldn't have had October 7th
+- [23:58.850] if I was president day,
+- [24:00.090] that that mess would not have started.
+- [24:02.880] But no, I would very much like to help out.
+- [24:07.590] One of the things we're looking at with President Zelensky
+- [24:12.160] is having the security of their assets.
+- [24:16.480] They have assets underground railroads
+- [24:19.710] and other things, but primarily railroad.
+- [24:22.620] And we want to have secure really,
+- [24:24.700] we want security because, as you know,
+- [24:28.760] Europe is putting up much less money than us,
+- [24:31.330] much Naito, Europe, call it whatever you want.
+- [24:34.660] And we're at probably 300 billion plus there
+- [24:38.330] and probably the real number is 100 billion.
+- [24:41.430] That's a lot of money, but it's 200 billion less than us.
+- [24:44.150] It is an ocean in between. They need it more than now.
+- [24:47.220] So we're asking them to equalize, add and get even.
+- [24:52.140] But we're also asking presidential.
+- [24:54.520] Linskey for the security of, you know,
+- [24:58.680] putting all this money up.
+- [24:59.950] And we're saying, where does it stop?
+- [25:02.800] And yet we want to see it out to an end.
+- [25:05.290] We want to see an end.
+- [25:06.810] But we are going to be asking for the security
+- [25:08.900] that we've already told him of an equal amount
+- [25:12.970] of something where our money I mean,
+- [25:14.930] the American taxpayers in for $300 billion.
+- [25:18.330] Biden never negotiated.
+- [25:19.690] He never told Europe to put in more money.
+- [25:21.890] And it got out of hand.
+- [25:23.280] Just like NATO's data we were in,
+- [25:25.540] we were paying almost 100% of NATO's.
+- [25:28.450] When I first came in,
+- [25:29.680] everybody was taking advantage of the good old United States,
+- [25:32.720] but not anymore. So what?
+- [25:35.060] And now if you speak to the secretary general
+- [25:37.620] of NATO's very nice, when he was here two weeks ago,
+- [25:40.840] he said what Trump did was amazing.
+- [25:42.420] He got everybody to pay. And to do that, you have to ask.
+- [25:46.560] And Biden never asked.
+- [25:48.300] So we're in for probably close to $200 billion
+- [25:52.810] more than Europe.
+- [25:54.690] And yet, obviously, it affects your budget more than us.
+- [25:57.070] So we would like them to stay, to equalize, to have to go more.
+- [26:03.610] And from our standpoint, we do want security
+- [26:06.100] and all this money that we're putting up for next week.
+- [26:09.610] Sir, you're going to you may he may meet next week.
+- [26:12.580] Yeah. Whenever you asked me here why he could be watching you,
+- [26:15.960] I'm not going there.
+- [26:18.720] The Press: Are you planning to meet with President Putin?
+- [26:20.380] Are you just.
+- [26:21.640] The Press: Planning? Could be.
+- [26:23.360] We we've always had a good relationship
+- [26:26.110] with President Putin,
+- [26:27.340] and I have always had a good relationship.
+- [26:29.100] That's why it's so sad that it happened.
+- [26:30.630] This would have never happened if I were president.
+- [26:33.050] It's so sad to see it happen.
+- [26:34.700] So many dead people, by the way, so many cities are demolished.
+- [26:38.400] And like you talk about, Gaza. Well, take a look at Ukraine.
+- [26:41.690] So many of those cities are demolition sites demolished.
+- [26:45.960] So sad. Should have never happened.
+- [26:47.840] All those beautiful golden domes,
+- [26:49.530] but much more importantly,
+- [26:51.060] all those beautiful people are dead
+- [26:53.130] and it should have never happened.
+- [26:54.530] Thank you very much.

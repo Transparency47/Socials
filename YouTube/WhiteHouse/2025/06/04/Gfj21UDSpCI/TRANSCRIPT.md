@@ -1,0 +1,419 @@
+<!-- source: https://www.youtube.com/watch?v=Gfj21UDSpCI -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: Gfj21UDSpCI -->
+<!-- date_published: 2025-06-04T23:25:17+00:00 -->
+<!-- date_accessed: 2026-06-02T02:48:53.179652+00:00 -->
+
+# Transcript: President Trump Participates in a Summer Soirée
+
+- [00:00.350] Annoucner: Ladies and gentlemen,
+- [00:02.221] the President of the United States.
+- [00:04.540] ♪ (Hail to the Chief) ♪
+- [00:24.840] (audience chanting "U.S.A.")
+- [00:32.060] What a nice group.
+- [00:33.220] Look at them all coming back now.
+- [00:34.880] They were way out of that
+- [00:35.898] fence and they're coming back.
+- [00:37.380] They're running.
+- [00:38.500] Don't fall, please, nobody.
+- [00:41.610] We had an administration that fell a
+- [00:43.050] lot and we don't want to have that.
+- [00:45.000] We don't want to have any of that.
+- [00:47.640] Well, I'm delighted to welcome to the
+- [00:49.881] White House the thousands of proud American patriots.
+- [00:53.820] And that's what you are your patriots.
+- [00:55.290] You know, we've never done this before.
+- [00:56.610] You know that, right?
+- [00:58.700] They didn't do it.
+- [01:02.250] The previous administration
+- [01:03.697] wouldn't have thought of doing it.
+- [01:05.960] But we're going to do it for four more years.
+- [01:08.920] I don't know.
+- [01:09.440] Maybe eight more years.
+- [01:10.600] I don't know.
+- [01:13.895] But we love you all.
+- [01:15.180] You're really amazing.
+- [01:16.580] Successful people all and you just gave
+- [01:18.920] your heart and your soul and we won every swing state.
+- [01:22.420] We won the popular vote by millions.
+- [01:24.460] We won everything you can win.
+- [01:26.680] And now we have a successful country.
+- [01:30.720] Doesn't it feel different?
+- [01:33.300] So many people say, go away and all over
+- [01:35.762] the world they say it feels different.
+- [01:38.200] The whole world feels different.
+- [01:40.180] So it's an honor.
+- [01:41.220] It's a great honor, believe me.
+- [01:42.520] We should all be happy about it because
+- [01:44.376] we're bringing it back like nobody
+- [01:46.009] would have thought possible.
+- [01:47.360] The event has -- and I'll just tell you,
+- [01:49.705] it was really the brainchild of a few of
+- [01:52.241] the people that happened to be in the audience.
+- [01:54.120] I won't bother to embarrass them
+- [01:56.030] by introducing them.
+- [01:57.840] They don't need that.
+- [01:59.080] But they just had this idea.
+- [02:00.650] And I loved it immediately upon hearing it.
+- [02:03.310] But this is the largest crowd so far that
+- [02:06.052] we can imagine to be on this lawn in many, many years.
+- [02:09.480] There's a big crowd.
+- [02:10.400] There's a lot of people.
+- [02:11.310] And this is all a group of people
+- [02:12.845] that love what we're doing.
+- [02:14.410] They love MAGA.
+- [02:15.120] Make America great again.
+- [02:21.090] So I want to thank you all and very
+- [02:23.105] particularly have some good food there.
+- [02:25.430] I know a certain place serves our food.
+- [02:28.825] And I think you're liking it.
+- [02:30.130] I like it.
+- [02:30.811] But I think you like it a lot.
+- [02:32.870] I want to express my gratitude to just
+- [02:35.278] about all of my members in the cabinet who are here.
+- [02:38.410] They are here in great numbers.
+- [02:41.790] I didn't know what they were saying.
+- [02:43.210] They said, I'll see you tonight.
+- [02:45.540] And I've been so busy between Iran,
+- [02:47.754] Russia, China and every other
+- [02:49.562] problem that we were left.
+- [02:51.535] That I'm saying, what the hell is happening tonight?
+- [02:54.550] And then I said, I'm seeing a lot
+- [02:56.443] of thousands of my friends tonight.
+- [02:59.070] But I want to thank the members
+- [03:00.806] of the cabinet in particular.
+- [03:02.630] They've been unbelievable.
+- [03:03.740] We have a great cabinet.
+- [03:05.030] You see the results every single day.
+- [03:08.930] Let me also give a big round of applause
+- [03:11.503] and welcome to our new White House interns.
+- [03:14.970] This is the very first day on their job.
+- [03:20.030] Really great.
+- [03:21.290] Julian Nicholas, where is Julian?
+- [03:23.050] Where are you, Julian?
+- [03:24.050] Are you out there someplace?
+- [03:25.610] I think so.
+- [03:27.150] Where is Julian?
+- [03:28.710] Where?
+- [03:30.450] Look at him.
+- [03:31.210] Oh, is that?
+- [03:32.610] Wow.
+- [03:32.990] Good.
+- [03:33.250] You ever hear of the great Jack Nicholas?
+- [03:35.670] This is his grandson, right?
+- [03:39.100] I immediately said, get him on
+- [03:40.757] board because he's got great genes.
+- [03:42.850] You can't get better than that.
+- [03:45.250] And you know, especially so your grandmother, okay?
+- [03:48.090] Barbara, who's fantastic.
+- [03:49.550] So good luck.
+- [03:50.730] You're going to do very well.
+- [03:51.790] Thank you, Julian.
+- [03:52.830] Very good.
+- [03:53.460] Say hello.
+- [03:55.200] I wish I could play golf like Jack Nicklaus.
+- [03:57.340] It just didn't work out that way.
+- [03:59.610] But six months ago we had a
+- [04:01.193] nation that was as cold as ice.
+- [04:03.130] It was cold.
+- [04:04.390] The whole world was laughing at us.
+- [04:06.950] And they're not laughing anymore that I
+- [04:09.057] can tell you now because of the people here tonight.
+- [04:11.970] We have the hottest most talked
+- [04:13.923] about country anywhere in the world.
+- [04:18.900] I went to the Middle East.
+- [04:20.900] We went to Qatar, Saudi Arabia.
+- [04:22.920] We went to UAE.
+- [04:24.540] We went to three stops.
+- [04:26.060] We brought back 5.1 trillion dollars.
+- [04:28.890] Think of that.
+- [04:30.290] 5.1.
+- [04:31.270] They ordered massive amounts of military
+- [04:33.940] equipment, regular equipment, 200 Boeing aircraft.
+- [04:37.510] And we got one for free.
+- [04:38.890] For the nation.
+- [04:39.750] You've been hearing that.
+- [04:41.920] United States Air Force got one for free.
+- [04:45.290] I'd like one because we need it as Air
+- [04:47.619] Force One until the other ones are done.
+- [04:50.490] And they said we would be pleased to give you.
+- [04:52.530] So they gave us a Boeing 747
+- [04:54.518] for the United States Air Force.
+- [04:57.880] And every -- it's just incredible.
+- [04:59.470] The press picked it up.
+- [05:00.610] And they said he got a plane.
+- [05:02.491] I didn't get a plane.
+- [05:03.531] They got a plane.
+- [05:04.710] But that's the way it is.
+- [05:05.910] You're going to get to know as
+- [05:07.172] you deal with the fake news.
+- [05:08.675] And then eventually you'll get to love them.
+- [05:11.410] Maybe.
+- [05:12.070] I doubt it.
+- [05:12.631] Actually, I doubt it.
+- [05:15.070] But I want to just tell you some of the
+- [05:17.527] numbers that just came out, Rasmussen and
+- [05:20.111] majority of Americans now believe our
+- [05:22.301] country is on the right track
+- [05:23.979] for the first time in 28 years.
+- [05:28.050] Think of that.
+- [05:29.550] First time in 28 years.
+- [05:32.790] That's something.
+- [05:34.030] And think of the achievement.
+- [05:35.710] And we did that in four months.
+- [05:37.710] You know, we haven't been here long, four months.
+- [05:40.070] And we're going to do a lot better than that.
+- [05:42.480] But who would think that for 28
+- [05:43.913] years they were on the wrong track?
+- [05:45.830] Because I know one thing that four years
+- [05:48.072] ago during our term, we were in the right track.
+- [05:50.690] We were doing a great job.
+- [05:52.490] And we had one of the most successful --
+- [05:54.347] that was one of the most successful terms ever.
+- [05:57.120] That we had a little problem with a rigged election.
+- [06:00.210] And then we came back.
+- [06:01.400] And this is a bigger, better,
+- [06:03.187] stronger than ever before.
+- [06:04.850] This one is far bigger than it would have been.
+- [06:07.251] This is really something that's happened.
+- [06:09.370] We've created over half a million new jobs
+- [06:11.961] in a short period of time, secured nearly
+- [06:14.491] $15 trillion new investments
+- [06:17.375] that are going into our country.
+- [06:21.070] And if you notice the inflation report
+- [06:23.482] came out this morning, we're about 2 percent inflation.
+- [06:26.490] Can you believe it?
+- [06:29.790] And very importantly, because the people
+- [06:31.874] were devastated, the last administration,
+- [06:34.170] in my opinion, the most unsuccessful
+- [06:36.887] administration may be in the history of our country.
+- [06:40.970] And the grocery prices went through the roof.
+- [06:43.350] Well, grocery prices now are down.
+- [06:45.650] You remember they were talking about eggs.
+- [06:47.710] My first week in office, the
+- [06:49.493] press, was screaming about eggs.
+- [06:51.590] Eggs have gone up.
+- [06:54.350] 287 percent.
+- [06:54.831] I said, I'm sorry, I just got here.
+- [06:57.520] And the eggs went up.
+- [06:59.170] Now the eggs are down at the same price.
+- [07:00.930] They were, we got them all the way down.
+- [07:02.990] And we had three weeks ago for Easter.
+- [07:05.510] We had an egg hunt.
+- [07:07.230] An egg roll, they called it.
+- [07:09.050] And they said, sir, could you order a
+- [07:10.590] couple of months ago, could you order plastic eggs?
+- [07:12.990] They said, we're not ordering plastic eggs.
+- [07:15.475] And by the time we had the event,
+- [07:17.364] eggs were all the way down.
+- [07:19.250] But think of it, grocery prices are down.
+- [07:21.850] A gasoline prices are down.
+- [07:24.051] And it was down just in time.
+- [07:26.170] One dollar, we had numerous states.
+- [07:28.670] One dollar and ninety-eight cents a gallon.
+- [07:31.830] Just in time for Memorial Day weekend.
+- [07:34.770] How about that?
+- [07:35.490] Good timing.
+- [07:37.350] You know, this all endures to
+- [07:38.897] you because you're all with us.
+- [07:40.551] This is a family.
+- [07:41.750] This is really a family.
+- [07:43.470] So, when I do good, you do good.
+- [07:46.590] When we do good, we do good together.
+- [07:48.850] And that's the way I want it.
+- [07:49.890] Incomes are soaring and in April
+- [07:51.810] we achieved the largest drop in consumer prices.
+- [07:55.450] The largest increase in consumer
+- [07:57.823] confidence, both of them in many, many years.
+- [08:00.970] In one case, we've never had such a drop.
+- [08:03.950] It's never been like this.
+- [08:05.150] We've never had this kind of success.
+- [08:07.830] I just hope it keeps going.
+- [08:09.070] You know, you do need a little luck too.
+- [08:10.970] You know that.
+- [08:12.270] And sometimes you need a little prayer.
+- [08:13.750] Maybe all the time.
+- [08:14.730] We need a little bit of a prayer.
+- [08:17.550] But we're going to keep it going.
+- [08:19.710] In a single month, we also cut
+- [08:22.205] the trade deficit in half by 50 percent.
+- [08:24.951] Do you believe that one?
+- [08:26.070] You don't hear that too much on the news.
+- [08:28.330] They don't like to tell you those things.
+- [08:30.390] In a matter of weeks, we slashed a number
+- [08:32.440] of illegal border crossings released into
+- [08:34.491] the United States down to practically nothing.
+- [08:37.890] Three people got in.
+- [08:39.530] Three.
+- [08:39.730] We had hundreds of thousands.
+- [08:42.730] And three people equates to 99.999 percent.
+- [08:49.310] How's that good?
+- [08:50.210] I couldn't reach 100 percent.
+- [08:52.110] I'm sorry.
+- [08:53.590] And of the three people, I have to tell
+- [08:55.599] you two of them were a medical emergency.
+- [08:57.711] Okay.
+- [08:58.690] So I'm going to say one person got in.
+- [09:02.090] That was a piece of work, I guess.
+- [09:03.850] I'd like to meet that guy.
+- [09:04.930] I'd like to meet the guy that got in.
+- [09:08.570] Peace time, enlistment numbers.
+- [09:10.310] This is something we're all really proud of.
+- [09:12.410] It's a big deal.
+- [09:13.630] Peace time enlistment numbers
+- [09:14.949] for every branch of our military.
+- [09:16.650] Every single branch are at the
+- [09:18.783] highest levels in modern history.
+- [09:21.380] And seven months ago.
+- [09:24.290] And seven months ago, we had the worst, the worst --
+- [09:28.770] Think of this.
+- [09:29.431] This is done in six or seven months.
+- [09:31.630] Seven months ago, we had the
+- [09:33.464] worst numbers in recorded history.
+- [09:36.210] Nobody wanted to join the Army, Air
+- [09:38.868] Force, Navy, Marines, Coast Guard.
+- [09:42.010] Nobody wanted -- or our police.
+- [09:43.690] Our police are likewise through the roof.
+- [09:46.650] Six, seven months ago, they couldn't fill a position.
+- [09:50.070] You couldn't fill it in the military.
+- [09:52.250] Now it's hot as a pistol.
+- [09:53.930] We have the best numbers.
+- [09:55.311] Think of that.
+- [09:56.290] The best numbers in a short
+- [09:57.982] period of time in modern history.
+- [10:00.110] And that's something I'm very proud of.
+- [10:04.060] And that's because the people of
+- [10:05.749] our country, your love our country,
+- [10:07.750] you were devastated to see what was happening.
+- [10:10.150] And now you're thrilled to see what's
+- [10:11.848] happening because we have a hot one and we love it.
+- [10:14.310] We've achieved more in four months than
+- [10:16.400] most administrations have achieved
+- [10:18.153] in four years or eight years.
+- [10:20.550] And none of this would have been possible without you.
+- [10:23.370] You're the ones that are really doing it.
+- [10:25.051] You're the ones that are making it happen.
+- [10:27.090] You really are.
+- [10:29.910] And someday, one of you, maybe two of you
+- [10:32.606] or three of you, will be standing right
+- [10:35.171] here saying very similar words.
+- [10:37.050] I hope your saying similar words.
+- [10:38.890] But that's a real possibility because
+- [10:41.278] there really is this greatness in this crowd.
+- [10:44.570] There's greatness.
+- [10:45.270] You might not even know that.
+- [10:46.450] But there's greatness in this crowd.
+- [10:48.730] The caliber of talent we've assembled is unparalleled.
+- [10:51.750] This is really the strongest,
+- [10:53.978] most talented team that we've had.
+- [10:56.650] And I think that this government has
+- [10:58.368] had in a long time and maybe ever.
+- [11:00.090] I really think this could be the best team.
+- [11:02.070] We worked hard on it and just --
+- [11:05.810] In just 135 days, we've hired over 3,200
+- [11:09.712] patriots to deliver on the mandate
+- [11:13.169] that we received in November.
+- [11:15.450] November 5th, we want to go down as one of
+- [11:18.162] the most important days in the history of
+- [11:20.811] our country that's election day.
+- [11:22.651] We're gonna make it the most important day.
+- [11:25.311] And as of tonight, we filled 91 percent
+- [11:27.860] of our political appointments.
+- [11:30.975] And I'll tell you, we have a waiting list.
+- [11:33.465] Likewise, we have a big waiting list
+- [11:34.939] of people that want to come over.
+- [11:36.490] Work here with you, work in the White House.
+- [11:38.680] Every single department, every single
+- [11:41.174] agency has a waiting list of people that
+- [11:43.871] want to come in and be with us.
+- [11:45.630] The Department of Veteran Affairs has
+- [11:48.493] achieved already 100 percent staffing
+- [11:51.017] all with people that we want.
+- [11:52.790] Really great people.
+- [11:55.470] The Department of Defense, Commerce and
+- [11:58.225] Treasury, is over 90 percent of the
+- [12:00.326] political hires they're complete.
+- [12:02.190] It's a record at this time, so early.
+- [12:05.210] And the Departments of Homeland Security,
+- [12:07.711] Health and Human Services, Labor are all
+- [12:10.091] over and up to about 95 percent already.
+- [12:16.150] I want to thank the great Chief of Staff,
+- [12:19.143] most powerful woman anywhere in the world, they say.
+- [12:23.230] She got the most powerful woman in the world.
+- [12:26.450] One phone call and a group of
+- [12:28.505] people, I better not say it.
+- [12:30.510] I was going to say, one phone call in the
+- [12:32.250] country is wiped out, but we're not going to say that.
+- [12:35.070] Because we're a peace-loving nation.
+- [12:37.610] We are a peace-loving nation.
+- [12:39.170] Susie Wiles, where are you, Susie?
+- [12:42.310] There she is.
+- [12:44.210] No, she's great.
+- [12:45.250] And Sergio, thank you for the great job that you did.
+- [12:48.510] I appreciate it, Sergio.
+- [12:51.630] Sergio Gor.
+- [12:53.770] They have done a really amazing job.
+- [12:55.910] Susie, I'll tell you what.
+- [12:58.430] She's the first woman Chief of
+- [12:59.803] Staff in the history of our country.
+- [13:01.650] And I'm surprised to hear that.
+- [13:05.000] And I watch those men and she watches over
+- [13:07.616] them, and if they get a little bit out of
+- [13:10.171] line, they may be big shots, defense.
+- [13:13.930] They may be at Commerce, they may be the biggest --
+- [13:17.447] they're scared of her,
+- [13:19.410] they're afraid.
+- [13:20.910] They don't want her to come in after them.
+- [13:23.330] But now she's been an incredible.
+- [13:24.830] First woman, Chief of Staff
+- [13:26.261] in the history of our country.
+- [13:27.970] Isn't that great?
+- [13:28.350] I'm surprised to hear that, actually.
+- [13:30.150] But that's the way it is.
+- [13:31.450] But most importantly, let me thank all of
+- [13:33.940] the appointees for your tireless efforts
+- [13:36.870] to deliver our promises and to put very
+- [13:39.291] simply, it's very simple words towards America first.
+- [13:42.630] It's all about putting America first.
+- [13:45.570] And by the way, we're going to help other
+- [13:47.220] countries, but first we have
+- [13:48.361] to straighten out our country.
+- [13:49.730] Don't you think so?
+- [13:51.770] And it's not going to take too long.
+- [13:53.290] A very special thanks as well to
+- [13:55.389] your spouses and children, families,
+- [13:57.751] and loved ones for the support that you've given us.
+- [14:01.440] And we're saving our country.
+- [14:02.791] This would have been a country --
+- [14:04.090] we were a country in shambles.
+- [14:06.320] And now we're a country that is just in
+- [14:08.780] love with itself and love with its people.
+- [14:12.130] And everybody's talking about it.
+- [14:13.791] And it's such an honor to be involved with you.
+- [14:17.030] And without you, it wouldn't be happening,
+- [14:19.280] because together we've begun the Golden Age of America.
+- [14:22.191] This is now the Golden Age of America.
+- [14:24.630] It's a beautiful term and a beautiful country.
+- [14:27.295] And we're going to make our nation safer
+- [14:30.005] and stronger and prouder, richer
+- [14:32.152] freer and greater than ever before.
+- [14:34.831] And I can give you my word.
+- [14:36.510] I'm going to work so hard.
+- [14:38.231] We're going to work harder
+- [14:39.909] than any President's ever worked.
+- [14:42.185] We have to, because we got off to a little rough start.
+- [14:44.150] They gave us a very bad hand.
+- [14:46.760] And we've taken that bad hand and we've
+- [14:49.183] turned it into the best hand you can get.
+- [14:51.970] And you're the reasons why.
+- [14:53.230] And I want to thank you.
+- [14:54.150] We love you all.
+- [14:54.771] Thank you very much, everybody.
+- [14:56.120] Have a good time.
+- [14:57.390] Don't eat too much.
+- [14:58.430] Thank you very much.
+- [15:00.470] Thank you.
+- [15:00.791] Thank you very much.
+- [15:02.410] Thank you.
+- [15:07.410] ♪ (God Bless America band music) ♪

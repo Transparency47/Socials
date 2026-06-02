@@ -1,0 +1,592 @@
+<!-- source: https://www.youtube.com/watch?v=uj5sWj6F9EE -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: uj5sWj6F9EE -->
+<!-- date_published: 2025-05-05T22:27:50+00:00 -->
+<!-- date_accessed: 2026-06-02T01:26:41.581872+00:00 -->
+
+# Transcript: President Trump Delivers a Sports Announcement
+
+- [00:20.100] The President: … and Washington DC mayor Muriel Bowser,
+- [00:22.710] secretary Scott Turner, secretary Doug Burgum,
+- [00:26.780] and I see Howard Lutnick is here too, commerce,
+- [00:29.810] and some others that if I could see past the press,
+- [00:32.970] I'd name you, but I can't.
+- [00:35.790] I'm pleased to reveal that the 2027 NFL draft,
+- [00:40.190] that's a big thing,
+- [00:41.870] will be held right here in our nation's capital,
+- [00:44.710] Washington DC, on the National Mall,
+- [00:48.970] and you get a little glimpse of it.
+- [00:59.060] I was just saying to Roger,
+- [01:00.260] I don't think there's ever been anything like that.
+- [01:02.460] That's a good idea.
+- [01:03.790] In fact, maybe we could use it for other things also.
+- [01:06.610] I have an idea. It's going to be beautiful.
+- [01:09.730] It's going to be something that nobody else
+- [01:12.490] will ever be able to duplicate that,
+- [01:14.060] I don't suspect. It's very exciting.
+- [01:15.880] Every year, hundreds of young football players
+- [01:18.090] have their dreams come true as the NFL teams across the land,
+- [01:21.940] and you just saw that last week,
+- [01:23.980] select the best young players in America to join their ranks.
+- [01:27.710] Hundreds of thousands of football fans
+- [01:29.930] will travel all across our country
+- [01:32.680] to cheer them on in person.
+- [01:34.270] We expect, would you say, more than 100,000 people.
+- [01:39.230] What is the capacity would you think it can hold?
+- [01:41.710] Because the Mall can actually hold up to 1 million people,
+- [01:45.240] if you go all the way back. What do you think?
+- [01:46.740] Male Speaker: Over three days, we'll be over 1 million.
+- [01:48.490] The President: Oh, yeah, you're going to be…
+- [01:50.480] Yeah. boosting local businesses and bringing jobs and tourism
+- [01:54.450] to the heart of our capital.
+- [01:56.670] The draft is a celebration of one of our country's
+- [01:59.400] most cherished cultural institutions,
+- [02:01.670] and the annual highlights for football fans everywhere.
+- [02:05.150] Everyone in the world is going to be watching.
+- [02:07.920] We look forward to welcoming people
+- [02:09.560] from across the nation, from all over the world.
+- [02:12.730] Last month, the Washington Commanders
+- [02:14.570] and the DC government also announced a major deal
+- [02:17.770] to build a brand-new 65,000-seat football arena
+- [02:22.040] at the site of the RFK Stadium in Eastern Capitol Hill.
+- [02:25.760] And I don't think there's a better site
+- [02:28.310] anywhere in the world than that site.
+- [02:29.980] Male Speaker: Incredibly exciting.
+- [02:31.190] The President: He's a friend of mine,
+- [02:32.400] he's a very successful guy. There's a reason for it.
+- [02:35.140] It's amazing, it sat there for years
+- [02:36.890] and people were talking about stadiums in 25 different sites.
+- [02:41.080] I said, "They're not talking about the best site.
+- [02:43.180] That's the best site there is."
+- [02:45.080] Bringing professional football back
+- [02:46.800] into the district from Maryland.
+- [02:49.340] And not only are these announcements great for the NFL,
+- [02:52.290] but they also advance the mission
+- [02:53.750] of making Washington DC safe and clean and beautiful.
+- [02:57.570] And we're working very closely with the mayor, as you know,
+- [03:01.370] and we've made a lot of improvements
+- [03:04.000] in the last few months,
+- [03:05.260] and it's getting to look really strong.
+- [03:07.620] Crime is way down,
+- [03:09.380] and there's a good relationship we have going with Muriel.
+- [03:12.830] So I want to thank you very much.
+- [03:14.120] Mayor Bowser: Thank you.
+- [03:15.320] The President: And would you like to say a few words?
+- [03:16.620] Mayor Bowser: Thank you, Mr. President.
+- [03:17.860] The President: The mayor, please.
+- [03:19.080] Mayor Bowser: Thank You. Thank you.
+- [03:22.010] Sorry. Well, greetings.
+- [03:25.400] I'm Muriel Bowser, I'm the mayor of the best city in the world
+- [03:28.990] and also the sports capital.
+- [03:31.590] And we are delighted to be here with the Washington Commanders,
+- [03:36.870] the NFL, and the president,
+- [03:38.890] to talk about this very exciting announcement for Washington DC.
+- [03:43.510] We believe in investing in sports
+- [03:46.040] because they have helped us transform neighborhoods,
+- [03:49.410] and the NFL bringing this event to the nation's capitol
+- [03:53.950] will help us fill hotel rooms, our restaurants.
+- [03:57.620] And Americans from all 50 states
+- [03:59.990] will come to their nation's capital
+- [04:02.290] and enjoy our beautiful city and museum.
+- [04:05.020] So we're just delighted to be here
+- [04:07.110] and we want to thank everybody
+- [04:08.890] for all the hard work to get here.
+- [04:10.600] The President: Thanks, Muriel.
+- [04:14.410] Mayor Bowser: Thank you.
+- [04:15.750] Male Speaker: Thank you. Well, Mr. President, thank you.
+- [04:18.080] We're honored to be here in the Oval Office,
+- [04:20.030] and to have you announce the 2027 NFL draft
+- [04:22.940] is a special treat. So thank you for your support.
+- [04:25.390] The President: Thank you very much.
+- [04:26.670] Male Speaker: Also, thank you for your support
+- [04:28.710] in the commander's new stadium.
+- [04:30.830] The President: Oh.
+- [04:32.090] Male Speaker: We agree it's going to be a great site,
+- [04:33.700] we think it's going to be great for our fans here.
+- [04:36.550] And it's great to come back home.
+- [04:39.310] And so we're very excited about that.
+- [04:41.610] Josh is leading the way on our behalf, and the mayor,
+- [04:43.960] so we thank both of them for that.
+- [04:47.170] Also I want to thank you, because in the first term
+- [04:49.610] you helped us get a Canadian trade deal, which we-
+- [04:51.510] The President: I did.
+- [04:52.780] Male Speaker: We want to make sure we note again,
+- [04:54.790] and make sure you know-
+- [04:55.990] The President: Canada does not like me too much.
+- [04:59.690] They gave a great American company
+- [05:02.330] a lot of money that you deserved, frankly.
+- [05:04.910] Male Speaker: Thank you.
+- [05:06.810] The draft has really become one of the great entertainment
+- [05:10.520] and sports events. Just a week ago in Green Bay,
+- [05:14.310] we had over 600,000 people attend.
+- [05:18.370] The year before in Detroit, we had close to 800,000.
+- [05:22.170] As the president remarked,
+- [05:23.880] we believe we'll be well over 1 million
+- [05:25.690] when we come here to DC in 2027.
+- [05:27.790] So we not only believe it's a great site,
+- [05:31.050] we believe it's consistent with what the president said,
+- [05:33.380] which is investing in our communities,
+- [05:35.160] investing specifically here in the nation's Capital.
+- [05:38.470] One that I grew up here in Washington DC.
+- [05:41.390] And it's particularly important.
+- [05:43.560] We think we can have a tremendous impact
+- [05:45.670] on this community,
+- [05:47.180] and it will not just be an event.
+- [05:48.780] It will be something that will show the world
+- [05:50.870] how far the nation's capital has come and where it's going.
+- [05:54.440] So we're very excited about that and we thank everybody here.
+- [05:59.380] We thank you for your support.
+- [06:00.780] We know it's going to be a great event.
+- [06:02.270] Mr. President, we thank you again.
+- [06:03.550] The President: Thank you very much.
+- [06:04.780] Male Speaker: You're welcome. The President: Yes, thank you.
+- [06:07.190] Thank you.
+- [06:08.440] Male Speaker: Mr. President, thank you very much.
+- [06:10.590] We wouldn't be here without you.
+- [06:11.800] Thank you for your leadership in terms of the stadium.
+- [06:16.430] And now what a great day for Washington.
+- [06:18.990] I mean to host the NFL draft in 2027 on the mall,
+- [06:24.540] I believe we'll get over 1 million people,
+- [06:26.410] and it's going to be an amazing day,
+- [06:28.300] and it'll showcase what Washington's all about,
+- [06:31.460] but it'll also showcase what our country's all about.
+- [06:34.690] Washington is the gateway city to our country,
+- [06:37.510] and it'll be an amazing day,
+- [06:40.450] and we can't wait to get started.
+- [06:41.780] And I couldn't have done it without my partners,
+- [06:43.390] Roger Goodell, thank you.
+- [06:44.650] Male Speaker: Thank you.
+- [06:45.900] Male Speaker: And Mayor Muriel Bowser.
+- [06:47.510] And we're ready to get to work,
+- [06:49.150] and I can't imagine RFK coming back.
+- [06:52.730] I grew up here.
+- [06:55.210] DC used to stop on Sundays and everyone would be inside,
+- [07:00.740] watching football, or everyone would be glued at the stadium.
+- [07:05.030] And so we want to bring that back.
+- [07:06.390] And football really is existential
+- [07:09.820] to the culture of America.
+- [07:11.620] We all love it, we all watch it, and it brings people together.
+- [07:15.760] And so what a great way
+- [07:17.240] to celebrate the United States of America,
+- [07:21.340] the NFL, and the Washington Commanders.
+- [07:23.640] And President Trump, we leave on your desk…
+- [07:25.270] The President: Thank you.
+- [07:26.490] Male Speaker: … a Trump jersey.
+- [07:27.970] You are the ultimate commander, so it is a commander's jersey.
+- [07:32.450] There's no bird on it. The President: I see.
+- [07:33.750] Male Speaker: But we appreciate you and thank you
+- [07:39.120] for everything you've done, and look forward to the future.
+- [07:43.170] The President: Thank you very much.
+- [07:44.580] Male Speaker: Thank you.
+- [07:47.540] The President: And I have to say
+- [07:48.790] that Josh had a very good draft a short while ago.
+- [07:51.750] You have a very good quarterback.
+- [07:53.030] Male Speaker: We do.
+- [07:54.250] The President: A great quarterback, I think.
+- [07:55.460] Male Speaker: [inaudible].
+- [07:56.660] The President: Great. Any questions please,
+- [07:58.820] about the stadium or any of it? Yeah, please.
+- [08:02.090] The Press: Yes, thank you President.
+- [08:03.350] The President: Yes. Thank you very much.
+- [08:04.570] The Press: Yes, thank you so much.
+- [08:06.320] About the draft, and I would like to…
+- [08:09.460] an event that it was already mentioned here, the World Cup.
+- [08:12.980] Although United States, the passion here is football,
+- [08:16.640] for the World Cup next year,
+- [08:18.550] how do you envision Mr. president
+- [08:20.640] this event here in the United States?
+- [08:22.160] The President: That'd be fantastic.
+- [08:23.400] I worked very hard to get the World's Cup.
+- [08:25.220] In fact, I think I have the trophy right here,
+- [08:28.290] right behind yeah.
+- [08:29.750] Don't have a picture taken with Roger
+- [08:31.070] in that trophy, by the way.
+- [08:32.340] The Press: [inaudible].
+- [08:33.540] The President: But no, they brought it in.
+- [08:35.060] Johnny, who's a good guy, but he brought that in.
+- [08:37.960] That's the actual trophy.
+- [08:39.730] It's interesting that you asked that.
+- [08:41.110] And it's made at Tiffany's, and they're leaving it here
+- [08:44.870] until just before the actual World Cup,
+- [08:46.860] then it goes to the champion.
+- [08:48.580] But that's very exciting, we have the Olympics,
+- [08:51.310] so we have both of them.
+- [08:52.640] I worked very hard in getting both, and I said,
+- [08:54.500] "You know, I'm not going to be able to be there as president,"
+- [08:57.630] and then a strange thing happened,
+- [08:59.790] and it turned out I became president not for the term
+- [09:03.530] that I was supposed to be, I became president…
+- [09:06.610] Well, we have the Olympics and the World Cup,
+- [09:08.380] and we have something that maybe surpasses everything,
+- [09:11.760] the 250th anniversary of our country.
+- [09:14.060] So that's going to be great.
+- [09:15.360] That's going to be a very big event.
+- [09:16.950] A yearlong event. So thank you for question.
+- [09:20.720] Very nice question. Yeah, please,
+- [09:22.460] The Press: Yes. So you've often said you want US
+- [09:25.970] to be bigger, better, and stronger.
+- [09:29.980] Currently Russia is the biggest country
+- [09:32.470] in the world by landmass,
+- [09:34.530] followed by Canada and then China.
+- [09:38.230] So when you say that you want to annex Canada,
+- [09:41.610] is it so that it would be the biggest country in the world?
+- [09:44.240] The President: No, I never even thought it that way,
+- [09:45.540] although I am a real estate developer at heart.
+- [09:50.480] I've never heard that question. Yeah, please go ahead.
+- [09:53.000] The Press: Mr. President.
+- [09:54.390] Will you have to hire more security and police
+- [09:57.230] in order to accommodate the million people
+- [09:59.460] coming in for the NFL draft?
+- [10:00.870] The President: I think that there'll be something,
+- [10:02.750] and I know Roger will work it out,
+- [10:04.480] and Josh and all of us will work it out.
+- [10:06.930] It's such an honor to have that.
+- [10:08.570] I think it'll be great for everybody.
+- [10:10.680] Great for our country. It'd be something very special.
+- [10:13.640] There's no scene like it, there's no sight like it.
+- [10:17.090] My whole life was based on sites, locations.
+- [10:20.010] And as soon as I looked at that rendering,
+- [10:22.540] it's going to be beautiful.
+- [10:24.320] It's going to really be beautiful.
+- [10:25.720] Interestingly, I didn't know exactly
+- [10:28.070] where it sat relative to the capitol,
+- [10:29.920] but the stadium, if you go back, is right behind the capitol.
+- [10:34.350] Miles behind, but nevertheless visually right behind it.
+- [10:37.370] So it's going to be an architect's dream,
+- [10:40.740] whoever the architect is chosen.
+- [10:43.130] And the owner. It's going to be something special.
+- [10:45.710] I think it's going to be great for the area.
+- [10:49.300] It will be top of the line. I know these people very well,
+- [10:52.370] and they only know about top of the line.
+- [10:54.440] And I would say that more will be put into the stadium
+- [10:58.010] than would be put into a identical stadium
+- [11:00.920] of a similar size.
+- [11:02.500] I think they're going to do a special.
+- [11:04.370] Because of the importance of the location,
+- [11:06.150] I have no doubt they'll do a special job.
+- [11:07.750] Yeah, please.
+- [11:09.030] The Press: Can you explain a little bit
+- [11:10.290] about how you would implement tariffs
+- [11:12.240] on the film industry, kind of how that would work?
+- [11:14.390] The President: Well, that's a different story,
+- [11:15.760] but our film industry has been decimated
+- [11:20.430] by other countries taking them out,
+- [11:22.400] and also by incompetence. Like in Los Angeles,
+- [11:24.790] the governor's a grossly incompetent man,
+- [11:26.740] he's just allowed it to be taken away from Hollywood.
+- [11:30.500] Hollywood doesn't do very much of that business.
+- [11:33.670] They have the nice sign and everything's good,
+- [11:35.530] but they don't do very much.
+- [11:37.370] A lot of it's been taken to other countries,
+- [11:39.550] and a big proportion.
+- [11:41.340] And I'm actually going to meet with some,
+- [11:42.850] because there's some advantages I guess,
+- [11:45.400] and I'm not looking to hurt the industry,
+- [11:47.000] I want to help the industry.
+- [11:49.220] But they're given financing by other countries,
+- [11:51.890] they've given a lot of things.
+- [11:53.740] And the industry was decimated.
+- [11:56.950] If you look at how little is done in this country now,
+- [11:59.510] you know, you think we were the ones.
+- [12:01.040] We used to do a hundred not long ago, 100%.
+- [12:04.510] Now we do almost like very little.
+- [12:07.960] It's shocking. Are you in that business too?
+- [12:09.580] The Press: [inaudible].
+- [12:10.780] The President: Because he's in so many businesses,
+- [12:13.220] you could explain it, but it's not a good situation.
+- [12:16.730] So we're going to meet with the industry.
+- [12:18.220] I want to make sure they're happy with it
+- [12:20.980] because we're all about jobs. It's very important.
+- [12:24.760] It's a big industry, but it's an industry now that's…
+- [12:28.690] It's really left, it's abandoned the USA where it started.
+- [12:32.940] The Press: Mister [inaudible].
+- [12:34.180] The President: And we'll get it back.
+- [12:35.630] Yeah, please.
+- [12:36.840] The Press: Thanks, Mr. President.
+- [12:38.150] First I just want to thank you for letting us in here.
+- [12:39.770] I'm with Zero Hedge and the last administration.
+- [12:41.160] The President: Oh, yeah.
+- [12:42.440] The Press: Banned us on social media,
+- [12:43.660] so we're really grateful to be in the White House.
+- [12:45.190] And this is not exactly sports-related,
+- [12:47.600] but I've been dying to ask you this question for a long time,
+- [12:50.580] which is that two and a half years ago,
+- [12:52.850] the Nord Stream pipeline blew up.
+- [12:55.620] And despite what people like John Brennan
+- [12:57.480] and all the Hawks said,
+- [12:58.690] you were one person who said Russia
+- [13:00.990] probably did not blow up its own pipeline.
+- [13:02.780] The President: We can believe, they said Russia blew it up.
+- [13:04.350] Yeah.
+- [13:05.670] The Press: So I'm wondering now that you're president,
+- [13:07.100] if you would consider launching a formal investigation
+- [13:09.410] into what happened there and who actually did blow it up?
+- [13:12.860] The President: Well, probably if I asked certain people,
+- [13:14.620] I'd be able to tell you
+- [13:15.840] without having to waste a lot of money on an investigation.
+- [13:19.220] But I think a lot of people know who blew it up.
+- [13:23.200] But I was the one that blew it up originally
+- [13:25.040] because I wouldn't let it be built.
+- [13:26.380] And then when Biden got in, he allowed it to be built.
+- [13:29.450] And it's very interesting.
+- [13:31.680] But I think Russia, with the price of oil right now,
+- [13:35.660] oil's gone down, I think we're in a good position to settle.
+- [13:39.380] They want to settle, Ukraine wants to settle.
+- [13:43.410] If I weren't president, nobody would be settling.
+- [13:45.470] They're losing 5,000 people a day.
+- [13:47.430] Think of it. Here we talk about football.
+- [13:49.590] They're losing 5,000 people on average a week.
+- [13:52.920] Mostly Russian soldiers and Ukrainian soldiers.
+- [13:56.700] 5,000 a week.
+- [13:58.530] Not including people that are killed
+- [14:01.490] as missiles go into areas that they shouldn't be.
+- [14:05.170] It's a very terrible thing,
+- [14:06.400] and I think we've come a long way,
+- [14:08.470] and it could be something will happen, but hopefully it will.
+- [14:12.370] As you know, President Putin just announced
+- [14:14.130] a three-day ceasefire, which doesn't sound like much,
+- [14:18.110] but it's a lot, if you knew where we started from,
+- [14:20.690] because they were not…
+- [14:22.010] We had a president that for three years
+- [14:24.260] didn't speak to Putin.
+- [14:26.290] And it all shouldn't have happened.
+- [14:29.080] This is a war that should have never happened.
+- [14:31.720] And you're going to be very disappointed
+- [14:33.200] when you find out the real number of people
+- [14:35.130] that were killed.
+- [14:36.330] It's far greater, many times greater, I believe,
+- [14:39.820] but far greater than the numbers that you're putting out.
+- [14:43.890] It's a very, very, deadly, horrible war.
+- [14:46.250] Okay. Yes ma'am.
+- [14:47.590] The Press: Thank you, Mr. president.
+- [14:48.830] Some Catholics were not so happy
+- [14:50.710] about the image of you looking like the Pope.
+- [14:53.590] The President: Oh, I see. You mean they can't take a joke?
+- [14:56.690] You don't mean the Catholics, you mean the fake news media.
+- [14:59.450] The Catholics loved it.
+- [15:00.690] The Press: Colonel Dolan [inaudible].
+- [15:01.900] The President: I had nothing to do with it.
+- [15:03.140] Somebody made up a picture of me dressed like the Pope,
+- [15:05.800] and they put it out on the internet.
+- [15:07.590] That's not me that did it.
+- [15:08.930] I have no idea where it came from.
+- [15:10.880] Maybe it was AI, but I know nothing about it.
+- [15:14.550] I just saw it last evening.
+- [15:17.890] Actually, my wife thought it was cute.
+- [15:19.600] She said, "Isn't that nice?"
+- [15:20.810] The Press: My question about it-
+- [15:22.050] The President: Actually, I would not be able
+- [15:23.760] to be married though.
+- [15:25.440] That would be a lot. To the best of my knowledge,
+- [15:29.020] Popes aren't big on getting married, are they?
+- [15:31.100] The Press: No, no.
+- [15:32.310] The President: Not that we know of, no.
+- [15:33.740] No. I think it's the fake news media that… They're fakers.
+- [15:37.760] The Press: My question though, sir,
+- [15:39.110] was about the fact that it was put out
+- [15:40.770] on the White House account,
+- [15:42.000] even though it was AI-generated, it was a joke, it was a meme,
+- [15:45.690] does it at all diminish the substance of the official
+- [15:49.230] White House account to have it go out on that channel?
+- [15:51.320] The President: Oh, give me a break.
+- [15:54.810] Somebody did it in fun. It's fine.
+- [15:57.130] Have to have a little fun, don't you?
+- [15:58.510] The Press: Mister [inaudible].
+- [15:59.740] The President: Yeah, please go ahead.
+- [16:00.970] The Press: Tell me about the program
+- [16:02.300] that's just been introduced to give undocumented immigrants
+- [16:04.600] living in the United States…
+- [16:05.800] The President: How about me?
+- [16:07.020] The Press: … $1,000 to self-deport.
+- [16:08.680] Can you just tell us a little bit?
+- [16:10.030] The President: Oh, the new program.
+- [16:11.320] The Press: The new program.
+- [16:12.610] The President: Yeah. We have millions of people
+- [16:14.350] that have come into this country illegally,
+- [16:16.460] through an administration that didn't know
+- [16:18.130] what they were doing, they didn't have a clue.
+- [16:20.090] And now we find out officially they didn't,
+- [16:21.820] because the president was incompetent.
+- [16:23.430] But I could have told you that before.
+- [16:25.640] And they've allowed millions and millions of people
+- [16:27.670] to pour in murderers,
+- [16:29.700] drug dealers, the biggest drug dealers in the world actually.
+- [16:33.750] Terrorists come in, emptied prisons from many countries,
+- [16:38.280] not just South America, all over the world.
+- [16:40.140] They emptied their prisons into our beautiful USA.
+- [16:44.540] And to get that many people, 21 million people,
+- [16:48.150] we think the real number is,
+- [16:49.490] but let's say 3 million of them are serious criminals.
+- [16:53.340] 11,888 murders, many of whom murdered more than one person.
+- [16:59.760] It's hard to believe we have to even talk about this
+- [17:01.680] while we're talking about something so beautiful,
+- [17:03.430] but it's something we have to talk about
+- [17:06.050] having to do with the country, because it's very important.
+- [17:08.790] So they came in by the millions, illegally into our country.
+- [17:12.790] They just float in through an open border policy
+- [17:15.430] that was insane.
+- [17:17.230] And what we've done is we've offered the numbers,
+- [17:19.700] but because we're taking them out by the thousands,
+- [17:23.020] we're being obstructed,
+- [17:24.940] it's very unfair what's happening
+- [17:26.360] because the court system is being…
+- [17:28.310] It's very unfair. We have to get them out fast.
+- [17:30.870] These are bad people, these are people that are killing,
+- [17:33.140] and they've already killed many people in this country.
+- [17:36.770] Illegal immigrants that came in illegally
+- [17:38.980] through an open border policy, which is insane.
+- [17:42.100] We talk about common sense. That's not common sense.
+- [17:44.690] And they came in from the Congo, all over Africa, all over Asia,
+- [17:49.210] all over South America, parts of Europe.
+- [17:51.730] They float in and just walked right into our country,
+- [17:54.140] we had no idea who they were.
+- [17:56.190] 21 million at least. That's probably a low number.
+- [17:58.930] You hear lower numbers than that?
+- [18:01.340] That's a low number.
+- [18:03.040] But many are really serious criminals and terrorists,
+- [18:06.060] and people from jails. They emptied out jails.
+- [18:08.300] You know, Venezuela, their crime is down 72%
+- [18:11.650] because they took all the criminals off the streets
+- [18:13.730] and the gangs,
+- [18:14.970] and they dumped them into our country.
+- [18:17.450] So we are getting them out.
+- [18:18.790] It's a very difficult thing with the courts
+- [18:20.580] because the courts have all of a sudden,
+- [18:23.080] out of nowhere, they said, "Maybe you have to have trials."
+- [18:27.400] Trials. We're going to have 5 million trials?
+- [18:31.350] Doesn't work. Doesn't work.
+- [18:32.830] You wouldn't have a country left.
+- [18:34.770] But hopefully the Supreme Court will save it.
+- [18:37.480] But what they've done is a very, very serious thing.
+- [18:40.270] Past presidents took out
+- [18:42.260] hundreds of thousands of people when needed.
+- [18:44.750] You look at Eisenhower, you look at many of them,
+- [18:46.940] and they took people out
+- [18:48.430] and they didn't go through any of this.
+- [18:50.890] But what we thought we'd do is a self-deport,
+- [18:53.550] where we're going to pay each one a certain amount of money
+- [18:57.770] and we're going to get them a beautiful flight back
+- [18:59.670] to where they came from. And they have a period of time.
+- [19:03.470] And if they make it, we're going to work with them
+- [19:05.500] so that maybe someday with a little work,
+- [19:08.370] they can come back in if they're good people,
+- [19:10.240] if they're the kind of people that we want in our company,
+- [19:12.430] industrious people that could love our country.
+- [19:16.210] And if they're not, they won't.
+- [19:17.470] But it will give them a path to coming back into the country.
+- [19:22.740] If they miss that limit,
+- [19:24.650] they're going to be taken out of our country,
+- [19:27.380] and they will never get a path to come back in.
+- [19:32.660] And it'll be a much tougher process.
+- [19:35.180] And it's called self-deportation.
+- [19:37.640] And by doing that, you're talking about so many
+- [19:40.470] millions of people, by doing that.
+- [19:43.150] By the way, we've taken out thousands of terrorists,
+- [19:49.320] drug lords. What we've done is amazing.
+- [19:52.710] Tom Homan and Kristi Noem have done an incredible job.
+- [19:56.320] They really have done an incredible job,
+- [19:58.120] but it's a hard job.
+- [20:00.630] So we're going to have a self-deportation
+- [20:02.590] where they deport themselves out of our country.
+- [20:07.930] And we'll work with them, and we're going to try,
+- [20:10.070] and if we think they're good,
+- [20:12.220] if they're people we want in our country,
+- [20:14.820] they're going to come back into our country,
+- [20:16.510] we'll give them a little easier route.
+- [20:18.880] But if they don't work and if we take them out after the date,
+- [20:22.690] then they're never coming back,
+- [20:24.730] and that's the least of the problems they're going to have.
+- [20:26.940] Yeah, please.
+- [20:28.140] The Press: What's your expectation for your meeting
+- [20:29.710] with the Canadian Prime Minister tomorrow?
+- [20:31.500] The President: I don't know. He's coming to see me.
+- [20:33.010] I'm not sure what he wants to see me about,
+- [20:34.910] but I guess he wants to make a deal.
+- [20:36.610] Everybody does. They all want to make a deal
+- [20:39.050] because we have something that they all want.
+- [20:42.250] We have something that they all want.
+- [20:43.920] China wants to make a deal very badly.
+- [20:45.690] You see what's happening to China.
+- [20:47.050] China's being decimated, and I don't want that to happen,
+- [20:50.910] but they have to make a fair deal.
+- [20:52.170] We were losing hundreds of billions of dollars a year.
+- [20:56.090] Think of it, on our trade policies with Biden,
+- [20:59.680] we're losing $5 billion a day.
+- [21:02.480] I think Josh as a great businessman,
+- [21:04.190] would not let that happen too long, right?
+- [21:06.470] How many groups could lose 5 billion a day?
+- [21:08.480] The Press: [inaudible] do that.
+- [21:09.760] The President: If you lose 5 billion one day,
+- [21:11.160] that's the end of that company, right?
+- [21:13.340] You're fired. He says, "You're fired, get out of here."
+- [21:15.600] So we essentially did that,
+- [21:18.300] and we have it down to a very low number.
+- [21:20.240] We're doing really well. Really well. Yeah.
+- [21:23.670] The Press: How did you decide to reopen Alcatraz?
+- [21:26.350] Can you walk us through that decision?
+- [21:27.920] The President: Did I say, what?
+- [21:29.120] The Press: To reopen Alcatraz. How will you use it?
+- [21:31.010] How did you come up with the idea?
+- [21:32.340] The President: Well, I guess
+- [21:33.560] I was supposed to be a movie maker.
+- [21:35.610] We started with the movie making will end.
+- [21:38.340] I mean, it represents something very strong,
+- [21:41.670] very powerful in terms of law and order.
+- [21:44.090] Our country needs Law and Order.
+- [21:46.190] Alcatraz is, I would say the ultimate, right?
+- [21:49.570] Alcatraz. Sing Sing and Alcatraz, the movies.
+- [21:53.410] But it's right now a museum, believe it or not.
+- [21:56.770] A lot of people go there.
+- [21:58.610] It has the most violent criminals in the world,
+- [22:03.110] and nobody ever escaped.
+- [22:04.590] One person almost got there, but as you know the story,
+- [22:08.880] they found his clothing rather badly ripped up.
+- [22:12.180] And it was a lot of shark bites, a lot of problems.
+- [22:16.470] Nobody's ever escaped from Alcatraz,
+- [22:18.380] and just represented something strong
+- [22:21.790] having to do with law and order.
+- [22:23.000] We need law and order in this country.
+- [22:25.340] And so we're going to look at it.
+- [22:27.680] Some of the people up here
+- [22:28.910] are going to be working very hard on that.
+- [22:31.100] And we had a little conversation,
+- [22:33.550] I think it's going to be very interesting.
+- [22:35.240] We'll see if we can bring it back in large form, add a lot.
+- [22:40.340] But I think it represents something.
+- [22:42.150] Right now it's a big hulk that's sitting there,
+- [22:44.840] rusting and rotting. You look at it, it's sort of a…
+- [22:50.850] You saw that picture that was put out, it's sort of amazing.
+- [22:54.320] But it sort of represents something that's both horrible,
+- [22:58.270] and beautiful, and strong, and miserable, weak.
+- [23:04.140] It's got a lot of qualities that are interesting.
+- [23:06.270] And I think they make a point.
+- [23:08.280] Okay. Are you guys okay?
+- [23:10.130] I want to just say that it's such an honor
+- [23:13.610] to be up here with my friends,
+- [23:15.880] because this is a group of people
+- [23:18.440] that have done an amazing job. And all we can do, Muriel and I,
+- [23:22.330] is give them the greatest site there is,
+- [23:24.350] I think, that I've ever seen for something like this.
+- [23:26.820] And I did very well in the real estate business.
+- [23:29.490] I think this is the greatest site
+- [23:30.730] there is anywhere in the world
+- [23:32.200] for exactly what you guys are doing.
+- [23:34.410] And we'll work with you, we've got a lot of work to do
+- [23:36.750] to get it going, but we'll work with you
+- [23:38.840] and we'll try and make the dream come true.
+- [23:41.050] And I want to thank you all very much for being here.
+- [23:43.160] Thank you. Thank you very much.
+- [23:44.900] The Press: Mr. President. Mr. President, on Israel.
+- [23:47.340] On Israel, do you think [inaudible 00:23:30]
+- [23:51.490] Israel, do you think you could
+- [23:53.630] [inaudible] Gaza?
+- [23:54.880] The President: We're going to help the people of Gaza
+- [23:56.570] get some food. People are starving
+- [23:58.480] and we're going to help them get some food.
+- [24:01.680] A lot of people are making it very, very bad.
+- [24:04.650] If you look, Hamas is making it impossible,
+- [24:06.810] because they're taking everything that's brought in.
+- [24:09.210] But we're going to help the people of Gaza,
+- [24:12.360] because they're being treated very badly by Hamas.
+- [24:15.480] Thank you very much, everybody.

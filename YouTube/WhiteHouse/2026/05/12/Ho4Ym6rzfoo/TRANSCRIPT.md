@@ -1,0 +1,304 @@
+<!-- source: https://www.youtube.com/watch?v=Ho4Ym6rzfoo -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: Ho4Ym6rzfoo -->
+<!-- date_published: 2026-05-12T19:45:35+00:00 -->
+<!-- date_accessed: 2026-06-02T00:59:53.081040+00:00 -->
+
+# Transcript: The Story of America: Benjamin Franklin
+
+- [00:01.190] (mix of famous American history quotes)
+- [00:42.190] Kevin Slack: There's something about Benjamin Franklin
+- [00:44.388] that embodies the soul of America.
+- [00:47.110] He's a window into the American mind.
+- [00:50.150] It's not a stretch to call him a law giver.
+- [00:52.570] In the ancient sense, one who helps to
+- [00:54.753] shape the character of a people in their habits.
+- [00:58.710] He preached a model of the self-made individual.
+- [01:02.030] And he lived that story himself.
+- [01:04.010] His life from his body.
+- [01:04.911] His birth in 1706, to his death in 1790,
+- [01:07.872] spanned the formation of the
+- [01:09.969] American nation as we know it.
+- [01:13.610] His self-described rags to riches
+- [01:15.703] story begins in Puritan Boston.
+- [01:18.290] At the age of 12, he's indentured as
+- [01:20.509] a servant to his brother James, who's
+- [01:22.791] printer the New England current.
+- [01:24.630] A radical paper for the time.
+- [01:26.730] He anonymously penned the silence do good essays.
+- [01:30.170] He would slip them under the door of the print shop.
+- [01:33.350] And those essays demonstrated his genius
+- [01:36.007] and keen insight into different character types.
+- [01:40.890] He was impious and funny.
+- [01:43.170] In one letter, silence describes losing
+- [01:45.443] her father, who comes above deck to praise
+- [01:47.891] God for his safe travel across the Atlantic Ocean.
+- [01:51.350] And he suddenly washed overboard by a huge wave.
+- [01:54.750] Franklin was stubborn and even a troublemaker.
+- [01:58.990] He liked to argue to embarrass others in disputes.
+- [02:02.091] And especially over religion and politics.
+- [02:04.810] And he mocked the Puritan establishment.
+- [02:08.010] But Ben's genius cost him both with the
+- [02:10.730] authorities and his brother, who placed
+- [02:13.451] Ben in charge of the paper when
+- [02:15.161] he was jailed for his politics.
+- [02:18.130] James was abusive and often beat his younger brother.
+- [02:22.510] And Franklin ran away, breaking the terms.
+- [02:25.450] As he puts it in the autobiography, he
+- [02:27.750] found himself in New York, nearly 300
+- [02:29.991] miles from home, a boy of 17.
+- [02:32.071] But without the least recommendation or
+- [02:34.708] knowledge of any person in the place.
+- [02:37.730] And with very little money in his pocket.
+- [02:40.670] And so hungry and exhausted, he traveled to Philadelphia.
+- [02:44.930] And there he buys three bread rolls.
+- [02:47.950] And he cuts an iconic figure.
+- [02:49.770] He's walking down Market Street,
+- [02:51.869] eating one of those bread rolls with
+- [02:54.231] another tucked under each arm.
+- [02:56.870] As an 18-year-old, he embarked on a trip
+- [02:59.450] to London to acquire printing materials.
+- [03:02.530] But he found himself betrayed
+- [03:04.392] without credit and stranded.
+- [03:06.910] And while he learned much in London,
+- [03:08.805] Franklin was unsettled with the elements of his life.
+- [03:11.690] He records them as erata in his autobiography.
+- [03:15.835] He asked how he could be truly happy and
+- [03:18.539] achieve the greatest perfection possible.
+- [03:22.540] At the age of 20, he wrote a plan of
+- [03:24.897] conduct on his voyage home
+- [03:26.563] to guide his future behavior.
+- [03:29.230] With the goal of becoming, as
+- [03:30.620] he says, both good and great.
+- [03:32.310] both happy and esteemed in society
+- [03:35.570] calls it the favor of God and man.
+- [03:40.470] Ambition he concluded must be educated by
+- [03:43.649] a steady resolution to both industry and frugality.
+- [03:47.730] It required a material basis.
+- [03:50.430] And so rather than war against human
+- [03:52.627] nature, Franklin sought to
+- [03:54.224] cultivate it as one would of garden.
+- [03:56.790] And he gives the same example for
+- [03:59.277] Philadelphia, which he compares to a garden.
+- [04:03.930] After acquiring the Pennsylvania Gazette,
+- [04:06.239] one of only two papers in the city,
+- [04:09.030] he launched the successful Poor Richard's Almanac.
+- [04:12.670] He included famous sayings to educate
+- [04:14.818] his readers, such as, early to bed,
+- [04:17.050] early to rise, makes a man healthy, wealthy, and wise.
+- [04:20.910] To succeed in this new world,
+- [04:22.365] different virtues would be needed.
+- [04:24.750] And Franklin constructed a list of
+- [04:27.085] ancient, Christian and commercial virtues.
+- [04:30.230] He combined them.
+- [04:31.590] And then he also added a method to achieve them.
+- [04:35.010] But importantly, he couldn't do it all along.
+- [04:37.910] Humans, he wrote, were social creatures,
+- [04:40.617] both naturally selfish as well as benevolent.
+- [04:43.970] And the self-interested desires for profit
+- [04:47.209] and praise could be channeled into public
+- [04:50.371] projects that benefited everyone.
+- [04:53.470] He helped to found the Junto, a group
+- [04:55.974] of young citizens who met to discuss
+- [04:58.411] philosophy, morals, and public improvement.
+- [05:01.670] They would present papers before
+- [05:03.067] everyone, at their meetings.
+- [05:04.890] Thus, Franklin embodies another American
+- [05:07.740] ideal of civic associations, which forms
+- [05:10.591] the foundation of self-government
+- [05:12.582] and Republican habits.
+- [05:14.590] He helped to initiate a vibrant civil
+- [05:17.518] society, a subscription library,
+- [05:20.270] a fire brigade, a fire insurance company,
+- [05:22.904] the Academy, a hospital, and a militia.
+- [05:27.130] He also embodies the American love affair
+- [05:29.590] with science, when he achieved
+- [05:31.289] leisure, and retired early.
+- [05:34.030] Franklin turns the study of the natural
+- [05:35.889] world, including what he called electrical
+- [05:37.891] fluid, famous kite experiment with lightning.
+- [05:42.110] His experiments introduced terms like
+- [05:44.406] battery and positive and negative
+- [05:46.468] charges that we use today.
+- [05:48.770] But Franklin always insisted that
+- [05:50.696] questions of truth be connected with the human good.
+- [05:54.750] For example, knowledge of airflow to
+- [05:57.097] create a superior stove, the
+- [05:59.000] Franklin stove, for heating homes.
+- [06:01.780] Knowledge of electricity to create
+- [06:04.003] lightning rods to prevent fires and death.
+- [06:08.150] Knowledge of the Gulf Stream to
+- [06:09.945] expedite travel across the Atlantic.
+- [06:13.670] His ideas about government included
+- [06:15.685] all the elements of the future American Republic.
+- [06:19.190] John Adams said that after reading
+- [06:21.654] Franklin's 1751 observations on the
+- [06:24.191] increase of mankind, he knew that
+- [06:26.134] separation from Britain was inevitable.
+- [06:29.470] James Madison said that Franklin's 1754
+- [06:32.420] letters to William Shirley comprise the
+- [06:35.371] quote germ of American federalism.
+- [06:38.750] Franklin is including essays describing
+- [06:41.189] the separation of powers, the law-making
+- [06:43.691] authority, delegation doctrine.
+- [06:46.970] In 1747 during King George's war,
+- [06:49.313] Franklin was in his 40s at the time.
+- [06:52.390] He applied his views of social
+- [06:53.956] contract to found the association.
+- [06:56.490] It was an extra legal militia to defend
+- [06:58.978] Pennsylvania from French pirate
+- [07:00.966] and hostile Indian tribes.
+- [07:03.670] Franklin was a soldier.
+- [07:04.770] We often don't think of him that way.
+- [07:07.850] In 1751, Franklin was elected to the assembly.
+- [07:12.390] He sat on all of its standing committees.
+- [07:14.830] He drafted bills and responses to the
+- [07:16.936] governor during the tumultuous French and Indian war.
+- [07:20.770] It recognized for his genius he became the
+- [07:23.270] leader of the popular party that disputed
+- [07:25.711] with the Pennsylvania proprietors
+- [07:27.493] over the right to the legislature.
+- [07:31.080] He insisted on equality that the laws
+- [07:33.632] must be for the good of the whole as the
+- [07:36.391] foundation for justice was the good of the
+- [07:39.291] whole as opposed to the interest of a few.
+- [07:42.870] Under a new militia bill, Franklin
+- [07:44.636] was elected to colonel by the soldiers
+- [07:46.611] themselves and he led an expedition
+- [07:49.050] to build forts on the frontier.
+- [07:52.750] In 1757, Franklin was sent by the assembly to England.
+- [07:57.520] There he's involved in the attempt to
+- [07:59.785] repeal the proprietary charter and to
+- [08:02.051] replace it with the royal charter.
+- [08:05.310] He thought he was entering the last act of
+- [08:08.363] his life in 1756 and he had reason to be ambitious.
+- [08:13.970] He had been made the deputy postmaster
+- [08:16.220] general of British North America and he
+- [08:18.531] aspired to be governor over New Colony in Ohio.
+- [08:21.810] But his mission to make Pennsylvania
+- [08:23.804] royal colony faded and relieved to growing
+- [08:26.131] quarrels over taxation with parliament.
+- [08:29.050] And Franklin wrote volumes of articles to
+- [08:31.692] defend the colonial rights to consent to tax measures.
+- [08:35.550] And so from 1768 to 1770, he was appointed
+- [08:39.000] agent for Georgia, New Jersey and Massachusetts.
+- [08:44.410] He would always be an outsider in
+- [08:46.560] the British aristocratic society.
+- [08:49.090] And it all came to a head in 1773.
+- [08:53.310] Having secretly obtained letters
+- [08:55.496] from Governor Thomas Hutchison of
+- [08:57.751] Massachusetts, he wanted to blame
+- [09:00.381] the imperial disputes on Hutchison.
+- [09:03.870] Franklin sent them to leaders
+- [09:05.354] in the Massachusetts assembly.
+- [09:07.530] But when the letters created a scandal,
+- [09:09.708] he had to admit that he had sent them.
+- [09:12.290] And so in the cockpit, where Henry VIII
+- [09:15.615] had watched cock fights, Franklin was
+- [09:18.771] mocked for a solid hour by a solicitor
+- [09:21.323] general Alexander Wedderburn.
+- [09:24.270] Very witty and he did this in
+- [09:25.927] front of all of the British lords.
+- [09:29.090] And so Franklin stood there,
+- [09:31.111] stone-faced, silent, refusing to respond.
+- [09:34.610] And so Franklin's career in Britain was over.
+- [09:38.110] He lost his position as postmaster and
+- [09:41.037] he returned to Pennsylvania in 1775.
+- [09:44.890] But he displayed another American characteristic.
+- [09:48.750] He reinvented himself.
+- [09:52.170] Removing himself from public business for
+- [09:54.472] about a month, he met with those
+- [09:56.297] with whom he had been closest.
+- [09:59.610] Joseph Galloway and the Pennsylvania assembly.
+- [10:03.810] And his own son William, who was governor of New Jersey.
+- [10:07.270] And the three stayed up late drinking and
+- [10:09.640] Franklin then openly announced he was for independence.
+- [10:13.490] Neither agreed and it would be
+- [10:14.924] the end of the relationships.
+- [10:16.930] As a Tory, William encouraged acts of
+- [10:19.340] terror against Patriot towns and Benjamin
+- [10:22.011] refused to intervene to release
+- [10:23.839] him from prison his own son.
+- [10:25.910] Now Franklin took every opportunity he
+- [10:27.764] could defer the break between the two nations.
+- [10:31.110] He reorganized the postal system,
+- [10:32.855] this is all the age of 70.
+- [10:34.930] And served on committees that oversaw
+- [10:36.953] petitions to the king, the manufacturer of
+- [10:39.251] salt, Peter for gunpowder, the printing
+- [10:41.757] of paper currency, colonial arms and
+- [10:44.071] defenses, Indian affairs, foreign affairs.
+- [10:47.610] Franklin drafted the articles of confederation.
+- [10:50.330] He was also re-elected to the Pennsylvania assembly.
+- [10:53.330] He was president of its constitutional
+- [10:55.678] convention, probably the most radical of
+- [10:58.151] all the new state constitutions, the
+- [11:00.518] 1776 Constitution that had unicameral legislation.
+- [11:04.510] His eyes were so tired he could hardly write at night.
+- [11:08.090] And eventually he resigned from
+- [11:09.383] several of those committees.
+- [11:10.910] But in February 1776, he traveled on a
+- [11:14.094] failed frozen mission to entice
+- [11:16.870] Canada to revolt with the colonies.
+- [11:18.740] He assumed he would die on the journey.
+- [11:22.770] It was Franklin's international reputation
+- [11:25.341] as a natural philosopher that proved most
+- [11:27.851] useful for American diplomacy.
+- [11:30.710] He gained access to beating men in
+- [11:32.824] foreign nations, Spain, Holland, France,
+- [11:35.630] to secretly fund the war.
+- [11:37.570] In June 1776, his French friend Jacques
+- [11:40.584] Barbot de Berg secured a shipment of arms.
+- [11:44.370] The United States was caught
+- [11:45.723] between a rock and a hard place.
+- [11:47.695] It must declare independence to receive
+- [11:49.914] aid from France, but it must
+- [11:51.566] receive aid to declare independence.
+- [11:54.490] And Franklin was on the committee that
+- [11:56.117] drafted the Declaration of Independence.
+- [11:59.070] Franklin made some key changes to Jefferson's draft.
+- [12:02.730] He changed the words sacred and inviolable.
+- [12:05.910] We hold these truths to be
+- [12:07.669] self-evident, Franklin added.
+- [12:10.470] He changed Jefferson's words, reduced them
+- [12:13.353] to arbitrary power to reduce
+- [12:15.328] them under absolute despotism.
+- [12:18.030] And in his final key role, he
+- [12:19.741] accepted the mission to France.
+- [12:26.310] Franklin returned home in 1785.
+- [12:28.630] His last years were in public service,
+- [12:30.899] as much as he wanted to retire.
+- [12:34.010] He was elected to three consecutive terms
+- [12:36.875] as governor and was a delegate to
+- [12:39.274] the 1787 constitutional convention.
+- [12:43.030] He endorsed the new constitution, not
+- [12:45.760] as a perfect document, but perhaps as
+- [12:48.491] the best that the founders were able.
+- [12:50.945] And finally, he made a motion, which
+- [12:52.775] was not passed, for the clergy,
+- [12:54.610] the clergy of the city of Philadelphia
+- [12:56.640] to lead the remaining sessions in prayer.
+- [12:59.490] Less the founders become, he
+- [13:00.821] says, like the builders of Babel.
+- [13:03.330] He said that during the revolution,
+- [13:04.852] the same men had prayed for unity,
+- [13:06.950] but now they mistakenly thought they
+- [13:08.741] could found a nation without divine aid.
+- [13:11.370] And it was a comment on the necessity
+- [13:13.940] of a pre-political faith and loyalty,
+- [13:17.190] a common belief that binds a people
+- [13:19.117] together and transcends their partisan interests.
+- [13:23.550] Finally, Franklin agreed to be President
+- [13:25.664] of the Pennsylvania Society
+- [13:27.077] promoting the abolition of slavery.
+- [13:29.310] Its 1790 petition brought heated debate in Congress.
+- [13:33.350] For a man who would own slaves and
+- [13:35.675] servants, it was a fitting end to a life
+- [13:38.411] that embodied Republican ideals of
+- [13:40.249] equality, liberty, and self-reliance.
+- [13:44.670] Franklin was a true genius, a self-made
+- [13:47.852] man, a fervent Republican, and a man
+- [13:50.791] instrumental to the founding of the nation
+- [13:53.290] he so dearly loved.
+- [14:08.290] ♪ (soft orchestral music) ♪

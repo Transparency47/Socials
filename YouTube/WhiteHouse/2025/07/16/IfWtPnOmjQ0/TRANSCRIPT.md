@@ -1,0 +1,515 @@
+<!-- source: https://www.youtube.com/watch?v=IfWtPnOmjQ0 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: IfWtPnOmjQ0 -->
+<!-- date_published: 2025-07-16T19:45:28+00:00 -->
+<!-- date_accessed: 2026-06-02T02:46:57.992087+00:00 -->
+
+# Transcript: President Trump Participates in a Bill Signing Ceremony, July 16, 2025
+
+- [00:04.220] Announcer: Ladies and gentlemen,
+- [00:05.420] the President of the United States.
+- [00:08.900] ♪ (Hail to the Chief) ♪
+- [00:38.250] The President: Well, thank you very much.
+- [00:39.270] Please. It's an honor to be with you.
+- [00:43.010] We're making a lot of progress in our country, generally, too.
+- [00:48.780] But this is a very special time because we've worked very hard
+- [00:52.170] to put ourselves in this position today.
+- [00:55.320] We strike a righteous blow to the drug dealers,
+- [01:00.830] narcotic traffickers,
+- [01:02.230] and criminal cartels that we've all been hearing so much
+- [01:05.360] about for so many years and very little has been done.
+- [01:09.850] And we take a historic step toward justice
+- [01:12.310] for every family touched by the fentanyl scourge
+- [01:16.780] as we sign the HALT Fentanyl Act into law.
+- [01:21.350] Good job, good job. Good job, good job.
+- [01:38.490] Thank you very much.
+- [01:40.200] With this bill, we are officially
+- [01:42.040] and permanently classifying all fentanyl-
+- [01:44.500] related substances as Schedule 1 narcotics
+- [01:48.920] which is actually a very big deal.
+- [01:51.070] It doesn't sound like much,
+- [01:52.570] it's a big deal as they will tell you.
+- [01:55.300] Meaning anyone caught trafficking
+- [01:56.890] these illicit poisons will be punished with a mandatory
+- [02:00.840] ten-year minimum sentence in prison.
+- [02:05.170] We'll be getting the drug dealers, pushers,
+- [02:07.950] and peddlers off our street.
+- [02:09.950] And we will not rest until we have ended
+- [02:12.800] the drug overdose epidemic.
+- [02:15.300] And it's been getting a little bit better
+- [02:17.660] but it's horrible, it's horrible.
+- [02:20.090] We're going to end it once and for all.
+- [02:22.920] And we're pleased to be joined on this occasion by my future
+- [02:27.120] DEA Administrator, you're going to be a very important position,
+- [02:31.610] Terry Cole. Where is Terry Cole? Hello, Terry Cole.
+- [02:35.380] I hope you're as good as they say,
+- [02:37.110] Terry, I hope you're as good as Glenn Youngkin
+- [02:42.490] says because it was his recommendation
+- [02:44.800] that got you this job.
+- [02:46.060] You better do a good job or I'm blaming Glenn.
+- [02:48.940] Glenn I'm going to blame you if he's no good.
+- [02:51.530] And who the hell knows but I have a feeling
+- [02:53.860] he's going to be great. Is he that good?
+- [02:55.410] Glenn Youngkin: He's that good.
+- [02:56.680] The President: All right, good. You better be good.
+- [03:02.170] Glenn has had tremendous experience with Terry
+- [03:04.890] and he said he's fantastic,
+- [03:06.170] he did the job like nobody that you've seen,
+- [03:08.960] and we take your word for it.
+- [03:10.630] Thank you very much, Glenn. Also with us is Secretary Kristi
+- [03:15.230] Noem who's doing a fantastic job.
+- [03:17.170] Where's Kristi? Where are you? Kristi. Hi, Kristi.
+- [03:24.410] She has been doing a great job with Tom Homan who's fantastic.
+- [03:28.790] He's also central casting.
+- [03:30.660] He does serve the central casting role too, doesn't he?
+- [03:34.100] And he's a great guy. Special envoy Steve Witkoff.
+- [03:37.600] Steve, thank you very much. Thank you. Good job.
+- [03:42.630] And we have some good news on Gaza
+- [03:44.640] and good news on a couple of things
+- [03:46.300] that we're working on at a very high level.
+- [03:48.930] But you've done a fantastic job, thank you very much.
+- [03:52.020] My nominee to lead the Office of National
+- [03:54.390] Drug Control Policy, Sara Carter.
+- [03:57.070] Sara, great reporter too.
+- [04:00.350] She was a very tough and good reporter.
+- [04:04.410] You've done a fantastic job.
+- [04:05.800] So now you'll be able to put all that experience to work.
+- [04:09.280] No more criticizing or anything else, you got to do it yourself.
+- [04:12.520] And you're going to do a great job as reporters do on occasion.
+- [04:16.430] Thank you very much. Thanks, Sara. Good luck.
+- [04:19.890] Governors Glenn Youngkin, Jeff Landry,
+- [04:22.560] and Kelly Armstrong, where are you?
+- [04:24.540] Stand up. Great. Hi, fellas, hi. How are you?
+- [04:33.620] And great friends of ours Senators Chuck Grassley.
+- [04:37.230] Chuck, fantastic. You look fantastic.
+- [04:40.460] He looks like he's 44 years old.
+- [04:43.360] You look great, Chuck. We're proud of you.
+- [04:45.070] Jim Banks. Jim. Thank you, Jim, good job.
+- [04:49.330] Good job. Ron Johnson. Ron, good.
+- [04:54.230] We've got that bill passed, Ron, we got it passed.
+- [04:57.710] Thank you for all your help too.
+- [04:58.980] Ashley Moody. Ashley, thank you very much.
+- [05:03.950] Jim Risch. Thank you, Jim.
+- [05:07.950] And you're doing a great job with the committees.
+- [05:09.740] And you're getting them through, the people that we need, right?
+- [05:12.420] I appreciate it, Jim, very much.
+- [05:13.720] Jim Risch: I'm urging Mr. President.
+- [05:15.010] The President: I urge them. Jim, you got to get going.
+- [05:18.230] No, Jim's been fantastic. Bill Cassidy.
+- [05:21.970] Thank you, Bill, very much. Thank you very much.
+- [05:26.930] And Roger Marshall. Roger, thank you.
+- [05:31.490] And, by the way, I have to say, John Thune called.
+- [05:34.620] He said, "Can you get my senators back
+- [05:36.640] we're taking a vote?"
+- [05:37.990] So we're going to go as quickly as we can.
+- [05:40.440] And if you feel like the urge just get out.
+- [05:43.470] We got to get all these bills signed,
+- [05:45.260] a lot of them related to what we're doing.
+- [05:49.020] Don't have the urge to stay.
+- [05:50.670] I won't be insulted if you walk out.
+- [05:52.880] But he just called and he said,
+- [05:54.110] "Could you get them back as soon as possible?"
+- [05:56.600] Representatives Morgan Griffith, Brett Guthrie, Andy Biggs.
+- [06:02.670] Andy Barr, Buddy Carter,
+- [06:07.030] Addison McDowell, Troy Balderson.
+- [06:12.450] Hi, Troy. Randy Feenstra. Thank you, Randy.
+- [06:19.040] Scott Franklin, Tony Gonzales, John Joyce, Dan Meuser,
+- [06:26.900] Mike Carey, Scott Fitzgerald, Diana Harshbarger, Bob Latta.
+- [06:38.310] That's a good group of people.
+- [06:40.150] Hal Rogers, Mike Rowley, and Nick Langworthy.
+- [06:45.400] Thank you. You got a lot of great people.
+- [06:50.010] That's a lot of political talent we have,
+- [06:52.490] a lot of political talent. Thank you very much.
+- [06:55.410] Thanks as well to State Attorneys General Brenna Bird.
+- [06:59.160] Thank you, Brenna, wherever you may be.
+- [07:00.550] Because you know Brenna,
+- [07:02.670] she was the first one in that state to endorse Trump.
+- [07:06.840] I don't forget those things even though
+- [07:08.380] this is non-political today, okay?
+- [07:11.700] Alan Wilson, Chris Carr, and Marty Jackley.
+- [07:15.990] Thank you all very much. Thank you.
+- [07:21.270] So six months ago we came into office
+- [07:25.910] and inherited the worst drug crisis
+- [07:27.910] in American history by far, they did nothing.
+- [07:31.690] For four long years Joe Biden surrendered our borders
+- [07:35.430] to the most evil and vicious traffickers,
+- [07:38.270] networks, and everything else on the planet earth
+- [07:42.170] allowing foreign drug cartels
+- [07:44.010] to carve out a massive footprint on American soil.
+- [07:47.840] We were doing nothing. This open borders nightmare
+- [07:52.350] flooded our country with fentanyl
+- [07:54.510] and with people that shouldn't be here,
+- [07:57.270] some of the worst people on earth.
+- [07:59.660] And illicit drugs decimated American communities
+- [08:02.700] and left us with the largest law enforcement challenge
+- [08:05.650] in our country's history.
+- [08:06.960] And hopefully we'll always be the largest,
+- [08:09.080] I can't imagine anything being worse.
+- [08:11.710] They allowed millions and millions of criminals
+- [08:14.900] into our country. 11,888 murders, 50 percent
+- [08:20.350] of whom murdered more than one person.
+- [08:24.560] On day one of the Trump administration
+- [08:26.560] we declared an all-out war on the dealers,
+- [08:28.860] smugglers, traffickers, and cartels.
+- [08:31.680] Within moments of taking office
+- [08:33.420] I deployed the US military to our border
+- [08:36.270] and unleashed the patriots of ICE and Border Patrol
+- [08:39.520] to defend our country from an invasion.
+- [08:42.560] This was an invasion.
+- [08:43.850] This wasn't people coming in this
+- [08:45.390] was an invasion of our country.
+- [08:48.130] Allowed to happen by people either that didn't care
+- [08:52.140] or were just stupid people, stupid people.
+- [08:56.540] I also designated the Mexican drug cartels
+- [08:59.750] as foreign terrorist organizations.
+- [09:12.130] And within a few short weeks, believe it or not.
+- [09:14.930] If you remember now we've even surpassed that,
+- [09:19.260] but we achieved the most secure border in US history
+- [09:22.470] and last month we had the lowest number
+- [09:24.370] of illegal border crossings ever recorded.
+- [09:27.220] We had in June, the number was actually zero.
+- [09:31.120] Now even I don't believe that, but we're going to take it.
+- [09:33.920] How can you go from hundreds of thousands to zero?
+- [09:36.910] But that's what they say,
+- [09:38.600] and these are very liberal people that do the recordings,
+- [09:43.640] so I think we're going to have to take it,
+- [09:45.080] but the number was zero in June.
+- [09:48.640] Can't get much better than that, right?
+- [09:51.280] On day one, I signed executive orders
+- [09:53.630] to create new homeland security task forces,
+- [09:56.230] marshaling the full power of federal law enforcement
+- [09:59.850] to eradicate transnational criminal networks
+- [10:03.090] and traffickers from our soil. We wanted them out.
+- [10:06.800] Two weeks ago, we secured the resources necessary
+- [10:09.890] to achieve that mission
+- [10:12.140] when I signed the one Big Beautiful Bill into law,
+- [10:16.330] and I want to thank you all. I want to thank you.
+- [10:24.470] I want to thank you all. You did a great job
+- [10:27.540] and you could go point after point how good it is.
+- [10:30.350] They have just a hit against that.
+- [10:33.180] It's one of the great, biggest tax cuts in history.
+- [10:36.970] Biggest, really the biggest everything in history.
+- [10:40.950] We have things in terms of security,
+- [10:43.730] in terms of securing our country,
+- [10:45.530] taking care of our police officers,
+- [10:48.090] law enforcement, our ICE and border patrol, Patriots.
+- [10:52.230] I call them Patriots because that's what they are.
+- [10:54.020] These are strong people, tough people that love our country.
+- [10:57.250] If they weren't tough, they wouldn't survive.
+- [10:59.900] But we do more for the country in that bill,
+- [11:02.500] I think, than just about any bill that's been passed.
+- [11:06.240] And we're going to have to start speaking about it
+- [11:08.340] because the Democrats use it, they say it represents death.
+- [11:13.800] How effective is that, right?
+- [11:15.210] That's pretty good. It represents that.
+- [11:17.300] That's all they have. They only have lies.
+- [11:20.780] It's the only thing they have. They don't have policy.
+- [11:23.670] They can't get people elected. They don't have good candidates.
+- [11:27.180] They don't have anything, but they do have two things.
+- [11:30.090] They stick together, they stick together like glue,
+- [11:33.660] and they always come up with a good little tagline.
+- [11:36.600] This tagline is death.
+- [11:38.620] And if the death is them, we're the ones that are giving life.
+- [11:41.710] We're giving life with that bill.
+- [11:43.650] And there's so many good things,
+- [11:45.020] whether it's no tax on tips, think of that.
+- [11:47.880] No tax on Social Security, no tax on overtime.
+- [11:52.960] If you buy a car, you want to buy a car,
+- [11:55.300] you get a deduction of interest
+- [11:56.840] on your mortgage or think of that.
+- [11:58.480] Things that were never even a possibility.
+- [12:02.500] And then so much else in terms of health,
+- [12:05.180] in terms of providing care.
+- [12:07.770] It's really just a fantastic bill,
+- [12:09.950] and it's about time that we're going to start
+- [12:12.430] and we'll start talking about it,
+- [12:13.820] but once we do,
+- [12:15.260] I think we're going to have the greatest midterm
+- [12:17.170] that you've ever seen because this thing really is amazing.
+- [12:20.560] And I want to thank all of the senators in particular
+- [12:23.520] for getting it done. For getting it done.
+- [12:28.510] It also makes the largest investment in the US Coast Guard
+- [12:31.750] since World War II, ensuring that we have assets
+- [12:35.420] and all of the assets needed to vanquish the cartels
+- [12:38.690] from the waterways of North America.
+- [12:40.600] We're building a lot of Coast Guard ships
+- [12:42.880] that go very speedily along the water,
+- [12:46.200] and they're very lethal, they're very powerful,
+- [12:48.830] and that's what we need because a lot of it comes in
+- [12:50.710] as we block up the border, they start using the water.
+- [12:54.530] That's a good run. I could use that.
+- [12:56.460] They block up the border, we start using the water,
+- [12:59.140] and that's what happens.
+- [13:00.370] They start using the water. Who would think?
+- [13:03.240] They even actually developed small submarines.
+- [13:05.610] You saw that, right?
+- [13:06.920] Small submarines to get the drugs in
+- [13:10.710] and it's incredible, but we've stopped them.
+- [13:14.660] I've also directed the Department of Justice
+- [13:16.950] to seek maximum sentences for fentanyl traffickers.
+- [13:20.670] We're going to absolutely do the maximum.
+- [13:23.570] Since my inauguration, the DOJ has seized over
+- [13:26.580] 4,500 pounds of fentanyl, which is a record
+- [13:29.920] including with the enormous Sinaloa Cartel bust in May,
+- [13:35.000] one of the toughest cartels out there.
+- [13:37.770] The largest fentanyl bust ever in United States history.
+- [13:42.320] And now with the signing of the Halt Fentanyl Act
+- [13:45.610] in just a few moments, we are delivering another defeat
+- [13:48.840] for the savage drug smugglers and criminals and the cartels
+- [13:52.670] who have a tremendous amount to say about Mexico.
+- [13:56.190] If you want to be nice about it, I'm trying to be nice about it.
+- [14:00.350] They have very strong controls over Mexico.
+- [14:03.500] We have to do something about that.
+- [14:05.470] Can't let that happen.
+- [14:06.910] The Mexican authorities are petrified.
+- [14:10.400] They're petrified to show up at their office.
+- [14:13.160] They're petrified to go to work
+- [14:15.010] because the cartels have a tremendous grip on Mexico
+- [14:19.170] and the politicians and the people that get elected.
+- [14:23.050] For years, the monsters who manufacture illicit fentanyl
+- [14:26.620] have sought to skirt legal restrictions
+- [14:29.360] by making minor variations of the chemical compound.
+- [14:32.610] And in the process,
+- [14:34.230] they've developed even more toxic versions of the drug.
+- [14:37.700] One common variant known as carfentanyl.
+- [14:44.000] It's becoming more and more common.
+- [14:45.660] It's 100 times more potent
+- [14:49.130] than the original version of fentanyl.
+- [14:51.910] Can you imagine?
+- [14:53.260] Look at what you have to suffer with the original.
+- [14:55.300] I mean, this is 100 times more potent and it's happening.
+- [15:01.690] Stronger, stronger, more and more and more
+- [15:04.470] and more dangerous.
+- [15:05.690] And as you know, and I have a very good relationship
+- [15:08.080] with President Xi of China,
+- [15:09.960] but I imposed a 20 percent tariff on China
+- [15:13.600] because of the fentanyl. And I call it a penalty.
+- [15:17.310] It's a penalty because China delivers much of the fentanyl.
+- [15:21.020] Some people would say all of it.
+- [15:23.520] They deliver it into Mexico and even into our own country.
+- [15:26.680] We have a 20 percent.
+- [15:27.890] So they pay billions of dollars in damages
+- [15:32.530] for what they've done.
+- [15:34.720] And I think we're going to work it out
+- [15:36.320] so that China's going to end up
+- [15:38.150] going from that to giving the death penalty to the people
+- [15:41.940] that create this fentanyl and send it into our country,
+- [15:47.100] whether it's through other countries or directly.
+- [15:49.790] I believe that we would've had that deal long time ago.
+- [15:53.240] I shook hands with him and then we had a rigged election
+- [15:56.490] and we had somebody else come in and they didn't know anything
+- [15:59.580] about a deal for the death penalty.
+- [16:02.930] The death penalty is going to be imposed on people from China
+- [16:06.980] that make fentanyl and send it into our country.
+- [16:09.320] I believe that's going to happen soon,
+- [16:11.090] but as of today,
+- [16:12.300] all fentanyl related substances will be banned forever,
+- [16:16.000] and those who traffic in these deadly poisons
+- [16:18.380] will be put behind bars for a very long period of time.
+- [16:23.070] We're joined today by just a few of the millions of families
+- [16:26.120] ravaged by this scourge,
+- [16:27.550] including Greg Swan from Michigan,
+- [16:30.310] who carries with him the heartbreaking loss
+- [16:32.470] of his beautiful son, Drew. Drew became addicted to opioids
+- [16:37.070] after being prescribed painkillers
+- [16:39.730] following a sports injury, got injured
+- [16:41.990] and this is happening so much, got injured in sports
+- [16:45.270] and ends up you leave the hospital,
+- [16:46.990] a week later and you're addicted.
+- [16:50.160] But he fought through it and got himself clean.
+- [16:52.210] Then one day Drew took a pill laced with fentanyl.
+- [16:55.960] He took it, just casually thought it would be okay,
+- [17:00.110] took a chance, and he thought he'd be okay,
+- [17:02.080] and it didn't work out, and he tragically lost his life.
+- [17:05.560] And Greg, I'd like you to come forward
+- [17:07.050] and if you could just say a few words
+- [17:08.930] about your wonderful, wonderful son, please.
+- [17:14.130] Greg Swan: Thank you, Mr. President.
+- [17:15.430] Honor of my life.
+- [17:16.640] The President: Thank you very much.
+- [17:17.860] Greg Swan: Thank you. Thank you so much, Mr. President.
+- [17:19.820] I will be brief. It's the honor of my life to be here.
+- [17:23.670] And Drew was, the happiest day of my life was when he was born,
+- [17:28.150] and he always called me his hero to the day he died.
+- [17:31.650] And his passing ruined, I thought my life
+- [17:35.730] and every parent back here that I meet,
+- [17:38.980] and in the audience, some of my friends,
+- [17:41.060] their life is gutted when they lose a kid.
+- [17:43.580] There's despair and there's hopelessness,
+- [17:45.890] but we've been able to find some repose
+- [17:48.620] in going out and advocating,
+- [17:51.200] and we want to hit every school in America.
+- [17:53.390] There's 26,727 of them. We want to go into every one.
+- [17:57.810] The kids are silent when they hear we lost somebody to this
+- [18:00.540] and we tell our story
+- [18:01.960] and they leave unequivocally ready to run away from fentanyl.
+- [18:06.570] I would just like to say thank you, Mr. President
+- [18:08.610] for stopping the border crossings.
+- [18:12.230] Full stop, mic drop.
+- [18:23.130] Male Speaker: I'll step back, but it was amazing what you did.
+- [18:27.200] We were being gaslit and you came
+- [18:29.820] and lit a fire to that story and we're a lot safer for it.
+- [18:33.560] Thank you so much. Thank you.
+- [18:39.610] The President: Thank you.
+- [18:40.840] Male Speaker: Yeah, thank you so much.
+- [18:42.470] Thank you.
+- [18:43.830] The President: That's tough stuff.
+- [18:46.370] We're also grateful to be joined
+- [18:48.200] by California Native Ann Fundner,
+- [18:52.290] who lost her beautiful eldest son Weston to Fentanyl
+- [18:56.790] when he was just 15 years old, exactly one year ago today.
+- [19:01.290] Ann delivered a moving tribute to Weston
+- [19:04.550] at the Republican National Convention.
+- [19:07.090] People that saw it have not forgotten it.
+- [19:10.580] And Ann, I'd like you to please come up
+- [19:12.800] and say a few words about your wonderful boy.
+- [19:16.260] Thank you. Please.
+- [19:18.790] Thank you, darling.
+- [19:20.050] Ann Fundner: It's an honor.
+- [19:25.310] Good afternoon, Mr. President and distinguished guests.
+- [19:29.050] My name is Ann Fundner.
+- [19:31.670] The President: Give that to me to hold.
+- [19:33.370] Ann Fundner: Thank you. And I'm an angel parent.
+- [19:37.850] One year ago today, on July 16th,
+- [19:41.210] I stood in front of America and told the story of my son,
+- [19:44.010] Weston at the RNC, and about how he was a beautiful, loving,
+- [19:51.630] had a wonderful life.
+- [19:53.460] We did everything right, but one pill,
+- [19:55.960] one mistake given by a friend under peer pressure
+- [20:00.400] took his life. In the last four years,
+- [20:03.470] fentanyl became the number one killer of Americans,
+- [20:06.640] ages 15 to 48.
+- [20:10.090] And children under 14 are the fastest growing demographic.
+- [20:14.430] President Trump, for four years, we felt ignored.
+- [20:19.140] But you've changed that and we appreciate that so much.
+- [20:23.850] You've closed the borders, sanctioned cartels,
+- [20:27.430] imposed tariffs, closed shipping loopholes.
+- [20:30.810] Most people don't know about that. That was a big one.
+- [20:33.370] Dealt with countries where it's coming from.
+- [20:35.990] You mobilized Treasury, justice department,
+- [20:39.370] Homeland Security, lawmakers, legislators.
+- [20:44.130] And today the signing of the Fentanyl Act,
+- [20:46.620] bipartisan and overwhelmingly supported by everybody,
+- [20:50.200] making fentanyl a schedule one drug
+- [20:52.740] to strengthen the criminalization
+- [20:55.770] and prosecution of people who peddle this.
+- [21:00.220] It is a life line for families across America
+- [21:04.340] and keeping our family safe. And that's all you always want,
+- [21:08.940] to keep America safe and thank you so much.
+- [21:11.770] Thank you for keeping America safe and for our children.
+- [21:15.640] And this is what we voted for. Mr. President, God bless you.
+- [21:20.430] God bless our angel families who are all here with us today
+- [21:24.430] and all of you sitting up here with us.
+- [21:26.910] And God bless America. Thank you so much.
+- [21:34.390] You can have that. Would you like that?
+- [21:36.120] I would love to give back to you.
+- [21:39.950] The President: Thank you. Thank you.
+- [21:44.200] Thank you very much.
+- [21:45.480] It just crazy that we have to even be doing this.
+- [21:50.970] It's so sad.
+- [21:53.160] Should be so unnecessary that we stand here for years
+- [21:58.910] and years doing the same thing over and over.
+- [22:02.770] It's terrible.
+- [22:05.060] A friend of mine, a long-time friend of mine,
+- [22:07.040] Jackie Siegel and her beautiful children,
+- [22:10.880] her husband David, just passed away.
+- [22:12.980] David Siegel was a great developer,
+- [22:14.860] great developer, great guy, friend of mine,
+- [22:19.410] but her children, Jordan, Jacqueline,
+- [22:21.950] and Drew come from Florida.
+- [22:24.450] Jackie lost her beautiful daughter Victoria to drugs
+- [22:27.670] when Victoria was just 18 years old,
+- [22:29.770] a beautiful person.
+- [22:32.270] And this April, Jackie lost her sister Jessica to Fentanyl.
+- [22:36.510] In her daughter's honor, Jackie founded Victoria's Voice
+- [22:41.300] and I'd like to ask Jackie to come up
+- [22:43.320] and say a few words about her daughter,
+- [22:46.550] her husband, her family. She comes from a great family
+- [22:50.480] and they've been fighting this scourge for a long time.
+- [22:54.410] Thank you very much, Jackie.
+- [23:04.420] Jackie Siegel: Mr. President, it's an honor to be here today
+- [23:07.200] on behalf of our family,
+- [23:09.040] my late husband and all of the other affected families
+- [23:12.440] for this important signing on this bipartisan issue.
+- [23:18.700] 10 years ago when our daughter, 18 years old, passed…
+- [23:22.850] Victoria, she was 18,
+- [23:24.380] she passed away of the drug overdose.
+- [23:26.730] We formed the Victoria's Voice Foundation
+- [23:29.460] and the Trump administration was very helpful in passing the CARA
+- [23:34.270] Act, which saved many lives back then,
+- [23:39.260] bringing out the Narcan. And we're so honored…
+- [23:43.810] Well, actually after when my husband passed away,
+- [23:46.380] thank you for the phone call and your love and support.
+- [23:51.150] Our family loves you, Mr. President.
+- [23:55.750] That day when my sister found out of my husband's passing,
+- [24:01.500] she did a line of cocaine that she thought was cocaine
+- [24:04.670] and it was fentanyl.
+- [24:06.030] So I lost both of them in the same day.
+- [24:08.920] And it's been a very rough time,
+- [24:12.580] but it's turned me into more of a fighter
+- [24:17.060] to carry on my husband's legacy
+- [24:19.620] and the other family's legacies of saving lives.
+- [24:23.370] And so I'm turning my pain into passion.
+- [24:27.070] And also on top of this,
+- [24:29.710] with the signing of this important act that you're doing,
+- [24:35.510] the Victoria's Voice is joining with Founding Fathers
+- [24:39.570] and we're going to start the Angel Army.
+- [24:41.730] So we're even growing even more under this
+- [24:44.810] Trump administration, and we're going to spend
+- [24:47.320] the rest of our lives doing this.
+- [24:49.630] Thank you, Mr. President.
+- [24:50.890] The President: Thank you. That will be very effective.
+- [24:52.780] Jackie Siegel: Thank you for helping me.
+- [25:01.490] The President: That army will be very effective knowing Jackie.
+- [25:06.670] So thank you very much, Jackie.
+- [25:09.700] Everyone knows someone touched by the incredible crisis
+- [25:14.680] that we've all been watching all over the world.
+- [25:16.400] They're watching it.
+- [25:17.610] Other countries have the problem,
+- [25:19.910] but I don't think there are too many
+- [25:21.340] that have it more seriously than us.
+- [25:23.210] They come here, they rip us, they rip us so badly,
+- [25:26.510] the cartels and all of the others
+- [25:28.610] because we're sort of a rich country
+- [25:34.140] and that's where the money is. So it happens.
+- [25:37.650] People say, why is it so much? Because we have money.
+- [25:40.300] We're richer than other countries.
+- [25:42.140] So they come here more.
+- [25:43.750] They take the money like taking candy from a baby.
+- [25:47.250] So today, on behalf of all Americans
+- [25:49.120] who have lost a loved one to opioids,
+- [25:51.890] we renew our vow to liberate America
+- [25:54.620] from this horrible plague.
+- [25:57.650] And I hope you're going to do a fantastic job.
+- [26:00.630] You have no idea how important you are.
+- [26:02.180] You have maybe the most important job
+- [26:05.410] just about in government.
+- [26:07.810] There's nothing more important than what you're doing.
+- [26:09.540] So I wish you a lot of luck
+- [26:10.780] and we'll be there to help you all the way along. Okay?
+- [26:14.690] Once again, I want to thank Congress
+- [26:16.230] for passing this important bill
+- [26:18.450] and for all the work you've done over the last two weeks,
+- [26:21.320] all of you, what a job you've all done.
+- [26:23.680] It was the Congress, men and women,
+- [26:26.750] and the Senate has been unbelievable.
+- [26:29.860] And I'd like to ask if you want,
+- [26:31.750] stand right up here while I sign the bill
+- [26:34.390] and then we're going to get you right back
+- [26:36.290] so you can keep passing other bills
+- [26:38.130] and make America great again. Right?
+- [26:40.870] Okay. Thank you very much. It's great to have you.
+- [26:45.210] (applause)
+- [26:50.805] (inaudible background conversation)
+- [27:13.950] The President: And this is not an autopen, right?
+- [27:16.960] That's for sure. That's great. Thank you.
+- [27:21.660] (applause)
+- [27:43.655] (inaudible background conversation)
+- [27:55.200] The President: Thank you very much, everybody.
+- [27:56.590] This is really an honor, a very important one.
+- [27:59.480] One of the more important things I will ever sign, I suspect.
+- [28:02.920] And thank you all for great job
+- [28:08.060] Thank you very much, everybody.
+- [28:10.030] (applause)
+- [28:16.830] ♪ (patriotic band music) ♪

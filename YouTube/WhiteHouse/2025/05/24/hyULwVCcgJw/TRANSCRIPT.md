@@ -1,0 +1,1463 @@
+<!-- source: https://www.youtube.com/watch?v=hyULwVCcgJw -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: hyULwVCcgJw -->
+<!-- date_published: 2025-05-24T15:25:21+00:00 -->
+<!-- date_accessed: 2026-06-02T02:49:18.660735+00:00 -->
+
+# Transcript: President Trump Addresses the Army Academy’s Class of 2025
+
+- [00:03.420] [Music]
+- [00:13.440] [Music]
+- [00:16.160] Ladies and gentlemen, please rise for
+- [00:18.320] the entrance of the official party.
+- [00:24.420] [Music]
+- [00:26.599] in arms.
+- [00:31.039] Ladies and gentlemen, please welcome the
+- [00:33.920] 25th Secretary of the Army, the
+- [00:36.640] Honorable Daniel P. Driscoll.
+- [00:49.200] Sound attention.
+- [00:51.980] [Music]
+- [00:57.840] Hey,
+- [00:59.990] [Music]
+- [01:09.040] Ladies and gentlemen, please rise for
+- [01:11.200] the entrance of the official party.
+- [01:14.880] The 41st Chief of Staff of the Army,
+- [01:17.600] General Randy A. George. RS.
+- [01:23.920] Ladies and gentlemen, please welcome the
+- [01:26.799] 25th Secretary of the Army, the
+- [01:29.520] Honorable Daniel P. Driscoll.
+- [01:43.180] [Music]
+- [01:50.079] The 61st Superintendent of the United
+- [01:52.799] States Military Academy, Lieutenant
+- [01:55.119] General Steven W.
+- [01:57.390] [Music]
+- [02:06.680] Dylan, the 41st Chief of Staff of the
+- [02:09.759] Army, General Randy A. George.
+- [02:19.270] [Music]
+- [02:22.010] [Applause]
+- [02:23.970] [Music]
+- [02:42.959] The 61st Superintendent of the United
+- [02:45.680] States Military Academy, Lieutenant
+- [02:48.000] General Steven W.
+- [02:52.920] Dylan. Ladies and gentlemen, the 45th
+- [02:56.160] and 47th President of the United States
+- [02:59.120] of America, Donald J. Trump.
+- [03:04.890] [Music]
+- [03:23.200] Heat. Heat.
+- [03:27.670] [Music]
+- [03:46.720] Ladies and gentlemen, the 45th and 47th
+- [03:50.319] President of the United States of
+- [03:52.280] America, Donald J. Trump.
+- [04:00.130] [Music]
+- [04:39.810] [Music]
+- [06:02.759] Dance
+- [06:03.990] [Music]
+- [06:06.520] or
+- [06:18.280] dance arms.
+- [06:31.680] Ladies and gentlemen,
+- [06:38.840] please
+- [06:41.080] arms
+- [06:42.120] [Music]
+- [06:43.639] on cover.
+- [06:52.240] Ladies and gentlemen, please remain
+- [06:53.919] standing for the invocation by the
+- [06:56.000] United States Military Academy Chaplain,
+- [06:58.639] Colonel David
+- [07:02.919] Bolas. We thank you for bringing each
+- [07:05.280] graduate to this major milestone today.
+- [07:08.560] We thank you especially for your
+- [07:10.000] presence when they were pleased under
+- [07:12.039] pressure. for providing patience as they
+- [07:14.639] learn to lead as yearlings, for their
+- [07:17.759] commitment and courage to affirm as
+- [07:19.720] cows, and for faithful friends who will
+- [07:22.319] finish together as firsties. And just as
+- [07:25.039] you have been faithful in the past, be
+- [07:27.280] their everpresent help in the future.
+- [07:30.000] Thank you for the teammates around them,
+- [07:32.240] their family and friends, instructors
+- [07:34.800] and sponsors, tax and trainers, mentors,
+- [07:38.720] and yes, even their tourmentors who
+- [07:41.759] stood with them over the last four
+- [07:43.479] years. Through them, you ensured these
+- [07:45.759] West Point graduates are prepared to
+- [07:47.360] lead America's sons and daughters in
+- [07:50.080] peaceime and in war. Bless the ceremony
+- [07:53.360] today with your presence. Bless our
+- [07:55.599] president as he leads and inspires us.
+- [07:58.080] and God bless the United States of
+- [07:59.680] America. In your holy name I pray. Amen.
+- [08:15.280] Please be seated.
+- [08:28.520] Take
+- [08:30.120] seats. Staff dismissed.
+- [08:57.120] Please welcome the 61st Superintendent
+- [08:59.839] of the United States Military Academy,
+- [09:02.480] Lieutenant General Steven W.
+- [09:05.320] Gilland. Thank you,
+- [09:14.959] Mr. President. Congressman Wac,
+- [09:17.760] Congressman Ryan, Secretary Driscoll,
+- [09:20.480] General George, our Chief of Staff of
+- [09:22.080] the Army, distinguished guests and
+- [09:24.839] alumni, teammates, family, and friends,
+- [09:28.800] ladies and gentlemen. Good morning and
+- [09:31.360] welcome to West Point, home of the
+- [09:33.760] United States Military Academy.
+- [09:37.700] [Applause]
+- [09:44.720] We are tremendously honored to have you
+- [09:47.040] here today to celebrate the 1,02
+- [09:50.240] outstanding cadetses of the class of
+- [09:52.839] 2025 as they graduate and commission as
+- [09:56.000] the newest officers and leaders of
+- [09:58.399] character in your United States Army.
+- [10:02.320] First, a very special welcome to the
+- [10:05.040] parents, grandparents, siblings, family,
+- [10:07.839] and friends of our graduates who are
+- [10:09.760] here today. Let's give them a round of
+- [10:18.519] applause. Thank you all for the love and
+- [10:21.360] support and encouragement that you've
+- [10:23.120] given your cadet along their journey at
+- [10:25.839] the United States Military Academy. I'd
+- [10:28.640] like to acknowledge the members of the
+- [10:30.399] 50-year affiliate class for our
+- [10:32.320] graduating class, the courage and drive
+- [10:35.200] class of
+- [10:45.000] 1975. Thank you all for supporting,
+- [10:47.760] mentoring, and inspiring these new
+- [10:49.839] leaders over the past four years. You
+- [10:52.720] are all wonderful exemplers of
+- [10:54.480] leadership, excellence, and selfless
+- [10:57.040] service. And we are grateful to you for
+- [10:59.519] demonstrating the strength of the long
+- [11:01.519] gray line to this outstanding
+- [11:04.279] class. Class of 2025, together we
+- [11:07.959] thrive. Congratulations and well done.
+- [11:12.070] [Applause]
+- [11:20.240] Today, your cadet experience at West
+- [11:22.720] Point may come to an end, but today
+- [11:25.279] really marks a milestone in your
+- [11:27.200] personal journey. As you assume the
+- [11:29.360] mantle of leadership as officers in our
+- [11:32.360] army, we know you all are looking
+- [11:34.560] forward to what's ahead. Travel, school,
+- [11:37.440] Bullock, Ranger School, Sapper School,
+- [11:40.480] moving, living on your own. Some of you
+- [11:43.200] are getting married in like the next six
+- [11:45.640] hours. That's right.
+- [11:48.880] However, for all of you, I just ask if
+- [11:51.519] you take a moment, take a moment during
+- [11:54.480] the next few weeks while you're enjoying
+- [11:56.160] some free time to reflect on your time
+- [11:58.320] here. Think about all the opportunities
+- [12:00.560] and experiences that you've had and the
+- [12:02.880] challenges you've overcome on the road
+- [12:04.720] to becoming a leader of character. Think
+- [12:07.120] about the hard work, some blood, a lot
+- [12:10.079] of sweat, as well as the grit,
+- [12:12.560] toughness, determination, and the
+- [12:14.639] continual pursuit of excellence. Think
+- [12:17.200] about the friends you've made and the
+- [12:18.800] relationships developed. The camaraderie
+- [12:21.200] with teammates, the taxs, instructors,
+- [12:24.200] coaches, and old grads who've encouraged
+- [12:26.959] and mentored you, and the family and
+- [12:29.120] friends who supported you and cheered
+- [12:30.959] you on. Take a moment to appreciate and
+- [12:33.680] thank all the people who've helped you
+- [12:35.120] get to this point, and be grateful for
+- [12:37.519] all the experiences and opportunities
+- [12:39.839] that have helped shape you these past
+- [12:41.680] four years. As you pursue this journey
+- [12:44.480] as a leader of character, remember today
+- [12:47.279] is about the responsibility of service.
+- [12:50.000] Service to our country and to the
+- [12:51.839] American people. Today is about
+- [12:53.920] challenging yourself, challenging others
+- [12:56.880] to be better, better teammates, better
+- [13:00.600] officers, better leaders of character.
+- [13:03.839] It starts with you each and every day.
+- [13:07.200] Today is also about the responsibility
+- [13:09.040] of leadership as Army officers. Your
+- [13:12.720] responsibility to support and defend the
+- [13:15.360] Constitution of the United States to be
+- [13:18.240] standard bearers to lead by example and
+- [13:21.680] embody what right looks like.
+- [13:24.959] Most importantly, today is about your
+- [13:28.200] responsibility, your obligation to the
+- [13:31.440] citizens of our nation and to your
+- [13:33.880] soldiers, America's sons and daughters,
+- [13:36.959] to give them your very best leadership
+- [13:39.760] every single day. Also, take a moment to
+- [13:44.399] reflect and understand what it means to
+- [13:46.240] be a graduate of the United States
+- [13:47.680] Military Academy. People expect more
+- [13:50.880] from you as a graduate of this
+- [13:53.120] institution.
+- [13:54.720] You represent this institution and you
+- [13:57.120] represent the United States Army every
+- [13:59.920] single day. You know, you now join a
+- [14:03.440] proud legacy of leaders of character
+- [14:05.600] who've committed themselves to selfless
+- [14:07.760] service and continual excellence guided
+- [14:10.959] by our army values and the ideals of
+- [14:14.079] duty, honor, country. Those ideals, they
+- [14:18.480] unify us and they define us. They define
+- [14:21.839] who you are as graduates of the United
+- [14:24.880] States Military Academy. And just as
+- [14:27.279] they've inspired you, you will now in
+- [14:30.079] turn inspire future generations. The
+- [14:33.680] class of
+- [14:34.760] 2025, you are ready to face the
+- [14:37.120] challenges that await you, prepared to
+- [14:39.360] live honorably, lead honorably, and
+- [14:42.079] demonstrate excellence in everything
+- [14:44.800] that you do. Congratulations and
+- [14:47.519] Godspeed to all of you. Mr. President,
+- [14:50.320] on behalf of the team at the United
+- [14:52.079] States Military Academy, it is an honor
+- [14:54.560] to present this outstanding class to you
+- [14:56.720] this morning as our nation's newest war
+- [14:59.120] fighters and leaders of
+- [15:02.290] [Applause]
+- [15:11.079] character. Ladies and gentlemen, it is
+- [15:13.920] my honor to introduce this morning's
+- [15:16.240] commencement speaker, the 45th and 47th
+- [15:19.839] President of the United States,
+- [15:21.519] President Donald J. Trump.
+- [15:27.000] [Applause]
+- [15:46.959] Well, I want to thank you very much.
+- [15:48.639] This is a beautiful place. I've been
+- [15:50.560] here many times going to high school,
+- [15:53.920] not so far away. Good. A good place.
+- [15:56.720] Also a military academy. Not quite of
+- [15:59.519] this distinction, but it was a lot of
+- [16:02.639] fun for me. And I just want to say hello
+- [16:04.639] cadetses. And on behalf of our entire
+- [16:07.360] nation, let me begin by saying
+- [16:09.959] congratulations to the West Point class
+- [16:12.959] of 2025. You are winners, every single
+- [16:16.399] one of you. Thank
+- [16:24.120] you. And now we want you to relax. And
+- [16:27.199] I'm supposed to say at ease, but you're
+- [16:29.440] already at ease. You're at ease because
+- [16:31.279] you made a great choice in what you're
+- [16:33.680] doing. your choices in life has been
+- [16:36.399] really amazing. So, this is a
+- [16:38.639] celebration and let's have a little fun.
+- [16:41.040] I want to thank your highly respected
+- [16:43.600] superintendent, General Steven Galend.
+- [16:46.480] And he is really uh something. I got to
+- [16:48.800] know him backstage with his beautiful
+- [16:50.480] family and his reputation. His wife is
+- [16:53.519] just incredible. His reputation is
+- [16:56.160] unbelievable. And thank you very much.
+- [16:58.240] And your daughter is a winner also, just
+- [17:00.320] like everybody out there. Real winner.
+- [17:02.240] Thank you. Thank you.
+- [17:09.600] I also want to thank your comant general
+- [17:12.880] RJ
+- [17:14.039] Garcia, Secretary of the Army Dan
+- [17:17.000] Driscoll, Army Chief of Staff General
+- [17:19.839] Randy George, Senator Ashley Moody,
+- [17:24.600] Representatives Steve Wulmarmac, Bill
+- [17:27.400] Heisinger, Pat Ryan, Mark Green, Keith
+- [17:30.679] Self, Acting US Attorney Alina Haba, and
+- [17:35.039] very much uh just all of the friends. We
+- [17:37.280] have a lot of friends in the audience
+- [17:39.200] today and I just want to thank them all
+- [17:41.440] for being here. We have a tremendous
+- [17:42.880] amount of my friends. They wanted to
+- [17:44.480] come up and they wanted to watch this
+- [17:46.080] ceremony and they wanted to watch you
+- [17:47.760] much more so than me. So I just want to
+- [17:50.080] thank so many people are here. Over the
+- [17:52.480] past four years, an extraordinary group
+- [17:54.400] of professors, teachers, coaches,
+- [17:56.840] leaders, and warriors have transformed
+- [17:59.600] this class of cadetses into an
+- [18:01.440] exceptional group of scholars and
+- [18:03.679] soldiers. And so let's give the entire
+- [18:07.520] group, the entire West Point faculty,
+- [18:10.160] the staff for their incredible love of
+- [18:13.200] you and outstanding devotion to the
+- [18:15.679] core. Let's give them a little hand.
+- [18:18.680] [Applause]
+- [18:29.760] And importantly, we can't forget all of
+- [18:32.160] those people beaming with pride. Look at
+- [18:34.559] them in the audience. They're so proud.
+- [18:37.440] They're in the stand. So, thank your
+- [18:39.360] parents, your grandparents, and family
+- [18:41.520] members who made this all possible for
+- [18:44.600] you. Thank
+- [18:51.320] you. And I think they must have done
+- [18:54.000] something right based on what I'm
+- [18:55.440] looking at. America loves our military
+- [18:59.039] moms and dads. Nearly onethird of the
+- [19:01.840] cadetses graduating today are themselves
+- [19:04.400] the children of veterans. So to everyone
+- [19:07.520] with us this morning who served America
+- [19:10.240] in uniform, no matter your age, please
+- [19:13.600] stand so we can salute your service.
+- [19:15.840] We'd like to see who you
+- [19:20.679] are.
+- [19:33.720] Congratulations. Great job. Every cadet
+- [19:37.200] on the field before me should savor this
+- [19:40.000] morning because this is a day that you
+- [19:42.480] will never ever forget. In a few
+- [19:45.679] moments, you'll become graduates of the
+- [19:48.720] most elite and storied military academy
+- [19:52.160] in human history. And you will become
+- [19:54.559] officers in the greatest and most
+- [19:56.480] powerful army the world has ever known.
+- [20:00.160] And I know because I rebuilt that army.
+- [20:03.360] And I rebuilt the
+- [20:08.240] [Applause]
+- [20:10.440] military. and we rebuilt it like nobody
+- [20:13.360] has ever rebuilt it before in my first
+- [20:16.140] [Applause]
+- [20:21.320] term. Your experience here at West Point
+- [20:24.080] has been anything but easy.
+- [20:54.720] came for duty. You came to serve your
+- [20:56.960] country and you came to show yourselves,
+- [20:59.200] your family, and the world that you are
+- [21:01.760] among the smartest, toughest, strongest,
+- [21:04.240] most lethal warriors ever to walk on
+- [21:07.600] this planet.
+- [21:15.520] Looking out at all of you today, I can
+- [21:18.080] proudly say mission accomplished. Great
+- [21:27.960] job. But now you have to go on. You have
+- [21:31.520] to forget that because now you have
+- [21:33.600] another. It's a sad thing, isn't it? you
+- [21:35.760] know, can't rest on your laurels no
+- [21:37.440] matter what. You just have to keep
+- [21:39.760] going. You take it, you take a little
+- [21:41.520] day off and you go on to the rest
+- [21:43.600] because you have to have victory after
+- [21:45.280] victory after victory. And that's what
+- [21:47.600] you're going to have as you receive your
+- [21:49.440] commissions as second lieutenants. Each
+- [21:52.000] of you continues down the same hallowed
+- [21:55.039] path walked by titans and legends of US
+- [21:58.960] military law. giants like Ulissius
+- [22:02.840] Srant, John Blackjack Persing, Dwight
+- [22:06.960] David Eisenhower, the one and only
+- [22:09.760] Douglas
+- [22:13.159] MacArthur, Old Blood and Guts, George
+- [22:19.480] Patton, and Sorman Norman
+- [22:24.520] Schwarzgov. All great, so many
+- [22:28.039] more. They and countless other patriots
+- [22:31.200] before you have walked out of these
+- [22:32.960] halls and straight into history. And
+- [22:35.039] today you officially join those immortal
+- [22:37.679] heroes in a proud ranks of the long gray
+- [22:41.039] line. You know that term, so beautiful.
+- [22:43.200] The long gray
+- [22:48.120] line. Among the 1,000 cadetses
+- [22:51.200] graduating today, 26 of you wear the
+- [22:54.520] prestigious star wreath signifying the
+- [22:57.760] highest level of academic achievement.
+- [23:01.520] Please stand up.
+- [23:03.320] 26. Let's see if somebody stands who
+- [23:05.919] shouldn't be
+- [23:07.700] [Applause]
+- [23:17.640] standing.
+- [23:21.799] Congratulations. That's a big honor.
+- [23:25.039] This class includes an incredible four
+- [23:27.919] road
+- [23:29.880] scholars. Stand up, please.
+- [23:37.080] Four.
+- [23:40.679] Wow. That's tied for the most of any
+- [23:43.840] West Point class since 1959. That's
+- [23:46.640] great. Four.
+- [23:48.200] Congratulations. Boy, oh boy. Oh boy. I
+- [23:51.039] want to bring them right to the Oval
+- [23:52.480] Office. I don't want to have them go too
+- [23:55.520] far away from me. Eight cadets here
+- [23:57.799] today took on the challenge of designing
+- [24:01.440] their own hypersonic rocket. Oh, we can
+- [24:04.480] use you. We're building them right
+- [24:08.280] now. You know, we uh we had ours stolen.
+- [24:12.480] We had we are the designer of it. We had
+- [24:14.880] it stolen during the Obama
+- [24:17.679] administration. They stole
+- [24:19.799] it. You know who stole it? The Russians
+- [24:22.480] stole it. Something bad happened. But
+- [24:25.520] we're now we're the designer of it and
+- [24:28.240] we're now building them and lots of
+- [24:30.000] them. And earlier this year they
+- [24:32.240] launched it into space, setting a world
+- [24:35.200] record for amateur rocketry. Can't get
+- [24:38.240] you in there fast enough. This class
+- [24:40.559] excelled not only mentally but also
+- [24:43.360] physically. Last January when more than
+- [24:45.520] 1,000 cadets volunteered for an 18 and a
+- [24:48.880] half mile march on a freezing winter
+- [24:51.320] night. Cadet Chris
+- [24:54.120] Verdugo completed the task in two hours
+- [24:57.120] and 30 minutes flat, smashing the
+- [25:00.640] international record for the competition
+- [25:03.120] by 13 minutes. Where is he? Where is he?
+- [25:07.679] Come up here. Come up here, Chris. Get
+- [25:11.039] up here,
+- [25:12.279] Chris.
+- [25:14.279] Wow. Come
+- [25:16.039] here.
+- [25:17.720] That's by 13
+- [25:20.360] minutes. Come here, Chris. I want to see
+- [25:23.679] this guy.
+- [25:29.679] Say something. Come here. Come here.
+- [25:37.280] [Applause]
+- [25:42.480] It's been a long five years, but I
+- [25:44.640] couldn't have done it with any of these
+- [25:46.080] guys. Love you guys all. Thank
+- [25:57.960] you. That's great. Keep it going, Chris.
+- [26:00.640] That really is a definition of army
+- [26:02.720] strong, isn't it?
+- [26:05.000] International. International. This class
+- [26:07.880] includes
+- [26:09.400] 513 graduates who completed air assault
+- [26:13.000] school. 70 who completed airborne
+- [26:16.279] school. Eight who made it through the
+- [26:19.200] ultra elite army diver school. Among the
+- [26:22.559] most difficult and grueling programs
+- [26:24.559] anywhere on earth. That includes the
+- [26:27.760] first two women in West Point
+- [26:30.520] history to complete diver school
+- [26:33.440] cadetses Megan Cooper and Clara Sabu.
+- [26:36.960] Where are you? Stand
+- [26:42.600] up. Where are
+- [26:46.279] they? Wow. Great
+- [26:49.480] job. That is not
+- [26:51.880] easy.
+- [26:53.720] Congratulations, Megan Clara. That's a
+- [26:56.640] job well done. Fantastic. Thank you very
+- [27:02.200] much. Some of you achieved a different
+- [27:05.039] kind of distinction here at the academy,
+- [27:07.120] including seven century men who
+- [27:10.760] completed 100 hours of marching for
+- [27:14.600] disciplinary Oh, no. infractions. No,
+- [27:18.480] don't tell me I'm doing this. Oh, I'm so
+- [27:22.840] sorry. Would you like to stand up? I
+- [27:25.360] don't
+- [27:39.480] know. I think I saw Chris standing up.
+- [27:42.480] Chris, what what's going on here? Well,
+- [27:46.080] you had one good, one not so good,
+- [27:47.760] right, Chris? Can't believe Chris is
+- [27:50.320] standing up.
+- [27:52.240] But we want everyone to leave here
+- [27:54.480] today, Chris. So, you're going to be
+- [27:55.919] okay because I'm going to do something
+- [27:57.440] with a clean slate. So, in keeping with
+- [28:00.559] tradition, I hereby pardon all cadetses
+- [28:03.840] on restriction for minor conduct
+- [28:07.120] offenses effective immediately. So,
+- [28:09.919] you're all okay. You're all okay.
+- [28:21.279] The class of 2025 has a lot to be proud
+- [28:24.720] of, including your first rate athletes
+- [28:28.080] and athletics. You are something I've
+- [28:31.120] been watching, too. I watch I love the
+- [28:32.960] sports stuff. What you've done is pretty
+- [28:35.000] amazing. Last year, for the first time
+- [28:37.559] ever, Army Lacrosse became the number
+- [28:40.720] one ranked men's lacrosse team in the
+- [28:43.919] entire country.
+- [28:53.120] Those of you on the team, stand. That's
+- [28:55.440] a big honor. Stand.
+- [29:07.120] Great. That's a tough sport, too. That's
+- [29:10.480] number one in the country. Your
+- [29:12.240] sophomore year, Army football beat Navy
+- [29:16.760] 2017. And the next year, you did it
+- [29:19.840] again, beating Navy
+- [29:22.360] 17-1 and dominating Air Force 23-3.
+- [29:28.240] But this year, the Black Knights fought
+- [29:31.360] your way into the top 20
+- [29:34.919] nationally and racked up your longest
+- [29:37.679] winning streak since 1949 with the help
+- [29:41.320] of graduating quarterback Cadet Bryson
+- [29:44.799] Daly, or as you call him, Captain
+- [29:47.480] America. Captain
+- [29:49.559] America. Stand up,
+- [29:52.600] Bryson. Where's Bryson?
+- [29:57.120] We got to get him up here, right? Come
+- [29:59.279] on,
+- [30:00.120] Bryson. Come
+- [30:02.919] on, man. Oh,
+- [30:06.600] man. I
+- [30:08.440] heard I heard he's some Well, I came to
+- [30:11.279] a game and he was I said, "He can get
+- [30:14.799] into the NFL, can he?" But he chose this
+- [30:17.120] life. And you know what? I think he made
+- [30:18.559] a good choice. Come on up here, Bryson.
+- [30:22.080] Come on up. Wow.
+- [30:25.170] [Applause]
+- [30:42.960] Go Army football. Shout out to Hogs H4.
+- [30:46.880] Um, can't wait to graduate. Love you
+- [30:49.039] guys.
+- [30:55.919] What a great
+- [30:59.240] guy. I just tapped his shoulder. It's
+- [31:01.919] like I hit a piece of
+- [31:04.120] steel. Guy's in good
+- [31:06.840] shape. There's a reason. You know,
+- [31:09.039] there's always a reason for success.
+- [31:10.880] Thank you,
+- [31:11.799] Bryson. At a time when other top college
+- [31:14.559] quarterbacks were thinking about going
+- [31:16.919] pro, Bryson's mind was on something
+- [31:20.080] else. as he told an interviewer earlier
+- [31:22.720] this year, I'm focused on my career as
+- [31:25.440] an infantry officer. That's what he
+- [31:27.520] wants to
+- [31:29.960] do. So, Bryson, you did the right thing.
+- [31:32.720] And that's service at its finest.
+- [31:34.880] Thanks,
+- [31:35.960] Bryson. That's amazing. He's an amazing
+- [31:38.559] guy with an amazing team. Each of you on
+- [31:41.760] the field today is among the most
+- [31:43.440] talented members of your generation. You
+- [31:46.640] could have done anything you wanted. You
+- [31:48.640] could have gone anywhere. You could have
+- [31:50.399] gone to any school. This is one of the
+- [31:52.320] hardest schools to get
+- [31:54.200] into. And writing your own ticket to top
+- [31:58.240] jobs on Wall Street or Silicon Valley
+- [32:00.480] wouldn't be bad. But I think what you're
+- [32:02.960] doing is better. Instead of sports teams
+- [32:06.640] and spreadsheets and software, you chose
+- [32:09.440] a life of service. Very important
+- [32:12.240] service. Instead of stock options, and I
+- [32:15.200] do that stuff. It's sort of
+- [32:17.880] boring. Honestly, compared to what
+- [32:20.159] you're doing, it's real boring. You
+- [32:22.399] chose honor and you chose sacrifice. And
+- [32:25.519] instead of business suits and dress
+- [32:28.000] shoes, you chose muddy boots and
+- [32:29.840] fatigues, keeping yourself in shape.
+- [32:33.279] Because West Point cadetses don't just
+- [32:35.919] have the brightest minds, you also have
+- [32:37.919] the bravest hearts and the noblest
+- [32:39.919] souls. You're amazing people.
+- [32:42.559] I could not be more proud to serve you
+- [32:44.880] as your commanderin-chief. And our
+- [32:46.799] country is doing well. We've turned it
+- [32:48.640] around very quickly. We've turned it
+- [32:50.559] around.
+- [32:58.240] I just got back from the Middle East and
+- [33:00.960] I was at as you know Saudi Arabia,
+- [33:04.159] Qatar,
+- [33:05.640] UAE and I will tell you they said all
+- [33:09.840] three leaders, great leaders of those
+- [33:12.159] three nations. They all said the same
+- [33:15.039] thing. The United States of America is
+- [33:18.080] hotter now than we've ever seen it. And
+- [33:20.480] a year ago it was as cold as it gets.
+- [33:23.679] And it's true. It's true. We have the
+- [33:26.559] hottest country in the world and the
+- [33:28.320] whole world is talking about it. That's
+- [33:31.279] an honor for all of us. I cannot wait to
+- [33:34.640] see the glory that is still ahead,
+- [33:37.600] however, for the West Point class of
+- [33:40.880] 2025. And we're going to help you a lot
+- [33:43.200] because we're going to give you a nation
+- [33:45.279] as good or better than it ever was.
+- [33:47.360] That's what I promise you.
+- [33:56.240] All the victories that you've had
+- [33:57.760] together on these grounds will soon pale
+- [34:00.080] in comparison to the momentous deeds
+- [34:02.480] that you'll perform on the mission
+- [34:04.720] you're accepting today. And as a future
+- [34:08.800] leader of America's army and we have
+- [34:11.919] that army geared up. We have ordered,
+- [34:14.079] you know, we just went $1 trillion
+- [34:16.960] military budget, General. Do you know
+- [34:18.720] that one trillion? Some people say,
+- [34:21.359] "Could you cut it back?" I said, "I'm
+- [34:23.040] not cutting 10 cents." There's another
+- [34:24.800] thing we can cut. We can cut plenty of
+- [34:26.879] others. Right, Dan? We can cut plenty of
+- [34:29.200] other things. And you have a good man in
+- [34:30.800] Dan, too, General. I think you're going
+- [34:32.159] to find that it's a very different uh
+- [34:34.839] war out there today. Now, they've
+- [34:37.520] introduced a thing called drone. A drone
+- [34:40.960] is a little bit different. And it makes
+- [34:43.119] you have to go back and learn a whole
+- [34:45.200] new form of warfare. And you're going to
+- [34:47.200] do it better than anybody else. There
+- [34:48.800] won't be anybody close. Generation after
+- [34:51.760] generation, the men and women of the
+- [34:54.240] army have done whatever it takes to
+- [34:56.159] defend our flag, pouring out their blood
+- [34:58.240] onto the fields of battle all over the
+- [35:00.680] world. And all over the world, you're
+- [35:03.359] respected like nobody is respected. Our
+- [35:06.599] soldiers have sprinted through storms of
+- [35:09.440] bullets, clouds of shrapnel, slogged
+- [35:11.839] through miles of dirt and oceans of
+- [35:14.200] sand, scale towering cliffs of jagged
+- [35:17.640] rock. And time and time again, the
+- [35:20.400] American soldiers charged into the fires
+- [35:23.200] of hell and sent the devil racing in
+- [35:25.440] full retreat.
+- [35:28.760] [Applause]
+- [35:33.440] No task has ever been too tough for
+- [35:36.640] America's army. And now that 250 year
+- [35:40.560] legacy of glory and triumph belongs to
+- [35:43.160] you, the 1,000 newest officers of the
+- [35:46.880] greatest fighting force in the history
+- [35:49.280] of the world. And that's what you are.
+- [35:50.960] And that's what you're being thought of.
+- [35:53.400] Again, you are the first West Point
+- [35:56.480] graduates of the golden age of America.
+- [36:00.320] This is the golden age. I tell you,
+- [36:04.040] promise we're in a new age. This is the
+- [36:06.640] golden
+- [36:08.680] age. And you are going to lead the army
+- [36:12.000] to summits of greatness it has never
+- [36:14.160] reached before. And you see that. You
+- [36:16.000] see what's happening. You see what's
+- [36:17.520] going on in the world. Each of you is
+- [36:20.400] entering the officer corps at a defining
+- [36:23.920] moment in the army's history. For at
+- [36:26.800] least two decades, political leaders
+- [36:28.800] from both parties have dragged our
+- [36:30.480] military into missions. It was
+- [36:33.079] never meant to be. It wasn't meant to
+- [36:36.200] be. People would say, "Why are we doing
+- [36:38.720] this? Why are we wasting our time,
+- [36:42.000] money, and souls?" In some case, they
+- [36:45.200] sent our warriors on nationbuilding
+- [36:47.680] crusades to nations that wanted nothing
+- [36:50.079] to do with
+- [36:51.240] us. Led by leaders that didn't have a
+- [36:53.920] clue in distant lands while abusing our
+- [36:57.119] soldiers with absurd ideological
+- [37:00.200] experiments here and at home, all of
+- [37:03.599] that's ended. You know that all of it's
+- [37:06.720] ended. It's ended. Strongly ended.
+- [37:10.000] They're not even allowed to think about
+- [37:11.520] it anymore. They subjected the armed
+- [37:14.400] forces to all manner of social projects
+- [37:16.960] and political causes while leaving our
+- [37:19.839] borders undefended and depleting our
+- [37:23.200] arsenals to fight other count's wars. We
+- [37:26.000] fought for other count's borders, but we
+- [37:28.079] didn't fight for our own border. But now
+- [37:30.000] we do like we have never fought before,
+- [37:32.960] by the
+- [37:35.400] way. But under the Trump administration,
+- [37:38.800] those days are over. We're getting rid
+- [37:41.520] of the distractions and we're focusing
+- [37:44.160] our military on its core mission.
+- [37:46.960] Crushing America's adversaries, killing
+- [37:50.000] America's enemies, and defending our
+- [37:52.880] great American flag like it has never
+- [37:55.680] been defended before.
+- [38:04.400] The job of the US armed forces is not to
+- [38:08.079] host drag shows to transform foreign
+- [38:12.599] cultures, but to spread democracy to
+- [38:16.800] everybody around the world at the point
+- [38:18.880] of a gun. The military's job is to
+- [38:22.000] dominate any foe and annihilate any
+- [38:24.720] threat to America, anywhere, anytime,
+- [38:27.440] and any place.
+- [38:36.720] A big part of that job is to be
+- [38:39.119] respected again. And you are as of right
+- [38:42.240] now respected more than any army
+- [38:44.800] anywhere in the world. And that's
+- [38:46.400] happening. And I can tell you, you are
+- [38:48.680] respected like nobody can believe. As
+- [38:53.040] president, I am laser focused on our
+- [38:55.760] core national interests. My preference
+- [38:59.040] will always be to make peace and to seek
+- [39:01.960] partnership even with countries where
+- [39:04.320] our differences may be profound. As you
+- [39:07.359] know, we're working on a lot of things
+- [39:08.960] right now. When I left office four years
+- [39:11.119] ago, we had no wars. We had no
+- [39:14.200] problems. We had nothing but success. We
+- [39:16.960] had the most incredible economy, the
+- [39:19.440] greatest, single greatest economy for a
+- [39:22.599] president in history. I think we're
+- [39:25.200] going to beat it this time by a lot if
+- [39:26.960] you want to know the truth. But we had
+- [39:29.280] something going on very special. But if
+- [39:32.160] the United States or its allies are ever
+- [39:34.240] threatened or attacked, the army will
+- [39:36.720] obliterate our opponents with
+- [39:38.720] overwhelming strength and devastating
+- [39:41.000] force. That's why my administration has
+- [39:43.920] begun a colossal buildup of the United
+- [39:47.280] States armed forces. A buildup like
+- [39:50.240] we've never had before. Peace through
+- [39:53.760] strength. You know the term. I've used
+- [39:55.599] it a
+- [40:03.160] lot. Because as much as you want to
+- [40:05.800] fight, I'd rather do it without having
+- [40:08.880] to fight. I just want to look at them
+- [40:12.240] and have them fold. And that's
+- [40:15.079] happening. That's happening.
+- [40:21.599] And I've approved a $1 trillion
+- [40:24.760] investment and that will be again the
+- [40:27.359] largest ever in the history of our
+- [40:30.280] country. And we are buying you new
+- [40:34.880] airplanes, brand new beautiful planes,
+- [40:37.440] redesigned planes, brand new planes,
+- [40:40.240] totally stealth planes. I hope they're
+- [40:42.880] stealth. I don't know that whole stealth
+- [40:44.560] thing. I'm sort of wondering. You mean
+- [40:46.560] if we shape a wing this way, they don't
+- [40:48.320] see it. But the other way they see it,
+- [40:50.079] I'm not so sure, but that's what they
+- [40:52.640] tell
+- [40:54.280] me. We have the best tanks anywhere in
+- [40:57.040] the world. We're going to start ship
+- [40:59.200] building again. We're going to start
+- [41:01.520] ship. We used to build a ship a day. Now
+- [41:04.160] we don't build them anymore. We had a
+- [41:05.839] lot of people that didn't know much
+- [41:07.240] about getting things built, but that's
+- [41:09.599] all I've done in my life is build. We're
+- [41:12.480] going to have the best missiles. We
+- [41:14.000] already do. Drones, and much, much more.
+- [41:16.960] And earlier this week, I think you'll
+- [41:19.440] like this. I announced that we are
+- [41:21.200] officially building all in America, made
+- [41:23.440] in America, designed in America. We're
+- [41:25.839] the only ones that could do it because
+- [41:27.440] we're the only ones that with the great
+- [41:29.720] technology. We're building the Golden
+- [41:32.240] Dome Missile Defense Shield to protect
+- [41:34.880] our homeland and to protect West Point
+- [41:37.839] from attack. And it will be completed
+- [41:40.640] before I leave office.
+- [41:43.480] [Applause]
+- [41:48.400] And you know, you wouldn't think this,
+- [41:49.839] but our enemies are very unhappy about
+- [41:52.079] it. You've been hearing, you've been
+- [41:54.079] reading. Why are they doing that? Why?
+- [41:57.200] Well, we're doing it because we want to
+- [41:58.800] be around for a long time. That's why
+- [42:00.560] we're doing it. We're also restoring the
+- [42:04.160] fundamental principle that a central
+- [42:07.040] purpose of our military is to protect
+- [42:09.359] our own borders from invasion. Our
+- [42:12.720] country was invaded for the last four
+- [42:15.000] years and they've allowed people to come
+- [42:17.440] into our country that shouldn't be they
+- [42:19.760] shouldn't be here. Criminals walk in. No
+- [42:22.839] vetting, no checking, no nothing. Where
+- [42:25.680] are they coming from? And they were
+- [42:28.000] taking people out of prisons. They were
+- [42:29.839] taking gang members. They were taking
+- [42:32.160] the mentally insane and allowing them to
+- [42:35.119] come in. And we're getting them out of
+- [42:36.480] our country. We have no choice. We're
+- [42:38.560] getting them out and bringing them back
+- [42:40.400] where they came from.
+- [42:42.480] have no
+- [42:44.200] choice. And it's not
+- [42:46.760] easy. It's not
+- [42:49.160] easy. But hopefully the courts will
+- [42:52.960] allow us to continue. You know, we had
+- [42:54.800] the greatest election victory. This was
+- [42:57.680] uh November 5th was we won the popular
+- [43:00.880] vote by millions of votes. We won all
+- [43:03.119] seven swing states. We won everything.
+- [43:05.200] We won
+- [43:07.400] 2750
+- [43:09.000] districts against 505.
+- [43:12.839] 2750 against
+- [43:15.079] 505. We had a great mandate and it gives
+- [43:18.079] us the right to do what we want to do to
+- [43:20.000] make our country great again. And that's
+- [43:22.079] what we're going to do. And on day one,
+- [43:24.640] I deployed our military to the southern
+- [43:26.800] border. And since that day, we've
+- [43:29.200] reduced the number of illegal border
+- [43:31.200] crossings where there used to be
+- [43:32.960] hundreds of thousands of people coming
+- [43:35.280] into our country a
+- [43:38.200] day. We had nobody come in in the last
+- [43:41.839] week and a half. We were at
+- [43:49.240] 99.999%.
+- [43:52.359] 99.999. Think of that. That was with the
+- [43:55.680] help of our military. We had one person
+- [43:59.040] come in. One, you know why? He got very
+- [44:02.960] sick. We brought him through to have him
+- [44:05.680] brought to a hospital. One person. And
+- [44:08.400] for that, please don't hold me
+- [44:10.400] responsible. But that's okay. They did
+- [44:12.800] the right thing. Gone are the days where
+- [44:16.000] defending every nation but our own was
+- [44:19.440] the primary thought. We are putting
+- [44:22.160] America first. We have to put America
+- [44:24.400] first. We have to rebuild and defend our
+- [44:28.200] nation. And very shortly, you're going
+- [44:30.400] to see a
+- [44:31.800] nation better than it's ever been. And
+- [44:35.280] you see that with the trade. For years,
+- [44:37.680] we've been ripped off by every nation in
+- [44:40.160] the world on trade. We've been ripped
+- [44:42.079] off at the NATO level. We've been ripped
+- [44:45.440] off like no country has ever been ripped
+- [44:49.040] off. But they don't rip us off anymore.
+- [44:51.040] They're not going to rip us off anymore.
+- [44:52.960] And you're seeing it. You have to watch
+- [44:54.640] what we're doing on trade. I know it's
+- [44:56.319] not your primary thing, but it's quite
+- [44:58.480] important in all fairness, but watch.
+- [45:01.200] You'll see what's going on. You've been
+- [45:03.200] reading about it over the last few days.
+- [45:05.440] We're making deals with other nations
+- [45:07.200] that were not even nobody thought it
+- [45:10.240] would be even possible. And uh the
+- [45:13.440] reason is very simple. They respect us
+- [45:15.440] again. They're respecting our country
+- [45:17.520] again. That's what you want. In
+- [45:19.760] everything we do, we are bringing common
+- [45:22.480] sense back to America. It's all about
+- [45:24.560] common sense. We can say we're liberal.
+- [45:26.480] We're conservative. The new word is
+- [45:28.720] progressive. They don't like using the
+- [45:30.240] word liberal anymore. That's why I call
+- [45:32.720] them
+- [45:33.640] liberal. But but uh whatever you are,
+- [45:37.760] you know, most importantly, you have to
+- [45:39.920] have common sense because most of it's
+- [45:41.839] general, most of it's about common sense
+- [45:43.760] when you get right down to it. And uh we
+- [45:46.319] have a lot of people with a lot of a lot
+- [45:49.119] of very smart people, but they have to
+- [45:51.359] have common sense. And we've liberated
+- [45:53.680] our troops from divisive and demeaning
+- [45:56.480] political trainings. There will be no
+- [45:58.960] more critical race theory or transgender
+- [46:01.359] for everybody forced onto our brave men
+- [46:03.680] and women in uniform or on anybody else
+- [46:06.560] for that matter in this country.
+- [46:10.400] And we will not have
+- [46:12.920] men playing in women's sports if that's
+- [46:17.190] [Applause]
+- [46:23.960] okay. I mean, I wouldn't want to have to
+- [46:26.480] tackle, as an example,
+- [46:28.280] Bryson as a man, but I don't think a lot
+- [46:31.520] of women want to tackle
+- [46:33.240] him. I don't think so. How crazy is it
+- [46:37.119] men playing in women's sports? How crazy
+- [46:39.680] is it? So ridiculous. So demeaning. So
+- [46:43.119] demeaning to women. And it's over.
+- [46:46.000] That's over. We've ended it. And
+- [46:49.200] promotions and appointments will not be
+- [46:51.440] based on politics or identity. They'll
+- [46:54.000] be based on merit. We won that case in
+- [46:56.079] the Supreme Court of the United States.
+- [46:57.839] We're allowed to go back to a system of
+- [47:00.160] merit.
+- [47:02.400] We're a meritbased country again.
+- [47:05.880] Today, morale in the armed forces is
+- [47:08.720] soaring to the highest levels in many
+- [47:11.440] decades after years of recruiting
+- [47:14.240] shortfalls. And we had years and years
+- [47:16.920] of recruiting shortfalls. And just last
+- [47:20.079] year was the worst of all, the last year
+- [47:22.960] of the Biden
+- [47:26.520] administration. We couldn't get anybody
+- [47:28.720] to join our military. We couldn't get
+- [47:30.800] anybody to join our police or
+- [47:32.640] firefighters. We couldn't get anybody to
+- [47:35.040] join anything. And right now, just less
+- [47:38.560] than a year later, we just set a brand
+- [47:42.200] new peacetime recruiting record. The
+- [47:46.119] most most people joined and we are
+- [47:49.599] brimming. In fact, be careful. There's
+- [47:51.359] somebody going to try and take your job.
+- [47:52.960] Be careful. You better be good. We are
+- [47:55.200] brimming with confidence and we're
+- [47:57.280] brimming with people. We had the most
+- [47:59.920] best recruiting month that we've had in
+- [48:04.400] memory. Nobody remembers anything like
+- [48:06.560] it. And that's all because they have
+- [48:08.480] spirit now. They have spirit. They have
+- [48:10.079] a spirit for our country. And now
+- [48:12.480] everybody wants to be doing what you're
+- [48:14.280] doing. Think of that. So, it's really a
+- [48:17.839] great honor, I will say. And I'm pleased
+- [48:19.599] to report that by next week, the Army is
+- [48:23.119] expected to surpass its recruiting
+- [48:25.040] targets for the entire year. something
+- [48:27.119] that hasn't happened in 28 years where
+- [48:29.359] we've had that. So, that's pretty
+- [48:36.440] good. And it's nice to know that you're
+- [48:38.960] doing something that everybody wants to
+- [48:40.880] do, isn't it? Really nice. Wasn't I
+- [48:43.359] hated to hear that during the campaign?
+- [48:45.040] I was hearing about that they you
+- [48:46.960] couldn't get people to enlist, but now
+- [48:48.880] we're getting people and it's sad
+- [48:51.040] because we're telling so many people,
+- [48:52.480] I'm sorry, we can't do it. My
+- [48:54.800] administration is doing everything
+- [48:57.040] possible to forge the most powerful
+- [48:59.839] military ever built. But ultimately, the
+- [49:03.040] task of keeping America strong and safe
+- [49:05.280] in the years ahead is going to belong to
+- [49:07.960] you. Among you are the lieutenants,
+- [49:10.800] majors, colonels, and generals who lead
+- [49:12.960] the army for the next 10, 20, 30, and
+- [49:15.359] even 40 years. So, as
+- [49:17.839] commander-in-chief, let me offer a few
+- [49:19.920] words of advice as you begin your army
+- [49:23.480] careers. And I thought I'd do this, and
+- [49:26.000] I can make this to a civilian audience
+- [49:28.559] or to a military audience. It's pretty
+- [49:30.880] much the same. And uh I did this
+- [49:34.800] recently
+- [49:35.880] at Ohio State and they really liked it.
+- [49:39.119] I gave them a little advice as to what I
+- [49:41.520] see for what you want to do and some
+- [49:44.880] tips. And first of all, and you've
+- [49:47.280] already done it. Different from
+- [49:49.520] civilians. They're making their decision
+- [49:51.359] right now. You've already made your
+- [49:52.640] decision. I love your decision. You have
+- [49:55.040] to do what you love. You have to do what
+- [49:57.440] you love. If you don't love it, you'll
+- [49:59.119] never be successful at it. And you've
+- [50:01.599] done this. And you really, many of you
+- [50:03.599] in the audience, many of you that are
+- [50:06.400] graduating,
+- [50:07.920] uh, you come from military backgrounds
+- [50:09.920] or you love the military. It's what you
+- [50:11.680] want to do. It's what you want to talk
+- [50:13.119] about. One thing I see about people that
+- [50:16.319] love the military, that's all they want
+- [50:18.160] to talk about. I'll be out to dinner and
+- [50:22.640] generals if they if they love their job.
+- [50:24.640] Usually the only good ones are the ones
+- [50:26.319] that want to talk about it all the time.
+- [50:28.480] But if they talk, that's what they want
+- [50:30.000] to talk about. I rarely really very
+- [50:32.400] rarely see somebody who's successful
+- [50:35.520] that doesn't love what he or she does.
+- [50:38.559] You have to love what you do. In your
+- [50:40.800] case, the military is what you chose.
+- [50:43.440] And I'll tell you what, you cannot go
+- [50:45.040] wrong. You're going to see it, too.
+- [50:46.319] You're going to love it more and more
+- [50:47.440] with time. You know, I work all the
+- [50:50.000] time. That's all I do is I work. Whether
+- [50:52.720] it's politically or before that, I did I
+- [50:56.559] was a very good businessman, in case you
+- [50:58.559] haven't heard. Really good. But I was
+- [51:00.960] good because I loved it. I loved it. I
+- [51:03.280] learned from my father a little bit. My
+- [51:05.280] father was a happy guy. And all he did
+- [51:09.119] was work. He'd work Saturdays, Sundays,
+- [51:13.280] he'd work all the time. And he was a
+- [51:15.839] happy guy. He just loved life. And I
+- [51:19.200] learned that I said, you know, it makes
+- [51:20.960] him happy. I've seen other people that
+- [51:24.240] never work and they're not happy. You
+- [51:27.200] got to love it. Otherwise, you won't be
+- [51:29.440] successful. In the army, there are a lot
+- [51:31.680] of different paths you can take. So
+- [51:33.520] follow your instincts and make sure that
+- [51:35.920] you take the path that you love, that
+- [51:37.920] you're doing something that you love
+- [51:39.520] within your military. You will be
+- [51:42.079] happier and the army will be far
+- [51:44.000] stronger for it. Second is to think big.
+- [51:47.920] Always think big. If you're going to do
+- [51:50.319] something, you might as well think big.
+- [51:52.400] Do it big because it's just as tough and
+- [51:55.359] sometimes it's a lot easier thinking big
+- [51:58.480] than doing a small task that's more
+- [52:00.960] difficult.
+- [52:02.400] One of your greatest graduates, General
+- [52:04.720] Eisenhower, used to say, "Whenever I run
+- [52:07.760] into a problem that I can't solve, I
+- [52:11.280] always like to make it bigger to solve
+- [52:13.359] it and solve more of it." If you're
+- [52:16.079] going to solve a problem, it might as
+- [52:17.839] well be a big problem as opposed to a
+- [52:19.920] small problem that lots of people can
+- [52:21.839] take advantage of and solve. So, you can
+- [52:25.040] achieve something really amazing. Think
+- [52:28.000] big.
+- [52:29.520] Third though, you got to do this uh
+- [52:33.119] brain power. You have to have potential.
+- [52:36.160] You have to have. But to be really
+- [52:38.559] successful, you're always going to have
+- [52:40.640] to work hard. An example is a great
+- [52:43.680] athlete, Gary Player. Great golfer. He
+- [52:46.640] wasn't as big as the other men that were
+- [52:49.440] playing against him. Great big strong
+- [52:51.680] guys. Gary was a smaller guy. I don't
+- [52:54.559] want to say too. He's a friend of mine.
+- [52:56.319] He gets a little angry at people because
+- [52:59.040] he hits the ball just as far. He said,
+- [53:01.119] "I hit the ball further than them. Why
+- [53:03.760] am I small?" But he worked very, very
+- [53:06.720] hard. He was always doing exercise. He
+- [53:09.200] was always He was well ahead of his
+- [53:11.240] time. He never stopped. He won 168 golf
+- [53:14.880] tournaments. He won 18 majors, nine
+- [53:18.319] regular and nine on the senior tour. 18
+- [53:21.760] with 168. That's the most tournaments
+- [53:24.559] internationally. the most tournaments
+- [53:26.559] anybody's ever won. But he made a
+- [53:28.960] statement years ago and I heard it. I
+- [53:31.280] heard it. He's the first one. I think
+- [53:32.880] I've heard it a couple of times since,
+- [53:34.480] but he was the first. He said, "It's
+- [53:36.640] funny. The harder I work, the luckier I
+- [53:40.680] get." And think of that. The harder I
+- [53:43.200] work, the luckier I get. And he worked
+- [53:45.920] hard and you're working hard. And the
+- [53:48.240] harder you work, the luckier you're
+- [53:49.839] going to get. Fourth is don't lose your
+- [53:53.599] momentum.
+- [53:55.119] Momentum is an amazing thing. Keep it
+- [53:57.520] going. I tell a story sometimes about a
+- [54:00.200] man who was a great great real estate
+- [54:03.119] man. He was a man who was admired for
+- [54:07.920] real estate all over the world actually
+- [54:10.960] but all over the country. He built levit
+- [54:14.000] towns. He started as a man who built one
+- [54:17.599] house, then he built two, then he built
+- [54:20.240] five, then he built 20, then he built a
+- [54:24.040] thousand, then he built 2,000 and 3,000
+- [54:27.359] a year, and he got very big, very big.
+- [54:30.640] He was great at what he did. You see him
+- [54:33.040] all over the country, still
+- [54:38.760] levit, really big homebuilders. And he
+- [54:42.240] became very rich. Okay. A very rich man.
+- [54:46.079] And then he decided to sell. He was
+- [54:50.160] offered a lot of money by a big
+- [54:52.640] conglomerate, Gulf and Western, big
+- [54:54.880] conglomerate. They didn't do real
+- [54:56.319] estate. They didn't know anything about
+- [54:58.160] it, but they saw the money he was
+- [54:59.520] making. They wanted to take it a public
+- [55:01.359] company. And they gave him a lot of
+- [55:03.520] money, tremendous amount of money, more
+- [55:05.760] money than he ever thought he'd get. And
+- [55:07.680] he sold his company. and he had nothing
+- [55:10.480] to do. He ended up getting a
+- [55:13.800] divorce. Found a new wife. Could you say
+- [55:17.359] a trophy wife? I guess we can say a
+- [55:19.280] trophy wife. It didn't work out too
+- [55:21.720] well. But it doesn't and that doesn't
+- [55:24.000] work out too well. I must tell you a lot
+- [55:25.760] of trophy wives doesn't work out. But it
+- [55:28.960] made him happy for a little while at
+- [55:30.319] least. But he found a new wife. He sold
+- [55:34.640] his little boat and he got a big yacht.
+- [55:36.319] He had one of the biggest yachts
+- [55:37.680] anywhere in the world.
+- [55:39.760] He moved for a time to Monte Carlo and
+- [55:42.000] he led the good life. And time went by
+- [55:44.720] and he got
+- [55:46.760] bored and 15 years later the company
+- [55:51.599] that he sold
+- [55:53.240] to called him and they said the housing
+- [55:57.760] business is not for us. You have to
+- [56:00.000] understand when Bill Levit was hot, when
+- [56:02.480] he had momentum, he'd go to the job
+- [56:04.960] sites every night. He'd pick up every
+- [56:06.720] loose nail. He'd pick up every scrap of
+- [56:10.440] wood. If there was a bolt or a screw
+- [56:13.520] laying on the ground, he'd pick it up
+- [56:14.880] and he'd use it the next day in putting
+- [56:16.880] together a house. But now he was spoiled
+- [56:20.480] and he was rich. He was really rich. And
+- [56:23.119] they called and they said, "This isn't
+- [56:24.799] for us. This business, he do other
+- [56:26.960] things. Would you like to buy it back?
+- [56:29.119] We'll sell it back to you cheap." And
+- [56:31.440] they did. He bought it. He bought it. He
+- [56:34.640] thought he made a great deal and he was
+- [56:36.400] all excited. But it was 15 years later
+- [56:39.760] he lost a lot of momentum. Remember the
+- [56:41.839] word momentum
+- [56:44.440] and he lost everything. It just didn't
+- [56:47.920] work. He lost everything. And I was
+- [56:49.599] sitting at a party on Fifth Avenue one
+- [56:53.040] night long time ago and he had the
+- [56:56.000] biggest people in New York, the biggest
+- [56:57.680] people in the country all in that party
+- [56:59.599] and they were all saluting each other
+- [57:01.040] how great they were. They're all telling
+- [57:03.040] each other, "I'm greater than you." Gets
+- [57:06.559] me really gives you a headache
+- [57:09.079] sometimes. But they had all these
+- [57:11.119] people. They're telling their own
+- [57:13.040] stories about how fantastic a cocktail
+- [57:15.359] party and I looked over and I was doing
+- [57:17.680] well. I was I don't know. I was invited
+- [57:19.599] to the party. So, I had to be doing
+- [57:21.280] well. I was very, very young. But I made
+- [57:24.480] a name in real estate. And I looked over
+- [57:27.200] and at the party sitting in a corner all
+- [57:29.440] by himself. Nobody was talking to him
+- [57:31.200] was Mr. Levit. He had just gone
+- [57:33.760] bankrupt, lost everything. He had lost
+- [57:35.839] everything. His home,
+- [57:38.440] everything. And I went over and talked
+- [57:41.359] to him because he was in the real estate
+- [57:43.119] business and I loved real estate. And I
+- [57:45.040] said, "Hello, Mr. Levit. How are you?"
+- [57:48.319] He said, "Hello, Donald. It's nice to
+- [57:50.160] meet you." He knew me from being in the
+- [57:53.200] business. I said, "So, how's it going?"
+- [57:56.160] Goes, "Not well. It's truly not going
+- [57:58.559] well as you've probably read. It's been
+- [58:00.799] very very tough period for me,
+- [58:03.000] son. I said, "So what happened?" I says,
+- [58:05.760] "Anything you can do?" He goes, "No,
+- [58:07.920] there's not a thing I can do." He said,
+- [58:10.480] "I'll never forget." He said, "I've lost
+- [58:14.079] my momentum. I just didn't have it. I
+- [58:17.359] used to have it, but I lost my
+- [58:19.200] momentum." So, it's a story I tell. And
+- [58:22.880] you have to know when you have the
+- [58:24.319] momentum, but sometimes you have to also
+- [58:26.480] know when you've lost the momentum. And
+- [58:30.640] leaving a field, sometimes leaving what
+- [58:33.760] you're doing sometimes is okay, but you
+- [58:36.480] got to have momentum. But you have to
+- [58:38.640] know if that momentum is gone. You have
+- [58:40.559] to know when to say it's time to get
+- [58:43.440] out. And it's a very sad story. I
+- [58:46.079] remember that story so well, like it was
+- [58:48.079] yesterday. Fifth, you have to have the
+- [58:50.400] courage to take risks and to do things
+- [58:53.240] differently. Eisenhower again was
+- [58:55.680] threatened with court marshals as a
+- [58:57.920] young officer for advocating a new
+- [59:00.160] doctrine of tank warfare. Billy Mitchell
+- [59:03.920] was thrown out of the army for
+- [59:05.599] pioneering the use of air power. They
+- [59:08.160] said, "What do you mean air power? Don't
+- [59:09.760] be ridiculous." People willing to try
+- [59:12.480] and do things differently. It's never
+- [59:16.000] going to be easy for them, but they're
+- [59:17.520] the ones that are going to really do the
+- [59:19.839] important things. They're the ones who
+- [59:21.520] are going to make history. So, don't be
+- [59:23.599] ashamed and don't be afraid. This is a
+- [59:26.240] time of incredible change and we do not
+- [59:29.359] need an officer corps of career and
+- [59:32.559] yesmen and people that want to keep it
+- [59:34.480] going the way it's been because it
+- [59:36.160] changes rapidly. especially what you're
+- [59:38.559] doing because believe it or not, you're
+- [59:40.720] in a a business and profession where
+- [59:44.480] things change as rapidly like warfare,
+- [59:47.280] the type of warfare. Unfortunately,
+- [59:49.920] we're getting to see it with Russia and
+- [59:52.520] Ukraine. And we're studying it and it's
+- [59:55.359] a very terrible thing to study, but
+- [59:58.000] we're seeing the different forms of
+- [59:59.760] warfare. We're seeing the drones that
+- [01:00:01.680] are coming down at angles and with speed
+- [01:00:05.040] and with with precision. We've never
+- [01:00:08.319] seen anything like it. We never seen
+- [01:00:10.160] anything like it. And we're learning
+- [01:00:11.599] from it. But your profession changes
+- [01:00:15.280] very rapidly. You've got to keep you've
+- [01:00:17.520] got to be at the top of it. You've got
+- [01:00:19.119] to be right at the at the head of the
+- [01:00:21.359] needle. We need patriots with guts and
+- [01:00:24.559] vision and backbone who take personal
+- [01:00:26.799] risks to ensure that America wins every
+- [01:00:29.920] single time. We want to win our battles.
+- [01:00:32.079] You know, I defeated ISIS in three
+- [01:00:34.400] weeks. They told me it would take five
+- [01:00:36.319] years. And the general that did it, you
+- [01:00:40.960] know that story, was named Raisin Kaine.
+- [01:00:44.319] His name is Dan Kaine, but his nickname
+- [01:00:47.119] was Raisin Kane. I said, "Your name is
+- [01:00:49.599] Raisin Kane." I love that. Is that a
+- [01:00:52.000] nickname? That's what they call me, sir.
+- [01:00:54.240] I love you, General. I think you're the
+- [01:00:56.160] guy I'm looking for. I want to know a
+- [01:00:58.319] guy named Raisin Kane. And he is now the
+- [01:01:00.240] head of the Joint Chiefs of Staff. And
+- [01:01:02.640] he's a highly respected man. And we
+- [01:01:06.000] defeated, think of it, ISIS. They said,
+- [01:01:08.400] they said, "How long in Washington?"
+- [01:01:10.400] Sir, it will take four years to defeat
+- [01:01:12.319] them, maybe five, and maybe we won't
+- [01:01:15.280] because they're all over the place. And
+- [01:01:17.839] then I met a man that said, "We can do
+- [01:01:19.520] it in three weeks." and he did it three
+- [01:01:21.440] weeks and that's why he's the head of
+- [01:01:24.240] the joint chiefs of staff right now. And
+- [01:01:27.200] uh we did things that nobody thought
+- [01:01:29.200] were possible. We've had great military
+- [01:01:31.359] success. When you have the right leader
+- [01:01:33.200] and you have the right people and we
+- [01:01:34.880] have the right people, you're going to
+- [01:01:36.559] have tremendous success. Success. Six.
+- [01:01:39.520] Never lose your faith in America and the
+- [01:01:42.400] American people because they're always
+- [01:01:44.000] going to be there for you. I went
+- [01:01:46.000] through a very tough time with some very
+- [01:01:48.760] radicalized sick people and I say I was
+- [01:01:52.480] investigated more than the great late
+- [01:01:56.000] Alons Capone. Alons Capone was a
+- [01:01:58.480] monster. He was a very hardened
+- [01:02:00.880] criminal. I went through more
+- [01:02:02.960] investigations than Alons Capone. And
+- [01:02:05.839] now I'm talking to you as president. Can
+- [01:02:08.000] you believe this? Can you believe it?
+- [01:02:14.240] So, you got to fight hard and you got to
+- [01:02:16.000] never give up and don't let bad people
+- [01:02:19.680] take you down. You got to let them you
+- [01:02:22.319] got to take them down. Got a lot of bad
+- [01:02:24.400] people out there and those people you
+- [01:02:26.000] have to figure it out. But you also have
+- [01:02:27.839] a lot of great people. Finally, hold on
+- [01:02:30.559] to your culture and your traditions
+- [01:02:32.559] because that's what makes something
+- [01:02:34.720] really great and that's what's made the
+- [01:02:36.400] army great, the culture and the
+- [01:02:39.480] tradition. Whether we're talking about a
+- [01:02:42.799] battalion, a business, a sports team, or
+- [01:02:45.359] even a nation, history has shown that in
+- [01:02:48.400] many ways, culture is destiny. So do not
+- [01:02:52.000] let anyone destroy the culture of
+- [01:02:54.160] winning. You have to win. Winning is a
+- [01:02:58.079] beautiful thing. Losing not for us. It's
+- [01:03:01.680] not for us. Not for anybody here. If it
+- [01:03:04.640] was, you wouldn't be here. From the
+- [01:03:06.799] earliest days of our nation, this
+- [01:03:09.359] supreme tradition of American military
+- [01:03:11.920] service has been passed down from
+- [01:03:14.640] soldier to soldier and generation to
+- [01:03:17.280] generation. And it's a beautiful thing
+- [01:03:19.119] to watch. Graduating today is Cadet
+- [01:03:23.520] Ricky
+- [01:03:24.839] McMahon. Ricky's
+- [01:03:28.200] greatgrandfather. Stand up wherever you
+- [01:03:30.160] are, Ricky, because you're going to like
+- [01:03:31.599] this. Ricky's great-grandfather served
+- [01:03:34.400] in World War I. His grandfather served
+- [01:03:38.319] in World War II. And his uncle, father,
+- [01:03:41.760] and mother all graduated from West
+- [01:03:44.720] Point. Where is
+- [01:03:51.079] Ricky? In
+- [01:03:53.400] 2004, when Ricky was just a little
+- [01:03:56.079] little tiny boy, who would think about
+- [01:03:57.839] that, Ricky, a little tiny boy? His dad,
+- [01:04:01.440] Lieutenant Colonel Michael McMahon, made
+- [01:04:03.839] the ultimate sacrifice for our nation in
+- [01:04:07.480] Afghanistan. Today, Lieutenant Colonel
+- [01:04:10.000] McMahon, rests not far from here in the
+- [01:04:13.920] West Point Cemetery. Last year, two
+- [01:04:16.880] decades after losing his father, Ricky
+- [01:04:18.960] placed a gold chip from his dad's 1985
+- [01:04:23.680] class ring into a crucible along 87
+- [01:04:28.640] other rings were with it of past West
+- [01:04:31.920] Point grads that were melted down to
+- [01:04:35.119] forge those now worn by the class of
+- [01:04:37.920] 2025. Do you all know that? Do you know
+- [01:04:40.160] that what you're wearing?
+- [01:04:42.720] I want
+- [01:04:44.520] one, Ricky. I want one. Each of you will
+- [01:04:48.559] carry Michael's memory with you always
+- [01:04:50.880] as you continue the legacy he gave you.
+- [01:04:53.440] It gave you something that would be so
+- [01:04:57.119] proud. He would be so proud. He is proud
+- [01:04:59.440] as he looks down to Ricky and his mom
+- [01:05:02.640] Janette. You embody what this place is
+- [01:05:06.079] all about. And I know Michael, he's up
+- [01:05:08.799] there. He's smiling broadly. So proud.
+- [01:05:12.160] He's so proud of you today. You know
+- [01:05:14.200] that. And uh he's a man that couldn't be
+- [01:05:17.359] and he is a man that couldn't be more
+- [01:05:19.520] proud. And I want to just uh I just love
+- [01:05:21.680] that story. And everybody's ringing.
+- [01:05:23.920] They're going to remember you. They're
+- [01:05:25.119] going to remember your family. And most
+- [01:05:27.359] importantly, you're going to remember a
+- [01:05:28.960] great tradition. It's a great
+- [01:05:31.400] tradition of West Point and of winners.
+- [01:05:35.280] Thank you very much. It's great to meet
+- [01:05:36.880] you. Thank you. You can sit down. You
+- [01:05:38.559] want to come up? If you want to come up,
+- [01:05:40.079] come up. Come on up.
+- [01:05:44.400] Come on up
+- [01:05:49.319] here. That's
+- [01:05:52.039] nice. Look at a handsome guy. They're
+- [01:05:54.640] all good-looking here. I don't know
+- [01:05:56.000] what's going on. The whole crowd is
+- [01:05:58.559] beautiful. Thank you very much.
+- [01:06:08.250] [Applause]
+- [01:06:09.920] I'd like to thank my mother. I'd like to
+- [01:06:12.880] thank my family. And I'd like to thank
+- [01:06:15.200] G3 Gophophers.
+- [01:06:25.760] These are good-looking people. I'll tell
+- [01:06:27.520] you, General, what's going on over here?
+- [01:06:29.760] Look like all a bunch of male models. I
+- [01:06:32.000] can't stand it.
+- [01:06:38.559] For two and a half centuries, our
+- [01:06:40.480] republic has endured because of heroes
+- [01:06:43.839] like Michael. They've laid down their
+- [01:06:46.319] lives for America. And because young
+- [01:06:48.720] people like all of you have picked up
+- [01:06:51.400] the banner of service and carried
+- [01:06:54.079] forward the flag of
+- [01:06:56.839] freedom from Lexington to
+- [01:06:59.960] Yorktown, from Gettysburg to
+- [01:07:03.400] Sicily and from Inchan to
+- [01:07:07.400] Fallujah, America has been won and saved
+- [01:07:12.000] by an unbroken chain of soldiers and
+- [01:07:14.640] patriots who ran to the sound of of the
+- [01:07:17.200] guns leapt into the m of battle and
+- [01:07:21.359] charged into the crucible of fire to
+- [01:07:24.000] seize the crown of victory. No matter
+- [01:07:26.799] the odds, no matter the cost, no matter
+- [01:07:29.920] the danger. All over the world, our
+- [01:07:32.400] soldiers have made sacred the ground
+- [01:07:35.680] where they shed their blood and showed
+- [01:07:38.160] their valor.
+- [01:07:40.000] from Seminary Ridge to San Juan Hill,
+- [01:07:43.559] Bellwood, Omaha Beach, Lee Gulf, and
+- [01:07:48.880] Ardent Forest, Chosen Reservoir all over
+- [01:07:53.440] and even a place called Orchop Hill. And
+- [01:07:58.160] in all of those battles and so many
+- [01:08:00.160] more, some of the best, brightest, and
+- [01:08:02.400] bravest have come from right here at the
+- [01:08:06.240] US Military Academy at West Point, one
+- [01:08:09.760] of the great fabled places anywhere in
+- [01:08:12.640] the world, America's Army has never
+- [01:08:15.440] failed us. And with leaders like the
+- [01:08:18.400] West Point class of 2025, the Army will
+- [01:08:22.400] never fail. We will never let you down.
+- [01:08:32.960] And over the last
+- [01:08:34.600] week, I had the honor of speaking to the
+- [01:08:38.159] heads of many
+- [01:08:39.799] countries
+- [01:08:41.560] and they would say two weeks
+- [01:08:45.000] ago they say the ETH they said,
+- [01:08:49.799] "Sir, we're celebrating the victory
+- [01:08:53.359] today of World War
+- [01:08:55.400] II And I said, "Wow, that's nice." Then
+- [01:08:59.120] I'd call another one
+- [01:09:00.759] unrelated. Sir, we're celebrating the
+- [01:09:03.359] victory of World War II. Then I called
+- [01:09:06.719] up President of France on something also
+- [01:09:10.279] unrelated. He said, "Sir, we're
+- [01:09:12.400] celebrating our victory over World War
+- [01:09:14.799] II." I said, "Whoa, whoa, what have we
+- [01:09:19.719] here? We helped them a
+- [01:09:23.400] lot." And I I had this
+- [01:09:26.839] Russia talked to Putin about ending that
+- [01:09:30.799] terrible war that's going on and he said
+- [01:09:33.040] they're having a big victory march and
+- [01:09:35.600] they did lose in all fairness 51 million
+- [01:09:38.679] people. But they were all celebrating.
+- [01:09:41.920] The only country that wasn't celebrating
+- [01:09:44.719] was the United States of America. And I
+- [01:09:46.799] said, "Isn't it amazing? We were the
+- [01:09:49.199] ones that won the war and we were
+- [01:09:51.480] helped. We were helped. In some cases,
+- [01:09:54.000] we had to help them.
+- [01:09:55.920] But we were helped by some of the
+- [01:09:58.280] nations and we were strongly helped by a
+- [01:10:00.960] couple of them. But every one of them
+- [01:10:03.360] was celebrated. They had victory day.
+- [01:10:05.120] They called it victory day in Europe.
+- [01:10:07.520] Victory day all
+- [01:10:08.920] over. And we weren't
+- [01:10:11.239] even thought about. Nobody had a victory
+- [01:10:14.880] day. And so I named that special day and
+- [01:10:18.800] another special day from now on as a
+- [01:10:22.560] holiday. but a holiday where we work
+- [01:10:24.560] because we don't have enough days. We're
+- [01:10:26.159] going to be having so many holidays
+- [01:10:28.080] we're not going to be able to work
+- [01:10:29.960] anymore. But I named it for World War II
+- [01:10:34.000] and a separate day in November, as you
+- [01:10:36.719] know, for World War I. I said, you know,
+- [01:10:40.000] all of these countries that participated
+- [01:10:43.199] in the war are celebrating, but the
+- [01:10:45.520] greatest country of them all and the
+- [01:10:48.000] country that won the war, nobody even
+- [01:10:50.960] talked about. And so we're going to be
+- [01:10:53.040] talking about it too from now on and I
+- [01:10:55.600] think you'll appreciate it. We won the
+- [01:10:57.360] first world war. We won the second world
+- [01:11:00.080] war. And you know where we won them
+- [01:11:02.000] from? Right here at West Point. West
+- [01:11:04.719] Point won the
+- [01:11:06.679] war. You won two world
+- [01:11:09.480] wars and plenty of other things. But you
+- [01:11:12.400] want think of it. We don't want to have
+- [01:11:14.719] a third world war. But we won the first
+- [01:11:17.760] world war. We won the Second World War
+- [01:11:20.239] right here from West Point. And that's
+- [01:11:22.880] something and we're going to be talking
+- [01:11:24.239] about it. You know, they can talk about
+- [01:11:25.920] it. And in some cases, as you know, they
+- [01:11:28.640] didn't do too much to help. They were uh
+- [01:11:31.840] they were ground down, but they were
+- [01:11:34.400] celebrating victory. No, we're going to
+- [01:11:36.320] celebrate victory because we're the ones
+- [01:11:37.920] that won that war. Standing before you
+- [01:11:40.960] today, I know that you will never stop.
+- [01:11:44.880] You will never quit. You will never
+- [01:11:46.480] yield. You will never
+- [01:11:48.360] tire. You will never ever ever
+- [01:11:51.440] surrender. Never give up. Remember that.
+- [01:11:53.760] Never give up. That's another little
+- [01:11:56.239] factor I could have added. Never ever
+- [01:11:58.320] give up. Raise your right hand. I pledge
+- [01:12:02.320] I will never ever give up. You can never
+- [01:12:04.800] give up. You can never give up. If you
+- [01:12:08.000] do, you're not going to be successful
+- [01:12:09.679] because you'll go through things that
+- [01:12:12.320] will be bad. You're going to have great
+- [01:12:14.480] moments. You're going to have bad
+- [01:12:15.520] moments. can never give up. Through
+- [01:12:17.360] every challenge and every battle, you'll
+- [01:12:20.239] stand strong. You'll work hard. You'll
+- [01:12:23.360] stay tough. And you will fight, fight,
+- [01:12:26.080] fight, and win, win,
+- [01:12:34.120] win. So, I want to just congratulate you
+- [01:12:37.040] all. I'm going back now to deal with
+- [01:12:40.360] Russia, to deal with China.
+- [01:12:45.679] What's that? What's that all about?
+- [01:12:48.159] That's an And to get you lots of
+- [01:12:51.840] victories. We're going to keep winning.
+- [01:12:53.600] This country is going to keep winning.
+- [01:12:55.040] And with you, the job is easy. I want to
+- [01:12:57.280] thank you all. Congratulations to the
+- [01:12:59.760] class of
+- [01:13:01.080] 2025. God bless you all. Incredible
+- [01:13:04.159] people. Thank you very much, everybody.
+- [01:13:13.980] [Applause]
+- [01:13:31.760] Ladies and gentlemen, at this time,
+- [01:13:33.600] please remain standing for the
+- [01:13:35.199] presentation of the class gift. The
+- [01:13:38.000] class president, Cadet Katherine Laru,
+- [01:13:40.560] will present a panoramic photo of the
+- [01:13:42.800] class of 2025 to the
+- [01:13:45.640] president. President Trump, on behalf of
+- [01:13:48.960] the class of 2025, I would like to
+- [01:13:51.840] present you with this class photo as a
+- [01:13:54.320] token of appreciation for your inspiring
+- [01:13:56.320] words today.
+- [01:13:58.719] Beautiful. Thank you very much.
+- [01:14:03.250] [Applause]
+- [01:14:17.330] [Music]
+- [01:14:21.960] Hey,
+- [01:14:23.480] cut. Hey,
+- [01:14:28.360] present. Class, attention.
+- [01:14:36.600] Cover.
+- [01:14:38.360] Present arms.
+- [01:14:41.520] Ladies and gentlemen, please rise for
+- [01:14:43.760] the departure of the president.
+- [01:14:47.790] [Music]

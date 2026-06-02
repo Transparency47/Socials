@@ -1,0 +1,747 @@
+<!-- source: https://www.youtube.com/watch?v=O332r5o8F98 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: O332r5o8F98 -->
+<!-- date_published: 2026-04-24T00:26:41+00:00 -->
+<!-- date_accessed: 2026-06-02T01:01:07.323355+00:00 -->
+
+# Transcript: President Trump Delivers Remarks, Apr. 23, 2026
+
+- [00:01.170] The President: Well, thank you very much,
+- [00:02.370] and I'm told this is a rather historic meeting
+- [00:05.020] because these countries have been bordering each other
+- [00:09.120] for many, many years and it doesn't happen much,
+- [00:12.310] although they like each other.
+- [00:13.890] I found that out today and I've sort of heard about that.
+- [00:16.430] They actually like each other, Lebanon and Israel.
+- [00:19.870] And we had a great meeting
+- [00:21.780] with the very high officials of Lebanon
+- [00:24.090] and very high officials of Israel.
+- [00:27.060] And we think that the president of Lebanon
+- [00:30.220] and the Prime Minister of Israel,
+- [00:31.840] over the next couple of weeks, will be coming here.
+- [00:34.720] They've agreed to an additional three weeks
+- [00:37.270] of I guess no firing, cease fire.
+- [00:41.620] No more firing. Let's see. We hope that happens.
+- [00:43.910] It's not going to happen between that,
+- [00:45.470] but they do have Hezbollah to think about.
+- [00:50.450] And we're going to be working with Lebanon
+- [00:53.460] to get things straightened out in that country.
+- [00:56.320] I really believe we,
+- [00:57.540] it's something we can do pretty easily,
+- [00:59.690] just with the power of who we are,
+- [01:01.850] the great people, the Lebanese people.
+- [01:03.670] We have our ambassador here who, who has done a fantastic job.
+- [01:08.180] Ambassador to Lebanon from the United States.
+- [01:11.670] And we had a great conversation
+- [01:14.680] and I think it's the beginning of something very important,
+- [01:16.780] to be a wonderful thing to get this worked out simultaneously
+- [01:20.550] with what we're doing in Iran.
+- [01:23.320] And I'd like to start by just asking JD,
+- [01:25.430] our vice president,
+- [01:26.710] our great vice president to say a few words,
+- [01:28.640] and then Marco will speak,
+- [01:30.780] and then the representatives from the country.
+- [01:33.790] Mike Huckabee, you'll say a few words, Mike.
+- [01:36.040] You've done a great job, by the way.
+- [01:37.300] I appreciate it. Everybody does. And JD, please.
+- [01:40.710] The Vice President: Yes, sir.
+- [01:42.000] Well, first of all, congratulations.
+- [01:43.470] Congratulations to you and our Secretary of State,
+- [01:45.510] but most importantly, congratulations
+- [01:47.150] to the people of Israel and Lebanon.
+- [01:49.260] I think it's a major historic moment.
+- [01:51.360] We're going to extend the ceasefire for three weeks,
+- [01:53.280] that's already in place between Israel and Lebanon.
+- [01:55.610] Of course, it wouldn't have happened
+- [01:57.080] without the president's direct engagement.
+- [01:58.920] The fact that you have these leaders of different countries
+- [02:01.240] coming together for the first time.
+- [02:02.940] They came together in the Oval Office,
+- [02:04.370] and they came together because of energetic diplomacy,
+- [02:07.310] of course, led by the President of the United States.
+- [02:08.990] So I think it's a big moment for the world.
+- [02:10.740] It's a big moment for our country,
+- [02:12.070] but just very proud to be a part of it.
+- [02:13.770] So thank you, sir, for making it happen.
+- [02:15.340] The President: Thank you very much, JD.
+- [02:17.050] Secretary Rubio: Thank you, Mr. President, for hosting this.
+- [02:18.730] Actually, you know, the president
+- [02:20.180] wanted to be personally involved and glad he was
+- [02:22.450] because it made it possible to get this extension,
+- [02:24.870] and it gives everybody time to continue to work
+- [02:26.820] on what's going to be a permanent peace
+- [02:28.970] between two countries that want to be at peace.
+- [02:31.070] Both are victimized by the same terrorist organization.
+- [02:34.020] A terrorist organization that no doubt has victimized Israel,
+- [02:36.690] but is also victimized the people of Lebanon.
+- [02:38.760] The people of Lebanon deserve to live in a country
+- [02:41.480] that's peaceful and prosperous.
+- [02:42.930] They have an opportunity to do that.
+- [02:44.290] They have a history of that.
+- [02:45.750] And what's standing in the way is an organization
+- [02:47.810] that operates, a terrorist organization
+- [02:49.790] that operates within their national territory
+- [02:52.020] that needs to be, that threat needs to be eliminated.
+- [02:54.770] And so thank you, Mr. President,
+- [02:56.430] for this gathering today and for,
+- [02:57.980] for convening and being a, a key part of it.
+- [03:00.250] And it buys us time to continue to work.
+- [03:01.860] I'm very optimistic that in a few weeks
+- [03:04.100] we'll be even closer to the kind of permanent peace
+- [03:06.310] that the people of Israel and Lebanon deserve.
+- [03:08.450] The President: Thank you very much.
+- [03:09.700] Michel, please.
+- [03:10.940] Michel Issa: Well, I would like to thank the president,
+- [03:13.010] the vice president and secretary
+- [03:14.650] to make this historical meeting today
+- [03:17.350] that bring two countries that they never been next
+- [03:21.120] to each other more than today in a way.
+- [03:22.920] This is 60, 70 years in the making and today
+- [03:26.080] is really the historical day.
+- [03:27.520] Thank you, Mr. President, vice president, secretary.
+- [03:30.810] And we are going to keep going, working for a peace
+- [03:34.870] that hopefully will get it as soon as possible.
+- [03:36.890] The President: Thank you. You're very successful, man.
+- [03:39.400] And when I asked him if he'd like to be ambassador
+- [03:42.220] to Lebanon, I said, "Could be a dangerous job."
+- [03:45.340] He said, "Well, I'm Lebanese. I was born in Lebanon and I,
+- [03:49.590] your parents have a whole big history."
+- [03:51.020] He said, "Danger doesn't matter to me, really.
+- [03:53.890] It's something I want to do. He's very successful.
+- [03:55.560] He didn't need this."
+- [03:57.290] And I think it's probably more dangerous than you even thought,
+- [03:59.730] but you've done a fantastic job, so --
+- [04:01.790] Michel Issa: It is an honor for me to serve you,
+- [04:04.010] Mr. President.
+- [04:05.210] And then I'm going to go till the end.
+- [04:07.310] The President: Thank you. Thank you very much.
+- [04:09.110] And likewise, Mike Huckabee.
+- [04:10.520] We all know Mike and he didn't need it either, did he?
+- [04:14.250] But he's doing a fantastic job. Mike, go ahead, please.
+- [04:17.400] Mike Huckabee: I just want to say, Mr. President,
+- [04:19.090] what an amazing opportunity to be here
+- [04:21.020] at a moment of history.
+- [04:22.590] The people of Lebanon and the people of Israel are neighbors,
+- [04:25.630] and they want to get along.
+- [04:26.900] They can get along, but it's like neighbors
+- [04:29.260] who have a rough little kid living in the neighborhood
+- [04:31.610] who keeps throwing rocks at everybody's window.
+- [04:34.230] And if the kid will quit throwing rocks,
+- [04:35.930] the neighbors can get along and start actually working together.
+- [04:40.090] The president has initiated something that
+- [04:43.030] is truly bringing the neighborhood back
+- [04:45.720] to a neighborhood,
+- [04:47.100] and recognizing that the problem is not Lebanon,
+- [04:49.290] that the problem is not Israel. The problem is Hezbollah.
+- [04:52.270] The bad little kid throwing rocks.
+- [04:54.660] That's what the president is getting launched today
+- [04:57.750] to get that little kid out of the neighborhood.
+- [05:03.060] The President: Thank you. Mr. Ambassador, please.
+- [05:05.690] Yechiel Leiter: Well, thank you, Mr. President
+- [05:06.900] for your hospitality, for bringing Israel/Lebanon
+- [05:10.730] together here in the local office.
+- [05:13.580] Israel wants peace with Lebanon,
+- [05:15.970] and Israel wants security for its citizens.
+- [05:18.760] We're united with the Lebanese government
+- [05:20.990] wanting to rid the country
+- [05:22.320] of this malign influence called Hezbollah.
+- [05:25.760] And now that Mr. President, under your leadership,
+- [05:28.650] Iran has been so degraded,
+- [05:31.370] the possibility of degrading Hezbollah
+- [05:34.120] and liberating Lebanon from their occupation is real.
+- [05:37.730] So we hope that together under your leadership,
+- [05:40.380] we can formalize peace between Israel and Lebanon
+- [05:42.610] in the very near future,
+- [05:43.870] and we are just very thankful for the opportunity.
+- [05:46.430] The President: Thank you, and I look forward
+- [05:47.690] to having the next meeting with your great prime minister.
+- [05:52.120] He is, he's a wartime prime minister,
+- [05:54.510] with Bibi and with the president of Lebanon,
+- [05:56.460] it will be fantastic.
+- [05:58.320] I think a lot of, lots going to happen.
+- [06:00.930] Madam Ambassador.
+- [06:02.280] Nada Hamadeh Moawad: Of course. Thank you so much.
+- [06:03.930] Thank you so much, President Trump.
+- [06:05.810] Thank you for your leadership,
+- [06:07.190] for making sure to be presiding over this historic moment.
+- [06:11.390] Uh, I want to really say thank you
+- [06:12.810] to the United States under your leadership for all,
+- [06:15.180] all your effort to help and to support Lebanon.
+- [06:18.040] And I think with your help, with your support,
+- [06:19.880] we can make Lebanon great again.
+- [06:21.380] Thank you so much.
+- [06:22.630] The President: Thank you. I like that phrase.
+- [06:23.870] Nada Hamadeh Moawad: Sounds nice.
+- [06:25.150] The President: That's a good phrase.
+- [06:26.410] Nada Hamadeh Moawad: MLGA.
+- [06:27.640] The President: Thank you very much.
+- [06:28.880] I think we will. Any questions? Yeah, please.
+- [06:30.400] The Press: President Trump,
+- [06:31.620] Anthony Merchak from MTV Lebanon.
+- [06:32.900] The President: Yes.
+- [06:34.140] The Press: First, thank you for having us
+- [06:35.420] in the White House for a year and a half.
+- [06:37.880] This is historical for our audience as well.
+- [06:39.420] The President: It is.
+- [06:40.650] The Press: We would like to ask you two or three questions.
+- [06:42.850] First question, the peace between Lebanon and Israel,
+- [06:45.470] do you think it will happen this year?
+- [06:47.920] The President: I think it has a great chance.
+- [06:49.280] I mean, you know, they, they're friends about the same things
+- [06:52.920] and their enemies on the same things
+- [06:54.760] and it has to do with,
+- [06:56.380] I guess you could say a couple of countries,
+- [06:57.930] but certainly it's you look at Hezbollah,
+- [07:00.840] that's where everybody seems to be united against them.
+- [07:05.000] So they are both very united in that way.
+- [07:09.100] You know, I think there's a very good chance of having peace.
+- [07:11.210] I think it should be an easy one relative
+- [07:12.780] to some of the things we're working on,
+- [07:14.540] it should be an easy one.
+- [07:15.750] But it's been so many years because nobody focused on it.
+- [07:20.570] But Lebanon was a great country. It was a beautiful country.
+- [07:23.320] Smart people, very brilliant people,
+- [07:25.180] doctors, professors, economists,
+- [07:27.970] some of the smartest people on the, on the planet.
+- [07:31.380] But it got torn apart by different factions
+- [07:34.180] and nothing having to do with them.
+- [07:36.050] P- -- outside factors.
+- [07:38.070] So I, no, I think it can be brought back pretty quickly.
+- [07:40.940] The Press: And when do you think our president
+- [07:43.110] will meet Netanyahu here at the White House?
+- [07:44.980] The President: I think we'll do it over the next,
+- [07:46.620] during this period of time, during the three-week period.
+- [07:48.740] Ideally, I mean, I'd like to suggest
+- [07:51.350] over the three-week ceasefire, right?
+- [07:54.570] If you can do that. We're here. We're doing in the Oval Office.
+- [07:58.170] The Press: And regarding Hezbollah is not,
+- [08:00.170] he's not responding to our government.
+- [08:02.820] He's doing whatever he wants.
+- [08:04.820] What do you say for Hezbollah and do you --
+- [08:06.660] The President: Well, Israel has to,
+- [08:07.860] I mean, we're just talking about it.
+- [08:09.690] Israel is going to have to defend itself
+- [08:11.490] if they're shot at and they will.
+- [08:15.500] I would never say that they can't.
+- [08:17.830] It'd be nice if they wouldn't have to bother with that,
+- [08:19.870] but if they, if something happens,
+- [08:22.270] they're going to have to defend themselves, as you know.
+- [08:24.970] But they're going to do it carefully
+- [08:26.450] and they're going to be surgical as opposed to beyond surgical
+- [08:31.040] and, you know, there's a lot they can do,
+- [08:33.540] but Israel's going to have to defend itself.
+- [08:36.030] The Press: And regarding our Lebanese Speaker, Nabih Berri,
+- [08:38.440] reportedly told Prince Yazid bin Farhan
+- [08:41.250] that Lebanon will not move forward with peace
+- [08:44.260] unless Saudi Arabia is involved.
+- [08:46.520] What is your reaction to that statement
+- [08:48.390] and do you believe Saudi Arabia must play a central role
+- [08:51.640] in a potential Lebanon-Israel peace process?
+- [08:54.670] The President: Well, Saudi Arabia is great,
+- [08:56.150] and they have a great leader,
+- [08:58.050] and I think that they'd be very happy with this.
+- [09:01.630] I haven't spoken to them. I will.
+- [09:03.210] This happened very quickly.
+- [09:05.200] Uh, but Saudi Arabia is going to be --
+- [09:08.860] they're great people, a great, great place, incredible place.
+- [09:13.080] I know it very well.
+- [09:14.430] But I know the leader very well,
+- [09:16.090] and he'd want to see something like this happen.
+- [09:18.370] He's a tremendous guy.
+- [09:20.430] The Press: And make Lebanon great again,
+- [09:22.010] this is our slogan on MTV Lebanon.
+- [09:24.030] Make, like, make America great again.
+- [09:25.580] The President: The what?
+- [09:26.810] The Press: Make Lebanon great again.
+- [09:28.060] It's our slogan on MTV Lebanon
+- [09:30.280] that all the Lebanese in our audience
+- [09:32.240] are putting hope on you, Mr. President.
+- [09:33.680] The President: Make Lebanon great again?
+- [09:34.910] The Press: Make Lebanon great again.
+- [09:36.130] The President: It's a good slogan to work for here.
+- [09:38.950] I think it's maybe the greatest political slogan
+- [09:41.540] in the history of the world, Make America Great Again.
+- [09:44.340] But, you know, we're great now,
+- [09:45.810] so I will never say that we won't use that slogan,
+- [09:48.900] MAGA, but we have another one America is back.
+- [09:53.110] Where's that at? Does anybody ever --
+- [09:55.220] No, yeah, that's the old one, and then show them the new one.
+- [09:59.210] And we never choose, we're never changing MAGA.
+- [10:01.690] (laughing)
+- [10:02.890] I don't have the courage to change MAGA.
+- [10:05.480] Make America Great Again,
+- [10:06.800] but, you know, we're really, we're great now.
+- [10:09.420] We're the hottest country anywhere in the world.
+- [10:11.170] We're the most powerful country in the world, by far.
+- [10:14.090] And we, we suffered years of abuse by people
+- [10:17.500] that were grossly incompetent like Biden, like Obama.
+- [10:21.180] Obama was incompetent. He was a great divider.
+- [10:24.750] And we are we're a great country again.
+- [10:28.020] We're respected all over the world.
+- [10:29.420] That's why this happened so fast.
+- [10:30.880] I mean, it can happen fast. Thank you.
+- [10:33.450] The Press: Sir, the, the,
+- [10:34.730] the funding that Hezbollah gets from Iran,
+- [10:37.450] is Iran going to have to cut that off to do a deal with you?
+- [10:39.530] The President: Yeah, they'll have to cut that.
+- [10:40.750] The Press: That's a must for you?
+- [10:41.990] The President: Yeah, sure. That's a must, yeah.
+- [10:43.260] The Press: Mr. President,
+- [10:44.470] apparently there was a special forces soldier
+- [10:47.820] who was involved in the capture of Venezuelan President Maduro
+- [10:51.650] who was arrested by federal authorities today
+- [10:53.730] on suspicion of insider trading and, and betting on Polymarket.
+- [10:59.530] Are you concerned that federal employees
+- [11:01.920] are betting on these prediction markets
+- [11:03.860] and potentially getting rich?
+- [11:05.760] The President: Well, I don't know about it,
+- [11:07.010] but was he betting that they would get him
+- [11:09.610] or they wouldn't get him?
+- [11:10.830] The Press: It sounds like he was betting
+- [11:12.450] on his removal from office, that Maduro would be removed.
+- [11:15.900] It sounds like he was involved in the operation.
+- [11:17.740] The President: That's like Pete Rose betting on his own team.
+- [11:20.320] It's a little like Pete Rose.
+- [11:21.610] Pete Rose, it kept him out of the Hall of Fame
+- [11:23.410] because he bet on his own team. Now, if he bet against his team,
+- [11:26.880] that would be no good, but he bet on his own team.
+- [11:28.910] I, I'll look into it. Yeah.
+- [11:30.110] The Press: There are also bets that are being placed,
+- [11:31.880] as well on the Iran conflict, too.
+- [11:34.190] And there have been some trackings where people suspect
+- [11:36.950] that there's insider trading happening
+- [11:38.790] on these prediction markets around the war.
+- [11:41.640] Are you concerned about that?
+- [11:42.840] The President: Well, you know, the whole world, unfortunately,
+- [11:46.030] has become somewhat of a casino.
+- [11:48.620] And you look at what's going on all over the world in Europe
+- [11:51.420] and every place they're doing these betting things.
+- [11:53.740] I was never much in favor of it.
+- [11:55.270] I don't like it conceptually, but it is what it is.
+- [11:59.150] No, I, I think that I'm not happy with any of that stuff.
+- [12:02.400] But they have all these different sites.
+- [12:04.750] They have predictive markets. It's a crazy world.
+- [12:08.670] It's a much different world than it was, is. Please.
+- [12:10.300] The Press: Mr. President,
+- [12:11.520] we talked about the Fed's renovation.
+- [12:13.200] Can someone other than the Justice Department
+- [12:15.310] find out the things you said you wanted to learn?
+- [12:17.830] The President: Well, it could. I mean, look, it's pretty easy.
+- [12:20.230] When you look look, with Jerome too late,
+- [12:24.150] Powell I have a real problem
+- [12:26.410] because he should have been lowering interest rates
+- [12:28.220] a long time ago. And despite that,
+- [12:30.940] we fought through it and we have the greatest economy
+- [12:33.050] we've ever had. You take a look.
+- [12:34.490] I mean, we just, I don't know what the market is today,
+- [12:37.030] but we're, broken every record over the last few days.
+- [12:39.670] And this is during a military operation or a war,
+- [12:43.320] whatever you want to call it,
+- [12:44.590] it makes no difference as far as I'm concerned.
+- [12:47.200] But we have this unbelievable economy.
+- [12:50.300] The S&P has a new record.
+- [12:51.880] The Dow is right at a new record.
+- [12:53.290] We already broke the record with the Dow.
+- [12:56.230] People said it wouldn't happen in four years.
+- [12:57.760] They said in four years, it won't be able to be possible
+- [13:00.520] to break 50,000. And we broke it with the Dow.
+- [13:03.710] And I'm actually a little bit surprised that we're breaking it
+- [13:07.680] constantly even now during this conflict.
+- [13:10.350] Because when we broke it,
+- [13:11.640] I called a lot of the people here.
+- [13:13.780] I called JD, I called Marco, I called Howard, I called Scott.
+- [13:17.940] I said, "I hate to tell you, fellas,
+- [13:19.210] but we have to do a little bit of a detour.
+- [13:20.920] We have to go to Iran
+- [13:22.120] and make sure they don't have a nuclear weapon."
+- [13:23.700] We had just broken every financial record.
+- [13:26.750] And the amazing thing is we continue to break them
+- [13:29.390] even during the war.
+- [13:30.620] Now, fuel went up, but I thought it would have gone up much more.
+- [13:33.860] And a lot of ships are coming to the United States
+- [13:37.200] and they're using the United States
+- [13:39.280] instead of the Hormuz Strait.
+- [13:43.300] Amazing things are happening. Our country is amazing.
+- [13:45.820] You know, we don't have an oil shortage.
+- [13:47.350] We have with drill baby drill.
+- [13:48.710] We, we are right now producing more oil
+- [13:51.980] than Saudi Arabia and Russia combined.
+- [13:56.080] Did you know that?
+- [13:57.520] More, and in about a year from now,
+- [13:59.760] we'll be doing double the, the level.
+- [14:01.760] And Venezuela's been fantastic.
+- [14:04.460] We have a great relationship with that country
+- [14:07.150] and with the people that are running the country.
+- [14:09.870] And we're taking out,
+- [14:11.090] we're taking in millions of barrels of oil,
+- [14:14.580] millions and millions from Venezuela.
+- [14:17.230] It's been a great experience, to be honest with you.
+- [14:19.580] And they're doing a very good job
+- [14:20.990] and they have our backing. Okay?
+- [14:24.760] Can you just clarify -- again, what exactly --
+- [14:27.120] Here, here we go. Listen to this.
+- [14:28.510] The Press: No, no, no.
+- [14:29.780] Just because the world is watching.
+- [14:31.060] The President: Yes, just clarify.
+- [14:32.300] Here we go. Here's his bomb.
+- [14:33.530] The Press: What have the two sides agreed to here?
+- [14:34.880] A three weeks ceasefire with the hope
+- [14:36.090] that the leaders come and meet?
+- [14:37.300] The President: Yeah, three week,
+- [14:38.530] and the leaders will most likely be coming here during that time.
+- [14:41.420] And I think when they do, that's a very historic meeting.
+- [14:43.660] They have never, they haven't met for many, many years,
+- [14:45.830] as I understand here. Michel Issa: Yeah, never.
+- [14:47.150] The President: They've never met.
+- [14:48.410] Michel Issa: Right.
+- [14:49.610] The President: Think of that. They're next to each other.
+- [14:52.000] They're great people and they've never met.
+- [14:54.750] This should be an easy one. Okay? Good question.
+- [14:56.340] The Press: Thank you for clarifying.
+- [14:57.490] The President: Thank you.
+- [14:58.700] The Press: Just wanted to clarify.
+- [14:59.920] The Press: The law. The Lebanese law.
+- [15:01.120] We can't communicate with Israel.
+- [15:03.140] What we can do about this law, like if we talk with a Israeli,
+- [15:06.090] it will be a crime for us as Lebanese.
+- [15:09.770] And this is a question on behalf of --
+- [15:11.110] The President: How is it a crime now?
+- [15:12.430] The Press: Under Lebanese law, it's a crime.
+- [15:13.990] You -- they put you in jail.
+- [15:15.220] The President: Well, I think we have to end that.
+- [15:16.430] Michel Issa: Yep. The President: Okay.
+- [15:17.630] That's something we're going to have to end.
+- [15:19.200] I've never heard of that. But that's a good start.
+- [15:22.930] It's a crime to talk with Israel.
+- [15:26.160] Well, I, I'm pretty sure that that'll be ended very quickly.
+- [15:29.460] Okay? I'll make sure of that.
+- [15:31.750] And I know Lebanon doesn't want that.
+- [15:34.160] We'll end up, will you work on that please, everybody?
+- [15:37.210] That's crazy.
+- [15:38.430] The Press: The ship that was captured on Monday,
+- [15:40.770] you said there was a gift for the Iranians in it.
+- [15:42.970] What was that in that ship? The one from China.
+- [15:46.880] The President: Yeah, well we have,
+- [15:48.140] that's very top secret.
+- [15:49.790] Yeah. There was some in there, but it's top secret.
+- [15:51.890] (talking simultaneously)
+- [15:53.090] The President: I'd like to, I'd like to.
+- [15:56.840] That's one of those little questions
+- [15:58.100] where, ooh, this is not good.
+- [15:59.890] No, it's we have a lot of things that we got.
+- [16:03.930] You know, that the the Strait,
+- [16:06.860] the what we've done with the blockade is amazing
+- [16:10.050] and nobody, nobody gets through.
+- [16:12.030] And nobody wants to get through. Nobody's trying.
+- [16:14.770] The one tried, they shot out the engine, but nobody's trying.
+- [16:18.900] We have complete control.
+- [16:20.860] Now they can drop their mines in there
+- [16:23.570] and do all those stupid things.
+- [16:25.170] It's just going to take longer for them to make money
+- [16:27.190] because the mines are going to affect them
+- [16:29.180] much more than they're going to affect us.
+- [16:30.770] But and we don't know that they're doing that,
+- [16:32.930] but they could be that they are,
+- [16:34.260] and if they're doing it, it's a very foolish thing to do.
+- [16:36.730] Just like for Iran to shoot at Saudi Arabia,
+- [16:39.610] UAE and Qatar and Kuwait, Bahrain,
+- [16:44.760] all the different places they, they shot.
+- [16:47.940] Nobody expected that.
+- [16:49.330] They thought they'd shoot at Israel in all fairness,
+- [16:51.540] but you didn't expect they'd be shooting
+- [16:53.060] at numerous other countries. I think it was a big mistake.
+- [16:56.700] If they're putting mines down,
+- [16:58.050] it's a big mistake for them, I will say.
+- [17:00.070] The Press: Are you angry at China
+- [17:01.510] for what they sent Iran?
+- [17:02.910] The President: No. No. No.
+- [17:06.490] I guess we do the same thing, don't we?
+- [17:08.800] With other countries.
+- [17:10.440] You know, it's like one of those things,
+- [17:14.220] but nothing that are, it wasn't earth shaking. Yeah?
+- [17:18.800] The Press: There's some reporting today, sir,
+- [17:20.220] that you intend to invite Vladimir Putin
+- [17:22.070] to the G20 in Miami. Is that the case?
+- [17:24.510] The President: No, but if he came,
+- [17:26.330] it would be probably very helpful.
+- [17:28.710] You know, I've said a long time ago when they made the G8,
+- [17:31.660] the G7, they threw Russia out before my time.
+- [17:37.110] That was Obama and a certain prime minister
+- [17:41.750] from a place called Canada, Strudeau.
+- [17:45.280] And I said, "That, that's a stupid thing to do."
+- [17:48.530] And I was right.
+- [17:49.810] You know, they spent, I'd go to these meetings at the G7
+- [17:54.440] and about 90% of the meeting was talking about Russia
+- [17:58.230] and what's going on with Russia.
+- [18:00.830] And I said, "Why'd you throw them out?"
+- [18:02.340] You know, if, if they didn't throw them out,
+- [18:06.000] they would have been much better off, in my opinion, you know.
+- [18:08.250] It should, it should have been the G8.
+- [18:10.850] But when they threw out President Putin
+- [18:13.850] he was very offended by that.
+- [18:15.310] He was rightfully, but he was very offended by that.
+- [18:18.240] I'd venture to say
+- [18:19.530] you probably wouldn't be having these problems
+- [18:21.420] if you didn't throw him out.
+- [18:23.570] The Press: So he's not coming to the G20,
+- [18:24.930] as far as you're concerned?
+- [18:26.160] The President: Not that I know of, but --
+- [18:27.400] The Press: Because there are senior administration officials
+- [18:28.960] being quoted in,
+- [18:30.180] in news reports this afternoon that says they're being,
+- [18:33.380] the Russians are being invited
+- [18:34.720] to at least ministerial meetings at this point.
+- [18:36.380] The President: Well, you're, you're saying being invited
+- [18:37.850] as opposed to coming.
+- [18:39.120] I don't know of the invitation, but if he were invited --
+- [18:42.250] The Press: Would you like him to come?
+- [18:43.630] The President: I'm of the opinion
+- [18:44.850] that you talk to everybody.
+- [18:46.630] I'm not one of these guys that, "Oh, let's not talk to him.
+- [18:48.790] You know, there's a war going or let's not talk to him."
+- [18:51.080] I like talking to everybody.
+- [18:52.850] If you, if you're a smart person,
+- [18:54.920] if you have control over your emotions
+- [18:57.630] and all the other things you need control over,
+- [18:59.750] I'm, I'm somebody that believes in talking.
+- [19:02.720] I don't know of that. I don't know that he's coming.
+- [19:05.140] I doubt he'd come, to be honest with you.
+- [19:06.860] I sort of doubt he'd come.
+- [19:08.910] But we're working on trying to get that one solved,
+- [19:11.950] that would be number nine. I, I've ended eight wars, um,
+- [19:17.970] and that one is, but it's, they continue to fight.
+- [19:20.920] The hatred between him and President Zelenskyy
+- [19:25.800] is extraordinary, I can tell you.
+- [19:28.460] The Press: Can I ask you a FIFA question, sir?
+- [19:30.380] What do you think of this idea of replacing Iran with Italy
+- [19:33.060] in, in the World Cup?
+- [19:36.730] The President: I don't think about it too much.
+- [19:41.220] That's an interesting question. Let me, let me give it.
+- [19:44.510] You know what? Let me give that a little,
+- [19:46.960] that's a very, is that what they're doing?
+- [19:48.510] They're thinking about replacing them?
+- [19:50.010] The Press: Apparently it's a proposal. But Marco --
+- [19:52.600] The President: Marco, could you make a statement on that please?
+- [19:54.420] What do you think of --
+- [19:55.630] Secretary Rubio: Yeah, there's nothing from the US
+- [19:57.300] has told them they can't come.
+- [19:58.780] I mean, the problem with Iran, it would be not their athletes.
+- [20:01.690] It would be some of the other people
+- [20:03.100] that we want to bring with them,
+- [20:04.340] some of whom have ties to the IRGC,
+- [20:06.140] we may not be able to let them in,
+- [20:07.350] but not the athletes themselves.
+- [20:09.530] But no one's, I don't know where that's coming from,
+- [20:11.360] other than speculation that Iran may decide not to come
+- [20:14.090] and Italy would fill their spot.
+- [20:15.750] But that's, if they decide not to come on their own,
+- [20:17.550] it's because they decided not to come,
+- [20:19.050] what they can't bring is a bunch of IRGC terrorists
+- [20:21.080] into our country and pretend that they're, you know,
+- [20:23.430] journalists and athletic trainers.
+- [20:26.830] The President: We would not want to affect the athletes.
+- [20:29.720] The Press: Is the government going to buy a stake
+- [20:31.360] in Spirit Airlines?
+- [20:34.150] The President: So Spirit is an airline
+- [20:39.870] that's had some trouble.
+- [20:41.480] They were going to merge with People Express
+- [20:44.590] or one of them a number of years ago
+- [20:47.340] and Barack Hussein Obama decided it was a bad idea.
+- [20:50.230] How did that work out? It's bad for both of them.
+- [20:52.410] That would have been a natural merger.
+- [20:54.430] Not united in American, but Spirit and the other.
+- [20:59.010] We're looking at helping them.
+- [21:00.280] We have 18,000 people that live in this country
+- [21:04.530] that are great people and great employees
+- [21:06.340] and we're thinking about doing it, helping them out,
+- [21:09.060] meaning bailing them out or buying it.
+- [21:11.180] I think we just buy it.
+- [21:13.420] Uh, we'd be getting it virtually debt free.
+- [21:17.290] They have some good aircraft, good assets,
+- [21:19.890] and when the prices of oil goes down,
+- [21:21.920] we'll sell it for a profit.
+- [21:23.760] I'd love to be able to save those jobs.
+- [21:25.440] I'd love to be able to save an airline.
+- [21:27.670] I like having a lot of airlines, so it's competitive.
+- [21:31.550] So we are looking at Spirit.
+- [21:32.830] It's in a bankruptcy, it's in bankruptcy court,
+- [21:36.080] and we're looking, if we could get it for the right price,
+- [21:38.490] I'd do it to save the jobs,
+- [21:39.800] and we have somebody that wants to run it,
+- [21:43.300] do a good job, smart person, and if they run it properly,
+- [21:47.400] and if prices come down, all of a sudden it's a valuable asset.
+- [21:52.280] And they have some very good slots too,
+- [21:53.740] which are pretty valuable.
+- [21:54.950] The Press: You will visit Lebanon and visit
+- [21:56.680] the ambassador to the embassy
+- [21:58.240] because we're building a huge US embassy in Lebanon.
+- [22:02.830] Are you going to plan to launch it for opening
+- [22:06.280] or attending for the opening?
+- [22:07.560] The President: You want to answer that?
+- [22:09.210] Michel Issa: Well, we're working on it.
+- [22:10.630] It's not done yet, but once it's done,
+- [22:12.710] I will ask the president to come and cut the ribbon.
+- [22:17.840] The President: I have no objection to that.
+- [22:19.210] Go ahead, please.
+- [22:20.550] The Press: In the UK today,
+- [22:21.770] they've just announced a total of $1.3 billion
+- [22:27.010] in returns from digital service tax,
+- [22:28.900] which you in the past have called it an unfair tax
+- [22:31.330] on American companies. You know it very well.
+- [22:33.840] You have, you previously called for investigations,
+- [22:35.740] but so far as we can tell there has been none.
+- [22:37.700] Would you call for that --
+- [22:38.910] The President: I'd say, so what tax is this?
+- [22:40.130] The Press: A digital service tax is, they kind of nicknamed it,
+- [22:42.390] the tech tax or big tech tax that kind of --
+- [22:44.590] The President: They're going to put a tax
+- [22:45.850] on basically American company? Did you say the UK?
+- [22:48.570] The Press: Yes, sir.
+- [22:49.810] And they made $1.3 billion last year.
+- [22:53.450] So is that something you would kind of investigate,
+- [22:55.520] call for it to be scrapped, have a look at?
+- [22:57.390] The President: We don't like it when they target
+- [22:58.650] American companies, because basically you're talking
+- [23:00.790] about our great American companies.
+- [23:03.140] Whether we like those companies or don't like them,
+- [23:05.130] they're American companies.
+- [23:06.360] They, they, they're top companies in the world.
+- [23:11.040] And we are looking at it, we've been looking at it.
+- [23:13.720] UK did it, couple of other people did it.
+- [23:15.560] They think they're going to make an easy buck
+- [23:17.040] that's why they've all taken advantage of our country.
+- [23:19.730] They don't take advantage of it.
+- [23:20.930] No, we've been looking at it, and we can meet that very easily
+- [23:24.090] by just putting a big tariff in the UK,
+- [23:26.020] so they better be careful. If they don't drop the tax,
+- [23:28.060] we'll probably put a big tariff in the UK. Okay?
+- [23:31.040] The Press: Won't they expect 5%, 10%,
+- [23:33.120] something similar to what you've done before?
+- [23:34.590] The President: Well, more than what they're getting.
+- [23:36.570] They shouldn't be doing that.
+- [23:37.900] That's, all that's doing is really targeting,
+- [23:41.550] it's targeting great companies, but they're our companies.
+- [23:44.120] It's like us targeting their companies,
+- [23:45.880] which we could do very easily.
+- [23:47.840] But you don't have big companies like that.
+- [23:49.680] You don't have those great companies.
+- [23:51.100] Not fair.
+- [23:52.470] Uh, I have, I have an obligation to protect our companies.
+- [23:57.360] That's how they (Inaudible) became great.
+- [23:59.140] And they become great during my administration.
+- [24:01.260] My first four years, we had this,
+- [24:02.560] we had the best economy in history of my first four years,
+- [24:05.830] and this will blow it away. Look at it.
+- [24:07.280] During a war, we have the highest stock market.
+- [24:09.810] During a, you know, a war,
+- [24:12.960] it's not a big war for us, but it's a war.
+- [24:15.980] And during the war, we have the highest stock market.
+- [24:17.890] I have to protect this country,
+- [24:19.250] so if they want to do the service tax,
+- [24:21.700] France did it also, and some others.
+- [24:24.240] And I mean, literally I have a meeting
+- [24:27.410] after this having to do with that exact question.
+- [24:30.960] And what we'll do is we'll reciprocate
+- [24:34.780] by putting something on that's equal or greater
+- [24:37.190] than what they're doing.
+- [24:38.420] And, and they won't be happy about that.
+- [24:40.560] No, that's enough. You've asked so many questions.
+- [24:42.890] The Press: Mr. President, I emailed
+- [24:44.150] the Virginia Department of Elections earlier today
+- [24:47.070] and asked them if they had seen any evidence of election
+- [24:49.610] tampering of fraudulent mail ballots being passed
+- [24:52.390] in the Tuesday election or if there was any evidence
+- [24:54.390] of non-citizens voting in that election.
+- [24:56.490] Why did you say that that election was rigged?
+- [24:58.400] The President: Well, you have mail-in ballots
+- [24:59.620] and they found a lot of them
+- [25:00.860] at the end of the day all of a sudden.
+- [25:02.080] The Press: They said that they have received
+- [25:03.300] no credible information related to this.
+- [25:04.870] The President: Well, I know you'd say that no matter what.
+- [25:06.630] You know, you've been saying that for years
+- [25:08.010] and now they're finding out that the 2020 election
+- [25:10.180] was totally rigged and when you look at what just --
+- [25:12.240] The Press: Where's the evidence of that?
+- [25:13.510] The President: Excuse me.
+- [25:14.740] How do you defend what just happened
+- [25:16.170] where your southern law, whatever it is,
+- [25:18.150] has given money to KKK,
+- [25:20.810] they're supposed to protect people
+- [25:22.160] and they're paying all these people,
+- [25:23.700] crooked as can be millions of dollars,
+- [25:26.330] millions of dollars going all,
+- [25:27.850] to all these people that they're supposed to be protecting from,
+- [25:30.820] but they're actually supporting them
+- [25:33.000] because they want to have companies that they can protect
+- [25:35.260] and because they want to rig elections?
+- [25:36.800] That was all a rigged election.
+- [25:38.610] All of the things were Charlottesville,
+- [25:40.890] all of the stuff that they did, and you won't bring that up,
+- [25:44.170] but you'll bring up some nonsense.
+- [25:45.710] Let me tell you, the election we were winning all day long,
+- [25:48.700] it's a totally horrible situation.
+- [25:51.100] Hopefully the courts will overturn it,
+- [25:52.660] what they did in Virginia.
+- [25:54.360] Uh, you have a grossly incompetent governor.
+- [25:56.790] Yet a very good governor did a good job.
+- [25:58.460] You know, all those companies
+- [25:59.710] that want to move into Virginia now,
+- [26:01.090] they want to move out and go to a different location.
+- [26:04.060] So that's my opinion. I believe it was a rigged election.
+- [26:06.840] Virginia's known for it. It was a rigged election.
+- [26:09.600] They had a lot of ballots, mail-in ballots.
+- [26:12.470] Anytime you have mail-in ballots --
+- [26:14.500] anytime you have mail-in ballots you have cheating.
+- [26:16.550] Did you have something?
+- [26:17.770] The Press: Yes.
+- [26:19.000] The, you said that the US will work with Lebanon
+- [26:21.680] to protect itself from Hezbollah.
+- [26:22.950] What does that look like exactly?
+- [26:24.240] The President: What is that?
+- [26:25.470] The Press: You said that the US will work with Lebanon
+- [26:27.300] to protect itself from --
+- [26:28.560] The President: Oh, we're just going to work with them.
+- [26:30.280] I mean, we have a good relationship with Lebanon.
+- [26:33.010] It's amazing that --
+- [26:34.810] You know, it's, it's, the amazing thing
+- [26:36.350] is they actually have sort of a good relationship with Israel
+- [26:38.330] and they don't deal with each other,
+- [26:39.560] but now they're going to deal with each other.
+- [26:41.010] We're putting them together.
+- [26:42.220] The Press: What's the material support
+- [26:43.430] that you intend to provide?
+- [26:44.630] The President: We're going to help.
+- [26:45.830] We're just going to help them. We're going to help them.
+- [26:48.120] If they're great people, it can be a really good country again,
+- [26:51.710] maybe a great country again.
+- [26:53.120] And I think you have all the ingredients,
+- [26:55.640] so we're going to work together. And I think Israel is going to,
+- [26:59.160] I think Israel is going to be terrific,
+- [27:00.790] but they do have a common problem.
+- [27:02.260] It's Hezbollah. Okay, couple of more.
+- [27:04.410] The Press: Some, some House Republicans
+- [27:05.900] are saying that they don't want to vote for a bill
+- [27:07.680] that just has a Homeland Security funding.
+- [27:09.950] Would you support them expanding that
+- [27:11.420] to include other tax and defense measures?
+- [27:13.310] The President: Well, I'd love to see one thing.
+- [27:14.710] You know what that is?
+- [27:15.950] The Press: What's that?
+- [27:17.160] The President: Save America.
+- [27:18.980] I'd love to say the Save America Act,
+- [27:21.790] which is voter ID, which is proof of citizenship,
+- [27:27.170] which is, by the way, no mail-in voting,
+- [27:29.930] which is a fraud. Anytime you have mail-in voting,
+- [27:32.180] you're going to have a fraudulent election.
+- [27:34.540] But I'd leave it for military, you know,
+- [27:37.740] mail-in voting for military, for people that are sick,
+- [27:40.640] for people that are traveling like business
+- [27:42.570] or whatever, different things.
+- [27:44.600] But disability where they have a problem,
+- [27:47.840] but no mail-in ballots. We added a couple of things.
+- [27:51.140] No men playing in women's sports.
+- [27:52.960] It's unrelated, but it's a popular thing,
+- [27:56.650] and no transgender mutilization of our children.
+- [28:00.460] So that's it. Thank you very much, everybody.

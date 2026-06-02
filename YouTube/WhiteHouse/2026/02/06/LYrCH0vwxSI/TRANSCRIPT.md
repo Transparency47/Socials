@@ -1,0 +1,377 @@
+<!-- source: https://www.youtube.com/watch?v=LYrCH0vwxSI -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: LYrCH0vwxSI -->
+<!-- date_published: 2026-02-06T00:23:40+00:00 -->
+<!-- date_accessed: 2026-06-02T02:38:11.549323+00:00 -->
+
+# Transcript: President Trump Makes an Announcement, Feb. 5, 2026
+
+- [00:02.770] Announcer: Ladies and gentlemen,
+- [00:04.260] the President of the United States,
+- [00:06.460] Donald J. Trump.
+- [00:08.250] (applause)
+- [00:13.090] The President: Thank you very much.
+- [00:15.900] Thank you. This is a big deal. This is a very big deal.
+- [00:19.810] People are going to save a lot of money and be healthy.
+- [00:23.360] So we're here this evening to celebrate
+- [00:27.070] the launch of one of the most transformative healthcare
+- [00:30.870] initiatives of all time.
+- [00:32.440] There's never been anything like it.
+- [00:34.790] Starting tonight,
+- [00:36.210] dozens of the most commonly used prescription drugs
+- [00:39.810] will be available at dramatic discounts
+- [00:42.540] for all consumers throughout a new website.
+- [00:46.840] It's called TrumpRx.gov. That's TrumpRx.gov.
+- [00:52.800] For years, politicians from both parties
+- [00:55.640] have promised to bring down prescription drug prices
+- [00:59.120] and make healthcare more affordable,
+- [01:01.750] but they all failed. It was all words, as usual.
+- [01:05.270] They failed and they failed badly.
+- [01:07.240] They tried doing this. Some of them --
+- [01:08.940] most of them didn't even try
+- [01:10.990] because they never really had a shot at it,
+- [01:12.810] but I'm actually getting it done.
+- [01:15.600] And it is done, actually.
+- [01:17.730] This launch represents the largest reduction
+- [01:20.140] in prescription drug prices in history by many, many times,
+- [01:24.790] and it's not even close.
+- [01:26.320] You're going to see numbers that you're not going to believe.
+- [01:29.110] Americans have long been paying the highest drug prices
+- [01:32.240] anywhere in the world,
+- [01:33.460] while other countries often paid pennies on the dollar
+- [01:36.120] for the exact same drugs.
+- [01:38.890] We were essentially subsidizing the entire world
+- [01:41.750] and subsidizing by hundreds of billions of dollars every year.
+- [01:46.210] The United States has just four percent
+- [01:49.080] of the world's population
+- [01:50.410] and consumes only 13 percent of all prescription drugs,
+- [01:54.630] yet pharmaceutical companies have been making
+- [01:56.840] 75 percent from these drugs.
+- [01:59.810] Think of it, 75 percent of the money they made
+- [02:03.490] came from the United States,
+- [02:04.790] with a smaller population than what we will call the world.
+- [02:09.250] The American people were effectively subsidizing
+- [02:12.270] the cost of drugs for the entire world
+- [02:14.670] and it's not going to happen any longer.
+- [02:16.360] We ended it. Everybody knew it was unfair for 30 years,
+- [02:20.540] but nobody did anything about it.
+- [02:22.400] Under the most favored nation agreements,
+- [02:25.360] my administration has negotiated the United States
+- [02:28.430] will pay the lowest price paid by any other country.
+- [02:32.990] So we're taking the lowest price paid for drugs,
+- [02:37.490] we will pay equal to whatever the lowest price
+- [02:41.350] anywhere in the world,
+- [02:42.740] that's the price that you're going to be paying.
+- [02:44.810] It's a tremendous reduction.
+- [02:47.620] Drug prices in other nations will go up by doing this.
+- [02:51.190] They had to agree and the reason they agreed is I used tariffs.
+- [02:54.150] I said, if you don't put them up,
+- [02:56.090] then we're going to put tariffs on your nation,
+- [02:58.220] which will be more expensive to you.
+- [03:01.090] So in many cases, the drug costs will go up by double
+- [03:04.430] and even triple for them,
+- [03:06.530] but they're going way down for the United States,
+- [03:09.500] come all the way down by a difference of as much as 300,
+- [03:12.230] 400, 500,
+- [03:13.560] even 600 percent, even more than that in some cases.
+- [03:17.570] For example, you will see dramatic reductions in the cost
+- [03:22.150] of popular weight loss drugs known as GLP-1s, GLP-1s.
+- [03:29.450] Novo Nordisk will be slashing the price, as an example,
+- [03:33.150] of Ozempic from more than $1,000 to $199
+- [03:40.800] and the price of Wegovy from more than $1,300 to $199.
+- [03:48.600] Nobody can even believe it, a 578 percent difference.
+- [03:53.580] Eli Lilly, who has been very helpful to us
+- [03:56.700] in getting this done,
+- [03:58.430] will be cutting the cost of its common insulin drug
+- [04:01.670] and medication from $200 to $25.
+- [04:05.550] Nobody can believe it, $200 to $25.
+- [04:09.990] AstraZeneca is slashing the price of a common inhaler
+- [04:13.550] from $458 to $51,
+- [04:18.660] a difference of nearly 800 percent.
+- [04:21.540] And we're also delivering historic discounts
+- [04:23.990] for couples struggling with infertility,
+- [04:26.930] as EMD Serono will dramatically
+- [04:30.080] cut the cost of its most common IVF drugs.
+- [04:34.360] For example, a single dose of the most common IVF drug
+- [04:38.080] in the country,
+- [04:39.630] GONAL-f will plummet from the highest price
+- [04:43.810] in the developed world that we paid,
+- [04:45.780] the United States was subsidizing everybody.
+- [04:48.550] We paid the highest to the lowest price in the world,
+- [04:51.930] which we'll be demonstrating very shortly.
+- [04:55.030] We have some very talented people coming up and showing you
+- [04:57.530] how it's going to work and how the website works.
+- [05:00.190] All of these discounts and more will be available directly
+- [05:03.340] to consumers starting today at TrumpRx.gov.
+- [05:08.600] In just a moment, we will demonstrate
+- [05:10.660] how you can go to the website, get a coupon
+- [05:13.550] and pick up your heavily discounted prescription drugs,
+- [05:16.650] highest level, drugs, the highest level company,
+- [05:20.380] finest in the world, biggest in the world,
+- [05:22.490] most powerful drug companies in the world.
+- [05:25.810] And we had to go through them
+- [05:27.290] and then we had to get all of these countries worldwide
+- [05:30.130] to lower their prices, for us and help us lower our price.
+- [05:34.180] And what they did is, again, their prices went up by double,
+- [05:38.580] triple and even sometimes four and five times,
+- [05:42.290] but the dozens of commonly used drugs available today
+- [05:44.990] are just the beginning.
+- [05:46.260] 16 of the 17 largest pharmaceutical companies
+- [05:50.780] have signed agreements and the other one is coming.
+- [05:53.470] Believe me, they're coming, committing that going forward,
+- [05:56.320] all new medicines they bring to the market in the United States
+- [06:00.040] will be available at Most Favored Nation prices.
+- [06:04.320] For those that don't know, that means in the entire world,
+- [06:07.990] most favored, we get the most favored, the lowest price.
+- [06:13.270] So if somebody gets a great price,
+- [06:15.210] that's great for us because we get it.
+- [06:16.840] So this is the exact opposite of what's been happening
+- [06:19.280] for the last 30 plus years.
+- [06:21.180] This policy,
+- [06:22.560] which is a key pillar of the great healthcare plan,
+- [06:26.270] is going to bring co-pays plummeting down
+- [06:29.140] and save Americans billions and billions of dollars
+- [06:32.100] making healthcare much more affordable,
+- [06:34.400] like at a level that you couldn't believe.
+- [06:36.130] In my first administration, I kept drugs pretty even.
+- [06:40.980] I thought I was doing a great job,
+- [06:43.280] but this is really the great job.
+- [06:44.830] There's never been anything like it.
+- [06:46.250] Nobody thought it was possible to get it done.
+- [06:48.210] It's the biggest thing to happen in healthcare,
+- [06:50.360] I think in many, many decades.
+- [06:52.900] Under these agreements, the top pharmaceutical companies
+- [06:57.440] will also be investing hundreds of billions of dollars
+- [07:00.430] to bring drug manufacturing back to America.
+- [07:03.380] It's already happening.
+- [07:04.580] They're building plants all over the country.
+- [07:06.420] Eli Lilly is building six plants with billions
+- [07:09.450] and billions of dollars each,
+- [07:10.840] which means jobs, economic growth,
+- [07:13.620] factory openings and far greater national security.
+- [07:17.170] And it's really, a big factor was the tariffs.
+- [07:20.020] We're charging very substantial tariffs for companies
+- [07:24.160] that don't want to make their drugs
+- [07:26.050] or pharmaceuticals and automobiles and other things,
+- [07:29.990] if they don't want to make them in the United States,
+- [07:31.730] they have to pay very big penalties
+- [07:33.260] in the form of tariffs.
+- [07:34.490] And what that means is they're all coming here.
+- [07:37.140] Every industry is coming here.
+- [07:39.360] We're taking in more than $18 trillion
+- [07:42.140] into the United States because of tariffs.
+- [07:44.730] Companies, the only way they can avoid them is to build here,
+- [07:48.850] they avoid paying the tariff.
+- [07:50.120] Now, they've been doing that, countries, to us for 30 years.
+- [07:55.130] That's how we lost so much business.
+- [07:56.750] They were drying up our -- our country.
+- [08:01.010] They were -- we were losing factories, we were losing jobs
+- [08:04.200] like nobody's ever seen for many, many years.
+- [08:06.460] And now it's all been reversed and we've never had a period --
+- [08:09.650] This is the wealthiest our country has ever been.
+- [08:12.910] We have hundreds of billions of dollars a year pouring in
+- [08:17.270] and we're taking advantage of it.
+- [08:18.760] I want to give a special thanks to Airbnb co-founder
+- [08:22.460] and now much more importantly,
+- [08:24.670] the chief design officer of the United States,
+- [08:27.240] Joe Gebbia, and the entire team at the National Design studio.
+- [08:32.060] They're unbelievably talented people.
+- [08:34.500] This group of geniuses could be doing anything right now.
+- [08:37.760] They could have been making a big fortune out there,
+- [08:40.500] but they decided they want to be with government
+- [08:43.290] and do exactly what you're going to see tonight
+- [08:45.500] and also some other things having to do with our country.
+- [08:48.170] And I want to thank Joe.
+- [08:49.820] With their help, our American by design initiative
+- [08:52.990] will fully transform
+- [08:54.510] our most dated federal systems and services,
+- [08:57.120] providing Americans the richest, most beautiful
+- [09:00.210] and most user-friendly government experience
+- [09:02.820] in the entire world.
+- [09:04.090] We have the greatest designers in the entire world
+- [09:08.400] and they're with our country.
+- [09:09.720] They love our country. That's why they're doing it.
+- [09:11.650] So now, I'd like to invite administrator of the centers
+- [09:15.950] for Medicare and Medicaid services,
+- [09:18.340] an incredible guy,
+- [09:19.630] a really brilliant man, Dr. Mehmet Oz,
+- [09:23.060] to show us how this beautiful new website works.
+- [09:26.840] And Dr. Oz, come on, let's see what you can tell us.
+- [09:30.030] Thank you.
+- [09:31.260] By the way, everybody, you're going to save a fortune
+- [09:34.100] and this is also so good for overall healthcare.
+- [09:37.910] And Oz, you've done a fantastic job.
+- [09:39.340] Thank you very much.
+- [09:40.590] Administrator Oz: Thank you, sir.
+- [09:41.810] So you demanded -- president demanded --
+- [09:46.710] -- that we have Most Favored Nation drug pricing,
+- [09:51.330] which he explained beautifully.
+- [09:52.910] Today, you can now get access to these discounted,
+- [09:56.920] steeply discounted prices. All the hard work the president
+- [10:00.020] and the administration have done now is yours,
+- [10:02.140] but you have to go check TrumpRx.gov.
+- [10:04.390] So if you have access, please log on right now.
+- [10:07.260] It's free. You get to look at all the prices
+- [10:09.580] and you should not be buying drugs any more going forward,
+- [10:13.450] without at least checking to see
+- [10:14.920] if those medications are available
+- [10:16.510] at these discounted prices on TrumpRx.gov.
+- [10:19.460] That stated, Mr. President,
+- [10:20.700] many people don't appreciate this,
+- [10:21.950] but one of the most special things you've been able to do,
+- [10:24.370] besides negotiating these kinds of deals,
+- [10:26.690] is bringing wonderful people around you
+- [10:28.500] who can actually fulfill the dream
+- [10:30.710] of making drugs accessible so Americans
+- [10:32.520] no longer suffer that affordability issue.
+- [10:34.630] One in three Americans are turned away from the drugstore;
+- [10:36.920] they can't afford the drugs. No more.
+- [10:38.580] Our most vulnerable are protected.
+- [10:40.430] To do that, you need brilliant software engineers
+- [10:42.880] and Ed Casteen led a wonderful group
+- [10:44.460] that you hired, folks, again,
+- [10:45.700] who would never normally have come into government
+- [10:47.650] to work to make this possible.
+- [10:49.340] And Joe, just a superstar
+- [10:50.910] and he's going to take us through the website.
+- [10:52.670] Joe Gebbia: Thanks, Dr. Oz.
+- [10:53.880] Mr. President, I've launched some big websites
+- [10:56.950] and this is one I think you're going to be very proud of.
+- [11:00.630] Um, so you mentioned GONAL-f.
+- [11:02.500] I think this is an interesting drug that we can check and see,
+- [11:04.740] how do you find a drug on the site?
+- [11:06.480] So we'll pull up the website here.
+- [11:09.500] This is TrumpRx.gov.
+- [11:11.750] And I'm going to start at the search bar
+- [11:13.290] where I can search by the drug name.
+- [11:15.010] So I type in GONAL-f and I see it autocompletes.
+- [11:18.610] When I click on this, I have a beautiful page
+- [11:20.970] that shows the drug product. And right at the top,
+- [11:24.400] I see this is 83 percent off the original price.
+- [11:27.770] Now, how do I get this discount?
+- [11:30.000] I take this coupon and I bring it to the pharmacy.
+- [11:33.160] I can print it out.
+- [11:34.480] I can add it to my wallet on my phone,
+- [11:36.620] whether it's an Apple and Android.
+- [11:38.460] I show it to the pharmacist,
+- [11:39.740] and I get the coupon credit right at the register.
+- [11:44.470] Now this is an intelligent site. We know that there's other drugs
+- [11:48.060] that are commonly prescribed along with this.
+- [11:49.910] So we surface them here and they work with the same coupon.
+- [11:53.740] OK, next. What pharmacies can you go to to get this drug?
+- [11:57.230] It's a smart site.
+- [11:58.550] We pull up exactly where you can go to get this.
+- [12:00.410] Now go on the left is a specialty drug,
+- [12:02.860] so you get it through the mail.
+- [12:04.570] I can call any one of these pharmacies
+- [12:07.160] and they deliver it straight to my home.
+- [12:08.990] It's that simple.
+- [12:10.660] Administrator Oz: Mr. President, one in three families
+- [12:12.020] is having trouble having a baby.
+- [12:13.340] We're going to have a lot of babies with these costs.
+- [12:16.030] Folks cannot afford these medications.
+- [12:17.560] It's going to change their lives.
+- [12:19.520] Now this is the tip of the iceberg
+- [12:21.150] because Joe did a lot more with Ed
+- [12:23.030] and the rest of the National Design Studio.
+- [12:24.990] How many more medications do you have?
+- [12:26.420] Joe Gebbia: Well, the website launches with over
+- [12:27.800] 40 magic medications,
+- [12:30.170] ones that are the popular medications
+- [12:32.180] and ones that were previously very expensive.
+- [12:34.680] These are things like asthma inhalers, the GLP-1s.
+- [12:38.090] And on TrumpRx shot --
+- [12:39.640] you can actually find things like the weight loss shots
+- [12:42.230] and also new form factors like the weight
+- [12:45.170] or the weight loss pill.
+- [12:46.860] Let's click on this and see the discount for the pill.
+- [12:50.190] 89 percent off the original price.
+- [12:53.330] As you mentioned, Americans for the first time,
+- [12:55.830] are getting the lowest cost priced drugs
+- [12:58.050] like the rest of the world is. And we're not done.
+- [13:00.530] We're adding more and more drugs week over week.
+- [13:03.600] So going forward,
+- [13:05.300] it's an invitation to the nation to check
+- [13:08.180] TrumpRx.gov anytime you get a prescription.
+- [13:11.530] Administrator Oz: Mr. President, we're breaking news.
+- [13:12.910] This weight loss shot that you've talked about a lot.
+- [13:15.580] This is the weight loss pill. And with these pills,
+- [13:18.540] which are actually even less expensive than the shots,
+- [13:21.010] we project that America will lose about
+- [13:22.850] 100 million pounds this year,
+- [13:25.160] which is going to make not only folks a lot healthier
+- [13:27.290] but a lot easier to manage when they do get ill.
+- [13:30.250] But I'm particularly drawn, as I know you are,
+- [13:32.410] to the plight of folks, young couples,
+- [13:34.230] trying to have children.
+- [13:35.540] And that first medication, one of the first ones
+- [13:37.230] we did most favored nation drug pricing on
+- [13:39.320] has helped an immense number of folks.
+- [13:41.540] But the first person to use
+- [13:43.090] TrumpRx.gov to buy GONAL-f is here,
+- [13:45.810] and I wanted to introduce her to you if you don't mind.
+- [13:47.820] Catherine's with us.
+- [13:49.770] Oh, perfect, Secretary Kennedy's going to escort her.
+- [13:59.330] Catherine Rayner: Good evening.
+- [14:00.620] I'm incredibly honored to be here tonight.
+- [14:03.700] I'm a military spouse, and my husband and I
+- [14:06.290] have been navigating infertility and IVF for five years,
+- [14:10.780] a journey that has included profound loss.
+- [14:14.270] Through that experience, we have come to understand
+- [14:16.800] how critical access to affordable fertility medication
+- [14:20.060] truly is. Medications like GONAL-f
+- [14:23.230] and access to them have been essential to our treatment
+- [14:26.110] and to our hope of success.
+- [14:28.160] IVF demands extraordinary physical and emotional strength,
+- [14:34.030] but for so many families the financial burden
+- [14:37.030] can be just as heavy and at times overwhelming.
+- [14:41.360] The President's leadership on price transparency
+- [14:44.190] and on reducing the cost of medications,
+- [14:46.310] some of which are essential in my fertility treatments
+- [14:49.440] has a real and immediate impact.
+- [14:52.160] Families like ours, it can mean the difference
+- [14:55.140] between being able to continue treatment
+- [14:57.740] or having no choice but to stop.
+- [15:00.290] These efforts help ensure that IVF remains within reach
+- [15:03.860] for families
+- [15:05.070] who are doing everything that they can to build a future.
+- [15:08.340] Families who should not have to choose
+- [15:10.690] between financial stability and the chance to have a child.
+- [15:14.760] For that commitment and leadership,
+- [15:16.350] we are greatly thankful. Thank you.
+- [15:20.710] (applause)
+- [15:27.810] The President: Oz and everybody. I want to thank you for the job.
+- [15:30.060] Joe, what a job you do?
+- [15:31.460] Bobby, is back here, who is so instrumental.
+- [15:34.620] He's doing such a fantastic job.
+- [15:36.200] Who would have thought a Kennedy?
+- [15:37.790] We love a Kennedy in the Republican Party,
+- [15:40.520] but there's been no uh, no better advocate
+- [15:44.000] for what we're doing than Bobby Kennedy Jr.
+- [15:46.710] So I just want to leave you with this.
+- [15:49.780] You're going to save tremendous amounts of money.
+- [15:52.500] Go to the site. We have many of them.
+- [15:54.380] In a very short period of time,
+- [15:55.820] we'll have just about all of them.
+- [15:57.740] And they'll be available for differences of 500,
+- [16:01.040] 600, 700 percent, even in some cases more than that.
+- [16:04.900] Uh, we're tired of subsidizing the world.
+- [16:07.470] We have to put America first.
+- [16:08.740] If you think about it, that's exactly what we're doing.
+- [16:10.820] We want to take care of everybody,
+- [16:12.250] but we have to put America first.
+- [16:13.710] So this is going to have a huge impact on healthcare.
+- [16:16.470] No matter which plan they come up with drugs
+- [16:19.290] and prescription drugs, they form a big part.
+- [16:22.700] And now you're going to be getting those drugs at numbers
+- [16:25.500] not with a one or two or 10 percent discount.
+- [16:28.820] But think of it, 80 percent, 90 percent, in some cases.
+- [16:33.680] Numbers that nobody's even thought possible.
+- [16:35.850] So I just want to thank our entire team.
+- [16:38.090] They have so many people here that have worked so hard.
+- [16:40.170] And again, Joe and Oz and Bobby, thank you very much. Great job.
+- [16:43.890] And congratulations to you and all that money you're saving,
+- [16:46.860] Okay? Thank you.
+- [16:48.620] Thank you very much, everybody.
+- [16:49.840] Appreciate it. Thank you. Thank you very much.

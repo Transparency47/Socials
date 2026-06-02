@@ -1,0 +1,772 @@
+<!-- source: https://www.youtube.com/watch?v=QAUKXYlw-NI -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: QAUKXYlw-NI -->
+<!-- date_published: 2025-08-21T18:36:51+00:00 -->
+<!-- date_accessed: 2026-06-02T02:45:29.747245+00:00 -->
+
+# Transcript: Vice President JD Vance Delivers Remarks at ALTA Refrigeration, Inc.
+
+- [00:06.604] ♪ (rock music playing) ♪
+- [00:27.170] The Vice President: How are we doing, Georgia?
+- [00:29.770] (audience cheers and chants)
+- [00:45.550] Thank you, thank you. Please.
+- [00:46.920] It's great to be at Peachtree City,
+- [00:48.420] and I got to say, you guys have got a hell of a congressman.
+- [00:51.910] How much do we love Brian Jack here
+- [00:53.640] in the third district of Georgia?
+- [00:55.640] Thank you, Brian,
+- [00:57.050] (applause)
+- [01:00.500] Now we've got a few other people I want to thank, of course,
+- [01:03.360] the great EPA Administrator, Lee Zeldin.
+- [01:05.920] Lee, thank you so much.
+- [01:07.700] (applause)
+- [01:11.180] And proud Atlanta native, Kelly Loeffler,
+- [01:13.170] thank you for all you're doing at the Small Business
+- [01:14.950] Administration.
+- [01:16.470] (applause)
+- [01:19.810] All right, you guys are lucky to have a great
+- [01:22.540] Trump-endorsed Lieutenant Governor Burt.
+- [01:25.620] Burt, good to see you, man. How we doing?
+- [01:28.660] (applause)
+- [01:31.910] Burt greeted me on the tarmac today.
+- [01:33.710] He had been on the Tarmac, I think, for a few minutes,
+- [01:36.230] because he was sweating bullets in that hot Atlanta sun,
+- [01:38.810] I felt bad for him. But Burt, thank you.
+- [01:40.420] You're going to make a great governor
+- [01:41.740] for the state of Georgia.
+- [01:43.170] And we're with you every step of the way.
+- [01:45.730] Now, I understand we got a little preview.
+- [01:47.380] This is my idea.
+- [01:48.610] A little preview of the Senate race
+- [01:50.410] here in the great state of George.
+- [01:52.380] How'd they do, ladies and gentlemen?
+- [01:53.690] Did they do good?
+- [01:55.950] (applause)
+- [01:59.490] Let me thank Coach Derek Dooley.
+- [02:01.200] Derek, thank you for being here.
+- [02:02.690] Let me think Representative Buddy Carter.
+- [02:05.170] Buddy, thank you. Good to see you, man.
+- [02:08.150] And of course, the great Mike Collins.
+- [02:09.760] Mike, thank for everything that you do.
+- [02:11.260] It's good to see You, man
+- [02:12.790] (applause)
+- [02:16.220] Now here's the thing, we're at a great American facility.
+- [02:19.020] I want to thank these great workers behind me.
+- [02:20.620] I feel bad for these guys
+- [02:22.030] because they got to stand up the whole time I'm talking.
+- [02:24.670] You guys get to take a seat and boys strap in
+- [02:28.360] because we're going to be up here for about three hours.
+- [02:30.150] You give a politician a microphone
+- [02:32.320] and it's always tough, boys and girls.
+- [02:33.770] We've got a few ladies back there too.
+- [02:35.720] But here's the thing, this facility,
+- [02:37.710] this manufacturing plant represents
+- [02:40.140] what makes America great because the products that you build,
+- [02:45.430] the jobs created here,
+- [02:47.480] the ingenuity and the technology and the development
+- [02:50.710] and all the things that actually make America
+- [02:52.800] run are built right here at this incredible facility.
+- [02:56.600] So thank you to ALTA, thank you to the workers
+- [03:00.780] and thanks to the people who make this facility run.
+- [03:03.040] Now, I heard something before I went on,
+- [03:06.230] because there's this big refrigerator
+- [03:08.360] right behind me, right,
+- [03:09.810] and somebody told me it was 13 tons, is that right?
+- [03:12.780] That's a big refrigerator.
+- [03:15.580] Now am I also right that a lot of the products
+- [03:18.330] that you guys make go into Chick-fil-A?
+- [03:21.220] Is that right?
+- [03:22.430] Okay, I know that's a great Atlanta company,
+- [03:25.140] but as a customer, a frequent customer of Chick-Fil-A,
+- [03:29.300] I've got a personal connection
+- [03:30.670] because you guys makes a great American company run
+- [03:33.360] and that's what I love about this country.
+- [03:35.670] When you guys made a great product,
+- [03:37.460] it enables more great products to be made.
+- [03:39.920] That creates more jobs for our people,
+- [03:41.920] that creates more American innovation,
+- [03:44.800] and it creates more prosperity for the American worker.
+- [03:48.000] And I'm here, of course,
+- [03:49.250] as a representative of the President of the United States
+- [03:52.650] that has done more for the prosperity
+- [03:55.100] of the American worker than a president,
+- [03:57.190] any president in a generation.
+- [03:58.880] So can we give it up for President Donald J. Trump
+- [04:01.960] because I know he's watching.
+- [04:04.870] (applause)
+- [04:21.070] And I know what the President ran on
+- [04:23.190] and what the President cares about
+- [04:24.930] is building things right here in the United States of America.
+- [04:27.940] It's another reason why I'm proud to be at ALTA today.
+- [04:31.300] Because for a generation in this country,
+- [04:33.390] we had American presidents and American political leaders.
+- [04:36.590] And let's be honest, folks, it wasn't just Democrats.
+- [04:39.360] It was Democrats and Republicans
+- [04:41.600] who would ship our jobs overseas,
+- [04:44.000] close our factory doors
+- [04:45.440] and do not a damn thing for the American worker.
+- [04:48.390] So how nice is it in Washington D.C.
+- [04:50.580] to have a government that is going to protect your jobs,
+- [04:53.270] that's going to fight for this facility
+- [04:54.800] and say, very simply, if you're building it here,
+- [04:58.530] if your making it here,
+- [04:59.950] if you're producing it here we are going to give you,
+- [05:02.270] and already have given you, a big fat tax cut.
+- [05:05.050] That's a good thing.
+- [05:07.470] (applause)
+- [05:13.560] But if you make it overseas,
+- [05:15.310] if you try to do something with a foreign worker
+- [05:17.880] as opposed to an American worker,
+- [05:19.610] if try to ship our great American jobs
+- [05:22.460] and great American factories overseas
+- [05:24.920] then you are going to pay a big fat tariff
+- [05:27.290] before you bring that crap
+- [05:28.740] back into the United States of America.
+- [05:31.200] (applause)
+- [05:35.880] And that's what President Trump's economic policies
+- [05:38.900] are all about, my friends. It's the carrot and the stick.
+- [05:42.250] We want to make it easier to build in America.
+- [05:45.070] We want make it harder to build overseas.
+- [05:48.530] We want it make it easy to rely on our great American workers
+- [05:51.830] because we got a lot of them, American businesses,
+- [05:54.760] auto-employ American workers.
+- [05:56.890] And we want to it make harder to employ foreigners
+- [05:59.350] to take those jobs from the Americans who deserve them.
+- [06:02.510] And most importantly
+- [06:03.980] If you're working hard every single day
+- [06:05.900] right here in the United States,
+- [06:07.530] or if you're building a business right here,
+- [06:10.390] you ought to have a tax code
+- [06:11.790] that rewards you instead of punishes you.
+- [06:14.500] And that's what happened when we passed the Working Families Tax
+- [06:17.810] Cut just a couple of months ago.
+- [06:19.670] And of course, Brian Jack was a critical part of that,
+- [06:22.230] so you should be proud of your congressman.
+- [06:24.910] (applause)
+- [06:29.840] Now what does this law mean for you?
+- [06:31.400] What this law means for you is that your take-home pay
+- [06:34.040] is going to go up over $10,000 over the next few years.
+- [06:38.470] What that means is that if you're working an hour
+- [06:41.180] of overtime, the federal government
+- [06:43.150] is going keep its money the hell out of your pocket.
+- [06:46.180] Because if you are working hard,
+- [06:47.760] the government ought to leave you alone.
+- [06:49.470] Ain't that the truth?
+- [06:51.100] (applause)
+- [06:57.260] Do any single moms out there, any single dads,
+- [07:00.550] any people who work hard every single day,
+- [07:03.230] I had a single mom
+- [07:04.800] and for a time my mom worked at a restaurant.
+- [07:07.110] She waited tables, like a lot of folks out there.
+- [07:10.800] And you know what we did in this new law?
+- [07:12.660] We said that if you're working hard
+- [07:15.050] and you're making your income via tips,
+- [07:17.460] we are not going to tax tips anymore
+- [07:19.650] because we want to give everybody out there
+- [07:21.760] that's working hard for those tips a little bit of relief.
+- [07:25.000] (applause)
+- [07:28.990] And that's what the Working Families Tax Cut did.
+- [07:31.260] No matter where you are in this country,
+- [07:33.000] if you're working hard and played by the rules,
+- [07:35.040] you ought to have a government that stands up for you
+- [07:38.230] instead of fights against you.
+- [07:40.010] That's why we increased the child tax credit
+- [07:43.190] in the Working Family's Tax Cut.
+- [07:44.980] That's we eliminated taxes on overtime and on tips,
+- [07:48.510] and that's why had the biggest tax cut for families
+- [07:52.760] that this country has ever seen,
+- [07:54.430] because we believe that you ought to keep
+- [07:56.580] more of your hard-earned money,
+- [07:57.980] and we believe that if you're busting your rear end
+- [08:00.440] every single day, the government ought to make it easier for you
+- [08:03.550] and not harder for you.
+- [08:04.870] And that's why we fought for that legislation.
+- [08:08.320] (applause)
+- [08:14.450] Now, I am just a vice president, I'm just a lowly politician,
+- [08:18.020] but I'm going to try my hand at prophecy today,
+- [08:20.250] ladies and gentlemen,
+- [08:21.640] because I see the future of the state of Georgia
+- [08:24.800] and in about a year,
+- [08:26.240] you are not going to be able to turn on the television
+- [08:28.780] without Senator John Ossoff
+- [08:31.320] pretending that he supported the working family's tax cut
+- [08:35.470] when in reality, he voted against it.
+- [08:38.240] And I saw a TV clip of him today.
+- [08:40.720] You know why he said he voted against no taxes on overtime?
+- [08:44.630] You know why he said he voted against no taxes on tips?
+- [08:47.830] You know what he said that he voted to raise your taxes
+- [08:50.860] by the biggest amount in a generation in this country?
+- [08:54.240] Because he's allegedly worried about people
+- [08:57.490] getting kicked off their health care.
+- [08:59.180] We know what the President of the United States
+- [09:00.850] made a promise, a sacred promise,
+- [09:03.010] that the only people who are going to lose access
+- [09:05.770] to health care are illegal aliens
+- [09:07.690] who shouldn't be in this county to begin with.
+- [09:11.480] (applause)
+- [09:21.880] Because I happen to believe
+- [09:23.180] that Medicaid belongs to American workers
+- [09:25.500] and American families.
+- [09:26.840] I happen believe that when you are struggling in this country,
+- [09:30.710] we're a generous people and we want to help you.
+- [09:33.410] But we want help the people who have the legal right to be
+- [09:36.280] in the United States of America.
+- [09:38.060] So it's not about kicking people off of health care,
+- [09:40.510] it's about kicking illegal aliens
+- [09:42.830] the hell out of this country
+- [09:44.380] so that we can preserve health care
+- [09:46.150] for the American families who need it.
+- [09:48.610] (applause)
+- [09:54.160] And that's what the Democrats never talk about.
+- [09:57.200] That's what they'll never tell you.
+- [09:58.550] They'll say, well, Republicans want to do this to health care.
+- [10:01.200] They want to do that.
+- [10:02.410] They want do all these terrible things.
+- [10:05.020] When in reality, if you look at what the Democrats have done,
+- [10:08.390] what they've tried to do is to allow millions
+- [10:12.140] and millions of illegal aliens into this country,
+- [10:14.560] to give them benefits that ought go by
+- [10:16.550] right to American citizens, and then to attack Republicans
+- [10:20.230] when we dare to stand up for the American citizens
+- [10:23.140] who have the right to be here.
+- [10:24.750] So when you watch those TV commercials in a year
+- [10:27.560] and John Ossoff, I tell you,
+- [10:29.990] he's going to pretend to be a reasonable moderate.
+- [10:32.730] He's actually going to run TV advertisements, I promise you,
+- [10:35.880] cause I ran against a guy like this in the state of Ohio,
+- [10:38.690] where he says that he supported President Trump's agenda.
+- [10:42.290] But in reality, while John Ossoon pretends to be moderate
+- [10:47.080] when he comes to Atlanta,
+- [10:48.610] he is a far-left liberal in Washington D.C.,
+- [10:52.150] and that's the only place that it actually counts
+- [10:54.630] if you're a United States Senator.
+- [10:56.600] So why don't we ask John Ossoff, why did you vote to raise taxes?
+- [11:00.530] Why did you to keep illegal aliens on Medicaid?
+- [11:03.630] Why did vote to bankrupt Medicare?
+- [11:06.040] Why did your vote to make sure that people who work overtime
+- [11:10.300] and earn their income from pay
+- [11:12.480] as much to the federal government as possible.
+- [11:14.990] And the simple answer is, because John Ossoff,
+- [11:17.210] whatever he pretends to be in his television commercials,
+- [11:20.180] he doesn't give a damn about the third district,
+- [11:22.650] and he doesn't' t give a damn the people of Georgia,
+- [11:24.960] but we do, and we're going to fight for you every single day.
+- [11:29.220] (applause)
+- [11:42.940] Let me just leave you, my friends, with a final thought.
+- [11:45.770] I want to thank you all for being out here.
+- [11:47.610] And again, thanks to the folks behind me,
+- [11:49.880] the great workers of this facility.
+- [11:51.780] And I'll take a few questions.
+- [11:53.040] Should I take a questions from the media? I'll do that.
+- [11:58.550] So we'll take a few questions from our great reporters,
+- [12:00.570] hopefully some local reporters back there,
+- [12:03.000] but I'm sure there's some national fake news as well.
+- [12:05.840] But, you know, I went to Union Station in Washington,
+- [12:10.380] D.C. yesterday.
+- [12:11.760] Anybody here ever been to Union Station?
+- [12:13.580] Okay. It's a beautiful, beautiful building,
+- [12:16.260] really a monument to American greatness.
+- [12:18.320] I was walking around, I was looking up at it,
+- [12:20.610] these beautiful high ceilings.
+- [12:22.460] It looks like something out of a fairy tale.
+- [12:25.520] And I remember that two years ago,
+- [12:27.380] when I took my kids to Washington,
+- [12:29.510] D.C.'s Union Station, I actually had a crazy person
+- [12:34.040] screaming at my three-year-old kid.
+- [12:36.430] Because for some reason, and I never understood this,
+- [12:40.600] American leaders decided it was compassionate
+- [12:43.530] to allow people to fester on the streets,
+- [12:46.820] yelling at our young families
+- [12:48.520] instead of giving them the medical care that they need
+- [12:51.340] and getting them off the streets.
+- [12:52.860] Which, by the way, makes it easier for us
+- [12:54.820] to all enjoy these great public spaces in our country.
+- [12:58.420] And I haven't been to Atlanta in a little while,
+- [13:00.620] at least now with the Secret Service detail.
+- [13:02.250] I haven't t walked around Atlanta in little while.
+- [13:05.150] But I bet that as great as Atlanta is,
+- [13:08.870] and as beautiful of an American city as it is,
+- [13:11.830] there are places in Atlanta
+- [13:13.630] where you wouldn't take your family today.
+- [13:15.590] Is that correct? Just like in Washington, D.C.,
+- [13:19.290] the national capital of the greatest nation
+- [13:21.620] in the history the world,
+- [13:23.050] there are no go zones where you would not take a young family
+- [13:26.210] or you would not take young children.
+- [13:27.680] And that's true.
+- [13:28.920] I'm sure all across the state of Georgia,
+- [13:31.040] all across our country because our leaders decided
+- [13:35.490] that they would make our streets safe for criminals
+- [13:38.650] instead of safe for the people who pay our taxes
+- [13:40.950] and keep our communities going.
+- [13:42.910] And I think that of all the things
+- [13:44.360] that I'm most proud of the President,
+- [13:46.410] the thing that I most proud about is that
+- [13:48.340] he finally put the government to work for the people.
+- [13:51.540] Who actually make this country function
+- [13:53.290] and run in the first place.
+- [13:55.040] We're cutting taxes for American taxpayers.
+- [13:57.860] We're securing the border. We've got 99 percent reduction
+- [14:01.530] in illegal border crossings in this country
+- [14:04.230] because we've got a president who empowered Border Patrol
+- [14:06.910] to keep us safe.
+- [14:08.310] (applause)
+- [14:13.140] And we've got a president who's standing with law enforcement
+- [14:16.160] to make it easier to clean up our streets,
+- [14:18.910] to make them safe for our young families.
+- [14:20.830] If you're a person, I don't care what your political party is,
+- [14:23.790] but if you're family and you want to take your kid
+- [14:26.420] to a nice meal in downtown Atlanta,
+- [14:28.360] it's about a 40-minute drive,
+- [14:30.040] take your kids to a meal in Downtown Atlanta,
+- [14:32.630] you ought to be able to without being harassed by a criminal.
+- [14:35.750] We've got to take America's streets
+- [14:38.130] back for the American people,
+- [14:39.920] and that's what the President of the United States
+- [14:41.560] is doing every single day.
+- [14:43.740] (applause)
+- [14:48.950] And as a person who grew up in a family
+- [14:51.340] where we often struggled with money,
+- [14:52.810] you know, it is never the rich people
+- [14:55.170] that lack public safety in this country.
+- [14:57.460] When we go to war against our cops,
+- [14:59.360] when we flood the border with illegal immigration,
+- [15:01.520] when we close down great American factories,
+- [15:04.170] it is the people the Bible calls the least of us
+- [15:07.060] that struggle the most and hurt the most.
+- [15:09.590] So I'm proud to be here as your vice president.
+- [15:11.930] I'm to be as a representative of President Trump.
+- [15:19.500] Thank you.
+- [15:20.780] (applause)
+- [15:24.840] But I'm most proud that we have an administration
+- [15:28.760] that is making it easier, whether you're rich or poor,
+- [15:31.520] to walk down the street with a semblance of public safety.
+- [15:35.130] I'm the most proud we're fighting
+- [15:36.730] for the jobs of the people behind me
+- [15:38.600] and the jobs of every single working person in this country,
+- [15:41.910] and we're fighting' to make sure that you pay low taxes
+- [15:44.580] instead of a bunch of garbage to the federal government.
+- [15:47.250] I'm proud that we serve an administration
+- [15:49.270] that cares more about American citizens
+- [15:52.040] and our public safety
+- [15:53.490] than giving Medicaid and Medicare to illegal aliens,
+- [15:56.030] which is what John Ossoff wants to do.
+- [15:57.540] In other words, I am proud that the kind of family
+- [16:01.010] that made me who I am finally has a representative
+- [16:04.510] and a fighter in Washington, D.C.
+- [16:06.450] I promise you we'll keep on fighting for you
+- [16:09.020] every step of the way.
+- [16:10.350] God bless you and thank you for having me.
+- [16:13.700] (applause)
+- [16:39.320] Thank you.
+- [16:41.720] I don't think I'm going to have the same chant
+- [16:43.290] from the fake news media, do you?
+- [16:44.850] But we'll let them ask some questions anyway.
+- [16:47.290] Let's take a few questions back there from the rafters.
+- [16:50.460] I would prefer to take at least
+- [16:52.060] a few local media questions first,
+- [16:54.020] and then we can get to the national folks.
+- [16:56.610] Semper Fi, sir. God bless you.
+- [17:00.270] I think we have a microphone back there.
+- [17:02.320] If we could pass around, sir, go ahead.
+- [17:03.690] The Press: Mr. Vice President,
+- [17:04.890] I'm Richard Elliott with WSB-TV here in Atlanta.
+- [17:07.830] You've heard the criticism from Democrats
+- [17:09.850] that making the Trump tax cuts permanent
+- [17:13.250] comes at a cost to Medicare SNAP benefits
+- [17:15.590] and other things like that.
+- [17:17.550] How would you answer some of those criticisms
+- [17:19.270] by the Democrats?
+- [17:20.470] The Vice President: Yeah, well, I appreciate that question.
+- [17:22.060] Look, there are a couple of responses to that criticism.
+- [17:24.400] First of all, the only people that we say should not get
+- [17:29.640] free government health care benefits are illegal aliens
+- [17:32.540] and those who refuse to try to even look for a job.
+- [17:35.820] It's very common sense. We want, and look, I.
+- [17:42.040] We are going to bankrupt this country
+- [17:44.130] if we keep on giving the people's benefits,
+- [17:46.450] the people Medicare, Medicaid, and Social Security benefits,
+- [17:50.080] to illegal aliens who have no legal
+- [17:52.020] right to be in this country
+- [17:53.400] and never paid into the system to begin with.
+- [17:55.730] That is never the design of those programs
+- [17:58.420] is to give them to every person all over the world.
+- [18:01.160] They ought by right to belong to the American citizens
+- [18:04.410] who paid into those programs to begin with
+- [18:06.530] and that's what we're fighting to make sure happens.
+- [18:09.690] (applause)
+- [18:13.510] And the second response I'd say to that is,
+- [18:15.840] is look, we did a lot in this legislation.
+- [18:18.070] Brian worked on it,
+- [18:19.850] the other representatives here worked very hard on this
+- [18:22.240] to make sure that a lot of our rural hospitals are struggling
+- [18:26.060] because of some of the policies of the Biden administration.
+- [18:28.640] So what we did is we put a lot a resources
+- [18:31.540] and a lot o changes in regulations
+- [18:33.230] to make it possible for our rural hospital
+- [18:35.540] s to stay open despite what the Biden administration
+- [18:38.440] did to them for four years. So our policy is very simple.
+- [18:42.050] Whether you're in a big city or a small town,
+- [18:44.310] we're going to fight for your access to health care.
+- [18:46.630] Whether you are an American citizen
+- [18:48.630] who's been here for 70 years
+- [18:50.150] or an American who's been here two years,
+- [18:52.470] we are going to be fighting for your health care
+- [18:54.520] to a government that serves you. But if you're an illegal alien,
+- [18:57.880] you do not deserve government paid health care benefits.
+- [19:01.870] You need to get out of our country
+- [19:03.690] and that's as simple as that.
+- [19:06.310] (applause)
+- [19:12.420] Next question.
+- [19:15.450] The Press: Mr. Vice President, Greg Blustein
+- [19:17.350] with the Atlanta Journal-Constitution,
+- [19:18.870] thanks for being here.
+- [19:20.250] I have a follow-up to Richard's great question
+- [19:22.450] on those health care funding cuts.
+- [19:26.050] There are Georgia Republican leaders
+- [19:27.680] who are legitimately concerned that more than 100,000 people
+- [19:31.060] could be knocked off the Medicaid rolls,
+- [19:32.910] not just people who are here undocumented or illegally,
+- [19:35.840] but people who were working class
+- [19:37.780] who are struggling to get their health care.
+- [19:39.320] What message do you have for state Republican leaders
+- [19:41.430] on what they should do to reconcile those issues?
+- [19:44.040] The Vice President: Well, the first thing I'd say
+- [19:45.310] is the state Republican leaders,
+- [19:46.640] and frankly, state Democratic leaders,
+- [19:48.340] if you're worried about American citizens
+- [19:51.610] losing access to health care,
+- [19:52.960] the Trump administration always has an open-door policy.
+- [19:56.040] And we've worked with a number of our colleagues,
+- [19:57.760] Democrats and Republicans, at the federal legislature,
+- [20:00.730] but also at the state level,
+- [20:02.260] to make it possible to ensure that American citizens
+- [20:05.320] have access to the medical benefits that they need.
+- [20:08.000] It's as simple as that.
+- [20:09.260] So you're always going to have an open door.
+- [20:10.850] Now we understand that reforms are complicated sometimes,
+- [20:13.720] this stuff takes time to work itself through the system.
+- [20:17.610] Many of the changes in the working
+- [20:19.940] families tax cuts to Medicare, or excuse me, to Medicaid,
+- [20:23.490] you're not going to see that stuff, it's not even,
+- [20:25.510] some of it doesn't even go to effect for six or seven years,
+- [20:28.500] in part because we want to give enough time to work with people
+- [20:31.640] to make sure that American citizens
+- [20:33.510] do not lose access to those critical benefits.
+- [20:36.090] So if you look at the way we designed the law,
+- [20:38.560] if you look at the way that those reforms are implemented,
+- [20:42.310] and if you look all the other things that we're doing,
+- [20:44.890] we want to work with people to make sure
+- [20:46.720] that American citizens get what they're entitled to.
+- [20:49.060] What we do not want is people who have no legal right
+- [20:52.370] to be here to benefit from the generosity
+- [20:54.760] of the American taxpayer and to bankrupt those programs.
+- [20:57.660] So long as you're willing to work with us on those goals,
+- [20:59.830] we'll work with anybody,
+- [21:01.060] whether you got a D or an R next to your name,
+- [21:02.710] because we care about this country,
+- [21:04.410] we want to make sure it's secure and healthy.
+- [21:06.640] (applause)
+- [21:12.450] Next question, we had a couple of hands back here, but --
+- [21:19.240] okay, we got a school back there.
+- [21:21.540] Okay, let's give them a microphone.
+- [21:24.440] The Press: My name is Virgil Garrett.
+- [21:25.930] Thank you, Mr. Vice President.
+- [21:27.210] The Vice President: Of course, thank you.
+- [21:28.470] The Press: I'm here with the Central Educational Center,
+- [21:30.020] CCS-TV.
+- [21:31.430] The CEC is a college and career academy
+- [21:33.810] focused on training high school students
+- [21:35.360] to enter technical and trade industries.
+- [21:37.470] Can you tell us how the Big Beautiful Bill
+- [21:39.100] will impact us and our respective jobs?
+- [21:40.680] And also,
+- [21:41.900] how is the administration focusing on schools like ours?
+- [21:45.120] The Vice President: So tell me, you say your name is Virgil?
+- [21:49.580] Virgil, tell me a little bit more about your school.
+- [21:52.150] The Press: The Central Educational Center,
+- [21:53.810] we have classes focusing on trade and other industries.
+- [21:58.090] We have audio, video, aviation,
+- [22:01.170] cosmetology, dentistry, and students have the option.
+- [22:04.390] The Vice President: Okay, thank you.
+- [22:05.630] He asked me, Virgil, he asked me to comment on the school.
+- [22:07.830] I figured I should learn a little bit about it.
+- [22:11.140] I should learned a little about it before I commented on it,
+- [22:14.180] but I appreciate the clarification there.
+- [22:16.350] I mean, our proposal and our principle
+- [22:18.890] in the Trump administration is quite simple.
+- [22:21.010] We want Americans to be able to pursue their American dream.
+- [22:24.690] Whether that means going to a trade school
+- [22:26.590] or going to four-year education, going to the military,
+- [22:29.670] we want to give you as many options as possible.
+- [22:32.280] And what happened for a long time in this country
+- [22:35.220] is that you had both parties,
+- [22:37.680] both sets of leaders saying, no, no.
+- [22:39.810] The only pathway that we're going to fund,
+- [22:42.540] the only pathway we're going to help you with
+- [22:44.150] is if you want to get a four-year degree.
+- [22:45.880] If you want a four year degree, great.
+- [22:47.820] But if you want to be a plumber
+- [22:49.030] or an electrician or a pipe fitter,
+- [22:50.570] your government ought to fight for you, too.
+- [22:52.760] And that's exactly what we want to make happen.
+- [22:55.610] (applause)
+- [23:01.350] And I do, you know Virgil, part of that is policy,
+- [23:03.730] part of it is making sure that things like Pell Grants
+- [23:06.000] and other federal benefits, they don't pick and choose,
+- [23:08.350] they don't discriminate against our great trade schools,
+- [23:11.610] but part of is leadership.
+- [23:13.270] And I think it's important for those of us
+- [23:14.800] who are in positions of leadership to say that,
+- [23:16.910] you know, there are so many great careers,
+- [23:19.820] so many careers that require that you use your hands
+- [23:22.680] and your head at the same time,
+- [23:24.830] where you can earn a great living,
+- [23:26.500] you can build something great for your fellow citizens
+- [23:29.560] and people in your community.
+- [23:31.020] We're not going to have enough housing.
+- [23:32.900] We're going to have plumbing that works.
+- [23:34.520] We're going to have lights that turn on
+- [23:36.610] unless we've got enough people going into our trade schools.
+- [23:39.500] We're got to have more kids doing it,
+- [23:40.940] more young people doing it
+- [23:42.370] because they're the ones building
+- [23:44.040] the American dream of home ownership.
+- [23:45.940] They're the one's building the future
+- [23:47.280] and we're going to fight for you every step of the way.
+- [23:49.280] Thank you for your question, Virgil.
+- [23:51.590] (applause)
+- [23:57.530] And let's do a few more questions here
+- [23:58.990] and then I'm going to have to hit the road.
+- [24:00.360] Sir?
+- [24:01.890] The Press: Good afternoon, Vice President.
+- [24:04.010] Raul Valley, WABE Radio here in Atlanta.
+- [24:06.740] Wanted to ask you about something,
+- [24:08.110] your final topic on safety. Do you see the administration
+- [24:12.840] putting soldiers in the city of Atlanta?
+- [24:15.720] The Vice President: Well, look, what we've done
+- [24:17.540] is we have focused on Washington, D.C.
+- [24:19.610] Because it's a federal city under our jurisdiction.
+- [24:21.860] But we certainly hope that whether it's Atlanta
+- [24:24.020] or anywhere else, people are going to look around
+- [24:25.840] and say we don't have to live like this.
+- [24:27.620] It turns out if you just go and arrest the bad guys,
+- [24:30.150] you can have cities and streets that are safe again.
+- [24:33.220] And we hope that people see what we're doing in Washington, D.
+- [24:35.420] C. And follow our example all across the country.
+- [24:39.240] I am I'm a big fan. Look, I grew up in a small town.
+- [24:43.230] I love our beautiful countryside and our rural areas,
+- [24:45.930] but I love our big cities, too.
+- [24:47.700] And I want you to be able to go shopping or go
+- [24:49.860] and get a nice meal with your family
+- [24:51.240] without the fear that you're going to get mugged
+- [24:52.770] or even worse,
+- [24:53.970] because you have the audacity to take your family out
+- [24:57.410] for a day in one of our great American cities.
+- [25:00.140] We don't have to live like this.
+- [25:02.290] All we need is politicians who actually care
+- [25:05.910] more about public safety for American citizens
+- [25:08.500] than they do for violent criminals.
+- [25:10.370] In Washington, D.C.
+- [25:11.910] In 10 days,
+- [25:13.480] 10 days of what Donald Trump has done in Washington, D.C.,
+- [25:16.230] did you know armed robberies
+- [25:17.580] are down 55 percent in our nation's capital?
+- [25:19.950] It's amazing.
+- [25:21.910] (applause)
+- [25:26.310] You know, murders in Washington, D.C.
+- [25:27.960] are down over 35 percent again.
+- [25:29.940] That's in a week and a half of just taking crime seriously.
+- [25:37.140] And there's something, you know,
+- [25:38.560] Democrats had this weird sickness in the head five,
+- [25:41.010] six years ago,
+- [25:42.290] where they decided that all law enforcement was racist.
+- [25:45.190] You know who suffers the most, especially in our urban areas,
+- [25:49.290] when you don't allow the police
+- [25:50.790] to enforce the laws against bad guys?
+- [25:53.120] It is the good citizens,
+- [25:56.470] disproportionately black Atlantans,
+- [25:58.470] who suffer the most from high violent crime,
+- [26:00.620] because you've got more,
+- [26:01.890] or at least a disproportionate number of black
+- [26:03.980] Georgians living in Atlanta compared to other places.
+- [26:07.110] So when you empower police to prosecute violent criminals,
+- [26:11.660] that's not racism.
+- [26:12.930] That's empowering everybody, black or white,
+- [26:15.450] to live safely in their communities.
+- [26:17.370] And that should be the God-given right of every American citizen
+- [26:20.590] to walk down the street in safety and comfort.
+- [26:24.390] God bless you, sir.
+- [26:25.860] (applause)
+- [26:28.660] Next question.
+- [26:29.950] The Press: Vice President, thank you for answering our questions.
+- [26:33.570] I'm Doug Reardon with Atlanta News First.
+- [26:35.230] I know you're here to talk about business and manufacturing.
+- [26:37.570] I wanted to ask you about the spending bills' impact
+- [26:39.920] on individuals.
+- [26:41.260] There was a nonpartisan Congressional Budget Office
+- [26:44.050] report that came out last week showing
+- [26:46.220] that the bottom 10 percent, the poorest Americans,
+- [26:48.920] would lose about $1,200 a year on their income
+- [26:53.840] while the top 10 percent
+- [26:55.290] they would add about $13,000 annually to their income.
+- [26:58.790] Can you justify for those poorest Americans
+- [27:01.560] those differences?
+- [27:02.870] The Vice President: Well, first of all,
+- [27:04.070] the Congressional Budget Office,
+- [27:05.490] sometimes they put out reports that are absolutely atrocious,
+- [27:08.360] and I think this is a good example
+- [27:09.850] of a very atrocious report. The most important --
+- [27:15.590] the most important thing for people
+- [27:17.680] who are living at the bottom of the income ladder
+- [27:21.210] is that they not pay taxes on their income sources.
+- [27:25.330] So if you're working hard and you're working' overtime,
+- [27:27.390] you're going to get a big fat tax cut.
+- [27:29.530] If you're working at a restaurant
+- [27:31.310] or some other business
+- [27:33.000] where you're earning your wages primarily through tips,
+- [27:35.530] you going to get big fat taxes cut and most importantly,
+- [27:38.150] the President's economic policies
+- [27:39.720] are going to prevent your job
+- [27:41.510] from being shipped off to Asia or to Mexico.
+- [27:44.020] That is the very best thing for people
+- [27:45.870] at the bottom of the income ladder,
+- [27:47.760] and that's why we have the economic policies that we do.
+- [27:50.470] If you go back 50, 60 years,
+- [27:53.650] what is the fastest period for blue collar wages
+- [27:57.790] rising in the United States of America?
+- [28:00.170] It is the time that we are living in right now,
+- [28:02.820] thanks to the economic policy of Donald J. Trump.
+- [28:05.520] You know what the worst thing for the people
+- [28:07.120] at bottom of income ladder is? It's when you flood the country
+- [28:10.850] with millions upon millions of illegal aliens.
+- [28:13.470] And force our poor Americans to compete for jobs
+- [28:17.230] against low-wage foreigners
+- [28:18.770] who don't even have the legal right to be here.
+- [28:21.030] That is what destroys the wages and the livelihoods of people
+- [28:24.980] who are struggling in this country.
+- [28:26.580] We want to empower them to live the American dream.
+- [28:29.310] That's why we're protecting their jobs,
+- [28:31.020] lowering their taxes,
+- [28:32.240] and fighting to make their country safe again.
+- [28:34.640] (applause)
+- [28:36.680] And I'll do one more question.
+- [28:41.070] The Press: Si, I'm George Chidi, I write for the Guardian.
+- [28:46.970] I live in a small town, less than a thousand people.
+- [28:49.860] I'm also a military veteran. I am a
+- [28:51.370] (inaudible)
+- [28:52.570] just like you.
+- [28:53.810] The Vice President: Thank you for your service, George.
+- [28:56.320] The Press: In 1996, in Atlanta,
+- [28:58.980] when the Olympics was coming through,
+- [29:01.960] Atlanta very famously rounded up people
+- [29:04.630] who were homeless on the street downtown,
+- [29:06.990] bought them bus tickets,
+- [29:08.280] and sent them out of town and off and out of state.
+- [29:11.550] There was a lot of negative sentiment about that later.
+- [29:14.140] It's one of the things that people remember.
+- [29:16.740] I am concerned that in the press to eliminate encampments in DC,
+- [29:22.000] something similar to that is happening.
+- [29:25.220] What is happening to the people who are homeless,
+- [29:28.700] often poor, often have a mental health problem
+- [29:32.350] or a drug problem. Where are they actually going
+- [29:35.440] when these camp beds are being broken?
+- [29:37.600] The Vice President: So first of all,
+- [29:38.840] George, I was 12 years old
+- [29:41.580] when the 1996 Summer Games happened in Atlanta,
+- [29:44.330] so I don't remember exactly the background there.
+- [29:47.890] I was worried about football and fishing
+- [29:50.680] and doing all the things that a 12-year-old
+- [29:52.390] in southwestern Ohio was worried.
+- [29:54.570] But I think that the question betrays
+- [29:59.850] a certain misunderstanding of what we're trying to do
+- [30:03.390] and what is the nature of real compassion.
+- [30:05.090] I talked earlier about my son at being harassed
+- [30:08.150] at Union Station a couple of years ago.
+- [30:09.830] Now first, as a father,
+- [30:11.720] you have some vagrants screaming crazy stuff.
+- [30:14.380] I'm sure a lot of us have had this experience
+- [30:16.260] where you have vagrants screaming crazy stuff
+- [30:18.850] at your three-year-old.
+- [30:20.060] As a father my first reaction is grab my son closer,
+- [30:23.710] make sure that he's safe.
+- [30:25.200] Okay, then you realize the person's not going to maybe
+- [30:28.970] run and charge and attack us. We'll just keep our distance.
+- [30:32.210] But then you think, wait a second,
+- [30:34.570] why have we convinced ourselves
+- [30:36.750] that it's compassionate to allow a person
+- [30:39.040] who's obviously a schizophrenic or suffering
+- [30:41.350] from some other mental illness, why is it compassionate
+- [30:43.930] to let that person fester in the streets?
+- [30:46.560] You see them, they're --
+- [30:50.320] you know, a lot of them have clear mental health issues.
+- [30:52.930] A lot of have clear physical health issues,
+- [30:55.600] they're not properly clothed,
+- [30:56.980] they're properly cared for, some of them are wasted away.
+- [31:00.410] The compassionate thing is to have people
+- [31:03.250] who are having mental health crises,
+- [31:05.190] to get them in treatment,
+- [31:06.560] not to let them sit on the streets
+- [31:08.050] and yell at our people while they're walking by.
+- [31:11.390] (applause)
+- [31:16.220] And so the President actually signed an executive order
+- [31:18.620] to make it easier for some of these people
+- [31:21.020] to get access to mental health treatment.
+- [31:23.220] And I don't know for the life of me
+- [31:25.770] what happened in this country
+- [31:27.460] where we decided that the compassionate thing
+- [31:29.970] was to let somebody fester on the streets instead of be --
+- [31:34.280] instead of get the treatment that they need.
+- [31:36.490] It's very simple to me.
+- [31:38.000] And I know why we accept it as parents and as grandparents
+- [31:41.500] and as people who just want to walk down the street in comfort,
+- [31:44.680] why we accepted that it was reasonable to have crazy people
+- [31:48.850] yelling at our kids.
+- [31:50.310] You should not have to cross the street in downtown Atlanta
+- [31:55.130] to avoid a crazy person yelling at your family.
+- [31:57.930] Those are your streets paid for with your tax dollars,
+- [32:01.540] and you ought to be able to use them
+- [32:02.910] like any other citizen in this country.
+- [32:05.370] (applause)
+- [32:07.800] So let me close, I know I said that was the last question,
+- [32:11.960] so let me just close with this thought.
+- [32:14.200] You know, there are a number of things
+- [32:16.090] I could say about President Trump's leadership,
+- [32:18.000] and a number things I can say about
+- [32:19.280] what we're trying to accomplish in the Trump administration.
+- [32:22.250] Put very simply, we're trying to make
+- [32:24.390] America great for Americans again.
+- [32:28.280] When you hear that phrase, make America great,
+- [32:31.310] we want you as a taxpayer, as a worker,
+- [32:34.540] as a business owner,
+- [32:35.870] we want you to be able to enjoy the incredible benefits
+- [32:39.440] and bounty of the United States of America.
+- [32:42.270] This country was built by your grandparents,
+- [32:45.900] by your parents, by your forebears.
+- [32:48.090] You ought to have the right to live a good life in this country
+- [32:51.860] that wouldn't even exist were it not for the hard work of
+- [32:54.880] so many generations who came before us.
+- [32:57.200] They didn't put in that work,
+- [32:58.760] they didn't build this great country,
+- [33:00.110] they didn't carve the greatest civilization
+- [33:02.540] in the history of the world out of a wilderness
+- [33:05.060] so that their ancestors and their descendants
+- [33:07.730] could see it fall into disrepair.
+- [33:10.430] They did not build, look at Atlanta, it's a beautiful city.
+- [33:13.230] It's one of the most beautiful cities anywhere in the world.
+- [33:15.980] The people who built Atlanta did not build it
+- [33:18.370] so that you would not be able
+- [33:19.760] to walk down the streets of Atlanta safely at night.
+- [33:22.810] They built it so you could enjoy it.
+- [33:24.690] They built this country
+- [33:26.150] so that we could make an even greater America out of it.
+- [33:29.590] And the policies of the Trump administration
+- [33:31.660] are meant for one simple reason, to empower you.
+- [33:35.180] To live a great life in this country that all of us love.
+- [33:38.300] We've got a lot of work done in the last seven months.
+- [33:41.690] We're going to do a hell of a lot more work
+- [33:43.320] in the next three and a half years,
+- [33:45.020] and we're going to fight for you every single step of the way.
+- [33:47.050] God bless you, and thank you for having me here
+- [33:48.920] in Peachtree City.

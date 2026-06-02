@@ -1,0 +1,1444 @@
+<!-- source: https://www.youtube.com/watch?v=rlwh8i70q-c -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: rlwh8i70q-c -->
+<!-- date_published: 2025-12-08T20:41:37+00:00 -->
+<!-- date_accessed: 2026-06-02T02:40:29.326887+00:00 -->
+
+# Transcript: President Trump Participates in a Roundtable
+
+- [00:14.280] The President: Well, thank you very much
+- [00:15.570] and thank you for being here as we take a very vital action
+- [00:19.930] to protect and defend American farmers
+- [00:22.020] and reduce prices for the American consumers.
+- [00:25.580] And we've done that in so many different fields
+- [00:27.940] and this is a little bit of a different field,
+- [00:31.000] but we're bringing prices way down.
+- [00:32.830] We inherited a total mess from the Biden administration,
+- [00:35.940] the highest inflation in the country's history
+- [00:39.090] and very, very high prices and prices are coming down
+- [00:41.820] and they are very, very far down on energy.
+- [00:45.260] Energy's come -- in fact, we hit a very important number,
+- [00:49.800] a sacred number.
+- [00:51.780] We had three states in the last two days
+- [00:56.020] reported by our energy group,
+- [00:59.710] a group of very strong energy people
+- [01:03.570] who said we hit $1.99 a gallon in three different states
+- [01:08.950] and that's an amazing accomplishment
+- [01:10.830] because the gasoline prices are coming down.
+- [01:13.880] When gasoline comes down everything --
+- [01:15.440] It's such a big category that when gasoline comes down,
+- [01:18.670] everything sort of follows, but we inherited a mess.
+- [01:23.280] Affordability, but you can call it affordability
+- [01:25.410] or anything you want,
+- [01:26.700] but the Democrats caused the affordability problem
+- [01:31.640] and we're the ones that are fixing it.
+- [01:33.470] So it's a very simple statement. They caused it, we're fixing it.
+- [01:37.630] And they have a tendency to just say
+- [01:40.030] this election's based on affordability.
+- [01:42.740] And nobody questions them, John.
+- [01:44.640] Nobody says, "Oh, well, what do you mean by that?"
+- [01:47.610] But they just say the word.
+- [01:49.670] They never said anything else because they caused the problem,
+- [01:52.230] but we're fixing the problem.
+- [01:54.070] And we're pleased to be joined today
+- [01:55.340] by many of the wonderful members of the farming community,
+- [01:58.160] as well as the Secretary of Agriculture Brooke Rollins.
+- [02:02.230] Brooke, thank you.
+- [02:03.470] Secretary Rollins: Thank you, Sir.
+- [02:04.890] The President: Treasury Secretary Scott Bessent.
+- [02:07.530] Thank you very much, Scott. Senator John Boozman.
+- [02:11.830] Thank you, John. Good job. John Hoven. Thank you, John.
+- [02:17.220] And Deb Fischer. Thank you very much.
+- [02:18.990] Deb Fischer: Thank you, Sir.
+- [02:20.200] The President: As well as Representative Austin Scott
+- [02:22.210] has been with us right from the beginning.
+- [02:24.240] Thank you, Austin. Good job.
+- [02:26.250] I'm delighted to announce this afternoon that the United States
+- [02:29.220] will be taking a small portion
+- [02:30.730] of the hundreds of billions of dollars
+- [02:33.300] we receive in tariffs.
+- [02:34.940] We are making a lot of money from countries
+- [02:37.640] that took advantage of us for years.
+- [02:39.350] They took advantage of us like nobody's ever seen.
+- [02:42.680] Our deficits are way down because of tariffs.
+- [02:46.180] I guess because of the election,
+- [02:48.270] because without the election, you wouldn't have tariffs.
+- [02:50.270] You'd be sitting here losing your shirt.
+- [02:53.400] But we're taking in billions.
+- [02:55.400] We're really taking in trillions of dollars
+- [02:57.640] if you think about it, Scott, because the real numbers,
+- [02:59.930] when you think of all the money being poured into the country
+- [03:03.550] for new auto plants and all of the other things, AI.
+- [03:08.310] So what we're doing is we're taking a relatively
+- [03:12.690] small portion of that and we're going to be giving
+- [03:16.160] and providing it to the farmers in economic assistance.
+- [03:20.140] And we love our farmers.
+- [03:21.430] And as you know, the farmers like me,
+- [03:25.470] because based on voting trends, you could call it voting trends
+- [03:29.270] or anything else, but they're great people.
+- [03:32.150] They're the backbone of our country.
+- [03:34.040] So we're going to use that money to provide $12 billion
+- [03:38.450] in economic assistance to American farmers.
+- [03:41.160] 12 billion is a lot of money, Meryl. What do you think?
+- [03:43.400] Meryl Kennedy: (inaudible)
+- [03:44.600] The President: Peanuts for you though, right?
+- [03:47.280] She's a farmer of rice.
+- [03:51.830] This relief will provide much needed certainty to farmers
+- [03:55.460] as they get this year's harvest to market
+- [03:57.800] and look ahead to next year's crops.
+- [04:00.160] And it'll help them continue their efforts
+- [04:02.380] to lower food prices for American families.
+- [04:05.030] And again, we inherited something that --
+- [04:08.900] We inherited the worst inflation in the history of our country
+- [04:14.220] and we're taking care of it.
+- [04:17.130] Farmers are an indispensable national asset,
+- [04:20.820] part of the backbone of America.
+- [04:23.210] I've always felt it so strongly. They're so important.
+- [04:25.630] Unfortunately, under Sleepy Joe Biden,
+- [04:29.210] he's a sleepy guy, our farmers were crushed
+- [04:32.510] by the worst inflation in modern history
+- [04:34.650] and crippling restrictions on energy, water,
+- [04:37.450] and countless other necessities for farmers.
+- [04:41.290] And what they did to the farmer in terms of putting the brakes
+- [04:44.950] on was just absolutely unacceptable.
+- [04:48.420] In my first term,
+- [04:49.620] we had an agricultural trade surplus by a lot.
+- [04:52.810] We had a big surplus.
+- [04:54.140] I mean, we were exporting American agricultural products
+- [04:57.410] all over the world, making a net profit,
+- [04:59.800] and in many cases, a very substantial profit.
+- [05:02.330] He came in and ruined it.
+- [05:04.070] Biden turned that surplus into a gaping agricultural deficit
+- [05:08.730] that continues to this day, but we're knocking it down.
+- [05:11.190] It's starting to go very good.
+- [05:12.740] In fact, China, as you know,
+- [05:14.680] is buying a tremendous amount of soybeans and the number --
+- [05:19.350] I spoke with President Xi recently, very recently,
+- [05:22.800] and I think he's going to do
+- [05:24.680] even more than he promised to do.
+- [05:26.780] So I think the relationship is a very good one.
+- [05:29.310] I think he's going to do more than he promised to do.
+- [05:31.840] And what he promised to do is a lot.
+- [05:33.830] So we're very happy with that.
+- [05:35.190] In the last year,
+- [05:36.520] Biden bankruptcies rose by 55 percent having to do with farms.
+- [05:42.800] So farm bankruptcies under Joe Biden went up 55 percent.
+- [05:47.670] That's not good.
+- [05:49.250] But now we're once again in a position
+- [05:51.580] where a president is able to put farmers first,
+- [05:55.370] but unfortunately I'm the only president that does that.
+- [05:58.480] On day one, I terminated the green new scam.
+- [06:01.350] Energy prices are down, gasoline prices are down.
+- [06:04.120] We slashed record numbers of crippling regulations
+- [06:08.120] and we're working on huge trade deals,
+- [06:10.580] already securing $60 billion
+- [06:12.740] in agricultural purchase commitments.
+- [06:14.740] And Biden made none.
+- [06:16.650] He didn't make any trade deals having to do with the farmers
+- [06:19.080] or any of it. It's crazy.
+- [06:21.330] China committed --
+- [06:22.590] He was the worst president in the history of our country,
+- [06:24.850] by the way, in case anybody has any questions.
+- [06:27.600] China committed to over $40 billion of soybean purchases,
+- [06:32.110] and that's a commitment.
+- [06:33.880] And I asked President Xi if he could even up it.
+- [06:36.800] And I think he'll do that. I mean, not a commitment.
+- [06:40.330] 40 billion's a commitment.
+- [06:41.920] But the soybean farmers are quite happy.
+- [06:45.510] Since my successful meeting in South Korea with President Xi,
+- [06:48.800] purchases have been made and soybeans are being exported
+- [06:52.150] out of the United States to China as we speak.
+- [06:55.300] And I say that our soybeans -- I told this to President Xi,
+- [07:00.940] our soybeans are more nutritious than competitors.
+- [07:05.400] Somebody said, "Is that a Trump statement or is that real?"
+- [07:08.510] In fact, you know who asked me that question?
+- [07:10.290] President Xi asked me that question.
+- [07:12.660] He said, "Really? I had never heard of it. "
+- [07:14.700] And he was a food purchaser for a long time,
+- [07:17.370] but that's what I hear.
+- [07:18.830] And Japan agreed to 8 billion in purchases of corn,
+- [07:22.630] soybeans, ethanol, fertilizer, aviation, biofuel, and rice.
+- [07:29.730] Japan never bought rice from anybody else.
+- [07:32.410] It's like a very important thing to them,
+- [07:35.020] and they agreed to buy rice. Okay?
+- [07:36.780] Meryl Kennedy: Absolutely.
+- [07:38.160] The President: So I also proudly signed into law
+- [07:40.630] the largest tax cuts in history in the One Big Beautiful Bill,
+- [07:44.800] the monumental tax relief bill that is benefiting,
+- [07:48.340] very, very strongly benefiting the American farmer.
+- [07:50.960] And I think also for farmers, we have, as you know --
+- [07:54.800] And we got this, the estate tax or the death tax,
+- [07:58.280] as they call it, on farmers, on small businesses.
+- [08:03.750] You don't have to pay it anymore.
+- [08:05.530] A lot of farms, you love your children
+- [08:08.760] and your children are great and they want to be farmers,
+- [08:11.340] and you leave the farm to your children
+- [08:13.490] and a lot of farms are sort of cash poor.
+- [08:17.720] Land rich, cash poor.
+- [08:19.660] And the kids would go to the local bank
+- [08:22.400] or to any bank and they'd borrow money to pay the estate tax
+- [08:25.110] and they'd end up losing the farm.
+- [08:26.510] They go bankrupt. And a lot of death, too,
+- [08:31.210] literally because they love their farm
+- [08:33.720] and they love their business and they love that way of life,
+- [08:35.970] they end up committing suicide. A lot of suicides.
+- [08:41.160] We have no more estate tax.
+- [08:43.420] How about that? Do you have children? Huh?
+- [08:45.240] Meryl Kennedy: I do.
+- [08:46.440] The President: Well, let them know.
+- [08:47.640] Now, if you love your children, then it's good.
+- [08:49.760] If you don't love your children,
+- [08:51.070] you don't have to leave them anything.
+- [08:52.380] It doesn't matter what I just said.
+- [08:54.080] Meryl Kennedy: They're still young. I still love them.
+- [08:55.430] The President: I have a feeling you love them.
+- [08:56.650] Meryl Kennedy: I still love them.
+- [08:57.900] The President: I have a feeling you love your children.
+- [08:59.890] But the estate taxes are very big thing.
+- [09:02.340] So you don't have estate tax. You die, you leave your farm,
+- [09:06.040] or whatever, or small business to your children,
+- [09:08.710] you don't have to pay estate tax.
+- [09:10.170] It seems to affect the farmer more than anybody else
+- [09:13.690] because you can have a farm that's very valuable
+- [09:15.590] and therefore you have to pay a big tax,
+- [09:16.960] but it's not a big value in terms of cash.
+- [09:21.160] Maximizing domestic farm production is a big part
+- [09:24.060] of how we will make America affordable again
+- [09:27.120] and bring down grocery prices for American families.
+- [09:30.070] And again, these are prices that we inherited.
+- [09:32.800] When I left, we were doing incredible.
+- [09:35.840] In four years, what they've done to this country and so many --
+- [09:38.270] And not even mentioning the border
+- [09:39.840] and the criminals allowed into our country
+- [09:41.620] and all of the others.
+- [09:42.940] So I just want to say it's a tremendous honor being with you.
+- [09:47.460] I'd now like to ask Secretary Rollins
+- [09:50.330] to provide some of the details, followed by Secretary Bessent,
+- [09:54.110] Director of the National Economic Council,
+- [09:57.510] Kevin Hassett, Senator Boozman, Representative Scott,
+- [10:01.620] and then we go to a couple of the farmers' representatives,
+- [10:06.570] but we'll all get involved a little bit.
+- [10:08.220] You can speak. Anybody who's shy to speak in front of the press,
+- [10:11.450] and I don't blame you if that's the case,
+- [10:13.680] but farmers Cordt Holub and Meryl Kennedy
+- [10:17.800] will say a few words also.
+- [10:19.020] And then we'll have a little discussion. Okay?
+- [10:22.280] Madam Secretary?
+- [10:23.480] Secretary Rollins: Thank you to the greatest boss in the world
+- [10:26.540] for a long time now. It's just an honor to be here.
+- [10:28.700] I'm going to keep my comments very short
+- [10:30.860] because I really want to make sure
+- [10:32.170] that you and the world gets to hear from our farmers.
+- [10:34.580] So a couple of quick points.
+- [10:36.240] Number one, this country and our farm economy
+- [10:40.880] is facing a crisis that we inherited
+- [10:44.380] that most of these farmers have not seen in their lifetime.
+- [10:48.250] Profitability is down. It's just one crisis after another.
+- [10:52.880] When we came into office, Sir,
+- [10:54.570] when you did and you were sworn in on January the 20th,
+- [10:57.420] as you mentioned,
+- [10:58.650] not one new trade deal had been struck in four years.
+- [11:01.720] The cost of inputs for our farmers,
+- [11:04.490] fertilizer up 36 percent, manual labor up 47 percent,
+- [11:10.020] interest rates up 73 percent,
+- [11:12.700] when you combine the cost of inputs for our farmers,
+- [11:15.640] married to no new trade deals,
+- [11:18.310] and then you're facing an administration
+- [11:20.590] whose priorities were DEI, climate change,
+- [11:24.430] putting the farmer aside,
+- [11:25.980] I mean, it was an absolute war on agriculture
+- [11:29.220] and on our rural communities.
+- [11:31.260] That all changed on January 20th.
+- [11:33.330] So as, Sir, we are working and you have been just so resolute.
+- [11:37.510] I mean, these are our people.
+- [11:39.340] Rural America is the fabric of our country.
+- [11:42.540] This is the way of life that preserves
+- [11:45.040] the American dream for the next 250 years
+- [11:47.600] as we celebrate the first 250 years.
+- [11:50.550] So we began to go to work immediately.
+- [11:53.340] What these elected officials sitting across from us
+- [11:56.350] did with the One Big Beautiful Bill,
+- [11:57.790] with a lot of help and direction from you,
+- [12:00.060] was the largest investment in rural America
+- [12:03.120] in any of our lifetimes.
+- [12:05.230] We will begin to see that effectuated next year in 2026.
+- [12:09.080] As we have fought to bring input costs down,
+- [12:12.280] you have talked about, and even this weekend,
+- [12:14.700] did an executive order, signed one,
+- [12:16.650] on looking into the reason that so much of these costs
+- [12:20.520] have been driven up over and over,
+- [12:22.220] equipment, again, fertilizer, seed, et cetera, et cetera.
+- [12:25.150] We have to make sure we understand why that is.
+- [12:28.770] And then the continuing of the additional trade
+- [12:30.900] deals across the world.
+- [12:33.010] And no longer will America be held and beholden
+- [12:35.730] to the regime
+- [12:36.950] of other countries' tariff infrastructure.
+- [12:39.480] Instead, we are moving our products out across the world.
+- [12:43.240] Having said that, and we have been listening to the farmers
+- [12:45.920] for the last 10 months, 11 months, Sir,
+- [12:48.090] that the bridge that is needed to get
+- [12:51.270] from the last administration
+- [12:53.490] and what basically happened under the last president
+- [12:56.990] and the last US Department of Agriculture
+- [12:59.340] to this new golden age for farmers
+- [13:01.820] where instead of farming for government checks,
+- [13:04.510] they can farm to feed their family
+- [13:06.310] and sell their products and pass it on to the next generation,
+- [13:09.910] that this bridge is absolutely necessary
+- [13:12.530] based on where we are right now.
+- [13:14.470] So as the president said,
+- [13:16.100] we are very pleased to announce that today
+- [13:18.490] we are going to be effectuating an $11 billion trade --
+- [13:24.110] Not trade, but bridge payment to our farmers.
+- [13:26.870] The money will move by February 28th of 2026.
+- [13:30.950] But by the end of this month,
+- [13:32.660] so just in the next couple of weeks,
+- [13:34.640] every farmer that is able to apply for it
+- [13:38.860] will know exactly what that number looks like.
+- [13:41.440] So as you are going to your lender,
+- [13:43.500] as you are working to ensure and understanding
+- [13:45.730] what you can plant for next year,
+- [13:47.710] you will have that number in hand.
+- [13:50.300] And we will continue to talk to our farmers,
+- [13:52.820] continue to understand exactly what this looks like
+- [13:56.150] and what is necessary.
+- [13:57.400] The final thing I'll say is --
+- [13:58.690] The President: It's 12 billion.
+- [13:59.900] Secretary Rollins: Well, we are holding one billion back.
+- [14:01.710] So today we are announcing 11 billion.
+- [14:04.050] We are holding one billion back
+- [14:06.190] just to ensure that we are covering.
+- [14:08.490] So today's announcement covers all of our row crops --
+- [14:11.540] all of our row crops,
+- [14:12.930] but some specialty crops and others
+- [14:15.340] that we are still working with to best understand
+- [14:18.100] where they are in the farm economy
+- [14:19.720] and ensure that we're making every forward-moving position
+- [14:24.750] that we need to.
+- [14:26.080] And then finally, as we move to this new golden age
+- [14:29.800] for agriculture and for rural America,
+- [14:31.720] as we continue to fight for these farmers and ranchers,
+- [14:34.460] their way of life and those that are represented here,
+- [14:37.270] represent hundreds of thousands of farmers across this country.
+- [14:40.540] Just know that this president, I have never been around anyone
+- [14:44.710] who every time we talk, he asks, "How are my farmers?"
+- [14:49.930] Every single time. So we will never stop fighting.
+- [14:53.560] We will make sure that we're doing everything we can
+- [14:55.650] to ensure the next 250 years is just as bright,
+- [14:58.430] if not brighter than the last. So thank you, Sir.
+- [14:59.990] The President: Thank you, Brooke.
+- [15:01.190] Secretary Rollins: Thank you.
+- [15:02.470] The President: And this money would not be possible
+- [15:04.170] without tariffs.
+- [15:05.790] The tariffs are taking in hundreds of billions of dollars
+- [15:08.630] and we're giving some up to the farmers
+- [15:11.250] because they were mistreated by other countries for,
+- [15:14.540] I don't know, maybe right reasons, maybe wrong reasons.
+- [15:16.800] They weren't -- They were trying to show us something
+- [15:19.560] and it's really worked out really well.
+- [15:24.010] But because of the tariffs, this is possible.
+- [15:27.230] The other thing I'd like to add before going to Scott,
+- [15:29.890] and I think it's very important, we're going to also give
+- [15:32.090] the tractor companies, John Deere
+- [15:35.620] and all of the companies that make the equipment,
+- [15:38.770] we're going to take off a lot of the environmental restrictions
+- [15:41.320] that they have on machinery. It's ridiculous.
+- [15:43.880] I know because I buy a lot of that machinery
+- [15:45.430] for different things.
+- [15:46.640] We have a lot of big clubs with hundreds,
+- [15:49.140] thousands of acres, and I buy a lot of stuff.
+- [15:52.230] And you buy it.
+- [15:53.990] It's got so much equipment on it for the environmental,
+- [15:56.290] it doesn't do anything,
+- [15:57.970] except it makes the equipment much more expensive
+- [16:00.710] and much more complicated to work,
+- [16:02.900] and it's not as good as the old days.
+- [16:06.930] And we're going to take a lot of that nonsense
+- [16:09.120] off of the equipment, which is going to reduce --
+- [16:11.650] And we're going to do it,
+- [16:12.980] and we're going to say you're going to reduce the prices.
+- [16:14.650] We're not going to do it and they're not going to reduce it.
+- [16:16.370] They're going to have to reduce their prices
+- [16:18.150] because farming equipment has gotten too expensive.
+- [16:21.370] And a lot of the reason is because
+- [16:22.780] they put these environmental excesses on the equipment,
+- [16:26.440] which don't do a damn thing except make it complicated,
+- [16:29.740] make it impractical. And you really have to be --
+- [16:33.230] In many cases, you need about 185 IQ to turn on a lawnmower.
+- [16:38.760] So we're going to take that off, that crap off that they put on,
+- [16:42.450] Biden mostly.
+- [16:44.140] And we're going to take that off.
+- [16:46.490] So that's going to make a big --
+- [16:47.990] That'll bring down the equipment prices a lot.
+- [16:51.240] And we're going to do that immediately.
+- [16:52.760] You're going to work with Lee Zeldin,
+- [16:54.670] who's not here, he's doing a fantastic job,
+- [16:56.570] and Lee is going to work that out.
+- [16:58.340] And that would be most of it. It's crazy.
+- [17:01.400] The machines, they're always under repair
+- [17:04.490] because they're so complicated that you can't fix them.
+- [17:07.680] The old days, you used to fix it yourself.
+- [17:09.400] Now you can't do that.
+- [17:10.680] You have to be a PhD from, let's say MIT. Okay.
+- [17:13.940] Okay. So we're going to get that done.
+- [17:16.640] Scott, please, go ahead.
+- [17:17.880] Secretary Bessent: Good. Thank you, Mr. President.
+- [17:19.390] Thank you to the farmers to join us today.
+- [17:22.150] And I will tell all of you here, either in person
+- [17:26.340] or when we were on a call with President Xi,
+- [17:29.230] the first thing the President asking for
+- [17:31.470] is more soybean purchases.
+- [17:34.510] We don't talk about geopolitics, we don't talk about trade,
+- [17:37.600] it's about soybean purchases.
+- [17:38.860] The President: We don't even say hello,
+- [17:40.100] we immediately start soybean.
+- [17:41.600] Secretary Bessent: It's true.
+- [17:42.840] The President: We start with the soybean, please.
+- [17:45.760] Secretary Bessent: It's always, "Could you do a little more?"
+- [17:48.350] And I think President Xi heard President Trump.
+- [17:53.080] This group represents an American way of life
+- [17:55.320] that has fed our nation and its spirit for hundreds of years.
+- [17:58.620] You are the caretakers of the most productive
+- [18:00.830] agricultural country on Earth.
+- [18:02.950] You drive hundreds of billions of dollars in exports,
+- [18:06.080] support millions of jobs,
+- [18:07.750] and keep America's economy running strong,
+- [18:10.360] and this administration is committed
+- [18:12.080] to keeping it that way. By putting farmers first,
+- [18:14.920] President Trump is ushering in a new golden age for agriculture.
+- [18:19.300] The President's 11 billion relief package
+- [18:21.470] for America's farmers comes at a critical time.
+- [18:24.250] These direct payments will give producers the breathing room
+- [18:26.860] they need to market this year's harvest
+- [18:28.930] and plan for next season.
+- [18:30.880] This serves as a liquidity bridge
+- [18:32.730] during a period of adjustment, supporting the strongest
+- [18:35.920] agricultural sector in the world.
+- [18:38.250] Add this to President's success in reining
+- [18:40.830] in Biden era inflation,
+- [18:42.680] thanks to the administration's pro- growth policies,
+- [18:45.400] input costs like fuel, fertilizer, are easing,
+- [18:48.790] and credit conditions are improving,
+- [18:50.890] interest rates are coming down,
+- [18:52.700] helping farmers prepare for the next harvest.
+- [18:55.710] President Trump scored a massive victory for America's farmers
+- [18:59.130] when he secured an arrangement with President Xi and Busan
+- [19:02.650] to reopen China's markets to US agricultural exports,
+- [19:06.730] especially soybeans, sorghum and other commodities.
+- [19:10.050] Under this framework, China committed to purchase at least,
+- [19:13.350] at least, 12 million metric tons of US
+- [19:16.180] soybeans this growing season,
+- [19:18.170] followed by a minimum of 25 million tons annually
+- [19:22.250] for the next three years.
+- [19:23.880] And it's not just China, at the President's direction,
+- [19:27.130] Treasury, USTR and the Department of Commerce
+- [19:30.480] have secured supplemental purchases
+- [19:32.820] of US agricultural goods and major trade agreements
+- [19:36.320] across the world to open new markets to America's farmers.
+- [19:41.110] The One Big Beautiful Bill also delivered
+- [19:43.500] transformative benefits for America's small farmers.
+- [19:46.660] It locked in full expensing for farm equipment
+- [19:49.600] and 100 percent expensing for farm structures
+- [19:52.470] built during the President's term.
+- [19:54.770] I believe Representative Scott and a group in the House,
+- [19:58.690] we were originally just going to do factories,
+- [20:01.030] and they called us and said,
+- [20:02.270] "You need to do farm structures too."
+- [20:04.230] And the President said, "We're all in."
+- [20:06.870] And it extended and enhanced much needed relief
+- [20:09.400] from the punishing death tax,
+- [20:11.330] giving family farms greater certainty
+- [20:13.340] as they plan for the next generation.
+- [20:15.720] Mr. President, thank you for putting America first
+- [20:18.120] by putting your farmers first.
+- [20:20.000] Through pro-growth, pro-farm agenda,
+- [20:22.440] you're ushering in a new golden age of American agriculture,
+- [20:25.780] and Treasury is proud to help in this.
+- [20:29.020] The President: Thank you, Scott. You know what we'll do?
+- [20:30.460] We're going to go a little faster,
+- [20:31.780] because the last meeting we had was three hours.
+- [20:37.170] We're the most transparent group,
+- [20:39.310] so if we can go faster, it'd be great.
+- [20:41.820] And then, we'll take some questions from the fake news.
+- [20:44.530] Is that okay? Kevin, go real fast. Kevin.
+- [20:48.210] Kevin: Yeah, I can go really fast, sir.
+- [20:50.780] Sir, the farm economy, you always ask me
+- [20:53.100] to just get a few numbers to put it in perspective,
+- [20:56.140] and as I've looked through the incredible performance
+- [20:58.640] of these people that work so hard
+- [21:00.860] and are such important people for keeping communities alive,
+- [21:04.690] the thing that struck me the most,
+- [21:06.250] because you and I were here in the White House during COVID,
+- [21:09.360] is that during those terrible COVID times,
+- [21:12.980] farm production didn't go down.
+- [21:15.750] These farmers, they went to work every day
+- [21:18.270] and they produced so much, but then Joe Biden came in.
+- [21:22.190] So we had COVID and farm production didn't go down,
+- [21:25.480] and then Joe Biden came in
+- [21:27.200] and he really wrecked the farm economy.
+- [21:30.640] And so, during Biden's term, 150,000 farms closed,
+- [21:35.570] sir, 150,000 farms closed,
+- [21:38.440] after we went through COVID and we didn't have a problem.
+- [21:41.820] Now, why did we do it? Why were we able to do that?
+- [21:44.530] I'm going fast. The first is that,
+- [21:47.640] do you know the expenses for farms fell 5 percent
+- [21:50.150] while we were here because of all the things that we did,
+- [21:52.130] expensing and everything else?
+- [21:54.190] But under Joe Biden, they went up 13 percent
+- [21:56.600] because of all the regulations, energy, everything else.
+- [22:00.700] But the thing that really jumped out at me the most is,
+- [22:03.300] because you had high growth and low inflation,
+- [22:06.570] interest expense for the farm economy
+- [22:08.380] fell $120 million per year
+- [22:11.000] while you were there in the White House.
+- [22:12.560] But under Joe Biden,
+- [22:13.760] it increased by eight billion per year.
+- [22:16.790] And so, you wonder why it is that we need this $11 billion,
+- [22:19.210] maybe $12 billion
+- [22:20.670] to build a bridge loan to America's farmers,
+- [22:23.490] it's because we know how to fix it,
+- [22:26.180] but there really was a hole that was done
+- [22:27.950] in the previous administration. Thank you.
+- [22:29.900] The President: Thank you very much.
+- [22:31.370] That was quick, that was good. Appreciate it. Senator, please.
+- [22:36.660] John: Yes, sir. No, thank you so much.
+- [22:38.200] Thank you for convening this great announcement
+- [22:43.520] and all your hard work for farmers.
+- [22:46.320] I was reading the clips, and I think yesterday,
+- [22:48.990] you talked about, Mr. Secretary,
+- [22:51.890] about farmers needing certainty, which is so true.
+- [22:56.020] This bridge note is one of those things that provides certainty.
+- [23:00.050] I also, as I was reading that, thought to myself,
+- [23:02.780] the one thing that farmers can be certain of
+- [23:05.420] is the fact that you've got their back,
+- [23:07.390] and you've proved that through the years
+- [23:09.770] in the last administration and now this.
+- [23:14.070] I was giving a presentation to the Senate a while back,
+- [23:20.200] and I was talking about us having the cheapest,
+- [23:22.420] safest food supply of any place in the world.
+- [23:25.230] It's not just about the farmers in rural America.
+- [23:29.710] And so, Marco Rubio was sitting by me prior
+- [23:32.670] to coming over here and becoming the great Secretary of State,
+- [23:37.680] but he punched me and said, "John, always remind them,"
+- [23:41.480] he was head of the committee on intelligence then,
+- [23:45.890] he punched me, he said, "Always remind them,
+- [23:48.140] food security is national security."
+- [23:50.940] So this is important for so many different reasons.
+- [23:53.990] And again, I appreciate you for recognizing that,
+- [23:57.280] not only now,
+- [23:58.730] but when you were campaigning in your first election,
+- [24:01.890] how you treated the farmers in your first administration,
+- [24:06.620] and now, now stepping up.
+- [24:08.700] So we look forward to helping you,
+- [24:11.290] if you need some additional help looking to Congress,
+- [24:15.230] whatever, we'll be there for you.
+- [24:17.810] The President: We've taken in so much money with the tariffs
+- [24:19.900] now that it's such a pleasure.
+- [24:22.350] Without it, we wouldn't be able to help you.
+- [24:25.870] We're the richest country in the world now,
+- [24:30.290] and we have a big decision.
+- [24:32.370] Hopefully, we're going to get the right decision.
+- [24:35.380] It's such a big thing in the Supreme Court right now.
+- [24:37.640] We have a lot of bad people opposed to this,
+- [24:40.010] people that hate our country.
+- [24:42.420] Other countries are involved, some real sleaze bags
+- [24:44.980] that I know, political sleaze bags,
+- [24:47.410] and they're trying to take that away from us.
+- [24:51.810] We have other methods, but they're not as powerful,
+- [24:55.600] they're not as quick. Some of the wars that I solved
+- [24:59.040] wouldn't have been solved using those methods.
+- [25:01.570] So it's a very important thing, the tariff.
+- [25:03.400] The decision of the Supreme Court's a very important thing.
+- [25:06.950] And Scott, we can do it other ways,
+- [25:09.230] but it's slow and it's cumbersome
+- [25:12.860] and it doesn't have the national security power that we have.
+- [25:17.380] So I hope we're going to be successful,
+- [25:18.890] that's all I can tell you. Austin, please. Thank you, John.
+- [25:22.250] Austin: Well, first of all, President,
+- [25:23.550] thank you for the selection of Brooke Rollins
+- [25:25.410] as Secretary of Agriculture. That was a big first step.
+- [25:30.650] The President: You want to keep her?
+- [25:33.170] Austin: Absolutely.
+- [25:34.560] John: Can I butt in and second that?
+- [25:36.520] Not only her, but her staff, does a tremendous job.
+- [25:39.600] The President: I agree. Remember the eggs?
+- [25:41.310] Remember we came in, and the people in the media,
+- [25:45.390] I'm going to be nice, the people in the media --
+- [25:47.830] We're three days into offices, they were saying,
+- [25:51.240] "Egg prices are up like 90 percent, more than that."
+- [25:55.270] And I said, "I just got here, I didn't know about it."
+- [25:58.280] Anyway, she got those prices down to below
+- [26:01.200] what they were before, she's doing a great job.
+- [26:03.680] Now, beef is starting to come down
+- [26:06.240] and some other things are starting to come down.
+- [26:08.230] Again, we inherited these problems,
+- [26:10.090] but we're getting them down. Go ahead, please.
+- [26:12.230] Austin: (inaudible) fact-based decision-maker,
+- [26:13.550] and the egg issue is where I learned about her.
+- [26:15.880] She said, "We're not going to use a vaccine that doesn't work,
+- [26:18.280] we're going to develop a vaccine that does."
+- [26:20.390] And that is 100 percent what it takes.
+- [26:22.310] And so, we have to make decisions based on facts.
+- [26:25.040] And President Trump, the trade issues,
+- [26:27.310] I want to thank you
+- [26:28.730] for exposing what other countries are doing to us.
+- [26:31.500] I want to mention one specifically
+- [26:32.820] for the benefit of Kevin and Scott,
+- [26:34.520] I hope they're paying attention to it.
+- [26:36.020] The European Union Deforestation Regulation,
+- [26:39.150] where they are imposing on our landowners rules
+- [26:42.710] that were established for Brazil,
+- [26:44.720] and now they're telling the American farmer
+- [26:46.300] what they can and can't do on their own land
+- [26:49.870] through this European Union Deforestation Regulation.
+- [26:54.030] The President: What is it? Explain that.
+- [26:56.040] Austin: They are telling the American farmer
+- [26:57.720] that if their timber is cut
+- [26:59.400] and they are going to use that land for pasture land
+- [27:02.070] or for production agriculture,
+- [27:03.460] that they will not take the timber
+- [27:04.850] or the byproducts from the sale of that timber.
+- [27:08.090] And I have talked with James a little earlier
+- [27:12.360] about we need to make it clear to Europe,
+- [27:14.900] Mr. President, if you would-
+- [27:16.330] The President: If you can give me
+- [27:17.590] a two paragraph statement on that,
+- [27:19.930] I will give that to them,
+- [27:21.290] and they will do what they have to do.
+- [27:23.090] Austin: Yes, sir.
+- [27:24.370] The President: We're always helping them,
+- [27:25.650] and they do this kind of stuff
+- [27:28.020] and they pass little regulations that cost billions of dollars.
+- [27:32.370] It takes them two minutes to do it, they do it.
+- [27:35.610] Very tough, no good.
+- [27:37.190] You give me a couple of paragraphs,
+- [27:39.630] that's all, we don't have to do a lengthy study,
+- [27:41.930] and I'll get that changed fast, okay?
+- [27:44.810] Austin: Thank you very much, President. We love you.
+- [27:46.560] The President: It's incredible, it's incredible.
+- [27:48.930] Every day, it's something else.
+- [27:51.340] Austin: A country that can't feed itself
+- [27:52.750] doesn't know what freedom is, and so thank you for making sure
+- [27:55.570] that our farmers have the tools that they need
+- [27:57.840] so that we as a country can feed ourselves.
+- [27:59.590] The President: Well, just what you said to me
+- [28:00.880] about the European Union
+- [28:02.750] (inaudible) the European Union,
+- [28:04.800] we have to be able to act quickly with tariffs.
+- [28:06.920] We can't just go to a committee,
+- [28:09.540] go to a study that takes seven months and talk,
+- [28:14.160] we've got to be able to act quickly.
+- [28:15.910] So thank you very much. John?
+- [28:19.240] John: So thank you,
+- [28:20.440] I think that's the message from farm country
+- [28:23.530] is thank you very much.
+- [28:24.970] In the Working Family Tax Relief Act,
+- [28:28.390] or as my young staffers call it,
+- [28:30.280] OB3, there is a tremendous amount for farmers and ranchers.
+- [28:36.350] You mentioned the credit as far as estate tax,
+- [28:40.520] which is so important, you analyzed it just right.
+- [28:43.310] But also in there, we enhanced ARC and PLC,
+- [28:46.440] which is a countercyclical safety net,
+- [28:48.520] thanks to the strong leadership of Senator Boozman
+- [28:51.660] and our colleagues in the House. We also included the Farmer Act,
+- [28:55.760] which was my bill to make crop insurance more affordable.
+- [28:58.780] These tools will kick in next year, Mr. President,
+- [29:01.920] in a big, big way for our farmers, big time.
+- [29:05.110] And people aren't even really looking at it yet,
+- [29:07.750] but it's going to be a very big deal.
+- [29:10.760] So today is all about bridging to get there.
+- [29:13.300] And I want to thank Secretary Bessent and Jamieson Greer,
+- [29:16.170] they're tremendous and they're negotiating hard out there
+- [29:18.770] for farmers and ranchers.
+- [29:20.160] The President: They are.
+- [29:21.380] John: And I know it's because you're setting the tone,
+- [29:23.650] but this is that bridge.
+- [29:24.930] And so, we need to come back to Secretary Rollins,
+- [29:28.780] thank you, your leadership on this was vital,
+- [29:33.070] and Mr. President, you're right,
+- [29:36.090] they love you in farm country out there.
+- [29:38.000] All you have to do is drive out and see the flags and --
+- [29:41.060] The President: There's signs all over the fields.
+- [29:42.520] John: On the hay bales, right?
+- [29:43.760] The President: It's a great honor.
+- [29:45.030] They're great people, the best people.
+- [29:46.740] John: This is really important,
+- [29:48.210] really important for our farmers and ranchers.
+- [29:49.820] Thank you very much. The President: Thank you.
+- [29:51.090] You're doing a great job too, John, thank you.
+- [29:53.610] And whatever we need, we get through the Senate,
+- [29:55.290] we get through the House, we'll get it done.
+- [29:59.860] I think we'll start maybe with Cordt Holub,
+- [30:02.590] and you come from a place that I'm very happy with, Iowa.
+- [30:07.130] Cordt Holub: I hail from the great state of Iowa.
+- [30:09.800] I'm surrounded here by some of the greatest farmers in the area
+- [30:13.540] and from across the country, anything from rice farmers,
+- [30:17.690] we've got all sorts of cotton farmers,
+- [30:19.620] everything, everything is here represented so well.
+- [30:22.530] And first off, from me,
+- [30:24.710] I want to say thank you for this bridge payment,
+- [30:27.660] it's Christmas early for farmers.
+- [30:29.620] And just to have an icebreaker here for this story,
+- [30:33.100] I've got a two-year-old little boy at home,
+- [30:35.100] a two-year-old little boy and a four-month-old little girl.
+- [30:37.920] And the other day, I was reading my little boy a story at night,
+- [30:42.340] putting him to bed, and he said, "
+- [30:44.500] Daddy, I don't want Santa Claus to come to our house
+- [30:48.890] for Christmas, I want President Trump."
+- [30:54.020] And I think, Mr. Trump,
+- [30:56.260] I think you brought Christmas to farmers
+- [31:00.670] with this bridge payment,
+- [31:01.890] we'll be able to farm another year, help us get by.
+- [31:07.030] It's such an honor to be here with you.
+- [31:12.340] I lost my grandfather and our hired hand in 2002
+- [31:16.600] in a farming accident,
+- [31:19.680] and he instilled in me at an early age to love the land,
+- [31:25.770] to take pride in what we do.
+- [31:27.590] The President: Was that a machine accident?
+- [31:28.940] Cordt Holub: It was a machine accident.
+- [31:31.120] And it gets in your blood to farm, it's in our blood.
+- [31:37.100] Despite what happened, I want my two-year old to farm,
+- [31:42.020] I want my four-month-old daughter to have an opportunity.
+- [31:45.900] And what you're doing here in D.C. is working.
+- [31:51.200] You have a backbone to stand up to other countries for trade,
+- [31:56.680] you're getting things done, tax provisions.
+- [31:59.430] I'll be able to potentially pass on a farm
+- [32:02.270] to my children because of you.
+- [32:05.380] Ethanol, you're working for ethanol,
+- [32:07.880] trying to get E15 year-round. We're dealing with California,
+- [32:13.740] Prop 12, let's continue to work on that.
+- [32:17.390] I think we can have a lot of domestic product
+- [32:19.770] used here in the country, and we can keep America first,
+- [32:24.610] and you're good at that, that is who you are.
+- [32:27.930] And if we keep that E15, you could have the biggest --
+- [32:30.940] The President: So E15 is a big deal?
+- [32:32.420] Cordt Holub: E15 is a great deal year-round.
+- [32:35.000] You could have the biggest stamp, I did that,
+- [32:38.540] Trump did that, and we would thank you.
+- [32:40.120] Farmers would love you more than anything
+- [32:42.630] if we could continue that,
+- [32:44.460] continue to use domestic product, use the byproducts,
+- [32:48.530] and even be able to export to other countries.
+- [32:50.710] And so, what you've done here and just having us here
+- [32:53.890] in the White House with you, sitting beside the Secretary
+- [32:56.990] and all these other great individuals here,
+- [33:00.360] what a true honor.
+- [33:02.210] I will take pride in this meeting,
+- [33:03.900] and I'll take this home for many generations to come,
+- [33:06.910] and because of what you're doing,
+- [33:08.350] hopefully them generations can stay on the Holub Farm.
+- [33:10.820] The President: Well, we're going to bring you
+- [33:12.150] into the Oval Office when we're finished, okay?
+- [33:14.430] The President: The farmers. Nobody else, just the farmers.
+- [33:19.170] And we'll take some pictures.
+- [33:21.670] Our representatives also, we have to salute them
+- [33:24.670] because they're doing a great job.
+- [33:27.230] John and John and Austin, we appreciate it.
+- [33:29.410] You're doing a great job.
+- [33:31.070] Meryl, go ahead please. Tell us about Rice.
+- [33:32.860] Meryl Kennedy: Rice.
+- [33:34.220] Well, thank you first of all for inviting me here.
+- [33:38.200] And my friend, the secretary,
+- [33:40.240] you have an incredible lady right here.
+- [33:42.650] She really is.
+- [33:44.330] Along with being a mother of three and a wife,
+- [33:48.370] I run my family's agribusiness, Kennedy Rice Mill,
+- [33:51.380] in a little town called Mer Rouge, Louisiana.
+- [33:54.410] About a thousand people in the northern part of the state.
+- [33:59.120] We employ around 150 people,
+- [34:01.450] taking rice from the field to a finished product.
+- [34:04.900] Supplying some of the largest food companies
+- [34:07.170] that many of you would know here domestically, but also abroad.
+- [34:11.800] And my sisters and I, because there is four of us,
+- [34:14.430] I'm the youngest of four daughters,
+- [34:16.640] started our own rice brand a few years ago
+- [34:19.150] to just tell the story of American agriculture
+- [34:22.520] that hadn't really been told before.
+- [34:25.330] But I wish I was here under better terms.
+- [34:28.910] I'll tell you, I think the rice industry thanks you sincerely
+- [34:32.090] for what you have done for the California rice market
+- [34:34.390] and to Japan.
+- [34:36.070] It has been monumental for our industry,
+- [34:39.440] but us in the south are really struggling.
+- [34:41.800] I mean, this is not just a crisis.
+- [34:43.520] I would say it's almost a market dynamics
+- [34:47.400] that really are true anticompetitive nature.
+- [34:53.690] So it follows what you sent out this weekend.
+- [34:57.460] And we do believe that countries
+- [34:59.280] are dumping rice into this country today.
+- [35:01.810] We've never seen imports this great.
+- [35:04.460] The President: Which countries?
+- [35:06.200] Meryl Kennedy: India, Thailand, even China into Puerto Rico.
+- [35:10.070] Puerto Rico used to be one of the largest markets for US rice.
+- [35:13.520] We haven't shipped rice into Puerto Rico in years.
+- [35:16.700] So this has been happening for years.
+- [35:19.430] This didn't start during your administration.
+- [35:21.760] But unfortunately, we're seeing it in a much bigger way now.
+- [35:26.410] The tariffs are working, but we need to double down because-
+- [35:30.630] The President: You want more. I understand.
+- [35:31.910] Meryl Kennedy: Well, they're cheating, right?
+- [35:34.810] They're just subsidizing and then-
+- [35:36.770] The President: India. Tell me about India.
+- [35:38.140] Why is India allowed to do that? They have to pay tariffs.
+- [35:41.600] Do they have an exemption on rice?
+- [35:42.890] Secretary Bessent: No, sir.
+- [35:44.130] We're still working on their trade deal, so-
+- [35:45.950] The President: Yeah, but they should be dumping.
+- [35:47.150] I mean, I heard that from others.
+- [35:49.080] You can't do that.
+- [35:50.420] Meryl Kennedy: There's a WTO case against India right now.
+- [35:52.690] The President: Give me the countries, if you could.
+- [35:54.650] Go ahead. India, who else? Mark it down, would you, Scott?
+- [35:58.380] Secretary Bessent: Yes, sir.
+- [35:59.630] Meryl Kennedy: India, Thailand, China into Puerto Rico,
+- [36:03.970] not into the continental US, but into Puerto Rico.
+- [36:08.610] Those are the main culprits.
+- [36:10.120] The President: So Puerto Rico used to do a lot of business
+- [36:11.710] and now you're --
+- [36:12.960] Meryl Kennedy: 100 percent, Puerto Rico was US based.
+- [36:15.790] The President: All right. So easy to set up. Okay.
+- [36:18.990] Meryl Kennedy: But there's others too,
+- [36:20.270] and I can get you a full list as well.
+- [36:21.500] The President: Get me a full list. Yeah.
+- [36:22.720] Meryl Kennedy: Of course I can.
+- [36:23.980] The President: All right. Go ahead.
+- [36:26.240] Meryl Kennedy: So truly, this is a national security issue.
+- [36:28.840] I think you put it just perfectly.
+- [36:31.870] And so I want for all of us in the room
+- [36:34.210] to know that rice is more than just a commodity.
+- [36:37.410] It's a currency in many of these countries.
+- [36:38.930] The President: And you love rice, right?
+- [36:40.200] Do you love -- Meryl Kennedy: I love rice.
+- [36:41.410] Yes. I'm going to get you to love rice too.
+- [36:43.100] The next time, you're not going to have a button for a Coke,
+- [36:45.360] you're going to have a button for rice.
+- [36:46.840] Secretary Rollins: Get a little bit of rice.
+- [36:50.060] The President: The farmers love what they do.
+- [36:51.260] Secretary Rollins: It's true.
+- [36:52.500] Meryl Kennedy: Well, our farmers can feed this nation
+- [36:54.970] and many nations abroad,
+- [36:56.900] but we need fair trade, not free trade.
+- [36:59.130] And so we appreciate what you've done today.
+- [37:01.850] We appreciate what you did in the Big Beautiful Bill.
+- [37:03.850] I mean, my word, you really changed reference prices
+- [37:08.360] and we're hopeful that we can even move that further.
+- [37:11.430] I know that prices right now are the lowest
+- [37:14.010] they've been in over 40 years, so we're going to struggle.
+- [37:17.180] We're going to max out on our payments probably.
+- [37:20.490] So that's something that I know those in Congress
+- [37:22.560] can potentially help us with to change.
+- [37:25.300] But again, we appreciate everything you're doing.
+- [37:27.570] The President: It's solved so quickly with tariffs
+- [37:30.180] to these countries
+- [37:31.860] that are illegally shipping. It's solved.
+- [37:33.990] Your problem is solved in one day.
+- [37:36.580] That's why we have to win the Supreme Court case.
+- [37:40.040] And one day that problem solved, it's so unfair.
+- [37:43.260] They go out of business, they put everyone out of business.
+- [37:45.210] That's what they did to our car,
+- [37:46.640] we lost more than 50 percent of our car industry
+- [37:49.350] because of that.
+- [37:50.890] Our chip industry went to Taiwan because of that.
+- [37:53.980] If you had a president that said,
+- [37:55.290] "No, you can't do that.
+- [37:56.510] It's 100 percent or 200 percent tariff on chips
+- [37:58.770] if you make them outside of the United,"
+- [38:01.200] we would have never lost our chip industry.
+- [38:02.990] But we're going to have 40 percent
+- [38:04.270] or 50 percent of it back very shortly
+- [38:06.770] because they're all coming in now from Taiwan.
+- [38:08.860] They're building chip companies.
+- [38:10.160] But it's the same thing with rice.
+- [38:12.270] Thank you, darling, very much. Very nice.
+- [38:13.850] Meryl Kennedy: Thank you.
+- [38:15.090] The President: It'll be good.
+- [38:16.290] We'll get it solved very quickly.
+- [38:17.740] We just need the countries.
+- [38:18.950] We just give us the names of the countries.
+- [38:22.160] Tariffs again -- it solves the problem in two minutes.
+- [38:25.000] Meryl Kennedy: Yeah.
+- [38:26.240] They've bought the largest brands at retail too,
+- [38:29.360] so they have an incentive to subsidize their products
+- [38:32.810] that they can keep it on the shelf.
+- [38:34.250] The President: Yeah. Who did that?
+- [38:35.900] Meryl Kennedy: The Indians own the two largest brands.
+- [38:39.520] The President: And we'll take care of it. It's so easy.
+- [38:43.380] So do you have any questions?
+- [38:45.180] The Press: Yes. President Trump. How are you?
+- [38:46.770] The President: How about keeping it on farming?
+- [38:49.570] The Press: Your team answered all of my questions on farming.
+- [38:51.650] But I do --
+- [38:52.930] The President: Exactly. Do you have a farm question?
+- [38:54.500] The Press: In the interest of affordability
+- [38:56.120] with this aid package, I assume that that's something
+- [38:59.130] you want consumers to see before midterms next year.
+- [39:02.080] How quickly will that affect prices at the grocery store?
+- [39:04.180] The President: Well, I think the prices
+- [39:05.380] are going to be going down already.
+- [39:07.100] I mean, the prices are way down.
+- [39:08.690] We brought prices way down from what it was.
+- [39:11.390] We inherited high prices.
+- [39:13.740] We inherited the biggest inflation
+- [39:16.760] in the history of our country. That means prices going up.
+- [39:21.470] And we've brought it down very substantially.
+- [39:23.580] Now inflation is essentially gone.
+- [39:26.320] We have it normalized
+- [39:28.020] and it'll go down even a little bit further.
+- [39:30.560] You don't want it to be deflation either.
+- [39:32.140] You have to be careful. But we brought it way down.
+- [39:34.660] We had inflation that was the highest
+- [39:36.560] in the history of our country.
+- [39:38.370] They say 48 years, but I say the history.
+- [39:41.470] 48 years is pretty bad too. So we're solving those problems.
+- [39:46.890] We're bringing them way down. Yeah.
+- [39:48.520] The Press: Would you consider MAGA
+- [39:49.820] incentives for farmers that go by MAGA guidelines?
+- [39:53.470] The President: Well, a lot of the farmers
+- [39:54.720] like those MAGA guidelines. Yeah. So I mean, they do.
+- [39:57.790] We like Maga. How do you feel about that?
+- [39:59.560] Secretary Rollins: Yeah. Let me answer that.
+- [40:00.900] So this is another reason.
+- [40:02.160] I didn't mention it, but this is another reason
+- [40:04.370] I think that what we're moving into
+- [40:05.830] is a golden age for agriculture. As Secretary Kennedy and I,
+- [40:09.920] and across our cabinet with the president's leadership
+- [40:12.510] focusing on making America healthy again,
+- [40:15.020] the undergirding foundational effort in that
+- [40:18.270] is our agriculture industry.
+- [40:19.670] It is our farmers and our ranchers.
+- [40:22.200] So as the new dietary guidelines come out in early January,
+- [40:25.540] where USDA alone spends $400 million a day
+- [40:29.850] on nutrition programs.
+- [40:31.490] That's a whole other SNAP fraud, et cetera.
+- [40:33.860] But when you think about what a market mover that is,
+- [40:36.300] as we begin to move the market toward more locally produced,
+- [40:40.300] American made, healthier products,
+- [40:43.240] closer to the schools, the hospitals, et cetera,
+- [40:47.090] you again begin to open up so much of the market
+- [40:49.870] for the great products produced by these farmers
+- [40:53.110] instead of ultra processed foods out of a box.
+- [40:55.850] So there's a lot that's going to be coming on that as well.
+- [40:58.300] Cara Castronuova: I have a question.
+- [41:00.110] It's not related to farming, but if you'll entertain.
+- [41:02.590] I'm Kara from Lindell TV, Cara Castronuova,
+- [41:04.690] and I'm not fake news, just so you know.
+- [41:06.670] And everybody's talking about the pipe bomber
+- [41:08.780] over the weekend, the suspect that was taken into custody.
+- [41:11.440] I reported on Biden's kangaroo court for four years,
+- [41:14.620] and this is an important question to me.
+- [41:16.760] Everyone knows that J6 was a fedsurrection
+- [41:18.780] to set you and your supporters up.
+- [41:20.860] So my question is, what's your gut instinct
+- [41:22.910] about the new pipe bomber suspect taken into custody?
+- [41:25.780] Does your instinct tell you that he acted alone?
+- [41:28.030] And also, Mr. President,
+- [41:29.280] how do you feel about the lead prosecutor
+- [41:31.330] on the pipe bomber case?
+- [41:32.690] Jocelyn Ballantine is the same prosecutor
+- [41:34.890] that allegedly asked a J6er to lie to frame you for J6
+- [41:38.310] when you did nothing wrong. What are your thoughts?
+- [41:40.000] The President: Well, thank you.
+- [41:41.220] I really appreciate that question.
+- [41:42.870] It's sort of a statement and I appreciate it very much.
+- [41:46.380] Jocelyn is being looked at. They all have to be looked at.
+- [41:49.050] What they're doing is so bad. This was a whole Democrat hoax.
+- [41:52.800] The whole thing was a Democrat hoax
+- [41:54.970] and it's all being looked at. Appreciate that.
+- [41:56.830] The Press: Is this the final aid package, Mr. President,
+- [41:59.440] or is more expected?
+- [42:00.840] Is this the final aid package, farming package?
+- [42:02.870] The President: It depends on where we go.
+- [42:04.400] China's buying a lot, other countries are buying a lot.
+- [42:06.930] And the interesting thing about the farm, they don't want aid.
+- [42:10.420] They want to just have a level playing field.
+- [42:12.080] Meryl Kennedy: No, please.
+- [42:13.310] The President: I've seen that more with farmers
+- [42:14.590] than anybody else. Any other industry, right there?
+- [42:16.380] Right, Deb? Deb: Right.
+- [42:17.600] The President: We've seen it more with farmers
+- [42:19.340] where I've had meetings like this,
+- [42:21.750] primarily in the first term, and we did a great job.
+- [42:24.290] We turned it around.
+- [42:25.540] This is going to be the golden age,
+- [42:27.210] but the farmers don't want aid.
+- [42:29.740] They want to have a level playing field.
+- [42:31.220] Because if they have a level playing field,
+- [42:32.780] they'll do better than anybody else.
+- [42:34.890] They're better than anybody else.
+- [42:36.130] Our product is incredible. Our machinery is incredible.
+- [42:39.380] I mean, we do have the best machines.
+- [42:42.460] It's a very big statement I made though,
+- [42:43.890] the environmental excess that we have put onto our tractors
+- [42:47.320] and all of our machinery.
+- [42:49.080] Do you all agree with that, by the way?
+- [42:51.860] Cordt Holub: It's got to go.
+- [42:53.190] The President: It doesn't do anything
+- [42:55.000] except make the machines break all the time.
+- [42:57.870] And I must say, I like to buy old machinery.
+- [43:02.360] I said buy old because it's better.
+- [43:04.980] The new stuff is terrible. It never works. Never works.
+- [43:08.360] The Press: Mr. President,
+- [43:10.970] you said you would have no problem
+- [43:12.260] with releasing the full video of that strike on September
+- [43:14.970] 2nd off the coast of Venezuela. Secretary Hegseth now says --
+- [43:17.990] The President: I didn't say that.
+- [43:19.400] You said that. I didn't say that.
+- [43:20.990] This is ABC fake news.
+- [43:22.300] The Press: You said that you would have no problem
+- [43:23.830] releasing the full bit. Okay. Well, Secretary Hegseth --
+- [43:25.930] The President: No, whatever Hegseth wants to do
+- [43:27.150] is okay with me.
+- [43:28.360] The Press: He now says it's under review.
+- [43:29.590] Are you ordering the secretary to release that full video?
+- [43:32.380] The President: Whatever he decides is okay with me.
+- [43:34.830] So every boat we knock out of the water, every boat,
+- [43:37.260] we save 25,000 American lives.
+- [43:40.420] That was a boat loaded up with drugs.
+- [43:42.410] I saw the video.
+- [43:43.650] They were trying to turn the boat back
+- [43:46.300] to where it could float, and we didn't want to see that
+- [43:49.680] because that boat was loaded up with drugs
+- [43:51.510] just like everything else. But every boat we shoot down,
+- [43:54.680] and I don't know if you know, we're 92 percent or 94 percent
+- [43:57.900] down in drugs coming in by the sea,
+- [44:00.810] and we're trying to find who are the 6 percent.
+- [44:03.110] Because I don't know, people aren't liking to drive boats
+- [44:06.230] right now, loaded up with drugs.
+- [44:09.320] Think of that. Every single boat we shoot out,
+- [44:12.080] on average, we save 25,000 American lives.
+- [44:16.350] Do you feel okay about that, Cordt?
+- [44:17.740] Cordt Holub: Keep us safe.
+- [44:18.970] The President: Okay, I know my man,
+- [44:20.990] but what about you. Meryl? Are you okay with that?
+- [44:22.790] Meryl Kennedy: Totally fine with that.
+- [44:24.030] The Press: Were you committed to releasing the full video?
+- [44:26.130] The President: Didn't I just tell you that?
+- [44:27.330] The Press: You said that it was up to Secretary Hegseth.
+- [44:28.680] The President: You're the most obnoxious reporter
+- [44:29.990] in the whole place. Let me just tell you.
+- [44:32.120] You are an obnoxious, actually a terrible reporter,
+- [44:36.570] and it's always the same thing with you.
+- [44:38.610] I told you, whatever Pete Hegseth wants to do
+- [44:41.460] is okay with me.
+- [44:42.960] The Press: (inaudible)
+- [44:44.560] and I just have a quick question.
+- [44:45.970] There's at least 20 House Republicans who have either said
+- [44:49.310] they're going to retire or not run again.
+- [44:50.930] Do you have any concerns about the-
+- [44:52.260] The President: And democrats also.
+- [44:53.640] The Press: Right.
+- [44:54.930] The President: So why didn't you mention them?
+- [44:56.150] How many Democrats are going to retire?
+- [44:57.880] How many democrats?
+- [44:59.120] The Press: Well, that's what I was going to ask you.
+- [45:00.360] The President: Why don't you tell me
+- [45:01.560] the number of Democrats too, you tell me about the-
+- [45:03.050] The Press: Are you concerned about the narrow margins?
+- [45:04.740] The President: No, I'm not concerned.
+- [45:05.980] I think we're going to do well.
+- [45:07.180] We will have the greatest economy.
+- [45:08.520] The Press: And Congresswoman Elise Stefanik
+- [45:09.730] and Nassau County's Bruce Blakeman, who you know as well,
+- [45:11.510] is considering running for governor.
+- [45:12.770] The President: We have the greatest economy in history.
+- [45:14.810] How many Democrats are retiring?
+- [45:17.430] How come you only know the Republicans,
+- [45:18.870] but not the Democrats?
+- [45:20.100] The Press: Because I came prepared
+- [45:21.320] to ask you a question about- --
+- [45:22.540] The President: No, no, you're unprepared
+- [45:23.760] because you should know the Democrats.
+- [45:25.020] You're totally unprepared. Go ahead.
+- [45:26.240] The Press: Well, can I ask a quick follow up about --
+- [45:27.620] The President: Who are you with?
+- [45:28.850] The Press: I'm with New York Newsday,
+- [45:30.100] and I also have a quick follow up.
+- [45:32.190] Congresswoman Elise Stefanik is among those
+- [45:34.130] who is running for New York Governor.
+- [45:38.390] The President: She's great.
+- [45:39.720] The Press: Bruce Blakeman, who you also know is also --
+- [45:41.070] The President: He's also Great.
+- [45:42.290] The Press: Are you planning on making
+- [45:43.510] any endorsements or any --
+- [45:44.750] The President: Well, I think about it,
+- [45:45.980] but he's great and she's great. They're both great people.
+- [45:47.670] We have a lot of great people with the Republican Party.
+- [45:49.360] Go ahead.
+- [45:50.590] The Press: Can I get back to farming?
+- [45:51.790] The President: Yeah.
+- [45:53.560] The Press: So you talked about the profitability issue,
+- [45:56.070] the machinery playing a role in that.
+- [45:58.070] Fertilizer plays another role now.
+- [46:00.090] A lot of that way, I understand it,
+- [46:01.770] it comes in from Canada, different countries like that.
+- [46:04.770] What are we doing to bolster domestic fertilizer production
+- [46:07.530] to help make that more affordable?
+- [46:09.270] And then I think that will transition down-
+- [46:10.810] The President: Well, one of the things,
+- [46:12.040] a lot of it does come in from Canada.
+- [46:13.260] Meryl Kennedy: It does.
+- [46:14.480] The President: And so we'll end up
+- [46:15.760] putting very severe tariffs on that if we have to,
+- [46:19.700] because that's the way you want to bolster here
+- [46:22.970] and we can do it here. We can all do that here.
+- [46:25.170] But I would say what you do, you put very severe tariffs on
+- [46:29.660] from coming into other countries,
+- [46:31.130] you'll be making your own fertilizer very short.
+- [46:32.840] Secretary Rollins: And in fact, Secretary Burgum,
+- [46:34.930] this cabinet is so remarkable.
+- [46:36.300] Instead of just seeing each other every month,
+- [46:37.770] we're literally talking every day,
+- [46:39.200] multiples of times a day.
+- [46:40.770] But our secretary of the interior,
+- [46:42.290] I, and Secretary Bessent and others,
+- [46:44.630] we have a whole plan in place,
+- [46:46.170] including the reshoring of fertilizer
+- [46:48.360] and the opportunity to do it in America.
+- [46:50.720] Having said that, we've also, per the president's guidance,
+- [46:54.500] issued a directive, these fertilizer companies,
+- [46:56.740] the seed companies,
+- [46:58.540] the equipment companies, all of the above,
+- [47:00.820] as our farmers have struggled year over year,
+- [47:03.460] these meat packing companies continue to make a lot of money,
+- [47:07.450] hand over fist, a lot of foreign owned companies.
+- [47:10.090] So that's why the president has been very unequivocal in saying,
+- [47:13.510] "We got to figure out why all these input costs
+- [47:16.640] are skyrocketing and all of our farmers are struggling,
+- [47:19.220] which we're going to do." It's a great question.
+- [47:21.250] The President: When they take fertilizer out of the country,
+- [47:23.440] all of a sudden we don't do it anymore.
+- [47:24.830] Then they start charging and sending very high prices
+- [47:27.950] from other countries, whether it's Canada or somebody else.
+- [47:31.450] We're not going to let that happen.
+- [47:36.460] The Press: On the quality of foreign produce,
+- [47:38.690] you spoke about soybeans and how the quality here
+- [47:41.050] in the United States obviously is a lot better.
+- [47:42.610] The President: That's what I've heard.
+- [47:43.860] The Press: Yeah. Is the default of this administration,
+- [47:45.530] because that's an issue I understand
+- [47:47.240] with root vegetables, citrus as well.
+- [47:49.650] Is the default of this administration
+- [47:51.450] that even if it's a little bit more expensive, homegrown,
+- [47:54.620] you will choose homegrown over cheaper produce abroad?
+- [47:57.640] The President: I like homegrown.
+- [48:00.050] Some things we can't grow because we don't have the heat.
+- [48:02.770] There are some things, little delicacies
+- [48:05.340] or maybe not such delicacies,
+- [48:07.150] but they grow better in warmer climates,
+- [48:09.880] very warm climates actually.
+- [48:11.280] But for the most part, I like homegrown.
+- [48:13.600] The Press: And Mr. President, thank you.
+- [48:15.210] One on this announcement and then one on foreign policy,
+- [48:17.730] if I may.
+- [48:19.020] Are you open to tapping into tariff revenue again
+- [48:21.880] should farmers find they need additional relief
+- [48:23.770] to get to that level?
+- [48:25.050] The President: Yeah, we're going to make the farmers so strong,
+- [48:30.770] and I'm not even talking about financially,
+- [48:32.510] because they just want to be able to produce
+- [48:35.190] what they can produce.
+- [48:36.570] We're going to make them so strong
+- [48:38.350] that it will be indeed a golden age for farmers.
+- [48:41.660] The Press: And then on Russia and --
+- [48:42.930] The President: We had it going in the first administration,
+- [48:45.010] and then Biden came in and ruined everything.
+- [48:47.590] They had no idea what they were -- They did.
+- [48:49.980] I mean, I think they wanted, they hated the farmer.
+- [48:53.500] I love the farmer.
+- [48:55.690] That's why I got 94 percent of the vote from the farmers,
+- [48:59.370] but they hated the farmers. I love the farmers. Go ahead.
+- [49:01.880] The Press: And then on Russia and Ukraine,
+- [49:03.230] obviously your administration
+- [49:04.430] has been having talks with each side.
+- [49:06.210] Given that there is no peace deal at this point,
+- [49:08.090] will your administration stay engaged
+- [49:10.450] in those talks to effort a peace deal?
+- [49:11.760] The President: Well, we just want to see people stop
+- [49:13.530] from being killed.
+- [49:16.370] As you know, Joe Biden gave them $350 billion.
+- [49:20.600] You know what I gave them, nothing.
+- [49:22.320] Well, I did give them javelins at the beginning
+- [49:24.140] and knocked out a hell of a lot of tax.
+- [49:26.360] And Obama gave sheets.
+- [49:27.650] Remember, Obama gave sheets and I gave javelins.
+- [49:30.040] But no, we have a great situation going over there
+- [49:34.880] except for one problem.
+- [49:36.150] You got a lot of people dying and I want to see that stop.
+- [49:38.710] So you have Ukrainian, mostly Ukrainian soldiers
+- [49:41.510] and Russian soldiers.
+- [49:43.120] Last month, 27,000 soldiers died, mostly soldiers.
+- [49:47.330] A few people from there,
+- [49:49.500] the dropping of a missile in the middle of Kiev
+- [49:51.700] or wherever, which is a terrible thing.
+- [49:55.040] But mostly soldiers. 27,000 soldiers died last month.
+- [49:59.480] That's what I want to see stopped.
+- [50:01.020] We, as you know, we now sell equipment to NATO at full price.
+- [50:05.850] And NATO takes that equipment
+- [50:07.250] and probably gives it to Ukraine.
+- [50:08.670] I guess they could give it to others too,
+- [50:09.990] but for the most part, give it to Ukraine.
+- [50:11.950] And they're working with Ukraine
+- [50:14.510] in terms of distribution of equipment,
+- [50:16.850] missiles, et cetera. But we aren't spending money.
+- [50:20.660] What we are doing is spending time on a humane basis.
+- [50:26.210] We want to see if we can stop the killing of --
+- [50:28.520] It would have never happened.
+- [50:29.820] This war would have never happened
+- [50:31.810] if the election weren't rigged.
+- [50:33.180] If I were president, this war would have never happened.
+- [50:35.980] The Press: Could you talk about the soybean purchases?
+- [50:40.770] The President: Say it.
+- [50:42.010] The Press: You've talked a lot obviously about
+- [50:43.400] China's soybean purchases.
+- [50:45.060] Some lawmakers from North and South Carolina
+- [50:47.100] have raised concern that US tobacco farmers were told
+- [50:50.940] that China would not purchase flue-cured tobacco this year.
+- [50:55.090] Has that come up in your conversations at all?
+- [50:56.840] The President: No, I haven't heard that,
+- [50:58.060] but we're doing well. The tobacco people,
+- [50:59.950] because of the deals I made, they're doing very well.
+- [51:03.380] But that could be --
+- [51:04.660] If it's the case, I can get it solved very quickly.
+- [51:07.430] The Press: President Trump, let us know how you settled
+- [51:09.670] on this 12 billion or 11 billion
+- [51:11.760] plus one more billion dollar figure.
+- [51:13.600] The President: We looked at how they were hurt,
+- [51:15.150] to what extent they were hurt.
+- [51:16.800] We did a very steady progression of charts,
+- [51:21.750] and we figured out a very exact number,
+- [51:24.000] and it was about $12 billion.
+- [51:25.580] The Press: President Trump,
+- [51:26.970] if you had one Christmas wish for America,
+- [51:28.900] besides making American farmers great again,
+- [51:30.790] what would it be?
+- [51:32.020] The President: I would say very simply --
+- [51:34.770] I go by a statement when people ask that question.
+- [51:37.170] Remember that question was asked to Ted Kennedy and they said,
+- [51:41.700] "Well, what are you going to do to make America great?"
+- [51:44.030] And he couldn't answer the question.
+- [51:45.540] I have a very simple --
+- [51:46.890] We're going to make America greater than ever before,
+- [51:50.330] and we're going to do it through a series of tariffs,
+- [51:52.680] intelligent taxes and incentives,
+- [51:55.830] and our country has never been stronger.
+- [51:57.450] We've never had anything like coming in.
+- [51:59.860] We have $18 trillion coming into our country right now.
+- [52:03.530] There's never been anything like it.
+- [52:05.150] And if you ask me that, I'll say,
+- [52:06.590] "I just want to keep doing what I'm doing
+- [52:08.250] because there's never been anything like this happened."
+- [52:10.240] The Press: Do you support that?
+- [52:11.610] The President: The biggest number ever in history
+- [52:13.710] was $2 trillion and we're at $18 trillion.
+- [52:17.800] This is money pouring into our country on building car plants,
+- [52:21.650] on building AI plants.
+- [52:23.680] We just want to keep doing exactly what we're doing
+- [52:25.790] because nothing like this has ever happened
+- [52:28.260] in the history of the world, not just our country.
+- [52:31.070] There's never been -- Scott, would you say that's right?
+- [52:33.080] There's never been anything like the investments
+- [52:36.170] coming into America.
+- [52:37.440] The Press: Sir, this is a record year. Record year.
+- [52:40.970] The Press: Do you support the Paramount deal, sir?
+- [52:42.690] The Press: On healthcare, Mr. President,
+- [52:44.580] 22 million Americans are expected
+- [52:46.520] to see their healthcare insurance
+- [52:47.790] premiums start to rise by the beginning of next year.
+- [52:50.280] The President: You're talking about
+- [52:51.500] because Obamacare is so bad?
+- [52:52.790] The Press: Yes.
+- [52:54.010] Well, sir, because the Obamacare subsidies are expiring.
+- [52:55.980] Are you going to do-
+- [52:57.180] The President: That's because Obamacare is so bad.
+- [52:58.660] The Press: What is the Republican plan?
+- [53:00.000] Are you going to let that happen on your watch?
+- [53:01.750] The President: What I'm going to do is,
+- [53:03.320] if the Democrats go along with it,
+- [53:04.890] which they don't want to, because they want to make
+- [53:06.740] the insurance companies very rich, okay?
+- [53:09.720] I want the money to be paid to the people to go out
+- [53:12.320] and buy their own healthcare instead of paying to the --
+- [53:14.390] You know the insurance companies,
+- [53:16.330] their stock has gone up 1700 percent
+- [53:21.200] in a short period of time.
+- [53:22.510] Did you know that? 1700.
+- [53:24.780] You wish your corn went up by that.
+- [53:27.490] But the insurance companies,
+- [53:29.710] stock has gone up by 1700 percent, 1800 percent.
+- [53:33.440] They're taking in trillions of dollars.
+- [53:36.600] I don't want to pay the insurance companies anything.
+- [53:39.290] And I know a lot of them,
+- [53:41.300] but they're owned by the Democrats
+- [53:43.480] and the Democrats have --
+- [53:45.120] Obamacare is a setup to make insurance companies rich.
+- [53:49.710] And I want to pay the people
+- [53:51.530] and I want the people to go out and buy their own healthcare.
+- [53:55.750] And that's what we want to do.
+- [53:57.120] And that's what the Republicans want to do
+- [53:59.300] because Obamacare is a disaster.
+- [54:01.110] And I said it five years ago, four years ago,
+- [54:03.300] three years ago, it was always a disaster.
+- [54:06.210] It's bad healthcare that's too expensive for people.
+- [54:09.730] And now your premiums, and you said it better than I said it.
+- [54:12.490] You said the Obamacare premiums are going to go up.
+- [54:15.520] They're going way up.
+- [54:17.150] And what I want to do is have the money.
+- [54:19.280] And you know who's getting that money, a lot of it?
+- [54:21.170] Is the insurance companies.
+- [54:22.370] I want the people to get the money and go out
+- [54:24.810] and buy their own healthcare. And everybody wants that, right?
+- [54:29.680] The Press: Mr. President, (inaudible) on the floor, sir?
+- [54:32.610] The Press: Do you have any reaction on the fine
+- [54:34.560] that was imposed to X by the European Union?
+- [54:36.250] The President: For what?
+- [54:37.490] The Press: To X, to the platform X,
+- [54:39.180] the fine that the European Union imposed.
+- [54:40.980] The President: That was pretty amazing.
+- [54:42.240] You're talking about, is that European Union or is it --
+- [54:46.140] Who did that? European Union or UK?
+- [54:47.900] The Press: European commissioner.
+- [54:49.150] The President: Whoa, that's a nasty one.
+- [54:51.140] The Press: (inaudible).
+- [54:52.760] The President: Elon has not called me to ask
+- [54:54.570] for help on that one, but no, it's a tough thing.
+- [54:59.270] I don't think it's right. No, I don't think it's right.
+- [55:01.790] I don't see how they can do that.
+- [55:04.000] No. I'll speak about it later.
+- [55:06.890] I'm going to get a full report on it.
+- [55:09.870] Look, Europe has to be very careful.
+- [55:14.110] They're doing a lot of things. We want to keep Europe, Europe.
+- [55:18.590] Europe is going in some bad directions.
+- [55:22.000] It's very bad. Very bad for the people.
+- [55:24.410] We don't want Europe to change so much.
+- [55:26.160] You're going in some very bad directions.
+- [55:27.670] That was a big thing.
+- [55:30.070] The Press: You directed a review
+- [55:31.270] of the childhood vaccine schedule
+- [55:32.950] possibly to match what is on par with pure nations in Europe.
+- [55:36.670] Would you support ending federal mandates
+- [55:38.950] and just making those recommendations for schools?
+- [55:41.070] The President: You're going to have to say it again.
+- [55:42.860] The Press: As far as the vaccine --
+- [55:44.080] The President: Louder, louder.
+- [55:45.320] The Press: As far as the vaccine schedule for children,
+- [55:47.030] would you support ending the federal mandates
+- [55:49.120] and making it optional for schools?
+- [55:50.510] The President: Well, we're looking at a lot of things
+- [55:51.860] having to do with vaccines and with the different --
+- [55:56.310] I think we take like 88 different shots
+- [56:01.150] all wrapped up in one,
+- [56:02.460] one big glass of stuff like that.
+- [56:06.170] And we're going to be reducing it very substantially.
+- [56:08.940] It will be safe.
+- [56:11.220] But we're going to be reducing it very substantially.
+- [56:13.060] The Press: Do you support the Paramount bid
+- [56:14.280] for Warner Brothers that can-
+- [56:15.580] The President: I don't know enough about it.
+- [56:17.180] The Press: You spoke about Netflix last night
+- [56:19.010] saying you have concerns about them.
+- [56:21.180] The President: I know the companies very well.
+- [56:22.620] I know what they're doing, but I have to see.
+- [56:24.310] I have to see what percentage of market they have.
+- [56:27.210] We have to see the Netflix percentage of market, Paramount,
+- [56:31.270] the percentage of market. I mean, none of them
+- [56:33.840] are particularly great friends of mine.
+- [56:38.020] I want to do what's right.
+- [56:39.360] It's so very important to do what's right.
+- [56:41.490] The Press: Paramount is supported by Jared Kushner,
+- [56:43.490] Mr. President. Would that impact your decision?
+- [56:46.470] The President: If Paramount is?
+- [56:47.980] I don't know. I've never spoken to him about it.
+- [56:50.020] He's really trying to work on Gaza.
+- [56:54.490] His primary thing is Gaza.
+- [56:56.150] The Press: We're making house visits on Christmas Eve
+- [56:57.580] as (inaudible).
+- [56:58.790] Does the Beast need to be fitted with sleigh rails?
+- [57:03.320] The President: You want to answer that question?
+- [57:06.850] The Press: Absolutely.
+- [57:08.110] We used to put sleigh rails on the Beast.
+- [57:09.590] Yes.
+- [57:10.810] The Press: (inaudible) do you support that?
+- [57:12.050] The President: Go ahead.
+- [57:13.330] The Press: That Republican plan that you just talked about
+- [57:14.730] when it comes to healthcare,
+- [57:16.020] when do you expect Republicans to put that on?
+- [57:17.970] The President: We're looking at it very strongly,
+- [57:19.380] and we're also going to the Democrats
+- [57:21.080] and asking them to do it.
+- [57:22.340] The Democrats want to make the insurance companies rich.
+- [57:25.860] They're all paid off by the insurance companies.
+- [57:28.630] A tremendous amount of the insurance company
+- [57:31.050] funding goes to Democrats.
+- [57:33.610] Why don't you ask that question of the Democrats?
+- [57:35.980] Because I would love to do it.
+- [57:37.330] I'd love all of the money to go to the people.
+- [57:39.690] They go to the people. I put that out two weeks ago.
+- [57:42.800] It became number one viral. People love it.
+- [57:46.320] I want the money to go for healthcare,
+- [57:48.020] to go to the people and let the people
+- [57:49.620] buy their own healthcare through an account.
+- [57:52.920] They can buy their own healthcare.
+- [57:54.750] And everybody loves it, except for the Democrats.
+- [57:56.810] And you know why they don't?
+- [57:58.080] Because they're paid off by the insurance companies.
+- [58:00.620] Okay, what else?
+- [58:02.120] The Press: Alina Habba says she's stepping down
+- [58:03.770] as U.S. Attorney for the District of New Jersey
+- [58:06.070] after the courts disqualified her.
+- [58:07.800] Do you have any comment on that?
+- [58:09.100] The President: Well, she's not disqualified.
+- [58:10.310] You've got a blue slip thing that's horrible.
+- [58:13.140] It's a horrible thing.
+- [58:14.660] It makes it impossible to appoint a judge
+- [58:16.870] or a US attorney, and it's a shame.
+- [58:20.140] And the Republicans should be ashamed of themselves
+- [58:22.450] that they allow this to go on
+- [58:24.080] because I can't appoint a US attorney that's not a Democrat
+- [58:28.190] because they put a block on it.
+- [58:29.730] So if you appoint in Virginia or in New Jersey
+- [58:34.360] or in California, a US attorney or a judge,
+- [58:38.380] I mean, a judge situation is ridiculous.
+- [58:42.150] The only people that you can get by are Democrats
+- [58:44.460] because they will put a hold on it.
+- [58:47.380] If I put up George Washington and Abraham Lincoln
+- [58:50.820] to be US attorney in New Jersey
+- [58:54.040] or to be US attorney in Virginia,
+- [58:57.390] we have Democrat senators. They will not approve them.
+- [59:01.830] And this is a gentleman's agreement
+- [59:03.750] that's lasted for too long and it doesn't make it --
+- [59:07.990] Especially in light of what's going on today.
+- [59:11.280] It means you can't appoint a Republican US attorney
+- [59:15.520] and we don't play the same game with them, but they do.
+- [59:20.870] And I hope that somebody speaks to Senator Grassley
+- [59:24.920] about doing something about the blue slip,
+- [59:27.180] because I'm telling you, John, I put up great people,
+- [59:31.260] top people, highest education,
+- [59:33.910] the best lawyers to be US attorney and both senators --
+- [59:38.350] It only takes one,
+- [59:39.890] but if they're Democrat senators, they say,
+- [59:42.250] "We're not going to approve it." I had a couple of them say,
+- [59:45.570] "Why don't you appoint Democrats?"
+- [59:47.790] All because Senator Grassley with his blue slip stuff
+- [59:52.320] will not let anybody go by.
+- [59:53.960] By the way, the Democrats have violated the blue slip provision
+- [59:57.610] on numerous occasions, but we don't do it.
+- [01:00:00.850] And what it means is, I guess they just have to keep
+- [01:00:03.100] appointing people for three months
+- [01:00:04.700] and then just appoint another one, another one.
+- [01:00:07.480] And it's a very sad situation. We're losing tremendous --
+- [01:00:11.150] We're losing a lot of great people.
+- [01:00:13.150] We have about seven US attorneys who are not going to be able
+- [01:00:17.410] to keep their jobs much longer because of the blue slip,
+- [01:00:20.440] because unless --
+- [01:00:23.020] I think I know why they did that, to protect their ass.
+- [01:00:26.370] That's why they did that. But it should be done away with.
+- [01:00:31.930] I want to be able to appoint great,
+- [01:00:34.130] the utmost highly educated, the most respected people.
+- [01:00:37.220] They can't keep their jobs because of the blue slips.
+- [01:00:40.340] Terrible.
+- [01:00:41.680] Okay. Thank you very much everybody. Thank you.
+- [01:00:45.450] The farmers, let's come into the Oval Office.
+- [01:00:47.870] All right, Deb, come on.
+- [01:00:49.180] We're going to go into the Oval Office.

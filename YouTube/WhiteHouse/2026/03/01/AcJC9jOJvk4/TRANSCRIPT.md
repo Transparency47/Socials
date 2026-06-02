@@ -1,0 +1,158 @@
+<!-- source: https://www.youtube.com/watch?v=AcJC9jOJvk4 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: AcJC9jOJvk4 -->
+<!-- date_published: 2026-03-01T22:03:52+00:00 -->
+<!-- date_accessed: 2026-06-02T01:04:32.511629+00:00 -->
+
+# Transcript: Operation Epic Fury Update, President Donald J. Trump
+
+- [00:00.000] Over the past 36 hours,
+- [00:03.000] the United States and its partners have
+- [00:05.760] launched Operation Epic Fury, one of the
+- [00:09.080] largest, most complex, most overwhelming
+- [00:12.400] military offensives
+- [00:14.720] the world has ever seen. Nobody's seen
+- [00:16.520] anything like it.
+- [00:18.560] We have hit hundreds of targets
+- [00:21.400] in Iran including Revolutionary Guard
+- [00:24.240] facilities, Iranian air defense systems.
+- [00:27.440] Just now
+- [00:28.880] was announced that we knocked out nine
+- [00:30.720] ships plus their naval
+- [00:33.040] building
+- [00:34.560] all in a matter of
+- [00:36.640] literally minutes.
+- [00:38.640] Iran's formerly supreme leader,
+- [00:41.880] Ayatollah Ali
+- [00:43.280] Khamenei
+- [00:45.120] is dead. This wretched and vile man had
+- [00:48.600] the blood of hundreds and
+- [00:50.720] even thousands
+- [00:52.480] of Americans on his hands and was
+- [00:54.320] responsible for the slaughter of
+- [00:57.120] countless thousands of innocent people
+- [00:59.640] all across many countries.
+- [01:02.720] Last night,
+- [01:04.400] all over Iran, the voices of the Iranian
+- [01:07.280] people could be heard cheering and
+- [01:09.120] celebrating in the streets when his
+- [01:11.600] death
+- [01:12.640] was announced.
+- [01:14.480] The entire military command is gone as
+- [01:17.600] well and many of them want to surrender
+- [01:21.120] into saving their lives.
+- [01:23.240] They want immunity.
+- [01:25.200] They're calling by the thousands.
+- [01:28.120] Combat operations continue at this time
+- [01:31.120] in full force and they will continue
+- [01:33.560] until all of our objectives are
+- [01:35.720] achieved. We have very strong
+- [01:38.320] objectives.
+- [01:39.720] They could have done something 2 weeks
+- [01:41.400] ago, but they just couldn't get there.
+- [01:43.800] Earlier today, CENTCOM shared the news
+- [01:46.960] that three US military service members
+- [01:49.960] have been killed in action.
+- [01:52.320] As one nation, we grieve for the
+- [01:55.280] true American patriots who have made the
+- [01:57.720] ultimate sacrifice
+- [01:59.800] for our nation
+- [02:01.400] even as we continue the righteous
+- [02:03.400] mission for which they gave their lives.
+- [02:07.240] We pray for the full recovery of the
+- [02:09.399] wounded and send our immense love and
+- [02:12.560] eternal gratitude to the families of
+- [02:15.320] the fallen
+- [02:16.800] and sadly there will likely be more.
+- [02:20.320] Before it ends, that's the way it is.
+- [02:23.120] Likely be more, but we'll do everything
+- [02:25.200] possible
+- [02:27.120] where that won't be the case. But
+- [02:29.160] America will avenge their deaths and
+- [02:31.320] deliver the most punishing blow to the
+- [02:34.120] terrorists who have waged war against
+- [02:36.920] basically civilization.
+- [02:39.600] They have waged war against civilization
+- [02:43.080] itself.
+- [02:44.440] Our resolve and likewise that of Israel
+- [02:48.000] has never been stronger. America is now
+- [02:50.520] again the richest
+- [02:52.360] most powerful nation in the world by
+- [02:54.640] far.
+- [02:55.959] But the only reason we enjoy the quality
+- [02:58.240] of life that we do and the freedom and
+- [03:00.560] security is we have
+- [03:03.200] done things that others are
+- [03:05.519] unable to do.
+- [03:07.680] But it's because of warriors who are
+- [03:10.560] willing to lay down their lives to do
+- [03:12.800] battle
+- [03:14.120] with our enemies.
+- [03:15.640] And they do battle better than
+- [03:18.000] anybody.
+- [03:19.360] An Iranian regime armed with long-range
+- [03:22.120] missiles
+- [03:23.360] and nuclear weapons would be a dire
+- [03:25.440] threat to every American. We cannot
+- [03:28.000] allow a nation that raises terrorist
+- [03:30.600] armies to
+- [03:32.000] possess such weapons would allow them to
+- [03:35.000] extort the world
+- [03:37.080] to their evil will. Not going to let it
+- [03:39.000] happen. We're not happening to us and
+- [03:41.880] we're not going to let it happen to
+- [03:43.120] others.
+- [03:44.400] The United States has the strongest
+- [03:46.640] military
+- [03:48.040] the world has ever seen. I rebuilt our
+- [03:50.440] military in my first term.
+- [03:53.280] There's never been a military
+- [03:55.640] like we possess.
+- [03:57.760] And frankly, there's nobody even close,
+- [04:00.280] but we are now using that military for
+- [04:03.120] good. We want to have it for good
+- [04:05.240] purpose.
+- [04:07.040] We're undertaking this massive operation
+- [04:09.240] not merely to ensure
+- [04:11.280] security for our
+- [04:13.040] own time and place, but for our children
+- [04:15.760] and their children, just as our
+- [04:17.840] ancestors have done for us
+- [04:20.400] many, many years ago.
+- [04:22.880] This is the duty and the burden of a
+- [04:25.280] free people.
+- [04:27.240] These actions are right and they are
+- [04:29.120] necessary to ensure that Americans will
+- [04:32.000] never have to face a radical,
+- [04:34.800] bloodthirsty terrorist regime armed with
+- [04:38.320] nuclear weapons and lots of threats.
+- [04:41.919] For almost 50 years, these wicked
+- [04:43.840] extremists have been attacking the
+- [04:46.240] United States while chanting the slogan
+- [04:49.919] death to America or death to Israel or
+- [04:53.080] both. They are the world's number one
+- [04:55.640] state sponsor of terror.
+- [04:57.880] We are the world's greatest and most
+- [04:59.600] powerful nation, so we can do something
+- [05:01.919] about what they do.
+- [05:04.040] These intolerable threats will not
+- [05:06.240] continue any longer.
+- [05:08.960] I once again urge the Revolutionary
+- [05:11.400] Guard, the Iranian military, and police
+- [05:15.320] to lay down your arms and receive full
+- [05:17.440] immunity or face certain death. It will
+- [05:20.080] be certain death.
+- [05:22.120] Won't be pretty.
+- [05:23.720] I call upon all Iranian patriots who
+- [05:26.240] yearn for freedom
+- [05:28.240] to seize this moment, to be brave, be
+- [05:31.000] bold, be heroic,
+- [05:33.160] and take back your country. America is
+- [05:35.760] with you. I made a promise to you and I
+- [05:38.720] fulfilled that promise.
+- [05:40.880] The rest will be up to you, but we'll be
+- [05:43.440] there to help. Thank you. God bless you,
+- [05:46.440] too, Our incredible warriors and God
+- [05:49.880] bless the United States of America.
+- [05:53.000] Thank you.

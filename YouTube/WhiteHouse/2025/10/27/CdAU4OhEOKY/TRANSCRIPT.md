@@ -1,0 +1,201 @@
+<!-- source: https://www.youtube.com/watch?v=CdAU4OhEOKY -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: CdAU4OhEOKY -->
+<!-- date_published: 2025-10-27T18:12:12+00:00 -->
+<!-- date_accessed: 2026-06-02T01:12:15.807562+00:00 -->
+
+# Transcript: President Trump Participates in a Pull-Aside with the President of Brazil
+
+- [00:00.000] Mr. President, are you
+- [00:02.240] convinced of or are you convinced by the
+- [00:04.120] Brazilian government that the reasons
+- [00:05.840] you presented to impose tariffs on
+- [00:07.640] Brazil were not fair?
+- [00:10.880] No, I think everything's fair. Look, you
+- [00:12.960] know, we have
+- [00:14.200] economies and I have a lot of respect
+- [00:16.360] for your president, as as you know.
+- [00:19.400] A lot of respect for Brazil.
+- [00:21.280] So, we'll see. We'll probably work out
+- [00:23.200] some deals. I'll leave these guys work
+- [00:24.680] them out, but I think we're going to
+- [00:25.720] work out some deals. We have to get
+- [00:28.240] We have to get
+- [00:29.560] some deals. Wait, who's that shouting?
+- [00:32.360] Who's shouting? Is that you? Don't
+- [00:34.080] shout.
+- [00:35.040] Don't shout. Who was
+- [00:37.320] Well, first of all, let me just say it's
+- [00:38.480] a great honor to be with the president
+- [00:40.800] of Brazil. It's a great country. It's a
+- [00:42.480] big, beautiful country.
+- [00:44.600] And uh I think they're doing well. I
+- [00:47.000] think they're doing very well from what
+- [00:48.400] I understand.
+- [00:49.800] And
+- [00:51.080] I think we should be able to make some
+- [00:53.040] pretty good deals for both countries and
+- [00:54.920] I'm going to leave that a little bit to
+- [00:56.840] Jameson and Scott and Marco and
+- [00:59.680] different ways. Marco, relax. Less on
+- [01:02.240] the economic stuff. You could You could
+- [01:04.239] do it very well, but I don't think
+- [01:05.800] you'll have to.
+- [01:07.080] But I think we'll have uh
+- [01:09.240] I think we'll be able to do some pretty
+- [01:10.960] good deals. We've been speaking.
+- [01:12.960] And I think we'll end up having a very
+- [01:15.480] good relationship. We always have had a
+- [01:17.200] good relationship. I think it'll
+- [01:18.640] continue.
+- [01:30.360] I think the press will have good news
+- [01:32.160] after we end the meeting.
+- [01:36.960] It's all only assumptions before we
+- [01:38.800] start the meeting.
+- [01:45.960] Brazil is highly interested in having an
+- [01:47.680] extraordinary relationship.
+- [01:56.320] There's no reason for having any kind of
+- [01:58.360] conflict between Brazil and the US.
+- [02:03.640] I believe that when two presidents sit
+- [02:05.120] down to a
+- [02:07.160] and each one raises their view point
+- [02:14.040] and then we can forward to reaching a
+- [02:15.920] deal afterwards.
+- [02:19.640] And I am optimistic myself before I came
+- [02:21.640] here.
+- [02:32.440] I was very optimistic to
+- [02:35.760] advance the relationship between Brazil
+- [02:42.680] We'll have time, but I have an agenda
+- [02:47.040] I've got it in writing.
+- [02:49.880] I'll give you a copy of
+- [02:51.440] our agenda already in English.
+- [02:56.480] I don't know if we'll have time to
+- [02:57.400] discuss all the issues here, so that's
+- [02:58.880] why I brought I brought it in writing.
+- [03:08.520] you would reduce the tariffs on Brazil.
+- [03:10.680] What are those conditions? We're We're
+- [03:13.240] We're dealing on it right now and we'll
+- [03:14.960] be discussing it for a little while and
+- [03:17.840] I think we'll probably come to a
+- [03:19.120] conclusion pretty quickly. We know
+- [03:21.320] We know each other. We know
+- [03:23.280] what each other wants. I think we'll
+- [03:24.560] come to a conclusion. I think we'll come
+- [03:26.320] to
+- [03:27.440] a lot of conclusions this week. This has
+- [03:29.120] been a very big week.
+- [03:30.800] We uh
+- [03:32.080] concluded a war just now. We just had
+- [03:34.320] the official signing.
+- [03:35.920] And that was That was a great honor.
+- [03:37.600] That's actually why we came here.
+- [03:39.720] Uh we had uh
+- [03:41.680] Cambodia and
+- [03:43.000] Thailand
+- [03:44.080] Really lots of others we've done. We've
+- [03:46.200] done eight and we're looking to do
+- [03:47.520] number nine, which would be Russia
+- [03:50.360] and Ukraine. So, we've done a lot of
+- [03:52.160] work.
+- [03:56.520] Please, go ahead.
+- [03:57.520] How are y'all feeling about the Mr.
+- [03:59.400] Bolsonaro? Well, Mr. President
+- [04:01.520] Well, I've always liked him. I've always
+- [04:03.600] liked him. I feel very badly about what
+- [04:05.680] happened to him.
+- [04:07.120] I've always thought he was a straight
+- [04:08.760] shooter, but
+- [04:11.280] you know, he's gone through a lot. Is
+- [04:12.760] this on the agenda today? He's gone
+- [04:14.160] through a lot. Is this on the table
+- [04:15.800] today?
+- [04:16.799] It's none of your business.
+- [04:20.239] about Brazil's relation with China and
+- [04:22.280] its privileged No, I think we're going
+- [04:23.840] to do well with China. I think we're
+- [04:25.160] going to have a deal with China. We
+- [04:26.320] meet, as you know, in South Korea with
+- [04:29.080] President Xi. I think we're going to
+- [04:30.520] have a
+- [04:31.600] a good deal with China and they want to
+- [04:33.760] make a deal and we want to make a deal.
+- [04:35.920] It's great to meet.
+- [04:37.520] We're going to meet them later in China
+- [04:39.440] and we're going to meet in
+- [04:41.440] the US in either Washington or
+- [04:43.880] or Mar-a-Lago, Palm Beach. So, uh
+- [04:47.280] Now, I think
+- [04:48.560] you know, a lot of these talks when we
+- [04:49.800] meet, we've done a lot of discussions
+- [04:51.720] before we meet. We've done discussions
+- [04:53.480] with Brazil.
+- [04:55.040] So, I think we're going to end up having
+- [04:56.440] a good deal for both countries. I think
+- [04:58.160] with China that's going to happen and we
+- [05:00.200] have other deals, you know, we have
+- [05:01.360] Japan, we have South Korea, we have a
+- [05:02.800] lot of a lot of meetings, but people
+- [05:04.840] seem to be very interested in China. I
+- [05:06.720] think we're going to have a
+- [05:08.200] a very fair meeting with China.
+- [05:14.880] Can you Can you lift some of the tariffs
+- [05:16.760] today on Brazil? Brazil
+- [05:18.640] Yeah, we can do We can do things fast.
+- [05:20.520] We move quickly.
+- [05:22.080] We're very nimble.
+- [05:27.000] You plan to discuss the situation
+- [05:28.600] >> Not Not you again, please.
+- [05:32.800] Are you discussing your actions in
+- [05:34.560] Venezuela today? Is there anything
+- [05:36.440] you're asking the Brazilians? I don't
+- [05:38.120] think we're going to be discussing
+- [05:39.320] Venezuela. They're not involved with
+- [05:41.160] Venezuela. They're not
+- [05:44.560] You know, I would discuss with they want
+- [05:46.240] to, I'll discuss it, but you know, I
+- [05:48.080] don't think we're going to be discussing
+- [05:49.440] it.
+- [05:54.080] Besides Bolsonaro, is there anything
+- [05:56.120] that Brazil can offer to improve
+- [05:58.160] relations with the US?
+- [06:00.440] We're going to find out in probably 15
+- [06:04.120] minutes. It'll be go It'll go very
+- [06:05.680] quickly. They can offer a lot.
+- [06:08.440] And we can offer a lot. It's good and
+- [06:10.680] it's good for both countries, please.
+- [06:12.200] Mr. President, you in Asia making all of
+- [06:14.760] these deals in China's backyard. What
+- [06:17.200] should they take away from this strong
+- [06:19.160] US presidency?
+- [06:21.440] I don't think they should take away
+- [06:22.760] anything. I think we're going to have a
+- [06:23.920] good deal with China. I think we're
+- [06:25.160] going to make a deal. It's going to be
+- [06:26.320] great for China, great for us. I mean,
+- [06:28.200] you know, we have a lot of things
+- [06:29.960] that are uh
+- [06:31.680] good for both and we know pretty much
+- [06:34.360] we've been dealing with China. You know,
+- [06:35.680] we don't just meet in a vacuum.
+- [06:37.880] We've had a lot of discussions. Jameson,
+- [06:39.880] Scott, Howard,
+- [06:42.160] Marco on different things.
+- [06:44.160] Uh we've had a lot of discussions with
+- [06:46.000] China. We have with Brazil, too. We're
+- [06:47.840] We're not walking into the room like
+- [06:49.760] with no knowledge. We're walking in with
+- [06:51.360] great knowledge and
+- [06:53.080] the meetings don't even have to take
+- [06:54.400] that long, frankly. We know pretty much
+- [06:56.200] where we are and we know where they are.
+- [07:08.840] I would like to suggest that the press
+- [07:10.480] will continue the interview after the
+- [07:12.280] meeting.
+- [07:27.120] We don't waste time or lose
+- [07:29.200] talking with the journalists.
+- [07:46.000] They're not great questions to them, I
+- [07:47.200] must say.
+- [07:48.600] They're not boring They're not boring
+- [07:50.440] questions. We'll see you later. Thank
+- [07:52.400] you.

@@ -1,0 +1,735 @@
+<!-- source: https://www.youtube.com/watch?v=22HQKGoAnoA -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 22HQKGoAnoA -->
+<!-- date_published: 2026-05-06T17:31:02+00:00 -->
+<!-- date_accessed: 2026-06-02T02:34:12.638549+00:00 -->
+
+# Transcript: President Trump and the First Lady Participate in a Military Mother's Day Event
+
+- [00:13.540] Announcer: Ladies, the President of the United States,
+- [00:16.320] Donald J. Trump, and First Lady Melania Trump.
+- [00:20.860] ♪ (Hail to the Chief) ♪
+- [00:51.540] The First Lady: Good afternoon. And welcome to the White House.
+- [00:56.460] I would like to extend warm and welcome to our vice president,
+- [01:00.700] JD Vance and his wife, Usha.
+- [01:03.990] Welcome. It is our pleasure to join today
+- [01:07.750] by Secretary McMahon, Mrs. Hegseth.
+- [01:11.920] And I'm also honored to welcome
+- [01:14.260] Mrs. Melody Wolfe and Lorraine Hawk,
+- [01:18.480] and to my chief of staff, Hayley Harrison,
+- [01:21.760] who is preparing to welcome her second child onto the world.
+- [01:26.460] Haley, you're a wonderful mother,
+- [01:28.630] and I wish you and your growing family all great things.
+- [01:35.070] I often think about the brave people
+- [01:38.140] who make the ultimate sacrifice for our freedom.
+- [01:42.960] When I went to honor the fallen service members
+- [01:46.890] from the 103rd Sustainment Command
+- [01:50.420] at Dover Air Force Base last March,
+- [01:53.770] I realized that words cannot comfort
+- [01:57.270] the all consuming grief that family members and mothers
+- [02:02.200] in particular experience. The loss is overwhelming.
+- [02:08.810] Although I understand the deep pride
+- [02:11.350] these families feel in their loved ones service
+- [02:15.340] to our great republic,
+- [02:17.380] I cannot fathom the depth of their sorrow.
+- [02:22.240] A mother is awestruck
+- [02:24.360] when she welcome her child into the world.
+- [02:29.260] After nine months, the miracle of life
+- [02:32.090] creates a fascinating bond between mother and child.
+- [02:37.430] With each breath, day by day, this bond deepens,
+- [02:42.320] bringing forth emotions never felt before.
+- [02:46.600] Quite frankly, these are emotions
+- [02:49.860] understood only by women.
+- [02:52.830] Only a mother can carry this type of powerful connection
+- [02:56.940] with her child, which is also too profound for words.
+- [03:03.970] This is a time of military conflict for America,
+- [03:08.170] and whereby we honor our selfless
+- [03:11.630] and valiant service members regularly.
+- [03:14.960] Today is the day we hold their mothers in the highest regard.
+- [03:20.560] It is this military mothers who find themselves alone,
+- [03:25.510] awake their inter thoughts in the darkest hours of the night.
+- [03:31.070] Of course, we must also remember the mothers
+- [03:34.540] with a spouse overseas, praying for a safe return
+- [03:38.990] so their family can become whole once again.
+- [03:44.400] At the very heart of America's strength
+- [03:46.760] lies the boundless love and quiet power of mothers.
+- [03:52.230] We are the most devoted teachers,
+- [03:54.900] gently nurturing empathy, inspiring dreams,
+- [03:59.500] and guiding our children towards goodness.
+- [04:03.270] We help them rise with courage when life grows difficult.
+- [04:08.360] In every hug, every story read at bedtime,
+- [04:12.060] and every sacrifice made without complain,
+- [04:15.690] mothers build the moral foundation of our families.
+- [04:21.820] In doing so,
+- [04:23.480] America's mothers help build the soul of our nation.
+- [04:28.700] I pray you find enduring strength as your loved
+- [04:31.900] one serves in defense of our freedom.
+- [04:37.790] Most know my husband as the strong commander-in-chief,
+- [04:43.350] but his empathy transcends the role and shape
+- [04:47.870] a caring leader
+- [04:52.240] who constantly remembers each and every American soldier
+- [04:57.140] is someone's child. Distinguished guest,
+- [05:00.850] please join me with the warm welcome for our president,
+- [05:04.870] Donald J. Trump.
+- [05:06.530] (applause)
+- [05:12.330] The President: You're welcome. That was good.
+- [05:15.940] Thank you, Melania. Great job.
+- [05:19.490] So I want to thank everybody for being here.
+- [05:21.350] We have so many things to talk about,
+- [05:25.410] but there's nothing more important than military moms,
+- [05:29.870] that I can tell you, because without you,
+- [05:33.030] I don't think it would be in this house.
+- [05:35.680] I don't think this house probably ever
+- [05:37.220] would have been built a long time ago.
+- [05:39.610] So important. I want to start off by saying,
+- [05:43.610] our great vice president's right here,
+- [05:45.490] and we're in a, I call it a skirmish
+- [05:49.410] because that's what it is. It's a skirmish.
+- [05:52.040] And we're doing unbelievably well as we did in Venezuela
+- [05:56.880] where it was rapid over in one day.
+- [06:01.270] And we're doing pretty much equally as well,
+- [06:04.390] I would say, larger.
+- [06:07.290] But we're doing very well in Iran.
+- [06:09.900] It's going very smoothly, and we'll see what happens.
+- [06:12.350] They want to make a deal.
+- [06:13.570] They want to negotiate.
+- [06:15.360] And I think that military mothers would want to hear that.
+- [06:19.700] Do you agree? I think it's appropriate.
+- [06:21.270] Somebody will say, "Ooh, that's not appropriate.
+- [06:22.960] I think military mothers want to hear about this stuff,"
+- [06:25.980] and we have the greatest. And we have the greatest.
+- [06:31.030] We have the greatest military that we've ever had.
+- [06:35.100] We have the greatest military in the world by far.
+- [06:38.140] There's nobody even close.
+- [06:39.960] And I think we've displayed that.
+- [06:41.680] I built the military in my first term, much of it.
+- [06:44.190] It was when I inherited the military was like
+- [06:46.680] when I inherited the border.
+- [06:48.340] The border was a mess, and the military was a mess.
+- [06:51.970] A lot of you know that because you were there to witness it
+- [06:55.190] and now we have the strongest military that we've ever had.
+- [07:00.070] We're just getting approval of $1.5 trillion
+- [07:06.520] to upgrade our military still further.
+- [07:09.810] But when I was spending all that money in my first term,
+- [07:12.040] it was a great term, a very unbelievable term.
+- [07:16.580] We had the best economic numbers that the country's ever had.
+- [07:20.580] Now we're going to blow them away.
+- [07:22.520] We're blowing them away right now.
+- [07:24.800] But I built the military in my first term
+- [07:29.180] with the help of a lot of great admirals, generals,
+- [07:31.550] and everybody else.
+- [07:33.580] And I didn't know we'd be using it quite so much,
+- [07:36.780] but that's okay, whatever it is, because in the case of Iran,
+- [07:40.850] we're not going to let Iran have a nuclear weapon,
+- [07:43.660] and we're not going to let that happen,
+- [07:45.360] and we won't let that happen. And so we're dealing with people
+- [07:51.030] that want to make a deal very much,
+- [07:52.460] and we'll see whether or not they can make a deal
+- [07:54.390] that's satisfactory to us.
+- [07:56.510] We have it very much under control.
+- [07:59.290] The blockade is unbelievable. The Navy's been incredible.
+- [08:02.270] The job they did,
+- [08:03.820] it's like a wall of steel nobody goes through.
+- [08:06.910] In particular, the Iranians,
+- [08:08.440] they're not getting anything through one way or the other,
+- [08:11.150] so they're out of business.
+- [08:12.960] And we'll see whether or not they are agreeing.
+- [08:16.500] And if they don't agree,
+- [08:18.010] they'll end up agreeing shortly thereafter.
+- [08:20.900] So that's the way it is.
+- [08:22.980] And I thought you might want to have a little rundown now.
+- [08:25.270] The fake news is all happy
+- [08:26.890] because they can hear what we had to say.
+- [08:30.640] And I have to say, JD's doing a fantastic job.
+- [08:33.460] He's working with us, with him and all of the team.
+- [08:40.260] Marco, we have Steve Witkoff, Jared.
+- [08:44.250] We have a whole group, the generals.
+- [08:46.050] And General Caine has been fantastic.
+- [08:48.670] Pete Hegseth, incredible.
+- [08:49.950] We have just a great group of people.
+- [08:53.050] CIA, John Ratcliffe, he's great.
+- [08:55.610] I think Mrs. Ratcliffe's even here someplace.
+- [08:59.100] And are you here, Mrs. Ratcliffe?
+- [09:00.990] I think somebody said yes. But we have amazing people.
+- [09:06.530] We have an amazing military, and I think it's on display.
+- [09:10.940] Sometimes you'd rather not have it be on display,
+- [09:13.110] but they're there for a purpose,
+- [09:16.290] and the greatest military anywhere in the world.
+- [09:20.190] And the world is watching us as we do our thing.
+- [09:22.590] And we have the respect of the world, which we didn't have.
+- [09:27.410] Two years ago, we were a laughing stock
+- [09:29.280] all over the world. Now we have the hottest country
+- [09:31.230] anywhere in the world in every way.
+- [09:32.620] So I just want to congratulate you all
+- [09:34.840] because you're a big part of it.
+- [09:39.910] And I want to thank you, Melania.
+- [09:42.210] Amazing, the job you've done. She did a little movie.
+- [09:44.920] It became the number one movie now.
+- [09:50.030] And I can't exaggerate because if I did,
+- [09:52.930] they would be all over, "It wasn't number one.
+- [09:55.430] It was number two. It was number five."
+- [09:58.330] So I can't, I have to be very, very careful
+- [10:00.140] Careful with it. And then it went streaming.
+- [10:01.680] This is a different world.
+- [10:02.900] I didn't even know what they were talking about.
+- [10:04.440] They said, "Oh."
+- [10:05.780] And it became number one streaming too.
+- [10:07.620] So congratulations. That's an amazing achievement.
+- [10:14.200] And most importantly, and most importantly to her,
+- [10:17.280] she's done an incredible job as First Lady.
+- [10:20.430] And she's an incredible mom.
+- [10:23.660] She has a little boy who's quite tall.
+- [10:27.650] He's a little boy to us, but he's quite tall, right?
+- [10:30.490] And he's great, Barron, and she takes great care of him.
+- [10:34.930] And thank you. Great mom.
+- [10:36.820] Today, we're honored to welcome, to the White House,
+- [10:40.580] a group of strong and resilient women
+- [10:43.790] who represent the best of our country,
+- [10:45.860] the amazing military mothers. So important.
+- [10:49.370] And we want to thank you all for being here.
+- [10:52.320] So many of you I know are recognized,
+- [10:54.400] and I want to thank you very much
+- [10:55.640] because there's nothing like the White House.
+- [10:57.430] Is it the coolest?
+- [10:58.650] And by the way, right behind me, see that?
+- [11:01.280] You call it a window or a drape. I call it a knockout panel.
+- [11:05.500] Because behind that, in fact, if you want to see it,
+- [11:08.870] I think we could work it out.
+- [11:10.230] But behind that window is a end drape.
+- [11:14.410] In fact, the drapes are so nice I think I'm going to leave them.
+- [11:17.930] How am I going to get a nicer something than that?
+- [11:20.250] But that's the entrance to the new ballroom that's being built.
+- [11:27.000] Which everybody likes,
+- [11:28.230] especially since last Saturday evening, they like it even ...
+- [11:31.500] Because it'll have a thing called security. It'll be nice.
+- [11:34.770] But right back there is where we're building.
+- [11:36.790] So if you hear any pounding noises,
+- [11:39.130] the pile drivers are out.
+- [11:40.360] It's already up to the first floor,
+- [11:42.440] but we're a little bit ahead of schedule, right on budget.
+- [11:47.150] But it's going to be something great.
+- [11:48.430] It'll be one of the most beautiful buildings
+- [11:50.750] of its kind anywhere in the world.
+- [11:52.360] And for 150 years, presidents have wanted a room.
+- [11:57.380] This is the ballroom right here, and it's too small.
+- [11:59.800] We had the king and queen of a lovely country,
+- [12:04.360] United Kingdom.
+- [12:05.600] And we would have had at least 1000,
+- [12:10.440] everybody wanted to be here.
+- [12:11.820] And we had 112 people because this is a lovely room,
+- [12:16.230] but it's not big enough. It's got one ...
+- [12:17.850] And it's been that way for many, many years.
+- [12:21.020] So every president's been calling.
+- [12:22.610] But I was in a position being a builder
+- [12:25.630] and having built many ballrooms and many other things,
+- [12:28.570] I'm good at ballrooms. And we're giving you the ...
+- [12:31.610] I believe it's the best. It'll be the best ever built.
+- [12:34.270] And it will have windows that are thicker than any ballroom
+- [12:37.560] I've ever built. I usually have a glass
+- [12:42.310] that's about a quarter of an inch thick.
+- [12:44.460] This is about six inches thick.
+- [12:46.880] This can repel a lot of different weapons,
+- [12:51.370] but it's going to be incredible.
+- [12:52.790] It's going to be, aside from being secure,
+- [12:54.890] I think it's going to be
+- [12:56.180] the most beautiful ballroom ever built.
+- [12:58.480] And it's something that the White House has needed,
+- [13:01.400] the presidents have needed.
+- [13:03.220] And it's an honor to be involved.
+- [13:05.500] And it really has become very popular.
+- [13:07.470] When people see the design, they really like it.
+- [13:11.390] And it's been great, gotten some great reviews.
+- [13:13.970] Also, with us as Secretary of Education,
+- [13:16.880] Linda McMahon, my friend, who's done such a fantastic job,
+- [13:20.370] wherever you are, Linda.
+- [13:23.430] Hi, Linda. She's great. What a job.
+- [13:27.060] Along with Jennifer Hegseth, Jennifer.
+- [13:30.900] Hi, Jennifer. He's doing some job, I'll tell you.
+- [13:34.720] He's doing a job. He stood up. He was the only one.
+- [13:38.300] He was standing up in the ballroom
+- [13:39.670] the other day in the event.
+- [13:42.060] The White House, they call it the White House dinner.
+- [13:47.550] They were saying, "Can you use ..."
+- [13:49.140] Well, when you use that term, I guess he probably can use it,
+- [13:52.690] but we had a little dinner the other night
+- [13:54.680] and your husband was standing on the top of a table.
+- [13:57.860] Everyone else was under the table.
+- [13:59.520] So that's what we want of our Secretary of War.
+- [14:03.210] We want somebody, but he was standing on top of the table.
+- [14:06.210] Everyone else was under the damn table.
+- [14:09.290] Anyway, he's doing a fantastic job.
+- [14:11.810] He and the general, those are great news conferences.
+- [14:14.240] We like them.
+- [14:15.520] They work very well together, I can tell you.
+- [14:17.510] The wife of Pete Hegseth, say hello to Pete.
+- [14:22.380] Michele Ratcliffe. Michelle. Where is Michelle?
+- [14:26.670] I think she's here someplace, Michelle.
+- [14:29.330] And the wife of CIA director, John Ratcliffe.
+- [14:32.070] And Jackie Emmer. Jackie, you are so great.
+- [14:37.600] I know Jackie well because her husband and I,
+- [14:39.980] we didn't know each other.
+- [14:41.960] We fought. In politics, you can fight.
+- [14:45.000] And then when we got to know each other,
+- [14:46.600] we love each other, right? But she always liked Trump.
+- [14:50.070] And she convinced her husband, who's a big power in the house,
+- [14:54.100] she convinced her husband that Trump
+- [14:55.950] was much better than he thought.
+- [14:58.280] And I remember you. I like you.
+- [15:00.280] Now I really like him. He's an incredible ...
+- [15:02.660] but I like you more and I'm always,
+- [15:04.220] because you were there long before him, right?
+- [15:06.790] But Jackie, you're great. I appreciate it.
+- [15:08.640] Thank you very much.
+- [15:10.690] And as you know, Tom Emmer is the house majority whip,
+- [15:15.310] and he's a fantastic person. Real leader.
+- [15:18.790] Comes from an interesting place,
+- [15:20.360] a place that's under investigation
+- [15:22.140] by our great vice president. They're finding a lot.
+- [15:24.670] And Tom Emmer was one of the biggest complainers
+- [15:27.120] about what was going on in Minnesota
+- [15:29.210] and lots of other places.
+- [15:31.310] I also want to say a special thank you
+- [15:33.240] to the many moms among our fantastic military aides
+- [15:37.380] and social aids who support us here at the White House.
+- [15:40.410] They've been incredible.
+- [15:41.660] All of you have been so incredible.
+- [15:44.030] And I want to thank you very much for being with us today.
+- [15:46.230] It's beautiful.
+- [15:47.730] The women in this room have sacrificed
+- [15:50.340] for our country in countless ways.
+- [15:52.180] Among you are veterans and active duty service members,
+- [15:55.920] proud spouses, and the parents of those who serve in uniform.
+- [16:00.380] Amazing people, the most amazing people.
+- [16:03.530] Many of you have missed cherished moments
+- [16:06.190] and you really have.
+- [16:07.460] You've spent so much time taking care of the ones you love.
+- [16:12.220] You've missed holidays, birthday parties,
+- [16:14.150] graduations, or even a child's first words.
+- [16:17.890] Others have moved more times than anybody can even count.
+- [16:22.650] And I don't know if you love doing it or not,
+- [16:24.850] but you get very good at it. You have the way,
+- [16:27.420] you know the way, you know the way to do it.
+- [16:30.250] But you do it all because you love America,
+- [16:33.040] you love our country.
+- [16:34.250] And this week, as we prepare to celebrate Mother's Day,
+- [16:38.140] we take this opportunity on behalf of all of us
+- [16:41.450] to say thank you very much for the incredible job.
+- [16:44.140] You do it with love.
+- [16:45.520] So it's not ... I don't think ...
+- [16:47.090] There's no such thing as a job if you love it,
+- [16:49.200] but we'll call it a job nevertheless.
+- [16:52.670] The job you do is incredible
+- [16:54.310] and everybody respects you so much.
+- [16:57.110] You have no idea. So I just want to thank you all
+- [16:59.520] and thank you all for being here.
+- [17:01.860] Joining us is someone who knows
+- [17:04.090] the incredible sacrifice of service,
+- [17:06.040] Brittany Stevenson from Camp Lejeune.
+- [17:09.870] That's a hell of a camp. That's beyond a camp.
+- [17:13.900] The word camp, I don't know.
+- [17:15.210] It doesn't look like a camp to me.
+- [17:18.070] Her parents were both Marines, and in 1983,
+- [17:22.060] her dad survived the Marine barracks bombing in Beirut.
+- [17:26.160] We'll talk about that even to this day.
+- [17:27.980] That was something. Brittany loved the Marine
+- [17:30.110] so much that she married a Marine herself
+- [17:32.970] and the love of her life, Taylor.
+- [17:36.320] Over 15 years, her family has moved 10 homes,
+- [17:40.430] 10 different homes,
+- [17:42.040] and been assigned to six duty stations
+- [17:45.980] from all over the world. And now her daughter, Ava,
+- [17:49.330] is part of the Marine Corps Junior ROTC program
+- [17:52.340] and wants to become a Marine as well.
+- [17:55.080] So Brittany, your family is a definition of Semper Fi
+- [17:59.210] and always faithful. And I want to thank you.
+- [18:01.510] Where are you? Where are you? Please stand up.
+- [18:04.750] Would you like to come up and say ...
+- [18:06.050] Come here, Brittany. Come here.
+- [18:16.510] The First Lady: Thank you. I'm not really sure what to say,
+- [18:18.730] but this is such an honor and a privilege to be here.
+- [18:22.540] I'm truly touched to represent my family,
+- [18:25.810] the Marine Corps, Camp Lejeune,
+- [18:27.100] and military moms and spouses like you all.
+- [18:30.170] So thank you.
+- [18:32.880] The President: Nice job. Good job.
+- [18:39.460] She had no idea she was going to be doing that,
+- [18:41.430] but I looked at her. I said, "She looks so great.
+- [18:44.510] I'm going to get her up here," right?
+- [18:47.610] That was beautiful. Thank you very much.
+- [18:49.950] As Melania mentioned, we're also honored to be joined
+- [18:52.880] by a military mother who sacrificed far more than most.
+- [18:57.600] It's Melody Wolfe.
+- [19:00.340] And I love the name Melody because for a long time,
+- [19:05.250] they have spell correct and word correct
+- [19:07.270] on these crazy machines that we use to put out truths,
+- [19:11.950] or they used to be called tweets.
+- [19:13.940] And every time I wrote Melania, it would correct to Melody.
+- [19:21.180] So I'd do things and I work very fast, very fast.
+- [19:25.970] And I'd talk about it and I'd say,
+- [19:27.710] "And Melania is fantastic.
+- [19:30.070] And happy Mother's Day Melania, our great First Lady, Melania."
+- [19:33.990] But it would spell correct and word correct to Melody.
+- [19:39.390] And sometimes I wouldn't proofread it and I'd say, "Hmm."
+- [19:43.030] And I would get just absolute decimated.
+- [19:45.300] These people would decimate me.
+- [19:47.310] He said, "He didn't know the name of his wife.
+- [19:49.910] He keeps calling her ..."
+- [19:51.480] And I said, "What the hell is wrong with this machine?"
+- [19:53.810] I didn't know about that little feature,
+- [19:56.200] but I got that corrected eventually.
+- [19:57.880] You know who corrected? The military. I said, "Come
+- [19:59.910] The President: Come here, you got to correct this.
+- [20:01.260] You're killing me. I took more abuse.
+- [20:03.860] She's been called Melody a lot.
+- [20:06.210] Anyway, I had to explain it to you this way.
+- [20:09.190] I stood up here to explain it to you.
+- [20:12.060] I apologize.
+- [20:13.480] Last year, Melody's 24-year-old son,
+- [20:17.110] Andrew Wolfe of West Virginia National Guard,
+- [20:20.410] was on patrol in Washington, DC,
+- [20:23.310] helping to restore law and order to our capital city.
+- [20:28.050] And I spoke to her. This woman is amazing.
+- [20:31.480] Along with her comrade specialist,
+- [20:35.030] Sarah Beckstrom, who is a... just was a fantastic person.
+- [20:41.930] He was ambushed by a terrorist and shot in the head.
+- [20:45.380] A violent, horrible person did this.
+- [20:48.690] Nobody thought Andrew was going to make it,
+- [20:51.760] but Melody told me,
+- [20:53.040] and I called her that evening in the hospital.
+- [20:56.340] "Sir, I have no doubt.
+- [20:57.720] The doctor said he won't be making it."
+- [21:01.230] And as you know, Sarah passed away
+- [21:03.210] also from a shot to the head by these people,
+- [21:07.230] these horrible, horrible people. But Melody was the one person.
+- [21:13.240] In fact, Melody's husband, who's great,
+- [21:16.720] he didn't feel the same way.
+- [21:18.880] But she said, "I have no doubt, sir.
+- [21:20.680] I'm telling you, he's going to be fine.
+- [21:22.210] Don't worry about it. He's going to be fine."
+- [21:24.140] I never saw anything.
+- [21:25.340] I was, "Really, you're pretty amazing."
+- [21:28.080] And she was right.
+- [21:31.010] A week went by, another week went by, I'd call.
+- [21:33.220] I'd say, "How's he doing?" "Sir, he's doing really well."
+- [21:37.260] And the doctors would say, "I think he maybe will make it."
+- [21:40.570] And she turned out to be right.
+- [21:41.770] It was sort of a miracle, actually.
+- [21:45.090] And I've never seen...
+- [21:46.350] They talk about the power of positive thinking.
+- [21:48.210] I've never seen anything like this one.
+- [21:49.710] JD, you wouldn't believe it. He had no chance.
+- [21:53.420] I'm telling you, and she willed it.
+- [21:57.490] And now it's really something very special
+- [22:02.120] that I think I hear he's just doing fantastic.
+- [22:04.680] It was a Bible verse from the book of Isaiah.
+- [22:08.830] "Do not fear, for I am with you."
+- [22:11.650] With God's help, Andrew has made a really incredible recovery.
+- [22:16.470] It's hard to believe.
+- [22:18.010] And during my State of the Union address,
+- [22:19.920] we were privileged to award him the Purple Heart.
+- [22:22.350] This was a real Purple Heart.
+- [22:23.950] This was a terrible thing that happened.
+- [22:27.450] And Melody, where are you, Melody?
+- [22:29.580] There you are. Hi.
+- [22:31.500] Haven't seen you in a little while,
+- [22:32.810] but it's true, the story, right. You were the only one.
+- [22:35.050] You know that you were the only one.
+- [22:36.370] She was so positive.
+- [22:37.580] I don't think she hurt anybody else.
+- [22:40.410] And your husband's doing okay.
+- [22:41.990] And he feels much better about it.
+- [22:45.520] He was not feeling too good. I think you should.
+- [22:47.770] Do you want to say something about your boy and how...
+- [22:50.040] Come on up here, Melody. No, it's an amazing...
+- [22:53.710] It's such an amazing story. Such an amazing story to come.
+- [23:00.380] We went through a couple of bad nights together, right?
+- [23:03.310] The First Lady: Yes.
+- [23:04.610] I first want to say that we had the nation behind us at a time
+- [23:09.830] when nobody thought our boy would make it.
+- [23:13.230] He was 24 years old.
+- [23:14.580] He was a young man on the streets of DC,
+- [23:18.500] a shot to the left part of his brain.
+- [23:24.130] We have a strong faith in God,
+- [23:26.220] and God is what brought our son through this.
+- [23:28.520] He gave us an amazing backing. He gave us amazing doctors.
+- [23:34.730] He gave us amazing nurses and our community,
+- [23:38.030] our nation, our community, just all of the support
+- [23:40.850] and the support of the White House medical staff.
+- [23:44.540] The President: Incredible.
+- [23:45.900] The First Lady: Anything that our son needed was met.
+- [23:50.630] We are just truly thankful. And he...
+- [23:53.140] we're a little over five months.
+- [23:54.450] He came home from the hospital April 2nd,
+- [23:57.700] and he is now enjoying being home.
+- [24:00.840] He's getting back into playing golf.
+- [24:03.870] He loves cornhole, as you know.
+- [24:05.700] The President: (inaudible). The First Lady: Yes.
+- [24:06.900] The President: (inaudible).
+- [24:08.210] The First Lady: He loves doing so many activities,
+- [24:10.470] and so we're truly blessed that we're able to get him
+- [24:13.090] into some outpatient care closer to home.
+- [24:15.960] We do have another surgery coming up in September,
+- [24:18.820] and just recovery is my understanding
+- [24:22.170] that will happen for quite some time,
+- [24:24.120] but I have no doubt that he will be 100% back to Andrew
+- [24:29.590] within a few years, independent, driving,
+- [24:33.460] being a young bachelor again. So thank you so much.
+- [24:36.840] The President: I'm so proud of you.
+- [24:42.110] The First Lady: (inaudible).
+- [24:45.690] The President: Incredible.
+- [24:48.060] That's incredible. That's incredible.
+- [24:57.360] Nobody really can understand it,
+- [24:59.610] but I was with the general, who was fantastic, right.
+- [25:04.680] And he said, "Not much of a chance, maybe no chance."
+- [25:11.710] I mean, I hate to say it even, "But no chance."
+- [25:14.360] They all said the same thing.
+- [25:15.660] And she said, "No, God is with him.
+- [25:19.020] I'm telling you, President, God is with him.
+- [25:21.600] He's going to be okay."
+- [25:23.440] And I get reports that he's amazing.
+- [25:26.530] So congratulations. Thank you very much.
+- [25:29.280] You taught us all something.
+- [25:35.460] Appreciate it. Also joining us
+- [25:37.690] is an outstanding active-duty Air Force mom,
+- [25:40.900] Lieutenant Colonel Amanda Colazzo.
+- [25:44.810] She's an MQ-9 Reaper drone pilot.
+- [25:48.610] Whoa, that's pretty good.
+- [25:53.360] An evaluator, a weapons officer,
+- [25:56.690] and desk officer at the Defense Threat Reduction Agency.
+- [26:01.540] She has traveled to 20 countries,
+- [26:03.860] flown over 7,000 hours,
+- [26:05.630] and eliminated many high-value targets.
+- [26:08.420] She's a great talent, they say. Our military is strong again.
+- [26:13.420] And as Amanda says to herself, "And we are...
+- [26:17.250] As a nation, we are really respected again."
+- [26:19.780] She said that, and it's true. So, Amanda, thank you very much.
+- [26:23.440] Where are you, Amanda? Where are you?
+- [26:26.540] Come on up here, Amanda. I got to do this.
+- [26:29.380] They're not expected to, but they're doing very well.
+- [26:33.230] Come on up. That's great.
+- [26:37.490] Thank you very much. Thank you, please.
+- [26:39.020] Lieutenant Colonel Amanda Colazzo: Well, thank you,
+- [26:40.290] Mr. President.
+- [26:41.530] Thank you, Melania, for hosting this event.
+- [26:43.150] Thank you, Cindy, for inviting me out here.
+- [26:45.410] I just want to say I'm proud to be an American.
+- [26:47.520] I am proud to serve our nation, the world's greatest Air Force.
+- [26:51.110] Thank you for all of the moms out here
+- [26:52.710] and for your spouses, your kids, yourselves.
+- [26:56.500] So thank you all and happy Mother's Day.
+- [27:06.390] The President: She's very sharp, isn't she?
+- [27:09.370] She'll be running for office someday.
+- [27:12.430] Great. Thank you very much. Appreciate it.
+- [27:14.580] As commander-in-chief, I will always support
+- [27:17.020] our great service members and their families.
+- [27:19.190] We've invested a record-setting trillion,
+- [27:22.620] and now it's up to $1.5 trillion
+- [27:25.020] and all built in the USA, by the way.
+- [27:27.440] All right. So it's a lot of jobs too.
+- [27:30.470] Some people said I did it for that.
+- [27:31.900] Actually, I didn't.
+- [27:33.430] I did it for the military, but it's a byproduct.
+- [27:36.200] We have tremendous numbers of very talented people
+- [27:39.710] building all of the things that we do,
+- [27:42.090] and we make the best equipment anywhere in the world by far.
+- [27:44.630] They're all ordering it for us.
+- [27:46.030] In fact, I've given a special edict
+- [27:50.250] that the defense companies who have the best equipment,
+- [27:54.390] they're not making it fast enough.
+- [27:56.460] And now they're all building plants all over the place.
+- [27:58.970] I said, "You're not allowed to buy back stock anymore."
+- [28:02.000] I told some of these people
+- [28:03.310] that are making millions and millions of dollars,
+- [28:05.270] "You got to reduce your salary. I'm going to reduce your salary.
+- [28:07.790] You're going to put it into weapons."
+- [28:09.990] And it's been incredible.
+- [28:12.250] The spirit we have, and they're building...
+- [28:14.540] some of them are building six,
+- [28:15.980] seven plants right now to make the Patriots and the Tomahawks.
+- [28:20.370] Tomahawks are unbelievable.
+- [28:22.130] Patriots, unbelievable. We had...
+- [28:24.780] Recently, we had 111 missiles shot
+- [28:27.470] at one of our very valuable objects,
+- [28:31.280] something called an aircraft carrier.
+- [28:32.880] Think of this.
+- [28:34.080] 111 missiles, high range, high quality, speed missiles,
+- [28:39.710] very high, very fast, very top of the line.
+- [28:43.740] 111. Out of 111 missiles shot at a...
+- [28:47.280] Well, it used to be,
+- [28:49.390] you'd like to say, a billion-dollar boat.
+- [28:51.250] Now they're about 18 billion dollars.
+- [28:53.690] They're very expensive, but 111 coming at them
+- [28:57.940] at 3,500 miles an hour, all 111 were shot down
+- [29:03.900] and didn't even get close to the ship.
+- [29:06.920] And they're all lying at the bottom of the ocean
+- [29:09.540] along with the Iranian Navy.
+- [29:11.850] They're all lying very nicely under the water.
+- [29:15.050] But think of that, five years ago,
+- [29:16.860] a thing like that would have been impossible.
+- [29:19.460] 10 years ago, it's not even thinkable.
+- [29:21.350] Ronald Reagan actually thought of the concept.
+- [29:24.140] They called it Star Wars,
+- [29:25.450] but it wasn't a concept that anybody thought would ever work.
+- [29:30.080] But you have these things coming at you,
+- [29:33.250] and we have the Patriots.
+- [29:34.970] The Patriots are the best of them.
+- [29:38.200] And we have other things also,
+- [29:39.540] but it's when you think you hit 100% of the missiles coming at,
+- [29:45.250] it's not like, "Oh, let's let a couple get through.
+- [29:47.450] It's not that bad." One gets through, it's problems.
+- [29:50.380] So we can do things today,
+- [29:51.690] and no other country has anything like that.
+- [29:54.090] They don't have anything with the power, with the strength,
+- [29:57.290] and with the... its accuracy, really.
+- [29:58.930] Its accuracy.
+- [30:00.200] You see, got a hit.
+- [30:01.480] It's like hitting a needle in a haystack, they were saying,
+- [30:04.770] and yet they do it every time. It's pretty amazing.
+- [30:07.030] And we have the most talented people operating that equipment.
+- [30:10.920] For that, you have to be high IQ and you have to have no choke
+- [30:15.450] because you have about 12 seconds
+- [30:17.400] to make a decision and take the aim.
+- [30:20.830] And you have to be very good mathematically.
+- [30:22.960] You have to know what you're doing.
+- [30:24.440] You have to be very smart.
+- [30:25.640] You have to see the education, the schools.
+- [30:28.440] The best schools in the world, some of them come out of.
+- [30:31.350] I know I called up a couple.
+- [30:32.620] I said, "Where did you go to school?"
+- [30:34.000] "I went to MIT." "Oh, good. That's good."
+- [30:39.070] Frankly, it's a very different military in many ways.
+- [30:42.540] But we have invested a record-setting amount of dollars
+- [30:46.340] and the US Armed Forces is now stronger than it's ever been.
+- [30:49.420] And we're getting stronger and getting stronger,
+- [30:51.810] and it's so important.
+- [30:53.270] Every branch is setting records in recruitment.
+- [30:55.530] And I'm very proud of the Space Force
+- [30:57.720] because that was a branch that ...
+- [31:01.310] A new one that came up,
+- [31:02.560] and we were losing to Russia and to China in space.
+- [31:06.490] And we had it as part of the Air Force,
+- [31:08.320] but it wasn't really thought of ...
+- [31:10.600] Once it's part of something.
+- [31:12.550] We put a great general in charge,
+- [31:14.270] and the Space Force is now leading the other countries,
+- [31:18.420] China, Russia, and there is no fourth really.
+- [31:24.730] We saw numbers the other day.
+- [31:26.830] We're leading in space by so much,
+- [31:29.460] we're never going to be caught.
+- [31:31.070] So I'm very proud of Space Force.
+- [31:32.490] First time that that's taken place, a new force.
+- [31:35.970] The last one was the Air Force, and that was 78 years ago.
+- [31:40.570] So this is brand new and we're very proud of it.
+- [31:44.280] I think it's going to be one of our most important
+- [31:46.080] as time goes by.
+- [31:47.330] A lot of the things that you see,
+- [31:49.250] a lot of the accuracy of the weapons is caused
+- [31:52.900] because of what we created with Space Force.
+- [31:54.780] So we're very proud of that.
+- [31:55.980] But every branch is setting records in recruitment.
+- [32:00.590] Last year, if you remember, before I came to office ...
+- [32:03.570] Actually, after the election, it started picking up rapidly,
+- [32:05.780] to be honest with you.
+- [32:07.050] November 5th, we had a little election.
+- [32:09.330] We did quite well. We won every swing state.
+- [32:11.400] We won the popular vote. We won everything.
+- [32:13.480] We won 87% of the counties. We won it all.
+- [32:18.840] But I will tell you, right after that election it started.
+- [32:23.630] But before that,
+- [32:25.060] we had the worst recruiting in the history of our country.
+- [32:27.300] People didn't want to be in the armed services.
+- [32:29.600] Also, they didn't want to be police.
+- [32:30.940] They didn't want to be firemen. They didn't want to be anything
+- [32:33.610] with a uniform representing our country.
+- [32:36.280] And it was the lowest number we've ever had.
+- [32:38.690] And I can say very confidently that at this moment,
+- [32:42.580] we have the highest recruitment,
+- [32:44.080] the most successful recruitment for the military, Army,
+- [32:48.030] the Navy,
+- [32:49.260] Air Force, Marines, Coast Guard, Space Force, all of it.
+- [32:54.230] We have the highest recruitment,
+- [32:55.700] the best recruitment that we've ever had.
+- [32:57.660] We have lines of people wanting to get in.
+- [33:00.770] We're taking people based on their fitness and their quality.
+- [33:05.370] You wouldn't believe what the difference it is.
+- [33:08.460] And Washington, D.C. as an example.
+- [33:13.340] That's why it's so sad when Melody comes up
+- [33:16.340] and talks about that one event,
+- [33:17.790] because the numbers in Washington, D.C.
+- [33:21.360] are so incredible.
+- [33:23.510] The numbers have gone down from ...
+- [33:26.080] We had a place that was so unsafe, our great capital,
+- [33:30.870] and now it's considered one of the safest cities
+- [33:32.840] anywhere in the United States. And we went to Memphis,
+- [33:36.810] and Memphis was a killing field practically.
+- [33:40.190] And now it's down. The numbers are down, crime.
+- [33:42.560] 80% in New Orleans, Louisiana.
+- [33:45.920] The governor called up, Jeff Landry,
+- [33:47.510] he said, "Sir, we have the Mardi Gras coming up
+- [33:49.990] and we have a lot of crime in this city.
+- [33:51.470] Can you do something?"
+- [33:52.700] And we put our people there, mostly National Guard,
+- [33:55.460] but whatever's necessary.
+- [33:57.170] And crime was down 79% after two and a half, three months.
+- [34:03.520] And by the way, if they had the brains in Chicago,
+- [34:06.250] they'd ask us to go there.
+- [34:07.490] We'll solve the problem for them very quickly.
+- [34:10.040] We'd go to San Francisco very quickly.
+- [34:12.100] San Francisco would be so easy for us.
+- [34:14.640] We'd go to New York and help them out.
+- [34:16.550] We'd love to help them out.
+- [34:18.270] And we'd get crime numbers down 70%, 80%,
+- [34:21.210] 90% in a matter of months.
+- [34:25.910] D.C. was really bad.
+- [34:27.800] I don't want to go into the numbers in terms
+- [34:29.550] of using the word murder, but it was really bad.
+- [34:32.860] And it's gone from that to being we're down 92%.
+- [34:37.510] And actually, I'm trying to figure out the 8%,
+- [34:41.140] who they are. One of the things we did.
+- [34:43.480] And some people like it,
+- [34:46.210] but the numbers speak for themselves.
+- [34:48.980] If you really get down,
+- [34:50.450] you see drug traffic coming into our country is way down.
+- [34:54.600] And by sea. By sea, by ocean, by the water.
+- [34:59.110] A lot of people say, "What do you mean by sea?
+- [35:01.510] Is it see, like vision?" "No, it's sea. S-E-A."
+- [35:05.000] But it's down 97%. Think of it, 97%.
+- [35:10.630] For years, they'd grab a boat and they'd bring them in
+- [35:14.160] and they'd see a judge and they'd let him out,
+- [35:16.260] and the next day he's back in his country
+- [35:18.370] bringing more drugs in.
+- [35:19.920] Nothing worked. We're down. Nothing.
+- [35:21.810] Get worse, worse, worse. Down 97%.
+- [35:25.610] And we're trying to figure who the 3%
+- [35:28.390] are because we consider them to be
+- [35:29.840] maybe the bravest people anywhere in the world.
+- [35:33.970] You look at those boats, "pewm, pewm."
+- [35:35.790] And you feel terribly except for one thing, those boats,
+- [35:41.060] 25,000 people die from just a couple of those boats,
+- [35:46.480] think of it, from drugs. Ruin families, ruin everything.
+- [35:49.260] And when you see that, you say, "Thank you very much."
+- [35:51.400] But drugs coming in by sea are down 97%.
+- [35:55.130] And now we've started the Land Force, which is much easier.
+- [35:59.030] And you'll hear some complaints from some people,
+- [36:02.720] like representatives from Mexico and other places.
+- [36:05.820] But if they're not going to do the job,
+- [36:07.720] we're going to do the job, and they understand that.
+- [36:09.840] That's the easy one by comparison to the sea.
+- [36:13.350] We had to do the sea first.
+- [36:14.650] You had no idea how much came in by water,
+- [36:17.410] and very little, almost nothing is coming in right now.
+- [36:20.910] They don't want to do that anymore.
+- [36:22.800] But no one should ever doubt
+- [36:24.130] the resolve of America's military moms.
+- [36:25.810] They're incredible.
+- [36:27.090] From the start of our Republic down to today,
+- [36:30.560] our nation's been strengthened by the love and devotion
+- [36:34.360] and the commitment of incredible women.
+- [36:36.260] These are really incredible women who've served our country,
+- [36:41.270] supported our troops, and poured out their care
+- [36:44.080] and compassion for this nation that we all love.
+- [36:47.180] So I just want to thank everybody,
+- [36:48.880] and happy Mother's Day.
+- [36:50.510] And God bless you all. Thank you very much. Thank you.
+- [36:54.590] (applause)

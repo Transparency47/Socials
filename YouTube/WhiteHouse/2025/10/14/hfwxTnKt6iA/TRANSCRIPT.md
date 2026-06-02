@@ -1,0 +1,1154 @@
+<!-- source: https://www.youtube.com/watch?v=hfwxTnKt6iA -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: hfwxTnKt6iA -->
+<!-- date_published: 2025-10-14T18:58:15+00:00 -->
+<!-- date_accessed: 2026-06-02T02:43:31.520999+00:00 -->
+
+# Transcript: President Trump Participates in a Bilateral Lunch with the President of the Argentine Republic
+
+- [00:13.140] The President: Well, thank you very much.
+- [00:14.420] It's a great honor to have the leader of Argentina,
+- [00:18.490] a place that I love, I've been to.
+- [00:21.150] And one of the most beautiful places in the world,
+- [00:23.350] the President, and I really want to thank you very much.
+- [00:27.470] He's mega all the way. It's make Argentina great again.
+- [00:31.220] I heard about him when he was campaigning,
+- [00:32.940] and even before his campaign. He's a good economist,
+- [00:35.540] and he was saying a lot of very correct things.
+- [00:38.520] And he was very much in a conservative mode.
+- [00:41.650] And I heard all about you as you were running
+- [00:44.780] and even before you were running
+- [00:46.270] because as a tremendously talented economist,
+- [00:49.590] you were getting a lot of good write-ups.
+- [00:51.610] And I appreciated that.
+- [00:53.910] But he was make Argentina great again.
+- [00:57.990] It worked. I actually sent him some hats
+- [00:59.680] for his early part of the campaign.
+- [01:01.130] And then he called me. He wanted a lot more.
+- [01:03.420] And I said, when does it stop? When will it stop?
+- [01:06.340] And it stopped with him winning. And I he's become very popular.
+- [01:11.170] And he's on the verge of a breakthrough, I think.
+- [01:13.970] I think he's really on the verge of tremendous economic success.
+- [01:17.920] And I know that Scott Bessent is helping.
+- [01:20.350] And our great Scott is doing a job,
+- [01:23.390] and he feels very strongly about it.
+- [01:25.060] And, Scott, do you want to say
+- [01:26.300] just a couple of words about that, please?
+- [01:29.610] Secretary Bessent: Yes, sir,
+- [01:30.920] the President is fighting 100 years
+- [01:33.830] of bad economic history and policy, and is --
+- [01:37.760] The President: Both presidents.
+- [01:38.980] Secretary Bessent: Both. We're fighting bad --
+- [01:41.430] (laughter)
+- [01:42.850] The President: I thought he was talking about the U.S. President
+- [01:46.460] when he said --
+- [01:47.660] Secretary Bessent: And there's a midterm election coming up.
+- [01:53.690] We think he's going to do quite well
+- [01:55.970] and then continue his reform agenda.
+- [01:59.380] Mr. President, as you said,
+- [02:02.090] President Obama had a big opportunity during his term,
+- [02:05.130] which he wasted.
+- [02:06.540] Many governments in Latin America
+- [02:08.980] went center-right, and the U.S. ignored them.
+- [02:12.140] We are not going to ignore our allies.
+- [02:14.470] It is economic strength.
+- [02:16.490] We're using our economic strength to create peace,
+- [02:19.240] just as you've done all over the world.
+- [02:21.620] And it is much better to form an economic bridge with our allies,
+- [02:27.310] people who want to do the right thing,
+- [02:29.730] than have to have shoot-and-narco gunboats.
+- [02:34.060] So we think that this is an opportunity
+- [02:37.800] for the Argentinian people
+- [02:39.320] and President Milei is the one to do it.
+- [02:42.060] He's got a great cabinet, he's got great team
+- [02:44.130] who we've worked with over the past weeks.
+- [02:47.560] The President: And the election is coming up very soon.
+- [02:49.640] And it's a very big election being watched by the world
+- [02:53.660] because he's done an incredible job.
+- [02:55.170] But with that comes some pain. And they have some pain,
+- [02:59.050] and now they're coming out of it.
+- [03:00.890] I think the victory is very important.
+- [03:03.900] Your poll numbers, I hear, are pretty good.
+- [03:06.350] But I think they'll be better after this.
+- [03:09.060] And, you know, our approvals are somewhat subject
+- [03:12.120] to who wins the election, because if a socialist or,
+- [03:15.250] in the case of New York City, a communist wins,
+- [03:17.940] you feel a lot differently about making an investment.
+- [03:21.020] I think, Scott, you'd feel that if somebody
+- [03:24.530] that had no chance -- in other words, if somebody wins
+- [03:26.810] and has no chance of ever having a great economy
+- [03:29.780] because of that philosophy,
+- [03:32.850] you would put a halt to what we're doing.
+- [03:35.740] Secretary Bessent: Yes, sir.
+- [03:36.980] And we're confident the President of
+- [03:38.280] (inaudible)
+- [03:39.480] is going to do well. We've been criticized
+- [03:41.890] by a couple of American piranhas like Senator Warren.
+- [03:45.760] So, and she, she, and --
+- [03:49.950] The President: That's a compliment.
+- [03:52.480] She has no idea what she's doing.
+- [03:54.010] She's a nasty, horrible senator.
+- [03:56.920] Go ahead. Other than that, I like her very much.
+- [03:59.100] Secretary Bessent: Yes, and she and her protege in New York,
+- [04:03.290] Mandami, who I don't even think he's a Peronist.
+- [04:06.150] I think he is more of a communist chauvinismo.
+- [04:10.630] So we are -- we stand with the President.
+- [04:15.240] And what he stands for in the hope
+- [04:17.110] for the Argentinian people --
+- [04:18.860] and President Trump, just like you,
+- [04:21.270] he carries the young people. So it's hope for future.
+- [04:25.010] The Argentines have made the decision
+- [04:27.180] to shake off a hundred years of bad policy.
+- [04:30.410] They went from one of the richest countries in the world
+- [04:33.050] to a ton of debt.
+- [04:35.060] And I think that with the bridge the U.S. is giving them.
+- [04:39.300] And the strong policies that Argentina can be great again.
+- [04:46.850] The President: Thank you very much.
+- [04:48.110] Please, go ahead, please.
+- [04:49.990] President Milei: (speaking Spanish)
+- [06:56.030] The President: Thank you very much.
+- [06:57.530] Do we have a interpreter that wants to --
+- [07:00.780] you all either have that. Has everyone understood?
+- [07:03.840] Because I think you made a very important,
+- [07:07.060] profound statement, actually.
+- [07:09.140] But we could have it interpreted if you want.
+- [07:11.780] Does anybody want to interpret it?
+- [07:13.340] Would you like that? Would you like it?
+- [07:15.690] Can the interpreter speak what --
+- [07:17.120] do we have somebody set up for that, if you want?
+- [07:25.970] No, that's okay. Don't worry about it.
+- [07:28.740] We'll leave it that way.
+- [07:30.050] So, it's an honor to have you here.
+- [07:33.420] And I just want to tell you
+- [07:35.520] that your career has been an amazing one,
+- [07:38.140] and it's going to continue with the election.
+- [07:39.740] You're going to win the election,
+- [07:41.030] we're going to endorse you. I'm going to endorse today.
+- [07:43.210] Fully endorse you,
+- [07:44.460] and I, you know, people in Argentina like me.
+- [07:46.780] A lot of people like me, I'm even surprised myself.
+- [07:50.390] But we had a great week, we had a great weekend,
+- [07:53.890] we had a great day.
+- [07:55.820] Period of time in the Middle East.
+- [07:57.100] It was very comprehensive. It went very rapidly.
+- [08:01.060] And I think it's going to lead to something that's going to be
+- [08:05.600] unrecognizable, certainly, for the Middle East,
+- [08:09.650] what's taken place in the last few days.
+- [08:11.360] People can't believe it.
+- [08:12.600] I've never seen anything like it.
+- [08:13.890] I've ever seen the love and the spirit.
+- [08:15.910] And I've done a lot of things. I've got a lot deals.
+- [08:17.790] I've did a lot political deals
+- [08:19.210] where countries come into line or whatever.
+- [08:21.840] But I've seen anything like this, the level of love.
+- [08:24.910] And it has to do with the mystique of the Middle East,
+- [08:27.130] I think, as if I did other countries.
+- [08:29.150] I did a -- I did seven other settlements of wars --
+- [08:32.970] complete settlements of war. And it was very well received.
+- [08:36.220] But this is something --
+- [08:37.820] I've never seen anything like it.
+- [08:39.210] The media covered it very fairly.
+- [08:41.700] And even the fake news, of which we have a lot,
+- [08:45.660] they actually covered it fairly for a change.
+- [08:48.290] And I appreciated that. We have to get back to that.
+- [08:51.520] It's so important.
+- [08:52.910] But I just want to say it's a pleasure to be with you,
+- [08:55.370] and we're going to have lunch.
+- [08:56.610] And we'll take a couple of questions from the news.
+- [08:59.170] And I'm sure they'll be extremely
+- [09:00.830] non-hostile and friendly,
+- [09:03.330] like JD went through a very friendly interview
+- [09:05.740] with George Slopidopoulos,
+- [09:07.350] who was nice enough to pay me $16 million
+- [09:10.110] the last time we came.
+- [09:12.200] He had to pay $16 million to me, which was good. It was worth it.
+- [09:16.440] It was worth having somebody lie.
+- [09:19.250] If you get $16 million, that's good.
+- [09:21.870] But JD had a very nasty person interviewing him,
+- [09:25.650] and we can't let that happen.
+- [09:27.180] Just as inappropriate to cut off a highly respected
+- [09:30.660] Vice President of the United States, mid-sentence.
+- [09:34.000] It was -- I guess it's one way to win an argument.
+- [09:36.520] That was the only way he was going to win the argument.
+- [09:38.440] So it was pretty inappropriate, I want to tell you that.
+- [09:42.780] So, thank you very much. And do you have something there?
+- [09:45.160] Yes. Oh, good. Thank you.
+- [10:00.410] That's fantastic. Thank you very much.
+- [10:03.100] Male Speaker: And when he did this letter, Mr. President,
+- [10:06.590] your settlement in the Middle East wasn't done.
+- [10:09.530] So we had to do a new letter to include a
+- [10:13.770] (inaudible)
+- [10:14.980] because this is a very important --
+- [10:16.760] The President: You'll have to add one extra sentence.
+- [10:20.230] That's good. Thank you very much.
+- [10:21.580] This is a great, such a beautiful statement.
+- [10:24.540] Thank you, very much. It's beautiful, thank you.
+- [10:38.060] Why don't we talk about Argentina first?
+- [10:41.360] Go ahead. How is Argentina going? Go ahead.
+- [10:47.400] The Press: How is this Argentina rescue package America first
+- [10:51.080] and is this rescue package meant to help
+- [10:54.290] President Milei's party in the coming election?
+- [10:56.830] The President: No, it's helped --
+- [10:58.220] it's really meant to help a good financial philosophy
+- [11:02.420] where Argentina can -- after 20 years of disaster --
+- [11:06.180] because it was very successful at one point.
+- [11:09.110] And it can be -- again, like Venezuela.
+- [11:11.030] Venezuela was very, very successful,
+- [11:13.500] and now it's a dictatorship. So we can --
+- [11:18.310] when we can help our neighbors --
+- [11:19.720] you know, we're making tremendous progress
+- [11:21.450] in South America.
+- [11:23.520] South America, Marco was telling me.
+- [11:26.110] He's, like, our great expert here.
+- [11:27.590] He really knows it. But you were telling me
+- [11:30.010] that so many of the countries are coming our way.
+- [11:33.190] And we had, a few years ago, when I just came back --
+- [11:38.630] so I've been here now almost nine months --
+- [11:41.420] but when I came in, I was amazed to see how poorly we've done.
+- [11:45.780] We lost so many. And one of them was Argentina --
+- [11:49.180] would be lost if he wasn't there.
+- [11:51.200] And I think he will be there
+- [11:52.540] because the people recognize he's done an amazing job.
+- [11:55.030] He took over a real mess. So did I take over a mess.
+- [11:57.590] I took over the mess by, you know, the Biden group.
+- [12:00.260] And Obama was -- he started it, I'll tell you.
+- [12:03.680] Barack Hussein Obama started it.
+- [12:06.090] Could you give a couple of words on South America?
+- [12:08.130] You were telling me so well yesterday
+- [12:09.590] how well we're doing. Go ahead.
+- [12:10.870] Secretary Rubio: Well, first of all,
+- [12:12.110] we have now eight or nine, 10 countries,
+- [12:13.640] Argentina being foremost among them,
+- [12:16.270] that have aligned with the United States on issue
+- [12:18.120] after issue in international community events
+- [12:19.960] all over the world.
+- [12:21.220] There are, in fact, these great allies like Argentina,
+- [12:23.220] but I can go into others.
+- [12:24.420] Costa Rica, you know, I don't want to leave anybody out.
+- [12:26.890] El Salvador, you now.
+- [12:28.210] But I think one of the more promising developments
+- [12:31.590] is later this month there'll be an election in Bolivia.
+- [12:34.650] After 25,
+- [12:35.970] 30 years of anti-American hostile government,
+- [12:39.290] both of the candidates running in that election
+- [12:41.100] and the runoff election want strong
+- [12:43.570] and better relations with the United States
+- [12:45.150] and another transformative opportunity there.
+- [12:48.750] So I think this is important,
+- [12:50.020] this is our hemisphere, it's where we live,
+- [12:53.400] and having strong neighbors such as this.
+- [12:55.380] The President: And great progress has been made, really.
+- [12:57.220] Secretary Rubio: And we'll make more.
+- [12:58.430] The President: Over the last nine months.
+- [13:00.020] Really over the last 9 months. Yeah, please.
+- [13:03.790] The Press: Do you imagine,
+- [13:05.020] soon, a free trade agreement with Argentina,
+- [13:09.040] would it be possible, soon?
+- [13:10.640] The President: Yeah, it will be.
+- [13:11.860] Well, we're going to discuss some of it today.
+- [13:13.770] But, no, we want to help Argentina,
+- [13:16.000] and we want to always help ourselves.
+- [13:18.910] But we want help Argentina.
+- [13:20.190] And one of the ways we can do it --
+- [13:21.450] they have great product.
+- [13:23.090] And we used to do a lot of trade.
+- [13:24.520] And then, if you look at what the Democrats --
+- [13:27.320] well, they didn't know. They didn't -- honestly,
+- [13:29.270] they didn't know what they were doing.
+- [13:31.070] But a lot that trade disappeared.
+- [13:32.650] And they have great product,
+- [13:33.940] so we will be trading with Argentina.
+- [13:36.810] It'll be helpful to them, and it's helpful --
+- [13:38.300] it's good for us also.
+- [13:39.530] The Press: (inaudible)
+- [13:40.760] trying to draw a wedge between the U.S. and Argentina
+- [13:42.910] by buying soybeans from Argentina,
+- [13:44.370] not U. S. farmers?
+- [13:45.610] The President: I would say --
+- [13:48.240] China likes to draw wages. Yeah, sure.
+- [13:51.720] I mean, I guess that's natural. It's China, and it's natural,
+- [13:57.320] but it's not going to mean anything in the end.
+- [14:02.900] The Press: Should Argentina end the China
+- [14:07.430] swap and close the space base in Neuquén?
+- [14:10.660] The President: I don't think you should be
+- [14:12.480] doing business much with -- you can do some trade,
+- [14:15.130] but you certainly shouldn't be doing beyond that.
+- [14:17.650] Certainly you shouldn't doing anything having to do
+- [14:19.500] with the military, with China. And if that's what's happening,
+- [14:23.350] I'd be very upset about that, yeah.
+- [14:28.660] The Press: Mr. President, what about the swaps?
+- [14:31.050] Because it's so important for Argentina, the swap.
+- [14:34.620] The (inaudible).
+- [14:37.090] Secretary Bessent: The American assistance
+- [14:39.280] is not predicated on the swap with China being closed.
+- [14:43.200] Any reporting to that effect is incorrect.
+- [14:47.300] The Press: Sorry, but you said that Argentina has to expose
+- [14:51.220] China from your business and from your agenda,
+- [14:54.020] and this talk is so important for Argentina.
+- [14:58.060] Secretary Bessent: I was referring more to ports,
+- [15:01.410] military bases, observation facilities
+- [15:05.420] that have been created in Argentina.
+- [15:07.870] The Press: (inaudible)
+- [15:11.190] Secretary Bessent: More than the swap.
+- [15:13.690] The President: He was referring to that.
+- [15:14.910] Yeah, behind you, please.
+- [15:16.150] The Press: Yes, President, for Argentina,
+- [15:17.850] what's the benefit for the United States
+- [15:20.220] in helping this way of Argentina?
+- [15:22.280] The President: Just helping a great philosophy
+- [15:24.270] take over a great country.
+- [15:25.720] Argentina is one of the most beautiful countries
+- [15:27.800] that I've ever seen. And we want to see it succeed.
+- [15:31.870] It's very simple. I mean, we don't have to do it.
+- [15:34.920] It's not going to make a big difference for our country,
+- [15:37.420] but it will in terms of South America.
+- [15:40.190] If Argentina does well, you're going to have others following.
+- [15:42.700] And a lot of others are following.
+- [15:44.680] You have countries in South America that,
+- [15:47.070] two years ago, would have never even been thought of to --
+- [15:50.700] go as democracies or as just countries
+- [15:54.610] that want to do fair and balanced trading.
+- [15:57.580] And now all I mean you mentioned Bolivia,
+- [15:59.900] but you there are there are numerous other countries
+- [16:02.670] that are coming our way. And Brazil as you know,
+- [16:07.220] I had a very good conversation with the president
+- [16:10.770] I met him at the United Nations before I went up to speak
+- [16:14.050] and then I found that he didn't have a speech
+- [16:15.950] because I had no teleprompter.
+- [16:17.190] They turned off my teleprompter purposely.
+- [16:19.730] They made it impossible for me. But it didn't silence me.
+- [16:24.540] I spoke without -- and it was a good speech.
+- [16:27.910] I mean, it was good speech, but, no, I think of that.
+- [16:30.450] You go into the United Nations,
+- [16:31.800] I'm speaking in front of 158 leaders
+- [16:34.420] and the whole world, and I look at my teleprompter,
+- [16:37.830] and it's dead. They killed my teleprompter.
+- [16:41.840] They wouldn't let the man that operated into the booth.
+- [16:44.530] Can you believe that?
+- [16:46.180] The Press: Do you not have any specific interest
+- [16:48.850] in economic terms for the (inaudible)?
+- [16:50.790] The President: I do have. No, I want to see it succeed.
+- [16:52.700] I think it's going to be great, and we will benefit also.
+- [16:56.230] But it's not that big a benefit
+- [16:58.380] because it's not that a big a country,
+- [17:00.500] but it's a very important country.
+- [17:02.540] And it's country that can be very successful.
+- [17:04.970] There are some countries that will never be successful.
+- [17:07.450] This is a country that has great potential
+- [17:09.840] if it has the right leadership.
+- [17:11.160] And you have the right leadership
+- [17:12.500] with this man right here. Okay?
+- [17:16.190] The Press: Mr. President, would you support dollarization?
+- [17:19.990] The President: I would say that I'll leave that up
+- [17:21.570] to my economic people,
+- [17:25.060] but I like the dollar. I'm very strong on the dollar,
+- [17:29.770] and anybody who wants to deal in dollars,
+- [17:31.660] they have an advantage over people that aren't.
+- [17:33.670] But for the most part, we're keeping it that way.
+- [17:36.320] I think if Biden would have, you know,
+- [17:37.750] Biden and that group would have gotten like Kamala,
+- [17:41.350] you wouldn't have the dollar as your currency anymore.
+- [17:44.320] You wouldn't a world domination by the dollar
+- [17:49.820] I didn't win this election.
+- [17:51.020] And now the nomination, like BRICS.
+- [17:53.350] I told anybody who wants to be in BRICs, that's fine,
+- [17:55.910] but we're going to put tariffs on your nation.
+- [17:57.740] Everybody dropped out.
+- [17:58.950] They're all dropping out of BRICS.
+- [18:00.560] BRICS was an attack on the dollar.
+- [18:03.140] And I said, you want to play that game,
+- [18:05.300] I'm going to puts tariffs on all of your product
+- [18:08.900] coming into the U.S.
+- [18:10.690] They said, like I said we're dropping out of BRICS.
+- [18:14.100] And BRICS is like -- they don't even talk about it anymore.
+- [18:17.110] Scott, you wanna add to that?
+- [18:19.110] Secretary Bessent: We're very happy
+- [18:20.350] with the current currency arrangement.
+- [18:26.810] The President: Your ABC fake news,
+- [18:28.110] I don't want to hear. Go ahead, Brian, please.
+- [18:30.870] I don't take questions from ABC fake news
+- [18:33.300] after what you did with Stephanopoulos
+- [18:36.090] to the Vice President of the United States.
+- [18:38.520] I don't take questions from ABC fake news.
+- [18:40.910] The Press: Yes, sir.
+- [18:42.290] First of all, congratulations on achieving peace.
+- [18:44.520] You're indeed a peacemaker.
+- [18:46.730] The President: Hard to believe, right?
+- [18:48.030] Did you ever think I was going to be called a peacemaker?
+- [18:50.610] The Press: Actually, I did.
+- [18:52.300] The President: I did too. Go ahead. Go ahead.
+- [18:54.020] The Press: But on a lighter note, Alyssa Farah,
+- [18:56.320] she is one of the hosts on ABC's show, The View.
+- [18:59.920] She said a while back on quote,
+- [19:01.860] "If Trump gets Israeli hostages out,
+- [19:04.170] I promise I will wear a MAGA hat for one day on this show
+- [19:08.680] and say thank you for doing it." Your response?
+- [19:11.490] The President: Well, did she put the hat on?
+- [19:12.870] The Press: Well, she hasn't got the hat yet.
+- [19:14.450] The President: Who is it? Which one?
+- [19:15.670] The Press: Alyssa Farah.
+- [19:16.900] The President: Oh, yeah, well, she used to work for me.
+- [19:18.690] So she used work here.
+- [19:19.910] I'll tell you about Alyssa. She worked here.
+- [19:22.700] She gave me the most beautiful letter
+- [19:24.250] when, you know, the administration,
+- [19:26.370] the time came up, the election was rigged, I left.
+- [19:30.230] She gave the most beautiful letter you've ever seen.
+- [19:33.110] I was a great president. What a great job.
+- [19:35.830] Some of the letters have been quoted.
+- [19:37.390] This is Alyssa, who I never thought was very outstanding.
+- [19:41.180] I figured she would not make it.
+- [19:42.920] And she didn't have a big role here, either.
+- [19:45.110] And then we had January 6th,
+- [19:48.210] and she left after that or before that,
+- [19:51.510] but she gave me the most beautiful letters.
+- [19:54.100] And then even months after she left,
+- [19:56.740] and while we weren't here any longer,
+- [19:59.990] she sent another letter, a glowing letter,
+- [20:02.160] a beautiful letter. She got hired by The View,
+- [20:07.380] and they gave her a couple of bucks,
+- [20:08.820] and she changed her view very quickly.
+- [20:11.390] I never thought she'd make it.
+- [20:12.900] Never thought she had what it took in any way.
+- [20:15.210] You know what that means. But she's on The View.
+- [20:18.570] But it just shows what a fraud The View is,
+- [20:20.890] because this woman gave me letters and statements.
+- [20:24.490] She said I was the greatest president in her lifetime.
+- [20:27.000] No, she's not that old, so I didn't consider it
+- [20:28.920] a great compliment, but I've had better.
+- [20:31.290] The Press: Can we send her a hat?
+- [20:32.570] The President: Well, recently,
+- [20:33.770] I've had the greatest president of them all.
+- [20:36.250] I like that much better because I said,
+- [20:39.220] does that include Washington and Lincoln?
+- [20:41.090] Yes, sir, it does. I said I like the person.
+- [20:44.660] So I think she's a total -- I think he's a joke.
+- [20:50.120] The Press: How long will it take Hamas to disarm,
+- [20:52.400] and can you guarantee that is going to happen?
+- [20:54.290] The President: Well, they're going to disarm
+- [20:55.720] and because they said they were going to disarm.
+- [20:57.560] And if they don't disarm, we will disarm them.
+- [21:00.510] The Press: How do you do that?
+- [21:01.790] The President: I don't have to explain that to you.
+- [21:03.570] But if they do disarm we will disarm them.
+- [21:06.150] They know I'm not playing games.
+- [21:07.970] Okay, now we do something monumental.
+- [21:10.720] We got the hostages back.
+- [21:12.140] That was the first thing we had to do above all else.
+- [21:15.270] Get the hostage is back.
+- [21:17.370] Now they misrepresented because we were told they had
+- [21:21.780] 26, 24, of dead hostages, if we can use those terms.
+- [21:27.460] And it seems as though they don't have that,
+- [21:30.480] because we're talking about a much lesser number.
+- [21:34.070] But that's a very tough subject. I want them back.
+- [21:37.370] That's what they said. I want then back.
+- [21:40.160] Also, they said they were going to disarm.
+- [21:42.990] And initially speaking, they needed -- you know,
+- [21:46.320] they did take out a couple of gangs that were very bad.
+- [21:49.710] Very, very bad gangs. And they did take them out.
+- [21:52.700] And they killed a number of gang members.
+- [21:55.550] And that didn't bother me much, to be honest with you.
+- [21:58.610] That's okay. It's a couple of very bad gangs.
+- [22:01.070] You know, it's no different than other countries.
+- [22:03.850] Like Venezuela sent their gangs into us,
+- [22:07.000] and we took care of those gangs. We have Washington, D.C.
+- [22:10.120] is one of the safest cities in the country.
+- [22:11.920] It was one of worst cities in country.
+- [22:13.500] If you go back just a little while ago, right?
+- [22:16.170] Now it's safe. You can walk to work.
+- [22:17.610] Isn't it nice?
+- [22:18.880] But we have told them we want disarm, and they will disarm.
+- [22:25.270] And if they don't disarm we will disarming them.
+- [22:27.740] And it will happen quickly and perhaps violently.
+- [22:31.280] But they will disable. Do you understand me?
+- [22:33.510] Because you always, everyone says,
+- [22:34.930] oh, well, they won't disarmed.
+- [22:37.140] They will disarm. And I spoke to Hamas.
+- [22:42.460] And I said, you're going to disarm, right?
+- [22:44.080] Yes, sir, we're going disarm. That's what they told me.
+- [22:47.490] They will disarm or we will disarm them.
+- [22:49.710] Got it? Okay, next.
+- [22:52.960] The Press: You said quickly,
+- [22:54.190] but what is the deadline you're going to put on that?
+- [22:55.770] The President: A reasonable period of time,
+- [22:57.120] pretty quickly. A reasonable period of time.
+- [23:00.110] The Press: Congratulations on the peace you achieved
+- [23:01.920] in the Middle East, first of all.
+- [23:03.520] And my question is regarding Argentina.
+- [23:05.090] Does (inaudible) --
+- [23:06.320] The President: Are you from Argentina?
+- [23:07.550] The Press: I'm from Argentina, yes.
+- [23:08.770] The President: I like the Argentina.
+- [23:10.720] I like them much better than ABC.
+- [23:13.430] Than ABC, than ABC fake news.
+- [23:15.560] The Press: Is the continued U.S. support for Argentina
+- [23:18.830] depend on the results of the upcoming legislative elections
+- [23:22.350] and the ability of the government
+- [23:24.180] to pass long-lasting reforms through Congress?
+- [23:27.360] The President: Well, I think if they don't do that,
+- [23:28.960] we're not going to be around very long.
+- [23:30.430] Scott, can you handle that one, please?
+- [23:33.370] Secretary Bessent: We're confident
+- [23:34.580] that the president's party will
+- [23:36.720] and the coalition will do well in the election
+- [23:40.400] and this aid is predicated on robust policies
+- [23:46.130] and going back to the failed Peronus policies
+- [23:49.370] would cause a U.S. rethink.
+- [23:51.950] The President: It's a little bit --
+- [23:53.180] it's a great question. It's little like New York.
+- [23:55.070] You know, you're reading in Argentina
+- [23:56.780] about New York, we have a problem.
+- [23:58.430] We have a communist who's 33 years old,
+- [24:00.640] doesn't know a damn thing.
+- [24:01.920] Practically, he's never worked a day in his life.
+- [24:05.600] And he's sort of caught on, right?
+- [24:07.890] And I'm not going to send a lot of money to New York.
+- [24:11.410] I don't have to.
+- [24:12.760] You know the money comes all through the White House.
+- [24:14.950] And If they're going to be sending us stupid policies,
+- [24:18.880] I mean, communist policies,
+- [24:20.280] which is proven for thousands of years doesn't work,
+- [24:23.180] you know, we're not going to have to prove it again.
+- [24:25.320] We're not going to ruin one of our great cities
+- [24:27.950] because we'll make that great.
+- [24:29.330] We will clean up the crime in about 30 days.
+- [24:32.460] It took 12 days to do Washington,
+- [24:34.440] D.C., so New York is bigger.
+- [24:36.770] And Chicago, we've already made a lot of progress
+- [24:40.420] despite fighting from the government, but we'll --
+- [24:43.420] Chicago is doing great. Memphis is doing really great.
+- [24:45.800] You know, we have great support there
+- [24:47.270] from the political leaders.
+- [24:48.510] They said, please come in and clean up crime.
+- [24:51.190] And we love it.
+- [24:52.410] We've -- in one week, Memphis is so good.
+- [24:55.240] It's so much better. We'll have it --
+- [24:56.670] within a month, we'll have that into a safe city again.
+- [24:59.960] And all of these cities, we want to clean them up.
+- [25:01.870] We don't like that opposition.
+- [25:03.660] But if somebody is going to be a communist mayor of New York,
+- [25:06.470] it's a fluke if he gets in.
+- [25:09.280] There are a lot of failed people that he's running against.
+- [25:12.040] Who have failed.
+- [25:13.330] You have inferior candidates or something,
+- [25:16.060] and because it's impossible to think
+- [25:17.640] that New York City can have a communist mayor.
+- [25:20.100] He's a communist. He's not a socialist, by the way.
+- [25:22.030] There's a big difference. He's communist.
+- [25:23.860] He's down and dirty.
+- [25:25.360] He's a communist. He hates police.
+- [25:27.600] He wants to get rid of all police.
+- [25:29.170] I mean, how can a policeman? He hates Jewish people,
+- [25:33.040] and yet he's got Jewish people supporting.
+- [25:34.730] He hates the Jewish people.
+- [25:36.290] So, it comes through the White House,
+- [25:39.190] the funding for New York
+- [25:41.140] and for every place comes through the White House.
+- [25:44.130] And I'm very generous.
+- [25:45.440] And I was always very generous with New York,
+- [25:47.220] even when you had opposition there.
+- [25:49.160] But I was very generous,
+- [25:50.930] but I wouldn't be generous to a communist,
+- [25:53.130] a guy that's going to take the money
+- [25:54.600] and throw it out the window,
+- [25:55.840] because you're talking about hundreds of billions of dollars.
+- [25:59.430] And we're not going to let somebody get into office
+- [26:01.780] and squander the taxpayer money from this country.
+- [26:06.180] We're not going to let it happen.
+- [26:07.450] So it's a little bit like that with,
+- [26:09.110] if you take a look, Argentina. If the President doesn't win,
+- [26:14.250] I know the person that he'd be running against,
+- [26:16.460] I believe, probably. We probably have the person.
+- [26:19.970] The person is extremely far left and a philosophy
+- [26:23.390] that got Argentina into this problem in the first place.
+- [26:27.180] So we would not be generous with Argentina if that happened.
+- [26:29.910] If he loses, we are not going to be generous with Argentina.
+- [26:33.290] The Press: Mr. President,
+- [26:36.870] can you talk about the Argentinian important
+- [26:39.050] in the Latin America? What is your plan for Venezuela?
+- [26:43.360] (inaudible) the terrorism,
+- [26:45.050] the narco-terrorism in the President Maduro?
+- [26:47.460] What is you plan?
+- [26:48.740] The President: Well, Venezuela has done
+- [26:49.940] a couple of things very badly.
+- [26:51.170] Number one, we get drugs and all of that.
+- [26:52.870] But we get something in a way worse,
+- [26:54.610] because they're a big purveyor of drugs, but we have worse.
+- [27:00.090] What they do very well
+- [27:01.440] is they send their criminals into the United States,
+- [27:03.880] and they send Tren de Aragua that you know very well.
+- [27:07.460] You're from Venezuela, I assume.
+- [27:09.400] And they send them in by the thousands, literally.
+- [27:11.920] And these are the worst of all.
+- [27:13.210] And they empty their prisons into the United States.
+- [27:16.700] They empty their mental institutions
+- [27:18.920] into the United States.
+- [27:20.760] And because we had a President who was low IQ,
+- [27:23.670] he didn't realize what was going on.
+- [27:25.250] And the people that are high IQ that surround him --
+- [27:27.630] but they happen to be lunatics, radical left.
+- [27:30.510] They're highly intelligent, radical-left lunatics. Okay?
+- [27:33.740] So, in a way, that's worse than having a guy like Biden.
+- [27:37.560] But they ran the show. You heard about the auto pen.
+- [27:42.860] The person that really operated the auto pen,
+- [27:46.070] but it was really the people that told the person
+- [27:48.370] that operated the autopen what to do.
+- [27:50.730] Those are the people that really were president, okay?
+- [27:53.540] So we're not going to stand for it in this country.
+- [27:58.110] And by the way, that autopen thing
+- [27:59.770] is under serious investigation.
+- [28:01.570] Just this, I don't think you care
+- [28:03.200] because you're from Argentina,
+- [28:04.580] you couldn't care less about that.
+- [28:05.810] But I just want to say, because I do the weave,
+- [28:08.620] you know, the weave cover a lot of different subjects.
+- [28:12.550] But the people that are involved in that Auto Pen scam.
+- [28:17.300] Because he barely signed anything.
+- [28:18.930] I mean, this guy, I don't know how he can be President.
+- [28:20.920] He barely signed it.
+- [28:22.150] But the only thing we can find for sure
+- [28:23.820] is that he signed Hunter's pardon.
+- [28:26.160] His pardon.
+- [28:27.640] Hunter's pydon, I like that. That's a good combination.
+- [28:30.380] So we're going to work very much with the President.
+- [28:35.580] We think he's going to win. He should win.
+- [28:38.350] And if he does win, we're going to be very helpful.
+- [28:40.420] And he doesn't win, and we're not going to waste our time
+- [28:42.350] because you have somebody whose philosophy has no chance
+- [28:46.320] of making Argentina great again.
+- [28:50.380] Steve, go ahead.
+- [28:52.740] The Press: Just to check something,
+- [28:54.440] you said Hamas assured you that they would disarm.
+- [28:57.070] Was that a direct conversation or through Mr. Witkoff?
+- [29:00.780] The Press: Through my people. At the highest level.
+- [29:04.340] And it was meant for me. Yeah.
+- [29:06.450] The Press: What is your advice to President Milei
+- [29:08.140] and Argentina?
+- [29:10.530] The President: My advice is to hold strong to his principles
+- [29:14.490] because he's right and he's proving that he was right.
+- [29:17.920] He's got one problem, he's got people that are giving him
+- [29:20.830] tremendously bad press even though they know it's wrong.
+- [29:26.880] He has got to hold true to his principles
+- [29:28.650] because, he is going to win.
+- [29:29.860] He is going win. He's doing the right thing.
+- [29:32.590] Everybody knows he is doing the right thing,
+- [29:34.190] but you have a radical left-sick culture
+- [29:36.890] that's a very dangerous group of people.
+- [29:39.320] And they're trying to make him look bad.
+- [29:43.110] I believe he's going to win out.
+- [29:45.120] The Press: (inaudible)
+- [29:49.790] The President: You have to be careful with China.
+- [29:51.110] Look, we have -- everybody deals with China,
+- [29:53.650] they have to deal with us, too.
+- [29:55.950] We have to careful with with China --
+- [29:57.430] look, I have a great relationship with President Xi,
+- [30:00.930] but sometimes it gets testy,
+- [30:02.380] because China likes to take advantage of people,
+- [30:05.500] and they can't take advantage us.
+- [30:07.710] But we have a fair relationship with China
+- [30:09.790] and I think it'll be fine.
+- [30:11.100] And if it's not, that's okay, too, you don't have to do --
+- [30:13.590] you have to go where the punches are thrown.
+- [30:17.180] You got to put up the blocks.
+- [30:18.570] We have a lot of punches being thrown,
+- [30:21.210] and we've been very successful. Look, we have the most --
+- [30:24.550] I think we're the most successful
+- [30:25.970] we've ever been as a country.
+- [30:27.240] We have now close to -- I've been saying 17.
+- [30:29.420] We have, I think,
+- [30:30.640] close to or maybe even exceeding $18 trillion
+- [30:35.060] going to be invested in the United States.
+- [30:37.250] That's more money than ever invested in any country before,
+- [30:41.380] even countries with much bigger populations,
+- [30:44.650] like India or like China.
+- [30:47.140] Nobody has ever had $18 trillion invested in the country.
+- [30:51.890] We have -- and that's because of November 5th election,
+- [30:54.660] because I won.
+- [30:55.980] Oh, if she won, you'd be negative.
+- [30:59.410] You'd have people getting out of the country,
+- [31:01.030] and this country would have been --
+- [31:02.780] we would have in a major depression.
+- [31:04.660] If she won we would've been 1929.
+- [31:08.600] They'd like to see that anyway.
+- [31:09.990] That's why they keep the government laws.
+- [31:11.510] They have a shutdown based on nonsense.
+- [31:13.960] Say I want to give away 1.5. Think of it.
+- [31:17.070] They want to give away $1.5 trillion
+- [31:20.250] to people that come into the country illegally.
+- [31:22.770] And, as you know, the borders now are closed.
+- [31:25.740] But when they hear that they get the greatest healthcare package
+- [31:29.070] in the world and they have no money,
+- [31:31.240] but they're living okay in another country,
+- [31:34.650] they head up and they start forming caravans,
+- [31:38.050] and they try and come into our country.
+- [31:40.220] But the big problem is they want to should not get health care.
+- [31:48.030] They want to give health care
+- [31:49.580] to illegal immigrants by the millions.
+- [31:54.230] Look at Gavin Newsom, what he's done.
+- [31:55.630] He's ruined California. He gives health care anybody.
+- [31:59.120] And I guess they do it for votes.
+- [32:00.400] I actually think it's bad politics,
+- [32:02.020] but I guess do it votes.
+- [32:04.620] So I'm with this man because his philosophy is correct.
+- [32:10.000] And he may win and he may not win,
+- [32:11.410] but I think he's going to win.
+- [32:13.050] And if he wins, we're staying with him.
+- [32:14.460] And if he doesn't win, we're gone.
+- [32:18.940] The Press: How can Argentina help to the peace process,
+- [32:23.500] to the Middle East peace process?
+- [32:25.730] The President: They could help by doing well.
+- [32:27.560] If Argentina does well, that's helpful,
+- [32:30.680] because they know we help Argentina.
+- [32:32.950] So, if Argentina is successful, that great, because they view us
+- [32:37.250] as somebody that helped Argentina and they did well,
+- [32:41.290] and the United States maybe will help them,
+- [32:43.250] and they're going to do well.
+- [32:44.570] So, the success of Argentina would be a great feather
+- [32:49.000] in the cap of the USA, because we're helping them.
+- [32:51.630] Right? You understand?
+- [32:52.890] Yeah, please, behind you. Behind you.
+- [32:55.860] The Press: Thank you Mr. President.
+- [32:57.120] Last week you said that NATO should consider expelling Spain.
+- [33:00.000] The President: What?
+- [33:01.280] The Press: You said that NATO should consider expelling Spain.
+- [33:03.840] Would you support that?
+- [33:05.400] The President: What?
+- [33:06.620] Secretary Bessent: NATO consider expelling Spain.
+- [33:13.230] The President: I'm very unhappy with Spain.
+- [33:15.680] They're the only country
+- [33:16.970] that didn't raise up their number to 5 percent.
+- [33:20.090] Every other country in NATO raised up to 5 percent.
+- [33:24.540] And Spain is doing very well off our backs.
+- [33:28.630] So I'm not happy with Spain,
+- [33:31.490] Spain gets protection and they know,
+- [33:33.390] you know, look, they're sort of in the semi-middle of it.
+- [33:36.540] So they're going to get protected automatically.
+- [33:38.460] Even if you don't want to protect them,
+- [33:39.790] you're protecting them because of the way they're located.
+- [33:43.680] And I think what Spain did is a very bad thing for NATO.
+- [33:46.810] I think it's very unfair to NATO.
+- [33:50.520] It wouldn't matter if you said you're not going to protect them
+- [33:52.580] because they're pretty much protected.
+- [33:54.060] You know, what are you going to do?
+- [33:55.380] Go through the other countries
+- [33:56.580] and let's go attack Spain, right?
+- [33:58.370] So I think, what they did is not nice.
+- [34:03.130] I think is very disrespectful to NATO.
+- [34:06.780] In fact, I was thinking about giving them
+- [34:08.810] trade punishment through tariffs because of what they do.
+- [34:14.010] I may do that. I think unbelievably disrespectful.
+- [34:17.810] Spain, the only one out of all the countries in NATO,
+- [34:21.590] the only that said that is Spain.
+- [34:24.230] And I think that's --
+- [34:26.560] I think they should be punished for that.
+- [34:28.250] Yes, I do.
+- [34:31.390] The Press: You have the money to pay the troops
+- [34:33.010] on (inaudible)?
+- [34:35.070] The President: I actually have a man
+- [34:36.320] who is a very wealthy person.
+- [34:39.620] You'll know that when I tell you this,
+- [34:41.710] who called a donor, a great gentleman,
+- [34:46.460] and he said, if there's any money necessary, shortfall,
+- [34:51.130] for the paying of the troops,
+- [34:52.900] then I will pay it, meaning he will pay.
+- [34:55.450] How about that?
+- [34:56.710] I said, look, we're not going to need it.
+- [34:58.890] We're going to take care of our troops.
+- [35:00.210] But this was a position that's being forced upon us
+- [35:04.700] by Democrats
+- [35:06.070] and all they have to do is just sign a piece of paper
+- [35:07.940] saying we're going to keep it going the way --
+- [35:09.400] you know, there's nothing it's not like it.
+- [35:11.650] Shouldn't even be an argument.
+- [35:12.870] They've signed it many times before.
+- [35:14.530] I don't want to bore you with the fact that Schumer
+- [35:16.100] said a hundred times you should never close up government,
+- [35:19.980] but Schumer is a weakened politician.
+- [35:22.630] I mean he's going to finish his career as a failed politician.
+- [35:25.570] He's a failed politician he has allowed the radical left
+- [35:29.240] to take over the Democrat party.
+- [35:31.740] So if they write books about that,
+- [35:33.800] if they write books on him,
+- [35:36.210] they're going to have to say that his career
+- [35:38.900] ended by allowing the radical left to take over the party.
+- [35:42.080] I mean, I won an election in a landslide
+- [35:45.080] because people are not into the radical left,
+- [35:47.750] and the Democrat party is.
+- [35:49.550] People didn't want to see men playing in women's sports.
+- [35:53.030] They didn't want to see transgender for everybody.
+- [35:56.080] They didn't want to all of the different things
+- [35:58.040] that they do that's so crazy. Open borders.
+- [36:00.360] I mean the biggest, the worst thing that he did to us,
+- [36:03.720] it's not inflation, because we fixed inflation.
+- [36:05.720] Prices are way down.
+- [36:08.070] I don't know if you saw that gasoline went to $58
+- [36:12.770] just now for a -- did you see what's going on with gasoline?
+- [36:18.390] No, $58 a barrel. Nobody can believe it.
+- [36:21.710] I'm very proud of it. You know why?
+- [36:23.130] Because we're pumping like we've never pumped before.
+- [36:25.230] Because with -- if you get the gas price down,
+- [36:27.920] everything else comes down. It's very simple.
+- [36:30.310] And he he went away from my policies
+- [36:33.030] and you had the greatest influx the last administration
+- [36:37.940] had the great inflation in the history of our country
+- [36:41.230] and now as you know groceries are down, it's all down.
+- [36:44.240] The Press: (inaudible) be a long-term?
+- [36:47.790] The President: It's up to them.
+- [36:49.040] All they have to do is just vote to extend.
+- [36:51.500] We don't need it. We're not saying we want money.
+- [36:54.830] All we need is a right to extend,
+- [36:58.880] a right to extend but they want $1.5 trillion
+- [37:02.840] so they can give it away to illegal immigrants,
+- [37:06.330] the people that are invading your cities
+- [37:09.680] and many of these people for whatever reason.
+- [37:12.170] I mean, I understood this. I called it a long time ago.
+- [37:15.170] These countries are run by people I know.
+- [37:17.440] Friends of mine, like I know this gentleman.
+- [37:20.370] I hope you haven't sent, he probably did too, why not?
+- [37:23.700] They send up their worst people.
+- [37:25.470] They send the people that are criminals,
+- [37:27.080] they send the people from jails.
+- [37:29.450] And at best, the best ones they send up
+- [37:31.490] are people that don't work very hard
+- [37:33.620] and that are on a social form of welfare.
+- [37:37.620] And they're sending those people into the United States.
+- [37:40.350] I don't blame them, I'm angry at them, but I don't blame them.
+- [37:43.870] But I'm really angry at Biden and Kamala.
+- [37:47.170] And that group of lunatics for allowing it to happen,
+- [37:50.330] because it's the hardest thing.
+- [37:51.750] Now, you know we're sending them out.
+- [37:54.790] It's incredible, the job that Kristi and Tom Homan
+- [37:58.420] and the whole group is doing.
+- [38:00.660] But we shouldn't have to be doing that.
+- [38:03.430] We're doing a lot of work on getting people out of here.
+- [38:06.430] Tren de Aragua has caused tremendous damage,
+- [38:10.170] and our soldiers are great.
+- [38:11.690] You know, our soldiers, they're now based on merit.
+- [38:13.590] They're not based on woe,
+- [38:14.820] because we won the case in the Supreme Court.
+- [38:17.120] Which was the bravest case.
+- [38:18.940] I have such respect for the Supreme Court
+- [38:20.750] because of what they did with merit,
+- [38:22.940] because our country was built on merit.
+- [38:26.170] Countries are destroyed on woke.
+- [38:29.850] You know, I made a statement and I hated to make it
+- [38:32.230] because it sounded bad, but everything turns to,
+- [38:37.330] you know what, when it goes woke.
+- [38:39.570] You remember the term. I don't like to use it
+- [38:41.770] because you might have some children listening,
+- [38:43.990] but it turns bad.
+- [38:45.490] And no, we have a -- we have the hottest country
+- [38:49.730] right now anywhere in the world. That's why he's here.
+- [38:52.730] That's what every other country wants to meet here, too.
+- [38:55.680] But we only have so many hours in the day and days in the week.
+- [38:59.770] But we've got the hottest countries. Think of it.
+- [39:03.130] We were a dead country a year and a half ago,
+- [39:06.120] and now we have the hottest county anywhere in this world.
+- [39:08.230] It's pretty good. Did a good job.
+- [39:09.630] Okay, any other questions? Go ahead.
+- [39:12.950] The Press: (inaudible).
+- [39:16.260] The President: What does that mean?
+- [39:17.540] The Press: Would you like to go to Argentina?
+- [39:19.910] The President: I do. I would love to.
+- [39:21.120] I'm just a little busy. I would. I'd love to go to Argentina.
+- [39:25.930] I'd like to be like Biden. I like to go to the beach.
+- [39:31.350] You know, my legs are not quite as thin as his.
+- [39:34.970] My legs are slightly heavier. My arms are slightly larger.
+- [39:38.920] My body is a little bit larger than his.
+- [39:41.860] I'm not sure it would be appreciated on the beach,
+- [39:44.010] but I'm not going to take a chance.
+- [39:45.390] You won't see me in a bathing suit.
+- [39:48.050] You won't see a bathing suit sitting on a beach in Argentina,
+- [39:51.540] falling down and not being able to lift a three-ounce chair.
+- [39:55.460] Meant for old people to lift, and he couldn't lift it,
+- [39:57.870] so he had a problem.
+- [39:59.680] He spent too much time at a beach.
+- [40:01.250] Somebody told him that he looked good in a bathing suit.
+- [40:05.200] And you'd see this guy at the beach all the time.
+- [40:07.220] I never quite understood it. Steve, go ahead.
+- [40:10.430] The Press: (inaudible)
+- [40:11.650] your meeting with the Ukrainian President Zelensky on Friday?
+- [40:14.380] Do you expect to talk about weapons?
+- [40:16.380] The President: Yeah, we have an interesting meeting going.
+- [40:18.520] Look, I'm very disappointed because Vladimir and I
+- [40:21.640] had a very good relationship, probably still do.
+- [40:24.930] I don't know why he continues with this war.
+- [40:26.910] This war has been so bad for him.
+- [40:29.490] He's going into four years of a war that should have beaten --
+- [40:33.000] he should have won that war in one week.
+- [40:35.520] He's now going to soon be into his fourth year.
+- [40:38.890] He's lost a million and a half soldiers, probably, close.
+- [40:43.580] Certainly, in terms of wounded and no legs and no arms
+- [40:46.700] and all the things that happened in horrible wars.
+- [40:49.570] It's a horrible war.
+- [40:51.020] That's the biggest thing that's happened since World War II.
+- [40:53.590] In terms of death, it's bigger than any of them.
+- [40:56.190] I settled eight of them, but the biggest is that.
+- [40:58.820] In terms death, incredible.
+- [41:01.130] I think India-Pakistan had great potential, too.
+- [41:04.470] We did a great job in that one.
+- [41:06.100] But he's got to really settle this war.
+- [41:10.330] And you know they have long lines
+- [41:12.300] waiting for gasoline in Russia right now, right?
+- [41:14.510] They have long lines.
+- [41:15.890] Who thought that was going to happen?
+- [41:17.750] And all of a sudden, his economy is going to collapse.
+- [41:20.880] And I'd like to see him do well. I mean,
+- [41:22.460] I had a very good relationship with Vladimir Putin,
+- [41:26.640] but he just doesn't want to end that war.
+- [41:30.380] And I think it's making him look very bad.
+- [41:32.690] He could end it. He could end it quickly.
+- [41:35.240] And I have to tell you, I give credit
+- [41:37.030] because who would think that Ukraine could have fought Russia
+- [41:40.510] for four years to essentially to a standstill?
+- [41:43.830] Now, there has been some early, early, you know,
+- [41:47.530] before they knew what the hell was happening
+- [41:49.170] because it happened quick.
+- [41:50.440] Biden should have never let that happen.
+- [41:52.500] That's a war that should have never happened, but it did.
+- [41:55.070] But it's not making Russia look good,
+- [41:57.010] I will tell you that.
+- [41:58.350] The Press: (inaudible).
+- [42:00.590] The President: Well, we'll be talking about Ukraine, yeah.
+- [42:02.380] I mean, I have the President coming in on Friday.
+- [42:05.350] And we'll -- I know what he has to say.
+- [42:07.790] He wants weapons. He would like to have tomahawks.
+- [42:11.120] Everyone else wants tomahawk -- and we have a lot of tomahawks.
+- [42:14.010] Tomahawk is a -- do you need any tomahawks in Argentina?
+- [42:17.880] The Press: (inaudible)
+- [42:20.890] The President: You need them for your opposition, I guess,
+- [42:22.480] because, see, in this country,
+- [42:23.700] they'd use Tomahawks for the opposition.
+- [42:26.180] I don't do that. I'm much nicer.
+- [42:28.060] The Democrats would use them if they had the chance.
+- [42:30.700] They're sick people. Go ahead.
+- [42:32.370] The Press: (inaudible)
+- [42:33.770] this plan with Argentina can fail?
+- [42:37.260] The President: Anything can fail.
+- [42:39.560] Anything can fail. You never know.
+- [42:41.780] That's why I say Putin should do something about the war,
+- [42:44.730] because so far,
+- [42:46.080] I mean, it's turned out to be very bad for him.
+- [42:48.950] But anything can fail, so this plan can fail,
+- [42:51.030] sure it can fail but it's got a better chance,
+- [42:53.340] I would say, Scott,
+- [42:54.600] it has got a chance of success than failure.
+- [42:57.920] And if it's successful, it is an unbelievable success.
+- [43:02.030] It can transform your country into greatness.
+- [43:06.330] He's got a great chance. We'd like to give it a chance.
+- [43:09.250] Anything can fail, but we'd like to give him a chance,
+- [43:12.150] and we think, because he's made so much progress.
+- [43:15.120] I mean, the work that he's done
+- [43:16.820] over the last four years is incredible,
+- [43:19.710] and it would be a shame to lose that progress.
+- [43:23.070] He's very close to having a big success.
+- [43:26.280] The Press: Mr. President,
+- [43:27.950] will you consider removing restrictions
+- [43:29.950] on the press that report at Pentagon,
+- [43:31.600] and have you spoken to Secretary Hegseth at the conference?
+- [43:33.670] The President: I have.
+- [43:34.940] Well, he's finding, I mean, I think I can speak for him.
+- [43:39.270] I'll let him speak for himself, but I think he finds the press
+- [43:41.710] to be very disruptive in terms of world peace
+- [43:44.710] and maybe security for our nation.
+- [43:47.040] The press is very dishonest.
+- [43:48.970] Not you, but the press is very dishonest.
+- [43:50.970] Do you have something to say, please?
+- [43:52.450] Secretary Hegseth: Well, I very much appreciate the question
+- [43:54.530] because it was interesting to watch.
+- [43:55.790] We had a chance to go along
+- [43:57.590] on the historic trip of Middle East peace,
+- [43:59.710] which our generation of veterans never dreamed would be possible.
+- [44:04.030] So you would think that the Pentagon press corps
+- [44:06.680] of all press corps
+- [44:07.890] would be front and center across the board
+- [44:10.720] on wanting to give credit to the president
+- [44:13.010] for forging this kind of peace.
+- [44:14.360] And instead, what they want to talk about
+- [44:17.120] is a policy about them.
+- [44:19.460] Which simply says maybe the policy
+- [44:21.420] should look like the White House or other military installations
+- [44:25.230] where you have to wear a badge
+- [44:27.030] that identifies that you're press
+- [44:28.600] or you can't just roam anywhere you want.
+- [44:30.840] It used to be, Mr. President, the press could go anywhere,
+- [44:32.910] pretty much anywhere in the pentagon,
+- [44:34.970] the most classified area in the world.
+- [44:38.290] Or also that if they sign onto the credentialing,
+- [44:41.280] they're not going to try to get soldiers to break the law
+- [44:43.690] by giving them classified information.
+- [44:45.100] So it's common-sense stuff, Mr. President.
+- [44:46.810] We're trying to make sure national security is respected,
+- [44:49.600] and we're proud of the policy.
+- [44:51.320] The President: You know, we have an option here to,
+- [44:53.700] as you know, the press, years ago,
+- [44:56.470] moved into the White House. It used to be across the street.
+- [44:59.290] We could move them. You're lucky I'm President,
+- [45:02.350] because we could move that very easily across the street.
+- [45:04.600] They used to there. They would have more room.
+- [45:07.730] We have a beautiful, nice space.
+- [45:09.280] You could sit all by yourselves and have fun.
+- [45:11.070] Instead, you walk around the White House
+- [45:12.990] talking to anybody that can breathe.
+- [45:15.190] And, you know.
+- [45:16.430] But I find that when it comes to war
+- [45:19.970] and now our great Department of War
+- [45:22.230] with some great people over there.
+- [45:23.630] I think it's sort of, it bothers me to have soldiers
+- [45:26.900] and even, you know, high-ranking generals
+- [45:30.280] walking around with you guys on their sleeve asking them,
+- [45:34.090] because they can make a mistake and a mistake can be tragic.
+- [45:36.760] They can do it innocently, too.
+- [45:38.330] They can, you now, and they're not press people.
+- [45:40.920] They don't really deal with the press,
+- [45:42.520] so they're really not necessarily good at it,
+- [45:45.230] although I think its mostly instinctual one way
+- [45:47.010] or the other.
+- [45:48.220] You're either good at things or you're not.
+- [45:50.340] But I could see you being bothered by that.
+- [45:52.560] So you have them in an area and you treat them fairly,
+- [45:56.590] but they're not allowed to go into somebody's office
+- [46:00.010] and sit with them for 10 hours.
+- [46:01.830] The Press: (inaudible)
+- [46:08.610] are you going to work with or try to work
+- [46:10.240] with the mayor in Boston? And then they have a World Cup.
+- [46:12.600] They have several World Cup games.
+- [46:14.040] I know Argentina has their World Cup
+- [46:15.790] (inaudible) several World Cup games,
+- [46:17.490] could these games move to cities that do work?
+- [46:19.170] The President: It could. We could take them away.
+- [46:21.200] I love the people of Boston.
+- [46:22.520] I know the games are sold out. But your mayor is not good.
+- [46:26.740] There are worse than her. At least she's intelligent.
+- [46:30.810] You know, some are extremely low IQ.
+- [46:33.840] Those bother me more.
+- [46:35.110] She's intelligent, but she's radical left.
+- [46:38.220] And they're taking over parts of Boston.
+- [46:40.090] That's a pretty big statement, right?
+- [46:41.920] We could get them back in about two seconds.
+- [46:44.370] All she has to do is call us. We'll go in and take them back.
+- [46:47.230] But she's afraid to because she thinks it's bad politically.
+- [46:49.510] She could take them back, too. The Boston police are great.
+- [46:52.320] I mean, I know them. They love me.
+- [46:54.390] She'll never tell them to go after Trump
+- [46:55.970] because they love me and I love them.
+- [46:57.630] And I got a tremendous police vote and military vote,
+- [47:01.710] you know, and firemen vote. All of them.
+- [47:04.050] No, I think she is hurting Boston.
+- [47:07.720] The answer is yes. If somebody is doing a bad job,
+- [47:10.820] and if I feel there's unsafe conditions,
+- [47:14.200] I would call Johnny, the head of FIFA,
+- [47:15.890] who's phenomenal, and I would say,
+- [47:17.730] let's move it to another location.
+- [47:19.460] And he would do that.
+- [47:20.770] He wouldn't love to do it, but he'd do it.
+- [47:23.830] Very easily, he'd it.
+- [47:25.300] And this is the right time to do it.
+- [47:27.330] If I thought Boston was doing something
+- [47:29.190] that was going to be cause safety conditions
+- [47:32.370] for the, you know, World Cup,
+- [47:36.010] I could say the same thing for the Olympics.
+- [47:38.090] Because, you, know, we have events
+- [47:39.440] that are in different locations for the Olympics.
+- [47:41.330] It's based in L.A.
+- [47:43.180] If I though L.A. was not going to prepared properly,
+- [47:46.270] I would move it to another location if I had to.
+- [47:50.330] On that one, I'd probably have to get a different
+- [47:52.580] kind of a permission, but we would do that.
+- [47:55.390] Gavin Newsom, he's got to get his act together,
+- [47:58.400] because had we not gone in at the beginning of my term,
+- [48:03.160] had we gone in with a very strong, powerful force,
+- [48:07.330] they would have lost L.A.
+- [48:09.210] Now, you already lost 25,000 houses to fires.
+- [48:13.170] You got a big scar right in the middle of the city,
+- [48:15.690] and that should have never happened
+- [48:17.170] because they should have had the water flowing in
+- [48:18.930] from the Pacific Northwest.
+- [48:20.740] All they had to do was open up the valves.
+- [48:22.380] He didn't want to do it.
+- [48:23.580] And he didn't want to do it for --
+- [48:24.900] he says for environmental reasons.
+- [48:26.450] I don't believe that. But, you know, for some reason,
+- [48:28.410] he didn't want to it and lost 25,000.
+- [48:30.670] You had no -- no water in the fire pumps.
+- [48:32.530] You had water in sprinkler systems in the ceilings.
+- [48:35.630] There were no houses.
+- [48:36.870] Normally, the things would go in the --
+- [48:39.040] you might not have lost --
+- [48:40.840] you might have not lost two houses.
+- [48:43.290] So, if he -- if he doesn't play ball,
+- [48:47.130] we're going to have to be very tough with him.
+- [48:48.620] He's done a bad job.
+- [48:50.680] You know, just to finish off on that.
+- [48:52.230] So when we went in, we did a phenomenal job.
+- [48:54.200] We went in with great force, and that was the end of it.
+- [48:56.240] We put it out. We extinguished that fire, which was agitation.
+- [49:00.860] And it was a very dangerous position to be in.
+- [49:04.760] And we went and did a great job.
+- [49:06.620] But the head, the chief, said we could have never done this
+- [49:11.260] without President Trump
+- [49:13.570] and without the federal government coming in.
+- [49:15.430] Okay, that was it. He said that. Now, two or three weeks later,
+- [49:18.610] he said, oh, we could have done it.
+- [49:20.080] But he knows he couldn't.
+- [49:21.700] The city was going to be taken over if I didn't go in.
+- [49:24.800] And you have to remember that Los Angeles
+- [49:26.660] was going to be taken over.
+- [49:28.640] And we have it where the chief said it,
+- [49:32.420] I believe numerous times,
+- [49:34.240] but that was as it was happening.
+- [49:36.180] That was a rough one. That was nasty.
+- [49:38.580] And if we saw a situation like that,
+- [49:40.390] yeah, we'd be forced to make a move.
+- [49:43.130] Boston better clean up their act.
+- [49:44.640] That's all I can say. Go ahead. One more question.
+- [49:51.270] The Press: Do you feel any urgency
+- [49:53.010] to end the shutdown in the next week,
+- [49:54.780] two weeks or would you be fine if this stretches into November
+- [49:57.980] and then toward the holidays with folks not getting paid?
+- [50:00.940] The President: Well, you know, shutdown --
+- [50:03.050] we've had many, many shutdowns.
+- [50:04.680] And this is a shutdown that shouldn't have happened.
+- [50:07.610] A group of people brilliantly decided
+- [50:09.550] to make it after the election. I said, thank you very much.
+- [50:12.280] In other words, give it to Trump instead of Biden.
+- [50:15.330] So it shouldn't happen.
+- [50:16.700] And likewise, debt ceiling shouldn't.
+- [50:18.640] But the big -- great, big, beautiful bill
+- [50:21.760] solved the debt ceiling problem for us.
+- [50:24.200] The Press: Is there a point where you reach out to
+- [50:25.550] (inaudible)?
+- [50:26.750] The President: No, no, here's what's happening
+- [50:28.020] on the shutdown, though.
+- [50:29.680] Honestly, can I put it in plain words for you?
+- [50:33.010] And you're a smart guy, so you all understand.
+- [50:34.620] But a lot of people don't.
+- [50:36.120] The Democrats are getting killed on the shutdown
+- [50:38.930] because we're closing up programs
+- [50:40.860] that are Democrat programs that we were opposed to.
+- [50:43.350] So we're being able --
+- [50:44.550] and they're never going to come back, in many cases.
+- [50:47.460] So we are being able to do things
+- [50:49.670] that we weren't able to before.
+- [50:54.130] So we closing up programs that are Democrat programs
+- [50:58.660] that we wanted to close up
+- [51:00.000] or that we never wanted to happen.
+- [51:02.530] And now we're closing them up.
+- [51:04.860] And we're not going to let them come back.
+- [51:07.420] The Democrats are getting killed,
+- [51:10.110] and we're going to have a list of them on Friday,
+- [51:12.840] closing up some of the most egregious,
+- [51:15.620] socialist, semi-communist -- probably not full communist,
+- [51:19.310] we're saving that for New York --
+- [51:20.790] but semi-Communist programs. And we are closing them.
+- [51:25.690] We're not closing up Republican programs,
+- [51:27.620] because we think they work.
+- [51:29.560] So the Democrats are getting killed,
+- [51:31.430] but they're not telling the people about that.
+- [51:33.420] I say it, nobody --
+- [51:34.620] well, I haven't said it probably as bluntly as I just said it.
+- [51:37.830] So we are closing up Democrat programs
+- [51:41.510] that we think that we disagree with,
+- [51:43.550] and they're never going to open again.
+- [51:46.660] Thank you very much. Thank you everybody.

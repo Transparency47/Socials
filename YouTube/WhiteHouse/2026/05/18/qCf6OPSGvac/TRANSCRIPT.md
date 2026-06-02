@@ -1,0 +1,748 @@
+<!-- source: https://www.youtube.com/watch?v=qCf6OPSGvac -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: qCf6OPSGvac -->
+<!-- date_published: 2026-05-18T21:53:28+00:00 -->
+<!-- date_accessed: 2026-06-02T02:33:41.997745+00:00 -->
+
+# Transcript: President Trump Participates in a Healthcare Affordability Event, May 18, 2026
+
+- [00:03.690] Announcer: Ladies and gentlemen,
+- [00:05.190] the President of the United States,
+- [00:07.390] Donald J. Trump.
+- [00:10.180] (applause)
+- [00:16.250] The President: Well, thank you very much.
+- [00:17.670] It's great to be here on this very beautiful day.
+- [00:20.660] A lot of very positive things happening.
+- [00:23.460] Less than four months ago, I stood before you to announce
+- [00:27.250] the launch of the trumprx.gov, a brand new website
+- [00:31.950] featuring the largest discounts on prescription drugs
+- [00:35.380] in the history of our country,
+- [00:37.130] the history frankly of any country.
+- [00:39.050] And for decades, Americans paid the highest drug prices
+- [00:42.550] anywhere in the world by far.
+- [00:44.900] But under the most favored nation agreements I negotiated,
+- [00:47.970] we now pay the lowest price paid for anybody in any country.
+- [00:52.750] We went from the highest to the lowest that I think,
+- [00:56.540] outside of maybe a cure itself,
+- [00:58.220] it's the biggest thing to happen to healthcare.
+- [01:01.130] And everything having to do with medical in any way, shape,
+- [01:05.580] or form, there's never been anything like this.
+- [01:07.270] We think of it.
+- [01:08.550] We went from the most expensive to the least expensive.
+- [01:13.310] So we've slashed the price of dozens
+- [01:15.220] of commonly used prescription drugs
+- [01:17.350] by differences of 400, 500, and even 600%.
+- [01:22.640] In my first term, I got it down one eighth of 1%.
+- [01:26.010] It's the first time in 28 years it went down one eighth of one.
+- [01:29.080] And now we're talking about four, five, and six,
+- [01:31.590] and even 700%, including for weight loss drugs,
+- [01:35.410] fertility treatments, insulin and much, much more.
+- [01:39.290] Since that launch in February,
+- [01:41.030] trumprx.gov has already been visited
+- [01:43.860] more than 10 million times
+- [01:45.350] and has saved American consumers over $400 million already.
+- [01:49.930] And it's truly the hottest thing in medicine.
+- [01:51.960] It's been amazing.
+- [01:53.160] I asked Dr. Oz, "How's it doing?"
+- [01:54.860] Bobby was there.
+- [01:56.060] He said, "Nobody's ever seen anything like this,
+- [01:59.030] so it's great.
+- [02:00.270] People are saving a lot of money."
+- [02:01.510] Over the next 10 years, the Council of Economic Advisers
+- [02:05.440] estimates that our most favored nation drug policies
+- [02:08.200] will save Americans over $500 billion.
+- [02:12.840] And this has been the greatest breakthrough
+- [02:14.630] in lowering healthcare costs in modern history,
+- [02:17.620] but we're just sort of getting started
+- [02:19.440] actually because we have a lot more to come.
+- [02:21.890] So today, I'm thrilled to announce
+- [02:23.410] that we're increasing the number of drugs available on TrumpRx
+- [02:27.060] by nearly seven times,
+- [02:29.130] adding over 600 affordable generics to the website
+- [02:33.250] working with industry partners.
+- [02:36.510] Cost-effective generic drugs are often available
+- [02:39.520] at just a tiny fraction
+- [02:41.440] of the price of their brand name equivalents.
+- [02:43.980] And in theory, they're the same thing.
+- [02:45.820] Sometimes, they're better, with the same dosage,
+- [02:48.600] the same effectiveness, and the same active ingredients,
+- [02:51.720] yet many consumers do not think to ask for them.
+- [02:55.430] They don't know about them.
+- [02:57.030] By incorporating this massive catalog of low cost generics
+- [03:00.260] at trumprx.gov,
+- [03:02.290] consumers will now have one source
+- [03:04.740] to ensure that they're getting the lowest possible
+- [03:07.350] cost on their prescription. So they have a real option now.
+- [03:11.820] Today, they have something that they've never had before.
+- [03:14.150] They've never had anything like this or even close.
+- [03:17.390] With these additions, TrumpRx will feature the best
+- [03:20.630] and lowest prices on prescriptions
+- [03:22.610] used by tens of millions of Americans already.
+- [03:26.420] And in some cases, the discounted generics
+- [03:28.680] available through TrumpRx
+- [03:30.870] may be offered at an even lower cash price
+- [03:33.180] than the out-of-pocket insurance cost,
+- [03:35.690] which has always been the lowest,
+- [03:37.760] but we're going to be lower.
+- [03:39.240] This means that the trumprx.gov should always be your first stop
+- [03:43.820] before you go to the pharmacy to pick up your prescription.
+- [03:47.060] And you'll certainly be checking on your pharmacy by doing this.
+- [03:50.320] And at a minimum,
+- [03:52.670] you'll know what you're supposed to be paying.
+- [03:54.940] I want to thank the leaders of several major pharmacies
+- [03:57.920] and generic drug makers
+- [03:59.230] who are partnering with us on this effort,
+- [04:01.990] including the co-founder of Cost Plus Drugs, Mark Cuban.
+- [04:06.630] Mark, thank you very much. Mark. Looking good, Mark.
+- [04:09.440] Come here, Mark. Nice to meet you.
+- [04:12.620] Mark Cuban: Thank you, sir. Appreciate it.
+- [04:13.950] The President: We have the same thing.
+- [04:15.180] One thing in common, we want to make people better
+- [04:17.460] and keep them wealthy, right?
+- [04:18.680] Mark Cuban: Yeah.
+- [04:19.890] The President: It's good. Good to be with you.
+- [04:21.400] Vice president of Amazon Pharmacy, Tanvi Patel.
+- [04:25.970] Thank you very much.
+- [04:27.700] And the President of Rx Marketplace at GoodRx,
+- [04:32.550] Aaron Crittenden.
+- [04:34.140] Aaron, thank you very much. Great job you're doing.
+- [04:37.660] With these companies as partners,
+- [04:39.730] we're also getting and adding new tools
+- [04:42.700] to take over websites which will connect patients
+- [04:46.350] with the lowest price pharmacy right in their own neighborhood,
+- [04:50.360] or alternatively give them the option
+- [04:52.510] of getting a discounted prescription
+- [04:54.880] shipped straight to their door.
+- [04:56.220] They can have it delivered right to their front door.
+- [04:59.940] This will provide American consumers with new options,
+- [05:02.830] more savings, and unprecedented price transparency,
+- [05:06.030] putting billions and billions of dollars
+- [05:08.270] back into the pockets of hardworking Americans.
+- [05:11.480] What a difference it's going to make at the end of a week.
+- [05:14.340] For generations, drug prices have only gone up.
+- [05:16.980] And under my administration, for the first time in history,
+- [05:20.330] drug prices are coming down and they are coming down
+- [05:23.060] very, very dramatically and substantially.
+- [05:26.090] Politicians from both parties promised for decades
+- [05:28.880] to make healthcare more affordable,
+- [05:30.490] but they all failed, every single one of them.
+- [05:33.690] And when they thought they had it,
+- [05:35.000] they couldn't get other countries to go along.
+- [05:36.990] I got all the other countries to come along.
+- [05:39.050] I said, "You don't come along, we're going to tariff you."
+- [05:41.810] And they all said, "We'd love to come along, sir."
+- [05:44.500] But I'm actually getting it done.
+- [05:45.950] And I don't care how I do it,
+- [05:47.190] I got to get it done for the people.
+- [05:48.700] I want to thank the incredible team
+- [05:50.890] behind this historic accomplishment,
+- [05:52.870] including Secretary of Health and Human Services,
+- [05:56.130] Robert F. Kennedy Jr., Bobby.
+- [05:58.880] Administrator for the Centers for Medicare
+- [06:01.260] and Medicaid Services, Dr. Mehmet Oz.
+- [06:04.120] What a team. What a team this is.
+- [06:06.740] And Chief Council of Health and Human Services, Chris Klomp.
+- [06:12.030] And I also especially have to thank the genius
+- [06:14.460] behind the world-class website that will soon be serving
+- [06:17.510] hundreds of millions of Americans,
+- [06:19.840] Airbnb co-founder and Chief Design Officer
+- [06:23.000] of the United States, Joe Gebbia,
+- [06:25.870] who's really amazing, and Ed Coristine,
+- [06:28.810] and the team at the National Design Studio,
+- [06:31.920] which is as good as you get.
+- [06:35.400] Under my America by Design executive order,
+- [06:38.020] Joe and his design team have been working
+- [06:40.690] to make your government more beautiful,
+- [06:42.680] more modern, convenient, and effective.
+- [06:45.440] In addition to the TrumpRx website,
+- [06:47.930] they've built the amazing experience
+- [06:50.280] behind trumpaccounts.gov and the new food pyramid,
+- [06:53.990] Freedom 250 and much more.
+- [06:55.720] They're doing a job for the country like I can say,
+- [06:58.460] design-wise, nobody has ever seen.
+- [07:01.080] So Joe, please show us
+- [07:02.500] how TrumpRx is bringing the modern face to healthcare
+- [07:06.830] and really helping us to save lots of money
+- [07:09.350] and lots of lives. Joe, please. Thank you.
+- [07:11.040] Joe Gebbia: Thank you, Mr. President.
+- [07:12.250] The President: Thank you very much.
+- [07:13.450] Joe Gebbia: Thank you. Thank you.
+- [07:14.740] In just months, TrumpRx has accomplished
+- [07:16.860] what Washington said couldn't be done.
+- [07:19.260] Those numbers you shared represent huge savings
+- [07:22.280] at real scale for real Americans.
+- [07:24.430] And none of this would be possible without your leadership
+- [07:27.350] and your belief that Americans deserve better health.
+- [07:30.530] So, today's great announcements of more drugs,
+- [07:33.650] more pharmacies, and home delivery
+- [07:36.150] are making healthcare simpler and smarter for Americans.
+- [07:39.440] Let's go live to the new TrumpRx experience.
+- [07:43.560] So that $400 million save for Americans,
+- [07:46.060] that means better living and less stress
+- [07:48.890] for millions of families.
+- [07:50.540] So let's browse some of those medications.
+- [07:52.950] Immediately, you'll see a new section called
+- [07:55.620] Presidential Deals.
+- [07:57.410] These are some of the most affordable brand name drugs
+- [08:00.000] in America, made possible thanks
+- [08:02.780] to our president's legendary deal making.
+- [08:05.400] So let's take a look at a few of these.
+- [08:07.390] This is Foundayo, the new GLP-1 pill, 77% off.
+- [08:11.620] This is the insulin medication, 72% off.
+- [08:14.490] This is Trulicity, 61% off.
+- [08:17.810] These are life- changing savings for millions of Americans.
+- [08:23.570] Now, search also got smarter too.
+- [08:26.170] You can now look up brand name drugs
+- [08:28.270] and see the generic version.
+- [08:30.170] Let's try a brand drug named Glucophage.
+- [08:33.050] It's for diabetes and it costs around $20.
+- [08:35.820] So search now shows the lower cost option, metformin.
+- [08:40.520] Metformin has the same active ingredients,
+- [08:42.120] but now watch this. The price, $8.42.
+- [08:47.120] So you found an affordable price.
+- [08:48.390] Now where do you get it?
+- [08:49.620] You can find your trusted pharmacy in one search.
+- [08:51.070] Joe Gebbia: You can find your trusted pharmacy in one search.
+- [08:54.180] Watch how easy this is. I'll use mine.
+- [08:56.460] Capsule Pharmacy, boom, there it is.
+- [09:00.000] Now, we also created another way to find the best price.
+- [09:04.020] Introducing Map Search.
+- [09:06.590] For the first time, you can see chain
+- [09:09.360] and local independent pharmacies on the same map.
+- [09:12.780] Here's my location.
+- [09:14.740] I see an option here at a pharmacy for $18
+- [09:17.250] and a block away $8.42.
+- [09:21.050] Now you can compare for the best medicine prices,
+- [09:24.480] as easy as it is to compare hotels
+- [09:26.690] or Airbnbs or baseball tickets.
+- [09:29.910] This is simple, transparent healthcare pricing.
+- [09:33.470] When I find what I'm looking for,
+- [09:35.030] I take this coupon, show it to the pharmacist,
+- [09:37.400] and I get the TrumpRx price.
+- [09:39.520] That simplicity is why TrumpRx has taken off nationwide.
+- [09:43.920] Okay, there's one more thing.
+- [09:45.600] Today, we added new partners for fast,
+- [09:47.930] home prescription delivery.
+- [09:49.820] I can actually get this medicine to my door in a day or so.
+- [09:53.220] So from search to savings to satisfaction,
+- [09:56.880] this is healthcare built for modern life.
+- [10:00.310] You compare prices on flights. Why not medicine?
+- [10:04.620] Don't just fill your prescription. TrumpRx it.
+- [10:07.860] Because the strongest nation on Earth, America,
+- [10:11.280] starts with the healthiest people on Earth.
+- [10:13.540] Mr. President, back to you.
+- [10:14.780] President The President: Thank you, Joe. Great job.
+- [10:16.450] Beautiful. Thank you. Well, thank you very much.
+- [10:21.920] Really amazing the job you've done and so quickly.
+- [10:24.570] Now I'd like to ask Secretary Kennedy
+- [10:27.020] to say a few words and Dr. Oz and Mark Cuban and Chris Klomp.
+- [10:32.570] We'll take a couple of questions maybe at the end.
+- [10:34.450] Thank you. Bobby, please.
+- [10:38.410] Secretary Kennedy: Thank you, Mr. President.
+- [10:39.640] The epidemic of chronic disease in this country
+- [10:43.420] is now existential.
+- [10:45.570] If you include my agency plus Social Security and the VA,
+- [10:50.990] Americans now spend 48¢ out of every dollar
+- [10:54.370] that we spend in federal taxes now go to healthcare.
+- [10:58.160] 90% of that is for chronic disease.
+- [11:01.260] Those costs are increasing at 2% at greater speed than the GDP.
+- [11:07.710] In addition to that, it poses an existential threat
+- [11:11.860] to our national security.
+- [11:14.640] 77% of American kids cannot qualify for military service.
+- [11:19.460] President Trump has pledged
+- [11:21.040] to end the chronic disease epidemic.
+- [11:23.220] But in the meantime, many people need medications
+- [11:27.110] to treat their chronic disease.
+- [11:30.730] President Trump has asked us to make our country
+- [11:33.850] the most affordable medication in the world,
+- [11:36.040] and he's succeeded in doing that.
+- [11:38.330] I wanted to say one last thing.
+- [11:42.210] President Bush promised to do this.
+- [11:45.100] President Clinton promised to do it.
+- [11:46.890] President Biden promised to do it.
+- [11:49.300] President Obama promised to do it.
+- [11:51.440] President Trump actually got it done.
+- [11:54.890] It's an extraordinary accomplishment,
+- [11:57.940] it's an extraordinary legacy for him,
+- [12:01.590] and it's a gift to the American people.
+- [12:04.890] I want to thank you again for your vision
+- [12:06.860] and for your determination.
+- [12:12.080] President The President: Thank you.
+- [12:13.800] Administrator Oz: This is yet another example
+- [12:15.510] of this administration and the president's leadership
+- [12:17.580] making life more affordable.
+- [12:19.800] It's in a particularly important arena
+- [12:21.700] because almost one in three Americans,
+- [12:24.260] when they go to a drug store,
+- [12:25.550] cannot afford to pick up the medications
+- [12:28.130] that their doctor prescribed for them.
+- [12:30.680] Part of the reason for that,
+- [12:32.040] which the president recognized early on and pushed hard
+- [12:34.350] until it got done because it was a force of his personality
+- [12:36.980] that allowed us to go to all the major pharmaceutical companies
+- [12:39.940] representing the vast majority
+- [12:41.250] of the marketplace of branded drugs in America,
+- [12:44.150] but what he realized was we're paying three times more
+- [12:46.430] for the exact same drugs
+- [12:47.740] made in the same facilities often in this country
+- [12:50.580] than people overseas are paying for those exact same drugs.
+- [12:53.630] Whether it's weight loss drugs, fertility drugs,
+- [12:55.310] you name it, we're overpaying for it.
+- [12:56.760] President wanted that stopped.
+- [12:58.050] He wanted it stopped now, and so he did it.
+- [13:00.270] The Most-Favored-Nation drug pricing approach works
+- [13:04.010] using a variety of techniques that he outlined,
+- [13:05.730] but we needed to make sure you have an ability
+- [13:07.500] to access these drugs. TrumpRx.gov is a phenomenon.
+- [13:12.110] Over 10 million people have visited the site.
+- [13:14.480] It is the fastest site of its kind I've ever seen.
+- [13:16.800] As a physician who's used to looking at medications
+- [13:18.710] and having no idea what the patient will pay,
+- [13:20.710] it's as transparent as you just saw built
+- [13:23.010] by the fantastic team with Joe Gebbia.
+- [13:26.900] They started with dozens of medications, Mr. President,
+- [13:29.230] which is the number of medications
+- [13:30.460] that have been negotiated by Chris Klomp and the team at HHS.
+- [13:34.240] Today, 601 more medications were added, 601 more.
+- [13:38.240] As the president said,
+- [13:39.520] seven times more drugs are now in this,
+- [13:41.530] which means something really important.
+- [13:43.090] You should not buy a drug in America
+- [13:46.160] without first checking the best transparency site
+- [13:48.690] ever created for medications
+- [13:50.440] to make sure you're not being taken advantage of.
+- [13:52.480] You wouldn't go grocery shopping without knowing prices,
+- [13:54.460] you wouldn't buy a car without knowing prices,
+- [13:56.080] lease an apartment or anything else.
+- [13:57.660] You shouldn't do it with the medications
+- [13:58.960] that could save your life.
+- [14:00.250] We believe that more than half
+- [14:01.580] of all the prescription interactions in America
+- [14:04.380] are now going to be revealed on TrumpRx.
+- [14:06.820] If you wish to use the site in any capacity,
+- [14:09.210] this is a time to start. It's a technological feat.
+- [14:12.560] It's created transparency with no middlemen,
+- [14:14.770] just what the president promised.
+- [14:16.430] For that reason, we ask you today to go look at the site,
+- [14:18.840] TrumpRx. gov.
+- [14:20.510] Ask us to put you on our mailing list
+- [14:23.390] so when the team at the National Design Studio
+- [14:25.250] wants to contact you about new medications
+- [14:27.180] that are being offered, new ways for you to save money,
+- [14:29.560] new ways for you to make health more affordable
+- [14:32.090] so your zip code doesn't determine your health,
+- [14:33.960] you'll have TrumpRx.gov to go to.
+- [14:36.360] Mark Cuban has been an outspoken advocate
+- [14:38.090] for more transparency in medications.
+- [14:39.830] He built a business around it,
+- [14:41.360] and he's one of the companies that's joining us now
+- [14:43.370] to put their products on TrumpRx.gov.
+- [14:45.810] Mark.
+- [14:50.320] Mark Cuban: Thank you for having me, Mr. President.
+- [14:52.120] I think other than you,
+- [14:53.330] I've been the biggest proponent of trumprx.com.
+- [14:57.070] The reason for that is Republicans want cheaper drugs,
+- [15:00.340] independents want cheaper drugs,
+- [15:02.280] Democrats want cheaper drugs, and together,
+- [15:05.050] I think we're going to do something special.
+- [15:07.020] What makes Cost Plus Drugs different is that when you click
+- [15:09.810] through TrumpRx to our site,
+- [15:11.780] not only will you see a great price,
+- [15:13.480] but you'll see our actual cost and that we only mark it up 15%.
+- [15:17.510] What makes this incredible, Mr. President, all the volume
+- [15:20.580] and all the people that are going to come from the site
+- [15:23.180] as our volumes go up, our costs go down,
+- [15:26.070] which means we'll be ending up
+- [15:27.450] charging less to people over a period of time.
+- [15:30.420] So this is a special announcement.
+- [15:32.160] This is a special partnership. 559 of those drugs are ours,
+- [15:36.440] so we're really excited to be part of this.
+- [15:38.350] Thank you so much for having me.
+- [15:39.570] I'll turn it over to Chris Klomp.
+- [15:40.780] President The President: Thank you.
+- [15:42.070] Mark Cuban: Thank you.
+- [15:45.680] Chris Klomp: You've just heard about the addition
+- [15:47.290] of generic medications on TrumpRx, which is fantastic.
+- [15:50.140] TrumpRx is now the true single source of truth
+- [15:53.490] for the lowest prices for American families
+- [15:55.400] on their prescription medications.
+- [15:56.940] But what matters even more is what comes next.
+- [16:00.200] We are on an irreversible trajectory.
+- [16:02.590] An American family right now taking a GLP-1
+- [16:04.960] will save this year, right now, about $1,800
+- [16:07.850] less than they would have four months ago
+- [16:10.120] before the advent of TrumpRx.gov.
+- [16:13.160] An American family trying to conceive
+- [16:16.020] and needing fertility medications
+- [16:17.520] will save nearly $6,000 per live birth,
+- [16:21.920] right now, thanks to TrumpRx.gov.
+- [16:24.600] That's nearly $5 billion going to the pockets
+- [16:28.500] of hopeful parents over the next decade.
+- [16:31.080] How do we achieve this?
+- [16:32.490] By proving that in America you can do well by doing good.
+- [16:37.640] TrumpRx has created a revolutionary vehicle
+- [16:39.760] for a true public-private partnership.
+- [16:43.300] Private innovators are stepping up to the plate.
+- [16:46.040] They're doing it not just
+- [16:47.240] because it's the right business decision,
+- [16:49.370] but it's the right moral decision.
+- [16:51.790] To accelerate this process,
+- [16:53.120] we will continue focusing on three things,
+- [16:55.500] the same three things we talked about you
+- [16:56.980] in our last conversation on Most-Favored-Nation
+- [16:59.290] pricing led by the president.
+- [17:00.900] First, we continue to bring additional
+- [17:03.120] industry partners on board.
+- [17:04.870] Last time we had a conversation with you about MFN,
+- [17:07.020] we put out a call to small
+- [17:08.980] and mid-size biotechnology manufacturers
+- [17:11.020] and pharmaceutical companies to come sit with us
+- [17:13.950] to make their product portfolios available at MFN prices.
+- [17:17.450] We said that we would be fair and we would be reasonable,
+- [17:19.740] and the industry has answered that call.
+- [17:21.960] We've been inundated with demand for discussions
+- [17:24.540] to ensure that every American family
+- [17:26.370] can continue to access MFN prices,
+- [17:28.720] not just for the companies that have been negotiated,
+- [17:30.640] but for the many that are yet to come.
+- [17:32.470] Number two, as the president mentioned,
+- [17:34.340] we are continuing to negotiate international trade agreements.
+- [17:37.180] Those are well underway,
+- [17:38.500] working lockstep with our partners at Trade
+- [17:40.360] and at Commerce. Number three, legislation.
+- [17:42.650] We are continuing discussions on the Hill with Congress
+- [17:45.550] to ensure that the president's great healthcare plan lasts
+- [17:47.690] for decades to come, guaranteeing
+- [17:48.950] greater affordability, greater accountability,
+- [17:50.240] greater to come guaranteeing greater affordability,
+- [17:52.130] greater accountability, greater transparency
+- [17:54.060] for every American family. It turns out, as Mark said,
+- [17:57.480] there is appetite on both sides of the aisle
+- [17:59.830] to make progress on this important point.
+- [18:02.810] When a parent goes to the pharmacy,
+- [18:05.350] they're not thinking about political ideology,
+- [18:07.560] they're thinking about what's best for their family.
+- [18:09.250] And today, leaders across the spectrum,
+- [18:12.030] irrespective of their party, are standing together
+- [18:14.790] because Americans demand affordable healthcare.
+- [18:17.560] And it's an American imperative.
+- [18:19.500] This president has set us on a course
+- [18:21.880] to permanently benefit from lower drug prices as a country.
+- [18:26.160] The foundation is built, the market is engaged,
+- [18:28.340] the future is affordable.
+- [18:29.790] And I yield the podium back to the man
+- [18:31.160] who made all this possible. Thank you, Mr. President.
+- [18:33.920] The President: Thank you very much.
+- [18:37.560] Would you like to say something?
+- [18:39.050] You're over there, you look so beautiful and nice.
+- [18:41.730] You two, come on over here,
+- [18:43.070] just say a couple of words about --
+- [18:45.320] Unidentified: Thank you.
+- [18:46.620] Thank you, Mr. President, for having Amazon here today.
+- [18:49.030] It's really great to work with the administration
+- [18:51.140] and the NDS on building TrumpRx at Amazon Pharmacy.
+- [18:54.700] It's been our mission to build a pharmacy
+- [18:56.290] with price transparency from day one.
+- [18:58.850] And it's been our mission to make sure that Americans
+- [19:00.720] who need their medications know
+- [19:01.950] how much they're going to pay out of pocket
+- [19:03.690] for brand or generic medications.
+- [19:05.350] It's what we're built around,
+- [19:06.560] whether you're paying cash or insurance.
+- [19:08.150] And we look forward to continuing to innovate on this.
+- [19:09.850] Thank you.
+- [19:11.100] The President: Thank you very much.
+- [19:12.340] Thank you. Good luck with it.
+- [19:14.780] Unidentified: I'm going to move this up just slightly.
+- [19:18.010] Thank you for having us on behalf of GoodRx.
+- [19:19.850] Look, we have a shared mission, as everyone up here,
+- [19:22.450] to deliver healthcare that's affordable to every American.
+- [19:24.670] We couldn't be prouder by what you're doing
+- [19:26.370] and be part of it. So thank you so much.
+- [19:27.720] The President: Thank you very much. Great job.
+- [19:28.950] Unidentified: : Thank you.
+- [19:30.730] The President: Well, thank you very much.
+- [19:31.950] Any questions of these brilliant people?
+- [19:37.000] Yeah, please go ahead. Go ahead. Yes. The white. Yes.
+- [19:40.940] The Press: Mr. President, what can you tell us
+- [19:42.370] about the shooting at the mosque in San Diego, sir?
+- [19:44.960] The President: They're giving a briefing on it
+- [19:46.220] in a little while, at the mosque,
+- [19:48.200] they're giving a briefing. And it's a terrible situation.
+- [19:51.560] I've been given some early updates.
+- [19:53.880] But we're going to be going back and looking at it very strongly.
+- [19:56.710] Yeah, please.
+- [19:57.920] The Press: (inaudible)
+- [20:03.690] The President: Excuse me.
+- [20:05.090] The Press: Can you speak a little bit about your posts
+- [20:07.230] on Truth Social on Iran
+- [20:09.190] and what was the decision why you didn't attack Iran?
+- [20:13.090] The President: Well, other countries have come to me
+- [20:14.750] and they've said, we were getting ready
+- [20:16.350] to do a very major attack tomorrow,
+- [20:18.370] I've put it off for a little while,
+- [20:19.890] hopefully maybe forever, but possibly for a little while,
+- [20:23.650] because we've had very big discussions with Iran.
+- [20:27.430] And we'll see what they amount to.
+- [20:29.390] I was asked by Saudi Arabia, Qatar, UAE,
+- [20:33.200] and some others if we could put it off
+- [20:34.850] for two or three days, a short period of time.
+- [20:37.640] Because they think that they are getting very close
+- [20:40.050] to making a deal.
+- [20:41.270] And if we can do that where there's no nuclear weapon
+- [20:44.260] going into the hands of Iran,
+- [20:46.340] I think, and if they're satisfied,
+- [20:48.910] we will be probably satisfied also.
+- [20:52.090] We've informed Israel, we've informed other people
+- [20:55.700] in the Middle East that have been involved with us.
+- [20:57.990] And it's a very positive development,
+- [21:00.900] but we'll see whether or not it amounts to anything.
+- [21:02.760] We've had periods of time where we had ...
+- [21:05.370] we thought pretty much getting close to making a deal.
+- [21:07.950] And didn't work out.
+- [21:09.710] But this is a little bit different.
+- [21:10.980] Now, we were ready to go in tomorrow very big,
+- [21:13.530] and not something I wanted to do,
+- [21:15.520] but we have no choice because we cannot
+- [21:18.000] let Iran have a nuclear weapon. Please.
+- [21:22.500] The Press: Mr. President, the Justice Department
+- [21:24.760] has this new fund that was announced today,
+- [21:27.170] $1.7 billion, why should taxpayers pay for the January
+- [21:32.720] (inaudible)
+- [21:33.920] The President: Well, it's been very well received,
+- [21:35.710] I have to tell you. I know very little about it,
+- [21:37.640] I wasn't involved in the whole creation of it
+- [21:41.640] and the negotiation. But this is reimbursing people
+- [21:45.320] that were horribly treated, horribly treated.
+- [21:47.560] It's anti-weaponization. They've been weaponized.
+- [21:50.750] They've been in some cases imprisoned wrongly.
+- [21:53.760] They paid legal fees that they didn't have.
+- [21:55.560] They've gone bankrupt. Their lives have been destroyed.
+- [21:58.550] And they turned out to be right.
+- [22:00.170] I mean, it was a terrible period of time
+- [22:02.460] in the history of our country.
+- [22:04.320] And they worked on it. I know the Justice Department,
+- [22:06.720] it's really been working on it very hard.
+- [22:09.560] There's been numerous other occasions over the years
+- [22:11.860] where things like this have been done.
+- [22:13.230] But these were people that were weaponized
+- [22:15.810] and really treated brutally by a system
+- [22:18.850] that was so corrupt with corrupt people running it.
+- [22:21.970] And they're getting reimbursed for their legal fees
+- [22:23.990] and the other things that they had to suffer.
+- [22:27.000] Yeah, please. Daniel, go ahead. Hold it, hold it, Daniel please.
+- [22:32.350] The Press: Thank you, Mr. President.
+- [22:33.600] It's pretty remarkable seeing you and Mark Cuban up there,
+- [22:36.680] and the fact that obviously Mark
+- [22:38.570] endorsed Kamala Harris back in 2024.
+- [22:40.420] The President: Well, he made a mistake. It was a big mistake.
+- [22:43.400] The Press: But what does this say
+- [22:44.620] about what you two are building here?
+- [22:46.020] (inaudible)
+- [22:47.220] The President: Well, it says we love people,
+- [22:48.660] we love our country. He's got a good company
+- [22:51.690] and he's going to do a lot of business with us.
+- [22:53.670] And I'm going to get drugs out through Amazon,
+- [22:56.740] through the whole group and we're going to get drugs out.
+- [22:59.590] And Mark wanted to be a part of it.
+- [23:02.470] And I think Mark was very gracious,
+- [23:04.110] he said, "This is something that really works."
+- [23:05.900] The first time you've seen it.
+- [23:07.460] And he had to believe that if he said it about me,
+- [23:10.520] you have to understand that.
+- [23:11.950] But look, I think I have a lot of respect for Mark frankly,
+- [23:15.100] and I always have.
+- [23:17.050] Yeah. Go ahead. Ebola, Ebola, you said Ebola. Go ahead.
+- [23:23.660] The Press: Yeah.
+- [23:24.870] Should Americans be concerned about Ebola?
+- [23:27.250] The President: I'm concerned about everything,
+- [23:29.000] but certainly am.
+- [23:30.200] I think that it's been confined right now to Africa.
+- [23:35.020] But it's something that has had a breakout.
+- [23:37.970] I could ask Bobby or Oz to say a couple of words
+- [23:40.280] about it if you'd like. Do you want to do that?
+- [23:45.610] Unidentified: I think Heidi Overton
+- [23:47.170] is going to come up and give us a few words.
+- [23:48.930] Dr. Overton.
+- [23:50.360] Heidi Overton: Thank you. Thank you, Mr. President.
+- [23:53.010] The President: Thank you.
+- [23:54.210] Heidi Overton: Today the CDC held a press briefing
+- [23:56.190] that provided a lot of the answers and information.
+- [23:58.320] But we have stood up a full inter agency response.
+- [24:02.020] The Department of State, the CDC, the Department of War,
+- [24:04.710] everyone is fully involved in tracking.
+- [24:08.370] Today we do have, and announced today at the press briefing,
+- [24:10.890] there is an American that is symptomatic
+- [24:13.940] and has tested positive for ...
+- [24:16.100] it's the Bundibugyo virus, a strain of Ebola.
+- [24:20.020] That American, as well as six other high risk contacts,
+- [24:23.350] are going to be taken out of that region
+- [24:26.590] and taken to Germany.
+- [24:27.820] We want to thank our German counterparts.
+- [24:30.430] That is an internationally recognized location
+- [24:33.840] for viral hemorrhagic fever treatments.
+- [24:36.210] So we're very grateful that they would take them.
+- [24:37.840] It's a significantly shorter flight time for Americans
+- [24:40.510] to receive treatment there in Germany.
+- [24:43.450] For all other Americans, we have issued travel warnings.
+- [24:48.160] We have instituted just today entry restrictions
+- [24:51.580] for non-US citizens
+- [24:53.200] that have been in the region in the past 21 days,
+- [24:57.520] so in Uganda,
+- [24:58.990] Democratic Republic of Congo and South Sudan.
+- [25:01.950] So very serious measures that have been taken.
+- [25:04.810] We are working to communicate very frequently with everyone.
+- [25:08.800] Your question was, should Americans be worried?
+- [25:11.110] Right now, there are no cases of Ebola in America.
+- [25:13.990] We want to keep it that way.
+- [25:15.640] And we are doing everything we can to support Americans
+- [25:17.850] in the region. Thank you, Mr. President.
+- [25:24.810] The President: Go ahead on Iran. What?
+- [25:26.160] The Press: Yes, a follow-up on Iran.
+- [25:27.640] Other countries have done this before,
+- [25:29.460] they have asked you to change course in order to dangle ...
+- [25:33.660] they dangled a peace deal in front of you
+- [25:35.510] saying one was coming. Nothing has come into fruition.
+- [25:38.770] You mentioned this time it's different (inaudible)
+- [25:40.310] The President: Well, lots come into fruition.
+- [25:41.570] We've taken a country that was going to have a nuclear weapon
+- [25:44.830] and we've virtually destroyed its military.
+- [25:48.070] They have no navy, they have no air force.
+- [25:50.450] They've been virtually destroyed militarily.
+- [25:52.830] That's a lot. That's a big ...
+- [25:54.270] We could leave right now,
+- [25:55.510] it would take them 25 years to rebuild.
+- [25:57.330] And the last thing they're thinking about
+- [25:58.990] I think is nuclear.
+- [26:00.590] Now they have to put it down in writing.
+- [26:02.640] But when you say nothing, we've totally destroyed --
+- [26:06.060] Excuse me, from CNN.
+- [26:08.180] We've totally destroyed their military.
+- [26:11.130] We've destroyed their leadership.
+- [26:13.360] As you know, their leaders are gone.
+- [26:15.380] Their leaders are gone at the first level, the second level.
+- [26:17.800] We're dealing with half of the third level.
+- [26:20.690] And I think we've made a lot of progress.
+- [26:22.880] And it's very simple. We don't want to go through this.
+- [26:25.470] We had the greatest economy ever. We still do.
+- [26:27.670] The stock market had a brand new high a little while ago.
+- [26:31.130] I never thought that was going to happen.
+- [26:32.690] We had to make the excursion.
+- [26:34.120] We had 50,000 on the Dow, we had 7,000 on the S&P.
+- [26:38.290] And everyone said that couldn't be done within my four years,
+- [26:40.650] it would be too big.
+- [26:41.900] Well, we did it in my first year.
+- [26:43.630] And then I called Scott and Howard,
+- [26:45.100] I called them all into my office.
+- [26:46.400] I say, "We're going to take
+- [26:47.640] a little excursion down to the Middle East
+- [26:48.860] and we're going to confront Iran because ..."
+- [26:50.100] The President: Down to the Middle East
+- [26:51.360] and we're going to confront Iran
+- [26:53.010] because they are desperate to have a nuclear weapon.
+- [26:55.770] And the only reason they wanted is to use it.
+- [26:58.210] And I said, "I hate to do this because we're doing so well,
+- [27:01.210] but this is the most important thing we can do.
+- [27:04.140] We can't let Iran have a nuclear weapon."
+- [27:05.970] So we did that.
+- [27:07.400] And when we did that, we were met with a little force
+- [27:10.570] and we ended up destroying them. We now have a tremendous ...
+- [27:14.760] We built really a steel wall where no boats are blockade,
+- [27:18.660] where no boats are able to ...
+- [27:20.560] Not one boat has been able to get through our blockade.
+- [27:23.000] Look, our military is the greatest military
+- [27:26.010] anywhere in the world. I just left China and I will say
+- [27:29.100] President Xi was very, very complimentary of our military.
+- [27:32.120] He was amazed actually at our military.
+- [27:34.860] We have the greatest military in the world.
+- [27:36.660] We're not going to let Iran have a nuclear weapon.
+- [27:38.670] So I was called by these three countries plus others
+- [27:43.090] and they're dealing directly with our people
+- [27:45.490] and right now Iran.
+- [27:47.290] And there seems to be a very good chance
+- [27:48.890] that they can work something out.
+- [27:50.440] If we can do that without bombing the hell out of them,
+- [27:52.770] I'd be very happy, please --
+- [27:55.540] The Press: I have a question on weaponization.
+- [27:58.200] Do you believe that people who committed violence
+- [28:00.300] against Capitol Hill police officers on January 6th
+- [28:03.030] should be eligible for compensation from this DOJ fund?
+- [28:06.530] And are you or your family members
+- [28:08.390] going to be seeking compensation from that fund?
+- [28:10.660] The President: It'll all be dependent on a committee.
+- [28:12.350] A committee's being set up of very talented people,
+- [28:15.640] very highly respected people.
+- [28:16.960] I think it's a committee of five.
+- [28:18.200] And again, I didn't do this deal.
+- [28:20.210] It was told to me yesterday.
+- [28:23.180] They said they're doing something.
+- [28:24.620] I do believe there has to be compensation
+- [28:26.620] for people that were destroyed.
+- [28:27.920] You have families absolutely destroyed
+- [28:30.370] and it's all going to be determined
+- [28:31.740] by a committee of four or five people
+- [28:33.560] that are respected and very brilliant at what they do.
+- [28:38.180] Go ahead please. No, no, one at a time, please.
+- [28:42.120] In the blue, yeah. In the blue. Yes, go ahead, please.
+- [28:45.260] The Press: Thank you.
+- [28:46.550] Thank you, Mr. President. On election integrity --
+- [28:48.790] so a lot of Republicans, including you are speaking out
+- [28:51.440] against a massive ballot era in Maryland-
+- [28:54.960] The President: Yeah, terrible.
+- [28:56.400] The Press: How concerned are you about election integrity
+- [28:58.810] as Americans are heading into the midterms?
+- [29:00.520] The President: I'm very concerned about it.
+- [29:01.990] I'm very concerned about mail-in ballots.
+- [29:04.220] We're the only country in the world
+- [29:05.480] that's doing mail-in ballots and mail-in ballot
+- [29:08.330] is by just the nature of it, it's going to be corrupt.
+- [29:10.530] So many people handle it.
+- [29:11.760] You go into a well-run voting booth in a certain state,
+- [29:15.230] we'll pick a state, but you go into ...
+- [29:17.160] And I mean, they look ...
+- [29:18.430] Even me, I went in Florida and went to vote and they said,
+- [29:21.820] "Sir, I hate to do it. I'm so embarrassed.
+- [29:24.170] Could I see your identification?"
+- [29:25.670] I said, "Really? Do you really want to do that?"
+- [29:28.340] "Please, sir. I'll lose my job if I don't do it "
+- [29:31.810] I was very proud to hand her identification
+- [29:34.330] and everything else.
+- [29:35.640] I mean, you want to have proof of citizenship,
+- [29:38.040] you want to have a voter ID,
+- [29:39.940] you want to have all these things.
+- [29:41.400] But to me, maybe the worst of all is the mail-in ballots
+- [29:44.380] where they come in. As you know, in Maryland,
+- [29:47.790] 500,000 fake ballots were sent out.
+- [29:53.090] When they were caught, they said,
+- [29:55.530] "Oh, we'll pull them back."
+- [29:57.500] And they issued 500,000 new ballots.
+- [30:00.580] And as you know, they never got the original ballots back.
+- [30:03.140] So there are a million ballots out there.
+- [30:05.200] Many of them went to Democrats and it's a very serious thing.
+- [30:08.350] And I'll tell you, I've looked at Maryland for a long time
+- [30:11.200] and I know Maryland pretty well
+- [30:13.060] and I was told that it's automatically a Democrat state
+- [30:16.320] and I don't believe that because I think I did really well there
+- [30:19.380] and I don't believe it.
+- [30:20.600] But they issued, as you just got caught recently,
+- [30:23.620] 500,000 ballots, illegal ballots were sent out
+- [30:26.770] and they were totally fraudulent.
+- [30:28.740] And then they said, "Oh, we'll pull them back."
+- [30:30.280] Well, they didn't pull them back
+- [30:31.750] and they have 500,000 new ballots going.
+- [30:34.250] So what happens to the original? Are they going to come in
+- [30:36.660] and are they going to come in and infect our system?
+- [30:39.840] So, it's a very, very serious thing that's happened.
+- [30:43.180] And I've asked the law enforcement
+- [30:45.650] to look at it very, very strenuously.
+- [30:48.080] I want to thank you all.
+- [30:49.610] We're so proud of it and I want to thank Bobby and Oz and Mark
+- [30:53.170] and all of the people that are here.
+- [30:54.690] And Joe, great job. You are really something.
+- [30:57.280] I heard about you for a long time
+- [30:59.430] and now you're doing something that's more important
+- [31:01.700] than anything you've ever done and you've done some beauties.
+- [31:04.450] Thank you very much, Joe. Thank you very much, everybody.
+- [31:06.770] Appreciate it. Thank you. Thank you.
+- [31:10.100] (applause)

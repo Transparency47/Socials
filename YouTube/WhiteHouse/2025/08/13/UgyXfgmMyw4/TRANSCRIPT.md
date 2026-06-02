@@ -1,0 +1,205 @@
+<!-- source: https://www.youtube.com/watch?v=UgyXfgmMyw4 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: UgyXfgmMyw4 -->
+<!-- date_published: 2025-08-13T15:27:47+00:00 -->
+<!-- date_accessed: 2026-06-02T02:45:55.387973+00:00 -->
+
+# Transcript: Vice President JD Vance Visits with U.S. Troops Stationed in the United Kingdom
+
+- [00:00.640] Thank you all. Thank you.
+- [00:03.439] >> Please, Airmen at ease. It's good to be
+- [00:05.520] here with you. Please have a seat. I see
+- [00:07.520] we have some uh some beautiful families
+- [00:09.679] out there. You know, I served a few
+- [00:11.040] years in the Marine Corps, and I got to
+- [00:12.880] say, I'm pretty jealous. This is a
+- [00:15.280] pretty fine duty station, if I do say so
+- [00:18.000] myself. This is a beautiful country. I
+- [00:20.000] just spent the past few days here,
+- [00:21.439] actually. uh some meetings, some uh some
+- [00:24.080] downtime with the family, and we've had
+- [00:25.760] a very, very good time here in England.
+- [00:28.560] The United Kingdom, of course, is one of
+- [00:30.240] our great allies. So, I think I speak
+- [00:32.079] for all the Pathfinders here. Is that
+- [00:34.000] right when I say
+- [00:36.719] when I and all the Red Dragon folks as
+- [00:38.879] well,
+- [00:41.520] when I say that we are proud of the
+- [00:43.680] special relationship and we are proud to
+- [00:46.079] work together with our British friends
+- [00:47.680] right here at Fairfford Base. God bless
+- [00:49.920] you all.
+- [00:51.600] So here's the simple thing. We've got a
+- [00:54.480] beautiful country here. We've got a
+- [00:56.559] beautiful alliance. And I think every
+- [00:59.120] single one of you know that for over a
+- [01:00.800] hundred years, we have worked with our
+- [01:03.280] friends from the United Kingdom to
+- [01:05.280] achieve great victories. And if you look
+- [01:07.360] at the long sweep of history, every time
+- [01:10.640] something big happens for the world,
+- [01:12.799] every time a great victory is won for
+- [01:16.159] freedom and for peace and for
+- [01:18.159] prosperity, it is almost always the
+- [01:21.200] Brits and the Americans to do that do it
+- [01:23.600] together. And we win every single time
+- [01:26.240] we go to war together. You guys know
+- [01:28.000] that as well as anybody. But it's not
+- [01:30.159] just about going to war. And it's not
+- [01:31.840] just winning when we do. when we work
+- [01:34.079] together, when we fight together, when
+- [01:36.240] we make it clear that we always approach
+- [01:39.439] every situation with an open hand, but
+- [01:42.560] if things go poorly, we're willing to do
+- [01:45.200] what we have to do. We make it easier to
+- [01:46.960] achieve peace and prosperity all over
+- [01:49.280] the world. So, I want to say from all of
+- [01:51.759] us back home in the United States, for
+- [01:54.240] all the people that you serve with, that
+- [01:56.320] you fight for, that you make it possible
+- [01:58.479] to live the American dream and peace and
+- [02:00.880] prosperity, we are proud of you. We are
+- [02:03.439] grateful for you and as your vice
+- [02:05.119] president, I am damn proud to be here
+- [02:07.119] with you today. God bless every single
+- [02:08.800] one of you.
+- [02:20.480] >> Now, it would be impossible for me to
+- [02:22.560] list every single thing that has
+- [02:25.120] happened just from this single base over
+- [02:27.360] the past hundred years. from World War I
+- [02:29.680] to our operations against terrorists in
+- [02:32.239] Yemen. The the the the history of this
+- [02:35.040] base, of its mission, of all of the
+- [02:37.680] things that we've done with our friends
+- [02:38.959] from the United Kingdom, it is a very
+- [02:40.800] very proud tradition. So, I won't try to
+- [02:43.200] list everything that we've done, but you
+- [02:45.040] guys know the mission, you guys know the
+- [02:47.040] story, and you guys know the history. We
+- [02:49.599] have done so much with our English
+- [02:51.760] friends, with our friends from the UK.
+- [02:53.840] And uh you know I I I started the day or
+- [02:57.200] excuse me I started the week at a place
+- [02:59.200] called Chievening with the foreign
+- [03:00.800] secretary of the United Kingdom uh
+- [03:02.959] further south in the country in a county
+- [03:04.879] called Kent. And what we did is we
+- [03:07.599] worked on our one of our most important
+- [03:09.840] shared security goals in Europe which is
+- [03:12.159] the end of the war between Russia and
+- [03:15.360] Ukraine. The president of the United
+- [03:17.040] States came in six months ago and I just
+- [03:19.280] talked to him right before I came on the
+- [03:21.040] stage and he said very simply that we
+- [03:23.200] are going to make it our mission as an
+- [03:25.120] administration to bring peace to Europe
+- [03:27.280] once again. But as you all know, it is
+- [03:29.680] impossible to bring peace anywhere
+- [03:32.239] unless the bad guys are also worried
+- [03:34.159] that we've got a hell of a fine air
+- [03:36.159] force and a hell of a fine military to
+- [03:38.319] back up the peace to begin with. So what
+- [03:40.879] you guys do, even though you may not see
+- [03:42.879] it every single day, is you make it
+- [03:44.879] possible. You make it possible for us to
+- [03:47.760] accomplish the president's goals through
+- [03:49.519] negotiation. You make it possible for us
+- [03:51.840] to go into a room and say, "Yes, we want
+- [03:55.120] peace. Yes, we want to work together.
+- [03:57.280] Yes, we'd like to bring an end to this
+- [03:58.959] terrible conflict, but we've also got
+- [04:01.040] some great airmen back at Fairford and
+- [04:03.360] other bases. They're going to make sure
+- [04:05.040] that no matter what happens, the peace
+- [04:07.200] and the prosperity and the goals of the
+- [04:09.519] American people are going to be well
+- [04:11.200] served by by what you do." So, I I I I I
+- [04:13.920] think if you if you look back at the
+- [04:15.439] last six months, if you look back at the
+- [04:17.680] number of lives that we've saved in
+- [04:19.680] Rwanda, in the Congo, the president
+- [04:21.600] ended a 30-year war there. If you look
+- [04:23.680] at what we've done in in in the East
+- [04:26.639] Asia, where the president ended a
+- [04:28.479] conflict in Serbia, Kosovo, where the
+- [04:30.560] president has brought peace to that area
+- [04:32.560] of the world, and now in just a couple
+- [04:34.320] of days with the president heading to
+- [04:36.240] Anchorage, Alaska to try to achieve an
+- [04:38.720] end to this terrible war and Russia and
+- [04:40.560] Ukraine. You guys make that possible.
+- [04:43.680] You guys are the reason why we can go
+- [04:45.919] into a negotiation with strength. You
+- [04:48.160] guys are the reason why we have leverage
+- [04:50.160] in these conversations with world
+- [04:51.840] leaders because they know that if we cut
+- [04:54.080] a deal, it is backed up by the finest
+- [04:56.639] fighting force anywhere in the world.
+- [04:59.440] And that is what makes your job so
+- [05:01.600] important. And that's what makes it so
+- [05:03.919] important and and and such a proud
+- [05:05.759] moment for me to be here with you today
+- [05:08.080] because nothing that I do, nothing that
+- [05:10.240] we do as an administration is possible
+- [05:12.800] without the hard work, the courage and
+- [05:15.600] the skill that you guys bring to the
+- [05:17.759] job. Now I mentioned earlier I was I was
+- [05:20.000] at Chievening meeting with the British
+- [05:21.440] foreign secretary. I've met with a
+- [05:23.280] number of foreign leaders just in the
+- [05:26.080] last actually hour. I had a call with
+- [05:28.400] about 30 European leaders and over the
+- [05:31.039] past couple of days I've met with a
+- [05:32.720] number of leaders across the UK, across
+- [05:35.280] political parties across the generations
+- [05:37.280] because that's one of the the great
+- [05:38.639] things about the UK's special
+- [05:40.720] relationship with the United States is
+- [05:42.960] it cuts across political alliances. It
+- [05:45.520] cuts across political parties. It cuts
+- [05:47.919] across generations because we've been
+- [05:49.600] working together for literally
+- [05:51.360] centuries. And you know what every
+- [05:53.440] single person that I meet often tells
+- [05:55.840] me? They tell me about how impressed
+- [05:58.400] they are by the skill, by the
+- [06:00.800] determination, and by the dedication of
+- [06:03.440] the American military. You all are what
+- [06:06.560] make it possible for us to do what we
+- [06:08.560] do. When Marco Rubio, our great
+- [06:10.720] secretary of state, goes to engage in
+- [06:13.120] some diplomatic negotiation. He knows
+- [06:15.360] that he's got the great people of the
+- [06:16.800] Secretary of Defense standing behind
+- [06:18.319] him. And that fact, the fact that people
+- [06:20.639] are impressed by you, the fact that so
+- [06:22.400] many people are frankly afraid of you is
+- [06:25.360] why we're able to do what we do as an
+- [06:27.840] administration. So, I just want to say
+- [06:30.000] from the president of the United States,
+- [06:31.199] who again I just spoke to and he told me
+- [06:32.800] to give you this message, we're proud of
+- [06:34.800] you. We're grateful to you. We know that
+- [06:37.600] it's not always an easy job. We know
+- [06:39.280] there are often long hours, but I hope
+- [06:41.120] you know that the peace and the
+- [06:43.360] prosperity and the safety of your
+- [06:45.280] countrymen depend on you doing a good
+- [06:48.160] job. And we are damn proud of the job
+- [06:50.800] that you do every single day. God bless
+- [06:52.880] you all and thank you for having your
+- [06:54.080] vice president here in the UK.
+- [06:57.220] [Applause]
+- [07:00.360] [Music]
+- [07:13.680] Lord, it's the same old tune. Fiddle and
+- [07:17.520] guitar.
+- [07:19.120] Where do we take it from here?
+- [07:23.120] Rhinestone suits and new shiny cars.
+- [07:27.680] It's been the same way for years.
+- [07:33.039] We need to change.
+- [07:37.760] [Music]
+- [07:40.000] Somebody told me when I came to
+- [07:43.520] Nashville, "Son, you finally got it
+- [07:46.720] made.

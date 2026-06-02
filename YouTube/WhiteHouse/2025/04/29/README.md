@@ -1,0 +1,31 @@
+# YouTube / WhiteHouse / 2025-04-29
+
+- Posts: 9
+
+- [21:49 UTC - POTUS announces 21 brand new F-15EX Eagle II Fighter Jets.](on04_MZ67TQ/)
+  - Source: https://www.youtube.com/watch?v=on04-MZ67TQ
+  - [00:00.080] But today, I've come in person to lay to - [00:03.280] rest any doubts about Selfridg's future - [00:06.160] and the vital role it'll play in our - [00:08.080] nation...
+- [21:02 UTC - 100 Days in 100 Photos](spyIrvdAGdg/)
+  - Source: https://www.youtube.com/watch?v=spyIrvdAGdg
+  - [00:00.080] Today officially marks 100 days of promises  made and promises kept by President Trump. - [00:05.440] This has truly been the most historic  start to a presidency in...
+- [20:51 UTC - President Trump Delivers Remarks to the Michigan National Guard](Ap2tSFvXSBk/)
+  - Source: https://www.youtube.com/watch?v=Ap2tSFvXSBk
+  - [00:10.080] Ladies and gentlemen, please welcome the - [00:12.000] 45th and 47th President of the United - [00:14.880] States, Donald J. - [00:23.530] [Music] - [00:28.359] Trump...
+- [18:53 UTC - Trust Trump. He’s delivering. 🇺🇸](y3vFxMiDZLQ/)
+  - Source: https://www.youtube.com/watch?v=y3vFxMiDZLQ
+  - [00:00.400] In the face of unrelenting economic - [00:02.480] warfare, the United States can no longer - [00:04.720] continue with a policy of unilateral - [00:07.120] economic s...
+- [16:43 UTC - Press Secretary Karoline Leavitt Briefs Members of the New Media, Apr. 29, 2025](cmBHi77zM6s/)
+  - Source: https://www.youtube.com/watch?v=cmBHi77zM6s
+  - [00:00.960] Good afternoon - [00:02.600] everybody. Thank you so much for coming. - [00:05.440] This is our second official influencer - [00:08.080] briefing here at the White Ho...
+- [15:00 UTC - SecTreasury: "Tariff income could be used for tax relief...immediately."](AysTV_urNTs/)
+  - Source: https://www.youtube.com/watch?v=AysTV_urNTs
+  - [00:00.080] So, we're going to take in long-term - [00:01.600] tariff revenue. We put a process in - [00:03.840] place. We have 18 important trading - [00:06.919] relationships....
+- [14:56 UTC - Eagles Super Bowl Champion Celebration at the White House](folVlGrXcPQ/)
+  - Source: https://www.youtube.com/watch?v=folVlGrXcPQ
+  - [00:00.080] We're thrilled to welcome everyone to - [00:02.320] the White House, special place, and to - [00:04.720] celebrate the Super Bowl 59 champion, - [00:07.200] the Phila...
+- [14:54 UTC - 100 DAYS: There Is No Better Time To Invest In America](ComI4IfiwKQ/)
+  - Source: https://www.youtube.com/watch?v=ComI4IfiwKQ
+  - [00:00.160] The press is not talking nearly enough - [00:02.240] about the positive impact of President - [00:04.160] Trump's deregulation campaign, and - [00:06.640] investments...
+- [13:10 UTC - Press Secretary Karoline Leavitt and Scott Bessent Brief Members of the Media, Apr. 29, 2025](siqENvfCkWQ/)
+  - Source: https://www.youtube.com/watch?v=siqENvfCkWQ
+  - [00:01.620] Mrs. Leavitt: Good morning, everybody. - [00:02.850] The Press: Good morning. - [00:04.080] Mrs. Leavitt: Happy first 100 days. - [00:06.530] Before we begin, I want...

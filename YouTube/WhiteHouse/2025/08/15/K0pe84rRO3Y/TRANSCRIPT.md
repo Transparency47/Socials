@@ -1,0 +1,178 @@
+<!-- source: https://www.youtube.com/watch?v=K0pe84rRO3Y -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: K0pe84rRO3Y -->
+<!-- date_published: 2025-08-15T14:37:33+00:00 -->
+<!-- date_accessed: 2026-06-02T01:17:48.062147+00:00 -->
+
+# Transcript: President Trump Gaggles with the Press on Air Force One, Aug. 15, 2025
+
+- [00:00.000] [Music]
+- [00:00.560] Hello everybody. Uh, I brought a friend
+- [00:02.960] of yours, Brent Bear.
+- [00:04.720] >> He's here. Brent, how you doing?
+- [00:07.359] >> How are you?
+- [00:08.080] >> What will what will make a success of
+- [00:10.320] this summit today? I can't tell you
+- [00:13.120] that. I don't know. It's uh there's
+- [00:16.160] nothing set in stone. I want certain
+- [00:18.720] things. I want to see a ceasefire. This
+- [00:20.960] is not to do with Europe. Europe's not
+- [00:23.199] telling me what to do, but they're going
+- [00:25.680] to be involved in the process,
+- [00:27.119] obviously, as will Zalinski. I want to
+- [00:29.760] see a ceasefire rapidly. I don't know if
+- [00:31.679] it's going to be today, but I'm not
+- [00:32.960] going to be happy if it's not today.
+- [00:35.040] Everyone said it can't be today, but I'm
+- [00:37.120] just saying I want the killing to stop.
+- [00:39.200] I'm in this to stop the killing. You
+- [00:41.440] know, we're not putting up any money.
+- [00:43.120] We're making money. Uh they're buying
+- [00:45.280] our weapons and we're sending them to
+- [00:46.960] NATO and NATO's sending us big,
+- [00:48.640] beautiful checks. But that I don't care
+- [00:51.520] about that. I care about it was a big
+- [00:54.000] factor when Biden spent 350 billion and
+- [00:56.719] got nothing. But what I do care about is
+- [00:58.960] they lost last uh last week 7,011 people
+- [01:04.640] were lost all almost all soldiers uh 36
+- [01:08.320] people in a town which got hit by a
+- [01:10.080] missile but uh 7,000 over 7,000
+- [01:14.080] soldiers. It's crazy.
+- [01:16.240] >> Could you just describe a little bit Mr.
+- [01:17.840] President because I know you've had a
+- [01:18.960] lot of phone calls with uh President
+- [01:21.520] Putin. What's the difference in a
+- [01:23.360] face-toface inerson meeting? Look, he's
+- [01:26.320] a smart guy. Been doing it for a long
+- [01:29.280] time, but so have I been doing it for a
+- [01:31.520] long time, and here we are. We're
+- [01:34.400] president. Uh, that was much more
+- [01:37.360] difficult than what I'm doing today,
+- [01:38.880] believe me. So, uh, we get along.
+- [01:42.880] There's a good respect level on both
+- [01:44.560] sides. And I think, you know,
+- [01:45.759] something's going to come of it. I
+- [01:47.119] noticed, uh, he's bringing a lot of
+- [01:49.040] business people from Russia, and that's
+- [01:51.680] good. I like that because they want to
+- [01:53.280] do business but they're not doing
+- [01:54.399] business until we get the wars out.
+- [01:59.040] >> We have the hottest country on earth. We
+- [02:01.280] have the hottest economy on earth. We
+- [02:03.200] have the hottest company country. We
+- [02:06.000] just set a new stock market record
+- [02:07.680] again. Uh we have hundreds of billions
+- [02:10.800] of dollars flowing in from tariffs. We
+- [02:13.599] we're the hottest we we were a dead
+- [02:15.840] country. A dead like doornails. A dead
+- [02:18.480] country. uh one year ago we were dead as
+- [02:21.280] a doornail and now we have the hottest
+- [02:23.840] country and he wants a piece of that
+- [02:25.920] because his country is not hot
+- [02:27.440] economically. In fact, it's the opposite
+- [02:30.080] and China's not doing well economically
+- [02:32.800] but
+- [02:34.400] we're all Look, I want everybody to do
+- [02:36.879] well. The war's got to stop and the
+- [02:38.800] killing's got to stop.
+- [02:39.920] >> Mr. Mr. President,
+- [02:41.760] >> thank you for coming back to take
+- [02:43.040] questions. Um, we saw that Russia
+- [02:45.040] continued its violence into Ukraine last
+- [02:47.360] night, launching even more drones. What
+- [02:49.440] did you make of that?
+- [02:50.720] >> I think they're trying to negotiate.
+- [02:53.200] He's trying to set a stage. I mean, in
+- [02:55.519] his mind, that helps him make a better
+- [02:57.680] deal. It actually hurts him. Uh, but in
+- [03:00.319] his mind, that helps him make a better
+- [03:01.920] deal if they can continue the killing.
+- [03:04.959] Uh maybe it's a part of the world, maybe
+- [03:07.760] it's just his fabric, his genes, his
+- [03:10.319] genetics, but he thinks that makes him
+- [03:13.040] uh gives him strength in negotiating. I
+- [03:15.440] think it hurts him, but I'll be talking
+- [03:17.120] to him about it later.
+- [03:18.239] >> He's on the table for discussions today,
+- [03:20.080] Mr. President. Um are the territorial
+- [03:22.879] swaps on the table? Uh will you be
+- [03:25.360] discussing that?
+- [03:26.239] >> They'll be discussed, but I've got to
+- [03:27.680] let Ukraine make that decision, and I
+- [03:30.400] think they'll make a proper decision.
+- [03:32.480] But I'm not here to negotiate for
+- [03:34.959] Ukraine. I'm here to get him at a table.
+- [03:36.720] And I think uh you have two sides. Look,
+- [03:40.400] Vladimir Putin wanted to take all of
+- [03:42.400] Ukraine. If I wasn't president, he would
+- [03:45.040] right now be taking all of Ukraine, but
+- [03:47.599] he's not going to do it.
+- [03:48.480] >> Mr. Mr. President, what did you
+- [03:50.480] >> just one just one thing? What about the
+- [03:52.239] possibility
+- [03:54.239] of the United States providing security
+- [03:56.400] guarantees to Ukraine
+- [03:58.640] >> along with Europe and other countries?
+- [04:00.720] not in the form of NATO because that's
+- [04:02.720] not going to you know there are certain
+- [04:04.000] things uh that aren't going to happen
+- [04:06.480] but yeah along with Europe there's
+- [04:08.879] possibility of that mentioning the
+- [04:11.439] number of business people that President
+- [04:12.959] Putin is bringing along is that
+- [04:14.959] something that you want to discuss with
+- [04:16.880] President Putin at this meeting
+- [04:18.799] >> if we if we make progress I would
+- [04:20.799] discuss it because that's one of the
+- [04:22.800] things that they would like they'd like
+- [04:24.320] to get a piece of what I built in terms
+- [04:26.880] of the economy just so you know we were
+- [04:28.639] a dead country in with our economy. Uh
+- [04:32.000] he wouldn't be interested he wouldn't
+- [04:34.000] have been interested a year ago with the
+- [04:35.759] Biden economy, but he is interested in
+- [04:38.560] the Trump economy because we're doing
+- [04:40.479] you see when those factories start
+- [04:41.919] opening up. We have hundreds of
+- [04:43.840] factories all over the country and that
+- [04:46.080] includes auto factories, AI factories,
+- [04:48.639] and every other. They're all coming in
+- [04:51.120] because they want to beat the tariffs
+- [04:53.600] because if they open here, they don't
+- [04:55.199] have to pay tariffs. If they don't open
+- [04:57.120] here, they have to pay in some cases
+- [04:59.600] 200%, 300%.
+- [05:02.560] I haven't even set some of the tariffs
+- [05:04.320] yet. I'll be setting tariffs uh next
+- [05:06.960] week and the week after on steel and on
+- [05:10.960] uh I would say chips.
+- [05:16.000] >> GIPS and semiconductors will be setting
+- [05:18.560] sometime uh next week, week after.
+- [05:21.680] >> Are you looking at what rate?
+- [05:24.240] I'm going to have a rate that is going
+- [05:25.759] to be lower at the beginning. Then that
+- [05:28.639] gives them a chance to come in and build
+- [05:31.120] and very high after a certain period of
+- [05:33.440] time. And if they don't build here, they
+- [05:35.039] have to pay a very high tariff, which
+- [05:36.960] doesn't work. So they'll come and build.
+- [05:38.960] >> Mr. President, hi. You had said uh
+- [05:41.520] earlier
+- [05:44.880] >> with me.
+- [05:45.199] >> Isn't he a general?
+- [05:46.960] >> He's helping me out.
+- [05:47.919] >> He's a very He's one of the few nice
+- [05:49.840] ones.
+- [05:50.800] You had said earlier this week that
+- [05:52.240] Putin would face severe consequences if
+- [05:54.240] you get the sense from him that he's not
+- [05:56.000] interested. What do you mean by that?
+- [05:57.680] >> Economically severe. Yes, it will be
+- [05:59.680] very severe. I'm not doing this for my
+- [06:01.840] health. Okay. I don't need it. I'd like
+- [06:04.800] to focus on our country, but I'm doing
+- [06:06.720] this to save a lot of lives. Yeah, very
+- [06:09.039] severe. Thank you very much, everybody.
+- [06:11.440] case.

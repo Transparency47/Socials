@@ -1,0 +1,137 @@
+<!-- source: https://www.youtube.com/watch?v=wcuztPVlb08 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: wcuztPVlb08 -->
+<!-- date_published: 2026-05-14T02:33:27+00:00 -->
+<!-- date_accessed: 2026-06-02T02:33:50.057880+00:00 -->
+
+# Transcript: President Trump Participates in a Bilateral Meeting with the President of China
+
+- [00:02.840] Let me say a few words first.
+- [00:06.880] And then
+- [00:08.640] I'd like to invite you, Mr. President,
+- [00:10.720] to deliver your opening remarks.
+- [00:15.480] President Trump
+- [00:18.280] I'm very pleased to meet you in Beijing.
+- [00:23.120] Welcome back to China after 9 years.
+- [00:34.760] The whole world is watching our meeting.
+- [00:41.200] Currently, transformation not seen in a
+- [00:43.600] century is accelerating across the
+- [00:46.000] globe, and the international situation
+- [00:48.560] is fluid and turbulent. The world has
+- [00:51.360] come to a new crossroads.
+- [00:53.640] Can China and the United States overcome
+- [00:56.560] the Thucydides trap?
+- [01:00.240] And create a new paradigm of major
+- [01:02.960] country relations?
+- [01:06.680] Can we meet global challenges together?
+- [01:09.640] And provide more stability for the
+- [01:11.640] world?
+- [01:16.360] Can we, in the interest of the
+- [01:17.840] well-being of our two peoples and the
+- [01:19.720] future of humanity, build a brighter
+- [01:22.480] future together for our bilateral
+- [01:24.560] relations?
+- [01:27.320] These are the questions vital to
+- [01:29.400] history, to the world, and to the
+- [01:31.760] people.
+- [01:34.800] They are the questions
+- [01:36.920] of our times that you and I need to
+- [01:39.240] answer as leaders of major countries.
+- [01:43.280] This year is the 250th anniversary of
+- [01:46.960] American independence.
+- [01:49.800] Congratulations to you and to the
+- [01:52.200] American people.
+- [01:55.360] I always believe
+- [01:57.320] that our two countries have more common
+- [01:59.680] interests than differences.
+- [02:03.880] Success in one is an opportunity for the
+- [02:06.600] other.
+- [02:08.320] And a stable bilateral relationship is
+- [02:10.920] good for the world.
+- [02:13.280] China and the United States both stand
+- [02:15.720] to gain from cooperation and lose from
+- [02:18.320] confrontation. We should be partners,
+- [02:20.520] not rivals. We should help each other
+- [02:22.400] succeed and prosper together and find
+- [02:25.000] the right way for major countries to get
+- [02:26.880] along well with each other in the new
+- [02:28.680] era.
+- [02:31.480] Mr. President, I look forward to our
+- [02:33.400] discussions on major issues important to
+- [02:36.160] our two countries and the world.
+- [02:39.200] And working together with you
+- [02:42.400] to set the course for and steer the
+- [02:44.840] giant ship of China-US relations
+- [02:48.320] so as to make 2026
+- [02:52.600] a historic landmark year that opens up a
+- [02:55.360] new chapter in China-US relations.
+- [03:00.840] I will pause here
+- [03:02.360] and hand over to you, Mr. President.
+- [03:05.040] Thank you.
+- [03:08.200] Well, President Xi, I want to thank you
+- [03:09.760] very much. First of all,
+- [03:12.120] that was
+- [03:13.840] an honor
+- [03:15.200] like few have ever seen before.
+- [03:17.800] And I think I was
+- [03:19.720] particularly impressed by those
+- [03:21.080] children. They were happy.
+- [03:22.880] They were beautiful.
+- [03:24.519] The military is obvious. It couldn't be
+- [03:26.600] better, but those children were amazing
+- [03:29.480] and they represent so much. And I know I
+- [03:31.400] know they represent so much to you.
+- [03:33.840] You and I have known each other now for
+- [03:36.080] a long time. In fact, the longest
+- [03:38.720] relationship of our two countries that
+- [03:41.280] any president and president
+- [03:43.720] has had. And that's to me an honor.
+- [03:47.480] We've had a fantastic relationship.
+- [03:49.360] We've gotten along. When there were
+- [03:50.680] difficulties, we worked it out.
+- [03:52.960] I would call you and you would call me
+- [03:54.960] and whenever we had a problem, people
+- [03:57.400] don't know, whenever we had a problem,
+- [03:59.320] we worked it out very quickly.
+- [04:01.480] Uh we're going to have a
+- [04:03.880] fantastic future together.
+- [04:06.040] Uh such respect for China, the job
+- [04:08.040] you've done.
+- [04:09.200] Uh you're a great leader. I say it to
+- [04:10.720] everybody, you're a great leader.
+- [04:12.560] Sometimes people don't like me saying
+- [04:14.360] it, but I say it anyway because it's
+- [04:16.120] true. I only say the truth.
+- [04:18.320] And I just want to say uh behalf of all
+- [04:20.720] of the
+- [04:21.600] great delegation that we have. We have
+- [04:23.480] the greatest businessmen, the biggest
+- [04:25.280] and
+- [04:26.120] I guess the best in the world. We have
+- [04:28.560] amazing people and they're all with me.
+- [04:30.200] They every single one of them uh we
+- [04:32.400] asked the top
+- [04:34.040] 30 in the world, every single one of
+- [04:35.960] them said yes.
+- [04:37.560] And I didn't want the second or the
+- [04:39.160] third in the company. I wanted only the
+- [04:40.919] top. And they're here today to pay
+- [04:43.120] respects to you and to China.
+- [04:45.560] And they look forward to
+- [04:47.480] trade and doing business and it's going
+- [04:50.040] to be totally reciprocal on our behalf.
+- [04:52.640] So, I really look very much forward to
+- [04:54.560] our discussion. It's a big discussion.
+- [04:56.320] There are those that say this is maybe
+- [04:57.800] the biggest summit ever.
+- [05:00.080] They can never remember anything like
+- [05:01.600] it. It's I can say in the United States,
+- [05:03.800] it's
+- [05:04.800] people aren't talking about anything
+- [05:06.200] else.
+- [05:07.640] But it's an honor to be with you. It's
+- [05:09.560] an honor to be your friend and the
+- [05:11.560] relationship between China and the USA
+- [05:14.480] is going to be better than ever before.
+- [05:16.600] Thank you very much. Thank you.

@@ -1,0 +1,935 @@
+<!-- source: https://www.youtube.com/watch?v=NJkZT51VADc -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: NJkZT51VADc -->
+<!-- date_published: 2025-05-01T13:50:04+00:00 -->
+<!-- date_accessed: 2026-06-02T02:50:54.849240+00:00 -->
+
+# Transcript: Press Secretary Karoline Leavitt and Stephen Miller Brief Members of the Media, May 01, 2025
+
+- [00:04.960] Ms. Leavitt: Good morning, everybody.
+- [00:06.320] The Press: Good morning.
+- [00:07.590] Ms. Leavitt: We're capping off the first 100-day week
+- [00:09.550] with our morning briefing. How does everybody feel?
+- [00:11.680] The Press: Great.
+- [00:13.000] Ms. Leavitt: You like the morning briefings?
+- [00:14.230] The Press: Yes.
+- [00:15.430] Ms. Leavitt: Okay. We do too, that's why we're doing them.
+- [00:18.700] It's good to see all of you.
+- [00:19.960] I brought a friend out here today
+- [00:21.400] who is happy to take your questions,
+- [00:22.750] but first some remarks.
+- [00:24.310] At 11:00 President Trump will participate
+- [00:26.840] in a National Day of Prayer event
+- [00:28.700] where he will invite Americans off all faiths
+- [00:31.330] across the country to join him in asking for God's
+- [00:34.420] continued blessings over our great country.
+- [00:37.050] During the event, the president will sign an executive order
+- [00:39.680] establishing a Religious Liberty Commission.
+- [00:42.390] Later today President Trump
+- [00:43.780] will travel to the University of Alabama
+- [00:46.110] to deliver a commencement address
+- [00:47.830] to the graduating class of 2025. Last night we saw yet again
+- [00:52.390] why President Trump is our deal-maker in chief.
+- [00:55.640] We secured a historic agreement to establish
+- [00:58.410] the United States Ukraine Reconstruction Investment Fund.
+- [01:02.440] This is a first of its kind economic partnership
+- [01:05.240] for the reconstruction
+- [01:06.480] and longterm economic success of Ukraine
+- [01:09.330] that both the United States …
+- [01:11.020] That the United States will greatly benefit from.
+- [01:13.690] This partnership represents the United States
+- [01:15.710] taking an economic stake in securing a free,
+- [01:18.290] peaceful and sovereign future for Ukraine.
+- [01:21.340] This partnership establishes a fund
+- [01:22.980] that will receive 50% of royalties,
+- [01:25.580] license fees and other similar payments
+- [01:27.640] from natural resource projects in Ukraine.
+- [01:30.390] President Trump has been clear from the beginning,
+- [01:33.000] he wants the killing in this brutal war to end.
+- [01:35.870] This agreement shows how invested the president
+- [01:38.130] is in securing a truly lasting peace.
+- [01:41.380] To mark President Trump's triumphant first
+- [01:43.320] 100 days in office we've detailed all week
+- [01:45.880] how President Trump has been hard at work
+- [01:47.730] delivering on the promises he made to the American people.
+- [01:51.330] And yesterday, the president once again
+- [01:53.180] showcased why he is the most transparent
+- [01:55.810] and accessible president in American history
+- [01:58.510] when he held his fourth open press cabinet meeting.
+- [02:02.190] Every cabinet secretary went into great detail
+- [02:04.830] explaining how their respective agencies are making life better
+- [02:08.310] for American families and businesses,
+- [02:10.600] and then the president allowed all of you to ask questions
+- [02:13.150] on anything you wanted afterwards.
+- [02:15.180] One of the main reasons President Trump
+- [02:16.890] won nearly 80 million votes,
+- [02:18.720] swept all seven battleground states
+- [02:20.490] and received a resounding mandate from the American public
+- [02:23.540] is because of the contrast he presented during the campaign,
+- [02:26.440] and continues to this day.
+- [02:28.310] Everything President Trump's agenda …
+- [02:30.850] In President Trump's agenda is grounded in one thing,
+- [02:33.950] common sense.
+- [02:35.750] While the Democrat Party went off the deep end
+- [02:37.700] and doubled down on pure craziness,
+- [02:39.510] President Trump pledged to restore common sense
+- [02:41.740] back to the United States of America.
+- [02:44.390] In a little more than three months,
+- [02:45.690] that's exactly what he's done.
+- [02:47.640] He recognized that America is a sovereign nation
+- [02:49.950] that can not survive
+- [02:51.220] if it does not protect its territorial borders.
+- [02:54.170] So he secured the border in record time
+- [02:56.160] and ended the mass invasion of tens of millions
+- [02:58.950] of illegal aliens into our homeland.
+- [03:01.250] The president knows how top responsibility
+- [03:03.160] is ensuring the safety of the American people,
+- [03:05.510] which is why he's arresting violent illegal alien invaders
+- [03:08.460] in our communities who threaten our public safety.
+- [03:11.740] And it's unacceptable to President Trump
+- [03:13.540] to allow rampant waste, fraud and abuse
+- [03:15.670] of American's precious tax dollars,
+- [03:18.100] which is why the president championed a history DOGE effort
+- [03:21.220] that saved nearly $200 billion already.
+- [03:24.240] President Trump knows American is blessed with an abundance
+- [03:27.640] of liquid gold below our feet in the form of fossil fuels,
+- [03:31.360] so he ended Joe Biden's reckless war on American energy
+- [03:34.500] and is restoring American energy dominance to lower costs
+- [03:37.500] and strengthen our national security.
+- [03:39.900] President Trump believes Americans should be free
+- [03:42.140] to drive whatever car they want,
+- [03:43.890] so he ended Joe Biden's disastrous EV mandate
+- [03:46.650] and promoted true consumer choice.
+- [03:49.160] President Trump stood up for the Constitution's promise
+- [03:51.700] of colorblind equality before the law,
+- [03:54.010] so he terminated radical DEI preference-ing
+- [03:56.460] and federal contracting, and directed federal agencies
+- [03:59.410] to relentlessly combat private sector discrimination.
+- [04:03.150] DEI seeks to divide and pit Americans against each other
+- [04:06.160] based on immutable characteristics.
+- [04:08.510] President Trump put an end to it.
+- [04:10.610] In President Trump's America individual dignity,
+- [04:13.270] hard work and excellence
+- [04:14.620] are the only things that will determine if you get ahead.
+- [04:17.890] President Trump is a proud free speech champion,
+- [04:20.170] which is why he ended
+- [04:21.400] Joe Biden's trampling of free speech rights
+- [04:23.300] and the federal government's censorship
+- [04:25.140] of American speech on online platforms.
+- [04:27.800] The president believes college students
+- [04:29.550] have a right to speak their minds
+- [04:31.110] and go to school safely, again, common sense.
+- [04:33.810] So he took bold action to protect Jewish American students
+- [04:36.880] from harassment by pro Hamas radicals on their campuses.
+- [04:40.680] And President Trump knows that America's children
+- [04:42.950] are our future,
+- [04:44.340] and he'll never stop fighting for them.
+- [04:46.230] That's why he ended the radical,
+- [04:48.050] un-American indoctrination of children
+- [04:49.940] by eliminating support for divisive radical gender ideology
+- [04:53.750] and equity ideology,
+- [04:55.370] and why the president protected parents' fundamental rights.
+- [04:58.440] And lastly, the president believes in fundamental biology.
+- [05:01.360] Isn't that something?
+- [05:02.700] Which is why he made it the official policy
+- [05:04.510] of the United States Government
+- [05:05.860] that there are only two sexes, male and female.
+- [05:09.330] And because men and women are biologically different,
+- [05:11.970] President Trump ended the unfair demeaning practice
+- [05:14.920] of forcing women to compete against men in sports,
+- [05:17.640] and having their private spaces invaded.
+- [05:20.320] When president Trump completed …
+- [05:22.080] Promised a complete restoration of America
+- [05:24.280] in the revolution of common sense, he meant it.
+- [05:26.950] And over the next 100 days get ready for historic trade deals,
+- [05:30.680] budget deals and peace deals.
+- [05:32.820] For more on President Trump's common sense revolution,
+- [05:34.860] I will turn it over to our White House
+- [05:36.470] Deputy Chief of Staff for Policy Stephen Miller.
+- [05:39.440] Stephen, thanks for coming in today.
+- [05:41.170] Mr. Miller: Thank you, Karoline. Great to be up here with you.
+- [05:43.160] And great to see so many familiar faces
+- [05:46.110] I've had a chance to get to know over a number of years.
+- [05:49.700] As we gather this morning to continue our celebration,
+- [05:53.270] President Trump's unprecedented
+- [05:55.190] and historic first a hundred days in office,
+- [05:58.770] what are without doubt the greatest a hundred days
+- [06:01.630] to begin any American presidency in the history of this nation.
+- [06:05.260] This week you've heard about the historic actions
+- [06:07.470] President Trump has taken to secure our homeland,
+- [06:10.740] to secure our sovereignty,
+- [06:12.980] to secure our economy and our supply chains
+- [06:16.360] and our industrial base,
+- [06:18.110] today you're also going to hear from me
+- [06:19.730] about what President Trump has done to secure our values,
+- [06:24.350] our culture and our way of life
+- [06:27.070] from the unwavering assault from the radical left
+- [06:30.080] and the Communists and the Democrat Party.
+- [06:32.950] One of the most significant crisis
+- [06:34.630] that President Trump inherited upon taking office
+- [06:37.920] was the wave of racial discrimination,
+- [06:40.670] so called diversity, equity and inclusion policies,
+- [06:43.980] that have taken over both public sector
+- [06:46.940] and private sector entities all across
+- [06:48.720] the United States of America.
+- [06:50.210] Perhaps the most dramatic example of this
+- [06:52.320] is that our air traffic controllers
+- [06:54.490] were being hired and promoted based on race and gender,
+- [06:58.220] not their ability to conduct our nation's air traffic.
+- [07:01.910] I would estimate that probably 90% of Americans
+- [07:04.520] would agree with the statement that airline safety
+- [07:08.040] should be based on your ability to keep …
+- [07:11.130] Airline safety jobs should be based on your ability
+- [07:12.860] to keep planes landing and taking off and flying safely,
+- [07:16.690] not on what demographic box you check.
+- [07:19.780] President Trump has ended across the entire federal government
+- [07:23.610] all hiring, recruiting, retention, promotion
+- [07:28.420] and training based on race and sex.
+- [07:32.270] This includes in our law enforcement agencies.
+- [07:35.760] So again, when we took office,
+- [07:38.120] even in sensitive law enforcement,
+- [07:39.980] national security and intelligence agencies,
+- [07:43.020] we were hiring individuals
+- [07:44.700] not on their ability to carry a weapon,
+- [07:47.720] not on their ability to keep Americans safe,
+- [07:50.390] not on their ability to conduct
+- [07:52.760] sensitive intelligence operations,
+- [07:55.060] but based upon race and sex.
+- [07:57.580] And obviously that is unacceptable.
+- [07:59.500] It's going to be merit
+- [08:00.890] based across the whole federal government.
+- [08:02.630] But this wasn't just the federal government,
+- [08:04.210] this was the private sector and this was also of course
+- [08:06.970] our entire university and education system.
+- [08:09.740] So President Trump's Department of Justice,
+- [08:12.760] working with other departments and agencies,
+- [08:14.700] have made clear that this administration
+- [08:16.750] is going to fully enforce Title VI, Title VII
+- [08:20.410] and Title IX of our Federal Civil Rights Code.
+- [08:23.190] Discrimination based on race and sex is prohibited by law.
+- [08:28.610] And this administration will vigorously enforce that.
+- [08:31.410] And companies small or large
+- [08:34.300] that violate plain text of federal statutes
+- [08:39.240] will face appropriate financial and other penalties.
+- [08:43.230] This administration is not going to let our society devolve
+- [08:47.320] into Communist woke DEI strangulation.
+- [08:51.570] We are going to have a system of merit,
+- [08:54.120] which is not just a social and cultural issue,
+- [08:56.430] it's an economic issue.
+- [08:58.220] When you hire, retain and recruit based on merit,
+- [09:01.770] as President Trump has directed, you advance innovation,
+- [09:05.850] you advance growth, you advance investment,
+- [09:09.200] you advance job creation,
+- [09:11.040] you create the best and safest product for all Americans.
+- [09:14.270] When a citizen goes to say a hospital in a medical emergency,
+- [09:19.210] they don't care what race or sex their doctor or their nurse is,
+- [09:22.550] they want the best treatment they can get in that emergency.
+- [09:26.440] When they're flying a plane or when they are on an aircraft,
+- [09:29.820] they want that pilot to be the best pilot,
+- [09:33.060] the safest pilot,
+- [09:34.390] not caring what that pilot's race or sex is.
+- [09:37.670] This applies across the whole government.
+- [09:39.940] In particular, looking at our university system.
+- [09:43.790] This administration has opened investigations into universities
+- [09:47.100] across the country for violating …
+- [09:50.020] We talk a lot about Supreme Court rulings.
+- [09:51.880] Universities across this country are in plain
+- [09:54.670] and direct violation of the Supreme
+- [09:56.680] Court's ruling that affirmative action,
+- [09:59.930] as in racial quotas and set-asides are illegal.
+- [10:03.730] Students must to be admitted to universities
+- [10:06.730] on a colorblind basis.
+- [10:09.560] But we have demonstrated through clear evidence
+- [10:11.470] that our university system, including our medical schools,
+- [10:14.730] and perhaps particularly our medical schools,
+- [10:17.580] are engaging in race-based discrimination,
+- [10:21.060] racial set-asides, racial quota schemes,
+- [10:24.000] and other efforts to evade the Supreme Court's
+- [10:26.860] ruling and again, the plain text of federal statute.
+- [10:31.620] So universities are on notice and universities
+- [10:34.280] are already facing the financial consequences
+- [10:37.120] of their noncompliance of federal law.
+- [10:39.290] The clearest example that we're all familiar with,
+- [10:41.220] of course, being Harvard, which is engaged in repeat,
+- [10:44.280] systemic and sustained violations
+- [10:46.270] of federal civil rights law.
+- [10:47.520] Another area of civil rights
+- [10:48.770] law that we talk about a lot of course is Title 9,
+- [10:51.720] sex-based discrimination, and this administration
+- [10:54.700] ended the Biden Administration's policy
+- [10:57.240] and the Democrat Party's policy
+- [10:58.980] of allowing men into women's sports,
+- [11:01.060] men into women's spaces.
+- [11:02.620] We are using every single legal and financial tool
+- [11:05.230] we have at President Trump's direction
+- [11:07.410] to make it clear that schools and universities
+- [11:10.270] are and will lose federal funds, as you've seen in Maine,
+- [11:13.450] if you allow men to invade women's sports
+- [11:16.200] and women's spaces,
+- [11:17.860] and this applies to our whole K through 12 system.
+- [11:20.240] The Department of Justice is also coordinating with state
+- [11:24.840] and local law enforcement
+- [11:26.300] to fight child abuse in our school systems.
+- [11:29.100] It is child abuse to change a child's gender,
+- [11:33.190] particularly if you do not inform the parents.
+- [11:35.530] In other words, if a five-year-old
+- [11:36.950] or a six-year-old goes to school
+- [11:39.140] or his seven-year-old goes to school
+- [11:41.150] and the teacher tries to turn the boy into a girl
+- [11:43.420] or the girl into a boy, that is child abuse.
+- [11:45.850] And this administration is treating that as child abuse,
+- [11:48.010] and it is a gross violation of parental rights.
+- [11:51.980] This also includes the administration's message
+- [11:54.220] to our hospital systems that they cannot
+- [11:56.390] and will not be allowed to use taxpayer dollars
+- [11:59.600] to perform chemical castration
+- [12:02.220] and sexual mutilations of children,
+- [12:05.780] castration surgeries, castration drugs,
+- [12:08.530] sterilization treatments of children are barbaric.
+- [12:12.740] They violate all sound medical ethics.
+- [12:15.530] They are completely unwarranted.
+- [12:17.780] They harm children for life irreversibly.
+- [12:21.240] It is child torture, it is child abuse,
+- [12:24.170] it is medical malpractice.
+- [12:26.200] And so the Department of Health and Human Services
+- [12:28.530] under the leadership of Bobby Kennedy,
+- [12:31.120] as well as the Department of Justice
+- [12:32.950] and other departments of this government
+- [12:34.780] are making clear to our medical providers
+- [12:37.020] and our hospital systems that you cannot use taxpayer dollars
+- [12:40.930] to perform these barbaric procedures
+- [12:43.460] on America's children.
+- [12:45.320] And HHS has systematically updated and eliminated
+- [12:49.690] all of the junk fake science
+- [12:52.990] that was produced under the Biden administration
+- [12:55.350] promoting sex changes on children,
+- [12:58.000] promoting the idea of sterilizing children,
+- [13:00.530] that's been cleaned out, that's been removed,
+- [13:03.230] and new guidance is being issued to doctors and hospitals
+- [13:06.090] advising them
+- [13:07.360] that they cannot perform these horrifying procedures,
+- [13:11.210] these irreversible procedures on our nation's children.
+- [13:14.580] We are also making clear in our prison system,
+- [13:17.610] male prisoners will not be allowed into women's prisons.
+- [13:21.950] The Biden administration promoted prison rape
+- [13:24.960] by putting men into female prisons.
+- [13:28.130] That is obviously insane, cruel, and unacceptable.
+- [13:32.330] And even though the Democrat party and Hakeem Jeffries
+- [13:35.900] and the Democrat media
+- [13:37.650] continue to fight to put men into women's prisons,
+- [13:40.820] this administration will not allow that
+- [13:42.920] and will not allow men as well in our K through 12 system
+- [13:46.850] into women's private spaces and restrooms.
+- [13:49.530] We have seen a horrifying example
+- [13:50.940] after example of young girls being sexually assaulted
+- [13:54.610] because school districts have allowed men
+- [13:57.100] into women's and girls private spaces.
+- [13:59.960] This administration, President Trump,
+- [14:02.260] is at the forefront of protecting women
+- [14:04.990] and protecting girls,
+- [14:06.510] and nowhere is that clearer than when we are talking
+- [14:08.830] about fighting radical gender ideology.
+- [14:12.410] This administration is also fighting
+- [14:14.230] to get critical race theory out of our school districts.
+- [14:17.910] Children will be taught to love America,
+- [14:20.300] children will be taught to be patriots.
+- [14:22.310] Children will be taught civic values for schools
+- [14:25.650] that want federal taxpayer funding.
+- [14:28.500] So as we close the Department of Education
+- [14:30.560] and we provide funding to states,
+- [14:32.860] we are going to make sure that these funds
+- [14:34.640] are not being used to promote communist ideology.
+- [14:37.810] For any nation to be successful it cannot teach its children
+- [14:40.790] to hate themselves and to hate their country.
+- [14:44.200] So these are a few of the areas in which President Trump
+- [14:46.380] has fought the cancerous communist woke culture
+- [14:50.470] that was destroying this country where we were led to believe
+- [14:53.430] that men were women, that women were men,
+- [14:56.580] that racial discrimination was good, that merit was bad,
+- [15:00.290] and that safety and physical security matter
+- [15:03.260] less than the feelings of liberal ideologues.
+- [15:07.070] The President has also fought to return the Department of Justice
+- [15:10.010] to its core mission of protecting public safety
+- [15:12.620] and locking up violent criminals
+- [15:14.660] instead of using the Department of Justice
+- [15:16.500] to target conservatives, to target Christians,
+- [15:19.150] to target people of faith.
+- [15:20.900] The last administration, cruelly and shamefully
+- [15:24.490] used the power of the Justice Department
+- [15:26.820] to go after law-abiding Americans,
+- [15:29.660] in particular Trump supporters, conservatives and Christians.
+- [15:33.840] That persecution has ended.
+- [15:35.710] The Department of Justice and the FBI
+- [15:38.250] are back in the business of going after bad guys,
+- [15:40.940] of going after gangs, of going after criminals
+- [15:43.750] and keeping Americans safe.
+- [15:45.280] Let me just conclude before taking questions by noting
+- [15:47.420] that when you look at the sweep of the first a hundred days,
+- [15:52.390] every single crisis that has afflicted America for years,
+- [15:57.330] sometimes decades, sometimes generations,
+- [15:59.930] this president has fought head on,
+- [16:04.860] he has taken on every entrenched power structure and system
+- [16:08.370] all across this government, this swamp, this town.
+- [16:13.050] That includes, of course,
+- [16:14.260] the DOGE efforts to slash corrupt wasteful government
+- [16:17.800] spending, graft and corruption,
+- [16:20.060] and to stop billions of taxpayer dollars
+- [16:22.240] from going to radical left NGOs. These are left-wing nonprofits
+- [16:26.420] that are used to advance illegal immigration,
+- [16:29.450] to advance open borders, to advance gender ideology,
+- [16:32.400] and to advance all of this insanity
+- [16:35.230] that has been turning our country
+- [16:36.530] in the wrong direction for so many years.
+- [16:38.780] President Trump took head on the trade crisis
+- [16:42.450] afflicting this country with the destruction
+- [16:44.270] of our manufacturing and industrial base.
+- [16:46.700] The shameful betrayal of the American worker by Joe Biden
+- [16:49.610] and the globalists that sent all of our supply chains overseas.
+- [16:53.040] He took head on the catastrophe of mass
+- [16:56.550] unlimited illegal immigration
+- [16:58.270] that was turning us into a failed third world state
+- [17:00.730] achieved the lowest level of illegal immigration
+- [17:03.180] in recorded history without even a close second.
+- [17:07.380] He took on the economic crisis,
+- [17:09.610] afflicting this country by reopening American energy,
+- [17:12.650] by defeating inflation, by lowering gas prices,
+- [17:15.550] by ending the onslaught
+- [17:16.790] and reversing the onslaught of federal regulation
+- [17:19.290] by reopening coal, shale, oil, natural gas,
+- [17:22.030] and fighting now for the largest tax cut and reform
+- [17:25.520] and the largest deregulation reform
+- [17:27.560] and the largest energy reform in American history.
+- [17:31.110] These are just some of the things
+- [17:33.020] that have ushered in the new Golden Age,
+- [17:34.440] along with his fight to restore the peace
+- [17:36.510] that we had for four years under the previous administration
+- [17:39.570] before Joe Biden sunk this planet into bloodshed
+- [17:42.740] and war in the Middle East, in Europe,
+- [17:45.390] and rising tensions in Asia.
+- [17:47.040] President Trump, in every area of conflict around the globe
+- [17:49.700] has been fighting to restore peace,
+- [17:51.690] security, stability, harmony.
+- [17:53.920] So he inherited an economic catastrophe,
+- [17:56.710] a border catastrophe, a public safety catastrophe,
+- [17:59.310] and a cultural catastrophe.
+- [18:01.820] In every case, he has reversed those catastrophes
+- [18:04.970] and brought America into the new Golden Age.
+- [18:07.350] So I thank you for your time
+- [18:08.630] and I look forward to any questions you have.
+- [18:10.150] Ms. Leavitt: Thank you, Stephen.
+- [18:11.380] And as always, we'll start with our new media seat today,
+- [18:13.170] Chris Bedford from the Blaze Media.
+- [18:14.770] Why don't you kick us off?
+- [18:16.050] The Press: Thank you very much.
+- [18:17.250] Stephen, what is the end goal of the China tariffs right now?
+- [18:20.540] Is the idea to open up the Chinese markets through a deal
+- [18:23.130] to a better market for exporting American goods to China?
+- [18:26.670] Or is there a reconfiguration of global trade
+- [18:29.270] in a way that isolates China from free countries?
+- [18:33.550] Mr. Miller: So China is a unique situation.
+- [18:35.560] Obviously, the President has talked at length
+- [18:38.020] about what happened to us economically
+- [18:39.330] since China's entrance
+- [18:40.540] into the World Trade Organization
+- [18:42.340] and the trillions and trillions of dollars of trade deficits
+- [18:44.620] that we've racked up with China over the period of that time
+- [18:48.160] and what that's meant for our national security,
+- [18:50.020] what that's meant for economic security,
+- [18:51.650] what that's meant for our supply chains.
+- [18:53.310] Obviously right now, the Secretary of the Treasury
+- [18:56.660] is in the process of developing a plan
+- [18:58.500] that will answer the questions that you're talking about,
+- [19:00.450] but the president's goals have been very clear on these points,
+- [19:03.970] which is that he is not going to allow China
+- [19:08.300] to continue to steal our intellectual property,
+- [19:12.130] to continue to illegally dump and subsidize
+- [19:14.240] their goods in our markets, to manipulate their currency,
+- [19:17.150] to rack up an unsustainable trade deficit.
+- [19:19.540] We need to have a trade relationship with China
+- [19:23.090] that does not do harm to our nation's
+- [19:24.610] economic and national security,
+- [19:26.250] and that has to be the guidepost of any objective.
+- [19:28.470] At the same time, tariffs will bring significant
+- [19:30.900] revenue into this country that will allow us to pursue
+- [19:34.110] our dramatic plan of tax cuts and reforms.
+- [19:37.010] Ms. Leavitt: Awesome great. Bloomberg, go ahead.
+- [19:39.590] The Press: Hi. [inaudible]
+- [19:41.430] so that they were expecting some sort of news on tariffs
+- [19:47.650] at the end of the day.
+- [19:48.950] Do you have any insight into that?
+- [19:50.260] Mr. Miller: I don't want to get ahead of any announcement,
+- [19:52.650] but I'll just reiterate that right now countries
+- [19:55.560] from all over the world
+- [19:56.940] because of President Trump's leadership are desperate
+- [19:59.580] and dying to make trade deals with the United States.
+- [20:02.390] We're going to evaluate each of those deals,
+- [20:03.900] and President Trump is personally involved
+- [20:06.170] in making sure that these negotiations
+- [20:08.370] serve only one interest,
+- [20:09.920] which is the interest of the United States of America,
+- [20:12.320] and we'll end up with a deal in these cases
+- [20:14.410] where, yes, the other countries obviously
+- [20:16.870] will have their own demands and their own interests,
+- [20:18.930] but nothing will go into effect that doesn't serve the interests
+- [20:21.590] of America and the American people.
+- [20:22.990] Ms. Leavitt: Sure, Mary.
+- [20:24.340] The Press: Thank you.
+- [20:25.560] Stephen, this morning, GM is putting a dollar figure
+- [20:27.770] on how much the President's tariffs will impact the company.
+- [20:30.330] The CEO says tariffs will cost GM between $4
+- [20:33.160] and $5 billion this year.
+- [20:35.320] The CEO of Ford says he can't commit to not raising prices
+- [20:38.370] because of tariffs. Is the administration open
+- [20:40.540] to doing more to give automakers relief?
+- [20:44.140] Mr. Miller: The question unfortunately misses
+- [20:45.550] the entire point,
+- [20:46.770] which is that US automakers have announced dramatic investments
+- [20:51.090] and expansions inside the United States.
+- [20:53.810] American auto plants are growing, they're expanding,
+- [20:56.630] they're opening new facilities,
+- [20:57.940] they're expanding existing facilities
+- [20:59.990] that are already in operation,
+- [21:01.540] because it is now the case that for the first time in our lives
+- [21:05.140] that American cars receive preference in America's markets.
+- [21:10.030] The US auto industry used to control the entire world.
+- [21:13.810] I believe the number during the heyday
+- [21:15.790] was that 70% of all cars in the world
+- [21:18.710] were made in Michigan. And now, of course,
+- [21:21.510] we've become a tiny fraction of the global market,
+- [21:24.490] and the reason for that is because the United States
+- [21:27.250] opened its markets to every single foreign cheater
+- [21:29.770] and every single foreign nation
+- [21:31.480] that subsidized its goods on the face of the Earth,
+- [21:33.780] and their markets have been closed to ours.
+- [21:35.590] Japan closed their market to our cars,
+- [21:37.580] the entire EU closed their market to our cars,
+- [21:40.740] South Korea closed their market to our cars.
+- [21:42.900] All of the countries I just mentioned
+- [21:44.520] have tens of billions of dollars of annual trade deficits
+- [21:47.390] on automobiles with the United States.
+- [21:48.870] These are supposedly pure nations,
+- [21:50.700] nations that have at least
+- [21:52.020] a somewhat equivalent per capita GDP.
+- [21:54.590] So it is impossible, under the terms of fair trade,
+- [21:57.630] if you have two nations with similar per capita GDP
+- [22:00.560] to have such uneven trade flows in automobiles.
+- [22:03.530] What the President has done with his car tariff,
+- [22:05.530] we have the most desirable market in the world,
+- [22:07.670] is if you want to sell cars tariff-free,
+- [22:11.390] tax-free to our market,
+- [22:13.110] your plant has to operate in the United States.
+- [22:15.270] The only alternative to that
+- [22:16.820] is to have no US automobile industry whatsoever,
+- [22:19.610] which is where this was headed, to be clear.
+- [22:21.730] If we stayed on this current path, within a few years,
+- [22:24.910] there would've been no US automobile industry,
+- [22:27.510] and what little was left of it would've been in Mexico,
+- [22:30.590] because US auto companies have steadily been shifting
+- [22:33.480] their supply chains to Mexico,
+- [22:35.180] where they believe it is cheaper to make their products.
+- [22:37.980] In reality, it'll be cheaper to make them here,
+- [22:39.790] because there'll be no tariff
+- [22:41.040] on anything made in the United States,
+- [22:42.300] and we'll have the cheapest energy
+- [22:43.540] and the best regulatory environment
+- [22:44.740] on the face of the Earth.
+- [22:45.980] The Press: But in the meantime, while manufacturing ramps up,
+- [22:47.890] American consumers may pay more. Do you agree?
+- [22:50.480] Mr. Miller: No, not on cars they won't,
+- [22:51.980] because again, there's now a massive economic incentive
+- [22:56.370] for automobile producers
+- [22:57.960] to expand production in the United States,
+- [23:00.000] and whatever they make here, there will be no tariff.
+- [23:02.850] Ms. Leavitt: We'll go to the back row. Go ahead.
+- [23:04.330] The Press: Thank you, Karoline.
+- [23:05.550] Today, the US Chamber of Commerce released
+- [23:07.280] a letter to the Trump administration
+- [23:10.000] asking for small business tariff relief.
+- [23:11.960] They say that's necessary in order to save small businesses
+- [23:16.040] and to stave off a recession. Stephen, is the administration
+- [23:18.880] considering small business tariff relief?
+- [23:22.080] Mr. Miller: The relief for small businesses
+- [23:23.560] is going to come in the form of the largest tax
+- [23:25.750] cut in American history, a tax cut, by the way,
+- [23:29.490] that every single Democrat is planning to vote against.
+- [23:32.140] They're voting for a tax hike
+- [23:34.150] of every middle class family of about $4,000.
+- [23:37.120] The President has made clear that there'll be 100%
+- [23:39.880] expensing for investment in the United States.
+- [23:43.170] Companies that invest in the United States will be able
+- [23:45.760] to deduct 100% of that cost from their tax liability.
+- [23:49.110] This will be the most pro-small business tax bill
+- [23:52.560] in American history. And at the same time,
+- [23:54.760] this is what you have to understand about the plan,
+- [23:56.660] is as they're able to do that,
+- [23:58.370] as they're able to reshore those supply chains,
+- [24:00.500] that also means they'll pay no tariff.
+- [24:02.210] So you'll have the lowest tax environment
+- [24:03.700] and there'll be no tariff,
+- [24:04.950] because their production and supply chains
+- [24:06.650] will be in the United States.
+- [24:07.900] The Press: So that's a no on tariff relief
+- [24:09.770] for small businesses in the short-term?
+- [24:11.100] Mr. Miller: It's a yes on tax relief for small businesses,
+- [24:14.710] and again, you only pay the tariff for products
+- [24:18.600] that are made outside the United States.
+- [24:20.130] Ms. Leavitt: Edward.
+- [24:21.340] The Press: Yeah, thanks.
+- [24:22.570] So on the rare earth mineral deal that was signed last night,
+- [24:25.470] when can that deal be operationalized,
+- [24:27.310] what's the timeframe,
+- [24:28.650] and what kind of leverage does that give Ukraine over Russia?
+- [24:32.990] Mr. Miller: I think the more important point
+- [24:34.750] about the Ukraine deal…
+- [24:36.030] And I would hopefully have an update for you soon
+- [24:38.510] on how quickly it can be operationalized,
+- [24:40.090] but we'll be moving at full speed,
+- [24:41.660] not only on that mineral deal, by the way,
+- [24:43.740] but on every mineral deal
+- [24:44.950] that this President has been unleashing.
+- [24:46.270] So we're opening up mines all across this country,
+- [24:49.060] we're also pursuing energy and mineral deals
+- [24:50.940] all over the world.
+- [24:52.270] Since the President issued his executive order
+- [24:54.600] also on deregulating coal,
+- [24:57.110] we've seen dramatic coal production
+- [24:58.660] increases already in the United States,
+- [25:00.460] so we're taking advantage of the trillions of dollars
+- [25:02.820] in coal wealth and mineral wealth
+- [25:04.310] that exist in the United States,
+- [25:05.540] we're a very mineral-rich country.
+- [25:07.430] But with respect to that deal,
+- [25:09.960] we'll move it and operationalize it as fast as we possibly can.
+- [25:13.000] But it's meant to pay back the United States,
+- [25:15.430] this is the key point,
+- [25:16.740] for the hundreds of billions of dollars
+- [25:18.690] that our taxpayers have spent subsidizing the war in Ukraine.
+- [25:22.400] So it is repayment to the United States,
+- [25:24.910] and that's one of the most important points
+- [25:26.480] to understand about it.
+- [25:28.950] The Press: What kind of leverage does it give?
+- [25:30.180] Mr. Miller: The President's goal, again,
+- [25:32.500] is to end the killing, to achieve a peace settlement.
+- [25:35.610] That remains, of course, the overriding objective.
+- [25:37.660] The Press: Thank you so much, Karoline.
+- [25:38.990] Thank you, Stephen [inaudible].
+- [25:40.370] Mr. Miller: Thank you.
+- [25:41.570] The Press: This administration has stressed the need
+- [25:44.030] for price transparency
+- [25:45.700] for things like healthcare bills and concert tickets,
+- [25:49.130] so why is it a political and hostile act for Amazon
+- [25:53.490] to display price transparency on consumer goods?
+- [25:56.820] Mr. Miller: Well, I think that's the wrong way of looking at it,
+- [25:58.690] which is why would…
+- [26:00.060] First of all, that proposal is gone now.
+- [26:01.700] But why would Amazon have all the different things
+- [26:03.710] that go into a theoretical price input?
+- [26:07.010] For example, does Amazon list
+- [26:08.980] the cost of California's regulations
+- [26:10.980] on everything made in California?
+- [26:12.570] Anything you make in California,
+- [26:14.160] you have a massive price increase
+- [26:16.160] because of the healthcare regulations that are unworkable
+- [26:18.830] in that state, because of the labor regulations
+- [26:20.920] that are unworkable in that state,
+- [26:22.220] because of the subsidies that go to illegal aliens in that state,
+- [26:24.860] because of all the bureaucracy.
+- [26:26.060] So anything being produced in California
+- [26:27.880] has a massive built-in price hike.
+- [26:30.160] So why wouldn't Amazon have a list saying,
+- [26:32.130] "If you purchase it in California
+- [26:33.670] instead of in Alabama,
+- [26:34.910] this is the premium that you pay"?
+- [26:37.340] This is a clear attempt by whoever proposed it originally,
+- [26:39.400] I don't know,
+- [26:40.610] because Amazon says they were never going to do it,
+- [26:43.040] to try to undermine our trade negotiations with China.
+- [26:49.520] I'll make another point in this,
+- [26:51.000] which is that there's been many complaints about the fact
+- [26:54.050] that there are a lot of products that are sold on Amazon
+- [26:56.700] that are actually rip-offs of American products
+- [26:59.370] that are then stolen by China,
+- [27:01.170] and then they take our IP and they put them into products
+- [27:02.980] and try to undersell our manufacturers.
+- [27:04.380] So to the extent that we are engaged
+- [27:05.940] in labeling issues on Amazon,
+- [27:07.360] I would say that would be the most significant one to fix,
+- [27:09.100] is making sure we're not undercutting American consumers.
+- [27:11.090] The Press: And then, one on Abrego Garcia, please.
+- [27:13.330] The administration is reportedly inquiring about his return,
+- [27:18.670] is that to check a box for compliance
+- [27:20.890] or does President Trump want him back on US soil, or both?
+- [27:25.660] Mr. Miller: So as Secretary Rubio said yesterday
+- [27:27.670] in the Cabinet meeting,
+- [27:29.110] this administration is not going to publicly discuss
+- [27:32.810] the inside details of our foreign policy
+- [27:35.400] and negotiations with a foreign country,
+- [27:37.830] and in particular,
+- [27:39.180] we are not going to allow a district court judge
+- [27:42.120] to try to become the Secretary of State.
+- [27:44.720] Secretary Rubio is the one,
+- [27:47.240] who under his leadership and direction
+- [27:48.800] at the State Department,
+- [27:50.020] is managing the day-to-day relationship with El Salvador.
+- [27:52.980] Let's just take a moment, number one,
+- [27:54.490] to express our gratitude to El Salvador
+- [27:57.180] for agreeing to take some of the most dangerous terrorists
+- [28:00.800] off of America's streets
+- [28:02.230] and to put them into a safe environment
+- [28:04.680] where they cannot continue to engage
+- [28:06.520] in acts of terrorism or coordination
+- [28:08.930] with the Maduro regime.
+- [28:10.390] You may have seen recently an FBI assessment
+- [28:14.080] that was unclassified that said that the Maduro regime is using
+- [28:18.900] and planning to use Tren de Aragua terrorists
+- [28:21.330] to carry out assassination plots on American soil.
+- [28:24.500] Now, very few in this room covered that.
+- [28:26.900] I'll let you all ask yourselves why you didn't cover it
+- [28:29.080] and why your editors didn't assign that story to you,
+- [28:31.340] that's something I think you should think about on your own.
+- [28:33.510] But this is a Earth-shattering piece of news.
+- [28:35.930] The Biden administration imported the terrorist army
+- [28:38.760] that our own FBI assesses is planning assassination
+- [28:42.070] strikes on American soil against critics of the Maduro regime.
+- [28:47.090] Those are the terrorists that President Trump
+- [28:49.780] is finding and apprehending,
+- [28:51.390] that our Democrat judges and Democrat activists
+- [28:54.120] are trying to keep on US soil.
+- [28:56.430] Tren de Aragua has the same legal status
+- [28:59.050] as Al-Qaeda and ISIS.
+- [29:01.100] MS-13 has the same legal status as Al-Qaeda and ISIS.
+- [29:04.840] These are foreign terrorists operating on our soil,
+- [29:07.720] and our gratitude to El Salvador
+- [29:09.650] for agreeing to take custody of these terrorists is immense.
+- [29:12.480] With respect to the case that you mentioned,
+- [29:14.600] there has now even been more evidence
+- [29:16.310] that has been made public of this person's violent,
+- [29:19.450] repeated threats and assaults against his spouse,
+- [29:24.110] someone who had repeated documented human trafficking
+- [29:30.660] and human smuggling offenses,
+- [29:32.720] somebody that has extensively documented
+- [29:35.800] membership in MS-13, a terrorist organization,
+- [29:39.140] and of course, he had MS-13 tattooed on his knuckles.
+- [29:42.420] This is a person that was a clear and present danger
+- [29:45.480] to the safety of the American people,
+- [29:47.560] and it is a sad reflection on the state of our media
+- [29:52.680] and many of the outlets represented in this room
+- [29:55.390] that you obsessively try to shill for this MS-13 terrorist,
+- [30:01.460] while no coverage occurred in your papers
+- [30:04.250] about any of the Americans
+- [30:06.200] that were raped and tortured and murdered by the illegals
+- [30:09.800] that Biden was importing into our country.
+- [30:12.200] You talk about due process.
+- [30:15.720] The Biden administration made the decision to give extensive
+- [30:18.890] due process to two Tren de Aragua
+- [30:22.010] terrorists that were apprehended at the border
+- [30:26.190] just a couple years ago.
+- [30:28.290] There were two gentlemen, they were from Venezuela.
+- [30:31.610] They were members of Tren de Aragua.
+- [30:32.950] The Biden administration and Border Patrol apprehended them
+- [30:36.020] and made the decision to provide them with extensive due process,
+- [30:41.530] put them onto a program known as supervised release,
+- [30:44.350] and put them on ankle monitors so that they could go
+- [30:47.230] through a lengthy legal judicial determination
+- [30:51.440] as to whether these legal aliens who had just set foot on US
+- [30:54.690] might want to live in the United States
+- [30:56.210] for the rest of their lives.
+- [30:58.390] What was the result of that decision?
+- [31:00.280] What was the result of that choice that was made?
+- [31:02.530] Those two men kidnapped a young girl
+- [31:05.440] named Jocelyn Nungaray from her family.
+- [31:09.860] They beat her.
+- [31:11.130] They sexually assaulted her, they tortured her,
+- [31:13.730] they stripped her, they murdered her,
+- [31:15.840] and they dumped her body.
+- [31:17.450] That is what the Biden administration's policy was.
+- [31:20.820] Most of your papers never covered her story
+- [31:22.750] when it happened.
+- [31:23.980] To the extent that you covered it at all,
+- [31:26.630] it was because President Trump forced you to cover it
+- [31:30.400] by highlighting it repeatedly over and over again.
+- [31:33.740] He had to shame you into covering it.
+- [31:36.150] And each and every one of you that sides over and over again
+- [31:39.380] with these MS-13 terrorists to the extent
+- [31:41.580] that you have the financial means to do so,
+- [31:43.460] you all choose to live in condos or homes or houses
+- [31:47.370] as far away from these kinds of gangbangers as you possibly can.
+- [31:50.700] If I offered any one of you a rent-free home with no taxes
+- [31:54.410] to pay in any of these gang neighborhoods and I said,
+- [31:57.310] "Your neighbors are MS-13 terrorists or Mexican mafia
+- [32:00.980] or Sinaloa cartel or Tren de Aragua,"
+- [32:03.470] I couldn't pay you to live there.
+- [32:05.550] But yet you with your coverage
+- [32:07.460] are trying to force innocent Americans
+- [32:09.020] to have these people as their neighbors
+- [32:11.120] and that one day their daughter may be abducted from their home
+- [32:13.870] and raped and murdered.
+- [32:15.160] So you're not going to get an ounce of sympathy
+- [32:17.090] from this administration or President Trump
+- [32:18.700] for the terrorists
+- [32:19.900] who've invaded our homes and our country.
+- [32:22.210] Ms. Leavitt: Awesome. Thank you, Peter.
+- [32:23.530] We'll take a couple more questions.
+- [32:25.310] The Press: A couple questions on DOGE, of course,
+- [32:26.570] because that's the topic that you're here to speak about.
+- [32:28.090] But I want to ask you one other question
+- [32:29.340] about the topic of prices we heard from the President
+- [32:31.070] on this just yesterday right now,
+- [32:32.390] on prices and the risks that there could be,
+- [32:34.190] some short-term, as he said,
+- [32:35.880] shortages, he was referring specifically to dolls.
+- [32:38.780] What do you tell Americans right now, Stephen,
+- [32:40.940] who say they can't afford to, in the President's words,
+- [32:44.000] be patient Americans who voted for President Trump
+- [32:46.360] on his promise
+- [32:47.560] that he would lower prices across the board on day one?
+- [32:51.510] Mr. Miller: But he did lower prices
+- [32:52.730] across the board on day one.
+- [32:54.000] The Press: Well, grocery prices last month
+- [32:55.380] went up 0.4%, of course.
+- [32:56.660] So I mean across the board, not exclusively X.
+- [32:58.670] Mr. Miller: Inflation, as you would acknowledge,
+- [33:00.750] is down substantially.
+- [33:02.250] Gas prices are down substantially.
+- [33:04.730] The new GDP report showed a 22% record increase in investment
+- [33:09.330] in the United States of America.
+- [33:13.010] Egg prices of course, which was all you guys
+- [33:14.700] talked about for a few days, I think are down like 80%.
+- [33:18.120] The reality is that we can either surrender
+- [33:20.300] economically to China
+- [33:22.310] or we can reclaim and reshore our manufacturing base
+- [33:25.660] and our industrial needs. And it's not just China.
+- [33:28.510] In the event of any national emergency…
+- [33:30.520] This is the President's first duty as commander in chief.
+- [33:33.730] In the event of any national emergency,
+- [33:35.590] we cannot be reliant on foreign countries
+- [33:37.450] for steel, aluminum, energy, technology,
+- [33:42.950] any of the essential components
+- [33:44.610] that we need to keep this country running.
+- [33:46.420] He is fulfilling his duty as commander in chief
+- [33:50.350] that every President before him had failed to fulfill
+- [33:53.400] or even actively betrayed.
+- [33:55.410] And despite inheriting all of this,
+- [33:57.310] as I mentioned, inflation down, jobs up,
+- [34:00.520] and particularly by the way, jobs for American workers.
+- [34:02.670] So for the first time you look at these jobs reports,
+- [34:05.280] the government workers are going down,
+- [34:08.240] which artificially of course increased previous job totals.
+- [34:11.150] The employment of non-citizens is going down.
+- [34:14.550] The employment of American citizens is exploding.
+- [34:17.850] Remember all the job gains during the Biden administration,
+- [34:20.970] so-called gains on net were for foreign workers.
+- [34:23.930] So if you look at the stock of American workers
+- [34:26.180] over his whole administration, they lost jobs on net.
+- [34:29.100] So if you're an American worker,
+- [34:30.550] you lived through a four years of a Biden depression.
+- [34:33.380] That was the economic reality
+- [34:35.050] that now President Trump is rescuing.
+- [34:38.140] And again, if you make your product in America,
+- [34:40.870] there's no tariff.
+- [34:42.200] And as we develop advanced manufacturing techniques
+- [34:45.460] and increased AI, increased robotics,
+- [34:47.300] it'll be cheaper and cheaper
+- [34:48.610] and cheaper to manufacture in America.
+- [34:50.000] The Press: But to be clear,
+- [34:51.210] you said that prices have gone down across the board.
+- [34:53.360] The President himself acknowledged that on toys
+- [34:55.180] you may end up paying… On dolls he was referring to.
+- [34:57.450] You may end up paying a little bit more right now.
+- [34:59.750] So in terms of-
+- [35:01.040] Mr. Miller: He was making the point
+- [35:02.520] that I think almost every American consumer agrees with,
+- [35:05.210] if they had a choice between a…
+- [35:06.890] And I'm a parent of young children.
+- [35:08.340] If you had a choice between a doll from China
+- [35:11.380] that might have, say, lead paint in it,
+- [35:14.560] that is not as well constructed as a doll made in America,
+- [35:18.400] that has a higher environmental and regulatory standard,
+- [35:21.480] and that is made to a higher degree of quality
+- [35:24.260] and those two products are both on Amazon that yes,
+- [35:26.790] you probably will be willing to pay more
+- [35:28.730] for a better-made American product,
+- [35:30.550] but here's appears the key point.
+- [35:32.280] With the tax cuts, the regulation cuts,
+- [35:34.430] the energy price decrease,
+- [35:37.520] and everything else that President Trump is doing
+- [35:39.410] to unleash this era of American prosperity
+- [35:42.120] and prevent the road we were on,
+- [35:44.590] to get off that road of financial ruin and doom
+- [35:47.350] means that it will be cheaper
+- [35:48.750] than ever to make and manufacture in America.
+- [35:51.400] I think that answers your question.
+- [35:52.980] The Press: One more. Stephen, can I just I ask…?
+- [35:57.770] The DOGE, can I ask about the DOGE?
+- [36:00.020] Ms. Leavitt: Peter, he just gave you two questions.
+- [36:01.590] Brian, go ahead.
+- [36:02.910] The Press: Okay. Last night, Kamala Harris
+- [36:06.050] delivered her first major speech after losing the election.
+- [36:10.550] She attacked Trump personally, attacked the policies.
+- [36:13.730] Any comment of the White House on that?
+- [36:16.920] Mr. Miller: Well, I think it was a great reminder
+- [36:19.760] to the American people of just how blessed we all
+- [36:23.410] are that the leaders sitting in the Oval Office today
+- [36:27.760] is President Donald Trump and not President Kamala Harris.
+- [36:31.220] It was a helpful reminder of just what a travesty
+- [36:34.200] and a tragedy that would've been.
+- [36:35.730] It would've been the end of America,
+- [36:37.530] and it gives me a chance to bring this whole thing home.
+- [36:40.160] If we continued on this road of radical regulation,
+- [36:44.010] choking off American energy,
+- [36:45.610] sending our supply chains to foreign countries,
+- [36:48.090] taxing our economy to death,
+- [36:50.680] pushing this cancerous woke ideology on our children,
+- [36:54.250] ending merit, ending scientific innovation,
+- [36:57.610] ending public safety, allowing…
+- [37:00.500] Everyone goes to the stores these days.
+- [37:01.920] Everything's locked up, criminals roam free.
+- [37:05.010] Law-abiding citizens under the previous administration
+- [37:07.700] were punished while gang bangers were given red carpet treatment.
+- [37:11.680] Democrats, of course, are still giving gang bangers
+- [37:13.280] red carpet treatment and then the border invasion.
+- [37:15.510] If those policies had continued,
+- [37:17.150] it would've been the end of the American Republic.
+- [37:19.840] And the only thing Americans want to hear from Kamala Harris
+- [37:23.220] is an apology for joining Joe Biden.
+- [37:26.550] And remember, she was the border czar,
+- [37:28.260] joining Joe Biden in aiding
+- [37:30.510] and abetting the invasion of our country.
+- [37:32.730] And we're never going to stop talking about this
+- [37:34.660] because what they did to this country is unforgivable.
+- [37:38.900] It is an eternal stain on the Democrat party.
+- [37:42.950] Every day we read another story.
+- [37:45.100] Every day we arrest another alien
+- [37:46.700] they let into this country who raped a child,
+- [37:49.820] who beat a woman with an inch of her life,
+- [37:52.560] who murdered a mom, who murdered a dad,
+- [37:54.880] who trafficked drugs into this country,
+- [37:57.220] who trafficked fentanyl into this country,
+- [37:59.290] who are responsible for dead and slaughtered Americans.
+- [38:02.170] And I don't know what's broken in the Washington Press Corps
+- [38:06.050] that none of that moves them emotionally.
+- [38:08.160] The only thing that gets them exercised is do
+- [38:11.010] we need to have more trials for terrorist supporters,
+- [38:14.290] we need to have more trials for gang bangers,
+- [38:15.930] we need to have more trials for illegal alien invaders?
+- [38:18.250] Even though Congress and the Constitution clearly say
+- [38:21.220] that you can expel invaders and illegal aliens
+- [38:24.370] quickly, efficiently, and properly.
+- [38:27.150] This President has literally saved America.
+- [38:30.460] And I could not be prouder, I could not be prouder,
+- [38:33.400] and I know Karoline feels the same way
+- [38:35.140] to come every single day to this building
+- [38:37.070] where we have a leader sitting in that office
+- [38:39.110] whose first, last, and every thought is the safety,
+- [38:42.900] prosperity, security, and sovereignty of the citizens…
+- [38:46.950] That's an important word, people,
+- [38:48.320] citizens of this republic. Thank you all.
+- [38:51.560] Ms. Leavitt: Thank you. Thank you for your time.
+- [38:53.280] Thank you, everyone.
+- [38:54.620] Just to add on the Kamala Harris point,
+- [38:56.180] I think I speak for everyone at the White House.
+- [38:57.650] We encourage Kamala Harris to continue going out
+- [38:59.720] and do speaking engagements.
+- [39:01.920] You'll hear from the President at 11 o'clock.
+- [39:03.540] See you guys later.

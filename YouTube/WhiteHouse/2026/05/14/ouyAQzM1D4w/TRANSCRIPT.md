@@ -1,0 +1,211 @@
+<!-- source: https://www.youtube.com/watch?v=ouyAQzM1D4w -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: ouyAQzM1D4w -->
+<!-- date_published: 2026-05-14T16:02:58+00:00 -->
+<!-- date_accessed: 2026-06-02T00:59:42.139583+00:00 -->
+
+# Transcript: President Trump Participates in a State Banquet with the President of the People's Republic of China
+
+- [00:00.240] Female Speaker: Please welcome President
+- [00:01.950] Xi Jinping and President Donald J. Trump.
+- [00:05.180] ♪ (music playing) ♪
+- [01:46.020] (speaking Mandarin Chinese)
+- [01:55.410] Female Speaker: The welcoming banquet hosted
+- [01:57.130] by President Xi Jinping
+- [01:58.590] for President Donald J. Trump now begins.
+- [02:02.000] (speaking Mandarin Chinese)
+- [02:06.180] Female Speaker: Now, a toast by President Xi.
+- [02:09.720] (applause)
+- [02:19.373] ♪ (music playing) ♪
+- [02:40.025] (speaking Mandarin Chinese)
+- [03:10.678] (applause)
+- [03:15.880] Honorable President Donald J. Trump.
+- [03:18.590] Ladies and gentlemen, it is a great pleasure
+- [03:21.580] to host the state banquet in honor of President Trump
+- [03:25.930] during his state visit to China.
+- [03:28.540] On behalf of the Chinese government and people,
+- [03:31.480] I'd like to extend a warm welcome
+- [03:34.170] to President Trump and the US delegation.
+- [03:37.880] (speaking Mandarin Chinese)
+- [04:41.100] This is a historic visit.
+- [04:43.580] This year marks the start of China's
+- [04:45.980] 15th Five-Year Plan for economic and social development.
+- [04:50.450] The over 1.4 billion people of China
+- [04:53.790] join on the rich heritage of our over 5,000-year civilization
+- [04:58.990] advancing Chinese modernization on all fronts
+- [05:02.770] through high quality development.
+- [05:05.630] This year is also the 250th anniversary
+- [05:09.590] of American independence.
+- [05:12.100] The over 300 million American people
+- [05:15.000] are reinvigorating the spirit of patriotism,
+- [05:18.390] innovation, and enterprise and ushering in a new journey
+- [05:23.150] for the development of the United States.
+- [05:26.210] The people of China and the United States
+- [05:28.970] are both great peoples,
+- [05:31.260] achieving the great rejuvenation of the Chinese nation
+- [05:34.990] and making America great again can go hand in hand.
+- [05:39.270] We can help each other succeed
+- [05:41.320] and advance the wellbeing of the whole world.
+- [05:45.030] (speaking Mandarin Chinese)
+- [06:41.190] Fifty-five years ago,
+- [06:43.140] President Richard Nixon sent Dr. Henry Kissinger
+- [06:46.720] to visit China and ping-pong diplomacy
+- [06:49.550] was carried out between our two countries.
+- [06:52.870] Through efforts of the two governments and peoples,
+- [06:55.770] the door that had remained frozen for over 20 years
+- [06:59.540] was opened, marking a milestone
+- [07:02.810] in contemporary international relations.
+- [07:06.420] From then on, China and the United States
+- [07:09.300] have written many chapters of friendship
+- [07:11.800] through mutual openness and cooperation.
+- [07:15.390] Under the new situation, President Trump and I,
+- [07:18.930] fully aware of the expectations of our two nations
+- [07:22.500] and the international community
+- [07:24.620] have had multiple meetings and phone calls
+- [07:27.850] and kept China-US relations generally stable.
+- [07:32.150] (speaking Mandarin Chinese)
+- [08:21.200] Today, President Trump and I
+- [08:22.890] had in-depth exchanges on China-US
+- [08:25.710] relations and international and regional dynamics.
+- [08:29.680] We both believe that the China-US relationship
+- [08:32.960] is the most important bilateral relationship in the world.
+- [08:37.390] We must make it work and never mess it up.
+- [08:41.390] Both China and the United States stand to gain from cooperation
+- [08:46.050] and lose from confrontation.
+- [08:49.010] Our two countries should be partners rather than rivals.
+- [08:53.470] President Trump and I also agreed
+- [08:55.650] to build a constructive China-US relationship
+- [08:59.240] of strategic stability to promote the steady, sound,
+- [09:03.840] and sustainable development of China-US relations
+- [09:08.210] and bring more peace, prosperity,
+- [09:10.830] and progress to the world.
+- [09:13.310] (speaking Mandarin Chinese)
+- [10:07.600] Honorable President Donald J. Trump,
+- [10:10.040] ladies and gentlemen, friends.
+- [10:12.560] Looking back at the cause of China-US relations,
+- [10:16.130] whether or not we could have mutual respect,
+- [10:18.920] peaceful co-existence,
+- [10:20.490] and win-win cooperation is the key
+- [10:23.550] to whether the relationship can advance steadily.
+- [10:27.590] The world today is changing and turbulent.
+- [10:31.360] China-US relations concern the well-being
+- [10:34.290] of the over 1.7 billion people of both countries
+- [10:38.650] and affect the interests of the over eight billion
+- [10:42.240] people of the world.
+- [10:44.530] Both sides should rise up to this historic responsibility
+- [10:48.690] and steer the giant ship of China-US relations forward
+- [10:53.260] steadily and in the right direction.
+- [10:57.610] (speaking Mandarin Chinese)
+- [11:17.690] Now, please join me in the toast
+- [11:20.350] to the development and prosperity of China
+- [11:22.730] and the United States and the wellbeing of our people,
+- [11:26.450] to the bright future of China-US relations
+- [11:29.370] and the friendship between the two peoples
+- [11:32.560] and to the health of President Trump
+- [11:34.970] and all the friends present. Cheers.
+- [11:42.210] (music playing)
+- [11:53.520] (applause)
+- [12:21.380] Female Speaker: Thank you, President Xi.
+- [12:24.320] (speaking Mandarin Chinese)
+- [12:26.150] Next, a toast by President Trump.
+- [12:29.640] (applause)
+- [12:40.380] The President: Well, thank you very much.
+- [12:41.870] This is a great honor.
+- [12:43.930] It was a fantastic day and in particular,
+- [12:47.660] I want to thank President Xi, my friend,
+- [12:51.270] for this magnificent welcome
+- [12:54.430] and it really was a magnificent welcome like none other
+- [12:58.320] and for so graciously hosting us
+- [13:00.460] on this very historic state visit.
+- [13:04.560] We had an extremely positive and productive conversations
+- [13:08.000] and meetings today
+- [13:09.790] with the Chinese delegation earlier and this evening
+- [13:13.430] is another cherished opportunity to discuss, among friends,
+- [13:17.910] some of the things that we discussed today
+- [13:21.600] all good for the United States and for China,
+- [13:25.060] and it was a great honor to be with you, please.
+- [13:28.220] (speaking Mandarin Chinese)
+- [14:15.950] The relationship between the American and Chinese people
+- [14:19.060] goes all the way back to America's founding.
+- [14:22.950] The first American council to China,
+- [14:25.810] Samuel Shah arrived on the first American trading ship
+- [14:29.510] to reach these shores in 1784.
+- [14:33.840] The Chinese merchants had a name for the Americans,
+- [14:37.340] they called their visions, The New People.
+- [14:40.850] Two and a half centuries later, that first connection has grown
+- [14:44.180] into one of the most consequential relationships
+- [14:48.290] in world history.
+- [14:49.940] (speaking Mandarin Chinese)
+- [15:34.220] From the beginning,
+- [15:35.420] our citizens have shared a deep sense of mutual respect.
+- [15:39.500] Founding Father, Benjamin Franklin,
+- [15:42.030] published the sayings of Confucius
+- [15:45.680] in his colonial newspaper and today's sculpture
+- [15:50.020] recognizing that ancient Chinese age
+- [15:52.300] is carved into the face of the United States
+- [15:55.690] Supreme Court very proudly.
+- [15:58.870] (speaking Mandarin Chinese)
+- [16:29.460] The appreciation ran in both directions.
+- [16:31.810] Chinese admirers of President George Washington
+- [16:35.300] gifted a stone tablet honoring his memory
+- [16:38.400] to adorn the Washington Monument.
+- [16:41.840] It bears the words of a Chinese official
+- [16:44.310] who called the great general and statesman
+- [16:46.950] a hero among men.
+- [16:50.380] (speaking Mandarin Chinese)
+- [17:24.220] And across the centuries,
+- [17:25.920] this mutual esteem grew into a relationship
+- [17:29.070] that reflected the tremendous talent
+- [17:31.100] and potential of our two people.
+- [17:34.470] Chinese workers helped lay the railroad tracks
+- [17:37.190] that connected our Atlantic coast to the Pacific.
+- [17:41.100] American travelers to China
+- [17:42.760] helped spread literacy and modern medicine,
+- [17:45.450] and at the request of China's ambassador,
+- [17:48.200] it was President Theodore Roosevelt
+- [17:50.830] who provided the funds to establish
+- [17:52.820] President Xi's alma mater, Tsinghua University.
+- [17:58.150] (speaking Mandarin Chinese)
+- [18:51.230] As allies in World War II,
+- [18:53.300] President Franklin Roosevelt's mentions
+- [18:55.820] of the brave people of China,
+- [18:58.340] that's what they were, through loud cheers
+- [19:00.850] and his speeches in the United States,
+- [19:02.850] and everybody loved what he had to say,
+- [19:05.930] just as many Chinese now love basketball and blue jeans,
+- [19:09.930] Chinese restaurants in America today
+- [19:12.500] outnumber the five largest fast food chains
+- [19:16.010] in the United States all combined.
+- [19:17.900] That's a pretty big statement.
+- [19:20.920] (speaking Mandarin Chinese)
+- [19:48.820] This bond of commerce and respect
+- [19:51.340] that stretches back 250 years is the foundation for a future
+- [19:55.390] that benefits both of our nations.
+- [19:58.450] The American and Chinese people share much in common,
+- [20:01.450] we value hard work, we value courage and achievement,
+- [20:05.550] we love our families, and we love our countries.
+- [20:09.020] Together, we have the chance to draw these values
+- [20:11.730] to create a future of greater prosperity,
+- [20:14.180] cooperation, and happiness,
+- [20:17.270] and peace for our children, we love our children.
+- [20:21.100] This region and the world is a special world
+- [20:23.620] with the two of us united and together.
+- [20:27.000] (speaking Mandarin Chinese)
+- [21:12.450] Thank you again, President Xi, for this beautiful welcome.
+- [21:16.780] And tonight, it is my honor
+- [21:18.180] to extend an invitation to you and Madam Peng
+- [21:22.480] to visit us at the White House this September 24th,
+- [21:27.700] and we look forward to it.
+- [21:28.970] And I'd now like to raise a glass
+- [21:32.030] and propose a toast to the rich and enduring ties
+- [21:35.360] between the American and Chinese people,
+- [21:38.120] it's a very special relationship.
+- [21:40.390] And I want to thank you again,
+- [21:41.820] this has been an amazing period of time.
+- [21:43.960] Thank you, President Xi.
+- [21:46.750] (speaking Mandarin Chinese)
+- [22:21.540] Thank you very much. Thank you, everybody.
+- [22:25.840] Thank you, everybody, very much.
+- [22:28.840] ♪ (music playing) ♪
+- [22:37.945] (applause)
